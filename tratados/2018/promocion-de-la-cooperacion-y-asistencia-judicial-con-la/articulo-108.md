@@ -1,0 +1,3 @@
+ARTÍCULO 108- Designación de candidatos
+Se designará un solo candidato para el cargo vacante de que se trate por la Asamblea General especialmente convocada al efecto, por mayoría simple de votos. Si resultara que más de un candidato propuesto superara la mayoría de votos exigida, se nominará como candidato aquel que hubiera obtenido mayor número.
+Podrán proponer candidatos a la Asamblea General: el Poder Ejecutivo, el Poder Judicial, la Asamblea Legislativa, las universidades, el Colegio de Abogados y Abogadas de Costa Rica y cualquier organización no gubernamental con personería jurídica cuyo objeto sea la promoción, la defensa y el estudio de los derechos humanos.

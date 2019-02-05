@@ -1,0 +1,2 @@
+ARTÍCULO 73- Autorización a la Fiscalía de la Corte Penal Internacional para realizar diligencias en territorio nacional
+El Ministerio de Relaciones Exteriores y Culto, con noticia a la Corte Suprema de Justicia y el Ministerio Público, autorizará a la Fiscalía de la Corte Penal Internacional para que ejecute directamente en territorio nacional y sin la presencia de las autoridades competentes, una solicitud de asistencia que no requiera medidas coercitivas en los supuestos contemplados en el artículo 99, párrafo 4, del Estatuto de Roma.

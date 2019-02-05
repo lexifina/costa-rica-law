@@ -1,0 +1,2 @@
+ARTÍCULO 6- Condición jurídica y personalidad jurídica de la Corte
+Con arreglo al artículo 4 del Estatuto de Roma, la Corte tiene personalidad jurídica internacional y tiene también la capacidad jurídica necesaria para el desempeño de sus funciones y el cumplimiento de sus propósitos. Tiene, en particular, capacidad jurídica para celebrar contratos, adquirir bienes muebles e inmuebles, disponer de ellos y participar en procedimientos judiciales.

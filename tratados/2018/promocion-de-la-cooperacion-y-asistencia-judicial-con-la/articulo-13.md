@@ -1,0 +1,4 @@
+ARTÍCULO 13- Comunicaciones con la Corte Penal Internacional
+Las comunicaciones desde la Corte Penal Internacional y hacia ella, incluyendo los testimonios o reportes de la ejecución de las solicitudes de cooperación, estarán exentas del requisito de legalización y deberán ser enviadas en original o copia certificada junto con todos los documentos justificativos. En caso de emergencia y excepcionalmente, estos documentos pueden ser transmitidos por cualquier medio directamente a la Sala Tercera de la Corte Suprema de Justicia y al Ministerio de Relaciones Exteriores y Culto, según lo establece la presente ley.
+Los originales se transmitirán seguidamente de la forma prevista en este párrafo.
+Las comunicaciones y los documentos recibidos o enviados a la Corte Penal Internacional serán en idioma español o, en su caso, deberán ser acompañados de la respectiva traducción al idioma español.

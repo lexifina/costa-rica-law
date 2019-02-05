@@ -1,0 +1,2 @@
+ARTÍCULO 4- Interpretación
+La interpretación de las regulaciones, disposiciones y demás contenido del Estatuto de Roma se hará conforme a la jurisprudencia y los criterios emitidos por la Corte Penal Internacional. En caso de no existir jurisprudencia o criterios sobre una regulación o disposición del Estatuto, deberán observarse los principios generales del derecho, la costumbre internacional, los instrumentos de derecho penal internacional, el derecho internacional humanitario y el derecho internacional de los derechos humanos.

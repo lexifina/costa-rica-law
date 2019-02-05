@@ -1,0 +1,3 @@
+ARTÍCULO 62- Procedimiento de urgencia
+Para el cumplimiento de las solicitudes formuladas por la Corte Penal Internacional en relación con investigaciones o enjuiciamientos de su competencia, cuando tenga carácter urgente el secuestro de los bienes, productos o dinero, el embargo de cuentas y la inmovilización de estas, el Ministerio Público podrá solicitar al juez el secuestro, embargo o inmovilización de bienes, documentos y cuentas bancarias de manera urgente solicitando posteriormente la autorización judicial, acompañando el inventario respectivo e indicando el lugar donde se encuentran los bienes y documentos.
+Dicha solicitud será resuelta dentro de las siguientes veinticuatro horas.

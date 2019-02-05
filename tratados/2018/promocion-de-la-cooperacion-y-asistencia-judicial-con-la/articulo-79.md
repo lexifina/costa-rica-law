@@ -1,0 +1,2 @@
+ARTÍCULO 79- Medidas especiales
+En el caso de víctimas o testigos traumatizados, niñez, personas adultas mayores, víctimas de violencia sexual o cuya situación social la pone en mayor vulnerabilidad, la víctima, el testigo o su representante podrá solicitar, de acuerdo con las Reglas de Procedimiento y Prueba 87 y 88 de la Corte Penal Internacional, medidas especiales para garantizar la seguridad de las personas y la comparecencia de estas frente a la Corte Penal Internacional.

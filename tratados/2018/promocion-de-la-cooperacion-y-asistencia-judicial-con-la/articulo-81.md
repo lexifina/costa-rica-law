@@ -1,0 +1,3 @@
+ARTÍCULO 81- Solicitud de víctimas a participar por sí o mediante su representante
+Cuando la víctima desee participar en el proceso ante la Corte Penal Internacional, por sí misma o mediante sus representantes, podrá solicitar a la Sala Tercera de la Corte Suprema de Justicia o al Ministerio de Relaciones Exteriores y Culto que transmita su solicitud a la Corte Penal Internacional, estos deberán facilitar la comunicación y hacer llegar la solicitud de la víctima de forma pronta y sin dilación alguna.
+La calificación de la solicitud y sus requisitos es una decisión exclusiva de la Corte Penal Internacional, que conforme a las reglas de procedimiento determina el cumplimiento de los requisitos.

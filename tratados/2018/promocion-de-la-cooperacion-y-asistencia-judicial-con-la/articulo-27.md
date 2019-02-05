@@ -1,0 +1,2 @@
+ARTÍCULO 27- Inhibición de la jurisdicción de Costa Rica a favor de la Corte Penal Internacional
+Si, a pesar de la solicitud de inhibición de la fiscal de la Corte Penal Internacional o de la impugnación de la competencia y/o la admisibilidad de la causa contemplada en esta ley, la Sala competente de la Corte Penal Internacional autoriza a la fiscal para que proceda a la investigación o mantiene su competencia, el órgano jurisdiccional de Costa Rica se inhibirá a favor de la Corte Penal Internacional y a su solicitud le remitirá lo actuado.

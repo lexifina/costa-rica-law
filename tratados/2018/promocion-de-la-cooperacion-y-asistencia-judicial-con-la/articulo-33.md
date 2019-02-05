@@ -1,0 +1,2 @@
+ARTÍCULO 33- Solicitud para que la Fiscalía de la Corte inicie una investigación
+Corresponde, exclusivamente, al Poder Ejecutivo decidir la presentación de una denuncia ante la Fiscalía de la Corte Penal Internacional, de conformidad con lo establecido en los artículos 13, párrafo a, y 14 del Estatuto de Roma, y, en su caso, para peticionar a la Sala de Cuestiones Preliminares que examine la decisión de la Fiscalía de la Corte de no proceder a la investigación y/o pedir a la Fiscalía de la Corte que reconsidere su decisión, conforme al artículo 53.3.a del Estatuto.

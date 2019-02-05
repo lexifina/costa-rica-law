@@ -1,0 +1,4 @@
+ARTÍCULO 48- Encarcelamiento por error en la persona requerida
+La Sala Tercera de la Corte Suprema de Justicia, previa notificación a la Fiscalía General de la República, dispondrá la libertad de la persona detenida, en cumplimiento de una solicitud de detención y entrega o detención preventiva, si se comprueba que el detenido no es la persona reclamada, lo que será comunicado, inmediatamente, a la Corte Penal Internacional.
+La excarcelación se podrá disponer bajo caución u otras medidas sustitutivas a la prisión preventiva, hasta tanto se reciba el resultado de las consultas que se celebren con la Corte Penal Internacional.
+La Corte Suprema de Justicia ordenará que se investigue si esta se encuentra en territorio nacional y se procure localizar a la persona requerida. El resultado de dichas investigaciones será informado a la Corte Penal Internacional.

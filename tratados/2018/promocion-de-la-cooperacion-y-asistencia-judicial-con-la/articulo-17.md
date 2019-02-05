@@ -1,0 +1,2 @@
+ARTÍCULO 17- Problemas en una solicitud de cooperación de la Corte
+Cuando la Corte Suprema de Justicia o el Ministerio de Relaciones Exteriores y Culto reciban una solicitud de cooperación de la Corte Penal Internacional y constate que esta presenta deficiencias o problemas que pueden obstaculizar o impedir su cumplimiento, le comunicará su existencia a la Corte Penal Internacional sin demora, procurando acordar con esta o sus órganos las medidas razonables de solución sugeridas para el caso.

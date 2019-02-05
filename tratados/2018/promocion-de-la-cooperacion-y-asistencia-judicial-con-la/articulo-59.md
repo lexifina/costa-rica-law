@@ -1,0 +1,4 @@
+ARTÍCULO 59- Solicitudes concurrentes
+En el caso de solicitudes concurrentes entre una solicitud de entrega de la Corte y una solicitud de extradición por un Estado, parte o no del Estatuto de Roma, por la misma persona y por la misma o distinta conducta que constituya la base del crimen por el cual la Corte ha pedido la entrega de la persona, la solicitud de la Corte se considerará prioritaria de acuerdo con lo establecido por el artículo 90 del Estatuto de Roma.
+El Ministerio de Relaciones Exteriores y Culto notificará a la Corte Penal Internacional y al Estado requirente e informará a la Sala Tercera de la Corte Suprema de Justicia y a la Fiscalía General de la República.
+Si estuviera pendiente la resolución sobre admisibilidad de la causa, ante la Corte Penal Internacional, el trámite se suspenderá hasta conocer la resolución correspondiente.

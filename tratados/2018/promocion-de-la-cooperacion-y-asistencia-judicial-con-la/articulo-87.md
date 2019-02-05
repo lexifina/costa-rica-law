@@ -1,0 +1,2 @@
+ARTÍCULO 87- Competencia del Ministerio de Justicia y Gracia en esta materia
+El Ministerio de Justicia será la institución que estará en contacto directo con la Corte Penal Internacional, a través del secretario de esta o con la persona designada para tal efecto, en relación con todos los asuntos relacionados con el intercambio de comunicaciones para establecer los términos bajo los cuales Costa Rica recibirá a la persona beneficiada con libertad provisional.

@@ -1,0 +1,2 @@
+ARTÍCULO 77- Comparecencia mediante sistemas de comunicación electrónica u otros medios especiales
+Para la comparecencia de víctimas, testigos o peritos ante la Corte Penal Internacional, mediante sistemas de comunicación electrónica u otros medios especiales, se deberán observar las reglas generales establecidas en el Código Procesal Penal de Costa Rica y las Reglas de Procedimiento y Prueba de la Corte Penal Internacional.

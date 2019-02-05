@@ -1,0 +1,2 @@
+ARTÍCULO 72- Entrega de documentación o información confidencial para reunir nuevas pruebas
+El Ministerio de Relaciones Exteriores y Culto y/o la Sala Tercera de la Corte Suprema de Justicia están habilitados a entregar a la Fiscalía de la Corte Penal Internacional, con notificación a la Corte Suprema de Justicia, documentos o información confidencial, con la condición de que mantengan su carácter de tal y que únicamente puedan ser utilizados para reunir nuevas pruebas, de conformidad con lo previsto por el artículo 93, párrafo 8, literal b) del Estatuto de Roma.

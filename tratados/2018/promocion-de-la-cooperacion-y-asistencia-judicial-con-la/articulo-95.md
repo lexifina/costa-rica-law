@@ -1,0 +1,6 @@
+TÍTULO V
+LIBERTAD DEFINITIVA
+ARTÍCULO 95- Procedimiento
+Cuando se verifique una de las condiciones previstas en la subregla 1 de la regla 185 de las Reglas de Procedimiento y Prueba adoptada con arreglo al artículo 51 del Estatuto de Roma de la Corte Penal Internacional para la puesta en libertad de una persona, la Secretaría, después de escuchar a la persona puesta en libertad, consultará con el Ministerio de Justicia y Gracia para determinar si está dispuesto a aceptar a la persona puesta en libertad en su territorio, el que contestará dentro de los treinta días de la recepción de la solicitud.
+Junto con su solicitud, la Secretaría proporcionará al Ministerio de Justicia y Gracia una copia de la decisión por la que se pone en libertad a la persona e información acerca de la etapa del procedimiento.
+El presente artículo no impedirá que la Secretaría consulte proactivamente con el Ministerio de Justicia y Gracia acerca de si estaría de acuerdo con que la persona fuera puesta en libertad en el territorio de Costa Rica, en caso de que se verificara una de las condiciones mencionadas en el párrafo 1. En tal caso, la copia de la decisión mencionada en el párrafo 2 se transmitirá en una etapa posterior, cuando sea emitida por la Corte.

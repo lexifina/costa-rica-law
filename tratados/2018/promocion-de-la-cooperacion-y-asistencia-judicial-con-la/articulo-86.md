@@ -1,0 +1,3 @@
+TÍTULO IV
+LIBERTAD PROVISIONAL DE UN SOSPECHOSO
+ARTÍCULO 86- La aceptación de personas bajo libertad provisional Sin perjuicio de cualquier decisión específica de la Sala competente en esta materia, Costa Rica acepta, con sujeción a los términos que sean determinados en su momento con la Corte Penal Internacional, recibir en su territorio a personas bajo un régimen de libertad provisional otorgado por una Sala de Cuestiones Preliminares de la Corte Penal Internacional, de conformidad con el artículo 60 del Estatuto de Roma, o por una Sala de Primera Instancia, de conformidad con el artículo 61, numeral 11 del Estatuto de Roma, con o sin condiciones, de acuerdo con la Regla 119 de las Reglas de Procedimiento y Prueba.

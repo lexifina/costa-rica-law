@@ -1,0 +1,2 @@
+ARTÍCULO 84- Pago de Fondo
+El Ministerio de Justicia y Gracia podrá realizar pagos desde el Fondo para las víctimas, con o sin deducción de costas, a la Corte Penal Internacional, el fondo fiduciario establecido en virtud del artículo 79 del Estatuto de Roma, a las víctimas de los delitos previstos en el Estatuto de Roma en su versión posterior a las Enmiendas de Kampala, así como a las familias de las víctimas, o de otra manera que la Sala Tercera de la Corte Suprema de Justicia crea conveniente.

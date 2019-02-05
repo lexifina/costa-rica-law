@@ -1,0 +1,2 @@
+ARTÍCULO 103- Solicitud de modificación de pena por la persona condenada
+La persona condenada podrá presentar, ante la Sala Tercera de la Corte Suprema de Justicia y el juez de ejecución de la pena, una solicitud de libertad condicional, reducción de pena, de fraccionamiento o suspensión de la pena o de vigilancia electrónica. La solicitud se transmitirá de inmediato a la Corte Penal Internacional acompañando todos los documentos pertinentes. La Corte Penal Internacional decidirá si el condenado puede o no beneficiarse de las medidas solicitadas.

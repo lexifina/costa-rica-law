@@ -1,0 +1,5 @@
+ARTÍCULO 50- Excepciones de cosa juzgada o litispendencia
+La persona cuya entrega sea solicitada por la Corte Penal Internacional tendrá derecho a impugnar la solicitud de entrega oponiendo ante la Corte Suprema de Justicia, únicamente, las excepciones de cosa juzgada o de litispendencia.
+Las excepciones podrán interponerse en cualquier momento del trámite, hasta las cuarenta y ocho horas siguientes de celebrada la audiencia prevista en el artículo 38.
+Deducida la oposición, la Corte Suprema de Justicia suspenderá el trámite de entrega y con noticia a la Fiscalía General de la República celebrará consultas con la Corte Penal Internacional para determinar, conforme al artículo 89, párrafo segundo, del Estatuto de Roma, si ha habido una decisión sobre la admisibilidad de la causa.
+Si la causa ha sido admitida, continuará el procedimiento de entrega. Si está pendiente la decisión sobre admisibilidad, se aplazará el trámite de la entrega hasta por el plazo de un año, correspondiendo con el plazo máximo de prisión preventiva para delitos de crimen organizado. Las resoluciones respectivas serán notificadas al impugnante.

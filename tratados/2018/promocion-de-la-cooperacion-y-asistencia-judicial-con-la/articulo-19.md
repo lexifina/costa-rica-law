@@ -1,0 +1,2 @@
+ARTÍCULO 19- Ejecución de las medidas provisionales
+La Sala Tercera de la Corte Suprema de Justicia podrá ordenar la ejecución de las medidas provisionales mencionadas en el artículo 92 del Estatuto de Roma en la forma prescrita por el ordenamiento jurídico nacional, pudiendo ser renovadas, en las mismas condiciones, con anterioridad a la expiración de dicho plazo, a petición de la Corte Penal Internacional.

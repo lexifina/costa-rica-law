@@ -1,0 +1,3 @@
+ARTÍCULO 105- Traslado de los bienes obtenidos en la ejecución de una sentencia
+Los bienes o el producto de la venta de bienes inmuebles, o en su caso de otros bienes obtenidos por Costa Rica en la ejecución de una sentencia de la Corte Penal Internacional, deberán ser transferidos a la Corte o depositados en el Fondo para las víctimas de delitos internacionales, previsto en el capítulo IV, título III de la presente ley, según lo haya solicitado la Corte Penal Internacional.
+Toda contestación relativa a la ejecución de las multas y de confiscación o de reparaciones se remitirá a la Corte Penal Internacional, la que decidirá sobre el tema.

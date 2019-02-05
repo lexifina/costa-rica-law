@@ -1,0 +1,2 @@
+ARTÍCULO 20- Sesiones de la Corte Penal Internacional en la República de Costa Rica
+De conformidad con el párrafo 3 del artículo 3 y el artículo 62 del Estatuto de Roma, en caso de que la Corte lo considere conveniente, se autoriza sin restricciones, previa noticia a la Corte Suprema de Justicia, que la Corte Penal Internacional sesione en el país o establezca una oficina especial en cualquier lugar, a elección de la Corte, dentro del territorio de Costa Rica.

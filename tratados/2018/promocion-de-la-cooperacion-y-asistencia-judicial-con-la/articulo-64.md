@@ -1,0 +1,3 @@
+ARTÍCULO 64- Decomiso
+Si la Corte Penal Internacional condena a la persona procesada, a la pena contenida en el artículo 77.2.b) del Estatuto de Roma, el órgano judicial correspondiente emitirá resolución consistente en la pérdida, a favor de la Corte Penal Internacional, de los bienes, instrumentos, productos, dinero, cuentas bancarias y cualquier otro activo.
+Si los bienes fueran consistentes en bienes inmuebles y las víctimas de los delitos cometidos por la persona condenada fueran todas costarricenses, se promoverá por la vía diplomática que la Corte Penal Internacional ceda estos a Costa Rica para que sean utilizados en beneficio de la educación, cultura, arte y promoción de la memoria de las víctimas de los delitos perpetrados.

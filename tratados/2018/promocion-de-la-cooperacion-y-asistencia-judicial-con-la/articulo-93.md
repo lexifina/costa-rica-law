@@ -1,0 +1,3 @@
+ARTÍCULO 93- Costos relacionados con el otorgamiento de libertad provisional
+La Corte Penal Internacional se responsabilizará de todos los costos y gastos incurridos en relación con el traslado de la persona a la República de Costa Rica.
+Cuando la persona ha sido declarada indigente, todos los costos y gastos incurridos en relación con la libertad provisional serán acordados caso por caso entre la República de Costa Rica y la Corte Penal Internacional. Cuando la persona bajo régimen de libertad condicional no sea indigente, todos los costos y gastos incurridos en relación con la libertad provisional serán cubiertos por dicha persona.

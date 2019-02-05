@@ -1,0 +1,2 @@
+ARTÍCULO 49- Imposibilidad de localizar a la persona requerida
+Si la persona requerida no pudiera ser localizada pese a los intentos realizados o si en la audiencia se hubiera determinado que la persona no es la indicada en la solicitud de la Corte Penal Internacional, la Sala Tercera de la Corte Suprema de Justicia, en conjunto con el Ministerio de Relaciones Exteriores y Culto, lo informará sin demora a la Corte Penal Internacional.
