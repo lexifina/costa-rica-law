@@ -1,0 +1,1 @@
+Artículo 5º Valoración de Denuncias. El Auditor Interno del Colegio Universitario de Limón será el encargado de valorar la admisibilidad de las denuncias presentadas ante este órgano fiscalizador, conforme a lo establecido en este Reglamento.
