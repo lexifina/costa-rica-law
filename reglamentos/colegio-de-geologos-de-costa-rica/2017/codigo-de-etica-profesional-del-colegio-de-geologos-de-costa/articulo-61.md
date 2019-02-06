@@ -1,0 +1,1 @@
+ARTÍCULO 61- Cuando el hecho sancionado constituya una transgresión o infracción, la Junta Directiva con su aprobación y anuencia designará a la Fiscalía del Colegio para presentar la correspondiente denuncia al Ministerio Público.

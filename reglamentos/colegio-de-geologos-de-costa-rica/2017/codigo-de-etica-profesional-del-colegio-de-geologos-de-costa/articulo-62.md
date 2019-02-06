@@ -1,0 +1,2 @@
+ARTÍCULO 62- Cuando los hechos denunciados puedan constituir una transgresión o infracción, la acción disciplinaria prescribe en los plazos respectivos señalados para esa transgresión en el Código Penal. Las demás faltas prescriben en dos años.
+La prescripción de la acción disciplinaria se interrumpe con la presentación de la denuncia ante el Colegio de Geólogos y con todas las actuaciones que en el trámite de dicha queja se realicen posteriormente.

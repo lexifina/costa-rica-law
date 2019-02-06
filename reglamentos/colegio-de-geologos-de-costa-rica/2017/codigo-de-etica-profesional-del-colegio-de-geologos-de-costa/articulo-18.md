@@ -1,0 +1,1 @@
+ARTÍCULO 18- La publicidad del colegiado se limitará a indicar aspectos como el nombre de la empresa u oficina, nombre y apellidos de sus integrantes, servicios brindados, dirección, especialidad, horario, correo electrónico, número de fax, de teléfono de oficina, de teléfono celular, o cualquier otro medio tecnológico a su disposición.

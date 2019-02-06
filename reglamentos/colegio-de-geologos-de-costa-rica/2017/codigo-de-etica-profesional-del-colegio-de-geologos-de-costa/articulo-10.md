@@ -1,0 +1,1 @@
+ARTÍCULO 10- El miembro del Colegio deberá actuar con corrección en el ejercicio profesional. Su conducta se ajustará al ordenamiento jurídico vigente en la sociedad costarricense, debiendo abstenerse de toda actuación impropia que pueda desacreditar la profesión. Su ejercicio profesional deberá ser siempre probo, leal, veraz y de buena fe.

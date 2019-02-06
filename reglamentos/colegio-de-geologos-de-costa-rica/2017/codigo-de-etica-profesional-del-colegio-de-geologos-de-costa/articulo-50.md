@@ -1,0 +1,1 @@
+ARTÍCULO 50- De acuerdo con lo establecido por la Ley Orgánica y el Reglamento del Colegio, de las sanciones impuestas por la Junta Directiva por recomendación del Tribunal de Honor, sólo sobre la expulsión cabrá el recurso de apelación ante la Asamblea General.

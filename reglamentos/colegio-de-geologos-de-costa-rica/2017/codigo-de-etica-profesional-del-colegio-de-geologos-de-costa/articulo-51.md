@@ -1,0 +1,1 @@
+ARTICULO 51- Cada vez que la Fiscalía promueva gestiones y acciones a quienes contravengan esta ley o sus reglamentos, o la Junta Directiva realicen suspensiones o revocatorias de nombramientos, la Fiscalía deberá comunicar lo pertinente al regente geológico, a la empresa regentada y a las autoridades competentes que regulan la actividad correspondiente.

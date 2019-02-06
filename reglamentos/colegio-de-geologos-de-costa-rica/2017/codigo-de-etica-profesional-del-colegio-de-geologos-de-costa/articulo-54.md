@@ -1,0 +1,2 @@
+ARTÍCULO 54- En caso de que se detecten y comprueben anomalías en las funciones del regente geológico o incumplimiento de las responsabilidades que le competen, la Fiscalía podrá, dependiendo de la gravedad de la falta, amonestar por escrito y por única vez al colegiado o suspenderlo de la regencia que se trate por un período de hasta doce meses.
+En caso de reincidencia del regente, la Fiscalía le aplicará la sanción inmediata superior a la recibida la primera vez, sea suspensión o revocatoria del nombramiento de la regencia correspondiente.

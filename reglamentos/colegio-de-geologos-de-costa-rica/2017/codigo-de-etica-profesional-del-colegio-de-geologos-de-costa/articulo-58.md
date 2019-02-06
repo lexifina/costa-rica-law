@@ -1,0 +1,1 @@
+ARTÍCULO 58- Aparte de los casos referidos en los artículos anteriores, todas las demás transgresiones al ordenamiento jurídico, a la moral y el debido ejercicio profesional de los miembros del Colegio en su ejercicio profesional, serán remitidas a la Junta Directiva para que ésta, si el caso lo amerita, lo someta a la consideración del Tribunal de Honor.

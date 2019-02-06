@@ -1,0 +1,1 @@
+ARTÍCULO 11- Es prohibido al miembro del Colegio prestar sus servicios o su nombre para que por su medio o auxilio ejerzan las funciones de geología personas no autorizadas o legalmente impedidas para hacerlo.

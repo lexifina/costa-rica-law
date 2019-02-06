@@ -1,0 +1,2 @@
+6 CAPITULO 5. DE LOS DEBERES CON EL AMBIENTE
+ARTÍCULO 36- Es obligación de los miembros del Colegio, en su ejercicio profesional, utilizar las mejores técnicas para la protección, conservación y manejo de los recursos naturales y deberán procurar el más adecuado uso y manejo de los productos tanto químicos como físicos, utilizados necesariamente para el aprovechamiento en la exploración y explotación de los recursos naturales.

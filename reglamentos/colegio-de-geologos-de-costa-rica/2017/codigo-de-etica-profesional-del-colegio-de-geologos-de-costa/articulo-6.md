@@ -1,0 +1,1 @@
+ARTÍCULO 6- Los miembros del Colegio, procurarán situar sus relaciones profesionales y personales en un marco de seriedad, justicia, amabilidad, honorabilidad, honestidad, tolerancia, comprensión, cortesía y discreción.

@@ -1,0 +1,1 @@
+ARTÍCULO 14- Los miembros del Colegio, tendrán la obligación, de participar activamente en las comisiones de trabajo, en las cuales la Junta Directiva los haya nombrado en razón de la especialidad o campo de trabajo, salvo que presenten justificación razonable aceptada por la Junta Directiva.

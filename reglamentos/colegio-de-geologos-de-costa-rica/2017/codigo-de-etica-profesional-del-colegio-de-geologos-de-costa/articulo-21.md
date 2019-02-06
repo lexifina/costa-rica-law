@@ -1,0 +1,1 @@
+ARTÍCULO 21- Los miembros del Colegio no se prestarán a acciones que lesionen o pudieren lesionar derechos de terceras personas, cuando tengan a su cargo la dirección de trabajos y haya discrepancias entre sus comitentes o empleadores y el ejecutor del trabajo; interviniendo siempre con absoluta imparcialidad, e interpretando con lealtad las condiciones pactadas por las partes.

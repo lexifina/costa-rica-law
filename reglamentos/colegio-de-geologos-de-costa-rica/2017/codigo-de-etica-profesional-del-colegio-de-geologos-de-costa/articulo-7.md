@@ -1,0 +1,2 @@
+ARTÍCULO 7- Cualquier acuerdo, convenio o transacción que debilite la aplicación de esta normativa, no exonera de responsabilidad al miembro del Colegio para accionar o quejarse en su contra.
+No será moralmente reprochable el arreglo o transacción que se realice conforme a derecho entre el miembro del Colegio y su cliente en aras de evitar una queja o denuncia, siempre que el cliente se dé por satisfecho en sus pretensiones y este tenga la razón. Firme el acto final no se admitirá para su consideración posterior arreglo o transacción alguna.

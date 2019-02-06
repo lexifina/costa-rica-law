@@ -1,0 +1,1 @@
+ARTÍCULO 17- En las publicaciones de trabajos científicos, los miembros del Colegio no deberán prevalecerse de su posición jerárquica para publicar en su nombre trabajos de sus subalternos, aun cuando sean ejecutados bajo su orientación.

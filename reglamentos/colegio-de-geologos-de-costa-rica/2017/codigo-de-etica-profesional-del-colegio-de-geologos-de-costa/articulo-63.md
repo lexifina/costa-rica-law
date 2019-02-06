@@ -1,0 +1,2 @@
+12 CAPITULO 11. DE LA VIGENCIA Y REFORMAS A ESTE CÓDIGO
+ARTÍCULO 63- Toda reforma a este Código deberá ser aprobada, de acuerdo a lo establecido en el artículo 16 de la Ley Orgánica del Colegio de Geólogos de Costa Rica, referente al quórum requerido para Asambleas Generales ordinarias y extraordinarias convocada para tal efecto. La o las reformas que se dieren en dicha asamblea deberán ser publicadas en el periódico oficial La Gaceta.

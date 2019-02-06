@@ -1,0 +1,1 @@
+ARTÍCULO 30- El miembro del Colegio deberá siempre extender el recibo correspondiente por las sumas recibidas con ocasión de su ejercicio profesional, debiendo especificar claramente el concepto por el que se reciben.
