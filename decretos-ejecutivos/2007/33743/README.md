@@ -15,3 +15,4 @@ Reglamento de las Disposiciones Relativas a las Indicaciones Geográficas y Deno
 | --- | --- | --- |
 | 1 | 2007-05-17 | la propia norma |
 | 2 | 2008-09-17 | Decreto Ejecutivo 34756 (2008-09-17) |
+| 3 | 2019-02-06 | Decreto Ejecutivo 41572 (2019-02-06) |

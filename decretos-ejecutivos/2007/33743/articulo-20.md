@@ -1,5 +1,6 @@
 CAPÍTULO VII
 Procedimiento de anulación del Registro
-Artículo 20.—Procedimiento de Anulación. Todo interesado podrá denunciar al Registro cuando la indicación geográfica o la denominación de origen se encuentre comprendida en alguna de las prohibiciones previstas en la Ley de Marcas. El Registro deberá solicitar opinión tanto al consejo regulador como a la entidad o entidades que estime oportuno, los que deberán rendir dentro de los quince días siguientes contados a partir del día siguiente de la notificación.
-Con vista en las opiniones recabadas, el Registro procederá a resolver sobre la procedencia o no de la anulación de conformidad con lo establecido en el artículo 81 de la Ley de Marcas.
-Al proceso de anulación le serán aplicables las disposiciones establecidas en los artículos 48 y 49 del Reglamento a la Ley de Marcas y el artículo 84 de la Ley de Marcas.
+Artículo 20. -Procedimiento de nulidad. Siempre que se garanticen los principios del debido proceso y de conformidad con lo que establece el artículo 37 de Ley de Marcas y otros Signos Distintivos, Ley N º7978, el Registro de la Propiedad Industrial declarará la nulidad del registro de una Indicación Geográfica o Denominación de Origen nacional o extranjera, si contraviene alguna de las prohibiciones previstas en el artículo 75 de la Ley de Marcas y otros Signos Distintivos, Ley Nº7978, tal y como lo indica el artículo 81 de la misma Ley.
+La nulidad tendrá efecto puramente declarativo, todo sin perjuicio de los derechos adquiridos de buena fe, de conformidad con el artículo 81 de la Ley de Marcas y otros Signos Distintivos, Ley N º7978
+Al proceso de anulación le serán aplicables las disposiciones establecidas en los artículos 48 y 49 del Reglamento a la Ley de Marcas y el artículo 84 de la Ley de Marcas y otros Signos Distintivos, Ley Nº7978".
+(Así reformado por el artículo 1° del decreto ejecutivo N° 41572 del 6 de febrero del 2019)

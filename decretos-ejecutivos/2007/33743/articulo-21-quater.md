@@ -1,0 +1,3 @@
+Artículo 21 quater. - De la inscripción de denominaciones de origen con base en el Arreglo de Lisboa relativo a la Protección de las Denominaciones de Origen y su Registro Internacional: El Registro examinará las solicitudes para la inscripción de denominaciones de origen que sean remitidas por la Oficina Internacional de la Propiedad Intelectual.
+El Registro procederá al examen de la solicitud y validará si entra en los casos de prohibición; de ser así, notificará a la Oficina Internacional, en un plazo no mayor de un año desde que haya sido notificado de la concesión del registro internacional.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 41572 del 6 de febrero del 2019)

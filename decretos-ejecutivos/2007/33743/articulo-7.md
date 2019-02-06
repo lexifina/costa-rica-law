@@ -3,6 +3,7 @@ a) los requisitos que los productores, fabricantes o artesanos deben cumplir par
 b) los derechos y las obligaciones de las personas autorizadas para utilizar la indicación geográfica o la denominación de origen;
 c) los mecanismos de control que se aplicarán para asegurar el uso debido;
 d) la designación del consejo regulador;
-e) el logotipo oficial a ser usado;
+e) el logotipo oficial a ser usado, cuando así corresponda;
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 41572 del 6 de febrero del 2019)
 f) el procedimiento para modificar el pliego de condiciones y la normativa de uso; y
 g) las sanciones aplicables por incumplimiento de las obligaciones que deben observar quienes estuvieren autorizados para usar la indicación geográfica o la denominación de origen, incluyendo las causas por las cuales procede la suspensión y la cancelación de la autorización de uso otorgada.
