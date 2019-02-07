@@ -22,3 +22,4 @@ Lineamientos para el ejercicio y control del servicio notarial
 | 7 | 2016-03-10 | Reglamento 6 (2016-03-10) |
 | 8 | 2017-10-12 | Reglamento 27 (2017-10-12) |
 | 9 | 2018-05-10 | Reglamento 13 (2018-05-10) |
+| 10 | 2019-02-07 | Reglamento 0 (2019-02-07) |

@@ -1,4 +1,2 @@
-Artículo 84. Requisitos mínimos de la oficina. La notaría tiene que reunir características mínimas para considerarse “abierta al público”, las cuales son:
-a. Apertura que garantice la prestación del servicio según principio de rogación.
-c. Libre acceso al público.
-e. Medios de comunicación (teléfono, fax, correo electrónico, internet, y cualquier otro que la tecnología moderna provea).
+Artículo 84.—Notificaciones. La notificación de cualquier acto que deba comunicarse al notario se hará a los medios de comunicación señalados y consignados en el Registro Nacional de Notarios. El correo electrónico será el medio principal, y los demás se tendrán como medios accesorios.
+(Así reformado en sesión ordinaria celebrada el 07 de febrero de 2019, mediante acuerdo firme 2019-003-007 del Acta 2019-003)
