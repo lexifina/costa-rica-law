@@ -1,1 +1,0 @@
-Transitorio II.—Todas las unidades deberán adquirir los equipos necesarios para la implementación del presente reglamento y su manual, en el plazo de seis meses, a partir de la entrada en vigencia del presente Reglamento.

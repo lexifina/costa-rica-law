@@ -1,1 +1,0 @@
-Artículo 6º—Vigencia del certificado digital. La vigencia del certificado digital será de manera permanente, salvo directriz expresa de la DGA que manifieste lo contrario o los casos suspensión o revocación por parte de la DI, previstos en el artículo 4 inciso 2) del presente Reglamento.
