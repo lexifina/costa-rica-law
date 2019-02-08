@@ -1,0 +1,3 @@
+TRANSITORIO ÚNICO- En un plazo de dos años, a partir de la entrada en vigencia de esta ley, el Estado deberá promover alternativas productivas sustentables como turismo minero, la orfebrería u otras opciones que den valor agregado a la producción minera en pequeña escala para subsistencia familiar, artesanal y coligallero. Para estos efectos, esos sectores tendrán la condición prioritaria en el acceso al crédito para su desarrollo, de conformidad con lo establecido en el artículo 7 de la Ley N. º 8634, Sistema de Banca para el Desarrollo, de 23 de abril de 2008, y la banca estatal.
+Rige a partir de su publicación.
+Dado en la Presidencia de la República, San José a los cinco días del mes de febrero del año dos mil diecinueve.
