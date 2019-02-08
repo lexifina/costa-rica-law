@@ -1,0 +1,18 @@
+N° 41505-MEIC
+EL PRESIDENTE DE LA REPÚBLICA
+Y LA MINISTRA DE ECONOMÍA, INDUSTRIA Y COMERCIO
+En uso de las atribuciones que les confieren los artículos 140 incisos 3) y 18) y 146 de la Constitución Política; los artículos 27 inciso 1) y 28 inciso 2, acápite b) de la Ley General de Administración Pública, Ley Nº 6227 del 2 de mayo de 1978; la Ley Uso Exigido Sistema Internacional Unidades Medida "SI" Métrico Decimal, Ley Nº 5292 del 9 de agosto de 1973; la Ley de Promoción de la Competencia y Defensa Efectiva del Consumidor, Ley Nº 7472 del 20 de diciembre de 1994; la Ley de Aprobación del Acta Final en que se incorporan los resultados de la Ronda de Uruguay de Negociaciones Comerciales Multilaterales, Ley Nº 74 75 del 20 de diciembre de 1994; la Ley del Sistema Nacional para la Calidad, Ley Nº 8279 del 2 de mayo de 2002 y la Ley Orgánica del Ministerio de Economía, Industria y Comercio, Ley Nº 6054 del 14 de junio de 1977.
+CONSIDERANDO:
+I-Que la emisión del "RTCR 458:2011 Reglamento de Oficialización del Código Eléctrico de Costa Rica para la Seguridad de la Vida y de la Propiedad", publicado en La Gaceta N º 33 del 15 de febrero de 2012, cumplió a cabalidad con todos las etapas del procedimiento para la elaboración de reglamentos técnicos; sin embargo debido a la redacción del apartado 5.2 sobre la verificación de instalaciones eléctricas y el requisito del certificado de verificación de la instalación eléctrica, se hace necesaria su actualización.
+II - Que al día · de hoy no existen Organismos de Evaluación de la Conformidad, para la Verificación de Instalaciones Eléctricas acreditadas para el cumplimiento de este aspecto, lo cual hace inaplicable la exigencia de este requisito.
+III- Que las buenas prácticas reglamentarias obligan a los gobiernos a la revisión de los reglamentos técnicos existentes, a fin de que se ajusten a las condiciones y las necesidades imperantes, procurando así un equilibrio necesario, de manera que, dicha reglamentación no sea omisa ni excesiva y no propicie un obstáculo al desarrollo económico.
+IV- Que el presente Decreto Ejecutivo, cumple con los principios de mejora regulatoria de acuerdo al Informe DMR-DAR-INF-130-18, emitido por el Departamento de Análisis Regulatorio de la Dirección de Mejora Regulatoria.
+Por tanto,
+DECRETAN:
+REFORMA AL DECRETO EJECUTIVO N º 36979-MEIC, RTCR 458:2011
+REGLAMENTO DE OFICIALIZACIÓN DEL CÓDIGO ELÉCTRICO DE COSTA RICA
+PARA LA SEGURIDAD DE LA VIDA Y DE LA PROPIEDAD, PUBLICADO EN LA
+GACETA Nº 33 DEL 15 DE FEBRERO DEL 2012
+Artículo 1 º-. Reforma. - Refórmense el Artículo 1 º, del Decreto Ejecutivo Nº 36979-MEIC del 13 de Diciembre del 2011, "RTCR 458:2011 Reglamento de Oficialización del Código Eléctrico de Costa Rica para la Seguridad de la Vida y de la Propiedad", publicado en La Gaceta N º 33 del 15 de febrero del 2012 y sus reformas, para que en lo sucesivo se lea de la siguiente manera:
+"Artículo 1°-. Oficialícese como "Código Eléctrico de Costa Rica para la Seguridad de la Vida y de la Propiedad", la norma NFP A-70, en su última versión actualizada en español emitida por la NFPA, con la excepción del artículo 90 y de aquellos artículos que se encuentran afectados en este Reglamento.
+Las versiones que a futuro emita la Asociación Nacional de Protección contra el Fuego de la norma NFPA-70 en su versión en español, entrarán en vigencia y surtirán efectos jurídicos en Costa Rica, en el momento que el Ministerio de Economía Industria y Comercio realice la comunicación oficial de la adopción de la nueva versión, a través del Diario Oficial La Gaceta, sin perjuicio de informarlo por otros medios electrónicos a las partes interesadas. "
