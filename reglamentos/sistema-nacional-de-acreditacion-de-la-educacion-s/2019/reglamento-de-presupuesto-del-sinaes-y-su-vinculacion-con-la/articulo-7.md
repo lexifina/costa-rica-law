@@ -1,0 +1,1 @@
+Artículo 7°-Técnica de la formulación y aprobación del PAO y el Presupuesto. En la formulación y aprobación del Plan y el Presupuesto del SINAES, se utilizará la técnica del Presupuesto por programas.

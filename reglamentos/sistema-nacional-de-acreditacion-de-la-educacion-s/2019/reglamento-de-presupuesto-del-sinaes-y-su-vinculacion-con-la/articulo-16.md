@@ -1,0 +1,1 @@
+Artículo 16.-Revisión de la liquidación presupuestaria. El Jefe de la División de Apoyo a la Gestión revisará la veracidad de la información de la liquidación presupuestaria, previo al conocimiento por parte de la Comisión de Presupuesto y el Consejo Nacional de Acreditación.

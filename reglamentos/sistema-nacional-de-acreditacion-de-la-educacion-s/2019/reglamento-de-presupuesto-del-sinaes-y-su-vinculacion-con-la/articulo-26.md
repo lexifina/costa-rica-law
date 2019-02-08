@@ -1,0 +1,1 @@
+Artículo 26.-Presentación de los informes de ejecución, liquidación y la evaluación presupuestaria a la Contraloría General de la República. El Director Ejecutivo enviará los informes de ejecución, la liquidación y evaluación presupuestaria a la Contraloría General de la República en los términos, plazos y por los medios que disponga ese Órgano Contralor.

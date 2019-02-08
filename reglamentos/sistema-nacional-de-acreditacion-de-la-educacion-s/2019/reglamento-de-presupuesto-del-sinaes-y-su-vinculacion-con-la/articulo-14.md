@@ -1,0 +1,2 @@
+Artículo 14.-De la ejecución de los ingresos y gastos. La División de Apoyo a la Gestión, mantendrá actualizada la normativa relacionada con los ingresos y gastos del SINAES y velará por el cumplimiento de los principios y procedimientos presupuestarios aplicables.
+Complementariamente, a cada Jefe de División le corresponde el seguimiento y el control de la ejecución del presupuesto de gastos, conforme al programa presupuestario a su cargo, e informar periódicamente al respecto conforme a la normativa y procedimientos aplicables.

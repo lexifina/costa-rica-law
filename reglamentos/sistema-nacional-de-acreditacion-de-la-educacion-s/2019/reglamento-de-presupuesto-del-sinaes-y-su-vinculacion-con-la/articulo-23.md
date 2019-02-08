@@ -1,0 +1,1 @@
+Artículo 23.-De la auditoria del proceso presupuestario. La auditoría interna podrá realizar auditorías sobre el presupuesto y el proceso presupuestario o cualquier otro estudio sobre la materia conforme a sus atribuciones.

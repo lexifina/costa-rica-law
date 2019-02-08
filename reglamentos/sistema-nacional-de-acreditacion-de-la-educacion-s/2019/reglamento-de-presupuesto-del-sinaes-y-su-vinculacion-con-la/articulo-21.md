@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Control del Presupuesto
+Artículo 21.-Responsable de establecer medidas de control del presupuesto. La División de Apoyo a la Gestión, establecerá los controles necesarios para verificar que las diferentes etapas del proceso presupuestario se ejecuten de acuerdo con lo dispuesto en este Reglamento, las Normas Técnicas sobre Presupuesto y demás normativa aplicable. Además, deberá velar por que el proceso presupuestario se realice en estricto apego al bloque de legalidad que le rige al SINAES, y evaluar periódicamente su funcionamiento y la aplicación de las medidas de control, todo bajo la supervisión de la Dirección Ejecutiva.

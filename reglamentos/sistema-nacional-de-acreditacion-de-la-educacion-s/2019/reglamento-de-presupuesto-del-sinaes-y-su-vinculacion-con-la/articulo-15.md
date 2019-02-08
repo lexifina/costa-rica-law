@@ -1,0 +1,1 @@
+Artículo 15.-Del giro de transferencias. Las transferencias a otras instituciones públicas incorporadas en el presupuesto institucional, no se podrán girar hasta tanto la entidad receptora no lo haya incorporado en su presupuesto y este haya sido aprobado por la instancia correspondiente según lo dispuesto en el ordenamiento jurídico.

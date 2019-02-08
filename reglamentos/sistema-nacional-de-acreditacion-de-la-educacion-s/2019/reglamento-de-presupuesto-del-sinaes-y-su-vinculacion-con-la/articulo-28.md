@@ -1,0 +1,1 @@
+Artículo 28.-Expediente y custodia del Presupuesto inicial. La División de Apoyo a la Gestión, deberá elaborar y conservar un expediente que contenga toda la información relativa a todas las fases del proceso presupuestario.

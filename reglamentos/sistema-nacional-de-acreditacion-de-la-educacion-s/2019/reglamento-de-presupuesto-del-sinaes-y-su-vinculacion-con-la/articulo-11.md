@@ -1,0 +1,1 @@
+Artículo 11.-Presentación del PAO y Presupuesto Inicial a la Contraloría General de la República. Debidamente aprobados el PAO y el Presupuesto Inicial, el Director Ejecutivo lo remitirá a la Contraloría General de la República, para su conocimiento o aprobación -según corresponda-, a más tardar el 30 de setiembre, por los medios que dicho Órgano Contralor establezca.
