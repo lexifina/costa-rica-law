@@ -1,0 +1,1 @@
+2º—El monto exiguo equivalente a ese salario base regirá durante todo el año siguiente, aun cuando el salario que se tome en consideración para la fijación del monto exiguo sea modificado durante ese período.

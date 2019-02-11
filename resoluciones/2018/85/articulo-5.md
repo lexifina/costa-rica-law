@@ -1,0 +1,1 @@
+5º—Se dejan sin efecto las resoluciones DGH-121-2008 de las doce horas del 20 de agosto de 2008 y DGH-041-2013 de las nueve horas del 30 de setiembre de 2013, emitidas por la Dirección General de Hacienda.

@@ -1,0 +1,1 @@
+4º—Las deudas consideradas como exiguas originadas en deudas tributarias y aduaneras, según lo determinado en esta resolución, deberán incorporarse en el sistema de consulta tributaria contemplado en el artículo 18 bis del Código de Normas y Procedimientos Tributarios.
