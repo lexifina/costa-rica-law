@@ -94,7 +94,6 @@ b)Con remeseras externas se cobrará el monto negociado con cada empresa adjudic
 a)$29.00 remeseras propias/recolección.
 b)Con remeseras externas se cobrará el monto negociado con cada empresa adjudicataria, de conformidad con el cartel de licitación y la oferta recibida por dichas empresas. (Según cuadro adjunto)
 CASH LOGISTICS S.A
-[imagen]
 (Así reformado el punto 2.16) anterior mediante sesión N° 62-18 del 10 de diciembre del 2018)
 2.17.-Retiro de efectivo en ventanilla, pensionados de la C.C.S.S.
 ¢100.00 por cada retiro, para aquellas cuentas cuyo saldo semestral sea inferior a $500.
@@ -113,7 +112,6 @@ $1.00 por traspaso
 $4.00 por cada movimiento (débitos y créditos) sean estos físicos o electrónicos, a todas las cuentas bancarias que se compruebe que están utilizando la infraestructura (oficinas y canales electrónicos) del BCR, como instrumentos para el desarrollo de sus negocios financieros.
 (Así reformado el punto 2.20) anterior mediante sesión N° 03-17 del 18 de enero del 2017)
 2.21.-Órdenes de pago (transferencia) a otras oficinas bancarias
-[imagen]
 Se aplica el equivalente al tipo de cambio de venta.
 Sistema no permite transacciones mayores a $1.000 o su equivalente en colones
 (Así reformado el punto 2.21) anterior mediante sesión N° 62-18 del 10 de diciembre del 2018)
@@ -142,11 +140,10 @@ $0.50 por cada registro
 2.28- Pago de cheque viajero
 1%, mínima $2.00. Esta comisión se cobra sobre el monto del cheque
 (Así reformado el punto anterior mediante sesión N° 62-18 del 10 de diciembre del 2018)
-2.29- Pago de servicios públicos de forma masiva en ventanilla
-El cliente podrá solicitar cuatro pagos de servicios sin costo adicional. Las solicitudes de cinco o más pagos de servicios consecutivos se consideran masivos, por lo que tendrá un costo de $1.00 por cada pago de servicio adicional cancelado.
-Nota:
-Aplica para todo pago de servicio que el cliente puede efectuar por medios electrónicos y decida cancelar en ventanilla. Se exceptúan los pagos de servicios en donde el BCR sea el único recaudador
-(Así reformado el punto anterior mediante sesión N° 62-18 del 10 de diciembre del 2018)
+2.29- Pago de servicios públicos y privados de agua, luz y teléfono en ventanilla.
+o El costo por cada servicio público a cancelar será de trescientos cincuenta colones exactos.
+o Los pagos por servicios que se realicen por medio de las plataformas electrónicas BCR o Tucán no se le cobrará ninguna comisión.
+(Así reformado el punto anterior mediante sesión N° 07-19 del 11 de febrero del 2019)
 2.30- Venta de monedas en máquinas
 4% sobre la venta, sin importar el monto.
 (Así reformado el punto anterior mediante sesión N° 62-18 del 10 de diciembre del 2018)
@@ -191,9 +188,8 @@ a)$20.00 remeseras propias.
 b)$23.00 remeseras propias.
 3.Con remeseras externas se cobrará el monto negociado con cada empresa adjudicataria, de conformidad con el cartel de licitación y la oferta recibida por dichas empresas. (Según cuadro 2 y2.1).
 Cuadro 2
-[imagen]
 Cuadro 2,1
-[imagen] ”)
+”)
 2.37. Divisas depositadas por concepto de exportación en cuenta corriente/ ahorros
 Depósito cuenta en dólares 1.5%, mínima $10.00
 Depósito cuenta en colones 1.0%, mínima $10.00
@@ -206,11 +202,9 @@ b)$30.00 remeseras propias.
 Nota:
 El servicio de atención de ATM puede ser por cargas, atención de averías, custodias, o cualquier otro motivo que requiera la asistencia de la Unidad de transporte de valores BCR, o una privada.
 Cuadro 3
-[imagen]
 Cuadro 4
-[imagen]
 Cuadro 5
-[imagen] ”)
+”)
 (Así reformado el punto 2.37) anterior en sesión N° 07-16 del 8 de febrero del 2016)
 2.38.- Comisión por retiro anticipado de un plan de ahorro automático
 Aplica la comisión del 3% sobre la totalidad del saldo ahorrado (principal más intereses), para los planes de ahorro automático cuyo plazo sea superior a 6 meses y se cancelen antes de los 181 días de permanencia.
