@@ -7,18 +7,22 @@ ECA-MC-P11 Procedimiento de evaluación in situ para Organismos de Certificació
 ECA-MC-MA-P05 Reconocimiento de la equivalencia del certificado de acreditación | VERSIÓN 01 | VERSIÓN 02
 Los procedimientos modificados se encontrarán a disposición de los interesados en nuestra página electrónica www.eca.or.cr/ http://www.eca.or.cr/docs.php; así mismo podrán solicitar el envío de manera electrónica o solicitar gratuitamente una copia no contralada en la Gestoría de Calidad de las oficinas centrales del ECA ubicadas en Rohrmoser 150 metros al este del Centro Comercial Plaza Mayor, contiguo a Prisma Dental, de lunes a viernes de las 8 a las 16 horas. Entra en vigencia a partir de ésta publicación en el Diario Oficial La Gaceta.
 San José, 8 de octubre del 2013
-(Nota de Sinalevi: El presente procedimiento fue reformado parcialmente y publicado de forma íntegra mediante publicación en La Gaceta N° 98 del 23 de mayo del 2016, donde se actualiza la versión 03 existente y se publica la versión 04, y se transcribe a continuación:)
+(Nota de Sinalevi: La presente norma fue reformada parcialmente y reproducido su texto de forma íntegra mediante publicación en La Gaceta N° 46 del 6 de marzo del 2019, donde se actualiza la versión 04 existente y se publica la 05, por lo que se transcribe a continuación:)
+[imagen]
 TABLA DE CONTENIDO.
-1 OBJETIVO ............................................................................................................................... 1
-2 ALCANCE ................................................................................................................................ 1
+1 OBJETIVO ................................................................................................................................ 1
+2 ALCANCE ................................................................................................................................. 1
 3 DEFINICIONES ......................................................................................................................... 1
 4 GENERALIDADES .................................................................................................................... 2
-5 REQUISITOS PARA EL RECONOCIMIENTO DE LA EQUIVALENCIA DEL CERTIFICADO DE ACREDITACIÓN. .............................................................................................................................. 3
-6 PROCESO GENERAL DE RECONOCIMIENTO DE LA EQUIVALENCIA DEL CERTIFICADO DE ACREDITACIÓN ......................................................................................................................... 4
-7 LISTADO DE RECONOCIMIENTOS DE LA EQUIVALENCIA DEL CERTIFICADO DE ACREDITACION ............................................................................................................................... 5
-8 TARIFAS .................................................................................................................................. 6
-9 ANEXOS .................................................................................................................................. 7
-10 CAMBIOS ................................................................................................................................. 7
+5 REQUISITOS PARA EL RECONOCIMIENTO DE LA EQUIVALENCIA DEL CERTIFICADO DE
+ACREDITACIÓN. .............................................................................................................................. 3
+6 PROCESO GENERAL DE RECONOCIMIENTO DE LA EQUIVALENCIA DEL CERTIFICADO
+DE ACREDITACIÓN ......................................................................................................................... 4
+7 LISTADO DE RECONOCIMIENTOS DE LA EQUIVALENCIA DEL CERTIFICADO DE
+ACREDITACION ............................................................................................................................... 5
+8 TARIFAS ................................................................................................................................... 6
+9 ANEXOS ................................................................................................................................... 7
+10 CAMBIOS .................................................................................................................................. 7
 11 TRANSITORIO .......................................................................................................................... 7
 1 OBJETIVO
 Establecer lineamientos para realizar el reconocimiento de la equivalencia del certificado de acreditación, otorgado por un organismo de acreditación diferente al ECA y que es signatario de un Acuerdo de Reconocimiento Multilateral - IAF (MLA) y acuerdo de reconocimiento Multilateral – ILAC (MRA).
@@ -61,16 +65,17 @@ En los casos en que la vigencia de la acreditación o en los casos de certificac
 6.1.1 El interesado, presenta al Asistente ECO la solicitud de reconocimiento de la equivalencia del certificado de acreditación firmada, con la información requerida, los anexos y comprobante de pago.
 6.1.2 El Asistente ECO revisa la solicitud y verifica que se presenten todos los anexos solicitados y el pago correspondiente, si la solicitud de reconocimiento de la equivalencia del certificado de acreditación, NO se encuentra completa el Asistente ECO debe notificar al interesado, para lo cual cuenta con 5 días hábiles.
 6.1.3 El interesado debe subsanar las deficiencias encontradas en un plazo de 10 días hábiles para continuar con el proceso de reconocimiento de la equivalencia del certificado de acreditación y se vuelve a iniciar la revisión de la solicitud.
-Nota 1.De no subsanarse las deficiencias en el plazo establecido se procede al archivo definitivo de la solicitud.
-Nota 2.La subsanación de la solicitud se permite por una sola vez.
+Nota 1. De no subsanarse las deficiencias en el plazo establecido se procede al archivo definitivo de la solicitud.
+Nota 2. La subsanación de la solicitud se permite por una sola vez.
 6.1.5 Si la solicitud de reconocimiento de la equivalencia del certificado de acreditación, se encuentra completa; el Asistente ECO verifica la validez de la información en 10 días hábiles, comprobando si la acreditación se encuentra vigente y si fue otorgada por un OA firmante del MLA en IAAC, ILAC o IAF, según aplique.
 6.1.6 Si durante el proceso de la verificación de la información el Asistente ECO considera necesarias aclaraciones por parte del interesado, ésta las traslada al solicitante indicándole que tiene un plazo de 5 días hábiles para responder. De no realizar las aclaraciones necesarias en el plazo establecido se procede al archivo definitivo de la solicitud. El cumplimiento de las aclaraciones es permitido por una sola vez.
-6.1.7 Si la verificación realizada resulta positiva, Asistente ECO completa el formulario ECA-MC-MA-P05-F03 Reconocimiento de la equivalencia del certificado de acreditación y gestiona las firmas respectivas, para lo que cuenta con 5 días hábiles.
+6.1.7 Si la verificación realizada resulta positiva, Asistente ECO completa el formulario ECA-MCMA-P05-F03 Reconocimiento de la equivalencia del certificado de acreditación y gestiona las firmas respectivas, para lo que cuenta con 5 días hábiles.
 Nota. El reconocimiento de la equivalencia del certificado de acreditación debe contener los respectivos timbres de Ley y ser foliado; adicionalmente siempre debe estar acompañado con la copia fiel del certificado o informe que respalde los resultados de evaluación de conformidad, el alcance de acreditación del organismo de acreditación de origen y el certificado de acreditación cuando sea posible.
 6.1.8 El Asistente ECO traslada a La Dirección Técnica o su designado los resultados del análisis efectuado para lo cual cuenta con 1 día hábil.
-6.1.9 El Asistente ECO notifica al interesado, el reconocimiento otorgado y solicita el pago correspondiente.
+6.1.9 El Asistente ECO notifica al interesado, el reconocimiento otorgado y solicita el pago
+correspondiente.
 6.1.10 Posterior al pago de las tarifas respectivas, el asistente ECO hace entrega del reconocimiento de la equivalencia del certificado de acreditación, para lo que cuenta con 1 día hábil. De manera inmediata traslada la información a la Gestoría de Calidad para que lo publique en la página web del ECA, si así ha sido requerido por el interesado.
-6.1.11 Se realizan revisiones periódicas para lo cual, el asistente ECO, verifica que las condiciones bajo las cuales el OEC fue reconocido se mantiene invariable. La información de estas revisiones se conservan en los registros de cada OEC reconocido.
+6.1.11 Se realizan revisiones periódicas para lo cual, el asistente ECO, verifica que las condiciones bajo las cuales el OEC fue reconocido se mantiene invariable. La información de estas revisiones se conserva en los registros de cada OEC reconocido.
 6.1.12 Si durante las revisiones periódicas se detecta que el OEC reconocido está suspendido, retirado o con su acreditación vencida, de manera inmediata se cancela el reconocimiento otorgado, se informa a la gestoría de Calidad para que retire la información de la página web del ECA y se informa al interesado.
 6.1.13 El ECA hará esta información de conocimiento público y no reintegrará ningún monto por el plazo restante del reconocimiento otorgado.
 7 LISTADO DE RECONOCIMIENTOS DE LA EQUIVALENCIA DEL CERTIFICADO DE ACREDITACION
@@ -79,32 +84,30 @@ Nota. El reconocimiento de la equivalencia del certificado de acreditación debe
 - Nombre del OEC que obtuvo el certificado de acreditación
 - Alcance de la Acreditación Reconocida
 - Fecha de emisión del reconocimiento
-- Vigencia - ( por tres meses o por doce meses)
+- Vigencia - (por tres meses o por doce meses)
 - Organismo de acreditación emisor de la acreditación
 - Nombre del interesado.
 7.1.2 La información del reconocimiento de la equivalencia del certificado de acreditación puede ser incorporada en el sitio web del ECA. www.eca.or.cr, si así ha sido autorizado por el interesado.
 7.1.3 El ECA mantendrá informado a solicitud de cualquier entidad del gobierno, el estado de los reconocimientos de equivalencias del certificado de acreditación otorgados, su vigencia y nombre del solicitante.
 7.1.4 Para suministrar información adicional sobre los reconocimientos de las equivalencias del certificado de acreditación, el interesado debe comunicarse con la asistente ECO quien es responsable de mantener esta información.
 8 TARIFAS
-8.1 El interesado debe cancelar las tarifas vigentes publicadas en la gaceta para los procesos de evaluación y acreditación, de la siguiente manera:
-Cuadro 1 Tarifas establecidas para el reconocimiento de las acreditaciones Rubro | Monto
-I. Solicitud para cualquiera de las dos opciones | $510
-II. Reconocimiento de la equivalencia del certificado de acreditación por tres meses calendario. | $ 1212,25
-III. Reconocimiento de la equivalencia del certificado de acreditación por doce meses calendario. | $ 1786
-Nota 1: Se aplican las mismas tarifas aprobadas para el proceso de evaluación y acreditación. Las cuales se actualizan de manera automática semestralmente, por lo que regirá la tarifa vigente al momento del trámite.
-8.2 El interesado puede solicitar la revalidación del reconocimiento otorgado por el ECA, siempre que lo solicite por escrito y realice el pago correspondiente al reconocimiento a los rubros II o III del cuadro 1 según aplique. La revalidación se otorgara siempre que se mantengan las condiciones de la solicitud inicial y las acreditaciones se mantengan vigentes, por lo que no se requiere presentar nuevamente la solicitud y los documentos anexos. En caso de que las condiciones originales bajo las cuales se otorgó el reconocimiento cambien, el interesado debe realizar un tramite nuevo.
+8.1 Consultar las tarifas vigentes en la página web del ECA.
+Nota 1: Se aplican las mismas tarifas aprobadas para el proceso de evaluación y acreditación.
+Las cuales se actualizan de manera automática semestralmente, por lo que regirá la tarifa vigente al momento del trámite.
+8.2 El interesado puede solicitar la revalidación del reconocimiento otorgado por el ECA, siempre que lo solicite por escrito y realice el pago correspondiente al reconocimiento a los rubros II o III del cuadro 1 según aplique. La revalidación se otorgará siempre que se mantengan las condiciones de la solicitud inicial y las acreditaciones se mantengan vigentes, por lo que no se requiere presentar nuevamente la solicitud y los documentos anexos. En caso de que las condiciones originales bajo las cuales se otorgó el reconocimiento cambien, el interesado debe realizar un tramite nuevo.
 8.3 El ECA podrá realizar descuentos en las tarifas para los reconocimientos del certificado de acreditación, siempre que se cumplan las siguientes condiciones:
-Cuadro 2 Condiciones para aplicar descuentos. Rubro | Condición | Descuento
-Solicitud para cualquiera de las dos opciones | 3 o más reconocimientos simultáneos, podrán presentar un solo formulario | Se cobra el monto correspondiente a una única solicitud.
-Reconocimiento de la | De 2 a 5 reconocimientos | Se realiza un 5%
-Rubro | Condición | Descuento
-equivalencia del certificado de acreditación para cualquiera de las dos opciones | simultáneos |
-Reconocimiento de la equivalencia del certificado de acreditación para cualquiera de las dos opciones | De 6 o más reconocimientos simultáneos | Del reconocimiento 1 al 5 se aplica un 5% y a partir del 6 reconocimiento se aplica un 10% |
-| | | | | |
+[imagen]
 9 ANEXOS
 No aplican.
-10 CAMBIOS Motivo: | Modificación del procedimiento
+10 CAMBIOS
+Motivo: Modificación del procedimiento
 Refiérase a la solicitud de elaboración o modificación del documento número 2016-087
-Observaciones: Se eliminan apartado de documentos de referencia y apartado de responsabilidades Se subraya cambio en el apartado 4.1.1, 6.1.7 nota, 6.1.8, 6.1.10, 7.1.2, 7.1.3- Se agrega apartado 8.2 y 8.3
+Observaciones:
+Se eliminan apartado de documentos de referencia y apartado de responsabilidades
+Se subraya cambio en el apartado 4.1.1, 6.1.7 nota, 6.1.8, 6.1.10, 7.1.2, 7.1.3-
+Se agrega apartado 8.2 y 8.3
+Refiérase a la solicitud de elaboración o modificación del documento número 010-2019
+Observaciones:
+Se removió tabla de tarifas de la sección 8.1 y se hace referencia a consultar las tarifas vigentes en la página web del ECA.
 11 TRANSITORIO
 No aplica.

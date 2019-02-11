@@ -16,3 +16,4 @@ Sustituye el "Procedimiento reconocimiento de la equivalencia del Certificado de
 | 1 | 2013-11-07 | la propia norma |
 | 2 | 2015-03-09 | Acuerdo 0 (2015-03-09) |
 | 3 | 2016-04-18 | Acuerdo 5 (2016-04-18) |
+| 4 | 2019-02-11 | Acuerdo 0 (2019-02-11) |
