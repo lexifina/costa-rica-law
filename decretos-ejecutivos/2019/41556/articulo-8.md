@@ -1,0 +1,1 @@
+Artículo 8°- Incumplimiento de las obligaciones. En caso de que el funcionario incumpla con las obligaciones establecidas en los artículos anteriores, la Administración podrá aplicar el procedimiento disciplinario según corresponda.
