@@ -1,0 +1,1 @@
+Artículo 10.—Una vez adjudicado el arriendo y cancelado la totalidad de su valor, se procederá a la realización del respectivo contrato de arrendamiento, de conformidad con lo que dispone el artículo 11 del Reglamento del Cementerio Municipal de Flores.

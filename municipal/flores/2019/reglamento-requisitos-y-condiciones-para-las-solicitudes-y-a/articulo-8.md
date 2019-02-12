@@ -1,0 +1,2 @@
+Artículo 8°—La adjudicación de la parcela y el bloque en que se ubicarán las bóvedas, se realizará de acuerdo con el orden de ingreso y respetando la numeración de las nuevas parcelas, el solicitante no puede escoger el espacio que se le asignará.
+El número de arriendo y ubicación del mismo en el terreno, que se adjudique a una persona, no podrá ser cambiado por otro, ni se permitirán cambios de los arriendos entre los adjudicatarios, salvo lo indicado anteriormente sobre la permuta de arriendos en cruz.

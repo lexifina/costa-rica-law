@@ -1,0 +1,1 @@
+Artículo 7°—Respecto a las relaciones de parentesco, están excluidos de ser solicitantes, aquellas personas cuyos parientes en primer grado por consanguinidad (padres e hijos) o afinidad (cónyuge) y en segundo grado por consanguinidad (hermanos, abuelos o nietos) tengan en la actualidad una adjudicación a su nombre.

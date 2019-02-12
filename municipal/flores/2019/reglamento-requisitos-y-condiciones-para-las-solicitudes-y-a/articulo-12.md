@@ -1,0 +1,1 @@
+Artículo 12.—El diseño estructural y distribución de cada bóveda será igual para todos siguiendo los parámetros de forma establecidos en el camposanto existente. Las bóvedas deben respetar el color que indica el Reglamento del Cementerio Municipal de Flores.

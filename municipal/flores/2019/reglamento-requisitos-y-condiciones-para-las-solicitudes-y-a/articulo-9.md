@@ -1,0 +1,2 @@
+Artículo 9°—El arriendo adjudicado solamente podrá ser traspasado a los beneficiaros que se designó y bajo el procedimiento que señala el artículo 33 del Reglamento del Cementerio Municipal de Flores.
+Si el adjudicado ya no desea el arriendo, deberá regresar el mismo a la Municipalidad, la cual no devolverá el dinero cancelado por la adjudicación, la Municipalidad no pagará mejoras al mismo, si se ha construido la bóveda u otras. Dicho arriendo sería adjudicado nuevamente, mediante el procedimiento descrito en este Reglamento.
