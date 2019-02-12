@@ -73,3 +73,4 @@ Reglamento de la Ley de Impuesto General sobre las Ventas
 | 58 | 2017-04-06 | Decreto Ejecutivo 40365 (2017-04-06) |
 | 59 | 2018-06-04 | Decreto Ejecutivo 41342 (2018-06-04) |
 | 60 | 2018-10-25 | Resolución 35 (2018-10-25) |
+| 61 | 2019-02-12 | Resolución 3 (2019-02-12) |

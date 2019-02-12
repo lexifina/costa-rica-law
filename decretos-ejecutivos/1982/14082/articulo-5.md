@@ -33,8 +33,10 @@ De res y cerdo
 • Porter House
 • Demónico o Ribeye
 • Carne tenderizada de cerdo o res.
+(Nota de Sinalevi: Mediante resolución RES-DGA-DGT-003-2019 del 12 de febrero del 2019 se establece lo siguiente: “ Se grava con el impuesto General sobre las Ventas “la carne tenderizada, entendida como aquella a la que se le adiciona mediante jeringa, masaje o inmersión una salmuera –compuesta de agua, sales y/o fosfatos- para ablandarla o suavizarla”, de conformidad con el oficio DGT-1814-2018, de fecha 04 de diciembre 2018”)
 Carnes de pollo. Las siguientes carnes de pollo frescas, refrigeradas o congeladas. No se incluyen las sazonadas, marinadas, tenderizado, adobadas, condimentadas, empanizadas y/o preparadas o precocidas.
-(Así reformado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 41342 del 4 de junio de 2018)
+(Así reformado el párrafo anterior mediante resolución RES-DGA-DGT-003-2019 del 12 de febrero del 2019)
+(Nota de Sinalevi: Mediante resolución RES-DGA-DGT-003-2019 del 12 de febrero del 2019 se establece lo siguiente: “Se ordena realizar las aperturas de acuerdo al Anexo 1 de esta resolución, para proceder a gravar con el Impuesto General sobre las Ventas, la carne de pollo tenderizada.”)
 17. Alas
 18- menudos o vísceras
 19-Muslo
