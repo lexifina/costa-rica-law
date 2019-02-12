@@ -14,3 +14,4 @@ Reglamento de becas municipales
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-02-01 | la propia norma |
+| 2 | 2019-02-12 | Reglamento municipal 0 (2019-02-12) |
