@@ -1,0 +1,1 @@
+Articulo 34.-Trasplante Hepático y Renal. En caso de que se tenga un paciente en la lista nacional de receptores de hígado y que éste necesite a la vez un trasplante renal, se le otorgará riñón e hígado de un mismo donante, para ello se deberán asignar estos órganos al mismo receptor de manera conjunta, basado en el criterio hepático, una vez que exista un caso.

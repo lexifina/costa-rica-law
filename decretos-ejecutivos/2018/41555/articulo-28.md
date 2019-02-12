@@ -1,0 +1,1 @@
+Artículo 28.-No aceptación de la oferta del injerto hepático. En caso de no aceptación de la oferta del injerto hepático, la Secretaría Ejecutiva Técnica de Donación y Trasplante de Órganos y Tejidos procederá a asignar y ofertar el injerto hepático al siguiente receptor en orden de prioridad, establecida en la lista nacional de receptores de rugado.

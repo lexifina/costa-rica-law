@@ -1,0 +1,3 @@
+Artículo 40.- Comité Técnico Asesor. Para efectos de análisis de casos de distribución hepática cadavérica, se conforma el Comité Técnico Asesor. El Ministerio de Salud designará a los profesionales que integrarán dicho Comité:
+a) Un especialista de cada establecimiento de salud trasplantador de hígado autorizado, el cual tendrá voz y voto, los mismos se podrán hacer acompañar de otros especialistas los cuales tendrán voz, pero no voto. Éste especialista, no podrá ser representante de más de un establecimiento de salud autorizado.
+b) Un miembro de la Secretaría Ejecutiva Técnica de Donación y Trasplante de Órganos y Tejidos, con voz, pero sin voto.
