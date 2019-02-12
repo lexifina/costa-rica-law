@@ -1,0 +1,2 @@
+Artículo 6º—Servicios Mínimos para la Población Beneficiada. Los servicios mínimos consistirán en cuido, alimentación incluyendo dietas especiales, tres tiempos de comida al día (merienda media mañana, almuerzo y merienda tarde).
+Adicionalmente y de acuerdo a las posibilidades, podrá incluir actividades recreativas, deportivas, programas de memoria, actividades educativas y formativas, acondicionamiento físico, terapia física entre otras.

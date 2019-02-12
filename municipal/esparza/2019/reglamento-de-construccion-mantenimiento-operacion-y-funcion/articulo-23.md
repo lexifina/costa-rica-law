@@ -1,0 +1,1 @@
+Artículo 23. —Vigencia de los precios. El precio determinado por el Concejo Municipal o por el alcalde según corresponda, entrará en vigencia un mes después de su publicación en el Diario Oficial La Gaceta.

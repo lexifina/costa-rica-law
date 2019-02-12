@@ -1,0 +1,2 @@
+Artículo 7º—Horario de los CENTROS. El horario de atención para la población beneficiada será de las 7 am a 4 pm, de lunes a viernes. Se excluyen los días feriados de ley y aquellos que sean declarados asueto de acuerdo con la normativa correspondiente.
+El centro podrá ser habilitado por el operador los días de lunes a viernes después de las 4 p.m. sábados, domingos y feriados para realizar actividades sociales, educativas, recreativas, deportivas, culturales, y de salud, para beneficio de la operación y mantenimiento del CENTRO.

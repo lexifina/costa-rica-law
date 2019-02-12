@@ -1,0 +1,1 @@
+Artículo 9º—Habilitación para el establecimiento de los CENTROS. Conforme a las Normas de Costa Rica para la Habilitación de Establecimientos de Atención Integral a las Personas Adultas Mayores, se requerirá la habilitación del Área Rectora de Salud, en especial en lo referente a Planta física, Requisitos del personal, Requisitos de las instalaciones y mobiliario.
