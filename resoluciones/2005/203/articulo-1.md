@@ -55,8 +55,7 @@ DTI: Declaración Tránsito Internacional.
 DVA: Declaración del Valor en Aduanas de las Mercancías Importadas.
 ECA: Ente Costarricense de Acreditación.
 ET: Estacionamiento Transitorio.
-DUCA: Declaración Única Centroamericana (DUCA)(*)
-(*)(Así modificada su denominación por el artículo 6° del decreto ejecutivo N° 41627 del 19 de diciembre del 2018 “Publica Resolución Nº 409-2018 (COMIECO-LXXXV) de fecha 7 de diciembre de 2018 y su Anexo I: "Formato de la Declaración Única Centroamericana (DUCA)" y su Anexo II: "Instructivo de llenado de Declaración Única Centroamericana (DUCA)"”. Anteriormente indicaba “ Formulario Aduanero Único Centroamericano (FAUCA)”)
+FAUCA: Formulario Aduanero Único Centroamericano.
 LGA: Ley General de Aduanas.
 PA: Perfeccionamiento Activo.
 PROCOMER: Promotora de Comercio Exterior de Costa Rica.
@@ -2490,6 +2489,8 @@ B. Actuaciones del Declarante
 4) Recibirá la notificación a través de la resolución en el caso de cancelación de declaraciones del SIA y en forma electrónica para las declaraciones tramitadas con TICA y de estar de acuerdo con la obligación tributaria, cancelará el talón de cobro emitido, en caso contrario presentará los recursos correspondientes.
 5) Una vez satisfechas las actuaciones de la aduana, incluida la cancelación de la obligación tributaria aduanera, recibirá del funcionario encargado de este proceso el comprobante debidamente firmado y sellado.
 6) El trámite para la liquidación de tributos podrá realizarse en cualquier aduana del país, interconectada al sistema TICA.
+-Políticas Generales para la Importación definitiva modalidad de Menaje de Casa.
+(Así adicionado el párrafo anterior mediante resolución RES-DGA-DGT-004-2019 del 12 de febrero del 2019)
 (Nota de Sinalevi: Mediante resolución N° 372 del 25 de noviembre de 2009, se adiciona una sección XII al Procedimiento de Importación definitiva y Temporal, denominada “Del ingreso de Viajeros y sus Mercancías”. No obstante, en dicho procedimiento ya existe dicha sección pero con contenido diferente:)
 XII. Procedimiento Ingreso de Viajeros y Sus Mercancías
 Este procedimiento se aplicará al ingreso de viajeros, al equipaje que ingresa con ellos o que arribe tres meses antes o después de su llegada al país por cualquiera de los puertos aduaneros habilitados, así como a las demás mercancías distintas del equipaje que traiga consigo.
@@ -2601,7 +2602,7 @@ Dicho beneficio solo podrá ser aplicado para las mercancías que se presenten a
 30.—El beneficio de la bonificación deberá ser registrado en las aduanas por el funcionario aduanero responsable de la autorización en la base de datos nacional dispuesta para ese fin, en el mismo momento de su aplicación. De no estar disponible dicha base de datos, el registro de este derecho se realizará sobre el pasaporte del viajero, sellando y firmando dicho documento y en ningún caso podrá aplicarse sobre pasaportes oficiales, salvoconductos o permisos vecinales. En caso de no encontrarse el número de identificación del viajero en la base de datos citada, el funcionario aduanero consignará en la “Declaración de Aduana” la palabra “bonificado” y constatará los datos personales del viajero contra la información del pasaporte a efectos de registrar en dicha base de datos el beneficio de bonificación aplicado a más tardar al día hábil siguiente.
 31.—En caso de contingencia o fallo en el sistema informático que imposibilite al funcionario aduanero verificar de manera inmediata la información de la base de datos nacional para la aplicación del beneficio de bonificación, éste deberá constatar los datos personales del viajero contra la información del pasaporte y que haya declarado que no ha disfrutado en los últimos seis meses de “exoneración de tributos”; de ser así aplica dicho beneficio y consigna la palabra “bonificado” en la declaración a efectos de registrar el beneficio aplicado una vez restablecido el sistema, en todos los casos, deberá registrar también en el sistema informático, el número de resolución emitida por la gerencia en donde se demuestre que existió contingencia.
 32.—El beneficio de bonificación es de carácter personal, intransferible y no acumulativo por lo que se considerará totalmente disfrutado para el periodo de seis meses con cualquier cantidad de valor en aduana que se hubiese exonerado.
-33.—Los efectos personales que ingresan formando parte de un menaje de casa, en el tanto no ingresan con el viajero, no podrán considerarse equipaje ni gozar del beneficio de la bonificación.
+33.—(Dejado sin efecto por resolución RES-DGA-DGT-004-2019 del 12 de febrero del 2019)
 34.—Para el control de equipajes y las mercancías que ingresan los viajeros y que son objeto de retención o deben permanecer bajo control aduanero en la bodegas de un depósito aduanero o del transportista, el funcionario aduanero del Área de Equipajes, deberá completar la información requerida utilizando los siguientes medios de identificación:
 Tiquete de equipajes para mercancías consideradas importaciones no comerciales (color verde),
 Tiquete de equipajes para mercancías consideradas importaciones comerciales (color rojo),
