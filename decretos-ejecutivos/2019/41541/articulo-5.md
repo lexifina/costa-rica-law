@@ -1,0 +1,1 @@
+Artículo 5°.-Inclusión de nuevas especialidades. Previo a incluir una nueva especialidad o subespecialidad en su catálogo, el Colegio Profesional respectivo deberá de elaborar el respectivo perfil profesional.

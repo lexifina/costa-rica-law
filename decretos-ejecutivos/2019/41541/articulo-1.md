@@ -1,0 +1,18 @@
+N° 41541-S
+EL SEGUNDO VICEPRESIDENTE
+EN EJERCICIO DE LA PRESIDENCIA DE LA
+REPÚBLICA Y EL MINISTRO DE SALUD
+En uso de las facultades que les confieren los artículos 50, 140 incisos 3), 18) y 146 de la Constitución Política; 25 inciso 1 ), 27 inciso 1 ), 2 8 inciso 2) acápite b) de la Ley No. 6227 del 2 de mayo de 1978 "Ley General de la Administración Pública"; 1, 2, 4, 7, de la Ley No. 5395 del 30 de octubre de 1973 "Ley General de Salud"; 2 y 6 de la Ley No. 5412 del 8 de noviembre de 1973 "Ley Orgánica del Ministerio de Salud".
+CONSIDERANDO
+1- Que el artículo 1 de la Ley No. 5395 del 30 de octubre de 1973 "Ley General de Salud" establece que la salud de la población es un bien de interés público tutelado por el Estado.
+2- Que la acción rectora del Ministerio de Salud le faculta para dictar la normativa que proceda en resguardo de la salud de la población.
+3- Que la Sala Primera de la Corte Suprema de Justicia, se ha pronunciado sobre la naturaleza de los colegios profesionales, en que " ... son entidades de derecho público de base corporativa. Sus miembros se asocian con la finalidad de hacer valer intereses comunes y propios de una determinada profesión. Velan por el respeto de los ámbitos competencia/es de las respectivas profesiones, luchan contra el ejercicio indebido de la profesión y la competencia desleal, procuran la mejora de las condiciones del ejercicio profesional, de las condiciones personales y familiares de sus agremiados, así como la cooperación y el mutuo auxilio entre éstos. Sin embargo, adicionalmente a estos fines eminentemente privados y sectoriales, el ordenamiento jurídico o la Administración por delegación legal expresa, le atribuyen funciones que son propias de ésta última. Se trata de facultades en el orden administrativo a ejercer sobre sus propios miembros, como lo son el control objetivo de las condiciones de ingreso en la profesión y la potestad disciplinaria ... Además poseen la potestad de auto regulación mediante la promulgación de reglamentos y el dictado de pautas de ingreso, ejercicio profesional y fijación de emolumentos". (Resolución Nº 000625-F-S 1-2013 de las 08 horas y 50 minutos del 2 l de mayo de 2013).
+4- Que la sociedad contemporánea requiere de cambios cualitativos en el sistema de salud, a fin de incrementar la satisfacción de las necesidades de la población y de la comunidad, mediante la utilización óptima de los recursos humanos y materiales existentes.
+5- Que la calidad de un servicio de salud, parte del nivel de competencia y desempeño de sus trabajadores en el cumplimiento de sus funciones laborales y sociales.
+6- Que de conformidad con lo establecido en el artículo 12 bis del Decreto Ejecutivo No. 37045 del 22 de febrero de 2012 y su reforma "Reglamento a la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos", esta regulación cumple con los principios de mejora regulatoria, de acuerdo con el informe No. DMR-DAR-INF- 153-18 emitido por la Dirección de Mejora Regulatoria y Reglamentación Técnica del Ministerio de Economía, Industria y Comercio
+POR TANTO,
+DECRETAN:
+"REGLAMENTO DE PERFILES DE PROFESIONALES
+EN CIENCIAS DE LA SALUD"
+Artículo 1°-Objetivo y alcance. El presente reglamento tiene por objetivo establecer los mecanismos para que se definan los perfiles profesionales de las profesiones en ciencias de la salud, con el fin de mejorar las condiciones del ejercicio profesional y la calidad del servicio ofrecido a la población.
+Las disposiciones del presente reglamento son de orden público, de interés general y de acatamiento obligatorio, por ende, aplicable a toda persona física o jurídica que esté relacionada directa o indirectamente con la práctica profesional de las profesiones en ciencias de la salud.
