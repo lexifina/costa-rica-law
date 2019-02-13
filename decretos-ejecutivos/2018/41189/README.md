@@ -15,3 +15,4 @@ Amplía la Intervención del Instituto Nacional de Fomento Cooperativo (en adela
 | --- | --- | --- |
 | 1 | 2018-06-28 | la propia norma |
 | 2 | 2019-01-08 | Decreto Ejecutivo 41508 (2019-01-08) |
+| 3 | 2019-02-13 | Decreto Ejecutivo 41565 (2019-02-13) |

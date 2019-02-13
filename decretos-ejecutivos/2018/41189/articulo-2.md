@@ -5,6 +5,7 @@ b) Una persona representante del Ministerio de Trabajo y Seguridad Social. Dicha
 (Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 41508 del 8 de enero del 2019)
 c) Patricia Rodríguez Canossa, cédula 1-0391-0519, quien será la secretaria.
 d) Anallancy Morera Gutiérrez, cédula 1-0636-0608.
-e) María Ángela Arias Marín, cédula 1-0377-0280.
+e) Oscar Alfonso Abellán Villegas, cédula 1-0686-0149.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 41565 del 13 de febrero del 2019)
 f) Carlos Brenes Castillo, 3-0194-1174.
 g) Kemly Camacho Jiménez, cédula 1-0604-0476.
