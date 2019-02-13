@@ -1,0 +1,1 @@
+Artículo 16.-Guía para la Autoevaluación. En la Municipalidad se aplicará cada año una Guía de Autoevaluación, con base en la preparada por la Contraloría General de la República, la cual consiste en un cuestionario que contempla las normas mínimas de control por observar a nivel municipal.

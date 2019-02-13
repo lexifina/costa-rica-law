@@ -1,0 +1,1 @@
+Artículo 8°-Sesiones de la Comisión Ejecutiva de Control Interno. Dicha Comisión sesionará ordinariamente al menos una vez cada trimestre. La agenda, fecha propuesta y toda documentación por conocer en dichas sesiones, serán remitidas por el coordinador que se nombre para su conocimiento y análisis, por medio de correo electrónico o algún otro medio que se determine.

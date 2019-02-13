@@ -1,0 +1,3 @@
+Artículo 34.-Procedimiento Sancionatorio. En caso de incumplimiento por acción u omisión de las disposiciones de Control Interno, la Comisión de Control Interno presentará el informe correspondiente a la Alcaldía, el cual, una vez analizado lo elevará al Concejo Municipal, el cual dictará la obligación de tomar las medidas correctivas. La potestad sancionatoria será responsabilidad del Alcalde o del Concejo Municipal según corresponda, con base a la constatación
+de la verdad real de los hechos y se aplicará conforme lo estipula el Código Municipal.
+Este reglamento fue aprobado por el Concejo Municipal en su sesión ordinaria N° 135 celebrada el lunes 26 de noviembre del 2018, en el artículo VI, acuerdo N°3535.

@@ -1,0 +1,1 @@
+Artículo 23.-Estructura del proceso de Valoración de Riesgos. Se establece una Comisión de SEVRI integrada por los mismos miembros de la Comisión de Control Interno, con el fin de apoyar la actividad de Control Interno.

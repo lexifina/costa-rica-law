@@ -1,0 +1,2 @@
+Artículo 13.-Responsabilidad. Es responsabilidad del Alcalde y de los funcionarios municipales revisar y perfeccionar su SCI por medio del proceso de autoevaluación, el cual debe ejecutarse mínimo una vez al año y de conformidad con el plan aprobado.
+La revisión no se debe limitar únicamente a la simple verificación del cumplimiento o no de un control, sino que conlleva a la determinación de rediseñar, mejorar, desaplicar, complementar o implantar controles.

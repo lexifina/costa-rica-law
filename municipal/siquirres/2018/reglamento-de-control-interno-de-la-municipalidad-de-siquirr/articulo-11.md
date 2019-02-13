@@ -1,0 +1,1 @@
+Artículo 11.-Plazo para ejecutar el resultado de las evaluaciones. Las recomendaciones y acciones correctivas resultantes de las evaluaciones realizadas por las instancias indicadas en el artículo anterior, deben ejecutarse en un plazo prudencial, el cual indicará el CECI y se contará a partir de su notificación.

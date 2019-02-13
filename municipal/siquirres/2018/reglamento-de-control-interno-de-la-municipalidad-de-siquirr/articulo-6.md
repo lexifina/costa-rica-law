@@ -1,0 +1,1 @@
+Artículo 6°-La Comisión de Control Interno analizará las acciones de Control Interno, para que sean revisadas y avaladas por la Alcaldía, la cual, a su vez las hará llegar al Concejo municipal para mero conocimiento.
