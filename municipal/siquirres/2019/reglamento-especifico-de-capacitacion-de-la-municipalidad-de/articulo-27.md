@@ -1,0 +1,1 @@
+Artículo 27. En todos los programas de capacitación interna, el personal municipal, departamento responsable que facilitará el proceso de formación, instrucción o capacitación, deberá entregar con una semana de anticipación del evento, los temas y actividades a desarrollar al del Departamento de Recursos Humanos para su respectivo análisis.

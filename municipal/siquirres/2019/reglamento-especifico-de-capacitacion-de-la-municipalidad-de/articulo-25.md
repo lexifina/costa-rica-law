@@ -1,0 +1,1 @@
+Artículo 25. Las Jefaturas remitirán a la Alcaldía el personal municipal propuesto que participará de las capacitaciones impartidas o contratadas por la institución de acuerdo a las necesidades de capacitación y formación.

@@ -1,0 +1,1 @@
+Artículo 21. El personal municipal debe ser responsable de los cursos, seminarios, talleres, pasantías, entre otros, que la Municipalidad le otorgue, en caso de incumplimiento con las especificaciones del mismo, sin justificación o permiso de su jefatura inmediata debe asumir las consecuencias de estos:

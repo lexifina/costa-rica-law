@@ -1,0 +1,1 @@
+Artículo 7. El reconocimiento de actividades de capacitación realizadas por entes externos a la institución se hará en apego a lo que establece el presente Reglamento de Carrera Profesional de la Municipalidad de Siquirres.

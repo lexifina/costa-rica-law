@@ -1,0 +1,1 @@
+Artículo 29. La Municipalidad de Siquirres será la encargada de promover las acciones necesarias para la formación y capacitación del recurso humano, que permita la adecuada prestación de los servicios institucionales.
