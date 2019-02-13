@@ -1,0 +1,3 @@
+CAPÍTULO X
+RECURSOS
+Artículo 23. Presentación y Respuesta de los Recursos. Los recursos, tanto de objeción al cartel, como el de revocatoria cuyo conocimiento corresponda a la Administración, serán recibidos y resueltos por la Junta Directiva del CCDRJ; presentados según los requisitos establecidos en la L.C.A. y en el RLCA. Para las respuestas de los recursos la Junta Directiva, requiere de la recomendación de las dependencias municipales responsables del procedimiento; y cuando resulte necesario, podrá solicitar la colaboración de cualquier otra dependencia técnica, todo orientado al aseguramiento de la mejor defensa de los intereses de la institución.

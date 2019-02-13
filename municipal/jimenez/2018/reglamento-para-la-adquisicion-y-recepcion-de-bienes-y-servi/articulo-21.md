@@ -1,0 +1,4 @@
+Artículo 21. Dependencia Encargada de la Elaboración de Contratos:
+a) La dependencia encargada de elaborar los contratos que requieran refrendo contralor, así como gestionar el proceso de dicho refrendo ante la Contraloría General de la República, será la dependencia municipal que lidere el proceso de contratación, el trámite debe seguirse según lo contenido en la Ley Orgánica de la Contraloría General de la República, Reglamento sobre el Refrendo de las contrataciones de la Administración Pública, así como los lineamientos y/o directrices que al respecto emita la CGR.
+b) La dependencia encargada de elaborar los contratos derivados de licitaciones que no requieran refrendo contralor, será la dependencia municipal que lidere el proceso de contratación.
+c) Para los demás procesos, le corresponde a la Junta Directiva elaborar los contratos (contrataciones directas y compras menores).

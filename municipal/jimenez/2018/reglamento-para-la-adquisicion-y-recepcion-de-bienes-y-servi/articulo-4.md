@@ -1,0 +1,4 @@
+CAPÍTULO II
+FUNCIONES DE LA JUNTA DIRECTIVA RESPECTO A LOS PROCESOS
+DE CONTRATACIÓN PÚBLICA
+Artículo 4. La Junta Directiva será el competente para conducir los procedimientos de contratación administrativa, respecto a las contrataciones directas y compras de caja chica, así como para realizar los procesos de control, almacenamiento y distribución o tráfico de bienes, producto de los procedimientos de contratación, quien llevará un inventario estricto y actualizado de los bienes bajo su custodia, entendiéndose distribución como entrega en bodega. De ser posible contarán con el recurso humano idóneo e indispensable, con experiencia, conocimiento y formación en el campo de la contratación administrativa, que le permita el cumplimiento oportuno de sus funciones. El resto de procedimientos serán conducidos por la proveeduría de la Municipalidad de Jiménez con apoyo de otras dependencias.

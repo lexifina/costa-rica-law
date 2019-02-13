@@ -1,0 +1,1 @@
+Artículo 19. Comunicación del Acuerdo del acto final. La Junta Directiva por medio de su asistente administrativa debe remitir el acuerdo que contiene el acto final (adjudicación, declaratoria de infructuosa o desierto) dentro de los plazos establecidos en la L.C.A. y en el RLCA.

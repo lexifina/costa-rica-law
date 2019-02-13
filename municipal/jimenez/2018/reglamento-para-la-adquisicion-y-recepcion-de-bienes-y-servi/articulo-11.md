@@ -1,0 +1,1 @@
+Artículo 11. Criterios de Evaluación. Junta Directiva, en coordinación con las dependencias municipales y las áreas técnicas, definirá los elementos que se incorporarán en el cartel como criterios de evaluación, los cuales se basarán en los principios de igualdad, libre competencia, eficiencia y transparencia que establece la Ley de Contratación Administrativa y su Reglamento.

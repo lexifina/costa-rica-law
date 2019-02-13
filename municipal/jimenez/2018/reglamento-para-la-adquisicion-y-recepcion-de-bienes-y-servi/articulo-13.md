@@ -1,0 +1,1 @@
+Artículo 13. Publicaciones. Las publicaciones en el Diario Oficial o cualquier otro diario de circulación nacional, lo hará el CCDRJ; cuando la contratación lo amerite, en coordinación con la dependencia municipal que dirija el proceso licitatorio.

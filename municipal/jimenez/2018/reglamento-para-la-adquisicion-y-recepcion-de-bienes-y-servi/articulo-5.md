@@ -1,0 +1,1 @@
+Artículo 5. Las dependencias administrativas de la Municipalidad (técnico, jurídico, financiero) colaborarán con la Junta Directiva, para el cumplimiento de sus cometidos, todo conforme a las competencias propias de cada dependencia.
