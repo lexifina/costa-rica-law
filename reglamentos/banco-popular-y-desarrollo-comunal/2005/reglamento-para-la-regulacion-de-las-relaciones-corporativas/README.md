@@ -20,3 +20,4 @@ Reglamento para la Regulación de las Relaciones Corporativas del Banco Popular 
 | 5 | 2009-02-02 | Reglamento 4637 (2009-02-02) |
 | 6 | 2009-11-19 | Reglamento 4715 (2009-11-19) |
 | 7 | 2015-09-01 | Reglamento 5306 (2015-09-01) |
+| 8 | 2019-02-13 | Reglamento 5616 (2019-02-13) |
