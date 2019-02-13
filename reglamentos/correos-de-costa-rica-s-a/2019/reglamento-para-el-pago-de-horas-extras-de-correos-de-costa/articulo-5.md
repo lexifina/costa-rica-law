@@ -1,0 +1,1 @@
+Artículo 5º El colaborador deberá prestar los auxilios necesarios en caso de siniestro o riesgo inminente en que las personas o intereses del patrono, o de algún compañero de trabajo estén en peligro, nada de lo cual le dará derecho a remuneración adicional.

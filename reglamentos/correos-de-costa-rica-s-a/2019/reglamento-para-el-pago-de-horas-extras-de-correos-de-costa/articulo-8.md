@@ -1,0 +1,1 @@
+Artículo 8º—La Gerencia respectiva realizará un cálculo aproximado de la cantidad de horas extraordinarias y el presupuesto que se va a requerir cada año, de acuerdo con la proyección de carga laboral, para que sean aprobados por los órganos competentes, a nivel interno y externo de la empresa.
