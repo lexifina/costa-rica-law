@@ -1,0 +1,1 @@
+Artículo 9-. RESPONSABILIDAD. El Auditor Interno es el responsable de la Unidad de la Auditoría Interna, por lo que debe velar por el logro final de los objetivos de esta, por lo que requiere compromiso con las políticas y directrices emanadas por el órgano contralor.

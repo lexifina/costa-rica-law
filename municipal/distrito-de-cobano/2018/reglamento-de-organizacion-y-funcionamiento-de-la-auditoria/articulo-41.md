@@ -1,0 +1,1 @@
+Artículo 41-. COMUNICACION RESPECTO A LAS RELACIONES DE HECHO. Los informes de Relaciones de Hechos se ajustarán en su contenido a las disposiciones que establezca la Contraloría General de la República.

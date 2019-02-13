@@ -1,0 +1,2 @@
+Artículo 29-. DEL PROCEDIMIENTO Y PLAZOS PARA LA APROBACIÓN DE LOS RECURSOS. Los procedimientos y los plazos para el otorgamiento de los recursos por parte de la Administración Activa para la Auditoría Interna, estarán formalizados en el Manual de Políticas y Procedimientos de la Auditoría Interna.
+Por lo que el Concejo Municipal deberá promulgar las disposiciones institucionales para regular el procedimiento, los plazos, el trámite interno de la solicitud de dotación de recursos para la auditoría.

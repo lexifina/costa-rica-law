@@ -1,0 +1,1 @@
+Artículo 16-. DE LOS DEBERES ETICOS—Es deber de los funcionarios de la Auditoría, respetar los lineamientos éticos y morales establecidos por el Concejo y por el auditor interno, así como los establecidos por la Contraloría General de la Republica.
