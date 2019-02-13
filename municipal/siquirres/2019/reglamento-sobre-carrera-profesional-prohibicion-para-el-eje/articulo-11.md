@@ -1,0 +1,6 @@
+Artículo 11.—Participación de servidores como instructores en actividades de capacitación. Se reconocerá la participación de los servidores en calidad de instructores en actividades de capacitación en cursos patrocinados, organizados o avalados por la institución, siempre y cuando se cumpla con las siguientes condiciones:
+11.1 Que los cursos, hayan sido evaluados por el departamento de Recursos Humanos en cuanto a su grado de interés, contenido y calidad.
+11.2 Que los funcionarios que los impartan estén como mínimo graduados como bachiller universitario al momento de los cursos.
+11.3 Que el promedio de la evaluación recibida del curso por parte de los asistentes sea igual o superior a una calificación de “muy bueno” cuando los parámetros sean cualitativos, y cuando sean cuantitativos una nota superior a 80.
+11.4 Que la duración mínima de su participación como instructores en estos cursos no sea inferior a 8 horas naturales, las cuales se acumularán para efectos del puntaje establecido.
+11.5 La instrucción impartida a compañeros municipales, siempre y cuando no sean parte de sus funciones, según lo establecido por el manual de puestos. Y que hayan sido evaluados con un 80% o muy bueno, como mínimo.

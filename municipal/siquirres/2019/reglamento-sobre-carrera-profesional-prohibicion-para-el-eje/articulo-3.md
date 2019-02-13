@@ -1,0 +1,1 @@
+Artículo 3º—Profesionales. Se considerarán profesionales los servidores con grado académico universitario igual o superior al bachillerato, otorgado por una universidad debidamente reconocida por el Estado.

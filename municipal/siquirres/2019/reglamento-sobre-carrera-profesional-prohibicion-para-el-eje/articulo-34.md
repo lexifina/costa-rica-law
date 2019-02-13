@@ -1,0 +1,8 @@
+Artículo 34. — Para el personal de la Administración Tributaria
+34.1 Que, en razón de sus cargos, se encuentre sujeto a la prohibición contenida en el artículo 118 del Código de Normas y Procedimientos Tributarios, excepto para los miembros del Tribunal Fiscal Administrativo, se establece la siguiente compensación económica sobre el salario base de la escala de sueldos de la Ley de Salarios de la Administración Pública:
+a) Un sesenta y cinco por ciento (65%) para los profesionales en el nivel de licenciatura u otro grado académico superior.
+b) Un cuarenta y cinco por ciento (45%) para los egresados de programas de licenciatura o maestría.
+c) Un treinta por ciento (30%) para quienes sean bachilleres universitarios o hayan aprobado el cuarto año de la respectiva carrera universitaria.
+d) Un veinticinco por ciento (25%) para quienes hayan aprobado el tercer año universitario o cuenten con una preparación equivalente.
+34.2 Para aplicar este artículo, los funcionarios "técnicos" citados en el numeral 34.1 anterior tendrán derecho al beneficio por prohibición, siempre y cuando reúnan los requisitos del puesto o cuenten con una combinación equivalente, a juicio de la Dirección General de Servicio Civil. Sin embargo, salvo los requisitos mayores, la compensación para los funcionarios que ocupen puestos de la serie "técnico y profesional", se hará de acuerdo con el requisito primario del puesto que desempeñen.
+34.3 Aquellos funcionarios a quienes se les otorgue el beneficio indicado anteriormente, no podrán ejercer de manera particular, a excepción de la docencia, actividades relativas al ejercicio de su profesión.

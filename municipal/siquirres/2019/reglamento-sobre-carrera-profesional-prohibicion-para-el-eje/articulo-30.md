@@ -1,0 +1,1 @@
+Artículo 30. —Requisitos para recibir el pago. Para recibir el pago por la prohibición del ejercicio liberal de las profesiones se requiere cumplir con las condiciones establecidas de los artículos 4º y 5º de este Reglamento y estar debidamente incorporado y autorizado para ejercer en el Colegio Profesional.

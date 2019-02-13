@@ -1,0 +1,1 @@
+Artículo 34 (Bis). Aplicación de prohibición para nuevos funcionarios. Se aplicará los porcentajes para el pago de prohibición a los nuevos funcionarios según las disposiciones previstas en la ley 9635 “Ley de Fortalecimiento de Finanzas públicas”, capítulo IV.

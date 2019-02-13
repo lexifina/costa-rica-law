@@ -1,0 +1,1 @@
+Artículo 14.—Coautores de publicaciones. En los casos en que los libros y ensayos hayan sido escritos por dos o más funcionarios de la Municipalidad de Siquirres, el puntaje se distribuirá entre los coautores.

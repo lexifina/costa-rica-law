@@ -1,0 +1,2 @@
+Artículo 37. —Aspectos no regulados expresamente. Los aspectos relacionados con este título que no se ajusten a las disposiciones anteriores, serán estudiados por la Unidad de Recursos Humanos y resueltos por el Alcalde Municipal.
+Para el caso de aquellos funcionarios que, a la entrada en vigencia de este reglamento, disfruten de alguna forma de compensación económica tal como dedicación exclusiva y otros pluses, pueden optar por trasladarse al pago de prohibición, siempre que sean profesionales de carreras de ejercicio liberal.

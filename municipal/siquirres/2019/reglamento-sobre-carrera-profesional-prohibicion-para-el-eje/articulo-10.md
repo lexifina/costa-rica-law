@@ -1,0 +1,7 @@
+Artículo 10. —Condiciones de las actividades de capacitación.
+10.1 Las actividades de capacitación recibidas dentro o fuera del país, para efectos de mérito profesional, serán reconocidas siempre y cuando sean atinentes a la especialidad de la actividad ocupacional desempeñada por el servidor y a las funciones, planes, tareas y necesidades de la Municipalidad de Siquirres.
+10.2 No tendrán tal condición las charlas, simposios, mesas redondas, o conferencias, ni las que sean cursos regulares de una carrera universitaria, parauniversitaria, programas de escuelas comerciales, o programas técnicos.
+10.3 El interesado deberá presentar el certificado de participación de la actividad en donde se indique el número de horas, u otros mecanismos válidos comprobatorios de su asistencia a la actividad, o bien una certificación extendida por el organizador, en la fecha límite que establecerá la circular que para tales fines emitirá la Unidad de Recursos Humanos.
+10.4 Que se hayan recibido después de haber obtenido, como mínimo, el grado académico de bachiller universitario.
+10.5 Que sean atinentes a la especialidad del puesto desempeñado, de acuerdo con lo indicado en el inciso anterior.
+Se reconocerá también la participación de los profesionales como instructores en cursos organizados fuera de la institución, siempre y cuando haya existido autorización del Municipio, se aporte documento fehaciente de su participación con indicación de los temas, fechas y horas y que cumpla con lo señalado en los incisos 10.4 y 10.5 del presente artículo.
