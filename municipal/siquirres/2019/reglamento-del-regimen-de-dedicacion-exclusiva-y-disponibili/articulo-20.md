@@ -1,0 +1,2 @@
+Artículo 20.—Procedimiento: Una vez aprobado y entrado en vigencia el presente reglamento y en un término no mayor de tres meses, el Alcalde definirá los puestos ocupacionales a efectos de este régimen y lo comunicará al Concejo Municipal para su respectiva aprobación.
+Podrá solicitar la participación o resoluciones técnicas y profesionales vinculantes con el tema al Departamento de Recursos Humanos.

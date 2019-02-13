@@ -1,0 +1,8 @@
+CAPÍTULO IV
+Excepciones, renuncias y sanciones del régimen de dedicación exclusiva
+Artículo 10.-El servidor que se acoja al régimen de Dedicación exclusiva podrá ejercer excepcionalmente su profesión comprometida en el respectivo contrato, en los siguientes casos:
+a) Cuando se trate de la práctica profesional en el ejercicio de la docencia en establecimientos de educación superior oficiales o privados, en seminarios, cursos y congresos organizados e impartidos por estos centros educativos.
+b) Cuando se trate de impartir cursos de capacitación en instituciones públicas, siempre que sean auspiciados y organizados por dichas instituciones.
+c) Cuando se trate de asuntos personales, de los de cónyuge o compañero (ra) si se convive en unión libre, comprobado esto mediante declaración jurada autenticada por un abogado, ascendiente o descendientes hasta su tercer grado de consanguinidad, hermanos, suegros, yernos, cuñados, siempre que no existe conflicto, interés lucrativo por parte del funcionario o de sus familiares aquí mencionados. Para los efectos anteriores, el servidor, con la debida antelación, debe solicitar por escrito y recibir la autorización del Alcalde para acogerse a las excepciones indicadas, señalar el tipo de trabajo que efectuará, así como las fechas de inicio y de finalización de la prestación del servicio y ubicación y esperar su respuesta.
+d) Cuando sea necesario su colaboración al estado en forma ad honorem, en la atención de desastres naturales, siempre que lo hagan a nombre y con respaldo de la Municipalidad de Siquirres.
+e) Cuando se trate de desempeño de cargos en/ con las juntas directivas, siempre que no existan conflictos de intereses, puesto desempeñado, salvo los casos en que por ley así se establezca.

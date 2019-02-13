@@ -1,0 +1,1 @@
+Artículo 14 Bis. Aplicación de Dedicación de Dedicación Exclusiva para los nuevos contratos de trabajo. Se aplicará los porcentajes y regulaciones para el pago de dedicación exclusiva a los nuevos funcionarios según las disposiciones previstas en la ley 9635 “Ley de Fortalecimiento de Finanzas públicas”, capítulo IV.

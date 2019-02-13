@@ -1,0 +1,1 @@
+Artículo 14 Ter. Normas supletorias y de jerarquía de aplicación: Este Reglamento no podrá contravenir lo dispuesto en la ley 9635 “Ley de Fortalecimiento de Finanzas públicas”, y el Código de Trabajo, por lo que estas normas al ser de jerarquía superior deberán de aplicarse en primera instancia con base al principio de legalidad.

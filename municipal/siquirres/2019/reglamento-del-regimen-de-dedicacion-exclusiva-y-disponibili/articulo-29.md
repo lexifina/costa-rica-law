@@ -1,0 +1,1 @@
+Artículo 29.-Los funcionarios que ingresen a laborar a la Municipalidad, después de la aprobación, por parte del Concejo Municipal, del presente Reglamento y que ostenten el rango cubierto por dicho régimen, se acogerá obligatoriamente a este.

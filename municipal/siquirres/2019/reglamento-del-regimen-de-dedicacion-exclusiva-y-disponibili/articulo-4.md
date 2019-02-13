@@ -1,0 +1,3 @@
+Pronunciamiento para acogerse al Reglamento
+de dedicación exclusiva
+Artículo 4º-El funcionario Municipal que desee acogerse al régimen de dedicación exclusiva, deberá previamente solicitarlo por escrito al Departamento de Recursos Humanos de la Municipalidad de Siquirres. Este, una vez que reciba la petición del servidor; verificará y certificará el respecto contrato por escrito, que el funcionario solicitante cumple con los requisitos que señala el artículo 3º, confecciona el respecto contrato de Dedicación Exclusiva y lo remitirá al Alcalde Municipal, para que proceda a firmarlo en conjunto con el funcionario solicitante.
