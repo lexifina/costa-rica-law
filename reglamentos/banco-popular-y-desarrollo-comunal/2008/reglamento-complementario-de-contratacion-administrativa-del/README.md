@@ -19,3 +19,4 @@ Reglamento Complementario de Contratación Administrativa del Conglomerado Banco
 | 4 | 2015-09-01 | Reglamento 5306 (2015-09-01) |
 | 5 | 2016-10-25 | Reglamento 5413 (2016-10-25) |
 | 6 | 2017-05-04 | Reglamento 5460 (2017-05-04) |
+| 7 | 2019-02-13 | Reglamento 5616 (2019-02-13) |
