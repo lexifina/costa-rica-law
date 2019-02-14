@@ -31,12 +31,14 @@ incorporó el interesado, se anotan todos los títulos presentados posteriores a
 d. Constancia para denuncias de la Fiscalía (F-SC-30): la cual se emite únicamente para trámites propios de la Fiscalía, éstas podrán ser emitidas por las personas colaboradoras autorizadas en ésta política o por quien la fiscalía designe para su emisión.
 e. En situaciones especiales se entregará: un comprobante de trámite (F-SC-10): este documento lo puede emitir cualquier colaborador de la Corporación a toda aquella persona que solicite un comprobante de que estuvo realizando un trámite en nuestras oficinas, el mismo se efectuara únicamente por el tiempo en que el interesado estuvo realizando el trámite respectivo.
 B. Trámite de Carné:
-1. El carné de colegiado tiene una validez de cinco años a partir de la fecha de emisión y por lo tanto no se reemplazará a menos que sea por deterioro evidente; en caso de pérdida del carné, el colegiado deberá cancelar el valor del mismo para que se le confeccione uno nuevo.
-2. El carné para padres, cónyuge e hijos del colegiado se emitirá por un periodo de tres años, previo cumplimiento de los siguientes requisitos:
-1. Estar al día con las obligaciones financieras en el Colypro.
-2. Completar por parte del colegiado, el formulario de Solicitud de carné familiar (F-SC-02), la oficial de plataforma debe corroborar dicha unión familiar en la página electrónica del Tribunal Supremo de Elecciones, siempre y cuando exista conexión con esta página.
+1. El carné de colegiado tiene una validez de cinco años a partir de la fecha de emisión y se emitirá de forma gratuita únicamente la primera vez, por lo que todas las renovaciones posteriores deberán ser canceladas de acuerdo al monto estipulado por la Junta Directiva.
+(Así reformado el inciso anterior y publicado en La Gaceta N° 32 del 14 de febrero del 2019)
+(*)2. El carné para padres, cónyuge e hijos del colegiado se emitirá por un periodo de tres años, previo cumplimiento de los siguientes requisitos:
+1. Estar al día con las obligaciones financieras en el COLYPRO.
+2. Completar por parte del colegiado, el formulario de Solicitud de carné familiar F-SC-02, la oficial de plataforma debe corroborar dicha unión familiar en la página electrónica del Tribunal Supremo de Elecciones, siempre y cuando exista conexión con esta página.
 3. Cancelar el costo estipulado para la confección del carné.
-4. En caso de renovación, el mismo podrá ser tramitado por el familiar, siempre que este sea mayor de edad y presentando el F-SC-02 lleno y firmado y con la respectiva copia de la cédula de identidad del colegiado.
+4. En caso de renovación, el mismo podrá ser tramitado por el familiar, siempre que este sea mayor de edad y conste en el expediente la autorización escrita de la persona colegiada, de lo contrario el familiar tendrá que presentar el F-SC-02 lleno y firmado y con la respectiva copia de la cédula de identidad del colegiado.
+(*) (Así reformado el inciso 2) anterior y publicado en La Gaceta N° 32 del 14 de febrero del 2019)
 3. El carné en condición especial se emitirá por el mismo periodo del carné para padres, cónyuge e hijos y será aprobado por el Director Ejecutivo, previo visto bueno del Departamento Legal. Para la emisión de estos carnés se debe cumplir con los siguientes requisitos:
 a) Unión de Hecho:
 1. Estar al día con las obligaciones financieras en el Colypro.
