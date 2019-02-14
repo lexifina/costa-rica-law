@@ -1,0 +1,25 @@
+N° 41475-H
+EL PRESIDENTE DE LA REPÚBLICA
+Y LA MINISTRA DE HACIENDA
+En uso de las facultades que les confieren los artículos 140, inciso 18) y 146 de la Constitución Política y los artículos 16, 25 inciso 1), 27 inciso 1) y 28 inciso 2), acápite b) de la Ley número 6227 del 02 de mayo de 1978, Ley General de la Administración Pública.
+Considerando:
+I.—Que nuestro ordenamiento jurídico faculta al Poder Ejecutivo para aprovechar las becas u otras facilidades que otorguen gobiernos e instituciones extranjeras y organismos internacionales de reconocida solvencia moral y económica, para adiestramiento de su personal.
+II.—Que el artículo 11 de la Ley número 3009 “Ley de Licencias para Adiestramiento de Servidores Públicos” establece que no se regularán por las disposiciones de esa ley la participación en seminarios o congresos internacionales ni las visitas de observación no mayores de tres meses que lleven a cabo los servidores públicos, por lo que para estos programas de formaciones menores a tres meses el respectivo Ministro podrá conceder licencia con goce de sueldo, si así lo justifica la conveniencia del servicio público.
+III.—Que mediante Decreto número 31212-H publicado en el Alcance número 33 a La Gaceta número 119 del 23 de junio del 2003 se promulga el Reglamento para la Adjudicación de Becas o Facilidades a Servidores del Ministerio de Hacienda.
+IV.—Que mediante Decreto Ejecutivo N 37956-H Publicado en La Gaceta 191, del viernes 04 de octubre del 2013, se modificó el inciso a) del artículo 13 del Decreto Ejecutivo número 31212- H citado, estableciendo que correspondía al Director de la Dependencia en supuestos de becas o facilidades para participación en seminarios, congresos internacionales o visitas de observación iguales o menores a tres meses, la respectiva la autorización y la designación del candidato al organismo patrocinador.
+V.—Que mediante Decreto Ejecutivo N° 38701-H del 21 de agosto de 2014, publicado en La Gaceta 225 del viernes 21 de noviembre del 2014, se modificó nuevamente el inciso a del artículo 13 del Decreto Ejecutivo número 31212-H citado, a efectos de regresar el trámite y recomendación de la propuesta de candidatos a participar en las becas y facilidades iguales o menores a tres meses, bajo la competencia al Centro de Investigación y Formación Hacendaria.
+VI.—Que en la búsqueda de simplificar los trámites establecidos por la Administración se ha visto la necesidad de modificar dicho inciso, para que sean los Directores de cada dependencia los que seleccionen y postulen a los candidatos, siempre bajo la fiscalización del Centro de Investigación y Formación Hacendaria.
+VII.—Que siendo que el presente Decreto no establece ni modifica trámites, requisitos y/o procedimientos vinculados al Administrado, no se requiere someter el presente reglamento al control previo de revisión por parte de la Dirección de Mejora Regulatoria y Reglamentación Técnica del Ministerio de Economía, Industria y Comercio. Por tanto,
+Decretan:
+Reforma del inciso a) del artículo 13, del Decreto
+Ejecutivo número 31212-H “Reglamento para
+la Adjudicación de Becas o Facilidades a
+Servidores del Ministerio de Hacienda”
+Artículo 1°—Modifíquese el inciso a) del artículo 13, del Decreto Ejecutivo número 31212-H “Reglamento para la Adjudicación de Becas o Facilidades a Servidores del Ministerio de Hacienda” para que se lea:
+Artículo 13.—Cobertura.
+a) Becas o facilidades para representación o participación en seminarios, congresos, cursos, talleres, conferencias, simposios, pasantías u otros eventos similares, iguales o menores a tres meses o 260 horas:
+Los Directores de Dependencia, serán los responsables de postular al o los funcionarios bajo su cargo para participar, para lo cual deberán emitir un acto motivado en el que se justifique la relación entre los temas del evento con las actividades que realizan los eventuales participantes, el Plan Estratégico Institucional y el Plan Nacional de Desarrollo, así como el cumplimiento de las directrices emitidas por el Ministro de Hacienda o el Viceministro del área correspondiente.
+Los Directores de Dependencia postularán ante el organismo patrocinador al o los funcionarios designados para tal efecto.
+El acto motivado con la postulación correspondiente debe ser notificado a la Dirección del Centro de Investigación y Formación Hacendaria para que, una vez que el organismo patrocinador seleccione al funcionario o funcionarios propuestos, gestione la formalización de los acuerdos o contratos según proceda, que estipulen claramente los compromisos que el candidato asume con su participación.
+El Centro de Investigación y Formación Hacendaria suscribirá el acuerdo de compromiso, cuando el acto suscrito por el Director de Dependencia contemple todas las condiciones establecidas en este inciso.
+Todo lo anterior, sin perjuicio de las potestades de la Dirección del Centro de Investigación y Formación Hacendaria, de comunicar o denunciar cualquier anomalía al respecto, ante las autoridades competentes.
