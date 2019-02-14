@@ -1,0 +1,165 @@
+SERVICIO FITOSANITARIO DEL ESTADO
+La Inflación acumulada según el IPC al cierre del año 2018 fue del 2.03% www.inec.go.cr
+Tarifas por servicios del Servicio Fitosanitario del Estado
+Tarifas vigentes del 1° de febrero 2019 al 31 de enero 2020
+| Descripción | Monto en colones
+1 | Certificados del Servicio Fitosanitario del Estado: |
+1.a | De exportación o reexportación de productos y subproductos vegetales | 3 983
+1.b | De registro y libre venta de insumos agrícolas o equipos de aplicación | 20 879
+2 | Por cuota anual de: |
+2.a | Exportadores de productos no tradicionales | 62 039
+2.b | Fincas orgánicas o en transición | 62 039
+2.c | Agencias Certificadoras | 62 039
+2.d | Inspectores orgánicos | 62 039
+2.e | Procesadores de vegetales e insumos orgánicos | 62 039
+2.f | Viveros y bancos de yemas | 62 039
+2.g | Compañías de insumos agrícolas y equipos de aplicación | 69 597
+2.h | Reempaque y reenvase | 62 039
+3 | Inscripción de insumos agrícolas, equipos de aplicación, personas físicas y jurídicas:
+3.a | Inscripción, renovación, re-registro y reválida de los siguientes insumos agrícolas: plaguicidas sintéticos y no sintéticos, sustancias afines y coadyuvantes, plaguicidas botánicos y microbiológicos, fertilizantes y sus sustancias afines, vehículos físicos que contengan plaguicidas o sustancias afines y organismos invertebrados (Por registro) | 121 078
+3.b | Inscripción equipos de aplicación (por equipo) | 83 518
+3.c | Modificación al registro de insumos agrícolas (por modificación) | 27 839
+3.d | Inscripción o renovación de personas físicas o jurídicas (por registro) | 111 357
+4 | Acreditación de Agencias Certificadoras: |
+4.a | Acreditación de Agencias Certificadoras | 560 374
+5 | Por exportación de: |
+5.a | Por cada caja, saco o empaque de plantas de productos de origen vegetal a exportar, cuando el envío no es exportado en contenedor. | 17
+5.b | Por cada caja, saco, bulto con muestras para fines científicos a exportar | 901
+5.c | Por cada tonelada métrica en productos exportados a granel, o sea productos no empacados que vengan en una unidad de transporte | 18
+5.d | Por cada caja, saco, bulto con muestras sin fines de lucro a exportar | 1 198
+5.e | Por cada unidad de transporte (Contenedor, camión, furgón, carreta) en puntos de salida a exportar | 15 986
+5.f | Por cada tonelada métrica en productos exportados a granel, o sea productos no empacados que vengan en una unidad de transporte | 174
+5.g. | Exportador ocasional de: |
+5.g.1 | Por cada caja, saco o empaque de plantas de productos de origen vegetal a exportar, cuando el envío no es exportado en contenedor | 159
+5.g.2 | Por cada unidad de transporte (Contenedor, camión, furgón, carreta) en puntos de salida a exportar | 88 012
+5.h | Inspección In situ para vegetales de exportación: por cada visita a: |
+5.h.1 | Inscritos en Registro de exportadores | 71 995
+5.h.2 | No Inscritos en Registro de exportadores | 119 909
+5.i. | Para verificación de tratamiento: por cada visita: Se exceptúan aquellos envíos de poca cantidad como muestras para apertura de mercados o sin valor comercial
+5.i.1 | Inscritos en Registro de exportadores | 71 995
+5.i.2 | No Inscritos en el Registro de exportadores | 119 909
+6 | Por inspección de: |
+6.a | Lotes para autorizar siembra de organismos genéticamente modificados | 71 995
+6.b | De unidad de transporte (contenedor, camión, furgón, carreta), que transporte insumos agrícolas, producto y subproducto de origen vegetal en importación o tránsito, O inspección de plantas o productos vegetales. | 14 387
+6.c | De cada tonelada métrica de Productos y subproductos de origen vegetal importados a granel (productos no empacados) que vengan en una unidad de transporte. | 31
+6.c.1. | Para los envíos en importaciones de granos que se descargarán a granel ( ya sea en sacos o grano suelto) en medios de transporte marítimo se aplica únicamente lo dispuesto en el ítem 6.c, esta tarifa incluye los servicios de inspección, muestreo, exámenes de laboratorio (residuos y diagnóstico), y transmisión al TIC@
+6.d | Servicio de inspección para medios de transporte marítimo y pluvial: |
+6.d.1 | Por cada buque o barco: pesquero, mercante, militar, crucero; velero, yate, lancha turística o maderera. | 36 297
+6.d.2 | Por cada lancha pluvial de transporte de mercadería, personas y equipajes | 13 921
+6.e | Para los envíos en importación de fruta de naranja a granel para industria, por cada tonelada métrica del envío inspeccionado. Esta tarifa incluye los servicios de inspección, muestreo, exámenes de laboratorio, (residuos y diagnóstico), y transmisión al TIC@. | 163
+7 | Sello o marchamo: |
+7.a | Por cada sello o marchamo a medios de transporte de almacenamiento de empaque o embalaje, conteniendo productos vegetales | 3 983
+8 | Por cada dictamen de ausencia de plagas o condición fitosanitaria en cada finca, invernadero, plantas de empaque o embarques, en productos vegetales (plantas, productos y subproductos) para la exportación (se exceptúan aquellos embarques de poca cantidad de material así como aquellas muestras sin valor comercial, o con fines de apertura de mercado):
+8.a | Inscritos en Registro Exportadores | 71 995
+8.b | No Inscritos en el Registro Exportadores | 119 909
+9 | Por cada análisis de laboratorio para el diagnóstico de plagas en vegetales: |
+9.a | Utilizando únicamente microscopio | 9 990
+9.b | Utilizando únicamente microscopio con recomendación técnica | 19 980
+9.c | Utilizando medios de cultivo u otros métodos específicos | 13 934
+9.d | Utilizando medios de cultivo u otros métodos específicos con recomendación técnica | 19 980
+9.e | Utilizando medios serológicos por muestra (constituida como máximo 8 pozos) | 47 606
+9.f | Utilizando PCR básica (reacción en cadena de la polimerasa con imprimadores específicos) | 67 507
+9.g | Utilizando PCR-TR (reacción en cadena de la polimerasa y retrotranscripción) | 79 334
+9.h | Utilizando PCR-RFLP (reacción en cadena de la polimerasa incluyendo digestión con enzimas de restricción) | 70 989
+10 | Análisis químicos para el Control de Calidad de Agroquímicos según el método: |
+10.a | Espectrofotometría UV-VIS por ingrediente activo | 32 101
+10.b | Volumetría por ingrediente activo | 32 101
+10.c | Cromatografía gaseosa por ingrediente activo | 47 954
+10.d | Cromatografía líquida por ingrediente activo | 55 945
+10.e | Densidad (líquido) | 11 989
+10.f | Granulometría | 19 980
+10.g | Humectabilidad | 15 986
+10.h | Estabilidad de emulsión y dilución | 24 042
+10.i | Suspensibilidad por cromatografía/ ing. Activo | 52 881
+10.j | Suspensibilidad por volumetría | 35 898
+10.k | Nitrógeno en fertilizantes por muestra | 27 839
+10.l | Volumetría en fertilizantes por elemento | 24 042
+10.m | Gravimetría | 24 042
+10.n | Potenciometría | 32 101
+10.o | Espectrofotometría UV por elemento | 32 101
+10.p | Absorción atómica por elemento | 25 975
+10.q | Análisis de impureza / ingrediente activo / por muestra. | 118 283
+10.r | Análisis de muestras de plaguicidas para analítos a nivel de trazas que no califican como impurezas | 111 357
+10.s | Implementación de un método analítico nuevo para análisis de impurezas / por impureza (no incluye validación del método) | 1 809 529
+10.t | Iimplementación de un método de análisis nuevo para análisis de ingrediente activo / por ingrediente activo (no incluye validación del método) | 835 168
+10.u | Por implementación de un método analítico no rutinario (no incluye: estándar analítico, lectura cromatografía ni validación del método) | 111 357
+Para los efectos de los servicios establecidos en los incisos del 10.a al 10. p aplicarán descuentos de acuerdo con la cantidad de muestras a analizar presentadas en forma simultánea por una persona física o jurídica:
+De 4 a 10 muestras 5%
+De 11 en adelante 10%
+11 | Análisis químicos de Residuos de plaguicidas en vegetales, suelo y agua: |
+11.a | Preparación de la muestra en vegetales y suelos | 55 945
+11.b | Preparación de la muestra en aguas | 40 025
+11.c | Lectura utilizando cromatografía de gases | 43 890
+11.d | Lectura utilizando cromatografía líquida | 51 815
+11.e | Lectura en ultravioleta visible | 27 839
+11.f | Por implementación de un método de análisis para la determinación de residuos de plaguicidas en productos vegetales, agua y suelo (no incluye validación del método).Por ingrediente activo/cultivo o por ingrediente activo/sustrato. | 1 809 529
+Para los efectos de los servicios establecidos en los incisos del 11.a al 11.e, aplicarán descuentos de acuerdo con la cantidad de muestras presentadas en forma simultánea de la siguiente manera:
+De 6 a 10 muestras 5%
+De 11 en adelante 10%
+Para los efectos del inciso 11.f por cada cultivo o sustrato adicional para los que se implemente el método de análisis se cobrará un recargo de ¢290.000,00
+12 | Entrenamiento o asistencia técnica impartida por funcionarios del SFE: |
+12.a | Entrenamiento en servicio o asistencia técnica a extranjeros en Costa Rica (por día por persona) | 83 518
+12.b | Entrenamiento en servicio o asistencia técnica impartida por funcionario del SFE en el exterior (por día). Esta tarifa no incluye los costos del transporte y los viáticos del funcionario(s), que deben ser asumidos por el interesado. | 111 357
+12.c | Por curso a expendedores de agroservicios, por persona. | 20 879
+13 | Por utilización del servicio de andén por día/ por unidad de transporte (Contenedor, camión, furgón, carreta) con productos no agropecuarios. | 3 531
+14 | Impresión o copia electrónica de información de los listados del registro insumos agrícolas, equipos de aplicación y personas físicas y jurídicas. | 11 122
+15 | Análisis de riesgo y establecimiento de requisitos fitosanitarios: |
+15a. | Por la determinación de requisitos fitosanitarios de importación con realización de un estudio técnico (sin la necesidad de un análisis de riesgo de plagas). Se excluyen los que requieren como máximo el Certificado Fitosanitario del país de origen o los que se realicen por equivalencia. | 11 989
+15.b | Análisis de riesgo de plagas que contenga hasta 3 plagas | 239 362
+15.c | Análisis de riesgo de plagas, que contenga más de 3 plagas | 417 584
+15.d | Revisión de la información de plagas y cultivos nacionales contenido en un documento que se envía a los países para el análisis de riesgo, por documento (no incluye impresión sólo encuadernación). | 139 194
+15.e | Estudio Técnico para evaluación de análisis de riesgo de productos de la biotecnología | 239 362
+16 | Por Autorización: |
+16.a | Fitosanitaria previa de importación de productos y subproductos de origen vegetal | 11 989
+16.b | De productos vegetales e insumos agrícolas en tránsito. | 11 989
+16.c | Autorización para importación de muestras para investigación de plaguicidas sintéticos y no sintéticos formulados, ingrediente activo grado técnico, sustancias afines, dispositivos físicos que contengan plaguicidas o sustancias afines incorporadas, coadyuvantes, plaguicidas botánicos, plaguicidas microbiológicos y organismos invertebrados, de uso agrícola (Por autorización) | 41 758
+16.d | Autorización para importación de muestras para investigación de fertilizantes y sus sustancias afines, de uso agrícola (Por autorización) | 27 839
+16.e | De desalmacenaje de insumos agrícolas o equipos de aplicación y repuestos de equipos de aplicación (Por permiso) | 9 990
+16.f | Por transmisión electrónica para autorizar la nacionalización de un envió de plantas, productos y subproductos vegetales e insumos agrícolas | 11 989
+16.g | Reenvase y/o reempaque de acuerdo con el número de productos: |
+16.g.1 | -de 1 a 5 productos | 7 967
+16.g.2 | -de 6 a 15 productos | 11 989
+16.g.3 | -de 16 a 25 productos | 15 986
+16.g.4 | -de 26 en adelante | 19 980
+17 | Toma de muestras de insumos agrícolas; vegetales, suelos o aguas para análisis de residuos solicitadas por los administrados:
+17.a | Por una muestra | 35 898
+17.b | Por más de una muestra (mismo lugar) | 48 019
+18 | Supervisión de Cuarentena Interna para los productos Vegetales que se importan al país, por visita | 12 162
+19 | Revisión, aprobación y supervisión de Protocolos de Registro: |
+19.a | Protocolo para investigación de plaguicidas sintéticos y no sintéticos, coadyuvantes, sustancias afines, botánicas, microbiológicas y organismos invertebrados, para modificaciones al registro. (por protocolo) | 34 798
+19.b | Protocolo para investigación de fertilizantes y sus sustancias afines , para modificaciones al registro (Por producto) | 12 528
+19.c | Verificación y certificación de información del etiquetado de los insumos agrícolas registrados. Por etiqueta o panfleto. | 13 921
+20 | Servicios generales: |
+20.a | Por servicios profesionales en horas inhábiles ( por hora, excepto domingos y feriados) | 12 388
+20.b | Por servicios técnicos en horas inhábiles ( por hora, excepto domingos y feriados) | 4 664
+20.c | Por servicios profesionales en horas inhábiles ( por hora, día domingo y feriados | 16 485
+20.d | Por servicios técnicos en horas inhábiles ( por hora, día domingo y feriados) | 6 194
+20.e | Por certificación legal | 6 962
+20.f | Por fotocopia (Cada página) | 62
+21 | Otros servicios técnicos de campo, laboratorios, venta de productos, materiales y suministros no contemplados en otros rubros (considerando tarifas establecidas por los Colegios Profesionales afines o según valor en el mercado). | ¢----------
+22 | Cuota Anual de Inscripción y Registro de Importadores | 62 039
+23 | Servicio de escaneo por rayos X o inspección de equipajes (por persona) | $ 2
+24 | Servicio de Inspección, toma y análisis de muestras, por tonelada métrica importada de arroz (Canon) | _
+SFV.39.01 | Por cada kilo tratado de desechos de importancia cuarentenaria | $ 0.75
+Observaciones:
+1.Cuando se trate de banano, café, cacao y caña de azúcar, para las tarifas contempladas en los numerales 5 y 8, se cobrará el 20% (veinte por ciento) de lo establecido.
+2.Las tarifas establecidas constituyen el costo mínimo por cobrar siempre y cuando el desplazamiento por parte del funcionario encargadodel servicio solicitado, sea inferior o igual a los 30 kilómetros contados desde su sede de trabajo ordinaria. Dicho monto se incrementará hasta en un treinta por ciento (30%) cuando se exceda el kilometraje anteriormente establecido.
+3.Los servicios por brindar en horas inhábiles por causa imputable al solicitante tienen el recargo del cincuenta por ciento (50%) sobre la tarifabase.
+4.La definición de tiempo extraordinario y días feriados, es la establecida en el Código de Trabajo.
+5.Las tarifas establecidas por concepto de anualidades serán canceladas al inicio de cada período.
+6.Los servicios de inscripción y registro de importadores serán cancelados anualmente por el interesado. El costo del servicio de inscripciónen el registro de importadores, para el año 2019 será de ¢ 62.039.00 por cancelar al inicio del período
+7.Los servicios de escaneo por rayos X o inspección de equipajes, tendrán un costo de US$ 2.00 por persona. Dicho cobro se realizará alingreso o a la salida de las personas, según convenga a la administración.
+8.Estas tarifas se actualizarán en forma automática con base en el valor del índice de precios al consumidor al cierre del año anterior yregirán a partir del día 1° de febrero de cada año.
+9.Para los envíos en importación de fruta de naranja a granel para industria se cobrará ¢ 163.00 por cada tonelada métrica del envíoinspeccionado. Esta tarifa incluye los servicios de inspección, muestreo, exámenes de laboratorio (residuos y diagnóstico), y transmisión alTIC@
+Cuentas bancarias del Servicio Fitosanitario de Estado-MAG
+cuentas en colones
+Banco de Costa Rica
+Cuenta cliente
+15201001027398281
+Cuenta corriente
+001-0273982-8
+Banco Nacional
+Cuenta cliente
+15100010012191470
+Cuenta corriente
+100-01-000-219147-7
