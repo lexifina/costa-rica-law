@@ -1,0 +1,31 @@
+N° 9637
+LA ASAMBLEA LEGISLATIVA
+DE LA REPÚBLICA DE COSTA RICA
+DECRETA:
+REFORMA DE LOS ARTÍCULOS 14 Y 15 DE LA LEY N.° 7246,
+LEY DE IMPUESTOS MUNICIPALES DEL CANTÓN
+DE OROTINA, DE 24 DE JULIO DE 1991
+Artículo Único.—Se reforman los artículos 14 y 15 de la Ley N.° 7246, Ley de Impuestos Municipales de Orotina, de 24 de julio de 1991. Los textos son los siguientes:
+Artículo 14.—Debe entenderse como actividad económica la que se ejerce con fines de lucro, con carácter empresarial, profesional, artístico, por cuenta propia o a través de medios de producción y de recursos humanos, o de uno o de ambos, con el fin de intervenir en la producción o distribución de bienes o servicios, ya sea de manera permanente u ocasional, ambulante o estacionaria.
+Los profesionales liberales, aunque sean de distintas disciplinas, que operen agrupados en un mismo predio, en sociedades de hecho o de derecho se encontrarán obligados al trámite de la licencia y el pago del impuesto de patente, por tener dichas asociaciones presunción de lucro. De manera concordante, si el profesional liberal, debidamente inscrito ante el colegio profesional respectivo, trabaja solo o con un máximo de tres personas no profesionales que lo asistan, dicho profesional liberal no deberá efectuar trámite de licencia profesional ni cancelar impuesto de patente a la Municipalidad de Orotina.
+Se entiende por actividades comerciales, productivas o lucrativas las señaladas a continuación, que están comprendidas en la clasificación internacional de actividades económicas y en relación con las cuales los patentados, a excepción de las actividades señaladas en el artículo 15 de esta ley, pagarán según lo dispuesto en los artículos 3 y 4 de esta ley:
+a) Agricultura, ganadería, pesca y forestal: comprende toda clase de actividades de siembra y recolección de productos agrícolas, forestales, granjas lecheras, avícolas, porcinas y cualquier otro tipo de actividad agropecuaria y ganadera.
+b) Industria (manufacturera o extractiva): se refiere al conjunto de operaciones materiales ejecutadas para la obtención, la transformación o el transporte de uno o varios productos. También, comprende la transformación mecánica o química de sustancias orgánicas e inorgánicas en productos nuevos, mediante procesos mecanizados o sin mecanizar en fábricas o domicilios.
+En general, se refiere a mercancías, valores, construcciones, bienes muebles e inmuebles. Comprende tanto la creación de productos, los talleres de reparación y acondicionamiento; la extracción y explotación de minerales, metálicos y no metálicos, que se encuentran en estado sólido, líquido o gaseoso; la construcción, reparación o demolición de edificios, instalaciones, vías de transporte; imprentas, editoriales y establecimientos similares; medios de comunicación; empresas de cogeneración eléctrica, comunicaciones privadas y establecimientos similares.
+c) Comercio: comprende la compra, la venta, la distribución y el alquiler de bienes muebles o inmuebles, mercancías, propiedades, bonos, moneda y toda clase de valores; los actos de valoración de bienes económicos según la oferta y la demanda; casas de representación, comisionistas, agencias, corredoras de bolsa, instituciones bancarias y de seguros, instituciones de crédito, empresas de aeronáutica, instalaciones portuarias y aeroportuarias, agencias aduanales y, en general, todo lo que involucre transacciones de mercado por internet o por cualquier medio, así como las de garaje, sean estas públicas, privadas o mixtas.
+d) Servicios: comprende los servicios prestados al sector privado, al sector público o a ambos, atendidos por organizaciones o personas privadas; los prestados por las empresas e instituciones de servicio público, las actividades concesionadas por el Estado a la empresa privada, nacional o extranjera; el cobro de todo tipo de peajes, las concesiones, el transporte terrestre, aéreo, acuático y marítimo, el bodegaje o almacenaje de carga; las comunicaciones radiales, telefónicas, por internet o por cualquier otro medio, así como los establecimientos de enseñanza privada, de esparcimiento y de salud; el alquiler de bienes muebles e inmuebles, los asesoramientos de todo tipo y el ejercicio liberal de las profesiones que se efectúe en sociedades de hecho o de derecho.
+e) Profesiones liberales y técnicas: comprende todas las actividades realizadas en el cantón por los profesionales y técnicos en las diversas ramas de las ciencias exactas o inexactas y la tecnología, en las que hayan sido acreditados por instituciones tecnológicas de nivel universitario o parauniversitario, universidades públicas o privadas autorizadas por el Estado, o los centros de capacitación en oficios diversos, como el Instituto Nacional de Aprendizaje (INA).
+Artículo 15.—Las actividades que se citan a continuación pagarán el impuesto conforme al criterio que se indica para cada una de ellas. Cuando en un mismo establecimiento se realicen, conjuntamente, diferentes actividades de las señaladas en este artículo, el monto de la imposición se
+determinará de acuerdo con lo que establece el artículo 12.
+a) Bancos y establecimientos financieros
+Bancos, casas de cambio, financieras y similares e instituciones aseguradoras, públicas o privadas, pagarán cada trimestre, sobre los ingresos por intereses brutos y comisiones, percibidos en el año anterior:
+Hasta el primer quince por ciento (15%) de ingresos: cuatro colones (¢4,00) por cada mil colones (¢1000,00).
+A partir del dieciséis por ciento (16%) de ingresos: cinco colones (5,00) por cada mil colones (¢1000,00).
+b) Comercio de bienes inmuebles
+Pagarán cada trimestre, sobre comisiones percibidas en el año anterior:
+Tres colones (¢3,00) por cada mil colones (¢1000,00).
+c) Salones de diversión, que exploten juegos de habilidad o aleatorios o ambos, permitidos por ley Pagarán cada trimestre, sobre los ingresos brutos del año anterior:
+Tres colones (¢3,00) por cada mil colones (¢1000,00).
+d) Establecimientos de hospedaje momentáneo Pagarán, cada trimestre, sobre los ingresos brutos del año anterior:
+Cinco colones (05,00) por cada mil colones (¢1000,00).
+Dado en la Presidencia de la República.—San José, a los diecisiete días del mes de diciembre del año dos mil dieciocho.
