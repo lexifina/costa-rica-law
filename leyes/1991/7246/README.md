@@ -1,6 +1,6 @@
 # Impuestos Municipales de Orotina
 
-Ley N° 7246 del 1991-07-24. SINALEVI, ficha 9637: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=9637&param2=10316&param3=1>.
+Ley N° 7246 del 1991-07-24. SINALEVI, ficha 9637: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=9637&param2=115221&param3=1>.
 
 Publicada en La Gaceta N° 155 del 1991-08-19.
 
@@ -10,3 +10,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | --- | --- | --- | --- |
 | 1 de 3 | 1991-08-19 | Ley 7246 | 1991-07-24 |
 | 2 de 3 | 1991-08-19 | SINALEVI | 1991-07-24 |
+| 3 de 3 | 2019-02-14 | Ley 9637 | 2018-12-17 |
