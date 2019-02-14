@@ -1,5 +1,6 @@
 ARTÍCULO 25.- Traslado de operaciones
-Se trasladan al Finade, para su administración, la cartera activa de préstamos y las obligaciones existentes de los siguientes fideicomisos:
+Se trasladan al Fonade(*), para su administración, la cartera activa de préstamos y las obligaciones existentes de los siguientes fideicomisos:
+(*) (Así modificada su denominación por el artículo 3° de la ley N° 9654 del 14 de febrero del 2019. Anteriormente se indicaba: “Finade”)
 a) Fideicomiso de Reconversión Productiva 520-001 CNP/BNCR.
 b) Fideicomiso 5001-001 Incopesca/Banco Popular, creado por la Ley N.º 7384, de 16 marzo de 1994, y sus reformas.
 c) Fideicomiso 05-99 MAG/PIPA/Bancrédito.
