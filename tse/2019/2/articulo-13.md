@@ -1,0 +1,1 @@
+Artículo 13.—Conforme al mandato contenido en el inciso 6) del artículo 102 de la Constitución Política, este Tribunal dictará, con respecto a la Fuerza Pública, las medidas pertinentes para que el proceso de plebiscito del cantón Río Cuarto se desarrolle en condiciones de garantías y libertad irrestrictas.

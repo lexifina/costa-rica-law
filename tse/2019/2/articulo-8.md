@@ -1,0 +1,1 @@
+Artículo 8.—Se imprimirán un 20% de papeletas de muestra, las cuales tendrán el mismo color y tamaño de la papeleta original y llevarán impresa la palabra “Muestra”. Estas serán distribuidas entre las fuerzas vivas del cantón.

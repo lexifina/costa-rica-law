@@ -1,0 +1,1 @@
+Artículo 4º—Si una vez realizado el escrutinio definitivo se constatare la existencia de un empate en el primer lugar, ya sea entre dos o las tres opciones, este Tribunal procederá a hacer una nueva convocatoria.

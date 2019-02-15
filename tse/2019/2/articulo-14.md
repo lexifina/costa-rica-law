@@ -1,0 +1,1 @@
+Artículo 14.—De conformidad con lo dispuesto en el artículo 136 del Código Electoral, durante los tres días inmediatos anteriores, así como el propio día de la votación, no podrá difundirse propaganda de ninguna especie relativa al objeto de la presente consulta.

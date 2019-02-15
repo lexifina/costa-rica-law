@@ -1,0 +1,1 @@
+Artículo 12.—El Ministerio de Educación Pública deberá facilitar las instalaciones de los centros educativos del cantón Río Cuarto que se utilizarán como centros de votación, a los efectos de instalar en estos las juntas receptoras de votos.

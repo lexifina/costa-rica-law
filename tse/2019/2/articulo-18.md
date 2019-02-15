@@ -1,0 +1,2 @@
+Artículo 18.—Comuníquese el presente decreto a los Poderes del Estado, a la Contraloría General de la República, a la Procuraduría General de la República, a la Defensoría de los Habitantes, a la Municipalidad de Grecia y a los partidos políticos inscritos. Publíquese en el Diario Oficial, así como en el sitio web de este Tribunal. Adicionalmente, se difundirá la convocatoria en otro medio de circulación nacional.
+Dado en San José, a los doce días del mes de febrero del año dos mil diecinueve.

@@ -1,0 +1,1 @@
+Artículo 5º—El Tribunal integrará las juntas receptoras de votos dentro de los treinta días naturales siguientes a la publicación del presente decreto en el Diario Oficial La Gaceta. Cada una de estas juntas estará, exclusivamente, integrada por dos funcionarios de este Tribunal.

@@ -1,0 +1,1 @@
+Artículo 15.—En atención a lo dispuesto en el artículo 138 del Código Electoral, durante los tres días inmediatos anteriores, así como el propio día de la votación, queda prohibida la difusión total o parcial, por cualquier medio, de encuestas o sondeos de opinión relativos al objeto de la consulta.

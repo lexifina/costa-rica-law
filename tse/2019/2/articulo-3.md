@@ -1,0 +1,1 @@
+Artículo 3º—El distrito administrativo que obtenga la mayoría simple de los votos emitidos en la consulta se constituirá como la cabecera del cantón; determinación que se hará prescindiendo de los votos nulos o en blanco, los que no se sumarán a ningún distrito.

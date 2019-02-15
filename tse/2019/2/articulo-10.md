@@ -1,0 +1,1 @@
+Artículo 10.—Para la celebración del plebiscito regirá la misma cantidad de juntas receptoras de votos y su numeración, así como los centros de votación utilizados en las Elecciones Nacionales del año 2018 en la respectiva jurisdicción.
