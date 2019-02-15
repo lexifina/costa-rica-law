@@ -1,0 +1,1 @@
+Artículo 2°- Facúltese al SENARA, en uso de las facultades conferidas por el artículo 3, inciso g) de la Ley Nº 6877, para apoyar técnicamente a la Municipalidad de Osa en el uso de las aguas públicas disponibles con las que se brinde el servicio de riego.

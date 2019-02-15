@@ -1,0 +1,1 @@
+Artículo 3°- Facúltese al FEPI para apoyar a la Municipalidad de OSA y al SENARA con apoyo presupuestario para la puesta en operación ( estudios técnicos y construcción) de la infraestructura de riego citada en el artículo 1 del presente Decreto.

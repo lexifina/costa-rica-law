@@ -1,0 +1,1 @@
+Artículo 4 °-Encárguesele a SENARA realizar en el plazo de dos años los estudios técnicos, económicos, ambientales y sociales para consolidar un distrito de riego, o determine una nueva forma de organización y gestión de la infraestructura de riego descrita.
