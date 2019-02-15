@@ -14,3 +14,4 @@ Establece exoneración total a los usuarios de SENASA que apliquen la tarifa G.0
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-02-24 | la propia norma |
+| 2 | 2019-02-15 | Resolución 6 (2019-02-15) |
