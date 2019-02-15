@@ -1,0 +1,1 @@
+Artículo 10.-De cada sesión que se celebre se levantará un registro de asistencia, sobre la base de las convocatorias formuladas por el despacho del Ministro de Coordinación con el sector privado, en el cual los asistentes deberán consignar su firma.

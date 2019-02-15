@@ -1,0 +1,1 @@
+Artículo 7.-Las sesiones serán privadas. Sin embargo, por mayoría absoluta de sus miembros, podrán acordar que para ciertos casos se permita el acceso a representantes de otras instituciones u organizaciones públicas o privadas cuya labor guarde relación con las labores del Consejo.

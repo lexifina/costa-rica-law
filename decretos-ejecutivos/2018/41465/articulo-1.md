@@ -1,0 +1,17 @@
+N° 41465-MP-MIDEPLAN
+EL PRESIDENTE DE LA REPÚBLICA,
+EL MINISTRO DE LA PRESIDENCIA Y LA MINISTRA DE PLANIFICACIÓN
+NACIONAL Y POLÍTICA ECONÓMICA
+De conformidad con las facultades y atribuciones que les conceden los artículos 50, 140 incisos 3), 8), 18) y 20) y 146 de la Constitución Política; los artículos 4, 15, 17, 25, 27 párrafo 1, 28 párrafo 2 inciso b) y 103 párrafo 1 de la Ley General de la Administración Pública, Ley N ° 6227 del 02 de mayo de 1978, y
+CONSIDERANDO:
+l. Que el principio de coordinación del Estado se deriva del artículo 140 inciso 8) de la Constitución Política, según el cual corresponde al Poder Ejecutivo "vigilar el buen funcionamiento de los servicios y dependencias administrativas" con el fin de lograr la unidad de la actuación administrativa del Estado.
+II. Que desde hace ya más de dos décadas, Costa Rica ha venido realizando esfuerzos significativos para generar las condiciones que le permitan integrarse cada vez más y de una manera más provechosa a la economía internacional. Como parte de esos esfuerzos, el país ha venido impulsando una mayor apertura comercial, el aumento y diversificación de sus exportaciones, promoviendo sus ventajas como destino de inversión extranjera y fomentando la incorporación de la tecnología y la innovación a los procesos productivos, con miras a elevar la productividad y la eficiencia y, con ello, el nivel de vida de la población.
+III. Que los resultados obtenidos como fruto de estos esfuerzos han sido notables. Sin embargo, en varias áreas clave, como educación, infraestructura, energía, mejora regulatoria y cultura de emprendimiento e innovación, seguimos teniendo retos muy importantes. Además, la competencia que Costa Rica enfrenta constantemente, y en un contexto cada vez más difícil, nos obliga a trabajar de manera permanente en la mejora de diversos elementos que inciden en la competitividad, para poder continuar atrayendo empresas foráneas, sobre todo aquellas que traigan inversión basada en el conocimiento y la innovación, y facilitar las condiciones necesarias para que las empresas nacionales compitan con éxito en el entorno internacional.
+IV. Que el Decreto Ejecutivo N ° 41464-MP-MIDEPLAN del 30 de noviembre de 2018, "Reforma al artículo 2 y adición de un inciso e) al artículo 5 del Decreto Ejecutivo N º 41187-MP-MIDEPLAN, Reglamento Orgánico del Poder Ejecutivo", crea el Consejo Presidencial de Coordinación con la Unión Costarricense de Cámaras y Asociaciones del Sector Empresarial Privado (UCCAEP). Dicho Consejo es coordinado por el Presidente de la República, y está integrado por el Ministro de Coordinación con el sector Privado, y el/la Presidente de la UCCAEP.
+v. Que dicho Decreto establece que las funciones específicas del Consejo serán definidas en el Reglamento de funcionamiento del Consejo Presidencial de Coordinación con la Unión Costarricense de Cámaras y Asociaciones del Sector Empresarial Privado (UCCAEP)
+Por tanto;
+Decretan:
+"REGLAMENTO DE FUNCIONAMIENTO DEL CONSEJO PRESIDENCIAL DE COORDINACIÓN
+CON LA UNIÓN COSTARRICENSE DE CÁMARAS Y ASOCIACIONES DEL SECTOR
+EMPRESARIAL PRIVADO (UCCAEP)"
+Artículo 1.-El Consejo Presidencial de Coordinación con la Unión Costarricense de Cámaras y Asociaciones del Sector Empresarial Privado (UCCAEP) es un órgano de asesoría, coordinación, seguimiento y evaluación de las políticas públicas sobre competitividad e innovación, liderado por el Presidente de la República.

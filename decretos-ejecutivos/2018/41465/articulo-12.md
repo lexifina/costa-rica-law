@@ -1,0 +1,1 @@
+Artículo 12.- En lo no regulado expresamente en este reglamento, el Consejo Presidencial se regirá en cuanto a su funcionamiento por las disposiciones que resulten aplicables de la Ley General de la Administración Pública.
