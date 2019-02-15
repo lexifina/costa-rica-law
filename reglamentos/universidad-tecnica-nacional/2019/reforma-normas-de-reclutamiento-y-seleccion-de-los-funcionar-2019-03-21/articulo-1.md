@@ -1,0 +1,10 @@
+UNIVERSIDAD TÉCNICA NACIONAL
+El Consejo Universitario de la Universidad Técnica Nacional comunica la aprobación de las siguientes modificaciones a las Normas de Reclutamiento y Selección de los Funcionarios de la Universidad Técnica Nacional:
+2.- Según el Acuerdo 7-6-2019, de la Sesión Ordinaria Nº6-2019, artículo 9, del 21 de marzo de 2019, se aprueba la incorporación de un artículo transitorio a las Normas de Reclutamiento y Selección de los funcionarios de la Universidad Técnica Nacional, con el siguiente texto:
+Transitorio I: En los concursos públicos académicos que se realicen para el nombramiento en propiedad del personal académico, a partir de la vigencia de este acuerdo y hasta el 31 de octubre de 2020, se establece un régimen de excepción que permitirá la participación de aspirantes que no cuenten con el grado académico de maestría en la especialidad correspondiente a su licenciatura o a su bachillerato universitario, establecido como requisito académico obligatorio en el Manual Descriptivo de Clases de Puestos de la Universidad.
+Este régimen de excepción se aplicará únicamente a los aspirantes que se encuentren en las siguientes condiciones:
+a) Que cuenten al menos con el grado académico de licenciatura o su bachillerato universitario y que se encuentren en el proceso de estudio para la obtención del grado académico de maestría afín a su especialidad, o a los ejes transversales de la universidad.
+b) Haber laborado ininterrumpidamente durante el período que comprende del 31 de octubre de 2013 al 31 de octubre de 2014 ambos inclusive, momento en que se aprobó la reforma al Manual Descriptivo de Clases de Puestos para incorporar el requisito académico cuya aplicación se excepciona.
+c) Que el aspirante se mantenga nombrado en la Universidad, en la condición indicada, al momento del concurso.
+Dichas reformas a esta normativa, en su versión completa y actualizada, se encuentran disponibles en el portal electrónico de la Universidad Técnica Nacional www.utn.ac.cr, sección “Normativa Universitaria.
+Rige a partir de su publicación.
