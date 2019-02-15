@@ -1,0 +1,5 @@
+N° 9650
+LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
+DECRETA:
+DECLARACIÓN DEL DÍA NACIONAL DEL TURISMO EN COSTA RICA
+ARTÍCULO 1- Se declara el 27 de setiembre, de cada año, Día Nacional del Turismo en Costa Rica.
