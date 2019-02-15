@@ -1,0 +1,2 @@
+ARTÍCULO 3-Se autoriza a la Notaría de la Municipalidad de San José para que confecciones las escrituras de traspaso a favor de los beneficiarios citados en el artículo 2 de esta ley, las cuales estarán exentas de todo tipo de impuestos nacionales y municipales como tasas o contribuciones, así como impuestos registrales y de cualquier otra índole.
+Asimismo, se autoriza a la Notaría de la Municipalidad de San José para que corrija los defectos que señale el registro Nacional.
