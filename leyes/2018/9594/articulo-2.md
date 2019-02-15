@@ -1,0 +1,1 @@
+ARTÍCULO 2- Se autoriza a la Municipalidad de Flores para que done el terreno indicado en el artículo anterior a la Asociación Pro Bienestar del Adulto Mayor de San Lorenzo de Flores, cédula jurídica número tres-cero cero dos- seis dos uno cero dos ocho (N.º 3-002-621028).
