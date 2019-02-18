@@ -1,1 +1,0 @@
-Artículo 19.—La alteración del orden del día se solicitará mediante una moción de Orden, la cual puede hacerse verbalmente; para su justificación el (la) proponente hará uso de la palabra hasta por cinco minutos.

@@ -1,1 +1,0 @@
-Artículo 5º—La convocatoria a sesiones extraordinarias deberán hacerse por lo menos con veinticuatro horas de anticipación a la sesión, mediante convocatoria misma en sesión anterior, notificación que puede ser en forma escrita, telefónica o por cualquier medio electrónico que le merezca fe al Concejo Municipal.

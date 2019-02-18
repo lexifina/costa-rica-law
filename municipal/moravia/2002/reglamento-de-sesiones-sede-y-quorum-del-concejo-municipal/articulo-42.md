@@ -1,1 +1,0 @@
-Artículo 42.—Los dictámenes de las comisiones, deberán presentarse por escrito y deberán ser firmados por todos los (las) miembros de la comisión que la emiten. Cuando no existiera acuerdo unánime sobre un dictamen, los (las) miembros de la comisión que no lo aprueben, podrán rendir dictamen por separado, si lo estiman conveniente.

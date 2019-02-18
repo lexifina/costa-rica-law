@@ -1,2 +1,0 @@
-Artículo 9º—Las sesiones del Concejo deberán iniciarse a las seis de la noche como fue publicado en el Diario Oficial La Gaceta y los quince minutos siguientes conforme lo indique el reloj del despacho. Pasados los quince minutos anteriores, si no hubiere quórum se dejará constancia en el libro de actas y se consignará el nombre de los (las) Regidores (as) presentes a falta de reloj, bastará el del señor (a) presidente (a) del Concejo Municipal.
-(Reformado mediante sesión N°12 del 26 de octubre de 2006)

@@ -1,1 +1,0 @@
-Artículo 48.—El (la) exponente debe concretarse al tema de su visita, el cual debe ser preciso y resumido, la Presidencia le hará saber al expositor que cualquier desacato a este Concejo, le será suspendido inmediatamente su derecho al uso de la palabra.

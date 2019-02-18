@@ -1,1 +1,0 @@
-Artículo 6º—En sesiones extraordinarias se conocerán exclusivamente los asuntos indicados expresamente en la convocatoria, y únicamente esos podrán conocerse, salvo que por unanimidad de los (las) Regidores (as) Propietarios (as) presentes se decida conocer otros asuntos, previo a la orden del día que indique el (la) Presidente (a) Municipal.

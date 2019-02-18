@@ -1,1 +1,0 @@
-Artículo 41.—Las comisiones despacharán los asuntos a su cargo, a la mayor brevedad posible, salvo los casos especiales en el que el (la) Presidente (a) del Concejo, en forma expresa fije un término menor o superior. Las comisiones deberán rendir sus dictámenes, en un plazo no mayor de quince días prorrogables por otros quince, a juicio del (la) Presidente (a).
