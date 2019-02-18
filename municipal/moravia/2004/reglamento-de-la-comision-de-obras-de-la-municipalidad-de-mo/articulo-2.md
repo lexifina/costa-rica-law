@@ -1,3 +1,0 @@
-CAPÍTULO II
-De la integración y organización
-12.—La comisión se integrará, en concordancia con lo que establece el artículo 34 del Código Municipal y, estará constituida al menos por cinco miembros, que dentro de su seno elegirán: presidente, vicepresidente, secretario, tesorero y vocal, pudiendo integrarse miembros de la sociedad civil, grupos organizados y asociaciones, con derecho a voz pero no a voto, igualmente podrán integrarse con voz, pero sin voto, asesores, delegados de las diferentes instituciones, que la comisión considere pertinente. El quórum mínimo para sesionar lo será de tres miembros del Concejo Municipal.
