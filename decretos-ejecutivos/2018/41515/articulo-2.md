@@ -1,0 +1,5 @@
+Artículo 2. Definiciones.
+a. Administración Tributaria: Órgano administrativo encargado de gestionar y fiscalizar los tributos, constituido por la Dirección General de Aduanas, la Dirección General de Hacienda, la Dirección General de Tributación y la Dirección General de la Policía de Control Fiscal.
+b. Dación en Pago: Forma de extinguir obligaciones en materia tributaria consistente en que el deudor, con el consentimiento de la Administración Tributaria competente, y la aceptación por parte del Ministro de Hacienda, cancele una obligación tributaria determinada, con la entrega de un bien mueble o inmueble.
+c. Liquidez: Capacidad que tiene una persona física o jurídica, para obtener dinero en efectivo y así hacer frente a sus obligaciones a corto plazo.
+d. Plan de Aprovechamiento: Carta u oficio debidamente firmada por el jerarca de la institución pública, mediante el cual se indique que dicha institución se encuentra interesada en recibir el o los bienes muebles o inmuebles ofrecidos como dación en pago, así como darle el mantenimiento respectivo; de igual forma, se debe indicar el fundamento legal que le faculta para recibir dicho bien en donación.

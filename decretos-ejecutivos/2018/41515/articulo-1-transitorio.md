@@ -1,0 +1,1 @@
+Transitorio Único. Las solicitudes de dación en pago presentadas antes de la entrada en vigencia del presente decreto se tramitarán conforme a la Directriz N° DGH-AE-CJ-01/2009 emitida el 20 de marzo del 2009.

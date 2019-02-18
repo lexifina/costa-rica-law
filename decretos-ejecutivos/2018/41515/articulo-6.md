@@ -1,0 +1,1 @@
+Artículo 6. Estudio de la Solicitud. Los órganos competentes, deberán verificar el cumplimiento de los requisitos por parte del administrado y de ser necesario le prevendrán para que en el plazo de 10 días hábiles complete los requisitos omitidos en la solicitud, o que aclare o subsane la información, so pena del archivo de la solicitud.

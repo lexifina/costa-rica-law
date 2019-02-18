@@ -1,0 +1,1 @@
+Artículo 9. Remisión al Ministro de Hacienda. Elaborada la recomendación para el Ministro de Hacienda, el Departamento de Cobro Judicial remitirá a la Dirección Jurídica del Ministerio de Hacienda, el expediente original, completo y debidamente foliado.
