@@ -1,0 +1,4 @@
+Artículo 2
+Alcance
+1. La autoridad competente de Colombia, según el Artículo 1 (Definiciones) del Anexo 11 del Acuerdo Comercial UE-Colombia, es la Dirección de Impuestos y Aduanas Nacionales (DIAN), o su sucesor, la cual prestará asistencia mutua a la autoridad pública competente de Costa Rica, sobre la base de lo dispuesto en este Convenio y en los Artículos 30 (Cooperación entre autoridades competentes) y 31 (Verificación de las pruebas de origen) del Anexo II del Acuerdo de Asociación UE Colombia.
+2. La autoridad pública competente de Costa Rica, según el Artículo 1 (Definiciones) del Anexo 11 del Acuerdo de Asociación UE-CA, es la Promotora del Comercio Exterior de Costa Rica (PROCOMER), o su sucesor, la cual prestará asistencia mutua a la autoridad competente de Colombia, sobre la base de lo dispuesto en este Convenio y en los Artículos 29 (Cooperación administrativa) y 30 (Verificación de las pruebas de origen) del Anexo II del Acuerdo de Asociación UE-CA.
