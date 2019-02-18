@@ -1,1 +1,0 @@
-Artículo 11.—El nombramiento de la presidencia y secretaría de la Comisión de la Condición de la Mujer deberá escogerse entre los o las regidoras presentes propietarias o propietarios y suplentes, Síndicos (as) propietarios y suplentes miembros de la Comisión.
