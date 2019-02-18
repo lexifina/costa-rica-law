@@ -14,3 +14,4 @@ Suministro de información de empresas residentes en Costa Rica para el intercam
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-02-02 | la propia norma |
+| 2 | 2019-02-18 | Resolución 8 (2019-02-18) |
