@@ -1,1 +1,0 @@
-Artículo 10.—Informará al Concejo Municipal, al menos una vez al mes, sobre las actividades llevadas a cabo o pendientes a realizar, y así cumplir las funciones propias y las que le sean asignadas por el Concejo Municipal.

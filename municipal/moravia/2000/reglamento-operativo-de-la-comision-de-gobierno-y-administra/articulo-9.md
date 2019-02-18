@@ -1,1 +1,0 @@
-Artículo 9º—Recomendar al Concejo Municipal el proceso de creación de gestores comunales, debidamente reglamentados para la vigilancia y el buen cumplimiento de las leyes atinentes a la labor municipal y para la observación y cumplimiento de los derechos y deberes del ciudadano(a).

@@ -1,1 +1,0 @@
-Artículo 4º—Vigilar que en el cumplimiento de las labores municipales, tanto administrativas como operativas, se asegure racionalmente la mejor calidad de vida para los ciudadanos de todo el cantón de Moravia.

@@ -1,1 +1,0 @@
-Artículo 18.—Vigilar que la administración satisfaga las expectativas legales, comunales, organizacionales y de servicio adecuado eficiente y eficaz a la comunidad, materia de servicio a la comunidad y a los ciudadanos.

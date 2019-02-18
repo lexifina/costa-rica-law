@@ -1,1 +1,0 @@
-Artículo 3º—La comisión actuará como enlace entre el Concejo Municipal y la Administración General. Mantendrá informado a este Concejo sobre la aplicación de normas de eficiencia y eficacia, por parte de las unidades operativas, en la prestación de cada uno de los servicios que este ente ofrece al ciudadano.

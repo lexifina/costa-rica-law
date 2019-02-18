@@ -1,1 +1,0 @@
-Artículo 28.—La comisión podrá formar subcomisiones para algún asunto específico. Para ello podrá integrar a los gestores comunales, capacitados e identificados (con su respectivo carné), o bien con cualquier ciudadano de la comunidad de Moravia.
