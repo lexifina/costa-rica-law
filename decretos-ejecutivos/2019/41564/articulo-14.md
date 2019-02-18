@@ -1,0 +1,7 @@
+CAPITULO IV
+SOBRE INCENTIVOS, BENEFICIOS, COMPENSACIONES Y OTRAS DISPOSICIONES GENERALES DE ORDEN SALARIAL
+Artículo 14.- Anualidades. El incentivo de anualidad se reconocerá según los siguientes parámetros:
+a)El incentivo se reconocerá únicamente mediante la evaluación del desempeño, a aquellos servidores que hayan cumplido con la calificación de “muy bueno” o “excelente”, o su equivalente numérico, según la escala definida.
+b)El incentivo será un monto nominal fijo para cada escala salarial, que permanecerá invariable, será reconocido en la primera quincena del mes de junio de cada año, y pagado de manera retroactiva según la fecha del cumplimiento de la anualidad que en cada caso corresponda.
+c)El cálculo del monto nominal fijo corresponde a un 1,94% (uno coma noventa y cuatro por ciento) del salario base de las clases profesionales y de 2.54% (dos coma cincuenta y cuatro por ciento) para clases no profesionales, de manera inmediata a partir de la entrada en vigencia de la ley, sobre el salario base que corresponde para el mes de enero del año 2018, de conformidad con lo establecido en el transitorio XXXI de la Ley N° 9635.
+d)Los cambios respecto al parámetro de cálculo de las anualidades serán aplicables a todos los servidores a partir de la entrada en vigencia de la Ley N° 9635, en las nuevas anualidades que estos adquieran. Las anualidades ya recibidas previo a la entrada en vigencia de dicha ley, de conformidad con lo establecido en el artículo56 y el Transitorio XXV de la misma, mantendrán las condiciones en que se otorgaron.

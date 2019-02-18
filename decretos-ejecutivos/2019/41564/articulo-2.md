@@ -1,0 +1,1 @@
+Artículo 2.- Objetivo. El presente reglamento tiene como objeto definir las reglas necesarias para la interpretación y aplicación en estricto cumplimiento de las disposiciones del Título III de la Ley N° 9635 del 3 de diciembre de 2018, relativo a las remuneraciones de los servidores del Estado.

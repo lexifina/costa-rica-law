@@ -1,0 +1,1 @@
+Artículo 7.- Prórroga de contratos de dedicación exclusiva. No cabrá pago alguno por concepto de dedicación exclusiva en aquellos casos en que los contratos suscritos, sea o no con anterioridad a la entrada en vigencia de la Ley N° 9635, no sean prorrogados por la Administración.

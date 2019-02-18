@@ -1,0 +1,1 @@
+Artículo 8.- Verificación de cumplimiento del contrato de dedicación exclusiva. Las Oficinas de Recursos Humanos serán los responsables de verificar el cumplimiento estricto de los requisitos para suscribir el contrato de dedicación exclusiva, así como garantizar la aplicación de las cláusulas del mismo.

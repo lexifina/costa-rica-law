@@ -1,0 +1,1 @@
+Artículo 19.- Adecuación a los porcentajes establecidos en la Ley N 9635. Todos aquellos incentivos y compensaciones regulados en otra normativa, deberán adecuarse a lo dispuesto en la Ley N 9635, de conformidad con lo establecido en el artículo 26 de la Ley N° 2166, adicionados mediante artículo 3 de la Ley N° 9635.

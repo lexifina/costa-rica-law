@@ -1,0 +1,5 @@
+Artículo 15.- Carrera profesional. El incentivo por carrera profesional será otorgado en las siguientes condiciones:
+a)Será reconocido por aquellos títulos o grados académicos que no sean requisitos para el puesto.
+b)Procederá el reconocimiento de carrera profesional cuando las actividades de capacitación sean sufragadas por el servidor interesado, sean en horario laboral o fuera de éste, siempre y cuando sean atinentes al cargo que desempeña. En aquellas actividades de capacitación que no sean sufragadas por instituciones públicas, de manera motivada podrá otorgarse permiso con goce de salario para recibir la capacitación.
+c)Los nuevos puntos de carrera profesional serán reconocidos salarialmente por el plazo de 5 años.
+d)Podrán reconocerse los puntos de carrera profesional, según los parámetros previos a la entrada en vigencia a la Ley N° 9635, única y exclusivamente en los casos de aquellas solicitudes presentadas ante las Oficinas de Gestión Institucional de Recursos Humanos de previo a la publicación de dicha ley y que no hayan sido tramitadas por la Administración.
