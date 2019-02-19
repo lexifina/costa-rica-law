@@ -1,0 +1,2 @@
+Artículo 190.—Sólo causará nulidad de lo actuado, la omisión de formalidades cuya correcta realización hubiese impedido o cambiado la decisión final en aspectos importantes o cuya omisión causaré indefensión al servidor.
+La nulidad de un acto hará nulos todos los actos consecutivos que de él dependan, debiendo consecuentemente retrotraerse el procedimiento a la situación inmediata anterior al acto o diligencia viciada. En este caso, los correspondientes plazos y términos se entenderán interrumpidos.

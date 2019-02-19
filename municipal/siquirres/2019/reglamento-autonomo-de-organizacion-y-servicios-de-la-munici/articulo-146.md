@@ -1,0 +1,1 @@
+Artículo 146.-Las disposiciones contenidas en este reglamento sobre el procedimiento de selección y remoción no serán aplicadas a los empleados ocasionales contratados con cargo a las partidas presupuestarias de servicios especiales o jornales ocasionales. El concejo acordará las acciones que afectan a los funcionarios directamente dependiente de él.

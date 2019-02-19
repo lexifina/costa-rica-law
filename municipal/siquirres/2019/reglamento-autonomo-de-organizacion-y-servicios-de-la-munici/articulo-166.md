@@ -1,0 +1,1 @@
+Artículo 166.-El abandono del trabajo sin causa justificada o sin permiso del superior inmediato, cuando no implique mayor gravedad de conformidad con las circunstancias del caso, y no amerita una sanción mayor, se sancionará conforme con lo dispuesto en el régimen disciplinario de este reglamento.

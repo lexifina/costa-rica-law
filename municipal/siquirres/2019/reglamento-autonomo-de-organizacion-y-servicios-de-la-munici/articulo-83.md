@@ -1,0 +1,1 @@
+Artículo 83.-La Municipalidad a través del departamento de Recursos Humanos, dentro de sus posibilidades materiales y profesionales reales, brindará los servicios médicos requeridos a todos los funcionarios (as) de la Municipalidad, siempre y cuando estos surjan por motivo de la relación laboral con el Municipio.

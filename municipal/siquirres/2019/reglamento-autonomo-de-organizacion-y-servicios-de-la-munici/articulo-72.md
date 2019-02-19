@@ -1,0 +1,1 @@
+Artículo 72.-La Municipalidad reconocerá un 3% (tres por ciento) anual sobre el salario base, denominándose anualidad, por cada año de servicio, hasta tanto se establezca el valor fijo nominal por anualidad según capítulo VI de la ley 9635 “Ley de Fortalecimiento de las finanzas públicas”.

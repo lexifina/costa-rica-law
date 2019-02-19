@@ -1,0 +1,1 @@
+Artículo 139.— En casos excepcionales las labores que estén relacionadas procesos sustantivos que incidan en la salud pública, como el caso de la recolección y disposición final de residuos pueden ser organizados en turnos de jornada diaria, mixta y nocturna, con las restricciones que prevé la ley para cada jornada.

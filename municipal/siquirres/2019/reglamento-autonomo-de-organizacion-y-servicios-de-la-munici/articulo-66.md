@@ -1,0 +1,1 @@
+Artículo 66.-La evaluación y calificación de servicios en la Municipalidad, deberá darse a los servidores (as) nombrados (as) que hayan trabajado continuamente durante un año como mínimo, pero tendrá excepciones aplicables según los párrafos siguientes.

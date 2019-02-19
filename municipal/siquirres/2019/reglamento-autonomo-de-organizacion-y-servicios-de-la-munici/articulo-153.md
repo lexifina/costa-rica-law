@@ -1,0 +1,1 @@
+Artículo 153.—Dejarán de registrar la marca los funcionarios sujetos al artículo 143 del Código de Trabajo, y aquel funcionario que esté autorizado por el Alcalde Municipal para no hacerlo por motivo de un régimen especial de buena conducta.

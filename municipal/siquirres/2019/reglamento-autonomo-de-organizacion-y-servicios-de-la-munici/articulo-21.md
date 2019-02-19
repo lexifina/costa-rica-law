@@ -1,0 +1,3 @@
+Artículo 21: Vestimenta. Todo funcionario o funcionaria municipal debe vestir de acuerdo con los lineamientos que a continuación se describen:
+a. Será de uso obligatorio el uniforme para cada área según corresponda, y bajo la jornada laboral correspondiente; el jerarca podrá autorizar el uso de vestimenta diferente al uniforme, por razones de conveniencia, oportunidad, caso fortuito o fuerza mayor.
+Las Jefaturas inmediatas y el Departamento de Recursos Humanos deben velar porque los lineamientos antes mencionados sean acatados por los servidores y servidoras municipales, de lo contrario, acarreará responsabilidad disciplinaria.

@@ -1,0 +1,1 @@
+Artículo 157.-Los materiales con que se fabricarán las prendas, serán todos de buena calidad y se contratara su confección y compra siguiendo las disposiciones del código municipal y la ley de contratación administrativa.

@@ -1,0 +1,3 @@
+CAPÍTULO XII
+De las relaciones de servicio, la selección de personal y el Manual Descriptivo de Puestos
+Artículo 33.-Las relaciones de servicio entre los servidores municipales y la Municipalidad se regirán a las por las condiciones establecidas en el contrato de trabajo escrito, cuando este existiere, y en todo caso por las disposiciones del Código Municipal, Código de Trabajo, Ley General de la Administración Pública, Ley de la Administración Financiera, Ley de Contratación Administrativa, Ley de Salarios, Leyes Supletorias y conexas, y los derechos adquiridos en la Convención Colectiva de Trabajo de la Municipalidad, para todos los servidores amparados por ella. El nombramiento se formalizará y será efectivo a través de la acción de personal

@@ -1,0 +1,2 @@
+Artículo 137.- En cuanto a la jornada y horario de trabajo de los conserjes, Guardias, Policías, Inspectores de Control Vial, choferes y cualquier otro puesto que lo justifique, será regulado por la dependencia respectiva en coordinación con el Departamento de Recursos Humanos. En todo caso tales jornadas deberán respetar los límites y lineamientos que la legislación establezca.
+En lo que se refiere a la Policía Municipal, esta se regirá por la jornada laboral, de la normativa vigente vinculante a los cuerpos policiales.

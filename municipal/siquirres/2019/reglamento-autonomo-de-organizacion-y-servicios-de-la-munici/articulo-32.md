@@ -1,0 +1,1 @@
+Artículo 32-Al funcionario(a) que se demuestre haber estado jugando en horas de oficina se le sancionará con una llamada de atención verbal cuando sea por primera vez, y si reincide se procederá conforme lo establecido según lo dispuesto en el régimen disciplinario en el presente reglamento.

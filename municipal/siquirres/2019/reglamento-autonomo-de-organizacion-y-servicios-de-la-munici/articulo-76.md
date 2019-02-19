@@ -1,0 +1,1 @@
+Artículo 76.-La Municipalidad para efectos del pago de la Prohibición, la Dedicación exclusiva, disponibilidad, la Carrera Profesional, y algún otros plus salarial que exista se regirán con base en el reglamento, reformas y la normativa existente sobre la materia.

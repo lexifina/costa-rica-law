@@ -1,0 +1,1 @@
+Artículo 108.-En el plazo de quince días naturales después de la comparecencia y evacuación de la prueba, el Órgano Director rendirá resolución sobre las conclusiones del trámite administrativo, y recomendará sobre las sanciones disciplinarias en caso de que considere probada la falta.

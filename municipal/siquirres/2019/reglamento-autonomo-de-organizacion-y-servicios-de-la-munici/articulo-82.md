@@ -1,0 +1,1 @@
+Artículo 82.-El Departamento de Recursos Humanos, elaborará e implementará el programa de salud ocupacional que cubra a todas las dependencias de la Municipalidad, de conformidad con el artículo 288 de la Ley sobre Riegos de Trabajo, Nº 6727 del 24 de marzo de 1982 y sus reformas.

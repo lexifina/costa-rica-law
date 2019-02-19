@@ -1,0 +1,1 @@
+Artículo 155.-Uniformes: Es el conjunto de prendas de los funcionarios municipales, definidos por la administración como sujetos de disfrute de los derechos adquiridos mediante la convención colectiva, deben vestir para el desempeño de las actividades laborales.
