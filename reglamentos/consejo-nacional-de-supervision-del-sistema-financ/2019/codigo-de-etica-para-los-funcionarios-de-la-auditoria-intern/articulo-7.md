@@ -1,0 +1,1 @@
+Artículo 7. Promoción de los principios éticos. El Despacho de la Auditoría Interna, deberá promover la difusión y práctica de los principios éticos. Para ello se realizarán actividades de sensibilización para propiciar el entendimiento y la comprensión del programa ético entre sus funcionarios.

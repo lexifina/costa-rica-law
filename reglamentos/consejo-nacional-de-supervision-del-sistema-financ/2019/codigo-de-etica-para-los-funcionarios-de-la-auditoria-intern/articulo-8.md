@@ -1,0 +1,10 @@
+Artículo 8. Comité de Gestión Ética:. El Auditor Interno del CONASSIF deberá nombrar un Comité de Gestión de la Ética, encargado de actuar como apoyo para el fortalecimiento institucional en materia de ética.
+CAPITULO II
+DECLARACIONES JURADAS Y REGIMEN SANCIONATORIO
+1. Declaración Jurada
+Con el fin de comprobar el cumplimiento y el conocimiento de las normas de conducta que rigen a los funcionarios de la Auditoría Interna del CONASSIF, los funcionarios deberán presentar las siguientes declaraciones:
+a. En forma anual, a más tardar el 15 de enero de cada año, los funcionarios de la Auditoría Interna del CONASSIF deberán remitir al Auditor Interno una declaración jurada en la que hagan constar el cumplimiento de los deberes y prohibiciones y las normas de conductas contempladas en el Código de Ética, relativas al puesto que desempeñan, para lo cual deberán utilizar el formato dispuesto en el anexo 2.
+b. En forma anual, a más tardar el 15 de enero de cada año, los funcionarios de la Auditoría Interna del CONASSIF deberán remitir al Auditor Interno una declaración jurada en la que hagan constar que no se presentaron conflictos de interés, situaciones con respecto a dádivas e independencia y confidencialidad de la información.
+c. Para cada estudio se deberá consignar como parte de los papeles de trabajo, la declaración jurada que indique entre otras cosas, el resguardo de la confidencialidad en la información, el no recibo de dádivas o beneficios personales para el funcionario o bien a sus familiares o a un tercero, el no estar afecto a conflicto de intereses en el área en la que está llevando a cabo la auditoría.
+2. Régimen sancionatorio
+El incumplimiento de lo establecido en el presente Código de Ética conlleva la aplicación de las sanciones establecidas en la Ley General de Control Interno, Ley 8292, Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública. Ley 8422; así como en el Reglamento Autónomo de Servicios del BCCR y otros reglamentos aplicables a los funcionarios del Banco Central.
