@@ -1,0 +1,1 @@
+Artículo 23.º-Participación de los/as titulares subordinados/as en las reuniones del CICI. Los/as titulares subordinados/as se constituyen como participantes de la comisión, cuando esta así lo considere y como tales deberán asistir a todas las reuniones para las que sean convocados, de conformidad con las responsabilidades establecidas en el artículo 11 de este reglamento.

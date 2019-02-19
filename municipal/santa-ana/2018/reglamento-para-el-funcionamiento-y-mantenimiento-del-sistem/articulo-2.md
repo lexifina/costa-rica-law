@@ -1,0 +1,1 @@
+Artículo 2.º-Ámbito de aplicación. Las disposiciones de este Reglamento son de aplicación y acatamiento obligatorio para todos los miembros del Concejo Municipal, Alcade/sa, Vicealcalde/sa, Titulares Subordinados y el resto del personal de la Municipalidad de Santa Ana.

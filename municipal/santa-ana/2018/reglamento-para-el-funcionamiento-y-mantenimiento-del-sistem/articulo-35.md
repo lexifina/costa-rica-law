@@ -1,0 +1,1 @@
+Artículo 35.º-Responsabilidades en la implementación de autoevaluación: Serán responsables de la implementación de las autoevaluación, así como del seguimiento de los resultados de estas; todos los funcionarios(as) u órganos citados en el artículo 10 del presente Reglamento; aplicando las mismas responsabilidades descritas en el artículo 11 .

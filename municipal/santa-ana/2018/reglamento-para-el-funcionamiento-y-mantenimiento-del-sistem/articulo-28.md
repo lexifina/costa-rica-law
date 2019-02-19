@@ -1,0 +1,2 @@
+Artículo 28.º Sesiones de la CICI. La CICI se reunirá una vez cada dos meses de forma ordinaria y se deberá reunir extraordinariamente cuando sean convocados por el/la Coordinador/a, en función de las necesidades administrativas, para cumplir con el mantenimiento y fortalecimiento del Sistema de Control Interno
+Se podrán solicitar reuniones extraordinarias por al menos tres de los miembros, o bien por el Coordinador de la Unidad de Control Interno. La convocatoria respectiva será confirmada por el/la Coordinador/a del Comisión.

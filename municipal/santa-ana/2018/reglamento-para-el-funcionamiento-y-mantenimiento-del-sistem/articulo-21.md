@@ -1,0 +1,3 @@
+Artículo 21.º-Participación del/la Coordinador/a de la Unidad de Control Interno en el CICI. De acuerdo con el conocimiento técnico que este funcionario debe mantener sobre el tema de control interno; se constituye como integrante y asesor/a del CICI, con voz y voto, asumiendo las siguientes responsabilidades al respecto:
+a) Asesorar a la CICI en su objetivo y propósito, en todo lo relacionado con el desarrollo y mejora del SCII.
+b) Proponer a la CICI, los ajustes necesarios en las políticas, directrices, lineamientos, instrumentos y métodos para la evaluación del SCII y el seguimiento de los planes de mejora.

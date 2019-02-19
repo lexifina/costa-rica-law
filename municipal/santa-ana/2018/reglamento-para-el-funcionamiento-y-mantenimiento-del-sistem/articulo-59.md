@@ -1,0 +1,1 @@
+Artículo 59.º-En todo lo que aquí no se contemple referente al informe de fin de gestión, deberá atenderse lo dispuesto en las Directrices D-1- 2005-CO-DFOE, publicadas en La Gaceta No 131, del 7 de julio del 2005.
