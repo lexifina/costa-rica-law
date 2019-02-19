@@ -1,4 +1,0 @@
-Artículo 18.—Para integrar la nómina de elegible se requiere:
-a. Cumplir los requisitos que establezca el manual descriptivo de puestos y normas de reclutamiento y selección de personal, definidas en el Manual de Procedimientos de Reclutamiento y Selección de Personal.
-b. Someterse a pruebas que disponga la Jefatura de la Oficina de Personal, en los casos contemplados en este Reglamento, así como presentar atestados y documentación que acredite el cumplimiento de los requisitos del aspirante para el puesto sometido a concurso.
-c. No tener parentesco, hasta el tercer grado de consanguinidad o afinidad con el jefe de la dependencia donde esté la vacante de que se trate o con el superior jerárquico de éste, en la respectiva dependencia, ni con el Alcalde Municipal, Regidores y Síndicos Propietarios y suplentes, Auditor Municipal, o Jefe de la Oficina de Personal.

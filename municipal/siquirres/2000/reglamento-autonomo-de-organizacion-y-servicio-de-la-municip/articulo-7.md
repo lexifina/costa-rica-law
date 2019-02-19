@@ -1,2 +1,0 @@
-Artículo 7º—La aplicación de este Reglamento corresponde al Alcalde Municipal como administrador general de la Municipalidad y a la Oficina de Personal, quienes tendrán a su cargo en forma coordinada todo lo concerniente a nombramientos, despidos, cambios de puestos, ascensos, vacaciones, permisos o licencias, mediante las respectivas acciones de personal, y rige para todos los funcionarios municipales.
-Corresponde y es facultad del Alcalde Municipal interpretar y resolver las dudas que pudiesen surgir en relación con el mismo.

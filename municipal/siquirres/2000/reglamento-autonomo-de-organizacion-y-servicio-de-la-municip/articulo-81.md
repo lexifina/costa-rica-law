@@ -1,1 +1,0 @@
-Artículo 81.—Los funcionarios con grado académico de licenciado, podrán acogerse al pago por concepto de Dedicación Exclusiva o Disponibilidad, según las disposiciones legales vigentes en esa materia.

@@ -1,1 +1,0 @@
-Artículo 142.—El procedimiento o instrucción disciplinaria se regirá por lo estatuido en el artículo 22 y siguientes de la Convención, siendo competencia exclusiva del Alcalde la decisión de la sanción que corresponda.

@@ -1,1 +1,0 @@
-Artículo 89.—El cambio de lugar donde se prestarán los servicios deberá ser puesto en conocimiento del personal afectado, con no menos de ocho días de anticipación, salvo casos de fuerza mayor que imposibiliten tal disposición.

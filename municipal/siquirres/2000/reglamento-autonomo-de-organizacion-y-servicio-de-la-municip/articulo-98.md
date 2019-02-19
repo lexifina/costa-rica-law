@@ -1,5 +1,0 @@
-Artículo 98.—Quienes conduzcan vehículos de la Municipalidad tendrán las siguientes obligaciones:
-a. Velar por la limpieza, custodia y conservación del vehículo que se le asigna durante el desempeño de sus funciones.
-b. Velar por que el vehículo se encuentre en buen estado de funcionamiento y posea las herramientas y accesorios necesarios.
-c. Rehusar la operación de un vehículo que se encuentre en condiciones de poner en peligro la integridad física del servidor y de terceros, previo diagnóstico del funcionario competente, comunicándolo a su jefe inmediato y a la Oficina de Personal, por escrito de las razones que le asisten para negarse.
-d. Informar a la jefatura de transportes de todo accidente que le ocurra, suministrando los nombres y apellidos de los ocupantes del vehículo y de las personas que resulten afectados con ocasión de aquel, así como los daños que sufra el vehículo, el lugar y las circunstancias en que se produjo el accidente.- Este informe deberá rendirse a más tardar un día después de acaecido el hecho.

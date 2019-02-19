@@ -1,2 +1,0 @@
-Artículo 34.—Las jefaturas también podrán en las condiciones anteriores, solicitar en beneficio de sus subalternos, la reasignación de cualquier puesto.
-Recibida la solicitud la Oficina de Personal, procederá al estudio respectivo en un plazo no mayor a 60 días, sometiendo su resulto a conocimiento y resolución del Alcalde. Lo resuelto por el Alcalde y Oficina de Personal le será comunicado al petente dentro de los cinco días posteriores a aquel en que se adopte la decisión.

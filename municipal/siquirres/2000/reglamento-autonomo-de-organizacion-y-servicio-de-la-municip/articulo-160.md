@@ -1,1 +1,0 @@
-Artículo 160.—Una vez que se haya cerrado la investigación en la corporación municipal, quien no esté satisfecho con el resultado al que se llegue, puede presentar la denuncia correspondiente ante los Tribunales de Trabajo, dentro del término de prescripción que señala el Titulo X, Sección I del Código de Trabajo.

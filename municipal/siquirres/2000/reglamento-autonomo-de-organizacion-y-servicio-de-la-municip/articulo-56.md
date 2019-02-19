@@ -1,2 +1,0 @@
-Artículo 56.—En caso que el trabajador por razones justificadas no pueda disfrutar las vacaciones en el período establecido, deberá comunicarlo de inmediato por escrito a su jefatura para que ésta reprograme las mismas en coordinación con la Oficina de Personal.
-Transitorio.—A todos aquellos trabajadores que al momento de entrar en vigencia este Reglamento tenga más de dos períodos de vacaciones sin disfrutar, deberá la Oficina de Personal otorgárselas en un plazo no mayor de tres meses.

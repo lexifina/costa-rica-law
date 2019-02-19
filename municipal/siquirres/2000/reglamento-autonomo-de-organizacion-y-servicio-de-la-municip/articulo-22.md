@@ -1,1 +1,0 @@
-Artículo 22.—Cuando resulte necesario realizar un concurso por oposición, la Oficina de Personal publicará su apertura dentro de los siguientes quince naturales posteriores a aquel en que se produjo la vacante.

@@ -1,1 +1,0 @@
-Artículo 112.—Solo se consideraran como validas y justificadas las omisiones de marca que se originen en la imposibilidad real de registrar la marca con ocasión o falta de fluido eléctrico, desperfecto mecánico, por inasistencia justificada del trabajador a sus labores y/o por la atención en asuntos propios del cargo fuera del centro de trabajo.

@@ -1,1 +1,0 @@
-Artículo 130.—Las sanciones descritas en este capítulo, serán aplicadas por el Alcalde a través de la Oficina de Personal, conforme al procedimiento que establece la Convención y Artículo 150 del Código Municipal.
