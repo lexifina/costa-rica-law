@@ -1,2 +1,0 @@
-Artículo 116.—En un plazo no mayor a cinco días naturales, después de interpuesta la denuncia, él (la) Jerarca respectivo procederá a conformar el Órgano Director.
-El Órgano Director estará integrado por tres personas de escogencia del Alcalde (sa), dentro del cual estará un abogado y el coordinador (a) del Departamento de Recursos Humanos. En todo caso, se buscará en la escogencia de los (las) miembros del Órgano Director, seleccionar personas de reconocida solvencia moral.

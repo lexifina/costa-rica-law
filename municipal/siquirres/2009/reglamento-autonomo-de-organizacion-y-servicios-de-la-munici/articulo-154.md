@@ -1,1 +1,0 @@
-Artículo 154.—Las asistencias al Seguro Social o al Instituto Nacional de Seguros, cuando sean en horas laborales, se considerarán como licencias y deberán ser marcadas en el reloj marcador usando la tarjeta correspondiente.

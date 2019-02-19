@@ -1,1 +1,0 @@
-Artículo 61.—La Municipalidad brindará el tiempo necesario, transporte y viáticos a sus funcionarios para la participación en actividades de capacitación o formación de acuerdo a la tabla de viáticos vigente.

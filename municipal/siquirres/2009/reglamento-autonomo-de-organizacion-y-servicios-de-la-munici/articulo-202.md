@@ -1,1 +1,0 @@
-Artículo 202.—El presente reglamento entrará en vigencia a partir de la aprobación del Concejo Municipal y su publicación. Se procederá a reproducir y entregar un ejemplar a los funcionarios municipales.

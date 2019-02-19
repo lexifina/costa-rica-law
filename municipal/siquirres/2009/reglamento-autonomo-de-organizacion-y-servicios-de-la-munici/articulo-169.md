@@ -1,1 +1,0 @@
-Artículo 169.—Cada empleado será responsable del buen uso que se le den a las prendas. Por tanto, queda prohibido el ingreso a Bares y otros lugares de diversión portando el uniforme municipal, salvo en labores relativas al cargo.

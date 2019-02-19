@@ -1,2 +1,0 @@
-Artículo 132.—Las vacaciones se deberán gozar sin interrupciones salvo, cuando así lo convengan las partes, y siempre que se tratare de labores de índole especial, que no permitan la ausencia prolongada del funcionario(a) y su presencia se considere necesaria para la buena marcha del servicio.
-Las boletas de vacaciones serán autorizadas por los (las) coordinadores de las dependencias, quienes enviarán copia a la Oficina de Recursos Humanos para los registros pertinentes.

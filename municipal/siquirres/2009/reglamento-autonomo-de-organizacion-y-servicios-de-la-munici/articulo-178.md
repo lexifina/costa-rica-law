@@ -1,2 +1,0 @@
-Artículo 178.—La amonestación escrita se aplicará:
-a. Cuando como lo señala el artículo 149 del Código Municipal, el servidor haya merecido dos o más advertencias orales durante un mismo mes calendario, o cuando las leyes del trabajo exijan que se le aperciba por escrito antes del despido, y en los demás casos que determinen las disposiciones reglamentarias vigentes, que debe imponerse tal sanción.

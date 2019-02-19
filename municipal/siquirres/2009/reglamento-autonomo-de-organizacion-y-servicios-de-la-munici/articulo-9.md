@@ -1,2 +1,0 @@
-Artículo 9º—El Alcalde Municipal, es el enlace entre el Concejo Municipal y los servidores de la comunidad, él es el funcionario de mayor jerarquía administrativa dentro de la Institución, por lo que toda información por parte de la administración que sea dirigida al Concejo Municipal a de ser remitida por su despacho.
-A él corresponde la presentación ante el Concejo de toda iniciativa y de los informes que presente la administración ante dicha instancia.

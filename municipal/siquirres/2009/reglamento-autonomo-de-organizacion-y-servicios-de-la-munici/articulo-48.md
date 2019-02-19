@@ -1,1 +1,0 @@
-Artículo 48.—La Municipalidad se regirá conforme a los parámetros establecidos para la Carrera Administrativa. Los alcances y las finalidades se fundamentarán en la dignificación del servicio público y el mejor aprovechamiento del recurso humano, para cumplir con las atribuciones y competencias de la Municipalidad.

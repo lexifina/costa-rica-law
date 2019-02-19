@@ -1,1 +1,0 @@
-Artículo 30.—Al funcionario(a) que se demuestre haber estado jugando en horas de oficina se le sancionará con una llamada de atención verbal cuando sea por primera vez, y si reincide se procederá conforme lo establecido en el artículo 182 inciso 4) de este reglamento.

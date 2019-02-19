@@ -1,1 +1,0 @@
-Artículo 50.—Los servidores interinos de la Municipalidad y el personal de confianza no están amparados por los derechos y beneficios de la Carrera Administrativa Municipal. Aunque desempeñen puestos comprendidos en ella.

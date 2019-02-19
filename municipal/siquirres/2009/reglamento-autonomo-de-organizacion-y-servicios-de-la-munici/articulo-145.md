@@ -1,1 +1,0 @@
-Artículo 145.—La Municipalidad podrá modificar transitoria o permanentemente los horarios establecidos en este reglamento, siempre que circunstancias especiales así lo exijan y no se cause grave perjuicio a los trabajadores. El cambio será comunicado a los trabajadores afectados con un mínimo de 3 días de anticipación.

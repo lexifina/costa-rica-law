@@ -1,1 +1,0 @@
-Artículo 69.—Quedará libre de los compromisos adquiridos ante la adjudicación de una beca, el funcionario que interrumpa sus estudios por prescripción médica. El funcionario tendrá que presentar al departamento de recursos humanos certificado médico extendido por el Institución de salud estatal.

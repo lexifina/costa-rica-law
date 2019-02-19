@@ -1,1 +1,0 @@
-Artículo 164.—Se dotará a todos los trabajadores fijos de un uniforme por año consistente en el caso de las mujeres, de tres pantalones o enaguas, tres blusas y dos pares de zapatos, a los varones, tres pantalones, tres camisas y dos pares de zapatos.
