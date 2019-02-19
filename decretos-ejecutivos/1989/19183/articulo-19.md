@@ -1,1 +1,2 @@
-Artículo 19.-Los montadores deben permanecer en el lugar que el encargado del toril le designe, antes y después de la monta, a juicio del encargado del toril.
+Artículo 19.-Los montadores deben permanecer en el lugar que el encargado del toril le designe, antes y después de la monta, a juicio del encargado del toril. Es prohibido para el montador aplicar las espuelas antes de solicitar la salida o aplicar una antes que la otra. Asimismo, el montador deberá acatar todas las recomendaciones que tengan relación con el bienestar del animal que le realice el Médico Veterinario Asesor del evento, o bien el funcionario del SENASA.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 41571 del 19 de febrero del 2019)

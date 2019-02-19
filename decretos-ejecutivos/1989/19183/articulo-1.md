@@ -11,5 +11,6 @@ Considerando:
 DECRETAN:
 El siguiente
 Reglamento a las actividades taurinas
-Artículo 1º— La Municipalidad del Cantón respectivo, de conformidad con el presente Decreto Ejecutivo, será la instancia encargada de extender la autorización o permiso correspondiente para la realización de corridas de toros en su comprensión territorial.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 34489 del 23 de enero de 2008).
+Artículo 1º- La Municipalidad del Cantón respectivo, de conformidad con el presente Decreto Ejecutivo, será la instancia encargada de extender la autorización o permiso correspondiente para la realización de actividades taurinas en su comprensión territorial.
+Deberá procurarse el bienestar de los animales participantes en él, debiendo para ello cumplir con todos los requisitos establecidos en el presente Reglamento y normativa conexa.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 41571 del 19 de febrero del 2019)

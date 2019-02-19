@@ -1,14 +1,34 @@
-Artículo 3°—La estructura del redondel debe tener las siguientes características:
+Artículo 3.- La estructura del redondel o escenario debe tener las siguientes características:
+(Así reformado el párrafo anterior por el artículo 4° del decreto ejecutivo N° 41571 del 19 de febrero del 2019)
 a) Construcción que garantice la seguridad del público.
 b) Salidas proporcionales a la capacidad de los asistentes, las que deben estar rotuladas con letras que puedan ser leídas en condiciones normales a veinte metros de distancia por lo menos. Las puertas deben abrir hacia afuera, no debiendo permanecer con candados durante el espectáculo.
 c) Contar con extintores, ubicados en sitios debidamente acondicionados al efecto y de fácil observación. Su publicación debe resaltarse con la colocación de letras en idéntica condición al inciso anterior.
 d) Contar con espacio de por lo menos cuatro metros por cuatro, para albergar la empresa o institución que brinde el servicio de atención extra-hospitalaria.
 e) Contar con un espacio igual al anterior, para albergar el personal que brinda el servicio de seguridad.
-f) La plaza debe tener un diámetro no inferior a los treinta metros.
-g) Contar con tras burladeros en forma vertical y horizontal.
+f) El diámetro de la arena, plaza o estructura utilizada, no debe ser menor a los 26 metros.
+El piso del área debe ser uniforme, libre de huecos o salientes que puedan provocar los resbalones o caídas del animal y de los participantes. Para estructuras no circulares, se debe evitar la formación de puntos muertos o ángulos cerrados, a lo largo de la superficie, que puedan interrumpir el movimiento de los animales o las personas.
+(Así reformado el inciso f) anterior por el artículo 4° del decreto ejecutivo N° 41571 del 19 de febrero del 2019)
+g) Poseer al menos tres burladeros en forma vertical y/u horizontal, estos deben diseñarse de manera tal que no lesionen al animal y permita a los toreros, esquivar al mismo.
+(Así reformado el inciso anterior por el artículo 4° del decreto ejecutivo N° 41571 del 19 de febrero del 2019)
 h) Contar con los servicios sanitarios en la forma que lo dispone el artículo XI.22.1 del Reglamento de Construcciones.
 i) Contar con un espacio libre sin ningún tipo de obstáculo para que vehículos del Servicio de atención extra-hospitalaria, puedan ingresar y salir del local en el espacio asignado a dicha Institución o empresa.
 j) Contar con un espacio libre y sin ningún obstáculo para que vehículos de las autoridades que vigilan la actividad, (Ministerio de Salud, Ministerio de Seguridad Pública y SENASA) puedan salir e ingresar del local en el espacio asignado.
 k) Si tiene techo el mismo, debe estar debidamente clavado a su base.
 l) Las instalaciones eléctricas deben ser conducidas por intermedio de cable de alta calidad, y por lugares fuera del alcance del público asistente.
+rn) En el caso de que se tengan cajones individuales para la permanencia de cada toro en el redondel o escenario, estos deberán ser de al menos 0,90 metros de ancho por 2 metros de largo. Si fuera una sola manga corrida, igual deberá ser de al menos 0,90 metros de ancho con suficientes parales, a fin de ajustar la posición del toro en- la misma y que este se inmovilice sin maltrato. En este último caso, los parales deberán ser fuertes y resistentes para tal efecto, sin filos ni bordes salientes.
+(Así adicionado el inciso anterior por el artículo 4° del decreto ejecutivo N° 41571 del 19 de febrero del 2019)
+n) Si no existieren cajones individuales para la permanencia de cada toro, se debe tener un corral o corraleta de 6 metros de ancho por 5 metros de largo como mínimo, para llevar ahí a los toros que ya han sido utilizados, o en su defecto una manga exclusiva con cargadero que vaya directo al camión o vehículo de transporte de los animales.
+(Así adicionado el inciso anterior por el artículo 4° del decreto ejecutivo N° 41571 del 19 de febrero del 2019)
+ñ) Independientemente del tipo de cajón o área para mantener a los animales, las instalaciones del redondel o escenario deben tener un espacio para todos aquellos de diferente tamaño, de tal forma que se puedan echar y levantar. Los lugares donde se coloquen a los animales, durante la espera, deben contar con sombra y las medidas necesarias, para protegerlos de las inclemencias del tiempo.
+(Así adicionado el inciso anterior por el artículo 4° del decreto ejecutivo N° 41571 del 19 de febrero del 2019)
+o) Contar con cargadero o descargadero que no debe tener una altura inferior a 1,20 metros, para evitar que los animales se detengan, tropiecen, resbalen o caigan. Además, debe contar con dispositivos, que eviten que quede espacio entre el piso del camión y el piso de la estructura, para evitar que los animales puedan caer o fracturarse.
+(Así adicionado el inciso anterior por el artículo 4° del decreto ejecutivo N° 41571 del 19 de febrero del 2019)
+p) Contar con un corral o espacio designado para albergar a los caballos, utilizados por los lazadores. Debe tener espacio suficiente para permitir que los animales se puedan movilizar sin golpearse, reunir las mismas condiciones que las descritas para los toros y contar con bebederos para los equinos.
+(Así adicionado el inciso anterior por el artículo 4° del decreto ejecutivo N° 41571 del 19 de febrero del 2019)
+q) La infraestructura en general, no podrá tener bordes filosos ni salientes, que puedan dañar la integridad física de los animales .. el torero o montador. Las estructuras superiores, deben tener una altura superior a los dos metros con veinte centímetros (2.20 mts), para evitar que los animales se golpeen
+(Así adicionado el inciso anterior por el artículo 4° del decreto ejecutivo N° 41571 del 19 de febrero del 2019)
+r) En los lugares por los cuales el animal deba transitar, ya sean los toros o los equinos, deben contar con iluminación suficiente que le permita ver hacia donde se dirige. Las luces no deben generar sombras y no deben dirigirse hacia la cabeza del animal, para evitar obstaculizar su movimiento.
+(Así adicionado el inciso anterior por el artículo 4° del decreto ejecutivo N° 41571 del 19 de febrero del 2019)
+s) Contar con una manga de salida de un mínimo de 1,32 metros de ancho para permitir el paso del animal. Las paredes laterales de esta manga, deben tener como mínimo un largo de 2, 40 metros y máximo de 2, 60 metros por cada lado. Deberá tener, a ambos lados, parales que sirvan para ajustar al animal con travesaños, dependiendo del tamaño de este. Durante el evento se deberá contar con travesaños fuertes que sirvan para el acomodo de los animales. El dispositivo utilizado para falsear el toro deberá estar al mismo lado de las bisagras o alcayatas que sostienen la puerta de salida, al contrario de donde abre, y a un máximo de 50 centímetros de las bisagras o alcayatas. El piso de la manga deberá ser uniforme, nivelado, antideslizante (Ej. Tierra y/o arena) y más alto que los alrededores a fin de que no se permita la acumulación de liquidas o materia orgánica. La manga para la monta tipo americana debe tener un mínimo de 0.9 metros de ancho y un mínimo de 2 metros de largo.
+(Así adicionado el inciso anterior por el artículo 4° del decreto ejecutivo N° 41571 del 19 de febrero del 2019)
 (Así reformado por el artículo 1° del decreto ejecutivo N° 39315 del 12 de mayo de 2015)

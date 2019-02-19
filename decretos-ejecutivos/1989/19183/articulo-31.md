@@ -1,0 +1,2 @@
+Artículo 31.-Sanciones.- Aquellas personas que infrinjan las disposiciones del presente Reglamento en relación al bienestar de los animales, se expondrán a la aplicación de las sanciones establecidas en la Ley Nº8495 del 06 de abril del 2006, Ley General del Servicio Nacional de Salud Animal y la Ley Nº 7451 del 16 de noviembre 1994, Ley de Bienestar de los Animales.
+(Así adicionado por el artículo 5° del decreto ejecutivo N° 41571 del 19 de febrero del 2019)

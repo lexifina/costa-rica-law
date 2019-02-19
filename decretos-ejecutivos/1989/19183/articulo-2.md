@@ -10,4 +10,6 @@ f) Contrato taurino y programación del evento.
 g) Autorización del propietario del terreno donde se va a realizar la actividad, cuando éste sea privado.
 h) Haber dado cumplimiento a lo establecido en los artículos 8º, 11, 12 de la Ley Nº 4286 del 17 de diciembre de 1968 “Nombramiento Comisiones de Festejos Populares”.
 i) Autorización escrita extendida por la Dirección de Educación Física y Deportes o del respectivo Comité Cantonal de Deportes, cuando las corridas de toros se realicen en plazas usadas en deportes. De previo a otorgar el permiso, estas instituciones deberán obtener la garantía de los organizadores de la corrida de toros de que la plaza quedará en perfectas condiciones después del evento.
+Además de los requisitos anteriores, deberá contarse con Asesoría Médico Veterinaria durante el desarrollo de todo el evento, la cual debe estar debidamente aprobada por el Colegio de Médicos Veterinarios de Costa Rica.
+(Así adicionado el párrafo anterior por el artículo 2° del decreto ejecutivo N° 41571 del 19 de febrero del 2019)
 (Así reformado por el artículo 1° del decreto ejecutivo N° 39315 del 12 de mayo de 2015)
