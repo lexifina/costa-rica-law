@@ -1,1 +1,0 @@
-Artículo 6º—En el acuerdo en que se apruebe la condición de retiro voluntario, deberá indicar expresamente que si el Colegio Federado llegare a comprobar que el profesional ha continuado ejerciendo la profesión, dará lugar a la presentación de la denuncia penal por el delito de ejercicio ilegal de una profesión.

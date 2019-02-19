@@ -1,1 +1,0 @@
-Artículo 11.—Finalizado el proceso disciplinario contra el miembro que solicite un retiro voluntario, y estando firme la resolución tomada, la Junta Directiva General levantará la medida de suspensión referida en el artículo anterior y procederá a resolver lo que en derecho corresponda.
