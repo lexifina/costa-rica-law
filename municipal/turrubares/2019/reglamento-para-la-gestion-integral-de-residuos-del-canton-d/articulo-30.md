@@ -1,0 +1,1 @@
+Artículo 30. La Municipalidad podrá realizar inspecciones de verificación de la generación de residuos y podrá cambiar de categoría a cualquier usuario del servicio, si se presentare alguna actividad económica aún y cuando el administrado no tenga ninguna patente comercial.

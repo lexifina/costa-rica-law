@@ -1,0 +1,1 @@
+Artículo 8°. Los generadores de residuos están obligados a separarlos, clasificarlos y entregarlos de conformidad con lo que establece este reglamento, al Sistema Municipal de Recolección, Centro de Recuperación de Residuos Valorizables o a quien esta municipalidad designe, para su acopio, valorización o disposición final.

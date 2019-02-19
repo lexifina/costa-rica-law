@@ -1,0 +1,1 @@
+Artículo 7°. El presente reglamento es de acatamiento obligatorio para todas las personas físicas, jurídicas, públicas, privadas o de cualquier otra índole, que se localicen o realicen alguna actividad dentro del cantón de Turrubares.

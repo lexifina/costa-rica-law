@@ -1,0 +1,1 @@
+Artículo 16°. Los usuarios que se encuentren en la situación mencionada en el artículo 15° deberán contar con la autorización del PGAM para determinar el lugar más adecuado donde se construirá la estructura de uso común.

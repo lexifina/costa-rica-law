@@ -1,0 +1,1 @@
+Artículo 6°. El Proceso de Gestión Ambiental Municipal, Proveeduría y la Alcaldía de la Municipalidad de Turrubares tendrán a cargo la Gestión Integral de Residuos, así como velar por la ejecución, cumplimiento y monitoreo del presente reglamento y la legislación vigente en materia de residuos.

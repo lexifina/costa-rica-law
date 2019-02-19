@@ -1,0 +1,1 @@
+Artículo 28°. Todo administrado que desee realizar alguna actividad económica especial o alguna otra gestión como permiso municipal de construcción, viabilidad ambiental entre otras, y necesite una nota de recolección de residuos para trámites ante alguna institución, deberá de solicitarla al PGAM.

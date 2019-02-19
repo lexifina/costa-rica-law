@@ -1,0 +1,2 @@
+Capítulo 4 Recolección de Residuos
+Artículo 12°. La Municipalidad a través del PGAM establecerá la frecuencia de recolección y elaborara el horario de recolección de residuos. Tres veces al año, en los meses de febrero, junio y octubre, se realizará campañas de recolección de residuos no tradicionales tales como eléctricos o de línea blanca, muebles, chatarra y recipientes en desuso, que no califican en la línea normal del Servicio Municipal de Recolección de Residuos.

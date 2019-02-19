@@ -1,0 +1,6 @@
+Artículo 3° Principios. Son principios del presente reglamento.
+A) Corresponsabilidad ambiental (El que contamina paga): Toda persona o actor que cause una contaminación es responsable de cubrir los gastos que se generen en el procedimiento de limpieza de la contaminación que causó.
+B) Internalización de costos: es responsabilidad del generador de los residuos el manejo integral y sostenible de estos, así como asumir los costos que esto implica en proporción a la cantidad y calidad de los residuos que genera.
+C) Precautorio e indubio pro natura: cuando exista peligro de daño grave o irreversible, la falta de certeza científica absoluta no deberá utilizarse como razón para postergar la adopción de medidas eficaces en función de los costos para impedir la degradación del ambiente o la salud.
+D) Prevención en la fuente: La generación de residuos debe ser prevenida prioritariamente en la fuente y en cualquier actividad.
+E) Responsabilidad compartida: La gestión integral de los residuos es una corresponsabilidad social, requiere la participación conjunta, coordinada y diferenciada de todos los productores, importadores, distribuidores, consumidores, gestores de residuos, tanto públicos como privados.

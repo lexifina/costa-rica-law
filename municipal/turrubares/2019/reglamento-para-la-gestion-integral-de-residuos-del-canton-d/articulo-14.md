@@ -1,0 +1,1 @@
+Artículo 14°. Los usuarios del servicio de recolección de residuos tendrán la obligación de almacenar sus residuos de forma tal que no representen un peligro para el ambiente ni un daño para la salud pública o vida de las personas.

@@ -1,0 +1,1 @@
+Artículo 19°. Se prohíbe a todos los usuarios del servicio de recolección de residuos, utilizar los basureros de uso comunal, para depositar sus residuos de tipo familiar o comercial. Los únicos residuos que se pueden depositar en estos basureros son los que se producen en el mismo lugar, por ejemplo paquetes de golosinas, cajas de helados y demás alimentos empacados.

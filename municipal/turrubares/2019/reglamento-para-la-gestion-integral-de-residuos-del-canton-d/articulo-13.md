@@ -1,0 +1,1 @@
+Artículo 13°. Los vehículos destinados a la recolección y transporte de residuos, sean estos municipales o no, deberán cumplir con la normativa ambiental vigente en el tema según el tipo de residuos que recolecte y/o transporte.

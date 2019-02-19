@@ -1,0 +1,1 @@
+Artículo 23°. La Municipalidad de Turrubares clasificará a todos los usuarios del servicio de recolección de residuos en las categorías de Familiar y Sin Fines de Lucro No Valorizable y Valorizable y Comercial e Institucional No Valorizable y Valorizable, según el uso de las construcciones, obras civiles o actividades comerciales especiales.
