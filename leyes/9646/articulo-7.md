@@ -1,0 +1,3 @@
+ARTÍCULO 7- Copia de la declaración del impuesto sobre la renta
+Los patentados declarantes del impuesto sobre la renta deberán presentar una copia de la declaración del impuesto sobre la renta sellada por la Dirección General de Tributación. Si el administrado se niega a suministrar esta información o si por cualquier motivo no puede presentarla en tiempo, la Municipalidad podrá solicitarla de manera directa a la Dirección General de Tributación, la cual se la suministrará en un término máximo de diez días hábiles después de solicitada.
+La Municipalidad de San Mateo queda autorizada para que firme un convenio de colaboración mutua de intercambio de información confidencial con la Dirección General de Tributación, del Ministerio de Hacienda.

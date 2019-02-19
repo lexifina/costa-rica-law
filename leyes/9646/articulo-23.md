@@ -1,0 +1,2 @@
+ARTÍCULO 23- Reglamentación
+Se autoriza a la Administración Tributaria para que emita los reglamentos que considere oportunos para la aplicación práctica de esta ley, para hacer eficaz el cumplimiento de la presente ley y para que adopte las medidas administrativas convenientes a una adecuada fiscalización y control, de conformidad con la Ley Nº 7794, Código Municipal, de 30 de abril de 1998; la Ley N.º 4755, Código de Normas y Procedimientos Tributarios, de 3 de mayo de 1971, y demás normativa supletoria y conexa.
