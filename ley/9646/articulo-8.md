@@ -1,0 +1,2 @@
+ARTÍCULO 8- Documentos requeridos para la declaración jurada del impuesto sobre licencia municipal
+Cuando los patentados no sean declarantes del impuesto sobre la renta y en los casos de duda razonable expresa sobre la información brindada en la declaración, deberán acompañar a la declaración de impuesto de patente una fotocopia del último recibo de pago de planillas a la Caja Costarricense de Seguro Social (CCSS) o una constancia, de la agencia respectiva de esa institución, sobre el total de salarios declarados.

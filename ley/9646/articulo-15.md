@@ -1,0 +1,3 @@
+ARTÍCULO 15- Revisión y recalificación
+Toda declaración queda sujeta a ser revisada por los medios establecidos en la ley. Cuando la Municipalidad dude de la veracidad de una declaración jurada, podrá exigir a la persona física o jurídica, declarante o no del impuesto sobre la renta, una certificación sobre el volumen de sus ingresos brutos y netos, extendida por un contador público autorizado.
+Si se comprueba que los datos suministrados son incorrectos por cuya causa se determine una variación en el tributo, se procederá a la recalificación correspondiente. Asimismo, la declaración que deben presentar los patentados ante la Municipalidad queda sujeta a lo establecido en la Ley Nº 4573, Código Penal, de 4 de mayo de 1970, en lo referente al delito de perjurio.
