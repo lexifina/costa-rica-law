@@ -1,0 +1,1 @@
+Artículo 3°. Se instruye a la Junta Directiva del Fondo Nacional de Financiamiento Forestal para que en el año 2019 promueva y amplié el mecanismo de fomento y/o financiamiento, que permita a los propietarios de fincas con áreas menores a 10 hectáreas, participar en el Programa de Servicios Ambientales en sus diferentes modalidades.
