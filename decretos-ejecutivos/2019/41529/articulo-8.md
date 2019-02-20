@@ -1,0 +1,1 @@
+Artículo 8°.- Sesiones de la Comisión de Alto Nivel. De manera bimestral, el INDER y el Viceministerio de la Presidencia en Asuntos Políticos y Diálogo Ciudadano convocarán a la Comisión de Alto Nivel para la Atención del Cantón de Buenos Aires. Dicho espacio dará seguimiento a los compromisos asumidos en cada una de las mesas de trabajo.

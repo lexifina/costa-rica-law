@@ -1,0 +1,1 @@
+Artículo 2°.- Coordinador. La coordinación general de las diversas actividades de la Comisión de Alto Nivel estarán a cargo del Viceministerio de la Presidencia en Asuntos Políticos y Diálogo Ciudadano y el INDER.

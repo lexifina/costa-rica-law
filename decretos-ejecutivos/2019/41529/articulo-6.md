@@ -1,0 +1,1 @@
+Artículo 6°.- Participación de pueblos indígenas. Cada una de las mesas señaladas en el artículo 5 del presente decreto, contará con la participación de un representante de los pueblos indígenas, electo en el seno de la Mesa de Diálogo entre el Gobierno de la República y los Pueblos Indígenas según lo establecido en el Decreto Ejecutivo 38437-MP-MBSF.
