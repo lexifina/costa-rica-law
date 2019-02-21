@@ -1,0 +1,1 @@
+Artículo 22.- El Médico Especialista en Cirugía Plástica, Reconstructiva y Estética debe prestar atención a la elaboración del diagnóstico, recurriendo cuando sea posible a los procedimientos científicos adecuados y debe por si mismo procurar por todos los medios a su alcance que las indicaciones terapéuticas se cumplan.

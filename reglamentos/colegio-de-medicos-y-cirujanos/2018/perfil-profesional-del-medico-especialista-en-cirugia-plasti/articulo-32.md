@@ -1,0 +1,1 @@
+Artículo 32.- Es obligación del Médico Especialista en Cirugía Plástica, Reconstructiva y Estética, cumplir a cabalidad los servicios para los cuales fue contratado salvo en que la continuidad del procedimiento pueda ser perjudicial para la salud y vida del paciente bajo criterio médico debidamente fundamentado.

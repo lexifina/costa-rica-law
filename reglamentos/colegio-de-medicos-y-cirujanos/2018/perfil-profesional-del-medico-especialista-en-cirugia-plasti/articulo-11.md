@@ -1,0 +1,1 @@
+Artículo 11.- Los procedimientos descritos en el presente perfil, podrán ser realizados por otros médicos especialistas, debidamente autorizados por el Colegio de Médicos y Cirujanos corno tales, cuando en el programa académico de dicha especialidad contemple la preparación académica y técnico quirúrgica para la adquisición de las destrezas necesarias para ejecutarlo.

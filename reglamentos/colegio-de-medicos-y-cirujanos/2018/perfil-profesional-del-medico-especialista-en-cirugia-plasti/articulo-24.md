@@ -1,0 +1,1 @@
+Artículo 24.-EI Médico Especialista en Cirugía Plástica, Reconstructiva y Estética en su actuación personal, debe mostrar la mayor dignidad y tolerancia hacia el paciente y sus familiares, siempre que su actitud no redunde en perjuicio de la misión especial que ha sido confiada.

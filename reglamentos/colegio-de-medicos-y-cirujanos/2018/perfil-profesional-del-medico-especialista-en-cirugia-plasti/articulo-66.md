@@ -1,0 +1,5 @@
+Artículo 66.-Aplica sus conocimientos y destrezas en los siguientes aspectos de la Cirugía Plástica, Reconstructiva y Estética sobre los materiales de implantación:
+a. Materiales de implantación de silicón sólido preformado no líquido ni en perlas, metales (vitalio, acero, oro, tantalio, titanio entre otros) y teflón en: nariz, mentón, orejas, órbita, complejo maxilofacial, cráneo, mamas, pectorales, pantorrilla, abdomen, brazos, manos (prótesis articular, tendón, huesillos de la mano), diversas técnicas quirúrgicas y todos sus usos.
+b. Plasma rico en plaquetas y goma de fibrina, aplicaciones clínicas, diversas técnicas de aplicación, cuya muestra se haya procesado en un laboratorio autorizado por el Ministerio de Salud, así como, por el Colegio de Microbiólogos y Químicos Clínicos de Costa Rica.
+c. Valoración, diagnóstico y tratamiento médico quirúrgico de complicaciones por inyección de biopolímeros, aceites u otras sustancias utilizadas para rellenos y que lleva a una complicación.
+d. Valoración, diagnóstico y tratamiento médico quirúrgico de las complicaciones producto de los actos anteriormente descritos.

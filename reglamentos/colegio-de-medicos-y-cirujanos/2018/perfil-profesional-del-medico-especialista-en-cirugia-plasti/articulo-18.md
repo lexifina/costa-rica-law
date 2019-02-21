@@ -1,0 +1,1 @@
+Artículo 18.- Respeto a la vida e integridad física y mental de la persona humana, fomento y preservación de la salud, como componentes del bienestar social, constituyen en todas las circunstancias el deber primordial del médico y en consecuencia del Médico Especialista en Cirugía Plástica, Reconstructiva y Estética.

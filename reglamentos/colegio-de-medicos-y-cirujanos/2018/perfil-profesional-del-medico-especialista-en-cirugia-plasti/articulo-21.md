@@ -1,0 +1,1 @@
+Artículo 21.- La conducta del Médico Especialista en Cirugía Plástica, Reconstructiva y Estética debe ajustarse siempre y por encima de toda consideración, a las normas morales de justicia, probidad y dignidad.

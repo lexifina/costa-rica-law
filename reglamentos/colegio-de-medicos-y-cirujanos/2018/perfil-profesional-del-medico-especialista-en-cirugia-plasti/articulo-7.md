@@ -1,0 +1,1 @@
+Artículo 7.-EI especialista en Cirugía Plástica, Reconstructiva y Estética integra y coordina grupos de trabajo relacionados con su especialidad en su servicio o departamento, intra e interinstitucionales, así como intersectoriales.

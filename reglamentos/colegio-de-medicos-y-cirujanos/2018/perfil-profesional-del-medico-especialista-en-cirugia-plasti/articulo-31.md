@@ -1,0 +1,1 @@
+Artículo 31.- Evitará el consorcio de dos o más Médicos Especialistas en Cirugía Plástica, Reconstructiva y Estética para referirse pacientes sin que prive una evidente necesidad de colaboración en provecho exclusivo del paciente.

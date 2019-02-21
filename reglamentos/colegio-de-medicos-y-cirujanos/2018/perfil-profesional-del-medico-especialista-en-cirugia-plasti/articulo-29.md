@@ -1,0 +1,1 @@
+Artículo 29.- Cuando las intervenciones requieren a un Médico Especialista en Cirugía Plástica, Reconstructiva y Estética sean dirigidas a modificar la fisonomía o identidad de una persona, este deberá tomar las previsiones que estén a su alcance al fin de evitar que ese cambio de fisonomía o identidad no sea dirigido a dificultar la aplicación de la justicia.
