@@ -1,0 +1,1 @@
+Artículo 12.-Los procedimientos descritos en el presente perfil, únicamente podrán ser realizados por otros Médicos Especialistas, debidamente autorizados por este Colegio Profesional como tales, cuando en el programa académico de dicha especialidad contemple la preparación académica y técnica para la adquisición de las destrezas necesarias para ejecutarlo.

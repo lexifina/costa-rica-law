@@ -1,0 +1,1 @@
+Artículo 10.-Docencia: Podrá participar en la formación académica universitaria de pregrado, grado y pos grado de los Profesionales en Medicina, en la Especialidad de Dermatología, así como otras especialidades médico quirúrgicas y demás Ciencias de la Salud.

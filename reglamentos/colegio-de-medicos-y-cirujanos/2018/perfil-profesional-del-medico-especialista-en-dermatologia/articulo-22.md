@@ -1,0 +1,1 @@
+Artículo 22.- Tribunales evaluadores: El Médico Especialista en Dermatología deberá participar activamente, cuando este Colegio Profesional así lo requiera, en la conformación de tribunales para la evaluación de médicos nacionales o extranjeros, que hayan realizado estudios en el exterior y que soliciten su respectiva incorporación como Médicos Especialistas en Dermatología.

@@ -1,0 +1,3 @@
+Artículo 4.-Médico Residente en Dermatología: Es un Médico y Cirujano debidamente inscrito ante este Colegio Profesional y que se encuentra cursando el programa de Especialidades Médicas en una universidad autorizada en Costa Rica.
+Los residentes podrán realizar actividades inherentes a la especialidad en los centros de salud donde adquieran las destrezas del Especialista en Dermatología, y se encontrará siempre bajo la supervisión del médico Dermatólogo nombrado por la universidad responsable de la formación profesional del residente.
+Para efecto del ejercicio en la práctica privada se le considerará en igual condición que un médico general, con las responsabilidades y alcances que este perfil le otorga.
