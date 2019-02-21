@@ -1,0 +1,2 @@
+Artículo 13 La víctima como parte del proceso. La víctima será expresamente reconocida como parte en el proceso, con todos los derechos inherentes a esta condición, incluyendo la posibilidad de ser asistida por un (a) profesional en derecho, sobre lo cual será advertido por el órgano instructor en la primera resolución.
+De igual manera, tiene derecho a ser atendida por los profesionales de los Servicios de Salud o en los servicios de Psicología y áreas afines a disposición de los (as) servidores (as) del Consejo Nacional de Vialidad (CONAVI).
