@@ -15,3 +15,4 @@ Reglamento a la Ley de Protección de la Persona frente al Tratamiento de sus Da
 | --- | --- | --- |
 | 1 | 2013-03-05 | la propia norma |
 | 2 | 2016-07-19 | Decreto Ejecutivo 40008 (2016-07-19) |
+| 3 | 2019-02-21 | Decreto Ejecutivo 41582 (2019-02-21) |
