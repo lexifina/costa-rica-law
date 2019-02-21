@@ -14,3 +14,4 @@ Reglamento del Comité de Bioética del Colegio de Médicos y Cirujanos de Costa
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-11-25 | la propia norma |
+| 2 | 2019-02-21 | Reglamento 0 (2019-02-21) |

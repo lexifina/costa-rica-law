@@ -1,7 +1,8 @@
 CAPÍTULO II
-De la organización
-Artículo 5°—Conformación: Estará integrado por siete miembros propietarios y dos suplentes, todos de probada honorabilidad y sapiencia.
+Artículo 5º—Conformación: Estará integrado por siete miembros propietarios y dos suplentes, todos de probada honorabilidad y sapiencia.
 De los siete miembros propietarios, cuatro serán médicos y cirujanos, debidamente incorporados a este Colegio, de diferentes áreas de la medicina, y tres profesionales no médicos, debiendo ser uno de ellos abogado. Los suplentes serán un médico y otro profesional no médico.
-Todos ejercerán sus cargos en forma "ad-honorem".
-Los miembros serán nombrados por la Junta de Gobierno, órgano al cual están adscritos y durarán en sus cargos dos años a partir de la fecha en que queda firme el acuerdo. Podrán ser reelegidos hasta por dos períodos consecutivos.
-Los miembros no podrán delegar en modo alguno sus derechos y deberes inherentes al cargo, siendo su nombramiento personalísimo. “Un Colegio para Todos”
+Todos ejercerán sus cargos en forma “ad-honorem”.
+Los miembros serán nombrados por la Junta de Gobierno, órgano al cual están adscritos y permanecerán en sus cargos por un año, del primero de marzo del año que sean electos, hasta el último día del mes de febrero del año siguiente. Podrán ser reelegidos en forma indefinida. En caso de cese de funciones de alguno de los miembros, por cualquier causa, su sustituto será nombrado por el plazo restante del nombramiento del miembro sustituido. Los miembros no podrán delegar en modo alguno sus derechos y deberes inherentes al cargo, siendo su nombramiento personalísimo”.
+De igual manera se aprueba la creación del siguiente transitorio:
+“Transitorio. Aquellos miembros del Comité de Bioética Médica, cuyo plazo de nombramiento finalice en fecha posterior al 01 de marzo del 2019, deberán ser sustituidos por la Junta de Gobierno una vez que se cumpla el periodo para el cual fueron nombrados. En el caso anterior, los nuevos nombramientos tendrán una vigencia, por esta única vez, hasta el último día del mes de febrero del año 2020. A partir del 01 marzo del 2020, todos los cargos tendrán una vigencia del 01 de marzo al último día del mes de febrero del año siguiente.
+(Así reformado y publicado en La Gaceta N° 37 del 21 de febrero del 2019 y corregido mediante Fe de Erratas publicada en La Gaceta N° 62 del 28 de marzo del 2019, página N° 60)
