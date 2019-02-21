@@ -1,0 +1,1 @@
+Artículo 9º-Definición de zonas: La Municipalidad por medio de su Alcalde y el Departamento de Policía Municipal, ejecutará las acciones para definir las zonas de oficialización, permisión, prohibición o restricción de estacionamiento. Para la validez de esta señalización y su aplicación formal. Todo de conformidad con la Ley 9329.
