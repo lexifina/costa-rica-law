@@ -1,0 +1,6 @@
+Artículo 52.- Forma de pago. Los pagos a proveedores se harán contra la prestación del servicio, recepción de bienes o avance de la obra, a entera satisfacción del INCOP exceptuando los casos previstos en el artículo 35 del RLCA.
+La Administración, podrá utilizar cualquier medio de pago con la condición de que resulte seguro para ambas partes, incluidos los medios electrónicos.
+En contratos de servicios profesionales, los pagos se harán conforme al programa de actividades, recibidos a entera satisfacción de INCOP, o dentro del plazo establecido en el cartel licitatorio.
+En las contrataciones de obra los pagos se harán contra avance y de manera mensual; si el período de ejecución es por un plazo menor, se pagará al finalizar satisfactoriamente los trabajos.
+Corresponde a la Unidad de contabilidad proceder con todos los movimientos contables que procedan al pago. La Unidad de Contabilidad devolverá a la Proveeduría del INCOP la factura que no esté debidamente documentada para su cancelación.
+El INCOP indicará en el cartel el plazo máximo para pagar, el cual no podrá ser superior a treinta días naturales. El plazo del cartel correrá a partir de la presentación de la factura, previa verificación del cumplimiento a satisfacción. Esta verificación deberá darse dentro del plazo contractual o cartelario establecido.

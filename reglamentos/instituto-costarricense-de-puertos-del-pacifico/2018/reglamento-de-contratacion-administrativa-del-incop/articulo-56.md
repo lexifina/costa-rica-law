@@ -1,0 +1,2 @@
+Artículo 56.- Formas de perfeccionamiento de la contratación. La relación contractual válida y perfeccionada se formalizará cuando sea necesario para el correcto entendimiento de los alcances de los derechos y las obligaciones contraídas por las partes.
+El contrato será suscrito por el funcionario legalmente facultado para ello y por el representante legal del contratista y deberá contener una breve descripción de los elementos esenciales de la relación contractual entre ellos la estimación del negocio y cancelarse las especies fiscales que correspondan.

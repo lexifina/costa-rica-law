@@ -1,0 +1,1 @@
+Artículo 38.- Comunicación. La Unidad de Proveeduría será la encargada de comunicar el acto final por medio del SICOP en los tres días hábiles siguientes a su dictado o notificado a los participantes por el medio electrónico señalado en ese mismo plazo cuando no sea posible realizarlo mediante el sistema.

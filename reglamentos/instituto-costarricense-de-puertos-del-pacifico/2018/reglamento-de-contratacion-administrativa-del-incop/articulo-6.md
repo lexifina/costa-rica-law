@@ -1,0 +1,1 @@
+Artículo 6.- Deber de colaboración a la Proveeduría Institucional. Para el eficiente y eficaz cumplimiento de sus funciones, las demás instancias del INCOP de tipo técnico, jurídico, financiero, presupuestario, informático y de cualquier otro orden, están obligadas a brindarle asistencia y asesoría en el cumplimiento de sus cometidos.

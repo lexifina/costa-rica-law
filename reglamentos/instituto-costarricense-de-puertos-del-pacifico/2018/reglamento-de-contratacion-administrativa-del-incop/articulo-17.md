@@ -1,0 +1,6 @@
+Artículo 17.-Los niveles de aprobación y competencia para el inicio de los procedimientos y adjudicaciones de bienes y servicios u obras son los siguientes:
+a) Solicitudes de compra de bienes, servicios y obra se realizarán a través de la plataforma SICOP. La “Decisión Inicial” deberá ser emitida por el titular subordinado de la unidad solicitante y aprobada por la Dirección a la cual pertenece la unidad solicitante. La Presidencia Ejecutiva, Gerencia General, Secretaría de Fiscalización y Auditoría formularán sus propias solicitudes y aprobaciones.
+b) Adjudicaciones: Se tomará como base los límites de presupuesto establecidos conforme al artículo 27 de la Ley de Contratación Administrativa, según el estrato en que se encuentre el INCOP, donde le corresponderá aprobar al Proveedor General las Contrataciones Directas.
+Las adjudicaciones de las Licitaciones Abreviadas, Contrataciones Directas Autorizadas cuyo monto no requieran del refrendo contralor serán aprobadas por el Gerente General del INCOP.
+Las adjudicaciones de las Licitaciones Públicas, Contrataciones Directas Autorizadas cuyos montos requieran del refrendo contralor serán aprobadas por la Junta Directiva del INCOP.
+c) El inicio del procedimiento de remate de bienes muebles e inmuebles indistintamente de la cuantía deberá ser autorizadas por la Junta Directiva.
