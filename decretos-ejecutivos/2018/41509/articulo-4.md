@@ -1,8 +1,0 @@
-Artículo 4º—Una vez recibidos los documentos, el Departamento de Supervisión procederá a elaborar la clasificación y el padrón oficial con base en la revisión integral de la información aportada y en la verificación de lo siguiente:
-a. Estatuto Social de cada cooperativa para determinar la concordancia entre su denominación y el objeto social, con el fin de ubicarla en la asamblea sectorial que mejor corresponde.
-b. Que la entidad cooperativa no mantiene deudas y se encuentra al día con sus obligaciones para con la CCSS, FODESAF e INA.
-c. Que la entidad cooperativa se encuentra al día con la legalización de los libros de actas y de la contabilidad.
-d. Que la entidad cooperativa está al día con el pago de las cargas parafiscales a CENECOOP R.L., CONACOOP y CPCA según corresponda, para lo cual estos organismos enviarán al INFOCOOP la lista actualizada de las cooperativas al día.
-No obstante, de forma supletoria, las cooperativas podrán presentar las constancias o recibos de pago específicos.
-En caso de duda razonable, el INFOCOOP podrá realizar visitas a las cooperativas para verificar los aspectos regulados en este artículo y el anterior.
-Para cada entidad cooperativa solicitante, el INFOCOOP enviará un aviso informando si la entidad queda debidamente empadronada o tiene al pendiente uno o varios requisitos, indicándole el plazo para cumplir con ellos, el cual será de 3 a 5 días hábiles. Este aviso se enviará al correo electrónico aportado para notificaciones en el formulario de ingreso que se genere al efecto. Se exceptúan de esta comunicación las cooperativas escolares y juveniles, cuya información la recibirán del MEP.
