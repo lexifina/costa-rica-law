@@ -1,0 +1,1 @@
+Artículo 2°—Documento para adquisiciones exentas: Las adquisiciones se realizarán mediante órdenes de compra emitidas por ILANUD. Estas deberán ser firmadas por las personas debidamente autorizadas por parte del Representante Legal de la entidad mencionada, para efectuar las referidas compras exentas de impuestos en su nombre.
