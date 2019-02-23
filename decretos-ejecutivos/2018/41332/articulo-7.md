@@ -1,0 +1,1 @@
+Artículo 7. -Tablas de Picar. Las tablas de picar deben ser de material impermeable, de superficie lisa y mantenerse en buen estado de conservación e higiene. No podrán ser de madera. Las tablas deben estar identificadas según su uso, a fin de prevenir la contaminación cruzada, considerando la naturaleza del producto, según lo establecido en el Anexo 2 del presente reglamento.

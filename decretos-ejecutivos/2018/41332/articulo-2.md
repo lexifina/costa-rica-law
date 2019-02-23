@@ -1,0 +1,1 @@
+Artículo 2.- Alcance. Este reglamento aplica en todo el territorio nacional y será de acatamiento obligatorio para el otorgamiento del permiso por parte de la municipalidad correspondiente, para la venta de frutas y la preparación y venta de alimentos y bebidas de carácter artesanal y que sean preparadas exclusivamente en los sitios que previamente definan las municipalidades.

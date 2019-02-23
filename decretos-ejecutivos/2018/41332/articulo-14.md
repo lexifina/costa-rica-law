@@ -1,0 +1,8 @@
+Artículo 14.- Contaminación cruzada. Con el fin de prevenir la contaminación cruzada en el área de preparación de alimentos, obligatoriamente se deben aplicar las siguientes medidas:
+1) Los alimentos sin cocción tales como carnes y quesos, se deben almacenar a una temperatura entre 2 y 5 º C y colocados en recipientes de material higiénico, resistente, y tapados, limpios y ce1Tados. Se colocarán por separado de los alimentos cocinados, y de consumo directo. Los alimentos crudos deberán colocarse a una altura mayor a 30 cm sobre el suelo en recipientes higiénicos y cerrados.
+2) El personal encargado de la manipulación de los alimentos se debe lavar y desinfectar las manos antes de entrar en contacto con alimentos.
+3) Las mesas de trabajo y las tablas deben lavarse y desinfectarse después de la manipulación de alimentos crudos.
+4) Los utensilios como cuchillos y cucharones, entre otros, deben estar identificados según el uso, ya sea para cortar o picar alimentos crudos o cocidos y según los diferentes tipos de alimentos.
+5) Los alimentos para consumo deben ser colocados en recipientes desechables biodegradables higiénicos y de un solo uso. Además, debe cumplir con los requerimientos de manejo de residuos que establece este reglamento.
+6) El hielo que se utilice para la conservación y preparación de alimentos, debe mantenerse en recipientes cerrados, limpios y desinfectados. No debe manipularse directamente con las manos, se deben usar pinzas, cucharas o palitas (de materiales plásticos o metálicos), las cuales deberán mantenerse en una solución desinfectante.
+El hielo debe cumplir con los parámetros indicados en el Decreto Ejecutivo Nº 38924-S del 12 de enero del 2015 "Reglamento para la Calidad del Agua Potable".

@@ -1,0 +1,1 @@
+Artículo 15.- Calidad de los alimentos. Las frutas y los alimentos que se vendan no deben estar contaminados y cumplir con los criterios microbiológicos indicados en el Anexo 1 del presente reglamento, para garantizar su inocuidad.
