@@ -14,3 +14,4 @@ Demarca la zona pública en Playa Roca Escaleras, distrito 4° Bahía Ballena, c
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1994-09-01 | la propia norma |
+| 2 | 2019-02-25 | Acuerdo 1 (2019-02-25) |

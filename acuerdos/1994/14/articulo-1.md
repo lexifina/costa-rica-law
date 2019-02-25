@@ -1,4 +1,5 @@
 INSTITUTO GEOGRÁFICO NACIONAL
+(Nota de Sinalevi: Mediante acuerdo 2019-001 y publicado en La Gaceta N° 69 del 8° de abril del 2019, “Delimitación de zona pública de un sector costero de Playa San Martín”, el Instituto Geográfico Nacional, acordó eliminar los mojones enumerados del M13A y M14)
 AVISO N° 94-14
 De conformidad con lo dispuesto en el artículo 63 del Reglamento de la ley N° 6043 sobre la Zona Marítimo de Terrestre, del 2 de marzo de 1977, el Instituto Geográfico Nacional demarcó entre el 23 y el 29 de junio de 1994, la zona pública en Playa Roca Escaleras, distrito 4° Bahía Ballena, cantón 5° Osa, provincia de Puntarenas, entre las coordenadas Lambert aproximadas de la Hoja Dominical – 3343 IV:
 351720 N - 483280 E, 351800 N - 483000 E,
