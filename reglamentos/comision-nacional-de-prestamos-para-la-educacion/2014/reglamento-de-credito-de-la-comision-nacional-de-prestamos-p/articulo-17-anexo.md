@@ -45,7 +45,9 @@ d. Disminución de las asignaturas por matricular.
 6. Carta emitida por la entidad educativa, con sello y firma, que indique que no tiene deudas del último periodo cursado.
 7. Informe de matrícula del periodo actual.
 8. Presentar constancia de notas, en caso de tener períodos pendientes por presentar a CONAPE.
-e. Sustitución de fiadores
+e: El cambio de fiador solo lo puede solicitar el solicitante
+(Así adicionado el inciso anterior mediante sesión N° 07-2019 del 25 de febrero del 2019)
+f. Sustitución de fiadores
 1. Solicitud del prestatario para sustitución de fiadores.
 2. Breve justificación.
 3. Constancia de salario original del fiador(es) que propone.
@@ -56,14 +58,16 @@ e. Sustitución de fiadores
 8. Informe de matrícula del periodo actual.
 9. Llenar formulario de datos de los fiadores propuestos.
 10. Llenar el formulario de actualización de datos del deudor y de los fiadores que permanecen.
-f. Suspensión de estudios y/o desembolsos
+(Corrida la numeración del inciso anterior mediante sesión N° 07-2019 del 25 de febrero del 2019, que lo traspasó del antiguo inciso e) al f))
+g. Suspensión de estudios y/o desembolsos
 1. Solicitud del prestatario para suspender plan de estudios.
 2. Breve justificación y documento que respalde la solicitud.
 3. Llenar formulario de actualización de datos del deudor y los fiadores.
 4. Carta emitida por la entidad educativa, con sello y firma, que indique que no tiene deudas del último periodo cursado.
 5. Presentar constancia de notas, en caso de tener períodos pendientes por presentar a CONAPE.
 6. Informe de matrícula del periodo actual (En caso de que se encuentre matriculado)
-g. Modificación de plan de estudios y plan de desembolsos.
+(Corrida la numeración del inciso anterior mediante sesión N° 07-2019 del 25 de febrero del 2019, que lo traspasó del antiguo inciso f) al g))
+h. Modificación de plan de estudios y plan de desembolsos.
 1. Solicitud del prestatario para modificar plan de estudios y/o plan de desembolsos
 2. Breve justificación y documento que respalde la solicitud.
 3. Llenar formulario del nuevo cronograma de estudios y la nueva distribución del saldo disponible del préstamo.
@@ -71,11 +75,17 @@ g. Modificación de plan de estudios y plan de desembolsos.
 5. Factura proforma extendida por la entidad educativa en la que va a realizar los estudios, con el costo de cada una de las materias, totalizada por ciclos lectivos.
 6. Informe de matrícula del periodo actual.
 7. Presentar constancia de notas, en caso de tener períodos pendientes por presentar a CONAPE.
-h. Cambio de garantía a otro tipo de garantía
+(Corrida la numeración del inciso anterior mediante sesión N° 07-2019 del 25 de febrero del 2019, que lo traspasó del antiguo inciso g) al h))
+i. Cambio de garantía a otro tipo de garantía
 1. Solicitud del prestatario para cambiar la garantía
 2. Breve justificación y documento que respalde la solicitud.
 3. El prestatario debe cumplir con los requisitos establecidos en éste reglamento según el tipo de garantía.
 4. La solicitud de cambio de garantía es analizada por la Sección de Desembolsos y Control de Crédito y resuelta por el Comité de Crédito.
 No aplican los incisos a, b y c., para la solicitud de préstamo aprobada en la modalidad de préstamo parcial.
 Si han transcurrido más de 30 días calendario después de finalizado el ciclo lectivo inmediato anterior, el prestatario debe presentar la certificación de notas pendientes de los ciclos anteriores
+(Corrida la numeración del inciso anterior mediante sesión N° 07-2019 del 25 de febrero del 2019, que lo traspasó del antiguo inciso h) al i))
+Los incisos a, b y c no aplican para la solicitud de préstamos aprobado en modalidad de préstamo parcial.
+(Así adicionado el párrafo anterior mediante sesión N° 07-2019 del 25 de febrero del 2019)
+Los funcionarios de la Sección de Desembolsos y Control de Crédito no pueden realizar cambios de condiciones crediticias hasta que se formalice el contrato de crédito para estudios; excepto para cambios de fiadores. La Sección de Desembolsos y Control de Crédito debe revisar cada inicio de año los requisitos y formularios y serán avalados por la Gestoría de Procesos, para su respectiva divulgación.
+(Así adicionado el párrafo anterior mediante sesión N° 07-2019 del 25 de febrero del 2019)
 (Así reformado mediante sesión N° 13-2018 del 16 de abril del 2018)

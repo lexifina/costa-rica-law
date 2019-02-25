@@ -5,11 +5,12 @@ a. Debe adjuntar la Factura Proforma respectiva, la cual debe contener al menos:
 2. Fecha de emisión.
 3. Descripción general de las características del equipo por adquirir.
 4. Monto total de la proforma.
-b. Cuando el prestatario haya realizado la adquisición entre personas físicas, debe presentar una Compra-Venta efectuada ante Notario Público / Abogado.
-(Así reformado el inciso anterior en sesión N° 13 del 16 de abril del 2018)
+b. Cuando el prestatario haya realizado la adquisición entre personas físicas, debe presentar una “Declaración Jurada” de acuerdo al formato establecido por la Asesoría Legal Institucional”
+(Así reformado el inciso anterior en sesión N° 07 del 25 de febrero del 2019)
 c. Cuando el prestatario solicite renovar o adquirir otra computadora de escritorio o portátil, tableta, accesorios, herramientas, instrumentos, suministros, materiales u otros equipos, la Sección de Desembolsos y Control de Crédito, puede autorizar la compra del nuevo equipo, una vez transcurrido el período de un año, salvo casos excepcionales a juicio de la Jefatura de la Sección de Desembolsos y Control de Crédito.
 (Así reformado el inciso anterior en sesión N° 13 del 16 de abril del 2018)
-d. En caso de que la fecha de la Factura cancelada tenga una fecha de emisión anterior a la fecha de aprobación del préstamo y el solicitante incluyó también el financiamiento de los estudios, la Sección de Desembolsos y Control de Crédito, deduce del desembolso inmediato siguiente el monto girado por ese concepto.
+d. En caso de que la fecha de la Factura cancelada tenga una fecha de emisión anterior a la fecha de entrega de documentos y/o registro de la solicitud de préstamo y el solicitante incluyó también el financiamiento de los estudios, la Sección de Desembolsos y Control de Crédito, deduce del desembolso inmediato siguiente el monto girado por ese concepto.
+(Así reformado el inciso anterior en sesión N° 07 del 25 de febrero del 2019)
 e. El tope del financiamiento máximo para esta línea crediticia es establecido en el Programa Anual de Crédito vigente, excepto casos especiales a juicio del Consejo Directivo.
 f. El financiamiento se otorga únicamente durante la etapa de estudios del interesado.
 g. El equipo adquirido no puede utilizarse como garantía prendaria ante CONAPE.
@@ -27,9 +28,10 @@ m. El estudiante puede solicitar financiamiento para la adquisición de computad
 2. Por medio de una solicitud de ampliación del préstamo.
 3. Por medio de una solicitud de desembolso dentro del saldo de la operación crediticia, resuelta por la Sección de Desembolsos y Control de Crédito mediante una Acuerdo Administrativo.
 n. Cuando el prestatario haya realizado la adquisición a través de un tercero en el exterior, la Sección de Desembolsos y Control de Crédito, recibe la Factura o Comprobante de Compra y una declaración jurada del prestatario.
-o. Cuando el prestatario haya realizado la adquisición entre personas físicas, debe presentar una Compra-Venta efectuada ante Notario Público.
+o. (Eliminado en sesión N° 07 del 25 de febrero del 2019)
 p. Cuando el prestatario haya realizado la adquisición en el exterior o por medio del internet, debe presentar la Factura cancelada o Comprobante de Compra o la Orden de pedido emitida por la casa comercial.
-q. Cuando el prestatario solicite renovar o adquirir otra computadora de escritorio o portátil, tableta, accesorios, herramientas, instrumentos, suministros, materiales u otros equipos, la Sección de Desembolsos y Control de Crédito, puede autorizar la compra del nuevo equipo.
+q. Cuando el prestatario solicite renovar o adquirir otra computadora de escritorio o portátil, tableta, accesorios, herramientas, instrumentos, suministros, materiales u otros equipos, la Sección de Desembolsos y Control de Crédito, puede autorizar la compra del nuevo equipo; una vez transcurrido un año, o salvo casos excepcionales a juicio de la Jefatura de la Sección de Desembolsos y Control de Crédito.
+(Así reformado el inciso anterior en sesión N° 07 del 25 de febrero del 2019)
 r. La Factura Comercial o Comprobante de Compra de la adquisición de computadora de escritorio o portátil, tableta, accesorios, herramientas, instrumentos, suministros, materiales u otros equipos adquiridos, debe reunir las siguientes condiciones:
 1. Nombre completo del propietario o razón social y la denominación del negocio (nombre de fantasía si existe).
 2. Autorización de Tributación Directa.

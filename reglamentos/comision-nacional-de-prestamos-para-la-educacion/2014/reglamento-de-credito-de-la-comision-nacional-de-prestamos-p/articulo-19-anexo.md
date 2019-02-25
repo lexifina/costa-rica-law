@@ -3,12 +3,13 @@ Una operación crediticia se traslada a la fase de cobro en condición de cumpli
 1. Aprueba el total de asignaturas financiadas del programa de estudios.
 2. Obtiene la condición de egresado del grado a obtener.
 3. Cursa el trabajo final de graduación (tesis, práctica, pruebas de grado, etc.).
-4. Aprueba las asignaturas de un financiamiento de estudios parcial.
+4. (Derogado este inciso mediante sesión N° 07-2019 del 25 de febrero del 2019)
 5. Financiamiento únicamente para la adquisición de computadora de escritorio o portátil, tableta, accesorios, herramientas, instrumentos, suministros, materiales u otros equipos de estudios, con la presentación de la factura cancelada.
 6. Presenta la constancia, certificación, título obtenido (o fotocopia confrontada contra documento original) o Declaración jurada de conclusión de estudios.
 En los demás casos, la operación se traslada a la fase de cobro en condición de incumplimiento, excepto casos especiales a juicio del Jefe de la Sección de Desembolsos y Control de Crédito.
 GLOSARIO DE TÉRMINOS
-Actas de Comité de Crédito. Resumen de las recomendaciones sobre las solicitudes de préstamo que se elevan a conocimiento del Consejo Directivo, así como cualquier otro aspecto relevante en cuanto al análisis de créditos y otros acuerdos sobre la gestión crediticia, firmadas por el Secretario Ejecutivo, el Jefe del Departamento de Crédito y el Jefe del Departamento Financiero. Las actas son firmadas en un libro de actas legalizado por la Auditoría Interna.
+Actas de Comité de Crédito. Resumen de las solicitudes de préstamos aprobadas e improbadas por parte del Comité de Crédito, así como cualquier otro aspecto relevante en cuanto al análisis de créditos y otros acuerdos sobre la gestión crediticia, firmadas por los integrantes del Comité de Crédito en un libro de actas legalizado por la Auditoría Interna.
+(Así reformada la definición anterior mediante sesión N° 07-2019 del 25 de febrero del 2019)
 Acuerdo Cooperación Institucional. Acuerdo administrativo entre CONAPE y una institución educativa de enseñanza superior para la promoción, divulgación, gestión, control, seguimiento académico, cobranza de las operaciones crediticias y otras labores de apoyo logístico, de recursos humanos, de infraestructura y materiales.
 Acuerdo Administrativo del Departamento de Crédito. Resolución administrativa a solicitudes y problemas diversos que presentan los solicitantes o beneficiarios de préstamos en el período de ejecución, firmados por el funcionario autorizado en la respectiva Sección y por el Jefe Inmediato.
 Adenda al Contrato de Crédito para estudios: Adición o complemento añadido al Contrato de Créditos para estudios original.

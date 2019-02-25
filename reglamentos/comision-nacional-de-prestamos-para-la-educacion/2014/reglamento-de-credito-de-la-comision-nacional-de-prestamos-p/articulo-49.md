@@ -1,3 +1,5 @@
-Artículo 49.-Garantía de título valor. CONAPE puede aceptar como garantía de un préstamo, mediante endoso o cesión a su favor títulos valores emitidos por instituciones estatales, bancos estatales, mutuales, el Banco Popular y Desarrollo Comunal y otros bancos del Sistema Bancario Nacional, a juicio del Consejo Directivo.
-El monto de los títulos valores ofrecidos en garantía, debe cubrir al menos el 150% del monto del préstamo aprobado.
+ARTÍCULO 49: POLIZA DE INCENDIO Y TERREMOTO DE EDIFICACIONES DADAS EN GARANTIA HIPOTECARIA. CONAPE exigirá al solicitante que asegure y presente el documento respectivo de la póliza de incendio y terremoto sobre las edificaciones, cuando el valor del terreno ofrecido en garantía hipotecaria, sea menor a los porcentajes establecidos en este reglamento.
+a. Dicha póliza debe cubrir el valor del inmueble dado en garantía, salvo casos excepcionales que aprobará el Comité de Crédito de CONAPE.
+b. La póliza deberá tener una acreencia a favor de CONAPE por el monto aprobado del crédito, más el 50%, salvo casos excepcionales que analiza y recomienda la Jefatura de la Sección de Análisis y Gestión de Crédito al Comité de Crédito.
 (Corrida su numeración mediante sesión N° 13-2018 del 16 de abril del 2018 que lo traspasó del antiguo 50 al 49. Lo anterior ya que en dicha sesión se ordena derogar el artículo 29 original y correr la numeración de los siguientes)
+(Así reformado mediante sesión N° 07-2019 del 25 de febrero del 2019)
