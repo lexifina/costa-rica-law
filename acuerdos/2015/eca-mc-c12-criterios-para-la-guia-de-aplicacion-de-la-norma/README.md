@@ -14,3 +14,4 @@ ECA-MC-C12 Criterios para la guía de aplicación de la Norma INTE-ISO/IEC 17020
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-06-19 | la propia norma |
+| 2 | 2019-02-25 | Acuerdo 0 (2019-02-25) |
