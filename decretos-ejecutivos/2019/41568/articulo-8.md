@@ -1,0 +1,2 @@
+Artículo 8.- Sesiones de la Plenaria. Cada dos meses, el Segundo Vicepresidente de la República convocará a sesión plenaria. Dicho espacio se destinará al seguimiento y cumplimiento de los compromisos asumidos en cada uno de los ejes.
+Le corresponderá al Segundo Vicepresidente de la República canalizar los acuerdos que surjan de la plenaria a las respectivas instituciones y velar por su cumplimiento.

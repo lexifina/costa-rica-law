@@ -1,0 +1,1 @@
+Artículo 7.- Sesiones de los ejes de trabajo. Las instituciones coordinadoras de cada eje de trabajo convocarán, al menos una vez al mes, a sesión de trabajo y seguimiento en relación con la ejecución de los acuerdos.
