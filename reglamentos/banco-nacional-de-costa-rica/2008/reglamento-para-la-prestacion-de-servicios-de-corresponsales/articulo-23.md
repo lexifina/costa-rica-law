@@ -1,2 +1,1 @@
-CONTROL SOBRE LOS CORRESPONSALES BN SERVICIOS
-Artículo 23.—Los ejecutivos de canales alternos por Zona Comercial serán los responsables de verificar el cumplimiento de todo lo dispuesto en el presente Reglamento.
+Artículo 23.—Para el pago a los CORRESPONSALES BN SERVICIOS: Tarifa por Transacción: Por cada transacción que realice el CORRESPONSAL BN SERVICIOS, el BANCO le reconocerá un monto previamente establecido en el contrato, diariamente una vez realizados los cierres del sistema BN Conectividad mediante depósito a la cuenta indicada por el comercio con el Banco Nacional.

@@ -1,2 +1,1 @@
-COMISIÓN POR EL SERVICIO
-Artículo 20.—La comisión a pagar por este servicio no constituye un elemento de negociación para la elección de un CORRESPONSAL BN SERVICIOS.
+Artículo 20.—Durante todo el plazo de la ejecución del contrato, será de acatamiento obligatorio para el CORRESPONSAL BN SERVICIOS de todas y cada una de las disposiciones contenidas en este Reglamento, y el contrato suscrito con el BANCO.

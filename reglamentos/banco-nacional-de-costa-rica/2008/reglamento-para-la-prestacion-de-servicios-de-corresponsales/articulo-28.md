@@ -1,1 +1,2 @@
-Artículo 28.—En todos aquellos aspectos distintos de los trámites concursales y de selección del contratista que no se encuentren expresamente previstos en el presente Reglamento, resultarán aplicables las disposiciones de la Ley de Contratación Administrativa y el Reglamento a la Ley de Contratación Administrativa.
+DISPOSICIONES FINALES
+Artículo 28.—Ninguna de las disposiciones del presente Reglamento podrá interpretarse en forma alguna que limite las facultades de fiscalización de la hacienda pública que constitucional y legalmente competen a la Contraloría General de la República.

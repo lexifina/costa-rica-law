@@ -1,2 +1,2 @@
-DISPOSICIONES FINALES
-Artículo 27.—Ninguna de las disposiciones del presente Reglamento podrá interpretarse en forma alguna que limite las facultades de fiscalización de la hacienda pública que constitucional y legalmente competen a la Contraloría General de la República.
+PROCEDIMIENTO PARA LA APLICACIÓN DE SANCIONES.
+Artículo 27.—El procedimiento para la aplicación de sanciones se realizará de conformidad con lo establecido en el ordenamiento jurídico costarricense.
