@@ -15,3 +15,4 @@ Demarca zona pública en el sector Rocas Escaleras, distrito Cortés, cantón de
 | --- | --- | --- |
 | 1 | 1986-04-24 | la propia norma |
 | 2 | 1994-08-08 | Acuerdo 14 (1994-08-08) |
+| 3 | 2019-02-25 | Acuerdo 1 (2019-02-25) |
