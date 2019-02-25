@@ -15,4 +15,5 @@ Considerando:
 Decretan:
 MORATORIA A LA EXPLOTACIÓN PETROLERA
 (Nota de Sinalevi: El presente decreto ejecutivo fue reformado parcialmente y reproducido su texto íntegramente por el artículo 1° del decreto ejecutivo N° 40038 del 29 de noviembre del 2016, publicado en el Alcance Digital N° 314 a La Gaceta N° 244 del 20 de diciembre del 2016, por lo que se reproduce a continuación:)
-ARTÍCULO 1°. Se declara una moratoria nacional hasta el 15 de setiembre del 2021 para la actividad que tenga el propósito de desarrollar la exploración y explotación de los depósitos de petróleo en el territorio nacional continental y marina.
+ARTÍCULO 1°. Se declara una moratoria nacional hasta el 31 de diciembre de 2050 para la actividad que tenga el propósito de desarrollar la exploración y explotación de los depósitos de petróleo en el territorio nacional continental y marino.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 41578 del 25 de febrero del 2019)
