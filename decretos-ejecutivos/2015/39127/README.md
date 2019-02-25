@@ -15,3 +15,4 @@ Reglamento del Concurso de Oposición y el Ingreso a la Carrera del Servicio Ext
 | --- | --- | --- |
 | 1 | 2015-08-21 | la propia norma |
 | 2 | 2017-12-13 | Decreto Ejecutivo 40823 (2017-12-13) |
+| 3 | 2019-02-25 | Decreto Ejecutivo 41638 (2019-02-25) |
