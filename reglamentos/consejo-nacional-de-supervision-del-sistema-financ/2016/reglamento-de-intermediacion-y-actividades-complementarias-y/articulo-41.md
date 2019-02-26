@@ -1,5 +1,5 @@
-TITULO IV ACTIVIDADES COMPLEMENTARIAS A LA INTERMEDIACIÓN
-CAPÍTULO I. ASESORÍA DE INVERSIÓN
+CAPÍTULO V. ASESORÍA DE INVERSIÓN
+(Así modificada su denominación mediante sesión N° 1483-2019 del 26 de febrero del 2019)
 Articulo 41. Definición de asesoría de inversión
 (1) La asesoría de inversión consiste en brindar recomendaciones personalizadas, las cuales deberán incluir la información necesaria así como una explicación previa acerca de los elementos relevantes con respecto a una o más operaciones relativas a los valores o instrumentos financieros con el fin de que el cliente tome decisiones informadas.
 (2) Una recomendación se considera personalizada cuando se dirija a un inversionista específico, se realice sobre uno o varios valores o instrumentos financieros en concreto y se presente como idónea para el inversionista basándose en su perfil y objetivo de inversión.

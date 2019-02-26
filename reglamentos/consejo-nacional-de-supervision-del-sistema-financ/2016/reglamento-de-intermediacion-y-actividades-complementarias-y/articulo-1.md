@@ -27,18 +27,20 @@ Aprobar el Reglamento de Intermediación y Actividades Complementarias, así com
 REGLAMENTO DE INTERMEDIACIÓN Y ACTIVIDADES COMPLEMENTARIAS
 TITULO I. DISPOSICIONES GENERALES
 Artículo 1. Definición de servicios de intermediación de valores y actividades complementarias
-(1) Se definen como aquellos servicios o actividades prestados por parte de los intermediarios de forma habitual y a cambio de una compensación, directa o indirecta, con el objetivo de poner en contacto oferentes y demandantes de valores. Además, contemplan la prestación de otros servicios, denominados actividades complementarias.
-(2) Se consideran servicios de intermediación de valores los siguientes:
+(1) Se definen como aquellos servicios o actividades prestados por parte de los intermediarios de forma habitual y a cambio de una compensación, directa o indirecta, con el objetivo de poner en contacto oferentes y demandantes de valores.
+(2) Se consideran intermediarios de valores, los puestos de bolsa y los bancos del sistema bancario nacional. Los intermediarios pueden definir cuáles de los siguientes servicios, que les sean autorizados, brindan y a quienes, pero su prestación debe ser realizada en acatamiento de las presentes disposiciones reglamentarias.
+(3) Solo los intermediarios autorizados podrán ofrecer públicamente los siguientes servicios de intermediación de valores:
 a) Ejecución de órdenes por cuenta propia o de terceros en el mercado local, o su transmisión a intermediarios autorizados en la plaza donde se negocien los valores o instrumentos financieros que desean transarse.
 b) Gestión individual de portafolios.
 c) Recepción automatizada de órdenes.
 d) Acceso a plataformas de negociación directa.
-(3) Se consideran actividades complementarias, sin perjuicio de otras actividades que pudieran incluirse a futuro en este reglamento, las siguientes:
-a) Asesoría de inversión.
-b) Suscripción de contratos de colocación de emisiones.
-c) Referimiento de clientes.
-d) Custodia de valores.
-(4) Están sujetos a esta norma los puestos de bolsa y los bancos del sistema bancario nacional. En el caso de los bancos del sistema bancario nacional, estos no pueden prestar servicios de ejecución de órdenes en el mercado secundario local, en virtud del principio de concentración de mercado.
-(5) La actividad de custodia se rige por lo establecido en el Reglamento de custodia y sus acuerdos.
-(6) Los intermediarios pueden definir cuáles de estos servicios brindan y a quienes, pero su prestación debe ser realizada en acatamiento de las presentes disposiciones reglamentarias.
-(7) Cualquier empresa perteneciente a un grupo o conglomerado financiero que preste los servicios de intermediación de valores o sus actividades complementarias deberá cumplir con lo dispuesto en este reglamento.
+e) Asesoría de inversión.
+f) Suscripción de contratos de colocación de emisiones.
+(4) Únicamente los puestos de bolsa podrán hacer oferta pública y prestar el servicio de ejecución de órdenes por cuenta propia o de terceros en el mercado secundario local.
+(5) Las operadoras de pensiones y las sociedades administradoras de fondos de inversión podrán suscribir contratos de colocación de emisiones por cuenta de los fondos que administran.
+(6) Adicionalmente los intermediarios podrán prestar las siguientes actividades complementarias:
+a) Referimiento de clientes.
+b) Custodia de valores
+(7) El servicio de custodia y la oferta de dicho servicio únicamente podrá ser realizada por las centrales de valores y los intermediarios de valores, y se rige por lo establecido en el Reglamento de Custodia y sus acuerdos.
+(8) Cualquier empresa perteneciente a un grupo o conglomerado financiero que preste los servicios de intermediación de valores o sus actividades complementarias deberá cumplir con lo dispuesto en este Reglamento
+(Así reformado mediante sesión N° 1483-2019 del 26 de febrero del 2019)

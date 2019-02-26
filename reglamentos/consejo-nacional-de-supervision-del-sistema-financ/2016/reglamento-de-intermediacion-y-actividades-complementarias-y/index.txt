@@ -1,4 +1,5 @@
 articulo-1.md
+articulo-1-bis.md
 articulo-2.md
 articulo-3.md
 articulo-4.md
@@ -68,3 +69,4 @@ articulo-67.md
 articulo-68.md
 articulo-69.md
 articulo-70.md
+articulo-71.md

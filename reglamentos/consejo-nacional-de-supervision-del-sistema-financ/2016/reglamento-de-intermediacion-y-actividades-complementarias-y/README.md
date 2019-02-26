@@ -14,3 +14,4 @@ Reglamento de Intermediación y Actividades Complementarias y reforma varios Reg
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-06-17 | la propia norma |
+| 2 | 2019-02-26 | Reglamento 1483 (2019-02-26) |
