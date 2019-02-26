@@ -1,5 +1,5 @@
 Artículo 7º—Requisitos para el Registro del Técnico 2 de Laboratorio Clínico.
 1. Poseer el Título de Bachiller en Enseñanza Media.
 2. Cumplir con alguna de las dos modalidades siguientes:
-a. Haber aprobado un programa de capacitación debidamente avalado por la Junta Directiva del Colegio, e impartido por alguna Institución Pública empleadora de técnicos de laboratorio. Además los laboratorios donde se realizará la formación práctica, deben contar con el aval de la Fiscalía del Colegio de Microbiólogos Químico Clínicos de Costa Rica y tener la estructura académica, infraestructura, equipamiento y condiciones de bioseguridad para garantizar esa formación práctica.
+a. (Derogado mediante sesión N° 47-2018 del 26 de febrero del 2019)
 b. Estudiante universitario con el tercer año aprobado de la carrera de Licenciatura en Microbiología y Química Clínica, de una institución académica reconocida por el Ministerio de Educación o por el Consejo Nacional de Educación Superior Privada, según corresponda. Además los laboratorios donde se realizará la formación práctica, deben contar con el aval de la Fiscalía del Colegio de Microbiólogos Químico Clínicos de Costa Rica y tener la estructura académica, infraestructura, equipamiento y condiciones de bioseguridad para garantizar esa formación práctica.

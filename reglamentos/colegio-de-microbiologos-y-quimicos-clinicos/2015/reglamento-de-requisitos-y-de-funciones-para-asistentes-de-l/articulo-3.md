@@ -1,5 +1,5 @@
 Artículo 3.—Requisitos para el Registro de Asistente Técnico de Laboratorio Clínico:
 1. Poseer el título de Bachiller en Enseñanza Media.
 2. Cumplir con alguna de las dos modalidades siguientes:
-a. Haber aprobado un programa de capacitación debidamente avalado por la Junta Directiva del Colegio, e impartido por alguna Institución Pública empleadora de técnicos de laboratorio y que tenga la estructura académica, infraestructura, equipamiento y condiciones de bioseguridad para garantizar la formación de este personal.
+a. (Derogado mediante sesión N° 47-2018 del 26 de febrero del 2019)
 b. Haber aprobado al menos 5 cursos teórico-prácticos del área de Microbiología y Química Clínica, de un programa de diplomado universitario o parauniversitario. Tanto el ente académico como su programa deben estar previamente reconocidos por el Ministerio de Educación, por el Consejo Superior de Educación o por el Consejo Nacional de Educación Superior Privada, según corresponda. Además los laboratorios donde se realizará la formación práctica, deben contar con el aval de la Fiscalía del Colegio de Microbiólogos Químico Clínicos de Costa Rica y tener la estructura académica, infraestructura, equipamiento y condiciones de bioseguridad para garantizar esa formación práctica.
