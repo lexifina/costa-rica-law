@@ -22,3 +22,4 @@ Reglamento Autónomo de Organización y Servicios de la Municipalidad del Cantó
 | 7 | 2012-06-19 | Reglamento municipal 112 (2012-06-19) |
 | 8 | 2013-01-22 | Reglamento municipal 143 (2013-01-22) |
 | 9 | 2013-10-14 | Reglamento municipal 181 (2013-10-14) |
+| 10 | 2019-02-26 | Reglamento municipal 148 (2019-02-26) |
