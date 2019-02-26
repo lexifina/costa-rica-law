@@ -14,3 +14,4 @@ Diseño de la Política Nacional para la formación, educación y empleabilidad 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-11-23 | la propia norma |
+| 2 | 2019-02-26 | Directriz 43 (2019-02-26) |
