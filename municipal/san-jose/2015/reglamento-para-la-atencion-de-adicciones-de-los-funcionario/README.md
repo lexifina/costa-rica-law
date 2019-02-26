@@ -14,3 +14,4 @@ Reglamento para la atención de adicciones de los funcionarios de la Municipalid
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-09-29 | la propia norma |
+| 2 | 2019-02-26 | Reglamento municipal 148 (2019-02-26) |
