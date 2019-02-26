@@ -14,3 +14,4 @@ Fideicomiso Fondo Social de Migración JADGME/BCR, Reglamento para la Adquisici�
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-07-10 | la propia norma |
+| 2 | 2019-02-26 | Reglamento 7 (2019-02-26) |
