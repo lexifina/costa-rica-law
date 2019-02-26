@@ -1,0 +1,1 @@
+2. Revocar la resolución RCS-078-2015 denominada “Actualización de los requisitos para presentar una solicitud de autorización e información que debe incluirse en la notificación de ampliación de servicios y zonas de cobertura”.

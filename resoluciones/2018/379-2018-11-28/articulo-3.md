@@ -1,0 +1,1 @@
+3. Establecer que para el funcionamiento de los establecimientos y locales conocidos como café internet no requieren autorización de la Superintendencia de Telecomunicaciones conforme con el artículo 23 de la Ley General de Telecomunicaciones, Ley 8642.
