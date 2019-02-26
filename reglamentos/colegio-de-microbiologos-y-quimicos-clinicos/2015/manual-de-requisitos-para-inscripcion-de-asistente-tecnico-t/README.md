@@ -15,3 +15,4 @@ Manual de requisitos para inscripción de asistente técnico, técnico 1, técni
 | --- | --- | --- |
 | 1 | 2015-04-15 | la propia norma |
 | 2 | 2016-08-23 | Reglamento 21 (2016-08-23) |
+| 3 | 2019-02-26 | Reglamento 47 (2019-02-26) |
