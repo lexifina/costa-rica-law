@@ -14,3 +14,4 @@ Suspensión de la ejecución del Reglamento para la Explotación de Servicios Es
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-12-21 | la propia norma |
+| 2 | 2019-02-27 | Decreto Ejecutivo 41573 (2019-02-27) |
