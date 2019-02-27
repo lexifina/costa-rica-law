@@ -1,0 +1,1 @@
+X. —La actualización de límites contenida en esta Resolución, no aplicará a las contrataciones que se encuentren en trámite de refrendo o de aprobación interna, según corresponda, a la fecha de entrada en vigencia de esta Resolución.
