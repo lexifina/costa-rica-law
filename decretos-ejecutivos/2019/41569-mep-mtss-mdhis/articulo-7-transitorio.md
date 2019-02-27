@@ -1,0 +1,1 @@
+Transitorio VII.—El MEP coordinará con la Dirección General del Servicio Civil para gestionar el traslado oportuno y ordenado de las personas funcionarias del FONABE que considere necesario para la correcta implementación del presente decreto. Lo anterior en estricto apego a la normativa atinente a este proceso y garantizando todos los derechos adquiridos.

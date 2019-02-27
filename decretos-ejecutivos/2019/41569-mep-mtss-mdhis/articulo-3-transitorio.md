@@ -1,0 +1,1 @@
+Transitorio III.—En caso de que a la fecha de entrada en vigencia del presente Decreto se detecte que alguna persona beneficiaria por FONABE y trasladada al IMAS, es también beneficiaria del Programa Avancemos, esta seguirá contando con una única transferencia.

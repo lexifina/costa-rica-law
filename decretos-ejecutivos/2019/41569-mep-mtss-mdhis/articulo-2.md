@@ -1,0 +1,1 @@
+Artículo 2º—De los componentes del programa. El programa estará conformado por una Transferencia Monetaria, a cargo del Instituto Mixto de Ayuda Social, en adelante IMAS, y que estará condicionada a la asistencia de la persona beneficiaria a la oferta educativa y formativa a cargo del Ministerio de Educación Pública.
