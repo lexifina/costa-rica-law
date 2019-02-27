@@ -1,0 +1,1 @@
+Artículo 20: Liquidaciones de adelantos: Todo adelanto del fondo debe ser liquidado en tres días hábiles posteriores a la finalización de la actividad o de la compra del bien o servicio, podrá gestionar un nuevo adelanto hasta tener el anterior trámite liquidado.

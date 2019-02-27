@@ -1,0 +1,1 @@
+Artículo 14: Adquisiciones especiales: Se podrán realizar adquisiciones a partir de un 5% y hasta por un máximo del 10% del límite de contratación directa de escasa cuantía, en cuyo caso se requiere que el solicitante emita el criterio técnico que justifique la compra.

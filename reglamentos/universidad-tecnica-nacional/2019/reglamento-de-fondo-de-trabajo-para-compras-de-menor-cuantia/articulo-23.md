@@ -1,0 +1,1 @@
+Artículo 23: Régimen sancionatorio: Los funcionarios que incumplan con las disposiciones estipuladas en este reglamento, serán sancionados de acuerdo a lo correspondiente con la normativa aplicable en esta materia.

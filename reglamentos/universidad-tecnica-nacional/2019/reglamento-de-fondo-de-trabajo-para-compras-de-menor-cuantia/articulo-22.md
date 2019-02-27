@@ -1,0 +1,1 @@
+Artículo 22: Cumplimiento de deberes y obligaciones: Todo funcionario debe garantizar la custodia y buen uso de los recursos de conformidad con lo establecido en este reglamento, en la normativa aplicable y en las sanas prácticas administrativas.
