@@ -15,16 +15,19 @@ Artículo 1.- Modificaciones. Modifíquese los artículos 3, 4; el primer párra
 a. Despacho Ministerial.
 b. Dirección Administrativa Financiera y Oficialía Mayor.
 c. Dirección de Apoyo al Consumidor.
-d. Dirección de Competencia.
+d. Departamento Técnico de Apoyo de la Comisión para Promover la Competencia(*).
+(*) (Modificada su denominación por el artículo 4° del decreto ejecutivo N° 41689 del 28 de febrero del 2019. Anteriormente se indicaba: “Dirección de Competencia”)
 e. Dirección General de la Pequeña y Mediana Empresa.
 f Dirección de Mejora Regulatoria.
 g. Dirección de Calidad.
 h. Dirección de Investigaciones Económicas y de Mercados.
 i. Dirección de Defensa Comercial. "
-"Artículo 4.- Conformación. El Despacho Ministerial está conformado por el Despacho (de la) Ministro(a), el o los Despachos ( de la) Viceministro(a) o (os o as), la Auditoría Interna, la Unidad Asesoría Jurídica, la Unidad de Planificación Institucional, la Unidad de Relaciones Públicas y Prensa y la Unidad de Cooperación Internacional. "
+"Artículo 4.- Conformación. El Despacho Ministerial está conformado por el Despacho (de la) Ministro(a), el o los Despachos ( de la) Viceministro(a) o (os o as), la Auditoría Interna, la Unidad Asesoría Jurídica, la Unidad de Planificación Institucional, la Unidad de Relaciones Públicas y Prensa y la Unidad de Planificación(*). "
+(*) (Modificada su denominación por el artículo 4° del decreto ejecutivo N° 41689 del 28 de febrero del 2019. Anteriormente se indicaba: “Unidad de Cooperación Internacional”)
 ''Artículo 8 º-De la Unidad Asesoría Jurídica. Es la Unidad encargada de asesorar y tramitar para los Despachos y demás dependencias, los asuntos jurídicos que le sean sometidos a su conocimiento, dentro de las competencias del MEIC, para el logro de sus objetivos le corresponde:
 (. . .)
-d. Elaborar y revisar los convenios y tratados internacionales, donde sea parte la Institución en coordinación con la Unidad de Cooperación Internacional.
+d. Elaborar y revisar los convenios y tratados internacionales, donde sea parte la Institución en coordinación con la Unidad de Planificación(*).
+(*) (Modificada su denominación por el artículo 4° del decreto ejecutivo N° 41689 del 28 de febrero del 2019. Anteriormente se indicaba: “Unidad de Cooperación Internacional”)
 (. . .)
 i. Realizar el procedimiento de nulidad en sede administrativa regulado en el artículo 17 3 de la Ley General de la Administración Pública o iniciar un proceso judicial de lesividad para demostrar que los requisitos correspondientes no fueron cumplidos".
 ''Artículo 9 º-De la Unidad de Planificación Institucional. Esta Unidad tendrá a su cargo establecer el enlace necesario entre el Ministerio de Planificación Nacional y la Institución, en todo lo relativo al dictado o modificación de políticas, estrategias, objetivos, misión, visión, las evaluaciones anuales institucionales y lo relacionado -con la Contraloría de Servicios y Control Interno, desde donde se ejecutarán las siguientes funciones: (. .. .)"
@@ -62,7 +65,8 @@ u. Cualquier otra función asignada por los superiores. "
 q. Facilitar información a la Dirección de Calidad sobre el comportamiento e incidencia de las consultas de los consumidores que sirvan de base, para la elaboración de programas de actividades de investigación y verificación de mercado.
 ( ... )".
 "CAPÍTULO V
-De la Dirección de Competencia"
+De la Departamento Técnico de Apoyo de la Comisión para Promover la Competencia(*)"
+(*) (Modificada su denominación por el artículo 4° del decreto ejecutivo N° 41689 del 28 de febrero del 2019. Anteriormente se indicaba: “Dirección de Competencia”)
 "Artículo 24.-Dirección de la Competencia. Esta Dirección es el encargado de dar cumplimiento a lo ordenado por la Ley Nº 7472, le corresponderá ejecutar las siguientes funciones:"
 "CAPÍTULO VI
 Dirección de Mejora Regulatoria"
@@ -162,7 +166,8 @@ e. Coordinar con las CIDE, todas las tareas de registro en el SIEC, desde la rec
 g. Elaborar estadísticas y reportes de las empresas registradas. en el SIEC así como el análisis de diferente información sobre las características de las empresas integradas al registro, del trámite de exoneraciones y otras tareas. (. . .)"
 "Artículo 47.-Generalidades. Todas las direcciones, unidades y departamentos, además de las funciones que le corresponden deberán cumplir con las siguientes:
 (. . . )
-n. Coordinar con la Unidad de Cooperación Internacional la elaboración, presentación y ejecución de los programas y proyectos relacionados con su competencia que requieran de recursos de cooperación internacional, así como la conformidad de los viajes al exterior .
+n. Coordinar con la Unidad de Planificación(*) la elaboración, presentación y ejecución de los programas y proyectos relacionados con su competencia que requieran de recursos de cooperación internacional, así como la conformidad de los viajes al exterior .
+(*) (Modificada su denominación por el artículo 4° del decreto ejecutivo N° 41689 del 28 de febrero del 2019. Anteriormente se indicaba: “Unidad de Cooperación Internacional”)
 o. Brindar la información solicitada por la Unidad de Planificación Institucional, en tiempo, suficiencia, certeza y claridad.
 (. . .)
 q. Todas las Comisiones y comités institucionales que deben funcionar de acuerdo con la normativa vigente, deben presentar su plan de trabajo anual, así como los informes de seguimiento semestral y cumplimiento anual a la Unidad de Planificación Institucional.

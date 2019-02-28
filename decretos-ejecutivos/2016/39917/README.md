@@ -14,3 +14,4 @@ Reforma Reglamento a la Ley N° 6054 "Ley Orgánica del Ministerio del Economía
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-09-29 | la propia norma |
+| 2 | 2019-02-28 | Decreto Ejecutivo 41689 (2019-02-28) |
