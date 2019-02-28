@@ -9,5 +9,7 @@ Por tanto,
 DECRETAN:
 “REGLAMENTO A LA LEY ORGÁNICA DEL MINISTERIO DE ECONOMÍA,
 INDUSTRIA Y COMERCIO, LEY N° 6054 DEL 14 DE JUNIO DE 1977”
+Título Primero: De la Estructura Organizativa del MEIC
+(Así adicionado el título primero anterior por el artículo 3° del decreto ejecutivo N° 41689 del 28 de febrero del 2019)
 CAPÍTULO I
 Artículo 1º—Del Ministerio de Economía, Industria y Comercio. El presente reglamento regula la organización y funcionamiento del Ministerio de Economía, Industria y Comercio (MEIC).

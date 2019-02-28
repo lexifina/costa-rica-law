@@ -17,3 +17,4 @@ Reglamento a la Ley N° 6054 "Ley Orgánica del Ministerio del Economía, Indust
 | 2 | 2013-09-17 | Decreto Ejecutivo 37943 (2013-09-17) |
 | 3 | 2014-01-30 | Decreto Ejecutivo 38214 (2014-01-30) |
 | 4 | 2016-08-26 | Decreto Ejecutivo 39917 (2016-08-26) |
+| 5 | 2019-02-28 | Decreto Ejecutivo 41689 (2019-02-28) |

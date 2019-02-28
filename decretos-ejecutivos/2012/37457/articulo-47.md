@@ -14,8 +14,9 @@ j. Analizar y resolver problemas que se presentan en el desarrollo de las labore
 k. Rendir cuentas de su labor ante el Despacho Ministerial, así como ante otras instituciones y dependencias cuando la naturaleza del trabajo así lo requiera.
 l. Cuando lo requiera el jerarca, representar a la institución ante comisiones, comités, grupos de trabajo, seminarios, talleres, nacionales e internacionales en materia de su competencia.
 m. Asistir a reuniones con superiores o subalternos y representar a la institución, con el fin de coordinar actividades, mejorar métodos y procedimientos de trabajo, analizar y resolver problemas que se presentan en el desarrollo de las labores y proponer a los niveles superiores las políticas, planes, programas y proyectos de trabajo a realizar.
-n. Coordinar con la Unidad de Cooperación Internacional la elaboración, presentación y ejecución de los programas y proyectos relacionados con su competencia que requieran de recursos de cooperación internacional, así como la conformidad de los viajes al exterior .
+n. Coordinar con la Unidad de Planificación(*) la elaboración, presentación y ejecución de los programas y proyectos relacionados con su competencia que requieran de recursos de cooperación internacional, así como la conformidad de los viajes al exterior .
 (Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 39917 del 26 de agosto del 2016)
+(*) (Modificada su denominación por el artículo 4° del decreto ejecutivo N° 41689 del 28 de febrero del 2019. Anteriormente se indicaba: “Unidad de Cooperación Internacional”)
 o. Brindar la información solicitada por la Unidad de Planificación Institucional, en tiempo, suficiencia, certeza y claridad.
 (Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 39917 del 26 de agosto del 2016)
 p. Cuando informes, investigaciones y/o estudios que se realicen arrojen datos no confidenciales económicos, mercado y otro de un bien, servicio y/o sector se debe remitir una copia de los mismos a la Dirección de Investigaciones Económicas y de Mercado, para alimentar la base de datos económicos y de mercado.

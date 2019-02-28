@@ -9,4 +9,10 @@ g) Fomentar la gestación de proyectos de desarrollo económico local.
 h) Participar en comités técnicos mixtos que se creen para el diseño de programas particulares de apoyo a la PYME.
 i) Promover la creación de centros de comercialización para PYME.
 j) Ejecutar otras funciones del ámbito de su competencia, cuando las necesidades de la institución lo requiera, con el fin de coadyuvar a resolver integralmente los problemas de volumen y nuevas competencias asignadas a ésta.
+k. Formular y evaluar las políticas y estrategias de apoyo a las PYME considerando las recomendaciones del Consejo Asesor Mixto de la PYME, en materia de articulación productiva
+(Así adicionado el inciso anterior por el artículo 2° del decreto ejecutivo N° 41689 del 28 de febrero del 2019)
+l. Crear programas de capacitación y asesoría dirigidos a las PYME a fin de que participen en los procesos de licitación de bienes y servicios del sector público.
+(Así adicionado el inciso anterior por el artículo 2° del decreto ejecutivo N° 41689 del 28 de febrero del 2019)
+m. Diseñar y ejecutar políticas y programas de asesoría a las PYME en compras del estado.
+(Así adicionado el inciso anterior por el artículo 2° del decreto ejecutivo N° 41689 del 28 de febrero del 2019)
 (Así reformado por el artículo 1° del decreto ejecutivo N° 39917 del 26 de agosto del 2016)

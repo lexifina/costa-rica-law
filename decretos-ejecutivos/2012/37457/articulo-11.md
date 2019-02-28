@@ -1,4 +1,5 @@
-Artículo 11.— De la Unidad de Cooperación Inter nacional. A Esta Unidad le corresponderá ejecutar las siguientes funciones:
+Artículo 11.— De la Unidad de Planificación(*). A Esta Unidad le corresponderá ejecutar las siguientes funciones:
+(*) (Modificada su denominación por el artículo 4° del decreto ejecutivo N° 41689 del 28 de febrero del 2019. Anteriormente se indicaba: “Unidad de Cooperación Internacional”)
 a. Brindar a MIDEP LAN la información para la elaboración de la Agenda de Cooperación Internacional No Reembolsable u otros documentos similares.
 b. Coordinar y fortalecer las relaciones con los organismos de Cooperación Internacional, para facilitar y complementar el cumplimiento de las prioridades institucionales definidas en el Plan .Nacional de Desarrollo y el Plan Estratégico Institucional, para ello se respetarán los canales oficiales de acuerdo con la normativa vigente.
 c. Ser el representante del MEIC ante el Sistema de Enlaces de Cooperación Internacional y el Comité Técnico de Cooperación Internacional, en el marco de la Cooperación Técnica entre Países en Desarrollo (CTPD) y la Triangulación.
