@@ -1,0 +1,2 @@
+TRANSITORIO ÚNICO- Todas aquellas concesiones de cauce de dominio público, otorgadas de previo a la aprobación de la presente ley y que se encuentren vigentes, podrán tramitar la prórroga respectiva, siempre que se ajusten a la normativa vigente y cuenten con la viabilidad ambiental para el nuevo período de concesión.
+(Así adicionado por el artículo único de la ley N° 9647 del 19 de diciembre del 2018)
