@@ -1,9 +1,11 @@
-Artículo 102°.-Valoración final del postulante en las Pruebas Nacionales de Bachillerato en Educación Media. La calificación final del postulante en cada una de las asignaturas, se determinará mediante la combinación porcentual de la calificación obtenida en la respectiva prueba de bachillerato con la nota de presentación de la persona estudiante.
-La nota de presentación se define como el promedio de las calificaciones obtenidas por la persona estudiante en décimo año y en los dos primeros trimestres de undécimo año en Español, Matemática, Estudios Sociales y Educación Cívica, Inglés o Francés (según corresponda) y Biología, Química o Física (según corresponda). Para el caso de los colegios técnicos se considerarán las calificaciones obtenidas por la persona estudiante en décimo año, undécimo año y los dos primeros trimestres de duodécimo año en las mismas asignaturas señaladas anteriormente.
-Para los estudiantes del III Nivel del Plan de Estudios de Educación de Adultos, se tomarán en cuenta las calificaciones de las asignaturas antes citadas en los periodos aprobados en cada módulo al momento de enviar la información respectiva.
-La combinación porcentual señalada para el cálculo de la calificación final se realizará en la forma siguiente:
-a) La nota de presentación correspondiente al promedio de las calificaciones señaladas en el párrafo anterior constituirá el 40 % del total de la calificación final de la asignatura.
-b) La calificación obtenida en la respectiva Prueba Nacional de Bachillerato tendrá un valor del 60% del total de la calificación final de la asignatura.
-La calificación de la Prueba Nacional de Bachillerato en Español será el promedio de las calificaciones que obtenga el postulante en Composición y Ortografía y Gramática y Literatura.
-La calificación de cualquier otra asignatura que contenga ítems de desarrollo será definida por la Dirección de Gestión y Evaluación de la Calidad.
-Para todos los casos anteriores, la escala utilizada será de 1 a 100.
+Artículo 102.- Obtención del Certificado de Conclusión de Estudios del I y II Ciclos de la Educación General Básica y el Título de Bachiller en Educación Media para la población estudiantil que cuenta con el apoyo de la adecuación curricular significativa: la persona estudiante que cuenta con el apoyo de la adecuación curricular significativa es acreedor al certificado o título al cumplir los siguientes requisitos:
+a) Certificado de Conclusión de Estudios del I y II Ciclos de la Educación General Básica:
+• Realizar las pruebas comprensivas de cierre de ciclo elaboradas por los docentes de las asignaturas de Ciencias, Español, Estudios Sociales y Matemáticas.
+• Aprobar todas las asignaturas del II Ciclo de la Educación General Básica, o los periodos o módulos del 1 nivel del Plan de Estudio de Educación de Adultos, de acuerdo con la Programación Educativa Individual de la persona estudiante, en adelante PEI, por sus siglas.
+• Cumplir con la obtención de la calificación mínima de 65 aplicando las disposiciones previstas en el inciso j) del artículo 103 de este reglamento.
+b) Título de Bachiller en Educación Media:
+• Realizar las pruebas comprensivas de cierre de ciclo elaboradas por los docentes de las asignaturas correspondientes, según se indica en el artículo 103 de este reglamento.
+• Aprobar todas las asignaturas de la Educación Diversificada o los módulos o periodos del III nivel del Plan de Estudio de Educación de Adultos, de acuerdo con la PEl.
+• Los estudiantes deben obtener la calificación mínima de 70 prevista en el inciso j) del artículo 104 de este reglamento.
+• Los títulos de Bachiller en Educación Media de la población estudiantil que cursó y aprobó la Educación Diversificada con el apoyo de la adecuación curricular significativa se inscribirán en el registro que para este efecto llevará la Dirección de Evaluación y Gestión de la Calidad.
+(Así reformado por el artículo 3° del decreto ejecutivo N° 41686 del 28 de febrero del 2019)

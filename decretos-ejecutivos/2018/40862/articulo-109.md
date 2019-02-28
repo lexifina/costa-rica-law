@@ -1,1 +1,4 @@
-Artículo 109°.-Bachillerato de Excelencia. El título de Bachiller en Enseñanza Media se hará acompañar de la mención de Bachiller con Excelencia, cuando el postulante hubiere obtenido una calificación igual o superior a noventa en cada una de las pruebas de bachillerato.
+Artículo 109.- De la persona postulante que obtenga notas inferiores a las establecidas para optar por el Certificado de conclusión de I y II Ciclo de la Educación General Básica y el Título de Bachiller en Educación Media. La persona estudiante que de conformidad con el artículo 103, inciso c) y j) y el artículo 104, inciso c) y j), obtenga notas inferiores a las establecidas podrá elegir lo siguiente:
+a) Realizar convocatorias posteriores de la o las pruebas nacionales FARO en las cuales obtuvo notas inferiores a las requeridas para optar por el título correspondiente. En estos casos el estudiantado conservará la calificación obtenida más favorable.
+b) Realizar pruebas nacionales de Bachillerato de Educación Abierta, según las disposiciones desarrolladas en el artículo 110 de este reglamento.
+(Así reformado por el artículo 3° del decreto ejecutivo N° 41686 del 28 de febrero del 2019)

@@ -1,7 +1,10 @@
-Artículo 98°.-Requisito del Servicio Comunal Estudiantil. Aunadas a las disposiciones del artículo anterior, con el fin de poseer la condición de postulante a las pruebas nacionales de bachillerato, el estudiantado deberá realizar el servicio comunal estudiantil en décimo año, en los colegios académicos y en undécimo año en los colegios técnicos, como complemento de las tareas académicas; el cual comprende una labor de 30 horas reloj durante el curso lectivo correspondiente.
-Quedan exentos de este requisito los postulantes de los centros educativos o programas expresamente excluidos por acuerdo del Consejo Superior de Educación.
-Este servicio comunal estudiantil tendrá los siguientes objetivos:
-a) Fortalecer los valores cívicos de la persona estudiante.
-b) Desarrollar los sentimientos de solidaridad y comprensión humanas.
-c) Establecer sentimientos de compromiso y desarrollar actitudes de cooperación para con la comunidad.
-d) Proyectar el centro educativo en su entorno social y económico.
+Artículo 98°.-Solicitudes de reprogramación de pruebas nacionales FARO. Las personas estudiantes que no puedan presentarse a la convocatoria ordinaria de las pruebas nacionales FARO con motivo de:
+a) Enfermedad grave.
+b) Muerte de un familiar en primer grado.
+c) Participación en delegaciones o representaciones nacionales oficiales.
+d) Situaciones de caso fortuito o fuerza mayor que imposibiliten la participación en la convocatoria.
+Podrán gestionar ante la dirección del centro educativo la solicitud de reprogramación de las pruebas nacionales FARO correspondientes.
+La solicitud de reprogramación debe ser firmada por el encargado legal de la persona estudiante o la persona estudiante mayor de edad y el director o directora del centro educativo, a su vez se debe acompañar del material probatorio correspondiente.
+Esta solicitud será remitida para valoración por el director o directora del centro educativo a la Dirección de Gestión y Evaluación de la Calidad por los medios y plazos definidos por dicha Dirección.
+La Dirección de Gestión y Evaluación de la Calidad, comunicará la resolución del caso en el plazo de diez días hábiles posteriores a la recepción de la solicitud de reprogramación.
+(Así reformado por el artículo 3° del decreto ejecutivo N° 41686 del 28 de febrero del 2019)

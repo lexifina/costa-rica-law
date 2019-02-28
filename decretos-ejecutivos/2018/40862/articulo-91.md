@@ -1,8 +1,3 @@
-Artículo 91°.-Funciones de delegados aplicadores y tutores de Pruebas Nacionales. Corresponde a los aplicadores y a los tutores de pruebas nacionales:
-a) Cumplir con todas las disposiciones contenidas en protocolos de aplicación (instructivo) para el delegado aplicador y tutor, proporcionado por la Dirección de Gestión y Evaluación de la Calidad.
-b) Explicar a los estudiantes en forma general, al inicio de la prueba, el contenido y estructura de esta, según las disposiciones indicadas en el instructivo que para este fin haya elaborado la Dirección de Gestión y Evaluación de la Calidad.
-c) Garantizar que el desarrollo de la prueba se realice en condiciones que aseguren la validez y confiabilidad de sus resultados.
-d) Garantizar que los estudiantes realicen su trabajo según las indicaciones previamente establecidas en el instructivo que para este fin haya elaborado la Dirección de Gestión y Evaluación de la Calidad.
-e) Atender cualquier circunstancia especial, propia en la administración de la prueba, que se produjere durante el desarrollo de esta.
-f) Entregar al delegado ejecutivo, debidamente ordenados, los cuadernillos, los cuestionarios y las hojas de respuestas de los estudiantes.
-g) Cualquier otra que se señale en este reglamento o que deriven de la naturaleza de sus funciones.
+Artículo 91°.- Deber de acatamiento al principio de probidad y confidencialidad. En atención al principio de probidad que rige la función pública, los funcionarios de la Dirección de Gestión y Evaluación de la Calidad, los delegados ejecutivos, los delegados asistentes, los delegados de aula, los tutores especialistas y otros funcionarios que participen en las pruebas nacionales FARO, deben garantizar la confidencialidad en el proceso de elaboración, distribución y aplicación de dichas pruebas, absteniéndose de sustraer, suministrar, reproducir, distribuir o publicar cualquier dato o material relacionado con las mismas.
+El incumplimiento de las disposiciones anteriores, significará el inicio de los procedimientos correspondientes a efecto de determinar la responsabilidad administrativa y disciplinaria de los funcionarios implicados.
+(Así reformado por el artículo 3° del decreto ejecutivo N° 41686 del 28 de febrero del 2019)

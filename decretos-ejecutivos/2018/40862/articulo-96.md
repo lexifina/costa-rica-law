@@ -1,12 +1,5 @@
-SECCIÓN III
-Pruebas Nacionales de Bachillerato en Educación Media
-Artículo 96°.-De lo que se mide en las Pruebas Nacionales de Bachillerato en Educación Media. Las pruebas nacionales de Bachillerato en Educación Media serán comprensivas de lo contenido en los programas de estudio de la Educación Diversificada, aprobados por el Consejo Superior de Educación, para cada una de las asignaturas de:
-a) Español
-b) Estudios Sociales
-c) Educación Cívica
-d) Ciencias
-e) Matemática
-f) Lengua Extranjera
-Se hará una prueba por cada una de las seis asignaturas señaladas.
-En las asignaturas del área de Ciencias, la persona estudiante escogerá entre Física, Química o Biología. En Lengua Extranjera, la persona estudiante escogerá entre Inglés o Francés.
-Cualquiera de las pruebas detalladas en este artículo podrá ser subdividida en dos o más partes.
+Artículo 96°.- Inscripción facultativa para la convocatoria de pruebas nacionales FARO. Corresponde al director o directora del centro educativo o coordinador de sede realizar la inscripción de la población estudiantil en las pruebas nacionales FARO en el sexto año del II Ciclo la Educación General Básica, así como a los estudiantes del VI periodo, del I nivel del Plan de Estudio de Educación de Adultos.
+En la Educación Diversificada, el director o directora del centro educativo o coordinador de sede inscribe en las pruebas nacionales FARO a la población del undécimo o duodécimo año, según corresponda; así como a los estudiantes que cursan el IV periodo del III nivel del Plan de Estudio de la Educación de Adultos.
+Este proceso de inscripción se desarrolla a solicitud del estudiantado, según las disposiciones contenidas en el protocolo de inscripción establecido por la Dirección de Gestión y Evaluación de la Calidad.
+Corresponde al supervisor o supervisora de cada circuito educativo la fiscalización del proceso de inscripción ejecutado por las direcciones de los centros educativos, según el protocolo establecido por la Dirección de Gestión y Evaluación de la Calidad.
+(Así reformado por el artículo 3° del decreto ejecutivo N° 41686 del 28 de febrero del 2019)

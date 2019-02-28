@@ -1,5 +1,3 @@
-Artículo 87°.-Duración de las Pruebas Nacionales. Cada una de las pruebas nacionales señaladas en el artículo 79 de este reglamento deben ser elaboradas de forma tal que su desarrollo o ejecución no sobrepase, en ningún caso la siguiente duración:
-a) Pruebas nacionales diagnósticas, ciento ochenta minutos.
-b) Pruebas nacionales de bachillerato en educación media, ciento ochenta minutos.
-Se exceptúan de esta norma aquellas asignaturas que por su naturaleza consten de dos partes, para cuyo caso cada una constará de ciento veinte minutos.
+Artículo 87°.- Duración de Las pruebas nacionales FARO. Las pruebas nacionales señaladas en el artículo 79°-., inciso a) de este reglamento, se elaboran de forma tal que su desarrollo o ejecución no sobrepase, en ningún caso, ciento ochenta minutos, salvo aquellas que por decisión técnica de la Dirección de Gestión y Evaluación de la Calidad requieran alguna modificación.
 No podrán realizar la prueba nacional respectiva, aquellos postulantes que se presenten treinta minutos o más después de iniciada esta.
+(Así reformado por el artículo 3° del decreto ejecutivo N° 41686 del 28 de febrero del 2019)
