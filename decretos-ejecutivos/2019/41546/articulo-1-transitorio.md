@@ -1,0 +1,1 @@
+TRANSITORIO I.-Los participantes de las mesas de trabajo del sector público, deberán ser nombrados por el respectivo jerarca en el plazo de tres meses contados a partir de la vigencia de este decreto, un titular y un suplente.

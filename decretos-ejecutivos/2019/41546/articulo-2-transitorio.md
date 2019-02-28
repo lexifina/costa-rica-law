@@ -1,0 +1,1 @@
+TRANSITORIO II.-El primer informe para conocimiento del Consejo de Gobierno correspondiente al periodo 2019 se rendirá a más tardar el 31 de marzo de 2020. Los siguientes informes anuales se rendirán en lo sucesivo a partir de ese periodo.

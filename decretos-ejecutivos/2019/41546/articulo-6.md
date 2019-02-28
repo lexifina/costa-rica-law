@@ -1,0 +1,6 @@
+Artículo 6.- Funciones de la mesa de trabajo. Los integrantes de la mesa de trabajo deberán:
+a) Ejecutar las acciones acordadas con el fin de alcanzar los objetivos trazados en la hoja de ruta convenida.
+b) Informar del avance en los distintos planes de trabajo acordados, en los que tuvieren participación directa.
+c) Promover el intercambio de recursos que cada organización participante pueda proveer, para alcanzar los objetivos trazados en esta iniciativa, evitando la duplicidad de esfuerzos y propiciando la maximización de los recursos.
+d) Procurar que el desarrollo de conocimientos para el uso eficiente y responsable de los productos y servicios financieros por parte de toda la población, se nutra de estándares internacionales y mejores prácticas, a partir de las recomendaciones vertidas por la Organización para la Cooperación y Desarrollo Económicos, así como también podrá basarse en principios y propuestas derivadas de implementaciones exitosas de otros organismos multilaterales, nacionales e internacionales.
+e) Conocer el informe anual sobre las acciones, iniciativas y programas de educación financiera que será realizado por el Jerarca del Ministerio de Economía, Industria y Comercio, previo a su presentación en el Consejo de Gobierno.
