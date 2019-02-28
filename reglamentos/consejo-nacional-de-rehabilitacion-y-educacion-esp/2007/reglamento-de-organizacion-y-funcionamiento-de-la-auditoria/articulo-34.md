@@ -1,1 +1,0 @@
-Artículo 34.—El Auditor Interno debe establecer mecanismos de coordinación para que la Departamento Administrativo Financiero lleve un registro separado del monto asignado y aprobado a la Auditoría Interna, detallado por objeto del gasto, para que pueda controlar la ejecución y modificaciones de los recursos presupuestados a la Auditoría.

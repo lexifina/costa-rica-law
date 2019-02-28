@@ -1,5 +1,0 @@
-CAPÍTULO V
-Del personal de la Auditoría Interna
-Artículo 24.—El Auditor Interno actuará como jefe del personal de su Oficina y tiene la potestad para autorizar movimientos (nombramientos, traslados, la suspensión, remoción, concesión de licencias y demás nombramientos) de personal en la auditoría interna, lo anterior, considerando lo estipulado en los artículos 24 y 28 de la Ley General de Control Interno. Además prevalecerá su criterio técnico en el nombramiento del personal que labora en la Oficina de Auditoría Interna.
-En caso de que el cargo de Auditor Interno esté ocupado interinamente ejercerá esa potestad únicamente para el nombramiento de personal y no para la disminución de plazas.
-El Auditor Interno es el único autorizado para dirigir, según su criterio, las labores de la Auditoría Interna, a cuyo efecto será el jefe del personal de la Auditoría y organizará dicha oficina según la técnica en la materia y en la forma que considere más apropiada para el desempeño de su cometido, conforme a las disposiciones legales y reglamentarias vigentes.

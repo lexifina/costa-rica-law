@@ -1,1 +1,0 @@
-Artículo 26.—El Auditor Interno vigilará y tomará las decisiones que correspondan para que los funcionarios de la Auditoría Interna cumplan en el ejercicio de sus competencias, con la normativa jurídica y técnica pertinente, así como con las políticas, procedimientos, prácticas y demás disposiciones administrativas (institucionales y de la Auditoría Interna) aplicables.

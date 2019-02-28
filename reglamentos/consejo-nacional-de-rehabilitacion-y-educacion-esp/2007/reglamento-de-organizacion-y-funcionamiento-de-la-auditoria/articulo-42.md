@@ -1,1 +1,0 @@
-Artículo 42.—Los servicios de auditoría se refieren a que las auditorias pueden ser financieras, operativas, de sistemas o de carácter especial y estarán encaminadas, fundamentalmente, a evaluar la eficacia, eficiencia, economía y legalidad del sistema de control interno y promover su mejora.

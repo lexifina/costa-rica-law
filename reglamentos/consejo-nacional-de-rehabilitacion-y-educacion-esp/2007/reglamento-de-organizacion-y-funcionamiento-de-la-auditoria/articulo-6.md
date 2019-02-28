@@ -1,1 +1,0 @@
-Artículo 6º—El Auditor Interno establecerá y mantendrá actualizado el Código de Ética, el cual deberá ser acatado obligatoriamente por los funcionarios de la Auditoría, al conducirse en sus diferentes relaciones internas y externas.
