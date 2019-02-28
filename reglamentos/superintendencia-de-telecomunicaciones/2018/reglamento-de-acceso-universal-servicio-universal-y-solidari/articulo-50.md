@@ -1,0 +1,7 @@
+Artículo 50.- Procedencia de la compensación en la imposición de obligaciones El operador de redes o proveedor de servicios de telecomunicaciones que haya sido designado para la prestación de las obligaciones impuestas del acceso universal o servicio universal obtendrá compensación, cuando se cumplan todas las siguientes condiciones:
+1) La prestación de las obligaciones implique un costo neto.
+2) El costo neto represente una desventaja competitiva.
+3) El costo neto aprobado por la Sutel justifique los costos administrativos de gestión y financiamiento de las obligaciones.
+Previa verificación del cumplimiento de los criterios anteriores por parte de la Sutel y conforme con un informe positivo cuando así se requiera, se iniciará con los procedimientos para la compensación al operador o proveedor prestador de las obligaciones.
+Los operadores e redes y proveedores de servicios de telecomunicaciones con obligaciones de acceso o servicio universal serán responsables de solicitar y fundamentar anualmente a la Sutel el pago del costo neto. Deberán mantener un sistema de contabilidad de costos independiente (separada) y presentar una auditoría anual de la contabilidad separada del proyecto por alguna de las firmas de contabilidad previamente registradas ante la Sutel, según lo dispuesto por el artículo 36 de este reglamento.
+Cuando se haya identificado la existencia de un costo neto, la Sutel determinará, mediante resolución motivada, si dicho costo implica una desventaja competitiva para la empresa prestadora del servicio universal.

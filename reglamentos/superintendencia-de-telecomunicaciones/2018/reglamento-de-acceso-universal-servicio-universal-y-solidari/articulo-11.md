@@ -1,0 +1,10 @@
+Artículo 11.- Dotación de bienes o servicios. De conformidad con lo establecido en el artículo 32 y el Transitorio VI de la Ley General de Telecomunicaciones, para cumplir con los objetivos fundamentales del régimen de acceso universal, servicio universal y solidaridad; se deberá dotar a sus beneficiarios de los siguientes bienes y/o servicios:
+a. Servicios de telecomunicaciones de calidad, de manera oportuna, eficiente y a precios asequibles y competitivos.
+b. La provisión de Infraestructura para proveer el Acceso a los servicios de Voz e Internet enel Área de Servicio, que permita el Acceso a los servicios definidos en el Plan Nacional de Desarrollo de las Telecomunicaciones.
+c. El servicio de Soporte y Mantenimiento de la infraestructura para proveer el Acceso a los servicios de Voz e Internet en el Área de Servicio.
+d. Dispositivos de acceso para la utilización de los servicios de telecomunicaciones.
+e. Subsidio en el pago de servicios de telecomunicaciones de acuerdo con lo establecido en el Transitorio VI de la Ley General de Telecomunicaciones y lo que establezca la política pública a través del Plan Nacional de Desarrollo de las Telecomunicaciones.
+La dotación de los bienes y/o servicios indicados, se hará de conformidad con los medios de selección de proveedores de servicios de telecomunicaciones, indicados en la Ley General de Telecomunicaciones y desarrollados en el Título IV, Capítulos II y III del presente reglamento.
+Los servicios de telecomunicaciones que se podrán dotar son los servicios definidos en el Plan Nacional de Desarrollo de las Telecomunicaciones. La definición mínima de la velocidad de
+internet a los centros de prestación de servicios públicos será establecida por medio del Plan Nacional de Desarrollo de las Telecomunicaciones con la recomendación técnica de la Sutel, de acuerdo a las posibilidades financieras.
+La Sutel definirá en el alcance de los proyectos, el plazo de la dotación de los bienes o servicios que requieren del pago con cargo al Fondo, por un periodo definido; de conformidad con lo establecido en el artículo 30 del presente Reglamento.

@@ -1,0 +1,1 @@
+Artículo 28.- Incumplimiento en la obligación de contribuir con Fonatel. El incumplimiento de la obligación de contribuir a Fonatel por parte de los operadores de redes o proveedores de servicios de telecomunicaciones, estará sujeta a las sanciones reguladas en el Título V, Capítulo Único de la Ley General de Telecomunicaciones.

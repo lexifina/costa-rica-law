@@ -1,0 +1,2 @@
+Artículo 57.- Acreditación. La acreditación de las personas físicas y jurídicas que formarán parte del registro, la efectuará el Consejo de la Sutel, en el plazo definido en el procedimiento correspondiente. La lista de las personas físicas y jurídicas acreditadas, será publicada en dos diarios de circulación nacional y en la página Web de la Sutel.
+La Sutel, mantendrá disponible el registro de firmas acreditadas, en su página Web.

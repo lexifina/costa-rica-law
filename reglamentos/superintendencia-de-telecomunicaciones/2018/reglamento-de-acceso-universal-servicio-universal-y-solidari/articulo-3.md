@@ -1,0 +1,1 @@
+Artículo 3.- Alcance del reglamento. Las disposiciones de acceso universal, servicio universal y solidaridad, establecidas en la Ley General de Telecomunicaciones y desarrolladas en este reglamento, son irrenunciables y de aplicación obligatoria.

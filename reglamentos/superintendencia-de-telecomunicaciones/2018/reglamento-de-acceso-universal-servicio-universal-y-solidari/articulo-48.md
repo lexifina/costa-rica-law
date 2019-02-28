@@ -1,0 +1,4 @@
+CAPÍTULO III
+IMPOSICIÓN DE OBLIGACIONES
+Artículo 48.- Imposición de obligaciones a los operadores de redes o proveedores de servicios de telecomunicaciones, para el cumplimiento de prestaciones específicas de acceso y servicio universal.. En atención a lo establecido en el artículo 36 inciso a) de la Ley General de Telecomunicaciones, para la asignación de recursos de Fonatel, se podrán imponer obligaciones a operadores o proveedores de servicios de telecomunicaciones para que lleven a cabo determinada obligación de acceso universal, servicio universal y solidaridad, de conformidad con lo establecido en el artículo 34 de este reglamento.
+Serán de aplicación supletoria para la imposición de obligaciones, las disposiciones en cuanto a la adjudicación por concurso de las prestaciones de acceso universal y servicio universal, dispuestas en el presente reglamento.

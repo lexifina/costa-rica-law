@@ -1,0 +1,1 @@
+Artículo 46.- Supervisión y seguimiento de los programas y proyectos. A la Sutel le corresponderá, de forma directa o indirecta, la supervisión y fiscalización de las obligaciones de acceso universal, servicio universal y solidaridad.

@@ -1,0 +1,5 @@
+Artículo 37.- Disminución o eliminación del financiamiento. De conformidad con lo establecido en el artículo 37 de la Ley General de Telecomunicaciones, la Sutel, mediante resolución fundada luego de la aplicación del debido proceso sumario de la Ley General de la Administración Pública, disminuirá o suspenderá el financiamiento a los operadores de redes y proveedores de servicios de telecomunicaciones designados, cuando se dé al menos una de las siguientes situaciones:
+a) Se modifiquen o desaparezcan las condiciones, que dieron origen a la subvención o compensación, de manera que la prestación del servicio de que se trate no implique un déficit o la existencia de una desventaja competitiva para el operador o proveedor;
+b) El operador o proveedor a quien se asignan los recursos incumpla con sus obligaciones, o deje de ser operador o proveedor;
+c) Por razones de interés público, caso fortuito o fuerza mayor.
+En este último caso y cuando proceda, previo análisis y cuantificación mediante acto motivado, la Sutel deberá indemnizar al operador o proveedor los daños y perjuicios debidamente demostrados.

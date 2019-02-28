@@ -1,0 +1,1 @@
+Artículo 61.- Derogatoria. Deróguese el Reglamento de Acceso Universal, Servicio Universal y Solidaridad, decretado por la Junta Directiva de la Autoridad Reguladora de los Servicios Públicos, publicado en el Alcance N° 40 a La Gaceta N° 201, del 17 de octubre del 2008.

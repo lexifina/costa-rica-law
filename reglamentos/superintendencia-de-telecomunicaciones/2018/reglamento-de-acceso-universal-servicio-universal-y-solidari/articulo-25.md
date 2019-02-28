@@ -1,0 +1,3 @@
+Artículo 25.- Recaudación y cuentas de Fonatel. La Tesorería Nacional, estará en la obligación de depositar los dineros recaudados en una cuenta separada a nombre de la Sutel y girarlos a Fonatel dentro de los quince días naturales del mes siguiente a su ingreso a dicha cuenta.
+Los recursos provenientes de las fuentes de financiamiento del Fonatel serán depositados en un Banco público del Sistema Bancario Nacional.
+En la contabilidad de la Sutel, figurará de forma independiente, una cuenta denominada, “Cuenta Fonatel”, así como las demás cuentas correspondientes a cada proyecto financiado con cargo a Fonatel.

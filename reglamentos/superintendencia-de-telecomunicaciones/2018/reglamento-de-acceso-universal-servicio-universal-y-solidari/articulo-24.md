@@ -1,0 +1,3 @@
+Artículo 24.- Administración Tributaria y Fiscalización. La Administración Tributaria de esta contribución especial parafiscal, es la Dirección General de Tributación del Ministerio de Hacienda, por lo que para esta contribución resulta aplicable el Título III, Hechos ilícitos tributarios, del Código de Normas y Procedimientos Tributarios.
+La Administración Tributaria, contará con la asistencia técnica de la Sutel, para la verificación dela exactitud de los montos declarados y pagados por el contribuyente.
+De conformidad con el artículo 75 de la Ley Nº 7593, los contribuyentes deberán suministrar toda la información y colaboración que la Sutel requiera.
