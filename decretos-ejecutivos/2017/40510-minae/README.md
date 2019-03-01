@@ -14,3 +14,4 @@ Reglamento Técnico RTCR 482:2015 Productos eléctricos Refrigeradores y Congela
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-03-01 | la propia norma |
+| 2 | 2019-03-01 | Decreto Ejecutivo 41055 (2018-02-19) |
