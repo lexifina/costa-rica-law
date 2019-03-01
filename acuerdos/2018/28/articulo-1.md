@@ -1,4 +1,6 @@
+(Suspendida)
 INSTITUTO COSTARRICENSE DE PESCA Y ACUICULTURA
+(Mediante acuerdo N° AJDIP/129-2019 del 1° de marzo del 2019, se acordó suspender por el término de 3 meses el presente acuerdo)
 AJDIP/028-2018.—Puntarenas, a los doce días del mes de enero de dos mil dieciocho.
 Considerando:
 1º—Que la Ley 7384, Ley de Creación del Instituto Costarricense de Pesca y Acuicultura, LCICPA, establece que el Incopesca, “... es un ente público estatal, con personalidad jurídica, patrimonio propio, sujeto al Plan Nacional de Desarrollo que dicte el Poder Ejecutivo,...”. Por ello, el Incopesca, se constituye dentro del ordenamiento jurídico como un ente autónomo, lo que le reviste de las características jurídicas necesarias para la toma de decisiones dentro del ámbito de sus competencias.

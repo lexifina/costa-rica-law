@@ -14,3 +14,4 @@ La pesca comercial en pequeña escala únicamente puede ejecutarla de manera per
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-02-09 | la propia norma |
+| 2 | 2019-03-01 | Acuerdo 129 (2019-03-01) |
