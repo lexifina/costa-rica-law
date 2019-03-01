@@ -1,0 +1,1 @@
+TRANSITORIO I: Para efectos de las disposiciones señaladas en relación con la obligatoriedad de la presentación de la Declaración de Cumplimiento, según el punto 12 inciso 12.1.1, el MINAF en coordinación con la Dirección General de Aduanas del Ministerio de Hacienda establecerá el mecanismo mediante el cual se defina esta condición.
