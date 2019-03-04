@@ -1,6 +1,11 @@
-CAPITULO IV
-ANÁLISIS DEL INFORME DEL PRESUPUESTO
-ARTICULO 194. Trámite del Informe
-La Comisión para el control del ingreso y el gasto públicos analizará los documentos referidos en el artículo 89 y, a más tardar el último día del mes de mayo, rendirá un informe al Plenario, en el que recomendará aprobar o improbar la liquidación. Cinco días hábiles después de recibido y leído este informe, el Plenario dedicará la segunda parte de las cuatro sesiones siguientes a su discusión.
-Si a las veintiuna horas de la cuarta sesión no se hubiere agotado el debate, el Presidente lo suspenderá y de inmediato, someterá a votación.
-Las fracciones legislativas de más de diez diputados dispondrán de hasta dos horas, para la discusión del informe en el Plenario, y las que no alcancen ese número dispondrán, cada una, de hasta treinta minutos. Si los jefes de las fracciones, conjuntamente con el Presidente de la Asamblea, concertaren prórrogas a estos plazos, sin infringir lo dispuesto en el párrafo precedente, el uso de la palabra se concederá a las fracciones guardando la misma proporcionalidad.
+SECCIÓN V
+DISPOSICIONES COMUNES
+Artículo 194.- Uso de la palabra y lectura de documentos
+Para el uso de la palabra en su trámite en comisión y en el Plenario se seguirán las siguientes reglas:
+1- Para la discusión general del proyecto en comisión cada diputada y diputado tendrá hasta diez minutos.
+Para discusión en primer debate y el segundo debate cada diputado y diputada podrá hacer uso de la palabra por un lapso de diez minutos.
+2- Para referirse a las mociones de fondo que sean conocidas en comisión y en el Plenario, los diputados o diputadas proponentes tienen hasta cinco minutos para defender su propuesta. También podrá hacer uso de la palabra un diputado a favor y uno en contra, por un plazo de cinco minutos cada uno por cada moción. Las mociones de fondo se tendrán por dispensadas de lectura siempre y cuando estas fueran debidamente comunicadas a los diputados y diputadas con al menos veinticuatro horas de antelación.
+3- Para las mociones de orden y de revisión solo podrán hacer uso de la palabra los proponentes por un plazo que, individual o colectivamente, no exceda cinco minutos.
+En cualquier momento del trámite, las diputadas y diputados podrán solicitar la inclusión de uno o varios documentos al acta que tengan relación con el proyecto de ley.
+Por medio de una moción de orden aprobada por mayoría absoluta de los presentes, en cualquier órgano legislativo, se podrá solicitar la lectura de uno o varios documentos relacionados con el proyecto.
+(Así adicionado mediante sesión N° 31 del 4 de marzo del 2019)

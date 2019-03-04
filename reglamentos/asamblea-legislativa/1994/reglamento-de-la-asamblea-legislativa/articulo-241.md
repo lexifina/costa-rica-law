@@ -1,0 +1,4 @@
+ARTICULO 241. Préstamo de expedientes originales
+Los expedientes originales podrán ser entregados, para su estudio, a los diputados que así lo solicitan, siempre que los miembros de las Comisiones no los tengan ocupados; se les entregarán, previa firma de una boleta de recibo, en la que se anotará el asunto objeto de los expedientes, el nombre del diputado que los recibe, la fecha, y cualquier otro dato que permita su correcta y rápida identificación y localización.
+Los expedientes referidos a proyectos de ley incluidos en el Orden del Día de la Asamblea, permanecerán en la Oficina de la Secretaría, debidamente clasificados y archivados, y de esta oficina se harán llegar al salón de sesiones, en el cartapacio correspondiente al debate en que se encuentren.
+(Corrida su numeración mediante sesión N° 31 del 4 de marzo del 2019 , que lo traspasó del antiguo artículo 215 al 241)

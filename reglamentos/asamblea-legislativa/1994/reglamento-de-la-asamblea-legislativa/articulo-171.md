@@ -1,6 +1,1 @@
-ARTICULO 171. Subcomisiones
-1. La Comisión Legislativa Plena podrá nombrar, en cualquiera de los debates, mediante moción de orden y por una sola vez, una subcomisión para que informe sobre un proyecto de ley.
-2. Esa subcomisión rendirá un informe, dentro del plazo que le hubiera fijado el Presidente, el cual podrá ser prorrogado por una sola vez. Mientras tanto, se suspenderá la discusión del proyecto. Una vez rendido el informe, el proyecto ocupará el lugar que tenía antes de aprobarse la moción para integrar la subcomisión.
-3. El informe podrá recomendar que se subsanen vicios de procedimiento; que se aprueben, rechacen o modifiquen las mociones pendientes de votación o que se conozca un texto sustitutivo, en cuyo caso adjuntará la moción respectiva.
-4. Leído el informe de la subcomisión, si fuere en primer debate y propusiere modificaciones al texto, se tendrá por abierto un nuevo plazo de tres sesiones para la presentación de mociones de fondo. Votadas estas, se proseguirá con el trámite del debate. Si fuere en segundo debate, podrá aplicarse lo establecido en el artículo 167.
-5. La subcomisión será nombrada de su seno por la Comisión Legislativa Plena, mediante moción de orden aprobada, al menos por trece diputados, y deberá estar integrada por tres, cinco o siete diputados de todas las fracciones políticas representadas en la Comisión.
+ARTICULO 171. Subcomisiones. (Derogado mediante sesión N° 31 del 4 de marzo del 2019)

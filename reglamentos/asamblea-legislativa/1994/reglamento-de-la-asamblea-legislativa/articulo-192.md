@@ -1,2 +1,8 @@
-ARTICULO 192. Suspensión del funcionario
-Cuando los miembros de los Supremos Poderes, Ministros de Gobierno o Ministros Diplomáticos de la República, fueren acusados o resultaren comprometidos como autores o como cómplices de un delito común, y el hecho lo hubiere puesto el Juez o Tribunal que conozca de la causa en conocimiento de la Asamblea, acompañando certificación de los antecedentes necesarios sin que el interesado hubiere renunciado en forma expresa a su fuero, se pasará el asunto a conocimiento de una comisión integrada por tres diputados, a fin de que rinda informe indicando si debe ser o no levantado el fuero. Si posteriormente el Juez o Tribunal informare a la Asamblea que dentro de la causa se ha dictado y ha quedado firme un auto de prisión y enjuiciamiento, necesariamente se procederá a declarar la suspensión del acusado.
+SECCIÓN IV
+TRAMITACIÓN DE UN PROYECTO CUANDO
+ESTÉ DISPENSADO DE TRÁMITES
+Artículo 192.- Inicio del trámite en primer debate
+Cuando el proyecto de ley esté dispensado de trámites, su conocimiento en primer debate iniciará con la explicación del proyecto por parte de los proponentes, de forma individual o en conjunto, por un plazo de 10 minutos.
+Las mociones de fondo solo serán de recibo cuando se presenten desde el inicio del trámite en primer debate y durante los cuatro días hábiles siguientes a la sesión en la cual se dio el espacio para la explicación de los dictámenes. No obstante, si al momento de finalizada la explicación del proyecto ningún diputado o diputada ha presentado alguna moción de fondo, la Presidencia podrá iniciar la discusión por el fondo del proyecto de ley.
+Durante el conocimiento del expediente, la Presidencia solo podrá admitir a partir del inicio de la discusión del proyecto dos mociones de orden por sesión. El resto de mociones de orden serán inadmisibles.
+(Así adicionado mediante sesión N° 31 del 4 de marzo del 2019)

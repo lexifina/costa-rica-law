@@ -1,4 +1,4 @@
-CUARTA PARTE
-ASUNTOS ADMINISTRATIVOS
-ARTICULO 209. Retribución a los funcionarios de la Asamblea
-El Directorio, al organizar el servicio de la Asamblea, propondrá a ésta, para su aprobación, la retribución que a cada uno de los empleados correspondiere, comunicando luego las asignaciones fijadas a la Oficina de Presupuesto para los efectos del artículo 177 de la Constitución Política.
+Artículo 209.- Veto contra proyectos de las Comisiones con Potestad Legislativa Plena
+El veto interpuesto por el Poder Ejecutivo, contra un proyecto aprobado por una Comisión Legislativa Plena, será del conocimiento exclusivo del Plenario de la Asamblea Legislativa y se tramitará de conformidad con lo dispuesto en este capítulo.
+(Así reformado mediante sesión N° 31 del 4 de marzo del 2019)
+(Corrida su numeración mediante sesión N° 31 del 4 de marzo del 2019 , que lo traspasó del antiguo artículo 183 al 209)

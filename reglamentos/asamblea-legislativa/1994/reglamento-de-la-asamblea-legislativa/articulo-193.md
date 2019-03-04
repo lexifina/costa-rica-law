@@ -1,7 +1,6 @@
-CAPITULO III
-ANÁLISIS DEL MENSAJE PRESIDENCIAL
-ARTÍCULO 193.- Presentación y análisis del Mensaje Presidencial
-Las sesiones del Plenario de la Asamblea Legislativa, del primer, segundo y tercer día hábil después de cada primero de mayo conforme se establece en el artículo 32 de este Reglamento, se dedicarán a la presentación del mensaje de la Presidencia de la República de Costa Rica y su posterior análisis.
-En la primera sesión el Presidente de la República presentará su mensaje de conformidad con lo establecido en el artículo 11 de este Reglamento. En ella, ningún diputado podrá hacer el uso de la palabra, salvo el Presidente de la Asamblea. Para esta se invitará a los miembros de los Supremos Poderes, a los Magistrados del Tribunal Supremo de Elecciones, al Contralor y al Subcontralor General de la República, a los Jefes de las Misiones Diplomáticas acreditadas ante el Gobierno de Costa Rica y a los jerarcas de la Iglesia Católica.
-Para la segunda y tercera sesión, el Plenario se dedicarán de forma exclusiva al análisis del mensaje constitucional del Presidente de la República. Durante estos días no se podrá levantar la sesión antes de las diecinueve horas. Cada fracción de un solo diputado tendrá un turno de hasta media hora, las de dos o más diputados, de hasta una hora y las dos mayores, de hasta dos horas. La fracción de gobierno podrá hacer sus observaciones al final.
-(Así reformado mediante acuerdo N° 6609-15-16 tomado en sesión ordinaria N° 158 del 14 de marzo del 2016)
+Artículo 193.- Plazo para el conocimiento de las mociones de fondo
+Para el conocimiento de las mociones de fondo, el Plenario dispondrá de catorce sesiones para el conocimiento de las mociones.
+Si vencido este plazo quedaran pendientes de conocimiento mociones de fondo, la Presidencia de la Asamblea Legislativa destinará las sesiones subsiguientes necesarias para el conocimiento de las mociones pendientes. Durante estas sesiones, las mociones se someterán a votación sin discusión alguna.
+Las mociones de revisión y cualquier otra moción de orden que deba conocerse durante esta prórroga se deberán someter a votación sin discusión alguna.
+Finalizado el conocimiento de las mociones de fondo se iniciará su discusión por el fondo.
+(Así adicionado mediante sesión N° 31 del 4 de marzo del 2019)

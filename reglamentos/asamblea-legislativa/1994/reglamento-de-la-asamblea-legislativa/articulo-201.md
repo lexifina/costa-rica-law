@@ -1,4 +1,3 @@
-CAPITULO II
-NOMBRAMIENTOS, RATIFICACIONES Y RENUNCIAS
-ARTICULO 201. Procedimiento
-Toda elección deberá hacerse por papeletas que contengan los nombres y apellidos de los respectivos candidatos, las cuales no serán firmadas por los votantes. La Secretaría, antes de proceder al escrutinio contará el número de papeletas para verificar si éste coincide con el número de votantes. Hecho el escrutinio por el Directorio, la Secretaría anunciará a la Asamblea su resultado, y el Presidente expresará quién o quiénes han sido elegidos. Para que haya elección se necesita la mayoría absoluta de los votos presentes. El voto del diputado que dejare de elegir o que se retirare cuando se estuviere verificando la elección, se sumará en favor de quien hubiere obtenido el mayor número de votos; pero si resultare empate en la votación y si repetida ésta, diere el mismo resultado, entonces la suerte decidirá a qué personas se adjudican los votos de los que se ausentaren o hubieren dejado de elegir.
+Artículo 201.- Reenvío del proyecto a la comisión dictaminadora
+En la discusión de un proyecto, en cualquiera de sus debates, puede la Asamblea, por una sola vez, con plazo definido para su trámite y por votación de dos tercios del total de sus miembros, enviar el asunto a la misma comisión que informó u otra, para que proceda a rendir un nuevo dictamen conforme con las reglas establecidas en este capítulo. En cualquier caso siempre deberá respetarse la limitación establecida en el artículo 196.
+(Así adicionado mediante sesión N° 31 del 4 de marzo del 2019)

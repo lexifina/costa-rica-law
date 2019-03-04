@@ -1,4 +1,3 @@
-ARTICULO 182. Trámite en general
-Cuando el Poder Ejecutivo objetare algún proyecto de ley, el Presidente de la Asamblea lo pasará a la misma comisión que conoció del asunto a que se refiere, para que vierta el informe del caso.
-Si el informe propusiere el resello, se aprobará o rechazará en una sola sesión.
-Si el informe aceptare las reformas propuestas por el Poder Ejecutivo y fueren aprobadas, se someterá a los dos debates de ley y la resolución final se sujetará en un todo a lo que dispone el artículo 127 de la Constitución Política; si, por el contrario, el dictamen no aceptare las objeciones ni propusiere el resello y lo aprobare la Asamblea, se dará por concluido el asunto.
+Artículo 182.- Las mociones de fondo
+Cualquier diputado y diputada podrá presentar mociones de fondo desde el ingreso del proyecto al orden del día. Estas se conocerán según el orden de presentación.
+(Así adicionado mediante sesión N° 31 del 4 de marzo del 2019)

@@ -1,2 +1,5 @@
-ARTICULO 197. Término para dictaminar
-La Comisión dictaminará en un término no mayor de un mes y su informe se hará del conocimiento de los diputados, en forma escrita, sin revelar los nombres de quienes presenten el o los informes.
+Artículo 197.- Prioridad en el orden del día
+Todo proyecto de ley al cual se le apruebe un procedimiento abreviado ocupará el primer lugar antes del capítulo de los primeros y segundos debates, a partir del día siguiente al de la aprobación de la moción de orden referida en el artículo 178, o bien, a partir del día en que el proyecto ingrese en el orden del día del Plenario, conforme lo indicado en el artículo 187.
+Si dentro del orden del día del Plenario existieran dos o más proyectos de ley a los cuales se les haya aprobado un procedimiento abreviado, estos se conocerán en orden cronológico, de acuerdo con la fecha de ingreso al orden del día. No obstante, podrá alterarse el orden de conocimiento de este tipo de proyectos de conformidad con los artículos 37 y 38 del Reglamento, pero nunca en favor de uno al que no se le haya aprobado la aplicación del procedimiento abreviado.
+Todo lo anterior sin perjuicio de la preeminencia constitucional y reglamentaria para el conocimiento y votación de los Presupuestos Ordinarios, Extraordinarios y sus modificaciones.
+(Así adicionado mediante sesión N° 31 del 4 de marzo del 2019)

@@ -1,2 +1,5 @@
-ARTICULO 202. Falta de mayoría y empate
-Cuando no hubiere mayoría absoluta en una votación de las que indica el artículo anterior, se repetirá ésta, entre los que hubiesen obtenido uno o más votos; y si la repetición diere el mismo resultado, se hará la elección por tercera vez, solamente entre los que hubiesen obtenido, por lo menos, diez votos. En caso de empate se repetirá la votación, y si diere el mismo resultado, decidirá la suerte.
+Artículo 202.- Mociones de forma
+Todas las mociones de forma que sean presentadas antes de su votación en primer debate pasarán posterior a su votación en primer debate a la Comisión de Redacción para que sean incorporadas al proyecto, si así lo determina dicha Comisión.
+Durante su discusión en el segundo debate solamente cabrá la presentación de mociones de forma durante la primera sesión de discusión. Estas serán enviadas inmediatamente por la Presidencia de la Asamblea a la Comisión de Redacción la cual, dentro de las siguientes veinticuatro horas, las acogerá o rechazará según su criterio.
+Ningún diputado o diputada podrá insistir sobre ninguna moción de forma que fuera rechazada.
+(Así adicionado mediante sesión N° 31 del 4 de marzo del 2019)

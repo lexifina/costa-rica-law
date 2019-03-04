@@ -1,2 +1,3 @@
-ARTICULO 183. Veto contra proyectos de las Comisiones con Potestad Legislativa Plena
-El veto interpuesto por el Poder Ejecutivo, contra un proyecto aprobado por una Comisión Legislativa Plena, será del conocimiento exclusivo del Plenario de la Asamblea Legislativa.
+Artículo 183.- Las mociones de orden
+La Presidencia solo podrá admitir dos mociones de orden por sesión y luego de iniciada la sesión. Aquellas que se presenten con posterioridad serán inadmisibles.
+(Así adicionado mediante sesión N° 31 del 4 de marzo del 2019)

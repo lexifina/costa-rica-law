@@ -1,2 +1,3 @@
-Artículo 196. Límite para la concesión de títulos honoríficos Con excepción del título de Ciudadano de Honor, los demás únicamente podrán concederse un máximo de cinco, en cada categoría, por periodo constitucional. El Benemeritazgo de las ciencias, las artes o las letras patrias solo podrá ser otorgado a personas que tengan más de siete años de fallecidas.
-(Así reformado por el artículo 1° de la sesión N° 176 del 25 de abril del 2017)
+Artículo 196.- Número de proyectos de ley tramitados en Comisión por Procedimiento abreviado
+Únicamente podrá haber un proyecto de ley por Comisión al que se le aplique el procedimiento abreviado previsto en este Reglamento.
+(Así adicionado mediante sesión N° 31 del 4 de marzo del 2019)

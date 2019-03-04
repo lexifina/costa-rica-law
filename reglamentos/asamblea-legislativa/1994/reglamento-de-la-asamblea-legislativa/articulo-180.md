@@ -1,13 +1,3 @@
-Sección II
-Presupuesto extraordinario y modificaciones
-ARTICULO 180. Presupuesto extraordinario y modificaciones
-presupuestarias
-En la tramitación de presupuestos extraordinarios, y de modificación de presupuestos vigentes ordinarios o extraordinarios, se procederá de la siguiente manera:
-1. El proyecto de ley ocupará el primer lugar del Orden del Día de la Comisión Permanente de Asuntos Hacendarios, al día siguiente de la fecha en que sea recibido por la Secretaría de la Asamblea Legislativa. Conservará ese lugar hasta su votación final, la cual deberá producirse dentro de un plazo improrrogable de los quince días hábiles siguientes.
-El informe o los informes sobre el proyecto deberán ser rendidos dentro de los tres días hábiles siguientes al de la votación.
-Transcurrido este término, y de acuerdo con los dispuesto en el Artículo 180, el proyecto se conocerá en sesión plenaria a partir de las dieciocho horas, y conservará este lugar hasta su votación final.
-2. No se le dará curso a mociones destinadas a suprimir, trasladar o aumentar partidas que no estén específicamente comprendidas en el proyecto que se debate.
-3. La Asamblea podrá suprimir o rebajar cualquiera de las partidas comprendidas en el proyecto en debate, pero sólo en el tanto comprendido en el propio proyecto.
-4. Por medio de moción, también la Asamblea podrá aumentar una partida contenida en el proyecto, ya sea mediante el traslado de fondos destinados a crear o ampliar otra partida contenida en el mismo proyecto, o señalando una nueva renta, según certificación sobre la efectividad fiscal de la misma, que deberá extender la Contraloría General de la República.
-Al suprimir o rebajar las partidas propuestas en el proyecto -no las que existan especificadas en su presupuesto vigente-, la Asamblea podrá formar nuevas partidas para cubrir gastos no comprendidos en el presupuesto que se trata de modificar, o bien para aumentar partidas vigentes no comprendidas en el proyecto.
-5. Cuando la Asamblea Legislativa haya sido convocada para conocer específicamente sobre la modificación de uno o varios artículos o incisos de un presupuesto vigente, durante el período de sesiones extraordinarias, los diputados no podrán presentar mociones referidas a artículos o incisos no comprendidos en el proyecto objeto de la convocatoria. A más tardar, un mes después de haber comenzado la discusión de un proyecto de presupuesto extraordinario, en el Plenario de la Asamblea Legislativa, este proyecto deberá aprobarse -por analogía- de acuerdo con las disposiciones finales del artículo 179 de este Reglamento.
+Artículo 180.- Votación requerida para la aplicación del procedimiento abreviado
+La moción para acordar la aplicación de un procedimiento abreviado, deberá ser aprobada por las dos terceras partes del total de los miembros de la Asamblea Legislativa.
+(Así adicionado mediante sesión N° 31 del 4 de marzo del 2019)

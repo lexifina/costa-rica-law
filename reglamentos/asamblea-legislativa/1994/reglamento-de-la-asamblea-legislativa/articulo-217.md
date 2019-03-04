@@ -1,3 +1,4 @@
-DISPOSICIÓN FINAL
-ARTICULO 217.
-Este Reglamento regirá a partir del 1o.de mayo de 1982.
+ARTICULO 217. Formación de causa contra el funcionario
+El informe de la comisión y los respectivos documentos se leerán en sesión en presencia del acusado, invitado al efecto. Después de la lectura se concederá la palabra al acusado, si concurriere, para que exponga, si lo desea, lo que juzgue conveniente a su defensa; se retirará en seguida y la Asamblea, después de haber deliberado, procederá a declarar por los dos tercios de votos del total de sus miembros, si hay o no lugar a formación de causa contra el funcionario. En caso afirmativo, lo pondrá a disposición de la Corte Suprema de Justicia, para que sea juzgado conforme con derecho, con lo cual quedará suspendido en el ejercicio de sus funciones.
+(Mediante resolución de la Sala Constitucional N° 4182 del 26 de marzo de 2014, se anuló de este numeral la palabra: "secreta".)
+(Corrida su numeración mediante sesión N° 31 del 4 de marzo del 2019 , que lo traspasó del antiguo artículo 191 al 217)

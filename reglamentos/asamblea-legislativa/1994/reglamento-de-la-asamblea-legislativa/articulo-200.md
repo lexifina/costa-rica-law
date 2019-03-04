@@ -1,6 +1,3 @@
-ARTICULO 200. Votación secreta
-En votación secreta la Asamblea, por simple mayoría, decidirá el asunto y contra lo que resuelva, no habrá recurso de revisión. El Directorio anunciará únicamente si el informe es aprobado o rechazado.
-Los títulos honoríficos que otorgará la Asamblea Legislativa serán los siguientes:
-1. Ciudadano de honor
-2. Benemérito de las ciencias, las artes o las letras patrias.
-3. Beneméritos de la Patria.
+Artículo 200.- Sesiones extraordinarias
+Cuando uno o varios proyectos de ley que sean conocidos por el procedimiento especial establecido en este capítulo, estén en discusión en primero y segundo debates, el Plenario sesionará de forma extraordinaria los días lunes, martes, miércoles y jueves de las nueve a las doce horas, hasta la votación definitiva de las iniciativas pendientes. No obstante, el Plenario podrá suspender o modificar este horario de sesiones extraordinarias por medio de una moción de orden, que requiere para su aprobación el voto afirmativo de las dos terceras partes de los miembros de la Asamblea; sin embargo, el mínimo de sesiones extraordinarias deberá ser de tres sesiones. Para eso se tendrán por habilitados los días inhábiles.
+(Así adicionado mediante sesión N° 31 del 4 de marzo del 2019)

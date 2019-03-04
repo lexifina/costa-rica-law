@@ -1,3 +1,5 @@
-ARTICULO 191. Formación de causa contra el funcionario
-El informe de la comisión y los respectivos documentos se leerán en sesión en presencia del acusado, invitado al efecto. Después de la lectura se concederá la palabra al acusado, si concurriere, para que exponga, si lo desea, lo que juzgue conveniente a su defensa; se retirará en seguida y la Asamblea, después de haber deliberado, procederá a declarar por los dos tercios de votos del total de sus miembros, si hay o no lugar a formación de causa contra el funcionario. En caso afirmativo, lo pondrá a disposición de la Corte Suprema de Justicia, para que sea juzgado conforme con derecho, con lo cual quedará suspendido en el ejercicio de sus funciones.
-(Mediante resolución de la Sala Constitucional N° 4182 del 26 de marzo de 2014, se anuló de este numeral la palabra: "secreta".)
+Artículo 191.- Plazo para el conocimiento de las mociones de fondo
+Luego de recibidas todas las mociones de fondo, el Plenario dispondrá de catorce sesiones para su conocimiento.
+Si vencido este plazo quedaran pendientes de conocimiento mociones de fondo, la Presidencia destinará las sesiones subsiguientes necesarias para el conocimiento de las mociones pendientes. Durante estas sesiones, las mociones de fondo se someterán a votación sin discusión alguna. Las mociones de revisión y cualquiera otra que deba conocerse durante esta prórroga se deberán someter a votación sin discusión alguna.
+Finalizado el conocimiento de las mociones pendientes se podrá iniciar su discusión por el fondo.
+(Así adicionado mediante sesión N° 31 del 4 de marzo del 2019)
