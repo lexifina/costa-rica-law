@@ -15,3 +15,4 @@ Reglamento para el funcionamiento de fondos de caja chica de la Municipalidad de
 | --- | --- | --- |
 | 1 | 2011-10-19 | la propia norma |
 | 2 | 2011-12-01 | Reglamento municipal 0 (2011-12-01) |
+| 3 | 2019-03-04 | Reglamento municipal 235 (2019-03-04) |

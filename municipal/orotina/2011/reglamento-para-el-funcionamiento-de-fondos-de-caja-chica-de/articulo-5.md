@@ -1,2 +1,4 @@
-Artículo 5º—El fondo de Caja Chica N° 3 ascenderá a ¢1.000.000,00 (un millón de Colones), y el monto máximo de cada compra será de ¢400.000,00 (cuatrocientos mil colones).
-(Así reformado y publicado en La Gaceta N° 4 del 5 de enero del 2012)
+Artículo 5º—Límites de adquisiciones: El fondo de caja chica será utilizado para la adquisición de bienes y servicios según los siguientes límites:
+a) Tratándose de bienes y servicios en general, el monto de cada compra no podrá superar el cinco por ciento (5%) del monto total del fondo.
+b) Tratándose de activos fijos sujetos a depreciación, servicios profesionales no continuados, publicidad, comunicaciones, capacitaciones, repuestos, accesorios, reparaciones menores y servicios utilizados en la flotilla de vehículos municipales, el monto de cada compra no podrá superar el diez por ciento (10%) del monto total del fondo.
+(Así reformado en sesión N° 235 del 4 de marzo del 2019, y corregido mediante Fe de Erratas y publicada en La Gaceta N° 78 del 29 de abril del 2019, página N° 92)

@@ -1,1 +1,1 @@
-Artículo 22.—Los formularios que se utilizarán para realizar compras por el fondo de caja chica, estarán prenumerados y llevarán una numeración individual para cada fondo en particular.
+Artículo 22.—(Derogado en sesión N° 235 del 4 de marzo del 2019)
