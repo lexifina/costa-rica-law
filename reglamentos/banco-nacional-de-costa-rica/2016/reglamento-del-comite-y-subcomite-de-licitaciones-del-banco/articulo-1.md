@@ -1,4 +1,6 @@
+(Derogado)
 BANCO NACIONAL DE COSTA RICA
+(La derogación practicada a esta norma por el artículo 14 del Reglamento de operación del Comité de Contratación Administrativa (RG05-CGRM01), aprobado en sesión N° 12332 del 4 de marzo del 2019, posteriormente fue derogada mediante publicación realizada en La Gaceta N° 68 del 5° de abril del 2019. Se advierte que dicha derogación no se ha aplicado a este texto, debido a que el ente emisor no indica expresamente que como consecuencia, debe volver éste al estado anterior a dicha afectación).
 MODIFICACIONES AL REGLAMENTO
 DEL COMITÉ Y SUBCOMITÉ DE LICITACIONES
 El Banco Nacional de Costa Rica comunica la parte resolutiva del acuerdo tomado por la Junta Directiva General, en la Sesión Nº 12.058, artículo 16º, celebrada el 08 de febrero del 2016, en el cual acordó aprobar las modificaciones al Reglamento del Comité y Subcomité de Licitaciones del Banco Nacional de Costa Rica, para que, en lo sucesivo, se lea de conformidad con el siguiente texto:
