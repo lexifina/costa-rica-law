@@ -1,1 +1,0 @@
-Artículo 28.—Las exhumaciones ordinarias deberán realizarse exclusivamente en días hábiles, según la jornada laboral establecida por la Municipalidad. Las exhumaciones extraordinarias se realizaran únicamente por orden judicial.

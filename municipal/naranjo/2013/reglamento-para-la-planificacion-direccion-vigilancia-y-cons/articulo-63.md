@@ -1,1 +1,0 @@
-Artículo 63.—En el ejercicio de su potestad normativa el Concejo Municipal podrá modificar este Reglamento en todo o en parte aprobándolo así en acto motivado y publicándolo una vez en el Diario Oficial La Gaceta. Toda modificación entrará en vigencia hasta después de publicada.

@@ -1,1 +1,0 @@
-Artículo 34.—Es obligación de los permisionarios mantener en buen estado de ornato y conservación las parcelas, bóvedas, mausoleos, tumbas, osarios y demás estructuras levantadas sobre la parcela permisionada.

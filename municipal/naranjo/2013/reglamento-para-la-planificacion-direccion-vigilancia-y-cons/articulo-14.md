@@ -1,1 +1,0 @@
-Artículo 14.—Para que opere la pérdida del derecho funerario por cualquiera de las causales establecidas en el artículo precedente, basta que sea de fácil constatación la falta o faltas y haya transcurrido el periodo de tiempo establecido en la norma anterior.

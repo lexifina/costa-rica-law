@@ -1,1 +1,0 @@
-Artículo 5º—La Municipalidad tendrá a cargo el mejoramiento, mantenimiento y administración de sus cementerios, para lo cual contará con un administrador y el personal necesario para el buen funcionamiento de sus actividades, además podrá dar participación a grupos organizados de la comunidad, para la implementación de programas de mantenimiento y ornato en los cementerios.
