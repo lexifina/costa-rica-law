@@ -1,0 +1,2 @@
+Artículo 2º—Adiciónese un artículo 10 bis al Reglamento General sobre la Asignación de Contingentes Arancelarios de Importación, Decreto Ejecutivo Nº 39938-COMEX del 29 de setiembre del 2016, el cual dispondrá lo siguiente:
+“Artículo 10 bis.—Asignación de nuevos contingentes. Para los efectos de la asignación y distribución durante el primer año de aplicación de contingentes derivados de la entrada en vigencia de un nuevo instrumento comercial, COMEX asignará a prorrata el 100% de cada contingente a todos los solicitantes.”
