@@ -2,6 +2,7 @@ CAPÍTULO II
 Responsabilidades de las dependencias que intervienen en los procesos de reclutamiento y selección de personal y clasificación y valoración de puestos.
 DEPARTAMENTO DE RECURSOS HUMANOS
 Artículo 5°—El Departamento de Recursos Humanos tendrá a su cargo todo lo relativo al personal de la institución y aquellos que aspiren a ser funcionarios de ella, para lo cual actuará de acuerdo con las disposiciones legales vigentes. Sus atribuciones y deberes son los siguientes:
+(Nota de Sinalevi: Mediante el artículo 11 del Reglamento para la prestación de colaboración de la persona en condición meritoria en el Tribunal Supremo de Elecciones, aprobado mediante decreto del Tribunal Supremo de Elecciones, N° 3 del 5 de marzo del 2019, se indica que corresponderá a la Comisión de meritorios y no al Departamento de Recursos Humanos gestionar lo pertinente a los meritorios.)
 a) Diseñar los instrumentos necesarios para llevar a cabo el proceso de reclutamiento y selección.
 b) Solicitar a las autoridades competentes el listado de personas inhabilitadas para ejercer cargos públicos.
 c) Asesorar y colaborar con las jefaturas en todo lo correspondiente a la tramitación del nombramiento en una plaza.
