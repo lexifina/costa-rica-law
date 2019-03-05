@@ -14,3 +14,4 @@ Reglamento sobre la administración del riesgo de mercado, de tasas de interés 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-07-06 | la propia norma |
+| 2 | 2019-03-05 | Reglamento 1485 (2019-03-05) |
