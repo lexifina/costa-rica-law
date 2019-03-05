@@ -1,3 +1,0 @@
-Artículo Transitorio II.—La amplitud funcional del Servicio de Seguridad y Vigilancia Comunal estará condicionada a las posibilidades del recurso humano con que cuente la Municipalidad. De tal manera que, para asumir en su plenitud las atribuciones a que se refiere el artículo 2 del presente Reglamento se deberá considerar el fortalecimiento del recurso humano de la mencionada Policía Municipal.
-De conformidad con lo establecido en el artículo 43 del Código Municipal, este proyecto de Reglamento se somete a consulta pública por un lapso de diez días hábiles, vencido se pronunciará sobre el fondo.
-Santa Ana, 12 de junio del 2008.

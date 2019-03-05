@@ -1,1 +1,0 @@
-Artículo 12.—Es obligatorio el uniforme durante el servicio para todos los miembros del Servicio de Seguridad y Vigilancia Comunal. Excepto en casos especiales debidamente autorizados por sus superiores.
