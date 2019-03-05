@@ -14,3 +14,4 @@ Reglamento Especial para las Notificaciones y Comunicaciones del Colegio Federad
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-09-07 | la propia norma |
+| 2 | 2019-03-05 | Reglamento 15 (2019-03-05) |

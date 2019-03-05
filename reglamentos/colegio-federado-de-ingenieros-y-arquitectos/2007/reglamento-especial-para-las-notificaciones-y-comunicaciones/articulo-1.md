@@ -11,4 +11,5 @@ Y COMUNICACIONES DEL COLEGIO FEDERADO
 DE INGENIEROS Y DE ARQUITECTOS
 CAPÍTULO I
 De los principios generales
-Artículo 1º—En todos los procedimientos administrativos que se celebren en el Colegio Federado de Ingenieros y de Arquitectos, sean disciplinarios o de cualquier otra índole, donde deba practicarse comunicaciones o notificaciones a las partes que intervengan en esos procesos, conforme se indica en el artículo 243 de la Ley General de la Administración Pública, se aplicarán las disposiciones contenidas en este Reglamento.
+Artículo 1º—En todos los procedimientos administrativos que se celebren en el Colegio Federado de Ingenieros y de Arquitectos de Costa Rica, sea disciplinarios o de cualquier otra índole, donde deba practicarse comunicaciones o notificaciones a las partes que intervengan en esos procedimientos, conforme se indica en el inciso 5) del artículo 243 de la Ley General de la Administración Pública, se aplicarán las disposiciones contenidas en este Reglamento.
+(Así reformado en sesión N° 15 del 5 de marzo del 2019)
