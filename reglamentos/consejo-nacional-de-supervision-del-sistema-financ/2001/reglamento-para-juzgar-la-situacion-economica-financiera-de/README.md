@@ -38,3 +38,4 @@ Reglamento para Juzgar la situación económica financiera de las Asociaciones M
 | 23 | 2013-08-19 | Reglamento 1058 (2013-08-19) |
 | 24 | 2014-09-01 | Reglamento 1123 (2014-09-01) |
 | 25 | 2017-06-14 | Reglamento 1340 (2017-06-14) |
+| 26 | 2019-03-05 | Reglamento 1485 (2019-03-05) |
