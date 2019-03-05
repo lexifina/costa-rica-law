@@ -9,11 +9,11 @@ Excepto: 121.02 | Instrumentos Financieros del Sector Público no Financiero del
 Excepto: 122.01 | Instrumentos Financieros del BCCR - Recursos propios
 Excepto: 122.02 | Instrumentos Financieros del Sector Público no Financiero del país - Recursos propios
 Excepto: 122.12 | Reporto y reporto tripartito posición vendedor a plazo - Recursos propios
-Excepto: 122.20 | Instrumentos Financieros del B.C.C.R. - Respaldo Capital Mínimo Funcionamiento
-Excepto: 122.21 | Instrumentos Financieros en el Sector Público no Financiero del país - Respaldo capital mínimo funcionamiento
+Excepto: 122.20 (Eliminada esta cuenta en sesiones N° 1485-2019 y 1486-2019 del 5 de marzo de 2019) | (Eliminada esta cuenta en sesiones N° 1485-2019 y 1486-2019 del 5 de marzo de 2019)
+Excepto: 122.21 (Eliminada esta cuenta en sesiones N° 1485-2019 y 1486-2019 del 5 de marzo de 2019) | (Eliminada esta cuenta en sesiones N° 1485-2019 y 1486-2019 del 5 de marzo de 2019)
 Excepto: 122.40 | Instrumentos Financieros del BCCR Reserva Liquidez
 Excepto: 122.41 | Instrumentos Financieros del Sector Público no Financiero del país - Respaldo Reserva Liquidez
-Excepto: 122.51 | Reporto y reporto tripartito posición vendedor a plazo - Respaldo Reserva Liquidez
+Excepto: 122.51 (Eliminada esta cuenta en sesiones N° 1485-2019 y 1486-2019 del 5 de marzo de 2019) | (Eliminada esta cuenta en sesiones N° 1485-2019 y 1486-2019 del 5 de marzo de 2019)
 123 | Inversiones mantenidos al vencimiento
 Excepto: 123.01 | Instrumentos Financieros del BCCR
 Excepto: 123.02 | Instrumentos Financieros en el Sector Público no Financiero del país
