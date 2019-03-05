@@ -1,3 +1,3 @@
-Artículo 111. De la remisión
-Los estados financieros de los fondos administrados y de la entidad autorizada deberán remitirse a la Superintendencia con la periodicidad establecida en el "Manual de Información" emitido por el Superintendente. Asimismo, deberán estar firmados por el contador y el gerente; los correspondientes al 30 de junio y 31 de diciembre de cada año, también deberán estar firmados por el auditor interno.
+Artículo 111. De la remisión. Los estados financieros de los fondos administrados y de la entidad autorizada deberán remitirse a la Superintendencia con la periodicidad establecida en el ‘Manual de Información’ emitido por el Superintendente. Asimismo, los estados financieros intermedios trimestrales, deben venir firmados por el gerente general o quien ejerza su función en su ausencia, y por el contador o quien lo sustituya.
 Los estados financieros con corte al 31 de diciembre de cada año, deberán ser dictaminados por auditores externos.
+(Así reformado en sesiones N° 1485-2019 y 1486-2019 del 5 de marzo de 2019)
