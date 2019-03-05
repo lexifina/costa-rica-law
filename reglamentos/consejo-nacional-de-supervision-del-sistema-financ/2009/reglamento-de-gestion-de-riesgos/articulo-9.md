@@ -1,17 +1,3 @@
-Artículo 9º—Funciones de la Unidad de riesgos. La Unidad de riesgos efectúa al menos las siguientes funciones:
-a. Diseñar las políticas y procedimientos para la gestión de riesgos.
-b. Verificar el cumplimento de las políticas y los procedimientos una vez que hayan sido aprobados.
-c. Medir y monitorear los riesgos a los que está expuesta la entidad, de conformidad con lo indicado en el artículo 11 de este Reglamento.
-d. Medir y monitorear los riesgos a los que están expuestas las carteras individuales propiedad de clientes, que son administradas discrecionalmente por la entidad, de conformidad con las políticas que ésta defina.
-e. Medir y monitorear los riesgos a los que están expuestos los fondos de inversión y vehículos de propósito especial administrados. Se debe considerar al menos el riesgo crediticio, de mercado, de liquidez y el riesgo operativo de la sociedad administradora, de la sociedad titularizadora y de la sociedad fiduciaria, de conformidad con lo indicado en el artículo 11 de este Reglamento.
-(Así reformado el inciso anterior en sesión N° 1124 del 8 de setiembre de 2014)
-f. Informar al menos mensualmente al Comité de gestión de riesgos y de inversiones sobre:
-i. La exposición por tipo de riesgo de la entidad y de los fondos de inversión cuando aplique, y los niveles de desviación respecto a los límites establecidos, incluyendo sus causas y las acciones correctivas.
-ii. Los resultados de desempeño obtenidos de la entidad y por los fondos de inversión cuando aplique, explicando su origen, la conexión con los riesgos asumidos y compararlos con los objetivos definidos en las políticas.
-g. Efectuar las mediciones de rentabilidad ajustada por riesgo, al menos para los fondos de inversión administrados. En caso de divulgar esta información a los inversionistas, se debe utilizar la medida de riesgo que defina el Superintendente mediante acuerdo de alcance general.
-h. Brindar asesoría en materia de riesgos al personal de la entidad y supervisar la información que se presenta a los clientes, según lo requerido en el inciso b) del apartado de Políticas, indicado en el artículo 10 de este Reglamento.
-i. Revisar al menos una vez al año las políticas y procedimientos para la gestión de riesgos, con el fin de proponer al Comité de gestión de riesgos los cambios que estime convenientes.
-j. Calcular y dar seguimiento a los requerimientos de capital para la cobertura de riesgos y a los límites establecidos, de conformidad con lo indicado en el Capítulo III y IV de este Reglamento.
-k. Desempeñar otras funciones que el Comité de gestión de riesgos le asigne siempre que no resulten en conflictos de interés con las indicadas en los incisos anteriores y estén relacionadas con la gestión de riesgos.
-La Unidad de riesgos debe analizar e informar inmediatamente al Comité de gestión de riesgos, al Comité de inversiones y al gestor de portafolio en caso de fondos de inversión, cualquier situación que pueda implicar riesgos significativos para la entidad o para los clientes.
-En el caso de que la Unidad de riesgos indique recomendaciones a la Administración que sean parcial o totalmente desestimadas, el Gerente General tiene la obligación de proporcionar al Comité de gestión de riesgos una justificación técnica de su decisión, en un plazo no mayor a 5 días hábiles posteriores al recibo de dichos informes. En caso de fondos de inversión, esta función corresponde al gestor de portafolio del fondo.
+Artículo 9. Responsabilidades de la Alta Gerencia
+La Alta Gerencia es la responsable de la implementación de la gestión de los riesgos de la entidad, de las estrategias, políticas, manuales y planes de continuidad del negocio, autorizados por la junta directiva.
+(Así reformado en sesión 1486 del 5 de marzo del 2019)

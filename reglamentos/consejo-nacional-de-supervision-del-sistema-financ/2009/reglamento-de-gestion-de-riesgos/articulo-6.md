@@ -1,16 +1,5 @@
-Artículo 6º—Constitución del Comité de gestión de riesgos. La Junta Directiva debe constituir un comité encargado de gestionar los riesgos, el cual debe estar conformado como mínimo por:
-a. Dos miembros de la Junta Directiva de la entidad o del grupo financiero; uno de los miembros debe presidir el comité en todas las sesiones.
-b. El Gerente General de la entidad o la persona a quien éste designe, sin que esto lo exima de su responsabilidad.
-c. El encargado de la Unidad de Riesgos.
-d. Un miembro independiente del grupo económico de la entidad o del grupo/ conglomerado financiero, que no presente conflictos de interés, no forme parte del Comité de inversiones de la entidad, ni pertenezca a comités de inversión y riesgo de entidades que no forman parte del grupo o conglomerado. Para efectos de este Reglamento, el grupo económico es el que cumple con los criterios indicados en el artículo 108 del Reglamento general sobre sociedades administradoras y fondos de inversión. Por conflicto de interés se entiende la existencia de circunstancias que puedan sesgar la objetividad en el cumplimiento de las funciones.
-El Comité de gestión de riesgos puede ser corporativo siempre que:
-i. Cumpla con las disposiciones establecidas en este Reglamento.
-ii. Garantice la objetividad, independencia de criterio, confidencialidad de la información y manejo de conflictos de interés. Para esto, el miembro de Junta Directiva de la entidad supervisada por la SUGEVAL debe emitir una declaración jurada al respecto.
-iii. El Gerente General de la entidad supervisada por SUGEVAL o la persona a quien éste designe, esté presente en todas las sesiones que tratan temas de la gestión de riesgos de dicha entidad o de las carteras que ésta administra.
-iv. Al menos uno de los miembros de Junta Directiva esté nombrado en las Juntas directivas de las entidades supervisadas por la SUGEVAL.
-En caso de establecerse un Comité corporativo las funciones de la Junta Directiva corresponden a la Junta del grupo o conglomerado financiero.
-El Comité de gestión de riesgos se debe reunir al menos mensualmente. Los responsables de la realización de las inversiones y de las distintas áreas involucradas en las operaciones que generan riesgos, pueden participar en las sesiones, con derecho a voz pero sin derecho a voto.
-El Comité de gestión de riesgos no puede sesionar tres veces en forma consecutiva si no cuenta con la asistencia y participación del miembro independiente. La Junta Directiva puede nombrar a un suplente que cumpla con las mismas características del miembro independiente, e informar a la SUGEVAL cuando se realicen sesiones sin la participación de éstos.
-Los acuerdos del Comité de gestión de riesgos deben quedar documentados y fundamentados, y las sesiones deben hacerse constar en actas. Los acuerdos en firme deben ser llevados en un libro electrónico de conformidad con lo establecido por el Superintendente mediante acuerdo de alcance general. Los acuerdos en firme deben registrarse en el libro electrónico a más tardar 10 días hábiles siguientes de ocurrida la sesión.
-Los miembros del comité deben contar al menos con cinco años de experiencia en materia económica, financiera o bursátil, la cual debe quedar debidamente acreditada y documentada.
-La entidad debe contar con planes de capacitación en materia de riesgos para los miembros del Comité de gestión de riesgos, aprobados por la Junta Directiva.
+Artículo 6. Sistema de Organización
+Las entidades deben establecer una estructura organizacional o funcional adecuada a su modelo de negocios, proporcional a la complejidad de sus operaciones.
+El sistema de organización debe delimitar claramente las funciones y responsabilidades, así como los niveles de dependencia e interrelación que les corresponden a cada una de las áreas involucradas en la realización de actividades relativas a la gestión de riesgos.
+La estrategia para la gestión de los riesgos de la entidad y de los Vehículos de Administración de Recursos de Terceros, debe contemplar las pautas generales de gestión para cada riesgo, así como el grado de tolerancia de la entidad a los mismos según lo definido en la Declaración de Apetito de Riesgo. Esta estrategia debe incluirse en el marco de gestión de riesgos aprobado por la junta directiva de la entidad.
+(Así reformado en sesión N° 1486 del 5 de marzo de 2019)

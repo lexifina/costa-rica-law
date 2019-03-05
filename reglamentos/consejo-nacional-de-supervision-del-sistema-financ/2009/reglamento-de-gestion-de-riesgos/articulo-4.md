@@ -1,3 +1,3 @@
-CAPÍTULO II
-Gestión Integral de Riesgos
-Artículo 4º—Objetivo de la gestión integral de riesgos. Las entidades deben contar con políticas y procedimientos que les permita identificar, medir, controlar y divulgar los riesgos a los que se exponen los participantes del mercado con el fin de generar una cultura de administración de riesgos y prácticas efectivas, de forma que en todos los niveles de la organización, la toma de decisiones se fundamente técnicamente y se incluyan análisis de riesgos y beneficios esperados.
+Artículo 4. Cumplimiento
+El cumplimiento de este Reglamento es considerado requisito de funcionamiento para las entidades. En forma previa a la suspensión o revocación de la autorización, el Superintendente puede solicitar un plan de corrección por un plazo determinado, en caso de incumplirse dicho plan, se continuará con el proceso de suspensión o revocación. Este artículo no aplica para las bolsas de valores.
+(Así reformado en sesión N° 1486 del 5 de marzo del 2019)

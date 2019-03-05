@@ -14,20 +14,17 @@ Pn: Porcentaje aplicado a notas estructuradas y derivados financieros
 VMotros: Valor de mercado de notas estructuradas y derivados financieros
 El Superintendente definirá mediante acuerdo de alcance general, la metodología de Valor en riesgo (VeR), el factor de corrección y el porcentaje aplicado al valor de mercado de notas estructuradas y derivados financieros.
 Cuando se utilicen derivados financieros para cubrir posiciones expuestas al riesgo precio, el valor de mercado de la posición disminuye en el monto de la cobertura existente.
-b. Requerimiento de capital por riesgo cambiario. El requerimiento de capital por riesgo cambiario corresponde al monto que resulte de multiplicar el valor absoluto de la posición neta total en moneda extranjera por el 10%.
-La posición neta total corresponde a la diferencia entre los activos monetarios totales y pasivos monetarios totales en cada moneda extranjera.
-La posición neta total en moneda extranjera debe mantenerse diariamente entre el ±100% del patrimonio de la entidad; para esto se debe considerar el patrimonio al cierre del mes anterior.
+b. Posición expuesta en moneda extranjera sujeta a requerimiento de capital por riesgo cambiario
+La posición expuesta en moneda extranjera sujeta a requerimiento de capital se calcula de acuerdo con la siguiente expresión matemática:
+[imagen]
+PEME: Posición expuesta en moneda extranjera.
+i= representa una moneda extranjera, por ejemplo: dólares, euros, yenes, etc.; para i=1,…,n.
+Ai: Activos en la moneda extranjera i.
+Pi: Pasivos en la moneda extranjera i.
+CB: Capital Base del mes anterior.
+A: Activo total.
+𝐶𝐵 ∗ 𝐴𝑖: Posición estructural en moneda extranjera.
+𝐴
+El requerimiento de capital por riesgo cambiario corresponde al monto que resulte de multiplicar la posición expuesta en moneda extranjera por un factor de riesgo del 10%.
 Cuando se utilicen derivados financieros para cubrir posiciones expuestas al riesgo cambiario, el valor de mercado de la posición disminuye en el monto de la cobertura existente.
-Adicionalmente, la posición neta en derivados cambiarios que diariamente mantenga la entidad no puede exceder el ±10% de su capital base y el ±100% cuando se trate de una posición bruta; para esto se debe considerar el capital base al cierre del mes anterior. El cálculo de ambas posiciones se detalla a continuación:
-Posición neta:
-Sub-cuenta 1/ | Detalle
-A. Compras a futuro de moneda extranjera | (+) Posición activa en derivados cambiarios
-B. Ventas a futuro de moneda extranjera | (-) Posición pasiva en derivados cambiarios
-POSICIÓN NETA EN DERIVADOS CAMBIARIOS | (A-B)
-1/ Según el Plan de cuentas para entidades, grupos y conglomerados financieros
-Posición bruta:
-Sub-cuenta 1/ | Detalle
-A. Compras a futuro de moneda extranjera | (+) Posición activa en derivados cambiarios
-B. Ventas a futuro de moneda extranjera | (+) Posición pasiva en derivados cambiarios
-POSICIÓN BRUTA EN DERIVADOS CAMBIARIOS | (A+B)
-1/ Según el Plan de cuentas para entidades, grupos y conglomerados financieros
+(Así reformado el inciso b) anterior en sesión N°1486 del 5 de marzo del 2019)

@@ -25,4 +25,6 @@ aprobar el “Reglamento de gestión de riesgos”, cuyo texto se copia a contin
 REGLAMENTO DE GESTIÓN DE RIESGOS
 CAPÍTULO I
 Disposiciones Generales
-Artículo 1º—Objeto. Este Reglamento tiene por objeto establecer disposiciones prudenciales de carácter general para la gestión integral de riesgos, los requerimientos de capital necesarios para cubrir riesgos y limitar las actividades que puedan crear riesgos sistémicos en el mercado.
+Artículo 1. Objeto
+El objeto del presente Reglamento es brindar los lineamientos para una adecuada gestión del riesgo de la entidad y de los Vehículos de Administración de Recursos de Terceros bajo su responsabilidad, así como criterios para la adopción de políticas y procedimientos relacionados con el desarrollo de metodologías para la gestión de dichos riesgos, acordes con la naturaleza, tamaño, perfil de riesgo de las entidades, enfoque de negocio, volumen de sus operaciones, el entorno macroeconómico y las condiciones del mercado. Esta norma complementa el marco regulatorio general vigente, del cual forma parte también el Reglamento sobre Gobierno Corporativo.
+(Así reformado en sesión N° 1486 del 5 de marzo del 2019)
