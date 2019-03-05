@@ -36,3 +36,4 @@ Reglamento para Juzgar la Situación Económica-Financiera de las Entidades Fisc
 | 21 | 2013-08-19 | Reglamento 1058 (2013-08-19) |
 | 22 | 2014-09-01 | Reglamento 1123 (2014-09-01) |
 | 23 | 2017-06-14 | Reglamento 1340 (2017-06-14) |
+| 24 | 2019-03-05 | Reglamento 1485 (2019-03-05) |
