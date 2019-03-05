@@ -16,3 +16,4 @@ Reglamento general de auditores externos
 | 1 | 2011-01-01 | la propia norma |
 | 2 | 2015-08-10 | Reglamento 1189 (2015-08-10) |
 | 3 | 2017-03-20 | Reglamento 1318 (2017-03-20) |
+| 4 | 2019-03-05 | Reglamento 1485 (2019-03-05) |
