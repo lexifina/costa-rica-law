@@ -1,2 +1,0 @@
-Artículo 13. Compatibilidad de la infraestructura de telecomunicaciones.
-El profesional responsable de cualquier proyecto de telecomunicaciones, deberá efectuar el diseño y la implementación de este, de manera tal que la infraestructura de telecomunicaciones forme parte de los elementos comunes de la edificación, debiendo ser compatible con las infraestructuras de electricidad, detección de incendios, agua, gas u otras, cumpliendo con las especificaciones técnicas de calidad y de seguridad exigidas por la normativa vigente sobre la construcción.

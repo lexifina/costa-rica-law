@@ -1,6 +1,0 @@
-Artículo 18. Información Adicional.
-Como complemento a los puntos obligatorios del artículo 17, el profesional responsable podrá incluir en los planos la siguiente información adicional:
-1.Dibujos detallados de cada dispositivo típico, como los tipos de placas de salida, detalles de los bastidores y de las canalizaciones, detalles de arquetas, detalles de instalación de las canastas, procedimientos de instalación, cualquier otro detalle que se considere útil para el constructor.
-2.Diagramas adicionales que complementen la información de los sistemas de montaje o construcción de los elementos de telecomunicaciones que los requieran.
-3.Notas aclaratorias que complementen la información gráfica y que permitan definir con claridad todos los criterios empleados en el diseño.
-4.Se recomienda realizar un plano de obra construida que incluya todos los cambios realizados en el proyecto durante el proceso constructivo con el objetivo de facilitar el mantenimiento y a la vez facilitarle al propietario futuras remodelaciones, cambios o adiciones al sistema. a) Esquema de la ampliación o remodelación propuesta, indicando elementos existentesdes de donde se conectará; capacidad de reserva y disponibilidad existente.
