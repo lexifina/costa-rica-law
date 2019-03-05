@@ -1,4 +1,5 @@
-Artículo 2º—Instrumentos financieros sujetos a valoración. La valoración es obligatoria para los instrumentos financieros que formen parte de las carteras indicadas en el artículo 1 de este Reglamento.
+Artículo 2º—Instrumentos financieros sujetos a valoración.
+(Derogado el primer párrafo de este numeral en sesiones N° 1485-2019 y 1486-2019 del 5 de marzo de 2019)
 En el proceso de valoración de las carteras se deben considerar los siguientes aspectos:
 a) En el caso de los instrumentos financieros de emisores locales, la metodología que se utilice para la valoración debe corresponder a alguna de las metodologías registradas en la SUGEVAL por un proveedor de precios autorizado según lo dispuesto en este Reglamento.
 b) En caso de que no exista un proveedor que suministre precios para un instrumento financiero de un emisor local en particular, las entidades pueden registrar en la SUGEVAL, de conformidad con lo dispuesto en los capítulos III y IV de este Reglamento, una metodología propia para la valoración de dicho instrumento.
@@ -7,8 +8,8 @@ c) En el caso de instrumentos financieros de emisores extranjeros, se deben util
 (Así reformado el inciso anterior por el artículo 68 del Reglamento de Intermediación y Actividades Complementarias, aprobado mediante sesión N° 1259-2016, publicada en el Alcance N° 100 a La Gaceta N° 117 del 17 de junio del 2016)
 d) (Derogado por el artículo 61 del Reglamento de Intermediación y Actividades Complementarias, aprobado mediante sesión N° 1259-2016, publicada en el Alcance N° 100 a La Gaceta N° 117 del 17 de junio del 2016)
 e) (Derogado por el artículo 61 del Reglamento de Intermediación y Actividades Complementarias, aprobado mediante sesión N° 1259-2016, publicada en el Alcance N° 100 a La Gaceta N° 117 del 17 de junio del 2016)
-f) Las operaciones de reporto tripartito posición vendedor a plazo no están sujetas a un proceso de valoración.
-g) Los instrumentos de deuda de las carteras de los fondos de inversión de mercado de dinero cuyo plazo al vencimiento o remanente de amortización sea igual o menor a ciento ochenta días, no está sujeta a un proceso de valoración. En estos casos el administrador debe distribuir bajo el método de interés efectivo las ganancias o pérdidas no realizadas por valoración, desde el momento en que dejó de valorarse y hasta su vencimiento.
+f) (Derogado en sesiones N° 1485-2019 y 1486-2019 del 5 de marzo de 2019)
+g) (Derogado en sesiones N° 1485-2019 y 1486-2019 del 5 de marzo de 2019)
 h) Las bolsas de valores pueden utilizar una metodología propia para la valoración de los subyacentes de las operaciones de reporto, la valoración de sus carteras propias y cualquier otro proceso relacionado con los sistemas transaccionales del mercado de valores.
 i) En caso de que no existan proveedores de precios en operación en el mercado local, las bolsas de valores pueden ofrecer el servicio de determinación y suministro de precios a las entidades reguladas, previa autorización de la Superintendencia General de Valores mediante una resolución motivada.
 (Así reformado el inciso anterior por el artículo 68 del Reglamento de Intermediación y Actividades Complementarias, aprobado mediante sesión N° 1259-2016, publicada en el Alcance N° 100 a La Gaceta N° 117 del 17 de junio del 2016)
