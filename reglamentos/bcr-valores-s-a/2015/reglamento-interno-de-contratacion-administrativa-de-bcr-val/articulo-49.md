@@ -1,5 +1,6 @@
-Artículo 49. Procedimiento para la rescisión del contrato
-La rescisión unilateral de contratos administrativos no iniciados o en curso de ejecución procede por razones de caso fortuito, fuerza mayor o interés público o bien por mutuo acuerdo, según lo establece el artículo 11 de la Ley de Contratación Administrativa y artículos 206 y 207 del Reglamento a la Ley de Contratación Administrativa.
+Artículo 49.—Procedimiento para la rescisión del contrato
+La rescisión unilateral de contratos administrativos no iniciados o en curso de ejecución procede por razones de caso fortuito, fuerza mayor o interés público o bien por mutuo acuerdo, según lo establece el artículo 11 de la Ley de Contratación Administrativa y artículos 214 y 215 del Reglamento a la Ley de Contratación Administrativa.
+(Así reformado el párrafo anterior mediante sesión ordinaria N° 06-19 del 6 de marzo del 2019)
 a. Rescisión unilateral. Cuando en los informes elaborados por la oficina responsable se recomiende la rescisión unilateral del contrato, se debe ejecutar el siguiente procedimiento:
 Dicha oficina debe remitir de inmediato su informe a la gerencia de BCR Valores S.A., exponiendo su criterio al respecto, a fin de que sea dicha instancia, previa valoración de toda la documentación recibida, la que finalmente emita y suscriba la resolución respectiva.
 Una vez suscrita dicha resolución se debe conceder una audiencia al/a la contratista por al menos quince días hábiles.

@@ -15,3 +15,4 @@ Reglamento interno de contratación administrativa de BCR Valores S. A.
 | --- | --- | --- |
 | 1 | 2015-11-04 | la propia norma |
 | 2 | 2017-02-02 | Reglamento 3 (2017-02-02) |
+| 3 | 2019-03-06 | Reglamento 6 (2019-03-06) |

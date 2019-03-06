@@ -1,4 +1,5 @@
-Artículo 25. Requisitos de la solicitud de dictamen de legalidad de parte de la Gerencia Corporativa Jurídica del BCR para efectos de aprobación interna
+Artículo 25.—Requisitos de la solicitud de dictamen de legalidad de parte de la Gerencia Corporativa Jurídica del BCR para efectos de refrendo interno.
+(Así reformado el párrafo anterior mediante sesión ordinaria N° 06-19 del 6 de marzo del 2019)
 Para emitir el refrendo interno por parte del/de la gerente de BCR Valores S.A., se debe solicitar a la Gerencia Corporativa Jurídica del BCR un estudio de legalidad que sirva de apoyo para el dictado del acto de aprobación interno correspondiente.
 Las solicitudes para la verificación de legalidad y el dictamen a la Gerencia Corporativa Jurídica del BCR las realiza la Oficina de Contratación Administrativa del BCR. En la solicitud se debe incorporar, al menos, la siguiente información:
 a. Solicitud expresa del criterio de legalidad del contrato.
