@@ -1,0 +1,2 @@
+Artículo 6º—La empresa o persona gestionante realizará un contrato de arrendamiento con el propietario del local, de no ser el propietario del inmueble, mediante el cual adquieren compromisos
+en forma solidaria, que permitan velar por los derechos de los y las menores de edad. Este documento deberá estar autenticado por un abogado y deberá presentarse una copia ante el Departamento Unidad Tributaria de la Municipalidad de Oreamuno de previo a la autorización de inicio de la actividad.

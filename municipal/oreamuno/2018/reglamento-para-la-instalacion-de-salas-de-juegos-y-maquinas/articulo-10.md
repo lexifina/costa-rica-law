@@ -1,0 +1,1 @@
+Artículo 10.—El administrado que sea concesionario de una patente para que funcionen juegos y máquinas Pinball en el Cantón de Oreamuno, deberá comunicar por escrito al Departamento de la Unidad Tributaria de la Municipalidad de Oreamuno, la cantidad de máquinas que instalará, el lugar exacto, nombre del negocio, nombre del propietario y copia del contrato previo.

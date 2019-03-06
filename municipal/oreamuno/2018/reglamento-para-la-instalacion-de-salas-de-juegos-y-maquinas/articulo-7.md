@@ -1,0 +1,1 @@
+Artículo 7º—La distancia entre los centros educativos, recreativos, religiosos y de Salud, del local comercial donde se instalarán las máquinas será de 80 metros como mínimo. Según lo establece el Artículo N° 8 del Reglamento a la Ley de Juegos, Decreto Ejecutivo N° 3510-G del 24 de enero de 1974, Publicado en el Alcance N° 15 de La Gaceta N° 21 del 31 de enero de 1974.

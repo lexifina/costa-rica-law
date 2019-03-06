@@ -1,0 +1,1 @@
+Artículo 13.—La instalación de máquinas de Pinball podrá realizarse únicamente en los locales comerciales autorizados. No se permiten la instalación de estas máquinas en las casas de habitación y otros negocios no autorizados para ese fin, todo de acuerdo con la legislación señalada en el artículo N° 4 de este Reglamento.
