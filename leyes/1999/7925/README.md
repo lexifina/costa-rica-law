@@ -1,6 +1,6 @@
 # Impuestos Municipales de San Pablo de Heredia
 
-Ley N° 7925 del 1999-10-12. SINALEVI, ficha 31130: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=31130&param2=32848&param3=1>.
+Ley N° 7925 del 1999-10-12. SINALEVI, ficha 31130: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=31130&param2=115372&param3=1>.
 
 Publicada en La Gaceta N° 207 del 1999-10-26.
 
@@ -10,3 +10,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | --- | --- | --- | --- |
 | 1 de 3 | 1999-10-26 | Ley 7925 | 1999-10-12 |
 | 2 de 3 | 1999-10-26 | SINALEVI | 1999-10-12 |
+| 3 de 3 | 2019-03-06 | Ley 9620 | 2018-10-02 |
