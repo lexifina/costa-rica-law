@@ -1,0 +1,1 @@
+ARTÍCULO 4- Los profesionales liberales, aunque sean de distintas disciplinas, que operen agrupados en un mismo predio, organizados bajo una asociación de tipo mercantil en la jurisdicción territorial del cantón de San Pablo de Heredia, se encontrarán obligados al trámite de la licencia y el pago del impuesto de patente, por tener dichas asociaciones presunción de lucro.

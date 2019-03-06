@@ -1,0 +1,1 @@
+ARTÍCULO 24- La Municipalidad de San Pablo de Heredia suministrará a los patentados, en cualquier momento, los formularios y la información necesarios para que puedan presentar la declaración jurada del impuesto, los cuales estarán disponibles por medios electrónicos o podrán ser retirados en las oficinas municipales.

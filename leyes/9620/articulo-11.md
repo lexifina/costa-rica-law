@@ -1,0 +1,1 @@
+ARTÍCULO 11- Para solicitar, traspasar, trasladar, renovar o realizar cualquier otro trámite relacionado con una licencia municipal será obligatorio que tanto el solicitante como el dueño o los dueños del inmueble, donde se ejecutará o desarrollará la actividad, se encuentren totalmente al día con las obligaciones de cualquier tributo municipal del que sean sujetos pasivos.
