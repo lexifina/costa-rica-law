@@ -1,0 +1,2 @@
+ARTÍCULO 33- Queda prohibido mantener rótulos en estado de deterioro o abandono evidente, desde el punto de vista estético o que represente un peligro para la integridad física de personas, animales, bienes muebles o inmuebles.
+En primera instancia se le notificará al administrado para que subsane lo solicitado; caso contrario, la Municipalidad de San Pablo de Heredia procederá al retiro de estos.

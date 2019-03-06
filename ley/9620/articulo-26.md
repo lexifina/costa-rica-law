@@ -1,0 +1,8 @@
+ARTÍCULO 26- Toda declaración queda sujeta a revisión por los medios establecidos por ley. Si se comprueba que los datos suministrados son incorrectos, circunstancia que determina una variación en el tributo, o cualquier otro tipo de inexactitud, se hará la recalificación respectiva.
+Para el requerimiento de información y documentos para actuaciones fiscalizadoras, los contribuyentes del impuesto de patentes están obligados a facilitarlos cuando la Administración Tributaria Municipal se los solicite en el proceso de declaración o para realizar actuaciones fiscalizadoras. En casos especiales de actuaciones fiscalizadoras del impuesto de patentes, la Municipalidad de San Pablo de Heredia podrá solicitar los elementos o indicios que permitan realizar la determinación de la obligación tributaria, entre ellos los siguientes:
+a) Certificación literal de la propiedad donde se ubica el local de la empresa fiscalizada.
+b) Personería jurídica con detalle de la representación legal, composición de la Junta Directiva y distribución de la propiedad de las acciones, se trate o no de empresas vinculadas o pertenecientes a un mismo grupo económico de interés.
+c) Copia de una o más planillas presentadas a la Caja Costarricense de Seguro Social, que permitan la verificación y determinación de la obligación tributaria.
+d) Copias certificadas de los contratos y los recibos por concepto de alquiler de local.
+e) Copias de los recibos del consumo de servicios públicos, que puedan ser utilizadas como indicios o parámetros de comparación en las actuaciones fiscalizadoras.
+f) Cualquier otro documento o información que constituya un indicio o elemento de prueba de relevancia tributaria para la actuación fiscalizadora.

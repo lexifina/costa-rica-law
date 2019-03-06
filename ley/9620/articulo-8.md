@@ -1,0 +1,1 @@
+ARTÍCULO 8- Para realizar todo trámite de licencias como solicitudes, traspasos, traslados, cambios o ampliación de actividades y otros, la persona solicitante deberá cumplir los requisitos establecidos en los reglamentos de licencias municipales de la Municipalidad de San Pablo de Heredia.

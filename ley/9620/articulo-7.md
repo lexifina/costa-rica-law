@@ -1,0 +1,2 @@
+ARTÍCULO 7- La actividad que el patentado desarrollará será únicamente la que la Municipalidad de San Pablo de Heredia le haya autorizado mediante la licencia otorgada.
+La Municipalidad puede revocar la licencia otorgada previa verificación del procedimiento administrativo respectivo, cuando la actividad aprobada se esté desarrollando en contraposición a la normativa vigente y cuando se violente el orden público y se afecte a terceros.

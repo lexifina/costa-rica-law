@@ -1,0 +1,1 @@
+ARTÍCULO 17- Cuando la actividad económica haya operado en un periodo fiscal incompleto, se determinará el impuesto con base en el promedio mensual del total de ventas o ingresos brutos reportados a la Dirección General de Tributación, multiplicado por doce meses.

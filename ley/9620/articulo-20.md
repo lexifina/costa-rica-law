@@ -1,0 +1,1 @@
+ARTÍCULO 20- Cuando a un patentado se le haya suspendido la licencia, se deberá iniciar el debido proceso para cancelar inmediatamente la licencia otorgada, cumpliendo previamente con las disposiciones legales y reglamentarias existentes.

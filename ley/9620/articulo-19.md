@@ -1,0 +1,1 @@
+ARTÍCULO 19- La licencia para el desarrollo de una actividad económica que haya sido otorgada por la Municipalidad de San Pablo de Heredia se podrá suspender de acuerdo con lo establecido en el artículo 81 bis de la Ley N.° 7794, Código Municipal, de 30 de abril de 1998.

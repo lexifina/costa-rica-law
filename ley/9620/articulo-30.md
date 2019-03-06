@@ -1,0 +1,2 @@
+ARTÍCULO 30- En caso del incumplimiento del artículo 28 de esta ley, se otorgará un plazo de ocho días hábiles para que proceda a ajustarse a los requisitos establecidos; caso contrario, la Municipalidad aplicará las medidas correctivas, las cuales se establecerán en el reglamento de este impuesto.
+En caso de atraso en la cancelación de dicho impuesto, la Municipalidad de San Pablo de Heredia cobrará intereses por mora, de acuerdo con lo establecido en los artículos 57 y 58 de la Ley N.° 4755, Código de Normas y Procedimientos Tributarios, de 3 de mayo de 1971.
