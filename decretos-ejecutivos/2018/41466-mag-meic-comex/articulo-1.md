@@ -19,8 +19,9 @@ DECRETAN:
 AUTORIZACIÓN DE IMPORTACIÓN DE CUOTA DE ARROZ
 EN GRANZA POR DESABASTECIMIENTO
 EN EL MERCADO NACIONAL
-Artículo 1.- Se autoriza la importación de cuarenta y cuatro mil cuatrocientas tres toneladas métricas (44.403 TM) de arroz en granza con una tarifa de cero por ciento (0%) de Derechos Arancelarios a la Importación, para el siguiente inciso arancelario, contemplado en el Arancel Centroamericano de Importación:
+Artículo 1º—Se autoriza la importación de cincuenta y dos mil ochocientas noventa y ocho toneladas métricas (52.898 TM), con una tarifa de cero por ciento (0%) de Derechos Arancelarios a la Importación, para el siguiente inciso arancelario, contemplado en el Arancel Centroamericano de Importación:
 Código SAC | Descripción
 10.06 | Arroz
 1006.10 | Arroz con cáscara (arroz “paddy”)
 1006.10.90.00 | Otros
+(Así reformado por el artículo 1° del decrero ejecutivo N° 41838 del 6 de marzo de 2019)
