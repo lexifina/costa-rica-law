@@ -1,0 +1,1 @@
+Artículo 11.-Obligación de Registro. Todo oferente que participe en un proceso de contratación del Comité Cantonal deberá estar previamente registrado en el Registro de Proveedores, y con los datos debidamente actualizados.

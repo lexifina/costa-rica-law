@@ -1,0 +1,4 @@
+Artículo 22.—Plazos para Recepción de Ofertas.
+Contratación Directa: De uno a cinco días hábiles máximo. En casos calificados como urgentes, con al menos cuatro horas de anticipación.
+Licitación Abreviada: El plazo no podrá ser menor a cinco ni mayor a veinte días hábiles.
+Licitación Pública: El plazo mínimo de recepción será de quince días hábiles contados desde el día siguiente a la publicación de aviso.

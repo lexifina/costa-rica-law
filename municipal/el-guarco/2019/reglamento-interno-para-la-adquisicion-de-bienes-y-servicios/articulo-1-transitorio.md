@@ -1,0 +1,2 @@
+Transitorio único:
+Facultades Temporales de la Junta Directiva: Hasta tanto no sea nombrado el personal administrativo necesario para cumplir con las tareas impuestas en este reglamento, la Junta Directiva del Comité Cantonal de Deportes y Recreación asumirá todo el proceso de contratación administrativa. Acuerdo Nº 627 definitivamente aprobado por el Concejo Municipal de El Guarco en la sesión Nº 195-2019, celebrada el 28 de enero del 2019.

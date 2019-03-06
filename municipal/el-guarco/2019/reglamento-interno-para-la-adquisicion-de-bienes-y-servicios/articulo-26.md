@@ -1,0 +1,1 @@
+Artículo 26.—Formulario y control. Las órdenes de compra deberán ser impresas con numeración consecutiva. La Administración deberá llevar un control de las órdenes de compra utilizadas, con la indicación del número de proceso de contratación, nombre del contratado, monto, objeto, saldo y estado de la contratación.
