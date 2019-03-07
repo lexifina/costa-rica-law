@@ -14,3 +14,4 @@ Reglamento para la conformación y renovación de las estructuras partidarias y 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-03-30 | la propia norma |
+| 2 | 2019-03-07 | Decreto TSE 4 (2019-03-07) |
