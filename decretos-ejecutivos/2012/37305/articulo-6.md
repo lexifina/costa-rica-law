@@ -1,1 +1,0 @@
-Artículo 6º—Para la atención de la presente declaratoria de emergencia, la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias, de conformidad con la Ley Nacional de Emergencias y Prevención del Riesgo, podrá destinar fondos y aceptar donaciones de entes públicos y privados.
