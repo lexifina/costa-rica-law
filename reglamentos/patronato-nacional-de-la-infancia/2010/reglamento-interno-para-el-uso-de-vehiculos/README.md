@@ -15,3 +15,4 @@ Reglamento Interno para el Uso de Vehículos
 | --- | --- | --- |
 | 1 | 2011-02-01 | la propia norma |
 | 2 | 2018-04-26 | Reglamento 14 (2018-04-26) |
+| 3 | 2019-03-11 | Reglamento 8 (2019-03-11) |
