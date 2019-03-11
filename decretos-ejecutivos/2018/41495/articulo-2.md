@@ -1,1 +1,0 @@
-Artículo 2º—Deróguese el Decreto Ejecutivo número 41318-H del 17 de setiembre de 2018, publicado en el Alcance número 176 a La Gaceta número 180 del 01 de octubre de 2018, a partir de la vigencia del presente decreto.
