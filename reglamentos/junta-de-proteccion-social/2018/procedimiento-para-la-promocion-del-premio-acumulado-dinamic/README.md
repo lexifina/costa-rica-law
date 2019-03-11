@@ -14,3 +14,4 @@ Procedimiento para la promoción del "Premio acumulado dinámico" con los sorteo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-10-12 | la propia norma |
+| 2 | 2019-03-11 | Reglamento 15 (2019-03-11) |
