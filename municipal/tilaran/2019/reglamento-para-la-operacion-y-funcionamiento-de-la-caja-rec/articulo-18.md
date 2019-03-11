@@ -1,0 +1,2 @@
+Artículo 18.—Con el fin de facilitarle a los contribuyentes el pago de tributos a la Municipalidad de Tilarán, podrá instalarse Cajas Recaudadoras temporales, en los distritos; debiendo acatarse en todos sus extremos, las disposiciones del presente reglamento.
+Para tal efecto se dará aviso previo a las comunidades.

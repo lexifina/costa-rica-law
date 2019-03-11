@@ -1,0 +1,1 @@
+Artículo 2º—Todo Plataformista o su suplente, será supervisado directamente por el (la) Coordinador Servicios Ciudadanos y Técnicos, de conformidad con el Manual Básico de Organización de la Municipalidad de Tilarán. Sus funciones serán definidas en el Manual Descriptivo de Puestos General, elaborado con fundamento en el artículo ciento veinte del Código Municipal.

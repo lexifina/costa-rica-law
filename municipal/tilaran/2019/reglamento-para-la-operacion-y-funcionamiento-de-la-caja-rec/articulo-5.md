@@ -1,0 +1,1 @@
+Artículo 5º—Los (las) Plataformistas, finalizado el día, entregarán diariamente el dinero al Tesorero (a), el cual preparará el depósito bancario con la totalidad del dinero recaudado, guardando adicionalmente en su caja el monto correspondiente al fondo fijo.

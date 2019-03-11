@@ -1,0 +1,2 @@
+Artículo 3º—Los (las) Plataformistas emitirán directamente los comprobantes de pago por concepto de tributos, alquileres u otros (en original y copia), que ingresen a la Municipalidad por medio de la Caja Recaudadora; debiendo revisar la numeración consecutiva de los mismos, recaudar el dinero, firmarlos y sellarlos.
+Para los efectos correspondientes, contará con una clave de acceso al Sistema Municipal de Facturación y Cobro, que le permita emitir dichos comprobantes.

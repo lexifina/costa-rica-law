@@ -1,0 +1,1 @@
+Artículo 8º—Las ausencias temporales de los (las) Plataformistas, serán atendidas por un funcionario adiestrado. Quien sustituya a los (las) Plataformistas, dispondrá del fondo fijo tal como se indica en el artículo diez.
