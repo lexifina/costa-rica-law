@@ -1,1 +1,0 @@
-Artículo 19.—Este reglamento constituye un capítulo del Manual de procedimientos financiero contable de la Municipalidad de Puriscal, según el artículo 114 del Código Municipal y deroga cualquier reglamentación aprobada con anterioridad relacionada con el fondo de caja chica.

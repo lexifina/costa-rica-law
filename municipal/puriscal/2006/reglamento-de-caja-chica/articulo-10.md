@@ -1,1 +1,0 @@
-Artículo 10.—El fondo de caja chica estará sujeto a arqueos periódicos y sin previo aviso por parte de la Auditoría Interna. Debe quedar constatado por escrito y firmado por la persona que lo efectúe y por el encargado del fondo.

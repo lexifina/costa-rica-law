@@ -1,1 +1,0 @@
-Artículo 18.—La confección de cheques por reintegros de caja chica tendrá un plazo máximo de dos días hábiles, a partir de recibida la nómina de pago correspondiente por parte de la Alcaldía y será responsabilidad del Contador.
