@@ -14,3 +14,4 @@ Reforma decreto ejecutivo que declara Medicamentos de Venta Libre al Consumidor
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-02-08 | la propia norma |
+| 2 | 2019-03-12 | Decreto Ejecutivo 41646 (2019-03-12) |
