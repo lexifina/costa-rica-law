@@ -55,8 +55,8 @@ b.3 .1) Lactobacilos.
 b.3 .2) Sales de rehidratación oral según fórmula de la OMS o con menor contenido de sodio.
 Sólo para uso en adultos:
 b.3.3) Caolín + pectina.
-b.3.4) Loperamida 2 mg en cápsulas, tabletas o grageas, siempre y cuando el empaque del producto no contenga más de 8 dosis, la única indicación del producto incluida en el etiquetado del producto de venta libre sea "diarrea aguda" y la dosis máxima recomendada en dicho etiquetado sea 8 mg por día.
-(Así reformado el inciso anterior por el artículo 2° del decreto ejecutivo N° 41462 del 23 de octubre de 2018)
+b.3.4) Loperamida 2 mg en cápsulas, tabletas o grageas.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 41646 del 12 de marzo de 2019)
 b.3.5) Subsalicilato de bismuto.
 b.4) Hipocolesterolémicos:
 b.4.1) Cáscara de ispaghula.
