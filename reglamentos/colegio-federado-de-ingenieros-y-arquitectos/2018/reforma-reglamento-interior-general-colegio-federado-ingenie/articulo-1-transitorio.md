@@ -1,0 +1,2 @@
+Transitorio I: Una vez que entre en vigencia la presente reforma, las personas que fungen como miembros de los Tribunales de Honor, contarán con un plazo de seis meses para realizar y aprobar el Proceso de Sistema de Actualización Profesional.
+El incumplimiento de este requisito facultara al Colegio Federado de Ingenieros y de Arquitectos de Costa Rica a dar por terminada la relación con el miembro del Tribunal de Honor.
