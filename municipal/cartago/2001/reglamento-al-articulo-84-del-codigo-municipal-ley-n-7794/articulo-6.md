@@ -1,1 +1,1 @@
-Articulo 6° Es prohibido a los particulares romper los caminos públicos, para efectuar cualquier tipo de obra.
+Artículo 6°—Recepción de denuncias o quejas. Corresponde a la Plataforma de Servicios de la Municipalidad recibir las denuncias o quejas de las personas interesadas en relación a lo dispuesto en los artículos 84 del Código Municipal y del presente Reglamento. Dichas denuncias o quejas se trasladarán a la Unidad Técnica Ambiental.

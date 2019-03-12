@@ -1,1 +1,1 @@
-Artículo 11.—El propietario será responsable de colocar banderas y letreros durante el día y señales luminosas, claramente visibles durante !a noche a una distancia no menos de quince metros de los obstáculos, de forma que prevengan anticipadamente al que transite por la vía.
+Artículo 11.—Colaboración de las autoridades policiales. Las Inspectores Municipales podrán solicitar ayuda de las autoridades de la Policía Municipal o de la Fuerza Pública, para cumplir con las funciones dispuestas en este Reglamento.

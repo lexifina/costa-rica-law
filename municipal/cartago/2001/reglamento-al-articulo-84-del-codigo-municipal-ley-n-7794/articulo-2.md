@@ -1,2 +1,1 @@
-Mantenimiento de vegetación y de las vías públicas
-Articulo 2°—Es deber de los propietarios y poseedores por cualquier título de bienes inmuebles, mantener limpio de toda vegetación dañina las orillas de acera, los caminos públicos, las rondas y paredones, recortar las ramas de los árboles que den sombra a los caminos públicos, realizar el descuaje de cercas una vez al año en época apropiada, lodo a requerimiento y siguiendo las instrucciones de los funcionarios municipales.
+Artículo 2°—Actuación de oficio. La Municipalidad debe velar de oficio, por el cumplimiento de lo estipulado en los artículos 84 del Código Municipal, iniciando el procedimiento en aquellos casos en los cuales detecte el incumplimiento a los deberes urbanos establecido en dicha norma.

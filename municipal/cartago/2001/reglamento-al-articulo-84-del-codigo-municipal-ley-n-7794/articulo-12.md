@@ -1,1 +1,1 @@
-Artículo 12.—Si el propietario no atendiere lo expresado en los artículos 10 y 11 del presente Reglamento la Municipalidad queda facultada, según corresponda, a suspender las obras o a la eliminación de los obstáculos.
+Artículo 12.—Derogatoria. El presente Reglamento deroga cualquier disposición reglamentaria o acuerdo municipal que se le oponga. El presente Reglamento rige a partir de su publicación de acuerdo con lo dispuesto en el artículo 43 del Código Municipal.

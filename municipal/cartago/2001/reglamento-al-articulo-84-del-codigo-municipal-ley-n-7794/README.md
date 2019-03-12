@@ -14,3 +14,4 @@ Reglamento al artículo 84 del Código Municipal Ley N° 7794
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-01-09 | la propia norma |
+| 2 | 2019-03-12 | Reglamento municipal 0 (2019-03-12) |
