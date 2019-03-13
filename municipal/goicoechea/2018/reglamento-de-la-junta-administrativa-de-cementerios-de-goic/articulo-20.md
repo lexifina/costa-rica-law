@@ -1,0 +1,1 @@
+Artículo 20—Todo Permiso de Uso, en tanto se cumpla con lo estipulado en el artículo anterior, solo podrán ser cedidos a ascendientes o descendientes hasta tercer grado de consanguinidad. Toda cesión, para su validez legal, deberá ser formalizada en escritura pública y será remitido a la Junta Directiva para acordar su inscripción.

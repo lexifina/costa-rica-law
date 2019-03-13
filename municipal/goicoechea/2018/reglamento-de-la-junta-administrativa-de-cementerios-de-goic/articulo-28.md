@@ -1,0 +1,1 @@
+Artículo 28—Para toda reparación o modificación de una bóveda en ambos Cementerios o construcción de bóveda en el Cementerio Nuestra Señora de Guadalupe, el Permisionario deberá de contar con el correspondiente permiso otorgado por la Junta, previo estudio de campo y de pago del derecho correspondiente.

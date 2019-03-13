@@ -1,0 +1,1 @@
+Artículo 76—Los Permisionarios correrán con los gastos de construcción, reparación, enchape, pintura y embellecimiento de la bóveda o mausoleo una vez autorizados por la Junta y cancelados los permisos respectivos.

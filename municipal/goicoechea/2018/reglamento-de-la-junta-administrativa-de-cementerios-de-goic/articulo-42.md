@@ -1,0 +1,1 @@
+Artículo 42—Para toda exhumación ordinaria es necesario la anuencia del Permisionario de la bóveda o mausoleo, donde se encuentre el cadáver a ser exhumado salvo en los casos de exhumaciones extraordinarias, que se realicen por orden Judicial o bien por orden del Ministerio de Salubridad Pública.

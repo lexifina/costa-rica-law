@@ -1,0 +1,1 @@
+Artículo 16. —Para solicitar originariamente un Permiso de Uso se requiere ser mayor de edad, no ser Permisionario de otro u otros permisos de uso en los Cementerios del Cantón que administre esta Junta.

@@ -1,0 +1,1 @@
+Artículo 66—Después de transcurrido el periodo de alquiler de un nicho, a solicitud del autorizado o de no haberse recibido solicitud alguna, la Junta procederá al traslado de los restos cadavéricos al Osario General sin responsabilidad alguna.
