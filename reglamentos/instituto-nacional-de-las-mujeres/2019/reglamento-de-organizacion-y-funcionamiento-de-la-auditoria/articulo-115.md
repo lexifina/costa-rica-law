@@ -1,0 +1,2 @@
+Artículo 115. Solicitud de aclaración
+En caso de determinar la Auditoría Interna que existe imprecisión de los hechos se otorgará a la parte un plazo no menor de 10 días hábiles para que él o la denunciante complete su información o de lo contrario se podrá archivar o desestimar la denuncia. Todo ello, sin perjuicio de que posteriormente sea presentada como una nueva gestión con mayores elementos.

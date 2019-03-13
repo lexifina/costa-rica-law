@@ -1,0 +1,2 @@
+Artículo 119. Trámite de las denuncias
+La persona Auditora Interna deberá evaluar si le da trámite a una denuncia presentada directamente o trasladada por la Contraloría General de la República, para lo cual deberá considerar entre otros, la importancia o impacto del estudio y los recursos disponibles en la Auditoría Interna.

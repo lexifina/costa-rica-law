@@ -1,0 +1,2 @@
+Artículo 120. Fundamentación del acto de desestimación o archivo de la denuncia
+La desestimación o archivo de la denuncia se realizará mediante un acto debidamente motivado donde se acrediten los argumentos valorados para tomar esa decisión.

@@ -1,0 +1,2 @@
+Artículo 92. Plazo para remitir la información adicional a la conferencia
+En caso de que una persona funcionaria considere necesario remitir información adicional, deberá indicarlo en la conferencia, a fin de que, si la Auditoría Interna lo considera necesario, otorgue un plazo máximo de 5 días hábiles para la entrega de dicha información. Queda a criterio de la Auditoría solicitar, en el mismo plazo, información que considere necesaria.

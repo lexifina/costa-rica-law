@@ -1,0 +1,2 @@
+Artículo 33. Aumentos de personal
+En caso de incrementos en la cantidad de personal en el Instituto Nacional de las Mujeres se debe dar trato equitativo a la Auditoría Interna, de tal forma que no se vea disminuida su capacidad de fiscalización, por lo tanto, será responsabilidad de la Junta Directiva del INAMU y las instancias administrativas correspondientes velar porque el porcentaje de plazas asignadas a la Auditoría Interna con respecto a las plazas totales no disminuya.

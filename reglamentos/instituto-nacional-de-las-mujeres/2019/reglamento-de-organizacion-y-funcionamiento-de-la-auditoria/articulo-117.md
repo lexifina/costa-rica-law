@@ -1,0 +1,2 @@
+Artículo 117. Del traslado de la denuncia a la administración activa
+La Auditoría Interna, luego de analizar el contenido de las denuncias presentadas ante esta dependencia, podrá trasladar a la Administración Activa para su atención, aquellas denuncias que por su contenido puedan ser atendidas por la Administración Activa. La Administración Activa deberá atender y guardar la confidencialidad de las personas denunciantes, esto según lo establece la Ley General de Control Interno, así como informar de su resultado a la Auditoría Interna y a las personas interesadas.

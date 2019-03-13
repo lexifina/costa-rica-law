@@ -1,0 +1,2 @@
+Artículo 67. Origen de los estudios o servicios
+Los estudios o servicios de la Auditoría Interna se podrán originar al ser requeridos de la Contraloría General de la República, solicitados por la Junta Directiva u otras dependencias de la Administración Activa si la Auditoría Interna lo considera pertinente, por el Plan Anual de trabajo, por criterio de la persona Auditora Interna o por atención de denuncias.

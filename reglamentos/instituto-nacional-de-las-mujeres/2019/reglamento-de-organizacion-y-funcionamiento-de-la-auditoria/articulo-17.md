@@ -1,0 +1,10 @@
+Artículo 17. Deberes de la persona Auditora Interna
+Sin perjuicio de otras obligaciones que le encomiende la normativa, la Contraloría General de la República o la Junta Directiva, en este último caso, atinentes a sus funciones de asesoría y fiscalización, son deberes de la persona Auditora Interna los siguientes:
+a) Programar, coordinar, dirigir y controlar la Auditoría Interna. Para ello dictará y mantendrá actualizados los lineamientos, directrices, políticas, procedimientos e instructivos pertinentes y aplicará criterios adecuados en el ejercicio de las competencias y las relaciones.
+b) Liderará el proceso de planificación estratégica y operativa de la Auditoría Interna, cuyo resultado será un documento formal que deberá ser del conocimiento del Jerarca, esto de conformidad con la normativa establecida.
+c) Conocer, aprobar y dar trámite a los informes que se produzcan como resultado de las auditorias o estudios especiales que se realicen, pudiendo corregirlos, ampliarlos, resumirlos o mantenerlos tal y como le son enviados, con el fin de darlos a conocer a la Junta Directiva a las personas titulares subordinadas según corresponda.
+d) Asesorar en forma oportuna en asuntos de su competencia tanto a la Junta Directiva, administración activa y a las personas titulares subordinadas.
+e) Formular, gestionar y mantener vigente el Reglamento de Organización y funcionamiento de la Auditoría Interna.
+f) Establecer un programa de aseguramiento de la calidad para la Auditoría Interna del INAMU.
+g) Presentar ante la Junta Directiva un informe de desempeño de forma anual de la ejecución del plan de trabajo, así como un informe sobre el seguimiento de acciones emitidas tanto por la Contraloría General de la República, la Auditoría Interna, así como de otros órganos de fiscalización.
+h) Presentar el Plan de Trabajo Anual de la Auditoría Interna de conformidad con los lineamientos de la Contraloría General de la República y proponer a la Junta Directiva los requerimientos de recursos necesarios para ejecutar dicho plan.
