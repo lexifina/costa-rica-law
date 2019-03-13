@@ -10,5 +10,6 @@ f) Mantener formalizados y actualizados los correspondientes planos de los Cemen
 g) Mantener actualizado un registro de permisos de uso de bóvedas por tomo, folio y asiento en conjunto con la administración.
 h) Hacer que se guarde la debida compostura moral por parte de las personas que frecuenten los Cementerios.
 i) Elaborar cada año en el mes de setiembre un presupuesto anual de ingresos y egresos
-j) Actualizar el manual descriptivo de funciones de los empleados de la institución velando por el fiel cumplimiento de dicho manual.
+j) Actualizar el manual descriptivo de funciones de los empleados de la institución, velando por el fiel cumplimiento de dicho manual.
+(Así reformado le inciso anterior mediante sesión ordinaria N° 03-19 del 21 de enero del 2019)
 k) Velar por el fiel cumplimiento de este Reglamento y por la aplicación de los manuales elaborados por la administración.

@@ -14,3 +14,4 @@ Reglamento de la junta administrativa de cementerios de Goicoechea
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-03-13 | la propia norma |
+| 2 | 2019-03-13 | Reglamento municipal 3 (2019-01-21) |
