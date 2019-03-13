@@ -24,3 +24,4 @@ Manual descriptivo de clases de puestos de la Asamblea Legislativa
 | 9 | 2013-09-24 | Acuerdo 36 (2013-09-24) |
 | 10 | 2017-03-14 | Reglamento 158 (2017-03-14) |
 | 11 | 2019-03-06 | Reglamento 38 (2019-03-06) |
+| 12 | 2019-03-13 | Reglamento 39 (2019-03-13) |
