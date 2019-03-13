@@ -1,0 +1,1 @@
+Artículo 24. —Este Reglamento rige a partir de su ratificación. El presente proyecto de reglamento ha sido aprobado por el Concejo Municipal de la Municipalidad del Cantón de Alajuelita, mediante ACUERDO FIRME y publicado en el Diario Oficial la Gaceta Rige a partir de su publicación.
