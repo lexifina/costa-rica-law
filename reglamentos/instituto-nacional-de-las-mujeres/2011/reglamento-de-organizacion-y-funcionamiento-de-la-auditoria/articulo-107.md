@@ -1,1 +1,0 @@
-Artículo 107.—Identidad del denunciante. De oficio todas las identidades de los denunciantes serán confidenciales de acuerdo con lo que preceptúa la ley. Si el denunciante tiene interés de que su identidad sea conocida en algún momento del proceso, deberá hacerlo de conocimiento por escrito a la Auditoría Interna para lo correspondiente.

@@ -1,2 +1,0 @@
-Subcapítulo 2. Participación en comisiones y Junta Directiva
-Artículo 40.—Participación en Junta Directiva. La Auditora o Auditor Interno asistirá a las sesiones de Junta Directiva, únicamente cuando ésta la convoque expresamente para asesorar en materia de su competencia, ejercerá su función con las siguientes condiciones: derecho de expresar su opinión en materia estrictamente de su competencia, que dicha opinión conste en actas, y que se le posibilite posponer su opinión en caso de que lo considere necesario.

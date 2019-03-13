@@ -1,1 +1,0 @@
-Artículo 58.—Servicio de advertencia. La Auditoría Interna deberá advertir a la Administración del Instituto, incluyendo a la Junta Directiva, sobre las posibles consecuencias de determinadas conductas o decisiones, cuando sean de su conocimiento o así se lo soliciten.

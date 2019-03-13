@@ -1,1 +1,0 @@
-Artículo 63.—Origen de los estudios o servicios. Los estudios o servicios de la Auditoría Interna se podrán originar al ser requeridos de la Contraloría General de la República, solicitados por la Junta Directiva, por el Plan Anual Operativo, por criterio del Auditor o Auditora Interna o por atención de denuncias.

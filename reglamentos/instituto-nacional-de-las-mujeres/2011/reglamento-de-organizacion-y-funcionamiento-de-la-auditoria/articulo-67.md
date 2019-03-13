@@ -1,1 +1,0 @@
-Artículo 67.—Valoración preliminar del riesgo y control interno. Los y las auditoras durante la planificación del trabajo deberán realizar una valoración preliminar del riesgo pertinente a la actividad bajo revisión así como el control interno relativo. Los objetivos del trabajo deberán reflejar estas dos valoraciones.

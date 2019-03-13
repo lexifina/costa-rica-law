@@ -1,1 +1,0 @@
-Artículo 17.—Delegación de funciones. La Auditora o Auditor Interno podrá delegar en su personal sus funciones, utilizando criterios de idoneidad y conforme lo establece la Ley General de la Administración Pública, quedando el personal obligado a cumplir con el marco legal, reglamentario y técnico que regula su accionar.

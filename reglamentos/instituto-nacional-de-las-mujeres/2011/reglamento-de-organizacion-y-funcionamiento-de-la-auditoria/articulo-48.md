@@ -1,1 +1,0 @@
-Artículo 48.—Informe sobre las evaluaciones realizadas. Los resultados de las evaluaciones internas y externas deberán constar en un informe y el Auditor o Auditora Interna deberá preparar un plan de mejora, si así lo requieren los resultados y comunicarlo a la Junta Directiva. El Auditor o Auditora Interna será responsable de dar un seguimiento adecuado al plan de mejora.

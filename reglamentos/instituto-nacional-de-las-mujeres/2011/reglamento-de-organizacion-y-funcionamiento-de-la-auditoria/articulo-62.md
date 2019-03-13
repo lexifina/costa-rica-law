@@ -1,1 +1,0 @@
-Artículo 62.—Informes de seguimientos de implementación de acciones. Son informes en que la Auditoría Interna le indica a la Administración el estado de las recomendaciones u observaciones realizadas por la Auditoría Interna, la Auditoría Externa, así como las disposiciones emitidas por la Contraloría General de la República, así como de otras instancias con competencia.

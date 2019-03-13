@@ -1,1 +1,0 @@
-Artículo 84.—Comunicación a partes fuera del Instituto. Cuando se envíen resultados de un trabajo a partes ajenas a la organización, la comunicación deberá estar sustentada en las regulaciones atinentes.

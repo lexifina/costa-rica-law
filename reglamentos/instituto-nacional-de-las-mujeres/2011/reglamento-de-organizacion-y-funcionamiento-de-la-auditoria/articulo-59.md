@@ -1,3 +1,0 @@
-Artículo 59.—Servicios de Auditoría. Llamados también Servicios a posteriori, son los referidos a los distintos tipos de auditoría, incluidos los estudios especiales. Estos servicios regularmente dan por resultados informes de control interno y/o relaciones de hechos.
-Los servicios a posteriori dependiendo de su alcance y considerando la normativa aplicable se clasifican en Auditorias y estudios especiales. Los estudios especiales incluyen la atención de denuncias.
-Los productos que se dan son: Informes de control interno, informes de relaciones de hechos e informes de seguimiento de acciones sobre resultados

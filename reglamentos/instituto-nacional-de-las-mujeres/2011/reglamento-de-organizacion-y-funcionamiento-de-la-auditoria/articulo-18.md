@@ -1,1 +1,0 @@
-Artículo 18.—Salidas de trabajo. En cuanto a las salidas de la institución para el cumplimento de sus funciones, el Auditor o Auditora Interna lo podrá comunicar a la Presidencia Ejecutiva, siempre que esta comunicación no entorpezca sus funciones e independencia.

@@ -1,1 +1,0 @@
-Artículo 25.—Cambios en recursos. La Auditoría Interna ejecutará sus recursos con independencia de la Administración. En caso de que requiera hacer movimientos de recursos, que afecten los asignados a la Auditoría Interna, como modificaciones o presupuestos, deberá contarse con autorización por escrito del Auditor o Auditora Interna.

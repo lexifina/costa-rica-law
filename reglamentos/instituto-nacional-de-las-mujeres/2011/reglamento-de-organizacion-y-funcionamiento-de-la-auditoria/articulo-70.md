@@ -1,1 +1,0 @@
-Artículo 70.—Riesgo. La actividad de la Auditoría Interna, deberá coadyuvar, conforme a sus competencias en la mejora del Sistema Específico de Valoración del Riesgo Institucional (SERVI) del INAMU, así como de los sistemas de control respectivos. La actividad de la Auditoría Interna deberá fiscalizar la efectividad del SERVI.

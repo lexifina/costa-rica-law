@@ -1,1 +1,0 @@
-Artículo 29.—Disposiciones. Los funcionarios y las funcionarias de la Auditoria Interna estarán sujetos a las disposiciones administrativas aplicables al resto del personal del Instituto y el Auditor o Auditora Interna será el jefe de personal de la Auditoría Interna y en esa condición ejercerá todas las funciones que le son propias en la administración de ese recurso.

@@ -1,1 +1,0 @@
-Artículo 76.—Análisis y evaluación. Las funcionarias y los funcionarios de la Auditoría Interna deberán basar sus hallazgos, conclusiones, recomendaciones, observaciones y demás resultados del trabajo en el adecuado análisis y evaluaciones.

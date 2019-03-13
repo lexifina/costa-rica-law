@@ -1,1 +1,0 @@
-Artículo 71.—Fiscalización de objetivos, metas y programas. Los funcionarios y las funcionarias de la Auditoría Interna deberán fiscalizar la efectividad de los objetivos, metas, programas y presupuestos de los niveles operativos y de que éstos sean consistentes con la organización, medibles y de impacto.

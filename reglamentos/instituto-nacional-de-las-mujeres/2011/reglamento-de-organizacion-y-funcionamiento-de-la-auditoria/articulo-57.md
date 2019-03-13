@@ -1,1 +1,0 @@
-Artículo 57.—Servicio de asesoría. La Auditoría Interna deberá asesorar a la Junta Directiva en materia de su competencia. La Asesoría se da principalmente a solicitud y en ella se expresa el criterio u opinión por medio de observaciones y sin que menoscabe o comprometa la independencia y objetividad en el desarrollo posterior de sus demás competencias.
