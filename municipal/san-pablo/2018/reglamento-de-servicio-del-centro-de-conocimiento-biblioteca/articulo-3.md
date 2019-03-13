@@ -1,0 +1,2 @@
+SECCIÓN SEGUNDA. USUARIOS.
+Artículo 3. IDENTIFICACIÓN. Será obligación de todo usuario que desee ingresar o hacer uso de los servicios que brinda el Centro de Conocimiento de presentar: Cédula de identidad (nacionales) o documento de identificación oficial (cédula de residencia o pasaporte/ extranjeros), Carné estudiantil con fotografía, o algún otro documento sujeto a revisión de la Administración del Centro de Conocimiento.
