@@ -1,0 +1,1 @@
+Artículo 6º—Excepciones. Se exceptúan de este incentivo el precio por alquiler de locales en el Mercado Libre de Guadalupe, impuesto sobre espectáculos públicos, timbres y los tributos de carácter temporal, así mismo, no aplica el incentivo en la multa por atraso en declaración, multa Impuesto Construcción, Multas Aseo y Ornato, Multa Infracción Ley de Licores.

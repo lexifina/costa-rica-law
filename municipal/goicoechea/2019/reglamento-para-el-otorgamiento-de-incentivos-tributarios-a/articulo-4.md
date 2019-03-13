@@ -1,0 +1,1 @@
+Artículo 4º—Del pago de los tributos aplicando el incentivo contemplado en el presente Reglamento. El monto que se determine por cancelar por parte del contribuyente, luego de aplicado el descuento que corresponda, debe ser cancelado en efectivo, tarjeta de crédito o débito, cheque certificado, en sí cualquier medio que asegure la liquidez inmediata de la obligación.

@@ -1,0 +1,1 @@
+Artículo 3º—Vigencia de incentivo. La aplicación del incentivo que se origina en este Reglamento, es aplicable a todo contribuyente que cancele la totalidad de los tributos municipales registrados a su nombre en el Primer Trimestre de cada año, que rige el 01 de enero al 31 de marzo del año del que se trate.
