@@ -1,0 +1,2 @@
+Artículo 6º—Cuando una funcionaria se encuentre en período de embarazo, se le permitirá hacer los arreglos necesarios al uniforme siempre y cuando sea posible. Cuando ya no sea posible modificar las prendas, se le excusará del uso de uniforme por el resto del embarazo siempre y cuando mantenga la decencia y la formalidad.
+Su ropa de trabajo deberá ser del mismo color o similar al del uniforme. Estas piezas deberán tener la misma calidad que estos.

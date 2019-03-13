@@ -1,0 +1,4 @@
+CAPÍTULO IV
+Generalidades
+Artículo 16.—Ninguna prenda del uniforme podrá ser prestada y/o donada a ninguna persona externa de esta institución (familiares, amigos, etc.), de lo contrario será sancionado/a con falta grave. Lo anterior aplica tanto para las prendas de los uniformes administrativos como los de las áreas operativas.
+Rige a partir de su publicación.
