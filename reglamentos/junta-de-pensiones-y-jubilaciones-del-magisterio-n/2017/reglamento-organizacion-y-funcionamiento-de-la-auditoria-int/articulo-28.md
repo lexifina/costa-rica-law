@@ -1,1 +1,0 @@
-Artículo 28.—Informes de naturaleza confidencial. Los informes de carácter confidencial, como las relaciones de hechos, se hacen directamente del conocimiento del Órgano Colegiado para lo que proceda, por disposición de Junta Directiva o a criterio del Auditor Interno.

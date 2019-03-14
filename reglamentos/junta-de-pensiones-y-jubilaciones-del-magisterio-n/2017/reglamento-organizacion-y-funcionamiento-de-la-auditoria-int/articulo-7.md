@@ -1,1 +1,0 @@
-Artículo 7º—Estructura Organizativa. La Auditoría Interna dispone de una estructura organizativa concordante con la razón de ser y la normativa que regula a la JUPEMA, que garantice una administración eficaz, eficiente y económica de los recursos asignados, así como la efectividad en el cumplimiento de las obligaciones legales y técnicas.
