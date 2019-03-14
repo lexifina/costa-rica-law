@@ -1,0 +1,1 @@
+Artículo 5°—Del Consejo de Salud Ocupacional. El Consejo de Salud Ocupacional como, órgano rector en la materia, facilitará la asesoría u orientación que se requiera para cumplir con las responsabilidades en materia de seguridad y salud en el trabajo.

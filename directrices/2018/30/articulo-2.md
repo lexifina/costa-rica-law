@@ -1,0 +1,1 @@
+Artículo 2°—Ámbito de aplicación. La presente directriz es aplicable a todas instituciones del sector público sea, centralizado o descentralizado, como centros de trabajo, respecto al cumplimiento de la legislación laboral en materia de salud ocupacional.

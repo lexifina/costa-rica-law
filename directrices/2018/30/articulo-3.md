@@ -1,0 +1,5 @@
+Artículo 3°—Ejercicio de la función pública. Se instruye a los jerarcas de la Administración Central y Descentralizada, para que realicen las siguientes acciones:
+a) Cumplir con la normativa técnica y jurídica vigente en el país relativa a los derechos de las personas trabajadoras que nacen a la luz de la legislación especializada en Salud Ocupacional.
+b) Identificar y evaluar los factores de riesgos laborales, con el propósito de elaborar y ejecutar el plan de acción en materia de Salud Ocupacional en cada una de sus dependencias.
+c) Velar por la correcta operación tanto de las Oficinas o Departamentos de Salud Ocupacional como de las Comisiones de Salud Ocupacional, asegurándose de que ambas estén debidamente inscritas ante el Consejo de Salud Ocupacional.
+d) Rendir un informe al Consejo de Salud Ocupacional sobre la constitución y conformación de las Oficinas o Departamentos de Salud Ocupacional como de las Comisiones de Salud Ocupacional en sus respectivas instituciones, en un plazo máximo de tres meses después de la publicación de la presente directriz en el Diario Oficial La Gaceta.
