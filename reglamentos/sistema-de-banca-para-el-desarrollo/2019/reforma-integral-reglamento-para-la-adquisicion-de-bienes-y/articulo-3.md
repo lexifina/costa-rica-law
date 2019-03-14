@@ -1,0 +1,3 @@
+TERCERO: Incorporación del FINADE al Sistema Digital Unificado de Compras Públicas.
+Con el propósito de armonizar los procesos del FINADE con la legislación aplicable, en adelante los procesos de contratación del fideicomiso deberán realizarse en consonancia con lo establecido en los artículos 40 y 40 BIS de la ley N.° 7494, Contratación Administrativa, de 2 de mayo de 1995, y sus reformas que establece que toda la actividad de contratación regulada por dicha ley, así como aquella que se regule bajo cualquier régimen especial, deberá realizarse por medio del Sistema digital unificado de compras públicas.
+Lo anterior garantizará la total transparencia y publicidad de cada uno de los procedimientos, documentos e información relacionada con dichos procesos de compras.
