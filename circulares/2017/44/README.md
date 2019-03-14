@@ -13,3 +13,4 @@ Procedimiento respecto a los requerimientos tecnológicos que solicitan para las
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-03-16 | la propia norma |
+| 2 | 2019-03-14 | Circular 37 (2019-03-14) |
