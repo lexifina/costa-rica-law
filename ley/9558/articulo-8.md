@@ -1,0 +1,30 @@
+ARTÍCULO 8- Se autoriza al Consejo Nacional de la Producción (CNP), cédula jurídica número cuatro - cero cero cero- cero cuatro dos uno cuatro seis (N.º 4 -000-04 21 46), para que realice un convenio de administración de terreno con el Instituto Costarricense de Acueductos y Alcantarillados (AyA), cédula de persona jurídica número cuatro - cero cero cero - cero cuatro dos uno tres ocho (N.º 4-000-042138), sobre el inmueble inscrito en el Registro Público de la Propiedad del partido de Alajuela, bajo el sistema de folio real matrícula número cinco uno dos seis cero cinco - cero cero cero (N. º 512605-000); naturaleza: terreno de repasto y para construir, situado en el distrito 8, San Rafael; cantón Alajuela de la provincia de Alajuela; linderos: al norte con quebrada seca y la Federación Costarricense de Fútbol (Fedefútbol); al sur con Inversiones llerda S.A.; al este con calle pública radial San Antonio y Federación Costarricense de Fútbol, y al oeste con Inversiones llerda S.A. y la Federación Costarricense de Fútbol. Mide treinta y tres mil doscientos cincuenta y cuatro metros cuadrados (33.254m2 ). Plano catastrado número A-uno seis ocho dos seis dos cuatro-dos mil trece (A-1682624-2013), con la finalidad de construir un campo de pozos para atender las necesidades de caudal para el acueducto metropolitano de San José, conforme a las siguientes especificaciones técnicas: Los pozos deben ubicarse en la zona en que el acuífero Colima inferior tiene mayor espesor, lo que ubica los posibles puntos de construcción de los pozos en la colindancia entre el terreno del CNP y el terreno denominado Proyecto Gol, conforme al siguiente cuadro:
+Localización de los pozos
+Pozo | Coordenadas planas Lambert Norte (m) |
+| Este | Norte
+1 | 514143.03 | 217287.74
+2 | 514198.47 | 217224.76
+Para la fase de construcción de los pozos y las obras civiles, se requiere contar con un área mayor al área definitiva que se utilizará para la ubicación de la infraestructura de explotación y la fase operativa, por lo que se deberá contar con un área mayor durante la fase constructiva, tanto para la etapa en que se construyen los pozos como para la etapa en la que se construirán las obras civiles, eléctricas y mecánicas.
+La fase constructiva será desarrollada en dos partes, la primera, que consistirá en la construcción de los pozos, mediante la perforación con máquinas de rotopercusión, que utilizan diferentes herramientas y espumante para extraer el material perforado, lo que implica la ubicación de zonas de almacenaje de herramientas y pilas de sedimentación para depositar el residuo de la perforación.
+Además de lo expuesto anteriormente en la zona de trabajo, se debe ubicar una caseta para el guarda y una caseta sanitaria.
+De modo que el área de trabajo requerida para cada uno de los sitios en que se construyan los pozos debe ser suficiente para ubicar en esta los siguientes
+componentes:
+1) Equipo perforador.
+2) Barras de perforación.
+3) Herramientas varias (brocas, máquinas de soldar, tubería de armado, etc).
+4) Tanques con agua y espumante.
+5) Pila de sedimentación.
+6) Caseta sanitaria.
+7) Caseta guarda.
+Se define como área requerida en cada uno de los puntos donde se construirá cada uno de los pozos seiscientos metros cuadrados (600m2) (lote de 30m x 20m), misma área que se requerirá durante la fase de construcción de las obras civiles, eléctricas y mecánicas.
+Una vez concluida la fase de construcción de los pozos, se deberá contratar la construcción de las obras civiles, eléctricas y mecánicas para lo cual se requerirá inicialmente de la misma área que para la fase de construcción de los pozos, ya que se debe almacenar materiales y equipo para desarrollar esta fase, así como alguna infraestructura temporal, como bodegas, casetas sanitarias y de guardas.
+Las obras a construir consisten, básicamente, en dos losas de concreto alrededor de los brocales de los pozos, dos castas de control de motor (una caseta por pozo); además, al lado de ambas casetas se ubicará un transformador (dos en total) tipo Pad Mounted, requeridos para la alimentación eléctrica de cada pozo, en ambos terrenos se requiere de un área de doscientos metros cuadrados (200m2 ) con las siguientes dimensiones 20m x 1 0m.
+La infraestructura permanente que se colocará en cada uno de los terrenos en que se construirán los dos pozos es la siguiente:
+Terrenos para pozo 1 (Pp1) y pozo (Pp2)
+Una losa de concreto de 4x6m alrededor del brocal del pozo y la "cachera" de descarga.
+Una caseta de control para cada pozo de 5x3m y al lado de esta un transformador, sobre el terreno, de 3x3m. Área requerida para cada pozo de aproximadamente doscientos metros cuadrados (200m2).
+Asimismo, se deberá contar con una servidumbre de ocho metros (8m) de ancho a lo largo del trazado que une a cada uno de los dos pozos con la calle principal de la radial Lindera. En esta servidumbre se instalarán la tubería de impulsión con diámetros entre los trescientos mm (300mm) a los quinientos mm (500mm), en tubería de hierro dúctil, las tuberías pluviales de cada pozo y, además, se ubicará la electrificación aéreo/subterránea de media tensión. Además, servirá como servidumbre de paso para el mantenimiento y la operación de los sistemas electromecánicos que se instalen en los pozos.
+Para las características de las obras y el servicio que prestará, el convenio podrá suscribirse hasta por cincuenta años, prorrogables automáticamente por periodos iguales, salvo acuerdo en contrario entre las partes, por causa debidamente justificada, que se deberá señalar en un periodo dentro del mes anterior a su vencimiento.
+Los aspectos específicos de diseño de los pozos se definirán posteriormente, por lo cual, eventualmente, se podrá requerir alguna modificación geométrica o en tamaño, por valoraciones propias del proyecto, autorizando que se den variaciones dentro de la conceptualización ya planteada.
+Rige a partir de su publicación.
+Dado en la Presidencia de la República, a los siete días del mes de mayo del año dos mil dieciocho.
