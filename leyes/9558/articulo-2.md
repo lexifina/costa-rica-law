@@ -1,0 +1,1 @@
+ARTÍCULO 2- En el convenio podrá incluirse la provisión de alimento para la Federación Costarricense de Fútbol (Fedefútbol) por parte del Consejo Nacional de Producción (CNP), por medio de su programa de abastecimiento institucional PAi, siempre que cumpla con los estándares de precio y calidad requeridos por la Federación.
