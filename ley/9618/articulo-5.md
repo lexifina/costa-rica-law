@@ -1,0 +1,3 @@
+ARTÍCULO 5- Se reforma el artículo 12 de la Ley N.º 6041, Ley de Creación de la Comisión Nacional de Préstamos para la Educación (Conape), de 18 de enero de 1977. El texto es el siguiente:
+Artículo 12- El Consejo Directivo sesionará ordinariamente dos veces al mes, en la primera y tercera semanas y, extraordinariamente, cuando lo convoquen por lo menos dos de sus miembros, o el secretario ejecutivo.
+Sus miembros serán remunerados mediante dietas, estas no podrán exceder de tres al mes y se ajustarán conforme al artículo 60 de la Ley N. º 7138, Ley de Presupuesto Extraordinario, de 16 de noviembre de 1989.

@@ -1,32 +1,16 @@
-ARTICULO 2º.- La Comisión administrará un fondo con los fines
-siguientes:
-a) Conceder préstamos a costarricenses, para estudios de educación
-superior parauniversitaria y para estudios de educación superior
-universitaria, dirigidos hacia carreras y especializaciones de postgrado,
-dentro o fuera del país, basados en el mérito personal y las condiciones
-socio-económicas de los beneficiarios, quienes, preferentemente, deberán
-ser de zonas rurales.
-(Así reformado por el artículo 2 de la Ley Nº 6495 de 25 de
-setiembre de 1980).
-b) Realizar permanentemente investigaciones sobre necesidades de
-financiación de estudios superiores, a mediano y largo plazo, de acuerdo
-con los lineamientos y prioridades señalados en los planes nacionales de
-desarrollo, para la formación de los recursos humanos que requiera el
-país;
-c) Coordinar con las entidades estatales y privadas el mejor
-aprovechamiento de las becas que ofrecen los gobiernos extranjeros, los
-organismos internacionales y los privados;
-d) Verificar periódicamente, de acuerdo con documentos, el
-rendimiento académico de los estudiantes beneficiarios de préstamos, y
-tomar las medidas correctivas procedentes;
-e) Colaborar con los beneficiarios de préstamos a fin de que se
-vinculen a trabajos acordes con sus estudios, mediante la comunicación
-con entidades que requieran personal profesional especializado;
-f) Administrar en fideicomiso fondos de organismos públicos o
-privados, destinados a financiar estudios de su personal, así como de
-sus familiares, cuando esa colaboración le sea solicitada;
-g) Gestionar, ante el Banco Central de Costa Rica, los giros en
-divisas extranjeras destinados a la realización de estudios en el
-exterior financiados por CONAPE; y
-h) Ofrecer orientación profesional a los estudiantes y personal
-interesados que quieran realizar estudios, dentro o fuera del país.
+ARTICULO 2º.- La Comisión administrará un fondo con los fines siguientes:
+a) Conceder préstamos a costarricenses, para estudios de formación técnica, educación superior parauniversitaria, estudios de educación superior universitaria dirigidos a carreras y especializaciones de posgrado, dentro o fuera del país, basados en el mérito personal y las condiciones socioeconómicas de los beneficiarios, quienes deberán ser, preferentemente, de zonas de desarrollo relativo medio, bajo o muy bajo, según la clasificación del Ministerio de Planificación Nacional y Política Económica (Mideplan). Al menos un cincuenta por ciento (50%) de los préstamos deberán otorgarse a estudiantes de estas zonas. La Comisión Nacional de Préstamos para Educación(Conape) podrá otorgar menos de un cincuenta por ciento (50%) de los préstamos a estudiantes de zonas de desarrollo relativo medio, bajo o muy bajo, solo en caso de que se demuestre inexistencia de demanda suficiente de créditos por parte de personas de estas zonas.
+Cuando se trate de préstamos para estudios dentro del país, la Comisión solo podrá conceder créditos, avales o garantías cuando se trate de instituciones educativas académicamente avaladas por la entidad que corresponda.
+Con ese fin, la Comisión realizará convenios de cooperación con cooperativas de ahorro y crédito, asociaciones de desarrollo, universidades públicas y privadas, municipalidades y organizaciones del Estado con presencia en las distintas zonas y cantones del país, así como aplicaciones por medios tecnológicos, ferias, promotores y unidades móviles, de manera que el crédito educativo llegue lo más cerca y de forma accesible a las personas que más lo requieren y que conforman la población meta de la institución, conforme a la ley de creación.
+(Así reformado el inciso a) anterior por el artículo 1° de la ley N° 9618 del 2 de octubre del 2018)
+b) Realizar, permanentemente, investigaciones sobre necesidades de financiación de estudios superiores, a mediano y largo plazos, de acuerdo con los lineamientos y las prioridades señalados en los planes nacionales de desarrollo e investigaciones afines, para la formación del recurso humano que requiera el país.
+(Así reformado el inciso anterior por el artículo 1° de la ley N° 9618 del 2 de octubre del 2018)
+c) Coordinar con las entidades estatales y privadas el mejor aprovechamiento de las becas que ofrecen los gobiernos extranjeros, los organismos internacionales y los privados;
+d) Verificar periódicamente, de acuerdo con documentos, el rendimiento académico de los estudiantes beneficiarios de préstamos, y tomar las medidas correctivas procedentes;
+e) Colaborar con los beneficiarios de préstamos, a fin de que se vinculen a trabajos acordes con sus estudios mediante el establecimiento de convenios de cooperación con el Ministerio de Trabajo y Seguridad Social, para brindar servicios de intermediación, orientación e inserción laboral.
+(Así reformado el inciso anterior por el artículo 1° de la ley N° 9618 del 2 de octubre del 2018)
+f) Administrar en fideicomiso fondos de organismos públicos o privados, destinados a financiar estudios de su personal, así como de sus familiares, cuando esa colaboración le sea solicitada;
+g) Gestionar, ante el Banco Central de Costa Rica, los giros en divisas extranjeras destinados a la realización de estudios en el exterior financiados por CONAPE; y
+h) Ofrecer orientación profesional a los estudiantes y personal interesados que quieran realizar estudios, dentro o fuera del país.
+i) Otorgar avales y garantías a estudiantes de escasos recursos que no cuenten con garantías fiduciarias o hipotecarias como instrumento que les permita acceder a un crédito de Conape, para realizar estudios de formación técnica, educación superior, parauniversitaria o universitaria.
+(Así adicionado el inciso anterior por el artículo 1° de la ley N° 9618 del 2 de octubre del 2018)
