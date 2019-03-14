@@ -1,0 +1,3 @@
+Artículo 28º Los propietarios de bienes inmuebles donde no haya construcciones deberán cercar el predio con un cierre en la línea de propiedad de no menos de 2.50 m de altura.
+Para el cerramiento de propiedades en el área urbana establecida por la Municipalidad, se permitirán únicamente los siguientes materiales: malla tipo ciclón, malla electro-soldada.
+Las tapias decorativas, baldosas o bloques de concreto, deberán cumplir con el Artículo IV.10 - Vallas y Verjas del Reglamento de Construcciones. Se permitirá el uso de alambre de púas o similares únicamente en zonas rurales definidas por la Municipalidad.

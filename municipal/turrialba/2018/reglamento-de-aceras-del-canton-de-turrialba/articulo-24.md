@@ -1,0 +1,1 @@
+Artículo 24° . En rutas nacionales las aceras deben construirse de acuerdo con las especificaciones que defina el MOPT. Se deberá respetar el ancho de la acera, la ubicación de cunetas y ancho de la calzada que establece el MOPT.
