@@ -1,0 +1,1 @@
+Artículo 19 º. Transitorio I, los vendedores que tienen una autorización previa a la aprobación de este reglamento, se les respetará el derecho. Pero respetando lo establecido en la Ley 6587, Ley de Ventas Ambulantes.
