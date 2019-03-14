@@ -1,0 +1,1 @@
+Artículo 20. Del registro de la garantía. El Departamento de Crédito será el responsable de generar el registro de las operaciones que están garantizadas con el FAC, de acuerdo con los procedimientos que se establezcan.

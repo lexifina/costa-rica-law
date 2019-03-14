@@ -1,0 +1,1 @@
+Artículo 31. Del apalancamiento de los recursos del fondo. CONAPE aprobará préstamos amparados a este fondo, hasta por una suma de tres veces el monto del fondo. Anualmente, el Departamento de Crédito evaluará el comportamiento del FAC y de considerarlo necesario incluirá la modificiación o ajuste respectivo en el PACG para conocimiento y resolución del Consejo Directivo.

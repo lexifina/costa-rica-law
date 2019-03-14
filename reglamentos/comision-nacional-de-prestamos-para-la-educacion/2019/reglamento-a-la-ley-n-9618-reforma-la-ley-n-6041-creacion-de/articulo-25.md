@@ -1,0 +1,1 @@
+Artículo 25. De los prestatarios financiados por CONAPE, previo a la apertura del fondo. No podrán ser beneficiarios del FAC, las personas que ya fueron beneficiadas con un préstamo de la Institución o que ya posean un grado académico parauniversitario o universitario.
