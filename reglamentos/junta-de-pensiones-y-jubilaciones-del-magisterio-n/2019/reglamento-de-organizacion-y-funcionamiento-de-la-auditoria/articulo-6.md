@@ -1,0 +1,6 @@
+CAPÍTULO II
+De la organización
+Artículo 6º—Dependencia jerárquica de la Auditoría. La Auditoría Interna es un órgano asesor de la Junta Directiva, dependiente para todos los efectos de este Órgano Colegiado, conforme lo señala el artículo 113 de la Ley Nº 7531 y sus reformas.
+El Auditor y Sub Auditor internos, dependen del máximo jerarca, quien los nombra y establece las regulaciones de carácter administrativo que les son aplicables, lo anterior considerando las disposiciones que al respecto establezca la Contraloría General de la República.
+Los demás trabajadores de la Auditoría Interna, estarán sujetos a las disposiciones administrativas aplicables al resto del personal de JUPEMA y a lo establecido en el artículo No. 24 de la Ley General de Control Interno; las cuales no pueden impedir, amenazar o afectar negativamente la independencia y objetividad que deben observar los trabajadores de la Auditoría Interna.
+Sin perjuicio de lo anterior, la Auditoría Interna ejerce sus labores con independencia funcional y de criterio, con respecto al Órgano Colegiado y los órganos de la administración. Para lo cual, los trabajadores de esta dependencia laboran en jornada de tiempo completo, de conformidad con el horario de la Institución, señalada en el Reglamento Interior de Trabajo.

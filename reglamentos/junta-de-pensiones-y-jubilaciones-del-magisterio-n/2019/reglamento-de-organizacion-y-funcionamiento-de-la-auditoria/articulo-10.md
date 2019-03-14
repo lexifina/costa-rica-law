@@ -1,0 +1,5 @@
+Artículo 10. —Delegación de funciones.
+El Auditor Interno asigna funciones y delega autoridad, excepto en aquellos casos en que su intervención personal sea obligatoria conforme con las disposiciones legales que emanen de las autoridades competentes.
+Cuando el Auditor Interno se ausente temporalmente, se recargan las funciones en el Subauditor. Para efectos de proceder a este recargo no se requiere de la autorización de la Contraloría General de la República. Si se determina que la ausencia temporal, justifica el nombramiento de un Auditor Interino, se efectúa de conformidad con lo dispuesto en el artículo No. 8 y los lineamientos dispuestos por el Órgano Fiscalizador al respecto.
+Cuando se ausente temporalmente el Subauditor interno, el Auditor Interno puede recargar sus funciones en otro trabajador idóneo de la Auditoría Interna, previo conocimiento de la Junta Directiva, sin que para ello requiera autorización del Órgano Contralor.
+Si se requiere nombrar en forma interina un Subauditor, por ausencia permanente de éste, se requiere autorización previa de la Contraloría General de la República.
