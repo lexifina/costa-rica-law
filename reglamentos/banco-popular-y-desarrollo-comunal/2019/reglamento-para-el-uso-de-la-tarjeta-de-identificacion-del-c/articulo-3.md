@@ -1,0 +1,1 @@
+Artículo 3º—La Dirección de Capital Humano proveerá a cada persona de un único documento oficial de identificación, que contendrá la respectiva fotografía y las medidas de seguridad y de nivel de acceso que se le haya asignado, documento que será producido y distribuido por la Dirección Capital Humano.

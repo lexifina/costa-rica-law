@@ -1,0 +1,1 @@
+Artículo 7º—Es obligación de cada superior respectivo recoger la tarjeta de identificación de las personas colaboradoras, el último día en que ejerza funciones y enviar formalmente a la Dirección de Capital Humano o dependencia responsable de la respectiva sociedad, que a su vez debe remitir a dicha Dirección, en un plazo no mayor a 10 días hábiles.

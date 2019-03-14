@@ -1,0 +1,6 @@
+Artículo 2º—Para los efectos de este Reglamento, se entiende por: Área restringida. También llamada área segura o área restringida. Zona limitada por barreras físicas y de acceso controlado, en la que se ejerce vigilancia sobre las operaciones, movimientos y permanencia de personas, tanto colaboradores como terceros, tales como bóvedas, cuartos de comunicación y áreas de RTS.
+Banco: Banco Popular y de Desarrollo Comunal. Colaborador: Persona integrante de los órganos colegiados del Conglomerado, fiscal de sus sociedades y persona trabajadora del Conglomerado Financiero Banco Popular.
+Conglomerado: Conglomerado Financiero Banco Popular y de Desarrollo Comunal, integrado por el Banco Popular y de Desarrollo Comunal y por sus sociedades.
+Jefatura: Colaborador con autoridad para ordenar y tomar decisiones.
+Sociedades: Popular Valores Puesto de Bolsa S. A., Popular Seguros S. A., Popular Fondos de Inversión S. A. y Popular Pensiones S. A.; así como por cualquier otra sociedad que en el futuro integre el Conglomerado.
+Visitante: - Persona que no es colaboradora o que siéndolo, se encuentra temporalmente en un área del Conglomerado distinta a aquella en la cual desarrolla usualmente sus labores.

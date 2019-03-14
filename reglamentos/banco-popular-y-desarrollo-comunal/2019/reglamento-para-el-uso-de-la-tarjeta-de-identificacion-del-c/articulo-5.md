@@ -1,0 +1,1 @@
+Artículo 5º—Para fines de ingreso, a los visitantes se les proporcionará una Tarjeta de Identificación. Toda tarjeta expirada deberá ser retirada de circulación por el personal de Seguridad y remitida a la Dirección de Capital Humano para su destrucción.
