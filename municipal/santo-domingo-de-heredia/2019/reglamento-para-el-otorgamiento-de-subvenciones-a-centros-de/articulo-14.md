@@ -1,0 +1,3 @@
+Artículo 14. Desviación de recursos. En caso de que las dependencias municipales participantes en el proceso, identifique la desviación de recursos para fines distintos a los objetivos planteados, se procederá a comunicar a la Dirección Financiera con el fin de que no se gire más dinero, simultáneamente se remitirá el expediente administrativo a la Alcaldía Municipal, para que por medio de los funcionarios que este designe se levante un informe que detalle la relación de hechos.
+Cumplido con lo anterior, el expediente será trasladado a la Asesoría Legal de planta, para que esta dependencia interponga formal denuncia.
+Rige a partir de su publicación en el diario Oficial La Gaceta. Fin de transcripción.
