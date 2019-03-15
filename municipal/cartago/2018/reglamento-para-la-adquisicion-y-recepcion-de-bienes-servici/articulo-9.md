@@ -1,0 +1,2 @@
+Artículo 9.- Verificación de la existencia del contenido presupuestario.
+Antes de que el pedido sea remitido a la Proveeduría para la formulación de la decisión inicial de contratación, la unidad usuaria deberá verificar la existencia del contenido o partida presupuestaria para atender la erogación, siendo requisito indispensable que en esa CAPÍTULO III decisión inicial se indiquen expresamente los recursos presupuestarios con que se atenderán las obligaciones derivadas de la contratación.

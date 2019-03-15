@@ -1,0 +1,3 @@
+Artículo 13.- Conformación del expediente administrativo.
+Una vez que se adopte la decisión de iniciar el procedimiento de contratación, se formará un expediente físico y/o electrónico administrativo, al cual se le incorporará la decisión inicial o pedido, el cartel definitivo, los estudios previos que motivaron el inicio de éstos cuando así corresponda y todas las actuaciones internas o externas relacionadas con la contratación. Los documentos que se agreguen al expediente deberán estar ordenados en estricto orden cronológico, de lo más antiguo a lo más nuevo, y debidamente foliado.
+Los borradores o documentos preparatorios no formarán parte del expediente, se tendrán como referencia en un archivo adicional.

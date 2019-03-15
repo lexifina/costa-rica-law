@@ -1,0 +1,2 @@
+Artículo 40.- Vicios ocultos, responsabilidad disciplinaria y civil en la ejecución de obras.
+El hecho de que la obra sea recibida a satisfacción en el acto de recepción oficial, no exime a la persona física o jurídica contratista o adjudicataria y los profesionales a cargo, de su responsabilidad por vicios ocultos, si éstos afloran durante los diez años posteriores a la fecha de la recepción definitiva.

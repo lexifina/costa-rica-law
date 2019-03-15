@@ -1,0 +1,3 @@
+Artículo 52.- Apercibimiento.
+Consiste en una formal amonestación escrita dirigida al particular, a efecto de que corrija su conducta, sin perjuicio de la ejecución de garantías o aplicación de cláusula penal o multa.
+La apertura y resolución de los procedimientos que se lleven a cabo para la eventual aplicación de un apercibimiento estará a cargo de la Junta Directiva del Comité Cantonal.

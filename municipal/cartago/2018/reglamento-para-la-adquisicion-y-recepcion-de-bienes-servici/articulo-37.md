@@ -1,0 +1,5 @@
+Artículo 37.- Acta de recepción de obras, bienes y/o servicios.
+La recepción de bienes, obras y/o servicios, deberá quedar consignada en un acta, la cual será levantada para cada procedimiento de contratación por separado, debiendo constar en el expediente de pago y en el de tramitación del procedimiento de contratación levantado por la Proveeduría.
+La dependencia técnica a cargo de la fiscalización de la ejecución contractual será la responsable de su levantamiento y deberá llevar un control consecutivo de las recepciones que realiza durante la ejecución contractual. La numeración consecutiva deberá responder al trabajo que se realice durante cada año calendario.
+En el caso de entregas parciales, deberá contar con la colaboración de las personas funcionarias especializadas que sean necesarios, a efecto de respaldar debidamente los intereses del Comité Cantonal en el acto de recepción.
+Todas las actas originales deben ser remitidas a la Proveeduría a más tardar dentro del tercer día de su levantamiento con la finalidad de que sean incorporadas al respectivo expediente administrativo.

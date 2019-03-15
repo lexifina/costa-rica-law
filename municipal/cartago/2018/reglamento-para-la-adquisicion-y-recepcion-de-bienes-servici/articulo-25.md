@@ -1,0 +1,2 @@
+Artículo 25.- Comunicación del acuerdo de adjudicación de licitaciones públicas.
+En el caso de la adjudicación de las Licitaciones Públicas, la Secretaría de la Junta Directiva del Comité Cantonal deberá remitir el acuerdo firme de adjudicación para publicación por el mismo medio en que se cursó la invitación, dentro de los dos días hábiles siguientes a su dictado, a la Proveeduría y la Dirección Ejecutiva.

@@ -1,0 +1,4 @@
+Artículo 53.- Inhabilitación.
+Constituye la máxima sanción que puede ser aplicada a un oferente o contratista, con ocasión de su participación en un procedimiento de contratación administrativa.
+Lo puede dictar tanto la Contraloría General de la República, como la propia administración licitante, siempre respetando el debido proceso y el derecho a la defensa y por los supuestos previstos en la LCA.
+Para el caso de los procedimientos de inhabilitación que se lleven a lo interno del Comité Cantonal, se deben acatar además de los principios constitucionales indicados, las normas expresas que sobre este tipo de procedimientos contemplan la LCA y el RLCA. Adicionalmente, resultarán de obligatorio acatamiento para la promoción de este tipo de procedimientos, la jurisprudencia de la Sala Constitucional y las resoluciones de la Contraloría General de la República, que estén directamente relacionadas con el tema.
