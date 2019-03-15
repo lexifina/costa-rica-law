@@ -150,10 +150,7 @@ Artículo 23- Como compensación económica por concepto de prohibición, se rec
 p) Se adiciona un artículo 48 bis a la Ley N.° 7428, Ley Orgánica de la Contraloría General de la República, de 7 de noviembre de 1994. El texto es el siguiente:
 Artículo 48 bis- Compensación económica. Como compensación económica por la prohibición, contenida en el artículo 48, inciso a), los funcionarios, a quienes alcance, tendrán de manera porcentual sobre su salario base un quince por ciento (15%), para los que posean el grado académico de bachiller universitario, y de un treinta por ciento (30%), para los que ostenten el grado de licenciatura u otro superior.
 q) Se reforman los artículos 7 y 12 de la Ley N.°2166, Ley de Salarios de la Administración Pública, de 9 de octubre de 1957, para que donde dice “artículo 5” se lea “capítulo VI”.
-r) Se reforma el inciso j) del artículo 118 de la Ley N.°181, Código de Educación, de 18 de agosto de 1944. El texto es el siguiente:
-Artículo 118-
-[…]
-j) Existirá un sobresueldo de recargo por labores especiales, que se pagará de acuerdo con la reglamentación que al efecto dicte la Dirección General del Servicio Civil, y sin que pueda pasar del veinticinco por ciento (25%) del sueldo de categoría.
+r) (Derogado por el artículo 3° de la ley N° 9655 del 4 de febrero del 2019)
 Artículo 58- Derogatorias. Se derogan las siguientes disposiciones:
 a) Los incisos c) y d) del artículo 1 de la Ley N.°5867, Ley de Compensación por Pago de Prohibición, de 15 de diciembre de 1975.
 b) El inciso f) del artículo 37 de la Ley N.°1581, Estatuto del Servicio Civil, de 30 de mayo de 1953.
