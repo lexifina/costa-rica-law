@@ -1,0 +1,2 @@
+Artículo 14º— De la devolución por orden del superior jerárquico encargado de la asignación. También se devolverá definitiva o temporalmente, la terminal móvil si la Gerencia General o el Subgerente así lo disponen.
+La Gerencia General o el Subgerente podrán retirar el uso de la terminal móvil en cualquier momento sea por que desaparezca la necesidad Institucional, por reiterado mal uso del servicio, por incumplimiento a las disposiciones de este Reglamento, por limitaciones presupuestarias o por cualquier otra razón que discrecionalmente se determine.

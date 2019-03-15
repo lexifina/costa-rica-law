@@ -1,0 +1,1 @@
+Artículo 18º—Limitaciones de llamadas internacionales. No se autoriza realizar llamadas internacionales salientes por medio del celular asignado. Solo el Gerente General, el Sub-Gerente y el Auditor de JASEC tendrán línea abierta y acceso a llamadas internacionales.

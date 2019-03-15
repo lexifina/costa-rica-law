@@ -1,0 +1,1 @@
+Artículo 21º— Del Deber de dar a conocer el número telefónico. Ningún funcionario, podrá negarse a dar a conocer el número del teléfono celular que le ha sido asignado. Ante el requerimiento de otro funcionario o de un usuario, el colaborador con la terminal móvil deberá dar a conocer el número donde puede ser localizado.

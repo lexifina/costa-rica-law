@@ -1,0 +1,2 @@
+Artículo 13º— De la devolución o retiro definitivo de la terminal móvil. En caso de que el funcionario termine su relación laboral, sea por despido, renuncia, o traslado definitivo a otra unidad o funciones donde no se justifique utilizar la terminal móvil, deberá devolverlo en perfecto estado de funcionamiento al encargado de activos o al Almacén Central según corresponda.
+El Gerente o el Subgerente decidirá si solicita la cancelación del servicio o lo reasigna al funcionario que sustituye a quien se retira.

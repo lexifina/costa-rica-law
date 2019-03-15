@@ -1,0 +1,3 @@
+Artículo 3º— De la naturaleza del acto de asignación. El acto administrativo de asignación de una terminal de telefonía móvil para un funcionario de JASEC, es un acto por medio del cual se dota a ese funcionario de una herramienta de trabajo, necesaria para el mejor desempeño de sus funciones
+El fin del acto será la adecuada comunicación y localización, con y entre los funcionarios de JASEC que por la naturaleza de sus funciones se justifique que disponga del servicio de telefonía móvil pre y post pago.
+Tanto la asignación de alguna de estas herramientas, como el pago de las tarifas por el uso de ellas, no se considerarán como salario en especie, ni dan origen a derechos adquiridos de ninguna naturaleza.
