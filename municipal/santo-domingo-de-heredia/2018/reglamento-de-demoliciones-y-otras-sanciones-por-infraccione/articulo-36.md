@@ -1,0 +1,1 @@
+Artículo 36: ACTA DE SANCIÓN URBANA. Ejecutada la demolición y/o desalojo, la Dirección levantará una información, documentando los resultados de la misma en el expediente. En ambos casos, deberá devolverse el expediente al Encargado de Control Urbano y Rural para su archivo.

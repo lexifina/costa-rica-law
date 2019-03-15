@@ -1,0 +1,1 @@
+Artículo 32: DESALOJO ADMINISTRATIVO. Existiendo una orden de desalojo del inmueble, la Dirección de Servicios y Ordenamiento Territorial deberá coordinar con la Fuerza Pública para la ejecución respectiva, basándose en el artículo 96 de la Ley de Construcciones y el artículo 149 de la Ley General de Administración Pública.
