@@ -1,0 +1,1 @@
+Artículo 19.- Apoyo Informático. El Departamento de Tecnologías de Información, deberá brindar apoyo logístico en los sistemas de información proporcionados por el Banco, deberá rendir informes trimestrales sobre la seguridad de este medio alterno de pago y de su uso. Lo anterior, a expensas de la inclusión en los programas de supervisión por parte de la Auditoría Interna.

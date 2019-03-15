@@ -1,0 +1,1 @@
+Artículo 9.- Destino. La tarjeta será exclusiva para la compra de combustibles a nombre de la Municipalidad de Upala, (gasolina, diésel que en el futuro puedan ser utilizados por nuestra flota vehicular).

@@ -1,0 +1,1 @@
+Artículo 27.- Daño Y Uso Indebido. El uso indebido con evidente y clara manifestación dolosa, por parte del usuario, tendrá como única sanción el despido laboral, el cual se tramitará por la oficina facultada para tales efectos, tomando en cuenta el debido proceso.

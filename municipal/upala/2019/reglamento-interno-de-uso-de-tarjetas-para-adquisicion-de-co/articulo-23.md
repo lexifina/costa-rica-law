@@ -1,0 +1,1 @@
+Artículo 23.-. Vehículos Municipales. El suministro de combustible será único y exclusivamente para la flota vehicular municipal, vehículos que estén en uso de la municipalidad y otros equipos municipales, y deberá ajustarse al horario preestablecido por la Coordinación Administrativa, de acuerdo con los parámetros aprobados.

@@ -1,0 +1,3 @@
+CAPÍTULO TERCERO
+De La Administración Del Sistema De Inclusiones Y Exclusiones
+Artículo 16.- Responsabilidades de Jefaturas. Las diferentes jefaturas serán responsables del control de las tarjetas, contenido presupuestario por dependencia autorizado al mes, funcionarios autorizados para el uso de tarjetas, cantidad y monto de tarjetas de pago, horarios de uso, cantidad y monto diarios de compra de combustible, días que serán hábiles durante el mes. Deberán ejercer el control de uso de la tarjeta mediante la página Web suministrada por el banco e imprimir los estados por usuario de tarjeta, o cualquier mecanismo alterno requerido para su control.

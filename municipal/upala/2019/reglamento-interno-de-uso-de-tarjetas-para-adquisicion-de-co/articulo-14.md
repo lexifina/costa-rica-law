@@ -1,0 +1,1 @@
+Artículo 14.- Informes. Los informes sobre el control de combustible deberán ser realizados de manera mensual y corroborados con los informes contables. Además, cada jefatura deberá llevar un control individualizado por vehículo, a fin de que cuente la institución con sistemas de información actualizado y detallado sobre el consumo individual de la flotilla vehicular.

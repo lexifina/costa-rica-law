@@ -1,0 +1,1 @@
+Artículo 15.- Liquidación. Para efecto de liquidaciones, la Coordinación Administrativa deberá remitir un informe al Departamento de Tesorería aportando todos los documentos detallados, conteniendo las facturas originales que respalden la compra de combustibles. Del cual la Tesorería realizará y aplicará el procedimiento respectivo para el pago correspondiente.

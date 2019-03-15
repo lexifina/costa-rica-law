@@ -1,0 +1,1 @@
+Artículo 5.- Costo. El costo de la tarjeta o membresía lo asumirá la Municipalidad, así como en los casos de renovación o deterioro de la misma. En caso de que ésta sea extraviada por el funcionario, es responsabilidad de éste asumir el costo y darle el uso adecuado de la tarjeta. Lo anterior a excepción de que el Banco emisor cubra los costos antes referidos.

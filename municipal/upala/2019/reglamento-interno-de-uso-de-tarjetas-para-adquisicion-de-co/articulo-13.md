@@ -1,0 +1,1 @@
+Artículo 13.- Respaldo. Entre las obligaciones del funcionario, estará llevar un control paralelo al que llevará la jefatura, a fin de que éste sirva como documento probatorio ante cualquier situación que a criterio de la Administración Municipal deba ser aclarado.
