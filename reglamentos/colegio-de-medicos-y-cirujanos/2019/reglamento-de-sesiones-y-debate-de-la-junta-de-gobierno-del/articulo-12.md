@@ -1,0 +1,1 @@
+Artículo 12.- Intervenciones. En las sesiones se concederá la palabra a los miembros hasta por tres ocasiones, en el orden en que se haya solicitado, salvo al proponente del punto de discusión. Ningún miembro de la Junta podrá empezar a hablar hasta después de que el Presidente le haya concedido la autorización para ello.

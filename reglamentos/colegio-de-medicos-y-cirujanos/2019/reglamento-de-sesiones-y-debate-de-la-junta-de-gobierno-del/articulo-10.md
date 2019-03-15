@@ -1,0 +1,2 @@
+Artículo 10.- Quórum para sesionar. El quórum para que pueda sesionar válidamente la Junta de Gobierno lo integran cinco miembros, tal y como lo establece el artículo 16 de la Ley Orgánica del Colegio de Médicos y Cirujanos.
+Las sesiones de la Junta de Gobierno deberán iniciarse dentro de los treinta minutos siguientes a la hora señalada al efecto, conforme al reloj oficial de la Junta. Pasados los treinta minutos indicados, si no hubiere quórum, se dejará constando en el libro de actas el nombre de los miembros presentes.

@@ -1,0 +1,1 @@
+Artículo 4.- Privacidad de las sesiones. Las sesiones de la Junta serán siempre privadas, salvo que los miembros previamente convoquen o concedan audiencia o soliciten la presencia de algún miembro del colegio, quienes estarán obligados a asistir a la sesión, y a quienes se les podrá conceder el derecho de participar en las deliberaciones con voz, pero sin voto.

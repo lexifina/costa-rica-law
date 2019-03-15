@@ -1,0 +1,1 @@
+Artículo 9.- Orden del día. Los asuntos deben ser sometidos a conocimiento y votación en el orden en que se encuentran agendados, de igual forma se procederá con las propuestas y mociones, salvo que se trate de una moción de orden, en cuyo caso se tramitará de forma preferente.

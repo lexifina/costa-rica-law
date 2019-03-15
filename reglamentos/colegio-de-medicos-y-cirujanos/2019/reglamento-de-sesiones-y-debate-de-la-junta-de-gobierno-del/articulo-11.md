@@ -1,0 +1,1 @@
+Artículo 11.- Desarrollo de las sesiones. Las sesiones de la Junta se desarrollarán conforme al orden del día previamente elaborado, el cual sólo podrá ser modificado o alterado antes de que se apruebe dicho orden.

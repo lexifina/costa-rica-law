@@ -1,0 +1,1 @@
+Artículo 2.- Nombramientos: Los miembros de la Junta de Gobierno serán nombrados de acuerdo con lo establecido por la Ley Orgánica del Colegio de Médicos y Cirujanos; artículo 12 inciso a) y articulo 13, así como el artículo 35, siguientes y concordantes del Reglamento a la Ley Orgánica; por periodos de dos años, asumiendo sus cargos la segunda quincena del mes de enero.

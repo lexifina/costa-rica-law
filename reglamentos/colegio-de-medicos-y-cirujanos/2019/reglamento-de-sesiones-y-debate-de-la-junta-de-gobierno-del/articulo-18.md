@@ -1,0 +1,4 @@
+Artículo 18: Recurso de revisión. Cualquiera de los miembros que conforman la Junta de Gobierno, podrán interponer recurso de revisión, contra cualquier acuerdo de Junta, lo cual podrán realizar en forma verbal o escrita.
+El recurso de revisión podrá ser planteado en la misma sesión en que se tomó el acuerdo impugnado, o bien tres días después, siempre y cuando no haya quedado en firme, presentándolo ante el Presidente de la Junta de Gobierno, el cual deberá agendarlo sin dilación para ser conocido en la siguiente sesión ordinaria.
+En la sesión ordinaria en que se conocerá el recurso, el Presidente de la Junta de Gobierno le dará la palabra al miembro que solicita la revisión, quien tendrá espacio de hasta 10 minutos para referirse al recurso.
+Las simples observaciones de los acuerdos, no serán considerados para efectos del presente artículo, como recurso de revisión.

@@ -1,0 +1,2 @@
+Articulo 8.- Asuntos de conocimiento en sesión extraordinarias. En las sesiones extraordinarias, solo se podrán conocer aquellos asuntos que hayan sido establecidos previamente en el orden del día o bien acordados por unanimidad.
+En caso de sesiones urgentes, se prescindirá del orden del día; sin embargo, el Presidente deberá, una vez instaurado el quórum, definir el punto o los puntos a tratar, los cuales deberán ser aprobados por la totalidad de los miembros presentes.
