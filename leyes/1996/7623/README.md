@@ -1,6 +1,6 @@
 # Defensa del Idioma Español y Lenguas Aborígenes Costarricenses
 
-Ley N° 7623 del 1996-09-11. SINALEVI, ficha 41346: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=41346&param2=43582&param3=1>.
+Ley N° 7623 del 1996-09-11. SINALEVI, ficha 41346: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=41346&param2=115585&param3=1>.
 
 Publicada en La Gaceta N° 193 del 1996-10-09.
 
@@ -11,3 +11,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 1 de 4 | 1996-10-09 | Ley 7623 | 1996-09-11 |
 | 2 de 4 | 1996-10-09 | SINALEVI | 1996-09-11 |
 | 3 de 4 | 2000-01-14 | SINALEVI | 2000-01-14 |
+| 4 de 4 | 2019-03-18 | Ley 9668 | 2019-02-21 |

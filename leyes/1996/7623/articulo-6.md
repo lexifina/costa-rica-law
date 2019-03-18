@@ -1,1 +1,1 @@
-Artículo 6.- Dietas. El Consejo de Gobierno fijará el monto de la dieta que los miembros de la Comisión Nacional para la Defensa del Idioma devengarán por sesión. Para ello, tomará como referencia lo establecido para otras instituciones públicas y determinará el límite de las dietas que pueden pagarse por mes.
+Artículo 6.- Dietas. (Derogado por el artículo 2° aparte c) de la ley N° 9668 del 21 de febrero del 2019)
