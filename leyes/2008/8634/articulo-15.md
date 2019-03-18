@@ -1,21 +1,41 @@
 CAPÍTULO III
-FIDEICOMISO NACIONAL PARA EL DESARROLLO
-ARTÍCULO 15.- Creación del Fideicomiso Nacional para el Desarrollo
-Se crea el Fideicomiso Nacional para el Desarrollo (Finade), con el propósito de cumplir los objetivos de esta ley. Los recursos del Finade se distribuirán bajo los lineamientos y las directrices que emita el Consejo Rector a favor de los beneficiarios de esta ley. El Finade será un patrimonio autónomo, administrado por el banco público que se defina.
-Se destinarán estos recursos con los siguientes fines:
+FONDO NACIONAL PARA EL DESARROLLO
+(Así reformado el epígrafe anterior por el artículo 1° de la ley N° 9654 del 14 de febrero del 2019)
+Artículo15- Creación del Fondo Nacional para el Desarrollo
+Se crea el Fondo Nacional para el Desarrollo (Fonade), con el propósito de cumplir con los objetivos de esta ley. Los recursos del Fonade se distribuirán bajo los lineamientos y las directrices que emite el Consejo Rector para los beneficiarios de esta ley.
+El Fonade será un patrimonio autónomo, administrado por la Secretaría Técnica del Consejo Rector del Sistema de Banca para el Desarrollo (SBD). Contará con la garantía solidaria del Estado para establecer o contratar líneas de crédito, además de su más completa cooperación y de todas sus dependencias e instituciones.
+Los gastos administrativos y operativos del Fonade serán presupuestados y cubiertos con cargo a su patrimonio e independientes de los recursos asignados a la Secretaría Técnica del Consejo Rector. A nivel presupuestario, los superávits, si los hubiera, serán clasificados como específicos para los fines de la presente ley.
+Para efectos financieros y de endeudamiento del Fonade, además de las buenas prácticas utilizadas en la materia, se aplicarán las siguientes políticas:
+1) Política de endeudamiento:
+Para el cumplimiento de los fines establecidos en esta ley, el Consejo Rector, a través de su Secretaría Técnica, está facultado para negociar, contratar y ejecutar, de manera autónoma, endeudamientos internos y externos de mediano y largo plazos, hasta un nivel de endeudamiento máximo equivalente a cinco coma cinco (5,5) veces el patrimonio del Fonade. El endeudamiento se calculará con base en el patrimonio del Fonade al 31 de diciembre de cada año, excluyéndose para el cálculo los pasivos de corto plazo; además, el endeudamiento no ejecutado en cualquier año deberá ser utilizado en los períodos siguientes, en adición al endeudamiento del año correspondiente.
+Para lo anterior, el Consejo Rector aprobará previamente las siguientes condiciones:
+1.1 Una evaluación previa a la toma de la deuda sobre la capacidad de devolución del Fonade, a partir de su propio desempeño histórico de recuperaciones. Cuando la mora consolidada del Fondo de crédito del Fonade supere el cinco por ciento (5%), no sé podrán negociar o contratar nuevos endeudamientos.
+1.2 Una evaluación de la gestión integral de riesgos asociados al Fondo y definición de las medidas apropiadas para su mitigación.
+1.3 Una justificación técnica sobre la demanda proyectada de recursos, tomando en consideración el porcentaje y ritmo de colocación del Fondo de crédito del Fonade.
+2) Política sobre instrumentos financieros:
+El Fonade podrá titularizar sus flujos de ingresos futuros, sus bienes o un conjunto prefijado de activos y sus correspondientes flujos de ingresos.
+Los valores provenientes de la titularización serán negociables conforme a los mecanismos y las reglas vigentes para el mercado de valores, los que podrán ser adquiridos por todo ente público o privado, nacional o extranjero, incluyendo las operadoras de pensiones.
+El Fonade podrá mantener inversiones en valores u otro tipo de instrumentos financieros, de conformidad con las políticas que emita el Consejo Rector.
+En materia de contratación administrativa, al Fonade le serán aplicados únicamente los principios constitucionales que rigen la materia.
+En lo concerniente a capital humano y régimen de empleo, se le aplicará lo establecido en esta ley para la Secretaría Técnica del Sistema de Banca para el Desarrollo.
+El Fonade contará con una moderna plataforma tecnológica y digital, cuyos componentes incorporarán los elementos necesarios para el control, la transparencia y la gestión del Sistema de Banca para el Desarrollo y la Secretaría Técnica del SBD.
+La Secretaría Técnica del SBD promoverá la conectividad necesaria para la interconexión con los sistemas informáticos de las entidades integrantes del Sistema, de acuerdo con las necesidades y estrategias que en esta materia defina el Consejo Rector del SBD. Se faculta a las entidades públicas integrantes del Sistema a facilitar la conectividad mencionada.
+Con el propósito de facilitar el pago de operaciones de crédito y demás productos al amparo de los alcances de esta ley, el Fonade podrá tener acceso al Sistema Nacional de Pagos Electrónicos (Sinpe) del Banco Central de Costa Rica. Conjuntamente, la Secretaría Técnica del Sistema de Banca para el Desarrollo y el Banco Central de Costa Rica podrán establecer diversas estrategias de profundización de canales digitales, que contribuyan con los objetivos de inclusión financiera y profundización del mercado.
+Los recursos del Fonade se destinarán a los siguientes fines:
 a) Como capital para el financiamiento de operaciones crediticias, de factoraje financiero, arrendamiento financiero y operativo, microcréditos y proyectos del sector agropecuario, así como otras operaciones activas que los usos, las prácticas y las técnicas nacionales o internacionales admitan como propias de la actividad financiera y bancaria, según las disposiciones que para estos efectos emita el Consejo Rector.
 b) Como capital para el otorgamiento de avales que respalden créditos que otorguen los participantes e integrantes del SBD.
-c)Para servicios no financieros y de desarrollo empresarial, tales como:
+c) Para servicios no financieros y de desarrollo empresarial, tales como:
 1) Capacitación.
 2) Asistencia técnica.
-3) Elaboración de estudios sectoriales a nivel nacional y regional.
+3 ) Elaboración de estudios sectoriales a nivel nacional y regional.
 4) Investigación y desarrollo para innovación y transferencia tecnológica, así como para el conocimiento y desarrollo del potencial humano.
 5) Medición integral de impactos del SBD.
 6) Manejo de microcréditos.
 7) Otras acciones que el Consejo Rector defina como pertinentes para el cumplimiento de los fines y propósitos de esta ley.
-d) Para fomentar, promocionar, incentivar y participar en la creación, la reactivación y el desarrollo de empresas, mediante modelos de capital semilla y capital de riesgo. El Finade aplicará las buenas prácticas internacionales con el fin de desarrollar estos programas.
+d) Para fomentar, promocionar, incentivar y participar en la creación, la reactivación y el desarrollo de empresas, mediante modelos de deuda subordinada al éxito, capital semilla y capital de riesgo. Para este propósito, el Consejo Rector destinará, anualmente, al menos el veinticinco por ciento (25%) de los recursos provenientes del inciso h) del artículo 59 de la Ley N. 0 7092, Ley del Impuesto sobre la Renta, de 21 de abril de 1988. El Fonade deberá aplicar las buenas prácticas internacionales, con el fin de desarrollar estos programas.
 e) Para el financiamiento de las primas del seguro agropecuario, o bien, financiar las primas de otros sectores productivos que así lo requieran.
-Los recursos provenientes del inciso a) se canalizarán por medio de banca de segundo piso prioritariamente. En caso necesario, el Consejo Rector del SBD podrá establecer mecanismos alternos para canalizar los recursos.
-Únicamente en el caso de los fondos destinados en los incisos c) y d), al Consejo Rector corresponderá determinar bajo sus políticas y lineamientos cuáles de los programas acreditados por parte de los integrantes del SBD podrán tener un porcentaje de los recursos que sean de carácter no reembolsables; así como las condiciones para el otorgamiento de estos, las regulaciones y los mecanismos de control para su otorgamiento.
-Los recursos del Finade contarán con la garantía del Estado para establecer o contratar líneas de crédito con bancos estatales, bancos multilaterales, bancos bilaterales, organizaciones no gubernamentales sin fines de lucro (ONG) y cualquier organismo internacional. Los créditos procedentes de organismos internacionales deberán llevar el aval previo de la Asamblea Legislativa y para los créditos procedentes de entes nacionales deberán contar con el aval previo del Ministerio de Hacienda, excepto los recursos procedentes del Fondo de Crédito para el Desarrollo, los cuales no necesitarán dicho aval.
-Los bancos administradores del Fondo de Crédito para el Desarrollo facilitarán líneas de crédito al Finade con recursos del FCD al costo, para que este los canalice bajo condiciones que establezca el Consejo Rector. Los recursos que forman parte del Sistema de Banca para el Desarrollo estarán exentos de todo tipo de tributo y no serán considerados como parte del encaje mínimo legal. Esta disposición se aplicará también a los operadores financieros que hagan uso de estos recursos.
+Los recursos destinados en el inciso a) se canalizarán por medio de banca de segundo piso. En caso estrictamente necesario, el Consejo Rector del SBD podrá establecer mecanismos alternos para canalizar los recursos.
+En el caso de los fondos destinados en los incisos c), d) y e), al Consejo Rector le corresponderá determinar, bajo sus políticas y lineamientos, cuáles proyectos específicos o cuáles programas acreditados por parte de los integrantes del SBD podrán tener un porcentaje, total o parcial, de los recursos que sean de carácter no reembolsables, así como las condiciones para el otorgamiento de estos, las regulaciones y los mecanismos de control para su otorgamiento.
+Los bancos administradores del Fondo de Crédito para el Desarrollo facilitarán crédito al Fonade con recursos del FCD al costo, para que este los canalice bajo condiciones que establezca el Consejo Rector.
+Los recursos que forman parte del Sistema de Banca para el Desarrollo, según lo dispuesto en el artículo 9 de esta ley, estarán exentos de todo tipo de tributo y no serán considerados como parte del encaje mínimo legal. Esta disposición se aplicará también a los operadores financieros que hagan uso de estos recursos.
+(Así reformado por el artículo 1° de la ley N° 9654 del 14 de febrero del 2019)
