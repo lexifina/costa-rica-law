@@ -14,3 +14,4 @@ Reglamento para regular la participación de los sujetos fiscalizados en el fina
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-01-01 | la propia norma |
+| 2 | 2019-03-18 | Decreto Ejecutivo 41637 (2019-03-18) |
