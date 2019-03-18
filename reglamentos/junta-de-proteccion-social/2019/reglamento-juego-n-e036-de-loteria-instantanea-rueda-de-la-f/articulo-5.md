@@ -1,0 +1,13 @@
+Artículo 5º—Plan de Premios: La Junta Directiva mediante acuerdo JD-957, correspondiente al Capítulo III), artículo 4) de la sesión extraordinaria N° 58-2018 celebrada el día 08 de octubre de 2018, aprobó en 1.000.000 de boletos el plan de premios siguiente:
+Cantidad de premios | Monto
+170.000 premios de | ¢500
+110.000 premios de | ¢1.000
+20.000 premios de | ¢2.000
+5.000 premios de | ¢5.000
+200 premios de | ¢25.000
+20 premios de | ¢100.000
+Cantidad de premios | Monto |
+3 premios de | ¢1.000.000 |
+1 premio de | ¢20.000.000 |
+10 premios de | Raspa |
+| | |
