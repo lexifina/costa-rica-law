@@ -1,0 +1,1 @@
+Artículo 2º—Para esta conmemoración se realizarán actos educativos y culturales en los centros educativos públicos y privados del país, conducentes a promocionar y celebrar la igualdad jurídica entre las personas habitantes de la República de Costa Rica.
