@@ -1,4 +1,6 @@
+(Derogado)
 N° 9459
+(Esta norma fue derogada por el artículo 5° de la ley N° 9631 del 19 de noviembre del 2018, “Desafectación de un terreno propiedad del Estado y autorización para que lo segregue y done a la Asociación de Desarrollo Específica para la construcción y mantenimiento de Parque de recreación del este de Liberia, Guanacaste, para que sea destinado a Complejo Deportivo”)
 LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
 DECRETA:
 AUTORIZACIÓN AL ESTADO PARA QUE DESAFECTE, SEGREGUE Y
