@@ -1,6 +1,14 @@
-Artículo 174. — El Comité cantonal estará integrado por cinco residentes en el cantón:
+Artículo 174. — El comité cantonal estará integrado por siete residentes en el cantón:
+(Así reformado el párrafo anterior por el artículo 1° de la ley N° 9633 del 11 de diciembre del 2018, “Reforma Código Municipal para garantizar la efectiva participación de la niñez y la adolescencia en los comités cantonales y comunales de deportes y recreación”)
 a) Dos miembros de nombramiento del Concejo Municipal.
 b) Dos miembros de las organizaciones deportivas y recreativas del cantón.
 c) Un miembro de las organizaciones comunales restantes.
-Cada municipalidad reglamentará el procedimiento de elección de los miembros del Comité cantonal.
+d) Dos miembros de la población entre los 15 años y menores de 18 años, quienes serán elegidos directamente mediante una asamblea cantonal conformada por todas las organizaciones juveniles del cantón y los atletas activos del Programa de Juegos Deportivos Nacionales del cantón, convocada por el Comité Cantonal de la Persona Joven, y posteriormente juramentados por el concejo municipal. Estos miembros no podrán ostentar la representación judicial o extrajudicial del comité, ni podrán contraer obligaciones en nombre del comité.
+(Así adicionado el inciso anterior por el artículo 1° de la ley N° 9633 del 11 de diciembre del 2018, “Reforma Código Municipal para garantizar la efectiva participación de la niñez y la adolescencia en los comités cantonales y comunales de deportes y recreación”)
+Cada municipalidad reglamentará el procedimiento de elección de los miembros del comité cantonal.
+(Así reformado el párrafo anterior por el artículo 1° de la ley N° 9633 del 11 de diciembre del 2018, “Reforma Código Municipal para garantizar la efectiva participación de la niñez y la adolescencia en los comités cantonales y comunales de deportes y recreación”)
+La designación de los representantes indicados en el inciso d) deberá respetar el principio de paridad de género, publicidad y transparencia.
+(Así adicionado el párrafo anterior por el artículo 1° de la ley N° 9633 del 11 de diciembre del 2018, “Reforma Código Municipal para garantizar la efectiva participación de la niñez y la adolescencia en los comités cantonales y comunales de deportes y recreación”)
+En caso de no realizarse la designación de los dos representantes indicados en el inciso d), será el concejo municipal, órgano representativo a nivel local y responsable del nombramiento de los demás integrantes, el que hará la designación respectiva de los dos integrantes, respetando siempre el principio de paridad de género, publicidad y transparencia.
+(Así adicionado el párrafo anterior por el artículo 1° de la ley N° 9633 del 11 de diciembre del 2018, “Reforma Código Municipal para garantizar la efectiva participación de la niñez y la adolescencia en los comités cantonales y comunales de deportes y recreación”)
 (Corrida su numeración por el artículo 1° de la ley N° 9542 “Ley de Fortalecimiento de la Policía Municipal” del 23 de abril del 2018, que lo traspasó del antiguo artículo 165 al 174)
