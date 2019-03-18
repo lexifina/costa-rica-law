@@ -1,6 +1,6 @@
 # Programa de Apoyo y Reactivación de las MIPYMES del Sector Turístico Costarricense
 
-Ley N° 9339 del 2015-11-23. SINALEVI, ficha 80841: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=80841&param2=102768&param3=1>.
+Ley N° 9339 del 2015-11-23. SINALEVI, ficha 80841: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=80841&param2=115577&param3=1>.
 
 Publicada en La Gaceta N° 244 del 2015-12-16.
 
@@ -9,3 +9,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | Versión | En vigor desde | Hecha por | Fecha de la versión |
 | --- | --- | --- | --- |
 | 1 de 2 | 2015-12-16 | Ley 9339 | 2015-11-23 |
+| 2 de 2 | 2019-03-18 | Ley 9654 | 2019-02-14 |

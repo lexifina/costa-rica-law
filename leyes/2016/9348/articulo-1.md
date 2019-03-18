@@ -1,3 +1,4 @@
+(Anulada)
 N° 9348
 (Esta norma fue anulada por resolución de la Sala Constitucional N° 022606 del 28 de setiembre de 2022)
 LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
