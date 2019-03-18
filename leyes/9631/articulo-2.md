@@ -1,0 +1,2 @@
+ARTÍCULO 2- Se desafecta de su uso público el terreno segregado en el artículo anterior y se autoriza al Estado para que lo done a la Asociación de Desarrollo Específica para la Construcción y Mantenimiento del Parque de Recreación del Este de Liberia, Guanacaste, con cédula de persona jurídica número tres - cero cero dos - seis siete siete ocho seis cuatro (N.º 3-002-677864), para construir un complejo deportivo.
+El resto del inmueble se lo reserva el Estado.
