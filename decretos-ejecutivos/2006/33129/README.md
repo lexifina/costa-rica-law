@@ -14,3 +14,4 @@ Reglamento para la Rendición de Garantías de conformidad con el artículo 13 d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-05-31 | la propia norma |
+| 2 | 2019-03-19 | Decreto Ejecutivo 41667 (2019-03-19) |
