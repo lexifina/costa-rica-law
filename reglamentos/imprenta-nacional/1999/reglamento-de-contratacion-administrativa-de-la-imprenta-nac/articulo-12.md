@@ -1,1 +1,0 @@
-Artículo 12.-Para el control de los contratos por servicios, se confeccionará un formulario en el que se indicarán quiénes son los funcionarios responsables de velar por su cumplimiento; además, se detallará qué partes del contrato les corresponde supervisar.

@@ -1,1 +1,0 @@
-Artículo 15.-En las compras directas, cuyo valor supere el ¢1.000.000,00, el inicio de proceso de contratación estará a cargo de la Dirección General y Subdirección, previa solicitud de los Jefes Departamentales.

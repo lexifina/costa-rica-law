@@ -1,1 +1,0 @@
-Artículo 18.-Para solicitar la adquisición de bienes o servicios por medio de licitación pública, por registro o restringida, la solicitud a la Proveeduría debe hacerse mediante un oficio, mientras que las compras directas se solicitarán por medio de un formulario confeccionado para ese fin.

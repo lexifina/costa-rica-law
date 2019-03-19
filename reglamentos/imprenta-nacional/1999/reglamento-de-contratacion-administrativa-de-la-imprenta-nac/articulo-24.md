@@ -1,1 +1,0 @@
-Artículo 24.-Las recomendaciones para la adjudicación de las Licitaciones Públicas, por Registro y Restringidas, relacionadas con la contratación de equipos, programas, accesorios, servicios profesionales y todo lo que tenga que ver con la actividad de cómputo, serán responsabilidad de la Comisión de Informática.

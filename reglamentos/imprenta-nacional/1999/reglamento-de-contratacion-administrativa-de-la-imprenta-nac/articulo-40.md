@@ -1,1 +1,0 @@
-Artículo 40.-Los proveedores inscritos en el Registro no están obligados a presentar, en cada licitación, la certificación de personería, si esta fue emitida antes de un año. Suficiente es que se indique que el contenido de lo certificado en los documentos aportados al momento de inscripción en el Registro de Proveedores, permanece invariable.

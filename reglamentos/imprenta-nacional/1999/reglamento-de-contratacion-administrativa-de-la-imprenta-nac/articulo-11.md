@@ -1,1 +1,0 @@
-Artículo 11.-Debido que la responsabilidad por lo que se compra, no termina con la solicitud que se hace a la Proveeduría, sino que se extiende a la utilización que se haga de los bienes o servicios una vez que han ingresado a la Imprenta Nacional, se nombrarán responsables para la supervisión de la ejecución de obras o prestación de servicios.

@@ -1,1 +1,0 @@
-Artículo 45.-Si a un proveedor se le adjudica una compra directa y no cumple con las condiciones establecidas en la orden de compra o en su oferta, o la abandona, la administración no cancelará el trabajo ni parte de él, hasta que no haya sido concluido en su totalidad.

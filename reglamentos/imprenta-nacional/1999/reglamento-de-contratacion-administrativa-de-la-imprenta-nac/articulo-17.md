@@ -1,1 +1,0 @@
-Artículo 17.-Los carteles serán confeccionados por la Proveeduría en coordinación con los solicitantes cuando se trate de compras directas; cuando sean licitaciones públicas, por registro o restringidas, lo hará conjuntamente con la Comisión Técnica de Contratación Administrativa.

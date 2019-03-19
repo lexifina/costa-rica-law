@@ -1,2 +1,0 @@
-Artículo 42.-Para la entrega de los cheques de pago o las garantías de participación y de cumplimiento, el Departamento Financiero exigirá que el proveedor llene una boleta en la cual autoriza a una determinada persona para realizar dicho retiro. Es requisito indispensable que el documento tenga una fotografía reciente de la persona autorizada.
-Cuando una de las personas autorizadas dejen de laborar para la empresa, o bien, cuando la empresa las haya desautorizado, la empresa debe comunicarlo a la Administración de la Imprenta Nacional.

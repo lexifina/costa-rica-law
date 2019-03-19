@@ -1,1 +1,0 @@
-Articulo 31.-La administración invitará, mediante una publicación en "La Gaceta" y, posteriormente, en los principales diarios de circulación del pais, por lo menos una vez al año, a aquellas personas fisicas o jurídicas que deseen formar parte del Registro de Proveedores para las futuras contrataciones a realizar.

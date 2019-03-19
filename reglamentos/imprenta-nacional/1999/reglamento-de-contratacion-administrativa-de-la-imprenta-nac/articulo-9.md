@@ -1,1 +1,0 @@
-Artículo 9°-Si por alguna razón una solicitud no puede ser tramitada, es deber de la Proveeduría devolverla al solicitante en un plazo no mayor de ocho días, indicando por escrito cuáles son las razones por las que no se tramita la solicitud.

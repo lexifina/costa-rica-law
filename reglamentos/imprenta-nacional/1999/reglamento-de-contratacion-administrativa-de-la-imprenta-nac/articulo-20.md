@@ -1,1 +1,0 @@
-Artículo 20.-EI inicio de los procedimientos para renovar contratos, debe ser promovido por los responsables de las áreas designadas por la Dirección, o bien por las personas que inicialmente solicitaron dichos servicios.

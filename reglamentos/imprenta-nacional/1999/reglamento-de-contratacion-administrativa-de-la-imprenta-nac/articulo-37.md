@@ -1,1 +1,0 @@
-Artículo 37.-Cuando algún proveedor no cumpla con el contenido de la orden de compra confeccionada por su participación en la contratación y no exista una razón adecuadamente justificada para la no entrega de los bienes o servicios contratados, será excluido del registro de proveedores y se le aplicará la sanción que corresponda de acuerdo con la ley.

@@ -1,1 +1,0 @@
-Artículo 44.-Si a un proveedor se le adjudica una compra directa y no cumple con el plazo de entrega o con el inicio de los trabajos establecidos en la orden de compra, la administración podrá proceder a anularla y a adjudicar el bien o servicio al oferente que haya quedado en segundo lugar, o bien puede reiniciar el proceso de contratación.

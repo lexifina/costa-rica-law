@@ -1,1 +1,0 @@
-Artículo 6°-La Proveeduría no hará ninguna gestión de oficio, salvo que se trate de una emergencia debidamente comprobada y ocasionada por causas fuera del control de la administración; sin embargo, cuando se dé alguna de estas situaciones, debe ser justificada por el Director General, lo más tarde al día siguiente de que ésta se haya producido.

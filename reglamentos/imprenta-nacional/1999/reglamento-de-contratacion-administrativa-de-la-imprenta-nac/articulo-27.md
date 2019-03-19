@@ -1,1 +1,0 @@
-Artículo 27.-La evaluación de las compras directas también se hará en función de los elementos indicados en el párrafo segundo del artículo anterior, pero éstos no se harán saber al oferente; sin embargo, en la resolución de adjudicación, debe indicarse las razones de la escogencia.
