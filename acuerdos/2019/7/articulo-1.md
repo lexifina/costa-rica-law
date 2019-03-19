@@ -1,0 +1,8 @@
+INSTITUTO COSTARRICENSE DE TURISMO
+POLO TURÍSTICO GOLFO DE PAPAGAYO
+CANON A PAGAR SOBRE CESIONES
+TOTALES O PARCIALES
+El Instituto Costarricense de Turismo, hace del conocimiento de los señores Concesionarios del Polo Turístico Golfo de Papagayo, Guanacaste, el comunicado de acuerdo de Junta Directiva N° SJD-007-2019, tomado por ese mismo órgano en Sesión Ordinaria N° 6058, artículo 5, inciso IV, celebrada el día 14 de enero del 2019, donde se toma el siguiente acuerdo que textualmente dice:
+“SE ACUERDA:
+1. “Habiéndose padecido error en el monto del canon indexado para el pago de la cesión total o parcial de una concesión del Proyecto, el cual se rige en el artículo 12 del Reglamento a la Ley Reguladora del Polo Turístico Golfo de Papagayo, para el periodo que va del 11 de setiembre del 2011 al 11 de setiembre del 2016, mismo que fue publicado en el Alcance Digital N° 71 de La Gaceta N° 188, del viernes 30 de setiembre del 2011, en su última página, se indica que el valor correcto para ese periodo corresponde al monto de US$1.59 (un dólar con 59 centavos, moneda en curso legal de los Estados Unidos de América) por metro cuadrado.
+2. Habiéndose padecido error en el monto del canon indexado para el pago de la cesión total o parcial de una concesión del Proyecto, el cual se rige en el artículo 12 del Reglamento a la Ley Reguladora del Polo Turístico Golfo de Papagayo, para el periodo que va del 12 de setiembre del 2016 hasta el 11 de setiembre del 2021, inclusive, mismo que fue publicado en la página 22 de La Gaceta N° 64, del jueves 30 de marzo del 2017, se indica que el valor correcto para ese periodo corresponde al monto de US$ 1.66 (un dólar con sesenta y seis centavos, moneda en curso legal de los Estados Unidos de América) por metro cuadrado.”
