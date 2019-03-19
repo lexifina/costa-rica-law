@@ -14,3 +14,4 @@ Reforma Procedimiento ECA-MC-MA-P03 Procedimiento de facturación y gestión de 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-11-07 | la propia norma |
+| 2 | 2019-03-19 | Acuerdo 4 (2019-03-19) |
