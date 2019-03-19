@@ -14,3 +14,4 @@ Reglamento fisioterapia invasiva
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-11-29 | la propia norma |
+| 2 | 2019-03-19 | Reglamento 3 (2019-03-19) |
