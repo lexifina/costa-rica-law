@@ -13,3 +13,4 @@ Lineamientos generales para las trabajadoras embarazadas o en período de lactan
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-08-20 | la propia norma |
+| 2 | 2019-03-19 | Circular 38 (2019-03-19) |
