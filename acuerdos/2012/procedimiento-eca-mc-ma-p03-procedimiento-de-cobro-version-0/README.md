@@ -18,3 +18,4 @@ Procedimiento ECA-MC-MA-P03 Procedimiento de Cobro Versión 02
 | 3 | 2013-03-04 | Acuerdo 0 (2013-03-04) |
 | 4 | 2015-10-29 | Acuerdo 0 (2015-10-29) |
 | 5 | 2018-10-04 | Acuerdo 0 (2018-10-04) |
+| 6 | 2019-03-19 | Acuerdo 4 (2019-03-19) |
