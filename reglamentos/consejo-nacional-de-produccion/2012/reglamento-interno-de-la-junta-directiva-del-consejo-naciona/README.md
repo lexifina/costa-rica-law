@@ -14,3 +14,4 @@ Reglamento Interno de la Junta Directiva del Consejo Nacional de Producción
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-05-15 | la propia norma |
+| 2 | 2019-03-20 | Reglamento 3009 (2019-03-20) |
