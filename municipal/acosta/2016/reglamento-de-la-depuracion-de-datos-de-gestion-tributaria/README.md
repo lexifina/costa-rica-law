@@ -14,3 +14,4 @@ Reglamento de la depuración de datos de gestión tributaria
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-04-04 | la propia norma |
+| 2 | 2019-03-20 | Reglamento municipal 143 (2019-03-20) |
