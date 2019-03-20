@@ -1,0 +1,8 @@
+CIRCULAR N° 46-2019.
+Asunto: Reiteración de la circular N° 169-2017, relacionada con la Adición a la circular N° 155-2017, sobre “Obligación de enviar mensualmente al Patronato de Construcciones, Instalaciones y Adquisición de Bienes, la información de acuerdo a lo que establece el artículo 416 de Ley 5386”.
+A LOS JUZGADOS CONTRAVENCIONALES DEL PAÍS,
+SE LES HACE SABER QUE:
+En sesión N° 19-19, celebrada el 1° de marzo de 2019, artículo LXII, en lo que interesa, se dispuso reiterar la circular, N° 169-2017, publicada en Boletín Judicial N° 239 del 18 de diciembre del 2017, relacionada con la adición a la circular N° 155-2017, sobre “Obligación de enviar mensualmente al Patronato de Construcciones, Instalaciones y Adquisición de Bienes, la información de acuerdo a lo que establece el artículo 416 de Ley 5386”, que literalmente dice:
+“Se adiciona a la circular N° 155-2017 de 27 de setiembre de 2017 “Obligación de enviar mensualmente al Patronato de Construcciones, Instalaciones y Adquisición de Bienes, la información de acuerdo a lo que establece el artículo 416 de Ley 5386” que la cuenta bancaria a la que se deben depositar los recursos por concepto de multas, sanciones y contravenciones es la cuenta cliente N° 15100010010348708, cuenta corriente N° 100-01-000-034870-6 a nombre del Patronato de Construcciones, Instalaciones y Adquisición de Bienes.
+Asimismo, se hace de conocimiento el correo fbogantes@mj.go.cr, teléfono 2222-1444 de la señora Flora Bogantes Ovares, Jefa del Departamento Financiero del Patronato de Construcciones Instalaciones y Adquisición de Bienes.”
+San José, 20 de marzo del 2019.
