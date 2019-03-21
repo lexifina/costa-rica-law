@@ -1,0 +1,4 @@
+ARTÍCULO 17
+ARTISTAS Y DEPORTISTAS
+1. No obstante lo dispuesto en los Artículos 14 y 15, las rentas que un residente de un Estado Contratante obtenga del ejercicio de sus actividades personales en el otro Estado Contratante en calidad de artista del espectáculo, tal como actor de teatro, cine, radio o televisión o músico o como deportista, pueden someterse a imposición en ese otro Estado.
+2. No obstante lo dispuesto en los Artículos 7, 14 y 15, cuando las rentas derivadas de las actividades personales de los artistas del espectáculo o los deportistas, en esa calidad, se atribuyan no ya al propio artista del espectáculo o deportista sino a otra persona, dichas rentas pueden someterse a imposición en el Estado Contratante donde se realicen las actividades del artista del espectáculo o del deportista.

@@ -1,0 +1,8 @@
+ARTÍCULO 22
+MÉTODOS PARA ELIMINAR LA DOBLE IMPOSICIÓN
+1. Cuando un residente de Costa Rica obtenga rentas que, de acuerdo con las disposiciones del presente Acuerdo, pueden someterse a imposición en México, Costa Rica admitirá la deducción en el impuesto sobre la renta de ese residente de un importe igual al impuesto sobre la renta pagado en México.
+Dicha deducción no podrá, sin embargo, exceder de la parte del impuesto sobre la renta, calculado antes de la deducción, correspondiente a las rentas que pueden someterse a imposición en Costa Rica.
+2. Con arreglo a las disposiciones y sin perjuicio de las limitaciones establecidas en la legislación de México, conforme a las modificaciones ocasionales de esta legislación que no afecten sus principios generales, México permitirá a sus residentes acreditar contra el impuesto mexicano:
+a) el impuesto costarricense pagado por ingresos provenientes de Costa Rica, en una cantidad que no exceda del impuesto exigible en México sobre dichos ingresos; y
+b) en el caso de una sociedad que detente al menos el 10 por ciento del capital de una sociedad residente de Costa Rica y de la cual la sociedad mencionada en primer lugar recibe dividendos, el impuesto costarricense pagado por la sociedad que distribuye dichos dividendos, respecto de los beneficios con cargo a los cuales se pagan los dividendos.
+3. Cuando de conformidad con cualquier disposición del Acuerdo, las rentas obtenidas por un residente de un Estado Contratante estén exentas de imposición en ese Estado, dicho Estado podrá, sin embargo, tener en cuenta las rentas exentas a efectos de calcular el importe del impuesto sobre el resto de las rentas de dicho residente.

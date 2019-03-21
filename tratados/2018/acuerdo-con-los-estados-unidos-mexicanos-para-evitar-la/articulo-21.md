@@ -1,0 +1,5 @@
+ARTÍCULO 21
+OTROS INGRESOS
+1. Los elementos de la renta de un residente de un Estado Contratante, sea cual fuere el lugar en que se generen, que no se traten en los Artículos anteriores solo serán gravables en ese Estado.
+2. Lo dispuesto en el párrafo 1 no se aplicará a las rentas distintas de los ingresos procedentes de los bienes inmuebles, tal como se definen en el párrafo 2 del Artículo 6, si el beneficiario de tales rentas es residente de un Estado Contratante, realiza actividades empresariales en el otro Estado Contratante por conducto de un establecimiento permanente situado en él o presta en ese otro Estado servicios personales independientes desde un establecimiento permanente situado en él y el derecho o propiedad por el que se pague la renta está vinculado efectivamente con ese establecimiento permanente. En tal caso se aplicarán las disposiciones del Artículo 7.
+3. No obstante lo dispuesto en los párrafos 1 y 2, los elementos de la renta de un residente de un Estado Contratante que no se traten en los Artículos anteriores y se generen en el otro Estado Contratante podrán ser gravados también en ese otro Estado.
