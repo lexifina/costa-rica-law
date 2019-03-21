@@ -15,4 +15,6 @@ k) Conducir el vehículo bajo las condiciones establecidas en cuanto a capacidad
 l) Mantener un comportamiento digno acorde con la buena imagen que debe proyectar un funcionario del Ministerio de Seguridad Pública.
 m) Cubrir económicamente los daños causados al vehículo que le ha sido asignado si ha incurrido en alguna de las situaciones absolutamente prohibidas en este Reglamento, sin perjuicio de las sanciones de tipo disciplinario que eventualmente puedan imponerse.
 n) Presentarse dentro de los ocho días siguientes a la colisión a la Alcaldía de Tránsito o Tribunal respectivo a rendir declaración de como ocurrió el accidente y presentar la prueba correspondiente. Igualmente debe presentarse al debate el día señalado.
+o) Estar debidamente acreditado ante la Dirección de Transportes como conductor de vehículos oficiales.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 41744 del 21 de marzo del 2019)
 (Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 35805 del 2 de febrero de 2010, que lo traspasó del antiguo artículo 21 al 24 actual)

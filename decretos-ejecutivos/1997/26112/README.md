@@ -19,3 +19,4 @@ Reglamento para Uso de Vehículos del Ministerio de Seguridad Pública
 | 4 | 2010-02-02 | Decreto Ejecutivo 35805 (2010-02-02) |
 | 5 | 2013-07-01 | Decreto Ejecutivo 37805 (2013-07-01) |
 | 6 | 2014-03-27 | Decreto Ejecutivo 38307 (2014-03-27) |
+| 7 | 2019-03-21 | Decreto Ejecutivo 41744 (2019-03-21) |
