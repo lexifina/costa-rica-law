@@ -15,3 +15,4 @@ Normas de Reclutamiento y Selección de los Funcionarios de la Universidad Técn
 | --- | --- | --- |
 | 1 | 2014-10-22 | la propia norma |
 | 2 | 2019-03-07 | Reglamento 5 (2019-03-07) |
+| 3 | 2019-03-21 | Reglamento 6 (2019-03-21) |
