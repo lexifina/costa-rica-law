@@ -14,3 +14,4 @@ Reglamento para Regular el Proceso de Planificación, Adquisición y el Uso de l
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-02-03 | la propia norma |
+| 2 | 2019-03-21 | Decreto TSE 6 (2019-03-21) |

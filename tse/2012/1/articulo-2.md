@@ -5,7 +5,7 @@ Dependencias: direcciones, departamentos, secciones, unidades u oficinas del Tri
 DE: Dirección Ejecutiva del TSE.
 DGET: Dirección General de Estrategia Tecnológica del TSE.
 Disco duro: Dispositivo de almacenamiento masivo, no volátil, que conserva la información aun con la pérdida de energía, que emplea un sistema de grabación magnética digital.
-Diskettes: Dispositivo de almacenamiento.
+Diskettes: (Derogado por el artículo 1° del decreto del Tribunal Supremo de Elecciones, N° 6-2019 del 21 de marzo del 2019)
 Dispositivos de identificación: Hardware utilizado para la identificación de personas.
 DTIC: Departamento de Tecnologías en Información y Comunicaciones.
 Equipos de operación vital del negocio: se refiere al hardware utilizado por personal técnico especializado en infraestructura de tecnologías de información y comunicaciones, tal como: servidores, enrutadores, switches, hubs, firewalls, recursos de almacenamiento, entre otros.
@@ -19,7 +19,9 @@ POA: Plan Operativo Anual.
 Sección de SCTI: Sección de Servicio al Cliente del Tecnologías de Información.
 Sección de ITI: Sección de Infraestructura Tecnológica.
 Sección de ISTI: Sección de Ingeniería de Software.
-Sección de RYS: Sección de Riesgos y Seguridad.
+Sección de RYS: (Derogado por el artículo 1° del decreto del Tribunal Supremo de Elecciones N° 6-2019 del 21 de marzo del 2019)
+Sección de RSI: Sección de Riesgos y Seguridad de la Información.
+(Así adicionada la definición anterior por el artículo 1° del decreto del Tribunal Supremo de Elecciones N° 6-2019 del 21 de marzo del 2019)
 Recursos informáticos: conjunto de hardware y software.
 Software: conjunto de elementos tecnológicos intangibles (programas) que coordinan el funcionamiento del hardware.
 Tribunal: Tribunal Supremo de Elecciones de la República de Costa Rica.
