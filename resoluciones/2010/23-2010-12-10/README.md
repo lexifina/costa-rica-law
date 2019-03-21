@@ -37,3 +37,4 @@ Comunica emisión de resoluciones de la Dirección General del Servicio Civil:(D
 | 22 | 2018-10-31 | Resolución 10 (2018-10-31) |
 | 23 | 2018-12-18 | Resolución 12 (2018-12-18) |
 | 24 | 2019-02-20 | Resolución 22 (2019-02-20) |
+| 25 | 2019-03-21 | Resolución 4 (2019-03-21) |
