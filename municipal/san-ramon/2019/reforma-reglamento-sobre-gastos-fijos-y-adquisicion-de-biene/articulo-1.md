@@ -1,0 +1,9 @@
+MUNICIPALIDAD DE SAN RAMÓN
+REFORMA AL ARTÍCULO 2° DEL REGLAMENTO SOBRE
+GASTOS FIJOS Y ADQUISICIÓN DE BIENES Y SERVICIOS
+DE COMPETENCIA DEL ALCALDE MUNICIPAL
+Con base en la recomendación del señor Asesor Legal del Concejo, externada mediante oficio ALC-MSR-06-2019, con fecha 17 de enero de 2019, el Concejo Municipal de la Municipalidad de San Ramón, acordó mediante Acuerdo N° 01 de la Sesión N° 212 Extraordinaria del 25 de enero de 2019, por unanimidad, en firme y eximiéndolo de trámite de comisión, modificar el artículo 2, del “Reglamento Sobre Gastos Fijos y Adquisición de Bienes y Servicios de Competencia del Alcalde Municipal”. Reglamento que fue publicado en el Diario Oficial La Gaceta N° 141 del miércoles 21 de julio de 1999; y posteriormente, se modificó el artículo 2 del mismo, mediante el Diario Oficial La Gaceta N° 98 del miércoles del 23 de mayo del 2007. Consecuentemente el texto del artículo 2 dirá:
+“Artículo 2º—Se autoriza al Alcalde Municipal para realizar compras o adquisiciones de bienes y servicios, así como para autorizar administrativamente gastos fijos y suscribir convenios y contratos en los cuales la Municipalidad de San Ramón actué como parte, hasta por el monto determinado para contratación directa (En la actualidad el monto está en ¢20.360.000.00 (veinte millones, trescientos sesenta mil colones), monto que será ajustado automáticamente cada año cuando la Contraloría General de la República actualice los límites económicos que establece el artículo 27 de la Ley de Contratación Administrativa, reformado por la Ley N° 8251.
+Al igual que en las contrataciones directas, en las licitaciones abreviadas y públicas, independientemente del órgano que las adjudique, de conformidad con el artículo 118 del Código Municipal, los pagos serán ordenados por el Alcalde Municipal”.
+Rige a partir de su publicación.
+San Ramón, 20 de febrero del 2019
