@@ -1,0 +1,1 @@
+Artículo 6. Certificación. El solicitante deberá demostrar que el producto cumple las Normas Técnicas indicadas por medio de una Certificación de Producto emitida por un organismo de certificación de producto acreditado o reconocido por el Ente Costarricense de Acreditación.
