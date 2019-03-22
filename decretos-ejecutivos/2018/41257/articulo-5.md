@@ -1,0 +1,1 @@
+Artículo 5º—Derogación. Deróguese el Decreto Ejecutivo N° 21341-MEIC del 03 de junio de 1992, NCR 193:1992. Láminas planas de fibro-cemento. Especificaciones, publicado en La Gaceta N° 128 del 07 de julio de 1992.
