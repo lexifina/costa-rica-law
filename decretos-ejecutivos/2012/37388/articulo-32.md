@@ -1,1 +1,0 @@
-Artículo 32.—Sobre el seguimiento de Advertencias. La Auditoría Interna verificará lo actuado por la administración respecto de las advertencias que le haya formulado, sin perjuicio de que según corresponda, como resultado del seguimiento, emita informes de control interno o de Relaciones de Hechos u otros pertinentes.

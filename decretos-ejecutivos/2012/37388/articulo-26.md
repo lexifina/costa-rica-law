@@ -1,5 +1,0 @@
-Artículo 26.—Sobre la comunicación de resultados. En cuanto a la comunicación verbal de resultados, se debe tener en cuenta lo siguiente:
-i. No procede efectuarla respecto de las Relaciones de Hechos, de conformidad con lo señalado en el artículo 24 presente reglamento.
-ii. Puede realizarse en el transcurso de un estudio de control interno para que se corrijan sobre la marcha asuntos que requieren atención inmediata. La Auditoría Interna informará posteriormente lo señalado en forma escrita.
-iii. Después de finalizado un estudio de control interno y de previo a la comunicación oficial del informe, la auditoría debe realizar la comunicación verbal de resultados para exponer los resultados del estudio ante quienes tengan parte en los asuntos.
-iv. La Auditoría Interna convocará por escrito a quienes tengan parte en los asuntos, para realizar la comunicación verbal del informe final dentro de un plazo razonable establecido junto con los interesados. Es obligación de la administración convocada participar en la comunicación verbal de resultados.

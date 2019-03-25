@@ -1,1 +1,0 @@
-Artículo 35.—De los servicios de Auditoría. Los servicios de auditoría son los referidos a los distintos tipos de auditorías e incluyen auditorías financieras, operativas, informáticas y estudios especiales.

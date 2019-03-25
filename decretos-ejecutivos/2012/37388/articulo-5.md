@@ -1,2 +1,0 @@
-Artículo 5º—Objetividad individual y ética profesional. Los servidores de la Auditoría Interna deberán observar las normas éticas que rige su profesión que se caracterizan por valores de: transparencia, independencia, integridad, objetividad, confidencialidad e imparcialidad.
-Además la actuación de los funcionarios de la Auditoría Interna se regirá por lo establecido en el Código de Ética que rija en la institución.
