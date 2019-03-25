@@ -14,3 +14,4 @@ Reglamento de Organización y Funciones de la Auditoria Interna del Ministerio d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-10-11 | la propia norma |
+| 2 | 2019-03-25 | Decreto Ejecutivo 41688 (2019-03-25) |

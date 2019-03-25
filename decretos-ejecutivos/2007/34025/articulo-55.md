@@ -1,2 +1,3 @@
-Artículo 55.—Rige a partir de su publicación en el Diario Oficial La Gaceta.
-Dado en la Presidencia de la República, a los veintiocho días del mes de agosto del dos mil siete.
+CAPÍTULO V
+Disposiciones finales
+Artículo 54.—El presente Reglamento deroga el Decreto Nº 25305-MEIC publicado en La Gaceta Nº 138 del 19 de julio de 1996.

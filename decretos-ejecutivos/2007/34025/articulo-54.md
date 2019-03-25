@@ -1,3 +1,1 @@
-CAPÍTULO V
-Disposiciones finales
-Artículo 54.—El presente Reglamento deroga el Decreto Nº 25305-MEIC publicado en La Gaceta Nº 138 del 19 de julio de 1996.
+Artículo 53.—La Auditoría Interna para el trámite y admisibilidad de denuncias se regirá por lo establecido en el artículo 8 de la “Ley contra la corrupción y el enriquecimiento ilícito en la función pública” y lo indicado en el Capítulo III del Reglamento a la misma ley.

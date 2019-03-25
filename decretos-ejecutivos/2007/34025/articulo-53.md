@@ -1,1 +1,3 @@
-Artículo 53.—La Auditoría Interna para el trámite y admisibilidad de denuncias se regirá por lo establecido en el artículo 8 de la “Ley contra la corrupción y el enriquecimiento ilícito en la función pública” y lo indicado en el Capítulo III del Reglamento a la misma ley.
+Artículo 53 bisº— De la valoración de Riesgo Institucional. La Auditoría Interna debe coadyuvar conforme a sus competencias, en el Sistema Específico de Valoración de Riesgo Institucional, promoviendo mejoras en la valoración del riesgo de los procesos de dirección, de las operaciones y de los sistemas de información, en relación con lo estipulado en el artículo 8 de la LGCI.
+La Auditoría Interna deberá verificar la efectividad del Sistema Específico de Valoración de Riesgo del MEIC y sus órganos adscritos.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 41688 del 25 de marzo del 2019)

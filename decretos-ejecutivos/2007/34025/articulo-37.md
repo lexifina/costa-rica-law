@@ -1,1 +1,2 @@
-Artículo 37.—Los servicios de auditoría se refieren a que las auditorías pueden ser financieras, operativas, de sistemas o de carácter especial y estarán encaminadas, fundamentalmente, a evaluar la eficacia, eficiencia, economía y legalidad del sistema de control interno y promover su mejora.
+Artículo 37º— De los servicios de Auditoría. Los servicios de auditoría son los referidos a los distintos tipos de auditorías e incluyen auditorías financieras, operativas y estudios especiales.
+(Así reformado por el artículo 2° del decreto ejecutivo N° 41688 del 25 de marzo del 2019)
