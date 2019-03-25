@@ -14,3 +14,4 @@ Calendario anual de sorteos y planes de premios de loterías 2019
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-03-25 | la propia norma |
+| 2 | 2019-03-25 | Acuerdo 219 (2019-03-25) |

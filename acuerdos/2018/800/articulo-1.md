@@ -428,7 +428,7 @@ TIEMPOS IMPRESOS | NO HAY | NO HAY | NO HAY
 | | TIEMPOS IMPRESOS | NO HAY | NO HAY | NO HAY
 31/12/2019 | MARTES | POPULAR | NO HAY | NO HAY | NO HAY
 | | TIEMPOS IMPRESOS | NO HAY | NO HAY | NO HAY
-[imagen] [imagen] SORTEOS ORDINARIOS DE LOTERÍA NACIONAL
+[imagen] SORTEOS ORDINARIOS DE LOTERÍA NACIONAL
 DE ENERO A NOVIEMBRE DEL 2019
 PLAN DE PREMIOS POR EMISIÓN
 EMISION: 100.000 billetes cada una (Emisión doble) total: 200.000 Billetes
@@ -524,7 +524,7 @@ PREMIOS DIRECTOS
 20 Premios de | ₡2,000,000 | ₡200,000
 77 Premios de | ₡750,000 | ₡75,000
 Cantidad Premios Directos | 100
-[imagen] [imagen]
+[imagen]
 SORTEOS EXTRAORDINARIOS DE LOTERÍA NACIONAL "GORDITO MEDIO AÑO" 2019
 Sorteo No. 4550 del 07-07-19
 PLAN DE PREMIOS POR EMISIÓN
@@ -695,45 +695,44 @@ Inversa de Mayor | ₡15,000 | ₡1,500
 Inversa de Segundo | ₡10,000 | ₡1,000
 Inversa de Tercero | ₡6,000 | ₡600
 Cantidad Premios Directos | 3 |
-SORTEOS EXTARORDINARIOS DE LOTERÍA POPULAR
-GRAN CHANCE 2019
-Sorteo No. 6368 del 01-02-19
-Sorteo No. 6376 del 01-03-19
-Sorteo No. 6400 del 31-05-19
-Sorteo No. 6412 del 19-07-19
-Sorteo No. 6442 del 01-11-19
-PLAN DE PREMIOS POR EMISIÓN
-EMISIÓN: 2 emisiones de 100.000 billetes, para un total de 200.000 billetes
-El billete consta de 10 fracciones con un valor de ¢10.000 el billete y ¢1.000 la fracción.
-PLAN DE PREMIOS POR PAGAR EN CADA EMISIÓN
-Nombre Premio | Premio Por Billete | Premio Por Fracción
-Premio Mayor | 250,000,000.00 | 25,000,000.00
-2do Premio | 80,000,000.00 | 8,000,000.00
-3er Premio | 20,000,000.00 | 2,000,000.00
-4to Premios de | 5,000,000.00 | 500,000.00
-5to Premio de | 3,000,000.00 | 300,000.00
-5 Premios de | 1,000,000.00 | 100,000.00
-10 Premios de | 500,000.00 | 50,000.00
-Los billetes con el número del mayor | 200,000.00 | 20,000.00
-Los billetes con el número de los premios del 2do | 40,000.00 | 4,000.00
-Los billetes con el número de los premios del 3er | 30,000.00 | 3,000.00
-Cantidad Premios Directos | 20 |
-SORTEO SÚPER EXTRAORDINARIO DE LOTERÍA POPULAR "VIERNES NEGRO" 2019
-Sorteo No. 6450 del 29-11-19
-PLAN DE PREMIOS POR EMISIÓN
-EMISION: 100.000 billetes cada una (Emisión doble)Total: 200.000 Billetes
-El billete consta de 10 fracciones con un valor de ¢12.000 el billete y ¢1.200 la fracción.
-PLAN DE PREMIOS POR PAGAR EN CADA EMISIÓN
-Nombre Premio | Premio Por Billete | Premio Por Fracción
-Premio Mayor | ₡250,000,000 | ₡25,000,000
-2do premio | ₡50,000,000 | ₡5,000,000
-3er premio | ₡30,000,000 | ₡3,000,000
-4to premio de | ₡10,000,000 | ₡1,000,000
-5to premio de | ₡5,000,000 | ₡500,000
-Los billetes con el Número igual al Mayor, con diferente serie | ₡300,000 | ₡30,000
-Número igual al Segundo, con diferente serie | ₡70,000 | ₡7,000
-Número igual al Tercero, con diferente serie | ₡35,000 | ₡3,500
-Cantidad Premios Directos | 5
+Plan de Premios Propuesto Sorteo Gran Chance
+[imagen]
+Premios | Nombre Premio | Premio Por Billete | Premio Por Fracción
+1 | 4to Premios de | 5,000,000.00 | 500,000.00
+1 | 5to Premio de | 3,000,000.00 | 300,000.00
+5 | Premios de | 1,000,000.00 | 100,000.00
+10 | Premios de | 500,000.00 | 50,000.00
+999 | Los billetes con el número del mayor | 200,000.00 | 20,000.00
+999 | Los billetes con el número de los premios del 2do | 40,000.00 | 4,000.00
+999 | Los billetes con el número de los premios del 3er | 30,000.00 | 3,000.00
+1000 | Inversa del mayor | 25,000.00 | 2,500.00
+1000 | Inversa del Segundo | 15,000.00 | 1,500.00
+1000 | Inversa del Tercero | 10,000.00 | 1,000.00
+Cantidad Premios Directos | 20
+(Así reformado el cuadro anterior mediante acuerdo N° JD-219 de la sesión ordinaria 18-2019 del 25 de marzo de 2019)
+SORTEO SÚPER EXTRAORDINARIO DE LOTERÍA POPULAR |
+“VIERNES NEGRO” |
+Noviembre del 2019 |
+PLAN DE PREMIOS POR EMISIÓN |
+EMISION: 100.000 billetes cada una (Emisión doble)Total: 200.000 Billetes |
+El billete consta de 10 fracciones con un valor de ¢12.000 el billete y ¢1.200 la fracción. |
+PLAN DE PREMIOS POR PAGAR EN CADA EMISIÓN |
+Premios | Nombre Premio | Premio | Premio |
+Por Billete | Por Fracción |
+1 | Premio Mayor | ₡250,000,000 | ₡25,000,000 |
+1 | 2do premio | ₡50,000,000 | ₡5,000,000 |
+1 | 3er premio | ₡30,000,000 | ₡3,000,000 |
+1 | 4to premio de | ₡10,000,000 | ₡1,000,000 |
+| Premios | Nombre Premio | Premio Por Billete | Premio Por Fracción
+| 1 | 5to premio de | ₡6,000,000 | ₡600,000
+| 999 | Los billetes con el Número igual al Mayor, con diferente serie | ₡240,000 | ₡24,000
+| 999 | Los billetes con el Número igual al Segundo, con diferente serie | ₡70,000 | ₡7,000
+| 999 | Los billetes con el Número igual al Tercero, con diferente serie | ₡40,000 | ₡4,000
+| 1000 | Inversa del mayor | ₡36,000 | ₡3,600
+| 1000 | Inversa del Segundo | ₡24,000 | ₡2,400
+| 1000 | Inversa del Tercero | ₡12,000 | ₡1,200
+| | | | | | | |
+(Así reformado el cuadro anterior mediante acuerdo N° JD-219 de la sesión ordinaria 18-2019 del 25 de marzo de 2019)
 CALENDARIO PROGRAMAS DE RUEDA DE LA FORTUNA 2019
 ENERO 2019
 DÍA | FECHA | TIPO DE LOTERÍA
