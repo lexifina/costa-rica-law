@@ -1,0 +1,1 @@
+Artículo 2º—Cada Parte, a la brevedad posible, informará a la otra Parte por la vía diplomática acerca de cualquier cambio en el régimen de entrada (permanencia y salida) de los nacionales extranjeros al territorio de su Estado.

@@ -1,0 +1,1 @@
+Artículo 3º—Los nacionales del Estado de una Parte entrarán en el territorio del Estado de la otra Parte a través de los puntos fronterizos abiertos para la comunicación internacional de los pasajeros.

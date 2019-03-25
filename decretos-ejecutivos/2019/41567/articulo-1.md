@@ -1,0 +1,22 @@
+N° 41567-RE
+EL PRESIDENTE DE LA REPÚBLICA
+Y LA MINISTRA DE RELACIONES EXTERIORES Y CULTO
+En uso de las facultades que les confieren los artículos 140 incisos 10), 12) y 20), y 146 de la Constitución Política; así como los artículos 25 inciso 1), 27 inciso 1) y 28 inciso 2) de la Ley General de la Administración Pública, ley N° 6227 del 02 de mayo de 1978 y el artículo 1 de la Ley Orgánica del Ministerio de Relaciones Exteriores y Culto, ley N° 3008 del 18 de julio de 1962.
+Por cuanto:
+En la ciudad de San José, Costa Rica, el día tres de mayo de dos mil dieciocho, y en la ciudad de Moscú el veintiocho de mayo de 2018, en dos ejemplares se firmó de forma diferida el “Acuerdo entre el Gobierno de la República de Costa Rica y el Gobierno de la Federación de Rusia sobre las condiciones de supresión de las formalidades de visado en viajes mutuos de los nacionales de la República de Costa Rica y de los nacionales de la Federación de Rusia”; firmando por el Gobierno de la República de Costa Rica el señor Manuel González Sanz, en su condición de Ministro de Relaciones Exteriores y Culto y Serguei Victoróvich Lavrov, en su condición de Ministro de Asuntos Exteriores de la Federación de Rusia, ambos con plenos poderes para este acto.
+Considerando:
+I.—Que de acuerdo con los lazos de amistad y cooperación que históricamente han existido entre el Gobierno de la República de Costa Rica y el Gobierno de la Federación de Rusia, se hace necesario disponer de un instrumento que fortalezca y formalice sus vínculos en materia de visado de sus nacionales.
+II.—Que la práctica internacional ha desarrollado como uno de los medios para facilitar los viajes mutuos y el turismo como eje del desarrollo, la supresión de visas en pasaportes ordinarios.
+III.—Que guiados por el deseo de facilitar los viajes ordinarios mutuos, ambos Estados firmaron el “Acuerdo entre el Gobierno de la República de Costa Rica y el Gobierno de la Federación de Rusia sobre las condiciones de supresión de las formalidades de visado en viajes mutuos de los nacionales de la República de Costa Rica y de los nacionales de la Federación de Rusia. Por tanto,
+Decretan:
+LA PROMULGACIÓN DEL “ACUERDO ENTRE EL GOBIERNO DE LA REPÚBLICA
+DE COSTA RICA Y EL GOBIERNO DE LA FEDERACIÓN DE RUSIA SOBRE
+LAS CONDICIONES DE SUPRESIÓN DE LAS FORMALIDADES DE
+VISADO EN VIAJES MUTUOS DE LOS NACIONALES DE LA
+REPÚBLICA DE COSTA RICA Y DE LOS NACIONALES
+DE LA FEDERACIÓN DE RUSIA”
+Artículo 1º—Promulgar teniendo como vigente para los efectos internos y externos, el “Acuerdo entre el Gobierno de la República de Costa Rica y el Gobierno de la Federación de Rusia sobre las condiciones de supresión de las formalidades de visado en viajes mutuos de los nacionales de la República de Costa Rica y de los nacionales de la Federación de Rusia”, cuyo texto literal es el siguiente:
+“Acuerdo entre el Gobierno de la República de Costa Rica y el Gobierno de la Federación de Rusia sobre las condiciones de supresión de las formalidades de visado en viajes mutuos de los nacionales de la República de Costa Rica y de los nacionales de la Federación de Rusia.
+El Gobierno de la República de Costa Rica y el Gobierno de la Federación de Rusia, denominados en adelante “las Partes”, Guiados por el deseo de desarrollar las relaciones de amistad entre ambos Estados, Con el objetivo de facilitar las formalidades de viajes mutuos de los nacionales de sus Estados, Han acordado lo siguiente:
+Artículo 1º—Los nacionales de la República de Costa Rica, que porten pasaportes ordinarios vigentes, excepto pasaportes diplomáticos y de servicio, podrán ingresar, transitar, permanecer y salir del territorio de la Federación de Rusia por múltiples entradas sin visa hasta por 90 días calendario, contados a partir de su primera entrada, durante cada período de 180 días calendario; y los nacionales de la Federación de Rusia que porten pasaportes vigentes, que dan el derecho de cruzar la frontera, excepto pasaportes diplomáticos y de servicio, podrán ingresar, transitar, permanecer y salir del territorio de la República de Costa Rica por múltiples entradas sin visa hasta por 90 días calendario, contados a partir de su entrada.
+Los nacionales del Estado de una Parte que deseen permanecer o residir en el territorio del Estado de la otra Parte más de 90 días calendario o ejercer alguna actividad laboral o comercial en dicho territorio, deberán adquirir la visa o permanencia legal correspondiente de conformidad con la legislación de cada Estado Parte.

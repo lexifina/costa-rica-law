@@ -1,0 +1,1 @@
+Artículo 4º—Los nacionales del Estado de una Parte, durante su permanencia en el territorio del Estado de la otra Parte, estarán sometidos a las leyes y reglamentos de dicho Estado, incluidos los requisitos del régimen aduanal, fronterizo y migratorio.

@@ -1,0 +1,1 @@
+Artículo 5º—Este Acuerdo no afecta el derecho de los órganos competentes de cada Estado Parte de negar la entrada o permanencia de los nacionales del Estado de la otra Parte en el territorio de su Estado.

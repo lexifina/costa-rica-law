@@ -1,0 +1,2 @@
+Artículo 8º—Las Partes intercambiarán, a través de la vía diplomática, muestras de los pasaportes por lo menos 30 días antes de la fecha de la entrada en vigor de este Acuerdo.
+Las Partes se comunicarán por escrito sobre la introducción de nuevos pasaportes, las modificaciones de los pasaportes que ya se usan y entregarán, a través de la vía diplomática, las muestras de los pasaportes nuevos y modificados, por lo menos con 30 días de anticipación a la aplicación o a que dichas modificaciones entren en vigencia.
