@@ -1,2 +1,2 @@
-Artículo 67. —Instrucciones sobre riesgos:
-(Derogado mediante sesión 3864 celebrada el 7 de abril del 2001)
+ARTÍCULO 67- Imposición de sanciones: Las sanciones por hostigamiento sexual se aplicarán según la gravedad de los hechos y serán las siguientes: amonestación escrita, la suspensión de tres a quince días y el despido, sin perjuicio de que se acuda a la vía correspondiente, cuando las conductas también constituyan hechos punibles, según lo previsto en el Código Penal.
+(Así reformado en sesión N° 12 del 25 de marzo del 2019)

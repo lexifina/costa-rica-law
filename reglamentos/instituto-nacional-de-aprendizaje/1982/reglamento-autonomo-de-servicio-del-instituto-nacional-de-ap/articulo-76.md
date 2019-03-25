@@ -1,6 +1,5 @@
-Artículo 76..- Aplicación de medidas cautelares. En casos muy calificados y mediante resolución razonada que se podrá dictar en cualquier etapa del procedimiento, la Presidencia Ejecutiva, por recomendación del órgano director, podrá decretar la suspensión o el traslado a otro puesto, del funcionario investigado.
-Tales medidas sólo podrán decretarse estando en curso el procedimiento y siempre que por la gravedad o naturaleza de los hechos investigados, la permanencia del servidor en el puesto resulte perjudicial para el normal desarrollo de la investigación, lo cual deberá quedar acreditado en la resolución respectiva.
-El plazo de vigencia de cualquiera de esas medidas se establecerá en la misma resolución en la que se imponga, estará sujeto siempre al plazo establecido para tramitar el procedimiento y únicamente podrá prorrogarse por las causales y por el plazo que sea prorrogable el procedimiento respectivo, a condición de que subsista la necesidad de mantenerlas.
-La suspensión a que se refiere este artículo se entenderá con goce de salario; y el traslado, con el pleno disfrute de todos los derechos que le correspondan la funcionario en su puesto original.
+CAPITULO XVII
+PROCEDIMIENTOS
+ARTÍCULO 76- Prescripción: La prescripción de los derechos se regirá respecto de los servidores, por lo dispuesto en el Reglamento del Estatuto de Servicio Civil y supletoriamente en el Código de Trabajo.
 (Así corrida la numeración mediante sesión 3255 celebrada el 12 de junio de 1995 por adición de artículos 58 al 64, por lo que pasó de ser artículo 69 al 76)
-(Así reformado mediante sesión N° 4466 del 6 de diciembre de 2010)
+(Así reformado en sesión N° 12 del 25 de marzo del 2019)

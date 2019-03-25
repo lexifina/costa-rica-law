@@ -1,2 +1,2 @@
-Artículo 63: Garantías en la docencia.
-(Derogado mediante sesión 3864 celebrada el 7 de abril del 2001)
+Artículo 63- Sanciones: La infracción a las obligaciones y prohibiciones señaladas en este artículo, serán sancionadas de conformidad con las disposiciones especiales que contienen la Ley General de Control Interno, la Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública, la Ley de Contratación Administrativa y la Ley de Presupuestos públicos, según corresponda.
+(Así reformado en sesión N° 12 del 25 de marzo del 2019)

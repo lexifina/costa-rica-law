@@ -1,2 +1,9 @@
-Artículo 79.—Obligación de exposición.—Este reglamento deberá estar expuesto en los diversos lugares de trabajo, en letra de imprenta perfectamente visible.
+Artículo 79.- Trámite inicial de la denuncia: Con excepción de la amonestación verbal, toda sanción deberá estar precedida de un procedimiento administrativo, que garantice la oportunidad de defensa del interesado. La oportunidad de defensa implicará el acceso al expediente respectivo, la posibilidad de presentar pruebas y procurar su admisibilidad, de presentar alegatos y de recurrir la resolución final.
+En la tramitación del procedimiento se seguirán las siguientes reglas:
+1. Recibida una queja o denuncia contra un funcionario del INA, o habiéndose determinado una conducta constitutiva de falta, el jefe inmediato determinará si de acuerdo con la gravedad de la falta debe imponer una amonestación verbal y de no ser así, remitirá la documentación a la Presidencia Ejecutiva.
+2. Cuando la gravedad de la presunta falta amerite el despido y el presunto infractor sea un funcionario protegido por el régimen del servicio civil, la Presidencia Ejecutiva, por intermedio de la Asesoría Legal, interpondrá la respectiva gestión ante la Dirección General de Servicio Civil.
+3. En los demás casos y cuando exista mérito para ello, remitirá el caso a la Asesoría Legal, con el fin de que se sustancie el procedimiento administrativo correspondiente. Por el contrario, si de los hechos atribuidos no se encontrara mérito para aplicar una sanción, la Presidencia Ejecutiva ordenará, mediante resolución, el archivo del caso.
+Reformado mediante acuerdo de Junta Directiva #377-86 del 3 de noviembre de 1986. Sesión 2351. Publicado en La Gaceta #241 del 16 de diciembre de 1.986.
+Reformado mediante acuerdo de la Junta Directiva No. 187-2010-JD. Art. VII, capítulo 4466 del 6 de diciembre del 2010, publicado en La Gaceta No. 5 del 7 de enero del 2011.
 (Así corrida la numeración mediante sesión 3255 celebrada el 12 de junio de 1995 por adición de artículos 58 al 64, por lo que pasó de ser artículo 72 al 79 )
+(Así reformado en sesión N° 12 del 25 de marzo del 2019)

@@ -1,30 +1,7 @@
-Artículo 74, -Procedimiento administrativo disciplinario. el procedimiento administrativo para imponer sanciones a los funcionarios del INA, se ajustará a las siguientes reglas:
-1. Una vez recibida la denuncia en la Asesoría Legal, el encargado de esa Unidad, actuando por delegación de titular de la Presidencia Ejecutiva, designará mediante resolución, a la persona que por turno le corresponda fungir como órgano director, a quien corresponderá la sustanciación del procedimiento. Esa resolución también dispondrá el nombramiento de un suplente.
-2. Nombrado el órgano director, éste evaluará el mérito de los autos y determinará si la prueba aportada es suficiente para acreditar las faltas atribuidas. Caso contrario, realizará una investigación sumaria con el fin de incorporar al expediente la prueba adicional que estime necesaria para sustentar los cargos, que en ningún caso podrá prolongarse por más de quince días.
-3. Concluida esa etapa, el órgano director, mediante resolución razonada, dispondrá el inicio del procedimiento, la cual contendrá lo siguiente:
-3.1 La fecha y hora en que se dicta ese acto.
-3.2 La individualización del funcionario investigado.
-3.3 El detalle de los hechos que fundamentan el procedimiento y la imputación de los cargos respectivos.
-3.4 Las consideraciones fácticas jurídicas que sustentan la eventual responsabilidad, con indicación de las supuestas normas infringidas y de las eventuales sanciones que pudieran corresponderle.
-3.5 Convocatoria a la audiencia oral y privada con indicación de la fecha y hora en que se realizará esa diligencia.
-3.6 Indicación de los apercibimientos a que queda sujeto el funcionario.
-3.7 Mención de los recursos admisibles contra dicho acto
-3.8 Nombre y firma del funcionario que integra el órgano director.
-4. La convocatoria a la audiencia oral y privada deberá realizarse con no menos que quince días de anticipación.
-5. La audiencia oral y privada se tramitará de acuerdo con las siguientes reglas:
-5.1 Se llevará a cabo en la fecha hora y lugar señalado en la resolución inicial del procedimiento y sin interrupción durante las audiencias consecutivas que sean necesarias para su terminación.
-5.2 Se suspenderá únicamente cuando medie una causa suficientemente justificada, acreditada por la propia administración o por el funcionario investigado; cuando deban resolverse alguna gestión que por su naturaleza afecte su continuación; cuando sea necesario practicar alguna diligencia fuera del lugar de la audiencia, cuando durante su desarrollo se produjeren alteraciones sustanciales al procedimiento que deban ser corregidas como requisito para su continuación. Cuando el órgano director decida la suspensión de la audiencia, en el mismo acto anunciará el día y la hora de su continuación, lo cual equivaldrá como citación para todas las partes.
-5.3 En la hora y fecha señalada para la comparecencia, el órgano director se constituirá en el lugar señalado para esos efectos y verificará la presencia de las partes y sus asesores, testigos y peritos y declarará abierta la comparecencia.
-5.4 Corresponderá al órgano director dirigir el curso de la audiencia, indicar a las partes la causa del procedimiento, los hechos en que se fundamenta y las posibles consecuencias; indicar a las partes los derechos y deberes que tienen durante la comparecencia; hacer las advertencias legales pertinentes; recibir los juramentos y declaraciones que correspondan; moderar la intervención de las partes y resolver interlocutoriamente las cuestiones que se presenten durante su trámite. Atendiendo el principio de celeridad, corresponderá al órgano director impedir intervenciones impertinentes o injustificadamente prolongadas y rechazar cualquier solicitud notoriamente improcedente o dilatoria; todo ello con respeto al derecho de defensa de la persona investigada.
-5.5 A dicha audiencia deberá comparecer el funcionario investigado en forma personal, quien podrá hacerse acompañar de uno o varios profesionales en Derecho, técnicos o personas calificadas que lo asesoren durante su desarrollo, sin que la ausencia injustificada de alguno de ello, impida la continuación de la audiencia.
-5.6 Durante el desarrollo de la audiencia, corresponderá al funcionario investigado hacer los alegatos que estime pertinentes en abono a su defensa, ofrecer la prueba pertinente y obtener su admisión y trámite, pedir testimonio a la administración, preguntar y repreguntar a los testigos y peritos, aclarar o ampliar su defensa inicial, formular conclusiones de hecho y de derecho sobre la prueba ofrecida y el resultado de la audiencia.
-5.7 Se levantará un acta de la comparecencia la cual se leerá a las partes una vez finalizada la diligencia. Esa acta será firmada por la persona que funja como órgano director y por todas las partes. Cuando la comparecencia sea grabada, el acta, que consistirá en la trascripción íntegra de la audiencia, se levantará con posterioridad, con la sola firma del integrante del órgano director. De esa trascripción se otorgará audiencia por el plazo de tres días a la contraparte para lo que a bien tenga manifestar con relación a ella.
-6. Terminada la audiencia, el órgano director preparará un informe que servirá de base para la adopción del acto final. Dicho informe contendrá:
-6.1 Una sección a manera de resultandos, en la que se haga referencia a los pormenores del procedimiento, dentro de los cuales se indicará si el procedimiento se realizó con la observancia de las reglas del debido proceso.
-6.2 Un detalle de los hechos relevantes, que puedan ser considerados como probados o no probados, de acuerdo con los elementos probatorios introducidos durante la tramitación del procedimiento.
-6.3 Una valoración fáctico jurídica de los hechos atribuidos a la persona investigada, de los alegatos de las partes y de las pruebas ofrecidas por ella.
-6.4 Una conclusión y recomendación sobre el resultado de esas diligencias.
-7. El plazo para realizar el procedimiento será de dos meses contados a partir del nombramiento del órgano director, dentro del cual deberán entenderse incluidas, las etapas de descargo y evacuación de pruebas. Ese plazo sólo podrá prorrogarse cuando concurran las circunstancias previstas en el artículo 263 de la Ley General de la Administración Pública y según el procedimiento establecido en esa norma.
-Para todo lo no previsto en estas disposiciones, serán de aplicación supletoria las disposiciones del Libro Segundo de la Ley General de la administración Pública.
+CAPITULO XVI
+COMISIONES DE SEGURIDAD E HIGIENE
+ARTÍCULO 74- Comisiones de salud ocupacional: De conformidad con el artículo 288 del Código de Trabajo, en el INA se establecerán las Comisiones de Salud Ocupacional que sean necesarias integradas por igual número de representantes patronales y de los servidores.
+Dichas comisiones tendrán por finalidad investigar las causas de los riesgos del trabajo, proponer medidas para prevenirlos y vigilar porque las mismas se cumplan.
+Su constitución se hará conforme a lo dispuesto en el Reglamento de la Ley.
 (Así corrida la numeración mediante sesión 3255 celebrada el 12 de junio de 1995 por adición de artículos 58 al 64, por lo que pasó de ser artículo 67 al 74)
-(Así reformado mediante sesión N° 4466 del 6 de diciembre de 2010)
+(Así reformado en sesión N° 12 del 25 de marzo del 2019)

@@ -1,2 +1,3 @@
-Artículo.- 72 -Formalidades de las peticiones.—Toda petición deberá plantearse por escrito salvo casos de urgencias o cuando el asunto no revista mayor importancia.
+ARTÍCULO 72- A efecto de que el Instituto pueda cumplir con el artículo 221 del Código de Trabajo, todo servidor tiene la ineludible obligación, dentro de los cinco días siguientes contados a partir del día en que le ocurra cualquier riesgo de trabajo, de dar aviso a la Unidad de Recursos Humanos o a cualquiera de los representantes del Instituto, dado que si el servidor no cumpliere esta obligación, podrá perder todo derecho a reclamar al Instituto Nacional de Seguros por concepto de agravaciones o complicaciones sobrevenidas por falta de asistencia oportuna.
 (Así corrida la numeración mediante sesión 3255 celebrada el 12 de junio de 1995 por adición de artículos 58 al 64, por lo que pasó de ser artículo 65 al 72)
+(Así reformado en sesión N° 12 del 25 de marzo del 2019)

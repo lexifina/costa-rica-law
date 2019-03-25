@@ -1,4 +1,6 @@
-CAPITULO XIV
-Riesgos profesionales
-Artículo 65.—Comunicaciones del riesgo:
-(Derogado mediante sesión 3864 celebrada el 7 de abril del 2001)
+ARTÍCULO 65- Trámite de la denuncia: La instrucción del caso será substanciada por la Dirección de asesoría jurídica conforme a las disposiciones del Reglamento Autónomo de Servicios, en un plazo máximo de dos meses contados a partir del recibo de la renuncia.
+La resolución del asunto corresponderá a la Unidad de Recursos Humanos, quien deberá acordar y comunicar el acto final en el mes siguiente a la conclusión de la instrucción; en el evento de que la denuncia se dirija a un servidor de la Unidad de Recursos Humanos, la resolución será acordada por la Gerencia.
+Todos los funcionarios vinculados directa o indirectamente con el procedimiento de investigación estarán obligados a guardar la más absoluta y estricta confidencialidad, bajo apercibimiento de que en caso de incumplimiento serán sancionados, a título de culpa grave en su relación de empleo, por la infracción de este deber.
+Los documentos, proyectos de resolución y resoluciones vinculadas con este tipo de procedimiento serán trasladados personalmente por el notificador encargado al efecto.
+En el caso de que el afectado no adjunte prueba idónea para sustentar los hechos denunciados, la Asesoría Jurídica prevendrá al denunciante su presentación en el plazo de los cinco días siguientes. En caso de no aportarse, o bien, de resultar impertinente, recomendará en forma razonada el archivo del caso ante la Unidad de Recursos Humanos.
+(Así reformado en sesión N° 12 del 25 de marzo del 2019)
