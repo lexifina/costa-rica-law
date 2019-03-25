@@ -45,3 +45,4 @@ Estibadores por kilo de frutas y vegetales | ¢0,0711
 Estibadores por tonelada | ¢88,00
 Estibadores por movimiento | ¢375,28
 El salario mínimo para los portaloneros y los wincheros será un 10% más de los salarios mínimos fijados para los estibadores.
+(Nota de Sinalevi: Mediante resolución CNS-RG-01-2019 del 25 de marzo de 2019, el Consejo Nacional de Salarios, acordó incluir el puesto de Primer Oficial de Aviación (Copiloto con la licencia respectiva), en la lista del renglón ocupacional de Trabajadores de Especialización Superior (TES), que en la actualidad tiene un salario mínimo fijado de ¢20.997,77 por jornada ordinaria, de conformidad con el presente decreto ejecutivo. Asimismo se indicó no determinar un salario mínimo o categoría ocupacional dentro del Decreto de Salarios Mínimos, para el puesto de Capitán (Piloto), consecuentemente, se mantiene que el salario se regirá por las reglas del mercado (oferta y demanda).)
