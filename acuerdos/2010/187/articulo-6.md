@@ -1,4 +1,0 @@
-Artículo 6º—La Comisión funcionará por medio de sesiones ordinarias, extraordinarias y grupos de trabajo, las cuales se realizarán a solicitud del Presidente o de los integrantes cuando la naturaleza de los asuntos a tratar así lo requiera. Se analizarán solamente los puntos para los que fue convocada y las decisiones serán tomadas en forma colegiada, en la forma en que se dirá.
-La Comisión sesionará al menos una vez al mes en el lugar y hora que dicho órgano destine al efecto; sin embargo, en un mismo mes podrá convocarse más de una sesión, de ser necesario.
-La Presidencia se ejercerá de forma rotativa por un período de dos años, para cada uno de los integrantes de la Comisión, iniciando por el primero de los miembros señalados.
-(Así reformado mediante acuerdo N° 098-2012 del 13 de marzo de 2012)

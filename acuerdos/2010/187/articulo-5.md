@@ -1,3 +1,0 @@
-Artículo 5º—En cada Dirección Regional Policial del país se deberá crear una Subcomisión de Rescate de Valores Morales, Cívicos y Religiosos, las cuales se regirán por las disposiciones aplicables contenidas en el presente Acuerdo, y deberán rendir sus informes a la Comisión, al menos una vez al mes.
-Las Subcomisiones estarán integradas por los Directores Policiales de la Dirección General de la Fuerza Pública y los jefes de los otros cuerpos policiales del Ministerio, presentes en la zona, quienes podrán designar representantes. En su seno se escogerá al presidente.
-(Así reformado mediante acuerdo N° 098-2012 del 13 de marzo de 2012)
