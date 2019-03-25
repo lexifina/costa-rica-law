@@ -1,0 +1,9 @@
+FIDEICOMISO FONATT JADGME/BCR
+MODIFICACIÓN AL REGLAMENTO DE ADQUISICIÓN
+DE BIENES Y SERVICIOS DEL FIDEICOMISO
+FONATT JADGME/BCR
+“Artículo 10. Plataforma Tecnológica.
+Para todos los procesos de contratación de bienes y servicios requeridos por el Fideicomiso el Fiduciario deberá gestionarlos mediante la Plataforma Tecnológica independientemente del monto de la contratación. El fiduciario utilizará la plataforma tecnológica en todos los procesos de adquisición de bienes y servicios requeridos en contrataciones que pudieron planificarse y que no corresponden a una situación urgente, de conformidad con los alcances definidos en el contrato del fideicomiso teniendo especial observancia de las modalidades de contratación tipificadas en los artículos 11, 12, 13, 14 y 15.
+Para el caso de atención de situaciones de urgencia e inmediatez, según lo que establecen los artículos N° 24, 37, 38, 51 y 53 de la Ley N° 9095, Ley Contra la Trata de Personas, y todas aquellas contrataciones que estén debidamente fundamentadas, no será obligatorio el uso de la plataforma tecnológica, siendo que las mismas se regularan por el Reglamento del Fondo de Contingencia del FONATT.”
+Lo anterior en virtud del acuerdo N° 8 adoptado por el Fideicomitente en sesión ordinaria N° 7 de la Junta Administrativa de la Dirección General de Migración y Extranjería, celebrada el 26 de febrero de 2019.
+Fideicomisos Comerciales Banco de Costa Rica
