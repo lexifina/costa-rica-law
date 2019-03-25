@@ -1,0 +1,1 @@
+Artículo 10.—Enlace. Cada Superintendencia debe informar al resto y mantener actualizada la persona de contacto, que en adición al Superintendente, será designada para solicitar información y recibir solicitudes, así como para coordinar las gestiones contempladas en este Reglamento que no correspondan al Comité de Supervisión Consolidada.

@@ -1,0 +1,1 @@
+Artículo 11.—Vigencia. El presente reglamento rige a partir de su comunicación a los Superintendentes respectivos. En un plazo de tres meses deberá definirse y ajustarse lo que corresponda para implementar lo dispuesto en el presente Reglamento”.
