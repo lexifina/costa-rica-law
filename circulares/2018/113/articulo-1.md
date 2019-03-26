@@ -83,14 +83,17 @@ Para una adecuada utilización de la mejora indicada y poder filtrar aquellos as
 3) La 280-2014, que alerta cuando un expediente cuenta con depósitos judiciales.
 Cuando se realice la labor de depuración, se deberán revisar todas las sub carpetas que tenga un número único de expediente (NUE) con la finalidad de evitar la salida de carpetas con recursos admitidos o resolver sobre cuestiones que están siendo discutidas en un recurso en trámite.
 5. Trámite a seguir cuando se admitan apelaciones y casaciones:
-En el caso anterior de "Circulante al concluir por estado", tratándose de apelaciones admitidas, la regla de la nueva normativa procesal es la no suspensión de la competencia del tribunal de primera instancia para seguir tramitando el proceso. Debe el tribunal considerar lo dispuesto en el nuevo Código Procesal Civil respecto a la ejecución provisional de las sentencias.
+En el caso anterior de “Circulante al concluir por estado”, tratándose de apelaciones admitidas, la regla de la nueva normativa procesal es la no suspensión de la competencia del tribunal de primera instancia para seguir tramitando el proceso. Debe el tribunal considerar lo dispuesto en el nuevo Código Procesal Civil respecto a la ejecución provisional de las sentencias.
 Cuando se admita un recurso de apelación o casación, se deberá ejecutar el trámite de admisión y remisión de recurso (RR) cuando sea planteado y admitido, modificando el estado del proceso principal a “En alzada”. No se deberá itinerar el proceso principal.
-En la remisión se deberán adjuntar una copia de aquellas piezas mínimas del expediente que sean necesarias para la resolución del recurso. Si se tratare de audiencias orales, se cargará una copia de la audiencia y se incluirá una constancia que indique los minutos de la grabación donde consta el recurso respectivo.
-La carpeta principal mantendrá su estado y continuará con su trámite a menos que el superior ordene la suspensión total del proceso o que por motivo legal no pueda continuarse, según lo decida así el tribunal de primera instancia, casos en los cuales se deberá así incluir una constancia en la carpeta principal.
+En la remisión el sistema actualmente permite adjunta únicamente un documento, por ello, si se trata de una apelación de derecho o bien un recurso de casación, se deberá adjunta copia de la resolución que emplaza a los interesado. Si lo formulado es una apelación por inadmisión, el documento que se debe adjuntar es el recurso planteado considerando que conformes las reglas del nuevo código, el despacho de primera instancia no se refiere respecto a la admisibilidad del mismo.
+Si se tratare de una apelación admitida en audiencia oral, se adjuntará una constancia que indique los minutos de la grabación donde consta el recurso respectivo.
+La carpeta principal mantendrá su estado y continuará con su trámite a menos que el superior ordene la suspensión total del proceso o que por motivo legal no pueda continuarse, según lo decida así el tribunal de primera instancia.
 Cuando se resuelva una gestión, es obligación de los despachos revisar todas las sub carpetas que tenga un número único de expediente (NUE), con la finalidad de evitar la salida de carpetas con recursos admitidos o resolver sobre cuestiones que están siendo discutidas en un recurso en trámite.
 Para que el tribunal de primera instancia pueda tener conocimiento del estado de los recursos itinerados en apelación o casación ante los Tribunales y estos últimos puedan a su vez consultar los expedientes principales que se tramitan en primera instancia; será obligación de los Tribunales de Apelación y de las oficinas de primera instancia, brindarse accesos de forma recíproca con permisos de consulta como mínimo en el sistema “Escritorio Virtual”. Lo anterior deberá considerarse también en caso de asuntos que lleguen a conocimiento de las Salas de la Corte Suprema de Justicia.
 Además de lo anterior, podrá la oficina que tramite una carpeta principal o recurso, revisar las demás carpetas electrónicas que tenga un número único de expediente (NUE), mediante la utilización de la mejora “Consulta de expedientes en apelación”, la cual permite consultar aquellas carpetas de expedientes donde se admiten apelaciones.
-Al resolver el recurso, el Tribunal itinerara lo resuelto. Procurará además remitir una copia de las actas de notificación respectivas. Lo anterior también podrá realizarlo el despacho mediante el sistema de consulta antes citado.
+Al resolver el recurso, el Tribunal itinerará la resolución con lo resuelto. Las actas de notificación podrán ser revisadas por parte del despacho mediante el sistema de consulta antes citado.
+La Dirección de Tecnología de la Información, está trabajando en una mejora que permita itinerar más documentos en las carpetas de recursos.
+(Así reformado el punto 5) anterior mediante circular N° 42-2019 del 26 de marzo de 2019)
 6. Otros estados:
 Otras situaciones de índole procesal que motivan un cambio de estado en los sistemas y que permiten medir estadísticamente aquellos asuntos que se encuentran aún en estado de trámite, pero no pueden continuar tramitándose por alguna circunstancia específica, son:
 Préstamo a otro despacho
@@ -218,7 +221,8 @@ d. Otras.
 19. La resolución intimatoria en procesos monitorios.
 20. La resolución que rechaza por infundada una oposición en procesos monitorios, ejecuciones hipotecarias, ejecuciones prendarias y ejecuciones de garantías mobiliarias.
 21. La resolución que se pronuncia por el fondo sobre una legalización de crédito.
-22. La resolución que se pronuncia sobre el fondo del proyecto cuenta partición, autoriza a separarse de la prosecución del proceso u homologa los acuerdos tomados en junta.
+22. La resolución que se pronuncia sobre el fondo del proyecto cuenta partición, aprueba los acuerdos del artículo 133.1 del Código Procesal Civil u homologa los acuerdos tomados en junta.
+(Así reformado el punto anterior mediante circular N° 42-2019 del 26 de marzo del 2019)
 23. La resolución de fondo que se pronuncie admitiendo o rechazando un proceso no contencioso.
 24. La resolución que se pronuncia sobre el fondo en un proceso concursal preventivo o liquidatorio, o sobre un convenio dentro de esos tipos de proceso.
 25. La resolución de fondo que se pronuncia sobre los siguientes incidentes:

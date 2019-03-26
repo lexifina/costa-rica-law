@@ -13,3 +13,4 @@ Cambios administrativos y operativos que se deberán implementar al entrar en vi
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-09-13 | la propia norma |
+| 2 | 2019-03-26 | Circular 42 (2019-03-26) |
