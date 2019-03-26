@@ -1,0 +1,2 @@
+Artículo 5°. – Comisión Institucional para la igualdad y no discriminación hacia la población sexualmente diversa.
+La Comisión Institucional para la igualdad y no discriminación hacia la población sexualmente diversa, en adelante “Comisión” es la instancia institucional nombrada por la Presidencia Ejecutiva, en cumplimiento y para ejecutar lo que establece el Decreto Ejecutivo No.38999-MP del 2015 “Política del Poder Ejecutivo Para Erradicar de sus Instituciones la Discriminación hacia la Población Sexualmente Diversa”.
