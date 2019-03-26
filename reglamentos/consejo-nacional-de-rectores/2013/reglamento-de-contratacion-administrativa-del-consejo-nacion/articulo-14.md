@@ -21,3 +21,13 @@ Artículo 14.—Tareas generales de la Proveeduría Institucional. Las tareas ge
 20. Tramitar y analizar las solicitudes de revisión o reajuste de precios de los distintos procedimientos de contratación.
 21. Utilizar los medios electrónicos y digitales para los procesos de compra, invitaciones, resoluciones, comunicaciones oficiales, de conformidad con la normativa vigente.
 22. Participar en lo relativo a contratación administrativa y a la administración de recursos materiales en los convenios marco que suscriba el CONARE, y comprometan recursos institucionales.
+23. Coadyuvar, participar y desarrollar las actividades necesarias derivadas del Plan de Gestión Ambiental Institucional, las actividades de la Comisión de Gestión Ambiental, así como también en la implementación y desarrollo de la Política de Compras Públicas Sustentables. El CONARE facilitará los recursos necesarios para estas funciones.
+(Así adicionado el inciso anterior mediante acuerdo N° 11-2019 del 26 de marzo de 2019)
+24. Realizar las contrataciones de servicios profesionales cuya actividad estará regulada y definida a través de procedimientos y reglamentación interna. internos. La Proveeduría Institucional será la dependencia que establecerá políticas y lineamientos de alcance institucional para la mejora continua de esta actividad y para el cumplimiento de los principios constitucionales que rigen esta materia.
+(Así adicionado el inciso anterior mediante acuerdo N° 11-2019 del 26 de marzo de 2019)
+25. Elaborar y desarrollar el programa de promoción de micro, pequeña y mediana empresa en los procesos de contratación administrativa.
+(Así adicionado el inciso anterior mediante acuerdo N° 11-2019 del 26 de marzo de 2019)
+26. Recibir, custodiar y gestionar los residuos institucionales tanto en materiales como en activos fijos. El CONARE dotará a la Proveeduría Institucional los recursos necesarios para el cumplimiento de las normas ambientales, de control interno, así como el mantenimiento del Centro de Recuperación de Residuos Valorizables asignado al Almacén.
+(Así adicionado el inciso anterior mediante acuerdo N° 11-2019 del 26 de marzo de 2019)
+27. Coordinar y ejecutar las actividades correspondientes para los debidos procedimientos administrativos en los casos de rescisión, resolución, ejecución de garantías, cláusulas penales y multas en las fases que el órgano director del procedimiento dicte.
+(Así adicionado el inciso anterior mediante acuerdo N° 11-2019 del 26 de marzo de 2019)
