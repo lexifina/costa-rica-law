@@ -1,1 +1,7 @@
-Artículo 20.- Con el fin señalado, el Instituto Nacional de Aprendizaje deberá crear el departamento de formación profesional para la mujer, para lo cual destinará no menos del uno por ciento (1%) de su presupuesto anual.
+CAPITULO V
+De la educación
+Artículo 20.- Están prohibidos en cualquier institución educativa nacional todos los contenidos, métodos o instrumentos pedagógicos en que se asignen papeles en la sociedad a hombres y mujeres contrarios a la igualdad social y a la complementariedad de los géneros, o que mantengan una condición subalterna para la mujer.
+El Estado fomentará la educación mixta, el concepto de responsabilidad compartida de derechos y obligaciones familiares y de solidaridad nacional, y otros tipos de educación que contribuyan a lograr ese objetivo.
+Los libros de texto, los programas educativos y los métodos de enseñanza deberán contener los valores expuestos en la presente ley, y contribuir a la eliminación de prácticas discriminatorias en razón del género, así como promover el estudio de la participación de la mujer a través de la historia.
+Toda instalación deportiva o recreativa que se construya, total o parcialmente, con fondos públicos, deberá satisfacer necesidades deportivas y recreativas de mujeres y hombres, en forma equitativa.
+(Así modificada su numeración por el artículo único de la ley igualdad salarial entre mujeres y hombres, N° 9677 del 26 de marzo del 2019, que lo traspasó del antiguo artículo 17 al 20)

@@ -1,2 +1,10 @@
-Artículo 15.- El Ministerio de Justicia deberá poner en marcha programas adecuados, en coordinación con el Centro de Mujer y Familia(*), para asegurar la protección y la orientación de las víctimas de agresión por parte de un familiar consanguíneo o afín y de agresión sexual, así como para la prevención del problema.
-(*) (Nota: El artículo 26, inciso c), de la ley No.7801 de 30 de abril de 1998 indica que toda referencia al Centro Nacional para el Desarrollo de la Mujer y la Familia se entenderá referida al Instituto Nacional de las Mujeres)
+Artículo 15- Se crea la Comisión Interinstitucional de Igualdad Salarial entre Mujeres y Hombres, que estará conformada por una persona representante de las siguientes instituciones:
+a) El Ministerio de Trabajo y Seguridad Social (MTSS), que la coordinará.
+b) El Instituto Nacional de las Mujeres (Inamu).
+c) La Defensoría de los Habitantes de la República de Costa Rica.
+d) Las universidades públicas.
+e) El Banco Central de Costa Rica (BCCR).
+f) El Instituto Nacional de Estadística y Censos (INEC).
+Esta Comisión sesionará al menos dos veces al año y será la encargada de gestionar y velar por que el INEC incorpore el indicador de igualdad salarial en los estudios que corresponda y profundice sobre las variables que influyen en el ingreso monetario de las personas (por sexo, sector, zona, edad, horas trabajadas, anualidades) para identificar, en su complejidad, el comportamiento de las diferencias salariales por sexo.
+De igual forma, como resultado de esos datos se determinarán los indicadores que permitan evaluar periódicamente las razones de la desigualdad salarial entre mujeres y hombres, y establecer las medidas respectivas. Estos indicadores se integrarán al Sistema Nacional de Indicadores administrado por el Instituto Nacional de Estadística y Censos.
+(Así adicionado por el artículo único de la ley para la protección de la igualdad salarial entre mujeres y hombres, N° 9677 del 26 de marzo del 2019)
