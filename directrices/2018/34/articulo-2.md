@@ -1,0 +1,2 @@
+Artículo 2°—El comité se reunirá al menos una vez cada mes y previa convocatoria de la CNE.
+Este comité estará a cargo de conducir la elaboración y ejecución de la “Estrategia Nacional de Contingencia para Enfrentar los Efectos de El Niño en Costa Rica, Periodo 2018-2019”, conocerá los informes técnicos de avance de acciones de las instituciones integradas en la Estrategia, valorando las acciones adoptadas y la coordinación, e igualmente, deberá determinar las acciones futuras que deben ser desarrolladas hasta la conclusión del evento.

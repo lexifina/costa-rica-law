@@ -1,0 +1,1 @@
+Artículo 6°—Es competencia de la CNE coordinar la valoración técnica de los posibles impactos y garantizar el seguimiento, monitoreo y evaluación de las acciones sectoriales e institucionales durante y después del evento ENOS.

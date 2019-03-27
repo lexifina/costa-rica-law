@@ -1,0 +1,1 @@
+Artículo 4°—La única información válida acerca de la evolución del Fenómeno de ENOS y sus repercusiones en el régimen de lluvias del país la brindará el Instituto Meteorológico Nacional, en el marco de la coordinación de la Comisión ENOS (COENOS), teniendo como contraparte de activación interinstitucional a la CNE.
