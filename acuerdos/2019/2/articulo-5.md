@@ -1,0 +1,1 @@
+Artículo 5°—El funcionamiento interno de la comisión será regulado de conformidad al Capítulo de órganos colegiados de la Ley General de la Administración Pública y será presidida por el Director Nacional de Extensión Agropecuaria a o su representante.
