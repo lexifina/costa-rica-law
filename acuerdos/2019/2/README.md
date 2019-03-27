@@ -14,3 +14,4 @@ Crea Comisión Nacional de Palma Aceitera
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-03-27 | la propia norma |
+| 2 | 2019-03-27 | Acuerdo 4 (2019-03-27) |
