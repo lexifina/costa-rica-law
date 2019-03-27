@@ -1,0 +1,4 @@
+Artículo 21: Derogatorias.
+1) Se deroga el acuerdo de Junta de Gobierno en su sesión ordinaria N°2016-07-27 del 27 de julio de 2016 y publicado en el Alcance de La Gaceta N°161A del martes 16 de setiembre de 2016, denominado: “Normativa para el Trámite de Permisos Temporales de Trabajo de Médicos Generales y Especialistas Nacionales y Extranjeros”.
+2) Se deroga el acuerdo de Junta de Gobierno en su sesión ordinaria N°2010-03- 17 del 17 de marzo de 2010 y publicado en La Gaceta N°75 del martes 20 de abril de 2010, denominado: “Normas de Médico Visitante”.
+3) Se deroga el acuerdo de Junta de Gobierno en su sesión ordinaria N°2017-07-12 del 12 de julio de 2017 y publicado en el Alcance N°188 de La Gaceta N°146 del 03 de agosto de 2017, denominado: “Normativa que regula la autorización de permisos temporales de trabajo para médicos especialistas aún no incorporados al Colegio de Médicos y Cirujanos de Costa Rica”.

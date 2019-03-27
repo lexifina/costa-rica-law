@@ -1,0 +1,3 @@
+Artículo 4: Solicitudes de Autorización.
+La Fiscalía del Colegio de Médicos y Cirujanos, será el ente encargado de tramitar y verificar el cumplimiento en la presentación de todos los requisitos formales exigidos en la presente normativa de todas las solicitudes realizadas a efecto de obtener una autorización temporal para ejercer la profesión médica en el país.
+La ausencia de alguno de los requisitos señalados en la presente normativa, obligará al rechazo ad portas de la solicitud, sin que quepa recurso alguno. Bajo ninguna circunstancia se admitirá la presentación de documentación incompleta.
