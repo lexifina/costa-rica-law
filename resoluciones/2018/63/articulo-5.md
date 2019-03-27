@@ -1,1 +1,0 @@
-Artículo 5º—Se deja sin vigencia la resolución DGH-017-2018 y DGA-DGT-008-2018 de la Dirección General de Hacienda y de la Dirección General de Aduanas del Ministerio de Hacienda, San José, de las doce horas del día 02 de marzo de dos mil dieciocho, publicada en La Gaceta N° 50 del viernes 16 de marzo del 2018.
