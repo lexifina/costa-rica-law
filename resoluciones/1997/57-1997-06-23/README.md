@@ -20,3 +20,4 @@ Comunica resolución de la Dirección General de Servicio Civil (DG-055-97, Manu
 | 5 | 2017-11-24 | Resolución 19 (2017-11-24) |
 | 6 | 2018-01-26 | Resolución 1 (2018-01-26) |
 | 7 | 2018-04-13 | Resolución 5 (2018-04-13) |
+| 8 | 2019-03-28 | Resolución 5 (2019-03-28) |
