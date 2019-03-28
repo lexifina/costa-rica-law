@@ -1,0 +1,1 @@
+Artículo 2 °- Las dependencias del sector público y sector privado involucradas podrán contribuir con recursos económicos dentro de sus competencias legales respectivas, en la medida de sus posibilidades y sin perjuicio del cumplimiento de sus propios objetivos, para la exitosa realización de la actividad indicada.
