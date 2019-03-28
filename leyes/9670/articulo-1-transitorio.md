@@ -1,0 +1,2 @@
+TRANSITORIO I- Transitorio al inciso a) del artículo 17 de la Ley N.º 7558, Ley Orgánica del Banco Central de Costa Rica, de 3 de noviembre de 1995.
+En el primer período constitucional del presidente de la República, siguiente a la entrada en vigencia de esta reforma, el Consejo de Gobierno nombrará al presidente del Banco Central por un período de cinco años. Concluido ese lapso, el nombramiento del presidente del Banco Central se hará de acuerdo con lo dispuesto en el literal a) del artículo 17 de esta ley.
