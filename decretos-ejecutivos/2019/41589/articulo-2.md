@@ -1,0 +1,8 @@
+Artículo 2 ° - Trámite. Para iniciar los trámites del aval, el Sistema de Banca para el Desarrollo deberá aportar los siguientes documentos:
+a) Análisis socioeconómico, financiero y ambiental que demuestren la factibilidad del proyecto.
+b) Estados financieros auditados (Balance general, Estados de resultados, Estado de origen y aplicación de fondos y Flujo de caja) y razones financieras del Sistema de Banca para el Desarrollo de los últimos 3 años; así como las proyecciones de estados financieros, razones financieras y flujos de caja que incorporen el efecto de los créditos en proceso de negociación y que cubran el período de amortización del préstamo en trámite, adjuntando los supuestos utilizados.
+c) Programación de los desembolsos de los recursos del financiamiento en trámite o la programación de colocación de los títulos valores, así como de la utilización de la contrapartida nacional en caso de existir. Cuando el proyecto conlleve recursos no reembolsables, incorporar la programación de su utilización.
+d) Borrador del contrato de préstamo con los términos y condiciones financieras del crédito (acreedor, monto y moneda a contratar, tasa de interés, plazo de gracia, amortización, período de desembolso, tipo de garantía, comisiones y otros).
+e) Fundamento legal de la entidad para contratar o avalar crédito público.
+f) En el caso de que la Dirección lo considere necesario, podrá solicitar información adicional para el análisis de la solicitud.
+La Dirección de Crédito Público analizará la información remitida y emitirá la recomendación correspondiente dentro de un plazo de 1 O días hábiles al Ministro de Hacienda, para la aprobación o denegatoria del aval.
