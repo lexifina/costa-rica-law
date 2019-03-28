@@ -1,0 +1,1 @@
+Artículo 3°—Se exhorta a la comunidad civil para que, los contratos que supongan desembolsos periódicos, como los de alquiler, de parte de pensionados con cargo al Presupuesto Nacional, se adapten, de común acuerdo con los interesados, a las nuevas fechas calendarizadas y comunicadas por el Ministerio de Hacienda para el pago de pensiones durante 2019.
