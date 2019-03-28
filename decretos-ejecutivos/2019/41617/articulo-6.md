@@ -1,0 +1,1 @@
+Artículo 6º-Las entidades públicas, los ministerios y los órganos desconcentrados, para la formulación de sus PEI, deberán atender lo dispuesto por el MIDEPLAN, mediante la Guía "Orientaciones básicas para la formulación y seguimiento del Plan Estratégico Institucional" disponible en el sitio web de MIDEPLAN.

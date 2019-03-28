@@ -1,0 +1,1 @@
+Artículo 33.-Los ministerios, entidades públicas y órganos desconcentrados deberán velar porque los proyectos de inversión a financiarse con endeudamiento público, estén contemplados en el PNDIP elaborado por MIDEPLAN, e inscritos en el BPIP con su respectivo código.
