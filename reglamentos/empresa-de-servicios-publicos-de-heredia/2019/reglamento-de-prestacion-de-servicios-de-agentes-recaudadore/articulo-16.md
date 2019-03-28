@@ -1,0 +1,1 @@
+ARTICULO 16- Gestión Jurídica, previo el análisis de los aspectos legales pertinentes, procederá a revisar el contrato de servicios indicado y; paralelamente Gestión de Tesorería gestionará la formalización de la garantía respectiva.

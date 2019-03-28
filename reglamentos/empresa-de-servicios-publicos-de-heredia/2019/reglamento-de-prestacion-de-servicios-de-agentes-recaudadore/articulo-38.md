@@ -1,0 +1,1 @@
+ARTÍCULO 38- Los porcentajes y el tope de la Comisión a que se refieren los incisos a) y b) del artículo 36 de El Reglamento, podrán ser ajustados por la Junta Directiva de ESPH S.A., previo dictamen de la Subgerencia, a fin de equipararlos a las condiciones económicas prevalecientes y a las políticas institucionales de ESPH S.A. u otras instituciones similares.

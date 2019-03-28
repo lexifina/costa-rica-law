@@ -1,0 +1,1 @@
+ARTICULO 15- Si la Gerencia aprueba las recomendaciones citadas en el artículo anterior, ésta solicitará a Gestión Jurídica, el visto bueno del contrato correspondiente y enviará copia de dicha solicitud a Gestión de Tesorería.

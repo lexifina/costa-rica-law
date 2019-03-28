@@ -1,0 +1,1 @@
+ARTICULO 20- Dicha garantía se renovará y ajustará anualmente de acuerdo a los montos promedios de recaudación de los últimos tres meses; o cuando ESPH S.A. aplique ajustes de sus tarifas a criterio de ésta. En este caso, ESPH S.A. deberá notificar al recaudador la anterior circunstancia, concediéndole un plazo de un mes para ajustar el monto de la nueva garantía.

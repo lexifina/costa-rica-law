@@ -1,0 +1,1 @@
+ARTÍCULO 52- La agencia recaudadora se responsabilizará del desarrollo, capacitación, pruebas y demás actividades requeridas para la implementación del servicio de conectividad en sus estaciones de trabajo, servidores y dispositivos de comunicación; todo ello según cronograma y desarrollo del plan de implementación acordado previamente entre las partes.

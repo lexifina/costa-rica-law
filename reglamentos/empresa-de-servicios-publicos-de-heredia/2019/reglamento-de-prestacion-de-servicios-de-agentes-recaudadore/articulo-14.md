@@ -1,0 +1,1 @@
+ARTICULO 14- De recomendarse la contratación del oferente, Gestión de Tesorería remitirá a la Gerencia de la ESPH S.A. la oferta respectiva, con los documentos de soporte y las justificaciones de su recomendación.

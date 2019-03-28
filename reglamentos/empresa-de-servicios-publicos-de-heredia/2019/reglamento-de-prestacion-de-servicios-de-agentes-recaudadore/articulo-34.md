@@ -1,0 +1,1 @@
+ARTÍCULO 34- ESPH S.A. y el agente recaudador podrán coordinar aspectos de publicidad y promoción del cobro de servicios, utilizando los locales de recaudación, por intermedio el proceso de Comunicación e Imagen Externa de la Empresa.

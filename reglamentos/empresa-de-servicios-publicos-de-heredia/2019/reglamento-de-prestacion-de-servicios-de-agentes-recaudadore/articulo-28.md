@@ -1,0 +1,1 @@
+ARTICULO 28- El agente enviará por correo electrónico copia del depósito bancario realizado y el archivo o reporte de pagos correspondiente. No se pueden unir recaudaciones, ni de fines de semana, ni de días feriados, es decir siempre será una recaudación por día. De no cumplirse con este lineamiento se aplicarán las sanciones de capítulo noveno.

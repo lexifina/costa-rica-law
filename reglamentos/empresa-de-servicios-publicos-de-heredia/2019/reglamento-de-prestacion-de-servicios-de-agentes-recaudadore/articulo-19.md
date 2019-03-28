@@ -1,0 +1,2 @@
+ARTÍCULO 19- La garantía de cumplimiento podrá consistir en depósito de dinero efectivo, bono de garantía emitido por algún Banco del Sistema Bancario Nacional o depósito a plazo a nombre de ESPH S.A. endosado a su favor por un monto mínimo de 4]50.000.00 (setecientos cincuenta mil colones exactos), dependiendo de la conveniencia de la Empresa.
+Cuando la garantía consista en un bono de garantía emitido por algún Banco del Sistema Bancario Nacional el mismo no podrá ser condicionado en cuanto a su ejecución.

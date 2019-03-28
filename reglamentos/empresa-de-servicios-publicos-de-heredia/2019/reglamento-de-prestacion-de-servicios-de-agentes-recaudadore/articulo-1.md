@@ -1,0 +1,11 @@
+EMPRESA DE SERVICIOS PÚBLICOS DE HEREDIA S. A.
+La Junta Directiva de la Empresa de Servicios Públicos de Heredia S.A., en la Sesión número TRES MIL OCHOCIENTOS NOVENTA Y SIETE- C de fecha catorce de enero del año dos mil diecinueve, en su ARTÍCULO CUARTO, INCISO SIETE y mediante Acuerdo JD CERO DOCE GUIÓN DOS MIL DIECINUEVE aprobó el REGLAMENTO DE PRESTACIÓN DE SERVICIOS DE AGENTES RECAUDADORES DE LA EMPRSA DE SERVICIOS PÚBLICOS DE HEREDIA S.A. QUE DIE ASÍ:
+ACUERDO JD 012-2019
+l. REVOCAR EL ACUERDO JD 037-2010 DE LA SESIÓN Nº3050-C DE FECHA 8
+DE FEBRERO DE 2010.
+2. APROBAR EL REGLAMENTO DE PRESTACIÓN DE SERVICIOS DE AGENTES
+RECAUDADORES DE LA EMPRESA DE SERVICIOS PÚBLICOS DE HEREDIA
+PARA QUE SE APLIQUE ASÍ:
+REGLAMENTO DE PRESTACIÓN DE SERVICIOS DE AGENTES RECAUDADORES
+DE LA EMPRESA DE SERVICIOS PÚBLICOS DE HEREDIA S.A.
+ARTICULO 1- El presente Reglamento define y regula la relación contractual entre la Empresa de Servicios Públicos de Heredia S.A. (ESPH, S.A.) y sus agentes recaudadores, así como las condiciones bajo las cuales se presta el servicio de recaudación.

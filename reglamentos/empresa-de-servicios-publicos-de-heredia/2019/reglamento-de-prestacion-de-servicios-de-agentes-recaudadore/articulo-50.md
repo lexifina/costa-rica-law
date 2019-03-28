@@ -1,0 +1,1 @@
+ARTICULO 50- El soporte que brindará ESPH S.A. en la implementación de conectividad, corresponde específicamente en facilitar la información técnica necesaria para lograr la conectividad, o la indicación formal de las condiciones técnicas requeridas.
