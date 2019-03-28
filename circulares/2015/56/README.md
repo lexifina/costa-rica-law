@@ -13,3 +13,4 @@ Modificación de la circular N° 30-2013 sobre “Plazo para la remisión de pru
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-03-25 | la propia norma |
+| 2 | 2019-03-28 | Circular 49 (2019-03-28) |
