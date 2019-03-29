@@ -1,0 +1,2 @@
+Artículo 25. Comunicación y notificaciones
+Durante la estadía del becario en el exterior, la Dirección de Cooperación Externa será el enlace de seguimiento y comunicación con la Comisión, asimismo la Dirección de Gestión Financiera (DGF) asignará a una persona enlace en ese departamento para atender las consultas en relación a presupuestos de los becarios. La Secretaría de la Comisión será la que reciba consultas, informes y solicite cualquier documentación que se requiera en el tiempo estipulado para el seguimiento de los beneficios recibidos.

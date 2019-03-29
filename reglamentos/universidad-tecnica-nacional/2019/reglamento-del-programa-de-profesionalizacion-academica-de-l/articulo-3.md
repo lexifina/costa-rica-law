@@ -1,0 +1,3 @@
+Artículo 3. Financiamiento
+El Programa de Profesionalización Académica se financiará mediante la asignación de recursos provenientes del presupuesto ordinario de la Institución y será administrado por la Dirección de Cooperación Externa. Dicho presupuesto nunca puede ser menor a los compromisos vigentes en los contratos de beca de ese año.
+Asimismo, se sumará a este presupuesto los fondos que provengan de las recuperaciones de los incumplimientos y de los beneficios concedidos, destinado exclusivamente a lo que estipule este reglamento. Bajo ningún caso el monto asignado podrá ser menor al asignado el año anterior y en respuesta a los compromisos adquiridos en ese periodo.

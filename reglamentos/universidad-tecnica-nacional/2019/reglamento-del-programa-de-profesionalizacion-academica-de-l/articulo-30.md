@@ -1,0 +1,2 @@
+Artículo 30. Sanciones parciales
+Se sancionará con el retiro parcial del beneficio cuando, a juicio de la Comisión, el incumplimiento de la obligación pueda ser subsanada dentro del plazo en que rige el beneficio. El monto o tiempo del beneficio podrá ser variado ajustándolo a las nuevas necesidades.

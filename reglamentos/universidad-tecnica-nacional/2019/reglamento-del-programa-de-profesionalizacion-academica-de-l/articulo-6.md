@@ -1,0 +1,2 @@
+Artículo 6. Representación para tramitar becas ante organismos nacionales o internacionales
+La Dirección de Cooperación Externa, está facultada para actuar en representación de la Universidad ante los diversos organismos e instituciones nacionales e internacionales, para solicitar el otorgamiento de las becas o subsidios en beneficio de su personal académico que cumplan con los requisitos del presente Reglamento.

@@ -1,0 +1,2 @@
+Artículo 5. Administración del Programa
+La gestión y seguimiento del Programa de Profesionalización recaerá en la Dirección de Cooperación Externa, misma que por delegación de la Rectoría, debe establecer las condiciones de cada beca y realizar el contrato entre el funcionario académico candidato a beca y la Institución, de acuerdo con los criterios establecidos. Únicamente, la Rectoría tendrá la atribución de otorgar las becas de posgrado al exterior.

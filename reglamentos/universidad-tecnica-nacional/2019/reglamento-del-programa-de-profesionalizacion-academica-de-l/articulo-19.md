@@ -1,0 +1,2 @@
+Artículo 19. Beneficios no contemplados
+Cuando corresponda, la Dirección de Cooperación Externa emitirá una resolución sobre todos los aspectos incluidos por cada tipo de beneficio. En caso de que un becario requiera de una ayuda adicional no contemplada entre los beneficios anteriores y que requiera ser atendida para el buen suceso de su plan de estudios, la Comisión deberá analizar el caso y definirá si se aprueba o no dicha ayuda.

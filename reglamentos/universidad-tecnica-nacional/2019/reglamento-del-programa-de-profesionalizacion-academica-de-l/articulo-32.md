@@ -1,0 +1,2 @@
+Artículo 32. Retribución de los beneficios otorgados por incumplimiento.
+La UTN se encuentra facultada para recuperar los montos de los beneficios otorgados al momento del incumplimiento del contrato de beca, adicionando un 0.5% de intereses sobre las sumas. Para ello, se firmará un acuerdo de pago entre el funcionario académico y la UTN, en donde que establezca el monto y la frecuencia (quincenal o mensual) de estos rebajos.
