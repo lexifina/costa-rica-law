@@ -1,0 +1,4 @@
+Artículo 9. – Del adelanto de viáticos. El funcionario podrá solicitar a la Dirección de Finanzas el adelanto de viáticos; para tal efecto utilizará el formulario correspondiente.
+En ningún caso se hará un adelanto de viáticos al mismo funcionario que injustificadamente tuviere pendiente la presentación de la liquidación de la gira anterior, aunque fuere absolutamente necesario realizar una nueva gira.
+De manera excepcional y en casos debidamente justificados por las respectivas jefaturas, se podrá hacer adelanto de viáticos cuando se trate de giras continuas cuya duración máxima sea de dos semanas.
+La solicitud de adelanto de viático deberá contener como mínimo, la información del funcionario que realizará el viaje, el motivo o fin, los lugares a visitar, el período estimado de viaje, el gasto estimado y las firmas del jefe inmediato y el jefe superior, según corresponda.

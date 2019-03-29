@@ -1,0 +1,1 @@
+Artículo 15. - Improcedencia del pago de viáticos. No se reconocerá suma alguna por concepto de viáticos cuando sea la Institución la que proporcione los servicios a los funcionarios, o cuando dichos servicios sean sufragados por un tercero.

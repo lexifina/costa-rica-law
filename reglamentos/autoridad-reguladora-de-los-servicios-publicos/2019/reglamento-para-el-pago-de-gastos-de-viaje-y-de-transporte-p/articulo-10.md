@@ -1,0 +1,1 @@
+Artículo 10. - Del pago por desayuno, almuerzo, cena y hospedaje. El pago del viático por concepto de desayuno, almuerzo, cena y hospedaje se hará de conformidad a las tarifas establecidas en el Reglamento de la Contraloría y procederá de acuerdo con las reglas ahí dispuestas.
