@@ -1,2 +1,0 @@
-Artículo 36.—Ampliación de la denuncia. El ODP podrá citar a la persona denunciante con la finalidad de aclarar o ampliar su denuncia, en los casos estrictamente necesarios y siempre que lo realice antes de formular el traslado de cargos.
-En ningún momento esta ampliación podrá constituirse en una ratificación de la denuncia ni en una investigación preliminar de los hechos denunciados de conformidad con el artículo 19 de la Ley contra el Hostigamiento Sexual en el Empleo y la Docencia.

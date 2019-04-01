@@ -1,2 +1,0 @@
-Artículo 57.—De las denuncias falsas. Podrá incurrir en responsabilidad penal, toda persona que interponga denuncia falsa de acoso sexual, de conformidad con lo establecido en el artículo 16 de la Ley contra el Hostigamiento Sexual en el Empleo y la Docencia, en concordancia con el Código Penal.
-La persona que haya comparecido como testigo y falte a la verdad incurrirá en el delito de falso testimonio, en concordancia con el Código Penal.

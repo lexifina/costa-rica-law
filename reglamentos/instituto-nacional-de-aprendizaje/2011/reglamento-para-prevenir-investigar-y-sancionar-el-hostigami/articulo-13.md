@@ -1,2 +1,0 @@
-Artículo 13.—Sesiones de la Comisión. La Comisión sesionará en forma ordinaria cada tres meses, el primer miércoles de los meses de marzo, junio, setiembre y diciembre. Podrá sesionar en forma extraordinaria cuando así lo disponga la persona que preside quien deberá convocar con al menos 24 horas de anticipación.
-De igual modo se podrá sesionar extraordinariamente cuando estén presentes todas las personas integrantes y lo acuerden por unanimidad.
