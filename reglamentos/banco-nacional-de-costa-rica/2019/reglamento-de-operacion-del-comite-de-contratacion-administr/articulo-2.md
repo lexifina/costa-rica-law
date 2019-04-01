@@ -1,4 +1,0 @@
-Artículo 2º—Conformación del Comité de Contratación Administrativa:
-2.1 El Comité de Contratación Administrativa estará integrado por tres miembros titulares y dos miembros suplentes, todos nombrados discrecionalmente y mediante acto expreso por la Gerencia General. En el acto de nombramiento que emita, la Gerencia General dispondrá cuál funcionario fungirá como presidente y, en caso de que este se ausente, quién será el que ocupe dicho cargo.
-Por su condición, el gerente general podrá asistir a las sesiones y presidir con derecho a voz y voto.
-2.2. El Comité de Contratación Administrativa contará con la asesoría de un abogado de la Dirección Jurídica, quien tendrá voz, pero no voto. Asimismo, el órgano colegiado nombrará a un secretario, de conformidad con lo previsto en el artículo 50 de la Ley General de la Administración Pública.

@@ -1,1 +1,0 @@
-Artículo 14°: Se deroga el Reglamento del Comité y Sub-Comité del Licitaciones del Banco Nacional de Costa Rica, aprobado por la Junta Directiva General en la sesión n° 12.058, artículo 16, celebrada el 08 de febrero de 2016, el cual fue publicado en el diario oficial La Gaceta n° 32 del 16 de febrero del 2016.

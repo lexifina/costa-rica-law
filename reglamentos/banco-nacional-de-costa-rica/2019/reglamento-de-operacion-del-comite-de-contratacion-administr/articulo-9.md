@@ -1,1 +1,0 @@
-Artículo 9°- Sesiones: El órgano se reunirá con la frecuencia, el día, la hora y el lugar que él mismo disponga; sin embargo, quedará válidamente constituido, sin existir los requisitos referentes a la convocatoria y el orden día, cuando esté presente la mayoría absoluta de sus miembros.
