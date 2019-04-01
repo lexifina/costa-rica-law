@@ -1,0 +1,1 @@
+Artículo 16. Registro de obras. Para efectos de control, la Municipalidad de Flores creará un registro de obras menores y trabajos de mantenimiento realizados, a partir de la identificación de la matrícula de folio real que aparece en planos catastrados. Dicho registro podrá llevarse de manera digital.

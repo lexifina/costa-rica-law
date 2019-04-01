@@ -1,0 +1,1 @@
+Artículo 10. Pago por permiso de construcción. Toda obra menor y/o trabajo de mantenimiento regularizable deberá pagar según el porcentaje aplicado al costo de la obra o del trabajo de mantenimiento, de acuerdo a lo establecido por la Municipalidad de Flores.

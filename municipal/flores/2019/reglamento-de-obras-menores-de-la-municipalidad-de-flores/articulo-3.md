@@ -1,0 +1,1 @@
+Artículo 3. Obligaciones municipales. Para el otorgamiento de cualquier tipo de permiso de construcción, de los indicados en este Capítulo, el solicitante deberá tener pago lo correspondiente por servicios municipales e impuesto de bienes inmuebles.

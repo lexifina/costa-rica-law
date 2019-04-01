@@ -1,0 +1,1 @@
+Artículo 12. Ampliaciones y remodelaciones. Aquellas construcciones que se deseen ampliar y/o remodelar, incluyendo la construcción de cuartos o niveles adicionales, muros de contención, y cualquier otra obra que no se encuentre dentro de la categoría de obra menor, debe cumplir con las disposiciones de obras de construcción (obra general)establecidas en el Plan Regulador.
