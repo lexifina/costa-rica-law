@@ -1,0 +1,1 @@
+Artículo 11.—Deber de verificar la existencia de contenido económico. El Director, deberá verificar la disponibilidad de fondos, de previo a autorizar que los funcionarios a su cargo laboren en jornada extraordinaria. No se podrá autorizar a ningún funcionario laborar en jornada extraordinaria, si no existe contenido presupuestario suficiente y disponible para respaldar su pago.

@@ -1,0 +1,2 @@
+Artículo 14.—Sistema de Control de tareas realizadas en jornada extraordinario. Cada Director deberá controlar que las tareas encomendadas a realizar dentro de la jornada extraordinaria sean realizadas de acuerdo a los principios de eficiencia y eficacia, no pudiéndose disponer de horas extras para labores ajenas a las encomendadas.
+El funcionario que dentro de la jornada extraordinaria realice labores diferentes a las autorizadas por el Director será sujeto de sanción disciplinaria.
