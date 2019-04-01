@@ -1,0 +1,6 @@
+Artículo 9º—Del cómputo de la experiencia. A solicitud de la persona interesada, el tiempo prestado en condición meritoria podrá ser considerado por el Departamento de Recursos Humanos como experiencia para efectos de concursos, siempre y cuando el nivel de complejidad y responsabilidad de las funciones ejecutadas sean compatibles con las que se establecen en el Manual Descriptivo de Puestos. En tales casos, el cómputo del tiempo servido será ponderado según las horas efectivamente servidas.
+La Comisión de meritorios emitirá las constancias de la colaboración prestada en el Tribunal Supremo de Elecciones bajo esa modalidad a solicitud de la persona interesada, con base en la información de las jefaturas respectivas y los registros que para tales efectos llevará y en los que se consignará al menos los siguientes datos:
+a. Período en que la persona realizó labor meritoria en la institución.
+b. Funciones desempeñadas o proyectos realizados.
+c. Evaluaciones efectuadas por la jefatura o encargado (a) que tuvo bajo su supervisión a la persona en condición meritoria que prestó su colaboración.
+d. Ponderación de las horas efectivamente servidas, cuando no se trate de un proyecto por objetivos.

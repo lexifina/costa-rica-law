@@ -1,0 +1,2 @@
+Artículo 6º—Del plazo para prestar colaboración en condición meritoria. El plazo para realizar colaboración meritoria será de dos meses hasta un año, pudiendo prorrogarse por períodos iguales, siempre y cuando las condiciones y necesidades institucionales lo permitan y se cuente para ello, con el visto bueno de la Dirección correspondiente.
+Solamente en casos excepcionales, debidamente justificados, la respectiva Dirección podrá autorizar colaboración meritoria por períodos inferiores a dos meses.

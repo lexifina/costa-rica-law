@@ -1,0 +1,3 @@
+Artículo 2º—De la persona en condición meritoria. Por meritoria se entiende aquella persona que, sin ser funcionaria pública, brinde colaboración en los servicios y proyectos institucionales sin existir contraprestación dineraria, con el único fin de acumular conocimientos y experiencia para su vida académica o profesional.
+La persona meritoria estará sometida al régimen disciplinario interno, por lo que deberá acatar las normas, directrices e instrucciones aplicables en el TSE. Asimismo, su conducta se deberá apegar a los valores institucionales.
+Esta relación no genera derechos laborales ni confiere a la persona meritoria el carácter de servidora pública regular.

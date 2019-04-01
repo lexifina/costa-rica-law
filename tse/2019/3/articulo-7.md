@@ -1,0 +1,3 @@
+Artículo 7º—De la finalización de la colaboración de la persona en condición meritoria. La relación podrá ser suspendida o finalizada en cualquier momento a entera discreción de la institución, debiendo comunicarse formalmente a la persona meritoria.
+La jefatura de la dependencia en que se haya asignado una persona en condición meritoria podrá prescindir de ella en cualquier momento, dándole aviso por escrito con copia a la Comisión de meritorios.
+Al cese de su período, o bien de manera adelantada, la persona meritoria deberá entregar el carné y demás materiales provistos para sus funciones. Su renuncia adelantada a la condición de meritorio deberá presentarse por escrito ante la Comisión de meritorios.
