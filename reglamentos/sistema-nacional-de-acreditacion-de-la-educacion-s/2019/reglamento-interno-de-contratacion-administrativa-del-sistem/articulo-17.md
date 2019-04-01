@@ -1,0 +1,1 @@
+Artículos 17.- Apertura de las ofertas. Una vez concluido el plazo de recepción de ofertas la proveeduría institucional tendrá a su cargo la apertura de las ofertas que se realiza frente a los oferentes que así lo deseen y se levantará un acta para consignar la información más importante de cada una, según lo determine el proveedor institucional.

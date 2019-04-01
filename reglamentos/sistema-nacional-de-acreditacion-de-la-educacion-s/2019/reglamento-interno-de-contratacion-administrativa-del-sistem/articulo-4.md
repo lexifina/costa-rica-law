@@ -1,0 +1,1 @@
+Artículo 4.- Agotamiento de la vía administrativa. Corresponderá a cada instancia competente de la adjudicación según lo descrito en el artículo 21 de este Reglamento, resolver los recursos de revocatoria que se presenten en contra de los diversos actos de adjudicación.

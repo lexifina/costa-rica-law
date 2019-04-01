@@ -1,0 +1,1 @@
+Artículos 16.- Plazos para la recepción de ofertas. Los plazos para la recepción de ofertas serán establecidos por la proveeduría institucional dependiendo del tipo de bien y/o servicio respetando lo dispuesto en la LCA y en el RLCA.

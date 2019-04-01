@@ -1,0 +1,3 @@
+Artículo 36.- Del régimen sancionatorio. La Proveeduría Institucional deberá realizar el debido procedimiento establecido en la Ley General de la Administración Pública y el acto administrativo sancionatorio será tomado por el Proveedor Institucional y en ausencia de éste será la jefatura de la División de Apoyo a la Gestión del SINAES. Las sanciones ejecutadas formarán parte del expediente administrativo y del registro de proveedores y serán notificadas a las instancias competentes.
+La aplicación de multas, cláusulas penales y sanciones serán bajo los términos dispuestos en los carteles de contratación correspondientes.
+Pavas, 4 de Marzo de 2019.

@@ -1,0 +1,3 @@
+Artículo 8.- Organización de la Proveeduría Institucional. La Proveeduría Institucional es un proceso asignado a la División de Apoyo a la Gestión del SINAES de conformidad con el Reglamento Orgánico del SINAES.
+Dicho proceso estará a cargo de un proveedor institucional, que responderá jerárquicamente a la jefatura de la División de Apoyo a la Gestión.
+El proveedor institucional contará con el apoyo del personal que le asigne la División de Apoyo a la Gestión y con el apoyo que por convenio interinstitucional se establezca.
