@@ -1,0 +1,1 @@
+Artículo 2°—El monto del impuesto específico ¢0.26019 (cero, dos seis cero uno nueve colones), indicado en el artículo anterior, se aplicará sobre cada mililitro de alcohol absoluto a partir del 01 de abril de 2019.
