@@ -1,0 +1,1 @@
+Artículo 12°: En lo no regulado expresamente aquí, se estará a lo dispuesto por la Ley General de la Administración Pública, la Ley de Contratación Administrativa y la demás normativa atinente a la materia y los acuerdos de la Junta Directiva del Banco.
