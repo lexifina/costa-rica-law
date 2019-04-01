@@ -1,1 +1,0 @@
-Artículo 34.—Normativa derogada. Se deroga el Reglamento de Adquisiciones de Obras, Bienes y Servicios, aprobado por la Junta Directiva mediante acuerdo Nº 119-2009-JD, de la sesión Nº 4410, celebrada el 7 de octubre del 2009, publicado en el Diario Oficial La Gaceta Nº 222 del 16 de noviembre del 2009.

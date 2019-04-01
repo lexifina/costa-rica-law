@@ -1,3 +1,3 @@
-CAPÍTULO VI
-Disposiciones finales
-Artículo 33.—Normativa aplicable. Con este Reglamento se deberán aplicar la LCA, RLCA y la Ley General de Administración Financiera y de Presupuestos Públicos, Supletoriamente se aplicará la Ley General de la Administración Pública. Así como todo lo dictaminado en el Reglamento Nº 36242-MP-PLAN.
+CAPÍTULO V
+Sanciones
+Artículo 33. —Sanciones. Para la ejecución del régimen de sanciones establecidas para funcionarios en la Ley de Contratación Administrativa y su Reglamento, la Ley de Administración Financiera y Presupuestos Públicos, se aplicará el procedimiento establecido en el Reglamento Autónomo de Servicios del INA y supletoriamente la Ley General de Administración Pública, sin perjuicio de las responsabilidades civiles o penales que puedan surgir.

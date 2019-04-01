@@ -1,1 +1,4 @@
-Artículo 29.—Recepción, almacenamiento y distribución de los bienes. Para la recepción de los bienes deberá llevarse un registro en el cual deberán constar las cantidades, calidades, características, naturaleza de los bienes y concordancia con lo adjudicado, así como toda otra información pertinente, y será suscrita por el funcionario encargado de recibir los bienes y el contratista o por quien hace la entrega. Al Proceso de Almacén le corresponderá establecer y llevar a cabo los procedimientos y controles para la adecuada recepción, almacenamiento y distribución de bienes en las diferentes bodegas que aseguren un servicio eficiente y seguro.
+CAPÍTULO IV
+De la supervisión, recepción, almacenamiento
+y distribución
+Artículo 29. —Trámites conexos de importación de bienes. Todos los trámites bancarios, aduaneros, transporte interno a almacenes del INA, exoneraciones de impuestos, contratación de medios de transporte, reclamos ante proveedores y/o sus representantes o ante el Instituto Nacional de Seguros, producto de las operaciones relacionadas con la importación de bienes estarán a cargo del Proceso de Adquisiciones de la UCI.

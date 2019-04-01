@@ -1,4 +1,4 @@
-Artículo 13.—Requisitos para las justificaciones de compra. La Justificación de la solicitud de adquisición deberá ser formulada por el encargado de la Unidad Solicitante, considerando:
+Artículo 13. —Requisitos para las justificaciones de compra. La Justificación de la solicitud de adquisición deberá ser formulada por el encargado de la Unidad Solicitante, considerando:
 a) La necesidad a satisfacer con la contratación y los beneficios que se espera obtener, ambos en concordancia con los planes de largo y mediano plazo, el Plan Nacional de Desarrollo, el Plan Anual Operativo, el presupuesto, la disponibilidad presupuestaria para la adquisición de obras, bienes y el Programa de Adquisiciones Institucional.
 b) La descripción del objeto de la contratación (las especificaciones técnicas) que permitan satisfacer los requerimientos internos y que correspondan a la realidad y necesidad real del mercado.
 c) Los procedimientos de control de calidad que se aplicarán durante la ejecución del contrato y para la recepción de la obra, bien o servicio.

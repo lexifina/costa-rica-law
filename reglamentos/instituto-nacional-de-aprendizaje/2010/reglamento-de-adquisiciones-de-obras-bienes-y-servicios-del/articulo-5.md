@@ -1,1 +1,1 @@
-Artículo 5º—Ámbito de aplicación. Este Reglamento se aplicará a la adquisición de obras, bienes y servicios, mediante los procedimientos ordinarios de contratación, y las contrataciones de materias excluidas de los procedimientos ordinarios que se llevan a cabo en el INA.
+Artículo 5º— Ámbito de aplicación. Este Reglamento se aplicará a la adquisición de obras, bienes y servicios, mediante los procedimientos ordinarios de contratación, y las contrataciones de materias excluidas de los procedimientos ordinarios que se llevan a cabo en el INA.

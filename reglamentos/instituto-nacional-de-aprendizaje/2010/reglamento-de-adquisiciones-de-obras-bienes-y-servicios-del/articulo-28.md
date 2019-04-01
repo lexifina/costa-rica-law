@@ -1,3 +1,9 @@
-CAPÍTULO IV
-De la supervisión, recepción, almacenamiento y distribución
-Artículo 28.—Trámites conexos de importación de bienes. Todos los trámites bancarios, aduaneros, transporte interno a almacenes del INA, exoneraciones de impuestos, contratación de medios de transporte, reclamos ante proveedores y/o sus representantes o ante el Instituto Nacional de Seguros, producto de las operaciones relacionadas con la importación de bienes estarán a cargo del Proceso de Adquisiciones de la UCI.
+Artículo 28. - Firma de Contratos electrónicos. El contrato electrónico es un instrumento que utiliza el SICOP para formalizar una contratación y consiste en un documento electrónico que contiene todos los elementos esenciales de la contratación, tanto legales, técnicos como administrativos.
+Debe de entenderse que contrato electrónico es igual que orden de compra usual que se realiza en el INA y también el contrato con firma del adjudicatario que se realiza para formalizar.
+Tendrán potestad de firmar digitalmente los contratos las personas que de conformidad con las siguientes reglas se indican:
+a) Cuando son contrataciones de escasa cuantía el responsable será la persona encargada del Proceso de Adquisiciones, en ausencia de este podrá firmar la persona encargada del Proceso de Seguimiento, Apoyo y Control. En el caso de la Sede Central, en ausencia de la persona encargada del Proceso de Adquisiciones, firmará la persona encargada de la Unidad de Compras Institucionales.
+b) Para los trámites adjudicados por la Comisión Local Regional de Adquisiciones, será la persona encargada del Proceso de Seguimiento, Apoyo y Control. En ausencia de éste, podrá firmar la persona encargada de la Unidad Regional.
+c) Para los trámites adjudicados por la Comisión Local Central de Adquisiciones, será la persona encargada de la Unidad de Compras Institucionales.
+d) Para los trámites adjudicados por la Comisión de Licitaciones y Junta Directiva que no tengan refrendo contralor, será la personas encargada de la Unidad de Compras Institucionales.
+e) Para los trámites adjudicados que requieran refrendo contralor o permisos de Contraloría General de la República, por artículos vía excepción, será la persona encargada de la Gerencia General.
+De igual forma, todas las modificaciones contractuales que se realicen de conformidad con el RLCA, serán firmados digitalmente por los mismos parámetros anteriormente explicados.
