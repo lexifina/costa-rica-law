@@ -102,3 +102,9 @@ CÓDIGO | DESCRIPCIÓN | DAI%
 3603.00.50.00 | - Inflamadores | 0
 3603.00.60.00 | - Detonadores eléctricos | 0
 “)
+(Nota de Sinalevi: Mediante decreto ejecutivo N° 41598 del 16 de enero del 2019, se publicó la N° 405-201 (COMIECO-LXXXV) de 07/12/2018, que aprobó la apertura arancelaria para las "Tiras (flejes) de anchura superior a 5mm pero inferior o igual a 20mm", de la siguiente manera:
+CÓDIGO | DESCRIPCIÓN | DAI%
+39.20 | Las demás placas, láminas, hojas y tiras, de plástico no celular y sin refuerzo, estratificación ni soporte o combinación similar con otras materias |
+3920.20 | - De polímeros de propileno: |
+3920.20.1 | - - Flexibles, sin impresión: |
+3920.20.15.00 | - - - Tiras (flejes) de anchura superior a 5 mm pero inferior o igual a 20 mm”) | 0
