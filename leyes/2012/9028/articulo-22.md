@@ -2,11 +2,10 @@ CAPÍTULO IX
 IMPUESTO A LOS PRODUCTOS DE TABACO
 ARTÍCULO 22.- Creación del impuesto
 Creación de un impuesto específico para los cigarrillos y similares. Se crea un impuesto específico de veinte colones (¢20,00) por cada cigarrillo, cigarro, puros de tabaco y sus derivados, de producción nacional o importado, comprendidos en las partidas arancelarias que se detallan a continuación:
-CÓDIGO ARANCELARIO | DESCRIPCIÓN | IMPUESTO POR UNIDAD (COLONES)
-24.01 | Tabaco en rama o sin elaborar; desperdicios de tabaco. | 23,39
-24.02 | Cigarros (puros) (incluso despuntados). | 23,39
-Cigarritos (puritos) y cigarrillos de tabaco o de sucedáneos del tabaco.
-24.03 | Los demás tabacos y sucedáneos del tabaco, elaborados; tabaco “homogeneizado” o “reconstituido”; extractos y jugos de tabaco. | 23,39
-(Así reformado el cuadro anterior por el artículo 1° de la resolución RES-DGH-0020 del 7 de marzo del 2018)
+Código Arancelario | Descripción | Impuesto por Unidad (colones)
+24.01 | Tabaco en rama o sin elaborar; desperdicios de tabaco. 23,75 | 23.75
+24.02 | Cigarros (puros) (incluso despuntados). Cigarritos (puritos) y cigarrillos de 23,75 tabaco o de sucedáneos del tabaco. | 23.75
+24.03 | Los demás tabacos y sucedáneos del tabaco, elaborados; tabaco “homogeneizado” o “reconstituido”; extractos y jugos de tabaco. | 23.75
+(Así reformado el cuadro anterior por el artículo 1° de la resolución RES-DGH-0014-2019 del 7 de marzo del 2019)
 En cuanto a los demás derivados del tabaco, el tabaco en su estado natural y cualquier otra presentación que contenga tabaco, y que esté dispuesto o no para ser fumado, se determinará el monto del impuesto específico a pagar de forma proporcional a la cantidad de gramos de tabaco que en promedio tiene un cigarrillo derivado del tabaco, procedimiento que se definirá vía reglamento.
 El tabaco que constituya materia prima, que requieran los fabricantes de cigarrillos, cigarros y puros, sea este importado o de producción nacional, no estará afecto a este impuesto, siempre y cuando los fabricantes demuestren ante la Administración Tributaria-Aduanera que están debidamente inscritos como contribuyentes del impuesto específico establecido en este artículo, dado que este se aplicará sobre el producto final a nivel de fábrica.
