@@ -1,0 +1,2 @@
+ARTÍCULO 5. EVALUACIÓN DE LA EFICIENCIA
+De conformidad con la definición de eficiencia incluida en la presente directriz, cada empresa o institución deberá definir los parámetros de eficiencia bajo los cuales realizará la evaluación. Se deberán definir los aspectos a considerar y los indicadores a ser evaluados en el instrumento a aplicar. El nivel de exigencia de eficiencia que debe alcanzar la empresa o institución deberá ser conocido en cada caso por el Consejo de Gobierno o por la oficina o unidad que este designe, de previo a su implementación.

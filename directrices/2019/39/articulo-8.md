@@ -1,0 +1,2 @@
+ARTÍCULO 8. EVALUACIÓN DE LA ECONOMÍA
+La evaluación de la economía estará ligada a la rendición de cuentas presupuestaria que todas las empresas e instituciones deben realizar, por encontrarse ya definida legalmente. Para esta evaluación se considerarán las políticas de austeridad y cualquier otra que resulte aplicable en la gestión de la junta directiva u órgano colegiado, que hayan sido emitidas por el Gobierno de la República y que se encuentren vigentes.

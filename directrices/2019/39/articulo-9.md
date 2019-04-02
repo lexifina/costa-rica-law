@@ -1,0 +1,2 @@
+ARTÍCULO 9. EVALUACIÓN PRELIMINAR
+Cada empresa o institución deberá realizar un diagnóstico previo o evaluación preliminar, que determine el estado actual de la gestión de su junta directiva u órgano de dirección. El resultado de esta primera evaluación deberá ser analizado y remitido al Consejo de Gobierno, con las observaciones y propuestas de mejora que se llevarán a cabo para dar cumplimiento a las obligaciones consignadas en esta directriz.

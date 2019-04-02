@@ -1,0 +1,3 @@
+CAPÍTULO II. TRANSPARENCIA Y DIVULGACIÓN
+ARTÍCULO 14. INFORME PÚBLICO ANUAL
+La entidad deberá incorporar un resumen de las oportunidades de mejora en la gestión de la junta directiva u órgano colegiado y las acciones planteadas para conseguirlas al informe público anual de labores de la institución, en cumplimiento de los objetivos de transparencia y divulgación institucional conforme a la Directriz 102-MP “Política General sobre Transparencia y Divulgación de Información Financiera y No Financiera para Empresas Propiedad del Estado, sus Subsidiarias, e Instituciones Autónomas” del 6 de abril de 2018 .
