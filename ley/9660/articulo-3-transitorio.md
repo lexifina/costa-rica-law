@@ -1,0 +1,3 @@
+TRANSITORIO III- En un plazo no mayor a seis meses, que se contará a partir de la publicación del decreto que reglamente la presente ley, el Ministerio de Obras Públicas y Transportes (MOPT) deberá crear la normativa técnica que permita a los operadores de transporte público adaptar la infraestructura necesaria para establecer espacios para bicicletas; dicha reglamentación deberá ejecutarse al momento en que se suscriba un nuevo contrato de concesión.
+Rige a partir de su publicación.
+Dado en la Presidencia de la República, San .José a los veinticuatro días del mes de febrero del año dos mil diecinueve.

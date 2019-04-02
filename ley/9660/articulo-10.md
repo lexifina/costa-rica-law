@@ -1,0 +1,2 @@
+ARTÍCULO 10- Coordinación interinstitucional
+El Ministerio de Obras Públicas y Transportes (MOPT), sus instituciones adscritas y los gobiernos locales, según corresponda, realizarán las intervenciones autorizadas previstas en la presente ley directamente o en conjunto y de conformidad con el artículo 118 de la Ley N. º 9078, Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial, de 4 de octubre de 2012.
