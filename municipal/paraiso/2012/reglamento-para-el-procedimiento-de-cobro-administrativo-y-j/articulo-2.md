@@ -1,1 +1,0 @@
-Artículo 2º—Ámbito de aplicación. Este Reglamento será de aplicación obligatoria tanto para la Administración Tributaria Municipal en su proceso de cobro administrativo, como para los abogados y abogadas externos que sean contratados por la Municipalidad de PARAÍSO, para gestionar el cobro judicial de las obligaciones dinerarias que se le adeuden a ésta.

@@ -1,1 +1,0 @@
-Artículo 22.—Monto mínimo para realizar arreglo de pago. Únicamente procederán arreglos de pago cuando las obligaciones vencidas sean por un monto mayor de cuarenta mil colones en caso de personas físicas y setenta mil colones a personas jurídicas.
