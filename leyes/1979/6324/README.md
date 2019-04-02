@@ -1,6 +1,6 @@
 # Ley de Administración Vial
 
-Ley N° 6324 del 1979-05-24. SINALEVI, ficha 36807: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=36807&param2=90882&param3=1>.
+Ley N° 6324 del 1979-05-24. SINALEVI, ficha 36807: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=36807&param2=115813&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -14,3 +14,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 6 de 9 | 2012-10-26 | Ley 9078 | 2012-10-04 |
 | 7 de 9 | 2012-12-21 | Ley 9107 | 2012-12-19 |
 | 8 de 9 | 2012-12-21 | Ley 9112 | 2012-12-19 |
+| 9 de 9 | 2019-04-02 | Ley 9660 | 2019-02-24 |
