@@ -1,6 +1,3 @@
-Artículo 19.—De los arqueos. Periódicamente y sin previo aviso, la Auditoría, la Tesorería, el Jefe Inmediato del Encargado de la caja chica, Departamento de Inspección y los Directores, y los Supervisores efectuarán arqueos a cada caja. La revisión se hará en forma sorpresiva, iniciándola con el conteo inmediato del fondo y los justificantes.
-(Así reformado el párrafo anterior mediante sesión N° 888 del 14 de julio de 2008)
-Para dichos efectos, deberá coincidir el monto asignado de la caja chica, con el dinero y los justificantes en poder del encargado.
-Todo sobrante que se determine deberá ser depositado en el acto en cualquiera de las cuentas corrientes Nº 1-001264-9 con el Banco Popular y Desarrollo Comunal, en la Nº 203655-6 del Banco Nacional de Costa Rica y en la Nº 210083-5 del Banco de Costa Rica.
-En caso de faltantes al fondo, cualquiera que sea la causa, la empresa reintegrará de inmediato el monto respectivo, comunicándolo formalmente y con la documentación de respaldo al Departamento de Tesorería para el trámite de reposición.
-A los efectos de tipificar la falta en la relación obrero patronal, de inmediato se iniciará la investigación administrativa, para lo cual quien o quienes determinen el faltante deberán reportarlo al Departamento de Inspección. Si se presume que la causa del faltante obedece a un acto delictivo, se deberá presentar de forma inmediata la denuncia penal ante el Ministerio Público por quién o quienes determinen el faltante.
+Articulo N° 19 – Del incumplimiento.
+Cuando la caja chica no cumpla su cometido, o bien se estén infringiendo las disposiciones contenidas en este Reglamento, podrá ser motivo suficiente para que la Gerencia de Administración y Finanzas autorice el cierre del fondo de caja chica y se apliquen las sanciones disciplinarias correspondientes.
+(Así reformado mediante acuerdo N° 9098 y publicado en el Alcance Digital N° 77 a La Gaceta N° 65 del 2 de abril del 2019)
