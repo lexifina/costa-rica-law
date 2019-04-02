@@ -1,0 +1,3 @@
+Artículo 23.- Garantía de cumplimiento. La administración solicitará para todas las licitaciones abreviadas y públicas una garantía de cumplimiento de un 5% sobre el monto cotizado, o bien un monto fijo en caso de que se trate de un negocio de cuantía inestimable. En este último caso, será la unidad solicitante la que defina el monto fijo de dicha garantía.
+El plazo de vigencia requerido será de dos meses adicionales a la fecha probable de la recepción definitiva del objeto contractual.
+En el caso de contrataciones directas, será la unidad solicitante la que indique si se requiere de una garantía de cumplimiento.

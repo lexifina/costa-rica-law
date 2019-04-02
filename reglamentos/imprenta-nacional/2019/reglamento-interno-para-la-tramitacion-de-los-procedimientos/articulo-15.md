@@ -1,0 +1,3 @@
+Artículo 15.- De la Decisión Inicial. Antes de confeccionar la decisión inicial, el responsable de la unidad solicitante deberá contar con al menos tres cotizaciones del bien o servicio que requiera, que haga constar que se investigó los precios y así contar con información actualizada del mercado.
+Las decisiones iniciales que emitan las unidades usuarias deberán ajustarse a los requerimientos del artículo 7 de la LCA y el artículo 8 del RLCA, toda vez que constituye el instrumento que da inicio al proceso de contratación administrativa.
+Los directores de Producción, Comercialización y Administrativo-Financiero, según donde se ubique la unidad solicitante, serán los responsables de autorizar la decisión inicial.

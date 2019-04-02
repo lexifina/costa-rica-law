@@ -1,0 +1,2 @@
+Artículo 27. Informe de razonabilidad de precios. La unidad solicitante, con base en el estudio de precios, deberá aportar a la Proveeduría Institucional el respectivo informe de razonabilidad de precios.
+Este informe sobre la razonabilidad de los precios, deberá permitir justificar de forma objetiva y transparente, la recomendación de adjudicación y de esta forma evitar la selección de ofertas cuyos precios resulten inaceptables.
