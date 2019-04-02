@@ -30,7 +30,8 @@ Para la interpretación de esta ley y de su reglamento, tienen el carácter de d
 28. Cilindrada: capacidad volumétrica de un cilindro o cilindros de un motor expresada en centímetros cúbicos (cm3) o litros (lts), usualmente utilizada como C.C. y L, respectivamente.
 29. Centros de inspección técnica vehicular (CIVE): ente estatal o privado destinado a la inspección técnica-mecánica de vehículos automotores y a la revisión del control de emisiones.
 30. Ciclista: persona que conduce una bicicleta o su pasajero.
-31. Ciclovía: vía o sección de la calzada destinada, exclusivamente, al tránsito de bicicletas, triciclos y peatones, cuyo ancho se establecerá reglamentariamente.
+31. Ciclovía: vía o sección de la calzada destinada exclusivamente al tránsito de bicicletas, triciclos no motorizados y peatones (estos últimos únicamente cuando no existan aceras), cuyo ancho se establecerá reglamentariamente.
+(Así reformado el inciso anterior por el inciso a) del artículo 17 de la Ley de Movilidad y Seguridad Ciclística, N° 9660 del 24 de febrero del 2019)
 32. Conductor: persona que tiene el control operativo de un vehículo y es responsable directo de este y de las infracciones que cometa.
 33. Conductor novato: toda persona que adquiera por primera vez su licencia de conducir y que no sobrepase los tres años de haberla obtenido. Se excluye a los conductores profesionales.
 34. Conductor profesional: toda persona cuya actividad laboral principal sea la conducción de vehículos a motor dedicados al transporte de mercancías o de personas y que haya sido acreditada con una licencia tipo B-3, B-4, C, D o E. También será conductor profesional aquel que haya sido acreditado con su licencia tipo A-2, A-3, B-1 o B-2, y que haya solicitado, al momento de su expedición, el agregado P (profesional).
