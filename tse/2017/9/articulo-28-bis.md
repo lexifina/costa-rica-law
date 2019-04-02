@@ -1,0 +1,3 @@
+Artículo 28 bis.—La persona ciudadana debidamente acreditada ante la Administración Electoral como fiscal de un partido político podrá renunciar a dicho cargo invocando cualquier motivo, bastando para ello la presentación formal de su dimisión ante la agrupación política que lo propuso.
+Será eliminado de los registros formales que lleva la citada Administración Electoral con la simple remisión, por los medios idóneos, de una copia de la renuncia en la que necesariamente conste el sello de recibido del respectivo partido político.
+(Así adicionado por el artículo 1° del decreto del Tribunal Supremo de Elecciones, N° 8 del 2 de abril de 2019)

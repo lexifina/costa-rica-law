@@ -14,3 +14,4 @@ Reglamento para la fiscalización de los procesos electivos y consultivos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-07-24 | la propia norma |
+| 2 | 2019-04-02 | Decreto TSE 8 (2019-04-02) |
