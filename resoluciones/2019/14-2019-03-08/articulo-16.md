@@ -1,0 +1,1 @@
+ARTÍCULO 16. Deber de custodia: Los obligados al suministro de la información deben resguardar toda la documentación que respalde lo declarado en el Registro de Transparencia y Beneficiarios Finales y deben mantenerla a disposición de la Administración Tributaria y del Instituto Costarricense sobre Drogas para los procesos de control cuando así lo requieran.

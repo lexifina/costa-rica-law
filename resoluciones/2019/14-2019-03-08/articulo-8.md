@@ -1,0 +1,1 @@
+ARTÍCULO 8. Orden de presentación de declaraciones: En virtud de que la obligación de la declaración ordinaria es anual, las declaraciones deben completarse en orden ascendente; es decir, en caso de tener declaraciones pendientes, se debe completar iniciando desde el período más antiguo hasta el actual.

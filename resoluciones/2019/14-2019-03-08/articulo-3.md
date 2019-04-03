@@ -1,0 +1,6 @@
+ARTÍCULO 3. Otras personas autorizadas a suministrar la información: Además del representante legal indicado en el artículo 1 de esta resolución, el suministro de información al Registro de Transparencia y Beneficiarios Finales podrá hacerse mediante un único apoderado, que debe ser una persona física con facultades suficientes para el acto, lo que tendrá que acreditarse por medio de un notario público. En caso que se acredite mediante un poder especial, este debe ser otorgado en escritura pública.
+El notario público debe ingresar a la funcionalidad del Registro de Transparencia y Beneficiarios Finales para registrar la persona que suministrará la información a nombre del obligado, adjuntando la documentación que lo respalde. Para estos efectos el notario público debe contar con un certificado válido de firma digital y debe además consignar los siguientes datos, pero no limitados a estos:
+1. Número de cédula jurídica de la persona jurídica obligada.
+2. Número de identidad de la persona física apoderada.
+3. Datos del documento donde consta la facultad del apoderado para interactuar con el sistema.
+En el ejercicio de esta función, los notarios deben seguir los lineamientos que dicte el Consejo Superior Notarial para la actividad notarial.

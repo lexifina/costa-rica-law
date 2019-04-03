@@ -1,0 +1,1 @@
+ARTÍCULO 17. Sanción: El incumplimiento a lo dispuesto en la Ley para Mejorar la Lucha contra el Fraude Fiscal, el Reglamento del Registro de Transparencia y Beneficiarios Finales o esta resolución podrá ser sancionado de acuerdo a lo establecido en el artículo 84 bis del Código de Normas y Procedimientos Tributarios.
