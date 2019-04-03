@@ -1,0 +1,3 @@
+CAPÍTULO 3 DEL PROCEDIMIENTO PARA CONVOCAR A LA CONSULTA
+ARTÍCULO 54
+Los procesos de plebiscito y referendo, podrán ser utilizados, para someter a consulta popular, cualquier asunto de interés local según corresponda, cuando por iniciativa del Alcalde Municipal, los Regidores, Síndicos o bien cualquier munícipe del cantón, fuere presentado formalmente y por escrito, una solicitud ante el Concejo Municipal y así fuere aprobada por acuerdo municipal, con una votación, no menor a las tres cuartas partes del total de sus miembros o las dos cuartas partes, con relación a los cabildos, por considerarse un asunto de alto interés comunal.

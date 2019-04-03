@@ -1,0 +1,2 @@
+ARTÍCULO 84
+La Municipalidad deberá tener definidos los procedimientos para la institucionalización de la planificación participativa, presupuestos locales participativos, contralorías ciudadana que regulen todo lo relacionado a proyectos y políticas municipales así como los proyectos en los distritos. Ello no podrá extenderse más allá de seis meses a partir de la vigencia del presente reglamento.

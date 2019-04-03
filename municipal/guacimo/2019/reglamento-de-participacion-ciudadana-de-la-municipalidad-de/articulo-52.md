@@ -1,0 +1,3 @@
+ARTÍCULO 52
+Los mecanismos de consulta y participación ciudadana referidos en el artículo anterior podrán realizarse a escala cantonal o distrital. No obstante, cuando los asuntos sometidos a consulta afecten los intereses de los ciudadanos de varios distritos de un mismo cantón, la consulta deberá realizarse simultáneamente en todos ellos.
+Podrán ejercer su derecho al voto en estos procesos de consulta popular todos aquellos electores que aparezcan en el padrón electoral del respectivo cantón o distrito, según el corte vigente del mes anterior al de la aprobación en firme del acuerdo de convocatoria y de acuerdo a lo establecido en el reglamento de consultas populares aprobado por el Tribunal Supremo de Elecciones.

@@ -1,0 +1,3 @@
+ARTÍCULO 45
+De cada sesión se levantará un acta, en ella e harán constar los acuerdos tomados. Una vez que el Concejo de Distrito haya aprobado las actas, deberán ser firmadas por el Presidente y el Secretario, y remitidas al Subproceso de Promoción del Desarrollo Social de la Municipalidad.
+Dichas actas deberán ser aprobadas en una sesión ordinaria posterior. Los Concejos de Distrito además entregarán a la entidad encargada en la Municipalidad un listado de los representantes comunales por cada proyecto. Esto permitirá contactar a los responsables de cada proyecto y se cumpla con los requisitos definidos en materia presupuestaria.

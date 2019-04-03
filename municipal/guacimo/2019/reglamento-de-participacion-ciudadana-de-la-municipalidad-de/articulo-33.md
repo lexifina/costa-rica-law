@@ -1,0 +1,2 @@
+ARTÍCULO 33
+El Presidente Municipal, El Alcalde, el Concejo Municipal o el Concejo de Distrito podrá ordinariamente convocar a audiencia pública, n forma bimensual, o cuando así lo considere mediante mayoría calificada, para tratar asuntos de carácter nacional, regional o cantonal o por I órgano colegiado distrital para asuntos de carácter local o comunal. Dicha convocatoria se hará a través de los medios de comunicación que se compruebe resulten eficaces para este fin, por lo menos con quince días de anticipación a la fecha de la celebración de la misma.

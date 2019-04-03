@@ -1,0 +1,10 @@
+C APÍTULO 2 MECANISMOS DE CONSULTA Y PARTICIPACIÓN CIUDADANA
+Artículo 51
+Los mecanismos de consulta y participación ciudadana podrán realizarse bajo las siguientes modalidades:
+a) Referendo: Es la decisión de carácter vinculante tomada por el municipio de esa circunscripción territorial cantonal, mediante una votación escrita sobre un asunto de competencia municipal que excluye la materia tributaria y presupuestaria.
+b) Plebiscito: Es la decisión tomada por el municipio de una determinada circunscripción territorial, entre dos o más alternativas que tiene efectos vinculantes. El resultado se toma por mayoría de votos. Este tipo de consulta es de dos tipos para asuntos de competencia municipal (que no sean tributario o presupuestarios) y para revocatoria de mandato del Alcalde.
+c) Cabildo: Consiste en la consulta oral y pública a los munícipes de una determinada circunscripción territorial cantonal, a fin de escuchar sus opiniones para formar mejores elementos de juicio en un determinado asunto. No es vinculante.
+d) Audiencia Pública: Consiste en la consulta oral y pública a los munícipes de una determinada circunscripción territorial cantonal, a fin de escuchar sus opiniones para formar mejores elementos de juicio en un determinado asunto. No es vinculante. Debe realizarse en forma obligatoria para la aprobación de Planes Reguladores.
+e) Foros Distritales: Consiste en la consulta oral y pública a los munícipes de una determinada circunscripción territorial cantonal, a fin de escuchar sus opiniones para orientar asignación de fondos presupuestarios, en las obras comunales de un cantón; así como orientar la planificación estratégica del Plan Quinquenal de Trabajo Municipal y del Plan Operativo Anual.
+En estos participan por derecho propio los Concejos de Distrito de la circunscripción territorial cantonal.
+f) Foros Comunales: Consiste en la consulta oral y pública a las organizaciones comunales inscritas y a distintos actores locales, con el fin de elaborar inventarios de necesidades comunales, planes estratégicos municipales y asignación de fondos presupuestarios para las obras comunales.

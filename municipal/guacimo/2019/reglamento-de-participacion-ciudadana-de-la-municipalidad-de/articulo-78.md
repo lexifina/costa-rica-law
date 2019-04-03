@@ -1,0 +1,2 @@
+ARTÍCULO 78
+Cuando así lo considere conveniente el Concejo Municipal, por votación calificada de sus miembros y en coordinación con la Alcaldía, previo dictamen de comisión municipal, podrá aplicar un r · gimen de beneficios para las empresas privadas, a fin de una o varias contribuyan a una mejor calidad de vida en el cantón de Guácimo. Esto podrá hacerse tanto con las que existieren u operaran en el cantón, como con otras que deseen instalarse en su jurisdicción, todo ello dentro de los marcos que establece el Código Municipal y las leyes conexas.

@@ -1,0 +1,2 @@
+ARTÍCULO 34
+Las audiencias públicas solicitadas por los vecinos o convocadas por quienes establece el artículo 33 de este reglamento se realizarán en las locales sedes del Concejo Municipal o del Concejo de Distrito respectivo. La municipalidad procurará, cuando ello sea posible, que las audiencias convocadas por el Concejo Municipal, el Concejo de Distrito o el Presidente Municipal o el Alcalde Municipal se realicen por distintos medios de comunicación( Internet, página web, periódicos locales, otros) para llegar- a la mayor cantidad posible de habitantes del cantón.

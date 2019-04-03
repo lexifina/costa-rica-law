@@ -1,0 +1,2 @@
+ARTÍCULO 44
+Cada distrito podrá incorporar únicamente la cantidad de proyectos que definió previamente el concejo de distrito ampliado, los cuales serán financiados con el fondo distrital asignado por la Municipalidad. Las prioridades se enfocarán a atender en primer lugar proyectos existentes que están inconclusos, y en segundo lugar aquellos que sean parte de las áreas establecidas por el Órgano de Planeamiento Estratégico o por el Alcalde Municipal.

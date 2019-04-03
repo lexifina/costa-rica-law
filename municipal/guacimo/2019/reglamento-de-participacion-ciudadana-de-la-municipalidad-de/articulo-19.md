@@ -1,0 +1,2 @@
+ARTÍCULO 19
+Los grupos u organizaciones que hayan recibido bajo administración instalaciones municipales de tipo deportivo, recreacional y cultural o de otro tipo deberán garantizar la participación de los ciudadanos y las ciudadanas en el uso de las mismas. Estos deberán informar al Concejo Municipal el plan anual de acciones y actividades que garantice este derecho. El Concejo Municipal podrá revocar la asignación administrativa respectiva, cuando se compruebe que se ha negado el derecho de participación de los munícipes.

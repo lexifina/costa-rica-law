@@ -1,0 +1,2 @@
+ARTÍCULO 69
+En el nivel municipal se concibe un punto de encuentro de los diferentes actores y sectores locales apoyan la realización de planes, programas de desarrollo fortaleciendo el poder local (y comunitario); para crear un sistema territorial local de planificación del desarrollo que se convierta en política pública municipal. En ese sentido es vital tener en cuenta lo que establece la Ley transferencias de competencias del impulso de la coordinación interinstitucional, pública y privada.

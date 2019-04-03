@@ -1,0 +1,2 @@
+ARTÍCULO 18
+Todos los munícipes del Cantón de Guácimo tienen derecho a utilizar los servicios públicos municipales, de acuerdo con su naturaleza, teniendo derecho a exigir la prestación y en su caso, el establecimiento de aquellos servicios que por constituir una competencia municipal, de acuerdo con la ley, el carácter de obligatorios, para lo cual deberán estar al día en el pago de las tasas o impuestos correspondientes.

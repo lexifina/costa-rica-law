@@ -1,0 +1,4 @@
+TITULO IV: INSTANCIAS DE PARTICIPACIÓN CIUDADANA
+CAPITULO 1: INSTANCIAS Y CARÁCTER DE LAS MISMAS
+ARTÍCULO 28
+La democracia como forma de gobierno es la base de la consulta popular y de la participación de los ciudadanos. Sin democracia no es posible hablar de una verdadera participación. El sistema democrático es legitimo cuando se sujeta a los principios y normas del derecho positivo y cuando es reconocido por la ciudadanía, la legitimidad se refiere al fundamento de la democracia sustantiva y la legalidad se refiere al ejercicio democrático procedimental. Por ende, la legitimidad y la legalidad son imprescindibles para garantizar la participación por distintas instancias en las cuales los ciudadanos se pronuncian por uno u otro medio sobre las decisiones o quiénes ejercerán la Toma de Decisiones, en el proceso de la gobernabilidad local.
