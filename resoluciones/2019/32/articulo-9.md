@@ -1,0 +1,1 @@
+IX. Indicar a las empresas indicadas en el Por Tanto I de la presente resolución, que los equipos técnicos de la Intendencia de Energía se encuentran en disposición de acompañar la transición al nuevo proceso de requerimientos de información regulatoria.

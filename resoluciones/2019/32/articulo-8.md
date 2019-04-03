@@ -1,0 +1,1 @@
+VIII. Indicar a las empresas indicadas en el Por Tanto I de la presente resolución, que deberán presentar la propuesta tarifaria a la Intendencia de Energía previo a la entrega formal en la Aresep, para lo cual deberá coordinar el espacio requerido con el coordinador del área de Tarifas Eléctricas.

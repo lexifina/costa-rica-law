@@ -1,0 +1,1 @@
+VII. Indicar a las empresas mencionadas en el Por Tanto I de esta resolución, que para todas las variables necesarias para el cálculo tarifario que no cuentan con un formulario incluido en esta resolución, se deberá aportar su metodología de cálculo trazable, justificación, respaldo y fuentes de información de conformidad con lo establecido en la metodología vigente.

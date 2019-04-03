@@ -1,0 +1,1 @@
+V. Con relación al proceso de “Liquidación de periodos anteriores” que indica la metodología tarifaria vigente, las empresas indicadas en el Por Tanto I de esta resolución, deben realizar dicho proceso según lo establecido en “El Procedimiento de Liquidación” realizado por la Intendencia de Energía.

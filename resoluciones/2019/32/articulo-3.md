@@ -1,0 +1,1 @@
+III. Solicitar a las empresas indicadas en el Por Tanto I de esta resolución, la aplicación de las vidas útiles de activos de la industria eléctrica según lo expuesto en las sesiones de trabajo convocadas mediante el oficio 0771-IE-2018 para los días 14, 26 y 27 de junio del 2018, las cuales entrarán en vigor a partir del 1 de enero del 2019.
