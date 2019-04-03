@@ -1,0 +1,1 @@
+Artículo 10.—Se aprueba el presente reglamento según acuerdo de Junta Directiva JD-108, correspondiente al capítulo IV), artículo 11), de la Sesión Ordinaria Nº 09-2019 celebrada el día 18 de febrero del 2019.
