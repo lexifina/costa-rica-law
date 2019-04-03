@@ -1,0 +1,4 @@
+Artículo 9
+Costos
+A menos que las autoridades competentes de las Partes Contratantes acuerden lo contrario, los costos ordinarios en que incurra en la prestación de asistencia correrán a cargo de la Parte requerida, y los gastos extraordinarios en la prestación de asistencia (incluidos los costos de la participación de asesores externos en relación con un litigio u otro motivo) serán sufragados por la Parte requirente. Las respectivas autoridades competentes se consultarán periódicamente con respecto a este Artículo y, en particular, la autoridad competente de la Parte requerida consultará a la autoridad competente de la Parte requirente si se espera que los costos de proporcionar información con respecto a una solicitud específica sean significativos.
+Los "costos extraordinarios" no incluyen los gastos administrativos y generales en los que incurra la Parte requerida para revisar y responder a las solicitudes de información remitidas por la Parte requirente.

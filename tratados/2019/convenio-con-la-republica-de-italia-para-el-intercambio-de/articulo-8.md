@@ -1,0 +1,4 @@
+Artículo 8
+Confidencialidad
+Toda información recibida por una Parte Contratante en virtud de este Convenio será tratada como confidencial y solo podrá revelarse a personas o autoridades (incluidos los tribunales y órganos administrativos) en la jurisdicción de la Parte Contratante encargada de la gestión o recaudación de los impuestos cubiertos por el presente Convenio, así como de ejecutar o llevar un proceso relativo a ellos o resolver recursos con respecto a tales impuestos. Esas personas o autoridades utilizarán dicha información únicamente para tales fines. Podrán revelar la información en
+procesos judiciales públicos o en las sentencias judiciales. La información no puede revelarse a ninguna otra persona o entidad o autoridad o cualquier otra jurisdicción sin el consentimiento por escrito de la autoridad competente de la Parte requerida.
