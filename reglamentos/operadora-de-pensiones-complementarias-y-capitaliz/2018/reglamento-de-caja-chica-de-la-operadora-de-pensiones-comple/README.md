@@ -14,3 +14,4 @@ Reglamento de caja chica de la Operadora de Pensiones Complementarias y de Capit
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-07-20 | la propia norma |
+| 2 | 2019-04-03 | Reglamento 1158 (2019-04-03) |
