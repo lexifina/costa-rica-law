@@ -13,3 +13,4 @@ Informe N° 36-PI-2014, sobre “la solicitud de establecer los recursos necesar
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-08-19 | la propia norma |
+| 2 | 2019-04-03 | Circular 51 (2019-04-03) |
