@@ -1,0 +1,1 @@
+TRANSITORIO II.- Los plazos comprendidos en el artículo 80 no regirán para todos aquellos proyectos de ley y demás asuntos pendientes que a la fecha hayan ingresado al orden del día de cualquiera de las comisiones legislativas o en Plenario.

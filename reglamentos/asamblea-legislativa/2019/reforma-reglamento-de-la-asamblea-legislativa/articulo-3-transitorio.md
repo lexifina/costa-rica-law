@@ -1,0 +1,1 @@
+TRANSITORIO III.- Las reformas realizadas a los artículos 107, 135, 150, 155, 156, 161, 175 y 194 no regirán para los asuntos que a la entrada en vigencia de este acuerdo hayan iniciado su discusión con fundamento en alguno de estos artículos y no esté finalizada.

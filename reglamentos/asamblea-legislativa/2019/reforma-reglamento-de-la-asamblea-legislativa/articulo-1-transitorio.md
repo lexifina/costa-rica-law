@@ -1,0 +1,1 @@
+TRANSITORIO I.- La reforma al artículo 138 del Reglamento de la Asamblea Legislativa no regirá para todos los proyectos de ley que a la entrada en vigencia de este acuerdo hayan iniciado el plazo para la presentación de mociones de reiteración.

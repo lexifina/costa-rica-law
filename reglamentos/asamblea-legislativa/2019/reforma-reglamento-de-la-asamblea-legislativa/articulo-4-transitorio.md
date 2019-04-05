@@ -1,0 +1,1 @@
+TRANSITORIO IV.- Los informes de las comisiones de investigación que a la entrada en vigencia de este acuerdo se encuentren pendientes en el orden del día del Plenario podrán ser conocidos y discutidos hasta el siguiente periodo constitucional. Los informes que se encuentren pendientes al inicio del nuevo periodo constitucional, sin más trámite, deberán ser remitidos al archivo.
