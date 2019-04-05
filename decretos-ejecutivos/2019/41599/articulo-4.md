@@ -1,0 +1,1 @@
+Artículo 4°-La citada Norma se pone a disposición, para las personas que deban consultarla, en la página web del Ministerio de Salud, cuya dirección electrónica es www.ministeriodesalud.go.cr y una versión impresa estará disponible en la Secretaria Técnica de Salud Mental.

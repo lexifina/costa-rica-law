@@ -1,0 +1,1 @@
+Artículo 3º-La implementación de este Decreto es de acatamiento obligatorio en todo el Territorio acional, el Ministerio de Salud en articulación con la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias velará por el cumplimiento de este Decreto.
