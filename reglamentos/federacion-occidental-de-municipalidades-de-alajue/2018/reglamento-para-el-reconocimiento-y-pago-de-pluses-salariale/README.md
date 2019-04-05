@@ -14,3 +14,4 @@ Reglamento para el reconocimiento y pago de pluses salariales a los funcionarios
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-01-11 | la propia norma |
+| 2 | 2019-04-05 | Reglamento 4 (2019-04-05) |
