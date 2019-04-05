@@ -1,0 +1,2 @@
+Artículo 3º-Se faculta al jerarca institucional respectivo para tomar las medidas correspondiente s para garantizar la apertura de aquellas oficinas que, por la naturaleza de sus funciones, requieran mantener la continuidad de sus servicios, e informar dichas medidas a los usuarios.
+Dentro de estas medidas debe asegurarse la disponibilidad inmediata del personal necesario para la atención oportuna de cualquier situación de emergencia.
