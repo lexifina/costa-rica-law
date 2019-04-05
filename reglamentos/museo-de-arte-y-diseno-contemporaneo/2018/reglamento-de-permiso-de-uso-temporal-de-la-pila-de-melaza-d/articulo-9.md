@@ -1,0 +1,1 @@
+Artículo 9º—Procedimiento de pago. El permisionario deberá cancelar el 100% del canon, en las fechas establecidas por el Museo. Estos montos no son reembolsables. Si no cumple con lo establecido con este artículo, se suspende la actividad sin responsabilidad del Museo.

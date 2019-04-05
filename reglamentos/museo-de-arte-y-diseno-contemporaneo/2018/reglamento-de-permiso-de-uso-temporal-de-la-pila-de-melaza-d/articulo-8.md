@@ -1,0 +1,1 @@
+Artículo 8º—Canon de uso. Por el permiso de uso de la Pila de la Melaza, deberá pagarse el canon, el cual será establecido anualmente por la Junta Administrativa del Museo, considerando el tipo de espacio requerido y la cantidad de tiempo solicitado.

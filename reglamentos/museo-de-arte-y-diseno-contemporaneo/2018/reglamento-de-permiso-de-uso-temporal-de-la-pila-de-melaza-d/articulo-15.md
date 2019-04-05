@@ -1,0 +1,1 @@
+Artículo 15.—Publicidad. En caso que se tengan patrocinadores, la publicidad que de estos se haga dentro de la Pila de Melaza, debe ser previamente autorizada por la Dirección del Museo. Está prohibida la publicidad de cigarrillos, alcohol y/o cualquier tipo de droga en las actividades del Museo.

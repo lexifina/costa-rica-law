@@ -1,0 +1,1 @@
+Artículo 4º—Política institucional “Libre de Humo”. La Pila de Melaza es parte del complejo arquitectónico del CENAC, de carácter gubernamental y por lo tanto es “libre de humo” en cumplimiento de la Ley N° 9028.

@@ -1,0 +1,1 @@
+Artículo 16.—Entradas y costos. En caso que el permisionario haya manifestado en la solicitud de préstamo, el interés de cobrar por concepto de ingreso a la actividad, el usuario será quien produzca, venda y decida el costo de las entradas para el evento; procurando que el precio definido, sea razonable y accesible al público.
