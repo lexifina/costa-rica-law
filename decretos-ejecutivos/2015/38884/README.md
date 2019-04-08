@@ -19,3 +19,4 @@ Precio de referencia del arroz en granza; y el precio máximo y mínimo de todas
 | 4 | 2017-03-09 | Decreto Ejecutivo 40310 (2017-03-09) |
 | 5 | 2017-04-24 | Decreto Ejecutivo 40394 (2017-04-24) |
 | 6 | 2017-11-24 | Decreto Ejecutivo 40820 (2017-11-24) |
+| 7 | 2019-04-08 | Decreto Ejecutivo 41735 (2019-04-08) |
