@@ -1,1 +1,2 @@
-Artículo 12.—Los retiros mínimos en todas las colindancias de la estructura de antena serán los siguientes: 1,5 metros en los laterales; 1,5 metros en el posterior y 2 metros en el frontal.
+Artículo 12.—Toda instalación de torres para el soporte de redes de telecomunicaciones debe contar con una franja de amortiguamiento alrededor de la infraestructura, que facilite y permita el tránsito del personal necesario para la conservación y mantenimiento de ésta. Esta franja debe ser del 10% de la altura de la torre, medida desde el centro de su base.
+(Así reformado mediante sesión ordinaria N° 154 del 8 de abril del 2019)

@@ -14,3 +14,4 @@ Reglamento de la Municipalidad de Moravia para el Otorgamiento de Permisos y Lic
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-05-30 | la propia norma |
+| 2 | 2019-04-08 | Reglamento municipal 154 (2019-04-08) |
