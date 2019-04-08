@@ -1,7 +1,0 @@
-CAPITULO II
-De la clasificación de los vehículos
-Artículo 5°—Para los efectos del presente reglamento, se clasifican los vehículos de la Institución en la siguiente forma:
-a) De uso administrativo general.
-b) De uso discrecional.
-Para realizar labores extraordinarias o asistir a actos oficiales municipales a celebrarse fuera de labores de oficina, o bien los días sábados, domingos o feriados, se podrán usar los vehículos previa autorización por escrito del Ejecutivo Municipal.
-(Nota de Sinalevi: Mediante sesión N° 130 del 23 de octubre de 2018, la Municipalidad de Escazú acordó modificar el inciso h) de este numeral. Al no existir dicho inciso en este artículo se transcribe la reforma: ““h.) Cuando personas ajenas a la Institución que desarrollan programas de apoyo, personas estudiantes de las diversas escuelas municipales o bien pasantes de TCU y/o prácticas supervisadas así como personas de grupos comunales, y requieran servicio de transporte, la Gerencia correspondiente deberá dirigir esta solicitud a la persona titular de la Alcaldía Municipal, siempre y cuando se trate del grupo de personas descritas anteriormente y que expresamente vinculadas en labores que desarrollen para la Municipalidad de Escazú, para lo cual la persona titular de la Alcaldía Municipal, previa verificación de la existencia de las pólizas requeridas, podrá brindar dicha autorización a través de la emisión de los actos administrativos correspondientes”)

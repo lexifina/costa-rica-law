@@ -1,2 +1,0 @@
-Artículo 26.—Las disposiciones contenidas en el presente Reglamento son aplicables a todos los funcionarios que en razón de sus cargos usen, controlen o administren los recursos de transporte de la Municipalidad , incluido el Ejecutivo y los miembros del Concejo.
-Cualquier reforma o adición a este Reglamento, será aprobada por el Concejo y requerirá para su eficacia, la aprobación definitiva de la Contraloría General de la República.
