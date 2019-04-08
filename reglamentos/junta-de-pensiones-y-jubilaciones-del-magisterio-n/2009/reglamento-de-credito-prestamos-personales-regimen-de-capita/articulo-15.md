@@ -1,3 +1,7 @@
-Artículo 15: Aprobación de los créditos
-Las solicitudes de crédito son recibidas, analizadas y aprobadas o denegadas por la Unidad de Crédito o sus Oficinas Regionales.
-Queda entendido que por el hecho de recibir la solicitud de crédito, JUPEMA no adquiere compromiso u obligación alguna con el solicitante y que la aprobación del mismo queda sujeta a juicio exclusivo de la Institución, de conformidad con los parámetros establecidos en esta reglamentación y la disponibilidad presupuestaria.
+Artículo 15.—Aumentos en tasas de interés:
+a) Cuando por razones de tipo personal o por despido de un trabajador en servicio del Magisterio Nacional deje de laborar para el sector educativo teniendo operaciones crediticias activas en JUPEMA, la tasa de interés de estas operaciones se sustituye por la tasa de interés activa promedio del Sistema Financiero para préstamos en moneda nacional determinada por el Banco Central de Costa Rica. Lo anterior, se aplicará siempre y cuando, la tasa activa promedio sea más alta a la del crédito que posea el deudor.
+b) El aumento en la tasa no aplica para los siguientes casos:
+• Para los afiliados que estén a la espera de nombramiento o extensión de este. Se brinda un plazo de seis meses para los trabajadores del Ministerio de Educación Pública, INA y Universidades y tres meses para los trabajadores de los CEPS. En esos casos, la cuota debe ser cancelada por medio de ventanilla o depósito bancario manteniendo la operación al día.
+• Cuando la cuota se le pueda rebajar al fiador o familiar en primer grado de consanguinidad o afinidad que labore para el Sistema Educativo Nacional, mientras se normaliza la situación. Para esto, el deudor debe presentar una nota donde conste la autorización para proceder con el rebajo.
+Es responsabilidad del deudor informar a JUPEMA, en el momento que sea nombrado nuevamente para suspender el rebajo al fiador o familiar directo.
+• Cuando el crédito corresponda a un arreglo de pago.

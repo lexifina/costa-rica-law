@@ -1,5 +1,0 @@
-Artículo 23: Limitaciones de alcance General
-a) No se aceptan como garantías hipotecarias, terrenos que se encuentren en período de convalidación, que estén ubicados en zonas de alto riesgo, los nichos en cementerios, así como bienes ubicados en barrios conflictivos o con deseabilidad media baja o baja, según el criterio del
-perito que realice el estudio de valoración de la propiedad. JUPEMA se reserva el derecho de rechazar cualquier garantía propuesta por el solicitante, en procura de salvaguardar los intereses de la Institución.
-b) Los arreglos de pago que se realicen, deberán ser aprobados por el Departamento de Crédito y Cobro, considerando la capacidad de pago para atender los términos del tipo de arreglo, recomendado por la Unidad de Cobro para cada caso.
-c) No se aceptan como deudores o fiadores, aquellos que tengan operaciones declaradas incobrables, ya sea en JUPEMA o cualquier otra institución, ni aquellos quienes hayan cancelado la deuda por medio del uso del Seguro de Caución.

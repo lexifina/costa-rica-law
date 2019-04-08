@@ -1,26 +1,2 @@
-Artículo 7: Línea de crédito personal para Gastos académicos (CrediEstudio).
-Pueden acceder a esta línea, los trabajadores en servicio, los pensionados (as) y jubilados (as) del Magisterio Nacional, para sufragar cualquier tipo de gasto relacionado con sus estudios, o de quien estime pertinente Estos gastos incluyen el pago de matrículas y materias escolares o universitarias, compra de útiles, uniformes, etc.
-Para ello, deben cumplir los siguientes requisitos:
-1. Cumplir con lo dispuesto en el Artículo 5 del Reglamento de Crédito para determinar la capacidad de pago.
-Presentar documentos probatorios del requerimiento a financiar, como el plan de estudio de la universidad, la factura Proforma o la factura cancelada, del gasto que desea cubrir, en forma parcial o total. Estos documentos no deben tener más de 60 días de emitidos.
-El desembolso del crédito, se realizará a nombre del solicitante contra la documentación probatoria correspondiente.
-Las siguientes son las condiciones de financiamiento para esta línea:
-Monto Máximo: ¢6.000.000
-Plazo Máximo: 6 años
-Tasa de Interés: Variable
-Garantía: Esta línea de crédito puede aprobarse con o sin fiador, según se detalla:
-Pensionados por derecho propio, trabajadores en servicio del MEP, CUC, CUNLIMON, INA y Universidades Estatales con nombramiento en Propiedad, o bien, interino con 48 o más cotizaciones al Régimen, en los últimos 5 años.
-(Así reformado el párrafo anterior en sesión N° 009 del 22 de enero de 2018)
-Hasta | ¢6.000.000.00 | 1 fiador o seguro de caución
-Trabajadores en servicio: MEP, CUC, CUN Limón, INA y Universidades Estatales con nombramiento en Propiedad, o bien, interino con 48 o más cotizaciones al Régimen, en los últimos 5 años.
-Hasta | ¢6.000.000.00 | 1 fiador o seguro de caución
-Trabajadores en servicio: MEP, INA, CUC, CUN Limón y Universidades Estatales con nombramiento Interino, con menos de 48 cotizaciones, en los últimos 5 años.
-Hasta | ¢1.000.000.00 | 1 fiador o Seguro de Caución
-¢1.000.001.00 | ¢2.000.000.00 | 1 fiador
-¢2.000.001.00 | ¢6.000.000.00 | 2 fiadores
-(*)Trabajadores en servicio de Centros Educativos Privados (CEP en Propiedad e Interinos). Además los trabajadores en servicio del MEP, INA, CUC, CUNLIMON y Universidades Estatales con nombramiento Interino con menos de 48 cotizaciones, en los últimos 5 años.
-Hasta | ¢2.000.000,00 | 1 fiador
-¢2.000.001,00 | ¢6.000.000,00 | 2 fiadores
-(*) (Así reformado en sesión N° 009 del 22 de enero de 2018)
-En los montos hasta ¢6.000.000.00 los dos fiadores pueden ser sustituidos por solo uno, siempre que este sea Pensionado o Jubilado del Magisterio Nacional, o bien, un trabajador en servicio del MEP, CUC, CUNLIMON, INA o Universidades Estatales, con nombramiento en propiedad.
-(Así reformado en sesión N° 009 del 22 de enero de 2018)
+Artículo 7º—Aprobación de los créditos: Las solicitudes de crédito son recibidas, analizadas y aprobadas o denegadas por el ejecutivo responsable del análisis crediticio o quien se determine según se indica en el RCC P14-IT-002 Instructivo de Otorgamiento de Créditos del RCC.
+Queda entendido que, por el hecho de recibir la solicitud de crédito, JUPEMA no adquiere compromiso u obligación alguna con el solicitante y que la aprobación de este queda sujeta a juicio exclusivo de la Institución, de conformidad con los parámetros establecidos en esta reglamentación y la disponibilidad presupuestaria.

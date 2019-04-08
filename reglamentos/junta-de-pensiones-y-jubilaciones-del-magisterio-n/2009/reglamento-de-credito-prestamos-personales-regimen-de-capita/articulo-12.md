@@ -1,2 +1,1 @@
-Artículo 12: De los Pagarés
-En los préstamos personales, se procede además como parte del proceso de formalización de la suscripción de la póliza de saldos deudores o pignoración de la póliza según corresponda, a la firma de un pagaré, el cual representa el carácter de título ejecutivo. Este documento debe contener las principales características de la operación crediticia que se está gestionando.
+Artículo 12.—Cobro administrativo y judicial: En caso de morosidad, se inicia el trámite de cobro administrativo y judicial, de conformidad con los términos indicados en el Procedimiento de la Unidad de Cobro, según el P14-PR-013 Cobro de créditos y P14-IT-038 Cobro Judicial e Incobrables RCC y RTR.
