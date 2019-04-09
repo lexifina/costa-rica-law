@@ -14,3 +14,4 @@ Procedimiento ECA-MP-P02-I02 Documentos aplicables en los diferentes procesos de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-06-27 | la propia norma |
+| 2 | 2019-04-09 | Acuerdo 5 (2019-04-09) |
