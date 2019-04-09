@@ -1,4 +1,6 @@
 Artículo 14.—De la revocación. Son causas de revocación del beneficio de servicio de cuido y desarrollo infantil proporcionado por el Tribunal las siguientes:
 1. Cuando el funcionario o funcionaria beneficiado/a haya suministrado información falsa o inexacta para obtener el beneficio.
-2. Por incumplimiento de la normativa interna del centro privado contratado que presta el servicio, para lo cual el establecimiento deberá informarlo a la Unidad de Género.
-3. Porque no haga uso del servicio de manera regular sin justificación alguna.
+2. Cuando la persona funcionaria beneficiada no se involucre activamente en el proceso de educación integral de su hija o hijo, lo cual implica: asistir periódicamente a las reuniones que convoca el Centro Educativo y seguir las recomendaciones del Centro Educativo referentes al bienestar de la persona menor de edad.
+3. Por incumplimiento de la normativa interna del centro privado contratado que presta el servicio, para lo cual el establecimiento deberá informarlo a la Unidad de Género.
+4. No hacer uso del servicio de manera regular, en el sentido de que, las ausencias injustificadas de la persona menor de edad al centro educativo alcancen un porcentaje igual o mayor al 5% mensual del total de días lectivos. Para el cálculo de este porcentaje, se tomará como referencia el número total de días lectivos, ausencias y llegadas tardías injustificadas por mes y se observará lo dispuesto en el artículo siguiente.
+(Así reformado por el artículo 1° del decreto del Tribunal Supremo de Elecciones, N° 9 del 9 de abril de 2019)
