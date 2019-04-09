@@ -14,3 +14,4 @@ Reglamento de junta directiva de RACSA
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-02-01 | la propia norma |
+| 2 | 2019-04-09 | Reglamento 2217 (2019-04-09) |
