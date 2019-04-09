@@ -14,3 +14,4 @@ Reforma ECA-MC-C10 Criterios para la evaluación de la norma INTE/ISO 14065 (ver
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-08-23 | la propia norma |
+| 2 | 2019-04-09 | Acuerdo 5 (2019-04-09) |
