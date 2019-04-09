@@ -1,0 +1,1 @@
+Articulo 24.- Facultad de los funcionarios para emitir órdenes. Los funcionarios municipales están facultados por el ejercicio de su cargo para emitir órdenes a los administrados y velar por su fiel cumplimiento. Además, están facultados para hacer cumplir las órdenes que emanan de otros funcionarios municipales y que se les encarga de ejecutar.

@@ -1,0 +1,1 @@
+Artículo 2º-Área de influencia geográfica de aplicación. Este Reglamento podrá ser aplicado para todas aquellas actividades que impliquen la realización de obras de construcción, las cuales obligatoriamente requieren licencia municipal de acuerdo al Artículo 74 de la Ley de Construcciones vigente y ubicadas en el cantón de Palmares.

@@ -1,0 +1,1 @@
+Articulo 22.-Facultad para realizar actas de inspección. Los inspectores municipales y los funcionarios del Departamento de Desarrollo Urbano, así como al Alcalde Municipal y a los otros funcionarios que éste designe en resolución motivada, podrán realizar actas de apercibimiento por construir sin permiso y actas de clausura, con relación a las obras que rige este Reglamento.

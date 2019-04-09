@@ -1,0 +1,3 @@
+CAPÍTULO V
+De los inspectores y de los otros funcionarios municipales
+Articulo 21.-Facultad para notificar asuntos de permisos municipales de construcción. Los inspectores municipales y los funcionarios del Departamento de Desarrollo Urbano, así como al Alcalde Municipal, podrán notificar todos los acuerdos, comunicados, apercibimientos por no contar con permiso, las clausuras y resoluciones que sean necesarios para resolver las quejas, denuncias y solicitudes que provengan de los administrados y en relación con los permisos Municipales a los que hace referencia este Reglamento. Para estos efectos los funcionarios aquí señalados, tendrán fe pública en cuanto a lo que consignen en la razón de notificación, de conformidad con el Artículo 370 del Código Procesal Civil.

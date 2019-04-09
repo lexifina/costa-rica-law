@@ -1,0 +1,1 @@
+Artículo 10.-No se consideran ampliaciones, para la aplicación de este Reglamento, las construcciones independientes o aisladas a una obra existente. Tampoco son consideradas ampliaciones, construcciones nuevas independientes o aisladas, que no dependan estructuralmente de una existente, sin importar el costo final.
