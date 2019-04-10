@@ -1,0 +1,4 @@
+Artículo 14. Cantidad máxima de reductores. La cantidad máxima de reductores a instalar según las condiciones del sitio será:
+-En vías frente a cuadras de longitud inferior a los 150 metros y un único sentido de circulación vehicular, un reductor; en vías con doble sentido de circulación, un reductor por sentido.
+-En cuadras de longitud entre los 151 metros y los 300 metros, dos reductores por sentido de circulación. En cuadras de longitud entre los 301 metros y los 500 metros, cuatro reductores por sentido de circulación. MUNICIPALIDAD DE ACOSTA Central telefónica: 2410-0186 /2410-0177 ext. 114 / FAX: ext. 115 Email: alcaldeacosta@gmail.com DESPACHO DEL ALCALDE
+-En secciones continuas de vía cuya longitud sea superior a los 501 metros, se colocarán a lo sumo cuatro reductores por kilómetro de vía y sentido de circulación.

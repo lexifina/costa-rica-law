@@ -1,0 +1,1 @@
+Artículo 7. Construcción de los reductores de velocidad. Para la construcción de reductores de velocidad en vías públicas se deberá contar, previamente, con la autorización extendida por la DGIT o el gobierno local, según sea el caso de la jurisdicción territorial donde se pretenda instalar el reductor.
