@@ -1,0 +1,1 @@
+Artículo 10.- Cualquier obra que se realice deberá cumplir con los lineamientos establecidos en la ley N° 7600 y su Reglamento, y con los lineamientos y especificaciones del presente Reglamento. La Municipalidad podrá suministrar los diseños de obras tales como las aceras, como guía para su construcción.

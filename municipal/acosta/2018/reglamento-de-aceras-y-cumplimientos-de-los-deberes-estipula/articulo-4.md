@@ -1,0 +1,1 @@
+Artículo 4.- La municipalidad de Acosta debe velar de oficio por el cumplimiento de las disposiciones de este Reglamento, iniciando el procedimiento sancionador en aquellos casos en los cuales detecte a un infractor, para lo cual deberá cumplir con la garantía constitucional del debido proceso.

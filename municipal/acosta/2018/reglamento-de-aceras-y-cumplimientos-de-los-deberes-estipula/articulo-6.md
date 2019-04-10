@@ -1,0 +1,1 @@
+Artículo 6.- La municipalidad de Acosta realizará las obras y servicios correspondientes cuando los propietarios y/o poseedores de bienes inmuebles omitan el cumplimiento de los deberes a que hace referencia el artículo 84,85,85 bis Y 85 ter del código Municipal a través de los departamentos correspondientes, por lo cual cobrará la tarifa y multa respectiva.

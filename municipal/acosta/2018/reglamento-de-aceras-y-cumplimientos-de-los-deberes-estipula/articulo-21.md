@@ -1,0 +1,2 @@
+Artículo 21.- Para el cobro de las obras y servicios reguladores en este reglamento, se utilizará la siguiente tabla, la cual será actualizada anualmente y publicada en el diario oficial la Gaceta, con base en el índice de precios de construcciones que publica el Instituto Nacional de Estadística y Censos, con el respectivo recargo en caso de que la propiedad se ubique fuera de la zona urbana:
+[imagen] [imagen] *se deberán actualizar los valores a la realidad del sitio para el año en que entra en vigencia.

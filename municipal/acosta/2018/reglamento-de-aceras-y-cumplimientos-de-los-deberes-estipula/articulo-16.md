@@ -1,0 +1,1 @@
+Artículo 16.- Toda señal u objeto saliente colocado en aceras deberá estar a una altura mínima de 2.50 m. Y no deberá entorpecer el paso del peatón, ni deberá sobrepasar la distancia transversal del ancho del cordón y caño.
