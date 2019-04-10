@@ -17,3 +17,4 @@ Directrices Generales de Política Presupuestaria, Salarial, Empleo, Inversión 
 | 2 | 2018-11-07 | Decreto Ejecutivo 41432 (2018-11-07) |
 | 3 | 2019-04-01 | Decreto Ejecutivo 41652 (2019-04-01) |
 | 4 | 2019-04-01 | Decreto Ejecutivo 41648 (2019-04-01) |
+| 5 | 2019-04-10 | Decreto Ejecutivo 41649 (2019-04-10) |
