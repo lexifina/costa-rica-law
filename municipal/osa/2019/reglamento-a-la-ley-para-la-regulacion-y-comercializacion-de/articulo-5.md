@@ -1,0 +1,3 @@
+Artículo 5- Limitación Cuantitativa. La cantidad total de Licencias clase B otorgadas en el Cantón de Osa, no podrá exceder la cantidad de una por cada trescientos habitantes.
+En la determinación del total de habitantes del Cantón se acudirá al estudio técnico o fuente objetiva verificable que tenga disponible la Municipalidad. La condición de habitante se circunscribirá a las personas físicas del territorio según cada Distrito del Cantón de Osa, según la definición establecida por el artículo 2 del Reglamento del Defensor de los Habitantes Decreto Reglamentario 22266 del 15 de junio de 1993.
+Periódicamente, conforme se constate incrementos o disminuciones en el parámetro de habitantes cantonales, podrá ajustarse la cantidad de licencias clase B.

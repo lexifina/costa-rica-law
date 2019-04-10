@@ -1,0 +1,14 @@
+CAPITULO III
+De las Clases de Licencias.
+Artículo 8- Con base a la nueva Ley de Licencias para la Regularización y Comercialización de Bebidas con Contenido Alcohólico, las Licencias se dividirán en diferentes Clases con base a los siguientes parámetros.
+Licencias Clase A- Se refiere únicamente a las Licencias habilitadas para la comercialización de bebidas con contenido alcohólico en envases cerrados para llevar sin que se puedan consumir dentro del establecimiento, y cuya actividad comercial principal será la venta de bebidas con contenido alcohólico y el horario de comercialización comprende de las 11:00 horas a las 0 horas.
+Licencias Clase B- Aplica únicamente para la venta de bebidas con contenido alcohólico en envases abiertos y/o cerrados cuya venta será la actividad principal y se divide en dos B-1 aplica para bares, cantinas, y tabernas sin actividad bailable y su horario comprende de las 11:00 horas a las 0 horas B-2 Aplica para Salones de Baile, Discotecas, clubes nocturnos y cabarés con actividad bailable y el horario de comercialización de bebidas con contenido alcohólico comprende de las 16:00 horas a las 2:30 horas del día siguiente.
+Licencias Clase C- Aplican para la comercialización de bebidas con contenido Alcohólico al detalle servidas para el consumo junto con alimentos dentro del establecimiento donde la venta de bebidas con contenido alcohólico será la actividad secundaria, el horario de comercialización comprende de las 11:00 horas a las 2:30 horas del día siguiente, siempre y cuando se mantenga la venta de alimentos.
+Licencias Clase D- Aplica Únicamente para la comercialización de bebidas con contenido alcohólico al detalle en envases cerrados para llevar sin que sean consumidos dentro del establecimiento, cuya venta será la actividad comercial secundaria, podrán comercializar las bebidas entre las 8:00 horas a las 0 horas y se dividen en dos D-1 para los Minisúper y D-2 para los Supermercados.
+Licencias Clase E- Se otorgarán por parte de la Municipalidad de Osa a las empresas con actividades de interés turístico declaradas por el Instituto Costarricense de Turismo (ICT) y se clasificarán de la siguiente forma:
+E1a- Empresas con Hospedaje declaradas de interés turístico por el ICT con menos de 15 habitaciones.
+E1b- Empresas con Hospedaje declaradas de interés turístico por el ICT con más de 15 habitaciones.
+E2- Marinas, Atracaderos, declaradas de interés turístico por el ICT.
+E3- Empresas Gastronómicas declaradas de Interés Turístico por el ICT.
+E4-Centros de Diversión nocturna declarados de interés turístico por el ICT.
+E5- Centros con Actividades Temáticas de actividad turística y que cuenten con la aprobación del Concejo Municipal. Estas licencias no tendrán limitación de horario para la comercialización de bebidas con contenido alcohólico.

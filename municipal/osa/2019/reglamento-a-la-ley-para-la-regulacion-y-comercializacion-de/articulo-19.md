@@ -1,0 +1,1 @@
+Artículo 19- Horario. Este Reglamento queda sujeto a los horarios establecidos en la Ley de Regulación y Comercialización de bebidas con Contenido Alcohólico según el tipo de licencia y la actividad comercial que realicen indicados en el artículo 11 de dicha Ley, y el artículo 16 de este Reglamento y debe rotularse en el establecimiento en un lugar visible a los clientes.
