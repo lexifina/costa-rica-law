@@ -14,3 +14,4 @@ Reglamento contra el hostigamiento sexual en el empleo de la Asamblea Legislativ
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-03-09 | la propia norma |
+| 2 | 2019-04-10 | Reglamento 43 (2019-04-10) |

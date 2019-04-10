@@ -1,0 +1,3 @@
+Artículo 31-bis.- Medidas complementarias. Se podrán utilizar como medidas complementarias de las sanciones dispuestas anteriormente, el traslado del denunciado de su departamento actual a otra instancia legislativa así como cualquier otra medida que recomiende la comisión investigadora u ordene la Dirección Ejecutiva o el Directorio Legislativo al respecto, siempre que garanticen los derechos de las partes, guarden proporción y legalidad, y siempre que no afecte el servicio público que se brinda.
+En el caso de la comisión investigadora, la recomendación de la medida complementaria deberá ser parte del informe final que brinde ante la Dirección Ejecutiva o Directorio Legislativo
+(Así adicionado mediante sesión ordinaria N° 043-2019 del 10 de abril del 2019)
