@@ -1,0 +1,1 @@
+Artículo 2º—Definición de tiempo extraordinario. Tiempo extraordinario es aquella jornada que se realiza una vez cumplido el horario establecido en el contrato de trabajo a partir del cual fue nombrado el servidor, de acuerdo con lo que al respecto establece en esta materia el Código de Trabajo vigente.

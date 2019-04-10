@@ -1,0 +1,1 @@
+Artículo 6º—Naturaleza excepcional. El tiempo extraordinario se podrá contemplar exclusivamente en aquellos casos de trabajos eminentemente ocasionales y que no puedan ser ejecutados durante la jornada ordinaria por el personal que disponga para ello.
