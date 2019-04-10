@@ -1,0 +1,1 @@
+Artículo N° 20_ En los casos que la Alcaldía los considere muy complejos, podrá nombrar un Órgano Director del debido proceso, quién deberá actuar apegado a lo que dicta el artículo N° 308 y siguientes de la Ley General de la Administración Pública No. 6227.

@@ -1,0 +1,1 @@
+Artículo No. 24_ El interesado o interesados dispondrá de los recursos administrativos previstos en el ordenamiento, debiendo interponerlos ante la Alcaldía Municipal de Acosta, en los tres días siguientes de la Resolución Administrativa de la Alcaldía Municipal.

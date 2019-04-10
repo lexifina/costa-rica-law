@@ -1,0 +1,1 @@
+Artículo 7°- Inicio del trámite- La Unidad Técnica de Gestión Vial Municipal, verificará el cumplimiento de los requisitos establecidos en los artículos anteriores y procederá con los estudios previos de la vía.

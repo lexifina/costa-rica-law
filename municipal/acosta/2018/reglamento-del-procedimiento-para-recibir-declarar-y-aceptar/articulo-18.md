@@ -1,0 +1,1 @@
+Artículo N°18_ La Unidad Técnica de Gestión Vial Municipal, procede con la elaboración de los estudios previos analizando la información suministrada por el solicitante y la declaración jurada aportada por los tres testigos de intachable conducta.

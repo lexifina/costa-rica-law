@@ -1,0 +1,1 @@
+Artículo 8°_ De los requisitos documentales. A los efectos de la tramitación la Unidad Técnica de Gestión Vial Municipal debe tener entregar al solicitante el listado de los requisitos descritos en los artículos anteriores a presentar por el Administrado o Administrados.

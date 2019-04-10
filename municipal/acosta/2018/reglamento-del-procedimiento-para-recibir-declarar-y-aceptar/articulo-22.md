@@ -1,0 +1,1 @@
+Artículo No. 22_ Una vez estudiados los informes y Resolución Administrativa por la Alcaldía Municipal y entregada por la Unidad Técnica de Gestión Vial Municipal al respecto, dictará el Acto Inicial del caso, procediendo La Alcaldía a la notificación al Infractor o Infractora.

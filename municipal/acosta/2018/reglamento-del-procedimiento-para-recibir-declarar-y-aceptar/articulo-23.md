@@ -1,0 +1,1 @@
+Artículo No. 23_ Una vez dada audiencia al infractor o infractores, la Administración Municipal acordará el Acto Final sobre la reapertura de la vía pública solicitada y lo notificará a los interesados.

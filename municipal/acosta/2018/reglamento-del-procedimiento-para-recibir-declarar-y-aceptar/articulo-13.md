@@ -1,0 +1,1 @@
+Artículo N° 13_ Aceptadas las donaciones de terrenos para constituir una vía como de uso público, ya sean nuevas o para su ampliación por parte del Concejo Municipal de Acosta, facultará por acuerdo al Alcalde o Alcaldesa Municipal para firmar la escritura de donación.

@@ -1,0 +1,1 @@
+Artículo 6°_ El Concejo Municipal, en todos los casos remitirá la solicitud del interesado o interesados a la Unidad Técnica de Gestión Vial Municipal para el estudio y análisis de viabilidad y factibilidad, criterio el cual deberá estar basado en la legislación vigente en materia de vialidad (CR-2010, Ley General de Caminos Públicos, Ley de Aguas, Manuales SIECA, etc).
