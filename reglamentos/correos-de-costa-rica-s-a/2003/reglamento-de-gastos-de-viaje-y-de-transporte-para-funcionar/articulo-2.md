@@ -1,2 +1,2 @@
-Artículo 2°-Concepto. Por viático debe entenderse aquella suma destinada a la atención de gastos de hospedaje, alimentación y otros gastos menores, efectivamente realizados, que Correos de Costa Rica S. A. reconoce a sus servidores cuando estos deban desplazarse en forma transitoria de su centro de trabajo con el fin de cumplir con las obligaciones de su cargo.
-(Así reformado y publicado en La Gaceta N° 50 del 12 de marzo de 2010)
+Artículo 2º—Concepto. Por viático debe entenderse aquella suma destinada a la atención de gastos de hospedaje, alimentación y otros gastos menores, efectivamente realizados, que Correos de Costa Rica S. A. reconoce a sus colaboradores cuando éstos deben desplazarse en forma transitoria de su centro de trabajo con el fin de cumplir con las obligaciones de su cargo.
+(Así reformado mediante publicación en La Gaceta N° 71 del 10 de abril del 2019)

@@ -1,1 +1,2 @@
-Artículo 15.—De la liquidación de adelantos. La liquidación del adelanto para gastos de viaje deberá hacerse detalladamente en el formulario correspondiente. En cuanto al hospedaje será necesaria la presentación de la factura para la justificación de dicho gasto, según lo establecido en el Reglamento de la Contraloría.
+Artículo 15.—De la liquidación de adelantos. La liquidación del adelanto para gastos de viaje deberá hacerse detalladamente en el formulario correspondiente. En cuanto al hospedaje será necesaria la presentación de la factura electrónica para la justificación de dicho gasto, según lo establecido en el Reglamento de la Contraloría.
+(Así reformado mediante publicación en La Gaceta N° 71 del 10 de abril del 2019)

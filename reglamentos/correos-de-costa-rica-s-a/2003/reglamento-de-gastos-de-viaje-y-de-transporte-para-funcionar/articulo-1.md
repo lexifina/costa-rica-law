@@ -9,4 +9,5 @@ VI.—Que dada la naturaleza y particularidad de los servicios postales que brin
 VII.—Que por las razones anteriores, se promulga el presente reglamento.
 CAPÍTULO PRIMERO
 Disposiciones generales
-Artículo 1º—Ámbito de aplicación. El presente Reglamento establece las disposiciones generales a que deberán someterse las erogaciones que, por concepto de gastos de viaje y de transporte (viáticos), deban realizar los trabajadores y funcionarios de Correos de Costa Rica cuando en cumplimiento de sus labores deban desplazarse dentro o fuera del país.
+Artículo 1º—Ámbito de aplicación. El presente Reglamento establece las disposiciones generales a que deberán someterse las erogaciones que, por concepto de gastos de viaje y de transporte (viáticos), deban realizar los colaboradores de Correos de Costa Rica cuando en cumplimiento de sus labores deban desplazarse dentro o fuera del país.
+(Así reformado mediante publicación en La Gaceta N° 71 del 10 de abril del 2019)
