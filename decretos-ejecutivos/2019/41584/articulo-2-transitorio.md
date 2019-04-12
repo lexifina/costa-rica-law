@@ -1,0 +1,2 @@
+Transitorio II.- Para garantizar el cumplimiento de las funciones asignadas en el artículo 3º de este Decreto, la Comisión deberá elaborar un plan de trabajo de las acciones prioritarias por atender; deberá indicar cómo se abordarán las acciones, las instancias competentes para llevar a cabo dichas actuaciones y la fijación de plazos para el cumplimiento de las acciones.
+Este plan deberá generarse en el plazo de un mes a partir de la primera sesión de trabajo de la Comisión.

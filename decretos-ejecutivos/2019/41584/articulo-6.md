@@ -1,0 +1,1 @@
+Artículo 6°.- Sesiones de la Comisión. La Comisión sesionará de manera ordinaria una vez cada mes y de manera extraordinaria cuando sea solicitado formalmente por alguna de las instituciones integrantes, ante la Coordinación de la Comisión y bajo razones fundadas.

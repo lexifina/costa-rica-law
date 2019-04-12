@@ -1,0 +1,1 @@
+Artículo 2º.- Creación. Créase la Comisión lnterinstitucional para la Promoción de la Corresponsabilidad Social en la Crianza de las y los Menores de Edad, encargada de desarrollar y actualizar acciones para promover la crianza corresponsable y equitativa entre la mujer y el hombre en la atención y formación de sus hijas o hijos

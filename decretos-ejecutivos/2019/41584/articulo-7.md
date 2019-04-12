@@ -1,0 +1,1 @@
+Artículo 7°.- De los Recursos. Para el desempeño de sus funciones, la Comisión empleará las capacidades operativas y administrativas existentes, así como los recursos presupuestarios y humanos disponibles en las instituciones que la componen. La labor de los representantes de la Comisión será ad honorem y por lo tanto, no recibirán dietas por su participación.

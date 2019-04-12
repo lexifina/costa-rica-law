@@ -1,0 +1,1 @@
+Artículo 5º.- Coordinación de la Comisión. La Comisión será coordinada por la persona representante de la Presidencia de la República, quien tendrá a su cargo la organización de las sesiones de trabajo y el control de las minutas derivadas de dichas sesiones.

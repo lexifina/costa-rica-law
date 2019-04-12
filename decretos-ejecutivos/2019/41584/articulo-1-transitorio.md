@@ -1,0 +1,1 @@
+Transitorio I- Con la finalidad de atender de forma eficiente la temática resguarda por este Decreto, la primera sesión de trabajo la Comisión se realizará dentro del plazo máximo de un mes a partir de la firma del presente Decreto. La Coordinación de la Comisión deberá realizar la convocatoria correspondiente.
