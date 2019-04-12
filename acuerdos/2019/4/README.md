@@ -13,3 +13,4 @@ Lineamientos para la prestación del servicio en la modalidad de apertura efecti
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-03-13 | la propia norma |
+| 2 | 2019-04-12 | Acuerdo 5 (2019-04-12) |

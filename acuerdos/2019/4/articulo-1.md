@@ -187,7 +187,8 @@ v Juzgado de Familia, Penal Juvenil y Violencia Domestica de Cañas
 v Juzgado de Familia y Violencia Doméstica del Segundo Circuito Judicial de Guanacaste
 v Juzgado Familia, Penal Juvenil y Violencia Doméstica de Santa Cruz
 v Juzgado de Violencia Doméstica de Puntarenas
-v Juzgado Civil y Trabajo de Quepos
+v Juzgado de Familia, Penal Juvenil y Violencia Doméstica
+(Así reformado el punto anterior mediante sesión N° 33-19 del 10 de abril del 2019, publicada en el Boletín Judicial N° 99 del 29 de mayo del 2019 mediante Aviso N° 05-019 del 12 de abril del 2019)
 v Juzgado de Violencia Doméstica del Primer Circuito Judicial de la Zona Atlántica
 v Juzgado de Violencia Doméstica del Segundo Circuito Judicial de la Zona Atlántica
 Asuntos que deberán atender durante la apertura efectiva: Penal Juvenil
@@ -251,6 +252,7 @@ v Juzgado Contravencional de Matina (*)
 v Juzgado Contravencional de Bribrí (*)
 v Juzgado Contravencional de Guácimo (*)
 v Juzgado de Pensiones y Violencia Domestica de Siquirres (Plataforma Integrada de Servicios de Atención a la Víctima (PISAV), Sede Siquirres.)
+(Nota de Sinalevi: Mediante sesión N° 33-19 del 10 de abril del 2019, publicada en el Boletín judicial N° 99 del 29 de mayo del 2019 mediante aviso N° 05-2019 del 12 de abril del 2019 se reforma el punto anterior , al no ser clara la reforma se transcribe a continuación: “ El punto 5 del citado aviso debe leerse correctamente Juzgado Contravencional de Parrita, quien tiene el conocimiento de las materias de violencia doméstica y pensiones alimentarias de Parrita.”)
 NOTA: (*) Si bien estos despachos conocen diversas materias en primera instancia, solo atenderán los asuntos generados por las materias de Violencia Doméstica y Pensiones Alimentarias, conforme lo dispuesto por el Consejo Superior en sesión 28-09, artículo LXI; lo anterior sin detrimento de lo dispuesto en la Circular 100-08 de que cuando las circunstancias lo permitan y la apertura del despacho judicial sea efectiva, aprovechen ese tiempo para tramitar tanto los asuntos nuevos como los ya entablados, por cuanto eso contribuye a la disminución del retraso judicial y a brindar un mejor servicio a las personas usuarias.
 Asuntos que deberá atender durante la apertura efectiva: Violencia Doméstica
 v Medidas de protección (para adultos, niños y adolescentes).
@@ -411,6 +413,8 @@ v Defensa Pública de Bribrí
 • Plataforma Integrada de Servicios de Atención a la Víctima, Defensa Pública, Sede La Unión.
 • Plataforma Integrada de Servicios de Atención a la Víctima, Defensa Pública, Sede San Joaquín de Flores.
 • Plataforma Integrada de Servicios de Atención a la Víctima, Defensa Pública, Sede Siquirres.
+v Defensa Pública de Siquirres
+(Así adicionado el punto anterior mediante sesión N° 33-19 del 10 de abril del 2019, publicada en el Boletín judicial N° 99 del 29 de mayo del 2019, mediante aviso N° 05-2019 del 12 de abril del 2019)
 5.4.- Otras consideraciones
 5.4.1. Materia de Familia: Ante consultas realizadas a esta Dirección, es importante mencionar lo consignado en el informe 2126-PLA-2015 del 16 de diciembre de 2015, donde se indicó que, durante el periodo de apertura efectiva los Juzgados de Familia no deben laborar.
 Aunado a lo anterior, se informó mediante oficio 1224-PLA-2016, que los Juzgados de Pensiones Alimentarias, en el periodo de cierre colectivo recibirá los siguientes asuntos, competentes a los Juzgados de Familia con el fin de actuar como Ministerio de Ley:
