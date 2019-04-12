@@ -1,0 +1,1 @@
+Transitorio I.- Para la implementación del presente Decreto en el año 2019, el factor de uso contemplado en el artículo 3 inciso 3), iniciará en la cifra de 2% y será fijado gradualmente por el INCOPESCA cada año, de acuerdo con las consideraciones técnicas, científicas y económicas de su competencia.

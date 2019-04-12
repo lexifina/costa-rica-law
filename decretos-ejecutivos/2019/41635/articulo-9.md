@@ -1,0 +1,1 @@
+Artículo 9°.-Acercamiento con instituciones académicas. El INCOPESCA propiciará el acercamiento con las instituciones académicas mencionadas en el artículo 51 de la Ley de Pesca y Acuicultura, con la finalidad de asegurar el cumplimiento de lo establecido en dicho artículo.

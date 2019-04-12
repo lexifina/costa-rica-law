@@ -1,0 +1,1 @@
+Transitorio II.- En el plazo de 3 meses contados a partir de la entrada en vigencia de este Decreto, el INCOPESCA deberá el emitir el respectivo reglamento que regulará el proceso de subasta pública de licencias de atún con red de cerco, según lo dispone el artículo 6° del presente Decreto.

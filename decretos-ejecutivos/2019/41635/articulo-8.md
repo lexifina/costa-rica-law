@@ -1,0 +1,1 @@
+Artículo 8°.-Limitación en el número de licencias por otorgar. El INCOPESCA estará facultado para conceder, únicamente, la cantidad anual de licencias que refleje la puesta en práctica de los elementos establecidos en el artículo 2° de este Decreto, según la disponibilidad de biomasa, incluyendo en esa cantidad la previsión de las licencias de prórroga.

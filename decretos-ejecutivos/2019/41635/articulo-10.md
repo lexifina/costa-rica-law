@@ -1,0 +1,1 @@
+Artículo 10°. - Derogatoria. Deróguense el párrafo primero del artículo 6, así como la frase “La recaudación la efectuará el Instituto Costarricense de Pesca y Acuicultura simultáneamente con la recaudación de los cánones definidos en el artículo 6 de este Decreto (…)” del artículo 6 bis del Decreto Ejecutivo número 23943-MOPT-MAG del 5° de enero de 1995.
