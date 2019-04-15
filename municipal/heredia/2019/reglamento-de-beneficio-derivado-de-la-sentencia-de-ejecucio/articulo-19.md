@@ -1,0 +1,1 @@
+Artículo 19.—Del monto a reconocer: Los montos a reconocer por dicho beneficio corresponderán a lo estipulado por el numeral 34 de la Convención Colectiva, que fuera estipulado en sentencia del Juzgado Segundo Civil y de Trabajo de Heredia, de las 16 horas 20 minutos del 10 de mayo de 1993, en la suma de ¢3500 (tres mil quinientos colones).

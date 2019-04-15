@@ -1,0 +1,9 @@
+CAPÍTULO IV
+Sobre el beneficio de becas universitarias
+a hijos de trabajadores
+Artículo 11.—Del ámbito de aplicación: Todo trabajador municipal que entre en los supuestos del artículo 1 y haya mantenido a sus hijos cursando estudios universitarios hasta concluirlos en el período comprendido en el artículo 2, incisos a) y b) podrá solicitar el pago retroactivo de un subsidio limitado por concepto de beca de estudios universitarios. La distribución de estos montos se hará de acuerdo al artículo 71 del Código Municipal y 35 de la Convención Colectiva, mediante una comisión conformada por dos miembros nombrados por el Alcalde y dos miembros de las representaciones sindicales. Para acceder al beneficio, será necesario que el trabajador, extrabajador o hijo de éste en caso de que al momento de hacer su solicitud haya alcanzado la mayoría de edad acredite que el presunto beneficiario cumple con los siguientes requisitos:
+a) Demostrar haberse encontrado en una situación de escasos recursos o desventaja social en el periodo comprendido en el artículo 2 de este Reglamento, lo cual se determinará de acuerdo a los criterios técnicos correspondientes de conformidad con el Reglamento existente de becas en la Municipalidad de Heredia, así como las consideraciones especiales que incluya este Reglamento, prevaleciendo la presente norma especial.
+b) Demostrar que los hijos de los trabajadores o extrabajadores contaban con capacidad probada para estudiar.
+c) Haber concluido una carrera universitaria (Diplomado, Bachillerato o Licenciatura) en el período comprendido por el artículo 2 del presente Reglamento.
+d) Demostrar un rendimiento académico mayor a 80% durante toda la carrera.
+Una vez verificados los requisitos anteriores, el monto señalado por el numeral 35 de la Convención Colectiva será distribuidos equitativamente entre todos los hijos de trabajadores de escasos recursos que cumplan los requisitos estipulados.

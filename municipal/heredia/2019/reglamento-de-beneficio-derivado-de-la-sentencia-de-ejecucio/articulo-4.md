@@ -1,0 +1,1 @@
+Artículo 4º—De la Competencia: Corresponde al despacho del Alcalde, de acuerdo a lo estipulado en el artículo 34 de la Convención Colectiva de 1982, verificar los requisitos y documentos necesarios para conceder cualquier beneficio, excepto el referente a útiles escolares para hijos de trabajadores que corresponde a una Comisión que deberá crearse para ese fin.

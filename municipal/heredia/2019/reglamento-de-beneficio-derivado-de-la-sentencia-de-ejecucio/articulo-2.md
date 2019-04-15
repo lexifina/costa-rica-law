@@ -1,0 +1,3 @@
+Artículo 2º—De las situaciones cubiertas por el presente Reglamento: Podrán acceder a los beneficios estipulados en el presente Reglamento los trabajadores que acrediten los supuestos de hecho contemplados en el artículo 34 de la Convención Colectiva, siempre que los hechos hayan tenido lugar dentro del período comprendido entre las fechas estipuladas a continuación:
+a) Con posterioridad al 10 de julio de 1998.
+b) Con anterioridad al 30 de mayo de 2008. Solo los hechos que hayan tenido lugar entre la fecha estipulada en el inciso a) y la fecha estipulada en el inciso b) podrán reconocerse retroactivamente por parte de la Municipalidad, para lo cual se requerirá acreditar suficiente prueba documental de la ocurrencia de esos hechos.

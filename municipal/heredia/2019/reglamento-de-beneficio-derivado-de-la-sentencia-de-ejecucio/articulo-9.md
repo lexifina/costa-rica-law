@@ -1,0 +1,1 @@
+Artículo 9º—Del monto a reconocer: Los montos a reconocer por dicho beneficio corresponderán a lo estipulado por el numeral 34 de la Convención Colectiva, que se definieron por la norma en doce mil colones anuales, por lo que el total a repartir corresponde a ciento treinta y dos mil colones, contabilizando desde el año 1998 hasta el año 2008.
