@@ -206,7 +206,7 @@ o) Los siguientes artículos para higiene, limpieza personal y para el cuidado d
 i. Bombillas de filamento
 ii. Carbolina
 iii. Cepillo de dientes
-iv. Copa menstrual
+iv. (Derogado este subinciso por el artículo 1° del decreto ejecutivo N° 41639 del 27 de marzo del 2019)
 v. Escoba
 vi. Fósforos
 vii. Hilo dental
