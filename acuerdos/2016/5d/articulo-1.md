@@ -4,19 +4,20 @@ El Ente Costarricense de Acreditación (ECA), da a conocer las publicaciones del
 Procedimiento | Versión actual | Versión publicada | Fecha de emisión | Fecha de entrada en vigencia en el sistema de gestión del ECA
 ECA-MC-P07 Quejas, sugerencias y observaciones | 05 | 06 | A partir de su publicación en el diario oficial La Gaceta. | Un mes para la aplicación de este procedimiento a partir de su publicación en el diario oficial La Gaceta.
 Los documentos descritos se encuentran a disposición de los interesados en nuestra página electrónica www.eca.or.cr/ http://www. eca.or.cr/docs.php; así mismo puede solicitar su envío de manera electrónica o solicitar gratuitamente una copia no contralada en la Gestoría de Calidad y en las oficinas centrales del ECA ubicadas en Pavas, Rohrmoser; 150 metros al este, del Centro Comercial Plaza Mayor, contiguo a Prisma Dental, de lunes a viernes, de las 8:00 a las 16:00 horas.
-San José, 18 de abril del 2016.—
+San José, 18 de abril del 2016.-
 (Nota de Sinalevi: El presente procedimiento se extrajo del sitio web del Ente Costarricense de Acreditación, por lo que se transcribe a continuación:)
+(Nota de Sinalevi. El presente procedimiento fue reformado parcialmente y publicado íntegramente mediante publicación en La Gaceta N° 86 del 10 de mayo del 2019, donde se actualiza la versión 06 existente y se publica la versión 07 que se transcribe a continuación:)
 [imagen]
 TABLA DE CONTENIDO
-1. OBJETIVO ............................................................................................................................... 1
-2. ALCANCE ................................................................................................................................ 1
-3. DEFINICIONES ......................................................................................................................... 1
-4. QUEJAS ................................................................................................................................... 2
-5 SUGERENCIAS ........................................................................................................................ 3
-6 OBSERVACIONES ................................................................................................................... 4
-7 REGISTROS ............................................................................................................................. 4
-8 IDENTIFICACIÓN DE CAMBIOS .............................................................................................. 5
-9 TRANSITORIO .......................................................................................................................... 5
+1. OBJETIVO ................................................................................................................................1
+2. ALCANCE .................................................................................................................................1
+3. DEFINICIONES.........................................................................................................................1
+4. QUEJAS....................................................................................................................................2
+5 SUGERENCIAS ........................................................................................................................3
+6 OBSERVACIONES ...................................................................................................................4
+7 REGISTROS.............................................................................................................................4
+8 IDENTIFICACIÓN DE CAMBIOS ..............................................................................................5
+9 TRANSITORIO..........................................................................................................................5
 1. OBJETIVO
 Establecer los lineamientos para la atención de las quejas, sugerencias u observaciones presentadas por los servicios de evaluación y acreditación; y los servicios de capacitación ofrecidos por el ECA, así como por los servicios de los OEC acreditados por el ECA.
 2. ALCANCE
@@ -40,15 +41,17 @@ b. Se puede tomar en cuenta los puntos de vista del área afectada, sin que esto
 c. Determinar si es necesario la apertura de un plan de acciones correctivas, siguiendo el procedimiento ECA-MC-P04 Gestión de no conformidades, acciones correctivas y preventivas.
 d. Notificar al quejoso las acciones tomadas y la resolución de la queja, en todos los casos que se considere que no es válida, la respuesta debe llevar la fundamentación respectiva.
 e. La Gestoría de Calidad debe dar seguimiento a las acciones tomadas y evaluar su eficacia.
+4.6 Para el caso de quejas relacionadas a esquemas de acreditación pertenecientes a dueños de esquema públicos o privados como, por ejemplo, GFSI, Sistema Fitosanitario de Estado,
+MINAE, entre otros; se debe comunicar la gestión de las quejas. Para el caso de GFSI no debería exceder 20 días hábiles.
 Nota1: El plazo establecido puede extenderse en caso si la investigación amerita consultar con otras organizaciones, reguladores o dueños de esquemas.
-Nota 2: Para el caso de quejas relacionadas a un esquema de acreditación perteneciente a GFSI, la gestión de las quejas no debería exceder 20 días hábiles.
-4.6 Quejas que se refieran a las actividades de un OEC acreditado o en proceso de acreditación:
+4.7 Quejas que se refieran a las actividades de un OEC acreditado o en proceso de acreditación:
 a. La Gestoría de Calidad debe trasladarla en los siguientes 3 días hábiles, a la Secretaría de Acreditación respectiva.
-b. La Secretaría de Acreditación debe notificar al OEC la queja e indicarle que dispone de 10 días hábiles para ser atendida conforme a lo establecido en los procedimientos internos de quejas del OEC.
+b. La Secretaría de Acreditación debe notificar al OEC la queja e indicarle que dispone de
+10 días hábiles para ser atendida conforme a lo establecido en los procedimientos internos de quejas del OEC.
 c. El OEC debe informar un plan de acciones correctivas propuesto junto con el responsable y periodo de implementación, en los casos que aplique o la justificación y fundamentación técnica que respalden que la queja no es válida.
 d. En caso de que la queja no sea resuelta por el OEC, debe ser remitida al equipo evaluador para que en específico revise la queja presentada y su efecto en el quehacer del OEC.
 e. El seguimiento de las acciones propuestas para atender las quejas se realizará en las evaluaciones de seguimiento o reevaluación, o de manera extraordinaria por parte de la Secretaría de Acreditación.
-4.7 Toda la información generada durante el análisis de las quejas y las conclusiones, son resguardadas de forma confidencial por la Gestoría de Calidad y en estos mismos términos es comunicada al interesado o afectado.
+4.8 Toda la información generada durante el análisis de las quejas y las conclusiones, son resguardadas de forma confidencial por la Gestoría de Calidad y en estos mismos términos es comunicada al interesado o afectado.
 5 SUGERENCIAS
 5.1 Las sugerencias pueden presentarse de forma verbal o escrita por el interesado ante el ECA, en días y horas hábiles en las instalaciones del ECA.
 5.2 El personal de ECA que reciba la sugerencia debe trasladarla a más tardar el próximo día hábil a la Gestoría de Calidad.
@@ -73,8 +76,10 @@ Nota. Este número debe ser utilizado en toda comunicación relacionada.
 7.2 Acceso a los registros.
 7.2.1 Los registros de quejas o sugerencias deben estar resguardados por Gestoría de Calidad y están disponibles a la persona que interpone la queja o al personal autorizado por la Gerencia.
 7.2.2 Cuando una autoridad legal requiera información sobre algún aspecto tratado en las quejas, el ECA debe comunicar al interesado o afectado, que esta información está siendo remitida a una autoridad, en cumplimiento con disposiciones legales.
-8 IDENTIFICACIÓN DE CAMBIOS Motivo: | Modificación del procedimiento
-Refiérase a la solicitud de elaboración o modificación del documento número 2016-086
-Observaciones: Cambios subrayados en el documento, se modifican los apartados: 4.3, 4.4, 4,5, 4,6 c).
+8 IDENTIFICACIÓN DE CAMBIOS
+Refiérase a la solicitud de elaboración o modificación del documento número 2019-047
+Observaciones:
+Se subrayan los cambios, se modifica el punto 4.6.
 9 TRANSITORIO
-Fecha de entrada en vigencia un mes posterior a la a su publicación en el Diario Oficial La Gaceta, #98 del 23.05.2016, es decir, 23.06.2016.
+Fecha de entrada en vigencia un mes posterior a la a su publicación en el Diario Oficial La
+Gaceta, # 86 del 10.05.2019, es decir, 10.06.2019.

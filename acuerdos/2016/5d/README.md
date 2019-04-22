@@ -14,3 +14,4 @@ Reforma Procedimiento ECA-MC-P07 Quejas, Sugerencias y Observaciones (Versión 0
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-06-23 | la propia norma |
+| 2 | 2019-04-22 | Acuerdo 6 (2019-04-22) |
