@@ -14,3 +14,4 @@ Reglamento de compras y contrataciones de la Empresa de Servicios Públicos de H
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-10-31 | la propia norma |
+| 2 | 2019-04-22 | Reglamento 3923 (2019-04-22) |
