@@ -1,0 +1,3 @@
+ARTÍCULO 9°.- Informes de seguimiento: La ADI elaborará anualmente un informe para la Dirección de OPES sobre las quejas recibidas, estado de su atención y del seguimiento a la implementación de las acciones correctivas y preventivas contenidas en su plan, procurando el mejoramiento de la eficiencia y eficacia del quehacer institucional.
+A solicitud del interesado, se le informará el estado en que se encuentra el expediente correspondiente a su queja, a petición de su parte, y se le podrá hacer entrega de una copia digital del expediente.
+(Aprobado por el CONARE en sesión No. 5-2019, celebrada el 12 de febrero de 2019)

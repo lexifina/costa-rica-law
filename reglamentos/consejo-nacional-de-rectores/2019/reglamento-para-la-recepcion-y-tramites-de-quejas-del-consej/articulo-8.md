@@ -1,0 +1,1 @@
+ARTÍCULO 8°.- Plazo para la atención y resolución de las quejas: Salvo aquellos casos cuya complejidad exijan un plazo mayor, las quejas deberán ser tramitadas y resueltas dentro de los dos meses siguientes a su interposición. A solicitud del quejoso, se le informará el estado en que se encuentra su gestión y se le entregará copia digital del expediente respectivo.
