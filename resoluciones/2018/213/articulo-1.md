@@ -4,7 +4,8 @@ ESCAZÚ, A LAS ONCE HORAS Y TREINTA MINUTOS DEL CUATRO DE DICIEMBRE
 DE DOS MIL DIECIOCHO
 METODOLOGÍA TARIFARIA PARA LA PROTECCIÓN DEL RECURSO HÍDRICO
 (MTPRH).
-EXPEDIENTE OT-193-2018
+EXPEDIENTE OT-193-2015
+(Así reformado el número de expediente anterior mediante resolución N° RE-0085-JD-2019 del 23 de abril del 2019)
 RESULTANDO:
 I. Que los servicios de agua potable son vitales para el bienestar general de la sociedad y estratégicos para el desarrollo nacional, por lo que resulta necesario, establecer un instrumento tarifario que permita a los operadores del servicio de acueducto generar ingresos para realizar proyectos orientados a la protección del recurso hídrico, como una extensión natural del servicio de acueducto.
 II. Que el artículo 5 de la Ley Nº 7593, establece que en los servicios públicos definidos en ese artículo, la Autoridad Reguladora fijará precios y tarifas. Entre esos servicios están los de acueducto y alcantarillado e hidrantes.
@@ -135,7 +136,6 @@ Para presentar la información requerida por la Aresep, anteriormente indicada, 
 Esta metodología define el ajuste porcentual requerido para compensar el cambio en los costos y en la demanda, y por tanto, en los costos totales e inversiones para el periodo en que estará vigente la tarifa. En ese sentido, la metodología no contempla el procedimiento de cálculo de la estructura tarifaria. Se determina el ajuste porcentual requerido que deberá posteriormente distribuirse de conformidad con lo que técnicamente determine la IA entre las diferentes tarifas y bloques de acuerdo con la estructura tarifaria. En la aplicación por primera vez no se calcula un ajuste porcentual sino una tarifa siguiendo lo establecido en el apartado “VI aplicación por primera vez”.
 1. Costos y gastos operativos y de mantenimiento totales (CTet)
 Son los costos y gastos operativos para ejecutar proyectos de protección del recurso hídrico de la empresa “e” para el periodo “t”. El cálculo de los costos y gastos operativos totales incluye los siguientes componentes que se detallan en la siguiente fórmula:
-[imagen]
 Donde:
 CTet = Costos y gastos totales operativos y de mantenimiento en que incurran los operadores para ejecutar proyectos de protección del recurso hídrico de la empresa “e”, para el período “t”. Estos costos y gastos se componen de gastos por remuneraciones, costos por servicios, costos por depreciación, costos por materiales y suministros y otros gastos para ejecutar proyectos de protección del recurso hídrico; que contribuyan a mejorar la sostenibilidad, continuidad y calidad del servicio de acueducto.
 GREM et = Gastos por remuneraciones en que incurran los operadores para ejecutar proyectos de protección del recurso hídrico de la empresa “e”, para el período “t”. Corresponde a los gastos en que incurre la empresa por concepto de sueldos y salarios, y contribuciones sociales necesarias para el adecuado desarrollo de la actividad. Este gasto se debe presupuestar al plantear el proyecto, debe ser específico e incluir montos y desgloses por tipos de trabajos requeridos en el proyecto, así como el plazo en que los mismos serán necesarios. Este gasto se debe estimar utilizando la información de la contabilidad regulatoria vigente, los formularios y plantillas regulatorias asociadas, y los lineamientos regulatorios respectivos establecidos por la
@@ -155,7 +155,6 @@ El operador debe llevar registros contables individualizados y emitir reportes e
 2. Rédito para el desarrollo (RDet)
 El rédito para el desarrollo se calcula mediante la suma de los costos necesarios para realizar la inversión con recursos propios y los costos para atender las obligaciones del servicio de la deuda. Estos recursos se asignan con el objetivo de brindar al operador recursos que permitan garantizar el adecuado desarrollo de la actividad.
 El rédito para el desarrollo se calcula de la siguiente manera:
-[imagen]
 Donde:
 RDet = Rédito para el desarrollo para ejecutar proyectos de protección del recurso hídrico de la empresa “e”, para el período t. Este rédito se compone de la suma de las inversiones estimadas con recursos propios y el servicio de la deuda.
 CINVet = Desembolso estimado de inversiones con recursos propios para ejecutar proyectos de protección del recurso hídrico de la empresa “e” para el período “t”. El costo de los proyectos debe ser explícito y justificado por el prestador del servicio, con base en criterios técnicos y financieros razonables de acuerdo a las reglas univocas de la ciencia o de la técnica.
@@ -165,7 +164,6 @@ e = Empresa prestadora de servicios regulados por ARESEP.
 t = El periodo “t” toma valores para t=1, 2, 3, 4 y 5 correspondiente al periodo de tiempo para el cual se calcula el ajuste tarifario, inicia con el año calendario “t=1”. Típicamente corresponde a un periodo de 5 años.
 2.1 Servicio de la Deuda
 El servicio de la deuda se calcula de la siguiente manera:
-[imagen]
 Donde:
 SDet = Costo de ejecutar el servicio de la deuda para ejecutar los proyectos de protección del recurso hídrico de la empresa “e” para el período “t”. Este costo se compone de la suma de la amortización del principal más los gastos financieros menos los ingresos financieros.
 APet = Amortización del principal de las deudas, requerido para cumplir los contratos de financiamiento de los proyectos de protección del recurso hídrico de la empresa “e” para el período “t”. Este costo se debe estimar utilizando la contabilidad regulatoria, los formularios y plantillas regulatorias asociadas, y los lineamientos regulatorios respectivos establecidos por la ARESEP. En el caso de las ASADAS se aplicará la Contabilidad Regulatoria o el manual de cuentas respectivo, según lo determine la ARESEP.
@@ -180,29 +178,26 @@ Una vez aplicado por primera vez el modelo descrito en la presente metodología,
 De esta forma, en caso de presentarse diferencias entre lo estimado y lo contabilizado; el monto de la diferencia de la liquidación deberá sumarse al monto de ingresos del periodo “t” según se obtiene de la Ecuación 4 y manteniendo su signo, es decir, un monto positivo sumará un mayor ingreso en “t”, mientras que un monto negativo implica reducir el ingreso
 en “t” para compensar por liquidación.
 Asimismo, para estos efectos, los datos contabilizados, deberán proceder de la contabilidad regulatoria, los formularios y plantillas regulatorias asociadas, y los lineamientos regulatorios respectivos establecidos por la ARESEP. Estos datos serán revisados, analizados y depurados por parte de la Autoridad Reguladora, y podrá establecer un valor monetario diferente al reportado por el operador, con el propósito de determinar su reconocimiento. Se deberá cumplir con los objetivos de la Ley 7593 y sus reformas.
-[imagen]
 Donde:
-__ [imagen] __ = Liquidación del periodo “t-1” aplicada en el periodo “t”. Se refiere a la diferencia entre los ingresos totales ajustado y los costos totales ajustado del periodo “t-1”.
+____ = Liquidación del periodo “t-1” aplicada en el periodo “t”. Se refiere a la diferencia entre los ingresos totales ajustado y los costos totales ajustado del periodo “t-1”.
 CTAet-1 = Costos y gastos totales ajustados. Se refiere al ajuste por diferencial entre costos reales contabilizados y costos estimados para la empresa “e” en el periodo “t-1”, correspondiente a proyectos de protección del recurso hídrico.
-____ [imagen] ___ = Ingresos totales ajustados. Se refiere al ajuste por diferencial entre ingresos reales contabilizados y los ingresos estimados para la empresa “e” en el periodo “t-1”, correspondiente a proyectos de protección del recurso hídrico.
+_______ = Ingresos totales ajustados. Se refiere al ajuste por diferencial entre ingresos reales contabilizados y los ingresos estimados para la empresa “e” en el periodo “t-1”, correspondiente a proyectos de protección del recurso hídrico.
 a. Liquidación de costos
 Los rubros de costos y gastos reales que serán analizados en dicho proceso deben coincidir con los incluidos en el estudio tarifario del periodo inmediato anterior (t-1). Para realizar la liquidación en los costos y gastos y determinar el ajuste correspondiente a aplicar en el periodo t, se debe obtener el diferencial entre los costos y gastos estimados, y, los costos y gastos reales contabilizados para ejecutar los proyectos de protección del recurso hídrico, como se detalla a continuación:
-[imagen]
 Donde:
 CTAet-1 = Costos y gastos totales ajustados. Se refiere al ajuste por diferencial entre costos reales contabilizados y costos estimados para la empresa “e” en el periodo “t-1”, correspondiente a proyectos de protección del recurso hídrico.
-!_ [imagen] ___ = Costos y gastos totales reales contabilizados de la empresa “e” para ejecutar los proyectos de protección del recurso hídrico del periodo “t-1”. Son los costos y gastos reales por concepto operación, mantenimiento, administración y otros gastos en que incurran los operadores para proteger el recurso hídrico en el periodo “t-1”. Este dato se debe tomar de la contabilidad regulatoria, los formularios y plantillas regulatorias asociadas, y los lineamientos regulatorios respectivos establecidos por la ARESEP. En el caso de las ASADAS se aplicará la Contabilidad Regulatoria o el manual de cuentas respectivo, según lo determine la ARESEP.
-"_ [imagen] ___ = Costos y gastos totales estimados de la empresa “e” para ejecutar los proyectos de protección del recurso hídrico del periodo “t-1”. Son los costos y gastos estimados por concepto operación, mantenimiento, administración y otros gastos en que incurran los operadores para proteger el recurso hídrico en el periodo “t-1”. Este dato se debe tomar de la fijación tarifaria efectuada por la ARESEP para el periodo “t-1”.
+!_ ___ = Costos y gastos totales reales contabilizados de la empresa “e” para ejecutar los proyectos de protección del recurso hídrico del periodo “t-1”. Son los costos y gastos reales por concepto operación, mantenimiento, administración y otros gastos en que incurran los operadores para proteger el recurso hídrico en el periodo “t-1”. Este dato se debe tomar de la contabilidad regulatoria, los formularios y plantillas regulatorias asociadas, y los lineamientos regulatorios respectivos establecidos por la ARESEP. En el caso de las ASADAS se aplicará la Contabilidad Regulatoria o el manual de cuentas respectivo, según lo determine la ARESEP.
+"____ = Costos y gastos totales estimados de la empresa “e” para ejecutar los proyectos de protección del recurso hídrico del periodo “t-1”. Son los costos y gastos estimados por concepto operación, mantenimiento, administración y otros gastos en que incurran los operadores para proteger el recurso hídrico en el periodo “t-1”. Este dato se debe tomar de la fijación tarifaria efectuada por la ARESEP para el periodo “t-1”.
 e = Empresa prestadora de servicios regulados por ARESEP.
 t-1 = Período inmediatamente anterior a la fecha de vigencia de la fijación tarifaria “t-1”.
 En el caso de aquellos costos y gastos que no fueron incorporados por la empresa regulada en su pretensión tarifaria para el periodo “t-1” o fueron excluidos por el Ente Regulador como resultado de su análisis regulatorio, pero que fueron realizados y ejecutados por la empresa en el ejercicio de sus funciones, esta deberá de aportar toda la información técnica requerida para validar la pertinencia del costo y su vínculo a la protección del recurso hídrico. La Autoridad Reguladora valorará y determinará los rubros y montos a reconocer en el ajuste.
 Cuando existan disposiciones especiales que conlleven al retraso en la ejecución de inversiones y que los recursos económicos correspondientes a estas inversiones hayan sido reconocidas en tarifas, el operador será el encargado de presentar la documentación correspondiente que le permita justificar ante la Aresep la no ejecución de esas inversiones para que no se incluya dentro de la liquidación de costos como se indica en la ecuación 5.
 b. Liquidación de ingresos
 El ajuste total de ingresos corresponde a la diferencia entre los ingresos reales contabilizados y los ingresos estimados incluidos en el cálculo de la tarifa de la empresa “e”, para el periodo “t-1”, el cual se obtiene de la siguiente manera:
-[imagen]
 Donde:
-___ [imagen] ____ = Ingresos totales ajustados. Se refiere al ajuste por el diferencial entre los ingresos reales contabilizados y los ingresos estimados para la empresa “e” para el periodo t-1 correspondientes a proyectos de protección del recurso hídrico.
-__ [imagen] = Ingresos totales reales contabilizados que recibió el operador para realizar los proyectos de protección de recurso hídrico de la empresa “e” y para el periodo “t-1”. Este dato se debe tomar de la contabilidad regulatoria, los formularios y plantillas regulatorias asociadas, y los lineamientos regulatorios respectivos establecidos por la ARESEP.
-__"__ [imagen] __ = Ingresos totales estimados por ARESEP en la fijación tarifaria para realizar los proyectos de protección de recurso hídrico de la empresa “e” y para el periodo “t-1”. Este dato se debe tomar de la fijación tarifaria efectuada por la ARESEP para el periodo “t-1”.
+_______ = Ingresos totales ajustados. Se refiere al ajuste por el diferencial entre los ingresos reales contabilizados y los ingresos estimados para la empresa “e” para el periodo t-1 correspondientes a proyectos de protección del recurso hídrico.
+__= Ingresos totales reales contabilizados que recibió el operador para realizar los proyectos de protección de recurso hídrico de la empresa “e” y para el periodo “t-1”. Este dato se debe tomar de la contabilidad regulatoria, los formularios y plantillas regulatorias asociadas, y los lineamientos regulatorios respectivos establecidos por la ARESEP.
+__"____ = Ingresos totales estimados por ARESEP en la fijación tarifaria para realizar los proyectos de protección de recurso hídrico de la empresa “e” y para el periodo “t-1”. Este dato se debe tomar de la fijación tarifaria efectuada por la ARESEP para el periodo “t-1”.
 e = Empresa prestadora de servicios regulados por ARESEP.
 t-1 = Período inmediatamente anterior a la fecha de vigencia de la fijación tarifaria “t”.
 La aplicación del diferencial de los ingresos y costos/gastos ajustados en el periodo “t-1” (LIet), deben ser tales que no se vea amenazado el equilibrio financiero en el periodo “t”.
@@ -212,7 +207,6 @@ i. Un monto positivo sumará un mayor rédito en “t”, mientras que un monto 
 ii. Las sobreinversiones deberán justificarse y estar en línea con el plan quinquenal de inversiones aprobado.
 3.2 Ingresos por ventas
 Los ingresos totales esperados por el operador se obtienen del cobro de la tarifa de protección del recurso hídrico a usuarios (IVet), según se expresa en la siguiente ecuación.
-[imagen]
 Donde:
 ITet = Ingresos totales para la protección del recurso hídrico de la empresa “e” y para el periodo “t”. Se obtiene de la suma de los costos y gastos totales (CTet) y el rédito para el desarrollo (RDet).
 IVet = Ingresos por el cobro de la tarifa de protección del recurso hídrico a usuarios (IVet) de la empresa “e”, para el período “t”.
@@ -225,7 +219,6 @@ i. Que los ingresos requeridos por el operador sean iguales a los ingresos total
 ii. Que los ingresos requeridos por el operador sean mayores a los ingresos totales proyectados a tarifas vigentes; en este caso se requiere realizar un aumento en las tarifas vigentes hasta que se logre igualar a los ingresos requeridos.
 iii. Que los ingresos requeridos por el operador sean menores a los ingresos totales proyectados a tarifas vigentes; en este caso se requiere realizar una disminución en las tarifas vigentes hasta que se logre igualar a los ingresos requeridos.
 Así, el monto total absoluto del ajuste requerido es la diferencia entre los ingresos requeridos para la ejecución de los proyectos y los ingresos generados con la tarifa vigente, expresado de la siguiente manera:
-[imagen]
 Donde:
 ΔIVet = Cambio absoluto requerido en los ingresos totales por cobro de la tarifa de la empresa “e” y para el periodo “t”.
 IVet = Ingresos por el cobro de la tarifa de protección del recurso hídrico a usuarios (IVet) de la empresa “e”, para el período “t”.
@@ -236,7 +229,6 @@ t = El periodo “t” toma valores para t=1, 2, 3, 4 y 5 correspondiente al per
 t-1 = Período inmediatamente anterior a la fecha de vigencia de la fijación tarifaria “t”.
 3.4 Ingresos por cobro de las tarifas vigentes
 Estos ingresos se obtienen de sumar los resultados de multiplicar cada categoría de tarifa, según bloque de consumo, por la cantidad total estimada de agua a facturar asociada a dicha tarifa, expresado de la siguiente manera:
-[imagen]
 Donde:
 IVTVet = Ingresos totales estimados a tarifas vigentes de la empresa “e” y para el periodo “t”. Esta estimación de ingresos se basa en la estructura tarifaria vigente y la estimación de la demanda; se podrán estimar y proyectar estos ingresos considerando el procedimiento establecidos en el apartado .3.4.
 Tetsba = Tarifa para la categoría “s” de la empresa “e”, para el período “t”, según bloque de consumo “b”. La tarifa, según bloque de consumo corresponde al valor en colones por metro cúbico, indicado en el pliego tarifario vigente al momento del estudio tarifario.
@@ -249,7 +241,6 @@ e = Empresa prestadora de servicios regulados por ARESEP.
 t = El periodo “t” toma valores para t=1, 2, 3, 4 y 5 correspondiente al periodo de tiempo para el cual se calcula el ajuste tarifario, inicia con el año calendario “t=1”. Típicamente corresponde a un periodo de 5 años.
 4. Determinación del porcentaje del ajuste en las tarifas
 Para la determinación del ajuste porcentual en las tarifas para el periodo en que entrará en vigencia la nueva fijación tarifaria se debe dividir el monto del cambio absoluto requerido en los ingresos totales (ΔIVet) entre los ingresos totales estimados a tarifa vigente del servicio (IVTVet), la distribución porcentual por tipo de tarifa y bloques se hará de conformidad con lo que técnicamente determine la Intendencia.
-[imagen]
 Donde:
 %IVet = Ajuste porcentual requerido en los ingresos totales de la empresa “e” y para el periodo “t”.
 ΔIVet = Cambio absoluto requerido en los ingresos totales por cobro de la tarifa de la empresa “e” y para el periodo “t”. Ecuación 8.

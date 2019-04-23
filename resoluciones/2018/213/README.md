@@ -14,3 +14,4 @@ Metodología tarifaria para la protección del recurso hídrico
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-12-18 | la propia norma |
+| 2 | 2019-04-23 | Resolución 85 (2019-04-23) |
