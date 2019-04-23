@@ -1,0 +1,5 @@
+Artículo 2°. El Ministerio de Ambiente y Energía solicitará a cada una de las instituciones públicas y entidades privadas, la designación de sus respectivos representantes propietarios y suplentes ante la Comisión.
+Los suplentes podrán sustituir y representar al propietario en caso de ausencia y contarán con las mismas funciones que el titular.
+Los miembros del sector público que integren la Comisión serán nombrados por tiempo indefinido, sin perjuicio de las facultades de los máximos jerarcas de cada institución· representada, para sustituirlos en cualquier momento.
+Los representantes del sector privado, de la sociedad civil y de la asociación de consultores ambientales serán escogidos por el Ministro de Ambiente y Energía a partir de una propuesta remitida por cada entidad y nombrados por un período de tres años, pudiendo ser renovados.
+En caso de renuncia o remoción deberá enviarse una propuesta para su designación, en cuyo caso el nuevo representante será nombrado por el plazo restante del período establecido.

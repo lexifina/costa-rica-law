@@ -1,0 +1,2 @@
+Artículo 9º-Perderá su condición de integrante de la Comisión, el miembro propietario que no asista a las sesiones ordinarias y extraordinarias, ni se haga representar por su suplente, durante· dos sesiones consecutivas o tres alternas, dentro de un período de seis meses.
+La Secretaría de la Comisión comunicará esta situación a la institución pública o entidad privada de que se trate, con el objeto de que se rectifique la irregularidad, o en su defecto, se tomen las medidas correspondientes, procediéndose al cambio o sustitución del representante.
