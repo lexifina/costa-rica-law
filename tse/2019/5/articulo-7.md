@@ -1,0 +1,1 @@
+Artículo 7º—Asesoría y orientación. El Área de Prevención y Salud Laboral brindará asesoría y orientación a las personas funcionarias que consideren estar viviendo una situación de acoso laboral, con el fin de que se les ayude a identificar la circunstancia, los factores que la explican y las acciones que se puedan llevar a cabo.

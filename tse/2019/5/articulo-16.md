@@ -1,0 +1,1 @@
+Artículo 16.—De la resolución de la Dirección. Una vez recibido el informe de la Inspección Electoral, el Director respectivo, dentro del mes siguiente, impondrá la sanción de apercibimiento o recomendará al Tribunal la aplicación de una sanción mayor, con arreglo a lo establecido en el artículo 55 del Reglamento Autónomo de Servicios.

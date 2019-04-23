@@ -1,0 +1,1 @@
+Artículo 11.—Del procedimiento administrativo ordinario. En caso de que el Director respectivo determine la apertura del procedimiento administrativo ordinario, el órgano director realizará –dentro del plazo de un mes– el traslado de cargos, el cual se notificará de forma personal a las partes.

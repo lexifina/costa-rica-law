@@ -1,0 +1,1 @@
+Artículo 13.—Sobre el expediente administrativo. El expediente administrativo contendrá, como mínimo, toda la documentación relativa a la denuncia, la prueba recabada durante la investigación, las actas, las resoluciones pertinentes y las constancias de notificación. Además, deberá estar debidamente foliado y con numeración consecutiva.

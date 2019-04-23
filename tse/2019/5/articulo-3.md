@@ -1,0 +1,6 @@
+Artículo 3º—Definiciones. Para efectos de la debida comprensión de este reglamento, se establecen las siguientes:
+a) Acoso laboral. Es la violencia psicológica que una persona funcionaria, independientemente del cargo que desempeñe en la institución, ejerce durante un período, de forma sistemática, recurrente, progresiva, deliberada y demostrable sobre otra u otras personas funcionarias en el lugar de trabajo o en el ámbito personal con motivo de la relación de trabajo, con el propósito de atentar contra la dignidad o integridad física y psíquica, constituyéndose así en un riesgo psicosocial; así como también afectar el ejercicio de sus labores y las redes de comunicación de las personas afectadas, destruir su reputación, generar desmotivación, infundir miedo y lograr que abandonen el lugar de trabajo o busquen el traslado, degradando el ambiente laboral, entre otras situaciones similares.
+b) Tipos de Acoso Laboral.
+b.1) Acoso laboral vertical descendente. Es el que realiza una persona funcionaria que se encuentra en un cargo superior sobre otra que ostenta un cargo inferior.
+b.2) Acoso laboral horizontal. Es el que se produce entre personas compañeras de trabajo del mismo nivel.
+b.3) Acoso laboral vertical ascendente. Es el que produce una persona funcionaria con un nivel jerárquico menor al de aquella a quien acosa.

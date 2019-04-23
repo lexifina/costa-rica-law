@@ -1,0 +1,1 @@
+Artículo 20.—Acoso laboral a personas no funcionarias. Las disposiciones de este reglamento serán aplicables a las personas funcionarias por las conductas de acoso laboral que realicen en contra de personas no funcionarias que presten sus servicios en las instalaciones del Tribunal y sus sedes regionales.

@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de aplicación. Este reglamento se aplicará a todas las personas funcionarias del Tribunal Supremo de Elecciones, nombrados en propiedad, interinamente, en puestos de confianza y meritorios.

@@ -1,0 +1,1 @@
+Artículo 22.—Normativa complementaria. En todo aquello no previsto en el presente reglamento se aplicará lo establecido en la Ley General de la Administración Pública, el Código de Trabajo y el Reglamento Autónomo de Servicios del Tribunal Supremo de Elecciones.
