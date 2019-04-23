@@ -1,0 +1,8 @@
+ARTICULO 2°.- Derecho de las partes en el proceso: Las partes y sus abogados apoderados, tendrán derecho en cualquier fase del procedimiento a:
+a) Examinar, leer y copiar cualquier pieza del expediente,
+b) Pedir certificación del expediente o sus piezas, supliendo los gastos que ello demande.
+Se exceptúan los documentos cuyo acceso implique conferir un privilegio indebido, una oportunidad para dañar ilegítimamente a la Administración, a la contraparte o a terceros, así como los proyectos de resolución, así́ como los informes para órganos consultivos y los dictámenes de éstos antes de que hayan sido conocidos por el órgano director del proceso.
+c) Hacer alegaciones y referencias de lo actuado para hacer valer sus derechos o intereses, antes de la decisión final.
+d) Comparecer al menos a una audiencia oral y privada en la que se reciba la prueba ofrecida en su descargo.
+e) Ejercer el derecho a la defensa en las oportunidades y en forma razonable. El órgano director podrá rechazar toda gestión que a su juicio resulte innecesaria, inconducente o denote el interés de atrasar la adopción de la resolución final.
+Como medida de excepción y con el fin de garantizar el fin del procedimiento y la conservación de los elementos probatorios existentes en favor de la Institución, el Director de OPES podrá disponer la suspensión temporal de la ejecución contractual administrativa o la separación temporal del funcionario en el ejercicio de su cargo mediante la concesión de una suspensión temporal con goce de salario que se otorgará por todo el tiempo que requiera la investigación, según los plazos establecidos en este reglamento.

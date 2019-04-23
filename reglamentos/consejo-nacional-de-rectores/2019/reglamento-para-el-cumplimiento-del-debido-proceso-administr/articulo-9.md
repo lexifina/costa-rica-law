@@ -1,0 +1,1 @@
+ARTICULO 9°.- Caducidad del procedimiento: Sin perjuicio del régimen de prescripción del derecho de fondo al que se refiera el procedimiento en curso, éste caducará en caso de que el órgano director, la administración o las partes que deban cumplir un acto procesal abandonen su curso por un período mayor a seis meses.
