@@ -1,0 +1,1 @@
+Artículo 15°—Sede de las sesiones. La Comisión Cantonal de Cambio Climático se reúne de forma regular en las Aulas Ambientales de la Municipalidad de Belén, ubicadas dentro de las instalaciones de la Biblioteca Municipal Fabián Dobles. No obstante, la sede de la sesión podrá ser modificada notificándose a los miembros de la comisión con dos días de antelación.

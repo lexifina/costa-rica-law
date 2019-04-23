@@ -1,0 +1,1 @@
+Artículo 4º—Conformación de la comisión: La comisión está compuesta por actores sociales públicos y privados que poseen influencia directa sobre la gestión de acciones locales que promueven la gestión de los impactos del cambio climático; así como ciudadanos del cantón interesados en el desarrollo de estrategias de acción participativa en beneficio del ambiente belemita.

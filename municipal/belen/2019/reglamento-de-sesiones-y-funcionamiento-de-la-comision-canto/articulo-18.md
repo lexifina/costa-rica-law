@@ -1,0 +1,1 @@
+Artículo 18°—Del quórum. El quórum de las sesiones ordinarias y extraordinarias será la mitad más uno de los miembros activos que integran la comisión. Deberán encontrarse en sitio de reunión establecido.

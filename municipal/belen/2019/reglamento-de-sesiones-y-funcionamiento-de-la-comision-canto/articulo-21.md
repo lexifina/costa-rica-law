@@ -1,0 +1,1 @@
+Artículo 21°—Revisión de acuerdos. Antes de aprobar el acta, cualquier miembro podrá plantear, la revisión de acuerdos, siempre y cuando no estén definitivamente aprobados. La misma mayoría requerida para dictar el acuerdo sobre el que se solicita revisión, será necesaria para acordar ésta.

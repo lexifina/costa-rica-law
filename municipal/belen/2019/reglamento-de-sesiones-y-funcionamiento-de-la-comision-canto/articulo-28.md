@@ -1,0 +1,1 @@
+Artículo 28°—La Comisión deberá presentar informes anuales al Concejo Municipal sobre la gestión realizada y las actividades coordinadas; así como los proyectos o planes que requieran aprobación técnica y logística por parte del Concejo Municipal

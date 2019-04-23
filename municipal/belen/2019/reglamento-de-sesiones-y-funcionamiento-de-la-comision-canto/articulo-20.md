@@ -1,0 +1,1 @@
+Artículo 20°—Acuerdos. Los acuerdos de la comisión serán tomados por mayoría simple de votos, salvo en los casos en que por la naturaleza del tema se requiera una mayoría calificada. Todos los acuerdos deberán ser cumplidos fielmente en tiempo y forma, salvo que se deroguen o sean vetados.

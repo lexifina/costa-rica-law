@@ -1,0 +1,1 @@
+Artículo 16°—Inicio de las sesiones. Las sesiones de la comisión deberán iniciarse dentro de los quince minutos siguientes a la hora señalada y publicada al efecto, conforme con el reloj del local donde se lleve a cabo la sesión.

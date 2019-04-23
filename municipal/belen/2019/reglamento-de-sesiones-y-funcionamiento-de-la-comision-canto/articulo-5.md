@@ -1,0 +1,1 @@
+Artículo 5º—Miembros Obligatorios: La comisión tendrá únicamente dos puestos de carácter obligatorio. Estos puestos son la coordinación y la secretaría. Los demás miembros de la comisión serán considerados como miembros ordinarios.

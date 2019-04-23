@@ -1,0 +1,1 @@
+Artículo 12°—Pérdida de estado de miembro activo. Se suspenderá de forma definitiva la participación de los miembros de la CCCB, que de forma reiterativa incurran en las acciones descritas en el artículo 11 de este reglamento en más de dos ocasiones.

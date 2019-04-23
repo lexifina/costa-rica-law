@@ -1,0 +1,1 @@
+Artículo 24°--Derecho a votación. Tendrán derecho a emitir voto en las sesiones ordinarias y extraordinarias de la comisión, los miembros que cumplan con los requisitos establecidos en los artículos 9, 10 y 11 de este reglamento al momento de que se realice la votación

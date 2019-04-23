@@ -1,0 +1,1 @@
+Artículo 17°—Sustitución de miembro. Cada miembro de la comisión, con excepción de la coordinación y la secretaría; podrán designar a un suplente que los sustituya en caso de no poder presentarse a las sesiones de trabajo o cualquier otra actividad convocada por la comisión. Los suplentes deberán ser notificados ante la secretaría por medio escrito o por correo electrónico.

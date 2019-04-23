@@ -1,0 +1,1 @@
+Artículo 27°—Plan de Trabajo y presupuesto: La comisión deberá coordinar con la Unidad Ambiental las acciones pertinentes para coordinar las diferentes acciones propuesta en el plan de trabajo de la Comisión con el Plan de Trabajo de la Unidad Ambiental; así como coordinar la asignación de recursos para los fines de la comisión.

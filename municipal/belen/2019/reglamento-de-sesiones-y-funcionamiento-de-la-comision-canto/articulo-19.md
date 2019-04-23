@@ -1,0 +1,1 @@
+Artículo 19°—Quórum inicial. Pasados los quince minutos de la hora de inicio de la sesión, si no hubiere quórum no se podrá realizar sesiones ordinarias o extraordinarias, se dejará constancia en el expediente correspondiente.
