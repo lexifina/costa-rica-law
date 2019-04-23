@@ -1,0 +1,1 @@
+Artíuclo 2°-Las dependencias del Sector Público y del sector Privado, dentro del marco legal respective, podrán contribuir con recurso humano y económico, en la medida de sus posibilidades y sin perjucio del cumplimiento de sus propios objetivos, a fin de logra la exitosa realización de las actividades proyectadas.
