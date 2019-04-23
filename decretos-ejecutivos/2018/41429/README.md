@@ -14,3 +14,4 @@ Prórroga del plazo para el registro de patronos y empresas del sector agrícola
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-11-06 | la propia norma |
+| 2 | 2019-04-23 | Decreto Ejecutivo 41719 (2019-04-23) |

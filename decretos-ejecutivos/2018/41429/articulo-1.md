@@ -18,3 +18,4 @@ DISPUESTO PARA LA REGULARIZACIÓN
 EXTRAORDINARIA DE PERSONAS
 TRABAJADORAS MIGRANTES
 Artículo 1º—Se extiende el plazo para el registro de patronos y empresas del sector agrícola dispuesto para la regularización extraordinaria de trabajadores y trabajadoras migrantes, dispuesto mediante Decreto número 38541-GOB-MTSS-MAG y sus modificaciones por seis meses más a partir de la firma del presente decreto.
+(Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 41719 del 23 de abril del 2019, se acordó extender el plazo para el registro de patronos y empresas del sector agrícola dispuesto para la regularización extraordinaria de trabajadores y trabajadoras migrantes, establecido en el presente decreto ejecutivo, por tres meses más, contados a partir del 07 de mayo del dos mil diecinueve.)
