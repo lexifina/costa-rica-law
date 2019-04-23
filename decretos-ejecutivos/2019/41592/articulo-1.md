@@ -1,0 +1,19 @@
+N° 41592-S
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE SALUD
+En uso de las facultades que les confieren los artículos 140, incisos 3) y 18) y 146 de la “Constitución Política”; artículo 6 inciso 2), 25, 27 inciso 1) y 28 inciso b) de la Ley No. 6227 del 02 de mayo de 1978 “Ley General de la Administración Pública”, 1 y 2 de la Ley N° 5395 del 30 de octubre de 1973 “Ley General de Salud”; 1, 2 y 6 de la Ley N° 5412 del 08 de noviembre de 1973 “Ley Orgánica del Ministerio de Salud”.
+Considerando:
+1º—Que el Decreto Ejecutivo N° 38138-5 del 19 de abril del 2013, “Reglamento para el manejo del fondo de caja chica del Instituto Costarricense de Investigación y Enseñanza en Nutrición y Salud (INCIENSA)”, se debe ajustar la redacción a fin de que quede conforme a lo establecido en el Reglamento General del Fondo de Caja Chica.
+2º—Que el artículo 61 inciso h) de la Ley N° 8131 del 18 de setiembre del 2001, “Ley de la Administración Financiera de la República y Presupuestos Públicos”, confiere a la Tesorería Nacional la competencia para autorizar la apertura de Cajas Chicas, para gastos menores de las dependencias de la Administración Central, conforme a la reglamentación y normativas vigentes.
+3º—Que el artículo 86 del Decreto Ejecutivo N° 32988 del 31 de enero del 2006 “Reglamento a la Ley de la Administración Financiera de la República y Presupuestos Públicos”, confiere a la Tesorería Nacional, la competencia para emitir la normativa y los procedimientos específicos para regular la operación del Fondo Fijo Caja Chica que la legislación autorice, dentro del marco de respeto al principio de Caja Única.
+4º—Que de conformidad con el artículo 8° del Decreto Ejecutivo N° 32874-H de 10 de noviembre del 2005 “Reglamento General del Fondo Fijo Cajas Chicas”, establece que los entes adscritos al Poder Ejecutivo y otras entidades sujetas al principio de Caja Única, deberán diseñar su propio Reglamento de Caja Chica según su ámbito de acción. Además, dicho reglamento deberá ser aprobado por el jerarca, previo visto bueno de la Tesorería Nacional y regirá una vez publicado en el Diario Oficial La Gaceta.
+5º—Que la presente reforma parcial fue conocida y aprobada por el Consejo Técnico del INCIENSA, en el Acuerdo N° 9 de la Sesión 14-2018 del 9 de octubre del 2018.
+6º—Que la presente reforma parcial fue aprobado por la Tesorería Nacional, mediante el oficio N° TN-DCOF-408-2018 del 12 de octubre del 2018.
+7º—Que de conformidad con el artículo 12 bis del Decreto Ejecutivo N° 37045 de 22 de febrero de 2012 “Reglamento a la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos” y su reforma, se considera que por la naturaleza del presente reglamento no es necesario completar la Sección I denominada Control Previo de Mejora Regulatoria, que conforma el formulario de Evaluación Costo Beneficio, toda vez que el mismo no establece trámites ni requerimientos para el administrado. Por tanto,
+Decretan
+REFORMA PARCIAL AL REGLAMENTO PARA EL MANEJO
+DEL FONDO DE CAJA CHICA DEL INSTITUTO
+COSTARRICENSE DE INVESTIGACIÓNY ENSEÑANZA
+EN NUTRICIÓN Y SALUD (INCIENSA)
+Artículo 1º—Refórmese el artículo 4° del Decreto Ejecutivo No. 38138-S del 19 de abril del 2013, “Reglamento para el manejo del fondo de caja chica del Instituto Costarricense de Investigación y Enseñanza en Nutrición y Salud (INCIENSA)”, para que se lea en lo sucesivo de la siguiente forma:
+“Artículo 4 º.—Gastos Menores indispensables y urgentes. Se considerarán Gastos Menores aquellos que no excedan el monto máximo fijado por la Tesorería Nacional y que corresponden a la adquisición de bienes y servicios, que no se encuentren en bodegas de la Proveeduría Institucional, ya sea porque no se ha llevado a cabo o está en proceso la correspondiente contratación administrativa. O cuya postergación, para adquirirlo por el procedimiento de contratación ordinario, causaría perjuicio a la eficiencia a los servicios que debe brindar el INCIENSA.”
