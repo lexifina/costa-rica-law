@@ -1,0 +1,15 @@
+ARTÍCULO 8º.-Ejecución y formalización contractual: Los beneficios concedidos no mayores a los dos mil dólares, moneda de los Estados Unidos de América, serán supervisados directamente por el jefe inmediato del beneficiario. Cuando el beneficio supere dicho monto, la supervisión corresponderá ejercerla al Departamento de Gestión de Talento Humano y requerirá de previo la formalización de un contrato que esta unidad solicitará elaborar a la Asesoría Legal. El contrato deberá contener, al menos, las siguientes regulaciones:
+a.- Descripción clara y precisa del objeto de la actividad de perfeccionamiento o capacitación.
+b.- Institución o instituciones donde deberá ser recibida.
+c.- Períodos o ciclos académicos que comprenda.
+d.- Descripción del apoyo institucional que le será dado al beneficiario y designación del responsable institucional de supervisar la correcta ejecución de los compromisos adquiridos.
+e.- Obligación de rendir informe final a la conclusión del programa o capacitación, sin perjuicio de los parciales que le solicite emitir su jefatura inmediata.
+f.- Monto máximo a girar en ejecución del contrato, considerando todos los gastos cubiertos por el beneficio concedido.
+g.- Descripción del documento, certificado o diploma que deberá obtener el funcionario a la conclusión del beneficio de formación otorgado.
+h.- Aceptación del compromiso de prestación futura de servicios a favor de la institución, el que no podrá ser inferior seis meses si el beneficio fuera concedido por menos de un bimestre, a un año en caso de que superara un semestre o de dos años por cada año de disfrute del beneficio.
+i.- Fecha de reincorporación del funcionario o funcionaria al cumplimiento de sus las labores ordinarias en la institución.
+j.- Si se tratara de estudios en el exterior, la obligación del beneficiario para prestar servicios a favor de la institución por un período equivalente al doble de tiempo que haya regido el beneficio otorgado y sus eventuales prórrogas.
+k.- Aceptación para brindar capacitación y transferir conocimientos adquiridos al resto del personal, a solicitud de su jefe inmediato o del Departamento de Gestión del Talento Humano.
+l.- Multas y sanciones por incumplimiento de las obligaciones contractuales adquiridas, con la indicación deber de reintegro a la institución de los beneficios monetarios recibidos que hayan sido girados a favor del beneficiario.
+A todo contrato deberá acompañarse un pagaré cuyo monto cubra la totalidad del aporte institucional destinado a la atención del beneficio otorgado más un veinticinco por ciento adicional a título de multa por incumplimiento, sin perjuicio del cobro de los daños y perjuicios que resultaran procedentes.
+Este contrato mantendrá para todo efecto legal la naturaleza de addendum al contrato laboral del funcionario, razón por la que el plazo de su vigencia será reconocido como tiempo de servicio efectivo para los efectos de ley y el beneficiario deberá atender el cumplimiento del contrato con igual intensidad, cuidado y esmero apropiados, y en la forma, tiempo y lugar convenidos, tal cual debe a su prestación laboral ordinaria.

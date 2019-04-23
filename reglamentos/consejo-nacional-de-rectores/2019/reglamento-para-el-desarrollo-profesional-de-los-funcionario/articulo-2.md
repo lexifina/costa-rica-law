@@ -1,0 +1,6 @@
+ARTÍCULO 2º.-Modalidades: La ejecución de dicha política comprenderá algunas de las siguientes modalidades:
+a) Cursos de desarrollo profesional, de participación o aprovechamiento: actividades profesionales y académicas de ocho a doce horas de duración, por su orden, que permiten alcanzar conocimientos, habilidades y destrezas;
+b) Certificado de educación continua y especialidad: procesos académicos de certificación dirigidos a profesionales en un área disciplinar, que culminan con la obtención de un certificado, previa evaluación de aprendizajes, o comprenden la realización de pasantías académicas de hasta un año de duración;
+c) Estudios de formación profesional: proceso de formación académica tendientes a la obtención de posgrados o especialidades universitarias;
+d) Otras actividades de complemento profesional: Comprende otras capacitaciones o actividades relacionadas con la profundización de conocimientos, habilidades y destrezas profesionales, que permitan al funcionario actualizarlas, tales como conferencias, simposios, talleres y seminarios.
+El otorgamiento del apoyo institucional solicitado por el funcionario implicará la aceptación de los deberes y compromisos comprendidos en este régimen, sin necesidad alguna de manifestación de voluntad a ese efecto, los cuales quedarán integrados a las obligaciones laborales de su relación de servicio.

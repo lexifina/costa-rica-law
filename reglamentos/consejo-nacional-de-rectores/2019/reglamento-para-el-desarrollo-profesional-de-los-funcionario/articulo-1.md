@@ -1,0 +1,5 @@
+CONSEJO NACIONAL DE RECTORES
+REGLAMENTO PARA EL DESARROLLO PROFESIONAL DE LOS
+FUNCIONARIOS DEL CONSEJO NACIONAL DE RECTORES
+ARTÍCULO 1º.-Propósito: El Consejo Nacional de Rectores (CONARE) mantendrá una política de mejoramiento de su desempeño institucional mediante la ejecución de acciones dirigidas a la capacitación y desarrollo profesional de su personal, vinculado a sus planes estratégicos y de desarrollo institucional. La ejecución de estas políticas estará condicionada a la existencia del correspondiente contenido presupuestario.
+Toda capacitación o actividad de desarrollo profesional deberá estar asociada en forma directa al perfeccionamiento de competencias y mejoramiento de desempeño de las funciones correspondientes al puesto desempeñado, e implicará para el beneficiario el deber de contribuir al mejoramiento institucional mediante su compromiso de prestación futura deservicios y de la transmisión de sus conocimientos adquiridos al personal institucional que lo requiera, mediante la realización de talleres o actividades internas de capacitación.
