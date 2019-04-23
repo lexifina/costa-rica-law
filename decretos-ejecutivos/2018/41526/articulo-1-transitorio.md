@@ -1,0 +1,1 @@
+TRANSITORIO. El Poder Ejecutivo contará con un plazo de tres meses a partir de la publicación del presente decreto en el Diario Oficial La Gaceta, para reglamentar el trámite digital de registros y autorizaciones del Ministerio de Salud en la gestión integral de residuos en la plataforma SINIGIR.
