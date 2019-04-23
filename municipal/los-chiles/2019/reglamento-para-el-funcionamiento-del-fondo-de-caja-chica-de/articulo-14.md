@@ -1,0 +1,4 @@
+Artículo 14°- El vale se tramitará únicamente, cuando cumpla con todos y cada uno de los siguientes requisitos:
+a)- Deberá llenarse, indicando el monto exacto y los artículos o servicios por adquirir, que por este reglamento se autorizan y con la correspondiente justificación, el cual no debe contener borrones ni tachaduras.
+b)- Deberá venir acompañado de la firma de autorización del gasto por parte del Alcalde Municipal o el funcionario autorizado por la alcaldía municipal, y se efectuaran por medio de cheque expedido por el contador, con la firma del tesorero y al menos la de otro funcionario autorizado, según lo establecido por el artículo 109 del Código Municipal.
+c)-. Deberá venir con la autorización correspondiente que verifique que existe contenido presupuestario y la factura proforma del bien o servicio adquirir.

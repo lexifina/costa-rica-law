@@ -1,0 +1,1 @@
+Artículo 5º—Corresponde al Concejo Municipal mediante acuerdo, la correspondiente modificación del artículo 4 del presente reglamento, para variar el monto establecido de la caja chica, según solicitud escrita y justificada que haga la Alcaldía Municipal, con el fin de satisfacer las necesidades institucionales de los bienes y servicios que deben adquirirse por este medio.

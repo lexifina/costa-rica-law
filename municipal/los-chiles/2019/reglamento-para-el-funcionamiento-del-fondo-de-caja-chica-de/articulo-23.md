@@ -1,0 +1,1 @@
+Artículo 23o- Los comprobantes de pago o vales que se utilizarán por caja chica, estarán prenumerados, y se llevará para esos efectos una numeración consecutiva de los diferentes programas (Administración y Unidad Técnica de Gestión Vial, Ley 8114).
