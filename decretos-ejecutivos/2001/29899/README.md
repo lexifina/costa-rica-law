@@ -15,3 +15,4 @@ Normas para la habilitación de establecimientos de cirugía oftalmológica
 | --- | --- | --- |
 | 1 | 2001-10-29 | la propia norma |
 | 2 | 2018-07-23 | Decreto Ejecutivo 41384 (2018-07-23) |
+| 3 | 2019-04-24 | Decreto Ejecutivo 41743 (2019-04-24) |
