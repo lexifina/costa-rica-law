@@ -1,0 +1,1 @@
+Artículo 10.- Sobre el cálculo de intereses en los arreglos de pago. En el caso de que el arreglo de pago se apruebe con un plazo superior a doce meses, deberá incluir el cálculo de los intereses legales correspondientes.

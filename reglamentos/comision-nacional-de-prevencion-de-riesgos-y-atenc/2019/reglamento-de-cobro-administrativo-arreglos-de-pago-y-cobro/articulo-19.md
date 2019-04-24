@@ -1,0 +1,1 @@
+Artículo 19.-Informes. El abogado encargado del proceso judicial estará obligado a presentar un informe trimestral a la Jefatura de la Unidad de Asesoría Legal, sobre el estado de todos los procesos judiciales bajo su dirección, por lo que de ser necesario deberá de emitir criterio y dar recomendaciones sobre el avance del proceso y de su probabilidad de éxito.

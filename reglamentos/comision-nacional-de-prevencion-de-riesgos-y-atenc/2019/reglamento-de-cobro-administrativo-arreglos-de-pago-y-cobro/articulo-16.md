@@ -1,0 +1,1 @@
+Artículo 16.- Suspensión del proceso de cobro administrativo. El cobro administrativo podrá suspenderse en cualquiera de sus etapas cobratorias, si el deudor procede a pagar la totalidad de la deuda a la CNE, incluyendo el pago de intereses y gastos en que pudiera haber incurrido la CNE con la obligación adquirida por el deudor.

@@ -1,0 +1,1 @@
+Artículo 11.- Cálculo de la cuota mensual. La cuota mensual de abono se calculará dividiendo el monto de la deuda entre el plazo acordado, sumándole los intereses sobre el saldo cuando corresponda. En el documento de arreglo de pago se incluirá una tabla con el detalle de las cuotas mensuales, preparada por la Unidad de Recursos Financieros.

@@ -1,0 +1,1 @@
+Artículo 13.-Garantías. En casos que se considere necesario se podrá rendir una garantía en favor de la CNE para respaldar el pago de la deuda. Las garantías serán las que ha criterio de la Unidad de Asesoría Legal respalden mejor el patrimonio de la CNE. Pueden aceptarse fianzas, títulos valores a la vista o garantías reales prendarias o hipotecarias.
