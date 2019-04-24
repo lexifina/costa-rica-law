@@ -1,0 +1,1 @@
+Artículo 7°—Coordinación de la Comisión Institucional de Control Interno. La Alcaldía Municipal designará a un coordinador para la CICI, con el objetivo de liderar la conducción técnica, el cual durará en sus funciones dos años. La Alcaldía determinará, al cabo de ese período, si se nombra a un nuevo coordinador o si se reelige.

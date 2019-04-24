@@ -1,0 +1,1 @@
+Artículo 9°—De las sesiones de la Comisión Institucional de Control Interno. La Comisión Institucional de Control Interno, sesionarán ordinariamente al menos una vez cada mes. La convocatoria será realizada por el coordinador por medio de correo electrónico con ocho días hábiles de anticipación.
