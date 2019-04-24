@@ -1,0 +1,2 @@
+Artículo 21.—Una vez conocido y aprobado el veredicto por el Consejo Nacional del Deporte y la Recreación, el cual deberá mantenerse en estricta confidencialidad, hasta tanto se oficialice el nombramiento de los nuevos miembros a la Galería Costarricense del Deporte mediante Conferencia de Prensa, convocada al efecto.
+El currículo presentado una vez concluido este proceso pasará a ser parte de los archivos históricos de la Galería Costarricense del Deporte, y su custodia recaerá en la Asociación Deportiva Salón de la Fama del Deporte Costarricense.

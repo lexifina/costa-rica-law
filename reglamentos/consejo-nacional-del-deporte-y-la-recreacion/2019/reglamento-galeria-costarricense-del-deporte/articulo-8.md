@@ -1,0 +1,1 @@
+Artículo 8º—Los miembros del Consejo Nacional del Deporte y la Recreación y la Comisión, durante el ejercicio de sus funciones, no podrán postularse para ingresar a la Galería Costarricense del Deporte.

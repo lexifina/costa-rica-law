@@ -1,0 +1,1 @@
+Artículo 2º—La Galería Costarricense del Deporte será una vitrina abierta que honra, por medio de la crónica histórica, el esfuerzo, el talento, la disciplina y el trabajo de aquellos costarricenses que han llevado a su más elevada expresión, las metas y objetivos propuestos en su carrera deportiva.

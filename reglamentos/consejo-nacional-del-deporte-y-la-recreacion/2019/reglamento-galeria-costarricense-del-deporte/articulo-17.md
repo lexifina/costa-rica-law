@@ -1,0 +1,1 @@
+Artículo 17.—Entre las postulaciones presentadas y mediante la verificación de aquellas candidaturas que cumplen con todos los requisitos exigidos en este reglamento, la Comisión escogerá los candidatos elegibles, mediante votación secreta, excepto que exista consenso.

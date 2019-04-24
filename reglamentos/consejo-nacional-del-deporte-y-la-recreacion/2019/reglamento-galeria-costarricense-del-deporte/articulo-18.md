@@ -1,0 +1,1 @@
+Artículo 18.—La Comisión de la Galería Costarricense del Deporte seleccionará, entre la lista de elegibles, a dos candidatos o candidatas cuyos nombres se mantendrán en secreto y serán presentados para valoración, aprobación y ratificación del Consejo Nacional del Deporte y la Recreación.

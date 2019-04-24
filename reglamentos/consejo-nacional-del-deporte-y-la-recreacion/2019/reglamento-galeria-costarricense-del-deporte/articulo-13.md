@@ -1,0 +1,3 @@
+Artículo 13.—La Comisión realizará la Convocatoria oficial de apertura del proceso para dar a conocer el periodo de recepción de candidaturas a la Galería Costarricense del Deporte, mediante Comunicado de Prensa a más tardar la última quincena del mes de junio de cada año, según los lineamientos del presente reglamento.
+Para ello se le faculta la utilización de los diferentes medios de comunicación colectiva, medios electrónicos, redes sociales dirigidos a los sectores interesados.
+También se pautará esta convocatoria en el Diario Oficial La Gaceta y en la página oficial del Instituto Costarricense del Deporte y la Recreación.
