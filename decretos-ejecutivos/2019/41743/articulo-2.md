@@ -1,0 +1,4 @@
+Artículo 2°—Manténgase vigentes los siguientes Decretos Ejecutivos:
+a) Decreto Ejecutivo N° 29899-S del 01 de octubre del 2001 publicado en La Gaceta N° 207 del 29 de octubre de 2001 “Normas para la habilitación de establecimientos de cirugía oftalmológica.”
+b) Decreto Ejecutivo N° 29947-S del 03 de octubre del 2001 publicado en La Gaceta N° 223 del 20 de noviembre de 2001 “Oficializa para efectos de aplicación obligatoria”. Las Normas para la habilitación de servicios de cirugía (sic) ambulatoria, Requisitos para la habilitación de servicios de cirujía (sic) ambulatoria.”
+c) Decreto Ejecutivo N° 39187-S del 29 de mayo del 2015 publicado en La Gaceta N° 190 del 30 de setiembre del 2015 “Oficializa Norma de Habilitación de Establecimiento que brindan Servicios de Salud en Cirugía Plástica Reconstructiva y Estética.”
