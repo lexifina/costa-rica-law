@@ -1,0 +1,23 @@
+Nº 41593-MAG
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE AGRICULTURA Y GANADERÍA
+De conformidad con las atribuciones que les conceden los incisos 3), 8), 18) y 20) del artículo 140 y del artículo 146 de la Constitución Política; los artículos 25, 28 párrafo 2, inciso b) de la Ley General de la Administración Pública, Ley Nº 6227 del 02 de mayo de 1978; los artículos 2º inciso a) y b), artículo 5º incisos a), b), f), ñ), de la Ley de Protección Fitosanitaria, Ley Nº 7664, del 08 de abril de 1997; y la Ley de Fomento a la Producción Agropecuaria y Orgánica del Ministerio de Agricultura y Ganadería, Ley Nº 7064 del 29 de abril de 1987.
+Considerando:
+I.—Que los objetivos primordiales de la Ley de Protección Fitosanitaria, Ley Nº 7664, es proteger las plantas de importancia económica y sus productos contra los perjuicios producidos por las plagas.
+II.—Que es función esencial del Estado proteger la salud y la vida de las personas y animales, así como garantizar la protección de los cultivos de las plagas que puedan poner en riesgo o causar daños a la producción agrícola.
+III.—Que le corresponde al Ministerio de Agricultura y Ganadería, a través del Servicio Fitosanitario del Estado, por mandato legal, la ejecución y vigilancia del cumplimiento de la normativa en relación a la protección fitosanitaria.
+IV.—Que el Servicio Fitosanitario del Estado se encuentra facultado, para establecer medidas fitosanitarias de prevención, control y erradicación de plagas y disposiciones legales, que tienen por finalidad evitar el ingreso y la diseminación de plagas que amenacen la seguridad alimentaria y la actividad económica sustentada en la producción agrícola.
+V.—Que se ha detectado la presencia de la enfermedad Huanglongbing (HLB) conocida también como “Dragón Amarillo”, la cual es causada por una bacteria denominada Candidatus Liberibacter Asiaticus, transmitida por el vector Diaphorina citri. VI.—Que la plaga Huanglongbing (HLB), asociada a la bacteria Candidatus Liberibacter Asiaticus, está considerada como una de las plagas más destructivas y de mayor importancia económica y cuarentenaria de los cítricos en el mundo, por lo cual representa un problema para la producción de cítricos en el país.
+VII.—Que esta plaga es trasmitida por el psilido Diaphorina citri que está presente en el territorio nacional.
+VIII.—Que tanto la bacteria asociada, como los insectos vectores pueden hospedarse y dispersarse además en otras plantas de la familia de las Rutáceas de origen silvestre o utilizadas con fines ornamentales.
+IX.—Que el cultivo de cítricos constituye un soporte vital de la economía nacional y por consiguiente una fuente importante de ingreso de divisas, además de jugar un rol primordial en la generación de empleos directos e indirectos tanto a nivel agrícola como industrial.
+X.—Que una plantación de cítricos en abandono fitosanitario implica que una vez que el propietario del terreno con árboles cítricos esté enterado de la problemática relacionada con el HLB, tanto del patógeno como su vector y las consecuencias directas e indirectas de su dinámica, lo obliga a ejecutar medidas de prevención y control para minimizar el impacto de la enfermedad. Entiéndase, detección y erradicación de árboles sintomáticos y control de Diaphorina citri.
+XI.—Que en razón de lo expuesto se hace necesario la promulgación de una regulación jurídica que permita tomar las medidas de excepción que señala la Constitución Política y a la Ley de Protección Fitosanitaria Nº 7664 a fin de hacerle frente en forma efectiva a los efectos ocasionados por esta plaga y de esta forma mitigar las consecuencias que ocasiona su impacto en todo el país.
+XII.—Que de conformidad con los párrafos segundo y tercero del artículo 12 bis del Reglamento a la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos, Decreto Ejecutivo Nº 37045-MP-MEIC del 22 de febrero del 2012; se procedió a llenar la Sección I denominada “Control Previo de Mejora Regulatoria” del “Formulario de Evaluación Costo Beneficio”, siendo que la evaluación de la propuesta normativa dio resultado negativo y que no contiene trámites, requisitos ni procedimientos, por lo que se determinó que no se requería proseguir
+con el análisis regulatorio de cita. Por tanto,
+Decretan:
+Reglamento para el Combate Particular
+y Obligatorio de la Plaga de los Cítricos
+Denominada Huanglongbing y su
+Vector Diaphorina Citri
+Artículo 1º—Declaratoria de combate obligatorio. Se declara de combate particular y obligatorio la bacteria denominada Candidatas Liberibacter Asiaticus enfermedad conocida como Huanglongbing en adelante HLB y su vector Diaphorina citri.

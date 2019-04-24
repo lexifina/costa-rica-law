@@ -1,0 +1,1 @@
+Artículo 6º—Incumplimiento. El incumplimiento de lo ordenado por el presente Decreto Ejecutivo, será sancionado conforme lo indicado en el capítulo VIII, artículo 68 de la Ley de Protección Fitosanitaria, Ley Nº 7664.

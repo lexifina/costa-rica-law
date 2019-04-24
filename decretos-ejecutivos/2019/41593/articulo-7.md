@@ -1,0 +1,1 @@
+Artículo 7º—Capacitación. El Servicio Fitosanitario del Estado y el Ministerio de Agricultura y Ganadería, promoverán la capacitación de productores y técnicos sobre el manejo de la plaga y su vector.
