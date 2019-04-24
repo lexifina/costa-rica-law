@@ -15,3 +15,4 @@ Oficializa Norma de Habilitación de Establecimiento que brindan Servicios de Sa
 | --- | --- | --- |
 | 1 | 2015-09-30 | la propia norma |
 | 2 | 2018-07-23 | Decreto Ejecutivo 41384 (2018-07-23) |
+| 3 | 2019-04-24 | Decreto Ejecutivo 41743 (2019-04-24) |
