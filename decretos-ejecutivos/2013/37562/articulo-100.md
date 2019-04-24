@@ -8,6 +8,8 @@ c. Medicina Deportiva Ortopédica
 (Corrida su numeración mediante sesión ordinaria N° 2017-06-14 del 14 de junio del 2017, que lo traspasó del antiguo inciso b) al c))
 c. Ortopedia Oncológica
 (Así adicionado el inciso anterior en sesión ordinaria 2019-03-06 del 6 de marzo del 2019. Nótese que ya existe un inciso “c”)
+d. Cirugía de Cadera y Pelvis.
+(Así adicionado el inciso anterior mediante sesión ordinaria N° 2019-04-24 del 24 de abril del 2019)
 -Subespecialidad en Medicina Deportiva Ortopédica, requisitos específicos para la inscripción en la Subespecialidad en Medicina Deportiva Ortopédica:
 a. Estar debidamente inscrito y acreditado como Especialista en Ortopedia y Traumatología, ante el Colegio de Médicos y Cirujanos de Costa Rica.
 b. Establecer de carácter obligatorio para los médicos que soliciten la inscripción en la Subespecialidad de Medicina Deportiva Ortopédica el cumplimiento de todos los requisitos establecidos en el Reglamento de Especialidades y Subespecialidades Médicas y demás legislación relacionada vigente.
