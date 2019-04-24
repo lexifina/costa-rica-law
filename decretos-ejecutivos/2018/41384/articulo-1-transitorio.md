@@ -1,2 +1,0 @@
-TRANSITORIO l.
-Los servicios de salud que obtuvieron un certificado de habilitación o Permiso Sanitario de Funcionamiento antes de la entrada en rigor de la presente norma mantendrán dicha autorización por el tiempo que les fue extendida, debiendo en todo momento cumplir con las condiciones bajo las cuales se otorgó dicha habilitación.
