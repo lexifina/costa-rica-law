@@ -1,0 +1,4 @@
+Artículo 4°- Deróguese los siguientes Decretos Ejecutivos:
+[imagen] a) Decreto Ejecutivo Nº 29899-S del 01 de octubre del 2001, publicado en La Gaceta N° 207 del 29 de octubre de 2001 "Normas para la habilitación de establecimientos de cirugía oftalmológica."
+b) Decreto Ejecutivo Nº 29947-S del 03 de octubre del 2001, publicado en La Gaceta No. 223, del 20 de noviembre de 2001 "Oficializa para efectos de aplicación obligatoria "Las Normas para la habilitación de servicios de cirujía (sic) ambulatoria, Requisitos para la habilitación de servicios de cirujía (sic) ambulatoria."
+c) Decreto Ejecutivo Nº 39187-S del 29 de mayo del 2015, publicado en La Gaceta No. 190 del 3O de setiembre del 2015 "Oficializa Norma de Habilitación de Establecimiento que brindan Servicios de Salud en Cirugía Plástica Reconstructiva y Estética."

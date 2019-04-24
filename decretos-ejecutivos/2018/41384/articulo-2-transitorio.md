@@ -1,0 +1,1 @@
+Transitorio II. El administrado que hubiese iniciado los trámites de solicitud del certificado de habiliotación, antes de la entrada en vigencia de esta norma, continuará con el proceso bajo las condiciones vigentes al momento de inciado el trámite.
