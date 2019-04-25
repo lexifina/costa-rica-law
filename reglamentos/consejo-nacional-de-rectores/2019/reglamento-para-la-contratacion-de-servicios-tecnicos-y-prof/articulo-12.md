@@ -1,0 +1,1 @@
+Artículo 12.—Norma supletoria. Cualquier asunto no previsto en este Reglamento y la normativa institucional conexa se regirá en forma supletoria por la Ley de Contratación Administrativa, su Reglamento y la Ley General de la Administración Pública.
