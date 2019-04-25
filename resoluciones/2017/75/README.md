@@ -14,3 +14,4 @@ Directrices para el manejo de información de acceso restringido en la Contralor
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-08-10 | la propia norma |
+| 2 | 2019-04-25 | Resolución 32 (2019-04-25) |
