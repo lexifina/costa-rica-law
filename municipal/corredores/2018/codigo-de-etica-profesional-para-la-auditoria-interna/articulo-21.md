@@ -1,0 +1,1 @@
+Artículo 21.- Esta totalmente prohibido para los funcionarios de la Auditoría ingerir bebidas alcohólicas en las instalaciones o vehículos de la Municipalidad. Asimismo, ningún servidor de esta dependencia podrá efectuar sus actividades bajo los efectos del alcohol ni de ninguna otra sustancia enervante.

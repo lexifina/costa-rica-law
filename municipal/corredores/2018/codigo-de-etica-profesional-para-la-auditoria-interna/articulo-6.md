@@ -1,0 +1,1 @@
+Artículo 6.- Transparencia: Las acciones llevadas a cabo por los funcionarios de esta Auditoría se deben ejecutar en forma íntegra, de tal manera que la asignación de responsabilidades por las actividades llevadas a cabo por estos servidores se pueda justificar ante el jerarca respectivo.
