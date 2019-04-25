@@ -1,0 +1,1 @@
+Artículo 43.-Ámbito de Competencia: La Auditoría Interna dará trámite únicamente a aquellas denuncias que versen sobre posibles hechos irregulares o ilegales en relación con el uso y manejo de fondos públicos o que afecten la Hacienda Pública y lo regulado por la Ley Nº8422, Ley de Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública.
