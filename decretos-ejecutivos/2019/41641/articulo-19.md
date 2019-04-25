@@ -1,0 +1,1 @@
+Artículo 19º.—Marco Fiscal a Mediano Plazo El Marco Fiscal de Mediano Plazo (MFMP) abarcará todo el Sector Público No Financiero e incluirá las proyecciones de los principales agregados fiscales. El MFMP se publicará el último día hábil del mes de febrero de cada año.

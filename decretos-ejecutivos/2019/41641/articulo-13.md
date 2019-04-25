@@ -1,0 +1,1 @@
+Artículo 13º.—Regla fiscal y avales del Estado El cumplimiento de la regla fiscal será requisito fundamental que deben cumplir las entidades públicas de previo a iniciar los trámites de los créditos externos que requieran una posible garantía o aval del Estado, de acuerdo con la normativa vigente.

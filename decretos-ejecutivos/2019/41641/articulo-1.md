@@ -1,0 +1,23 @@
+N° 41641 –H
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE HACIENDA A.I.
+Con fundamento en las atribuciones que les confieren los artículos 140 incisos 3) y 18) y 146 de la Constitución Política; los artículos 25 inciso 1), 27 inciso 1) y 28 inciso 2) acápite b) de la Ley No. 6227, Ley General de la Administración Pública de 2 de mayo de 1978 y sus reformas; la Ley No. 8131, Ley de la Administración Financiera de la República y Presupuestos Públicos de 18 setiembre del 2001 y sus reformas; el Decreto Ejecutivo No. 32988-H-MP-PLAN, reglamento a la Ley de la Administración Financiera de la República y Presupuestos Repúblicos de 31 de enero del 2006 y sus reformas; la Ley No. 9635, Fortalecimiento de las Finanzas Públicas de 3 de diciembre del 2018; el Decreto Ejecutivo No. 31458-H de 06 de octubre del 2003 y sus reformas; el Decreto Ejecutivo No. 31877-H de 22 de junio del 2004 y su reforma; y el Decreto Ejecutivo No. 38544-H de 23 de mayo de 2014 y su reforma.
+Considerando:
+1. Que la Ley No. 9635, publicada en el Alcance No.202 a La Gaceta No. 225 de 4 de diciembre del 2018, en el Título IV denominado Responsabilidad Fiscal de la República, establece reglas de gestión de las finanzas públicas, con el fin de lograr que la política presupuestaria garantice la sostenibilidad fiscal; disposiciones que serán aplicables a los presupuestos de los entes y a los órganos que conforman el Sector Público No Financiero.
+2. Que la relación Deuda Bruta Total del Gobierno Central con respeto al Producto Interno Bruto (PIB) se debe mantener en un rango prudencial, de forma que no se comprometa la sostenibilidad fiscal y la estabilidad macroeconómica del país. Para la consecución de lo anterior, se debe lograr que los ingresos corrientes cubran los gastos corrientes coadyuvando a obtener un resultado positivo del balance primario.
+3. Que conforme al artículo 37 de la Ley de la Administración Financiera de la República y Presupuestos Públicos, Ley No. 8131, publicada en La Gaceta No. 198 de 16 octubre del 2001 y sus reformas, en concordancia con los artículos 41, 42, 43, siguientes y concordantes del reglamento a la Ley de la Administración Financiera de la República y Presupuestos Públicos, Decreto Ejecutivo No. 32988-H-MP-PLAN publicado en La Gaceta No. 74 del 18 de abril del 2006 y sus reformas, los clasificadores presupuestarios son una herramienta que permite ordenar la información según un criterio o característica homogénea. Entre los objetivos que se buscan con la implementación de los clasificadores presupuestarios es uniformar los criterios técnicos para la formulación de los presupuestos y a partir de este punto poder utilizar los datos para generar estadísticas y realizar diversos tipos de análisis.
+4. Que el Clasificador de los Ingresos del Sector Público, Decreto Ejecutivo No. 31458-H, publicado en La Gaceta No. 223 de 19 de noviembre del 2003 y su reforma, establece lo que se debe entender por ingresos corrientes, ingresos de capital y financiamiento.
+5. Que el Clasificador Económico del Gasto del Sector Público, Decreto Ejecutivo No. 31877-H, publicado en La Gaceta No. 140 de 19 de julio del 2004 y sus reformas, establece lo que se debe entender por gasto corriente, gasto de capital, transacciones financieras y sumas sin asignación.
+6. Que el Clasificador Institucional del Sector Público, el Decreto Ejecutivo No. 38544-H. publicado en La Gaceta No. 161 de 22 de agosto del 2014, delimita la conformación del Sector Público no Financiero.
+7. Que para efectos del cálculo de la tasa de crecimiento del gasto corriente producto de la Regla Fiscal, se excluyen los gastos capitalizables asociados a la formación de capital.
+8. Que el transitorio XXXVII de la Ley No. 9635 ordena al Poder Ejecutivo emitir, en un plazo no mayor de seis meses las disposiciones reglamentarias que resulten necesarias para la aplicación del título IV de dicha Ley.
+Por tanto;
+Decretan:
+Reglamento al Título IV de la Ley No. 9635, denominado Responsabilidad
+Fiscal de la República.
+Artículo 1º.—Ámbito de aplicación La Regla Fiscal para el control del crecimiento del gasto corriente presupuestario, se aplicará al Sector Público no Financiero (SPNF), que según lo dispuesto en el clasificador institucional comprende:
+• El Gobierno Central, entendido como el Poder Ejecutivo y sus dependencias, así como todos los órganos de desconcentración adscritos a los distintos ministerios, el Poder Legislativo, el Poder Judicial, el
+• Tribunal Supremo de Elecciones, y las dependencias y los órganos auxiliares de estos.
+• Instituciones Descentralizadas No Empresariales y sus órganos desconcentrados.
+• Gobiernos Locales.
+• Empresas Públicas no Financieras.

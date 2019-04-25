@@ -1,0 +1,1 @@
+Artículo 9º.—Comunicación de la tasa de crecimiento del gasto corriente La DGPN y la STAP, comunicarán el primer día hábil del mes de marzo de cada año, al Despacho del Ministerio de Hacienda, la tasa de crecimiento del gasto corriente presupuestario resultante del cálculo de la regla fiscal.

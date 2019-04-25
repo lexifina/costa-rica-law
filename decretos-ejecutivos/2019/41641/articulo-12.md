@@ -1,0 +1,1 @@
+Artículo 12º.—Estados financieros auditados Para la aplicación del inciso b) del artículo 6 del Título IV de la Ley aquí reglamentada, se tomarán como referencia los estados financieros auditados anuales del año anterior al proceso de formulación presupuestaria respectivo.

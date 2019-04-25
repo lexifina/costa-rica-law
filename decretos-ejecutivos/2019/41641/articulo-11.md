@@ -1,0 +1,1 @@
+Artículo 11º.—Rangos de aplicación de la regla fiscal En el escenario a) del artículo 11 del Título IV de la Ley aquí reglamentada, si la relación deuda/PIB fuese menor o igual al 30%, y si el gasto corriente/PIB fuera del 17%, entonces se mantendría el escenario a, pero si este valor (gasto corriente/PIB) es superior se pasaría al escenario b.

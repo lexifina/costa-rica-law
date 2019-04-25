@@ -1,0 +1,1 @@
+Artículo 3º.—Periodo de referencia para aplicación de la regla fiscal Para la aplicación de la regla fiscal, las entidades deberán tomar como referencia el gasto corriente incorporado en el presupuesto ordinario aprobado del año en que se realiza la formulación del presupuesto del siguiente periodo.

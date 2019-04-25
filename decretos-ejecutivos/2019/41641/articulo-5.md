@@ -1,0 +1,1 @@
+Artículo 5º.—Conversión a clasificación económica Para la conversión de los presupuestos por objeto del gasto a clasificación económica, se utilizará la tabla de equivalencia anexada en el Clasificador Económico del Gasto del Sector Público, publicada en la página web del Ministerio de Hacienda.

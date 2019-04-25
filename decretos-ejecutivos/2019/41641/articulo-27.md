@@ -1,0 +1,1 @@
+Artículo 27º. — Consejo Fiscal El Ministerio de Hacienda, una vez publicado el presente reglamento, conformará un Consejo Fiscal, con el fin de atender lo dispuesto en el artículo 28 del Título IV de la Ley aquí reglamentada.
