@@ -1,0 +1,4 @@
+Capítulo III
+Población Estudiantil
+Artículo 10.- Ingreso a la modalidad de colegios deportivos. Para el ingreso de los estudiantes a la modalidad Colegios Deportivos y Secciones Deportivas en Colegios Académicos, se regirá por condiciones académicas y habilidades deportivas, las cuales se encuentran definidas en el plan de estudio de la modalidad, en el apartado de pruebas de ingreso, sin perjuicio de los requisitos establecidos en el Decreto Ejecutivo Nº40529-MEP del 28 de julio del 2017, Reglamento de Matrícula y Traslado de los Estudiantes, para los diversos ciclos, niveles y modalidades del sistema educativo.
+El ministerio de Educación Pública, mediante la Dirección de Desarrollo Curricular y la Dirección de Gestión y Evaluación de la Calidad establecerán los lineamientos y procedimientos que resulten necesarios para la correcta ejecución de las pruebas de ingreso a la modalidad Colegios Deportivos y Secciones Deportivas en Colegios Académicos.

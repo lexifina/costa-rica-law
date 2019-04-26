@@ -1,0 +1,1 @@
+Transitorio 1: Corresponde al Ministerio de Educación Pública, la creación de plazas acordes con las necesidades de la modalidad de colegios deportivos y secciones deportivas de los colegios académicos, de manera que en un plazo de cinco años se cuente con el personal docente, administrativo docente, y administrativo idóneo para el correcto funcionamiento de dicha modalidad.

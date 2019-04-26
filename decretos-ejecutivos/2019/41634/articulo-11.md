@@ -1,0 +1,12 @@
+Artículo 11.- Derechos de la población estudiantil. Los estudiantes regulares de la modalidad Colegios Deportivos y Secciones Deportivas en Colegios Académicos, en adición a los ya reconocidos en otros cuerpos legales aplicables a la población menor de edad y el sistema educativo costarricense, tendrán los siguientes derechos:
+a) Los estudiantes gozan de los derechos constitucionales y legales correspondientes a toda persona, así como de aquellos derechos particulares que les son reconocidos por la normativa vigente en razón de su condición de estudiantes, de ser personas menores de edad, o de presentar necesidades educativas especiales.
+b) Recibir un proceso formativo de calidad.
+c) Recibir, sin distinciones de ninguna naturaleza, los servicios educativos académicos y deportivos que ofrece la Institución.
+d) Recibir, paralelamente a su formación académica y deportiva, una orientación vocacional innovadora que le permita abrir espacios para fortalecer su desarrollo.
+e) Recibir de los docentes, funcionarios y compañeros, un trato basado en el respeto a su integridad física, emocional y moral así como a su intimidad y a sus bienes.
+f) Utilizar los servicios y las instalaciones de la Institución o de terceros que colaboren con la institución de conformidad con las respectivas disposiciones reglamentarias.
+g) Ser sujeto partícipe del proceso de evaluación, siendo periódicamente informados, igual que sus padres, madres y tutores, de los resultados de las evaluaciones de sus aprendizajes que realizan sus profesores.
+h) Ser informados de las pautas evaluativas; a ser evaluados y promovidos de acuerdo a un sistema objetivo y transparente, de acuerdo a los reglamentos institucionales y el Reglamento de Evaluación de los Aprendizajes del Ministerio de Educación pública.
+i) Participar en los procesos de selección que se establezcan para la conformación de delegaciones deportivas, culturales, o de cualquier otra índole, cuando ostenten la representación de la Institución.
+j) Recibir una educación inclusiva, que valore la vida, la dignidad humana y los derechos de los demás, sin distinción de raza, cultura, sexo, credo o posición social y, en consecuencia participar en los procesos que tienen lugar en el seno de la Comunidad Educativa en una relación de igualdad y respeto mutuo.
+k) Ejercer personalmente o por representación, los recursos que corresponden en defensa de sus derechos que hayan sido conculcados.

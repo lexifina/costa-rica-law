@@ -1,0 +1,2 @@
+Transitorio 2: El presente reglamento se aplicará de manera transitoria únicamente en los dos colegios deportivos existentes en el Sistema Educativo, entiéndase el Colegio Deportivo de Grecia y el Colegio Deportivo de Limón; esto, mientras la Administración presenta al Consejo Superior de Educación una propuesta que retome la creación de nuevos colegios y secciones deportivas.
+Dado en la Presidencia de la República.-San José, a los doce días del mes de febrero del año dos mil diecinueve.

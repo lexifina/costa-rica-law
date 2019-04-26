@@ -1,0 +1,3 @@
+Artículo 9.- Titulación: El estudiante que ostente la condición de egresado de conformidad con el inciso d) del artículo anterior, se hará acreedor al título de Bachiller de Enseñanza Media y el Título de Formación en el Énfasis Deportivo correspondiente.
+El ministerio de Educación Pública, mediante la Dirección de Desarrollo Curricular y la Dirección de Gestión y Evaluación de la Calidad establecerán los lineamientos y procedimientos que resulten necesarios para la correcta ejecución de las Pruebas de Certificación del Énfasis Deportivo.
+Los títulos de formación en el énfasis deportivo tendrán equivalencia con el título del nivel Técnico 4, establecido en el Marco Nacional de Cualificaciones de la Educación y Formación Técnica Profesional.
