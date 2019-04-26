@@ -1,0 +1,1 @@
+Artículo 2°.- La adjudicación de tales becas y auxilios corresponde al Patronato de Estudiante Costarricenses, que establecen los artículos 448 y 449 del Código de Educación, ampliado con un delegado del Colegio de Médicos y Cirujanos.

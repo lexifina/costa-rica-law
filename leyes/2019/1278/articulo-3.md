@@ -1,0 +1,1 @@
+Artículo 3°.- La adjudicación de una beca sólo podrá hacerse previo concurso entre los aspirantes, y todo auxilio en virtud de documentos con que, a juicio del Patronato, se demuestre ampliamente que el petente lo merece por su esfuerzo y seriedad en los estudios efectuados.
