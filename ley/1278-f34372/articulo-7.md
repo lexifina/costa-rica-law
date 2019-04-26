@@ -1,0 +1,1 @@
+Artículo 7°.- Para la inmediata ejecución de esta ley se autoriza al Ministerio de Hacienda para trasladar la suma de noventa y nueve mil novecientos noventa y seis colones (¢99,996.00) del artículo 1039 al artículo 220, inciso 2) de la Ley de Presupuesto de 1951.
