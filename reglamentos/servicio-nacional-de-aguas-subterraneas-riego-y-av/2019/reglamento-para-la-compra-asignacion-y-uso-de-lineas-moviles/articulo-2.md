@@ -1,0 +1,1 @@
+Artículo 2°—Ámbito de aplicación. Este Reglamento se aplicará a todos los servidores del SENARA a quienes se asigna un teléfono celular, para el cumplimiento de las funciones propias del cargo que ostenta en la Institución.

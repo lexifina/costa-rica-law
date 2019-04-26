@@ -1,0 +1,2 @@
+Artículo 9°——Coordinación con el Proveedor de Servicios. La Unidad de Servicios Administrativos institucional será la única encargada de realizar los trámites de servicios nuevos, traslados, desconexiones temporales o definitivas, programación o reprogramación de líneas o teléfonos celulares, cambios de número, u otros ante el proveedor de servicios de la línea telefónica.
+Asimismo, deberá llevar en forma actualizada la lista de usuarios de teléfonos celulares y las respectivas líneas.
