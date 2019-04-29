@@ -1,1 +1,0 @@
-Artículo 7º—El cabello del personal masculino no podrá exceder la longitud de la parte inferior del cuello de la camisa y no podrá taparse las orejas. A los oficiales de este sexo les queda autorizado, previa comunicación a sus superiores, el uso de bigote arreglado, no pudiendo exceder su longitud de cuatro centímetros.

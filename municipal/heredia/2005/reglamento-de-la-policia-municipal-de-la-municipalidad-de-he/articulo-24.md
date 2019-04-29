@@ -1,1 +1,0 @@
-Artículo 24.—Los Policías Municipales de Heredia no deben admitir dádivas monetarias ni en especie por los servicios que presten. Guardarán secreto o reserva de los asuntos que conozcan por razones de su cargo.

@@ -1,1 +1,0 @@
-Artículo 3º—Cualesquier acto que en cumplimiento de sus funciones realice la Policía Municipal de Heredia (PMH), deberá ser puesto en conocimiento del organismo nacional de seguridad o investigación que corresponda y los departamentos municipales.

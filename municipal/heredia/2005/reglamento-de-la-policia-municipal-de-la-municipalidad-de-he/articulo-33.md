@@ -1,1 +1,0 @@
-Artículo 33.—Los miembros de la Policía Municipal de Heredia (PMH), tendrán derecho a que su defensa profesional en asuntos Judiciales, sea suministrado por la Municipalidad de Heredia, siempre y cuando se trate de casos estrictamente derivados del desempeño de sus funciones.

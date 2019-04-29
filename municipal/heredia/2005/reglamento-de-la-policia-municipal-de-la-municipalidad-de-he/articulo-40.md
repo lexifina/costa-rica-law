@@ -1,1 +1,0 @@
-Artículo 40.—En todo aquello no previsto en el presente reglamento, se aplicará supletoriamente, el Código Municipal, la Ley General de Administración Pública, Reglamento Interno de Trabajo de la Municipalidad de Heredia, Código de Trabajo, la Constitución Política, Ley General de Policía y demás normativa conexa.
