@@ -1,1 +1,0 @@
-Artículo 3° - El INFOCOOP enviará en los primeros quince días del mes marzo de cada año impar, la respectiva solicitud al Ministerio de Educación Pública sobre el listado de las Cooperativas Escolares y Juveniles para los efectos de este reglamento.
