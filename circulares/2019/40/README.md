@@ -13,3 +13,4 @@ Procedimiento para la administración de bitácoras de los sistemas del Poder Ju
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-03-26 | la propia norma |
+| 2 | 2019-04-29 | Circular 62 (2019-04-29) |
