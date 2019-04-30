@@ -1,2 +1,0 @@
-Artículo 2°-Este reglamento tiene por objeto regular la organización y el funcionamiento de los fondos de caja chica que la municipalidad tenga establecido o establezca en sus dependencias.
-Corresponde al despacho del Alcalde Municipal y la Dirección Financiera (artículo 109 del código Munícipal), fijar los procedimientos de trámite interno que deben seguir los vales que se emplean para utilizar estos fondos.

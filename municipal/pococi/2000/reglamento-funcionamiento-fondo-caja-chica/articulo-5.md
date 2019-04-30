@@ -1,1 +1,0 @@
-Artículo 5° -Corresponde al Conceio municipal. mediante el correspondiente acuerdo que emane de su seno variar el monto establecido para este fondo, según solicitud escrita y justificada que le haga la Dirección Financiera o en su defecto el Alcalde Municipal, con el fin de satisfacer las necesidades institucionales de los bienes y servicios que deben adquirirse por este medio.
