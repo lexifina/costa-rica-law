@@ -1,0 +1,2 @@
+Artículo 33: Derogatoria
+El presente reglamento deroga los “Lineamientos relativos al trámite de legalización de libros ante la Auditoría Interna del Servicio Nacional de Aguas Subterráneas, Riego y Avenamiento”, aprobados por acuerdo de Junta Directiva N° 3306, tomado en Sesión Ordinaria N° 506-06, celebrada el día 3 de octubre del 2006 y publicados en La Gaceta N° 215 del 09 de noviembre del 2006 y las Guías de chequeo autorizadas por la Gerencia en el 2006.

@@ -1,0 +1,3 @@
+Artículo 8: Plazo, requerimientos de información y suspensiones
+La Auditoría Interna resolverá la solicitud de apertura de libro dentro del plazo de diez días hábiles a partir de su presentación.
+Durante el trámite de apertura, podrá requerir información adicional que estime necesaria para el cumplimiento de la gestión, lo cual suspenderá el plazo de este trámite. En caso de que la administración no atienda los requerimientos en el plazo previsto se procederá al archivo de la gestión.

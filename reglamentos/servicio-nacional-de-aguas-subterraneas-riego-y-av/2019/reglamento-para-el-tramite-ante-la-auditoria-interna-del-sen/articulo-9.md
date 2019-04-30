@@ -1,0 +1,3 @@
+Artículo 9: Retiro
+Los folios autorizados deberán ser retirados por la persona que los tiene a cargo. Si dicha persona no se puede presentar, la persona que realice el trámite deberá estar debidamente autorizada por escrito.
+Los folios autorizados que no se retiren en un plazo de tres meses contados a partir de la fecha de comunicación de la apertura serán destruidos, previo aviso a la instancia que solicitó la autorización. La destrucción se hará en presencia de al menos dos testigos, para lo cual se levantará un acta que la registre, identificando sus características y la razón para hacerlo.

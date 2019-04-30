@@ -1,0 +1,3 @@
+Artículo 18: Naturaleza del cierre libros
+El cierre de libros completa el ciclo del proceso de autorización de libros y proporciona una seguridad razonable a los usuarios en cuanto a que el libro es original y que su contenido es oficial.
+El cierre del libro no implica una revisión o validación respecto al contenido del mismo, ni es un medio por el cual la Auditoría Interna ejerce las potestades de evaluación y de investigación, propios de los servicios de auditoría, por lo que la información aportada por el encargado del manejo del libro se presume veraz, todo bajo su responsabilidad, sin que esto limite la fiscalización posterior facultativa.

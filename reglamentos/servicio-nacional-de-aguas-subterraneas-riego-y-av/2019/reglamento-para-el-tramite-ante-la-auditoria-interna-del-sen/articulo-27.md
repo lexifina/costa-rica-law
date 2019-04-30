@@ -1,0 +1,2 @@
+Artículo 27: Responsabilidad de empaste
+Será responsabilidad de la persona encargada de llevar el libro a empastar, verificar que no se hayan desprendido hojas o alterado de cualquier manera la encuadernación o foliación de los libros. Si se comprueba alguna anomalía, la Auditoría Interna como encargada de la fiscalización deberá solicitar las razones por las cuales se incurrió en esta falta y si es el caso recomendar la apertura de un procedimiento administrativo que aclare lo sucedido.
