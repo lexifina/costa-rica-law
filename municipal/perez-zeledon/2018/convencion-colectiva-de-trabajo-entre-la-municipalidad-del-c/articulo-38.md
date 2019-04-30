@@ -1,0 +1,1 @@
+ARTICULO Nº 38. La Municipalidad reconocerá a los funcionarios el pago por Dedicación Exclusiva, de acuerdo con el título o grado académico que ostente el funcionario municipal y de acuerdo al Reglamento de Dedicación Exclusiva de esta Municipalidad, además del estudio técnico que demuestre la necesidad de aprovechar de manera exclusiva los servicios del funcionario.

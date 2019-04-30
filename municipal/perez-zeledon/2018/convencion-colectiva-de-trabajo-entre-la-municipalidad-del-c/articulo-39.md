@@ -1,0 +1,4 @@
+CAPITULO XI
+DE LA CARRERA TECNICA
+ARTICULO Nº 39. Con el fin de fortalecer los servicios que brinda la Municipalidad mediante la preparación y actualización técnica de los funcionarios municipales y potenciar el recurso humano existente en la institución, la Municipalidad se compromete a facilitar procesos de capacitación según las necesidades detectadas en diferentes áreas a solicitud de la jefatura inmediata, o bien por iniciativa del funcionario.
+La Municipalidad reconocerá la carrera técnica (no educación formal) a aquellos empleados que comprenden las clases administrativas, técnicas y operativas, que demuestren la acreditación de su preparación técnica acorde con las funciones a desempeñar según su puesto, para lo cual la Municipalidad en conjunto con los representantes sindicales elaborará el reglamento correspondiente.

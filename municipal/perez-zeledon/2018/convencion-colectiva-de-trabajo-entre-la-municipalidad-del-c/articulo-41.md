@@ -1,0 +1,1 @@
+ARTICULO Nº 41. Según la legislación vigente, todos los funcionarios, tendrán derecho a un sueldo adicional anual (aguinaldo), equivalente a la doceava parte del total de los salarios ordinarios y extraordinarios percibidos durante el periodo respectivo. Dicho beneficio será entregado a los funcionarios municipales a más tardar en la primera semana de diciembre de cada año.

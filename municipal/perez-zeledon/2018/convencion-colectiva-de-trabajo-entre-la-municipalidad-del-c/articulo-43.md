@@ -1,0 +1,2 @@
+ARTICULO Nº 43. A los servidores municipales se les reconocerá, para efectos de los aumentos anuales referidos a anualidades, el tiempo de servicios prestados en otras entidades del sector público de conformidad con la Ley N º 6835, del 22 de diciembre de 1982.
+Para estos efectos deberán acreditar ante el Proceso de Recursos Humanos, a través de certificación o documento idóneo, el tiempo de servicio prestado y la cantidad de anualidades a que tienen derecho, así como las evaluaciones de desempeño de los trabajos anteriores.

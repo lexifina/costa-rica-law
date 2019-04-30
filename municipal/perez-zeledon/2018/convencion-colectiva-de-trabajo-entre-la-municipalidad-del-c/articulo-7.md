@@ -1,0 +1,1 @@
+ARTICULO N º 7. Previa autorización y coordinación con la Alcaldía Municipal, SEMPeZ podrá utilizar en calidad de préstamo los activos municipales tales como mobiliario y equipo de oficina para la operación y el alcance de sus fines.

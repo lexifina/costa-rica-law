@@ -1,0 +1,1 @@
+ARTICULO Nº 36. La Municipalidad se compromete a presupuestar anualmente un O. 75% del presupuesto ordinario recursos propios, para el pago de todos los extremos laborales correspondientes, existirá, por parte de la Administración Municipal la obligatoriedad, una vez agotada esta partida y de haber algunas renuncias, proceder con la modificación presupuestaria respectiva.

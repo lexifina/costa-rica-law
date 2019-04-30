@@ -1,0 +1,1 @@
+ARTICULO Nº 25 .. La Municipalidad garantizará de conformidad con !a Ley No. 7600 la posibilidad e ingreso a las personas con discapacidad y el derecho de un empleo adecuado de acuerdo a sus condiciones y necesidades especiales.

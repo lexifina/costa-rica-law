@@ -1,0 +1,16 @@
+MUNICIPALIDAD DE PÉREZ ZELEDÓN
+MUNICIPALIDAD: La Municipalidad de Pérez Zeledón.
+SINDICATO: Sindicato de Empleados y Empleadas Municipales de Pérez Zeledón (SEMPeZ).
+PARTES: Las anteriormente citadas, o sea, la Municipalidad y el Sindicato. CONVENCION: El presente documento, con todas las cláusulas y anexos. REPRESENTANTES DE LA MUNICIPALIDAD: El Alcalde o quien este designe al efecto.
+REPRESENTANTES DE LOS TRABAJADORES: La Junta Directiva del Sindicato o una Comisión nombrada por ella.
+SUELDO O SALARIO: La remuneración total que recibe el trabajador a cambio de la labor prestada; incluye, según el caso: sueldo base, porcentaje de anualidades, aumento por ascenso, aumento por recargo de funciones, horas extraordinarias, descanso semanal, días feriados y cualquier otro ingreso que perciba el trabajador a cambio de los servicios prestados a la Municipalidad.
+SUELDO BASE: El establecido en ia Escala de Salarios, ei cuai no podrá ser menor al percentil aprobada por el Concejo Municipal de la Municipalidad de Pérez Zeledón en el momento de firma del presente convenio y en concordancia con lo establecido por la Unión Nacional de Gobiernos locales, como pago de la prestación de servicios al ingresar al desempeño de su cargo; fijado por jornada ordinaria de trabajo, y para el periodo de un mes calendario.
+RIESGO INMINENTE: Es aquella contingencia o fenómeno que amenace con materializarse en un futuro inmediato y que pone en peligro las personas o bines de la Institución.
+SITUACION FORTUITA: Es aquella situación imprevisible o que previsible es inevitable y que dé como consecuencia un daño en las personas o bienes de la Institución.
+COMISIÓN: Conjunto de personas que designen las partes para tratar los problemas a ellas encomendados, así como para elaborar cualquier anexo que convengan las partes para esta Convención.
+REPRESENTACIÓN: Posibilidad de elegir, mediante voto directo, al o a los representantes del Sindicato.
+CONFLICTO: Toda alteración del orden con serias proyecciones laborales, económicas y sociales, individuales o colectivas, cuya solución requiera la negociación ante las autoridades judiciales o las administrativas.
+TRABAJADOR: Toda persona física que preste sus servicios en forma personal y subordinada a la Municipalidad, a cambio de una remuneración.
+CARRERA TÉCNICA: Estudios que se cursan de manera corta y accesible, que permiten a! funcionario, una vez terminados sus estudios, desempeñarse de mejor manera y con mayor experiencia en su lugar de trabajo, mediante la adquisición y puesta en marcha de los conocimientos adquiridos.
+CAPÍTULO II: RECONOCIMIENTO DEL SINDICATO
+ARTICULO Nº 1. La Municipalidad reconoce a SEMPeZ, como la organización social que representa los intereses laborales, económicos y sociales de los trabajadores de la Municipalidad de Pérez Zeledón y se obliga a tratar con sus representantes los conflictos de índo!e laboral que se susciten durante la vigencia de esta Convención, ya sea de carácter individual o colectivo, lo anterior sin perjuicio del derecho que tienen las personas trabajadoras afiliadas a otra Organización Sindical distinta a la que suscribe la convención, para que estos puedan hacerse representar por la organización escogida.

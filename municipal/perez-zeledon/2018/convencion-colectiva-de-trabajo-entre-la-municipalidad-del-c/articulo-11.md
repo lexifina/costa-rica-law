@@ -1,0 +1,1 @@
+ARTICULO Nº 11. Para asistir a cursos, seminarios y congresos sindicales, dentro del país, la Municipalidad concederá permiso a no más de tres representantes de los trabajadores sindicalizados con goce íntegro de salario por tiempo máximo de cinco días. La licencia antes mencionada, deberá solicitarse por escrito y con no menos de cinco días hábiles de antelación.

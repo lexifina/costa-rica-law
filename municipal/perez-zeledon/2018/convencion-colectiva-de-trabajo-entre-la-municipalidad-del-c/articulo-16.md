@@ -1,0 +1,1 @@
+ARTÍCULO N º 16. La Municipalidad se compromete a desarrollar la formación académica de los trabajadores que en ella laboran y para tal fin elaborará un reglamento de mejoramiento académico, que lo hará en coordinación con el Departamento de Recursos Humanos.

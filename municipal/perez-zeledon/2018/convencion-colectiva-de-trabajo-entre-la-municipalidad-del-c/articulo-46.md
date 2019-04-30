@@ -1,0 +1,1 @@
+ARTICULO Nº 46. Sin excepción se prohíbe a todos los servidores(as) municipales el fumado en el centro de trabajo y lugares conexos o anexos y vehículos que los colaboradores utilicen en el desempeño de su labor.

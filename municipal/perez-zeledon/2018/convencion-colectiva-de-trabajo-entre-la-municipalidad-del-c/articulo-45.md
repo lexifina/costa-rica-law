@@ -1,0 +1,3 @@
+CAPITULO XIV
+PROHBICIÓN DE HOSTIGAR, DISCRIMINAR Y FUMAR EN LA INSTITUCIÓN
+ARTICULO Nº 45. Ambas partes se comprometen a respetar en el centro de trabajo los principios constitucionales del respeto por la libertad v la vida humana/ el derecho al trabajo y el principio de igualdad ante la ley, previniendo, prohibiendo y sancionando el hostigamiento sexual como práctica discriminatoria por razón de sexo, contra la dignidad de las mujeres y de los hombres en la Municipalidad, mediante el Reglamento Interno y Política Institucional para las denuncias de Hostigamiento Sexual de la Municipalidad de Pérez Zeledón.

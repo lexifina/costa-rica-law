@@ -1,0 +1,2 @@
+ARTICULO Nº 48. El incumplimiento de las disposiciones contenidas en el artículo 46 del presente capítulo será considerado, para efectos de sanción, como falta grave, conforme a lo establecido en Reglamento Autónomo de Organización y Servicios de esta Municipalidad, lo anterior sin menoscabo de las sanciones pecuniarias señaladas en el artículo 36 de la Ley Nº 9028.
+En lo no contemplado en este capítulo, procede aplicar lo establecido en la Ley Nº 9028, Ley General de Control del Tabaco y sus Efectos Nocivos en la Salud, y su Reglamento.

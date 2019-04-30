@@ -1,0 +1,2 @@
+Transitorio Único: Para el reconocimiento de la carrera Técnica establecida en el artículo 39, se otorga un plazo a la Municipalidad para que los recursos sean asignados dentro del Presupuesto Ordinario 2019; sin embargo, se aclara que la misma se reconocerá una vez aprobado el reglamento respectivo, no obstante, el pago no se realizará en forma retroactiva.
+En fe de lo anterior, firmamos en San Isidro de El General, a los seis días del mes de marzo del 2018.

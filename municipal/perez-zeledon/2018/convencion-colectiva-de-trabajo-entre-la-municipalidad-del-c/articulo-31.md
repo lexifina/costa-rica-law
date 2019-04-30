@@ -1,0 +1,12 @@
+CAPITULO VIII
+DE LA JORNADA DE TRABAJO Y DE LAS VACACIONES
+ARTICULO Nº 31. La jornada ordinaria de servicio y las extraordinarias, cuando procedan, se desarrollarán en las sedes que la Municipalidad señale de conformidad con los respectivos contratos de trabajo y de acuerdo con las necesidades de la Municipalidad de Pérez Zeledón.
+Jornada Ordinaria: La jornada de trabajo ordinaria para los trabajadores de la Municipalidad será continua acumulativa:
+Diurna: de hasta cuarenta y cuatro horas semanales, con un máximo de 9 horas diarias cuatro días y un día de 8 horas diarias, comprendidas entre las cinco horas y las diecinueve horas.
+Nocturna: de hasta treinta horas semanales, con un máximo de 6 horas diarias, comprendidas entre las diecinueve horas y las cinco horas.
+Mixta: hasta treinta y nueve horas semanales, con un máximo de 8 horas diarias cuatros días y un día de 7 horas diarias, comprendidas de la siguiente manera:
+Entre las quince horas y las veintidós horas.
+Entre las dos horas y las nueve horas.
+Jornada Extraordinaria: La jornada extraordinaria, sumada a la ordinaria, no podrá exceder de doce horas, salvo que por siniestro ocurrido o riesgo inminente peligren las personas, los establecimientos, las máquinas o instalaciones, los plantíos, los productos o cosechas y que, sin evidente perjuicio, no puedan sustituirse los trabajadores o suspenderse las labores de los que están trabajando.
+Con el afán de proteger la salud del trabajador, y evitar fluctuaciones constantes en los horarios, la Administración Municipal se compromete a establecer un horario fijo a los trabajadores, cumpliendo las jornadas diurna, nocturna y mixta, no obstante, el horario de trabajo establecido para los funcionarios municipales; podrá ser variado solo en la medida en que ello sea razonablemente necesario para una mejor prestación del ser,icio público, necesidad que debe ser debidamente acreditada y fundamentada con un estudio que demuestre la necesidad de realizar alguna variación en el horario.
+Se excluye de los alcances del presente artículo, a los colaboradores de la policía municipal, dada la naturaleza especial del ejercicio de sus funciones, los cuales deberán estar cobijados por los horarios del Reglamento para la administración y operación de los sistemas de estacionamiento autorizado en el cantón de Pérez Zeledón y el reglamento para la regulación de las funciones del servicio de control y seguridad ciudadana de la Municipalidad de Pérez Zeledón.

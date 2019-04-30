@@ -1,0 +1,1 @@
+ARTICULO Nº 19. En caso que, tanto la Caja Costarricense del Seguro Social como el Instituto Nacional de Seguros, deje de pagar las incapacidades correspondientes al trabajador, la Municipalidad le reconocerá al empleado accidentado o enfermo el 60% de su salario por concepto de su incapacidad durante el periodo de un año.
