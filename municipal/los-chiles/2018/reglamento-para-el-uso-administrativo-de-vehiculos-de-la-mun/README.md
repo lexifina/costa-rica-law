@@ -14,3 +14,4 @@ Reglamento para el uso administrativo de vehículos de la Municipalidad de los C
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-12-06 | la propia norma |
+| 2 | 2019-04-30 | Reglamento municipal 243 (2019-04-30) |

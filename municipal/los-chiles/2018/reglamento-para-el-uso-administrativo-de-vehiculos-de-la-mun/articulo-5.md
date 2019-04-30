@@ -5,9 +5,11 @@ Artículo 5º—Para los efectos del presente reglamento se clasifican los vehí
 5.1.2. Estarán sometidos a control de kilometraje y motivo del viaje, en cada recorrido o servicio que presten, mediante bitácora que será entregada mensualmente a la unidad de control o en el momento que esta se solicite.
 5.1.3. Al finalizar la jornada de trabajo deberán quedar estacionados en los lugares previamente establecidos por la institución, excepto en aquellos casos que autorizados por la Administración Municipal se permita el estacionamiento de los mismos en lugar diferente al establecido por la institución.
 5.1.4. En el caso de personas que desarrollen programas de apoyo a la Municipalidad y soliciten servicio de transporte, este podrá ser autorizado por la Administración Municipal, mediante un documento escrito.
-5.2. De uso administrativo particular: Tendrá un vehículo de uso administrativo particular el Alcalde Municipal, el que debe ser debidamente autorizado por acuerdo del Concejo Municipal, fundamentado en principios de seguridad, razonabilidad del uso, oportunidad y conveniencia y que bajo ninguna circunstancia debe considerarse como salario en especie.
-5.2.1. El uso de este tipo de vehículo no se ajustará a horarios establecidos o restricciones de funcionamiento o recorrido, por el tipo de funciones que desarrolla la Alcaldía Municipal.
-5.2.2. En el caso que el Concejo Municipal haya autorizado al Alcalde Municipal un vehículo de uso administrativo particular, las características y formas de uso las determinará el alcalde, bajo su criterio, en virtud de que este vehículo forma parte del recurso complementario asignado por la Municipalidad dentro de la relación de responsabilidad y obligaciones de ese puesto de los funcionarios:
+5.2. De uso administrativo y operativo: existirán vehículos de uso administrativo y operativo, los cuales se utilizarán dependiendo de las giras programadas.
+(Así reformado el inciso anterior en sesión N° 243 del 30 de abril de 2019)
+5.2.1. El uso de este tipo de vehículos no está sujeto a horarios establecidos, restricciones de funcionamiento, kilometrajes, cuando las giras o las labores así lo ameriten.
+(Así reformado el inciso anterior en sesión N° 243 del 30 de abril de 2019)
+5.2.2. (Derogado en sesión N° 243 del 30 de abril de 2019)
 6.1. Conducción del vehículo con el mayor cuidado y mantener una conducta seria y responsable.
 6.2. Acatar estrictamente las órdenes que se le giren en cuanto al uso del vehículo.
 6.3. Comunicar de inmediato a la Administración Municipal los daños que le suceden al vehículo durante su uso o los partes que por infracciones a las Leyes de Tránsito se le hayan aplicado. Si estas infracciones han sido producto de su culpa por negligencia, imprudencia e impericia será responsable del pago de los mismos mediante rebajó de salario o cuotas mensuales.
