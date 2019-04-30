@@ -1,0 +1,2 @@
+Artículo 22.—El cuidado y buen uso del uniforme es responsabilidad absoluta del funcionario, lo que significa que si por descuido u otra causa imputable al mismo, el uniforme se deteriora antes del año, la reparación o sustitución del mismo corre en su totalidad por parte del funcionario y de su propio peculio.
+La administración sólo repondrá por la sustitución de los uniformes en caso fortuito o fuerza mayor, debidamente acreditados ante el Comité.

@@ -1,0 +1,1 @@
+Artículo 9º—No tendrán derecho a uniforme los funcionarios que ocupen puestos en plazas de confianza, suplencias e interinos que tengan un período menor a los seis meses de manera consecutiva. Salvo que, mediante justificación escrita a la Dirección Administrativa, se plantee la necesidad de que uno de los funcionarios antes mencionados pueda recibir el beneficio.

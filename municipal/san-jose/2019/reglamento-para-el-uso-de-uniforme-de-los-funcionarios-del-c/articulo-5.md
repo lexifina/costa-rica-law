@@ -1,0 +1,1 @@
+Artículo 5º—Los funcionarios no deben exponer el uniforme institucional en redes sociales con imágenes que afecten negativamente a la Institución o de igual manera movilizarse con este a sitios ajenos a las instalaciones del Comité, donde puedan poner en riesgo la imagen institucional.

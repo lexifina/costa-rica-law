@@ -1,0 +1,1 @@
+Artículo 11.—El Jefe inmediato podrá conceder permiso para que en caso fortuito o fuerza mayor debidamente justificados, el funcionario se presente a laborar con ropa particular, haciéndolo con el adecuado decoro al vestir y apegados a los lineamientos descritos en el presente reglamento.

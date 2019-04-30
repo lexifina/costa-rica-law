@@ -1,0 +1,1 @@
+Artículo 8º—El Comité queda facultado para variar los colores y diseños de los uniformes en el momento que lo considere necesario o conveniente, con el fin de lograr mayor vistosidad y lucidez que contribuya a mejorar la imagen institucional y la de los trabajadores siempre y cuando ello no afecte el procedimiento de adquisición establecido para ello.
