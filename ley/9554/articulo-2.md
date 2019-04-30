@@ -1,0 +1,1 @@
+ARTICULO 2- El terreno por donar deberá ser destinado a la creación de un campo para la formación y la gestión de los programas de la Asociación beneficiaria y que resultaría en el acondicionamiento de zonas verdes para las actividades formativas de esta, así como en la construcción de sus oficinas • administrativas.
