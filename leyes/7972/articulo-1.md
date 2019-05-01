@@ -11,7 +11,7 @@ Porcentaje de alcohol por volumen | Impuesto (colones por mililitro de alcohol a
 Hasta 15% | 3,35
 Más de 15% y hasta 30% | 4,02
 Más de 30% | 4,68
-(Los montos de este impuesto fueron actualizados mediante el artículo 1º de la resolución N° RES-DGH-001 del 8 de enero del 2019, mediante un ajuste de uno coma cero uno por ciento (1,01%))
+(Los montos de este impuesto fueron actualizados mediante el artículo 1º de la resolución N° RES-DGH-024-2019 del 5 de abril del 2019, mediante un ajuste menos cero coma cero uno por ciento (-0,01%))
 Este impuesto no se aplicará a las bebidas de producción nacional destinadas a la exportación.
 (Así reformado por el artículo 1° de la Ley N° 8399 de 19 de diciembre de 2003).
-NOTA DE SINALEVI: Mediante el artículo N° 3 de la Ley 8399 de 19 de diciembre de 2003, se exonera del pago de este impuesto el vino utilizado para el ritual de la consagración de la Iglesia Católica. Asimismo, sobre la actualización de este impuesto véase el Transitorio Único de la ley referida)
+NOTA DE SINALEVI: Mediante el artículo N° 3 de la Ley 8399 de 19 de diciembre de 2003, se exonera del pago de este impuesto el vino utilizado para el ritual de la consagración de la Iglesia Católica. Asimismo sobre la actualización de este impuesto véase el Transitorio Único de la ley referida)
