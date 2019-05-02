@@ -13,3 +13,4 @@ Colaboración a las servidoras y servidores de la Dirección de Serivicios Gener
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-08-05 | la propia norma |
+| 2 | 2019-05-02 | Circular 69 (2019-05-02) |

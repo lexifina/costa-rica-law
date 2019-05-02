@@ -4,5 +4,6 @@ A TODOS LOS JUZGADOS DE TRÁNSITO
 Y CONTRAVENCIONALES DE MENOR
 CUANTÍA DEL PAÍS
 SE LES HACE SABER QUE:
-El Consejo Superior en sesión N° 71-13, celebrada el 16 de junio de 2013, artículo LXXXVI, acordó comunicarles que deben colaborar con las servidoras y servidores del Proceso de Accidentes de la Dirección de Servicios Generales y Transportes del Ministerio de Obras Públicas y Transportes, debidamente identificados con el carné institucional, en el original y copia del poder especial judicial administrativo emitido por el señor Ministro, cuando se presenten a realizar las diligencias que correspondan a sus funciones.
+El Consejo Superior en sesión N° 71-13, celebrada el 16 de junio de 2013, artículo LXXXVI, acordó comunicarles que deben colaborar con las servidoras y servidores del Proceso de Accidentes de la Dirección de Servicios Generales y Transportes del Ministerio de Obras Públicas y Transportes, debidamente identificados con el carné institucional, en el original y copia del poder especial judicial administrativo emitido por el señor Ministro, cuando se presenten a realizar las diligencias que correspondan a sus funciones, lo anterior con la finalidad de que, si es requerido, aporten los demás documentos necesarios, ante las autoridades judiciales del país.
+(Así reformado el párrafo anterior mediante circular N° 69-2019 del 2 de mayo del 2019)
 San José, 5 de agosto del 2013.
