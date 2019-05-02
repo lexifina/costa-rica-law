@@ -48,3 +48,4 @@ Reglamento para el Sistema de Ahorro y Préstamo del Instituto Nacional de Vivie
 | 33 | 2014-03-18 | Reglamento 6035 (2014-03-18) |
 | 34 | 2015-06-18 | Reglamento 6129 (2015-06-18) |
 | 35 | 2017-07-28 | Reglamento 6271 (2017-07-28) |
+| 36 | 2019-05-02 | Reglamento 6378 (2019-05-02) |
