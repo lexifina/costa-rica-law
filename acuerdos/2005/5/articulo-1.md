@@ -24,12 +24,14 @@ Sector del estero/manglar Camaronal
 205450 N -377540 E y 205450 N -377400 E
 (10 mojones, enumerados del 549 al 558)
 Sector costero de Playa Camaronal
+(Nota de Sinalevi: Mediante el artículo 3° del acuerdo N° 2019-04 del 2 de mayo del 2019, publicado en La Gaceta N° 93 del 21 de mayo del 2019, se establece eliminar los mojones enumerados del M549 al M557)
 205450 N- 377400 E y 205450 N-377200 E
 (5 mojones, enumerados del 559 al 563)
 Sector del estero/manglar Camaronal
 205450 N- 377200 E y 205600 N-377000 E
 (18 mojones, enumerados del 564 al 581)
 Sector del estero/manglar Río Ora
+(Nota de Sinalevi: Mediante el artículo 3° del acuerdo N° 2019-04 del 2 de mayo del 2019, publicado en La Gaceta N° 93 del 21 de mayo del 2019se establece eliminar los mojones enumerados del M568 al M578)
 205600 N- 377000 E y 206100 N-377050 E
 (13 mojones, enumerados del 582 al 594)
 Los datos técnicos oficiales del trabajo han quedado registrados con el N° 16 en el Registro de Zona Marítima Terrestre IGN.

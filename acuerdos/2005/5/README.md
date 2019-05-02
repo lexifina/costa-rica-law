@@ -14,3 +14,4 @@ Amojonamiento de zona pública en un sector costero de Playa Camaronal y del est
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-12-13 | la propia norma |
+| 2 | 2019-05-02 | Acuerdo 4 (2019-05-02) |
