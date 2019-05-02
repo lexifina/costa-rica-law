@@ -1,1 +1,0 @@
-Artículo 4º—La ejecución del gasto corresponderá a la adquisición de bienes y servicios por montos que no superen el máximo establecido en el artículo 22. De los bienes que se adquieran no debe haber existencias en la Proveeduría.

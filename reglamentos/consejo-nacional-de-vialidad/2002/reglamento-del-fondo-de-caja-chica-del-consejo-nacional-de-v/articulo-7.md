@@ -1,1 +1,0 @@
-Artículo 7º—En la Tesorería del CONAVI deberá existir un registro actualizado de las firmas de los funcionarios autorizados para aprobar los documentos para el pago de bienes, servicios, adelantos y liquidaciones.
