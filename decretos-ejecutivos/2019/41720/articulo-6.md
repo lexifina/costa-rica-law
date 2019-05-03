@@ -1,0 +1,1 @@
+Artículo 6º—Recursos. Las cooperativas podrán plantear recurso ordinario de revocatoria ante la Dirección Ejecutiva del INFOCOOP y recurso ordinario de apelación ante la Junta Directiva del INFOCOOP, de acuerdo con lo dispuesto en el Título Octavo de la Ley General de la Administración Pública.

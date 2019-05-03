@@ -1,0 +1,1 @@
+Artículo 15—Observadores del cumplimiento de la clasificación oficial. La Junta Directiva del INFOCOOP designará observadores en las elecciones del CONACOOP, con el fin de garantizar el respeto e inmutabilidad de la clasificación oficial señalada en el artículo 3º del presente Decreto.

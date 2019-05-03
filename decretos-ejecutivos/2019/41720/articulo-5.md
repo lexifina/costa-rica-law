@@ -1,0 +1,1 @@
+Artículo 5º— Inmutabilidad de la clasificación oficial. La clasificación oficial de cooperativas emitida por INFOCOOP será definitiva e inmutable, salvo rectificaciones posteriores extendidas por el mismo ente.
