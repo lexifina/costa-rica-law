@@ -14,3 +14,4 @@ Reglamento General del Plan regulador
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-04-02 | la propia norma |
+| 2 | 2019-05-03 | Reglamento municipal 0 (2019-05-03) |
