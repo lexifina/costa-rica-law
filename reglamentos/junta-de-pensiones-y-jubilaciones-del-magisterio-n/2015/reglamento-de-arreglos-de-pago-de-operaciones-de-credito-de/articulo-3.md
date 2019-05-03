@@ -9,4 +9,5 @@ Artículo 3º—Definiciones: A continuación, se brinda una serie de definicion
 - Sujeto de negociación: es todo afiliado de la Junta, deudor, codeudor, fiador o interesado en asumir una negociación de pago, independientemente que incumpliere las condiciones originalmente pactadas.
 - Mora: es el incumplimiento del pago de capital, pólizas, cargos e intereses en las fechas establecidas según las responsabilidades pactadas en la formalización del crédito.
 - Interés corriente vencido: cargo financiero que devenga un principal otorgado en un crédito durante determinado tiempo, el cual no es cancelado en el tiempo establecido.
-- Interés moratorio: corresponde a la tasa de interés establecida en un crédito, como penalidad por el monto en mora adeudado en un periodo determinado.
+-: Interés moratorio: corresponde a la tasa de interés que devengan las amortizaciones atrasadas del interés principal de un crédito.
+(Así reformada la definición anterior mediante sesión N° 0050-2019 del 3° de mayo de 2019)

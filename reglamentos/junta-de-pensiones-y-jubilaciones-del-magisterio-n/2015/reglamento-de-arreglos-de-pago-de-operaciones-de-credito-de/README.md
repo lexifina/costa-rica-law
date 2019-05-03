@@ -15,3 +15,4 @@ Reglamento de Arreglos de Pago de Operaciones de Crédito de la Junta de Pension
 | --- | --- | --- |
 | 1 | 2015-11-27 | la propia norma |
 | 2 | 2017-10-23 | Reglamento 118 (2017-10-23) |
+| 3 | 2019-05-03 | Reglamento 50 (2019-05-03) |
