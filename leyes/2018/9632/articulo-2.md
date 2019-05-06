@@ -5,3 +5,5 @@ Artículo 2°: Apruébanse los siguientes Egresos Ordinarios y Extraordinarios d
 (Así reformado por el artículo 2° de la ley N° 9674 del 18 de marzo del 2019)
 (Así reformado por el artículo 3° de la ley N° 9674 del 18 de marzo del 2019)
 (Modificado por el artículo 1° del decreto ejecutivo N° 41651 del 4 de abril del 2019)
+(Así reformado por el artículo 2° de la ley N° 9679 del 10 de abril del 2019)
+(Así reformado por el artículo 3° de la ley N° 9679 del 10 de abril del 2019)
