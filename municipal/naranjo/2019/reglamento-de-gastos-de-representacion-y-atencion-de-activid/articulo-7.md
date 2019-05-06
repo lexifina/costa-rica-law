@@ -1,0 +1,1 @@
+Artículo 7°—Disponibilidad presupuestaria: es requisito esencial para el reconocimiento de gastos de representación y atención de actividades oficiales, contar con la partida presupuestaria correspondiente en el presupuesto institucional. La suma será fijada por el Concejo Municipal, asignada a la partida de servicios no personales de la Administración Superior.

@@ -1,0 +1,1 @@
+Artículo 4°—Oficialidad de los eventos. Para los efectos del presente Reglamento, se entenderán como oficiales, todas aquellas actividades dentro del país en las que la Municipalidad figure como anfitriona y las que se realicen en el exterior siempre que el Concejo Municipal haya acordado previamente la participación oficial en representación de la Municipalidad de Naranjo.
