@@ -1,1 +1,0 @@
-Artículo 8º—Los interesados retiraran y entregaran el formulario de becas en la Comisión de Becas ubicada en el Palacio Municipal en las fechas que se disponga por acuerdo municipal; para lo cual anualmente la Comisión de Becas redactará el respectivo aviso para la debida información al público.

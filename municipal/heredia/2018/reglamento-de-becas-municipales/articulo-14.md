@@ -1,1 +1,0 @@
-Artículo 14.—No podrá ser becado municipal quien ayude o beque el Estado, Ministerio de Educación Pública, u otra persona o institución pública o privada, a excepción de los casos de beca para matricula. El Concejo Municipal valorará aquellos casos excepcionales en que se busque la protección o tutela especial del menor.

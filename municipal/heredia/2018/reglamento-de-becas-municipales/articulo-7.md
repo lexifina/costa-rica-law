@@ -1,1 +1,0 @@
-Artículo 7º—Para cada participante la Comisión de Becas abrirá un expediente en el que deberá aparecer la siguiente documentación: Formulario debidamente completo por el encargado con los requisitos que indique el formulario.
