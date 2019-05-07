@@ -14,3 +14,4 @@ Nombra miembros de la Junta Médica Calificadora de la incapacidad para el traba
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-05-28 | la propia norma |
+| 2 | 2019-05-07 | Decreto Ejecutivo 41736 (2019-05-07) |
