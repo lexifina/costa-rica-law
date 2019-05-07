@@ -1,0 +1,1 @@
+Transitorio IV. Las instancias del MINAE que conforman el CTC - SIR.EA contarán con un plazo de quince días a partir de la publicación de este. Reglamento en el Diario Oficial La Gaceta, para realizar el nombramiento de sus representantes (titular y suplente).

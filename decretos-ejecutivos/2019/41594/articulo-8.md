@@ -1,0 +1,1 @@
+Artículo 8°- Convocatoria al proceso de incorporación de un reconocimiento al SIREA. Durante todo el año la CTC del SIREA, recibirá solicitudes de aquellos organizadores para la incorporación de sus reconocimientos ambientales al sistema por medio del formulario indicado en el artículo 9° inciso a) de este Reglamento.

@@ -1,0 +1,1 @@
+Transitorio II. El MINAE contará con un plazo máximo de seis meses a partir de la publicación de este Reglamento en el Diario Oficial La Gaceta, para emitir la resolución administrativa que se hace mención en el artículo 18 º de este Reglamento referente al derecho y uso del distintivo del SIR.EA y su alcance.

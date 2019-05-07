@@ -1,0 +1,2 @@
+Artículo 17º- Vigencia de la incorporación del reconocimiento. Una vez que el reconocimiento se haya incorporado al SIREA, el plazo de permanencia de éste dentro del sistema, será de cinco años, siempre y cuando cumpla con lo establecido en el presente Reglamento y en los instrumentos de evaluación. Para estos efectos la CTC-SIREA estará facultada para realizar evaluaciones periódicas posteriores a su incorporación en aras de verificar dicho cumplimiento.
+En caso de incumplimiento se excluirá el reconocimiento del sistema, previo seguimiento del debido proceso.
