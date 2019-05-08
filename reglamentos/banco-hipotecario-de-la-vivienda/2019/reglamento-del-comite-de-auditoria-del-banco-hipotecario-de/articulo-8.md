@@ -1,0 +1,1 @@
+Artículo 8º—Quórum y toma de decisiones: El Comité sesionará válidamente con la asistencia de la mayoría simple de la totalidad de sus miembros y las decisiones serán recomendaciones para la Administración, la Auditoría Interna y la Junta Directiva.

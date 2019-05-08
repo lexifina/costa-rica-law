@@ -1,0 +1,4 @@
+Artículo 2º—Gestión: El Comité proporciona a la Junta Directiva, responsable del diseño, operación y control del sistema de control interno, una adecuada visión del funcionamiento de dicho sistema y el ámbito donde deben canalizarse las propuestas de mejoramiento y fortalecimiento de las distintas áreas operativas de la entidad y de ella en su conjunto.
+El Comité es el encargado de coordinar las actividades entre los distintos órganos integrantes del Sistema de Control, evitando la superposición o reiteración de procedimientos de los entes constituidos a tal efecto, con miras a obtener una utilización racional de los recursos.
+Es inherente al desarrollo de sus funciones el hacer, conocer y reconocer en todo el ámbito de la organización el respaldo a la labor de la Auditoría Interna, en cuanto a la naturaleza y alcance de su misión.
+La formación del Comité de Auditoría no sustituye la responsabilidad de los encargados de supervisión.

@@ -1,0 +1,2 @@
+Artículo 6º—Sesiones: Las sesiones del Comité son de dos clases: ordinarias y extraordinarias. Las sesiones ordinarias son las que se desarrollan periódicamente dentro del cronograma establecido por el mismo comité, al menos bimensualmente y en una fecha y hora prefijadas por sus miembros.
+Podrán participar en las sesiones del Comité de Auditoría sin derecho a voto, el Gerente General, Subgerentes, el Auditor Interno, y los funcionarios que el Comité de Auditoría considere necesarios. También podrá participar el auditor externo cuando así lo requiera el Comité.
