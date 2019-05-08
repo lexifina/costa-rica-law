@@ -80,6 +80,7 @@ Subespecialidad de la Radioterapia. Artículo No. 134 |
 Radioterapia Pediátrica. | Artículo No. 135 |
 Subespecialidades de la Urología. Artículo No. 136 |
 Urología Pediátrica Ginecología Urológica (Así adicionada la subespecialidad anterior mediante sesión ordinaria 2015-08-12 del 12 de agosto de 2015) | Artículo No. 137 |
+Urología oncológica (Así adicionada la subespecialidad anterior mediante sesión ordinaria 2019-05-08 del 8 de mayo del 2018) | Artículo N° 156 (Así adicionado el requisito anterior mediante sesión ordinaria 2019-05-08 del 8 de mayo del 2018) |
 Subespecialidad de la Neurocirugía, Neurología y Artículo No. 138 Radiología e Imágenes Médicas. |
 Neuroradiología Quirúrgica Endovascular Subespecialidad en Medicina Familiar (Así adicionada la subespecialidad anterior mediante sesión ordinaria N° 2016-07-20 del 20 de julio del 2016) Medicina adolescente (Así adicionada la subespecialidad anterior mediante sesión ordinaria N° 2016-07-20 del 20 de julio del 2016) | Artículo No. 139 Artículo 144 (Así adicionado el punto anterior mediante sesión ordinaria N° 2016-07-20 del 20 de julio del 2016) Artículo 145 (Así adicionado el punto anterior mediante sesión ordinaria N° 2016-07-20 del 20 de julio del 2016) |
 | | | |

@@ -1,7 +1,8 @@
-Artículo 137.—Subespecialidades de la Urología. Se reconocen como subespecialidades de la Urología a las siguientes:
+Artículo 137.—Subespecialidades de la Urología. Se reconocen como Subespecialidades de la Urología las siguientes:
 a. Urología Pediátrica.
 b. Ginecología Urológica.
-(Así reformado mediante sesión ordinaria N° 2015-08-12 del 12 de agosto del 2015)
+c. Urología Oncológica.
+(Así reformado en sesión ordinaria 2019-05-08 del 08 de mayo del 2019)
 (Mediante sesión ordinaria N° 2015-08-12 del 12 de agosto del 2015 se establecen los siguientes requisitos específicos para la subespecialidad de Ginecología Urológica: Artículo. Ginecología Urológica. Se reconocen como sinónimos de la Subespecialidad en Ginecología Urológica los siguientes términos:
 • Urología Ginecológica.
 • Uroginecología.
