@@ -1,0 +1,2 @@
+Artículo 7º—Libre acceso a la información. Es de interés público la información relacionada con el ingreso, la presupuestación, la custodia, la fiscalización, la administración, la inversión y el gasto de los fondos públicos, así como la información necesaria para asegurar la efectividad de la presente Ley, en relación con hechos y conductas de los funcionarios públicos.
+No obstante, la Contraloría General de la República solo podrá revisar documentos de carácter privado según lo dispuesto en el artículo 24 de la Constitución Política y en el artículo 11 de la presente Ley.

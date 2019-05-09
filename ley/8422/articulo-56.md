@@ -1,0 +1,1 @@
+Artículo 56.—Reconocimiento ilegal de beneficios laborales. Será penado con prisión de tres meses a dos años, el funcionario público que, en representación de la Administración Pública y por cuenta de ella, otorgue o reconozca beneficios patrimoniales derivados de la relación de servicio, con infracción del ordenamiento jurídico aplicable.

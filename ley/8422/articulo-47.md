@@ -1,0 +1,2 @@
+Artículo 47.—Receptación, legalización o encubrimiento de
+bienes. Será sancionado con prisión de uno a ocho años, quien oculte, asegure, transforme, invierta, transfiera, custodie, administre, adquiera o dé apariencia de legitimidad a bienes o derechos, a sabiendas de que han sido producto del enriquecimiento ilícito o de actividades delictivas de un funcionario público, cometidas con ocasión del cargo o por los medios y las oportunidades que este le brinda.

@@ -1,0 +1,3 @@
+CAPÍTULO V
+Delitos
+Artículo 45.—Enriquecimiento ilícito. Será sancionado con prisión de tres a seis años quien, aprovechando ilegítimamente el ejercicio de la función pública o la custodia, la explotación, el uso o la administración de fondos, servicios o bienes públicos, bajo cualquier título o modalidad de gestión, por sí o por interpósita persona física o jurídica, acreciente su patrimonio, adquiera bienes, goce derechos, cancele deudas o extinga obligaciones que afecten su patrimonio o el de personas jurídicas, en cuyo capital social tenga participación ya sea directamente o por medio de otras personas jurídicas.
