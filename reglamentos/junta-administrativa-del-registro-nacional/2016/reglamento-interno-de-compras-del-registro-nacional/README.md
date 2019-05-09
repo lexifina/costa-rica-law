@@ -14,3 +14,4 @@ Reglamento Interno de Compras del Registro Nacional
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-06-09 | la propia norma |
+| 2 | 2019-05-09 | Reglamento 18 (2019-05-09) |
