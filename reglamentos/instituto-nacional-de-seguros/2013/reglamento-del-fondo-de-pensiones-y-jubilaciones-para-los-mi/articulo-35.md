@@ -1,4 +1,4 @@
-CAPÍTULO VIII
-Otros beneficios
-Artículo 35.—Al ocurrir la defunción del bombero que se hallase disfrutando de la pensión al amparo del presente Reglamento, el Fondo otorgará contribución hasta por Ciento cincuenta mil (¢150.000.00) para sufragar sus gastos mortuorios. También concederá beneficio hasta igual monto y concepto, al morir la cónyuge o compañera del bombero pensionado.
-Esta ayuda se reconocerá a quien demuestre haber incurrido con dichos gastos, para ello deberá presentar factura timbrada cancelada.
+CAPITULO IX
+COBERTURA EN EL REGIMEN DE ENFERMEDAD Y MATERNIDAD
+Artículo 35: Los bomberos pensionados del Fondo, indispensablemente, deberán continuar amparados y cubiertos por el Régimen de Enfermedad y Maternidad que administra la Caja Costarricense de Seguro Social.
+Del importe mensual de pensión que se pague a cada bombero, el Instituto deberá retener el importe correspondiente a "cuota obrera", haciéndose el pago de la "cuota patronal" contra los gastos generales del Instituto. Para los efectos de este artículo, el Instituto en forma mensual girará a la Caja las sumas que recaude.

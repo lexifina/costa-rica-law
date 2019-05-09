@@ -1,1 +1,1 @@
-Artículo 17.—No tendrá derecho a pensión la excónyuge sobreviviente, divorciada o separada judicialmente o la excompañera de hecho que a la fecha del fallecimiento del bombero no disfrute de una pensión alimentaria otorgada por sentencia judicial firme.
+Artículo 17: Si la excónyuge o excompañera de hecho, recibiera pensión alimentaria, tendrá derecho a la pensión que por esta normativa se reglamenta, siempre que no existiera viuda con mejor derecho por matrimonio vigente a la fecha de fallecimiento del bombero o compañera en relación de hecho vigente a esa fecha.

@@ -1,4 +1,4 @@
-Artículo 44.—La situación financiera del Fondo se establecerá al 31 de diciembre de cada año, de conformidad con las normas siguientes:
-a. Las cuentas individuales de los miembros del Fondo y del Instituto deben indicar, separadamente, la suma total de los aportes hechos por ellos y los intereses percibidos como producto de las inversiones de los respectivos fondos.
-b. Esas mismas cuentas deben indicar las devoluciones hechas por concepto de separación del servicio del Instituto.
-c. El patrimonio del Fondo deberá estar constituido por el total de saldos de las respectivas cuentas individuales al final del año calendario.
+CAPITULO XIII
+ADMINISTRACIÓN DEL FONDO
+Artículo 44: El Fondo será administrado como parte de las operaciones normales del Instituto que sufragará todos los gastos que demande su eficiente administración y dará las facilidades del caso para su correcta y eficaz aplicación.
+Corresponderá a las autoridades administrativas del Instituto a través de la Junta Administradora, nombrada por la Gerencia, disponer lo conducente a la distribución del trabajo, forma de operación y similares.

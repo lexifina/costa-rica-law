@@ -1,4 +1,6 @@
-CAPÍTULO XIV
-Disposiciones Generales
-Artículo 53.—Es obligación de cada uno de los miembros del Fondo y beneficiarios, cuando corresponda, comprobar a satisfacción de la Junta Administradora, su fecha de nacimiento y cualquiera otra condición en que apoye su derecho.
-La falta de cumplimiento de este requisito ocasionará la suspensión de todos los beneficios que puedan corresponder de conformidad con el presente Reglamento.
+Artículo 53. Conformación del Comité de Inversiones del Fondo de Pensiones de Bomberos:
+a. Subgerente General (a cargo de la parte Financiera).
+b. Asistente de Gerencia
+c. Miembro Externo.
+El Comité estará constituido por:
+El Subgerente General (a cargo de la parte Financiera) preside el Comité y en su ausencia la presidencia será ejercida por el Asistente de Gerencia.

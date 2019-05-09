@@ -1,3 +1,5 @@
-CAPÍTULO XI
-Separación del servicio y reingreso
-Artículo 39.—Al ocurrir la separación del servicio del Instituto de un bombero por causas diferentes a las contingencias cubiertas bajo el presente Reglamento, el Fondo traspasará a la Caja Costarricense de Seguro Social, el monto de las cuotas obrero patronales y del Estado que como tal correspondan al bombero que deja el servicio y que no fueron pagadas a la Caja durante todo el tiempo que fue miembro del Fondo, a fin de que esta Institución le acredite esas cuotas en el Régimen de Invalidez, Vejez y Muerte. Si hubiere algún sobrante en la cuenta individual del bombero después de hacer esta aplicación, le será entregado a éste.
+CAPITULO XII
+BASES FINANCIERAS
+Artículo 39: Las contribuciones para sufragar los beneficios del Fondo se harán por los miembros y por el Instituto en la forma siguiente:
+a. Todo miembro del fondo contribuirá con el doce punto cinco por ciento (12.5%)del sueldo que perciba en el Instituto, que le será deducido mensualmente.
+b. Fijar la participación del Instituto en 37.5% sobre los salarios de los bomberos adscritos al Régimen de Pensiones de Bomberos y aportar el mismo porcentaje sobre los montos de renta que perciben los pensionados actuales y futuros. Esta obligación será cubierta con la reserva de la NIC-19 (Norma Internacional de Contabilidad) en un solo aporte; así solo en caso de déficit el Instituto realizaría aportes adicionales que actuarialmente se determine.

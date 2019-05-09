@@ -1,1 +1,3 @@
-Artículo 22.—Se reconocerá como compañera de hecho a la mujer con aptitud legal para contraer matrimonio, que hubiere convivido con el bombero fallecido, quien también debía contar con aptitud legal para contraer matrimonio, por lo menos durante tres años antes de su deceso, y que dicha relación haya cumplido con los presupuestos que dispone el artículo 242 y siguientes del Código de Familia. Para tales efectos la interesada deberá presentar sentencia en firme, del Juzgado de Familia, reconociéndose la relación de hecho.
+Sección III
+De los hijos(as)
+Artículo 22: En ausencia de los beneficiarios contemplados en la Sección II de este Capítulo, tendrán derecho a pensión los hijos(as) del bombero fallecido, de conformidad con el artículo 12 del presente Reglamento.

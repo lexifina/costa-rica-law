@@ -1,7 +1,3 @@
-Artículo 38.—El pago de la pensión termina cuando se presente alguna de las siguientes circunstancias:
-a. La muerte del beneficiario.
-b. La presunción de ausencia del beneficiario.
-c. El levantamiento del estado de invalidez por dictamen médico motivado.
-d. El cumplimiento de la edad establecida para los hijos.
-e. La conclusión de los estudios.
-f. El matrimonio o la Unión de hecho del beneficiario en el caso de los causa-habientes.
+CAPITULO XI
+SEPARACIÓN DEL SERVICIO Y REINGRESO
+Artículo 38: Al ocurrir la separación del servicio del Instituto de un bombero por causas diferentes a las contingencias cubiertas bajo el presente Reglamento, el Fondo traspasará a la Caja Costarricense de Seguro Social, el monto de las cuotas obrero patronales y del Estado que como tal correspondan al bombero que deja el servicio y que no fueron pagadas a la Caja durante todo el tiempo que fue miembro del Fondo, a fin de que esta Institución le acredite esas cuotas en el Régimen de Invalidez, Vejez y Muerte. Si hubiere algún sobrante en la cuenta individual del bombero después de hacer esta aplicación, le será entregado a éste.

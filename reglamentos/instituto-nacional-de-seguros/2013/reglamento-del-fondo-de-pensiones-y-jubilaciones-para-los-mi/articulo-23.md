@@ -1,3 +1,1 @@
-Sección III
-De los hijos
-Artículo 23.—En ausencia de los beneficiarios contemplados en la Sección II de este Capítulo, tendrán derecho a pensión los hijos del bombero fallecido, de conformidad con el artículo 12 del presente Reglamento.
+Artículo 23: La pensión que corresponda a cada hijo(a) será igual al treinta por ciento (30%) de la que le correspondería al bombero al momento de ocurrir su muerte, o de la que ya disfrutaba al sobrevenirle ésta.

@@ -1,1 +1,1 @@
-Artículo 41.—Los aportes de los miembros del Fondo deberán registrarse en cuentas individuales para cada uno de ellos y devengarán intereses de acuerdo con el comportamiento del mercado de valores.
+Artículo 41: Los aportes del Instituto se deben registrar en los auxiliares que administra la Junta Administradora, en una cuenta de fondo común, distinta de los miembros del Fondo. Similar tratamiento se debe dar a los rendimientos netos que generen las inversiones de dicho aporte.

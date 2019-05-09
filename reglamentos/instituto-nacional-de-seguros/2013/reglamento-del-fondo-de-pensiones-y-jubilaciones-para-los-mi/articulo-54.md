@@ -1,4 +1,3 @@
-Artículo 54.—Los pagos que deban efectuarse a los miembros o beneficiarios del Fondo empiezan a hacerse efectivos 60 días naturales después de haber cumplido los siguientes requisitos:
-a. Haber adquirido el derecho de acuerdo con el presente Reglamento.
-b. Haber presentado solicitud de acogimiento de pensión formalmente a la Junta Administradora.
-c. Y que exista acuerdo de la Junta Administradora avalando la solicitud de pensión o traslado.
+CAPITULO XV
+DISPOSICIONES GENERALES
+Artículo 54: Es obligación de cada uno de los miembros del Fondo y beneficiarios(as), cuando corresponda, comprobar a satisfacción de la Junta Administradora, su fecha de nacimiento y cualquiera otra condición en que apoye su derecho. La falta de cumplimiento de este requisito ocasionará la suspensión de todos los beneficios que puedan corresponder de conformidad con el presente Reglamento.

@@ -1,2 +1,1 @@
-Artículo 50.—La Junta Administradora mantendrá invertidos los recursos del Fondo y sus intereses, en cuentas propias, de la forma cuidadosa, rentable y segura que exige su naturaleza.
-La responsabilidad por la gestión y la obligación de suministrar información requerida por la SUPEN siempre recaerá en la Junta Administradora.
+Artículo 50: Anualmente o cuando así lo requiera la Administración Superior o el ente de supervisión externa, la Junta Administradora deberá rendir a la Gerencia del Instituto un informe sobre las operaciones efectuadas en el período, acompañado de los respectivos estados de contabilidad.

@@ -1,4 +1,3 @@
-CAPÍTULO IX
-Cobertura en el Régimen de Enfermedad y Maternidad
-Artículo 36.—Los bomberos pensionados del Fondo, indispensablemente, deberán continuar amparados y cubiertos por el Régimen de Enfermedad y Maternidad que administra la Caja Costarricense de Seguro Social.
-Del importe mensual de pensión que se pague a cada bombero, el Instituto deberá retener el importe correspondiente a “cuota obrera”, haciéndose el pago de la “cuota patronal” contra los gastos generales del Instituto. Para los efectos de este artículo, el Instituto en forma mensual girará a la Caja las sumas que recaude.
+CAPITULO X
+SUSPENSIÓN O TÉRMINO DE LA PENSIÓN
+Artículo 36: El pago de la pensión por concepto de invalidez, será suspendido cuando el beneficiario directo o causa-habiente, desacaten lo establecido en el artículo 10 del presente Reglamento, y será restablecida hasta que el pensionado cumpla nuevamente con su obligación, en cuyo caso el Instituto no estará obligado a reconocer las sumas dejadas de pagar por culpa del pensionado.

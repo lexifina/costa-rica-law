@@ -1,1 +1,2 @@
-Artículo 49.—Una vez liquidadas todas las obligaciones que tuviera el Fondo cualquier remanente que se presentara será trasladado a las arcas del Instituto como patrocinador del Régimen.
+Artículo 49: La Junta Administradora mantendrá invertidos los recursos del Fondo y sus intereses, en cuentas propias, de la forma cuidadosa, rentable y segura que exige su naturaleza.
+La responsabilidad por la gestión y la obligación de suministrar información requerida por la SUPEN siempre recaerá en la Junta Administradora.
