@@ -1,1 +1,0 @@
-Artículo 24.—EI Auditor y el Subauditor Internos serán profesionales altamente capacitados en materia de auditoría, que reúnan los conocimientos, experiencia, actitudes, aptitudes, habilidades para administrar la Auditoría Interna.

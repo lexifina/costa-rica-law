@@ -1,1 +1,0 @@
-Artículo 51.—Los estudios especiales de auditoría estarán encaminados al examen de aspectos específicos de orden presupuestario, legal o reglamentario, y serán realizados a solicitud de la Junta Administrativa, de la Contraloría General de la República, de oficio o por denuncias recibidas.

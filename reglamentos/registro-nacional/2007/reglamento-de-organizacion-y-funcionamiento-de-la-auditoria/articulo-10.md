@@ -1,1 +1,0 @@
-Artículo 10.—El Auditor Interno, el Subauditor Interno y los funcionarios de la Auditoría Interna deben velar porque no se presenten conflictos de intereses al asesorar o prestar servicios distintos de la fiscalización a la Entidad, y que dichos servicios o asesoramiento no incluyan responsabilidades o facultades de gestión, que debe continuar desempeñando la Administración.

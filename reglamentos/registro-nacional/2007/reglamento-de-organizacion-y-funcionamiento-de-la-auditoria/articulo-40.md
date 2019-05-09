@@ -1,1 +1,0 @@
-Artículo 40.—Corresponderá al Auditor Interno administrar esas relaciones y regular las de los demás funcionarios de la Auditoria Interna con los órganos internos y externos del ámbito de su competencia institucional, a fin de que se realicen de conformidad con el ordenamiento jurídico y técnico aplicable.

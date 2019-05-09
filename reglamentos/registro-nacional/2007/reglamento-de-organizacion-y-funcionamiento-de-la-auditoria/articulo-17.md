@@ -1,3 +1,0 @@
-Artículo 17.—Orgánicamente, el Auditor y el Subauditor Internos dependerán de la Junta Administrativa, quien los nombrará y establecerá las regulaciones de tipo administrativo que les serán aplicables.
-Los demás funcionarios de la auditoría interna estarán sujetos a las disposiciones administrativas aplicables al resto del personal del Registro Nacional.
-Las regulaciones de tipo administrativo que establezca la Junta Administrativa, no deberán afectar negativamente la actividad de Auditoría Interna, la independencia funcional y de criterio del Auditor y el Subauditor Interno y su personal; en caso de duda, la Contraloría General dispondrá lo correspondiente.
