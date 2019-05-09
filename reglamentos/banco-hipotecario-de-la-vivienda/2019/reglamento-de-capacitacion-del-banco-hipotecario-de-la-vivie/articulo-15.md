@@ -1,0 +1,1 @@
+Artículo 15- Competencia de la Gerencia General: será competencia de la Gerencia General, la aprobación de todas las facilidades de capacitación, incluyendo aquellas que impliquen permisos con goce de salario de hasta por dos semanas o menos y permisos sin goce de salario hasta por un año.

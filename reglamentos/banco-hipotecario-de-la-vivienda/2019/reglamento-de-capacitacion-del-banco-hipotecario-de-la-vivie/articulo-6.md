@@ -1,0 +1,1 @@
+Artículo 6º- Prioridades de capacitación: para el otorgamiento de las facilidades de capacitación, el Banco establecerá sus prioridades en las políticas institucionales que dicte la Gerencia General, considerando si los estudios son de interés directo para el Banco y de aplicación directa en el puesto de trabajo del solicitante.

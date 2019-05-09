@@ -1,0 +1,3 @@
+Artículo 5º- Facilidades de capacitación: el Banco podrá otorgar las siguientes facilidades para la capacitación del personal:
+a) Subsidio total o parcial para cubrir el costo de los estudios: esta facilidad incluye aspectos como: gastos de matrícula y costo por materia, tesis o trabajo final de graduación, derechos de matrícula para pruebas de grado y otros que se consideren pertinentes. Si la capacitación es en el extranjero, se podrán pagar gastos de transporte, gastos de salida del país y viáticos, conforme con los reglamentos emitidos al efecto por la Contraloría General de la República.
+b) Becas para realizar estudios en áreas críticas o de mucho interés para el Banco dentro o fuera del país.
