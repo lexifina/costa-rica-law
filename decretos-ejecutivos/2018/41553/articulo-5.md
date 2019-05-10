@@ -1,0 +1,1 @@
+Artículo 5º—En todo lo relacionado con su funcionamiento, la Comisión se regirá por las disposiciones de los artículos 49 a 58 de la Ley General de la Administración Pública, Ley N° 6227, de 2 de mayo de 1978.

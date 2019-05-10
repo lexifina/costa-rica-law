@@ -1,0 +1,1 @@
+Artículo 4º—La Comisión contará con la asesoría jurídica de la Procuraduría General de la República y el concurso de los demás órganos técnicos de la Administración Pública que requiera para el mejor cumplimiento de sus fines.

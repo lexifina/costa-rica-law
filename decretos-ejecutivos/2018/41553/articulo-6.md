@@ -1,0 +1,1 @@
+Artículo 6º—Cuando los órganos jerárquicos de las empresas o entidades cubiertas por este reglamento se separen de algún lineamiento expresado por la Comisión que aquí se establece, deberán hacerlo bajo su responsabilidad, y conscientes de los compromisos presupuestarios que asumen.
