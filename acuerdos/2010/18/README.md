@@ -15,3 +15,4 @@ Política y Procedimiento Interposición de denuncias ante la Fiscalía
 | --- | --- | --- |
 | 1 | 2014-07-31 | la propia norma |
 | 2 | 2017-11-29 | Acuerdo 0 (2017-11-29) |
+| 3 | 2019-05-10 | Reglamento 0 (2019-05-10) |
