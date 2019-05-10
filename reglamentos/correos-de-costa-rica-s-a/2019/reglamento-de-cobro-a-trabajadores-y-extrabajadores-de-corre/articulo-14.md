@@ -1,0 +1,3 @@
+CAPÍTULO V
+Terminación de la relación laboral
+Artículo 14.—En caso de darse por terminada la relación laboral y no hubiera sido posible recuperar la totalidad de lo adeudado o habiéndose recuperado parte de la deuda quedara un saldo al descubierto, el Departamento de Facturación y Cobro le remitirá el expediente del caso a la Dirección Jurídica para que le haga al deudor la gestión de cobro para que el deudor cancele o bien llegue a un arreglo de pago, con la advertencia de que si no paga, su caso será pasado a la vía judicial, siempre y cuando el saldo al descubierto supere el salario base establecido por el Ministerio de Hacienda anualmente.

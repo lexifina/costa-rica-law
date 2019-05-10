@@ -1,0 +1,5 @@
+Artículo 6º—Deudas laborales extrabajadores
+a. El Departamento de Facturación y Cobro trasladará a la Dirección Jurídica aquellas deudas cuya gestión de cobro no fue contestada o que habiendo sido recurrida la revocatoria haya sido declarada sin lugar. Lo anterior siempre y cuando superen el salario base establecido por el Ministerio de Hacienda anualmente.
+b. La Dirección Jurídica le hará al deudor dos intentos de gestión de cobro, otorgándole el plazo del Artículo 8 del presente reglamento para pagar o realizar un arreglo de pago, con la indicación de que cumplido el plazo otorgado sin que se cancele la deuda o se llegue a un arreglo de pago, el cobro se tramitará por la vía judicial.
+c. Las deudas cuyo monto no supere el salario base establecido por el Ministerio de Hacienda, se reversará de la cuenta por cobrar y se reportará a la Protectora de Crédito Comercial como cliente moroso.
+d. En caso de solicitar un arreglo de pago deberá presentarse con la solicitud ante el Departamento de Facturación y Cobro para los trámites correspondientes de acuerdo con el presente reglamento.

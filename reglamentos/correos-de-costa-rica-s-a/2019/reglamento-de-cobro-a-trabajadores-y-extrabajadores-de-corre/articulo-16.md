@@ -1,0 +1,1 @@
+Artículo 16.—El Departamento de Facturación y Cobro conforme recibe la documentación correspondiente de la Dirección Jurídica reportará a la Protectora de Crédito a la que esté afiliada Correos de Costa Rica S.A. la información de todos los deudores que hayan sido pasados a Cobro Judicial.

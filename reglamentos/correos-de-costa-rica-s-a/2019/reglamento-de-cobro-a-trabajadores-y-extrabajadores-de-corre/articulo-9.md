@@ -1,0 +1,1 @@
+Artículo 9º—En caso de que el deudor, debidamente apercibido por el Departamento de Facturación y Cobro o por la Dirección Jurídica, solicite un arreglo de pago dentro del plazo de los 8 días hábiles, para su aceptación será trasladado a la Gerencia respectiva para su aprobación.
