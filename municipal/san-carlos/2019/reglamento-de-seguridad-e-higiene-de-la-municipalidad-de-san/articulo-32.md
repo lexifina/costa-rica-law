@@ -1,0 +1,1 @@
+Artículo 32º. No se deberá obstaculizar, dejar fuera de funcionamiento ni dificultar la visibilidad de los equipos de emergencias (extintores, luces de emergencias, férulas, botiquines) ni de señales de evacuación.

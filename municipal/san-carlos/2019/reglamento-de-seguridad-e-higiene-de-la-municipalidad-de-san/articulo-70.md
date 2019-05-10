@@ -1,0 +1,1 @@
+Artículo 70 º Si el trabajador no acepta la rehabilitación, el patrono no estará obligado a lo imposible, en cuyo caso podrá proceder con el despido sin responsabilidad patronal siempre que ese trabajador asista a laborar drogado o tomado.

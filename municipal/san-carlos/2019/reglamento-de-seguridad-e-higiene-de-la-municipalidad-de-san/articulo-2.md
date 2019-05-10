@@ -1,0 +1,1 @@
+Artículo. 2º. Las medidas de seguridad dispuestas en este Reglamento de Seguridad e Higiene de la Municipalidad de San Carlos, serán de acatamiento obligatorio para los trabajadores, contratistas de las instalaciones de la Municipalidad de San Carlos, asimismo los visitantes del Plantel, Relleno y tajos Municipales deberán ajustarse a lo estipulado en este Reglamento.

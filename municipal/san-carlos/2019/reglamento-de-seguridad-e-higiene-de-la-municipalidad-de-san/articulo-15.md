@@ -1,0 +1,1 @@
+Artículo 15º. Las vagonetas deberán ser operadas sin sobrecargar sus góndolas, ni utilizarse para transportar personas; una vez terminado su uso, estas deberán colocarse en lugares donde no dificulten el tránsito del personal.

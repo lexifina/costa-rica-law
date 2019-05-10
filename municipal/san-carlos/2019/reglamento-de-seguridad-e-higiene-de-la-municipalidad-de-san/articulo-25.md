@@ -1,0 +1,1 @@
+Artículo 25º Todo colaborador que desarrolle actividades en confinamientos y alturas deberá estar capacitado en este tema previamente por el Departamento de Salud Ocupacional o bien tener la certificación de trabajador calificado.

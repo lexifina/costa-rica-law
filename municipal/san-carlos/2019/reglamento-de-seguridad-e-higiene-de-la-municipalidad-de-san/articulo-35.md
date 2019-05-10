@@ -1,0 +1,1 @@
+Artículo 35º. Al bajar o subir las gradas realizarlo por el lado derecho de modo que, si se presenta una emergencia, se realicen las evacuaciones y rescates de manera oportuna, Así mismo evitar el uso del celular al usar las gradas.

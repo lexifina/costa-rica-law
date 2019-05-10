@@ -1,0 +1,5 @@
+CAPÍTULO VI ACCIDENTE DE TRABAJO
+Artículo 56º. La Comisión de Salud Ocupacional, según lo establecido en el Reglamento de Comisiones y Oficinas o Departamentos de Salud Ocupacional, del Consejo de Salud Ocupacional:
+1. Verificará permanentemente las condiciones y prácticas de trabajo con la finalidad de corregir todos los posibles causales de accidentes y siniestros que puedan dañar al personal, material, maquinaria, equipo, proceso productivo, producto terminado y medio ambiente.
+2. La responsabilidad de la Comisión de Salud Ocupacional no releva la responsabilidad de cada área en cumplir y hacer cumplir la normatividad vigente, advertir, enseñar y corregir toda condición o acto que pueda desencadenar un accidente o siniestro, debiendo considerarse que éstos no son producto de azar, sino de una causalidad objetiva que puede y debe prevenirse y controlarse.
+3. Cumplir con todo lo estipulado en el Reglamento de Comisiones y Oficinas o Departamentos de Salud Ocupacional, del Consejo de Salud Ocupacional

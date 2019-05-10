@@ -1,0 +1,1 @@
+Artículo 19º. En el caso de que se observe cualquier anomalía en los equipos hidráulicos, se deberá notificar de inmediato al encargado de Mantenimiento por escrito. Está prohibido usar dichos equipos.

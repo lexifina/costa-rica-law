@@ -1,0 +1,1 @@
+Artículo. 3º. El incumplimiento de las medidas de seguridad indicadas en este Reglamento de Seguridad e Higiene de la Municipalidad de San Carlos, será sancionado conforme a lo indicado en el Código Municipal, Código de Trabajo y Reglamento de Seguridad e Higiene de la Municipalidad de San Carlos.

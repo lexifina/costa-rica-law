@@ -1,0 +1,1 @@
+Artículo 44º. Los vehículos sean estos motorizados o manuales deben ser estacionados en lugares asignados para ello, debiendo el operador cerciorarse que el piso se encuentra debidamente nivelado, quedando prohibido detenerse en rampas o desniveles.

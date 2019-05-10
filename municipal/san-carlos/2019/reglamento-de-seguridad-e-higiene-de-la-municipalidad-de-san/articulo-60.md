@@ -1,0 +1,6 @@
+Artículo 60º. Accidentes de Trabajo Intinere (accidentes de trayecto a la casa-Trabajo-Casa):
+1. Todo accidente de Trabajo en el trayecto, deberá ser comunicado por el implicado de inmediato Jefe inmediato.
+El Jefe Inmediato deberá comunica del hecho inmediatamente al Departamento de Salud Ocupacional, para que se inicie la investigación.
+2. Dentro de las 24 horas de ocurrido el incidente, el jefe responsable, deberá presentar a la oficina de Salud Ocupacional informe preliminar de investigación, sin esta boleta no se harán remisiones al INS.
+3. A la boleta de Investigación de accidente el trabajador deberá adjuntar parte de tránsito, copia de bitácora de Cruz Roja o Fuerza Publica
+4. Una vez realizada la investigación y el reporte, se enviará para valoración al INS, concedida la incapacidad el trabajador deberá apegarse a lo establecidos en los artículos 233 y 218 del Código de Trabajo, así mismo lo establecido en el artículo 05 del Reglamento sobre “ Disposiciones para el otorgamiento de Incapacidades del INS” 4. Quedan exentos los accidentes del trayecto cuando el trabajador se haya desviado por motivos personales, no sea la ruta habitual, el tiempo de ocurrencia no sea prudencial, no cumpla con todos los términos legales en caso de los accidentes de tránsito y o no se presenten las evidencias correspondientes.

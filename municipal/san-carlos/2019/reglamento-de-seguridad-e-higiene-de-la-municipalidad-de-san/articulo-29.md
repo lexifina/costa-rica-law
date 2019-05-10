@@ -1,0 +1,1 @@
+Artículo 29º. Está prohibido tratar de reparar máquinas o artefactos de uso administrativo deteriorados o con fallas eléctricas o mecánicas. En este caso se solicitará su reparación al encargado de Mantenimiento que corresponda.

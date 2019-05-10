@@ -1,0 +1,1 @@
+Artículo 9º. Si el nivel del río creciera repentinamente, no se debe ingresar al cauce sin antes notificar y pedir autorización al encargado del área administrativa. Si este negara el permiso, es de obligación acatar dicha orden.

@@ -1,0 +1,1 @@
+Artículo 69º. En caso de que el trabajador padezca una adicción, la Municipalidad deberá proponerle una rehabilitación a la cual el trabajador deberá dar su consentimiento, con el fin de que supere este problema.

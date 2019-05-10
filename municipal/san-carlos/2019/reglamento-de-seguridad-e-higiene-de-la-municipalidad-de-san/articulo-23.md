@@ -1,0 +1,1 @@
+Artículo 23º Todo colaborador que desarrolle actividades en confinamientos deberá hacer uso de los equipos de protección correspondientes como, arnés, líneas de vida y punto de anclaje, asimismo deben verificar previo las atmósferas de trabajo.

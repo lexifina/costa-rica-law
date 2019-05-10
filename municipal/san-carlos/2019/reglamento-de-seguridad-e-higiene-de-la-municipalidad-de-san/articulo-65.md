@@ -1,0 +1,1 @@
+Artículo 65º. Todos los equipos de protección se sustituirán de manera inmediata cunado estos hayan cumplido su vida útil, será responsabilidad del trabajador coordinar con el jefe inmediato para que este solicite el cambio.

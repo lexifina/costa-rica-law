@@ -1,0 +1,1 @@
+Artículo 18º. Antes de parquear la maquinaria o realizar un retroceso el mismo no se podrá ejecutar la maniobra hasta que tenga a todos los compañeros de área a la vista, para evitar aplastamientos y o atropellos.

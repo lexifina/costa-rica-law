@@ -1,0 +1,1 @@
+Artículo 30º. Los muebles y enseres serán dispuestos y distribuidos de modo que permitan mantener pasillos amplios orientados hacia la salida. Los armarios y estantes estarán asegurados a fin de evitar su caída en caso de sismos.

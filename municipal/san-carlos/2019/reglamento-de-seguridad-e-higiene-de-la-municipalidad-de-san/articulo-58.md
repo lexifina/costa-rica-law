@@ -1,0 +1,5 @@
+Artículo 58º. Accidentes de Trabajo:
+1. Todo accidente de Trabajo por leve que sea o se considere, deberá ser comunicado por el implicado de inmediato Jefe inmediato; a más tardar antes del término de la jornada en que ocurrió.
+El Jefe Inmediato deberá comunica del hecho inmediatamente al Departamento de Salud Ocupacional, para que se inicie la investigación. En caso de una enfermedad o dolencia se trasladará al enfermo a EBAIS o el centro asistencial más cercano.
+2. Dentro de las 24 horas de ocurrido el incidente, el jefe responsable, deberá presentar a la oficina de Salud Ocupacional informe preliminar de investigación, sin esta boleta no se harán remisiones al INS.
+3. Una vez realizada la investigación y el reporte, se enviará para valoración al INS, concedida la incapacidad el trabajador deberá apegarse a lo establecidos en los artículos 233 y 218 del Código de Trabajo, así mismo lo establecido en el artículo 05 del Reglamento sobre “ Disposiciones para el otorgamiento de Incapacidades del INS”

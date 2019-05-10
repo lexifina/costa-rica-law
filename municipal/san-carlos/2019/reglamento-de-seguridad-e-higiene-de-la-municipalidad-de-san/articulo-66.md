@@ -1,0 +1,1 @@
+Artículo 66º. Se considera parte de los equipos de protección personal los chalecos anti balas y por el riesgo asociado a las labores de seguridad, policía y tránsito, los mismos deberán usar el mismo durante toda su jornada laboral.

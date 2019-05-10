@@ -1,0 +1,1 @@
+Artículo 10º. El jefe inmediato en el sitio deberá valorar previo a dar la autorización para ingresar al rio crecido, si existe el riesgo de una cabeza de agua y o atrapamiento del operador y la maquinaria, en caso de haber riesgo se debe suspender la actividad.
