@@ -3,5 +3,5 @@ Monto del Impuesto específico anterior, multiplicado por 1 (uno) más el porcen
 ¢0,2 * 1,01047 = ?0,202
 ¢ 0,1 * 1,01047 = ?0,101
 Tipo de Bebidas | Impuesto por mililitro de Alcohol
-a. Vinos de Uvas Frescas u Otras Frutas Fermentadas | 0,231 (Así actualizado el impuesto anterior por el artículo 1° de la resolución N° 001-2019 del 11 de febrero del 2019)
-b. Vinos de Otras Frutas Fermentadas (excepto de Uvas), cuya comercialización anual no exceda de quince millones de mililitros de alcohol absoluto | 0,116 (Así actualizado el impuesto anterior por el artículo 1° de la resolución N° 001-2019 del 11 de febrero del 2019)
+a. Vinos de Uvas Frescas u Otras Frutas Fermentadas | 0,232 (Así actualizado el impuesto anterior por el artículo 1° de la resolución N° 002 del 10 de mayo de 2019)
+b. Vinos de Otras Frutas Fermentadas (excepto de Uvas), cuya comercialización anual no exceda de quince millones de mililitros de alcohol absoluto | 0,118 (Así actualizado el impuesto anterior por el artículo 1° de la resolución N° 002 del 10 de mayo de 2019)
