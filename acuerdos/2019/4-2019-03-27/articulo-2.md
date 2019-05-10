@@ -1,0 +1,2 @@
+Artículo 2º—Refórmese el artículo 5 del Acuerdo Ministerial N° 002-2019 del 24 de enero de 2019, el cual establece la “Creación de la Comisión Nacional de Palma Aceitera” para que en adelante se lea de la siguiente forma:
+“Artículo 5°—El funcionamiento interno de la comisión será regulado de conformidad al Capítulo de órganos colegiados de la Ley General de la Administración Pública y será presidida por el Director Nacional de Extensión Agropecuaria o su representante, quien en caso de empate tendrán voto de calidad.”
