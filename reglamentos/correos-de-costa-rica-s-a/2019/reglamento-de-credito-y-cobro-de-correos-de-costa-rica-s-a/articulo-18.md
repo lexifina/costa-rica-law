@@ -1,0 +1,1 @@
+Artículo 18.—Las autorizaciones deberán ser emitidas o autorizadas por las personas que ostenten la representación legal, ya sea que se trate de empresas públicas, privadas y Gobierno Central. Caso contrario, el Departamento de Facturación y Cobro está facultado para rechazar “ad portas” cualquier solicitud que no cumpla con los requisitos que se citan anteriormente.

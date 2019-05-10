@@ -1,0 +1,1 @@
+Artículo 25.—La Dirección Financiera a solicitud expresa del deudor moroso, en atención a poner en orden sus obligaciones vencidas, está facultada para iniciar, formalizar y firmar los arreglos de pago.

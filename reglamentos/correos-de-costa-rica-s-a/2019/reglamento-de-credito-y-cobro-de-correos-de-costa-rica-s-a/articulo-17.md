@@ -1,0 +1,1 @@
+Artículo 17.—El cliente de crédito y las personas facultadas para solicitar factura electrónica de crédito en sucursales deberá de comunicar en forma inmediata por escrito cualquier modificación o cambio en los datos, sin detrimento de que cancele las imposiciones realizadas a su nombre durante el período en que no se realizó la modificación respectiva.

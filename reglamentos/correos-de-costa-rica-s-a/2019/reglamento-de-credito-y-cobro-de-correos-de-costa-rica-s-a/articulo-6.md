@@ -1,0 +1,1 @@
+Artículo 6º—De las obligaciones del crédito. Podrán ser sujetos de crédito aquellas personas físicas o jurídicas que requieran los servicios y productos que brinda la Empresa y que cumplan con los requisitos establecidos en el presente Reglamento.

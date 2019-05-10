@@ -1,0 +1,1 @@
+Artículo 28.—Cuando un cliente se encuentra en mora y éste no formalice el arreglo de pago respectivo, se ordenará por parte de la Dirección Financiera la suspensión del servicio, correspondiéndole a la Gerencia de Operaciones ejecutarlo y comunicarlo a todas las oficinas regionales, así como a la Gerencia Comercial para la suspensión del servicio respectivo”.

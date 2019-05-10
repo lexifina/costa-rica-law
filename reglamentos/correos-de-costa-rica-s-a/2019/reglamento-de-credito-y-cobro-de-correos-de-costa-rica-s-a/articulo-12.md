@@ -1,0 +1,1 @@
+Artículo 12.—La Gerencia de Administración y Finanzas remitirá semestralmente a la Gerencia Comercial la lista de clientes que no cumplen el monto mínimo del crédito formalizado. La Gerencia Comercial analizará e informará el cierre del crédito.

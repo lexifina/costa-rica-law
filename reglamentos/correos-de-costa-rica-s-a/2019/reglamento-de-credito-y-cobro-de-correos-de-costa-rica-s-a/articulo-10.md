@@ -1,0 +1,1 @@
+Artículo 10.—Cuando se trate de Instituciones del Gobierno Central, estas deberán suscribir un contrato, convenio u orden de compra a nombre de Correos de Costa Rica S. A., en sustitución del título valor antes indicado.

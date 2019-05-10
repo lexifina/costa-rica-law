@@ -1,0 +1,1 @@
+Artículo 19.—La persona o personas que se presenten a cualquiera de las sucursales de Correos de Costa Rica a solicitar los servicios de crédito que preste la empresa sin haber sido autorizados por escrito para ello ante el Departamento de Facturación y Cobro, la empresa no prestará el servicio correspondiente.
