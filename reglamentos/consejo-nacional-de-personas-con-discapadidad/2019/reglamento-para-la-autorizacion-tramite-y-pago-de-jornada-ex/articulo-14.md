@@ -1,0 +1,1 @@
+Artículo 14º- PLAZO PARA PRESENTAR EL FORMULARIO DE SOLICITUD PARA LABORAR TIEMPO EXTRAORDINARIO: El formulario de solicitud para laborar tiempo extraordinario, deberá presentarse ante la Dirección correspondiente, con 3 días hábiles de antelación a la fecha en que laborará tiempo extraordinario, salvo los supuestos del artículo 2°- incisos i) y f) del presente Reglamento.

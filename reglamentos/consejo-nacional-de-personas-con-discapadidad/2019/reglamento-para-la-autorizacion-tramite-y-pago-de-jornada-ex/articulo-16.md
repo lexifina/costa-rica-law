@@ -1,0 +1,1 @@
+Artículo 16. PLAZO PARA PRESENTAR EL FORMULARIO PARA EL TRÁMITE DE PAGO DE TIEMPO EXTRAORDINARIO: Deberá presentarse ante la Unidad de Recursos Humanos, en el transcurso de los primeros ocho (8) días hábiles de cada mes, posterior al mes en que se laboró la jornada extraordinaria.

@@ -1,0 +1,1 @@
+Artículo 4°—DE LA APROBACIÓN DEL TIEMPO EXTRAORDINARIO. La Unidad de Recursos Humanos no tramitará solicitud alguna para el pago del tiempo extraordinario que no cuente con el respectivo contenido presupuestario y que no hayan sido autorizadas por la Dirección correspondiente.

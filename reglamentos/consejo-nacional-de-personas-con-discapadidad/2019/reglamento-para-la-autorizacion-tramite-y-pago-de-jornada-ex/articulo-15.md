@@ -1,0 +1,1 @@
+Artículo 15º- NATURALEZA JURÍDICA DE LA DENEGACIÓN: Es el acto por medio del cual la persona titular de la Dirección deniega la autorización para laborar jornada extraordinaria, expresando las justificaciones del caso según lo estatuido en el presente Reglamento y el artículo 16 de la Ley General de la Administración Pública.

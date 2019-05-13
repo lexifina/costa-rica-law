@@ -1,0 +1,6 @@
+Artículo 7º- LÍMITES AL RECONOCIMIENTO PARA EL PAGO DE TIEMPO EXTRAORDINARIO: No se reconocerá el pago de tiempo extraordinario a personas funcionarias del Conapdis, en los siguientes casos:
+a) Como regla de principio, a una misma persona funcionaria del Conapdis, el límite máximo de horas extraordinarias que puede laborar en forma continua es de tres meses. Lo anterior, en virtud de que se desnaturaliza el carácter extraordinario de este tipo de jornada. Salvo justificación expresa y conforme a dichos criterios, la autorización de los pagos de horas extras por parte de las instancias competentes deberá realizarse con estricto apego a los criterios de necesidad, razonabilidad y racionalización del gasto público.
+b) Cuando labore menos de treinta minutos extraordinarios, después de concluida la jornada ordinaria.
+c) Cuando las labores que realice fuera de la jornada ordinaria se requieran para la subsanación de errores imputables a la propia persona funcionaria o por su propia negligencia o falta en el cumplimiento del trabajo.
+d) Cuando la labor que realice en la jornada extraordinaria no tenga relación directa con las funciones propias del Conapdis, salvo en caso de fuerza mayor o caso fortuito.
+e) Cuando no cuente con la previa autorización, de conformidad con lo establecido en el presente Reglamento, a excepción del tiempo extraordinario imprevisible.

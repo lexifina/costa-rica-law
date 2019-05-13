@@ -1,0 +1,1 @@
+Artículo 17º- TRÁMITE Y PAGO: Una vez recibido el formulario de para el trámite de pago y la información requerida, la Unidad de Recursos Humanos, en los siguientes tres (3) hábiles, realizará los trámites respectivos ante la persona titular de la Unidad de Financiero Contable del Conapdis, a fin de que se efectué el pago en la segunda quincena del mes siguiente.

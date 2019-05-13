@@ -1,0 +1,1 @@
+Artículo 8º- CRITERIOS PARA EL RECONOCIMIENTO DE TIEMPO EXTRAORDINARIO: El reconocimiento del pago de tiempo extraordinario a las personas funcionarias del Conapdis, se hará aplicando criterios objetivos de razonabilidad y proporcionalidad para una sana administración de los recursos públicos, siempre ponderando el cumplimiento del interés público e institucional.

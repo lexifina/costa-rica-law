@@ -1,0 +1,10 @@
+Artículo 20. RESPONSABILIDADES DE LA PERSONA FUNCIONARIA QUE AVALA LABORAR TIEMPO EXTRAORDINARIO. La persona funcionaria que ostente el cargo de jefatura o coordinación de unidad organizativa del Conapdis, será la encargada de:
+a) Verificar que exista contenido presupuestario.
+b) Gestionar la autorización ante la Dirección correspondiente para que las personas funcionarias a su cargo, laboren tiempo extraordinario
+c) Comunicar con la debida anticipación, las horas extraordinarias que deben laborar las personas funcionarias a su cargo, previa autorización de la persona encargada de la Dirección y en total apego a la normativa vigente.
+d) Verificar que el formulario de solicitud para el pago de jornada extraordinaria sea presentado en forma ordenada, legible, limpia, sin tachaduras ni borrones y con todos los datos de la persona solicitante.
+e) Gestionar la autorización ante la Dirección correspondiente y tramitar las solicitudes a la Unidad de Recursos Humanos, para el pago de tiempo extraordinario.
+f) Justificar la necesidad de laborar el tiempo extraordinario de acuerdo con los principios de aseguramiento en la continuidad de la prestación del servicio y el cumplimiento de la actividad sustantiva institucional o sus servicios de apoyo, además de lo establecido en el presente Reglamento.
+g) Cuando se trate de tiempo extraordinario imprevisible o por fuerza mayor o caso fortuito, presentar la justificación motivada y razonada a la Dirección correspondiente en un plazo no mayor a tres días hábiles.
+h) En el caso de la Unidad de Servicios Generales, por la particularidad de las labores, deberá presentar las justificaciones previo a laborar tiempo extraordinario, para ello se fundamentará en los roles de vehículos y vigilancia programados.
+i) Presentar mensualmente a la Unidad de Recursos Humanos mediante oficio, las solicitudes para el trámite de pago de tiempo extraordinario y adjuntar el formulario de autorización para laborar tiempo extraordinario con la autorización de la Dirección correspondiente.

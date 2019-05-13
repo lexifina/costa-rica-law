@@ -1,0 +1,1 @@
+Artículo 11º- DE LOS FORMULARIOS: Los formularios diseñados por la Unidad de Recursos Humanos, será los únicos acreditados en el Conapdis para la autorización, pago y trámite de tiempo extraordinario.
