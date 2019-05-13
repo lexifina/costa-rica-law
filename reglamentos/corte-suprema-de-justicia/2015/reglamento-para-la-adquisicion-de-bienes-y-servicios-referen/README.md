@@ -14,3 +14,4 @@ Reglamento para la Adquisición de Bienes y Servicios referente al Fideicomiso I
 | --- | --- | --- |
 | 1 | 2016-02-11 | la propia norma |
 | 2 | 2017-02-24 | Circular 27 (2017-02-24) |
+| 3 | 2019-05-13 | Circular 74 (2019-05-13) |
