@@ -1,0 +1,2 @@
+Artículo 17°- Del proceso de otorgamiento del derecho de uso de las EACR o las EECR: Para otorgar las etiquetas ambientales o energéticas para un producto o servicio. el MINAE verificará que la organización solicitante. para participar dentro del Programa Nacional. cumpla con los requisitos establecidos en el presente Acuerdo.
+Para el caso del etiquetado ambiental tipo III, no se otorga la etiqueta ambiental a los productos que no cumplan con los principios establecidos en el presente Acuerdo.

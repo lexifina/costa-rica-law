@@ -1,0 +1,2 @@
+Artículo 7°- De la promoción de las etiquetas ambientales y energéticas en Costa Rica: Los tipos de etiquetado ambiental y energético promovidos por el Gobierno de Costa Rica son aquellos relacionados con el Sistema Nacional para la Calidad, basados en las evaluaciones de tercera parte.
+No se promoverán oficialmente las etiquetas ambientales o energéticas basadas en auto declaraciones que provengan de: fabricantes, importadores, prestadores de servicios y comercializadores de productos o servicios.

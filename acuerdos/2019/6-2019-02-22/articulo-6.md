@@ -1,0 +1,1 @@
+Artículo 6°- Propiedad de las etiquetas ambientales y energéticas de Costa Rica: Las Etiquetas Ambientales de Costa· Rica (EACR), así como las Etiquetas Energéticas de Costa Rica (EECR) son propiedad del Gobierno de Costa Rica y serán administradas por el Ministerio de Ambiente y Energía (MINAE) como rector en materia ambiental y energética en el país.

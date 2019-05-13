@@ -1,0 +1,14 @@
+Artículo 16º- De la solicitud de ingreso al Programa Nacional de Etiquetado Ambiental y Energético de Costa Rica y obtención del derecho de uso de las EACR o las EECR:
+Las organizaciones que deseen formar parte del Programa Nacional. deben cumplir y presentar los siguientes requisitos ante la DIGECA para las etiquetas ambientales o la DE para las etiquetas energéticas según corresponda:
+a. Solicitud de participación en el Programa Nacional (indicando claramente el tipo de etiquetado al que desean accesar, sea ambiental o energético), según el formulario que está disponible en el sitio web de la DIGECA y en el sitio web de la DE del MINAE.
+b. Estar al día con las cuotas obrero patronales ante la-Caja Costarricense del Seguro Social.
+c. Estar al día con el pago de los impuestos que administre la Administración Tributaria del Ministerio de Hacienda.
+d. En caso de persona jurídica. personería jurídica vigente con no más de tres meses de expedida.
+e. En caso de persona física. fotocopia de la cédula de identidad del responsable de la organización, en caso de que este no se presente personalmente en la DIGECA o a la DE.
+f. Copia del Permiso Sanitario de Funcionamiento expedido por el Ministerio de Salud (MS). y/o copia de Certificado Veterinario de Operación (SENASA - Mt\G). según corresponda.
+g. Certificación de que se encuentra al día con las obligaciones municipales (pago de impuestos municipales al día).
+h. Copia del documento de declaración jurada de cumplimiento de la normativa legal ambiental y sanitaria obligatoria que le es atinente a la organización solicitante de la etiqueta.
+i. Copia de certificación de cumplimiento, emitido por un organismo de certificación de producto debidamente acreditado, en donde se certifique el cumplimiento de las respectivas normas nacionales para etiquetado ambiental o energético según corresponda (la norma general y las respectivas normas específicas que le sean atinentes), para el etiquetado ambiental o energético tipo l.
+j. Copia del documento de verificación de cumplimiento, emitido por un organismo verificador debidamente acreditado. en donde se verifique el cumplimiento de las respectivas reglas de categoría de producto nacionales para etiquetado ambiental (la norma general y las respectivas normas específicas que le sean atinentes), para el etiquetado ambiental o energético tipo l.
+Cuando se presente una solicitud para obtener el derecho de uso de las EACR o las EECR, se hará referencia a un producto o servicio ofrecido en el mercado nacional. Dicho producto o servicio podrá estar comercializado bajo uno o más nombres comerciales, siempre y cuando tenga idénticas prestaciones y desempeño ambiental.
+No será necesaria la presentación de una nueva solicitud cuando se introduzcan modificaciones a las características de los productos que no afecten el cumplimiento de los criterios en virtud de los cuales se otorga el derecho al uso de las EACR o las EECR.
