@@ -1,0 +1,1 @@
+Artículo 10.—Disposiciones finales. En todo aquello que no haya sido regulado a través del presente reglamento, se procederá a la aplicación en forma supletoria a las demás leyes vigentes, así como los principios generales del derecho.

@@ -1,0 +1,1 @@
+Artículo 5º—Dependencia encargada de aplicar el incentivo. La Administración Tributaria será la responsable de notificar al Encargado de Tecnologías de Información, los porcentajes vigentes para aplicar el incentivo en forma automatizada de conformidad con lo establecido en el artículo 02 del presente reglamento.
