@@ -1,3 +1,3 @@
-CAPÍTULO II
-1. Del proceso de selección
-Artículo 13.—De la convocatoria. Cada año, en el mes de octubre, el Tribunal de Reconocimientos publicitará por los medios que estime pertinentes, los diferentes concursos para otorgar los galardones que regulan este reglamento, de modo que procedan a nominar a la persona que consideren merecedora de dicho reconocimiento. Las nominaciones de los candidatos se realizarán mediante el formulario que al respecto se adjuntará, el cual deberá remitirse a la dirección indicada en el momento de la convocatoria. El límite para presentar las nominaciones, será el 1° de diciembre siguiente.
+Artículo 13.-
+Requisitos mínimos para ser nominado.
+Sin perjuicio de los que se establezcan para cada reconocimiento en particular, el nominado deberá ser persona de reconocida solvencia moral.

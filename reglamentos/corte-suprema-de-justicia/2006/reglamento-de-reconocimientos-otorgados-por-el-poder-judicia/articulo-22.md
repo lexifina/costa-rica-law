@@ -1,3 +1,5 @@
 CAPÍTULO III
-Reconocimiento “Ulises Odio Santos”
-Artículo 22.—Reconocimiento “Ulises Odio Santos”. El Reconocimiento “Ulises Odio Santos” se otorgará al autor o autora que hubiese publicado un trabajo, artículo o escrito en general de utilidad y trascendencia para el Poder Judicial.
+RECONOCIMIENTO “ULISES ODIO SANTOS”
+Artículo 22.-
+Reconocimiento “Ulises Odio Santos”.
+El Reconocimiento “Ulises Odio Santos” se otorgará al autor o autora que en cualquier área científica hubiese publicado un trabajo, artículo o escrito de utilidad y trascendencia extraordinaria para el Poder Judicial.

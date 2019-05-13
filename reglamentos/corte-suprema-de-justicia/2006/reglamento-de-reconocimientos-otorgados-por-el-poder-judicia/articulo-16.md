@@ -1,1 +1,4 @@
-Artículo 16.—Del proceso de selección. Una vez concluido el plazo para presentar las nominaciones de los candidatos, el Tribunal de Reconocimientos formulará su recomendación en sobre cerrado dirigido al Presidente de la Corte Suprema de Justicia, para su trámite. En caso de que el Tribunal o la Corte estimen que los nombres propuestos no reúnen los requisitos exigidos por este reglamento, podrá declararse desierta la elección.
+Artículo 16.-
+Del proceso de selección
+A más tardar el primer día hábil de diciembre de cada año, el Tribunal de Reconocimientos remitirá a la Presidencia de la Corte y a todas las magistradas y magistrados las recomendaciones para el otorgamiento de los premios junto con los estudios y resultados que los sustenten.
+La selección de las personas candidatas se hará por mayoría y en votación secreta.

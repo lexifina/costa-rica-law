@@ -1,1 +1,3 @@
-Artículo 11.—De la votación. El Tribunal podrá tomar decisiones válidas por simple mayoría y sesionar con la presencia de por lo menos cuatro de sus integrantes, previa convocatoria con cuatro días hábiles de antelación, salvo casos de urgencia. Cuando haya número par de miembros presentes en la sesión convocada y se produzca un empate en cualquier votación, el Presidente decidirá con doble voto.
+Artículo 11.-
+De los informes del Tribunal.
+El Tribunal rendirá un informe anual de sus actividades a la Corte Suprema de Justicia.

@@ -1,2 +1,3 @@
-Artículo 28.—Sobre el reconocimiento. El galardón consistirá en una medalla de oro de diez quilates, con un tamaño de 4 centímetros de diámetro y 25 y medio gramos de peso, que llevará la leyenda “Premio Luis Paulino Mora Mora. Al buen o a la buena profesional”, el logo de la Diosa de la Justicia y las demás indicaciones que estipule la Corte Plena.
-Si la persona galardonada reside fuera país, se financiará los pasajes aéreos que corresponda y su estadía en Costa Rica por cuatro días.
+Artículo 28.-
+Sobre el reconocimiento.
+El galardón consistirá en una medalla de oro de diez quilates, con un tamaño de 4 centímetros de diámetro y 25 y medio gramos de peso, que llevará la leyenda “PREMIO LUIS PAULINO MORA MORA. AL BUEN O A LA BUENA PROFESIONAL”, el logo de la Diosa de la Justicia y las demás indicaciones que estipule la Corte Plena.

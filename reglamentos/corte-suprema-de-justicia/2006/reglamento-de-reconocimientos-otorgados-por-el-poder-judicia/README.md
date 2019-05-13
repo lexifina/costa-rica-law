@@ -16,3 +16,4 @@ Reglamento de reconocimientos otorgados por el Poder Judicial
 | 2 | 2008-05-02 | Circular 70 (2008-05-02) |
 | 3 | 2009-04-27 | Circular 46 (2009-04-27) |
 | 4 | 2015-03-05 | Circular 41 (2015-03-05) |
+| 5 | 2019-05-13 | Circular 75 (2019-05-13) |
