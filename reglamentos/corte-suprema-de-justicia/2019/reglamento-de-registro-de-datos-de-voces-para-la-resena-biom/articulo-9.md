@@ -1,0 +1,1 @@
+Artículo 9º—Acceso de Terceros a la Información. La información que conforma el Sistema Integrado de Voces (SIV) podrá ser compartida con las Autoridades Fiscales, Judiciales o Policiales de terceros países, cuando expresamente así se disponga por Convenios Internacionales suscritos por Costa Rica o por Ley y figuren las solicitudes y permisos respectivos.

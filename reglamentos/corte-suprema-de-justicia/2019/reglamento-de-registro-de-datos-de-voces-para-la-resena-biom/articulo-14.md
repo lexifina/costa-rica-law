@@ -1,0 +1,1 @@
+Artículo 14.—Designación de la persona servidora judicial para la introducción de datos. El Departamento de Ciencias Forenses, deberán designar a las personas servidoras judiciales necesarios para introducir y resguardar la información codificada de los registros sonoros con sus datos correspondientes.

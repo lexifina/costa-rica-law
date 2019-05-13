@@ -1,0 +1,1 @@
+Artículo 7º—Límites del Sistema Integrado de Voces (SIV). En los registros que se manejarán, se incluirán las voces de las personas que hayan sido reseñadas por el Organismo de Investigación Judicial, cuya información sea exclusivamente para procesos de identificación del sujeto, con fines de investigación penal.

@@ -1,0 +1,3 @@
+CAPÍTULO II
+Sobre la toma, recolección y análisis de la muestra de voz
+Artículo 10.—Obligaciones de las personas funcionarias y servidoras judiciales. Toda persona servidora judicial que intervenga en la toma de muestras de voces y datos personales, deberá mantener total reserva de la información a la que tenga acceso y no revelarla a terceras personas no autorizadas, ni emplearla para fines distintos a aquellos que motivaron su recolección y análisis. Además, tendrá la obligación de asegurar la cadena de custodia de manera que no afecte la investigación que dio lugar la toma de la muestra voz, por ningún motivo las personas servidoras judiciales podrán guardar copia de la grabación en soportes no autorizados en los protocolos.

@@ -1,0 +1,3 @@
+Artículo 5º—Definición de tipos de muestras. Se entiende como muestra de voz, a la grabación realizada de una persona hablando, ya sea de manera espontánea, conversacional o por medio de una lectura.
+Las muestras indubitadas conocidas también como audio de sospechoso son todas aquellas muestras de voz de origen conocido, obtenidas de las personas que son sometidas al proceso de reseña biométrica.
+Las muestras dubitadas son todas aquellas muestras de voz de origen desconocidos pendientes de identificación que han sido sometidas a criterios de búsqueda en la base de datos y no han emitido resultado positivo en cuanto a su identidad.
