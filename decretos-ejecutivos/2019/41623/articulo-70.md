@@ -1,0 +1,1 @@
+Artículo 70. De la composición de órganos colegiados: Al integrar órganos colegiados para la instrucción del procedimiento, el número de miembros deberá ser siempre impar y en ningún caso podrá sobrepasar de cinco personas.

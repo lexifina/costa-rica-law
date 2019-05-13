@@ -1,0 +1,1 @@
+Artículo 54. Denuncia: Para la tramitación de las denuncias por acoso psicológico y moral, la persona afectada puede plantear la denuncia, en forma verbal o escrita, ante la Dirección General. En el caso de que la denuncia sea dirigida en contra de la Dirección General se presentará ante el Consejo Técnico.

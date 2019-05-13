@@ -1,0 +1,1 @@
+Artículo 66. Del cobro a la persona servidora: En todo procedimiento administrativo donde directa o concomitantemente se deba cobrar alguna suma de dinero a la persona servidora se le deberá garantizar el debido proceso y conceder audiencia a la Unidad de Financiero Contable.

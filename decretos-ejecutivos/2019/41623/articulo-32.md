@@ -1,0 +1,1 @@
+Artículo 32. Parqueo Gratuito: Los personas servidoras contarán con parqueo para los vehículos, siempre y cuando el INCIENSA cuente con las instalaciones que permitan que ello sea posible, para lo cual el servidor y servidora deberá respetar las disposiciones que regulen el uso de este beneficio.

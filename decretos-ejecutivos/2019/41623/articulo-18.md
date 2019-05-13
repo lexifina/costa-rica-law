@@ -1,0 +1,1 @@
+Artículo 18. De la aplicación de horarios flexibles: La aplicación de los horarios flexibles se regulará de acuerdo a lo establecido en el Decreto Ejecutivo No. 26662-MP del 16 de febrero de 1998, de las instituciones cubiertas por el Régimen de Servicio Civil.

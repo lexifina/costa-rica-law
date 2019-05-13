@@ -1,0 +1,3 @@
+CAPITULO IX
+De la Salud Ocupacional
+Artículo 39. Del acatamiento a las condiciones de salud ocupacional: De conformidad con el artículo 288 del Código de Trabajo, en el INCIENSA se establecerá la Comisión de Salud Ocupacional, la cual dependerá de la Dirección General. Dicha Comisión tendrá como fin investigar las causas de los riesgos ocupacionales, proponer medidas para prevenirlos y vigilar su cumplimiento. Los miembros de la Comisión desempeñarán sus cargos gratuitamente y dentro de la jornada de trabajo. La Dirección General garantizará los recursos necesarios para la buena marcha de la comisión basado en una planificación anual.

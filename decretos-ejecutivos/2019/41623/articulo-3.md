@@ -1,0 +1,1 @@
+Artículo 3. De la independencia del INCIENSA: El INCIENSA es un órgano con desconcentración mínima y personería jurídica instrumental; en razón de ello, es responsable directo de las consecuencias resultantes de las relaciones entre él y sus personas servidoras.

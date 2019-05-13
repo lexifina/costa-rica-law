@@ -1,0 +1,1 @@
+Artículo 75. De las derogatorias: Este Reglamento deroga el Decreto Ejecutivo No.35574- S del 04 de agosto de 2009, "Reglamento Autónomo de Organización y Servicio del Instituto Costarricense de Investigación y Enseñanza en Nutrición y Salud (INCIENSA)" y sus reformas.

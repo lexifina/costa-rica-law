@@ -1,0 +1,1 @@
+Artículo 21. De la ausencia a media jornada: La llegada tardía que exceda de veinte minutos, contados a partir de la hora de ingreso estipulada y que a juicio del jefe inmediato y de la Unidad de Recursos Humanos carezca de justificación, implicará la pérdida de media jornada al estimarse como una ausencia de igual proporción, ello para efectos del rebajo de salario proporcional.

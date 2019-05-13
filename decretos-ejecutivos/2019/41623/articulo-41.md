@@ -1,0 +1,10 @@
+Artículo 41. De las obligaciones en salud ocupacional: Todas las personas servidoras deberán acatar las recomendaciones dadas por la Comisión de Salud Ocupacional, no obstante, serán obligaciones específicas, además de las ya señaladas, las siguientes:
+a) Colaborar y asistir a los programas que procuren su capacitación en materia de salud ocupacional.
+b) Participar en la elaboración, la planificación y la ejecución de los programas de salud ocupacional en los centros de trabajo.
+c) Toda persona servidora que ingrese a laborar al INCIENSA, deberá someterse a un examen médico periódico y a un protocolo de vacunación según lo indique el médico de empresa, manual de bioseguridad y seguridad institucional y su jefatura, siempre y cuando obedezca a los requerimientos propios del área de trabajo.
+d) Toda persona servidora que manipule materiales cancerígenos, mutagénicos, o potencialmente tóxicos y patógenos por las funciones que desempeñan, deberán cumplir con las normas de bioseguridad y uso del equipo de protección personal.
+e) Posterior a un accidente o incidente laboral, la persona servidora implicada deberá someterse a valoración y exámenes de diagnóstico según le corresponda, al Instituto Nacional de Seguros o Caja Costarricense de Seguro Social, previa valoración por medicina de empresa y siguiendo los procedimientos establecidos en el manual de bioseguridad y seguridad institucional.
+f) Toda persona servidora del INCIENSA y que lo amerite, deberá utilizar el equipo de protección personal, cuidarlo y mantenerlo en óptimas condiciones de higiene.
+Entiéndase por equipo de protección personal lo descrito en los procedimientos Correspondientes.
+g) Es obligatorio utilizar gabacha y lentes de seguridad en los laboratorios. En casos excepcionales, se debe usar la gabacha en la ruta de recolección de muestras. Su uso queda prohibido en las oficinas administrativas, comedor, auditorio y salas de capacitación.
+h) Cualquier otra obligación definida en los procedimientos correspondientes.

@@ -1,0 +1,1 @@
+Artículo 51. Sanciones: De conformidad con lo dispuesto por el artículo 34 de la Ley No. 7476, y según la gravedad de la falta, se podrán imponer las siguientes sanciones: Amonestación escrita, suspensión sin goce de salario y el despido sin responsabilidad patronal.

@@ -1,0 +1,1 @@
+Artículo 67. Del procedimiento ante varios tipos de faltas: En todo procedimiento donde se conozcan a la vez varias faltas, la sanción se aplicará por la más alta, sin omitir la culpabilidad de las demás.

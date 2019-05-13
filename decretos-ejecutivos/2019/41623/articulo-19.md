@@ -1,0 +1,1 @@
+Artículo 19. Del registro del tiempo para alimentación: El control de la entrada y salida del tiempo destinado a la alimentación queda bajo la responsabilidad de cada jefe inmediato, quien establecerá los mecanismos necesarios de manera que no se ocasione menoscabo en la prestación del servicio. El tiempo destinado a tal efecto no podrá exceder el establecido en este Reglamento.

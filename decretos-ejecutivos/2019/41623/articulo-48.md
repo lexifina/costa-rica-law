@@ -1,0 +1,1 @@
+Artículo 48. Denuncia: La persona afectada por acoso u hostigamiento sexual podrá plantear la denuncia, en forma verbal o escrita, ante la Dirección General. En el caso de que la denuncia sea dirigida en contra del Director General se presentará ante el Consejo Técnico.

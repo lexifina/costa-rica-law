@@ -1,0 +1,1 @@
+Artículo 25. Del deber de comunicación: En todos los casos, la persona servidora deberá comunicar lo antes posible a su jefe inmediato, verbalmente o por escrito, las causas que le impiden asistir a su trabajo. Por ninguna razón, salvo por fuerza mayor, debe esperar hasta el segundo día de ausencia para notificarlo.

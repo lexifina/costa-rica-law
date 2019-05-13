@@ -1,0 +1,1 @@
+Artículo 42. De la póliza de riesgos en el trabajo: Toda persona servidora estará protegida contra los riesgos del trabajo a través de una póliza suscrita con el Instituto Nacional de Seguros, según lo establecido en el artículo 193 del Código de Trabajo.

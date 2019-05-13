@@ -1,0 +1,1 @@
+Artículo 2. Obligatoriedad del Reglamento: El cumplimiento de este Reglamento es obligatorio con el fin de que las labores se lleven a cabo dentro de la armonía requerida y la mayor eficacia y eficiencia posibles.

@@ -1,0 +1,1 @@
+Artículo 30. Asueto cantonal: Se otorgará día asueto a la persona servidora del INCIENSA el siete de diciembre de cada año, por celebración del cantonato de La Unión, siempre y cuando la Municipalidad de La Unión así lo establezca, por las vías correspondientes.

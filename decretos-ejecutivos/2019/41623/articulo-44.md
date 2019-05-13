@@ -1,0 +1,1 @@
+Artículo 44. De las medidas preventivas: La Dirección General por medio de la Comisión de Salud Ocupacional, está en la obligación de instruir a la persona servidora en todo lo referente a la prevención de los riesgos del trabajo, según lo establece el Código de Trabajo.

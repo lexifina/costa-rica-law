@@ -1,0 +1,1 @@
+Artículo 63. De las cuotas de responsabilidad: La existencia y el grado de la culpa o dolo en la actuación investigada, se determinará de acuerdo a lo dispuesto en el artículo 213 de la Ley General de la Administración Pública.

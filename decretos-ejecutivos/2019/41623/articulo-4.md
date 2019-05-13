@@ -1,0 +1,7 @@
+Artículo 4. Definiciones: Para los efectos legales que se deriven de la aplicación del presente Reglamento, debe entenderse por:
+a) Patrono: El Instituto Costarricense de Investigación y Enseñanza en Nutrición y Salud, en lo sucesivo llamado "INCIENSA".
+b) Jerarca de la Institución: El máximo jerarca es el Consejo Técnico, según lo dispone el artículo tercero de la Ley No. 4508 del 26 de diciembre de 1969, "Crea el INCIENSA- Instituto Costarricense Investigación y Enseñanza en Salud y Nutrición".
+c) Dirección General: La Dirección General es el máximo jerarca administrativo, el órgano encargado de ejecutar los acuerdos del Jerarca de la Institución y quien agota la vía administrativa.
+d) Estatuto y su Reglamento: El Estatuto del Servicio Civil, Ley No. 1581 del 30 de mayo de 1953 y sus refo1mas y el Reglan1ento del Estatuto de Servicio Civil, Decreto Ejecutivo No. 21 del 14 de diciembre de 1954 y sus reformas.
+e) Persona Servidora: La persona física que presta servicios al INCIENSA, a nombre y por cuenta de éste, como parte de su organización, en virtud de un acto válido y eficaz de investidura, con entera independencia del carácter imperativo, representativo, remunerado, permanente o público de la actividad respectiva.
+f) Normativa aplicable: Para regular la relación laboral de las personas servidores del INCIENSA, se deben aplicar en su orden jerárquico: el Estatuto de Servicio Civil y su Reglamento; el Código de Trabajo, este Reglamento Autónomo de Organización y las leyes supletorias como la Ley General de la Administración Pública.

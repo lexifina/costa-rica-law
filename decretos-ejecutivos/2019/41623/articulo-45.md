@@ -1,0 +1,1 @@
+Artículo 45. De las obligaciones de las jefaturas: Las jefaturas del INCIENSA, deberán velar por el cumplimiento de las obligaciones indicadas anteriormente en el artículo 41, considerándose como una falta grave la omisión de esta obligación, así como lo indicado en manuales y procedimientos correspondientes.

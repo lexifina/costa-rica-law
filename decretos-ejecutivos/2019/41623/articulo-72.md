@@ -1,0 +1,1 @@
+Artículo 72. Del recurso de reconsideración: Se podrá presentar recurso de reconsideración, cuando el acto final haya sido dictado por la Dirección General, o el Consejo Técnico, en un plazo de tres días hábiles.
