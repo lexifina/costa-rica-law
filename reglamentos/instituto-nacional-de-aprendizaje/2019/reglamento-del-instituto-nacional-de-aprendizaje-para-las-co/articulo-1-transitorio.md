@@ -1,0 +1,1 @@
+TRANSITORIO I: Para la aplicación del presente Reglamento se utilizarán en forma paralela el Sistema Integrado de Compras Públicas y el sistema interno, tomando en consideración que actualmente la Institución se encuentra en el proceso de implementación de la nueva plataforma.
