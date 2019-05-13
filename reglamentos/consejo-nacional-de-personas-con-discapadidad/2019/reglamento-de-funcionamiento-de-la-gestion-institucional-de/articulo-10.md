@@ -1,0 +1,2 @@
+Artículo 10.- Marco de acción: La CIEV-Conapdis busca promover la ética en la institución, por medio de acciones de capacitación e información, entre otros; para fortalecer el clima laboral con el fin de construir una cultura ética organizacional.
+La Comisión no constituye un Tribunal de Ética ni ningún tipo de órgano disciplinario. Cualquier asunto en materia disciplinaria o legal deberá resolverse por las vías correspondientes.
