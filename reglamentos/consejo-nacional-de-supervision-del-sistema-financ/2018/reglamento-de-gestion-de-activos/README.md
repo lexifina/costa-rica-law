@@ -14,3 +14,4 @@ Reglamento de gestión de activos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-11-02 | la propia norma |
+| 2 | 2019-05-14 | Reglamento 1499 (2019-05-14) |

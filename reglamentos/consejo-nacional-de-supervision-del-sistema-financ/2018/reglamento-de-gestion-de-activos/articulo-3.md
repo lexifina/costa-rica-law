@@ -1,5 +1,6 @@
 Artículo 3. Definiciones
-Activo subyacente: Activo financiero que sirve de base en contratos, tales como: derivados, préstamos de valores, titularizaciones, entre otros.
+Activo subyacente: Activo financiero que sirve de base en contratos, tales como: derivados, préstamos de valores, titularizaciones y similares.
+(Así reformada la definición anterior mediante sesión N° 1499-2019 del 14 de mayo del 2019)
 Administrador de portafolios subcontratados: Firma independiente responsable de la gestión de un portafolio dado en administración por la entidad regulada, por medio de un contrato que especifique los objetivos deseados en esa administración y las obligaciones de las partes.
 American Depositary Receipts (ADR): Recibos o comprobantes emitidos por un banco depositario estadounidense, que representan acciones de una corporación extranjera en Estados Unidos, que están en poder del banco. Puede representar una porción de una acción, una acción o un paquete de acciones.
 Calificadora de riesgos local: Entidad autorizada por la Superintendencia General de Valores para evaluar y calificar el riesgo de instrumentos financieros.
