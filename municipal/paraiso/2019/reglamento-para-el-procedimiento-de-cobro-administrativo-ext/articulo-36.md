@@ -1,0 +1,1 @@
+Artículo 36° La designación de los abogados le será comunicado por escrito a dichos profesionales, mediante el acto de adjudicación respectivo. El profesional designado deberá firmar el contrato correspondiente, que al efecto elaborará la Municipalidad, en donde acepta su conformidad con las normas establecidas en el presente reglamento.

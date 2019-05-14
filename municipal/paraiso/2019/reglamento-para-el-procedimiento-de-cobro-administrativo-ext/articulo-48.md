@@ -1,0 +1,3 @@
+Artículo 48° La oficina de cobros podrá emitir dos clases de suspensiones de los procedimientos judiciales: suspensión definitiva y suspensión provisional.
+Se entiende por suspensión definitiva la orden de finalización total del proceso judicial y podrá realizarse únicamente si se cancela la totalidad de la deuda, junto con las multas que correspondan y los honorarios establecidos y gastos administrativos incurridos.
+Se entenderá la suspensión provisional aquellos casos que han sido estudio por parte de la Alcaldía Municipal y se han recomendado para arreglo de pago extrajudicial y este se ha formalizado.

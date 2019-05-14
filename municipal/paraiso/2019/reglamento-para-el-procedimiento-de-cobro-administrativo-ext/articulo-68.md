@@ -1,0 +1,1 @@
+Artículo 68° Entrada en vigencia. El presente Reglamento rige a partir de sus publicaciones, que serán dos con un lapso de 30 días calendario en el Diario Oficial "La Gaceta" y deroga expresamente cualquier otra disposición reglamentaria que exista en la Municipalidad de Paraíso en materia de cobro administrativo y judicial y arreglo de pagos. Publíquese por 2da vez.
