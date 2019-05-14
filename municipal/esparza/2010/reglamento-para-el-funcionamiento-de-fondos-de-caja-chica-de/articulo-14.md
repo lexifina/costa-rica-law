@@ -1,3 +1,0 @@
-Artículo 14.—Plazo para liquidar vales provisionales de caja chica. Todo vale provisional de caja chica debe ser liquidado en un plazo no mayor de tres (3) días hábiles posteriores al recibo del dinero. El Tesorero Municipal informará a Recursos Humanos en un plazo máximo de cinco (5) días hábiles sobre las liquidaciones que se presenten extemporáneamente, para que dicha Unidad levante el procedimiento disciplinario correspondiente.
-En caso de que no se realice la compra que se originó en el vale provisional, el dinero deberá ser devuelto al fondo en forma inmediata justificando por escrito las razones que impidieron la adquisición del bien o servicio.
-Para efectos de las sanciones aplicables, el incumplimiento de este artículo se considerara falta grave.

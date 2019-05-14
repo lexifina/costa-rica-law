@@ -1,1 +1,0 @@
-Artículo 2º—De las atribuciones de la Auditoría Interna. La Auditoría Interna, de acuerdo a las atribuciones que le concede la normativa vigente, realizará arqueos y verificaciones de los documentos en poder de los responsables de la custodia de caja chica general y otros valores cuando lo considere necesario, de acuerdo con su programación de trabajo.

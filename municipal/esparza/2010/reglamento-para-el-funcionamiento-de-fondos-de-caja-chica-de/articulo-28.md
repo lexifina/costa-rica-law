@@ -1,1 +1,0 @@
-Artículo 28.—De la no tramitación de facturas. No se tramitarán facturas con fecha anterior de haberse recibido el vale de caja chica. En forma excepcional y con la autorización del Alcalde, siempre que haya disponible presupuestario y económico, se podrá tramitar el pago de una factura sin que medie la emisión del vale de caja chica.
