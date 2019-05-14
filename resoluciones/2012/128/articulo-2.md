@@ -1,4 +1,0 @@
-II. Modificar el apartado 6.2 del Por Tanto I de la resolución RJD-017-2012 del 19 de marzo de 2012, para que se lea así:
-“6.2 Primera aplicación del ajuste trimestral
-Durante el primer trimestre de vigencia de la metodología descrita en este informe, no se aplicará el ajuste trimestral, en razón de que el reconocimiento de rezagos acumulados (Por Tanto I, apartado 6.1 de la presente resolución) ya incorpora los costos de los meses que corresponderían al ajuste del primer trimestre. A partir del segundo trimestre, se aplicará el ajuste trimestral normal descrito en la sección 4.3.2.de la presente resolución.
-En adelante, las dos fases de reconocimiento del CVC (fijación inicial y ajuste trimestral), permitirán recuperar de manera más oportuna los recursos destinados a la compra de combustibles para generación.”
