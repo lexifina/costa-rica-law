@@ -16,3 +16,4 @@ Reglamento de Ventas Ambulantes y Estacionarias de la Municipalidad de Aguirre
 | 1 | 2012-06-04 | la propia norma |
 | 2 | 2017-07-11 | Reglamento municipal 119 (2017-07-11) |
 | 3 | 2018-11-27 | Reglamento municipal 248 (2018-11-27) |
+| 4 | 2019-05-14 | Reglamento municipal 286 (2019-05-14) |
