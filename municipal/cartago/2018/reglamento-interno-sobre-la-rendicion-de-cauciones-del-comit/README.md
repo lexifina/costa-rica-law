@@ -14,3 +14,4 @@ Reglamento interno sobre la rendición de cauciones del Comité Cantonal de Depo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-03-15 | la propia norma |
+| 2 | 2019-05-14 | Reglamento municipal 0 (2019-05-14) |

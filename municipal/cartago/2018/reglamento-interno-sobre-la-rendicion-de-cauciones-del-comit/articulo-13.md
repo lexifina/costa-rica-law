@@ -1,4 +1,5 @@
-Artículo 13.—Competencia. Competerá a la Dirección Administrativa la administración general de las cauciones que se rindan a favor del CCDRC, para ello deberá:
+Artículo 13.—Competencia. Competerá a la Dirección Ejecutiva la administración general de las cauciones que se rindan a favor del CCDRC, para ello deberá:
+(Así reformado el párrafo anterior mediante acta N° 237-2019 del 17 de junio del 2019)
 a. Calcular y mantener actualizados los montos que, por concepto de las garantías, deben rendir las personas caucionantes.
 b. Asesorar y recomendar a las instancias correspondientes las medidas que correspondan con el propósito de mantener montos de garantía apropiados.
 c. Recibir, custodiar y verificar la efectividad de los documentos que comprueban la presentación de garantías por parte de las personas caucionantes, estableciendo para ello los controles y medidas de seguridad pertinentes.
