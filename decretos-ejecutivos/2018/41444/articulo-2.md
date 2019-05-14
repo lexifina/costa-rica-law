@@ -1,0 +1,1 @@
+Artículo 2º—En dichas actividades deberá entonarse el Canto a la Abolición del Ejército en Costa Rica del compositor Carlos Guzmán Bermúdez, según lo dispuesto en el Decreto Ejecutivo Nº 41443-MCJ-MEP del 01 de diciembre del 2018.

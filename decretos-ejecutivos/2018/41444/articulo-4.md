@@ -1,0 +1,2 @@
+Artículo 4º—Refórmese el artículo 2º del Decreto Ejecutivo Nº 17357 del 26 de noviembre de 1986 “Declara Día de la Abolición del Ejército el 01 de Diciembre”, para que en adelante se lea:
+“Las instituciones del sector público y los centros educativos del país deberán conmemorar el Día de la Abolición del Ejército mediante actividades que promueven la difusión y reflexión sobre los principios de paz, libertad y democracia, no violencia, promoción del diálogo y defensa de los derechos humanos
