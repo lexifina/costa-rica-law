@@ -1,0 +1,1 @@
+Artículo 28.—Espacios con prohibición para utilizar como zona regulada: Por el uso de los espacios frente a las paradas terminales o fijas del servicio público, sean de autobuses, busetas, y otras autorizadas por el Consejo de Transporte Público, no se demarcará ni se cobrará suma alguna. Tampoco por los espacios de entrada de los garajes.

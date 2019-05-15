@@ -1,0 +1,2 @@
+Artículo 2º—Objeto: fundamentado en el artículo 1° de este reglamento. La Municipalidad de Santa Bárbara por medio del Alcalde Municipal solicita al Concejo Municipal, delegar lo concerniente a ordenar y controlar el estacionamiento, el tránsito vehicular, a la vez mejorar las condiciones comerciales y vecinales en el cantón de Santa Bárbara al Departamento de la Policía Municipal del cantón de Santa Bárbara.
+Con este fin el presente reglamento regula la operación del sistema a implementar de estacionamiento de vehículos automotores en las zonas públicas del cantón.

@@ -1,0 +1,1 @@
+Artículo 6º—Financiamiento del sistema de estacionamiento de vehículos en vías públicas: El sistema de estacionamiento de vehículos en las vías públicas será financiado con los recursos que se obtengan por el pago de los servicios y de las multas que se deriven de las infracciones, de conformidad con la Ley de Instalación de Estacionó metros N° 3580.
