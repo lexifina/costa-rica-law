@@ -1,0 +1,1 @@
+Transitorio II.—Las solicitudes de inhabilitación temporal de empresas que presenten con anterioridad a la entrada en vigencia de este Reglamento, cualquiera que sea el estado de su solicitud, continuarán sustanciándose conforme a lo dispuesto con anterioridad a la entrada en vigencia del presente Reglamento; salvo en lo que el presente reglamento les beneficie.”

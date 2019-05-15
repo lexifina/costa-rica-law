@@ -1,0 +1,1 @@
+Artículo 9º—Durante el periodo en que la empresa se encuentre en la condición de inhabilitación temporal voluntaria, no se le cobrará la cuota de revalidación y tampoco se contabilizarán los años de inhabilitación en los registros históricos de la empresa. Dicha condición se consignará en las certificaciones que extienda el Colegio Federado.

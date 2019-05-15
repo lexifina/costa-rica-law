@@ -1,0 +1,1 @@
+Artículo 14.—Tanto la solicitud de retiro voluntario temporal o indefinido como la inhabilitación temporal voluntaria de empresa, deberá dirigirse a la Junta Directiva General y presentarse en la Plataforma de Servicio del CFIA, o a través de los medios electrónicos que para los efectos establezca este Colegio Profesional.

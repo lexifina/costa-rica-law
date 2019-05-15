@@ -1,0 +1,1 @@
+Artículo 11.—Cuando la empresa en condición de inhabilitación temporal voluntaria, solicite nuevamente la reinscripción, el CFIA procederá a cobrar la cuota de revalidación de derechos respectiva, no así aquellas cuotas ni multas correspondientes al/los periodo(s) en que se encontró en condición de inhabilitación temporal voluntaria.

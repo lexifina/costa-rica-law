@@ -1,0 +1,1 @@
+Transitorio I.—Las solicitudes de retiro voluntario presentadas con anterioridad a la entrada en vigencia de este Reglamento, cualquiera que sea su estado, continuarán sustanciándose, en todos sus trámites y recursos, por las regulaciones que existían a la fecha de inicio.
