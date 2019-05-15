@@ -18,3 +18,4 @@ Reglamento de evaluación de los aprendizajes
 | 3 | 2018-09-26 | Decreto Ejecutivo 41331 (2018-09-26) |
 | 4 | 2018-10-17 | Decreto Ejecutivo 41357 (2018-10-17) |
 | 5 | 2019-02-28 | Decreto Ejecutivo 41686 (2019-02-28) |
+| 6 | 2019-05-15 | Decreto Ejecutivo 41734 (2019-05-15) |
