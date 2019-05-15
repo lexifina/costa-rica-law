@@ -1,0 +1,8 @@
+UNIVERSIDAD TÉCNICA NACIONAL
+El Consejo Universitario de la Universidad Técnica Nacional comunica la aprobación de las siguientes modificaciones a las Normas de Reclutamiento y Selección de los Funcionarios de la Universidad Técnica Nacional:
+1.- Según el Acuerdo 2-5-2019, de la Sesión Ordinaria Nº 5-2019, artículo 7, del 07 de marzo de 2019, se modifican parcialmente las Normas de Reclutamiento y Selección de los funcionarios de la Universidad Técnica Nacional, en el sentido de eliminar la frase “en propiedad” del artículo 2, quedando de la siguiente manera:
+Artículo 2: Plazas Vacantes:
+2.2. La Dirección de Gestión de Desarrollo Humano, con el fin de garantizar la carrera administrativa dentro de la Universidad y a solicitud expresa del Rector o Decano, según corresponda, realizará análisis correspondiente para cubrir la vacante en primera instancia por medio de ascenso en la Sede o Administración Universitaria donde se ubica la plaza o en su defecto, en cualquier otra Sede o Administración Universitaria siempre y cuando se trate de clases comprendidas en un mismo grupo ocupacional, o en el puesto del primer nivel de la siguiente clase ocupacional.
+Únicamente para los casos de ascenso se exime al funcionario del requisito de experiencia en el primer nivel de cada serie ocupacional, establecido así en el Manual Descriptivo de Clases de Puestos de la Universidad Técnica Nacional y sus reformas”.
+Dichas reformas a esta normativa, en su versión completa y actualizada, se encuentran disponibles en el portal electrónico de la Universidad Técnica Nacional www.utn.ac.cr, sección “Normativa Universitaria.
+Rige a partir de su publicación.
