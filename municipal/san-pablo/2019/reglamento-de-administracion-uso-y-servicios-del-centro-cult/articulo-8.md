@@ -1,0 +1,1 @@
+Artículo 8 – ÁREAS ADMINISTRATIVAS. Las áreas destinadas a oficinas únicamente podrán ser utilizadas por el personal del Centro Cultural y Funcionarios municipales debidamente identificados y únicamente para fines culturales o institucionales.

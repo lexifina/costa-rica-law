@@ -1,0 +1,1 @@
+Artículo 26 – De ser necesario la administración del centro cultural podrá pedir colaboración a la policía municipal para que facilite uno de sus oficiales para que resguarde la obra, especialmente si la misma es de alto valor económico.

@@ -1,0 +1,1 @@
+Artículo 34 – Cuando se acuerde con el interesado el pago de una cuota en especie por concepto de aprovechamiento de las instalaciones y equipo técnico se extenderá un comprobante de recibo del servicio brindado por centro cultural. El administrador deberá presentar un informe a la Dirección de Servicios Públicos de los bienes adquiridos por este concepto.

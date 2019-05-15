@@ -1,0 +1,1 @@
+Artículo 4- USO EXCEPCIONAL. En caso de emergencia declarada por la Comisión Municipal de Emergencias, este centro fungirá como centro de control de operaciones del cantón de San Pablo y sus protocolos.

@@ -1,0 +1,1 @@
+Artículo 36 – Cuando se preste un servicio sin costo para el interesado, no se extenderá ningún documento por parte de la administración del centro cultural, pero se le solicitará al interesado o usuario enviar una carta a la Dirección de Servicios Públicos de la Municipalidad de San Pablo y a la administración del Centro Cultural, como constancia de que ha recibido el servicio.

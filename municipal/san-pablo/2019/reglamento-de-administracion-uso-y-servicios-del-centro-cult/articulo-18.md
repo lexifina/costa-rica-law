@@ -1,0 +1,1 @@
+Artículo 18 - La administración del Centro Cultural tendrá preferencia en el uso de las instalaciones del inmueble para la realización de actividades culturales y municipales. El personal administrativo deberá trabajar en coordinación con la Alcaldía Municipal y Dirección de Servicios Públicos, según el organigrama oficial de la Municipalidad de San Pablo de Heredia.

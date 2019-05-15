@@ -1,0 +1,1 @@
+Artículo 12 – Supervisar el desempeño de los talleres, cursos que se impartan dentro de las instalaciones, que sean con fines culturales o tengan un claro interés público para su realización y se hagan en las áreas adecuadas según lo estipula este reglamento.

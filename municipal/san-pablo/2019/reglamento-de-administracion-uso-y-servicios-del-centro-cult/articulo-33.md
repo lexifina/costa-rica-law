@@ -1,0 +1,1 @@
+Artículo 33 – Cuando se acuerde con el interesado el pago de una cuota de recuperación en efectivo, la persona deberá cancelarlo en la Municipalidad, la cual, le extenderá el comprobante de pago respectivo por concepto de aprovechamiento de las instalaciones y equipo técnico del Centro Cultural.

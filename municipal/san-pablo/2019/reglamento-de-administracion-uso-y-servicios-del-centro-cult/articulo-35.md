@@ -1,0 +1,1 @@
+Artículo 35 – La cuota de recuperación en especie la administración llevará un control de los bienes donados por concepto de pago en especie, para el mantenimiento del inmueble y los servicios que presta. La especie serán insumos de aseo, higiene y mantenimiento del inmueble.

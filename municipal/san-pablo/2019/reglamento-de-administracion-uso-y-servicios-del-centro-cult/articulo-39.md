@@ -1,0 +1,1 @@
+Artículo 39 – Los activos del Centro Cultural que se encuentren en custodia de la Escuela de Música y la Banda Municipal, deberán de ser registrados en un inventario, el cual, deberá estar actualizado, siendo así que cada 3 meses se tendrá que entregar a la administración del Centro Cultural un informe del estado en que se encuentran los mismos.

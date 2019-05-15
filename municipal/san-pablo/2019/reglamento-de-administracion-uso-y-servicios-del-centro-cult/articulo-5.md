@@ -1,0 +1,1 @@
+Artículo 5 – VIGILANCIA DEL CENTRO. Este inmueble cuenta con el apoyo de la Policía Municipal de San Pablo de Heredia, por lo que se mantiene un oficial en las instalaciones, el cual colabora en la vigilancia y seguridad, sin embargo, en lo que se refiere a las exposiciones y actividades deben ser cuidadas también por los expositores e interesados.

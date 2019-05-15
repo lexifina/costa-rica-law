@@ -1,0 +1,1 @@
+Artículo 38 – El cuido, vigilancia general y conservación adecuada de los activos asignados al Centro Cultural, corresponderá a la administración del Centro Cultural, como está indicado en el numeral 99 del Reglamento para el Registro, Control, Uso y Custodia de los Activos de la Municipalidad de San Pablo.

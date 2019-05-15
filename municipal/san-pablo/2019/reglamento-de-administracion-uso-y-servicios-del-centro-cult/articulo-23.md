@@ -1,0 +1,1 @@
+Artículo 23 – Al recibir los elementos de la exposición, la administración del Centro Cultural llenará un formato de recibo, en donde se anotarán todas las características de cada una de las obras que conforman la exposición y las condiciones en que se reciben.

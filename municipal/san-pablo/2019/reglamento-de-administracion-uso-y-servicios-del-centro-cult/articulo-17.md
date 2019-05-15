@@ -1,0 +1,1 @@
+Artículo 17 – La Administración del Centro Cultural se encargará de vigilar la seguridad y buen uso de las áreas que conforman los espacios culturales en general, buscando de manera permanente su buen funcionamiento.

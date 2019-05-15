@@ -1,0 +1,1 @@
+Artículo 7 – ÁREAS MÚLTIPLES. Son áreas de uso múltiples, aquellas que se destinan a usos diversos, sin alterar la integridad física y el carácter cultural del centro para las artes o música, en la cuales se podrán realizar talleres, cursos, eventos y exposiciones.

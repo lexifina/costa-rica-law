@@ -1,0 +1,1 @@
+Artículo 3 – HORARIO. El horario de atención del Centro Cultural, será de 8 am a 4 pm en horario de oficina, en caso de uso de instalaciones para cursos, talleres de capacitación, exposiciones o eventos generales será hasta las 10:00 pm máximo.
