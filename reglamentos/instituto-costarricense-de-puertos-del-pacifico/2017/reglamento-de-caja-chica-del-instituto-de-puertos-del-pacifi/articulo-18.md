@@ -1,1 +1,0 @@
-ARTICULO 18: De la autorización para realizar compras de menor cuantía por medio de la caja chica: Se entenderá por compras de menor cuantía, las que se pueden realizar de manera más expedita para cubrir una necesidad de la institución, sin sobrepasar el monto estipulado en este reglamento.

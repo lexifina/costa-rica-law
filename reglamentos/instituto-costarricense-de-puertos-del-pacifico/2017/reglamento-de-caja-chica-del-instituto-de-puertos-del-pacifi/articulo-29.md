@@ -1,1 +1,0 @@
-ARTICULO 29: De las unidades que pueden contar con la sub partida de gastos de representación: Podrán presupuestar la sub partida de gastos de representación únicamente la Presidencia Ejecutiva y la Gerencia General.
