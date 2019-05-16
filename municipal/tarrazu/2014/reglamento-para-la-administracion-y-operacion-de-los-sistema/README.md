@@ -14,3 +14,4 @@ Reglamento para la administración y operación de los sistemas de estacionómet
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-02-23 | la propia norma |
+| 2 | 2019-05-16 | Reglamento municipal 157 (2019-05-16) |
