@@ -1,0 +1,1 @@
+Artículo 3º—Se permitirán muestras médicas de estos productos. El etiquetado de dichas muestras, deberá indicar la siguiente leyenda en tamaños de letras fácilmente legibles: “Muestra Médica, Producto sin valor comercial”.

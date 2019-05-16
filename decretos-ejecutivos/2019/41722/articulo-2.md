@@ -1,0 +1,1 @@
+Artículo 2º—Esta dispensación únicamente se podrá efectuar en establecimientos que cuenten con Permiso Sanitario de Funcionamiento para Farmacia y con el debido asesoramiento farmacéutico del regente.
