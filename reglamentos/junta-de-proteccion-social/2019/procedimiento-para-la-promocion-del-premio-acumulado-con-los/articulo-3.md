@@ -1,0 +1,1 @@
+Artículo 3º—Mecánica de participación. La mecánica de participación es automática, con solo adquirir al menos una fracción de Lotería Popular y/o Lotería Nacional de todos los sorteos exceptuando el sorteo Gordito de Medio Año y todos los sorteos que se realizan en el mes de diciembre, los compradores quedan participando del Premio Acumulado.
