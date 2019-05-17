@@ -1,0 +1,17 @@
+N° 41630-MEP
+EL PRESIDENTE DE LA REPÚBLICA,
+Y EL MINISTRO DE EDUCACION PÚBLICA
+Con fundamento en las facultades y atribuciones conferidas en los artículos 140 incisos 3) y 18), y 146 de la Constitución Política; artículos, 11, 25 inciso 1), 27 inciso 1) y 28 inciso 2) acápite b de la Ley Nº 6227 del 2 de mayo de 1978, Ley General de la Administración Pública; 1, 7 y 18 inciso b de la Ley Nº 3481 del 13 de enero de 1965, Ley Orgánica del Ministerio de Educación Pública; y Ley Nº 2160 del 25 de setiembre de 1957, Ley Fundamental de Educación;
+Considerando:
+I.—Que la educación es una prioridad para el desarrollo integral del ser humano y el bienestar social, así como el principal instrumento para enfrentar la pobreza, la exclusión y la desigualdad.
+II.—Que el Ministerio de Educación Pública es el órgano del Poder Ejecutivo en el ramo de la educación, a cuyo cargo está la función de administrar todos los elementos que lo integran para la ejecución de las disposiciones pertinentes del Título Sétimo de la Constitución Política, de la Ley Fundamental de Educación, de las leyes conexas y los respectivos reglamentos.
+III.—Que el Ministerio de Educación Pública en todos sus niveles central, y regional debe establecer estrategias administrativas y pedagógicas que respondan a las necesidades y condiciones particulares del estudiante y que garanticen su ingreso y permanencia en el sistema de educación formal pública.
+IV.—Que a través del acuerdo N° 04-33-2018, tomado por el Consejo Superior de Educación el lunes 23 de julio del año 2018, en la sesión N° 33-2018, se aprobó la presente reforma, que consiste en reducir a 1.5 metros cuadrados el área locativa para I, II, y III ciclo de la Educación General Básica y IV ciclo de la Educación Diversificada.
+V.—Que de conformidad con el artículo 12 del Decreto Ejecutivo N° 37045-MP-MEIC, Reglamento a la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos”, adicionado por el Decreto Ejecutivo N° 38898-MP-MEIC, artículo 12 bis y, en virtud de que este instrumento jurídico no contiene trámites, requisitos ni obligaciones que perjudiquen al administrado, se exonera del trámite de la evaluación costo-beneficio de la Dirección de Mejora Regulatoria del Ministerio de Economía, Industria y Comercio. Por tanto,
+Decretan:
+REFORMA DEL ARTÍCULO OCHO DEL DECRETO
+EJECUTIVO N° 40529-MEP Y SUS REFORMAS,
+REGLAMENTO DE MATRÍCULA Y TRASLADO DE LOS
+ESTUDIANTES, DEL 28 DE JULIO DEL 2017
+Artículo 1º—Refórmese el artículo ocho del Decreto Ejecutivo Nº 40529-MEP, Reglamento de Matrícula y Traslado de los Estudiantes, del veintiocho de julio de dos mil diecisiete, publicado en el Alcance N° 185 a La Gaceta N° 144 del 31 de julio de 2017; cuyo texto en adelante dirá:
+“Artículo 8°. Cuando una institución educativa presente limitaciones locativas, (dos metros cuadrados por estudiante para la Educación Preescolar y 1.5 metros cuadrados para I, II, III Ciclos de la Educación General Básica y IV Ciclo de la Educación Diversificada, de acuerdo con la resolución que establece las regulaciones de los sobresueldos ampliación de jornada laboral, doble jornada y triple jornada vigente y sus respectivas Normas Complementarias Vigentes), para matricular estudiantes corresponde al respectivo supervisor, en coordinación con los directores de instituciones educativas de su jurisdicción, adoptar las medidas necesarias que garanticen el ingreso y la permanencia de los estudiantes en el sistema educativo. En caso de no resolverse, le corresponderá al director regional resolver.”
