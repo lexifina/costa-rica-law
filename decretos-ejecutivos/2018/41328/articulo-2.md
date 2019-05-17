@@ -1,0 +1,1 @@
+Artículo 2º—Derogatoria. Deróguese el Decreto Ejecutivo Nº 39836-MEP-MTSS, denominado “Crea el Sistema Integrado Nacional de Educación Cooperativa y Economía Social Solidaria para el Fomento de la Educación Cooperativa, Asociativismo de la Economía Social Solidaria y del Emprendedurismo Asociativo”.
