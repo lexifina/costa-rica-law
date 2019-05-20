@@ -1,0 +1,1 @@
+Artículo 17.—Tanto el Tesorero Municipal, como el Proveedor, deberán elaborar un informe mensual sobre el uso del Fondo de Caja Chica y el Fondo de Trabajo respectivamente, dirigido a la Alcaldía, con copia al Concejo Municipal.

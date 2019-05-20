@@ -1,0 +1,1 @@
+Artículo 6º—El monto máximo para poder realizar una compra por medio del Fondo de Caja Chica y el Fondo de Trabajo será el equivalente 2.5% del monto establecido por la Contraloría General de la República para Compra Directa de Escasa Cuantía.

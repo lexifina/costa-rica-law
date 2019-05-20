@@ -1,0 +1,6 @@
+Artículo 3º—El fondo de caja chica se utilizará para realizar adelantos de dinero en efectivo o transferencias electrónicas para cubrir los gastos de operación autorizados en el Presupuesto Institucional en que se incurra a lo interno de la Municipalidad, tales como:
+a) Gastos para el traslado, alimentación y hospedaje en el territorio nacional.
+b) Gastos por la compra de materiales, suministros, mobiliario, equipo, herramientas y servicios para la buena marcha de las dependencias institucionales.
+c) Cualquier otro pago que por conveniencia, eficiencia y oportunidad se considere como la mejor forma de realizarlo.
+El fondo de caja chica operará mediante una cuenta corriente en algún Banco del Sistema Bancario Nacional.
+La suma máxima a autorizar por concepto de viáticos en el país será el equivalente de una semana hábil de viáticos totales con base en la tarifa diaria más alta establecida en el Reglamento de Gastos de Viaje y Transporte para Funcionarios Públicos emitido por la Contraloría General de la República. De necesitarse un monto mayor deberá contar con la aprobación de la Alcaldía o superior a cargo y será depositado directamente a la cuenta bancaria del funcionario municipal que lo requiera.

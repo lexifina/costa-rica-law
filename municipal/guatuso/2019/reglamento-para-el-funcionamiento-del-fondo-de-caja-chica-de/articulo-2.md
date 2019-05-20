@@ -1,0 +1,3 @@
+Artículo 2º—El presente Reglamento regula todo lo relacionado con el funcionamiento de los Fondos de Trabajo, Caja Chica y viáticos requerido para el adecuado funcionamiento de la Municipalidad y será utilizado únicamente por los funcionarios municipales.
+Además, regula lo relacionado con el pago de viáticos para los colaboradores de la Municipalidad de Guatuso, considerando que en esta materia rigen complementariamente las disposiciones establecidas en el “Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos dictado por la Contraloría General de la República”.
+Esta materia está excluida del ámbito de aplicación de la Ley de Contratación Administrativa, de conformidad con el artículo 2, inciso e) de ese mismo cuerpo legal

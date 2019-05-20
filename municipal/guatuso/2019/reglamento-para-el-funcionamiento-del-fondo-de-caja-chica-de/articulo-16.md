@@ -1,0 +1,1 @@
+Artículo 16.—El incumplimiento de cualquiera de las obligaciones contenidas en el presente Reglamento se comunicará a la Alcaldía o al departamento de Auditoría, en un plazo no mayor de cinco días hábiles desde que se tenga conocimiento del hecho, para el inicio de la aplicación de las medidas disciplinarias correspondientes.

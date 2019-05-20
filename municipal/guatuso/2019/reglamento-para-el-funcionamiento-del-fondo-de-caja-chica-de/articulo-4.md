@@ -1,0 +1,2 @@
+Artículo 4º—El Fondo de Trabajo será utilizado por la Oficina de la Proveeduría para cubrir los gastos de operación autorizados en el Presupuesto Institucional en que incurran las unidades administrativas a lo interno de la Municipalidad, tales como el pago de los bienes o servicios que se requieran para la buena marcha de la institución.
+El fondo de trabajo operará mediante las cuentas corrientes de los Bancos del Sistema Bancario Nacional en los que la Municipalidad tenga los recursos.
