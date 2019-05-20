@@ -1,1 +1,0 @@
-Artículo 23.—Corresponderá al Proceso de Promoción, realizar al menos dos presentaciones al año a la Junta Directiva, sobre los informes de resultados de las campañas cooperativas integrales, esto al amparo de lo establecido en el Artículo 4 de este Reglamento, en relación con el Plan General de Campañas Cooperativas Integrales.

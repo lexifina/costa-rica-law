@@ -1,1 +1,0 @@
-Artículo 26.—Deróguese el Reglamento para la presentación de Programas Cooperativos de Promoción del Instituto Costarricense de Turismo, publicado en La Gaceta Nº 142 del 23de julio de 2009 aprobado por la Junta Directiva en sesión ordinaria No. 5589, artículo 5, inciso XI del 30 de junio del 2009.
