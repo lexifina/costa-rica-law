@@ -1,0 +1,11 @@
+CAPÍTULO VI
+De los accidentes de tránsito en que intervengan vehículos
+de la Municipalidad
+Artículo 23. Del procedimiento
+En caso de accidentes de tránsito, es deber del funcionario municipal y sus acompañantes proceder de la siguiente manera:
+a) Que el vehículo permanezca en el lugar del accidente, con el motor apagado, y todas las demás medidas de seguridad convenientes, no pudiendo separarse del vehículo por ningún motivo, salvo que sus condiciones físicas producto del accidente no se lo permitan.
+b) Dar aviso a la policía de tránsito y al ente asegurador del vehículo y no mover el vehículo hasta que los mismos se apersonen al lugar y realicen su labor, procurando tomar imágenes y nombres de testigos.
+c) Dar aviso a la jefatura inmediata y al subproceso de Servicios Institucionales, para que se le giren instrucciones y se tomen las medidas del caso.
+d) El funcionario, que condujere el vehículo municipal involucrado deberá presentar ante la dependencia administrativa de Servicios institucionales un informe con copia a su superior inmediato, informe que se elaborará en el formato definido por la dependencia administrativa. Dicho informe se presentará en un término máximo de dos días hábiles, y al mismo deberán adjuntarse una copia de la boleta de citación extendida por la autoridad de tránsito y la boleta extendida por la persona trabajadora del ente asegurador.
+e) Atender y cumplir con el proceso judicial. Para tal efecto, se presentará dentro de los ocho días hábiles siguientes al percance, ante el Juzgado de Transito, a rendir declaración; debiendo asumir el patrocinio letrado de su propio peculio.
+f) El funcionario municipal, involucrado en el accidente de tránsito está en la obligación de presentarse a la audiencia del Juzgado correspondiente, según hora y fecha señalada por el Juzgado.

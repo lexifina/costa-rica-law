@@ -1,0 +1,1 @@
+Artículo 34.—Vigencia y Derogatoria. El presente Reglamento rige a partir de su publicación en el diario oficial La Gaceta y deroga el anterior reglamento publicado en La Gaceta N° 87 del viernes 7 de mayo de 1993.”

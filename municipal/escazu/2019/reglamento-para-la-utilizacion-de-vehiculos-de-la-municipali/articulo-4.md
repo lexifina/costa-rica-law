@@ -1,0 +1,5 @@
+Artículo 4°—Los Tipos de Servicios de Transporte: Se podrán prestar los servicios de transporte bajo las siguientes modalidades:
+a) Servicio ocasional: consiste en poner a disposición de la dependencia usuaria solicitante un vehículo con el propósito de efectuar un traslado específico.
+b) Servicio temporal: préstamo que lleva consigo la disponibilidad de un vehículo al servicio de la dependencia usuaria solicitante, durante un periodo determinado.
+c) Servicio permanente: se da cuando la necesidad del servicio justifica el uso permanente de vehículos por parte de una dependencia administrativa.
+d) Servicios externos: si la institución no cuenta internamente con los medios para llenar una necesidad de transporte existente, o en caso de necesidad urgente, la dependencia administrativa de la Municipalidad encargada del área de transportes podrá solicitar bajo la aprobación de la Alcaldía, la contratación de servicios externos (públicos o particulares), cuyas condiciones variarán de acuerdo con los requerimientos de cada servicio.
