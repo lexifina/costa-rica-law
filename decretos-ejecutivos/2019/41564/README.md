@@ -14,3 +14,4 @@ Reglamento del Título III de la Ley Fortalecimiento de las Finanzas Públicas, 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-02-18 | la propia norma |
+| 2 | 2019-05-20 | Decreto Ejecutivo 41729 (2019-05-20) |
