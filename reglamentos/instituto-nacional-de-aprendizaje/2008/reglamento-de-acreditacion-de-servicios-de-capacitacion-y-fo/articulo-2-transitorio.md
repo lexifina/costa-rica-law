@@ -1,1 +1,1 @@
-II.—El presente reglamento entra a regir a partir de su publicación en el Diario Oficial La Gaceta.
+Transitorio II: Las solicitudes de acreditación, re acreditación, así como los procedimientos administrativos que se encuentren en trámite al momento de entrada en vigencia del presente reglamento, continuarán su tramitología con la reglamentación anterior.

@@ -1,12 +1,4 @@
-Artículo 7º—De la Presidencia. La Presidencia del Concejo de Acreditación tiene las siguientes funciones y atribuciones:
-a. Elaborar de manera conjunta con la Secretaría el Orden del Día para someterlo posteriormente a votación del Concejo en pleno.
-b. Comprobar el quórum.
-c. Abrir, presidir, suspender y levantar las sesiones del Concejo de Acreditación.
-d. Conceder la palabra en el orden solicitado.
-e. Someter a votación los asuntos presentados al Concejo de Acreditación.
-f. Tener doble voto en situaciones de empate ante una decisión.
-g. Llamar al orden cuando el caso lo justifique.
-h. Garantizar que el órgano colegiado cumpla con las leyes y reglamentos relativos a su función.
-i. Fijar las directrices generales y girar las instrucciones en cuanto a los aspectos de forma de las labores del órgano colegiado.
-j. Elaborar y presentar un informe anual para la Junta Directiva.
-k. Cualquier otra que busque la mejor marcha del proceso.
+ARTÍCULO 7: ADMISIBILIDAD
+Una vez que la persona interesada presenta la documentación solicitada, la Unidad de Acreditación procederá a comprobar que la información suministrada por la persona física o jurídica cumpla con todos los requisitos establecidos para la presentación de la solicitud, para este fin dicha Unidad contará con 15 hábiles, de ser así y con la solicitud completa iniciará el proceso de evaluación, caso contrario procederá a su devolución.
+La persona solicitante que cumpla con los requisitos y solicite Diseños Curriculares propiedad del INA deberá firmar el formulario de solicitud respectivo.
+Una vez que le sea otorgado el beneficio de la acreditación, el uso de autorización de Diseños Curriculares del INA y la autorización de uso de marca, para la Acreditación de Servicios de Capacitación y Formación Profesional, se incluirán en el Contrato que rige el beneficio de la acreditación entre la persona beneficiaria y el INA.

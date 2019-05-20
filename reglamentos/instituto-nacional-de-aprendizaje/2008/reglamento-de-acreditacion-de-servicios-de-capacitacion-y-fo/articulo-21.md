@@ -1,4 +1,3 @@
-Artículo 21.—Trámite para la presentación de la solicitud. Los requisitos mínimos que debe presentar la persona física o jurídica para optar por el servicio de acreditación son:
-a. Presentar la solicitud de acuerdo a los procedimientos y formularios del servicio de acreditación vigentes en el sistema de gestión de calidad.
-b. Completar la documentación requerida por la Unidad de Acreditación.
-c. Presentar declaración jurada sobre la certeza de todos los datos consignados y autorizar su verificación en cualquier momento.
+CAPITULO IV DISPOSICIONES FINALES
+ARTÍCULO 21. DEL USO DEL LOGO INSTITUCIONAL DE ACREDITACIÓN
+La entidad con Servicios de Capacitación y Formación Profesional acreditados, podrá hacer uso del logo que se designe como oficial para los servicios acreditados, previa autorización del INA en cuyo caso, se deberá sujetar a los respectivos lineamientos que regulen la forma en que esos permisos son otorgados, indicando claramente lo que esas entidades pueden o no realizar con dichos instrumentos. Así mismo se arroga la potestad de retirar su utilización cuando se determine que fue utilizado indebidamente.

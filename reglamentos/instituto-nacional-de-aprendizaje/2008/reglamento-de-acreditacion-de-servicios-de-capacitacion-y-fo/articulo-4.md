@@ -1,7 +1,6 @@
-Artículo 4º—Los principios. Los principios que rigen la acreditación son:
+ARTÍCULO 4: LOS PRINCIPIOS. LOS PRINCIPIOS QUE RIGEN LA ACREDITACIÓN SON:
 a. Voluntariedad: Disposición unilateral y libre de la entidad a solicitar voluntariamente el sometimiento de uno o varios servicios de capacitación y formación profesional al servicio de acreditación.
 b. Temporalidad: La acreditación es otorgada por un período determinado y el plazo por el cual se otorga, comprende de uno a tres años, pudiéndose otorgar por período completo o fracciones del mismo.
 c. Ética y responsabilidad: Es la actuación de la entidad interesada la cual deberá regirse por estrictos principios de ética y responsabilidad, tanto antes, durante y post desarrollo de los servicios de capacitación y formación profesional.
-d. Reacreditación: Sin ser una renovación del beneficio, constituye la aplicación del proceso de evaluación a aquellos Servicios de Capacitación y Formación Profesional que las personas ya tienen acreditadas y que estas han manifestado por escrito su interés expreso para que se extienda su periodo de acreditación.
-e. Revocabilidad: La acreditación podrá revocarse al final del plazo o en cualquier momento, cuando la parte beneficiaria haya modificado negativamente las condiciones bajo las cuales se le concedió la acreditación, o cuando se presente una variación mediante leyes nacionales, que el INA deba acatar sin que se invoquen perjuicios.
-f. Transparencia: Permite que los resultados sean confiables, se expresen con claridad, accesibilidad y son difundidos oportunamente.
+d. Revocabilidad: La acreditación podrá revocarse al final del plazo o en cualquier momento, cuando la parte beneficiaria haya modificado negativamente las condiciones bajo las cuales se le concedió la acreditación y así se determine después de un debido proceso o cuando se presente una variación mediante leyes nacionales, que el INA deba acatar sin que se invoquen perjuicios.
+e. Transparencia: permite que los resultados sean confiables, se expresen con claridad, accesibilidad y son difundidos oportunamente.

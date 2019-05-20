@@ -1,1 +1,2 @@
-Artículo 20.—Recepción de solicitudes. El proceso de recepción de solicitudes de acreditación estará abierto dos veces al año, una vez por semestre.
+ARTÍCULO 20. RECURSOS
+Contra la resolución final que dicte la Presidencia Ejecutiva, será admisible el recurso de revocatoria o reposición, previsto en la Ley General de la Administración Pública, el cual se interpondrá dentro de los tres días hábiles siguientes a la notificación del acto. Contra los demás actos del procedimiento sólo cabrán los recursos que sean admisibles de acuerdo con la Ley General de la Administración Pública en la forma y dentro de los plazos indicados en esa normativa.

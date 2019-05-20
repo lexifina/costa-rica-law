@@ -1,1 +1,2 @@
-Artículo 22.—Admisibilidad. Una vez que la persona interesada presenta la documentación solicitada, la Unidad de Acreditación procederá a comprobar que la información suministrada por la persona física o jurídica cumpla con todos los requisitos establecidos para la presentación de la solicitud, de ser así y con la solicitud completa iniciará el proceso de evaluación, caso contrario procederá a su devolución.
+ARTÍCULO 22. DEL USO DE LOS DISEÑOS CURRICULARES.
+La entidad solicitante podrá hacer uso de los diseños curriculares, previa autorización del INA en cuyo caso, se deberá sujetar a los respectivos lineamientos que regulen la forma en que esos permisos son otorgados, indicando claramente lo que esas entidades pueden o no realizar con dichos instrumentos.

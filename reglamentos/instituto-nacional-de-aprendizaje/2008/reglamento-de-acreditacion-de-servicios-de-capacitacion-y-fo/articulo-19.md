@@ -1,3 +1,2 @@
-CAPÍTULO IV
-Del procedimiento de acreditación
-Artículo 19.—Apertura. La Unidad de Acreditación abrirá el período de recepción de solicitudes de acreditación una vez por semestre.
+ARTÍCULO 19. APLICACIÓN DE MEDIDAS CAUTELARES
+Sin perjuicio de lo indicado en el artículo 12, y en casos calificados mediante resolución razonada, el Órgano Director del procedimiento podrá tomar las medidas cautelares adecuadas y necesarias para proteger y garantizar, provisionalmente, el objeto del procedimiento y la efectividad de la resolución final. Contra dicha resolución cabra el recurso de revocatoria ante el Órgano Director y el de apelación ante la Presidencia Ejecutiva.

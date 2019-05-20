@@ -1,8 +1,9 @@
-Artículo 8º—De la Secretaría. La secretaría del Concejo de Acreditación tiene las siguientes funciones:
-a. Convocar la sesión del Concejo de Acreditación, comunicando el orden del día, a las personas integrantes de dicho órgano colegiado.
-b. Elaborar el acta de cada sesión en conjunto con el Presidente del Concejo.
-c. Comunicar los acuerdos adoptados a quien corresponda, de conformidad con los procedimientos establecidos para el servicio de acreditación.
-d. Mantener un archivo de los antecedentes de los puntos conocidos y aprobados en cada sesión del Concejo.
-e. Buscar y divulgar normativas internacionales en las áreas acreditables afines con el INA.
-f. Informar al Concejo sobre las solicitudes con trámites no concluidos.
-g. Otras que busquen la mejor marcha del proceso.
+ARTÍCULO 8: PROCEDIMIENTO DE EVALUACIÓN:
+El procedimiento de evaluación estará a cargo de un panel de personas especialistas y representantes de la Unidad de Acreditación, una vez conformado a este se le llamará panel de evaluación.
+Durante el desarrollo del proceso de evaluación la persona solicitante deberá cumplir con lo siguiente:
+a) El recurso humano propuesto por la entidad solicitante deberá cumplir, de ser necesario, con el perfil y la aprobación de las pruebas de idoneidad docente dispuestas por el Núcleo de Formación y Servicios Tecnológicos atinente para los servicios de capacitación y formación profesional que ofrece la entidad solicitante y que se propone acreditar.
+b) La infraestructura presentada por la entidad solicitante deberá cumplir con las normativas
+c) Contar con el permiso del Consejo de Salud Ocupacional, para las instituciones y entidades que así lo requieran. En caso contrario, presentar el permiso sanitario de funcionamiento y patentes o bien el permiso atinente a la actividad comercial.
+Si el estudio genera recomendaciones de cumplimiento obligatorio, estas deben ser cumplidas por la entidad solicitante en un plazo razonable, el cual lo define el panel de evaluación y deberá contar con la aprobación de la Jefatura de la Unidad de Acreditación.
+Si la entidad solicitante no cumple con dichas recomendaciones y no presenta los documentos respectivos en el término establecido se desechará de plano la solicitud, lo cual se informará a la persona solicitante vía oficio, el cual se entregará en el medio de notificaciones.
+Una vez que se hayan cumplido por parte de la persona física o jurídica, las recomendaciones de carácter obligatorio, producto del estudio de evaluación, la solicitud de acreditación será conocida y resuelta por la persona que funja en el cargo de Jefatura de la Unidad de Acreditación o quien esta designe, con base en el dictamen técnico-metodológico emitido por parte de la persona (s) del Núcleo (s) de Formación y Servicio (s) Tecnológico (s) atinente (s).

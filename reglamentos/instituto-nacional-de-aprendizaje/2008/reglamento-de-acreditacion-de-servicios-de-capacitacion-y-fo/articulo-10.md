@@ -1,1 +1,3 @@
-Artículo 10.—De la convocatoria. La convocatoria ordinaria deberá hacerse por escrito, con al menos tres días hábiles de anticipación a la celebración de la sesión, con agenda de trabajo y actas de reunión anterior y las extraordinarias con al menos un día hábil.
+ARTÍCULO 10: DE LA FORMALIZACIÓN DE LOS SERVICIOS DE CAPACITACIÓN Y FORMACIÓN PROFESIONAL ACREDITADOS
+Cuando se resuelva a favor de la persona física o jurídica solicitante, se debe realizar la suscripción de los contratos por parte del INA, éste es firmado por la persona que ejerce el cargo en la Subgerencia Técnica.
+La persona física o jurídica beneficiaria deberá retirar la documentación respectiva en las oficinas de la Unidad de Acreditación, cuando sea notificado por ésta. En caso de que se apruebe la solicitud, la persona deberá en el plazo improrrogable de 3 meses, presentarse a firmar el contrato respectivo. De no hacerlo, se archivará la solicitud.
