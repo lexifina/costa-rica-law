@@ -1,6 +1,7 @@
 Artículo 16.—De los asuntos urgentes y mociones.
 a) Los asuntos de trámite urgente son aquellos que sean así calificados por la Presidencia del Concejo.
-b) Las mociones de los regidores, se presentarán por escrito, con letra clara y sin tachaduras o borrones.
+b) Para que una iniciativa de un regidor sea conocida en una determinada sesión, debe ser presentada a la Secretaría Municipal, por sus proponentes, a más tardar a las siete horas antes del inicio de la sesión; la Secretaría Municipal la remitirá electrónicamente a las Regidurías Propietarias y Suplentes.
+(Así reformado el inciso anterior mediante sesión ordinaria N° 20-19 del 20 de mayo del 2019)
 Cualquier modificación que se haga a una moción, debe escribirse mediante nota al pie, que debe ser firmada por el proponente de la moción.
 Para que una iniciativa de un regidor sea conocida en una determinada sesión, debe ser presentada a la Secretaría Municipal, por sus proponentes, a más tardar a las doce horas del día hábil inmediatamente anterior al de esa sesión; la Secretaría Municipal la remitirá electrónicamente a las Regidurías Propietarias y Suplentes antes de las diecisiete horas de ese mismo día.
 (Así reformado el párrafo anterior en sesión N° 21 del 22 de mayo de 2017)
