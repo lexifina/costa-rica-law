@@ -1,0 +1,6 @@
+Artículo 5º—Las personas trabajadoras de la Municipalidad que deseen acogerse al Régimen de Dedicación Exclusiva y cumplan con los requisitos exigidos para este efecto, tendrán derecho a que la Municipalidad otorgue un porcentaje que será de un diez por ciento (10%), para los que poseen el grado académico de Bachiller Universitario y un veinticinco por ciento (25%), para los que ostenten el grado de licenciatura y otro superior. Dicho porcentaje se aplicará sobre el salario base del servidor, y no podrá ser nunca retroactivo.
+Los porcentajes dispuestos en este artículo no serán de aplicación para los servidores que:
+1. A la fecha de entrada en vigencia de la ley 9635 cuenten con un contrato de dedicación exclusiva en vigor.
+2. Presenten movimientos de personal por medio de las figuras de ascenso, de censo, traslado, permuta o reubicación, siempre que el servidor involucrado cuente con un contrato vigente.
+3. Cuando un contrato de dedicación exclusiva pierde vigencia durante la suspensión temporal de la relación de empleo público, por las razones expresamente previstas en el ordenamiento jurídico.
+A quienes se les reconocerá un 55% por el grado de licenciatura y un 30% por el grado de bachillerato por concepto de dedicación exclusiva.

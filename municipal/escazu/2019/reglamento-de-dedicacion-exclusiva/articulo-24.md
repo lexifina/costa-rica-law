@@ -1,0 +1,1 @@
+Artículo 24.—El Alcalde y Vice-Alcaldes Municipales devengarán por concepto de dedicación exclusiva, calculado de acuerdo con su salario base, un diez por ciento (10%) cuando sean bachilleres universitarios y veinticinco por ciento (25%) cuando sean licenciados o posean cualquier grado académico superior al señalado.
