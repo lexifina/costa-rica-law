@@ -1,3 +1,4 @@
-CAPITULO IV
-De la protección sexual y contra la violencia
-Artículo 14.- En todo caso en que una mujer denuncie un delito sexual en el que ella haya sido ofendida, deberá hacerlo, de ser posible, ante una funcionaria judicial. Cuando, como consecuencia de la denuncia dicha, se requiera un examen médico forense, durante éste la ofendida podrá hacerse acompañar por alguien de su elección.
+Artículo 14- Las mujeres tendrán derecho a la igualdad salarial con los hombres, tanto en el sector privado como en el sector público, por un trabajo de igual valor bajo un mismo patrono, ya sea que se trate de un mismo puesto o de puestos diferentes de igual valor, o en funciones similares o razonablemente equivalentes.
+No se considerarán arbitrarias las diferencias en las remuneraciones que se funden en criterios objetivos debidamente demostrados y justificados, por razones de capacidades, calificaciones, idoneidad, responsabilidad, productividad o antigüedad, entre otras.
+En ningún caso serán válidas las diferencias que impliquen una menor remuneración para las mujeres por el solo hecho de serlo, por la condición de maternidad o que carezcan de una justificación objetiva y razonable.
+(Así adicionado por el artículo único de la ley para la protección de la igualdad salarial entre mujeres y hombres, N° 9677 del 26 de marzo del 2019)
