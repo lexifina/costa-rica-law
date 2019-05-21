@@ -1,0 +1,1 @@
+3º—Los sectores de estero/manglar ubicados en Playa Camaronal, que cuentan a la fecha con delimitación de la zona pública de la Zona Marítimo Terrestre a través de la colocación de mojones y respectiva publicación en el Diario Oficial La Gaceta, mantienen su condición oficial.

@@ -1,0 +1,1 @@
+4º—Los datos técnicos oficiales de la delimitación de dos sectores de estero/manglar de la zona pública de la Zona Marítimo Terrestre de Playa Camaronal, han quedado registrados en la Geodatabase Digital Georreferenciada de la Zona Marítimo Terrestre (ZMT) del IGN.
