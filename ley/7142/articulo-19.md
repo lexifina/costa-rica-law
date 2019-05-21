@@ -1,2 +1,2 @@
-Artículo 19.- Le corresponde al Instituto Nacional de Aprendizaje desarrollar un sistema de formación profesional para la mujer, que oriente las políticas, en el corto, mediano y largo plazo, hacia la capacitación integral de la mujer en los diversos sectores económicos.
-Esta capacitación deberá incluir el conocimiento de la legislación laboral correspondiente e inherente a los derechos de la mujer trabajadora.
+Artículo 19.- El Poder Judicial está obligado a capacitar a todo el personal judicial competente para tramitar los juicios en que haya habido agresión contra una mujer.
+(Así modificada su numeración por el artículo único de la ley igualdad salarial entre mujeres y hombres, N° 9677 del 26 de marzo del 2019, que lo traspasó del antiguo artículo 16 al 19)

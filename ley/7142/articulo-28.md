@@ -1,16 +1,12 @@
-TITULO III
-CAPITULO UNICO
-Reformas a leyes
-Artículo 28.- Refórmanse los artículos 42, 43, 47 y 138 del Código de Familia, para que en lo sucesivo digan así:
-"Artículo 42.- (Afectación del inmueble familiar, privilegios). El inmueble destinado a habitación familiar, cuando así conste en el Registro Público, no podrá ser enajenado ni gravado sino con el consentimiento de ambos cónyuges, si el propietario estuviere ligado en matrimonio; o por disposición judicial, a solicitud del propietario, previa demostración, en este último caso, de la utilidad y la necesidad del acto.
-Tampoco podrá ser perseguido por acreedores personales del propietario, salvo en caso de cobro de deudas contraídas por ambos cónyuges, o por el propietario con anterioridad a la inscripción a que se refiere el artículo siguiente.
-Artículo 43.- (Forma de hacer la afectación, inscripción, efectos, exención fiscal). La afectación la hará el propietario a favor del cónyuge o conviviente, si se tratare de unión de hecho, o de los hijos menores o ascendientes que habiten el inmueble.
-Tanto la afectación como su cesación deberán hacerse en escritura pública e inscribirse en el Registro correspondiente, y surtirán efectos desde la fecha de su inscripción. La afectación y su cesación no estarán sujetas al pago de impuestos ni de derechos de registro."
-"Artículo 47.- (Cesación de la afectación). La afectación cesará:
-a) Por mutuo acuerdo de los cónyuges o convivientes en unión de hecho.
-b) Por muerte o mayoridad de los beneficiarios.
-c) Por separación judicialmente declarada, o por divorcio. En este caso podrá disponerse la continuación mientras haya beneficiarios con derecho.
-ch) Por disposición judicial, a solicitud del propietario, una vez comprobada la utilidad o necesidad de la desafectación.
-d) Cuando de hecho el bien dejare de servir para habitación familiar o pequeña explotación, previa comprobación ante el Tribunal mediante trámite sumario."
-"Artículo 138.- (Ejercicio conjunto, casos de conflicto, administración de bienes del hijo). El padre y la madre ejercen, con iguales derechos y deberes, la autoridad parental sobre los hijos habidos en el matrimonio. En caso de conflicto, a petición de cualquiera de ellos, el tribunal decidirá oportunamente, aun sin las formalidades del proceso, y sin necesidad de que las partes acudan con un profesional de derecho. El tribunal deberá resolver tomando en cuenta el interés del menor.
-La administración de los bienes del hijo corresponde a aquél que se designe de común acuerdo o por disposición del tribunal."
+Artículo 28.- Dentro de las funciones de protección a que se refiere el artículo 23 anterior, estarán:
+a) Intervenir cuando se presenten amenazas, obstrucciones o violaciones a los derechos del administrado.
+b) Prevenir los abusos mediante acciones y recomendaciones que efectuará ante las instancias públicas competentes.
+c) Mediar e interceder ante las autoridades para defender los derechos del administrado.
+ch) Proponer sanciones para aquellos funcionarios que hayan cometido infracciones graves contra los derechos de los administrados.
+d) Proponer reformas a la normativa destinada a hacer más eficiente la defensa de los derechos del administrado, y el mejoramiento del servicio público respectivo.
+e) Fomentar y difundir el conocimiento de los derechos de los administrados en el área respectiva.
+f) Recibir denuncias e investigar, de oficio o a petición de parte, y canalizarlas ante las instancias correspondientes.
+g) En general, efectuar todas las gestiones que estén a su alcance para evitar violaciones de derechos de los administrados, así como garantizar su plena vigencia.
+h) Proponer el estudio permanente de las causas que generan la desigualdad de la mujer, lo mismo que las medidas preventivas.
+(Nota de Sinalevi: Sobre las funciones de la Defensoría de la Mujer indicadas en este artículo, véase la Ley de la Defensoría de los Habitantes de la República No.7319 de 17 de noviembre de 1992, así como los artículos 1,2 y 3 de la Ley de la Jurisdicción Constitucional, N° 7135 del 11 de octubre de 1989 y especialmente la Ley del Instituto Nacional de las Mujeres No.7801 de 30 de abril de 1998)
+(Así modificada su numeración por el artículo único de la ley igualdad salarial entre mujeres y hombres, N° 9677 del 26 de marzo del 2019, que lo traspasó del antiguo artículo 25 al 28)
