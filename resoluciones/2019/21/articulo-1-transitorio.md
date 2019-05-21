@@ -1,0 +1,2 @@
+Transitorio único—Los delitos no tributarios, detectados por los funcionarios actuantes en el ejercicio de sus funciones originados en las áreas de valoración, control extensivo y recaudación, que al momento de emisión de esta resolución estén en curso, deberán acogerse al procedimiento establecido por la Dirección de Fiscalización y ser remitidos a dicha Dirección en los términos indicados en el procedimientos creado para el efecto.
+Publíquese.

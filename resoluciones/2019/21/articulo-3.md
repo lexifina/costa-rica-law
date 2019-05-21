@@ -1,0 +1,1 @@
+Artículo 3º—Que la competencia asignada a la Dirección de Fiscalización, a través de la Subdirección de Investigación y Represión del Fraude Tributario, incluye todos los casos en los términos indicados en el procedimiento establecido para el efecto, aunque el origen de los mismos sea de otra área de la Dirección General de Tributación diferente a la Dirección de Fiscalización.

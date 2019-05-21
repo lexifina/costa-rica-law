@@ -1,0 +1,1 @@
+Artículo 2º—Igualmente quedará la Dirección de Fiscalización, concretamente la Subdirección de Investigación y Represión del Fraude Tributario, facultada para establecer los lineamientos de coordinación con las Áreas Técnico Jurídicas de la Dirección a efectos de recibir el informe base para el levantamiento de la denuncia.

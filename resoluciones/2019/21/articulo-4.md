@@ -1,0 +1,1 @@
+Artículo 4º—Que la firma de los casos en que proceda la presentación de la denuncia o notitia criminis, ante la autoridad judicial correspondiente, será delegada exclusivamente en el Director(a) de la Dirección de Fiscalización.
