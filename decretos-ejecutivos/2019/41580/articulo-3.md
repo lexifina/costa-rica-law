@@ -1,0 +1,5 @@
+Artículo 3º—Del otorgamiento del distintivo.
+El Registro Nacional determinará lo concerniente a las condiciones para la Identificación de cada vehículo para su circulación según se establece en la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial N° 9078 en su artículo 20.
+El Registro Nacional establecerá y definirá el diseño, el color, el texto, los reemplazos y la emisión de las placas de cada vehículo cubierto por este reglamento, esta institución deberá realizar las modificaciones en los sistemas correspondientes.
+Para la inscripción en el Registro Nacional de los vehículos eléctricos o con tecnología cero emisiones, el Registro Nacional definirá los requisitos correspondientes e informará de éstos a los usuarios. Si el vehículo a inscribirse ingresó al país exonerado de los impuestos de importación sea de manera parcial o total, deberá indicarse en el DUA la leyenda “exonerado Ley 9518”.
+El Registro Nacional realizará la sustitución de las placas a los usuarios que hayan nacionalizado los vehículos eléctricos o cero emisiones, para tales efectos el Registro Nacional definirá los requisitos correspondientes e informará de éstos a los usuarios.
