@@ -14,3 +14,4 @@ Reglamento orgánico del Consejo Nacional de Rectores y de la Oficina de Planifi
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-09-19 | la propia norma |
+| 2 | 2019-05-21 | Reglamento 0 (2019-05-21) |
