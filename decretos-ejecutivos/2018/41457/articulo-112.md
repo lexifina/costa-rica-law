@@ -1,4 +1,3 @@
-TÍTULO VI
-CAPÍTULO ÚNICO
-Disposiciones finales
-Artículo 112.- Sanciones por la infracción a las normas de este Arancel. La violación a las disposiciones del presente Arancel por parte de los Abogados (as), será sancionada por la Junta Directiva del Colegio conforme a las previsiones pertinentes del Código de Deberes, Jurídicos, Morales y Éticos de los Profesionales en Derecho y, cuando se trate de Notario (as), conforme a disposiciones del Código Notarial.
+Artículo 112.-Indexación. Los honorarios fijados en el presente Arancel se aumentarán cada dos años, conforme los índices de inflación señalados en el Índice de Precio al Consumidor (IPC) vigente a ese período, pero el aumento no podrá ser superior al diez por ciento (10%).
+Cada primero de febrero, cuando corresponda, la Dirección Financiera del Colegio de Abogados (as) informará a la Junta Directiva el monto del porcentaje actualizado en que se aumenta el Arancel para su publicación en el Diario Oficial La Gaceta y su divulgación a los agremiados en el medio que estime conveniente.
+(Así modificada su numeración por el artículo 2° del decreto ejecutivo N° 41930 del 22 de mayo de 2019, que lo traspaso del antiguio artículo 113 al 112, ya que se indicó derogar el numeral 101 y modificar la numeración de los restantes artículos.)

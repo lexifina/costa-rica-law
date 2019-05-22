@@ -1,10 +1,15 @@
-Artículo 108.- En procesos. En el escrito inicial o de demanda y en el de contestación, en procesos civiles, comerciales y contencioso administrativos, se pagará el timbre conforme con su cuantía y la siguiente escala:
-a) Procesos con estimación hasta doscientos cincuenta mil colones estarán exentos.
-b) Procesos con estimación de doscientos cincuenta mil colones y no pase de un millón de colones, mil cien colones en el escrito inicial.
-c) Procesos con estimación de un millón de colones y no pase de cinco millones de colones, dos mil doscientos colones en el escrito inicial.
-d) Procesos con estimación de cinco millones de colones y no pase de veinticinco millones de colones, cinco mil quinientos colones en el escrito inicial.
-e) Procesos con estimación de veinticinco millones de colones y no pase de los cincuenta millones de colones, once mil colones.
-f) Procesos con estimación de cincuenta millones de colones a cien millones de colones, dieciséis mil quinientos colones.
-g) Procesos con estimación de cien millones de colones a quinientos millones de colones, veintisiete mil quinientos colones.
-h) Procesos con estimación de quinientos millones de colones en adelante, cincuenta y cinco mil colones.
-i) Procesos de cuantía inestimable, excepto los referentes al Código de Familia, Código de Trabajo y Código Penal, doce mil cien colones en el escrito inicial.
+Artículo 108.-Tarifa del timbre en los instrumentos públicos. En los instrumentos públicos se pagará el timbre del Colegio de Abogados (as) de acuerdo con la cuantía del acto o contrato así:
+a) Hasta doscientos cincuenta mil colones estarán exentos.
+b) Mil cien colones cuando la cuantía sea mayor de doscientos cincuenta mil colones y no pase de un millón de colones.
+c) Dos mil doscientos colones cuando la cuantía sea mayor de un millón de colones y no pase de cinco millones de colones.
+d) Cinco mil quinientos colones cuando la cuantía sea mayor de cinco millones de colones y no pase de veinticinco millones de colones.
+e) Once mil colones cuando la cuantía sea mayor de veinticinco millones de colones y no pase de los cincuenta millones de colones.
+f) Dieciséis mil quinientos colones cuando la cuantía sea de cincuenta millones de colones a cien millones de colones.
+g) Veintisiete mil quinientos colones cuando la cuantía sea de cien millones de colones a quinientos millones de colones.
+h) Cincuenta y cinco mil colones cuando la cuantía sea de quinientos millones de colones en adelante.
+i) Los instrumentos adicionales que no aumenten la cuantía estarán exentos, así como todos los declarados por ley exentos de timbres.
+j) Si el documento contuviere varias operaciones el timbre se tasará sobre la suma de cada una de ellas, pero si fueren asuntos inestimables, cubrirán cada uno doscientos setenta y cinco colones de timbre.
+k) El timbre se pagará en el primer testimonio o certificación; si se expiden varios testimonios se agregará a cualquiera de ellos y en los demás se indicará en cuál testimonio se pagó; pero si no se expide una reproducción el timbre se cancelará al margen de la matriz.
+l) Si se tratare de traspaso de muebles o inmuebles la cuantía se establecerá de acuerdo con el mayor valor que resulte entre el valor real y el valor fiscal declarado por las partes.
+m) Toda certificación notarial pagará doscientos setenta y cinco colones.
+(Así modificada su numeración por el artículo 2° del decreto ejecutivo N° 41930 del 22 de mayo de 2019, que lo traspaso del antiguio artículo 109 al 108, ya que se indicó derogar el numeral 101 y modificar la numeración de los restantes artículos.)

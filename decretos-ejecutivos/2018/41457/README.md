@@ -14,3 +14,4 @@ Arancel de honorarios por servicios profesionales de abogacía y notariado
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-02-01 | la propia norma |
+| 2 | 2019-05-22 | Decreto Ejecutivo 41930 (2019-05-22) |

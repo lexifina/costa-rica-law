@@ -1,5 +1,2 @@
-TÍTULO V
-Timbre del Colegio de Abogados (as)
-CAPÍTULO I
-Normas generales
-Artículo 102.- Naturaleza y fines del timbre del Colegio de Abogados (as). De conformidad con la Ley Nº 3245 del 3 de diciembre de 1963, el timbre del Colegio de Abogados (as) constituye un aporte de honorarios de los profesionales. Su producto ingresará a los fondos del Colegio de Abogados (as) como contribución obligatoria de esos profesionales a favor de esa Corporación para su sostenimiento y para engrosar el fondo de pensiones y jubilaciones de sus miembros y los demás fines asignados por Ley.
+Artículo 102.- Ámbito de aplicación del timbre. El timbre del Colegio de Abogados (as) se pagará con ocasión de todos los procesos judiciales, salvo aquellos relativos a materias laboral, familia y penal. El timbre deberá pagarse, además, en las autenticaciones de firmas de documentos de carácter privado y certificados de prenda, así como en todos los instrumentos públicos notariales relativos a actos o contratos, susceptibles o no de inscripción en los registros públicos y las certificaciones expedidas por los Notarios (as) públicos.
+(Así modificada su numeración por el artículo 2° del decreto ejecutivo N° 41930 del 22 de mayo de 2019, que lo traspaso del antiguio artículo 103 al 102, ya que se indicó derogar el numeral 101 y modificar la numeración de los restantes artículos.)
