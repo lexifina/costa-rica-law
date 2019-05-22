@@ -1,0 +1,1 @@
+Artículo 5º—Retención. De los montos de pensión a cancelar a cada uno de las/os pensionadas/os, se deducirá un 10%. Este porcentaje pasará a formar parte de la reserva para atender las pensiones en curso de pago.

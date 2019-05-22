@@ -1,0 +1,1 @@
+Artículo 7º—Del pago de aguinaldo. La/el pensionada/o tendrá derecho al pago de un decimotercer mes, correspondiente al aguinaldo; pago que se realizará en los primeros tres días hábiles del mes de diciembre.

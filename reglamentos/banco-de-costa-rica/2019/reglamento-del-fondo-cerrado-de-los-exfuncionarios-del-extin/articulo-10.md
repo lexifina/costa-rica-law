@@ -1,0 +1,2 @@
+Artículo 10.—Principios aplicables a la interpretación del Reglamento. Para efectos de interpretar el presente Reglamento y la distribución de los beneficios en él regulados, se aplicarán los principios de suficiencia, sostenibilidad, y los demás, propios y conexos de los regímenes de Jubilaciones complementarias vigentes en Costa Rica.
+En todo caso se tomará en cuenta el interés de la colectividad y no el particular, de modo que en caso de duda se resolverá en favor del criterio de sostenibilidad del Fondo.

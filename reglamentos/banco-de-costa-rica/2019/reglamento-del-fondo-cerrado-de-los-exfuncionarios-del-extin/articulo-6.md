@@ -1,0 +1,1 @@
+Artículo 6º—Del pago de la pensión. El Fondo realizará el pago correspondiente a cada uno de las/os pensionadas/os de BANCRÉDITO, en los últimos tres días hábiles del mes que esté en curso, según la modalidad de pago elegida, y en las cuentas bancarias previamente autorizadas por los pensionados.
