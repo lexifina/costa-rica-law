@@ -1,0 +1,1 @@
+ARTÍCULO 4°. Deróguese el Transitorio I. del Artículo 18 del Decreto Ejecutivo Nº 33697-MINAE de 6 de febrero de 2007 “Reglamento para el Acceso a los Elementos y Recursos Genéticos y Bioquímicos de la Biodiversidad en condiciones ex situ”.
