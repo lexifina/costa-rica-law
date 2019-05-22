@@ -1,0 +1,2 @@
+Artículo 22.—Terminación o suspensión del proceso judicial.
+Una vez que el cobro judicial haya sido iniciado, solo podrá darse por terminado el proceso judicial por el pago total de la suma adeudada a la Municipalidad, o mediante la formalización de un arreglo de pago con los requisitos establecidos en el mismo. También podrá darse por terminado en el caso en que se determine fehacientemente o así se declare, la imposibilidad de cobro de la cuenta.

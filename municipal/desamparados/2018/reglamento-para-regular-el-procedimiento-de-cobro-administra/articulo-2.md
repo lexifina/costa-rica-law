@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de aplicación. Este Reglamento es de aplicación obligatoria para la Administración Tributaria Municipal y el Proceso de Cobranzas, así como para la Unidad de Asesoría Legal, los cuales son los encargados de gestionar el cobro extrajudicial y/o judicial de las obligaciones dinerarias que se adeuden a esta.

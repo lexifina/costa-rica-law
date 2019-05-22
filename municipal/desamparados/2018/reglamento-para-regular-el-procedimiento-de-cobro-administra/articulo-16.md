@@ -1,0 +1,1 @@
+Artículo 16.—Sobre la documentación relacionada con los arreglos de pago. Toda la documentación que haya sido requerida por el Proceso de Cobranzas para la suscripción del arreglo de pago, será agregada al expediente debidamente foliado, para su conservación.

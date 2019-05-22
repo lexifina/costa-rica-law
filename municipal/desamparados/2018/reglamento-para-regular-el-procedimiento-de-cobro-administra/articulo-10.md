@@ -1,0 +1,4 @@
+SECCIÓN II
+Del proceso de cobranzas
+Artículo 10.—De la Función de recaudación. La función de recaudación es el conjunto de actividades que realiza el Proceso de Cobranzas, destinadas a percibir efectivamente el pago de todas las obligaciones vencidas municipales de los contribuyentes. La función recaudadora se realizará en tres etapas sucesivas: voluntaria, administrativa y ejecutiva. En la etapa voluntaria, el sujeto pasivo de la obligación tributaria municipal cancelará sus obligaciones sin necesidad de actuación alguna por parte del Proceso de Cobranzas.
+En la etapa administrativa, el Proceso de Cobranzas efectuará el requerimiento persuasivo de pago a los sujetos pasivos morosos. En la etapa ejecutiva, la recaudación se efectúa utilizando los medios legales establecidos y recurriendo a los órganos jurisdiccionales respectivos.

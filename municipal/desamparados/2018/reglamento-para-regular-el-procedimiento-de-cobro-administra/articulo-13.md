@@ -1,0 +1,2 @@
+Artículo 13.—Deudas por derecho de cementerio. Para la formalización del arreglo de pago por concepto de derecho de cementerio, se requerirá el visto bueno de la Alcaldía. Lo anterior,
+sin perjuicio del derecho que ostenta la Municipalidad de adjudicarse nuevamente el derecho de posesión, ante el incumplimiento del artículo 19 del Reglamento del Cementerio de San Juan de Dios o del artículo 21 del Reglamento del Cementerio Central, según sea el caso.
