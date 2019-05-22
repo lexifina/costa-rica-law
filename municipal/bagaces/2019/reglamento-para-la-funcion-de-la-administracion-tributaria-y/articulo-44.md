@@ -1,0 +1,2 @@
+Artículo 44—Pago de honorarios de abogado por parte de la Municipalidad. Únicamente procederá el pago de los honorarios de abogado directamente de la Municipalidad, cuando la contratación de sus servicios esta sea resuelta por parte de la Municipalidad, previo a haber obtenido el pago de la obligación vencida. Se le cancelarán los honorarios profesionales de acuerdo a la Tabla de Honorarios. Esta cancelación no procederá cuando la resolución del contrato sea consecuencia de la
+aplicación de la sanción respectiva.

@@ -1,0 +1,20 @@
+CAPITULO IV
+Derechos generales de los contribuyentes y responsables
+Artículo 50—Derechos generales de los sujetos pasivos:
+a) Derecho al debido proceso y al derecho de defensa de los sujetos pasivos en los procedimientos ante la Administración Tributaria.
+b) Derecho a ser informado y asistido por la Administración Tributaria en el ejercicio de sus derechos o en relación con el cumplimiento de sus obligaciones y deberes tributarios, así como del contenido y el alcance de estos.
+c) Derecho a obtener, de forma pronta, las devoluciones de ingresos indebidos y las devoluciones de oficio, más los intereses que correspondan, de conformidad con la normativa dicha en este reglamento y otras leyes aplicables.
+d) Derecho a consultar, en los términos previstos por la normativa aplicable y este reglamento, a la Administración Tributaria y a obtener respuesta oportuna, de acuerdo con los plazos legales establecidos. Tratándose de solicitudes que consisten en un mero derecho a ser informado, la respuesta debe ser obtenida dentro del plazo de diez días hábiles desde su presentación.
+e) Derecho a una calificación única de los documentos que sustenten sus peticiones y a ser informado por escrito de los requisitos omitidos en la solicitud o el trámite o que aclare la información.
+f) Derecho a conocer, cuando así lo solicite, el estado de tramitación de los procedimientos en que sea parte.
+g)Derecho a conocer la identidad de las autoridades y personas del servicio de la Administración Tributaria , bajo cuya responsabilidad se tramitan los procedimientos de gestión, fiscalización y recaudación tributaria, en los que tenga la condición de interesados.
+h) Derecho a no aportar los documentos ya presentados y recibidos, que deberían encontrarse en poder de la administración actuante, salvo razones justificadas.
+i) Derecho, en los términos legalmente previstos, al carácter confidencial de los datos, informes y antecedentes obtenidos por la Administración Tributaria , que solo podrán ser utilizados para la efectiva aplicación de los tributos, sin que puedan ser cedidos o comunicados a terceros, salvo en los supuestos previstos expresa y específicamente en las leyes.
+j) Derecho a ser tratado con el debido respeto y consideración por el personal al servicio de la Administración Tributaria.
+k) Derecho a formular, en los casos en que sea parte, alegaciones y aportar documentos que deberán ser tomados en cuenta por los órganos competentes en la redacción de las resoluciones y los actos jurídicos en general.
+l) Derecho a ser oído en el trámite de audiencia con carácter previo al dictado de la resolución o acto que tendrá efectos jurídicos para los sujetos pasivos, de conformidad con la ley.
+m) Derecho a ser informado de los valores y los parámetros de valores que se empleen para fines tributarios.
+n) Derecho a ser informado, al inicio de las actuaciones de comprobación y fiscalización llevadas a cabo por la Administración Tributaria, acerca de la naturaleza y el alcance de estas, a que no puedan ser modificados sus fines sin previo aviso, así como de sus derechos y obligaciones en el curso de tales actuaciones, y a que se desarrollen mediante los procedimientos y plazos previstos en la ley.
+ñ) Derecho a que la Administración Tributaria le advierta de manera explícita, concluida la actualización fiscalizadora y antes de dictado el acto final, de las consecuencias jurídicas y económicas que conlleva la aceptación de la determinación de oficio o de las infracciones cometidas, tanto en cuanto al tributo a pagar, como a los accesorios.
+o) Derecho de hacerse acompañar por un profesional competente en materia tributaria, para que le aconseje y asesore en el proceso, sin que esto constituya una obligación del contribuyente.
+Ninguna de las disposiciones anteriores se entenderá que restringe la posibilidad de la Administración Tributaria de publicar, en cualquier medio electrónico, la información que le sea proporcionada, debiendo salvaguardar, la Administración, el principio de confidencialidad.
