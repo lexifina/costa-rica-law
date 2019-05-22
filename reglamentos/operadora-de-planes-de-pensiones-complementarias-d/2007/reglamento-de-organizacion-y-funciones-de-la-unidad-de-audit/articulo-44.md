@@ -1,1 +1,2 @@
-ARTÍCULO 44: Vigencia. Este reglamento rige a partir de su publicación en el diario oficial "La Gaceta".
+ARTÍCULO 44: Acceso a informes.
+Los informes de auditoría sobre materia de control interno una vez comunicados oficialmente a la Administración Activa, son de libre acceso por parte de cualquier persona física o jurídica.

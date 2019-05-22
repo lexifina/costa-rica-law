@@ -1,0 +1,2 @@
+ARTÍCULO 50: Atención a requerimientos externos.
+La Auditoría Interna atenderá los requerimientos que formulen la Contraloría General de la República, la Superintendencia de Pensiones y cualquier otra instancia competente; informando de lo actuado a la Junta Directiva de Popular Pensiones, excepto a las solicitudes de carácter confidencial, los cuales serán comunicados únicamente a las instancias solicitantes.

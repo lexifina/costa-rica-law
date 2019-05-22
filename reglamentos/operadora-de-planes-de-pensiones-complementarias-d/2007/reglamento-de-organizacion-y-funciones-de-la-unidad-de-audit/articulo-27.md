@@ -1,5 +1,2 @@
-ARTÍCULO 27.- Tratamiento de las denuncias. La Auditoria Interna le dará el trámite que corresponda a las denuncias, de conformidad con los siguientes parámetros, mediante resolución motivada:
-a) las denuncias que no sean de su competencia, se canalizarán a las instancias competentes de conformidad con la ley N° 8220 ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos.
-b) las denuncias que sean manifiestamente improcedentes o infundadas, serán archivadas de oficio, siempre y cuando no presenten afectación a un tercero.
-c) las denuncias reiterativas que contengan aspectos que hayan sido atendidos, se comunicará al denunciante, Gerencia o Junta Directiva lo ya resuelto.
-d) las denuncias que se refieran únicamente a intereses particulares del denunciante, en relación con conductas u omisiones de la Administración Activa que les resulten lesivas de alguna forma, y para cuya solución exista un procedimiento específico contemplado en el ordenamiento jurídico vigente, serán archivadas de oficio.
+ARTÍCULO 27: Sobre el acceso a la información durante la confección de los informes.
+Todo dato, información y documentos en proceso de revisión y análisis en la etapa de elaboración de un informe de auditoría, cuya libre divulgación pueda provocar una lesión a derechos fundamentales de los procesos evaluados y un entorpecimiento de las investigaciones, serán confidenciales en esa etapa.

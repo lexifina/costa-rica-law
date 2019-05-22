@@ -1,5 +1,6 @@
-CAPÍTULO V
-DE LA COMUNICACIÓN DE RESULTADOS
-ARTÍCULO 31: Informes de Auditoria. La Auditoria deberá comunicar los resultados de sus auditorías o estudios especiales, mediante informes a efecto de que se tomen las decisiones del caso en tiempo, a propósito y conveniencia, conforme lo dicta la ley N°.8292.
-Dicha comunicación se dirigirá con ese propósito al trabajador de la Administración activa que corresponda, Gerencia o a la Junta Directiva solo cuando la gravedad o importancia de los hechos lo ameriten. Las decisiones a tomar sean de su exclusiva competencia o así lo soliciten.
-La comunicación de resultados se deberá hacer por escrito o de forma electrónica según se estime. Podrá efectuarse durante el desarrollo de la Auditoria o estudio especial, mediante informes parciales y al finalizar la labor por medio del informe final.
+ARTÍCULO 31: Tratamiento de las denuncias.
+La Auditoría Interna le dará el trámite que corresponda a las denuncias, de conformidad con los siguientes parámetros, mediante resolución motivada:
+a) Las denuncias que no sean de su competencia, se canalizarán a las instancias competentes de conformidad con la Ley Nº 8220 Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos.
+b) Las denuncias que sean manifiestamente improcedentes o infundadas, serán archivadas de oficio, siempre y cuando no presenten afectación a un tercero.
+c) Las denuncias reiterativas que contengan aspectos que hayan sido atendidos, se comunicará al denunciante, Gerencia o Junta Directiva lo ya resuelto.
+d) Las denuncias que se refieran únicamente a intereses particulares del denunciante, en relación con conductas u omisiones de la Administración Activa que les resulten lesivas de alguna forma, y para cuya solución exista un procedimiento específico contemplado en el ordenamiento jurídico vigente, serán archivadas de oficio.

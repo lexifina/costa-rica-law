@@ -1,3 +1,2 @@
-CAPÍTULO IV
-DE LA EJECUCIÓN DE LA AUDITORÍA
-ARTÍCULO 28: Aplicación de normas. La Auditoria Interna deberá ejecutar su trabajo de conformidad con lo que establecen las Normas Internacionales de Auditoría, ley 8292, las normas aprobadas y publicadas por el Colegio de Contadores Públicos de Costa Rica; otras normas generalmente aceptadas en la práctica profesional de la Auditoría Interna así como cualesquiera otras disposiciones que dicte la Contraloría General de la República.
+ARTÍCULO 28: Admisibilidad de denuncias.
+El Auditor Interno o Auditora Interna establecerá los mecanismos y medios para recibir y tramitar todas aquellas denuncias presentadas ante la Auditoría Interna, las cuales pueden ser escritas o verbales y manteniendo la estricta confidencialidad en acato a lo definido en el artículo 32 inciso f) de la Ley 8292 y el artículo 23 de este Reglamento.

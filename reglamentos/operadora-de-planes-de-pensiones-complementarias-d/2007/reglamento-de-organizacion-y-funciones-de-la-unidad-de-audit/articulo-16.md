@@ -1,1 +1,4 @@
-ARTÍCULO 16: Ámbito de Acción. El ámbito de acción de la Auditoría Interna está conformado por Popular Pensiones y los entes y órganos públicos y privados sujetos a la competencia institucional de la misma. Para cumplimiento de la misma, el Auditor Interno o Auditora Interna deberá definir y mantener actualizados los procedimientos aplicables en. El ámbito de su competencia conforme lo estipulado en los artículos 4 y 22, inciso a) de la Ley NO.8292 y otra normativa legal y técnica que aplique en la materia con las limitaciones que establece el artículo 34 de la Ley NO.8292.
+CAPÍTULO III
+DE LOS SERVICIOS DE LA AUDITORÍA INTERNA
+ARTÍCULO 16: De los servicios.
+Los servicios que proporciona la Auditoría Interna, como producto de su actividad, se clasifican en servicios de auditoría y servicios preventivos.

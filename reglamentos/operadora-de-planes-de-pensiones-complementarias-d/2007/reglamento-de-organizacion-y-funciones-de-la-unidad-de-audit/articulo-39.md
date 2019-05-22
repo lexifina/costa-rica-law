@@ -1,2 +1,2 @@
-ARTÍCULO 39: Consultas a órganos externos. Para el mejor cumplimiento de sus funciones, la Auditoría Interna podrá hacer las consultas que considere pertinentes, tanto a la Contraloría General de la República como a la Superintendencia de Pensiones.
-La Auditoria Interna podrá requerir la intervención de éstos u otros organismos externos en casos graves y cuando la Junta Directiva no haya atendido sus recomendaciones.
+ARTÍCULO 39: Atención a recomendaciones.
+El trabajador o trabajadora responsable de disponer la implantación de las recomendaciones comunicadas por la Auditoría Interna mediante informes, dispondrá de un plazo máximo de 10 días hábiles, contados a partir del día siguiente de su recibo, para informar a esta sobre la aceptación de tales recomendaciones, conforme artículo 36 inciso a) de la Ley 8292.

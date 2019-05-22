@@ -1,1 +1,4 @@
-ARTÍCULO 32: Estructura de los informes. En cuanto a los requisitos, partes, revisión y remisión de los informes se aplicará principalmente lo dispuesto en la ley 8292, las Normas de Auditoría, procedimientos internos de la Auditoría Interna y cualquier lineamiento que al efecto emita la Contraloría General de la República.
+CAPÍTULO V
+DE LA EJECUCIÓN DE LA AUDITORÍA
+ARTÍCULO 32: Aplicación de normas.
+La Auditoría Interna deberá ejecutar su trabajo de conformidad con lo que establecen las Normas Internacionales de Auditoría, Ley 8292, las normas aprobadas y publicadas por el Colegio de Contadores Públicos de Costa Rica; otras normas generalmente aceptadas en la práctica profesional de la Auditoría Interna, así como cualesquiera otras disposiciones que dicte la Contraloría General de la República.

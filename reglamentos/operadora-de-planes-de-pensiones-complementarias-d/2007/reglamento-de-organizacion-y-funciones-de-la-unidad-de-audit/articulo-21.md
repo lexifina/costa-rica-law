@@ -1,16 +1,8 @@
-ARTÍCULO 21: Otros aspectos relativos al funcionamiento de la Auditoria Interna: El Auditor Interno deberá velar por el cumplimiento de al menos lo siguiente:
-a) Que se realicen los servicios de Auditoría que considere necesarío y prudente efectuar de acuerdo con las normas técnicas que rigen su actuar.
-b) Emitir a sus trabajadores o trabajadoras los lineamientos que considere necesarios en cuanto al procesamiento de la información en aspectos como:
-• Cualidades de la información.
-• Análisis y evaluación de la misma.
-• Registros.
-• Acceso y custodia de la información.
-Calidad de los trabajos realizados.
-• Supervisión de las labores realizadas.
-c) Que el proceso de comunicación de los resultados se realice por los medios idóneos, a saber:
-• Informes de Control Interno.
-• Relaciones de Hechos.
-• Oficios producto de servicios preventivos.
-• Estudios no programados
-• Otros a criterio del Auditor Interno o Auditora Interna.
-d) Girar instrucciones precisas al personal a su cargo, sobre aspectos en materia de seguimiento de las recomendaciones que emite la Auditoria Interna y las disposiciones giradas por la Contraloría General de la República y otros órganos externos de fiscalización, cuando sean de su conocimiento.
+ARTÍCULO 21: Responsabilidades de la Auditoría Interna.
+Con respecto a relaciones y coordinaciones de la Auditoría Interna, el Auditor Interno o Auditora Interna tendrá las siguientes responsabilidades:
+a) Establecer a lo interno de la Auditoría las pautas principales sobre las relaciones y coordinaciones de los trabajadores o trabajadoras de su dependencia con los auditados.
+b) Proveer e intercambiar información con la Contraloría General de la República, así como con otros entes y órganos de control que corresponda, conforme a la legislación vigente, siempre en el ámbito de sus competencias. Esto sin perjuicio de la coordinación interna que pudiera ser requerida y sin que ello implique una limitación para la efectiva actuación de la Auditoría Interna.
+c) Coordinar con el responsable de la asignación del presupuesto institucional, a efecto de asegurar que se asignen los recursos necesarios, de conformidad con los artículos 27 y 39 de la Ley Nº 8292.
+d) Establecer los mecanismos de control necesarios para que el responsable del control presupuestario institucional mantenga un registro separado del monto asignado y aprobado a la Auditoría Interna, detallado por objeto del gasto, de manera que se controlen la ejecución y las modificaciones de los recursos presupuestados para la Auditoría.
+e) Coordinar lo necesario para que la Asesoría Legal de la Institución, brinde un servicio oportuno y efectivo a la Auditoría Interna, mediante los estudios jurídicos que ésta le solicite para la atención de asuntos dentro de su ámbito de acción y la atención de necesidades de orden jurídico, en la medida en que se posibilite desde el punto de vista presupuestario y del recurso humano, con fundamento en lo que establece el artículo 33, inciso c) de la Ley No.8292.
+f) Tomando en consideración las posibilidades presupuestarias y de disposición del recurso humano, gestionar lo pertinente a fin de contar con los criterios técnicos o profesionales en diferentes disciplinas, sea de personal de la misma institución o ajenos a ella, para que lleven a cabo labores de su especialidad en apoyo a las auditorías que realice la dependencia a su cargo.

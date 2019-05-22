@@ -1,1 +1,2 @@
-ARTÍCULO 43: Modificación. El presente Reglamento modifica el aprobado por la Junta Directiva de Popular Pensiones, mediante acuerdo No. Acuerdo N°.181, tomado en sesión ordinaria No.435, del 22 de mayo de 2014 y autorizado por la Contraloría General de la República en oficio No. DFOE-EC-0378 del 04 de Julio de 2014.
+ARTÍCULO 43: Consultas a órganos externos.
+Para el cumplimiento de sus funciones, la Auditoría Interna podrá realizar consultas a la Contraloría General de la República, a la Superintendencia de Pensiones, o a las dependencias del Conglomerado Financiero del Banco Popular y de Desarrollo Comunal S.A., que técnicamente brinden el soporte requerido a Popular Pensiones.

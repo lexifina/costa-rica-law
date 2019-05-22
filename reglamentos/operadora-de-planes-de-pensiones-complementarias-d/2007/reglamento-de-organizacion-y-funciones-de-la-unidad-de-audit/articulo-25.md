@@ -1,2 +1,17 @@
-ARTÍCULO 25: Atención de denuncias. El Auditor Interno o Auditora Interna debe analizar la naturaleza de los asuntos denunciados en cuanto a su connotación administrativa, civil y penal, a fin de valorar la necesidad de hacer un estudio de auditoría; de trasladarla para la atención por parte de la Administración Activa u otra instancia competente. Además de esto, debe en su análisis considerar las prioridades en su plan de trabajo.
-De conformidad con las competencias legales y normativas de la Auditoria Interna, está dentro del ámbito del juicio profesional del Auditor o Auditora Interna, iniciar un estudio en atención de una denuncia, con el propósito de obtener .suficientes elementos de prueba que le permitan sustentar las recomendaciones de su informe, para aportar elementos de juicio que apoyen la decisión de recomendar la apertura de un procedimiento de investigación.
+ARTÍCULO 25: Otros aspectos relativos al funcionamiento de la Auditoría Interna.
+El Auditor Interno deberá velar por el cumplimiento de al menos lo siguiente:
+a) Que se realicen los servicios de Auditoría que considere necesarios y prudentes de acuerdo con las normas técnicas que rigen su actuar.
+b) Emitir a sus trabajadores o trabajadoras los lineamientos que considere necesarios en cuanto al procesamiento de la información en aspectos como:
+• Cualidades de la información.
+• Análisis y evaluación de la misma.
+• Registros.
+• Acceso y custodia de la información.
+• Calidad de los trabajos realizados.
+• Supervisión de las labores realizadas.
+c) Que el proceso de comunicación de los resultados se realice por los medios idóneos, a saber:
+• Informes de Control Interno.
+• · Relaciones de Hechos.
+• Oficios producto de servicios preventivos.
+• Estudios no programados
+• Otros a criterio del Auditor Interno o Auditora Interna.
+d) Girar instrucciones precisas al personal a su cargo, sobre aspectos en materia de seguimiento de las recomendaciones que emite la Auditoría Interna y las disposiciones giradas por la Contraloría General de la República y otros órganos externos de fiscalización, cuando sean de su conocimiento.
