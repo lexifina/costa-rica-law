@@ -15,3 +15,4 @@ Reforma Reglamento de Organización y Funciones de la auditoría interna de la O
 | --- | --- | --- |
 | 1 | 2014-08-06 | la propia norma |
 | 2 | 2016-03-30 | Reglamento 482 (2016-03-30) |
+| 3 | 2019-05-22 | Reglamento 0 (2019-05-22) |
