@@ -27,3 +27,5 @@ n) Permiso de salud: Autorización que otorga el Ministerio de Salud para el uso
 (Así adicionado el inciso anterior por el artículo 2 de la Ley N° 8201 de 18 de diciembre del 2001)
 o) Pirotécnia: Arte de crear fuegos artificiales a base de salitre, azufre y carbón.
 (Así adicionado el inciso anterior por el artículo 2 de la Ley N° 8201 de 18 de diciembre del 2001)
+p) Plataformas prohibidas: las armas automáticas largas y cortas cuyo funcionamiento permita el disparo consecutivo de más de un proyectil con una sola acción del gatillo o las que siendo permitidas sean modificadas para disparar en ráfagas.
+(Así adicionado el inciso anterior por el artículo 2° de la ley N° 9682 del 23 de mayo de 2019)
