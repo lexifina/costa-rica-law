@@ -14,3 +14,4 @@ Se faculta al Presidente de la República y Ministros de Trabajo y Seguridad Soc
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-12-17 | la propia norma |
+| 2 | 2019-05-23 | Decreto Ejecutivo 41732 (2019-05-23) |

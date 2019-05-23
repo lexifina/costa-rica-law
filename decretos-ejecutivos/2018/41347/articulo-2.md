@@ -1,1 +1,2 @@
-Artículo 2º—La Secretaría Técnica de la Red Nacional de Cuido y Desarrollo Infantil, señalada en el artículo 9 de la Ley N° 9220 del 24 de marzo de 2014, se mantendrá adscrita al Instituto Mixto de Ayuda Social.
+Artículo 2º—La Secretaría Técnica de la Red Nacional de Cuido y Desarrollo Infantil, señalada en el artículo 9 de la Ley N° 9220 del 24 de marzo de 2014, se mantendrá adscrita al Instituto Mixto de Ayuda Social, por lo que dicha institución será la principal responsable de las acciones operativas de la Secretaría Técnica de la Redcudi, conforme lo señala el artículo 20 de la Ley N° 9220 del 24 de marzo de 2014.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 41732 del 23 de mayo del 2019)
