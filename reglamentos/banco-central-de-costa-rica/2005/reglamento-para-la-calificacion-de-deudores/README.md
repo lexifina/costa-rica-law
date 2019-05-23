@@ -43,3 +43,4 @@ Reglamento para la Calificación de Deudores
 | 28 | 2014-05-06 | Reglamento 1106 (2014-05-06) |
 | 29 | 2016-06-07 | Reglamento 1258 (2016-06-07) |
 | 30 | 2018-05-15 | Reglamento 1416 (2018-05-15) |
+| 31 | 2019-05-23 | Resolución 1514 (2019-05-23) |
