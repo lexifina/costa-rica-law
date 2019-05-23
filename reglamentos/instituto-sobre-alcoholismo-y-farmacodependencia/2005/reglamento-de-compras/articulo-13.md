@@ -1,1 +1,0 @@
-Artículo 13.—Prohibición de fraccionamiento. Queda prohibido fraccionar operaciones respecto a necesidades previsibles, con el propósito de evadir el procedimiento normal de contratación, según lo establece la Ley de Contratación Administrativa y su Reglamento.

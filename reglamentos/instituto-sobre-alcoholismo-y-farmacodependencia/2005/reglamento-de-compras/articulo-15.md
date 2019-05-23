@@ -1,1 +1,0 @@
-Artículo 15.—Control presupuestario. Todas las órdenes de compra se enviarán a la unidad responsable de contabilidad y presupuesto para establecer las reservas presupuestarias. Las órdenes de compra que se lleguen a anular serán enviadas, también (con la leyenda de anulada y fecha de su anulación), a la unidad mencionada.

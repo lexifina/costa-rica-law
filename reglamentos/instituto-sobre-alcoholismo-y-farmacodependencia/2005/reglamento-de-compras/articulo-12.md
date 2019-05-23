@@ -1,1 +1,0 @@
-Artículo 12.—En las contrataciones de objeto continuo. Sean estas sucesivas o periódicas, celebradas o por tiempo indefinido, se estima el monto del contrato para los efectos del artículo precedente, según el importe de los pagos a efectuar durante cuatro años.

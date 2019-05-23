@@ -1,1 +1,0 @@
-Artículo 19.—Entrega de órdenes de compra o contratos. Adquisición de Bienes y Servicios entrega a los proveedores el original de la orden de compra o copia del contrato, ya sea personalmente o vía fax, observando que la misma cumpla todas las formalidades y trámites requeridos.

@@ -1,1 +1,0 @@
-Artículo 23.—Sanciones. El incumplimiento de este Reglamento o de alguna disposición en materia de contratación administrativa, será sancionado de acuerdo con la Ley de Contratación Administrativa, su Reglamento y cualquier otra disposición normativa atingente a la materia.
