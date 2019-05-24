@@ -14,3 +14,4 @@ Reforma Solo se otorgará licencias de pesca a embarcaciones de bandera extranje
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-01-22 | la propia norma |
+| 2 | 2019-05-24 | Acuerdo 286 (2019-05-24) |

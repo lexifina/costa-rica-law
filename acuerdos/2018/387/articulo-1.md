@@ -1,4 +1,6 @@
+(Derogado)
 INSTITUTO COSTARRICENSE DE PESCA Y ACUICULTURA
+(Esta norma fue derogada por el artículo 5° del acuerdo AJDIP/286-2019 del 24 de mayo del 2019, “Límite máximo de captura y procedimiento para el otorgamiento de licencias de pesca para embarcaciones de bandera extranjero con rede de cerco para captura de atún aleta amarilla en la zona económica exclusiva del Océano Pacífico Costarricense”)
 AJDIP/387-2018.—Puntarenas, a los veinte días del mes de setiembre del dos mil dieciocho.
 Considerando:
 1º—Que la Junta Directiva del INCOPESCA, por medio del acuerdo Nº AJDIP/035-2018, determinó la cantidad de toneladas métricas que se permitirían extraer de atún por medio de embarcaciones de bandera extranjera con red de cero en la Zona Económica Exclusiva, del Océano Pacífico Costarricense.
