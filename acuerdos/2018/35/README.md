@@ -15,3 +15,4 @@ Solo se otorgará licencias de pesca a embarcaciones de bandera extranjera con r
 | --- | --- | --- |
 | 1 | 2018-02-09 | la propia norma |
 | 2 | 2018-09-20 | Acuerdo 387 (2018-09-20) |
+| 3 | 2019-05-24 | Acuerdo 286 (2019-05-24) |
