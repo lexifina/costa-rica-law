@@ -1,4 +1,6 @@
+(Derogado)
 INSTITUTO COSTARRICENSE DE PESCA Y ACUICULTURA
+(Esta norma fue derogada por el artículo 5° del acuerdo AJDIP/286-2019 del 24 de mayo del 2019, “Límite máximo de captura y procedimiento para el otorgamiento de licencias de pesca para embarcaciones de bandera extranjero con rede de cerco para captura de atún aleta amarilla en la zona económica exclusiva del Océano Pacífico Costarricense”)
 AJDIP/009-2019.—Puntarenas, a los diez días del mes de enero del dos mil diecinueve.
 Considerando
 1º—Que los artículos 10 y 103 de La Ley de Pesca, establecen que el otorgamiento de la licencia debe estar condicionado a la disponibilidad y conservación del recurso hidrobiológico que se trate.

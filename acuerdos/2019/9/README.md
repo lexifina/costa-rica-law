@@ -14,3 +14,4 @@ Se acuerda de manera temporal y hasta que se decida la cuota definitiva de captu
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-02-14 | la propia norma |
+| 2 | 2019-05-24 | Acuerdo 286 (2019-05-24) |
