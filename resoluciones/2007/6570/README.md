@@ -15,3 +15,4 @@ Establece requisitos de admisibilidad para toda petición tarifaria que se prese
 | --- | --- | --- |
 | 1 | 2007-06-06 | la propia norma |
 | 2 | 2017-03-28 | Resolución 104 (2017-03-28) |
+| 3 | 2019-05-27 | Resolución 101 (2019-05-27) |
