@@ -1,1 +1,1 @@
-Artículo 27. —En ningún caso podrán destinarse los recursos girados por el PANI a fines comerciales o políticos u otros distintos a los contemplados en los convenios y adendas suscritos entre la Organización no Gubernamental y el PANI.
+Artículo 27. —(Derogado por el artículo 41 del Reglamento de Transferencias de Recursos a Organizaciones no Gubernamentales (O.N.G) para la atención de personas menores de edad, aprobado mediante sesión ordinaria N° 2019-015 del 27 de mayo del 2019)

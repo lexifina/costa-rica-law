@@ -1,2 +1,1 @@
-Artículo 46. —El bono educativo se girará en la primera quincena del mes de enero de cada año por el Departamento Financiero Contable según la cantidad de cupos autorizados por convenio y sujeto a liquidación.
-En caso de convenios que se firmen por primera vez, el bono educativo se girará de forma inmediata. El plazo de la liquidación se definirá en el convenio.
+Artículo 46. —(Derogado por el artículo 41 del Reglamento de Transferencias de Recursos a Organizaciones no Gubernamentales (O.N.G) para la atención de personas menores de edad, aprobado mediante sesión ordinaria N° 2019-015 del 27 de mayo del 2019)

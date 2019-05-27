@@ -1,4 +1,1 @@
-Artículo 38. —Las Organizaciones no Gubernamentales estarán en la obligación de mantener adecuados controles sobre el inventario del equipo y mobiliario adquirido con los fondos aportados por el PANI, en cuanto a uso, registro, depreciación, desuso y denuncias judiciales en casos de robo o sustracción entre otros posibles delitos.
-Cada activo adquirido con recursos PANI debe estar debidamente registrado con una placa que así lo identifique.
-Cuando la Organización no Gubernamental requiera desechar un activo adquirido con recursos PANI, deberá elaborar un acta de desecho, la cual debe ser aprobada por el Departamento Financiero Contable, previo al desecho del bien.
-Cuando por cualquier razón, el programa que ejecuta la organización finaliza, la organización estará en la obligación de devolver al PANI el mobiliario y equipo adquirido con recursos transferidos por el PANI.
+Artículo 38. —(Derogado por el artículo 41 del Reglamento de Transferencias de Recursos a Organizaciones no Gubernamentales (O.N.G) para la atención de personas menores de edad, aprobado mediante sesión ordinaria N° 2019-015 del 27 de mayo del 2019)

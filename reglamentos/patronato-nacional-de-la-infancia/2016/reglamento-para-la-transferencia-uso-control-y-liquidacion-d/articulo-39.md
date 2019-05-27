@@ -1,4 +1,3 @@
 CAPÍTULO VI
 DE LOS INFORMES DE RENDICIÓN DE CUENTAS
-Artículo 39. —Las Organizaciones no Gubernamentales deberán efectuar una liquidación presupuestaria semestral de acuerdo con los formularios establecidos por el Departamento Financiero Contable del PANI, los cuales deben ser debidamente firmados por las autoridades correspondientes de la organización.
-Los presupuestos ordinarios, el plan de trabajo anual y las liquidaciones semestrales de las organizaciones podrán enviarse tanto en forma física como digital, bajo las condiciones que establezca el Departamento Financiero Contable. En caso de enviarse en forma digital, deberán firmarse digitalmente.
+Artículo 39. —(Derogado por el artículo 41 del Reglamento de Transferencias de Recursos a Organizaciones no Gubernamentales (O.N.G) para la atención de personas menores de edad, aprobado mediante sesión ordinaria N° 2019-015 del 27 de mayo del 2019)

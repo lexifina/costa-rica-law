@@ -1,2 +1,1 @@
-Artículo 42. —La Organización no Gubernamental acompañará la liquidación con la Boleta de Monitoreo sobre el cumplimiento del Plan Anual de Trabajo del semestre correspondiente.
-La liquidación financiera deberá entregarse al Departamento Financiero Contable y la Boleta de Monitoreo sobre el cumplimiento del Plan Anual de Trabajo al Departamento de Acreditación.
+Artículo 42. —(Derogado por el artículo 41 del Reglamento de Transferencias de Recursos a Organizaciones no Gubernamentales (O.N.G) para la atención de personas menores de edad, aprobado mediante sesión ordinaria N° 2019-015 del 27 de mayo del 2019)
