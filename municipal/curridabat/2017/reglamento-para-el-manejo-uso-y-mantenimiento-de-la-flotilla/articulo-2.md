@@ -12,3 +12,5 @@ i) Odómetro: Instrumento de medición de Kilometraje recorrido en un vehículo
 j) Ley de Tránsito o Ley 9078: Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial.
 k) Remolque liviano: vehículo sin tracción propia, cuyo PMA no sobrepasa los 750 kg. 100.
 l) Remolque o semirremolque pesado: vehículo sin tracción propia, cuyo PMA sobrepasa los 750 kg.
+m) Bicicleta: vehículo de dos ruedas movido por una persona, provisto de un manubrio en la parte delantera, un asiento para el conductor y dos pedales que trasmiten el movimiento de las piernas a las ruedas.
+(Así adicionado el inciso anterior mediante sesión N° 075-2019 del 27 de mayo del 2019)
