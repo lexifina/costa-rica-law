@@ -1,1 +1,0 @@
-Artículo 54.—La municipalidad establecerá una Comisión de Salud Ocupacional del Trabajo cuyo objetivo será la capacitación en salud ocupacional, emergencias y riesgos del trabajo, de forma que exista retroalimentación permanente al resto de los funcionarios respecto a la difusión y práctica de métodos y sistemas técnicos de prevención en esta materia.

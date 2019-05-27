@@ -1,1 +1,0 @@
-Artículo 57.—Los jefes inmediatos serán responsables de advertir a los funcionarios sobre la prohibición del fumado. La municipalidad deberá, asimismo, indicar dicha prohibición por medio de rótulos en lugares visibles.

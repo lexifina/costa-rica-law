@@ -1,1 +1,0 @@
-Artículo 135.—Para los procedimientos disciplinarios se aplicará el Código Municipal, el procedimiento establecido para la Junta de Relaciones Laborales y, en su defecto, los procedimientos de las normas supletorias en su materia.

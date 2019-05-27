@@ -1,1 +1,0 @@
-Artículo 68.—El procedimiento administrativo interno deberá ser llevado a cabo guardando confidencialidad absoluta de los hechos y sus participantes, respetando los principios que rigen la actividad administrativa y garantizando, ante todo, el debido proceso.

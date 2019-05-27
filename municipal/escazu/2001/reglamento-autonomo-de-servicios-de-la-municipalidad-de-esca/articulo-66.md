@@ -1,1 +1,0 @@
-Artículo 66.—En un plazo no mayor a cinco días naturales después de recibido el oficio ante el Alcalde, este procederá a conformar el Órgano Director que se regirá por las normas del procedimiento administrativo que se dictan en el presente reglamento y en las leyes que rigen la materia.

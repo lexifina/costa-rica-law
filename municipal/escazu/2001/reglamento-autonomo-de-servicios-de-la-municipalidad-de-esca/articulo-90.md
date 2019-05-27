@@ -1,1 +1,0 @@
-Artículo 90.—No obstante lo dispuesto en el artículo anterior, estarán obligados a prestar sus servicios hasta por 12 horas diarias, con hora y media de descanso, conforme lo dispuesto en el Código de Trabajo, para los funcionarios que cumplan las funciones allí estipuladas, o bien, cuando se trate de jornadas extraordinarias de acuerdo con lo que dispone el Código de Trabajo.

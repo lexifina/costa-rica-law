@@ -1,1 +1,0 @@
-Artículo 82.—Por razones de suma urgencia y debidamente justificadas, el trabajador podrá solicitar un adelanto de sus vacaciones que, en ningún caso, podrá superar el número de días que proporcionalmente corresponda a los meses laborados.

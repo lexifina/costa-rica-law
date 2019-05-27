@@ -1,1 +1,0 @@
-Artículo 100.—La Junta de Relaciones Laborales nombrará de su seno a un Presidente, un Vicepresidente y un Secretario. El primero presidirá las sesiones, el segundo lo sustituirá en sus ausencias temporales y al tercero le corresponderá tomar el acta de tales reuniones.

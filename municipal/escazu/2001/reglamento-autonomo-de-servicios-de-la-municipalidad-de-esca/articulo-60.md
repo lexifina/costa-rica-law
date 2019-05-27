@@ -1,1 +1,0 @@
-Artículo 60.—Por el incumplimiento de lo dispuesto en la Ley de Fumado y en este reglamento se impondrá una multa equivalente a la cuarta parte del salario base menor pagado en la municipalidad, en aplicación a la Ley N° 7501.
