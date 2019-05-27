@@ -14,3 +14,4 @@ Obligación de los prestadores del servicio de transporte remunerado de personas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-06-01 | la propia norma |
+| 2 | 2019-05-27 | Resolución 101 (2019-05-27) |
