@@ -14,3 +14,4 @@ Reforma resolución "Establece requisitos de admisibilidad para toda petición t
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-04-07 | la propia norma |
+| 2 | 2019-05-27 | Resolución 101 (2019-05-27) |
