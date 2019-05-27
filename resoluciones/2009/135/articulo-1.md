@@ -1,4 +1,6 @@
+(Revocada)
 AUTORIDAD REGULADORA DE LOS SERVICIOS PÚBLICOS
+(Esta norma fue revocada por la resolución RE-0101-JD-2019, aprobada en sesión N° 25-2019 del 27 de mayo del 2019)
 Resolución RJD-135-2009.-San José, a las ocho horas quince minutos del once de mayo del dos mil nueve.
 Especificaciones para la presentación de encuestas de carácter operativo que como requisito de admisibilidad deben cumplir los prestadores del servicio de transporte remunerado de personas en la modalidad autobús, que presenten peticiones tarifarias ante la Autoridad Reguladora de los Servicios Públicos.
 Considerando:
