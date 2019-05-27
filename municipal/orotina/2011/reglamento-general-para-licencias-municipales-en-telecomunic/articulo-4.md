@@ -5,7 +5,8 @@ Artículo 4º-Para los efectos de la presente normativa se adoptan las siguiente
 4. Federación de Municipalidades: Es la asociación de municipalidades constituida conforme a las disposiciones del Código Municipal.
 5. Licencia de Construcción: la autorización expedida por la Municipalidad para la construcción, instalación, ampliación o modificación de la Obra Constructiva.
 6. Licencia Comercial: la autorización expedida por la Municipalidad para la explotación comercial de las Obras Constructivas y los servicios prestados por las mismas.
-7. Obra Constructiva: torre y su obra civil relacionada, que sirven para satisfacer los requerimientos de instalación de antenas y equipos utilizados para la transmisión inalámbrica en los servicios de telecomunicaciones, ubicados dentro de un predio.
+7. Obra Constructiva: torre, antenas en azoteas, mástiles y postes de telecomunicaciones y su obra civil relacionada, que sirven para satisfacer los requerimientos de instalación de antenas y equipos utilizados para la transmisión inalámbrica en los servicios de telecomunicaciones, ubicados dentro de un predio.
+(Así reformado el inciso anterior mediante sesión ordinaria N° 253 del 27 de mayo del 2019)
 8. Operador: Persona física o jurídica, pública o privada, que explota redes de telecomunicaciones con la debida concesión o autorización, las cuales podrán prestar servicios de telecomunicaciones disponibles al público en general.
 9. Patente: Impuesto a pagar por la realización y explotación de una actividad comercial, industrial o de servicios dentro de la jurisdicción del cantón, de conformidad con la ley de patentes vigente y su reglamento.
 10. Proveedor: Persona física o jurídica, pública o privada, que proporciona servicios de telecomunicaciones disponibles al público sobre una red de telecomunicaciones con la debida concesión o autorización, según corresponda.
