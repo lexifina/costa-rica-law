@@ -1,1 +1,2 @@
-Artículo 27.—(Nota de Sinalevi: Este artículo quedó eliminado y su texto se encuentra en el numeral 26, mediante acuerdo 10 de la sesión Nº 008-2010 del 24 de junio de 2010, lo anterior ya que en dicha sesión se ordena derogar el numeral 12 original y correr la numeración de los restantes artículos)
+Artículo 27.— Artículo 27.—Rige a partir de su publicación en el Diario Oficial La Gaceta.
+(Así reformado mediante sesión ordinaria N° 161-2019 del 28 de mayo del 2019)

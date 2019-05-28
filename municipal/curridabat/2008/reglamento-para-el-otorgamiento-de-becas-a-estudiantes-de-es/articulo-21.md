@@ -1,14 +1,13 @@
-Artículo 21.—A los beneficiarios de una beca municipal, se les cancelará el beneficio, cuando incurran en cualquiera de las causales que se citan:
-1. Dejar de ser vecino del Cantón de Curridabat.
-2. Renuncia expresa a la beca.
-3. Que se demuestre haber incurrido en conductas públicamente reprochables.
-4. Dejar de retirar, sin causa justificada, más de dos mensualidades correspondientes al beneficio.
-5. Dejar de ser estudiante activo.
-6. Asistencia menor al 90º durante el ciclo lectivo (art. 18)
-7. Por haber cambiado la situación económica del becario o de su núcleo familiar, de modo que se demuestre que la ayuda de la Municipalidad no es indispensable para que continúe sus estudios.
-(Así reformado el inciso anterior mediante sesión ordinaria N° 217-2014 del 26 de junio del 2014)
-8. Por la comprobación de que el o la estudiante, ha presentado datos falsos, ocultado información o, cuando no haya notificado a su debido tiempo, las mejoras ocurridas en su situación económica.
-9. Que se compruebe que el beneficiario de la beca de estudios municipal ya cuenta con otra beca estatal.
-(Así reformado el inciso anterior mediante sesión ordinaria N° 217-2014 del 26 de junio del 2014)
-(Así reformado mediante sesión ordinaria N°047-2011 del 24 de marzo del 2011)
+Artículo 21.—A los beneficiarios de una beca municipal, se les cancelará el beneficio, cuando incurran en cualquiera de las causales que se citan: (Modificado mediante acuerdo N° 8 de las 19:24 horas del 26 de junio del 2014, que consta en el acta de la sesión ordinaria N° 217-2014, primera publicación: La Gaceta N° 152 del 08 de agosto de 2014, segunda publicación: La Gaceta N° 206 del 27 de octubre de 2014).
+1. Inasistencia recurrente al Centro educativo: Cuando el estudiante se ausente del Centro Educativo en reiteradas ocasiones durante un mes, sin justificación alguna.
+2. Deserción: Cuando el estudiante deserta del sistema educativo.
+3. Rendimiento académico no satisfactorio: Cuando el estudiante repruebe sin justificación el año lectivo, o más de cuatro materias durante el trimestre.
+4. Inadecuada utilización del dinero de la Beca: Cuando se compruebe que el estudiante no utiliza el recurso otorgado en el pago de útiles, materiales, meriendas, transporte u otros fines propios de su educación.
+5. Cambio en la condición económica del becado: Por haber cambiado la situación económica del becario o de su núcleo familiar, de modo que se demuestre que la ayuda de la Municipalidad no es indispensable para que continúe sus estudios.
+6. Cuenta con otra beca de estudios estatal: Que se verifique que el beneficiario de la Beca Municipal cuenta con la aprobación de otra beca estatal.
+7. Información falsa: Presentación de datos falsos y/u omisión de los mismos.
+8. Incumplimiento en la entrega de documentos: Desatención en la entrega puntual de la información solicitada por parte de la Dirección de Responsabilidad Social cuando se requiera ampliar el expediente y/o actualizar datos. Las solicitudes de información serán notificadas previamente y con un margen de tiempo razonable al Centro Educativo.
+9. Cambio de Centro Educativo: Por cambio de Centro Educativo al que asiste el estudiante y que no sea oportunamente notificado a la Dirección de Responsabilidad Social durante el primer mes posterior al traslado o dos semanas siguientes del inicio del ciclo lectivo.
+10. Por conductas inadecuadas, faltas a la moral, o cualquier situación por la cual el Centro Educativo evidencie de manera formal (por escrito) que el estudiante no debe ser merecedor del beneficio de la beca de estudios.
 (Así corrida su numeración en sesión N° 008-2010 del 24 de junio de 2010, que lo traspaso del antiguo artículo 22 al 21 actual. Lo anterior ya que en dicha sesión se ordena derogar el numeral 12 original y correr la numeración de los restantes artículos)
+(Así reformado mediante sesión ordinaria N° 161-2019 del 28 de mayo del 2019)

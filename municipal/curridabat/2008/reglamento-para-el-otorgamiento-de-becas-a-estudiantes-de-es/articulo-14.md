@@ -1,7 +1,10 @@
-Artículo 14.—La Dirección de Responsabilidad Social abrirá un expediente por becado y podrá solicitar para su estudio y comprobación de la situación económica -familiar -social del becado la presentación de los siguientes requisitos:
-1. Ser vecino(a) del cantón de Curridabat.
-2. Formulario de solicitud de beca debidamente lleno, adjuntando la documentación requerida, en el tiempo y lugar que estipula este Reglamento.
-3. Fotocopia de la cédula de identidad por ambos lados del solicitante (cédula de menor).
+Artículo 14.—La Dirección de Responsabilidad Social abrirá un expediente por becado y podrá solicitar, para su estudio y comprobación de la situación económica -familiar -social del becado, la presentación de los siguientes requisitos: (Se modifican los incisos 1, 2 y 3 que deberán leerse:
+1. Ser residente del cantón de Curridabat.
+(Así reformado el inciso anterior mediante sesión ordinaria N° 161-2019 del 28 de mayo del 2019)
+2. Aportar el formulario de solicitud de beca debidamente lleno y firmado, adjuntando la documentación requerida, en el tiempo y lugar que estipule la Dirección de Responsabilidad Social.
+(Así reformado el inciso anterior mediante sesión ordinaria N° 161-2019 del 28 de mayo del 2019)
+3. Fotocopia de la cédula de identidad por ambos lados del solicitante (cédula de menor) o copia de certificación de nacimiento, fotocopia del pasaporte o cualquier otro documento de identificación vigente para aquellos que son menores de 12 años.
+(Así reformado el inciso anterior mediante sesión ordinaria N° 161-2019 del 28 de mayo del 2019)
 4. Fotocopia de cédula de identidad por ambos lados, del padre o persona mayor de edad responsable del solicitante.
 5. Cuenta de ahorros a nombre del estudiante beneficiario en el Banco Nacional de Costa Rica.
 6. Autorización por escrito para que la Dirección de Responsabilidad Social realice un estudio socioeconómico (visita al hogar) y apertura hacia recibir atención por parte de los servicios sociales de la Municipalidad.

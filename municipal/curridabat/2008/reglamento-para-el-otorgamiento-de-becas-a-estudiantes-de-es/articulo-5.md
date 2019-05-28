@@ -1,1 +1,3 @@
-Artículo 5º—Serán excluidos de este beneficio los estudiantes que por parte del Ministerio de Educación Pública o cualquier otra institución pública o privada, tengan el disfrute de cualquier otro tipo de beca o ayuda social, exceptuando las mencionadas en la Ley Nº 7600.
+Artículo 5º—Serán excluidos de este beneficio los estudiantes que por parte del Ministerio de Educación Pública o cualquier otra institución pública o privada, tengan el disfrute de cualquier otro tipo de beca o ayuda social, exceptuando las mencionadas en la Ley 7600.
+La cual será verificada mediante la información compartida por medio del Sistema Nacional de Información y Registro Único de Beneficiario (SINIRUBE). Una vez verificado que el estudiante cuenta con otro tipo de beca, se procederá al retiro de la beca municipal, comunicándoselo tanto al estudiante, al centro educativo, y al Concejo Municipal.
+(Así reformado mediante sesión ordinaria N° 161-2019 del 28 de mayo del 2019)
