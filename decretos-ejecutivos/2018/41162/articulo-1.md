@@ -9,3 +9,4 @@ Considerando:
 Por tanto decretan:
 “LIMITACIÓN A LAS REESTRUCTURACIONES”
 Artículo 1.Únicamente serán aprobadas las reestructuraciones dentro de ministerios, órganos desconcentrados y entidades cubiertas por el ámbito de la Autoridad Presupuestaria, cuyo propósito sea hacer más eficiente la gestión del Estado, siempre que no impliquen la creación de plazas adicionales, reasignaciones de puestos, así como nuevos gastos.
+(Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 41762 del 28 de mayo de 2019, se acordó exceptuar por una única vez al Instituto Nacional de Fomento Cooperativo (INFOCOOP) de la aplicación del artículo anterior, a efectos de concretar el proceso de modernización de dicha institución.)

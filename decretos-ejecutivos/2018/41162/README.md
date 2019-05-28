@@ -14,3 +14,4 @@ Limitación a las reestructuraciones
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-06-06 | la propia norma |
+| 2 | 2019-05-28 | Decreto Ejecutivo 41762 (2019-05-28) |
