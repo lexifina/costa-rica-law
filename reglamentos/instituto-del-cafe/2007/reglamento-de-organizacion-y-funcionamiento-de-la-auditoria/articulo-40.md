@@ -1,1 +1,1 @@
-Artículo 40.—Declaración de bienes. El Auditor(a) Interno(a) está obligado a cumplir con el requisito de declarar sus bienes de acuerdo con la Ley Nº 8422. También deberá dar cumplimiento a las disposiciones que se establece en esta materia.
+Artículo 40. —Declaración de bienes. El Auditor(a) Interno(a) está obligado a cumplir con el requisito de declarar sus bienes de acuerdo con la Ley N.º 8422. También deberá dar cumplimiento a las disposiciones que se establece en esta materia.

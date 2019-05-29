@@ -1,2 +1,3 @@
-Artículo 114.—Archivo permanente. La Auditoría Interna mantendrá un archivo permanente de las regulaciones que afecten su competencia institucional. De forma específica de la normativa y directrices que emita la Contraloría General de la República tanto a la Auditoría Interna como a la Administración.
-Se mantendrá archivo de los estudios generados por la Auditoría Interna por el período que rige la prescripción según la normativa aplicable. El archivo permanente podrá ser electrónico y/o físico, según la necesidad.
+Artículo 114. —Archivo permanente. La Auditoría Interna mantendrá un archivo permanente actualizado en formato impreso y/o digital u otro medio electrónico que contenga la información relevante de ICAFE, FONECAFE y FONASCAFE.
+De forma específica se mantendrá la normativa y directrices que emita la Contraloría General de la República tanto a la Auditoría Interna como a la Administración y archivo de los estudios generados por la Auditoría Interna por el período que rige la prescripción según la normativa aplicable.
+El archivo permanente podrá ser digital, físico u otro medio, según la necesidad.

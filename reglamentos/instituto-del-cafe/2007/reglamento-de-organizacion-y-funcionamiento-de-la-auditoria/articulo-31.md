@@ -1,4 +1,4 @@
-Artículo 31.—Dirección y administración de la Auditoría Interna. Corresponde al Auditor(a) Interno(a) la dirección superior y administración de la Auditoría Interna. Para ello debe:
+Artículo 31. —Dirección y administración de la Auditoría Interna. Corresponde al Auditor(a) Interno(a) la dirección superior y administración de la Auditoría Interna. Para ello debe:
 a) Definir, establecer y mantener actualizadas las políticas, procedimientos y prácticas requeridas por la Auditoría Interna para cumplir con sus competencias, considerando en cada caso lo relativo a los procesos de esa dependencia.
 b) Definir, establecer y mantener actualizadas las políticas, procedimientos y prácticas de administración, acceso y custodia de la documentación de la auditoría interna, en especial de la información relativa a los asuntos de carácter confidencial que estipulan los artículos 6º de la LGCI y el 8º de la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública.
 c) Mantener actualizado el Reglamento de Organización y Funcionamiento de la Auditoría Interna, cumplir y hacer cumplir el Reglamento.

@@ -1,1 +1,1 @@
-Artículo 25.—Ubicación. La ubicación de la Auditoría Interna dentro de la estructura organizacional del Instituto corresponde a un órgano de muy alto nivel jerárquico con dependencia orgánica de la Junta Directiva denominado Auditoría Interna.
+Artículo 25. —Ubicación. La ubicación de la Auditoría Interna dentro de la estructura organizacional del Instituto corresponde a un órgano de muy alto nivel jerárquico con dependencia orgánica de la Junta Directiva denominado Auditoría Interna.

@@ -1,1 +1,1 @@
-Artículo 29.—Dependencia. El Auditor(a) Interno(a) responderá por su gestión ante la Junta Directiva y en lo conducente ante la Contraloría General de la República. Realizará sus funciones con independencia funcional y de criterio.
+Artículo 29. —Dependencia. El Auditor(a) Interno(a) responderá por su gestión ante la Junta Directiva del ICAFE y en lo conducente ante la Contraloría General de la República. Realizará sus funciones con independencia funcional y de criterio.

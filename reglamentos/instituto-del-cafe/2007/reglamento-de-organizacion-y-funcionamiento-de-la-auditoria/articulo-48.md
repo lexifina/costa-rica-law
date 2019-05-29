@@ -1,1 +1,1 @@
-Artículo 48.—Plazas vacantes. El Auditor(a) Interno(a) deberá gestionar para que las plazas vacantes se llenen en un plazo máximo de tres meses, conforme lo dispone el artículo 28 de la Ley General de Control Interno.
+Artículo 48. —Plazas vacantes. El Auditor(a) Interno(a) deberá gestionar para que las plazas vacantes se llenen en un plazo máximo de tres meses, conforme lo dispone el artículo 28 de la Ley General de Control Interno.

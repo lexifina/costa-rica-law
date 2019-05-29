@@ -1,7 +1,9 @@
 Proceso de comunicación de resultados:
-Artículo 72.—Comunicación de resultados. Los resultados de los servicios de Auditoría serán comunicados por el Auditor(a) Interno(a) conforme su naturaleza según se indica:
-Estudios de control interno, a través de informes de control interno.
-Estudios especiales sin derivación de responsabilidades a través de un informe de control interno.
-Estudios especiales sobre situaciones de las que puedan derivarse posibles responsabilidades a través de relaciones de hechos.
-Servicios preventivos: A través de oficios, memorando u otros medios cuando la naturaleza así lo amerite.
-Lo anterior según lo indicado en el Manual de Normas para el Ejercicio de la Auditoría Interna en el Sector Público.
+Artículo 72. —Comunicación de resultados. Los resultados de los servicios de Auditoría serán comunicados por el Auditor(a) Interno(a) conforme su naturaleza según se indica:
+Servicios de Auditoría: desglosado en Informes de Auditoría y Estudios de Relaciones de Hechos.
+Los servicios de auditoría financiera, auditoría de carácter especial y auditoría operativa serán comunicados a través de informes de auditoría.
+Los servicios de auditoría sobre los que puedan derivarse posibles responsabilidades se comunicarán a través de relaciones de hechos o denuncias penales según corresponda, bajo el formato emitido por la Contraloría General de la República.
+Servicios preventivos: de asesoría y advertencia se comunicarán a través de oficios, memorando, correo electrónico u otros medios. Estos servicios pueden emitirse de manera verbal o escrita. Para casos de emisión de asesoría y advertencias de manera verbal, el Auditor (a) Interno (a) procederá a establecer los controles que permitan realizar el seguimiento e incorporar estas dentro del archivo de la Auditoría Interna.
+Servicios preventivos: de autorización de libros: comunicaran a través de oficios.
+En general de resultados de todos los servicios de Auditoría Interna se comunicarán por medio físico o electrónico. Los documentos electrónicos se formalizan con firma digital cuando sea requerida.
+Informes de Servicios de Auditoria:

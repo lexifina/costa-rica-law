@@ -14,3 +14,4 @@ Reglamento de Organización y Funcionamiento de la Auditoría Interna del ICAFÉ
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-08-08 | la propia norma |
+| 2 | 2019-05-29 | Reglamento 2258 (2019-05-29) |
