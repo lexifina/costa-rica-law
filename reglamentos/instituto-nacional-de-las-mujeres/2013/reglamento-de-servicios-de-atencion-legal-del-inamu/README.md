@@ -14,3 +14,4 @@ Reglamento de servicios de atención legal del INAMU
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-10-29 | la propia norma |
+| 2 | 2019-05-29 | Reglamento 12 (2019-05-29) |

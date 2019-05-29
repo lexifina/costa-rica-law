@@ -5,7 +5,8 @@ b. Unión de hecho,
 c. Bienes gananciales,
 d. Pensión alimentaria,
 e. Procesos de filiación
-f. Procesos de niñez, adolescencia, custodia y patria potestad; únicamente cuando los casos impliquen la existencia de una vulneración a los derechos de las mujeres y previa verificación del estado del caso con el Patronato Nacional de la Infancia, si es procedente.
+f. Procesos de niñez, adolescencia, custodia y patria potestad; únicamente cuando los casos impliquen la existencia de una vulneración a los derechos de las mujeres.
+(Así reformado el inciso anterior mediante sesión N° 12-2019 del 29 de mayo del 2019)
 2) Derechos laborales de las mujeres
 3) Hostigamiento sexual en el empleo y la docencia
 4) Derecho penal, en los siguientes temas:

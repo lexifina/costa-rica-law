@@ -9,9 +9,12 @@ IV.—Que de conformidad con la Ley contra la Violencia Doméstica N° 7586 en s
 V.—Que el INAMU tiene la atribución de vigilar que las disposiciones administrativas no sean discriminatorias y respeten los derechos de las mujeres así como coadyuvar cuando lo considere pertinente, en procesos judiciales que afecten los derechos de las mujeres, tal y como se puede observar en los incisos h y k del artículo 4, respectivamente de la Ley de Creación del INAMU.
 VI.—Que la Ley General de la Administración Pública en su artículo 276 señala que podrá ser coadyuvante en los procedimientos administrativos aquel que esté indirectamente interesado en el acto final, o en su denegación o reforma, aunque tenga un interés derivado o no actual respecto al de la parte, lo que otorga el fundamento legal suficiente para que INAMU también pueda coadyuvar en procedimientos administrativos, cuando lo considere pertinente.
 VII.—Que dada la importancia de las funciones y atribuciones descritas, que implican ofrecer una serie de servicios legales diferentes en beneficio de las mujeres usuarias, se considera oportuno y necesario contar con un reglamento que aclare los distintos tipos de servicios que bajo la base legal existente pueden brindarse a las mujeres y que estandarice y describa los criterios para la atención de los casos, especialmente para determinar cuándo constituirse en coadyuvante.
+De conformidad con el artículo 4°, inciso k) de la Ley supracitada, la Institución tiene la atribución de coadyuvar en procesos que afecten los derechos de las mujeres.
+(Así adicionado el considerando anterior mediante sesión N° 12-2019 del 29 de mayo del 2019)
 De conformidad con lo indicado, la Junta Directiva del INAMU, en acuerdo número cuatro de la sesión ordinaria N°34- 2013, celebrada el 25 de setiembre de 2013 emite el presente:
 REGLAMENTO DE SERVICIOS DE ATENCIÓN LEGAL
 A LAS USUARIAS DEL INAMU
 CAPÍTULO I
 Generalidades
-Artículo 1º—Objeto: Esta norma regula los servicios legales que presta el INAMU en razón de sus fines, atribuciones y deberes legales. Este reglamento será de acatamiento obligatorio para todas las dependencias que ofrezcan atención directa a las mujeres, dentro de la estructura vigente del INAMU.
+Artículo 1º—Objeto: Esta norma regula los servicios legales que presta el INAMU en razón de sus fines, atribuciones y deberes legales. Este Reglamento será de acatamiento obligatorio para la elaboración de coadyuvancias en los procesos que afecten los derechos de las mujeres; en los casos que el INAMU asuma la Representación Legal en el marco de lo dispuesto en la Ley N° 7586, así como en aquellos procesos asociados a la defensa de los derechos de las mujeres.
+(Así reformado mediante sesión N° 12-2019 del 29 de mayo del 2019)

@@ -6,3 +6,5 @@ Artículo 12.—Deberes de la persona profesional en Derecho que gestiona una co
 5. Registrar las actuaciones en el expediente abierto al efecto.
 6. Mantener informada a su jefatura y a la Presidencia Ejecutiva del estado de los procesos judiciales y procedimientos administrativos en los que coadyuva el INAMU a su cargo.
 7. Brindar asesoría jurídica a la usuaria sobre el desarrollo del proceso en el que el INAMU coadyuva.
+8. Cualquier otra acción que sea necesaria para concluir con la coadyuvancia solicitada.
+(Así adicionado el inciso anterior mediante sesión N° 12-2019 del 29 de mayo del 2019)
