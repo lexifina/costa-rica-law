@@ -1,0 +1,1 @@
+ARTÍCULO 3- El terreno donado será destinado al uso exclusivo de las instalaciones de la Escuela de Río Nuevo, ubicada en el distrito primero, Corredor; cantón décimo, Corredores; provincia de Puntarenas, la cual actualmente ocupa ese terreno.
