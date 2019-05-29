@@ -1,0 +1,1 @@
+Artículo 3- La Oficina de Atención y Erradicación del Trabajo Infantil y Protección de la Persona Adolescente Trabajadora (OATIA) del Ministerio de Trabajo y Seguridad Social, es la instancia responsable de dar seguimiento al cumplimiento del Plan Estratégico Nacional denominado Hoja de Ruta para Hacer de Costa Rica un País Libre de Trabajo Infantil y sus Peores Formas.

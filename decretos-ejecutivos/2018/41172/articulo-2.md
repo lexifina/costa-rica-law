@@ -1,0 +1,1 @@
+Artículo 2- Las máximas jerarquías de las instituciones que tengan compromisos y competencias en la Hoja de Ruta, deben emitir directrices a las oficinas de planificación de sus instituciones para garantizar la inclusión de las responsabilidades en las programaciones institucionales.
