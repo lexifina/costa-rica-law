@@ -27,7 +27,8 @@ v) Al conductor de vehículos de transporte público, en cualquiera de sus modal
 w) Al conductor de vehículos tipo bicimoto y motocicleta que adelante en medio de las filas de vehículos a una velocidad superior a veinticinco kilómetros por hora (25 km/h), salvo la excepción dispuesta en el inciso g) del artículo 108.
 x) Al conductor que circule a una velocidad inferior a la mínima establecida en el tramo respectivo, con el propósito comprobado de congestionar o entorpecer el libre flujo vehicular.
 y) Al propietario de un vehículo que lo utilice para prestar servicio de transporte público, en cualquiera de sus modalidades, sin contar con las autorizaciones respectivas. Igual sanción se aplicará al conductor que no siendo el propietario del vehículo utilizado preste el servicio de transporte público, en cualquiera de sus modalidades, sin las respectivas autorizaciones.
-z) A quien circule, estacione u obstruya con cualquier tipo de vehículo el derecho de vía ferroviario.
+z) A quien circule evadiendo el control o la señal de alto en el derecho de vía ferroviario, así como a quien estacione u obstruya, con cualquier tipo de vehículo, el derecho de vía ferroviario.
+(Así reformado el inciso anterior por el artículo 2° de la ley N° 9680 del 22 de abril del 2019)
 aa) Al conductor de un vehículo de carga liviana o de carga pesada que desacate las disposiciones a), b), c), d), e), f) y j) del artículo 114 de esta ley.
 (Así adicionado el inciso anterior por el artículo 6° de la ley N° 9460 del 20 de junio de 2017)
 bb) Al conductor con exceso de pasajeros, según la capacidad máxima del vehículo.
