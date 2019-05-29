@@ -14,3 +14,4 @@ Reglamento de Negociaciones de Pago del Banco Popular y de Desarrollo Comunal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-12-08 | la propia norma |
+| 2 | 2019-05-29 | Reglamento 5643 (2019-05-29) |
