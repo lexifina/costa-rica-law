@@ -1,0 +1,1 @@
+Artículo 12.—Resolución de inadmisibilidad, plazo de atención: El rechazo de la petición en los anteriores casos deberá darse mediante acto fundado y comunicado al solicitante por los medios establecidos para tal fin, en un plazo de cinco días hábiles, a partir del día hábil siguiente a la presentación del escrito de la petición.

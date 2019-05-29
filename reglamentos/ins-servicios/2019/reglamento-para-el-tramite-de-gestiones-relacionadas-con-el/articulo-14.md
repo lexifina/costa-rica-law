@@ -1,0 +1,2 @@
+Artículo 14.—Verificación del cumplimiento de las peticiones: Cada Jefatura deberá enviar copia de la petición recibida a la Asesoría Legal al momento de su recepción, para su registro, validación y seguimiento, así como informar sobre el resultado final de ésta.
+La Asesoría Legal deberá presentar a la Gerencia General un informe de las peticiones recibidas, contestadas o declaradas por resolución inadmisibles, para verificar el cumplimiento de este Reglamento.
