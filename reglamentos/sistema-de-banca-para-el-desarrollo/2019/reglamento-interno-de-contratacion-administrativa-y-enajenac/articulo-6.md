@@ -1,0 +1,2 @@
+Artículo 6-. Registro de Proveedores y capacidad de actuar: Se presume la capacidad de actuar de cualquier oferente nacional o internacional inscrito en el Registro de Proveedores del Sistema Integrado de Compras Públicas (SICOP).
+Asimismo, se presume que quien suscribe una oferta en dicho sistema, posee capacidad legal para ello.

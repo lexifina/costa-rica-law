@@ -1,0 +1,1 @@
+Artículo 46-. Modificación del contrato y contrato adicional. El Administrador del Contrato será el encargado de gestionar las modificaciones al contrato y contratos adicionales de acuerdo con lo establecido en la Ley de Contratación Administrativa y su Reglamento.

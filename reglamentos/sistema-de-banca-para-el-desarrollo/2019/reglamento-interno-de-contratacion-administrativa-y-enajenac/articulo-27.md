@@ -1,0 +1,1 @@
+Artículo 27-. Registro del fondo. El registro de los fondos se llevará mediante una cuenta contable especial separada, destinada para tal efecto; de tal forma que se registren las entradas y salidas de los fondos, para su adecuado control.

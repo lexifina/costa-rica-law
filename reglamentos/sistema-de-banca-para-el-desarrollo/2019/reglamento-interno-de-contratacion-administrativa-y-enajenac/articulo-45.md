@@ -1,0 +1,1 @@
+Artículo 45-. Suspensión del contrato, suspensión de la ejecución del contrato, prorrogas al contrato. El Administrador del Contrato, podrá suspender el contrato o su plazo de ejecución acreditando en el expediente las razones debidamente fundamentadas, de acuerdo con lo establecido en la Ley de Contratación Administrativa y su Reglamento.

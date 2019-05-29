@@ -1,0 +1,3 @@
+Artículo 12-. Esquemas de contratación. De conformidad con el origen de los fondos que sufraguen los costos de la contratación, así como el objeto contractual y el fin perseguido, las compras de la STSBD deberán ser tramitadas bajo dos esquemas de contratación; a saber:
+a. Contrataciones con cargo al Presupuesto de la STSBD: Contrataciones con cargo al Presupuesto de la Secretaría Técnica de Banca para el Desarrollo que, se encuentran sujetas al trámite establecido en la Ley de Contratación Administrativa (Ley Nº 7494) y su Reglamento.
+b. Contrataciones con cargo al FONADE: Contrataciones con cargo al Presupuesto del FONADE que se regirán por los principios que informan la materia (Contratación por Principios).

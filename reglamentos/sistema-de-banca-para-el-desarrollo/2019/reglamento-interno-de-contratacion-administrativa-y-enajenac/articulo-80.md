@@ -1,0 +1,2 @@
+Artículo 80-. Gastos de formalización en la venta de bienes. La totalidad de los gastos legales en que se deba incurrir para concretar la disposición y la enajenación de bienes deberán ser asumidos por el comprador.
+Los abogados y notarios del rol de la STSBD serán los encargados de realizar estos trámites; salvo que se trate de una venta con financiamiento de una entidad financiera supervisada; o bien, que se trate de una readquisición. En dichos casos la elaboración del contrato de traspaso se podrá coordinar con los notarios de la entidad financiera o del expropietario.

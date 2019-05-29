@@ -1,0 +1,3 @@
+Artículo 18-. Recursos en contra de acto final. Los actos finales emitidos en los procedimientos de contratación con cargo al presupuesto de la STSBD serán susceptibles de impugnación en los términos que establece la Ley y el Reglamento a la Ley de Contratación Administrativa.
+En todos los procedimientos de contratación con cargo al FONADE el acto final solo podrá ser impugnado mediante recurso de revocatoria, a interponerse en plazo de cinco (5) días hábiles, frente al funcionario o dependencia administrativa que lo haya emitido.
+Con el ejercicio del recurso que corresponda se dará por agotada la vía administrativa.

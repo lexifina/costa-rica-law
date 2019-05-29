@@ -1,0 +1,1 @@
+Artículo 47-. Recursos. Los procedimientos de contratación administrativa tendrán únicamente los recursos de objeción, revocatoria y apelación que establece la ley y serán resueltos por los encargados de dictar el acto de adjudicación, según corresponda; quienes darán por agotada la vía administrativa.

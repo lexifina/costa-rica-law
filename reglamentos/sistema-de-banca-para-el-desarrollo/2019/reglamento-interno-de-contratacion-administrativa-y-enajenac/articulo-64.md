@@ -1,0 +1,1 @@
+Artículo 64-. Alcance y aplicación. La presente regulación es de acatamiento obligatorio para los funcionarios de la Secretaría Técnica del Sistema de Banca para el Desarrollo, así como para cualquier persona relacionada con las operaciones financieras del Fondo Nacional de Desarrollo e interesados en la adquisición de bienes enajenados por la STSBD.

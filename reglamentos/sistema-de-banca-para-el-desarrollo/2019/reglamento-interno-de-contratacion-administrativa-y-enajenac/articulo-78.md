@@ -1,0 +1,2 @@
+Artículo 78-. Avalúos. El Encargado de Administración de Bienes y Servicios será la responsable de que cada uno de los bienes sujetos a procedimientos de enajenación, cuenten con su respectivo avalúo; el cual, no podrá tener más de un (1) año de vigencia.
+Los avalúos han de ser elaborados por peritos designados por la STSBD, de conformidad con los procedimientos de contratación pública aplicables. También podrá utilizarse avalúos realizados por la Dirección General de Tributación Directa cuya vigencia no supere el plazo indicado.

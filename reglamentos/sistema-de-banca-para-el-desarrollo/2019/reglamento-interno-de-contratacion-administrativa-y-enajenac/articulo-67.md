@@ -1,0 +1,3 @@
+Artículo 67-. Competencias del Comité de adquisición y enajenación de bienes, adicionales a las presentadas en el artículo del presente reglamento:
+1. Conocer del expediente del procedimiento, promover y gestionar los estudios técnicos y recomendaciones que sean necesarias, para valorar la idoneidad de las ofertas concursantes y de conformidad con las competencias determinadas en este Reglamento y normativa conexa. Para tales efectos podrá solicitar información y requerir apoyo a cualquier dependencia de la Secretaría Técnica del Sistema de Banca para el Desarrollo; Asimismo, deberá emplear como insumos básicos los estudios y criterios emitidos por el administrador de bienes.
+2. Emitir formal acto final en los procedimientos de enajenación.

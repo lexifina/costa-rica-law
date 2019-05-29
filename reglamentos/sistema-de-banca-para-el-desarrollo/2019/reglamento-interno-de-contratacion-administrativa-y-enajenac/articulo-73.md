@@ -1,0 +1,1 @@
+Artículo 73-. Venta pública. En cada ocasión que se pretenda la enajenación de uno o varios bienes, el Administrador de bienes publicará un anuncio de venta en un periódico de circulación nacional, al menos durante dos días naturales y consecutivos, debiendo establecer las condiciones de la venta.

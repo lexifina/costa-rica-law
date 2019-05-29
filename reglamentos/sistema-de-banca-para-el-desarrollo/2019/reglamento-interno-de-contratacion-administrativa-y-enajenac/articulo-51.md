@@ -1,0 +1,1 @@
+Artículo 51-. Procedimiento para la rescisión del contrato. La rescisión unilateral de contratos administrativos no iniciados o en curso de ejecución procederá por razones de caso fortuito, fuerza mayor o interés público o bien por mutuo acuerdo. En este caso se aplicará lo establecido en la Ley de Contratación Administrativa y su Reglamento.

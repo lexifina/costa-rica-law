@@ -1,0 +1,1 @@
+Artículo 40-. De los términos de referencia. En todos los casos en que la STSBD promueva Contrataciones Primarias o Secundarias los términos de referencia deberán contener, lo que se establece en la Ley de Contratación Administrativa y su Reglamento.
