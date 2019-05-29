@@ -1,0 +1,1 @@
+Artículo 25.- La Junta Directiva del Colegio de Terapeutas podrá realizar un estudio integral del presente Arancel en el momento que considere oportuno. Dicho estudio deberá ser sometido al Ministerio de Salud para su aprobación y promulgación por parte del Poder Ejecutivo.

@@ -1,0 +1,1 @@
+Artículo 5.- Actividades de Asesoría. El profesional en Terapia puede ayudar a innovar, desarrollar y mejorar un servicio o servicios relacionados con la terapia, según cada área profesional. El profesional puede contribuir en una empresa en diferentes procesos de gestación, aplicación de cambios o soluciones de can1pos propios de su profesión.

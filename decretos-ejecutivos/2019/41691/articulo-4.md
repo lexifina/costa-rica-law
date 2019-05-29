@@ -1,0 +1,3 @@
+Capítulo II.-
+Tipos de actividades que pueden desarrollar los profesionales en Terapias
+Artículo 4.- Actividades educativas. Seminarios, charlas, cursos, y cualquier otra actividad donde el instructor sea un profesional en terapia y se desarrolle una acción formativa, sistemática y organizada a través del seguimiento de un programa, con una estructura temática y con objetivos concretos; que involucra además de la exposición de temas por parte del terapeuta, actividades interactivas, entrega de material didáctico y alguna forma de evaluación, que permita constatar la adquisición de nuevos conocimientos.

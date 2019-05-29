@@ -1,0 +1,1 @@
+Artículo 2.-Obligatoriedad. Este decreto de honorarios mínimos profesionales, es de acatamiento obligatorio para las personas profesionales en las áreas de Terapia Física, Terapia del Lenguaje, Audiología, Terapia Ocupacional, Terapia Respiratoria e Imagenología Diagnóstica y Terapéutica.

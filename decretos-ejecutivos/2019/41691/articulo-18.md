@@ -1,0 +1,1 @@
+Artículo 18.- Sanciones La violación a las disposiciones del presente arancel por parte de los profesionales en Terapia, será sancionada conforme al debido proceso y el principio de legalidad, mediante el proceso disciplinario correspondiente.

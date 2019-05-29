@@ -1,0 +1,1 @@
+Artículo 7.- Consultoría Terapéutica Nacional o Internacional. Es la realizada por una persona profesional, contratada por un organismo internacional o nacional para evaluar el impacto de programas terapéuticos específicos, que incluyan como uno de sus componentes principales el área del profesional, en la sociedad costarricense o en otra.
