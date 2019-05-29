@@ -1,0 +1,1 @@
+Artículo 39: De la comunicación de la resolución final: Una vez firme la resolución final que se dicte en el respectivo procedimiento disciplinario, será el Despacho Ministerial quien remita copia al Departamento de Gestión Institucional del Recurso Humano con el fin de que se incluya en el expediente personal de las partes.

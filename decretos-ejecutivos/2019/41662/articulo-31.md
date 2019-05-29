@@ -1,0 +1,2 @@
+Artículo 31: De la audiencia de carácter privado: La audiencia será oral y privada. Para garantizar la confidencialidad e imparcialidad del proceso y de la audiencia sólo podrán comparecer las partes y sus representantes. En caso de que las partes lo requieran, pueden ser acompañadas por una persona de su confianza.
+Las personas testigos, peritos, y otras personas que de una forma u otra participan en la construcción de la verdad real de los hechos, tendrán limitada su actuación a los aspectos sobre los que versa su conocimiento aplicado y no más allá de ello.

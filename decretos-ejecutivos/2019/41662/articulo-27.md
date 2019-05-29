@@ -1,0 +1,1 @@
+Artículo 27: Plazo para culminar el procedimiento: El procedimiento de acoso laboral no podrá exceder el plazo de dos meses calendario, contados a partir de la interposición de la denuncia. Ello sin perjuicio de que se amplíe el plazo debidamente motivado.

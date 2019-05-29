@@ -1,0 +1,1 @@
+Artículo 47: Contrataciones externas de servicios: En las contrataciones externas de servicios que tenga la institución, se incluirán reglas de dicha contratación con la empresa externa que se trate, que garantice el cumplimiento de la legislación en materia de acoso laboral.

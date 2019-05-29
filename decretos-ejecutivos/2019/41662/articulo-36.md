@@ -1,0 +1,2 @@
+Artículo 36: Informe del Órgano Director: Concluida la audiencia y en un plazo máximo de quince días hábiles el Órgano emitirá un informe debidamente fundado a quien se encuentre designado en el cargo de Ministro(a).
+En caso que el Órgano compruebe la existencia del acoso laboral denunciado, deberá incluir en el informe las recomendaciones y sanciones disciplinarias correspondientes que podrá imponer quien ostente el cargo de Ministro(a) en contra de la parte denunciada y así mismo este pueda resolver las peticiones de las partes.
