@@ -1,0 +1,1 @@
+ARTÍCULO 2- Se autoriza a la Municipalidad del cantón de Corredores para que done al Ministerio de Educación Pública, cédula de persona jurídica número dos - uno cero cero - cero cuatro dos cero cero dos (N.º 2-100-042002), el bien inmueble descrito en el artículo primero de esta ley.
