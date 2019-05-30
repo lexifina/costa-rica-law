@@ -1,0 +1,6 @@
+CIRCULAR Nº 95-2019
+ASUNTO: Permisos con Goce de Salario sin sustitución para actividades de capacitación.
+A LOS DESPACHOS Y OFICINAS JUDICIALES DEL PAÍS
+SE LES HACE SABER QUE:
+El Consejo Superior del Poder Judicial en sesión Nº 45-19 celebrada el 17 de mayo del 2019, artículo C, dispuso emitir circular dirigida a las jefaturas de los despachos y Oficinas judiciales del país, con la indicación de que podrán conceder permiso con goce de salario sin sustitución hasta por cinco días, a las personas servidoras judiciales que estén a su cargo, únicamente para cuando estos requieran asistir a actividades de capacitación dentro del país; en consecuencia, cuando las actividades de capacitación se realicen fuera del país, deberán solicitar la autorización previa de este Consejo. En ese sentido, se tiene por modificado el acuerdo tomado en la sesión N° 74-07 celebrada el 04 de octubre del 2007, artículo XLVIII, y el punto 10.2 del plan de Vacaciones Colectivas del Poder Judicial 2018-2019”.
+San José, 30 de mayo del 2019.
