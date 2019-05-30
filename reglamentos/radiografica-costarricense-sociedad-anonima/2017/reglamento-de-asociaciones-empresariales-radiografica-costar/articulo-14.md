@@ -1,1 +1,0 @@
-Artículo 14. Participación en los ingresos. La participación de los ingresos se establecerá según los aportes de las Partes y las reglas de la industria en la solución a comercializar. El porcentaje mínimo de participación será definido por parte de la Gerencia General quien emitirá el lineamiento respectivo.
