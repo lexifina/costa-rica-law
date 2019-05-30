@@ -1,0 +1,17 @@
+CONSEJO NACIONAL DE VIALIDAD
+REGLAMENTO DE FONDO FIJO CAJA CHICA
+DEL CONSEJO NACIONAL DE VIALIDAD
+Considerando:
+Primero: Mediante la Ley No.7798 “Creación del Consejo Nacional de Vialidad”, sancionada el 30 de abril de 1998 y publicada en La Gaceta número 103, del 29 de mayo de 1998, se crea el Consejo Nacional de Vialidad, como un órgano con desconcentración máxima, adscrito al Ministerio de Obras Públicas y Transportes, con personería jurídica instrumental y presupuestaria, para Administrar el “Fondo para la Atención de la Red Vial Nacional”.
+Segundo: La naturaleza organizacional del Consejo Nacional de Vialidad fue establecida por el legislador para que, en forma flexible, ágil y oportuna, suscriba, administre y fiscalice la conservación, mantenimiento rutinario, mantenimiento periódico, mejoramiento, rehabilitación y construcción de obras viales de la “Red Vial Nacional”, conforme lo establecido en el artículo tercero y cuatro de su ley constitutiva.
+Tercero: Que el artículos 61 inciso h) de la Ley No.8131 “Ley de la Administración Financiera de la Republica y Presupuestos Públicos” de fecha 16 de octubre del 2001, y los artículos 80 y 86 del Decreto ejecutivo No.32988-H-MP-PLAN “Reglamento a la Ley de Administración Financiera de la República y Presupuestos Públicos” de fecha 21 de febrero del 2012, y artículo 8 del Decreto Ejecutivo No. 32874-H “Reglamento General del Fondo de Cajas Chicas“ de fecha 31 de enero de 2006, establece la potestad de la Tesorería Nacional de autorizar y dictar reglamentos para la Administración Central del uso de los fondos de caja chica.
+Cuarto: Que de acuerdo con lo dispuesto en el artículo 1º, incisos a) y b) de la Ley de Administración Financiera de la República y Presupuestos Públicos, resulta indispensable que los órganos y entes administradores y custodios de los fondos públicos, cubiertos por el ámbito de aplicación de dicho texto normativo, dispongan de un fondo fijo de recursos financieros que les permita afrontar gastos menores, indispensables y urgentes, bajo un marco normativo que establezca reglas claras y responsabilidades definidas en su manejo.
+Quinto: Que el artículo 2 inciso e) de la Ley de Contratación Administrativa y artículo 141 del reglamento a dicho ley, establece las actividades exceptuadas de los procedimientos establecidos en esa ley, incluidas las compras que se hagan con dineros de esos fondos.
+Sexto: Que por la realidad presupuestaria del CONAVI es necesario adecuar la anterior normativa a la exigencia de la gestión administrativa, requerida para administrar dichos fondos. En razón de lo anterior, es necesaria la normativa para la constitución de un Reglamento que regule la asignación, operación y control de los Fondos Fijos de Caja Chica para el Consejo Nacional de Vialidad.
+Séptimo: Que conforme a lo señalado en el artículo 61 de la 8131 “Ley de Administración Financiera y Presupuestos Públicos”, la División de Fiscalización de la Tesorería Nacional mediante oficio FIS-156-0008 del 1 de julio de 2008, otorgó el correspondiente visto bueno al proyecto de reglamento del Fondo Fijo de Caja Chica para el Consejo Nacional de Vialidad.
+Por tanto, el Consejo de Administración aprueba el siguiente:
+“REGLAMENTO DEL FONDO FIJO CAJA CHICA PARA EL CONSEJO
+NACIONAL DE VIALIDAD”
+CAPÍTULO I
+Disposiciones generales
+Artículo 1º—Ámbito de Aplicación. El presente reglamento establece las disposiciones generales que regulan la asignación, operación y control de los fondos fijos de caja chica del Consejo Nacional de Vialidad.

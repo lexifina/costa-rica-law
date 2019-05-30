@@ -1,0 +1,4 @@
+Artículo 33. —Informes de arqueos. El Jefe de la Unidad de Contabilidad realizará un programa de revisiones, conciliaciones bancarias, arqueos internos, para el fondo fijo-caja chica y las cajas auxiliares autorizadas, que además deberá remitir a la Auditoria Interna y al Director Administrativo Financiero con la información siguiente:
+i. Programa de arqueos del año siguiente, el cual deberá ser entregado a las autoridades mencionadas en el mes de diciembre de cada año.
+ii. Informe trimestral con arqueos mensuales con los anexos correspondientes, así como los arqueos realizados tanto a la Caja Central como a las auxiliares.
+iii. La información detallada en los documentos elaborados por funcionarios de la Unidad de Contabilidad para los correspondientes arqueos, deberá contar con el nombre, firma y sello de la dependencia correspondiente. Lo indicado deberá también ser atendido por los funcionarios encargados de las cajas auxiliares.

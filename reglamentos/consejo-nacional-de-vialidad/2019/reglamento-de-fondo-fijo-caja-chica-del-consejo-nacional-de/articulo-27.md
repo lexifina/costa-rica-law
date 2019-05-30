@@ -1,0 +1,3 @@
+CAPÍTULO V
+REINTEGRO Y DEVOLUCION
+Artículo 27º.—Devolución por sobrantes de adelanto de caja chica. Todo sobrante de dinero originado del adelanto deberá ser devuelto en el momento de su liquidación. Si la liquidación no la efectúa el funcionario en el tiempo establecido en el presente reglamento, el Encargado de caja chica dará aviso mediante oficio a la Dirección de Gestión de Recursos Humanos, para que realicé una investigación y de ser procedente, solicite la apertura del órgano director de procedimiento. En el caso de excepciones a lo anterior, estas deberán ser autorizadas por el Director Financiero o la Gerencia de Adquisición y Finanzas.

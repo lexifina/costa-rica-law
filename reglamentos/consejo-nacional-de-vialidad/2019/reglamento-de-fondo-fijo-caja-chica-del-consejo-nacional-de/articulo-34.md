@@ -1,0 +1,1 @@
+Artículo 34. —Auditoria del fondo. La Auditoria Interna deberá incluir en su programa de trabajo, como mínimo la realización de una auditoria anual al Fondo Fijo-Caja Chica autorizado, con el fin de evaluar la suficiencia y la efectividad de estos controles. Del respectivo informe se deberá enviar una copia a la Tesorería Nacional, para lo que corresponda.

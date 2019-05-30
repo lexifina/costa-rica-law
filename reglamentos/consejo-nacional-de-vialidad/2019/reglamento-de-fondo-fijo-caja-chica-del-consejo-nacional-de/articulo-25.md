@@ -1,0 +1,4 @@
+Artículo 25º.—Gastos de Representación. Con cargo al Fondo Fijo-Caja Chica se podrán realizar pagos por concepto de gastos de representación únicamente en los casos que a continuación se especifican:
+i. Gastos originados en la celebración de recepciones oficiales con carácter Institucional.
+ii. Los adelantos para gastos de representación ocasionales en el Exterior estarán sujetos a las disposiciones establecidas en el Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos, emitido por la Contraloría General de la República, a los lineamientos de este Reglamento y a las disposiciones que emita la Tesorería Nacional.
+No podrán realizarse pagos con cargo al fondo fijo-caja chica por concepto de: gastos de representación fijos, ni de gastos de representación sujetos a liquidación.

@@ -1,0 +1,1 @@
+Artículo 4º—Naturaleza. La ejecución del gasto mediante el Fondo Fijo-Caja Chica es un procedimiento de excepción y por consiguiente limitado a la atención de gastos menores indispensables y urgentes, según el criterio justificado del Tesorero del CONAVI, Director Financiero o Gerencia de Adquisición y Finanzas.

@@ -1,0 +1,10 @@
+Artículo 39. —Procedimiento de cierre del Fondo Fijo-Caja Chica o cajas chicas auxiliares por parte de la institución. En caso que el responsable del Fondo Fijo-Caja Chica central considere procedente el cierre, procederá de acuerdo a los lineamientos que establezca la Tesorería Nacional.
+Para el cierre de una caja chica auxiliar sea en cuenta corriente o en efectivo se deberá atender lo siguiente:
+i. Deberá existir un acuerdo escrito entre el Director Ejecutivo y Director de Finanzas o en su defecto el Tesorero en caso de que haya sido delegada en él la competencia del artículo 10 del presente reglamento, e informar a la Tesorería Nacional.
+ii. Realizar un arqueo por parte de la Tesorería y de los funcionarios independientes a los de la administración del fondo.
+iii. Reposición de faltantes por parte del responsable de la caja chica o caja auxiliar al momento del arqueo o cuando se determine su responsabilidad.
+iv. En caso de negativa por parte del responsable se informará a la Unidad de Recursos Humanos para que dé inicio al procedimiento disciplinario.
+v. Los sobrantes que resulten del arqueo, deberán ser depositados al día hábil siguiente por el Tesorero en la cuenta bancaria del Baco de Costa Rica que para tal efecto mantenga activa el CONAVI.
+vi. Cierre de la cuenta corriente, anulación de fórmulas de cheques o chequeras según corresponda, depósito del disponible del Fondo Fijo-Caja Chica y el traslado de documentos de operaciones pendientes al responsable en la Tesorería, a fin de liquidar el fondo.
+vii. El efectivo y los documentos que conforman el arqueo de caja chica o una caja auxiliar deberán ser entregados por el responsable al encargado en la Tesorería; el efectivo deberá ser depositado en la cuenta que para tales efectos tenga el CONAVI.
+viii. El responsable de caja chica y auxiliares deberán rendir informe sobre lo actuado, archivar de acuerdo con lo establecido por la Ley General de Archivo y mantener la documentación al alcance de los entes de control y fiscalización.

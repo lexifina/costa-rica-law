@@ -1,0 +1,1 @@
+Artículo 41. —Vigencia Este reglamento entrará en vigencia a partir de su publicación en la Gaceta, dejando sin efecto el reglamento de fondo de caja chica aprobado mediante acuerdo Del Consejo de Administración del Consejo Nacional de Vialidad en el artículo II de la sesión extraordinaria No. 172-02 de fecha 28 de febrero de 2002.
