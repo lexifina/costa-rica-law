@@ -15,3 +15,4 @@ Reglamento para prevenir, prohibir, investigar y sancionar el Hostigamiento Sexu
 | --- | --- | --- |
 | 1 | 2013-08-01 | la propia norma |
 | 2 | 2018-03-21 | Reglamento 2651 (2018-03-21) |
+| 3 | 2019-05-30 | Reglamento 2739 (2019-05-30) |
