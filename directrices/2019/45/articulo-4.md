@@ -1,0 +1,1 @@
+Artículo 4°. Inclusión financiera. Se instruye a los bancos estatales a contribuir con una mejora progresiva en los indicadores de inclusión financiera, tanto a nivel de personas como del segmento de micro, pequeña y mediana empresa.

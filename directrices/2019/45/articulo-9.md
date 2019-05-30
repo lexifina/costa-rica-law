@@ -1,0 +1,1 @@
+Artículo 9°. Banco Popular y Desarrollo Comunal. Se insta al Banco Popular y de Desarrollo Comunal a adoptar los preceptos establecidos en la presente directriz y a definir con el Área Estratégica de Articulación Económica las metas a cumplir para los indicadores señalados en los artículos 2 y 5 de la presente directriz.
