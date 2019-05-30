@@ -18,3 +18,4 @@ Disposiciones internas de orden, dirección y deliberaciones del Consejo de la S
 | 3 | 2016-03-09 | Reglamento 14 (2016-03-09) |
 | 4 | 2017-03-08 | Reglamento 19 (2017-03-08) |
 | 5 | 2019-02-06 | Reglamento 8 (2019-02-06) |
+| 6 | 2019-05-30 | Reglamento 34 (2019-05-30) |
