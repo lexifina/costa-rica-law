@@ -1,0 +1,6 @@
+Artículo 18.- Derechos. Además de los contenidos en el Código Municipal, Código de Trabajo y Reglamento Autónomo de Organización y Servicio de la Municipalidad de Heredia, todos los funcionarios de Sección de Seguridad Ciudadana tendrán derecho a:
+a. Ser acreedor de una distinción por actuaciones meritoria, a saber:
+b. Reconocimiento por parte de la Jefatura inmediata de la Sección de Policía Municipal ante todos los miembros de la Sección de Seguridad Ciudadana.
+c. Mención honorífica por parte del Alcalde Municipal a aquellos funcionarios que se distingan en la ejecución de intervenciones difíciles, arriesgadas, heroicas o que enaltezcan la imagen municipal y que se distingan por sus virtudes profesionales y humanas.
+d. Cursos de actualización de conocimientos y especialidades. Para ello, se tomará en cuenta el desempeño laboral del funcionario, así como las distinciones que le hayan sido otorgadas.
+e. Pago del incentivo de riesgo policial, siempre que las características de la labor lo exijan y con excepción de los Operadores de Monitoreo. Cada caso deberá estar fundamentado en las razones por las cuales el funcionario cumple con el supuesto de peligrosidad. Su reconocimiento quedará sujeto a la existencia de contenido presupuestario.

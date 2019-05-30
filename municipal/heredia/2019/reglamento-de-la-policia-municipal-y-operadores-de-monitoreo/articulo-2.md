@@ -1,0 +1,1 @@
+Artículo 2.- Ámbito de aplicación. Las disposiciones contenidas en este Reglamento serán aplicables a todos los funcionarios de la Sección de Seguridad Ciudadana, especialmente a los que desempeñan el puesto de Policía Municipal y Operadores de Monitoreo.

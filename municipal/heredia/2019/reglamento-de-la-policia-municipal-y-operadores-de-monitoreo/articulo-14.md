@@ -1,0 +1,1 @@
+Artículo 14.- Organización interna. La Sección de Policía Municipal se organizará internamente en grupos, según las necesidades, desarrollo y crecimiento de la Sección y criterio profesional de la Jefatura inmediata.

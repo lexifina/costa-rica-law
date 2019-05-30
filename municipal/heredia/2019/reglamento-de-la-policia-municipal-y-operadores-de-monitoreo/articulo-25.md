@@ -1,0 +1,1 @@
+Artículo 25.- Sanciones. Las faltas descritas en los numerales anteriores serán sancionadas con base en lo establecido en el artículo 149 y 150 del Código Municipal y los procedimientos de la Ley General de la Administración Pública.

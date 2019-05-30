@@ -1,0 +1,3 @@
+CAPÍTULO VI
+DISPOSICIONES FINALES
+Artículo 26.- Normativa supletoria. En todo aquello no previsto en el presente reglamento, se aplicará supletoriamente la Constitución Política, Código Municipal, Ley General de Administración Pública, Reglamento Autónomo de Organización y Servicio de la Municipalidad de Heredia, Código de Trabajo, Ley General de Policía, Ley General de Control Interno, Reglamento de principios, valores y conductas éticas a observar por parte del Concejo Municipal, Titular de Alcaldía, demás autoridades administrativas y personal de la Municipalidad de Heredia y demás normativa conexa.
