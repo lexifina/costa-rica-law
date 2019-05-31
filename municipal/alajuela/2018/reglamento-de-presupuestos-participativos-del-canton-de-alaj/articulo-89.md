@@ -1,0 +1,1 @@
+Artículo 89. En los casos de proyectos que tengan que elaborarse planos o diseños constructivos estos deberán contar con el visto bueno, previa revisión, de la unidad de control constructivo y ser incorporados en el expediente del proyecto.

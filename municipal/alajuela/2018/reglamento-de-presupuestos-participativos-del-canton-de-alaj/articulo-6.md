@@ -1,0 +1,4 @@
+CAPITULO SEGUNDO DE LA ASIGNACIÓN DE LOS RECURSOS MUNICIPALES
+Y DE LAS MODALIDADES Y DISTRIBUCIÓN DE LOS PRESUPUESTOS
+PARTICIPATIVOS
+Artículo 6. Sobre el monto: La Alcaldía Municipal, cada año en los meses de mayo y febrero, propondrá para los presupuestos ordinarios y extraordinarios respectivamente, los montos de los recursos ordinarios según cada caso, que se destinarán para ejecutar presupuestos participativos. Los proyectos definidos en las diversas mesas de concertación pueden ser, una vez aprobados por el Concejo Municipal, ejecutados por la administración de la Municipalidad o por contrato con entidades idóneas para administrar recursos públicos, en cuyo caso se respetará lo establecido en la circular de la Contraloría General de La República N°14299, 14300 y 14301, su adenda y reformas.

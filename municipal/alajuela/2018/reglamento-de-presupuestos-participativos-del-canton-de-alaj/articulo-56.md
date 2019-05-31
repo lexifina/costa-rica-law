@@ -1,0 +1,6 @@
+Artículo 56. Los Concejos de Distrito y el Coordinador de la Agenda por su parte deberán aportar al expediente del proyecto la siguiente información:
+a. Acta original y copia de la Sesión de Concejo de Distrito Ampliado y en el caso de las Agendas, copia del acta donde se presentaron, analizaron y aprobaron los proyectos de dichas mesas temáticas.
+b. Copia de recibo de la invitación a la reunión de las organizaciones locales, regidores o munícipes para brindar la información del proceso de presupuestación pública participativa.
+c. Copia de recibo de la entrega de la lista de requisitos previos que deberán presentarse y ser verificados por los Concejos de Distrito o miembros de las Agendas, antes de la sesión extraordinaria ampliada para el Fondo Distrital, o de la asamblea previa a la reunión de las mesas de concertación temáticas donde se aprobaron los proyectos a financiar con recursos de presupuestos participativos.
+d. Copia de recibo de la invitación a la sesión extraordinaria de Concejo de Distrito Ampliada ó de la invitación a la Sesión de Agenda Temática.
+e. Certificación de que los proyectos aprobados forman parte integral del Plan de Desarrollo del Distrito o del instrumento de planificación de las Agendas Sociales según corresponda.

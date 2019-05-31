@@ -1,0 +1,1 @@
+Artículo 98. El gerente institucional del proyecto deberá documentar la gestión efectuada en cada proyecto evidenciando la capacidad legal, administrativa, financiera y la aptitud técnica del sujeto beneficiario de los recursos, de manera que se garantice inequívocamente la correcta utilización y destino de todos los fondos que se les otorga.

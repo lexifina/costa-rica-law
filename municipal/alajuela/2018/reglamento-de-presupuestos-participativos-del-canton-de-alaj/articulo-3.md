@@ -1,0 +1,21 @@
+DEFINICIONES:
+Artículo 3: Para los efectos del presente Reglamento se establecen las siguientes definiciones:
+a. Actores comunales: todos los grupos organizados del cantón que participen en el proceso de presupuestos participativos, debidamente acreditados y reconocidos para tales efectos por parte de la Municipalidad para lo cual deben contar con la declaratoria de idoneidad e inscribirse en el Registro de Organizaciones de la municipalidad.
+b. Agenda de Desarrollo Distrital: el elemento que vincula las ideas y acciones identificadas en un distrito con la formalidad que requiere la Planificación Municipal.
+c. Cantón: Cantón de Alajuela.
+d. Código: Código Municipal.
+e. Concejo Municipal: Concejo Municipal de Alajuela.
+f. Entidades idóneas: sujetos privados con declaratoria de idoneidad para administrar recursos públicos por parte de la Municipalidad de Alajuela.
+g. Gerente Comunal de Proyecto: Ciudadano, miembro de una organización social o comunal designado por esta para liderar un equipo de trabajo, con la función de conseguir unos objetivos. Será la persona que tiene, junto con la Unidad Ejecutora y junta directiva y el gerente institucional designado, la responsabilidad en la administración, planificación, coordinación, seguimiento, control y finiquito de todas las actividades y recursos asignados para la ejecución de un proyecto social o de inversión pública.
+h. Gerente Institucional de Proyecto: Funcionario Municipal designado por la Alcaldía al que se le encargará un proyecto hasta su finalización en coordinación con el gerente comunal y la unidad ejecutora.
+i. La Municipalidad: Municipalidad del Cantón Central de Alajuela.
+j. SICOP: Plataforma tecnológica que permite a las proveedurías del Estado o entidades idóneas para administrar recursos públicos, realizar las operaciones de compra y venta de productos y servicios en forma electrónica. Funciona en forma de un portal de comercio electrónico que opera como una ventanilla única, accesible por medio de Internet.
+k. Munícipe: Vecino/a del cantón de Alajuela.
+l. Participación Ciudadana: Unidad funcional del proceso de Planificación facilitadora del proceso de presupuestación pública participativa y del control y documentación de los proyectos ejecutados bajo esta modalidad.
+m. Planificación Institucional: Proceso encargado de formular, orientar, apoyar, supervisar y fortalecer el proceso de planificación local desde una perspectiva social, sustentándolo en un contexto presupuestario acorde a las condiciones y potencialidades de la Municipalidad, de tal forma que se consolide el desarrollo humano integral, con miras a mejorar la calidad de vida de los y las habitantes del cantón, haciendo posible la orientación y ejecución de los planes institucionales en concordancia con las intenciones políticas que emanan del Gobierno Local teniendo como fundamento el Plan de Desarrollo cantonal.
+n. POA: Plan Operativo Anual.
+o. PO: Presupuesto Ordinario.
+p. Presupuesto Participativo: herramienta de planificación local, que permite una relación permanente del gobierno local con la población a través de un modelo de gestión pública democrática, donde la ciudadanía participa de forma directa, voluntaria y universal en lo que compete a la asignación de recursos públicos que serán ejecutados para la implementación de políticas sociales y la realización de obras de infraestructura que potencien el desarrollo local.
+q. Perfil de Proyecto: Documento de propuesta concreta desarrollada en un formato previamente definido y distribuido por la Municipalidad, para la solución de un problema o necesidad que afecta a las personas que habitan el distrito o cantón, y que dadas las competencias municipales puede ser financiado por esta.
+r. Registro de Organizaciones: Base de datos que contiene la información básica de las organizaciones formales y no formales que existen en las comunidades de los distritos del cantón, y que han solicitado su inclusión en la misma por parte de la Municipalidad de Alajuela.
+s. Sesión de Concejo de Distrito Ampliada: Sesión del Concejo de Distrito en donde participan con voz y voto los actores comunales involucrados en el proceso de presupuesto participativo debidamente acreditados y reconocidos para dichos efectos.

@@ -1,0 +1,6 @@
+Artículo 2. Los propósitos del proceso de presupuestación pública participativa cantonal son:
+a. Hacer eficiente la asignación y ejecución de los recursos públicos en concordancia a las prioridades consideradas en los Planes de Desarrollo Cantonal y Distrital Concertados.
+b. Reforzar la relación entre el Gobierno Local y los munícipes, introduciendo formalmente en el ámbito de la gestión pública una nueva forma de comprender y ejercer la ciudadanía.
+c. Comprometer a la Sociedad Civil en las acciones a desarrollar para el cumplimiento de los objetivos estratégicos del Plan de Desarrollo Cantonal o Distrital Concertado.
+d. Fijar prioridades en la inversión pública, estableciendo un orden de prioridad para la ejecución de los proyectos declarados viables, bajo las normas técnicas y procedimientos establecidos en el marco jurídico costarricense; así como garantizar la sostenibilidad de la inversión ya ejecutada, ya sea en el ejercicio fiscal de la ejecución o en los siguientes según corresponda.
+e. Hacer efectivo el seguimiento, control, vigilancia de la ejecución del presupuesto y fiscalización de la gestión municipal, fortaleciendo las capacidades locales para lograr los fines del proceso participativo y vigilancia ciudadana.

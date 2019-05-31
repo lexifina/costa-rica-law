@@ -1,0 +1,2 @@
+De la Sesión de Agenda Temática
+Artículo 43. En el mes de junio de cada año, en sesión de Agenda Temática se definirán en forma inclusiva, deliberativa, participativa y concertada con los miembros activos y registrados de las Agendas, los proyectos prioritarios a ejecutar con los recursos de presupuestos participativos asignados a estas mesas de concertación. En esta sesión únicamente se conocerán 5 proyectos priorizados que fueron presentados en la fecha señalada por el Coordinador de la Agenda y que cumplieron con todos los requisitos previos.

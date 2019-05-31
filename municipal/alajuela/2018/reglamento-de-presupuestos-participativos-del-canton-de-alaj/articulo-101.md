@@ -1,0 +1,2 @@
+De la Liquidación del Proyecto
+Artículo 101. El sujeto privado beneficiario de recursos públicos, deberá presentar a la Municipalidad, a más tardar el 16 de enero de cada año, un informe anual sobre el uso de los fondos en donde se refiera a la ejecución del presupuesto del programa o proyecto, así como al logro de los objetivos planteados en el plan de trabajo. Dicho informe de liquidación ha de corresponder a lo indicado y solicitado en la circular 14299 de la Contraloría General de la República.

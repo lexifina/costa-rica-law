@@ -1,0 +1,1 @@
+Artículo 36. Tendrán derecho a voto todos los miembros propietarios del Concejo de Distrito y un representante por organización acreditada. Para la votación cada actor comunal deberá designar y acreditar ante el Concejo de Distrito previamente, un representante quién tendrá en la sesión de Concejo de Distrito Ampliada voz y voto.

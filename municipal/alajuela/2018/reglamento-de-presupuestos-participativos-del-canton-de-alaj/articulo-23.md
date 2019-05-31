@@ -1,0 +1,1 @@
+Artículo 23. Igualmente, la Alcaldía Municipal deberá efectuar una rendición de cuentas sobre la gestión municipal y el cumplimiento de su programa de gobierno, ello en concordancia con lo establecido en el artículo 17 inciso g) del Código Municipal. Luego de dichas rendiciones de cuenta se abrirá un espacio para preguntas y respuestas sobre los informes de rendición de cuentas.

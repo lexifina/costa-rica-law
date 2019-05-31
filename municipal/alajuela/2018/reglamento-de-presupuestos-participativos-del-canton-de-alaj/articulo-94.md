@@ -1,0 +1,1 @@
+Artículo 94. Los gerentes institucionales deberán asesorar a los gerentes comunales para que ellos velen por que se den y custodien correctamente las facturas y comprobantes que respalden los egresos efectuados, debiendo otorgar su visto bueno para cada desembolso, de acuerdo a la forma de pago establecida en el pliego de condiciones de las especificaciones técnicas.

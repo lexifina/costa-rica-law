@@ -1,0 +1,1 @@
+Artículo 33. El quórum para la sesión se formará con tres concejales, entre los cuales siempre deberá estar presente el Síndico Propietario o Suplente por su condición de Presidente o Vicepresidente del Concejo de Distrito.

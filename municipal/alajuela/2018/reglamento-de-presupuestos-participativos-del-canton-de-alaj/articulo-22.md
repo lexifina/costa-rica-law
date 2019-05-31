@@ -1,0 +1,1 @@
+Artículo 22. En esta asamblea el Síndico como Presidente y en representación del Concejo de Distrito o el Coordinador de la Agenda Social, deberá efectuar una rendición de cuentas sobre lo actuado en el año anterior y de los resultados obtenidos en la gestión.
