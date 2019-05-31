@@ -1,0 +1,3 @@
+ARTÍCULO 100.- Los archivos de grabación de voz constituyen el respaldo para la elaboración de actas y serán facilitados a quien así lo requiera por escrito indicando el
+motivo de su petición. De esos archivos, la Secretaría del Concejo Municipal llevará un registro digital para lo cual coordinará lo necesario con el Departamento de Tecnologías e Información de la Municipalidad de Moravia con el fin de que sean resguardados conforme a disposiciones técnicas apropiadas.
+El plazo de resguardo de los archivos será el que aplique para los procesos de responsabilidad funcional.

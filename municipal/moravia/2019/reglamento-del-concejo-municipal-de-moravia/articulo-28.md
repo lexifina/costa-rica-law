@@ -1,0 +1,1 @@
+ARTÍCULO 28.- El procedimiento indicado anteriormente será el mismo para la elección del cargo de la Vicepresidencia. Una vez electo el nuevo Directorio, procederán a juramentarse y ocupar sus nuevas curules.

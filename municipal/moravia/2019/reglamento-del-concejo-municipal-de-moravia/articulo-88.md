@@ -1,0 +1,1 @@
+ARTÍCULO 88.- En caso de que el Concejo Municipal cuente con personas que tengan alguna discapacidad, la Administración deberá adoptar las medidas pertinentes para que su participación en el órgano colegiado se facilite sin contratiempos ni dificultades.

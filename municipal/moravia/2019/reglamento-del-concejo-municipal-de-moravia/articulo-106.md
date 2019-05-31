@@ -1,0 +1,1 @@
+ARTÍCULO 106.- Antes de la aprobación del acta, cualquier Regidor podrá plantear la revisión de acuerdos, salvo respecto de los acuerdos definitivamente aprobados. Para acordar la revisión se requiere la misma mayoría que fue requerida para aprobar el acuerdo.

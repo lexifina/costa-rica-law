@@ -1,0 +1,3 @@
+CAPÍTULO XXII
+MOCIONES
+ARTÍCULO 168.- Las mociones deberán ser presentadas por escrito a más tardar las 16:00 horas del día en que será celebrada la siguiente sesión ordinaria y firmadas por el Alcalde o los Regidores Propietarios para su trámite. Las mociones de orden podrán presentarse verbalmente. Las mociones que no sean presentadas ante la Secretaría del Concejo Municipal antes de las 16:00 horas del día en que se celebre la sesión ordinaria siguiente, estarán sujetas a la valoración de la Presidencia para incorporarlas en el orden del día o bien a consideración del Concejo Municipal mediante la aprobación de su inclusión en la agenda por una votación de mayoría calificada.

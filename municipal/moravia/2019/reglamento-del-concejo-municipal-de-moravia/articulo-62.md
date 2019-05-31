@@ -1,0 +1,1 @@
+ARTÍCULO 62.- Las sesiones extraordinarias deberán ser convocadas con al menos veinticuatro horas de anticipación. Se entenderá por notificada la persona a partir del momento en que recibe oficialmente la convocatoria por parte de la Secretaría Municipal.

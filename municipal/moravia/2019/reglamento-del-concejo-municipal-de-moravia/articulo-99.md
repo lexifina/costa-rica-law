@@ -1,0 +1,1 @@
+ARTÍCULO 99.- Para elaborar las actas, la Administración dotará a la Secretaría del Concejo Municipal de un sistema tecnológico de grabación adecuado y los bienes necesarios para garantizar la confiabilidad de las grabaciones de las sesiones municipales.

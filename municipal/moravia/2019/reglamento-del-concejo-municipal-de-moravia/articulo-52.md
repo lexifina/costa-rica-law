@@ -1,0 +1,2 @@
+ARTÍCULO 52.- Los funcionarios de confianza responderán al Alcalde, Presidente o Vicepresidente Municipal o fracciones políticas, según sea el caso. Sus horarios y funciones serán coordinadas directamente con quien ejerza su jefatura inmediata.
+En caso de que los recursos económicos municipales sean ajustados, se podrá crear una plaza que sirva bajo régimen de confianza a la Presidencia, Vicepresidencia y Fracciones Políticas bajo la contratación de una misma persona.

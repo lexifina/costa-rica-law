@@ -1,0 +1,1 @@
+ARTÍCULO 36.- El Secretario únicamente podrá ser suspendido o destituido de su cargo, si existiere justa causa para lo cual se seguirá un órgano director de procedimiento disciplinario administrativo conforme al principio del debido proceso.

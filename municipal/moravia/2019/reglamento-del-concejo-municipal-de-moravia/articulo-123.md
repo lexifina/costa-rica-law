@@ -1,0 +1,1 @@
+ARTÍCULO 123.- Cuando se requiera audiencias al Concejo Municipal sobre aspectos evidentemente competencia de la Administración Municipal, el Presidente del Concejo Municipal quedará facultado para re direccionar la solicitud de audiencia y trasladarla ante el titular de la Alcaldía, informando al administrado.

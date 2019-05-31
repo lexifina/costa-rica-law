@@ -1,0 +1,1 @@
+ARTÍCULO 78.- El orden del día será sometido a aprobación como un punto primero de la agenda y el Presidente conserva la facultad de alterarlo en todo momento siempre que no haya sido sometido a votación y aprobación por parte del Concejo Municipal o bien cuando se interponga una moción de orden con ese propósito.

@@ -1,0 +1,1 @@
+ARTÍCULO 133.- El Presidente del Concejo Municipal podrá nombrar asesores que colaboren en las Comisiones quienes tendrán derecho a voz y a quienes se les extenderá una acreditación oficial. Estos asesores brindarán su apoyo ad honórem.

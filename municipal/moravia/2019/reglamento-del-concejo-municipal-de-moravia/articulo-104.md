@@ -1,0 +1,1 @@
+ARTÍCULO 104.- Las actas deberán ser firmadas por el Presidente Municipal y quien ejerza la Secretaría del Concejo Municipal. Cuando se trate de documentos presupuestarios que deban ser remitidos ante la Contraloría General de la República serán firmadas además por el Alcalde sin que ello comprenda un sistema de control de legalidad o veto de parte de ese funcionario.

@@ -1,0 +1,1 @@
+ARTÍCULO 124.- Los particulares que asistan a una sesión del Concejo Municipal a una audiencia oral deberán guardar el debido respeto y concentrar su intervención estrictamente en el tema para el que le fue autorizada la audiencia, sin divagaciones.

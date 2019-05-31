@@ -1,0 +1,1 @@
+ARTÍCULO 135.- Las Comisiones serán instaladas la semana siguiente a la resolución del Presidente del Concejo Municipal donde se designó a sus miembros. Para ello, los miembros de cada Comisión se pondrán de acuerdo en la fecha y hora para proceder a instalar la Comisión e invitarán a los asesores nombrados.

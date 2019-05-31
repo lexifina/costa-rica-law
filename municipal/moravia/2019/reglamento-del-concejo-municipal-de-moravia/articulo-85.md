@@ -1,0 +1,1 @@
+ARTÍCULO 85.- En caso de que un edil salve su voto ante una decisión adoptada por una mayoría del Concejo Municipal deberá justificar razonadamente los motivos de su voto disidente en forma inmediata posterior a la votación y dicha justificación se hará constar integralmente al acta.

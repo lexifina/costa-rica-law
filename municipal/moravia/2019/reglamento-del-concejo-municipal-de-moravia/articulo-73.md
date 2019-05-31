@@ -1,0 +1,1 @@
+ARTÍCULO 73.- El Presidente del Concejo Municipal podrá suspender o dar por finalizadas las sesiones municipales previo a la terminación del orden del día cuando por las circunstancias particulares se denote una dificultad para continuar con el desarrollo adecuado de la sesión.

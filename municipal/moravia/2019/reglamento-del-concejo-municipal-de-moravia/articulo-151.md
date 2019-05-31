@@ -1,0 +1,1 @@
+ARTÍCULO 151.- Todos los Regidores propietarios y suplentes deberán tener una copia digital en sus correos electrónicos de los dictámenes que serán sometidos a conocimiento y votación en la sesión del Concejo Municipal antes de la celebración de la misma o previo a su votación.

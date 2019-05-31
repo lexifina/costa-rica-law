@@ -1,0 +1,1 @@
+ARTÍCULO 169.- Todas las mociones -excepto las de orden- serán remitidas para su análisis a la Comisión que corresponda, sin detrimento de que por mayoría calificada pueda dispensarse su trámite de Comisión. Se exceptúa de lo anterior las mociones de orden.

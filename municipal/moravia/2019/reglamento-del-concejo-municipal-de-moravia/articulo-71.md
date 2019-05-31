@@ -1,0 +1,1 @@
+ARTÍCULO 71.- En las sesiones solemnes tendrán el uso de la palabra únicamente el Alcalde, el Presidente del Concejo Municipal, autoridades estatales representadas y las personas a las que se rinde homenaje o se le confiere distinciones o su representante.

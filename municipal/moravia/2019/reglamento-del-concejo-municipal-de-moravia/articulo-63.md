@@ -1,0 +1,1 @@
+ARTÍCULO 63.- En las sesiones extraordinarias se conocerá exclusivamente aquellos asuntos indicados expresamente en la convocatoria, además de aquellos que por unanimidad se acuerde incluir en la agenda.

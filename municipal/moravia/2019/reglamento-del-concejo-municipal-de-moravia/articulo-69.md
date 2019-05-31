@@ -1,0 +1,1 @@
+ARTÍCULO 69.- Dentro del presupuesto anual de la Municipalidad de Moravia existirá una partida presupuestaria reservada para las actividades protocolarias y sociales del Concejo Municipal que mediante acuerdo se apruebe celebrar. El monto de esta partida será acordado por el Concejo.

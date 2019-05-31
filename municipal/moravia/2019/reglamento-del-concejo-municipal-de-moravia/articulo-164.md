@@ -1,0 +1,1 @@
+ARTÍCULO 164- Las licencias con goce de dietas y/o salario a los Regidores, Síndicos, Alcalde y Vicealcaldes, según corresponda serán otorgadas únicamente en casos donde la ausencia se produzca en razón de una representación institucional.

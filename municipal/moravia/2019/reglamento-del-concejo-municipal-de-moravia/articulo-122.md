@@ -1,0 +1,1 @@
+ARTÍCULO 122.- En caso de que el Presidente del Concejo Municipal determine que los asuntos requeridos en audiencia por parte de los ciudadanos puedan ser atendidos en comisiones permanentes y/o especiales informará al Presidente de dicha comisión y al ciudadano interesado para que este sea quien asigne la audiencia.

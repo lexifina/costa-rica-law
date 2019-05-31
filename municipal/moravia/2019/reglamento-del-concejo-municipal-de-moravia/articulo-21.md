@@ -1,0 +1,1 @@
+ARTÍCULO 21.- Los Regidores con derecho a voto no podrán abstenerse de votar los asuntos sometidos a su conocimiento salvo que se excusen de votar por las razones antes mencionadas o hayan sido compelidos a recusarse.

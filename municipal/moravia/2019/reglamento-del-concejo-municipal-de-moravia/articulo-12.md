@@ -1,0 +1,1 @@
+ARTÍCULO 12.- Corresponde al Presidente del Concejo Municipal llamar a los regidores suplentes para que sustituyan al titular cuando se encuentre ausente, para lo cual deberá llamar en el orden de elección según la nómina presentada por el respectivo partido político.

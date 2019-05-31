@@ -1,0 +1,3 @@
+CAPÍTULO XXVI
+DISPOSICIONES FINALES
+ARTÍCULO 182.- Este Reglamento deroga el Reglamento de la Comisión Municipal de la Condición de la Mujer de la Municipalidad de Moravia, publicado en La Gaceta N°67 del 04 de abril del 2007; el Reglamento de la Comisión de Obras de la Municipalidad de Moravia, publicado en La Gaceta N°44 del 03 de marzo del 2003; el Reglamento Operativo de la Comisión de Gobierno y Administración, publicado en La Gaceta N°225 del 21 de noviembre del 2003 y el Reglamento Interior de las Sesiones, Sede y Quórum del Concejo Municipal de Moravia publicado en La Gaceta N°233 del 03 de diciembre del 2002 y sus reformas, así como cualquier otra norma reglamentaria o acuerdo municipal que se le oponga.

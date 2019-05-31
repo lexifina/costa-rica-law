@@ -1,0 +1,1 @@
+ARTÍCULO 177.- La Administración Municipal garantizará que las curules del Concejo Municipal sean aptas, cómodas y adaptadas a las necesidades de los ediles, con sillas en buen estado, sitios para el depósito de basura y servicios sanitarios cerca. Asimismo, garantizará que el espacio destinado al público sea adecuado y se ubiquen mapas de evacuación en caso de emergencias.

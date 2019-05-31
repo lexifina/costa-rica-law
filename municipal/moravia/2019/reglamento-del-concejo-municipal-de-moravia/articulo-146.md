@@ -1,0 +1,1 @@
+ARTÍCULO 146.- El Concejo Municipal podrá dispensar de trámite de comisión los asuntos sometidos a su conocimiento cuando así lo estime conveniente, para lo cual se requerirá del voto de al menos cinco de siete regidores propietarios. De lo contrario, el asunto deberá obligatoriamente ser sometido a conocimiento de una Comisión.

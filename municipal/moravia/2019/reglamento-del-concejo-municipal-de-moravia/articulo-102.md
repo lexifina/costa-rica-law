@@ -1,0 +1,1 @@
+ARTÍCULO 102.- En caso de que algún miembro del Concejo Municipal solicite expresamente que su intervención sea transcrita íntegramente, la Secretaría del Concejo Municipal deberá proceder de conformidad. De igual manera cuando se trate de votos salvados.

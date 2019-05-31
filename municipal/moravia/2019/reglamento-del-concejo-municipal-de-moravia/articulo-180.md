@@ -1,0 +1,1 @@
+ARTÍCULO 180.- La Secretaría del Concejo Municipal deberá entregar copias y facilitar la información que requieran los miembros del Concejo Municipal para su estudio, salvo aquellos documentos que no hayan sido sometidos a conocimiento previo del Concejo Municipal, según señala el artículo anterior y con la excepción dicha para la Presidencia.

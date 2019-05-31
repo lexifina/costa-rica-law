@@ -1,0 +1,2 @@
+ARTÍCULO 93.- Las dietas de los regidores y síndicos podrán aumentarse anualmente hasta en un máximo 20%, siempre que el presupuesto municipal ordinario haya aumentado en relación con el precedente en una proporción igual o superior al porcentaje fijado.
+En el mes de setiembre de cada año, cuando el Concejo Municipal se encuentre discutiendo el presupuesto inicial del año siguiente, se deberá acordar la voluntad del órgano colegiado de aumentar o no el porcentaje de aumento de dietas, para lo cual la Comisión de Hacienda y Presupuesto dictaminará lo correspondiente.

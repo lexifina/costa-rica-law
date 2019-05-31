@@ -1,0 +1,1 @@
+ARTÍCULO 90.- Las disposiciones reglamentarias regirán a partir de su publicación o bien en la fecha que señale el respectivo acuerdo del Concejo Municipal. La Administración publicará siempre toda normativa interna municipal aprobada por el Concejo Municipal en el sitio web institucional.

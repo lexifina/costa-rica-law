@@ -1,0 +1,1 @@
+ARTÍCULO 72.- La Presidencia del Concejo Municipal podrá decretar recesos cuando estime conveniente y oportuno. Los miembros del Concejo Municipal podrán solicitar recesos a la Presidencia, quien valorará la pertinencia o no de concederlos.

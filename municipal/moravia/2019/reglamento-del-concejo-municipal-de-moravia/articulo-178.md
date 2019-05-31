@@ -1,0 +1,1 @@
+ARTÍCULO 178.- En el salón de sesiones del Concejo Municipal podrán ubicarse cuadros con fotografías y habrá siempre un estandarte con el pabellón nacional y otro con el escudo del Cantón de Moravia en buen estado.

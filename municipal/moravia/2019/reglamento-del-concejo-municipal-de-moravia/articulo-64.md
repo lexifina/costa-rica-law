@@ -1,0 +1,1 @@
+ARTÍCULO 64.- Las sesiones del Concejo Municipal deberán iniciar dentro de los primeros quince minutos de la hora fijada según el reloj del local donde se lleve a cabo la sesión o en su defecto el que porte quien ejerce la Presidencia del órgano colegiado.

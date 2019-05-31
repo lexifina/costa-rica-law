@@ -1,0 +1,1 @@
+ARTÍCULO 49.- Los jefes de fracción rendirán un informe anual de labores ante el Concejo Municipal los años segundo y cuarto del ejercicio del cargo para el que fueron nombrados en una sesión extraordinaria destinada al efecto en un acto de transparencia y rendición de cuentas a la ciudadanía.

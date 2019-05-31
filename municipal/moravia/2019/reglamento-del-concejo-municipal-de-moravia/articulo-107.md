@@ -1,0 +1,1 @@
+ARTÍCULO 107.- Se podrá solicitar la modificación en las intervenciones dichas en el acta únicamente cuando se trate de la misma persona que las manifestó, siendo absolutamente improcedente que un edil solicite modificar lo dicho por otra persona.
