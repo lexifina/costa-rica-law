@@ -32,10 +32,10 @@ En este caso, si la Superintendencia General de Entidades Financieras o el Banco
 Transitorio:
 El saldo de las operaciones de endeudamiento externo de mediano y largo plazo contratadas y formalizadas mediante pagaré, confirmación de compromiso vía Swift o cualquier otro medio de formalización ocurrido antes del 1° de julio del 2015 y no sujetas al encaje mínimo legal según la regulación vigente en el momento de su formalización, mantendrá esa condición hasta su vencimiento.
 (Así adicionado el transitorio anterior por el punto 2) de la sesión N° 5686 del 6 de mayo de 2015)
-(*)C.Tasas de encaje. Las tasas de encaje mínimo legal que aplicarán sobre las operaciones indicadas en el literal anterior son las siguientes:
-1. El 15,0% sobre la suma de los depósitos y obligaciones en moneda nacional y en unidades de desarrollo, así como sobre la suma de las operaciones de captación de recursos en moneda nacional y en unidades de desarrollo realizadas mediante fideicomisos o contratos de administración.
-2. El 15,0% sobre el total de los depósitos y obligaciones en moneda extranjera, así como de las operaciones de captación de recursos en moneda extranjera realizada mediante fideicomisos o contratos de administración.
-3. El 15,0% sobre las operaciones de endeudamiento externo, sea en moneda nacional o en moneda extranjera.
+(* )C. Las tasas de encaje mínimo legal que aplicarán sobre las operaciones indicadas en el literal anterior son las siguientes:
+El 12,0% sobre los depósitos y obligaciones en moneda nacional y en unidades de desarrollo, sobre las operaciones de captación de recursos en moneda nacional y en unidades de desarrollo realizadas mediante fideicomisos o contratos de administración, así como sobre las operaciones de endeudamiento externo en moneda nacional.
+El 15,0% sobre los depósitos y obligaciones en moneda extranjera, sobre las operaciones de captación de recursos en moneda extranjera realizadas mediante fideicomisos o contratos de administración, así como sobre las operaciones de endeudamiento externo en moneda extranjera.
+(*) (Así reformado el literal c) anterior en sesión N° 5879 del 31 de mayo de 2019)
 Transitorio:
 El saldo de las operaciones de endeudamiento externo de mediano y largo plazo formalizadas a partir del 1° de julio del 2015, mediante pagaré, confirmación de compromiso vía Swift o cualquier otro medio de formalización, estará sujeto al encaje mínimo legal, según la siguiente gradualidad:
 A partir del: 1° de julio del 2015 | Tasa de encaje legal 5%
