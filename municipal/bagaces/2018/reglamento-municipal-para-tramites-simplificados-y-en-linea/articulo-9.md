@@ -1,0 +1,3 @@
+Artículo 9º—De la inscripción: se debe llenar completamente el formulario de inscripción de base de datos digital municipal, documento que se encontrará de las siguientes formas:
+1. Física: en la Plataforma de Servicios Municipal, se verifican los documentos citados en el artículo 8° para ser escaneados y posteriormente enviados vía correo electrónico al validador(a), firmado con puño y letra de la persona solicitante, se excluyen aquellas personas que por sus impedimentos físicos no pueden firmar, se aplicará lo respectivo.
+2. Digital: en la página web oficial de la Municipalidad, se adjuntan al formulario los documentos citados en artículo 8°. Se firma digitalmente o se descarga en sitio y se autentica la firma.

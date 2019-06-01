@@ -1,0 +1,1 @@
+Artículo 3º—Este Reglamento rige para todo el cantón de Bagaces, constituye los parámetros técnicos y legales necesarios para el establecimiento de los trámites indicados en el artículo segundo a través de plataformas digitales y la página web oficial de la Municipalidad de Bagaces.

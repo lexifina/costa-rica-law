@@ -1,0 +1,1 @@
+Artículo 18.—Se autoriza a la persona encargada de visados municipales apoyar la gestión de búsqueda de insumos catastrales registrales, inspección, levantamiento y demás funciones que ayuden a sustentar la certificación indicada en el artículo 15°.

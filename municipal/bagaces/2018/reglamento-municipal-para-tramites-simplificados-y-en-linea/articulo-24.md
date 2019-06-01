@@ -1,0 +1,1 @@
+Artículo 24.—Es requisito de la solicitud de avalúo de bienes inmuebles que el solicitante realice una nota indicando (con fundamentos técnicos y legales) sus pretensiones. Dichas pretensiones se refieren a la solicitud de actualización del valor de la propiedad para los fines que establece la Ley de Impuestos sobre Bienes Inmuebles N° 7509.

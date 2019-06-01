@@ -1,0 +1,1 @@
+Artículo 14.—Con base en la Ley de Planificación Urbana N° 4240 únicamente se proceden a visar los planos para segregación y reunión de fincas, por lo tanto se excluyen del trámite de visado municipal los planos de fincas inscritas, rectificación de área e información posesoria, así como aquellos planos de segregación/ reunión cuya cabida supere las 5 Hectáreas.
