@@ -1,0 +1,23 @@
+INSTITUTO COSTARRICENSE DE PESCA
+Y ACUICULTURA
+AJDIP/272-2019.—San José, a los dieciséis días del mes de mayo de dos mil diecinueve.
+Considerando:
+1º—Que es responsabilidad y competencia del INCOPESCA, velar por el fomento de la pesca responsable que garantice el aprovechamiento sostenible y protección de los recursos pesqueros.
+2º—Que de conformidad con la Ley 8436, Ley de Pesca y Acuicultura, el INCOPESCA podrá establecer con base en criterios técnicos, económicos y sociales, los periodos de veda que considere necesarios para las diferentes zonas de pesca que por su condición lo requieran.
+3º—Que analizado el contenido del voto de la Sala Constitucional de la Corte Suprema de Justicia número 2019-004046, Exp: 18-010494-0007-CO, de las nueve horas con treinta minutos del 08 de marzo del año 2019, resulta conveniente y razonable en aras de ajustar la veda en el Golfo de Nicoya a los términos y condiciones establecidos por de la normativa vigente y el contenido de dicho voto, instaurar la veda dentro de los meses en que se producen picos de reproducción de las especies marinas con el objetivo de dar un plazo razonable al INCOPESCA, para que presente la actualización de criterios técnicos y científicos y al Instituto Mixto de Ayuda Social, IMAS, los estudios socioeconómicos correspondientes.
+4º—Que analizada y discutida propuesta de veda 2019, de conformidad con lo así acordado por la Comisión Nacional de Vedas, en la Reunión Extraordinaria N° 3, celebrada el día 21 de marzo 2019, donde se consideraron, además, las recomendaciones vertidas por el Departamento de Investigación y Desarrollo del INCOPESCA y de la Comisión de Coordinación Científico Técnica (CCCT) las condiciones establecidas en el voto de la Sala Constitucional ya citado.
+5º—Que por medio del voto de la Sala Constitucional N°2019- 00406 de las nueve horas con treinta minutos del ocho de marzo del dos mil diecinueve, se determinó que para el establecimiento de las vedas se debe contar con los estudios sociales y ambientales que justifiquen la misma.
+6º—Que para el caso del Golfo de Nicoya según en el voto indicado en el considerando anterior, se debe considerar cualquiera de las épocas con picos de reproducción mayores que hayan determinado los estudios técnicos correspondientes, caso específico de los meses establecidos de veda 2019, donde se tienen picos de reproducción, razón por la cual,
+LA JUNTA DIRECTIVA DE INCOPESCA
+POR TANTO;
+ACUERDA
+1-Aprobar la propuesta de veda para el año 2019, en los siguientes términos y condiciones:
+1.1 Establecer una veda total para la pesca en pequeña escala, en el área comprendida por una línea recta imaginaria que va desde Punta Torres conocida como Peñón (09°53 ‘31”Latitud Norte, 084°43’52” Longitud Oeste) y de ahí a la parte Este de Punta Cuchillo en la Península de Nicoya y de esa línea aguas adentro hasta la desembocadura del río Tempisque.
+Esta prohibición de pesca va desde el 01 de agosto hasta el 31 de octubre del 2019, ambas fechas incluidas.
+1.2 INCOPESCA podrá autorizar torneos de pesca deportiva durante los plazos y zonas de veda, en el área comprendida por una línea recta imaginaria que va desde el Faro de Puntarenas hasta el Faro de la Isla Negritos (09°49´14”) Latitud Norte, 084°49´35” Longitud Oeste) y de esa línea aguas afuera, las capturas realizadas en el torneo de pesca deportiva, deberán ser liberadas en su totalidad.
+1.3 Los propietarios de embarcaciones de la flota artesanal en pequeña escala del Golfo de Nicoya, con licencias de pesca para faenar en las zonas a y b, podrán no acogerse a la veda, siempre y cuando lo soliciten de manera expresa al Incopesca. Únicamente podrán pescar utilizando cuerdas de mano en línea, independientemente del arte de pesca que tengan autorizado, fuera del área vedada indicada en el artículo 1.1; pudiendo realizar sus faenas de pesca con el reconocimiento del combustible a precio competitivo, del 01 de agosto al 31 de octubre del 2019.
+2- Establecer la veda total a partir del año 2020 del 01 de mayo al 31 de julio de cada año, en el Golfo de Nicoya, en el área comprendida por una línea recta imaginaria que va desde Punta Torres conocida como Peñón (09°53´31” Latitud Norte, 084°43´52” Longitud Oeste) al Faro de la Isla Negritos afizera (09°49´14” Latitud Norte, 084| 49´35” Longitud Oeste) y desde ahí hasta la parte Este de Punta Cuchillo en la Península de Nicoya y de esa línea aguas adentro hasta la desembocadura del río Tempisque. Lo anterior hasta el momento en que por medio de acuerdos de Junta Directiva se determine la variación de las fechas indicadas.
+3- Téngase como parte integral del presente Acuerdo, el mapa que se anexa en el cuadro siguiente:
+[imagen]
+3º—Acuerdo Firme.
+4º—Publíquese.
