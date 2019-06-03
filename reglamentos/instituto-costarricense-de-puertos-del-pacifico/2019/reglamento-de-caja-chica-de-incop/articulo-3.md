@@ -1,0 +1,1 @@
+Artículo 3-) Autorización de Apertura de un Fondo de Caja Chica y Límites: La autorización de la apertura y del monto de los fondos de caja chica será potestad de la Presidencia Ejecutiva o Gerencia General de acuerdo con las necesidades de la Unidades que tienen a su cargo, previo estudio de la necesidad de la misma.
