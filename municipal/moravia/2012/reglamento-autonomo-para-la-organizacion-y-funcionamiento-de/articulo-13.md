@@ -29,6 +29,7 @@ o) Gestionar la consecución de recursos económicos materiales y humanos.
 p) Participar activamente en la medida de sus capacidades, en el desarrollo de los programas deportivos y recreativos a nivel cantonal.
 q) Divulgar e informar sobre el desarrollo de sus actividades.
 r) Brindar capacitación permanente a los entrenadores, asistentes y colaboradores del Comité Cantonal, con el fin de dotar al mismo de material humano calificado y acorde a las necesidades del Comité tanto en el ámbito técnico y operativo como en el administrativo.
-s) Rendir trimestralmente un informe de labores ante el Concejo Municipal y un informe financiero contable ante la Auditoría Interna de la Municipalidad, quien a su vez estará obligada a presentar el análisis correspondiente ante el Concejo Municipal, rindiendo informe en un plazo de treinta días naturales a partir de su presentación por parte del Comité Cantonal.
+s) Rendir semestralmente un informe de labores ante el Concejo Municipal y un informe financiero contable ante la Dirección de Gestión Financiera de la Municipalidad, quien a su vez estará obligada a presentar el análisis correspondiente ante el Concejo Municipal, rindiendo informe con sus observaciones, comentarios, advertencias y/o recomendaciones en un plazo de treinta días naturales a partir de su presentación por parte del Comité Cantonal. Los informes a los que se refiere este inciso deberán ser remitidos a la Dirección de Gestión Financiera mediante acuerdo firme de la Junta Directiva del CCDR.
+(Así reformado el inciso anterior en sesión N° 162 del 3 de junio de 2019)
 t) Nombrar a sus delegados o representantes ante Juegos Deportivos Nacionales o cualquier otra organización.
 v) Cualquier otra que le asignen la Ley o este Reglamento.
