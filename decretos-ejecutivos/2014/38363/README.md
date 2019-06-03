@@ -14,3 +14,4 @@ Reglamento de la Delegación Permanente de Costa Rica ante la Organización para
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-05-05 | la propia norma |
+| 2 | 2019-06-03 | Decreto Ejecutivo 41840 (2019-06-03) |
