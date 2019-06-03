@@ -14,3 +14,4 @@ Reglamento para el otorgamiento de patentes de la Municipalidad de Santo Domingo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-02-19 | la propia norma |
+| 2 | 2019-06-03 | Reglamento municipal 248 (2019-06-03) |
