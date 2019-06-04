@@ -1,0 +1,12 @@
+BANCO CENTRAL DE COSTA RICA
+La Junta Directiva del Banco Central de Costa Rica en el artículo 10, del acta de la sesión 5873-2019, celebrada el 24 de abril de 2019.
+considerando que:
+A. En cumplimiento a lo establecido en el artículo 2, de la Ley Orgánica del Banco Central de Costa Rica, Ley 7558, esta Entidad tiene como objetivo primario mantener una inflación baja y estable.
+B. El Banco Central de Costa Rica definió su meta de inflación de largo plazo (medida con la variación interanual del Índice de Precios al Consumidor) en 3%, con una tolerancia de ± 1 punto porcentual.
+C. En marzo de 2019, la tasa interanual de la inflación general se redujo a 1,4% (1,5% en febrero), mientras que el promedio de los indicadores de inflación subyacente, que provee una medida de las presiones inflacionarias de demanda, se mantuvo en 2,2%. Por su parte, la media y mediana de las expectativas de inflación a 12 meses continuaron su convergencia hacia el valor central del rango meta y se ubicaron en 3,4% y 3,1%, respectivamente (3,5% y 3,3% en febrero), con una moda de 3%.
+D. Existen algunos factores que podrían presionar al alza la inflación en los siguientes dos años, en particular la evolución reciente de los precios internacionales del petróleo, la introducción de la nueva canasta básica tributaria y la entrada en vigencia del impuesto al valor agregado. Los modelos de pronóstico de inflación del Banco Central de Costa Rica ya contemplan el impacto de esos factores.
+E. Existen, por otra parte, factores que podrían presionar la inflación a la baja. Entre ellos, se cuentan la convergencia de las expectativas de inflación al 3%, la menor trayectoria esperada de las tasas de interés internacionales y las menores presiones cambiarias.
+F. Tomados los riesgos en su conjunto, se estima que, en el horizonte de proyección, el pronóstico de inflación se ubicaría en torno al valor central del rango meta.
+G. El Título IV, numeral 2, literales D y E de las Regulaciones de Política Monetaria disponen, en ese orden, que corresponde a la Junta Directiva del Banco Central de Costa Rica determinar la Tasa de Política Monetaria y la tasa de interés de captación a un día plazo (DON).
+dispuso, por unanimidad y en firme:
+mantener la Tasa de Política Monetaria en 5,00% anual. Esta decisión tuvo sustento en el análisis de la trayectoria prevista para la inflación y sus determinantes, el horizonte temporal en el que tienen efecto las medidas de política monetaria y la valoración de riesgos, al alza y a la baja, en la inflación proyectada.
