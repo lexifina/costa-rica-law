@@ -1,0 +1,21 @@
+CAPÍTULO II
+Sanciones
+Artículo 7º—Clausura de obra. En los casos que se detallan a continuación, quedan facultadas las autoridades municipales para proceder a la clausura de la obra civil en los términos establecidos en el ordenamiento jurídico, sin responsabilidad para esta Municipalidad. Para ello podrán acudir a los miembros de la Fuerza Pública de la Policía de Proximidad de Vázquez de Coronado u otras autoridades legales o administrativas, si el caso lo ameritare.
+Para los efectos que conciernen a la ejecución de esta clausura,
+los funcionarios municipales autorizados, podrán proceder a marcar con sellos el inmueble en proceso constructivo o terminado, que se encuentra sin autorización municipal, y evitar así que el contribuyente pueda seguir ejecutando la obra o bien dar uso de esta.
+La sanción de clausura procederá para los siguientes casos:
+a) Cuando la Municipalidad logre demostrar que se está desarrollando una obra sin los respectivos permisos municipales o sin la muestra visible de la calcomanía distintiva informando el número del permiso municipal.
+b) En el caso en que se demuestre que se está desarrollando una obra con un permiso municipal vencido, el cual tendrá un año calendario de vigencia a partir de la fecha de su emisión, para dar inicio a la obra; caso contrario debe renovarlo.
+c) En el caso en que se demuestre que se está desarrollando una obra que ponga en peligro la vida de las personas y la integridad de las cosas, sin las correspondientes medidas de seguridad.
+d) En los casos en que se demuestre que el diseño y la construcción antisísmica no cumplan con los parámetros establecidos lo cual represente un peligro para la vida e integridad física de las personas ya la propiedad.
+e) Cuando no se envíen a la Municipalidad los informes que esta solicite a efectos de ir determinando el avance de las obras civiles por construir, y en general cuando no se cumplan las condiciones de los permisos de construcción.
+f) En el caso en que la Municipalidad compruebe el incumplimiento de alguno de los requisitos establecidos en el ordenamiento jurídico que regula la materia, por parte de aquel a quien se haya otorgado un permiso en los términos regulados. También cuando se logre demostrar alguna falsedad en los documentos presentados por el permisionario o que alguno de ellos haya sido revocado de alguna manera.
+g) En los casos en que algún funcionario municipal detecte que el permisionario está construyendo, remodelando o reparando parcial o totalmente algún tipo de obra, en el inmueble, sin el debido permiso municipal.
+h) Construcciones que utilizan un permiso de construcción extendido por la Municipalidad que haya sido autorizado para otra obra, aunque sea propiedad de la misma persona física o jurídica por la Municipalidad.
+i) Ejecutar una obra modificando en parte o radicalmente el proyecto respectivo aprobado por la Municipalidad.
+j) Cuando se comunique por parte del Colegio Federado de Ingenieros y Arquitectos de Costa Rica que la obra ha dejado de contar con profesional responsable.
+k) Construir una obra cuyo permiso de construcción se encuentra aprobado, pero sin cancelar y retirar en la Municipalidad.
+l) Cuando no se encuentre en el sitio algunos de los siguientes documentos: el original del permiso de construcción municipal con los sellos y firmas registradas; un juego completo de los planos aprobados por la Municipalidad con los sellos y firmas registradas; bitácora de la obra del profesional responsable; la hoja de visitas del inspector municipal; y otros documentos que la Municipalidad solicite al interesado para cada caso particular.
+m) Dejar, durante la ejecución de la obra, escombros en los derechos de vía públicos, zonas verdes municipales o que obstruya el libre tránsito por la vía pública, en este último caso sin tener la autorización expresa de Dirección de Planificación Urbana y Rural.
+n) Obras que estén expresamente prohibidas de acuerdo con las normas jurídicas vigentes en el ordenamiento jurídico que rige la materia.
+ñ) Cualquier otra de las infracciones contempladas en la Ley de Construcciones y su Reglamento, así como en la Ley de Planificación Urbana o en cualquier otra norma del ordenamiento jurídico vigente.

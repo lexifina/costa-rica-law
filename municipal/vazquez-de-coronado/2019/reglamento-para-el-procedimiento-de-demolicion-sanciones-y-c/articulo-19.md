@@ -1,0 +1,1 @@
+Artículo 19.—Comunicado al Instituto Nacional de Seguros. La Municipalidad enviará un listado al Instituto Nacional de Seguros de las construcciones que se tasaron de oficio para que realicen el procedimiento que dicha Institución considere conveniente.
