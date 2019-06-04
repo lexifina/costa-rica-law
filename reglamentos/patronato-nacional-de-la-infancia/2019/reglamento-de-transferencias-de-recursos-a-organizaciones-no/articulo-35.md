@@ -1,0 +1,7 @@
+Capítulo II. De la resolución de convenios de cooperación.
+Artículo 35. Resolución del convenio de transferencia de recursos. En caso de que la gravedad de los incumplimientos o de la violación de los derechos de la persona menor de edad persista, o sean de suma gravedad, el Departamento Financiero, el Departamento de Protección o ambos, trasladarán en un plazo no mayor de 15 días el expediente a la Presidencia Ejecutiva para que se disponga el inicio del procedimiento pertinente.
+Para ello se deberá previamente designar un órgano director del procedimiento que instruya un procedimiento administrativo con arreglo a lo establecido en el Título II de la Ley General de la Administración Pública.
+El acto final deberá ser dictado por la Presidencia Ejecutiva y será notificado a la O.N.G. En contra de dicho acto cabrá el recurso de reposición ante la misma Presidencia Ejecutiva, el cual se deberá interponer dentro del plazo de tres días a partir de su notificación.
+En la decisión final la Presidencia Ejecutiva podrá disponer que la O.N.G. reintegre los recursos desviados o no liquidados, así como el egreso de las personas menores de edad atendidas.
+En tal caso, el PANI revocará la autorización de funcionamiento de la O.N.G. y según la gravedad podrá solicitar su disolución administrativa y judicial.
+En todos los casos de irregularidades comprobadas, la O.N.G. responderá también civilmente por las sumas desviadas, costas y daños y perjuicios que se hubieren causado a la Hacienda Pública.

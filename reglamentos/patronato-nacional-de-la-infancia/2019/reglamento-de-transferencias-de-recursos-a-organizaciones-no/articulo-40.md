@@ -1,0 +1,2 @@
+TÍTULO VI. DISPOSICIONES FINALES
+Artículo 40. Lineamientos específicos. Los Departamentos de Protección y Financiero Contable, en el término de un mes a partir de la publicación del presente reglamento, deberán contar con los lineamientos, procedimientos, directrices o circulares, que sean necesarios para la aplicación de la presente normativa, las cuales serán de acatamiento obligatorio de las ONG.

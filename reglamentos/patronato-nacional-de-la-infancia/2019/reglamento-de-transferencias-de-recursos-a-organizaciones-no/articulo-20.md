@@ -1,0 +1,3 @@
+Artículo 20.- Comprobante de respaldo. Toda erogación que realicen las O.N.G. será respaldada por la factura comercial generada por un proveedor inscrito en la Dirección General de Tributación del Ministerio de Hacienda. Las facturas deberán cumplir con lo indicado en la normativa vigente emitida por este Ministerio.
+Toda factura electrónica o de régimen simplificado y comprobante de salario deberá contener los requisitos que al efecto establecerá el Departamento Financiero.
+Tratándose de facturas emitidas en dólares de los Estados Unidos de América, el PANI reconocerá su pago al tipo de cambio de venta oficial del Banco Central de Costa Rica al día de la fecha de emisión de la factura.

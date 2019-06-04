@@ -1,0 +1,1 @@
+Artículo 11.- Plazo de vigencia de los convenios. Se definirá según necesidad institucional y por un plazo de hasta dos años pudiendo ser prorrogado por la Administración mediante la suscripción de adenda. Para poder realizar la adenda de prórroga se deberán cumplir los mismos requisitos establecidos para la suscripción de convenios, indicados en el presente reglamento.

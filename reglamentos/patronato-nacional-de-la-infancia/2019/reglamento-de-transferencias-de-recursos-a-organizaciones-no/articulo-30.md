@@ -1,0 +1,2 @@
+Artículo 30. Informe final. Una vez finalizada la investigación, se elaborará el informe respectivo el cual contendrá los hechos constatados y en caso de ser necesario, las recomendaciones pertinentes con plazos de acatamiento obligatorios.
+De determinarse que los hechos consisten en violaciones a los derechos de las personas menores de edad se procederá a la suspensión automática de la transferencia o bien a la resolución del convenio.

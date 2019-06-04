@@ -1,0 +1,2 @@
+TRANSITORIO ÚNICO. La aplicación de la transferencia trimestral establecida en el artículo 15 inciso b) del presente reglamento se realizará a partir de enero del 2020, a fin de adecuar los flujos de caja, por lo que las transferencias que se realicen en el año 2019 se realizarán de forma mensual. Para los recursos transferidos en el 2019 se deberá presentar la liquidación semestral a más tardar el 30 de enero de 2020.
+Publíquese solo una vez. Aprobado por unanimidad y en firme en Sesión Ordinaria 2019-015 Artículo 011, Aparte 01, del día 27 de mayo del 2019.

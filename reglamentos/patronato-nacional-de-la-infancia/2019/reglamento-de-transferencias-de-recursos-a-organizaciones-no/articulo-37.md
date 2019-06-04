@@ -1,0 +1,4 @@
+Capítulo III. Arreglos y requerimientos de pago, recuperación de activos.
+Artículo 37. Arreglos de pago. Sin perjuicio de la obligación de cumplimiento establecida en el presente reglamento y de las sanciones que puedan surgir por la falta de liquidación de recursos transferidos, las O.N.G. podrán solicitar a la Presidencia Ejecutiva la realización de arreglos de pago a fin de normalizar su condición de morosidad o de incumplimiento de obligaciones.
+La Presidencia Ejecutiva, solicitará los criterios técnicos correspondientes a los Departamentos de Protección, Financiero Contable y Asesoría Jurídica con el fin de valorar la confección y suscripción del acuerdo correspondiente, el cual será elaborado por Asesoría Jurídica.
+Corresponderá al Departamento Financiero llevar el seguimiento y control del pago de sumas convenidas a través de los arreglos de pago, siendo que el incumplimiento del arreglo conllevará la suspensión automática de las transferencias futuras.
