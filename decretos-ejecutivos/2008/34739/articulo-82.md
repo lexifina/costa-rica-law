@@ -1,2 +1,3 @@
 Artículo 82.—Informe de proyección de ventas. Previo a la realización de estas ventas, la empresa beneficiaria deberá remitir a PROCOMER un detalle de la proyección de ventas que se realizarán durante el período correspondiente, en el formato establecido para tal efecto. PROCOMER deberá remitir por los medios establecidos a la Dirección dicha información.
-(Así reformado por el artículo 3° del decreto ejecutivo N° 36000 del 28 de abril de 2010)
+Las empresas de servicios de la categoría c) del artículo 17 de la Ley no deberán remitir a PROCOMER el informe de proyección de ventas al mercado local. No obstante, deberán presentar el informe anual de operaciones a PROCOMER, de conformidad con lo establecido en el artículo 67 y el inciso d) del artículo 83 de este Reglamento. Dicha Promotora debe remitir a la Aduana de control tal información por los medios establecidos.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 41783 del 4 de junio del 2019)
