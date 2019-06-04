@@ -1,0 +1,1 @@
+Artículo 54: La Municipalidad dotará de los recursos financieros, para la ejecución de las recomendaciones emitidas por la Oficina de Salud Ocupacional en cuanto a medidas correctivas de su planta física, previo estudio técnico y lo relativo al médico (a) de empresa. La municipalidad se compromete a que este profesional se mantendrá activo en la institución en todo momento.

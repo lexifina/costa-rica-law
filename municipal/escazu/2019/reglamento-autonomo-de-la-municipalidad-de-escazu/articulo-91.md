@@ -1,0 +1,2 @@
+Artículo 91.-Son días hábiles todos los días del año excepto los feriados considerados en el Código de Trabajo, el día del Patrono de la localidad, el día del Régimen Municipal, 24 y 31 de diciembre, los días que se declaren de asueto y los días de descanso.
+Los días contemplados en el Código de Trabajo, Código Municipal, así como el 24 y 31 de diciembre se disfrutarán el mismo día hábil. El día del Patrono deberá ser disfrutado por la persona trabajadora, en el transcurso del mismo año que se celebre y con la previa autorización de la jefatura inmediata.

@@ -1,0 +1,1 @@
+Artículo 29: Son personas funcionarias de la Municipalidad las nombradas de acuerdo con los artículos 134 del Código Municipal y 111 de la Ley General de la Administración Pública, que cumplan con los requisitos que establezca el Manual Descriptivo de Puestos de la Municipalidad, que se encuentre vigente al momento de su nombramiento.

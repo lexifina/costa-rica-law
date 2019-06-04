@@ -1,0 +1,1 @@
+Artículo 83: Por razones de suma urgencia y debidamente justificadas, la persona trabajadora podrá solicitar por escrito ante su jefatura inmediata, un adelanto de sus vacaciones que, en ningún caso, podrá superar el número de días que proporcionalmente corresponda a los meses laborados.

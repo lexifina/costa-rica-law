@@ -1,0 +1,1 @@
+Artículo 72: EI procedimiento administrativo interno deberá ser llevado a cabo guardando confidencialidad absoluta de los hechos y las personas participantes, respetando los principios que rigen la actividad administrativa y garantizando, ante todo, el debido proceso y la integridad de la persona denunciante y denunciada.

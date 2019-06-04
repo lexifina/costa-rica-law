@@ -1,0 +1,1 @@
+Artículo 50: Las personas funcionarias podrán acogerse al pago por concepto de Dedicación Exclusiva según las disposiciones de la Ley de Fortalecimiento de las Finanzas Públicas y del Reglamento que se emita para esos efectos.

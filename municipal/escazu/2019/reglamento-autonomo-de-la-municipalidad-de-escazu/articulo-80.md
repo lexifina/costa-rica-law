@@ -1,0 +1,1 @@
+Artículo 80: En caso de que la persona funcionaria finalice la relación de servicios y tenga pendientes de disfrutar días de vacaciones, se le pagarán las mismas con base en lo que establece el Código de Trabajo y demás normativa que resulte aplicable.

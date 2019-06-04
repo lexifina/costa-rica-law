@@ -1,0 +1,1 @@
+Artículo 126: EI presente reglamento entrará en vigencia una vez que se publique en el diario oficial La Gaceta. Gestión de Recursos Humanos y Materiales procederá a informar a todo el personal de la Municipalidad.

@@ -1,0 +1,1 @@
+Artículo 92: Todo trabajo realizado fuera de la jornada ordinaria de servicio que se establezca en toda dependencia de la Municipalidad, será considerado como extraordinario y no podrá exceder de un 50% de la jornada normal laborada.

@@ -1,0 +1,1 @@
+Artículo 123: La persona trabajadora que se acoja al beneficio señalado en el artículo 121, no podrá ingresar a laborar a esta Municipalidad, durante un período igual al número de meses recibidos como cesantía.

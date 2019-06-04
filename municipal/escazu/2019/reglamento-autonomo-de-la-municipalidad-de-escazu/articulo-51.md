@@ -1,0 +1,4 @@
+CAPÍTULO XVII
+DE LA SALUD OCUPACIONAL Y EQUIPO DE TRABAJO
+La Municipalidad se compromete a acatar las normas de salud y seguridad en el trabajo, según lo dispuesto en el reglamento 39406-MTSS, 1 y 2 del 2 de enero de 1967 y Decreto del 4 de mayo de 1979, 10541 TSS y 7538-SPPS, así como los requerimientos necesarios para el adecuado funcionamiento de la Comisión de Salud Ocupacional.
+Artículo 51: Se crea la Comisión de Salud Ocupacional que será bipartita y estará conformada por cuatro integrantes propietarios y sus respectivos suplentes. Dos propietarios y dos suplentes representarán a las personas trabajadoras, los cuales se nombrarán por la Junta Directiva del STMDCR y dos propietarios y dos suplentes que serán nombrados por la administración municipal. Durarán en sus cargos por un plazo de tres años, pudiendo ser reelectos.

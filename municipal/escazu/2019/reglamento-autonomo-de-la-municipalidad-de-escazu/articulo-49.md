@@ -1,0 +1,1 @@
+Artículo 49: La compensación económica por concepto de Prohibición del Ejercicio Particular de la Profesión, se regulará conforme al Código Municipal, la Ley de Fortalecimiento de las Finanzas Públicas y los reglamentos que para tales efectos se emitan.

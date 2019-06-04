@@ -1,0 +1,1 @@
+Artículo 33: Las personas funcionarias municipales interinas y el personal de confianza, descritos en el artículo 127 del Código Municipal, estarán sometidos a la evaluación del desempeño y a los requisitos establecidos en el Manual Descriptivo de Puestos.

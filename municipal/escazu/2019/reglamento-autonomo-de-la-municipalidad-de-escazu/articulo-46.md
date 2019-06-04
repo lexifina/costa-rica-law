@@ -1,0 +1,1 @@
+Artículo 46: Toda persona funcionaria tendrá derecho a que se le reconozca por concepto de anualidad un 4% sobre la base salarial por cada año laborado. Para aquellos funcionarios que ingresen a la Municipalidad y soliciten el reconocimiento de años laborados en la Administración Pública, se les reconocerá todos los años que acrediten ante este ayuntamiento.

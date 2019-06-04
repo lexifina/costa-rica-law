@@ -1,0 +1,1 @@
+Artículo 53: El reporte presentado, por la Oficina de Salud Ocupacional por el incumplimiento del artículo anterior, tendrá carácter de prueba, para la aplicación del Régimen disciplinario, sin menoscabo de los derechos de defensa que le asisten legalmente a la persona trabajadora.

@@ -1,0 +1,1 @@
+Artículo 90: Las personas funcionarias de la municipalidad desempeñarán sus actividades durante todos los días hábiles y durante las horas reglamentarias. No se concederán permisos para trabajar menos horas de la jornada ordinaria, salvo por motivos de estudio, en la forma regulada por el Reglamento de Capacitación.

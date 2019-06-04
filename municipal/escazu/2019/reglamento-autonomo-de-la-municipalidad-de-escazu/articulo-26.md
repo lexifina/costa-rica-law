@@ -1,0 +1,1 @@
+Artículo 26: A la persona funcionaria que se le demuestre haber estado jugando en el equipo de cómputo asignado para las labores municipales, se le sancionará con una llamada de amonestación verbal cuando sea por primera vez, y si reincide, se procederá conforme lo establecido en el artículo 119, inciso 4) de este reglamento.

@@ -1,0 +1,1 @@
+Artículo 45: En caso de recargo de funciones, la persona funcionaria devengará la diferencia entre el salario base de su puesto y el del cargo donde ejercerá el recargo y éste deberá ser por un periodo igual o mayor a 30 días.

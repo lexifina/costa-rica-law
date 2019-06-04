@@ -1,0 +1,3 @@
+CAPÍTULO XII
+DE LAS RELACIONES DE SERVICIO
+Artículo 28: Las relaciones de servicio entre las personas trabajadoras y la Municipalidad de Escazú se regirán por las disposiciones del Código Municipal, Código de Trabajo, Ley General de Administración Pública, Ley de la Administración Financiera de la República y presupuestos públicos, Ley de la Contratación Administrativa, Ley de Salarios de la Administración Pública, Ley de Fortalecimiento de las Finanzas Públicas, leyes supletorias y conexas y lo dispuesto en la Convención Colectiva de Trabajo vigente de la Municipalidad de Escazú y el resto de ordenamiento jurídico.

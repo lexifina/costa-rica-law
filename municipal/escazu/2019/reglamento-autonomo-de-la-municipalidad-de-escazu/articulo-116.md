@@ -1,0 +1,2 @@
+Artículo 116: Tanto la amonestación verbal como la escrita relacionadas con aspectos disciplinarios de cualquier índole, deberán ser impuestas por quien funge como jefatura inmediata de la persona funcionaria, previo cumplimiento del procedimiento señalado en este reglamento.
+Las sanciones de suspensión sin goce de salario o despido sin responsabilidad patronal, corresponderá aplicarlas a quien ostente el puesto de alcalde, previo cumplimiento del procedimiento ordinario, regulado en el libro segundo de la Ley General de la Administración Pública.

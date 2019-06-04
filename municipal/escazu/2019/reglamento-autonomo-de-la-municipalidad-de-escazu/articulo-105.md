@@ -1,0 +1,1 @@
+Artículo 105: Se considerará llegada tardía la presentación al trabajo después de la hora señalada para el comienzo de las labores en la jornada diaria de acuerdo al artículo 89 del capítulo XXV del presente reglamento, sin perjuicio de la sanción disciplinaria correspondiente.

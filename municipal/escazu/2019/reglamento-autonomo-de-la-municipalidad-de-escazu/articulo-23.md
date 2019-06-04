@@ -1,0 +1,1 @@
+Artículo 23: Todas las personas usuarias de los equipos no podrán mantener documentos de carácter personal o de cualquier otro tipo que no se relacionen estrictamente con la función municipal. Para estos efectos, las personas a cargo del Proceso de Informática de la Municipalidad podrán realizar revisiones del equipo al azar y sin previo aviso.

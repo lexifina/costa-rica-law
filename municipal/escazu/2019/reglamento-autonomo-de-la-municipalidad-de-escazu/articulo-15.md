@@ -1,0 +1,1 @@
+Artículo 15: Gestión de Recursos Humanos y Materiales confeccionará un inventario de las personas funcionarias municipales, en el cual incluirá los siguientes datos: nombre, edad, sexo, atestados, experiencia, capacitaciones, movimientos de personal, entre otros.

@@ -1,0 +1,1 @@
+Artículo 18: La Unidad Administrativa de Asuntos Jurídicos brindará toda la asesoría jurídica a la Alcaldía, Vice alcaldía, y las diferentes dependencias municipales que lo requieran, de igual forma realizará todo lo que le corresponde según lo indicado en el manual de procedimientos de la Municipalidad.

@@ -1,0 +1,1 @@
+Artículo 48: EI aguinaldo se pagará en la primera quincena del mes de diciembre y de conformidad con lo que establece la Ley Nº 1835, sobre la Regulación de Pago del Aguinaldo, o cualquier otra disposición legal o reglamentaria que lo mejore.

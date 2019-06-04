@@ -1,0 +1,1 @@
+Artículo 5: Las personas funcionarias que tengan bajo su responsabilidad tareas de administración o supervisión de personal, son responsables ante quien ostente el puesto de alcalde, de velar por la correcta aplicación de todas las disposiciones de este Reglamento.
