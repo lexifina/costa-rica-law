@@ -1,0 +1,1 @@
+Artículo 27°-De la rendición de informes. A solicitud de la Junta y en cualquier etapa del procedimiento de contratación administrativa que se trate, corresponderá a los Directores y Subdirectores de programas, así como a las personas funcionarias designadas en calidad de órgano fiscalizador o administrador del contrato, rendir los informes requeridos, en tiempo y forma.

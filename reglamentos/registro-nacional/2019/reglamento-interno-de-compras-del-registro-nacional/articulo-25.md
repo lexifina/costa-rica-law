@@ -1,0 +1,9 @@
+Artículo 25°- Deber de confidencialidad, probidad y observancia de los principios que rigen la materia de contratación. Toda persona funcionaria que tenga participación en el proceso de compras que realiza el Registro Nacional, queda obligada a guardar estricta confidencialidad de dichos procesos, en aquellos aspectos que puedan beneficiar a potenciales proveedores, debiendo desde la confección del cartel valorar de manera íntegra, que las características técnicas consignadas en el pliego cartelario, no restrinjan la eventual participación de potenciales oferentes dentro del mercado, en resguardo del principio de igualdad y libre competencia.
+Por lo que deberá justificarse la necesidad y razonabilidad de dichos requerimientos por parte del órgano técnico de la contratación, y observarse los principios de eficacia y eficiencia durante todo el proceso de contratación, así como los instrumentos gubernamentales tales como Directrices que emita el Poder Ejecutivo, Dirección General de Administración de Bienes y Contratación Administrativa del Ministerio de Hacienda, la Contraloría General de la República y cualquier otra autoridad competente.
+La inobservancia comprobada de esta prohibición será considerada a afectos de la aplicación de sanciones establecidas en el capítulo X de la Ley N°7494, Ley de Contratación Administrativa, en concordancia con lo dispuesto en el Decreto Ejecutivo N°33411,
+Reglamento a la Ley de Contratación Administrativa. Considerándose faltas graves en el
+servicio, las tipificadas en el numeral 96, 96 bis y 96 ter de la Ley, y sancionadas conforme
+a lo dispuesto en dicho artículo, así como los numerales 3º y 4º de la Ley Nº 8422, Ley
+Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública y lo establecido en
+la Ley Nº 8292, Ley General de Control Interno.
+La Administración se encuentra obligada a adoptar las medidas de control interno, para salvaguardar la información y lineamientos aquí establecidos.
