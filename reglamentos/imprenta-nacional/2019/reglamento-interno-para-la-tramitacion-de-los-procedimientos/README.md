@@ -14,3 +14,4 @@ Reglamento interno para la tramitación de los procedimientos de contratación a
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-04-02 | la propia norma |
+| 2 | 2019-06-04 | Reglamento 13 (2019-06-04) |
