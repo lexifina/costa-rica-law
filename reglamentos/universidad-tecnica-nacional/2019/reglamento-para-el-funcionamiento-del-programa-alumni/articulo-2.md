@@ -1,0 +1,1 @@
+Artículo 2.- Alcance del reglamento. El presente reglamento norma el funcionamiento del Programa Alumni de la Universidad Técnica Nacional para la vinculación y seguimiento de los estudiantes graduados.

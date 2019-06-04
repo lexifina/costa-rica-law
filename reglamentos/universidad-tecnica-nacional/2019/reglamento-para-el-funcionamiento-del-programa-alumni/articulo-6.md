@@ -1,0 +1,1 @@
+Artículo 6.- De la vinculación. Para el cumplimiento de los objetivos planteados, el Programa Alumni define en conjunto con la Vicerrectoría de Vida Estudiantil, las instancias institucionales y los sujetos de derecho público y privado, las estrategias de vinculación y los procedimientos necesarios que contribuyan a alcanzar los fines del Programa.

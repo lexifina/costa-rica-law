@@ -1,0 +1,1 @@
+Artículo 7.- De la coordinación con las Coordinaciones de las Áreas de Vida Estudiantil de las sedes. La coordinación y articulación de las distintas acciones y actividades se lleva a cabo con el apoyo de las Coordinaciones del Área de Vida Estudiantil y otros actores claves para el logro de los fines propuestos.

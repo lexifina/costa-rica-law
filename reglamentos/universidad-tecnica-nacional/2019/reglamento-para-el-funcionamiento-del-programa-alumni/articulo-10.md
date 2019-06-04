@@ -1,0 +1,1 @@
+Artículo 10.- De la desinscripción de los miembros Alumni. La desinscripción al Programa Alumni se realiza mediante una solicitud por escrito, donde la persona interesada exprese su deseo de no participar en el mismo.
