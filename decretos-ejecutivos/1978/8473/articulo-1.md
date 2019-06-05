@@ -2,8 +2,8 @@ N° 8473-A
 EL PRESIDENTE DE LA REPÚBLICA Y
 EL MINISTRO DE AGRICULTURA Y GANADERÍA,
 DECRETAN :
-Artículo I°— (Así derogado por el artículo 5° del decreto ejecutivo N° 20172 del 29 de octubre de 1990)
-Artículo 2°— (Este artículo fue derogado por el artículo 5° del decreto ejecutivo N° 20172 del 29 de octubre de 1990, excepto en lo concerniente a la Sección Miravalles)
+Artículo 1°— (Así derogado por el artículo 5° del decreto ejecutivo N° 20172 del 29 de octubre de 1990)
+Artículo 2°— (Este artículo fue derogado por el artículo 5° del decreto ejecutivo N° 20172 del 29 de octubre de 1990, excepto en lo concerniente a la Sección Miravalles. Posteriormente por el artículo 5° del decreto ejecutivo N° 41768 del 5 de junio de 2019, “Cambia la categoría de manejo a una sección de la zona protectora Miravalles a la de Parque Nacional Volcán Miravalles-Jorge Manuel Dengo.”, se indicó derogar este numeral en su totalidad)
 SECCIÓN DEL VOLCAN MIRAVALLES
 El punto cero (0) se encuentra ubicado en las coordenadas 305 000 y 407 000, continúa con los siguientes rumbos, distancias y coordenadas.
 Estación | Distancia | Rumbo | Coordenadas

@@ -15,3 +15,4 @@ Reforma integral Establece Reserva Forestal Cordillera Volcánica de Guanacaste
 | 1 | 1978-04-24 | la propia norma |
 | 2 | 1987-07-25 | Decreto Ejecutivo 17655 (1987-07-25) |
 | 3 | 1990-10-29 | Decreto Ejecutivo 20172 (1990-10-29) |
+| 4 | 2019-06-05 | Decreto Ejecutivo 41768 (2019-06-05) |
