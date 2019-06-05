@@ -15,3 +15,4 @@ Redefine como Zonas Protectoras el Arenal, Monteverde, San Ramón, Miravalles y 
 | --- | --- | --- |
 | 1 | 1991-01-24 | la propia norma |
 | 2 | 2012-05-11 | Ley 9036 |
+| 3 | 2019-06-05 | Decreto Ejecutivo 41768 (2019-06-05) |
