@@ -1,0 +1,1 @@
+Transitorio II: En caso de encontrarse algún trámite pendiente o resuelto, éstos deberán iniciarse de nuevo (nuevo trámite) a fin de valorarse y subsanar cualquier inobservancia realizada en sede municipal, por medio de la presente directriz.

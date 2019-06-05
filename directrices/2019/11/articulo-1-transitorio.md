@@ -1,0 +1,1 @@
+Transitorio I: Aplíquese la presente directriz para aquellos casos presentados ante la Municipalidad a partir del año 2015, con ocasión de trámites de solicitud de uso o certificado de uso de suelo, visado de planos y de licencia municipal constructiva (permiso de construcción).
