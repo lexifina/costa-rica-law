@@ -1,1 +1,0 @@
-Artículo 6º—Todos los pagos por concepto de comisiones deberán ser autorizados por la Gerencia, previa verificación y cumplimiento de todos los procedimientos administrativos, contables y financieros aplicables, y los límites establecidos en el esquema de comisiones.
