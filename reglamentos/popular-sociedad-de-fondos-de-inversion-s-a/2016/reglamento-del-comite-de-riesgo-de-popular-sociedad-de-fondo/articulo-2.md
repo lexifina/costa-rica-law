@@ -1,1 +1,0 @@
-Artículo 2º—Objetivo. Este reglamento tiene como objetivo definir el accionar del Comité de Riesgo de Popular Sociedad de Fondos de Inversión S. A. (en adelante Popular SAFI) y propiciar las acciones necesarias a fin de cumplir con la normativa aplicable en materia de gestión integral de riesgos de la entidad y de los fondos de inversión administrados.
