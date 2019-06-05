@@ -35,3 +35,5 @@ En las Tecnologías que se señalan a continuación, no se aceptarán la autoriz
 8)Terapia ocupacional.
 9)Terapia respiratoria.
 10)Terapia de la voz y el lenguaje.
+11) Ortopedia. - Se reconoce como sinónimo de esta Tecnología, los siguientes términos: Ortopedia y rehabilitación y Tecnortopedia y Trauma.
+(Así adicionado el inciso anterior en sesión ordinaria N° 2019-06-05 del 5 de junio de 2019)
