@@ -1,0 +1,1 @@
+Artículo 8º—De la colaboración. Con el objetivo de cumplir con las funciones dispuestas en el artículo 3 del presente Reglamento, aquellas entidades de la Administración Pública Central deberán brindar toda la colaboración requerida por la Comisión.

@@ -1,0 +1,1 @@
+Artículo 10.—Normas Supletorias. En lo no contemplado en este Decreto Ejecutivo, la Comisión se regirá por las disposiciones que regulan a los órganos colegiados, contenidas en la Ley General de la Administración Pública, Ley número 6227 del 2 de mayo de 1978.
