@@ -1,0 +1,2 @@
+Artículo 14. Traslados de puestos.
+Los empleados podrán ser trasladados a ocupar otros puestos y a realizar otras funciones, acorde con sus aptitudes y conocimientos, de manera permanente, en el tanto se respete su categoría y su salario. Quedan a salvo los procesos de reestructuración o reorganización de puestos, que hacia futuro se realicen, los cuales podrán realizarse siguiendo la normativa del Estatuto del Servicio Civil y su Reglamento.

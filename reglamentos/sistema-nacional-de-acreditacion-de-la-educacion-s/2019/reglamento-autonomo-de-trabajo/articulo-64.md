@@ -1,0 +1,5 @@
+Artículo 64. Ausencias
+Se considerará ausencia la falta de un día completo de trabajo. La falta de una fracción de la jornada que por su extensión no pueda calificarse como llegada tardía, lo cual se dará cuando el trabajador se presente a laborar al menos una hora después de iniciadas las labores, se computará como la mitad de una ausencia. Dos mitades de ausencia, para efectos de este Reglamento, se computarán como una ausencia. No se pagará el salario que corresponde a las ausencias, excepción hecha de los casos señalados por la ley o que se justifiquen debidamente.
+Después de una hora de llegada tardía injustificada, al empleado le será rebajada media jornada de su día laboral.
+Las ausencias al trabajo por enfermedad deberán justificarse conforme con el artículo 57 inciso n de este Reglamento.
+En casos muy calificados, no contemplados en este Reglamento, queda a juicio del jefe inmediato justificar ausencias que no sean por enfermedad comprobada, para efectos de evitar sanción disciplinaria, sin que ello signifique obligación al pago del salario.

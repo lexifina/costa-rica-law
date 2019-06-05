@@ -1,0 +1,2 @@
+Artículo 52. Restitución de la persona denunciante a la condición laboral anterior.
+La persona que demuestre haber sido objeto de hostigamiento sexual, y compruebe que por este hecho sufrió perjuicio en su condición laboral, tendrá derecho a ser restituida al estado en que se encontraba antes del hostigamiento, para lo cual el encargado del Proceso de Gestión de Talento Humano dispondrá las acciones necesarias para salvaguardar ese derecho, siendo estas de acatamiento obligatorio.

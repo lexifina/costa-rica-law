@@ -1,0 +1,6 @@
+Artículo 43. Denuncia.
+La persona denunciante de acoso u hostigamiento sexual planteará la denuncia ante el encargado del Proceso de Gestión de Talento Humano, o ante la persona que designe esta dependencia, quien deberá ser del mismo sexo de la persona denunciante, debiendo iniciarse de forma inmediata el procedimiento especial disciplinario. Recibida la denuncia en forma, el asunto se trasladará al Consejo Nacional de Acreditación para el nombramiento del Órgano Director, correspondiéndole al Proceso de Gestión de Talento Humano informar a la Defensoría de los Habitantes de la presentación de la denuncia correspondiente.
+Para los efectos indicados, la persona denunciante deberá aportar la siguiente información:
+a.-Nombre y apellidos, número de cédula o de otra identificación idónea, dirección exacta, número telefónico y cualquier otra información que sirva para localizarle.
+b.- Nombre y apellido de la persona trabajadora denunciada, dirección donde puede ser localizada y lugar donde labora esta persona, si se conociera. En caso de no conocer la identificación de la persona denunciada, indicar los datos necesarios para realizar esa identificación.
+c.- Descripción clara y detallada de los hechos o situaciones que fundamentan la denuncia, tales como fechas, lugares, circunstancias, etc, señalando además la prueba directa o indiciaria de que se dispone.

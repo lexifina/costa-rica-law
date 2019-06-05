@@ -1,0 +1,5 @@
+Artículo 13. Sustitución temporal.
+También podrá hacer uso el SINAES, para llenar las ausencias temporales de un empleado, de la figura de la sustitución temporal, por un plazo mínimo de dos semanas naturales y máximo de un mes calendario.
+En casos de sustituciones temporales, el empleado o empleada sustitutos se desempeñarán en el puesto de otra persona de igual o superior categoría, dejando de realizar sus propias funciones para asumir las de la persona sustituida.
+Quien asuma una sustitución temporal tendrá derecho, cuando el puesto a desempeñar es de superior categoría, a devengar el salario base de la categoría del trabajador a quien sustituye, junto con los sobresueldos que venga devengando regularmente, o en su caso, tendría derecho a devengar la diferencia entre su salario total y el salario total del trabajador sustituido, en caso de que este último devengara un salario único, aplicándose el pago que más favorezca al empleado sustituto.
+Es entendido que una vez finalizada la sustitución, el empleado volverá a las condiciones salariales y de trabajo anteriores.

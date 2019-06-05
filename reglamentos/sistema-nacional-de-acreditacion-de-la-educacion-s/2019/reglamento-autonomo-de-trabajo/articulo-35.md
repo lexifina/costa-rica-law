@@ -1,0 +1,3 @@
+Artículo 35. Licencias para estudios.
+SINAES podrá otorgar permisos de estudio con goce de salario según la reglamentación que se dictará oportunamente. Lo anterior sujeto a que la persona esté en propiedad con nombramiento de plazo indefinido, y que el tiempo concedido sea destinado a recibir lecciones, trabajos finales de investigación, trabajos de campo, prácticas dirigidas, presentación de tesis y otras relacionadas directamente con los estudios.
+Para otorgar estos permisos debe tratarse de estudios conducentes a obtener un título en grados superiores y afines a su profesión. Además debe tratarse de un campo de estudio o especialidad de interés institucional, según lo defina la Dirección Ejecutiva.

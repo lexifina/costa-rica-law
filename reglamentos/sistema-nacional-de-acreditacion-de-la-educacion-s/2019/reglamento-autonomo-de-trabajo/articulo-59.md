@@ -1,0 +1,6 @@
+Artículo 59. Órganos que pueden aplicar las sanciones.
+La sanción de amonestación escrita podrá ser impuesta por el Jefe inmediato del empleado.
+Las sanciones de suspensión sin goce de salario y de despido sin responsabilidad patronal deberá imponerlas el Director Ejecutivo, salvo que se trate de una sanción a este último funcionario o en el caso de los empleados cuya remoción corresponde exclusivamente al Consejo, según el artículo cinco anterior, situaciones en las cuales la medida solo podrá aplicarla el propio Consejo Nacional de Acreditación.
+Toda sanción deberá ser motivada por el órgano que la imponga. Las sanciones que imponga la Dirección Ejecutiva tendrán recurso de apelación para ante el Consejo Nacional de Acreditación y lo resuelto por este órgano conociendo en alzada no tendrá ulterior recurso, por lo que dará por agotada la vía administrativa.
+Cuando se trate de una sanción a la persona del Director Ejecutivo o de los funcionarios cuya remoción solo corresponde al Consejo Nacional de Acreditación, lo resuelto por este órgano tendrá únicamente recurso de revocatoria ante el propio Consejo, en el mismo plazo que contempla este artículo para el recurso de apelación.
+El recurso de apelación deberá ser interpuesto dentro de un plazo de tres días hábiles contados a partir del día hábil siguiente a la fecha en que fue comunicada la sanción.

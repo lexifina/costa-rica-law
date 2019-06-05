@@ -1,0 +1,2 @@
+Artículo 17. Pago de jornada extraordinaria.
+Los trabajadores que laboren jornada extraordinaria, previamente autorizada por su Jefatura Superior, tendrán derecho al pago de dicha jornada, conforme con lo establecido en el artículo 139 del Código de Trabajo. La Jefatura que obligue a sus empleados a laborar jornada extraordinaria y que luego se niegue a reconocer el tiempo laborado bajo sea modalidad, será sancionado de acuerdo con la gravedad de su falta.
