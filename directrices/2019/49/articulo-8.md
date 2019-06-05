@@ -1,0 +1,1 @@
+Artículo 8º—Procedimiento operativo de comunicación. Se instruye el establecimiento de un proceso general de comunicación y/o información en las entidades bancarias mediante la red de oficinas en el país, para dar a conocer las alternativas descritas en la presente directriz.

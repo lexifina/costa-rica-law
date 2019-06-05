@@ -1,0 +1,1 @@
+Artículo 4º—Avales individuales y avales de cartera. Se insta al Sistema de Banca para el Desarrollo y otros fondos cuya normativa así lo permita a apoyar a las entidades financieras en los procesos de adecuación mediante avales individuales o de cartera para los casos que cumplan con la normativa de cada fondo.

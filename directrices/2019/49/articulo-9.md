@@ -1,0 +1,1 @@
+Artículo 9º—Sobre normativa complementaria. Se invita a la Superintendencia General del Entidades Financieras a valorar la emisión de normativa correspondiente que complemente lo dispuesto en el artículo 3° de esta Directriz y que sirva de apoyo para las entidades financieras vinculadas con la presente Directriz.
