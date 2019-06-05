@@ -1,1 +1,0 @@
-Artículo 4º—La venta de los servicios asignados a los Ejecutivos de Venta o a las Entidades Comercializadoras generará a su favor el pago de una comisión, siendo el tope de comisiones un 40% (cuarenta por ciento) de la suma cobrada por Popular SAFI como comisión de administración, suma que se pagará de acuerdo con lo fijado en el esquema de comisiones.
