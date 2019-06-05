@@ -17,3 +17,4 @@ Reglamento sobre la Concesión para la Elaboración de Bebidas Alcohólicas de F
 | 2 | 2012-02-29 | Reglamento 2834 (2012-02-29) |
 | 3 | 2012-10-17 | Reglamento 2857 (2012-10-17) |
 | 4 | 2013-10-02 | Reglamento 2881 (2013-10-02) |
+| 5 | 2019-06-05 | Reglamento 3014 (2019-06-05) |
