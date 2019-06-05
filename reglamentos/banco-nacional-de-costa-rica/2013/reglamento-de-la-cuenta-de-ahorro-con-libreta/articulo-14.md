@@ -1,0 +1,6 @@
+DÉCIMA CUARTA.- AUTORIZACIÓN ESPECIAL:
+EL CLIENTE autoriza expresamente a EL BANCO para debitar los saldos de su cuenta de ahorros por los conceptos que se indican a continuación, para la atención de los pagos normales según se pacte con EL BANCO al momento de la contratación de los productos, o en caso de incumplimiento:
+a)Para el pago de todos los costos asociados al manejo de la cuenta de ahorros tales como las comisiones y/o tarifas por los servicios o productos financieros prestados por ELBANCO, el uso de cajeros automáticos, las comisiones por el uso de tarjetas débito o crédito ,las cuotas de manejo de la cuenta, consultas ante las centrales de información financiera.
+b)Para abonos a créditos otorgados por EL BANCO bajo la modalidad de cartera comercial, consumo, tarjeta de crédito, crédito de libranza, sobregiros, cuando no se haya cancelado la cuota correspondiente o en caso de mora por la totalidad del crédito o hasta el monto del saldo de la cuenta.
+c)Por el costo de comisiones por transferencias entre cuentas o giros de dineros desde y hacia al exterior o cualquier otro servicio asociado a operaciones de comercio exterior.
+d)Por el costo de comisiones por la emisión de avales o garantías bancarias locales o internacionales o cartas de crédito stand by.

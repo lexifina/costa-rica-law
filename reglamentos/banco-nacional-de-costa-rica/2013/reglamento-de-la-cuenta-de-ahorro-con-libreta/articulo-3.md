@@ -1,0 +1,8 @@
+TERCERA: CONDICIONES DE APERTURA DE LA CUENTA:
+3.1. Para solicitar la apertura de una cuenta de ahorros EL CLIENTE deberá diligenciar el formato de vinculación y cumplir con todas las políticas institucionales y de documentación establecidas por el BANCO. En el caso de personas autorizadas, éstas también deberán cumplir los requisitos y suscribir los documentos requeridos por EL BANCO.
+3.2. Puede ser CLIENTE toda persona natural cualquiera sea su edad, sexo, estado civil o nacionalidad (Residente en Costa Rica) o toda persona jurídica cuya existencia y representación sean debidamente acreditadas. Los extranjeros deberán contar con estatus migratorio vigente
+3.3. Las cuentas de ahorros con libreta están diseñadas para el uso del “segmento oro” que así lo soliciten, para el resto de los ahorrantes se utilizarán las cuentas de ahorros electrónicas, excepto que se paguen las comisiones fijadas por el Banco para emisión de libretas. Tales comisiones serán publicadas en la página web del Banco y en las oficinas del mismo.
+3.4. Los menores de edad pueden ser titulares de cuentas de ahorro y, en consecuencia, manejarlas directamente, a menos que se encuentren impedidos para ello, caso en el cual el manejo lo hará su representante legal (padres, tutor o curador), hasta tanto el menor esté en condiciones de asumir su manejo.
+La apertura de la cuenta del menor de edad debe realizarla quien ejerza la patria potestad o la tutela.
+3.5. El depósito inicial para la apertura de la cuenta no podrá ser inferior al establecido por EL BANCO.
+3.6. EL CLIENTE deberá suministrar a EL BANCO toda la información que éste solicite para la apertura de la cuenta, cumpliendo los requisitos mínimos establecidos por la normativa externa o interna que regula la materia.

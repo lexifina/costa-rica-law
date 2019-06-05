@@ -1,0 +1,9 @@
+DÉCIMA PRIMERA.- DÉBITOS A LA CUENTA:
+Todo débito a la Cuenta de Ahorros requiere autorización escrita de EL CLIENTE, entendiéndose que para el caso de débitos originados en operaciones efectuadas a través de cajeros automáticos, o internet banking, la autorización se entiende impartida por el hecho de acceder a través de dichos canales. EL CLIENTE autoriza expresamente a EL BANCO para debitar su cuenta de ahorros en los siguientes casos:
+a)Por orden de autoridad competente o disposición legal.
+b)Cuando sea necesario corregir errores que se hayan presentado en la cuenta relacionados con la acreditación de depósitos o intereses que no correspondía realizar.
+c)Por concepto del pago de comisiones y/o tarifas por los servicios o productos financieros prestados por EL BANCO, los cuales son debidamente divulgados por EL BANCO mediante carteleras ubicadas en sus propias Oficinas o mediante avisos publicados en la prensa escrita, a través de canales virtuales o por cualquier otro medio que el BANCO estime conveniente y que permita mantener efectivamente informado a EL CLIENTE conforme a lo establecido en la Ley.
+d)En el evento en que en la cuenta de ahorros se acrediten sumas de dinero provenientes defraudes y/o errores, caso en el cual EL BANCO queda facultado para bloquear, retener, reversar o reintegrar a su originador, el monto del depósito así realizado. Para estos efectos, EL CLIENTE podrá informar a EL BANCO cualquier evento relacionado con fraudes y errores a través de los canales establecidos por EL BANCO:
+(i)La línea de Servicio al Cliente en los teléfonos 2212-2000.
+(ii)La página web del Banco www.bncr.fi.cr a través del link CONTACTENOS.
+(iii)La red de Oficinas de EL BANCO a nivel nacional. Estos canales podrán ser modificados en cualquier momento de lo cual EL BANCO se obliga a dar noticia a EL CLIENTE a través de un medio idóneo.
