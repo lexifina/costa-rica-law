@@ -14,3 +14,4 @@ Establece Reserva Forestal Cordillera Volcánica de Guanacaste
 | --- | --- | --- |
 | 1 | 1976-02-25 | la propia norma |
 | 2 | 1978-04-24 | Decreto Ejecutivo 8473 (1978-04-24) |
+| 3 | 2019-06-05 | Decreto Ejecutivo 41768 (2019-06-05) |

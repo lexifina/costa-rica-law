@@ -17,27 +17,50 @@ Estación | Distancia | Rumbo | Coordenadas
 10-11 | 2102 | N 18° 00’ E | 332 | 000 | 373 | 650
 11-0 | 4350 | E Franco | 332 | 000 | 378 | 000
 | | | | | |
-SECCIÓN DEL VOLCAN MIRA VALLES
-El punto cero (0) se encuentra ubicado en las coordenadas 305 000 y 407 000, continúa con los siguientes rumbos, distancias y coordenadas.
-Estación | Distancia | Rumbo | Coordenadas
-| | | Norte | Este
-0-1 | 2516 | N 49° 02’ E | 306 | 650 | 408 | 900
-1-2 | 604 | S 65° 33’ E | 306 | 400 | 409 | 450
-2-3 | 3894 | N 48° 00’ E | 309 | 000 | 412 | 350
-3-4 | 4427 | S 63° 09’ E | 307 | 000 | 416 | 300
-4-5 | 4000 | S 0° 22’ W | 303 | 000 | 416 | 275
-5-6 | 3619 | S 34° 01’ E | 300 | 000 | 418 | 300
-6-7 | 2193 | S 24° 13’ W | 298 | 000 | 417 | 400
-7-8 | 1000 | S Franco | 297 | 000 | 417 | 400
-8-9 | 1720 | S 54° 28’ W | 296 | 000 | 416 | 000
-9-10 | 1000 | W Franco | 296 | 000 | 415 | 000
-10-11 | 2350 | S Franco | 293 | 650 | 415 | 000
-11-12 | 1192 | S 56° 59’W | 293 | 000 | 414 | 000
-12-13 | 3000 | W Franco | 293 | 000 | 411 | 000
-13-14 | 2000 | N Franco | 295 | 000 | 411 | 000
-14-15 | 6018 | N 33° 49’ W | 300 | 000 | 407 | 650
-15-16 | 2103 | N 18° 00’ W | 302 | 000 | 407 | 000
-16-0 | 3000 | N Franco | 305 | 000 | 407 | 000
+SECCIÓN DEL VOLCAN MIRA VALLES(*)
+(*) (Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 41768 del 5 de junio de 2019, "Cambia la categoría de manejo a una sección de la zona protectora Miravalles a la de Parque Nacional Volcán Miravalles-Jorge Manuel Dengo”, se reformó el numeral 3° del decreto ejecutivo N° 20172 del 29 de octubre de 1990. Asimismo por el artículo 5° del decreto antes referido se derogó el numeral 2° del decreto ejecutivo N° 8473 del 24 de abril de 1978, el cuál reformó íntegramente el presente decreto ejecutivo. Dado lo anterior se transcriben los nuevos límites del Parque Nacional Volcán-Miravalles-Jorge Manuel Dengo y de la Zona Protectora Miravalles: “Cambiar la categoría de manejo a una sección de la Zona Protectora Miravalles a la de Parque Nacional Volcán Miravalles - Jorge Manuel Dengo, demarcado en las hojas cartográficas del Instituto Geográfico Nacional, escala 1:50.000 Miravalles y Tierras Morenas.
+Redefínase la Zona Protectora Miravalles que quedará constituida por el área que la conformaba originalmente y que no es contemplada por el Parque Nacional Volcán Mira valles - Jorge Manuel Dengo.
+Los límites del Parque Nacional Volcán Miravalles - Jorge Manuel Dengo y de la Zona Protectora Miravalles, quedan demarcados por las siguientes coordenadas geográficas:
+a) los límites del Parque Nacional Volcán Miravalles - Jorge Manuel Dengo serán demarcados por las siguientes coordenadas:
+[imagen]
+[imagen]
+[imagen]
+[imagen]
+[imagen]
+[imagen]
+[imagen]
+[imagen]
+[imagen]
+[imagen]
+[imagen]
+[imagen]
+[imagen]
+[imagen]
+[imagen]
+[imagen]
+[imagen]
+b) Los límites de la Zona Protectora Miraval/es serán demarcados por las siguientes coordenadas:
+Sección Este
+[imagen]
+Sección Norte
+[imagen]
+[imagen]
+[imagen]
+[imagen]
+[imagen]
+[imagen]
+Sección Sur
+[imagen]
+[imagen]
+[imagen]
+[imagen]
+[imagen]
+[imagen]
+[imagen]
+[imagen]
+[imagen]
+[imagen]
+[imagen]
 SECCIÓN DEL VOLCAN TENORIO
 La delimitación de esta área se inicia en el punto cero en las coordenadas 299 000 y 422 000, sigue con los siguientes rumbos, distancias y coordenadas.
 Estación | Distancia | Rumbo | Coordenadas
