@@ -1,5 +1,3 @@
-Artículo 11.- Pruebas para valorar la idoneidad y la lista de elegibles. La Dirección de Gestión Humana diseñará y aplicará las pruebas que deben reunir las personas participantes.
-La Dirección de Gestión Humana elaborará la lista de elegibles y la comunicará a la Comisión de Nombramientos.
-Una vez revisados los atestados de las personas oferentes, y previo a la designación por la Corte Plena, la Dirección de Gestión Humana por medio de la Secretaria de la Corte, lo comunicará a la Superintendencia de Pensiones para que se verifique el cumplimiento de los requisitos.
-Quedará excluida de la participación del concurso y de la elección democrática, aquella persona que la Supen tenga por no demostrada la acreditación del requisito. Esta exclusión aplicará también para el caso de la reelección.
-La determinación de la prueba de idoneidad y los respectivos requisitos serán comunicados junto con la respectiva convocatoria.
+Artículo 11.—La Dirección de Gestión Humana verificará el cumplimiento de los requisitos y enviará los atestados a la Superintendencia de Pensiones para la respectiva validación, conforme lo establece el artículo (N°) 240 de la Ley Orgánica del Poder Judicial.
+Quedará excluida de la participación aquella persona que la SUPEN tenga por no demostrada la acreditación del requisito.
+(Así reformado en sesión N° 21-19 del 3 de junio de 2019, mediante circular N° 101 del 6 de junio de 2019)
