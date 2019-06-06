@@ -1,0 +1,5 @@
+3 Modificar el artículo 30 del Reglamento para el manejo, uso y mantenimiento de la flotilla de vehículos y de la maquinaria especial de la Municipalidad de Curridabat, para que se lea así:
+“Artículo 30.—Horario y uso de los vehículos. Todos los vehículos municipales que se regulan en el presente reglamento están destinados para uso oficial y exclusivo de la municipalidad, y solo serán utilizadas en horas y días laborales hábiles para el desempeño de funciones públicas. Una vez finalizada la jornada laboral, el vehículo deberá ser estacionado en el lugar que así se halla asignado dentro de las instalaciones municipales.
+Por lo tanto, los vehículos no podrán ser utilizados para fines personales, familiares o actividades que estén fuera de los fines del servicio público y objetivos de la Corporación Municipal. Para estos efectos el traslado de la casa de habitación y viceversa, no será considerado como parte de la jornada laboral ni de las funciones que el funcionario deba ejecutar”.
+En todo lo demás se mantiene incólume el Reglamento vigente. Rige a partir de su publicación.
+Curridabat, 30 de mayo del 2019
