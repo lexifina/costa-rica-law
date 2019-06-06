@@ -1,0 +1,1 @@
+Artículo 23º . Regulaciones de los procedimientos de contratación administrativa. La actividad contractual que despliegue la Administración en virtud del presente reglamento, se regirá por la Ley de Contratación Administrativa y su Reglamento.
