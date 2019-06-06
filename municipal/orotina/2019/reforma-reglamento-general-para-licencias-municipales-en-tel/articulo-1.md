@@ -1,0 +1,8 @@
+MUNICIPALIDAD DE OROTINA
+AVISO
+En el acta de la sesión ordinaria N° 253, celebrada el día 27/05/2019 en el acuerdo 02-B se acuerda: b.- Se aprueba el proyecto y se convierte en reglamento exclusivamente para efectos de la Municipalidad de Orotina, la modificación a los artículos 4 y 17 del reglamento general para licencias municipales en telecomunicaciones, publicado por la Federación Metropolitana de Municipalidades, en el Diario Oficial La Gaceta N° 129 del 5 de julio de 2011 para que en adelante se lea de la siguiente manera:
+Artículo 4º—Para los efectos de la presente normativa se adoptan las siguientes definiciones:
+(…)
+7. Obra Constructiva: torre, antenas en azoteas, mástiles y postes de telecomunicaciones y su obra civil relacionada, que sirven para satisfacer los requerimientos de instalación de antenas y equipos utilizados para la transmisión inalámbrica en los servicios de telecomunicaciones, ubicados dentro de un predio.
+Artículo 17.—Para garantizar la responsabilidad civil por daños y perjuicios a terceros, incluyendo a la propia Municipalidad de Orotina será necesario que el solicitante de la Licencia Constructiva suscriba y exhiba póliza de seguro como garantía expedida por una compañía autorizada en el país. Esta garantía cubrirá la totalidad de las obras que se desarrollen en la jurisdicción cantonal, deberá ajustarse, mantenerse vigente mientras existan obras constructivas en el cantón y responderá por daños parciales o totales causados a la Municipalidad y a terceros en sus bienes o en personas, requisito sin el cual no se otorgará la Licencia de Construcción. Publíquese en La Gaceta.
+Rige a partir de su publicación.
