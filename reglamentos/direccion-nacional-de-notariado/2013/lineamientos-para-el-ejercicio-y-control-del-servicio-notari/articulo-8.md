@@ -4,7 +4,8 @@ Para ejercer la función notarial, el notario debe cumplir con todos los requisi
 En relación con el inciso e) del artículo 3 del Código Notarial, se define la oficina notarial como aquella que cuente con los siguientes requisitos:
 1. Recinto que garantice la prestación del servicio con libre acceso al público, según el principio de rogación, con las condiciones de seguridad necesarias para el resguardo de la integridad física del notario público, de su recurso humano y los usuarios del servicio, así como de sus bienes y herramientas de trabajo.
 2. Medios de comunicación que permitan contactar al notario, tales como teléfono, fax, correo electrónico e internet.
-3. Tomo de protocolo en uso, con excepción de los casos en que se encuentre en trámite la adquisición de un nuevo tomo o la reposición total o parcial del que está en uso, todo dentro de los plazos establecidos para cada caso.
+3. Tomo de protocolo en uso, con excepción de los casos en que se encuentre en trámite la adquisición de un nuevo tomo o la reposición total o parcial del que está en uso. El notario no puede permanecer sin tomo de protocolo autorizado por más de tres meses. Si esto ocurre, el notario estará inhabilitado para ejercer la función notarial.
+(Así reformado el inciso anterior mediante acuerdo firme 2019-011-020 del acta 2019-011 del 6 de junio de 2019)
 4. Los medios de seguridad establecidos en el artículo 28 de estos lineamientos.
 Si el notario tuviere oficinas abiertas en distintas localidades del país, deberá señalar cual es la principal. En caso de que no lo hiciere, para todos los efectos se tendrá como principal la primera que aparezca en el Registro de la Dirección Nacional de Notariado.
 Tanto la oficina principal como las demás oficinas declaradas deberán cumplir con las condiciones establecidas en este artículo.
