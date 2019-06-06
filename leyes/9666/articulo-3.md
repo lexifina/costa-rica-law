@@ -1,0 +1,1 @@
+ARTÍCULO 3- Se autoriza a la Notaría del Estado para que confeccione la escritura de traspaso; en caso de ser necesario, se le autoriza para que corrija los defectos que señale el Registro Nacional y proceda a su inscripción en el Registro Nacional.
