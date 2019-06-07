@@ -1,4 +1,5 @@
 DIRECCIÓN GENERAL DE ADUANAS
+(Nota de Sinalevi: Mediante resolución RES-DGA-046-2019 del 7 de junio del 2019, se acordó prorrogar indefinidamente la presente norma)
 RES-DGA-DGT-041-2018.—Dirección General de Aduanas.— San José, a las quince horas del día once de diciembre del dos mil dieciocho.
 Considerando:
 I.—Que el artículo 6 de la Ley General de Aduanas, Nº 7557 del 20 de octubre de 1995 publicada en La Gaceta Nº 212 del 08 de noviembre de 1995 y sus reformas, establece que uno de los fines del régimen jurídico es facilitar y agilizar las operaciones de comercio exterior, así como facultar la correcta percepción de los tributos.

@@ -14,3 +14,4 @@ Prorroga hasta el 30/06/2019, el Procedimiento Especial y Temporal para la impor
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-03-12 | la propia norma |
+| 2 | 2019-06-07 | Resolución 46 (2019-06-07) |
