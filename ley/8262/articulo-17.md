@@ -1,3 +1,3 @@
-Artículo 17.- Para gozar de este incentivo, las pequeñas y medianas empresas o agrupaciones de Pymes deberán cumplir lo establecido en la presente ley y el ordenamiento jurídico.
-En el caso de los emprendedores deberán estar registrados en el Ministerio de Economía, Industria y Comercio.
-(Así reformado por el aparte c) del artículo 59 de la Ley Sistema de Banca para el Desarrollo, N° 8634 del 23 de abril del 2014)
+Artículo 17- Para gozar de este incentivo, las pequeñas y medianas empresas, agrupaciones o consorcios de pymes y emprendedores deberán cumplir lo establecido en la presente ley, así como en su respectivo reglamento.
+En el caso de los emprendedores deberán estar registrados en el Ministerio de Economía, Industria y Comercio (MEIC) como emprendedores; para estos beneficiarios se podrán utilizar modelos de capital semilla o cualquier instrumento financiero que se adecúe a las características del emprendedor o emprendedora, como medio de acceso a los recursos referidos en este capítulo.
+(Así reformado por el artículo 4° de la ley N° 9695 del 7 de junio del 2019, “Reforma para incentivar los modelos de capital semilla y capital de riesgo para emprendimientos”)
