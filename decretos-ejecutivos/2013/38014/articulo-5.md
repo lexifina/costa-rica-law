@@ -1,2 +1,1 @@
-Artículo 5°—Corresponde a la CONAMAR (*) la coordinación con las Autoridades de la Administración Central y Descentralizada para el cumplimiento de las metas y estrategias contenidas en esta Política.
-(*) (Así modificada su denominación por el artículo 3° del decreto ejecutivo N° 40473 del 23 de mayo del 2017. Anteriormente se indicaba: "Comisión Nacional del Mar".)
+Artículo 5°—(Derogado por el artículo 16 del decreto ejecutivo N° 41775 del 8 de junio del 2019, “Creación del mecanismo de gobernanza de los espacios marinos sometidos a la Jurisdicción del Estado Costarricense”)
