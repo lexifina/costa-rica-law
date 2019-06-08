@@ -1,3 +1,0 @@
-Artículo 4º- El CONAMAR se reunirá obligatoriamente cada dos meses y extraordinariamente cuando se considere necesario. Será convocada por el Ministro de la Presidencia o quien lo represente. Contará con un Secretario Ejecutivo que será nombrado por el CONAMAR en el plazo de tres meses a partir de la publicación del presente decreto, que tendrá derecho a asistir a las sesiones del Consejo con voz pero sin voto. Para su funcionamiento se regirá por lo dispuesto en la Ley General de Administración Pública en lo que respecta a órganos colegiados.
-Podrán además asistir a las sesiones del Consejo, con derecho a voz pero sin voto quienes determinen el CONAMAR.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 40473 del 23 de mayo del 2017)
