@@ -1,1 +1,0 @@
-Artículo 6°- Principios Generales: El Consejo constituye el órgano responsable de la implantación y seguimiento del Portal de Empleo y Formación, velando por su aplicación, a efecto de incidir en la información sobre la dinámica del mercado de trabajo y la formación profesional.
