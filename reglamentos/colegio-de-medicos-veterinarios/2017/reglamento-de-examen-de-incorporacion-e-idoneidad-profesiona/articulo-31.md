@@ -1,0 +1,2 @@
+Artículo 31.—Funciones del Tribunal: Conocer y resolver, de forma fundamentada y razonada, los recursos de apelación que se presenten por parte de los evaluados. Para ello podrá, cuando lo considere oportuno, solicitar el criterio del constructor del ítem objetado o bien podrá pedir criterio experto a otros profesionales en Medicina Veterinaria.
+(Así adicionado en sesión N° 45 del 10 de junio de 2019)

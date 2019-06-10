@@ -14,3 +14,4 @@ Reglamento de examen de incorporación e idoneidad profesional del Colegio de M�
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-03-03 | la propia norma |
+| 2 | 2019-06-10 | Reglamento 45 (2019-06-10) |

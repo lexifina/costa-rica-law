@@ -1,4 +1,6 @@
 CAPÍTULO V
 RECURSOS
-Artículo 24. De los recursos:
-En caso de disconformidad con el resultado del examen podrá el interesado interponer los recursos ordinarios de revocatoria y apelación, sin excluir el recurso extraordinario de revisión.
+Artículo 24.—De los recursos: El interesado podrá interponer, contra el resultado del examen, los recursos de revisión y de apelación. El recurso de revisión deberá interponerse dentro de los tres días hábiles posteriores a la comunicación del resultado. Se presentará de forma digital a la dirección asignada por el Departamento de Asuntos Académicos, debidamente razonado y fundamentado.
+El Departamento de Asuntos Académicos resolverá el Recurso de Revisión y en caso de necesitar revisión de una o más preguntas se le dará una cita en el Colegio de Médicos Veterinarios donde tendrá acceso a la copia de las respuestas y las preguntas que ha solicitado revisar. Al finalizar la revisión deberá, en caso necesario, interponer el Recurso de Apelación razonado y fundamentado inmediatamente. El Departamento de Asuntos Académicos recibirá el documento y lo trasladará al Tribunal de Apelaciones.
+Todo Recurso de Apelación deberá presentarse en original y dos copias, contra la presentación se le devolverá al recurrente una copia con indicación del día, hora y nombre del funcionario del Departamento de Asuntos Académicos que lo recibe. Los recursos se recibirán el día de la cita en el horario de labores del Colegio y no se admitirán escritos o gestiones entregadas fuera de horario.
+(Así reformado en sesión N° 45 del 10 de junio de 2019)

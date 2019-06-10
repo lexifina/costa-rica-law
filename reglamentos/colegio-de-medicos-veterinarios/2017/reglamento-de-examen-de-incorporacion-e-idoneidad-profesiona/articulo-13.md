@@ -1,2 +1,2 @@
-Artículo 13. Solicitud de Examen:
-Podrán presentar el examen aquellos solicitantes que hubiesen aprobado el Seminario de Ética y cancelado los costos correspondientes, con una antelación no menor a diez días hábiles de realizarse la prueba.
+Artículo 13.—Solicitud de examen: Podrán presentar el examen aquellos solicitantes que hubiesen presentado los requisitos establecidos por el Departamento de Asuntos Académicos en el tiempo estipulado.
+(Así reformado en sesión N° 45 del 10 de junio de 2019)

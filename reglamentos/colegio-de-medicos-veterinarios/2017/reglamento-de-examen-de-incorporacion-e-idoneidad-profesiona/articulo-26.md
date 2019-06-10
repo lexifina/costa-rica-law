@@ -1,2 +1,2 @@
-Artículo 26. Del recurso de apelación:
-Contra lo resuelto por la Comisión de Incorporación e Idoneidad Profesional cabe Recurso de Apelación, ante la Junta Directiva, el cual se deberá interponer en un plazo no mayor a tres días hábiles a partir del día siguiente de la notificación de lo resuelto por la Comisión. Presentado el recurso la Junta Directiva cuenta con días hábiles para resolver. Contra lo resuelto por la Junta Directiva no cabe recurso en sede administrativa.
+Artículo 26.—Del recurso de apelación: Una vez recibido, por parte del Tribunal de Apelaciones, el Recurso de Apelación éste procederá a resolverlo dentro del plazo de ocho días hábiles, la resolución deberá ser debidamente fundamentada y razonada. Contra lo resuelto por el Tribunal de Apelaciones no cabrá ningún recurso administrativo.
+(Así reformado en sesión N° 45 del 10 de junio de 2019)

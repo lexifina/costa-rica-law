@@ -1,0 +1,2 @@
+Artículo 28.—Conformación del Tribunal: El Tribunal de Apelaciones será nombrado por la Junta Directiva. Los candidatos para ocupar el puesto podrán ser presentados por recomendación de la Comisión de Incorporación e Idoneidad Profesional y el Departamento de Asuntos Académicos del Colegio, no obstante, la Junta Directiva podrá considerar otros nombres para integrarlo.
+(Así adicionado en sesión N° 45 del 10 de junio de 2019)
