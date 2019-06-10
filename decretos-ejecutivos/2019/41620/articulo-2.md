@@ -1,1 +1,0 @@
-Artículo 2°-Deróguese el Decreto Ejecutivo número 41495-H del 10 de diciembre de 2018, publicado en el Alcance número 7 a La Gaceta número 7 del 1 O de enero de 2019, a partir de la vigencia del presente decreto.
