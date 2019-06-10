@@ -1,1 +1,0 @@
-Artículo 8º—Objetivo general: El Consejo Nacional de Intermediación de Empleo tendrá como objetivo general, dictar políticas y lineamientos generales para el funcionamiento del Sistema Nacional de Intermediación Orientación e Información de Empleo.

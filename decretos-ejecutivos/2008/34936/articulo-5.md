@@ -1,3 +1,0 @@
-CAPÍTULO II
-Consejo nacional de intermediación de empleo
-Artículo 5º—Creación del consejo: Créase el Consejo Nacional de Intermediación de Empleo, como órgano de política superior; el cual estará constituido por el Ministro(a) de Trabajo y Seguridad Social o por quien éste designe, quien lo presidirá; el Ministro(a) de Educación Pública o por quien éste designe; el Presidente(a) Ejecutivo(a) del Instituto Nacional de Aprendizaje o su suplente; un representante del Consejo Nacional de Rectores; un representante de los patronos y uno de los trabajadores ambos miembros del Consejo Superior de Trabajo. Es potestad de este Consejo decidir sobre la incorporación de representantes de otras instituciones u agentes económicos y sociales.

@@ -1,1 +1,0 @@
-Artículo 11.—Sesiones: El Consejo Nacional de Intermediación de Empleo celebrará una sesión ordinaria por mes y sesionará extraordinariamente cuando así lo acuerden sus miembros o lo convoque el Ministro de Trabajo y Seguridad Social o quien lo represente.

@@ -1,1 +1,0 @@
-Artículo 19.—Convocatoria a sesiones extraordinarias: Las convocatorias a las sesiones extraordinarias se comunicarán por escrito por lo menos veinticuatro horas antes de la realización de la sesión. La convocatoria a sesión extraordinaria contendrá el orden del día.
