@@ -1,0 +1,2 @@
+Artículo 7º—Acuerdo de viajes al exterior. Para que un funcionario pueda recibir viáticos por concepto de viaje al exterior debe existir un acuerdo por parte del Secretario Ejecutivo y para el caso del Secretario Ejecutivo se deberá contar con acuerdo emitido por el Consejo Directivo, el cual indique nombre del funcionario, país a visitar, período de viaje, objetivo del viaje, monto de adelanto
+y cualquier otro gasto autorizado.

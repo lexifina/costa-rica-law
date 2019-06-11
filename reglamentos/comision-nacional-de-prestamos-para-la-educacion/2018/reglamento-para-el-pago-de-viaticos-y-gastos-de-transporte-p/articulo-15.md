@@ -1,0 +1,1 @@
+Artículo 15.- Incumplimiento y trámite disciplinario. Los funcionarios que incumplan lo estipulado en el presente Reglamento, serán acreedores de las sanciones correspondientes según lo establecido en el Reglamento Autónomo de Trabajo de CONAPE.

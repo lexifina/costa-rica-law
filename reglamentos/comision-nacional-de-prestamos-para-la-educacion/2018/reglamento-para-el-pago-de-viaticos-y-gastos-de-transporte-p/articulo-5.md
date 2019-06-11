@@ -1,0 +1,4 @@
+Artículo 5º—Uso de taxi. Solo será autorizado el uso de taxi para el traslado de funcionarios en el ejercicio de sus funciones, en las siguientes condiciones:
+a) Cuando la gira, reunión o actividad laboral encomendada, inicie a las 05:00 horas o antes y el funcionario requiera el servicio de taxi, para desplazarse de su domicilio a ruta del vehículo institucional para la gira.
+b) Cuando la gira, reunión o actividad laboral encomendada, concluya después de las 17:00 horas el funcionario requiera el servicio de taxi para trasladarse de CONAPE o del lugar más conveniente de acuerdo con la ruta del vehículo institucional hasta la terminal de autobuses de transporte público más cercana, al lugar de la ruta del autobús que le sea más conveniente o a su domicilio.
+c) Cuando dentro de la jornada laboral ordinaria se requiera trasladar a una reunión o actividad institucional, con la autorización de la Jefatura inmediata del funcionario solicitante.

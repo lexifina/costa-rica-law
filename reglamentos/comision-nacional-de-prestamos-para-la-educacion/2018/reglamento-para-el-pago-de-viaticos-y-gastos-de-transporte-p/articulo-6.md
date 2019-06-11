@@ -1,0 +1,1 @@
+Artículo 6º—Mecanismo de pago. Los adelantos de viáticos y gastos de transporte, se realizará mediante formulario aprobado por la contraloría General de la República y se ejecutarán por medio de cheque o transferencia y en caso de pago de transporte público o taxi, se podrán ejecutar por medio de caja chica.
