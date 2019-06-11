@@ -14,3 +14,4 @@ Actualización de tramos de renta para el impuesto al salario período fiscal 20
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-10-01 | la propia norma |
+| 2 | 2019-06-11 | Decreto Ejecutivo 41799 (2019-06-11) |

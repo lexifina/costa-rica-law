@@ -17,6 +17,9 @@ ACTUALIZACIÓN DE TRAMOS DE RENTA
 PARA EL IMPUESTO AL SALARIO,
 PERÍODO FISCAL 2019.
 Artículo 1º— Modifícase los tramos de las rentas establecidas en los apartes a), b) y c) del artículo 33 de la Ley del Impuesto sobre la Renta número 7092 de fecha 21 de abril de 1988 y sus reformas, denominada “Ley del impuesto sobre la Renta”, publicada en La Gaceta número 96 del 19 de mayo de 1988, mediante un ajuste del dos coma veinticuatro por ciento (2,24%), según se detalla a continuación:
-a) Las rentas de hasta ¢ 817.000,00 mensuales no estarán sujetas al impuesto.
-b) Sobre el exceso de ¢ 817.000,00 mensuales y hasta ¢1.226.000,00 mensuales, se pagará el diez por ciento (10%).
-c) Sobre el exceso de ¢1.226.000,00 mensuales se pagará el quince por ciento (15%).
+a) Las rentas de hasta ¢ 817.000,00 (ochocientos diecisiete mil colones) mensuales no estarán sujetas al impuesto.
+b) Sobre el exceso de ¢ 817.000,00 (ochocientos diecisiete mil colones) mensuales y hasta ¢1.199.000,00 (un millón ciento noventa y nueve mil colones) mensuales, se pagará el diez por ciento (10%).
+c) Sobre el exceso de ¢1.199.000,00 (un millón ciento noventa y nueve mil colones) mensuales y hasta ¢2.103.000,00 (dos millones ciento tres mil colones) mensuales, se pagará el quince por ciento (15%).
+d) Sobre el exceso de ¢2.103.000,00 (dos millones ciento tres mil colones) mensuales, y hasta ¢4.205.000,00 (cuatro millones doscientos cinco mil colones) mensuales, sepagará el veinte por ciento (20%).
+e) Sobre el exceso de ¢4.205.000,00 (cuatro millones doscientos cinco mil colones) mensuales, se pagará el veinticinco por ciento (25%).”)
+(Así reformado por el artículo 1° del decreto ejecutivo N° 41799 del 11 de junio de 2019. De conformidad con lo indicado en el artículo 2° de dicha norma la misma rige a partir del primero de julio de dos mil nueve, por un período de tres meses, comprendidos del primero de julio de dos mil diecinueve al treinta de setiembre de dos mil diecinueve. )
