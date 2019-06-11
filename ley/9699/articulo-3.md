@@ -1,0 +1,5 @@
+ARTÍCULO 3- Vicisitudes de la persona jurídica
+Cuando la persona jurídica presuntamente responsable por las conductas descritas en el artículo 1 de la presente ley, se absorba, transforme, adquiera, fusione o escinda, luego de ocurridos los hechos generadores de responsabilidad, se seguirán las siguientes reglas:
+a) Si se extinguiera por efecto de una absorción, transformación, adquisición o fusión, la persona jurídica absorbente o nueva será objeto del procedimiento de responsabilidad que regula la presente ley y se hará acreedora de las consecuencias que se deriven de él.
+b) Si se escinde, todas las personas jurídicas que hayan participado en el proceso de escisión, bien como escindentes o beneficiarias, estarán sujetas al proceso y a las sanciones de la presente ley.
+En caso de que ocurra una disolución aparente, cuando la persona jurídica continúa su actividad económica a través de otra nueva pero mantiene la identidad sustancial de sus clientes, proveedores, empleados, o de la parte más relevante de todos ellos, continúa teniendo la responsabilidad penal de la persona jurídica disuelta.
