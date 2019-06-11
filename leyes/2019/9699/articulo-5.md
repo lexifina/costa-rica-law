@@ -1,0 +1,5 @@
+ARTÍCULO 5- Independencia de la responsabilidad penal de las personas jurídicas
+La responsabilidad penal de las personas jurídicas será independiente de la responsabilidad penal de las personas físicas y subsistirá aun cuando, concurriendo los requisitos previstos en esta legislación, se presente alguna de las siguientes situaciones:
+a) La persona física responsable no haya sido individualizada o no haya sido posible dirigir el proceso en contra del posible responsable individual.
+b) Cuando en el proceso penal seguido en contra de la persona física aludida se decrete el sobreseimiento definitivo o provisional conforme a la legislación procesal penal, o alguna causa de extinción de la acción penal para la persona física.
+c) Cuando no haya sido posible establecer la participación del responsable o los responsables individuales, siempre y cuando en el proceso respectivo se demostrara fehacientemente que el delito se cometió dentro del ámbito de las funciones y atribuciones propias de las personas señaladas en el inciso a) del artículo 4 de la presente ley.

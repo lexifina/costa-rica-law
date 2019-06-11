@@ -1,0 +1,5 @@
+ARTÍCULO 35- Adición del inciso e) al artículo 13 y reforma del artículo 27 de la Ley N.° 218, Ley de Asociaciones Se adiciona el inciso e) al artículo 13 y se reforma el artículo 27 de la Ley N.° 218, Ley de Asociaciones, de 8 de agosto de 1939. Los textos son los siguientes:
+Artículo 13-
+[…]
+e) Por aplicación de la sanción de disolución de la persona jurídica prevista en el artículo 11 de la ley Responsabilidad de las Personas Jurídicas sobre Cohechos Domésticos, Soborno Transnacional y otros Delitos.
+Artículo 27- La autoridad judicial será la única competente para decretar, antes de la expiración del término natural, la disolución de las asociaciones constituidas con arreglo a esta ley, cuando se lo pidan los dos tercios o más de los asociados o cuando concurran las circunstancias que indican los incisos a), c), d) y e) del artículo 13. Decretada la disolución se procederá en la forma que indica el artículo 14 y el Tribunal lo comunicará al Registro de Asociaciones, para la inscripción de esa circunstancia.

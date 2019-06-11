@@ -1,0 +1,10 @@
+ARTÍCULO 2- Alcances
+Las disposiciones de la presente ley serán aplicables a:
+a) Las personas jurídicas de derecho privado costarricense o extranjero, domiciliado, residente o con operaciones en el país.
+b) Las empresas públicas estatales y no estatales y las instituciones autónomas, que estén vinculadas con relaciones comerciales internacionales y cometan el delito de soborno transnacional, así como los delitos de receptación, legalización o encubrimiento de bienes, producto del soborno transnacional.
+Para efectos de la presente ley, la persona jurídica de derecho privado costarricense es aquella constituida y domiciliada en el país, con independencia del capital de origen.
+La persona jurídica extranjera se presume domiciliada en Costa Rica si tuviera en el país agencia, filial o sucursal, o realizara algún tipo de contrato o negocio en el país, pero solo respecto de los actos o contratos celebrados por ellas.
+La presente ley también será aplicable a las personas jurídicas o de hecho que operen mediante la figura del fideicomiso, sociedad, corporación o empresa de cualquier clase, fundaciones y otras asociaciones de carácter no mercantil, que tengan capacidad de actuar y asumir la responsabilidad jurídica de sus actos.
+Las empresas matrices serán responsables cuando una de sus subordinadas, o una empresa bajo su control directo o indirecto, incurra en alguna de las conductas enunciadas en el artículo anterior, cuando obtengan un provecho directo o indirecto o se actúe en su nombre o representación.
+También serán responsables, conforme a la presente ley, las personas jurídicas que cometan las conductas citadas en beneficio, directo o indirecto, de otra persona jurídica o actúen como sus intermediarios.
+Las personas jurídicas descritas en los párrafos anteriores tienen el deber legal de evitar la comisión de los delitos descritos en el artículo 1 de esta Ley. En caso de no hacerlo, serán responsables penalmente según lo establecido en el artículo 18 de la Ley N.° 4573, Código Penal, de 4 de mayo de 1970.

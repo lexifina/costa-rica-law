@@ -1,0 +1,2 @@
+ARTÍCULO 31- Deber de cooperación internacional
+El Estado costarricense cooperará con otros Estados en lo relativo a las investigaciones y los procedimientos cuyo objeto sea concordante con los fines que persigue la presente ley, cualquiera que sea su denominación. Dicha cooperación se coordinará por medio de la Fiscalía General de la República, la cual dispondrá la oficina de su competencia como Autoridad Central.

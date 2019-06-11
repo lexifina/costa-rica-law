@@ -1,0 +1,2 @@
+ARTÍCULO 9- Empresas públicas estatales y no estatales, y las instituciones autónomas
+El Sistema de Control Interno de las empresas públicas estatales y no estatales, y las instituciones autónomas públicas, regulado en la Ley N.° 8292, Ley General de Control Interno, de 27 de agosto de 2002, deberá incorporar los requerimientos mínimos del modelo de organización, prevención de delitos, gestión y control que regula el artículo 8 de la presente ley.

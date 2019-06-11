@@ -1,0 +1,7 @@
+ARTÍCULO 23- Autorización judicial
+Con el propósito de asegurar la efectividad de la posible responsabilidad penal a imponer o ya impuesta, iniciado el proceso penal en contra de una persona jurídica, y hasta la sentencia penal en firme o el cumplimiento de la pena impuesta será necesaria la autorización de la autoridad jurisdiccional, según sea la etapa en la que se encuentre el proceso, para la transformación, fusión, absorción, adquisición o escisión de aquella.
+La persona jurídica deberá solicitar la respectiva autorización ante la autoridad jurisdiccional, la cual dará audiencia por diez días hábiles a todas las partes.
+Durante ese plazo, el Ministerio Público y el querellante o actor civil, podrán solicitar la medida cautelar prevista en el artículo 24 de la presente ley, o bien, podrán requerir una garantía de caución de conformidad con lo dispuesto en el artículo 250 de la Ley N.° 7594, Código Procesal Penal, de 10 de abril de 1996.
+En los diez días hábiles posteriores, la autoridad jurisdiccional deberá resolver lo que corresponda.
+Podrá concederse esa autorización cuando, a pesar de haberse solicitado la inmovilización, la persona jurídica dé garantías suficientes de este cumplimiento o de la sanción eventualmente imponible.
+Para adoptar esta decisión, la autoridad jurisdiccional deberá atender a la eventual afectación en la continuidad de la actividad de la persona jurídica o a la afectación de un servicio o interés público.
