@@ -1,0 +1,1 @@
+Artículo 20.- Es responsabilidad de la Unidad Coordinadora informar al socio sobre los procedimientos que se estén realizando y el tiempo programado para su ejecución; así como comunicarle si la propuesta procede o no, de acuerdo con el análisis técnico realizado por dicha Unidad.

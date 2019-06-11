@@ -1,0 +1,1 @@
+Artículo 25.- Corresponderá a la Subgerencia/Dirección de Mercadeo, realizar al menos una presentación anual a la Junta Directiva, con el informe final consolidado de las campañas integrales y apoyos cooperativos, según lo establecido en el artículo 4 de este Reglamento, en relación con el Plan General de Campañas Integrales y Apoyos Cooperativos.

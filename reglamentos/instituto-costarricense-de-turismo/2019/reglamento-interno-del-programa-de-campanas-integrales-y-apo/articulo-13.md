@@ -1,0 +1,1 @@
+Artículo 13.- Será posible realizar campañas integrales y apoyos cooperativos en conjunto con otros destinos turísticos. La distribución de los aportes económicos entre los participantes deberá ser equitativa.

@@ -1,0 +1,2 @@
+Artículo 24.- Corresponderá a la Unidad Coordinadora, una vez concluido el apoyo cooperativo, evaluar el informe remitido por el socio para verificar el cumplimiento de los objetivos originalmente establecidos en el convenio.
+Este informe final deberá presentarse a la Gerencia General a más tardar dos meses después de haber recibido de conformidad el informe por parte del Socio y una vez finalizado el período establecido en el convenio.

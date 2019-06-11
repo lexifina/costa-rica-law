@@ -1,0 +1,1 @@
+Artículo 12.- El socio, una vez aprobada la campaña integral o apoyo cooperativo y, de previo a su ejecución, deberá presentar a la Unidad Coordinadora el diseño final de las acciones promocionales para su aprobación, las cuales deben incluir el logotipo que el ICT defina para la promoción.

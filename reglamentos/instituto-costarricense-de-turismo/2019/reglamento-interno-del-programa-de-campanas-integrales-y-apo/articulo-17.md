@@ -1,0 +1,1 @@
+Artículo 17.- La Gerencia General suscribirá el convenio entre el ICT y el Socio, sea una campaña integral o un apoyo cooperativo; en dicho documento se incluirán todos los detalles para la ejecución efectiva, incluyendo compromisos y derechos, así como el plazo convenido entre las partes.”.

@@ -1,0 +1,3 @@
+Artículo 22.- Tanto para las campañas integrales como para los apoyos cooperativos, el Socio deberá presentar un informe final con al menos el detalle de los resultados de las acciones ejecutadas, la movilización final de pasajeros y el comportamiento del mercado durante el período de la ejecución de las acciones convenidas, de acuerdo con los siguientes plazos:
+a) Campañas integrales: el Socio deberá presentar el informe final a más tardar tres meses después de concluido el plazo estipulado en el convenio cooperativo.
+b) Apoyos cooperativos: el Socio deberá presentar el informe final a más tardar dos meses después de concluido el plazo estipulado en el convenio cooperativo.
