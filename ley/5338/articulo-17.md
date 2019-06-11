@@ -1,10 +1,4 @@
-Artículo 17.- Sólo el Juez Civil respectivo, a instancia de la Junta
-Administrativa, o de la Contraloría General de la República, podrá
-disponer la disolución de una fundación, cuando haya cumplido los
-propósitos para los que fue creada o por motivo de imposibilidad absoluta
-en la ejecución de sus finalidades.
-En caso de acordarse la disolución, el Juez ordenará que los bienes
-pasen a otra fundación, o en su defecto a una institución pública
-similar, si el constituyente de la fundación no les hubiere dado otro
-destino en ese caso, y firmará los documentos necesarios para hacer los
-traspasos de bienes.
+Artículo 17- El juez civil respectivo, a instancia de la Junta Administrativa o de la Contraloría General de la República, podrá disponer la disolución de una fundación, cuando haya cumplido los propósitos para los que fue creada o por motivo de imposibilidad absoluta en la ejecución de sus finalidades.
+Igualmente, podrá disponerse la disolución de una fundación por aplicación de la pena de disolución de la persona jurídica, de conformidad con el artículo 11 de la ley Responsabilidad de las Personas Jurídicas sobre Cohechos Domésticos, Soborno Transnacional y otros Delitos.
+En caso de acordarse la disolución, el juez ordenará que los bienes pasen a otra fundación o, en su defecto, a una institución pública similar, si el constituyente de la fundación no les hubiera dado otro destino en ese caso, y firmará los documentos necesarios para hacer los traspasos de bienes.
+(Así reformado por el artículo 36 de la ley sobre la Responsabilidad de las personas jurídicas sobre cohechos domésticos, soborno transnacional y otros delitos, N° 9699 del 10 de junio del 2019)
