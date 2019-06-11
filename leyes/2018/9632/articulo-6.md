@@ -4,3 +4,4 @@ Artículo 6°: Apruébanse los siguientes Egresos Ordinarios y Extraordinarios d
 (Modificado por el artículo 1° del decreto ejecutivo N° 41585 del 19 de febrero del 2019)
 (Modificado por el artículo 1° del decreto ejecutivo N° 41651 del 4 de abril del 2019)
 (Modificado por el artículo 1° del decreto ejecutivo N° 41730 del 7 de mayo de 2019)
+(Modificado por el artículo 2° del decreto ejecutivo N° 41740 del 20 de mayo de 2019)
