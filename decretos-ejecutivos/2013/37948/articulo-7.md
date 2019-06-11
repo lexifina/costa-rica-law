@@ -1,1 +1,0 @@
-Artículo 7°—El Premio Nacional por la Igualdad y Equidad de Género Ángela Acuña Braun en investigación social, se otorgará a personas físicas o jurídicas que hayan publicado alguna investigación con enfoque de género en el año calendario inmediato anterior al cierre de la recepción de las solicitudes.

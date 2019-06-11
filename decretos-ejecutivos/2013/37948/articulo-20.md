@@ -1,1 +1,0 @@
-Artículo 20.—La convocatoria abrirá el primer día laborable del mes de marzo y cerrará el último día laborable del mes de junio. El Jurado Calificador tendrá tres meses a partir del cierre de la convocatoria para deliberar.

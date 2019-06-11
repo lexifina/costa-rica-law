@@ -1,1 +1,0 @@
-Artículo 19.—La designación de la persona ganadora se hará mediante votación debidamente argumentada y por mayoría simple. Asimismo, si a juicio del Jurado Calificador ninguno de los materiales presentados reúne los méritos necesarios para ser galardonados se podrá declarar desierto.

@@ -1,1 +1,0 @@
-Artículo 26.—El INAMU anunciará a través de una carta a cada una de las personas, los medios de comunicación, las entidades, las organizaciones o los institutos, el resultado del Premio Nacional por la Igualdad y Equidad de Género Ángela Acuña Braun.

@@ -1,1 +1,0 @@
-Artículo 13.—En caso de que en este certamen participen personas parientes por consanguinidad o afinidad hasta el tercer grado de alguna de las personas representantes del Jurado Calificador, ésta debe ser sustituida.
