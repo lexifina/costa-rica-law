@@ -1,7 +1,8 @@
-Corrupción agravada.
-Artículo 349.-Si los hechos a que se refieren los dos artículos anteriores tuvieren como fin el otorgamiento de puestos públicos, jubilaciones, pensiones, o la celebración de contratos en los cuales esté interesada la administración a la que pertenece el funcionario, la pena de prisión será:
-1) En el caso del artículo 338(*), de uno a cinco años;
-2) En el caso del artículo 339(*), de tres a diez años.
+Corrupción agravada
+Artículo 349- Los extremos inferior y superior de las penas establecidas en los artículos 347 y 348 se elevarán en un tercio cuando en los hechos a los que se refieren estos dos artículos concurriera alguna de las siguientes circunstancias agravantes:
+1) Tales hechos tengan como fin el otorgamiento de puestos públicos, jubilaciones, pensiones, la fijación o el cobro de tarifas o precios públicos, el cobro de tributos o contribuciones a la seguridad social o la celebración de contratos o concesiones en los que esté interesada la Administración Pública.
+2) Como consecuencia de la conducta del autor se ocasione un perjuicio patrimonial grave a la Hacienda Pública, se deteriore la prestación de los servicios públicos o se produzca un daño a las personas usuarias de estos servicios.
 (*) (Así corrida la numeración de estos artículos por la indicada ley No.7732, la cual los traspasó del 338 al 340, y del 339 al 341, respectivamente. Posteriormente por el artículo 3° de la ley “Reforma de la Sección VIII, Delitos Informáticos y Conexos, del Título VII del Código Penal"; N° 9048 del 10 de julio de 2012, se modificó la numeración siendo ahora el numeral 340 el artículo 347 y el numeral 341 el 348)
 (Así corrida su numeración por el inciso a) del artículo 185, de la “Ley Reguladora del Mercado de Valores No.7732 de 17 de diciembre de 1997, que lo traspasó del antiguo artículo 340 al 342)
 (Así corrida su numeración por el artículo 3° de la ley “Reforma de la Sección VIII, Delitos Informáticos y Conexos, del Título VII del Código Penal", N° 9048 del 10 de julio de 2012, que lo traspaso del antiguo artículo 342 al 349)
+(Así reformado por el artículo 38 de la ley sobre la Responsabilidad de las personas jurídicas sobre cohechos domésticos, soborno transnacional y otros delitos, N° 9699 del 10 de junio del 2019)
