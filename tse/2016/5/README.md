@@ -16,3 +16,4 @@ Reglamento de la Sección Especializada del Tribunal Supremo de Elecciones que t
 | 1 | 2016-06-03 | la propia norma |
 | 2 | 2017-01-26 | Decreto TSE 1 (2017-01-26) |
 | 3 | 2018-06-29 | Decreto TSE 10 (2018-06-29) |
+| 4 | 2019-06-12 | Decreto TSE 12 (2019-06-12) |
