@@ -1,0 +1,1 @@
+Artículo 101. Los informes se referirán a la ejecución del presupuesto, del programa o proyecto, así como al logro de los objetivos planteados en el respectivo plan de trabajo, con la información básica del formato que se les suministrará y las bitácoras que sea presentadas por el gerente comunal e institucional del proyecto, debidamente firmadas.

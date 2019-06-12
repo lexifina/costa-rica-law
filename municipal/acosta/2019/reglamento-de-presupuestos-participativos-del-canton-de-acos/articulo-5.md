@@ -1,0 +1,6 @@
+CARACTERISTICAS:
+Artículo 5. Las características del proceso de planificación y presupuestación pública participativa son:
+a. Participativo: porque reconociendo la multiplicidad de actores y roles de la sociedad debidamente organizada, permite la participación de quienes no ostentan el mandato popular, bajo un marco institucional que regula el proceso de toma de decisiones y permite la ejecución conjunta de las acciones destinadas a alcanzar los objetivos considerados en el Presupuesto y en el Plan de Desarrollo Cantonal.
+b. Inclusivo: porque engloba y comprende todas las opiniones de quienes desean participar, reconociendo desigualdades y promoviendo un desarrollo equitativo de la comunidad y de los individuos que la conforman.
+c. Deliberativo: porque posibilita que los ciudadanos puedan mediante un entorno institucional propicio, desarrollar o modificar sus preferencias previas, mediante una discusión abierta y mutuamente transformadora.
+d. Concertado: porque permite a través de la interacción de múltiples actores sociales con diversidad de enfoques, identificar los intereses, problemas, soluciones y oportunidades de desarrollo de un determinado territorio y/o grupo social; y en consecuencia determinar acuerdos y definir acciones destinadas a resolver dichos problemas y potenciar los esfuerzos.

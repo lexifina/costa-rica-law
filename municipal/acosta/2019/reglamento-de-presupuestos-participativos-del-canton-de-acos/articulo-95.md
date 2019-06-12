@@ -1,0 +1,1 @@
+Artículo 95. Cuando se hagan aportes en especie por parte de la Municipalidad u otra institución para la ejecución de un proyecto, el gerente institucional deberá registrar en la bitácora el motivo y razonamiento técnico para que ello se presentará.

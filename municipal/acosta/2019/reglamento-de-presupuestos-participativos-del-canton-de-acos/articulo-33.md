@@ -1,0 +1,1 @@
+Artículo 33. Son funciones del presidente del Concejo de Distrito: presidir, abrir, suspender, recibir las votaciones, anunciar si hay aprobación o rechazo del asunto, conceder o quitar la palabra, vigilar el orden de la sesión y cerrar la misma.

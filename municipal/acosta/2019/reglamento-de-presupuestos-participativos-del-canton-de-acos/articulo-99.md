@@ -1,0 +1,1 @@
+Artículo 99. El gerente institucional del proyecto debe elaborar y presentar informes trimestrales, semestrales o de conclusión de proyectos consolidados, ante la instancia que el Alcalde Municipal defina, emitiendo recomendaciones u observaciones cuando así lo estime conveniente.

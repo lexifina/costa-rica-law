@@ -1,0 +1,1 @@
+Artículo 89. Para iniciar el giro de los recursos los gerentes institucionales deberán suministrar las especificaciones técnicas de los proyectos, las cuales deben estar en concordancia con lo indicado en los perfiles de proyectos. Para ello la administración facilitará un cartel tipo.

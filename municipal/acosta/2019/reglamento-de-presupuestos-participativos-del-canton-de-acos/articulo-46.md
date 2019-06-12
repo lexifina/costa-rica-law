@@ -1,0 +1,1 @@
+Artículo 46. Tendrán derecho a voto todos los miembros activos e inscritos en la Agenda. Cuando se trate de una organización esta deberá acreditar de previo un representante quién tendrá voz y voto. Los regidores municipales podrán participar con voz y con voto en estas mesas temáticas.

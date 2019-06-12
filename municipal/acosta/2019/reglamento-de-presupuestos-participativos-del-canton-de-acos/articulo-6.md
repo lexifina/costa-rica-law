@@ -1,0 +1,3 @@
+CAPITULO SEGUNDO
+DE LA ASIGNACIÓN DE LOS RECURSOS MUNICIPALES Y DE LAS MODALIDADES Y DISTRIBUCION DE LOS PRESUPUESTOS PARTICIPATIVOS
+Artículo 6. Sobre el monto: El Alcalde Municipal definirá cada año en el mes de febrero para el presupuesto extraordinario y el mes de mayo para el presupuesto ordinario, el monto de los recursos ordinarios u extraordinarios que se destinarán para ejecutar presupuestos participativos. Los proyectos definidos en las diversas mesas de concertación pueden ser ejecutados por la administración de la Municipalidad o por contrato con entidades idóneas para administrar recursos públic os, en cuyo caso se respetará lo establecido en la circular de la Contraloría General de La República N°14299, 14300 y 14301, su adenda y reformas.

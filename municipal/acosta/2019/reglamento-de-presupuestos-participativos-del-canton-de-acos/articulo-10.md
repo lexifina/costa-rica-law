@@ -1,0 +1,1 @@
+Artículo 10. Estas u otras organizaciones, deberán contar al momento de presentar sus proyectos en las diversas mesas de concertación, con el otorgamiento de idoneidad emitido por la Municipalidad de acuerdo a lo que se estipule en el Reglamento vigente en el cantón, para ello deberán presentar certificación o resolución que compruebe dicha condición.

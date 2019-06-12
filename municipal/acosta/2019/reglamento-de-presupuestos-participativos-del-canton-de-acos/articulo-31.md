@@ -1,0 +1,3 @@
+CAPITULO SETIMO
+DEFINICIÓN DE LOS PROYECTOS PRIORITARIOS De la Sesión del Concejo de Distrito Ampliado
+Artículo 31. En la primera quincena del mes de marzo y mayo de cada año, en sesión del Concejo de Distrito ampliada se definirán en forma inclusiva, deliberativa, participativa y concertada con las organizaciones base los proyectos prioritarios a ejecutar con los recursos del Fondo Distrital; sea para presupuesto extraordinario en marzo, u ordinario del siguiente año, en mayo. En esta sesión únicamente se conocerán los proyectos que fueron presentados en la fecha señalada por el Concejo de Distrito y que cumplieron con todos los requisitos previos.

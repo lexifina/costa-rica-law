@@ -1,0 +1,1 @@
+Artículo 69. Si el Concejo de Distrito o la Agenda Temática tienen interés en cambiar de destino los recursos asignados a un proyecto ya aprobado, este cambio deberá ser conocido y aprobado en Sesión de Concejo de Distrito Ampliado o Sesión de la Agenda Temática según sea el caso, para lo cual deberán presentarlo como moción en las sesiones del mes de marzo o mayo.

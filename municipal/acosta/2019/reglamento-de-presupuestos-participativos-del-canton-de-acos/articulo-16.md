@@ -1,0 +1,1 @@
+Artículo 16. Los actores comunales deben mantener actualizados los documentos referidos en el artículo 15 para poder participar de los procesos de presupuestación pública participativa. En tal sentido aquellos no inscritos o con documentos vencidos deben registrarse o aportar los documentos vencidos quince días antes de iniciar cualquier proceso de concertación.

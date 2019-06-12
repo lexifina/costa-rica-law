@@ -1,0 +1,1 @@
+Artículo 102. En caso de que se concluya el proyecto y quede un saldo en la cuenta de la entidad beneficiaria responsable, se deberá hacer la respectiva devolución del saldo a la Municipalidad, quien dispondrá de este según lo estime conveniente.

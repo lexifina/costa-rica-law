@@ -1,0 +1,1 @@
+Artículo 104. En la primera quincena del mes de marzo, en el informe de labores de la Alcaldía se consignará un informe sobre el avance en la ejecución de los proyectos concertados en las mesas de presupuestos participativos, indicando logros, justificación por incumplimientos y medidas correctivas. Esta información debe ser presentada por parte de la Alcaldía.

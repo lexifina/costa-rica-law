@@ -1,0 +1,1 @@
+Artículo 43. El quórum para la primera convocatoria de la sesión se conformará con mitad más uno de los miembros activos e inscritos en la Agenda, sino se contare con dicho quórum en esta primera convocatoria, se consignará en el acta que la sesión se efectúa, media hora después, en segunda convocatoria, en donde el quórum se establece con los miembros que estén presentes.

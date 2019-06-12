@@ -1,0 +1,1 @@
+Artículo 44. Esta sesión es presidida por el Coordinador (a) de la Agenda Temática quien tendrá potestades para presidir, abrir, suspender, recibir las votaciones, anunciar si hay aprobación o rechazo del asunto, conceder o quitar la palabra, vigilar el orden de la sesión y cerrar la misma.

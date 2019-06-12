@@ -1,0 +1,1 @@
+Artículo 63. En lo referente a resultados esperados o metas del proyecto se deberá indicar: Qué es lo que se desea alcanzar con el proyecto. Donde se ejecutará el proyecto. Cuáles son los productos terminados y no las actividades. Cuál es la unidad de medida bajo la que se verificará el éxito del proyecto. Y cuándo quiero lograr los resultados.

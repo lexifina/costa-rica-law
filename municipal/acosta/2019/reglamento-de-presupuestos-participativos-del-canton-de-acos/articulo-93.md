@@ -1,0 +1,1 @@
+Artículo 93. Los gerentes institucionales deberán asesorar a los gerentes comunales para que ellos velen por que se den y custodien correctamente las facturas y comprobantes que respalden los egresos efectuados.

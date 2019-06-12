@@ -1,0 +1,1 @@
+Artículo 21. Igualmente, el Alcalde Municipal deberá efectuar una rendición de cuentas sobre la gestión municipal y el cumplimiento de su programa de gobierno, ello en concordancia con lo establecido en el artículo 17 inciso g) del Código Municipal.
