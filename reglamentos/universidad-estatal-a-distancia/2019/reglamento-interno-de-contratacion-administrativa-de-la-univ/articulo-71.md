@@ -1,0 +1,1 @@
+Artículo 71—Recibidos los criterios del área técnica, la Oficina de Contratación y Suministros, contará con un plazo máximo de tres días hábiles siguientes a la recepción de la documentación para emitir su recomendación y elevarla al órgano competente.

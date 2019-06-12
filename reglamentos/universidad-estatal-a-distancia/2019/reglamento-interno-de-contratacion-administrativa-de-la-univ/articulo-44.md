@@ -1,0 +1,1 @@
+Artículo 44— Para la contratación de los bienes y servicios, prevista en los artículos 2 y 2 bis de la Ley de Contratación Administrativa y 139, 140, 142 y 143 de su reglamento, deberá seguirse el procedimiento indicado en el “Protocolo para realizar contrataciones directas con solicitud de permiso ante la Contraloría General de la República, para obras, bienes o servicios”.

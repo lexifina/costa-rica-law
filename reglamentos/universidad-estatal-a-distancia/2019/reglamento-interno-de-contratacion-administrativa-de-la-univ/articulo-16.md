@@ -1,0 +1,1 @@
+Artículo 16—De la relación con los proveedores. Durante el proceso de gestión de compras la relación con los potenciales oferentes de bienes, servicios u obras y los contratistas, corresponde exclusivamente a la Oficina de Contratación y Suministros.

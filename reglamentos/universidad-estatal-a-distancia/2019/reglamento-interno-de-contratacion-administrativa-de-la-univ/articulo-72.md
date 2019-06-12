@@ -1,0 +1,1 @@
+Artículo 72—La Administración deberá resolver el recurso en un plazo máximo de 15 días hábiles siguientes, al vencimiento del plazo conferido al recurrente para su contestación. Dentro de dicho plazo deberán contabilizarse los señalados en los artículos 63, 64 y 65 anteriores.

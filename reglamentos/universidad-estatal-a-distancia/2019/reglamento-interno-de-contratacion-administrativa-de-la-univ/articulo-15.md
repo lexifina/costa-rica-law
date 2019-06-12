@@ -1,0 +1,1 @@
+Artículo 15—Del sondeo de mercado. La Oficina de Contratación y Suministros solicitará la información que requiera mediante correo electrónico, según los términos que haya recibido de la Unidad Solicitante. El plazo que este otorgue para recibir la información tendrá estrecha relación con los cronogramas establecidos, según la urgencia que exista del bien o servicio.

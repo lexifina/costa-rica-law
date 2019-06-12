@@ -1,0 +1,1 @@
+Artículo 81—Una vez recibidos los descargos del contratista, los mismos serán remitidos al responsable general de la contratación para que se pronuncien con respecto a dichas pruebas, en un plazo de tres (3) días hábiles.

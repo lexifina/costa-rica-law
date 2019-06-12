@@ -1,0 +1,1 @@
+Artículo 35— En las licitaciones públicas la publicidad del concurso se hará por medio de la plataforma SICOP. Los trámites y plazos que ocupan este proceso estarán acordes con la legislación nacional.

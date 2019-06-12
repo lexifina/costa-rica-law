@@ -1,0 +1,2 @@
+Artículo 46—Para la contratación de arrendamientos de bienes inmuebles con o sin opción de compra, la Administración podrá utilizar el procedimiento de licitación pública, licitación abreviada o contratación directa según corresponda.
+El propietario del bien inmueble no deberá rendir garantía de cumplimiento y en lo concerniente al reajuste de la renta o precio se aplicará lo dispuesto en el artículo 67 de la Ley de Arrendamientos Urbanos y Suburbanos. La Administración no efectuará depósito alguno al propietario como señal de trato.

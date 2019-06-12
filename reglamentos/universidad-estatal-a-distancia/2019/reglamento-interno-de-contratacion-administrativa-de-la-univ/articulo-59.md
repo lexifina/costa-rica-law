@@ -1,0 +1,1 @@
+Artículo 59—En el caso de prórrogas a las garantías, una vez prevenido el oferente o contratista sobre la misma, y si éste no atendiere oportunamente la prevención, la Oficina de Contratación y Suministros, procederá a la ejecución de las cauciones a más tardar el último día de su vencimiento.

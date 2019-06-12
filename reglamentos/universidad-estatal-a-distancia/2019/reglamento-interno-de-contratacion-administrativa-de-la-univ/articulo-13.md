@@ -1,0 +1,1 @@
+Artículo 13—La UNED solamente considerará para los procesos de contratación que promueva, a los proveedores que ostenten la condición de proveedor activo y para todos los efectos se regirá por lo dispuesto Reglamento para la Utilización del Sistema Electrónico de Compras Públicas Mercado en Línea SICOP.

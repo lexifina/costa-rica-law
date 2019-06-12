@@ -1,0 +1,1 @@
+Artículo 67—Si el recurso es declarado con lugar, la Oficina de Contratación y Suministros, se encargará de efectuar las modificaciones y comunicarlas o publicarlas por los mismos medios utilizados para invitar.

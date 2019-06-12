@@ -1,0 +1,1 @@
+Artículo 70—Vencida la audiencia concedida y/o recibidos los argumentos del adjudicatario recurrido, la Oficina de Contratación y Suministros, los enviará al área técnica, para que ambos se pronuncien en un plazo de tres días hábiles.

@@ -1,0 +1,1 @@
+Artículo 93—Disposiciones derogatorias. Con la vigencia del presente Reglamento quedan derogados aquellas instrucciones, directrices y acuerdos que en materia de contratación administrativa se hubieren emitido y se opongan a las regulaciones aquí dispuestas. Este reglamento deja sin efecto cualquier otra normativa de rango igual o inferior que se le oponga.

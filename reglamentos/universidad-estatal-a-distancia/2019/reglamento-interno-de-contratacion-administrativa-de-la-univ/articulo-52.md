@@ -1,0 +1,1 @@
+Artículo 52— El titular de la Oficina Jurídica en coordinación con la Oficina de Contratación y Suministros, y el responsable general de la contratación establecerá los contenidos que deben tener los contratos para que junto con el expediente respectivo se remitan a la Contraloría General de la República.

@@ -1,0 +1,1 @@
+Artículo 66—Si el recurso es interpuesto en una licitación abreviada ante la Oficina de Contratación y Suministros, ésta en coordinación con el área técnica tendrá un plazo de tres días hábiles para tomar la resolución y remitirla al recurrente.

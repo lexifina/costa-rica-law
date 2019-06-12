@@ -1,0 +1,1 @@
+Artículo 82—Recibido el dictamen del responsable general de la contratación, la O.C.S. remitirá en el plazo máximo de cinco (5) días hábiles, su recomendación a la Oficina Jurídica, para que emita la resolución final.

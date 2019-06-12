@@ -1,0 +1,1 @@
+Artículo 55—La Oficina de Contratación y Suministros, velará por el cumplimiento de los requisitos para el depósito de garantías, según lo establecido en el Reglamento a la Ley de Contratación Administrativa.

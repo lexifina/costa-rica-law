@@ -1,0 +1,1 @@
+Artículo 83—La interposición de recursos en contra de la resolución final, no suspenderá la aplicación de la sanción; salvo cuando la Administración considere que la misma pueda causar perjuicios graves de imposible o difícil reparación.

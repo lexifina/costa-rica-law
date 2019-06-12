@@ -1,0 +1,1 @@
+Artículo 22—De los plazos de presentación de Solicitudes de Compra. Las solicitudes de compra deberán ajustarse a los plazos establecidos por la Oficina de Contratación y Suministros, los cuales serán publicados mediante circular al inicio del año presupuestario.

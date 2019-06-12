@@ -1,0 +1,4 @@
+CAPÍTULO VIII
+Recursos
+Artículo 61— Corresponderá al órgano que resolvió aplicar una sanción por inhabilitación y apercibimiento o bien al que dictó un acto de adjudicación, o contra aquel que declara desierto o infructuoso el concurso, resolver los recursos de revocatoria contra los actos mencionados. Los recursos se plantearán ante la Oficina de Contratación y Suministros, quien se encargará de canalizarlos ante el órgano que competa, una vez obtenido los criterios del área técnica.
+El recurrente, podrá solicitar expresamente que el recurso de revocatoria sea conocido y resuelto, no por la instancia que dictó el acto, sino por el Jerarca respectivo. Cuando la apelación de un acto de adjudicación sea planteada ante la Contraloría General de la República, se procederá conforme corresponda.

@@ -1,0 +1,1 @@
+Artículo 33—La decisión administrativa que da inicio al procedimiento de contratación será emitida por el titular de la Oficina de Contratación y Suministros, y será esta oficina quien velará por que se adjunten todos los requisitos establecidos en los artículos 8 y 9 del Reglamento a la Ley de Contratación Administrativa.

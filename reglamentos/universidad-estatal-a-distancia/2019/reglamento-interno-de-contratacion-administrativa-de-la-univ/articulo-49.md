@@ -1,0 +1,12 @@
+SECCIÓN VII
+Modificación Unilateral del contrato (50% adicional)
+Artículo 49—En el caso de ejercitarse la potestad de modificación hasta en un 50% de la prestación objeto de la contratación, sea en contratos ejecutados o en ejecución, el encargado general de la contratación deberá plantear la solicitud formal ante la Oficina de Contratación y Suministros, incluyendo al menos la siguiente información:
+1. Para contratos en ejecución, presentar solicitud motivada, en la cual se detallen ampliamente la necesidad que se pretende satisfacer, las razones por las cuales se considera que la ampliación obedece a una situación de naturaleza imprevisible al momento de iniciarse el trámite de la contratación original, que la misma es la única forma de satisfacer el interés público perseguido y que el monto total de la contratación (original incluyendo reajustes o revisiones de precio, más la modificación propuesta) no superan el límite establecido en el procedimiento de contratación seguido originalmente.
+Adicionalmente se deberá adjuntar una nota con la anuencia del contratista, en contratar ese 50% adicional manteniendo las mismas condiciones del contrato original.
+En contratos de prestación continua se podrá modificar tanto el objeto como el plazo. De tratarse de ese último supuesto, el 50% aplicará sobre el plazo contratado originalmente sin incluir las prórrogas.
+2. Las modificaciones que no se ajusten a la situación de imprevisión señalada o al 50% del contrato, solo serán posibles con la autorización de la Contraloría.
+Para contratos ejecutados, se deberá presentar:
+a. La solicitud motivada en la cual se detalle ampliamente la necesidad que se pretende satisfacer, dejando constancia que en el nuevo contrato no se están cambiando las bases bajo las cuales se pactó originalmente, (pudiendo el contratista mejorar las condiciones iniciales).
+b. Que no han transcurrido más de seis meses de la recepción provisional del objeto. Si esta recepción coincide con la definitiva, el plazo regirá a partir de esa fecha.
+c. Que el monto del nuevo contrato no sea mayor al 50% del contrato anterior (contemplando reajustes y modificaciones operadas). Si el objeto del contrato original se compone de líneas independientes, el 50% se calculará sobre el objeto y estimación general del contrato. En los contratos de objeto continuado, el 50% se considerará sobre el plazo originalmente convenido sin considerar las prórrogas.
+La Oficina de Contratación y Suministros, realizará el análisis correspondiente para su aprobación o rechazo, según proceda.

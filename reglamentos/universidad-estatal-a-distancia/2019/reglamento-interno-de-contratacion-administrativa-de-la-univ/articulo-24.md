@@ -1,0 +1,3 @@
+SECCIÓN II
+La resolución de Inicio
+Artículo 24—De la Resolución de Inicio. La Oficina de Contratación y Suministros proporcionará y colocará, en los medios electrónicos oficiales utilizados por la UNED, el formulario: "Resolución de Inicio", con los datos de la información que deberá suministrar el Responsable General de la Contratación, para el trámite de compra o venta correspondiente. Su presentación deberá realizarse junto con la presentación de la Solicitud de Bienes o Servicios según corresponda. De no producirse el ingreso de la decisión inicial se procederá con el rechazo de la solicitud antes mencionada. La Oficina de Contratación y Suministros tendrá la potestad de devolver las decisiones iniciales que no cumplan con los requisitos ahí solicitados.
