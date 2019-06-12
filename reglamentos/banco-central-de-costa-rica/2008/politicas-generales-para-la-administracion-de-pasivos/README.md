@@ -40,3 +40,4 @@ Políticas Generales para la Administración de Pasivos
 | 25 | 2018-03-07 | Reglamento 5818 (2018-03-07) |
 | 26 | 2018-03-07 | Reglamento 5818 (2018-03-07) |
 | 27 | 2019-06-12 | Reglamento 5881 (2019-06-12) |
+| 28 | 2019-06-12 | Reglamento 5881 (2019-06-12) |

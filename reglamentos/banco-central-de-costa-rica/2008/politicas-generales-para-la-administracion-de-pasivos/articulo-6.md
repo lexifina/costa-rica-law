@@ -10,4 +10,6 @@ b) Gestionará el Tramo de Deuda, según lo consignado en las presentes normas. 
 (Así reformado el punto anterior mediante sesión N° 5816-2018 del 23 de febrero de 2018)
 c) Mantendrá un estrecho seguimiento del mercado financiero con el fin de informar oportunamente sobre aspectos que puedan afectar el logro de los objetivos del Banco Central en la gestión de sus pasivos.
 d) Efectuará los análisis técnicos necesarios para la toma de decisiones de la Comisión de Mercados.
+e) Elaborará las propuestas de modificación de la “Metodología para Fijar las Tasas de las Operaciones de Mercado Abierto.
+(Así adicionado el inciso anterior en sesión N° 5881 del 12 de junio de 2019)
 (Así reformado en sesión N° 5703 del 13 de octubre de 2015)
