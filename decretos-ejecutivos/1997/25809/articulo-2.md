@@ -1,5 +1,3 @@
-Articulo 2°-Los miembros de la Delegación Permanente de Costa Rica ante la OMC, deberán cumplir al menos con los siguientes requisitos:
-a) Ser mayor de edad.
-b) Tener licenciatura universitaria en Derecho, Economía o una carrera afin.
-c) Dominio del idioma inglés o francés.
-d) Reconocida solvencia moral y profesional.
+Artículo 2 º-Los miembros de la Delegación Permanente de Costa Rica ante la OMC, serán funcionarios de confianza y deberán reunir requisitos de idoneidad y experiencia que los acrediten para el cabal cumplimiento de sus funciones. En tal sentido quedarán sujetos a las disposiciones de los artículos 3, 4, 5, 6 y 7 de la Ley Nº 8056 del 21 de diciembre del 2000, Ley para las Negociones Comerciales y la Administración de los Tratados de Libre Comercio, Acuerdos e Instrumentos de Comercio Exterior; asimismo, se les aplicarán, en lo conducente, las disposiciones del Estatuto del Servicio Exterior de la República, Ley N º 3530 de 5 de agosto de 1965.
+El nombramiento del Jefe de la Delegación Permanente de Costa Rica ante la OMC lo llevará a cabo el Consejo de Gobierno por iniciativa del Ministerio de Comercio Exterior. Dado el rango diplomático de Embajador que dicho cargo ostenta, respecto del mismo se aplicarán en lo conducente las disposiciones del Estatuto del Servicio Exterior de la República.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 41836 del 13 de junio de 2019)
