@@ -1,0 +1,1 @@
+Artículo 26. Plazo. Los plazos para la atención y resolución de los trámites de la Secretaría Técnica Nacional Ambiental, corresponden a lo establecido mediante Decretos Ejecutivos Nº 31849-MINAE-S-MOPT-MAG-MEIC, Nº 32712-MINAE, Nº 32079-MINAE, Nº 32966-MINAE y Nº 34536-MINAE y sus reformas.

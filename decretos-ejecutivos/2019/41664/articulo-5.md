@@ -1,0 +1,1 @@
+Artículo 5. Custodia y uso de la firma digital. Es deber del usuario de las Instituciones administradoras, salvaguardar el medio de almacenamiento de la firma digital certificada en un lugar seguro y utilizarlo en forma personal para efectos de los trámites autorizados y conforme a los procedimientos establecidos, no revelando a nadie la clave de seguridad del certificado.

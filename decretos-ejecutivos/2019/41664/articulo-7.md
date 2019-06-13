@@ -1,0 +1,2 @@
+Artículo 7. Expediente electrónico. Por cada nueva solicitud de Viabilidad Ambiental o Concesión Minera que se gestione en la plataforma digital, el Sistema conformará un expediente electrónico que contendrá todos los documentos electrónicos que se generen en la solicitud. El solicitante, de acuerdo a su perfil de seguridad, tendrá acceso al seguimiento
+de su trámite, el cual podrá ser consultado en línea.

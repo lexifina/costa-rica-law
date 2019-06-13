@@ -1,0 +1,2 @@
+Artículo 2. Alcance. Este Reglamento es de acatamiento obligatorio para todos los usuarios de SETENA y la DGM.
+La aplicación de este Reglamento no exime a los usuarios de cumplir la normativa vigente que rige cada uno de los trámites que se efectúan en SETENA y la DGM, de manera que todo aquello que no se encuentre regulado expresamente en el presente Reglamento se regirá por la normativa aplicable según la materia.

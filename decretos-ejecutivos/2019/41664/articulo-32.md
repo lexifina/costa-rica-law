@@ -1,0 +1,1 @@
+Artículo 32. Uso de Plataforma Digital en trámites de DGM. En el caso de los trámites correspondientes a la DGM, la plataforma se podrá utilizar a partir de la publicación del presente Reglamento. Un año después de la publicación del presente Reglamento, todo trámite que se realice ante esa dependencia deberá presentarse y resolverse por medio de la plataforma digital.

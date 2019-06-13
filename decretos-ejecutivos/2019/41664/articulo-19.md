@@ -1,0 +1,1 @@
+Artículo 19. Derechos de Autor. El contenido, organización, gráficos, compilación y otros asuntos relacionados con la plataforma digital en línea, están protegidos bajo la aplicación de derechos de autor, marcas registradas y cualquier otro derecho de propiedad.

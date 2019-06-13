@@ -1,0 +1,1 @@
+Artículo 11. Notificaciones y Cómputo de los plazos. Se regirán según lo dispuesto en la Ley de Notificaciones Judiciales Nº 8687, por lo que, tratándose de la notificación al domicilio electrónico permanente, el usuario quedará notificado el día hábil siguiente al de la recepción de la misma.

@@ -1,0 +1,1 @@
+Artículo 10. Seguimiento de los trámites gestionados. Las Instituciones administradoras informarán mediante la plataforma digital y podrán comunicar a los usuarios vía correo electrónico, el estado de cada trámite efectuado en el Sistema.

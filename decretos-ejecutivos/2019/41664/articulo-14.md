@@ -1,0 +1,1 @@
+Artículo 14. Almacenamiento y custodia de la información. Las Instituciones administradoras deben contar con los mecanismos óptimos para garantizar que la información se encuentra almacenada y custodiada, de modo que se eviten riesgos, daños, pérdida, destrucción, alteración, sustracción o divulgación indebida.
