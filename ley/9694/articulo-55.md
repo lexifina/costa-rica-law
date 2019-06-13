@@ -1,0 +1,1 @@
+ARTICULO 55- Se autoriza a las entidades estatales para asignar al INEC temporalmente el personal calificado y los recursos financieros necesarios, con el objetivo de ejecutar proyectos específicos para la elaboración de estadísticas oficiales. Las condiciones de esta asignación se establecerán por medio de convenios de cooperación interinstitucional.

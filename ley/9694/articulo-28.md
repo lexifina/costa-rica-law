@@ -1,0 +1,1 @@
+ARTICULO 28- El Conace se instalará ante el presidente del CDINEC, a más tardar el 1° de julio correspondiente al inicio del período siguiente a la aprobación de la ley; los miembros permanecerán en sus cargos durante cuatro años y podrán ser reelegidos. El cargo de representante ante el Consejo será desempeñado ad honórem.

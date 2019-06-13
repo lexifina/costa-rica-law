@@ -1,0 +1,2 @@
+ARTÍCULO 32- El INEC gozará de independencia técnica para decidir sobre las metodologías que se deben aplicar en la producción y divulgación de las estadísticas. Ninguna persona, ni institución pública o privada, podrá intervenir, obstaculizar sus funciones de coordinador del SEN, ni las relativas a la producción y divulgación de las estadísticas oficiales.
+La violación de cualquiera de estas prohibiciones será sancionada como falta muy grave, de conformidad con lo establecido en el artículo 65 de la presente ley.

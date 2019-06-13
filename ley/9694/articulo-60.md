@@ -1,0 +1,1 @@
+ARTICULO 60- El derecho de aplicar sanciones reguladas en la presente ley prescribe en el plazo de cuatro años, a partir del momento en que la autoridad sancionatoria tiene conocimiento de los hechos. Lo anterior, sin perjuicio de lo establecido en la normativa especial aplicable según el tipo de responsabilidad.

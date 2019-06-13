@@ -1,0 +1,1 @@
+TRANSITORIO III- El financiamiento de los censos nacionales, correspondientes del 2020 al 2030, serán financiados por el Ministerio de Hacienda, conforme al presupuesto que le presentará el INEC dos años antes de su ejecución. En dicho presupuesto, el INEC considerará los recursos disponibles de acuerdo con lo indicado en el artículo 52.

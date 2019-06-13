@@ -1,0 +1,1 @@
+ARTÍCULO 41- Los miembros del CDINEC devengarán dietas por sesión, según lo establezca la autoridad competente para las instituciones autónomas de derecho público. No podrán reconocérseles más de cuatro sesiones por mes. El Consejo sesionará válidamente con la presencia de tres de sus integrantes.
