@@ -1017,7 +1017,8 @@ REQUISITO LEGAL
  Declaración de bienes y rendir la garantía o póliza de fidelidad cuando el puesto, por ley expresa así lo indique.
 DIRECTOR EJECUTIVO 1
 NATURALEZA DEL TRABAJO
-Planeamiento, dirección, organización, coordinación, supervisión, control y evaluación de labores técnicas, profesionales, científicas y administrativas, que se ejecutan desde una Dirección o Centro adscrito a la Rectoría o a una Vicerrectoría, que desarrolla programas y emite directrices técnicas y administrativas de carácter transversal e impacto institucional.
+Planeamiento, dirección, organización, coordinación, supervisión, control y evaluación de labores técnicas profesionales, científicas y administrativas, que se ejecutan desde una Dirección o Centro adscrito a la Rectoría, a una Vicerrectoría o al Consejo Universitario, que desarrolla programas y emite directrices técnicas y administrativas de carácter transversal e impacto institucional
+(Así reformado el párrafo anterior mediante sesión ordinaria N° 12-2019 del 13 de junio del 2019)
 FUNCIONES:
  Planea, dirige, organiza, coordina y supervisa las actividades profesionales, técnicas y administrativas propias de los procesos de trabajo que pueden trascender a nivel institucional.
  Establece mecanismos de coordinación y articulación entre las diferentes unidades o miembros del personal para la ejecución del trabajo de la dirección, programa o centro universitario.
