@@ -1,0 +1,2 @@
+Artículo 68. Para ejercer el voto. En el caso de votación electrónica la persona electora debe cumplir con los mecanismos de seguridad que determine el Tribunal, acorde con el programa informático que se utilice. El sistema verifica los datos en el padrón y posterior a ello se podrá emitir el voto.
+En el caso de votación física, corresponde a la junta receptora de votos determinar la identidad de quien se apresta a votar.

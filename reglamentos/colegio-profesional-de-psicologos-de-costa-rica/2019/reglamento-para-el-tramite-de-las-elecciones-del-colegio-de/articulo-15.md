@@ -1,0 +1,4 @@
+Artículo 15. Será procedente el recurso de apelación únicamente en los siguientes casos:
+a.) Cuando la persona por elegir para un cargo no cumpla con los requisitos necesarios para ser candidata o para ejercer la función)
+b.) Cuando se presenten irregularidades en el proceso electoral que, de manera fraudulenta, alteren la voluntad del electorado.
+En estos casos el recurso de apelación debe interponerse dentro del tercer día hábil siguiente a la comunicación del acto impugnado. El recurso deberá estar fundamentado y ha de contar con las pruebas pertinentes, ello bajo pena de inadmisibilidad y se deberá presentar ante la Secretaría del Tribunal. Una vez presentado el recurso, el Tribunal Electoral lo comunicará inmediatamente a la Junta Directiva, la que, sin mayor dilación, convocará a Asamblea General Extraordinaria para conocer y resolver el recurso.

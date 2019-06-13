@@ -1,0 +1,1 @@
+Artículo 19. La elección extraordinaria se efectuará cuando por renuncia o por cualquier otra causa fuera necesario llenar las vacantes que se produzcan. En cualquiera de estos supuestos la Junta Directiva comunica la vacante al Tribunal para que coordine y realice la elección pertinente, de conformidad con este Reglamento, para el proceso de nombramiento.

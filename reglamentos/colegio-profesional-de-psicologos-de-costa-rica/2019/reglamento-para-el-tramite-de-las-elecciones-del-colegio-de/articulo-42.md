@@ -1,0 +1,3 @@
+Artículo 42. El Tribunal tiene facultades para regular la propaganda, por lo que sus disposiciones son de acatamiento obligatorio para todas las personas y agrupaciones candidatas. Cualquier incumplimiento será conocido y tramitado por el Tribunal Electoral, según el procedimiento que corresponda de acuerdo con la Ley General de la Administración Pública.
+Según la gravedad de la falta, la sanción podrá ser una amonestación verbal, una amonestación escrita privada o una amonestación pública.
+Cualquier sanción será emitida mediante resolución razonada dentro de las veinticuatro (24) horas hábiles posteriores al conocimiento de los hechos por parte del Tribunal.

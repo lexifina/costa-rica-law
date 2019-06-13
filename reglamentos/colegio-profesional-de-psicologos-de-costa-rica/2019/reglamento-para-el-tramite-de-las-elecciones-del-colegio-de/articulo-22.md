@@ -1,0 +1,1 @@
+Artículo 22. En la publicación de la convocatoria para Asamblea General se indicará la fecha y la hora de inicio y de cierre del periodo de inscripción. Asimismo, el Tribunal fija de manera clara, aparte de los requisitos establecidos en este Reglamento para la inscripción de candidaturas, cualquier otra disposición necesaria para la buena marcha del proceso.

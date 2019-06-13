@@ -1,0 +1,1 @@
+Artículo 5. Este Reglamento norma la actividad electoral del Colegio, con el fin de salvaguardar la transparencia del sufragio y promover la participación democrática, directa y universal de su membresía, promoviendo además la discusión abierta y respetuosa, donde se garantice la accesibilidad y la excelencia en este tipo de procesos para elegir las autoridades de la Institución.

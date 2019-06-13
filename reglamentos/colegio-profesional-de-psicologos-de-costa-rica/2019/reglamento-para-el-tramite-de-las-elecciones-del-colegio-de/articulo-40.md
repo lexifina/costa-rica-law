@@ -1,0 +1,1 @@
+Artículo 40. Queda prohibido a todas las personas funcionarias y a la membresía de Junta Directiva, Fiscalía, Tribunal de Honor y Tribunal Electoral, valerse de su posición o influencia para promover o permitir que las personas postulantes utilicen o se beneficien, de manera directa o indirecta, de los recursos y de la información del Colegio.

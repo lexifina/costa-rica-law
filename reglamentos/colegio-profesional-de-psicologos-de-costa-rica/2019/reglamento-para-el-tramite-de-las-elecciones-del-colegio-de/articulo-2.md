@@ -1,0 +1,1 @@
+Artículo 2. Aplicación. El presente Reglamento para el Trámite de las Elecciones del Colegio de Profesionales en Psicología de Costa Rica se aplica a los procesos electivos de la Junta Directiva, Fiscalía, Tribunal de Honor y Tribunal Electoral del Colegio de Profesionales en Psicología de Costa Rica.

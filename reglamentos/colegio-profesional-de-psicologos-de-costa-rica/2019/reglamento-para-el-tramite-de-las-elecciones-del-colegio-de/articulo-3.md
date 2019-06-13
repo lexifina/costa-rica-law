@@ -1,0 +1,2 @@
+Artículo 3. Ejercicio del sufragio. El voto que se ejerza por quienes integran la Junta Directiva o la Asamblea General es libre, igualitario, secreto, universal, único, personal e indelegable.
+Únicamente pueden ejercer el sufragio las personas colegiadas que se encuentren activas en el ejercicio pleno de sus derechos corporativos, particularmente encontrándose al día en el pago de sus cuotas de colegiatura; todo de conformidad con las disposiciones de la Ley n.° 6144 del Colegio de Profesionales en Psicología de Costa Rica y sus reformas.

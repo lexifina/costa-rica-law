@@ -1,0 +1,1 @@
+TRANSITORIO III. En la segunda elección del Tribunal Electoral, los puestos cuarto y quinto serán nombrados por un año, con el fin de que inicie la alternabilidad de quienes integran el Tribunal Electoral Aprobado en Asamblea General Extraordinaria n.° 121 del 27 de abril de 2019.

@@ -1,0 +1,3 @@
+Artículo 47. Requisitos de las papeletas. El Tribunal ordena y supervisa la confección de las papeletas que se utilizan en el proceso electoral, indistintamente de estas son en físico o electrónicas.
+Si la elección se efectúa de manera física, las boletas de votación deben estar listas al menos ocho (8) días naturales antes de la fecha de la elección.
+Si la elección se efectúa de manera electrónica, el sistema de votación debe estar en funcionamiento óptimo ocho (8) días naturales antes de la fecha de la elección. Para su uso se cuenta con el apoyo de la Oficina de Tecnologías de Información del Colegio.

@@ -1,0 +1,2 @@
+Artículo 26. De las modificaciones al padrón. El Tribunal dispone la inclusión o exclusión de personas agremiadas en el padrón, con base en la información que oportunamente suministre la Dirección Ejecutiva.
+Las personas que se incorporen al Colegio en los días previos a la elección y que por este motivo no figuren en el padrón, tendrán derecho a votar presentando la certificación de su incorporación.

@@ -1,0 +1,1 @@
+Artículo 58. De la cantidad de fiscales o fiscalas por junta receptora de votos. En el recinto o área que ocupen las juntas receptoras de votos no se permitirá más de una persona en la labor de fiscalización, ya sea fiscal o fiscala general o de la propia junta, grupo o postulante individual. A los fiscales y a las fiscalas les pueden sustituir sus suplentes.

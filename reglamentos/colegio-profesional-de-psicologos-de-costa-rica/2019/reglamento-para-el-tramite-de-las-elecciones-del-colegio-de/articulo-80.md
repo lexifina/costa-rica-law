@@ -1,0 +1,1 @@
+Artículo 80. Custodia de la documentación electoral. El Tribunal, con el apoyo de la Dirección Ejecutiva del Colegio, designa un lugar apropiado para mantener en custodia la documentación electoral durante tres (3) meses. Posteriormente se procede a su destrucción. De existir una impugnación, el material se destruye hasta que ésta sea resuelta.

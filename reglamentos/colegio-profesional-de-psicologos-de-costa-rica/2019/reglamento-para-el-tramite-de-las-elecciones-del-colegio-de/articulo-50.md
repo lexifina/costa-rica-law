@@ -1,0 +1,2 @@
+Artículo 50. En el caso del voto electrónico, se da a conocer a la membresía del Colegio un manual de la persona usuaria, el cual se entrega con un mes de antelación al ejercicio del voto.
+Además se instalará un centro de atención telefónica a cargo del personal administrativo del Colegio, que iniciará operaciones al menos ocho días antes del proceso de elección y durante el día de las elecciones.

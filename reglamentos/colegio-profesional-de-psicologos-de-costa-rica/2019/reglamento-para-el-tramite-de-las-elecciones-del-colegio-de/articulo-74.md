@@ -1,0 +1,1 @@
+Artículo 74. Cuando un voto se declare nulo, el presidente o la presidenta del Tribunal hará constar la razón al dorso de la papeleta, donde indicará el fundamento que respalda esa decisión y luego consignará su firma durante el conteo de los votos.

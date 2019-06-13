@@ -1,0 +1,1 @@
+Artículo 48. Para realizar la votación electrónica el Tribunal tendrá en cuenta todas las disposiciones necesarias para garantizar la seguridad y confiabilidad del proceso; para ello, la empresa adjudicataria debe presentar, mediante un documento auditado, un certificado de garantía de la seguridad del sistema.

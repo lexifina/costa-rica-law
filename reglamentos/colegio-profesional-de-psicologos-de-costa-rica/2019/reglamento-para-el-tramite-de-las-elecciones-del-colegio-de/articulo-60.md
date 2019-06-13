@@ -1,0 +1,1 @@
+Artículo 60. Colocación de la urna electoral. La urna electoral donde se depositan los votos se coloca frente a la mesa de trabajo de la junta receptora de votos, de tal manera que permanentemente se pueda ejercer sobre ella autoridad y vigilancia.
