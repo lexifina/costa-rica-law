@@ -1,0 +1,1 @@
+ARTICULO 12- Las instituciones del SEN deberán actualizar periódicamente las bases de los diferentes índices que se publican, así como revisar y actualizar las metodologías utilizadas en la producción de las estadísticas oficiales, para lograr su adaptación a las nuevas demandas y recomendaciones técnicas, procurando la comparabilidad de las series históricas.

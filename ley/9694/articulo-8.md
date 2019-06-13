@@ -1,0 +1,1 @@
+ARTÍCULO 8- Los miembros del CIE ejercerán sus funciones con carácter ad honórem. Su participación constituirá parte de sus funciones como encargados de las unidades administrativas a cargo de los procesos estadísticos del SEN.

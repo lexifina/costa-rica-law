@@ -1,0 +1,1 @@
+ARTICULO 37- Se autoriza al INEC para que cobre el costo de los servicios estadísticos que considere brindar como el diseño de muestras, módulos especiales de investigación, elaboración de mapas a la medida, así como el valor de la reproducción de las publicaciones y otros productos estadísticos que elabore.

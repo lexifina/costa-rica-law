@@ -1,0 +1,2 @@
+ARTICULO 70- El atraso por parte de los infractores en el pago de las sumas correspondientes a las sanciones impuestas, según el término concedido para el efecto y determinado en el reglamento de esta ley, obligará a pagar el interés legal por mora establecido en la legislación mercantil.
+El pago de la multa no prejuzga sobre las responsabilidades administrativas y penales en que pudieran haber incurrido los infractores por los mismos hechos objeto de la multa.

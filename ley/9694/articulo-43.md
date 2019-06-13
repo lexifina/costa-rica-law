@@ -1,0 +1,1 @@
+ARTICULO 43- El CDINEC designará, por un período de dos años, a un presidente, un vicepresidente y un secretario, quienes se desempeñarán según la Ley N° 6227, Ley General de la Administración Pública, de 2 de mayo de 1978, y podrán ser reelegidos.

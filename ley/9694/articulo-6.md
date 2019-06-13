@@ -1,0 +1,1 @@
+ARTICULO 6- El SEN sustentará sus actividades en una ENDE decenal, que se ejecutará por medio de los PEN quinquenales, que serán formulados por el NEC en conjunto con todos los integrantes del SEN y aprobados por el CDINEC. Las estrategias y acciones establecidas en la ENDE y en los PEN serán de obligatorio cumplimiento para los miembros del SEN.
