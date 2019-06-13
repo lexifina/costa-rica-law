@@ -1,1 +1,0 @@
-Artículo 165.—Fiscalización de recursos. La Auditoría abarcará, para el fiel cumplimiento de sus propósitos, todas aquellas labores de fiscalización de las operaciones técnicas, administrativas, económicas y financieras que le permitan verificar que se está realizando una correcta utilización de los recursos y la apropiada salvaguarda de los activos y los intereses de la Empresa.

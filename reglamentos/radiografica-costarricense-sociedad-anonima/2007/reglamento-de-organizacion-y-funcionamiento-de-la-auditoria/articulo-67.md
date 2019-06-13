@@ -1,1 +1,0 @@
-Artículo 67.—Plan Anual Operativo. Conjuntamente con el presupuesto de gastos e inversiones, se elaborará el Plan Anual Operativo de la Auditoría, de conformidad con los lineamientos de la Contraloría General de la República, el cual deberá contener, al menos: objetivos específicos, políticas, metas y acciones para el próximo año.

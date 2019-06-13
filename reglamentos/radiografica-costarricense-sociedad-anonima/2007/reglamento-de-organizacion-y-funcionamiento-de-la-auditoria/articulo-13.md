@@ -1,1 +1,0 @@
-Artículo 13.—Definición. La Auditoría Interna es parte integral, indispensable y necesaria del sistema de control interno y de la estructura organizacional de Radiográfica Costarricense S. A. y entre otras funciones propias de su misión, también se desempeña como un Órgano Asesor de la Junta Directiva de RACSA.

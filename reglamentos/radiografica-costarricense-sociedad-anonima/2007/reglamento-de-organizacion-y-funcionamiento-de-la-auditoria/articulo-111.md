@@ -1,1 +1,0 @@
-Artículo 111.—Formación y desarrollo profesional. La supervisión se extenderá a la formación y desarrollo del personal, a la evaluación del desempeño de los empleados, a los controles de tiempos y gastos y a áreas administrativas similares.

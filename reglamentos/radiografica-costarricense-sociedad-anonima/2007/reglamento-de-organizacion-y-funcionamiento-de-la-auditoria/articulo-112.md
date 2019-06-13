@@ -1,1 +1,0 @@
-Artículo 112.—Revisión de papeles de trabajo. Todos los papeles de trabajo deberán ser revisados para asegurar que soportan adecuadamente las comunicaciones del trabajo y que todos los procedimientos de auditoría necesarios han sido aplicados. Deberá quedar evidencia de la revisión por parte del supervisor.

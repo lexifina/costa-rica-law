@@ -1,1 +1,0 @@
-Artículo 146.—Implementación de las recomendaciones de la Auditoría Interna referentes a los informes de relación de hechos. La Junta Directiva o el funcionario con la competencia para iniciar el procedimiento administrativo por recomendación de la Auditoría Interna, deben tomar las medidas que correspondan a fin de que se interrumpa la prescripción de la responsabilidad.

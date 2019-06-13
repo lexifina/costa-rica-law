@@ -1,1 +1,0 @@
-Artículo 117.—Conferencia final sobre los informes de auditoría. Después de finalizado un estudio de control interno y de previo a la comunicación oficial del informe, la Auditoría realizará la conferencia final a los funcionarios relacionados con el informe.

@@ -1,1 +1,0 @@
-Artículo 6º—Modificaciones totales o parciales. El Auditor Interno o la Junta Directiva podrán proponer modificaciones totales o parciales al Reglamento, las cuales deberán seguir los trámites de aprobación y publicación definidos en este Reglamento.

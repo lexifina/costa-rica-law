@@ -1,1 +1,0 @@
-Artículo 88.—Apoyo a evaluaciones o Auditorías Externas. La Auditoría Interna servirá de coordinadora y apoyo para las evaluaciones y Auditorías Externas, las cuales son realizadas por la Contraloría General y por Empresas de Auditoría Externa contratadas por RACSA. También apoyará y realizará seguimientos de las recomendaciones del Comité de Vigilancia de RACSA.

@@ -1,1 +1,0 @@
-Artículo 22.—Independencia funcional y de criterio. Los funcionarios de la Auditoría Interna ejercerán sus atribuciones con total independencia funcional y de criterio respecto a los Órganos que conforman la Administración Activa.

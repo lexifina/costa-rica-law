@@ -1,1 +1,0 @@
-Artículo 157.—Selección del revisor. El Auditor Interno deberá tratar con la Junta Directiva la naturaleza de una evaluación externa en el contexto de un programa de garantía de calidad completo y deberá implicarlos en la selección del revisor externo.

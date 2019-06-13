@@ -1,1 +1,0 @@
-Artículo 125.—Suficiencia de los hallazgos. Los hallazgos del informe deben estar lo suficientemente sustentados con evidencias, pertinentes y adecuadas, a efecto de las decisiones que le corresponda tomar a la Junta Directiva o al titular subordinado, respecto del trámite de recomendaciones contenidas en el informe.

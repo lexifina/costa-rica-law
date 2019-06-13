@@ -1,1 +1,0 @@
-Artículo 87.—Interferencia en el desarrollo normal de actividades. En la ejecución de sus funciones, el personal de la Auditoría Interna procurará que sus actividades no interfieran en el normal desarrollo de las operaciones de la dependencia que está siendo objeto de examen, buscando una coordinación adecuada de sus estudios.

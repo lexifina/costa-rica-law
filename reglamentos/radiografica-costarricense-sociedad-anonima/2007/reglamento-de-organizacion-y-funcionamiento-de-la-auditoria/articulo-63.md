@@ -1,1 +1,0 @@
-Artículo 63.—Asesoría legal respecto al universo auditable. Es obligación de la Asesoría Legal de la institución, brindar el oportuno y efectivo servicio mediante los estudios jurídicos necesarios, a fin de establecer adecuadamente el ámbito de acción conforme con lo estipulado en el artículo 33, inciso c) de la Ley General de Control Interno.

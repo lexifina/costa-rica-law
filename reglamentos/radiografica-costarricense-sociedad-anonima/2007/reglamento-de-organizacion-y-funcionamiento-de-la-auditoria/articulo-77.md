@@ -1,1 +1,0 @@
-Artículo 77.—Colaboración con la Administración . La Administración, a solicitud del Auditor, colaborará en la coordinación y cumplimiento del programa de capacitación y entrenamiento aprobado por la Junta Directiva.

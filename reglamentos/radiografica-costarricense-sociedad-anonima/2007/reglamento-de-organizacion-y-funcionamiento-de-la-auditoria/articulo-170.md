@@ -1,1 +1,0 @@
-Artículo 170.—Sobre la asesoría. La asesoría solo será brindada por el Auditor Interno y ésta puede ser verbal o escrita, sobre asuntos de competencia de la Auditoría y se brinda a solicitud de la Junta Directiva e implica verificar posteriormente lo actuado.

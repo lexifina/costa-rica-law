@@ -1,1 +1,0 @@
-Artículo 97.—Componentes del Plan Anual de Actividades. El Plan Anual de Actividades en el Proceso de Fiscalización, clasificará los estudios según el tipo de Auditoría: Auditoría Operativa, Auditoría Financiera-Contable, Auditoría de Redes y Sistemas, Supervisión, Dirección, Asistencia Técnica/Administrativa y Auditorías de carácter especial.

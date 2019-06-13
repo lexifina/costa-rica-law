@@ -1,3 +1,0 @@
-CAPÍTULO XV
-Programa de aseguramiento de la calidad de la Auditoría
-Artículo 148.—Establecimiento del programa de calidad. La Auditoría Interna deberá establecer en su Unidad un programa de calidad de sus servicios, el cual asegure a sus clientes un resultado confiable, garantizando el cumplimiento de las Directrices para la Autoevaluación Anual de Calidad de las Auditorías Internas del Sector Público, las Normas para el Ejercicio Profesional de la Auditoría Interna, el Código de Ética, Manual de Organización y Funciones de la Auditoría Interna y demás normas y leyes aplicables. Este programa deberá incluir: supervisión, evaluaciones internas y evaluaciones externas.

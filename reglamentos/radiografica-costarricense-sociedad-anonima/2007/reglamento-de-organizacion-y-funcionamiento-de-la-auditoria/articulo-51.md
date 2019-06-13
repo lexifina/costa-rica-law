@@ -1,1 +1,0 @@
-Artículo 51.—Recurso de revocatoria. Las resoluciones de carácter interno del Auditor tienen recurso de revocatoria ante el mismo y si éstas fueran declaradas sin lugar, cabe apelación ante la Junta Directiva.

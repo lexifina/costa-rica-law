@@ -1,1 +1,0 @@
-Artículo 107.—Control de los registros del trabajo. Los papeles de trabajo serán propiedad de la Empresa y serán accesibles sólo a las personas autorizadas o con orden judicial. Los miembros de la Organización, auditores externos y los involucrados en determinada auditoría que soliciten el acceso a los registros, requerirán la autorización del Auditor Interno.

@@ -1,3 +1,0 @@
-CAPÍTULO XVII
-Archivo permanente y de administración
-Artículo 161.—Regulaciones referidas al campo de acción de la Auditoría Interna. La Auditoría Interna debe cumplir con la normativa que promulgue la Contraloría General de la República para el ejercicio de su actividad. Debe mantenerse actualizada en cuanto a la normativa que el Órgano Contralor dicte a la Administración. Debe verificar su cumplimiento en esa actividad. En ese sentido, la Auditoría Interna mantendrá un archivo permanente de las regulaciones que afecten su esfera de competencia y un archivo de administración referente a los estudios realizados, los cuales se organizarán y documentarán conforme con lo estipulado en el Manual de Organización y Funcionamiento.

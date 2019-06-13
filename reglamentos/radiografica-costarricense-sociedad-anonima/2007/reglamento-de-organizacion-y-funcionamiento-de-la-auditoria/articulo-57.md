@@ -1,1 +1,0 @@
-Artículo 57.—Área de Auditoría Financiera-Contable. Las funciones de la Auditoría Financiera-Contable tienen como propósito fundamental la evaluación de la legitimidad y legalidad de los ingresos y egresos de la Empresa y verificar la razonabilidad de los estados financieros, incluyendo la revisión del control interno de RACSA.

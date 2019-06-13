@@ -1,1 +1,0 @@
-Artículo 181.—Responsabilidad por el funcionamiento del sistema. La Administración Activa de la Empresa adoptará las medidas necesarias para el adecuado funcionamiento del Sistema y para ubicarse en un nivel de riesgo institucional aceptable. La Auditoría evaluará ese cumplimiento.

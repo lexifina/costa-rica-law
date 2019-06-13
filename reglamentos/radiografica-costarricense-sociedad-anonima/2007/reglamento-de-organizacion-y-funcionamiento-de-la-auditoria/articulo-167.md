@@ -1,1 +1,0 @@
-Artículo 167.—Servicios de Auditoría. Los servicios de auditoría comprenden los distintos tipos de auditoría (auditoría operativa, auditoría financiera- contable, auditoría de redes y sistemas y auditorías de carácter especial). Estos servicios alcanzan a todos los entes definidos en el universo auditable.

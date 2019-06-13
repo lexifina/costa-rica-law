@@ -1,3 +1,0 @@
-CAPÍTULO III
-Potestad sobre el personal de Auditoría Interna
-Artículo 44.—Responsable de los movimientos de personal de la Auditoría. Se define al Auditor Interno General como el Superior Jerárquico y máximo responsable directo de las actuaciones de la Unidad. Será el jefe del personal de la Auditoría y se necesitará de su previa autorización para el nombramiento, traslado, remoción, concesión de licencias de los funcionarios y demás movimientos del personal a su cargo. En caso de que el puesto esté ocupado interinamente por un Auditor, este ejercerá su potestad únicamente para el nombramiento del personal.

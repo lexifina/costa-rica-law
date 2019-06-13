@@ -1,1 +1,0 @@
-Artículo 21.—Independencia en las funciones. La Auditoría Interna ejercerá sus funciones con independencia funcional y de criterio, respecto de la Junta Directiva y demás Órganos de la Administración Activa.

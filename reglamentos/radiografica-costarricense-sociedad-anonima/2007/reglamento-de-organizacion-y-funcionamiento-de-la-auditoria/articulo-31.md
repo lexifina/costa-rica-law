@@ -1,1 +1,0 @@
-Artículo 31.—Jerarquía. El Auditor Interno conforme a sus competencias, se constituye en el asesor principal de la Junta Directiva en aspectos relacionados con el control interno, los riesgos y el gobierno corporativo.

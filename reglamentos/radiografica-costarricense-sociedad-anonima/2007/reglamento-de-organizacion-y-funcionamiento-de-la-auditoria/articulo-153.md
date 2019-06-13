@@ -1,1 +1,0 @@
-Artículo 153.—Supervisión. Cada auditoría o estudio especial de auditoría deberá ser supervisado para asegurar su conformidad con las Normas de Auditoría Interna, las políticas y los programas de auditoría.
