@@ -1,0 +1,1 @@
+ARTÍCULO 13- Las instituciones del SEN establecerán las formas de colaboración que en cada caso más idóneas para el máximo aprovechamiento de la información disponible y evitar con ello la duplicidad innecesaria de la recolección de datos.

@@ -1,0 +1,1 @@
+ARTÍCULO 71- Los fondos recaudados por la imposición de estas sanciones pertenecerán al Tesoro Público y deberán ser depositados a su favor por las entidades respectivas, de conformidad con la Ley N° 8131, Ley de la Administración Financiera de la República y Presupuestos Públicos, de 18 de setiembre de 2001, y las normas conexas.

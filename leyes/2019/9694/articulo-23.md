@@ -1,0 +1,1 @@
+ARTICULO 23- El personal de las instituciones del SEN, de los órganos de la Administración Pública o los intervinientes del proceso estadístico que, estando o no sujetos a la confidencialidad estadística tengan acceso a información no divulgada por la autoridad competente, deberán mantener reserva sobre esta información hasta que sea oficializada por la autoridad competente.

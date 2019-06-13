@@ -1,0 +1,1 @@
+ARTÍCULO 69- Será potestad de las autoridades indicadas en los artículos 58 y 67 la graduación de las sanciones, atendiendo, en cada caso, a la gravedad propia de la infracción, las condiciones del infractor, la afectación al servicio y la naturaleza de los daños y perjuicios causados.

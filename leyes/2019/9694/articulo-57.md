@@ -1,0 +1,1 @@
+ARTICULO 57- Se autoriza al Banco Central de Costa Rica, como excepción a la prohibición contenida en el artículo 59 de su Ley Orgánica, para otorgar a favor del INEC la partida indicada en el artículo 52 de esta ley.

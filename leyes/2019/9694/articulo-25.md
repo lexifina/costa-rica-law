@@ -1,0 +1,1 @@
+ARTICULO 25- Las instituciones del SEN deberán publicar, en su página web, con doce meses de antelación, el calendario con la fecha de publicación de las estadísticas a su cargo. Este calendario deberá permanecer actualizado, de manera que siempre se conozca la fecha de publicación de cada estadística un año antes.

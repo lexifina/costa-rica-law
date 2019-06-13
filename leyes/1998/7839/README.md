@@ -1,6 +1,6 @@
 # Sistema de Estadística Nacional
 
-Ley N° 7839 del 1998-10-15. SINALEVI, ficha 42064: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=42064&param2=44350&param3=1>.
+Ley N° 7839 del 1998-10-15. SINALEVI, ficha 42064: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=42064&param2=116587&param3=1>.
 
 Publicada en La Gaceta N° 214 del 1998-11-04.
 
@@ -11,3 +11,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 1 de 4 | 1998-11-04 | Ley 7839 | 1998-10-15 |
 | 2 de 4 | 2000-01-17 | Ley 7963 | 1998-10-15 |
 | 3 de 4 | 2002-06-14 | Ley 8284 | 2002-05-28 |
+| 4 de 4 | 2019-06-13 | Ley 9694 | 2019-06-04 |

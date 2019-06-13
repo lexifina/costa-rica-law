@@ -1,0 +1,2 @@
+ARTÍCULO 68- La persona física o jurídica que se niegue a responder las solicitudes al SEN o al INEC, relativas a la obtención de información estadística, quedará sujeta a la sanción establecida en el artículo 65 de esta ley. El pago de la multa indicada no exime de la entrega de la información.
+La falta de entrega de la información solicitada configurará el delito de desobediencia a la autoridad, tipificado en el Código Penal.
