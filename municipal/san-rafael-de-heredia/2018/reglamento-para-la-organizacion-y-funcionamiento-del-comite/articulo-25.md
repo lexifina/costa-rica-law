@@ -1,0 +1,1 @@
+ARTÍCULO 25. Las determinaciones o decisiones que tome la Junta Directiva del CCDRSRH por mayoría simple, se denominarán acuerdos. Estos acuerdos serán tramitados comunicados por Asistente Administrativa y deberán ser ejecutados por cada parte interesada.

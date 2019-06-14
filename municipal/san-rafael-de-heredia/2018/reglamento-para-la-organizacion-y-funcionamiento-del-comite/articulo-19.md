@@ -1,0 +1,1 @@
+ARTÍCULO 19. Para que sean válidas las sesiones deberán iniciarse a más tardar quince minutos después de la hora señalada para tal efecto. En caso de falta de quórum se hará constar la asistencia de los presentes, resolviéndose los asuntos administrativos con los directivos presentes, debiendo el Presidente informar en la sesión siguiente lo acordado.

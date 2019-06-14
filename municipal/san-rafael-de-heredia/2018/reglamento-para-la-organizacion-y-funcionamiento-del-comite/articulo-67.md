@@ -1,0 +1,1 @@
+ARTÍCULO 67. DE LOS ACTIVOS. El CCDRSRH deberá seguir los procedimientos que se encuentran en el Manual de Políticas y Procedimientos Administrativos y Financieros aprobado por la Junta Directiva para tener un mejor control de los activos bajo la Administración del CCDRSRH.

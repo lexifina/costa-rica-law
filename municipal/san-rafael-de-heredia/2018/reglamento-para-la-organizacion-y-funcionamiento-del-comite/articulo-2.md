@@ -1,0 +1,5 @@
+CAPITULO II
+DE LA CONSTITUCIÓN Y NATURALEZA JURÍDICA DEL CCDRSRH
+ARTÍCULO 2. El CCDRSRH es el órgano adscrito a la Municipalidad de San Rafael de Heredia, es decir una dependencia municipal que se relaciona directamente al Concejo Municipal, el cual goza de personalidad jurídica instrumental para desarrollar planes, proyectos y programas deportivos y recreativos cantonales, así como construir, administrar y mantener las instalaciones deportivas de su propiedad, personería de la cual dará fe la Secretaria Municipal mediante la certificación respectiva.
+Asimismo, se tiene por cubierta con la mencionada personería jurídica instrumental la totalidad de programas deportivos y recreativos desarrollados por el Comité Cantonal, según el plan de desarrollo del gobierno local en esta materia.
+En ese sentido se constituye como el órgano superior encargado en el Cantón de San Rafael de Heredia, de la promoción, atención, administración, control y vigilancia de la actividad deportiva en todos sus aspectos, así como de la promoción recreativa integral.

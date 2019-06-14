@@ -1,0 +1,1 @@
+ARTÍCULO 38. El Área de Mantenimiento de Instalaciones, estará conformada por un peón agrícola. El área Administrativa Financiera estará conformada por una secretaria administrativa, una asistente administrativa y un contador contratado en la modalidad de servicios profesionales.

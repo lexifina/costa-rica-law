@@ -1,0 +1,1 @@
+ARTÍCULO 50. Los Comités Comunales deberán llevar un libro de actas donde consten todos los acuerdos e informes referentes a su gestión, los cuales podrán ser solicitados por el Comité Cantonal en cualquier momento.

@@ -1,0 +1,2 @@
+ARTÍCULO 7. Los Comités Comunales, Asociaciones Deportivas y Recreativas, y las Comisiones establecidas deberán entregar al Comité Cantonal, en la primera semana del mes de junio de cada año, los planes de trabajo para el año inmediato posterior, los cuales, serán sujetos de aprobación por parte de la Junta Directiva del Comité Cantonal, el cual ejercerá los controles debidos para su ejecución.
+El Plan Operativo Anual del CCDRSRH será aprobado por la Junta Directiva del CCDSRH San Rafael de Heredia antes del 30 de setiembre de cada año.

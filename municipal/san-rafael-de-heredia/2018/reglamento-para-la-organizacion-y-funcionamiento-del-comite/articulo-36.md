@@ -1,0 +1,1 @@
+ARTÍCULO 36. Las actas aprobadas, deberán llevar obligatoriamente las firmas del Presidente y de la Secretaria Administrativa. El libro de actas será autorizado por la Auditoria Interna de la Municipalidad de San Rafael de Heredia y las hojas serán selladas y foliadas por ésta.
