@@ -1,0 +1,3 @@
+Artículo 36°. — Materiales y escombros en la vía pública.
+Exclusivamente frente al predio en donde se ejecute una obra, no es permitido dejar escombros, hacer excavaciones o en alguna forma poner obstáculos al libre tránsito en la vía pública, en forma provisional; para ello es obligatorio obtener de previo la autorización de la Municipalidad. Además, se deberán colocar banderas y letreros durante el día y señales luminosas, claramente visibles, durante la noche, a una distancia de quince metros de los obstáculos, de manera que prevengan anticipadamente al que transite por dicha vía.
+En caso contrario, la Municipalidad procederá, según corresponda, a la suspensión de la obra o a la eliminación del obstáculo.

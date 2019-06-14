@@ -1,0 +1,1 @@
+Artículo 21°. — La ubicación de edificios públicos y privados se hará de acuerdo a lo previsto por el Plan Regulador Municipal, si lo hubiera, y en su defecto, donde lo autoricen los Ministerios respectivos, la Municipalidad y el I.N.V.U; todo de acuerdo a razones eminentemente técnicas.

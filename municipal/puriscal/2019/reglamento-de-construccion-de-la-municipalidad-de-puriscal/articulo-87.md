@@ -1,0 +1,1 @@
+Artículo 87°. — Si pasado el plazo fijado, el propietario no ha dado cumplimiento a la orden anterior, el departamento de Control Constructivo, emitirá una resolución administrativa en la que se indicará el artículo de renuencia y se fijará un último plazo improrrogable de quince días para su cumplimiento.

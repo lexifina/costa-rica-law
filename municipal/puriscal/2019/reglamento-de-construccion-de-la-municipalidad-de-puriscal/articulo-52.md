@@ -1,0 +1,1 @@
+Artículo 52°. — No se autorizarán nuevas patentes y permisos de construcción para usos no residenciales en lotes ubicados frente alameda o a calles menores de 10 metros de derecho de vía. Las patentes existentes continuarán en la misma situación en que se autorizaron.

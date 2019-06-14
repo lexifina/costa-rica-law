@@ -1,0 +1,1 @@
+Artículo 57°. — Escaleras. En los edificios de estacionamiento en que existan escaleras, la comunicación con éstas deberá hacerse a través de una puerta de cierre automático construida con material con un coeficiente retardatorio al fuego no menor de una hora.

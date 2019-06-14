@@ -1,0 +1,2 @@
+Artículo 22°. —El alineamiento exige el retiro de siete metros del centro de la vía, en caminos y carreteras de dominio público, pertenecientes a la Corporación Municipal.
+En lo referido a las construcciones en lotes esquineros, para efectos de la formación de ochavas, se establece a ambos lados del vértice agudo de la línea del cordón de caño un retiro de dos metros cincuenta centímetros. Luego se debe tirar una línea recta entre el punto (cual punto) y punto del retiro de dos metros cincuenta centímetros y al centro de la línea montar baivel para formar curva.

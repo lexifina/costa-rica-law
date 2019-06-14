@@ -1,0 +1,1 @@
+Artículo 89°. — Si la construcción se localiza dentro del área de protección de una naciente, se ordenará su demolición en un plazo de treinta días y se denunciará ante la fiscalía y el Tribunal Ambiental en caso de ser necesario.

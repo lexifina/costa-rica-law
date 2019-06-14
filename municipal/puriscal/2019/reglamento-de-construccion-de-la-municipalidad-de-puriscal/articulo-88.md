@@ -1,0 +1,1 @@
+Artículo 88°. — Si el propietario registral no presenta el proyecto ante la Municipalidad de Puriscal, para su respectivo trámite, cumpliendo con lo establecido en el artículo 40 de este reglamento, se enviar el expediente a la Alcaldía para dictar acto final y proceder con la demolición de la construcción realizada sin licencia y permiso Municipal.

@@ -1,0 +1,1 @@
+Artículo 51°. — Los rótulos deben tramitar permiso de construcción utilizando los requisitos establecidos en el Reglamento de los Derechos de Vía y Publicidad Exterior Nº 29253-MOPT, exceptuando aquellos que sean pintados sobre el inmueble.

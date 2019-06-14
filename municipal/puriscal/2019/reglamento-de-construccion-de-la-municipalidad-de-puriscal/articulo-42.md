@@ -1,0 +1,1 @@
+Artículo 42°. — No se considerarán obras menores, aquellas obras de construcción que según al criterio técnico especializado del funcionario municipal competente, incluyan modificaciones al sistema estructural, eléctrico o mecánico de una edificación, que pongan en riesgo la seguridad de sus ocupantes.

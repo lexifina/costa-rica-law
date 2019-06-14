@@ -1,0 +1,1 @@
+Artículo 80°. — El monto de la licencia constructiva será el 0.5% del valor de la obra tasada por el Colegio de Ingenieros y Arquitectos, o en su defecto el Manual de Valores Base Unitarios por Tipología Constructiva del Ministerio de Hacienda Vigente.

@@ -1,0 +1,1 @@
+Artículo 84°. — Quien no posea la documentación en la obra para que los inspectores puedan verificar la información, así como la bitácora del CFIA, será motivo para que los inspectores procedan a la colocación de sellos, dado que no es posible verificar si la obra está apegada a la legislación vigente.

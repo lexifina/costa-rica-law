@@ -1,0 +1,2 @@
+Artículo 85°. - Entrega de la obra. El administrado o bien el profesional responsable de la obra, podrá hacer entrega de construcción ante la Municipalidad de Puriscal, mediante plataforma de servicios o correo electrónico institucional, donde se solicite la visita para verificar que la obra está terminada conforme a la legislación vigente y aún no está siendo habitada.
+En caso de que la obra este incumpliendo con alguna disposición de este reglamento se procederá con la clausura de la obra y la imposición de multas correspondientes.

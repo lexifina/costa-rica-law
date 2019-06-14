@@ -1,0 +1,1 @@
+Artículo 92°. — La persona a la que se haya aplicado una sanción puede manifestarse su inconformidad en un plazo de cinco días a partir de la fecha en que se le notifico, según lo dispuesto en el artículo 162 del código Municipal.

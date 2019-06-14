@@ -1,0 +1,1 @@
+Artículo 90°. — Si el propietario presenta el proyecto a la Municipalidad, esta deberá comprobar si la obra ha sido ejecutada de acuerdo con él y si ambos satisfacen los requisitos exigidos por la Ley y este Reglamento, sometiéndolo a las pruebas necesarias.

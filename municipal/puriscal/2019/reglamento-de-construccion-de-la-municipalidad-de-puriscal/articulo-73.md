@@ -1,0 +1,1 @@
+Artículo 73°. — Todo edificio de más de cuatro pisos, o con piezas habitables que estén a una altura de doce metros (12,00 m) o más sobre el nivel de la acera, deberá contar con un ascensor capaz de transportar como mínimo, al doce por ciento (12%) de su población en cinco minutos.

@@ -1,0 +1,1 @@
+Artículo 28°. —No se permitirá abrir ventanas ni balcones que den vista a las propiedades colindantes; a menos que intervenga una distancia de metro y medio en las unidades habitacionales de un piso y tres metros en las unidades habitacionales de dos pisos, y por cada piso habitacional más de los antes mencionados deberá adicionarse un metro.

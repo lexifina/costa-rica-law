@@ -1,0 +1,1 @@
+Artículo 75°. —No podrá efectuarse el finiquito de la obra por parte de la municipalidad de Puriscal si no está la acera construida y recibida a satisfacción por parte del encargado de la Unidad Técnica de Gestión Vial.

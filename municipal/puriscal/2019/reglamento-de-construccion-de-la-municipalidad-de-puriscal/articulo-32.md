@@ -1,0 +1,1 @@
+Artículo 32°. —Para la construcción de todo edificio destinado a reuniones públicas, se requiere permiso municipal para su construcción y autorización para su uso, de acuerdo a lo que establece el artículo 60 y siguientes de la Ley de Construcciones.

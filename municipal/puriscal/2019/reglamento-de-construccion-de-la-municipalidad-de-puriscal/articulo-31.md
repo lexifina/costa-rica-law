@@ -1,0 +1,1 @@
+Artículo 31°. — Para efectuar trabajos de demolición parcial o total, o para hacer excavaciones en un predio particular el profesional responsable debe obtener el respectivo permiso municipal, acatando las disposiciones de los artículos 51 a 59 de la Ley de Construcciones y el Reglamento de Seguridad en las Construcciones emitido por el Instituto Nacional de Seguros.
