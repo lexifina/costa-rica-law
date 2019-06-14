@@ -1,1 +1,0 @@
-Artículo 30.—El permiso de construcción, deberá ser solicitado ante el Departamento de Construcciones de la Municipalidad de Puriscal, por el propietario de la obra a ejecutar o por medio de apoderado; este departamento tendrá un mes como máximo para resolver, a partir del momento en que el solicitante cumple con los requisitos que a continuación se indican.

@@ -1,1 +1,0 @@
-Artículo 12.—Para mejorar las condiciones de circulación y aspecto de las edificaciones, frente a los cruzamientos de las vías públicas, la ley señala de utilidad pública la formación de ochavas en los predios situados en las esquinas.
