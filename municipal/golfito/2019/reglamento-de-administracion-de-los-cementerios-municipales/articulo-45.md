@@ -1,0 +1,1 @@
+Artículo 45.—Los cementerios del cantón deberán contar con un espacio mínimo correspondiente al 5% del total del terreno del cementerio, espacio que se destinará para la inhumación de indigentes y para otras contingencias, en estas áreas el servicio de inhumación será gratuito

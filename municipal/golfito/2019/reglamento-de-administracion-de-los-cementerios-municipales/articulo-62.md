@@ -1,0 +1,1 @@
+Artículo 62°: Para adquirir un derecho en el cementerio Municipal se requiere ser vecino del cantón ninguna persona física podre tener más de un derecho individual en este Cementerio estos derechos no podrán ser de más de tres parcelas juntas, definidas estas como espacios de 1,25 por 2,50 metros.

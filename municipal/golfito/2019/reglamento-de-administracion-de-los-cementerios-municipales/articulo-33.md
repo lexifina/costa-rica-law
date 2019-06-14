@@ -1,0 +1,1 @@
+Artículo 33.---- Las exhumaciones sean ordinarias o extraordinarias se harán siempre en presencia del encargado del cementerio y de dos testigos debiendo levantarse un acta firmada por los presentes, la que conservara la administración del cementerio.

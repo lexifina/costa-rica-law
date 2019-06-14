@@ -1,0 +1,1 @@
+Artículo 31.---- El permiso de exhumación extraordinaria será extendido por el Área Rectora de Salud del Ministerio de Salud y especificara las precauciones sanitarias que en cada caso deberán observar los encargados de ejecutarlas.

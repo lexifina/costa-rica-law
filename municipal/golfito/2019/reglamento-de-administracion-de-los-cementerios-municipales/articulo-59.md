@@ -1,0 +1,1 @@
+Artículo 59.— El Consejo municipal podrá autorizar la exoneración del pago de derechos siempre y cuando concurran razones excepcionales de indigencia, salubridad e interés público. Lo anterior se hará mediante acuerdo municipal debidamente motivado.

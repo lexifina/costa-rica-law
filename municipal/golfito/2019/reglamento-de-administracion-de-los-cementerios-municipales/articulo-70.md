@@ -1,0 +1,1 @@
+Artículo 70°: Los jarrones, macetas y otros recipientes que se coloquen sobre las bóvedas deberán estar permanentemente drenados por medio de agujeros conforme con lo que se dispone el decreto N°20 del 8 de noviembre de 1938.

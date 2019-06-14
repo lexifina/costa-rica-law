@@ -1,0 +1,1 @@
+Artículo 25.--- Cuando las exhumaciones ordinarias se realicen dentro dentro del mismo cementerio no requieren de orden o permiso especial, después de transcurrido el tiempo establecido en el articulo.

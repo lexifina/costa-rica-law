@@ -1,0 +1,1 @@
+Artículo 35.---- El director de todo hospital público o privado donde ocurra una defunción consecuencia de una enfermedad contagiosa, en consulta con el Área Rectora de Salud respectiva podrán autorizar el traslado directo del cadáver al cementerio.

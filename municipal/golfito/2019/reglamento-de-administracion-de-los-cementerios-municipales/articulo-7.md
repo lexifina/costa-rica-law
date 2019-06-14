@@ -1,0 +1,1 @@
+Artículo 7º—Cada derecho de uso podrá estar constituido de una sola parcela y hasta un máximo de dos parcelas siempre que estas estén contiguas. Las medidas máximas de cada derecho serán de 1,25 metros de ancho por 2 metros de largo las individuales y de 2,50 metros de ancho por 2 metros de largo las dobles.

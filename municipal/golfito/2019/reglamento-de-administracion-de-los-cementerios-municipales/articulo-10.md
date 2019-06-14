@@ -1,0 +1,1 @@
+Artículo 10.—El importe que se cancela como contraprestación por el derecho de uso de un espacio constituye un “Precio Público” y conforme lo establecen los artículos 4 inciso d), 13 inciso b) y 74 del Código Municipal será el Concejo Municipal el encargado de fijar su monto anualmente, así como el de los servicios accesorios que se brinden en los cementerios.
