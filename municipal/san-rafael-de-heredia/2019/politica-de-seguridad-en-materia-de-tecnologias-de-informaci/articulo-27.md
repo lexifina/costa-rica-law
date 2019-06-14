@@ -1,0 +1,2 @@
+Artículo 27. —Licencias de software.
+La Unidad de Tecnologías de Información y Comunicación en coordinación con la Alcaldía Municipal y proveeduría Municipal garantizará que todo software que se instale en las máquinas propiedad de la Municipalidad, cuenten con la licencia respectiva.

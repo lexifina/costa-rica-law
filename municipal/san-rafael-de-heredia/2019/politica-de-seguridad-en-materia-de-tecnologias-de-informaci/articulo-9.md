@@ -1,0 +1,4 @@
+Artículo 9. —Planificación y administración.
+Corresponderá a la Unidad de Tecnologías de Información y Comunicación definir el modelo de arquitectura de la Institución y los parámetros para optimizar la infraestructura tecnológica, atendiendo a los siguientes marcos de referencia:
+a) Modelo de arquitectura de información: Asesoramiento necesario para el uso y compra en estandarización de los sistemas de información.
+b) Infraestructura tecnológica: Proporcionar los lineamientos para el desarrollo de las condiciones en materia tecnológica, así como las tendencias de las TI para optimizar el uso de la infraestructura tecnológica.

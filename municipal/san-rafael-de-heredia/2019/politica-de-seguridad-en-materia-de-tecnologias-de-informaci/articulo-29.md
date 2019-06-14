@@ -1,0 +1,6 @@
+Artículo 29. —Procedimiento para reparación o sustitución de hardware.
+Para la reparación o sustitución de equipo de cómputo, se procederá de la siguiente forma:
+a) La Unidad de Tecnologías de Información y Comunicación una vez realizada la valoración o diagnóstico del equipo determinará por costos el paso más recomendable a seguir entre actualización de componentes, sustitución parcial o completa. Dicha recomendación deberá ser conocida por el usuario final y la Jefatura correspondiente para que se tome en cuenta para medir tiempos de espera o medidas alternas.
+b) En el supuesto que el equipo se encuentre en garantía, corresponderá a la Unidad de Tecnologías de Información y Comunicación comunicarse con el proveedor del equipo y velar que éste sea reparado o cambiado según corresponda.
+c) Cuando el equipo no se encuentre en garantía, la Unidad de Tecnologías de Información y Comunicación empezará por realizar la requisición en Proveeduría, quien a su vez verificará que exista presupuesto y dará su visto bueno para efectuar la reparación.
+d) Para cualquiera que sea el caso, corresponde únicamente a la Unidad de Tecnologías de Información y Comunicación o a quien la Alcaldía Municipal designe para tal fin; el retiro, traslado y reintegro de los equipos que presenten problemas y sean llevados a diagnostico o fuera de la institución.

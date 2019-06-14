@@ -1,0 +1,2 @@
+Artículo 14. —Almacenamiento de programas.
+Salvo programas y equipos de alta sensibilidad en los que la Unidad de Tecnologías de Información y Comunicación no provea de la seguridad razonable, todo software original, disquetes, cintas, CD y otros medios de almacenamiento deberán ser custodiados por dicha Unidad, quien a su vez debe tener claramente especificado a qué departamento pertenece cada equipo.

@@ -1,0 +1,2 @@
+Artículo 12. —Del egreso del equipo de cómputo de la Municipalidad.
+Cuando sea requerido trasladar equipo de cómputo fuera de la Municipalidad, deberán llenar el formulario digital para control de eventos de la Unidad de Tecnologías de Información y Comunicación con el visto bueno del jefe del departamento. El incumplimiento de estas disposiciones generará responsabilidad disciplinaria en los funcionarios que las incumplan.

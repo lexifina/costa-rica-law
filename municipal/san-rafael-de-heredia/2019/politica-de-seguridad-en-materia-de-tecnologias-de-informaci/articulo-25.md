@@ -1,0 +1,2 @@
+Artículo 25. —Del software y hardware permitido.
+El único software que debe estar instalado en el disco duro de cada computador y el único hardware que podrá utilizar el personal, es aquel que haya sido instalado por la Unidad de Tecnologías de Información y Comunicación de la Municipalidad; y/o algunos otros que provengan de otras instituciones públicas o privadas que previamente hayan sido autorizados por la Unidad de Tecnologías de Información y Comunicación.

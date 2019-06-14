@@ -1,0 +1,7 @@
+Artículo 33. —Servicios prestados por terceros.
+Para la contratación de consultorías externas en materia de Tecnologías de Información, la Unidad de Tecnologías de Información y Comunicación deberá dar el visto bueno preliminar y redactará las especificaciones técnicas necesarias para que el Departamento de Proveeduría realice el procedimiento de contratación según los parámetros establecidos en la Ley de Contratación Administrativa y su Reglamento. Así bien, en caso de no darse el visto bueno, la Unidad de Tecnologías de Información y Comunicación deberá brindar la justificación técnica. Se suscribirá además un contrato para cada consultoría que deberá contener como mínimo:
+a) Los términos generales en que ésta se va a desarrollar
+b) Un plan o cronograma de trabajo
+c) Una cláusula de confidencialidad, mediante la cual se garantice que la información a la que se tenga acceso no va a ser divulgada o utilizada sin la autorización previa, expresa y por escrito del Alcalde Municipal.
+d) Una sección sobre evaluación del cumplimiento del contrato o convenio, donde se establezcan criterios para sanción, medición o renovación.
+La Municipalidad deberá procurar mantener una dependencia mínima con respecto a proveedores de software; para lo cual dentro de sus posibilidades realizará las adquisiciones correspondientes de aplicativos propietario. Para esto debe garantizarse mantener el personal idóneo para cada puesto del Manual vigente (Programador, Jefatura y Técnico en Soporte).
