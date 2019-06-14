@@ -1,0 +1,1 @@
+Artículo 13—Para el control de los fondos invertidos en la promoción del deporte, este Reglamento se le entregará a cada asociación o personas inscritas, copia del mismo para su conocimiento y aplicación de los controles pertinentes y las sanciones a que queda sometido en caso de incumplimiento de este cuerpo normativo.

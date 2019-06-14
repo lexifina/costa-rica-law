@@ -1,0 +1,1 @@
+Artículo 8—Las asociaciones u organizaciones que reciban apoyo en sus planes, programas o proyectos deberán participar activamente en todas las iniciativas o proyectos deportivos o recreativos gestados directamente por el Comité Cantonal para la comunidad.

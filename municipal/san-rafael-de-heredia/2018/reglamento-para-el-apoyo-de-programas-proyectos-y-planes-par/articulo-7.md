@@ -1,0 +1,1 @@
+Artículo 7—Serán denegadas todas aquellas solicitudes de asociaciones y organizaciones que no cumplan en su totalidad con los requisitos; así como también serán denegadas las solicitudes de atletas individuales de cualquier disciplina.

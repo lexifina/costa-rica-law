@@ -1,0 +1,1 @@
+Artículo 15—Cualquier apoyo mediante esta modalidad deberá ser facturado a nombre del Comité Cantonal de Deportes y Recreación manteniendo toda la legalidad y procesos necesarios de Contratación y Administración Pública.
