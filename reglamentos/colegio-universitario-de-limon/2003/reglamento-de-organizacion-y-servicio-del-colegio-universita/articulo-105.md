@@ -1,3 +1,0 @@
-Artículo 105.—El CUNLIMÓN concederá permiso con goce de salario al trabajador que deba concurrir a los servicios médicos de la CCSS, el INS y consulta médica privada, pero el servidor estará obligado a presentar el comprobante de tal asistencia al regresar a la institución, para justificar la ausencia. El incumplimiento de esta obligación o el mal uso del permiso será considerado falta leve y la reincidencia como falta grave para efectos de sanción.
-La alteración de documentos emanados de CCSS, el INS o médico particular se considerará falta grave para efectos de sanción.
-(Corrida su numeración mediante sesión N° 004-2018 del 1° de marzo del 2018, que lo traspasó del antiguo artículo 104 al 105)

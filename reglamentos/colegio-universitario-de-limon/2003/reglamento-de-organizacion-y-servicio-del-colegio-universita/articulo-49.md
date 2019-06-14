@@ -1,2 +1,0 @@
-Artículo 49.—Para las solicitudes de carrera profesional, incentivos, cálculos, factores, otorgamientos y demás, deberá tenerse presente las disposiciones del Decreto Ejecutivo Nº 33048-H y su reforma Decreto Ejecutivo N° 35352-H, normas para la Aplicación de Carrera Profesional para las Entidades cubiertas por el ámbito de la Autoridad Presupuestaria.
-(Así reformado mediante sesión N° 004-2018 del 1° de marzo del 2018)

@@ -1,2 +1,0 @@
-Artículo 174.—Ninguna persona que haya denunciado ser víctima de hostigamiento sexual o haya comparecido como testigo de las partes, podrá sufrir, por ello, perjuicio personal alguno en su empleo. Asimismo, quien haya denunciado hostigamiento sexual falso, podrá incurrir, cuando así se tipifique, en cualquiera de las conductas propias de la difamación, la injuria o la calumnia, según el Código Penal.
-(Corrida su numeración mediante sesión N° 004-2018 del 1° de marzo del 2018, que lo traspasó del antiguo artículo 173 al 174)

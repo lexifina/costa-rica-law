@@ -1,2 +1,0 @@
-Artículo 155.—Las sanciones descritas en este capítulo, serán aplicadas por el Jefe Inmediato las amonestaciones verbales y escritas quedando copia de la misma en el expediente del servidor. Las otras sanciones serán aplicadas por el Decano a través de la Unidad de Recursos Humanos, conforme al procedimiento que se establece en este Reglamento.
-(Corrida su numeración mediante sesión N° 004-2018 del 1° de marzo del 2018, que lo traspasó del antiguo artículo 154 al 155)

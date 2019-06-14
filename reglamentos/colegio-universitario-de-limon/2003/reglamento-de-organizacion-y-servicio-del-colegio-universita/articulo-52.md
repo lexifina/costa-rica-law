@@ -1,2 +1,0 @@
-Artículo 52.—Para las solicitudes de ingreso al reconocimiento de méritos o carrera docente, incentivos, cálculos, factores, otorgamientos y demás, deberá tenerse presente las disposiciones del Decreto Ejecutivo N° 33048-H y su reforma Decreto Ejecutivo Nº35352-H, normas para la Aplicación de Carrera Profesional para las Entidades cubiertas por el ámbito de la Autoridad Presupuestaria.
-(Así reformado mediante sesión ordinaria N° 004-2018 del 1° de marzo del 2018)

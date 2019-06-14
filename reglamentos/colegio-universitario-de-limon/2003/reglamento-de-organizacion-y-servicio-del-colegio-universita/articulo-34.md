@@ -1,4 +1,0 @@
-Artículo 34.—La Unidad de Recursos Humanos podrá declarar desierto el concurso por razones de interés institucional con autorización de la Decanatura, de lo que deberá dejar constancia en el expediente del concurso. En tal caso procederá a publicar nuevamente el concurso, con las recomendaciones que se determinen. De persistir tal situación el CUNLIMÓN podrá contratar de forma interina el recurso humano más idóneo.
-La Decanatura podrá autorizar nombrar el recurso humano necesario de forma interina por plazos de hasta seis meses en el caso de los servidores administrativos. Y de cuatro meses en el caso del personal docente y docente- administrativo, mientras se realiza el concurso correspondiente.
-En estos casos el Decano podrá prorrogar por periodos iguales, en tanto se concluya con la selección y nombramiento del personal idóneo.
-(Así reformado mediante sesión N° 004-2018 del 1° de marzo del 2018)

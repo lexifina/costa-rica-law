@@ -1,1 +1,0 @@
-Artículo 17.—La modificación de las condiciones de la relación de servicio se efectuará mediante acción de personal expedida por la Jefatura de la Unidad de Recursos Humanos, y autorizada por el Decano.

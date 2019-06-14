@@ -1,2 +1,0 @@
-Artículo 80.—El disfrute de vacaciones podrá ser suspendido por la Administración únicamente cuando se presente un caso de emergencia o de urgencia en la institución y se considere que la solución del problema podría estar en el regreso inmediato del servidor. Los servidores así requeridos, deberán acatar la orden, salvo que exista una razón de fuerza mayor debidamente acreditada que lo impida.
-(Corrida su numeración mediante sesión N° 004-2018 del 1° de marzo del 2018, que lo traspasó del antiguo artículo 79 al 80)

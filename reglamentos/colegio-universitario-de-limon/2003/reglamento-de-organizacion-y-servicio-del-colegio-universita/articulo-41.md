@@ -1,3 +1,0 @@
-Artículo 41.—El manual descriptivo de puestos contemplará la naturaleza, cargo, ubicación, caracterización de las actividades representativas, condiciones organizacionales, responsabilidad, condiciones ambientales, características personales deseables y los requisitos técnicos y legales para los nombramientos.
-La Unidad de Recursos Humanos en coordinación con las jefaturas será la responsable de mantener actualizado el Manual de Clases y Puestos del CUNLIMÓN, en todo lo concerniente a funciones, responsabilidades y escala salarial.
-(Así reformado mediante sesión N° 004-2018 del 1° de marzo del 2018)

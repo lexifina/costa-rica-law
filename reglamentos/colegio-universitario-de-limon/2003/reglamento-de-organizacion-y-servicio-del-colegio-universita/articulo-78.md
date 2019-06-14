@@ -1,2 +1,0 @@
-Artículo 78.—El período comprendido entre el tercer sábado de diciembre y el primer lunes de enero del año siguiente, la Semana Santa, y la primera semana de julio, el CUNLIMÓN permanecerá cerrado por receso. Durante estos períodos sus servidores disfrutarán de vacaciones. En todos los casos, el saldo que pudiere quedar pendiente a disfrutar de vacaciones deberá ser disfrutado a la última fracción disfrutada.
-(Corrida su numeración mediante sesión N° 004-2018 del 1° de marzo del 2018, que lo traspasó del antiguo artículo 77 al 78)

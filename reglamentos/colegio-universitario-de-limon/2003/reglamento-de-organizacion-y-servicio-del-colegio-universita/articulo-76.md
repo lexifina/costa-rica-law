@@ -1,2 +1,0 @@
-Artículo 76.—En caso que el interés público lo demande o se establezcan roles especiales, se podrá trabajar los días de descanso semanal, cuando lo autorice la Decanatura. Si se llega a exceder la jornada ordinaria correspondiente, se reconocerá el pago de salario extraordinario, de acuerdo a los parámetros establecidos por la Contraloría General de la República y en este reglamento.
-(Corrida su numeración mediante sesión N° 004-2018 del 1° de marzo del 2018, que lo traspasó del antiguo artículo 75 al 76)

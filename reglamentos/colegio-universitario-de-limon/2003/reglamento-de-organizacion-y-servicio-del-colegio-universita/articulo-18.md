@@ -1,1 +1,0 @@
-Artículo 18.—Para efectos de sustituciones de servidores se procederá en concordancia con lo dispuesto en el artículo 95 de la Ley General de la Administración Pública y las directrices gubernamentales respectivas.

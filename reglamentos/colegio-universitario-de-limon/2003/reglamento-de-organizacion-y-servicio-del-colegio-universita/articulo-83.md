@@ -1,2 +1,0 @@
-Artículo 83.—Los funcionarios docentes disfrutarán de vacaciones en los períodos de receso lectivo y en enero hasta el segundo lunes de dicho mes, según acuerdo a que llegue con el Director Académico. En casos justificados y con autorización del Director, podrá disfrutar de vacaciones fuera de dichos períodos.
-(Corrida su numeración mediante sesión N° 004-2018 del 1° de marzo del 2018, que lo traspasó del antiguo artículo 82 al 83)

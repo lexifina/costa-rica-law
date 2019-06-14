@@ -1,2 +1,0 @@
-Artículo 77.—Todos los días del año son hábiles para el servicio, salvo los feriados señalados en el artículo 148 del Código de Trabajo y aquellos que el Poder Ejecutivo declare de asueto. Sin embargo, podrá trabajarse en tales días, siempre y cuando ello sea posible a tenor de lo establecido en el artículo 51 del cuerpo legal supracitado.
-(Corrida su numeración mediante sesión N° 004-2018 del 1° de marzo del 2018, que lo traspasó del antiguo artículo 76 al 77)
