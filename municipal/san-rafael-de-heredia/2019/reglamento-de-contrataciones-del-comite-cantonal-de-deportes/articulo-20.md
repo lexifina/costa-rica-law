@@ -1,0 +1,2 @@
+ARTÍCULO 20.- Inventario de Instalaciones.
+El Comité debe tener un inventario de todas las instalaciones deportivas y recreativas según señala el artículo 171 del Código Municipal que dice que la Municipalidad podrá ceder en administración las instalaciones deportivas y recreativas de su propiedad a los Comités Cantonales. Para ello, se elaborarán los convenios legales respectivos, los cuales serán resguardados en el área administrativa y controlados por la Junta Directiva.

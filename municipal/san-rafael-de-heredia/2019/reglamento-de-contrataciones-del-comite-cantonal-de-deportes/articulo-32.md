@@ -1,0 +1,1 @@
+ARTÍCULO 32. De conformidad con el artículo 65 de la ley de contratación administrativa, ninguna contratación de servicios ya sea técnica o profesional generara relación de empleo público, con las excepciones señaladas en el artículo 67 de la misma ley.

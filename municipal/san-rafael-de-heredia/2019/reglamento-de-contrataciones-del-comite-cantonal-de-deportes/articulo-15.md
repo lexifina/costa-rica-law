@@ -1,0 +1,2 @@
+ARTÍCULO 15.- Coordinación interna con respecto al cartel.
+El Cartel es el reglamento específico de la contratación y en el cual se regirán todas las reglas con las cuales el Comité dispondrá el procedimiento referente al objeto de la contratación, las aclaraciones, modificaciones y prórrogas al plazo de recepción de ofertas, el factor de adjudicación, entre otras disposiciones y regulaciones serán acordadas en sesiones de la Junta Directiva.

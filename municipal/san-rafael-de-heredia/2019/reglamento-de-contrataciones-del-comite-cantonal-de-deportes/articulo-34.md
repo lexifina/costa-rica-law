@@ -1,0 +1,3 @@
+ARTÍCULO 34. Sanciones a funcionarios. Las sanciones administrativas deberán ser impuestas por el Comité quien ostentará la potestad disciplinaria, en contra de los funcionarios que realicen actuaciones contrarias a las disposiciones de la Ley de Contratación Administrativa y el presente Reglamento.
+Dichas sanciones consistirán en apercibimiento escrito, suspensión sin goce de salario, despido según las disposiciones de la Ley de Contratación Administrativa.
+Por infringir este Reglamento se aplicarán las sanciones anteriormente descritas u otras que disponga el Comité, según el grado de la falta.

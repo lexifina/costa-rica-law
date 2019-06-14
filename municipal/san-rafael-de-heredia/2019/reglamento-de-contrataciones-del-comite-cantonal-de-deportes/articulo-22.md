@@ -1,0 +1,8 @@
+ARTÍCULO 22. Procedimiento de inscripción
+El procedimiento de inscripción en el Registro de Proveedores del Comité de Deportes contempla los siguientes pasos:
+1. La administración invitará a los interesados o interesadas en integrar el Registro de Proveedores, mediante publicación en el Diario Oficial La Gaceta, en la página web de la Municipalidad de San Rafael de Heredia, al menos una vez al año. No obstante, lo anterior, todo interesado o interesada en ser incluido en el Registro de Proveedores, podrá solicitar su incorporación en cualquier momento, sin que exista un tiempo establecido para hacerlo.
+2. Los interesados o interesadas deben completar en forma electrónica el respectivo formulario el cual puede ser accesado desde la página Web de la Municipalidad ó bien podrá ser retirado en las oficinas del Comité.
+3. Una vez que el interesado o interesada se haya inscrito, debe remitir al Comité las certificaciones, declaraciones juradas y demás documentación física que en la página Web se señala.
+4. La administración cuenta con un plazo máximo de tres días hábiles para verificar si el interesado aportó toda la información solicitada.
+5. En aquellos casos en que la información sea defectuosa o poco clara, se prevendrá al interesado o interesada su subsanación, para lo cual se le concederá un plazo máximo de cinco días hábiles.
+6. Si la prevención es atendida correctamente, se otorgará la inscripción; caso contrario, la solicitud se tendrá por rechazada.

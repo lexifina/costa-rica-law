@@ -1,0 +1,2 @@
+ARTÍCULO 19.- Contrataciones de los Comités Comunales de Deportes y Recreación adscritos al Comité Cantonal:
+Al no contar los Comités Comunales con personalidad jurídica -ni plena ni instrumental, el Comité debe realizar todo el procedimiento de contratación administrativa, mediante un acuerdo tomado por la Junta Directiva considerando que exista el suficiente contenido presupuestario de acuerdo a los estudios de mercado del costo del objeto solicitado.

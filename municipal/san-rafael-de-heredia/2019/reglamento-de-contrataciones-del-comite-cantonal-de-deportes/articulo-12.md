@@ -1,0 +1,1 @@
+ARTÍCULO 12.- No será necesaria la existencia de un cartel de licitación en los siguientes casos: Actividad ordinaria del Comité, contratación de servicios públicos, servicios de capacitación, adquisición de combustibles, modificación por concepto de ampliación o disminución del objeto contractual o por tratarse de un contrato adicional, compras con la caja chica.
