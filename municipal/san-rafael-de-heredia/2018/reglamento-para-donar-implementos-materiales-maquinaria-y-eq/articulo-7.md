@@ -1,0 +1,2 @@
+Artículo 7—Toda aquella organización que desee ser beneficiaria de Implementos, materiales, maquinaria y equipo inscrita dentro del registro padrón, deberá cumplir con todos los requisitos que se exigen en el Reglamento para la organización y funcionamiento del comité cantonal de deportes y recreación de San Rafael de Heredia en su Artículo 47, previo a recibir cualquier tipo de beneficio.
+Podrán ser beneficiarios de implementos materiales, maquinaria y equipo solos aquellas organizaciones que cuenten con domicilio legal en el cantón de San Rafael.

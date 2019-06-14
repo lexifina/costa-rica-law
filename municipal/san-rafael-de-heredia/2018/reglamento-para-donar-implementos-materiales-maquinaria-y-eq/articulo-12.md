@@ -1,0 +1,1 @@
+Artículo 12—Ningún miembro de la Junta Directiva, ni personal Administrativo, podrá realizar entrega de implementos deportivos, si la persona autorizada para su retiro no presenta su cédula de identidad al día y sin alteración alguna o si la persona autorizada se niega a firmar como recibida la entrega de los bienes.

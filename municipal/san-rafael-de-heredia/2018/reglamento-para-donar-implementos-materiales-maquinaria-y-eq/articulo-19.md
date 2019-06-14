@@ -1,0 +1,1 @@
+Artículo 19—Cualquier compra realizada para la donación de implementos, materiales, maquinaria y equipo deberá ser facturada a nombre del Comité Cantonal de Deportes y Recreación manteniendo toda la legalidad y procesos necesarios de Contratación y Administración Pública.

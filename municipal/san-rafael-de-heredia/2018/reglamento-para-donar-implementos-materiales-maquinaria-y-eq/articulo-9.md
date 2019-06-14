@@ -1,0 +1,1 @@
+Artículo 9—Las organizaciones que reciban implementos, materiales, maquinaria o equipo deberán participar activamente en todas las iniciativas o proyectos deportivos o recreativos gestados directamente por el Comité Cantonal para la comunidad y solo los podrán ser utilizados en las actividades para los cuales fueron entregados.
