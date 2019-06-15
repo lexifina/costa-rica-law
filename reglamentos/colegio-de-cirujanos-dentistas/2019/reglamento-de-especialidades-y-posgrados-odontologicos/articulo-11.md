@@ -1,0 +1,14 @@
+REGISTRO E INCORPORACIÓN
+Artículo 11- Requisitos de Registro:
+Para obtener la incorporación como especialista, maestría o doctorado, el profesional debe estar incorporado al Colegio de Cirujanos Dentistas de Costa Rica, ser miembro activo y presentar solicitud escrita, indicando lugar o medio para recibir notificaciones. Adjuntar además, los documentos solicitados para tal fin, ante la Dirección Administrativa la cual deberá trasladarla a la Comisión de Registro de Especialidades y Posgrados Odontológicos para su debido análisis. Los documentos por presentar son los siguientes:
+i. Título Universitario o su equivalente que compruebe el cumplimiento de lo indicado en el artículo #2 de este Reglamento en el que conste la especialidad efectuada. No se considerarán como documentos universitarios las certificaciones extendidas por Colegios Profesionales ni las de entidades no universitarias.
+ii. Lista de todos los cursos teóricos, práctica clínica, de laboratorio, hospitalaria o comunitaria, efectuados anualmente, por semestres o cuatrimestres; indicando el número de horas, créditos o unidad valorativa, donde se demuestre la aprobación de los mismos, emitida por la Universidad o el ente de la educación superior
+iii. Descripción del contenido de cualquier curso, cuando a juicio de la Comisión de Registro de Especialidades y Posgrados Odontológicos así se requiera para aclarar dudas sobre el mismo.
+iv. Cuando el profesional en odontología haya efectuado sus estudios de especialización en el extranjero, además de los requisitos establecidos en los incisos i), ii) y iii), debe presentar los atestados de las universidades o instituciones académicas universitarias autorizadas para otorgar títulos, o su equivalente a grados académicos, del país donde se efectuaron los estudios, las firmas de los documentos solicitados deberán ser debidamente autenticadas por:
+a. Las autoridades correspondientes y el Ministerio de Relaciones Exteriores y Culto o similar del país donde se efectuaron los estudios.
+b. El Cónsul de Costa Rica en ese país. Si no lo hubiere, el Cónsul más cercano que
+tenga la jurisdicción de ese país o Estado.
+c. El Ministerio de Relaciones Exteriores y Culto de Costa Rica.
+d. O bien estar debidamente apostillado.
+v. Cuando el Cirujano Dentista haya efectuado sus estudios de especialización en Costa Rica, en una de las especialidades aprobadas por el Sistema de Estudios de Posgrado de la Universidad de Costa Rica (S.E.P.) o por las instituciones de Educación Superior Universitaria Privada (Aprobadas por el CONESUP), deberá presentar el título respectivo y los atestados señalados en los incisos i), ii), iii) de este artículo.
+VI. Recibo que compruebe el pago hecho al Colegio de Cirujanos Dentistas de Costa Rica, de los respectivos derechos por el valor establecido por la Junta Directiva. Este pago no es reembolsable aún si no se aprueba la incorporación.

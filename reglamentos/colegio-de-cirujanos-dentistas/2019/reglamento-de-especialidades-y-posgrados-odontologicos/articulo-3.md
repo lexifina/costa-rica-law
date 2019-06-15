@@ -1,0 +1,6 @@
+Artículo 3- Maestrías:
+Es el grado académico otorgado a las personas que cumplan los requisitos de un programa de Maestría en instituciones de enseñanza universitaria, debidamente reconocidas por el ente oficial en el país donde se efectuaron dichos estudios, contando con la autorización para extender títulos o grados académicos que cumplan con el artículo 9 y 10 de este Reglamento.
+La maestría tiene dos modalidades, Académica y profesional.
+Maestría Académica profundiza y actualiza la formación en un área específica con el objetivo de realizar investigaciones que genere más conocimiento, por lo que ésta se constituye en su núcleo generador y la cual finaliza con un trabajo de investigación o tesis de posgrado.
+Maestría Profesional profundiza y actualiza conocimiento, con el objetivo primordial de analizarlo, sintetizarlo, transmitirlo y solucionar problemas. La investigación práctica aplicada se da a través de estudios de casos, diagnósticos y propuestas, producción artística o documental, laboratorios, prácticas profesionales. La investigación debe evidenciarse en uno o varios informes y en una presentación final.
+Las Maestrías tanto académicas o profesionales que tengan un contacto directo a pacientes deberán ser presenciales, tiempo completo y con una duración mínima de dos años.

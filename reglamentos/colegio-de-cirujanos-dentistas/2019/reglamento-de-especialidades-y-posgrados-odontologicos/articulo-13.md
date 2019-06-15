@@ -1,0 +1,4 @@
+Artículo 13- Perfiles:
+La Comisión de Registro de Especialidades y Posgrados Odontológicos solicitará los perfiles actualizados de profesionales de las especialidades registradas a las Academias, Asociaciones o Universidades existentes y/o una tema de especialistas semejantes que escoja la Comisión que no cuenten con ninguna de las anteriores.
+De acuerdo con los perfiles que en su momento brinden las Academias, Asociaciones, Universidades o temas de especialistas, se establecerán los requisitos mínimos que solicitará la Comisión de Especialidades y Posgrados Odontológicos. Lo anterior para cumplir con la aplicación del inciso g) del artículo# 6 de este Reglamento.
+Tales perfiles cumplirán con los requisitos mínimos del artículo#10 del presente reglamento y ser revisados y/o actualizados al menos cada dos años, o será automáticamente aceptado el anterior documento.

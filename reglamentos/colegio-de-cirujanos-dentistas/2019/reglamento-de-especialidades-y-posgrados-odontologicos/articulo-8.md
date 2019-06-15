@@ -1,0 +1,3 @@
+Artículo 8- Inscripción Profesional:
+Será inscrito como Especialista, Máster o Doctor, el profesional en odontología activo e incorporado al Colegio de Cirujanos Dentistas de Costa Rica que demuestre ante la Comisión de Registro de Especialidades y Posgrados Odontológicos haber cumplido, satisfactoriamente, con los requisitos indicados en este Reglamento.
+Los profesionales en odontología que cumplan con todos los requisitos especificados en este reglamento, serán nombrados y juramentados con su respectivo grado o grados académicos por la Junta Directiva del Colegio de Cirujanos Dentistas de Costa Rica.

@@ -1,0 +1,2 @@
+Artículo 4- Doctorado Académico:
+Es el grado máximo que otorga la Educación Superior Universitaria el cual requiere formar investigadores académicos, teniendo un gran rigor y profundidad con la cual se realiza la investigación y los cursos deben ser solo un apoyo a la investigación. El plan de estudios debe ser flexible y eficaz en desplazar la carga académica del estudiante hacia la carrera de investigación. La investigación debe evidenciarse en uno o varios informes y en una presentación final.

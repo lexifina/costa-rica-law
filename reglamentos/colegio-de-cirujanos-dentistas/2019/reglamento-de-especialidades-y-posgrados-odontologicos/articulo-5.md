@@ -1,0 +1,3 @@
+Artículo 5- Créditos:
+Crédito es la unidad valorativa del trabajo del estudiante, equivalente a tres horas reloj semanal de su trabajo del mismo, durante 15 semanas, 1 crédito equivale a 45 horas reloj de trabajo aplicadas a una actividad que ha sido supervisada, evaluada y aprobada por el profesor. La carga académica máxima es de 18 créditos por ciclo de 15 semanas que equivalen a una dedicación de 54 horas semanales, SEP (Sistema de Estudios de Posgrado de la Universidad de Costa Rica). El Tiempo efectivo de 12 meses (tiempo completo) corresponde a un tiempo de 44 a 46 semanas lectivas y 6 a 8 semanas de vacaciones por año.
+Las maestrías y doctorados deben cumplir con los requisitos del artículo# 10.
