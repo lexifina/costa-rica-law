@@ -1,3 +1,0 @@
-Artículo 4º—Por pago de reconocimiento de compensación económica por disponibilidad se reconocerá al trabajador un 25% sobre su salario base. Entratándose de un trabajador contratado bajo el régimen de Salario Único, el cálculo se realizará tomando como punto de referencia el mismo salario base de un trabajador que ocupa igual clase y puesto, pero que se encuentra bajo el sistema salarial constituido por un salario base.
-Esta retribución económica no podrá ser reputada como aumento salarial, ni servir como base de cálculo para otros complementos salariales, ni tampoco para aumentar el salario base.
-(Así reformado por acuerdo de Junta Directiva en la sesión ordinaria 4095 del 5 de marzo del 2003)
