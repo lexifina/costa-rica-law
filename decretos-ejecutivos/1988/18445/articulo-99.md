@@ -1,0 +1,6 @@
+ARTICULO 99.- DEROGADO (De acuerdo con la reforma practicada por el artículo 2 del Decreto Ejecutivo N° 20620 de 8 de agosto de 1991 se corrió la numeración y el presente artículo 70 ocupó el lugar que antes correspondía al artículo 69).
+(Derogado por el artículo 2º del Decreto Nº 21580 de 10 de setiembre de 1992).
+(Corrida la numeración por el artículo 5° del decreto ejecutivo N° 41818 del 17 de junio de 2019, que lo traspaso del artículo 70 al 68, ya que mediante el artículo 5° del decreto ejecutivo N° 41818 del 17 de junio de 2019, se ordena derogar los numerales 18 y 19)
+(Corrida su numeración por el artículo 5° del decreto ejecutivo N° 41818 del 17 de junio del 2019, que lo traspasó del artículo 68 al 67 , ya que mediante el artículo 5° del decreto ejecutivo N° 41818 del 17 de junio de 2019, se ordena derogar el original artículo 26” Venta de terrenos en lotes urbanizados”)
+(Corrida su numeración por el artículo 3° del decreto ejecutivo N° 41818 del 17 de junio del 2019, que lo traspasó del artículo 67 al 89)
+(Corrida su numeración por el artículo 3° del decreto ejecutivo N° 41818 del 17 de junio del 2019, que lo traspasó del artículo 89 al 99, toda vez que incluyó un nuevo Título V que contiene de los artículo 65 al 74)

@@ -1,4 +1,7 @@
-ARTICULO 10.- Exclusiones de la renta bruta. No forman parte de la
-renta bruta los rubros estipulados en el artículo 6º de la Ley.
-(Así reformado por el inciso 3 del artículo 8 del Decreto Ejecutivo N° 29643
-de 10 de julio del 2001).
+Artículo 10.- Exclusiones de la renta bruta. No forman parte de la renta bruta los supuestos establecidos en el artículo 6 de la Ley del Impuesto sobre la Renta.
+Sin perjuicio de lo anterior, deberán tomarse en cuenta las siguientes consideraciones:
+1. Tratándose del inciso d) del artículo 6 de dicha Ley, se entenderán excluidas de la renta bruta:
+a) Las ganancias de capital gravadas de conformidad con las disposiciones del Capítulo XI de la Ley del Impuesto sobre la Renta, salvo las derivadas de bienes o derechos afectos a la actividad del contribuyente, según lo señalado en el artículo 1 de la Ley y 3 bis de este Reglamento.
+b) Las ganancias de capital en la porción de las utilidades no distribuidas procedentes de la enajenación de acciones y otros títulos de participación en fondos propios de cualquier entidad, siempre que estos títulos estén afectos a su actividad lucrativa.
+2.- Tratándose del inciso h) del artículo 6 de la Ley del Impuesto sobre la Renta, se considerará excluido de la renta bruta el importe obtenido en razón de una distribución de dividendos por un socio que sea una sociedad de capital domiciliada en Costa Rica, siempre que esta desarrolle una actividad lucrativa y esté sujeta al Impuesto sobre las Utilidades. Para efectos de lo dispuesto en el inciso citado, se entenderá que el término “actividad lucrativa” no comprende a las sociedades que se dediquen exclusivamente a la tenencia de participaciones de otras sociedades. Cuando sea practicada la retención a una sociedad que no desarrolle una actividad lucrativa y que no esté sujeta al Impuesto sobre las Utilidades, se aplicará la retención del Impuesto sobre las Rentas del Capital sobre la primera distribución, no así sobre las distribuciones sucesivas de esa misma renta disponible.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 41818 del 17 de junio del 2019)

@@ -1,33 +1,11 @@
-CAPITULO V
+CAPITULO IV
 DE LA DETERMINACION DE LA BASE IMPONIBLE
-ARTICULO 8º.- Renta bruta. Está constituida por el total de
-ingresos o beneficios, en dinero o en especie, continuos o eventuales,
-percibidos o devengados durante el período del impuesto y provenientes de
-cualquier fuente costarricense de las actividades a que se refiere el
-párrafo cuarto del artículo 1º de la ley. También está constituida por
-las diferencias cambiarias originadas en activos en moneda extranjera,
-relacionadas con operaciones del giro habitual de los contribuyentes.
-(Así reformado por el artículo 1º del Decreto Nº 21580 de 10 de
-setiembre de 1992).
-A partir del período fiscal siguiente a la vigencia de la ley,
-también formará parte de la renta bruta, cualquier incremento patrimonial
-no justificado por el contribuyente. El incremento de patrimonio, se
-basará en cualquier aumento en el capital del contribuyente durante un
-período fiscal, más los ajustes en los desembolsos no deducibles, menos
-los ingresos no gravables; tal incremento debe provenir de ingresos
-gravables.
-Con la declaración jurada anual, las sociedades de hecho y de
-derecho, así como las personas físicas con actividades lucrativas,
-deberán presentar un estado comparativo de las cuentas de activo, pasivo
-y patrimonio entre el año anterior y el año correspondiente a la
-declaración del período en cuestión; las personas físicas con actividades
-lucrativas deberán incluir además sus patrimonio personal, justificando
-debidamente los incrementos patrimoniales experimentados durante el
-período; en ambos casos, la Dirección suministrará los formularios
-correspondientes, cuya información se considerará complementaria de la
-declaración jurada anual. La Dirección está facultada para verificar y
-ajustar el incremento patrimonial declarado por el contribuyente, con
-base en las facultades que le otorga la ley y el Código de Normas y
-Procedimientos Tributarios; asimismo, para computar como renta bruta, en
-el período en que se produjo, cualquier incremento patrimonial no
-declarado o justificado por el contribuyente.
+(Mediante el artículo 4° del decreto ejecutivo N° 41818 del 17 de junio de 2019, se cambió la estructura del presente decreto ejecutivo por lo que el capítulo anterior fue reformado y contendrá los numerales 8, 8bis, 9, 10, 11, 12, 12 bis y 12 ter)
+Artículo 8.- Renta bruta. La renta bruta constituye la suma de las siguientes rentas:
+a) Ingresos percibidos por el contribuyente durante el período del impuesto, provenientes del desarrollo de actividades lucrativas de fuente costarricense;
+b) Toda renta de capital o ganancia de capital realizada, obtenida por el contribuyente durante el período del impuesto, de acuerdo con lo dispuesto en el artículo 3 bis de este Reglamento; y
+c) Las ganancias por diferencias cambiarias originadas por el pago de pasivos o por la percepción de ingresos por activos, así como las ganancias por diferencias cambiarias originadas por los saldos de activos y pasivos al cierre del período de impuesto. Para efectos de lo dispuesto en este párrafo, la tenencia de moneda extranjera se considerará un activo y se calculará la diferencia cambiaria cuando:
+1) Se cambie de moneda, o
+2) Se adquiera otro activo denominado en esa moneda extranjera u otra.
+d) Cualquier incremento de patrimonio que no tenga su justificación en ingresos debidamente registrados y declarados, en ingresos exentos o no sujetos.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 41818 del 17 de junio del 2019)

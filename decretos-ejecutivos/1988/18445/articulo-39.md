@@ -1,5 +1,4 @@
-CAPITULO XIX
-DE LOS CERTIFICADOS PARA EFECTOS TRIBUTARIOS
-ARTICULO 39.- Certificación de estados financieros. Los estados financieros incluidos en la declaración pueden ser certificados por contadores públicos autorizados, según lo dispone el artículo 43 de la ley. A tal fin,la certificación para efectos tributarios debe contener la opinión del contador público, sustentada en el examen y evaluación de los estados financieros, con aplicación de las normas de auditoría generalmente aceptadas y con estricto apego a las disposiciones legales que regulan al materia.
-En caso de situaciones no previstas en la ley, deben observarse las disposiciones emitidas por la Dirección, en uso de las facultades que le confiere el Código de Normas y Procedimientos Tributarios, la jurisprudencia y los principios de contabilidad generalmente aceptados.
-(De acuerdo con la reforma practicada por el artículo 2 del Decreto Ejecutivo N° 20620 de 8 de agosto de 1991 se corrió la numeración y el presente artículo 39 ocupó el lugar que antes correspondía al artículo 38).
+CAPÍTULO V
+Hecho generador del impuesto
+Artículo 39.- Hecho generador en el impuesto sobre rentas de capital. En caso de que el contribuyente obtenga rentas de capital, sean estas procedentes del capital mobiliario o inmobiliario, el impuesto se produce al momento en que se dé la percepción de tales rentas, o cuando estas resulten exigibles, lo que suceda primero.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 41818 del 17 de junio del 2019)

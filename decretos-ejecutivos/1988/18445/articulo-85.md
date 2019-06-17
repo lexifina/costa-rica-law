@@ -1,3 +1,8 @@
-ARTICULO 85.- DEROGADO.-
-(Derogado por el artículo 16 del decreto ejecutivo Nº 25046 de 26 de
-marzo de 1996)
+ARTICULO 85-Sistemas contables computadorizados. Los contribuyentes que posean sistemas de contabilidad computarizados también deberán cumplir con la obligación de llevar los libros citados en el artículo 53 anterior, con anotaciones de resumen que tengan respaldo en los datos que contenga el sistema computarizado, así como en los documentos originales.
+Asimismo deberán conservar copias de los soportes magnéticos que contengan información tributaria, por igual periodo que los comprobantes que respaldan los asientos contables.
+(De acuerdo con la reforma practicada por el artículo 2 del Decreto Ejecutivo N° 20620 de 8 de agosto de 1991 se corrió la numeración y el presente artículo 56 ocupó el lugar que antes correspondía al artículo 55).
+(Así reformado por el Artículo 5° del Decreto Ejecutivo N° 26358- H del 18 de agosto de 1997)
+(Corrida la numeración por el artículo 5° del decreto ejecutivo N° 41818 del 17 de junio de 2019, que lo traspaso del artículo 56 al 54, ya que mediante el artículo 5° del decreto ejecutivo N° 41818 del 17 de junio de 2019, se ordena derogar los numerales 18 y 19)
+(Corrida su numeración por el artículo 5° del decreto ejecutivo N° 41818 del 17 de junio del 2019, que lo traspasó del artículo 54 al 53, ya que mediante el artículo 5° del decreto ejecutivo N° 41818 del 17 de junio de 2019, se ordena derogar el original artículo 26” Venta de terrenos en lotes urbanizados”)
+(Corrida su numeración por el artículo 3° del decreto ejecutivo N° 41818 del 17 de junio del 2019, que lo traspasó del artículo 53 al 75)
+(Corrida su numeración por el artículo 3° del decreto ejecutivo N° 41818 del 17 de junio del 2019, que lo traspasó del artículo 75 al 85, toda vez que incluyó un nuevo capítulo)

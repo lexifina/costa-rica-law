@@ -1,3 +1,2 @@
-ARTICULO 40.- Plazo de presentación de los estados financieros certificados. Los declarantes que utilicen los servicios de contadores públicos para que les certifiquen su estados financieros, deben indicar en su declaración que los estados financieros incluidos en ella, serán certificados posteriormente para efectos tributarios por determinado contador público autorizado, indicando su nombre.
-Estos estados certificados deben ser entregados, a más tardar dentro de los cinco meses siguientes al plazo límite fijado por ley o el establecido especialmente por la Dirección, para la presentación de la declaración.
-(De acuerdo con la reforma practicada por el artículo 2 del Decreto Ejecutivo N° 20620 de 8 de agosto de 1991 se corrió la numeración y el presente artículo 40 ocupó el lugar que antes correspondía al artículo 39).
+Artículo 40.- Hecho generador en el impuesto sobre ganancias y pérdidas de capital. Tratándose de ganancias de capital, el impuesto se entenderá configurado al momento en que se produzca la alteración en la composición del patrimonio del contribuyente.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 41818 del 17 de junio del 2019)

@@ -1,5 +1,7 @@
-ARTICULO 81.- DEROGADO
-(Adicionado por el artículo 1º del Decreto Nº 18821 de 27 de enero
-de 1989 y DEROGADO TACITAMENTE por el artículo 15 del decreto ejecutivo
-Nº 25046 de 26 de marzo de 1996: anteriormente era el Nº 80. Ver NOTA al
-inicio de este Capítulo)
+ARTICULO 81.- Emisión de la certificación. Cumplido lo dispuesto en los artículos anteriores, el contador público procederá a emitir la certificación de los estados financieros, en la cual incluirá su opinión, cuyo contenido deberá ajustarse a los términos que fije la Dirección mediante resolución.
+Cuando sea necesario emitir una opinión con salvedades o negativas, el contador público debe expresar con toda claridad las razones de ello, así como su efecto cuantitativo sobre los estados financieros presentados por el declarante. De igual manera, si las circunstancias estudiadas obligan a abstenerse de opinar, también deberá expresar con claridad lasrazones que originan tal abstención.
+(De acuerdo con la reforma practicada por el artículo 2 del Decreto Ejecutivo N° 20620 de 8 de agosto de 1991 se corrió la numeración y el presente artículo 52 ocupó el lugar que antes correspondía al artículo 51).
+(Corrida la numeración por el artículo 5° del decreto ejecutivo N° 41818 del 17 de junio de 2019, que lo traspaso del artículo 52 al 50, ya que mediante el artículo 5° del decreto ejecutivo N° 41818 del 17 de junio de 2019, se ordena derogar los numerales 18 y 19)
+(Corrida su numeración por el artículo 5° del decreto ejecutivo N° 41818 del 17 de junio del 2019, que lo traspasó del artículo 50 al 49 , ya que mediante el artículo 5° del decreto ejecutivo N° 41818 del 17 de junio de 2019, se ordena derogar el original artículo 26” Venta de terrenos en lotes urbanizados”)
+(Corrida su numeración por el artículo 3° del decreto ejecutivo N° 41818 del 17 de junio del 2019, que lo traspasó del artículo 49 a 71)
+(Corrida su numeración por el artículo 3° del decreto ejecutivo N° 41818 del 17 de junio del 2019, que lo traspasó del artículo 71 al 81, toda vez que incluyó un nuevo capítulo)

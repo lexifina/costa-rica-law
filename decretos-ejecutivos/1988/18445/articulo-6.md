@@ -1,22 +1,10 @@
-ARTICULO 6º.- Entidades no sujetas al impuesto. No están obligadas
-al pago de este impuesto las instituciones a que se refiere el artículo
-3º de la ley, excepto los entes a que se refiere el artículo 2° inciso h)
-de la Ley. Cuando se trate de cooperativas, asociaciones civiles que
-agremien a pequeños o medianos productores agropecuarios de bienes o
-servicios, fundaciones, partidos políticos, cámaras, sindicatos y demás
-entidades sin fines de lucro a que se refiere el artículo 3º de la ley,
-deberán demostrar su condición jurídica, para lo cual cumplirán con los
-siguientes requisitos:
-i) Inscribirse en los registros que al efecto llevará la Dirección;
-ii) Presentar certificación de vigencia, emitida por el organismo
-competente;
-iii) Presentar relación nominal de los miembros que integran la
-entidad; y
-iv) Presentar cualquier otro documento o información que la
-Dirección requiera.
-Con los datos anteriores la Dirección procederá a inscribirlas como
-declarantes.
-( Así reformado por el artículo 1º del Decreto Nº 21580 de 10 de
-setiembre de 1992).
-(Así reformado su párrafo primero por el inciso 2 del artículo 8 del
-Decreto Ejecutivo N° 29643 de 10 de julio del 2001).
+Artículo 6.- Entidades no sujetas al impuesto. No están obligadas al pago del Impuesto sobre las Utilidades las entidades a que se refiere el artículo 3 de la Ley.
+Sin embargo, tratándose de partidos políticos, instituciones religiosas, organizaciones sindicales, cooperativas, asociaciones declaradas de utilidad pública por el Poder Ejecutivo, fundaciones, asociaciones civiles y empresas acogidas al Régimen de Zonas Francas, deberán inscribirse en el Registro Único Tributario y presentar la declaración autoliquidativa del impuesto sobre las utilidades, sin perjuicio de las demás obligaciones y requisitos que la Administración Tributaria establezca mediante resolución general.
+En cuanto a las fundaciones y las asociaciones declaradas de utilidad pública por el Poder Ejecutivo, estas se considerarán como entidades no sujetas al Impuesto sobre las Utilidades, siempre que cumplan con las siguientes condiciones:
+a) Destinar sus ingresos y su patrimonio por completo y de manera exclusiva a fines públicos o de beneficencia; y
+b) No distribuir, directa o indirectamente, entre sus integrantes sus ingresos y su patrimonio.
+A efectos de lo indicado en el penúltimo párrafo del artículo 1 y artículo 3 inciso ch) de la Ley del Impuesto sobre la Renta, en el caso de fundaciones y asociaciones que incumplan con las condiciones dispuestas previamente en los puntos a) y b), declararán y pagarán el Impuesto sobre las Utilidades en la proporción que corresponda, así como cumplir con la totalidad de los deberes formales y materiales concernientes a dicho impuesto.
+De conformidad con el penúltimo párrafo del artículo 1 de la Ley del Impuesto sobre la Renta y el primer párrafo del artículo 9 de la Ley N° 6970 del 7 de noviembre de 1984, denominada “Ley de Asociaciones Solidaristas”, las asociaciones solidaristas deben presentar la declaración y cumplir con la totalidad de los deberes formales y materiales concernientes al Impuesto sobre las Utilidades, realicen o no actividades lucrativas. Así como pagar el impuesto en la proporción que corresponda por los rendimientos provenientes de inversiones y operaciones puramente mercantiles que realicen con terceros, ajenos a la asociación solidarista.
+En lo tocante a las instituciones religiosas, estas se consideran no sujetas al Impuesto sobre las Utilidades, siempre y cuando sus ingresos provengan exclusivamente de diezmos, primicias, limosnas, óbolos, donaciones y otras cantidades recibidas en forma no sinalagmática y se destinen al mantenimiento del culto y a servicios de asistencia social sin fines de lucro. Para el cumplimiento de lo descrito, adicional a la llevanza general de la contabilidad, la institución religiosa debe contar con un libro especial de control de los ingresos y gastos de las actividades de asistencia social.
+En ningún caso se entiende como ingresos no sujetos aquellos que provengan del desarrollo de actividades lucrativas tales como librería, restaurante o parqueo.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 41818 del 17 de junio del 2019)

@@ -1,12 +1,15 @@
-CAPITULO III
-DE LOS CONTRIBUYENTES Y PERSONAS EXENTAS
-ARTICULO 4º.- Contribuyentes: Son contribuyentes de este impuesto
-las personas físicas o jurídicas que realicen en el territorio nacional
-actividades o negocios de carácter lucrativo, con independencia de su
-nacionalidad o domicilio; y en el caso de las personas jurídicas, del
-lugar de su constitución, de reunión de sus juntas directivas o de
-celebración de los contratos, asimismo, los entes que se dediquen a la
-prestación privada de servicios de educación universitaria, independientemente
-de la forma jurídica adoptada.
-(Así reformado por el inciso 1) del artículo 8 del Decreto Ejecutivo N° 29643
-de 10 de julio del 2001).
+CAPITULO II
+CONTRIBUYENTES Y ENTIDADES NO SUJETAS
+(Mediante el artículo 4° del decreto ejecutivo N° 41818 del 17 de junio de 2019, se cambió la estructura del presente decreto ejecutivo por lo que el capítulo II fue reformado y contendrá los numerales 4, 4bis. 4 ter, 5 y 6)
+Artículo 4.- Contribuyentes. Son contribuyentes del Impuesto sobre las Utilidades las personas físicas, las personas jurídicas legalmente constituidas en el país sin perjuicio que realicen o no una actividad lucrativa, independientemente de su nacionalidad o domicilio, las sociedades de hecho, las sociedades de actividades profesionales, las empresas del Estado, los entes colectivos sin personalidad jurídica, los establecimientos permanentes y las cuentas en participación que haya en el país, con independencia del lugar de su constitución, de reunión de sus juntas directivas o de celebración de los contratos; asimismo, los entes que se dediquen a la prestación privada de servicios de educación universitaria, independientemente de la forma jurídica adoptada.
+Tratándose de personas jurídicas y otras figuras similares consideradas como contribuyentes del inciso a) del artículo 2 de la Ley del Impuesto sobre la Renta deberán tomarse en consideración, entre otras, las siguientes definiciones:
+a) Personas jurídicas: Entidad independiente dotada de personalidad jurídica propia y de capacidad plena para el cumplimiento de sus fines y para ser objeto de derechos y obligaciones, constituida conforme a lo establecido en la ley o por convenio conforme a la ley. Las sociedades inscritas en el Registro Nacional cuentan con personería jurídica.
+b) Sociedades de hecho: Figura jurídica definida en el artículo 23 del Código de Comercio.
+c) Sociedades de actividades profesionales: Son aquellas personas jurídicas definidas en la Ley N° 2860 del 21 de noviembre de 1961 y sus reformas.
+d) Entes colectivos sin personalidad jurídica: Figuras jurídicas que no suponen la creación de un ente con personalidad jurídica propia.
+e) Cuentas en participación: Contrato de asociación por el que dos o más personas toman interés en una o más negociaciones determinadas que debe realizar una sola de ellas a nombre propio, denominada gestor, asumiendo este la obligación de rendir cuentas a los participantes y dividir con ellos las ganancias o pérdidas en la proporción convenida.
+Con respecto a las personas jurídicas legalmente constituidas en el país, el cumplimiento de los deberes formales y materiales relacionados con el Impuesto sobre las Utilidades dependerá de la siguiente clasificación:
+a) Activas: corresponde a aquellas sociedades constituidas en el país que desarrollan, efectiva y materialmente, actividades lucrativas de fuente costarricense, con arreglo a la definición del artículo 1 de este Reglamento, como resultado de lo cual deberán inscribirse como contribuyentes ante la Administración Tributaria y cumplir con la totalidad de los deberes formales y materiales asociados al Impuesto sobre las Utilidades, entre ellos, la presentación de la declaración autoliquidativa anual de ese impuesto.
+b) Inactivas: corresponde a aquellas sociedades constituidas en el país que no desarrollan actividad lucrativa de fuente costarricense, definida en el artículo 1 de este Reglamento. La Administración Tributaria determinará la forma en que las sociedades de cita deberán de cumplir con sus obligaciones formales.
+Para ello, de previo al inicio del período fiscal correspondiente a la implementación de las obligaciones, se divulgará el procedimiento a seguir por las sociedades, mediante publicación en la página del Ministerio de Hacienda y en un diario de circulación nacional.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 41818 del 17 de junio del 2019)

@@ -1,5 +1,3 @@
-CAPITULO XXV
-DE LA ADMINISTRACION Y FISCALIZACION
-ARTICULO 71.- Declaración sobre créditos. Para efectos de la Prueba de los créditos a que se refiere el inciso c) del artículo 15 y del artículo 29 de la ley, los contribuyentes presentarán una declaración jurada, cuya vigencia se extenderá hasta el 31 de mayo de 1990; a partir de esta fecha se exigirá la certificación del Registro Civil o de notario público.
-(Así reformado por el artículo 1° del Decreto Ejecutivo N° 18789- H del 20 de enero de 1989)
-(De acuerdo con la reforma practicada por el artículo 2 del Decreto Ejecutivo N° 20620 de 8 de agosto de 1991 se corrió la numeración y el presente artículo 71 ocupó el lugar que antes correspondía al artículo 70).
+Artículo 71.- Determinación del precio de libre competencia. Es posible aplicar el principio de libre competencia hasta determinar una cifra única, ya sea un precio o un margen de utilidad comparable, que constituirá la referencia para establecer si una operación responde a las condiciones de libre competencia. Sin embargo, en caso de que haya dos o más precios o márgenes de utilidad comparables, se debe constituir el rango intercuartil utilizando la serie de datos comparables identificados.
+Si el precio o margen de la transacción analizada se encuentra fuera del rango intercuartil, contenido entre el primer y el tercer cuartil, se considera que el valor o precio no es de libre competencia y se debe establecer la mediana como el precio de libre competencia.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 41818 del 17 de junio del 2019)

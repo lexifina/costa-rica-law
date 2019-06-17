@@ -1,13 +1,17 @@
-ARTICULO 48.- Registro de los contadores públicos. Los contadores públicos interesados en certificar estados financieros para efectos tributarios deben inscribirse en el Registro a que se refiere el artículo 45 de ley; para estos fines, tales profesionales formularán la solicitud correspondiente, para lo cual presentarán la siguiente información y atestados en forma conjunta:
-a) Nombre completo del solicitante;
-b) Nombre de la universidad y fecha en la que se graduó;
-c) Números de: cédula de identidad, carné de afiliación al Colegio, póliza de fidelidad, teléfono, apartado y zona postal;
-ch) Lugar para recibir notificaciones de la Administración Tributaria;
-d) Condición en la que ejerce la profesión (independiente o adscrito a determinado despacho de contaduría pública);
-e) Certificación del Registro Judicial de Delincuentes;
-f) Certificación de que es miembro activo del Colegio;
-g) Certificación de aprovechamiento del curso de refrescamiento en materia tributaria, auspiciado por el Colegio, cuyo temario debe ser aprobado previamente por la Dirección; y
-h) Estar al día en sus obligaciones tributarias. El requisito indicado en el punto g) anterior puede ser sustituido por el certificado de aprovechamiento de un seminario, que deberá ser organizado por el Colegio, acerca de la Ley del Impuesto sobre la Renta vigente y su Reglamento, en tanto no se dicte el curso antes previsto.
-La solicitud de incorporación al Registro establecida en este artículo, deberá ser aprobada por una comisión ad hoc, la cual estará integrada por tres funcionarios de la Dirección General y dos delegados del Colegio nombrados por su Junta Directiva; la Administración Tributaria extenderá la autorización que acredita al contador público como miembro activo del Registro arriba citado, por un plazo de un año a partir de su emisión.
-Este plazo se renovará anualmente con la presentación de los documentos debidamente actualizados, enumerados en los incisos e) f) y g) de este artículo y el recibo de cancelación de la póliza de fidelidad para efectos tributarios.
-(De acuerdo con la reforma practicada por el artículo 2 del Decreto Ejecutivo N° 20620 de 8 de agosto de 1991 se corrió la numeración y el presente artículo 48 ocupó el lugar que antes correspondía al artículo 47).
+CAPITULO II
+Tarifa del Impuesto
+(Mediante el artículo 4° del decreto ejecutivo N° 41818 del 17 de junio de 2019, se cambió la estructura del presente decreto ejecutivo por lo que se crea el Título III que contiene el presente capítulo II que contendrá los numerales 48 y 49)
+ARTICULO 48.- Objeto del impuesto. El impuesto se aplicará sobre las rentas que perciban las personas físicas domiciliadas en el país, por el trabajo personal en relación de dependencia o la jubilación o pensión.
+Son rentas del trabajo personal dependiente:
+a) Los sueldos, sobresueldos, salarios, premios, bonificaciones, gratificaciones, comisiones, pagos por horas extraordinarias, regalías, recargos de funciones, zonajes, subsidios, compensaciones de vacaciones y el aguinaldo, en la proporción que establece el inciso b) del artículo 35 de la Ley.
+b) Las dietas, provengan o no de una relación laboral dependiente, gratificaciones y participaciones sociales que reciban los ejecutivos, directores, consejeros y demás miembros de las sociedades anónimas y otros entes jurídicos.
+(Así reformado por el inciso 9) del artículo 8) del decreto Ejecutivo N° 29643de 10 de julio del 2001).
+c) Cualesquiera otras rentas otorgadas por el patrono o empleador, tales como salarios en especie, gastos de representación, gastos confidenciales, asignación de vehículo para uso particular, cuotas para combustible, asignación de vivienda o pago de ésta, gastos de colegiación del empleado o familiares, pagos de afiliación a clubes sociales o entidades que extiendan tarjetas de crédito y otros beneficios similares. Cuando los ingresos a que alude este inciso no tengan la representación de su monto, corresponde a la Dirección evaluarlos y fijarles el correspondiente valor monetario, a instancias del agente retenedor o en su defecto, fijarlo de oficio.
+ch) Las jubilaciones y las pensiones de cualquier régimen.
+En los casos de los incisos a), b) y c) lo aplicará y retendrá el empleador o patrono y en el inciso ch) todas las entidades públicas o privadas pagadoras de pensiones o jubilaciones.
+El término “patrono” se refiere a toda persona, sea física o jurídica, pública o privada que emplea los servicios de otra u otras, en virtud de un contrato de trabajo, expreso o implícito, verbal o escrito, individual o colectivo. La expresión también comprende el término empleador.”
+(Así adicionado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 41818 del 17 de junio del 2019)
+(Así reformado por el artículo 11 del decreto ejecutivo No.25046 de 26 de marzo de 1996)
+(Corrida la numeración por el artículo 5° del decreto ejecutivo N° 41818 del 17 de junio de 2019, que lo traspaso del artículo 29 al 27, ya que mediante el artículo 5° del decreto ejecutivo N° 41818 del 17 de junio de 2019, se ordena derogar los numerales 18 y 19)
+(Corrida su numeración por el artículo 5° del decreto ejecutivo N° 41818 del 17 de junio del 2019, que lo traspasó del artículo 27 al 26 , ya que mediante el artículo 5° del decreto ejecutivo N° 41818 del 17 de junio de 2019, se ordena derogar el original artículo 26” Venta de terrenos en lotes urbanizados”)
+(Corrida su numeración por el artículo 3° del decreto ejecutivo N° 41818 del 17 de junio del 2019, que lo traspasó del artículo 26 al 48)

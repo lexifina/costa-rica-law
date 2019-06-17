@@ -1,5 +1,4 @@
-CAPITULO XIV
-DE LOS PERIODOS DE TRABAJOS DISCONTINUOS O MAYORES
-ARTICULO 32.- Períodos irregulares. Los sujetos del impuesto que efectúen trabajos eventuales o discontinuos estarán obligados a pagar el impuesto por la parte proporcional de los días efectivamente trabajados. Cuando se trate de rentas imputables a períodos mayores de un mes, tanto las tarifas como los créditos del impuesto se aplicarán en forma proporcional.
-Para la cuota exenta se seguirá el mismo criterio.
-(De acuerdo con la reforma practicada por el artículo 2 del Decreto Ejecutivo N° 20620 de 8 de agosto de 1991 se corrió la numeración y el presente artículo 32 ocupó el lugar que antes correspondía al artículo 31).
+Artículo 32.- Contribuyentes que obtengan únicamente rentas del capital inmobiliario.
+Los contribuyentes que obtengan únicamente rentas de capital inmobiliario definidos en el artículo 27 ter, inciso 1), deben tributar y declarar conforme a las disposiciones del capítulo XI de la Ley del Impuesto sobre la Renta, debido a que no se encuentran afectos a otra actividad lucrativa.
+Estos contribuyentes tienen la opción de tributar conforme lo establecido en el artículo 3 ter de este Reglamento.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 41818 del 17 de junio del 2019)

@@ -1,19 +1,11 @@
-ARTICULO 9º.- Comprobantes de ingresos.- Los contribuyentes a que se refiere el artículo 2º de la Ley, están obligados a emitir facturas o comprobantes de ingresos por cada una de sus operaciones, debidamente autorizadas por la Administración Tributaria. los cuales deben cumplir con los siguientes requisitos:
-a) Datos en forma impresa:
-1) Nombre del contribuyente o razón social y la denominación del negocio (nombre de fantasía si existe).
-2) Número de cédula de identidad o cédula jurídica del contribuyente.
-3) Numeración consecutiva.
-4) Espacio para la fecha de la transacción.
-5) Condiciones de la venta: contado, crédito, en consignación, etc., según corresponda.
-6) Identificación de la impresión y nombre del impresor (pie de imprenta).
-b) Requisitos de emisión:
-1. Las facturas que emita el contribuyente o declarante, podrán ser redactadas en un idioma distinto al español. No obstante, en caso de ser requerido por la Administración Tributaria deberá aportarse su traducción respectiva al idioma español y como mínimo extenderse en duplicado la factura; el original se entregará al comprador y el duplicado será el documento que ampare el asiento contable.
-(Así reformado el inciso anterior por el artículo 2° del decreto ejecutivo N° 40365 del 6 de abril de 2017)
-2. Fecha de emisión.
-3. Nombre completo o razón social del comprador.
-4. Detalle de la mercancía transferida o naturaleza del servicio prestado, precio unitario y monto de la operación, expresado en moneda nacional o moneda extranjera; en caso de expresarse en moneda extranjera debe indicarse la moneda en que se realizó la operación.
-(Así reformado el inciso anterior por el artículo 2° del decreto ejecutivo N° 40365 del 6 de abril de 2017)
-5. Descuentos concedidos, con indicación de su naturaleza y montos, cuando corresponda.
-6. Impuestos a que está afecta la venta de mercancías o servicios, si corresponde.
-7. Total.
+Artículo 9.- Comprobantes electrónicos.
+1.- Los contribuyentes a que se refiere el artículo 2 de la Ley están obligados a emitir comprobantes electrónicos por cada una de sus operaciones económicas, entendiéndose estas operaciones como todas las transacciones financieras o económicas que realizan en el desarrollo de sus actividades económicas. Los comprobantes electrónicos serán debidamente autorizados por la Administración Tributaria y deberán cumplir con las condiciones y requisitos que esta defina.
+2.- No estarán obligados a emitir comprobantes electrónicos, siempre y cuando no vendan bienes ni presten servicios gravados con el Impuesto sobre el Valor Agregado, en cuyo caso estarán sujetos a las disposiciones legales y reglamentarias de este último tributo, las siguientes personas o entidades:
+a) Las entidades no sujetas al pago del Impuesto sobre las Utilidades, indicadas en el artículo 3 de la Ley y 6 de este Reglamento, ni las entidades exentas por ley especial.
+b) Las entidades reguladas por las superintendencias adscritas al Consejo Nacional de Supervisión del Sistema Financiero, salvo la Superintendencia General de Seguros.
+c) Las personas físicas o jurídicas dedicadas al transporte terrestre remunerado de personas, que cuenten con el permiso o la concesión de la autoridad estatal competente y cuya tarifa sea regulada por la Autoridad Reguladora de los Servicios Públicos.
+Tampoco estarán obligados a emitir comprobantes electrónicos los contribuyentes inscritos en el Régimen de Tributación Simplificada.
+La Administración Tributaria está facultada para eximir de la obligación de emisión de comprobantes electrónicos a los contribuyentes, que reglamentariamente se establezca, tomando en cuenta criterios de oportunidad y de conveniencia fiscal.
+Asimismo, mediante resolución de alcance general, la Administración Tributaria podrá variar las condiciones y requisitos que deben cumplir los comprobantes electrónicos.”
 (Así adicionado por el numeral 2º del Decreto Nº 20620 de 8 de agosto de 1991, corriendo la numeración de los restantes y luego reformado en su totalidad, en la forma vista, por el artículo 2º del decreto ejecutivo No.25046 de 26 de marzo de 1996)
+(Así reformado por el artículo 1° del decreto ejecutivo N° 41818 del 17 de junio del 2019)

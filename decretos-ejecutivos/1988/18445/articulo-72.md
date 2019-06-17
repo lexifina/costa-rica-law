@@ -1,5 +1,5 @@
-CAPITULO XXVI
-DE LAS DISPOSICIONES TRANSITORIAS, DEROGACION Y VIGENCIA
-ARTICULO 72.- Declaración sobre créditos del impuesto. Para efectos de la prueba a que se refiere el inciso c) del artículo 15 y el artículo 29 de la ley, los contribuyentes presentarán una declaración jurada, cuya vigencia se extenderá hasta el 31 de mayo de 1990; a partir de esta fecha se exigirá la certificación del Registro Civil o de notario público.
-(Así reformado por el artículo 1º del Decreto Nº 18789 de 20 de enero de 1989).
-(De acuerdo con la reforma practicada por el artículo 2 del Decreto Ejecutivo N° 20620 de 8 de agosto de 1991 se corrió la numeración y el presente artículo 72 ocupó el lugar que antes correspondía al artículo 71).
+Artículo 72.- Declaración informativa. Están obligados a presentar ante la Dirección General de Tributación la declaración informativa de precios de transferencia, con periodicidad anual, aquellos contribuyentes que se encuentren en alguna de las situaciones siguientes:
+a) Que realicen operaciones nacionales o transfronterizas con empresas vinculadas y se encuentren clasificados como grandes contribuyentes nacionales o grandes empresas territoriales, o que sean personas o entidades que se encuentren bajo el régimen de zona franca.
+b) Que realicen operaciones nacionales o transfronterizas con empresas vinculadas y que en forma separada o conjunta superen el monto equivalente a 1,000 (mil) salarios base en el año correspondiente. En todo caso y con independencia de lo dispuesto en los incisos a y b de este artículo, todos los contribuyentes que realicen operaciones con vinculados establecidos en el artículo 2 de la Ley del Impuesto sobre la Renta o con residentes en el exterior, deben determinar sus precios de transferencia y comprobar si resultan pertinentes, para efectos fiscales, de conformidad con el principio de plena competencia.
+La Administración Tributaria, mediante resolución general, establecerá las condiciones que debe contener dicha declaración.”
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 41818 del 17 de junio del 2019)

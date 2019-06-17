@@ -1,11 +1,9 @@
-ARTICULO 78.- Cuando para las causales mencionadas se haya previsto
-otra sanción administrativa, la Administración Tributaria aplicará la
-sanción más severa, y en principio considerará como tal el cierre del
-negocio, sin perjuicio de que si en un caso concreto comprueba que éste
-no lo es, aplique la multa que corresponda. La Administración está
-facultada para aplicar las sanciones de carácter administrativo, sin
-perjuicio de aquellas que puedan ser aplicadas en la vía penal
-correspondiente, establecidas en el Código de Normas y Procedimientos
-Tributarios.
-(Así reformado por el artículo 15 del decreto ejecutivo Nº 25046 de
-26 de marzo de 1996)
+ARTICULO 78.- Impedimentos para certificar estados financieros para efectos tributarios. No podrá certificar para efectos tributarios, el contador público que se encuentre en alguna de las siguientes situaciones:
+a) Que sea o haya sido empleado del declarante durante el ejercicio fiscal a certificar o de negocios vinculados económica o administrativamente con el declarante;
+b) Que sea cónyuge, pariente hasta el cuarto grado de consanguinidad o segundo grado de afinidad del propietario, socio principal de la empresa o de algún director, administrador o empleado que tenga intervención importante en la administración; y
+c) Que sea propietario de la empresa o que esté vinculado de cualquier otra forma con el declarante, de tal suerte que ello le impida independencia e imparcialidad de criterio al emitir su opinión.
+(De acuerdo con la reforma practicada por el artículo 2 del Decreto Ejecutivo N° 20620 de 8 de agosto de 1991 se corrió la numeración y el presente artículo 49 ocupó el lugar que antes correspondía al artículo 48).
+(Corrida la numeración por el artículo 5° del decreto ejecutivo N° 41818 del 17 de junio de 2019, que lo traspaso del artículo 49 al 47, ya que mediante el artículo 5° del decreto ejecutivo N° 41818 del 17 de junio de 2019, se ordena derogar los numerales 18 y 19)
+(Corrida su numeración por el artículo 5° del decreto ejecutivo N° 41818 del 17 de junio del 2019, que lo traspasó del artículo 47 al 46 , ya que mediante el artículo 5° del decreto ejecutivo N° 41818 del 17 de junio de 2019, se ordena derogar el original artículo 26” Venta de terrenos en lotes urbanizados”)
+(Corrida su numeración por el artículo 3° del decreto ejecutivo N° 41818 del 17 de junio del 2019, que lo traspasó del artículo 46 a 68)
+(Corrida su numeración por el artículo 3° del decreto ejecutivo N° 41818 del 17 de junio del 2019, que lo traspasó del artículo 68 al 78, toda vez que incluyó un nuevo capítulo)

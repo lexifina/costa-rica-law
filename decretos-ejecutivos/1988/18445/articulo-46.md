@@ -1,2 +1,2 @@
-ARTICULO 46.- Sanción del Colegio. Cuando el Colegio dicte la sanción aplicable al contador público denunciado, se da por terminada la suspensión temporal que establece el artículo anterior y entra en vigencia la sanción impuesta por el Colegio.
-(De acuerdo con la reforma practicada por el artículo 2 del Decreto Ejecutivo N° 20620 de 8 de agosto de 1991 se corrió la numeración y el presente artículo 46 ocupó el lugar que antes correspondía al artículo 45).
+Artículo 46.- Diferimiento de pérdidas de capital. Cuando el contribuyente obtuviese solo pérdidas de capital o su compensación con ganancias de capital previamente obtenidas, arrojase un resultado negativo según lo indicado en el artículo anterior, podrá diferir tales pérdidas y aplicarlas contra las ganancias de capital que se generen en los tres años siguientes y consecutivos a aquel en que ocurrió la pérdida.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 41818 del 17 de junio del 2019)

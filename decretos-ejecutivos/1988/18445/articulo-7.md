@@ -1,18 +1,8 @@
-CAPITULO IV
-DEL PERIODO FISCAL
-ARTICULO 7º.- Período del impuesto. El período fiscal ordinario del
-impuesto está comprendido entre el 1º de octubre de un año y el 30 de
-setiembre del año siguiente.
-La Administración Tributaria está facultada para, en casos, muy
-calificados, establecer períodos del impuesto con fechas diferentes, ya
-sea por interés de la misma Administración o por solicitud de
-contribuyentes, por rama de actividad y con carácter general, siempre que
-no se perjudiquen los intereses fiscales.
-En los casos que proceda, la Dirección, mediante resolución fundada,
-establecerá el nuevo período fiscal para la rama de actividad o situación
-especial de que se trate, determinando los ajustes que correspondan
-respecto a los meses comprendidos entre la fecha de vigencia del período
-fiscal ordinario y la del nuevo período resultante por la variación.
-La presentación de las declaraciones en los casos de situaciones
-especiales atinentes al período fiscal, se encuentra regulada por lo
-establecido en el artículo 19 de este Reglamento.
+CAPITULO III
+PERIODO DEL IMPUESTO
+(Mediante el artículo 4° del decreto ejecutivo N° 41818 del 17 de junio de 2019, se cambió la estructura del presente decreto ejecutivo por lo que el capítulo III fue reformado y contendrá el numeral 7)
+Artículo 7.- Período del impuesto. El período fiscal del Impuesto sobre las Utilidades es de un año, comprendido entre el 1 de enero y el 31 de diciembre de cada año.
+Sin embargo, de manera excepcional, la Administración Tributaria está facultada para establecer de oficio períodos especiales del impuesto, siempre y cuando esté debidamente justificado y no se perjudiquen los intereses fiscales; para tal efecto emitirá una resolución general que se publicará en el Diario Oficial. La resolución que al respecto emita la Administración Tributaria deberá indicar las fechas de inicio y cierre del período distinto de las indicadas en el párrafo anterior, por rama de actividad y con carácter general.
+Asimismo, el contribuyente podrá solicitar a la Administración Tributaria que autorice períodos fiscales especiales, para lo cual aportará prueba pertinente que justifique el cambio. La solicitud indicada se sustanciará mediante las disposiciones establecidas en el artículo 102 del Código de Normas y Procedimientos Tributarios y los artículos 55, 58 y 59 del Reglamento de Procedimiento Tributario, Decreto Ejecutivo N° 38277-H del 7 de marzo de 2014 y sus reformas. Las condiciones en las que debe presentar la solicitud aludida serán definidas por la Administración Tributaria mediante resolución general.
+Para la presentación de las declaraciones en situaciones en que la Administración Tributaria haya establecido un período fiscal especial deberá observarse lo dispuesto en el párrafo tercero del artículo 19 de este Reglamento.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 41818 del 17 de junio del 2019)

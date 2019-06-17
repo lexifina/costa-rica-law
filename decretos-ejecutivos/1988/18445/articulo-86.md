@@ -1,3 +1,7 @@
-ARTICULO 86.- DEROGADO.-
-(Derogado por el artículo 16 del decreto ejecutivo Nº 25046 de 26 de
-marzo de 1996)
+ARTICULO 86.- Registro de las operaciones. El sistema contable del declarante debe ajustarse a las Normas Internacionales de Contabilidad aprobadas y adoptadas por el Colegio de Contadores Públicos de Costa Rica y a las que ese colegio llegare a aprobar y adoptar en el futuro. La diferencia entre los ingresos totales y los costos y gastos totales se denomina "utilidad neta del periodo". Para obtener la "renta imponible" del período, se debe hacer una conciliación, restando de la utilidad neta del período el total de ingresos no gravables y adicionando aquellos costos y gastos no deducibles. Tales ajustes se registrarán aplicando la Norma Internacional de Contabilidad 12 relativa al impuesto sobre renta diferido.
+(De acuerdo con la reforma practicada por el artículo 2 del Decreto Ejecutivo N° 20620 de 8 de agosto de 1991 se corrió la numeración y el presente artículo 57 ocupó el lugar que antes correspondía al artículo 56)
+(Así reformado por el artículo 1° del decreto ejecutivo N° 30410 del 7 de febrero de 2002.
+(Corrida la numeración por el artículo 5° del decreto ejecutivo N° 41818 del 17 de junio de 2019, que lo traspaso del artículo 57 al 55, ya que mediante el artículo 5° del decreto ejecutivo N° 41818 del 17 de junio de 2019, se ordena derogar los numerales 18 y 19)
+(Corrida su numeración por el artículo 5° del decreto ejecutivo N° 41818 del 17 de junio del 2019, que lo traspasó del artículo 55 al 54 , ya que mediante el artículo 5° del decreto ejecutivo N° 41818 del 17 de junio de 2019, se ordena derogar el original artículo 26” Venta de terrenos en lotes urbanizados”)
+(Corrida su numeración por el artículo 3° del decreto ejecutivo N° 41818 del 17 de junio del 2019, que lo traspasó del artículo 54 al 76)
+(Corrida su numeración por el artículo 3° del decreto ejecutivo N° 41818 del 17 de junio del 2019, que lo traspasó del artículo 76 al 86, toda vez que incluyó un nuevo capítulo)

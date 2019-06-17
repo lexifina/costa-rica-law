@@ -1,34 +1,19 @@
-CAPITULO VIII
-DE LAS TARIFAS DEL IMPUESTO
-ARTICULO 16.- Tarifa del impuesto. Sobre la renta imponible se
-aplicarán las tarifas establecidas en el artículo 15 de la Ley, sobre los
-tramos impositivos que el Poder Ejecutivo anualmente debe actualizar
-según lo dispuesto en dicho artículo.
-(Así reformado por el artículo 7º del decreto ejecutivo No.25046 de
-26 de marzo de 1996)
-Las personas físicas con actividades lucrativas a que se refiere el inciso c)
-del artículo 15 de la Ley del Impuesto sobre la Renta, que además hayan
-recibido durante el período fiscal respectivo, ingresos por concepto de trabajo
-personal dependiente, o por concepto de jubilación o pensión, reguladas en el
-título II de la Ley del Impuesto sobre la Renta, deberán restar del monto no sujeto,
-es decir, del tramo establecido como exento en el subinciso i), del inciso c) del citado
-artículo 15, la parte no sujeta o intervalo exento aplicado a los ingresos percibidos
-por conceptos de trabajo personal dependiente, o por concepto de jubilación o pensión.
-Para efectos del cálculo de la parte no sujeta o intervalo exento, referido a los ingresos
-percibidos por concepto de trabajo personal dependiente o por concepto de jubilación
-o pensión a que se refiere el párrafo anterior, se debe entender el tramo exento mensual,
-aplicado de conformidad con la tarifa establecida en el inciso a) del artículo 33 de la Ley
-o el monto del ingreso mensual percibido, cuando éste no alcance el límite del tramo no
-sujeto definido en dicho inciso, multiplicado por doce, o proporcionalmente a la cantidad
-de meses laborados, según corresponda.
-En caso de que el monto anual no sujeto determinado para el cálculo de los ingresos recibidos
-por concepto de trabajo personal dependiente o por concepto de jubilación o pensión,
-exceda el monto no sujeto a que se refiere el subinciso i) del inciso c) del referido artículo 15,
-solo se aplicará este intervalo exento en la base de cálculo del Impuesto Único sobre las rentas
-percibidas por el trabajo personal dependiente o por concepto de jubilación y pensión u otras
-remuneraciones por servicios personales. En este caso, a la renta neta obtenida por actividades
-lucrativas de personas físicas, no se les aplicará el tramo no sujeto establecido en el subinciso i)
-del inciso c) del artículo 15 de la Ley, y deberá aplicarse a ese intervalo de utilidad neta, la tarifa
-establecida en el subinciso ii) de este mismo inciso.
-(Así adicionados los últimos tres párrafos por el inciso 5) del artículo 8 del
-Decreto Ejecutivo N° 29643 de 10 de julio del 2001).
+CAPITULO VI
+TARIFA Y DEDUCIONES DEL IMPUESTO
+(Mediante el artículo 4° del decreto ejecutivo N° 41818 del 17 de junio de 2019, se cambió la estructura del presente decreto ejecutivo por lo que el capítulo anterior fue reformado y contendrá los numerales 16, 16 bis, 17 y 17 bis)
+Artículo 16.- Tarifa del impuesto. Las tarifas establecidas en el artículo 15 de la Ley del Impuesto sobre la Renta se aplicarán sobre la renta imponible del contribuyente correspondiente al respectivo período fiscal del impuesto.
+Dependiendo del tipo de contribuyente, deberán observarse las siguientes reglas:
+a) Personas jurídicas cuya renta bruta supere los ¢106.000.000 durante el período fiscal. Se entenderán comprendidos dentro de esta categoría, además de las personas jurídicas en sentido estricto, los entes colectivos sin personalidad jurídica a que hace referencia el artículo 2 de la Ley del Impuesto sobre la Renta, debiendo ambos tipos de contribuyentes aplicar la tarifa del 30% sobre su renta neta imponible del período fiscal del impuesto.
+b) Personas jurídicas cuya renta bruta no supere los ¢106.000.000 durante el período del impuesto. La tarifa aplicable a estas personas jurídicas corresponde a la escala tarifaria indicada en el artículo 15 inciso b) de la misma ley.
+Se entenderán comprendidas dentro de este inciso las micro y pequeñas empresas que cumplan con lo indicado en el párrafo anterior y estén inscritas ante el Ministerio de Economía, Industria y Comercio o ante el Ministerio de Agricultura y Ganadería, pudiendo estas aplicarse las tarifas señaladas en el numeral 15 inciso b) de la Ley del Impuesto sobre la Renta.
+Durante los primeros tres años a partir del inicio de sus operaciones, las empresas antes señaladas podrán reducir su deuda tributaria del siguiente modo:
+i) Durante el primer año, en un 100% de su impuesto determinado, por lo que no tendrá impuesto alguno que cancelar para este período.
+ii) Durante el segundo año, en un 75% de su impuesto determinado, debiendo cancelar un impuesto correspondiente al 25% de su impuesto determinado para este período.
+iii) Durante el tercer año, en un 50% de su impuesto determinado, debiendo cancelar un impuesto correspondiente al 50% de su impuesto determinado.
+A partir del cuarto año de operaciones, estas micro y pequeñas empresas deberán cancelar la totalidad del impuesto determinado que corresponda según la tarifa que resulte aplicable de acuerdo con sus rentas anuales. El término impuesto determinado se establecerá de conformidad con lo dispuesto en el artículo 17 bis de este Reglamento.
+La fragmentación de actividades económicas por parte del contribuyente para el aprovechamiento ilegítimo de los beneficios contemplados en este inciso podrá ser desvirtuada por la Administración Tributaria mediante actuaciones de control tributario y de conformidad con lo dispuesto en los artículos 8 y 12 bis del Código de Normas y Procedimientos Tributarios, así como sancionada con las sanciones administrativas y penales que pudieran corresponder.
+La Administración Tributaria está facultada para establecer, mediante resolución de alcance general, requisitos o condiciones adicionales para la prevención o corrección del fraccionamiento artificioso de actividades económicas por parte de contribuyentes de este impuesto y para determinar el correcto tratamiento tributario.
+c) Personas físicas con actividades lucrativas.
+En el caso de personas físicas cuya actividad lucrativa esté gravada con el impuesto sobre las utilidades se aplicará la tarifa correspondiente según lo indicado en el artículo 15 inciso c) de la Ley del Impuesto sobre la Renta sobre su renta neta imponible.
+El Ministerio de Hacienda actualizará mediante decreto ejecutivo los montos indicados en los incisos a), b) y c) del artículo 15 de la Ley del Impuesto sobre la Renta; estos deberán ser reajustados por el Poder Ejecutivo, con base en las variaciones de los índices de precios que determine el Banco Central de Costa Rica o según el aumento del costo de la vida en dicho período.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 41818 del 17 de junio del 2019)

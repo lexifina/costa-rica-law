@@ -1,9 +1,17 @@
-CAPITULO XXVII
-DE LA RETENCIÓN DEL UNO POR CIENTO COMO PAGO A CUENTA DEL IMPUESTO
-(NOTA: Adicionado este Capítulo -Nº XXVII- por el artículo 1º del Decreto Nº 18821 de 27 de enero de 1989, denominándolo "De la retención del uno por ciento como pago a cuenta del impuesto", integrado por los artículos 77 a 82. Posteriormente fue sustituido de manera íntegra, cambiándose su denominación por la actual y conformado por los nuevos artículos 77 a 79, por el artículo 15 del Decreto Nº 25046 de 26 de marzo de 1996)
-ARTICULO 77.- Con fundamento en el artículo 20 de la Ley del Impuesto General sobre las Ventas, la Administración Tributaria está facultada -con observancia del debido proceso- para ordenar el cierre por un plazo de quince días, de los establecimientos de los contribuyentes que incurran, o cuyos representantes o dependientes, según el caso, lo hagan, en cualquiera de las siguientes causales:
-1. No emitir la factura o comprobante, debidamente autorizado por la Administración Tributaria o no entregarlos al cliente en el mismo acto de la compraventa o la prestación del servicio.
-2. No percibir el tributo correspondiente o no retenerlo.
-3. Atrasarse por más de un mes, en la presentación de la declaración o el pago del impuesto correspondiente.
-4. No enterar al Fisco, los tributos retenidos o percibidos.
-(Así reformado por el artículo 15 del decreto ejecutivo Nº 25046 de 26 de marzo de 1996)
+ARTICULO 77.- Registro de los contadores públicos. Los contadores públicos interesados en certificar estados financieros para efectos tributarios deben inscribirse en el Registro a que se refiere el artículo 45 de ley; para estos fines, tales profesionales formularán la solicitud correspondiente, para lo cual presentarán la siguiente información y atestados en forma conjunta:
+a) Nombre completo del solicitante;
+b) Nombre de la universidad y fecha en la que se graduó;
+c) Números de: cédula de identidad, carné de afiliación al Colegio, póliza de fidelidad, teléfono, apartado y zona postal;
+ch) Lugar para recibir notificaciones de la Administración Tributaria;
+d) Condición en la que ejerce la profesión (independiente o adscrito a determinado despacho de contaduría pública);
+e) Certificación del Registro Judicial de Delincuentes;
+f) Certificación de que es miembro activo del Colegio;
+g) Certificación de aprovechamiento del curso de refrescamiento en materia tributaria, auspiciado por el Colegio, cuyo temario debe ser aprobado previamente por la Dirección; y
+h) Estar al día en sus obligaciones tributarias. El requisito indicado en el punto g) anterior puede ser sustituido por el certificado de aprovechamiento de un seminario, que deberá ser organizado por el Colegio, acerca de la Ley del Impuesto sobre la Renta vigente y su Reglamento, en tanto no se dicte el curso antes previsto.
+La solicitud de incorporación al Registro establecida en este artículo, deberá ser aprobada por una comisión ad hoc, la cual estará integrada por tres funcionarios de la Dirección General y dos delegados del Colegio nombrados por su Junta Directiva; la Administración Tributaria extenderá la autorización que acredita al contador público como miembro activo del Registro arriba citado, por un plazo de un año a partir de su emisión.
+Este plazo se renovará anualmente con la presentación de los documentos debidamente actualizados, enumerados en los incisos e) f) y g) de este artículo y el recibo de cancelación de la póliza de fidelidad para efectos tributarios.
+(De acuerdo con la reforma practicada por el artículo 2 del Decreto Ejecutivo N° 20620 de 8 de agosto de 1991 se corrió la numeración y el presente artículo 48 ocupó el lugar que antes correspondía al artículo 47).
+(Corrida la numeración por el artículo 5° del decreto ejecutivo N° 41818 del 17 de junio de 2019, que lo traspaso del artículo 48 al 46, ya que mediante el artículo 5° del decreto ejecutivo N° 41818 del 17 de junio de 2019, se ordena derogar los numerales 18 y 19)
+(Corrida su numeración por el artículo 5° del decreto ejecutivo N° 41818, que lo traspasó del artículo 46 al 45 , ya que mediante el artículo 5° del decreto ejecutivo N° 41818 del 17 de junio de 2019, se ordena derogar el original artículo 26” Venta de terrenos en lotes urbanizados”)
+(Corrida su numeración por el artículo 3° del decreto ejecutivo N° 41818 del 17 de junio del 2019, que lo traspasó del artículo 45 al 67)
+(Corrida su numeración por el artículo 3° del decreto ejecutivo N° 41818 del 17 de junio del 2019, que lo traspasó del artículo 67 al 77, toda vez que incluyó un nuevo capítulo)

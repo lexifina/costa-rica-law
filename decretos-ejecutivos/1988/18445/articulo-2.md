@@ -1,7 +1,2 @@
-CAPITULO II
-DEL OBJETO DEL IMPUESTO
-ARTICULO 2º.- Materia imponible. Está constituida por las rentas,
-ingresos o beneficios de fuente costarricense, continuos u ocasionales,
-consistentes en dinero o en especie, percibidos o devengados durante el
-período fiscal, tanto por las personas jurídicas como por las físicas con
-actividades lucrativas, domiciliadas o no en el país.
+Artículo 2.- Momento en que ocurre el hecho generador. Se considera ocurrido el hecho generador del impuesto sobre las utilidades con la percepción o devengo de rentas en dinero o en especie, continuas u ocasionales, procedentes de actividades lucrativas de fuente costarricense, así como cualquier otro ingreso o beneficio de fuente costarricense no exceptuado por Ley del Impuesto sobre la Renta.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 41818 del 17 de junio del 2019)
