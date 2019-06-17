@@ -1,0 +1,2 @@
+Artículo 44.—Del informe público anual. La JPS incorporará un resumen de las oportunidades de mejora en la gestión de la Junta y las acciones planteadas para su corrección en el informe público anual de labores que debe rendir al amparo de la Directriz 102-MP “Política General sobre Transparencia y Divulgación de Información Financiera y No Financiera para Empresas Propiedad del Estado, sus Subsidiarias, e Instituciones Autónomas” del 6 de abril de 2018.
+(Así adicionado mediante sesión N° 34-2019 del 17 de junio de 2019)
