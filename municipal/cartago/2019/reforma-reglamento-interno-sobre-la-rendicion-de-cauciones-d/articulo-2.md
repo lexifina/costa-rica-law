@@ -1,0 +1,2 @@
+b. Para que el artículo 8 en adelante se lea de la siguiente forma:
+“Artículo 8º—Las personas caucionantes. Deben rendir caución para el ejercicio de sus cargos quienes ocupen la presidencia, la vicepresidencia y la tesorería de la junta directiva, Ja dirección ejecutiva, subdirección administrativa, subdirección deportiva, la jefatura de la contabilidad, la jefatura de la proveeduría, la persona encargada de caja chica y las demás personas funcionarias que indique la Junta Directiva del CCDRC.”

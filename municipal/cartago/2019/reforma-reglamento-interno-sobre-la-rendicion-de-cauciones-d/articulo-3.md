@@ -1,0 +1,4 @@
+c. Para que en adelante el artículo 12 se lea de la siguiente forma:
+“Artículo 12.—Monto de la caución. El monto de la caución se calcula multiplicando el factor correspondiente a cada cargo, que se detalla en la siguiente tabla, por el “salario base” determinado en el artículo 2 de la Ley que Crea Concepto Salario Base para Delitos Especiales del Código Penal, Ley N° 7337 del 05 de mayo de 1993, (oficinista 1) el cual se actualiza anualmente y es el mecanismo utilizado para la fijación de multas y otros cargos por parte de instituciones del Estado Costarricense:
+[imagen]
+Dicha actualización será comunicada por la Dirección Ejecutiva por escrito en el mes de enero de cada año a las personas caucionantes para el ajuste respectivo, para el cual contarán con un plazo máximo de veinte días hábiles contados a partir de la notificación. Es deber de la persona caucionante presentar en dicho plazo el comprobante del ajuste en el monto.”
