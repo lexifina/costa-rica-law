@@ -1,0 +1,2 @@
+ARTÍCULO 50. MODIFICACIÓN O ANULACIÓN DE LA RESERVACIÓN.
+Cuando se encontrase en mal estado las canchas, pistas deportivas o el material a utilizar, que haría impracticable o peligrosa la práctica de cualquier deporte, se podrá cambiar la hora de reservación elegida por el usuario. Se podrá modificar la hora o día de uso de la instalación deportiva siempre y cuando exista disposición de la nueva hora o día y se realice con suficiente antelación el cambio.

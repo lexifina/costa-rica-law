@@ -1,0 +1,2 @@
+ARTÍCULO 49. ALQUILER DE LAS INSTALACIONES PARA ESCUELAS DEPORTIVAS DE TERCEROS.
+Las asociaciones, equipos, o terceros, podrán bajo su responsabilidad desarrollar escuelas deportivas y solicitar en alquiler las instalaciones al administrador respectivo. Para ello deberá presentar planes anuales con la necesidad de uso de la instalación. Queda a criterio del Comité Cantonal el cobro que se le realice a dicha escuela deportiva por el uso de la instalación.

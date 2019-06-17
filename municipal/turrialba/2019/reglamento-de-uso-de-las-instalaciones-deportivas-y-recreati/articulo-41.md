@@ -1,0 +1,3 @@
+ARTÍCULO 41. LOCALES COMERCIALES.
+Dentro de las instalaciones deportivas se podrán ubicar locales comerciales para alquiler, como sodas, bodegas, cubículos entre otros, siempre y cuando no se desvirtúe la funcionalidad de las actividades deportivas y sus instalaciones. que deberán realizarse mediante contrato escrito, el cual debe ser firmado por el Presidente de la Junta Directiva y refrendado por el Alcalde Municipal, las tarifas de alquiler deberán ser establecidas por el Comité Cantonal de Deportes.
+Todas las obligaciones tributarias y Municipales que se generen de la apertura de locales comerciales correrán por parte del inquilino.

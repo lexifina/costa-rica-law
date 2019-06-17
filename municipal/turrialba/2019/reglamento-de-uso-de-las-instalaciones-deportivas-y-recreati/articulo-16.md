@@ -1,0 +1,2 @@
+ARTÍCULO 16. IDENTIFICACIÓN DEL PERSONAL
+El personal que preste sus servicios en las Instalaciones Deportivas, estará siempre debidamente identificado, mediante uniforme institucional, y portará una tarjeta con su nombre y apellidos. Deberá presentar a los usuarios en cualquier momento la identificación de funcionario del Comité Cantonal de Deportes y atender cualquier sugerencia o queja que algún usuario interponga.

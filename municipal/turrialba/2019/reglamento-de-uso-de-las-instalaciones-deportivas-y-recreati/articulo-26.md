@@ -1,0 +1,2 @@
+ARTÍCULO 26. CIERRE DE LAS INSTALACIONES DEPORTIVAS
+El Comité Cantonal se reserva el derecho a cerrar las instalaciones deportivas, mediante resolución o acuerdo debidamente motivado, por razones sanitarias, de orden público y seguridad, programaciones propias como competiciones, partidos, cursos o cualquier otra que debidamente justificada implique el cierre. Así como por el disfrute de días feriados para los trabajadores del Comité Cantonal o períodos de vacaciones establecidos por el gobierno central para los funcionarios públicos.
