@@ -1,4 +1,0 @@
-Artículo 10.—Acuerdos de Precios por anticipado. Los contribuyentes podrán solicitar un Acuerdo de Precios por Anticipado a la Administración Tributaria con el fin de determinar la valoración de las operaciones entre personas relacionadas, con carácter previo a su realización. Dicha solicitud se debe acompañar de una propuesta del contribuyente que se fundamente en el valor de las operaciones que habrían convenido partes independientes en operaciones similares.
-Cuando no se logre un consenso entre el contribuyente y la Administración Tributaria en la suscripción del acuerdo, se dictará un auto que así lo indique y en el mismo se dispondrá el archivo del expediente. Contra este auto no cabrá recurso alguno.
-Los acuerdos de precios por anticipado tendrán una vigencia de tres años.
-Mediante resolución se establecerán las disposiciones generales que regularán la forma en que se tramitarán estos acuerdos.
