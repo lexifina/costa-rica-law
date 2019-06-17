@@ -35,3 +35,9 @@ Artículo 50.—Definición de los términos.
 Este Reglamento rige a partir del día de su publicación.
 (Así adicionado mediante sesión Nº 208, celebrada el 24 de abril del 2006)
 (Ver Croquis del Plan Regulador de Escazú, en la página No. 37 de La Gaceta No. 90 del 11de mayo del 2006.)
+[imagen]
+(Así adicionado el mapa anterior mediante sesión ordianria N° 164 del 17 de junio del 2019)
+[imagen]
+(Así adicionado el mapa anterior mediante sesión ordianria N° 164 del 17 de junio del 2019)
+[imagen]
+(Así adicionado el mapa anterior mediante sesión ordianria N° 164 del 17 de junio del 2019)
