@@ -1,4 +1,6 @@
+(Derogado)
 BANCO NACIONAL DE COSTA RICA
+(Esta norma fue derogada por el capítulo III “Disposiciones finales” del Reglamento de la Junta Directiva del Banco Nacional aprobado mediante sesión N° 12367 del 17 de junio del 2019)
 El Banco Nacional de Costa Rica comunica la parte resolutiva del acuerdo tomado por la Junta Directiva General, en la Sesión Nº 12.090, artículo 14º, celebrada el 4 de julio del 2016, en el cual acordó aprobar propuesta de Reglamento para el funcionamiento de la Junta Directiva General del Banco Nacional de Costa Rica, para que, en lo sucesivo, se lea de conformidad con el siguiente texto:
 REGLAMENTO PARA EL FUNCIONAMIENTO
 DE LA JUNTA DIRECTIVA GENERAL DEL

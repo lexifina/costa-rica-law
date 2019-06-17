@@ -14,3 +14,4 @@ Reglamento para el funcionamiento de la Junta Directiva General del Banco Nacion
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-08-12 | la propia norma |
+| 2 | 2019-06-17 | Reglamento 12367 (2019-06-17) |
