@@ -1,1 +1,0 @@
-Artículo 14.- Confección del orden del día. El Presidente en conjunto con el Gerente de la Sucursal elaborará el orden del día a discutir en cada sesión y lo comunicará a los demás directores con al menos tres días naturales de antelación, junto con la correspondencia, informes y documentos que servirán de base para la discusión de los asuntos agendados.

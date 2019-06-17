@@ -1,2 +1,0 @@
-Artículo 3.- Designación de los directores.
-Los miembros de las Juntas Directivas locales serán nombrados por períodos de cuatro años, uno en los quince días anteriores a la finalización del período presidencial a que se refiere el artículo 134 de la Constitución Política y los dos restantes en los primeros quince días del mes de junio del siguiente período presidencial, y serán inamovibles durante el período para que fueran designados.

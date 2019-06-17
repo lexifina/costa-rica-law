@@ -1,1 +1,0 @@
-Artículo 31.- De la comunicación de acuerdos. La comunicación de los acuerdos de las juntas directivas, una vez que queden firmes, será realizada por la Gerencia de cada sucursal, transcribiendo en forma literal o en lo conducente lo acordado. Estos acuerdos serán debidamente notificados a los interesados, en los casos que ello sea procedente.
