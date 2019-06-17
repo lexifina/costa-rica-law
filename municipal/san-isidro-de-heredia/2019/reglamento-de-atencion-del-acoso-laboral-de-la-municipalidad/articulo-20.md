@@ -1,0 +1,1 @@
+Artículo 20.—Sanciones Disciplinarias. Las sanciones disciplinarias por acoso laboral comprobado se aplicarán según la gravedad del hecho y la condición jerárquica de la persona denunciada, el Código de Trabajo, Reglamento Autónomo de Organización y Servicios de la Municipalidad de San Isidro de Heredia, y cualquier otra disposición normativa que regule la materia.
