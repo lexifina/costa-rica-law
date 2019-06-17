@@ -1,0 +1,1 @@
+Artículo 49.—Tratamiento de los residuos. En caso de rellenos sanitarios, los residuos no valorizables recolectados y transportados por la Municipalidad o por un tercero contratado por la Institución, deberán recibir el tratamiento especificado en los artículos 13, 14 y 18 del Reglamento sobre Rellenos Sanitarios, Decreto Ejecutivo Nº 27378-S u otra regulación vigente.

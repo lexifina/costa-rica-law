@@ -1,0 +1,2 @@
+Artículo 83—Ferias, campañas y otras actividades ambientales. La Municipalidad podrá realizar ferias, campañas y otro tipo de actividad de proyección, información, capacitación y sensibilización sobre la importancia de la gestión integral de residuos.
+La Municipalidad será la responsable de la coordinación de dichas actividades, sin embargo, podrá aplicar el artículo 73 de este reglamento cuando la actividad lo requiera.

@@ -1,0 +1,1 @@
+Artículo 74.—Medidas especiales. La Municipalidad, ante la violación de este reglamento deberá aplicar las siguientes medidas protectoras, acorde con el artículo 99 de la Ley Orgánica del Ambiente, a saber:

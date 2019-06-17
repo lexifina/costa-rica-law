@@ -1,0 +1,1 @@
+Artículo 51.—Disposición final de residuos peligrosos o de manejo especial. Los residuos industriales, infectocontagiosos y otros residuos generados en el cantón podrán ser depositados solamente si se cumple lo establecido en los artículos 15 y 16 del Reglamento sobre Rellenos Sanitarios, Decreto Ejecutivo Nº 27378-S u otra regulación vigente.

@@ -1,0 +1,1 @@
+Artículo 56.—Puntos de almacenamiento y transferencia permanentes. Son puntos que mantienen el servicio de recolección diferenciada de residuos sólidos valorizables constantemente disponibles en horarios establecidos semanalmente. Estos sitios están diseñados para que sean utilizados por la comunidad que habita alrededor del punto de manera permanente.

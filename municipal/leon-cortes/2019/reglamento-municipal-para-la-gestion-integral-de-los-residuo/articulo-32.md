@@ -1,0 +1,2 @@
+Artículo 32.—Los generadores comerciales e industriales que dentro de sus procesos comerciales, productivos e industriales produzcan residuos de manejo especial o peligrosos deberán obligatoriamente separar dichos residuos de los residuos ordinarios y presentar a la Municipalidad un plan de gestión para dichos residuos.
+Queda prohibido entregar a la recolección municipal residuos ordinarios mezclados con residuos de manejo especial o peligroso.

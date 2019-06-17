@@ -1,0 +1,7 @@
+Artículo 63.—Tipos de incentivos. Dentro de los tipos de incentivos que la
+Municipalidad podrá otorgar a las personas físicas o jurídicas, públicas o privadas que participen activamente en los programas de gestión integral de residuos son:
+a) Reconocimiento formal en los medios digitales oficiales de la Municipalidad (Página electrónica oficial, Redes sociales, entre otros).
+b) Identificación de hogares, comercios, instituciones y comunidades, mediante calcomanías o banderas verdes.
+c) Capacitación en temas relacionados con la Gestión Integral de Residuos.
+d) Tarifas diferenciadas y de menor costo a la tarifa normal según cada categoría, para los generadores inscritos y activos en los programas de domicilios, comercios e instituciones verdes. También habrá diferenciación de tarifas para aquellos propietarios de predios en los que se ubiquen puntos de almacenamiento y transferencia permanentes, así como para los contribuyentes domiciliarios, comerciales e institucionales en los que se ejecute o el cobro de la tasa por el servicio de recolección de residuos en las diferentes comunidades, siempre que esta no sea por los medios bancarios establecidos. Lo anterior se aplicará siempre que las condiciones financieras del servicio e institucionales lo permitan. Para estos casos aplicará la suscripción del convenio pertinente.
+e) Invitación a ferias, campañas y procesos de capacitación vinculados al manejo de los residuos sólidos.

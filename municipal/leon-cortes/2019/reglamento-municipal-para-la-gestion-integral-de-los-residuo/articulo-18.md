@@ -1,0 +1,4 @@
+Artículo 18.—Obligaciones de los generadores industriales.
+Los generadores catalogados como generadores industriales tendrán las siguientes obligaciones:
+a) Establecer un programa de manejo de residuos para sus instalaciones y procesos, el cual deberá incluir la jerarquización en la gestión integral de residuos.
+b) Proporcionar a la Municipalidad la información sobre los tipos de residuos, la generación y el manejo de los residuos que se realiza en la actividad o proceso cada 3 meses, con el fin de actualizar el Sistema Nacional de Información sobre la Gestión Integral de Residuos, acorde a la Ley Nº 8839 y su reglamento.
