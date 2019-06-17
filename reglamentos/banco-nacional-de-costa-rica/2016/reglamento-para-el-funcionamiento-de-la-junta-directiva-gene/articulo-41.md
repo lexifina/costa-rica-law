@@ -1,3 +1,0 @@
-Artículo 41.—Atención a los acuerdos adoptados. Todas las dependencias del Banco deberán dar atención inmediata a los acuerdos adoptados.
-La Gerencia deberá indicar a cuál dependencia le corresponde ejecutar la resolución tomada y hacer la comunicación respectiva, salvo los encargos a la Auditoría General y al Asesor Legal de la Junta Directiva. La Gerencia deberá llevar, además, un registro especial de cada acuerdo y verificar su fiel cumplimiento.
-Compete al Auditor General informar a la Junta Directiva sobre el cumplimiento de dichos acuerdos por las dependencias a las cuales les han sido asignados.

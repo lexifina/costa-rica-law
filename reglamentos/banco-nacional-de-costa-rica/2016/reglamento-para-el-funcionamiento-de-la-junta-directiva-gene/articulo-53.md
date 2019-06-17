@@ -1,1 +1,0 @@
-Artículo 53.—Del compromiso de confidencialidad. Los directores deberán suscribir un documento denominado “Compromiso de confidencialidad” en acatamiento de lo dispuesto en las políticas de seguridad de la información emitidas por el Banco.

@@ -1,2 +1,0 @@
-Artículo 56.—Solicitud de informes de Auditoría. Los directores integrantes de la Junta Directiva podrán proponer en cualquier momento a dicho órgano que instruya a la Auditoría General, a realizar estudios o informes dentro del ámbito de su competencia, sobre cualquier asunto relacionado con la institución.
-Para el caso de que la Junta Directiva no acoja la propuesta indicada en el párrafo anterior, el director proponente deberá hacer constar las razones de su petición, para los efectos de los artículos 27° y 28° ambos de la LOSBN.

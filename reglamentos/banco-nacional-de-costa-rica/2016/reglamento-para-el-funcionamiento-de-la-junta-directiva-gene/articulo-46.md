@@ -1,1 +1,0 @@
-Artículo 46.—Transcripción de actas. Las actas, una vez aprobadas, deberán transcribirse de inmediato al libro. Los directores, Gerente, Subgerentes, Auditor General y Asesor Legal, deberán estampar su firma al pie de cada acta, siempre que hayan asistido a la sesión correspondiente.

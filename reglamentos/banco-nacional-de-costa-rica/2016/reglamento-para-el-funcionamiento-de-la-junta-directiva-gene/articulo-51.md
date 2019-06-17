@@ -1,2 +1,0 @@
-Disposiciones Finales
-Artículo 51.—Principios rectores en materia de capacitaciones de los directores. En materia de capacitación, los directores procurarán un acceso equitativo a las diversas opciones de formación y actualización para todos los miembros del órgano colegiado, actuando en estricto apego a los Principio Éticos de los Funcionarios Públicos y los Enunciados Rectores de Igualdad, Austeridad, Transparencia, Probidad, Integridad y Honestidad.

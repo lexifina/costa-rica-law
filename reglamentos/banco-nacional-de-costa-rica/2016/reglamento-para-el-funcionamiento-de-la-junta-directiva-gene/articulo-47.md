@@ -1,3 +1,0 @@
-Artículo 47.—Archivos y registros oficiales. Hasta que las actas se encuentren en firme, asentadas y firmadas en el libro de actas de la Junta Directiva, la Secretaría General podrá eliminar los instrumentos materiales de apoyo, tales como borradores, grabaciones o cualquier otro mecanismo utilizado para facilitar la elaboración de cada acta.
-Las grabaciones serán conservadas al menos hasta el momento en que esté aprobada y firmada el acta respectiva; vencido ese plazo serán eliminadas de acuerdo a lo dispuesto en la Tabla de Plazos de Conservación de Documentos.
-La Secretaría General deberá velar por el debido cuidado en el almacenamiento de información a la que pueden tener acceso terceros no autorizados en el proceso de transcripción.

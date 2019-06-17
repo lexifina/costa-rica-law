@@ -1,3 +1,0 @@
-Artículo 28.—Remuneración de los Directores. La asistencia puntual de los miembros de la Junta Directiva a las sesiones les dará derecho a percibir dietas fijas que irán determinadas claramente en los presupuestos anuales del Banco. Esta será la única remuneración que podrán recibir por sus servicios en el desempeño de sus funciones.
-El monto de las dietas lo determinará periódicamente el Consejo de Gobierno. La remuneración a que se refiere este artículo será percibida por los miembros de la Junta Directiva cuando asistan en forma completa, a las correspondientes sesiones.
-Lo anterior sin perjuicio del pago de viáticos al exterior o interior, según corresponda, de acuerdo con las disposiciones aprobadas por la Contraloría General de la República.
