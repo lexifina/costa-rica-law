@@ -1,3 +1,5 @@
-Artículo 10.—No obstante las formalidades especiales a que estarán sometidas los contribuyentes inscritos en el Régimen, la Dirección General de la Tributación Directa conservará las facultades fiscalizadoras que la ley le otorga, y podrá verificar la veracidad y exactitud del contenido de las declaraciones presentadas, cuando lo estime conveniente.
+Artículo 10.- Facultades de control tributario y sanciones aplicables(*). No obstante las formalidades especiales a que estarán sometidas los contribuyentes inscritos en el Régimen, la Administración Tributaria conservará las facultades de control tributario que la ley le otorga, y podrá verificar la veracidad y exactitud del contenido de las declaraciones presentadas, cuando así lo estime conveniente.
+(Así reformado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 41819 del 18 de junio del 2019)
+(*) (Así adicionado el epígrafe anterior por el artículo 3° del decreto ejecutivo N°41819 del 18 de junio del 2019)
 Los contribuyentes inscritos en el Régimen, que incurran en hechos ilícitos tributarios (infracciones administrativas, contravenciones tributarias o delitos tributarios), se harán acreedores a las sanciones previstas por el Título Tercero del Código de Normas y Procedimientos Tributarios.
 (Reformado parcialmente por el artículo 9° del Decreto Ejecutivo N° 29643, del 10 de julio de 2001)

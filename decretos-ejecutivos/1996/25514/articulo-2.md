@@ -1,4 +1,5 @@
-Artículo 2°— Podrán ingresar al Régimen los contribuyentes que se dediquen a una de las actividades enumeradas en el artículo anterior o que combinen varias de ellas. No procede el ingreso al Régimen, cuando el contribuyente solicitante desarrolle simultáneamente otras actividades no contempladas en él.
+Artículo 2.- Del acceso al Régimen(*). Podrán ingresar al Régimen los contribuyentes que se dediquen a una de las actividades enumeradas en el artículo anterior o que combinen varias de ellas. No procede el ingreso al Régimen, cuando el contribuyente solicitante desarrolle simultáneamente otras actividades no contempladas en él.
+(*) (Así adicionado el epígrafe anterior por el artículo 3° del decreto ejecutivo N°41819 del 18 de junio del 2019)
 Se entenderá por:
 a) Bares, cantinas, tabernas o establecimientos similares: Aquellos dedicados exclusivamente al servicio de expendio de bebidas alcohólicas para consumo dentro de los mismos. No podrán ingresar ni permanecer en el régimen, establecimientos como los indicados, cuando el valor máximo individual de venta, de cualquier unidad de bebida alcohólica, supere el 1% del salario base; o cuando estén combinados con servicios de hoteles, centros sociales y similares.
 (Así reformado el inciso anterior por el artículo 2° del decreto ejecutivo N° 34921 del 26 de noviembre de 2008)
