@@ -15,3 +15,4 @@ Reglamento de Tablas de Mortalidad
 | --- | --- | --- |
 | 1 | 2008-02-26 | la propia norma |
 | 2 | 2014-09-01 | Reglamento 1122 (2014-09-01) |
+| 3 | 2019-06-18 | Reglamento 1507 (2019-06-18) |
