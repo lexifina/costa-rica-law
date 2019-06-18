@@ -14,3 +14,4 @@ Reglamento municipal de obras menores
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-01-17 | la propia norma |
+| 2 | 2019-06-18 | Reglamento municipal 0 (2019-06-18) |
