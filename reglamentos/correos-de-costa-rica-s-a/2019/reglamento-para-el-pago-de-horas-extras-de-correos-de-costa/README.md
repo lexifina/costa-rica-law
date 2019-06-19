@@ -14,3 +14,4 @@ Reglamento para el pago de horas extras de Correos de Costa Rica S.A
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-02-13 | la propia norma |
+| 2 | 2019-06-19 | Reglamento 1564 (2019-06-19) |

@@ -18,10 +18,9 @@ La jornada rotativa o alterna es aquella donde se labora en jornadas diurnas, mi
 b.7 Jornada acumulativa.
 Consiste en refundir la jornada semanal en un menor número de días, mediante el aumento de la jornada de trabajo diaria, siempre que con ello no se supere el límite legal establecido para la jornada correspondiente.
 b.8. Jornada extraordinaria.
-Se entiende por jornada extraordinaria aquella labor especial, de carácter excepcional y transitorio, que se ejecute fuera de la jornada ordinaria de trabajo o de los límites fijados o pactados por la empresa.
+Se entiende por jornada extraordinaria aquella labor especial, de carácter excepcional y transitorio, que se ejecute fuera de la jornada ordinaria de trabajo o de los límites fijados o pactados por la empresa, siempre que el empleado esté a disposición del patrono. Dentro de ella es procedente reconocer el tiempo de traslado, cuando este es imperativo e impuesto por el patrono por razón del servicio que el trabajador debe prestar.
+(Así reformado el inciso anterior en sesión N° 1564 del 19 de junio de 2019)
 b.9. Siniestro o riesgo inminente.
 Circunstancia excepcional, derivada de una situación imprevisible para la empresa o sus trabajadores, que pueda causar grave perjuicio al cumplimiento de cualquiera de sus funciones.
 b.10 Jornada emergente.
-Es aquella que debe prestar el trabajador obligatoriamente y sin que implique remuneración
-adicional, en caso de siniestros o riesgos inminentes que pongan en peligro las personas o
-intereses del patrono
+Es aquella que debe prestar el trabajador obligatoriamente y sin que implique remuneración adicional, en caso de siniestros o riesgos inminentes que pongan en peligro las personas o intereses del patrono
