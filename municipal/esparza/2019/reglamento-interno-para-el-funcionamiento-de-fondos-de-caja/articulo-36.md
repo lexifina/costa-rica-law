@@ -1,0 +1,1 @@
+Artículo 36.—Directrices. Con el objeto de garantizar el uso eficiente del fondo y mantener un adecuado control interno al respecto, el presente Reglamento será complementado con aquellas directrices de rango superior que sean emitidas, siempre y cuando no contravengan el presente Reglamento.

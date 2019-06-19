@@ -1,0 +1,1 @@
+Artículo 27.—De la no tramitación de facturas. No se tramitarán facturas con fecha anterior de haberse registrado el vale de caja chica. En forma excepcional y con la autorización del gestor, siempre que haya disponible presupuestario y económico, se podrá tramitar el pago de una factura o viáticos dentro del país sin que medie la emisión previa del vale de caja chica.

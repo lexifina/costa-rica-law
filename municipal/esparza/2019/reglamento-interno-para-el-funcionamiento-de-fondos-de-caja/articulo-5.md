@@ -1,0 +1,2 @@
+Artículo 5°—Monto de los fondos: el monto del fondo de caja chica será equivalente a 10 veces la suma del vale de caja chica y su custodia será responsabilidad del Tesorero Municipal quien deberá actuar de conformidad con la normativa vigente y este Reglamento.
+La actualización anual del monto del Vale y Fondo de Caja Chica, se hará de forma automática, una vez publicado en La Gaceta, los límites generales de contratación administrativa indicados en los artículos 27 y 84 de la Ley de Contratación Administrativa y sus reformas, la gestión financiera comunicará lo pertinente.

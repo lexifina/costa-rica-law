@@ -1,0 +1,1 @@
+Artículo 24.—De la facultad del encargado del fondo. El encargado del fondo tendrá facultades para rechazar aquellos pagos efectuados por medio de estos fondos que no reúnan los requisitos estipulados en el Reglamento, haciendo responsable al que autorizó su trámite en forma incorrecta.

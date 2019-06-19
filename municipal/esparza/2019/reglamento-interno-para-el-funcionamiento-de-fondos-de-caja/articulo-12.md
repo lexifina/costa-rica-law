@@ -1,0 +1,6 @@
+Artículo 12.—Requisitos de los comprobantes: las facturas, recibos o comprobantes de egresos, que acrediten las adquisiciones efectuadas con recursos de la caja chica, deberán cumplir con los siguientes requisitos:
+a) Ser documentos originales (facturas electrónicas o tiquetes electrónicos), sin tachaduras ni borrones, emitidos en favor de la Municipalidad, timbrados o dispensados del mismo por la Dirección General de la Tributación del Ministerio de Hacienda.
+b) Especificar claramente el detalle de la compra o servicio recibido, la cual deberá ser igual o posterior a la fecha en la que se entrega el efectivo del vale.
+c) Contener el nombre y número de cédula del proveedor.
+Cuando se trate de facturas o comprobantes emitidos por proveedores pertenecientes al régimen simplificado y que por tal motivo no contengan esa información, deberá indicarse en la respectiva factura el nombre, número de cédula de la persona física o jurídica que suministra el bien o servicio y sus especificaciones, así como el número de resolución otorgado por la Dirección General de Tributación Directa.
+d) Ser firmados al reverso por la persona que recibió el bien o servicio, como medio para acreditar que la adquisición del bien o servicio adquirido se dio a satisfacción.

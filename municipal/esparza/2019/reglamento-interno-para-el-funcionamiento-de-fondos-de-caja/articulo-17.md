@@ -1,0 +1,1 @@
+Artículo 17.—Determinación de diferencias: si realizado el arqueo se determinara la existencia de alguna diferencia, ésta deberá ser justificada por el responsable de Caja Chica. Si se trata de un faltante, éste deberá reponerse de inmediato al fondo fijo y si fuera un sobrante, deberá depositarse a la cuenta general de la Municipalidad de Esparza una vez concluido el arqueo.
