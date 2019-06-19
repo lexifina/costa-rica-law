@@ -1,1 +1,1 @@
-Artículo 16.—El tiempo laborado interinamente será tomado en cuenta para efectos del ejercicio profesional, cuando el período haya sido continuo por mas de seis meses.
+Artículo 16.—(Anulado mediante resolución de la Sala Constitucional N° 011130 del 19 de junio de 2019)

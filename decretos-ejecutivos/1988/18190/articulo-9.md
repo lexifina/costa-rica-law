@@ -55,3 +55,4 @@ Se concederá una cantidad de puntos igual al promedio obtenido por el candidato
 6 -CONTRIBUCIÓN DEL CANDIDATO AL PROGRESO CIENTÍFICO Y PROFESIONAL DE ENFERMERÍA:
 a. Se tomará en cuenta los aportes del candidato al progreso científico y al desarrollo profesional de enfermería.
 b. El candidato presentará certificaciones, extendidas por el Colegio, que señalan los aportes con el puntaje correspondiente, hasta un máximo de 10 puntos.
+(Nota de Sinalevi: Mediante resolución de la Sala Constitucional N° 011130 del 19 de junio de 2019, se estableció que el inciso 6) anterior no es inconstitucional, siempre y cuando se interprete, conforme a la Constitución Política, en el sentido que no se le podrá otorgar puntos por el simple hecho de haber sido o ser parte de la Junta Directiva del Colegio de Enfermeras de Costa Rica.)
