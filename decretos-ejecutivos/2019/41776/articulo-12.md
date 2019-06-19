@@ -1,0 +1,3 @@
+Artículo 12.- De las sesiones. Tanto el Consejo de Empleo como la Secretaría técnica celebrarán cuatro sesiones ordinarias al año y podrán sesionar extraordinariamente cuando así lo acuerden necesario sus miembros o lo convoque la presidencia de cada órgano.
+El quórum y los acuerdos serán por mayoría simple de las personas presentes con voz y voto debidamente nombradas a la fecha de realización de las sesiones. La firmeza de los acuerdos será por mayoría calificada.
+El Consejo de Empleo y la Secretaría Técnica se regirán, supletoriamente, por las disposiciones contenidas en el Capítulo Tercero del Título Segundo de la Ley General de Administración Pública, referente a órganos colegiados en la administración pública.

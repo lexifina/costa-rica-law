@@ -1,0 +1,1 @@
+Transitorio Segundo.- De los efectos del SIOIE. Para todos sus efectos, el presente Decreto Ejecutivo reemplaza al Decreto Ejecutivo No. 34936-MTSS que crea el Sistema de Información, Orientación e Intermediación de Empleo, de manera que, cualquier normativa vigente fundamentada en el Decreto Ejecutivo No. 34936-MTSS continuará vigente amparada en el presente Decreto Ejecutivo.

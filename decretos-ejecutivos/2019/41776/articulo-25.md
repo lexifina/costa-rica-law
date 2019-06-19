@@ -1,0 +1,1 @@
+Artículo 25.- Implementación del SNE. El modelo de gestión y el manual de procedimientos, así como cualquier otra normativa o reforma necesaria para la implementación del Sistema Nacional de Empleo, deberán ser aprobados por el Consejo de Empleo en un plazo máximo de seis meses a partir de la entrada en vigencia del presente Decreto Ejecutivo

@@ -1,0 +1,1 @@
+Artículo 11.- De las comisiones de trabajo. La Secretaría Técnica podrá nombrar comisiones y equipos de trabajo para el apoyo a su gestión; las cuales estarán conformadas por las personas integrantes relacionadas con el tema, así como por personas asesoras internas o externas que se consideren pertinentes.

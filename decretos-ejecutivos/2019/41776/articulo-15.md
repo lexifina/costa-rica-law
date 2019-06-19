@@ -1,0 +1,1 @@
+Artículo 15.- De la Red de Unidades de Empleo (RUE): La Agencia Nacional de Empleo tendrá presencia regional a través de la Red de Unidades de Empleo (por sus siglas, RUE), entendida como el conjunto de todas las unidades de empleo, públicas, privadas, o público-privadas de las que se disponga.
