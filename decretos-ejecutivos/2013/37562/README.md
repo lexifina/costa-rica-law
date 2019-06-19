@@ -64,3 +64,4 @@ Reglamento de Especialidades y Subespecialidades Médicas
 | 49 | 2019-04-24 | Acuerdo 0 (2019-04-24) |
 | 50 | 2019-04-24 | Acuerdo 0 (2019-04-24) |
 | 51 | 2019-05-08 | Acuerdo 0 (2019-05-08) |
+| 52 | 2019-06-19 | Acuerdo 0 (2019-06-19) |
