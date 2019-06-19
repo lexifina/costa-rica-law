@@ -1,0 +1,38 @@
+N° 41785-MP-T
+EL PRESIDENTE DE LA REPÚBLICA
+Y LOS MINISTROS DE LA PRESIDENCIA
+Y DE TURISMO
+En uso de las facultades que les confieren los artículos 140 incisos 3) 8) 18) y 20) y 146 de la Constitución Política; los artículos 25, 27 inciso 1) y 28 inciso 2), acápite b) de la Ley General de la Administración Pública, Ley N° 6227 del 02 de mayo de 1978 y los artículos 4 y 5, de la Ley Orgánica del Instituto Costarricense de Turismo, Ley N° 1917 del 30 de julio de 1955.
+Considerando:
+I.—Que es de interés del Gobierno de la República promover actividades que incentiven la atracción del turismo y el ingreso económico a las zonas del país.
+II.—Que World Triathlon Corporation (WTC) organiza, promueve y licencia el evento deportivo “Ironman 70.3”, el cual se conoce también como “Medio Ironman” y es una de las series de carreras de triatlón de media distancia más importantes a nivel mundial. Usualmente, más de noventa mil atletas, de edades entre los dieciocho y setenta o más arios, que representan más de cincuenta países, participan en la temporada de carreras de clasificación para el campeonato, en lugares tan diversos como Australia, Alemania, Sudáfrica y Suiza.
+III.—Que la Ley Orgánica del Instituto Costarricense de Turismo, Ley N° 1917 del 30 de julio de 1955, artículos 4 y 5, establece entre otras funciones, la competencia de la Institución para fomentar el ingreso y grata permanencia en el país de los visitantes extranjeros que busquen descanso, diversión o entretenimiento, así como promover y estimular cualesquiera de las actividades comerciales, industriales, de transporte, deportivas, artísticas o culturales y ambientales entre otras, que permitan atraer el turismo, brindándoles facilidades y distracciones, para promocionar al país en los distintos campos.
+IV.—Que el Plan Nacional de Desarrollo y de Inversión Pública del Bicentenario, 2019-2022, establece como intervención estratégica en el sector turismo que, dentro del programa de crecimiento turístico se debe:
+“[...] pro mover el desarrollo turístico sostenible, innovador e inclusivo mediante el desarrollo del talento humano y una efectiva gestión pública que permita generar oportunidades para el desarrollo local, a través del mejoramiento de la competitividad turística y la grata permanencia de los turistas [...]”
+V.—Que dentro del Plan Nacional de Desarrollo y de Inversión Pública del Bicentenario, 2019- 2022, se constituye dentro de los principales retos de política pública para la reducción del empleo la:
+“[...] recuperación del sector turismo después de la crisis se ve reflejado en la mayor cantidad de extranjeros que ingresan al país por el Aeropuerto Internacional Daniel Oduber; esto provocó un impacto favorable en la generación de ingresos, dadas las mejoras en el nivel educativo de la población y la experiencia acumulada sobre las oportunidades de encadenamientos productivos en la cadena de servicios turísticos.”
+VI.—Que el Plan Nacional de Desarrollo y de Inversión Pública del Bicentenario 2019-2022, señala la importancia de:
+“Innovar en la oferta de productos turísticos de Costa Rica y diversificar los mercados de visitantes para mantener la competitividad del sector turístico y la generación de emprendimientos y empleos.
+” VII.—Que el Plan Nacional de Desarrollo Turístico de Costa Rica 2017-2021, señala:
+“El mejor prospecto de Costa Rica sigue siendo un viajero experimentado, educado y con poder adquisitivo alto.”
+VIII.—Que dentro del Plan Nacional de Desarrollo Turístico de Costa Rica 2017-2021, se define que las:
+“[...] motivaciones de viaje [de los turistas] son variadas, pero principalmente buscan el enriquecimiento cultural, se sienten atraídos por la naturaleza, la belleza escénica, la vida silvestre y actividades de aventura al aire libre, lo que está fuertemente asociado con la oferta turística de Costa Rica.”
+IX.—Que en el Plan Nacional de Desarrollo Turístico de Costa Rica 2017-2021, se asienta la importancia de que:
+“Más del 75 % consideran fuertemente que Costa Rica ofrece “experiencias únicas”. Igualmente, muchos piensan que Costa Rica es un país “sereno y pacífico” y “rico en flora y fauna.”
+X.—Que la actividad turística en general se ha convertido en la principal fuente de generación de divisas para el país y una fuente importante de empleo para los costarricenses.
+XI.—Que durante los años 2017 y 2018 se realizaron ediciones del evento deportivo “Ironman 70.3 Costa Rica”, un impacto económico evidente que benefició no solo a la comunidad de “El Coco”, sino también a las zonas adyacentes.
+XII.—Que nuevamente se ha designado a Costa Rica y a la localidad de Playas del Coco, Guanacaste, como sede del evento denominado “Ironman 70.3 Costa Rica”, a realizarse el 23 de junio del 2019.
+XIII.—Que mediante el evento deportivo “Ironman 70.3 Costa Rica” se combate la estacionalidad pues se efectuaría en el mes de junio del año en curso, época de temporada baja para el país, fortaleciendo los nichos de aventura, bienestar y familia, revitalizando la economía de la zona y fomentando el trabajo en las comunidades involucradas.
+XIV.—Que este evento deportivo permite una alta proyección del país ya que Costa Rica se convierte en la única sede centroamericana, a través de las diversas estrategias de comunicación en medios, procurando el incremento en el ingreso de las divisas
+XV.—Que el “Ironman 70.3 Costa Rica” genera beneficios expansivos al crear un involucramiento social, impactando positivamente la economía de la región, la comunidad y el mercado nacional al generar empleos en la cadena de comercialización, incluso el fortalecimiento de los valores y tradiciones costarricenses.
+XVI.—Que se espera que este evento deportivo genere los siguientes resultados derivados y positivos en materia turística para el país:
+- Promocionar a Costa Rica en el ámbito mundial, al apoyarse un evento que cuenta con gran reconocimiento a nivel mundial como lo es “Ironman 70.3” se genera un impacto positivo para el posicionamiento de Costa Rica como sede para eventos de tal trascendencia e importancia, siendo que se abre la oportunidad de promover no solo el segmento de aventura, sino también el de eventos deportivos, de reuniones y convenciones que actualmente resultan de enorme interés para el impulso del desarrollo turístico.
+- Generar un impacto económico significativo en la industria turística promoviendo encadenamientos productivos en las comunidades locales.
+- Impulsar la imagen de nuestro país en los segmentos de aventura, turismo de bienestar y familia.
+- Incrementar la cantidad de turistas que nos visitan de nuestros principales mercados meta, ya que los competidores provienen principalmente de los Estados Unidos de Norteamérica, Europa, países de Latinoamérica como Estados Unidos Mexicanos, Brasil, Argentina, Colombia, países de Centroamérica y por su puesto los visitantes nacionales.
+- Consolidar los mercados existentes y, influenciar a nuevos mercados a visitar el país, como resultado de la extensa cobertura de importantes medios de comunicación.
+XVII.—Que, este evento se desarrollará, bajo un diseño organizativo de conservación y de amigabilidad con el ambiente, mediante diversas acciones a ejecutar en conjunto con las comunidades aledañas, lo cual demuestra el compromiso del País con la sostenibilidad, eje transversal del modelo de desarrollo turístico del país. Por tanto,
+DECRETAN:
+“DECLARATORIA DE INTERÉS PÚBLICO Y NACIONAL
+DEL EVENTO IRONMAN 70.3 COSTA RICA”
+Artículo 1º—Declaratoria. Se declara de interés público y nacional las actividades e iniciativas relacionadas al evento “Ironman 70.3 Costa Rica”, el cual tendrá lugar el 23 de junio del 2019.
