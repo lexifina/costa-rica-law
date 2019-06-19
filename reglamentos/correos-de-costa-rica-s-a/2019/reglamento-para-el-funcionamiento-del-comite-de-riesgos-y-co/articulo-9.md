@@ -1,0 +1,1 @@
+Artículo 9°—Formato de actas del Comité de Riesgos y Control Interno Empresarial. El Comité de riesgos y de Control Interno Empresarial deberá contar con un formato de actas de uso obligatorio para cada sesión.

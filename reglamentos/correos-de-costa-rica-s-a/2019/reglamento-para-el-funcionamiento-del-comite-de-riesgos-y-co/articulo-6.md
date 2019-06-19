@@ -1,0 +1,4 @@
+Artículo 6.—Nombramiento del Presidente y Secretario del Comité de Riesgos y Control Interno Empresarial.
+1. Se deberá nombrar un presidente para el Comité, en este caso será el miembro de la Junta Directiva, con el objetivo de liderar la conducción técnica, el cual durará en sus funciones dos años (mientras sea funcionario o forme parte de la Junta Directiva de Correos de Costa Rica). Podrá ser reelecto por mayoría simple de los miembros del Comité. El presidente tendrá como funciones organizar y presidir la sesión, velar porque se cumpla con los temas de agenda, en caso de su ausencia preside el secretario.
+2. Se deberá nombrar un secretario del Comité, con el objetivo de documentar los acuerdos realizados en las sesiones del Comité, coordinar las reuniones y la gestión documental del mismo. Este durará un plazo de dos años en sus funciones.
+Podrá ser reelecto por mayoría simple de los miembros del Comité.
