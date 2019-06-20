@@ -1,1 +1,0 @@
-Artículo 3º- Eficacia jurídica y fuerza probatoria. Los comprobantes electrónicos y mensajes de confirmación que se mencionan en la presente resolución, para los efectos tributarios, tendrán la eficacia jurídica y fuerza probatoria en las mismas condiciones que los comprobantes físicos autorizados por el Ministerio de Hacienda.

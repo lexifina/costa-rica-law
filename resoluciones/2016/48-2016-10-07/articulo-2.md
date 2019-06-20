@@ -1,1 +1,0 @@
-Artículo 2º- Autorización para el uso de comprobantes electrónicos. Se autoriza el uso de la factura electrónica, tiquete electrónico, nota de crédito electrónica y nota de débito electrónica, como comprobantes para el respaldo de ingresos, costos y gastos, siempre que cumplan con los requisitos y características que se detallan en la presente resolución.

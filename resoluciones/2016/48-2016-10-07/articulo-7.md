@@ -1,4 +1,0 @@
-Artículo 7º- Formatos y especificaciones técnicas de los comprobantes electrónicos.
-Todos los comprobantes electrónicos deben cumplir con los formatos y especificaciones técnicas detalladas en el documento “Anexos y especificaciones técnicas”, disponibles en el sitio que el Ministerio de Hacienda disponga para facturación electrónica o comprobante electrónico.
-Cualquier modificación a los formatos citados, así como el plazo para su implementación, o el cambio en el dominio que la Administración Tributaria disponga para publicarlos, se implementará mediante modificación al referido archivo, debiendo comunicarse a los interesados por medio del correo electrónico que registraron ante la Administración Tributaria o al buzón electrónico suministrado por la Administración Tributaria cuando corresponda, así como en el sitio web del Ministerio de Hacienda.
-(Así reformado por el artículo 1° de la resolución DGT-R-13-2017 del 20 de febrero de 2017)

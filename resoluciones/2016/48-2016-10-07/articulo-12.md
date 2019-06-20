@@ -1,1 +1,0 @@
-Artículo 12º- Anulación o corrección. Los comprobantes electrónicos y documentos asociados no se pueden anular directamente, sus efectos contables deben anularse o modificarse mediante la utilización de notas de crédito o débito electrónicas, prevaleciendo inalterable el documento original y su correspondiente número consecutivo, el cual no podrá ser reutilizado nuevamente.
