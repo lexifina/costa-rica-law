@@ -14,3 +14,4 @@ Reglamento de incorporación del Colegio de Enfermeras y Enfermeros de Costa Ric
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-09-07 | la propia norma |
+| 2 | 2019-06-20 | Reglamento 2431 (2019-06-20) |

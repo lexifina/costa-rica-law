@@ -1,1 +1,1 @@
-Artículo 16.—Para efectos de las/os profesionales incorporadas (os) antes de la emisión del presente reglamento, se establece que ellas/ellos podrán solicitar el cambio de licencia que incluye la nomenclatura de uso social que la/lo acredita como Doctora o Doctor y el grado académico respectivo en Enfermería, cancelando el importe de la emisión del certificado y la licencia.
+Artículo 16.—Quedan sin efecto los reglamentos de incorporación anteriormente publicados.

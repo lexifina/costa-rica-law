@@ -1,7 +1,1 @@
-Artículo 11.—De las solicitudes y requisitos de Licenciados en Enfermería que estudiaron en Universidades Extranjeras. La o El solicitante que desee ejercer en el país la enfermería deberá aportar:
-1. Título de Licenciada/o, original y fotocopia de la Universidad Extranjera y debidamente convalidado por el Ministerio de Relaciones Exteriores y Culto de Costa Rica, además del documento original de reconocimiento y equiparación emitido por el Consejo Nacional de Rectores (CONARE).
-2. Toda la documentación deberá ser presentada en idioma español, de lo contrario se deberá presentar traducción realizada por un traductor oficial o por un notario público.
-3. Original y fotocopia del título de conclusión de estudios secundarios, debidamente autenticado. (Sellos y firma del Consulado de Costa Rica del país de procedencia, Ministerio de Relaciones Exteriores de Costa Rica y equiparación del título emitida por el Consejo Superior de Educación del Ministerio de Educación Pública de Costa Rica).
-4. Presentar original y fotocopia de la cédula de residencia permanente, libre de condición y vigente. No se acepta otro tipo de documento de identificación.
-5. Original de la hoja de delincuencia del país de origen.
-Además de los puntos señalados en el artículo 11, las personas extranjeras, que solicitan incorporación, al Colegio deberán aportar lo solicitado en el artículo 10, requisitos: 1, 2, 5, 6, 7, 8, 9, 10, 11, 12, 13, 14, 15, 16.
+Artículo 11.—Acto de Incorporación. Recibido el acuerdo de incorporación, la UDP, procederá a convocar en fecha y hora al solicitante para participar del acto de incorporación.
