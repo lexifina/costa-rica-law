@@ -18,3 +18,4 @@ Reglamento sobre Custodia y Destrucción de Drogas Estupefacientes, Psicotrópic
 | 3 | 2012-06-26 | Decreto Ejecutivo 37235 (2012-06-26) |
 | 4 | 2013-12-04 | Decreto Ejecutivo 38185 (2013-12-04) |
 | 5 | 2016-07-05 | Decreto Ejecutivo 39866 (2016-07-05) |
+| 6 | 2019-06-20 | Decreto Ejecutivo 41850 (2019-06-20) |
