@@ -14,3 +14,4 @@ Reglamento Ley N° 9655 del 4/02/2019"Reforma inciso J) de artículo 118, Ley N�
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-06-13 | la propia norma |
+| 2 | 2019-06-20 | Decreto Ejecutivo 41806 (2019-06-20) |
