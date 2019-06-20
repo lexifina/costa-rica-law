@@ -31,9 +31,13 @@ c. Los nombres de dominio no deberán comenzar o terminar con el guión (-) ni l
 1.4 Términos reservados
 NIC Costa Rica podrá aplicar la reserva de términos cuando considere que la solicitud de registro del dominio no fue realizada de buena fe, inmediatamente se procederá con el bloqueo del mismo. NIC Costa Rica se reserva el derecho de solicitar todas aquellas pruebas con las que el usuario demuestre buena fe en la solicitud del dominio. NlC Costa Rica mantiene una lista de términos reservados.
 (Así reformado el punto 1.4) anterior y publicado en el Alcance Digital N° 246 a La Gaceta N° 212 del 4 de noviembre de 2016)
-(*)1.5 Documentación para el registro de un nombre de dominio
-La documentación que se detalla a continuación únicamente debe ser aportada para aquellos dominios cuya solicitud sea exenta de pago. Los solicitantes de los dominios exentos deben enviar la documentación en el plazo establecido por MC Costa Rica a través de su sitio web oficial https://www. nic.cr o de otros medios que se consideren oportunos, ya que de lo contrario la solicitud será rechazada.
-En cuanto a los dominios de las categorías .fi.cr, .ac.cr, .ed. cr, .or.cr, .go.cr y .sa.cr todos, sin excepción deben aportar la documentación señalada. Igualmente, el solicitante del dominio tiene un lapso de quince días naturales para aportar la documentación, ya que de lo contrario la solicitud será rechazada.
+1.5 Documentación para el registro de un nombre de dominio. La documentación que se detalla a continuación únicamente debe ser aportada para aquellos dominios cuya solicitud sea para una institución pública y para aquellos dominios que, de acuerdo con las leyes de la República de Costa Rica, les corresponde pagar un impuesto Sobre el Valor Agregado diferente al 13%, establecido para los servicios de NIC Costa Rica.
+Dicha documentación deberá ser enviada en el plazo establecido por NIC Costa Rica a través de su sitio web oficial https://www.nic.cr o de otros medios que se consideren oportunos, de lo contrario la solicitud será rechazada.
+NIC Costa Rica podrá requerir documentación adicional, con el fin de verificar que el titular pertenece al sector o categoría de dominio que solicita, así como para validar la aplicación de una tarifa de Impuesto al Valor Agregado diferente al 13%,
+13%.
+(Así reformado el punto anterior mediante publicación en La Gaceta N° 115 del 20 de junio del 2019)
+[imagen]
+(Así adicionado el punto anterior mediante publicación en La Gaceta N° 115 del 20 de junio del 2019)
 Tipo de dominio | Documentación a aportar
 Dominios de tercer nivel |
 .ac.cr | · Personería jurídica de la institución con no más de un mes de emitida. · Carta del representante legal de la institución solicitando el dominio. · Copia de cédula de identidad del representante legal. · Los centros de postgrado e instituciones de investigación deben presentar copia del documento legal de constitución. · Las unidades privadas deben presentar copia del acta de reconocimiento del CONESUP. · Las universidades estatales deben presentar copia del acta de reconocimiento del CONARE. · Entrevista por parte de NIC Costa Rica para la confirmación de solicitud de dominio y confirmación de cualquier otro dato que NIC Costa Rica considere oportuno.
@@ -307,40 +311,47 @@ NIC Costa Rica queda exento de cualquier responsabilidad para con un usuario que
 (Así adicionado el punto 9.5) anterior y publicado en La Gaceta N° 191 del 10 de octubre de 2017)
 10. Tarifas y medios de pago
 (Corrida la numeración del punto anterior y publicado en el Alcance Digital N° 246 a La Gaceta N° 212 del 4 de noviembre de 2016, que lo traspaso del punto 8) al 10))
-10.1 Aplicación de tarifas. Todos los dominios deben pagar las tarifas establecidas por NIC Costa Rica. Se exceptúa de lo anterior aquellos dominios registrados bajo las categorías .or.cr, .sa.cr, .ed.cr y .ac.cr cuyo titular sea una institución que pertenezca al sector público de la República de Costa Rica.
-La categoría .go.cr al ser exclusiva para el sector gobierno de la República de Costa Rica, todos los dominios registrados bajo esta categoría serán exentos de pago.
-(Corrida la numeración del punto anterior y publicado en el Alcance Digital N° 246 a La Gaceta N° 212 del 4 de noviembre de 2016, que lo traspaso del punto 8.1 ) al 10.1))
-10.2 Tarifas. NIC Costa Rica determinará las tarifas aplicables a los diferentes tipos de pagos y se reserva el derecho de realizar paquetes de servicios con tarifas determinadas, para ambos casos estas se indicarán a través del sitio web oficial https://www.nic.cr y de otros medios que NIC Costa Rica considere oportunos.
-(Corrida la numeración del punto anterior y publicado en el Alcance Digital N° 246 a La Gaceta N° 212 del 4 de noviembre de 2016, que lo traspaso del punto 8.2) al 10.2))
-Las tarifas correspondientes deben ser canceladas antes de que el proceso quede completado por parte de NIC Costa Rica.
+10.1 Tarifas. NIC Costa Rica determinará las tarifas aplicables y se reserva el derecho de realizar paquetes de servicios con tarifas determinadas, para ambos casos estas se indicarán a través del sitio web oficial https://www.nic.cr y de otros medios que NIC Costa Rica considere oportunos.
+Las tarifas y los impuestos correspondientes deben ser canceladas antes de que el proceso quede completado por parte de NIC Costa Rica.
 Las tarifas no son reembolsables una vez que el proceso haya sido finalizado por NIC Costa Rica.
-Todas aquellas tarifas que NIC Costa Rica establezca pueden ser modificadas por la Academia Nacional de Ciencias, a través de su unidad especializada NIC Costa Rica, para actividades promocionales y de otra índole.
-En el caso de modificaciones para actividades promocionales, estas aplicarán por tiempo limitado y se regirán por el reglamento que se emita para cada modificación. No serán retroactivas ni se extenderán más allá de la fecha de expiración indicada en el reglamento respectivo, salvo indicación explícita en la comunicación. Además, no requerirán de la actualización del documento de Políticas para el Funcionamiento del Dominio de Nivel Superior .cr ni de su publicación en el diario oficial La Gaceta y podrán ser canceladas o suspendidas en cualquier momento por la Academia Nacional de Ciencias a través de su unidad especializada NIC Costa Rica debido a causas fuera del control de la Academia Nacional de Ciencias y NIC Costa Rica o a circunstancias que atenten gravemente los intereses de esta institución y su unidad especializada.
-10.3 Medios de pago en Costa Rica y desde el exterior. Las formas de pago disponibles son las siguientes:
+Las tarifas establecidas pueden ser modificadas por la Academia Nacional de Ciencias, a través de su unidad especializada NIC Costa Rica, para actividades promocionales y de otra índole.
+En el caso de modificaciones para actividades promocionales, estas aplicarán por tiempo limitado y se regirán por el reglamento que se emita para cada modificación. No serán retroactivas ni se extenderán más allá de la fecha de expiración indicada en el reglamento respectivo, salvo indicación explícita en la comunicación.
+Además, no requerirán de la actualización del documento de Políticas para el Funcionamiento del Dominio de Nivel Superior .cr ni de su publicación en el Diario Oficial La Gaceta y podrán ser canceladas o suspendidas en cualquier momento, debido a causas fuera del control de la Academia Nacional de Ciencias y NIC Costa Rica o a circunstancias que atenten gravemente los intereses de esta institución y su unidad especializada.
+(Corrida la numeración del punto anterior y publicado en el Alcance Digital N° 246 a La Gaceta N° 212 del 4 de noviembre de 2016, que lo traspaso del punto 8.1 ) al 10.1))
+(Mediante publicación en La Gaceta N° 115 del 20 de junio del 2019 se reforma el punto 11.1 . No obstante del análisis se deduce que es el punto 10.1 anterior)
+10.2 Impuestos. A partir del 01 de julio del 2019, el servicio de registro de dominios .cr y todos los servicios asociados a éste, tales como renovación, transferencia, privacidad WHOIS, lista de espera, subastas, CRIX y cualquier otro que se brinde a través del sitio oficial de NIC Costa Rica https://www.nic.cr o a través de los medios que NIC Costa Rica disponga, está gravado con el Impuesto Sobre el Valor Agregado (IVA), según la Ley N° 9635 del 03 de diciembre de 2018, La Gaceta N° 202, del 04 de diciembre de 2018 y su Reglamento, de acuerdo con lo establecido por el Ministerio de Hacienda de la República de Costa Rica.
+Este impuesto debe ser pagado tanto por nacionales como por extranjeros que adquieran los dominios .cr y todos los servidos asociados a éste.
+(Corrida la numeración del punto anterior y publicado en el Alcance Digital N° 246 a La Gaceta N° 212 del 4 de noviembre de 2016, que lo traspaso del punto 8.2) al 10.2))
+(Mediante publicación en La Gaceta N° 115 del 20 de junio del 2019 se reforma el punto 11.2 . No obstante del análisis se deduce que es el punto 10.2 anterior)
+10.3 Aplicación de tarifas. Todos los dominios y los servicios asociados a éste deben pagar las tarifas establecidas por NIC Costa Rica, así como la tarifa del Impuesto al Valor Agregado que corresponda de acuerdo con la legislatura vigente de la República de Costa Rica.
+Se exceptúa de lo anterior aquellos dominios registrados bajo las categorías .or.cr, .sa.cr, .ed.cr y .ac.cr cuyo titular sea una institución que pertenezca al sector público de la República de Costa Rica.
+La categoría .go.cr al ser exclusiva para el sector gobierno de la República de Costa Rica, es exenta de pago.
 (Corrida la numeración del punto anterior y publicado en el Alcance Digital N° 246 a La Gaceta N° 212 del 4 de noviembre de 2016, que lo traspaso del punto 8.3 ) al 10.3 ))
-. Tarjeta de crédito o débito (Visa, MasterCard, American Express, JCB y Diners Club): Por este medio existe la posibilidad de realizar el pago de forma individual o de manera consolidada para varios dominios.
-. Depósito o transferencia bancaria a la cuenta corriente en dólares Nº 100-02-080-600043-7 a nombre de la Academia Nacional de Ciencias, en el Banco Nacional de Costa Rica.
-. Transferencia bancaria utilizando el Sistema Nacional de Pagos Electrónicos (SINPE). Para este sistema, el número de cuenta cliente es 15108010026000431 a nombre de la Academia Nacional de Ciencias, con cédula jurídica Nº 3-007-154845, en el Banco Nacional de Costa Rica. Al realizar la transferencia, el interesado deberá indicar el dominio al cual NIC Costa Rica le aplicará el pago que está efectuando. El solicitante de un nombre de dominio que realice el pago por este medio debe cubrir el costo correspondiente de su entidad bancaria.
-. Por medio de PayPal a través del sitio web oficial https://www.nic.cr escogiendo la opción de método de pago de Pay Pal o realizando el pago directamente en la plataforma de PayPal a la cuenta billing@nic.cr.
-(Así adicionado el punto anterior y publicado en el Alcance Digital N° 246 a La Gaceta N° 212 del 4 de noviembre de 2016)
-. Transferencia bancaria desde el exterior (Wire Transfer):
-Código SWIFT: | SWIF BNCRCRSJ
-Nombre: | Banco Nacional de Costa Rica
-Teléfono: | (506)2212-2919, (506)2212-2000, (506)2212- 2157
-Fax: | (506)2222-6346
-Dirección: | San José, Costa Rica
-Apartado Postal: | 10015-1000, 10015-1000, San José
-Importante
-NIC Costa Rica se reserva el derecho de poner a disposición otros medios que faciliten los pagos correspondientes.
-En el caso de pago por depósito o transferencia, esta debe realizarse antes de efectuar la solicitud correspondiente . Si el pago se hace mediante tarjeta de débito o crédito, o por medio de PayPal, éste se realiza cuando se completa la fórmula a través del sitio web oficial https://www.nic.cr.
-(Así reformado el punto anterior y publicado en el Alcance Digital N° 246 a La Gaceta N° 212 del 4 de noviembre de 2016)
-El pago hecho por transferencia bancaria desde el exterior del país no incluye el costo de la transferencia que debe ser cubierto por el solicitante. El usuario debe tomar en cuenta los costos de otras comisiones de bancos internacionales, ya que NIC Costa Rica no se hará cargo de estas. Además, el usuario debe considerar el tiempo que tarde en ingresar el dinero a la cuenta bancaria de la Academia Nacional de Ciencias, esto debido a que NIC Costa Rica no se hace responsable de posibles atrasos que puedan afectar las solicitudes pendientes.
-(Nota de Sinalevi: Mediante publicación en La Gaceta N° 191 del 10 de octubre de 2017, se acordó reformar el punto 10.3). Al no coincidir el texto a reformar se transcribe la reforma: “…10.3 De las excepciones para el beneficiario de un dominio. No son aplicables a al reclamo del beneficio de la herencia de un dominio, todos aquellos dominios que se encuentren en disputa ya sea por una controversia de nombres de dominio y marca o por una controversia que se haya iniciado a través de cualquier otro proceso administrativo o judicial o por solicitud de un juez. No aplica para este proceso los dominios de las demás categorías que no sea la categoría .co.cr, .cr, dominios Premium y dominios personales.
-El beneficiario de un dominio podrá ejercer su derecho sobre este dominio siempre y cuando el dominio se encuentre vigente y se hayan llevado a cabo los pagos correspondientes a su renovación. Una vez que el dominio haya sido eliminado, el beneficiario pierde todo derecho sobre éste.
-NIC Costa Rica queda exento de cualquier responsabilidad para con un usuario que ha obtenido el dominio a través del proceso de registro y que luego de haberlo obtenido lo haya perdido por ser un dominio que se encuentra en disputa o controversia y ha sido resuelto a través de cualquier proceso administrativo o judicial o por solicitud de un juez de los Tribunales de Justicia de la República de Costa Rica. “)
-10.4 Comprobantes de pago. Se generarán comprobantes de pago por aquellos servicios que NIC Costa Rica brinde y para los que se tiene una tarifa establecida.
+(Mediante publicación en La Gaceta N° 115 del 20 de junio del 2019 se reforma el punto 11.3 . No obstante del análisis se deduce que es el punto 10.3 anterior)
+10.4 Medios de pago en Costa Rica y desde el exterior. Las formas de pago disponibles son las siguientes:
+Tarjeta de crédito o débito (Visa, MasterCard, American Express, JCB y Diners Club): Por este medio existe la posibilidad de realizar el pago de forma individual o de manera consolidada para varios dominios.
+Depósito o transferencia bancaria (incluida el Sistema Nacional de Pagos Electrónicos -SINPE) a la cuenta corriente en dólares N° 100-02-080-600043-7, cuenta cliente 15108010026000431, a nombre de la Academia Nacional de Ciencias, cédula jurídica N° 3-007-154845, del Banco Nacional de Costa Rica.
+Al realizar la transferencia, el solicitante deberá depositar el monto de la tarifa más el impuesto correspondiente e indicar en el detalle de la transferencia el nombre del dominio al cual le será aplicado el pago. Cualquier costo por concepto de comisiones cobradas por las entidades bancarias deber ser cubierto por el solicitante.
+Por medio de PayPal a través del sitio web oficial https://www.nic.cr escogiendo la opción de método de pago de PayPal o realizando el pago directamente en la plataforma de PayPal a la cuenta billing@nic.cr.
+Transferencia bancaria desde el exterior con las siguientes indicaciones (Wire Transfer):
+Nombre del Banco: Banco Nacional de Costa Rica
+Dirección de banco: Av. 1 y 3, calle 4, oficinas centrales, San José, Costa Rica
+Teléfono banco: (506) 2212-2000
+Código SWIFT: BNCRCRSJ
+Beneficiario: Academia Nacional de Ciencias
+Dirección: Av. 8 y 10, Calle 27A, San José Costa Rica
+Teléfono: (506) 4020 5000
+Cuenta número: 100-02-080-600043-7
+IBAN: CR07015108010026000431
+El solicitante deberá depositar el monto de la tarifa más el impuesto correspondiente, así como cubrir cualquier costo adicional por concepto de comisiones bancarias que se generen por utilizar este medio de pago. NIC Costa Rica, no asumirá ningún cargo por concepto de comisiones bancarias y de cualquier otra índole, por lo tanto, debe recibir el monto correspondiente al servicio brindado.
+Importante: NIC Costa Rica se reserva el derecho de poner a disposición otros medios que faciliten los pagos correspondientes.
+En el caso de pago por depósito o transferencia, esta debe realizarse antes de efectuar la solicitud correspondiente. Si el pago se hace mediante tarjeta de débito o crédito, éste se realiza cuando se completa la fórmula a través del sitio web oficial https://www.nic.cr.
+El pago hecho por transferencia bancaria desde el exterior del país no incluye el costo de la transferencia que debe ser cubierto por el solicitante. Además, el usuario debe considerar el tiempo que tarde en ingresar el dinero a la cuenta bancaria de la Academia Nacional de Ciencias, esto debido a que NIC Costa Rica no se hace responsable de posibles atrasos que puedan afectar las solicitudes pendientes.
 (Corrida la numeración del punto anterior y publicado en el Alcance Digital N° 246 a La Gaceta N° 212 del 4 de noviembre de 2016, que lo traspaso del punto 8.4 ) al 10.4 ))
-Cabe destacar que independientemente de quien realice el pago por un servicio determinado, el dominio siempre pertenecerá al titular del mismo.
+(Mediante publicación en La Gaceta N° 115 del 20 de junio del 2019 se reforma el punto 11.4 . No obstante del análisis se deduce que es el punto 10.4 anterior)
+10.5 Comprobantes de pago. Se emitirán comprobantes electrónicos por los servicios que NIC Costa Rica brinde y para los que se tiene una tarifa establecida.
+Cabe destacar que independientemente de quien realice el pago por un servicio determinado, el dominio siempre pertenecerá al titular de éste.
+(Mediante publicación en La Gaceta N° 115 del 20 de junio del 2019 se adicionado el punto 11.5 . No obstante del análisis se deduce que es el punto 10.5 anterior)
 11. Sobre privacidad y seguridad de la información brindada por el usuario. Las normas sobre privacidad que a continuación se detallan tratan sobre la información de los contactos que es recibida y almacenada por NIC Costa Rica a través del sitio web oficial https://www.nic.cr y otros medios, de los datos capturados que son accesibles por el público en general por la naturaleza del servicio de administración de nombres de dominio, de los datos que se mantienen confidencialmente, de las herramientas y procedimientos utilizados por NIC Costa Rica para asegurar la confidencialidad y seguridad de la información suministrada por los contactos y la remitida por NIC Costa Rica hacia ellos.
 (Corrida la numeración del punto anterior y publicado en el Alcance Digital N° 246 a La Gaceta N° 212 del 4 de noviembre de 2016, que lo traspaso del punto 9 ) al 11 ))
 Lo establecido a continuación queda sujeto a cambios de acuerdo con la evolución de Internet, de las herramientas tecnológicas asociadas a la operación de esta red y de la evolución del modelo establecido para la administración de los nombres de dominio registrados bajo el ccTLD .cr.
