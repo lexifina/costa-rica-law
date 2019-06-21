@@ -1,1 +1,0 @@
-Artículo 18°— Compras Autorizadas: Las mercancías que no estén incluidas en el Decreto No. 21322-H-S-MEC y la Resolución 508, podrán solicitarlas ante la Dirección General de Tributación - Compras Autorizadas, siempre y cuando las mismas cumplan con lo establecido en los artículos 27 y 28 del Reglamento de la Ley del Impuesto General sobre las Ventas.
