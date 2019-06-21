@@ -1,1 +1,0 @@
-Artículo 2º—Documento para adquisiciones exentas: las adquisiciones se realizarán mediante órdenes de compra emitidas por el Proyecto Desarrollo de la Alianza Mesoamericana por la Biodiversidad. Estas deberán ser firmadas por las personas debidamente autorizadas por parte del Representante Legal del programa, para efectuar las referidas compras exentas en nombre del proyecto.
