@@ -1,4 +1,0 @@
-Artículo 8º—Vigencia y renovación de la exención: La vigencia de la presente resolución se define por dos años a partir de su notificación. La misma podrá gestionarse nuevamente por parte de los interesados, en caso de ser necesario, un mes antes de su vencimiento, y el Ministerio de Hacienda podrá autorizarla previa constatación de haberse aportado los informes requeridos; Así mismo la vigencia de esta resolución queda sujeta a que mediante leyes aprobadas con posterioridad, se dejen sin efecto o se disminuyan las exenciones reconocidas a favor del funcionario permanente del Banco Interamericano de Desarrollo (BID) o bien a criterios de oportunidad y/o conveniencia del Ministerio de Hacienda, previa notificación o publicación en el diario oficial La Gaceta
-Es conforme.
-Notifíquese al Departamento de Inmunidades y Privilegios
-Publíquese.

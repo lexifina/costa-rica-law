@@ -1,1 +1,0 @@
-Artículo 4º—Lista de beneficiarios de la exención: El Ministerio de Relaciones Exteriores y Culto, a través del Departamento de Inmunidades y Privilegios, enviará a la Dirección General de Hacienda, la lista actualizada de todos los funcionarios del BID acreditados en Costa Rica, lo anterior, cada vez que se presente una exclusión o inclusión de funcionarios.
