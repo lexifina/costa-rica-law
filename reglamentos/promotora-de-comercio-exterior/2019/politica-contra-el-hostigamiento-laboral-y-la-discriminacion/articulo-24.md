@@ -1,0 +1,2 @@
+Artículo 24. RATIFICACIÓN DE DENUNCIAS HECHA POR UN TERCERO
+Se podrán tramitar denuncias presentadas por terceros, siempre y cuando la presunta víctima ratifique dicha denuncia. Para tales efectos, la Comisión dará traslado de la denuncia a la presunta víctima, quien tendrá un plazo de tres días para ratificar los elementos de la denuncia y sus fundamentos. Si la presunta víctima no ratifica la denuncia y sus fundamentos, el caso se archivará sin más trámite.

@@ -1,0 +1,2 @@
+Artículo 26. DE LA CONTESTACIÓN POR PARTE DEL DENUNCIADO
+La persona denunciada tendrá 5 días hábiles para contestar el traslado de cargos, debiendo manifestarse sobre los hechos, si los reconoce como ciertos o si los rechaza por inexactos, o bien, si los admite con variantes o rectificaciones. El denunciado podrá presentar la prueba de descargo y esgrimir fundamentaciones de hecho y de derecho que considere pertinentes.

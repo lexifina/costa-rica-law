@@ -1,0 +1,2 @@
+Artículo 2. ALCANCE
+La presente política laboral es de cumplimiento obligatorio para todos los colaboradores de PROCOMER, y también para los directores de la Junta Directiva, sin importar el cargo que tengan en la organización o la forma en que fueron contratados. Se aplicará en relaciones de jerarquía o autoridad (jefe a subordinado), relaciones entre personas del mismo nivel jerárquico (compañeros de trabajo), entre personas de un nivel jerárquico inferior a uno superior (de subordinado a jefe).

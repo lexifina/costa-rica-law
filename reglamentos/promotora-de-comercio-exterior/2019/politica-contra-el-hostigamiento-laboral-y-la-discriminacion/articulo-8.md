@@ -1,0 +1,12 @@
+Artículo 8. CONDUCTAS Y ACCIONES QUE NO CONSTITUYEN ACOSO LABORAL
+No constituyen acoso laboral bajo ninguna de sus modalidades, las siguientes conductas o acciones:
+a) Promover, dictar o ejecutar las reglamentaciones, políticas, directrices, instrucciones, exigencias y disposiciones necesarias para mantener el orden, la disciplina y el aprovechamiento de los recursos institucionales, conforme al bloque de legalidad.
+b) Dictar los actos destinados a ejercer la potestad disciplinaria que legalmente corresponde a las jerarquías sobre sus colaboradores.
+c) Formular comunicados (circulares, oficios, correos electrónicos u otros) encaminados a solicitar exigencias técnicas, de gestión administrativa o mejorar la eficiencia laboral, así como la evaluación laboral periódica de los funcionarios.
+d) Solicitar el cumplimiento de deberes extraordinarios de colaboración con la Institución, cuando sean necesarios para garantizar la continuidad del servicio público, o para solucionar situaciones particulares en la gestión de la Institución.
+e) Las actuaciones administrativas o gestiones encaminadas a dar por terminada la relación de servicio, con base en una causa legal, prevista en el ordenamiento jurídico nacional. Tampoco puede interpretarse un despido con responsabilidad patronal, por sí mismo, como una práctica de acoso laboral.
+f) Las órdenes o instrucciones razonables dadas por las jefaturas para la elaboración de un trabajo o el cumplimiento de las funciones del trabajador.
+g) Solicitar el acatamiento de las prohibiciones y deberes inherentes a las labores de los trabajadores, establecidos en la normativa vigente.
+h) Las diferencias o conflictos personales o laborales aislados, de carácter pasajero, que se presenten en un momento concreto y en el marco de las relaciones interpersonales, de forma tal que afecte el ámbito laboral pero que su finalidad no sea la renuncia, el despido o el traslado de las partes implicadas en el suceso.
+i) Excluir justificadamente la participación de personas en procedimientos de contratación interna, capacitaciones, permisos o licencias, así como vacaciones, para los que no se cumplan con los requisitos de ley o los requerimientos institucionales según la necesidad del servicio.
+j) Se aclara que los viajes de representación de PROCOMER, son oficiales y no deben rotarse como si fueran premios o reconocimientos, sino que se asignan de acuerdo a las funciones y tareas de los colaboradores.
