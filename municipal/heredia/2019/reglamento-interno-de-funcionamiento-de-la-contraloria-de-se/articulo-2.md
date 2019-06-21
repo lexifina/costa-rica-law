@@ -1,0 +1,1 @@
+Artículo 2.- Ámbito de aplicación. Las disposiciones de este reglamento son de aplicación obligatoria para todos los miembros del Concejo Municipal, titular de la Alcaldía, y todo el personal de la Municipalidad de Heredia.
