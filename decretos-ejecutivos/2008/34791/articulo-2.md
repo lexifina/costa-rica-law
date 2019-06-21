@@ -1,1 +1,0 @@
-Artículo 2º—Los propietarios u ocupantes de áreas donde se detecte la plaga deberán atender y colaborar con los funcionarios del Servicio Fitosanitario del Estado o con quienes este designe, como también de LAICA, para la ejecución de las medidas de control recomendadas oficialmente.

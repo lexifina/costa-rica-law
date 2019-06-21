@@ -1,1 +1,0 @@
-Artículo 9º—El Servicio Fitosanitario del Estado se encargará de disponer y ejecutar en coordinación con LAICA, las medidas técnicas que sean necesarias para favorecer el control de la plaga antes mencionada.

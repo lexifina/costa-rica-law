@@ -1,1 +1,0 @@
-Artículo 7º—Los funcionarios de las Agencias de Servicios Agropecuarios del Ministerio de Agricultura y Ganadería de las regiones involucradas, prestarán colaboración al Servicio Fitosanitario del Estado, para la atención de dicha problemática.

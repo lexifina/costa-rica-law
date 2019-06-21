@@ -1,2 +1,0 @@
-Artículo 8º—El estado de emergencia fitosanitaria se dará por un plazo de un año, de ser necesario, será prorrogable hasta tanto la plaga conocida como Roya Naranja sea controlada o se haya solucionado satisfactoriamente el problema.
-(Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 35581 del 13 de octubre de 2009, se prorroga por un año más el estado de emergencia fitosanitaria establecido en este decreto)

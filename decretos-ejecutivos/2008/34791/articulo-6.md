@@ -1,1 +1,0 @@
-Artículo 6º—El Instituto de Desarrollo Agrario (IDA) podrá disponer los recursos operativos y financieros que sean necesarios, para favorecer la renovación y debida atención técnica de las plantaciones de caña afectadas, ubicadas en Asentamientos Campesinos, promoviendo el cambio a variedades con tolerancia o resistencia demostrada a la plaga.
