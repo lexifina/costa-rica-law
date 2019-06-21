@@ -1,1 +1,0 @@
-3°—El Representante Legal de la Cruz Roja Costarricense, deberá autorizar formalmente a los funcionarios de la Institución, quienes serán los encargados de efectuar las compras y consecuentemente para firmar las órdenes de compra a nombre de esta. Dichas autorizaciones deberán permanecer en los registros que se mantengan en el domicilio fiscal de la Cruz Roja Costarricense

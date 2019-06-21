@@ -1,1 +1,0 @@
-2°—Las adquisiciones se realizarán mediante órdenes de compra a nombre de la Cruz Roja Costarricense. Estas órdenes de compra deberán ser firmadas por las personas debidamente autorizadas por el Representante Legal de la Cruz Roja Costarricense, con el propósito de realizar las compras exentas de impuestos a su nombre.
