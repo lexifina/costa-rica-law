@@ -1,2 +1,0 @@
-Artículo 16.—Análisis previo a renovación: Al finalizar el plazo de dos años de la vigencia de la presente resolución, la Dirección General de Hacienda determinará previo análisis de los resultados obtenidos y el cumplimiento de los deberes de la MUCAP, la emisión de una nueva resolución por un período similar, previa solicitud del beneficiario.
-[imagen]

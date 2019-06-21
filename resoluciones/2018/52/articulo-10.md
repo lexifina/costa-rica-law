@@ -1,1 +1,0 @@
-Artículo 10.—Cobro de los impuestos por el proveedor: En todo caso de operaciones de compraventa de bienes gravados con el impuesto en mención, en que la MUCAP no presente la orden de compra, el vendedor deberá consignar y cobrar el o los impuestos que corresponda.

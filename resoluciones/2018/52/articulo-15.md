@@ -1,1 +1,0 @@
-Artículo 15.—Omisión de los informes: La no presentación oportuna de los informes o la consignación de datos inexactos, incorrectos o falsos en ellos, implicará el cese del beneficio aprobado mediante esta resolución sin perjuicio de cualquier otra medida que corresponda conforme a la legislación vigente.
