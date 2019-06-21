@@ -1,1 +1,0 @@
-2º—Las adquisiciones se realizarán mediante órdenes de compra a nombre del SINART. Estas órdenes de compra deberán ser firmadas por las personas debidamente autorizadas por el Representante Legal del SINART, con el propósito de realizar las compras exentas de impuestos a su nombre.

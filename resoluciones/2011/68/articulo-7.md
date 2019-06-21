@@ -1,1 +1,0 @@
-7º—La exoneración aquí concedida tiene una validez de un año a partir de la fecha de su publicación, revalidándose automáticamente por el mismo período de no incurrirse en anomalía alguna. De incumplirse cualquiera de las condiciones aquí estipuladas, se dejará sin efecto el reconocimiento de la exención bajo el procedimiento aquí definido.
