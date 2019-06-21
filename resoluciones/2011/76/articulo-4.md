@@ -1,1 +1,0 @@
-4°—Las órdenes de compra deberán contener expresa manifestación de que la compra en referencia está exenta de los Impuestos General sobre las Ventas y/o Selectivo de Consumo o de alguno de los dos, según corresponda. La orden de compra original deberá permanecer en poder del vendedor y la copia en poder de la Federación Cruzada Nacional de Protección al Anciano.

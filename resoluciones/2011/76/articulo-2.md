@@ -1,1 +1,0 @@
-2°—Las adquisiciones se realizarán mediante órdenes de compra a nombre de la Federación Cruzada Nacional de Protección al Anciano. Estas órdenes de compra deberán ser firmadas por las personas debidamente autorizadas por el Representante Legal de Federación Cruzada Nacional de Protección al Anciano, con el propósito de realizar las compras exentas de impuestos a su nombre.
