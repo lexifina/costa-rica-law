@@ -1,1 +1,0 @@
-Artículo 2º—Documento para adquisiciones exentas: Las adquisiciones se realizarán mediante órdenes de compra emitidas por el Proyecto Cambio Climático y Transporte en Costa Rica. Estas órdenes de compra deberán ser firmadas por las personas debidamente autorizadas por parte del Representante Legal del proyecto, para efectuar las referidas compras exentas de impuestos.
