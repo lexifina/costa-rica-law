@@ -1,1 +1,0 @@
-Artículo 2°—Documento para adquisiciones exentas: Las adquisiciones se realizarán mediante órdenes de compra emitidas por la Fundación Omar Dengo. Estas órdenes de compra deberán ser firmadas por las personas debidamente autorizadas por parte del Representante Legal de la Fundación, para efectuar las referidas compras exentas de impuestos.
