@@ -40,3 +40,4 @@ Comunica emisión de resoluciones de la Dirección General del Servicio Civil:(D
 | 25 | 2019-03-21 | Resolución 4 (2019-03-21) |
 | 26 | 2019-03-28 | Resolución 5 (2019-03-28) |
 | 27 | 2019-05-28 | Resolución 8 (2019-05-28) |
+| 28 | 2019-06-21 | Resolución 9 (2019-06-21) |
