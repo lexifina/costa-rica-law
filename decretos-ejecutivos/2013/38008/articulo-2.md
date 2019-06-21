@@ -1,1 +1,0 @@
-Artículo 2º—La Corporación Bananera Nacional (CORBANA), de manera unilateral o en coordinación con el Servicio Fitosanitario del Estado deberá promover la implementación de medidas enfocadas al manejo integrado de la plaga, tal es el caso de productos alternativos amigables con el medio ambiente y los agentes de control biológicos.

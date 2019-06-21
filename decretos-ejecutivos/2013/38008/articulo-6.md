@@ -1,1 +1,0 @@
-Artículo 6º—El Estado de Emergencia Fitosanitaria se mantendrá por un período de un año, a partir de la publicación de este Decreto. De ser necesario el período de emergencia puede ser prorrogable hasta tanto la plaga sea controlada o su estatus no represente riesgo para la producción nacional.

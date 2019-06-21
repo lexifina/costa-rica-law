@@ -1,1 +1,0 @@
-Artículo 5º—Las instituciones públicas o privadas autónomas o semi-autónomas, quedan facultadas para realizar donaciones y aportes económicos dentro del marco legal de referencia que rige cada una de ellas, así como prestar todo tipo de colaboración al Servicio Fitosanitario del Estado para atender esta emergencia fitosanitaria.
