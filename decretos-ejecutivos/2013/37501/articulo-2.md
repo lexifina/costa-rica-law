@@ -1,1 +1,0 @@
-Artículo 2º—Los propietarios u ocupantes de fincas donde han sido afectados por esta epifitia causada por este hongo, están en la obligación de atender y colaborar con los funcionarios del Servicio Fitosanitario del Estado (SFE), Instituto del Café de Costa Rica (ICAFE) y el Ministerio de Agricultura y Ganadería (MAG), para el control de esta plaga.
