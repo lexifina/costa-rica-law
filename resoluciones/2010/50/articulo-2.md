@@ -1,1 +1,0 @@
-2º—Las adquisiciones se realizarán mediante órdenes de compra emitidas por el Programa Competitividad y Medio Ambiente, cédula jurídica número 3-003-471113. Estas órdenes de compra deberán ser firmadas por las personas debidamente autorizadas por parte del Representante Legal de la entidad mencionada, para efectuar las referidas compras exentas de impuestos en su nombre.
