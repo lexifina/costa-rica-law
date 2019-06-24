@@ -6,5 +6,6 @@ julio de 1981,
 DECRETAN:
 El siguiente
 Reglamento a la ley N° 6588
-Artículo 1°.- Los productos que expenda RECOPE deberán cumplir las normas de calidad que mediante decreto fije el Poder Ejecutivo, y ser controlados por el Ministerio de Economía y Comercio.
-Con el fin de cumplir los objetivos fundamentales de la empresa, RECOPE mantendrá , en la medida de lo posible, existencias de todos los productos que venda en una cantidad equivalente a 60 días de inventario.
+Artículo 1º—Los productos que expenda RECOPE deberán cumplir las normas de calidad que mediante decreto fije el Poder Ejecutivo, y ser controlados por la ARESEP.
+Con el fin de cumplir los objetivos fundamentales de la empresa, RECOPE mantendrá, una política de inventarios por producto, definiendo los volúmenes que le permitan efectuar sus operaciones, garantizar la continuidad del servicio público y el abastecimiento estratégico del país.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 42115 del 24 de junio de 2019)

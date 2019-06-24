@@ -1,1 +1,2 @@
-Artículo 6°.- RECOPE; con el objeto de implementar la política de desarrollo energético contemplada en el Plan Nacional de Desarrollo, previamente comunicada por el MIEM; podrá solicitar al SNE la fijación de diferentes niveles de precios para un mismo producto.
+Artículo 6º—RECOPE, con el objeto de implementar la política de desarrollo energético contemplada en el Plan Nacional de Desarrollo, el Plan Nacional de Energía o cualquier otra política o lineamiento sectorial dictada por el Poder Ejecutivo, previamente comunicada por el MINAE, podrá solicitar a la ARESEP la fijación de diferentes niveles de precios para un mismo producto.
+(Así reformado por el artículo 1° del decreto ejecutivo N°42115 del 24 de junio de 2019)
