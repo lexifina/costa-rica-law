@@ -22,3 +22,4 @@ Directrices Generales de Política Presupuestaria, Salarial, Empleo, Inversión 
 | 7 | 2019-06-03 | Decreto Ejecutivo 41780 (2019-06-03) |
 | 8 | 2019-06-17 | Decreto Ejecutivo 41805 (2019-06-17) |
 | 9 | 2019-06-20 | Decreto Ejecutivo 41833 (2019-06-20) |
+| 10 | 2019-06-24 | Decreto Ejecutivo 41831 (2019-06-24) |
