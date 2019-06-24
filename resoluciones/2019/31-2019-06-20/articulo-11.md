@@ -1,0 +1,2 @@
+Artículo 11º- Competencia.
+Corresponde a las Subgerencias de Servicio al Contribuyente de las Administraciones Tributarias Territoriales y a la Subdirección de Recaudación Control y Servicios Tributarios de la Dirección de Grandes Contribuyentes Nacionales el conocimiento, según su jurisdicción, el trámite y elaboración de la resolución respectiva de las solicitudes de inclusión en el Registro de comercializadores, distribuidores y productores de canasta básica tributaria y Registro de exportadores.
