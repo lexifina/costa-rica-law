@@ -1,0 +1,3 @@
+Artículo 6º—Cambio de Premios. Los premios correspondientes a enteros del Sorteo Extraordinario del Gordito de Medio Año Nº 4550, serán entregados a los ganadores posterior a la realización de dicho sorteo, y para ello se confeccionará un documento, donde conste la entrega del premio, misma que deberá ser firmado por el ganador y por los funcionarios de la Junta que participen en dicho acto.
+En el momento en que se entregue el premio a los ganadores, si así lo desean y autorizan en forma escrita, se efectuará una toma de fotografía para publicar en redes sociales o en diferentes medios.
+Respetando el derecho de imagen y de manera gratuita, se utilizará la imagen de los ganadores que así lo deseen, lo cual se hará constar en una autorización escrita.
