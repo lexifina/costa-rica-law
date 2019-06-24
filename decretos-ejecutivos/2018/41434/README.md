@@ -15,3 +15,4 @@ Fijación de salarios mínimos para el sector privado que regirán a partir del 
 | --- | --- | --- |
 | 1 | 2019-01-01 | la propia norma |
 | 2 | 2019-03-25 | Resolución 1 (2019-03-25) |
+| 3 | 2019-06-24 | Resolución 2 (2019-06-24) |
