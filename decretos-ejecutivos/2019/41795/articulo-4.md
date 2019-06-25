@@ -1,0 +1,2 @@
+Artículo 4°—Permisos y autorizaciones. Las instituciones públicas no podrán cuestionar ni revisar los permisos o las autorizaciones firmes emitidos por otras entidades u órganos, salvo lo relativo al régimen de nulidades. Únicamente podrá solicitarle al administrado copia certificada de la resolución final de un determinado trámite.
+Tampoco podrán solicitársele requisitos que aún se encuentren en proceso de resolución por otra entidad u órgano administrativo. Para dicho efectos, únicamente podrán solicitar una certificación de que el trámite está en proceso.

@@ -1,0 +1,2 @@
+Artículo 3°—De la inspección y verificación posterior. Le corresponderá a cada Institución Pública, adoptar las medidas de control interno para la realización de las inspecciones y verificaciones posteriores, a fin de asegurar el efectivo cumplimiento de lo señalado en la declaración jurada.
+Cada institución deberá definir las guías o manuales a utilizar para llevar a cabo las tareas de inspección y verificación posterior, de modo que el administrado tenga absoluta certeza de los aspectos que serán objeto de evaluación durante esa etapa.

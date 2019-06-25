@@ -1,0 +1,2 @@
+Transitorio único.—Para el cumplimiento de lo dispuesto en el artículo 3 se dispondrá de un plazo de tres meses a partir de la publicación del presente Decreto Ejecutivo, debiendo las instituciones públicas emitir un inventario de los trámites a los cuales se les aplicará dicha disposición. Dicho inventario deberá ser aprobado por el Oficial de Simplificación de Trámites y remitido al Ministerio de Economía, Industria y Comercio.
+Cada entidad deberá priorizar en su Plan de Mejora Regulatoria Institucional la implementación de la Declaración Jurada en dicho inventario.
