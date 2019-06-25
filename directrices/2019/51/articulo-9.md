@@ -1,0 +1,5 @@
+Artículo 9°.- Del estándar y plazos para la implementación de la accesibilidad Web. Para la implementación de sitios web accesibles en el Sector Público Costarricense, a las entidades que de conformidad con el artículo 4 de la presente Directriz les resulta de aplicación obligatoria lo dispuesto en esta Directriz y a aquellas que la hayan acogido voluntariamente, se deberá cumplir con el estándar WCAG
+2.1 “Pautas de Accesibilidad para el Contenido Web” y sus posteriores versiones, de acuerdo con lo siguiente:
+a) El plazo para alcanzar la conformidad del nivel A de los sitios web del Sector Público no superará los tres años contados, a partir de la entrada en vigencia de la presente Directriz.
+b) El plazo para alcanzar la conformidad del nivel AA de los sitios web del Sector Público no superará los seis años contados, a partir de la entrada en vigencia de la presente Directriz.
+c) El nivel de conformidad AAA no tiene carácter obligatorio; sin embargo, se trata de un nivel de conformidad al que se insta al Sector Público de Primer, Segundo y Tercer Nivel a alcanzar en sus sitios web.

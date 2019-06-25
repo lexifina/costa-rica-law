@@ -1,0 +1,1 @@
+Artículo 3º.- Ámbito de aplicación. La presente directriz está dirigida a todo el Sector Público Costarricense, de conformidad con lo dispuesto en el artículo siguiente, y no resulta aplicable a los sitios web archivados o clausurados antes de la publicación de esta Directriz.
