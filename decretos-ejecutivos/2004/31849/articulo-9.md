@@ -40,20 +40,17 @@ Tanto la solicitud que contiene la información que se estipuló en el presente 
 (*)13) Archivos en formato digital, uno Shape File (*.shp) y otro en formato *.kml, ambos con su respectiva base de datos y el correspondiente polígono de localización del área del proyecto (AP), con los correspondientes atributos básicos (nombre del proyecto, tipo del proyecto, número de plano catastrado, y número de finca, provincia, cantón, distrito, nombre del desarrollador, número de cédula persona física o según sea el caso también el numero de la cédula jurídica, fax o correo electrónico para atender notificaciones) de dicho proyecto. El archivo deberá elaborarse bajo el Sistema de Proyección Cartográfica CRTM05. El polígono en cuestión, debe ser el resultado de un levantamiento en campo, de mínimo tres puntos de amarre con respecto a los vértices del plano catastrado de la finca donde se presenta el proyecto, con las coordenadas precisas. Para proyectos puntuales deberá presentar además del polígono de la finca el punto exacto de ubicación del AP. En los casos en que no se desarrolle la totalidad de la finca deberá presentarse el polígono de la finca y el polígono del AP.
 Asimismo, en el caso de los proyectos con categoría B2 el levantamiento en campo podrá ser realizado mediante sistemas de posicionamiento global.
 (*)(Así adicionado el inciso 13 anterior por el artículo 7° del decreto ejecutivo N° 37803 del 25 de junio de 2013)
-Documento de Evaluación Ambiental –D2: El Documento de Evaluación Ambiental D2 deberá ser presentado por el desarrollador de las actividades, obras o proyectos categorizados como de bajo IAP (C ), según los define este Reglamento, e incluye:
-(Así reformado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 34688 del 25 de febrero de 2008)
-Información que debe señalarse en el D2:
-1) Nombre de la actividad, obra o proyecto.
-2) Categoría de la actividad, obra o proyecto de acuerdo a la Clasificación CIIU y su IAP.
-3) Localización administrativa y geográ.ca del terreno donde se desarrollaría la actividad, obra o proyecto.
-4) Nombre completo del desarrollador, calidades, domicilio personal y lugar y número de fax para atender notificaciones, cuando se trate de una persona física.
-5) Nombre de la sociedad legalmente constituida en el país, número de cédula jurídica, domicilio fiscal, lugar para atender notificaciones, nombre y calidades completas del representante legal y apoderados legales, en este último caso si quisiere contar para el trámite con apoderados además de su representante legal, cuando el desarrollador sea una sociedad.
-6) Descripción del proceso que implica la actividad productiva, respecto a sus dimensiones, recursos y servicios requeridos, así como la generación potencial de desechos líquidos, sólidos y emisiones y otros factores de riesgo ambiental, incluyendo las medidas ambientales para prevenir, corregir y mitigar los posibles impactos ambientales.
-Asimismo, el desarrollador debe acompañar la siguiente documentación:
-Documentación que debe adjuntarse al D2:
-1) Una copia de la cédula de identidad, de residencia o pasaporte del desarrollador, para el caso de persona física.
-2) Una certificación notarial o registral de personería jurídica.
-3) Una copia certificada del plano catastrado, o en su lugar, una copia con el original, para que sea confrontada ante el funcionario de la SETENA que tiene fe pública.
-Toda la información que el desarrollador indique en el D2 debe declararse bajo fe de juramento de que es actual y verdadera; en caso contrario pueden derivarse consecuencias penales del hecho.
-Asimismo, deberá ser firmado por el desarrollador de la actividad, obra o proyecto y debidamente autenticada por Notario Público, en caso contrario, deberá presentarse a la SETENA con su respectiva identificación, a firmar en presencia del funcionario de la SETENA.
-(Así reformado por el artículo 2° del Decreto Ejecutivo N° 32734 del 09 de agosto de 2005).
+(*) Documento de Evaluación Ambiental -D2 (Registro Ambiental): El Documento de Evaluación Ambiental D2 deberá ser presentado por el desarrollador de las actividades, obras o proyectos categorizados como de bajo IAP y categoría C ante SETENA, para su respectivo registro y deberá incluir la siguiente documentación:
+1. Nombre de la actividad, obra o proyecto.
+2. Categoría de la actividad, obra o proyecto de acuerdo con la Clasificación CIIU y su IAP.
+3. Localización administrativa y geográfica del terreno donde se desarrollaría la actividad, obra o proyecto.
+4. Nombre completo del desarrollador, calidades, domicilio personal y lugar y correo electrónico para atender notificaciones, cuando se trate de una persona física.
+5. Nombre de la sociedad legalmente constituida en el país, número de cédula jurídica, domicilio fiscal, correo electrónico para atender notificaciones, nombre y calidades completas del representante legal y apoderados legales, en este último caso si quisiere contar para el trámite con apoderados además de su representante legal, cuando el desarrollador sea una sociedad.
+6. Descripción del proceso que implica la actividad productiva, respecto a sus dimensiones, recursos y servicios requeridos, así como la generación potencial de desechos líquidos, sólidos y emisiones y otros factores, de riesgo ambiental, incluyendo las medidas ambientales para prevenir, corregir y mitigar los posibles impactos ambientales. el caso de persona física.
+7. Una certificación notarial o registral de personería jurídica.
+8. Una copia certificada del plano catastrado.
+9. Copia de certificación de título de propiedad.
+10. Ingresar en el sistema el número del depósito, transferencia electrónica u otro mecanismo de pago, por concepto de adquisición del Código de Buenas Prácticas Ambientales.
+Toda la información que el desarrollador indique en el D2 debe declararse bajo fe de juramento de que es actual y verdadera; en caso contrario podrán derivarse las consecuencias penales correspondientes.
+Asimismo, deberá ser firmado por el desarrollador de la actividad, obra o proyecto y debidamente autenticada por Notario Público. En caso de ser firmado digitalmente no requerirá de autenticación por parte de un Notario Público.
+(*)(Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 41815 del 25 de junio del 2019)

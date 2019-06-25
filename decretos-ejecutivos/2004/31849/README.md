@@ -23,3 +23,4 @@ Reglamento General sobre los Procedimientos de Evaluación de Impacto Ambiental 
 | 8 | 2013-06-25 | Decreto Ejecutivo 37803 (2013-06-25) |
 | 9 | 2017-08-24 | Decreto Ejecutivo 40763 (2017-08-24) |
 | 10 | 2018-09-06 | Decreto Ejecutivo 41500 (2018-09-06) |
+| 11 | 2019-06-25 | Decreto Ejecutivo 41815 (2019-06-25) |

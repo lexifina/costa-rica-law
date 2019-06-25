@@ -22,4 +22,5 @@ Reglamento General sobre los Procedimientos
 de Evaluación de Impacto Ambiental (EIA)
 CAPÍTULO I
 Disposiciones Generales
-Artículo 1º—Objetivo y alcance. El presente reglamento tiene por objeto definir los requisitos y procedimientos generales por los cuales se determinará la viabilidad (licencia) ambiental a las actividades, obras o proyectos nuevos, que por ley o reglamento, se han determinado que pueden alterar o destruir elementos del ambiente o generar residuos, materiales tóxicos o peligrosos; así como, las medidas de prevención, mitigación y compensación, que dependiendo de su impacto en el ambiente, deben ser implementadas por el desarrollador.
+Artículo 1º—Objetivo y alcance. El presente reglamento tiene por objeto definir los requisitos y procedimientos generales por los cuales se determinará la viabilidad (licencia) ambiental y los registros (permiso) ambientales de las actividades, obras o proyectos nuevos, que por ley o reglamento, se han determinado que pueden alterar o destruir elementos del ambiente o generar residuos, materiales tóxicos o peligrosos; así como, las medidas de prevención, mitigación y compensación, que dependiendo de su impacto en el ambiente, deben ser implementadas por el desarrollador.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 41815 del 25 junio del 2019)
