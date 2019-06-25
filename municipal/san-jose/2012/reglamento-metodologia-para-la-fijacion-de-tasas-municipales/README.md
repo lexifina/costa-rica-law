@@ -14,3 +14,4 @@ Reglamento metodología para la fijación de tasas municipales del cantón centr
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-03-23 | la propia norma |
+| 2 | 2019-06-25 | Reglamento municipal 165 (2019-06-25) |
