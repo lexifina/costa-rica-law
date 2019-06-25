@@ -1,0 +1,4 @@
+Artículo 5º—Mecánica del Sorteo. Para el otorgamiento de los 3 carros Suzuki Vitara 2019, se procederá el sábado 6 de julio, 2019 en el programa Rueda de La Fortuna a realizar un sorteo para elegir a los 3 ganadores de un carro. Se sortearán 2 vehículos entre las personas que activaron a través del APP Institucional y 1 vehículo entre las personas que activaron a través de la página web.
+En el sorteo participan todas las activaciones registradas desde el 25 de junio 2019 y hasta el viernes 05 de julio, 2019, a media noche.
+Una misma persona solo puede salir favorecida una vez en este sorteo.
+Los nombres de los ganadores de los 3 carros Suzuki Vitara 2019 serán publicados en la página electrónica de la Junta de Protección Social (www.jps.go.cr), y en el sitio de la red social Facebook “Junta de Protección Social (Oficial)”.
