@@ -1,5 +1,5 @@
 N° 40214-MP-MTSS
-(Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 41189 del 26 de junio del 2018, se acordó la ampliación del plazo para la intervención del Instituto Nacional de Fomento Cooperativo (INFOCOOP), dictada por el presente decreto ejecutivo hasta 28 de junio del 2019)
+(Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 41816 del 25 de junio de 2019, se acordó ampliar el plazo para la intervención del Instituto Nacional de Fomento Cooperativo (INFOCOOP), dictada por el presente decreto ejecutivo, por una sola vez y hasta el 30 de noviembre de 2019, para así contar con las nuevas autoridades electas, realizar la debida transición y rendición de cuentas de la intervención.)
 EL PRESIDENTE DE LA REPÚBLICA
 Y EL MINISTRO DE LA PRESIDENCIA
 Y EL MINISTRO DE TRABAJO Y SEGURIDAD SOCIAL

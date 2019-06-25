@@ -18,3 +18,4 @@ Intervención del Instituto Nacional de Fomento Cooperativo (en adelante INFOCOO
 | 3 | 2017-11-14 | Decreto Ejecutivo 40734 (2017-11-14) |
 | 4 | 2017-12-08 | Decreto Ejecutivo 40775 (2017-12-08) |
 | 5 | 2018-06-26 | Decreto Ejecutivo 41189 (2018-06-26) |
+| 6 | 2019-06-25 | Decreto Ejecutivo 41816 (2019-06-25) |
