@@ -1,0 +1,2 @@
+Artículo 10.—Los miembros del Comité deberán excusarse de participar en la decisión de una inversión o de establecer límites de inversión en situaciones en las que puedan existir conflictos de interés.
+Los miembros del Comité de Inversión se encuentran dentro del alcance de lo establecido por la Ley del Mercado de Valores y el Reglamento del Registro del Mercado de Valores respecto a la información privilegiada.

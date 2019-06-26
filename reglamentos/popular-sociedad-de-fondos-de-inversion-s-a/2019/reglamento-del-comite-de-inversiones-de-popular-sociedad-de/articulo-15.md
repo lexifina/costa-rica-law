@@ -1,0 +1,1 @@
+Artículo 15.—El Gestor de Portafolio Financiero supervisará la compra y venta de valores, de igual forma el Gestor de Portafolio No Financiero velará por la cartera no financiera en todo lo que respecta, vigilando que se encuentren dentro de los parámetros aprobados en el prospecto de cada Fondo de Inversión y las políticas generales aprobadas por la Junta Directiva.
