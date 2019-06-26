@@ -1,0 +1,1 @@
+Artículo 7º—Sesiones. El Comité de Riesgo de Popular SAFI sesionará ordinariamente al menos una vez al mes, según lo estipulado a nivel del Reglamento de Gestión de Riesgos (aprobado por el Consejo Nacional de Supervisión del Sistema Financiero), y extraordinariamente a criterio del Coordinador o cuando alguno de los miembros lo requiera, previa solicitud al Coordinador.
