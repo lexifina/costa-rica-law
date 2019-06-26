@@ -1,1 +1,1 @@
-Artículo 6°-Para acogerse al Régimen de Disponibilidad, los funcionarios de la Municipalidad de Curridabat, deberán firmar el contrato respectivo con esta institución, el cual se insertará con su expediente laboral, así como todos aquellos movimientos que por tal motivo se produjeron.
+Artículo 6.—Para acogerse al Régimen de Disponibilidad los funcionarios de la Municipalidad de Curridabat deberán firmar el Contrato respectivo con la institución, el cual se insertará con su expediente laboral, así como todos aquellos movimientos que por tal motivo se produjeron.

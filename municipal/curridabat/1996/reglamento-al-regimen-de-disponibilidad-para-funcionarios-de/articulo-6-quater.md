@@ -1,0 +1,1 @@
+Artículo 6 cuater.—El pago por disponibilidad no constituirá un beneficio permanente ni un derecho adquirido para el (la) Trabajador (a) por lo que, al finalizar la vigencia de este, la Administración no tendrá la obligación de renovarlo.

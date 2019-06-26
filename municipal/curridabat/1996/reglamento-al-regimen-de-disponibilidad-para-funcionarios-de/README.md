@@ -15,3 +15,4 @@ Reglamento al Régimen de Disponibilidad para Funcionarios de la Municipalidad d
 | --- | --- | --- |
 | 1 | 1996-06-27 | la propia norma |
 | 2 | 2010-10-01 | Reglamento municipal 23 (2010-10-07) |
+| 3 | 2019-06-26 | Reglamento municipal 77 (2019-06-26) |
