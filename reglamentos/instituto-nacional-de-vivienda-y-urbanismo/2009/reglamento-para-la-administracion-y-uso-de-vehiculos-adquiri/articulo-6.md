@@ -1,3 +1,1 @@
-CAPÍTULO II
-De la Unidad de Transportes
-Artículo 6º—La Unidad de Transportes dependerá directamente del Proceso de Servicios Generales y estará dirigida por un Encargado, quien tendrá bajo su responsabilidad a los operadores de equipo móvil, mecánicos y el personal que se considere necesario para el fiel cumplimiento de sus funciones.
+Artículo 6º— Seguro. Todos los vehículos propiedad del INVU y/o que sean adquiridos bajo la modalidad de arrendamiento según su año de fabricación, deberán contar con una póliza de seguro, bajo la modalidad de flotilla y, que contemple todas las coberturas, de manera que se garantice la protección y resguardo de los recursos del Instituto.

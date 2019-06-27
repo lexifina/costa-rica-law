@@ -1,2 +1,2 @@
-Controles sobre vehículos de uso discrecional
-Artículo 21.—El funcionario público que tenga asignado un vehículo de uso discrecional responderá por su custodia, uso, conservación y mantenimiento; sin embargo, la Administración aplicara controles mínimos como los establecidos para otros activos de la Institución.
+Artículo 21º—Transporte de particulares. Queda terminantemente prohibido que viajen personas particulares en los vehículos del INVU, sin que estos cuenten con la autorización otorgada de previo por la dependencia solicitante, así como del encargado de la Unidad de Administración.
+Tanto los funcionarios del INVU como de otras empresas están en la obligación de portar el respectivo carné institucional o empresarial para lo cual, debe preverse que la póliza de accidentes cubra a terceras personas, de lo contrario, es indispensable contar con el visto bueno o autorización emitida previamente por la Gerencia General del INVU.

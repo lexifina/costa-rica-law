@@ -1,1 +1,0 @@
-Artículo 57.—El conductor que utilice indebidamente combustible, lubricantes, pulidores o cualquier otro artículo destinado al buen funcionamiento, conservación y limpieza de los vehículos, se hace acreedor de las sanciones contenidas en el Reglamento Autónomo de Organización y Servicio y otra legislación que proceda aplicable al caso concreto.

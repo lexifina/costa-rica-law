@@ -1,1 +1,0 @@
-Artículo 34.—De conformidad a lo anterior, si se produce la salida de un vehículo será responsabilidad del Oficial de Seguridad, del usuario del vehículo y de quien dio la orden sin estar autorizado para tal efecto según lo establecido en este Reglamento. De presentarse esta situación se aplicarán las disposiciones y sanciones reglamentarias previa investigación del caso.

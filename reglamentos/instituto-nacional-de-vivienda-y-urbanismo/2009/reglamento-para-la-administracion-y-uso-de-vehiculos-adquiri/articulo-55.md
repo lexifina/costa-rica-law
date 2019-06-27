@@ -1,1 +1,0 @@
-Artículo 55.—Prohíbase a todos los conductores, mientras conducen, utilizar teléfonos móviles y cualquier otro medio o sistema de comunicación, salvo que el desarrollo de la comunicación se realice sin emplear las manos, utilizando auriculares o instrumentos similares. (Artículo 200, Ley de Tránsito por vías Públicas Terrestres).

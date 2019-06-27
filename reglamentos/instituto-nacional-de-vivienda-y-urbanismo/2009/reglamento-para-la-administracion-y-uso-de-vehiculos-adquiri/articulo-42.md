@@ -1,1 +1,0 @@
-Artículo 42.—Todos los funcionarios del INVU están obligados a reportar a la Unidad en la fórmula “Movimiento Diario de Vehículos” toda irregularidad que se observe en la utilización de los servicios señalando fecha, hora, lugar y número de placa del vehículo Inculpado a fin de establecer las responsabilidades del caso y aplicar las sanciones correspondientes.

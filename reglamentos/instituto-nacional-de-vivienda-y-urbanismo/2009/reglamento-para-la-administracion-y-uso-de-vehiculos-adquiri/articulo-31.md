@@ -1,2 +1,2 @@
-Artículo 31.—Todos los vehículos, excepto los que se encuentren realizando giras de más de un día de duración, misiones especiales de trabajo, deberán ser guardados al final de la jornada diaria de trabajo en los correspondientes espacios asignadas para cada vehículo, aspecto que rige también cuando los vehículos no están en circulación, en el garaje que utilice la Unidad para tal efecto.
-Las llaves de los vehículos deberán permanecer en la oficina del Encargado de la Unidad de Transportes. Los oficiales sin ningún motivo podrán autorizar la salida de ningún vehículo. Los vehículos propiedad del INVU tendrán la prioridad de aparcamiento en los estacionamientos de la Institución.
+Artículo 31º—El presente Reglamento rige a partir de su publicación y fue aprobado por la Junta Directiva en Sesión Ordinaria Nº6389, Artículo II, Inciso 3), celebrada el 27 de junio del 2019.
+Rige a partir de su publicación en el Diario Oficial La Gaceta.

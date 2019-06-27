@@ -1,3 +1,3 @@
-Artículo 3º—Son vehículos propiedad del INVU:
-a. Todos los vehículos adquiridos por el INVU.
-b. Todos los vehículos que le fueran transferidos de otras Instituciones o donados por personas físicas o jurídicas u organismos nacionales o internacionales.
+Artículo 3º—Alcance. El presente Reglamento abarca todos los vehículos propiedad del INVU y/o adquiridos bajo la figura de arrendamiento, así como todos aquellos que le fueran transferidos de otras Instituciones o donados por personas físicas o jurídicas, así como por organismos nacionales o internacionales.
+El Reglamento se aplicará para garantizar una eficiente administración, uso y mantenimiento de todos los vehículos propiedad del INVU y/o adquiridos bajo la figura de arrendamiento, los cuales están a disposición de las personas funcionarias de la Institución para el desarrollo de las funciones propias de sus cargos.
+Los vehículos propiedad del INVU y/o que sean adquiridos bajo la modalidad de arrendamiento son de uso oficial y deberán ser utilizados en actividades propias del funcionamiento del INVU.

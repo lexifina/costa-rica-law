@@ -1,1 +1,6 @@
-Artículo 5º—Los vehículos propiedad del INVU son de uso oficial, los mismos deberán ser utilizados en actividades propias del funcionamiento del INVU, por lo tanto los mismos no podrán ser cedidos a personas físicas o jurídicas ajenas a la Institución.
+Artículo 5º—Vehículos de uso administrativo. Todos los vehículos de uso administrativo del INVU estarán sometidos a las siguientes regulaciones:
+a) Llevarán un rótulo visible en sus costados con el nombre y logotipo del INVU de manera permanente.
+b) Deberán portar la respectiva placa oficial.
+c) Deberán utilizarse únicamente dentro de la jornada ordinaria laboral del INVU, salvo cuando por razones de trabajo se justifique su circulación en horas y días fuera del horario normal de trabajo (no hábiles). En los casos en los que existe Convenios Interinstitucionales deberá mediar autorización por parte de la Gerencia General para la circulación de estos vehículos.
+d) Su manejo estará estrictamente a cargo de la(s) persona(s) conductora(s) debidamente autorizada (as), salvo lo dispuesto en este Reglamento.
+Al finalizar la jornada de trabajo los vehículos que no se encuentren en servicio, deberán permanecer en las instalaciones de la Institución, y sólo, cuando la gestión o uso de estos finalice a altas horas de la noche, que las personas funcionarias se encuentren de gira y sufran un desperfecto o se haya producido una colisión que impida el desplazamiento de las unidades, el responsable del vehículo deberá velar por resguardarlo en un lugar donde se garantice la seguridad del mismo.

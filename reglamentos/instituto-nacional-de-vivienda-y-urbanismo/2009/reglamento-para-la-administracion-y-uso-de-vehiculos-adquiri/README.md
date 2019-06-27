@@ -14,3 +14,4 @@ Reglamento para la Administración y Uso de Vehículos adquiridos y/o arrendados
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-04-13 | la propia norma |
+| 2 | 2019-06-27 | Reglamento 6389 (2019-06-27) |

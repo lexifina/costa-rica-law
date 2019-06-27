@@ -1,1 +1,5 @@
-Artículo 7º—La función general de esta Unidad es la de administrar el servicio de transportes basado en la disponibilidad de recursos y normas reguladoras del servicio estipuladas en el Reglamento y la Ley de Tránsito por Vías Públicas Terrestres, así como programar, dirigir, coordinar, supervisar las tareas de la Unidad, tendientes a lograr la optimización del servicio. Asimismo tiene bajo su responsabilidad y control todos los vehículos y estará encargada de suministrar el mantenimiento preventivo y la reparación de dichos automotores y demás funciones que se apunten en este Reglamento y que en el futuro asigne la Presidencia, Gerencia o Subgerencia, en cuanto a los vehículos del Instituto.
+Artículo 7º—Prohibiciones. Los vehículos propiedad del INVU y/o que sean adquiridos bajo la modalidad de arrendamiento no podrán ser utilizados para:
+a) Otras actividades que no sean las propias de la Institución, salvo en los casos de emergencia o aquellas autorizadas por la Gerencia General, Presidencia Ejecutiva o Junta Directiva.
+b) El uso y traslado de familiares hasta el cuarto grado de consanguinidad directa y colateral, así como por afinidad de los funcionarios del INVU.
+c) Queda prohibido transportar mercadería, menaje de casa, alimentos, bebidas alcohólicas y otras con los vehículos.
+d) El desarrollo de actividades políticas.

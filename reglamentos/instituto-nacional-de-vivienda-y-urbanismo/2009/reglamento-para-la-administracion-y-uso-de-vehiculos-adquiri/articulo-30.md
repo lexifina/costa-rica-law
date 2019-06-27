@@ -1,1 +1,1 @@
-Artículo 30.—No se autorizará el uso de vehículos oficiales cuando resulte más ventajoso para el servidor en el desempeño de sus funciones, realizar un viaje utilizando servicios particulares o transporte público y su uso no perjudique las actividades diarias de la Unidad, a criterio del Proceso a cargo de los vehículos de este Instituto.
+Artículo 30º—Este Reglamento deroga toda disposición anterior relativa a la materia.

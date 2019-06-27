@@ -1,1 +1,0 @@
-Artículo 41.—Todos los conductores están obligados de informar a la Unidad sobre cada servicio realizado, por medio de la fórmula “Movimiento Diario de Vehículos”, contando para ello con un plazo máximo de 24 horas después de finalizado el servicio.
