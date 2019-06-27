@@ -1,0 +1,1 @@
+Artículo 7.- Uso del Correo Electrónico. La información enviada y recibida por correo electrónico se utilizará para agilizar los trámites administrativos y cuando corresponda deberá remitirse en forma escrita la solicitud.

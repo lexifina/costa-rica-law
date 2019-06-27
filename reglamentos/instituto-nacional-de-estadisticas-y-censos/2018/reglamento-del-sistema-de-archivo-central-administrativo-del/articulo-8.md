@@ -1,0 +1,1 @@
+Artículo 8.- El personal encargado de los archivos de gestión velará por la correcta gestión y tramite de los documentos públicos electrónicos, según se especifica en los procedimientos e instructivos institucionales desarrollados para este fin, en cumplimiento a la Ley 8454 del 30 de agosto del 2005 de Certificados, firmas digitales y documentos electrónicos.

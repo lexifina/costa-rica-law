@@ -1,0 +1,1 @@
+Artículo 5.- El Sistema Institucional de los Archivos del Instituto Nacional de Estadística y Censos deberá facilitar los documentos a los usuarios internos y externos, de acuerdo con lo que establecen los artículos 24 y 30 de la Constitución Política, los artículos 10 y 42 de la Ley del Sistema Nacional de Archivos y el artículo 4 de la Ley 7839 del INEC.

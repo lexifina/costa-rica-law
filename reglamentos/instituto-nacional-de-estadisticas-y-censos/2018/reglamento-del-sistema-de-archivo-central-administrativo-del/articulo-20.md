@@ -1,0 +1,1 @@
+Artículo 20.- El CIASED podrá convocar a sus reuniones a cualquier persona funcionaria del INEC, competente en la materia por tratar, para decidir con mayor amplitud y objetividad la conservación y eliminación de la documentación evaluada.

@@ -1,0 +1,1 @@
+Artículo 4.- El fondo documental que se custodia en los archivos de gestión se organizará por medio de los sistemas de clasificación y los métodos de ordenación archivísticos definidos por el Archivo Central Administrativo, respetando los principios de procedencia y orden original de los documentos.

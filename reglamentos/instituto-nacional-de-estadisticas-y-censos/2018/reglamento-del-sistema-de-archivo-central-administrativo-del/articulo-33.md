@@ -1,0 +1,1 @@
+Artículo 33.- El incumplimiento de cualquiera de los principios y normas específicas en materia archivística que los regula, serán sancionados de conformidad con lo que al respecto dictan los regímenes internos, la Ley N° 7202 y el Reglamento a la ley, así como cualquier otra normativa vigente en relación con esa materia.

@@ -1,0 +1,1 @@
+Artículo 30.- Cuando una persona funcionaria del INEC, en asuntos oficiales, necesita tener copia de algún documento, se le presta para que lo fotocopie o se le escanea llenando la respectiva boleta de Registro de Usuario.

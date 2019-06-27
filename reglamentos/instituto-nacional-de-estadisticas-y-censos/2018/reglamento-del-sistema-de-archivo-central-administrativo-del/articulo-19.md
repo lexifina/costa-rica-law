@@ -1,0 +1,3 @@
+Artículo 19.- Funciones CIASED:
+a. Evaluar y determinar la vigencia administrativa y legal de los documentos de la institución. Para ello promoverá la elaboración de tablas de plazos de conservación de documentos.
+b. Consultar a la Comisión Nacional de Selección y Eliminación de Documentos, las valoraciones parciales, tablas de plazos de conservación de los documentos de nuestra institución cuales documentos consideran de valor científico cultural y autorizará la eliminación de los documentos que carezcan de ese valor una vez caducado la vigencia administrativa legal. De acuerdo con el artículo 33 de la Ley 7202 del Sistema Nacional de Archivos y 22 de su Reglamento.

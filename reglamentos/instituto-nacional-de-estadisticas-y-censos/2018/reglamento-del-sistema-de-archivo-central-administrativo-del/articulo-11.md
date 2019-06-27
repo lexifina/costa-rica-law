@@ -1,0 +1,1 @@
+Artículo 11.- El Archivo Central Administrativo reunirá los documentos custodiados por los Archivos de Gestión de las diferentes Áreas y unidades institucionales, los cuales deberán remitir los documentos según el procedimiento establecido.

@@ -1,0 +1,1 @@
+Artículo 13.- La persona Encargada del Archivo Central Administrativo deberá capacitar y asesorar al personal de los Archivos de Gestión de las diferentes Áreas y unidades institucionales o cualquier otro relacionado con la actividad documental, para que se organicen los archivos de conformidad con los lineamientos emitidos en materia archivística.

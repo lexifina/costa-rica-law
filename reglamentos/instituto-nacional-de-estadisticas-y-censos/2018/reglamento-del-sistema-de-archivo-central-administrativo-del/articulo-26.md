@@ -1,0 +1,1 @@
+Artículo 26.- Cuando un documento deba salir del Archivo Central Administrativo hacia una dependencia interna, el usuario deberá llenar la boleta de “Registro de usuarios” que para tal efecto ha sido confeccionada.
