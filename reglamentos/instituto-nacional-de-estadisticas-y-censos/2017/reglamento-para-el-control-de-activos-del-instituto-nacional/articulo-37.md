@@ -1,0 +1,1 @@
+ARTÍCULO 37. Mantenimiento: Los activos sujetos a plan de mantenimiento como es el caso de los extinguidores u otro activo que no se pueda dar mantenimiento a nivel interno, debe ser coordinado por la contraparte técnica que tiene a cargo el mantenimiento, en el caso de equipo que tenga que salir del edificio debe contar con la boleta de traslado.

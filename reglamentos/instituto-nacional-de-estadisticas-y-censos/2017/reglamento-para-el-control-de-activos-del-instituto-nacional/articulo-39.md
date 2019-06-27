@@ -1,0 +1,2 @@
+ARTÍCULO 39. Revisión técnica: La Unidad de Proveeduría solicitará colaboración a la dependencia competente en razón de la materia, para establecer aquellos activos que sean susceptibles de destrucción, desecho o donación.
+Los activos que se den de baja por ser clasificado como desecho o desuso, se resguardarán en una bodega independiente, con el fin de ser valorado por el encargado de activos y la contraparte técnica, para poder determinar si se utilizará partes para repuestos. Estos repuestos deben tener un auxiliar independiente y tener controles en el inventario.

@@ -1,0 +1,1 @@
+ARTÍCULO 48. Regulaciones internas para la aplicación de este Reglamento: Corresponderá al encargado de activos en coordinación con las unidades administrativas y la Unidad de Planificación Institucional elaborar los manuales de procedimientos internos que definan las regulaciones necesarias para la aplicación de este Reglamento.

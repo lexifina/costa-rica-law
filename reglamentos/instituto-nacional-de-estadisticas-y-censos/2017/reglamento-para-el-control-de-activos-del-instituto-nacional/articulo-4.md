@@ -1,0 +1,4 @@
+CAPÍTULO III
+Deberes, derechos y obligaciones
+ARTÍCULO 4. Responsables por los activos a su cargo: Todo el personal del INEC y personas externas que manipulen activos propiedad del INEC serán responsables por los bienes que le han sido asignados o entregados con el valor declarado en la entrega, en cuanto a su adecuado uso, mantenimiento, administración, conservación y custodia de los activos.
+Todo coordinador de una unidad es responsable por el buen uso, por cuido y custodia de los activos recibidos para el desempeño de las funciones a su cargo. El encargado de activos deberá tener un expediente físico o digital actualizado de los activos que tienen el personal del INEC. Este auxiliar tendrá que mantenerse actualizado y respaldado, el mismo servirá para que la dependencia valide los inventarios que solicite periódicamente la Unidad de Proveeduría.

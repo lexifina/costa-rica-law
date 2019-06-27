@@ -1,0 +1,1 @@
+ARTÍCULO 6. Pérdida de activos por daño o destrucción: Toda persona, física o jurídica, que tenga bajo su responsabilidad activos del INEC será responsable en caso de pérdida, daño o destrucción de los activos bajo su asignación. Lo anterior, únicamente luego de darse el debido proceso que establece este Reglamento y Procedimientos vigentes.

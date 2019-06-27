@@ -1,0 +1,8 @@
+ARTÍCULO 16. Obligaciones y responsabilidades del encargado del Proceso de Contabilidad de la Unidad de Finanzas y de su superior inmediato: El encargado del Proceso de Contabilidad de la Unidad de Finanzas y su superior inmediato, tendrán las siguientes obligaciones:
+a) Velar por la correcta codificación, registro presupuestario y contable de los activos que adquiera el INEC.
+b) Verificar que el pago de los activos que adquiera el INEC, cuente con la respectiva documentación soporte que permita determinar el recibo a satisfacción del activo y el valor cancelado.
+c) Registrar y controlar el movimiento contable de los activos del INEC, con base en los documentos fuentes de información, los cuales deben tener la clasificación de las cuentas que le corresponden a cada bien.
+d) Verificar de manera mensual, en coordinación con el encargado de activos, que el auxiliar de activos esté debidamente conciliado con los saldos de las cuentas contables del INEC.
+e) Mostrar en los estados financieros mensuales el monto total de los activos debidamente depurados y cumpliendo con la normativa vigente. De igual manera revelar en las notas a los estados financieros si los activos han sufrido durante el periodo deterioro, revaluaciones, o cualquier otro ajuste según corresponda que aclare el conocimiento e interpretación de los estados financieros.
+f) Revisar los registros contables de todos aquellos activos del INEC que sean dados de baja, ajustando así los estados financieros.
+De lo anterior, quedarán debidamente registradas y revisadas dichas operaciones en los estados financieros, conforme con las políticas y lineamientos establecidos por la Contabilidad Nacional.

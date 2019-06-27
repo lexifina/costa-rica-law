@@ -1,0 +1,1 @@
+ARTÍCULO 5. Responsabilidad del coordinador de proveeduría y encargado de activos: El coordinador de proveeduría y encargado de activos, en conjunto con los coordinadores y encargados de las unidades institucionales serán los responsables de la aplicación y ejecución de las disposiciones establecidas en este Reglamento.

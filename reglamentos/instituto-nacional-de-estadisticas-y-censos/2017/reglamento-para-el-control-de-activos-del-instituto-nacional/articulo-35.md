@@ -1,0 +1,1 @@
+ARTÍCULO 35. Registro de salida de activos para valoración de reparación: Los activos sujetos a reparación se enviarán al taller designado por la Unidad de Proveeduría y contará con una boleta de traslado en la cual quede registrado el custodio actual del activo del INEC.

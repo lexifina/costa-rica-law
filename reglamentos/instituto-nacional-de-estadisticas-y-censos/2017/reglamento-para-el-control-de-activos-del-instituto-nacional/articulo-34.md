@@ -1,0 +1,1 @@
+ARTÍCULO 34. Autorización para reparación de los activos: Cuando un activo requiera reparación, el coordinador de unidad deberá solicitarlo por escrito a la Unidad de Proveeduría mediante el formulario respectivo a fin de que se inicie el procedimiento de contratación del servicio de reparación. Toda reparación debe contar con la autorización respectiva.
