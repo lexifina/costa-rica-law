@@ -1,0 +1,3 @@
+ARTÍCULO 7- Ejecución del proyecto
+Se autoriza al Instituto Costarricense de Acueductos y Alcantarillados y al Servicio Nacional de Aguas Subterráneas, Riego y Avenamiento (Senara) para que, en el marco de ejecución de esta ley, contrate personal bajo la modalidad por servicios especiales, cuyos honorarios y remuneraciones estén vinculados a parámetros de gestión por resultados. La contratación de este personal no estará sujeta a lo dispuesto en el capítulo único, del título III, “Programación macroeconómica y fiscal”, de la Ley N.° 8131, Administración Financiera de la República y Presupuestos Públicos, de 18 de setiembre de 2001.
+Estas contrataciones son por tiempo determinado y responden a los objetivos de esta ley, por lo que no serán parte de la planilla ordinaria.

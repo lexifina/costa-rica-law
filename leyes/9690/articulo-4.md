@@ -1,0 +1,2 @@
+ARTÍCULO 4- Administración de los recursos conforme al principio de caja única
+Los recursos provenientes del contrato de préstamo N.° 2198 serán depositados en la cuenta designada por la Tesorería Nacional, en cumplimiento del principio de caja única. La Tesorería Nacional procederá, de conformidad con los procedimientos establecidos, a acreditar los desembolsos solicitados en una cuenta en caja única a favor de los organismos ejecutores, conforme a las disposiciones del contrato de préstamo N.° 2198 aprobado por esta ley.
