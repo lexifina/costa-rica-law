@@ -1,5 +1,5 @@
 DIRECCIÓN GENERAL DE ADUANAS
-(Nota de Sinalevi: Mediante resolución RES-DGA-046-2019 del 7 de junio del 2019, se acordó prorrogar indefinidamente la presente norma)
+(Nota de Sinalevi: Mediante resolución RES-DGA-100-2019 del 27 de junio de 2019, se acordó prorrogar indefinidamente la presente norma, asimismo se establece que dicha prórroga se establece hasta tanto se finiquite el ajuste definitivo en el sistema informático TICA.)
 RES-DGA-DGT-041-2018.—Dirección General de Aduanas.— San José, a las quince horas del día once de diciembre del dos mil dieciocho.
 Considerando:
 I.—Que el artículo 6 de la Ley General de Aduanas, Nº 7557 del 20 de octubre de 1995 publicada en La Gaceta Nº 212 del 08 de noviembre de 1995 y sus reformas, establece que uno de los fines del régimen jurídico es facilitar y agilizar las operaciones de comercio exterior, así como facultar la correcta percepción de los tributos.
@@ -9,7 +9,12 @@ IV.—Que el artículo 6 del Reglamento a la Ley General de Aduanas indica que l
 V.—Que se publicó la Ley N° 9518 “Incentivos y Promoción para el Transporte Eléctrico”, el 6 de febrero de 2018, en La Gaceta N° 22 Alcance 26, tiene como objeto crear el marco normativo para regular la promoción del transporte eléctrico en el país y fortalecer las políticas públicas para incentivar su uso dentro del sector público y la ciudadanía en general.
 VI.—Que el artículo 3 de la Ley N° 9518, declara de interés público la promoción del transporte eléctrico, público y privado, para cumplir con los compromisos adquiridos en los convenios internacionales ratificados por el país.
 VII.—Que el artículo 9 de la Ley N° 9518, indica que los vehículos eléctricos, según la definición del artículo 2 de esa ley, se beneficiarán de la exoneración del impuesto general sobre las ventas, el impuesto selectivo de consumo y el impuesto sobre el valor aduanero, de acuerdo a lo indicado en la siguiente tabla:
-[imagen]
+Monto exonerado del valor CIF del vehículo eléctrico | Exoneración del Impuesto del Valor Agregado (IVA) | Exoneración del impuesto selectivo de consumo | Exoneración del impuesto sobre el valor aduanero
+Los primeros $30.000 del valor CIF del vehículo eléctrico | 0% de exoneración | 100% de exoneración | 100% de exoneración
+De $30.001 hasta $45.000 del valor CIF del vehículo eléctrico. | 0% de exoneración | 75% de exoneración | 100% de exoneración
+De $45.001 hasta $60.000 del valor CIF del vehículo eléctrico | 0% de exoneración | 50% de exoneración | 100% de exoneración
+De $60.001 en adelante | 0% de exoneración | 0% de exoneración | 0% de Exoneración")
+(Así reformada la tabla anterior por el considerando IX RES-DGA-100-2019 del 27 de junio de 2019)
 VIII.—Que con la resolución RES-DGA-DGT-021-2018 del 19 de julio de 2018 y publicada en el Alcance Digital número 138 del 31 de julio 2018, se oficializó el Procedimiento Especial y Temporal para la importación de vehículos eléctricos amparados a la Ley N° 9518 “Incentivos y Promoción para el Transporte Eléctrico”, denominado “Procedimiento especial de Importación Definitiva Vehículos Eléctricos”, así como el instructivo de llenado denominado “Instructivo para liquidación manual de impuestos de Vehículos eléctricos nuevos y exonerados”.
 IX.—Que en la parte dispositiva de la citada resolución, se indicó que el mismo tendría una vigencia hasta el 31 de diciembre de 2018.
 X.—Que el Ministerio de Hacienda, se encuentra trabajando en el procedimiento y los desarrollos informáticos requeridos al efecto, con la intención de instrumentalizar los distintos tractos de la exoneración de los vehículos eléctricos. Por tanto,
