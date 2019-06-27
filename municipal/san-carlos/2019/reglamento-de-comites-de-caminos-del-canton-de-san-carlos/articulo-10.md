@@ -1,0 +1,1 @@
+Artículo 10.—Vigencia. El Comité de Caminos tendrá una vigencia de dos arios, a partir del día de su juramentación; pudiendo ser reelectos en asamblea general de Vecinos; según establece en el artículo 5 del presente reglamento.

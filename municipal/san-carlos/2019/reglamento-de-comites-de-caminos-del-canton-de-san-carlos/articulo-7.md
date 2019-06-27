@@ -1,0 +1,1 @@
+Artículo 7°—Relaciones de dependencia. El Comité de Caminos depende, en primera instancia, del Concejo de Distrito, la Unidad Técnica de Gestión Vial Municipal u otra dependencia de la municipalidad u otro tipo de organización o entidad de interés público y, en segunda instancia, de la asamblea general de vecinos (as).
