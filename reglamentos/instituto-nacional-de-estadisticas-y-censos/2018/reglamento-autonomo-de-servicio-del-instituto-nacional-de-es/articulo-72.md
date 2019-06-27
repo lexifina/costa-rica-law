@@ -1,0 +1,1 @@
+ARTÍCULO 72. La suspensión del trabajo no podrá decretarse antes de escuchar a la persona y a los testigos que esta hubiera indicado, excepto que haya aceptado, expresamente, la falta que se le imputa.

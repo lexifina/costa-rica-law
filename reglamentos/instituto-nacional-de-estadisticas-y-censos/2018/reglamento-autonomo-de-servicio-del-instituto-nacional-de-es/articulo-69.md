@@ -1,0 +1,1 @@
+ARTÍCULO 69. Se considerará falta de alguna gravedad la violación de alguna de las disposiciones de los artículos 11, literales d., e., f., g., h., i., j., k., l. y q., y 13, literales b., c., d., e., f., g. y h., del presente Reglamento.

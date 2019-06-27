@@ -1,0 +1,1 @@
+ARTÍCULO 70. Se considerará falta grave la infracción de alguna de las disposiciones de los artículos 11, literales m., n., o. y p.; 13, literales i., j., k., l., m., n., o., p. y q., y 49 del presente Reglamento.

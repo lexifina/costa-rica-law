@@ -1,0 +1,1 @@
+ARTÍCULO 21. El registro de asistencia se computará mensualmente, por lo cual la dependencia encargada de la administración de personal dispondrá del mes siguiente para aplicar las sanciones administrativas que corresponda realizar.

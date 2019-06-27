@@ -1,0 +1,1 @@
+ARTÍCULO 23. Es potestad de la dependencia encargada de la administración de personal, previo estudio de la situación, determinar y efectuar el rebajo salarial para las personas que presenten ausencias, llegadas tardías u omisiones de marca.
