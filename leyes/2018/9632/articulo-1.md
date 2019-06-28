@@ -11,3 +11,4 @@ INCISO B: DETALLE DEL CÁLCULO DE LOS INGRESOS EXTRAORDINARIOS INTERNOS DEL GOBI
 (Así reformado el inciso b) anterior por el artículo 1° de la ley N° 9674 del 18 de marzo del 2019)
 (Así reformado el inciso c) por el artículo 1° de la ley N° 9679 del 10 de abril del 2019)
 (Modificado el inciso b) anterior por el artículo 1° del decreto ejecutivo N° 41740 del 20 de mayo de 2019)
+(Modificado el inciso b) anterior por el artículo 1° del decreto ejecutivo N° 41825 del 25 de junio de 2019)
