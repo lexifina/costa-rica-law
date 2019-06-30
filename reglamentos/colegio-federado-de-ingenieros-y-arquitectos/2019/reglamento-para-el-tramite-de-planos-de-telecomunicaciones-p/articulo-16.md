@@ -1,0 +1,5 @@
+Artículo 16.—Información Adicional. Como complemento a los puntos obligatorios del artículo 15, el profesional responsable podrá incluir en los planos la siguiente información adicional:
+1. Dibujos detallados de cada dispositivo típico, como los tipos de placas de salida, detalles de los bastidores y de las canalizaciones, detalles de arquetas, detalles de instalación de las canastas, procedimientos de instalación, cualquier otro detalle que se considere útil para el constructor.
+2. Diagramas adicionales que complementen la información de los sistemas de montaje o construcción de los elementos de telecomunicaciones que los requieran.
+3. Notas aclaratorias que complementen la información gráfica y que permitan definir con claridad todos los criterios empleados en el diseño.
+4. Tabla de salidas: una tabla resumen con las salidas de telecomunicaciones del proyecto para cada una de las zonas servidas de cada edificación, indicando: identificador del edificio, identificador de la zona servida, tipo de salida, tipo de conector, tipo de cable, cantidad y longitud de los cables.

@@ -1,0 +1,1 @@
+Artículo 21.—Plano de obra construida. Se recomienda actualizar ante el CFIA los planos de obra construida que incluyan todos los cambios realizados en el proyecto durante el proceso constructivo con el objetivo de facilitar el mantenimiento y a la vez facilitarle al propietario futuras remodelaciones, cambios o adiciones al sistema.

@@ -1,0 +1,1 @@
+Artículo 12.—Acceso de múltiples compañías de telecomunicaciones. Siempre que sea técnicamente factible, el profesional responsable deberá asegurar que el diseño sea tal que la infraestructura permita el acceso de múltiples compañías de telecomunicaciones a la edificación, según lo dispuesto en la cobertura indicada en artículo 7 de este reglamento.
