@@ -1,0 +1,15 @@
+Nº 41972-MTSS-MIDEPLAN-H
+EL PRESIDENTE DE LA REPUBLICA,
+EL MINISTRO A.I. DE TRABAJO Y SEGURIDAD SOCIAL,
+MINISTRA DE PLANIFICACION NACIONAL Y POLITICA ECONOMICA
+Y LA MINISTRA DE HACIENDA
+En uso de las facultades conferidas por el artículo140, incisos 3) y 18) y el artículo146, ambos de la Constitución Política, Ley de la Administración Financiera de la República y Presupuestos Públicos, Ley Nº8131 del 18 de setiembre de 2001y sus reformas, Ley de Fortalecimiento de la Finanzas Públicas, Ley Nº9635 del 04 de diciembre de 2018 y su reforma y el Decreto Ejecutivo Nº 41781-MP-MTSS-MIDEPLAN-H del 26 de junio2019, Creación de la Comisión Negociadora de Salarios del Sector Público.
+CONSIDERANDO:
+1º—Que el artículo 5, inciso b) de la Ley Nº8131 dispone: “La administración de los recursos financieros del sector público se orientará a los intereses generales de la sociedad, atendiendo los principios de economía, eficiencia y eficacia, con sometimiento a la ley”
+2º— Que el transitorio XXXV del Título III de la Ley Nº9635 establece: “Las remuneraciones totales del presidente de la República, los vicepresidentes de la República, los diputados, los ministros, los viceministros, los presidentes ejecutivos y los gerentes del sector público descentralizado serán excluidos de cualquier aumento salarial en los próximos dos años. Asimismo, los salarios de los funcionarios públicos, cuyas remuneraciones totales mensuales sean iguales o superiores a cuatro millones de colones (₵4.000.000.00), no serán susceptibles de incrementos salariales durante los próximos dos años a partir de la aprobación de esta Ley. Se comprende para estos efectos, como remuneración total a la erogación monetaria equivalente a la suma del salario base e incentivos, dietas, y/o complementos salariales correspondientes, o cualquier otra remuneración independiente de su denominación.”
+3º—Que mediante Decreto Ejecutivo Nº 41781-MP-MTSS-MIDEPLAN-H publicado en Alcance Nº145, Gaceta Nº119 del 26 de junio 2019, se reactiva la Comisión Negociadora de Salarios del Sector Público, como instancia de diálogo social en los procesos de fijación salarial.
+4º— Que se debe mantener un esfuerzo sostenido, por reducir las brechas sociales en procura de proteger a los grupos de menores ingresos del Gobierno Central, brindando protección social sin afectar su poder adquisitivo, en los términos de la inflación acumulada.
+5º—Que el índice de Precios al Consumidor, calculado por INEC, refleja una inflación acumulada del 0,96% (cero coma noventa y seis por ciento) durante el primer semestre del 2019.
+6º—Que para el Poder Ejecutivo, es necesario racionalizar el uso de los recursos, para atender las obligaciones de financiamiento del Presupuesto Nacional y enfrentar de la mejor manera el déficit fiscal que actualmente dificulta el financiamiento del Estado. Por tanto,
+DECRETAN:
+Artículo 1º—Autorizar un aumento general al salario base de todas las categorías del sector público, de ₵3.750.00 (tres mil setecientos cincuenta colones exactos). Mismos que corresponden a la fijación salarial del segundo semestre del 2019.
