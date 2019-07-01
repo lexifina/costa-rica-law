@@ -1,1 +1,0 @@
-Artículo 62.—Verificación de cumplimiento. La información presentada en el informe de fin gestión, en cuanto a la forma y el fondo, será verificada por el Departamento de Control Interno de la Municipalidad, la cual informará a la administración sobre cualquier incumplimiento o irregularidad que se presente, recomendando las medidas correctivas que deban tomarse en cada caso.

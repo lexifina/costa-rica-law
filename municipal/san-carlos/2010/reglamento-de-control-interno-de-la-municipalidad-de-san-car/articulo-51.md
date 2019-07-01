@@ -1,1 +1,0 @@
-Artículo 51.—Garantía de eficiencia y eficacia de las operaciones. El jerarca y los titulares subordinados, según sus competencias, deben establecer actividades de control que orienten la ejecución eficiente y eficaz de la gestión institucional

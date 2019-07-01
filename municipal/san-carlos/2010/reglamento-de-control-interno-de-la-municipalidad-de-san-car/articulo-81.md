@@ -1,1 +1,0 @@
-Artículo 81.—Flexibilidad de los sistemas de información. Los sistemas de información deben ser lo suficientemente flexibles, de modo que sean susceptibles de modificaciones que permitan dar respuesta oportuna a necesidades cambiantes de la institución.

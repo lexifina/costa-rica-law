@@ -1,1 +1,0 @@
-Artículo 22.—De las áreas críticas. En el desarrollo de las actividades de Control Interno, se deberá dar especial énfasis a las áreas consideradas críticas en la Municipalidad, con base en criterios tales como su materialidad, el riesgo asociado y su impacto en la consecución de los fines institucionales.

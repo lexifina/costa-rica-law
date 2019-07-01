@@ -1,4 +1,0 @@
-Artículo 86.—Calidad de la información. Los atributos fundamentales de la calidad de la información están referidos a la confiabilidad, oportunidad y utilidad.
-Confiabilidad: la información debe poseer las cualidades necesarias que la acrediten como confiable, de modo que se encuentre libre de errores, defectos, omisiones y modificaciones no autorizadas, y sea emitida por la instancia competente.
-Oportunidad: las actividades de recopilar, procesar y generar información, deben realizarse y darse en tiempo a propósito y en el momento adecuado, de acuerdo con los fines institucionales.
-Utilidad: la información debe poseer características que la hagan útil para los distintos usuarios, en términos de pertinencia, relevancia, suficiencia y presentación adecuada, de conformidad con las necesidades específicas de cada destinatario.

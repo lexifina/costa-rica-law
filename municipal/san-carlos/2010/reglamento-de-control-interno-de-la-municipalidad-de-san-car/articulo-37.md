@@ -1,1 +1,0 @@
-Artículo 37.—Responsabilidad sobre el SEVRI. El Jerarca y Titulares Subordinados tienen la obligación y responsabilidad de identificar oportunamente y dentro de su área de competencia, los riesgos a los que se exponen los procesos, procedimientos, actividades u operaciones institucionales, para minimizarlos, administrarlos y lograr los objetivos propuestos de manera efectiva.

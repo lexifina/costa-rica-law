@@ -1,1 +1,0 @@
-Artículo 46.—Documentación y registro de la gestión institucional. Los actos de la gestión institucional, sus resultados y otros eventos relevantes, deben ser registrados y documentados en el lapso adecuado y conveniente. Asimismo, debe garantizarse razonablemente la confidencialidad y el acceso a la información pública, según corresponda.

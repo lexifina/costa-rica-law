@@ -1,3 +1,0 @@
-CAPÍTULO VII
-De los sistemas de información
-Artículo 80.—Sobre los sistemas de información y comunicaciones. La Municipalidad de San Carlos debe disponer de los elementos y condiciones necesarias para que de manera organizada, uniforme, consistente y oportuna se ejecuten las actividades de obtener, procesar, generar y comunicar, en forma eficaz, eficiente y económica, y con apego al bloque de legalidad, la información de la gestión institucional y otra de interés para la consecución de los objetivos institucionales. El conjunto de esos elementos y condiciones con las características y fines indicados, se denomina sistema de información, los cuales pueden instaurarse en forma manual, automatizada, o ambas.
