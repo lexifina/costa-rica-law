@@ -1,0 +1,1 @@
+Artículo 6°.- Controles y registros. Los sistemas de emisión de comprobantes electrónicos deben disponer de controles, registros y bitácoras de cada transacción registrada, que permita a la Administración Tributaria ejercer las labores de control tributario en forma integral.
