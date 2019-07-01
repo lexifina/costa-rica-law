@@ -1,0 +1,1 @@
+Artículo 11.- Eficacia jurídica y fuerza probatoria. Los comprobantes electrónicos que se mencionan en el presente reglamento, para los efectos tributarios y comerciales, tendrán la eficacia jurídica y fuerza probatoria.
