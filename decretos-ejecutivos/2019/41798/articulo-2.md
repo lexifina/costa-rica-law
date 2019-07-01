@@ -1,0 +1,1 @@
+Artículo 2º—Deróguese el Decreto Ejecutivo número 41620-H del 11 de marzo de 2019, publicado en el Alcance número 75 a La Gaceta número 64 del 01 de abril de 2019, a partir de la vigencia del presente decreto.
