@@ -1,0 +1,2 @@
+Artículo 6.- Ventas en mercado local a distribuidores y comercializadores mayoristas y detallistas de insumos agropecuarios, veterinarios y de pesca no deportiva.
+Los contribuyentes del impuesto sobre el valor agregado, que comercialicen o distribuyan los bienes contemplados en el presente reglamento, podrán adquirir dichos bienes a la tarifa reducida del 1 % del IV A, para lo cual deberán encontrarse inscritos ante la Administración Tributaria, bajo la actividad económica denominada "Venta al por menor y mayor de productos e insumos agropecuarios".

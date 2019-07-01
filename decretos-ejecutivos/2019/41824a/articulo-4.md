@@ -1,0 +1,2 @@
+Artículo 4.- Pescadores.
+Tendrán derecho a la tarifa reducida del l % del IV A sobre los bienes y servicios contenidos en los anexos 1 y 3 del presente reglamento, únicamente las personas físicas o jurídicas que cuentan con una licencia vigente de pescador comercial, o una autorización para el cultivo de organismos acuáticos, marinos o continentales extendida por el Instituto Costarricense de Pesca y Acuicultura (INCOPESCA).

@@ -1,0 +1,2 @@
+Artículo 9.- Ventas en mercado local a pescadores o acuicultores.
+En el caso de la venta local, de los insumos agropecuarios y veterinarios y los Insumos para pesca no deportiva y actividad acuícola contenidos en los anexos l y 3 del presente reglamento respectivamente, bastará con que el comprador cuente con una licencia de pescador comercial o con una autorización para el cultivo de organismos acuáticos, marinos o continentales, del INCOPESCA, de conformidad con lo establecido en el artículo 4 del presente reglamento.

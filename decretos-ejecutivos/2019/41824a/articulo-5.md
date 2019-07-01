@@ -1,0 +1,2 @@
+Artículo 5.- Importadores.
+Los importadores de los bienes que se contemplan en el presente reglamento, deberán tramitar la aplicación de la tarifa reducida ante la Dirección General de Hacienda, de conformidad con el procedimiento establecido en los artículos 9, 10 y 11 del reglamento número 41015-MAG-MEIC-H, denominado "Reglamento al artículo 5 º de la Ley Reguladora de Exoneraciones Vigentes, Derogatorias y Excepciones y artículo 26 de Ley de Desarrollo, Promoción y Fomento de la Actividad agropecuaria".

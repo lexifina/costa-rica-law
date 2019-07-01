@@ -1,0 +1,2 @@
+Artículo 11.- Servicios a productores agropecuarios.
+Los servicios prestados a los productores agropecuarios definidos los artículos 2 y 3 del presente reglamento, brindados por el Servicio Fitosanitario del Estado, Oficina Nacional de Semillas, Instituto Nacional de Innovación y Transferencia en Tecnología Agropecuaria, Servicio Nacional de Salud Animal, el Consejo Nacional de Producción, Servicio Nacional de Aguas Subterráneas, Riego y Avenamiento (SENARA) disfrutarán de una tarifa del l % del IV A.

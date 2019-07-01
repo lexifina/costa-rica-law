@@ -1,0 +1,2 @@
+TRANSITORIO IV.
+Los contribuyentes del impuesto sobre el valor agregado y productores exclusivos de bienes agropecuarios contenidos en la Canasta Básica Tributaria o de las materias primas indispensables para la producción de dichos bienes, por una única vez, presentarán a más tardar el 15 de octubre de 2019, la declaración del impuesto sobre el valor agregado, correspondiente a los periodos de juIio, agosto, y setiembre 2019.
