@@ -14,3 +14,4 @@ Reforma Reglamento Autónomo de servicio del Instituto Nacional de Aprendizaje
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-04-25 | la propia norma |
+| 2 | 2019-07-01 | Reglamento 25 (2019-07-01) |

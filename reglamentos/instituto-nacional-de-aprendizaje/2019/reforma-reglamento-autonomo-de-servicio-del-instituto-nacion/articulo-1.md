@@ -1,4 +1,6 @@
+(Revocada)
 INSTITUTO NACIONAL DE APRENDIZAJE
+(Este acuerdo fue revocado mediante sesión ordinaria N° 25-2019 del 1° de julio del 2019)
 JUNTA DIRECTIVA
 Se hace saber que la Junta Directiva del Instituto Nacional de Aprendizaje, mediante el acuerdo No. No. AC-75-2019-JD, adoptado en el capítulo VI de la sesión 12-2019 celebrada el 25 de marzo del 2019 aprobó lo siguiente la reforma al Reglamento Autónomo de Servicios, cuyo texto dice:
 REGLAMENTO AUTÓNOMO DE SERVICIOS DEL INSTITUTO NACIONAL DE
