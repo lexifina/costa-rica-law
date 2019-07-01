@@ -1,0 +1,1 @@
+Artículo 8.- Hecho generador en el arrendamiento de bienes con opción de compra. En los arrendamientos con opción de compra vinculante el impuesto por la venta del bien se devenga al momento en que este se pone a disposición, cuando la opción de compra es no vinculante, el impuesto se devenga al momento en que se realice la venta.

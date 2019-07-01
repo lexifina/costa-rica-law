@@ -1,0 +1,2 @@
+Artículo 52.- Objeto del impuesto. Para los efectos de este régimen se considerarán bienes usados los que cumplan las características descritas en el numeral 6) del artículo 1 del presente Reglamento.
+No se considerarán bienes usados sujetos al impuesto sobre el valor agregado, y por tanto a este régimen, los vehículos usados que estén inscritos y matriculados de acuerdo con lo dispuesto en el numeral 3) del artículo 12 de este Reglamento.

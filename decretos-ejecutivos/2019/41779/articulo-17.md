@@ -1,0 +1,10 @@
+Artículo 17.- Base imponible en la prestación de servicios.
+1) La base imponible en la prestación de servicios se determina sobre el precio neto de venta, que corresponde al valor total de la contraprestación antes del impuesto e incluye,entre otros conceptos:
+a) El monto de los tributos y gravámenes de cualquier clase que recaigan sobre tales servicios, independientemente de que la operación sea al contado o a crédito; en particular el impuesto regulado en los literales a) y b) del artículo 46 de la Ley Nº 1917 Ley Orgánica del Instituto Costarricense de Turismo (ICT).
+b) Las subvenciones directas sobre el precio del servicio.
+c) Las penalizaciones o indemnizaciones retenidas en operaciones comerciales debido a incumplimientos por parte de quien consume el servicio, tales como las referidas a la cancelación de reservaciones o el incumplimiento de compromisos de permanencia.
+d) Los productos accesorios a la prestación del servicio, así como los envases o embalajes de dichos productos, en tanto estos no hayan sido devueltos.
+2) En el autoconsumo de servicios o para fines ajenos a la actividad, así como las demás operaciones efectuadas a título gratuito, incluida la transmisión de derechos, en particular la de derechos distintos al dominio pleno, la base imponible será el costo del servicio, en el cual deberá de incluir aquellos bienes y servicios necesarios para su prestación.
+3) En el caso de transacciones que no consisten en dinero, la base imponible será la que se habría acordado en condiciones normales de mercado entre partes independientes.
+4) En las operaciones entre partes vinculadas, en los casos en que el valor del servicio prestado, esté por debajo del precio de mercado, la base imponible debe ajustarse al valor normal de mercado que pactarían partes independientes y en los términos que establece el artículo 81 bis de la Ley del Impuesto sobre la Renta.
+5) En el caso de los vuelos internacionales, para los vuelos que tengan como origen el territorio nacional la base imponible será el 10% (diez por ciento) del valor total del tiquete, boleto o pasaje aéreo adquirido.

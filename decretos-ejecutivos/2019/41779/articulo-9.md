@@ -1,0 +1,1 @@
+Artículo 9.- Hecho generador en las ventas en consignación y el apartado de bienes. El hecho generador en las ventas en consignación se devengará en el momento en que el consignatario entregue el bien en consignación al adquirente, y en los apartados de bienes en el momento en que el bien queda apartado.

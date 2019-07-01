@@ -1,0 +1,1 @@
+Artículo 33. Crédito fiscal no aplicable En ningún caso será aplicable el crédito fiscal de los bienes y servicios adquiridos que se destinen directa y exclusivamente a operaciones que no dan derecho a crédito.

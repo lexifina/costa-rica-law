@@ -1,0 +1,2 @@
+Disposiciones Transitorias.
+Transitorio I.- El inicio de la aplicación de la percepción establecida para los servicios digitales transfronterizos y bienes intangibles se dará a partir del momento en que la Administración Tributaria suministre el listado de proveedores o intermediarios a los agentes de percepción, cuyas transacciones serán objeto de percepción, para lo cual contarán a partir del envío de la primera lista, un mes para su implementación.

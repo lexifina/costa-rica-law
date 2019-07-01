@@ -1,0 +1,1 @@
+Artículo 69.- Disposiciones Generales. Los saldos a favor del Impuesto General Sobre las Ventas, que estén pendientes de ser aplicados por parte del contribuyente, se entenderán que los mismos podrán ser aplicados al Impuesto Sobre el Valor Agregado.

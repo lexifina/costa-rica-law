@@ -1,0 +1,3 @@
+Artículo 42.- Determinación, liquidación y pago del impuesto en las importaciones o internamiento de bienes.
+1) En todo lo no dispuesto en la Ley o en este Reglamento, se tomarán las reglas de determinación y pago del impuesto en importaciones o internamiento de bienes desde zonas o regímenes aduaneros, reguladas en la normativa aduanera.
+2) El contribuyente podrá aplicar como crédito fiscal el Impuesto sobre el Valor Agregado cuando este se realice en cumplimiento de la normativa aduanera en las importaciones e internamiento de bienes, debiendo incluirlo en la declaración autoliquidativa del impuesto sobre el Valor Agregado.

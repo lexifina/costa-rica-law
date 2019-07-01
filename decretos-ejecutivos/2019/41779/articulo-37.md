@@ -1,0 +1,12 @@
+SECCION III
+De los saldos a favor, devoluciones y reembolsos del impuesto
+Artículo 37.- Saldo a favor del contribuyente.
+1) Cuando la diferencia entre el débito y el crédito fiscal resulte en un saldo a favor del contribuyente, dicho saldo se aplicará al mes o meses siguientes, a efecto de compensar el impuesto a pagar que se genere en esos meses. Si por las circunstancias especiales que se mencionan en el siguiente numeral, el contribuyente prevé que no ha de originar, en los tres meses siguientes, un débito fiscal suficiente para absorber la totalidad del saldo de su crédito fiscal, podrá utilizarlo para cancelar cualquier otra deuda tributaria conforme lo dispone la Sección VII del Capítulo VIII, del Decreto Ejecutivo Nº 38277-H del 7 de marzo de 2014 y sus reformas, denominado “Reglamento de Procedimiento Tributario”.
+2) Serán circunstancias especiales que, cumplido lo dispuesto en el numeral anterior, permitan la compensación a instancia de parte de acuerdo al Reglamento de Procedimiento Tributario, Decreto Ejecutivo No. 38277-H del 07 de marzo de 2014 y susreformas, las siguientes:
+a.El cese definitivo o indefinido de la actividad.
+b.La suspensión temporal de la actividad por más de un mes.
+c.La aparición de factores objetivos de mercado que permitan razonablemente asegurar una alteración significativa en las circunstancias del negocio.
+d.Cambios legales o reglamentarios que afecten o puedan razonablemente afectar al negocio o al régimen jurídico de los créditos o débitos fiscales por el Impuesto sobre el Valor Agregado, tales como cambios de tarifas, interpretaciones de la norma que generen mayores volúmenes de crédito.
+e.Cualesquiera otras que el contribuyente presente ante la AdministraciónTributaria al momento de solicitar la compensación según el Reglamento citado.
+En los expedientes de solicitud de compensación los contribuyentes deberán alegar, y en su caso justificar, una o varias de estas circunstancias especiales para su admisión.
+3) La aplicación de los saldos a favor en las declaraciones tributarias siguientes a su generación, se presentará sólo cuando sea necesario para cancelar una deuda tributaria, los cuales serán utilizados en orden de prelación, debiendo imputarse al saldo más antiguo.Caso contrario, el saldo a favor se mantendrá en el período fiscal en el cual se generó,estando sujeto al plazo de prescripción y a las disposiciones establecidas en el artículo 43del Código de Normas y Procedimientos Tributarios.

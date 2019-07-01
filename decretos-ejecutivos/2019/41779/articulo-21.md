@@ -1,0 +1,1 @@
+Artículo 21.- Base imponible en operaciones en moneda distinta al colón costarricense. En los casos en que las operaciones cuya contraprestación se haya fijado en moneda o divisa distinta al colón, se aplicará el Tipo de Cambio de Venta de referencia del Banco Central de Costa Rica, que esté vigente en el momento en que se produce el respectivo hecho generador.

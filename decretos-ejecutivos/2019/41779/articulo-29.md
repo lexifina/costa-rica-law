@@ -1,0 +1,13 @@
+Artículo 29- Requisitos formales del crédito fiscal.
+1) El derecho al crédito fiscal por la importación o adquisición de bienes o servicios,solamente procede cuando las compras realizadas estén debidamente documentadas y cumplan con los requisitos que establece el Reglamento de Comprobantes Electrónicos,las resoluciones generales dictadas por la Administración Tributaria, así como lanormativa vigente en materia aduanera.
+Asimismo, los contribuyentes deben tener a disposición la documentación en mención.
+El incumplimiento de lo indicado en los párrafos anteriores implica la improcedencia de la deducción del crédito.
+2) Constituyen documentos justificativos del crédito fiscal:
+a.En las compras locales de bienes y servicios, el comprobante electrónico debidamente registrado y autorizado por la Administración Tributaria,correspondiente a la compra del bien o servicio, debidamente confirmado por el contribuyente, en el plazo que defina la Administración Tributaria medianteresolución general referida a comprobantes electrónicos.
+Tratándose de descuentos, deberá disponerse de los documentos expedidos por el contribuyente, indicados en los artículos 15 y 18 del presente Reglamento, segúncorresponda.
+b.En las importaciones e internamiento de bienes, la declaración aduanera, como comprobante de pago de este impuesto ante la Administración Aduanera.
+c.En las adquisiciones de servicios y bienes intangibles, cuyo proveedor se encuentre domiciliado fuera del territorio nacional, el comprobante electrónico emitido por el contribuyente así como la factura original emitida por el proveedorde quien adquiere el servicio o bien intangible como respaldo de la operación.
+d.En el impuesto recaudado a nivel de fábrica, mayorista o aduana, el comprobante electrónico que respalde dicha adquisición, el crédito fiscal applicable corresponderá según determine la Administración Tributaria mediante resolución general dictada al efecto.
+3) Para que proceda el reconocimiento del crédito fiscal, este debe reflejarse en la autoliquidación del impuesto que presenten los contribuyentes en su declaración.
+4) Para efectos del numeral 4) del artículo 20 de la Ley, se entenderá por “actuación fiscalizadora”, la establecida en los Capítulos VI y VII denominados del “Control Extensivo” y “Control Intensivo” del Reglamento de Procedimiento Tributario, Decreto Ejecutivo No. 38277-H del 7 de marzo de 2014 y sus reformas.
+5) No será admisible el crédito fiscal en cuantía superior a la legalmente procedente ni alimpuesto expresa y separadamente consignado, según el documento justificativo de la operación.

@@ -1,0 +1,3 @@
+Artículo 35.- Aplicación provisional de la proporción del crédito fiscal.
+1) La proporción total del crédito fiscal aplicable de un contribuyente descrito en el artículo anterior se estimará anualmente, a partir de la información de la suma de los períodos del año calendario anterior y será aplicable provisionalmente a cada período fiscal siguiente,de enero a diciembre.
+2) La proporción provisional de crédito a aplicar por los contribuyentes que inician actividades sujetas a este impuesto durante los períodos del primer año calendario de actividad corresponderá a una proyección que este realice de la misma.

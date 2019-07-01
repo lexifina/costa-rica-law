@@ -1,0 +1,10 @@
+Artículo 3.- Lugar de realización del hecho generador. De conformidad con el artículo 1° de la Ley, se establece un Impuesto sobre el Valor Agregado en la venta de bienes y en la prestación de servicios, independientemente del medio por el que sean prestados y que se realicen o consuman en el territorio nacional.
+1) Por venta de bienes realizados en el territorio nacional, se entenderán las importaciones y las ventas locales de bienes, así como aquellos en los que el contribuyente adquiere de parte de un proveedor no domiciliado en el territorio nacional, un bien intangible que es consumido en el territorio nacional.
+En el caso de las importaciones e internamiento de bienes, están sujetas cualquiera que sea el fin a que se destinen y la condición del importador, para su uso o consumo en el país.
+2) Por prestación de servicios realizados en el territorio nacional, se entenderán los que se presten o consuman en el territorio nacional, así como aquellos en los que el contribuyente adquiere de parte de un proveedor no domiciliado en el territorio nacional, un servicio que es utilizado en el territorio nacional.
+3) A los efectos de este impuesto, el autoconsumo se entenderá conforme a lo establecido en el numeral 3) del artículo 1 de este Reglamento.
+4) Los servicios de transporte que se citan a continuación, se entenderán prestados en el territorio nacional y serán gravados tal y como este se define en el artículo 1 Apartado B) Inciso iv), subincisos a) y b) de la Ley:
+a. Los de transporte terrestre de pasajeros y bienes: por la parte del trayecto que discurra por el territorio nacional.
+b. Los de transporte marítimo y aéreo de pasajeros o bienes, cuando el mismo sea originado en el territorio de la República.
+c. La venta de bienes o prestación de servicios que se efectúen en los vehículos,embarcaciones o aeronaves, seguirán el mismo tratamiento tributario del transporte en cuestión, siempre y cuando estén vinculados con el servicio de transporte.
+5) De igual manera, se entenderán realizados dentro del territorio nacional todos los servicios relacionados con bienes inmuebles situados en el territorio nacional.
