@@ -1,0 +1,3 @@
+Artículo 7º— Validación de la Autorización.
+Para hacer efectivo el beneficio fiscal otorgado mediante la nota de autorización de EXONET, el proveedor local deberá al momento de emitir el comprobante electrónico incluir la información contenida en dicha nota, en los campos relacionados a la información de la exoneración en dicho comprobante electrónico en cumplimiento de la normativa vigente relacionada a comprobantes electrónicos.
+A efectos de importación, la Declaración Aduanera, debe hacerse a nombre de la persona física o jurídica a nombre de quién se emitió la autorización en el sistema EXONET.

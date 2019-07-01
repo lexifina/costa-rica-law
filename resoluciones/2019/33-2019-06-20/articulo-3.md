@@ -1,0 +1,2 @@
+Artículo 3°- Venta en el mercado local de medicamentos a la tarifa reducida del 2%
+Para la venta local de los medicamentos, gozarán de la tarifa reducida del 2% aquellos que cumplan los requisitos de Ley y estén incluidos en el listado de medicamentos registrados y autorizados por el Ministerio de Salud y que se encuentra disponible en el sitio virtual del Ministerio de Salud, https//:www.registrelo.go.cr

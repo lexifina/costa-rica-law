@@ -1,0 +1,2 @@
+Artículo 6º— Resoluciones Genéricas.
+El Departamento de Gestión de Exenciones, se encuentra facultado para otorgar las tarifas reducidas aquí contempladas a través de resoluciones genéricas que contendrán el detalle de la totalidad de bienes que requerirá el beneficio fiscal, las cuales tendrán una validez de 6 meses, para ser utilizada con todos sus proveedores durante ese lapso. La renovación de la misma podrá solicitarse un mes antes de su vencimiento.

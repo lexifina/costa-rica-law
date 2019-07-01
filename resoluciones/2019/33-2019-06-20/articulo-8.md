@@ -1,0 +1,4 @@
+Artículo 8°- Sobre los bienes con tarifa reducida adquiridos por productores de medicamentos.
+Los bienes que sean adquiridos por los productores de medicamentos a tarifa reducida del 2%, deberán ser utilizados únicamente en la producción y elaboración de medicamentos.
+Cualquier uso o destino indebido de los bienes con tarifa reducida, debidamente comprobado, será motivo suficiente para iniciar un procedimiento administrativo para el cobro de los impuestos dejados de pagar.
+De igual forma, de conformidad con lo establecido en el párrafo 4 del artículo 62 del Código de Normas y Procedimientos Tributarios, el incumplimiento, determinado dentro de un debido proceso seguido al efecto, de cualquier obligación tributaria administrada por el Ministerio de Hacienda o de cualquier obligación con la Caja Costarricense de Seguro Social será causa de pérdida de cualquier beneficio fiscal que haya sido otorgado.

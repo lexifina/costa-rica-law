@@ -1,0 +1,2 @@
+Artículo 4°- Materias Primas, insumos, maquinaria, equipo y reactivos necesarios para la producción de medicamentos para el consumo humano.
+La importación y compra local de las materias primas insumos, maquinaria, equipo y reactivos necesarios para la producción de medicamentos para consumo humano, gozarán de la tarifa reducida del 2% del IVA, para lo cual el productor de medicamentos o el importador deberá solicitar la aplicación de la tarifa reducida a través del sistema EXONET; siguiendo el procedimiento aquí establecido.
