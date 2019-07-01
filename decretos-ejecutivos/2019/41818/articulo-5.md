@@ -1,0 +1,2 @@
+ARTÍCULO 5.- DEROGATORIAS. Se deroga la siguiente normativa:
+a) Los artículos 18 denominado “Impuesto sobre la renta disponible de las rentas de capital”, 19 denominado “Impuesto sobre la renta disponible de las sociedades de personas y otros contribuyentes” y 26 denominado “Venta de terrenos en lotes urbanizados”, todos del Reglamento de la Ley del Impuesto sobre la Renta, Decreto Ejecutivo N° 18445-H del 9 de setiembre de 1988 y sus reformas. b) El Decreto Ejecutivo N° 37898-H del 5 junio de 2013, denominado “Disposiciones sobre Precios de Transferencia”.

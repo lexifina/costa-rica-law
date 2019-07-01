@@ -1,0 +1,1 @@
+TRANSITORIO IX.- Para efectos de lo establecido en el artículo 21 de este reglamento, numeral 6, inciso iii), subinciso i), párrafo segundo, para el año 2019 la acumulación será del 01 de julio hasta el 31 de diciembre.
