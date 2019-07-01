@@ -1,0 +1,1 @@
+Artículo 5º—Declaración y Pago. Los contribuyentes que se inscriban voluntariamente y por un término no inferior a dos años, deberán cumplir con las obligaciones de presentación y pago con las mismas condiciones del régimen general del Impuesto sobre el Valor Agregado.

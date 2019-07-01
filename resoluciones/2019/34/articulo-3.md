@@ -1,0 +1,1 @@
+Artículo 3º—Comprobantes electrónicos. El contribuyente bajo esta modalidad deberá cumplir con lo dispuesto en el Reglamento sobre Comprobantes Electrónicos, así como con la normativa vigente relacionada.
