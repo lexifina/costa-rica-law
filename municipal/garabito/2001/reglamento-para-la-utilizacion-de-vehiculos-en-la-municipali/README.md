@@ -15,3 +15,4 @@ Reglamento para la Utilización de Vehículos en la Municipalidad de Garabito
 | --- | --- | --- |
 | 1 | 2001-02-28 | la propia norma |
 | 2 | 2014-12-15 | Reglamento municipal 0 (2014-12-15) |
+| 3 | 2019-07-01 | Reglamento municipal 0 (2019-07-01) |
