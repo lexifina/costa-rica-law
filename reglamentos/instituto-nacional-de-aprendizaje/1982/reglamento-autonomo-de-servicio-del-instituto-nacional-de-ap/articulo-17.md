@@ -1,1 +1,0 @@
-Artículo 17.-Quiénes deben marcar.—Deberán marcar su tarjeta de asistencia todos los servidores, con excepción de aquellos excluidos del límite de la jornada ordinaria de trabajo y de aquellos dispensados por disposición escrita de la Gerencia.

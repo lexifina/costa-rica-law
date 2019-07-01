@@ -1,3 +1,0 @@
-Artículo 62- Calificación de las faltas y sanciones aplicables: el incumplimiento de las obligaciones o prohibiciones señaladas en este Capítulo, serán consideradas como falta a sus obligaciones laborales.
-Su gravedad se determinará tomando en cuenta la calificación particular de esas conductas que contenga la Ley General de Control Interno, la Ley contra la Corrupción y el Enriquecimiento lícito en la Función Pública, la Ley de Contratación Administrativa y la Ley de Presupuestos públicos según corresponda y en su defecto, tomando en consideración los criterios señalados en el artículo 47 de este Reglamento.
-(Así reformado en sesión N° 12 del 25 de marzo del 2019)

@@ -1,1 +1,0 @@
-Artículo 16.- Modificación de horario.—El Instituto podrá modificar los horarios establecidos en este reglamento, siempre que circunstancias especiales así lo exijan y no cause perjuicio a los servidores.

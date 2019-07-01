@@ -1,1 +1,0 @@
-Artículo 22,- Decreto de salarios mínimos.—Los reajustes de salarios obligados de salarios mínimos regirán a partir de su fecha de vigencia siempre y cuando los recursos económicos del INA lo permitan y la Contraloría General de la modificación presupuestaria correspondiente.

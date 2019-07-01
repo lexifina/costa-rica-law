@@ -1,4 +1,0 @@
-Artículo 51.—Prescripción. La potestad para disciplinar las faltas en que incurran los funcionarios, prescribirá en el plazo de un mes contado a partir de que sucedieron los hechos, o en su defecto, desde que el funcionario competente para imponer la sanción tuvo conocimiento de ellos.
-En los casos en que la sanción deba estar precedida de un procedimiento administrativo, dicho plazo se contará a partir de la finalización de ese trámite.
-Se exceptúan de las disposiciones anteriores aquellas conductas que constituyan infracciones al ordenamiento de control o fiscalización superior, o a las normas para prevenir la corrupción y el enriquecimiento ilícito en la función pública, respecto a las cuales, la potestad disciplinaria prescribirá de acuerdo con las reglas establecidas en el artículo 71 de la Ley Orgánica de la Contraloría General de la República.
-(Así reformado mediante sesión N° 4466 del 6 de diciembre de 2010)

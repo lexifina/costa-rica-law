@@ -1,3 +1,0 @@
-Artículo 6. -Expediente personal.—El Departamento de Relaciones con el Personal llevará un expediente personal de cada uno de los servidores.
-En el llevara toda la documentación foliada y sellada concerniente a la relación de empleo del servidor.
-El expediente personal se considerará confidencial; salvo con ahí servidor o en su presencia, sólo podrá ser examinado por funcional» por el Departamento de Relaciones con el Personal. También llevara c para cada empleado en el cual se anotarán los datos más importantes de todas las acciones de personal. El prontuario se iniciará con la acción de nombramiento de ingreso al trabajo.

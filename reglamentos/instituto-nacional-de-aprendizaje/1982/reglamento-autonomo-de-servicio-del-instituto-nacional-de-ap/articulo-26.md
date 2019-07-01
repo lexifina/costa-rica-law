@@ -1,1 +1,0 @@
-Artículo 26.—Vacaciones proporcionales.—Para tener derecho a vacaciones, es necesario que el servidor haya prestado sus servicios durante 50 semanas continuas si por cualquier causa no completare este término, tendrá derecho a vacaciones en forma proporcional.

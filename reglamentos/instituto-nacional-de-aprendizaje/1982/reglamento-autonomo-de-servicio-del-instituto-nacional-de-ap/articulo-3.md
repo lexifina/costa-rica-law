@@ -1,1 +1,0 @@
-Artículo 3°.--Naturaleza de la relación de empleo.—La relación de empleo entre el INA y sus servidores será de naturaleza pública, aun respecto del personal no cubierto por el Régimen del Servicio Civil.
