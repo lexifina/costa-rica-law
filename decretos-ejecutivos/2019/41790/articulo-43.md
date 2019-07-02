@@ -1,0 +1,1 @@
+Artículo 43.- En el caso de pacientes en espera de trasplante cardiaco, que adicionalmente, requieran trasplante de hígado, pulmón o riñón, este paciente tiene prioridad en la lista nacional de receptores de estos órganos, según las pruebas de compatibilidad.

@@ -1,0 +1,1 @@
+Artículo 40.- En el momento en que la Secretaría Ejecutiva Técnica de Donación y Trasplante de Órganos y Tejidos (SETDT) alerte de un posible donante, el establecimiento de salud en donde esté el receptor designado, tendrá un tiempo máximo de 2 horas para dar la respuesta de aceptación o no del órgano.

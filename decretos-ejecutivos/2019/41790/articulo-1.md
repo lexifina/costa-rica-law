@@ -1,0 +1,20 @@
+N° 41790-S
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE SALUD
+En uso de las facultades que les confieren los artículos 140 incisos 3) y 18) y 146 de la Constitución Política; 25 inciso 1), 27 inciso 1) y 28 inciso 2) acápite b) de la Ley N° 6227 del 2 de mayo de 1978 “Ley General de la Administración Pública”; 1, 2, 3, 4 y 7 de la Ley N° 5395 del 30 de octubre de 1973 “Ley General de Salud”; 1 y 2 incisos b) y c) de la Ley Nº 5412 del 8 de noviembre de 1973 “Ley Orgánica del Ministerio de Salud” y la Ley N° 9222 del 13 de marzo del 2014 “Ley de Donación y Trasplante de Órganos y Tejidos Humanos”.
+CONSIDERANDO:
+1- Que la salud de la población es tanto un derecho humano universal, como un bien de interés público tutelado por el Estado.
+2- Que el Ministerio de Salud es competente para adoptar todos aquellos actos necesarios para la protección de la salud. La Ley General de Salud establece además que toda persona, natural o jurídica, queda sujeta a los mandatos de esa ley, de sus reglamentos y de las órdenes generales y particulares, ordinarias y de emergencia, que las autoridades de salud dicten en el ejercicio de sus competencias orgánicas.
+3- Que la Ley N° 9222 del 13 de marzo del 2014 “Ley de Donación y Trasplante de Órganos y Tejidos Humanos”, regula las actividades relacionadas con la obtención y utilización clínica de órganos y tejidos humanos, incluidos la donación, la extracción, la preparación, el transporte, la distribución, el trasplante y su seguimiento para fines terapéuticos.
+4- Que los criterios de distribución de órganos y tejidos cadavéricos, deben sustentarse en normas técnicas que contemplen la equidad en el acceso al trasplante, en la asignación de los órganos y tejidos y en la transparencia de los procedimientos.
+5- Que dichos criterios deben ser uniformes y específicos en todo el territorio nacional, en la medida que regulan aspectos esenciales y comunes para la protección de la salud y la seguridad de las personas, debiendo contemplar aspectos bioéticos, médicos y de territorialidad.
+6- Que, asimismo, el Decreto Ejecutivo N° 39895-S del 6 de setiembre del 2016 “Reglamento a la Ley No. 9222 de 31 de marzo de 2014 “Ley de Donación y Trasplante de Órganos y Tejidos Humanos”, en su artículo 17, dispone que la Secretaría Ejecutiva Técnica de Donación y Trasplante de Órganos y Tejidos, será el órgano encargado de dictar las normas para la distribución de órganos y tejidos.
+7- Que de conformidad con el artículo 12 bis del Decreto Ejecutivo No. 37045 de 22 de febrero de 2012 "Reglamento a la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos" y su reforma, se considera que por la naturaleza del presente reglamento no es necesario completar la Sección I denominada Control Previo de Mejora Regulatoria, que conforma el formulario de Evaluación Costo Beneficio, toda vez que el mismo no establece trámites ni requerimientos para el administrado Esta norma contiene criterios clínicos que tienen los pacientes que padecen una enfermedad y que los hace como tal, candidatos a un trasplante.
+Por tanto,
+DECRETAN:
+CRITERIOS DE DISTRIBUCIÓN Y ASIGNACIÓN CARDIACA
+PROVENIENTE DE DONANTE CADAVÉRICO
+CAPÍTULO 1
+INSCRIPCIÓN GENERAL A LA LISTA NACIONAL DE RECEPTORES PROVENIENTE DE
+DONANTE CADAVÉRICO
+Artículo 1.- Objeto. Esta normativa tendrá como objetivo regular la distribución de órganos humanos los cuales son provenientes de un donante cadavérico, que serán distribuidos a los receptores más adecuados inscriptos en la lista de espera, para que sean trasplantados. Por lo tanto, el ordenamiento numérico de las listas se establece en cada operativo de donación, una vez conocidas las características de compatibilidad entre el donante y receptor. La lista nacional de receptores en espera de un trasplante de órgano, es determinada por criterios de distribución.
