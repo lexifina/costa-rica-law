@@ -9,5 +9,5 @@ Por tanto:
 La Administración Municipal, y Organizaciones Sindicales firmantes de la actual Convención Colectiva de Trabajo, como legítimos representantes de las personas trabajadoras procedemos a emitir y aprobar el presente “Reglamento de Funcionamiento de la Junta de Relaciones Laborales de la Municipalidad del cantón central de Alajuela:
 CAPÍTULO I
 Naturaleza y objeto
-Artículo 1º—La Junta de Relaciones Laborales de la Municipalidad de Alajuela, tiene carácter de órgano permanente, y representativo cuyo objetivo general es el mantener las mejores relaciones laborales, así como promover la cooperación entre la administración y todas las personas trabajadoras; mediando, las organizaciones sindicales que a éstas representan. En la Municipalidad de Alajuela se cuenta con tres organizaciones sindicales: Sindicato Asociación de Empleados Públicos (ANEP) y el Sindicato Asociación de Trabajadores y Empleados de la Municipalidad de Alajuela (UTEMA) y el Sindicato de Trabajadores de la Municipalidad de Alajuela en Solidaridad (SINTRAMAS).
-(Así reformado en sesión N° 41 del 9 de octubre de 2018)
+Artículo 1º—La Municipalidad reconoce como el representante de los intereses profesionales, colectivos e individuales, de todos sus trabajadores a la Asociación Nacional de Empleados de Alajuela (ANEP), la Unión de Trabajadores Municipales de Alajuela (UTEMA) y Sindicato de Trabajadores Municipalidad de Alajuela en Solidaridad (SINTRAMAS).
+(Así reformado en sesión N° 27 del 2 de julio de 2019)

@@ -15,3 +15,4 @@ Reglamento de funcionamiento de la Junta de Relaciones Laborales de la Municipal
 | --- | --- | --- |
 | 1 | 2010-03-30 | la propia norma |
 | 2 | 2018-10-09 | Reglamento municipal 41 (2018-10-09) |
+| 3 | 2019-07-02 | Reglamento municipal 27 (2019-07-02) |
