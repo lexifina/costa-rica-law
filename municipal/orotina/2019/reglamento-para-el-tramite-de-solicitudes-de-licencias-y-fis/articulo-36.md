@@ -1,0 +1,1 @@
+Artículo 36.- Seguridad de las zonas. Las zonas de relleno solo podrán ser utilizadas para realizar construcciones si los estudios de suelo y estabilidad geotécnica garanticen su seguridad ante posibles deslizamientos, caso contrario, la Municipalidad prohibirá la ejecución de la obra pretendida.

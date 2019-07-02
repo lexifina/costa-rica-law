@@ -1,0 +1,1 @@
+Artículo 53.- Retiro. La Municipalidad podrá ordenar el retiro de publicidad a costa del propietario cuando se hagan sin autorización municipal o podrá cancelar la licencia otorgada cuando el anuncio atente contra la seguridad de las personas.

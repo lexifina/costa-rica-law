@@ -1,0 +1,1 @@
+Artículo 22.- Uso vía pública. Si en la ejecución de una obra debe ocuparse una vía o acceso público, el subsuelo o espacio aéreo se deberá obtener un permiso de ocupación de vía de la Municipalidad o del Ministerio de Obras Públicas y Transporte, según corresponda.

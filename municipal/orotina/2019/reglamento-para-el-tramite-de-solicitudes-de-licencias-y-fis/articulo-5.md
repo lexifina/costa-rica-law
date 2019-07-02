@@ -1,0 +1,1 @@
+Artículo 5º-Requisitos generales de solicitud. Para la construcción de obras mayores o menores, deberá cumplirse con los requisitos contemplados en los códigos del 1 al 8 del Anexo Único de este Reglamento.

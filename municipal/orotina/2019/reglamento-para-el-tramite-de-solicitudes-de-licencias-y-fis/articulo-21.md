@@ -1,0 +1,1 @@
+Artículo 21.- Antejardín. En propiedades con antejardín se podrá construir en la línea de propiedad un muro de concreto o material similar de 1.00 metro de altura como máximo, a partir de esa distancia se podrá colocar un enrejado de cualquier material.

@@ -1,0 +1,1 @@
+Artículo 51.- Alineamiento. La publicidad que se coloque en predios no edificados contiguo a vías públicas cantonales, serán puestos según el alineamiento indicado por la Unidad de Control Territorial.

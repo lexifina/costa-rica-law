@@ -1,0 +1,1 @@
+Artículo 15.- Vigencia de la licencia. Las licencias de construcción tienen una vigencia de un año posterior a su otorgamiento. Una vez transcurrido ese plazo, el interesado deberá gestionar nuevamente la obtención de la licencia.

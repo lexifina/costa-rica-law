@@ -1,0 +1,1 @@
+Artículo 11.- Aprobación de la licencia. La Unidad de Control Territorial aprobará la licencia cuando determine que la solicitud cumple con todos los requisitos y condiciones técnicas valoradas. Posterior a ello, el solicitante deberá cancelar el monto correspondiente al impuesto de construcción.

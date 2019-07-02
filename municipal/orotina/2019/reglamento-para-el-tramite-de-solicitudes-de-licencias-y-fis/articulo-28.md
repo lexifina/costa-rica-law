@@ -1,0 +1,1 @@
+Artículo 28.- Rotulación de calles y avenidas. La Municipalidad podrá colocar placas de numeración de calles y avenidas en las paredes externas de las edificaciones. Para ello, la Municipalidad solicitará al propietario un espacio en la fachada.

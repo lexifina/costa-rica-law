@@ -1,0 +1,1 @@
+Artículo 32.- Capa vegetal. La capa vegetal que se remueva durante los movimientos de tierra podrá utilizarse después del tratamiento final de los suelos como capa superficial, pero no podrá utilizarse para la conformación de rellenos donde se pretenda urbanizar en el futuro o ubicar zonas verdes.

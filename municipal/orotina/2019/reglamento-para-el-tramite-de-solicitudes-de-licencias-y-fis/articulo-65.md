@@ -1,0 +1,1 @@
+Artículo 65.- Procedimientos para aplicar sanciones administrativas. Salvo aquellos casos de clausura en que procede la aplicación inmediata de la medida, la Municipalidad de Orotina aplicará las sanciones que describe este capítulo con respeto del debido proceso, conforme señala este reglamento y, supletoriamente, la Ley General de la Administración Pública.

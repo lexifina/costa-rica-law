@@ -1,0 +1,1 @@
+Artículo 29.- Espacio accesible. Toda obra constructiva que sea destinada a la atención del público debe cumplir las disposiciones de acceso al espacio físico contenido en la Ley 7600 de igualdad de oportunidades para las personas con discapacidad y su Reglamento.

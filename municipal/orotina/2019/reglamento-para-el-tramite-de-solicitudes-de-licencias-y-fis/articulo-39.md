@@ -1,0 +1,4 @@
+CAPÍTULO V
+Urbanizaciones y Fraccionamientos
+Artículo 39.- Proyecto. Toda iniciativa de urbanización o de fraccionamientos con fines urbanísticos, deberá presentarse como anteproyecto o proyecto ante la Unidad de Control Territorial contemplando el diseño de sitio, la propuesta de acceso y su acondicionamiento, la propuesta de cesión de áreas delimitadas (que deberán llevar cobertura vegetal apropiada y dotación de equipos y servicios), y la descripción de remoción de tierras (en su caso).
+Los planos constructivos serán visados por el Concejo Municipal previo informe técnico de la Unidad de Control Territorial que detalle el cumplimiento de todos los requisitos contemplado en este reglamento, y que recomiende su otorgamiento. Obtenido el visado del Concejo Municipal, la Unidad de Control Territorial otorgará la licencia de construcción.

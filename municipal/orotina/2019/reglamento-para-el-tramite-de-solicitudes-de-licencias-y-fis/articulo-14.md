@@ -1,0 +1,1 @@
+Artículo 14.- Obtención de la licencia. Una vez cancelado el impuesto de construcción y acreditada la póliza de riesgos del Instituto Nacional de Seguros, la Unidad de Control Territorial otorgará la licencia. Esta dependencia llevará un registro de licencias de construcción otorgadas.
