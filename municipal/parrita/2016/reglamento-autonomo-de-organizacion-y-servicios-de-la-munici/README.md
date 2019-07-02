@@ -14,3 +14,4 @@ Reglamento autónomo de organización y servicios de la Municipalidad de Parrita
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-04-06 | la propia norma |
+| 2 | 2019-07-02 | Reglamento municipal 0 (2019-07-02) |

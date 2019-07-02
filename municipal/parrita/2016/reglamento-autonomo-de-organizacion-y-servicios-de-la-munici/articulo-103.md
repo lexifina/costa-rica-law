@@ -7,6 +7,7 @@ c. Restituir a la municipalidad los materiales no usados y conservar en buen est
 d. Auxiliar en su trabajo a cualquiera de los compañeros (as), cuando la jefatura o quien la represente se lo solicite.
 e. Respetar durante la jornada laboral, el Código de Vestimenta establecido mediante Directriz Interna vigente emitida por la Alcaldía Municipal.
 (Corregido el inciso anterior mediante Fe de Erratas y publicada en La Gaceta N° 100 del 6 de junio de 2018, página N° 64)
+(Nota de Sinalevi: Mediante publicación en La Gaceta N° 123 del 2 de julio de 2019, la Municipalidad de Parrita indica que se tenga por anulado lo indicado respecto a la jornada laboral, mediante la Fe de Erratas publicada en La Gaceta N° 100 del día miércoles seis de junio del año dos mil dieciocho. No obstante no hace mención a que los textos corregidos mediante Fe de Erratas publicada en La Gaceta N° 100 del día miércoles seis de junio del año dos mil dieciocho, vuelvan a su estado anterior a dicha corrección.)
 f. Observar buenas costumbres y disciplina durante el trabajo.
 g. Guardar a los jefes, compañeros (as) de trabajo y miembros del Concejo Municipal y del Comité Cantonal de Deportes y Recreación y Concejo de Distrito toda la consideración y respeto debidos.
 h. Prestar a los contribuyentes de forma diligente toda la atención debida.
