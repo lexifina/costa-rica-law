@@ -1,2 +1,5 @@
-Artículo 4º—Las inversiones se efectuarán considerando las políticas de inversión aprobadas por la Junta Directiva, según las propuestas sometidas a su conocimiento por la Gerencia Financiera, los informes trimestrales, las recomendaciones del Comité de Inversiones del Seguro de Salud y la Dirección de Inversiones de la Gerencia de Pensiones, así como los diagnósticos elaborados por la Dirección Actuarial y Económica en lo relativo a las condiciones del mercado financiero y de la economía nacional.
-(Así reformado mediante sesión N° 8497 del 10 de marzo del 2011)
+Artículo 4º- Según la naturaleza del Seguro de Salud, los plazos de inversión se establecen en:
+a. Inversiones a la Vista.
+b. Corto Plazo: Hasta un plazo de un año.
+c. Mediano plazo: Más de un año y hasta 5 años.
+d. Largo plazo: Más de 5 años.

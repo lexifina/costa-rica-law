@@ -1,17 +1,11 @@
-CAPÍTULO V
-De los órganos que administran la cartera
-de inversiones del Seguro de Salud
-Artículo 13.—Se conforma un Comité de Inversiones del Seguro de Salud, con el propósito de velar por el cumplimiento de las políticas, estrategias y objetivos de inversión. Dicha Comisión estará integrada de la siguiente manera:
-a) El Gerente Financiero, quien coordinará y dirigirá las sesiones del Comité.
-b) El Jefe del Área de Tesorería General, quien fungirá como secretario.
-c) El Director de Presupuesto.
-d) Un miembro de la Gerencia de Pensiones que proponga el Gerente Pensiones.
-En caso de ser necesario, previa convocatoria, podrán asistir a las sesiones del Comité de Inversiones, con voz pero sin voto, el Director de Inversiones, el Jefe del Área Administración del Riesgo y a quien estime pertinente y necesario, para que rinda criterio técnico, experto y otro.
-Los miembros que conforman el Comité de Inversiones deberán cumplir, como mínimo, los siguientes requisitos:
-a) Experiencia en áreas como: economía, finanzas, administración y conocimiento en mercado bursátil.
-b) No haber sido condenados, mediante sentencia firme, por la comisión dolosa de algún delito durante los diez últimos años.
-c) No haber sido condenados, mediante sentencia firme, por la comisión culposa de delitos contra la buena fe de los negocios o la confianza pública durante los cinco últimos años.
-d) No haber sido suspendidos, separados o inhabilitados para ocupar cargos administrativos o de dirección.
-e) Los miembros no podrán estar ligados entre sí por parentesco o consanguinidad o afinidad, hasta el tercer grado inclusive, con el Gerente Financiero o los miembros de la Junta Directiva.
-(Así adicionado mediante sesión N° 8497 del 10 de marzo del 2011)
-(Así reformado en sesión N° 8617 del 20 de diciembre de 2012)
+Artículo 13°- De las funciones y condiciones de funcionamiento del Comité de Inversiones del Seguro de Salud. Funciones del Comité de Inversiones del Seguro de Salud
+a) Aprobar la propuesta de la Política y Estrategia de Inversiones, y recomendar a la Gerencia Financiera dicha Política, con el fin de que sea sometida a discusión y aprobación por parte de la Junta Directiva.
+b) Revisar la Política, al menos, una vez al año y recomendar a la Gerencia Financiera los ajustes o cambios que se consideren pertinentes.
+c) Autorizar las inversiones con sujeción a la Política y Estrategia de Inversiones tomando en cuenta las consideraciones y recomendaciones de la Dirección de Inversiones, del Área Administración de Riesgos y los acuerdos del Comité de Riesgo.
+d) Velar por el cumplimiento de la Política y Estrategia de Inversiones aprobada por la Junta Directiva, por la gestión propia de las inversiones, así como por lo relativo a la exposición de las inversiones a los diferentes riesgos financieros, teniendo a la vista los informes técnicos presentados por la Dirección de Inversiones, Área Administración del Riesgo y Comité de Riesgo.
+e) Conocer y pronunciarse sobre los planes de reducción de riesgos que al efecto presente el Comité de Riesgos.
+f) El Comité de Inversiones del Seguro de Salud se reunirá cuando sea convocado por el coordinador.
+Condiciones de funcionamiento del Comité de Inversiones del Seguro de Salud:
+a) El quórum requerido es de tres miembros, uno de los cuales deberá tener el rango de Gerente y los acuerdos se emitirán por mayoría simple de los miembros presentes. En caso de empate, el coordinador tendrá voto de calidad.
+b) Los acuerdos adquieren su firmeza una vez que se proceda a la lectura y aprobación del acta respectiva, con excepción de los acuerdos de colocación de los recursos así declarados por el Comité de Inversiones del Seguro de Salud que quedarán firmes en el respectivo acuerdo. Para su validez, las actas deberán ser firmadas por todos los miembros del Comité que asistieron a la respectiva sesión. En caso de que un miembro no esté de acuerdo con alguna propuesta deberá razonar su voto, lo cual deberá consignarse en el acta respectiva”
+c) Este procedimiento se aplica igualmente en el caso de sesiones extraordinarias.

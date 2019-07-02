@@ -1,6 +1,4 @@
-Artículo 5º—Según la naturaleza del Seguro de Salud, los plazos de inversión se establecen en:
-a) A la vista: inversiones mayores de un día y hasta un plazo de noventa días.
-b) Corto plazo de más de 91 días y hasta un plazo de un año.
-c) Mediano plazo: más de un año y hasta 5 años.
-d) Largo plazo: más de 5 años.
-(Reformado mediante sesión N° 7814 de 4 de diciembre de 2003, publicada en La Gaceta N° 246 de 22 de diciembre de 2003).
+Artículo 5º- Las políticas de inversión establecidas por la Junta Directiva se ejecutará para cada ejercicio económico, según las siguientes disposiciones:
+a) Inversiones a la vista: Se ejecutarán por medio del Área de Tesorería General de la Dirección Financiero Contable, de acuerdo con lo que dicta la “Política y Estrategias de Inversiones del Seguro de Salud”, aprobada por la Junta Directiva.
+Los recursos disponibles en cuenta corriente se colocarán en inversiones a la vista, o cualquier otro instrumento que ofrezcan los mercados financieros para la gestión de liquidez, los cuales no podrán exceder un período de recuperación de 90 días.
+b) Inversiones de corto, mediano y largo plazo: Las ejecutará la Dirección de Inversiones, en apego a los acuerdos del Comité de Inversiones del Seguro de Salud, de conformidad con la Política y Estrategia de Inversión del Seguro de Salud, aprobada por la Junta Directiva.

@@ -1,5 +1,5 @@
-Artículo 14.—De las funciones y condiciones de funcionamiento del Comité de Inversiones del Seguro de Salud.
-El Comité de Inversiones se regirá en lo tocante a las funciones y a las condiciones de funcionamiento, en lo aplicable, por lo dispuesto en el artículo 5º del Reglamento de Inversiones del Régimen de Invalidez, Vejez y Muerte.
-El Comité de Inversiones del Seguro de Salud se reunirá cuando sea convocado por el coordinador.
-En ausencia del Gerente Financiero, el Comité será coordinado por el Gerente Administrativo.
-(Así adicionado mediante sesión N° 8497 del 10 de marzo del 2011)
+Artículo 14°- De las funciones del secretario del Comité de Inversiones. Corresponderá al secretario del Comité de Inversiones:
+a. Apoyar técnicamente al Comité de Inversiones, quién estará a cargo de la elaboración de la propuesta de agenda.
+b. Incluir en la agenda respectiva, los vencimientos que deba conocer el Comité, así como cualquier observación u otro asunto que deba ser sometido para su aprobación. Esta agenda se hará siempre por escrito.
+c. Levantar un acta de cada sesión, la cual deberá estar debidamente foliada, y contener como mínimo la siguiente información: circunstancias del lugar y tiempo en que se celebró, personas asistentes, aspectos relevantes de la deliberación y la información en la que se respaldan las decisiones de inversión, recomendaciones adoptadas, voto(s) contrario(s) a las recomendaciones y los motivos que lo(s) justifican, recomendaciones de minoría, firma de todos los presentes.
+d. Comunicar los acuerdos tomados por el Comité de Inversiones, así como hacerlos constar en un libro de actas, el cual deberá contener como mínimo: las políticas y decisiones de inversión, fondo o fondos a los que corresponde la decisión tomada.
