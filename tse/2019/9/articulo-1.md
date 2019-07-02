@@ -1,0 +1,29 @@
+N° 9-2019
+EL TRIBUNAL SUPREMO DE ELECCIONES
+De conformidad con las funciones que se le atribuyen en el inciso 10) del artículo 102 de la Constitución Política, el inciso ñ) del artículo 12 del Código Electoral y la Ley de la Red Nacional de Cuido y Desarrollo Infantil N° 9220 del 24 de marzo de 2014, DECRETA:
+La siguiente:
+REFORMA A LOS ARTÍCULOS 3, 6, 8, 12, 14 Y 15
+Y ADICIÓN DE UN ARTÍCULO 14 BIS AL REGLAMENTO
+PARA REGULAR EL ACCESO AL BENEFICIO DE SERVICIO
+DE CUIDO Y DESARROLLO INTEGRAL INFANTIL A LOS
+HIJOS E HIJAS DE PERSONAS FUNCIONARIAS DEL
+TRIBUNAL SUPREMO DE ELECCIONES
+Artículo 1º—Refórmanse los artículos 3, 6, 8, 12 y 14 del Reglamento para regular el acceso al beneficio de servicio de cuido y desarrollo integral infantil a los hijos e hijas de personas funcionarias del Tribunal Supremo de Elecciones, Decreto N° 07- 2014, publicado en La Gaceta N° 06 del 09 de enero de 2015, para que se lean de la siguiente manera:
+“Artículo 3º—Del compromiso del TSE y de la persona funcionaria. El Tribunal Supremo de Elecciones se comprometerá a pagar únicamente lo correspondiente a la matrícula y mensualidad de los hijos o hijas de las personas funcionarias beneficiadas, siempre que se disponga de presupuesto; obligándose el servidor o servidora a asumir la alimentación de la persona menor de edad, los materiales y cualquier otro gasto adicional que se requiera, así como observar la normativa interna y los horarios del centro privado.”
+“Artículo 6º—Del plazo del beneficio. El beneficio será por un período anual de enero a diciembre, prorrogable por períodos iguales, previa valoración de las unidades administrativas intervinientes en el proceso de selección que se hará anualmente, para determinar si se mantiene el beneficio, para lo cual la persona funcionaria deberá cumplir con los requisitos establecidos, los cuales serán informados oportunamente por los medios de comunicación interna que dispone la institución.”
+“Artículo 8º—Del análisis de la información. La Unidad de Género, con la colaboración del Departamento de Recursos Humanos, a través del Área de Prevención y Salud Laboral (PRESAL), se encargará de revisar la información contenida en la base de datos y de realizar un estudio socioeconómico, a efectos de seleccionar a las personas funcionarias beneficiarias conforme con los parámetros de selección que se indicarán en el artículo siguiente y según la cantidad de cupos existentes para ese año, de conformidad con el presupuesto previsto para tal efecto.
+En caso de ser necesario, la Unidad de Género realizará una entrevista a la persona solicitante, para recabar la información requerida; asimismo, decidirá e informará a las personas funcionarias los resultados finales y, en conjunto con PRESAL, realizará los trámites necesarios para el ingreso de los niños/as seleccionados al centro respectivo.”
+“Artículo 12.—De las condiciones y/o requerimientos que debe tener el centro infantil privado. El establecimiento privado que preste el servicio de cuido y desarrollo infantil deberá contar, al menos, con las siguientes condiciones:
+1. Brindar un servicio de cuido y desarrollo infantil de calidad, que garantice la satisfacción de las necesidades básicas de los niños y niñas y que promueva su desarrollo integral.
+2. Contar con el personal idóneo y capacitado para el desarrollo del programa de atención integral de los niños y niñas.
+3. Que sus instalaciones sean seguras, aptas y equipadas para la prestación del servicio.
+4. Garantizar que los cupos contratados permanezcan activos durante el período y en el horario pactados. Para ello el Centro Educativo deberá contar con un registro diario de asistencia y justificación de ausencias.
+5. Informar a la Unidad de Género de las irregularidades en la asistencia de las niñas y los niños beneficiados con el servicio, así como el incumplimiento por parte de ellos y de las personas funcionarias beneficiarias (los padres de familia o sus responsables) de la normativa interna del centro privado.
+6. Al inicio del año, comunicar a las personas funcionarias beneficiarias (padres y madres de familia o responsables de las personas menores de edad), las fechas exactas en las cuales el centro no estará funcionando, como es el caso de vacaciones calendarizadas y días feriados, así como los montos que se deben pagar por las actividades y gastos no cubiertos en el contrato con el Tribunal.
+7. Cumplir puntualmente con los requerimientos necesarios (presentación de cronograma mensual de actividades, informe mensual y factura) para el trámite administrativo correspondiente a cada mes.
+8. Cualquiera otra que se haya pactado.”
+“Artículo 14.—De la revocación. Son causas de revocación del beneficio de servicio de cuido y desarrollo infantil proporcionado por el Tribunal las siguientes:
+1. Cuando el funcionario o funcionaria beneficiado/a haya suministrado información falsa o inexacta para obtener el beneficio.
+2. Cuando la persona funcionaria beneficiada no se involucre activamente en el proceso de educación integral de su hija o hijo, lo cual implica: asistir periódicamente a las reuniones que convoca el Centro Educativo y seguir las recomendaciones del Centro Educativo referentes al bienestar de la persona menor de edad.
+3. Por incumplimiento de la normativa interna del centro privado contratado que presta el servicio, para lo cual el establecimiento deberá informarlo a la Unidad de Género.
+4. No hacer uso del servicio de manera regular, en el sentido de que, las ausencias injustificadas de la persona menor de edad al centro educativo alcancen un porcentaje igual o mayor al 5% mensual del total de días lectivos. Para el cálculo de este porcentaje, se tomará como referencia el número total de días lectivos, ausencias y llegadas tardías injustificadas por mes y se observará lo dispuesto en el artículo siguiente.”

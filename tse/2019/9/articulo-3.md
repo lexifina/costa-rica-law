@@ -1,0 +1,2 @@
+Artículo 3º—Modifíquese el primer párrafo del artículo 15 del referido reglamento, que en adelante se leerá:
+“Artículo 15.—De la comunicación del egreso o revocación del beneficio. La Unidad de Género será la responsable de decidir y comunicar al funcionario/a beneficiado/a, el egreso o la revocación del beneficio. En cualquiera de los casos, el acto será debidamente fundamentado, con la indicación de los motivos y la causal acreditada que determinó esa decisión”.
