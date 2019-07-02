@@ -1,0 +1,1 @@
+Artículo 12.—Medios: Popular Pensiones contará con medios disponibles para que las personas usuarias puedan presentar sus gestiones ante la Contraloría de Atención a la persona usuaria, producto del servicio recibido de manera personal, escrita o electrónica. Popular Pensiones garantiza la accesibilidad para la presentación de dichas gestiones a toda persona usuaria.

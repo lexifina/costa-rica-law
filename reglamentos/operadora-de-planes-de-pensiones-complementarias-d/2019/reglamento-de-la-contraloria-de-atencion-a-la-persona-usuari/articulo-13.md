@@ -1,0 +1,2 @@
+Artículo 13.—Requisitos: Los requisitos que debe contener la gestión ante la Contraloría de Atención a la persona usuaria se encuentran en los procedimientos internos de Popular Pensiones.
+Adicionalmente las personas usuarias cuentan con canales de información disponibles para contactar a Contraloría de Atención a la persona usuaria, a efectos de conocer requisitos, tipos de formularios, asesoría y otra de clase de ayuda para la presentación de su gestión.
