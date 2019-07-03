@@ -1,0 +1,7 @@
+Artículo 8
+Detención provisional
+1. El Estado Requirente podrá solicitar la detención provisional de la persona reclamada con vistas a la presentación de la solicitud de extradición. La petición de detención provisional se presentará por escrito.
+2. La petición de detención provisional contendrá la información a la que se refiere el Artículo 7, párrafo 1, del presente Tratado y la manifestación de la intención de presentar una solicitud formal de extradición. El Estado Requerido podrá solicitar información complementaria a tenor del Artículo 9.
+3. Una vez que haya recibido la petición de detención provisional, el Estado Requerido adoptará las medidas necesarias para asegurar la custodia de la persona reclamada e informará prontamente al Estado Requirente del resultado de su petición.
+4. La detención provisional y las eventuales medidas coercitivas impuestas cesarán si, dentro de los sesenta días sucesivos a la detención de la persona reclamada, el Estado Requerido no ha recibido la solicitud formal de extradición. Bajo petición motivada del Estado Requirente, dicho plazo podrá ser extendido por quince días.
+5. El cese de la detención provisional, a tenor del párrafo 4 que precede, no impedirá la extradición de la persona reclamada si sucesivamente el Estado Requerido recibe la solicitud formal de extradición de conformidad con las condiciones y los límites del presente Tratado.
