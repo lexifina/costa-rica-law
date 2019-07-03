@@ -14,3 +14,4 @@ Establece el límite de gasto al Fondo Nacional de Financiamiento Forestal, para
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-02-20 | la propia norma |
+| 2 | 2019-07-03 | Resolución 167 (2019-07-03) |

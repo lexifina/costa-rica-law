@@ -40,67 +40,74 @@ c) El monto a pagar para especies nativas contenidas en los Decretos Ejecutivos 
 d) El monto a pagar para las Plantaciones Forestales con Turnos de Rotación Reducidos (PFTRR) para especies de rápido crecimiento para embalaje, será de trecientos setenta y seis mil cien colones 00/100 (¢376.100) colones con 00/100) por hectárea. Los pagos serán distribuidos de la siguiente forma: 50% el primer año, 25% el segundo año y 25% el cuarto año.
 e) Plantaciones Forestales establecidas con recursos propios para pago por resultados. Los montos a pagar serán los establecidos, en los incisos a, b, y c anteriores. Los montos serán distribuidos de la siguiente forma: con la firma del contrato un 50%, doce, veinticuatro, treinta y seis y 48 meses después de dicha firma un 20%, 15%, 10% y 5% respectivamente. Los contratos tendrán la vigencia prevista en el artículo 2 incisos a y b de esta resolución, pero se reconocerán los años de existencias de estas plantaciones; hasta un máximo de 3 años de establecidas.
 f) Las personas físicas o jurídicas que deseen reforestar en áreas mayores al tope establecido en el Reglamento a la Ley Forestal, Decreto N°25721-MINAE y sus Reformas, podrán aplicar en un esquema especial de financiamiento de pago por resultados, pudiendo duplicar el tope de 750 hectáreas, siempre y cuando los recursos disponibles no sean utilizados por los pequeños productores. El pago será por año vencido. Los montos a pagar serán los establecidos, en los incisos a, b, y c anteriores. Los montos serán distribuidos de la siguiente forma: doce meses después de la firma del contrato un 50%, veinticuatro, treinta y seis y cuarenta y ocho meses después de dicha firma un 20%, 15%, 10% y 5% respectivamente.
-g) Se instruye al Fondo Nacional de Financiamiento Forestal para que incorpore en los contratos de Pago por Servicios Ambientales en la actividad de Reforestación y Sistemas Agroforestales en bloque, los valores mínimos aceptables para realizar los pagos.
-El Fondo Nacional de Financiamiento Forestal utilizará los siguientes valores de referencia para tramitar los pagos correspondientes a cada año:
-Cuadro 1. Incremento medio anual volumétrico mínimo esperado por año para plantaciones de especies de rápido crecimiento (Gmelina arborea, Vochysia guatemalensis, Acacia mangium, otras).
-Edad (años) | Volumen total acumulado (m3/hectárea)
-1 | 10,8
-2 | 16,4
-3 | 23,8
-4 | 33,2
-5 | 44,7
-6 | 58,3
-7 | 73,8
-8 | 91,0
-9 | 109,8
-10 | 130,0
-Cuadro 2. Incremento medio anual volumétrico mínimo esperado por año para plantaciones de especies de mediano crecimiento (Tectona grandis, Pinus sp, Cordia alliodora, Vochysia ferruginea, Eucalyptus sp, Cedrela odorata, otras).
-Edad (años) | Volumen total acumulado * (m3/hectárea)
-1 | 2,2
-2 | 3,5
-3 | 5,4
-4 | 7,9
-5 | 11,2
-6 | 15,3
-7 | 20,4
-8 | 26,3
-9 | 33,1
-10 | 40,8
-11 | 49,2
-12 | 58,3
-13 | 68,0
-14 | 78,1
-15 | 88,5
-16 | 99,2
-*Los valores de referencia del incremento volumétrico corresponden al modelo de crecimiento reportado por Gompertz (referencia del Dr. Edgar Ortiz Malavassi, Catedrático del Instituto Tecnológico de Costa Rica, 2015).1
-Cuadro 3. Valores mínimos de referencia para el diámetro (DAP) y la altura total (Htot), esperada por año para las Plantaciones Forestales con Turnos de Rotación Reducidos (PFTRR), para la especie Gmelina arborea y otras especies del grupo de rápido crecimiento.
-Edad (años) | VRM DAP (cm) | VRM Htot (m)
-1 | - | 3,29
-2 | 8,88 | 6,65
-3 | 13,35 | 9,73
-4 | 14,69 | 10,69
-5 | 17,55 | 12,48
-6 | 19,53 | 13,80
-Para el cálculo del volumen se debe usar la siguiente ecuación:
-Vt = π/4 * (DAP)² * Htot * Ff * N
+(*)g) Se instruye al Fondo Nacional de Financiamiento Forestal para que incorpore en los contratos de Pago por Servicios Ambientales en la actividad de Reforestación y Sistemas Agroforestales en bloque, los valores de referencia mínimos aceptables para realizar los pagos.
+Los valores de referencia mínimos (VRM) para el diámetro y altura total, requeridos para proceder a los pagos de cada año, son los siguientes:
+Cuadro 1. Valores de referencia mínimos para el diámetro
+(DAP) y la altura total (Htot), esperados por año para
+plantaciones de especies de rápido crecimiento (Gmelina
+arborea, Vochysia guatemalensis, Acacia mangium, otras).
+| Edad (años) | VRM DAP (cm)* | VRM Htot (m)*
+| 1 | - | 3,69
+| 2 | 8,14 | 6,85
+| 3 | 12,08 | 10,26
+| 4 | 14,28 | 12,39
+| 5 | 17,69 | 15,08
+| 6 | 19,08 | 16,74
+| 7 | 21,11 | 17,42
+| 8 | 22,12 | 18,02
+| 9 | 23,02 | 18,54
+| 10 | 23,83 | 19,01
+| | | |
+| | | | | | | |
+Cuadro 2. Valores de referencia mínimos para el diámetro
+(DAP) y la altura total (Htot) esperados por año para
+plantaciones de especies de mediano crecimiento (Tectona
+grandis, Pinus sp, Cordia alliodora, Vochysia ferruginea,
+Eucalyptus sp, Cedrela odorata, otras).
+Edad (años) | VRM DAP (cm)* | VRM Htot (m)*
+1 | - | 1,65
+2 | 4,78 | 3,24
+3 | 7,57 | 5,06
+4 | 9,08 | 6,24
+5 | 10,72 | 7,49
+6 | 12,47 | 8,78
+7 | 14,26 | 10,10
+8 | 16,04 | 11,42
+9 | 17,76 | 12,71
+10 | 19,37 | 13,94
+11 | 20,83 | 15,09
+12 | 21,52 | 15,86
+13 | 22,60 | 16,83
+14 | 23,52 | 17,71
+15 | 24,28 | 18,52
+16 | 24,91 | 19,25
+Para el cálculo del volumen total se debe usar la siguiente ecuación:
+Vtot= π/4 * (DAP)² * Htot * Ff * N
 Donde:
-Π = π (pi) es la relación entre la longitud de una circunferencia y su diámetro en geometría euclidiana.
-Vt = Volumen total por hectárea expresado en metros cúbicos.
+Vtot = Volumen total por hectárea expresado en metros cúbicos.
+л = (pi) es la relación entre la longitud de una circunferencia y su diámetro en geometría euclidiana.
 DAP = Diámetro a la altura de 1,3m expresado en metros.
 Htot = Altura total expresada en metros.
-Ff = Factor de forma igual que 0,5.
+Fr = Factor de forma igual que 0,5.
 N = Número de árboles por hectárea.
+*Los valores de referencia provienen de datos de parcelas permanentes de muestreo de empresas que reforestan aportados por la Oficina Nacional Forestal (ONF), datos de las parcelas que aportan los Regentes Forestal y registra el FONAFIFO, ambos, set de datos validados por él Dr. Edgar Ortiz Malavassi, Catedrático del Instituto Tecnológico de Costa Rica.
+(*) (Así reformado el inciso g) anterior por resolución R-167-2019-MINAE del 3 de julio de 2019)
 h) El Estado a través del Fonafifo, adquirirá los servicios ambientales que produzcan las plantaciones forestales, entendidos éstos según dispone el inciso k del artículo 3 de la Ley Forestal N°7575.
 i) Específicamente, los servicios ambientales brindados por plantaciones y bloques en Sistemas Agroforestales, se pagarán según el crecimiento anual de la biomasa de acuerdo con parámetros establecidos en esta resolución. Dichos pagos corresponden al total de años del plazo convenido; no obstante, a fin de permitir el establecimiento de la plantación y su mantenimiento, se adelantará durante los primeros cinco años.
-j) El Fonafifo podrá modificar cuando así se solicite, aquellos contratos suscritos antes del año 2006, que demuestren haber alcanzado una producción mínima de 13 metros cúbicos de incremento medio anual por hectárea. Para tales efectos, el Fonafifo podrá solicitar la información que considere pertinente.
+j) El Fonafifo podrá modificar cuando así se solicite, aquellos contratos suscritos antes del año 2009, que demuestren haber alcanzado una producción mínima de 13 metros cúbicos de incremento medio anual por hectárea. Para tales efectos, el Fonafifo podrá solicitar la información que considere pertinente.
+(Así reformado el inciso anterior por resolución R-167-2019-MINAE del 3 de julio de 2019)
 2.2. Actividad de Regeneración Natural: Las condiciones que regirán para el trámite de solicitudes, para el reconocimiento de los servicios ambientales en la actividad de Regeneración Natural, que se desarrollen en áreas denudadas, sin cobertura forestal, con fuentes semilleras cercanas, en áreas en proceso de regeneración que no cumplen con la definición de bosque y libres de pastoreo; se detallan a continuación.
 a) El monto a pagar en Regeneración Natural, será de ciento trece mil quinientos tres colones con 00/100 (¢113.503) por hectárea, desembolsados en cinco pagos anuales de 20% durante un período de cinco años.
 2.3. Actividad de Sistemas Agroforestales: Las condiciones que regirán para el trámite de solicitudes, para el reconocimiento de los servicios ambientales en la actividad de Sistemas Agroforestales, se detallan a continuación.
 a) El monto a pagar será de novecientos sesenta y ocho colones con 00/100 (¢968) por árbol, integrados a Sistemas Agroforestales y desembolsados durante un período de cinco años. Los pagos serán distribuidos de la siguiente forma: 50% el primer año, 25% el tercero año y 25% el año quinto.
 b) El monto a pagar será de mil cuatrocientos treinta y cinco colones con 00/100 (¢1.435) por árbol, integrados a Sistemas Agroforestales, estrictamente con especies nativas contenidas en los Decretos Ejecutivos N° 25663-MINAE del 8 de octubre de 1996 y N° 25700-MINAE del 15 de noviembre de 1996, desembolsados durante un período de cinco años. Los pagos serán distribuidos de la siguiente forma: 50% el primer año, 25% el tercero año y 25% el año quinto.
 c) El monto a pagar será de mil cuatrocientos treinta y cinco colones con 00/100 (¢1.435) por árbol bajo la actividad de Sistemas Agroforestales establecidos en Plantaciones de Aprovechamiento Forestal (PPAF), financiados mediante el crédito forestal. Los pagos serán distribuidos de la siguiente forma: 80% a la firma del contrato, una vez que los árboles hayan alcanzado los 36 meses de edad y 20% restante en el año quinto del proyecto cuando los árboles hayan alcanzado los 60 meses de edad.
-d) Sistemas Mixtos en Agroforestería para pequeños productores: Las condiciones para esta modalidad son: Cuando realicen actividades de protección de bosque, un pago de treinta y cinco mil cuatrocientos treinta y cinco colones (¢35.435) por hectárea por año durante un periodo de cinco años, (aquí de ser necesario se calcularán las fracciones de hectáreas existentes, hasta el primer decimal. Cuando sean áreas denudadas o en proceso de regeneración un reconocerá un pago de veintidós mil setecientos colones (¢22.700) por año durante un periodo de cinco años. Cuando realice actividades de reforestación de especies maderables o de uso múltiple fuera del área boscosa un pago de cincuenta y siete mil trescientos noventa y dos colones (¢57.392) por año, por cada doscientos árboles plantados o árboles existentes identificados hasta un máximo de mil seiscientos árboles. En esta sub -actividad podrá realizarse un solo contrato que comprenda las diferentes actividades y el plazo será de cinco años contados a partir de la firma del contrato.
+d) Sistemas Mixtos en Agroforestería para pequeños productores:
+Las condiciones para esta modalidad son: Cuando realicen actividades de protección de bosque, un pago de treinta y cinco mil cuatrocientos treinta y cinco colones (¢35.435) por hectárea por año durante un periodo de cinco años, (aquí de ser necesario se calcularán las fracciones de hectáreas existentes, hasta el primer decimal. Cuando sean áreas denudadas o en proceso de regeneración un reconocerá un pago de veintidós mil setecientos colones (¢22.700) por año durante un periodo de cinco años. Cuando realice actividades de reforestación de especies maderables o de uso múltiple fuera del área boscosa un pago de doscientos ochenta y siete colones por árbol (¢287) por año; se reconocerá una cantidad mínima de doscientos árboles plantados o árboles existentes identificados hasta un máximo de mil seiscientos árboles. En esta sub – actividad podrá realizarse un solo contrato que comprenda las diferentes actividades y el plazo será de cinco años contados a partir de la firma del contrato.
+(Así reformado el inciso anterior por resolución R-167-2019-MINAE del 3 de julio de 2019)
 2.4. Actividad de Protección de Bosque: Las condiciones que regirán para el trámite de solicitudes, para el reconocimiento de los servicios ambientales en la actividad de Protección de Bosque, se detallan a continuación:
-a) El monto a pagar será de ciento setenta y siete mil ciento setenta y cinco colones con 00/100 (¢177.175) desembolsados en cinco pagos anuales de 20% durante un período de cinco años. Cuando se trate de solicitudes que se ubiquen dentro de las zonas de importancia hídrica, identificadas por el Instituto Costarricense de Acueductos y Alcantarillados, la Dirección de Aguas y el Fonafifo, se reconocerá un monto adicional de cuarenta y cuatro mil doscientos noventa y seis colones (¢44.296) colones por hectárea, desembolsados en cinco pagos anuales de 20% durante un período de cinco años. Este monto adicional se aplicará hasta agotar el presupuesto asignado en esta actividad.
+a) El monto a pagar será de trescientos cincuenta y cuatro mil trescientos cincuenta colones con 00/100 (¢354.350) desembolsados en diez pagos anuales de 10% durante un período de diez años. Cuando se trate de solicitudes que se ubiquen dentro de las zonas de importancia hídrica, identificadas por el Instituto Costarricense de Acueductos y Alcantarillados, la Dirección de Aguas y el Fonafifo, se reconocerá un monto adicional de ochenta y ocho mil quinientos noventa y dos colones (¢88.592) colones por hectárea, desembolsados en diez pagos anuales de 10% durante un período de diez años.
+Este monto adicional se aplicará hasta agotar el presupuesto asignado en esta actividad.
+(Así reformado el inciso a) anterior por resolución R-167-2019-MINAE del 3 de julio de 2019)
 b) El monto a pagar en proyectos de Protección Post Cosecha será de ciento treinta y ocho mil cuatrocientos veinte colones con 00/100 (¢138.420) por hectárea, desembolsados en cinco pagos anuales de 20% durante un período de cinco años.
 3. Actualización de los montos a pagar. Los montos establecidos por actividad dentro del Programa de Pago por Servicios Ambientales, se actualizarán anualmente con el Índice de Precios al Consumidor (IPC), calculado por el Instituto Nacional de Estadística y Censo (INEC), al cierre del período del año anterior.
