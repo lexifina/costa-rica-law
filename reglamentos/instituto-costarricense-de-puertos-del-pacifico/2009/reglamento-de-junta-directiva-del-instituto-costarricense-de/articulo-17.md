@@ -1,1 +1,0 @@
-Artículo 17—A las sesiones de Junta Directiva asistirán, con voz pero sin voto, el Gerente General, el Auditor General y el (los) Asesor (es) Legal (es) que designe la propia Junta Directiva. El Subgerente o cualquier otro funcionario que asista, será únicamente a instancias del Presidente Ejecutivo o de la propia Junta Directiva.

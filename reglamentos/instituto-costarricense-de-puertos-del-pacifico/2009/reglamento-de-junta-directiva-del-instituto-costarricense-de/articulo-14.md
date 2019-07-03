@@ -1,2 +1,0 @@
-Artículo 14.—Las sesiones extraordinarias de la Junta Directiva se celebrarán de acuerdo con la convocatoria, en lugar y hora señalados por el Presidente.
-La Junta Directiva no podrá celebrar más de ocho sesiones remuneradas por mes, entre ordinarias y extraordinarias, cuando estas últimas sean absolutamente necesarias de acuerdo a lo estipulado por la Ley sobre Pago de Dietas a Directivos de Instituciones Autónomas Nº 3065 y sus reformas.

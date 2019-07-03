@@ -1,4 +1,0 @@
-Artículo 15.—La Junta Directiva podrá disponer, cuando así lo crea conveniente, que la sesión se declare privada y determinar la participación de los funcionarios que deban asistir.
-No obstante, las deliberaciones y acuerdos que tome la Junta Directiva del INCOP, que hayan sido declarados confidenciales en virtud de la existencia de una norma legal o constitucional que así lo establezca, deben grabarse y transcribirse en el libro de actas de la Junta Directiva.
-Sin embargo, la Administración deberá idear los mecanismos idóneos para impedir el acceso de terceros a los datos confidenciales si no existe autorización del afectado, tomando en consideración el deber de motivar la decisión adoptada a la luz de lo dispuesto en el numeral 274 de la Ley General de la Administración Pública.
-En consecuencia, únicamente podrá negarse el acceso a los datos de naturaleza confidencial pero no a la totalidad del acta, por ser ésta por principio un documento público.
