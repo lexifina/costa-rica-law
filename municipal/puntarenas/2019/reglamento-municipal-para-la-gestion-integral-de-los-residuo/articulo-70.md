@@ -1,0 +1,1 @@
+Artículo 70. —Mecanismos de participación ciudadana. La participación ciudadana en los procesos de Gestión Integral de Residuos Sólidos utilizará los mecanismos dispuestos en las regulaciones establecidas en el Capítulo III del Reglamento General a la Ley de Gestión Integral de Residuos.

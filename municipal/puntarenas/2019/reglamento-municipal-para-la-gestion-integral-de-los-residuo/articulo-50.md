@@ -1,0 +1,3 @@
+Artículo 50. —Alternativas a la disposición final en rellenos sanitarios. La Municipalidad podrá optar por la utilización de alternativas para la disposición final de los residuos, ya sea para su
+aprovechamiento en la generación de nuevas materias primas, energía o cualquier otra forma que permita una mejor gestión de los residuos. Estas alternativas podrán implementarse en el manejo de los residuos únicamente si se demuestra técnica y financieramente su viabilidad y deben cumplir
+con la normativa nacional vigente y aplicable.

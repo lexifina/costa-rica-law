@@ -1,0 +1,1 @@
+Artículo 18.— Empresas acogidas al régimen de Zona Franca por el artículo 16 de la Ley Nº 7210. La entrega de los residuos a las municipalidades es obligatoria, por lo que todas las empresas acogidas a este régimen deberán coordinar la gestión de los residuos ordinarios y valorizables según lo disponga el presente reglamento.

@@ -1,0 +1,1 @@
+Artículo 45.— Queda prohibido el almacenamiento de residuos sólidos peligrosos o de manejo especial en los mismos sitios que los valorizables, a menos que se cuente con la debida autorización de las entidades competentes.

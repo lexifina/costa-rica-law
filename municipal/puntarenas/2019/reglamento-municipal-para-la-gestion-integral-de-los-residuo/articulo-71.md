@@ -1,0 +1,1 @@
+Artículo 71. —Otras actividades. Se podrán coordinar otro tipo de actividades educativas y de sensibilización que no estén contempladas en los artículos 65, 66, 67 y 68 de este reglamento. Estas actividades adicionales tendrán el objetivo de fomentar la gestión integral de los residuos sólidos.

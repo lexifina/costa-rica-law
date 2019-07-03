@@ -1,0 +1,2 @@
+Artículo 41. —Los centros de recuperación públicos o privados que se encuentren dentro del
+territorio del cantón deberán cumplir con las disposiciones establecidas en el Reglamento de Centros de recuperación de Residuos Valorizables, Decreto Ejecutivo Nº 35906-S.

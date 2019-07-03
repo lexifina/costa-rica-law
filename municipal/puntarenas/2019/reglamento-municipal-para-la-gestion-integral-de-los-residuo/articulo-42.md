@@ -1,0 +1,1 @@
+Artículo 42. —El almacenamiento y tratamiento de los residuos valorizables no podrá realizarse al aire libre, sin ningún tipo de mantenimiento preventivo y únicamente se podrá realizar cuando la Municipalidad lo autorice.

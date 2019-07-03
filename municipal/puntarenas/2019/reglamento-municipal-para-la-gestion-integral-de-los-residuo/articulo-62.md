@@ -1,0 +1,5 @@
+Artículo 62. — Requerimientos para la recategorización y ajuste de tarifa para recolección de residuos. Todo ente generador que considere que el factor de ponderación que se le está aplicando no está de acuerdo a la cantidad de residuos que está generando deberá presentar la solicitud formal a la Unidad de Gestión Ambiental, cumpliendo con los siguientes requisitos:
+a) Estudio de generación y composición de residuos de acuerdo a la normativa vigente Decreto N.º 37745 Oficialización de la Metodología para Estudios de Generación y Composición de Residuos Sólidos Ordinarios (Aplicado a cada ente generador). El muestreo se debe realizar al menos en una semana de temporada alta y otro en una semana de temporada baja.
+b) El generador deberá presentar una Declaración Jurada de la veracidad de los datos aportados en el Estudio de generación y composición de residuos y su compromiso de dar un manejo adecuado a sus residuos.
+c) Para comercios: presentar el Programa de Manejo Integral de Residuos (avalado por el Ministerio de Salud).
+d) Se debe presentar el registro fotográfico correspondiente.

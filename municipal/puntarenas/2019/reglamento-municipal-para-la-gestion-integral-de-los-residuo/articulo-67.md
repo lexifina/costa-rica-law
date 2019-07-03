@@ -1,0 +1,2 @@
+Artículo 67.— Programas de educación ambiental. La Municipalidad en coordinación con otras instituciones públicas y privadas realizará campañas de educación ambiental, con el objetivo de que la comunidad adquiera destrezas sobre la separación de los residuos sólidos y se genere sensibilización acerca de la importancia de una adecuada gestión de los mismos y la protección del
+medio ambiente.

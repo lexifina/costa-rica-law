@@ -1,0 +1,1 @@
+Artículo 52. —Certificación de disposición final. La Municipalidad, por medio del Departamento de Servicios Municipales, o la empresa encargada de la disposición final de los residuos deberán presentar un certificado de disposición como respaldo de una adecuada gestión.

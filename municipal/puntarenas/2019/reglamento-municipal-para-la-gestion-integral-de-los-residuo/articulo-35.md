@@ -1,0 +1,3 @@
+CAPÍTULO VII
+Recolección privada
+Artículo 35. —Los gestores de residuos valorizables, no valorizables, no tradicionales, peligrosos o de manejo especial que realicen actividades de recolección y transporte de residuos a personas físicas o jurídicas, públicas o privadas de forma privada deberán inscribirse ante la municipalidad como gestores privados de residuos. La inscripción tendrá una validez de 12 meses.
