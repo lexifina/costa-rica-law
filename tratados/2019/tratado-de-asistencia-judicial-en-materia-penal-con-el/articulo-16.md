@@ -1,0 +1,5 @@
+Artículo 16
+Presentación de Documentos, Actas y Objetos
+1. Cuando la solicitud de asistencia judicial tenga por objeto la transmisión de otros documentos o actas, distintos de aquellos a que se refiere el Artículo 15 que precede, el Estado Requerido tendrá la facultad de transmitir copias auténticas de los mismos. No obstante, cuando el Estado Requirente solicite expresamente la transmisión de los originales, el Estado Requerido satisfacerá dicha exigencia en los límites de lo posible.
+2. Cuando ello no esté en conflicto con la legislación del Estado Requerido, los documentos y el otro material que han de ser transmitidos al Estado Requirente de conformidad con el presente Artículo deberán ser certificados según las modalidades establecidas por el Estado Requirente a fin de hacerlos admisibles a tenor de la legislación de dicho Estado.
+3. Los originales de los documentos y de las actas, así como los objetos transmitidos al Estado Requirente serán devueltos en cuanto sea posible al Estado Requerido, si este último lo solicita.

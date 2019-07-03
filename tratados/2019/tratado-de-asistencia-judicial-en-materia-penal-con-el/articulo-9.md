@@ -1,0 +1,5 @@
+Artículo 9
+Práctica de Pruebas en el Estado Requerido
+1.EI Estado Requerido, de conformidad con su legislación nacional, recibirá en su territorio las declaraciones de testigos, partes ofendidas, personas sometidas a investigaciones o al procedimiento penal, peritos u otras personas, así como recabará las actuaciones, los documentos y las demás pruebas indicadas en la solicitud de asistencia judicial y los transmitirá al Estado Requirente.
+2. El Estado Requerido informará en el menor tiempo posible al Estado Requirente la fecha y el lugar de la realización de la actividad probatoria a la que se refiere el párrafo anterior, también para las finalidades a las que se refiere el párrafo 3 del Artículo 6. De ser necesario, las Autoridades Centrales se consultarán a fin de establecer una fecha conveniente para ambos Estados.
+3. Los documentos y los demás elementos de prueba a los que se haya referido la persona citada a declarar podrán ser recabados y serán admisibles en el Estado Requirente como medio de prueba de conformidad con el ordenamiento de este Estado.
