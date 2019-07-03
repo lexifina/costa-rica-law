@@ -1,0 +1,2 @@
+ARTÍCULO 15. De la información almacenada en los servidores de red
+El usuario podrá almacenar en los servidores de red de la Municipalidad únicamente información proveniente de las bases de datos y aplicaciones institucionales. Los archivos de texto, hojas electrónicas y otros deben permanecer en los espacios idóneos destinados al efecto (localmente, en la nube autorizada por la institución o carpetas compartidas que se destinen para este uso).

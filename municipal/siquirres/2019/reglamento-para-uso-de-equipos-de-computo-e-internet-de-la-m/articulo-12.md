@@ -1,0 +1,2 @@
+ARTÍCULO 12. De la Licencia del software de los equipos de cómputo
+Todo software instalado debe contar con la licencia respectiva (GPL, Propietaria), la cual debe encontrarse al día. La DTIC es la encargada de gestionar la renovación de las licencias del software base ante la oficina de contratación y suministros o ante quien corresponda. La adquisición del software diferente a la base deberá contar con la aprobación escrita de la DTIC.
