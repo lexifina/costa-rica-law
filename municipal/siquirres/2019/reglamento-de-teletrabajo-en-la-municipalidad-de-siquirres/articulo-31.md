@@ -1,0 +1,2 @@
+ARTÍCULO 31
+El funcionario que acceda a esta modalidad de trabajo, debe contar con la aprobación de la Jefatura correspondiente, así como cumplir con los requisitos establecidos para el ingreso al programa.

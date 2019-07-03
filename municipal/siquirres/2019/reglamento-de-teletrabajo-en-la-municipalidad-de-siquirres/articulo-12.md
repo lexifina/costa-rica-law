@@ -1,0 +1,2 @@
+ARTÍCULO 12
+Las personas de nuevo ingreso, contratadas en un puesto “teletrabajable”, deben mantener las condiciones acordadas durante su relación laboral. En caso de que dichas condiciones cambien, la Dirección correspondiente y la Comisión Municipal de Teletrabajo analizarán la situación y la remitirán a la Alcaldía según sea el caso para la resolución final.

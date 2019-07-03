@@ -1,0 +1,2 @@
+ARTÍCULO 11
+Los funcionarios incorporados al programa de teletrabajo, deben mantener las condiciones que justificaron su ingreso a éste, así como cumplir con todas las obligaciones y responsabilidades adquiridas. En caso de que surja alguna imposibilidad de mantener dichas condiciones, la Dirección del “teletrabajador” debe justificarlas ante la Comisión Municipal de Teletrabajo, para el análisis de las nuevas condiciones, y la remitirá a la Alcaldía según sea el caso para la resolución final.

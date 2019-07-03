@@ -1,0 +1,3 @@
+ARTÍCULO 13
+La Municipalidad puede dejar sin efecto la aplicación del Teletrabajo en aquellos puestos que lo estime necesario por razones de conveniencia institucional, en cuyo caso las personas que estén “teletrabajando”, deberán reintegrarse a su centro de trabajo, como resultado del análisis realizado por parte de la Jefatura y la Comisión Municipal de Teletrabajo con la resolución final de la Alcaldía. En caso de las personas de nuevo ingreso,
+aplicará lo establecido en el Artículo 12 del presente Reglamento y en el caso de las Jefaturas, su situación se analizará por parte de la Alcaldía.

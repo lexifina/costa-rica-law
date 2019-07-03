@@ -1,0 +1,2 @@
+ARTÍCULO 53
+El departamento de Informática de la Municipalidad, verificará la existencia de los inventarios de hardware y software propiedad de la Municipalidad de forma remota, asignados al teletrabajador para el desempeño de sus funciones. En caso que se identifique alguna anomalía, se comunicará al teletrabajador y a la jefatura directa para que tome las medidas correspondientes.

@@ -1,0 +1,2 @@
+ARTÍCULO 44
+Promover el uso intensivo de las tecnologías de información y comunicación entre todo el personal de su Departamento para simplificar y digitalizar trámites que contribuyan con la modernización de la gestión.
