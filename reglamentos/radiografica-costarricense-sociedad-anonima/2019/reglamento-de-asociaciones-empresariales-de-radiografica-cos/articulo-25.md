@@ -1,0 +1,2 @@
+Artículo 25. Criterios financieros.
+Los criterios financieros, para analizar la factibilidad de cada oportunidad de negocio, serán definidos por medio de Directriz por parte de la Gerencia General, que será revisable en forma periódica a fin de confirmar su vigencia.
