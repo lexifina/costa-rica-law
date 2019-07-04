@@ -1,1 +1,3 @@
-Artículo 29.- La solicitud de reposición de credenciales deberá ser planteada por la persona legitimada para acreditar fiscales en representación de un partido político o coalición. La gestión se tramitará siguiendo el mismo procedimiento señalado en el párrafo segundo del artículo 16 del presente reglamento.
+Artículo 29.—La solicitud de reposición de credenciales deberá ser planteada por la persona legitimada para acreditar fiscales en representación de un partido político o coalición. Solamente se repondrán credenciales por una única ocasión y deberán ser solicitadas como máximo tres días hábiles antes de la celebración de los comicios.
+La gestión se tramitará siguiendo el mismo procedimiento señalado en el párrafo segundo del artículo 16 del presente reglamento.
+(Así reformado por el artículo 1° del decreto del Tribunal Supremo de Elecciones N° 13-2019 del 4 de julio del 2019)
