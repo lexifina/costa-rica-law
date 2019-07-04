@@ -1,0 +1,2 @@
+Artículo 27.
+La persona profesional que ejerza la ciencia psicológica de manera privada deberá procurar que el lugar de trabajo, cuando así sea requerido y según la práctica psicológica de que se trate, reúna los requisitos mínimos establecidos por el Colegio y la legislación correspondiente, según las necesidades del servicio que brinda. En la función pública (individual o grupal), cada profesional deberá interponer sus mejores oficios para que esta norma se cumpla.

@@ -1,0 +1,2 @@
+Artículo 29.
+La persona colegiada es responsable de la aplicación, codificación e interpretación de los instrumentos y técnicas de evaluación psicológica empleados y será su deber vigilar que su utilización sea llevada a cabo, exclusivamente, por profesionales en psicología; con las excepciones establecidas por los procesos formativos en el marco de la educación superior universitaria, que conlleven la supervisión y acompañamiento académico docente.

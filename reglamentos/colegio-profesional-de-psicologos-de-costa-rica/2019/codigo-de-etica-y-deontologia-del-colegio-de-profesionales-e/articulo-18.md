@@ -1,0 +1,2 @@
+Artículo 18.
+La persona profesional deberá tener la capacidad de emitir informes, mediante un reporte, a la o las personas, instituciones y otras instancias acerca del trabajo realizado o de los servicios prestados. La forma y las circunstancias de este procedimiento serán acordadas por cada profesional con la persona o entidad usuaria y formará parte de las pautas de trabajo, según lo establecido en el artículo 11 de este Código.

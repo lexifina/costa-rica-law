@@ -1,0 +1,2 @@
+Artículo 63.
+En el ejercicio liberal, la persona colegiada deberá procurarse su población usuaria por medios lícitos, que no contravengan los principios éticos planteados en este Código, ni ninguna otra normativa atinente. No deberá recurrir a terceras personas, remuneradas o no, para obtener beneficios, tampoco procurarse trabajo profesional mediante descuentos u otras ventajas concedidas a la persona o entidad usuaria, o a terceras personas, ni incurrir en hechos que puedan considerarse competencia desleal.

@@ -1,0 +1,2 @@
+Artículo 44.
+Las publicaciones que sean producto de un trabajo compartido deberán incluir los nombres de todas las personas responsables de su autoría, previa autorización de las mismas. Es contrario a la ética incluir como investigadoras o autoras a personas que no realizaron un aporte sustancial a la planificación o ejecución de la investigación o la publicación correspondiente; o bien, excluirlas habiendo sido parte de las mismas.

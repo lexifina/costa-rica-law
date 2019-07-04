@@ -1,0 +1,6 @@
+Artículo 30.
+En el campo de la evaluación psicológica, la persona colegiada deberá utilizar instrumentos y técnicas adecuados, con suficiente respaldo académico, y seguir las mejores prácticas profesionales en el campo.
+En la utilización de estas técnicas o instrumentos verificará su idoneidad en cuanto a la correspondencia entre el uso planeado y el propósito original, el fundamento teórico y empírico, la adecuación temporal y espacial a la población meta, los materiales necesarios, la modalidad de aplicación y las evidencias de validez y confiabilidad, entre otros.
+Velará por utilizar instrumentos y técnicas adaptadas a la población de Costa Rica o, en su defecto, a poblaciones lo suficientemente similares a esta, de manera que la interpretación tenga fundamento.
+Para la interpretación de los resultados obtenidos mediante los instrumentos y técnicas, integrará fuentes de información atinentes y su criterio profesional, así como la lectura del contexto de la persona o entidad usuaria evaluada y de la evaluación.
+Asimismo, a la hora de establecer conclusiones, la persona colegiada deberá explicitar las limitaciones del proceso de evaluación, de tal forma que se eviten interpretaciones erróneas o estigmatizantes.

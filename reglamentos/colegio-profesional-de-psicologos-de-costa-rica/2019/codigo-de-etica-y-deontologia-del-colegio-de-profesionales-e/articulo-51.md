@@ -1,0 +1,2 @@
+Artículo 51.
+Es contrario a la ética difamar, calumniar o tratar de perjudicar a colegas por cualquier medio, así como discriminar por edad, género, origen étnico-cultural, condición socioeconómica, creencias religiosas, orientación sexual, identidad de género, grado académico u otras; lo anterior con base en lo establecido en el presente Código, y otras regulaciones aprobadas por la Asamblea, que representan los principios compartidos en el quehacer de la psicología.

@@ -1,0 +1,2 @@
+Artículo 17.
+Cada profesional deberá respetar la voluntad de la persona o entidad usuaria de suspender la relación de servicio en cualquier momento; esta circunstancia no exime de acatar otros lineamientos éticos establecidos en este Código y en otras normas de rango legal vigentes en el país. De igual manera, se deberá concluir la relación cuando se hayan cumplido los objetivos establecidos para la intervención y cuando se realice la referencia a otro u otra profesional, según amerite la situación.

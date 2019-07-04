@@ -1,0 +1,2 @@
+Artículo 11.
+Al inicio de la relación profesional la persona colegiada deberá establecer las pautas generales que se comunicarán a las personas, grupos, instituciones u organizaciones a las que presta un servicio, ya sea público o privado. Dichas pautas generales deberán comprender, al menos: los objetivos, métodos y técnicas, procedimientos, honorarios, horario de trabajo, tiempo estimado del trabajo, cuando ello sea factible y cualquier otro dato que considere pertinente informar a la persona o entidad usuaria, según los servicios que preste.

@@ -1,0 +1,2 @@
+Artículo 53.
+Si una persona profesional le solicita a otro u otra colega información sobre un proceso de intervención realizado, en un marco de derivación, atención y seguimiento brindado a una misma persona o entidad usuaria, el o la colega que recibió la solicitud deberá brindar la información requerida, previa autorización expresa de manera escrita o verbal. Como excepción a lo anterior, acorde con el artículo 33, inciso a), se autoriza a la persona colegiada a brindar la información en caso de que pueda haber un riesgo o peligro.

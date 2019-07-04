@@ -1,0 +1,6 @@
+Artículo 46.
+Las declaraciones u opiniones que la persona colegiada emita con fines de información al público siempre deberán plantearse con rigor técnico, científico, profesional y ético.
+En consecuencia, se deberá tomar en cuenta lo siguiente:
+a) La persona colegiada que participe en medios de comunicación colectiva, incluidos los que aparecen a través de Internet, plataformas digitales y redes sociales, deberá poner especial atención para que sus opiniones sean respetuosas de los derechos humanos, cuidando que sus declaraciones públicas no reproduzcan creencias o estereotipos discriminatorios o lesivos, de conformidad con lo dispuesto en la normativa nacional e internacional y deberán ser acordes con lo establecido en el Capítulo II de este Código. Se considerará especialmente como falta ética las declaraciones públicas que difundan creencias y estereotipos discriminatorios.
+b) La persona colegiada podrá divulgar asuntos propios de su profesión en los medios de comunicación cuando se evidencie el propósito de informar y educar a la colectividad, guardando los preceptos de este Código.
+c) Si las personas colegiadas emiten declaraciones u opiniones sobre temas especializados, deberán poseer la formación requerida para el abordaje de los mismos.

@@ -1,0 +1,2 @@
+Artículo 21.
+La persona colegiada deberá aplicar el más estricto cuidado con los documentos bajo su custodia, en razón de su ejercicio profesional. Además, es su obligación velar porque se garantice de forma rigurosa el secreto profesional y la confidencialidad de toda información que proceda de quien recibe el servicio, considerando el marco normativo y la legislación vigente. No deberá retener en forma ilegítima o injustificada objetos o documentos de las personas usuarias.

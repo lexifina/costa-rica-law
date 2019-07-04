@@ -1,0 +1,2 @@
+Artículo 20.
+La persona colegiada no deberá suministrar técnicas, instrumentos o materiales de medición psicológica, específicos de la disciplina, ni instruir sobre su uso a quienes no tengan habilitación para ello, con excepción de los fines de formación profesional y académica en el área de la psicología, la cual deberá ser impartida por una persona profesional debidamente incorporada al Colegio; lo anterior, salvo las excepciones derivadas, legalmente, de la autonomía universitaria.

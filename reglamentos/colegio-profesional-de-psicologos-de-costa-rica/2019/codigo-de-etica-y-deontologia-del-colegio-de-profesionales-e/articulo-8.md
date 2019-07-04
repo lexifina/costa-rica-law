@@ -1,0 +1,2 @@
+Artículo 8.
+Las personas colegiadas no se involucrarán, no promoverán y no ocultarán conductas en las que exista degradación humana, discriminación o acoso y no se prestarán para legitimar, diseñar o implementar conductas basadas en estereotipos o prejuicios, violencia, tortura, persecución ni otras que puedan ocasionar perjuicio (directo o indirecto) a la salud integral de las personas o entidades usuarias, sea que medie interacción directa o no con quienes se vincule en su ejercicio profesional, en el nivel individual, grupal, comunitario, organizacional e institucional.

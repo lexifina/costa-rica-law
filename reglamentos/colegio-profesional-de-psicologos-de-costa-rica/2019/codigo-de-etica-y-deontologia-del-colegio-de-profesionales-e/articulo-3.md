@@ -1,0 +1,2 @@
+Artículo 3.
+Con la incorporación al Colegio, las personas colegiadas aceptan y están obligadas a cumplir los preceptos institucionales, dentro del marco de la ética. Las normas contenidas en este Código se aplicarán a toda actividad realizada en cualquier campo o área de la psicología en que se desempeñen, incluidas las representaciones gremiales, tales como Junta Directiva, Comisiones, Tribunal u otros órganos del Colegio.

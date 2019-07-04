@@ -1,0 +1,2 @@
+Artículo 4.
+Toda violación a la Ley 6144, a este Código o a las normativas que rigen al Colegio, aprobadas por la Asamblea General y las leyes conexas, será considerada falta ética y se sancionará de acuerdo con lo dispuesto en los procedimientos previstos en el presente Código y el Reglamento. Las antedichas sanciones de orden disciplinario son independientes de cualesquiera otras que se puedan imponer por los mismos hechos en las instancias externas correspondientes.
