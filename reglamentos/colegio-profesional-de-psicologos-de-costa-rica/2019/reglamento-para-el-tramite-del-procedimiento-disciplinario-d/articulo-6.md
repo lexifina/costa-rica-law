@@ -1,0 +1,2 @@
+Artículo 6.
+La Fiscalía y el Tribunal deberán conducir el procedimiento con la intención de lograr un máximo de celeridad y eficiencia, siempre dentro del respeto al ordenamiento jurídico y a los derechos e intereses de las personas profesionales colegiadas y de las partes; así mismo, serán responsables de cualquier retardo grave e injustificado.

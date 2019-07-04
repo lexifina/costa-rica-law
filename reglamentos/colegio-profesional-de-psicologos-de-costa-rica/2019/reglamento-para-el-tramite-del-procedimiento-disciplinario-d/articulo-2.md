@@ -1,0 +1,4 @@
+Artículo 2.
+a) Las violaciones al Código de Ética y Deontológico deberán ser tramitadas por la Fiscalía ante el Tribunal de Honor, para que este proceda con lo que corresponda, según se establece en este Reglamento, el Código y la Ley n.° 6144. En todo momento deberán prevalecer los principios generales de presunción de inocencia y el derecho al debido proceso.
+b) El trámite establecido en este Reglamento se aplicará, complementariamente con la Ley General de la Administración Pública, a todo proceso disciplinario que se tramite con motivo de las violaciones a la Ley n.° 6144, a su Reglamento o al Código y demás denuncias que se presenten contra la actividad de las personas colegiadas.
+c) El Tribunal, la Fiscalía y la Junta Directiva deberán, en lo que a cada uno de estos órganos le corresponda, adoptar sus resoluciones y recomendaciones dentro del procedimiento, con estricto apego al ordenamiento jurídico y a este Reglamento.

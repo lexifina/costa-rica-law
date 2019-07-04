@@ -1,0 +1,2 @@
+Artículo 4.
+Todas las actuaciones del Tribunal deberán seguir los procedimientos que el debido proceso, la Ley n.° 6144, su Reglamento, el Código y el presente Reglamento estipulen; así mismo, tales actuaciones deberán estar fundadas en la verificación de los hechos que le sirven de motivo y en la racionalidad y razonabilidad de estos. Las actuaciones del Tribunal deberán constar en actas y sus sanciones deberán ser escritas, fundamentadas y notificadas a las partes que han intervenido en el proceso.

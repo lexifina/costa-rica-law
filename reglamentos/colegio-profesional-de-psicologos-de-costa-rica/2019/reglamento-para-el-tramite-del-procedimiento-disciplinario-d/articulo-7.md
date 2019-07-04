@@ -1,0 +1,3 @@
+Artículo 7.
+a) La investigación preliminar que llevará a cabo la Fiscalía debe tramitarse con celeridad; para ello realizará todas las diligencias útiles y necesarias tendentes a concluir el informe final en el menor plazo posible.
+b) Cuando, por razones imputables a la Fiscalía, la investigación preliminar se paralice por más de tres meses, el expediente será archivado a instancia de parte, ya sea ante la propia Fiscalía o ante el Tribunal. En ambos casos, al constatarse la inactividad, se procederá al archivo respectivo y se remitirá la información que corresponda a la Junta Directiva para que este órgano proceda a instar, según la ley, el establecimiento de la responsabilidad administrativa.

@@ -1,0 +1,2 @@
+Artículo 33.
+En caso de tener conocimiento la Fiscalía de que la persona colegiada ha incumplido la sanción impuesta por el Tribunal, iniciará la investigación preliminar por el incumplimiento y, una vez concluida, informará tanto al Tribunal, para que instruya el correspondiente procedimiento disciplinario, como a la Junta Directiva, para que proceda a interponer la denuncia penal respectiva, si fuera procedente.

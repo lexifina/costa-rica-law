@@ -1,0 +1,2 @@
+Artículo 30.
+La sanción prescribirá en un periodo igual que el de la condena, más un tercio, sin que pueda exceder de doce (12) años ni ser inferior a dos (2) años, contados a partir del momento en que la Junta Directiva ejecute lo dispuesto por el Tribunal (artículo 3, inciso d) de este Reglamento), si a la persona profesional sancionada no se le hiciera la debida comunicación dentro de ese plazo. Únicamente interrumpirá la prescripción el auto que ordena la admisibilidad de la acción de inconstitucionalidad contra la norma por aplicar.

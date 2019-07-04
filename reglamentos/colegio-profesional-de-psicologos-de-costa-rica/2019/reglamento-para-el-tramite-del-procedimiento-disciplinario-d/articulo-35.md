@@ -1,0 +1,3 @@
+Artículo 35.
+Para la interposición de los recursos de revocatoria y apelación, regirá lo dispuesto en el artículo 44 de la Ley n.° 6144.
+Aprobado por la Asamblea General número 120, rige quince días hábiles después de su publicación en el diario oficial La Gaceta, con la indicación de que todas las disposiciones de este Reglamento se entenderán sin perjuicio de lo que disponen las leyes vigentes y aplicables al Colegio en materia disciplinaria, para lo cual en forma supletoria y para llenar los vacíos del presente Reglamento se aplicará la Ley General de la Administración Pública y el Código Procesal Contencioso vigentes.

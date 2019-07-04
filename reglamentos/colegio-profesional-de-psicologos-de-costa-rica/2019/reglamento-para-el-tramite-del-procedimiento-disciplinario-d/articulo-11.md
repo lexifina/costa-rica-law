@@ -1,0 +1,2 @@
+Artículo 11.
+Podrá ser parte en el procedimiento disciplinario, además de la Fiscalía, quien tenga un interés legítimo o un derecho subjetivo que pueda resultar directamente afectado, lesionado o satisfecho, en virtud del acto final, a criterio del Tribunal. El interés de la parte ha de ser actual, propio y legítimo o de cualquier naturaleza; pero deberá estar relacionado con las faltas al Código.
