@@ -1,0 +1,2 @@
+Artículo 6º—Plazo. Para el cumplimiento de los objetivos plantados en el artículo 2°, se tendrá plazo hasta el 30 de noviembre del 2019.
+La fecha de entrega de la valoración referente al Reglamento de evaluación, control y seguimiento ambiental-planes de ordenamiento territorial (RECSA POT) y al Manual de Evaluación, control y seguimiento ambiental-planes de ordenamiento territorial (MECSA POT), será acordada de acuerdo a la calendarización específica que se establezca dentro del equipo técnico encargado de este proceso de trabajo.
