@@ -16,3 +16,4 @@ Reglamento de la Ley del Impuesto sobre el Valor Agregado
 | 1 | 2019-07-01 | la propia norma |
 | 2 | 2019-07-01 | Decreto Ejecutivo 41824 (2019-06-25) |
 | 3 | 2019-07-01 | Resolución 35 (2019-06-27) |
+| 4 | 2019-07-05 | Resolución 38 (2019-07-05) |
