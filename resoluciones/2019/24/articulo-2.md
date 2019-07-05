@@ -1,1 +1,0 @@
-Artículo 2º—Al entrar en vigencia la presente resolución, se deja sin efecto la actualización efectuada resolución Nº RESDGH-001-2019, del 08 de enero del 2019, publicada en La Gaceta Nº 22 del 31 de enero del 2019.
