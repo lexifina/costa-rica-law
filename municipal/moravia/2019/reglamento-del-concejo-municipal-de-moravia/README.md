@@ -14,3 +14,4 @@ Reglamento del concejo municipal de Moravia
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-05-31 | la propia norma |
+| 2 | 2019-07-08 | Reglamento municipal 167 (2019-07-08) |
