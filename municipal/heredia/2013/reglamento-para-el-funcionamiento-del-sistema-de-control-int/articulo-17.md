@@ -1,1 +1,0 @@
-Artículo 17.—Participación de los/as titulares subordinados/as en las reuniones del CICI. Los/as titulares subordinados/as se constituyen como miembros no permanentes del Comité Institucional de Control Interno, y como tales deberán asistir a todas las reuniones para las que sean convocados, de conformidad con las responsabilidades establecidas en el artículo 10.

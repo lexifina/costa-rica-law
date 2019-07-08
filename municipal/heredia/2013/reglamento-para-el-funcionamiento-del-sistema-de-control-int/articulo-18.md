@@ -1,1 +1,0 @@
-Artículo 18.—Participación del resto del personal en el CICI. El CICI convocará, cuando así lo requiera para cumplir con sus funciones, previa coordinación con la jefatura, a cualquier servidor o servidora municipal, quien estará en la total obligación de atender dicha convocatoria.

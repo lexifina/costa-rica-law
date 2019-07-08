@@ -1,1 +1,0 @@
-Artículo 27.—Metodología para la autoevaluación. La metodología deberá considerar la sistematización y evaluación integral de cada uno de los componentes del Sistema de Control Interno y las actividades de seguimiento correspondientes. Dicha metodología es descrita en el Manual de Autoevaluación de la Municipalidad de Heredia.
