@@ -1,0 +1,5 @@
+DIRECCIÓN GENERAL DE SERVICIO CIVIL
+DG-AV-004-2019
+I.—DG-039-2019: Prorrogar la delegación de la funcionaria Alexandra Solís Solís, quien ocupa el puesto de Encargada del Proceso de Gestión de Empleo en la Unidad de Gestión Institucional de Recursos Humanos del Instituto sobre Alcoholismo y Farmacodependencia (IAFA), como responsable en esa Institución, y en tanto ocupe este cargo, de la ejecución, firma y aprobación de todos los actos y movimientos de personal, para los cuales se encuentra delegada la señora Guiselle Ramírez Solano, mediante las Resoluciones DG-091-2014 y sus prórrogas, durante las ausencias de la facultada titular.
+II.—DG-070-2019: Modifica el Manual Descriptivo de Especialidades Docentes, Resolución DG-399-2010, en las especialidades: Agroecología, Agropecuaria en Producción Agrícola, Agropecuaria en Producción Pecuaria, Riego y Drenaje de manera que en el apartado “Atinencias Académicas” se incluyan la carrera “Diplomado en Producción Agropecuaria Bajo Riego”.
+San José, 21 de marzo del 2019.
