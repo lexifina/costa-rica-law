@@ -1,0 +1,4 @@
+MUNICIPALIDAD DE TALAMANCA
+El Concejo Municipal de la Municipalidad de Talamanca mediante Sesión Ordinaria N° 157 del 25 de junio de 2019, adoptó el Acuerdo N° 5, que indica lo siguiente:
+El Concejo Municipal de Talamanca acuerda acoger propuesta presentada por la Asociación Conservación del Planeta sobre la Campaña Caribe Sur Libre de Plásticos, para que no sea solo El Caribe Sur sino en todo el cantón y declarar al cantón de Talamanca libre de plásticos de un solo uso, con el fin de apoyar las medidas adoptadas por el gobierno y por todos los estamentos y las instituciones públicas del estado para que Costa Rica pueda disminuir el consumo de plásticos y así dar solución a la gran cantidad de desechos que terminan en los ríos, playas y mares. Publíquese en el Diario Oficial La Gaceta. Acuerdo aprobado por unanimidad.
+Ciudad de Bribrí, Talamanca, 27 de junio de 2019.
