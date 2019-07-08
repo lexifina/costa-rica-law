@@ -1,0 +1,6 @@
+Artículo 5°-Responsabilidades del Fiduciario. Será responsabilidad del Fiduciario lo iguiente:
+1. Tramitar en tiempo y forma las solicitudes presentadas por la Gestión de Trata de Personas y Tráfico Ilícito de Migrantes de la Dirección General de Migración y Extranjería en su labor de apoyo técnico a la Secretaría Técnica de la CONATT, correspondientes al giro inicial.
+2. Revisar y validar que las liquidaciones hayan sido realizadas conforme al presente Reglamento. En caso de detectarse alguna inconsistencia deberá de forma inmediata comunicar y devolverla a la Gestión de Trata de Personas y Tráfico Ilícito de Migrantes en su labor de apoyo técnico a la Secretaria Técnica de la CONATT para que se proceda con su corrección o aclaración.
+3. Tramitar en un plazo no menor de dos días hábiles después de haber recibido la documentación original, los reintegros de dinero, de aquellas liquidaciones que cumplan con las disposiciones de este Reglamento.
+4. Realizar arqueos y/o revisiones periódicas y sin previo aviso, de los recursos girados a las personas autorizadas para el uso de este Fondo de Contingencias.
+5. Velar que el uso de los recursos se realice de conformidad con lo establecido en este Reglamento y en cumplimiento de la Ley N° 9095 y su Reglamento.
