@@ -14,3 +14,4 @@ Crea el Programa de Transferencias monetarias condicionadas para estudios denomi
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-02-27 | la propia norma |
+| 2 | 2019-07-09 | Decreto Ejecutivo 41839 (2019-07-09) |
