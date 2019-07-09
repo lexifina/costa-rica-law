@@ -1,0 +1,2 @@
+Artículo 9- Alianzas con propietarios de otros establecimientos
+Las distribuidoras podrán instalar centros de recarga en alianza con los actores públicos, privados o ambos y cuando exista se podrá aprovechar la infraestructura disponible para lo cual podrán establecer figuras de alquiler, convenios y otros, según lo permita su marco legal, verificando el cumplimiento de lo establecido en el artículo 10º de este Decreto.

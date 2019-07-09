@@ -1,0 +1,1 @@
+Artículo 5- Competencias. Corresponde al MINAE, de conformidad con el artículo 4º inciso e) y en cumplimiento del artículo 31 de la Ley de Incentivos y Promoción para el Transporte Eléctrico, emitir directrices para la construcción y funcionamiento de los centros de recarga, y verificar su cumplimiento.
