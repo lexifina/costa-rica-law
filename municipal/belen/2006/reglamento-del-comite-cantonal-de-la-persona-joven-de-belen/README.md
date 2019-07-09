@@ -15,3 +15,4 @@ Reglamento del Comité Cantonal de la Persona Joven de Belén
 | --- | --- | --- |
 | 1 | 2007-02-07 | la propia norma |
 | 2 | 2017-06-06 | Reglamento municipal 33 (2017-06-06) |
+| 3 | 2019-07-09 | Reglamento municipal 41 (2019-07-09) |
