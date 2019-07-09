@@ -1,2 +1,0 @@
-Articulo 20.—
-Los interesados en la adjudicación de una zona o espacio para estacionamiento permanente lo solicitarán por escrito en papel sellado de un colón con timbre de la Municipalidad de Montes de Oca de Ë 5,00 dirigido al Jefe de Sección, indicando la aluvial de la empresa o establecimiento comercial, nombre de su propietario o representante legal. La ubicación de la zona (por calle y avenida), del negocio y de la i o espacio solicitado y tiempo de ocupación. Además el ofrecimiento de pago por adelantado y las razones convenientes que justifiquen la solicitud.
