@@ -1,0 +1,2 @@
+Artículo 16.-Representación. El oferente podrá concurrir por sí mismo o a través de un representante, en cuyo caso, deberá hacer indicación expresa de tal circunstancia en la propuesta.
+Una vez adjudicado en firme, en caso de que en el plazo conferido a esos efectos el adjudicatario no acredite su representación, el acto de adjudicación se declarará insubsistente y de ser posible, se re adjudicará a la segunda mejor opción.

@@ -1,0 +1,3 @@
+Artículo 61.-Documentos a aportar. Toda oferta contendrá las siguientes declaraciones, sin perjuicio de cualquier otra documentación de la misma naturaleza, que Correos, requiera en el cartel. En el caso de las declaraciones, se harán bajo la gravedad de juramento y no será necesario rendirlas ante notario público, salvo que lo requiera el cartel para casos excepcionales. Estas serán admisibles en documento separado o bien como parte del texto de la propuesta.
+a) Declaración jurada de que se encuentra al día en el pago de los impuestos nacionales.
+b) Declaración jurada de que el oferente no está afectado por ninguna causal de prohibición.

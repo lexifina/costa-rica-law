@@ -1,0 +1,1 @@
+Artículo 78.-Plazo para comunicar el acto final. Una vez emitido el acto final por el órgano competente, Compras y Contrataciones tendrá un plazo de tres días hábiles para comunicarlo por los mismos medios que se cursó la invitación. En ese caso, basta indicar en el aviso, el número de concurso, descripción sucinta del objeto, el adjudicatario y el monto.

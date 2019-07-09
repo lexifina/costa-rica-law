@@ -1,0 +1,4 @@
+Artículo 12.-Exceso en los límites del procedimiento. Cuando se haya determinado una Contratación Especial con fundamento en la estimación preliminar del negocio y posteriormente las ofertas presentadas superen los límites para la aplicación del procedimiento respectivo, no se invalidará el concurso, si este exceso no supera el 30% y Correos disponga de los recursos presupuestarios suficientes para asumir la erogación.
+Si existen varias ofertas elegibles, para efectos de adjudicación no se considerarán las que superen el citado 30% y se escogerá dentro de aquellas que se ubiquen por debajo de ese porcentaje.
+Los oferentes cuya propuesta supere el 30% podrán rebajar para efectos del trámite y posterior ejecución, el precio hasta ese límite, sin embargo, para la comparación se considerará el monto original.
+Igual criterio se aplicará para contrataciones excluidas de los procedimientos, bajo el criterio de contratación directa por monto.

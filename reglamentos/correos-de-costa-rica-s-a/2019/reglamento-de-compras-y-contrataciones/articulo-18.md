@@ -1,0 +1,1 @@
+Artículo 18.-Verificación del régimen de prohibiciones. Correos solicitará a los oferentes una declaración jurada no protocolizada de que no se encuentran cubiertos por este régimen, así como cualquier otro documento que considere pertinente.

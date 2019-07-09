@@ -1,0 +1,2 @@
+Artículo 60.-Jurisdicción. Todos los contratistas se someten a la jurisdicción y tribunales nacionales para todas las incidencias que de modo directo o indirecto puedan surgir del contrato, con renuncia a su jurisdicción.
+También podrá acordar la aplicación de la Ley para la Resolución Alterna de Conflictos y Promoción de la Paz Social, para solución de diferencias patrimoniales, que no comprometan sus potestades.

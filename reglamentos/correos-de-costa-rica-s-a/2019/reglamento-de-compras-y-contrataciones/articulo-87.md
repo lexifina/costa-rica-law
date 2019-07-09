@@ -1,0 +1,2 @@
+Artículo 87.-Invitación. Correos deberá invitar a un mínimo de tres proveedores del bien o servicio, quienes deberán estar inscritos o no en el registro de proveedores.
+Correos, estudiará las ofertas presentadas, incluyendo la de aquellos proveedores no invitados. Los proveedores no invitados, sino se encuentran inscritos en el Registro de Proveedores, deberán lograr su inscripción antes de la formalización del contrato o notificación de la orden de compra

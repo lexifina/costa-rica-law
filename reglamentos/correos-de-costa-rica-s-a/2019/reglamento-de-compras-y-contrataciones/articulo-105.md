@@ -1,0 +1,3 @@
+Artículo 105.-Trámite. La actividad contractual excluida de los procedimientos concursales de contratación, se basa en la negociación directa con los proveedores, y cuando sea posible deberá adaptarse, en lo pertinente, a los principios generales de contratación administrativa, a los requisitos previos que correspondan y a las normas básicas sobre el cartel y la oferta.
+A excepción de los supuestos de proveedor único y exclusivo, actividad ordinaria e interés manifiesto de colaborar con Correos, se deberá verificar que el eventual contratista no esté cubierto por el régimen de prohibiciones.
+El mecanismo de selección del contratista, así como su aplicación han de ser expeditos, prácticos y ajenos a plazos cuya extensión desvirtúen su naturaleza.

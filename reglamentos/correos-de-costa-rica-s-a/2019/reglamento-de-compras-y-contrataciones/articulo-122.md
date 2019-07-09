@@ -1,0 +1,2 @@
+Artículo 122.-Proveedor inactivo. Es aquél que habiendo sido invitado a participar no lo hiciere en tres ocasiones sin mediar justa causa, en el término de un año, contados a partir de la primera invitación; asimismo aquel que se negare a actualizar la información del Registro cuando se le haya pedido. Dicha condición de inactivo operara en forma automática.
+En cualquier tiempo el proveedor inactivo podrá solicitar el cambio de su condición y en tal caso ocupará en el registro el lugar que por rol corresponda.

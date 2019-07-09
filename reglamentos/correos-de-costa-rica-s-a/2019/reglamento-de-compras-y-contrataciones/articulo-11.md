@@ -1,0 +1,2 @@
+Artículo 11.-Fragmentación. Correos no podrá fraccionar sus operaciones respecto a necesidades con el propósito de evadir el procedimiento de contratación que corresponde.
+La fragmentación se presume ilícita cuando, contándose en un mismo momento dentro del presupuesto ordinario con los recursos necesarios y habiéndose planificado las necesidades administrativas concretas, se realiza más de una contratación para el mismo objeto, con los efectos de evadir un procedimiento más complejo.
