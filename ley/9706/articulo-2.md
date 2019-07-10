@@ -1,0 +1,7 @@
+ARTÍCULO 2- Inaplicación de sanciones posteriores
+La Administración Tributaria no podrá iniciar ningún procedimiento administrativo para imponer sanciones, mora, intereses, multas o cualquier otra disposición sancionatoria establecida en la Ley N.º 4755, Código de Normas y Procedimientos Tributarios, de 3 de mayo de 1971, por inconsistencias o inexactitud que deriven de la declaración, la liquidación, el pago, la aplicación de créditos fiscales u otras diferencias en la determinación o el cálculo del impuesto al valor agregado durante los meses que estuvo vigente la moratoria señalada en el artículo 1 de esta ley.
+La presente moratoria no será aplicable en los casos de fraude a la Hacienda Pública regulado en el artículo 92, o infracciones calificadas como muy graves conforme al artículo 81, ambos de la Ley N.º 4755, Código de Normas y Procedimientos Tributarios, de 3 de mayo de 1971 o en aquellos supuestos que se determine que existió una maniobra tendiente a evitar el pago del impuesto.
+Esta disposición aplicará para los procesos de fiscalización, control, gestión o cualquier otra actuación administrativa de la Administración Tributaria.
+La moratoria no exime al contribuyente de realizar la declaración, la liquidación y el pago del impuesto al valor agregado, ni del pago del monto principal que la Administración Tributaria determine.
+Rige a partir de su publicación.
+Dado en la Presidencia de la República, San José a los ocho días del mes de julio del año dos mil diecinueve.
