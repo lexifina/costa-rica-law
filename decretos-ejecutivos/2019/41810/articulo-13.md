@@ -1,0 +1,1 @@
+Artículo 13°—El Jurado estará presidido por la Presidenta Ejecutiva del INAMU o su representante, quien ejercerá el doble voto en caso de tres empates consecutivos. En la primera sesión del Jurado, sus integrantes elegirán una persona para que ejerza la Secretaría, quien levantará las actas y tramitará la correspondencia.

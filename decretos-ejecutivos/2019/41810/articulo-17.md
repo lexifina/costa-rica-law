@@ -1,0 +1,1 @@
+Artículo 17°—Cuando una persona integrante del Jurado se ausente injustificadamente a dos sesiones consecutivas, ya sean ordinarias o extraordinarias, la Presidencia del Jurado solicitará su sustitución a la institución que le haya nombrado.

@@ -1,0 +1,1 @@
+Artículo 19°—En caso de que hayan sido postuladas investigaciones periodísticas o científico-sociales, realizadas por parientes por consanguinidad o afinidad hasta el tercer grado de alguna de las personas representantes del Jurado, ésta deberá ser sustituida.

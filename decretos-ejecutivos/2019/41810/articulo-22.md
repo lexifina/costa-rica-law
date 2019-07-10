@@ -1,0 +1,6 @@
+Artículo 22°—Podrán ser postuladas aquellas investigaciones periodísticas o investigaciones científico-sociales con enfoque de género, que utilicen lenguaje inclusivo y respetuoso de las diferencias sociales, culturales, sexuales, étnicas y etáreas de las mujeres, así como sus discapacidades físicas y mentales o por cualquier otra condición; que fomenten la igualdad y equidad entre mujeres y hombres, y se enmarquen en el cumplimiento de al menos uno de los siguientes propósitos:
+a) Visualizar en forma positiva el aporte de las mujeres al desarrollo económico, social, político y cultural, y su participación a favor de una sociedad democrática y justa.
+b) Fomentar un cambio en los roles estereotipados entre mujeres y hombres.
+c) Denunciar las situaciones de discriminación y violencia que se ejercen en contra de las mujeres, en concordancia con los principios y valores que han sido reconocidos en los instrumentos jurídicos internacionales de protección a los derechos humanos.
+d) Mostrar experiencias sobre organización, liderazgo, empoderamiento, autonomía e independencia, autoestima y solidaridad de las mujeres.
+e) Acreditar el aporte de las mujeres a la historia, la política, la educación, el deporte, la ciencia, la cultura y a las luchas por la reivindicación de sus derechos.

@@ -1,0 +1,1 @@
+Artículo 30°—La designación de la investigación ganadora, se hará mediante votación debidamente argumentada y por mayoría absoluta. Asimismo, si a juicio del Jurado ninguno de los materiales presentados reúne los méritos necesarios para obtener el Premio, el mismo se declarará desierto.

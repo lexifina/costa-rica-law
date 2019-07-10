@@ -1,0 +1,1 @@
+Artículo 18°—Las personas integrantes del Jurado, durante el ejercicio de sus funciones no podrán postular sus propias investigaciones científico-sociales o periodísticas, y tampoco podrán postular otras investigaciones para optar por el Premio.

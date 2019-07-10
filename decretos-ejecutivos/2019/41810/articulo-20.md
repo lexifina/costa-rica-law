@@ -1,0 +1,1 @@
+Artículo 20°—En caso de que hayan sido postuladas investigaciones científico-sociales o periodísticas, realizadas o financiadas por una de las instituciones que conforman el Jurado, la representación institucional de esta instancia deberá abstenerse de revisar y calificar la investigación.

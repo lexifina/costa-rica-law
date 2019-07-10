@@ -1,0 +1,1 @@
+Artículo 6°—El Premio se otorgará cada dos años de forma alterna, iniciando con una convocatoria sólo para investigaciones periodísticas y en la convocatoria siguiente, sólo para investigaciones científico-sociales y así sucesivamente.

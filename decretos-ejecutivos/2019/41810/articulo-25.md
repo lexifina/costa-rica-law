@@ -1,0 +1,1 @@
+Artículo 25°—La entrega de los requisitos indicados en el artículo anterior, se hará en el horario y lugar que el INAMU señale para tal efecto en la convocatoria y podrá realizarse hasta el último día laborable del mes de abril.

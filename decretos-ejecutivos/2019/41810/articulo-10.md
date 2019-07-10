@@ -1,0 +1,1 @@
+Artículo 10°—En el caso de la investigación científico-social, el Premio se podrá entregar en una sola categoría: producción escrita, la cual incluirá libros, artículos publicados en Revistas Científicas Indexadas, o documentos derivados de Trabajos Finales de Graduación.

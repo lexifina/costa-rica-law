@@ -1,0 +1,1 @@
+Artículo 31°—El Jurado otorgará un solo Premio Nacional por la Igualdad y Equidad de Género Ángela Acuña Braun, tanto en la modalidad de investigación periodística como en la de investigación científico-social.

@@ -1,0 +1,1 @@
+Artículo 28°—Previo a la valoración de las investigaciones periodísticas o científico sociales postuladas, el Jurado revisará si estas cumplen con los requisitos de admisibilidad consignados en el presente Decreto Ejecutivo. En caso de no cumplirlos, el Jurado declarará la no admisibilidad de la investigación para concursar por el Premio.
