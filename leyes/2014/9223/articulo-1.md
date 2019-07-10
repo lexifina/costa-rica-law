@@ -1,4 +1,5 @@
 N° 9223
+(Nota de Sinalevi: Mediante resolución de la Sala Constitucional N° 012745 del 10 de julio de 2019, se anuló la presente norma únicamente en lo que respecta a los territorios comprendidos en la zona boscosa, conforme lo dispuesto por la Procuraduría General de la República en sus informes. En virtud de lo anterior, se ordena al Sistema Nacional de Áreas de Conservación que proceda, dentro del plazo de doce meses, contado a partir de la publicación íntegra de este pronunciamiento en el Boletín Judicial, a delimitar el área antes mencionada y, en conjunto con la Procuraduría General de la República, ejercer las acciones legales correspondientes en defensa del patrimonio público. Esta declaratoria de inconstitucionalidad tendrá efecto declarativo y retroactivo a la fecha de vigencia de la norma, todo sin perjuicio de derechos adquiridos de buena fe.)
 LA ASAMBLEA LEGISLATIVA
 DE LA REPÚBLICA DE COSTA RICA, DECRETA:
 RECONOCIMIENTO DE LOS DERECHOS DE LOS
