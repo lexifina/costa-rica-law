@@ -1,0 +1,1 @@
+Artículo 16.—Colocación de señalamiento táctil. Para garantizar el recorrido urbano accesible, especialmente para las personas con una reducción visual parcial o total, los propietarios de bienes inmuebles deberán colocar losetas de concreto táctil según lo establecido en la norma INTE 03-01-17-08 Ed2, emitida por INTECO.

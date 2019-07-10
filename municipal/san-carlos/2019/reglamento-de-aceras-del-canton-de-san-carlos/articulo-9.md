@@ -1,0 +1,1 @@
+Artículo 9º—Cuando se incumplan las obligaciones dispuestas en el artículo 84 del Código Municipal, la Municipalidad cobrará trimestralmente al munícipe los montos actualizados anualmente correspondientes a las multas que se refiere el artículo 85.
