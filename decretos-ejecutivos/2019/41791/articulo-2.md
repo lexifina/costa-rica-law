@@ -1,0 +1,1 @@
+Artículo 2.- Se faculta a las dependencias del Sector Público y del Sector Privado, para que dentro de sus competencias y en estricto apego al ordenamiento jurídico, brinden la cooperación y las facilidades necesarias para el buen suceso de la actividad indicada.
