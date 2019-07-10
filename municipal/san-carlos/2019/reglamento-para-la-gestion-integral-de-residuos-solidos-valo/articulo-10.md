@@ -1,0 +1,4 @@
+Artículo 10. Alianzas con Gestores de residuos sólidos valorizables
+a) Se pueden establecer convenios con gestores de residuos sólidos que estén legalmente establecidos, registrados ante el Ministerio de Salud y capaces de certificar el tratamiento correcto de los residuos sólidos valorizables y su trazabilidad.
+b) Los gestores de residuos sólidos valorizables que tengan convenios con la Municipalidad deben brindar un informe trimestral de sus funciones donde se describa:
+cantidad de material acopiado de cada fibra, cantidad de material valorizado por fibra, lista de ciudadanos, organizaciones o empresas colaboradoras, la forma de ejecución del servicio, las certificaciones o comprobantes vigentes emitidos por las empresas a las que venden los residuos y cualquier otra información que se considere pertinente.

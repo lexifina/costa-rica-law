@@ -1,0 +1,2 @@
+CAPÍTULO XI Fiscalización y sanciones
+Artículo 36. Sanciones y denuncias: La aplicación de multas, sanciones y denuncias será de conformidad con la legislación vigente, incluyendo la opción de solicitar a las autoridades que los hubieren otorgado, la suspensión, revocación o cancelación de las licencias, permisos y registros necesarios para la realización de las actividades que hayan dado lugar a la comisión de la infracción.

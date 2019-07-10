@@ -1,0 +1,3 @@
+CAPÍTULO IX. Incentivos
+Artículo 23. Sobre la obligatoriedad de la elaboración del programa de residuos por parte de los generadores: Para aplicar al otorgamiento de incentivos el generador debe contar con un programa de residuos sólidos para sus actividades y actualizarlo cada dos años.
+Los requisitos y el contenido de los programas se sujetarán al protocolo de implementación establecido por el Ministerio de Salud Pública. En caso de ser requerido, la Municipalidad cuenta con un formato de dicho plan y una guía práctica para su elaboración, el cual está disponible de forma digital en la página web municipal o en el Departamento de Gestión Ambiental.

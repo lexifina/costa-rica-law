@@ -1,0 +1,1 @@
+Artículo 22. Residuos peligrosos domiciliares: Los residuos peligrosos que se producen en los hogares deben ser separados de los residuos sólidos valorizables en la fuente de generación y ser entregados al servicio de salud público más cercano debidamente identificados y en recipientes seguros y apropiados según el tipo de residuos.

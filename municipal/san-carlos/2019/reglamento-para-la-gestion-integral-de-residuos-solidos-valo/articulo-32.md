@@ -1,0 +1,1 @@
+Artículo 32. Suspensión del incentivo otorgado: La Municipalidad puede suspender el incentivo otorgado a cualquier generador si comprueba la no continuidad de la acción por la cual lo recibió o se presente un incumplimiento al reglamento, el responsable de iniciar el proceso será un funcionario del Departamento de Gestión Ambiental.
