@@ -1,0 +1,1 @@
+Artículo 39. - Los patentados deberán presentar la declaración jurada, copia de declaración de renta y copia de declaración informativa y registro de detalle de dicha declaraciones correspondientes al período al cual están presentando el respectivo formulario.

@@ -1,0 +1,5 @@
+Artículo 7º—Todas las actividades lucrativas reguladas en este Reglamento, empresariales, comerciales y/o de servicios, de cualquier tipo, que se desarrollen o se vayan a desarrollar en el cantón, además de cumplir con los requisitos generales y especiales que se tendrán como condiciones obligatorias de funcionamiento:
+a) Disponer de sitios, local o locales con características y condiciones que deberán ser acordes y adecuadas a la naturaleza de la actividad a desarrollar, lo cual dependiendo de la actividad de que se trate incluye:
+• Planta física adecuada y en buenas condiciones de uso.
+• Condiciones y facilidades de parqueo y estacionamiento que cumplan con la normativa aplicable, especialmente con las regulaciones establecidas en la Ley de Construcciones y su Reglamento.
+• Cumplir con todas las disposiciones de accesibilidad contempladas en la Ley Nº 7600 y su Reglamento; de manera que se garantice el acceso y el libre tránsito de las personas y los vehículos por las aceras y las calles del cantón.

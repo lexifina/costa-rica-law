@@ -1,0 +1,1 @@
+Artículo 16. - El impuesto de Patente, deberá ser cancelado por trimestres adelantados. El atraso en la cancelación además de las sanciones que se contemplan en fracción de atraso, sin que pueda exceder a la tasa estipulada en ese momento.

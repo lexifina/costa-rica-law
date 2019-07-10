@@ -1,0 +1,1 @@
+Artículo 22. - La licencia solo podrá ser denegada en los casos previstos en el artículo 90 del Código Municipal, o no se cumpla con lo dispuesto en la ley de impuestos de patentes de la Municipalidad de Siquirres, su Reglamento y la normativa legal vigente.

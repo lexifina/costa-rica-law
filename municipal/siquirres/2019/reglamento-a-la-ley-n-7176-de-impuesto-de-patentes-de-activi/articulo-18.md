@@ -1,0 +1,2 @@
+Artículo 18. - Cuando en un mismo establecimiento dedicado a actividades lucrativas ejerzan actividades conjuntamente varias sociedades o personas jurídicas, el monto del impuesto lo determinará la suma de impuesto que corresponde a cada uno individualmente.
+A los efectos de este artículo, las personas físicas o jurídicas indicarán a la Municipalidad el nombre del patentado a quien se cobrará el impuesto o bien se debe cobrar a cada uno individualmente.

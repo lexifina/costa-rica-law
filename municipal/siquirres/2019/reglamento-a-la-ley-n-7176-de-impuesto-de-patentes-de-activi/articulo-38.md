@@ -1,0 +1,1 @@
+Artículo 38. - La Municipalidad deberá suministrar a los patentados, los formularios en forma física o digital así como la información necesaria para que pueda presentar la declaración a que se refiere el artículo anterior en forma adecuada a los fines de la Ley y con este Reglamento.

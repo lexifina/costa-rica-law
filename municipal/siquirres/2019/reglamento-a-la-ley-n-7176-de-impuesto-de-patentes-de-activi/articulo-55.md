@@ -1,0 +1,1 @@
+Artículo 55°. – El departamento de Patentes podrá denunciar ante los Tribunales de Justicia o al Ministerio Publico, los casos comprobados de defraudación o perjuicio a los cuales les serán aplicables los artículos 88, 89 y 91 del Código de Normas y Procedimientos Tributarios.

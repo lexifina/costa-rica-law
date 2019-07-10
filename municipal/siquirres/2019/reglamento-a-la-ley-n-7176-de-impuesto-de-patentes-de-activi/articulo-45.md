@@ -1,0 +1,1 @@
+Artículo 45. - Para fijar el monto del impuesto, la Sección de Patentes solicitará al interesado quien estará obligado a suministrar la información necesaria para establecer los factores de imposición.

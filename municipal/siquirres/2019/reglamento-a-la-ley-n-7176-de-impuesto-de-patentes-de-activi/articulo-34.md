@@ -1,0 +1,11 @@
+Artículo 34: Ingresos Brutos Presuntivos: La Municipalidad podrá establecer tasación con base a Renta bruta presunta, cuando existan indicios de fraudulencia en la información, o exista ausencia de información que sirva como parámetro claro del comportamiento del volumen de ingresos del negocio por lo que para determinar Los ingresos brutos presuntivos que corresponden al ingreso bruto anual que se determinara como resultado de actividad lucrativa. Estos ingresos se presumirán salvo prueba directa o indirecta que indique lo contrario de la siguiente forma:
+a) Prestación de servicios en forma liberal: todo profesional o técnico que preste servicios sin que medie relación de dependencia con sus clientes, que no presente declaración jurada municipal cuando corresponda y, por ende, no cancele el impuesto correspondiente, se presumirá que obtiene unos ingresos mínimos anuales de acuerdo con la clasificación siguiente:
+i) Médicos, odontólogos, arquitectos, ingenieros, abogados y notarios, agrimensores, contadores públicos, profesionales de las ciencias económicas y corredores de bienes raíces, el monto equivalente a cincuenta (50) salarios base.
+ii) Peritos, contadores privados, técnicos y, en general, todos los profesionales y técnicos, colegiados o no, que no se contemplan en el numeral anterior, el monto equivalente a treinta (30) salarios base.
+b) Transporte terrestre remunerado de personas y carga:
+i) Vehículos de carga con un peso bruto Vehicular igual o superior a cuatro mil (4.000) kilos veinticinco (250) salarios por cada vehículo.
+ii) Autobuses ciento cincuenta salarios (150) salarios base.
+iii) Microbuses treinta (30) salarios base.
+iv) Taxis y demás actividades de pequeña o mediana escala no indicadas en las categorías anteriores Cuarenta y cinco (45) salarios base.
+c) Actividades fuera de las indicadas con anterioridad Cincuenta (50) salarios base
+Las presunciones establecidas en este artículo no limitan las facultades de la administración tributaria para establecer los impuestos que realmente correspondan, por aplicar las disposiciones de esta Ley y del Código de Normas y Procedimientos Tributarios. La denominación salario base utilizada en este artículo, debe entenderse como la contenida en el artículo 2 de la Ley No. 7337.

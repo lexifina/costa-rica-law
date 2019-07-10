@@ -1,0 +1,2 @@
+Condiciones generales de operación
+Artículo 4º—No se podrán conceder licencias comerciales para la explotación de actividades lucrativas en casas de habitación, salvo que para efectuar la actividad comercial se separen totalmente el local comercial de la casa de habitación, se cumplan todos los requisitos sanitarios y de seguridad o que la actividad por su naturaleza no requiera de dichos requisitos.

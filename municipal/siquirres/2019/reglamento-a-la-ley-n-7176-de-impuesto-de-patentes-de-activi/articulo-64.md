@@ -1,0 +1,1 @@
+Artículo 64: Aplicación supletoria: En todo lo no regulado en la presente Ley y en lo que corresponda, se aplicará supletoriamente el Reglamento de Cobro Administrativo, extrajudicial y Judicial de la Municipalidad de Siquirres, Código de Normas y Procedimientos Tributarios y el Código Municipal.

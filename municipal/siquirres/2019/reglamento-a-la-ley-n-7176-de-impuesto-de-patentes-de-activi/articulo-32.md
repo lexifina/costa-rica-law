@@ -1,0 +1,1 @@
+Artículo 32. – El traslado y traspaso de las licencias se realizarán siempre y cuando se demuestre la legitimidad para explotar el establecimiento, que el nuevo local reúne los requisitos exigidos (cuando aplicaré); y si ambas partes están al día en el pago de tasas contribuciones, e impuestos municipales.

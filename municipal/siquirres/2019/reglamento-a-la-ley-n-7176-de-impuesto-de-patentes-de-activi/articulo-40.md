@@ -1,0 +1,1 @@
+Artículo 40. - La Declaración jurada para los fines de este Reglamento debe estar fundamentada en la declaración que el patentado presente ante el Ministerio de Hacienda para los efectos del impuesto sobre la Renta. La Municipalidad puede verificar ante el Ministerio de Hacienda los datos suministrados por el patentado.

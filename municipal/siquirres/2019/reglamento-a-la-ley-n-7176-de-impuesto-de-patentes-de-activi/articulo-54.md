@@ -1,0 +1,1 @@
+Artículo 54°. - El no pago del impuesto de patentes en los términos fijados en la Ley y este Reglamento, generará multas de 2% por cada mes o fracción de atraso, sin que pueda exceder en cada caso del 24% del monto adeudado.

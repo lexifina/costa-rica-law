@@ -1,0 +1,1 @@
+Artículo 23.-El Municipio previo a la aprobación de patentes comerciales de vinculadas con la distribución, comercialización y consumo de licor, deberá verificar que dichos establecimientos cumplen con las condiciones para otorgar la respectiva licencia de Licores.
