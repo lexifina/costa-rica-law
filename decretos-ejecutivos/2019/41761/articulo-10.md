@@ -1,0 +1,1 @@
+Artículo 10.—Transparencia y rendición de cuentas. La Comisión hará uso de medios de comunicación digitales y escritos para ejecutar acciones de transparencia y rendición de cuentas en sus procesos, gestión y logros. Además, la Comisión presentará un informe anual detallado al Ministro de Trabajo y Seguridad Social.

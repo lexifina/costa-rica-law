@@ -1,0 +1,4 @@
+Artículo 5°—Objetivos de la Comisión. La Comisión tendrá los siguientes objetivos:
+a) Articular las acciones, planes, programas y proyectos de las instituciones públicas que intervienen en procesos de empleabilidad, empleo, empresariedad y trabajo para la formulación, diseño e implementación conjunta y articulada de políticas públicas inclusivas para la empleabilidad y el trabajo de personas con discapacidad.
+b) Emitir recomendaciones a las máximas jerarquías de las entidades públicas, para la mejora de las políticas públicas inclusivas para la empleabilidad, el empleo, la empresariedad y el trabajo de personas con discapacidad.
+c) Dar seguimiento y acompañamiento a la implementación de las políticas públicas inclusivas para la empleabilidad, el empleo, la empresariedad y el trabajo de las personas con discapacidad.
