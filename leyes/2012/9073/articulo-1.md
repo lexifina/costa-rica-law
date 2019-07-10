@@ -1,4 +1,6 @@
+(Anulada)
 N° 9073
+(Esta norma fue anulada por resolución de la Sala Constitucional N° 012746 del 10 de julio de 2019)
 LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
 DECRETA:
 LEY DE PROTECCIÓN A LOS OCUPANTES DE
