@@ -1,0 +1,1 @@
+Transitorio único.—DINADECO reglamentará la ejecución del Programa Interinstitucional para la Promoción del Desarrollo Económico Comunal (PRODECO), así como del Laboratorio de Innovación Comunal, en un plazo de 3 meses contados a partir de la publicación del presente Decreto Ejecutivo.
