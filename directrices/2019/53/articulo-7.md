@@ -1,0 +1,1 @@
+Artículo 7°—Se insta al resto de los órganos y entes de derecho público, constituidos por los Poderes Legislativo y Judicial, el Tribunal Supremo de Elecciones, sus dependencias, órganos auxiliares y entes públicos no estatales, en respeto de las disposiciones constitucionales y legales vigentes que les aplican, sumarse a los esfuerzos contenidos en la presente Directriz.

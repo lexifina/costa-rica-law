@@ -1,0 +1,1 @@
+Artículo 2°—La presente Directriz es de aplicación para la Administración Central, así como para el Sector Público descentralizado, y también para aquellas entidades de derecho privado sin fines de lucro que administren recursos públicos.
