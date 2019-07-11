@@ -1,0 +1,4 @@
+Artículo 4 A;
+1. Cada parte incluida en la lista que figura en el anexo VII prohibirá todos los movimientos transfronterizos de desechos peligrosos destinados a operaciones previstas en el anexo IV A, hacia los Estados no incluidos en la lista que figura en el anexo VII;
+2. Cada Parte incluida en la lista que figura en el anexo VII reducirá gradualmente y prohibirá a partir del 31 de diciembre de 2015, todos los movimientos transfronterizos de los desechos peligrosos descritos en el inciso a) de apartado i) del párrafo 1 del Convenio destinados a operaciones previstas en el anexo IV B, hacia Estados no incluidos en la lista que figura en el anexo VII. Solo se prohibirán esos movimientos transfronterizos de desechos si presentan características peligrosas con arreglo a las disposiciones del Convenio.”
+(Así adicionado por el artículo único de la Ley para ratificar enmienda III/A Convenio de Basilea, N° 9681 del 29 de abril del 2019)
