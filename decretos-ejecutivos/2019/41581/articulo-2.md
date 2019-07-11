@@ -1,0 +1,2 @@
+Artículo 2º—El documento oficial que contiene el Plan de Descarbonización Compromiso del Gobierno del Bicentenario puede ser accedido vía web a través de la siguiente dirección: https://cambioclimatlico.go.cr/ o bien, en formato físico, cuyo documento estará disponible en la oficina de Dirección de Cambio Climático del Ministerio de Ambiente y Energía.
+(Nota de Sinalevi: por lo extenso de su contenido y tipo de formato el Plan de Descarbonización, puede ser consultado en el siguiente Link)

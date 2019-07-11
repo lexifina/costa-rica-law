@@ -1,0 +1,16 @@
+N° 41581-MINAE
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE AMBIENTE Y ENERGIÍ
+En uso de las atribuciones que les confieren el artículo 140 de la Constitución Política en sus incisos 3)y 18); el artículo 28.2b de la Ley General de Administración Pública N2 6227 de 2 de mayo de 1978 y sus reformas;
+Considerando:
+I.—Que nuestro país se ha propuesto sentar las bases de una nueva economía verde del siglo XXI, que promueve el uso y aprovechamiento sostenible de los recursos naturales, en aras de cumplir con los compromisos adquiridos en la Agenda 2030 de desarrollo.
+II.—Que la administración Alvarado Quesada, ha elaborado un “Plan de Descarbonización Compromiso del Gobierno del Bicentenario”, el cual está siendo utilizado como la base para la construcción del Plan Nacional de Desarrollo e Inversiones Públicas (2018-2022), y el Plan Estratégico Costa Rica 2050 (Estrategia de Largo Plazo), lo cual alimentará el sistema de ambición y transparencia del país, y será la base para la actualización y mejora de nuestras próximas Contribuciones Nacionalmente Determinadas o NDCs.
+III.—Que las acciones de dicho plan se presentan en 10 ejes sectoriales con paquetes de políticas en tres periodos: inicio (2018-2022), inflexión (2023- 2030) y despliegue masivo (2031-2050), así como 8 Estrategias transversales para potenciar el cambio.
+IV.—Que estos 10 ejes trazan rutas de cambio en las áreas claves para revertir el crecimiento de emisiones de gases de efecto invernadero, así como fomentar la modernización y dinamización de la economía bajo una visión de crecimiento verde.
+V.—Que para consolidar este proceso de cambio transformacional, se requiere modernizar la institucionalidad, el marco fiscal, el sistema educativo bajo enfoques integrales, con consideraciones sociales, financieras, ambientales y tecnológicas que se buscan abordar con las estrategias transversales, lo cual alimentará la actualización y formulación de nuevas políticas sectoriales, y el sistema de inversión pública del país.
+VI.—Que por tales razones, mediante Decreto Ejecutivo N°41561-MP-MINAE, publicado en el Diario Oficial La Gaceta, Alcance N° 40 del 20 de febrero de 2019, se emitió la Declaratoria de Interés Público y Nacional del “Plan de Descarbonización Compromiso del Gobierno del Bicentenario”.
+VII.—Que el Gobierno de la República considera de importancia que el Plan de Descarbonización Compromiso del Gobierno del Bicentenario sea un instrumento oficial que permita su implementación mediante la coordinación desde la Presidencia de la República, con apoyo del Ministerio de Planificación MIDEPLAN, el Ministerio de Ambiente y Energía MINAE, y el Ministerio de Hacienda. Por tanto,
+Decretan:
+“Oficialización del Plan de Descarbonización Compromiso
+del Gobierno del Bicentenario”
+Artículo 1º—El Poder Ejecutivo, consciente de la importancia que genera para la sociedad el uso de tecnologías limpias, aspirando a ser una economía moderna, verde, libre de emisiones, resiliente e inclusiva, oficializa el “Plan de Descarbonización Compromiso del Gobierno del Bicentenario” como instrumento para trazar las rutas de cambio en las áreas claves para revertir el crecimiento de emisiones de gases de efecto invernadero, así como fomentar la modernización y dinamización de la economía bajo una visión de crecimiento verde.
