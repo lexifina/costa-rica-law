@@ -1,0 +1,1 @@
+Artículo 7º—El Ministerio de Justicia y Paz, suscribirá con los operadores y con los terceros, según sea el caso, los acuerdos de confidencialidad permanentes que se consideren necesarios, en el marco de las soluciones reguladas por este Reglamento.

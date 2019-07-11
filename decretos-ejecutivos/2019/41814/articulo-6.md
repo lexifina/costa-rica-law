@@ -1,0 +1,2 @@
+Artículo 6º—Los operadores serán responsables en caso de falla técnica de la solución instalada, mientras que el Ministerio de Justicia y Paz, será responsable de los daños ocasionados a los equipos por vandalismo a lo interno de los centros penitenciarios.
+Sin detrimento de las obligaciones contenidas en el ordenamiento jurídico, la Superintendencia de Telecomunicaciones, realizará las mediciones de espectro radioeléctrico según sus competencias.

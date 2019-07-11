@@ -1,0 +1,1 @@
+Artículo 3º—Los operadores de redes y proveedores de servicios de telecomunicaciones tendrán la posibilidad de escoger las tecnologías por utilizar, en concordancia con el Principio de Neutralidad Tecnológica, contenido en la Ley Nº 8642, Ley General de Telecomunicaciones, siempre y cuando se cumplan los fines establecidos por ley.

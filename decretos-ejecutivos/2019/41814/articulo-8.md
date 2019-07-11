@@ -1,0 +1,1 @@
+Artículo 8º—Los operadores deberán facilitar al Ministerio de Justicia y Paz, toda la información del diseño, el tipo de implementación y todas las disposiciones técnicas de la misma, la cual será de carácter confidencial.
