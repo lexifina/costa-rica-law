@@ -1,6 +1,6 @@
 # Ley Orgánica del Ambiente
 
-Ley N° 7554 del 1995-10-04. SINALEVI, ficha 27738: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=27738&param2=113364&param3=1>.
+Ley N° 7554 del 1995-10-04. SINALEVI, ficha 27738: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=27738&param2=116998&param3=1>.
 
 Publicada en La Gaceta N° 215 del 1995-11-13.
 
@@ -16,3 +16,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 6 de 14 | 2010-07-13 | Ley 8839 | 2010-06-24 |
 | 7 de 14 | 2013-01-31 | Ley 9046 | 2012-06-25 |
 | 8 de 14 | 2018-08-29 | Ley 9590 | 2018-07-03 |
+| 9 de 14 | 2019-07-11 | Ley 9684 | 2019-05-13 |
