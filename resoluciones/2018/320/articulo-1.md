@@ -1,4 +1,6 @@
+(Revocada)
 AUTORIDAD REGULADORA DE LOS SERVICIOS PÚBLICOS
+(Esta norma fue revocada mediante resolución RE-0051-RG-2019 del 11 de julio de 2019)
 RESOLUCION RRG-320-2018
 San José, a las 10:00 horas del 5 de marzo de 2018
 Se delega temporalmente en la Reguladora General Adjunta, fungir como órgano decisor en los procedimientos que instruye la DGAU, así como la atención de todos los aspectos administrativos y de direccionamiento estratégico de esa dependencia, en relación con este Despacho.

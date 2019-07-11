@@ -14,3 +14,4 @@ Delega temporalmente en la Reguladora General Adjunta, fungir como órgano decis
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-03-12 | la propia norma |
+| 2 | 2019-07-11 | Resolución 51 (2019-07-11) |
