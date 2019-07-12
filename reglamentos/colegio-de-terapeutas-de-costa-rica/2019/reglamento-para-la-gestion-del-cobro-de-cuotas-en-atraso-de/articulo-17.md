@@ -1,0 +1,1 @@
+Artículo 17.—Efectos. Durante la vigencia del arreglo de pago, no se iniciará o, en su caso, se suspenderá la acción sancionatoria por incumplimiento del pago de las cuotas y la referencia de cuentas en atraso en sistemas de información crediticia.

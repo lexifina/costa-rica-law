@@ -1,0 +1,1 @@
+Artículo 13.—Información al público. El personal que participe en el Proceso de Cobro Administrativo, en el cumplimiento de sus funciones y sin detrimento del ejercicio de su autoridad, guardará el debido respeto a los interesados y al público en general e informará a aquellos, tanto de sus derechos como de sus deberes, orientándolos en el cumplimiento de sus obligaciones.

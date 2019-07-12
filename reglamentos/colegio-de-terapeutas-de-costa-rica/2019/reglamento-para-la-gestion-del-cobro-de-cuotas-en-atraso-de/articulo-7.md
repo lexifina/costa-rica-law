@@ -1,0 +1,1 @@
+Artículo 7º—Contrato de confidencialidad. Toda persona que lleve a cabo consultas y actualización de datos personales debe haber firmado, previamente, un contrato de confidencialidad con el Colegio, en el que se explique el obligado conocimiento y aplicación del presente reglamento y de toda la normativa aplicable al tratamiento de datos personales por parte del Colegio.

@@ -1,0 +1,3 @@
+Transitorio II.—Todo arreglo de pago suscrito antes de la entrada en vigor de este reglamento se regirá por lo expresado en dicho acuerdo, siempre que el mismo esté siendo cumplido por la persona agremiada. En lo no regulado por escrito en dicho acuerdo, se aplicará lo que establezca el presente reglamento.
+Aprobado por la Junta Directiva del Colegio de Terapeutas de Costa Rica, mediante acuerdo número 2019-0011-10 de la sesión extraordinaria número 2019-0011 celebrada el 28 de mayo de 2019 y revisado mediante acuerdo número 2019-0012-25 de la sesión ordinaria número 2019-0012 celebrada el 07 de junio de 2019.
+Autorizan para su publicación en el Diario Oficial La Gaceta:

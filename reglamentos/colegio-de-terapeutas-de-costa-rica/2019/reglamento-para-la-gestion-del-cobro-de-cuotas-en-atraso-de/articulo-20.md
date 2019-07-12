@@ -1,0 +1,1 @@
+Artículo 20.—Lineamientos ejecutivos. Quien ocupe la Dirección Ejecutiva, previa autorización por parte de la Junta Directiva del Colegio de Terapeutas de Costa Rica, podrá emitir las directrices, circulares o instrucciones que estime pertinentes para el adecuado cumplimiento de este reglamento.

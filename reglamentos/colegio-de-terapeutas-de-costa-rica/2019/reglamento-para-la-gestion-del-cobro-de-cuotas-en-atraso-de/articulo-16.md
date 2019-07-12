@@ -1,0 +1,2 @@
+Artículo 16.—Condiciones básicas. Para suscribir cualquier arreglo de pago, el monto total adeudado deberá ser mayor o igual al equivalente a 6 cuotas al momento del arreglo.
+La persona agremiada deberá cancelar, como mínimo, un monto equivalente a la mitad de las cuotas adeudadas en el momento de la suscripción, y deberá comprometerse a pagar el monto restante en un máximo de 6 tractos mensuales alícuotas sucesivos, en fechas determinadas. Además de los tractos acordados, deberá pagarse, de manera puntual, cada mensualidad sucesiva durante la vigencia del arreglo.

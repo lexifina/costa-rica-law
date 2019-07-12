@@ -1,0 +1,2 @@
+Artículo 10.—Inclusión y exclusión de cuotas en atraso en sistemas de información crediticia. La Junta Directiva delega en el Departamento de Cobros el mantenimiento y actualización de los datos que figuren en los sistemas de información crediticia.
+En caso de ser requerido, podrá contarse con la colaboración del Departamento Financiero-Contable. En ningún caso se incluirán referencias por menos de 6 meses de cuotas en atraso, ni antes de 30 días naturales a partir de la notificación de cobro administrativo.

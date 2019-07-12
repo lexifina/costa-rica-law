@@ -1,0 +1,1 @@
+Artículo 9º—Estado de atraso. Corresponde a las personas colaboradoras del Departamento de Cobros y de la Plataforma de Servicios la actualización diaria de la base de datos del Colegio en cuanto al estado de atraso de las personas agremiadas. El arreglo de pago suscrito no excluye el estado de atraso.
