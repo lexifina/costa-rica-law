@@ -14,3 +14,4 @@ Comunica emisión de resoluciones de la Dirección General del Servicio Civil (D
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-03-15 | la propia norma |
+| 2 | 2019-07-12 | Resolución 12 (2019-07-12) |
