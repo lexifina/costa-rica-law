@@ -5,7 +5,8 @@ b) Departamento de Primero y Segundo Ciclos.
 c) Departamento de Tercer Ciclo y Educación Diversificada.
 d) Departamento de Educación de Personas Jóvenes y Adultas.
 e) Departamento de Evaluación de los Aprendizajes.
-f) Departamento de Educación Especial.
+f) Departamento de Apoyos Educativos para el Estudiantado con Discapacidad.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 42058 del 15 de julio del 2019)
 g) Departamento de Educación Intercultural.
 h) Departamento de Educación Religiosa.
 Adicionalmente, la Dirección tendrá adscrita una Unidad denominada Alta Dotación, Talentos y Creatividad. Los Departamentos y Unidades que conforman la Dirección de Desarrollo Curricular ejercerán sus competencias y atribuciones en estricto apego a los acuerdos adoptados por el Consejo Superior de Educación (CSE) y los lineamientos que la Administración determine.
