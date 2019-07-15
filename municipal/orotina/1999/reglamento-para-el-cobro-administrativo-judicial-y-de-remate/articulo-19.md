@@ -1,1 +1,0 @@
-Artículo 19.—Cuando un abogado tenga que ausentarse de su bufete por más de ocho días hábiles, deberá previamente comunicarlo a la Oficina de Cobros por escrito y sugerir cual abogado quedará a cargo de los casos que le fueron encomendados para cualquier duda o consulta que se presente por parte de la institución.

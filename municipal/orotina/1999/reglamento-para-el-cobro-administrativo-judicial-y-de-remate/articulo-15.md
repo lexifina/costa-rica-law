@@ -1,1 +1,0 @@
-Artículo 15.—El abogado deberá excusarse de atender la dirección de un juicio cuando tuviere vínculos familiares, comerciales o patrimoniales con el demandado, lo cual comunicará por escrito a la Oficina de Cobros dentro de las cuarenta y ocho horas siguientes de recibida la documentación respectiva y devolver ésta de inmediato a dicha oficina.
