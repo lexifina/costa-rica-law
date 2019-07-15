@@ -13,3 +13,4 @@ Plan de Vacaciones Colectivas del Poder Judicial 2018-2019. Lineamientos para la
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-12-14 | la propia norma |
+| 2 | 2019-07-15 | Circular 116 (2019-07-15) |
