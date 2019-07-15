@@ -14,3 +14,4 @@ Fija tarifas para los servicios postales que brinda la empresa Correos de Costa 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-10-31 | la propia norma |
+| 2 | 2019-07-15 | Resolución 66 (2019-07-15) |
