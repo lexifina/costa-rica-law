@@ -18,3 +18,4 @@ Registro y Plazo extraordinario de regularización de trabajadores y trabajadora
 | 3 | 2016-07-04 | Decreto Ejecutivo 40067 (2016-07-04) |
 | 4 | 2017-10-24 | Decreto Ejecutivo 40718 (2017-10-24) |
 | 5 | 2018-11-06 | Decreto Ejecutivo 41429 (2018-11-06) |
+| 6 | 2019-07-15 | Decreto Ejecutivo 41908 (2019-07-15) |
