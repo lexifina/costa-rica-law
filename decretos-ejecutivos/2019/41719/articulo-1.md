@@ -13,3 +13,4 @@ Decretan:
 PRÓRROGA DEL PLAZO ESTABLECIDO EN EL DECRETO EJECUTIVO NO.
 41429-MGP-MTSS-MAG DE 06 DE NOVIEMBRE DE 2018
 Artículo 1 º-Se extiende el plazo para el registro de patronos y empresas del sector agrícola dispuesto para la regularización extraordinaria de trabajadores y trabajadoras migrantes, N º 41429-MGP-MTSS-MAG de 06 de noviembre de 2018, por tres meses más, contados a partir del 07 de mayo del dos mil diecinueve.
+(Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 41908 del 15 de julio del 2019, se acordó extender el plazo para el registro de patronos y empresas del sector agrícola dispuesto para la regularización extraordinaria de trabajadores y trabajadoras migrantes, establecido en el presente decreto ejecutivo, por doce meses más, contados a partir del 15 de julio del 2019.)
