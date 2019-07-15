@@ -14,3 +14,4 @@ Reglamento del acueducto de la Municipalidad de Orotina
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-11-13 | la propia norma |
+| 2 | 2019-07-15 | Reglamento municipal 264 (2019-07-15) |
