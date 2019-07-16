@@ -20,3 +20,4 @@ Manual Procedimientos Administración Personal Docente
 | 6 | 2012-01-19 | Decreto Ejecutivo 37261 (2012-01-19) |
 | 7 | 2012-12-07 | Decreto Ejecutivo 37569 (2012-12-07) |
 | 8 | 2013-04-24 | Decreto Ejecutivo 37763 (2013-04-24) |
+| 9 | 2019-07-16 | Decreto Ejecutivo 41901 (2019-07-16) |
