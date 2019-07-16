@@ -14,3 +14,4 @@ Reglamento de Organización del Registro Inmobiliario (Registro Público de la P
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-10-13 | la propia norma |
+| 2 | 2019-07-16 | Decreto Ejecutivo 41959 (2019-07-16) |
