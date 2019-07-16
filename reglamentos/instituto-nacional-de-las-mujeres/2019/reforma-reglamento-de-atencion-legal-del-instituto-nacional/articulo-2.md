@@ -1,0 +1,2 @@
+Artículo 2º—Se procede a modificar la redacción del artículo 1°, de la siguiente manera:
+Artículo 1º—Objeto. Esta norma regula los servicios legales que presta el INAMU en razón de sus fines, atribuciones y deberes legales. Este Reglamento será de acatamiento obligatorio para la elaboración de coadyuvancias en los procesos que afecten los derechos de las mujeres; en los casos que el INAMU asuma la Representación Legal en el marco de lo dispuesto en la Ley N° 7586, así como en aquellos procesos asociados a la defensa de los derechos de las mujeres.”
