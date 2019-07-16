@@ -1,0 +1,1 @@
+Artículo 4º— Recomendación técnica: En los casos en que se requiera una recomendación técnica de un órgano especializado, conforme lo establezca la legislación que ampare el beneficio fiscal, el sistema Exonet redirecciona la solicitud automáticamente al ente cuando el interesado realiza la solicitud.
