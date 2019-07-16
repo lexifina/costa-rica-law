@@ -1,0 +1,1 @@
+Artículo 14. Cobro del Servicio de Recolección de Residuos: Por la actividad lucrativa de ventas estacionarias se cobrará trimestralmente conjuntamente con el pago del impuesto de patente la tarifa correspondiente a la tasa del Servicio de Recolección de Residuos Comerciales.

@@ -1,0 +1,2 @@
+Artículo 28. Transitorio. En razón de que el artículo 218 bis de la ley 5395 establece que, para obtener permiso de Salud para venta temporal de productos alimenticios en sitios públicos, el Ministerio del ramo deberá generar un reglamento especial y que aún no se ha generado esa normativa, queda prohibido el expendio de licencias para tal fin, esto en forma transitoria, hasta que se emitan las citadas disposiciones, momento en que harán las modificaciones pertinentes a este instrumento.
+Rige a partir de su publicación.

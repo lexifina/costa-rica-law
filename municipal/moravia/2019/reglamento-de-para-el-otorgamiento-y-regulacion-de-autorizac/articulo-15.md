@@ -1,0 +1,1 @@
+Artículo 15. Reubicación de las ventas estacionarias. La Municipalidad se reserva el derecho de reubicar las ventas estacionarias se pretenda construir obras o cualquier otra circunstancia que a juicio de la municipalidad considere pertinente para realizar la reubicación, basada en razones de utilidad y necesidad pública.

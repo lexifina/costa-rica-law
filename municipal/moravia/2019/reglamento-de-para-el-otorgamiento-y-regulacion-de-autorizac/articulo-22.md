@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Disposiciones Finales
+Artículo 22. Revocación de autorizaciones de ventas ambulantes y estacionarias. De conformidad con el artículo 154 de la Ley General de la Administración Pública, la revocación de la Autorización Comercial se hará mediante un procedimiento administrativo sumarísimo y no generará ningún tipo de responsabilidad por parte de la Municipalidad. El acto de revocación deberá ser emitido por la Alcaldía en coordinación con el Departamento de Patentes de la Municipalidad y deberá estar debidamente motivado en razones de interés o necesidad pública. Dicho acto no podrá ser arbitrario y debe ser notificado personalmente con al menos quince días de anticipación a la fecha en que deberá finalizar la actividad.

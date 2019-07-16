@@ -1,0 +1,1 @@
+Artículo 25. Tanto en el caso de la revocación directa, como en los casos de revocación por reincidencia el Departamento de Patentes elevará el asunto al Alcalde Municipal con copia certificada del expediente, para que mediante procedimiento sumario se proceda formalmente con la revocación de la autorización.

@@ -1,0 +1,3 @@
+CAPÍTULO II
+De las Autorizaciones Comerciales
+Artículo 2. De las autorizaciones. Para ejercer una actividad comercial en los espacios públicos detallados en el artículo 8 de este reglamento, en forma ambulante o estacionaria, se deberá contar con la respectiva autorización municipal, la cual se otorgara por el plazo de dos años, con posibilidad de prórroga. No se podrá realizar actividad comercial en lugares donde la ley o este reglamento señalen prohibición para el ejercicio del comercio o bien en lugares donde el desarrollo de las mismas atente contra la seguridad ciudadana, el libre tránsito peatonal y vehicular, la salud pública, el medio ambiente, ordenamiento y paisajismo urbano, la moral y las buenas costumbres.

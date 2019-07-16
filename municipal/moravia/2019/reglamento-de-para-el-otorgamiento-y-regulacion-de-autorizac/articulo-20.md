@@ -1,0 +1,1 @@
+Artículo 20. Es terminantemente prohibido la utilización de las ventas estacionarias para la distribución de propaganda política, religiosa, comercial y en general de cualquier actividad diferente al giro normal del comercio.

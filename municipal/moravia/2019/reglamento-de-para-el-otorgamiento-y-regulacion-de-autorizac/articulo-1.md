@@ -1,0 +1,18 @@
+MUNICIPALIDAD DE MORAVIA
+El Concejo Municipal de Moravia, según acuerdo N° 1968-2019 tomado en la sesión ordinaria N° 171 del 27 de mayo del 2019, aprobó en definitiva Reglamento para el otorgamiento y regulación de autorizaciones de ventas ambulantes y estacionarias en espacios públicos del Cantón de Moravia, según se transcribe:
+REGLAMENTO DE PARA EL OTORGAMIENTO Y REGULACIÓN DE
+AUTORIZACIONES DE VENTAS AMBULANTES Y ESTACIONARIAS EN
+ESPACIOS PÚBLICOS DEL CANTÓN DE MORAVIA
+CAPÍTULO I
+De las Definiciones
+Artículo 1. Definiciones: Cuando se utilicen en este reglamento los términos y definiciones que a continuación se citan, debe dárseles los significados que a continuación se detallan:
+a) Autorización Comercial: Es la autorización a título precario que concede la Municipalidad para ejercer una actividad lucrativa de venta ambulante y/o estacionaria en un espacio público, conforme con lo establecido en la Ley Nº 6587 y este reglamento.
+b) Espacio Público: Para efectos de este reglamento se considerarán espacios públicos todas las calles municipales del cantón y las demás áreas señaladas en este reglamento.
+c) Venta Ambulante: Se refiere a la actividad comercial realizada por aquellas personas físicas que cuentan con la respectiva autorización municipal para ejercer el comercio exclusivamente ambulante en las calles municipales del cantón de Moravia, conforme los requisitos definidos en este instrumento.
+d) Venta estacionaria: Se refiere a la actividad comercial realizada por aquellas personas físicas que cuentan con la respectiva autorización municipal para ejercer el comercio exclusivamente en los espacios públicos detallados en este reglamento. Se exceptúan de esta regulación las ventas estacionarias que se realicen en la Feria del Agricultor, las cuales se encuentran reguladas por normativa especial.
+e) Hecho generador: Desarrollo de una actividad comercial autorizada por este reglamento, sea en forma ambulante o estacionaria en los espacios públicos establecidos en este reglamento.
+f) Estudio socioeconómico: Valoración administrativa que realiza la Municipalidad de Moravia mediante el Área de Gestión Social a efecto de determinar si las condiciones socioeconómicas de una persona física le hacen candidato a obtener una autorización para realizar ventas estacionarias o ambulantes en espacios públicos.
+g) Pobreza: Es la situación de no poder, por falta de recursos, satisfacer las necesidades físicas y psíquicas básicas de una vida digna, como la alimentación, la vivienda, la educación, la asistencia sanitaria, el agua potable o la electricidad.
+h) Pobreza extrema: Es el estado más bajo de la pobreza y que incluye a toda persona que no alcanza a cubrir el costo mínimo de alimentos en determinado tiempo.
+i) Grupo familiar: Para efectos de este reglamento, se refiere al conjunto de personas conformantes de un núcleo familiar unidos por regla general por un vínculo sanguíneo con lazos familiares de primer y segundo grado y excepcionalmente unidos por un vínculo de afinidad, también en línea de primer y segundo grado.
+j) Situación de desgracia o infortunio temporal: Para los efectos de este Reglamento, se define la desgracia o el infortunio como aquellos acontecimientos inesperados y/o imprevisibles que amenacen gravemente la integridad física y emocional de un habitante o habitantes de Moravia, provocados por hechos de la naturaleza tales como, terremotos, huracanes, tornados, terraplenes, inundaciones, derrumbes e incendios no intencionados; o bien por hechos derivados de condiciones socioeconómicas patológicas, como muerte, enfermedad crónica, miseria extrema o indigencia y desempleo, que afecten directamente a la persona o familia solicitante.

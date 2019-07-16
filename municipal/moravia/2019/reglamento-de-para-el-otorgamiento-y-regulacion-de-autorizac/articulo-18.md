@@ -1,0 +1,1 @@
+Artículo 18. Por tratarse de derechos en precario personalísimos, queda prohibida la cesión de las autorizaciones, sea esta en forma gratuita u onerosa. De darse esta situación se cancelará la autorización, bastando para tal efecto la instrucción de un procedimiento administrativo sumarísimo.
