@@ -14,3 +14,4 @@ Reglamento para la Adjudicación de Becas de la Municipalidad de Santa Ana a Est
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-07-26 | la propia norma |
+| 2 | 2019-07-16 | Reglamento municipal 168 (2019-07-16) |

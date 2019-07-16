@@ -1,1 +1,2 @@
-Artículo 7º—Durante el proceso de entrega de formularios de solicitud de beca, los y las encargadas de este proceso deberán aclarar a los y las solicitantes que el llenar la solicitud no les da automáticamente derecho a obtener la beca. Esta aclaración debe estar contenida en los formularios que se pongan a disposición del público.
+Artículo 7.-Los solicitantes deberán completar digitalmente los formularios respectivos, para acceder a las becas, el hecho de completar la información no otorga el derecho al auxilio.
+(Así reformado en sesión N° 168 del 16 de julio de 2019)

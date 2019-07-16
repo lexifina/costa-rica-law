@@ -1,1 +1,2 @@
-Artículo 17.—Las fechas para el depósito de la beca así como la entrega de la misma en efectivo o cheque, quedará sujeto a la calendarización que para estos efectos realice el Departamento de Tesorería.
+Artículo 17.-Las fechas para el depósito de la beca, quedará sujeto a la calendarización que para estos efectos realice el Departamento de Tesorería.
+(Así reformado en sesión ° 168 del 16 de julio de 2019)
