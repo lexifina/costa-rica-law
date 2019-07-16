@@ -1,0 +1,3 @@
+Artículo 26. Finiquito
+Luego de finalizada la etapa de ejecución y no mediando ningún asunto pendiente, las partes están facultadas para suscribir un finiquito que las exima de reclamos posteriores de cualquier tipo.
+El documento de finiquito de la asociación empresarial será elaborado por la Unidad Ejecutora con la asesoría de la Dirección de Contratación Administrativa de la Dirección Corporativa Jurídica, según corresponda y deberá ser incluido en el expediente.

@@ -1,0 +1,2 @@
+Artículo 13. Viabilidad Jurídica
+Con base en la información aportada por el Proponente, una vez determinado el alineamiento de la propuesta en los términos indicados en el artículo 8, la Dirección Corporativa Jurídica analizará si el esquema de implementación establecido para la asociación empresarial es congruente con el tipo de negocio propuesto y además, si cumple con los presupuestos vigentes en términos jurídicos, emitiendo para ello el criterio legal respectivo.
