@@ -1,2 +1,2 @@
-Artículo 17.—Rescisión unilateral. En cualquier momento, el Banco podrá rescindir unilateralmente el contrato de los abogados por motivos de interés público, caso fortuito o fuerza mayor, de conformidad con lo dispuesto en los artículos 206 y 208 del Reglamento a la Ley de contratación administrativa.
+Artículo 17 - Rescisión unilateral. En cualquier momento, el Banco podrá rescindir unilateralmente el contrato de los abogados por motivos de interés público, caso fortuito o fuerza mayor, de conformidad con lo dispuesto en el Reglamento a la Ley de contratación administrativa.
 En caso de que el abogado sea suspendido del ejercicio de la función, el Banco aplicará las reglas y plazos establecidos en el artículo 14 de este Reglamento.

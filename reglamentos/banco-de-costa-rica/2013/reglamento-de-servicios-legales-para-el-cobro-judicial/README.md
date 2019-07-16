@@ -15,3 +15,4 @@ Reglamento de servicios legales para el cobro judicial
 | --- | --- | --- |
 | 1 | 2013-02-19 | la propia norma |
 | 2 | 2013-11-11 | Reglamento 44 (2013-11-11) |
+| 3 | 2019-07-16 | Reglamento 31 (2019-07-16) |

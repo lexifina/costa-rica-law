@@ -1,2 +1,5 @@
-Artículo 11.—Monto y oportunidad del pago. El monto de los honorarios y la forma de pago se realizarán de conformidad con lo establecido en el arancel de honorarios publicado por el Colegio de Abogados y Abogadas de Costa Rica, vigente al momento de la presentación de la demanda.
+Artículo 11 - Monto y oportunidad del pago. El monto de los honorarios será la tarifa establecida en el Arancel de honorarios por servicios profesionales de abogacía y notariado, la cual corresponde al 50% de la Tarifa General establecida en el Arancel de honorarios por servicios profesionales de abogacía y notariado.
+La forma de pago se realizará según el tipo de proceso, a saber:
+a. En procesos ejecutivos: se paga el 50% contra resolución que da curso a la demanda y el 50% restante contra firmeza del remate o si cumplidos los trámites para su celebración no se realiza en virtud de arreglo o cancelación de la deuda.
+b. En procesos monitorios: se paga el 50% contra resolución que da curso a la demanda, el 25% contra sentencia en firme y el 25% restante contra la firmeza del remate o la aprobación de la liquidación, si no hay bienes.
 De presentarse diferencias en el monto de los honorarios, es deber del abogado aclararlas. En todo caso, el abogado será responsable ante el Banco por cualquier suma adicional que se le cancele erróneamente por este concepto.
