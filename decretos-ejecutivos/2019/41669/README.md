@@ -14,3 +14,4 @@ Amplía el plazo establecido en el Transitorio Único del Decreto Ejecutivo N° 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-05-09 | la propia norma |
+| 2 | 2019-07-16 | Decreto Ejecutivo 41907 (2019-07-16) |

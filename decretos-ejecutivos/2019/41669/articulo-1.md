@@ -9,3 +9,4 @@ III.—No obstante, los esfuerzos realizados por el Poder Ejecutivo, se continú
 IV.—Que se procedió a llenar el Formulario de Evaluación Costo Beneficio, Sección I, denominada Control Previo de Mejora Regulatoria, siendo que el mismo dio un resultado negativo y la propuesta no contiene trámites ni requisitos. Por tanto,
 Decretan:
 Artículo 1º—Ampliar el plazo establecido en el Transitorio Único del Decreto Ejecutivo N° 41479-MAG de 11 de diciembre del 2018, publicado en La Gaceta N° 08 de 11 de enero del 2019 hasta por dos meses más, que vencen el 11 de junio del 2019.
+(Nota de Sinalevi: Mediante el artículo 1° el decreto ejecutivo N° 41907 del 16 de julio del 2019, se acordó ampliar el plazo anterior por tres meses más, es decir, hasta el 30 de noviembre del 2019)
