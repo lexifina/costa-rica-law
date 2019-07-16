@@ -1,3 +1,3 @@
 DISPOSICIONES TRANSITORIAS
 Único. - El Poder Ejecutivo contará con el plazo de tres meses contado a partir de la publicación del presente Decreto para emitir una nueva regulación sobre la utilización de la capacidad de pesca de Atún de Cerco reconocida a Costa Rica en el seno de la Comisión Interamericana del Atún.
-(Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 41669 del 5 de abril del 2019, se acordó ampliar por dos meses más el plazo establecido en el presente transitorio, hasta el 11 de junio del 2019)
+(Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 41669 del 5 de abril del 2019, se acordó ampliar por dos meses más el plazo establecido en el presente transitorio, hasta el 11 de junio del 2019. Posteriormente mediante el artículo 1° del decreto ejecutivo N° 41907 del 16 de julio del 2019, se acordó ampliar el plazo anterior por tres meses más, es decir, hasta el 30 de noviembre del 2019)

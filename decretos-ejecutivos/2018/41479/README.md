@@ -15,3 +15,4 @@ Derogatoria del Reglamento para la utilización de la capacidad de pesca de Atú
 | --- | --- | --- |
 | 1 | 2019-01-11 | la propia norma |
 | 2 | 2019-04-05 | Decreto Ejecutivo 41669 (2019-04-05) |
+| 3 | 2019-07-16 | Decreto Ejecutivo 41907 (2019-07-16) |
