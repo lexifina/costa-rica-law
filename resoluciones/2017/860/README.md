@@ -15,3 +15,4 @@ Solicitud de recolección de firmas para convocar a referéndum, por gestión ci
 | --- | --- | --- |
 | 1 | 2017-02-01 | la propia norma |
 | 2 | 2017-06-06 | SINALEVI (sin norma nombrada) |
+| 3 | 2019-07-17 | SINALEVI (sin norma nombrada) |

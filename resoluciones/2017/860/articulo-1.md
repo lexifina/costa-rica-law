@@ -1,5 +1,6 @@
-(Suspendida)
+(Anulada)
 TRIBUNAL SUPREMO DE ELECCIONES
+(Esta norma fue anulada por resolución de la Sala Constitucional, N° 013270 del 17 de julio de 2019)
 (Nota de Sinalevi: Mediante resolución de la Sala Constitucional, N° 8368 del 6 de junio de 2017, se indica suspender los efectos de las resoluciones del Tribunal Supremo de Elecciones, números 8455-E9-2016 y 860-E9-217, y todo acto de ejecución en ellas dispuesto. Asimismo, se ordena al Tribunal Supremo de Elecciones abstenerse de dictar nuevos actos tendientes a autorizar la realización de un proceso de referéndum respecto de todo proyecto de ley relacionado con la convocatoria de una Asamblea Nacional Constituyente, hasta tanto la Sala Constitucional resuelva por el fondo la presente acción de inconstitucionalidad.)
 N.° 860-E9-2017.- TRIBUNAL SUPREMO DE ELECCIONES. San José, a las diez horas del veintisiete de enero de dos mil diecisiete.
 Solicitud de recolección de firmas presentada por el señor Alex Solís Fallas para convocar a referéndum, por gestión ciudadana, la iniciativa denominada “Ley que convoca a una Asamblea Constituyente”.
