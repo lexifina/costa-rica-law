@@ -1,0 +1,1 @@
+Artículo 26.—Para hacer llegar sus argumentaciones escritas a la oficina indicada, sobre el proyecto de modificación tarifaría, los interesados tendrán un plazo de diez días hábiles antes del día de la celebración de la audiencia.

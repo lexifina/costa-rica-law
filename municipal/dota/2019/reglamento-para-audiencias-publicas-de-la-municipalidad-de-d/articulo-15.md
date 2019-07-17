@@ -1,0 +1,1 @@
+Artículo 15.—El Alcalde Municipal nombrará un funcionario, quien actuará como secretario con instrucciones del Director, quien levantará un acta de la audiencia pública. En caso de que la audiencia se realice en sesión extraordinaria del Concejo Municipal, esta función la asume el secretario del Concejo Municipal.

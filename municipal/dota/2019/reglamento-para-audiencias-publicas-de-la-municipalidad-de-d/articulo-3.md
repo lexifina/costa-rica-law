@@ -1,0 +1,1 @@
+Artículo 3º—Será obligatoria la celebración de audiencias públicas, para finalizar los proyectos de establecimiento y actualización de tarifas ordinarias de servicios públicos y también para la creación de reglamentos nuevos que afecten a los munícipes.

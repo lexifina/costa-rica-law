@@ -1,0 +1,1 @@
+Artículo 9º—El proyecto que se someterá a audiencia pública estará disponible al público en la página web de la municipalidad y la oficina correspondiente, en formato digital, para que los interesados puedan estudiarlo y presentar por escrito (de forma física o digital) observaciones con criterio técnico.

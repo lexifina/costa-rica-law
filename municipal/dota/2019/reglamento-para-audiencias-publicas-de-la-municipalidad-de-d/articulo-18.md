@@ -1,0 +1,1 @@
+Artículo 18.—La audiencia pública iniciará con una presentación del estudio tarifario o reglamento, la explicación del mismo para todos los presentes, su justificación, implicaciones y alcance, con un máximo de tiempo de 1 hora.

@@ -1,0 +1,1 @@
+Artículo 16.—En caso de que la audiencia no se programe en una sesión extraordinaria del Concejo Municipal, este deberá nombrar y comisionar a un miembro del mismo Concejo para que asista a la audiencia como fiscalizador del proceso, debiendo entregar un informe.

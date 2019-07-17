@@ -1,0 +1,1 @@
+Artículo 10.—Las oposiciones habrán de formularse por escrito y se sustentarán oralmente con las razones de hecho y de derecho que sean pertinentes. Las observaciones serán recibidas en la oficina del departamento correspondiente o por correo electrónico, a más tardar 10 días hábiles antes de la audiencia.
