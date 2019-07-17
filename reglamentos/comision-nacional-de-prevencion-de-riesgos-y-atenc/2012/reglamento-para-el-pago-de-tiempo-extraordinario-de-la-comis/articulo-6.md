@@ -1,2 +1,0 @@
-Artículo 6º—Procedencia del pago de tiempo extraordinario: Procederá el pago de horas extras una vez que se finalice la jornada ordinaria de trabajo. El cálculo del pago de la jornada extraordinaria se iniciará a partir del cumplimiento de la primera hora de tiempo extraordinario. Vencida la primera hora, la Administración reconocerá el pago a partir del cumplimiento de cada fracción de treinta minutos de tiempo extraordinario.
-(Así reformado mediante acuerdo N° 508-10-2013 publicado en La Gaceta N° 234 del 4 de diciembre del 2013)

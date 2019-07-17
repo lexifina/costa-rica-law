@@ -1,1 +1,0 @@
-Artículo 16.—Plazo para el pago de extras. Las horas extra laboradas en el mes de diciembre de cada año que no puedan ser canceladas en ese mismo mes podrán serlo con cargo al presupuesto ordinario del año siguiente. El Departamento de Desarrollo Humano tendrá como límite el mes de enero para realizar el trámite de dichos pagos.

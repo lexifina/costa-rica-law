@@ -1,1 +1,0 @@
-Artículo 18.—Del pago y la no compensación de horas extras. Las Direcciones, Departamentos y otras unidades institucionales considerarán el trabajo de tiempo extraordinario de sus funcionarios siempre y cuando la correspondiente asignación presupuestaria esté plenamente asegurada. Se prohíbe la compensación de tiempo extraordinario por tiempo ordinario.
