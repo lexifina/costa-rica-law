@@ -1,0 +1,1 @@
+Artículo 52. Comunicación de los productos: El resultado de los servicios de auditoría se comunicarán mediante informes, los cuales serán básicamente de dos tipos: de control interno, incluidos los de seguimiento de recomendaciones y de responsabilidades o relaciones de hechos.

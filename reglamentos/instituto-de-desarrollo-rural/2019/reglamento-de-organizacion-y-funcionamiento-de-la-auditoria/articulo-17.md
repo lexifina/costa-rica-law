@@ -1,0 +1,2 @@
+Artículo 17. Dirección y administración: La Auditoría Interna estará bajo la responsabilidad de un Auditor Interno y un Subauditor Interno, Jefe y Subjefe respectivamente.
+Corresponde al Auditor Interno la dirección superior y administración de la Auditoría Interna. El auditor y Subauditor internos dependerán orgánicamente del máximo jerarca, quién los nombrará y establecerá regulaciones de tipo administrativo que les serán aplicables a dichos funcionarios.

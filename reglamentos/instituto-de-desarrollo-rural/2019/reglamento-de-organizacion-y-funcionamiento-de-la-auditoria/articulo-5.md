@@ -1,0 +1,1 @@
+Artículo 5. Obligación de contar con Auditoría Interna: De acuerdo el artículo 31 de la Ley Nº 9036, el Instituto contará con una Auditoría Interna, la que ejercerá vigilancia y fiscalización constantes de todas sus dependencias, así como las demás funciones y atribuciones que le corresponden, de conformidad con la ley y su Reglamento.

@@ -1,0 +1,2 @@
+Artículo 59. Relación de hechos: La auditoría interna deberá comunicar oportunamente la relación de hechos con las consideraciones finales y el legajo de prueba original o copia certificada a la instancia competente para ordenar el inicio del procedimiento administrativo, conforme la normativa específica que le sea aplicable, con la advertencia de que deben tenerse presentes los plazos de prescripción que correspondan.
+Cuando remita el legajo original deberá conservar una copia certificada de toda la documentación.

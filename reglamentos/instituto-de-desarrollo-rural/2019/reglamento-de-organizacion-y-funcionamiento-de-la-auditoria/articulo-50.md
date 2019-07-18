@@ -1,0 +1,1 @@
+Artículo 50. Confidencialidad de la información: La Auditoría Interna tratará con el debido cuidado toda información, documentación y otras evidencias que respaldan las investigaciones que efectúe. Esta reserva no se aplicará a los requerimientos de la C.G.R. en el ejercicio de su competencia fiscalizadora, así tampoco cuando haya solicitud expresa de la autoridad competente.

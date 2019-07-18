@@ -1,0 +1,2 @@
+Artículo 68. Plan de trabajo anual: Este plan entrará en vigor a partir del primer mes del año a que corresponde, debe ser congruente con la planificación estratégica, la normativa reglamentaria y técnica.
+Además, debe someterse a un proceso continuo de valoración del riesgo. El plan de trabajo anual, puede modificarse sin perjuicio de que se atiendan sugerencias que le manifieste la Junta Directiva y la obligación que le asiste al Auditor Interno de dialogar y exponer su contenido y su relación con el plan estratégico de fiscalización.

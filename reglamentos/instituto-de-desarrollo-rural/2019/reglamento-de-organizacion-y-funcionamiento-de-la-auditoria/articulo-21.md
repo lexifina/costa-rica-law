@@ -1,0 +1,14 @@
+Artículo 21. Deberes del Auditor Interno: Sin perjuicio de otras obligaciones que le encomiende la Junta Directiva atinentes a sus labores de asesoría y fiscalización, y las establecidas en el manual de cargos del INDER, son deberes del Auditor Interno:
+a) Programar, coordinar, dirigir y controlar la Auditoría Interna. Para ello dictará los lineamientos, directrices, políticas e instrucciones pertinentes y aplicará criterios adecuados en el ejercicio de las competencias y en las relaciones con los sujetos pasivos.
+b) Conocer, aprobar y dar trámite a los informes que se produzcan como resultado de las auditorías que se realicen, poniéndolos en conocimiento de la Junta Directiva, Presidencia Ejecutiva, Gerencia o titulares subordinados según corresponda.
+c) A solicitud de parte interesada, asesorar en forma oportuna en asuntos de su competencia, a la Junta Directiva, al resto de la administración y al personal bajo su cargo.
+d) Definir, establecer y mantener actualizadas las políticas, procedimientos y prácticas requeridas por la Auditoría Interna para cumplir con sus competencias, considerar en cada caso lo relativo a los procesos que ejecuta, para controlar que el funcionamiento de la Auditoría interna no se vea limitada por impedimentos que pongan en duda o peligro la objetividad e independencia de sus actuaciones.
+e) Definir, establecer y mantener actualizadas las políticas, procedimientos y prácticas de acceso y custodia de la documentación de la Auditoría interna, en especial de la información relativa a los asuntos de carácter confidencial que se estipulan en el artículo 6 de la Ley General de Control lnterno Nº 8292 y el artículo 8 de la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función
+Pública Nº 8422.
+t) Formular, gestionar y mantener vigente el Reglamento de Organización y Funcionamiento de la Auditoría lnterna.
+g) Establecer y velar por la aplicación de un programa de aseguramiento de la calidad para la Auditoría Interna.
+h) Presentar ante la Junta Directiva un informe anual de la ejecución del plan de trabajo anual, y del estado de las recomendaciones formuladas por la Auditoría interna, la C.G.R. y de los despachos de contadores públicos.
+i) Diseñar, documentar e implantar los procesos de servicios que presta la Auditoría Interna, referidos a los servicios de fiscalización posterior y los servicios preventivos, así como establecer instrumentos efectivos para su administración.
+j) Preparar el presupuesto anual de la Auditoría interna.
+k) Presentar el plan de trabajo anual, de la Auditoría Interna de conformidad con los lineamientos de la C.G.R. y proponer a la Junta Directiva, los requerimientos de recursos necesarios para ejecutar dicho plan.
+1) El Auditor Interno deberá establecer en el Manual administrativo y técnico, los procedimientos administrativos y mecanismos específicos para la operación de sus funciones.

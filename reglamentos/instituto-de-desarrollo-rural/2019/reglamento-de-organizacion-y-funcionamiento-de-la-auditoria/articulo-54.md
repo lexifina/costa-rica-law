@@ -1,0 +1,1 @@
+Artículo 54. Relaciones de hechos: El informe de auditoría que se denomine relaciones de hechos solo tratará asuntos de los que puedan derivarse posibles responsabilidades administrativas o civiles y ha de contener los elementos necesarios para la identificación de los presuntos responsables, anomalías o irregularidades que se les atribuyan.

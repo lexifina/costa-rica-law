@@ -1,0 +1,1 @@
+Artículo 16. Jerarquía: Al Auditor Interno le corresponderá la dirección superior y administración de la Auditoría Interna. Al Subauditor, le corresponderá apoyar al Auditor en el descargo de sus funciones y lo sustituirá en sus ausencias temporales y deberá responder ante él por su gestión.
