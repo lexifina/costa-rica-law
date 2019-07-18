@@ -10,3 +10,5 @@ g) El interesado no cumpla con las disposiciones de esta ley y su reglamento.
 h) Medie dolo o culpa en el uso, custodia o vigilancia de un arma y se cause con ello lesiones o muerte a una persona menor de edad.
 La persona a la que se le haya cancelado el permiso para portar armas, por la causal establecida en este inciso, no podrá solicitar uno nuevo en un plazo de diez años.
 (Así adicionado el inciso h) anterior por el artículo único de la ley N° 8796 del 10 de marzo de 2010)
+i) Las personas portadoras de las armas que incurran en conductas de violencia doméstica, de conformidad con la Ley N.° 7586, Ley contra la Violencia Doméstica, de 10 de abril de 1996.
+(Así adicionado el inciso anterior por el artículo 2° de la ley N° 9692 del 9 de julio de 2019)
