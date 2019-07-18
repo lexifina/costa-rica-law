@@ -1,0 +1,10 @@
+MUNICIPALIDAD DE TARRAZÚ
+El Concejo Municipal de Tarrazú, de acuerdo con el artículo 43 del Código Municipal, y en vista de que en la Gaceta N° 75, del viernes 24 de abril del 2019 salió en consulta pública, por un plazo de diez días hábiles el Reglamento Municipal de Obra Menor de la Municipalidad de Tarrazú.
+Mediante el acuerdo N° 9, tomado por el Concejo Municipal de Tarrazú en sesión ordinaria 159-2019, celebrada el 30 de mayo del 2019, textualmente dice:
+Acuerdo #9: Dado que en la Gaceta N° 75, del miércoles 24 de abril del 2019 salió en consulta pública, por un plazo de diez días hábiles, el Reglamento Municipal de Obra Menor de la Municipalidad de Tarrazú, tomado mediante el acuerdo N° 4, de la sesión ordinaria 135-2018 del 13 de diciembre del 2018 y en vista de que no hubo oposición alguna, es que se da por aprobado, definitivamente, el Reglamento Municipal de Obra Menor de la Municipalidad de Tarrazú, quedando de la siguiente manera:
+REGLAMENTO MUNICIPAL DE OBRA MENOR
+MUNICIPALIDAD DE TARRAZÚ
+Ley de Construcciones (Ley N° 833) fue reformada mediante la Ley N° 9482 del 26 de setiembre del 2017 en los artículos 33, 41 y 83, donde establece que las Municipalidades deben elaborar un "Reglamento Municipal de Obra Menor", en este contexto se crea el presente reglamento, con la finalidad de lograr que el contribuyente se acerque a gestionar los trámites de permiso, obteniendo de esta forma que se garantice el control y la supervisión de cualquier construcción que se realice por parte de la Municipalidad.
+CAPÍTULO I
+Disposiciones generales
+Artículo 1. Objetivo. Normar y velar por el control y la supervisión de cualquier construcción menor a nivel local que se realice en la jurisdicción sin perjuicio de las facultades que las leyes conceden en esta materia a otros órganos administrativos, con el fin de lograr la seguridad, salubridad, protección ambiental y ornato de las estructuras o edificaciones. Aquellos aspectos en materia de construcción no regulados en el presente reglamento, se regirán por la legislación nacional vigente.

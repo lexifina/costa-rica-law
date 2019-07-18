@@ -1,0 +1,1 @@
+Artículo 2. Obligatoriedad de Tramitación: Las obras menores previo a su construcción deberán contar con la licencia expedida por la unidad municipal correspondiente, la cual tendrá la obligación de vigilar las obras para las que haya autorizado la licencia.

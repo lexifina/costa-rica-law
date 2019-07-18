@@ -1,0 +1,1 @@
+Artículo 14. Toda obra menor que se realice en el Cantón y que no cuente con el permiso de Construcción de Obra Menor, o con el Encargado Responsable de Obra, será clausurada, por funcionarios del Departamento de Desarrollo de Control Urbano o el inspector.

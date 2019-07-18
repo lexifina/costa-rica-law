@@ -1,0 +1,3 @@
+CAPÍTULO II
+Construcciones Menores
+Artículo 5. Se considerará obra menor, todo tipo de reparación, remodelación, arreglo, construcción, o similar avalada por el Departamento de Desarrollo de Control Urbano, que por sus características no altere los sistemas vitales de una casa o edificio, como el estructural, eléctrico, mecánico, datos y telefonía, cubiertas o similares y que, además, sea declarado de esta forma por la Municipalidad. El monto máximo permitido como construcción menor es el equivalente de 10 salarios base, calculado conforme a lo dispuesto en el artículo 2° de la Ley Nº 7337, de 5 de mayo de 1993, pero deberá contar con la licencia expedida por el Departamento de Desarrollo de Control Urbano de la Municipalidad de Tarrazú.
