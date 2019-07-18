@@ -1,1 +1,0 @@
-Artículo 10°.-El quórum de las sesiones se forma con cuatro de sus miembros. Los acuerdos se tomarán por mayoria de votos de los miembros presentes. El coordinador tendrá voto simple, doble en caso de empate.

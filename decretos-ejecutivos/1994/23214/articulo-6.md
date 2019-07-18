@@ -1,1 +1,0 @@
-Artículo 6°.-EI Comité deberá quedar constituido por Acuerdo de nombramiento, firmado y publicado por el Ministro de Agricultura y Ganadería y el de Recursos Naturales, Energia y Minas, en un plazo no mayor de quince dias contados a partir de la publicación de este decreto.
