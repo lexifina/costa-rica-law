@@ -1,0 +1,3 @@
+Artículo 20 ter- Destrucción de armas de fuego. El Departamento de Control de Armas y Explosivos, una vez recibida la notificación de la resolución firme a la que hace referencia el artículo anterior, iniciará de forma inmediata el procedimiento administrativo para cancelar la inscripción de las armas decomisadas a la persona agresora. Las personas interesadas tendrán derecho a interponer los recursos ordinarios de revocatoria y de apelación en el plazo de tres días hábiles.
+Firme la resolución de cancelación, el Departamento lo comunicará a la Dirección para que proceda con la destrucción de las armas de fuego correspondientes.
+(Así adicionado por el artículo 1° de la ley N° 9692 del 9 de julio de 2019)
