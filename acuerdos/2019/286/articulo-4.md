@@ -1,0 +1,1 @@
+Artículo 4º—Una vez que se hubiese completado el total de 8586 TM permitidas para completar el abasto de atún a la industria procesadora nacional, se suspenderá por el resto del ario el otorgamiento de este tipo de licencias.
