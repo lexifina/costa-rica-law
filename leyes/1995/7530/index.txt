@@ -51,6 +51,7 @@ articulo-49.md
 articulo-50.md
 articulo-51.md
 articulo-52.md
+articulo-52-bis.md
 articulo-53.md
 articulo-54.md
 articulo-55.md
@@ -87,6 +88,8 @@ articulo-85.md
 articulo-86.md
 articulo-87.md
 articulo-88.md
+articulo-88-bis.md
+articulo-88-ter.md
 articulo-89.md
 articulo-90.md
 articulo-91.md
@@ -102,7 +105,9 @@ articulo-100.md
 articulo-101.md
 articulo-102.md
 articulo-103.md
+articulo-104.md
 articulo-1-transitorio.md
 articulo-2-transitorio.md
 articulo-3-transitorio.md
 articulo-4-transitorio.md
+articulo-5-transitorio.md
