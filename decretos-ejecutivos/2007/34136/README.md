@@ -17,3 +17,4 @@ Reglamento de Procedimiento del Tribunal Ambiental Administrativo
 | 2 | 2010-05-20 | Decreto Ejecutivo 36035 (2010-05-20) |
 | 3 | 2012-05-02 | SINALEVI (sin norma nombrada) |
 | 4 | 2014-11-13 | Decreto Ejecutivo 38795 (2014-11-13) |
+| 5 | 2019-07-19 | Decreto Ejecutivo 41927 (2019-07-19) |
