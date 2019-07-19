@@ -1,0 +1,4 @@
+Transitorio IV
+De la finalización de los convenios de pago y sus readecuaciones.
+De acuerdo con lo establecido en el último párrafo del artículo 4 de este reglamento, de forma transitoria por el plazo de un año, los convenios de pago y sus readecuaciones, se finalizarán por incumplimiento, si el deudor se encuentra moroso por más de 90 (noventa) días naturales, en el pago de las cuotas de esa obligación. Las demás condiciones establecidas en el artículo 4 de este reglamento se mantienen incólumes.
+(Así adicionado mediante sesión N° 9043 del 19 de julio del 2019)
