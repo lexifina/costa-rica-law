@@ -1,0 +1,16 @@
+BANCO CENTRAL DE COSTA RICA
+JUNTA DIRECTIVA
+La Junta Directiva del Banco Central de Costa Rica en el artículo 11, del acta de la sesión 5886-2019, celebrada el 17 de julio de 2019.
+considerando que:
+A. En cumplimiento de lo establecido en el artículo 2, de la Ley Orgánica del Banco Central de Costa Rica, Ley 7558, esta entidad tiene como objetivo prioritario mantener una inflación baja y estable.
+B. El citado artículo 2 también dispone que el Banco Central tiene como uno de sus objetivos subsidiarios: “promover el ordenado desarrollo de la economía costarricense, a fin de lograr la ocupación plena de los recursos productivos de la Nación, procurando evitar o moderar las tendencias inflacionistas o deflacionistas que puedan surgir en el mercado monetario y crediticio”.
+C. El Banco Central definió su meta de inflación, medida con la variación interanual del Índice de Precios al Consumidor, en 3% con una tolerancia de ± 1 punto porcentual.
+D. El Banco Central ajusta su Tasa de Política Monetaria en forma prospectiva, con base en un análisis de la evolución esperada de la inflación, la actividad económica y las condiciones financieras.
+E. Los modelos de pronóstico de inflación del Banco Central señalan que la inflación se ajustaría al alza transitoriamente este año hacia el valor central del rango meta, por efecto de los cambios normativos relacionados con la aplicación de la Ley de Fortalecimiento de las Finanzas Públicas, y luego se mantendría alrededor de ese valor, en lo que resta de 2019 y en 2020.
+F. Sin embargo, persisten fuerzas deflacionarias que se derivan de: i) una desaceleración sostenida de la actividad económica, con una brecha de producto negativa (es decir, que el nivel de producción está por debajo del potencial) y ampliándose, ii) una tasa de desempleo superior a la tasa de largo plazo en que se estabilizaría la inflación y iii) un bajo crecimiento de los agregados monetarios y crediticios. Como consecuencia de estas fuerzas deflacionarias, los riesgos para el pronóstico de inflación están sesgados a la baja.
+G. La mediana de las expectativas de inflación continúa en torno al valor central del rango meta.
+H. Las tasas de interés internacionales están disminuyendo. Los mercados financieros asignan una alta probabilidad a que el Banco Central de Estados Unidos (Reserva Federal) reduzca, en su próxima reunión de finales de julio, el rango meta para la tasa de fondos federales y, en general, esperan que otros bancos centrales de economías avanzadas reduzcan o mantengan sus tasas de política en el futuro cercano. Esto aumenta el espacio para reducir las tasas locales sin comprometer la meta de inflación.
+I. El Título IV, numeral 2, literales D y E de las Regulaciones de Política Monetaria disponen, en ese orden, que corresponde a la Junta Directiva del Banco Central determinar la Tasa de Política Monetaria y la tasa de interés de captación a un día plazo (DON).
+dispuso por unanimidad y en firme:
+1. Reducir la Tasa de Política Monetaria en 50 puntos base, para ubicarla en 4,00% anual, a partir del 23 de julio de 2019.
+2. Reducir la tasa de interés bruta de los depósitos a un día plazo (DON) en 19 puntos base, para ubicarla en 2,47% anual, a partir del 23 de julio de 2019.
