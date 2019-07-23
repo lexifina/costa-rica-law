@@ -1,1 +1,0 @@
-Artículo 7°-El Ministerio de Economía, Industria y Comercio será el encargado de emitir el acuerdo de nombramiento de los miembros de la Comisión Nacional de Artesanía, para lo cual cada institución participante deberá acreditar ante el Ministerio su representante propietario, así como a su suplente.
