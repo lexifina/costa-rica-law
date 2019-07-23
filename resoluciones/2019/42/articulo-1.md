@@ -407,7 +407,9 @@ Donde:
 AMVijsl = Cantidad de adultos mayores por viaje en el grupo de días “i” en el bloque horario “j” del sentido “s” del ramal “l”.
 AMVijslv = Cantidad de adultos mayores en el grupo de días “i” en el bloque horario “j” del sentido “s” del ramal “l” en el viaje “v”.
 Vijsl = Total de viajes medidos en el grupo de días “i” en el bloque horario “j” del sentido “s” en el ramal “l”.
+Ecuación 15:
 [imagen]
+(Así reformada la ecuación anterior mediante resolución N° RE-0108-JD-2019 del 23 de julio del 2019)
 Donde:
 PCil = Cantidad de pasajeros por carrera en el grupo de días “i” del ramal “l”.
 PRVij1l = Cantidad de pasajeros regulares por viaje en el grupo de días “i” en el bloque horario “j” del sentido 1-2 del ramal “l”.
@@ -440,7 +442,9 @@ Donde:
 AMVijslf = Cantidad de adultos mayores por viaje en el grupo de días “i” en el bloque horario “j” del sentido “s” en el segmento “f” del ramal “l”.
 AMMijsvlf = Cantidad de adultos mayores movilizados en el segmento “f” del ramal “l” en el viaje “v” del grupo de días “i” en el bloque horario “j” del sentido “s”.
 Vijsl = Total de viajes medidos en el grupo de días “i” en el bloque horario “j” del sentido “s” en el ramal “l”.
+Ecuación 20:
 [imagen]
+(Así reformada la ecuación anterior mediante resolución N° RE-0108-JD-2019 del 23 de julio del 2019)
 Donde:
 PCilf = Cantidad de pasajeros por carrera en el grupo de días “i” en el segmento “f” del ramal “l”.
 PRVij1lf = Cantidad de pasajeros regulares por viaje en el grupo de días “i” en el bloque horario “j” del sentido 1-2 en el segmento “f” del ramal “l”.
@@ -642,7 +646,9 @@ Cuando se requiera realizar la validación de los registros del SCP que el prest
 Debido a que se trata de un estudio técnico de validación y no propiamente a un estudio de cantidad de pasajeros movilizados completo como el descrito en la Sección V de este protocolo, aunque se mantiene el rigor en las etapas de planeación y ejecución del estudio de “ascenso y descenso” se utilizan parámetros menos rigurosos a ser aplicados en la ecuación 7.
 En este caso para cada estrato que se defina, se calculará un tamaño de muestra basado con un coeficiente de variación mínimo del 35%, nivel de error máximo de 0,15 y el nivel de confianza mínimo del 90%. Este tamaño de muestra para cada estrato debe ser distribuido proporcionalmente en los bloques horarios (pico, valle, no pico) de cada grupo de días y sentido, como se señala en la Sección V. En todos los casos los tamaños de muestra deben ser redondeados al entero superior, por lo que finalmente el tamaño de muestra será superior a la suma original de los tamaños de muestra calculados de la ecuación 7 con los parámetros señalados anteriormente.
 Para cada grupo de días (entre semana y fin de semana) se obtiene la cantidad de pasajeros por carrera del mes del trabajo de campo, mediante la ponderación de los estratos que lo componen según la cantidad de carreras semanales en cada bloque horario indicadas en el esquema operativo autorizado para ese grupo de días. Luego se le aplica el ajuste por los factores de estacionalidad según el mes en el cual se realizó el trabajo de campo de acuerdo con las ecuaciones 27 y 28, de manera que se obtenga la cantidad de pasajeros por carrera de cada bloque de días.
+Ecuación 48:
 [imagen]
+(Así reformada la ecuación anterior mediante resolución N° RE-0108-JD-2019 del 23 de julio del 2019)
 Donde:
 PCilce = Cantidad de pasajeros por carrera en el grupo de días “i” del ramal “l” del mes de estudio.
 PRVij1l = Cantidad media de pasajeros regulares por viaje en el grupo de días “i” en el bloque horario “j” del sentido 1-2 del ramal “l”.
@@ -799,15 +805,12 @@ Se definen los grados de libertad para cada suma de cuadrados de las desviacione
 • SCR: cantidad total de datos – cantidad de ramales o días (n – k)
 Paso 8. Cálculo de medias cuadráticas
 Se calculan las medias cuadráticas para cada una de las sumas de cuadrados de las desviaciones, el cual se obtiene a partir de la división entre estas sumas y los grados de libertad correspondientes.
-[imagen]
 Paso 9. Cálculo del estadístico F de Fischer (observado)
 Se estima el estadístico F de Fischer, que entre más alto indica que es mayor la variabilidad entre los grupos que dentro de los grupos, lo que aumenta la probabilidad de rechazo de la hipótesis nula planteada.
-[imagen]
 Paso 10. Selección de valor crítico de la distribución F
 El valor crítico de la distribución F se obtiene de la tabla de valores de la distribución F de Fischer a un nivel de confianza del 95% (α = 0.05), donde v1 (columnas) corresponde a los grados de libertad del SCF (k-1) y v2 (filas) a los grados de libertad del SCR (n-k).
 Paso 11. Reglas de decisión final
 Las reglas de decisión en el ANOVA, se refieren a la comparación entre el estadístico F observado y el estadístico F teórico obtenido de la consulta de la tabla.
-[imagen]
 En caso de que no se rechace la hipótesis nula (H0), eso significa que se puede asumir la tasa de pasajeros por carrera entre ramales o días de la semana es la misma (provienen de la misma población), para que ello sea considerado en los estudios de “ascenso y descenso”.
 Anexo 3. Prueba de hipótesis de igualdad de dos medias
 La prueba de hipótesis de igualdad de dos medias es aplicable a posibles agrupaciones de ramales o días de la semana, según las pruebas de hipótesis que se definan sobre las cantidades de pasajeros por carrera.
@@ -822,10 +825,8 @@ H0: μA = μB
 H1: μA ≠ μB
 Paso 3. Cálculo de valor estadístico de prueba (z1)
 El valor estadístico de prueba se utiliza para determinar si se rechaza o no la hipótesis nula, en este caso debido a que el tamaño de muestra (cantidad de semanas de las estadísticas) es mayor a 30, se utiliza el estadístico z de la distribución normal estándar.
-[imagen]
 Paso 4. Reglas de decisión
 Las reglas de decisión en esta prueba de hipótesis se refieren a la comparación entre el estadístico z1 calculado y el estadístico z teórico para un nivel de confianza del 95%:
-[imagen]
 En caso de que no se rechace la hipótesis nula (H0), eso significa que se puede asumir que la cantidad de pasajeros por carrera de ambos días o ramales es la misma.
 Anexo 4. Prueba de Kruskal-Wallis
 La prueba Kruskal-Wallis es una prueba no paramétrica para determinar si un grupo de muestras proceden de la misma población, y que no requiere los supuestos de normalidad y homogeneidad de varianzas como es el caso de las pruebas paramétricas. El único supuesto necesario es que las distribuciones de las variables sean continúas. Este análisis es aplicable a posibles agrupaciones de ramales o días de la semana, según las pruebas de hipótesis que se definan sobre las cantidades de pasajeros por carrera.
@@ -841,12 +842,10 @@ H0: medA = medB = medC = medD = (…) = medk
 H1: alguna medk es distinta
 Paso 3. Cálculo de estadístico H
 Sean nA, nB, nC, nD ... nk los tamaños de cada una de las muestras y n el total de observaciones. Se ordenan las n observaciones de menor a mayor y se les asignan rangos de 1 hasta n. En los casos que haya empate se asigna el promedio simple según la cantidad de muestras empatadas. Luego, se obtiene la suma de los rangos correspondientes a los elementos de cada muestra (Ri) y se calcula el estadístico H de la siguiente manera:
-[imagen]
 Paso 4. Selección de valor crítico de la distribución chi cuadrado
 El valor crítico de la distribución chi cuadrado se obtiene de la tabla de valores de la distribución chi cuadrado a un nivel de confianza del 95% (α = 0.05) y k-1 grados de libertad (k es la cantidad de muestras).
 Paso 5. Reglas de decisión final
 Las reglas de decisión la prueba de Kruskal-Wallis, se refieren a la comparación entre el estadístico chi cuadrado observado y el estadístico chi cuadrado teórico obtenido de la consulta de la tabla.
-[imagen]
 Anexo 5. Prueba de hipótesis de igualdad para una media (grupo de días)
 Paso 1. Definición de variables
 Sean xV = Media de pasajeros por carrera según trabajo de campo
@@ -858,10 +857,8 @@ H0: μB = xV
 H1: μB ≠ xV
 Paso 3. Cálculo de valor estadístico de prueba (z1)
 El valor estadístico de prueba se utiliza para determinar si se rechaza o no la hipótesis nula, en este caso debido a que el tamaño de muestra (cantidad de semanas de las estadísticas) es mayor a 30, se utiliza el estadístico z de la distribución normal estándar.
-[imagen]
 Paso 4. Reglas de decisión
 Las reglas de decisión en esta prueba de hipótesis se refieren a la comparación entre el estadístico z1 calculado y el estadístico z teórico para un nivel de confianza del 95%:
-[imagen]
 En caso de que no se rechace la hipótesis nula (H0), eso significa que se puede asumir que la cantidad de pasajeros por carrera del trabajo de campo es la misma (provienen de la misma población) que la de las estadísticas reportadas durante el último año para el bloque de días del ramal respectivo, para que ello sea considerado en la determinación del volumen mensual de pasajeros.
 II. Tener como respuesta a las personas físicas y jurídicas que presentaron su posición en la consulta pública, lo señalado en el oficio OF-0078-CDR-2019 de la Dirección General Centro de Desarrollo de la Regulación, que remitió el oficio de la Fuerza de Tarea del 25 de febrero de 2019 y agradecer la valiosa participación de todos en este proceso.
 III. Instruir a la Secretaría de Junta Directiva para que proceda a realizar la notificación a las personas físicas y jurídicas del oficio donde constan las respuestas a las posiciones presentadas en la consulta pública.
