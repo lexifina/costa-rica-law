@@ -1,0 +1,1 @@
+Artículo 20.—Publicación. Este Reglamento fue aprobado por la Junta Directiva del Consejo Nacional de Producción, mediante Acuerdo Firme N° 39492, tomado en el artículo 8° de la Sesión Ordinaria 3014, celebrada el día 05 de junio del 2019 y rige a partir de su publicación en el Diario Oficial La Gaceta.

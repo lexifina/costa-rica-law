@@ -1,0 +1,1 @@
+Artículo 13.—El Quorum de las sesiones consiste en la mayoría simple de los miembros, en caso de que un miembro envíe como representante a un funcionario que no haya sido nombrado oficialmente, este no contará para el quorum.

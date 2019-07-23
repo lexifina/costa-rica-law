@@ -1,0 +1,1 @@
+Artículo 17.—La Comisión podrá convocar a cualquier funcionario de la Institución cuando así lo considere conveniente, esta convocatoria la realizará el Oficial de Simplificación de Trámites mediante oficio.

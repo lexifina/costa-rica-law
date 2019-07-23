@@ -1,0 +1,1 @@
+Artículo 16.—Por cada sesión realizada, se levantará un acta que contendrá lo siguiente: fecha, hora y lugar de reunión, nombre de los asistentes y su cargo, el orden del día, desarrollo de la sesión, relación de asuntos que fueron resueltos con indicación de “Acuerdo N°”, y serán firmadas por los miembros presentes.

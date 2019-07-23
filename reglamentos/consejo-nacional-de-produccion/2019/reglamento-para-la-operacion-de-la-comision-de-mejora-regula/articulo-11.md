@@ -1,0 +1,1 @@
+Artículo 11.—La Comisión sesionará de manera ordinaria al menos una vez al mes, de acuerdo con la calendarización anual aprobada. Las sesiones extraordinarias se harán cuando así lo determine el Oficial de Simplificación de Trámites, según la especificidad del tema y de acuerdo a la necesidad imperiosa de conocer del mismo, y serán convocadas al menos con 48 horas de antelación.

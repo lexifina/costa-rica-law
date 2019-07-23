@@ -1,0 +1,1 @@
+Artículo 5º—El Oficial de Simplificación de Trámites será designado por la Presidencia Ejecutiva y corresponde a quien ostente el puesto de Gerente General o Subgerente General. Será asignado por oficio dirigido al Área de Mejora Regulatoria del Ministerio de Economía, Industria y Comercio.

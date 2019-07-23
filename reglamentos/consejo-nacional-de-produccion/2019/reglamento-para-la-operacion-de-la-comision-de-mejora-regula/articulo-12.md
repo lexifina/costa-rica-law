@@ -1,0 +1,1 @@
+Artículo 12.—La convocatoria para celebrar sesiones de la Comisión, deberá señalar el tipo de sesión que se convoca, la fecha, hora, lugar de reunión e incluir el orden del día, con señalamiento de los asuntos a conocer, debiendo acompañarse de los documentos que serán motivo de análisis o discusión.
