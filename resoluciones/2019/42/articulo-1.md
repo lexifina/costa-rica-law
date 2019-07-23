@@ -212,25 +212,21 @@ La información mínima que deben contener los formularios para el registro de l
 Adicionalmente se deben incluir en los anexos de los informes del estudio de “punto fijo” la transcripción de los formularios levantados en el trabajo de campo que incluya la información del encabezado, así como los formularios originales escaneados. En caso de disponerse de formularios electrónicos se deberán presentar los registros nativos de la herramienta tecnológica utilizada.
 5. Estimación de cantidad diaria de carreras por grupo de días de ramal
 Los registros de los estudios de “punto fijo” corresponden a los días completos de evaluación, por lo que, de acuerdo con los bloques horarios definidos, se determina la cantidad observada de viajes por sentido para cada bloque horario de cada grupo de días, mediante el cálculo del promedio simple de lo registrado en cada día evaluado (en caso de que se haya registrado más de un día completo). Para efecto de los traslapes que puedan existir con algunos viajes que inician en un bloque horario y son registrados o finalizan el viaje en otro bloque horario, siempre se considerará como referencia la hora de salida real o estimada del punto inicial (mediante cálculo de tiempo de viaje entre punto inicial y punto fijo si aplicara), para efectos de los agrupamientos que se deben hacer por bloque horario.
-[imagen]
 Donde:
 VDijsl = Cantidad de viajes diarios en el grupo de días “i” en el bloque horario “j” del sentido “s” del ramal “l”.
 Vijsld = Cantidad de viajes en el grupo de días “i” en el bloque horario “j” del sentido “s” del ramal “l” en el día “d”.
 DPFl = Cantidad de días completos en que se realizó la medición de “punto fijo” para el ramal “l”
 Una vez que se cuenta con la cantidad de viajes por sentido por bloque horario para cada grupo de días, se estima la cantidad de carreras como el promedio simple de los viajes en ambos sentidos (sentido 1 – 2 y sentido 2 – 1) del bloque horario del grupo correspondiente.
-[imagen]
 Donde:
 CDijl = Cantidad de carreras diarias en el grupo de días “i” en el bloque horario “j” del ramal “l”.
 VDij1l = Cantidad de viajes diarios en el grupo de días “i” en el bloque horario “j” del sentido 1-2 del ramal “l”.
 VDij2l = Cantidad de viajes diarios en el grupo de días “i” en el bloque horario “j” del sentido 2-1 del ramal “l”.
-[imagen]
 Donde:
 CDil = Cantidad de carreras diarias en el grupo de días “i” del ramal “l”.
 CDijl = Cantidad de carreras diarias en el grupo de días “i” en el bloque horario “j” del ramal “l”.
 J = Total de bloques horarios del grupo de días “i”.
 6. Estimación de cantidad de carreras semanales por grupo de días
 Mediante el punto anterior, se estimó la cantidad diaria de carreras por grupo de días para cada ramal, por lo que es necesario realizar la extrapolación para las cantidades semanales, mediante la multiplicación de los datos de carreras diarias por la cantidad de días que forman cada grupo de días.
-[imagen]
 Donde:
 CSil = Cantidad de carreras semanales en el grupo de días “i” en el ramal “l”.
 CDil = Cantidad de carreras diarias en el grupo de días “i” en el ramal “l”.
@@ -246,13 +242,11 @@ En el caso de rutas con ramales con tarifa única, el estudio se puede realizar 
 En el caso de las rutas con ramales con fraccionamientos tarifarios, no es posible realizar la agrupación de ramales, ya que se requiere la cantidad de pasajeros movilizados en cada segmento tarifario, lo que implica que un mismo pasajero pueda mantenerse en varios segmentos según el viaje específico que realice (origen – destino) y hace que cada ramal posea una condición particular, aunque se compartan segmentos entre los ramales.
 La información utilizada para el análisis de agrupamiento de ramales en caso de ramales con tarifa única y los análisis estadísticos previos al cálculo del tamaño de muestra, corresponde a la cantidad de pasajeros que pagan completo el pasaje de su viaje, por lo que no se consideran los adultos mayores en la proporción de descuento que corresponda según la extensión del ramal.
 La información necesaria para los análisis en todos los casos (ramales con tarifa única o tarifa fraccionada) corresponde a la cantidad de pasajeros totales que pagan completo el pasaje del respectivo viaje, lo cual se puede expresar de dos maneras: la suma de los pasajeros regulares y los adultos mayores multiplicado por el complemento del descuento que reciben (Ecuación 5), o se le resta a los pasajeros totales movilizados (pasajeros reales) la cantidad de adultos mayores multiplicado por el descuento que corresponda a los adultos mayores (Ecuación 6), como se muestra a continuación:
-[imagen]
 Donde:
 PTC = Pasajeros pagan tarifa completa
 PR = Pasajeros regulares
 PAM = Pasajeros adultos mayores
 %Dl = Porcentaje de descuento adulto mayor en el ramal “l”
-[imagen]
 Donde:
 PTC = Pasajeros pagan tarifa completa
 PT = Pasajeros totales
@@ -315,7 +309,6 @@ El objetivo de seleccionar un tamaño mínimo de muestra es garantizar la repres
 Lo anterior asegura mayor flexibilidad en el trabajo de campo ya que de requerir sustituirse una unidad de medida sería solamente el viaje y no se descartarían dos viajes (una carrera) por alguna situación que afecte solamente uno de los sentidos. Esto también se fundamenta en que la reasignación de los autobuses que hace un operador de la ruta entre los ramales que lo componen, corresponden a criterios particulares y no predecibles y se comparte la flota entre los ramales, lo que podría dificultar completar carreras en algunos casos.
 El marco muestral de donde se seleccionarán aleatoriamente las unidades de estudio a muestrear (viajes en un sentido), corresponde a los viajes autorizados en un sentido para cada ramal o grupo de ramales para una semana, según los horarios y frecuencias del esquema operativo autorizado por el Consejo de Transporte Público (CTP). De acuerdo con lo anterior, se hace necesario determinar un tamaño de muestra para cada sentido (1-2, 2-1).
 De esta manera, según el autor Molinero (2005)1, el tamaño de muestra, para la cantidad de viajes a muestrear para cada grupo de días y sentido definido en el punto anterior, se determina mediante la siguiente ecuación (es la misma fórmula del tamaño de muestra para poblaciones finitas, solamente que se expresa de manera distinta):
-[imagen]
 Donde:
 n = tamaño mínimo de la muestra de viajes del grupo de días en un sentido
 N = cantidad total de viajes semanales del grupo de días en un sentido
@@ -356,7 +349,6 @@ Para la determinación del volumen mensual de pasajeros movilizados que pagan la
 De lo anterior se desprende que el descuento aplicable a recorridos de 25 km y menos es del 100%, para los recorridos mayores a 25 km y menores a 50 km es del 50% y los recorridos de 50 km y mayores el descuento es del 25%. En el caso de los ramales con fraccionamiento tarifario, la determinación de porcentaje de descuento aplicable a adultos mayores se realiza a partir de la información disponible en los estudios técnicos de referencia, en el siguiente orden de prioridad:
 a) Información de cantidad de pasajeros que pagan la tarifa de cada fraccionamiento
 En los casos que como parte de la información disponible procedente de un estudio técnico realizado o aceptado por la Autoridad Reguladora o el CTP, se cuente con los datos mensuales del volumen de pasajeros regulares y adultos mayores que se movilizaron en cada fraccionamiento, es decir que pagan la tarifa vigente de acuerdo con el pliego tarifario, se podrá determinar el factor de descuento de adulto mayor, a partir de la relación entre los ingresos reales con esas movilización y los ingresos potenciales si no existiera el esquema de exoneración para esa población:
-[imagen]
 Donde:
 IRl = Ingresos reales en el ramal “l”.
 PRlf = Cantidad de pasajeros regulares mensuales movilizados en el fraccionamiento “f” del ramal “l”.
@@ -364,21 +356,18 @@ TPRlf = Tarifa para pasajero regular al momento de estudio técnico de referenci
 AMlf = Cantidad de pasajeros adultos mayores mensuales movilizados en el fraccionamiento “f” del ramal “l”.
 TAMlf = Tarifa para adulto mayor al momento de estudio técnico de referencia en el fraccionamiento “f” del ramal “l”.
 F = Cantidad total de fraccionamientos en el ramal “l”.
-[imagen]
 Donde:
 IPl = Ingresos potenciales en el ramal “l”.
 PRlf = Cantidad de pasajeros regulares mensuales movilizados en el fraccionamiento “f” del ramal “l”.
 AMlf = Cantidad de pasajeros adultos mayores mensuales movilizados en el fraccionamiento “f” del ramal “l”.
 TPRlf = Tarifa para pasajero regular al momento de estudio técnico de referencia en el fraccionamiento “f” del ramal “l”.
 F = Cantidad total de fraccionamientos en el ramal “l”.
-[imagen]
 Donde:
 %Dl = Porcentaje de descuento adulto mayor en el ramal “l”.
 IRl = Ingresos reales en el ramal “l”.
 IPl = Ingresos potenciales en el ramal “l”.
 b) Información de cantidad de pasajeros movilizados en cada segmento
 En los casos que como parte de la información disponible procedente de un estudio técnico realizado o aceptado por la Autoridad Reguladora o el CTP, se cuente con el volumen mensual de pasajeros regulares y adultos mayores que se movilizaron en cada segmento, se podrá determinar el factor de descuento de adulto mayor del ramal, a partir del cálculo de la distancia media del viaje que realizan los adultos mayores en el ramal, como se muestra a continuación:
-[imagen]
 Donde:
 DMAMl = Distancia media del viaje de los adultos mayores en el ramal “l”.
 PAMlf = Cantidad de adultos mayores mensuales movilizados en el segmento “f” del ramal “l”.
@@ -388,7 +377,6 @@ F = Cantidad total de fraccionamientos en el ramal “l”.
 A partir de la DMAMl se determina el porcentaje de descuento aplicable según lo establecido en el artículo 2 del Decreto Ejecutivo N°30107.
 c) Sin información de cantidad de pasajeros que pagan tarifa de un fraccionamiento o cantidad de pasajeros movilizados en cada segmento
 En los casos en los que no se disponga de la información de la cantidad de pasajeros regulares y adultos mayores que pagaron cada tarifa del ramal o la información de cantidad de pasajeros adultos mayores movilizados en cada segmento, se determina el porcentaje de descuento mediante una ponderación de la cantidad de kilómetros de la distancia media del viaje completo del ramal (DVl) en cada rango de distancia de viaje donde aplican cada uno de los porcentaje de descuento según lo establecido en el artículo 2 del Decreto Ejecutivo N°30107:
-[imagen]
 Donde:
 %Dl = Porcentaje de descuento adulto mayor en el ramal.
 DFl1 = Distancia media de viaje completo del ramal “l” en el rango de 0 a 25 km.
@@ -397,19 +385,17 @@ DFl3 = Distancia media de viaje completo del ramal “l” mayor a 50 km.
 DVl = Distancia media de viaje completo del ramal “l”.
 Estimación de cantidad de pasajeros por carrera por grupo de días por ramal
 De acuerdo con el tamaño de muestra de las mediciones para cada bloque horario de cada grupo de días del ramal o grupos de ramales, se determina la media (promedio simple) de la cantidad de pasajeros regulares y la cantidad de adultos mayores por viaje, luego para ambos sentidos se suman las cantidades promedio y se le resta la proporción de la suma de promedios de adultos mayores con el descuento respectivo, con lo que se determina la cantidad de pasajeros por carrera que pagaron su viaje completo para el bloque horario correspondiente a ese grupo de días.
-[imagen]
 Donde:
 PRVijsl = Cantidad de pasajeros regulares por viaje en el grupo de días “i” en el bloque horario “j” del sentido “s” del ramal “l”.
 PRVijslv = Cantidad de pasajeros regulares en el grupo de días “i” en el bloque horario “j” del sentido “s” del ramal “l” en el viaje “v”.
 Vijsl = Total de viajes medidos en el grupo de días “i” en el bloque horario “j” del sentido “s” del ramal “l”.
-[imagen]
 Donde:
 AMVijsl = Cantidad de adultos mayores por viaje en el grupo de días “i” en el bloque horario “j” del sentido “s” del ramal “l”.
 AMVijslv = Cantidad de adultos mayores en el grupo de días “i” en el bloque horario “j” del sentido “s” del ramal “l” en el viaje “v”.
 Vijsl = Total de viajes medidos en el grupo de días “i” en el bloque horario “j” del sentido “s” en el ramal “l”.
 Ecuación 15:
 [imagen]
-(Así reformada la ecuación anterior mediante resolución N° RE-0108-JD-2019 del 23 de julio del 2019)
+(Así reformada la ecuación 15) anterior mediante resolución N° RE-0106-JD-2019 del 23 de julio de 2019)
 Donde:
 PCil = Cantidad de pasajeros por carrera en el grupo de días “i” del ramal “l”.
 PRVij1l = Cantidad de pasajeros regulares por viaje en el grupo de días “i” en el bloque horario “j” del sentido 1-2 del ramal “l”.
@@ -422,29 +408,25 @@ CDil = Cantidad de carreras diarias en el grupo de días “i” del ramal “l�
 J = Total de bloques horarios del grupo de días “i”.
 Estimación de cantidad de pasajeros por carrera por grupo de días por segmento tarifario
 En el caso de los ramales con fraccionamiento tarifario, por medio de los registros de información se cuenta con los datos de ascenso y descenso en cada uno de los segmentos tarifarios, lo que permite determinar la cantidad de pasajeros movilizados en cada uno de éstos. La cantidad de pasajeros movilizados en un segmento corresponde a todos aquellos pasajeros que permanecen en la unidad en la parada inicial del segmento (“corte tarifario”), es decir que ascendieron en segmentos tarifarios anteriores y los pasajeros que tomaron el servicio en cualquier punto en el tramo correspondiente a dicho segmento, lo que equivale a la diferencia entre los ascensos acumulados al segmento correspondiente y los descensos acumulados al segmento anterior en el respectivo sentido del viaje.
-[imagen]
 Donde:
 PRMijsvlf = Cantidad de pasajeros regulares movilizados en el segmento “f” del ramal “l” en el viaje “v” del grupo de días “i” en el bloque horario “j” del sentido “s”.
 APRijsvlf = Cantidad de ascensos de pasajeros regulares en el segmento “f” del ramal “l” en el viaje “v” del grupo de días “i” en el bloque horario “j” del sentido “s”.
 DPRijsvlf = Cantidad de descensos de pasajeros regulares en el segmento “f” del ramal “l” en el viaje “v” del grupo de días “i” en el bloque horario “j” del sentido “s”.
-[imagen]
 Donde:
 AMMijsvlf = Cantidad de adultos mayores movilizados en el segmento “f” del ramal “l” en el viaje “v” del grupo de días “i” en el bloque horario “j” del sentido “s”.
 AAMijsvlf = Cantidad de ascensos de adultos mayores en el segmento “f” del ramal “l” en el viaje “v” del grupo de días “i” en el bloque horario “j” del sentido “s”.
 DAMijsvlf = Cantidad de descensos de adultos mayores en el segmento “f” del ramal “l” en el viaje “v” del grupo de días “i” en el bloque horario “j” del sentido “s”.
-[imagen]
 Donde:
 PRVijslf = Cantidad de pasajeros regulares por viaje en el grupo de días “i” en el bloque horario “j” del sentido “s” en el segmento “f” del ramal “l”.
 PRMijsvlf = Cantidad de pasajeros regulares movilizados en el segmento “f” del ramal “l” en el viaje “v” del grupo de días “i” en el bloque horario “j” del sentido “s”.
 Vijsl = Total de viajes medidos en el grupo de días “i” en el bloque horario “j” del sentido “s” en el ramal “l”.
-[imagen]
 Donde:
 AMVijslf = Cantidad de adultos mayores por viaje en el grupo de días “i” en el bloque horario “j” del sentido “s” en el segmento “f” del ramal “l”.
 AMMijsvlf = Cantidad de adultos mayores movilizados en el segmento “f” del ramal “l” en el viaje “v” del grupo de días “i” en el bloque horario “j” del sentido “s”.
 Vijsl = Total de viajes medidos en el grupo de días “i” en el bloque horario “j” del sentido “s” en el ramal “l”.
 Ecuación 20:
 [imagen]
-(Así reformada la ecuación anterior mediante resolución N° RE-0108-JD-2019 del 23 de julio del 2019)
+(Así reformada la ecuación 20) anterior mediante resolución N° RE-0106-JD-2019 del 23 de julio de 2019)
 Donde:
 PCilf = Cantidad de pasajeros por carrera en el grupo de días “i” en el segmento “f” del ramal “l”.
 PRVij1lf = Cantidad de pasajeros regulares por viaje en el grupo de días “i” en el bloque horario “j” del sentido 1-2 en el segmento “f” del ramal “l”.
@@ -462,37 +444,31 @@ En este punto, es donde se realiza el cálculo de la estimación del volumen men
 Existe la posibilidad que los grupos de días determinados en cada estudio no coincidan, por lo que la consolidación de los resultados se debe dar en el nivel más desagregado. Por ejemplo, si el dato de cantidad semanal de carreras por bloque horario agrupa de lunes a viernes, y la cantidad de pasajeros por carrera tiene separados esos días en varios grupos, se distribuye de manera uniforme la cantidad de carreras por cada uno de los días, de manera que se presenten en el mismo nivel de desagregación.
 La consolidación de los resultados de ambos estudios permitirá entonces obtener la cantidad de carreras semanales y de pasajeros por carrera para cada grupo de días para cada ramal o segmento. Aunque existan grupos de ramales en el estudio de “ascenso y descenso”, en este punto el análisis se hace para cada ramal por separado, incluso de la cantidad de semanas por mes y el factor de estacionalidad.
 La cantidad de carreras semanales, se debe extrapolar a la cantidad mensual acorde al período del estudio de “ascenso y descenso”, esto se hace mediante la multiplicación de las carreras semanales por el factor simple o ponderado (en caso que el horizonte del estudio de “ascenso y descenso” sea de más de un mes) de la cantidad de semanas por mes del período del estudio, el cual puede ser 4,00 (febrero), 4,29 (abril, junio, setiembre, noviembre) y 4,43 (enero, marzo, mayo, julio, agosto, octubre, diciembre). La ponderación se realiza considerando la cantidad de muestras del estudio de “ascenso y descenso” que se realizaron en cada mes para cada ramal.
-[imagen]
 Donde:
 FSPl = Factor de semanas por mes ponderado para el ramal “l”.
 nml = Cantidad de mediciones de “ascenso y descenso” realizadas en el mes “m” para el ramal “l”.
 FSm = Factor de semanas por mes del mes “m”.
 m = Mes donde se realizaron mediciones de “ascenso y descenso”.
 M = Total de meses donde se realizaron mediciones de “ascenso y descenso”.
-[imagen]
 Donde:
 CMil = Cantidad de carreras mensuales en el grupo de días “i” del ramal “l”.
 CSil = Cantidad de carreras semanales en el grupo de días “i” de ramal “l”.
 FSPl = Factor de semanas por mes ponderado para el ramal “l”.
 La cantidad mensual de carreras para cada grupo de días se multiplica por la cantidad de pasajeros por carrera del ramal o segmento para ese mismo grupo de días, con lo que se obtendrá la cantidad de pasajeros mensuales movilizados por grupo de días del ramal o segmento, y al realizar la sumatoria de estas cantidades, se obtendrá la estimación de volumen mensual de pasajeros movilizados del ramal o segmento para el período de ejecución del estudio de “ascenso y descenso”.
 Estimación de volumen mensual de pasajeros movilizados en un ramal para el período del Estudio
-[imagen]
 Donde:
 PMil = Volumen mensual de pasajeros en el grupo de días “i” del ramal “l”.
 CMil = Cantidad de carreras mensuales en el grupo de días “i” del ramal “l”.
 PCil = Cantidad de pasajeros por carrera en el grupo de días “i” del ramal “l”.
-[imagen]
 Donde:
 PMl = Volumen mensual de pasajeros del ramal “l” en el período del estudio.
 PMil = Volumen mensual de pasajeros en el grupo de días “i” del ramal “l”.
 I = Total de grupos de días.
 Estimación de volumen mensual de pasajeros en un segmento de un ramal para el período del estudio
-[imagen]
 Donde:
 PMilf = Volumen mensual de pasajeros en el grupo de días “i” del segmento “f” del ramal “l”.
 CMil = Cantidad de carreras mensuales en el grupo de días “i” del ramal “l”.
 PCilf = Cantidad de pasajeros por carrera en el grupo de días “i” del segmento “f” del ramal “l”.
-[imagen]
 Donde:
 PMlf = Volumen mensual de pasajeros del segmento “f” del ramal “l” en el período del estudio.
 PMilf = Volumen mensual de pasajeros en el grupo de días “i” del segmento “f” del ramal “l”.
@@ -507,17 +483,14 @@ Si lo anterior no procediera por falta de información para la ruta, se podrán 
 Finalmente, para la estacionalidad aplicable al volumen mensual de pasajeros movilizados por segmento tarifario, se utiliza el que corresponda al ramal al que pertenece.
 Determinación de los factores de estacionalidad
 El método básico para factores de estacionalidad utiliza los últimos 12 meses al último trimestre calendario anterior cerrado y consiste en calcular el promedio simple de volumen mensual de pasajeros que pagan su pasaje completo, con lo que se determina el factor de estacionalidad al dividir el volumen de pasajeros reportado cada mes entre el promedio simple calculado. En este caso no es necesario utilizar algún factor de corrección, debido a que siempre la suma de los factores estacionales es 12.
-[imagen]
 Donde:
 PMPl = Volumen mensual de pasajeros promedio del ramal “l” según reportes.
 PMml = Volumen mensual de pasajeros del mes “m” del ramal “l” según reportes.
-[imagen]
 Donde:
 FEml = Factor de estacionalidad del mes “m” para el ramal “l”.
 PMml = Volumen mensual de pasajeros del mes “m” del ramal “l” según reportes.
 PMPl = Volumen mensual de pasajeros promedio del ramal “l” según reportes.
 Si el estudio de “ascenso y descenso” se realizó en más de un mes, se debe calcular un factor de estacionalidad ponderado por la cantidad de muestras tomadas en cada uno.
-[imagen]
 Donde:
 FEPl = Factor estacional ponderado para el ramal “l”.
 nml = Cantidad de mediciones de “ascenso y descenso” realizadas en el mes “m” para el ramal “l”.
@@ -525,19 +498,16 @@ FEml = Factor de estacionalidad del mes “m” para el ramal “l”.
 m = Mes donde se realizaron mediciones de “ascenso y descenso”.
 M = Total de meses donde se realizaron mediciones de “ascenso y descenso”.
 Cálculo volumen mensual de pasajeros por ramal
-[imagen]
 Donde:
 PMMl = Volumen medio mensual de pasajeros del ramal “l”.
 PMl = Volumen mensual de pasajeros del ramal “l” en el período del estudio.
 FEPl = Factor estacional ponderado para el ramal “l”.
 Cálculo volumen mensual de pasajeros por segmento
-[imagen]
 Donde:
 PMMlf = Volumen medio mensual de pasajeros del segmento “f” del ramal “l”.
 PMlf = Volumen mensual de pasajeros del segmento “f” del ramal “l” en el período del estudio.
 FEPl = Factor estacional ponderado para el ramal “l”.
 Cálculo volumen mensual de pasajeros para un segmento compartido por varios Ramales
-[imagen]
 Donde:
 PMMf = Volumen medio mensual de pasajeros del segmento “f”.
 PMMlf = Volumen medio mensual de pasajeros del segmento “f” del ramal “l”.
@@ -545,7 +515,6 @@ l = Ramal de la ruta “r” de transporte remunerado de personas.
 L = Total de ramales de la ruta “r” de transporte remunerado de personas del conjunto.
 11. Estimación del volumen medio mensual de pasajeros de la ruta
 Para el cálculo del volumen medio mensual de pasajeros de la ruta, se realiza la suma total del volumen medio mensual para cada ramal que lo compone.
-[imagen]
 Donde:
 PMMr = Volumen medio mensual de pasajeros de la ruta “r”.
 PMMl = Volumen medio mensual de pasajeros del ramal “l”.
@@ -555,51 +524,42 @@ L = Total de ramales de la ruta “r” de transporte remunerado de personas del
 Para efectos de poder ser utilizado como referencia para la validación de otras fuentes de información mediante las cuales se determina el volumen mensual de pasajeros en la sección de 4.7 Volumen mensual de pasajeros de la Metodología para fijación ordinaria de tarifas para el servicio de transporte remunerado de personas, modalidad autobús, se calcula para cada ramal o segmento un intervalo de confianza. Para ello, a partir del estudio técnico de referencia, se debe calcular la cantidad de pasajeros por carrera del ramal o segmento con estacionalidad (PCce), sin estacionalidad (PCse) y sin estacionalidad ajustado (PCsea) y luego la cantidad de pasajeros por carrera para cada grupo de días del ramal o segmento sin estacionalidad (PCi).
 Por otro lado, debido a las posibles modificaciones que se pudieran presentar en el esquema operativo autorizado entre el momento del estudio técnico de referencia y la validación de las fuentes de información, en lo que corresponde a la cantidad de carreras, es necesario que el intervalo de confianza calculado considere un factor de ajuste de carreras (FAC). Este factor relaciona la cantidad mensual de carreras del estudio técnico de referencia y la cantidad mensual de carreras autorizadas al momento de realizar la validación.
 En caso de que el estudio técnico de referencia a utilizarse corresponda a los indicados en los puntos 3 y 4 de la sección 4.7.1.a de la metodología tarifaria, las carreras del estudio corresponden a la cantidad media mensual de carreras determinada en dichos estudios técnicos. En caso de que el estudio técnico de referencia a utilizarse corresponda a los indicados en los puntos 1 y 2 de la sección 4.7.1.a de la metodología tarifaria, las carreras del estudio corresponden a la cantidad de carreras utilizadas en esos estudios.
-[imagen]
 Donde:
 PCce = Cantidad media de pasajeros por carrera con estacionalidad del estudio de referencia del ramal “l” o segmento “f” del ramal “l”.
 PS = Volumen semanal de pasajeros movilizados del estudio de referencia del ramal “l” o segmento “f” del ramal “l”.
 CS = Cantidad de carreras semanales del estudio de referencia del ramal “l” o segmento “f” del ramal “l”.
-[imagen]
 Donde:
 PCse = Cantidad media de pasajeros por carrera sin estacionalidad del estudio de referencia del ramal “l” o segmento “f” del ramal “l”.
 PCce = Cantidad media de pasajeros por carrera con estacionalidad del estudio de referencia del ramal “l” o segmento “f” del ramal “l”.
 FEPl = Factor estacional ponderado para el ramal “l” del estudio de referencia.
-[imagen]
 Donde:
 FACl = Factor de ajuste de carreras del ramal “l”.
 CMCEl = Cantidad mensual de carreras del estudio de referencia para el ramal “l”.
 CMCAl = Cantidad mensual de carreras autorizadas actuales para el ramal “l”.
-[imagen]
 Donde:
 PCsea = Cantidad media de pasajeros por carrera sin estacionalidad ajustada del estudio de referencia del ramal “l” o segmento “f” del ramal “l”.
 PCse = Cantidad media de pasajeros por carrera sin estacionalidad del estudio de referencia del ramal “l” o segmento “f” del ramal “l”.
 FACl = Factor de ajuste de carreras del ramal “l”.
-[imagen]
 Donde:
 PCi = Cantidad media de pasajeros por carrera con estacionalidad del estudio de referencia para el grupo de días “i” del ramal “l” o segmento “f” del ramal “l”.
 PSi = Volumen semanal de pasajeros movilizados del estudio de referencia para el grupo de días “i” del ramal “l” o segmento “f” del ramal “l”.
 CSi = Cantidad de carreras semanales del estudio de referencia para el grupo de días “i” del ramal “l” o segmento “f” del ramal “l”.
 Para calcular la desviación estándar (σ) de la cantidad de pasajeros por carrera del ramal o segmento, se hace uso de la fórmula de la desviación estándar para datos agrupados, donde los grupos son precisamente los grupos de días, que en general serán los días entre semana (lunes a viernes), sábado y domingo por separado. Una vez calculada la desviación estándar, se obtiene el mismo estadístico de dispersión sin estacionalidad y se aplica el factor de ajuste por carreras (FAC).
-[imagen]
 Donde:
 σce = Desviación estándar de la cantidad media de pasajeros por carrera con estacionalidad del estudio de referencia del ramal “l” o segmento “f” del ramal “l”.
 PCi = Cantidad media de pasajeros por carrera con estacionalidad del estudio de referencia para el grupo de días “i” del ramal “l” o segmento “f” del ramal “l”.
 PCce = Cantidad media de pasajeros por carrera con estacionalidad del estudio de referencia del ramal “l” o segmento “f” del ramal “l”.
 CSi = Cantidad de carreras semanales del estudio de referencia del ramal “l” o segmento “f” del ramal “l” durante el grupo de días “i”.
 CS = Cantidad de carreras semanales del estudio de referencia del ramal “l” o segmento “f” del ramal “l”.
-[imagen]
 Donde:
 σse = Desviación estándar de la cantidad media de pasajeros por carrera sin estacionalidad del estudio de referencia del ramal “l” o segmento “f” del ramal “l”.
 σce = Desviación estándar de la cantidad media de pasajeros por carrera con estacionalidad del estudio de referencia del ramal “l” o segmento “f” del ramal “l”.
 FEPl = Factor estacional ponderado para el ramal “l” del estudio de referencia.
-[imagen]
 Donde:
 σsea = Desviación estándar de la cantidad media de pasajeros por carrera sin estacionalidad ajustada del estudio de referencia del ramal “l” o segmento “f” del ramal “l”.
 σse = Desviación estándar de la cantidad media de pasajeros por carrera sin estacionalidad del estudio de referencia del ramal “l” o segmento “f” del ramal “l”.
 FACl = Factor de ajuste de carreras del ramal “l”.
 El intervalo de confianza de la cantidad media de pasajeros por carrera del ramal “l” o segmento “f” del ramal “l” obtenido del estudio técnico de referencia se determina de la siguiente manera:
-[imagen]
 Donde:
 PCsea = Cantidad media de pasajeros por carrera sin estacionalidad ajustada del estudio de referencia del ramal “l” o segmento “f” del ramal “l”.
 Zα/2 = Estadístico de la distribución normal para el nivel de confianza determinado (1 – α).
@@ -607,7 +567,6 @@ Zα/2 = Estadístico de la distribución normal para el nivel de confianza deter
 Debido a que se ha definido que el plazo de validez de los estudios técnicos de volumen de pasajeros movilizados es de 3 años desde su aceptación o aprobación, se establece que el valor razonable del estadístico de la distribución normal sea de zα/2 = 1, lo que indica un nivel de confianza (1 – α) del 68% que permite obtener una amplitud del rango del intervalo suficiente para incorporar posibles desviaciones producto de la aleatoriedad propia de la naturaleza de este servicio público y de las mediciones del estudio técnico de referencia, así como de las fuentes de información presentada por el prestador que es sujeta a validación.
 Este mecanismo para definir el intervalo de confianza es útil tanto para estudios de volumen de pasajeros movilizados realizados según lo establecido en este protocolo (incluidas las validaciones de las fuentes de información) y para los estudios de normalización de la demanda aprobados por el Consejo de Transporte Público (CTP).
 En caso de que en el estudio técnico de referencia se hayan realizado mediciones para un solo grupo de días (por ejemplo entre semana), de acuerdo con el esquema operativo autorizado al momento del trabajo de campo, que imposibilite el cálculo de la desviación estándar con respecto a la cantidad media de pasajeros por carrera, el intervalo se conformará con un rango ±10% de esa cantidad media, en concordancia con lo establecido en el apartado Validación de campo de la información del SCP de la sección 4.7.1.b Criterios de decisión para la determinación del volumen mensual de pasajeros de la metodología tarifaria.
-[imagen]
 Donde:
 PCsea = Cantidad media de pasajeros por carrera sin estacionalidad ajustada del estudio de referencia del ramal “l” o segmento “f” del ramal “l”.
 Sección VI. Estudio técnico de validación de registros del SCP para un ramal o segmento
@@ -617,12 +576,10 @@ Este tamaño de muestra debe ser distribuido proporcionalmente, según los viaje
 Una vez que se hayan realizado las mediciones en campo, se extrae la información de los viajes medidos del reporte con datos depurados que haga el prestador del Sistema Automatizado de Conteo de Pasajeros (SCP) y se hace la comparación entre las medias del trabajo de campo y el SCP para los viajes específicos medidos para ese ramal. Si la cantidad media de pasajeros por carrera del trabajo de campo se encuentra en el rango ±10% del dato medio de pasajeros por carrera del SCP para esos viajes específicos, se asume que la diferencia no es significativa y se acepta como real la cantidad de pasajeros por carrera para el mes del estudio según los datos del SCP. En todos los casos, la cantidad de pasajeros por carrera se debe entender como la cantidad de pasajeros que pagan la tarifa completa de su viaje, según las ecuaciones 5 y 6.
 En el caso de ramales con tarifa única, se determina el volumen mensual de pasajeros del ramal para el mes del estudio, a partir de la cantidad media de pasajeros por carrera de ese mes según el SCP y la cantidad de carreras que corresponda según lo establecido en el apartado Validación de campo de la información del SCP de la sección 4.7.1.b Criterios de decisión para la determinación del volumen mensual de pasajeros de la metodología tarifaria ordinaria.
 Posteriormente se hace el ajuste por los factores de estacionalidad, con lo que se obtiene el volumen mensual de pasajeros para el ramal respectivo. El factor de estacionalidad se extrae de la misma fuente de información que se está validando, en este caso de los datos reportados mediante el SCP de los 12 últimos meses cerrados y de acuerdo con las ecuaciones 27 y 28.
-[imagen]
 Donde:
 PMl = Volumen mensual de pasajeros del ramal “l” en el período del estudio.
 CMMl = Cantidad de carreras mensuales del ramal “l” según la metodología tarifaria.
 PCSCPl = Cantidad de pasajeros por carrera del ramal “l” según el Sistema Automatizado de Conteo de Pasajeros (SCP) del mes del estudio.
-[imagen]
 Donde:
 PMMl = Volumen medio mensual de pasajeros del ramal “l”.
 PMl = Volumen mensual de pasajeros del ramal “l” en el período del estudio.
@@ -630,12 +587,10 @@ FEml = Factor de estacionalidad del mes “m” para el ramal “l”.
 En el caso de los ramales con fraccionamiento tarifario, se requiere determinar la cantidad de pasajeros movilizados por carrera en cada segmento para el mes de estudio. Para esto, se deben tomar todos los registros del SCP a nivel de viaje y parada o agregación de paradas, para al menos tres semanas completas de lunes a domingo del mes del estudio, lo que permitirá consolidar la información de movilización a nivel de segmento para cada viaje según los fraccionamientos tarifarios que se muestran en el pliego tarifario vigente para el respectivo ramal.
 Para determinar la cantidad media de pasajeros por carrera del segmento “f” del ramal “l”, se aplican los mecanismos establecidos en el Sección V. Estudio técnico de cantidad de pasajeros movilizados de este protocolo para el caso de segmentos tarifarios. Luego se determina el volumen mensual de pasajeros movilizados en cada segmento del ramal para el mes del estudio, a partir de la cantidad media de pasajeros movilizados en el segmento por carrera de ese mes según el SCP y la cantidad de carreras que corresponda según lo establecido en el apartado Validación de campo de la información del SCP de la sección 4.7.1.b Criterios de decisión para la determinación del volumen mensual de pasajeros de la metodología tarifaria ordinaria.
 Posteriormente se hace el ajuste por los factores de estacionalidad, con lo que se obtiene el volumen mensual de pasajeros para el segmento del ramal respectivo. El factor de estacionalidad se extrae de la misma fuente de información que se está validando, en este caso de los datos reportados mediante el SCP de los 12 últimos meses cerrados y de acuerdo con las ecuaciones 27 y 28.
-[imagen]
 Donde:
 PMlf = Volumen mensual de pasajeros del segmento “f” del ramal “l” en el período del estudio.
 CMMl = Cantidad de carreras mensuales del ramal “l” según la metodología tarifaria.
 PCSCPlf = Cantidad de pasajeros por carrera del segmento “f” del ramal “l” según el Sistema Automatizado de Conteo de Pasajeros (SCP).
-[imagen]
 Donde:
 PMMlf = Volumen medio mensual de pasajeros del segmento “f” del ramal “l”.
 PMlf = Volumen mensual de pasajeros del segmento “f” del ramal “l” en el período del estudio.
@@ -648,7 +603,7 @@ En este caso para cada estrato que se defina, se calculará un tamaño de muestr
 Para cada grupo de días (entre semana y fin de semana) se obtiene la cantidad de pasajeros por carrera del mes del trabajo de campo, mediante la ponderación de los estratos que lo componen según la cantidad de carreras semanales en cada bloque horario indicadas en el esquema operativo autorizado para ese grupo de días. Luego se le aplica el ajuste por los factores de estacionalidad según el mes en el cual se realizó el trabajo de campo de acuerdo con las ecuaciones 27 y 28, de manera que se obtenga la cantidad de pasajeros por carrera de cada bloque de días.
 Ecuación 48:
 [imagen]
-(Así reformada la ecuación anterior mediante resolución N° RE-0108-JD-2019 del 23 de julio del 2019)
+(Así reformada la ecuación anterior mediante resolución N° RE-0106-JD-2019 del 23 de julio del 2019)
 Donde:
 PCilce = Cantidad de pasajeros por carrera en el grupo de días “i” del ramal “l” del mes de estudio.
 PRVij1l = Cantidad media de pasajeros regulares por viaje en el grupo de días “i” en el bloque horario “j” del sentido 1-2 del ramal “l”.
@@ -658,7 +613,6 @@ AMVij2l = Cantidad media de adultos mayores por viaje en el grupo de días “i�
 %Dl = Porcentaje de descuento adulto mayor en el ramal “l”
 CSijl = Cantidad de carreras semanales en el grupo de días “i” en el bloque horario “j” del ramal “l”.
 CSil = Cantidad de carreras semanales en el grupo de días “i” del ramal “l”.
-[imagen]
 Donde:
 PCilse = Cantidad media de pasajeros por carrera sin estacionalidad en el grupo de días “i” del ramal “l”.
 PCilce = Cantidad de pasajeros por carrera en el grupo de días “i” del ramal “l” del mes de estudio.
@@ -666,12 +620,10 @@ FEml = Factor de estacionalidad del mes “m” para el ramal “l”.
 Posteriormente, se extrae de los registros del SCP no enviados diariamente o las estadísticas reportadas de 12 meses (último mes cerrado) la serie de cantidad de pasajeros por carrera para cada grupo de días (no se consideran los días feriados y de semanas atípicas) y se procede a realizar una prueba de hipótesis con un nivel de confianza del 95% con respecto a la cantidad media de pasajeros por carrera sin estacionalidad para cada grupo de días, como se muestra en el Anexo 5.
 En los casos en los que no se rechace la hipótesis nula sobre la igualdad, se asumirá para el grupo de días, como válida la cantidad de pasajeros por carrera proveniente de los registros del SCP o las estadísticas reportadas al SIR del último año. En los casos donde se rechace la hipótesis nula se tomará la cantidad de pasajeros por carrera para cada grupo de días establecida en la metodología tarifaria, la cual debe ser una cantidad sin estacionalidad.
 Para la determinación del volumen mensual de pasajeros movilizados para cada grupo de días, en el caso de las carreras, se selecciona la cantidad de carreras que corresponda según lo establecido en el apartado Validación de campo de la información del SCP de la sección 4.7.1.b Criterios de decisión para la determinación del volumen mensual de pasajeros de la metodología tarifaria ordinaria. Finalmente se determina el volumen mensual de pasajeros del ramal mediante la suma de la cantidad mensual de pasajeros movilizados de cada grupo de días.
-[imagen]
 Donde:
 PMil = Volumen mensual de pasajeros del ramal “l” en el grupo de días “i”.
 CMMil = Cantidad de carreras mensuales del ramal “l” en el grupo de días “i” según la metodología tarifaria.
 PCMil = Cantidad de pasajeros por carrera del ramal “l” en el grupo de días “i” según la metodología tarifaria.
-[imagen]
 Donde:
 PMl = Volumen mensual de pasajeros del ramal “l”.
 PMil = Volumen mensual de pasajeros del ramal “l” en el grupo de días “i”.
@@ -771,10 +723,8 @@ Paso 2. Planteamiento de hipótesis nula y alternativa
 H0: Los grupos A, B, C, D …. n tienen varianzas homogéneas
 H1: Los grupos A, B, C, D …. n no tienen varianzas homogéneas
 Paso 3. Cálculo de estadístico de homogeneidad de Cochran
-[imagen]
 Paso 4. Reglas de decisión final
 Las reglas de decisión en esta prueba se refieren a la comparación entre el estadístico R observado y el estadístico R teórico obtenido de la consulta de la tabla.
-[imagen]
 Anexo 2. Análisis ANOVA
 Para realizar la prueba de hipótesis de igualdad de medias, se presenta el detalle de los pasos del análisis ANOVA (Analysis of variance, por sus siglas en inglés). Este análisis es aplicable a posibles agrupaciones de ramales o días de la semana, según las pruebas de hipótesis que se definan sobre las cantidades de pasajeros por carrera.
 Paso 1. Definición de variables
@@ -791,13 +741,10 @@ Paso 3. Cálculo de pasajeros por carrera por grupo y global (xg)
 La media de cada grupo es el promedio simple de la serie de datos de pasajeros por carrera, mientras que la media global es el promedio general de todos los registros (no el promedio de los promedios).
 Paso 4. Cálculo de la suma de cuadrados de las desviaciones puntuales con la media global
 Este cálculo se denomina la suma de cuadrados total (SCT) y refleja la variabilidad total, si se divide por la cantidad total de grupos se obtiene la varianza total.
-[imagen]
 Paso 5. Cálculo de la suma de cuadrados de las desviaciones entre medias del grupo y media global
 Este cálculo se denomina suma de cuadrados del factor (SCF) y refleja la variabilidad explicada por el factor considerado entre los grupos.
-[imagen]
 Paso 6. Cálculo de la suma de cuadrados de las desviaciones entre cada dato y la media del grupo
 Este cálculo se denomina suma de cuadrados residual (SCR) y refleja la variabilidad no explicada por el factor considerado o variabilidad dentro de cada grupo.
-[imagen]
 Paso 7. Definición de grados de libertad
 Se definen los grados de libertad para cada suma de cuadrados de las desviaciones:
 • SCT: cantidad total de datos – 1 (n – 1)

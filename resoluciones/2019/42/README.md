@@ -15,3 +15,4 @@ Protocolo para la determinación del volumen mensual de pasajeros mediante estud
 | --- | --- | --- |
 | 1 | 2019-03-18 | la propia norma |
 | 2 | 2019-07-23 | Resolución 108 (2019-07-23) |
+| 3 | 2019-07-23 | Resolución 106 (2019-07-23) |
