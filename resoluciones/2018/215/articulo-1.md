@@ -166,6 +166,10 @@ En los casos en que el costo de los estudios de calidad del servicio se encuentr
 En los casos en que el costo de los estudios de calidad del servicio se encuentre expresado en una moneda internacional distinta al dólar de los Estados Unidos, se debe convertir la moneda a dólares de los Estados Unidos utilizando el “tipo de cambio del dólar estadounidense para otras monedas”, establecido por el BCCR, a la fecha de la factura de dicho estudio. Una vez que se cuente con el monto en dólares estadounidense, se aplica el criterio establecido en el párrafo anterior para convertir el monto de dólares a colones.
 (…)”
 Eliminación del valor tope máximo por tipo de unidad de transporte:
+En la sección 4.9.2 denominada “Valoración de vehículos con reglas de cálculo tarifario tipo 2”, corríjase el punto 1.2 para que se lea:
+“(…)
+1.2 La IT deberá conformar un expediente administrativo con el fin de documentar el proceso de determinación del valor promedio por tipo de unidad y año de fabricación, de manera que sea auditable y permita la trazabilidad de los valores. Para cada momento en que se requiera calcular este valor, el expediente deberá incluir, como mínimo, las hojas de cálculo, la información base, el informe técnico que sustenta la resolución y los resultados obtenidos.
+(Así adicionado el punto anterior mediante resolución N° RE-0108-JD-2019 del 23 de julio del 2019)
 “Modifíquese el inciso e. del apartado 1.3 de la Sección 4.9.2 Valoración de vehículos con reglas de cálculo tarifario tipo 2, para que se lea de lasiguiente manera:
 “(…)
 e. Este valor de bus o vehículo nuevo, será la base tarifaria sobre la cual se estimarán los demás rubros asociados.
