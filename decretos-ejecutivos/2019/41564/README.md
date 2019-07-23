@@ -15,3 +15,4 @@ Reglamento del Título III de la Ley Fortalecimiento de las Finanzas Públicas, 
 | --- | --- | --- |
 | 1 | 2019-02-18 | la propia norma |
 | 2 | 2019-05-20 | Decreto Ejecutivo 41729 (2019-05-20) |
+| 3 | 2019-07-23 | Decreto Ejecutivo 41807 (2019-07-23) |
