@@ -1,0 +1,2 @@
+ARTÍCULO 2- Monto autorizado. El monto autorizado en el artículo anterior es hasta de mil quinientos millones de dólares (US $1.500.000.000), el cual podrá colocarse en dólares estadounidenses o su equivalente en cualquier otra moneda, durante el siguiente año después de aprobada esta ley.
+Antes de realizar estas colocaciones en el mercado internacional, el Ministerio de Hacienda deberá haber presentado, a la Asamblea Legislativa, los proyectos de ley o las cartas de autorización de los préstamos de apoyo presupuestario, negociados con los organismos multilaterales.
