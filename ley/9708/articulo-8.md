@@ -1,0 +1,5 @@
+ARTÍCULO 8- Presentación de informe de las operaciones de financiamiento internacionales. Dentro de un mes posterior a la fecha de cierre de cada transacción, el Ministerio de Hacienda deberá enviar, a la Asamblea Legislativa y a la Contraloría General de la República, un informe que deberá indicar detalles de los siguientes procesos:
+a) Proceso de selección, contratación y costos administrativos de la asesoría legal internacional, bancos colocadores, servicios de calificación de riesgo, agente fiscal, de registro y de pago señalados en los artículos 6 y 7 de esta ley.
+b) Proceso de emisión que incluya: monto a colocar, fecha de salida al mercado, plazo de colocación y precio.
+c) Resultados de la colocación que incluya: distribución geográfica y por tipo de inversionistas, impacto en el mercado doméstico, justificación técnica de la tasa de interés pactada en función de las condiciones financieras prevalecientes del mercado, donde se demuestren los ahorros y otros beneficios obtenidos en dicho proceso.
+La Contraloría General de la República, como ente auxiliar de la Asamblea Legislativa, deberá realizar un análisis periódico de dichos informes .
