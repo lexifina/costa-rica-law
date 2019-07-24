@@ -14,3 +14,4 @@ Operaciones exentas relacionadas con las exportaciones establecidas en el artíc
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-07-01 | la propia norma |
+| 2 | 2019-07-24 | Resolución 43 (2019-07-24) |
