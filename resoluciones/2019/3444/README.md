@@ -14,3 +14,4 @@ Medidas sanitarias especiales emitidas por el Ministro de Salud con respecto a l
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-07-24 | la propia norma |
+| 2 | 2019-07-24 | Resolución 3445 (2019-07-24) |
