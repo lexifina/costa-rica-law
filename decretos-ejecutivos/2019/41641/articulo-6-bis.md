@@ -1,0 +1,4 @@
+Artículo 6º bis.—Certificaciones de los gastos capitalizables. Los jerarcas supremos deberán certificar los gastos capitalizables de cada uno de los proyectos de inversión,
+especificando los montos en millones de colones con dos decimales, de las partidas de gasto corriente que se están capitalizando, tanto en los presupuestos ordinarios vigentes como en los presupuestos ordinarios del periodo siguiente, que deberán remitir a la STAP.
+A partir del presupuesto ordinario 2020, no se considerarán para efectos de lo anterior, aquellos proyectos de inversión que no cuenten con la debida inscripción en el Banco de Proyectos de Inversión Pública (BPIP) de MIDEPLAN, en caso de que la entidad se encuentre sujeta a ese requisito.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 41891 del 24 de julio de 2019)
