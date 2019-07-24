@@ -1,8 +1,3 @@
-Artículo 16°.- Gestión de la solicitud de exoneración.
-El interesado que se ha registrado previamente en Exonet, consignará por ese medio en el formulario correspondiente, la información requerida relacionada con el trámite de exención o tarifa reducida, debiendo:
-1. Estar al día en sus obligaciones tributarias.
-2. Estar inscrito en el Registro de Exportadores o en el Registro de productores, distribuidores y comercializadores de productos incluídos en el decreto de canasta básica tributaria.
-3. Estar al día con la Caja Costarricense de Seguro Social.
-4. Presentar solicitud ante el Sistema Exonet mediante el formulario: “Solicitud de Exención de Impuestos Locales Genérica” o “Formulario Solicitud de Exención de Impuestos Locales Concreta” en el caso que corresponda.
-5. Presentar una lista de los bienes que produce, comercializa, distribuye, exporta o servicios que presta.
-6. Presentar una lista de servicios y mercancías necesarias para producir, comercialización o distribuir o exportar, según corresponda.
+Artículo 16º- Cumplimiento de requisitos.
+El cumplimiento de los requisitos establecidos en la presente resolución es obligatorio, pudiendo la Administración Tributaria prevenir al interesado por una única vez, para que complete aquellos que haya omitido; en caso de incumplimiento se procederá al archivo del caso, de conformidad con el artículo 59 del Reglamento de Procedimiento Tributario, Decreto Ejecutivo N° 38277-H del 2 de abril de 2014.
+(Corrida su numeración por el artículo 1° de la resolución N° DGT-DGH-R-043-2019 del 24 de julio del 2019, que lo traspasó del antiguo artículo 8 al 16)

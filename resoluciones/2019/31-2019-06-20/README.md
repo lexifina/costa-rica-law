@@ -14,3 +14,4 @@ Registro de comercializadores, distribuidores y productores de canasta básica t
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-06-24 | la propia norma |
+| 2 | 2019-07-24 | Resolución 43 (2019-07-24) |

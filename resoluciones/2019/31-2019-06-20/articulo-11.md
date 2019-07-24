@@ -1,2 +1,6 @@
-Artículo 11º- Competencia.
-Corresponde a las Subgerencias de Servicio al Contribuyente de las Administraciones Tributarias Territoriales y a la Subdirección de Recaudación Control y Servicios Tributarios de la Dirección de Grandes Contribuyentes Nacionales el conocimiento, según su jurisdicción, el trámite y elaboración de la resolución respectiva de las solicitudes de inclusión en el Registro de comercializadores, distribuidores y productores de canasta básica tributaria y Registro de exportadores.
+CAPÍTULO V
+Registro de Proveedores de la Caja Costarricense del Seguro
+Social y las Corporaciones Municipales.
+(Así adicionado el capítulo anterior por el artículo 1° de la resolución N° DGT-DGH-R-043-2019 del 24 de julio del 2019. No obstante la numeración del capítulo no coincide con la numeración del capítulo III adicionado anteriormente por esta misma resolución)
+Artículo 11.—Registro de Proveedores de la Caja Costarricense del Seguro Social y las Corporaciones Municipales. Créase un registro de proveedores de la Caja Costarricense del Seguro Social y de las Corporaciones Municipales, al amparo de lo establecido en el párrafo tercero del artículo 28 de la Ley del Impuesto sobre el Valor Agregado, con el fin de identificar a los obligados tributarios que venden bienes y/o prestan los servicios a estas instituciones y que podrán solicitar ante la Dirección General de Hacienda la autorización para adquirir los bienes y servicios que ponen a disposición de las mismas, sin el pago previo del Impuesto sobre el Valor Agregado.
+(Así adicionado por el artículo 1° de la resolución N° DGT-DGH-R-043-2019 del 24 de julio del 2019)

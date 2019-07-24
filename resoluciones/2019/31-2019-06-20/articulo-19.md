@@ -1,1 +1,3 @@
-Artículo 19°- Vigencia. Rige a partir del 24 de junio de 2019.
+Artículo 19º- Competencia.
+Corresponde a las Subgerencias de Servicio al Contribuyente de las Administraciones Tributarias Territoriales y a la Subdirección de Recaudación Control y Servicios Tributarios de la Dirección de Grandes Contribuyentes Nacionales el conocimiento, según su jurisdicción, el trámite y elaboración de la resolución respectiva de las solicitudes de inclusión en el Registro de comercializadores, distribuidores y productores de canasta básica tributaria y Registro de exportadores.
+(Corrida su numeración por el artículo 1° de la resolución N° DGT-DGH-R-043-2019 del 24 de julio del 2019, que lo traspasó del antiguo artículo 11 al 19)
