@@ -46,3 +46,4 @@ Reglamento de la Asamblea Legislativa
 | 31 | 2017-11-21 | Reglamento 99 (2017-11-21) |
 | 32 | 2018-07-23 | Reglamento 41 (2018-07-23) |
 | 33 | 2019-03-04 | Reglamento 31 (2019-03-04) |
+| 34 | 2019-07-24 | Reglamento 45 (2019-07-24) |
