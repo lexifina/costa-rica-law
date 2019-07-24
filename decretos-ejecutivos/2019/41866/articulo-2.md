@@ -1,0 +1,1 @@
+Artículo 2º—Todas las entidades del sector público costarricense y los órganos adscritos que por ley, reglamento o normativa interna deban asumir obligaciones y ejercer atribuciones, quedan comprometidos ante el INCOFER a cumplir diligentemente lo propio de sus competencias, con el objeto de garantizar la oportuna y eficiente ejecución del proyecto.
