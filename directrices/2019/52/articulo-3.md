@@ -1,0 +1,1 @@
+Artículo 3°—Toda nueva normativa que haya ingresado al Sistema de Control Previo del Ministerio de Economía, Industria y Comercio, de previo a la entrada en vigencia de la presente directriz, continuará su trámite de acuerdo con las reglas dispuestas por la Dirección de Mejora Regulatoria de esa cartera ministerial.
