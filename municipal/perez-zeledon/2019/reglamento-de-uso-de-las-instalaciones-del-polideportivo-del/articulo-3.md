@@ -1,0 +1,1 @@
+Artículo 3º—Administración: La Administración de las instalaciones municipales destinadas al uso público, estará a cargo del Subproceso de Servicios Municipales de la Municipalidad de Pérez Zeledón, la Coordinación de esa Oficina Administrativa será la responsable de velar por una correcta utilización del inmueble y hacer cumplir las normas establecidas en el presente reglamento.
