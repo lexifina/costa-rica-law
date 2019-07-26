@@ -1,0 +1,1 @@
+Artículo 2º—Fondo de Caja Chica. Concepto: Se entiende por fondo de caja chica la suma de dinero autorizada por el Concejo Municipal, que se mantendrá en dinero efectivo para efectos de gastos menores para la adquisición de bienes y servicios, que por su naturaleza no ameritan realizar o finalizar los procedimientos de contratación administrativa debido a escasas cuantía.

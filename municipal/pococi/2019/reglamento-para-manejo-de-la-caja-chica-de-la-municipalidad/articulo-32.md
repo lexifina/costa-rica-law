@@ -1,0 +1,1 @@
+Artículo 32.—Ningún funcionario de la Municipalidad, con la excepción de quienes tengan en custodia los fondos de Caja Chica, podrán mantener en su poder fondos de Caja Chica por más de tres días. De presentarse tal situación deberá el solicitante devolver el dinero para la anulación del vale y volver a tramitar.

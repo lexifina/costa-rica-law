@@ -1,0 +1,1 @@
+Artículo 15.—De conformidad con lo establecido en el artículo 8 del Código Municipal, la Municipalidad de Pococí está exenta de toda clase de impuestos, por lo tanto, el usuario del Fondo de Caja Chica deberá gestionar ante el departamento de Contabilidad Municipal la carta de exoneración de impuestos de ventas.
