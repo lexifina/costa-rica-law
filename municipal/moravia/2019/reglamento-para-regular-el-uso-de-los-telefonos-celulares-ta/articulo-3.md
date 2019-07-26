@@ -1,0 +1,1 @@
+Artículo 3º—Sujetos pasivos. Se considerarán sujetos pasivos del presente reglamento aquellos funcionarios que requieran indispensablemente como herramienta de trabajo un teléfono celular, tableta y/o cualquier otro dispositivo de similar funcionamiento.

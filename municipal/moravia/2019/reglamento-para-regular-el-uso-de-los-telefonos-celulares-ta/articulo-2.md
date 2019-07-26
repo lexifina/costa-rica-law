@@ -1,0 +1,5 @@
+Artículo 2º—Definiciones. Para efecto del presente reglamento se presenta el siguiente elenco de definiciones:
+a) Uso: se refiere al proceso de asignación y utilización a un funcionario municipal de un teléfono celular, tableta y/o cualquier otro dispositivo de similar funcionamiento, que puede incluir o no el servicio de telefonía y/o datos, según lo requiera la Municipalidad.
+b) Herramienta de trabajo: se comprenderá que la asignación de un teléfono celular, tableta y/o cualquier otro dispositivo de similar funcionamiento se constituye en una herramienta de trabajo, cuando en función del puesto que se ocupa en la Municipalidad sea indispensable la utilización del mismo para lograr la eficiente y eficaz prestación del servicio.
+c) Aval técnico: es el análisis escrito que realiza una Dirección, Alcaldía y/o Vice Alcaldía para determinar la procedencia de asignar un teléfono celular, tableta y/o cualquier otro dispositivo de similar funcionamiento a un funcionario que está bajo su línea jerárquica.
+d) Dependencia superior: se comprende dentro de este calificativo la Alcaldía y Vicealcaldia.

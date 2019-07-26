@@ -1,0 +1,1 @@
+Artículo 6º—Formalización de la entrega. Una vez adquirido y registrado el activo, el departamento de tecnologías de la información procederá a la entrega formal del mismo, la cual se hará únicamente al usuario final, quien en ese acto deberá suscribir un contrato de uso.

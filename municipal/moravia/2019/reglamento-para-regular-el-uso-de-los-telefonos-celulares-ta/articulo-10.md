@@ -1,0 +1,1 @@
+Artículo 10.—Cambio de plan. En caso de ser necesario hacer una mejora o disminuir las características del plan telefónico adquirido se deberá solicitar al departamento de TI para su respectivo análisis y trámite.
