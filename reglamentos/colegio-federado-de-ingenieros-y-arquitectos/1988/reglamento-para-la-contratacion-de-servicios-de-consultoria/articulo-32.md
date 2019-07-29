@@ -1,3 +1,0 @@
-Artículo 32.—Alcance del contrato: El contrato debe definir, de manera precisa, el alcance de los trabajos que debe realizar el consultor y las obligaciones y responsabilidades que éste y el cliente adquieren en su relación contractual. Debe registrarse obligatoriamente en el Colegio Federado previo al inicio del servicio, en la fórmula oficial de contrato que emita el Colegio Federado.
-Esta fórmula incluye las cláusulas mínimas obligatorias que todo contrato de consultoría debe contener.
-Adicionalmente, el consultor o la compañía consultora podrán utilizar sus propias fórmulas de contrato, incluyéndose en este caso —a manera de anexo—, la fórmula del Colegio Federado.

@@ -1,1 +1,0 @@
-Artículo 35.—Ajuste de honorarios: En todos aquellos casos en que el honorario profesional se calcule con base en tarifas por costo de obra, el monto fijado en el contrato se considerará tentativo, ya que dicho monto se ajustará al costo final de obra en cada etapa contratada, según se fije en los aranceles anexos a este reglamento.

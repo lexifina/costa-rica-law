@@ -1,1 +1,0 @@
-Artículo 4°- Servicios profesionales de consultoría: Se definen como "servicios profesionales de consultoría" las labores de tipo eminentemente intelectual desarrolladas por ingenieros y arquitectos en sus distintas especialidades para la solución de los más diversos problemas en el planeamiento, desarrollo. evaluación y ejecución de obras de ingeniería y arquitectura.

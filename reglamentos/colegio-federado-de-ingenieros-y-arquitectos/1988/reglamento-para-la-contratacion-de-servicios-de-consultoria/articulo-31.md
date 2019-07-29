@@ -1,2 +1,0 @@
-Artículo 31.—Partes contratantes: El cliente y el consultor deben tener capacidad jurídica para subscribir el contrato. Ambas partes deben declarar que se acogen a las condiciones que establece el presente reglamento y su anexo de aranceles que regirán el trabajo por realizar.
-Antes de iniciar la ejecución de cualquier servicio de consultoría, se debe formalizar la relación cliente-profesional mediante un contrato escrito de servicios profesionales.

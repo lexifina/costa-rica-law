@@ -1,3 +1,0 @@
-Articulo 12 —Relación entre profesionales: La actividad de la consultoría por la naturaleza o por el procedimiento de ejecución de los proyectos, obliga a una relación permanente entre los profesionales.
-En algunos casos, como en los proyectos multidisciplinarios, esta relación es de trabajo compartido o labor complementaria. En otros, se trata de labores en etapas de proyectos iniciados por un profesional y continuados por otro. o de la contratación de un profesional por otro de su mismo ramo.
-En todos los casos las relaciones entre profesionales deberán sujetarse con lo que se indica en el apartado A del Código de Etica Profesional y en los artículos 7°, 8° y 41 del presente reglamento.
