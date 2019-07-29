@@ -1,0 +1,1 @@
+Artículo 2º—Colaboración. Las instituciones del Sector Público y el Sector Privado, dentro del marco legal respectivo, podrán contribuir con cualquier tipo de recursos o alternativas de colaboración, siempre en la medida de sus posibilidades y sin perjuicio del cumplimiento de sus propios objetivos, con las actividades e iniciativas relacionadas a dicha exposición.
