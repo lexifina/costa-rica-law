@@ -1,2 +1,0 @@
-Artículo 32.—Rompimiento de cuórum. No deberá interrumpirse la votación, a menos que se rompa el cuórum de la asamblea general, según el artículo 15 de la Ley Orgánica del Colegio de Farmacéuticos de Costa Rica. Una vez restablecido el cuórum, se continuará la elección.
-En tanto el cuórum no se restablezca, no se podrá cambiar de local, y el material electoral quedará bajo la custodia del Tribunal y los fiscales presentes.

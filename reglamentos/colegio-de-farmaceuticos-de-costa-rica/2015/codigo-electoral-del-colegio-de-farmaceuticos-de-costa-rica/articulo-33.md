@@ -1,1 +1,0 @@
-Artículo 33.—Ausencia de algún miembro de la junta receptora. Si durante la votación se ausenta un miembro de la junta receptora, se sustituirá conforme lo establece el artículo 19 de este código. Estas incidencias deben anotarse en el artículo correspondiente del acta electoral.
