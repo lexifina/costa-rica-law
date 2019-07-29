@@ -26,3 +26,4 @@ Aprueba Plan Cuentas para Grupos y Conglomerados Financieros, Deroga Plan Cuenta
 | 11 | 2014-09-29 | Reglamento 1129 (2014-09-29) |
 | 12 | 2015-08-10 | Reglamento 1189 (2015-08-10) |
 | 13 | 2018-09-11 | Reglamento 1442 (2018-09-11) |
+| 14 | 2019-07-29 | Reglamento 1515 (2019-07-29) |
