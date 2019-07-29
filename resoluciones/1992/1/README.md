@@ -16,3 +16,4 @@ Concede autorización genérica y permanente en favor de los miembros de las Mis
 | 1 | 1992-08-20 | la propia norma |
 | 2 | 1995-06-19 | Resolución 26 (1995-06-19) |
 | 3 | 1998-10-09 | SINALEVI (sin norma nombrada) |
+| 4 | 2019-07-29 | Resolución 44 (2019-07-29) |
