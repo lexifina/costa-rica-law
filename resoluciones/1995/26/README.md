@@ -14,3 +14,4 @@ Reforma resolución N° 1 del 14/07/1992, "Concede autorización genérica y per
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1995-10-11 | la propia norma |
+| 2 | 2019-07-29 | Resolución 44 (2019-07-29) |
