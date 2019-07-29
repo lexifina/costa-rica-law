@@ -1,5 +1,6 @@
-DIRECCION GENERAL DE HACIENDA Y
-DIRECCION GENERAL DE LA TRIBUTACION
+(Derogado)
+DIRECCION GENERAL DE HACIENDA Y DIRECCION GENERAL DE LA TRIBUTACION
+(Esta norma fue derogada por resolución DGH-044-2019 del 29 de julio de 2019, “Concede autorización al Ministerio de Relaciones Exteriores para que estampe en el carné diplomático (DIDIS), la leyenda de exoneración y el número de esta resolución para que se exonere al diplomático y su cónyuge del IVA”)
 N° 174.-Dirección General de Hacienda y Dirección General de la Tributación.--San José, a las once horas del nueve de octubre de mil novecientos noventa y ocho.
 Considerando:
 1°-Que la Ley N° 3394, de 24 de setiembre de 1964, concede entre otros beneficios, exención del Impuesto General sobre las Ventas a las adquisiciones que realicen los diplomáticos extranjeros acreditados en el país y a los miembros que componen el grupo familiar de estos diplomáticos.
