@@ -1,0 +1,1 @@
+Transitorio único: Este reglamento con las derogatorias aprobadas en los artículos 3, 5, 7 y 10 será de aplicación obligatoria cuatro meses después de su publicación en el Diario Oficial La Gaceta. Acuerdo unánime y firme.
