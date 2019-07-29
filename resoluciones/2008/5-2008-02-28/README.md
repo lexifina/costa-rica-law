@@ -15,3 +15,4 @@ Comunica emisión de resoluciones de la Dirección General de Servicio Civil (DG
 | --- | --- | --- |
 | 1 | 2008-03-13 | la propia norma |
 | 2 | 2018-06-29 | Resolución 6 (2018-06-29) |
+| 3 | 2019-07-29 | Resolución 13 (2019-07-29) |
