@@ -20,3 +20,4 @@ Reglamentación de Características y Condiciones Generales de los vehículos ta
 | 5 | 2011-07-29 | Decreto Ejecutivo 36737 (2011-07-29) |
 | 6 | 2011-12-02 | Decreto Ejecutivo 36929 (2011-12-02) |
 | 7 | 2019-01-23 | Decreto Ejecutivo 41549 (2019-01-23) |
+| 8 | 2019-07-29 | Decreto Ejecutivo 41952 (2019-07-29) |
