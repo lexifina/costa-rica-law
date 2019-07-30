@@ -1,0 +1,2 @@
+ARTÍCULO 92:
+En caso que el interés público lo demande o se establezcan roles especiales, se podrá trabajar los días de descanso semanal, cuando lo autorice la Decanatura. Si se llega a exceder la jornada ordinaria correspondiente, se reconocerá el pago de salario extraordinario, de acuerdo a los parámetros establecidos por la Contraloría General de la República y en este reglamento.

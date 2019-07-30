@@ -1,0 +1,2 @@
+ARTICULO 60:
+El CUNLIMÓN no garantiza a los servidores docentes que su nombramiento se pueda prolongar indefinidamente en el tiempo, ni que la jornada originalmente asignada pueda ser mantenida, debido a los posibles cambios en las carreras o en la matrícula. Serán nombrados únicamente por contratos a plazo definido, tantos como sea necesario, durante el tiempo que preste servicios en la Institución.

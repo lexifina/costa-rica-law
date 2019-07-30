@@ -1,0 +1,2 @@
+ARTÍCULO 81:
+Las calificaciones de servicio deben llevar adjunta, una explicación de las causas que las motivaron, las advertencias y observaciones formuladas al servidor, cuando correspondan a regular y deficiente.

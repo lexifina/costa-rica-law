@@ -1,0 +1,2 @@
+ARTÍCULO 42:
+Las funciones que el manual descriptivo de puestos enumera no agotan las propias de cada puesto. No siendo taxativas dichas enumeraciones, se entenderán tan solo como representativas de las funciones correspondientes. En consecuencia, el servidor no podrá negarse a ejecutar a requerimiento de sus superiores, otras que, aunque no contempladas en el manual, resulten acordes con la naturaleza del cargo que ocupa.
