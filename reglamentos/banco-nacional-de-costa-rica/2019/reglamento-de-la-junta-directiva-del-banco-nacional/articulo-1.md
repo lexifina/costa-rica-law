@@ -1,0 +1,54 @@
+BANCO NACIONAL DE COSTA RICA
+El Banco Nacional de Costa Rica comunica la parte resolutiva del acuerdo tomado por la Junta Directiva General, en la Sesión No. 12.367, artículo 3º, celebrada el 17 de junio del 2019, en el cual acordó aprobar el sexto entregable del Proyecto de eficientización de la gestión de la Junta Directiva General, el cual contiene, entre otros: i) la propuesta de capacitación de las Juntas Directivas Locales, ii) la evaluación cualitativa de los órganos de gobierno (juntas directivas de las subsidiarias y comités corporativos), iii) el Manual de Director, Edición 2 (AN01-RG01GC01), iv) Procedimiento para la gestión del cumplimiento normativo (PR02GC01), v) Reglamento de la Junta Directiva del Banco Nacional, Edición 2 (RG01GC01), y vi) Reglamento de Organización de las Juntas Directivas Locales del BNCR, Edición 3 (RG02-GC01), para que, en lo sucesivo, ambos reglamentos se lean de conformidad con el siguiente texto:
+Reglamento de la Junta Directiva del Banco Nacional
+Capítulo I
+Disposiciones Generales
+Objetivo del Reglamento
+El presente reglamento regula el funcionamiento de la Junta Directiva General del Banco Nacional de Costa Rica (en adelante JDG) en el ejercicio de las competencias que le otorga la Ley General de la Administración Pública (en adelante LGAP), la Ley Orgánica del Sistema Bancario Nacional (en adelante LOSBN), la Directriz 099-MP Revisión de las funciones de órganos de dirección y fortalecimiento de su rol estratégico en las empresas propiedad del estado e instituciones autónomas , el Reglamento de Gobierno Corporativo (SUGEF 16-16) y las demás normas que regulan el sector financiero.
+Definiciones
+Término | Definición
+BNCR | Banco Nacional de Costa Rica
+JDG | Junta Directiva General del Banco Nacional de Costa Rica
+LGAP | Ley General de la Administración Pública
+LOSBN | Ley Orgánica del Sistema Bancario Nacional
+Alta Gerencia | Alta Administración del BNCR compuesta por el Gerente General, Sugerentes y Directivos (N-1)
+Comités | Apoyo técnico de la JDG por requerimiento normativo o por requerimiento de la JDG
+Comisión | Una comisión puede ser temporal
+Junta Directiva General
+El BNCR es una institución autónoma de derecho público, con personería propia e independencia en materia de administración y sujeta a la ley en materia de gobierno y funcionará bajo la dirección inmediata de una JDG, integrada por siete miembros, los cuales son nombrados por el Consejo de Gobierno en los términos que establece la LOSBN, por períodos de ocho años, pudiendo ser reelectos.
+Los miembros de la JDG ejercerán sus funciones con absoluta independencia y bajo su exclusiva responsabilidad dentro de las normas establecidas por las leyes, reglamentos aplicables y principios de la sana crítica. Gozarán de la más completa libertad para proceder en el ejercicio de sus funciones, conforme con su conciencia y con su propio criterio y serán personalmente responsables de su gestión en la dirección general del Banco.
+Los miembros de la JDG en su totalidad, se concretarán al ejercicio de las atribuciones que por ley les han sido conferidas, sin abarcar funciones privativas de la Administración, pero sin delegar tampoco las responsabilidades que le atañen como jerarquía máxima de la institución. Las decisiones sobre las funciones puestas bajo su competencia, sólo podrán emanar de la JDG.
+En línea con las mejores prácticas y lo estipulado en la Directriz Presidencia 099-MP Revisión de las funciones de órganos de dirección y fortalecimiento de su rol estratégico en las empresas propiedad del estado e instituciones autónomas; anualmente se evaluará la gestión de la JDG, según los mecanismos y herramientas establecidas en el AN03GC01, Metodología para la evaluación de los órganos de gobierno del CFBNCR, de manera que se identifiquen oportunidades de mejora orientadas a la dirección de la estrategia y el liderazgo del órgano director.
+Elección del Directorio de la Junta Directiva General.
+A más tardar en la última sesión de cada año calendario, la JDG elegirá de su seno, por mayoría de votos de los miembros presentes, un Presidente, un Vicepresidente y un Secretario, quienes se desempeñarán en tales cargos por un año, pudiendo ser reelectos para tal propósito y, desempeñarán sus cargos con base en lo que al efecto disponen, entre otras normas, los artículos 2°,27°,28°,30°,31°,32°,34°,35° y 36° de la LOSBN, y los artículos 49° y 51° de la LGAP. En caso de renuncias o vacantes se procederá a realizar los nombramientos respectivos por lo que reste del período utilizando el mismo procedimiento. Para realizar esta elección se procurará que se encuentren presentes todos los miembros del órgano colegiado.
+La elección en forma individual para cada cargo se realizará en votación secreta, mediante boletas en las que cada integrante del órgano colegiado escribirá el nombre de su candidato.
+El escrutinio de las boletas lo realizará el Gerente General auxiliado por el Secretario General, e informará en forma inmediata del resultado a la JDG.
+Las funciones relacionadas con el levantamiento de actas de las sesiones del órgano, la comunicación de resoluciones, cuando ello no corresponda al Presidente y las demás asignadas por la ley o los reglamentos, recaerán en un Secretario General nombrado para estos efectos, quien no formará parte del órgano colegiado.
+El Auditor General fiscalizará que el procedimiento de elección para cada cargo se haya realizado de acuerdo con estas disposiciones y de conformidad con la legislación vigente y aplicable.
+Prohibiciones de los miembros de la Junta Directiva General
+Las prohibiciones de los miembros de la JDG se determinan en los artículos 29 (participación en actividades político electorales), 25 (causas de cesación) y 117 (efectuar operaciones activas directas ni indirectas) de la LOSBN, sin perjuicio de lo estipulado en otras disposiciones legales.
+Deberes y Atribuciones del Presidente de la Junta Directiva General.
+El Presidente de la JDG tendrá los deberes y atribuciones previstos en los artículos 36° de la LOSBN, 49° de la LGAP, 5° de la Directriz 099-MP y 22° de la SUGEF 16-16, así como todos aquellos previstos en el ordenamiento jurídico vigente y aplicable al efecto.
+Cuando se produzca un empate en una votación, el Presidente tendrá voto de calidad y resolverá en definitiva el asunto.
+En caso de ausencia o impedimento transitorio del Presidente de la JDG, será reemplazado por el Vicepresidente quien, en tal evento, ejercerá con iguales atribuciones, facultades y deberes que aquel. Cuando en alguna sesión, por cualquier motivo, el Presidente y el Vicepresidente de la JDG estuvieren ausentes o impedidos del ejercicio de su cargo, los restantes miembros de JDG nombrarán dentro de ellos a cualquiera otro como Presidente ad hoc.
+Quien presida la JDG no deberá asumir la presidencia de los comités que constituya la JDG, con el fin de mantener el balance y el cumplimiento de las labores de esas instancias, siempre y cuando lo permita la cantidad de directores en los diferentes comités.
+Nombramiento del Gerente General y Subgerentes Generales.
+El Gerente General y los Subgerentes Generales serán nombrados por la JDG, con el voto favorable de no menos de cinco de sus miembros, por un período de seis años pudiendo ser reelegidos; sin embargo, para realizar este nombramiento se procurará que se encuentren presentes todos los miembros del órgano colegiado.
+Para estos nombramientos, la JDG podrá nombrar discrecionalmente a la persona que, a juicio del órgano, resulta idónea para el cargo, o bien, podrá hacer un concurso por invitación o un concurso abierto, así como cualquier otro proceso de selección que estime pertinente.
+Cuando en el ejercicio de sus potestades, la JDG decida no reelegir a uno de estos funcionarios, se lo comunicará al interesado con al menos un mes de antelación.
+Nombramiento del Auditor General y Subauditor General.
+La JDG deberá nombrar con el voto favorable de no menos de cinco de sus miembros el Auditor General y Subauditor General, o Subauditores, si hubiere varios, de conformidad con lo dispuesto en la Ley Orgánica del Sistema Bancario Nacional y la Ley General de Control Interno. Para realizar este nombramiento se procurará que se encuentren presentes todos los miembros del órgano colegiado.
+Nombramientos de las Juntas Directivas Locales y Gerentes de Sucursales.
+Los miembros de las juntas directivas locales y el gerente de las sucursales serán designados por la JDG, mediante votación por mayoría de los votos presentes.
+Compromisos del Director
+Los directores deberán suscribir un documento denominado “Compromiso de confidencialidad” en acatamiento de lo dispuesto en las políticas de seguridad de la información emitidas por el Banco.
+En cumplimiento con la Directriz Presidencial N° 039-MP Política general para el establecimiento de una evaluación del desempeño en las Juntas Directiva su Órganos de Dirección de las empresas propiedad del estado y de instituciones autónomas, cada uno de los miembros que integran la JDG y las Juntas Directivas de las Subsidiarias, así como los comités de apoyo asumen el compromiso formal con el Gobierno de la República de realizar la autoevaluación de su gestión, la evaluación del órgano y la evaluación de la presidencia de la Junta Directiva General, también a desarrollar e implementar los planes de mejora para fortalecer la gestión del órgano, tanto los identificados a lo interno del órgano, como los señalados por el Consejo de Gobierno o la unidad administrativa que este designe.
+El compromiso formal de cada integrante del Órgano Director y comités de apoyo con la evaluación del órgano se realiza por medio de Compromiso del Director (a) que formará parte de su expediente personal.
+Además, cada director se comprometerá a participar activamente en los Comités de Apoyo Técnico que la JDG les asigne, en cumplimiento al art. 24 de la SUGEF 16-16 Reglamento de Gobierno Corporativo y demás regulaciones existentes.
+Unidades Técnicas de Apoyo.
+La JDG contará con una Asesoría Legal permanente y podrá constituir otras unidades técnicas de apoyo para garantizar el adecuado cumplimiento de sus funciones.
+Las funciones del Asesor Legal se describen en el PR22GC01 Atención de Requerimientos Legales o en algún procedimiento definido en el CGGC01 Ciclo de Proceso de la Gestión de la JDG General.
+Secretaría General
+La Secretaría General es una dependencia de carácter administrativo, que soporta a la JDG en el cumplimiento de sus deberes y atribuciones.
+La Secretaría General estará a cargo de un Secretario General y contará con el personal y recursos indispensables para el cumplimiento de sus funciones.
+Las funciones de la Secretaría General se definen en el MG02MC01 Manual de Organización encuentran en los procedimientos definidos en el Mapa de Procesos de la Gestión de la JDG.
