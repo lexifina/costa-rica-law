@@ -1,0 +1,5 @@
+Artículo 15. Conformación del CICI. El Comité estará integrado de la siguiente manera:
+a) Por los miembros administrativos que se indican a continuación: el/la Titular de Alcaldía, los/as directores/as o superiores de las áreas sustantivas y la Planificadora Institucional. El nombramiento de los miembros administrativos recae en el/la Alcalde/sa.
+b) El Concejo Municipal nombrará dos regidores propietarios, con derecho a voz, pero sin voto, como enlace para propiciar el apoyo superior integral en el funcionamiento del Sistema.
+El nombramiento se hará por un período de dos años y sus miembros pueden ser designados nuevamente por la respectiva autoridad. No obstante, según sea valorado por la autoridad correspondiente, podrán realizarse nombramientos por un periodo distinto según convenga.
+Dicho Comité contará con la asesoría de la Auditoría Interna, la Unidad de Control Interno y la Dirección de Asesoría y Gestión Jurídica, cuando se considere conveniente, solicitándolo debidamente por escrito.

@@ -1,0 +1,6 @@
+Artículo 27. Procedimiento sancionatorio.
+Para el debido proceso la potestad sancionatoria será competencia del Alcalde/sa, y cuando corresponda del Concejo Municipal. La aplicación de la sanción se realizará en apego a las disposiciones de los artículos 158 y 159 del Código Municipal, en concordancia con el artículo 308 y siguientes de la Ley General de Administración Pública.
+En caso de no aplicación de las medidas correspondientes, o a falta de inicio del procedimiento administrativo, se reputará como falta grave al funcionario/a que deje prescribir la responsabilidad del infractor.
+En caso de que las faltas fueran cometidas por los regidores, Alcalde/sa o Vice Alcaldes/sa, se informará de ello a la Contraloría General de la República, Ministerio Público o al Tribunal Supremo de Elecciones, según corresponda, para que conforme a derecho se proceda a imponer las sanciones correspondientes.
+Derogatoria: El presente reglamento deroga el Reglamento para el funcionamiento del Sistema de Control Interno de la Municipalidad de Heredia, publicado en La Gaceta No.18, del lunes 27 de enero del 2014.
+Rige a partir de su publicación en el Diario Oficial “La Gaceta”, para lo cual se utilizará el procedimiento estipulado en el artículo 43 del Código Municipal.

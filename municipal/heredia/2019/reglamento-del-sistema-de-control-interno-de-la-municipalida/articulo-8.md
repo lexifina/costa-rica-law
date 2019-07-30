@@ -1,0 +1,4 @@
+Artículo 8. Diseño de la estructura. La estructura que se define para la operación del SCI-MH, sistematiza de forma coherente el desarrollo de todos los niveles funcionales que se citan en el artículo siete de este Reglamento; así como, de acuerdo con el modelo internacionalmente aceptado de las Tres Líneas de Defensa, según se detalla. Para ello se asocia a todo el personal y órganos específicos vinculados a la operación del sistema, las responsabilidades afines al objetivo y naturaleza de su accionar.
+MODELO DE LAS TRES LÍNEAS DE DEFENSA EN LA MUNICIPALIDAD DE
+HEREDIA
+[imagen]
