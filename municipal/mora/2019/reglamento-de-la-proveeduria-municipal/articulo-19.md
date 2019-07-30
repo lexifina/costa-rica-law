@@ -1,0 +1,1 @@
+Artículo 19.—Normativa para regular el Registro. La Proveeduría Municipal es la responsable de dictar la normativa que regulará el Registro de Proveedores, para lo cual atenderá la normativa general que podrá dictar el Alcalde Municipal.

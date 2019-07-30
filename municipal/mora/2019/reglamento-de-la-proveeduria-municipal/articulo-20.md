@@ -1,0 +1,4 @@
+SECCIÓN CUARTA
+Procedimiento de Contratación
+Artículo 20.—El Cartel. Contendrá las condiciones generales de la contratación y las especificaciones técnicas. Su contenido establecerá como mínimo los requisitos establecidos en el artículo 52 del Reglamento a la Ley de Contratación Administrativa.
+20.1 La Proveeduría Municipal será la encargada de elaborar los carteles de licitación respectivos y de contratación directa cuando se requiera, los cuales deben ser sometidos a revisión ante la Asesoría Legal y contar con el aval del superior jerárquico de la dependencia solicitante del bien y/o servicio. En los casos que compete al Concejo Municipal emitir el acto de adjudicación, la Comisión de Hacienda y Presupuesto será la encargada de revisar y autorizar los carteles. En las compras de menor cuantía basta con el aval de la dependencia solicitante.
