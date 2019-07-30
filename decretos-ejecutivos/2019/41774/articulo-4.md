@@ -1,0 +1,2 @@
+Artículo 4.- Identificación, delimitación y monitoreo de los ecosistemas arrecifales prioritarios. El MINAE por medio del SINAC, realizará el inventario y mapeo de los ecosistemas arrecifales proriotarios, siguiendo los lineamientos técnicos en materia geoespacial que se determine al respecto. Para estas labores podrán celebrarse alianzas con el sector académico.
+Una vez realizado el mapeo, el SINAC deberá incluir dentro de sus planes y estrategias el monitoreo periódico de estos ecosistemas.

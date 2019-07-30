@@ -1,0 +1,1 @@
+Artículo 11.- Inventario arrecifes artificiales. El SINAC deberá llevar un inventario de los arrecifes artificiales que se hayan autorizado y los que a la fecha se encuentren operando para su debido control y seguimiento.

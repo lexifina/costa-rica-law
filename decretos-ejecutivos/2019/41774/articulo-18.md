@@ -1,0 +1,1 @@
+Artículo 18.- Convenios de Cooperación y Alianzas Público-Privadas. A efectos de promover la conservación de los servicios ecosistémicos ofrecidos por los ecosistemas de los arrecifes coralinos, se podrán generar convenios de cooperación y alianzas público privados que permitan el manejo, conservación y uso sostenible de estos, dentro y fuera de áreas silvestres protegidas.
