@@ -1,0 +1,7 @@
+Artículo 16. Derogatorias. Deróguense las siguientes normas:
+a. El Decreto Ejecutivo de Creación y Funcionamiento del Consejo Nacional de Desarrollo del Mar, número 37212-MINAET-MAG-SP-MOPT del 17 de julio de 2012, publicado en La Gaceta 149 del 3 de agosto del 2012.
+b. El Decreto Ejecutivo de Reforma Integral Creación y Funcionamiento de la Comisión Nacional Marina, número 37384-MINAET-MAG-SP-MOPT del 6 de noviembre del 2012, publicado en La Gaceta 227 del 23 de noviembre del 2012.
+c. Los artículos 2, 3, y 5 del Decreto Ejecutivo que oficializa la Política Nacional del Mar y reforma el Decreto Ejecutivo Nº 37212 "Creación y Funcionamiento de la Comisión Nacional Marina", número 38014-MINAE-MAG-SP-MOPT-REMIV AH-TUR del 9 de octubre del 2013, publicado en La Gaceta 41 del 27 de febrero del 2014.
+d. El Decreto Ejecutivo de Reforma Creación y Funcionamiento del Consejo Nacional de Desarrollo del Mar, número 40473-MP-RE-MEIC-MINAE-MAG-SP-MOPTMTSS-MDHIS-TUR del 23 de mayo del 2017, publicado en La Gaceta 161 del 25 de agosto del 2017.
+e. El Decreto Ejecutivo que establece la categoría de Área Marina de Uso Múltiple· (AMUM), número 24282-MP-MAG-MIRENEM del 18 de julio de 1995, publicado en La Gaceta 14 5 del 01 de agosto de 199 5.
+f. El Decreto Ejecutivo que establece las AMUM Pacífico Norte y Sur Golfo Nicoya Caribe Norte y Sur Isla del Coco, número 24483-MP-MAG-MIRENEM del 18 de julio de 1995 publicado en la Gaceta 145 del 01 de agosto de 1995.

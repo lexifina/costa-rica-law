@@ -1,0 +1,1 @@
+Transitorio I: En un plazo de dos meses de entrada en vigor de este Decreto, la Comisión deberá aprobar las condiciones de operación de la Secretaría Ejecutiva, el perfil profesional de la persona a cargo de la Secretaría Ejecutiva, la designación correspondiente, así como el apoyo administrativo para el cumplimiento de sus funciones.

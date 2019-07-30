@@ -1,0 +1,2 @@
+Artículo 12. De las competencias institucionales. Las instituciones competentes ejercerán las funciones legalmente establecidas en lo concerniente a la administración, manejo y aprovechamiento de los recursos marinos, costeros y oceánicos de las Unidades de Gobernanza Marina.
+El diseño y contenido del Plan Director Marino de cada Unidad de Gobernanza Marina deberá respetar las competencias legalmente estipuladas, y los instrumentos de ordenamiento terrestre o de ordenamiento espacial marino vigentes.

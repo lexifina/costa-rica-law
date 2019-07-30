@@ -1,0 +1,2 @@
+Artículo 11. Plan Director Marino. El Plan Director Marino es el documento oficial de planificación y gestión de las Unidades de Gobernanza Marina, el cual está basado en procesos participativos y criterios técnicos y científicos, que orientan las acciones con el propósito de aprovechar, conservar y gestionar los recursos marinos, costeros y oceánicos.
+El Plan será desarrollado por el Comité Marino de cada Unidad de Gobernanza Marina y deberá ser aprobado por la Comisión para la Gobernanza Marina para su implementación.

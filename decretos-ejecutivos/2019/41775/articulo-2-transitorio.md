@@ -1,0 +1,1 @@
+Transitorio II: En un plazo de dos meses desde la entrada en vigor de este Decreto, la Comisión deberá aprobar el plan de trabajo 2019-2022, así como establecer los objetivos a mediano y largo plazo para la gestión de los mares.

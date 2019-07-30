@@ -1,0 +1,1 @@
+Artículo 6. Reuniones. La Comisión para la Gobernanza Marina se reunirá de manera ordinaria cada dos meses y extraordinariamente cuando se considere necesario. Será convocada por el Coordinador, con una semana de anticipación y con agenda previamente consensuada.
