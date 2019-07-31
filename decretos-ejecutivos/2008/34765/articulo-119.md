@@ -1,4 +1,1 @@
-Artículo 119.—Características de las señales de vídeo y audio. La formación de la señal de vídeo, las cámaras, controles de cámara, generadores de pulsos de sincronismo, equipo de reproducción de tipo magnético, óptico o de película, efectos de vídeo y en general todo el equipo empleado en la estación, deberán ajustarse en forma tal, que en conjunto, cumplan con las normas que a continuación se citan:
-a. Para la señal monocroma debe emplearse el sistema denominado “M”, de acuerdo a la clasificación que establece la Unión Internacional de Telecomunicaciones, del CCIR, Ginebra, Suiza de 1974.
-b. Para señal de color, debe emplearse el sistema denominado “M/NTSC”, de acuerdo con las recomendaciones del CCIR, Ginebra, Suiza de 1974.
-c. Los aparatos deben incluir circuitos automáticos que mantengan constante dentro de 2 dB la potencia de cresta de salida cuando la intensidad de la señal, de entrada está variando sobre un margen de 30 dB y asegurar que la potencia de salida no exceda la potencia nominal.
+Artículo 119.—Características de las señales de vídeo y audio. (Derogado por el artículo 3° del decreto ejecutivo N° 41913 del 31 de julio de 2019)

@@ -1,2 +1,1 @@
-Artículo 118.—Equipo de señalización. El equipo de señalización utilizado dependerá de las necesidades de las transmisiones que vayan a realizarse. En el caso de transmisiones de tipo internacional, podrá coordinarse tomando en consideración el encaminamiento de la señal.
-Cuando se haga uso de segmentos espaciales deberá de hacerse a través del ente respectivo, sin embargo, en forma general, quedarán sujetos a las recomendaciones de la Unión Internacional de Telecomunicaciones.
+Artículo 118.—Equipo de señalización. (Derogado por el artículo 3° del decreto ejecutivo N° 41913 del 31 de julio de 2019)

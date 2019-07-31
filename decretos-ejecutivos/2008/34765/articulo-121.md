@@ -1,1 +1,1 @@
-Artículo 121.—Teletexto. Para la explotación de este servicio se deberá usar el intervalo de supresión de trama utilizando de las líneas 10 a 21 y de la 273 a 284.
+Artículo 121.—Teletexto. (Derogado por el artículo 3° del decreto ejecutivo N° 41913 del 31 de julio de 2019)
