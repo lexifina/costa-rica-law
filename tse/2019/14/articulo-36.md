@@ -1,0 +1,5 @@
+Artículo 36.- Escrutinio definitivo. - El escrutinio a cargo del TSE deberá realizarse con base en el conteo definitivo de los resultados efectuado en las juntas receptoras de votos. El TSE hará recuento de los sufragios únicamente en los siguientes casos:
+a) Tratándose de juntas receptoras de votos contra cuyos resultados se presenten apelaciones o demandas de nulidad admisibles y esa diligencia –a juicio del TSE– sea necesaria para su resolución.
+b) Cuando los resultados de una junta sean manifiestamente inconsistentes.
+c) Cuando, al momento del escrutinio preliminar, no estén presentes al menos tres miembros partidarios o el auxiliar electoral designado por este Tribunal y representantes de al menos dos fuerzas políticas, independientemente de si fungen como integrantes de la junta receptora de votos o como fiscales partidarios, lo cual deberá constar.
+d) Respecto de las juntas receptoras de votos cuyo padrón registro se extravíe, no se haya utilizado o si constan en él observaciones que ameriten el recuento.

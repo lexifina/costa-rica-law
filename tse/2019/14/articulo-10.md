@@ -1,0 +1,3 @@
+Capítulo III
+LAS PAPELETAS
+Artículo 10.- Generalidades de las papeletas: Las papeletas que se utilizarán el 2 de febrero de 2020 llevarán impresa en el reverso una trama de seguridad, en el color correspondiente a la papeleta de cada uno de los cargos por elegir. También se incluirán leyendas en micro texto, así como el uso de gradientes en las tramas y en los textos, tanto en el anverso como en el reverso de los documentos, para aumentar su seguridad.

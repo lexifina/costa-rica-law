@@ -1,0 +1,1 @@
+Artículo 28.- Forma de marcar las papeletas para emitir el voto. - Para la emisión del sufragio, a cada elector se le suministrará un crayón con el cual marcará la papeleta. Para ello deberá escribir una “X” dentro del espacio que para ese fin aparece en la casilla del partido de su preferencia.

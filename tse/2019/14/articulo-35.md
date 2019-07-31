@@ -1,0 +1,1 @@
+Artículo 35.- Motivos de nulidad.- Además de los motivos de nulidad señalados en el artículo 194 del Código Electoral, se anulará el voto de las papeletas que no estén firmadas al dorso por ninguno de los integrantes de la junta receptora de votos.
