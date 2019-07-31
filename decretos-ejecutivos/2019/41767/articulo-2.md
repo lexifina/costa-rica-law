@@ -1,0 +1,1 @@
+Artículo 2º—Con el propósito de lograr el éxito de este Proyecto, las instituciones nacionales, públicas y privadas, así como demás organizaciones e interesados en general, brindarán en la medida de sus posibilidades y dentro del marco jurídico respectivo, la colaboración y facilidades que estén a su alcance para la realización del mismo, sin menoscabo de sus funciones propias.
