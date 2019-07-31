@@ -1,4 +1,6 @@
-Transitorio II.- Para el segmento de 470 MHz a 806 MHz, con excepción del segmento de 608 MHz a 614 MHz, durante el periodo de transición a la televisión digital (definido en el Decreto 36774-MINAET y sus reformas), se permiten las transmisiones analógicas para los actuales concesionarios cuyos títulos habilitantes así lo dispongan. Dicha operación será bajo las siguientes condiciones:
+Transitorio II.- Para los segmentos de 54 MHz a 72 MHz, 76 MHz a 88 MHz, 174 MHz a 216 MHz y de 470 MHz a 806 MHz, con excepción del segmento de 608 MHz a 614 MHz, y hasta el cese de las transmisiones analógicas definido por la Administración, se continuarán aplicando las siguientes condiciones para las transmisiones analógicas:
+(Así reformado el párrafo anterior por el artículo 4° del decreto ejecutivo N° 41913 del 31 de julio de 2019)
+(Nota de Sinalevi: Véase el transitorio I del decreto ejecutivo N° 41913 del 31 de julio de 2019, referente a los segmentos 54 MHz a 72 MHz, 76 MHz a 88 MHz, 174 MHz a 216 MHz y de 470 MHz a 806 MHz, con excepción del segmento de 608 MHz a 614 MHz, indicados en el párrafo anterior)
 a. Para los canales físicos del 14 al 36: no se permitirá la operación de canales contiguos en las mismas zonas de cobertura, habilitándose los canales de número impar para cobertura obtenida desde puntos de transmisión ubicados en el Valle Central, y los canales de número par para la cobertura no abarcada con los puntos de transmisión ubicados en el Valle Central, siempre y cuando se asegure la operación libre de interferencias perjudiciales.
 b. Para los canales físicos del 38 al 69: no se permitirá la operación de canales contiguos en las mismas zonas de cobertura, habilitándose los canales de número par para cobertura obtenida desde puntos de transmisión ubicados en el Valle Central, y los canales de número impar para la cobertura no abarcada con los puntos de transmisión ubicados en el Valle Central, siempre y cuando se asegure la operación libre de interferencias perjudiciales.
 c. Se continuarán aplicando las especificaciones técnicas previamente establecidas para las transmisiones analógicas, las cuales se transcriben a continuación:
@@ -220,48 +222,40 @@ Las frecuencias portadoras de vídeo y de audio, deberán ser mantenidas dentro 
 Sistema estereofónico y multicanal de sonido
 La distribución de valores de transmisión se resume en la siguiente tabla:
 TABLA7
-[imagen] Estándares de modulación de la portadora de audio
+Estándares de modulación de la portadora de audio
 Canal principal
 La señal de modulación del canal principal está constituida por la suma de las señales de audio izquierda más derecha "/ + D" con un preénfasis de una constante de tiempo de 75μs.
 El ancho de banda de la señal preenfatizada "/ + D" será de 15 KHz.
 La desviación pico de frecuencia en el canal principal será de 25 KHz
-[imagen]
 Subcanal estereofónico
 La señal de audio resultante de la diferencia izquierda derecha “I – D” se somete a un proceso de comprensión, que es parte del sistema de “compresión – expansión” que incluye expansión complementaria en el receptor.
 La señal comprimida “I-D” modula en doble banda lateral con portadora suprimida a una subportadora a 2 fH. Este es el subcanal estereofónico. fH es igual a 15.734 KHz.
 El ancho de banda de la señal codificada “I-D” es de 15 KHz.
 La desviación pico de frecuencia del canal principal y del subcanal estereofónico es de 50 Khz
-[imagen]
-[imagen] La subportadora estereofónica deberá cruzar el eje del tiempo con una pendiente positiva simultáneamente con el cruzamiento de este eje por la subportadora piloto.
+La subportadora estereofónica deberá cruzar el eje del tiempo con una pendiente positiva simultáneamente con el cruzamiento de este eje por la subportadora piloto.
 La diferencia (en grados de la frecuencia piloto) en los cruzamientos del eje del tiempo por las subportadoras piloto y estereofónica deberá ser de 3 ° máxima.
 Subportadora piloto
 Una señal subportadora piloto de onda continua (OC) de frecuencia JH se transmite con una desviación de portadora de audio de 5 KHz.
-[imagen]
 Canal para el segundo programa de audio (SPA)
 La subportadora para el segundo programa de audio (SPA) tiene una frecuencia de 5fH (78.670 KHz).
 La señal de audio "SPA" se somete a una compresión idéntica a la de la señal "I-D”.
 La seíial "SPA" resultante está limitada a un ancho de banda de 10 KHz y modula en frecuencia a la subportadora "SPA" con una desviación pico de 10 KHz.
 La desviación que la portadora "SPA" en la portadora de audio es de 15 KHz.
-[imagen]
-[imagen]
 Subcanal profesional
 El subcanal profesional tiene una subportadora localizada a 6.5 JH y modula en frecuencia a la portadora de audio en 3 KHz de desviación pico.
 Modulación estereofónica compuesta
 Separación estereofónica ( 50 Hz a 15 KHz)
 (sin procesamiento dbx) 40 dB.
 Separación equivalente a la entrada (modulación equivalente a 10%, 75 μs)
-[imagen]
 Distorsión total (banda de 30 KHz; con dbx)
-[imagen]
-[imagen] Procesamiento dbx
+Procesamiento dbx
 Ganancia del codificador dbx para:
-[imagen] [imagen] Transmisor de vídeo
+Transmisor de vídeo
 La amplitud de una señal de vídeo de forma senoidal de 4.5 MHz referida a la amplitud de una señal senoidal de 200 KHz en la señal radiada deberá ser de: - 30 dB máxima
 Modulación de fase incidental de la portadora de vídeo ( En la banda de 1 a 94 KHz)
 La amplitud de la portadora entre el nivel blanco y el negro: 30º máxima
 La amplitud de la portadora entre el nivel de borrado y el pico de sincronía: 5° máxima
 Transmisor de audio
-[imagen]
 Radiaciones no esenciales
 Las radiaciones no esenciales, respecto a la frecuencia portadora de imagen, deben mantenerse a un nivel de 60 dB abajo de la señal portadora y en ningún caso exceder de 1 miliwatt de potencia radiada para cualquier tipo de estación, salvo lo establecido en la parte correspondiente a sistemas de retransmisión de baja potencia.
 Tolerancia en potencia
@@ -289,10 +283,7 @@ Características de amplitud contra frecuencia. Características del canal.
 La respuesta de salida (amplitud contra frecuencia) idealizada del transmisor de video modulado con su equipo asociado incluyendo filtro de banda lateral residual, corresponde a una señal radiada de amplitud constante entre -0.75 y 4.2 MHz con respecto a la portadora de imagen (fpi), para una señal de entrada de video compuesta de amplitud constante, reduciéndose de cero a 1.25 MHz y a + 4.5 MHz respecto a dicha portadora.
 Las desviaciones máximas que pueden tolerarse con respecto a las características idealizadas de amplitud contra frecuencia señalada en el párrafo anterior son:
 Señales detectado de color:
-[imagen]
 Señales detectadas monocromas
-[imagen]
-[imagen]
 Una curva que representa la respuesta deberá ser substancialmente suave, excepto en la gama de O. 75 a 1.25 MHz.
 Atenuación de bandas laterales
 La intensidad de campo o voltaje de radiofrecuencia de la banda lateral inferior de - 1.25 a -4.25 o de la banda lateral superior de +4.75 a +7.75. De la frecuencia portadora de -imagen Upi), radiada o disipada, debe ser atenuada cuando menos 20 dB respecto a -las señales a fpi +200 KHz. Adicionalmente, para transmisores en color la frecuencia -de 3.579545 MHz abajo de la portadora de imagen debe ser atenuada cuando menos -42 dB.
