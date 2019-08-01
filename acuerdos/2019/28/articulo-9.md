@@ -1,0 +1,2 @@
+Artículo 9º—Sesiones. La Comisión funcionará por medio de sesiones ordinarias, extraordinarias y grupos de trabajo, las cuales se realizarán a solicitud del Presidente o de los integrantes, cuando la naturaleza de los asuntos a tratar así lo requieran. Se analizarán solamente los puntos para los que fue convocada y las decisiones serán tomadas en forma colegiada.
+La Comisión sesionará al menos una vez al mes en el lugar y hora que dicho órgano destine al efecto; sin embargo, en un mismo mes podrá convocarse más de una sesión, de ser necesario.
