@@ -18,3 +18,4 @@ Reglamento para el reconocimiento, equiparación de estudios realizados en la Un
 | 3 | 2016-10-27 | Reglamento 23 (2016-10-27) |
 | 4 | 2018-03-22 | Reglamento 6 (2018-03-22) |
 | 5 | 2018-09-06 | Reglamento 20 (2018-09-06) |
+| 6 | 2019-08-01 | Reglamento 16 (2019-08-01) |
