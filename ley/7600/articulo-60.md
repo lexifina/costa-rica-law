@@ -1,3 +1,3 @@
-ARTICULO 60.-
-Medidas institucionales para evitar la discriminación Los educadores, patronos o jerarcas tendrán la responsabilidad de mantener condiciones de respeto en el lugar de trabajo o estudio, mediante una política interna que prevenga la discriminación por razón de una discapacidad, no la promueva y la evite. Por esta ley, las instituciones públicas y de servicio público están obligadas a elaborar y divulgar esa política, la cual deberá comunicarse por escrito a directores, jefes, supervisores, asesores, representantes, educadores, empleados, estudiantes y usuarios de esos organismos.
-Para los efectos de esta ley, esas instituciones adoptarán las medidas y sanciones pertinentes en sus reglamentos internos, convenios colectivos, arreglos directos, circulares y demás actos administrativos.
+Artículo 60- Asesoramiento
+El Poder Judicial, sus dependencias y el Ministerio de Justicia y Paz deberán coordinar con la Defensoría de los Habitantes, el Consejo Nacional de Personas con Discapacidad (Conapdis), el Colegio de Abogados y Abogadas de Costa Rica, así como con las universidades que cuentan con consultorios jurídicos para brindar asesoramiento y orientación a las personas con discapacidad usuarias de sus servicios.
+(Así adicionado por el artículo único de la ley N° 9714 del 1° de agosto del 2019, “acceso a la justica”)

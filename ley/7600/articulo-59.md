@@ -1,2 +1,3 @@
-ARTICULO 59.-
-Programas de capacitación Las instituciones públicas y las privadas de servicio público, incluirán contenidos de educación, sensibilización e información sobre discapacidad, en los programas de capacitación dirigidos a su personal.
+Artículo 59- Protección
+Se deberá brindar protección particular a aquellas personas con discapacidad indiciadas, imputadas, víctimas y quienes van a prestar testimonio o declaración durante el proceso judicial. También, a las personas con discapacidad en situación de violencia intrafamiliar, violencia a un menor de edad con discapacidad, hostigamiento sexual y acoso laboral, así como en los momentos en que sea puesta en libertad la persona a la que se le atribuye la comisión del delito, o bien, al momento en que se admita una medida cautelar. Para brindar la protección particular el juzgado o la oficina judicial correspondiente debe tomar nota de que la víctima, indiciado, imputado o testigo es una persona con discapacidad y aplicar las medidas de acceso a la justicia correspondientes.
+(Así adicionado por el artículo único de la ley N° 9714 del 1° de agosto del 2019, “acceso a la justica”)
