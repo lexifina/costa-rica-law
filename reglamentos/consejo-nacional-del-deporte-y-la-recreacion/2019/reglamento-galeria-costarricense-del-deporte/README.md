@@ -14,3 +14,4 @@ Reglamento Galería Costarricense del Deporte
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-04-24 | la propia norma |
+| 2 | 2019-08-01 | Reglamento 1090 (2019-08-01) |
