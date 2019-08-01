@@ -1,0 +1,1 @@
+Artículo 56. La persona beneficiaria está obligada a presentar al servicio de Intermediación de Empleo, un informe mensual sobre los avances de su negocio durante los primeros seis meses posteriores de haber recibido el beneficio.

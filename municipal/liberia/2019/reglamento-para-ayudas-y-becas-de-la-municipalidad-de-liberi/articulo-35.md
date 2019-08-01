@@ -1,0 +1,1 @@
+Artículo 35. El Proceso de Desarrollo Social por medio del servicio de Intermediación de Empleo conformará un expediente, para cada persona beneficiaria, en el que consten todos los datos y documentos que acrediten el comportamiento y resultados de los estudios de la persona becada.

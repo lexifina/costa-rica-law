@@ -1,0 +1,1 @@
+Artículo 54. El Proceso de Desarrollo Social por medio del servicio de Intermediación de Empleo conformará un expediente para cada persona beneficiaria, en el que consten todos los datos y documentos con el fin de dar seguimiento de la utilización del beneficio.

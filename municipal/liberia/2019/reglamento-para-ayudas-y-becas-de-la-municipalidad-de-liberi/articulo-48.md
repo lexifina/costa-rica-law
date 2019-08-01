@@ -1,0 +1,1 @@
+Artículo 48. Para este tipo de becas de estudio se hará una asignación del 6% del total presupuestado para el financiamiento del presente reglamento; se adjudicarán tantas becas como lo permitan los recursos destinados para este fin.

@@ -1,0 +1,1 @@
+Artículo 25. La Comisión Social conformará un expediente, para cada persona beneficiaria, en el que consten todos los datos y documentos que acrediten el comportamiento y resultados de los estudios de la persona becada.

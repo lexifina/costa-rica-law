@@ -1,0 +1,1 @@
+Artículo 66. Se otorgará un monto máximo equivalente a dos salarios de un oficinista del sector público. Para efectos de otorgar esas ayudas la Municipalidad se reserva también, el derecho de determinar, si la ayuda se da en dinero, materiales o en artículos de primera necesidad, de acuerdo con las prioridades que se determinen en cada caso.

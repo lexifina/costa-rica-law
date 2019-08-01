@@ -1,0 +1,1 @@
+Artículo 61. Para este tipo de ayuda se hará una asignación del 3% del total presupuestado para el financiamiento del presente reglamento; se adjudicarán tantos paquetes de útiles como lo permitan los recursos destinados para este fin.

@@ -1,0 +1,1 @@
+Artículo 67. La persona beneficiaria está obligada a presentar al Proceso de Desarrollo Social, las facturas canceladas y fotos de las remodelaciones o equipos adquiridos, durante los dos meses posteriores de haber recibido el beneficio.

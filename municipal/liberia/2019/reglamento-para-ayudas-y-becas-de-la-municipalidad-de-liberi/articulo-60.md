@@ -1,0 +1,1 @@
+Artículo 60. La Municipalidad de Liberia por medio del Proceso de Desarrollo Social brindará para la entrega de los útiles escolares, el correspondiente registro que deberá ser completado por la dirección del Centro Educativo y entregado al Consejo de Distrito, el cual lo remitirá al Proceso de Desarrollo Social para su archivo y custodia.

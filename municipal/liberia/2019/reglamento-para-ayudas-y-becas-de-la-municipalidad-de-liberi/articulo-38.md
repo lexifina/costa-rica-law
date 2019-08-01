@@ -1,0 +1,1 @@
+Artículo 38. Para becas de estudio que fomenten el autoempleo se hará una asignación del 10% del total presupuestado para el financiamiento del presente reglamento; se adjudicarán tantas becas como lo permitan los recursos destinados para este fin.

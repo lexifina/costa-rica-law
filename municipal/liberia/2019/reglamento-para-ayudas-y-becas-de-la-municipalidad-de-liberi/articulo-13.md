@@ -1,0 +1,1 @@
+Artículo 13. En caso de que un acontecimiento de grandes proporciones afecte a varias personas vecinas del Cantón, la Municipalidad ayudará a tantas personas como lo permitan los recursos establecidos anualmente para tales fines.

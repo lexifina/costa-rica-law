@@ -1,0 +1,1 @@
+Artículo 36. La persona becada está obligada a presentar al servicio de Intermediación Laboral, una constancia de asistencia extendida por la Institución u Organización de forma mensual y al concluir el curso lectivo deberá demostrar la aprobación del mismo, mediante el reporte de calificación o título expedido por el Centro Educativo donde lo realizó.

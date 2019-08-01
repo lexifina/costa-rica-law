@@ -1,0 +1,1 @@
+Artículo 52. Adicional a lo dispuesto en el artículo anterior, se podrá tomar como elementos de juicio para el otorgamiento de la ayuda los siguientes: tipo de jefatura y tipo de familia, número de hijos e hijas que estudian, número de personas menores de edad, enfermedad u otros similares.

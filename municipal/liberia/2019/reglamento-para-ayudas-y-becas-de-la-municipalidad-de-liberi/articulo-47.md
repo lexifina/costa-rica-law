@@ -1,0 +1,1 @@
+Artículo 47. Para la tramitación de la solicitud de renovación de la beca, la persona interesada deberá realizar la solicitud al Consejo de Distrito en la primera semana del mes de noviembre, que propondrá ante el Concejo Municipal la lista de personas para la renovación de becas y los formularios debidamente llenos para el análisis correspondiente.

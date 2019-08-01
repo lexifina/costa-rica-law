@@ -1,0 +1,1 @@
+Artículo 45. El Proceso de Desarrollo Social por medio de la Oficina de la Mujer conformará un expediente, para cada persona beneficiaria, en el que consten todos los datos y documentos que acrediten el comportamiento y resultados de los estudios de la persona becada.

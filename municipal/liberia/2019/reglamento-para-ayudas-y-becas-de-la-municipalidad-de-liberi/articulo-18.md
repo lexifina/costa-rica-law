@@ -1,0 +1,1 @@
+Artículo 18. Para este tipo de ayudas se hará una asignación del 1% del total presupuestado para el financiamiento del presente reglamento; se brindarán tantas ayudas como lo permitan los recursos destinados para este fin.

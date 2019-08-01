@@ -1,0 +1,1 @@
+Artículo 70. Para los beneficios de esta ayuda, se hará una asignación del 2% del total presupuestado para financiar el presente reglamento; se adjudicarán tantas ayudas como lo permitan los recursos destinados para este fin.

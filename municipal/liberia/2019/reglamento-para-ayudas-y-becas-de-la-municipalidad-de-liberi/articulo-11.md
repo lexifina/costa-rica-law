@@ -1,0 +1,1 @@
+Artículo 11. La Municipalidad se reserva el derecho de realizar toda clase de pruebas que coadyuven a determinar la necesidad real de la persona que solicita la ayuda, incluida la visita al hogar y la entrevista con las personas integrantes del núcleo familiar.

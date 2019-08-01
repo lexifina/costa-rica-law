@@ -1,0 +1,3 @@
+Artículo 20. Las personas interesadas en recibir este tipo de becas deberán presentar ante el Consejo de Distrito la solicitud correspondiente.
+El Consejo de Distrito presentará ante el Concejo Municipal el listado de las posibles personas beneficiarías y sus respectivos formularios debidamente llenos y con los requisitos solicitados. El Concejo Municipal hará traslado, por medio de Acuerdo, del listado y los formularios a la Comisión de Bienestar Social.
+El cumplimiento del trámite de solicitud de beca no significa la adjudicación obligatoria de la beca, sino que se acoge la solicitud para su estudio.

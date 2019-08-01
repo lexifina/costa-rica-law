@@ -1,0 +1,1 @@
+Artículo 27. En caso de que la persona becada, no haya aprobado una materia, deberá justificarlo razonablemente, con el objetivo de que sea analizado por la Comisión de Bienestar Social y previo estudio correspondiente continúe gozando del beneficio.

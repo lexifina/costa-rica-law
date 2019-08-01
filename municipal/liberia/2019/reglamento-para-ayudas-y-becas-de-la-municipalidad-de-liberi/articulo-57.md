@@ -1,0 +1,1 @@
+Artículo 57. Para este tipo de ayudas se hará una asignación del 8% del total presupuestado para el financiamiento del presente reglamento; se adjudicarán tantas ayudas como lo permitan los recursos destinados para este fin.
