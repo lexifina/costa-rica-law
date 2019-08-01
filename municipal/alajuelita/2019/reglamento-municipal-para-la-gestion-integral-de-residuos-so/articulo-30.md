@@ -1,0 +1,3 @@
+Artículo 30 Inspecciones.
+Los funcionarios del ente encargado de la Gestión Integral de Residuos, debidamente identificados, deben realizar las inspecciones de verificación, seguimiento o cumplimiento de este reglamento. Para ingresar a inmuebles deben solicitar permiso a los propietarios o pueden hacerse acompañar de autoridades de policía.
+En caso de encontrarse indicios de incumplimiento de este reglamento, se le notificará al responsable para el inicio del procedimiento respectivo.

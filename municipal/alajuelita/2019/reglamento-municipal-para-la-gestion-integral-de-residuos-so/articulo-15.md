@@ -1,0 +1,5 @@
+Artículo 15 Centro de recuperación de materiales.
+La Municipalidad tiene la facultad de instalar y operar centros de recuperación de materiales valorizables o autorizar a terceros, previamente calificados, para la acumulación, clasificación y comercialización de los mismos.
+Los centros de recuperación de materiales deben, de previo a iniciar labores, cumplir con el Reglamento de Centros de Recuperación de Residuos Valorizables (Decreto Ejecutivo No. 35906-S de 27 de enero de 2010), además contar con los permisos respectivos del Ministerio de Salud, de la Municipalidad y deben además cumplir con los requisitos laborales y ambientales que establezca la legislación vigente.
+Estos centros deben contar con adecuadas condiciones higiénicas, laborales y sanitarias. La operación del centro tiene que evitar molestias a las personas vecinas o trabajadoras.
+Solamente se permite el desensamblaje, la mezcla, la transformación y el tratamiento de los residuos si las instalaciones están expresamente autorizadas para ello por el Ministerio de Salud y si el uso del suelo se haya de conformidad con el Plan Regulador Municipal.

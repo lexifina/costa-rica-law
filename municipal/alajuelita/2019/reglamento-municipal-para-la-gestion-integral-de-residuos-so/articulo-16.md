@@ -1,0 +1,4 @@
+Artículo 16 Centros de recuperación de materiales orgánicos fácilmente biodegradables.
+El Municipio tiene la facultad de instalar y operar centros de recuperación de materiales orgánicos fácilmente biodegradables o autorizar a terceros previamente calificados para la acumulación, tratamiento de los mismos y comercialización del producto final.
+Estos centros deben contar, previo a iniciar labores, con los permisos respectivos del Ministerio de Salud y de la Municipalidad.
+Deben además cumplir con los requisitos laborales y ambientales que establezca la legislación vigente y contar con adecuadas condiciones higiénicas, laborales y sanitarias. La operación del centro no debe provocar molestias a las personas que en ellos trabajan o a las personas vecinas.

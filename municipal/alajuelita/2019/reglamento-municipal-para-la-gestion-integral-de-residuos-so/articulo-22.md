@@ -1,0 +1,2 @@
+Artículo 22 Residuos infectocontagiosos.
+Para el tratamiento de los residuos infectocontagiosos se debe seguir los lineamientos del Reglamento sobre la gestión de los desechos infectocontagiosos que se generan en establecimientos que presten atención a la salud y afines (Decreto Ejecutivo No. 30965-S de 17 de diciembre del 2002) y cualquier otra indicación del Ministerio de Salud.
