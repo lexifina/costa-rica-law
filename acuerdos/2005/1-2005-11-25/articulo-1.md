@@ -72,8 +72,12 @@ En el caso de que a juicio de la SUGEF la información presente inconsistencias 
 II. Análisis del Comportamiento de Pago Histórico.
 Objetivo: Determinar la conducta de pago del deudor durante los últimos 48 meses en la atención de sus operaciones crediticias directas vigentes o extintas en el Sistema Financiero.
 NOTA: La SUGEF es responsable de calcular el nivel de comportamiento de pago histórico para los deudores reportados por las entidades el mes anterior. Esta información está disponible para cada entidad en archivos descargables a más tardar el día 20 de cada mes.
-A. Atraso máximo y atraso medio. El comportamiento de pago histórico se calcula para un periodo de 48 meses que finaliza el último día del mes anterior al mes de evaluación. El cálculo se hace de la siguiente forma: a) para cada operación crediticia directa se calcula el atraso máximo en días y el atraso medio.
-El atraso medio es igual a la suma del atraso máximo reportado cada mes dividido entre el número de periodos reportados con un saldo total adeudado mayor a veinticinco mil colones; b) se asigna un puntaje al atraso máximo y al atraso medio con base en el siguiente cuadro:
+A. Atraso máximo y atraso medio
+El comportamiento de pago histórico se calcula para un periodo de 48 meses que finaliza el último día del mes anterior al mes de evaluación. El cálculo se hace de la siguiente forma:
+a) para cada operación crediticia directa se calcula el atraso máximo en días y el atraso medio. El atraso medio es igual a la suma del atraso máximo reportado cada mes dividido entre el número de periodos reportados con un saldo total adeudado mayor al monto mínimo indicado en el párrafo final de este punto A.;
+(Así reformado el inciso anterior mediante acuerdo N° SGF-2336-2019 del 1° de agosto del 2019)
+b) se asigna un puntaje al atraso máximo y al atraso medio con base en el siguiente cuadro:
+(Así reformado el párrafo anterior mediante acuerdo N° SGF-2336-2019 del 1° de agosto del 2019)
 Puntaje | Atraso máximo | Atraso máximo medio
 1 | hasta 30 días | hasta 10 días
 2 | más de 30 y hasta 60 días | más de 10 y hasta 20 días
@@ -81,9 +85,13 @@ Puntaje | Atraso máximo | Atraso máximo medio
 4 | más de 90 y hasta 120 días | más de 30 y hasta 40 días
 5 | más de 120 días | más de 40 días
 c) se calcula el promedio simple del puntaje asignado al atraso máximo y al atraso medio, lo cual resulta en un puntaje para cada operación con un valor entre uno y cinco;
-d) este resultado se pondera según la suma de los saldos totales adeudados mayores a veinticinco mil colones reportados cada mes para cada operación del deudor.
+(Así reformado el inciso anterior mediante acuerdo N° SGF-2336-2019 del 1° de agosto del 2019)
+d) este resultado se pondera según la suma de los saldos totales adeudados mayores al monto mínimo indicado en el párrafo final de este punto A., reportados cada mes para cada operación del deudor.
 El punto d) determina el puntaje final del deudor como el resultado de la multiplicación del valor obtenido en el punto c) por el porcentaje que representa la suma de los saldos de cada operación entre la sumatoria de todas las sumas de saldos, y sumando estos resultados obtenidos.
-La suma de saldos de cada operación es igual a la suma de los saldos mensuales mayores a veinticinco mil colones, o a la suma de los montos máximos autorizados en cada mes en el caso de tarjetas de crédito, durante el periodo de evaluación. Como resultado se obtiene el puntaje final del deudor como un valor entre uno y cinco.
+La suma de saldos de cada operación es igual a la suma de los saldos mensuales mayores al monto mínimo indicado en el párrafo final de este punto A., o a la suma de los montos máximos autorizados en cada mes en el caso de tarjetas de crédito, durante el periodo de evaluación. Como resultado se obtiene el puntaje final del deudor como un valor entre uno y cinco.
+El monto mínimo a que se hace referencia en este punto corresponde al 30% del monto del salario mínimo mensual para la ocupación genérica 'Trabajadores en Ocupación No Calificada' según la publicación Fijación de salarios mínimos para el sector privado que realiza el Consejo Nacional de Salarios, de acuerdo a la Ley de Salarios Mínimos y Creación del Consejo Nacional de Salarios, Ley N° 832, del 4 de noviembre de 19492”.
+2 “De acuerdo con el Decreto N° 41434-MTSS, publicado en el Diario Oficial La Gaceta N° 235 del 18 de diciembre de 2018, el salario mínimo mensual para la ocupación genérica 'Trabajadores en Ocupación No Calificada' a partir del 1 de enero de 2019 es igual a ¢309 143.36. El 30% de ese monto es igual a ¢92 743.”
+(Así reformado el inciso anterior mediante acuerdo N° SGF-2336-2019 del 1° de agosto del 2019)
 B. Nivel de comportamiento de pago histórico según SUGEF. El puntaje final del deudor determina el NIVEL del comportamiento de pago histórico según el siguiente cuadro:
 Nivel | Puntaje final
 1 | Igual o menor a 2,33
@@ -91,8 +99,9 @@ Nivel | Puntaje final
 3 | Mayor a 3,66
 A los deudores para los cuales no existe información crediticia en el Centro de Información Crediticia de la SUGEF, se les asigna un puntaje final igual a cero y se clasifican en el NIVEL 1 de comportamiento de pago histórico.
 El nivel obtenido por el deudor representa la clasificación del deudor en relación con su comportamiento de pago histórico según SUGEF. La entidad puede clasificar el comportamiento de pago histórico del deudor en el mismo Nivel que la SUGEF o en un Nivel de mayor riesgo.
-C. Clasificación directa en NIVEL 3. Independientemente del puntaje final del deudor, el comportamiento de pago histórico de un deudor es clasificado en NIVEL 3 cuando durante el periodo de evaluación el deudor, en relación con al menos una operación directa, haya tenido que recurrir a la dación de bienes en pago de sus obligaciones, haya sido cancelada su obligación como producto de un proceso de cobro judicial, haya sido asumida formalmente por un fiador o avalista o su operación con un saldo total adeudado mayor a veinticinco mil colones costarricenses haya sido reconocida como incobrable.
-(Así reformado el capítulo II "Análisis del Compartamiento de Pago Histórico", por acuerdo N° 5 del 6 de setiembre de 2006)
+C. Clasificación directa en NIVEL 3
+Independientemente del puntaje final del deudor, el comportamiento de pago histórico de un deudor es clasificado en NIVEL 3 cuando durante el periodo de evaluación el deudor, en relación con al menos una operación directa, haya tenido que recurrir a la dación de bienes en pago de sus obligaciones, haya sido cancelada su obligación, total o parcialmente, como producto de un proceso de cobro judicial, o haya sido asumida formalmente por un fiador o avalista.”
+(Así reformado el punto c) anterior mediante acuerdo N° SGF-2336-2019 del 1° de agosto del 2019)
 III. Análisis de las garantías Objetivo: Determinar el valor ajustado de las garantías como mitigadores de riesgo para efectos del cálculo de la estimación de crédito.
 A. Valor de mercado.
 Objetivo: Determinar el valor de mercado como el precio estimado que obtendría la entidad en caso de la venta del activo bajo las condiciones actuales del mercado o el valor facial del documento en caso de finanzas, avales, documentos cedidos, documentos emitidos por empresas transportadoras o carta de crédito.
