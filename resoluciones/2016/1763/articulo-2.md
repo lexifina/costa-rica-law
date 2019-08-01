@@ -184,8 +184,14 @@ NOTA: la SUGEF es responsable de calcular el nivel de CPH-SBD para los deudores 
 a) Alcance
 El cálculo del CPH-SBD considera únicamente las operaciones crediticias directas vigentes o extintas otorgadas en el marco del SBD.
 b) Atraso máximo y atraso medio
-El CPH-SBD se calcula para un periodo de 24 meses que finaliza el último día del mes anterior al mes de evaluación. El cálculo se hace de la siguiente forma:
-1. Para cada operación crediticia directa se calcula el atraso máximo en días y el atraso medio. El atraso medio es igual a la suma del atraso máximo reportado cada mes dividido entre el número de periodos reportados con un saldo total adeudado mayor a veinticinco mil colones; 2. Se asigna un puntaje al atraso máximo y al atraso medio con base en el siguiente cuadro:
+El CPH-SBD se calcula para un periodo de 24 meses que finaliza el último día del mes anterior al mes de evaluación.
+(Así reformado el párrafo anterior mediante acuerdo N° SGF-2336-2019 del 1° de agosto del 2019)
+El cálculo se hace de la siguiente forma:
+(Así reformado el párrafo anterior mediante acuerdo N° SGF-2336-2019 del 1° de agosto del 2019)
+1. Para cada operación crediticia directa se calcula el atraso máximo en días y el atraso medio. El atraso medio es igual a la suma del atraso máximo reportado cada mes dividido entre el número de periodos reportados con un saldo total adeudado mayor al monto mínimo indicado en el párrafo final de este punto b);
+(Así reformado el punto anterior mediante acuerdo N° SGF-2336-2019 del 1° de agosto del 2019)
+2. Se asigna un puntaje al atraso máximo y al atraso medio con base en el siguiente cuadro:
+(Así reformado el punto anterior mediante acuerdo N° SGF-2336-2019 del 1° de agosto del 2019)
 PUNTAJE Atraso máximo Atraso máximo medio
 1 hasta 30 días hasta 10 días
 2 más de 30 y hasta 60 días más de 10 y hasta 20 días
@@ -193,9 +199,14 @@ PUNTAJE Atraso máximo Atraso máximo medio
 4 más de 90 y hasta 120 días más de 30 y hasta 40 días
 5 más de 120 más de 40 días
 3. Se calcula el promedio simple del puntaje asignado al atraso máximo y al atraso medio, lo cual resulta en un puntaje para cada operación con un valor entre uno y cinco;
-4. Este resultado se pondera según la suma de los saldos totales adeudados mayores a veinticinco mil colones reportados cada mes para cada operación del deudor;
+(Así reformado el punto anterior mediante acuerdo N° SGF-2336-2019 del 1° de agosto del 2019)
+4. Este resultado se pondera según la suma de los saldos totales adeudados mayores al monto mínimo indicado en el párrafo final de este punto b), reportados cada mes para cada operación del deudor.
+(Así reformado el punto anterior mediante acuerdo N° SGF-2336-2019 del 1° de agosto del 2019)
 5. El punto 4 determina el puntaje final del deudor como el resultado de la multiplicación del valor obtenido en el punto 3 por el porcentaje que representa la suma de los saldos de cada operación entre la sumatoria de todas las sumas de saldos, y sumando estos resultados obtenidos.
-La suma de saldos de cada operación se obtiene a partir de la suma de los saldos mensuales mayores a veinticinco mil colones, durante el periodo de evaluación. Como resultado se obtiene el puntaje final del deudor como un valor entre uno y cinco.
+La suma de saldos de cada operación es igual a la suma de los saldos mensuales mayores al monto mínimo indicado en el párrafo final de este punto b), durante el periodo de evaluación. Como resultado se obtiene el puntaje final del deudor como un valor entre uno y cinco.
+El monto mínimo a que se hace referencia en este punto corresponde al 30% del monto del salario mínimo mensual para la ocupación genérica 'Trabajadores en Ocupación No Calificada' según la publicación Fijación de salarios mínimos para el sector privado que realiza el Consejo Nacional de Salarios, de acuerdo a la Ley de Salarios Mínimos y Creación del Consejo Nacional de Salarios, Ley 832, del 4 de noviembre de 19491
+1 “De acuerdo con el Decreto N° 41434-MTSS, publicado en el Diario Oficial La Gaceta N° 235 del 18 de diciembre de 2018, el salario mínimo mensual para la ocupación genérica 'Trabajadores en Ocupación No Calificada' a partir del 1 de enero de 2019 es igual a ¢309 143.36. El 30% de ese monto es igual a ¢92 743.”
+(Así reformado el punto anterior mediante acuerdo N° SGF-2336-2019 del 1° de agosto del 2019)
 c) Nivel de CPH-SBD
 El puntaje final del deudor determina el NIVEL del CPH-SBD, según el siguiente cuadro:
 NIVEL | PUNTAJE FINAL
@@ -205,9 +216,9 @@ NIVEL | PUNTAJE FINAL
 A los deudores para los cuales no existe información crediticia en el Centro de Información Crediticia del SBD, se les asigna un puntaje final igual a cero y se clasifican en el NIVEL 1 de comportamiento de pago histórico.
 d) Clasificación directa en CPH-SBD de Nivel 3
 Independientemente del puntaje de CPH-SBD del deudor, el CPH-SBD se ubicará en Nivel 3 cuando durante el periodo de evaluación, en relación con al menos una operación directa del SBD, se haya presentado cualquiera de las siguientes situaciones:
-i. la operación fue pagada, total o parcialmente, mediante la dación de bienes en pago, o como producto de la adjudicación del bien en un proceso de cobro judicial,
-ii. la operación fue asumida formalmente por un fiador, avalista o la perdida fue resarcida por algún proveedor de protección crediticia. Se incluye la ejecución de avales del “Fondo de Avales del Fideicomiso Nacional para el Desarrollo”, en adelante” FINADE, y del “Fondo Especial para el Desarrollo de las Micro, Pequeñas y Medianas Empresas”, en adelante FODEMIPYME. Se exceptúa de lo dispuesto en este inciso, el caso de créditos grupales de garantía solidaria y los casos de readecuación a que se refiere el Artículo 46 de la Ley 9174, debidamente aprobados por el Consejo Rector,
-iii. la operación con un saldo total adeudado mayor a veinticinco mil colones costarricenses, fue declarada como incobrable.
+i. la operación fue cancelada, total o parcialmente, mediante la dación de bienes en pago, o como producto de un proceso de cobro judicial,
+ii. la operación fue asumida formalmente por un fiador, avalista o la perdida fue resarcida por algún proveedor de protección crediticia. Se incluye la ejecución de avales del “Fondo de Avales del Fideicomiso Nacional para el Desarrollo”, en adelante” FINADE, y del “Fondo Especial para el Desarrollo de las Micro, Pequeñas y Medianas Empresas”, en adelante FODEMIPYME. Se exceptúa de lo dispuesto en este inciso, el caso de créditos grupales de garantía solidaria y los casos de readecuación a que se refiere el Artículo 46 de la Ley 9174, debidamente aprobados por el Consejo Rector
+(Así reformado el inciso d) anterior mediante acuerdo N° SGF-2336-2019 del 1° de agosto del 2019)
 VII. DEFINICIÓN DE DEUDORES GENERADORES Y NO GENERADORES DE MONEDA EXTRANJERA
 Objetivo: Clasificar a los deudores con al menos una operación crediticia en moneda extranjera en la entidad, en tres categorías según el nivel de riesgo de crédito asociado a una devaluación inesperada del tipo de cambio.
 A. Definiciones

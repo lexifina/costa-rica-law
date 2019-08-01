@@ -14,3 +14,4 @@ Lineamientos Generales del Acuerdo SUGEF-15-16 "Reglamento sobre Gestión y Eval
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-07-29 | la propia norma |
+| 2 | 2019-08-01 | Acuerdo 2336 (2019-08-01) |
