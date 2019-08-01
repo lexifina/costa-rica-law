@@ -1394,7 +1394,8 @@ IV- RÉGIMEN DE INGRESO
 PROFESOR ESPECIALISTA 1
 La categoría de Profesor Especialista 1 constituye la categoría de ingreso a la UTN. Se asigna al profesional que ingresa a laborar para cubrir una plaza nueva, una sustitución o una plaza vacante de manera temporal, en condición interina o en propiedad.
 V- REQUISITOS
-1- Poseer el grado de licenciatura en la especialidad requerida por la universidad y un posgrado de Maestría en un área afín a la actividad laboral, a la formación profesional o a las orientaciones, intereses y necesidades estratégicas de la UTN.
+1- Poseer el grado de licenciatura en la especialidad requerida por la universidad y un posgrado en un área afín a la actividad laboral, a la formación profesional o a las orientaciones, intereses y necesidades estratégicas de la UTN.
+(Así reformado el inciso anterior en sesión N° 16 del 1° de agosto de 2019)
 2- Experiencia mínima de tres años en labores académicas a nivel universitario o en labores profesionales en el sector socio-productivo, en actividades vinculadas con el área de interés de la universidad. Este requisito se considerará cumplido con una combinación de ambas áreas de experiencia.
 3- El requisito de experiencia mínima no se aplicará a los becados de posgrado de la UTN que hayan firmado un contrato de beca con la institución.
 En casos de inopia declarada por la Dirección de Gestión de Desarrollo Humano, de manera excepcional y temporal, se podrán contratar académicos que no cumplan con los requisitos establecidos para esta categoría, previa autorización de la Vicerrectoría correspondiente. En estos casos, se le asignará la categoría salarial de Profesor 1, 2, 3 y 4, según el grado profesional que se ostente y mientras estas se mantengan vigentes.

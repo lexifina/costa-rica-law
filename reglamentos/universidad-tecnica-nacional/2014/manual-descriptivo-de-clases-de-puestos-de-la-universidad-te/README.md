@@ -16,3 +16,4 @@ Manual descriptivo de clases de puestos de la Universidad Técnica Nacional
 | 1 | 2015-01-08 | la propia norma |
 | 2 | 2018-07-12 | Reglamento 15 (2018-07-12) |
 | 3 | 2019-06-13 | Reglamento 12 (2019-06-13) |
+| 4 | 2019-08-01 | Reglamento 16 (2019-08-01) |
