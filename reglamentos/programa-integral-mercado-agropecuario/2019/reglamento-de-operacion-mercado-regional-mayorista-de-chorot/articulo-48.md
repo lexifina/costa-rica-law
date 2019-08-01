@@ -1,0 +1,2 @@
+Artículo 48. Mejoras o adiciones transitorias
+Se entenderá por mejoras o adiciones transitorias todos aquellos bienes muebles introducidos al área concesionada por parte del concesionario, que a la vez puedan ser transportadas de un lugar a otro, sin que se altere la infraestructura del Mercado Regional Chorotega o dejando ésta en las mismas condiciones recibidas, asimismo que no produzcan deterioro que afecten las estructuras de las instalaciones existentes, tales como techos, paredes, puertas, columnas, entre otros.

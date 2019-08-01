@@ -1,0 +1,2 @@
+CAPÍTULO II. DE LA ADMINISTRACIÓN DEL MERCADO REGIONAL CHOROTEGA
+Artículo 7: Dependencia administrativa del Mercado Regional Chorotega. El Mercado Regional Chorotega es una Dirección del PIMA, dependiente directamente del Gerente General del PIMA. Esta dirección está a cargo de un funcionario destacado como Director que Administra el Mercado Regional, de acuerdo con las políticas, facultades y atribuciones establecidas en la ley, así como por este Reglamento y las demás disposiciones aplicables.

@@ -1,0 +1,2 @@
+Artículo 4: Objetivo del Mercado Regional Chorotega
+Ser un mercado de destino que facilita la venta de bienes y servicios mediante la comercialización, el abastecimiento, el acondicionamiento y la distribución de productos agroalimentarios, enfocado a los pequeños y medianos productores organizados del área de influencia del proyecto y además de brindar las condiciones y servicios necesarios para que realice de manera adecuada un proceso comercial y en concordancia con los gustos y preferencias de la demanda.

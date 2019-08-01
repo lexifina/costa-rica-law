@@ -1,0 +1,1 @@
+Transitorio II: La administración gozará de un plazo de 6 meses para el establecimiento del Protocolo para Establecimiento y Aumentos de Cánones en los Servicios que brinda el Mercado Regional Chorotega.

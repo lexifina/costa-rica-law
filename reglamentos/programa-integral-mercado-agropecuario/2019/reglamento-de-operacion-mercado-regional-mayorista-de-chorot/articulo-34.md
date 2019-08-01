@@ -1,0 +1,2 @@
+Artículo 34: Multa por atraso
+Si no se cancelara los cánones mensuales por concesión de derecho de uso y servicios de acceso al Mercado Regional Chorotega dentro del plazo establecido en el artículo anterior, se pagará una multa del uno por ciento (1%) de la mensualidad por cada día hábil adicional de atraso contados a partir del sexto día hábil de mes y hasta el día hábil décimo sexto. Dicha multa no podrá ser superior al diez por ciento (10%), para lo cual la obligación dineraria será exigible hasta este momento.

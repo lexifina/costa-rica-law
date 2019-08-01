@@ -1,0 +1,7 @@
+Artículo 52: Iluminación e instalaciones eléctricas
+El servicio de iluminación de las instalaciones de las áreas comunes del Mercado Regional Chorotega será responsabilidad y estará a cargo del PIMA.
+Todo cambio dentro del local requerirá una autorización de la Administración y será costeado por el concesionario correspondiente, con la salvedad que no se permitirá realizar modificaciones estructurales, de conformidad con el artículo 47 del presente reglamento.
+Para la colocación de un servicio eléctrico, se deberá seguir el trámite establecido en el artículo 47 del presente reglamento.
+El concesionario debe de mantener las instalaciones eléctricas en perfectas condiciones de funcionamiento, apegado a lo establecido en la normativa vigente y corregir cualquier daño que se presente en la red eléctrica del área concesionada, así como reportar a la Administración a la mayor brevedad.
+Cualquier daño provocado a la instalación eléctrica del concesionario a la infraestructura del PIMA o de otro concesionario, será responsabilidad del mismo y deberá cubrir los daños y perjuicios provocados por esta, previo procedimiento administrativo de conformidad con el artículo 308 de la Ley General de la Administración Pública.
+Los concesionarios están obligados a permitir la entrada de funcionarios técnicos del PIMA y cualquier otro personal autorizado, a las áreas concesionadas para realizar las inspecciones correspondientes a la infraestructura eléctrica de los locales.

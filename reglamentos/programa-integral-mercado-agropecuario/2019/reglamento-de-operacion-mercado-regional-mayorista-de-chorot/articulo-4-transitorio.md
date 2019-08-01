@@ -1,0 +1,1 @@
+Transitorio IV: La administración gozará de un plazo de 3 meses para el establecimiento del Protocolo para la emisión, utilización y reposición de los dispositivos de acceso al Mercado Regional Chorotega.

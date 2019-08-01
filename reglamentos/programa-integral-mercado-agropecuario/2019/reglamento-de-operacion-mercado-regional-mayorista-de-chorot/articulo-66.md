@@ -1,0 +1,2 @@
+Artículo 66: Inspección e información
+Es obligación de los concesionarios y de los usuarios brindar la información solicitada por los inspectores del PIMA, INCOPESCA, SENASA o Ministerio de Salud para efectos de registros de comerciantes, procedencias, volúmenes y precios de los distintos productos comercializados en el Mercado Regional Chorotega, así como permitir el ingreso al local en caso de ser requerido para inspección de estas autoridades.
