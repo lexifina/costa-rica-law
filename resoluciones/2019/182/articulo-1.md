@@ -1,0 +1,28 @@
+SERVICIO NACIONAL DE ADUANAS
+RES-DGA-182-2019
+DIRECCIÓN GENERAL DE ADUANAS, SAN JOSE A LAS NUEVE HORAS DEL DÍA SIETE DE AGOSTO DEL DOS MIL DIECINUEVE.
+Addendum a la Resolución RES-DGA-100-2019, de fecha 27 de Junio del 2019, publicada en el Diario Oficial La Gaceta N°122, de fecha 01 de Julio del 2019; que elimina el cobro del Impuesto del Valor Agregado (IVA), a los vehículos eléctricos nuevos.
+CONSIDERANDO:
+I. Que el artículo 6 de la Ley General de Aduanas, Nº 7557 del 20 de octubre de 1995 publicada en La Gaceta Nº 212 del 08 de noviembre de 1995 y sus reformas, establece que uno de los fines del régimen jurídico es facilitar y agilizar las operaciones de comercio exterior, así como facultar la correcta percepción de los tributos.
+II. Que el artículo 9 de la Ley General de Aduanas, establece como funciones del Servicio Nacional de Aduanas ejercer, en coordinación con las demás oficinas tributarias, las facultades de administración tributaria respecto de los tributos que generan el ingreso.
+III. Que el artículo 11 de la Ley General de Aduanas, señala que la Dirección General de Aduanas es el órgano superior jerárquico nacional en materia aduanera, que en el uso de su competencia le corresponde la dirección técnica y administrativa de las funciones aduaneras que la ley y las demás disposiciones del ramo le conceden al Servicio Nacional de Aduanas, la emisión de políticas y directrices para las actividades de las aduanas y dependencias a su cargo.
+IV. Que el artículo 6 del Reglamento a la Ley General de Aduanas indica que le corresponde al Director General determinar, emitir las políticas y directrices que orienten las decisiones y acciones hacia el efectivo cumplimiento de los fines del régimen jurídico aduanero y la consecución de los objetivos del Servicio Nacional de Aduanas.
+V. Que se publicó la Ley N° 9518 “Incentivos y Promoción para el Transporte Eléctrico”, el 6 de febrero de 2018, en La Gaceta N° 22 Alcance 26, tiene como objeto crear el marco normativo para regular la promoción del transporte eléctrico en el país y fortalecer las políticas públicas para incentivar su uso dentro del sector público y la ciudadanía en general.
+VI. Que el artículo 3 de la Ley N° 9518, declara de interés público la promoción del transporte eléctrico, público y privado, para cumplir con los compromisos adquiridos en los convenios internacionales ratificados por el país.
+VII. Que el artículo 9 de la Ley N° 9518, indica que los vehículos eléctricos, según la definición del artículo 2 de esa ley, se beneficiarán de la exoneración para este tipo de transporte de los siguientes impuestos: impuesto general sobre las ventas, impuesto selectivo de consumo y el impuesto sobre el valor aduanero.
+VIII. Que de acuerdo a la resolución RES-DGA-100-2019, de fecha 27 de Junio del 2019, publicada en La Gaceta No. 122 publicada el 1 de julio de 2019, el Director General de Aduanas resuelve en su punto 1., lo siguiente:
+“ 1. Que de conformidad con la Ley N. 9635 de “Fortalecimiento de las Finanzas Públicas” a partir del 01 de julio de 2019, no procede la exoneración del Impuesto General sobre las Ventas, definido en la Ley 9518, artículo 9, por lo que debe cobrarse el 13% del Impuesto al Valor Agregado (IVA), a los vehículos eléctricos nuevos.”
+IX. Que mediante oficio números DGT-1325-2019 y DGH-379-2019, de fecha 05 de agosto de 2019, suscrito por el señor Carlos Luis Vargas Duran, Director General de Tributación y la señora Priscilla Piedra Campos, Directora General de Hacienda, señalan que una vez analizado el criterio número C- 185-2019, de fecha 04 de Julio del 2019, emitido por la Procuraduría General de la República; se permiten informar sobre el listado de exoneraciones que mantienen su vigencia y en consecuencia exonerados del impuesto sobre el valor agregado.
+X. Que el oficio de cita DGT-1325-2019 y DGH-379-2019, señala para la Ley 9518 de Incentivos y Promoción para el Transporte Eléctrico, como exonerada del impuesto sobre el valor agregado (IVA); por lo tanto, la exoneración del impuesto general sobre las ventas, el impuesto selectivo de consumo y el impuesto sobre el valor aduanero, para los vehículos eléctricos nuevos se aplicará de acuerdo a la siguiente tabla:
+Monto exonerado del valor CIF del vehículo eléctrico | Exoneración del impuesto general sobre las ventas | Exoneración del impuesto selectivo de consumo | Exoneración del impuesto sobre el valor aduanero
+Los primeros $30.000 del valor CIF del vehículo eléctrico | 100% de exoneración | 100% de exoneración | 100% de exoneración
+De $30.001 hasta $45.000 del valor CIF del vehículo eléctrico. | 50% de exoneración | 75% de exoneración | 100% de exoneración
+De $45.001 hasta $60.000 del valor CIF del vehículo eléctrico | 0% de exoneración | 50% de exoneración | 100% de exoneración
+De $60.001 en adelante | 0% de exoneración | 0% de exoneración | 0% de exoneración
+POR TANTO
+Con fundamento en las consideraciones de hecho y derecho de cita, potestades y demás atribuciones aduaneras que otorgan los artículos 6, 9, 11, de la Ley General de Aduanas No.7557 del 20 de octubre 1995 y sus reformas y 6 y 7 del Reglamento a Ley General de Aduanas:
+EL DIRECTOR GENERAL DE ADUANAS, RESUELVE:
+1. Dejar sin efecto el punto 1., del Por Tanto, de la resolución RES-DGA-100-2019, de fecha 27 de Junio del 2019, emitida por la Dirección General de Aduanas.
+2. Aplicar la exoneración para los vehículos eléctricos nuevos de acuerdo a la tabla de exoneración contemplada en el punto X., de este addendum.
+3. La presente resolución rige a partir del 05 de agosto de 2019.
+4. Publíquese en el Diario Oficial La Gaceta
