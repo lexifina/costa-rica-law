@@ -1,1 +1,0 @@
-Artículo 19.—En el área tratada, únicamente se puede ingresar con el equipo de protección personal y se debe respetar el tiempo de reingreso o tiempo de espera conforme lo indica la etiqueta del producto.

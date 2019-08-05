@@ -1,1 +1,0 @@
-Artículo 23.—A los envases que contenían agroquímicos y que deban ser manipulados por los trabajadores, se les debe aplicar el triple lavado para eliminar los residuos, como medida de protección y prevención de los daños a la salud.
