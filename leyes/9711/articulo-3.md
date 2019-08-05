@@ -1,0 +1,2 @@
+ARTÍCULO 3°.—Modifícanse los artículos 2°, 4° y 6° de la Ley No. 9632, Ley de Presupuesto Ordinario y Extraordinario de la República para el Ejercicio Económico del 2019, publicada en los Alcances Digitales No. 207A, 207B, 207C, 207D, 207E, a La Gaceta N° 230 del 11 de diciembre del 2018, en la forma que se indica a continuación:
+(Nota de Sinalevi: Por lo extensor de su contenido y tipo de format consultar Alcance Digital N° 174 a La Gaceta N° 145 del 5 de agosto de 2019)
