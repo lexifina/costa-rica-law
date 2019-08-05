@@ -1,4 +1,6 @@
+(Derogado)
 Nº 8211
+(Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 41918 del 5° de agosto del 2019, el Gobierno de Costa Rica denuncia el presente Convenio)
 LA ASAMBLEA LEGISLATIVA
 DE LA REPÚBLICA DE COSTA RICA
 DECRETA:
