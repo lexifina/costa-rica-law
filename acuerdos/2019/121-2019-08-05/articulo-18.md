@@ -1,0 +1,1 @@
+Artículo 18.—Presentación oral de las ofertas. Cada banco preseleccionado deberá realizar una presentación oral, dentro del plazo que al efecto disponga el Ministerio de Hacienda. El orden de las presentaciones orales de los Bancos Preseleccionados será en el mismo orden en que sus ofertas fueron presentadas.

@@ -1,0 +1,1 @@
+Artículo 6º—Comisión Técnica Asesora. Créase la Comisión Técnica Asesora, la cual brindará todo tipo de asistencia y asesoría requerida en las áreas técnico-financiero y jurídico a la Comisión Ejecutiva de Calificación y Recomendación.

@@ -1,0 +1,23 @@
+MINISTERIO DE HACIENDA
+DM-0121-2019.—San José, 05 de agosto de 2019
+LA MINISTRA DE HACIENDA
+En el uso de las facultades que le confiere la Ley de Emisión de Títulos Valores en el Mercado Internacional, Ley N° 9708, el artículo 28 de la Ley General de la Administración Pública, Ley N° 6227 y los artículos 81, 84 y 86 de la Ley de la Administración Financiera de la República y Presupuestos Públicos, Ley N° 8131.
+Considerando:
+1º—Que los artículos 1, 2 y 4 de la Ley N° 9708, autoriza al Poder Ejecutivo para que por medio del Ministerio de Hacienda, emita títulos valores en el mercado internacional hasta por el monto de US$1.500.000.000 (mil quinientos millones de dólares estadounidenses) o su equivalente en cualquier otra moneda, dentro del siguiente año contabilizado a partir de su aprobación, y con un plazo de vencimiento mínimo de cinco años.
+2º—Que el artículo 5 de dicha Ley autoriza al Ministerio de Hacienda, para que en representación del Poder Ejecutivo, suscriba los documentos y otorgue las garantías necesarias para formalizar las operaciones autorizadas y, en general, realizar todas las acciones requeridas para ejecutarlas.
+3º—Que el artículo 6 de la Ley N° 9708 autoriza al Poder Ejecutivo para que por medio del Ministerio de Hacienda contrate la colocación y el servicio de los títulos que dicha Ley autoriza emitir y establezca los lineamientos que debe seguir dicho proceso.
+4º—Que el artículo 6 dispone en su inciso a.) que: “El Ministerio de Hacienda, previo a realizar la colocación de los títulos, deberá constituir una comisión de calificación y recomendación, en la cual no podrá participar el órgano adjudicador”.
+Entendiendo órgano adjudicador en la figura de la Ministra de Hacienda, según el espíritu del legislador plasmado en el Acta Sesión Ordinaria N° 8 de la Comisión Permanente Ordinaria de Asuntos Económicos.
+5º—Que el artículo 7 de la Ley de cita autoriza al Poder Ejecutivo para que efectúe las contrataciones requeridas según la práctica internacional para colocar los títulos autorizados en los artículos 1 y 2. Estos contratos incluyen al menos aquéllos referentes a agente fiscal, agente de registro, agente de pago, agente de transferencia, casa impresora, asesores legales internacionales y los servicios de calificación de riesgo del país y calificación de la emisión.
+6º—Que en virtud de los artículos 6 y 7 de la Ley N° 9708, las contrataciones requeridas para la emisión de títulos valores en el mercado internacional y las operaciones de reestructuración de pasivos quedarán excluidos de los procedimientos ordinarios de concurso establecidos en la Ley de Contratación Administrativa; sin embargo, el Ministerio de Hacienda deberá velar por que el procedimiento utilizado siga todos los principios y parámetros constitucionales que rigen la actividad contractual del Estado.
+7º—Que en virtud de lo dispuesto en los puntos anteriores, el Ministerio de Hacienda ha resuelto iniciar de inmediato el proceso para la emisión de títulos valores en el mercado internacional hasta por un monto máximo de US$1.500.000.000 (mil quinientos millones de dólares estadounidenses) o su equivalente en otra moneda.
+8º—Que para cumplir con los artículos 6 y 7 de la Ley N° 9708 resulta necesario establecer el procedimiento mínimo de concurso para la selección del o los bancos que lideren el proceso referido en este Acuerdo, así como para las demás contrataciones requeridas según la práctica internacional.
+9º—Que con base en las anteriores autorizaciones, el Ministerio de Hacienda ha resuelto iniciar las contrataciones autorizadas en los artículos 6 y 7 para la realización de la emisión y colocación en el mercado internacional en el marco de la Ley N° 9708. Por tanto,
+ACUERDA:
+PROCEDIMIENTO PARA LA SELECCIÓN
+Y CONTRATACIÓN DEL BANCO O BANCOS
+COLOCADORES Y DEMÁS CONTRATACIONES
+REQUERIDAS PARA LA EMISIÓN DE TÍTULOS
+VALORES EN EL MERCADO INTERNACIONAL
+I. Generalidades
+Artículo 1º—Orden de inicio. Conforme al artículo 1 de la Ley N° 9708 se procede a iniciar el proceso de emisión de títulos valores en el mercado internacional hasta por un monto máximo de US$1.500.000.000 (mil quinientos millones de dólares estadounidenses) o su equivalente en cualquier otra moneda.

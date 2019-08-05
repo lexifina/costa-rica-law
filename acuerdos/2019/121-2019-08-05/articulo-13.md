@@ -1,0 +1,2 @@
+Artículo 13.—Plazo para la recepción de ofertas y apertura.
+El plazo para la recepción de las ofertas se tendrá automáticamente cerrado a la hora y fecha señaladas en las bases de selección. Inmediatamente después de vencido dicho plazo, la Comisión Técnica Asesora, con la participación de al menos tres de sus miembros, procederá al acto de apertura de las ofertas, el cual podrá ser presenciado por los oferentes, y se levantará un acta en la cual se dejará constancia de los documentos físicos o electrónicos recibidos en tiempo y de cualquier otra incidencia relevante.
