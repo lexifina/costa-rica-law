@@ -1,0 +1,1 @@
+Artículo 6º.- Para facilitar y garantizar el adecuado funcionamiento del control integrado, los Estados Parte establecerán un Comité de Coordinación Bilateral de naturaleza permanente, dotado de las competencias necesarias para proponer y resolver aspectos operativos de la gestión del control integrado.

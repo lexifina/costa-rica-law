@@ -1,0 +1,1 @@
+Artículo 24º.-Los Estados Parte deberán establecer una gerencia administrativa en cada Centro de Control Nacional, que estará a cargo de la administración y operación de las instalaciones y deberá coordinar sus funciones con el Comité de Coordinación Bilateral.

@@ -1,0 +1,1 @@
+Artículo 17°.- Los funcionarios y auxiliares de la función pública nacionales competentes que cometan delitos o infracciones en los Centros de Control Integrado, vinculados al ejercicio de o con motivo de sus funciones, serán sometidos a los tribunales de su propio Estado y juzgados por las leyes de éste.

@@ -1,0 +1,1 @@
+Artículo 56º.- En caso de divergencias sobre la interpretación o aplicación del presente Acuerdo, los Estados Parte se comprometen a resolverlas por los canales diplomáticos en coordinación con las instancias correspondientes.

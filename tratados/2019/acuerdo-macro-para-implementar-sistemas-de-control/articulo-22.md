@@ -1,0 +1,6 @@
+Artículo 22°.- Los materiales de trabajo necesarios para el desempeño de las funciones de las instituciones de frontera del país limítrofe en el País Sede, serán de dos categorías:
+a) Los que se consumen por el uso, y
+b) Los que no se consumen por el uso.
+Los materiales de la categoría (a), estarán exentos del pago de todo tipo de restricciones de carácter económico, de derechos, tasas, impuestos y gravámenes de cualquier naturaleza a la importación del País Sede. Su importación será formalizada por la Aduana del País Sede, únicamente con la presentación de una lista simple de bienes suscrita y aprobada por la Aduana del país limítrofe. Al efecto, las Aduanas de ambos países acordarán la utilización de formularios similares.
+A los materiales de la categoría (b), que por su naturaleza pueden ser reexportados, se les aplicará el régimen especial de importación temporal. Dicho régimen especial será formalizado por una lista suscrita y aprobada por la Aduana del país limítrofe y por la Aduana del País Sede. La reexportación de los materiales será autorizada por la Aduana del País Sede, en cualquier momento, a solicitud de las instituciones de frontera del país limítrofe.
+La Aduana del País Sede denegará el ingreso de los materiales que constituyan bienes prohibidos o restringidos de acuerdo a su legislación nacional.

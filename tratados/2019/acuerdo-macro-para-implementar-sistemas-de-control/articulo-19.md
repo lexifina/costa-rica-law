@@ -1,0 +1,1 @@
+Artículo 19°.- Los delitos o infracciones no relacionados directamente con las actividades de control fronterizo cometidos en un Centro de Control Nacional, estarán sujetos a las reglas generales de jurisdicción vigentes en el País Sede.

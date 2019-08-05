@@ -1,0 +1,1 @@
+Artículo 39°.- Las instituciones competentes de frontera deberán intercambiar información antes, durante y después del proceso de ingreso y salida entre sus sistemas informáticos y homologar su sistema de registro y la realización de tareas de verificación de carga conjunta con el objetivo de abrir la unidad de transporte una sola vez.

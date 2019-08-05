@@ -1,0 +1,1 @@
+Artículo 10°.- Los funcionarios de las diferentes instituciones de un Estado Parte que cumplan sus labores en las instalaciones del Centro del Control Nacional ubicadas en el territorio del otro Estado Parte, se sujetarán y estarán cubiertos por el régimen laboral, de remuneraciones y de seguridad social de su respectivo país, sin derecho a viáticos internacionales.

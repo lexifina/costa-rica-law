@@ -1,0 +1,3 @@
+Artículo 33º.- En cuanto al ingreso y salida de vehículos particulares de turistas, vehículos de transporte público de pasajeros y de carga, se establece que:
+a) El registro y control aduanero de salida e ingreso se ejercerá en los Centros de Control Nacional por parte de los funcionarios nacionales competentes de Aduanas, en el orden y secuencia de País de Salida y País de Entrada.
+b) A los fines del registro aduanero, se utilizarán los documentos o formularios establecidos para tal efecto en los procedimientos aduaneros de ambos países, en los acuerdos internacionales vigentes para los Estados Parte, o en los procedimientos y/o sistemas de registros sustitutivos que se implementen.

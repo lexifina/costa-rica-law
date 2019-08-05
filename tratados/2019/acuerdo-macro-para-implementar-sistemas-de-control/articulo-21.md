@@ -1,0 +1,1 @@
+Artículo 21°.- El País Sede autorizará y facilitará la instalación y conservación de los equipos de telecomunicación necesarios para el cumplimiento de las funciones de las instituciones del país limítrofe.

@@ -1,0 +1,1 @@
+Artículo 14°.- Los Estados Parte se comprometen a perfeccionar y/o desarrollar nuevas acciones orientadas a evitar la salida e ingreso ilegal de personas, equipajes, vehículos, unidades de transporte y mercancías procedentes del territorio de un Estado Parte hacia el territorio de otro Estado Parte.

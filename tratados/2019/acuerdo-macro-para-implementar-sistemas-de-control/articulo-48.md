@@ -1,0 +1,1 @@
+Artículo 48º.- Los Ministerios Públicos de los Estados Parte establecerán un espacio de cooperación permanente con la finalidad de investigar y perseguir los actos ilícitos que se cometan en los Centros de Control Integrado, así como aquellos detectados con ocasión de las actividades de control fronterizo, conforme a su propia legislación y a lo dispuesto en el presente Acuerdo.

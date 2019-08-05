@@ -1,0 +1,1 @@
+Artículo 46°.- En cumplimiento de sus normas nacionales y en atención a lo dispuesto en el presente Acuerdo los funcionarios que desempeñen tareas de control en el territorio del otro país no podrán portar armas.

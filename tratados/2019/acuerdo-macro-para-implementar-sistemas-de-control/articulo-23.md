@@ -1,0 +1,3 @@
+CAPÍTULO VII
+DEL COMITÉ DE COORDINACIÓN BILATERAL
+Artículo 23º.-El Comité de Coordinación Bilateral es el organismo binacional de carácter permanente que tiene a su cargo la coordinación administrativa y operativa de los Centros de Control Integrado. Estará integrada por los jefes destacados en los Centros de Control Nacional de cada una de las instituciones que prestan los servicios requeridos en el Centro de Control Integrado y sus decisiones se adoptan por consenso. Los integrantes deberán establecer un reglamento operativo, que incluya disposiciones sobre la presidencia, frecuencia de las sesiones y mecanismos de solución de conflictos, entre otros.

@@ -1,0 +1,1 @@
+Artículo 18°.- Los delitos e infracciones de los usuarios sometidos al control fronterizo, detectados por los funcionarios nacionales competentes en los Centros de Control Integrado, se entenderán sujetos a la jurisdicción del Estado que se encuentra efectuando el control o detectó el ilícito o infracción.

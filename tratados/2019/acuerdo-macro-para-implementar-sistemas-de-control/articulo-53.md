@@ -1,0 +1,1 @@
+Artículo 53º.- El presente Acuerdo no deroga, ni modifica lo establecido por tratados internacionales vigentes entre los Estados Parte, especialmente aplicables al tránsito de personas, equipajes, mercancías, unidades de transporte y vehículos considerados transfronterizos.

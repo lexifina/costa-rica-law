@@ -1,0 +1,1 @@
+Artículo 42º.- Los funcionarios de los países que realicen controles migratorios exigirán, según corresponda, la documentación idónea de viaje aplicable a la nacionalidad de la persona que se trate, según las normas del país que esté efectuando el control, conforme a los convenios internacionales de los que forman parte o a su legislación nacional vigente, según sea el caso.

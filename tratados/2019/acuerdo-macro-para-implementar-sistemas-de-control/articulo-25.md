@@ -1,0 +1,2 @@
+Artículo 25º.- Las gerencias administrativas de cada Centro de Control Nacional, serán las encargadas de implementar y ejecutar los acuerdos del Comité de Coordinación Bilateral en cuanto a horarios de funcionamiento y coordinación de temporalidades y contingencias.
+Cada una se encargará de la administración y de la coordinación entre las instituciones nacionales que presten servicios en el Centro de Control Integrado, pero no tendrá competencia alguna sobre la materia de especialización de cada institución ni sobre sus decisiones técnicas.

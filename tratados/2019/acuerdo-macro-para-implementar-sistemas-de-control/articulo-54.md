@@ -1,0 +1,1 @@
+Artículo 54º.- Toda propuesta de modificación de las disposiciones del presente Acuerdo será sometida previamente a consideración del mecanismo bilateral adecuado para su evaluación y, según corresponda, se recomendará su formalización por cada Estado Parte.

@@ -1,0 +1,1 @@
+Artículo 30º.- Cada Estado Parte deberá establecer una instancia de coordinación nacional en cada Centro de Control Integrado, que apoye y facilite la aplicación delas decisiones del Comité de Coordinación Bilateral en los respectivos Centros de Control Nacional.

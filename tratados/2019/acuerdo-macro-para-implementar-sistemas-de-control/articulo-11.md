@@ -1,0 +1,1 @@
+Artículo 11°.- Los funcionarios de ambos países se prestarán ayuda mutua para el ejercicio de sus funciones en el Centro de Control Integrado, debiendo comunicarse de manera oportuna, de oficio o a solicitud de parte, toda información que pueda ser de interés para el control fronterizo.

@@ -1,0 +1,1 @@
+Artículo 44°.- Los organismos de frontera armonizarán y homogenizarán procedimientos de control migratorio a fin de agilizar el proceso. Deberán tender, igualmente, al intercambio antes, durante y después del proceso de ingreso y salida de información de los sistemas informáticos y a la homologación de su sistema de registro.

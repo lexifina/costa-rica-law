@@ -1,0 +1,1 @@
+Artículo 7º.- El Centro de Control Integrado funcionará en forma permanente durante todos los días del año. Para tal efecto, el Comité de Coordinación Binacional podrá adoptar medidas orientadas a optimizar la atención en frontera, especialmente en aquellos aspectos referidos al horario de apertura y cierre del servicio diario.

@@ -1,0 +1,1 @@
+Artículo 57º.- El presente Acuerdo entrará en vigor en la fecha en que los Estados Parte se comuniquen el cumplimiento de los requisitos exigidos por sus respectivos ordenamientos jurídicos internos para su entrada en vigencia.
