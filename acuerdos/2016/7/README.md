@@ -14,3 +14,4 @@ CODIGO COSEVI/ECA-MC-MA-P09 Aval Técnico para la Exoneración de Dispositivos d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-06-28 | la propia norma |
+| 2 | 2019-08-05 | Acuerdo 8 (2019-08-05) |
