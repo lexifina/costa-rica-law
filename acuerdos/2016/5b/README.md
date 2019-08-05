@@ -14,3 +14,4 @@ Reforma Procedimiento ECA-MC-MA-P08 Instrucciones para los Proveedores de equipo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-05-23 | la propia norma |
+| 2 | 2019-08-05 | Acuerdo 8 (2019-08-05) |
