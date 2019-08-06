@@ -1,3 +1,0 @@
-CAPITULO VII
-Del Comité Institucional de Selección y Eliminación de Documentos
-Artículo 26.—Conformación del Comité. El Comité Institucional de Selección y Eliminación de Documentos, estará conformado por el encargado del Archivo Central, el superior jerárquico del encargado del Archivo Central y un asesor legal. Entre dichos miembros se nombrará un presidente y un secretario. En la primera sesión del Comité, que se efectuará a más tardar quince días naturales después de la entrada en vigencia de este Reglamento, se definirá lo relativo al programa de trabajo, así como los detalles relativos al cumplimiento de funciones, todo lo cual se hará del conocimiento del Regulador General.

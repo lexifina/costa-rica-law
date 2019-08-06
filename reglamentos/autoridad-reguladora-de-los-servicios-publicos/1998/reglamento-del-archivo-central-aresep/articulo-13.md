@@ -1,1 +1,0 @@
-Artículo 13.—Expedientes espejo. Los expedientes espejo deberá conservarse en idéntica condición al expediente administrativo. Se confeccionará un expediente espejo para la Dirección de Atención al Usuario y Audiencia Pública, en todos los casos de trámite de tarifas y precios, que será el expediente de consulta de los usuarios.

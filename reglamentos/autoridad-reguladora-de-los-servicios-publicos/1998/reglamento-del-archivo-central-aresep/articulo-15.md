@@ -1,1 +1,0 @@
-Artículo 15.—Acceso a los documentos. Los dictámenes emitidos por las dependencias que no han sido conocidos por el órgano a quien van dirigidos, no pueden ser conocidos por las partes, razón por la cual queda absolutamente prohibido el acceso a los mismos, a tenor de lo que establece el artículo 273 de la Ley General de la Administración Pública.

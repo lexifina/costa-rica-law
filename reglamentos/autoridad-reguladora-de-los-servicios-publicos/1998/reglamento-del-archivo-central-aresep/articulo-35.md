@@ -1,1 +1,0 @@
-Artículo 35.—Regulación del proceso de selección y eliminación. El proceso de selección y eliminación, estará regulado por el Comité Institucional de Selección y Eliminación de Documentos, en coordinación con el Archivo Central y los Archivos de Gestión.

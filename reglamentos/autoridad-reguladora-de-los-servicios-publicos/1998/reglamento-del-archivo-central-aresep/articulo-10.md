@@ -1,4 +1,0 @@
-Artículo 10.—Vías de acceso de información. La correspondencia externa ingresará a la MESA DE ENTRADA por tres vías:
-1. Entrega personal
-2. Por apartado postal
-3. Por Fax u otro medio electrónico.

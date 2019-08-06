@@ -1,1 +1,0 @@
-Artículo 22.—Trabajos realizados. Los estudiantes e investigadores que realicen trabajos con información del Archivo Central, se comprometerán a entregar una copia del trabajo realizado, para incorporarlo si así se considera conveniente, al patrimonio documental de la ARESEP.
