@@ -1,0 +1,1 @@
+Artículo 4º—Revisión de los sectores. La Comisión conocerá la propuesta de revisión de los sectores estratégicos de sus miembros o terceros interesados, quienes deberán presentar una propuesta por escrito con la justificación respectiva a la Secretaría Técnica, indicando la categoría respecto de la cual se pretende incluir el sector.

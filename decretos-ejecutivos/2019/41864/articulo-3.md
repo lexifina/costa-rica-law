@@ -1,0 +1,5 @@
+Artículo 3.—Funciones. Las principales funciones de la Comisión son:
+a) Definir los sectores estratégicos, según los términos establecidos en los artículos 2 y 21 bis inciso a) de la Ley de Régimen de Zonas Francas; así como en el artículo 2 del presente Reglamento.
+b) Conocer en sus sesiones aquellos asuntos propuestos por los representantes de los ministerios y las entidades que la conforman, respecto a los temas relativos a la revisión de los sectores, según los parámetros establecidos en el artículo 2 de este reglamento.
+c) Mantener una coordinación permanente con los representantes establecidos en el artículo 5 del presente reglamento, de forma tal que se propicie su debida participación en la definición de los sectores estratégicos.
+d) Conocer en sus sesiones, aquellas propuestas presentadas por terceros interesados respecto a la revisión de sectores estratégicos. Para tales efectos, estos terceros deberán presentar una propuesta por escrito con la justificación respectiva a la Secretaría Técnica de Apoyo, indicando la categoría respecto de la cual se pretende incluir el sector.

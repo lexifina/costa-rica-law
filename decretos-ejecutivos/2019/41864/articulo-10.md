@@ -1,0 +1,1 @@
+Artículo 10.—De los Recursos. Para el desempeño de su cometido, la Comisión recurrirá a las capacidades operativas y administrativas existentes, así como a los recursos presupuestarios y humanos disponibles en las entidades que la componen.

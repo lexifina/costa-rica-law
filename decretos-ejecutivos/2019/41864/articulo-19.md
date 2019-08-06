@@ -1,0 +1,1 @@
+Artículo 19.—De la colaboración. Los ministerios y las entidades que conforman la Comisión colaborarán con la Secretaría Técnica de Apoyo, de conformidad con las áreas de sus respectivas competencias se establezcan en el seno de la Comisión.
