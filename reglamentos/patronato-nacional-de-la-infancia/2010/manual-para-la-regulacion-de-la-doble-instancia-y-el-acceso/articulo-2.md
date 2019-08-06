@@ -1,1 +1,0 @@
-Artículo 2º—En aquellos casos en que el recurrente haya ofrecido en su escrito de apelación prueba testimonial para ser evacuada en segunda instancia, corresponderá al Representante legal de la Oficina Local, previo a la elevación del recurso, proceder con su diligenciamiento, para lo cual deberá señalar hora y fecha para su recabación en sede administrativa.

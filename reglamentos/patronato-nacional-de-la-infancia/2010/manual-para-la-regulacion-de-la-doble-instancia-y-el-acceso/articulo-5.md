@@ -1,1 +1,0 @@
-Artículo 5º—Corresponderá al Representante legal de la Oficina Local garantizar que el expediente administrativo que se eleve en apelación, se encuentre en adecuado estado de conservación, de igual forma, que cuente con la debida foliatura, según las disposiciones aplicables en esta materia.

@@ -1,3 +1,0 @@
-CAPITULO II
-Del análisis del expediente y la expresión de agravios
-Artículo 6º—Una vez recibido el expediente administrativo con la apelación de rigor en la Presidencia Ejecutiva, este se asignará a un profesional en derecho para su estudio, análisis y tramitación. Corresponderá a ese funcionario realizar las coordinaciones pertinentes con la oficina local competente y demás dependencias institucionales para garantizar que toda la información necesaria para resolver la apelación interpuesta se encuentre adjuntada a los autos; de igual forma, le corresponde garantizar el acceso de las partes involucradas a las piezas del expediente, el cual podrá ser consultado y fotocopiado en todo momento.

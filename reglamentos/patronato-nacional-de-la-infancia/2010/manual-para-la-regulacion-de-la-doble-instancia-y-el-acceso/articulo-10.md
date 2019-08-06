@@ -1,3 +1,0 @@
-CAPITULO III
-De la resolución definitiva y la comunicación del acto
-Artículo 10.—Corresponde al Presidente Ejecutivo del Patronato Nacional de la Infancia resolver y suscribir las resoluciones administrativas en las cuales se diluciden los recursos de apelación interpuestos en contra de lo actuado por los Representantes Legales de la institución. En su virtud, dicha potestad y competencia legal es indelegable, por lo que no podrá conferírsele esa función a ningún otro funcionario de la entidad, a excepción de lo previsto en el último párrafo del inciso b) del artículo 5 de la Ley Orgánica del Patronato Nacional de la Infancia, que regula la suplencia del Presidente Ejecutivo en sus ausencias temporales.
