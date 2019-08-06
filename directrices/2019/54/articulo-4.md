@@ -1,0 +1,2 @@
+Artículo 4°- Plazo de ejecución. Las instituciones del sector público tendrán un plazo máximo de 5 años para la ejecución de todas las acciones que determinen para la modernización de sus mecanismos de cobro y pago. Este plazo empezará a contar a partir de la entrada en vigencia de la presente Directriz.
+Los casos que requieran de una ampliación del plazo deberán ser aprobados por el Banco Central de Costa Rica, previa justificación por parte de la institución correspondiente.
