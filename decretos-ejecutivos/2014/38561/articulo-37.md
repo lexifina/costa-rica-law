@@ -1,2 +1,2 @@
-Artículo 37.—Los funcionarios del Ministerio solo podrán utilizar las conexiones vía FTP o de conversación en línea ICQ, MSN, u otras de similar utilidad, cuando así se le haya autorizado previamente y la Dirección de Tecnologías de Información haya instalado y configurado el “software” necesario con el perfil de acceso respectivo.
-Tampoco podrá utilizarse ningún otro tipo de “software” que no sean los exploradores autorizados e instalados por la Dirección de Tecnologías de Información, para acceder Internet.
+Artículo 37.—Los funcionarios del Ministerio solo podrán utilizar los exploradores autorizados e instalados por la Dirección de Tecnologías de Información, para acceder internet.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 41977 del 6° de agosto del 2019)

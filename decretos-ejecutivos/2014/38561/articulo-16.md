@@ -1,1 +1,2 @@
-Artículo 16.—Una vez patrimonializado el equipo adquirido, la dependencia a quien corresponde la asignación del equipo, conforme la previsión hecha desde el principio del trámite, procederá a retirarlos para su uso.
+Artículo 16.—Una vez patrimonializado el equipo adquirido, la dependencia a la cual corresponde la asignación del equipo, conforme la previsión hecha desde el principio del trámite, procederá a retirarlos para su uso. Estos equipos deberán ser remitidos a la Dirección de Tecnologías de Información para su respectiva configuración en los casos que así se requiera.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 41977 del 6° de agosto del 2019)

@@ -1,1 +1,3 @@
 Artículo 30.—Ningún funcionario podrá reubicar o reconfigurar los equipos de las tecnologías de información que le han sido asignados para su desempeño laboral o de la oficina o unidad laboral donde labora, sin que medie la intervención del personal autorizado de la Dirección de Tecnologías de Información.
+De igual manera ningún funcionario ajeno a la Dirección de Tecnologías de Información podrá abrir• o violentar los equipos o dispositivos propiedad del Ministerio de Seguridad Pública.
+(Así adicionado el párrafo anterior por el artículo 3° del decreto ejecutivo N° 41977 del 6° de agosto del 2019)

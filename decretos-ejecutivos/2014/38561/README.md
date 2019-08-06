@@ -14,3 +14,4 @@ Reglamento de normas y políticas de las tecnologías de información del Minist
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-09-24 | la propia norma |
+| 2 | 2019-08-06 | Decreto Ejecutivo 41977 (2019-08-06) |

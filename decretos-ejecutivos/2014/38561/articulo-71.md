@@ -1,1 +1,2 @@
-Artículo 71.—Los funcionarios autorizados para administrar el perfil de las redes sociales digitales de cada dependencia deberán abstenerse de permitir o dar autorizaciones para accesar o promocionar contenidos ajenos a la función de proyección institucional, tales como juegos, aplicaciones u otros que distraigan dicha finalidad.
+Artículo 71.—Los funcionarios autorizados para administrar el perfil de las redes sociales digitales deberán abstenerse de permitir o dar autorizaciones para acceder o promocionar contenidos ajenos a la función de proyección institucional, tales como juegos, aplicaciones u otros que distraigan dicha finalidad.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 41977 del 6° de agosto del 2019)

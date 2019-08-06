@@ -1,1 +1,2 @@
-Artículo 17.—En todos los casos de adquisición de equipos de tecnologías de información por compra, la Intendencia del Ministerio deberá enviar oportunamente copias de las facturas y garantías a la Dirección de Tecnologías de Información.
+Artículo 17.—En todos los casos de adquisición de equipos de tecnologías de información por compra, la Departamento Almacén Institucional(*) deberá enviar oportunamente copias de las facturas y garantías a la Dirección de Tecnologías de Información.
+(*) (Así modificada su denominación por el artículo 2° del decreto ejecutivo N° 41977 del 6° de agosto de 2019. Anteriormente se indicaba: "Intendencia del Ministerio".)
