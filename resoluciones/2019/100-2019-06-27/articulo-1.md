@@ -24,7 +24,13 @@ X. Que con la resolución RES-DGA-DGT-041-2018 del 11 de diciembre 2018, publica
 XI. Que el Ministerio de Hacienda, se encuentra trabajando en el procedimiento y los desarrollos informáticos requeridos al efecto, con la intención de instrumentalizar los distintos tractos de la exoneración de los vehículos eléctricos.
 POR TANTO
 Con fundamento en las consideraciones de hecho y derecho de cita, potestades y demás atribuciones aduaneras que otorgan los artículos 6, 9, 11, de la Ley General de Aduanas No.7557 del 20 de octubre 1995 y sus reformas y 6 y 7 del Reglamento a Ley General de Aduanas:
-1.Que de conformidad con la Ley N. 9635 de “Fortalecimiento de las Finanzas Públicas” a partir del 01de julio de 2019, no procede la exoneración del Impuesto General sobre las Ventas, definido en la Ley 9518, artículo 9, por lo que debe cobrarse el 13% del Impuesto al Valor Agregado (IVA), a los vehículos eléctricos nuevos.
+1.(Dejado sin efecto por resolución RES-DGA-182-2019 del 7 de agosto de 2019)
+(Nota de Sinalevi Mediante resolución RES-DGA-182-2019 del 7 de agosto de 2019, se publicó el Addendum a la presente norma que eliminaba el cobro del Impuesto del Valor Agregado (IVA), a los vehículos eléctricos nuevos. No obstante se vuelve a aplicar la exoneración para los vehículos eléctricos nuevos de acuerdo a la tabla:
+Monto exonerado del valor CIF del vehículo eléctrico | Exoneración del impuesto general sobre las ventas | Exoneración del impuesto selectivo de consumo | Exoneración del impuesto sobre el valor aduanero
+Los primeros $30.000 del valor CIF del vehículo eléctrico | 100% de exoneración | 100% de exoneración | 100% de exoneración
+De $30.001 hasta $45.000 del valor CIF del vehículo eléctrico. | 50% de exoneración | 75% de exoneración | 100% de exoneración
+De $45.001 hasta $60.000 del valor CIF del vehículo eléctrico | 0% de exoneración | 50% de exoneración | 100% de exoneración
+De $60.001 en adelante | 0% de exoneración | 0% de exoneración | 0% de Exoneración”)
 2.Prorrogar indefinidamente la resolución RES-DGA-DGT-041-2018 del 11 de diciembre 2018,publicada en la Gaceta Digital número 50 del 12 de marzo 2019, con las modificaciones realizadas al punto VII, referente a la no exoneración del Impuesto General sobre las Ventas; así como la aplicación del “Procedimiento especial de Importación Definitiva Vehículos Eléctricos”; y la modificación al instructivo de llenado denominado “Instructivo para liquidación manual de impuestos de Vehículos eléctricos nuevos y exonerados”. Dicha prórroga se establece hasta tanto se finiquite el ajuste definitivo en el sistema informático TICA.
 3.“Por encontrase el Director General de Aduanas de viaje oficial con acuerdo N° AH-0073-2019, del 26al 29 de junio del 2019, la suscrita firma el presente acto en carácter de Directora General de Aduanas a.i..”
 4.Publíquese en el Diario Oficial La Gaceta.

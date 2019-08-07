@@ -14,3 +14,4 @@ Prorroga indefinidamente resolución RES-DGA-DGT-041-2018 referente a la no exon
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-07-01 | la propia norma |
+| 2 | 2019-08-07 | Resolución 182 (2019-08-07) |
