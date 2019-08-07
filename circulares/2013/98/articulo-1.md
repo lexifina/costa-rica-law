@@ -8,5 +8,9 @@ El Consejo Superior del Poder Judicial en sesión N° 42-13, celebrada el 30 de 
 “Las autoridades judiciales que pueden tener acceso al contenido de los dictámenes periciales son las que se consignen en el formulario denominado: “SOLICITUD DICTAMEN PERICIAL PARA EL DEPARTAMENTO LABORATORIO DE CIENCIAS FORENSES (F-83-i), para lo cual deben indicar la dirección electrónica oficial del despacho en los espacios del formulario denominados:
 REMITIR DICTAMEN A:
 CON COPIA A:
-En el caso que una autoridad judicial requiera copia del dictamen pericial pero no aparezca consignada en el Formulario F-83i, deberá solicitarlo a la autoridad que autoriza la pericia.
+En el caso que una autoridad judicial requiera copia del dictamen pericial pero no aparezca consignada en el Formulario F-83i, deberá solicitarlo a la autoridad que autoriza la pericia. )
+(Nota de Sinalevi: Mediante circular N° 128-2019 del 7 de agosto de 2019 y publicada en el Boletín Judicial N° 176 del 18 de setiembre de 2019, se acordó modificar el texto de la circular 7-2014, sobre “Información contenida en los dictámenes periciales”, de la siguiente manera:
+[imagen]
+[imagen]
+[imagen]
 San José, 28 de mayo del 2013.
