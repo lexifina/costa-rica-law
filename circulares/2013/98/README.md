@@ -14,3 +14,4 @@ Información contenida en los dictámenes periciales
 | --- | --- | --- |
 | 1 | 2013-05-28 | la propia norma |
 | 2 | 2014-01-13 | Circular 7 (2014-01-13) |
+| 3 | 2019-08-07 | Circular 127 (2019-08-07) |
