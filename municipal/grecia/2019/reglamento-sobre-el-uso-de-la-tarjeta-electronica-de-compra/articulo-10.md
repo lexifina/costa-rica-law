@@ -1,0 +1,1 @@
+Artículo 10.—El monto máximo de consumo de combustible por equipo o vehículo, será definido por directriz de la Alcaldía Municipal, en función de los siguientes criterios por orden de prioridad: presupuesto, proporcionalidad, el uso del equipo y controles cruzados de kilometraje.

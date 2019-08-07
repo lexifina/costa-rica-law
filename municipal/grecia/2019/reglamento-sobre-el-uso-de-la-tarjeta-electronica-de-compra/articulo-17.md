@@ -1,0 +1,1 @@
+Artículo 17.—El proceso de pago comisiones, rebajos por consumo de combustible y control presupuestario, se realizarán conforme al Manual de Uso y Control de Combustibles de la Municipalidad de Grecia.
