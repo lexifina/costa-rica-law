@@ -1,1 +1,2 @@
-ARTÍCULO 51.- La familia, como elemento natural y fundamento de la sociedad, tiene derecho a la protección especial del Estado. Igualmente tendrán derecho a esa protección la madre, el niño, el anciano y el enfermo desvalido.
+Artículo 51- La familia, como elemento natural y fundamento de la sociedad, tiene derecho a la protección especial del Estado. Igualmente, tendrán derecho a esa protección la madre, el niño y la niña, las personas adultas mayores y las personas con discapacidad.
+(Así reformado por el artículo único de la ley N° 9697 del 16 de julio de 2019, “Reforma artículo 51 de la Constitución Política para garantizar la protección especial del Estado a las personas con discapacidad”)
