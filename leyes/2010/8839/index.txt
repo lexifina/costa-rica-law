@@ -40,6 +40,7 @@ articulo-39.md
 articulo-40.md
 articulo-41.md
 articulo-42.md
+articulo-42-bis.md
 articulo-43.md
 articulo-44.md
 articulo-45.md
@@ -69,3 +70,6 @@ articulo-9-transitorio.md
 articulo-10-transitorio.md
 articulo-11-transitorio.md
 articulo-12-transitorio.md
+articulo-13-transitorio.md
+articulo-14-transitorio.md
+articulo-15-transitorio.md
