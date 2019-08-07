@@ -1,6 +1,6 @@
 # Constitución Política
 
-Constitución Política  del 1949-11-07. SINALEVI, ficha 871: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=871&param2=117246&param3=1>.
+Constitución Política  del 1949-11-07. SINALEVI, ficha 871: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=871&param2=117266&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -27,3 +27,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 19 de 28 | 2018-03-16 | Resolución 1456 (2018-03-07) | 2018-03-07 |
 | 20 de 28 | 2018-08-30 | Ley 9571 | 2018-05-23 |
 | 21 de 28 | 2019-08-07 | Ley 9696 | 2019-06-11 |
+| 22 de 28 | 2019-08-07 | Ley 9697 | 2019-07-16 |
