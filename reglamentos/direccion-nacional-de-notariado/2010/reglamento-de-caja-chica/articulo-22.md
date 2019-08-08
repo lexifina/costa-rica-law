@@ -1,1 +1,0 @@
-Artículo 22.—El procedimiento de liquidación de adelanto de viáticos por medio del Fondo de Caja Chica, será el determinado por el Reglamento de Gastos de Viaje y de Transportes para Funcionarios Públicos, emitido por la Contraloría General de la República.

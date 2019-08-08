@@ -1,2 +1,0 @@
-Artículo 21.—La liquidación de los vales deberá hacerse a más tardar el día hábil siguiente al retiro del dinero, con excepción de los viernes o un día inmediato anterior a un feriado, en los que el reintegro del vale se hará dentro del mismo día de la emisión o el día hábil siguiente.
-Cuando la liquidación se realice con posterioridad al plazo fijado, deberá justificarse ante el Coordinador Administrativo, el cual evaluará si las razones del atraso proceden. Si no es así se actuará conforme lo dispuesto en el artículo 28 de este reglamento.

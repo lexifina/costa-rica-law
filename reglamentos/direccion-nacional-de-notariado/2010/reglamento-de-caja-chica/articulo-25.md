@@ -1,1 +1,0 @@
-Artículo 25.—Los funcionarios del área funcional no entregarán vales de Caja Chica a nombre de un funcionario, si este tiene pendiente la liquidación de uno anterior. No podrá extenderse más de un vale a nombre de un mismo funcionario en forma simultánea.

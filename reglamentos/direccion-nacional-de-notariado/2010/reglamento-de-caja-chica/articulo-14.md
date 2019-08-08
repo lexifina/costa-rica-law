@@ -1,2 +1,0 @@
-Artículo 14.—Una vez efectuado el correspondiente arqueo, el coordinador del área funcional o a quien se designe el Coordinador Administrativo, guardará dentro de la caja fuerte en presencia del encargado del fondo de Caja Chica, en un sobre sellado y firmado por este último, una copia de la llave que será usada por el sustituto (excepto cuando es temporal durante el día).
-El resultado del arqueo realizado (caja, hoja de arqueo), etc., se comunicará a la jefatura Administrativa y su copia se archivará en un consecutivo bajo la custodia del encargado del área funcional.

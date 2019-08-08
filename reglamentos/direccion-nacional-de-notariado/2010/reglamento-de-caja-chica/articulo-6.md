@@ -1,1 +1,0 @@
-Artículo 6º—Los adelantos para la compra de bienes y servicios y viáticos no podrán exceder el equivalente en colones del 20% del fondo de Caja Chica). En casos especiales y a criterio del Director Ejecutivo se autorizará la erogación de sumas mayores, siempre y cuando no excedan del 30% del fondo de Caja Chica.
