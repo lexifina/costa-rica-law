@@ -1,0 +1,1 @@
+Artículo 6º—Se insta a la ARESEP promover opciones tarifarias que impulsen el cambio tecnológico hacia calderas eléctricas y velar por el cumplimiento del artículo 20 de la Ley Nº 7593 Ley de la Autoridad Reguladora de los Servicios Públicos.

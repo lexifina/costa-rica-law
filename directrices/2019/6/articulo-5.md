@@ -1,0 +1,1 @@
+Artículo 5º—Las instituciones que realicen la transición a calderas eléctricas enviarán digitalmente a la Dirección de Energía del MINAE, copia del certificado indicado en el artículo 4° de la presente Directriz.

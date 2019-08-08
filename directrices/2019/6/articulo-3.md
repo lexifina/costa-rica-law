@@ -1,0 +1,1 @@
+Artículo 3°.- Información al Programa de Gestión Ambiental Institucional. Se insta a las instituciones que realicen la transición a calderas eléctricas que reporten el cambio en el informe de avance del Plan de Gestión Ambiental Institucional (PGAI)
