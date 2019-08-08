@@ -17,3 +17,4 @@ Reglamento de matrícula de estudiantes regulares de la Universidad Técnica Nac
 | 2 | 2012-09-25 | Reglamento 31 (2012-09-25) |
 | 3 | 2014-03-27 | Reglamento 4 (2014-03-27) |
 | 4 | 2018-03-08 | Reglamento 5 (2018-03-08) |
+| 5 | 2019-08-08 | Reglamento 17 (2019-08-08) |
