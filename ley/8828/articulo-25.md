@@ -1,2 +1,2 @@
-ARTÍCULO 25.- Donaciones
-Autorízase a las SPEM para que reciban donaciones y transferencias para el logro de sus fines y la realización de su objeto, de acuerdo con esta Ley.
+Artículo 25- Gerencia General. La SPEM contará con una Gerencia General que se nombrará del seno de la Junta Directiva, que ostentará la representación judicial y extrajudicial que al efecto le conceda la Junta y actuará de forma conjunta o separadamente a la representación de la Presidencia de la Junta, y tendrá las funciones que más adelante se detallarán, será nombrado por un período de dos años y se podrá reelegir de forma continua.
+Los poderes de representación que la Junta Directiva le otorgue a la persona que ocupe la Gerencia General serán acordes a las obligaciones que esta tendrá, así como para el fiel cumplimiento y ejercicio de su cargo.

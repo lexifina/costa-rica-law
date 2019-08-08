@@ -1,0 +1,1 @@
+Artículo 30- Constitución de las SPEM. Para crear una SPEM se requiere la participación de las municipalidades que así lo decidan y al menos un sujeto de derecho privado que se escogerá siguiendo el procedimiento establecido en la Ley N.º 7494, Contratación Administrativa, de 2 de mayo de 1995, sin perjuicio de la participación de otras entidades públicas.

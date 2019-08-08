@@ -1,2 +1,1 @@
-ARTÍCULO 22.- Constitución de las SPEM
-Para crear una SPEM se requiere la participación de las municipalidades que así lo decidan y al menos un sujeto de Derecho privado que se escogerá siguiendo el procedimiento establecido en la Ley de contratación administrativa, sin perjuicio de la participación de otras entidades públicas.
+Artículo 22- Presidente de la Junta Directiva. La Junta Directiva tendrá un presidente que será elegido de su seno por un período de un año, con las facultades de apoderado general. Además, se nombrará por un período igual a un vicepresidente, quien reemplazará al titular en sus ausencias temporales. Estos nombramientos se publicarán en La Gaceta, para que surtan sus efectos legales.
