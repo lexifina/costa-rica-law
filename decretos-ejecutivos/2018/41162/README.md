@@ -16,3 +16,4 @@ Limitación a las reestructuraciones
 | 1 | 2018-06-06 | la propia norma |
 | 2 | 2019-05-28 | Decreto Ejecutivo 41762 (2019-05-28) |
 | 3 | 2019-06-27 | Decreto Ejecutivo 41826 (2019-06-27) |
+| 4 | 2019-08-09 | Decreto Ejecutivo 41906 (2019-08-09) |
