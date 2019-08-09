@@ -15,3 +15,4 @@ Rehabilitación de licencias de pesca que se hubiesen vencido sin haber sido pre
 | --- | --- | --- |
 | 1 | 2018-02-09 | la propia norma |
 | 2 | 2019-07-26 | Acuerdo 384 (2019-07-26) |
+| 3 | 2019-08-09 | Acuerdo 419 (2019-08-09) |

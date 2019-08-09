@@ -1,4 +1,5 @@
 INSTITUTO COSTARRICENSE DE PESCA Y ACUICULTURA
+(Nota de Sinalevi: Mediante acuerdo AJDIP/419-2019 del 9 de agosto del 2019, se acordó extender el plazo de entrega de documentación del proceso de rehabilitación de licencias de pesca comercial, establecido en el presente acuerdo hasta el 31 de diciembre del 2019)
 AJDIP/040-2018.—Puntarenas, a los veinticinco días del mes de enero de dos mil dieciocho.
 Considerando:
 I.—Que la Ley 7384, Ley de Creación del Instituto Costarricense de Pesca y Acuicultura, LCICPA, establece que el Incopesca, “... es un ente público estatal, con personalidad jurídica, patrimonio propio, sujeto al Plan Nacional de Desarrollo que dicte el Poder Ejecutivo;…”. Por ello, el Incopesca, se constituye dentro del ordenamiento jurídico como un ente autónomo, lo que le reviste de las características jurídicas necesarias para la toma de decisiones dentro del ámbito de sus competencias.
