@@ -1,1 +1,0 @@
-Artículo 6º—Plazo de Vigencia: el Departamento de Gestión de Exenciones, mediante el sistema Exonet, otorgará las órdenes especiales a favor de los proveedores que regula esta resolución por el plazo de seis meses.

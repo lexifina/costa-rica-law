@@ -1,1 +1,0 @@
-Artículo 4º—Requisitos: para que la solicitud sea debidamente aprobada se requiere que el proveedor se encuentren al día con la Caja Costarricense del Seguro Social y con sus obligaciones Tributarias; requisitos indispensables para toda persona física o jurídica que desee obtener o tramitar cualquier incentivo fiscal.
