@@ -7,4 +7,6 @@ c) El cálculo del monto nominal fijo para las anualidades que se adquieran con 
 d) De conformidad con el artículo 12 de la Ley N° 2166, adicionado mediante artículo 3 de la Ley N° 9635, si el servidor fuera ascendido las anualidades acumuladas se le reconocerán con el valor de la anualidad correspondiente a su nuevo puesto, como un monto nominal fijo según lo dispuesto en el presente artículo. Bajo ningún supuesto se revalorizarán las anualidades que devengaba previo al ascenso. Aplicará de igual forma para el caso de descensos.
 (Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 41807 del 23 de julio del 2019)
 e) Los cambios respecto al parámetro de cálculo de las anualidades serán aplicables a todas las personas servidoras públicas, a partir de la entrada en vigencia de la Ley N° 9635.
+f) Para el cálculo de anualidades, deberá reconocerse el tiempo prestado en otras instituciones estatales.
+(Así adicionado el inciso anterior por el artículo 2° del decreto ejecutivo N° 41904 del 9 de agosto de 2019)
 (Así reformado por el artículo 1° del decreto ejecutivo N° 41729 del 20 de mayo del 2019)
