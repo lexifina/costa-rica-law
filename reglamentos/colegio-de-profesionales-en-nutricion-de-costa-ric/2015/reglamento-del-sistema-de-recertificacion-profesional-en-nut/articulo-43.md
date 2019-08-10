@@ -1,1 +1,0 @@
-Artículo 43.—Si el Consejo Académico de Nutrición comprueba que una persona profesional en Nutrición incumplió algún requisito o aportó documentos falsos, se procederá a interponer la denuncia ante la Junta Directiva para que actúe conforme a las disposiciones legales y reglamentarias.

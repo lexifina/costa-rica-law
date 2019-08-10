@@ -1,1 +1,0 @@
-Artículo 20.—Los entes proveedores de actividades de educación continua en Nutrición podrán ser personas físicas o jurídicas, públicas o privadas que imparten actividades de educación continua dirigidas a las personas profesionales en Nutrición.

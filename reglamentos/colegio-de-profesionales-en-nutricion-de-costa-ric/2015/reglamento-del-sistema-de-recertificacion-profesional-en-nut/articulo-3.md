@@ -1,1 +1,0 @@
-Artículo 3º—La visión del Sistema de Recertificación Profesional en Nutrición es ser un ente garante de la calidad de las actividades de la educación continua dirigida a las personas profesionales en Nutrición.

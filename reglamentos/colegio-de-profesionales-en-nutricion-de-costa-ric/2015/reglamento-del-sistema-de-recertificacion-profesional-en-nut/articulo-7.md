@@ -1,1 +1,0 @@
-Artículo 7º—La Junta Directiva garantizará la transparencia, la oportunidad y la eficiencia de todos los procesos que se desarrollen en el Sistema de Recertificación Profesional en Nutrición, así como, brindará y garantizará la infraestructura administrativa y logística.

@@ -1,1 +1,0 @@
-Artículo 24.—Sólo se reconocerán y acreditarán como actividades de Educación Continua en Nutrición, aquellas ejecutadas por entes proveedores inscritos como tales ante el Sistema de Recertificación Profesional en Nutrición previo a la realización de las mismas o las que sean homologadas por el Consejo Académico de Nutrición.

@@ -1,1 +1,0 @@
-Artículo 40.—La respectiva resolución será registrada en el expediente del Colegiado en el Sistema de Recertificación Profesional en Nutrición y podrá ser consultada por el interesado cuando lo desee.
