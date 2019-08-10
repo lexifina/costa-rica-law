@@ -1,1 +1,0 @@
-Artículo 30.—Si el Consejo de Posgrados y Especialidades en Nutrición comprueba que una persona profesional en Nutrición incumplió algún requisito o aportó documentos falsos, se procederá a interponer la denuncia ante la Junta Directiva y el Tribunal de Honor para que actúe conforme a las disposiciones legales y reglamentarias establecidas.

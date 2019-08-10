@@ -1,6 +1,0 @@
-Artículo 18.—El colegiado que desea inscribirse en un posgrado o especialidad académica debe cumplir con los siguientes requisitos:
-a) Ser miembro activo del Colegio y estar al día en sus obligaciones hacia el mismo
-b) Presentar la boleta de Solicitud de Inscripción en el Registro de Posgrados y Especialistas en Nutrición.
-c) Presentar original y copia del título, diploma o certificado universitario de especialidad, maestría o doctorado obtenido en la que conste el posgrado o la especialidad efectuada. El título, diploma o certificado de ser otorgado por instituciones de educación superior nacional reconocidas y autorizadas por el CONESUP, o bien, obtenidos en el extranjero y que hayan sido, previamente, reconocidos y equiparados por el CONARE.
-d) Presentar una certificación de notas donde se especifique el nombre de la materia cursada, el número de créditos y el número de horas, así como la duración total del posgrado o especialidad.
-e) Recibo del Colegio donde que compruebe la cancelación de los derechos de inscripción en el Registro de Posgrados y Especialistas por el valor establecido por la Junta Directiva. En caso de ser denegada la inscripción, el pago mencionado no será devuelto.
