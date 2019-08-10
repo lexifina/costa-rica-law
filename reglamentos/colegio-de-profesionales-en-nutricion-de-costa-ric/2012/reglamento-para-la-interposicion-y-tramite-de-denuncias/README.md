@@ -14,3 +14,4 @@ Reglamento para la Interposición y Trámite de denuncias
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-06-06 | la propia norma |
+| 2 | 2019-08-10 | Reglamento 0 (2019-08-10) |
