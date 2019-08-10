@@ -1,1 +1,0 @@
-Artículo 24.—No prestarse para realizar publicidad, entrevistas, promoción y comercialización de productos y servicios que induzcan a engaño a la población. En todo momento deberá respetar las pautas, lineamientos y reglamentos que establezca el Colegio para estos tópicos.

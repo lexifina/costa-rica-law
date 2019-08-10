@@ -1,1 +1,0 @@
-Artículo 27.—Deberá abstenerse de hacer asociaciones con personas o instituciones que ejercen ilegalmente la nutrición, o donde tenga conocimiento que se realizan otros actos contrarios a lo estipulado en la Ley Orgánica del Colegio, sus reglamentos o en la legislación nacional.

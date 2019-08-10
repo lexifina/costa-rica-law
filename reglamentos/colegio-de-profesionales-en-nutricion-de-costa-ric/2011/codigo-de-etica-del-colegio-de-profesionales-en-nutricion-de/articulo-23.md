@@ -1,1 +1,0 @@
-Artículo 23.—Renunciar a colaborar o participar en instituciones o empresas que no tengan los permisos de ley para desarrollar sus actividades o en lugares que usen propaganda engañosa o procedimientos incorrectos que puedan confundir a la población.

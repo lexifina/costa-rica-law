@@ -1,1 +1,0 @@
-Artículo 21.—Informar a la comunidad, de una manera veraz, sobre los resultados de investigaciones validadas científicamente y tomar los resultados de estas investigaciones para ejercer de forma actualizada sus labores profesionales.

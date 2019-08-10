@@ -1,1 +1,0 @@
-Artículo 61.—El nutricionista puede participar en la divulgación de asuntos nutricionales y alimentarios a través de los medios de comunicación colectiva cuando se evidencie un propósito de información y educación para la colectividad, guardando los preceptos de este Código.

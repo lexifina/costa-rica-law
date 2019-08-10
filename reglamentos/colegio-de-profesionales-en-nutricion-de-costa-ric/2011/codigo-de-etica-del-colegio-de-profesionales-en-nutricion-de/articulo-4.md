@@ -1,1 +1,0 @@
-Artículo 4º—El nutricionista, con funciones de jefatura, tiene el deber de procurar las condiciones idóneas para el desarrollo ético y profesional de la nutrición, tomando en consideración las necesidades de sus subalternos y respetando la estructura jerárquica.

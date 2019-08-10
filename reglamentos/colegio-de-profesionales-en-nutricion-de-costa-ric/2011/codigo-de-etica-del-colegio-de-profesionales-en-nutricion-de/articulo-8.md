@@ -1,1 +1,0 @@
-Artículo 8º—El nutricionista tiene derecho a ejercer la nutrición sin ser discriminado por motivos de religión, etnia, género, maternidad, orientación sexual, discapacidad, nacionalidad, edad, opinión política, condición social, económica o de cualquier otra naturaleza.

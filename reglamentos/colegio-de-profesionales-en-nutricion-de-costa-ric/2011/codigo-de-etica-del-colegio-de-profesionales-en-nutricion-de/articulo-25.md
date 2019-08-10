@@ -1,1 +1,0 @@
-Artículo 25.—Deberá considerar como parte fundamental del quehacer diario del Profesional en Nutrición, sin distinción del campo de acción en el que se desempeñe, la promoción de la salud, la educación alimentaria, nutricional y la prevención de la enfermedad.

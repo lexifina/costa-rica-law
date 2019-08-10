@@ -1,1 +1,0 @@
-Artículo 56.—El nutricionista no debe hacer referencia a casos clínicos identificables, mostrar pacientes o sus fotografías en publicaciones científicas, en medios de comunicación colectiva, sin el consentimiento del paciente o de su representante legal.

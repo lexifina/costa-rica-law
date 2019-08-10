@@ -1,1 +1,0 @@
-Artículo 26.—Deberá asumir compromisos laborales solamente en los campos en los que pueda realizar una labor adecuada y para los que tenga idoneidad para ejercerlo. Es falta grave atribuirse títulos y honores que no le hayan sido registrados o validados por el Colegio de Profesionales en Nutrición de acuerdo al reglamento de especialidades.

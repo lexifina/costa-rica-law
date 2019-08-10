@@ -1,1 +1,0 @@
-Artículo 70.—El nutricionista no debe realizar investigación en el ser humano sin haber cumplido con los preceptos estipulados en los “Principios Bioéticos en Investigación en Seres Humanos”, “Principios Científicos en Investigación en Seres Humanos” y “Consentimiento Informado” según la legislación nacional.

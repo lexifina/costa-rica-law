@@ -1,1 +1,0 @@
-Artículo 71.—El nutricionista no debe promover la investigación nutricional experimental en una comunidad, sin el previo conocimiento de esta, el consentimiento informado de los participantes, la aprobación de las autoridades competentes y sin que el objetivo de dicha investigación sea la protección de la salud.

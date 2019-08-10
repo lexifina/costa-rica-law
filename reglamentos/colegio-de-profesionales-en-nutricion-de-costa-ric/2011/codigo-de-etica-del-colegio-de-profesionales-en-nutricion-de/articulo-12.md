@@ -1,1 +1,0 @@
-Artículo 12.—Es deber irrevocable denunciar ante el Colegio cualquier acción de un colega que incumpla el presente Código. Si no se realiza la denuncia se considera un acto de complicidad y deslealtad al Colegio, que será tomado como una falta grave.

@@ -1,1 +1,0 @@
-Artículo 3º—Para el ejercicio de su profesión, el nutricionista debe apegarse a los procedimientos y normas del presente código y bajo ninguna circunstancia puede delegar sus funciones a personas que no estén colegiadas. El Nutricionista observará tanto en el ejercicio profesional como fuera de él, una conducta acorde con el honor y la dignidad de su profesión.

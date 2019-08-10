@@ -1,1 +1,0 @@
-Artículo 28.—Deberá participar activamente, cuando se tiene la oportunidad, en la formulación de políticas y estrategias alimentario nutricional que puedan representar un beneficio para las poblaciones vulnerables.

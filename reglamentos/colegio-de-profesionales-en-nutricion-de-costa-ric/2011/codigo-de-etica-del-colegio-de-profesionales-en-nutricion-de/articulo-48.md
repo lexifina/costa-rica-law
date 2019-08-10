@@ -1,1 +1,0 @@
-Artículo 48.—El nutricionista como propietario, socio o director de empresas o instituciones prestatarias de servicios de salud o de alimentos o de nutrición, no debe aprovecharse, ni explotar el trabajo de otros colegas.

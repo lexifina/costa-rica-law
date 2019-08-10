@@ -1,1 +1,0 @@
-Artículo 34.—Será prohibido aprovecharse de las circunstancias propias de la relación nutricionista-paciente o cliente, para obtener ventajas ilícitas ya sean: materiales, emocionales, sexuales, financieras, políticas o de cualquier otra índole.

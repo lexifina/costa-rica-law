@@ -1,3 +1,0 @@
-CAPÍTULO XII
-Acciones disciplinarias
-Artículo 74.—Le corresponde a la Fiscalía y a la Junta Directiva, con la participación del Tribunal de Honor conocer, analizar, controlar, evaluar, ejecutar e implementar y resolver toda conducta de un colegiado que incumpla cualquiera de los artículos del Código de Ética. Cuando corresponda y el caso lo amerite, deberán proceder a aplicar las acciones disciplinarias respectivas. También compete a estos órganos defender a los colegiados que enfrenten acciones o falsas imputaciones que impliquen una afrenta a su dignidad, honorabilidad y prestigio profesional.

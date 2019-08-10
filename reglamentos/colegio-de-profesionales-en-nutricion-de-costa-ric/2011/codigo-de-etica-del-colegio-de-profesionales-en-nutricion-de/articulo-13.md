@@ -1,1 +1,0 @@
-Artículo 13.—Corresponde un honor y una obligación del colega, participar en la formación de futuros nutricionistas y ser parte en actividades de actualización, cuando así se le solicite, respetando el tiempo del que dispone pero a la vez adquiriendo un compromiso de calidad.

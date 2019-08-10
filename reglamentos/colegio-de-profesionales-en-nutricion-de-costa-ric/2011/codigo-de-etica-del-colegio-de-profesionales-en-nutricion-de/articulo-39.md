@@ -1,1 +1,0 @@
-Artículo 39.—Los colegiados que son nombrados en algún puesto de representación deberán asumir su cargo con total entrega, responsabilidad y honradez. No deberán aprovechar su cargo para hacerse publicidad o para obtener beneficios, tales actos serán sancionados, según reglamentos internos del Colegio.

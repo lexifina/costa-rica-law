@@ -1,1 +1,0 @@
-Artículo 57.—El nutricionista debe tener acceso a la información contenida en el expediente clínico en los servicios de salud. Esa información es confidencial y solo podrá compartirla con fines dietoterapéuticos legítimos y según corresponda, con el consentimiento del paciente.

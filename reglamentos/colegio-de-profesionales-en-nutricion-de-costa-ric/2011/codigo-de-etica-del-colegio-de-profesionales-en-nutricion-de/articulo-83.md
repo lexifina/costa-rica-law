@@ -1,4 +1,0 @@
-Artículo 83.—Los miembros de la Junta Directiva, de los Tribunales de Honor y Electoral y los fiscales deberán:
-Cumplir a cabalidad con las responsabilidades conferidas por la Asamblea General, con la asistencia a reuniones y actividades, procurando buscar en cada acción y decisión el bienestar común de todos los colegiados. Además, deberán:
-a) Abstenerse de hacer uso indebido del cargo que les fue conferido para obtener beneficio propio y enriquecimiento ilícito, según la Ley de la Administración Pública. No podrá utilizar su cargo para hacerse promoción o como influencia en la comercialización de productos.
-b) Actuar con total responsabilidad, mostrando disciplina y calidad moral tanto en su quehacer profesional y actuar personal, procurando en todo momento, hacer una digna representación de todos los colegiados.

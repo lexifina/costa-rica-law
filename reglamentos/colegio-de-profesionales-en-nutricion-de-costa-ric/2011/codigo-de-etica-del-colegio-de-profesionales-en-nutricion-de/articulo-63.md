@@ -1,1 +1,0 @@
-Artículo 63.—El Profesional en Nutrición no puede recetar o administrar medicamentos, con excepción de fórmulas especiales, módulos suplementos, vitaminas, minerales, alimentos, fibras dietéticas, macro y micronutrientes que complementen o suplementen la alimentación para mejorar su estado nutricional o como parte de un tratamiento.

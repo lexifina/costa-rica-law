@@ -1,1 +1,0 @@
-Artículo 46.—El nutricionista que ocupa cargos de jefatura deberá utilizar su posición jerárquica para que sus subordinados actúen dentro de los principios éticos, profesionales, administrativos, docentes y de investigación, priorizando la prestación idónea del servicio nutricional.

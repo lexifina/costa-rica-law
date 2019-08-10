@@ -1,1 +1,0 @@
-Artículo 65.—El nutricionista podrá aconsejar en forma general sobre algún padecimiento, o brindar una guía sobre un estilo de vida saludable pero no debe prescribir dietas a través de ningún medio de comunicación colectiva o masiva, incluyendo los medios digitales.

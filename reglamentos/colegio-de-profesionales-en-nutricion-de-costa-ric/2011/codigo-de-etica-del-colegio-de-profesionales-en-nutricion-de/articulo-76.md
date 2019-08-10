@@ -1,1 +1,0 @@
-Artículo 76.—Toda denuncia deberá ser tomada en cuenta y se realizará la investigación correspondiente, aún cuando el profesional involucrado renuncie o deje de pertenecer al Colegio, en cuyo caso se considerará un agravante a la situación.

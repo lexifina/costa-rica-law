@@ -1,1 +1,0 @@
-Artículo 16.—Rechazar la discriminación por nacionalidad, raza, religión, ideología política, sexo, edad, condición socioeconómica, estado especial (personas con necesidades especiales) tales como no videntes, discapacitados y condiciones críticas de salud, escolaridad, región geográfica, estado civil, estado fisiológico o inclinación sexual de cualquier miembro de la población.

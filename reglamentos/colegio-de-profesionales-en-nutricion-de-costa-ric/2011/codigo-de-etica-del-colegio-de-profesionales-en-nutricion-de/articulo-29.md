@@ -1,1 +1,0 @@
-Artículo 29.—Deberá combatir y no ser partícipe de actividades que asocien la nutrición con curas mágicas, charlatanería y otras prácticas reñidas con el conocimiento científico. Está en la obligación de denunciar ante el Colegio y otras instancias correspondientes si se entera de cualquier práctica que propicie el ejercicio ilegal de la profesión.

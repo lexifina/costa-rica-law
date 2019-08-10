@@ -1,1 +1,0 @@
-Artículo 55.—El nutricionista no debe revelar a terceros, hechos de su conocimiento en virtud del ejercicio de su profesión, salvo por imperio legal o autorización expresa del paciente o de su representante legal. Esa prohibición se mantiene aunque el hecho sea del conocimiento público o el paciente haya fallecido.

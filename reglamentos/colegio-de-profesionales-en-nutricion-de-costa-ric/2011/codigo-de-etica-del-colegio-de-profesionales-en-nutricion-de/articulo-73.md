@@ -1,1 +1,0 @@
-Artículo 73.—Toda investigación en seres humanos, deberá basarse en un protocolo aprobado por el Comité de Bioética correspondiente, independiente del investigador y del patrocinador, en el cual especifique claramente el diseño del estudio, su propósito y la validez esperada del resultado que se obtendrá. De no contar con esa aprobación, la investigación no se realizará.

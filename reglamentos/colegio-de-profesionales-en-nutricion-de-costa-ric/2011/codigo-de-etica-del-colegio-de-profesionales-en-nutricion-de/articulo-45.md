@@ -1,1 +1,0 @@
-Artículo 45.—Respetando el derecho del paciente a solicitar una segunda opinión, el nutricionista no debe, expresar o comentar al paciente, a sus familiares o responsable legal, opiniones desfavorables sobre tratamientos dietoterapéuticos, actuales o previos, tendientes a difamar o disminuir la confianza en el nutricionista tratante.

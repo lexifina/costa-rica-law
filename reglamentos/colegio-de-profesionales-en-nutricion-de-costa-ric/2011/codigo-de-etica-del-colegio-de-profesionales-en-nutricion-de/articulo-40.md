@@ -1,1 +1,0 @@
-Artículo 40.—Cualquier situación laboral que afecte a uno o varios agremiados, se deberá presentar al seno de la Fiscalía, evitando la divulgación y comentarios que pudieran causar lesiones a la moral, la dignidad, a la integridad y el honor de las partes involucradas directa o indirectamente de acuerdo al código de denuncias u otros reglamentos.

@@ -1,1 +1,0 @@
-Artículo 22.—Participar en investigaciones acreditadas bajo la legislación vigente y que no pongan en peligro la salud integral, la vida, el estado nutricional de la población. Informar claramente los objetivos y alcances, respetando los derechos humanos del individuo a ser parte o no de la investigación.
