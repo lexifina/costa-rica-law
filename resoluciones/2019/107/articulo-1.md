@@ -1,0 +1,42 @@
+REGULADORA DE LOS SERVICIOS PÚBLICOS
+Mediante acuerdo 05-33-2019, del acta de la sesión 33-2019, celebrada el 23 de julio
+de 2019, cuya acta fue ratificada el 30 de julio del mismo año, la Junta Directiva de la
+Aresep resolvió dictar la:
+RESOLUCIÓN RE-0107-JD-2019
+ESCAZÚ, A LAS DIEZ HORAS Y TREINTA Y CINCO MINUTOS DEL VEINTITRÉS DE
+JULIO DE DOS MIL DIECINUEVE
+CORRECCIÓN DE ERROR MATERIAL CONTENIDO EN LA RESOLUCIÓN RE-0215-
+JD-2018, DEL 11 DE DICIEMBRE DE 2018, MODIFICACIÓN PARCIAL A
+LA “METODOLOGÍA PARA LA FIJACIÓN ORDINARIA DE TARIFAS PARA EL
+SERVICIO REMUNERADO DE PERSONAS MODALIDAD AUTOBÚS, DICTADA
+MEDIANTE LA RESOLUCIÓN RJD-035-2016 Y MODIFICADA MEDIANTE LA
+RESOLUCIÓN RJD-060-2018”.
+EXPEDIENTE OT-586-2018
+RESULTANDO:
+I. Que el 25 de febrero de 2016, mediante la resolución RJD-035-2016, la Junta Directiva de la Autoridad Reguladora de los Servicios (Aresep), dictó la “Metodología para fijación ordinaria de tarifas para el servicio remunerado de personas, modalidad autobús”, publicada en el Alcance 35 a La Gaceta 46, del 7 de marzo de 2016.
+II. Que el 14 de abril de 2018, mediante la resolución RJD-060-2018, la Junta Directiva de Aresep, aprobó la modificación parcial a la “Metodología para fijación ordinaria de tarifas para el servicio remunerado de personas, modalidad autobús”, publicada en el Alcance N° 88 a La Gaceta del 3 de mayo del 2018 y el Alcance N° 90 a La Gaceta del 4 de mayo de 2018.
+III. Que el 11 de diciembre de 2018, mediante la resolución RE-0215-JD-2018, la Junta Directiva de Aresep, aprobó la modificación parcial a la “Metodología para fijación ordinaria de tarifas para el servicio remunerado de personas, modalidad autobús”, publicada en el Alcance 214 a La Gaceta 235 del 19 de diciembre de 2018.
+IV. Que el 3 de julio del 2019, mediante el oficio OF-0367-CDR-2019, la Dirección General Centro de Desarrollo de la Regulación (CDR), remitió al Regulador General en su condición de presidente de Junta Directiva de Aresep, el informe técnico elaborado por la Fuerza de Tarea de fecha 2 de julio de 2019, respecto del error material detectado en la resolución RE-0215-JD-2018.
+CONSIDERANDO:
+I. Que en la resolución RE-0215-JD-2018, mediante la cual se aprobó la modificación parcial a la “Metodología para la fijación ordinaria de tarifas para el servicio de transporte remunerado de personas, modalidad autobús”, publicada en el Alcance 214 a La Gaceta 235 del 19 de diciembre de 2018, se detectó el siguiente error material, según señalado en el documento de fecha 2 de julio de 2019 de la Fuerza de Tarea y el oficio OF-0367-CDR-2019 del 3 de julio de 2019:
+“En la sección 4.9.2 denominada “Valoración de vehículos con reglas de cálculo tarifario tipo 2”, en el punto 1.2 se indica:
+“(…)
+1.2 La IT deberá conformar un expediente administrativo con el fin de documentar el proceso de determinación del valor y el tope máximo por tipo de la unidad y año de fabricación, de manera que sea auditable y permita la trazabilidad de los valores. Para cada momento en que se requiera calcular este valor, el expediente deberá incluir, como mínimo, las hojas de cálculo, la información base, el informe técnico que sustenta la resolución y los resultados obtenidos.
+(…)”
+Por error material se conservó la frase “y el tope máximo” en el párrafo anterior, ya que, precisamente una de las modificaciones aprobadas con la resolución RE-0215-JD-2018 fue la eliminación de los valores tope por tipo de unidad, por lo que esa frase no corresponde.”
+II. Que a partir del análisis realizado por la fuerza de tarea y el CDR sobre la “Metodología para fijación ordinaria de tarifas para el servicio remunerado de personas, modalidad autobús” y sus reformas, y su aplicación por parte de la Intendencia de Transporte, se determinó que el error detectado en la resolución RE-0215-JD-2018, es un error material que no modifica el resultado final de la aplicación de la metodología y por ende el resultado de las fijaciones tarifarias.
+III. Que el artículo 157 de la Ley N° 6227 “Ley General de la Administración Pública”, le permite a la Administración, en cualquier tiempo rectificar errores materiales o de hecho y aritméticos contenidos en los actos administrativos.
+IV. Que la Procuraduría General de la República, ha reconocido en diversos criterios (entre ellos el dictamen N° C-116-2012 del 15 de mayo de 2012 y reiterado en el dictamen N° C-134-2019 del 15 de mayo de 2019), que el error material o de hecho es:
+“(…) aquel que resulta notorio y obvio, cuya existencia aparece clara, sin necesidad de mayor esfuerzo o análisis, por saltar a primera vista”. En sentido similar, Santamaría Pastor y Parejo Alfonso han dicho que “El error de hecho se caracteriza por ser ostensible, manifiesto e indiscutible; es decir se evidencia por sí solo, sin necesidad de mayores razonamientos y se manifiesta “prima facie” por su sola contemplación”. (Ver entre otros el Dictamen C-180-2005de 13 de mayo de 2005).
+(…) En consecuencia, basados en el ordenamiento jurídico, se puede establecer que la Administración ostenta la facultad de modificar los actos que emite, siempre y cuando tome en consideración que si lo que se requiere modificar o corregir son simples errores materiales, de hecho o aritméticos, el artículo 157 de la Ley General de la Administración Pública será el fundamento jurídico de su actuar (…)”
+V. Que el Tribunal Contencioso Administrativo y Civil de Hacienda, Sección V, en la sentencia N° 00043-2014 del 13 de junio de 2014, ha replicado lo indicado por la Procuraduría General de la República en el referenciado dictamen C-116-2012 y adicionalmente ha indicado:
+“(…) Es importante señalar además que la firmeza del acto (…) no limita la posibilidad de corregir sus errores materiales en cualquier momento. En sentido similar, García Enterría ha dicho: “La rectificación de errores materiales puede hacerse en cualquier momento, tanto de oficio, como a instancia del administrado (…)”. Como puede observarse, el error de hecho, material o aritmético es fácilmente detectable, tal que puede ser enderezado en cualquier momento (…)”
+VI. Que con fundamento en el documento de fecha 2 de julio de 2019 de la Fuerza de Tarea y el oficio OF-0367-CDR-2019 del 3 de julio de 2019 del CDR, así como los resultandos y considerandos que preceden, lo procedente es: 1-Corregir el error material detectado en la resolución RE-0215-JD-2018, mediante la cual se aprobó la modificación parcial a la “Metodología para la fijación ordinaria de tarifas para el servicio de transporte remunerado de personas, modalidad autobús”, publicada en el Alcance 214 a La Gaceta 235 del 19 de diciembre de 2018. 2. Instruir a la Secretaría de la Junta Directiva para que publique en el diario oficial La Gaceta y notifique a las partes, la presente resolución.
+VII. Que en la sesión ordinaria 33-2019, celebrada el 23 de julio de 2019, cuya acta fue ratificada el 30 de julio de 2019, la Junta Directiva de la Aresep, con fundamento en el documento de fecha 2 de julio de 2019 de la Fuerza de Tarea y el oficio OF-0367-CDR-2019 del 3 de julio de 2019, acuerda dictar la presente resolución, tal y como se dispone.
+POR TANTO:
+Con fundamento en las facultades conferidas en la Ley N° 7593 y sus reformas, en la Ley N° 6227, en el Decreto Ejecutivo N° 29732-MP, que es el Reglamento a la Ley N° 7593, y en el Reglamento Interno de Organización y Funciones de la Autoridad Reguladora de los Servicios Públicos y su Órgano Desconcentrado.
+I. Corregir el error material detectado en la resolución RE-0215-JD-2018, mediante la cual se aprobó la modificación parcial a la “Metodología para la fijación ordinaria de tarifas para el servicio de transporte remunerado de personas, modalidad autobús, dictada mediante la resolución RJD-035-2016 y modificada mediante la resolución RJD-060-2018”, publicada en el Alcance 214 a La Gaceta 235 del 19 de diciembre de 2018, para que se lean de la siguiente manera:
+En la sección 4.9.2 denominada “Valoración de vehículos con reglas de cálculo tarifario tipo 2”, corríjase el punto 1.2 para que se lea:
+“(…)
+1.2 La IT deberá conformar un expediente administrativo con el fin de documentar el proceso de determinación del valor promedio por tipo de unidad y año de fabricación, de manera que sea auditable y permita la trazabilidad de los valores. Para cada momento en que se requiera calcular este valor, el expediente deberá incluir, como mínimo, las hojas de cálculo, la información base, el informe técnico que sustenta la resolución y los resultados obtenidos.
+(…)”
