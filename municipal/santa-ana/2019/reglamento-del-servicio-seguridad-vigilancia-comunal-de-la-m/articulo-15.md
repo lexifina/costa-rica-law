@@ -1,0 +1,1 @@
+Artículo 15.—Las faltas en que incurran las personas trabajadoras podrán ser leves o graves y serán tratadas según las normas y sanciones previstas en el Código Municipal, en el Reglamento Autónomo de Organización y Servicios, sin perjuicio de la responsabilidad penal o civil que pudiera corresponder.
