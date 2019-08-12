@@ -1,0 +1,1 @@
+Artículo 5º—Liderazgo femenino. Se les instruye a las Direcciones Ejecutivas del SINAC, FONAFIFO y CONAGEBIO y sus respectivos Departamentos de Recursos Humanos, promover el nombramiento de mujeres en puestos de toma decisión y asegurar su liderazgo.

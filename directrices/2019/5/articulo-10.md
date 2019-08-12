@@ -1,0 +1,1 @@
+Artículo 10.—Diseño inclusivo en infraestructura. Se solicita que las inversiones en infraestructura en áreas silvestres protegidas y para nuevas oficinas regionales, aseguren que sus diseños sean inclusivos y contemplen las necesidades diferenciadas entre mujeres y hombres; que incluyan espacios para la lactancia segura.

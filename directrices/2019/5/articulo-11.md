@@ -1,0 +1,1 @@
+Artículo 11.—Política Hostigamiento sexual. Se instruye a los diferentes órganos desconcentrados el desarrollo de los procedimientos internos para denunciar el Hostigamiento Sexual y llevar a cabo su debida divulgación.

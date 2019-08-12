@@ -1,0 +1,1 @@
+Artículo 3°—Delegación. Se delega en la persona de la Viceministra de Ambiente, el liderazgo y la implementación de la iniciativa para reconocer la contribución de las mujeres y transformar la gestión de la biodiversidad hacia la igualdad de género.

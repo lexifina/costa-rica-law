@@ -1,0 +1,1 @@
+Artículo 9º—Integración perspectiva de género. Se Instruye la integración de la perspectiva de género, la igualdad de género y la contribución de las mujeres en la gestión de biodiversidad en los proyectos, estrategias y programas que se desarrollen en el Ministerio.

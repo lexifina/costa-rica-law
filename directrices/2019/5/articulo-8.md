@@ -1,0 +1,1 @@
+Artículo 8º—Acciones en Planes Estratégicos. Se Instruye la incorporación de acciones concretas para fortalecer la igualdad de género y la contribución de las mujeres en la gestión de biodiversidad, en los Planes Estratégicos Institucionales (SINAC, FONAFIFO y CONAGEBIO).

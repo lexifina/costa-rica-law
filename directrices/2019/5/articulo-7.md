@@ -1,0 +1,1 @@
+Artículo 7º—Paridad de género en órganos colegiados. Se invita a los órganos Colegiados (COLACs, CORACs y Juntas Directivas) a asegurar la integración paritaria de mujeres y hombres a corto plazo. Además a realizar el reporte anual del número de nombramientos realizados de conformidad con el presente artículo.

@@ -1,0 +1,1 @@
+Artículo 4º—Alianzas interinstitucionales y público-privadas. Se instruye la creación de alianzas público-privadas multisectoriales que apoyen el desarrollo de la iniciativa para reconocer la contribución de las mujeres y transformar la gestión de la biodiversidad hacia la igualdad de género.
