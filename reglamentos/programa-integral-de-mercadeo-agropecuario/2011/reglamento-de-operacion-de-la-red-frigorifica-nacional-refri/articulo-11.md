@@ -1,1 +1,0 @@
-Artículo 11.—Límites a la contratación de derechos de Uso: Las contrataciones que no constituyan actividad ordinaria, tendrán las limitaciones de cuantía y procedimiento establecidos por la Ley de la Administración Financiera de la República y la Ley de Contratación Administrativa y sus respectivos reglamentos

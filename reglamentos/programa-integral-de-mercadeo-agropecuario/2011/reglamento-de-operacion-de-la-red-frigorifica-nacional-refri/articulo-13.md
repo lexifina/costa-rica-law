@@ -1,6 +1,0 @@
-Artículo 13.—Del canon y cláusulas penales:
-Además de lo indicado en el artículo 10 el contrato indicará:
-a) La forma del pago del canon y los medios utilizados para el mismo, para lo cual se podrá utilizar los sistemas financieros autorizados para la contratación administrativa.
-b) Indicación que el pago del canon por el concepto de derecho de uso deberá realizarse dentro de los primeros veinte días hábiles de emitida la factura.
-c) Deberá establecer una cláusula penal de un uno por ciento por cada día hábil de atraso una vez vencidos los veinte días hábiles anteriormente indicados y hasta un máximo de 10 días hábiles más, para un máximo de 10% por ciento. A partir del treinta y un día hábil se procederá al correspondiente remate de la mercadería y en caso de ser insuficiente se procederá al cobro judicial correspondiente, o bien en caso contrario a la devolución dineraria correspondiente.
-d) La indicación de que cuando los usuarios paguen con cheques que no puedan ser acreditados a favor de las cuentas de PIMA, se les cobrará un interés del 5% por mes o fracción de mes, sobre el monto del cheque, además de ¢10.000,00 por gastos administrativos. En lo sucesivo no se les recibirá pago de esta forma, solo mediante efectivo, cheque certificado o de gerencia. Lo anterior sin perjuicio de las acciones judiciales correspondientes.

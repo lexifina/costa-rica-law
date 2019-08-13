@@ -1,1 +1,0 @@
-Transitorio Único: La administración gozará de un plazo de un mes a partir de la publicación del presente reglamento para la confección del el protocolo de uso al por mayor, el procedimiento para arreglos de pago, el procedimiento de remate interno, el procedimiento de desecho de producto y el procedimiento para el cobro administrativo.

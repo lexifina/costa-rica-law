@@ -1,1 +1,0 @@
-Artículo 3º—Actividad ordinaria de REFRINA: La actividad ordinaria de REFRINA concesión de servicios en almacenamiento a bajas temperaturas con el firme compromiso de satisfacer las necesidades y expectativas de los usuarios, los requisitos legales y fomentar la cultura del frío.
