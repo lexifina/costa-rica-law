@@ -1,0 +1,1 @@
+Artículo 13.—Plan de trabajo: El COSC debe elaborar un plan de trabajo para cada año en el que define las prioridades estratégicas en materia de triple línea de base (económico-financiero, social y ambiental), el cual será aprobado por la Gerencia General Corporativa.

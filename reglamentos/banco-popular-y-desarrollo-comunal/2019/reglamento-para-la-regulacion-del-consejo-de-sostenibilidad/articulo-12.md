@@ -1,0 +1,3 @@
+Artículo 12.—Agendas y Actas: La agenda de las sesiones del Consejo de Sostenibilidad Corporativo se debe comunicar a sus integrantes por escrito con al menos un día hábil de anticipación.
+En cada sesión del COSC se levanta un acta o minuta, el cual debe contener el desarrollo, los acuerdos emitidos y el nombre de los miembros que asistieron. En todos los casos, se debe asentar en el acta los responsables de la ejecución de los acuerdos tomados, así como los plazos establecidos para su cumplimiento.
+El acta debe ser aprobada en la siguiente sesión del COSC salvo que se imposibilite por circunstancias especiales, en cuyo caso necesariamente se debe aprobar en la siguiente sesión.

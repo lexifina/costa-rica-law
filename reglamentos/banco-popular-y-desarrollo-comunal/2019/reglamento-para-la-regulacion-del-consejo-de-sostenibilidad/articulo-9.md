@@ -1,0 +1,1 @@
+Artículo 9º—Responsabilidad personal externo al COSC: Son responsabilidades del personal externo al Consejo de Sostenibilidad Corporativo, COSC, brindar siempre apoyo a la gestión de Sostenibilidad, atender solicitudes del COSC.

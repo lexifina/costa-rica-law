@@ -1,0 +1,2 @@
+Artículo 14.—Informes: Los informes de gestión del COSC deben ser presentados por la Secretaría ante el Consejo para su conocimiento y serán aprobados y comunicados por la Presidencia de dicho órgano, con una periodicidad anual.
+Rige a partir de su adopción en firme por parte de la Junta Directiva Nacional, debiendo en todo caso publicarse en el Diario Oficial La Gaceta. Rige a partir de su publicación en La Gaceta. Área de Gestión y Análisis de Compras.

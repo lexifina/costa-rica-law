@@ -1,0 +1,7 @@
+Artículo 2º—Definiciones:
+• Conglomerado: Conglomerado Financiero Banco Popular y Desarrollo Comunal.
+• Consejo de Sostenibilidad Corporativo (COSC): Es un órgano deliberativo y auxiliar de la Gerencia General Corporativa en materia de sostenibilidad.
+• Políticas: Disposición que define, de modo general, la organización o la actividad de uno(a) o más integrantes del Conglomerado para orientar la toma de decisiones, todo de conformidad con los fines y objetivos señalados por la ley, los reglamentos externos y orientaciones políticas emitidas por la Asamblea. Toda política es plasmada expresa o tácitamente en el respectivo Reglamento. Dentro del marco de sus competencias, las Políticas son emitidas por la Junta Directiva Nacional actuando como tal o en ejercicio de la competencia propia de la Asamblea de Accionistas de una Sociedad; así como por sus Juntas, cuando así lo exija una norma superior
+• Reporte de Sostenibilidad GRI: Es un documento que se elabora anualmente siguiendo los lineamientos de la “Guía para la elaboración de reportes de Sostenibilidad de la Iniciativa Global de Reportes (GRI), para realizar el ejercicio de rendición de cuentas de la gestión en materia de Sostenibilidad del Conglomerado.
+• Sociedades: Empresas del Conglomerado propiedad del Banco Popular y de Desarrollo Comunal (Popular Seguros, Popular Pensiones, Popular Valores y Popular Fondos de Inversión).
+• Sostenibilidad: Es un modelo de gestión empresarial u organizacional que tiene como propósito contribuir al desarrollo sostenible con alcance global y nacional.
