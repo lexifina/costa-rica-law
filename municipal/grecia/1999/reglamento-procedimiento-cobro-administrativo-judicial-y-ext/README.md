@@ -16,3 +16,4 @@ Reglamento Procedimiento Cobro Administrativo Judicial y Extrajudicial
 | 1 | 2000-01-12 | la propia norma |
 | 2 | 2000-01-12 | Ley 7 |
 | 3 | 2004-05-31 | Reglamento municipal 0 (2004-05-31) |
+| 4 | 2019-08-13 | Reglamento municipal 0 (2019-08-13) |
