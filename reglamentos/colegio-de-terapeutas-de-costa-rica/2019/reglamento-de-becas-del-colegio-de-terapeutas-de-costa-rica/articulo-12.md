@@ -1,0 +1,1 @@
+Artículo 12.—Incumplimiento. El incumplimiento de las obligaciones establecidas en el presente Reglamento y demás documentos relacionados con el otorgamiento de la beca, da al Colegio la posibilidad de cobrar al agremiado, el monto otorgado con motivo de ésta. El Colegio se reserva el derecho de acudir a las vías legales establecidas para el cobro de dichos montos.

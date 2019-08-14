@@ -1,0 +1,1 @@
+Artículo 5°—Pertinencia de la actividad de capacitación. Las solicitudes de beca que se presenten deben ser para participar en actividades de capacitación directamente relacionadas con los perfiles profesionales de cada área y afines con los objetivos del Colegio de Terapeutas.

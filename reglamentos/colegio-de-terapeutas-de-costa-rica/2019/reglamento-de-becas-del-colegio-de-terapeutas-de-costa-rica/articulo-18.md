@@ -1,0 +1,1 @@
+Artículo 18.—Cuando no existan solicitantes en alguna de las áreas que alberga el Colegio de Terapeutas o la convocatoria se declare desierta por concurrir alguna otra circunstancia, el dinero correspondiente a dichas becas, se utilizará en la realización de actividades de capacitación gratuitas para los agremiados de dichas profesiones.

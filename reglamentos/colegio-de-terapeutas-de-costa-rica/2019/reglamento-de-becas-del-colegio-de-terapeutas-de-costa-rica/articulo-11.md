@@ -1,0 +1,1 @@
+Artículo 11.—Contrato y documentación adicional. Con el fin de garantizar el cumplimiento de las obligaciones señaladas en el párrafo anterior, el agremiado beneficiario deberá firmar un contrato con el Colegio, así como cualquier otro documento que se considere idóneo para tales fines.

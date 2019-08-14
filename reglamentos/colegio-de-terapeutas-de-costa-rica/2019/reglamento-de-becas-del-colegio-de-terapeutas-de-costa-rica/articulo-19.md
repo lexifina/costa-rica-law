@@ -1,0 +1,1 @@
+Artículo 19.—Prohibición de participar. No podrán optar por una beca del Colegio de Terapeutas, los miembros de los órganos colegiados internos del Colegio. Tampoco podrá optar por dicho beneficio, los miembros de las Comisiones de Becas y quien se desempeñe en la Dirección Académica.

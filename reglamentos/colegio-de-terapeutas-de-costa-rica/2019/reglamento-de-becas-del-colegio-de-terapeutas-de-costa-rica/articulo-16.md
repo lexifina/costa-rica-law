@@ -1,0 +1,1 @@
+Artículo 16.—Registro de solicitudes y beneficiarios. La Dirección Académica del Colegio, llevará un registro de las solicitudes presentadas por año, así como de los profesionales que han sido becados. Igualmente, corresponde a la Dirección Académica dar seguimiento al cumplimiento de las obligaciones adquiridas por los beneficiarios de las becas.
