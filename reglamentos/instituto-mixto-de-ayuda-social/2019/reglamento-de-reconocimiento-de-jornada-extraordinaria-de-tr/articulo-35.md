@@ -1,0 +1,1 @@
+Artículo 35. -Rige: El presente reglamento fue aprobado por parte del Consejo Directivo mediante acuerdo CD 156-04-2019, Acta Nº 23-04-2019 de fecha 04 de abril de 2019, entrará en vigencia y será de aplicación obligatoria a partir de su publicación.

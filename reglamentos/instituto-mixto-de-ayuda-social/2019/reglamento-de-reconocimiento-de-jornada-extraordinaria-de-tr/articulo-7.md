@@ -1,0 +1,1 @@
+Artículo 7. -De los principios para la autorización. La autorización del reconocimiento de horas extras por parte de la persona titular subordinada de cada unidad administrativa deberá realizarse con estricto apego a los principios de necesidad, razonabilidad y racionalización del gasto público.

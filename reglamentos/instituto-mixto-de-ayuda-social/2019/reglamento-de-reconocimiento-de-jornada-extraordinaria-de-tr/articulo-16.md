@@ -1,0 +1,1 @@
+Artículo 16. -Solicitud para laborar tiempo extraordinario. Toda solicitud para laborar en tiempo extraordinario será autorizada por la persona titular subordinada de la unidad administrativa correspondiente y tramitado ante Desarrollo Humano o la Gerencia General según corresponda, previo a que las personas funcionarias inicien a laborar las horas extras autorizadas.

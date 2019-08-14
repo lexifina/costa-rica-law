@@ -1,0 +1,1 @@
+Artículo 34. -Del régimen disciplinario. Las faltas en que incurran las personas funcionarias en la aplicación de este reglamento serán sancionadas según lo establecido en capítulo décimo sétimo del Reglamento Autónomo de Servicios del IMAS u otra normativa aplicable y concordante.

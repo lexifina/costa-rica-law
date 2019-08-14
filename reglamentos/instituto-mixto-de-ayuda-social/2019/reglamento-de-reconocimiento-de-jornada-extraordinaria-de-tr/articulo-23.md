@@ -1,0 +1,4 @@
+Artículo 23. -Presentación extemporánea.
+a) Todo reconocimiento de trabajo en tiempo extraordinario, presentado para pago o compensación fuera del tiempo reglamentado en el artículo anterior, deberá contar con la autorización de la Gerencia General, y deberá ser sustentado y· respaldado con motivos de fuerza mayor, ajenos a la persona funcionaria que laboró tiempo extra, según solicitud que realizará el jefe correspondiente dentro de los cinco días siguientes al recibido por parte de Desarrollo Humano.
+b) La Gerencia General contará con quince días hábiles para valorar la procedencia de la solicitud efectuada.
+c) Si la solicitud o autorización no se realiza en los plazos indicados en este artículo, el IMAS no podrá cancelar o reconocer tiempo extraordinario, pero generará responsabilidad de la persona titular subordinada ante la persona trabajadora que realizó el trabajo .

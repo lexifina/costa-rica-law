@@ -1,0 +1,3 @@
+Artículo 3º-Del tiempo extraordinario.
+a) Cuando necesidades del IMAS lo requieran, las personas trabajadoras tienen la ineludible obligación de laborar en horas extraordinarias, salvo impedimento grave, hasta por el máximo de horas permitido por la Ley. La persona trabajadora que labora jornada extraordinaria tiene derecho a que se le pague conforme se establece en el presente Reglamento.
+b) En cada caso concreto la persona titular subordinada comunicará a las personas trabajadoras, la jornada extraordinaria que deben laborar, pudiendo tenerse la negativa injustificada a hacerlo, como falta grave, para efectos de sanción.

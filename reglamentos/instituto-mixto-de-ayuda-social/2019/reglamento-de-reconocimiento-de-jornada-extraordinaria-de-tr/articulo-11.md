@@ -1,0 +1,2 @@
+Artículo 11. -Reconocimiento a las personas superioras jerárquicas. En el caso las jefaturas, la jornada ordinaria podrá ser hasta doce horas y no se les podrá exigir que laboren más de ese período. En caso de hacerlo, deberá reconocérseles el tiempo extra que laboren en exceso de esas doce horas como H-2.
+También podrá reconocerse cuando se labore en días libres, feriados o de asueto, en cuyo caso procede el reconocimiento de H-1 o H-2, según corresponda.

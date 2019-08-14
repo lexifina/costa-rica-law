@@ -1,0 +1,4 @@
+Artículo 21. -De la revisión
+a) Desarrollo Humano revisará las autorizaciones para laborar tiempo extraordinario y los formularios de pago y velará que cumplan con la normativa, presupuesto y procedimientos establecidos. Si Desarrollo Humano las considera procedentes procederá a su correspondiente inclusión en la remuneración de las personas funcionarias.
+b) En caso de que Desarrollo Humano determine improcedente la autorización, le comunicará a las personas responsables de cada unidad solicitante, pudiendo estos últimos replantear la solicitud ante la Gerencia la cual valorará los criterios emitidos y decidirá al respecto.
+c) Los reportes que no se ajusten a estas indicaciones, serán devueltos, sin responsabilidad para Desarrollo Humano por las consecuencias que el atraso o el no pago ocasione. No se podrán reportar más horas extras de las autorizadas previamente y no deberán incluirse las que no correspondan al periodo que se tramita.
