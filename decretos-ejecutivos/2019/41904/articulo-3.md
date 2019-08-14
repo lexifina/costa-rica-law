@@ -1,0 +1,1 @@
+Artículo 3.- Deróguense el inciso d) del artículo 4 del Decreto Ejecutivo N° 41564- MIDEPLAN-H del 11 de febrero de 2019 y sus reformas, titulado: “Reglamento del Título III de la Ley Fortalecimiento de las Finanzas Públicas, Ley N° 9635 referente al Empleo Público”.
