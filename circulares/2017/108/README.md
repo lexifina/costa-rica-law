@@ -13,3 +13,4 @@ Retención del 2% sobre el pago de honorarios a los Auxiliares de la Administrac
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-06-19 | la propia norma |
+| 2 | 2019-08-14 | Circular 129 (2019-08-14) |
