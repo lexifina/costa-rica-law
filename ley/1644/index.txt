@@ -140,6 +140,9 @@ articulo-138.md
 articulo-139.md
 articulo-140.md
 articulo-141.md
+articulo-141-bis.md
+articulo-141-ter.md
+articulo-141-quater.md
 articulo-142.md
 articulo-143.md
 articulo-144.md

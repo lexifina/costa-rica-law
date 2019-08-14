@@ -1,0 +1,2 @@
+Artículo 141 quater- Los bancos extranjeros que operen en Costa Rica, a través de sucursales, deberán tener un representante para la administración de sus actividades en el país, con facultades de apoderado generalísimo sin limitaciones para ejercer la representación del banco extranjero. Las responsabilidades y obligaciones que afecten a la Junta Directiva o los directores de los bancos privados costarricenses podrán hacerse efectivas en el representante de la sucursal del banco extranjero.
+(Así adicionado por el artículo 3° de la ley N° 9724 del 14 de agosto de 2019)
