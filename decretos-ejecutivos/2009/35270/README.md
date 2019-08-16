@@ -14,3 +14,4 @@ Aprueba Política de Endeudamiento Público
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-06-01 | la propia norma |
+| 2 | 2019-08-16 | Decreto Ejecutivo 41935 (2019-08-16) |

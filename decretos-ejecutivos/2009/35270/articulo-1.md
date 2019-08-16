@@ -1,4 +1,6 @@
+(Derogado)
 N° 35270-H
+(Este decreto ejecutivo fue derogado por el artículo 2° del decreto ejecutivo N° 41935 del 16 de agosto del 2019 “Aprobación de la Política de Endeudamiento para el Sector Público”)
 EL PRESIDENTE DE LA REPÚBLICA
 Y EL MINISTRO DE HACIENDA
 En uso de las facultades conferidas en los artículos 140 incisos 3) y 18) Y 146 de la Constitución Política; los artículos 25, inciso 1),27, inciso 1) y 28, inciso 2) acápite b) de la Ley N° 6227, Ley General de Administración Pública de 2 de mayo de 1978 y sus reformas; los artículos 80 y 83 de la Ley N° 8131, Ley de la Administración Financiera de la República y Presupuestos Públicos de 18 de setiembre del 2001 y sus reformas y su Reglamento, el Decreto Ejecutivo N° 32988-H-MP-PLAN de 31 de enero de 2006 y sus reformas.
