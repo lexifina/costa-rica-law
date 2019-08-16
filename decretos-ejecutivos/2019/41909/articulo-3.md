@@ -1,0 +1,1 @@
+Artículo 3.- COLABORACIÓN. Las dependencias del Sector Público y del Sector Privado podrán contribuir, dentro del marco legal correspondiente a cada una de ellas, con recursos económicos, humanos o materiales, en la medida de sus posibilidades y sin perjuicio del cumplimiento de sus propios objetivos, para la exitosa realización de este Programa.
