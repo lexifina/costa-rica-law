@@ -14,3 +14,4 @@ Reglamento para la administración y operación de los sistemas de estacionamien
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-02-01 | la propia norma |
+| 2 | 2019-08-19 | Reglamento municipal 51 (2019-08-19) |
