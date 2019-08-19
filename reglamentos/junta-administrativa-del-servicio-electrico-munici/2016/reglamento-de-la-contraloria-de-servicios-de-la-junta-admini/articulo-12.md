@@ -1,7 +1,0 @@
-Artículo 12.—Informes. La Contraloría de Servicios deberá presentar periódicamente a entes respectivos la siguiente información:
-i. Presentar al jerarca de la organización un plan anual de trabajo que sirva de base para evaluar el informe anual de labores. Una copia de dicho plan deberá presentarse a la Secretaría Técnica a más tardar el 30 de noviembre de cada año.
-ii. Presentar a la Secretaría Técnica un informe anual de labores elaborado acorde con la guía metodológica propuesta por Mideplán, el cual deberá tener el aval del jerarca de la organización. Dicho informe será presentado durante el primer trimestre del año.
-iii. A la ARESEP informes periódicos sobre las inconformidades presentadas por los usuarios a la Contraloría de Servicios, análisis crítico sobre las razones que originan las quejas de mayor incidencia y las medidas correctivas implementadas por JASEC. La fecha de presentación de estos informes será la que designe el ente regulador mediante resolución.
-iv. A la ARESEP, la Defensoría de los Habitantes, Sala Constitucional la información que requieran referente a quejas, solicitudes de intervención o recursos de amparo gestionadas por los usuarios ante estas instancias.
-v. A la Junta Directiva y Gerencia General aquellos informes que dichas dependencias soliciten y requieran en materia competencia de la Contraloría de Servicios.
-vi. Cualquier otro informe que por competencia de la Contraloría de Servicios, le sea solicitado por instancias internas o externas legalmente facultadas para solicitarlos

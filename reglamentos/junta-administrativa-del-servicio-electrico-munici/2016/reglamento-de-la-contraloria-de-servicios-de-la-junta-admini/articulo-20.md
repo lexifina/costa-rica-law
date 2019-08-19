@@ -1,3 +1,0 @@
-Capítulo III
-Sobre la presentación y atención de gestiones ante la Contraloría de Servicios
-Artículo 20.—Acceso a la Contraloría de Servicios. Toda persona física o jurídica o su representante, en forma individual o colectiva sea abonado o usuaria de un servicio de JASEC, podrá plantear ante la Contraloría de Servicios de JASEC toda inconformidad, reclamo, consulta, denuncia, sugerencia o felicitación respecto de la forma o contenido en la que se brinda un servicio, así como sobre las actuaciones de los funcionarios en el ejercicio de sus labores, cuando se estime que afecten directa o indirectamente dichos servicios.
