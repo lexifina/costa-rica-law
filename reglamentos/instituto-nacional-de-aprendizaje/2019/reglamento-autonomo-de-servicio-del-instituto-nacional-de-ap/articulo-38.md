@@ -1,0 +1,4 @@
+ARTÍCULO 38. Constancia de incapacidad: Cuando un servidor se encuentre incapacitado por razón de enfermedad, maternidad o riesgo profesional, deberá demostrar tal estado mediante dictamen extendido por la Caja Costarricense de Seguro Social o del Instituto Nacional de Seguros, en su caso. Únicamente se aceptará el dictamen médico particular cuando la incapacidad sea hasta por máximo de cuatro días.
+En todos los casos el servidor deberá presentar la constancia de incapacidad a su jefe inmediato dentro de los dos días hábiles siguientes a la fecha en fecha en que surgió el impedimento para laborar. La omisión será considerada falta grave.
+(Reformado en la sesión 1951 del 25 de agosto de 1982. Publicado en La Gaceta No. 185 del 27 de setiembre del 1982).
+(Reformado mediante acuerdo de Junta Directiva 077-87 Sesión No. 2394 del 6 abril de 1987, publicado en La Gaceta No. 93 del 18 de mayo de 1987).

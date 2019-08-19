@@ -1,0 +1,1 @@
+ARTÍCULO 2- Ámbito de aplicación: El Reglamento se aplicará a todos los servidores del INA ligados por una relación de empleo, con excepción del Presidente Ejecutivo, Gerente, Subgerente, Subauditor y Auditor.

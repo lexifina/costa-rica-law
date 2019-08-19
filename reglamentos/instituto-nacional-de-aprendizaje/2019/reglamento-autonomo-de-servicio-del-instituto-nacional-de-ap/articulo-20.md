@@ -1,0 +1,1 @@
+ARTÍCULO 20- Prestaciones legales de interinos: Los servidores nombrados como interinos en plazas del Régimen de Servicio Civil, o por plazo fijo, cuando, por cualquier causa su trabajo exceda de un año, tendrán derecho al pago de los beneficios del preaviso y del auxilio de cesantía, salvo cese por justa causa.
