@@ -1,0 +1,3 @@
+Artículo 4. Modifíquese el párrafo primero del Transitorio II del Decreto Ejecutivo Nº 40370- MICITT, denominado “Reforma Plan Nacional de Atribución de Frecuencias (PNAF)”, emitido en fecha 27 de febrero de 2017 y publicado en el Diario Oficial La Gaceta N° 97 de fecha 24 de mayo de 2017, para que en adelante se lea de la siguiente forma:
+“Transitorio II.- Para los segmentos de 54 MHz a 72 MHz, 76 MHz a 88 MHz, 174 MHz a 216 MHz y de 470 MHz a 806 MHz, con excepción del segmento de 608 MHz a 614 MHz, y hasta el cese de las transmisiones analógicas definido por la Administración, se continuarán aplicando las siguientes condiciones para las transmisiones analógicas:
+(...)”
