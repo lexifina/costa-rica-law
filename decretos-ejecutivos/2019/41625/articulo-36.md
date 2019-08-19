@@ -1,0 +1,2 @@
+Artículo 36.- Control y vigilancia. El Jefe de Misión será el responsable directo de la aplicación de este Reglamento en la oficina diplomática o consular a su cargo.
+Corresponderá a la DGSE y a la Dirección Financiera del Ministerio, en sus respectivos ámbitos de competencia y en la forma que determinen, ejercer los controles y la vigilancia de los “vehículos de las oficinas diplomáticas y consulares en el Servicio Exterior”.

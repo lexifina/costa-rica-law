@@ -1,0 +1,1 @@
+Artículo 28.-En caso de pérdida del vehículo: En caso de robo o hurto del vehículo deberá procederse conforme lo dispone el artículo 27 del Reglamento para el Registro y Control de Bienes de la Administración Central, Decreto Ejecutivo Nº 40797 de fecha 28 de noviembre de 2017.

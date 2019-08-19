@@ -1,0 +1,1 @@
+Artículo 54.- Aplicación del régimen disciplinario. En la aplicación del régimen disciplinario se cumplirán los procedimientos que establezca el Reglamento Interno de Trabajo del Ministerio de Relaciones Exteriores y Culto y la demás legislación nacional atinente, con el fin de garantizar el debido proceso a los funcionarios involucrados.

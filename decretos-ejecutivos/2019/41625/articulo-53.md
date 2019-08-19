@@ -1,0 +1,1 @@
+Artículo 53.- Serán consideradas faltas gravísimas las infracciones a lo dispuesto a los artículos 24 inciso f); artículo 25 incisos c), e), f), g), h) y artículo 26 incisos a) y b) de este Reglamento.

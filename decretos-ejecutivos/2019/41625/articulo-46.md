@@ -1,0 +1,1 @@
+Artículo 46.- Exclusión del salario en especie. El uso de los “vehículos de las oficinas diplomáticas y consulares en el Servicio Exterior”, no podrá ser considerado bajo ningún motivo como salario en especie, para ningún funcionario del Servicio Exterior.

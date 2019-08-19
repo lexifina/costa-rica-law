@@ -1,0 +1,4 @@
+Artículo 26.- Prohibiciones para los usuarios del servicio de transporte. Queda absolutamente prohibido a los usuarios de los servicios de transportes, que presta el Ministerio:
+a) Exigir la conducción del vehículo a una velocidad mayor o menor de la permitida en la zona. En el primer caso no podrá aducirse urgencia en el servicio.
+b) Obligar al conductor del vehículo institucional a modificar el destino establecido en la boleta o incluir paradas intermedias no autorizadas en la boleta, destinar el vehículo para asuntos de tipo personal, a la transportación de familiares, ni extender la utilización de éste cuando se haya concluido la labor diaria en el lugar o centro de trabajo de la gira o servicio, a menos de que así se haya consignado en la boleta de solicitud del vehículo.
+c) Fumar dentro del vehículo institucional.

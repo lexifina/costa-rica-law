@@ -1,0 +1,1 @@
+Artículo 57.- Derogatoria. Se deroga el Reglamento de Uso de Vehículos del Ministerio de Relaciones Exteriores y Culto”, Decreto Ejecutivo N° 26950-RE publicado en el Diario oficial La Gaceta N° 99 del 25 de mayo de 1998.

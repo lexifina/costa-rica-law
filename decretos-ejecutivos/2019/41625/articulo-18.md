@@ -1,0 +1,1 @@
+Artículo 18.- De los requisitos para otorgar el permiso de conducción institucional. Los funcionarios para los cuales se solicite el permiso de conducción institucional, deberán de contar con licencia de conducir vigente, con al menos dos años de haber sido emitida y ésta deberá corresponder con el tipo de vehículo que eventualmente conducirán.

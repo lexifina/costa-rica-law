@@ -1,0 +1,1 @@
+Artículo 12.- Posibilidad de agrupar varias solicitudes. Para un mejor aprovechamiento de los vehículos de uso administrativo y para procurar ahorro de combustible, el Departamento podrá agrupar varias solicitudes de transporte dentro de una misma ruta en un solo trayecto.

@@ -1,0 +1,1 @@
+Artículo 51.- Serán consideras faltas graves las infracciones a lo dispuesto en los artículos 22; artículo 23 incisos a), b) c) d), e) f), g), h), i), j), k),l), m), n) y o); artículo 24 inciso a); artículo 25 incisos i), k); y artículo 26 inciso c) de este Reglamento.

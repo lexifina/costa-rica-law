@@ -1,0 +1,8 @@
+Artículo 24.- Deberes de los usuarios del servicio de transporte. Son deberes de los usuarios de los servicios de transportes que presta el Ministerio:
+a) Conocer y cumplir, en lo que corresponda, las disposiciones establecidas en el presente Reglamento y la ley N° 9078, Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial.
+b) Estar en el lugar de salida y a la hora indicada en la solicitud de servicio de transporte.
+c) Hacer uso de los servicios de transporte en situaciones plenamente justificadas y en razón de las labores propias de la Institución, así como mantener, durante el desplazamiento, el decoro y respeto que exige la condición de funcionario público.
+d) Solicitar al Departamento de Servicios Generales el servicio de transportes por medio de la boleta dispuesta al efecto al menos dos días hábiles antes, salvo casos de urgencia.
+e) Hacer uso del cinturón de seguridad durante el desplazamiento en el vehículo institucional. En caso de exponerse a una infracción de tránsito por este motivo, el funcionario responsable deberá cancelar a la administración el monto que corresponda previo debido proceso.
+f) Informar al Departamento de Servicios Generales, cualquier irregularidad cometida por el conductor, en el desempeño de sus funciones, así como cualquier irregularidad que observara con el vehículo de conformidad con las disposiciones de este reglamento. Queda absolutamente prohibido solicitar al conductor que traslade personas que no estén debidamente autorizadas en la boleta, lo mismo que desviarse de las rutas establecidas en la boleta de solicitud de transporte.
+g) Portar el carnet que lo acredita como funcionario del Ministerio de Relaciones Exteriores y Culto.

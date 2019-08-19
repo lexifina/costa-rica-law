@@ -1,0 +1,2 @@
+Artículo 13.- Utilización de los vehículos de uso administrativo fuera de la jornada y horario ordinarios. En aquellos casos en que se requiera utilizar un vehículo de uso administrativo fuera del horario ordinario, el funcionario que solicite el servicio deberá completar la boleta denominada “Autorización de uso fuera de horario ordinario”, y presentarla al Departamento con la firma del superior del área.
+Asimismo, deberá portar dicha boleta con el fin de mostrarla a la autoridad de tránsito cuando ésta lo requiera.

@@ -1,0 +1,6 @@
+CAPITULO VI
+De los vehículos de uso administrativo general
+en las Oficinas Diplomáticas y Consulares del Servicio Exterior
+Artículo 33.- Uso administrativo general de carácter institucional. Los “vehículos de las oficinas diplomáticas y consulares en el Servicio Exterior” tendrán un uso administrativo general adecuado a las funciones internacionales de representación diplomática o consular correspondientes en el Estado receptor y se sujetarán en todo lo que resulte procedente a la legislación interna de este último.
+En virtud del principio de especialidad de las funciones diplomáticas y consulares, la sujeción de las misiones diplomáticas y consulares principalmente al Derecho Internacional Público y su sumisión a la legislación del Estado receptor, así como las particularidades del Servicio Exterior y la especialidad del Derecho Diplomático y Consular, que impiden la aplicación extraterritorial de la ley costarricense, los “vehículos de las oficinas diplomáticas y consulares en el Servicio Exterior” se
+regirán principalmente por las respectivas leyes del país receptor y por las disposiciones especiales en cuanto a horario de uso, recorridos, lugar de resguardo en horas no hábiles, seguros, y otras contenidas en este Reglamento.

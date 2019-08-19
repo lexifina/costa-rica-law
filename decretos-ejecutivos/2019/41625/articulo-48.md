@@ -1,0 +1,1 @@
+Artículo 48.- Compatibilidad de otras normas. Las normas de este Reglamento serán aplicables, en todo lo que resulten compatibles y posibles, al uso de “vehículos de las oficinas diplomáticas y consulares en el Servicio Exterior” que regula el presente Capítulo.
