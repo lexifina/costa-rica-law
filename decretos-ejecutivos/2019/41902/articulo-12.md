@@ -1,0 +1,6 @@
+Artículo 12.- Cuestiones previas a cargo del Representante Legal
+l. Recibido el recurso de apelación, el Representante Legal dictará una resolución de mero trámite limitándose a emplazar a todas las partes intervinientes, incluida la parte apelante, a efecto de que dentro del plazo de tres días hábiles, contados a partir del día siguiente al de la notificación, todas las partes puedan hacer valer sus derechos y pretensiones ante la Presidencia Ejecutiva.
+2. De previo a elevar el expediente administrativo institucional ante la Presidencia Ejecutiva, el Representante Legal:
+a. Deberá haber evacuado toda la prueba testimonial ofrecida.
+b. Ordenará las valoraciones psicológicas o sociales que considere necesarias dentro del proceso (recursos familiares, comunales o de las partes intervinientes), cuando las partes en el recurso de apelación así lo hayan solicitado, ya sea que se infiera de sus pretensiones, o bien ele oficio.
+3. El Representante Legal evacuará la prueba testimonial y solicitará a los profesionales en Trabajo Social y/o Psicología de la Oficina Local que realicen las valoraciones de rigor, todo dentro de un plazo discrecional que definirá y que no podrá sobrepasar el plazo de quince días naturales.

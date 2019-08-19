@@ -1,0 +1,3 @@
+Artículo 2.- Órgano competente
+La Oficina Local del Patronato Nacional de la Infancia es el órgano competente para llevar a cabo el Proceso Especial de Protección en Sede Administrativa. El Representante Legal de la Oficina Local será el Órgano Director del Proceso, por ende, es el funcionario responsable de garantizar la tramitación de este, en aplicación de los principios que resguardan el Debido Proceso.
+Deberá realizar la investigación correspondiente, en aplicación de los lineamientos establecidos en los modelos de gestión y protocolos vigentes en la institución, y de conformidad con las intervenciones que los profesionales en Psicología y/o Trabajo Social realicen.

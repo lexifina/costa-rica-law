@@ -1,0 +1,4 @@
+Artículo 9.- De las notificaciones
+l. Todo lo resuelto deberá ser comunicado a las partes mediante su debida notificación, para que ejerzan los derechos que les correspondan.
+2. En aquellos casos en los cuales las partes no hayan señalado medio para escuchar notificaciones, el Representante Legal procederá a realizar la notificación de forma personal ya sea en el domicilio, en el lugar de trabajo o en la Oficina Local.
+3. En caso de resultar imposible realizar la notificación de esa forma, ésta deberá realizarse mediante la publicación de un edicto en el Diario Oficial La Gaceta. Lo anterior, teniendo en cuenta que, por la especificidad de la materia de Niñez y Adolescencia, y la naturaleza de los procesos y asuntos que conoce la Institución, no procede la notificación automática en la Sede Administrativa.
