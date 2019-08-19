@@ -14,3 +14,4 @@ Disposiciones para aplicar la política conozca a su cliente en el manejo de los
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-05-07 | la propia norma |
+| 2 | 2019-08-19 | Reglamento 63 (2019-08-19) |
