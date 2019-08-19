@@ -1,0 +1,1 @@
+Artículo 32.—Convocatoria de los miembros de las juntas receptoras. En caso de que el Tribunal Electoral disponga de una votación en físico, los miembros de las juntas receptoras tienen la obligación de presentarse al local asignado para la votación el día de las elecciones, una hora antes de la convocatoria a Asamblea General Ordinaria.

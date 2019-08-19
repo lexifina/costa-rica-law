@@ -1,0 +1,2 @@
+Artículo 5º—Forma de emitir el voto. El voto se emite en forma electrónica. Ante situaciones de caso fortuito o fuerza mayor se recurrirá al sistema de votación física, por lo que las votaciones se llevarán a cabo en el recinto del Colegio, de forma directa y secreta con las excepciones indicadas en el artículo 4 del presente Código Electoral.
+En este último caso el Tribunal emitirá resolución debidamente motivada de la decisión adoptada.

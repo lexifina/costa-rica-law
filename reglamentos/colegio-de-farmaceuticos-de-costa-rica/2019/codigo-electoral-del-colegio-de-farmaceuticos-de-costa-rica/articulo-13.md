@@ -1,0 +1,2 @@
+Artículo 13.—El acta electoral. El acta electoral es el documento donde se consignan la apertura, las incidencias y el cierre de la votación. Constará de un artículo de apertura, un artículo de cierre de votaciones, además de un artículo del escrutinio de los votos y resultados de las elecciones.
+Se agregarán al acta, para que conforme un solo expediente, todos los documentos conexos que tuvieren relación con el proceso electoral y que deban ser conservados.

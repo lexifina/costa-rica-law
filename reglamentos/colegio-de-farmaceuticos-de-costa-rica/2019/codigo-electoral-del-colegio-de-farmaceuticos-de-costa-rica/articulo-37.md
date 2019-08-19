@@ -1,0 +1,1 @@
+Artículo 37.—De las sanciones. Todo colegiado que incumpla las disposiciones de este Código Electoral deberá ser denunciado ante la Fiscalía del Colegio de Farmacéuticos de Costa Rica, la cual estimará los cargos y tendrá la facultad de diligenciarlos, de conformidad con la Ley Orgánica, el Reglamento Interno y el Código de Ética del Colegio de Farmacéuticos de Costa Rica.

@@ -1,0 +1,2 @@
+Artículo 26.—De los debates. Durante el periodo de propaganda, el Tribunal Electoral podrá coordinar un debate entre los candidatos. Además, podrá promover cualquier otra actividad que considere necesaria para informar a los electores con respecto al plan de trabajo de los candidatos.
+En estos debates podrán participar únicamente los farmacéuticos incorporados al Colegio y que se encuentren activos.

@@ -1,0 +1,1 @@
+Artículo 31.—Colocación de la urna electoral. En caso de que el Tribunal Electoral disponga de una votación en físico, la urna electoral se colocará frente a la mesa de trabajo de la junta receptora, de modo que pueda tenerla bajo su autoridad y vigilancia.

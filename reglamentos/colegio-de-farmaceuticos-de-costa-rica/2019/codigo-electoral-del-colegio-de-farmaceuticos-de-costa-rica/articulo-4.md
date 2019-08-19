@@ -1,0 +1,2 @@
+Artículo 4º—Forma de Elección Extraordinaria. Cuando haya uno o más puestos vacantes, se convocará a una Asamblea General Extraordinaria. Si en esta asamblea solo se presenta un candidato para un determinado cargo, se prescindirá de la votación y quedará electo automáticamente.
+Y si no se presentara ninguna candidatura, el Tribunal deberá solicitar a la Junta Directiva que incluya en la siguiente Asamblea Extraordinaria la elección de los puestos a Junta Directiva.

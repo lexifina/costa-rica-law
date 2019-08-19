@@ -1,0 +1,2 @@
+Artículo 30.—Local de votación. El local de votación estará acondicionado de modo que en este pueda establecerse la Junta Receptora con todas las garantías necesarias para la emisión del voto.
+Cuando uno o varios de los miembros que resultaron electos no estén presentes en la Asamblea General Ordinaria para su juramentación, esta se efectuará en fecha posterior, en una sesión del Tribunal Electoral convocada de inmediato para este acto.

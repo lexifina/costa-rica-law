@@ -1,0 +1,1 @@
+Artículo 16.—Integración. Cada junta receptora estará integrada al menos por un delegado del Tribunal Electoral o su suplente, quien fungirá como presidente, y un fiscal de juntas receptoras designado por cada uno de los grupos contendientes, o su(s) respectivo(s) suplente(s).
