@@ -1,3 +1,0 @@
-Artículo 2º—Todo establecimiento expendedor de licor que desee instalar juegos, realizar espectáculos públicos, música en vivo, karaoke o cualquier tipo de diversión deberá contar con el permiso de funcionamiento extendido por el Ministerio de Salud, en el cual se debe hacer constar de que el local cuenta con las condiciones óptimas para garantizar la seguridad
-de los asistentes y la salud pública (contaminación sónica o ambiental), para realizar este tipo de actividad.
-Además, para realizar esas actividades, deberá solicitar el permiso ante el Departamento de Patentes Municipales, quien aprobará o rechazará lo que en Derecho corresponda de conformidad con las disposiciones del Código Municipal.

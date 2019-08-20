@@ -1,1 +1,0 @@
-Artículo 10.—Queda prohibido la venta de bebidas alcohólicas a menores de edad, así como la permanencia de menores en lugares donde la actividad principal la constituya la venta y/o consumo de las bebidas alcohólicas.
