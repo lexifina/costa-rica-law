@@ -14,3 +14,4 @@ Reglamento para el uso, custodia y conservación de los teléfonos celulares de 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-11-11 | la propia norma |
+| 2 | 2019-08-20 | Decreto Ejecutivo 42013 (2019-08-20) |
