@@ -1,0 +1,1 @@
+Artículo 7º—Vigencia. La presente resolución entrará en vigencia a partir de su publicación. Tanto el pago como el formulario que se regula en la presente resolución, deberán utilizarse para el periodo fiscal 07/2019 y sucesivos.
