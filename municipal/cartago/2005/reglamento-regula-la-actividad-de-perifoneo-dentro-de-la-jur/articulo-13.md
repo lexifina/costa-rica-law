@@ -1,1 +1,0 @@
-Artículo 13.—De conformidad con el artículo 81 bis del Código Municipal, será sancionado con multa equivalente a tres salarios base, el propietario, administrador o responsable del servicio de perifoneo, con licencia suspendida continúe desarrollando la actividad.

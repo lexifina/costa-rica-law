@@ -1,1 +1,0 @@
-Artículo 7º—El Departamento de Patentes podrá rechazar la solicitud si ésta es contraria a las leyes o reglamentos vigentes, así como por razones de oportunidad y conveniencia mediante resolución razonada, contra la cual se podrán oponer los recursos que dispone el Capítulo I del Título VI del Código Municipal.

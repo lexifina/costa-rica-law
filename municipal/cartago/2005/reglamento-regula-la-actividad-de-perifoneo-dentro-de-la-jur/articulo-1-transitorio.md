@@ -1,1 +1,0 @@
-Transitorio I.—Para las personas físicas o jurídicas que ofrezcan este tipo de actividades y que no cuentan en la actualidad con el respectiva licencia municipal, se les concede por única vez un plazo de noventa días para que cumplan con los requisitos que establece el presente Reglamento.
