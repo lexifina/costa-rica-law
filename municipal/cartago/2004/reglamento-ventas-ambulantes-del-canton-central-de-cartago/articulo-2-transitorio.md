@@ -1,1 +1,0 @@
-Transitorio II.—Durante los siguientes seis meses a la entrada en vigencia de este reglamento, los puestos de ventas estacionarias y los permisionarios de ventas ambulantes, deberán adecuar su negocio a las disposiciones contenidas en el presente reglamento.

@@ -1,1 +1,0 @@
-Artículo 22.—La municipalidad se reserva el derecho de rechazar las solicitudes de licencias estacionarias y ambulantes, así como de limitar el número de puestos estacionarios y ventas ambulantes, por razones de oportunidad y conveniencia.

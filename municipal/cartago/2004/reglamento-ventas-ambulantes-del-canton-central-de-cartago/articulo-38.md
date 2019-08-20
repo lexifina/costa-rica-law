@@ -1,1 +1,0 @@
-Artículo 38.—La Municipalidad por medio de sus inspectores, realizará periódicamente inspecciones a cada patentado para verificar el cumplimiento de este reglamento, en relación con el funcionamiento, en general, del establecimiento y de la actividad comercial. Podrá hacerse auxiliar de la Policía Municipal cuando lo estime necesario.

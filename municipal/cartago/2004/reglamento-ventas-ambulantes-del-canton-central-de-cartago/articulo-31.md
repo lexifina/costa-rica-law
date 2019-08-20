@@ -1,1 +1,0 @@
-Artículo 31.—Contra las resoluciones municipales que ordenen la suspensión o caducidad de la licencia municipal por falta de pago de dos trimestres de dicha patente o licencia municipal, solo cabrá la excepción de pago. Las demás resoluciones se regirán por lo que establece el Código Municipal en materia de recursos.

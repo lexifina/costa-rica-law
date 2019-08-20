@@ -1,1 +1,0 @@
-Artículo 7º—El Concejo Municipal podrá rechazar la solicitud de patente para venta ambulante o estacionaria, por legalidad, oportunidad o conveniencia y, tendrá los recursos que señala el Código Municipal.
