@@ -1,0 +1,2 @@
+ARTÍCULO 2- El que de buena fe compre en estos establecimientos abiertos al público, cosas que sean de su giro normal, no podrá ser privado de ellas, aunque no pertenezcan al vendedor que dolosamente las haya vendido.
+Los establecimientos que se dediquen a la compraventa y prenda con custodia de bienes muebles no podrán realizar su actividad comercial habitual entre las diecinueve horas y las seis horas.
