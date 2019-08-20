@@ -1,1 +1,0 @@
-Artículo 18.—De conformidad con la Ley Nº 6844 del 11 de octubre de 1983, el no pago del impuesto por espectáculo público cuando éste proceda, generará una multa igual a diez veces el monto dejado de pagar, estimado por la municipalidad con base en la información suministrada por el patentado y aquella que estime oportuna.

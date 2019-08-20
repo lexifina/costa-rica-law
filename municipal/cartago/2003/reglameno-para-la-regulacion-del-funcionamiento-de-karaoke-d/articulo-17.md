@@ -1,1 +1,0 @@
-Artículo 17.—El no pago de la licencia municipal en los términos fijados en la ley y este Reglamento, generará intereses de lo adeudado conforme lo establece el Código de Normas y Procedimientos Tributarios.

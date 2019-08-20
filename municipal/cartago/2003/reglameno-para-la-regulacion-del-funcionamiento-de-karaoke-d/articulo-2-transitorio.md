@@ -1,1 +1,0 @@
-Transitorio II.—Durante los siguientes seis meses a la entrada en vigencia de este reglamento, los comercios o comerciantes que realicen actividades de las reguladas en este reglamento deberán adecuar su negocio a las disposiciones contenidas en este texto normativo. Bernardo Portuguez Calderón, Secretario del Concejo Municipal.—

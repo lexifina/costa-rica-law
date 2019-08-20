@@ -1,1 +1,0 @@
-Artículo 8º—Si el evento para el cual se solicita permiso no constituyera karaoke y más bien se tratare de un espectáculo público variado deberá tramitarse el respectivo permiso para ese tipo de evento, según el reglamento correspondiente.

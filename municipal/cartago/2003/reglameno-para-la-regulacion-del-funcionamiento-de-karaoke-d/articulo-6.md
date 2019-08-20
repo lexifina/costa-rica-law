@@ -1,1 +1,0 @@
-Artículo 6º—Para presentar la solicitud de permiso a que se refiere el artículo anterior, se deberá obtener de previo la autorización del Ministerio de Salud. No obstante, esta autorización no será vinculante para la municipalidad, en tanto ésta se reserva el derecho de rechazar las solicitudes respectivas, de acuerdo con criterios de conveniencia y oportunidad.
