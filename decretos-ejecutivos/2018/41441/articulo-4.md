@@ -1,0 +1,1 @@
+Artículo 4º—Declaratoria. Se declara de interés pública la oficialización y ejecución de las acciones establecidas en el Protocolo de Intervención Policial en la Atención de Casos de Acoso Sexual en Espacios Públicos o de Acceso Público.

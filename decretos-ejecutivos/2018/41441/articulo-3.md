@@ -1,0 +1,1 @@
+Artículo 3º—Coordinación interinstitucional. El Ministerio de Seguridad Pública, a través de su Viceministerio correspondiente, brindará apoyo a las instituciones de la Administración Pública Central y a las municipalidades para la adopción del Protocolo de Intervención Policial en la Atención de Casos de Acoso Sexual en Espacios Públicos o de Acceso Público.
