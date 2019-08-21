@@ -14,3 +14,4 @@ Nombramiento de los miembros del Consejo Nacional de Desarrollo de la Comunidad
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-08-01 | la propia norma |
+| 2 | 2019-08-21 | Decreto Ejecutivo 41992 (2019-08-21) |

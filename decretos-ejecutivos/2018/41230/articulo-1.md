@@ -12,7 +12,8 @@ Decretan:
 NOMBRAMIENTO DE LOS MIEMBROS DEL CONSEJO
 NACIONAL DE DESARROLLO DE LA COMUNIDAD
 Artículo 1º—Integrar el Consejo Nacional de Desarrollo de la Comunidad con los siguientes miembros:
-a) En representación del Ministro de Gobernación y Policía, designar al señor Víctor Manuel Barrantes Marín, cédula de identidad Nº 6-329-391.
+a) En representación del Ministro de Gobernación y Policía, designar al señor, Carlos Andrés Torres Salas, cédula de identidad N° 2-561-166.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 41992 del 21 de agosto del 2019)
 b) En representación del Poder Ejecutivo, designar al señor Víctor Hugo Alpízar Castro, cédula de identidad Nº 2-304- 861, designado por el Presidente de la República.
 c) En representación de las Asociaciones de Desarrollo Comunal designar a las señoras Rosibel Villalobos Navarro, cédula de identidad Nº 6-200-342 Milena Mena Sequeira, cédula de identidad Nº 2-501-971, y el señor Marco Antonio Hernández Ramírez, cédula de identidad Nº 4-102-411.
 d) En representación de la Unión Nacional de Gobiernos Locales designar al señor Juan Pablo Barquero Sánchez, cédula Nº 5-033-085 y a la señora María del Rosario Rivera Rodríguez, cédula Nº 2-2891-070.
