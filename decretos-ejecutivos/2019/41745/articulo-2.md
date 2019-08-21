@@ -1,0 +1,1 @@
+Artículo 2º—Se declara de interés público y nacional además, la implementación de mecanismos, estrategias, líneas de acción, programas y proyectos que se deriven de su ejecución, en tanto promuevan la convivencia pacífica, el fortalecimiento de la seguridad ciudadana y el bienestar nacional; así como la creación de espacios seguros y la promoción de la paz social.
