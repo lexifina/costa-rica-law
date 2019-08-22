@@ -15,3 +15,4 @@ Reglamento de servicios de atención legal del INAMU
 | --- | --- | --- |
 | 1 | 2013-10-29 | la propia norma |
 | 2 | 2019-05-29 | Reglamento 12 (2019-05-29) |
+| 3 | 2019-08-22 | Reglamento 20 (2019-08-22) |
