@@ -18,3 +18,4 @@ Reglamento para las Inversiones de las Reservas del Seguro de Salud
 | 3 | 2011-03-10 | Reglamento 8497 (2011-03-10) |
 | 4 | 2012-12-20 | Reglamento 8617 (2012-12-20) |
 | 5 | 2019-07-02 | Reglamento 0 (2019-07-02) |
+| 6 | 2019-08-22 | Reglamento 9046 (2019-08-22) |
