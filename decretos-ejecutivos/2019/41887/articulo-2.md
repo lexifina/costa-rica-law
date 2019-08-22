@@ -1,0 +1,1 @@
+Artículo 2º—Se insta, con previa coordinación con jefaturas directas, a personas funcionarias públicas de las instituciones del gobierno central y descentralizadas, que tengan políticas, programas o proyectos relacionados con niñas, niños y jóvenes, a participar del V Simposio Internacional y IX Nacional organizado por PRIDENA.
