@@ -15,3 +15,4 @@ Reglamento Operativo del Consejo Superior Notarial
 | --- | --- | --- |
 | 1 | 2016-09-20 | la propia norma |
 | 2 | 2017-01-12 | Reglamento 1 (2017-01-12) |
+| 3 | 2019-08-22 | Reglamento 0 (2019-08-22) |

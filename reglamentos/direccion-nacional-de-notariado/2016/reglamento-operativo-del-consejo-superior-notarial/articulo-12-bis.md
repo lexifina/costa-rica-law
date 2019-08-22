@@ -1,0 +1,2 @@
+Artículo 12 Bis: En caso de ser modificado, ampliado o revocado un acuerdo del CSN, la persona que ejerza el cargo de Secretario (a) o su suplente, deberá consignar y firmar una nota marginal en el acta del acuerdo modificado, haciendo indicación del número de acuerdo modificador, así como la reforma introducida (deroga, limita, revoca).
+(Así adicionado mediante sesión ordinaria celebrada el 22 de agosto del 2019, acuerdo firme 2019-016-007 del Acta 016-2019)

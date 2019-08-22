@@ -10,3 +10,5 @@ Artículo 3. Son deberes y atribuciones de la presidencia del CSN:
 9- Procurar la observancia de los principios éticos por parte de los integrantes del CSN en todas sus actuaciones.
 10- Firmar las resoluciones de los recursos interpuestos ante el CSN.
 11- Firmar las actas.
+12: Firmar los certificados de juramentaciones.
+(Así adiiconado el punto anterior mediante sesión ordinaria celebrada el 22 de agosto del 2019, acuerdo firme 2019-016-007 del Acta 016-2019)

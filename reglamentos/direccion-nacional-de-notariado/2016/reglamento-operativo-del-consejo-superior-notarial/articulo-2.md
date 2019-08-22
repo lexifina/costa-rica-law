@@ -8,7 +8,8 @@ Para hacer efectivas las atribuciones contempladas en los incisos 2 y 3, se form
 2.2 Son Deberes de los miembros del CSN:
 1- Asistir a las sesiones ordinarias y extraordinarias.
 2- Emitir su voto, respecto de los asuntos y consultas presentadas al CSN.
-3- Participar activamente en las Comisiones creadas por el CSN.
+3- Participar activamente en las Comisiones permanentes y temporales; así como en los grupos de trabajo creados por el CSN y cumplir con las tareas asignadas en las comisiones; respetando los plazos de ejecución y demás aspectos contenidos en el acuerdo de asignación.
+(Así reformado el punto anterior mediante sesión ordinaria celebrada el 22 de agosto del 2019, acuerdo firme 2019-016-007 del Acta 016-2019)
 4- Justificar oportunamente las razones que le impidan asistir a sesiones, lo cual deberá hacer ante la secretaría del CSN.
 5- Respetar la jerarquía institucional administrativa así como la del órgano colegiado.
 6- Cumplir con todas las obligaciones que le asisten en razón del cargo, tales como suscripción de la póliza de fidelidad respectiva, rendir declaración jurada de bienes ante la Contraloría General de la República y cualquier otra establecida en las leyes y reglamentos.

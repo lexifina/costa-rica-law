@@ -8,5 +8,10 @@ Artículo 4. Corresponde al Secretario del CSN:
 7- Comunicar en forma oportuna los acuerdos adoptados.
 8- Cerrar el libro de actas al finalizar cada año.
 9- Verificar que el libro de actas se encuentre debidamente custodiado en la secretaría del CSN y constatar su envío al archivo institucional cuando corresponda.
-10-Las demás que le asigne la ley y el CSN.
+10: Elaborar y firmar en las actas de los acuerdos modificados, las notas marginales que correspondan.
+(Así adicionado el punto anterior mediante sesión ordinaria celebrada el 22 de agosto del 2019, acuerdo firme 2019-016-007 del Acta 016-2019)
+11: En ausencia del Presidente, firmar los certificados de juramentaciones.
+(Así adicionado el punto anterior mediante sesión ordinaria celebrada el 22 de agosto del 2019, acuerdo firme 2019-016-007 del Acta 016-2019)
+12-Las demás que le asigne la ley y el CSN.
+(Así modificada la numeración del punto anterior mediante sesión ordinaria celebrada el 22 de agosto del 2019, acuerdo firme 2019-016-007 del Acta 016-2019, que lo traspaso del punto 10) al 12)
 El secretario del CSN, para el desempeño de sus funciones, tendrá el apoyo de todo el personal de la DNN y de la secretaría administrativa del CSN.
