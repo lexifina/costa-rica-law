@@ -44,3 +44,4 @@ Comunica emisión de resoluciones de la Dirección General del Servicio Civil:(D
 | 29 | 2019-07-12 | Resolución 12 (2019-07-12) |
 | 30 | 2019-07-29 | Resolución 13 (2019-07-29) |
 | 31 | 2019-08-01 | Resolución 14 (2019-08-01) |
+| 32 | 2019-08-23 | Resolución 15 (2019-08-23) |
