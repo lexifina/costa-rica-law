@@ -1,1 +1,1 @@
-Artículo 14— Sesiones. La Comisión definirá la periodicidad de sus sesiones, así como el día, hora y lugar de las mismas, para lo cual se le brindará y proporcionará por parte de la Corporación todo el apoyo logístico que razonablemente fuera requerido para el cumplimiento de sus funciones.
+Artículo 14— Sesiones. (Derogado por el artículo 1° del decreto ejecutivo Nº 42021-MAG del 23 de agosto de 2019)

@@ -1,1 +1,1 @@
-Artículo 15—Quorum. Harán quórum para sesionar válidamente en Comisión la asistencia y presencia de cuatro de sus miembros y los acuerdos se adoptarán por mayoría simple de votos presentes, sin embargo, de conformidad con lo dispuesto en la Ley, la definición, establecimiento y modificaciones del Sistema de Liquidación de la Carne, deberá ser aprobado por mayoría calificada de las dos terceras partes de la totalidad de los miembros de la Comisión, sean cinco votos.
+Artículo 15—Quorum. (Derogado por el artículo 1° del decreto ejecutivo Nº 42021-MAG del 23 de agosto de 2019)

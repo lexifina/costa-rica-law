@@ -1,1 +1,1 @@
-Artículo 16—Programa de Trabajo. La Comisión de liquidación elaborará cada año un programa de trabajo y el respectivo cronograma de actividades. La Junta Dir3ectiva de la Corporación podrá pedir los informes de cumplimiento. La Comisión de Liquidación presentará mensualmente un informe de labores a la Junta Directiva de la Corporación.
+Artículo 16—Programa de Trabajo. (Derogado por el artículo 1° del decreto ejecutivo Nº 42021-MAG del 23 de agosto de 2019)

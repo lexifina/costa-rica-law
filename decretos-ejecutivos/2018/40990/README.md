@@ -14,3 +14,4 @@ Reglamento a la Ley de Creación de la Corporación Ganadera
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-05-07 | la propia norma |
+| 2 | 2019-08-23 | Decreto Ejecutivo 42021 (2019-08-23) |
