@@ -14,10 +14,9 @@ Entendiendo órgano adjudicador en la figura de la Ministra de Hacienda, según 
 8º—Que para cumplir con los artículos 6 y 7 de la Ley N° 9708 resulta necesario establecer el procedimiento mínimo de concurso para la selección del o los bancos que lideren el proceso referido en este Acuerdo, así como para las demás contrataciones requeridas según la práctica internacional.
 9º—Que con base en las anteriores autorizaciones, el Ministerio de Hacienda ha resuelto iniciar las contrataciones autorizadas en los artículos 6 y 7 para la realización de la emisión y colocación en el mercado internacional en el marco de la Ley N° 9708. Por tanto,
 ACUERDA:
-PROCEDIMIENTO PARA LA SELECCIÓN
-Y CONTRATACIÓN DEL BANCO O BANCOS
-COLOCADORES Y DEMÁS CONTRATACIONES
-REQUERIDAS PARA LA EMISIÓN DE TÍTULOS
-VALORES EN EL MERCADO INTERNACIONAL
+Procedimiento para la selección y contratación del Banco o Bancos Colocadores y demás contrataciones requeridas para la emisión de títulos valores y gestión de pasivos en el mercado internacional(*)
+(*)(Así modificada su denominación por el artículo 1° del acuerdo N° DM-0125-2019 del 23 de agosto del 2019)
 I. Generalidades
-Artículo 1º—Orden de inicio. Conforme al artículo 1 de la Ley N° 9708 se procede a iniciar el proceso de emisión de títulos valores en el mercado internacional hasta por un monto máximo de US$1.500.000.000 (mil quinientos millones de dólares estadounidenses) o su equivalente en cualquier otra moneda.
+Artículo 1º—Orden de inicio.
+Conforme al artículo 1 y 3 de la Ley N° 9708 se procede a iniciar el proceso de emisión de títulos valores en el mercado internacional hasta por un monto máximo de US$1.500.000.000 (mil quinientos millones de dólares estadounidenses) o su equivalente en cualquier otra moneda, que podrá incluir gestión de pasivos Asimismo se podrá iniciar el proceso de operación de administración de pasivos en el mercado internacional cuando así se considere oportuno.
+(Así reformado por el artículo 2° del acuerdo N° DM-0125-2019 del 23 de agosto del 2019)

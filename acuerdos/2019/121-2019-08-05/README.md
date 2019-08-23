@@ -14,3 +14,4 @@ Procedimiento para la selección y contratación del Banco o Bancos Colocadores 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-08-05 | la propia norma |
+| 2 | 2019-08-23 | Acuerdo 125 (2019-08-23) |
