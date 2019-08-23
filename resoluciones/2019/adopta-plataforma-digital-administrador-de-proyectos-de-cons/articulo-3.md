@@ -1,0 +1,1 @@
+Artículo 3º—Se ordena publicar esta disposición en el Diario Oficial La Gaceta, así como en el sitio oficial del Colegio Federado de Ingenieros y Arquitectos a la dirección Web www.tramitesconstruccion.go.cr; lo anterior para conocimiento de los profesionales, usuarios de la plataforma APC.
