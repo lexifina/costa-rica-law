@@ -1,0 +1,3 @@
+Artículo 2º—Modifíquese el artículo 1 del Acuerdo N° DM- 0121-2019 del 05 de agosto del 2019, para que en adelante se lea de la siguiente manera:
+“Artículo 1º—Orden de inicio.
+Conforme al artículo 1 y 3 de la Ley N° 9708 se procede a iniciar el proceso de emisión de títulos valores en el mercado internacional hasta por un monto máximo de US$1.500.000.000 (mil quinientos millones de dólares estadounidenses) o su equivalente en cualquier otra moneda, que podrá incluir gestión de pasivos Asimismo se podrá iniciar el proceso de operación de administración de pasivos en el mercado internacional cuando así se considere oportuno.”

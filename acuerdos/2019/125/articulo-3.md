@@ -1,0 +1,1 @@
+Artículo 3º—Entiéndase que toda alusión realizada en el articulado del Acuerdo N° DM-0121-2019 al proceso de emisión de títulos valores en el mercado internacional contemplará la posibilidad de realizar la operación de administración de pasivos en el mercado internacional.
