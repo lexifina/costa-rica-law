@@ -1,0 +1,1 @@
+Artículo 2º- Forma de consignar la información. Los obligados a presentar dichas declaraciones, deben suministrar la información en los modelos, medios y plazos establecidos por ley, sin necesidad de que haya un requerimiento previo por parte de la Administración Tributaria.
