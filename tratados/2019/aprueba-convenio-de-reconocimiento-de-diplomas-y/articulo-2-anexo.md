@@ -1,0 +1,20 @@
+ANEXO N° 2
+MECANISMO PARA LA IMPLEMENTACIÓN DEL CONVENIO DE RECONOCIMIENTO DE DIPLOMAS Y CERTIFICADOS DE ESTUDIOS DE EDUCACIÓN GENERAL BÁSICA Y EDUCACIÓN DIVERSIFICADA O EDUCACIÓN MEDIA O SUS DENOMINACIONES EQUIVALENTES ENTRE LA REPÚBLICA DE
+COSTA RICA Y LA REPÚBLICA DE CHILE
+CONSIDERANDO:
+Que el Convenio de Reconocimiento de Diplomas y Certificados de Estudios de Educación General Básica y Educación Diversificada o Educación Media o sus Denominaciones Equivalentes entre la República de Costa Rica y la República de Chile, establece la Comisión Técnica Bilateral y, con el objeto de determinar las denominaciones equivalentes de los niveles de educación en cada uno de los Estados, para armonizar los procedimientos administrativos que faciliten la ejecución de los acuerdos, resolver aquellas situaciones que no fuesen contempladas por la Tabla de Equivalencias y Correspondencias y velar por el cumplimiento del Convenio,
+Que existe la necesidad de establecer un mecanismo que facilite y garantice la implementación del Convenio entre ambos Estados,
+DECIDEN:
+ARTÍCULO ÚNICO: Aprobar el “Mecanismo para la implementación del Convenio de Reconocimiento de Diplomas y Certificados de Estudios de Educación General Básica y Educación Diversificada o Educación Media y sus Denominaciones Equivalentes entre la República de Costa Rica y la República de Chile”.
+✓ Documentos a presentar para solicitar el Reconocimiento de Estudios: Los (as) interesados(as) deberán presentar la siguiente documentación en original de acuerdo a las normas exigidas en cada uno de los Estados.
+a) Documento de identidad emitido por el país receptor o Pasaporte vigente en original.
+b) Concentración de Notas y/o certificados Anuales de Estudio o certificación de Notas en original.
+c) Licencia de Educación Media o Título de Bachiller en Educación Media (original).
+Los antecedentes escolares citados precedentemente, deberán ser apostillados de acuerdo a lo previsto en la Convención de La Haya que Suprime la Exigencia de Legalización de Documentos Públicos Extranjeros”, adoptada el 5 de octubre de 1961, en La Haya, Países Bajos, de la cual ambos Estados son Partes. Los documentos emitidos por instituciones privadas deberán ser previamente legalizados por la autoridad competente.
+✓ Documentos sin legalizar: Los responsables de las oficinas encargadas del Reconocimiento de Estudios, tendrán a su cargo facilitar la adopción de medidas de urgencia o alternativas, de acuerdo a la legislación de cada Estado, para la inserción escolar, hasta que reingrese la documentación escolar con las legalizaciones respectivas.
+✓ Documentos incompletos o con dificultad de interpretación: Los responsables de las Oficinas encargadas del Reconocimiento de Estudios podrán solicitar al país emisor de la documentación escolar, cuando corresponda, información complementaria para una correcta interpretación.
+✓ De la autenticidad de la documentación escolar: Los responsables de las Oficinas encargadas del Reconocimiento de Estudios del país emisor de la documentación escolar, cuando corresponda, entregarán los elementos necesarios que permitan al país receptor contar con alternativas para la resolución del caso.
+✓ Actualización de las tablas de Equivalencias y Correspondencias: La Tabla de Equivalencia se actualizará cada vez que en uno de los Estados haya modificado la estructura educativa o alguna norma que afecte el sistema educativo y la emisión de la documentación escolar. Para los efectos, la modificación del Anexo N°1 que contiene la citada tabla podrá ser ajustada con la aprobación de los Ministros de Educación de ambos Estados.
+✓ Estudios incompletos: Se admitirá al estudiante con estudios incompletos hasta el inicio del último período lectivo de cada país con la finalidad que el educando esté escolarizado. Asimismo cada Estado determinará los requisitos de promoción de acuerdo a las normas nacionales vigentes sobre la materia.
+Rige a partir de su publicación.
+Dado en la Presidencia de la República, San José a los veintitrés días del mes de mayo del año dos mil diecinueve.

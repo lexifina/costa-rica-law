@@ -1,0 +1,3 @@
+ARTICULO II
+Reconocimiento de Estudios Incompletos
+Los estudios aludidos en el Artículo anterior, realizados en forma incompleta, serán reconocidos a los efectos de la prosecución de los mismos, conforme a la equiparación de cursos/grados/años o sus denominaciones equivalentes aprobados de acuerdo a la Tabla de Equivalencias y Correspondencia que, en Anexo, es parte integrante de este Convenio. Las situaciones que no se pudieran resolver de acuerdo a la Tabla de Equivalencias mencionada, se solucionarán, entre ambas Partes, conforme a criterios técnico-pedagógicos; de no lograr resolver la situación, se recurrirá a la Comisión Bilateral Técnica por la vía diplomática.
