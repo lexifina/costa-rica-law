@@ -1,0 +1,1 @@
+Artículo Décimo Tercero: La Dirección Ejecutiva es la instancia de apoyo de la Comisión Ejecutiva que aplica y da seguimiento a los lineamientos y acciones emanadas de la misma, estableciendo su sede en la República de El Salvador. Sus actividades estarán regidas por lo dispuesto en el Reglamento de Funcionamiento del Proyecto Mesoamérica.

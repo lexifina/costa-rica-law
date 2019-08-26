@@ -1,0 +1,1 @@
+Artículo Décimo Octavo: El Grupo Técnico Interinstitucional (GTI) tiene como propósito apoyar a la Comisión Ejecutiva en el proceso de definición de los proyectos y acciones que promueve el Proyecto Mesoamérica.

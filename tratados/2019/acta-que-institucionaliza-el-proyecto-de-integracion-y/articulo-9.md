@@ -1,0 +1,1 @@
+Artículo Noveno: Se establecerá una Co-Presidencia conjunta de la Comisión Ejecutiva, ejercida por una Presidencia Permanente a cargo de México y una Presidencia Pro Témpore que se ejercerá rotativamente por los demás países miembros del Proyecto Mesoamérica.

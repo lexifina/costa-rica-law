@@ -1,0 +1,1 @@
+Artículo Décimo Sexto: La Comisión de Promoción y Financiamiento tiene como propósito apoyar a los países en la identificación y creación de mecanismos innovadores de financiamiento, así como en la promoción y búsqueda de recursos financieros y de cooperación que se requieran para el diseño y ejecución de los proyectos contemplados en el Proyecto Mesoamérica.

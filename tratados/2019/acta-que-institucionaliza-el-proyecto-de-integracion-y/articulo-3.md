@@ -1,0 +1,1 @@
+Artículo Tercero: El Proyecto Mesoamérica recoge en esta Acta la institucionalidad creada durante el desarrollo del Plan Puebla Panamá, que con probada eficiencia ha apoyado los esfuerzos de cooperación de los Estados Parte.

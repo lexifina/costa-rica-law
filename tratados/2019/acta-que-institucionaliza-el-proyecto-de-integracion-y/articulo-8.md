@@ -1,0 +1,1 @@
+Artículo Octavo: La Comisión Ejecutiva estará integrada por los Comisionados Presidenciales y el Comisionado designado por el Primer Ministro de Belice, y en su caso, por los Comisionados Presidenciales Adjuntos a quienes se delegue este cargo, por parte de los Estados Miembros.

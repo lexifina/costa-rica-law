@@ -1,0 +1,1 @@
+Artículo Séptimo: La Comisión Ejecutiva es la instancia que tendrá a su cargo la planificación, coordinación y seguimiento de la ejecución de todos los proyectos y acciones que se adopten al amparo del Proyecto Mesoamérica.

@@ -1,0 +1,1 @@
+Artículo Décimo Segundo: Las Oficinas Nacionales son las instancias internas que cada país establece de manera formal o funcional, de acuerdo a su normativa, para la operación de todas las actividades derivadas del Proyecto Mesoamérica.
