@@ -1,0 +1,2 @@
+Artículo 3º—Se faculta al Ministerio de Economía, Industria y Comercio para que, en asocio con el Banco Popular y de Desarrollo Comunal, busquen opciones con el Sistema de Banca para el Desarrollo, a fin de robustecer la oferta de productos y servicios de la Banca de Integración Comunitaria.
+Se autoriza a la Dirección Nacional de Desarrollo de la Comunidad a establecer los programas idóneos, a fin de apoyar la participación e integración de las asociaciones de desarrollo comunal amparadas bajo la Ley N° 3859, Ley sobre el Desarrollo de la Comunidad del 07 de abril de 1967.
