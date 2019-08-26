@@ -1,0 +1,1 @@
+ARTÍCULO 2- La selección de los miembros de la Junta Directiva de la Refinadora Costarricense de Petróleo (Recope S.A.), nombrados por el Consejo de Gobierno, será según el procedimiento formal que este establezca para dichos efectos. En ningún caso se nombrarán ministros o viceministros en este órgano colegiado.

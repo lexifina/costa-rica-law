@@ -1,3 +1,1 @@
-Artículo 9.- El Ministro del Ambiente y Energía (**) o, en su ausencia, el Viceministro, formará parte de la Junta Directiva de la Refinadora Costarricense de Petróleo, S.A. y de Minera Nacional, S.A.
-(*) (El nombre del Ministerio fue así reformado el artículo 48 aparte a) de la Ley N° 8660 del 8 de agosto de 2008, Ley de Fortalecimiento y Modernización de las Entidades Públicas del Sector Telecomunicaciones.)
-(**)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
+Artículo 9.- (Derogado por el artículo 1° de la ley N° 9715 del 1° de agosto del 2019, "Impedimento del Consejo de Gobierno para nombrar Ministros o Viceministros en la Junta Directiva de la Refinadora Costarricense de Petróleo (RECOPE)")
