@@ -1,0 +1,7 @@
+CIRCULAR Nº 140-2019
+ASUNTO: Obligatoriedad de aplicar el formulario “Solicitud de Interceptación de Comunicaciones hacia el Centro Judicial de Intervención de las Comunicaciones”, cuando requieran solicitar una interceptación de la comunicaciones.
+A TODAS LAS PERSONAS JUZGADORAS
+EN MATERIA PENAL
+SE LES HACE SABER QUE:
+El Consejo Superior del Poder Judicial en sesión Nº 69-19 celebrada el 06 de agosto de 2019, artículo LVII, dispuso: hacer de conocimiento de todas las personas juzgadoras en materia penal que es obligatorio el uso del formulario “Solicitud de Interceptación de Comunicaciones hacia el Centro Judicial de Intervención de las Comunicaciones”, cuando requieran solicitar una interceptación, prórroga o cese de alguna intervención telefónica. Este deberá venir firmado con firma digital en formato PDF, o en su defecto con firma de puño y letra u holográfica junto con el sello del despacho, y deberá ser remitido al correo electrónico comisiones-cjic@poder-judicial. go.cr. Dicho formulario se encuentra disponible en la Intranet (https://intranet.poder-judicial. go.cr/index.php/servicios/formulari os?download=269:formulariosgenerales&start= 20). El mismo fue aprobado por el Consejo Superior y divulgado mediante circulares número 169-16 y 108-17; así como lo dispuesto por el Protocolo de Administración y Operación del Sistema para el Centro Judicial de Intervención de las Comunicaciones aprobado por Corte Plena en acuerdo número 38-15 del 19 de octubre del 2015, artículo XI.
+San José, 26 de agosto de 2019.
