@@ -1,0 +1,1 @@
+Artículo 9º—Utilidad para el desarrollo: El diez por ciento de utilidad para el desarrollo del servicio, se destinará a la instalación de nuevas infraestructura y mejoras de instalaciones existentes de los parques.

@@ -1,0 +1,1 @@
+Artículo 4º—Dependencia responsable: Corresponderá al Departamento de Gestión Ambiental, quien podrá coordinar a través de otras dependencias del Concejo Municipal, profesionales de Ingeniería y personal de campo, para llevar a cabo la prestación de dicho servicio y el ejercicio de las diferentes actividades que se deben ejecutar.

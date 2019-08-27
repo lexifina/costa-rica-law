@@ -1,0 +1,1 @@
+Artículo 13.—Plazo: Con el fin de que los usuarios cumplan con los trabajos u obras cuya realización le fueron apercibidas, se establecerá un plazo de hasta diez días hábiles, este plazo podrá prorrogarse hasta por otro período igual a solicitud del interesado, mediante solicitud ante el Encargado de Gestión Ambiental.
