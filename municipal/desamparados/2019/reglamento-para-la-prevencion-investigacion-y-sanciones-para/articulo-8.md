@@ -1,0 +1,2 @@
+CAPÍTULO III DEL PROCEDIMIENTO
+Artículo No. 8. Deber de colaboración. Toda dependencia, funcionarios y funcionarias de la Municipalidad de Desamparados están en la obligación de brindar su colaboración cuando así se solicite por el órgano instructor para facilitar su labor y el desempeño cabal del procedimiento.
