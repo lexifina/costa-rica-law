@@ -21,6 +21,7 @@ articulo-20.md
 articulo-21.md
 articulo-22.md
 articulo-23.md
+articulo-23-bis.md
 articulo-24.md
 articulo-25.md
 articulo-26.md
@@ -75,6 +76,7 @@ articulo-72.md
 articulo-73.md
 articulo-74.md
 articulo-75.md
+articulo-75-bis.md
 articulo-76.md
 articulo-77.md
 articulo-78.md
@@ -87,6 +89,8 @@ articulo-84.md
 articulo-85.md
 articulo-86.md
 articulo-87.md
+articulo-87-bis.md
+articulo-87-ter.md
 articulo-88.md
 articulo-88-bis.md
 articulo-88-ter.md
@@ -97,6 +101,7 @@ articulo-92.md
 articulo-93.md
 articulo-94.md
 articulo-95.md
+articulo-95-bis.md
 articulo-96.md
 articulo-97.md
 articulo-98.md
