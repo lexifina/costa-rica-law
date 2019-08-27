@@ -1,0 +1,3 @@
+Artículo 27 Ter: Corresponderá al Alcalde Municipal dictar el Acto de Adjudicación en los Procedimientos de Contratación administrativa Ordinarios y no Ordinarios siempre y cuando la estimación sea menor al monto autorizado anualmente para Contratación Directa por la Contraloría General de la República, de acuerdo con la categoría establecida en los límites Generales de Contratación o de obra pública según sea el caso.
+En todos los demás casos que superen los límites presupuestarios establecidos en el párrafo anterior, corresponderá al Concejo Municipal dictar el acto de adjudicación.
+(Así adicionado mediante acuerdo N° 172-09-2019 y publicado en La Gaceta N° 171 del 11 de setiembre de 2019)
