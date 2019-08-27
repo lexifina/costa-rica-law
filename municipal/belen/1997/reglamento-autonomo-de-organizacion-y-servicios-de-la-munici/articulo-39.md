@@ -1,4 +1,3 @@
-Artículo 39. La suspensión del trabajo se aplicará hasta por quince días y sin goce de salario, salvo excepción contenida en el artículo 73 del Código Municipal, una vez que se haya agotado el procedimiento prescrito en el artículo 154 del Código Municipal, en los siguientes casos:
-a) Cuando el funcionario después de haber sido reprimido por escrito incurra de nuevo en la falta que motivo la reprensión.
-b) Cuando el funcionario viole alguna de las prohibiciones prescritas en los artículos 30 y 31 de éste Reglamento, salvo que la falta diere mérito para el despido o estuviera sancionada por otra disposición de éste Reglamento.
-c) Cuando el servidor cometa alguna falta de cierta gravedad que no de mérito para el despido, excepto si estuviera sancionada de manera especial por otra disposición de este Reglamento.
+CAPÍTULO XIV
+De las llegadas tardías, abandono de trabajo y del despido
+Artículo 39. Llegada tardía: Se considera llegada tardía el ingreso al trabajo después de cinco minutos de la hora exacta para el comienzo de las labores. Sin embargo, en casos muy calificados a juicio del alcalde o quién él delegue se podrá justificar la llegada tardía a efecto de no aplicar la sanción correspondiente.

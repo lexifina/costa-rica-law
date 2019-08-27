@@ -1,1 +1,1 @@
-Artículo 18. Al asignarse recargo de funciones en un puesto de categoría superior, el empleado sustituto tiene derecho a percibir la diferencia entre su salario base y el salario base del puesto de la categoría superior, siempre y cuando el recargo de funciones sea superior a quince días.
+Artículo 18. Disfrute de vacaciones: Los servidores municipales gozarán sin interrupción del período de sus vacaciones, salvo en caso de licencias por incapacidad, según los términos dispuestos en el artículo 158 del Código de Trabajo.

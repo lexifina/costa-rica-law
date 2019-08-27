@@ -1,3 +1,3 @@
-Capítulo XV
-De las llegadas tardías, abandono de trabajo y del despido
-Artículo 45. Se considera llegada tardía el ingreso al trabajo después de cinco minutos de la hora exacta para el comienzo de las labores. Sin embargo en casos muy calificados a juicio del Ejecutivo Municipal o jefe inmediato se podrá justificar la llegada tardía a efecto de no aplicar la sanción correspondiente.
+Artículo 45. Cumplimiento de las medidas de Salud Ocupación: Es deber de la Municipalidad adoptar las medidas necesarias para proteger eficazmente la salud ocupacional de las personas, conforme a la legislación vigente en esta materia y las recomendaciones que sobre la misma formulen tanto las autoridades de Inspección del Ministerio de Trabajo y Seguridad Social, Ministerio de Salud e Instituto Nacional de Seguros que garanticen:
+a. La protección de la salud y la preservación de la integridad física, mental y social de las personas.
+b. La prevención y control de los riesgos del trabajo.

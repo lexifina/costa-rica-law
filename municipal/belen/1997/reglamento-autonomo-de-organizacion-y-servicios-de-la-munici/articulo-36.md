@@ -1,8 +1,3 @@
-Capítulo XIII
-De las sanciones disciplinarias
-Artículo 36. Las faltas en que incurran los trabajadores serán sancionadas con las siguientes medidas disciplinarias:
-a) Amonestación escrita.
-b) Reprensión escrita.
-c) Suspensión del trabajo sin goce de sueldo hasta por 15 días.
-d) Despido sin responsabilidad para la Municipalidad.
-Tales sanciones se aplicarán atendiendo no estrictamente el orden en que aquí aparecen, sino a lo reglamentado en cada caso, o a la gravedad de la falta.
+CAPÍTULO XIII
+De las ausencias
+Artículo 36. Ausencia: Se considera ausencia la inasistencia a un día completo de trabajo. La falta a una mitad de la jornada de trabajo se computará como media ausencia. Dos mitades de una ausencia para efectos de este Reglamento se considera como una ausencia.

@@ -1,1 +1,3 @@
-Artículo 65. En todo aquello no previsto en éste Reglamento sobre acoso u hostigamiento sexual, rige la Ley 7476 de 3 de febrero de 1995, Ley contra el hostigamiento sexual en el empleo y la docencia.
+CAPITULO XIX
+Licencias de estudios
+Artículo 65. Licencias de estudios: El personal de la Municipalidad podrá gozar de licencias para asistir a estudios superiores, o capacitación especializada, a juicio de la Alcaldía Municipal, previa recomendación del Proceso de Recursos Humanos. De resultar procede la licencia se suscribirá el contrato respectivo.

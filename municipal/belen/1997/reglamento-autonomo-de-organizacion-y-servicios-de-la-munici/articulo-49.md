@@ -1,5 +1,5 @@
-Artículo 49. El abandono de trabajo sin causa justificada cuando no implique mayor gravedad, de conformidad con las circunstancias del caso y amerite una sanción mayor, se sancionará de la siguiente forma:
-a) Amonestación o reprensión escrita, la primera vez.
-b) Suspensión sin goce de salario hasta por quince días, la segunda vez.
-c) Despido sin responsabilidad municipal, la tercera vez.
-Estas faltas para efectos de reincidencia se computarán en un lapso de tres meses.
+Artículo 49. Obligaciones de la Municipalidad en materia de salud ocupacional: En esa materia, sin perjuicio de lo establecido en la legislación vigente, es obligación de la Municipalidad:
+a. Permitir a las autoridades competentes la inspección periódica de los centros de trabajo.
+b. Permitir la capacitación del personal en materia de salud ocupacional.
+c. Cumplir con el ordenamiento jurídico y técnico de salud ocupacional.
+d. Proporcionar el equipo y elementos de protección personal y de seguridad en el trabajo y asegurar su uso y funcionamiento.

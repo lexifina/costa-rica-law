@@ -1,2 +1,1 @@
-Del abandono de trabajo y del despido
-Artículo 48. Se considera abandono de trabajo el hacer dejación dentro de la jornada de trabajo de la labor objeto de la relación de servicio. Para efectos de calificar el abandono no es necesario que el servidor salga del lugar donde presta servicios, sino que bastará que de modo evidente abandone la labor que el ha sido encomendadas.
+Artículo 48. Aviso de riesgo: La Municipalidad deberá dar aviso al Instituto Nacional de Seguros de cualquier riesgo del trabajo que le ocurra a su personal, dentro del término de ocho días hábiles a partir de su acaecimiento.

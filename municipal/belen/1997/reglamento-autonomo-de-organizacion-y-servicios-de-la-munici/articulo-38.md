@@ -1,5 +1,5 @@
-Artículo 38. La reprensión por escrito se aplicará
-a) Cuando se haya amonestado al servidor en los términos del artículo anterior e incurra nuevamente en la misma falta en un lapso de tres meses.
-b) Cuando incumpla alguna de las obligaciones establecidas en el artículo 29 y 30 de este reglamento, si la falta no diere mérito para una sanción mayor.
-c) En los casos especialmente previstos en este reglamento.
-d) Cuando las leyes de trabajo exijan la reprensión escrito antes del despido.
+Artículo 38. Ausencias injustificadas: Las ausencias injustificadas computables al final de un mismo mes calendario, se sancionarán de la siguiente forma:
+a. Por media ausencia, amonestación verbal.
+b. Por una ausencia, amonestación escrita.
+c. Por una y media ausencia o dos ausencias alternas, suspensión hasta por ocho días:
+d. Por dos ausencias consecutivas o tres ausencias alternas o más, durante el mismo mes calendario, despido sin responsabilidad municipal.

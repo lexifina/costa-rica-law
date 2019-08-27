@@ -1,4 +1,1 @@
-Artículo 37.
-La amonestación escrita se aplicará en los siguientes casos:
-a) Cuando el trabajador en forma expresa o tácita, cometa alguna falta leve a las obligaciones expresas o tácitas que le impone su contrato o relación de servicio.
-b) En los casos expresamente previstos en éste Reglamento.
+Artículo 37. Comprobación de ausencias: Las ausencias al trabajo deberán ser comprobadas mediante documento expedido por la Caja Costarricense de Seguro Social, por el Instituto Nacional de Seguros, y por cualquier otro documento idóneo a juicio de la Administración.

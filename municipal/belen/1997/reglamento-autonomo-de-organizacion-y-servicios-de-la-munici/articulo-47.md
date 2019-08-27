@@ -1,5 +1,3 @@
-Artículo 47. Las llegadas tardías injustificadas computables dentro de un mismo mes calendario se sancionarán de la siguiente forma:
-a) Por tres llegadas tardías amonestación escrita.
-b) Por cuatro llegadas tardías reprensión escrita.
-c) Por cinco llegadas tardías suspensión sin goce de salario hasta por quince días
-d) Por seis o más llegadas tardías despido sin responsabilidad patronal.
+CAPÍTULO XVI
+De los riesgos del trabajo
+Artículo 47. Riesgos de Trabajo: Son riesgos del trabajo los accidentes y enfermedades profesionales que ocurren a las personas, con ocasión o por consecuencia del trabajo que desempeñan, en forma subordinada y remunerada, así como su agravación o reagravación consecuencia directa del mismo.

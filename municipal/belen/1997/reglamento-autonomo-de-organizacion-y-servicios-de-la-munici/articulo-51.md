@@ -1,4 +1,6 @@
-Capítulo XVI
-De las Comisiones de Salud Ocupacional y de las Condiciones de Seguridad
-e Higiene del Trabajo
-Artículo 51. Declárese de interés público todo lo referente a la salud ocupacional, que tiene como finalidad promover y mantener el más alto nivel de bienestar físico, mental y social del servidor en general, prevenir todo daño causado a la salud de éste por condiciones del trabajo, protegerlo en su empleo contra riesgos resultantes de la existencia de agentes nocivos a la salud, colocar y mantener al servidor en un empleo con sus aptitudes fisiológicas y en síntesis, adaptar el trabajo al hombre y cada hombre a su tarea.
+Artículo 51. Prohibiciones en materia de salud ocupacional: El personal municipal no debe:
+a. Impedir o entorpecer el cumplimiento de las medidas de salud ocupacional.
+b. Remover, sin autorización, los resguardos y protecciones de las máquinas y útiles de trabajo.
+c. Alterar, dañar, destruir los equipos y elementos de protección personal, de seguridad en el trabajo o negarse a usarlos sin motivo justificado.
+d. Manejar, operar o hacer uso de equipo o herramientas de trabajo para los cuales no está capacitado o cuenta con autorización.
+d. Hacer juego o dar bromas que pongan en peligro la vida, salud e integridad personal de otros funcionarios o de terceros.

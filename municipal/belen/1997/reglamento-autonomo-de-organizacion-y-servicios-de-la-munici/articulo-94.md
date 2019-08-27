@@ -1,2 +1,0 @@
-Artículo 94. El servidor que sea declarado en disponibilidad, tendrá derecho a que se le pague un sobresueldo por concepto de disponibilidad, siempre que en el ejercicio de sus funciones deba emplear tiempo adicional a su jornada ordinaria de trabajo.
-El sobresueldo por disponibilidad será un porcentaje del salario base que se fijará al dictar la resolución correspondiente. El porcentaje será de un 20% a un 40% como máximo del citado salario base.

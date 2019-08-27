@@ -1,1 +1,1 @@
-Artículo 62. En la fase instructiva, se podrán adoptar medidas cautelares a fin de cesar temporalmente los efectos del hecho lesivo al denunciante y hasta tanto se resuelva en definitiva.
+Artículo 62. Llamado por disponibilidad: Se establecen 30 minutos como tiempo máximo para que la persona responda al llamado cuando así se le requiera, independientemente de los medios de comunicación y movilización con que cuente. El incumplimiento de esta disposición facultará a la Administración para dar por finalizado el contrato de disponibilidad.

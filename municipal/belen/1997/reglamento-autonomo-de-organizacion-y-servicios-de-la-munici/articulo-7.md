@@ -1,2 +1,3 @@
-Artículo 7. Los contratos de trabajo o acciones de personal se harán en tres tantos uno para la Municipalidad para efectos de trámite interno, otro para el funcionario interesado y la tercera para el expediente de personal.
-Pese a lo dispuesto en los artículos anteriores se presume la existencia de la relación de empleo entre la Municipalidad y quienes presten sus servicios personales en forma subordinada y a cambio de una retribución o salario de cualquier clase o forma, por el simple hecho de la prestación de servicios.
+CAPÍTULO III
+Lugar, Jornada y Horario de trabajo
+Artículo 7. Lugar, jornada y horario: Los servidores municipales y demás personal prestarán su servicio en el lugar, jornada y horario que así designe la administración municipal, según las exigencias del servicio público y según el ordenamiento jurídico aplicable al efecto.

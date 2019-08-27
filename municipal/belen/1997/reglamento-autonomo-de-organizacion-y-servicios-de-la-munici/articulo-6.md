@@ -1,3 +1,1 @@
-Capítulo II
-De los contratos de trabajo
-Artículo 6. Todo servidor de la Municipalidad deberá estar amparado por un contrato de trabajo o acción de personal que contendrá en términos amplios, las cláusulas y estipulaciones particulares que regulen la prestación del servicio, así como el nombre del puesto, salario, jornada de trabajo, lugar de prestación de servicios y cualquier otro aspecto de interés.
+Artículo 6. Modalidades especiales: Tanto el personal nombrado en puestos clasificados como de confianza, como aquel contratado a plazo fijo, por la subpartida de servicios especiales y jornales ocasionales no quedarán cubiertos por los derechos y beneficios de la Carrera Administrativa Municipal, aunque desempeñen puestos comprendidos en ella. Sin embargo, le serán aplicables las disposiciones del presente reglamento en lo que corresponda.

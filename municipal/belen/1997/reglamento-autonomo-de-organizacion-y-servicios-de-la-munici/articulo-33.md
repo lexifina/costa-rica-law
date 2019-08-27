@@ -1,11 +1,4 @@
-Capítulo XII
-Del registro de asistencias
-Artículo 33. El registro de asistencia y puntualidad al trabajo, se llevará para todos los empleados de la municipalidad por medio de un reloj marcador y se encontrará instalado en la entrada del centro de labores.
-El control de asistencia se regirá por las disposiciones siguientes:
-a) El registro de asistencia se llevará por medio de tarjetas individuales que deberán ser marcadas en un reloj marcador, tanto al iniciarse cada fracción de jornada cono al terminar la misma.
-b) Todo trabajador deberá marcar su tarjeta. Quedan excluidos de esta obligación los servidores que expresamente exime al Ejecutivo Municipal y que por la naturaleza de sus funciones les corresponda habitualmente prestar sus servicios en lugares fuera de la oficina o permanecer en giras.
-No podrá hacerse discriminación alguna entre funcionarios del mismo rango. El Ejecutivo podrá aplicar sanciones a quienes abusen de esta prerrogativa.
-c) Las marcas en las tarjetas de asistencia deberán hacerse con cuidado de manera que queden impresas con claridad. Las marcas defectuosas manchadas o confusas, que no se deban a deficiencias del reloj, se tendrán por no hechas, salvo que cumplan con lo establecido en el inciso g) de este artículo.
-d) Salvo los casos previstos en este reglamento, la omisión de una marca en la tarjeta de asistencia, a cualquiera de las horas de entrada y de salida, hará presumir la inasistencia, siempre y cuando el trabajador no la justifique a más tardar en la fracción de jornada siguiente a aquella en la que el hecho sucedió.
-e) El servidor que intencionalmente o por complacencia marque la tarjeta de otro servidor, incurrirá en falta grave, haciéndose acreedor, por la primera vez a suspensión disciplinaria hasta por ocho días, y en el caso de reincidencia, despido sin responsabilidad patronal para la Municipalidad, Igual sanción se le aplicará al servidor que se le comprueba haber consentido que otro le marcara la tarjeta de ingreso y / o salida. Estas faltas se computarán, para efectos de reincidencia en un lapso de tres meses.
-g) El servidor podrá justificar mediante formulario preparado por el Departamento de Personal las marcas defectuosas, manchadas, confusas u omisas, cuando obedezcan a situaciones accidentales y ajenas a su voluntad.
+Artículo 33. Suspensión del trabajo: La suspensión del trabajo se aplicará hasta por quince días y sin goce de salario, una vez que haya finalizado el procedimiento que garantice el derecho de defensa del funcionario o trabajador municipal, en los siguientes casos:
+a. Cuando la persona, después de haber sido amonestado por escrito, incurra de nuevo en la falta que motivo la amonestación.
+b. Cuando la persona viole alguna de las prohibiciones prescritas en el artículo 30 de este Reglamento, salvo que la falta diere mérito para el despido o estuviera sancionada por otra disposición de este Reglamento.
+c. Cuando la persona cometa alguna falta de cierta gravedad que no de mérito para el despido, excepto si estuviera sancionada de manera especial por otra disposición de este Reglamento.

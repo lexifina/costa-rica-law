@@ -1,3 +1,1 @@
-Capítulo IV
-Categorías y salarios
-Artículo 16. Los salarios de los servidores serán los que correspondan de acuerdo con la categoría del puesto que desempeña, que en ningún caso podrá ser inferior a los mínimos legales establecidos por Decreto Ejecutivo. El Ejecutivo Municipal elaborará y mantendrá al día un Manual Descriptivo de puestos de acuerdo con el artículo 142 del Código Municipal. Cuando se modifiquen las fijaciones de salarios mínimos la Municipalidad deberá ajustar sus salarios en la proporción correspondiente.
+Artículo 16. Época de disfrute: El superior inmediato señalará la época en que el personal gozará de sus vacaciones, pero deberá hacerlo dentro de las quince semanas posteriores al día en que se cumplieren las cincuenta semanas de servicio continuo, tratando de que no se altere la buena marcha de la Municipalidad ni la efectividad del descanso. En casos especiales el alcalde convendrá con el servidor la fecha en que gozarán las vacaciones.

@@ -1,7 +1,8 @@
-Artículo 30. Además de lo dispuesto en este Reglamento y artículo anterior, son obligaciones de los jefes de Departamento o Sección:
-a) Velar por el cumplimiento de las funciones a él encomendadas y hacer que sus subalternos cumplan con sus obligaciones, supervisando y asesorando diligentemente al personal a su cargo.
-b) Velar por las faltas que cometan sus subalternos, informando inmediatamente y por escrito al Ejecutivo Municipal, para la aplicación del procedimiento disciplinario y sanción correspondiente.
-c) Evitar que se cometan irregularidades en su departamento o sección.
-d) Tomar las precauciones necesarias para prevenir posibles riesgos de trabajo.
-e) Velar por la disciplina y asistencia de los funcionarios a su cargo, informando sobre cualquier anomalía al Ejecutivo Municipal.
-f) Rendir los informes que en cualquier momento le solicite el Ejecutivo Municipal o el Concejo Municipal.
+CAPÍTULO XII
+De las sanciones disciplinarias
+Artículo 30. Medidas disciplinarias: Las faltas en que incurra el personal municipal serán sancionadas con las siguientes medidas disciplinarias:
+a. Amonestación verbal.
+b. Amonestación escrita.
+c. Suspensión del trabajo sin goce de sueldo hasta por 15 días.
+d. Despido sin responsabilidad para la Municipalidad.
+Tales sanciones se aplicarán atendiendo no estrictamente el orden en que aquí aparecen, sino a lo reglamentado en cada caso, o a la gravedad de la falta.

@@ -1,6 +1,1 @@
-Artículo 57. Todo servidor deberá acatar y cumplir, la legislación y reglamentos vigentes en ésta materia y las normas que se promulguen en el futuro, así como las recomendaciones que, formulen las autoridades competentes.
-Serán obligaciones del funcionario en ésta materia, sin perjuicio de lo dispuesto en legislación vigente, las siguientes:
-a) Someterse a los exámenes médicos que por ley o por ordenen de las autoridades competentes sean necesarios, de cuyos resultados deberá ser informado.
-b) Colaborar y asistir a los programas que procuren su capacitación, en materia de salud ocupacional.
-c) Participar en la elaboración, planificación y ejecución de los programas de salud ocupacional en los centros de trabajo.
-ch) Utilizar, conservar y cuidar el equipo y elementos de protección personal y de seguridad en el trabajo que se le suministren.
+Artículo 57. Pago: El pago de sobre sueldo por disponibilidad no crea en favor de quien lo recibe, derechos adquiridos, dado que el acuerdo de pago de sobresueldo es por circunstancias particulares y excepcionales de tiempo y lugar que pueden variar, asimismo es una contraprestación a un servicio que se da en la Municipalidad. Cuando desaparezcan los motivos que originaron la declaratoria de la persona en disponibilidad, la jefatura inmediata lo debe de comunicar al Proceso de Recursos Humanos para que realice los cambios necesarios.

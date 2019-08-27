@@ -1,5 +1,3 @@
-Artículo 44. Las ausencias injustificadas computables al final de un mismo mes calendario, se sancionarán de la siguiente forma:
-a) Por media ausencia, amonestación escrita.
-b) Por una ausencia, reprensión escrita.
-c) Por una y media ausencia o dos ausencias alternas, suspensión hasta por ocho días:
-d) Por dos ausencias consecutivas o tres ausencias alternas o más, durante el mismo mes calendario, despido sin responsabilidad municipal.
+CAPÍTULO XV
+De las Comisiones de Salud Ocupacional y de las Condiciones de Seguridad e Higiene del Trabajo
+Artículo 44. Salud Ocupacional: Declárese de interés público todo lo referente a la salud ocupacional, que tiene como finalidad promover y mantener el más alto nivel de bienestar físico, mental y social de las personas, prevenir todo daño causado a la salud de éste por condiciones del trabajo, protegerlo en su empleo contra riesgos resultantes de la existencia de agentes nocivos a la salud, colocar y mantener al servidor en un empleo con sus aptitudes fisiológicas y en síntesis, adaptar el trabajo al hombre y cada hombre a su tarea.

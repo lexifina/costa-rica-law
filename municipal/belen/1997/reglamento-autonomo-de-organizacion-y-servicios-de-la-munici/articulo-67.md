@@ -1,3 +1,3 @@
-Artículo 67. Los objetivos básicos de la Carrera Profesional son:
-a) Reconocer por medio de un estímulo económico la superación académica y laboral de los profesionales al servicio de la administración municipal.
-b) Coadyuvar en el reclutamiento y retención de los profesionales mejor calificados en cada área de actividad para un adecuado desempeño de la función municipal.
+Artículo 67. Normativa supletoria: En defecto de las disposiciones propias de este Reglamento, deberán tenerse como supletorias el Código Municipal, el Estatuto de Servicio Civil y su Reglamento, el Código de Trabajo y, la Ley General de la Administración Pública, así como demás disposiciones normativas conexas en la materia Transitorio único: El Personal Municipal de pago semanal contará con un plazo de seis meses para ajustarse a la modalidad bisemanal de pago.
+SE ACUERDA: No habiendo conocido objeciones a la Reforma al Reglamento Autónomo de Servicio de la Municipalidad de Belén, queda el mismo definitivamente aprobado y entra en vigencia a partir de la presente publicación.
+San Antonio de Belén, Heredia. 04 de Setiembre del 2019.

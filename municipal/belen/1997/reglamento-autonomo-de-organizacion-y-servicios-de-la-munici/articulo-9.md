@@ -1,1 +1,1 @@
-Artículo 9. En todo contrato de trabajo o relación de servicio por tiempo indeterminado habrá un período de prueba de tres meses. Durante este período y sin previo aviso, cualquiera de las partes podrá ponerle término al contrato o relación de servicio que lo une.
+Artículo 9. Tiempo efectivo de trabajo: Se considera tiempo efectivo de trabajo aquel en que las personas permanezcan bajo las órdenes y dirección inmediata o delegada de su superior, incluso en los tiempos destinados para tomar alimentos.

@@ -1,1 +1,4 @@
-Artículo 41. La amonestación o reprensión escrita, la suspensión sin goce de salario o el despido sin responsabilidad patronal, deberán imponerse dentro del mes siguiente al día en que se cometió la falta o el Ejecutivo Municipal o representantes patronales tuvieron conocimiento de la misma.
+Artículo 41. Llegadas tardías en un mismo mes: Las llegadas tardías injustificadas computables dentro de un mismo mes calendario se sancionarán de la siguiente forma:
+A. Por tres llegadas tardías amonestación escrita.
+B. Por cinco llegadas tardías suspensión sin goce de salario hasta por quince días.
+C. Por seis o más llegadas tardías despido sin responsabilidad patronal.

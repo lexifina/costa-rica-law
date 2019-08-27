@@ -1,5 +1,3 @@
-Capítulo VI
-Del descanso semanal y de la jornada
-Artículo 23. Todos los empleados de la Municipalidad disfrutarán de un día fijo de descanso absoluto después de cada semana o cada seis días de trabajo continuo.
-Por convenio de partes se permitirá trabajar durante el día de descanso semanal, siempre y cuando se remunere esa jornada con el doble del salario que ordinariamente se pague, por razones de interés público – social.
-Durante la jornada diaria continua, habrá un descanso mínimo obligatorio de cuarenta y cinco minutos, que deberá darse a los trabajadores y que será establecido según lo disponga la Dirección Ejecutiva, mediante la correspondiente resolución administrativa debidamente motivada.
+CAPÍTULO VIII
+Del aguinaldo
+Artículo 23. Derecho al aguinaldo: Todo el personal municipal permanente o transitorio, tendrá derecho a un aguinaldo, que se regirá por lo que dispone la Ley. El monto de ese beneficio anual será calculado con base en el promedio de los sueldos ordinarios y extraordinarios devengados por estos durante los doce meses anteriores al primero de diciembre del año de que se trate. Dicho beneficio deberá ser entregado dentro de los primeros quince días del mes de diciembre de cada año, salvo terminación de la relación de servicio o el correspondiente trabajo antes del vencimiento del período respectivo, caso en el cual se le pagará proporcionalmente y de manera inmediata.

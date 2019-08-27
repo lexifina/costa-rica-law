@@ -1,1 +1,5 @@
-Artículo 32. El empleado que cometa alguno de los actos señalados en el artículo anterior o que cumpla alguna de las obligaciones a que se refieren los artículos 29 y 30 de este Reglamento será sancionado conforme a éste Reglamento.
+Artículo 32. Amonestación escrita: La amonestación por escrito se aplicará
+a. Cuando se haya amonestado dos veces a la persona en los términos del artículo anterior e incurra nuevamente en la misma falta en un lapso de un mes.
+b. Cuando incumpla alguna de las obligaciones establecidas en los artículos 28 y 29 de este reglamento, salvo que la falta de mérito para una sanción mayor.
+c. En los casos especialmente previstos en este reglamento.
+d. Cuando la normativa aplicable exija la reprensión escrito antes del despido.

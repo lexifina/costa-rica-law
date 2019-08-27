@@ -1,6 +1,3 @@
-Artículo 12. En la Municipalidad regirá el siguiente horario:
-Personal administrativo: Jornada continua y acumulativa diaria de 9 horas con un horario de lunes a viernes de las 7 horas a las 16 horas, para una jornada semanal de 45 horas.
-(Así reformado el párrafo anterior mediante sesión ordinaria N° 37-2018 del 19 de junio del 2018)
-Personal de Servicios Básicos: jornada continua y acumulativa diaria de ocho horas y treinta minutos, con un horario de lunes a viernes de las seis horas a las catorce horas y treinta minutos, para una jornada semanal de cuarenta y dos horas y treinta minutos.
-Biblioteca: Jornada continua y acumulativa diaria de 8 horas, con horario de lunes a viernes de las 10 horas a las 18 horas, para una jornada semanal de 40 horas.
-(Así reformado el párrafo anterior mediante sesión ordinaria N° 37-2018 del 19 de junio del 2018)
+CAPÍTULO IV
+Categorías y salarios
+Artículo 12. Cálculo de los salarios: Los salarios del personal municipal, se calcularán en forma mensual (30 días del mes) y serán los que correspondan de acuerdo con la escala de salarios aprobada por la Municipalidad, según los términos del artículo 131 del Código Municipal y las políticas salariales dictadas por el Concejo Municipal. El alcalde elaborará y mantendrá al día un Manual Descriptivo de Puestos de acuerdo con el artículo 129 del Código Municipal. Por incremento por costo de vida semestral, la Municipalidad deberá ajustar sus salarios en la proporción correspondiente. La Municipalidad aplicará las disposiciones normativas en materia de Prohibición, Dedicación Exclusiva, Carrera Profesional, incentivos policiales, según los términos regulados por el Poder Ejecutivo, sin perjuicio de las disposiciones particulares que al efecto emita la Administración Municipal.

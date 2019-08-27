@@ -1,2 +1,3 @@
-Artículo 53. En la Municipalidad se establecerán las comisiones de salud ocupacional que, a juicio del Concejo de Salud ocupacional, sean necesarias.
-Estas comisiones deberán estar integradas con igual número de representantes del Patrono y de los servidores y tendrán como finalidad específica investigar las causas de los riesgos de trabajo, determinar las medidas para prevenirlos y vigilar para que en el centro de trabajo, se cumplan las disposiciones de salud ocupacional. Operarán dentro de la jornada de trabajo sin perjuicio o menoscabo de ninguno de los derechos labores que correspondan al servidor.
+CAPÍTULO XVIII
+Del Régimen de Disponibilidad
+Artículo 53. Disponibilidad: Por disponibilidad entendemos el compromiso formal que adquiere la persona de estar disponible en horas y días fuera de la jornada ordinaria de trabajo, incluidos sábados, domingos, feriados y períodos de vacaciones colectivas, con el fin de atender el llamado que se le formule para garantizar la continuidad de un servicio público.
