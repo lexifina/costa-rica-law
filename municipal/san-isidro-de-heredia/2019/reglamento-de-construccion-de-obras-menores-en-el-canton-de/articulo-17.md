@@ -1,0 +1,1 @@
+Artículo 17.—Derogaciones. Con la entrada en vigencia del presente Reglamento, se deroga cualquier disposición municipal interna que le contravenga y se complementa lo dispuesto en el Plan Regulador del cantón de San Isidro en materia de control constructivo.

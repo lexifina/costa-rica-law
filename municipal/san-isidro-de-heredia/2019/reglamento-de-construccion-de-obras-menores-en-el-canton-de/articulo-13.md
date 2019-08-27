@@ -1,0 +1,3 @@
+Artículo 13.—Valoración técnica. El funcionario o funcionaria municipal de la Dirección de Desarrollo Urbano, tendrá la facultad de rechazar el otorgamiento de la licencia constructiva para obra menor, de lograr verificarse que la información contenida en el presupuesto de obra es falso u omiso en alguno de los costos que ha de implicar el desarrollo del proyecto.
+Asimismo, el personal municipal deberá, en razón de los
+principios de razonabilidad, proporcionalidad, lógica, conveniencia y eficiencia valorar y otorgar la licencia respectiva de obra menor siempre y cuando la obra menor este explícitamente indicada en los artículos anteriores y no afecte los sistemas estructurales, eléctrico o mecánico de una edificación existente.
