@@ -1,6 +1,7 @@
 CAPÍTULO V
 SANCIONES PARA LOS RESPONSABLES DE LOS
 MEDIOS DE TRANSPORTE INTERNACIONAL
-ARTÍCULO 170.-
-En caso de que las empresas o agencias propietarias, representantes, explotadoras o consignatarias de un medio de transporte internacional se nieguen a cumplir las obligaciones impuestas por la presente Ley, la Dirección General de Migración y Extranjería podrá impedir su salida del territorio nacional, hasta que sean cumplidas las obligaciones pertinentes. Para ello, la Dirección General podrá solicitar el apoyo de los distintos cuerpos policiales o de las autoridades administrativas del país.
-Mediante el Reglamento de la presente Ley, se determinará lo relativo a la multa de diez mil dólares moneda de los Estados Unidos de América (US$10 000,00), por infracción de la presente Ley.
+Artículo 170- La Dirección General de Migración y Extranjería podrá impedir la salida a un medio de transporte internacional del territorio nacional, en caso de que las empresas o agencias propietarias, representantes, explotadoras o consignatarias de ese medio de transporte se nieguen a cumplir las obligaciones impuestas por la normativa vigente hasta que sean cumplidas. Para ello, la Dirección General de Migración y Extranjería podrá solicitar el apoyo de los distintos cuerpos policiales o de las autoridades administrativas del país.
+El medio de transporte internacional que abandone el territorio costarricense sin la debida autorización de la Dirección General, será sancionado con una multa de diez mil dólares, moneda de los Estados Unidos de América (US$10.000,00), o su equivalente en colones, según el tipo de cambio oficial de venta que determine el Banco Central de Costa Rica (BCCR), para el día en que se realice el pago.
+La responsabilidad del medio de transporte se determinará mediante un procedimiento administrativo ordinario, conforme a las normas que al efecto establece la Ley N.° 6227, Ley General de la Administración Pública, de 2 de mayo de 1978. La multa integrará el fondo especial creado mediante el artículo 231 de la presente ley.
+(Así reformado por el artículo único de la ley N° 9730 del 27 de agosto de 2019)
