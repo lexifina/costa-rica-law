@@ -1,0 +1,24 @@
+CONTRALORÍA GENERAL DE LA REPÚBLICA
+RESOLUCIONES
+R-DC-69-2019.—Despacho Contralor.—Contraloría General de la República.—San José, a las catorce horas del dieciocho de julio de dos mil diecinueve.
+Considerando:
+I.—Que conforme lo dispuesto en el artículo 183 de la Constitución Política, la Contraloría General de la República es auxiliar de la Asamblea Legislativa en la vigilancia superior de la hacienda pública, confiriéndole en el artículo 184 de ese cuerpo normativo, entre otros, el deber y la atribución de examinar, aprobar o improbar los presupuestos de las municipalidades e instituciones autónomas, así como fiscalizar la ejecución y liquidación de los presupuestos públicos.
+II.—Que de acuerdo con lo dispuesto en los artículos 4° y 8° de la Ley Orgánica, N° 7428, la Contraloría General ejerce su competencia de control y fiscalización sobre todos los entes y órganos, públicos y privados que integran la Hacienda Pública.
+III.—Que el presupuesto es la expresión financiera del plan operativo de las instituciones y en consecuencia los sujetos pasivos deben fundamentar sus presupuestos en la planificación operativa, la cual se sustenta en la planificación de mediano y largo plazo. Lo anterior, según la normativa aplicable, Ley de la Administración Financiera de la República y Presupuestos Públicos N° 8131, Ley de Planificación Nacional N° 5525, Ley de fortalecimiento y Modernización de las Entidades Públicas del Sector Telecomunicaciones N° 8660, Ley General de Telecomunicaciones N° 8642, Ley Reguladora del Mercado de Seguros Ley N° 8653, Código Municipal Ley N° 7794, entre otras.
+IV.—Que los artículos 10, 11 y 12 de la Ley N° 7428, designan a la Contraloría General de la República como órgano rector del Sistema de Control y Fiscalización Superiores de la Hacienda Pública, confiriéndole facultades para emitir disposiciones, normas, políticas y directrices de acatamiento obligatorio por parte de los sujetos pasivos, para el uso correcto de los fondos públicos.
+V.—Que resulta necesario el desarrollo de sistemas que faciliten información oportuna y confiable sobre el comportamiento financiero del sector público nacional, como apoyo a los procesos de toma de decisiones y de evaluación de la gestión.
+VI.—Que mediante la resolución R-DC-54-2010 de las ocho horas del doce de marzo de dos mil diez, publicada en el Diario Oficial La Gaceta N° 66 del 07 de abril de 2010, se emitieron las Directrices generales a los sujetos pasivos de la Contraloría General de la República para el adecuado registro y validación de información en el sistema de información sobre planes y presupuestos (SIPP) (D-1-2010-DC-DFOE), estableciendo la obligatoriedad por parte de los sujetos pasivos de su fiscalización, de incluir en dicho sistema la información presupuestaria. Normativa que es preciso ajustar a las demandas, requerimientos y posibilidades actuales.
+VII.—Que en atención a los principios de eficiencia, eficacia, economía, transparencia y rendición de cuentas tener la información sistematizada permite su acceso oportuno para la toma de decisiones, así como un ejercicio más eficiente de las atribuciones asignadas al órgano contralor.
+VIII.—Que con fundamento en lo antes expuesto es necesario actualizar el marco normativo básico que oriente un adecuado registro y validación de la información en el Sistema de Información sobre Planes y Presupuestos (SIPP). Por tanto,
+SE RESUELVE:
+1°—Reformar el inciso g) del apartado 3 “ámbito de aplicación” y el párrafo segundo del apartado 7 de las Directrices Generales a los sujetos pasivos de la Contraloría General de la República para el adecuado registro y validación de información en el Sistema de Información sobre Planes y Presupuestos (SIPP), R-DC-54-2010 de las ocho horas del doce de marzo de dos mil diez, en los siguientes términos:
+1- Se modifica el inciso g) del apartado 3°- Ámbito de Aplicación.
+El texto es el siguiente:
+“(…)
+g) Entes públicos no estatales
+(…)”
+2- Se modifica el párrafo segundo del apartado 7° Sobre el registro y validación de la información en el SIPP, para las entidades incluidas en el ámbito de aplicación, con excepción de entes y órganos cuyos presupuestos forman parte del Presupuesto Ordinario y Extraordinario de la República. El texto es el siguiente
+“(…)
+La información que cada Administración registre en el SIPP, deberá en todo momento ser coincidente con la que se genera a lo interno de ella, y deberá registrarse al nivel de desagregación que señale el Manual modular del usuario externo del SIPP, utilizando los clasificadores de ingresos, por objeto del gasto y el económico del sector público, así como cualquier otro clasificador que mediante acto motivado determine la Gerencia de la División de Fiscalización Operativa y Evaluativa.
+(…)”
+2°—Estas reformas rigen a partir de su publicación en el Diario Oficial La Gaceta.
