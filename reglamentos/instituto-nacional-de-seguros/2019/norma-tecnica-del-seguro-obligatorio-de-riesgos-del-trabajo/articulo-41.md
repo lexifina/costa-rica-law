@@ -1,0 +1,4 @@
+CAPÍTULO X Disposiciones sobre Indemnizaciones
+Art 41.Procedimiento en caso de siniestro
+De conformidad con lo estipulado en el artículo 214 del Código de Trabajo, ante la ocurrencia de un accidente o enfermedad de trabajo, el Tomador del seguro deberá completar y presentar el formulario denominado “Aviso de accidente o enfermedad de trabajo y orden de atención médica”, vía electrónica por medio del sistema RT-Virtual o mediante el formulario físico dispuesto por el INS para este fin en cualquiera de los centros médicos de la Red de Servicios de Salud del INS, detallados en la información concerniente al Grupo INS en la página www.ins-cr.com.
+Una vez presentado dicho formulario, el trabajador puede presentarse en el Centro de Salud del INS más cercano a su trabajo o lugar de residencia, para recibir las prestaciones médicas que le otorga el seguro de conformidad con lo dispuesto en el artículo 218 del citado código.

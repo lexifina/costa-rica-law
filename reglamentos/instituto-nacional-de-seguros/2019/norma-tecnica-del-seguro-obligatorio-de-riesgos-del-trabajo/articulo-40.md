@@ -1,0 +1,3 @@
+Art. 40 Plazo para anular la planilla e inclusión de nuevos asegurados
+Si por algún motivo el Tomador del seguro requiere anular el envío de una planilla o una “Inclusión de nuevos asegurados”, dicha anulación deberá realizarse el mismo día que remitió el reporte directamente en el sistema RT-Virtual, a más tardar las 22 horas (10 de la noche).
+De no efectuarse la anulación del envío del formulario en el plazo señalado anteriormente, el Tomador del seguro podrá solicitarla por escrito al INS indicando las razones correspondientes, siempre y cuando lo realice dentro de los 5 días hábiles posteriores a la fecha de envío del formulario.

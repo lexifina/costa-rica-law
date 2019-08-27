@@ -1,0 +1,3 @@
+Artículo 23.Certificación de proyectos de construcción
+En aplicación de lo que dispone el artículo 202 del Código de Trabajo, el documento que respalda ante cualquier instancia que una póliza de este seguro para la actividad de construcción se encuentra vigente y cubre determinado proyecto, es la “Certificación de proyectos de construcción” otorgada por el INS ya sea de forma física en original o magnética con firma digital.
+No obstante, la entrega de esta certificación queda sujeta a que el monto asegurado en la póliza sea suficiente para cubrir la estimación de los salarios declarados, según la vigencia y forma de pago de la póliza, de lo contrario se deberá efectuar el pago de la prima correspondiente previo a su entrega.

@@ -1,0 +1,3 @@
+Art 39 Plazo para la exclusión de nuevos asegurados
+Si por algún motivo el Tomador del seguro requiere excluir un trabajador de nuevo ingreso en el mismo mes de inicio de labores, dicha exclusión podrá solicitarla por escrito al INS, a partir del día que defina el cese de la relación laboral, con el fin de registrar en la “Planilla de inclusión” los días realmente laborados.
+El Tomador del seguro siempre deberá incluir el salario y los días laborados por ese trabajador en la planilla del período correspondiente con las observaciones respectivas, de tal forma que el monto que se reportó por ese trabajador no sea considerado en caso de que se registre una planilla sustituida posterior a ese período de planilla.

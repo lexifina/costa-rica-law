@@ -1,0 +1,11 @@
+Artículo 19.Plazo para el pago de la prima
+1. Emisión, rehabilitación y extensión de vigencia
+Las primas de emisión, rehabilitación y extensión de vigencia del seguro deberán ser pagadas a más tardar el día de inicio de vigencia del recibo, por lo que no cuentan con período de gracia para el pago respectivo.
+En caso de que alguno de estos recibos se pague después del plazo señalado, la fecha de inicio de vigencia del recibo será modificada por el INS, a la fecha en que se efectuó el pago del mismo y se emitirá un addendum para el Tomador del seguro notificando el cambio realizado. De no recibirse el pago de la prima, el INS procederá con la anulación del trámite.
+2. Renovación o abono
+El INS otorgará un período de gracia de 10 días hábiles para realizar el pago de la prima de renovación o abono, contados a partir de la fecha de inicio de vigencia del recibo, excepto para las pólizas RT-Adolescente que no cuentan con período de gracia, según lo estipulado en el artículo 11 del Reglamento al Seguro por Riesgos del Trabajo para trabajo independiente y por cuenta propia realizado por personas adolescentes.
+En caso de que la prima adeudada se pague mediante depósito bancario después del plazo señalado, el INS procederá a aplicarla como rehabilitación de la póliza, tomando como referencia para la fecha de inicio de vigencia del recibo de rehabilitación, la fecha en que se efectuó el depósito. Del cambio se emitirá un addendum para informar al Tomador del seguro de la variación efectuada.
+De no recibirse el pago de la prima, el INS procederá a dar por terminado el contrato de seguro, generándose un período de no cobertura de los eventos que ocurran durante el tiempo que permanezca sin vigencia la póliza.
+3. Liquidación
+El INS otorgará un plazo de 10 días hábiles para realizar el pago de la prima de liquidación, contados a partir de la fecha de notificación de la deuda; de no efectuarse el pago en este plazo, el INS realizará el cobro por la vía judicial.
+El INS se reservará el derecho de informar al Estado, municipalidades e instituciones públicas y privadas, sobre el incumplimiento en que ha incurrido el Tomador del seguro, a fin de que procedan según corresponda, para cumplir con lo dispuesto en los artículos 202 y 203 del Código de Trabajo.

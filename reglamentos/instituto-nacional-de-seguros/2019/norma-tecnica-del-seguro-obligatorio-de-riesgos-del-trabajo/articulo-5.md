@@ -1,0 +1,2 @@
+Artículo 5. Participación en programas de beneficios e incentivos
+El Tomador del seguro que posea una o más pólizas permanentes en estado vigente con una antigüedad superior a 2 períodos de vigencia anual continuos, podrá participar en los programas de beneficios e incentivos que a discreción del INS se considere pertinente otorgar. Se excluyen de dicha participación las pólizas de período corto, RT-Adolescente, RT Agrícola, RT-Hogar, RT-Independiente y RT-Ocasional.
