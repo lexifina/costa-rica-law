@@ -1,0 +1,1 @@
+Artículo 2º—La importación a que se refiere el artículo anterior será realizada por la Corporación Arrocera Nacional, según lo dispuesto en el artículo 37 y concordantes de la Ley de Creación de la Corporación Arrocera, Ley N° 8285 del 30 de mayo de 2002, para el período comprendido desde el 27 de agosto de 2019 hasta el 30 de junio de 2020.
