@@ -76,7 +76,7 @@ Osteomuscular. | Artículo No. 130 |
 Radiología Intervencionista. | Artículo No. 131 |
 Radiología Pediátrica. | Artículo No. 132 |
 Radiología Torácica. | Artículo No. 133 |
-Subespecialidad de la Radioterapia. Artículo No. 134 |
+Subespecialidades en la Oncología Artículo No. 134 Radioterápica. (Así reformado el párrafo anterior en sesión 2019-08-28 del 28 de agosto de 2019) |
 Radioterapia Pediátrica. | Artículo No. 135 |
 Subespecialidades de la Urología. Artículo No. 136 |
 Urología Pediátrica Ginecología Urológica (Así adicionada la subespecialidad anterior mediante sesión ordinaria 2015-08-12 del 12 de agosto de 2015) | Artículo No. 137 |
