@@ -1,0 +1,16 @@
+# Decreto Ejecutivo 41937
+
+Reglamento del Consejo Fiscal
+
+- Tipo: Decreto Ejecutivo
+- Número: 41937
+- Fecha: 2019-08-01
+- Ente emisor: Poder Ejecutivo
+- Publicación: La Gaceta N° 161 del 2019-08-28, Alcance 191
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=89492&param2=117505&param3=1 (ficha 89492)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 2019-08-28 | la propia norma |

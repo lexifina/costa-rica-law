@@ -1,0 +1,9 @@
+Artículo 8º. - Funciones del Consejo Fiscal.
+Las funciones del Consejo Fiscal que contribuirán al fortalecimiento de la transparencia, manejo, disciplina y sostenibilidad fiscal, serán las siguientes:
+a) Emitir opinión acerca de las proyecciones de las variables fiscales realizadas por el Ministerio de Hacienda y sobre las contempladas en el Marco Fiscal de Mediano Plazo y las variables macroeconómicas base para la preparación del Presupuesto, incluyendo la cobertura, la calidad de la contabilización (caja o devengado) y las metodologías utilizadas.
+b) Manifestar su opinión y formular recomendaciones al Ministerio de Hacienda ante cambios en los supuestos, las convenciones contables, la cobertura y las metodologías que sustenten las proyecciones y metas fiscales.
+c) Emitir opinión acerca de las implicaciones fiscales y macroeconoffilcas con respecto a los cambios propuestos por los Poderes Legislativo y Ejecutivo a los proyectos de ley, que de aprobarse conlleven a un impacto diferente al proyectado en las cifras fiscales del Sector Público.
+el) Emitir criterio sobre el monitoreo y valoración periódica realizada por el Ministerio de Hacienda, referente a la cobertura y estimación ele las contingencias y riesgos fiscales que puedan incidir negativamente en la situación fiscal del país.
+e) Dar criterio y recomendaciones sobre los planes de mitigación de los riesgos fiscales del Ministerio de Hacienda.
+f) Pronunciarse sobre los resultados que reflejen los informes cuatrimestrales de evolución de los ingresos, gastos y financiamiento y el informe anual sobre el cumplimiento de Regla Fiscal que deberá emitir y publicar el Ministerio de Hacienda, en relación con las metas fiscales del Gobierno.
+g) Asesorar al Ministerio de Hacienda en temas fiscales que éste le requiera, debiendo estos tener relación con las funciones que le fueron asignadas a dicho Consejo.

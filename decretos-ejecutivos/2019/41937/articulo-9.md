@@ -1,0 +1,2 @@
+Artículo 9º . - Periodicidad de las sesiones del Consejo Fiscal.
+El Consejo Fiscal sesionará ordinariamente una vez por cuatrimestre y de forma extraordinaria, cada vez que el Ministerio de Hacienda lo requiriera o que alguno de los miembros lo proponga. El Ministerio de Hacienda diligenciará el espacio físico y la logística correspondiente para que se desarrollen las sesiones de dicho Consejo, previa coordinación con el despacho de esta Cartera Ministerial.
