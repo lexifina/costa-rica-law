@@ -1,0 +1,1 @@
+Artículo 12.—Los puestos de la Feria del Agricultor de Frutas y Verduras de Santiago del Monte, deberán ser de armazón preferiblemente metálica o plástica, con cubierta, fáciles de armar y desarmar, de igual altura y con dimensiones exactas a la superficie de cada puesto.

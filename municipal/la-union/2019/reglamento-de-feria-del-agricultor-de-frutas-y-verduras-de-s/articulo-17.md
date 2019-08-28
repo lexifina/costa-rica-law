@@ -1,0 +1,1 @@
+Artículo 17.—Las mercaderías perecibles tales como; pescados, mariscos, carnes, embutidos, productos lácteos, etc. De estar autorizados, sólo podrán expenderse en carros debidamente autorizados por el Ministerio de Salud, mediante la respectiva resolución sanitaria.

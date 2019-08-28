@@ -1,0 +1,2 @@
+Artículo 7º—Los lugares de funcionamiento podrán ser modificados, trasladados o eliminados por resolución del Concejo Municipal a solicitud del Alcalde Municipal y el Administrador, siempre y cuando el interés de la Comunidad así lo exija y previo informe de las unidades técnicas municipales respectivas.
+Asimismo, la Municipalidad podrá autorizar nuevos lugares de funcionamiento, previa estudio técnico y aprobación de las organizaciones comunales del sector y acuerdo con los comerciantes.

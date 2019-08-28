@@ -1,0 +1,1 @@
+Artículo 28.—El permiso individualizará al feriante con su nombre, apellidos, No de cédula de identidad, el período de vigencia, actividad principal y en nombre de la feria donde el feriante está autorizado para desarrollar su actividad.

@@ -1,0 +1,1 @@
+Artículo 23.—Los permisos serán extendidos por la Administración de la Feria y Municipalidad de La Unión, en conjunto, su cantidad estará determinada por el número de puestos existentes en cada una de la Feria. En ningún caso el número de permisos podrá sobrepasar el número máximo de puestos disponibles en las Ferias.

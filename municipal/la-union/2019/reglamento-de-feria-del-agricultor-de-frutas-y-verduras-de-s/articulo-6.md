@@ -1,0 +1,1 @@
+Artículo 6º—La Feria del Agricultor de Frutas y Verduras de Santiago del Monte funcionará en los días sábados o domingos y en el periodo de tiempo que corre de las 5:00 am a las 12 md., pudiéndose extender con la autorización y justificación debida, hasta las 14 horas como tiempo máximo de desarrollo.

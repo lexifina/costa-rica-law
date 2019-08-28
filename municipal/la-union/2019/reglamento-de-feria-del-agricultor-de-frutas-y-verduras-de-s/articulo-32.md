@@ -1,0 +1,1 @@
+Artículo 32.—Además del permiso, el feriante deberá tener siempre en su lugar de trabajo la documentación que se considere necesaria que justifique su actividad (Permisos de Salud, Manipulación de Alimentos, etc.)

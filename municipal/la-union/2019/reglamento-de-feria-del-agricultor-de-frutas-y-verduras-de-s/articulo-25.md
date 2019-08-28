@@ -1,0 +1,1 @@
+Artículo 25.—Para la obtención del permiso, el solicitante deberá reunir previamente los requisitos que se le indiquen por parte la Administración de la Feria, de conformidad con lo que al respecto indique el Ordenamiento Jurídico vigente para este tipo de comercio.

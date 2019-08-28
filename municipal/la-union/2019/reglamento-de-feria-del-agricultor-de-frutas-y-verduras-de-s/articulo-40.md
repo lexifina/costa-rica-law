@@ -1,0 +1,1 @@
+Artículo 40.—Los carros que expendan pescados, mariscos, carnes, embutidos, lácteos, etc. deberán obligatoriamente depositar sus desperdicios en receptáculos cerrados o en bolsas cerradas y por lo tanto, bajo ningún pretexto o circunstancia podrán depositarlas en el suelo y al aire libre.

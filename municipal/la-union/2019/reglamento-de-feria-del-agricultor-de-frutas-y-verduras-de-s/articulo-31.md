@@ -1,0 +1,1 @@
+Artículo 31.—El permiso deberá ser exhibido obligatoriamente en un lugar visible al público y a los organismos fiscalizadores, dentro de la estructura del puesto. La transgresión a esta norma, supondrá la inexistencia del permiso bajo las consecuencias que ello podrá acarrear.

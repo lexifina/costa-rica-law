@@ -1,0 +1,1 @@
+Artículo 45.—No se renovará el permiso a aquellos feriantes que incumplan de manera reiterada de las regulaciones aquí estipuladas o en ocasión de causa abierta y debidamente comprobada actúe con arreglo distinto a las disposiciones que el ordenamiento jurídico tenga dispuesto.

@@ -1,0 +1,2 @@
+Artículo 26.—Los permisos de la Feria del Agricultor de Frutas y Verduras de Santiago del Monte deberán ser renovados cada año, durante el mes de diciembre de cada año calendario.
+En los permisos se podrán cobrar los precios que se consideren procedentes y en su determinación y fijación deberán intervenir, tanto la Administración de las Ferias como la Municipalidad y de previo a aplicarlos se requerirá del acuerdo del Concejo Municipal que los autorice.

@@ -1,0 +1,1 @@
+Artículo 16.—Las mercaderías deberán quedar exclusivamente almacenadas dentro de los límites de cada puesto y no podrán permanecer en contacto directo con el piso o suelo, para lo cual será obligación el almacenarlas, mostrarlas o exponerlas en mesones o tarimas que las protejan y las aíslen de cualquier contacto que atenten contra la higiene y la salud pública.

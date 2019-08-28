@@ -1,0 +1,1 @@
+Artículo 21.—Los puestos en cada una de las Ferias, deberán dejarse despejadas las intersecciones de las calles si ello se provoca, a fin de garantizar y permitir el libre acceso de vehículos de emergencia (bomberos, ambulancias, policía).

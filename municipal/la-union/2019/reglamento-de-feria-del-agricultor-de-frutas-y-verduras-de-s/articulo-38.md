@@ -1,0 +1,1 @@
+Artículo 38.—El aseo general y la extracción de basuras y desperdicios, una vez finalizado el horario de funcionamiento de la feria, lo realizará la Administración de la Feria y la Municipalidad a través de sus medios o a través de contratos de prestación de servicios.

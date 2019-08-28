@@ -1,0 +1,1 @@
+Artículo 10.—El número de puestos será determinado por La Administración de la Feria y la Municipalidad de La Unión, de acuerdo a los límites y superficies existentes, los que deberán estar permanentemente demarcados en el piso o suelo.

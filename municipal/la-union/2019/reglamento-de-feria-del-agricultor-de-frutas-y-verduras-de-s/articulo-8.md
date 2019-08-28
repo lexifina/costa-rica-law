@@ -1,0 +1,1 @@
+Artículo 8º—La Feria del Agricultor de Frutas y Verduras de Santiago del Monte sólo podrá instalarse dentro de los límites definidos, y bajo ningún pretexto podrán ampliarse más allá del espacio autorizado. Para tales efectos la Administración de la Feria en coordinación con la Municipalidad de La Unión, limitará el número de permisos para el espacio autorizado.

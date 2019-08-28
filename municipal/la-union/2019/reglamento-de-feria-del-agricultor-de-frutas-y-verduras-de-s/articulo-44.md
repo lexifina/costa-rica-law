@@ -1,0 +1,1 @@
+Artículo 44.—Sin perjuicio de lo anterior, la Administración de las Ferias y la Municipalidad de La Unión aplicará administrativamente las siguientes sanciones, dependiendo de la gravedad de la infracción: a) Suspensión del permiso entre 4, 8 y hasta 12 días de labor en la feria. b) Suspensión definitiva del permiso autorizado.

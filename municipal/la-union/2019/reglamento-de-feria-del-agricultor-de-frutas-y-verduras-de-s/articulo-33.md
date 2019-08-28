@@ -1,0 +1,1 @@
+Artículo 33.—Los feriantes deberán usar obligatoriamente una Tarjeta de Identificación, que será proporcionada por la Administración de la Feria, la que contendrá nombre, apellidos Número de cédula de identidad, puesto asignado y otros detalles que faciliten su control.

@@ -1,0 +1,1 @@
+Artículo 19.—El trozado y envase de verduras, (ensaladas) en los puestos, sólo se autorizará cuando la rotulación del envase certifique que procede de un local o establecimiento autorizado por el Ministerio de Salud.

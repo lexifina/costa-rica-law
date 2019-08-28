@@ -1,0 +1,1 @@
+Artículo 9º—Los días de funcionamiento de la Feria serán los días, sábados o domingos de cada semana, el horario de funcionamiento de estos recintos será exclusivamente de 5:00 a.m. a las 12 md. Con el periodo requerido el día anterior, que correría de las 6 p.m. a las 12 m.n. del día anterior como periodo máximo de preparación.

@@ -1,0 +1,1 @@
+Artículo 2º—En la Feria del Agricultor de Frutas y Verduras de Santiago del Monte sólo podrán desarrollar la actividad comercial las personas naturales que estén en posesión de un permiso otorgado por la administración de la Feria y autorizado para ello por la Municipalidad de La Unión. Para los efectos de este Reglamento estas personas naturales se denominarán feriantes.
