@@ -1,1 +1,0 @@
-Artículo 22.—Del recinto de votación. En el recinto de votación solo podrán estar presentes los miembros del Comité Electoral, los miembros de la Mesa Receptora de Votos, Fiscales designados y el votante respectivo, quien una vez emitido su voto deberá desalojar el recinto.

@@ -1,1 +1,0 @@
-Artículo 18.—Procedimiento de elecciones. La elección de miembros de la Junta Directiva se hará por el procedimiento de sufragio para cada uno de los puestos a elegirse, utilizando las boletas que al efecto autorice el Comité Electoral.
