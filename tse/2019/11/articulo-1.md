@@ -1,4 +1,5 @@
 N.° 11-2019
+(Nota de Sinalevi: El Tribunal Supremo de Elecciones, aprobó mediante decreto del Tribunal Supremo de Elecciones N° 7 del 15 de diciembre del 2020, una nueva División Territorial Electoral que regirá para las elecciones del 2 de febrero del 2020)
 EL TRIBUNAL SUPREMO DE ELECCIONES
 De conformidad con los artículos 99 de la Constitución Política, 12 inciso a) y k), 143 del Código Electoral, Ley n° 9440 del 30 de marzo de 2017 y Decreto Ejecutivo nº 41548-MGP, publicado en La Gaceta nº 55, Alcance Digital nº 50, del 19 de marzo de 2019.
 DECRETA
@@ -1253,7 +1254,8 @@ VI DISTRITO ZAPOTE
 VII DISTRITO BRISAS
 058 Lm 004 SANTA ROSA*. POBLADOS: JILGUERO (PARTE ESTE), LOS ANGELES*, URB. CIPRESES. 058 Kl 011 LEGUA*. POBLADO: FINCA ALTO BRISAS (VIENTO FRESCO).
 2 ALAJUELA
-12 CANTON VALVERDE VEGA
+12 CANTON SARCHI
+(Modificada la denominación del cantón anterior por decreto del Tribunal Supremo de Elecciones, N° 15-2019 del 28 de agosto de 2019)
 Mapa
 I DISTRITO SARCHI NORTE
 059 Ip 001 SARCHI NORTE*D/. POBLADOS: CALLE CANTO, CALLE EMANUEL, CALLE SAHINAL, CALLE SANTA ROSA, HACIENDA LA EVA (PARTE ESTE), IMAS, LA CHANCHERA, PROY. VILLA SARCHI, RINCON COLORADO, SAN RAFAEL*, URB. EL ESTADIO.

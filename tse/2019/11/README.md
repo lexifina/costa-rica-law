@@ -14,3 +14,4 @@ División territorial regirá para las elecciones del 2 de febrero del 2020
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-06-14 | la propia norma |
+| 2 | 2019-08-28 | Decreto TSE 15 (2019-08-28) |
