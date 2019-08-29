@@ -1,0 +1,7 @@
+Artículo 3°.- Coordinación y acción de las autoridades vinculadas
+Las instancias tendrán las siguientes funciones:
+a. El CSE en coordinación con el Rector del Sector de Infraestructura y Transporte y las instituciones que lo integran, serán los orientadores políticos y los tomadores de decisiones para articular el PNTE de conformidad con normativas, políticas, planes e instrumentos vigentes.
+b. El Ministro Rector del Sector Ambiente, Energía y Mares y el Ministro Rector del Sector de Infraestructura y Transporte, convocarán al CSE y las instituciones del sector de Infraestructura y Transporte para realizar sesiones de trabajo en forma ordinaria, al menos una vez al año, o bien, en forma extraordinaria las veces que sean necesarias, quedando sujeto a la necesidad de avanzar con el Plan.
+c. El Ministro Rector del Sector Ambiente, Energía y Mares y el Ministro Rector del Sector de Infraestructura y Transporte podrán convocar de manera consultiva a Ministros o Ministras, Jerarcas de instituciones o representantes de empresas públicas o privadas a participar de estas sesiones de trabajo.
+d. La SEPSE y la SPS serán los coordinadores y los enlaces para la implementación del PNTE, por lo que orientarán las acciones, monitorearán y darán seguimiento al cumplimiento y a la ejecución del PNTE. Estas instancias mantendrán una comunicación y una coordinación constante y fluida.
+e. La SEPSE y la SPS deberán organizar reuniones de planificación y seguimiento para la ejecución del PNTE.
