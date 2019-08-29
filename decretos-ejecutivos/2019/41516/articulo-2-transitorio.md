@@ -1,0 +1,1 @@
+Transitorio II. Considerando que los Presidentes Ejecutivos deben ser designados por el Consejo de Gobierno cada cuatro años al inicio de la Administración, este reglamento regirá a partir del 2022 únicamente para efectos del nombramiento de dichos funcionarios.

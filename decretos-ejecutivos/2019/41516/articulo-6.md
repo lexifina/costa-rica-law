@@ -1,0 +1,3 @@
+ARTÍCULO 6. Cronograma de nombramientos
+La jefatura de la Unidad Asesora preparará al inicio de cada semestre un cronograma con el listado de los nombramientos que se deben realizar en el semestre siguiente. Este cronograma deberá establecer además de las fechas máximas para el nombramiento de cada cargo, las fechas meta para el cumplimiento de cada una de las etapas en el proceso de selección, de valoración de candidatos, y de presentación de propuestas al Consejo de Gobierno y al Poder Ejecutivo.
+Este cronograma será coordinado según corresponda, con la Secretaría del Consejo de Gobierno, por medio su Secretario o Secretaria; o con el despacho del Presidente de la República (Poder Ejecutivo) para efecto de su validación.
