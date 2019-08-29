@@ -1,0 +1,15 @@
+Nº 41811-MP
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE LA PRESIDENCIA
+De conformidad con lo dispuesto por los incisos 3) y 18) del artículo 140 y el artículo 146 de la Constitución Política de la República de Costa Rica, los artículos 27 inciso 1) y 28 inciso 2) acápite b) de la Ley 6227, del 2 de mayo de 1978 y los articulas 30 y 37 de la Ley Nº 8488, del 22 de noviembre de 2005, Ley Nacional de Emergencias y Prevención del Riesgo.
+Considerando:
+1º—Que mediante Decreto Ejecutivo Nº 37305 -MP, del 24 de setiembre de 2012; publicado en el Alcance Nº 141 a La Gaceta Nº 187 del 27 de setiembre de 2012, se declaró Estado de Emergencia, producto de condiciones y daños provocados por el fuerte sismo sentido el día 5 de setiembre del 2012, a las ocho horas con cuarenta y dos minutos de la mañana, en los cantones de: Abangares, Liberia, Carrillo, Santa Cruz, Nicoya, Hojancha, Nandayure, Tilarán, Sagaces y Cañas, de la provincia de Guanacaste; cantón central de Puntarenas y Montes de Oro, de la provincia de Puntarenas; Naranjo, Valverde Vega, Atenas, San Ramón, Grecia y Alfara Ruiz, de la provincia de Alajuela y Sarapiquí de la Provincia de Heredia.
+2º—Que mediante oficio DESGR-OF-0529-2018, de fecha 21 de setiembre del año 2018, la Unidad de Desarrollo Estratégico del Sistema Nacional de Gestión del Riesgo de la Comisión Nacional de Prevención y atención de Emergencias (CNE), presenta el informe de seguimiento al Plan General de la Emergencia, bajo Decreto Nº 37305-MP, el cual para efectos de su elaboración, consideró el recuento de las acciones y obras desarrolladas con recursos del Fondo Nacional de Emergencia (FNE), por medio de las unidades ejecutoras nombradas por la Junta Directiva de la CNE, al amparo del marco de excepción y los contenidos del Plan General de Emergencia (PGE).
+3º—Que el Plan General de la Emergencia tiene una vigencia por Ley de 5 años. Por tanto, el 27 de setiembre del 2017, venció el plazo establecido a partir de la emisión del decreto ejecutivo, esto quiere decir que el informe emitido por la Unidad de Desarrollo Estratégico del Sistema Nacional de Gestión del Riesgo de la CNE, corresponde al informe de cierre del Plan.
+4º—Que mediante Sesión Ordinaria de la Junta Directiva de la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias Nº 01-01-19, celebrada el día 16 de enero de 2019, mediante Acuerdo Nº 004-01-19, se determinó el Cierre del Decreto Nº 37305-MP “Terremoto de Sámara”; del 05 de setiembre de 2012. Lo anterior, debido a que las circunstancias que condujeron a declarar Estado de Emergencia por parte del Poder Ejecutivo, concluyeron y se cumplió con la atención de las tres fases de la emergencia consignadas en el Plan General de la Emergencia de dicho decreto. Por tanto,
+Decretan:
+DECLARACIÓN DE LA CESACIÓN DE ESTADO DE
+EMERGENCIA DECLARADO MEDIANTE
+DECRETO EJECUTIVO Nº 37305-MP, DE
+FECHA 24 DE SETIEMBRE DE 2012
+Artículo 1º—Se declara la cesación del estado de emergencia decretado por el Poder Ejecutivo mediante el Decreto Ejecutivo Nº 37305-MP, de fecha 24 de setiembre de 2012; situación por la cual queda derogado.
