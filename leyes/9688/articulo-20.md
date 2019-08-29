@@ -1,0 +1,7 @@
+CAPÍTULO VI
+REFORMAS
+ARTÍCULO 20- Reforma del artículo 8 de la Ley N.° 7454
+Se reforma el artículo 8 de la Ley N.° 7454, Aprobación de los Convenios de Préstamo: N.° 3594-CR “Tercer Programa de Ajuste Estructural”, entre la República de Costa Rica y el Banco Internacional de Reconstrucción y Fomento; 739/OC-CR “Programa de Ajuste del Sector Público”, entre la República de Costa Rica y el Banco Interamericano de Desarrollo; 742/OC-CR “Programa Sectorial de Inversiones”, entre la República de Costa Rica y el Banco Interamericano de Desarrollo, de 22 de noviembre de 1994. El texto es el siguiente:
+Artículo 8- Se crea el Fondo de Desarrollo de Limón, en adelante Fodeli, cuya aplicación se realizará mediante ley especial.
+Los recursos que constituirán el Fodeli provendrán del crédito aprobado en la presente ley, por el monto equivalente en colones a diez millones de dólares estadounidenses (US $10.000.000,00), provenientes por partes iguales del primero y segundo desembolsos del contrato de préstamo 739/OC-CR, sus intereses y remanentes.
+El fondo destinará la mitad, cinco millones de dólares estadounidenses (US $5.000.000,00), exclusivamente a la promoción del desarrollo humano de la provincia de Limón, concediendo aportes para la educación y bachillerato por madurez y, la otra mitad, cinco millones de dólares estadounidenses (US $5.000.000,00), exclusivamente a la promoción de emprendimiento para las personas costarricenses residentes en la provincia de Limón.
