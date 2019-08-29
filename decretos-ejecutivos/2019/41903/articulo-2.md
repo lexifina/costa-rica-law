@@ -1,0 +1,1 @@
+Artículo 2.-El objetivo de la presente oficialización consiste en simplificar los trámites que las personas pertenecientes a la etnia Térraba/Brörán realicen ante la Administración Pública y asegurar a esta última la veracidad de la información que se requiera dentro del procedimiento administrativo.

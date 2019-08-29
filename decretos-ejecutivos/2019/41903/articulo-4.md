@@ -1,0 +1,1 @@
+Artículo 4.- La institución competente para consultar la información indicada en el artículo anterior, deberá seguir y respetar el proceso de consulta ante el Registro Civil que se establece en el protocolo adjunto como anexo a este Decreto. Dicho protocolo garantiza la protección de la información brindada y su correcto uso.
