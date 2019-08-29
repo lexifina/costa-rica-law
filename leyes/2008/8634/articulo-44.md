@@ -1,3 +1,5 @@
-ARTÍCULO 44.- Incubación de empresas
-El Consejo Rector podrá establecer convenios y alianzas estratégicas con las instituciones u organizaciones integrantes del SBD, con el propósito de desarrollar programas de incubadoras de empresas. Esto de acuerdo con lo dispuesto por el ministerio rector con respecto al funcionamiento de la Red Nacional de Incubación y Aceleración.
+ARTÍCULO 44.- Incubación y aceleración de empresas.
+(Así reformado el título anterior por el artículo 1° de la ley N° 9695 del 7 de junio del 2019, “Reforma para incentivar los modelos de capital semilla y capital de riesgo para emprendimientos”)
+El Consejo Rector podrá establecer convenios y alianzas estratégicas con las instituciones u organizaciones integrantes del SBD, con el propósito de desarrollar programas de incubación y aceleración de empresas. El Ministerio de Economía, Industria y Comercio (MEIC) deberá contar con un modelo de inscripción, verificación de procesos y seguimiento de las incubadoras y aceleradoras, para constituir una Red Nacional de Incubación y Aceleración que permita determinar cualidades de estas, para orientar los apoyos puntuales del SBD.
+(Así reformado el párrafo anterior por el artículo 1° de la ley N° 9695 del 7 de junio del 2019, “Reforma para incentivar los modelos de capital semilla y capital de riesgo para emprendimientos”)
 Tendrán una especial atención, en las distintas etapas de desarrollo de la actividad productiva, los procesos que acompañen los emprendimientos de las mujeres y los sectores prioritarios.

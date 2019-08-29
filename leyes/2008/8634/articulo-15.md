@@ -23,7 +23,8 @@ La Secretaría Técnica del SBD promoverá la conectividad necesaria para la int
 Con el propósito de facilitar el pago de operaciones de crédito y demás productos al amparo de los alcances de esta ley, el Fonade podrá tener acceso al Sistema Nacional de Pagos Electrónicos (Sinpe) del Banco Central de Costa Rica. Conjuntamente, la Secretaría Técnica del Sistema de Banca para el Desarrollo y el Banco Central de Costa Rica podrán establecer diversas estrategias de profundización de canales digitales, que contribuyan con los objetivos de inclusión financiera y profundización del mercado.
 Los recursos del Fonade se destinarán a los siguientes fines:
 a) Como capital para el financiamiento de operaciones crediticias, de factoraje financiero, arrendamiento financiero y operativo, microcréditos y proyectos del sector agropecuario, así como otras operaciones activas que los usos, las prácticas y las técnicas nacionales o internacionales admitan como propias de la actividad financiera y bancaria, según las disposiciones que para estos efectos emita el Consejo Rector.
-b) Como capital para el otorgamiento de avales que respalden créditos que otorguen los participantes e integrantes del SBD.
+b) Como capital para el otorgamiento de avales que respalden el financiamiento que otorguen los participantes e integrantes del SBD.
+(Así reformado el inciso anterior por el artículo 1° de la ley N° 9695 del 7 de junio del 2019, “Reforma para incentivar los modelos de capital semilla y capital de riesgo para emprendimientos”)
 c) Para servicios no financieros y de desarrollo empresarial, tales como:
 1) Capacitación.
 2) Asistencia técnica.

@@ -1,5 +1,6 @@
-ARTÍCULO 27 bis. Mecanismos de capital semilla y capital de riesgo
+ARTÍCULO 27 bis.Mecanismos de capital semilla y capital de riesgo
 Para el cumplimiento exclusivo de los objetivos establecidos en esta ley, en acatamiento de las directrices y los lineamientos que emita el Consejo Rector, se autoriza la canalización de recursos para fomentar, promocionar, incentivar y participar en la creación, la reactivación y el desarrollo de empresas, mediante modelos de capital semilla y capital de riesgo.
-El Fonade(*) aplicará las buenas prácticas internacionales con el fin de desarrollar estos programas, incluyendo la posibilidad de participar con aportes de capital en fondos de capital de riesgo.
-(*) (Así modificada su denominación por el artículo 3° de la ley N° 9654 del 14 de febrero del 2019. Anteriormente se indicaba: “Finade”)
-La valoración de riesgo y las estimaciones de pérdida esperada serán en función de la naturaleza de estos instrumentos.
+El Fondo Nacional para el Desarrollo (Fonade) aplicará las buenas prácticas internacionales con el fin de desarrollar estos programas, incluyendo la posibilidad de participar con aportes de capital en fondos de capital de riesgo, así como el desarrollo de avales para mitigar riesgos asociados en la operativa de estas herramientas de profundización financiera, entre otros mecanismos.
+(Así reformado el párrafo anterior por el artículo 1° de la ley N° 9695 del 7 de junio del 2019, “Reforma para incentivar los modelos de capital semilla y capital de riesgo para emprendimientos”)
+La valoración de riesgo y las estimaciones de pérdida esperada serán en función de la naturaleza de cada uno de estos instrumentos.
+(Así reformado el párrafo anterior por el artículo 1° de la ley N° 9695 del 7 de junio del 2019, “Reforma para incentivar los modelos de capital semilla y capital de riesgo para emprendimientos”)
