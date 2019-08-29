@@ -1,0 +1,4 @@
+Artículo 19. De la participación del Consorcio en Compras de la Administración Pública.
+Aquellos consorcios que participen como proveedores de instituciones públicas, o en procesos licitatorios u otro mecanismo de compra, acreditarán su estado mediante la licencia de funcionamiento que al efecto emita la DIGEPYME.
+Asimismo, y en aplicación de la Ley Nº 8220, aquellas Instituciones Públicas que deseen verificar la licencia de funcionamiento emitida a favor del Consorcio, deberán efectuar una labor de coordinación interinstitucional con la DIGEPYME, instancia que deberá atender la consulta que se realice en torno al consorcio Pyme.
+En caso de que la administración identifique que existen indicios de prácticas monopolísticas absolutas, relativas o concentración de mercado, a través de un consorcio, se procederá remitir el caso a la Comisión para Promover la Competencia para que actúen de oficio conforme lo establece la Ley Nº 7472.

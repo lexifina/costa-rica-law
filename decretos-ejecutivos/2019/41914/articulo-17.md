@@ -1,0 +1,1 @@
+Artículo 17. De la Renovación de la licencia del Consorcio. La licencia del consorcio se renovará cada dos años, para lo cual, deberá el representante del consorcio actualizar los elementos establecidos en los puntos 6, 7 y 11 del inciso b) del artículo 5 de la Ley Nº 9576.

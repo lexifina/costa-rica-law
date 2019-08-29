@@ -1,0 +1,1 @@
+Artículo 13. Reporte obligatorio de cambios de los datos del Consorcio. Cualquier cambio en la composición (entrada o salida de miembros) del consorcio, así como del representante legal deberá ser comunicado a la DIGEPYME, en un periodo no mayor de 15 días hábiles a partir del momento en que se origine el cambio.

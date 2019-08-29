@@ -1,0 +1,1 @@
+Artículo 24. Recursos Financieros. Los bancos públicos que conforman la Red de Apoyo a PYME deberán incluir en el informe anual que presenta ante el MEIC, la colocación de recursos financieros a los Consorcios PYME,registrados oficialmente en el MEIC.

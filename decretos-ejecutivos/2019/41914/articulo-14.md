@@ -1,0 +1,1 @@
+Artículo 14. Confidencialidad de la información. La información suministrada por cada empresa física o jurídica que forma parte del consorcio, será protegida por el MEIC para que no sea divulgada sin consentimiento de la empresa física o jurídica.

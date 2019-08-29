@@ -1,0 +1,1 @@
+Artículo 7. Registro Nacional de Consorcios. Todo consorcio PYME constituido conforme a los artículos anteriores, deberá registrarse ante el Registro Nacional de Consorcios, a efecto de obtener la licencia de funcionamiento, conforme a la Ley Nº 9576.

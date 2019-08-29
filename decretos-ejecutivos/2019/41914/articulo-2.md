@@ -1,0 +1,3 @@
+Artículo 2. Ámbito de aplicación. Para efectos del presente Reglamento, se considerarán únicamente los consorcios que se conformen por micro, pequeñas y medianas empresas de los sectores que son objeto de las rectorías de las autoridades del MEIC y MAG.
+En los casos de los consorcios de exportación, el COMEX, como rector de estas figuras, emitirá la normativa correspondiente acorde a su programa ya establecido en materia de consorcios. El MAG mediante la DNEA, será el responsable de facilitar MEIC, el listado de los pequeños y medianos productores agropecuarios (PYMPA), sujetos a conformación de consorcios PYME.
+Dicha información se incluirá y remitirá de conformidad a los parámetros y procedimientos establecidos en el MAG.

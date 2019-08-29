@@ -1,0 +1,3 @@
+Artículo 8. Formulario para efectos del Registro del Consorcio: El representante del consorcio deberá llenar de manera completa, con letra clara y sin ningún tipo de tachadura, el formulario que se adjunta como Anexo 1 al presente reglamento, el cual también estará disponible en el sitio web www.meic.go.cr.
+La información contenida en el formulario, se brindará por el interesado bajo la fe de juramento de que es actual y verdadera; pudiéndose derivar consecuencias penales del hecho, cuando se demuestre lo contrario.
+La DIGEPYME podrá verificar en cualquier momento la veracidad de los datos e información suministrada por el consorcio y por las empresas consorciadas.
