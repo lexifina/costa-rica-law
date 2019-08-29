@@ -1,0 +1,1 @@
+TRANSITORIO I- El Consejo Nacional de Supervisión del Sistema Financiero (Conassif) tendrá un plazo hasta de seis meses, contado a partir de la fecha de la publicación de esta ley, para aprobar la normativa para la regulación de la figura de los fondos de capital de riesgo, indicada en el artículo 2 de la presente ley.
