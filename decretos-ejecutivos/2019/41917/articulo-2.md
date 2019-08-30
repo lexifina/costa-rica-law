@@ -1,0 +1,1 @@
+Artículo 2º—Las dependencias del sector público y privado, dentro del marco legal respectivo, podrán contribuir con recursos económicos, humanos y materiales en la medida de sus posibilidades y sin perjuicio del cumplimiento de sus propios objetivos, para la exitosa creación e inauguración de esta Plaza de la Agricultura de Las Américas.
