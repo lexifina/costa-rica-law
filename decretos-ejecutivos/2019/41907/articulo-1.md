@@ -1,0 +1,14 @@
+N° 41907-MAG
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE AGRICULTURA Y GANADERÍA
+En uso de las facultades y atribuciones que les confiere los numerales 140, incisos 3), 8) y 20), 50 y 146 de la Constitución Política; la Convención de las Naciones Unidas sobre el Derecho del Mar, Ley N° 7291 del 15 de julio de 199; el Acuerdo de las Naciones Unidas sobre Poblaciones de Peces Transzonales y Altamente Migratorios, Ley N° 8059 del 02 de febrero del 2001; la Convención para el Fortalecimiento de la Comisión Interamericana del Atún Tropical, Ley N° 8712 del 01 de abril del 2009; los artículos 25.1 y 27.1 de la Ley General de la Administración Pública, N° 6227 del 02 de mayo de 1978; la Ley de Fomento a la Producción Agropecuaria, que incorpora la Ley Orgánica del Ministerio de Agricultura y Ganadería, N° 7064 del 29 de abril de 1987; la Ley de Creación del Instituto Costarricense de Pesca y Acuicultura, N° 7384 del 16 de marzo de 1994; la Ley de Pesca y Acuicultura, N° 8436 del 01 de marzo del 2005; y
+Considerando:
+I.—Que el artículo 50 de la Constitución Política dispone que es obligación del Estado procurar el mayor bienestar a todos los habitantes del país, organizando y estimulando la producción y el más adecuado reparto de la riqueza. Asimismo, incorpora el derecho de toda persona a un ambiente sano y ecológicamente equilibrado.
+II.—Que mediante el Decreto Ejecutivo Nº 41669-MAG de 05 de abril del 2019 se prorrogó el plazo establecido en el Transitorio Único del Decreto Ejecutivo N° 41479-MAG de 11 de diciembre del 2018, para emitir una nueva regulación sobre la utilización de la cuota de capacidad de pesca de Atún de Cerco reconocida a Costa Rica en el seno de la Comisión Interamericana del Atún Tropical (CIAT), no obstante a la fecha no ha sido posible terminar los estudios y procedimientos que permitan emitir la nueva regulación.
+III.—Que pese a los esfuerzos realizados por el Poder Ejecutivo, se continúa desarrollando los estudios técnicos, jurídicos, económicos y sociales que permita regular la explotación de la capacidad de pesca del recurso atunero, que la Comisión Interamericana del Atún Tropical (CIAT) le reconoció al Estado costarricense, lo que hace necesario ampliar el plazo otorgado inicialmente para emitir la nueva reglamentación.
+IV.—Que se procedió a llenar el Formulario de Evaluación Costo Beneficio, Sección I, denominada Control Previo de Mejora Regulatoria, siendo que el mismo dio un resultado negativo y la propuesta no contiene trámites ni requisitos. Por tanto,
+Decretan:
+AMPLIACIÓN EL PLAZO ESTABLECIDO
+EN EL ARTÍCULO 1° DEL DECRETO EJECUTIVO
+N° 41669-MAG DE 05 DE ABRIL DEL 2019
+Artículo 1º—Ampliar el plazo establecido en el artículo 1° del Decreto Ejecutivo N° 41669-MAG de 05 de abril del 2019, publicado en La Gaceta N° 85 de 09 de mayo del 2019, hasta por tres meses más, contado a partir de su publicación en el Diario Oficial.
