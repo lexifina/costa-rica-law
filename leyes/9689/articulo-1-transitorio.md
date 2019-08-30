@@ -1,0 +1,2 @@
+DISPOSICIONES TRANSITORIAS
+TRANSITORIO I- El requisito del Índice de Elegibilidad Estratégica para Empresas de Servicios (IEES) será exigido a las empresas que deseen ingresar al régimen de zonas francas bajo la categoría de servicios, a partir del momento en que entre a regir el reglamento de la presente ley y el IEES se haya definido y publicado de conformidad con los parámetros establecidos en el artículo 2 de la Ley N.º 7210, Ley de Régimen de Zonas Francas, de 23 de noviembre de 1990.
