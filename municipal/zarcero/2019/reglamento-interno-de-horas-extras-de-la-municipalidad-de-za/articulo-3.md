@@ -1,0 +1,1 @@
+Artículo 3º—La jornada extraordinaria no podrá superar las 4 horas diarias, ni tampoco podrá superar junto con el horario ordinario las 12 horas. Salvo en caso de emergencia, en que peligre la salud y seguridad de las personas.

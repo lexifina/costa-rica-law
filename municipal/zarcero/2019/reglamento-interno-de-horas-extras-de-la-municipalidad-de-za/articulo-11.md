@@ -1,0 +1,1 @@
+Artículo 11.—El reporte de tiempo extraordinario efectivo laborado, lo informará el jefe departamental al Alcalde en la formula oficial en la que se indicará número de horas firmado y sellado. El alcalde después de determinar la veracidad de lo informado firmará y sellará la aprobación y la remitirá al departamento de Recursos Humanos para su inclusión de pago.

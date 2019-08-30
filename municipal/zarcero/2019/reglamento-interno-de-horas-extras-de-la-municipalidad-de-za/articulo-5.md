@@ -1,0 +1,1 @@
+Artículo 5º—Los jefes de departamentos, administradores que trabajan sin fiscalización superior inmediata y puestos de confianza, podrán tener derecho a un horario laboral extraordinario después de las 12 horas de Ley para estos puestos, siempre y cuando éste justifique la urgencia o imprevisible de su labor.
