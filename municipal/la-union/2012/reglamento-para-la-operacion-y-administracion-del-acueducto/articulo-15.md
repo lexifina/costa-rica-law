@@ -1,2 +1,0 @@
-Artículo 15.—De la lectura del hidrómetro. La lectura de los hidrómetros y el cobro se hará mensualmente y se cobrará conforme a la cantidad de metros cúbicos consumidos. Se autoriza a la Dirección a modificar el rol de lectura, según las necesidades municipales. Sin embargo, si se mide mensual, el período de lectura debe oscilar entre 29 y 32 días naturales. El hecho de no recibir el recibo de cobro no faculta al interesado para no cancelar el recibo del mes correspondiente.
-(Así reformado el párrafo anterior mediante sesión ordinaria N° 415 del 10 de setiembre del 2015)

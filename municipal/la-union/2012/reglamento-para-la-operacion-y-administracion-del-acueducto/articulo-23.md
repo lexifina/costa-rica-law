@@ -1,2 +1,0 @@
-Artículo 23.—Del desperfecto del hidrómetro. En casos en que por cualquier circunstancia el hidrómetro sufra desperfectos debidamente comprobados en el Laboratorio de Hidrómetros, al abonado se le cobrarán todos los recibos pendientes de pago según el consumo marcado por el nuevo medidor instalado. Con el fin de no atrasar el pago del abonado, se tomará lectura entre ocho y quince días naturales después del cambio y se hará la proyección correspondiente del consumo por regla de tres.
-(Así reformado mediante sesión ordinaria N° 415 del 10 de setiembre del 2015)
