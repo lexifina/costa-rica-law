@@ -14,3 +14,4 @@ Establece plazo 1 año calendario posterior a lo cual quedarán sin efecto exone
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-08-31 | la propia norma |
+| 2 | 2019-08-31 | Resolución 16 (2019-05-13) |

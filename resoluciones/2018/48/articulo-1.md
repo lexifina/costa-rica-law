@@ -1,4 +1,5 @@
 SERVICIO NACIONAL DE SALUD ANIMAL
+(Nota de Sinalevi: Mediante resolución N° SENASA-DG-R016-2019 del 13 de mayo del 2019 se amplía la vigencia de la presente resolución hasta el día 31 de agosto del 2019)
 N° SENASA-DG-R048-2018.—Dirección General.—Servicio Nacional de Salud Animal.—Barreal de Heredia, a las once horas treinta minutos del siete de mayo del año dos mil dieciocho.
 Resultando:
 1º—Que mediante Ley N° 8495 del 6 de abril del 2006, se creó el Servicio Nacional de Salud Animal, (SENASA), como un órgano de desconcentración y personería jurídica instrumental del Ministerio de Agricultura y Ganadería y le corresponde, entre otras competencias “Administrar, planificar, dirigir y tomar las medidas veterinarias o sanitarias pertinentes sobre el control de la seguridad e inocuidad de los productos y subproductos de origen animal, en las etapas de captura, producción, industrialización y comercialización, considerando aditivos alimentarios, residuos de medicamentos veterinarios, plaguicidas y otros contaminantes químicos, biológicos o de origen biotecnológico...”
