@@ -46,6 +46,7 @@ b) Cuando en las auditorías realizadas a las entidades operadoras se identifiqu
 43) Llevar un registro de los proyectos recibidos, recomendados, no recomendados, aprobados y rechazados por la Junta Directiva, con los montos de cada uno e informar cada tres meses al MEIC.
 44) Dar seguimiento y hacer evaluaciones de avance en cualquier momento que lo considere pertinente, para garantizar el logro de los objetivos y el buen uso de los recursos.
 45) Aprobar y tramitar los pagos (en ningún caso podrá ser por adelantado) de los proyectos de Servicios de Desarrollo Empresarial financiados con recursos de FODEMIPYME.
-46) Participar en el Comité de Inversiones del Banco Popular cuando se trate de decidir sobre inversiones del FODEMIPYME por montos mayores a 0500 millones de colones. Para montos menores se decide internamente en la Unidad Técnica
+46) Participar en el Comité de Inversiones del Banco Popular cuando se trate de decidir sobre inversiones del Fodemipyme
+(Así reformado inciso anterior mediante sesión ordinaria N°5668 del 02 de setiembre del 2019)
 47) Representar a FODEMIPYME en la Red de Apoyo a PYME y en el Comité Coordinador de dicha red.
 48) Cualquier otra necesaria para su buen funcionamiento.
