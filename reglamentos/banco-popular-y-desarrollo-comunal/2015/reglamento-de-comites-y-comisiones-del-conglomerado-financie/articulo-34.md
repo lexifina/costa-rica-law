@@ -1,23 +1,12 @@
-Sección VII. De la Comisión de Pautas, Políticas y Juntas de Crédito Local,
-Artículo 34. Integración y funciones.
-Esta Comisión está constituida por tres integrantes de la Junta Directiva Nacional y tendrá las siguientes funciones:
-a) Conocer, analizar y dar seguimiento a las pautas definidas por la Asamblea y emitir las recomendaciones pertinentes para su aplicación.
-b) Velar por la congruencia entre las pautas de la Asamblea y los alcances del marco estratégico
-institucional y sus elementos.
-c) Dar seguimiento a las Políticas definidas por la Junta Directiva Nacional y emitir las recomendaciones pertinentes para su aplicación.
-d) Dar seguimiento al Plan Estratégico Corporativo, para lo cual analizará los informes que sobre los resultados del Plan Estratégico Corporativo le remita trimestralmente la Gerencia General Corporativa, y proponer a la Junta Directiva Nacional las medidas a adoptar.
-e) Revisar los Planes de Acción del Banco con su respectivo presupuesto, los cuales la Gerencia General Corporativa remitirá a más tardar sesenta días naturales previos, a Fa apertura del ciclo anual de planificación y presupuesto definido por la Contraloría General de la República, y emitir recomendaciones a la Junta Directiva Nacional con el fin de que dichos Planes de Acción sean congruentes con el Plan Estratégico Corporativo.
-f) Proponer a la Junta Directiva Nacional Índices u otros sistemas que permitan a la Comisión evaluar correctamente el cumplimiento de todo lo relacionado con el buen gobierno corporativo.
-g) Informar semestralmente a la Junta Directiva Nacional el resultado de la evaluación indicada en el inciso anterior y plantearle las modificaciones pertinentes.
-h) Revisar el informe anual de buen gobierno corporativo que la Gerencia General Corporativa le remitirá a más tardar la primera semana de febrero de cada año y recomendar a la Junta Directiva Nacional cualquier acción para mejorar lo relacionado con el buen gobierno corporativo.
-i) Conocer los proyectos de ley, de reglamentos y de otras disposiciones externas al Banco que sean sometidos al criterio de la Entidad, o que la Junta Directiva Nacional le encargue conocer, y proponerle a esa Junta las medidas a adoptar.
-j) Redactar los borradores de proyectos de ley, de reglamentos y de otras disposiciones externas al Banco que la Junta Directiva Nacional le solicite.
-k) Dar seguimiento a los proyectos de ley, de reglamentos y de otras disposiciones externas al Banco que interesen a la Entidad, tanto en la Asamblea Legislativa como en cualquier otra dependencia pública.
-l) Analizar los proyectos de Políticas que la Junta Directiva Nacional le remita.
-m) Analizar los proyectos de Reglamentos que la Junta Directiva Nacional le remite.
-n) Recomendar a la Junta Directiva Nacional, las modificaciones que permitan mantener actualizados los Reglamentos. En el caso del: Código de Buen Gobierno Corporativo, deberá realizar una revisión al menos una vez al año
-o) Analizar los proyectos de Directrices que la Junta Directiva Nacional le remita.
-p) Analizar los proyectos de Manuales de Procedimientos que la Junta Directiva Nacional le remita.
-q) Las indicadas en el Reglamento de las Juntas de Crédito Local.
-r) Las demás que le indique la normativa y la Junta Directiva Nacional.
-s) Conocer y analizar la formulación y ejecución de los planes tácticos.
+Artículo 34.—Funciones. El Comité de Remuneraciones tiene las siguientes funciones:
+a) Supervisar el diseño y funcionamiento de los sistemas de evaluación del desempeño, de incentivos y de remuneraciones de cada entidad de Conglomerado; sistemas que deberán ser consistentes con la cultura, estrategia y declaración del apetito de riesgo de la respectiva entidad, supervisión que lleva a cabo en los términos que indique la ley, el Reglamento sobre el sistema de evaluación del desempeño basado en el Balanced Scorecard y en el balance de desarrollo personal, emitido por la Junta Directiva Nacional en sesión N° 5293 del 9 de julio de 2015 publicado en La Gaceta del 11 de agosto de 2015 y demás normativa aplicable y en el acuerdo SUGEF 16-16, Reglamento sobre Gobierno Corporativo.
+b) Ser el órgano que orienta el accionar del Conglomerado Financiero Banco Popular y de Desarrollo Comunal en la atención y el seguimiento oportuno de las actividades programadas en el año de gestión, con recomendaciones, criterios y ajustes mediante acuerdos que faciliten a las respectivas Juntas o a la Asamblea de Accionistas tomar la decisión que corresponda en la definición de la política de remuneración de todas las personas que laboran para el Conglomerado.
+c) Revisar periódicamente la política salarial del Conglomerado.
+d) Revisar el Sistema de Evaluación del Desempeño basado en el Balanced Scorecard y en el Balance de Desarrollo Personal Conglomeral.
+e) Velar por que se garantice que el diseño y el funcionamiento del sistema de incentivos sea consistente con la cultura y la estrategia del Conglomerado y el apetito de riesgo de cada entidad.
+f) Velar por que la herramienta de medición del desempeño implementada garantice el alineamiento de los incentivos con el cumplimiento de los objetivos del Plan Estratégico del Conglomerado.
+g) Verificar que defina un límite máximo para el pago del incentivo por el cumplimiento de la herramienta de medición del desempeño.
+h) Velar por que la Gerencia General Corporativa, junto con las Gerencias de las Sociedades, actualice anualmente el Instructivo del proceso para la Evaluación del Desempeño y lo remita para aprobación de la Junta Directiva Nacional.
+i) Verificar la elaboración anual por parte de la Gerencia General, tanto del Banco como de las Sociedades, del estudio de los resultados del Sistema de Evaluación del Desempeño y su aporte al logro de los objetivos estratégicos y demás elementos referenciales relevantes.
+j) Participar en actividades de capacitación, al menos en los siguientes temas: productividad, remuneración, motivación, cultura, competencias blandas, tendencia en banca, etcétera.
+k) Cualquier otro acuerdo o resolución que sea encomendada por las Juntas Directivas o las disposiciones aplicables.

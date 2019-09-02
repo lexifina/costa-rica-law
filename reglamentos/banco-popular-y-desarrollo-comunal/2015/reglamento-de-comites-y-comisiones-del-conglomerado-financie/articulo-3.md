@@ -1,10 +1,9 @@
-CAPITULO II. DE LA ORGANIZACIÓN DE LOS COMITÉS Y COMISIONES EN GENERAL
-Artículo 3. Integración.
-La integración de los Comités corporativos o de las Comisiones corporativas o del Banco le corresponde a la Junta Directiva Nacional, y la de los de Comités o Comisiones de las Sociedades, a la respectiva Junta.
-Los Comités y las Comisiones deben estar integrados al menos por tres personas funcionarias del Ente que lo constituye o de] Conglomerado, en el caso de los corporativos.
-Los Comités o Comisiones designan personas Miembros Externos cuando la normativa externa así lo determine, siguiendo el procedimiento de contratación que para tal efecto corresponda.
-Quienes integren un Comité o Comisión no corporativo, ya su vez integren la respectiva Junta, no pueden ser menos de dos ni más de tres, en el caso del Banco, y en el caso de las Sociedades, ni menos de uno ni más de tres.
-Las personas integrantes no pueden. delegar su función y, salvo integrantes ex oficio, permanecen en el cargo dos años, pudiendo ser removidos libremente.
-Pueden ser reelectos, pero quien nombra debe considerar su rotación tomando en cuenta las competencias y experiencia de los miembros y de los nominados.
-La respectiva Junta nombra las suplencias. Quien supla a un integrante de una Junta debe ser titular de la misma Junta.
-Para que un Comité o Comisión esté integrado, todos sus propietarias o propietarios deben haberse nombrado en firme. De lo contrario, el Comité o Comisión no puede sesionar y, de hacerlo, sus actos son nulos, todo sin perjuicio de la responsabilidad que pueda caberle a quienes propiciaron la reunión.
+CAPÍTULO II
+De la organización de los comités y las comisiones en general
+Artículo 3º—Integración. La integración de los Comités corporativos, de las Comisiones corporativas o del Banco le corresponde a la Junta Directiva Nacional y, la de los de Comités o las Comisiones de las Sociedades, a la respectiva Junta, mediante el dictado del respectivo acto de nombramiento.
+Los Comités y las Comisiones deben estar integrados, al menos, por una y máximo por tres personas funcionarias del ente que lo constituye o del Conglomerado, en el caso de los corporativos.
+Los Comités o las Comisiones designan a personas Miembros Externos cuando la normativa externa así lo determine, con base en el procedimiento de contratación que para tal efecto corresponda.
+Quienes integren un Comité o una Comisión no corporativa y, a su vez, integren la respectiva Junta, no pueden ser menos de uno ni más de tres, tanto en el caso del Banco como en las Sociedades.
+Las personas integrantes no pueden delegar su función, permanecen en el cargo dos años, pudiendo ser reelectos o removidas libremente.
+La rotación de los miembros es un elemento que debe ser tomado en cuenta, según sean las competencias y la experiencia de los miembros y de los nominados
+* Modificado mediante acuerdo JDN-5675-Acd-758-2019-Art-3 celebrada el miércoles 25 de setiembre del 2019.

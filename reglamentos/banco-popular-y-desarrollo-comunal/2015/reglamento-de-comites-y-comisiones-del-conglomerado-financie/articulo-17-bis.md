@@ -1,3 +1,1 @@
-Artículo 17 bis. Evaluaciones del desempeño
-El respectivo órgano de nombramiento evalúa anualmente la gesff6n de cada Comité o Comisión y de cada uno de sus integrantes, examinando la estructura, tamaño, composición y funciones del órgano, así como el desempeño de cada miembro, ello entre otros aspectos que estime necesarios, adoptando o recomendando las medidas procedentes para mejorar el desempeño de esos órganos.
-Estas evaluaciones pueden realizarse con la ayuda de expertos externos a la respectiva entidad.
+Artículo 17 bis.—Evaluaciones del desempeño. El respectivo órgano de nombramiento evalúa anualmente la gestión de cada Comité o Comisión y de cada uno de sus integrantes, todo de conformidad con la Política para la evaluación del desempeño de Órganos de Dirección, Comités, Comisiones y Alta Gerencia del Conglomerado Financiero Banco Popular y de Desarrollo Comunal y la demás normativa aplicable.

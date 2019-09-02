@@ -1,13 +1,23 @@
-Artículo 29. Objetivos y funciones.
-El Comité tiene como objetivo asesorar a la Junta Directiva Nacional en todo lo relacionado con las políticas de gestión de riesgos, la capacidad y el apetito de riesgo de la entidad o del Vehículo de Administración de Recursos de Terceros, cuando corresponda. Asimismo, de supervisar la ejecución de la Declaración de Apetito de Riesgo por parte de la Gerencia General Corporativa la presentación de informes sobre el estado de la Cultura de Riesgo de la entidad, y la interacción y supervisión con el director de riesgos, para lo cual realizará las siguientes funciones:
-a) Monitorear las exposiciones a riesgos y contrastar dichas exposiciones frente a los límites de tolerancia aprobados por la Junta Directiva Nacional. Entre otros aspectos que estime pertinentes, el Comité debe referirse al impacto de esos riesgos sobre la estabilidad y solvencia de la entidad.
-b) Informar en enero, abril, julio y octubre de cada año, a la Junta Directiva Nacional, los resultados de sus valoraciones sobre las exposiciones al riesgo de la Entidad, el cumplimiento de las Políticas establecidas y de los limites adoptados, así como un resumen de las decisiones tomadas en su seno.
-c) Recomendar Políticas, Reglamentos, Directrices y Manuales de Procedimientos que coadyuven con una efectiva administración de riesgos, así como definir los escenarios y el horizonte temporal en los cuales pueden aceptarse excesos o excepciones a los límites aprobados, así como los posibles cursos de acción o mecanismos mediante los cuales se regularice la situación. La definición de escenarios debe considerar tanto eventos originados en acciones de la propia entidad como circunstancias de su entorno.
-d) Proponer planes de contingencia en materia de riesgos para la aprobación de a Junta Directiva
-Nacional.
-e) Intercambiar periódicamente con la Auditoria Interna y con los otros Comités y Comisiones que juzgue conveniente, la Información necesaria para asegurar la cobertura efectiva de todos los riesgos y los ajustes necesarios en el Gobierno Corporativo del Banco a la luz de sus planes de negocio o actividades y el entorno.
-f) Proponer a la Junta Directiva Nacional, la designación de la firma auditora o la persona profesional independiente para la auditoria del proceso de Administración Integral de Riesgo. Si a Junta decidiere separarse de la propuesta del Comité, deberá razonar su decisión y hacerlo constar en el acta respectiva.
-g) Vigilar que la gestión de riesgos considere los riesgos críticos de las actividades que realiza la entidad.
-h) Emitir los criterios pertinentes desde la perspectiva de la gestión integral de riesgos, sobre asuntos que deben ser conocidos por el Comité de Tecnología de Información, la Comisión de Inversiones del Banco y su Comité de Cumplimiento.
-i) Aprobar el Programa Anual de Capacitación en Administración Integral de Riesgos.
-j) Las demás que indique la normativa o la Junta Directiva Nacional.
+Sección V
+De la Comisión de Banca Social, Fodemipyme
+y Banca de Desarrollo Empresarial
+Artículo 29.—Integración y funciones. Esta Comisión la integran de uno y hasta tres miembros de la Junta Directiva Nacional y tiene como objeto planificar acciones relacionadas con los Fondos Especiales, el Fodemipyme, los emprendimientos, la pignoración, el crédito con Bono Familiar de la Vivienda y la Banca de Desarrollo Empresarial, mediante el análisis de temas y la propuesta de acuerdos que faciliten a la Junta Directiva Nacional y a otros órganos del Banco la información, el conocimiento y la toma de decisiones, para lo cual ejerce las siguientes funciones:
+a) Proponer al órgano competente, la emisión y modificación de las políticas, reglamentos, directrices y manuales de procedimientos relacionados con los Fondos Especiales, Fodemipyme, pignoración, el crédito con Bono Familiar de la Vivienda y la Banca de Desarrollo Empresarial.
+b) Conocer los informes trimestrales de gestión que le remita el Fodemipyme y proponer a la Junta Directiva Nacional las medidas que deba adoptar.
+c) Conocer los informes semestrales de gestión de los Fondos Especiales y proponer a la Junta Directiva Nacional las medidas que deba adoptar.
+d) Conocer los informes trimestrales de gestión que le remita la Gerencia General Corporativa en cuanto a Pignoración y proponer a la Junta Directiva Nacional las medidas que deba adoptar.
+e) Conocer los informes trimestrales de gestión que le remita la Gerencia General Corporativa en cuanto a crédito con Bono Familiar de Vivienda y proponer a la Junta Directiva Nacional las medidas que deba adoptar.
+f) Presentar ante la Junta Directiva Nacional propuestas de solicitud de recursos financieros para los Fondos Especiales correspondientes a las utilidades percibidas anualmente por el Banco.
+g) Conocer los informes de subastas del Fondo de Avales del Fodemipyme.
+h) Conocer los informes de traslado de operaciones de los Fondos Especiales a las carteras de crédito del Banco.
+i) Conocer los informes trimestrales de gestión que le remitirá la Gerencia General Corporativa en cuanto a la Banca de Desarrollo Empresarial y proponer a la Junta Directiva Nacional las medidas por adoptar.
+j) Conocer los informes de asignación de recursos al Fondo Especial de Desarrollo Empresarial (FEDE).
+k) Conocer y recomendar los proyectos por financiar con recursos de Fondo de Servicios de Desarrollo Empresarial.
+l) Conocer y analizar los informes que en materia de fondos realice la Auditoría Interna y emitir las recomendaciones que correspondan.
+m)Conocer y analizar los informes que en materia de fondos realicen las Auditorías Externas y emitir las recomendaciones que correspondan.
+n) Conocer y analizar los informes que en materia de fondos realicen entes externos al Banco y emitir las recomendaciones que correspondan.
+o) Atender las recomendaciones y los acuerdos de la Junta Directiva Nacional en torno a los Fondos Especiales y Fodemipyme.
+p) Promover, mediante la valoración de iniciativas remitidas por la Gerencia General Corporativa, mejoras en el funcionamiento de los Fondos Especiales y el Fodemipyme.
+q) Conocer las propuestas que en materia de inversión de recursos le remita la Gerencia General Corporativa y trasladarlas a la Junta Directiva Nacional para su aprobación.
+r) Las demás que le indique la normativa y la Junta Directiva Nacional.
+* Modificado mediante acuerdo JDN-5675-Acd-758-2019-Art-3 celebrada el miércoles 25 de setiembre del 2019.

@@ -1,5 +1,9 @@
-CAPÍTULO III. DE LA ORGANIZACIÓN Y FUNCIONES DE LOS COMITÉS DE APOYO Y
-COMISIONES EN ESPECIAL
-Sección 1. Del Comité Corporativo de Auditoría
-Artículo 18. Integración,
-Este Comité lo integran cinco personas, debiendo estar representada cada entidad del Conglomerado por una persona integrante de su Junta. Cuando el Comité se reúna para conocer asuntos de interés de una Sociedad, se adiciona como integrante del Comité a la Fiscalía de la respectiva Sociedad. Si no hay dentro del Comité alguien con especialidad en el área financiera-contable con grado académico en Administración de Negocios o Contaduría Pública y experiencia rnínima de cinco años en labores afines, se debe designar además una persona como Miembro Externo.
+CAPÍTULO III
+De la organización y funciones de los comités
+de apoyo y las comisiones en especial
+Sección 1
+Del Comité Corporativo de Auditoría
+Artículo 18.—Fundamento e integración. El Comité Corporativo de Auditoría Interna tiene su fundamento en el acuerdo SUGEF 16-16, Reglamento de Gobierno Corporativo. Se integrará con seis personas: dos directores de la Junta Directiva Nacional y un director de cada Sociedad, quien debe ostentar el puesto de Presidente o Vicepresidente de la respectiva Junta Directiva.
+Deberá asistir la persona que ejerza el cargo de Gerente, General Corporativo o el Subgerente General de Operaciones con voz, pero sin voto, así como cualquier otra persona que, a juicio del Comité, deba asistir.
+Todos sus miembros deben poseer las habilidades, los conocimientos y la experiencia demostrable en el manejo y la compresión de la información financiera, así como de temas de contabilidad y auditoría, todo de conformidad con el Acuerdo SUGEF 16-16, Reglamento sobre Gobierno Corporativo.
+* Modificado mediante acuerdo JDN-5675-Acd-758-2019-Art-3 celebrada el miércoles 25 de setiembre del 2019.

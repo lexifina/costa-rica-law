@@ -1,2 +1,0 @@
-Transitorio
-Los integrantes de los Comités y Comisiones y sus Presidentes y Vicepresidentes nombrados antes de la vigencia del Reglamento de Gobierno Corporativo, aprobado por CONASSIF y publicado en el Alcance No. 290 D del Diario Oficial La Gaceta No. 235, del 7 de diciembre del 2016, Acuerdo SUGEF 16-16 se mantendrán en sus cargos hasta el cese del mismo, disposición aplicable a los integrantes de la Comisión de Nominación y Compensación a la que se refería el artículo 37 de este Reglamento, ahora denominado Comité de Remuneraciones del Banco Popular

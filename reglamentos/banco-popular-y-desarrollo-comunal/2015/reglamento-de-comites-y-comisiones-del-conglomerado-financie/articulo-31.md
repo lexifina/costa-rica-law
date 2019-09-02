@@ -1,9 +1,11 @@
-Sección V. De la Comisión de Riesgo del Conglomerado
-Artículo 31. Integración
-La Comisión estará integrada por:
-La persona titular de la Dirección de Riesgo Corporativo del Banco, quien lo presidirá. En sus ausencias será suplido por su jefatura inmediata inferior.
-La persona Gestora de Riesgo de Popular Valores.
-La persona Gestora de Riesgo de Popular SAFI.
-La persona Gestora de la Unidad de Riesgos de la Operadora.
-La persona Gestora de la Unidad de Riesgos de Popular Seguros
-Las personas titulares de la Gerencia General Corporativa y de las Gerencias Generales de las Sociedades podrán asistir a las sesiones cuando lo estimen pertinente.
+Sección VII
+De la Comisión de Plan Presupuesto y Estados
+Financieros del Banco Popular y de Desarrollo Comunal
+Artículo 31.—Integración y funciones. Esta Comisión la integran entre uno y tres integrantes de la Junta Directiva Nacional y tendrá las siguientes funciones:
+a) Evaluar la situación financiera del Banco y la aplicación de normas y técnicas de control financiero.
+b) Evaluar la aplicación al Banco de las normativas y los lineamientos que emita la Sugef.
+c) Dar seguimiento a la ejecución de los objetivos estratégicos y las metas contempladas en el Plan Estratégico del Banco, relacionados con los aspectos financieros.
+d) Analizar los presupuestos ordinarios y extraordinarios.
+e) Conocer la ejecución presupuestaria y el cumplimiento del Plan Anual Operativo.
+f) Conocer y analizar la formulación y ejecución de los planes tácticos.
+g) Los demás que señalen la normativa y la Junta Directiva Nacional.

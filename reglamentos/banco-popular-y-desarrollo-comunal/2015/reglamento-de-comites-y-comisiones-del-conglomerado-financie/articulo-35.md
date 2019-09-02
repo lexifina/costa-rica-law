@@ -1,12 +1,5 @@
-Sección VIII. De la Comisión de Plan Presupuesto y Estados Financieros del Banco Popular y de Desarrollo Comunal.
-Artículo 35. Integración y funciones.
-Esta Comisión la integran de dos a tres integrantes de la Junta Directiva Nacional y tendrá las siguientes funciones:
-a) Evaluar la situación financiera del Banco y la aplicación de normas y técnicas de control financiero.
-b) Evaluar la aplicación al Banco de las normativas y lineamientos que emita la Sugef.
-c) Dar seguimiento a la ejecución de os objetivos estratégicos y las metas contempladas en el Plan Estratégico del Banco, relacionados con los aspectos financieros.
-d) Analizar los presupuestos ordinarios y extraordinarios.
-e) Conocer la ejecución presupuestaria y el cumplimiento del Plan Anual Operativo.
-f) Derogado.
-g) Los demás que señalen la normativa y la Junta Directiva Nacional,
-h) Dar seguimiento al plan de acción de los proyectos no tecnológicos.
-i) Dar seguimiento a los proyectos tecnológicos desde la perspectiva presupuestaria e Impacto financiero
+Sección X
+Del Comité Corporativo de Nominaciones
+Artículo 35.—Fundamento e integración. El Comité de Nominaciones Corporativo tiene su fundamento en el Reglamento sobre Gobierno Corporativo, acuerdo SUGEF 16-16 y demás normativa aplicable. Se conforma por seis personas, debiendo estar representada cada entidad del Conglomerado por un miembro de su Junta Directiva, con excepción del Banco Popular, que designará a dos directores.
+Para el caso de la evaluación y posterior recomendación al órgano de dirección de las personas que se nominen para integrar las Juntas Directivas de las Sociedades Anónimas, se deberá integrar un Comité de Nominaciones Especial, compuesto únicamente por tres miembros de la Junta Directiva Nacional.
+* Modificado mediante acuerdo JDN-5675-Acd-758-2019-Art-3 celebrada el miércoles 25 de setiembre del 2019.

@@ -1,8 +1,7 @@
-Sección IX. De la Comisión de Asuntos Jurídicos del Banco
-Artículo 36. Integración y Funciones.
-Esta Comisión la integran de dos a tres personas integrantes de la Junta Directiva Nacional y tendrá las siguientes funciones:
-a) Proponer a la Junta Directiva Nacional, para su aprobación, la reglamentación necesaria para la efectiva gestión del Banco, así como los reglamentos de índole corporativa.
-b) Recomendar a la Junta Directiva Nacional cualquier acción jurídica que estime necesaria como resultado del análisis de algún asunto, que con motivo del ejercicio de sus funciones haya tenido conocimiento y que pueda tener implicaciones de cualquier índole para el Banco o las Sociedades.
-c) Velar para que la normativa interna del Banco se ajuste al ordenamiento jurídico nacional.
-d) Revisar todas las propuestas de reglamentación que la Junta Directiva Nacional le someta para su análisis,
-e) Desempeñar otras funciones que la Junta Directiva Nacional le asigne relacionadas con la materia legal
+Artículo 36.—Funciones del Comité Corporativo de Nominaciones. El Comité de Nominaciones tiene las siguientes funciones:
+a) De conformidad con el Procedimiento corporativo para el
+nombramiento de los miembros del órgano de Dirección de las Sociedades Anónimas y de la Alta Gerencia del Conglomerado Financiero Banco Popular y de Desarrollo Comunal, le corresponde al Comité de Nominaciones apoyar el proceso de selección de las personas que ocupen alguno de esos cargos.
+b) Verificar que los integrantes del Órgano de Dirección resultante sean idóneos, que cuenten con la diversidad de conocimientos, experiencia, disponibilidad y competencias acordes a la importancia sistémica de la entidad financiera, la complejidad de sus operaciones, la estructura de propiedad, la naturaleza jurídica y los mercados en que opera.
+c) Revisar los perfiles y recomendar a la respectiva Junta las modificaciones que correspondan de los puestos que conforman la Alta Gerencia y los del Auditor y Subauditor Internos, cuando corresponda.
+d) Velar por la existencia de un plan de sucesión de las personas que conforman la Alta Gerencia, así como los órganos de Dirección cuando ello corresponda.
+e) Al Comité de Nominaciones Especial le corresponde identificar y postular a los candidatos al Órgano de Dirección de las Sociedades del Conglomerado, tomando en cuenta los criterios y las disposiciones establecidos en la normativa prudencial dictada por el Órgano de Supervisión respectivo, así como los lineamientos que sobre esta materia ha dictado la Junta Directiva Nacional.
