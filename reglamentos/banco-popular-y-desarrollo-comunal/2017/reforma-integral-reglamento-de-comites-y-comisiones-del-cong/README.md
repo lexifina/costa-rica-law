@@ -14,3 +14,4 @@ Reforma Integral Reglamento de Comités y Comisiones del Conglomerado Financiero
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-07-19 | la propia norma |
+| 2 | 2019-09-02 | Reglamento 5668 (2019-09-02) |

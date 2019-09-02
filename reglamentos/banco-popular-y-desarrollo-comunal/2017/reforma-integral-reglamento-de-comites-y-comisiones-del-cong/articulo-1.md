@@ -1,4 +1,6 @@
+(Derogado)
 BANCO POPULAR Y DE DESARROLLO COMUNAL
+(Esta norma fue derogada mediante sesiones N° 5668 y N° 5675 del 2 de setiembre de 2019 y 30 de setiembre de 2019)
 La Junta Directiva Nacional en sesiones 5457, 5469 y 5473 celebradas los días 25 de abril, 8 y 22 de junio del 2017 modificó los artículos 1, 3, 4, 5, 6, 7, 8, 19, 20, 23, 27, 29, 34, 35 y 37, adicionó los artículos 15 bis, 17 bis, 37 bis y un transitorio, y a partir de la séptima, modificó la estructura de las Secciones del Capítulo III del 'Reglamento de Comités y Comisiones del Conglomerado Financiero Banco Popular y de Desarrollo Comunal y Subsidiarias" reglamento que en lo sucesivo se leerá así:
 REGLAMENTO DE COMITES Y COMISIONES DEL CONGLOMERADO FINANCIERO BANCO
 POPULAR Y DE DESARROLLO COMUNAL Y SUBSIDIARIAS
