@@ -1,0 +1,1 @@
+Artículo 9º—Aprobación de las bases de selección. La unidad o comisión responsable del proceso someterá a consideración del Concejo Municipal las bases de selección establecidas para su estudio y aprobación.

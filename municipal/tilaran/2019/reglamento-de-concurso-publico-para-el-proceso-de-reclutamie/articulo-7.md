@@ -1,0 +1,1 @@
+Artículo 7º—De la declaración jurada. Cada concursante debe aportar -con su oferta- una declaración jurada ante notario público, en la que se acredite la ausencia de impedimentos legales, administrativos y de incompatibilidad para ocupar el puesto de Auditor o Subauditor Interno.

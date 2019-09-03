@@ -1,0 +1,1 @@
+Artículo 19.—Del período de prueba. Una vez nombrado en el puesto, el Auditor o Subauditor Interno quedará sujeto a un período de prueba de tres meses. Concluido ese lapso, el Concejo Municipal informará a la Contraloría su conformidad o disconformidad con el desempeño del funcionario nombrado.

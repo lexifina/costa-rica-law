@@ -1,0 +1,1 @@
+Artículo 2º—Requisitos de los puestos. Los requisitos mínimos exigidos para ocupar los puestos de Auditor y Subauditor Internos serán los que establezca el Manual Descriptivo de Puestos, propuesto por la Unión Nacional de Gobiernos Locales y aprobado por el Concejo Municipal, en Sesión Ordinaria número 138 celebrada el día 20 de diciembre de 2018.

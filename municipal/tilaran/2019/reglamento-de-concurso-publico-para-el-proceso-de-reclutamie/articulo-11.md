@@ -1,0 +1,1 @@
+Artículo 11.—Sobre la integración de la lista de elegibles. La lista de elegibles estará integrada y ordenada en forma descendente por aquellos(as) oferentes que hayan alcanzado una calificación igual o superior a 70% (setenta por ciento).

@@ -1,0 +1,3 @@
+Artículo 15.—Sobre la remisión de lo actuado a la Contraloría. Una vez que el Concejo Municipal apruebe el proceso efectuado, remitirá el expediente completo y la terna conformada a la Contraloría, quien aprobará o vetará lo actuado de acuerdo con lo que establece el artículo 31 de la Ley General de Control Interno.
+Aprobado el proceso del concurso por parte de la Contraloría, ésta trasladará el expediente al Concejo Municipal para que proceda con el nombramiento de uno de los candidatos que integra la terna.
+En caso de que la Contraloría vete el proceso del concurso, deberá repetirse a partir de la etapa donde se inició la objeción respectiva, tomando en consideración los señalamientos y disposiciones que realice el ente contralor.

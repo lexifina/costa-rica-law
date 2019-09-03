@@ -1,0 +1,1 @@
+Artículo 14.—De la aprobación del proceso del concurso. Concluido el proceso del concurso, la unidad o comisión responsable presentará al Concejo Municipal el informe sobre todo lo actuado, el expediente completo y la terna correspondiente para su aprobación o improbación.

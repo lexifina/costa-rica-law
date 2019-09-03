@@ -1,0 +1,1 @@
+Artículo 18.—De la comunicación del nombramiento a la Contraloría. Firme el acuerdo de nombramiento del Auditor o Subauditor Interno, el Concejo Municipal lo comunicará a la Contraloría a más tardar el primer día hábil del inicio de funciones.

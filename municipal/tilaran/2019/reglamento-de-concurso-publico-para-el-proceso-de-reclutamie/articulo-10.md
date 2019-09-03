@@ -1,0 +1,1 @@
+Artículo 10.—Sobre la nota mínima para obtener la condición de elegible. Se considerará habilitado quien obtenga una calificación final igual o superior a 70% (setenta por ciento) como resultado de la sumatoria de las ponderaciones en cada uno de los factores de selección utilizados para evaluar a los oferentes.
