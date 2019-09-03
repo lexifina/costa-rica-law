@@ -15,3 +15,4 @@ Reglamento de Permisos de Construcción de la Municipalidad de Pérez Zeledón
 | --- | --- | --- |
 | 1 | 2001-06-04 | la propia norma |
 | 2 | 2002-05-02 | Reglamento municipal 3 (2002-05-02) |
+| 3 | 2019-09-03 | Reglamento municipal 175 (2019-09-03) |
