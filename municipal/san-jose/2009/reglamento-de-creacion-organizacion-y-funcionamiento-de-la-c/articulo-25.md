@@ -1,1 +1,0 @@
-Artículo 25.—Información al Alcalde: Semestralmente, durante los meses de julio y enero de cada año, la Contraloría remitirá al Alcalde un informe detallado de sus gestiones, en las diversas áreas de su accionar.

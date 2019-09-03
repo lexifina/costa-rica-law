@@ -1,1 +1,0 @@
-Artículo 26.—Derogatoria: Deróguese el Reglamento de Creación, Organización y Funcionamiento de la Instancia de Servicios al Ciudadano y Mejoramiento de la Gestión Municipal y de las Auditorias Ciudadanas, publicado en La Gaceta Nº 5 de 8 de enero del 2004.

@@ -1,1 +1,0 @@
-Artículo 16.—Levantamiento de expedientes. De todos los asuntos que tramite la Contraloría de Servicios se levantará un expediente debidamente numerado, sellado y foliado, que contendrá toda la documentación relativa al caso y la resolución final.

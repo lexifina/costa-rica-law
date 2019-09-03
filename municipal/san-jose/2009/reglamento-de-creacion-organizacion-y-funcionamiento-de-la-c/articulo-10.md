@@ -1,1 +1,0 @@
-Artículo 10.—Manuales de Servicios al cliente: La Contraloría de Servicios pondrá a disposición de la Municipalidad de San José, un manual de servicio al cliente, que establezca las condiciones que deben cumplir sus funcionarios al atender a un usuario en actitud y aptitud.
