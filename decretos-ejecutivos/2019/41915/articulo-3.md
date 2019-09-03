@@ -1,0 +1,3 @@
+Artículo 3°.-Derogatorias. Esta reforma deroga la Sección 21.132 Documentación para la solicitud de un certificado de aeronavegabilidad estándar, debido a que el requisito de documentación se unifica a la sección 21.135.
+Esta reforma deroga la Sección 21.185. Convalidación del Certificado de Aeronavegabilidad, por no ser una práctica aplicable en Costa Rica.
+Esta reforma deroga Sección 21.194 Aprobaciones de aeronavegabilidad para la importación, no se exige el Certificado de Aeronavegabilidad para la Exportaci9n, por ser un requisito doble para el interesado, pues para ostentar por la matricula TI, las aeronaves deben satisfacer la inspección de conformidad completa para la emisión del Certificado de Aeronavegabilidad.

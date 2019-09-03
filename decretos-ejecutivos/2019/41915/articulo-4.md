@@ -1,0 +1,1 @@
+Artículo 4°.-La Sección 21.139 Emisión de certificado de aeronavegabilidad especial aeronaves deportivas livianas-LSA, empezará a regir 18 meses después de la entrada en vigencia del presente reglamento.
