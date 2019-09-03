@@ -6,5 +6,5 @@ PLANIFICACIÓN Y ORDENAMIENTO TERRITORIAL
 DEL CANTÓN DE TALAMANCA
 CAPÍTULO I
 De la comisión y sus miembros
-Artículo 1º—Conforme lo indican los artículos 59 y 60 de la Ley de Planificación Urbana, la Comisión de Planificación y Ordenamiento Territorial del Cantón de Talamanca estará integrada por nueve miembros residentes en el Cantón, los cuales serán nombrados y ratificados por el Concejo Municipal, dicha comisión estará conformada por tres funcionarios de la administración municipal, cuatro regidores municipales de donde saldrá el presidente de la comisión, un representante del SINAC-ACLAC y un representante de la Sociedad Civil.
-(Así reformado mediante sesión N° 5 del 03 de junio del 2016)
+Artículo 1º—Conforme lo indican los artículos 59 y 60 de la Ley de Planificación Urbana, la Comisión de Planificación y Ordenamiento Territorial del Cantón de Talamanca estará integrada por trece(*) miembros residentes en el Cantón, los cuales serán nombrados y ratificados por el Concejo Municipal, dicha comisión estará conformada por tres funcionarios de la administración municipal, cuatro regidores municipales de donde saldrá el presidente de la comisión, un representante del SINAC-ACLAC y un representante de la Sociedad Civil.
+(*) (Así reformado en sesión N° 167 del 3 de setiembre de 2019)
