@@ -70,7 +70,7 @@ Norte franco | 600 | 209.000 | 534.000 | 54
 Oeste franco | 1.000.00 | 209.000 | 533.000 | 55
 | | | | | | |
 A continuación se sigue al sur franco una distancia de 3 000 metros hasta la intersección de las coordenadas 206.000 N y la 533.000 E y se llega al punto de partida (punto 1) cerrando la poligonal.
-(*) (Así reformado por el artículo 1° del decreto ejecutivo N° 29278 del 15 de enero del 2001)
+(*) (Así reformado por el artículo 1° del decreto ejecutivo N° 29278 del 15 de enero del 2001. Posteriormente mediante resolución de la Sala Constitucional N° 16793 del 4 de setiembre de 2019, se declaró parcialmente con lugar y se anula la reducción del área de la Zona Protectora Cerro de la Carpintera, realizada mediante el Decreto No. 29278-MINAE del 15 de enero de 2001, publicado en La Gaceta No. 30 del 12 de febrero del 2001, quedando este decreto vigente, únicamente en lo que se refiere a la ampliación de la Zona Protectora Cerro de la Carpintera. En virtud de lo anterior, se ordena al Sistema Nacional de Áreas de Conservación que proceda, dentro del plazo de doce meses, contado a partir de la publicación íntegra de este pronunciamiento en el Boletín Judicial, a delimitar el área ampliada mencionada. Esta declaratoria de inconstitucionalidad tendrá efecto declarativo y retroactivo a la fecha de vigencia de la norma, todo sin perjuicio de derechos adquiridos de buena fe. )
 Río Tiribí: Hoja Istarú 3445 IV. En las Coordenadas Lambert.
 Punto | Coord. Vert. | Horizontal | Distancia M
 0 | 539000 | 213000 | 1.800
