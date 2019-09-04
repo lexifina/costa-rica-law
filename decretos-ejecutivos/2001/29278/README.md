@@ -14,3 +14,4 @@ Modifica Límites de la Zona Protectora Cerro de la Carpintera
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-02-12 | la propia norma |
+| 2 | 2019-09-04 | SINALEVI (sin norma nombrada) |

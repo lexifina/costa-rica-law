@@ -1,4 +1,5 @@
 Nº 29278-MINAE
+(Nota de Sinalevi: Mediante resolución de la Sala Constitucional N° 16793 del 4 de setiembre de 2019, se declaró parcialmente con lugar y se anula la reducción del área de la Zona Protectora Cerro de la Carpintera, realizada mediante el Decreto No. 29278-MINAE del 15 de enero de 2001, publicado en La Gaceta No. 30 del 12 de febrero del 2001, quedando este decreto vigente, únicamente en lo que se refiere a la ampliación de la Zona Protectora Cerro de la Carpintera. En virtud de lo anterior, se ordena al Sistema Nacional de Áreas de Conservación que proceda, dentro del plazo de doce meses, contado a partir de la publicación íntegra de este pronunciamiento en el Boletín Judicial, a delimitar el área ampliada mencionada. Esta declaratoria de inconstitucionalidad tendrá efecto declarativo y retroactivo a la fecha de vigencia de la norma, todo sin perjuicio de derechos adquiridos de buena fe.)
 EL PRESIDENTE DE LA REPÚBLICA
 Y LA MINISTRA DEL AMBIENTE Y ENERGÍA
 En uso de las facultades que les confieren los incisos 3) y 18) del artículo 140 de la Constitución Política.
