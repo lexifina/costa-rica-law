@@ -15,3 +15,4 @@ Reglamento de evaluación del proceso de aprendizaje de la Universidad Técnica 
 | --- | --- | --- |
 | 1 | 2014-10-02 | la propia norma |
 | 2 | 2017-08-31 | Reglamento 16 (2017-08-31) |
+| 3 | 2019-09-05 | Reglamento 19 (2019-09-05) |

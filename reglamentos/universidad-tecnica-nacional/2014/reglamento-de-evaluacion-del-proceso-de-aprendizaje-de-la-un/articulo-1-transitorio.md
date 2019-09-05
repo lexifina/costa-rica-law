@@ -1,0 +1,2 @@
+Transitorio. Se establece un régimen de excepción para el trámite y emisión de certificaciones emitidas por Registro Universitario para los graduados extranjeros de la Maestría en Entornos Virtuales de Aprendizaje, de tal modo que en dichas certificaciones se hagan constar las notas de los cursos aprobados en las instituciones universitarias de otros países, en acuerdo con Aprende Virtual o Virtual Educa. Este Régimen excepcional se aplicará únicamente a los estudiantes matriculados antes del 31 de agosto del 2019.
+(Así adicionado en sesión N° 19 del 5 de setiembre de 2019)
