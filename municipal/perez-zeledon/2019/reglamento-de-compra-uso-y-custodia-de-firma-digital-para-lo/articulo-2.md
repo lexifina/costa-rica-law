@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de aplicación: Los funcionarios de la Municipalidad de Pérez Zeledón que tienen asignada una firma digital, quedan expresamente facultados para utilizarla en sus procesos y funciones diarias, siempre y cuando no exista ningún impedimento legal que expresamente así lo establezca.

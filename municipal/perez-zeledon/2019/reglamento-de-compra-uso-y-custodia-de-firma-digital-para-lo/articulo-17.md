@@ -1,0 +1,3 @@
+CAPÍTULO VI
+Disposiciones finales y transitorias
+Artículo 17.—Normativa complementaria: En lo no previsto por este Reglamento, se aplicará supletoriamente lo dispuesto en directrices que emita el Alcalde Municipal, la Ley de Certificados Digitales, Firmas Digitales y Documentos Electrónicos, la normativa y lineamientos que emita la DCFD, el Código Municipal, Reglamento Autónomo de Organización y Servicios de la Municipalidad de Pérez Zeledón, Ley de Control Interno, Ley General de Administración Pública, Ley de Notificaciones Judiciales Nº 8687, y demás normativa administrativa que regule la materia.

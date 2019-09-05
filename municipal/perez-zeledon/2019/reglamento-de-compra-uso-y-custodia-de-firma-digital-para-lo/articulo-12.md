@@ -1,0 +1,1 @@
+Artículo 12.—Solicitudes de soporte de Firma Digital: El PSI, será el encargado de atender las solicitudes de soporte técnico de Firma Digital en la en primer nivel. En caso de requerir soporte técnico de segundo nivel o superior, el caso se deberá trasladar a la DCFD.
