@@ -1,0 +1,2 @@
+DISPOSICIONES TRANSITORIAS
+TRANSITORIO I- El Consejo Nacional de Supervisión del Sistema Financiero (Conassif) deberá aprobar la reglamentación necesaria para la actividad de sucursales bancarias de bancos extranjeros o aprobar los ajustes al marco regulatorio existente para que sea aplicable en lo que corresponda a las sucursales bancarias de bancos extranjeros, en un plazo de un año a partir de la publicación de la presente ley en La Gaceta.
