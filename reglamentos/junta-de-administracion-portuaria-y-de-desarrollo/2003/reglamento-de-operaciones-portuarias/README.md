@@ -23,3 +23,4 @@ Reglamento de Operaciones Portuarias.
 | 8 | 2012-04-19 | Reglamento 8 (2012-04-19) |
 | 9 | 2014-04-24 | Reglamento 14 (2014-04-24) |
 | 10 | 2014-11-28 | Reglamento 0 (2014-11-28) |
+| 11 | 2019-09-05 | Reglamento 15 (2019-09-05) |
