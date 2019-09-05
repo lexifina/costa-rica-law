@@ -1,0 +1,1 @@
+Artículo 8.- Suministro de información al Ministerio de Hacienda. El Ministerio de Agricultura y Ganadería pondrá a disposición del Ministerio de Hacienda, el registro de productores agropecuarios, a efectos de que se pueda verificar el otorgamiento y cumplimiento de los beneficios tributarios que el encontrarse inscrito conllevan.

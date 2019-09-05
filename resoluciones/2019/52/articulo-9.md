@@ -1,0 +1,1 @@
+Artículo 9. -Registro de Pescadores: Este registro estará conformado por las personas físicas o jurídicas que cuentan con una licencia vigente de pescador comercial, o una autorización para el cultivo de organismos acuáticos, marinos o continentales extendida por el Instituto Costarricense de Pesca y Acuicultura (INCOPESCA).

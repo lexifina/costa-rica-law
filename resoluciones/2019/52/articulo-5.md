@@ -1,0 +1,1 @@
+Artículo 5.- Deber de inscripción. Los productores agropecuarios que no se encuentran inscritos en alguno de los registros mencionados en el artículo 2 y el artículo 9 de la presente resolución podrán inscribirse en el Registro que dispone el punto 4 del artículo 2.
