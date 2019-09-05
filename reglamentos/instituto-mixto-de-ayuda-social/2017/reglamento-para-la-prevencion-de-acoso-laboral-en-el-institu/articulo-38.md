@@ -1,5 +1,5 @@
 Artículo 38: De la resolución final del asunto: Concluido el procedimiento, la Gerencia General dictará la resolución final, la cual contendrá lo siguiente:
-a) Una sección a manera de resultandos, en la que se haga referencia a los pormenores de procedimiento, dentro de los cuales se indicará si el procedimiento se realizó con la observancia de las reglas del debido proceso. Los resultandos son descripciones de los hechos relevantes del procedimiento.
+a) Una sección a manera de resultandos, en la que se haga referencia a los pormenores del procedimiento, dentro de los cuales se indicará si el procedimiento se realizó con la observancia de las reglas del debido proceso. Los resultandos son descripciones de los hechos relevantes del procedimiento.
 b) Un considerando de hechos relevantes, que puedan ser considerados como probados, otro considerando relativo a los hechos no probados que en apariencia sean de importancia para el Órgano Director, de acuerdo con los elementos probatorios introducidos durante la tramitación del procedimiento.
 c) Una parte considerativa donde se indique el análisis técnico-jurídico que motiva el acto y que contenga el análisis de las pruebas que se hicieron llegar al expediente y de una parte dispositiva donde se incorpora la decisión final del procedimiento.
 d) Una conclusión del resultado de las diligencias.

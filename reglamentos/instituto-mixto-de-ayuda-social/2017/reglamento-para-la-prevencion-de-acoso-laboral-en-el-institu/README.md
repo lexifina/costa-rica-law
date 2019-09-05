@@ -14,3 +14,4 @@ Reglamento para la prevención de acoso laboral en el Instituto Mixto de Ayuda S
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-02-12 | la propia norma |
+| 2 | 2019-09-05 | Reglamento 0 (2019-09-05) |

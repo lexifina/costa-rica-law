@@ -9,7 +9,6 @@ g) Fecha de interposición de la denuncia.
 h) En caso de que la denuncia se presente en forma verbal, podrá ser grabada por la persona trabajadora que reciba la denuncia.
 i) Medio para atender notificaciones.
 La persona titular de la Gerencia General, al momento de recibir la denuncia, podrá hacerse asesorar del representante de la Asesoría Jurídica que integre la Comisión Institucional para la Prevención del Acoso Laboral, a efecto de garantizar los derechos de la persona denunciante.
-La Administración podrá actuar de oficio, a instancia de parte o por denuncia de un tercero.
+La Administración podrá actuar a instancia de parte o por denuncia de un tercero.
 En los casos en los que la denuncia sea presentada en forma verbal, quien la recibe la consignará en un acta, cumpliendo para ello los requisitos anteriormente establecidos.
-En todos los casos, deberá informársele a la persona denunciante de las garantías que la ley les concede y adviértasele de las consecuencias legales que acarrea la interposición de una denuncia
-falsa.
+En todos los casos, deberá informársele a la persona denunciante de las garantías que la ley les concede y adviértasele de las consecuencias legales que acarrea la interposición de una denuncia falsa.
