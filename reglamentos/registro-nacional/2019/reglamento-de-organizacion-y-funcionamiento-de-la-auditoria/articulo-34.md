@@ -1,0 +1,2 @@
+Artículo 34°. —El personal de la Auditoría Interna en el ejercicio de sus competencias, realizará su trabajo con aptitud y debido cuidado profesional. Asimismo, emprenderán acciones para actualizar y perfeccionar sus conocimientos, aptitudes y otras competencias requeridas para el ejercicio de la auditoría interna.
+La persona Auditora Interna realizará las acciones que sean necesarias, para que ella y su equipo de trabajo perfeccionen sus conocimientos, aptitudes y otras competencias requeridas, mediante la capacitación profesional continua.

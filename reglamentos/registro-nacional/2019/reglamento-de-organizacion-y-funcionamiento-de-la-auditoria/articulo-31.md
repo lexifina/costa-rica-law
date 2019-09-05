@@ -1,0 +1,3 @@
+CAPÍTULO V
+Del personal de la Auditoría Interna
+Artículo 31°. —En materia de recursos humanos la persona Auditora Interna ejercerá todas las funciones que le son propias en la administración de personal, de tal forma que deberá contarse con su autorización para la definición de perfiles, nombramientos, traslados, reasignación, suspensión, remoción, promoción, concesión de licencias y demás movimientos de personal, todo de acuerdo con el marco jurídico que en la materia rige en el Registro Nacional. La disminución de plazas por movilidad laboral deberá ser previamente autorizada por la persona Auditora Interna.

@@ -1,0 +1,6 @@
+TÍTULO II
+De la organización de la Auditoría Interna
+CAPÍTULO I
+Concepto de auditoría interna
+Artículo 5º.—La Auditoría Interna es un órgano institucional del Registro Nacional, con dependencia orgánica de la Junta Administrativa, la cual realiza su actividad en forma independiente y objetiva; mediante la práctica de un enfoque sistémico y profesional.
+Dentro de la organización, la Auditoría Interna contribuye a que se alcancen los objetivos institucionales y le genera valor mediante la evaluación y mejora de la efectividad de los procesos de gestión de riesgos, control y dirección. Además, proporciona a la ciudadanía una garantía razonable de que la actuación del jerarca y la del resto de la administración, se ejecuta conforme al marco legal y técnico, y a prácticas sanas.

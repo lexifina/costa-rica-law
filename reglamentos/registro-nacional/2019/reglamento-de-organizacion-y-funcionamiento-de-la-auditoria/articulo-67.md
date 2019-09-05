@@ -1,0 +1,1 @@
+Artículo 67°. —Deróguese el “Reglamento de Organización y Funcionamiento de la Auditoría Interna del Registro Nacional”, aprobado por la Junta Administrativa del Registro Nacional, mediante acuerdo firme J492 tomado en sesión ordinaria 37-2007, celebrada el 18 de octubre de 2007.

@@ -1,0 +1,1 @@
+Artículo 20°. —Para efectos presupuestarios, la Junta Administrativa dará a la Auditoría Interna una categoría programática. En la asignación y disposición de sus recursos, se tomará en cuenta el criterio de la persona Auditora Interna y las disposiciones que emita al respecto la Contraloría General de la República.
