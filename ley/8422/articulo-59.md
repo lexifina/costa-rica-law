@@ -1,0 +1,1 @@
+Artículo 59.—Inhabilitación. A quien incurra en los delitos señalados en esta Ley, además de la pena principal se le podrá inhabilitar para el desempeño de empleo, cargo o comisiones públicas que ejerza, incluso los de elección popular, por un período de uno a diez años. Igual pena podrá imponerse a quienes se tengan como coautores o cómplices de este delito.

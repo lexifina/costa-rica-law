@@ -1,0 +1,2 @@
+Artículo 26.—Condiciones de los sujetos obligados a presentar declaración jurada de bienes. Se encuentran obligados a declarar su situación patrimonial, los funcionarios públicos nombrados en propiedad, que ocupen los puestos o realicen las funciones correspondientes a los cargos que se detallan en esta Ley y su Reglamento.
+Asimismo, quedan comprendidos los funcionarios con nombramientos interinos a plazo fijo o con recargo o asignación de funciones mediante resolución expresa, cuando el plazo sea mayor o igual a seis meses.
