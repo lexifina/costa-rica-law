@@ -1,0 +1,2 @@
+Artículo 13.—Territorialidad. Las disposiciones de la presente Ley serán aplicables respecto de actos de corrupción cometidos fuera del territorio nacional o que produzcan sus efectos fuera de él, mientras se trate de un estado parte de la Convención Interamericana contra la Corrupción.
+La Contraloría General de la República tendrá plenas facultades de fiscalización sobre los funcionarios y las oficinas del servicio exterior costarricense y de los sujetos pasivos que establezcan oficinas fuera del territorio nacional.

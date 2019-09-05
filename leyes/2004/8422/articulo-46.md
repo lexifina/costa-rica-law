@@ -1,0 +1,1 @@
+Artículo 46.—Falsedad en la declaración jurada. Será reprimido con prisión de seis meses a un año, quien incurra en falsedad, simulación o encubrimiento al realizar las declaraciones juradas de bienes ante la Contraloría General de la República.

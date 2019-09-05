@@ -1,0 +1,1 @@
+Artículo 15.—Retribución económica por la prohibición de ejercer profesiones liberales. Salvo que exista un régimen especial de remuneración para el funcionario público, la compensación económica por la aplicación del Artículo anterior será equivalente a un sesenta y cinco por ciento (65%) sobre el salario base fijado para la categoría del puesto respectivo.

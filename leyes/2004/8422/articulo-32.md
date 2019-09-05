@@ -1,0 +1,4 @@
+Artículo 32.—Simulación. Podrá concluirse que existe simulación, si no hay concordancia entre los bienes declarados ante la Contraloría General de la República y los que se estén usufructuando de hecho.
+Para que la simulación se configure, será necesario que el usufructo sea sobre bienes de terceros, que por ello no aparezcan en la declaración del funcionario, que este no pueda exhibir ningún título sobre ellos, y que el usufructo sea público y notorio, parcial o total, permanente o discontinuo.
+Se entiende que existe usufructo de hecho sobre los bienes muebles e inmuebles que conforman el patrimonio familiar y los pertenecientes a cualquiera de sus parientes por consanguinidad o afinidad, incluso hasta el segundo grado, o a cualquier persona jurídica, siempre que exista la indicada forma indicada de usufructo.
+Todos los bienes de los cuales se goce un usufructo de hecho, por cualquier motivo, deberán ser declarados.

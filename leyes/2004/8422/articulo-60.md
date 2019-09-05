@@ -1,0 +1,1 @@
+Artículo 60—Violación de la privacidad de la información de las declaraciones juradas. Será penado con prisión de tres a cinco años, quien divulgue las declaraciones juradas de bienes presentadas ante la Contraloría General de la República.

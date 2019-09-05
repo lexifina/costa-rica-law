@@ -1,0 +1,3 @@
+Artículo 42.—Sanciones para los funcionarios de la Contraloría General de la República. Además de las sanciones establecidas en los reglamentos internos, los servidores de la Contraloría General de la República serán sancionados, disciplinariamente, con despido sin responsabilidad patronal, sin perjuicio de las sanciones penales correspondientes, cuando por dolo o culpa grave:
+a) Violen la confidencialidad o alteren el contenido de las declaraciones juradas de bienes.
+b) Divulguen información de los sujetos pasivos de la fiscalización de la Contraloría General de la República, cuya confidencialidad sea conferida por ley especial y a la cual tengan acceso en ejercicio de sus funciones, o se prevalezcan de dicha información o de su cargo para fines ajenos a sus deberes.

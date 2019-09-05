@@ -1,0 +1,1 @@
+Artículo 4º—Violación al deber de probidad. Sin perjuicio de las responsabilidades civiles y penales que procedan, la infracción del deber de probidad, debidamente comprobada y previa defensa, constituirá justa causa para la separación del cargo público sin responsabilidad patronal.

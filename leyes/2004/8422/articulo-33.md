@@ -1,0 +1,1 @@
+Artículo 33.—Recibo. El interesado recibirá constancia de la presentación de sus declaraciones, sin perjuicio de que la Contraloría General de la República pueda exigirle las aclaraciones pertinentes o información adicional, o de las responsabilidades que se deriven por presentación tardía en forma injustificada.
