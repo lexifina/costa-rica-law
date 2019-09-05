@@ -1,0 +1,3 @@
+Artículo 16.-
+Se dejará de pagar la compensación por disponibilidad cuando desaparezcan las condiciones objetivas que motivaron su pago, cuando se opere un traslado a otro puesto que no conlleve este reconocimiento o por cualquier otro motivo justificado, circunstancia que debe ser informada en forma inmediata por la jefatura respectiva a la Dirección de Capital Humano.
+Consecuentemente, no se podrá alegar derechos adquiridos cuando concurran las circunstancias apuntadas en el párrafo anterior; sin embargo, la exclusión de un puesto o cargo del pago de compensación por disponibilidad deberá ser debidamente motivado por la Dirección que realizó la solicitud y constar por escrito.

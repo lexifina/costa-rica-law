@@ -1,0 +1,2 @@
+Artículo 18.-
+Es responsabilidad de cada jefatura establecer los controles correspondientes para verificar que los funcionarios que reciben el pago de disponibilidad efectivamente se encuentren disponibles, so pena de ser sancionada previo debido proceso.

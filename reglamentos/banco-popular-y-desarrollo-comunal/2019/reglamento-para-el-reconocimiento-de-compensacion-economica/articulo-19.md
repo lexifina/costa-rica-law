@@ -1,0 +1,2 @@
+Artículo 19.-
+De comprobarse que el funcionario al que se le paga disponibilidad no se apersona a su lugar de trabajo en la forma aquí regulada, contraviniendo con esto las disposiciones y obligaciones de este Reglamento, dicho incumplimiento se considerará como una falta a su contrato de trabajo y, en consecuencia, el funcionario podrá ser sancionado disciplinariamente según la gravedad de la falta, con la suspensión temporal o total del contrato de trabajo, previo cumplimiento del debido proceso.

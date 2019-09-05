@@ -1,0 +1,2 @@
+Artículo 4.- ***
+Por pago de reconocimiento de compensación econom1ca por disponibilidad se reconocerá al trabajador un 25% sobre su salario base. Tratándose de un trabajador contratado bajo el régimen de Salario Único, el cálculo se realizará tomando como punto de referencia el mismo salario base de un trabajador que ocupa igual clase y puesto, pero que se encuentra bajo el sistema salarial constituido por un salario base.

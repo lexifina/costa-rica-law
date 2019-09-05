@@ -1,0 +1,2 @@
+Artículo 8.-
+Para el pago de la disponibilidad, el trabajador deberá firmar un contrato denominado "Compensación Económica por Disponibilidad", en el cual se estipulará las condiciones y sanciones correspondientes que regulan el reconocimiento de este incentivo. Tanto el pago como la validez de este contrato quedan sujetos a la existencia del contenido presupuestario correspondiente, el cual se comprobará previamente.
