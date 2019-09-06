@@ -14,3 +14,4 @@ Reglamento para la ordenación horaria de la circulación de vehículos pesados
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-04-28 | la propia norma |
+| 2 | 2019-09-06 | Decreto Ejecutivo 41966 (2019-09-06) |
