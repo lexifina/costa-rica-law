@@ -14,3 +14,4 @@ Normas operativas sobre la preparación, redacción, comunicación, ejecución y
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-11-26 | la propia norma |
+| 2 | 2019-09-09 | Reglamento 70 (2019-09-09) |
