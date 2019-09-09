@@ -1,0 +1,1 @@
+Artículo 10.—Funciones de los miembros de confianza. Los colaboradores bajo el régimen de confianza están sujetos a cumplir con las funciones indicadas en los contratos laborales del BNCR, así como las funciones establecidas en los acuerdos de la JDG y/o la Gerencia General, en los que se estipula el nombramiento.
