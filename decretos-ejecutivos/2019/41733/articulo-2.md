@@ -1,0 +1,5 @@
+ARTÍCULO 2
+Visas para misiones
+1. Los ciudadanos de cualquiera de las Partes Contratantes, que hayan sido asignados como miembros de misiones diplomáticas o consulares o como representantes de su país en una organización internacional localizada en el territorio de la otra Parte Contratante y que sean portadores de un pasaporte válido diplomático, oficial o de servicio deberán solicitar visa antes de su ingreso al territorio de la otra Parte Contratante.
+2. Los portadores de pasaportes diplomáticos, oficiales y de servicio de cualquiera de las Partes Contratantes que laboren para una organización internacional, cuerpo, agencia o cualquier otra entidad similar, deberán obtener una visa previo a su ingreso en el territorio de la otra Parte Contratante, tanto para visitas oficiales como privadas.
+3. Las condiciones mencionadas en el párrafo 1 de este Artículo también se aplicarán al cónyugue del miembro de una Misión Diplomática o Consular o que sea representante en una organización internacional, sus hijos (as) y sus padres bajo su responsabilidad.
