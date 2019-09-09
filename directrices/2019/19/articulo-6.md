@@ -1,0 +1,1 @@
+Artículo 6º- Los jerarcas de las instituciones del Sector Público Costarricense serán los responsables de la aplicación de lo dispuesto en la presente Directriz, y deberán informar semestralmente al MICITI sobre los avances en el cumplimiento de su Agenda Institucional de Gobierno Digital, a más tardar los días 15 de febrero y 15 de agosto de cada año.
