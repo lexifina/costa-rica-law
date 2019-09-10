@@ -1,0 +1,1 @@
+Artículo 2°—Se faculta a la Administración Pública Central, al Consejo Presidencial de Economía Social Solidaria, a las instituciones autónomas y empresas del Estado para que dentro de sus competencias y en estricto apego al ordenamiento jurídico, brinden la cooperación y las facilidades necesarias para el buen suceso de esta actividad.
