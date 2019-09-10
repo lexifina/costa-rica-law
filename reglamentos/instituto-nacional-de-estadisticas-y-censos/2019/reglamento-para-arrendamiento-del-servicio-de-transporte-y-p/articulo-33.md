@@ -1,0 +1,1 @@
+Artículo 33. La persona funcionaria tiene el deber de transportar en el vehículo puesto en arrendamiento al INEC, a otros funcionarios de la institución para cumplir con el plan de trabajo estipulado.

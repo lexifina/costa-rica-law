@@ -1,0 +1,1 @@
+Artículo 29. No se reconocerá el pago de los kilometrajes recorridos en actividades de carácter personal y ajeno a las funciones y fines institucionales. En los casos en que la persona funcionaria es contratada en zona y deba desplazarse en un mismo perímetro para el reconocimiento deberá regirse por lo normado en los procedimientos e instructivos establecidos.

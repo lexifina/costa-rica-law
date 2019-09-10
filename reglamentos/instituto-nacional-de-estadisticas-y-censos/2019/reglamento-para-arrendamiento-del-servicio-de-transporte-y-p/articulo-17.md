@@ -1,0 +1,1 @@
+Artículo 17. Una vez que la persona funcionaria presente los documentos solicitados, el proceso de transportes procederá a revisarlos y determinará si cumple con todos los requisitos del caso y lo traslada a la asesoría jurídica para la elaboración del contrato y firma por parte de la gerencia del mismo.

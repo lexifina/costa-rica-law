@@ -1,0 +1,1 @@
+Artículo 38. - En cualquier momento podrá el INEC modificar las disposiciones del presente Reglamento, sin que para evadir o excusar su aplicación la persona funcionaria pueda alegar derechos adquiridos o situaciones jurídicas consolidadas.

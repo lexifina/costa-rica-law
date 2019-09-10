@@ -1,0 +1,1 @@
+Artículo 5. Por ningún motivo, el reconocimiento por pago de arrendamiento del servicio de transporte y pago de kilometraje de vehículos se considerará salario en especie, beneficio, mejora salarial o parte del contrato de trabajo, ni dará origen a derechos adquiridos de ninguna especie para quienes se encuentren bajo dicho sistema.

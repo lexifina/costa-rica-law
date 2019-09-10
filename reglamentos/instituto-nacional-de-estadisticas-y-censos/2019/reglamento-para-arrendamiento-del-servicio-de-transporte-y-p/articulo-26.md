@@ -1,0 +1,1 @@
+Artículo 26. No existirá obligación del INEC con la persona funcionaria de garantizar un mínimo de kilómetros por recorrer y remunerar, de manera que sólo se reconocerán aquellos kilómetros que hayan sido efectivamente recorridos, debidamente autorizados y validados por el encargado de proyecto; según los lineamientos internos establecidos para tal efecto.
