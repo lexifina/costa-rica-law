@@ -1,0 +1,2 @@
+Artículo 25. Dependencia del Auditor Interno.
+El Auditor Interno depende directamente de la Junta Directiva y es responsable ante ella en el desempeño de sus funciones, las cuales ejerce sujetándose al mandato de la Constitución Política, las leyes, reglamentos, disposiciones de la Junta Directiva, Contraloría General de la República y demás regulaciones establecidas en el Ordenamiento Jurídico para el funcionamiento de las Auditorías Internas.

@@ -1,0 +1,2 @@
+Artículo 42. Actualización del universo auditable.
+El Auditor Interno debe definir y mantener actualizado el universo fiscalizable de la Auditoría Interna respecto a los fondos públicos sujetos a la competencia institucional, incluyendo fideicomisos, fondos especiales y otros de naturaleza similar, así como los fondos y actividades privadas, de acuerdo con los artículos 5 y 6 de la Ley Orgánica de la Contraloría General de la República y demás normativa aplicable.

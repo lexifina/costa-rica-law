@@ -1,0 +1,3 @@
+SECCIÓN VI. Programa de aseguramiento de la calidad
+Artículo 102. Establecimiento del programa de calidad.
+La Auditoría Interna deberá establecer en su Unidad un programa de calidad de sus servicios, el cual asegure a sus clientes un resultado confiable, garantizando el cumplimiento de las Directrices para la Autoevaluación Anual de Calidad de las Auditorías Internas del Sector Público, las Normas para el Ejercicio Profesional de la Auditoría Interna, el Código de Ética, los procedimientos de Auditoría y demás normas y leyes aplicables. Este programa deberá incluir: supervisión y evaluaciones internas.

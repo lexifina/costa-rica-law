@@ -1,0 +1,2 @@
+Artículo 104. Sujeción a la normativa de archivo empresarial.
+La Auditoría Interna acatará las disposiciones emitidas por el Archivo Central de la Empresa, en la administración de su correspondencia y custodia de la documentación.

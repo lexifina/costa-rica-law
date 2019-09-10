@@ -1,0 +1,2 @@
+Artículo 26. Pericia, Debido Cuidado Profesional e Idoneidad del Auditor Interno.
+El Auditor Interno deberá cumplir con idoneidad, independencia, objetividad, profesionalismo, integridad y gestión ética, asesorando en sus funciones, haciendo valer sus competencias con independencia funcional y de criterio y siendo vigilante de que su personal responda de igual manera. Los colaboradores y personas externas a la Auditoría asignadas a cada trabajo deberán poseer, en conjunto, los conocimientos, técnicas y otras competencias para desempeñar el trabajo adecuadamente.

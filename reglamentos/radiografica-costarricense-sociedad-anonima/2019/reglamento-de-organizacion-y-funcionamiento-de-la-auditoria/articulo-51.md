@@ -1,0 +1,2 @@
+Artículo 51. Trámite para la creación de plazas.
+El Auditor Interno planteará sus necesidades en forma oportuna y debidamente justificada ante la Junta Directiva y coordinará con la Gerencia o sus representantes la creación de plazas, las necesidades fundamentales de capacitación y los requerimientos de otros recursos que considere indispensables para llevar adelante sus actividades de auditoría y la administración de la Unidad.

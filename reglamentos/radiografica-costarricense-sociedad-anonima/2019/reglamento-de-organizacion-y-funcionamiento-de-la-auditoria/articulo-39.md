@@ -1,0 +1,2 @@
+Artículo 39. Cumplimiento de disposiciones administrativas.
+El Personal de Auditoría distinto al Auditor Interno, está sujeto al Estatuto de Personal y a todas las disposiciones administrativas y de carácter general que dicte la Junta Directiva y la Gerencia, siempre y cuando no afecten negativamente la actividad de auditoría interna y su independencia funcional y de criterio; en caso de duda, la Contraloría General dispondrá lo correspondiente.

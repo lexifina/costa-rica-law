@@ -1,0 +1,3 @@
+Artículo 18. Área de Auditoría de Tecnologías de Información.
+Las funciones de esta Área comprenden la verificación y evaluación de la planeación, organización y dirección del Centro de Cómputo de RACSA, así como la fiabilidad de la información procesada, respecto a la calidad y suficiencia de los controles sobre los sistemas actuales y futuros del área de procesamiento de datos, incluyendo la revisión del control interno.
+Le corresponde a esta Área evaluar los controles y la calidad en el campo de los servicios de infocomunicaciones que brinda la Empresa, a la luz de las actividades sustantivas de RACSA, para que se garantice una seguridad razonable a la Administración Superior, acerca de la confiabilidad y la eficiencia de los recursos técnicos primordiales.

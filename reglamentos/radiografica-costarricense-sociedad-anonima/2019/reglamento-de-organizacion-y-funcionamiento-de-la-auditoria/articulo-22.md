@@ -1,0 +1,2 @@
+Artículo 22. Área de Carácter Especial.
+Le corresponde al Área de Carácter Especial la realización de estudios especiales correspondientes a todas aquellas evaluaciones que no están contempladas dentro del Plan Anual de Actividades y las cuales son solicitadas por la Junta Directiva, la Gerencia General u otras entidades oficiales y las cuales, a criterio del Auditor, requieren un tratamiento especial por su confidencialidad y oportunidad para la ejecución. También se incluyen las contempladas en las Normas Generales de las Auditorías del Sector Público.

@@ -1,0 +1,2 @@
+Artículo 46. Plazos y prórrogas.
+El Auditor Interno establecerá en los documentos de solicitud de información, los plazos, prórrogas y condiciones que regularán el suministro, intercambio, acceso y custodia de información. Este plazo oscilará entre cinco y veinte días y será señalado en forma expresa en los memorandos de información. Se exceptúa de este artículo los informes finales de auditoría, que se regularán por lo establecido en los artículos 36 y 37 de la Ley General de Control Interno.

@@ -1,0 +1,2 @@
+Artículo 41. Universo Auditable.
+El ámbito de acción de la Auditoría Interna corresponde a las actividades desarrolladas por todas las unidades ejecutoras de la estructura organizacional de RACSA, verificación del manejo y control de los fondos públicos sujetos a su competencia, así como los girados al Fondo de Ahorro y Préstamo de los Empleados Permanentes de RACSA, las transferencias otorgadas a la Asociación Solidarista de RACSA y cualquier otra organización, fideicomiso y fondos especiales que se creen con aporte de RACSA.

@@ -1,0 +1,2 @@
+Artículo 73. Asesoría y advertencia durante la ejecución de un estudio de auditoría.
+La Auditoría Interna podrá advertir y asesorar durante un estudio de auditoría que se esté llevando a cabo, cuando se cuente con elementos suficientes que evidencien un riesgo que comprometa los fondos públicos o se pueda materializar en una afectación para RACSA, lo cual no afectará la ejecución normal de dicho estudio.

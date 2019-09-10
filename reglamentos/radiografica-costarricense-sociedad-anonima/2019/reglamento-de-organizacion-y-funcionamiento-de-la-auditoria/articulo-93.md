@@ -1,0 +1,2 @@
+Artículo 93. Seguimiento de las recomendaciones.
+La Auditoría Interna dispondrá de un programa de seguimiento de las recomendaciones aceptadas por la Administración Activa, que hayan sido comunicadas debidamente, enfocado a verificar la efectividad con que se implantaron los resultados de los servicios de auditoría, así como de las disposiciones de la Contraloría General de la República, la Auditoría Externa y el Comité de Vigilancia. La programación de las actividades de seguimiento deberá estar incluida en el Plan Anual de Actividades.

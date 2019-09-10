@@ -1,0 +1,2 @@
+Artículo 65. De la equidad presupuestaria.
+La Junta Directiva y el encargado del presupuesto darán un trato equitativo a las solicitudes presupuestarias de la Auditoría Interna respecto de las otras dependencias de RACSA, en el entendido de que no se dará un trato discriminatorio en caso de que existan restricciones de orden presupuestario, de tal forma que se cubran los requerimientos imprescindibles para su adecuado desempeño.

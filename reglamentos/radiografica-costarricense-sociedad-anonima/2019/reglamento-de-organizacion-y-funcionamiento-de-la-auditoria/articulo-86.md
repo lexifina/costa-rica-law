@@ -1,0 +1,3 @@
+SECCIÓN V. Comunicación de la Auditoría
+Artículo 86. Comunicación de resultados.
+La Auditoría Interna deberá comunicar verbalmente a través de la conferencia final y por escrito los resultados de sus auditorías o estudios especiales mediante informes dirigidos a las instancias correspondientes o a la Junta Directiva, a efecto de que se tomen las decisiones del caso, en tiempo y forma. En los informes se deberá cumplir con lo establecido en las Normas Generales de Auditoría para el Sector Público y las Normas para el Ejercicio de la Auditoría Interna en el Sector Público, emitidas por el Ente Contralor.

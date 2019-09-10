@@ -1,0 +1,2 @@
+Artículo 3. Ámbito de aplicación.
+El presente Reglamento es de carácter obligatorio para todos los colaboradores de la Auditoría Interna y colaboradores de la Administración Activa, en lo que les resulte aplicable. Ningún colaborador de RACSA puede alegar desconocimiento de este Reglamento, quedando como obligación y responsabilidad de los diferentes niveles jerárquicos de la Administración, informar al personal a su cargo sobre el mismo.

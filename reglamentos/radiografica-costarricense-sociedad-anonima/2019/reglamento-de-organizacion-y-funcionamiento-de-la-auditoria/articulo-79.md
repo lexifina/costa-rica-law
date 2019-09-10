@@ -1,0 +1,2 @@
+Artículo 79. Plan Anual de Actividades.
+Las actividades de la Auditoría deberán ser debidamente planeadas mediante la preparación de un Plan Anual de Actividades, el cual será sometido a conocimiento de la Junta Directiva y remitido a la Contraloría General de la República, dentro de los primeros quince días hábiles del mes de noviembre de cada año. La elaboración de este plan considerará el universo auditable y las actividades a realizar por la Administración, según su clasificación de riesgo.

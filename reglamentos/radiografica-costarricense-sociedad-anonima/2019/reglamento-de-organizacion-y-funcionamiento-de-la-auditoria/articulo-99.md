@@ -1,0 +1,2 @@
+Artículo 99. Prescripción de la responsabilidad disciplinaria.
+En cuanto a los informes especiales derivados de relación de hechos, deben tenerse presente los plazos de prescripción según corresponda para cada caso y de conformidad con lo establecido en el Ordenamiento Jurídico, ya que éstos cuentan a partir de la fecha en que la Relación de Hechos se ponga en conocimiento de la Junta Directiva o del funcionario competente para dar inicio al procedimiento administrativo.

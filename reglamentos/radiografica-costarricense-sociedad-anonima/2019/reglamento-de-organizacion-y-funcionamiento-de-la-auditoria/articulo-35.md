@@ -1,0 +1,2 @@
+Artículo 35. Reposición de personal en plazas vacantes.
+El Auditor Interno gestionará oportunamente lo relativo a las plazas vacantes de su Unidad. El Departamento de Talento Humano deberá atender la solicitud con la prioridad requerida para llenar la plaza vacante en un plazo máximo de tres meses, contado a partir del momento de la vacante y será prorrogable a tres meses más por razones debidamente acreditadas, en el expediente que se confeccione para tal efecto.

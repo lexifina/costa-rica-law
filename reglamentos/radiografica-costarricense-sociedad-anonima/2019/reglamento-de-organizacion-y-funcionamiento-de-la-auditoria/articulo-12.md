@@ -1,0 +1,2 @@
+Artículo 12. Dirección de la Auditoría.
+El Auditor Interno es el superior de la Auditoría Interna y como tal tendrá a su cargo la dirección y administración de ésta, para lo cual aplicará criterios adecuados en el ejercicio de las competencias y en las relaciones con la Administración. En sus ausencias temporales le sustituirá el colaborador que ocupe el puesto de la Jefatura, con apego a las normas legales, lineamientos y políticas institucionales que operan para tal efecto.

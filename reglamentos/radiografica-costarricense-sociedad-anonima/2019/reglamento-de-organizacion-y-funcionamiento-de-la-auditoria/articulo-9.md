@@ -1,0 +1,2 @@
+Artículo 9. Garantía de la Independencia y Objetividad.
+El Auditor Interno debe establecer políticas y directrices que permitan prevenir y detectar situaciones internas o externas que comprometan la independencia y la objetividad del personal que realiza el proceso de auditoría. Asimismo, el personal de la Auditoría es responsable de informar al Auditor Interno cualquier impedimento que pueda afectar su independencia y objetividad, para que se tomen las medidas correspondientes; además, se deberá abstener de tratar asuntos relacionados con esa situación.

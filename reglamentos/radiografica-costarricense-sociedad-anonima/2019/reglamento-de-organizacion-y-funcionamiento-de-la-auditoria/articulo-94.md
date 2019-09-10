@@ -1,0 +1,2 @@
+Artículo 94. Conflicto sobre las recomendaciones.
+Si entre el colaborador responsable de la implantación de las recomendaciones y la Auditoría Interna no existe un acuerdo en cuanto a ellas, el asunto lo resolverá la Junta Directiva y si fuera con ésta, sobre asuntos de absoluta relevancia que afecten la sana marcha de la Empresa, se deberá recurrir a la Contraloría General para que resuelva.

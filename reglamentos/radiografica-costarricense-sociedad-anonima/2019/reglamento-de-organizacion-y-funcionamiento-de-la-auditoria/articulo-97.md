@@ -1,0 +1,2 @@
+Artículo 97. Responsabilidad sobre la no implementación de las recomendaciones de la Auditoría Interna en materia de control interno.
+Cabe responsabilidad administrativa contra los funcionarios que incumplan las acciones para implantar las recomendaciones de la Auditoría Interna ordenadas, ya sea por el jerarca o titular subordinado respectivo, sin perjuicio de las responsabilidades que les puedan ser imputadas civil y penalmente.

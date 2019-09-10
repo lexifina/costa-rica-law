@@ -1,0 +1,2 @@
+Artículo 77. Establecimiento de metodologías de custodia de información.
+El Auditor Interno definirá, establecerá y mantendrá debidamente actualizadas, la política, procedimientos, prácticas de administración y el acceso a documentación custodiada por la Auditoría Interna, en especial aquellas de carácter confidencial que estipulan los artículos 6 de la Ley General de Control Interno y 8 de la Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública.

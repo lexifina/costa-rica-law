@@ -1,0 +1,4 @@
+Artículo 15. Organización.
+La Auditoría Interna se organizará y funcionará según lo permitan los recursos presupuestarios y humanos dispuestos por el Auditor Interno, de conformidad con las disposiciones, normas, políticas y directrices que emita la Contraloría General de la República y la Junta Directiva de RACSA, las cuales serán de acatamiento obligatorio.
+La Organización de la Auditoría para el desempeño de sus funciones será por áreas y se encontrará conformada por las siguientes: Área de Jefatura, Área de Asistencia Técnica Administrativa, Área Financiera Contable, Área Operativa, Área de Carácter Especial y Área de TI. Esta organización deberá permitir el cumplimiento de las funciones de Dirección de la Auditoría a cargo del Auditor Interno.
+Dicha estructura organizativa se establece sin perjuicio de que pueda ser modificada y aprobada en documento separado y con mayor detalle.
