@@ -14,3 +14,4 @@ Incluye la Subespecialidad de Dermatología Pediátrica en la lista oficial reco
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-04-30 | la propia norma |
+| 2 | 2019-09-11 | Reglamento 0 (2019-09-11) |
