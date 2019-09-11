@@ -1,33 +1,36 @@
 CAPÍTULO II
 ESPECIALIDADES MÉDICAS
 Artículo 11°.- El Colegio de Médicos y Cirujanos de Costa Rica, reconoce las siguientes Especialidades Médicas:
-ESPECIALIDAD MÉDICA | REQUISITOS ESPECÍFICOS PARA LA INSCRIPCIÓN
-Acupuntura. | Artículo No.12
-Administración de Servicios de Salud (Así adicionada la especialidad anterior mediante sesión ordinaria N° 2016-09-07, del 07 de setiembre del 2016) (Así reformada la especialidad anterior mediante publicación en La Gaceta N° 155 del 27 de agosto del 2018) | Artículo N° 151 (Así adicionado el requisito anterior mediante sesión ordinaria N° 2016-09-07, del 07 de setiembre del 2016) (Así reformado el punto anterior mediante publicación en La Gaceta N° 155 del 27 de agosto del 2018)
-Alergología Clínica. | Artículo No.13
-Anatomía Patológica. | Artículo No.14
+REQUISITOS
+ESPECIALIDAD MÉDICA ESPECÍFICOS PARA
+LA INSCRIPCIÓN
+Acupuntura. Artículo No. | Artículo No. 12
+Administración de Servicios de Salud | Artículo No. 160
+Alergología Clínica. | Artículo No. 13
+Anatomía Patológica. | Artículo No. 14
 Anestesiología y Recuperación. | Artículo No. 15
 Cardiología. | Artículo No. 16
 Cirugía Craneomaxilofacial. | Artículo No. 17
 Cirugía de Tórax y Cardiovascular. | Artículo No. 18
 Cirugía General. | Artículo No. 19
 Cirugía Pediátrica. | Artículo No. 20
-Cirugía Plástica, Reconstructiva y Estética. | Artículo No. 21
+Cirugía Plástica, Reconstructiva y Estética | Artículo No. 21
 Cirugía Torácica General. | Artículo No. 22
 Dermatología. | Artículo No. 23
 Endocrinología. | Artículo No. 24
-Epidemiología de Campo (Así adicionada la especialidad anterior mediante sesión N° 2016- 09-07 del 07 de setiembre del 2016) | Artículo N° 146 (Así adicionada el requisito anterior mediante sesión N° 2016- 09-07 del 07 de setiembre del 2016)
+Epidemiología de Campo | Artículo No. 146
 Foniatría-Audiología. | Artículo No. 25
-Gastroenterología. Genética Clínica (Así adicionada la especialidad anterior mediante sesión N° 2015-06-17 del 17 de junio del 2015) | Artículo No. 26 Requisitos específicos: a. Se reconocen como sinónimos de esta Especialidad, el siguiente término: Genética Médica. b. Aprobación de dos (2) años en un programa de estudios de posgrado (residencia médica) en la Especialidad de Pediatría, Ginecología y Obstetricia o Medicina Interna y la aprobación y acreditación de mínimo dos (2) años en un programa de estudios de posgrado (residencia médica) en la Especialidad de Genética Clínica, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad de reconocido prestigio. c. Aprobación y acreditación de mínimo tres (3) años en un programa de estudios de posgrado (residencia médica) en la Especialidad de Genética Clínica, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad de reconocido prestigio. d. Este programa de estudios debe contemplar y garantizar como mínimo, aspectos teóricos y prácticos en: i. Citogenética. ii. Genética Molecular, iii. Genética Bioquímica, iv. Genética Médica. e. Establecer de carácter obligatorio para los médicos que soliciten la inscripción en la Especialidad de Genética Clínica, el cumplimiento de todos los requisitos establecidos en el Reglamento de Especialidades y Subespecialidades Médicas y demás legislación relacionada vigente. (Así adicionado los requisitos anteriores mediante sesión N° 2015-06-17 del 17 de junio del 2015)
+Gastroenterología. | Artículo No. 26
+Genética Clínica | Artículo No. 158
 Genética Humana. | Artículo No. 27
 Geriatría y Gerontología | Artículo No. 28
 Ginecología y Obstetricia. | Artículo No. 29
 Hematología. | Artículo No. 30
 Homeopatía. | Artículo No. 31
-Infectología. | Artículo No. 32
+lnfectología | Artículo No. 32
 Informática Médica. | Artículo No. 33
 Inmunología Clínica. | Artículo No. 34
-Medicina Aeroespacial (Así adicionada la especialidad anterior mediante sesión ordinaria N° 2016-11-30, celebrada el 30 de noviembre del 2016) | Artículo 148º (Así adicionado el requisito anterior mediante sesión ordinaria N° 2016-11-30, celebrada el 30 de noviembre del 2016)
+Medicina Aeroespacial | Artículo No. 148
 Medicina Crítica y Terapia Intensiva. | Artículo No. 35
 Medicina de Emergencias. | Artículo No. 36
 Medicina del Deporte. | Artículo No. 37
@@ -40,12 +43,13 @@ Medicina Interna. | Artículo No. 43
 Medicina Legal. | Artículo No. 44
 Medicina Nuclear. | Artículo No. 45
 Medicina Paliativa en Adultos. | Artículo No. 46
-Medicina Preventiva y Salud Pública (Así adicionada la especialidad anterior mediante sesión ordinaria N° 2018- 01-31 del 31 de enero del 2018) | Artículo N° 150 (Así adicionado el requisito anterior mediante sesión ordinaria N° 2018- 01-31 del 31 de enero del 2018)
-Medicina Tropical. | Artículo No. 47
+Medicina Preventiva y Salud Pública | Artículo No. 150
+Medicina Tropical | Artículo No. 47
 Nefrología. | Artículo No. 48
 Neumología. | Artículo No. 49
 Neurocirugía. | Artículo No. 50
 Neurología. | Artículo No. 51
+Nutriología Clínica | Artículo No. 142
 Oftalmología. | Artículo No. 52
 Oncología Médica. | Artículo No. 53
 Oncología Quirúrgica. | Artículo No. 54
@@ -58,4 +62,5 @@ Radiología e Imágenes Médicas. | Artículo No. 60
 Radioterapia. | Artículo No. 61
 Reumatología. | Artículo No. 62
 Urología. | Artículo No. 63
-Vascular Periférico. | Artículo No. 64
+Vascular Periférico | Artículo No. 64
+(Corregido mediante Fe de Erratas, aprobada mediante acta N° 2019-09-11, del 11 de setiembre de 2019 y publicada en el Alcance Digital N° 211 de La Gaceta N° 184 del 30 de setiembre del 2019)
