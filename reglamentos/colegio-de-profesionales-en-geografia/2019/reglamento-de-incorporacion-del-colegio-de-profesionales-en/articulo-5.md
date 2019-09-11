@@ -1,0 +1,1 @@
+Artículo 5º—Funciones de las personas encargadas de recepción de documentos: recibir, administrar y custodiar la información de cada solicitante; ser el canal de comunicación directo con cada peticionario(a); trasladar la totalidad de la documentación a la Comisión de Admisión y brindar un reporte mensual de las solicitudes recibidas a la Presidencia de la Junta Directiva.

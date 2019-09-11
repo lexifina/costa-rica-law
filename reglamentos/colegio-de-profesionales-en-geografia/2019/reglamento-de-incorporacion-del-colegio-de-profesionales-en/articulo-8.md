@@ -1,0 +1,1 @@
+Artículo 8º—De existir recomendaciones de parte de la Comisión de Admisión por casos particulares de incorporación, se tomará un acuerdo entre los miembros de la Comisión, para remitirlos a la Junta Directiva, quienes tomarán la decisión final en sesión ordinaria.

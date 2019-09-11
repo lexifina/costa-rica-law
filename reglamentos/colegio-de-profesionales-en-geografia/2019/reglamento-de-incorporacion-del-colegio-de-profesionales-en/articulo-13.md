@@ -1,0 +1,6 @@
+Artículo 13.—Miembros Temporales. En el caso de profesionales extranjeros que formen parte de una empresa, organización u otro organismo sea nacional o internacional y deba incorporarse, podrán optar por ser un miembro temporal.
+La persona interesada deberá presentar al Colegio, en idioma español y con las autenticaciones que demanda la ley, además de lo establecido en el Artículo 10 del presente Reglamento, pero sin necesidad de los requisitos del artículo anterior, lo siguiente:
+a) Declaración jurada que demuestre la veracidad de los datos suministrados.
+b) Solicitud escrita dirigida a la Presidencia de la Junta Directiva con el motivo de la incorporación temporal.
+c) Certificación emitida por el representante legal de la institución costarricense que demandará sus servicios, indicando la asesoría que prestará, el plazo de ésta y el sitio de ejecución.
+En caso de ser aprobado como miembro temporal, la persona únicamente podrá ejercer la profesión en la institución o empresa que requirió sus servicios y en las labores, plazo y sitio de ejecución aprobados, de requerir una ampliación o modificación de éstos deberá realizar previamente la respectiva solicitud y estará sujeto a lo que decida la Junta Directiva.
