@@ -1,0 +1,2 @@
+Artículo 7: Horario de Actuaciones.- Los funcionarios del Departamento de Cobro, actuarán normalmente en horas y días hábiles. Sin embargo, podrán actuar fuera de esas horas y días, cuando sea necesario para lograr el cumplimiento de sus deberes de gestión, fiscalización o recaudación tributaria. En estos casos se requerirá la habilitación de tiempo extraordinario.
+En caso de la actuación de los abogados externos, sus actuaciones y jornadas serán a criterio de su ejercicio independiente, sin que por ello, se genere ningún vínculo laboral directo con la Municipalidad.

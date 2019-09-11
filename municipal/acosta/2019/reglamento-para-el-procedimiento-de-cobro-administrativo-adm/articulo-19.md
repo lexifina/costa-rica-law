@@ -1,0 +1,1 @@
+Artículo 19.-Resolución del arreglo de pago. El convenio de arreglo de pago se tendrá por cumplido únicamente, ante el pago total que realice el sujeto pasivo de la obligación y se resolverá cuando se haya retrasado 10 días hábiles en el cumplimiento de la misma, remitiéndose inmediatamente el expediente a la etapa ejecutiva.

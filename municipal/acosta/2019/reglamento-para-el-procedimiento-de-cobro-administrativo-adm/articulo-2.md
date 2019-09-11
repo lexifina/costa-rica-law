@@ -1,0 +1,1 @@
+Artículo 2: Ámbito de Aplicación.- Este reglamento será de aplicación obligatoria, para el Departamento de Cobros de la Municipalidad, así como para los abogados externos que sean contratados por la Municipalidad, para gestionar el cobro administrativo, Administrativo Externo extrajudicial y judicial de las obligaciones dinerarias que se le adeuden a esta.

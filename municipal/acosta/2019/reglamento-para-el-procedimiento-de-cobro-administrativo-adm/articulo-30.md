@@ -1,0 +1,6 @@
+CAPÍTULO III
+De los Abogados Externos
+Sección I Disposiciones Generales
+Artículo 30. De la Designación.- Los abogados(as) externos serán designados en virtud de concurso externo que realizará la Municipalidad para su contratación, en cumplimiento de la normativa que establece la Ley de Contratación Administrativa y su respectivo Reglamento para la contratación de este tipo de servicios. Tanto las etapas administrativas externas y ejecutivas, los abogados externos contratados o el consorcio jurídico designado deberá demostrar que al menos uno de sus abogados cuenta con los conocimientos técnicos, procesales y prácticos para la debida gestión de cobro. Dichas especificaciones deberán ser incorporadas en el concurso externo.
+El número de abogados(as) externos a contratar dependerá del criterio que tenga la Administración Tributaria del número de expedientes morosos que será remitida a las etapas administrativa externa y ejecutiva y será determinado por una comisión integrada por los Departamentos involucrados en la administración y Cobro de tributos Municipales.
+Asimismo, corresponde a esa unidad en conjunto con el Departamento de Proveeduría y la Alcaldía, analizar a los participantes en el concurso citado y realizar la evaluación respectiva, para efectos de determinar quiénes serán los profesionales que serán contratados por la Municipalidad.

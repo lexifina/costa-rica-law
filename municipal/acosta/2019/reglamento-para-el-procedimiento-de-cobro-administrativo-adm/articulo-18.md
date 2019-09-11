@@ -1,0 +1,1 @@
+Artículo 18.-Formalización del arreglo de pago. La formalización del arreglo de pago se realizará ante el Departamento de Cobro de la Municipalidad, u otro encargado para tal efecto, mediante la suscripción del documento idóneo que tendrá dicha instancia para tales efectos, siempre y cuando el sujeto pasivo haya cumplido con los requisitos que se exija para tal gestión.
