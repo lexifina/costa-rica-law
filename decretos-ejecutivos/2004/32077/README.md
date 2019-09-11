@@ -14,3 +14,4 @@ Crease la Comisión Costarricense de Derecho Internacional Humanitario
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-11-04 | la propia norma |
+| 2 | 2019-09-11 | Decreto Ejecutivo 41989 (2019-09-11) |
