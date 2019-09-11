@@ -1,0 +1,1 @@
+Artículo 6º—Gestión digital de solicitudes. Los permisos de solicitud de salida del país de automotores exentos se podrán tramitar en formato digital, enviando el formulario EXI-011 mediante firma digital, al correo electrónico DIF-Fiscalizacion@hacienda.go.cr El formulario se encuentra en la página WEB http://www.hacienda.go.cr/.

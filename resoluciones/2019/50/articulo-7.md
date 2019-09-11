@@ -1,0 +1,1 @@
+Artículo 7º—Plazo de vigencia de la autorización. La autorización emitida por el Departamento de Fiscalización sobre cualquiera de los trámites previstos en el formulario EXI-011, tendrá vigencia de dos meses para su debida presentación ante el Registro Nacional.
