@@ -14,3 +14,4 @@ Crea Comisión Interinstitucional para el seguimiento e implementación de las o
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-08-09 | la propia norma |
+| 2 | 2019-09-11 | Decreto Ejecutivo 42000 (2019-09-11) |
