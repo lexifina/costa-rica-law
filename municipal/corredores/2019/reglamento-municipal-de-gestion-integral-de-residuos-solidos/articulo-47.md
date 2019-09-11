@@ -1,0 +1,1 @@
+Artículo 47º: Los recipientes señalados en el artículo anterior serán de uso exclusivo de los usuarios de los parques, y no se podrá depositar en ellos residuos generados en el interior de las edificaciones.

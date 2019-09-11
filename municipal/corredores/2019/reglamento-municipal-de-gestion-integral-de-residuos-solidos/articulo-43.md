@@ -1,0 +1,3 @@
+Artículo 43º: Todos los habitantes del Cantón de Corredores y público en general, están obligados a respetar y acatar las disposiciones del artículo 226 de la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial 9078 y sus reformas, por tanto:
+Es obligación de los habitantes de la República conservar la limpieza y la seguridad de las vías públicas y sus alrededores. Todo propietario deberá limpiar residuos, maleza, escombros u otros objetos que estén en una vía pública próxima a su propiedad.
+Se prohíbe arrojar, en cualquier vía pública, botellas, clavos, tachuelas, alambres, recipientes, papeles, cigarrillos y cualquier otro objeto que ponga en peligro la seguridad vial o altere el uso u ornato de esta.

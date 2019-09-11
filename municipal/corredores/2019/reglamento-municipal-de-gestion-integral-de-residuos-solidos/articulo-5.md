@@ -1,0 +1,2 @@
+Artículo 5º: Posibilidad de concesión del servicio.
+Cuando las necesidades del servicio así lo requieran, el Alcalde o alcaldesa, previa autorización del Concejo Municipal, podrá encomendar su prestación, mediante concesión, contrato o convenio, ya sea mixta u otra modalidad a cualquier persona natural o jurídica que llene los requisitos exigidos en el ordenamiento municipal vigente y la Ley de Contratación Administrativa.

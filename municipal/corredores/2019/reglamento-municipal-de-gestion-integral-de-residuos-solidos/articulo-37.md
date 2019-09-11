@@ -1,0 +1,2 @@
+Artículo 37°: Condiciones para su recolección.
+Todo generador de este tipo de residuos está obligado de entregar los residuos al recolector debidamente clasificados, limpios, secos. Se debe evitar que se contamine con líquidos, alimentos, sustancias bioinfecciosas, pinturas, sustancias inflamables, explosivas, corrosivas, radioactivas y otros. Los materiales punzocortantes deben ser debidamente empacados y rotulados.

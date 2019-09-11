@@ -1,0 +1,2 @@
+Artículo 19°: Residuos provenientes de construcciones y similares.
+Los residuos provenientes de construcciones, remodelaciones y demoliciones deberán ser recolectados y transportados al Relleno Sanitario por el generador, previa coordinación con la Municipalidad o empresa administradora del sitio de disposición final. El programa de manejo de estos residuos será presentado a la Municipalidad (Unidad de Gestión Ambiental Municipal) como requisito para obtener el permiso de construcción o remodelación.

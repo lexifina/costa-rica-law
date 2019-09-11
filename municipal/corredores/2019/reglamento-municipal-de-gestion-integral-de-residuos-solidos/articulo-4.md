@@ -1,0 +1,2 @@
+Artículo 4º: Obligatoriedad.
+Toda unidad habitacional, patentado o ente de carácter público, no público o privado, que se encuentre dentro del área de cobertura del servicio de recolección de residuos tradicionales, no tradicionales, eventos especiales o que utilice el servicio de disposición final de residuos voluminosos, así como el servicio de aseo de vías públicas y sitios públicos, deberán cumplir el presente Reglamento.

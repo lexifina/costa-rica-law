@@ -1,0 +1,1 @@
+Artículo 46º: La Municipalidad dispondrá en los parques del cantón, baterías de contenedores para la separación de residuos de acuerdo a las disposiciones municipales y del Ministerio de Salud, en número y capacidad, de acuerdo con el tránsito peatonal y vehicular.
