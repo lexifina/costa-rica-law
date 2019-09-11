@@ -14,3 +14,4 @@ Incluye la Subespecialidad de Glaucoma en la lista oficial reconocida por el Col
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-12-19 | la propia norma |
+| 2 | 2019-09-11 | Reglamento 0 (2019-09-11) |
