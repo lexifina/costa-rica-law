@@ -14,3 +14,4 @@ Incluye la Especialidad de Genética Clínica en la lista oficial reconocida por
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-08-05 | la propia norma |
+| 2 | 2019-09-11 | Reglamento 0 (2019-09-11) |
