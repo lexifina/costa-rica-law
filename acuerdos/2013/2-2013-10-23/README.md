@@ -14,3 +14,4 @@ Incluye la Subespecialidad de Hematopatología en la lista oficial reconocida po
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-12-19 | la propia norma |
+| 2 | 2019-09-11 | Reglamento 0 (2019-09-11) |
