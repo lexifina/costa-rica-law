@@ -14,3 +14,4 @@ Incluye la Subespecialidad en Medicina Paliativa Pediátrica en la lista oficial
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-11-06 | la propia norma |
+| 2 | 2019-09-11 | Reglamento 0 (2019-09-11) |
