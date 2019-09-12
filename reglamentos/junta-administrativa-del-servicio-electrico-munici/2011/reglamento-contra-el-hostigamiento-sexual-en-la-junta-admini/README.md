@@ -14,3 +14,4 @@ Reglamento contra el hostigamiento sexual en la Junta Administrativa del Servici
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-10-18 | la propia norma |
+| 2 | 2019-09-12 | Reglamento 71 (2019-09-12) |

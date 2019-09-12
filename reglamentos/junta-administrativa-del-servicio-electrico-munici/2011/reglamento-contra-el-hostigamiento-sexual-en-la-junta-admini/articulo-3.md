@@ -1,8 +1,8 @@
-Articulo 3º—Manifestaciones del hostigamiento sexual. El hostigamiento sexual puede manifestarse por medio de las siguientes conductas:
-3.1. Requerimiento de favores sexuales que implique:
-3.1.1. Promesa, implícita o expresa, de un trato preferencial, o cualquier condición de ventaja respecto de la situación, actual o futura, de empleo de quien la reciba.
-3.1.2. Amenazas, implícitas o expresas, físicas o morales, de daños, represalias o castigos referidos a la situación, actual o futura, de empleo de quien la reciba.
-3.1.3 Exigencia de una conducta cuya sujeción o rechazo sea, en forma implícita o explícita, condición para el empleo.
-3.2. Uso de las palabras, símbolos e imágenes de naturaleza sexual, orales, escritas y/o contenidas en documentos o instrumentos tecnológicos que resulten hostiles, humillantes u ofensivos para quien las recibe.
-3.3. Acercamientos corporales u otras conductas físicas de naturaleza sexual, indeseadas y ofensivas para quien los reciba.
-3.4. Realización de gestos, ademanes o cualquier otra conducta física no verbal de naturaleza de connotación sexual no deseada por la persona quien lo reciba.
+Artículo 3° Manifestaciones del hostigamiento sexual. El hostigamiento sexual puede manifestarse por medio de las siguientes conductas:……………………………………………………………………………………………………………………….………..……………….
+3.1. Requerimiento de favores sexuales que implique:………………………………………………..……………………………………
+3.1.1. Promesa, implícita o expresa, de un trato preferencial, o cualquier condición de ventaja respecto de la situación, actual o futura, de empleo de quien la reciba…………………………..…
+3.1.2. Amenazas, implícitas o expresas, físicas o morales, de daños, represalias o castigos referidos a la situación, actual o futura, de empleo de quien la reciba…………………………………………………………………………….……………..….
+3.1.3 Exigencia de una conducta cuya sujeción o rechazo sea, en forma implícita o explícita, condición para el empleo….
+3.2. Uso de las palabras, símbolos e imágenes de naturaleza sexual, orales, escritas y/o contenidas en documentos o instrumentos tecnológicos que resulten hostiles, humillantes u ofensivos para quien las recibe……………………...………………
+3.3. Acercamientos corporales u otras conductas físicas de naturaleza sexual, indeseadas y ofensivas para quien los reciba………
+3.4. Realización de gestos, ademanes o cualquier otra conducta física no verbal de naturaleza de connotación sexual no deseada por la persona quien lo reciba………………………………………………………………………………………………..………..……….

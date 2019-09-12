@@ -1,3 +1,2 @@
-CAPÍTULO III
-Disposiciones generales
-Artículo 7°—Deber de Colaboración. Todas las dependencias y funcionarios (as) de JASEC están en la obligación de brindar su colaboración cuando así se solicite por el órgano instructor o decisor para facilitar su labor y el cabal desempeño del procedimiento, suministrando toda la información documental o testimonial requerida.
+Articulo7°: Responsabilidad del patrono:
+Todo patrono o jerarca que incurra en hostigamiento sexual será responsable administrativa personalmente, por sus actuaciones. Asimismo, tendrá responsabilidad si, pese a haber recibido las quejas de la persona ofendida, no cumple con lo establecido en el artículo 5 de la Ley 7476……………………………………………………………………………………………………………………..…………………...

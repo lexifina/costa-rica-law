@@ -1,1 +1,1 @@
-Artículo 22.—De la ejecución de la sanción. Una vez firme lo resuelto se comunicará al Proceso Desarrollar Recursos Humanos para su respectiva ejecución, la cual debe ejecutarse en menos de un mes
+Artículo 22°_De la ejecución de la sanción. Una vez firme lo resuelto se comunicará a la Jefatura del Departamento Talento Humano para su respectiva ejecución, la cual debe ejecutarse en menos de un mes……………………………………………………………..

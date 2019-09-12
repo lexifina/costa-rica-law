@@ -1,1 +1,4 @@
-Artículo 8º—Conciliación. Al constituir el hostigamiento sexual un tipo específico de violencia caracterizada por relaciones de poder asimétricas de género, jerarquía, simbólica, que aumentan los factores de riesgo y re victimización de la persona hostigada, queda prohibida la aplicación de la figura de la conciliación durante todo el procedimiento.
+CAPITULO III
+Disposiciones generales
+Artículo 8° Deber de denunciar:
+Todo servidor administrativo o técnico, independientemente de su naturaleza, así como terceros afectados que tenga conocimiento de algún acto de acoso u hostigamiento sexual en perjuicio de un tercero y/o funcionario de JASEC, tendrá la obligación de denunciar al presunto hostigador………………………………………………………………………………………………………………….…….

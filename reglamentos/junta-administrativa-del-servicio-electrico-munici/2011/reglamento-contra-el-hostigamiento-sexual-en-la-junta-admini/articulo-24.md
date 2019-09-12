@@ -1,1 +1,1 @@
-Articulo 24.—Normativa complementaria. En todo aquello en la Ley contra el Hostigamiento Sexual en el Empleo y la Docencia, se aplicará supletoriamente la Ley General de la Administración Pública y el Código de Trabajo.
+Artículo 24.- Despido del hostigador. Toda persona a quien se le compruebe haber incurrido en acoso sexual, podrá ser despedida sin responsabilidad patronal……………………………………………………………………………………….………………….………………….

@@ -1,3 +1,1 @@
-Artículo 25.—De las modificaciones. Las modificaciones serán dispuestas por la Junta Directiva de la JASEC, para tal efecto deberá consultar a la Junta Directiva y el Proceso Desarrollar Recursos Humanos y deberán ser objeto de publicidad a través de los medios pertinentes.
-Rige a partir de su publicación en el Diario Oficial La Gaceta.
-Cartago, 28 de setiembre del 2011.—
+Artículo 25.- Indemnización por daño moral. Cuando, mediante sentencia, se compruebe el hostigamiento, la persona ofendida tendrá derecho a una indemnización por daño moral, si ha sido acreditado, lo cual también será de conocimiento del Juez de Trabajo………………………………………………………………………………………………………………………………………………………
