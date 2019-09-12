@@ -1,0 +1,1 @@
+Artículo 28.—Para dar inicio al trámite, la Unidad Promovente correspondiente, está obligada a comunicar al interesado, por escrito en el plazo de ocho días hábiles, que se realizarán los estudios previos, para determinar la procedencia o no del reclamo.

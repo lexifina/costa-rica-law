@@ -1,0 +1,2 @@
+Sobre los estudios y tramite de aprobación
+Artículo 12.—Para la elección de los terrenos que requiera el proyecto, la Unidad Promovente deberá tramitar y revisar, todos los estudios básicos necesarios. La verificación y análisis de los estudios técnicos que se requieran y definición final de la viabilidad de los terrenos que se destinen para el fin público, serán responsabilidad única y exclusiva de la Unidad Promovente.

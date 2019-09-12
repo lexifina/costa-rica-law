@@ -1,0 +1,1 @@
+Artículo 22.—Corresponderá a la Dirección Jurídica, notificar el acuerdo de Junta Directiva donde se aprueba el avalúo. En caso de oposición, deberá la Dirección Jurídica interponer la demanda ante la Jurisdicción Contenciosa Administrativa.
