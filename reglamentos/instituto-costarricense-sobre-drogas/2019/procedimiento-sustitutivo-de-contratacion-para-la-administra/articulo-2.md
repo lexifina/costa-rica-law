@@ -1,0 +1,1 @@
+Artículo 2º—Principios. El procedimiento sustitutivo de contratación señalado en el artículo anterior respetará los principios generales, régimen de prohibiciones y nulidades, establecidos en la Ley de Contratación Administrativa y su Reglamento.

@@ -1,0 +1,3 @@
+Artículo 4º—Registro de participantes. Para poder participar en los procedimientos de administración y disposición de bienes decomisados y comisados, el oferente deberá inscribirse en el Registro de Participantes que administrará la URA.
+En el caso de los procedimientos de venta de los precursores y químicos esenciales asumidos en depósito judicial o comisados, el oferente deberá estar inscrito en el registro de participantes de la URA y además estar registrado ante la UCFP, tener su licencia vigente, estar autorizado para la adquisición y manejo de las sustancias o productos químicos que se estén vendiendo y estar al día con todas las obligaciones inherentes a la licencia, para poder optar por la adquisición de la mercancía
+en venta.

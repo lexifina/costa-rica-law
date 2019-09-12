@@ -1,0 +1,1 @@
+Artículo 40. —Resolución de adjudicación. De acuerdo con la puja realiza durante el evento, el Jefe de la URA dictará la resolución fundamentada de adjudicación tomando en consideración el monto más alto ofertado. En caso de ausencia temporal del jefe de URA, la resolución fundamentada de adjudicación podrá ser dictada por la jefatura del área administrativa de la URA.
