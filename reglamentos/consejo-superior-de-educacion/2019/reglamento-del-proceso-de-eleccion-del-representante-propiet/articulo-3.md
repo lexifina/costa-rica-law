@@ -1,0 +1,1 @@
+Artículo 3°- Determinación del lugar de las elecciones. La elección del representante propietario de I y 11 Ciclos de la Educación General Básica y Preescolar, se llevará a cabo en la Escuela Juan Rafael Mora Porras, que está ubicada en San José, Paseo Colón, detrás de la Torre Mercedes.

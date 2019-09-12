@@ -1,0 +1,1 @@
+Artículo 13.- Consignación en el acta oficial. Una vez dado a conocer el candidato o candidata elegido/a, se consignará dicha información, brindando una explicación de todo el desarrollo del proceso, en el acta oficial correspondiente, que deberá ser firmada por los miembros de La Comisión Coordinadora, el fiscal general y la persona electa.

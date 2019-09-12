@@ -1,0 +1,3 @@
+Artículo 2°- Determinación de la hora y fecha de las elecciones. Se convoca para la elección del representante propietario de I y 11 Ciclos de la Educación General Básica y Preescolar, el día jueves 07 de noviembre del 2019, a las 08:00 horas en primera convocatoria; de no conformarse el quórum, se realizará la segunda convocatoria a las 09:00 horas, con la que se dará inicio al proceso de elección con el número de electores concurrentes en ese momento.
+Para efectos de esta elección, denomínese quórum la mitad más uno de representantes inscritos en el Padrón Electoral correspondiente.
+La Secretaria General del Consejo Superior de Educación Pública, asistirá a la jornada electoral, como observadora del proceso.

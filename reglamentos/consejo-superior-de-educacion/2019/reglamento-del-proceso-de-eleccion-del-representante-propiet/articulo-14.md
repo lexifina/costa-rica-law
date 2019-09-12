@@ -1,0 +1,2 @@
+Artículo 14.- Impugnación contra actos del proceso electoral. Las impugnaciones se podrán hacer en el momento en que surjan ante el fiscal general, por escrito en la boleta que éste le suministra para el efecto, quien inmediatamente la reciba, deberá entregarla a La Comisión Coordinadora, que resolverá en definitiva sobre el asunto antes del cierre del proceso, sin que exista ulterior recurso en sede administrativa.
+No proceden en ningún caso las objeciones que se presenten después de haberse firmado el acta oficial.
