@@ -1,0 +1,1 @@
+Artículo 10.—Del lugar de reunión. El recinto para llevar a cabo la asamblea, será el Auditorio del Ministerio de Ambiente y Energía si las condiciones así lo permiten, de lo contrario se deberá buscar un lugar que sí las reúna.

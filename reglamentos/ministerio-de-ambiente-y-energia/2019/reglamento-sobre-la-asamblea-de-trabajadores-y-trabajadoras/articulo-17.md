@@ -1,0 +1,1 @@
+Artículo 17.—De los acuerdos tomados. Cuando se someta a la asamblea la toma de acuerdos que afecten al conjunto de los trabajadores y trabajadoras, para la validez de aquéllos, se requerirá el voto favorable de la mitad más uno del total de la concurrencia efectiva de trabajadores.

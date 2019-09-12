@@ -1,0 +1,1 @@
+Artículo 14.—Sobre la validez del voto en la asamblea de trabajadores y trabajadoras. Para todos los efectos de funcionamiento y desarrollo, así como toma de acuerdos y otros en la asamblea, únicamente serán válidos los votos emitidos por trabajadores y trabajadoras presentes en la asamblea en el momento de la votación.

@@ -1,0 +1,1 @@
+Artículo 11.—Del horario de la Asamblea. La misma tendrá lugar dentro de jornada laboral ordinaria de la institución, sin que ello vaya en perjuicio de la obligatoriedad de la prestación de servicios en las distintas dependencias, departamentos, oficinas, direcciones, etc. del MINAE.

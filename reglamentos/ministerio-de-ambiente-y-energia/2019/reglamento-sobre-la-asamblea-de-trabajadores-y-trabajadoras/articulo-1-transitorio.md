@@ -1,0 +1,3 @@
+Transitorio I.—De existir Comisiones a lo interno del MINAE, que fueran conformadas de previo a la entrada en vigor del presente Reglamento, las mismas son ratificadas, por ser ello de interés para el Ministerio, de acuerdo a lo indicado en el Artículo 26 inciso k) del Reglamento Autónomo de Servicios del Ministerio de Ambiente y Energía MINAE, Decreto Ejecutivo Nº 28409-MINAE, publicado en La Gaceta Nº 34 del 17 de febrero del 2000 y hasta tanto no se defina situación contraria mediante la realización de la Asamblea de Trabajadores y Trabajadoras, basado ello en lo que establece el presente Reglamento.
+Rige a partir de su publicación en el Diario Oficial La Gaceta.
+Dado en San José, a las siete horas del 04 de junio del dos mil diecinueve.

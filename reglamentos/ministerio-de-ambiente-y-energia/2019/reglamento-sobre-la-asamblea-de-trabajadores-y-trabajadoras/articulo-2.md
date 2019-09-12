@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de Aplicación: Este Reglamento es aplicable a todos los trabajadores y trabajadoras del Ministerio de Ambiente y Energía que laboren en cualquiera de sus Dependencias, Entes Adscritos y Órganos Desconcentrados, así como los trabajadores pagados por Cuentas Especiales.

@@ -1,0 +1,1 @@
+Artículo 13.—Del derecho a voto. Únicamente tendrán derecho al voto en asamblea de trabajadores, aquellos y aquellas que realmente se encuentren presentes en el recinto de celebración de la asamblea en el momento de la votación.
