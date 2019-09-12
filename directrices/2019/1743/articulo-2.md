@@ -1,0 +1,1 @@
+Artículo 2º—Ordenar a la industria tabacalera entregar semestralmente, al Programa de Control de Tabaco, la información en la que conste: “1. Volumen de los empaques primarios y secundarios que circulen por marca y la proporción de advertencias impresas para dicha marca.”
