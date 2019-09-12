@@ -1,1 +1,1 @@
-Artículo 7°—Documentación de actuaciones. En todo caso, las gestiones de cobro deberán consignarse en un expediente administrativo, con su correspondiente notificación, el cual se conformará en orden cronológico, en que se obtengan o produzcan los distintos documentos que deberán foliarse en orden secuencial, con el fin de resguardar adecuadamente su conservación.
+Artículo 7°—Documentación de actuaciones. (Derogado y publicado en La Gaceta N° 195 del 15 de octubre de 2019)
