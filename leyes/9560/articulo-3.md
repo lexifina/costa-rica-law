@@ -1,0 +1,1 @@
+ARTÍCULO 3- Se autoriza la reunión de las fincas que corresponde al lote segregado y donado, con el bien inmueble inscrito en el Registro Público, partido de Guanacaste, bajo el sistema de folio real matrícula número cincuenta y siete mil seiscientos treinta y nueve - cero cero cero (N.º 57639-000) propiedad de la Asociación de San Vicente de Paul aquí donataria.
