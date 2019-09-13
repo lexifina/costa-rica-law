@@ -1,0 +1,9 @@
+(Derogado)
+RESELLO
+N° 9560
+LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
+DECRETA:
+AUTORIZACIÓN A LA MUNICIPALIDAD DE LIBERIA PARA QUE
+SEGREGUE Y DONE UN TERRENO DE SU PROPIEDAD A LA
+ASOCIACIÓN DE SAN VICENTE DE PAUL DE LIBERIA
+ARTÍCULO 1- Se autoriza a la Municipalidad de Liberia, cédula jurídica número tres- cero uno cuatro - cero cuatro dos uno cero seis (N.º 3-014-042106), para que, de su finca inscrita en el Registro Público, partido de Guanacaste, bajo el sistema de folio real matrícula número cinco - tres ocho seis cuatro - cero cero cero (N. º 5-3864-000), que se describe así: naturaleza terreno para construir con una casa, situada en el distrito 1, Liberia; cantón 1, Liberia; provincia de Guanacaste, cuyos linderos son: al norte, Quebrada Los Piches; al sur, avenida 11 y Estado; al este, Asociación de Protección del Niño Abandonado; al oeste, Estado y Luis Rivas y una cabida de cuatrocientos setenta y cuatro mil trescientos cincuenta y ocho metros con cuarenta y dos decímetros cuadrados (474.358,42 m2), segregue y done a la Asociación de San Vicente de Paul de Liberia, cédula jurídica número tres - cero cero dos - cero cinco seis cinco seis tres (N.º 3-002-056563), el lote que se describe de la siguiente manera: terreno para construir con una casa, situado en el distrito 1, Liberia; cantón 1, Liberia; provincia de Guanacaste; linda al norte con Asociación de San Vicente de Paul; al sur, con Municipalidad de Liberia con calle pública en medio; al este, con quebrada El Panteón y Municipalidad de Liberia y, al oeste, con Municipalidad de Liberia (Centro Ferial Camilo Reyes); mide dos mil doscientos veintisiete metros cuadrados (2.227 m2 ), de conformidad con el plano catastrado número cinco – dos uno uno ocho tres dos tres - dos cero uno nueve (N.º 5-2118323-2019). El resto se lo reserva la Municipalidad propietaria.
