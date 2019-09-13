@@ -1,0 +1,1 @@
+Artículo 8º—Supervisión y Control Interno. La cuenta del EUE-FASAC, estará bajo la supervisión inmediata de la Jefatura del Departamento Financiero Contable, que para tales efectos contará con el equipo humano y tecnológico requerido.

@@ -1,0 +1,1 @@
+Transitorio I.—La Corte Suprema de Justicia acordará la creación de las competencias dichas en este reglamento tanto para el Centro de Conciliación como para el Departamento Financiero Contable, mediante acuerdo fundado en estudios técnicos rendidos por la Dirección de Planificación, la Dirección de Gestión Humana y la Dirección Ejecutiva, cada uno en lo de su cargo.
