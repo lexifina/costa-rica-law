@@ -1,0 +1,1 @@
+ARTICULO 13.- Retiro justificado del Registro de Elegibles. La solicitud de retiro deberá presentarse por escrito a la Oficina de Contratación Administrativa, la que contará con un plazo de cinco días hábiles posteriores a la presentación para excluir al corredor del Registro de Elegibles.

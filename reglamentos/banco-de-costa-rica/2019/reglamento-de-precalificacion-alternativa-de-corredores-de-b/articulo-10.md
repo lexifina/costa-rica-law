@@ -1,0 +1,2 @@
+ARTICULO 10.- Dictado del acto de aprobación o rechazo de la solicitud de inscripción y notificación.
+El acto de aprobación o rechazo de la solicitud de inscripción al REGLAMENTO DE PRECALIFICACIÓN ALTERNATIVA DE CORREDORES DE BIENES PARA LA VENTA DE BIENES ADQUIRIDOS deberá ser notificado a los solicitantes, en un plazo de 30 días hábiles, contados a partir de la fecha de recepción de todos los atestados, y será dictado por la Comisión de Ventas de Bienes Adquiridos en Pago de Obligaciones.

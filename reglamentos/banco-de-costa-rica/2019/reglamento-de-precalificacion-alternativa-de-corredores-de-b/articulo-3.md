@@ -1,0 +1,1 @@
+ARTÍCULO 3.- Normativa aplicable. Para el procedimiento de contratación regulado en este reglamento regirán los principios constitucionales y legales, así como las prohibiciones y requisitos establecidos en la Ley de Contratación Administrativa y demás normativa administrativa aplicable.

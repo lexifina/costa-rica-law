@@ -1,0 +1,1 @@
+ARTÍCULO 8.- Expediente. La Oficina de Contratación Administrativa procederá a conformar un expediente para cada solicitud de inscripción, incorporando en él todos los documentos que aporten, el estudio de las solicitudes y todas las actuaciones internas o externas que tengan relación con la solicitud.

@@ -1,0 +1,1 @@
+ARTÍCULO 4.- Actividad a contratar. El servicio a contratar por medio de este Reglamento será el de corredores de bienes para la venta de bienes adquiridos en pago de obligaciones y adjudicados en remates judiciales.

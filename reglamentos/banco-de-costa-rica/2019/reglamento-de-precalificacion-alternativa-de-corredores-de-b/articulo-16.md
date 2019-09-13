@@ -1,0 +1,7 @@
+ARTICULO 16.- Condiciones para la promoción de la venta.
+16.1- Todos los corredores de bienes inscritos podrán promocionar la venta de los bienes que el Banco designe, independientemente de la zona geográfica donde estos se ubiquen, lo que implica que no existirá un rol para su participación.
+16.2- El Banco se reserva el derecho de establecer cuales bienes podrán ser promovidos por los corredores, por lo que el Banco identificará en la página web de Bienes BCR, aquellos que no podrán ser ofrecidos por los corredores.
+16.3- Los corredores de bienes podrán utilizar cualquier medio de promoción de los bienes disponibles para la venta, siempre y cuando no se comprometa la imagen e intereses del Banco, con el objetivo de atraer potenciales clientes compradores (por ejemplo: anuncios en periódicos, revistas, Internet). No se permite la instalación de rótulos en las propiedades, la única rotulación será la oficial del BCR, establecida por la Oficina de Administración de Bienes.
+16.4- Los gastos en que incurra el corredor por la promoción de los bienes correrán por su cuenta. El Banco no reconocerá suma alguna por este concepto.
+16.5- Los corredores de bienes no tendrán ninguna exclusividad para la venta de las propiedades del Banco.
+16.6- La relación entre el Banco y el corredor de bienes nacida en virtud de esta contratación no origina relación de empleo público, el corredor actuará por su cuenta y riesgo y su remuneración se limitará únicamente al pago de la comisión establecida.
