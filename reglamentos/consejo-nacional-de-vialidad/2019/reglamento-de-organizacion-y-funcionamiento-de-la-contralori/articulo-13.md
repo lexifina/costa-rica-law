@@ -1,0 +1,1 @@
+Artículo 13.—Sobre las actuaciones de la Contraloría. Producto de sus actuaciones, la Contraloría de Servicios del Consejo Nacional de Vialidad, deberá remitir –sin valor vinculante al Consejo de Administración las conclusiones y recomendaciones como resultado del ejercicio propio de sus funciones.

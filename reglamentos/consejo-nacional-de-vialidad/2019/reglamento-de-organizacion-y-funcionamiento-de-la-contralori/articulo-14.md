@@ -1,0 +1,2 @@
+CAPÍTULO V
+Artículo 14.—Sobre el Nombramiento del Contralor (a) y Sub-contralor (a), y sus atribuciones. La Contraloría de Servicios del Consejo Nacional de Vialidad, deberá tener un contralor (a) y sub-contralor (a), quienes serán nombrados por el máximo Jerarca y deberán ser funcionarios regulares de la Organización. Los cargos no podrán ejercerse como recargo de funciones o por personal en puestos de confianza. Los requisitos son los dispuesto en el Manual Descriptivo de cargos y puestos de la Dirección General del Servicio Civil.

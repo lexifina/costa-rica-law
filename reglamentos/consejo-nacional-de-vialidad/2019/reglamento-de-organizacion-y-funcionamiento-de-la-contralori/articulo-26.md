@@ -1,0 +1,1 @@
+Artículo 26.—Suspensión de la tramitación de una investigación. La Contraloría de Servicios suspenderá una investigación que haya sido instruida por el Consejo de Administración, cuando el mismo hecho esté a cargo de la auditoría interna, o en vía judicial.

@@ -1,0 +1,1 @@
+Artículo 22.—Informes y recomendaciones. Los informes y recomendaciones que emita la Contraloría de Servicios deberán ser remitidos al Consejo de Administración del CONAVI, siendo el Órgano que está facultado para tomar decisiones y las acciones necesarias para el mejoramiento del Servicio.

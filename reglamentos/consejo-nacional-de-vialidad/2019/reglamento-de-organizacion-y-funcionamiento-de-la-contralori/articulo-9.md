@@ -1,0 +1,2 @@
+CAPÍTULO IV
+Artículo 9º—De las atribuciones de la Contraloría de Servicios. Independencia de criterio de la Contraloría de Servicios. La Contraloría de Servicios del Consejo Nacional de Vialidad ejerce sus funciones con independencia funcional y de criterio respecto del jerarca y los demás componentes de la administración activa de la organización. Sus recomendaciones se deben sustentar en la normativa interna de la institución, manuales, reglamentos, criterios legales, técnicos y buenas prácticas administrativas y de control interno.

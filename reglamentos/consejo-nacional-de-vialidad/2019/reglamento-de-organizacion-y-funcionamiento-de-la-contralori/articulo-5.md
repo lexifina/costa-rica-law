@@ -1,0 +1,1 @@
+Artículo 5º—De la Estructura. La Contraloría general de Servicios estará bajo la responsabilidad de la persona que ocupe la titularidad de la Contraloría o subcontraloría. La Contraloría estará integrada además por un Sub-contralor (a) y el personal profesional y de apoyo administrativo necesario para el cumplimiento de los objetivos propuestos.

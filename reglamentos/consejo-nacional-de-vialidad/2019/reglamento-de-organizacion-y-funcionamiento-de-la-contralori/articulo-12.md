@@ -1,0 +1,2 @@
+Artículo 12.—Impulso de las actuaciones de la contraloría de servicios. La Contraloría de Servicios del Consejo Nacional de Vialidad podrá actuar de oficio en procura del mejoramiento continuo e innovación de los servicios o a petición de parte, para realizar investigaciones, visitar las dependencias y requerir la información pertinente para el cumplimiento de sus funciones.
+Asimismo, la Contraloría podrá ejercer cualquier atribución o potestad no incluida en este Reglamento, que le otorgue el Consejo de Administración para facilitarle el cumplimiento de su labor.

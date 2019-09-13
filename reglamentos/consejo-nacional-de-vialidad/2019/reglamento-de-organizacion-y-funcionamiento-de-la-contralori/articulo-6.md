@@ -1,0 +1,2 @@
+CAPÍTULO II
+Artículo 6º—Objetivos Generales. El objetivo general de la Contraloría de Servicios es contribuir a que, en la prestación del servicio público, el Consejo Nacional de Vialidad funcione con un máximo de eficiencia a fin de satisfacer oportuna y adecuadamente los legítimos requerimientos de los usuarios, así como brindarle la información que éstos requieran para orientar y facilitar su contacto con la institución.

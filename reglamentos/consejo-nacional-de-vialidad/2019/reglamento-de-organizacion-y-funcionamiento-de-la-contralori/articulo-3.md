@@ -1,0 +1,1 @@
+Artículo 3º—Del objeto. La Contraloría tiene como objeto garantizar el respeto de los derechos de las personas usuarias respecto a los servicios que reciben por parte de CONAVI, para lo que debe velar por el buen servicio que la institución debe brindar a la ciudadanía, y fiscalizar que la gestión administrativa se apegue a la normativa vigente que regula la materia.
