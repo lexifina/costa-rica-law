@@ -1,0 +1,1 @@
+Artículo 33.—De los reclamos administrativos. Las reclamaciones por lecturas, tarifas o montos derivados de ellas deberán hacerse ante el Área Comercial, por medio de la Unidad de Servicio al Cliente o en atención al público de la Dirección de Recurso Hídrico, durante los sesenta días naturales posteriores al vencimiento del recibo que genera el reclamo.

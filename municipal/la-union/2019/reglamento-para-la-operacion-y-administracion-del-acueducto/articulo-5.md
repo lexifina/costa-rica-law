@@ -1,0 +1,3 @@
+Artículo 5°- De las condiciones para la prestación del servicio: Es obligación de la Municipalidad dotar al usuario de un servicio adecuado en cuanto a calidad, cantidad y continuidad, salvo en casos de fuerza mayor, caso fortuito o periodos de mantenimiento debidamente divulgados que afecten la zona donde está localizada la propiedad.
+La Municipalidad debe garantizar una presión de servicio dinámica de al menos 1.5 kg/cm2 (15 metros de columna de agua ó 21.3 psi) en la red de distribución ubicada en calle o vía pública, de la que se abastece el servicio.
+En casos en que no sea técnicamente factible dotar a algún nuevo servicio con una presión de servicio mínima de 1.5 kg/cm2 no se aprobará la solicitud.

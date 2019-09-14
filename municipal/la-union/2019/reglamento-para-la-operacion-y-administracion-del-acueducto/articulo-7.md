@@ -1,0 +1,1 @@
+Artículo 7°- De la divulgación de la suspensión del servicio: La Municipalidad, a través del Coordinador de Acueductos, gestionará el aviso rápido y oportuno a los usuarios de las alteraciones o interrupciones de la prestación del servicio de agua potable.
