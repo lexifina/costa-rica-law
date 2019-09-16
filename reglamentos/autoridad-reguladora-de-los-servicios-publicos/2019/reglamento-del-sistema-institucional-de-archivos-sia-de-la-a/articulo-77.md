@@ -1,0 +1,1 @@
+Artículo 77. Sistema informático. - El sistema informático que se utilice para la gestión de los documentos electrónicos, deberá conservar los datos de referencia (metadatos) sobre el contexto en que se creó, preservación, descripción para el almacenamiento y acceso de estos documentos durante todo su ciclo de vida.

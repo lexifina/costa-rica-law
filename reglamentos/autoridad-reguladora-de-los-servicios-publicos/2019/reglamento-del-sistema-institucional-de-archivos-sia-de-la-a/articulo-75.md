@@ -1,0 +1,2 @@
+Artículo 75. Repositorio. - La versión final del documento electrónico, firmado digitalmente, será almacenado en el repositorio que exista para tal efecto en la Dirección de Tecnologías de Información, según la organización establecida por el Departamento de Gestión Documental.
+Por ningún motivo, se podrán modificar las versiones finales de los documentos electrónicos almacenados en el repositorio.

@@ -1,0 +1,2 @@
+Artículo 83. Uso del correo electrónico. - La información enviada por correo electrónico se utiliza para agilizar los trámites administrativos. Para que sea válida la información adjunta, debe llevar la firma digital en las condiciones establecidas.
+En materia del uso del correo electrónico, se rige mediante las disposiciones reglamentarias para la creación, organización, utilización y conservación de los documentos que establezcan el Archivo Nacional de Costa Rica, el Departamento de Gestión Documental y la Dirección de Tecnologías de la Información de la Aresep.

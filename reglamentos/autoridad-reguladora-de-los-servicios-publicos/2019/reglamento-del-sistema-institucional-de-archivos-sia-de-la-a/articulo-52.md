@@ -1,0 +1,1 @@
+Artículo 52. Sistema de clasificación. - Se realizará de acuerdo con lo establecido en la especificación “GD-ES-03 Especificación Cuadro de Clasificación”. El cuadro de clasificación será de aplicación normalizada y obligatoria en todos los archivos de gestión de la Institución.

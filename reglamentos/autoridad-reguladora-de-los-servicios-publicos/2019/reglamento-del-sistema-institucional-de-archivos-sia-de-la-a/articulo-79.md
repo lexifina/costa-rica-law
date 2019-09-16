@@ -1,0 +1,1 @@
+Artículo 79. Verificación de normativa- El Departamento de Gestión Documental en conjunto con la Dirección de Tecnología de Información realizarán periódicamente revisiones con el objeto de verificar el cumplimiento de los procedimientos, estándares, lineamientos, disposiciones legales vigentes y utilización de los recursos relacionados con la gestión de documentos electrónicos

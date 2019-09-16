@@ -1,0 +1,1 @@
+Artículo 63. Control de documentos. - El Departamento de Gestión Documental llevará un control de usuarios y préstamos para la entrega y devolución de documentos, para lo cual se debe completar un formulario y realizar el respectivo registro en el Sistema de Información que, para tales efectos, provea la Dirección de Tecnologías de Información de la Institución.

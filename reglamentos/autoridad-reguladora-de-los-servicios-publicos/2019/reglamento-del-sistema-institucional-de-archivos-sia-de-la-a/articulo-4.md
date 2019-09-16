@@ -1,0 +1,1 @@
+Artículo 4. Acceso a los documentos. - La documentación del Departamento de Gestión Documental es información de interés público siempre que no existan restricciones constitucionales y/o legales que impidan el acceso a la misma.

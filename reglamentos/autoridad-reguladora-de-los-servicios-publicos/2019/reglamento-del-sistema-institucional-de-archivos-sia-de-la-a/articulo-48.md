@@ -1,0 +1,4 @@
+Artículo 48. Desacuerdo con la asignación. - En caso de que una dependencia rechace ser la dependencia coordinadora, y que el DEGD no tenga claro el fundamento del rechazo, el documento será sujeto de consulta, por medio del correo electrónico, a las posibles dependencias relacionadas con la temática(s) del mismo.
+De no haber alguna dependencia que asuma ser la dependencia coordinadora, después de 3 horas hábiles de realizada la consulta por parte del DEGD, se elevará al Despacho del Regulador General. El DEGD mediante un oficio dirigido al Despacho del Regulador General solicitará la debida
+colaboración para asignar a alguna dependencia como coordinadora.
+La manifestación de desacuerdo se podrá realizar por medio de la plataforma digital de gestión documental o por medio de oficio cuando ya aceptaron ser la dependencia coordinadora en el gestor documental.

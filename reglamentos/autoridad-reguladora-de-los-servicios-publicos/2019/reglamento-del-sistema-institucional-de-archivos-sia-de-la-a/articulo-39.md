@@ -1,0 +1,2 @@
+Artículo 39. Entrega personal. - El funcionario responsable de la ventanilla única anota en la esquina superior derecha el nombre y cédula de quien presenta el documento, así como, indica la cantidad de folios y si se adjuntan anexos indica la cantidad de estos.
+Además, deberá estampar con el sello de recibido del reloj marcador para correspondencia externa, el documento original y la copia de respaldo del prestador o usuario sobre la documentación entregada.

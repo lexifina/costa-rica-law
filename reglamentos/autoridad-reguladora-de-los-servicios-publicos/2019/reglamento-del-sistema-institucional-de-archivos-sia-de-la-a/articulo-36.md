@@ -1,0 +1,1 @@
+Artículo 36. Documentos en diferentes soportes. -Los documentos en soporte físico deberán ingresar a través de la ventanilla única del Departamento de Gestión Documental, mientras que los documentos en soporte electrónico deberán ser remitidos al correo electrónico destinado para tal fin, o a la plataforma electrónica, en caso de que exista.

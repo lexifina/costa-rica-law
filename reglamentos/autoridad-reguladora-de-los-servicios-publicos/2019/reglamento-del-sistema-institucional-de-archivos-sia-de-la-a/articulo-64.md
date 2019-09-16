@@ -1,0 +1,1 @@
+Artículo 64. Daño o pérdida de documentos. - Los usuarios del servicio serán responsables de los daños o pérdidas ocasionados a los documentos o materiales proporcionados para su consulta, asumiendo el costo de la reparación o reposición según corresponda. No se debe rayar ningún documento original.
