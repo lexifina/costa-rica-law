@@ -3,7 +3,7 @@ De la clasificación y asignación de vehículos
 Artículo 5°-De la clasificación: Los vehículos propiedad de la Municipalidad de Goicoechea, se clasifican de la siguiente manera:
 a) De uso administrativo: Son todos aquellos vehículos destinados al cumplimiento de las funciones propias de la Municipalidad; los cuales deberán cumplir con los siguientes requisitos:
 1) Deberán estar debidamente rotulados en ambos costados de la cabina con el logotipo: "Municipalidad de Goicoechea".
-2) El rotulado de la cabina anteriormente indicado, previa justificación de la Alcaldía ante el Concejo Municipal requiriendo acuerdo, puede ser suprimido, mediando razones de inspecciones que deban realizarse con los vehículos tanto por funcionarios administrativos como miembros del Concejo Municipal, lo anterior será un excepción a lo dispuesto anteriormente pero cumpliendo en todo lo dispuesto en el punto 3) de este aparte.
+2) (Derogado mediante sesión N° 36-19 del 16 de setiembre de 2019)
 3) Deben poseer placa especial que los identifique corno transportes de servicio municipal.
 El uso de los vehículos administrativos está sujeto a la capacidad instalada, disponibilidad del recurso y al nivel de prioridad según las necesidades institucionales de acuerdo con el fin público imperante.
 b) De seguridad: Son todos aquellos vehículos que utilizará la unidad de Estacionamiento y Terminales para el cumplimiento de los objetivos y metas propias de su gestión. Este tipo de vehículo también llevará la placa respectiva que lo identifique como transporte de servicio municipal y estará debidamente rotulado como se indica en el punto a.1.
