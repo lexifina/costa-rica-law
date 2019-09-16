@@ -33,6 +33,7 @@ Técnicos de Educación Superior | ¢451.523,54
 Diplomados de Educación Superior | ¢487.662,29
 Bachilleres Universitarios | ¢553.124,45
 Licenciados Universitarios | ¢663.772,10
+Periodistas contratados como tales (incluye el 23% en razón de disponibilidad) (por mes) (Así adicionado el puesto anterior a la presente categoría mediante resolución N° CNS-RG-3-2019 del 16 de setiembre del 2019) | ¢817.500,41 (Así adicionado el puesto anterior a la presente categoría mediante resolución N° CNS-RG-3-2019 del 16 de setiembre del 2019)
 Si por disposición legal o administrativa se solicita al trabajador determinado título académico de los aquí incluidos, se le debe pagar el salario mínimo correspondiente, excepto si las tareas que desempeña están catalogadas en una categoría ocupacional superior de las establecidas en este Decreto, en cuyo caso regirá el salario de esa categoría y no al correspondiente al título académico.
 Los salarios para profesionales, bachilleres y licenciados, aquí incluidos rigen para aquellos trabajadores con título universitario debidamente reconocido.
 Los profesionales contratados en las condiciones señaladas en los dos párrafos anteriores, que estén sujetos a disponibilidad, bajo los límites señalados en el artículo 143 del Código de Trabajo, tendrán derecho a percibir un 23% adicional sobre el salario mínimo, estipulado según su grado académico de Bachilleres o Licenciados universitarios.
@@ -40,7 +41,7 @@ c) Relativo a Fijaciones Específicas
 Recolectores de café (por cajuela) | ¢986,27
 Servicio doméstico (por mes)(*) | ¢190.377,39
 Trabajadores de especialización superior1 1De conformidad con la clasificación aprobada en Acta 4185 del 11 de diciembre de 1995, modificada en Acta 4928 del 01 de noviembre del 2006. | ¢20.997,77
-Periodistas contratados como tales (incluye el23% en razón de disponibilidad) (por mes) | ¢817.500,41
+(Eliminada de esta categoría el puesto de periodistas contratados, mediante resolución N° CNS-RG-3-2019 del 16 de setiembre del 2019, misma que fue ubicada en la ocupaciones genéricas por mes) |
 Estibadores por kilo de frutas y vegetales | ¢0,0711
 Estibadores por tonelada | ¢88,00
 Estibadores por movimiento | ¢375,28
