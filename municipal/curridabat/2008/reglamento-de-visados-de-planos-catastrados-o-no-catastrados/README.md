@@ -14,3 +14,4 @@ Reglamento de visados de planos catastrados o no catastrados
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-06-19 | la propia norma |
+| 2 | 2019-09-16 | Reglamento municipal 168 (2019-09-16) |

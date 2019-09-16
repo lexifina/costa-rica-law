@@ -1,1 +1,2 @@
-Artículo 15.—Los casos no expresamente establecidos en el presente reglamento se regirán por la normativa pertinente.
+Artículo 15.—Se podrá eximir de los requisitos contemplados en los incisos 7.3 del artículo 7; 8.3 del artículo 8; 9.3, del articulo 9; 10.3 del artículo 10; 11.3 del artículo 11; 12.3 del artículo 12; 13.3 del artículo 13 y 14.3 del artículo 14, siempre y cuando se trate de visar aquellos planos que tienen como fin inscribir bienes inmuebles a nombre de la municipalidad y cuyos traspasos no han sido realizados por los propietarios privados.
+(Así adicionado en sesión N° 168 del 16 de julio de 2019)
