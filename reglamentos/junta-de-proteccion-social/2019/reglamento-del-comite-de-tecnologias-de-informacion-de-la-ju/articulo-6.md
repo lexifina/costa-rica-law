@@ -1,0 +1,2 @@
+Artículo 6°—De los asuntos competencia del Comité.
+El CTI tendrá competencia para conocer asuntos de carácter exclusivamente estratégico, pudiendo integrar aspectos tácticos, operativos y/o técnicos únicamente cuando sea absolutamente necesario, para la comprensibilidad y apoyo en la toma de decisiones respecto de las tecnologías de información, así como para garantizar el cumplimiento del fin público institucional.

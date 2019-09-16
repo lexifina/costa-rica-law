@@ -1,0 +1,1 @@
+Artículo 2°—Objeto. El presente reglamento tiene por objeto, establecer disposiciones para el funcionamiento del Comité de Tecnologías de Información (CIT) en la Institución, en concordancia con las disposiciones contenidas en las Normas Técnicas para la Gestión y Control de Tecnologías de la Información emitidas por la Contraloría General de la República.

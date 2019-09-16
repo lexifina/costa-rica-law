@@ -1,0 +1,11 @@
+Artículo 16.—De las funciones del Secretario(a) del CTI. La persona que ocupe el rol de secretario (a) del CTI, tendrá las funciones que se detallan a continuación:
+- Documentar formalmente el desarrollo de las sesiones en el acta, conservar y custodiar los documentos que fueran presentados en las sesiones por los miembros del Comité.
+- Elaborar en conjunto con el Presidente las agendas para las sesiones.
+- Comunicar a los miembros del Comité, la convocatoria a las sesiones ordinarias y extraordinarias conforme este Reglamento dispone con la anuencia del Presidente.
+- Mantener el registro de asistencia de cada sesión.
+- Levantar las actas correspondientes a cada sesión y una vez aprobadas por los miembros asistentes, recabar las firmas correspondientes para su difusión, custodia, control y seguimiento de acuerdos.
+- Someter a conocimiento y aprobación del CTI el acta de la sesión anterior.
+- Mantener el archivo de las gestiones desarrolladas y resultados obtenidos por el CTI.
+- Comunicar los acuerdos tomados en cada sesión.
+- Llevar el control de los acuerdos e informar sobre su avance, mediante un registro que contendrá, al menos: el número de acta, número de acuerdo, descripción, responsable, fecha y estado del mismo.
+- Cualquier otra que se determine a lo interno del CTI.
