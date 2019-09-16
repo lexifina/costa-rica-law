@@ -1,0 +1,1 @@
+Artículo 6º—Gestión de declaratoria de Tributos Incobrables: La Unidad de Servicios Tributarios (Cobros) como dependencia encargada de gestionar la declaratoria de incobrabilidad de una deuda deberá realizar un análisis de si se cumple o no con los supuestos de incobrabilidad.
