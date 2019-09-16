@@ -15,3 +15,4 @@ Reglamento para el desarrollo del conocimiento y de las competencias del persona
 | --- | --- | --- |
 | 1 | 2018-07-02 | la propia norma |
 | 2 | 2019-07-10 | Reglamento 5655 (2019-07-10) |
+| 3 | 2019-09-16 | Reglamento 5671 (2019-09-16) |
