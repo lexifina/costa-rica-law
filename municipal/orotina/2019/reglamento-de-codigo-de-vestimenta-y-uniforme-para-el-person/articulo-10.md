@@ -1,0 +1,2 @@
+Artículo 10.—Disposiciones finales. Las disposiciones de este reglamento serán de acatamiento obligatorio para toda persona colaboradora, sin distinción de su puesto o función.
+Corresponderá a las Jefaturas velar por el cumplimiento de estos lineamientos en sus respectivas áreas de trabajo, incluyendo la imposición del régimen disciplinario en concurso con la Alcaldía cuando se trate de faltas sancionadas con suspensión. La Unidad de Recursos Humanos realizará reportes cuando los Jefes no cumplan, a efectos de disponer sobre las respectivas medidas disciplinarias.
