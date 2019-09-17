@@ -5,10 +5,11 @@ Aviso a los proveedores y público en general
 Se les comunica a todos los proveedores del AyA y a todo el público en general que en la página Web de la Institución, www.aya. go.cr se encuentra disponible el acuerdo de junta directiva Nº 2011- 302 adoptado en la sesión ordinaria 2011-051 del 1º de noviembre del 2011, el cual establece el Procedimiento para los contratos de cesiones de los derechos del pago en AyA, que rige a partir de la presente publicación.
 San José, 8 de noviembre del 2011.
 (Nota de Sinalevi: El texto del Procedimiento para los contratos de cesiones de los derechos del pago en AyA, se extrajo del sitio Web Instituto Costarricense de Acueductos y Alcantarillados, y se trascribe a continuación:)
-COMUNICACIÓN INTERNA DE ACUERDOS DE JUNTA DIRECTIVA | [imagen]
+COMUNICACIÓN INTERNA DE ACUERDOS DE JUNTA DIRECTIVA |
 SESIÓN N ° 2011-051 ORDINARIA | FECHA 01-11-2011 | ARTÍCULO 3 | INCISO 3.1 | FECHA COMUNICACIÓN 2 de noviembre 2011
 ATENCIÓN: PRESIDENCIA EJECUTIVA, GERENCIA GENERAL, SUBGERENCIA, AUDITORÍA INTERNA, DIRECCIÓN JURÍDICA, PROVEEDURIA
 ASUNTO: PROCEDIMIENTO PARA CONTRATOS DE CESIONES DE DERECHOS DE PAGO EN AYA. | ACUERDO N° 2011-302
+| | | |
 | | | |
 JUNTA DIRECTIVA DEL INSTITUTO COSTARRICENSE DE ACUEDUCTOS Y ALCANTARILLADOS.
 PROCEDIMIENTO PARA LOS CONTRATOS DE CESIONES DE DERECHOS DE PAGO EN AYA.
@@ -24,7 +25,7 @@ SEGUNDO: A partir del año 2007, al realizarse una reforma integral de la Ley de
 TERCERO: En virtud de que el mercado de factoreo ha aumentado considerablemente su cartera de clientes, produciendo que un porcentaje muy alto de los contratos administrativos del AyA se encuentren cedidos, es que se procede a emitir el Procedimiento para los contratos de cesiones de derechos de pago, el cual establece a los contratistas, proveedores -o potenciales proveedores- de bienes, servicios y obras, los requisitos que deben cumplir los contratos privados que concedan a Personas físicas o jurídicas de los derechos de pago.
 POR TANTO:
 Con fundamento en todo lo anterior, se emite el Procedimiento para los contratos de cesiones de los derechos de pago, para todo contrato administrativo de obra pública, servicios o suministros suscrito con AyA, ya sea por licitaciones, procedimientos de excepción o contrataciones autorizadas.
-(Nota de Sinalevi: El texto de este procedimiento fue reformado parcialmente y reproducido su texto en forma íntegra y publicado en La Gaceta N° 95 del 19 de mayo de 2015, por lo que se trascribe a continuación:)
-PROCEDIMIENTO PARA LOS CONTRATOS DE CESIÓN
-DE DERECHOS ECONÓMICOS EN AYA
-Artículo 1º—El presente procedimiento es aplicable, sin excepción, a toda persona física o jurídica que posea derechos de cobro cuyo pagador sea AyA, surgidos en virtud de un contrato administrativo de obra pública, servicios o suministros, ya sea por licitaciones, procedimientos de excepción o contrataciones autorizadas, y los ceda a un tercero, sea este persona física o jurídica.
+(Nota de Sinalevi: El texto de este procedimiento fue reformado parcialmente y reproducido su texto en forma íntegra en sesión N° 2019-54 del 17 de setiembre de 2019 y publicado en La Gaceta N° 21 del 3° de febrero de 2020, por lo que se transcribe a continuación:)
+PROCEDIMIENTO PARA LOS CONTRATOS DE
+CESION DE DERECHOS DE PAGO EN AYA
+Artículo 1°—El presente procedimiento es aplicable, sin excepción, a toda persona física o jurídica que posea derechos de cobro cuyo pagador sea AyA, surgidos en virtud de un contrato administrativo de obra pública, servicios o suministros eficaz, originado por adjudicaciones de procedimientos ordinarios de contratación administrativa o de procedimientos de excepción, y los ceda a un tercero, sea este persona física o jurídica.
