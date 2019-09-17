@@ -15,3 +15,5 @@ Artículo 2°: Apruébanse los siguientes Egresos Ordinarios y Extraordinarios d
 (Así reformado por el artículo 3° de la ley N° 9711 del 24 de julio de 2019)
 (Así reformado por el artículo 1° de la ley N° 9716 del 30 de julio de 2019)
 (Modificado por el artículo 1° del decreto ejecutivo N° 41921 del 13 de agosto del 2019)
+(Así reformado por el artículo 2° de la ley N° 9741del 17 de setiembre de 2019)
+(Así reformado por el artículo 3° de la ley N° 9741del 17 de setiembre de 2019)
