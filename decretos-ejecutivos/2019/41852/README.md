@@ -14,3 +14,4 @@ Declara estado de emergencia situación generada por déficit hídrico consecuen
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-08-21 | la propia norma |
+| 2 | 2019-09-17 | Decreto Ejecutivo 41944 (2019-09-17) |
