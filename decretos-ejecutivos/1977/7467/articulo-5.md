@@ -1,1 +1,0 @@
-Artículo 5°—La Junta Administrativa deberá reunirse no menos de dos veces por mes, con el fin de supervisar y orientar el trabajo realizado por el Di-rector y el resto del personal de la Casa de la Cultura. Cada seis meses deberá remitir un informe de labores al Ministro de Cultura, Juventud y Deportes.

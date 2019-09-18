@@ -1,1 +1,0 @@
-Artículo 4°—En su primera sesión, luego de ser juramentada por el Ministro de Cultura, Juventud y Deportes, la Junta Administrativa deberá nombrar de su seno, por simple mayoría, un presidente, un Vicepresidente, un Fiscal, un Secretario y un Tesorero. Los demás miembros serán Vocales.

@@ -1,1 +1,0 @@
-Artículo 2°—La Casa de la Cultura de Puntarenas, tendrá por función la de propiciar el desarrollo cultural de la ciudad de Puntarenas en particular, y de toda la provincia en general, ofreciendo servicios, patrocinando espectáculos y realizando todas aquellas actividades que sean conducentes al fin expresado.
