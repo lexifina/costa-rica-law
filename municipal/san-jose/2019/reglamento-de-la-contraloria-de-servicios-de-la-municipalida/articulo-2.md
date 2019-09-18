@@ -1,0 +1,1 @@
+Artículo 2.- Objeto del Reglamento. El presente instrumento normativo tiene por objeto reglamentar el ámbito de aplicación, la integración, organización y funcionamiento de la Contraloría de Servicios de la Municipalidad de San José, conforme lo establecido en la Ley 9158 Reguladora del Sistema Nacional de Contralorías de Servicios.

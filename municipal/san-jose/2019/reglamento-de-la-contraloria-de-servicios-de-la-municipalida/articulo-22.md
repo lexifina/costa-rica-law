@@ -1,0 +1,1 @@
+Artículo 22.- Por Seguridad Jurídica, la Contraloría de Servicios no dará trámite a casos que se remitan a otras oficinas y de ello reciba copias. Cuando una queja o inquietud no esté direccionada a la Contraloría de Servicios, por seguridad jurídica y para efectos de evitar duplicidad de criterios, no le corresponde a la Contraloría de Servicios, la resolución de la misma.

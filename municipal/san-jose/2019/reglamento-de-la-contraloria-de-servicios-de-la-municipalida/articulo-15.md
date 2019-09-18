@@ -1,0 +1,4 @@
+CAPITULO IV
+DEL PROCEDIMIENTO DE RECEPCIÓN DE GESTIONES
+ARTICULO 15.- De la Recepción de gestiones (consultas, denuncias, inconformidades, felicitaciones y reportes). Corresponde a la Contraloría de Servicios recibir las gestiones que presente el usuario, con respecto a los servicios que brinda la Institución, y que no han sido atendidas o resueltas de forma oportuna por el área competente. La persona usuaria puede presentar su gestión en forma personal, por escrito, por teléfono o correo electrónico, según los procedimientos establecidos en este reglamento.
+No es competencia de la Contraloría de Servicios conocer de las faltas al contrato de trabajo en que incurran los funcionarios municipales, dicha función corresponde a la Dirección de Asuntos Jurídicos, de la Municipalidad de San José.
