@@ -1,0 +1,2 @@
+Artículo 2.- Alcance.
+La estrategia Puente a la Comunidad, es de cobertura nacional y tiene una vigencia al 2040. Su fin es optimizar la creación de valor público de las intervenciones por medio de la articulación de políticas públicas, priorizar las intervenciones en territorios con asentamientos informales con metodologías técnicamente formuladas para su evaluación, canalizando la oferta interinstitucional de servicios públicos, privados y de la cooperación internacional, articulados con la visión de desarrollo y participación municipal en esas intervenciones.

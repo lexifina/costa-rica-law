@@ -1,0 +1,2 @@
+Artículo 5.- Comisión Interinstitucional:
+La Presidencia de la República y el MIVAH, conformarán conjuntamente y de inmediato, con representantes institucionales y sectoriales, una comisión interinstitucional para que presente en el plazo máximo de 120 días naturales, contados a partir de la publicación del presente decreto, una propuesta de reformas administrativas y legales que faciliten y aceleren la intervención integral en los asentamientos informales.
