@@ -14,3 +14,4 @@ Cambio de nomenclatura del cantón XII de la provincia de Alajuela cuyo topónim
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-09-11 | la propia norma |
+| 2 | 2019-09-18 | Decreto TSE 16 (2019-09-18) |
