@@ -1,0 +1,1 @@
+Artículo 2º—Incorporar el inmueble denominado “Antigua Unidad Sanitaria de San Marcos de Tarrazú”, en el Registro Especial del Patrimonio Histórico-Arquitectónico de la Nación, ubicado en el Centro de Documentación Luis Ferrero Acosta del Centro de Investigación y Conservación del Patrimonio Cultural.
