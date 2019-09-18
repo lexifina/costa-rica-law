@@ -1,0 +1,1 @@
+Artículo 45- Dos veces al año o cuando lo requiera el Departamento de Informática, deberá dar mantenimiento a los equipos portátiles en calidad de préstamo a los miembros del Concejo Municipal. Y en este momento deberá coordinar con el Departamento de Contabilidad y Proveeduría para la respectiva toma física de inventario de estos equipos.

@@ -1,0 +1,1 @@
+Artículo 24- La Proveeduría Municipal a través del Encargado de Bodega, será la responsable de la custodia y administración de los bienes inservibles, deteriorados y en desuso, para lo cual, se le asignará un espacio exclusivo en el Plantel Municipal para este fin.

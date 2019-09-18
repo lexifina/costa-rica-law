@@ -1,0 +1,1 @@
+Artículo 28- El Departamento de Contabilidad conjuntamente con la Proveeduría verificarán la existencia de los bienes inventariados a cargo de las distintas dependencias de la Administración Municipal y velarán por la aplicación de este reglamento en los casos que le proceda.

@@ -1,0 +1,1 @@
+Artículo 5- La Solicitud de Activos debe contener los siguientes datos: fecha, el nombre del departamento y firma del jefe o Gestor que solicita, el detalle de los bienes que se requieren, cantidad, así como el código de presupuesto que será afectado por la compra. Además de un espacio para la firma y sello de recibido por parte del Departamento de Contabilidad Municipal.

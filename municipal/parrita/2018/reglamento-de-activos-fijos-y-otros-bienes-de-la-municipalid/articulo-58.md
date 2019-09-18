@@ -1,0 +1,1 @@
+Artículo 58- Lo relativo a las faltas y sanciones se regirán por lo establecido en el Reglamento Autónomo de Organización y Servicios de la Municipalidad de Parrita, Código Municipal, Código de Trabajo y normativa legal vigente.

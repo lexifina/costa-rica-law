@@ -1,0 +1,2 @@
+Artículo 60. Este reglamento rige a partir de su publicación en el Diario Oficial La Gaceta.
+Reglamento aprobado por el Concejo Municipal de Parrita mediante acuerdo Acuerdo Nª24, Artículo Quinto, Iniciativas de Regidores, Asunto N°04, Sesión Ordinaria N°081-2018, celebrada el veintiséis de noviembre del dos mil dieciocho, debidamente sancionado por el señor alcalde, Freddy Garro Arias, mediante oficio DAM-860-2018, de fecha 18 de diciembre del dos mil dieciocho. Es todo.

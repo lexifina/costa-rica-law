@@ -1,0 +1,3 @@
+CAPÍTULO VII
+Disposiciones finales
+Artículo 57- Los bienes que ingresen o se encuentren en la Institución que sean propiedad de sus funcionarios deben ser reportados inmediatamente a la Alcaldía, con el visto bueno de la jefatura inmediata, con el propósito de registrar su permanencia y posterior salida. Para que el bien pueda salir debe solicitarse la autorización a la Alcaldía. Y presentarla sin excepción al oficial de seguridad, en caso que lo hubiera. En los casos que estos bienes sufran algún desperfecto, deterioro, pérdida o extravío mientras se encuentren dentro de las instalaciones de la Municipalidad de Parrita, la institución no asumirá ninguna responsabilidad al respecto.

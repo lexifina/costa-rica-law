@@ -1,0 +1,1 @@
+Artículo 59- Derogatoria. El presente reglamento deroga cualquier reglamento, directriz, manual, norma interna o cualquier otro, que se haya emitido sobre el uso y control de activos de la Municipalidad de Parrita.
