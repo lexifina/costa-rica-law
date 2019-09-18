@@ -1,0 +1,2 @@
+Artículo 51.- Acceso de los registros. El Auditor Interno debe controlar el acceso a los registros y papeles de trabajo de los estudios que se realicen, a personas ajenas a la auditoría interna. Deberá tomar las previsiones de modo que se requiera de su autorización o la que éste designe. Además, debe establecer requisitos de custodia para los registros y documentación del trabajo.
+Estos requisitos de retención, deben ser consistentes con la normativa establecida para esta materia.

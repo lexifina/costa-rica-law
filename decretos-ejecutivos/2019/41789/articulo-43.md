@@ -1,0 +1,2 @@
+Artículo 43.- Plan de Trabajo. La Auditoría Interna confeccionará y presentará a la persona Directora Nacional de conformidad con los lineamientos de la Contraloría General, un plan anual de trabajo que entrará en vigor a partir del primer mes del año a que corresponde.
+El programa de trabajo específico de cada estudio de auditoría, será diseñado contemplando aquellos aspectos que se consideren de mayor interés para la Auditoría Interna. Este programa deberá ser elaborado por el equipo de trabajo asignado al estudio y aprobado por el Auditor Interno.

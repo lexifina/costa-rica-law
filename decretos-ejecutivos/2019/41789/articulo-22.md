@@ -1,0 +1,1 @@
+Artículo 22.- Jornada laboral del Auditor y Subauditor Internos. La jornada laboral del Auditor y Subauditor Internos será de tiempo completo. El jerarca se obliga a que las medidas administrativas que adopte para ambos cargos sean equitativas respecto de los puestos que dependen de éste, así como en asuntos tales como el trámite de vacaciones y similares.

@@ -1,0 +1,1 @@
+Artículo 36.- Registro presupuestario separado. La Unidad Financiera de la DNCC, mantendrá un registro del presupuesto anual asignado a la Auditoría Interna, detallado por objeto del gasto, para el control de su ejecución y el suministro periódico de información al Auditor Interno.

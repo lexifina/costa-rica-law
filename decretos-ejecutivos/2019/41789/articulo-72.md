@@ -1,0 +1,1 @@
+Artículo 72.- Traslado de denuncias. Las denuncias presentadas ante la Auditoría Interna que no sean de su competencia para admitir, conocer y tramitar, debe remitirla en sobre cerrado a la instancia que resulte competente, como lo establece el artículo 6 de la Ley de Control Interno y 8 de la LCCEI, comunicando al denunciante lo que corresponda.

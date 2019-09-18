@@ -1,0 +1,4 @@
+SECCIÓN III
+Ubicación y estructura organizativa
+Artículo 13.- Estructura organizativa y funcional. Corresponderá al Auditor Interno proponer la estructura organizativa y funcional para la efectividad del cumplimiento de las obligaciones legales y técnicas de la Auditoría Interna, en concordancia con la razón de ser y la normativa que regula a la DNCC.
+La Auditoría Interna se organizará y funcionará conforme lo disponga el Auditor Interno, de conformidad con las disposiciones, normas, políticas y directrices que emita la Contraloría General, las cuales serán de acatamiento obligatorio. Además, dicha estructura deberá ajustarse a la normativa que regula la DNCC en materia de organización y será propuesta por el Auditor Interno y aprobada por la persona Directora Nacional, conforme a los procedimientos establecidos al efecto.

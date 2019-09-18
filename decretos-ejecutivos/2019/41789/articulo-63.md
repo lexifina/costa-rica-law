@@ -1,0 +1,3 @@
+SECCIÓN VI
+Del trámite de denuncias
+Artículo 63.- Ámbito de competencia. La Auditoría Interna dará trámite únicamente a aquellas denuncias que versen sobre posibles hechos irregulares, ajenos al marco legal vigente o de control con relación al uso y manejo de fondos públicos o que afecten la Hacienda Pública, y lo regulado por la LCCEI.

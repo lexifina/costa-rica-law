@@ -1,0 +1,3 @@
+SECCIÓN VI
+Relaciones y coordinación
+Artículo 28.- Relaciones y coordinación. Al Auditor Interno le corresponderá regular y administrar el manejo de las relaciones y coordinaciones de la Auditoría Interna conforme la normativa aplicable. Estas relaciones se enfocan principalmente al jerarca, los titulares subordinados, así como instancias internas o externas como, la Contraloría General, Instituciones de Control y Fiscalización, Comisiones Legislativas, Ministerio Público, Procuraduría General de la República y denunciantes. Le corresponde al Auditor Interno administrar esas relaciones, para que se realicen de conformidad con el ordenamiento jurídico y técnico aplicable.

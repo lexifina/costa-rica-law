@@ -1,0 +1,4 @@
+Artículo 57.- Conferencia final. Los resultados, conclusiones y recomendaciones de los servicios de auditoría, se comentarán previamente, con la persona funcionaria a quien se dirigen las recomendaciones, poseedor de la competencia y autoridad para ordenar su ejecución; a fin de promover el intercambio y retroalimentación con respecto a estos.
+Las observaciones escritas que al respecto la persona funcionaria proporcionen en la conferencia final, se contemplarán en el respectivo informe de auditoría y sobre ellas se manifestará la Auditoría Interna, si lo estima necesario.
+La Auditoría Interna, sólo deberá variar su criterio y si es del caso, modificar el contenido de su informe, cuando así se le demuestre con razones fundadas y a su entera satisfacción.
+Se exceptuarán de esa conferencia final los asuntos relacionados con el establecimiento de responsabilidades administrativas, civiles y/o penales.

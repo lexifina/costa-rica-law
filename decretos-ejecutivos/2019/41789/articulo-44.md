@@ -1,0 +1,1 @@
+Artículo 44.- Modificación al Plan Anual de Trabajo. La Auditoría tendrá la competencia de elaborar y modificar sus planes anuales de trabajo de conformidad con la normativa vigente, sin perjuicio de que se atiendan sugerencias que le manifieste la DNCC y la obligación del Auditor de dialogar, exponer su contenido y su relación con su plan estratégico de fiscalización.

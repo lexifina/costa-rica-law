@@ -1,0 +1,3 @@
+SECCIÓN V
+Del personal de la auditoría interna
+Artículo 24.- Del personal. Debe poseer suficiente conocimiento en auditoría, contabilidad, administración y riesgo, razonable conocimiento sobre control de tecnología de sistemas de información y comunicaciones, indicadores de fraude y corrupción, así como del marco legal que rige el accionar de la Administración Pública y la DNCC, que lo califique para ejercer en forma apropiada las funciones encomendadas, así como reunir u obtener en conjunto las aptitudes y competencias necesarias para cumplir con sus responsabilidades, de conformidad con las disposiciones internas de la Institución.

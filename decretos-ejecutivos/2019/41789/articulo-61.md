@@ -1,0 +1,1 @@
+Artículo 61.- Responsabilidad por incumplimiento de recomendaciones. Cabrá responsabilidad administrativa contra los funcionarios que incumplan las recomendaciones de la Auditoría Interna, ordenadas por la persona Directora Nacional o titular subordinado respectivo, sin prejuicio de las responsabilidades que les pueda ser imputadas en la vía civil y/o penal.

@@ -1,0 +1,2 @@
+Artículo 14.- Organización por procesos. La Auditoría Interna estará organizada como unidad funcional bajo un enfoque de administración por procesos a cargo del Auditor Interno, con apoyo de los equipos de trabajo, con el propósito de garantizar la efectividad en el cumplimiento de las obligaciones legales y técnicas.
+Dichos procesos son los Servicios Técnicos (Auditoría, Preventivos y de Seguimiento) así como Servicios Administrativos, los cuales se documentarán.

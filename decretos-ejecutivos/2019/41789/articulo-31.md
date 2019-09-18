@@ -1,0 +1,1 @@
+Artículo 31.- Apoyo técnico. La Auditoría Interna podrá solicitar, cuando lo estime necesario, la asesoría o la incorporación de profesionales y técnicos en las diferentes disciplinas, funcionarios o no de la DNCC, para que realicen labores de su especialidad en apoyo a su actividad.

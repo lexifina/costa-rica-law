@@ -1,0 +1,2 @@
+Artículo 50.- Recopilación de evidencia en los papeles de trabajo. La recopilación de evidencia de los estudios de auditoría recabada por parte de la Auditoría Interna, se realizará por medio de papeles de trabajo que se codificarán y ordenarán en cédulas técnicamente elaboradas.
+Asimismo, los resultados obtenidos se sustentarán con evidencia suficiente y competente, que facilite la toma de decisiones a la DNCC, o al titular subordinado que corresponda, con relación a las recomendaciones contenidas en el informe.

@@ -1,0 +1,3 @@
+SECCIÓN IV
+Del Auditor
+Artículo 15.- Dependencia jerárquica. El Auditor Interno responderá por su gestión ante la persona Directora Nacional y en lo conducente, ante la Contraloría General. Conforme con sus competencias, constituye un asesor de la organización en materia de control interno. Al Subauditor Interno le corresponderá apoyar al Auditor Interno en el ejercicio de sus funciones, lo sustituirá en sus ausencias temporales y debe responder ante él por su gestión, en caso que no exista subauditor, le sustituirá el funcionario de la Auditoría Interna que se designe, con apego al ordenamiento legal y técnico vigente aplicable. Su ubicación dentro de la estructura institucional corresponde a la de un órgano de muy alto nivel en la DNCC.

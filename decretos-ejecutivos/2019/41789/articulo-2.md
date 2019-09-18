@@ -1,0 +1,1 @@
+Artículo 2º-Ámbito de aplicación. El presente Reglamento es de carácter obligatorio para los funcionarios de la Auditoría Interna y para los servidores de la administración activa de la Dirección Nacional de Centros de Educación y Nutrición y de Centros Infantiles de Atención Integral, en lo que les resulte aplicable.
