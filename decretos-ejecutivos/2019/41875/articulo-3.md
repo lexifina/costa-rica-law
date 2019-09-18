@@ -1,0 +1,7 @@
+Artículo 3º—Requisitos para ser beneficiario de una donación por baja de bienes.
+a) Estar inscrito en el Registro de Instituciones aptas para recibir donaciones RIARD, a excepción de las Municipalidades, Concejos Municipales de Distrito, Juntas de Educación y Administrativas de escuelas y colegios, de conformidad con el artículo 25 inciso c) del Decreto Ejecutivo Nº 40797-H de fecha 28 de noviembre del año 2017.
+b) Presentar personería jurídica vigente.
+c) Estar al día con el pago de cuotas patronales de la Caja Costarricense de Seguro Social y/o en FODESAF.
+d) En caso de selección del artículo 4) inciso d) siguiente, el potencial beneficiario, deberá presentar una constancia de sus libros legalizados, que indique la cantidad de asociados que conforman la persona jurídica.
+e) Presentar una nota de aceptación, en tiempo y forma de las condiciones de la donación. En ese mismo documento deberá constar que el beneficiario debe aceptar la totalidad de los bienes incluidos en la donación, ya que no se permitirá fraccionamiento de dichos bienes, ni disminución de los mismos.
+f) Firmar el acta de entrega de los bienes por donación, por parte del representante legal de la persona jurídica donataria, lo que se hará en las instalaciones de este Ministerio donde se encuentren los bienes. Dicha acta deberá expresar que libera de toda responsabilidad al Ministerio de Agricultura y Ganadería.
