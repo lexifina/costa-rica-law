@@ -1,0 +1,1 @@
+Artículo 23.—Publicar el reglamento en el Diario Oficial La Gaceta para su consulta pública no vinculante por diez días hábiles, luego de la cual se deberá publicar por segunda vez para su validez y eficacia definitiva.

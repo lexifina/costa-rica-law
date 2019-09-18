@@ -1,0 +1,1 @@
+Artículo 22.—La Municipalidad le facilitará uniforme e identificación a los encardados y vigilante del Paradero Monte de la Cruz, y a las personas que necesitan hacer labores especiales dentro de las instalaciones.

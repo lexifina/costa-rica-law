@@ -1,0 +1,8 @@
+Artículo 6º—La municipalidad por medio de la Alcaldía o a quién esta delegue, podrá establecer paquetes promocionales para promover el ingreso y visita al paradero, además de los establecidos mediante el acuerdo N° 8 de la Sesión ordinaria N° 132-2017 celebrada el 11 de diciembre del 2017.
+- Máximo 25% de descuento en la entrada para grupos escolares, colegios o grupos de personas adultas mayores /mínimo 10 personas)
+- Descuento de un 50% del costo para funcionarios, miembros del concejo municipal y sus familias.
+Paquete Promocional N° 1: Aplicar un 25% de descuento en la entrada para grupos de escolares, colegios, universitarios y adultos mayores, (mayores a 15 personas). Se les solicitará una
+lista con los nombres de las personas que asistirán a la actividad.
+El descuento no se aplica al rubro de Parqueo o alquiler de Ranchos
+Paquete Promocional N° 2: Aplicar un 50% de descuento en el alquiler de Rancho Principal y/o Rancho de Capacitación para grupos mayores a 25 personas, estudiantes escolares, colegios y universitarios. (Incluye promoción para fines de semana y feriados) Se les solicitará una lista con los nombres de las personas que asistirán a la actividad. El descuento NO se aplica al rubro de Parqueo o alquiler de Ranchos Paquete Promocional N° 3: Aplicar un descuento de 30% para alquiler del Rancho Principal o Sala de Capacitación para grupos mayores a 30 personas, cuando se trata de alquiles de lunes a viernes. Se les solicitará una lista con los nombres de las personas que asistirán a la actividad.
+Paquete Promocional N° 4: Aplicar entrada de 2 x 1 los días festivos, último sábado del mes o el día que la Alcaldía analice y considere abrir la promoción. El descuento no se aplica al rubro de Parqueo o alquiler de Ranchos.

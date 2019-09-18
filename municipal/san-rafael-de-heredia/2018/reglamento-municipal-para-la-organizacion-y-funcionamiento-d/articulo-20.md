@@ -1,0 +1,1 @@
+Artículo 20.—Las situaciones o aspectos no previstos en este reglamento deberán resueltos por el Alcaldía Municipal. El presente reglamento entrará en vigencia a partir de la aprobación definitiva por el Concejo Municipal de la Municipalidad de San Rafael de Heredia.

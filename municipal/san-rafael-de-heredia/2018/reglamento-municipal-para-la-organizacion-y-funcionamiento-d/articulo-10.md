@@ -1,0 +1,8 @@
+Artículo 10.—La zona de juegos infantiles estará a disposición de los niños menores de diez años, y sus encargados quienes deberán vigilar y cuidar a sus menores a fin de evitar situaciones de riesgo o peligro.
+a) La Municipalidad no será responsable de accidentes o daños a la propiedad que sean ocasionados por el mal uso o negligencia del usuario
+b) Los ranchos después de asignados en la entrada quedan bajo responsabilidad del usuario
+c) Cualquier daño que se ocasione a los mismos será responsabilidad del usuario y responderá en su totalidad por los daños ocasionados.
+d) Asimismo, ningún la Municipalidad ni sus funcionarios, responderá por objetos que se pierdan en dichos ranchos. El personal de Paradero (inspectores) realizaran la revisión de la facturación de los ranchos asignados por lo que solicitara al usuario el tiquete correspondiente al Alquiler del rancho, con el fin de corroborar la debida facturación, en caso de que el usuario no cuente con el respectivo tiquete, el funcionario asignado cuenta con la potestad de realizar el cobro del mismo entregando posteriormente el tiquete al Usuario en coordinación con el encargado de la caja del ingreso
+e) Excepto las áreas de jardín y áreas verdes podrán ser utilizadas en actividades recreativas sin riesgo de deterioro de las mismas.
+f) El propietario de cualquier mascota que ingrese al Paradero Turístico, se hace responsable de su cuido, cualquier daño que ocasiones las mascotas que se autorice su ingreso serán responsabilidad absoluta del propietario y deberá reparar los mismos de forma inmediata.
+g) La Municipalidad no se hace responsable de la pérdida o lesiones o muerte, que sufra la mascota dentro del paradero.

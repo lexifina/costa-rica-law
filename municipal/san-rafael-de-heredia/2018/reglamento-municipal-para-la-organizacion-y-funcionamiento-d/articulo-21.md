@@ -1,0 +1,1 @@
+Artículo 21.—La Municipalidad se reserva el derecho de establecer cualquier otro sistema de recaudación, conforme a sus intereses de acuerdo con el resultado que en términos prudenciales pudo obtener de la presente disposiciones reglamentaria-al amparo del código Municipal.

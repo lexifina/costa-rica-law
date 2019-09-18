@@ -1,0 +1,2 @@
+Sobre el uso:
+Artículo 8º—Dentro de las instalaciones del Paradero Monte de la Cruz se podrán llevar a cabo actividades tales como: Ferias, domingos familiares-veladas-fiestas-tumos-festejos cívicos conciertos- conferencias-campamentos y otros cumpliendo con los requisitos que dicte las reglamentaciones pertinentes y cualquier otra actividad lícita que la Municipalidad por si misma o por terceros o de forma conjunta autorice, tales como por ejemplo caminatas guiadas, canopy, camping, entre otros.

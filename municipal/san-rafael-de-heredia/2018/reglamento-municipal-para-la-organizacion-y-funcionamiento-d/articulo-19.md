@@ -1,0 +1,1 @@
+Artículo 19.—La Municipalidad no se responsabiliza por daños y perjuicios provocados por terceras personas a los usuarios, ni por los accidentes que sufren los usuarios cuya causa sea la imprudencia o inobservancia de las normas de seguridad.

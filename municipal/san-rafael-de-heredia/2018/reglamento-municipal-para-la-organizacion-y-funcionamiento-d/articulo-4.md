@@ -1,0 +1,3 @@
+Deberes y obligaciones de los usuarios
+Artículo 4º—El presente reglamento tiene la finalidad de establecer y definir los deberes y obligaciones de todas las personas que visiten el paradero Turístico Monte de la Cruz, Deberes y obligaciones que fiscalizara la Municipalidad, institución que tiene la potestad de dar recomendaciones y ejercer el control policial y regular el comportamiento de los usuarios del Paradero Turístico Monte de la Cruz.
+Todos los usuarios o Visitantes estarán obligados a aceptar las recomendaciones o llamado s de atención que le hagan el Policía Municipal del Paradero Turístico del Monte de la Cruz y sus funcionarios.
