@@ -1,1 +1,2 @@
-Artículo 69.— Con base en los informes mensuales que el Banco deben entregar al AFE, esta deberá elaborar los mecanismos de monitoreo que permitan prever siniestros, suspender parcial o totalmente el otorgamiento de nuevos avales, llevar un control estadístico y asegurar el cumplimiento de los objetivos del FAVI.
+Artículo 69.
+Con base en los informes mensuales que el Banco deben entregar al AFE, esta deberá elaborar los mecanismos de monitoreo que permitan prever siniestros, suspender parcial o totalmente el otorgamiento de nuevos avales, llevar un control estadístico y asegurar el cumplimiento de los objetivos del FAVI.

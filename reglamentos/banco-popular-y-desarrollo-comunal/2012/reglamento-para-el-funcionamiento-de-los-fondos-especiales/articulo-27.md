@@ -1,2 +1,3 @@
-*Artículo 27.—Plazos de los préstamos. El plazo se definirá de conformidad con el tipo de garantía y será fijado mediante lineamientos emitidos por la Gerencia General Corporativa. El plazo máximo de los créditos es de hasta 240 meses.
-* Este artículo fue modificado por la Junta Directiva Nacional en sesión 5318 del 20 de octubre del 2015. Publicado en La Gaceta No. 233 del 01 de diciembre de 2015.
+Artículo 27.
+Plazos de los préstamos.
+El plazo se definirá de conformidad con el tipo de garantía y será fijado mediante lineamientos emitidos por la Gerencia General Corporativa. El plazo máximo de los créditos es de hasta 240 meses.
