@@ -1,0 +1,2 @@
+ARTÍCULO 5º -AUTORIZACIÓN EXCEPCIONAL PARA EL USO DE LAS EMBARCACIONES.
+La Presidencia Ejecutiva, por medio de convenio, será quien autorice formalmente el uso de las embarcaciones para asuntos institucionales, interinstitucionales u oficiales que sean empleadas fuera de la Zona Económica Exclusiva, lo anterior deberá de ser realizado atendiendo la normativa interna utilizada por el INA para la elaboración de Convenios.

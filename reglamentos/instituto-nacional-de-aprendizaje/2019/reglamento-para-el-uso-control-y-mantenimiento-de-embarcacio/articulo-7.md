@@ -1,0 +1,2 @@
+ARTÍCULO 7º - USO DE MATRÍCULA Y DISTINTIVOS OFICIALES.
+Todas las embarcaciones propiedad del INA deberán tener impregnado en forma permanente y visible los requisitos establecidos en la normativa de la Dirección Nacional de Seguridad Marítima del MOPT, de acuerdo con la autonomía de cada una de ellas, además del distintivo “Uso Oficial del INA” según lo indicado en el Manual de Imagen Gráfica del INA.

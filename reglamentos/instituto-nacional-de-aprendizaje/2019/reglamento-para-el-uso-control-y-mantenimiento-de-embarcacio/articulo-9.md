@@ -1,0 +1,2 @@
+ARTICULO 9º - EQUIPO CON QUE DEBEN DE CONTAR LAS EMBARCACIONES.
+Las embarcaciones del INA deberán cumplir con todos los requisitos que de conformidad con la autonomía propia de cada embarcación solicita la Dirección de Navegación y Seguridad de la División Marítimo Portuaria del Ministerio de Obras Públicas y Transportes para la obtención del Certificado de Navegabilidad, (Reglamento de Inspección para Embarcaciones Nacionales, N° 19081-MOPT).
