@@ -1,0 +1,1 @@
+Artículo 2°—El “Día Nacional del Simulacro “se conmemorará mediante la ejecución de un ejercicio práctico de evacuación que simule el comportamiento esperado de la población ante una emergencia por sismo u otro tipo de amenazas Todas las acciones necesarias para su planificación y realización serán consideradas de interés público.
