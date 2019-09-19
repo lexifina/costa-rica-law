@@ -14,3 +14,4 @@ Reglamento para la regulación del tiempo efectivo que los medios radiofónicos 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-02-15 | la propia norma |
+| 2 | 2019-09-19 | Decreto TSE 17 (2019-09-19) |
