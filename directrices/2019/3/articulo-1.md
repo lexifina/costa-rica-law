@@ -11,10 +11,10 @@ En aras de dar cumplimiento a lo establecido por el Tribunal Registral Administr
 • Nombre y dirección del apoderado en el país, cuando el solicitante no tenga domicilio ni establecimiento mercantil real y efectivo en el país.
 • La marca cuya declaratoria de notoriedad se solicite, cuando se trate de una marca denominativa sin grafía, forma ni color especial.
 • Consignar la dirección exacta del establecimiento fabril, comercial o de servicios e indicar el país de origen del distintivo solicitado.
-• Una reproducción de la marca que se pretende sea reconocida como notoria cuando se trate de marcas denominativas con grafía, forma o color especial, o de marcas figurativas, mixtas
-o tridimensionales, con color o sin él.
+• Una reproducción de la marca que se pretende sea reconocida como notoria cuando se trate de marcas denominativas con grafía, forma o color especial, o de marcas figurativas, mixtas o tridimensionales, con color o sin él.
 • Una lista de los nombres de los productos o servicios para los cuales se usa la marca, agrupados por clases según la clasificación internacional de productos y servicios de Niza, con la indicación del número de clase.
-• El comprobante de pago de cincuenta dólares estadounidenses.
+• El comprobante de pago de dos mil colones (2.000,00) en timbres de Registro Nacional.
+(Así reformado el punto anterior por directriz DPI-0004-2019 del 19 de setiembre de 2019)
 • Medio para recibir notificaciones.
 De no haberse cumplido alguno de los requisitos anteriores establecidos de conformidad con el artículo 9 de la Ley de Marcas, el Registro de la Propiedad Industrial notificará al solicitante para que subsane en el plazo de quince días hábiles a partir de la notificación correspondiente, bajo el apercibimiento de tenerse por abandonada la gestión, de conformidad con lo que establece el artículo 13 del mismo cuerpo normativo.
 Además de cumplir con los requisitos formales antes señalados, el solicitante debe aportar prueba para evaluar si la marca cumple con los criterios para reconocer la notoriedad del artículo 45 de la Ley de Marcas y la recomendación conjunta Nº 833, de setiembre de 1999, de la OMPI y la Asamblea de la Unión de París, incorporada al artículo 44 de la Ley de Marcas.

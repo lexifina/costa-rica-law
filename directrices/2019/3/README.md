@@ -14,3 +14,4 @@ Procedimiento que se debe cumplir para declarar una marca notoria
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-08-07 | la propia norma |
+| 2 | 2019-09-19 | Directriz 4 (2019-09-19) |
