@@ -1,0 +1,6 @@
+MUNICIPALIDAD DE PÉREZ ZELEDÓN
+CONCEJO MUNICIPAL
+La Municipalidad de Pérez Zeledón comunica que, mediante acuerdo tomado por el Concejo Municipal, en sesión ordinaria Nº 175-2019 acuerdo 07), celebrada el 03 de setiembre de 2019, se aprobó publicar por segunda vez de forma íntegra y completa la reforma del artículo 06 del Reglamento de Permisos de Construcción de la Municipalidad de Pérez Zeledón para que se introduzca un inciso “f)”, y que indique lo siguiente:
+Artículo 6º—inciso f) En caso de presentarse una solicitud de permiso para construir, y el predio no se encuentre inscrito, deberá el administrado cumplir con los siguientes requisitos:
+● La declaración jurada de tres testigos, vecinos del cantón donde se halle situado el inmueble, donde conste desde cuándo conocen la finca, si les consta que ha estado sometida por el titulante o por anteriores dueños a posesión durante un período continuo no inferior a 10 años, si esa posesión ha sido en forma pública, pacífica y en concepto de dueño y en qué actos ha consistido.
+● Una constancia emitida por la Asociación de Desarrollo Integral del lugar donde se encuentre el predio, en donde en igual sentido anterior, indiquen conocer el predio y su poseedor.
