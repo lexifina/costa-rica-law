@@ -1,0 +1,1 @@
+Artículo 5º—El MINAE gestionará las acciones necesarias, según el marco legal respectivo, para que el Sistema Nacional de Áreas de Conservación (SINAC) y la Secretaría Técnica Nacional Ambiental (SETENA) fortalezcan los procesos para garantizar la eficiencia y estandarización de los trámites y procedimientos para el desarrollo del sector forestal.

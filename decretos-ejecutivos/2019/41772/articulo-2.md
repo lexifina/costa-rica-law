@@ -1,0 +1,1 @@
+Artículo 2º—El Ministro de Ambiente y Energía (MINAE), en su calidad de órgano rector del sector forestal, emitirá los actos requeridos para el cumplimiento de lo definido en el artículo 1 de la presente directriz.
