@@ -1,1 +1,0 @@
-Transitorio II.—El Ministerio de Salud contará con el plazo máximo de seis meses contado a partir de la entrada en vigencia de este Reglamento para emitir los reglamentos específicos de funcionamiento de los diferentes consejos de asesoría y coordinación intrainstitucional.

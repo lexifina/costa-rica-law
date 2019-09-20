@@ -1,1 +1,0 @@
-Artículo 67.—Del nivel político-táctico de las Direcciones de Áreas Rectoras de Salud. El nivel político-táctico de las Direcciones de Áreas Rectoras de Salud está conformado por el Director del Área Rectora de Salud.

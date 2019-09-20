@@ -1,1 +1,0 @@
-Artículo 15.—Del Consejo Sectorial de Salud. El Consejo Sectorial de Salud está conformado por los jerarcas de las instituciones del Sector Salud. Le corresponde asesorar al Ministro de Salud en la formulación de las políticas del Sector Salud y en todos aquellos asuntos relacionados con el mejoramiento de la cobertura y calidad y de los servicios públicos de salud.

@@ -1,1 +1,0 @@
-Artículo 55.—De las Unidades de Atención al Cliente. Las Unidades de Atención al Cliente dependen orgánicamente de los Directores Regionales de Salud. Su objetivo consiste en ejecutar el proceso de Atención al Cliente.

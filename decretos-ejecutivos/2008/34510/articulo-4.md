@@ -1,2 +1,0 @@
-Artículo 4º—De los servicios de salud a cargo del Ministerio de Salud. Las actividades que mantenga el Ministerio como proveedor directo de servicios de salud se prestarán en condiciones de eficiencia, oportunidad y eficacia.
-(El párrafo segundo original fue derogado por el artículo 67 del Reglamento Orgánico de la Dirección Nacional de Centros de Educación y Nutrición de Centros Infantiles de Atención Integral, aprobado mediante decreto ejecutivo N° 37270 del 27 de junio de 2012)

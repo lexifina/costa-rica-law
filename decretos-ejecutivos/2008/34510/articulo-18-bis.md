@@ -1,2 +1,0 @@
-Artículo 18 bis.- De la Secretaría Técnica de Salud Mental. La Secretaría Técnica de Salud Mental, es un órgano técnico, adscrito al despacho del Ministro de Salud, cuyo objetivo es abordar de forma integral el tema de salud mental desde la perspectiva del ejercicio de la Rectoría del Sistema Nacional de Salud, con la participación de otras instituciones públicas y privadas, la sociedad civil organizada y la comunidad académica y científica.
-(Así adicionado por el artículo 1° del decreto ejecutivo N° 38968 del 23 de febrero de 2015)

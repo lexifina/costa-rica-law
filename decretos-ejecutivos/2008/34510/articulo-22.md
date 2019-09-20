@@ -1,4 +1,0 @@
-Artículo 22.—Del Consejo de Gestión Regional de Rectoría de la Salud. El Consejo de Gestión Regional de Rectoría de la Salud es coordinado por el Director General de Salud y constituye la instancia formal de asesoría y coordinación entre el nivel central y el nivel regional. Le corresponde colaborar con formulación de los lineamientos estratégicos para el nivel regional, acorde con las políticas y prioridades definidas por el Ministro de Salud, y con la definición, seguimiento y evaluación del accionar de la Institución a nivel regional. Además, en esta instancia, se comunican asuntos clave y, en general, se facilita la integración de los esfuerzos regionales para contribuir con el logro del marco estratégico institucional.
-El Consejo de Gestión Regional de la Rectoría la Salud está integrado por:
-a) El Director General de Salud.
-b) Los Directores Regionales de Rectoría de la Salud.
