@@ -1,0 +1,2 @@
+ARTÍCULO 10.- Principio de interdicción de la arbitrariedad.
+Las resoluciones del Tribunal de Honor, de la Junta Directiva y de cualquier otro órgano del Colegio competente para el ejercicio de la potestad disciplinaria, deberán ser debidamente motivadas y fundarse en elementos fácticos y jurídicos que permitan desvirtuar la presunción de inocencia y garantiz.ar el derecho de defensa del profesional denunciado.

@@ -1,0 +1,1 @@
+ARTÍCULO 23.- La denuncia se deberá presentar ante la oficina de recepción de documentos de la Junta Directiva, en horas y días hábiles. Se hará constar, mediante leyenda o razón de la hora, día, nombre y firma del funcionario que la recibe. Para tal efecto, se utilizará un sello que se colocará en el frente y reverso de la página, con fecha, hora y registro de recibido.

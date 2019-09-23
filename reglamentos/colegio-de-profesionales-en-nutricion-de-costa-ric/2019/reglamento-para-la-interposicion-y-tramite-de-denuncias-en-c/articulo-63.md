@@ -1,0 +1,1 @@
+ARTÍCULO 63.- Recibido el escrito de apelación, y estando dentro de los términos indicados en el artículo anterior, la Junta Directiva realizará una sesión extraordinaria para conocer única y exclusivamente el recurso de apelación.

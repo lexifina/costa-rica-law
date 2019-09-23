@@ -1,0 +1,1 @@
+ARTÍCULO 2.- Las denuncias interpuestas contra miembros del Colegio de Profesionales en Nutrición deberán seguir los procedimientos definidos en este Reglamento, el cual deberá ser observado por los interesados, así como por los órganos, departamentos o funcionarios del Colegio que intervengan en la tramitación de las denuncias.

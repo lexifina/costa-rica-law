@@ -1,0 +1,1 @@
+ARTÍCULO 20.- La Junta Directiva ordenará a la Fiscalía llevar a cabo la investigación preliminar, a efectos de determinar el mérito o no de la denuncia y, con ello, su traslado o no al Tribunal de Honor.

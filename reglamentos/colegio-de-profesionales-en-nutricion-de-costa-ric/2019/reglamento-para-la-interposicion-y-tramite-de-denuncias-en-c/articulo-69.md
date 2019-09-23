@@ -1,0 +1,1 @@
+ARTÍCULO 69.- Este Reglamento deroga cualquier otra disposición normativa o reglamentaria que se le oponga, en particular el Reglamento para la Interposición y Trámite de Denuncias, publicado en la Gaceta N.º 109 del 06 de junio de 2012, vigente hasta antes de la publicación de este reglamento.

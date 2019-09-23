@@ -1,0 +1,1 @@
+ARTÍCULO 40.- El interesado que no esté de acuerdo con la resolución de la Junta Directiva de archivar la denuncia, podrá interponer el recurso de apelación ante ese mismo órgano. Lo resuelto por la Junta Directiva da por agotada la vía administrativa.

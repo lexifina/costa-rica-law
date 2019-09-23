@@ -1,0 +1,1 @@
+ARTÍCULO 21.- En caso de ser pertinente la denuncia, con base en la investigación preliminar realizada por la Fiscalía, la Junta Directiva la remitirá al Tribunal de Honor, el cual fungirá como órgano director y decisor encargado de realizar la instrucción del procedimiento administrativo y el dictado de la resolución final.
