@@ -1,0 +1,1 @@
+Artículo 64: el profesional en Nutrición que participe en alguno de los órganos, consejos o comisiones adscritos al Colegio, debe presentar los informes que sean solicitados por la Junta Directiva y ajustarse a los mecanismos y procedimientos internos de control administrativo.

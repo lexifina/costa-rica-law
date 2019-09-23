@@ -1,0 +1,1 @@
+Artículo 15: el profesional en Nutrición debe denunciar las faltas a las leyes, a los reglamentos y normas vigentes, cuando sean contrarias al ejercicio de la profesión por parte de un colegiado; así como acciones que sean perjudiciales para el paciente o cliente. Si no se realiza la denuncia, se considera un acto de complicidad y deslealtad al Colegio.

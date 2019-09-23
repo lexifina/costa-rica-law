@@ -1,0 +1,1 @@
+Artículo 126: el profesional en Nutrición nunca deberá manipular resultados para favorecer materiales o equipos propios o de fabricantes, aun cuando estos apoyen la investigación con incentivos económicos.

@@ -1,0 +1,1 @@
+Artículo 48: el profesional en Nutrición no cometerá intrusismo en el ejercicio de actividades propias de otras disciplinas. Deberá respetar el campo de acción y las funciones propias de los otros profesionales con los que se relacione realizando sus labores acordes con sus competencias y alcances.

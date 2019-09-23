@@ -1,0 +1,1 @@
+Artículo 67: el profesional en Nutrición que integre alguno de los órganos, consejos o comisiones adscritos al Colegio, deberá demostrar respeto y sentido de solidaridad con los miembros de su grupo de trabajo u otros afines.

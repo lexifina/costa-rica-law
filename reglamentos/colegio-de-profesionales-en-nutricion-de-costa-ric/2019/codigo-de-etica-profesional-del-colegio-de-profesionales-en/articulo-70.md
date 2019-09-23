@@ -1,0 +1,6 @@
+Artículo 70: la información amparada por el secreto profesional solo podrá ser trasmitida en los siguientes casos, si se incumple alguno de ellos es una falta a la ética:
+a) Para evitar un grave riesgo al que pueda estar expuesta la persona usuaria o a terceras personas como, por ejemplo, para protección de la vida y seguridad de las personas. En este caso, solo se podrá entregar la información a las personas e instancias estrictamente necesarias, de las que deba valerse para cumplir el referido objetivo.
+b) Cuando una persona usuaria haya recibido algún servicio por parte de un profesional en Nutrición y denuncie a tal profesional. En estos casos, la denuncia por parte de la persona usuaria exime al profesional en Nutrición denunciado de guardar el secreto profesional si hubiera un proceso disciplinario.
+c) Cuando medie autorización previa y por escrito de la persona usuaria especificando los motivos para autorizar el levantamiento del secreto profesional.
+d) Cuando se presente denuncia penal o denuncia civil en contra del profesional en Nutrición, pero para su defensa el profesional deba recurrir a información brindada bajo secreto profesional.
+e) En caso de investigación disciplinaria en la sede del Colegio, ya sea ante la Fiscalía o ante el Tribunal de Honor.

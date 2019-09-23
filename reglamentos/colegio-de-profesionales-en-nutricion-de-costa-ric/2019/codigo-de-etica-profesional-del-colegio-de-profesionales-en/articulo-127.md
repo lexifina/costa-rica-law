@@ -1,0 +1,1 @@
+Artículo 127: el profesional en Nutrición deberá analizar, de manera particular, todos y cada uno de los estudios que propone, además de realizar la investigación correspondiente para evitar lesionar la dignidad humana. Deberá especialmente tener rigor científico en el diseño de protocolos y el análisis de resultados, así como en la interpretación de estos.

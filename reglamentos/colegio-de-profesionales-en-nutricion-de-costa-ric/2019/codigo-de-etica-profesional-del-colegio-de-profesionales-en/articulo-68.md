@@ -1,0 +1,1 @@
+Artículo 68: el profesional en Nutrición tiene el deber de tratar con respeto y consideración a los integrantes de la Junta Directiva, Tribunal de Honor, Fiscalía, Tribunal Electoral, demás consejos, comisiones y personal administrativo del Colegio.

@@ -1,0 +1,2 @@
+CAPÍTULO IV. Responsabilidad en la práctica profesional
+Artículo 10: el profesional en Nutrición deberá ejercer sus funciones procurando el mejor desempeño, buscando siempre alcanzar la excelencia, eficiencia y eficacia en su ejercicio laboral, con responsabilidad y asertividad, actuando en estricto apego a la lex artis profesional. Deberá observar, tanto en su ejercicio profesional como fuera de este, una conducta acorde con el honor y la dignidad de su profesión.

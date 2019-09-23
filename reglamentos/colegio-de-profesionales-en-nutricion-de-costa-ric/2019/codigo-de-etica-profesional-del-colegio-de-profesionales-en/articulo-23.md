@@ -1,0 +1,1 @@
+Artículo 23: el profesional en Nutrición deberá mostrar claridad en el ejercicio de su profesión respecto de los objetivos, métodos, procedimientos, honorarios, horarios y cualquier otro dato que considere pertinente de acuerdo con la naturaleza del servicio que realice.

@@ -1,0 +1,1 @@
+Artículo 77: cualquier profesional en Nutrición que ejerza la docencia, tiene la obligación de mantenerse actualizado y procurará facilitar mediante técnicas y metodologías didácticas innovadoras los conocimientos propios de la disciplina, de una forma objetiva y basada en la evidencia.

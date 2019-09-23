@@ -1,0 +1,1 @@
+Artículo 88: el profesional en Nutrición se abstendrá de ofrecer o aceptar condiciones de pago parcial por sus servicios, las cuales impliquen la desvalorización de la profesión y competencia desleal. Los honorarios no están supeditados al éxito del tratamiento o a un determinado resultado.

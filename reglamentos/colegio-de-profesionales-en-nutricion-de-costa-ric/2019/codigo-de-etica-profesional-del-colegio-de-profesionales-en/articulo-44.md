@@ -1,0 +1,1 @@
+Artículo 44: cuando el paciente, bajo su derecho de solicitar una segunda opinión, consulte al profesional en Nutrición, este no debe expresar o comentar al paciente, a sus familiares o responsable legal, opiniones desfavorables sobre el tratamiento dietoterapéutico emitido anteriormente, tendientes a difamar o disminuir la confianza en el profesional en Nutrición tratante.

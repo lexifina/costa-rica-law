@@ -1,0 +1,1 @@
+Artículo 114: el profesional en Nutrición no debe utilizar los medios de comunicación masiva para denigrar u ofender a miembros del Colegio de Profesionales en Nutrición, a los miembros de la Junta Directiva, Fiscalía, Tribunal de Honor, Tribunal Electoral, personal administrativo del Colegio o cualquier otro grupo o comisión.

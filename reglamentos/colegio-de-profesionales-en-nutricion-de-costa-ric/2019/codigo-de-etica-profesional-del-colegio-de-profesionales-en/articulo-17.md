@@ -1,0 +1,1 @@
+Artículo 17: el profesional en Nutrición que se desempeña en las diferentes áreas de trabajo: clínica, industria alimentaria, servicio de alimentos, visita nutricional, docencia, investigación y áreas afines a la Nutrición deberá brindar un servicio seguro y de calidad.

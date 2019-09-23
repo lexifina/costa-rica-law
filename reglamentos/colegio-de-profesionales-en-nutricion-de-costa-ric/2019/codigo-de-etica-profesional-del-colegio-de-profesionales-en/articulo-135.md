@@ -1,0 +1,1 @@
+Artículo 135: cuando medie la suspensión en el ejercicio profesional, comenzará a regir un día después de su publicación en el Diario Oficial La Gacela. Vencido el plazo de la sanción, el profesional en Nutrición quedará habilitado para reanudar el ejercicio profesional.

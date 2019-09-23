@@ -1,0 +1,2 @@
+CAPÍTULO VII. Deberes con otros profesionales
+Artículo 47: el trato del profesional en Nutrición para con otros profesionales, se guiará por las relaciones de respeto mutuo, cortesía, colaboración y tolerancia, especialmente cuando forme parte de un equipo multidisciplinario, buscando siempre intereses comunes en pro del bienestar del paciente o cumplimiento de los objetivos del equipo. En la promoción de productos de interés sanitario relacionados con la Nutrición brindará información veraz, en apego a la evidencia científica.

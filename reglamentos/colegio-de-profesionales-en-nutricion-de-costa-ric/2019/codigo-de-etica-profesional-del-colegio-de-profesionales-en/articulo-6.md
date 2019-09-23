@@ -1,0 +1,2 @@
+CAPÍTULO m. Consideraciones generales
+Artículo 6: este Código de Ética Profesional se aplicará obligatoriamente a todos los profesionales en Nutrición, que se encuentran debidamente incorporados a este Colegio, que laboren en el territorio nacional y se desempeñen en las diferentes actividades del campo de la ciencia de la Nutrición. Se incluyen aquellos extranjeros que, debido a tratados o convenios internacionales, puedan ejercer la profesión en nuestro país, de forma ocasional, temporal o permanente.

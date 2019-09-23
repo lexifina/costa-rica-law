@@ -1,0 +1,1 @@
+Artículo 72: el profesional en Nutrición que tiene acceso a la información contenida en el expediente clínico en los servicios de salud solo podrá compartirla con fines dietoterapéuticos legítimos exclusivamente, omitiendo los datos personales del paciente.

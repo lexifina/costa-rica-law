@@ -1,0 +1,1 @@
+Artículo 99: la publicidad utilizada por el profesional en Nutrición deberá ser objetiva, veraz y ética, sin utilizar técnicas o recursos con el propósito de obtener clientela y que vayan en desmérito del gremio; o bien, ofrecer promociones o regalías que irrespeten los honorarios por servicios profesionales en Nutrición vigente.

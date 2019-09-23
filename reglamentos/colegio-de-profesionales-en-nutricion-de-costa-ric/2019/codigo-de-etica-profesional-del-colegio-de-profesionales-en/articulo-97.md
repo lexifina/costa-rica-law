@@ -1,0 +1,1 @@
+Artículo 97: el profesional en Nutrición no publicitará procedimientos de diagnóstico o de tratamiento nutricional, cuya efectividad y seguridad no sea reconocida por la comunidad científica, o bien, no corresponda a directrices de organismos nacionales e internacionales de referencia.

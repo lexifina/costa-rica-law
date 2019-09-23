@@ -1,0 +1,1 @@
+Artículo 7: todo profesional en Nutrición tendrá los mismos derechos y deberes. No podrá alegar el desconocimiento de la Ley Orgánica del Colegio, así como de los reglamentos, protocolos sobre buenas prácticas en el ejercicio de la profesión, este Código de Ética Profesional y cualquier otra normativa que rija el ejercicio de la profesión.

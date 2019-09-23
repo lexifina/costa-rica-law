@@ -1,0 +1,1 @@
+Artículo 90: si el profesional en Nutrición ostenta la calidad de contratante, debe realizar el pago de los servicios, respetando el Arancel de Honorarios por Servicios Profesionales en Nutrición vigente o, en su defecto, lo estipulado por el ordenamiento jurídico costarricense.

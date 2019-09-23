@@ -1,0 +1,1 @@
+Artículo 103: en la publicidad de sus servicios, el profesional en Nutrición no podrá descalificar a otros colegas o profesionales de otras áreas de la salud, ni utilizará términos peyorativos u ofensivos que los desprestigien.

@@ -1,0 +1,1 @@
+Artículo 8: para el ejercicio de la profesión, el profesional en Nutrición debe apegarse a las normas, los procedimientos y las técnicas consignados en este Código y en ninguna circunstancia puede delegar sus funciones excediendo lo establecido por el Colegio en la reglamentación correspondiente.

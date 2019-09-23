@@ -1,0 +1,1 @@
+Artículo 121: cuando el profesional en Nutrición haga una publicación científica, deberá hacerlo a través de los medios apropiados para ese fin; no debe manipular los datos estadísticos o desvirtuar su interpretación.

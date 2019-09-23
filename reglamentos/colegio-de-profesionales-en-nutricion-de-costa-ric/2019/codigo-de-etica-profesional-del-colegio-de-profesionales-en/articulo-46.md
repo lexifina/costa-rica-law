@@ -1,0 +1,1 @@
+Artículo 46: el profesional en Nutrición como propietario, socio o director de empresas o instituciones prestatarias de servicios de salud, de alimentos y de nutrición, no debe aprovecharse, ni explotar el trabajo de otros colegas.

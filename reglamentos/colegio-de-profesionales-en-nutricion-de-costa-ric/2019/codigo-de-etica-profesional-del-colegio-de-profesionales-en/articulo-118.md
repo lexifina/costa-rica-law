@@ -1,0 +1,1 @@
+Artículo 118: el profesional en Nutrición deberá informar claramente, mediante el consentimiento informado, los objetivos y alcances, respetando los derechos humanos del individuo que será parte de la investigación.

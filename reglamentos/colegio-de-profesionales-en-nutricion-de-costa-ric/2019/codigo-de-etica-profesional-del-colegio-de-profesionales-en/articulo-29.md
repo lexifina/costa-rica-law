@@ -1,0 +1,1 @@
+Artículo 29: el profesional en Nutrición no debe aceptar u ofrecer comisiones, dádivas, sobornos u otro tipo de compensación y beneficio a terceros para influenciar en la toma de decisiones o actividades profesionales.

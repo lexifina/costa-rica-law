@@ -1,0 +1,1 @@
+Artículo 112: el profesional en Nutrición que utilice las redes sociales, se abstendrá de emitir criterios o dar diagnósticos que sean ajenos a su área de conocimiento y, además, remitirá a la persona al profesional que corresponda.

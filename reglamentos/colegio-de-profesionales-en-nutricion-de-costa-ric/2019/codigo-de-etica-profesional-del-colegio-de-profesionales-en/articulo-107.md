@@ -1,0 +1,1 @@
+Artículo 107: el profesional en Nutrición, cuando divulgue información o dicte conferencias, lo hará respaldado por evidencia científica y sustentado por referencias bibliográficas o estudios científicos que así lo demuestren.

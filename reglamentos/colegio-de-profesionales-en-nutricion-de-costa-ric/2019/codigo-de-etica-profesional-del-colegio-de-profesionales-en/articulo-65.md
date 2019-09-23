@@ -1,0 +1,1 @@
+Artículo 65: el profesional en Nutrición no tomará ventaja de algún puesto público o privado para descalificar u obstaculizar la función del Colegio, con respecto a la vigilancia y fiscalización del ejercicio de la profesión.

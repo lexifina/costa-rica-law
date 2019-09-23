@@ -1,0 +1,1 @@
+Artículo 109: en el caso de que el profesional en Nutrición emita declaraciones u opiniones en diferentes medios de comunicación y redes sociales, este deberá poseer la formación científica requerida para su abordaje. Su actuación no deberá desprestigiar al Colegio, ni al gremio, ni ser fuente de confusión en un medio de auto propaganda.

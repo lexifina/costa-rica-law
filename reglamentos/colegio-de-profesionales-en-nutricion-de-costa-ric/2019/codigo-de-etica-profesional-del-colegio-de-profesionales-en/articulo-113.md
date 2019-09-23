@@ -1,0 +1,1 @@
+Artículo 113: el profesional en Nutrición debe garantizar la confidencialidad y seguridad de los datos personales, clínicos y de cualquier índole que el paciente le envíe por medios electrónicos, con motivo de una consulta nutricional.

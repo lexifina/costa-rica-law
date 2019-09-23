@@ -1,0 +1,1 @@
+Artículo 59: el profesional en Nutrición que participe en la formulación de políticas y estrategias alimentario-nutricionales, deberá contar con un nivel de experticia y compromiso que puedan representar un beneficio, principalmente para las poblaciones vulnerables.

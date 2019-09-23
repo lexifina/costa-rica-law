@@ -1,0 +1,1 @@
+Artículo 22: el profesional en Nutrición no fomentará o realizará actos de acoso laboral, hostigamiento sexual, exhibicionismo, degradación u otras que puedan causar perjuicio a terceros en las diferentes áreas de trabajo y su entorno.

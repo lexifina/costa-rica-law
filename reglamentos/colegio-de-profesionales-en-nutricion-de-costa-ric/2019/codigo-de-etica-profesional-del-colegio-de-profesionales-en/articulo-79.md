@@ -1,0 +1,1 @@
+Artículo 79: el profesional en Nutrición debe enaltecer el buen nombre de la profesión, durante todas las actividades académicas a su cargo, además debe promover la buena calidad y la excelencia en la docencia, investigación y acción social, incluyendo los valores y principios éticos y deontológicos.

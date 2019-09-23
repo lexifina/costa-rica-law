@@ -1,0 +1,1 @@
+Artículo 81: el profesional en Nutrición que ejerza la docencia deberá guardar el secreto profesional y confidencialidad cuando, durante las labores de docencia, investigación y acción social, deba referirse o ejemplificar con algún caso clínico u experiencia, adquiridos en otros centros de trabajo.

@@ -1,0 +1,2 @@
+CAPÍTULO ll. Principios bioéticos
+Artículo 2: principio de autonomía: los profesionales en Nutrición reconocen, respetan y legitiman la autonomía de todo humano para tomar sus decisiones en salud, con base en la racionalidad de un consentimiento válidamente informado, dentro del marco de los principios y valores éticos y morales que pueda sustentar. Los profesionales en Nutrición velarán porque nadie coacte externamente la voluntad de las personas, y les brindará protección cuando se encuentren en una situación vulnerable o tengan disminuida su autonomía.

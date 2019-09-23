@@ -1,0 +1,1 @@
+Artículo 54: el profesional en Nutrición deberá colaborar en la consecución de los objetivos de desarrollo sostenible referentes a la seguridad alimentaria, erradicación del hambre, promoción de los sistemas alimentarios sostenibles y preservación de la salud pública.

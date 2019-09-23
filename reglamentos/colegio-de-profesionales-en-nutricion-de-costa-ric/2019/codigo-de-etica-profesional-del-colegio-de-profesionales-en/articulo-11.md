@@ -1,0 +1,1 @@
+Artículo 11: el profesional en Nutrición tanto dentro del ejercicio de su profesión, como fuera de esta, y cuando tenga una posición de jefatura o empleador, no se expresará de forma insultante o peyorativa hacia ninguna otra persona.

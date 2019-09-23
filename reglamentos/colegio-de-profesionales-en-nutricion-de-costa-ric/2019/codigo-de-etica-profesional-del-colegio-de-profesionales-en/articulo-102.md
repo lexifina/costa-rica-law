@@ -1,0 +1,1 @@
+Artículo 102: en la publicidad en que participe el profesional en Nutrición, no deberá promover hábitos de alimentación no deseables, ni el consumo de alimentos que, consumidos de forma excesiva e inescrupulosa, pueden causar o precipitar problemas de salud.

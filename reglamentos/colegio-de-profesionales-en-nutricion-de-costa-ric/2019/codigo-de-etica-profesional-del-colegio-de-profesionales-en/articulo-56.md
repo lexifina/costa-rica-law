@@ -1,0 +1,1 @@
+Artículo 56: el profesional en Nutrición estará obligado a colaborar con las autoridades sanitarias del país, especialmente en aquellos períodos en que las circunstancias de emergencia o de peligro, para la salud de la población, requieran de la aplicación de medidas extraordinarias dictadas por dichas autoridades.

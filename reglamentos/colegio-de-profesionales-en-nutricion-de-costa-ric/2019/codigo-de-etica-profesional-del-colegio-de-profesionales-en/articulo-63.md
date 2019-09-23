@@ -1,0 +1,1 @@
+Artículo 63: el profesional en Nutrición que participe en alguno de los órganos, consejos, comisiones o equipo de trabajo, deberá ser ético, veraz y prudente en el manejo responsable de las redes sociales. No deberá emitir criterios personales como si fueran propios del Colegio.

@@ -1,0 +1,1 @@
+Artículo 119: el profesional en Nutrición no debe utilizar datos, información sin referencia del autor o sin su autorización expresa. Tampoco debe presentar como propias u originales, ideas o descubrimientos cuya autoría es ajena, a menos que haya innovado esa idea o descubrimiento.

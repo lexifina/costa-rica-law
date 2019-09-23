@@ -1,0 +1,1 @@
+Artículo 129: el profesional en Nutrición a cargo del monitoreo de un estudio clínico deberá reportar la totalidad de las reacciones adversas identificadas en las entrevistas a los pacientes y velar que toda la información recibida del paciente se documente en el expediente correspondiente, todo de conformidad con la legislación y reglamentación sobre la materia.

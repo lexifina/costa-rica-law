@@ -1,0 +1,1 @@
+Artículo 117: el profesional en Nutrición participará en investigaciones acreditadas bajo la legislación vigente emitida por el Ministerio de Salud y Consejo Nacional de Investigación en Salud (CONIS) y que no pongan en peligro la salud integral, la vida o el estado nutricional de la población.

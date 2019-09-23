@@ -1,0 +1,1 @@
+Artículo 26: el profesional en Nutrición que realice un acto profesional de forma apresurada, deficiente, negligente, imprudente, ignorante o con impericia, con el objeto de cumplir con una obligación administrativa, o por motivos personales, debe considerarse como una conducta contraria a la ética y por ende a este Código.

@@ -1,0 +1,1 @@
+Artículo 45: el profesional en Nutrición que ocupe cargos de jefatura propiciará, en todo momento, que sus colaboradores actúen dentro de los principios éticos, profesionales, administrativos, docentes y de investigación, priorizando la prestación idónea del servicio nutricional según su ámbito de ejercicio.

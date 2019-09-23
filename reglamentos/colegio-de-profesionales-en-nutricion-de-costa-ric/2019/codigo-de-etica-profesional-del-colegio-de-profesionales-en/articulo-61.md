@@ -1,0 +1,1 @@
+Artículo 61: el profesional en Nutrición está obligado a comparecer cuando fuera convocado por alguno de los órganos del Colegio, a excepción de que una causa justa y comprobable se lo impida. No será considerada causa excepcional la distancia entre el Colegio y el lugar de residencia o de trabajo.

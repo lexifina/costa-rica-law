@@ -1,0 +1,1 @@
+Artículo 89: el profesional en Nutrición deberá extender un comprobante de pago en su versión de factura electrónica que cumpla con los requerimientos legales vigentes en el país, correspondientes a las sumas recibidas producto de su servicio profesional en las diferentes áreas, debiendo especificar el concepto por el cual se recibe el pago.

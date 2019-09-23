@@ -1,0 +1,4 @@
+Artículo 78: el profesional en Nutrición que ejerza la docencia:
+a) No deberá impartir asignaturas o contenidos curriculares para los que no cuente con experiencia que lo respalde, ni impartir un número tan diverso de asignaturas del campo profesional que haga dudar de su seriedad como docente.
+b) No debe facilitar trámites indebidos para obtener créditos académicos de cualquier naturaleza, ni propiciar el facilismo académico, de modo que conceda títulos a personas que no hayan sido debidamente capacitadas o formadas.
+c) No deberá promover que estudiantes ejerzan la profesión ilegalmente a excepción cuando los estudiantes se encuentren realizando su práctica profesional quienes deben estar supervisados por un profesional en Nutrición. En caso de que el docente tenga conocimiento de que algún estudiante lo hace, deberá interponer la denuncia ante el del Colegio.

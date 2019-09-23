@@ -1,0 +1,2 @@
+CAPÍTULO VI. Deberes con los colegas
+Artículo 40: todo profesional en Nutrición debe velar por tener una adecuada relación con sus colegas, guiados por los valores, principios y deberes de respeto mutuo, cortesía, buena fe, buen trato, colaboración y solidaridad, sin distinción de posición o rango, aun cuando hayan surgido discrepancias. Será una falta a este Código que el profesional en Nutrición realice cualquier acto que atente contra el prestigio y el buen nombre, por razones de cualquier índole sean políticos, religiosos, raciales, socioeconómicos, entre otros.

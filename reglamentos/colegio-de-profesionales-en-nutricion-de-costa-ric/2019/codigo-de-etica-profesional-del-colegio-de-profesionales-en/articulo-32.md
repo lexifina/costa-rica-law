@@ -1,0 +1,1 @@
+Artículo 32: el profesional en Nutrición no puede prescribir o administrar medicamentos. El uso de nutrientes en dosis diferentes a la ingesta dietética recomendada para pacientes sanos o su condición fisiológica especial con efectos terapéuticos y metabólicos es considerado un medicamento.

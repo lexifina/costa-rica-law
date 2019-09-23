@@ -1,0 +1,1 @@
+Artículo 62: el profesional en Nutrición que sea nombrado en algún puesto de representación del Colegio deberá asumir su cargo con total entrega, responsabilidad, honradez y confidencialidad. No podrá aprovechar su condición dentro del Colegio para promover sus servicios profesionales, ni procurar beneficios o tratos diferenciados.

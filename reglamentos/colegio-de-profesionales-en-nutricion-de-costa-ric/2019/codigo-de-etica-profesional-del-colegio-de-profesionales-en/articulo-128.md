@@ -1,0 +1,1 @@
+Artículo 128: los resultados de la investigación científica serán utilizados para generar conocimientos y sustento técnico para establecer políticas públicas que no vayan en detrimento de la calidad de vida de la población.

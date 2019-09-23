@@ -1,0 +1,1 @@
+Artículo 94: el profesional en Nutrición no puede exigir el pago de honorarios por servicios profesionales no prestados. Se exceptúa esa norma, cuando haya acuerdo previo de las partes o bien que la no realización del servicio se deba a una circunstancia que escape de la responsabilidad y control del profesional.

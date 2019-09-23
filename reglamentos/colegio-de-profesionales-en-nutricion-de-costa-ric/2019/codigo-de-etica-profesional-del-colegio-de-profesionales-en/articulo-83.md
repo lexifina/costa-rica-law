@@ -1,0 +1,1 @@
+Artículo 83: el profesional en Nutrición se abstendrá de laborar en instituciones públicas y privadas de educación que no estén debidamente autorizadas por las instancias competentes y donde no se respete el monto mínimo fijado por el Colegio para la remuneración de la docencia, así como el salario mínimo fijado por la entidad correspondí ente.

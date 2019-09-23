@@ -1,0 +1,1 @@
+Artículo 93: el profesional en Nutrición podrá realizar promociones o descuentos en las consultas de nutrición, siempre y cuando el precio de esta no quede por debajo del monto mínimo establecido por el Arancel de Honorarios por Servicios Profesionales en Nutrición vigente.

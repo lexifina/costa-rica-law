@@ -1,0 +1,1 @@
+Artículo 76: el profesional en Nutrición debe establecer un clima de respeto y ecuanimidad con estudiantes, docentes y todo el personal de la institución educativa, durante su labor intra o extramuros.

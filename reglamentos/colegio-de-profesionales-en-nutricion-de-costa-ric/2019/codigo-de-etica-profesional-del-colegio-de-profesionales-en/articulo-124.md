@@ -1,0 +1,1 @@
+Artículo 124: el profesional en Nutrición no debe promover la investigación nutricional experimental en una comunidad, sin el previo conocimiento de esta, el consentimiento informado de los participantes, la aprobación de las autoridades competentes y que no atente contra la salud.

@@ -1,0 +1,1 @@
+Artículo 106: el profesional en Nutrición debe ser fiel reflejo y representante de la profesión de la Nutrición y se expresará con respeto hacia otro profesional, o hacia el gremio en general, en los medios de comunicación y redes sociales. Evitará actitudes insensibles, frívolas o poco acordes con las normas básicas de urbanidad, educación y respeto.

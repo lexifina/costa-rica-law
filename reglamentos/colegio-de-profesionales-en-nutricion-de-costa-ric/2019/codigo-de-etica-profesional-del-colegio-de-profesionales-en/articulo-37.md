@@ -1,0 +1,1 @@
+Artículo 37: el profesional en Nutrición respetará la autonomía, dignidad y el pudor del paciente o cliente, lo cual garantiza la privacidad de la atención, la integridad e intereses, así como la confidencialidad de sus datos, salvo en el caso de que lleguen a ser requeridos por la ley o la autoridad competente.

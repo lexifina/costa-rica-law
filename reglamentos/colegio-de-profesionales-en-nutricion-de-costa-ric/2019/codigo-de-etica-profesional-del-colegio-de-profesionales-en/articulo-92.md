@@ -1,0 +1,1 @@
+Artículo 92: el profesional en Nutrición podrá aplicar un descuento en los honorarios profesionales a los colegas que soliciten su atención clínica nutricional, lo cual se considera una buena práctica entre colegas. Este descuento aplica únicamente entre colegas. Esta modalidad no podrá desmeritar la calidad del servicio ofrecido.

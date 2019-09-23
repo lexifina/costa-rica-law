@@ -1,0 +1,1 @@
+Artículo 75: es responsabilidad de los directores de carrera de Nutrición de las universidades públicas o privadas velar por la idoneidad académica de los profesores que brindan cursos específicos de Nutrición, así como los tutores y asesores de proyectos finales de graduación.

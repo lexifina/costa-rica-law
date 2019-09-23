@@ -1,0 +1,1 @@
+Artículo 21: el profesional en Nutrición deberá utilizar siempre información verídica acerca de los títulos que posee y, a su vez, los que estén registrados como especialidad en este Colegio, así como respecto de su afiliación a instituciones y organizaciones.

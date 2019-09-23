@@ -1,0 +1,1 @@
+Artículo 80: el profesional en Nutrición deberá mostrar compromiso y seriedad en cuanto a las políticas internas de la institución educativa que realiza la contratación, dignificando la institución y se apegará a los lineamientos de este Código.

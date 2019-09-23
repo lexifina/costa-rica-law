@@ -1,0 +1,1 @@
+Artículo 28: el profesional en Nutrición tendrá la custodia del expediente clínico, cuando este labore por servicios profesionales de manera privada o ejerza liberalmente su profesión, en un consultorio privado. Cuando el profesional en Nutrición sea empleado directo de una organización, los expedientes clínicos serán custodiados por la entidad contratante.

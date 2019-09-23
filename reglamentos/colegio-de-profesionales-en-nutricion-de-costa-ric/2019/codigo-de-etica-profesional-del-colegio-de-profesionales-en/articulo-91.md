@@ -1,0 +1,1 @@
+Artículo 91: el profesional en Nutrición que realice funciones de acción social en crisis humanitarias o situaciones de emergencia que respondan a una directriz nacional no debe cobrar los honorarios correspondientes.

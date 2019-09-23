@@ -1,0 +1,1 @@
+Artículo 50: el profesional en Nutrición deberá suministrar a otros profesionales afines, la información pertinente, buscando siempre intereses comunes en pro del bienestar del paciente, cliente, empresa o proyecto del que participe.

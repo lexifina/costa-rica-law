@@ -1,0 +1,1 @@
+Artículo 58: el profesional en Nutrición deberá considerar como parte fundamental del quehacer de su desempeño, la promoción del estado nutricional óptimo y la alimentación saludable, la educación alimentaria nutricional y la prevención de enfermedades asociados a excesos o deficiencias nutricionales.
