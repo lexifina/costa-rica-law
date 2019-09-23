@@ -1,0 +1,2 @@
+Artículo 3.
+Se considera especialista al profesional en Nutrición quien reúna los reqms1tos de este reglamento y que esté inscrito en el Registro de Especialistas en Nutrición. Podrán anunciarse y ejercer como especialistas en una determinada área del ejercicio profesional en Nutrición, únicamente aquellos colegiados quienes estén debidamente inscritos en el Registro. Aquellos profesionales no inscritos en este Registro, y que se hagan pasar por especialistas o sugieran ser especialistas, podrán ser sujeto de una sanción, tal como lo indica el Código de Ética.

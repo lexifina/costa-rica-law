@@ -1,0 +1,2 @@
+Artículo 4.
+La condición de especialista en Nutrición no produce ningún privilegio con respecto al resto de los miembros del Colegio. Los colegiados especialistas están obligados a cumplir con todas las normas vigentes para el ejercicio de la profesión de la Nutrición.

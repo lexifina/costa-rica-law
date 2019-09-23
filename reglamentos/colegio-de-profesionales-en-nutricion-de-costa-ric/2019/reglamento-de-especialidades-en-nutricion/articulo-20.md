@@ -1,0 +1,2 @@
+Artículo 20.
+El Consejo de Especialidades procederá a revisar la solicitud y la documentación presentada por el colegiado. La solicitud que se presente incompleta no será estudiada por el Consejo y se le indicará al interesado que proceda a completarla, para ello se le otorga un plazo no mayor de diez días hábiles. Vencido el plazo sin tener respuesta del interesado, el Consejo procederá a denegar la solicitud e informará a la Junta Directiva.

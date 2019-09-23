@@ -1,0 +1,2 @@
+Artículo 8.
+Los miembros del Consejo de Especialidades en Nutrición durarán en sus funciones dos años y podrán ser reelegidos para periodos iguales, en forma sucesiva. Sesionarán ordinariamente una vez al mes, y extraordinariamente según las necesidades. La condición de miembro del Consejo será incompatible con cualquier puesto de la Junta Directiva, Tribunal de Honor y Tribunal Electoral y se perderá cuando se incurra en tres ausencias injustificadas continuas o alternas.
