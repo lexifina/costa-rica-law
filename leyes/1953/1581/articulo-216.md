@@ -1,1 +1,2 @@
-Artículo 216.—Exclusiones del Régimen Artístico. No estarán cubiertos por el presente título, los servidores que sean artistas pero sus labores no estén relacionadas directamente con la creación e interpretación de obras artísticas.
+Artículo 216.— Exclusiones del Régimen Artístico. No estarán cubiertos por el presente título, los servidores que sean artistas pero sus labores no estén relacionadas directamente al ejercicio de actividades de dirección, instrucción, promoción, producción, creación, interpretación y restauración de obras artísticas.
+(Así reformado por el artículo único aparte d) de la ley N° 9718 del 1° de agosto de 2019)
