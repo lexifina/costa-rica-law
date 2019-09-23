@@ -14,3 +14,4 @@ Reforma Reglamento Interno para la Operación de las Cajas Chicas y Caja General
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-08-28 | la propia norma |
+| 2 | 2019-09-23 | Reglamento 26 (2019-09-23) |
