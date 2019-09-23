@@ -17,3 +17,4 @@ Reglamento Interno para la Operación de las Cajas Chicas y Caja General del Ins
 | 2 | 2010-11-01 | Reglamento 36 (2010-11-01) |
 | 3 | 2012-05-11 | Ley 9036 |
 | 4 | 2019-07-01 | Reglamento 17 (2019-07-01) |
+| 5 | 2019-09-23 | Reglamento 26 (2019-09-23) |
