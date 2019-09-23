@@ -1,0 +1,1 @@
+TRANSITORIO II- La Dirección General de Servicio Civil emitirá nuevas resoluciones para reformar y actualizar el Manual Descriptivo de Clases Artísticas de acuerdo con lo estipulado en esta ley, en un tiempo no mayor a seis meses, a partir de su entrada en vigencia.
