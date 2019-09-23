@@ -1,0 +1,35 @@
+COLEGIO DE PROFESIONALES EN NUTRICIÓN
+REGLAMENTO ACADÉMICO Y DE RECERTIFICACIÓN PROFESIONAL
+INTRODUCCIÓN
+En uso de las facultades conferidas por el numeral 22, inciso e), de la Ley Orgánica del Colegio de Profesionales en Nutrición, Ley N.° 8676 del 18 de noviembre de 2008, publicada en el Diario Oficial La Gaceta del viernes 16 de enero de 2009 y según lo acordado en la Asamblea General extraordinaria del 10 de agosto de 2019;
+CAPÍTULO l. DEFINICIONES
+Artículo 1.
+Con el fin de facilitar la correcta interpretación de los términos utilizados en este reglamento se define como:
+Acreditación: metodología de evaluación que regula y eleva la calidad de las actividades de educación continua impartidas a las personas profesionales en Nutrición.
+Acreditar: dar fe, con base en criterios pedagógicos, didácticos y de utilidad para la profesión de Nutricionista, que una actividad educativa es digna de crédito e impartida por personas facultadas para tal fin.
+Actividad educativa: acciones teórico-prácticas planificadas y evaluadas en las que se difunde o profundiza un conjunto de contenidos temáticos, de acuerdo con los objetivos educativos planteados, en los dominios cognoscitivo, psicomotor y afectivo, dentro del proceso de enseñanza-aprendizaje. Estas pueden ser dentro o fuera de un aula, individual o grupal, de manera virtual, a distancia o alguna otra modalidad.
+Actividad educativa a distancia o en línea: proceso educativo planificado donde la relación docente-discente no se da en el mismo lugar.
+Actividad educativa presencial: proceso educativo planificado donde la relación docente-discente se da en el mismo tiempo y espacio.
+Actividad educativa de participación: proceso educativo planificado, presencial o a distancia donde el discente interactúa intelectualmente con el docente mediante foros, paneles, jornadas de reflexión, mesas redondas o congresos, sin que se realice una evaluación de conocimientos o prácticas.
+Actividad educativa de aprovechamiento: proceso educativo planificado, presencial o a distancia, donde el discente interactúa con el docente y se mide su aprendizaje mediante una evaluación de conocimientos o habilidades adquiridas.
+Artículo científico: comunicación por medios físicos o virtuales de los resultados de una investigación publicada en una revista especializada del campo de la nutrición bajo el formato de IMRYC (introducción, metodología, resultados y conclusiones).
+Colegio: Colegio de Profesionales en Nutrición de Costa Rica (CPNCR).
+Consejo Académico de Nutrición (CAN): grupo de profesionales en nutrición, que tiene a su cargo el proceso de acreditación de actividades educativas para la recertificación de los nutricionistas.
+Crédito: Unidad valorativa de las actividades de educación continua relacionadas con el campo de la nutrición, reconocidas como válidas para el Sistema de Recertifícación profesional en nutrición de acuerdo con la escala de acreditación vigente en el artículo 36 de este Reglamento.
+(Corregida la definición anterior mediante Fe de Erratas y publicada en La Gaceta N° 52 del 17 de marzo del 2020, página N° 80.)
+Unidad valorativa de las actividades de educación continua relacionadas con el campo de la nutrición, reconocidas como válidas para el Sistema de Recertificación profesional en nutrición de acuerdo con la escala de acreditación vigente en el artículo 34 de este Reglamento.
+Discente: persona que recibe la educación continua en áreas relacionadas con la Nutrición.
+Docente: persona que se dedica a desarrollar el proceso de enseñanza-aprendizaje.
+Documento: trabajo especializa.do del campo profesional, generado en instituciones públicas o privadas y sector académico o empresarial.
+Educación continua en el campo de la Nutrición: es una modalidad de capacitación profesional, planificada y evaluada para satisfacer las necesidades de actualización o perfeccionamiento de conocimientos, habilidades y prácticas acordes con el perfil profesional en Nutrición Humana, que permitan lograr una mejor inserción y desempeño laboral de las personas profesionales en esta ciencia y que fomenten la expansión y diversificación de sus servicios.
+Ente Proveedor de Educación Continua en Nutrición (EPECN): individuo, grupo, empresa, institución pública o privada, o cualquier otra organización legalmente constituida, debidamente avalada por el CAN para ofrecer diversas actividades de educación continua dirigidas a personas profesionales en Nutrición incorporadas al CPNCR.
+Evaluación del conocimiento o habilidades: acción de medir el grado de conocimiento o habilidades adquiridas por el discente durante la actividad educativa.
+Evaluación de la actividad educativa: asignación de puntaje basado en criterios de calidad técnica didáctica (materiales y métodos), innovación académica (actualización rigurosidad científica), pertinencia con la profesión y contextualización al quehacer en Nutrición Humana, que permitan alcanzar los objetivos del aprendizaje planteados.
+Exposición en actividades educativas presenciales: presentación con terminología científica propia de la disciplina, de manera clara, precisa y coherente de temas tradicionales o emergentes de la profesión de nutricionista.
+Homologación de actividades educativas ofrecidas por entes no inscritos al SRPN: reconocimiento que hace el CAN en casos calificados de actividades de educación continua relacionada con Nutrición que aportan conocimientos, habilidades y destrezas que enriquecen al nutricionista en su área de desempeño, pero que son impartidas por entes nacionales o internacionales que ro se encuentran inscritos como proveedores en el SRPN.
+Libro con editorial: presentación de un tema disciplinar porn1enorizado en capítulos o secciones, desde lo general a lo específico, con ilustraciones, esquemas y revisión bibliográfica exhaustiva, editado y avalado por un comité editorial.
+Pasantía profesional: práctica que implique la actualización de procedimientos o técnicas en cualquier área de la Nutrición Humana, realizada en un centro de prestigio y tutoreada por profesionales reconocidos, durante un periodo corto o mediano. Requiere de una certificación que relate el trabajo realizado.
+Publicaciones: difusión hacia la comunidad de profesionales e interesados, de determinada información del campo de la nutrición humana y elaborada, tanto de manera individual como en grupos.
+Recertificación profesional en Nutrición: es el acto por el cual el CPNCR reconoce que la persona profesional en Nutrición, previamente incorporada, mantiene actualizados sus conocimientos, habilidades y destrezas, conforme lo establece el SRPN.
+Sistema de Recertificación Profesional en Nutrición (SRPN): conjunto de normas y procedimientos técnico-administrativos para evaluar de manera estandarizada las actividades de educación continua conducentes a garantizar la actualización profesional de los miembros del CPNCR, que permitan la actualización y perfeccionamiento de su perfil profesional.
+Voto de calidad: facultad que tiene la persona que coordina el Consejo Académico de Nutrición para emitir doble voto en caso de empate.

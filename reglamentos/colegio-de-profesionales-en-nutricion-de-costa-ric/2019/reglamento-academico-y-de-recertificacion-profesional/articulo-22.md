@@ -1,0 +1,2 @@
+Artículo 22.
+Cada uno de los entes proveedores de actividades de educación continua en Nutrición será responsable de cumplir con la calidad académica de su actividad y llevar el control de asistencia de los participantes, así como respaldar la veracidad de los atestados y títulos académicos de los conferencistas. Además, debe aportar los recursos básicos, tanto de infraestructura como didácticos, de acuerdo con el número de participantes esperados.

@@ -1,0 +1,2 @@
+Artículo 42.
+Para obtener el reconocimiento de las actividades recertificables de educación continua en Nutrición, la persona profesional en Nutrición deberá presentar, anualmente, la solicitud de recertificación, utilizando el formulario y presentando el original y copia de los certificados y/o documentos que respalden su participación en dichas actividades. El CAN definirá la fecha límite de recepción de documentos para reconocimiento de las actividades recertificables de educación continua en Nutrición.

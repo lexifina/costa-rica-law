@@ -1,0 +1,2 @@
+Artículo 8.
+Créase el CAN con autoridad suficiente para avalar o denegar entes proveedores de actividades de educación continua en Nutrición, evaluar las actividades de capacitación brindadas a los agremiados, acreditar las actividades de educación continua y otorgar la recertificación profesional según el año y periodo correspondiente, además de ejercer todas las actividades relacionadas con el cumplimiento de sus fines.

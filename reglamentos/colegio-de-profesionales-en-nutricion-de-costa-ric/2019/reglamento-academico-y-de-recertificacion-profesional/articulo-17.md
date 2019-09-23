@@ -1,0 +1,2 @@
+Artículo 17.
+El cuórum del CAN lo constituyen tres miembros y los acuerdos se tomarán por mayoría simple de votos de los presentes. En caso de empate, quien ostente la coordinación del Consejo tendrá voto de calidad. En caso de ausencia de la persona coordinadora o de la responsable de la secretaria del CAN, estas serán sustituidas por los miembros presentes según antigüedad de pertenencia al Consejo.
