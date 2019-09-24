@@ -1,0 +1,1 @@
+Artículo 2º—Autorización para el registro de pozos perforados sin número y trámite de la concesión de aguas subterráneas. Se habilita a todas las personas físicas o jurídicas, públicas o privadas a inscribir los pozos que se hayan perforado sin autorización antes de abril de 2010 fecha de la última amnistía y solicitar la respectiva concesión de aprovechamiento de agua.

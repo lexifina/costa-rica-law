@@ -1,0 +1,1 @@
+Artículo 11°— De la resolución de la concesión de agua. Una vez completada toda la información por parte del interesado y realizada la verificación y control en campo, el MINAE resolverá de manera definitiva la solicitud de la concesión de agua de conformidad con los artÃ-culos 183,184 y 185 de Ley de Aguas NÂº 276 del 26 de agosto de 1942.

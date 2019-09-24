@@ -1,0 +1,1 @@
+Artículo 3º—Sujetos y ámbito de aplicación. Este reglamento se aplicará a todo sujeto de derecho público o privado que tenga un pozo sin inscribir en el Registro Nacional de Concesiones que administra la Dirección de Agua del Ministerio de Ambiente y Energía creado conforme artículo 18 Ley 276, Ley de Agua No. 276.

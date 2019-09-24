@@ -1,0 +1,5 @@
+Artículo 5°—Del Procedimiento de admisión y trámite. Las solicitudes deberán ser presentadas en las Oficinas Centrales o Regionales de la Dirección de Agua y otras que se habiliten para ello.
+De las solicitudes incompletas o contrarias a lo dispuesto en el presente reglamento, será informado el administrado por una única vez, para que complete los requisitos omitidos en la solicitud o el trámite o que aclare o subsane la información, otorgándole un plazo de diez días hábiles para completar o aclarar.
+Recibida y admitida la solicitud, la Dirección de Agua abrirá expediente.
+El solicitante del registro del pozo y concesión de agua, así como los profesionales que firmen estudios o documentos entregados como parte de la solicitud, deben estar al día con la Caja Costarricense del Seguro Social y el Ministerio de Hacienda, lo cual se verificará en línea por la Dirección de Agua al recibo de las solicitudes.
+La solicitud se pasará a audiencia al SENARA y AyA para que en el plazo de 10 días de notificado se pronuncien al respecto.
