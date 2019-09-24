@@ -1,5 +1,3 @@
 Artículo 11.—Cuando necesidades imperiosas del patrono lo requieran, el servidor (a) se encuentra en la ineludible obligación de laborar tiempo extraordinario hasta el máximo de tiempo permitido por la ley, salvo la negativa justificada presentada ante su jefe inmediato; so pena de considerarse la negativa injustificada como falta grave a la relación de servicio. En cada caso se comunicará a los servidores (as), con prudente anticipación, dentro del mismo día, la jornada extraordinaria que tengan que realizar.
 La jornada extraordinaria se pagará de conformidad con la legislación y reglamentación vigente sobre la materia.
-(*)Asimismo, el patrono estará facultado para otorgar tiempo acumulado compensatorio, como alternativa adicional y excepcional al pago de tiempo extraordinario, bajo el entendido que debe existir una necesaria proporcionalidad entre el tiempo compensado y el valor de la hora que se compensa.
-La compensación será procedente cuando existan limitaciones presupuestarias para efectuar el pago correspondiente y requerirá del consentimiento de las partes para su aplicación.”
-(*)(Así adicionados los párrafos anteriores mediante acuerdo N° 42 tomado en sesión N° 77 celebrada el 10 de octubre del 2007).
+(Así reformado mediante sesión ordinaria N° 068-2019 del 24 de setiembre del 2019)

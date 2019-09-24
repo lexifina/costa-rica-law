@@ -25,3 +25,4 @@ Reglamento Autónomo de Servicio de la Asamblea Legislativa
 | 10 | 2015-06-02 | Acuerdo 1 (2015-06-02) |
 | 11 | 2016-04-27 | Acuerdo 1 (2016-04-27) |
 | 12 | 2019-04-10 | Reglamento 43 (2019-04-10) |
+| 13 | 2019-09-24 | Reglamento 68 (2019-09-24) |
