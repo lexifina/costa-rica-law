@@ -20,3 +20,4 @@ Reglamento para el Trámite y el Pago de Horas Extra en la Asamblea Legislativa
 | 5 | 2016-02-16 | Acuerdo 8 (2016-02-16) |
 | 6 | 2017-10-17 | Acuerdo 3 (2017-10-17) |
 | 7 | 2018-02-06 | Reglamento 204 (2018-02-06) |
+| 8 | 2019-09-24 | Reglamento 68 (2019-09-24) |
