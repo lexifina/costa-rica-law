@@ -1,0 +1,1 @@
+Artículo 3º—Se elaborará inicialmente un cronograma asistencial por parte de las iglesias u organizaciones afiliadas al Programa PCC, en conjunto con el equipo Municipal, mismo que podrán modificarse previa coordinación entre las partes.

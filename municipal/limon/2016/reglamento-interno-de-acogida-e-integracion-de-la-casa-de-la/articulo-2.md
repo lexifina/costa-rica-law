@@ -1,0 +1,1 @@
+Artículo 2º—Las iglesias, instituciones, organizaciones, así como las personas físicas y jurídicas afiliadas al Programa PCC, otorgaran apoyo a las personas que llegan por su propio pie y soliciten el servicio únicamente en horario Diurno de 6:00 am a 6:00 pm, así mismo aceptará cualquier tipo de donación, tanto económica como en especie.

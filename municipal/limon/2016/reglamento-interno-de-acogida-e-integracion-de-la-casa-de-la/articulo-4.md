@@ -1,0 +1,1 @@
+Artículo 4º—La Municipalidad del Cantón Central de Limón, por medio de las unidades de Proyección Social, programará el desarrollo de espacios de apoyo productivo u otros, previa coordinación entre las partes y de acuerdo a la disponibilidad del equipo multidisciplinario.
