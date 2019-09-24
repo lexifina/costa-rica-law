@@ -14,3 +14,4 @@ Creación del mecanismo de gobernanza de los espacios marinos sometidos a la Jur
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-07-30 | la propia norma |
+| 2 | 2019-09-24 | Decreto Ejecutivo 41967 (2019-09-24) |
