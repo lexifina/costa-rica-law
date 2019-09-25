@@ -14,3 +14,4 @@ Reforma Fija criterios para cambios al capital mínimo de los bancos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-06-23 | la propia norma |
+| 2 | 2019-09-25 | Acuerdo 0 (2019-09-25) |
