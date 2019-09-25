@@ -14,3 +14,4 @@ Esquema de certificación para la producción de producto orgánico
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-10-03 | la propia norma |
+| 2 | 2019-09-25 | Acuerdo 0 (2019-09-25) |
