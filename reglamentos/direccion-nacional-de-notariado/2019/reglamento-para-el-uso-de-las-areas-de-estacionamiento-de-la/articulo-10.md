@@ -1,0 +1,11 @@
+Artículo 10.—Para la asignación de los 43 lugares en el área de estacionamiento por parte de la Jefatura Administrativa con autorización del Director Ejecutivo, se considerará lo siguiente:
+a) Se establecen las prioridades en el siguiente orden: miembros del Consejo Superior Notarial (CSN), Dirección Ejecutiva (DE), Jefaturas, Ley 7600, Espacios discrecionales y funcionarios.
+b) En la asignación de espacios se tomarán los siguientes criterios:
+Miembros del CSN: Los miembros del CSN tienen prioridad en el uso de los espacios designados para estacionamiento tanto para asistir a las Sesiones del Consejo como a las reuniones programadas o no programadas.
+Presidencia del Consejo Superior Notarial: Quien ejerza la Presidencia del CSN tendrá asignado siempre un espacio para estacionar en los lugares reservados para la DNN.
+Este espacio podrá ser utilizado de manera provisional mientras no se encuentre ocupado y deberá desocuparse de inmediato cuando así se requiera.
+Dirección Ejecutiva: El Director Ejecutivo tendrá asignado siempre un espacio para estacionar en los lugares reservados para la DNN.
+Jefaturas: Se toma en cuenta la jerarquía, sea que el ocupante del puesto esté en propiedad o en forma interina, y la de sus suplentes formalmente designados por la Jefatura y la Dirección Ejecutiva.
+Cumplimiento Ley 7600: Se tendrá reservados al menos dos espacios para el uso de las personas amparadas bajo la Ley de Igualdad de Oportunidades para las Personas con Discapacidad.
+Espacios discrecionales: Únicamente podrán ser autorizados por el Director Ejecutivo a su discreción y estarán sujetos a las mismas reglas de autorización y revocatoria.
+Funcionarios: Se tomará en cuenta, de manera prioritaria la antigüedad del funcionario en la DNN y última Evaluación del Desempeño con calificación mayor a 90 y que no haya sido sancionado disciplinariamente por la institución. En estos casos se deben cumplir ambos criterios. Cuando sobrevenga una calificación inferior del funcionario o una sanción disciplinaria, el permiso otorgado será revocado. En caso de que existan espacios suficientes, de forma excepcional, podrán también ser considerados los funcionarios con calificación superior a 85. No obstante, estos criterios serán revisados anualmente atendiendo a la demanda de espacios y la disponibilidad real.

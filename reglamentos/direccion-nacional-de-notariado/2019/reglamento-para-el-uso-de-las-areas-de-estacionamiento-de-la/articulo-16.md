@@ -1,0 +1,1 @@
+Artículo 16.—Los funcionarios que utilicen el estacionamiento, deberán portar el documento de identidad de la DNN y presentarlo en caso de ser requerido por los Oficiales de Seguridad asignados por la Administración del Edificio cuando ingresen o salgan con su vehículo del estacionamiento de la Institución.

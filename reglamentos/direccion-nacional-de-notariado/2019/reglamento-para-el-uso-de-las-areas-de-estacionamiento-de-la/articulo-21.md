@@ -1,0 +1,1 @@
+Artículo 21.—Para permitir el ingreso al parqueo del vehículo del visitante, el funcionario encargado de atender al visitante deberá, de previo, solicitar a la Jefatura Administrativa para que realice la coordinación y autorización con la Seguridad de la Administración del Edificio.

@@ -1,0 +1,1 @@
+Artículo 15.—Cuando algún usuario del parqueo no vaya a utilizar su espacio por cualquier razón y lapso de tiempo, deberá comunicarlo a la Jefatura de la Unidad Administrativa, la cual podrá ubicar temporalmente en ese lugar por un plazo definido a algún otro funcionario conforme a los criterios establecidos en el artículo 10.

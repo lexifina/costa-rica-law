@@ -1,0 +1,1 @@
+Artículo 18.—Cuando un vehículo deba ser retirado por una persona que no sea su dueño, el funcionario deberá comunicar dicha situación directamente a la Seguridad del Parqueo y solicitar que deje constancia de su autorización en la bitácora del oficial de seguridad, ya que la DNN se limita a dotar los espacios, pero el vehículo es responsabilidad del funcionario.
