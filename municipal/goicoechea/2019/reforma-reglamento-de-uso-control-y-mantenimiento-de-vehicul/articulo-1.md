@@ -1,0 +1,5 @@
+MUNICIPALIDAD DE GOICOECHEA
+El Concejo Municipal del cantón de Goicoechea en sesión ordinaria N° 36-19, celebrada el 16 de setiembre de 2019, artículo 13°, por unanimidad y con carácter firme se aprobó el Dictamen N° 054-19 de la Comisión de Asuntos Jurídicos, como se detalla a continuación:
+1. Ampliar el por tanto 2 del Dictamen 025-19 de la Comisión de Asuntos Jurídicos para que se derogue el artículo 5°, inciso 2 del actual Reglamento para el uso, control y mantenimiento de vehículos de la Municipalidad de Goicoechea, el cual a la letra dice:
+“El rotulado de la cabina anteriormente indicada, previa justificación de la alcaldía ante el Concejo Municipal requiriendo acuerdo, puede ser suprimido, mediando razones de inspecciones que deban realizar con los vehículos tanto pos funcionarios administrativos como miembros del Concejo Municipal, lo anterior será una excepción a lo dispuesto anteriormente pero cumpliendo en todo lo dispuesto en el punto 3 de este a parte”.
+2. Mantener incólume el resto del Reglamento para el uso control y mantenimiento de vehículos de la Municipalidad de Goicoechea.
