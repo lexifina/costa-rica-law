@@ -1,0 +1,1 @@
+Artículo 16.—El acceso no autorizado a información privada o confidencial por parte de funcionarios constituye una falta grave que puede desencadenar procesos disciplinarios cuyo resultado dependerá del impacto del incidente presentado.

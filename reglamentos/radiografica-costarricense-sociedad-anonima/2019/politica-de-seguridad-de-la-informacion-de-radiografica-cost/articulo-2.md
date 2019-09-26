@@ -1,0 +1,1 @@
+Artículo 2°—El Área de Seguridad y Continuidad será provisto de los recursos tanto financieros como humanos necesarios para la Gestión de la Seguridad de la Información de manera transversal en RACSA.

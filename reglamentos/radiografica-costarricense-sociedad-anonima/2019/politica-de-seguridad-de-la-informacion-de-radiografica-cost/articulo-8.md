@@ -1,0 +1,1 @@
+Artículo 8°—El Área de Seguridad y Continuidad definirá los roles y responsabilidades de la Gerencia General, directores, jefaturas, procesos y funcionarios involucrados en relación con la seguridad de la información.

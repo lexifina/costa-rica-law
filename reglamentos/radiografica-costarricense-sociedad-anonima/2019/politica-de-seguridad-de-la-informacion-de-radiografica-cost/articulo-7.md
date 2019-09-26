@@ -1,0 +1,1 @@
+Artículo 7°—La Dirección de Operaciones establecerá los mecanismos para proteger la información catalogada como confidencial ante terceros mediante declaratorias de confidencialidad, controles de seguridad y suscripción de convenios de confidencialidad en las relaciones comerciales o de otra índole con terceros. Para ello contarán con el acompañamiento de la Asesoría Jurídica.

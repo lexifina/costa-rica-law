@@ -1,0 +1,1 @@
+Artículo 10.—La Asesoría Jurídica brindará el acompañamiento necesario a la Dirección de Operaciones a fin de definir los mecanismos jurídicos necesarios para salvaguardar el uso de la información en la gestión con terceros y para resguardar la información confidencial.

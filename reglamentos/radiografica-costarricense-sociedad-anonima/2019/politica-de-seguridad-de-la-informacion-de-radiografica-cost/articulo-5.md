@@ -1,0 +1,1 @@
+Artículo 5°—La Dirección de Operaciones promoverá y mantendrá una cultura orientada a las mejores prácticas de seguridad de la información mediante la capacitación y concientización de los funcionarios de RACSA, para minimizar la ocurrencia de incidentes de seguridad de la información.
