@@ -1,0 +1,1 @@
+Artículo 16.—La Secretaria del Concejo Municipal llevará un registro electrónico con su respectivo respaldo, conteniendo las distinciones honoríficas otorgadas por el Concejo Municipal, con la fecha de otorgamiento, el número de acuerdo y sesión, así como un extracto de los considerandos en donde se indiquen las circunstancias que dieron mérito a dicha distinción.

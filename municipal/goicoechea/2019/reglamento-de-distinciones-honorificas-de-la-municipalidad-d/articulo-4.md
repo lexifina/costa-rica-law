@@ -1,0 +1,1 @@
+Artículo 4º—Recibida la propuesta de mención honorífica por parte del Concejo Municipal, el Presidente Municipal conformará una Comisión Especial para que dictamine y recomiende al Concejo Municipal lo pertinente, en un plazo no mayor a mes calendario.
