@@ -1,0 +1,1 @@
+Transitorio único.- Corresponderá al Ministerio de Ambiente y Energía coordinar la Comisión de Gobemanza Marina por un período de un año a partir de la entrada en vigencia de éste Decreto; vencido ese plazo, se procederá conforme con lo dispuesto en el artículo 3 ° de este Decreto.
