@@ -1,0 +1,1 @@
+Artículo 12.—En el formulario de liquidación de los gastos de viaje fuera del cantón de Barva debe desglosarse el importe que corresponda a desayuno, almuerzo, cena, hospedaje, gastos de transporte y otros gastos conexos, todas las erogaciones deberán estar contempladas en este Reglamento y ser debidamente justificadas.

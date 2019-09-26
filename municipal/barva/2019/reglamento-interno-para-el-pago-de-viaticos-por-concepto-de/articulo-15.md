@@ -1,0 +1,1 @@
+Artículo 15.—En el supuesto del artículo anterior, el o los funcionarios que hicieron la gira, presentarán una solicitud por escrito ante sus superiores, explicando la necesidad del gasto y presentando los comprobantes o facturas de respaldo.

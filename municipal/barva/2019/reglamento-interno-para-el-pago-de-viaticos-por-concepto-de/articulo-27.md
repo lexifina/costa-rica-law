@@ -1,0 +1,1 @@
+Artículo 27.—Este Reglamento rige a partir de su publicación en el Diario Oficial La Gaceta. Aprobado por el Concejo Municipal en su sesión ordinaria N° 28-2019, celebrada el día 20 de mayo del 2019. Este reglamento deroga todos los reglamentos de Viáticos y Transporte anteriormente publicados.
