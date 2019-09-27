@@ -1,0 +1,3 @@
+Artículo 27. —Informe de arqueos: El responsable del Fondo de Caja Chica, en consideración de las particularidades institucionales realizará un programa de revisiones y arqueos internos, para el fondo de caja chica. Al efecto, y cuando le sea solicitado, remitirá a la Jefatura la siguiente información:
+Informe con arqueos realizados con los anexos correspondientes, el cual deberá remitirse a la Jefatura por medio de oficio, firmado por el Responsable del fondo. Este informe se mantendrá disponible en caso de ser solicitado.
+Los arqueos que se realicen deberán contar con el nombre, firma y sello del Tesorero Institucional y el funcionario que realice el arqueo.

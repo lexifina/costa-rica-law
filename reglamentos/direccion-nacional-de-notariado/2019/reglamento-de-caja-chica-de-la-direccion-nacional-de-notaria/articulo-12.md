@@ -1,0 +1,1 @@
+Artículo 12.—Justificantes del fondo fijo: El Fondo Fijo de Caja Chica mantendrá únicamente dinero en efectivo y los justificantes que respalden los trámites de compra de suministros y servicios adquiridos o contratados por medio de este fondo.

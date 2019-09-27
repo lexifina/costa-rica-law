@@ -1,0 +1,1 @@
+Artículo 11. —Seguridad del fondo fijo caja chica: la Tesorería Institucional deberá disponer de los medios de protección y seguridad adecuados para la custodia del dinero, valores y documentos que en la misma se manejen.

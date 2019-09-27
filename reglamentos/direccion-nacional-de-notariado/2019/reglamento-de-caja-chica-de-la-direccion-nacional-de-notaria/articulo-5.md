@@ -1,0 +1,1 @@
+Artículo 5º—Registro de firmas: El encargado del Fondo Fijo de Caja Chica será el responsable de mantener un registro actualizado de las firmas de los funcionarios autorizados (titulares y suplentes) para la solicitud de adelantos o liquidaciones de compra de suministros y servicios.
