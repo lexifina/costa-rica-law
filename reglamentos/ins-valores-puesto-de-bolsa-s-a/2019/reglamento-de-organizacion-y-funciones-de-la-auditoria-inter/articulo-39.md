@@ -1,0 +1,1 @@
+Artículo 39. Acceso a informes. Los informes de auditoría sobre materia de control interno una vez comunicados oficialmente a la administración activa son de libre acceso por parte de cualquier persona física o jurídica siempre y cuando exista un interés público demostrable y se solicite, cumpliendo los requisitos que establece la normativa interna o externa aplicable.

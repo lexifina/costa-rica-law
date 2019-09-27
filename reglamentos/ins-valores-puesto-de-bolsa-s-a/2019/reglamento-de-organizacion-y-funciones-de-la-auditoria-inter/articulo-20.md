@@ -1,0 +1,5 @@
+CAPITULO III
+Del auditor y del personal a su cargo.
+Artículo 20. Nombramiento, suspensión y remoción. El nombramiento del Auditor Interno lo hará la Junta Directiva de INS Valores, instancia de la cual depende orgánicamente la Auditoría Interna. Su nombramiento será por tiempo indefinido y su jornada de trabajo a tiempo completo.
+Estos nombramientos se harán mediante concurso público y los requisitos de los cargos y sus funciones estarán contenidas en el Manual Descriptivo de Puestos de INS Valores, establecidos de conformidad con la normativa vigente.
+El Auditor Interno gozará de la garantía de inamovilidad y para su suspensión o remoción, se procederá de acuerdo con lo establecido al respecto de conformidad con el dictamen previo y vinculante de la Contraloría General de la República, según lo establecen el artículo 15 de la Ley Orgánica de la Contraloría General de la República y el 31 de la Ley General de Control Interno, así como lo establecido en los Lineamientos que al respecto dicte la Contraloría General de la República para las unidades de auditoría interna del sector público.
