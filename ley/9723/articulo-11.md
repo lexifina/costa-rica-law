@@ -1,0 +1,6 @@
+ARTÍCULO 11- Principios que rigen la adquisición de servicios de consultorías. El prestatario no podrá contratar o cancelar, con dineros provenientes del préstamo ni con contrapartida local, los servicios provistos por consultores que no hayan sido seleccionados de acuerdo con los procedimientos del contrato de préstamo.
+Asimismo, se establece que el prestatario y los consultores deberán observar los más altos estándares de ética durante la adquisición y ejecución del presente contrato.
+Ninguno de los consultores, contratados por el prestatario para suministrar servicios de consultoría en la preparación o ejecución de un proyecto, incluido su personal y subconsultores, así como su matriz o ninguna de sus filiales, podrá suministrar, posteriormente, bienes o ejecutar obras o prestar servicios distintos de los servicios de consultoría que se generen como resultado de estos. Además, ninguno de los consultores, incluidos su personal y subconsultores, su matriz o cualquiera de sus filiales pueden ser contratados para proporcionar servicios que, por su naturaleza, puedan estar en conflicto con otros servicios asignados a los consultores.
+Rige a partir de su publicación en La Gaceta.
+Dado en la Presidencia de la República, San José, a los catorce días del mes de agosto del año dos mil diecinueve.
+Ejecútese y publíquese.

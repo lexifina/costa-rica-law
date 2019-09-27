@@ -1,0 +1,1 @@
+ARTÍCULO 4- Administración de los recursos conforme al principio de Caja Única. Los recursos desembolsados del préstamo o pagos directos con cargo al préstamo serán acreditados en una cuenta, en la Caja Única del Estado, a favor del Instituto Costarricense de Acueductos y Alcantarillados (AyA) y asociada al Programa, con el fin de su administración y/o contabilidad.
