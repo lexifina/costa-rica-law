@@ -1,0 +1,2 @@
+ARTÍCULO 9- Rendición de cuentas e informes. Una vez por semestre, a partir de la entrada en vigencia de la presente ley, el Instituto Costarricense de Acueductos y Alcantarillados (AyA) rendirá un informe detallado sobre la ejecución, el desarrollo y los resultados, de conformidad con los objetivos establecidos en el proyecto, a la Comisión de Control del Ingreso y el Gasto Públicos de la Asamblea Legislativa.
+Asimismo, remitirá un informe semestral a la Contraloría General de la República, sobre la ejecución financiera y técnica del proyecto.
