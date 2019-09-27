@@ -1631,6 +1631,9 @@ Este plazo se considera adecuado, dado que se habrían obtenido previamente los 
 Para el precio de los filtros de combustibles, una vez entrada en vigencia esta modificación metodológica se utilizará el valor establecido en la resolución de la Intendencia de Transporte, RIT-024-2017 del 10 de abril del 2017 (publicada en el diario oficial Alcance Digital N°83 La Gaceta 74 del 20 de abril del 2017) o en función de cualquier otra disposición de la Aresep que la sustituya.
 Para el precio del litro de aceite hidráulico y de baterías nuevas, una vez entrada en vigencia esta modificación metodológica la IT utilizará los precios derivados del estudio ITCR 2017 hasta tanto no se dispongan de los estudios correspondientes concordantes con la resolución RJD-120-2012.
 (Así reformala la sección 4.11.3) anterior mediante resolución N° RJD-060-2018 del 18 de abril de 2018)
+(Nota de Sinalevi: Mediante resolución N° RE-0097-IT-2019 del 27 de setiembre de 2019, se acordó actualizar el valor del precio del filtro de combustible para el reconocimiento del costo mensual del filtro de combustible en las fijaciones ordinarias de tarifas para el servicio de transporte remunerado de personas, modalidad autobús, según el siguiente detalle:
+Precio del filtro de combustible (PF)
+¢42.303,36”).
 4.11.5 Determinación de los precios de limpieza y lavado de vehículos y de motor
 Los precios base para cada ítem de este rubro, serán los valores adoptados del estudio técnico ejecutado, contratado o avalado por la Aresep y se actualizarán mediante indexación con el Índice de Precios al Consumidor (IPC) calculado por el Instituto Nacional de Estadística y Censos (INEC). Para este fin, se ajustarán los valores con el último índice que esté disponible a la fecha de audiencia pública de la aplicación de la metodología.
 (Así adicionada la sección 4.11.5) anterior mediante resolución N° RJD-060-2018 del 18 de abril de 2018. Notesé que no existe la sección 4.11.4))
