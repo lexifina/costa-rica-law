@@ -1,0 +1,3 @@
+ARTÍCULO 20- Deber de confidencialidad y probidad
+El administrador de una plataforma electrónica deberá adoptar las medidas de control interno pertinentes para salvaguardar la confidencialidad de la información e implementar los mecanismos de seguridad necesarios. Quienes por su función tengan acceso al sistema, quedan obligados a guardar estricta reserva sobre toda información o datos que este contenga. Asimismo, se prohíbe la reproducción y la utilización total o parcial de la información disponible en la plataforma electrónica, con fines distintos para los que fue suministrada, todo de conformidad con la normativa aplicable.
+El incumplimiento de esta norma conlleva sanciones contempladas en la legislación penal vigente.

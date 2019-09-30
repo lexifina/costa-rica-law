@@ -5,4 +5,4 @@ a) Las acciones de nulidad de los acuerdos tomados por las asambleas de accionis
 b) Las acciones para cobrar intereses, alquileres, arrendamientos o rentas;
 c) Las acciones de los empresarios, para cobrar el valor de las obras que ejecutaren por destajo;
 d) Las acciones para cobrar el uso de cualquier otro derecho sobre bienes muebles; y
-e) Las acciones derivadas de ventas al por mayor y al detalle a otros comerciantes o al consumidor directamente.
+e) (Derogado por el artículo 24 de la Ley Marco del Contrato de Factoreo, N° 9691 del 3 de junio de 2019)

@@ -1,0 +1,2 @@
+ARTÍCULO 21- Notificación por medio electrónico
+La notificación de las partes se realizará por medio de correo electrónico u otro medio de notificación registrado en la plataforma electrónica, la cual adicionalmente generará un casillero electrónico para cada usuario. Es responsabilidad de los usuarios revisar tanto su correo electrónico como su casillero electrónico con la frecuencia oportuna, para conocer las notificaciones que se le han realizado.
