@@ -1,6 +1,3 @@
-SECCION VI
-Reformas de la Ley Fundamental de Educación
-ARTICULO 73.- Reformas de la Ley No. 2160
-Se modifica la Ley Fundamental de Educación, No. 2160, del 25 de setiembre de 1957, en sus artículos 27 y 29, cuyos textos dirán:
-"Artículo 27.- La educación especial es el conjunto de apoyos y servicios a disposición de los alumnos con necesidades educativas especiales, ya sea que los requieran temporal o permanentemente."
-"Artículo 29.- Los centros educativos deberán suministrar a sus alumnos y a los padres, la información necesaria para que participen, comprendan y apoyen el proceso educativo."
+ARTICULO 73.-Medidas institucionales para evitar la discriminación Los educadores, patronos o jerarcas tendrán la responsabilidad de mantener condiciones de respeto en el lugar de trabajo o estudio, mediante una política interna que prevenga la discriminación por razón de una discapacidad, no la promueva y la evite. Por esta ley, las instituciones públicas y de servicio público están obligadas a elaborar y divulgar esa política, la cual deberá comunicarse por escrito a directores, jefes, supervisores, asesores, representantes, educadores, empleados, estudiantes y usuarios de esos organismos.
+Para los efectos de esta ley, esas instituciones adoptarán las medidas y sanciones pertinentes en sus reglamentos internos, convenios colectivos, arreglos directos, circulares y demás actos administrativos.
+(Así modificada su numeración por el artículo único de la ley N° 9714 del 1° de agosto del 2019, “acceso a la justica”, que lo traspaso del antiguo artículo 60 al 73)

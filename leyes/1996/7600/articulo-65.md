@@ -1,2 +1,3 @@
-ARTICULO 65.-
-Multa de tránsito Se le impondrá una multa de cinco mil colones conforme lo establecido en el artículo 131 de la Ley de tránsito por vías públicas terrestres, No. 7331, al vehículo que sea estacionado en lugares exclusivos para el estacionamiento de vehículos debidamente identificados para transportar a personas con discapacidad.
+Artículo 65- Información procesal o jurisdiccional
+Las personas con discapacidad serán informadas, directa y personalmente por quien corresponda, sobre los aspectos relevantes de su intervención en el proceso judicial, en particular sobre la naturaleza del proceso. Esta información deberá otorgarse en la forma que mejor se adapte a sus requerimientos, tomando en consideración el uso de apoyos, productos y servicios, incluyendo las nuevas tecnologías.· Los procesos de capacitación que brinden los responsables de la aplicación de esta ley, a las personas con discapacidad que laboren en la institución, deberán adecuarse a tales requerimientos.
+(Así adicionado por el artículo único de la ley N° 9714 del 1° de agosto del 2019, “acceso a la justica”)

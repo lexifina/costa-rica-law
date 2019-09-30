@@ -1,7 +1,6 @@
-SECCION VIII
-Reformas de la Ley de impuesto sobre la renta
-ARTICULO 75.- Reformas de la Ley No. 7092
-Se reforma el segundo párrafo del inciso b) del artículo 8 de la Ley de impuesto sobre la renta, No. 7092, del 21 de abril de 1988, cuyo texto dirá:
-"Artículo 8.- Gastos deducibles
-[...]
-Además, podrá deducirse una cantidad igual adicional a la que se pague por los conceptos mencionados en los párrafos anteriores de este artículo a las personas con discapacidad a quienes se les dificulte tener un puesto competitivo, de acuerdo con los requisitos, las condiciones y normas que se fijan en esta ley. Asimismo, los costos por las adecuaciones a los puestos de trabajo y en las adaptaciones al entorno en el sitio de labores incurridas por el empleador. [...]"
+TITULO IV
+CAPITULO UNICO
+PROCEDIMIENTOS Y SANCIONES
+Artículo 75.- Multa. Será sancionada con una multa igual a un salario base establecido en la Ley N.º 7337, de 5 de mayo de 1993, la persona física o jurídica que cometa cualquier tipo de discriminación determinada por distinción, exclusión o preferencias, por una discapacidad, que limite la igualdad de oportunidades, en cuanto a la accesibilidad o el trato en materia de trabajo, educación, salud, transporte u otros campos.
+(Así reformado por el artículo 1° de la ley N° 9207 del 25 de febrero del 2014)
+(Así modificada su numeración por el artículo único de la ley N° 9714 del 1° de agosto del 2019, “acceso a la justica”, que lo traspaso del antiguo artículo 62 al 75)
