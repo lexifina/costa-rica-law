@@ -1,0 +1,1 @@
+Artículo 9: Presunción de autoría y responsabilidad: Para efectos legales y administrativos, todos los documentos electrónicos a nombre del PIMA, asociados a una Firma Digital Certificada son al momento de su emisión: vigentes, íntegros, auténticos, de autoría y responsabilidad del colaborador que lo emite; siempre y cuando el colaborador esté debidamente acreditado.

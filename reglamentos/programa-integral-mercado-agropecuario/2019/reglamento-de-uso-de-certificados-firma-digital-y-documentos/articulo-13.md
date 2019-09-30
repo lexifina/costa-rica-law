@@ -1,0 +1,1 @@
+Artículo 13: Régimen disciplinario: Para la imposición de sanciones se aplicará el régimen establecido por el PIMA, Ley General de la Administración Pública, Ley de la Administración Financiera, Ley de Certificados, Firmas Digitales y Documentos Electrónicos y Código de Trabajo, según corresponda.
