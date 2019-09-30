@@ -5,7 +5,8 @@ Artículo 7. Prohibiciones. Se prohíbe al personal policial:
 4. Usar prendas o accesorios no contemplados en el presente reglamento o no autorizados por autoridad competente.
 5. Utilizar insignias, o distintivos no correspondientes a su categoría, grado o unidad policial, o condecoraciones no otorgadas por autoridad competente.
 6. Donar, vender, alquilar, dar en calidad de prenda o facilitar en préstamo, uniformes, insignias y distintivos, aun cuando se encuentren en mal estado o en desuso.
-7. En el caso de los hombres usar barba, patillas de más de 2 cm de largo, cabello largo, así como tintes en tonalidades que no sean las naturales del cabello; el uso de piercing, tatuajes visibles, aretes, cadenas, collares o pulseras y más de un anillo.
+7. En el caso de los hombres, usar barba y bigote no ajustado a la forma autorizada, usar cabello largo, así como tintes en tonalidades que no sean las naturales del cabello; el uso de piercing, tatuajes visibles, aretes, cadenas, collares o pulseras y más de un anillo.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 42043 del 30 de setiembre de 2019)
 8. En el caso de las mujeres, llevar aretes largos, cadenas y collares visibles, pulseras y más de un anillo, así como tatuajes y piercing.
 9. Utilizar accesorios o combinar prendas de un uniforme con otro no regulado en el presente reglamento.
 10. El uso del pantalón policial y la camiseta únicamente, salvo casos excepcionales debidamente autorizados por el Director del Cuerpo Policial correspondiente.

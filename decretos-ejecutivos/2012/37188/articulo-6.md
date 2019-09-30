@@ -2,8 +2,11 @@ Artículo 6. Obligaciones. Son obligaciones de todo el personal policial:
 1. Portar en toda ocasión el uniforme completo con esmerada pulcritud y elegancia.
 2. Presentar el respectivo saludo policial a quienes tengan derecho a recibirlo, en los tiempos y forma debida.
 3. El uso del cabello en los varones debe ser corto con un máximo de 2 cm de largo en la parte superior y a los lados 0,50 cm como máximo, no debe sobrepasar las orejas, cuello y las patillas un máximo de 2 cm de forma cuadrada, no se permiten los tintes en color que no sea el natural.
-4. En el caso de los varones, deben presentarse debidamente rasurados sin barba de ningún tipo en su rostro.
-5. El uso de bigote debe ser de corte moderado, no debe sobrepasar el labio superior, ni sobrepasar la comisura de los labios, no se permite el uso de barba.
+4. En el caso de los varones, se permite el uso de la barba completa e incluirá el bigote. La barba debe iniciar en el arco superior de la oreja y hasta la línea posterior del cuello haciendo un arco continuo. Se deberá usar recortada, arreglada y uniforme con una longitud máxima de cinco milímetros (5 mm) de espesor (sombra, marcada y recortada). El resto de la cara debe estar perfectamente afeitada, perfilando los bordes de la barba. Se usará como se muestra en la siguiente imagen:
+[imagen]
+(Así reformado el inciso 4) anterior por el artículo 1° del decreto ejecutivo N° 42043 del 30 de setiembre de 2019)
+5. El bigote debe ser de corte moderado, no debe sobrepasar el labio superior, ni sobrepasar la comisura de los labios. El bigote puede usarse sin barba, en la forma descrita.”
+(Así reformado el inciso anterior por e l artículo 1° del decreto ejecutivo N° 42043 del 30 de setiembre de 2019)
 6. El personal femenino, usará el cabello de color natural o artificial discreto dentro de la gama de colores natural, rubio, castaños, café o negro, peinado tirante hacia atrás, sin volumen, con nacimiento en la nuca baja, y recogido en un moño sujeto con prensillas o redecilla, en caso de utilizarse cabello corto este no debe cubrir el rostro. El maquillaje en tonos color piel y tonos cafés, el arreglo de uñas deberá ser tipo ejecutivo, en colores pastel de tonos rosa y piel, los cuales no deben contrastar con los colores del uniforme, el largo de las uñas no deberá superar los tres milímetros.
 7. Para el personal femenino se permite el uso de un par de aretes únicamente en el lóbulo auricular, que no cuelguen del mismo, en tamaño pequeño, en color dorado, plateado, azul o negro.
 8. El uso de cubrecabezas es de carácter obligatorio en el servicio, en la calle y en ceremonias, excepto cuando el personal se encuentre en recintos cerrados, oficinas o dependencias.
