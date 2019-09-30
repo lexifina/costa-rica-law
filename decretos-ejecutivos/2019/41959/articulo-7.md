@@ -1,0 +1,6 @@
+Artículo 7.- Requisitos de la solicitud de cancelación de asientos de presentación o de inscripción definitiva de origen fraudulento. La solicitud de cancelación de asientos de presentación provisional o de inscripción definitiva de origen fraudulento, deberá ser presentada en la Dirección del Registro Inmobiliario del Registro Nacional, con los siguientes requisitos:
+a) Solicitud por escrito de la cancelación de un asiento de presentación provisional o de inscripción definitiva de origen irregular, debidamente autenticada por notario público.
+b) Indicación de medio para recibir notificaciones, ya sea electrónico o cualquier otro medio que permita la ley de Notificaciones Judiciales.
+c) En la solicitud se deben indicar las citas de inscripción de los poderes inscribibles de que se trate; y /o aportar la documentación que acredite la validez de los poderes no inscribibles con que se actúe; lo anterior, en los casos de representación de los legítimos interesados o afectados del asiento irregular.
+d) Comprobante de cancelación de los derechos de Registro respectivos, conforme a la Ley de Aranceles del Registro Nacional, Nº 4564 de 29 de abril de 1970 y sus reformas.
+e) Certificación del Archivo Notarial o de la Dirección Nacional de Notariado de la escritura matriz de que se trate, que acredite los supuestos relacionados en el artículo 4 anterior.

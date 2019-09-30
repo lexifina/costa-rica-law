@@ -1,0 +1,1 @@
+Artículo 20.- Disposiciones Supletorias. En lo no previsto en este reglamento se aplicará en lo que fuere compatible, el Reglamento de Organización del Registro Inmobiliario, Decreto Nº 35509-J de 30 de setiembre de 2009.

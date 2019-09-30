@@ -1,0 +1,2 @@
+Artículo 11.- Resolución de cancelación del asiento o consignación del bloqueo registral. Una vez vencidas las audiencias conferidas, la Dirección o la Subdirección Registral resolverá conforme a la prueba objetiva aportada y dentro del mes siguiente, lo que corresponda acorde con la competencia delimitada en el artículo 3 de este reglamento.
+Esta resolución se notificará al gestionante, así como a los demás interesados que se hubieren apersonado. Para los demás interesados que no se hayan apersonado al proceso, se tendrá por firme 24 horas después de dictada la misma.
