@@ -1,2 +1,2 @@
-Artículo 23.- Resolución de la gerencia general o Auditoría General
-La Gerencia General, o la Auditoría General, según corresponda, podrá acoger las recomendaciones contenidas en la resolución final del Organo Director, o apartarse de ellas en cuyo caso deberá dictar su resolución debidamente razonada.
+Artículo 23º . Medidas Cautelares
+En caso de que la investigación lo amerite, el Órgano Director del Procedimiento podrá, mientras dure la investigación administrativa, recomendar a la Dirección de Capital Humano, la suspensión provisional del funcionario o funcionarios investigados o su reubicación temporal en otro puesto.

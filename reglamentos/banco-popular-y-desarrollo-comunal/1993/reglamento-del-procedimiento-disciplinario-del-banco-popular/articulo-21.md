@@ -1,2 +1,2 @@
-Artículo 21.- Ampliación de plazo
-En casos especiales, el plazo para realizar la investigación podrá ser ampliado, de conformidad con lo establecido en la Convención Colectiva.
+Artículo 21 º . Facultades para recepción de prueba
+Para la recepción de la prueba, el Órgano Director del Procedimiento tendrá las mismas facultades y deberes que las autoridades judiciales; y los testigos o peritos, incurrirán en los delitos de falso testimonio y perjurio, previstos en el artículo 316 del Código Penal, cuando se dieren las circunstancias allí señaladas, según lo dispuesto por el artículo 300 de la Ley General de la Administración Pública, sin perjuicio de las sanciones disciplinarias que les fueren aplicables.

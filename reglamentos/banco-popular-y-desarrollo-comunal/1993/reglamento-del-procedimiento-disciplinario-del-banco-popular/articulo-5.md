@@ -1,4 +1,3 @@
-Artículo 5.- Conformación
-El Organo Director del Proceso podrá estar conformado por uno o por tres miembros, según la complejidad del asunto, a criterio de la Comisión Preliminar. Sus integrantes se escogerán por sorteo del personal que al efecto designe la Gerencia General, previa recomendación del Proceso de Desarrollo Humano.
-Serán motivos de abstención de los miembros designados, los mismo de impedimento y recusación que se establecen en los artículos 49 y siguientes del Código Procesal Civil. En caso de presentarse alguno de los supuestos previstos en dicha normativa, se procederá a nombrar sustitutos, utilizando el sistema de sorteo antes referido.
-Así reformado el párrafo primero de este artículo, por Acuerdo de la Junta Directiva Nacional del Banco Popular y de Desarrollo Comunal, tomado en Sesión No. 3735.
+Artículo 5º. Traslado del caso a la Comisión Preliminar.
+Una vez recibido el informe, reporte o denuncia, la Dirección de Capital Humano al día siguiente hábil al recibo, trasladará el expediente del caso a la Comisión Preliminar para su respectiva valoración a efecto de que esta instancia emita la recomendación correspondiente.
+La Dirección de Capital Humano debe incorporar los controles necesarios en los que se deje constancia de la fecha en que se recibió el informe, reporte o denuncia y la fecha en se trasladó el expediente a la Comisión Preliminar.

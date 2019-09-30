@@ -1,0 +1,4 @@
+CAPÍTULO V: SOBRE EL ACTO FINAL
+Artículo 29º Comunicación a la Junta de Relaciones Laborales en las investigaciones administrativas por responsabilidad disciplinaria.
+De acuerdo con el procedimiento previsto en la Convención Colectiva de Trabajo y el Reglamento de la Junta de Relaciones Laborales, en las investigaciones administrativas por responsabilidad disciplinaria, cuando corresponda, una vez finalizada ésta, el Órgano Director del Procedimiento remitirá el expediente y el Proyecto de Recomendación Final a la Junta de Relaciones Laborales.
+La recomendación que emita la Junta de Relaciones Laborales será remitida junto con el expediente de la investigación administrativa y el Proyecto de Recomendación Final emitido del Órgano Director del Procedimiento, al Jerarca respectivo, para que ésta proceda a dictar el acto final.

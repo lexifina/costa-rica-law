@@ -1,2 +1,2 @@
-Artículo 10.- Acceso a las dependencias y permisos
-El Organo Director del Proceso tendrá acceso a las diferentes áreas administrativas del Banco, las cuales facilitarán en forma expedita, la documentación e información requerida para el cumplimiento de sus fines. Igualmente, los superiores inmediatos de los funcionarios cuya presencia requiera el Organo, deberán otorgar los permisos respectivos para la hora y fecha en que fueren citados.
+Artículo 10º . Confidencialidad.
+De conformidad con los artículos 6 y 39 de la Ley General de Control Interno, los miembros integrantes del Órgano Director del Procedimiento deberán guardar la confidencialidad en la investigación instaurada, y su incumplimiento puede ser causante de responsabilidad administrativa. Dicha confidencialidad cesará con la notificación del Acto Final a las partes.

@@ -1,2 +1,3 @@
-Artículo 26.- Comunicación a Junta de relaciones laborales
-Si la sanción aplicable fuere el despido, la Gerencia General o la Auditoría General, deberá someterlo a conocimiento de la Junta de Relaciones Laborales, dentro del término establecido en la Convención Colectiva vigente en la Institución.
+Artículo 26º Prescripción.
+Sin perjuicio de lo que establezcan las disposiciones especiales sobre el plazo de la prescripción, los derechos y las acciones de la Administración para sancionar justificadamente a los funcionarios (as) investigados prescribirán en el término de un mes, que comenzará a correr desde que se dio la causa para la separación o la sanción o en su caso desde que fueran conocidos los hechos causales.
+En cuanto a la prescripción del procedimiento, será aplicable el plazo establecido en el artículo 414 del Código de Trabajo y en lo que resulte aplicable según lo dispuesto en el art. 71 Ley Orgánica de la Contraloría General

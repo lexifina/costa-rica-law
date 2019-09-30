@@ -1,5 +1,7 @@
+BANCO POPULAR Y DE DESARROLLO COMUNAL
 REGLAMENTO DEL PROCEDIMIENTO DISCIPLINARIO DEL BANCO POPULAR Y DE DESARROLLO COMUNAL
 Aprobado por acuerdo de la Junta Directiva Nacional en Sesión No. 2920 del 14 de diciembre de 1993
-Cap.1. Disposiciones generales.
-Artículo 1.- Objetivo
-El presente Reglamento se dicta para la investigación y determinación de las faltas atribuidas a los trabajadores del Banco Popular y de Desarrollo Comunal en el desempeño de sus funciones y para la aplicación de las diversas sanciones disciplinarías previstas por el Código de Trabajo y Reglamento Interior de Trabajo del Banco, en armonía con las disposiciones de la Convención Colectiva aplicables.
+(Nota de Sinalevi: El presente reglamento fue reformado parcialmente y reproducido su texto de forma íntegra mediante sesión ordinaria N° 5675 del 30 de setiembre del 2019, y publicado en el Alcance Digital N° 230 a La Gaceta N° 200 del 22 de octubre de 2019, por lo que se reproduce a continuación:)
+CAPÍTULO 1: DISPOSICIONES GENERALES
+Artículo 1 º Fundamento y Objetivo
+El presente reglamento se dicta con fundamento en el artículo 24, inciso b de la Ley Orgánica del Banco Popular y de Desarrollo Comunal y su objetivo es reglamentar el procedimiento que se debe seguir para la apertura y trámite de las investigaciones administrativas, tanto disciplinarias como por responsabilidad civil con el propósito de determinar la verdad real de los hechos, por supuestas faltas atribuidas a los funcionarios y funcionarias del Banco en el desempeño de sus funciones y para la aplicación de las sanciones disciplinarias y civiles previstas por el Código de Trabajo y el Reglamento Interior de Trabajo del Banco Popular y de Desarrollo Comunal, en armonía con las disposiciones de la Convención Colectiva de Trabajo aplicables y en lo establecido en la Ley General de Administración Pública en el Libro Segundo, del Procedimiento Administrativo.

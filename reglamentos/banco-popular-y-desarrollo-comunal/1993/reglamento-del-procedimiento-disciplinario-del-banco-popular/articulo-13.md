@@ -1,3 +1,2 @@
-Cap.3. Del procedimiento.
-Artículo 13.- Inicio de la investigación, traslado
-La investigación administrativa se iniciará con el inmediato traslado que hará el Organo Director del Proceso de los hechos que se investigan al trabajador, y formulará los cargos que se le atribuyen, debiendo acompañar copia de toda la documentación que sustente tales cargos, o indicación del lugar en que se encuentra, para lo cual dará las facilidades necesarias al trabajador, o a quien éste designe para su defensa. El traslado de los cargos al trabajador o trabajadores afectados, dará formalmente inicio a la investigación.
+Artículo 13º . Quórum.
+El Órgano Director del Procedimiento se reunirá válidamente con la totalidad de sus miembros propietarios o sus respectivos suplentes, y los acuerdos se tomarán por simple mayoría. No obstante, para la práctica y evacuación de las pruebas, el Órgano Director del Procedimiento podrá comisionar al efecto a dos de sus integrantes. Los miembros deberán emitir su voto en el sentido que lo consideren procedente en forma razonada. En ninguna circunstancia les será permitido abstenerse de emitir el voto.

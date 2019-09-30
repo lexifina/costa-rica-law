@@ -1,3 +1,4 @@
-Artículo 20.- Duración de la investigación
-El Organo Director del Proceso dispondrá de un mes calendario para llevar a cabo la investigación administrativa, actuando por impulso procesal de oficio, y con amplias facultades para investigar la verdad real de los hechos, evacuando la prueba propuesta por las partes que se estime pertinente, y de oficio la que se considere necesaria. Dicho plazo se computará a partir de la fecha en que se de el traslado de cargos.
-El Plazo antes indicado, podrá extenderse en los supuestos previstos en los artículos 16, 17 y 21 de este Reglamento.
+Artículo 20º . Acceso al expediente y a la evacuación de prueba
+El funcionario investigado o quien éste designe para su defensa, tendrá acceso irrestricto al expediente administrativo, y podrá obtener fotocopias de este, haciendo uso del derecho de defensa que le asiste, y alegar sobre lo actuado para hacer valer sus derechos e intereses antes del dictado de la respectiva recomendación final.
+Asimismo, el funcionario investigado (a) estará facultado para estar presente en la comparecencia oral y privada realizada al efecto. En la evacuación de prueba testimonial que practique el Órgano Director del Procedimiento, el investigado o su representante legal tendrá la facultad de participar del interrogatorio y contrainterrogatorio de los testigos, haciendo uso de la defensa material y técnica.
+El expediente administrativo será custodiado en la sede del Órgano Director del Procedimiento, bajo responsabilidad del Presidente de cada investigación.

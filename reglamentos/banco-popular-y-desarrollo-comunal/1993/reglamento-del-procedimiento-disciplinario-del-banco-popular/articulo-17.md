@@ -1,3 +1,2 @@
-Artículo 17.- Inasistencia sin causa
-Si el trabajador investigado no compareciere a la citación sin justa causa, el Organo Director del Proceso podrá conferirle nueva audiencia dentro de un plazo no mayor de tres días hábiles; o bien declarar su rebeldía, continuar los procedimientos, y resolver con los elementos de juicio existentes.
-El trabajador declarado rebelde, podrán apersonarse en cualquier momento, pero tomará el proceso en el estado en que se encuentre.
+Artículo 17º . Notificación por publicación
+De no ser posible notificar al funcionario en su centro de trabajo, o en su domicilio, la notificación del Auto de Inicio y Traslado de Cargos se practicará por medio de una publicación que se hará por tres veces consecutivas en el diario oficial La Gaceta, computándose el término conferido a partir del día siguiente a la última publicación, en cuyo caso el plazo para la investigación quedará suspendido mientras se realiza la publicación, reanudándose el día hábil siguiente a la publicación del último aviso.

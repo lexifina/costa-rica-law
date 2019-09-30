@@ -1,5 +1,4 @@
-Artículo 19.- Separación del puesto
-El Organo Director del Proceso podrá, mientras dure la investigación administrativa, recomendar a la Gerencia General o a la Auditoría General, según corresponda; la separación provisional del puesto del o los trabajadores que se investigan, de conformidad con lo establecido en la Convención Colectiva en cualquiera de los siguientes casos:
-a) Cuando la permanencia del trabajador en el puesto pueda influir en las declaraciones de los testigos
-b) Cuando haya existido o pueda sobrevenir pérdida patrimonial para la Institución, o
-c) Cuando se considere necesaria para la preservación de pruebas físicas requeridas en la investigación.
+Artículo 19º . Inasistencia sin causa
+Si el funcionario investigado no compareciere a la audiencia sin justa causa, el Órgano Director del Procedimiento podrá continuar los procedimientos, evacuar la prueba y resolver con los elementos probatorios existentes en el expediente administrativo.
+El funcionario, podrá apersonarse en cualquier momento, pero tomará el procedimiento en el estado en que se encuentre.
+Cualquier motivo de suspensión de la comparecencia oral y privada deberá ser valorada y analizada por el Órgano Director del Procedimiento en apego a los principios que rigen el debido proceso, debiendo reprogramarse dentro del plazo legal establecido y tomando en consideración la agenda del Órgano Director del Procedimiento.

@@ -1,2 +1,2 @@
-Artículo 24.- Comunicación de la resolución final
-El acto final mediante el cual se aplique la sanción disciplinaría al trabajador, o bien se le absuelva de responsabilidad, será tomado en definitiva y notificado formalmente por la Gerencia General, o la Auditoría General según corresponda, dentro del mes calendario contado a partir del día siguiente en que concluya la investigación.
+Artículo 24º . Archivo Definitivo del Expediente Administrativo
+Antes de la Audiencia el Órgano Director del Procedimiento podrá mediante resolución fundada, recomendar a la Gerencia General Corporativa o la Subgerencia que corresponda, el archivo definitivo del Expediente Administrativo de conformidad con los Principios de Economía Procesal, Simplicidad, Celeridad y Eficiencia, y en estricto apego a las Reglas del Debido Proceso, cuando determine que existen causas que impidan la continuidad del procedimiento.

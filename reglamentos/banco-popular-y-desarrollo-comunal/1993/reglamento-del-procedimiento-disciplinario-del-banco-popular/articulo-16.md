@@ -1,3 +1,2 @@
-Artículo 16.- Inasistencia justificada
-Si el trabajador no compareciere a la citación por justa causa proveniente de enfermedad -demostrada mediante dictamen médico expedido o reconocido por la Caja Costarricense del Seguro Social- que le incapacite totalmente para realizar su defensa, o por cualquier otro motivo muy calificado, siempre a juicio del Organo Director del Proceso, los plazos de prescripción quedarán automáticamente suspendidos mientras dure la causa que dio origen a tal imposibilidad. Una vez cesados los motivos, el procedimiento seguirá su curso, y los términos continuarán corriendo.
-El Organo Director, mediante resolución razonada, ordenará la suspensión de la investigación, y la notificará a las partes que hubieren señalado lugar para atender notificaciones.
+Artículo 16º . Notificación
+El Órgano Director del Procedimiento notificará el Auto de Inicio y Traslado de Cargos al funcionario investigado en forma personal en su lugar de trabajo o en su domicilio, según lo dispuesto en los artículos 243 y siguientes de la Ley General de Administración Pública y 1 de la Ley de Notificaciones Judiciales.

@@ -1,3 +1,3 @@
-Cap.4. Recursos.
-Artículo 25.- Normativa aplicable
-Los reclamos contra la resolución final de la Gerencia o de la Auditoría General, se regirán por la normativa que al efecto contiene el Código de Trabajo.
+Artículo 25º . Duración de la Investigación.
+El Órgano Director del Proceso dispondrá del plazo dispuesto en la Ley General de la Administración Pública para llevar a cabo la investigación administrativa, debiendo actuar por impulso procesal de oficio, y con amplias facultades para investigar la verdad real de los hechos, evacuando la prueba que considere necesaria. Dicho plazo se computará a partir de la fecha en que se dé el traslado de cargos.
+El plazo antes indicado, podrá extenderse dependiendo de la complejidad de la investigación y de la actividad procesal de las partes, de conformidad con lo dispuesto en el artículo 263 de la Ley General de la Administración Pública.

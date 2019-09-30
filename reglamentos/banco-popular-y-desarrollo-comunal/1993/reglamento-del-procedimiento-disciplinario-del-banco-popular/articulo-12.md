@@ -1,2 +1,2 @@
-Artículo 12.-Día y hora de sus actuaciones
-El Organo Director del Proceso realizará sus actuaciones en día y hora hábiles. Sin embargo, podrá habilitar días y horas inhábiles para cumplir sus cometidos, cuando la demora pueda causar graves perjuicios al Banco o al trabajador investigado, o hacer ilusoria la eficacia de un acuerdo del Organo.
+Artículo 12º. Sustitución de propietarios.
+En caso de ausencia o enfermedad, y en general cuando concurra alguna causa justa, los miembros del Órgano Director del Procedimiento serán sustituidos por los suplentes designados. Si el ausente fuere el Presidente o el Secretario, se nombrará un Presidente ad hoc o un Secretario suplente respectivamente.
