@@ -1,0 +1,3 @@
+ARTÍCULO 7- Trasmisión de la factura y otros derechos de crédito y cobro
+Las facturas y otros derechos de crédito y cobro presentes y/o futuros podrán ser transmitidos en las formas previstas por la Ley N.° 9246, Ley de Garantías Mobiliarias, de 7 de mayo de 2014, para la cesión y endosados de conformidad con la Ley N.° 3284, Código de Comercio, de 30 de abril de 1964, según sea la configuración jurídica del derecho a transmitir.
+La observancia de las formas propias de la cesión será necesaria solamente cuando el endoso de facturas para el traspaso del derecho sea incluido en el sistema de garantías mobiliarias.
