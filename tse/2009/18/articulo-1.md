@@ -10,4 +10,5 @@ El siguiente
 REGLAMENTO SOBRE LA INSCRIPCIÓN PARA LA REALIZACIÓN
 DE ENCUESTAS Y SONDEOS DE OPINIÓN DE
 CARÁCTER POLÍTICO-ELECTORAL
-Artículo 1º—El presente reglamento tiene por objeto regular el procedimiento de registro de todos aquellos institutos, universidades, entes públicos o empresas que pretendan prestar servicios de elaboración de encuestas y sondeos de opinión de carácter político-electoral durante la campaña electoral, que inicia a partir de la convocatoria a elecciones, de acuerdo con lo dispuesto en el artículo 138 del Código Electoral.
+Artículo 1.- El presente reglamento tiene por objeto regular el procedimiento de registro de todos aquellos institutos, universidades, entes públicos, empresas o personas físicas que pretendan prestar servicios de elaboración de encuestas y sondeos de opinión de carácter político-electoral durante la campaña electoral, que inicia a partir de la convocatoria a elecciones, de acuerdo con lo dispuesto en el artículo 138 del Có digo Electoral.
+(Así reformado por el artículo 1° del decreto del Tribunal Supremo de Elecciones N° 18-2019 del 30 de setiembre del 2019)

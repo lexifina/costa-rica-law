@@ -15,3 +15,4 @@ Reglamento sobre la inscripción para la realización de encuestas y sondeos de 
 | --- | --- | --- |
 | 1 | 2009-11-02 | la propia norma |
 | 2 | 2014-02-14 | Decreto TSE 2 (2014-02-14) |
+| 3 | 2019-09-30 | Decreto TSE 18 (2019-09-30) |
