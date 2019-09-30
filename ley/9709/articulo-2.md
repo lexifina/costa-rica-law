@@ -1,0 +1,1 @@
+ARTÍCULO 2- En razón de los dispuesto en el artículo anterior, se declara de interés público la celebración del tope de toros que se realiza cada año en la ciudad de Liberia y se autoriza a las instituciones públicas para que contribuyan con su realización.
