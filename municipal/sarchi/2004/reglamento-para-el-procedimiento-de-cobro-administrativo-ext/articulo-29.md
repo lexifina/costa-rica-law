@@ -1,1 +1,2 @@
-Artículo 29.—Los arreglos de pago se harán con deudas superiores a los diez mil colones sin céntimos. En cuentas inferiores a ese monto no se autorizan los arreglos de pago. Sólo se dará plazo para su cancelación.
+Artículo 29.—En caso en que el sujeto pasivo solicite la readecuación del arreglo de pago, esta se podrá autorizar, siempre y cuando el interesado esté dispuesto a cancelar las costas personales y procesales que inició el proceso y se acepten los nuevos términos del contrato. Esta posibilidad podrá aplicarse por una única vez.
+(Así reformado en sesión N° 178 del 30 de setiembre de 2019)
