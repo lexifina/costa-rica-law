@@ -6,3 +6,4 @@ Rige a partir de su publicación en el Diario Oficial quedando derogada toda dis
 Al presente Reglamento lo acompañan las normas generales que se aplicarán en todos los casos en que se ejecuten obras de relleno, excavación o nivelación.
 Espíritu Santo de Esparza, 10 de mayo de 2018
 [imagen]
+(Así reformada la lamina anterior mediante acta N° 19 del 30 de setiembre de 2019)

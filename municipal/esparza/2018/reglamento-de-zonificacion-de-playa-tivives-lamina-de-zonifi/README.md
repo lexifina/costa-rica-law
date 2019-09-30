@@ -14,3 +14,4 @@ Reglamento de zonificación de playa Tivives (lámina de zonificación plan regu
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-06-06 | la propia norma |
+| 2 | 2019-09-30 | Reglamento municipal 0 (2019-09-30) |
