@@ -1,0 +1,2 @@
+ARTÍCULO 17- Mecanismos de identificación electrónica
+Por medio del uso de la firma digital certificada se garantizará la vinculación jurídica de la firma del emisor con el formulario electrónico que identifica al receptor de este según el tipo de solicitud que se desee tramitar, de manera tal que se certifique la no alteración y la conservación del contenido original de cada documento que se reciba y se envíe por medio de una plataforma electrónica.

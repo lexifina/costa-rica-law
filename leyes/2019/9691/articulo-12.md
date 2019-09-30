@@ -1,0 +1,3 @@
+ARTÍCULO 12- Validez de la transmisión de derechos de crédito y cobro
+Los derechos de crédito y cobro presentes y/o futuros podrán transmitirse en cualquier momento sin que sea necesario el consentimiento del pagador, quien no podrá negarse a recibir la notificación.
+Cuando el pagador sea un ente público, la notificación no obliga a la institución a realizar el pago cuando el transmitente no se encuentre al día con las obligaciones con la seguridad social, de conformidad con lo regulado en los artículos 74 y 74 bis de la Ley N.° 17, Ley Constitutiva de la Caja Costarricense de Seguro Social CCSS, de 22 de octubre de 1943.
