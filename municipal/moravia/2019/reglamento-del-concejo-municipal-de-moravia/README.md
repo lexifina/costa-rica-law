@@ -15,3 +15,4 @@ Reglamento del concejo municipal de Moravia
 | --- | --- | --- |
 | 1 | 2019-05-31 | la propia norma |
 | 2 | 2019-07-08 | Reglamento municipal 167 (2019-07-08) |
+| 3 | 2019-09-30 | Reglamento municipal 179 (2019-09-30) |
