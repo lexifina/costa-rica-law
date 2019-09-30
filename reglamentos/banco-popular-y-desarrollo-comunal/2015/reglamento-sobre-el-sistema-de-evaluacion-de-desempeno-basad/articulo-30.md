@@ -1,1 +1,0 @@
-Artículo 30. —Evaluación de BDP. La estructura de evaluación del personal evaluado por BDP es definida en el Procedimiento de Evaluación de Desempeño de Auditoria Interna, así como los instrumentos de evaluación aplicables.

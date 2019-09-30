@@ -1,1 +1,0 @@
-Artículo 29. —Criterio individual de evaluación BSC. La Gestión Propia del BSC de las jefaturas es evaluada mediante los instrumentos dispuestos por la Auditoria Interna para la medición de cada uno de los objetivos propios y los indicadores establecidos, según su meta, forma de cálculo y frecuencia de medición.

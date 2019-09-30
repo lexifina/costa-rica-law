@@ -1,1 +1,0 @@
-Artículo 24. —Nivel de aprobación. El BSC del Auditor Interno y del Sub-Auditor es aprobado por la Junta Directiva Nacional. La formulación, presentación y trámite de solicitudes de cambio, son gestionadas directamente por el Auditor Interno ante dicha instancia. El BSC de las jefaturas que reportan al Auditor Interno y del Sub-Auditor es aprobado por el Auditor General.

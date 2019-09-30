@@ -1,1 +1,0 @@
-Artículo 27. —Criterio individual de evaluación BDP. La 'Gestión Individual' del personal medido por BDP es evaluada a través de los instrumentos dispuestos por la Auditoria Interna los cuales están definidos en el Procedimiento de Evaluación de Desempeño de Auditoria interna.

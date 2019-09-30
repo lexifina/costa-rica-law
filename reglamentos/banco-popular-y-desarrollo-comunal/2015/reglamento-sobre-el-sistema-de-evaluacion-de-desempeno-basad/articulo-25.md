@@ -1,1 +1,0 @@
-Artículo 25. —Fechas aplicables. Le corresponde al Banco establecer en la normativa interna la fecha en que se debe presentar la formulación inicial, la solicitud de modificación o eliminación total o parcial de un BSC o BDP.

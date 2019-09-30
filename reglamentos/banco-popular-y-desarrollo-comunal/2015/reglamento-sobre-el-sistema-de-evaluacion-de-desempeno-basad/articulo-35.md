@@ -1,1 +1,0 @@
-Artículo 35. - Cumplimiento de objetivos. Es responsabilidad de las jefaturas aportar las justificaciones del incumplimiento de los objetivos al cierre del año de gestión, cuando así sea solicitado por la Dirección Capital Humano.

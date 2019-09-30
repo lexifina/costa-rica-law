@@ -1,1 +1,0 @@
-Artículo 4°—Dependencias especiales. Son aquellas cuyo nivel jerárquico no está adscrito a la Gerencia General Corporativa, a saber: la Asamblea de Trabajadores y Trabajadoras, la Secretaría de la Junta Directiva Nacional, la Auditoría Interna y FODEMIPYME.

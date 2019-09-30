@@ -1,1 +1,0 @@
-Artículo 5°—Personal comprendido en la Clase Gerencial. Para efectos de este Reglamento, el personal considerado en este nivel son los que ocupan las Jefaturas de las siguientes dependencias: Dependencias Especiales, Gerencia General Corporativa, Subgerencia General de Negocios, Subgerencia General de Operaciones y Dirección General Corporativa.
