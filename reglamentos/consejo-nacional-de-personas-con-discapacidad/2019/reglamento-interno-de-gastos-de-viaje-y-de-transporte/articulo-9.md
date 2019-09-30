@@ -1,0 +1,3 @@
+Artículo 9°—Pago de transporte a Representantes de las Organizaciones de Personas con Discapacidad en Junta Directiva. Para las personas representantes de organizaciones de personas con discapacidad de Junta Directiva.
+a) El servicio de transporte público no colectivo se reconocerá con la presentación de la certificación de discapacidad y una declaración jurada; haciendo constar los servicios de apoyo que se requieren, para el cumplimiento de las funciones propias del cargo, y siguiendo criterios de razonabilidad y proporcionalidad.
+b) El servicio de transporte público colectivo se reconocerá según las tarifas autorizadas por la ARESEP.
