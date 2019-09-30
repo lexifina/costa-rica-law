@@ -1,0 +1,3 @@
+ARTÍCULO 22. SESIONES. CALIFICACIÓN COMO SOLEMNE. REGLAMENTO DE ÓRDENES.
+El Concejo Municipal podrá acordar que una sesión ordinaria ó extraordinaria sea calificada como Sesión Solemne, con el fin exclusivo de recibir u homenajear a un ciudadano costarricense o extranjero, celebrar un acontecimiento o fecha importante, o dedicarla a cualquier otro asunto que considere que lo amerita.
+En las sesiones solemnes se atenderá estrictamente el orden protocolario y en razón de esa calificación sólo podrán hacer uso de la palabra, el Alcalde Municipal, el Presidente del Concejo o bien alguna otra persona que el Concejo Municipal designe hasta por un término de tres minutos. También podrá hacer uso de la palabra la persona invitada u homenajeada.

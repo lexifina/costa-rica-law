@@ -1,0 +1,7 @@
+CAPITULO IV
+DEL DIRECTORIO DEL CONCEJO
+ARTÍCULO 4. ELECCIÓN PRESIDENCIA Y VICEPRESIDENCIA
+El Directorio Municipal será integrado con un Presidente y un Vicepresidente, electos por el Concejo Municipal, en votación secreta.
+El Vicepresidente reemplazará al Presidente en sus ausencias temporales. En caso de que al mismo tiempo faltaren temporalmente el Presidente y el Vicepresidente, ambos
+Serán reemplazados por los regidores de mayor edad, correspondiendo la Presidencia al mayor y la Vicepresidencia al que le sigue.
+En caso de falta definitiva o renuncia del Presidente o del Vicepresidente, el Concejo procederá a su reposición, mediante elección secreta que se realizará en la sesión siguiente a aquella en que se conozca de la ausencia definitiva, si ya para ese momento se encontrare ausente definitivamente. En la ausencia definitiva del Presidente, o Vicepresidente, deberá realizarse una nueva elección de entre el resto de Regidores propietarios.

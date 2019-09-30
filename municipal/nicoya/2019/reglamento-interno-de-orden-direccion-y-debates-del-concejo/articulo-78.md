@@ -1,0 +1,3 @@
+ARTÍCULO 78. COMISIONES. PLAZO DEL NOMBRAMIENTO
+Los miembros de las comisiones permanentes durarán en sus cargos dos años, no obstante, el Presidente del Concejo, podrá ejercer las atribuciones establecidas en el artículo cuarenta y nueve del Código Municipal, siendo que su conformación podrá variarse anualmente.
+Los miembros de las comisiones permanentes podrán renunciar a pertenecer a ellas, pero conservándose la obligación de trabajar en otras.

@@ -1,0 +1,2 @@
+ARTÍCULO 62. COMISIONES. ASISTENTES A REUNIONES
+Los funcionarios municipales administrativos, el Alcalde, los asesores del Concejo y los vecinos del cantón, podrán participar, si así lo dispone el Presidente (a) de la comisión respectiva, en calidad de asistentes, sin derecho a voto, en las comisiones permanentes o especiales. La comisión según sus necesidades, podrá hacerse asesorar por peritos o expertos en la materia, en calidad de ad honorem.
