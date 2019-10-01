@@ -1,0 +1,1 @@
+Artículo 6°—Deróguense los Decretos Ejecutivos números 41319-H del 10 de setiembre de 2018, 41320-H del 14 de setiembre de 2018 y 41799-H del 11 de junio de 2019, publicados los dos primeros en el Alcance número 176 a La Gaceta número 180 del 01 de octubre de 2018 y el tercero en el Alcance número 143 a La Gaceta número 118 del 25 de junio de 2019.
