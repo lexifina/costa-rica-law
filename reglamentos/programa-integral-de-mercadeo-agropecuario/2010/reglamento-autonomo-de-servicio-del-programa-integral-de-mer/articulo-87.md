@@ -1,1 +1,1 @@
-ARTÍCULO 87: En el supuesto de quien sea denunciado sea uno de los integrantes del Órgano Director, el Consejo Directivo designará un suplente Ad Hoc.
+ARTÍCULO 87: (Derogado por el artículo 24 del Reglamento para el trámite de denuncias por acoso u hostigamiento sexual del Programa Integral de Mercadeo Agropecuario, publicado en La Gaceta N° 185 del 1° de octubre del 2019)

@@ -1,1 +1,1 @@
-ARTÍCULO 89: El Órgano receptor de la denuncia será el Área de Recursos Humanos quien lo hará de conocimiento del Gerente, salvo que el denunciado sea el mismo Gerente, para lo cual se remitirá el caso a la Junta Directiva.
+ARTÍCULO 89: (Derogado por el artículo 24 del Reglamento para el trámite de denuncias por acoso u hostigamiento sexual del Programa Integral de Mercadeo Agropecuario, publicado en La Gaceta N° 185 del 1° de octubre del 2019)

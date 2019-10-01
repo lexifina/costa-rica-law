@@ -1,1 +1,1 @@
-ARTÍCULO 88: Prevalecerá siempre en este proceso los principios de economía y celeridad procesal.
+ARTÍCULO 88: (Derogado por el artículo 24 del Reglamento para el trámite de denuncias por acoso u hostigamiento sexual del Programa Integral de Mercadeo Agropecuario, publicado en La Gaceta N° 185 del 1° de octubre del 2019)

@@ -1,1 +1,1 @@
-ARTÍCULO 85: La persona denunciante de hostigamiento u acoso, así como los testigos, gozarán de las garantías y derechos previstos en la Ley 7476 del 3 de febrero de 1995, en relación con su empleo y condiciones generales de trabajo.
+ARTÍCULO 85: (Derogado por el artículo 24 del Reglamento para el trámite de denuncias por acoso u hostigamiento sexual del Programa Integral de Mercadeo Agropecuario, publicado en La Gaceta N° 185 del 1° de octubre del 2019)

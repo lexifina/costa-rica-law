@@ -1,1 +1,1 @@
-ARTÍCULO 83: El procedimiento a seguir y las sanciones aplicables por hostigamiento o acoso, se tramitarán de conformidad con lo establecido en el Capítulo XX de este Reglamento.
+ARTÍCULO 83: (Derogado por el artículo 24 del Reglamento para el trámite de denuncias por acoso u hostigamiento sexual del Programa Integral de Mercadeo Agropecuario, publicado en La Gaceta N° 185 del 1° de octubre del 2019)

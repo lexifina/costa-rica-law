@@ -1,1 +1,1 @@
-ARTÍCULO 90: En todo procedimiento será deber ineludible del Órgano Director velar por la honra e imagen de las partes.
+ARTÍCULO 90: (Derogado por el artículo 24 del Reglamento para el trámite de denuncias por acoso u hostigamiento sexual del Programa Integral de Mercadeo Agropecuario, publicado en La Gaceta N° 185 del 1° de octubre del 2019)

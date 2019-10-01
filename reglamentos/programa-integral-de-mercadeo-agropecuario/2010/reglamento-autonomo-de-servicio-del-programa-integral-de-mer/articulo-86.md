@@ -1,1 +1,1 @@
-ARTÍCULO 86: El órgano director estará integrado por los funcionarios y funcionarias que designe el Gerente y cuando el Consejo Directivo así lo indique se incluirá un directivo o su representante destinado al efecto por el Consejo Directivo.
+ARTÍCULO 86: (Derogado por el artículo 24 del Reglamento para el trámite de denuncias por acoso u hostigamiento sexual del Programa Integral de Mercadeo Agropecuario, publicado en La Gaceta N° 185 del 1° de octubre del 2019)
