@@ -1,0 +1,36 @@
+DIRECCIÓN GENERAL DE TRIBUTACIÓN
+RESOLUCIÓN LISTADO DE PAÍSES NO COOPERANTES
+N° DGT-R-55-2019.—San José, a las ocho y cinco horas del 20 de setiembre del dos mil diecinueve.
+Considerando:
+I.—Que el artículo 99 del Código de Normas y Procedimientos Tributarios, Ley N°4755 del 3 de mayo de 1971, faculta a la Administración Tributaria para dictar normas generales tendientes a la correcta aplicación de las leyes tributarias, dentro de los límites que fijen las disposiciones legales y reglamentarias pertinentes.
+II.—Que mediante la Ley N° 9635, Ley de Fortalecimiento de las Finanzas Públicas, del tres de diciembre del año dos mil dieciocho, se adicionó el inciso k) del artículo 9, a la Ley del Impuesto sobre la Renta, en el cual se indica que no son gastos deducibles a la renta bruta, aquellos que correspondan a operaciones realizadas, directa o indirectamente, con personas o entidades residentes en países o territorios calificados por la Administración Tributaria como países no cooperantes, excepto que el sujeto pasivo pruebe que el gasto devengado responde a una operación o transacción efectivamente realizada.
+III.—Que en el precitado inciso k) del artículo 9 de la Ley del impuesto sobre la renta se señalan dos condiciones por las cuales se debe calificar a una jurisdicción no cooperante. A saber i) que la tarifa nominal del impuesto del país o territorio sea inferior al 40% de la tarifa establecida en el inciso a) de artículo 15 de la Ley del Impuesto sobre la Renta, o ii) que se trate de jurisdicciones con las cuales no se haya suscrito un convenio de intercambio de información o un convenio de doble imposición con cláusulas de intercambio de información.
+IV.—Que de conformidad con lo establecido en el artículo 12 bis del Reglamento del Impuesto sobre la Renta, la Administración Tributaria debe actualizar y publicar el listado de jurisdicciones no cooperantes, en el sitio web del Ministerio de Hacienda, al menos una vez al año.
+V.—Que conforme a lo indicado en el artículo 12 bis del Reglamento del Impuesto sobre la Renta, entre los acuerdos internacionales para el intercambio de información se debe considerar la Convención Multilateral de Asistencia Administrativa Mutua en Materia Fiscal (Ley N° 9118 del 7 de julio de 2013) y el Convenio de Asistencia Mutua y Cooperación Técnica entre las Administraciones Tributarias y Aduaneras de Centroamérica (Ley N° 8880 del 1 de noviembre de 2010), así como los convenios bilaterales o multilaterales de intercambio de información, incluso los convenios para evitar la doble imposición que contengan una cláusula para el intercambio de información.
+VI.—Los países con los cuales Costa Rica ha iniciado un proceso de negociación tendiente a suscribir convenios de doble imposición o de intercambio de información, no se calificarán como países no cooperantes, con el fin de garantizar la buena fe de los procesos negociación de estos acuerdos.
+VII.—Que se reconoce como uno de los principales riesgos fiscales, la erosión de la base imponible mediante el traslado de beneficios a países con una tasa de impuesto significativamente menor a la establecida en Costa Rica, y además que no se cuente con los convenios que permitan el intercambio de información con esos países o territorios, con lo cual la Administración Tributaria pueda verificar la sustancia y valoración de las operaciones declaradas. En este sentido, el cumplimiento de las dos condiciones contenidas en los apartes i y ii del inciso K) del artículo 9 ya citado, constituye una presunción legal que autoriza a la Administración Tributaria a rechazar el gasto declarado por el contribuyente del Impuesto sobre las Utilidades, presunción que la propia norma legal le reconoce un efecto “iuris tantum”. Esta presunción tiene por característica el que pueda ser desvirtuada por la existencia de una prueba en contrario capaz de demostrar que se debe aplicar en consecuencia el efecto jurídico que señala la norma del artículo 9 citada, cual es que el gasto deba ser reconocido por la Administración. Esta prueba en contrario aplica sólo si se presentan dos situaciones: que el gasto haya sido efectivamente devengado y además, que el pago responda a una operación o transacción efectivamente realizada (prestación del servicio o venta de un bien). No obstante que la Ley define dos condiciones independientes una de la otra para considerar a una jurisdicción como no cooperante, lo cual, tal y como se ha dicho implica en consecuencia el rechazo del gasto, lo cierto es que bajo una integración de las normas así como una interpretación finalista, amparada a los métodos de interpretación jurídica contenidos en el artículo 10 del Código Civil, si dicha jurisdicción mantiene vigente un convenio para el intercambio de información o para evitar la doble imposición con cláusula para el intercambio de información, la Administración podrá verificar por sí misma la veracidad del gasto y su pago, a través de los mecanismos que prevé el respectivo convenio, siendo innecesario cargar al obligado tributario con un trámite ante la Administración Tributaria. De esta manera, pierde sentido incluir dentro de la lista de jurisdicciones no cooperantes, aquellas que cumplan con el supuesto establecido en el subinciso i. del inciso k) del artículo 9 ya citado pero mantengan vigente un convenio para el intercambio de información o para evitar la doble imposición con cláusula para el intercambio de información.
+VIII.—Que en virtud de la urgencia y el interés público en la aplicación correcta del Reglamento a la Ley del Impuesto sobre la Renta, no se requiere la publicación, según lo permite el ordinal 174 del Código de Normas y Procedimientos Tributarios, como tampoco del procedimiento de control previo de mejora regulatoria que regula el Ministerio de Economía, Industria y Comercio, ya que la presente regulación no crea ni modifica trámites ni requisitos a los administrados. Por tanto,
+RESUELVE:
+Artículo 1º—Listado de países no cooperantes. Los siguientes países y territorios tienen la consideración de países no cooperantes, a efectos de la aplicación del inciso k) del artículo 9 de la Ley del Impuesto sobre la Renta y el artículo 12 bis de su Reglamento, debido a que cumplen con la condición de tener una tarifa de impuesto a las utilidades menor a un 40% de la tarifa establecida en el artículo 15 de la Ley del Impuesto sobre la Renta y no haber suscrito convenios de intercambio de información ni convenios para evitar la doble tributación, con cláusulas de intercambio de información.
+Listado de países no cooperantes
+Bosnia y Herzegovina
+Corea del Norte
+Cuba
+Eritrea
+Guadalupe
+Irak
+Islas Norkfolk
+Islas Vírgenes de los Estados Unidos de América
+Kirguistán
+North Macedonia
+Maldivas
+Martinica
+Montenegro
+Omán
+Palestina
+Polinesia Francesa
+Reunión
+San Pedro y Miquelón
+Timor-Leste
+Uzbekistán
+Wallis y Futuna
