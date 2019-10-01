@@ -14,3 +14,4 @@ Reglamento para el homenaje al hijo predilecto del cantón de Poás
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-04-11 | la propia norma |
+| 2 | 2019-10-01 | Reglamento municipal 179 (2019-10-01) |
