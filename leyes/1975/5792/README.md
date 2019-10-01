@@ -1,6 +1,6 @@
 # Crea Timbre Agrario e Impuesto Consumo Cigarrillos y Bebidas
 
-Ley N° 5792 del 1975-09-01. SINALEVI, ficha 2206: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=2206&param2=116785&param3=1>.
+Ley N° 5792 del 1975-09-01. SINALEVI, ficha 2206: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=2206&param2=117910&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -34,3 +34,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 26 de 60 | 2019-01-01 | Resolución 82 (2018-11-23) | 2018-11-23 |
 | 27 de 60 | 2019-04-01 | Resolución 9 (2019-02-12) | 2019-02-12 |
 | 28 de 60 | 2019-07-01 | Resolución 17 (2019-05-10) | 2019-05-10 |
+| 29 de 60 | 2019-10-01 | Resolución 46 (2019-08-21) | 2019-08-21 |
