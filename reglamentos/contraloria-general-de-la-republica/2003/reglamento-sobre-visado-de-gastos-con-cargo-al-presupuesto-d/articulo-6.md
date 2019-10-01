@@ -1,3 +1,6 @@
-Artículo 6º-Emisión de directrices, lineamientos e instructivos para el proceso de visado.
-1. La Contraloría General de la República emitirá y actualizará las directrices, lineamientos e instructivos del proceso de visado, los cuales serán considerados por los rectores del Sistema y Subsistemas de la Administración Financiera en la emisión de la normativa de su competencia.
-2. Las disposiciones señaladas por la Contraloría General de la República en las directrices, lineamientos e instructivos son de acatamiento obligatorio, constituyen un mínimo aplicable por parte de la Administración Activa y no la eximen de la implantación oportuna de otros mecanismos de control no contemplados que considere necesarios.
+Artículo 6. Emisión de normativa
+1. La Contraloría General de la República, en caso de requerirse, emitirá y actualizará normativa para complementar el proceso de visado, la cual será considerada por los rectores del Sistema y Subsistemas de la Administración Financiera en la emisión de la normativa de su competencia.
+2. Las disposiciones señaladas por la Contraloría General de la República en su normativa son de acatamiento obligatorio, constituyen un mínimo aplicable por parte de la Administración Activa y no la eximen del desarrollo oportuno de otros mecanismos de control que considere necesarios.
+3. En el ejercicio de sus competencias, el Ministerio de Hacienda como rector del Sistema de Administración Financiera, podrá emitir la normativa que al efecto considere necesaria para regular aspectos específicos de la operativización del proceso de visado.
+La normativa relacionada con el proceso de visado que emita el Ministerio de Hacienda en el ejercicio de sus competencias como órgano rector del Sistema de Administración Financiera, deberá observar la normativa aplicable, emitida por la Contraloría General de la República.
+(Así reformado por el artículo 3° de la resolución N° R-DC-70-2019 del 1° de octubre del 2019)
