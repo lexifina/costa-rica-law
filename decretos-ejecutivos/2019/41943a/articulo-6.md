@@ -1,0 +1,2 @@
+Artículo 6. Actividades accesorias a la actividad agropecuaria.
+Tendrán la consideración de “actividades accesorias” a la actividad agropecuaria, encontrándose sujetas a las regulaciones previstas para el régimen especial, aquellas inherentes y derivadas de la actividad agropecuaria; que no impliquen la ordenación autónoma de factores de producción para su obtención; y que los ingresos provenientes de éstas, no representen más del 15% (quince por ciento) del total de los ingresos percibidos, durante el periodo fiscal del impuesto sobre las utilidades.

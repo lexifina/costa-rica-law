@@ -1,0 +1,4 @@
+Artículo 7. Fase preoperativa en la actividad agropecuaria
+Se entenderá por fase preoperativa, la etapa comprendida desde la inscripción como contribuyente en dicha fase en el Registro Único Tributario y hasta el inicio de las operaciones, entendido éste, como el momento en que el activo biológico o plantío ya esté dispuesto a producir frutos y se dispongan a la comercialización al mercado; contando con un plazo máximo para iniciar dichas operaciones de hasta cuatro años, de conformidad con el artículo 17 de la Ley del impuesto sobre el valor agregado.
+Una vez finalizada esta etapa, deberá realizarse la respectiva modificación de datos en el Registro Único Tributario, inscribiendo la actividad correspondiente, según el artículo 13 del presente reglamento.
+Entiendase aplicable a la definición de adquisiciones en fase preoperativa, la compra de bienes o servicios, necesarios para el ejercicio de la actividad agropecuaria.

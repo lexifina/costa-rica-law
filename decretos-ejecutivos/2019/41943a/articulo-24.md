@@ -1,0 +1,9 @@
+Artículo 24. Periodo del impuesto.
+El período del impuesto sobre el valor agregado, para aquellos contribuyentes que únicamente realicen actividades agropecuarias, actividades accesorias a éstas, o presten servicios agropecuarios de conformidad con el artículo 5 del presente reglamento y se encuentren acogidos al Régimen Especial Agropecuario; dependerá de la actividad agropecuaria que se desarrolle, a saber:
+1. En las siguientes actividades el período del impuesto será anual, coincidiendo con el período del impuesto sobre las utilidades, comprendido del 1 de enero al 31 de diciembre de cada año, salvo que el contribuyente por la actividad agropecuaria o bien por la actividad no agropecuaria posea un período especial del impuesto a las utilidades, en cuyo caso el período anual del impuesto sobre el valor agregado se ajustará al período de utilidades:
+a. Cultivo de caña.
+b. Cultivo de café.
+c. Producción de miel (Apicultura).
+En el caso de los productores que realizan actividades agropecuarias y accesorias, el periodo del impuesto para el total de las operaciones, será el aplicable a la actividad agropecuaria principal.
+2. Para las demás actividades y para quienes prestan servicios de los indicados en el artículo 5 del presente reglamento de manera exclusiva a productores agropecuarios, el período será cuatrimestral, abarcando de enero a abril, de mayo a agosto, y de setiembre a diciembre de cada año.
+Cuando el contribuyente realice actividades con periodo anual y cuatrimestral, el periodo de impuesto que prevalecerá será el cuatrimestral, debiendo declarar ambas actividades en una única declaración y cuando el contribuyente además de la actividad agropecuaria o servicios agropecuarios realice operaciones sujetas al régimen general, el periodo de impuesto para todas sus actividades será mensual.

@@ -1,0 +1,3 @@
+Transitorio IV
+Los contribuyentes antes del mes de setiembre de 2019 que se acojan al régimen especial agropecuario y cuyo período de impuesto sea cuatrimestral, por una única vez, tendrán un período trimestral que comprenderá del mes de octubre de 2019 al mes de diciembre de 2019. En estos casos, debe presentarse la declaración respectiva y pagar el impuesto correspondiente, a más tardar el día 15 de enero de 2020.
+Los contribuyentes inscritos durante el mes de setiembre de 2019 y que se acojan al régimen especial agropecuario podrán presentar la primera declaración el 15 de enero de 2020, considerando los meses de setiembre, octubre, noviembre y diciembre.

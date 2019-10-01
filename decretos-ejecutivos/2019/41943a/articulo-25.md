@@ -1,0 +1,3 @@
+Artículo 25. Declaración de impuestos.
+Los contribuyentes que únicamente realicen actividades agropecuarias o servicios agropecuarios detallados en los artículos 2 y 5 del presente reglamento, utilizarán un formulario de declaración simplificado, exclusivo para el régimen especial agropecuario, el cual será comunicado mediante resolución de alcance general por parte de la Administración Tributaria.
+Aquellos contribuyentes del régimen especial agropecuario, que además realicen otras actividades sujetas al régimen general, deberán declarar mediante el formulario establecido para éste último, en el cual se incluirán las operaciones correspondientes a ambos regímenes.

@@ -1,0 +1,2 @@
+Transitorio VIII.
+Los contribuyentes sujetos al régimen general, que para respaldar las adquisiciones que realicen a contribuyente del régimen especial agropecuario, contarán con un plazo máximo de 3 meses a partir de la entrada en vigencia del presente reglamento para realizar los ajustes necesarios en los sistemas internos y de facturación electrónica, debiendo informar a la Administración Tributaria en el mes de octubre que harán uso de la prórroga que comprenderá los meses de octubre, noviembre y diciembre.

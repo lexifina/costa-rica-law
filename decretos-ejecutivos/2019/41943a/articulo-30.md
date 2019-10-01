@@ -1,0 +1,2 @@
+Artículo 30. Consideraciones especiales de la producción de arroz.
+El Agroindustrial definido como tal en la Ley N° 8285 de Creación de la Corporación Arrocera que adquiera arroz a productores registrados como tales en el régimen especial agropecuario, emitirá a éstos la respectiva factura electrónica de compra, una vez que se hayan practicado los respectivos análisis para la determinación del precio y se conozca el mismo.
