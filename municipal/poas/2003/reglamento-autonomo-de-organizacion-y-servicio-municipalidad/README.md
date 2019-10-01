@@ -17,3 +17,4 @@ Reglamento Autónomo de Organización y Servicio Municipalidad de Poás.
 | 2 | 2004-07-13 | Reglamento municipal 113 (2004-07-13) |
 | 3 | 2006-09-26 | Reglamento municipal 22 (2006-09-26) |
 | 4 | 2007-06-04 | Reglamento municipal 58 (2007-06-04) |
+| 5 | 2019-10-01 | Reglamento municipal 179 (2019-10-01) |

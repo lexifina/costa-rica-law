@@ -1,1 +1,2 @@
-Artículo 47.—La evaluación y calificación de servicios se hará efectiva en la primera quincena del mes de junio de cada año. El Encargado de Recursos Humanos velará porque cada jefe cumpla esta disposición.
+Artículo 47.—El incentivo por anualidad se reconocerá en la primera quincena del mes de junio de cada año.
+(Así reformado mediante sesión ordinaria N° 179-2019 del 1° de octubre del 2019)

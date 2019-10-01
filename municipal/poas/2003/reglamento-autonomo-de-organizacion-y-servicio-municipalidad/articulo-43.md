@@ -1,3 +1,4 @@
 CAPÍTULO XI
 De la evaluación y calificación del desempeño
-Artículo 43.—El desempeño de las o los servidores nombrados en propiedad será evaluado y calificado como mínimo una vez al año; la calificación se expresará en términos de excelente, muy bueno, bueno, regular, según se establece de conformidad con los artículos del 135 al 141 del Código Municipal.
+Artículo 43.—La evaluación de desempeño se realizará según lo establecido en la Ley 2166 el Reglamento del Título III de la Ley Fortalecimiento de las Finanzas Públicas, Ley N° 9635 referente al Empleo Público y supletoriamente lo que indique el Código Municipal.
+(Así reformado mediante sesión ordinaria N° 179-2019 del 1° de octubre del 2019)

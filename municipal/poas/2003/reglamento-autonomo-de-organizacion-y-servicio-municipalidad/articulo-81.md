@@ -1,4 +1,5 @@
-Artículo 81.—De conformidad con el inciso e), del artículo 146 del Código Municipal, las o los trabajadores disfrutarán de sus vacaciones anuales, en la siguiente forma:
+Artículo 81.—De conformidad con el inciso e), del artículo 155 del Código Municipal, las o los trabajadores disfrutarán de sus vacaciones anuales, en la siguiente forma:
+(Así reformado el párrafo anterior mediante sesión ordinaria N° 179-2019 del 1° de octubre del 2019)
 Disfrutarán de una vacación anual de acuerdo con el tiempo consecutivo servido en la siguiente forma:
 1) Si han trabajado un tiempo de cincuenta semanas a cuatro años y cincuenta semanas, gozarán de quince días hábiles de vacaciones.
 2) Si han trabajado durante un tiempo de cinco años y cincuenta semanas a nueve años y cincuenta semanas, gozarán de veinte días hábiles de vacaciones.

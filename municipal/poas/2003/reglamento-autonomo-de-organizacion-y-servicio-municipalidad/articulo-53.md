@@ -4,4 +4,5 @@ b) Cuando incurra en una falta o causal de despido.
 c) Renuncia debidamente aceptada.
 d) Fallecimiento o invalidez total o permanente debidamente declarada.
 e) Cuando se cumpla el plazo para el cual fue contratado.
-f) Por un proceso de reorganización municipal, según lo establecido en el artículo 146, inciso b), del Código Municipal.
+f) Por un proceso de reorganización municipal, según lo establecido en el artículo 155, inciso b) del Código Municipal.
+(Así reformado el inciso anterior mediante sesión ordinaria N° 179-2019 del 1° de octubre del 2019)
