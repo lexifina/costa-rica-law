@@ -1,0 +1,3 @@
+Artículo 2.- Conceptos.Para los efectos aplicación del presente Decreto Ejecutivo, se entenderá por:
+Regularización: La autorización que emita la Dirección General de Migración y Extranjería(en adelante DGME), que permitirá a las personas extranjeras permanecer legalmente en el país y laborar en actividades agropecuarias; adcionalmente, le permitirá al Estado actualizar, ordenar y formalizar los registros migratorios y disminuir la tasa de informalidad migratoria.
+Actividades agropecuarias: Las actividades laborales que se realicen por cuenta propia o en relación de dependencia tendientes a la producción de bienes y servicios económicos durante un período específico, que comprende la explotación, cultivo, cosecha, cría y reproducción de recursos vegetales y animales.

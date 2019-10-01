@@ -1,0 +1,1 @@
+Artículo 8.- Recursos contra la resolución de la solicitud. En caso de la que solicitud de la presente categoría especial sea denegada, se aplicará lo que establecen el artículo 221 y siguientes y concordantes de la Ley General de Migración y Extranjería.
