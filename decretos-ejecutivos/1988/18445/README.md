@@ -31,3 +31,4 @@ Reglamento a Ley del Impuesto sobre la Renta
 | 16 | 2017-10-26 | Decreto Ejecutivo 40728 (2017-10-26) |
 | 17 | 2018-06-18 | Decreto Ejecutivo 41274 (2018-06-18) |
 | 18 | 2019-06-17 | Decreto Ejecutivo 41818 (2019-06-17) |
+| 19 | 2019-10-01 | Decreto Ejecutivo 41943 (2019-10-01) |
