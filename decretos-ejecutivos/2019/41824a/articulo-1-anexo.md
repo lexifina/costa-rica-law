@@ -413,6 +413,30 @@ bovinos, porcinos, caprinos y ovinos.
 409. Válvulas de todo tipo para la actividad agropecuaria
 410. Zanjeadores agrícolas sin motor, accionadas por toma de fuerza del tractor
 411. Zetas de metal para transporte de banano dentro de la finca
+412 Alimentos concentrados.
+(Así adicionado el inciso anterior por el artículo 7° del decreto ejecutivo N° 41943 del 1° de octubre del 2019 “Aprueba la Constitución del Régimen Especial de Tributación para el sector agropecuario relativo al Impuesto sobre el Valor Agregado”)
+413 Almácigo.
+(Así adicionado el inciso anterior por el artículo 7° del decreto ejecutivo N° 41943 del 1° de octubre del 2019 “Aprueba la Constitución del Régimen Especial de Tributación para el sector agropecuario relativo al Impuesto sobre el Valor Agregado”)
+414 Aserrín para uso agropecuario.
+(Así adicionado el inciso anterior por el artículo 7° del decreto ejecutivo N° 41943 del 1° de octubre del 2019 “Aprueba la Constitución del Régimen Especial de Tributación para el sector agropecuario relativo al Impuesto sobre el Valor Agregado”)
+415 Azúcar para apicultura.
+(Así adicionado el inciso anterior por el artículo 7° del decreto ejecutivo N° 41943 del 1° de octubre del 2019 “Aprueba la Constitución del Régimen Especial de Tributación para el sector agropecuario relativo al Impuesto sobre el Valor Agregado”)
+416 Burucha para uso agropecuarios.
+(Así adicionado el inciso anterior por el artículo 7° del decreto ejecutivo N° 41943 del 1° de octubre del 2019 “Aprueba la Constitución del Régimen Especial de Tributación para el sector agropecuario relativo al Impuesto sobre el Valor Agregado”)
+417 Cocimientos de cebada para la alimentación de animales de interés pecuario
+(Así adicionado el inciso anterior por el artículo 7° del decreto ejecutivo N° 41943 del 1° de octubre del 2019 “Aprueba la Constitución del Régimen Especial de Tributación para el sector agropecuario relativo al Impuesto sobre el Valor Agregado”)
+418 Escobones.
+(Así adicionado el inciso anterior por el artículo 7° del decreto ejecutivo N° 41943 del 1° de octubre del 2019 “Aprueba la Constitución del Régimen Especial de Tributación para el sector agropecuario relativo al Impuesto sobre el Valor Agregado”)
+419 Ganchas de uso agrícola.
+(Así adicionado el inciso anterior por el artículo 7° del decreto ejecutivo N° 41943 del 1° de octubre del 2019 “Aprueba la Constitución del Régimen Especial de Tributación para el sector agropecuario relativo al Impuesto sobre el Valor Agregado”)
+420 Gallinaza, pollinaza y cerdaza para usos agropecuarios (alimentación animal o fertilización).
+(Así adicionado el inciso anterior por el artículo 7° del decreto ejecutivo N° 41943 del 1° de octubre del 2019 “Aprueba la Constitución del Régimen Especial de Tributación para el sector agropecuario relativo al Impuesto sobre el Valor Agregado”)
+421 Granza de arroz.
+(Así adicionado el inciso anterior por el artículo 7° del decreto ejecutivo N° 41943 del 1° de octubre del 2019 “Aprueba la Constitución del Régimen Especial de Tributación para el sector agropecuario relativo al Impuesto sobre el Valor Agregado”)
+422 Postes para cercas (madera, cemento, plásticos, o estacas para cercas vivas)
+(Así adicionado el inciso anterior por el artículo 7° del decreto ejecutivo N° 41943 del 1° de octubre del 2019 “Aprueba la Constitución del Régimen Especial de Tributación para el sector agropecuario relativo al Impuesto sobre el Valor Agregado”)
+423 Subproductos agroindustriales para la alimentación de animales de interés pecuario.
+(Así adicionado el inciso anterior por el artículo 7° del decreto ejecutivo N° 41943 del 1° de octubre del 2019 “Aprueba la Constitución del Régimen Especial de Tributación para el sector agropecuario relativo al Impuesto sobre el Valor Agregado”)
 B. Los siguientes productos veterinarios aprobados por SENASA
 l. Anestésicos
 2. Antibióticos sulfanados

@@ -1,3 +1,4 @@
 DISPOSICIONES TRANSITORIAS
-TRANSITORIO I.-
-Los bienes y servicios contenidos en el presente reglamento y sus anexos, se mantendrán exonerados del Impuesto sobre el Valor Agregado hasta el 30 de junio del año 2020, pasando a estar gravados con la tarifa del 1 % del IV A a partir del 1 de julio de 2020.
+Transitorio I
+Los bienes y servicios contenidos en el presente reglamento y en los anexos 1, 2 y 3, se mantendrán exonerados del impuesto sobre el valor agregado hasta el 30 de junio del año 2020, pasando a estar gravados con la tarifa del 1% del impuesto sobre el valor agregado, a partir del 1 de julio de 2020; los servicios del anexo 4 se mantendrán exonerados del impuesto sobre el valor agregado para los productores agropecuarios de canasta básica tributaria, hasta el 30 de junio del año 2020, pasando a estar gravados con la tarifa del 1% del impuesto sobre el valor agregado, a partir del 1 de julio de 2020.
+(Así reformado por el artículo 5° del decreto ejecutivo N° 41943 del 1° de octubre del 2019, “Aprueba la Constitución del Régimen Especial de Tributación para el sector agropecuario relativo al Impuesto sobre el Valor Agregado”)

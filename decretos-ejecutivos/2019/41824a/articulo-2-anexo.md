@@ -85,3 +85,5 @@ Toma de fuerza trasera, lateral o delantera para poner en acción distintos impl
 80. Túnel de secado para uso exclusivo en la actividad agropecuaria
 81. Túnel de sello de seguridad uso exclusivo en la actividad agropecuaria
 82. Ventiladores para enfriamiento de ganado
+83 Molino a viento y sus accesorios para uso agropecuario
+(Así adicionado el inciso anterior por el artículo 7° del decreto ejecutivo N° 41943 del 1° de octubre del 2019 “Aprueba la Constitución del Régimen Especial de Tributación para el sector agropecuario relativo al Impuesto sobre el Valor Agregado”)
