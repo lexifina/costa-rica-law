@@ -1,0 +1,1 @@
+Artículo 21.—En las contrataciones de outsourcing que tenga Programa Integral de Mercadeo Agropecuario, se incluirán reglas con la Empresa externa que se trate, que garanticen el cumplimiento de la Ley 7476 y sus reformas en caso de denuncias por hostigamiento sexual contra alguno de los empleados de esa empresa externa.

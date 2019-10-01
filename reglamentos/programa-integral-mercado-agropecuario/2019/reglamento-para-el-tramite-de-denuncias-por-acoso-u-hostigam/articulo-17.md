@@ -1,0 +1,1 @@
+Artículo 17.—El plazo para interponer la denuncia es de dos años que se computarán a partir del último hecho consecuencia del hostigamiento sexual o a partir de que cesó la causa justificada que le impidió denunciar.
