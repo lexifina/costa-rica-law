@@ -14,3 +14,4 @@ Reglamento de comprobantes electrónicos para efectos tributarios
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-07-01 | la propia norma |
+| 2 | 2019-10-01 | Decreto Ejecutivo 41943 (2019-10-01) |
