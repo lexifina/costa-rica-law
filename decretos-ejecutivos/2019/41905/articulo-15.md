@@ -1,0 +1,11 @@
+Artículo 15º.- Funciones del Comité Permanente de Seguimiento y Mejora Regulatoria Regional. El Comité Permanente de Seguimiento y Mejora Regulatoria Regional, en ejercicio de su función establecida en el artículo anterior, velará porque se introduzca cuando la infraestructura tecnológica así lo permita, el funcionamiento total del trámite por medios electrónicos.
+Dicho Comité tendrá además de las indicadas, las siguientes funciones:
+a) Coordinar el trabajo de Mejora Regulatoria en las Municipalidades de Carrillo, Santa Cruz, Nicoya, Hojancha, Nandayure y los Concejos Municipales de Distrito de Lepanto y Cóbano en el proceso de apertura, actualización y renovación de empresas.
+b) Elaborar planes de acción y propuestas de mejora en procesos con acciones realizables para plazos determinados.
+c) Dar seguimiento a cada una de las acciones de mejora implementadas, tomando decisiones respecto a mejoras que no han sido solucionadas.
+d) Velar por el cumplimiento de las recomendaciones emanadas de cada plan de acción generado.
+e) Coordinar la respectiva divulgación de los resultados obtenidos.
+f) Fijar y coordinar el monitoreo que deberán realizar en cada municipalidad o institución involucrada en el proceso, el cual, tendrá como objetivo verificar el cumplimiento de los plazos de resolución y el procedimiento de apertura, renovación y solicitud de actividades establecidas en el presente Reglamento.
+g) Elaborar un informe anual sobre el proceso de simplificación para inicio y renovación de empresas en las municipalidades de Carrillo, Santa Cruz, Nicoya, Hojancha, Nandayure y los Concejos Municipales de Distrito de Lepanto y Cóbano, el cual deberá ser presentado en la primera semana de diciembre de cada año a cada una de las municipalidades que integran el Comité y al MEIC (Ministerio de Economía, Industria y Comercio).
+h) Gestionar ante órganos u entes públicos, empresas privadas u órganos internacionales, los instrumentos tecnológicos para mejorar el registro, control y custodia de los expedientes abiertos para el proceso de simplificación de trámites.
+i) Nombrar entre sus integrantes un coordinador y un secretario, cargos que no pueden recaer ninguno en el abogado del Comité.

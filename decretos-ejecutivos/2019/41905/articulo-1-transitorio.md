@@ -1,0 +1,1 @@
+Transitorio Único. El administrado que hubiese iniciado los trámites de solicitud del certificado de habilitación, antes de la entrada en vigencia de este Reglamento, continuará con el proceso bajo las condiciones vigentes al momento de iniciado el trámite.

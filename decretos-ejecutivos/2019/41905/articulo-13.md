@@ -1,0 +1,1 @@
+Artículo 13º.- Expediente Administrativo. La Municipalidad es la encargada de archivar y custodiar el expediente administrativo. Deberá emitir las certificaciones correspondientes cuando le sea requerido. Dicho expediente deberá ser de libre acceso para las instituciones señaladas en el presente Reglamento.
