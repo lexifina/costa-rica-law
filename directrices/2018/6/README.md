@@ -14,3 +14,4 @@ Procedimiento administrativo para la recuperación de acreditaciones que no corr
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-05-04 | la propia norma |
+| 2 | 2019-10-03 | Directriz 1 (2019-10-03) |
