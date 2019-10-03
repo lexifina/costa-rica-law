@@ -14,3 +14,4 @@ Reglamento interno de compras del Programa Integral de mercadeo Agropecuario
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-01-14 | la propia norma |
+| 2 | 2019-10-03 | Reglamento 0 (2019-10-03) |
