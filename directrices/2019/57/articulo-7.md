@@ -1,0 +1,1 @@
+Artículo 7º—Las sanciones por discriminación por razones étnico-raciales se aplicarán según la gravedad de los hechos y según las sanciones contempladas en los reglamentos internos del Ministerio de Educación Pública.

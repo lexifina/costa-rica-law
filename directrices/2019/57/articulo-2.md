@@ -1,0 +1,1 @@
+Artículo 2º—El Ministerio de Educación Pública fomentará en los centros educativos espacios de intercambio entre las diferentes etnias y culturas que constituyen la vida activa de la sociedad costarricense, incluyendo las contribuciones de los grupos minoritarios al desarrollo de la sociedad y de una cultura esencialmente democrática, diversa y pluralista.

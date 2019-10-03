@@ -1,0 +1,1 @@
+Artículo 9º—Se insta a las instituciones públicas y privadas a que, dentro de sus posibilidades y sin afectar el cumplimiento de sus propios objetivos, apoyen y coordinen sus acciones afirmativas en conjunto con la Comisión Nacional de Estudios Afrocostarricenses en el contexto de sistema educativo formal.

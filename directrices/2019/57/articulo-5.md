@@ -1,0 +1,1 @@
+Artículo 5º—El Ministerio de Educación Pública procurará que la formación permanente del personal docente se oriente hacia el estudio y la promoción de la importancia de la cultura afrodescendiente en la construcción de la historia nacional costarricense.

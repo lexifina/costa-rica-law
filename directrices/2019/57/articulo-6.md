@@ -1,0 +1,1 @@
+Artículo 6º—El Ministerio de Comunicación, el Ministerio de Educación Pública y Ministerio de Cultura y Juventud realizarán una campaña nacional anual en los centros educativos para la promoción de una sociedad libre de discriminación étnico-racial.

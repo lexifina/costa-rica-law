@@ -1,0 +1,1 @@
+Artículo 4º—El Ministerio de Educación Pública generará e implementará protocolos, herramientas, procedimientos e instrumentos para procurar que los centros educativos sean espacios libres de discriminación étnico-racial.
