@@ -1,0 +1,1 @@
+Artículo 2º—En dicho proceso de arbitraje la Administración interesada, (Poder Ejecutivo-Ministerio de Obras Públicas y Transportes) deberá colaborar con la Procuraduría General de la República en todo lo que requiera y cubrir oportunamente los gastos del proceso.
