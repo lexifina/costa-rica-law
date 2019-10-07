@@ -1,0 +1,2 @@
+Artículo 6 El empleo y la orientación de la propaganda es responsabilidad de los candidatos que la presenten para su publicación, en los casos que se envíe a través de los medios masivos disponibles en el Colegio, el Tribunal no las calificará al publicarlas, pero podrá hacerlo posteriormente, o por acción de algún colegiado que presente queja al respecto.
+La propaganda debe ser dirigida a exaltar los méritos del candidato o la exposición de su programa de trabajo a la comunicación de sus ideas y proyectos que en forma colectiva o individual se propone realizar si es electo.
