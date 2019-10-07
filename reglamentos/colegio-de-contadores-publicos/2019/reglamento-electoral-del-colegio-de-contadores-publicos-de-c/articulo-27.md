@@ -1,0 +1,1 @@
+Artículo 27 - Serán considerados para el Proceso Electoral únicamente las colegiados debidamente registradas en el Padrón Electoral del Colegio de Contadores Públicos de Costa Rica al 31 de octubre del año anterior a las elecciones y las variaciones derivadas conforme a la aplicación del artículo 29 de este Reglamento y la Ley N°1038

@@ -1,0 +1,2 @@
+CAPITULO III: I ETAPA: CONVOCATORIA AL PROCESO ELECTORAL
+Artículo 6- La Convocatoria Oficial del Proceso Electoral será realizada por el Comité Electoral entre el 15 y el 30 de setiembre del año previo a las elecciones, a través de los medios de comunicación que disponga el Colegio de Contadores Públicos de Costa Rica que, como mínimo, deberá ser mediante comunicado oficial a las cuentas de correo electrónico registradas por los agremiados ante el Colegio y por el sitio web oficial www.ccpa.or.cr.

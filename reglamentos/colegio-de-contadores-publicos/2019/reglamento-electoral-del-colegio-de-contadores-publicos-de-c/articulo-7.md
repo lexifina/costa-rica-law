@@ -1,0 +1,1 @@
+Artículo 7- El óptimo desarrollo del Proceso Electoral debe ser administrado por el Comité Electoral, conforme al presente reglamento. El conocimiento de cualquier otro asunto que cuestione el actuar del Comité Electoral, será de conocimiento de la Asamblea General, quien decidirá lo que corresponda, en el mismo acto.

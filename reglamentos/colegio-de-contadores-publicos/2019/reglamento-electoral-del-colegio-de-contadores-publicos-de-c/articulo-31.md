@@ -1,0 +1,1 @@
+Artículo 31 - El Comité Electoral es nombrado por la Asamblea General antes del 30 de junio del año previo a las elecciones, está integrado por cinco (5) miembros propietarios y dos (2) suplentes, quienes pueden ser nombrados hasta por 3 años y reelegidos por períodos iguales, sucesivos hasta dos veces o alternos ilimitados.
