@@ -1,1 +1,0 @@
-Artículo 2°—Al entrar en vigencia la presente resolución, se deja sin efecto la actualización efectuada resolución N° RESDGH-024-2019, del cinco de abril del 2019, publicada en La Gaceta N° 78 del 29 de abril de 2019.
