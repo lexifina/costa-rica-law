@@ -1,0 +1,2 @@
+Artículo 20.-Responsabilidad del profesional. El Audiólogo que prescriba prótesis auditivas, es el responsable pleno de la misma y debe garantizar la información necesaria para que el despacho de las prótesis se realice correctamente.
+Al realizar la prescripción terapéutica de prótesis auditivas, el Audiólogo deberá brindar las recomendaciones técnicas pertinentes al paciente y los familiares o encargados, de conformidad con las necesidades auditivas de aquel.

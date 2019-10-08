@@ -1,0 +1,1 @@
+Artículo 9.- Estándares mínimos. Por ningún motivo se atenderá a los pacientes en espacios públicos abiertos que no cumplan con los estándares mínimos para brindar un servicio de calidad, tanto para la evaluación audiológica formal como para prescripción y despacho de prótesis auditivas, la adaptación de prótesis y seguimiento del proceso de rehabilitación auditiva.

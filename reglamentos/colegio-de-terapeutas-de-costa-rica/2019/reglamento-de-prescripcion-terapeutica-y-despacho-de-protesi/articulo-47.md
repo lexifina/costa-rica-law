@@ -1,0 +1,1 @@
+Artículo 47.- Inspección. El Colegio de Terapeutas por medio de la Fiscalía, inspeccionará los establecimientos audiológicos con el fin de determinar el cumplimiento de la presente normativa, así como cualquier otra que les resulte aplicable.

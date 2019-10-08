@@ -1,0 +1,2 @@
+CAPÍTULO III. DE LA PRESCRIPCIÓN TERAPÉUTICA DE PRÓTESIS AUDITIVAS
+Artículo 15.- Competencia. La prescripción terapéutica de prótesis auditivas es competencia del profesional en Audiología con grado académico de Licenciatura o superior. El Audiólogo no debe delegar, en ninguna circunstancia, la prescripción terapéutica de prótesis auditivas, en personal que no posea las competencias profesionales y legales mínimas establecidas en este reglamento.

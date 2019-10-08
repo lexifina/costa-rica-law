@@ -1,0 +1,2 @@
+Artículo 23.-Documentación y registro. El Audiólogo entregará al paciente el documento de prescripción de prótesis auditivas. Una copia de dicho documento deberá ser archivada en el expediente del paciente.
+Cuando el Audiólogo prescribe y al mismo tiempo despacha los audífonos, deberá registrar en el expediente del paciente tanto el documento de prescripción de prótesis auditivas, como su adaptación, verificación, validación y cualquier modificación que se realice a dicha prescripción.

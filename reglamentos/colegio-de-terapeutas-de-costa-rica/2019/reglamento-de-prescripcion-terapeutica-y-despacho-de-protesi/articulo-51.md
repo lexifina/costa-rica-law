@@ -1,0 +1,2 @@
+Artículo 51.- Vigencia del certificado. El certificado de regencia tiene una vigencia de cinco años. Dos meses antes del vencimiento, se deberá iniciar nuevamente el procedimiento ante el Colegio de Terapeutas, a fin de obtener un nuevo certificado, aun cuando las condiciones en las que se dio se mantengan. El certificado de regencia no se renueva de manera automática.
+Cuando se emita un nuevo certificado por vencimiento del anterior, el antiguo deberá ser devuelto al Colegio de Terapeutas.

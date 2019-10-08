@@ -1,0 +1,1 @@
+Artículo 14.- Calibración anual. Todos los equipos clínicos deben contar con certificación de calibración anual y cumplir con la totalidad de las normas actuales de INTE-ISO 389 y las condiciones establecidas por las normas INTE-ISO 8253-1, 8253-2 y 8253-3, específicas para cada equipo.

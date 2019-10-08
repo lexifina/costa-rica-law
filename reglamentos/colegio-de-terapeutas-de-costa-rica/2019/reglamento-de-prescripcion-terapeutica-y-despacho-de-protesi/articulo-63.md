@@ -1,0 +1,1 @@
+Artículo 63.- Plazo para cumplimiento. A partir de la publicación del presente Reglamento, se otorgará un plazo de seis (6) meses calendario a los establecimientos audiológicos existente, a fin de que se adecuen a las disposiciones de este reglamento. Trascurrido ese plazo, el Colegio de Terapeutas podrá ejercer su potestad de fiscalización para exigir su cumplimiento.

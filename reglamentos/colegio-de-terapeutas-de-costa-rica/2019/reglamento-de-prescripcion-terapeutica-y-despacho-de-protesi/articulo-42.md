@@ -1,0 +1,1 @@
+Artículo 42.- Variedad de regentes. Un establecimiento audiológico, puede contar con varios regentes con el fin de cubrir la totalidad del tiempo que el establecimiento se encuentra abierto al público. En dicho caso, el certificado de regencia otorgado por el Colegio de Terapeutas para cada uno de ellos deberá colocarse visiblemente en el establecimiento.

@@ -1,0 +1,1 @@
+Artículo 46.- Obligación de informar contravenciones. El regente audiológico deberá a dar parte a la Fiscalía del Colegio de Terapeutas de Costa Rica, cuando conozca de contravenciones a las disposiciones legales aplicables al establecimiento que regenta.

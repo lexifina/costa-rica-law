@@ -1,0 +1,1 @@
+Artículo 45.- Información que consta en el certificado. El certificado de regencia indicará el nombre del regente y su respectivo código profesional, el horario de la regencia, el nombre comercial del establecimiento audiológico, la razón social o el nombre del titular del consultorio privado cuando este sea persona física.

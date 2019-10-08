@@ -1,0 +1,2 @@
+Artículo 17.-Aspectos a tomar en consideración. Las decisiones sobre las características de las prótesis auditivas, deben tener como base la evaluación, el diagnóstico terapéutico y la interacción entre el paciente y el Audiólogo, atendiendo a las necesidades estéticas, funcionales, tecnológicas y de aplicaciones del paciente o usuario.
+El Audiólogo debe tomar en consideración, además, las características electroacústicas y no electroacústicas, de conformidad con la fórmula prescriptiva que corresponda.

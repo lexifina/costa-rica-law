@@ -1,0 +1,9 @@
+Artículo 55.- Suplencia por urgencia. En los casos en que no se haya establecido un regente suplente o éste no pueda realizar la suplencia y el regente titular deba ausentarse del establecimiento audiológico los interesados deberán notificarlo al Colegio de Terapeutas, indicando:
+a. Los datos de identificación del regente que se va a ausentar (nombre completo, número de cédula, código profesional).
+b. Los datos de identificación del sustituto (nombre completo, número de cédula, código profesional).
+c. El periodo durante el cual se va a ausentar y le van a sustituir, estableciendo claramente los días y horas.
+Esta comunicación, deberá estar firmada por el regente que se va a ausentar, por el regente sustituto en aceptación de los derechos y obligaciones que le corresponden y por el dueño del establecimiento o su representante. Dichas firmas deben ser autenticadas por abogado.
+Ambos profesionales deben encontrarse al día con sus obligaciones ante el Colegio de Terapeutas de Costa Rica.
+El regente sustituto, no puede tener superposición horaria con su regencia en otro establecimiento audiológico. Asimismo, el horario total de regencia no debe sobrepasar las doce (12) horas diarias.
+Por tratarse de casos de urgencia, Plataforma de Servicios verificará los requisitos y lo trasladará al representante de Audiología en la Junta Directiva, a fin de que otorgue su visto bueno para la sustitución. En caso de que el representante considere que existe alguna irregularidad, pedirá que se corrija en el plazo de tres (3) días hábiles y en caso de incumplimiento, rechazará la solicitud.
+El representante de Audiología ante la Junta Directiva, deberá presentar las solicitudes de sustitución que le hayan sido trasladadas, en la sesión ordinaria más próxima, a fin de que sean ratificadas por dicho órgano.

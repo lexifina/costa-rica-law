@@ -1,0 +1,2 @@
+Artículo 56.- Revocatoria de regencia. Es facultad del Colegio de Terapeutas de Costa Rica, revocar la autorización de regencia cuando se incumplan las disposiciones del presente reglamento o a la restante normativa que emita el Colegio de Terapeutas para regular el ejercicio profesional, previa aplicación del debido proceso que corresponda en cada caso.
+Cuando se revoque la autorización por cualquier causa, el dueño del establecimiento estará en la obligación de devolver el certificado de regencia.

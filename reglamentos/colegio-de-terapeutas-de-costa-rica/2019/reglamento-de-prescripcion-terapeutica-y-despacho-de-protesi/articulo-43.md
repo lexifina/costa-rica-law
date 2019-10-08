@@ -1,0 +1,1 @@
+Artículo 43.- Horario de regencia. El horario de la o las regencias, debe concordar con el horario del establecimiento audiológico. Si existe más de un regente, la suma total de las horas cubiertas por ellos debe coincidir con el horario total del establecimiento.
