@@ -11,5 +11,6 @@ f) Consumir y/o vender bebidas alcohólicas y/o drogas.
 g) Hacer necesidades fisiológicas en estos espacios públicos.
 h) Permanecer en estos espacios bajo los efectos del alcohol y/o drogas.
 i) Encender petardos o fuegos artificiales sin autorización de la Municipalidad.
-j) Utilizar patinetas y similares.
+j) Utilizar patinetas , Patines o similares en infraestructura de parques o zonas verdes que no estén destinadas especialmente para el uso de ese tipo de implementos que pueden producir en los diferentes componentes del mobiliario urbano, efectos de resquebrajamiento , ruptura , o menoscabo estructural u ornamental. A quienes sean sorprendidos violentando esta disposición en área no aptas para esta actividad o que no estén debidamente señaladas como áreas de patinaje, además de confeccionarles el parte correspondiente, se les podrá decomisar el instrumento de patinaje por parte de la Policía Municipal o del Cuerpo de Inspectores de la Municipalidad de San Ramón.
+(Así reformado el inciso anterior mediante sesión ordinaria N°263 del 8 de octubre de 2019)
 k) En general, las actividades que puedan derivar en daños en los jardines, animales. elementos de juego o mobiliario urbano o infraestructura local.
