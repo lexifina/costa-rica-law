@@ -14,3 +14,4 @@ Reglamento de mercados municipales del Cantón de Esparza
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-04-04 | la propia norma |
+| 2 | 2019-10-08 | Reglamento municipal 0 (2019-10-08) |
