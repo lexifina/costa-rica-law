@@ -16,3 +16,4 @@ Establece medidas de ordenamiento para el aprovechamiento de atún y especies af
 | 1 | 2014-11-05 | la propia norma |
 | 2 | 2016-11-03 | Decreto Ejecutivo 40007 (2016-11-03) |
 | 3 | 2018-04-09 | Decreto Ejecutivo 41089 (2018-04-09) |
+| 4 | 2019-10-08 | Decreto Ejecutivo 42031 (2019-10-08) |
