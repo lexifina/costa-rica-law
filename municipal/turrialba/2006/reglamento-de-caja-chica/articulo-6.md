@@ -1,2 +1,4 @@
-Artículo 6º—Se establece un Fondo de Caja Chica para servicio de la Municipalidad de Turrialba, cuyo monto será de veinte salarios bases de oficinista municipal..
-(Así reformado mediante sesión 52 del 24 de abril de 2007)
+Artículo 6º—Se establece un Fondo de Caja Chica para servicio de la Municipalidad de Turrialba, cuyo monto será de dos millones de colones, el cual debe ser utilizado únicamente en los siguientes casos:
+Compras de repuestos: se utilizará únicamente para un caso de falla mecánica ajena al mantenimiento preventivo de los vehículos o la maquinaria, es decir, no se puede utilizar el fondo de la caja para cambios de aceite, reparación de llantas o cambio de fajas propios del mantenimiento preventivo. En estos casos cada unidad ejecutora debe hacer el proceso del punto 2 (Compras por demanda en SICOP)
+Para el caso de los gastos de representación (Alimentación) / Actividades culturales: Las actividades propias del Cantón en las que ya se tienen definidas la fechas con anticipación, no podrán pagarse con el fondo de caja chica. Para las demás actividades que surjan de forma repentina, es recomendable utilizar el fondo de caja chica, siempre que se cuente con las autorizaciones respectivas de la Alcaldía y el Coordinador de Hacienda.
+(Así reformado mediante Sesión Ordinaria Nº 180-2019 del día 08 de octubre del 2019)

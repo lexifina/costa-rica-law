@@ -18,3 +18,4 @@ Reglamento de Caja Chica
 | 3 | 2007-10-23 | Reglamento municipal 78 (2007-10-23) |
 | 4 | 2008-09-23 | Reglamento municipal 126 (2008-09-23) |
 | 5 | 2014-01-15 | Reglamento municipal 94 (2014-01-15) |
+| 6 | 2019-10-08 | Reglamento municipal 180 (2019-10-08) |
