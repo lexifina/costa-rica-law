@@ -1,0 +1,1 @@
+Artículo 18º. Asesoría. La Contraloría de Servicios podrá requerir la asesoría de los funcionarios de las Jefaturas de Área y de Departamento, unidades y similares que estime necesarios para dar apoyo a sus actividades, según la especialidad de cada una de ellas.

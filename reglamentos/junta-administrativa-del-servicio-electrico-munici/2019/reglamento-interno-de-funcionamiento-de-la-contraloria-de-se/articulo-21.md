@@ -1,0 +1,1 @@
+Artículo 21º. Dependencia jerárquica. La Contraloría de Servicios depende jerárquicamente en todos sus extremos de la Junta Directiva de JASEC, sin embargo atenderá instrucciones de la Gerencia y Subgerencia Generales en asuntos atinentes a su competencia, asimismo rendirá cuentas a éstas cuando así se requiera.

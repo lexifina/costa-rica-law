@@ -1,0 +1,3 @@
+Capítulo III
+Funciones, atribuciones, potestades y obligaciones
+Artículo 10º. Independencia funcional. La Contraloría de Servicios ejercerá sus funciones con independencia funcional y de criterio respeto de la Administración Activa, por ello no deberá realizar funciones ni actuaciones de la Administración Activa. Sus recomendaciones se sustentarán en la normativa interna de cada organización, manuales, reglamentos, criterios legales, técnicos y buenas prácticas administrativas y de control interno que fundamenten su gestión. Asimismo, no aceptará acciones tendientes a influir o hacer cambiar los criterios en el ejercicio de sus funciones.

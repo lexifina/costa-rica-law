@@ -1,0 +1,1 @@
+Artículo 25º. Atención de peticiones. Los órganos, áreas, departamentos o las unidades administrativas ante la petición planteada por la Contraloría de Servicios, en el ejercicio de sus funciones, deberán responder a esta en un plazo máximo de cinco días hábiles, excepto en los casos en que la resolución de la gestión sea de una mayor complejidad.
