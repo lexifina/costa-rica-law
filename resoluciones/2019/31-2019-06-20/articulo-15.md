@@ -1,7 +1,0 @@
-CAPITULO V
-(Corrida la numeración del capítulo anterior por el artículo 1° de la resolución N° DGT-DGH-R-043-2019 del 24 de julio del 2019, que lo traspasó del antiguo capítulo III al capítulo V)
-Sobre el procedimiento del inscripción en el registro ante la Administración Tributaria
-Artículo 15°- Formulario para la gestión de la solicitud.
-Los interesados en ser incluidos en los registros indicados en la presente resolución deben presentar la solicitud mediante el formulario D-300 “Registro de comercializadores, distribuidores y productores de canasta básica Tributaria y exportadores” (ver anexo 1), y suministrar la información que en este se le solicite. El formulario debe ser firmado por el interesado o representante legal. Si la solicitud es firmada por un tercero, este debe presentar un poder suficiente conforme a la ley, que lo acredite para actuar ante la Administración Tributaria en nombre del obligado tributario. Si las solicitudes son presentadas por un tercero, este debe estar debidamente autorizado por el interesado, representante legal o apoderado y la firma que lo autoriza debe ir autenticada por un abogado o notario.
-La Administración Tributaria puede modificar el formulario D-300 mediante resolución general, y será puesta a disposición en el sitio web del Ministerio de Hacienda.
-(Corrida su numeración por el artículo 1° de la resolución N° DGT-DGH-R-043-2019 del 24 de julio del 2019, que lo traspasó del antiguo artículo 7 al 15)

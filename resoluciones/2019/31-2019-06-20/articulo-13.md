@@ -1,2 +1,0 @@
-Artículo 13.—Proveedores de la Caja Costarricense del Seguro Social y las Corporaciones Municipales. Como respaldo de las operaciones con la Caja Costarricense del Seguro Social y las Corporaciones Municipales deberá aportar para la exoneración ante la Dirección General de Hacienda, la adjudicación de la licitación realizada por SICOP.
-(Así adicionado por el artículo 1° de la resolución N° DGT-DGH-R-043-2019 del 24 de julio del 2019)
