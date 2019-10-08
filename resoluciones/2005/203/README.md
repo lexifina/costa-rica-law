@@ -88,3 +88,4 @@ Manual de Procedimientos Aduaneros en el marco TICA (Contiene Ingreso y salida d
 | 73 | 2018-12-19 | Decreto Ejecutivo 41627 (2018-12-19) |
 | 74 | 2019-02-12 | Resolución 4 (2019-02-12) |
 | 75 | 2019-08-07 | Resolución 181 (2019-08-07) |
+| 76 | 2019-10-08 | Resolución 301 (2019-10-08) |
