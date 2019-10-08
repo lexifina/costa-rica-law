@@ -15,3 +15,4 @@ Reforma Registro de comercializadores, distribuidores y productores de canasta b
 | --- | --- | --- |
 | 1 | 2019-07-31 | la propia norma |
 | 2 | 2019-08-22 | Resolución 50 (2019-08-22) |
+| 3 | 2019-10-08 | Resolución 60 (2019-10-08) |
