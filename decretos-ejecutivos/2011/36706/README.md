@@ -15,3 +15,4 @@ Reglamento Autónomo de Servicio del Instituto de Alcoholismo y Farmacodependenc
 | --- | --- | --- |
 | 1 | 2011-09-29 | la propia norma |
 | 2 | 2016-11-17 | Decreto Ejecutivo 40083 (2016-11-17) |
+| 3 | 2019-10-08 | Decreto Ejecutivo 42160 (2019-10-08) |
