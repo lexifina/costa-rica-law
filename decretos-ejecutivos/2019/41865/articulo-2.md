@@ -1,1 +1,0 @@
-Artículo 2º— Deróguese el Decreto Ejecutivo número 41670-H de fecha 10 de abril de 2019, publicado en el Alcance número 99 a La Gaceta número 82 de fecha 06 de mayo de 2019, a partir de la vigencia del presente decreto.
