@@ -1,1 +1,2 @@
-Artículo 23.—Periodicidad. El Consejo se reunirá en sesión ordinaria una vez por semana y designará el día de sesión mediante acuerdo específico. Para celebrar sesión ordinaria no hará falta convocatoria especial, si el día fijado para sesionar lo es para todas las sesiones del año.
+Artículo 23.— Periodicidad. El Consejo se reunirá en sesión ordinaria hasta un máximo de dos veces por semana y designará los días de las sesiones mediante acuerdo específico. Para celebrar las sesiones ordinarias, no hará falta convocatoria especial, si los días fijado para sesionar lo son para todas las sesiones del año.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 42057 del 9 de octubre de 2019)

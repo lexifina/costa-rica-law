@@ -14,3 +14,4 @@ Reglamento del Consejo Técnico de Aviación Civil
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-06-24 | la propia norma |
+| 2 | 2019-10-09 | Decreto Ejecutivo 42057 (2019-10-09) |
