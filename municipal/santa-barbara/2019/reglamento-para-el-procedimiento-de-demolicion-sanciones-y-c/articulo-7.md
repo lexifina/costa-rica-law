@@ -1,0 +1,13 @@
+CAPÍTULO II
+Sanciones
+Artículo 7º—Clausura de obra: En los casos que se detallan a continuación, quedan facultadas las autoridades municipales para proceder a la clausura de la obra civil en los términos establecidos en el ordenamiento jurídico, sin responsabilidad para esta Municipalidad. Para ello podrán acudir a los miembros de la Fuerza Pública de la Policía de Proximidad de Santa Bárbara u otras autoridades legales o administrativas, si el caso lo ameritare.
+Para los efectos que conciernen a la ejecución de esta clausura, los funcionarios municipales autorizados, podrán proceder a marcar con sellos el inmueble en proceso constructivo o terminado, que se encuentra sin autorización municipal, y evitar así que el administrado pueda seguir realizando o ejecutando la obra o dar uso del mismo. La sanción de clausura procederá para los siguientes casos:
+a) Cuando la Municipalidad logre demostrar que se está desarrollando una obra sin los respectivos permisos municipales o sin la muestra visible del certificado que contiene el permiso municipal.
+b) En el caso en que se demuestre que se está desarrollando una obra con un permiso municipal vencido, el cual tendrá un año calendario de vigencia a partir de la fecha de su emisión (incluyendo el período de prórroga de seis meses).
+c) En el caso en que se demuestre que se está desarrollando una obra que ponga en peligro la vida de las personas y la integridad de las cosas, sin las correspondientes medidas de seguridad.
+d) Cuando no se cumplan las condiciones de los permisos de construcción.
+e) En el caso en que la Municipalidad compruebe el incumplimiento de alguno de los requisitos establecidos en el ordenamiento jurídico que regula la materia, por parte de aquel a quien se haya otorgado un permiso en los términos regulados. También cuando se logre demostrar alguna falsedad en los documentos presentados por el permisionario o que alguno de ellos haya sido revocado de alguna manera.
+f) En los casos en que algún inspector municipal detecte que el administrado está construyendo, remodelando o reparando parcial o totalmente algún tipo de obra, en el inmueble.
+g) Cuando no hayan sido expresamente autorizados por la Municipalidad o bien, que estén expresamente prohibidas de acuerdo a las normas jurídicas vigentes en el ordenamiento jurídico que rige la materia.
+h) Ejecutar una obra modificando en parte o radicalmente el proyecto respectivo aprobado por la Municipalidad.
+i) Cualquier otra de las infracciones contempladas en la Ley de Construcciones y su Reglamento, así como en la Ley de Planificación Urbana o en cualquier otra norma del Ordenamiento Jurídico vigente.
