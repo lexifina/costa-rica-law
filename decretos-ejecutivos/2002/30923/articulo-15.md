@@ -1,3 +1,0 @@
-Artículo 15.—Coordinación. La Dirección General de Cultura coordinará con la Compañía Nacional de Danza, como encargada del Teatro l887, la utilización del espacio del vestíbulo destinado para galería, de manera que ello no afecte la ejecución de actividades programadas por esa compañía, en el Teatro.
-Con este objetivo, el cronograma de exposiciones será elaborado de manera conjunta, y de acuerdo a las fechas asignadas a cada expositor.
-Preparado el cronograma, éste será sometido a conocimiento de las autoridades del Ministerio de Cultura, Juventud y Deportes y la Jefatura del Departamento de Servicios Generales, para lo que corresponda.

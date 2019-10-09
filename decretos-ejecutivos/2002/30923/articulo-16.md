@@ -1,2 +1,0 @@
-Artículo 16.—Custodia. El bodegaje de las obras correrá por cuenta exclusiva del interesado, no siendo responsable el Ministerio por el material no retirado por el primero, con posterioridad a la fecha de clausura de la exposición.
-Para esta finalidad, el beneficiario cuenta con tres días naturales, anteriores a la inauguración y posteriores a la clausura respectivamente, para llevar a cabo el montaje y desmontaje de la exposición.

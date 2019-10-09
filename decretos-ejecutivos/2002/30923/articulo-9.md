@@ -1,1 +1,0 @@
-Artículo 9º—Acta. La comisión curatorial levantará un acta, con los criterios técnicos que fueron tomados en cuenta para la selección o rechazo de las solicitudes presentadas, la cual deberá ser firmada por sus integrantes.

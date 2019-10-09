@@ -1,2 +1,0 @@
-Artículo 10.—Comunicación. Una vez seleccionados los beneficiarios, la Dirección General de Cultura llevará a cabo la comunicación de la selección a los interesados, con la indicación de solicitar dentro de los siguientes diez días hábiles a su recibo, una cita en esa Dirección con la finalidad de coordinar los aspectos inherentes al préstamo del espacio.
-Igual comunicación deberá hacerse a los solicitantes no seleccionados, sobre el rechazo de su gestión.

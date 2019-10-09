@@ -1,1 +1,0 @@
-Artículo 4º—Período. La Dirección General de Cultura del Ministerio de Cultura, Juventud y Deportes, recibirá solicitudes para el préstamo del espacio señalado, en el período comprendido de Marzo a Octubre de cada año.

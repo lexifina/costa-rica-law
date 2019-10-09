@@ -1,1 +1,0 @@
-Artículo 19.—Montaje y desmontaje de la obra. El montaje y desmontaje de la obra será por cuenta del interesado, sin perjuicio de la colaboración que para ese efecto otorgue la Dirección General de Cultura conforme el artículo 16. En todo caso, dichas labores deberán ser coordinadas con esa Dirección, la que llevará a cabo la curaduría del montaje.

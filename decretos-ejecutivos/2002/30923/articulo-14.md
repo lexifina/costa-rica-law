@@ -1,2 +1,0 @@
-Artículo 14.—Venta de las obras. En caso de presentarse para el interesado, la oportunidad de vender durante el período de exhibición alguna de las obras, las negociaciones serán estrictamente entre vendedor y comprador, sin que el Ministerio tenga injerencia de ningún tipo en su precio o condiciones de venta.
-Para esta finalidad, el expositor deberá visitar la exposición como mínimo una vez por semana y revisar el libro de firmas, así como indicar número telefónico donde pueda ser ubicado.

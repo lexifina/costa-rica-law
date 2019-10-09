@@ -1,1 +1,0 @@
-Artículo 8º—Selección. La comisión curatorial se reunirá en la primera semana de noviembre de cada año, para analizar las solicitudes recibidas y seleccionar a los interesados que llevarán a cabo la exposición de sus obras en la galería, durante el siguiente año.
