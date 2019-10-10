@@ -1,0 +1,6 @@
+ARTÍCULO 3- Definiciones
+a) Teletrabajo: modalidad de trabajo que se realiza fuera de las instalaciones de la persona empleadora, utilizando las tecnologías de la información y comunicación sin afectar el normal desempeño de otros puestos, de los procesos y de los servicios que se brindan. Esta modalidad de trabajo está sujeta a los principios de oportunidad y conveniencia, donde la persona empleadora y la persona teletrabajadora definen sus objetivos y la forma en cómo se evalúan los resultados del trabajo.
+b) Persona teletrabajadora: persona protegida por esta regulación, que teletrabaja en relación de dependencia o subordinación.
+c) Telecentro: espacio físico acondicionado con las tecnologías digitales e infraestructura, que le permite a los teletrabajadores realizar sus actividades y facilita el desarrollo de ambientes colaborativos que promueven el conocimiento para innovar esquemas laborales de alto desempeño.
+d) Teletrabajo domiciliario: se da cuando las personas trabajadoras ejecutan sus actividades laborales desde su domicilio.
+e) Teletrabajo móvil: se da cuando las personas trabajadoras realizan sus funciones de manera itinerante, ya sea en el campo o con traslados constantes, con ayuda del uso de equipos móviles que sean fácilmente utilizables y transportables.
