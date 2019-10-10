@@ -1,0 +1,10 @@
+N° 9710
+LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
+DECRETA:
+PROTECCIÓN DEL DERECHO A LA NACIONALIDAD COSTARRICENSE
+DE LA PERSONA INDÍGENA TRANSFRONTERIZA Y GARANTÍA DE
+INTEGRACIÓN DE LA PERSONA INDÍGENA TRANSFRONTERIZA
+CAPÍTULO I
+DERECHO A LA OBTENCIÓN DE LA NACIONALIDAD
+DE LA PERSONA INDÍGENA
+ARTÍCULO 1- Esta ley tiene por objeto crear y regular procedimientos especiales para dotar, a la persona indígena transfronteriza, de un acceso pleno a su derecho a la nacionalidad costarricense.

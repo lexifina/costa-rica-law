@@ -1,0 +1,1 @@
+ARTÍCULO 14- Se exonera a la persona indígena transfronteriza de todo pago de timbres, derechos, impuestos, cobros, multas, tasas y/o especies fiscales que deba cancelar por cualquier trámite de regularización de su estado migratorio. De igual manera, se exoneran de cualquier multa generada, de manera retroactiva, por procedimientos anteriores de regularización migratoria.
