@@ -1,2 +1,4 @@
-8 TRANSITORIO
-Se brinda un transitorio de 1 mes a partir de la publicación en el diario oficial la GACETA, para la aplicación de este procedimiento.
+8 IDENTIFICACIÓN DE CAMBIOS
+Motivo: Modificación del procedimiento ECA-MP-P06
+Refiérase a la solicitud de elaboración o modificación del documento 2019-140 Observaciones:
+Los cambios son los que están subrayados en el documento.
