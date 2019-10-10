@@ -1,3 +1,6 @@
-14 IDENTIFICACIÓN DE CAMBIOS Motivo: | Modificación del procedimiento ECA-MP-P01
-Refiérase a la solicitud de elaboración o modificación del documento 2016 – 164
-Observaciones: Se subrayan cambios en el documento. Apartados modificados: 3, 6.1,6.4,8.2,8.3, y 8.4 Se incluye en definiciones actividades clave para PEA, alcance de acreditación, actividades de evaluación de la conformidad y esquema de acreditación. Además modifica la definición de actividades de acreditación, ampliación del alcance de acreditación, ciclo de acreditación y reevaluación. En el apartado 6.1 se incluye ensayos de aptitud. Se modifica el apartado 6.4. Se corrigen los responsables de efectuar las actividades descritas en 8.2, 8.3 y 8.4
+14 IDENTIFICACIÓN DE CAMBIOS
+Motivo: Modificación del procedimiento ECA-MP-P01
+Refiérase a la solicitud de elaboración o modificación del documento 2019-135
+Observaciones:
+Se subrayan cambios en el documento.
+Apartados modificados: 3,4, 6.3 (a), 6.4, 7.2, 8.1, 8.2, 8.3, 8.4, 10.2.

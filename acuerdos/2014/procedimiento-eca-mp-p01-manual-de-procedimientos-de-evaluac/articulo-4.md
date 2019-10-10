@@ -6,3 +6,25 @@
 - OEC: Organismos de Evaluación de la Conformidad.
 - OV/V: Organismo validador/verificador de gases de efecto invernadero.
 - VAC: Verificación de Acciones Correctivas.
+- PAC: Plan de acciones correctivas.
+- OCSG: Organismos de Certificación de Sistemas de Gestión
+- OCP: Organismos de Certificación de Producto
+- OCH: Organismos de Certificación de Personas
+- OI: Organismo de Inspección
+- LC: Laboratorio de Calibración.
+- LE: Laboratorio de Ensayo
+- LM: Laboratorio Clínico
+- SAC: Secretaría de Acreditación de Organismo de Certificación
+- SAL: Secretaría de Acreditación de Laboratorios
+- SAI: Secretaría de Acreditación de Organismos de Inspección
+- SAVV: Secretaría de Acreditación de OVV/GEI
+- SACLI: Secretaría de Acreditación de Laboratorios Clínicos
+- LOG: Unidad de Logística
+- GC: Gestoría de calidad.
+- CA: Comisión de acreditación
+- CAI: Comité Asesor de Inspección
+- CAL: Comité Asesor de Laboratorios de ensayo y calibración
+- CACLI: Comité Asesor de laboratorios Clínicos
+- CACI: Comité Asesor de inocuidad alimentaria
+- CAC: Comité Asesor de Certificación
+- CAVV: Comité Asesor de Validadores / verificadores
