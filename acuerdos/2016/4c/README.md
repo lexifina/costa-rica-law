@@ -14,3 +14,4 @@ Reforma Procedimiento ECA-MP-P03 Manual de procedimientos de evaluación y acred
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-06-02 | la propia norma |
+| 2 | 2019-10-10 | Acuerdo 10 (2019-10-10) |
