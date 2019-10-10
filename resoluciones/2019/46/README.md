@@ -14,3 +14,4 @@ Deja sin efecto la circular número DG-200-2006 y establece nuevos rubros de dep
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-09-23 | la propia norma |
+| 2 | 2019-10-10 | Resolución 119 (2019-10-10) |
