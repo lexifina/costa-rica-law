@@ -14,3 +14,4 @@ Reforma Procedimiento ECA-MP-P02 Manual de procedimientos de evaluación y acred
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-08-31 | la propia norma |
+| 2 | 2019-10-10 | Acuerdo 10 (2019-10-10) |
