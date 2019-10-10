@@ -19,3 +19,4 @@ Procedimiento ECA-MP-P02 Manual de procedimientos de evaluacion y acreditacion (
 | 4 | 2016-12-15 | Acuerdo 12 (2016-12-15) |
 | 5 | 2017-05-26 | Acuerdo 5 (2017-05-26) |
 | 6 | 2017-08-07 | Acuerdo 6 (2017-08-07) |
+| 7 | 2019-10-10 | Acuerdo 10 (2019-10-10) |

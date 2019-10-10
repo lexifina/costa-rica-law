@@ -10,14 +10,15 @@ ECA-MP-P02 Requisitos para la acreditación | N.A | 01 | A partir de su publicac
 Todos los documentos descritos se encuentran a disposición de los interesados en nuestra página electrónica www.eca.or.cr/ http://www.eca.or.cr/docs.php; así mismo puede solicitar el envío de manera electrónica o solicitar gratuitamente una copia no contralada en la Gestoría de Calidad y en las oficinas centrales del ECA ubicadas en Rohrmoser 150 metros al este del Centro Comercial Plaza Mayor, contiguo a Prisma Dental, de lunes a viernes de las 8 a las 16 horas.
 San José, 30 de junio del 2014.
 (Nota de Sinalevi: El presente procedimiento se extrajo del sitio web del Ente Costarricense de Acreditación, y se transcribe a continuación:)
-(Nota de Sinalevi. El presente procedimiento fue reformado parcialmente y publicado su texto de forma íntegra mediante publicación en La Gaceta N° 165 del 31 de agosto del 2017, donde se actualiza la versión 05 existente y se publica la versión 06 que se reproduce a continuación:)
+(Nota de Sinalevi: El presente procedimiento fue reformado parcialmente y publicado su texto de forma íntegra mediante publicación en La Gaceta N° 198 del 18 de octubre del 2019 donde se actualiza la version 06 existente y se publica la version 07 , y se transcribe a continuación:)
 [imagen]
 TABLA DE CONTENIDO
 1 DOCUMENTOS APLICABLES POR TIPO DE OEC ................................................................. 1
 2 REQUISITOS GENERALES PARA LA ACREDITACIÓN DE CUALQUIER TIPO DE OEC ....... 1
-3 ANEXO .................................................................................................................................... 5
-4 IDENTIFICACIÓN DE CAMBIOS .............................................................................................. 8
-5 TRANSITORIO .......................................................................................................................... 8
+3 CAMBIOS SIGNIFICATIVOS .................................................................................................... 4
+4 ANALISIS DE CAMBIOS SIGNIFICATIVOS POR PARTE DEL ECA ....................................... 7
+5 IDENTIFICACION DE CAMBIOS .............................................................................................. 8
+6 TRANSITORIO .......................................................................................................................... 8
 1 DOCUMENTOS APLICABLES POR TIPO DE OEC
-1.1 Es requisito para la acreditación el cumplimiento de este documento y lo establecido en los documentos del anexo 1.
+1.1 Es requisito para la acreditación el cumplimiento de este documento y lo establecido en los documentos del ECA-MP-P02-I02 Documentos aplicables en los diferentes procesos de evaluación.
 1.2 El ECA publica en su página web, los documentos normativos adicionales que deben ser cumplidos por parte de los OEC para los diferentes esquemas de acreditación.
