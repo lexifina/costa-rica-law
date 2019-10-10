@@ -1,7 +1,6 @@
 CAPÍTULO II
 RESIDENTES TEMPORALES
-ARTÍCULO 79.-
-La Dirección General de Migración otorgará una autorización de ingreso y permanencia por un tiempo definido, superior a noventa días y hasta por dos años, prorrogable en igual tanto, a quienes se encuentren comprendidos en las siguientes subcategorías:
+ARTÍCULO 79.-La Dirección General de Migración otorgará una autorización de ingreso y permanencia por un tiempo definido, superior a noventa días y hasta por dos años, prorrogable en igual tanto, a quienes se encuentren comprendidos en las siguientes subcategorías:
 1) El cónyuge de ciudadano costarricense, de conformidad con lo dispuesto en el artículo 73 de la presente Ley.
 2) Los religiosos de las religiones que deban estar acreditadas ante el Ministerio de Relaciones Exteriores y Culto.
 3) Los ejecutivos, los representantes, los gerentes y el personal técnico de las empresas establecidas en el país, así como sus cónyuges e hijos. También estarán contemplados en esta categoría los empleados especializados que por cuenta propia o en relación de dependencia se integren a tales labores y sean así requeridos para el desarrollo de estas, según criterio de la Dirección de Migración.
@@ -12,3 +11,5 @@ La Dirección General de Migración otorgará una autorización de ingreso y per
 8) Quien haya convivido con su cónyuge e hijos menores o con discapacidad, de las personas mencionadas en los incisos anteriores.
 9) Los rentistas.
 10) Los pensionados.
+11) Personas indígenas transfronterizas.
+(Así adicionado el inciso anterior por el artículo 17 aparte c) de la ley de Protección del desarrollo a la nacionalidad costarricense de la persona indígena transfronteriza y garantía de integración de la persona indígena transfronteriza, N° 9710 del 9 de agosto de 2019)

@@ -1,0 +1,1 @@
+ARTÍCULO 6- Todos los trámites de inscripción y expedición de cédula de identidad son gratuitos y deberán ajustarse a lo dispuesto en la Ley N.° 7316, Convenio N.° 169 sobre Pueblos Indígenas y Tribales en Países Independientes, de 3 de noviembre de 1992 y la Declaración de las Naciones Unidas sobre Derechos de los Pueblos Indígenas, de 13 de setiembre de 2007.

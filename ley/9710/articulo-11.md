@@ -1,0 +1,1 @@
+ARTÍCULO 11- En los trámites contemplados en esta ley se reconocerán y protegerán los valores y las prácticas sociales, culturales, religiosas y espirituales propias de las personas indígenas, garantizando el respeto a la legislación nacional, el derecho internacional y los derechos humanos.
