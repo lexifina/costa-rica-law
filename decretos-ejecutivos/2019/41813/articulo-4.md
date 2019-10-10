@@ -1,0 +1,1 @@
+Artículo 4.- Deróguese el Decreto Ejecutivo No. 29939-S del 04 de octubre de 2001, "Normas para la Habilitación de Establecimientos Odontológicos, Tipo A, B 1, B2.", publicado en La Gaceta No. 219 del 14 de noviembre de 2001.
