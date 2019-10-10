@@ -14,3 +14,4 @@ Procedimiento ECA-MP-P04-I04 Instructivo para llenado del Alcance de Laboratorio
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-04-15 | la propia norma |
+| 2 | 2019-10-10 | Acuerdo 9 (2019-10-10) |
