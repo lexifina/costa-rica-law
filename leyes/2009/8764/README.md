@@ -1,6 +1,6 @@
 # Ley General de Migración y Extranjería
 
-Ley N° 8764 del 2009-08-19. SINALEVI, ficha 66139: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=66139&param2=118961&param3=1>.
+Ley N° 8764 del 2009-08-19. SINALEVI, ficha 66139: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=66139&param2=118005&param3=1>.
 
 Publicada en La Gaceta N° 170 del 2009-09-01.
 
@@ -16,3 +16,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 6 de 19 | 2017-12-18 | Decreto Ejecutivo 40791 (2017-12-14) | 2017-12-14 |
 | 7 de 19 | 2018-04-19 | Decreto Ejecutivo 41033 (2018-04-18) | 2018-04-18 |
 | 8 de 19 | 2018-12-04 | Ley 9635 | 2018-12-03 |
+| 9 de 19 | 2019-10-10 | Ley 9710 | 2019-08-09 |

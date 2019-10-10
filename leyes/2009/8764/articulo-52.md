@@ -1,2 +1,2 @@
-ARTÍCULO 52.-
-Las personas extranjeras que pretendan ingresar bajo las categorías especiales, a excepción de las subcategorías de refugiados, apátridas o asilados, requerirán la visa de ingreso correspondiente, según el procedimiento y por el plazo que establezca la Dirección General mediante reglamento.
+Artículo 52- Las personas extranjeras que pretendan ingresar bajo las categorías especiales, a excepción de las subcategorías de refugiados, apátridas, asilados o personas indígenas transfronterizas requerirán la visa de ingreso correspondiente, según el procedimiento y por el plazo que establezca la Dirección General mediante reglamento.
+(Así reformado por el artículo 15 de la ley de Protección del desarrollo a la nacionalidad costarricense de la persona indígena transfronteriza y garantía de integración de la persona indígena transfronteriza, N° 9710 del 9 de agosto de 2019)
