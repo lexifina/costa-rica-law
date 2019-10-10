@@ -1,0 +1,3 @@
+Artículo 3º—Este reglamento funcionará en apego a los principios de sana administración de la hacienda municipal y principios éticos, morales, legales y técnicos aplicables en la materia, entre ellos:
+La garantía de imparcialidad, transparencia y objetividad en la selección de las ayudas a brindar, mediante la evaluación de las solicitudes por parte del Alcalde Municipal, deberá de atender lo establecido en este reglamento.
+La garantía de imparcialidad y transparencia en la entrega de las ayudas económicas y el seguimiento efectivo y constante de la correcta utilización de las ayudas económicas brindadas para estos efectos, seguirán los controles establecidos a lo interno de la municipalidad.

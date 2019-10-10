@@ -1,0 +1,1 @@
+Artículo 4º—El objetivo de esta ayuda económica para actividades deportivas o culturales es brindar apoyo a los grupos deportivos o culturales integrados por funcionarios y funcionarias municipales, los cuales, actuando en representación de la Municipalidad, puedan llevar a cabo sus fines con decoro y dignidad.

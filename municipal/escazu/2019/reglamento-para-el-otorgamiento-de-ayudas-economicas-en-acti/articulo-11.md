@@ -1,0 +1,1 @@
+Artículo 11.—La Municipalidad a través de la oficina de Salud Ocupacional llevará un registro de las agrupaciones deportivas y culturales integradas por funcionarios municipales y que han representado a la Municipalidad en actividades de esa índole.
