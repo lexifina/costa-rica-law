@@ -1,1 +1,0 @@
-Artículo 10—Período de duración de la beca. La beca se concederá a la persona estudiante durante el plazo que dura el curso lectivo para el que se solicitó o sea para diez meses, pudiendo prorrogarse para el siguiente curso lectivo, siempre y cuando cumpla con lo que establece este Reglamento.
