@@ -14,3 +14,4 @@ Código de ética profesional del Colegio de Geólogos de Costa Rica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-02-06 | la propia norma |
+| 2 | 2019-10-11 | Reglamento 76 (2019-10-11) |

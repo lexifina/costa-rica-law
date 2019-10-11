@@ -1,5 +1,6 @@
 ARTÍCULO 13- Asimismo, los miembros del Colegio, deberán:
-a) Abstenerse de realizar acciones incompatibles con la moral o lo legal y evitar la acumulación de cargos o tareas, que les impida cumplir a cabalidad con todas ellas.
+a) Respetar las disposiciones, normativas y obligaciones asumidas establezcan las incompatibilidades y prohibiciones en el ejercicio profesional.
+(Así reformado el inciso anterior mediante sesión N° 76 del 11 de octubre del 2019)
 b) reconocer espontáneamente, su responsabilidad cuando hubiere cometido un error profesional, o inducido a un error;
 c) actuar, en calidad de peritos, como expertos a ciencia y conciencia, ajustando sus informes a la verdad científica, con toda imparcialidad y de acuerdo con su leal saber y entender;
 d) ser correctos y honestos en la estimación de sus honorarios y cobrarlos de conformidad con las tarifas vigentes en el tarifario del CGCR;
