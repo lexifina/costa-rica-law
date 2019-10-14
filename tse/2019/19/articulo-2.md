@@ -1,0 +1,1 @@
+Artículo 2º—De conformidad con lo que establece el artículo 14 del Código Municipal, para cada una de las ochenta y dos municipalidades del país se elegirán un alcalde, un vicealcalde primero y un vicealcalde segundo.

@@ -1,0 +1,3 @@
+Artículo 3º—En observancia de los artículos 171 de la Constitución Política y 21 del Código Municipal, de acuerdo con la proyección de población por cantones elaborada por el Instituto Nacional de Estadística y Censos, comunicada a este Tribunal mediante oficio Nº INEC-GE-136-2019 del siete de marzo de dos mil diecinueve, y según lo que dispusiera este Tribunal en su decreto Nº 07-2019 del veintiuno de marzo de dos mil diecinueve, publicado en La Gaceta Nº 63 del veintinueve de marzo de dos mil diecinueve, se elegirán regidores propietarios en cada cantón –e igual número de suplentes– de conformidad con el siguiente detalle:
+[imagen]
+[imagen]
