@@ -15,3 +15,4 @@ Reglamento de agricultura orgánica
 | --- | --- | --- |
 | 1 | 2001-09-18 | la propia norma |
 | 2 | 2011-09-20 | Decreto Ejecutivo 36801 (2011-09-20) |
+| 3 | 2019-10-14 | Decreto Ejecutivo 42050 (2019-10-14) |
