@@ -1,0 +1,2 @@
+Transitorio III: Dado que la VI Convención Colectiva de la Municipalidad de Escazú fue homologada en fecha anterior a la entrada en vigencia de la Ley de Fortalecimiento de las Finanzas Públicas, la Municipalidad respetará el incentivo negociado en esta disposición colectiva hasta la fecha de su fenecimiento o denuncia, posterior a ello el incentivo por la evaluación del desempeño se ajustará al precitado cuerpo de leyes y lo dispuesto en el artículo 41 del presente reglamento.
+(Así adicionado mediante sesión N° 181 del 14 de octubre del 2019)

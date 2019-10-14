@@ -1,4 +1,5 @@
-CAPÍTULO XXVIII
+CAPÍTULO XXVII
+(Modificada su denominación mediante sesión N° 181 del 14 de octubre del 2019. Anteriormente decía XXVIII)
 DEL RÉGIMEN DISCIPLINARIO, Y DISPOSICIONES VARIAS DE LAS MEDIDAS
 DISCIPLINARIAS
 Artículo 109: La inobservancia de los deberes y obligaciones o la violación de las prohibiciones por parte del personal municipal en el desempeño de sus funciones, las cuales se encuentran debidamente establecidas en el Código Municipal, el Código de Trabajo, este Reglamento, así como otros cuerpos reglamentarios emitidos por este Ayuntamiento, se sancionarán de acuerdo con la gravedad de la falta cometida y siguiendo el procedimiento que en adelante se indica:

@@ -1,4 +1,5 @@
-CAPÍTULO XXV
+CAPÍTULO XXIV
+(Modificada su denominación mediante sesión N° 181 del 14 de octubre del 2019. Anteriormente decía XXV)
 DE LA JORNADA DE TRABAJO
 Artículo 89: Los horarios de trabajo del personal de la Municipalidad de Escazú serán los siguientes:
 Personal Administrativo: De lunes a viernes, jornada continua de 7:30 a las 16:00 horas. Esta jornada podrá adecuarse entre las 7:00 horas y las 19:00 horas según la conveniencia institucional, pero no podrá superar la cantidad de horas diarias y semanales.

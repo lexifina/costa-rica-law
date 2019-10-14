@@ -14,3 +14,4 @@ Reglamento autónomo de la Municipalidad de Escazú
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-06-04 | la propia norma |
+| 2 | 2019-10-14 | Reglamento municipal 181 (2019-10-14) |

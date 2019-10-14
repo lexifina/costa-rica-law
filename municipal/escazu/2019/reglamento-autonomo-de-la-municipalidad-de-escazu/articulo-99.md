@@ -1,3 +1,4 @@
-CAPÍTULO XXVII
+CAPÍTULO XXVI
+(Modificada su denominación mediante sesión N° 181 del 14 de octubre del 2019. Anteriormente decía XXVII)
 DEL REGISTRO Y CONTROL DE ASISTENCIAS, LLEGADAS TARDÍAS Y AUSENCIAS
 Artículo 99: La asistencia al trabajo será registrada por cada persona funcionaria al inicio y finalización del horario establecido, mediante la forma y controles que la Administración establezca.

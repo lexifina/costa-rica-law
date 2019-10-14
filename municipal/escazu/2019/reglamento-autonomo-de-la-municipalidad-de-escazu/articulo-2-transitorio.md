@@ -1,0 +1,2 @@
+Transitorio II: Dado que la VI Convención Colectiva de la Municipalidad de Escazú fue homologada en fecha anterior a la entrada en vigencia de la Ley de Fortalecimiento de las Finanzas Públicas, la Municipalidad respetará el tope de cesantía negociado en esta disposición colectiva hasta la fecha de su fenecimiento o denuncia, posterior a ello la cesantía deberá ser ajustada al plazo máximo regulado en el precitado cuerpo de leyes y lo dispuesto en el artículo 121 del presente reglamento.
+(Así adicionado mediante sesión N° 181 del 14 de octubre del 2019)

@@ -1,4 +1,5 @@
-CAPÍTULO XXVI
+CAPÍTULO XXV
+(Modificada su denominación mediante sesión N° 181 del 14 de octubre del 2019. Anteriormente decía XXVI)
 DE LA JUNTA DE RELACIONES LABORALES Y RESOLUCIÓN DE CONFLICTOS. (JRLRC)
 Artículo 97: A efecto de mantener el normal procedimiento obrero-patronal, sobre la base de un diálogo constante, se crea la Junta de Relaciones Laborales y de Resolución de Conflictos, en adelante JRLRC, con representantes de la Municipalidad y el Sindicato de Trabajadores Municipales de Costa Rica (STMDECR), constituida de manera paritaria, la cual conocerá de todas las situaciones que se originen en las relaciones de empleo, ya sean de naturaleza individual o colectiva, demandas de mejoramiento económico-social en beneficio de las y los funcionarios, la organización del trabajo y la Salud Ocupacional.
 Esta JRLRC estará integrada por cuatro miembros propietarios y sus respectivos suplentes, distribuidos de la siguiente manera: dos miembros propietarios y dos suplentes por la Municipalidad y dos miembros propietarios y dos suplentes por el STMDECR.

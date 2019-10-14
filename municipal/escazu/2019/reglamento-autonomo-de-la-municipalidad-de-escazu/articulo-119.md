@@ -1,4 +1,5 @@
-CAPÍTULO XXIX
+CAPÍTULO XXVIII
+(Modificada su denominación mediante sesión N° 181 del 14 de octubre del 2019. Anteriormente decía XXIX)
 DE LA TERMINACIÓN DE LA RELACIÓN DE SERVICIOS
 Artículo 119: Las personas funcionarias terminarán su relación de servicios cuando se dé uno de los siguientes supuestos:
 1. Renuncia de la persona funcionaria debidamente aceptada.
