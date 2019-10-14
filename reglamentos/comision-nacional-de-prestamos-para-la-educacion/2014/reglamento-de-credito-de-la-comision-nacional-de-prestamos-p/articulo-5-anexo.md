@@ -1,17 +1,16 @@
-ANEXO 5: TABLA DEL FACTOR INGRESO LIQUIDO FAMILIAR MENSUAL
-INTERVALOS EN COLONES | PUNTOS
-Menos de | 799.000.00 | 40
-799.001.00 | 982.940.00 | 39
-982.941.00 | 1.166.880.00 | 38
-1.166.881.00 | 1.350.820.00 | 37
-1.350.821.00 | 1.534.760.00 | 36
-1.534.761.00 | 1.718.700.00 | 35
-1.718.701.00 | 1.902.640.00 | 34
-1.902.641.00 | 2.086.580.00 | 32
-2.086.581.00 | 2.270.520.00 | 30
-2.270.521.00 | 2.454.460.00 | 28
-2.454.461.00 | 2.638.400.00 | 26
-2.638.401.00 | 2.822.340.00 | 24
-2.822.341.00 | 3.006.280.00 | 22
-Más de: | 3.006.281.00 | No califica
-(Así reformado mediante sesión N° 13-2018 del 16 de abril del 2018)
+ANEXO 5: TABLA DEL FACTOR INGRESO LÍQUIDO FAMILIAR MENSUAL
+Intervalos en colones | Puntos
+Menos de | 380.755,00 | 40
+380.756,00 | 571.132,00 | 38
+571.132,01 | 755.072,00 | 36
+755.072,01 | 939.012,00 | 34
+939.012,01 | 1.122.952,00 | 30
+1.122.952,01 | 1.306.892,00 | 25
+1.306.892,01 | 1.490.832,00 | 20
+1.490.832,01 | 1.674.772,00 | 15
+1.674.772,01 | 1.858.712,00 | 10
+1.858.712,01 | 2.042.652,00 | 5
+Más de: | 2.042.652,01 | NO Califica
+Parámetros (Se actualizan una vez al año) Salario mínimo servidora domestica I-2019: ¢190.377,79 Corresponde al ingreso bruto, menos las deducciones de ley establecidas en el art. 27 del Reglamento de Crédito de CONAPE.
+| | |
+(Así reformado en sesión N° 27 del 14 de octubre de 2019)
