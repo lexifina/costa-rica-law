@@ -1,0 +1,1 @@
+Artículo 25.—Formalización de donación de bienes no inscribibles. La donación de activos PPE, inventario y bienes controlables que no sean inscribibles se formalizarán mediante un acta donación que levantará el Departamento de Logística en el momento de la entrega.

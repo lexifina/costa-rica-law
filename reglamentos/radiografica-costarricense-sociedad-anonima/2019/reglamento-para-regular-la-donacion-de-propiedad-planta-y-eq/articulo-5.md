@@ -1,0 +1,1 @@
+Artículo 5º—Limitación de responsabilidad. Una donación es un acuerdo entre las partes, a título gratuito, por tal motivo RACSA se encuentra exonerada de cualquier daño o costo que genere la donación al ente que la recibe.

@@ -1,0 +1,1 @@
+Artículo 21.—Comunicación de denegatoria. De no ser posible tramitar la solicitud de la donación, de acuerdo a las razones del artículo 20, el Departamento de Logística dará respuesta razonada y motivada por escrito y formalmente fundamentando el por qué no procede la donación y comunicará al interesado el rechazo de la solicitud en el medio señalado para tal efecto.
