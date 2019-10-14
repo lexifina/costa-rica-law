@@ -1,1 +1,1 @@
-Artículo 25.—Los Jefes de Departamento y Dirección así como los Miembros del Consejo Superior y los funcionarios que administran justicia están excluidos del proceso de calificación de servicios.
+Artículo 25.— (Derogado por el artículo 23 del Reglamento del Sistema Integrado de Evaluación del Desempeño del Poder Judicial, aprobado mediante sesión N° 43-19 del 14 de octubre del 2019, publicado en el Boletín Judicial N° 239 del 16 de diciembre del 2019)
