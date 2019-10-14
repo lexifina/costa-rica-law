@@ -1,6 +1,6 @@
 # Tratado de Libre Comercio con la República de Colombia
 
-Tratados Internacionales N° 9238 del 2014-05-05. SINALEVI, ficha 77663: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=77663&param2=115269&param3=1>.
+Tratados Internacionales N° 9238 del 2014-05-05. SINALEVI, ficha 77663: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=77663&param2=118015&param3=1>.
 
 Publicada en La Gaceta N° 93 del 2014-05-16.
 
@@ -16,3 +16,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 6 de 13 | 2018-02-27 | Decreto Ejecutivo 40903 (2018-01-09) | 2018-01-09 |
 | 7 de 13 | 2018-03-05 | Decreto Ejecutivo 40901 (2018-01-15) | 2018-01-15 |
 | 8 de 13 | 2019-02-18 | Decreto Ejecutivo 41560 (2019-01-16) | 2019-01-16 |
+| 9 de 13 | 2019-10-14 | Decreto Ejecutivo 41928 (2019-08-05) | 2019-08-05 |
