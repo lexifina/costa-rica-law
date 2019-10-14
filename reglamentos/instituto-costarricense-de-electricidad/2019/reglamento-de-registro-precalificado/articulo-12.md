@@ -1,0 +1,8 @@
+CAPÍTULO IV
+Fiscalización de la Ejecución Contractual
+Artículo 12.—De la responsabilidad en la fiscalización del contrato.
+a. El administrador del contrato debe cumplir con las responsabilidades establecidas en el artículo 9 del RICA, fiscalizar la ejecución de la contratación, así como, la calidad de los materiales necesarios para la realización de los trabajos.
+Es responsable de velar que el contratista cumpla íntegramente con todas las obligaciones pactadas y llevar a buen término el objeto contractual, aplicando para ello la norma para administradores de contrato.
+b. Cualquier incumplimiento de los términos contractuales por parte del Contratista, faculta a la Administración a tomar cualquier acción necesaria dentro del marco de la legislación aplicable, para protección y satisfacción del servicio requerido, así como del interés público.
+c. Corresponde al administrador del contrato verificar el cumplimiento de las obligaciones laborales, de seguridad social del Contratista para con sus trabajadores/as y todas las demás establecidas en el cartel. Dicha labor la realiza de conformidad con lo dispuesto en el punto d del artículo 8 del presente reglamento.
+d. Una vez finalizada cada contratación, el administrador del contrato conjuntamente con el Coordinador de Contratación Administrativa confeccionará el Informe Final e incorporará a éste el finiquito de contrato en los casos que corresponda, el cual será notificado al contratista, para que éste en un plazo no mayor a 5 días hábiles posteriores a la comunicación, se presente a firmarlo y así dar por terminada la relación contractual.
