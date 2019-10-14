@@ -1,1 +1,0 @@
-Artículo 16.—Comunicación final. Los resultados de los recursos que se interpongan, deberán ser comunicados a la persona interesada, a la jefatura inmediata y al Subproceso de Evaluación del Desempeño.

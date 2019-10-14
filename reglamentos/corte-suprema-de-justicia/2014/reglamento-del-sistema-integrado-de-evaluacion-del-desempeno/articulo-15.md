@@ -1,3 +1,0 @@
-CAPÍTULO IV
-Recursos
-Artículo 15.—Impugnación del resultado. Si la persona evaluada no estuviere de acuerdo con el resultado obtenido, podrá presentar recurso de revocatoria dentro de cinco días hábiles ante la jefatura que efectuó la evaluación. El recurso será resuelto en un plazo máximo de 15 días a partir de la presentación. Contra esta resolución cabrá recurso de apelación ante la jefatura inmediata de quien evaluó, para lo cual se aplicarán los mismos plazos establecidos en este artículo. Estos plazos tendrán el carácter de ordenatorios. En el caso de las personas que administran justicia, se podrá interponer recurso de reconsideración ante al Consejo de la Judicatura, en los mismos plazos definidos en el párrafo anterior.

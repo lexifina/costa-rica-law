@@ -1,1 +1,0 @@
-Artículo 6º—Período de evaluación. El S.I.E.D. valorará el desempeño de los servidores, de las servidoras, de los funcionarios y de las funcionarias judiciales durante el período de un año, comprendido entre los meses de enero a diciembre.
