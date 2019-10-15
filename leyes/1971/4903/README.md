@@ -1,6 +1,6 @@
 # Ley de Aprendizaje
 
-Ley N° 4903 del 1971-11-17. SINALEVI, ficha 3775: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=3775&param2=94655&param3=1>.
+Ley N° 4903 del 1971-11-17. SINALEVI, ficha 3775: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=3775&param2=118023&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -11,3 +11,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 3 de 6 | 1973-08-14 | Ley 5312 | 1973-08-14 |
 | 4 de 6 | 1973-12-19 | Ley 5427 | 1973-11-30 |
 | 5 de 6 | 1975-10-30 | Ley 5833 | 1975-10-30 |
+| 6 de 6 | 2019-10-15 | Ley 9728 | 2019-09-12 |
