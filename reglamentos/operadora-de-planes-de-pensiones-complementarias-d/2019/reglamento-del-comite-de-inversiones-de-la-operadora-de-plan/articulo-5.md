@@ -1,0 +1,1 @@
+Artículo 5º—Informes periódicos del contenido de las actas. Todas las actas del Comité se remitirán a la Auditoría Interna dentro de los ocho días hábiles siguientes a su aprobación, con el fin de que ésta mensualmente informe a la Junta Directiva sobre el cumplimiento de las políticas establecidas, así como de las disposiciones legales que regulan la materia de inversiones.

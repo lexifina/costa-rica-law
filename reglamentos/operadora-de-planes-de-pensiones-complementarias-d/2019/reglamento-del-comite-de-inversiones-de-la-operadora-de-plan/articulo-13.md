@@ -1,0 +1,3 @@
+Artículo 13.—De las comisiones. El Comité de Inversiones seleccionará los intermediarios mediante un proceso que tomarán en cuenta los criterios establecidos por la Junta Directiva de Popular Pensiones, a fin de poseer costos competitivos.
+NOTA: Este Reglamento rige a partir de su publicación en el Diario Oficial La Gaceta y el mismo deroga el Reglamento anterior aprobado por la Junta Directiva de la Operadora de Pensiones Complementarias del Banco Popular y de Desarrollo Comunal Sociedad Anónima, según acuerdo N° JDPP-509-Acd-104-2017-Art-6, en sesión ordinaria N° 509, celebrada el 06 de abril del 2017 y acuerdo JDPP- 513-Acd-163-2017-Art-6, en sesión ordinaria N° 513, celebrada el día jueves 08 del mes de junio del 2017.”
+(Ref. Acuerdo CAJ-PP-7-ACD-40-2019-Art. 3).
