@@ -1,0 +1,2 @@
+Artículo 10.- Plazo para resolver la solicitud.
+El Departamento de Gestión de Exenciones revisará la conformidad de la solicitud con la legislación respectiva, emitirá la autorización de exención o de aplicación de la tarifa reducida o de órdenes especiales sin el pago previo del impuesto mediante el sistema Exonet, de conformidad con lo establecido en el artículo 102 del Código de Normas y Procedimientos Tributarios.

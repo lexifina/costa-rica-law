@@ -1,0 +1,2 @@
+Artículo 12.- Aplicación de la exoneración o tarifa reducida u órdenes especiales.
+La nota de autorización de exención o aplicación de tarifa reducida o bien las órdenes especiales según corresponda, contarán con un código único, que deberá ser dado al proveedor del beneficiario, a fin de que el dato sea incorporado al comprobante electrónico, atendiendo lo dispuesto en el Decreto Ejecutivo No. 41820-H “Comprobantes Electrónicos para efectos Tributarios” y la normativa relacionada.

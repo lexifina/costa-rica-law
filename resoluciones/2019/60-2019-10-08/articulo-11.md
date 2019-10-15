@@ -1,0 +1,2 @@
+Artículo 11.- Plazo de vigencia de la exoneración, órdenes especiales o tarifa reducida.
+En el caso de las notas de exoneración, tarifa reducida u órdenes especiales según corresponda, otorgadas por parte de la Dirección General de Hacienda, la vigencia máxima de la misma podrá ser hasta de 12 meses, contada a partir de la fecha de notificación de la autorización. El contribuyente podrá solicitar dentro del mes anterior al vencimiento de la autorización, una nueva solicitud.

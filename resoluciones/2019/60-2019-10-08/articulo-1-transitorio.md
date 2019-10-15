@@ -1,0 +1,2 @@
+Disposiciones transitorias
+TRANSITORIO I.- Las solicitudes recibidas mediante el formulario D-300 “Registro de comercializadores, distribuidores y productores de canasta básica tributaria y exportadores, que se encuentren pendientes de tramitar, serán incorporadas de oficio en el Registro Único Tributario, sin necesidad de emitirse la resolución establecida en el artículo 21) de la resolución DGT-DGH-R-031-2019 de las 8:05 horas del 20 de junio 2019, atendiéndose en estos casos lo descrito en la presente resolución.
