@@ -1,0 +1,4 @@
+ARTÍCULO 26- Aportes de las empresas o centros de formación para la empleabilidad
+Las empresas que participen en la EFTP dual deberán hacer un aporte mensual al Fondo especial de becas del INA, por cada estudiante que reciban, de ciento veinte mil colones (120.000,00) mensuales, indexado anualmente de acuerdo con el índice de precios al consumidor (IPC).
+Quedan exceptuadas de este cobro las empresas definidas como pequeña y mediana empresa, de conformidad con lo señalado en el artículo 3 de la Ley N.° 8262, Ley de Fortalecimiento de las Pequeñas y Medianas Empresas, de 2 de mayo de 2002.
+Se autoriza a todas las instituciones públicas que ofrezcan becas o administren fondos para tales fines para que otorguen ayudas y subsidios a los estudiantes que cursen programas de EFTP dual, en cualquier centro educativo público o privado.

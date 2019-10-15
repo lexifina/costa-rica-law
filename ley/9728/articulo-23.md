@@ -1,0 +1,3 @@
+ARTÍCULO 23- EFTP dual de personas con discapacidad
+Todos los procesos de la EFTP dual deberán garantizar el respeto a los derechos y la dignidad humana de las personas con discapacidad, de acuerdo con la normativa vigente. Los centros educativos y las empresas o centros de formación para la empleabilidad deberán realizar las respectivas consideraciones relacionadas con el horario, la duración de los períodos de evaluación, la utilización de apoyos, la utilización de asistencia de terceros, entre otros aspectos.
+Todo lo anterior tomando en cuenta los tipos de discapacidad (física, mental intelectual o sensorial) descritas en la Ley N.° 7600, Ley de Igualdad de Oportunidades para las Personas con Discapacidad, de 2 de mayo de 1996.
