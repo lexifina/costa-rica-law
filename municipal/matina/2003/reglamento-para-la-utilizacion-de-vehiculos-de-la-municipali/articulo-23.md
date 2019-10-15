@@ -1,1 +1,0 @@
-Artículo 23.—Cuando la naturaleza de la labor a desarrollar así como la conveniencia y oportunidad del medio a usar, amerita la utilización de otros medios de transporte, estos deberán preferirse siempre que resulten más económicos, sin menoscabo de la labor a realizar.
