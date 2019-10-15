@@ -14,3 +14,4 @@ Reglamento para el transporte internacional público colectivo remunerado de per
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-11-23 | la propia norma |
+| 2 | 2019-10-15 | Decreto Ejecutivo 42072 (2019-10-15) |
