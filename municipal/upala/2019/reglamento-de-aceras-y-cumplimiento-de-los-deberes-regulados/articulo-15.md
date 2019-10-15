@@ -1,0 +1,1 @@
+Artículo 15.—Actualización. Para el cobro de las obras y servicios regulados en este reglamento, la Municipalidad actualizará anualmente y publicará en el diario oficial La Gaceta, los costos con base en el índice de precios de construcciones que publica el Instituto Nacional de Estadística y Censos.

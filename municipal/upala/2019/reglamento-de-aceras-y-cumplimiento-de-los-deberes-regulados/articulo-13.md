@@ -1,0 +1,2 @@
+Artículo 13.—Reparar Daños. Cuando cualquier persona física, institución o empresa pública o privada, para el desarrollo de sus actividades requiera o necesite romper o afectar la vía pública (acera, cordón y caño) deberá solicitar el permiso correspondiente a la Unidad Técnica de Gestión Vial, adjuntado un cronograma del trabajo a realizar y el compromiso por escrito de reparar los daños causados.
+No deberá iniciar los trabajos hasta tanto el permiso sea otorgado, para lo cual la Municipalidad contará con diez días hábiles para resolver.
