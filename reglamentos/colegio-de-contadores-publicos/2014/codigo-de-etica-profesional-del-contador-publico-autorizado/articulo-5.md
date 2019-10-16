@@ -1,3 +1,1 @@
-Artículo 5º—La confidencialidad deberá ser observada siempre, a menos de que se obtenga autorización del cliente expresa y concreta para revelarla, o si hay una solicitud de las autoridades competentes legalmente.
-El contador público autorizado mantendrá la confidencialidad, incluso en el entorno no laboral, estando atento a la posibilidad de una divulgación inadvertida, en especial a un socio cercano, a un familiar próximo o a un miembro de su familia inmediata.
-El contador público autorizado deberá también mantener la confidencialidad de la información que le ha sido revelada por un potencial cliente o por la entidad para la que trabaja.
+Artículo 5º—(Derogado mediante sesión ordinaria N° 16-2019 del 16 de octubre del 2019)

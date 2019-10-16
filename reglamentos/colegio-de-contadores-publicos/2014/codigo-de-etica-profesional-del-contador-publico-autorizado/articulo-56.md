@@ -1,1 +1,1 @@
-Artículo 56.—El contador público autorizado catedrático o docente, en sus relaciones con sus alumnos, deberá abstenerse de hacer comentarios que lesionen la reputación y el prestigio de alumnos, catedráticos o docentes, colegas o de la profesión en general.
+Artículo 56.—(Derogado mediante sesión ordinaria N° 16-2019 del 16 de octubre del 2019)

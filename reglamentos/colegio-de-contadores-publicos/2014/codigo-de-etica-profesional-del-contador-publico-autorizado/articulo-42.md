@@ -1,1 +1,1 @@
-Artículo 42.—El contador público autorizado en ningún caso podrá conceder comisiones o corretajes por la obtención de un trabajo profesional. Solo podrá conceder participación en los honorarios o utilidades derivadas de su trabajo, a personas o asociaciones con quienes comparta el ejercicio profesional directamente.
+Artículo 42.— (Derogado mediante sesión ordinaria N° 16-2019 del 16 de octubre del 2019)
