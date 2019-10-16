@@ -1,0 +1,1 @@
+Artículo 4º—Será responsabilidad de los propietarios, arrendatarios u ocupantes de depósitos almacenes de venta de plantas comerciales y autoconsumo, exigir al proveedor, que el origen de éstas no provenga de semillas de frutos frescos de aguacate (Persea americana Mill.) importados para consumo, procedentes de países con presencia de Avocado sunblotch viroid (ASBVd).

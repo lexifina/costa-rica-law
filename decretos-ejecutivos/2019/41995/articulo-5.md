@@ -1,0 +1,1 @@
+Artículo 5º—Será responsabilidad de todo productor de frutos de aguacate para uso comercial de autoconsumo, asegurar que el origen de las plantas a utilizar para la producción cumpla con lo señalado en los artículos 3° y 4° de este decreto.

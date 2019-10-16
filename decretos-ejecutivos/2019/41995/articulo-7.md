@@ -1,0 +1,1 @@
+Artículo 7º—El incumplimiento de lo ordenado por el presente Decreto Ejecutivo, será sancionado conforme a lo indicado en el capítulo VIII, artículo 68 de la Ley de Protección Fitosanitaria, Ley N° 7664.

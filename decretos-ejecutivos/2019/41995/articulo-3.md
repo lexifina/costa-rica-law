@@ -1,0 +1,1 @@
+Artículo 3º—Será responsabilidad de todo propietario, arrendatario u ocupante de un predio donde exista o se establezca un vivero de plantas frutales, sean comerciales o de autoconsumo, asegurar que el origen de semillas de aguacate no provenga de frutos frescos de aguacate importados para consumo, procedentes de países con presencia de Avocado sunblotch viroid (ASBVd).

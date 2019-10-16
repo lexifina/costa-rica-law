@@ -1,0 +1,1 @@
+Artículo 6º—El Servicio Fitosanitario del Estado, por medio de sus inspectores, podrá realizar los muestreos y análisis de laboratorio que verifiquen la situación de plaga en el material y en caso de comprobarse la presencia de la plaga se aplicará la medida que se determine según el artículo 19 de la Ley de Protección Fitosanitaria, Ley N° 7664.
