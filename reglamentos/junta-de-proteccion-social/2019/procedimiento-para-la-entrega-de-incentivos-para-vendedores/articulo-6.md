@@ -1,0 +1,1 @@
+Artículo 6º—Presupuesto. El presupuesto para el otorgamiento de estos incentivos, se tomará de la partida 6.02.99- 1000 “Otros Incentivos para Adjudicatarios y Concesionarios”, la cual se tiene una cantidad de ¢100.000.000,00 para ser utilizados en este 2019.
