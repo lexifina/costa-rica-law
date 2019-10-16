@@ -4,23 +4,23 @@ SECCIÓN I. CONTENIDO DEL PROSPECTO
 Lo incluido en letra itálica y entre paréntesis en este Anexo son expresiones orientativas y no son parte del prospecto final que debe difundirse.
 1. ENCABEZADO Y NOTAS IMPORTANTES PARA LOS INVERSIONISTAS
 En la página inicial del prospecto se debe incluir:
-1.1 Título: “PROSPECTO”.
+1.1 Título: "PROSPECTO".
 1.2. Nombre completo del fondo de inversión.
 1.3. (Derogado por acuerdo SGV-218 del 19 de agosto de 2016).
 1.4. Nombre de la sociedad administradora.
 1.5. Fecha y número de resolución de la autorización para hacer oferta pública.
 1.6. Fecha de elaboración o actualización del prospecto, según corresponda.
 1.7 Responsabilidad sobre el contenido del prospecto:
-“El representante legal de (nombre de sociedad), asume la responsabilidad del contenido de este Prospecto, para lo cual ha emitido una declaración en donde se indica que con base en la información disponible al momento de preparar el prospecto, la información contenida es exacta, veraz, verificable y suficiente, con la intención de que el lector pueda ejercer sus juicios de valoración en forma razonable, y que no existe ninguna omisión de información relevante o adición de información que haga engañoso su contenido para la valoración del inversionista. Esta declaración fue entregada a la Superintendencia General de Valores como parte del trámite de autorización y puede ser consultada en sus oficinas.
+"El representante legal de (nombre de sociedad), asume la responsabilidad del contenido de este Prospecto, para lo cual ha emitido una declaración en donde se indica que con base en la información disponible al momento de preparar el prospecto, la información contenida es exacta, veraz, verificable y suficiente, con la intención de que el lector pueda ejercer sus juicios de valoración en forma razonable, y que no existe ninguna omisión de información relevante o adición de información que haga engañoso su contenido para la valoración del inversionista. Esta declaración fue entregada a la Superintendencia General de Valores como parte del trámite de autorización y puede ser consultada en sus oficinas.
 (Así reformado el inciso 1.7) anterior por acuerdo SGV-218 del 19 de agosto de 2016).
 1.8 Leyendas:
-a. “Señor Inversionista: Antes de invertir consulte e investigue sobre el producto en el cual desea participar. Este prospecto contiene información sobre las características fundamentales y riesgos del fondo de inversión, por lo que se requiere su lectura. La información que contiene puede ser modificada en el futuro, para lo cual la sociedad administradora le comunicará de acuerdo a los lineamientos establecidos por la normativa”.
-b. “La sociedad administradora del fondo de inversión asume la responsabilidad del contenido de este Prospecto y declara que a su juicio, los datos contenidos en el mismo son conformes a la realidad y que no se omite ningún hecho susceptible de alterar su alcance.
-c. “La Superintendencia General de Valores (SUGEVAL) no emite criterio sobre la veracidad, exactitud o suficiencia de la información contenida en este prospecto y no asume responsabilidad por la situación financiera del fondo de inversión. La autorización para realizar oferta pública no implica una recomendación de inversión sobre el fondo o su sociedad administradora. La gestión financiera y el riesgo de invertir en este fondo de inversión, no tienen relación con las entidades bancarias o financieras de su grupo económico, pues su patrimonio es independiente.”
-d. En el caso de fondos no diversificados: “Un fondo no diversificado puede concentrar su inversión en menos de diez emisores diferentes. En este caso las situaciones adversas que enfrente un emisor o sector económico pueden afectar en mayor proporción las inversiones del fondo, por lo que existe una probabilidad más alta de que se incrementen los riesgos asociados a su inversión. Consulte a su asesor de inversiones.”
-e. En el caso de fondos garantizados: “El fondo garantizado tiene por objetivo asegurar un porcentaje del capital invertido a su vencimiento, sujeto a las condiciones y restricciones establecidas en el prospecto. No se asegura el rendimiento ni el valor de participación antes del vencimiento del fondo. Este fondo asegura el ___% del capital invertido.”
-f. En el caso de fondos de procesos de titularización: “Los fondos de inversión de procesos de titularización tiene características especiales en cuanto a los activos que lo conforman, por lo que se advierte al inversionista sobre la importancia de asesorarse y revisar con detalle el prospecto antes de tomar la decisión de invertir”.
-g. En el caso de fondos inmobiliarios o de desarrollo de proyectos[1] con activos fuera del territorio costarricense: “La SUGEVAL le advierte que este fondo de inversión puede tener características especiales en cuanto a la estructura de la propiedad de los activos inmobiliarios objeto de inversión, así como sobre los riesgos asociados, por lo cual se le recomienda revisar con destalle el prospecto y asesorarse antes de tomar su decisión de inversión.
+a. "Señor Inversionista: Antes de invertir consulte e investigue sobre el producto en el cual desea participar. Este prospecto contiene información sobre las características fundamentales y riesgos del fondo de inversión, por lo que se requiere su lectura. La información que contiene puede ser modificada en el futuro, para lo cual la sociedad administradora le comunicará de acuerdo a los lineamientos establecidos por la normativa".
+b. "La sociedad administradora del fondo de inversión asume la responsabilidad del contenido de este Prospecto y declara que a su juicio, los datos contenidos en el mismo son conformes a la realidad y que no se omite ningún hecho susceptible de alterar su alcance.
+c. "La Superintendencia General de Valores (SUGEVAL) no emite criterio sobre la veracidad, exactitud o suficiencia de la información contenida en este prospecto y no asume responsabilidad por la situación financiera del fondo de inversión. La autorización para realizar oferta pública no implica una recomendación de inversión sobre el fondo o su sociedad administradora. La gestión financiera y el riesgo de invertir en este fondo de inversión, no tienen relación con las entidades bancarias o financieras de su grupo económico, pues su patrimonio es independiente."
+d. En el caso de fondos no diversificados: "Un fondo no diversificado puede concentrar su inversión en menos de diez emisores diferentes. En este caso las situaciones adversas que enfrente un emisor o sector económico pueden afectar en mayor proporción las inversiones del fondo, por lo que existe una probabilidad más alta de que se incrementen los riesgos asociados a su inversión. Consulte a su asesor de inversiones."
+e. En el caso de fondos garantizados: "El fondo garantizado tiene por objetivo asegurar un porcentaje del capital invertido a su vencimiento, sujeto a las condiciones y restricciones establecidas en el prospecto. No se asegura el rendimiento ni el valor de participación antes del vencimiento del fondo. Este fondo asegura el ___% del capital invertido."
+f. En el caso de fondos de procesos de titularización: "Los fondos de inversión de procesos de titularización tiene características especiales en cuanto a los activos que lo conforman, por lo que se advierte al inversionista sobre la importancia de asesorarse y revisar con detalle el prospecto antes de tomar la decisión de invertir".
+g. En el caso de fondos inmobiliarios o de desarrollo de proyectos[1] con activos fuera del territorio costarricense: "La SUGEVAL le advierte que este fondo de inversión puede tener características especiales en cuanto a la estructura de la propiedad de los activos inmobiliarios objeto de inversión, así como sobre los riesgos asociados, por lo cual se le recomienda revisar con destalle el prospecto y asesorarse antes de tomar su decisión de inversión.
 1.9 (Derogado por acuerdo SGV-218 del 19 de agosto de 2016).
 2. TABLA DE CONTENIDO O ÍNDICE
 Incluir una tabla de contenido o índice del prospecto, según los apartados que se indican en este Anexo.
@@ -30,6 +30,9 @@ a. Horizonte de inversión
 b. Capacidad de soportar pérdidas, temporales o incluso permanentes en el valor de sus inversiones.
 c. Necesidades de liquidez presentes y futuras del inversionista, así como perspectivas de ingresos adicionales en el futuro.
 d. Conocimientos y experiencia previa en el mercado de valores o en los activos de especialidad del fondo.
+3.1 Bis. Definición del Modelo de Negocio del Fondo de Inversión, que considere al menos los siguientes aspectos:
+[imagen]
+(Así adicionado el punto 3.1 bis anterior por acuerdo n° SGV-A-236 del 16 de octubre de 2019)
 3.2 Tipo de fondo de conformidad con la siguiente tipología:
 Tipo de Fondo
 Por su naturaleza | (Abierto o Cerrado) | Por su objetivo | (Mercado de dinero, Crecimiento o Ingreso)
@@ -41,8 +44,8 @@ Nombre del Gestor del fondo4 (4En el caso de fondos de desarrollo de proyectos y
 Política de retribución al gestor del fondo | (Incluir una descripción general de los componentes fijos y variables de la retribución. Esta revelación aplica en los casos en que el fondo asuma en forma directa el costo de retribución al gestor)
 Entidad de Custodia | (Indicar el nombre completo)
 Agente de pago | (Indicar el nombre completo)
-Calificación de riesgo | (Indicar el nombre de la sociedad calificadora de riesgo, lugares en donde se puede consultar la calificación otorgada y periodicidad de actualización de la calificación. En el caso de fondos que se encuentren en los primeros doce meses de inicio de operaciones, se debe indicar que la primera calificación deber ser publicada en el plazo máximo de doce meses contados a partir de la carta de cumplimiento de requisitos de autorización.5 (5En el caso de fondos de inversión de procesos de titularización, se debe considerar lo dispuesto en el artículo 49 del Reglamento.) Esta sección debe incluir la calificación otorgada al fondo, cuando se disponga de la calificación inicial y se actualiza cuando se presenten modificaciones a la calificación otorgada –escala otorgada-)
-“Número de Cédula como contribuyente 6 (6Campo adicionado por el Acuerdo del Superintendente SGV-A-218 del 19 de agosto del 2016.) | (número asignado según directrices de la DGT: DR-DI-11-2011 y DR-DI-01-2012)”
+Calificación de riesgo | (Indicar el nombre de la sociedad calificadora de riesgo, lugares en donde se puede consultar la calificación otorgada y periodicidad de actualización de la calificación. En el caso de fondos que se encuentren en los primeros doce meses de inicio de operaciones, se debe indicar que la primera calificación deber ser publicada en el plazo máximo de doce meses contados a partir de la carta de cumplimiento de requisitos de autorización.5 (5En el caso de fondos de inversión de procesos de titularización, se debe considerar lo dispuesto en el artículo 49 del Reglamento.) Esta sección debe incluir la calificación otorgada al fondo, cuando se disponga de la calificación inicial y se actualiza cuando se presenten modificaciones a la calificación otorgada -escala otorgada-)
+"Número de Cédula como contribuyente 6 (6Campo adicionado por el Acuerdo del Superintendente SGV-A-218 del 19 de agosto del 2016.) | (número asignado según directrices de la DGT: DR-DI-11-2011 y DR-DI-01-2012)"
 3.4 En el caso de los fondos cerrados que no posean un programa de colocación de participaciones: 7
 (7Sección modificada por el Acuerdo del Superintendente SGV-A-218 del 19 de agosto del 2016.)
 Monto autorizado
@@ -65,7 +68,7 @@ Programa de colocación de participaciones |
 | Fecha de emisión | Fecha de vencimiento |
 Fechas máximas para la emisión y vencimiento de cada serie | Serie (indicar el nombre) | Código ISIN (Código) | (fecha) | (fecha) |
 Serie (indicar el nombre) | Código ISIN (Código) | (fecha) | (fecha) |
-Serie (indicar el nombre) | Código ISIN (Código) | (fecha) | (fecha)” |
+Serie (indicar el nombre) | Código ISIN (Código) | (fecha) | (fecha)" |
 | | | | | | | | | |
 3.6 En el caso de fondos garantizados:
 Descripción de la garantía del fondo
@@ -102,7 +105,7 @@ Nivel máximo de endeudamiento del fondo | (porcentaje) | Moneda de contratació
 (10Sección modificada por el Acuerdo del Superintendente SGV-A-218 del 19 de agosto del 2016.)
 | Política de Inversión de activos inmobiliarios
 | Tipo de inmuebles | (Comercio, Oficinas, Hoteles, Restaurantes, Bodegas, otros) | Porcentaje mínimo de inversión en activos inmobiliarios | (porcentaje)
-| Países donde se pueden ubicar los inmuebles | (País o países específicos, en el caso de que el fondo pueda adquirir inmuebles fuera del territorio nacional a través del uso de vehículos de estructuración, como figuras societarias o fideicomisos, se debe incluir la siguiente leyenda con un formato de letra en “negrita”: “Mediante modificaciones al prospecto se adicionará información sobre aspectos específicos de la estructura legal que se utilizará para la adquisición de bienes inmuebles en el extranjero.”)
+| Países donde se pueden ubicar los inmuebles | (País o países específicos, en el caso de que el fondo pueda adquirir inmuebles fuera del territorio nacional a través del uso de vehículos de estructuración, como figuras societarias o fideicomisos, se debe incluir la siguiente leyenda con un formato de letra en "negrita": "Mediante modificaciones al prospecto se adicionará información sobre aspectos específicos de la estructura legal que se utilizará para la adquisición de bienes inmuebles en el extranjero.")
 | Criterios mínimos exigidos a los inmuebles | (Indicar los criterios. Referirse a variables tales como ubicación, antigüedad, características de los inquilinos actuales o potenciales, entre otros)
 | Concentración máxima de ingresos provenientes de un inquilino | (porcentaje)
 | Política de arrendamiento de inmuebles a personas o compañías relacionadas a la sociedad administradora | (Indicar la política)
@@ -115,7 +118,7 @@ Nivel máximo de endeudamiento del fondo | (Porcentaje) | Moneda de contratació
 4.3 En el caso de fondos de desarrollo de proyectos, adicionalmente se debe revelar:11
 (11Sección modificada por el Acuerdo del Superintendente SGV-A-218 del 19 de agosto del 2016.)
 | Política de Inversión de proyectos de desarrollo
-| Descripción del proyecto | (Descripción del proyecto concreto de modo que se conozca en forma general qué se va a desarrollar, cuándo, cómo, si se desarrollará por etapas y si incluye equipamiento u otros activos y la prestación de servicios complementarios, los cuales son de carácter accesorio. Adicionalmente se debe incluir una leyenda que indique: “En la sección ___ se describen las principales características del proyecto a desarrollar.”)
+| Descripción del proyecto | (Descripción del proyecto concreto de modo que se conozca en forma general qué se va a desarrollar, cuándo, cómo, si se desarrollará por etapas y si incluye equipamiento u otros activos y la prestación de servicios complementarios, los cuales son de carácter accesorio. Adicionalmente se debe incluir una leyenda que indique: "En la sección ___ se describen las principales características del proyecto a desarrollar.")
 | Ubicación geográfica | (Descripción)
 | Tipos de activos que pueden formar parte del proyecto | (Enumerar los tipos de activos. En los casos necesarios indicar las características o alcance, condiciones, plazos y limitaciones para su adquisición y uso. Si el fondo participa de negocios conjuntos con otras entidades debe revelarse dicha situación, así como los niveles de participación mínimos o máximos permitidos)
 | Otras políticas de inversión | (Describir las políticas)
@@ -144,7 +147,7 @@ Otras políticas de inversión | (Describir las políticas) |
 | Descripción del mecanismo | (Breve descripción del proceso de titularización y del mecanismo de estructuración)
 | Tipo de flujos de ingreso o activos por titularizar | (Indicar los tipos de flujos o activos que pueden titularizarse pars el fondo )
 | Origen de los flujos de ingreso o activos que se agrupan en el fondo | (Indicar la entidad o entidades originadores de los flujos o activos y los criterios para la selección de dichas entidades)
-| Criterios para la selección de los flujos de ingreso o activos que se agrupan en el fondo | (Detallar los criterios. Adicionalmente se debe incluir la siguiente leyenda con un formato de letra en “negrita”: “Previo a la inversión en cada paquete de flujos de ingreso o activos, se incorporará al prospecto una adenda que resume las principales características del paquete.”)
+| Criterios para la selección de los flujos de ingreso o activos que se agrupan en el fondo | (Detallar los criterios. Adicionalmente se debe incluir la siguiente leyenda con un formato de letra en "negrita": "Previo a la inversión en cada paquete de flujos de ingreso o activos, se incorporará al prospecto una adenda que resume las principales características del paquete.")
 | Descripción del proceso de cesión de los flujos de ingreso o activos al fondo de inversión | (Describir el proceso de cesión y características de flujos o activos cedidos)
 | Administración de los flujos de ingreso o activos cedidos al fondo | (Describir los mecanismos previstos para la administración. En caso de contratar a otras entidades para apoyar las labores de administración de los activos, deberán indicarse los criterios para la selección de estas)
 | Otras políticas de inversión | (Describir las políticas)
@@ -189,10 +192,10 @@ Comercialización y venta | (Mecanismos previstos para la comercialización y ve
 3.
 4.
 5.
-5.1. Leyenda, la cual debe ser presentada con un formato de letra en “negrita”:
-“Señor Inversionista:
+5.1. Leyenda, la cual debe ser presentada con un formato de letra en "negrita":
+"Señor Inversionista:
 Los riesgos son situaciones que, en caso de suceder, pueden afectar el cumplimiento de los objetivos del fondo, perturbar el valor de la cartera y de las inversiones, generar un rendimiento menor al esperado o, inclusive, causarle pérdida en sus inversiones. Se debe tener presente que el riesgo forma parte de cualquier inversión; sin embargo, en la mayoría de los casos puede medirse y gestionarse. Las siguientes anotaciones le servirán de orientación, para evaluar el efecto que tendrán posibles eventos en la inversión.
-Los principales riesgos a los que se puede ver enfrentado el fondo son:”
+Los principales riesgos a los que se puede ver enfrentado el fondo son:"
 5.2 Tipos de riesgos: La siguiente lista es orientativa y no exhaustiva. La sociedad administradora es responsable de identificar los riesgos y su adecuada revelación en el prospecto:
 Tipos de riesgo
 Tipo | Descripción
@@ -216,6 +219,13 @@ Riesgo de concentración por inmueble | (Ídem)
 Riesgo de concentración por inquilino | (Ídem)
 Riesgo por la discrecionalidad de la sociedad administradora para la compra de activos | (En caso de que en el prospecto no se indique la política de inversión que seguirá la sociedad administradora para la toma de decisiones de inversión en bienes inmuebles, deberá revelarse el riesgo asociado a la discrecionalidad de la sociedad administradora para la toma de decisiones de inversión, la cual podría implicar para el inversionista inversiones no esperadas)
 Otros riesgos: (incluir nombre) | (Ídem)
+|
+(*) Tabla establecida los riesgos relacionados con la definición del modelo de negocio del fondo de inversión.
+[imagen]
+[imagen]
+[imagen]
+[imagen]
+(*) (Así adicionada la tabla anterior por acuerdo N° SGV-A-236 del 16 de octubre de 2019)
 5.2.1 En el caso de fondos de desarrollo de proyectos14, adicionalmente se debe revelar:15
 (14Concepto modificado por el Acuerdo del Superintendente SGV-A-218 del 19 de agosto del 2016.)
 (15Sección modificada por el Acuerdo del Superintendente SGV-A-218 del 19 de agosto del 2016.)
@@ -230,7 +240,7 @@ Riesgo por obtención de permisos y autorizaciones de las instituciones competen
 Riesgos derivados de las obligaciones para el equipamiento y servicios complementarios en el proyecto | (Ídem)
 Riesgo de incumplimiento de los contratos que generan los flujos de efectivo | (Ídem)
 Riesgos sobre revocatoria de derechos de uso o usufructo | (Ídem)
-Otros riesgos: (incluir nombre) | (Ídem)”
+Otros riesgos: (incluir nombre) | (Ídem)"
 5.2.2 En el caso de fondos de procesos de titularización, adicionalmente se deben revelar los riesgos según la naturaleza de los flujos de ingreso o activos a titularizar. A continuación se presentan los riesgos que pueden ser considerados en función del tipo de titularización que se trate:
 Riesgos propios de los procesos de titularización según la naturaleza de los flujos de ingreso o activos a titularizar
 Riesgo de incumplimiento de los mejoradores crediticios | (Ídem)
@@ -253,13 +263,13 @@ DE LOS TÍTULOS DE PARTICIPACIÓN DEL FONDO
 6.1. Se debe revelar la siguiente información: 16
 (16Sección modificada por el Acuerdo del Superintendente SGV-A-201 del 2 de octubre del 2015.)
 Valores de Participación
-Características | “Las participaciones de los inversionistas en cualquier fondo estarán representadas por los certificados de participación, denominadas también participaciones; cada uno tendrá igual valor y condiciones o características idénticas para sus inversionistas.”
+Características | "Las participaciones de los inversionistas en cualquier fondo estarán representadas por los certificados de participación, denominadas también participaciones; cada uno tendrá igual valor y condiciones o características idénticas para sus inversionistas."
 Forma de representación | (Anotación en cuenta, macro título)
 Entidad responsable de llevar el libro oficial centralizado de la titularidad de las participaciones | (Aplica solo para fondos abiertos, Indicar el nombre completo)
 Valor nominal de la participación | (Valor nominal)
-Cálculo del valor de la participación | (Indicar: “El valor o precio de la participación se obtiene al dividir el valor del activo neto del fondo, calculado al final de cada día, entre el número de participaciones en circulación.” En el caso de fondos cerrados agregar: “En el caso de fondos de inversión cerrados, el valor de participación que se obtenga es de referencia.”)
-Metodología para la valoración de los activos financieros del fondo de inversión | (Indicar: a) En qué consiste el proceso de valoración a precios de mercado, así como las implicaciones que tiene para el patrimonio del fondo y el rendimiento que se reporta periódicamente. b) El nombre de la metodología registrada y el nombre de la entidad contratada para el suministro de precios. c) Los lugares en donde se puede tener acceso al documento que describe la metodología.)
-Periodicidad de la valoración de los activos financieros del fondo | “Diaria”
+Cálculo del valor de la participación | (Indicar: "El valor o precio de la participación se obtiene al dividir el valor del activo neto del fondo, calculado al final de cada día, entre el número de participaciones en circulación." En el caso de fondos cerrados agregar: "En el caso de fondos de inversión cerrados, el valor de participación que se obtenga es de referencia.")
+Metodología para la valoración de los activos financieros del fondo de inversión | a) En qué consiste el proceso para la valoración de los activos financieros del fondo, el cual debe ser congruente con el modelo de negocio contable definido. Para los fondos de inversión que utilicen el valor razonable como modelo de negocio contable, adicionalmente indicar: (Así reformado el inciso anterior por acuerdo N° SGV-A-236 del 16 de octubre de 2019) b) El nombre de la metodología y el nombre de la entidad contratada para el suministro de precios. (Así reformado el inciso anterior por acuerdo N° SGV-A-236 del 16 de octubre de 2019) c) Los lugares en donde se puede tener acceso al documento que describe la metodología. (Así reformado el inciso anterior por acuerdo N° SGV-A-236 del 16 de octubre de 2019) En todos los casos en que el modelo de negocio definido utilice el registro a costo amortizado para la totalidad o una parte de la cartera, indicar que el valor de mercado de dichos instrumentos será reflejado en las notas de los estados financieros intermedios y auditados del fondo de inversión.
+Periodicidad de la valoración de los activos financieros del fondo | "Diaria"
 6.2 En el caso de fondos inmobiliarios, adicionalmente se debe revelar:
 Metodología para la valoración de los inmuebles del fondo de inversión | (Indicar el procedimiento utilizado para la valoración de los activos no financieros)
 Periodicidad de la valoración de los activos no financieros del fondo | (Indicar la periodicidad)
@@ -306,7 +316,7 @@ Distribución de beneficios periódicos
 Periodicidad de distribución | (Indicar la periodicidad)
 Fecha de corte para determinar inversionistas con derecho a recibir los beneficios | (Indicar la fecha en que se consultarán los registros para pagar los beneficios periódicos)
 Fecha de pago de los beneficios | (Indicar la fecha máxima de pago de los beneficios periódicos)
-Determinación del beneficio a distribuir | (Descripción)”
+Determinación del beneficio a distribuir | (Descripción)"
 8. COMISIONES Y COSTOS
 3.
 4.
@@ -316,8 +326,8 @@ Determinación del beneficio a distribuir | (Descripción)”
 8.
 8.1. Se debe revelar la siguiente información:
 Comisión de administración y costos que asume el fondo
-Comisión de administración máxima | (Indicar el porcentaje máximo, la base de cálculo –activo neto, rendimientos, ambos-, e indicar que la comisión puede variar por debajo de este máximo una vez al mes, lo cual se comunica mediante hecho relevante)
-Costos que asume el fondo de inversión | Indicar los costos específicos que asume el fondo de inversión. No se pueden utilizar expresiones como “otros” o similares que generen imprecisión en cuanto al tipo de costo. Se debe aclarar que los costos reales incurridos en cada trimestre se pueden consultar en los informes trimestrales del fondo. En el caso de fondos de procesos de titularización, indicar que los costos específicos de cada activo o paquete de activos se revelarán en las adenda al prospecto 18 (18Descriptivo modificado por el Acuerdo del Superintendente SGV-A-218 del 19 de agosto del 2016.)
+Comisión de administración máxima | (Indicar el porcentaje máximo, la base de cálculo -activo neto, rendimientos, ambos-, e indicar que la comisión puede variar por debajo de este máximo una vez al mes, lo cual se comunica mediante hecho relevante)
+Costos que asume el fondo de inversión | Indicar los costos específicos que asume el fondo de inversión. No se pueden utilizar expresiones como "otros" o similares que generen imprecisión en cuanto al tipo de costo. Se debe aclarar que los costos reales incurridos en cada trimestre se pueden consultar en los informes trimestrales del fondo. En el caso de fondos de procesos de titularización, indicar que los costos específicos de cada activo o paquete de activos se revelarán en las adenda al prospecto 18 (18Descriptivo modificado por el Acuerdo del Superintendente SGV-A-218 del 19 de agosto del 2016.)
 8.2 Si se establecen comisiones de entrada o salida, se debe revelar
 Otras comisiones
 Comisión de entrada | (Indicar el porcentaje y las condiciones en las cuales se cobra la comisión)
@@ -329,22 +339,22 @@ Premios | (Descripción del esquema de funcionamiento de los premios, de conform
 9.1. Se debe revelar lo siguiente:
 Información periódica que los inversionistas pueden consultar
 Información | Periodicidad | Lugares para consulta o medios para su difusión
-Estados de cuenta | “Mensual” | (Indicar el medio)
-Informes trimestrales | “Trimestral” | (ídem)
-Hechos relevantes | “Inmediatamente después de su conocimiento” | (ídem)
-Calificación de riesgo | “Semestral” o “Trimestral”, según corresponda | (ídem)
-Estados financieros mensuales no auditados de la SAFI y sus fondos | “Mensual” | (ídem)
-Estados financieros auditados de la SAFI y sus fondos | “Anual” | (ídem)
-Reporte de composición de cartera de los fondos | “Quincenal” | (ídem)
-Reporte de comisiones de administración, valor del activo neto del fondo, valor de la participación, y rendimientos del fondo | “Diario” | (ídem)
+Estados de cuenta | "Mensual" | (Indicar el medio)
+Informes trimestrales | "Trimestral" | (ídem)
+Hechos relevantes | "Inmediatamente después de su conocimiento" | (ídem)
+Calificación de riesgo | "Semestral" o "Trimestral", según corresponda | (ídem)
+Estados financieros mensuales no auditados de la SAFI y sus fondos | "Mensual" | (ídem)
+Estados financieros auditados de la SAFI y sus fondos | "Anual" | (ídem)
+Reporte de composición de cartera de los fondos | "Quincenal" | (ídem)
+Reporte de comisiones de administración, valor del activo neto del fondo, valor de la participación, y rendimientos del fondo | "Diario" | (ídem)
 En el caso de fondos inmobiliarios, agregar a la tabla lo siguiente:
-Valoraciones financiera y pericial de los inmuebles | “Anual” | (ídem)
+Valoraciones financiera y pericial de los inmuebles | "Anual" | (ídem)
 En el caso de fondos de desarrollo de proyectos19, agregar a la tabla lo siguiente:
 (19Concepto modificado por el Acuerdo del Superintendente SGV-A-218 del 19 de agosto del 2016.)
-Informes de avance de los proyectos | “Trimestral” | (ídem)
+Informes de avance de los proyectos | "Trimestral" | (ídem)
 9.2 Se debe revelar el régimen fiscal que le aplica al fondo:
 Régimen fiscal que le aplica al fondo
-(Describir el régimen fiscal que le aplican al fondo. En caso de inversión en emisores o activos extranjeros, incluir literalmente con un formato de letra en “negrita”: “El régimen fiscal de las inversiones en activos del extranjero será el que aplique específicamente para cada país en el que se invierte”)
+(Describir el régimen fiscal que le aplican al fondo. En caso de inversión en emisores o activos extranjeros, incluir literalmente con un formato de letra en "negrita": "El régimen fiscal de las inversiones en activos del extranjero será el que aplique específicamente para cada país en el que se invierte")
 10. INFORMACIÓN SOBRE LA SOCIEDAD ADMINISTRADORA Y SU GRUPO FINANCIERO
 Información sobre la Sociedad Administradora |
 Direcciones | (Indicar dirección, teléfono, fax, apartado postal, correo electrónico y página Web.) |
@@ -363,7 +373,7 @@ Comité de inversión | (Nombre completo e indicar la experiencia en materia de 
 | (idem) | (cargo)
 (idem) | (cargo)
 (idem) | (cargo)
-(idem) | “Miembro independiente”
+(idem) | "Miembro independiente"
 Otras compañías o profesionales que prestan servicios al fondo
 Auditor Externo | (Nombre completo del profesional independiente o firma de auditores)
 Asesores legales, analistas internacionales y otros profesionales | (Nombre completo del profesional o compañía e indicación del tipo de servicio que brinda al fondo)
