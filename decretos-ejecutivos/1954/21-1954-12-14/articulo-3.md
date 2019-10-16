@@ -23,8 +23,9 @@ r) Por "Nómina", la terna o lista de los candidatos idóneos que la Dirección 
 s) Por "ascenso": la promoción de un servidor regular de un puesto a otro de nivel salarial superior, conforme a las vías de carrera administrativa dictadas por la Dirección General
 t) Por "descenso": el paso de un servidor regular de un puesto a otro de nivel salarial inferior;
 u) Por "traslado": el paso de un servidor regular de un puesto a otro del mismo nivel salarial;
-v) Por "Permuta", el intercambio de plazas de igual o distinta clase pero de un mismo nivel salarial, entre dos servidores regulares, con la anuencia de éstos y de las respectivas jefaturas, siempre y cuando reúnan los requisitos respectivos.categoría realizado entre dos servidores regulares, con la anuencia de estos y de las respectivas jefaturas; y
+v) Por “Permuta”: el intercambio de puestos de igual o distinta clase, entre dos servidores regulares, con la anuencia de éstos y de las respectivas jefaturas, siempre y cuando reúnan los requisitos respectivos de la clase de puesto que se pretende permutar.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 41862 del 16 de octubre del 2019)
 x) Por "Reubicación", el desplazamiento de un servidor con su puesto dentro de un programa presupuestario, de uno a otro programa o de un ministerio a otro.
 y) Por "categoría": el código que identifica a un conjunto -rango- de salarios ordenados en forma ascendente, entre un valor mínimo y un máximo;
 z) Por "nivel salarial": el código con que se identifica a cada uno de los salarios base que se determinan en forma ascendente al interno de las categorías salariales.
-(Reformados los incisos s),t),u) y v), así como adicionados los incisos y) y z), por el artículo 3° del Decreto Ejecutivo N° 26162 de 4 de julio de 1997).
+(Reformados los incisos s),t),u) y v), así como adicionados los incisos y) y z), por el artículo 3° del Decreto Ejecutivo N° 26162 de 4 de julio de 1997)
