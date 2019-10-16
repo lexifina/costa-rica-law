@@ -1,0 +1,1 @@
+Artículo 4°-Modificaciones al Protocolo. Cuando el Poder Ejecutivo considere pertinente modificar el contenido del Protocolo, comunicará de su intención mediante oficio a todas las empresas propiedad del Estado y les remitirá el nuevo texto al menos un mes antes de su publicación, con el fin de obtener y valorar sus observaciones respecto de su contenido.
