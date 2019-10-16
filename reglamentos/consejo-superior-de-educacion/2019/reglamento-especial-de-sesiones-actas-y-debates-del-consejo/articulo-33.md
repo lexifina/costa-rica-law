@@ -1,0 +1,1 @@
+Artículo 33.—La secretaría general del Consejo llevará un registro calificado de los acuerdos del Consejo por el cual se indicará, para cada acuerdo el título del tema, una breve reseña de su contenido, plazo para su cumplimiento o seguimiento en caso requerido.

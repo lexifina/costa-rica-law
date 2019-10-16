@@ -1,0 +1,2 @@
+Artículo 35.—De cada sesión se levantará un acta, que contendrá la identificación de las personas asistentes, así como las circunstancias de lugar y tiempo en que se ha celebrado, los puntos principales de la deliberación, la forma y resultado de la votación y el contenido de los acuerdos. También se hará mención de los documentos vistos en sesión, los cuales se archivarán en el respectivo expediente de la sesión.
+Las actas deberán ser firmadas por el presidente y por el secretario(a) general, una vez aprobadas por el Consejo.
