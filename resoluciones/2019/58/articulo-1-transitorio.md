@@ -1,0 +1,2 @@
+Transitorio Único. Hasta que el portal de ATV disponga de las opciones mencionadas en el formulario de inscripción o modificación de datos del Registro Único Tributario, modelo D.140, el contribuyente de las rentas de capital inmobiliario y mobiliario establecidas en la presente resolución, deberán presentar en la Administración Tributaria de su jurisdicción la declaración jurada que está disponible en el sitio del Ministerio de Hacienda en la sección de “Servicios Tributarios” > “Información de impuestos>Impuesto sobre la renta.
+Publíquese
