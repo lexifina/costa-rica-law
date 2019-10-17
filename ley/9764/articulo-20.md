@@ -1,0 +1,1 @@
+ARTÍCULO 20- Aquellas plazas de los funcionarios que se acojan a las opciones de los artículos 3, 4 y 8 deben ser eliminadas del presupuesto de Japdeva, manteniendo únicamente las plazas de los trabajadores, necesarias para garantizar la continuidad de la institución y el equilibrio financiero.

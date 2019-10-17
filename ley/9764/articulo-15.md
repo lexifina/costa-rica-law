@@ -1,0 +1,7 @@
+ARTÍCULO 15- Parámetros de caducidad
+La prejubilación otorgada al amparo de esta ley caducará:
+a) Cuando la persona beneficiaria cumpla los requisitos para acceder al derecho jubilatorio del Régimen de Invalidez, Vejez y Muerte o cualquier otro régimen de pensiones autorizado en el país.
+b) Cuando la persona beneficiaria se reinserte laboralmente y no informe a la Dirección Nacional de Pensiones, la Administración reclamará cualquier suma percibida de forma irregular, utilizando los mecanismos que le faculta la Ley N.º 6227, Ley General de la Administración Pública, de 2 de mayo de 1978, en sus artículos 149 y 150.
+c) Cuando ocurra el fallecimiento del beneficiario.
+A fin de cumplir con lo establecido en este artículo, las personas beneficiarias deberán comunicar por escrito, a Japdeva, al Ministerio de Hacienda y a la Dirección Nacional de Pensiones, su reinserción laboral previo al inicio de las funciones. La omisión del deber de comunicación por escrito en el plazo originará la obligación de reintegrar al Estado, en el plazo de treinta días naturales, el monto percibido por el beneficiario durante el período ocurrido entre la reinserción laboral y la suspensión.
+Si dicha devolución no se realizara dentro del plazo, el pensionado deberá pagar, al Ministerio de Hacienda, una multa equivalente al veinticinco por ciento (25%) del monto total de las prestaciones otorgadas posterior a su reinserción.

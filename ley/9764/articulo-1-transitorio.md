@@ -1,0 +1,2 @@
+TRANSITORIO I- Para la Administración central, la Dirección General del Servicio Civil deberá aplicar el proceso para realizar traslados horizontales, en el plazo máximo de tres meses a partir de la publicación de la presente ley.
+Respecto a los traslados entre instituciones bajo el ámbito de la Autoridad Presupuestaria, deberán aplicarse en el plazo de un mes, a partir de la entrada en vigencia de esta ley.

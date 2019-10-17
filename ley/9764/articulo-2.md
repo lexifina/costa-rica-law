@@ -1,0 +1,2 @@
+ARTÍCULO 2- Implementación
+En virtud de esta ley, Japdeva queda facultada para determinar la estructura administrativa y operativa adecuada para su correcto funcionamiento, así como realizar los estudios técnicos y las acciones necesarias para mantener únicamente las personas trabajadoras que requiera para garantizar la continuidad de la institución y el equilibrio financiero, en el corto y largo plazos.

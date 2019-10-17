@@ -1,0 +1,2 @@
+ARTÍCULO 17- Aplicación de otras normas
+Para los supuestos no regulados en la presente ley, se aplicarán analógicamente las disposiciones contenidas en la Ley N.º 7302, Creación del Régimen General de Pensiones con Cargo al Presupuesto Nacional, de Otros Regímenes Especiales y Reforma a la Ley N. º 7092, del 21 de abril de 1988 y sus reformas, Ley del Impuesto sobre la Renta, de 8 de julio de 1992.

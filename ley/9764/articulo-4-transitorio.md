@@ -1,0 +1,1 @@
+TRANSITORIO IV- Lo dispuesto en el artículo 18 de esta ley, que reforma el artículo 8 de la N. º 3091, Ley Orgánica de la Junta Administración Portuaria y de Desarrollo Económico de la Vertiente Atlántica, de 18 de febrero de 1963, aplicará para los nombramientos realizados posterior a la entrada en vigencia de esta ley.
