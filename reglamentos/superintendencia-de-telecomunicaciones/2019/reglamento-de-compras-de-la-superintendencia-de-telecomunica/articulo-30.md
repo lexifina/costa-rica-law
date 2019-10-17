@@ -1,0 +1,1 @@
+Artículo 30°- Conciliación de la cuenta. Es responsabilidad de la Unidad de Finanzas revisar al menos mensualmente el estado de cuenta de la tarjeta y conciliar con los comprobantes de pago, así como reportar de inmediato al Director General de Operaciones cualquier anomalía, para que sea comunicada al Consejo de la SUTEL y se tomen las medidas pertinentes.

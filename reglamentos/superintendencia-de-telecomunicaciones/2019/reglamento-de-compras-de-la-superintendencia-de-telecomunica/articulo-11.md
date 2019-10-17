@@ -1,0 +1,1 @@
+Artículo 11°-Formalización contractual. En todos los casos se formalizará la contratación mediante la plataforma de compras electrónica, incluyendo la indicación expresa de que el contratista y la SUTEL estarán sujetos a cumplir todas las obligaciones establecidas en el cartel, y en ausencia de disposición expresa, se sujetará a las disposiciones de la LCA y el RLCA.

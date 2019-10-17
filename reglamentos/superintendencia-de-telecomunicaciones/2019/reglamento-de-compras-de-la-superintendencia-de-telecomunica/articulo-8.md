@@ -1,0 +1,2 @@
+Artículo 8°- Adquisiciones menores por Caja Chica. La compra de bienes y servicios cuyo monto no supere la cuantía definida vía reglamento para procedimientos por caja chica, podrán ser tramitadas bajo esa modalidad.
+La solicitud de capacitaciones abiertas o similares no deberán solicitarse ni tramitarse por medio de la Unidad de Proveeduría y Servicios Generales, su adquisición será efectuada y aprobada por la Unidad de Recursos Humanos, de conformidad con el procedimiento definido para este tipo de servicios.
