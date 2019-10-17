@@ -1,0 +1,2 @@
+ARTÍCULO 16- Incorporación al Régimen de Pensiones
+Las personas extrabajadoras de Japdeva, que se encuentren en calidad de prejubiladas con cargo al presupuesto nacional, cuando cumplan con todos los requisitos y las condiciones para ser pensionados del Régimen de Invalidez, Vejez y Muerte de la Caja Costarricense de Seguro Social (CCSS) o al régimen de pensiones al que pertenezcan, deberán incorporarse a dicho régimen.

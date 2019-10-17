@@ -1,0 +1,6 @@
+ARTÍCULO 4- Incentivo adicional por transformación institucional
+Las personas trabajadoras de Japdeva, que opten por el cese de sus funciones, obtendrán un incentivo adicional al pago de sus prestaciones y se regirá por los siguientes parámetros:
+a) Se reconocerá el auxilio de cesantía, proporcional a los años de servicio laborados en la institución, de forma continua e ininterrumpida, hasta un máximo de doce años.
+b) Se otorgará un incentivo adicional de ocho mensualidades del salario promedio de los últimos seis meses efectivamente laborados, a quienes tuviesen un salario bruto mensual inferior al millón de colones ((21 000 000,00). A aquellas personas trabajadoras que tuviesen un salario bruto mensual igual o superior al millón de colones ((21 000 000,00), se les otorgará un incentivo adicional de cuatro mensualidades del salario promedio de los últimos seis meses efectivamente laborados.
+c) Las personas trabajadoras que reciban este incentivo adicional no podrán acogerse al derecho dispuesto en el capítulo 11 de la presente ley.
+d) Las personas trabajadoras que se acojan a lo dispuesto en este artículo no podrán ocupar puesto alguno en la Administración Pública, por un plazo de doce meses contado a partir del cese.
