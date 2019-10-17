@@ -1,0 +1,1 @@
+ARTÍCULO 29.- Cuando por las características del gasto, este no pueda respaldarse inmediatamente por el correspondiente justificante, el Área de Proveeduría y Servicios Generales deberá preparar un comprobante interno debidamente diseñado para tales efectos, hasta tanto el funcionario que realiza la gestión no presente el justificante externo.

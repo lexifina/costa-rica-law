@@ -1,0 +1,1 @@
+ARTÍCULO 20.- Sin previo aviso, la Auditoria Interna podrá efectuar arqueos de la Caja Chica, e informar de los resultados a la Presidencia del Consejo o funcionario que lo sustituya. Una vez realizado el arqueo, se debe dejar constancia de este mediante un instrumento idóneo para dicho fin, el cual debe incluir las firmas de todos los participantes en el proceso.

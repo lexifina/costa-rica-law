@@ -1,0 +1,1 @@
+ARTÍCULO 39.- Los cheques girados contra la cuenta bancaria de la SUTEL se harán a nombre de la persona física o jurídica beneficiaria del pago, igualmente, en el caso de que los pagos se realicen mediante transferencias electrónicas u otros medios.

@@ -1,0 +1,8 @@
+ARTÍCULO 30.- Requisitos de una factura comercial, tiquete de caja o comprobante para su cancelación:
+a) Los justificantes que respaldan la adquisición de mercadería deberán ser confeccionados por la respectiva casa comercial, en original, a nombre de la Superintendencia de Telecomunicaciones o SUTEL, limpios de borrones, tachaduras ni alteraciones que hagan dudar de su autenticidad o de la información que consigna, y con indicación clara del bien o servicio adquirido, de la fecha de adquisición y de su valor, además, deberán cumplir con los requisitos establecidos por la Dirección General de Tributación. En las facturas no se debe utilizar como descripción la palabra varios, el detalle debe ser suficiente para su justificación y clasificación.
+b) Para los casos de un tiquete de caja u otro tipo de comprobante que sustituya a la factura, éstos deberán cumplir con los requisitos establecidos por la Dirección General de Tributación (Tiquete o cinta de caja con el número de cédula jurídica).
+c) Traer sello de cancelación, firma y número de cédula física o jurídica de la casa comercial proveedora en caso de que la factura no tenga membrete.
+d) En toda factura, tiquete o comprobante se debe incluir la recepción a conformidad de los bienes y servicios, para tales efectos se indicará la unidad a la que pertenece el funcionario, nombre del funcionario, firma y fecha.
+e) Toda factura, tiquete o comprobante deberá indicar sólo bienes de la misma subpartida
+presupuestaria.
+f) En casos debidamente justificados, cuando las facturas o comprobantes no presentan toda la información detallada arriba, su pago procederá siempre que cuente con el visto bueno del funcionario autorizado que corresponde.
