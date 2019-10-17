@@ -1,0 +1,1 @@
+Artículo 15.—Reformulación. Los hallazgos percibidos en las evaluaciones parciales permitirán a la persona que ejerza la labor de fiscalización de los programas sociales replantear la implementación de la iniciativa (cuando resulte legal y pertinente), a fin de que se minimicen los riesgos que atenten contra el cumplimento de las metas previamente establecidas.

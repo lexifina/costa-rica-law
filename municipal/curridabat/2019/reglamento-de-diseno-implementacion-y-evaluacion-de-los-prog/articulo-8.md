@@ -1,0 +1,1 @@
+Artículo 8º—Viabilidad financiera y jurídica. Para que los distintos proyectos puedan ser aprobados, se deberá contar con un mecanismo de control que garantice la viabilidad presupuestaria, garantizando la planificación del gasto según la utilización de presupuestos ordinarios, extraordinarios y modificaciones presupuestarias.

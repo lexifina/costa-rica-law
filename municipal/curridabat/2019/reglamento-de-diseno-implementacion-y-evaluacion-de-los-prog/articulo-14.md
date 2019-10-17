@@ -1,0 +1,3 @@
+TÍTULO IV
+Evaluación de los Programas Sociales
+Artículo 14.—Mecanismos de evaluación. Todo programa social deberá contener un mecanismo que contemple labores de supervisión y su consecuente evaluación, de acuerdo con las metas previamente establecidas en su formulación. La Administración Municipal establecerá la periodicidad de las evaluaciones de los programas sociales de acuerdo a la especificidad de cada iniciativa. Como mecanismo de evaluación podrán considerarse, entre otras, las visitas domiciliares o la aplicación de encuestas. En algunos casos, podrán formularse evaluaciones parciales, ya sea por cumplimiento de objetivos específicos o en periodos definidos si el desarrollo del programa social por desarrollar corresponde a un periodo prolongado.

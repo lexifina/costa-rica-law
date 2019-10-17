@@ -1,0 +1,1 @@
+Artículo 4º—Alcance. Las disposiciones emitidas en el presente reglamento serán de acatamiento obligatorio para la Administración Municipal, consultores contratados, instituciones, organizaciones o personas voluntarias que desarrollen iniciativas de índole social en conjunto con la Municipalidad de Curridabat.

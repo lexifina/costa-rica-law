@@ -1,0 +1,1 @@
+Artículo 13.—Seguimiento de la ejecución presupuestaria. La Administración Municipal deberá establecer un mecanismo de seguimiento de la ejecución presupuestaria con el fin de realizar los ajustes pertinentes que permitan maximizar el uso del recurso y evitar la subejecución presupuestaria.

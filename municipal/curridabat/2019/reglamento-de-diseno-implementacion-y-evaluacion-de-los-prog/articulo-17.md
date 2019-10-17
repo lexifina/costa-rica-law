@@ -1,0 +1,1 @@
+Artículo 17.—Atención continua. Ante la posibilidad de que la realidad que la Municipalidad de Curridabat no logre ser impactada en su totalidad, la Administración Municipal deberá buscar las alternativas que resulten más favorables para continuar logrando impactos positivos en favor de su población.
