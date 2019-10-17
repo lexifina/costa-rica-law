@@ -1,0 +1,1 @@
+Artículo 3º—La presente Declaratoria no tiene por objeto el otorgamiento de beneficios fiscales, de conformidad con el artículo 5º del Decreto de Contingencia Fiscal, N° 40540-H del 01 de agosto de 2017.
