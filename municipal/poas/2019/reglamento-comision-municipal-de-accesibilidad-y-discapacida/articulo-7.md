@@ -1,0 +1,1 @@
+Artículo 7º—Es obligación de las y los Regidores y Regidoras designados por el Concejo Municipal participar puntualmente en todas las reuniones que se programen y asumir las tareas que le sean asignadas al interior de la COMAD.
