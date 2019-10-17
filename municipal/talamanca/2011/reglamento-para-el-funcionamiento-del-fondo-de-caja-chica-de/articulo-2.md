@@ -1,2 +1,0 @@
-Artículo 2º—Este reglamento tiene por objeto regular la organización y el funcionamiento del fondo de Caja Chica que la municipalidad de Talamanca tenga establecido o establezca en sus dependencias.
-Corresponde al despacho del Alcalde Municipal y al jefe financiero (artículo 109 del código Municipal), fijar los procedimientos de trámite interno que debe seguir el vale que se emplean para utilizar el fondo.

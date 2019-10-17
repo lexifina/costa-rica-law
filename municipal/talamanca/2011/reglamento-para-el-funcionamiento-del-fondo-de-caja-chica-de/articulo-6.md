@@ -1,1 +1,0 @@
-Artículo 6º—Corresponde al Concejo Municipal, mediante el correspondiente acuerdo que emane de su seno variar el monto establecido para estos fondos. Según solicitud escrita y justificada que le haga el jefe financiero o en su efecto el Alcalde Municipal, con el fin de satisfacer las necesidades institucionales de los bienes y servicios que deben adquirirse por este medio.

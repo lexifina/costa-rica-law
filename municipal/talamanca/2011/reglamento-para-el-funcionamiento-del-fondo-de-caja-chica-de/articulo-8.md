@@ -1,1 +1,0 @@
-Artículo 8º—La Caja Chica mantendrá siempre el total del fondo asignado, el cual estará integrado de la siguiente forma: Dinero en efectivo, vales liquidados, vales pendientes de liquidación y vales en trámite de reintegro. En ningún momento y por motivo alguno se podrán sustituir esos valores por otros de naturaleza distinta al de Caja Chica.
