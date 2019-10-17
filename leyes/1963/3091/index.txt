@@ -3,6 +3,7 @@ articulo-2.md
 articulo-3.md
 articulo-4.md
 articulo-5.md
+articulo-5-bis.md
 articulo-6.md
 articulo-7.md
 articulo-8.md
@@ -20,6 +21,7 @@ articulo-19.md
 articulo-20.md
 articulo-21.md
 articulo-22.md
+articulo-22-bis.md
 articulo-23.md
 articulo-24.md
 articulo-25.md
