@@ -1,0 +1,1 @@
+Artículo 3.- Consejo de Políticas del Consumidor. Créase el Consejo de Políticas del Consumidor, en adelante “el Consejo”, como instancia asesora del Poder Ejecutivo y foro para la coordinación, articulación y coadyuvancia en el diseño, seguimiento y evaluación de las políticas públicas sobre protección efectiva de los derechos e intereses legítimos de los consumidores.

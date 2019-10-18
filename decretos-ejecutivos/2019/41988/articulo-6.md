@@ -1,0 +1,1 @@
+Artículo 6.- Presidencia. La Presidencia del Consejo se encargará de dirigir las reuniones y tendrá las facultades dispuestas en el artículo 49 de la Ley General de la Administración Pública. El Consejo elegirá de entre sus miembros un Vicepresidente, que sustituirá al Presidente en los casos previstos en el artículo 51 de la Ley General de la Administración Pública.

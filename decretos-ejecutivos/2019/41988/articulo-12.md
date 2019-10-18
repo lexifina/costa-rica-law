@@ -1,0 +1,2 @@
+Artículo 12.- Actividades de los Comités. Los Comités deberán presentar ante el Consejo para su aprobación un plan de trabajo sobre el tema al que se abocan, así como un informe semestral de resultados de las acciones emprendidas o cualquier otro informe que solicite el Consejo.
+Adicionalmente, tendrán la potestad de invitar a miembros del sector privado a sus sesiones, cuando lo consideren pertinente.
