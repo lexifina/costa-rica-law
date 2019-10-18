@@ -1,0 +1,1 @@
+Artículo 13.—El comité se reunirá de forma ordinaria al menos una vez al mes, y en forma extraordinaria podrá hacerlo con la frecuencia que sea necesario, por razones de oportunidad y a solicitud del presidente de Comité.

@@ -1,0 +1,1 @@
+Artículo 8º—En las sesiones podrán participar, cuando así expresamente lo disponga el presidente o los miembros del Comité, el auditor interno, el sub-auditor interno, así como cualquier otro funcionario que considere el Comité, o bien, cualquier persona que en el seno del Comité se considere de importancia su participación, ninguna de las personas invitadas tendrá voto.

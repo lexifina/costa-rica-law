@@ -1,0 +1,1 @@
+Artículo 10.—El quórum quedará válidamente constituido por la presencia de tres de sus miembros, en donde necesariamente deberá estar presente, al menos uno de los miembros de Junta Directiva, que conforman el Comité.
