@@ -1,0 +1,9 @@
+Artículo 3: Definiciones.
+Para los efectos del presente reglamento se entenderá:
+Base Ajustada al Salario (BAS): Es aquel monto de contribución que se determina con el propósito de ajustar la base imponible de la cuota patronal y de los trabajadores en el Seguro de Salud, en forma anual y progresiva por un período máximo de cuatro años.
+Base Mínima Contributiva (BMC): En el Seguro de Salud la Base Mínima Contributiva es equivalente ingreso mínimo de referencia establecido en la escala de los trabajadores independientes aprobado por la Junta Directiva de la CCSS.
+Condición PYME: Condición emitida por el Ministerio de Economía, Industria y Comercio (MEIC) mediante la cual se certifica que una persona física o jurídica es una micro, pequeña o mediana empresa (PYME) de los sectores industria, comercio, servicio y agricultura orgánica. Para los efectos de este reglamento serán sujetas del beneficio únicamente las microempresas.
+Condición PYMPA: Condición emitida por el Ministerio Agricultura y Ganadería (MAG), mediante la cual acredita que una persona física o jurídica es un pequeño o mediano productor agropecuario (PYMPA). Lo dispuesto en el presente reglamento aplica única y exclusivamente a la microempresa agrícola.
+Inscripción patronal: Acto de registrar ante la CCSS una persona física o jurídica que ostenta la condición de patrono según los mecanismos institucionales establecidos.
+Microempresa: Aquel patrono físico o jurídico que se inscriba por primera vez o reanude según lo dispuesto en este reglamento ante la CCSS y constituya una unidad productiva de carácter permanente con fines de lucro que disponga de los recursos humanos, los maneje y opere, en actividades industriales, tecnológicas, comerciales, de servicios o agropecuarias.
+Reanudación patronal: Es el acto administrativo mediante el cual se activa nuevamente ante la CCSS, la actividad registrada a nombre de una persona física o jurídica que califique como patrono.

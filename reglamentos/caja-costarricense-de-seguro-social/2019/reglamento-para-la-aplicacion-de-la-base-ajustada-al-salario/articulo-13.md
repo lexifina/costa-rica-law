@@ -1,0 +1,2 @@
+Artículo 13: Normas supletorias.
+Los aspectos no contemplados expresamente en el presente reglamento se regirán por lo dispuesto en la Ley Constitutiva de la Caja Costarricense de Seguro Social, el Reglamento de Seguro de Salud, el Reglamento para Verificar el Cumplimiento de las Obligaciones Patronales y de Trabajadores Independientes, sí como cualquier otra normativa institucional y Nacional aplicable.

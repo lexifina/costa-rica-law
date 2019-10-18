@@ -1,0 +1,4 @@
+Artículo 12.-Control y seguimiento
+La CCSS a través del Servicio de Inspección efectuará fiscalizaciones a los patronos microempresarios beneficiados con la aplicación de la BAS, para determinar el cumplimiento de las obligaciones en materia de aseguramiento, según lo dispuesto en la Ley Constitutiva de la CCSS, el presente reglamento y demás disposiciones institucionales.
+La Dirección SICERE implementará los mecanismos de control necesario en el sistema para verificar los requisitos para otorgar el beneficio y en caso de incumplimiento, proceder con la suspensión y facturar las cuotas dejadas de percibir por la aplicación de la BAS.
+La Gerencia Financiera en coordinación con la Dirección Actuarial y Económica, realizarán un estudio anual que contenga un análisis de los resultados en la cobertura contributiva e impacto financiero del programa, utilizando la información disponible.

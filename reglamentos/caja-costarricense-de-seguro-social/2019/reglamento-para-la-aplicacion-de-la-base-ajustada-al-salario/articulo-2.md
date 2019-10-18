@@ -1,0 +1,2 @@
+Artículo 2: Campo de aplicación.
+El presente reglamento regula el beneficio de contribuir, hasta por un periodo máximo de cuatro años, a partir de una BAS en el Seguro de Salud, para aquellos patronos microempresarios, sean físicos o jurídicos y sus trabajadores que se inscriben por primera vez o reanuden su actividad económica ante la CCSS, bajo las condiciones establecidas en el presente reglamento, con un máximo de hasta cinco trabajadores y desarrollen actividades económicas de carácter permanente.
