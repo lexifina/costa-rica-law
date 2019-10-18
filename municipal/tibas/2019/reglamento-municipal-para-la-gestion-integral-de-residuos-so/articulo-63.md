@@ -1,0 +1,1 @@
+Artículo 63°. Categorización comercial. Cada uno de los generadores que sean sujetos a esta tasa serán clasificados en categorías por rangos de peso de residuos sólidos ordinarios generados, las cuales se establecen mediante un estudio técnico estadísticamente representativo, basado en el promedio de generación de residuos sólidos de la actividad a la que pertenecen.

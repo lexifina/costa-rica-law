@@ -1,0 +1,1 @@
+Artículo 60°. Ampliación de la cobertura de los servicios municipales. La Municipalidad ampliará la cobertura de los servicios según las condiciones del cantón así lo demanden, para eso tomará como base la generación de residuos, la cobertura del servicio, el aumento de las unidades habitacionales y los recursos financieros disponibles.

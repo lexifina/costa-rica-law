@@ -1,0 +1,1 @@
+Artículo 54°. Hecho generador del tributo. El hecho generador de la tasa lo constituye la prestación efectiva o potencial del servicio de manejo de residuos sólidos por parte de la Municipalidad, sobre los propietarios, poseedores, arrendatarios o usufructuarios de un inmueble ubicado dentro del área de cobertura del servicio.

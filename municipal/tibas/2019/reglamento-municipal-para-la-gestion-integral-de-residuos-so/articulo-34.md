@@ -1,0 +1,1 @@
+Artículo 34°. Llenado máximo. El empaque no deberá llenarse por encima de tres cuartas partes de su volumen para que pueda entregarse debidamente cerrado y no permitan la entrada de agua, vectores (insectos, roedores), ni el escape de líquidos.

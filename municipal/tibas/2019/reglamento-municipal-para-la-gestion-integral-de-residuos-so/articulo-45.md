@@ -1,0 +1,1 @@
+Artículo 45°. Centros de recuperación de residuos valorizables. La Municipalidad promoverá y apoyará iniciativas para el acopio y la recuperación de los materiales valorizables, siempre y cuando se cumpla con la normativa vigente establecida en el Reglamento de Centros de Recuperación de Residuos Valorizables, Decreto Ejecutivo N° 41052-S del 08/03/2018.

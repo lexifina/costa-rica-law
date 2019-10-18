@@ -1,0 +1,5 @@
+Artículo 77°. Infracciones sancionables por la Municipalidad. De acuerdo a lo establecido en los incisos a), b) y c) del artículo 50° de la Ley N°8839, las infracciones que son sancionables por la Municipalidad son las nombradas como infracciones leves, las cuales son:
+a) Extraer de los recipientes colectores, depósitos o contenedores instalados en la vía pública, los residuos sujetos a programas de reciclaje por parte de las municipalidades o a quienes éstas deleguen.
+b) Arrojar en la vía pública residuos ordinarios.
+c) Extraer y recuperar cualquier material no valorizable, contenido en las celdas de disposición final de los rellenos sanitarios.
+Sin perjuicio de la obligación del infractor de indemnizar y reparar el daño ambiental, las infracciones leves se sancionarán con una multa de uno a diez salarios base, de acuerdo con el artículo 2 de la Ley N° 7337, de 5 de mayo de 1993, y con el pago del daño ambiental. La Municipalidad impondrán las infracciones establecidas en este artículo; los recursos que se capten serán para financiar actividades del plan municipal para la gestión integral de residuos del Cantón.

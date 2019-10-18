@@ -1,0 +1,1 @@
+Artículo 59°. Unidad de cobro. El cobro se realizará al sujeto pasivo, de acuerdo a la cantidad de unidades habitacionales y/o comerciales que se encuentren en la propiedad. Cada unidad se calificará de acuerdo al tipo de actividad que desempeñe.

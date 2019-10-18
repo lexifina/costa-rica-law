@@ -1,0 +1,1 @@
+Artículo 73°. Tipos de incentivos. La Municipalidad podrá otorgar incentivos fiscales y no fiscales, los cuales serán definidos de acuerdo a las condiciones financieras, operativas y de planificación de la Municipalidad. Estos podrán ser tasas diferenciadas, sellos o reconocimientos por las buenas prácticas desarrolladas en gestión integral de residuos sólidos.

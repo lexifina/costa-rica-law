@@ -1,0 +1,1 @@
+Artículo 82°. Denuncias. Se considera infractor a toda persona que cometa cualquiera de las infracciones descritas en este capítulo. En contraposición, cualquier persona, física o jurídica podrá presentar denuncias por violaciones a este reglamento. La recepción y trámite de denuncias se llevará a cabo mediante el procedimiento establecido para este fin.

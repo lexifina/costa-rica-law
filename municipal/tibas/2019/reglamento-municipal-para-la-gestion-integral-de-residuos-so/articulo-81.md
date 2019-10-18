@@ -1,0 +1,1 @@
+Artículo 81°. Inspección municipal. Los inspectores municipales y cualquier otro funcionario autorizado para tales efectos estarán facultados para realizar las inspecciones de verificación, notificación y cumplimiento de este reglamento de acuerdo con el procedimiento establecido en la Municipalidad.

@@ -1,0 +1,1 @@
+Artículo 84°. Fondo para la Gestión Integral de Residuos. Los fondos provenientes de las multas que indica el artículo 25° de la Ley N° 8839, una vez girados por la Tesorería Nacional a la Municipalidad, ingresarán directamente al presupuesto municipal con el fin de apoyar la implementación de las acciones del PMGIRS del Cantón de Tibás.

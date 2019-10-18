@@ -1,0 +1,1 @@
+Artículo 21°. Chatarra. Ningún servicio de recolección de residuos incluye la recolección de chatarra. Las actividades que procesen y produzcan este tipo de residuos deberán realizar la movilización por medio de un gestor autorizado por el MINSA, de manera que no se genere acumulación que pueda provocar un problema de salud pública y contaminación para el ambiente.

@@ -1,0 +1,1 @@
+Artículo 57°. Fijación de la tasa. La Municipalidad fijará la tasa por el servicio, que incluyan los costos e inversiones futuras para realizar una gestión integral de los residuos sólidos de competencia municipal, garantizando su sostenibilidad y asegurando el fortalecimiento de las condiciones necesarias para brindarlos.

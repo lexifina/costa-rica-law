@@ -1,0 +1,1 @@
+Artículo 31°. Frecuencia de recolección. La Municipalidad brindará el servicio de recolección de residuos sólidos ordinarios, valorizables y no tradicionales según las rutas, frecuencia y sectores correspondientes, las cuales podrán estar sujetas a modificaciones, que serán informadas oportunamente a los usuarios, en medios de comunicación oficiales.

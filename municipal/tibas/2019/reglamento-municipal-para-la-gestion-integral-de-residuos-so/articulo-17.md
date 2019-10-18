@@ -1,0 +1,1 @@
+Artículo 17°. Residuos de jardín y poda. El servicio de recolección de residuos ordinarios incluye la recolección de residuos de jardín, más no los de poda, los cuales podrán disponerse en el servicio de recolección de residuos no tradicionales que se brinda periódicamente.

@@ -1,0 +1,1 @@
+Artículo 62°. Intereses a cargo del sujeto pasivo. En caso de que el pago se realice fuera del término establecido, generará el cobro de los intereses, el cual será fijado según lo dispuesto en el Código Municipal y el Código de Normas y Procedimientos Tributarios, Ley N° 4755 del 03/05/1971.

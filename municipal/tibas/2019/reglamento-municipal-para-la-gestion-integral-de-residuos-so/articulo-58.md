@@ -1,0 +1,1 @@
+Artículo 58°. Cobro por el servicio. La Municipalidad realizará el cobro del servicio a todos los sujetos pasivos propietarios, usufructuarios o poseedores de inmuebles que se encuentren dentro de la cobertura del servicio de manejo de residuos sólidos de competencia municipal en el cantón de Tibás.

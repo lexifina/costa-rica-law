@@ -1,0 +1,1 @@
+Artículo 55°. Área de cobertura del servicio. Se considera área de cobertura del servicio, tanto los sitios de prestación directa sobre la vía pública como aquellos que se comunican con ésta, siempre y cuando se dé la prestación efectiva o potencial del servicio.

@@ -1,0 +1,1 @@
+Transitorio III. Se otorga un plazo de doce meses a partir de la publicación de este reglamento, para desarrollar el Protocolo para el Otorgamiento de Incentivos establecido en el artículo 74°de este Reglamento.

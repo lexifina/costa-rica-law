@@ -1,0 +1,3 @@
+CAPÍTULO II
+Gestión Municipal
+Artículo 4°. Responsable Municipal de la GIRS. Para la implementación de este Reglamento y de toda la legislación nacional vigente en la materia, la Dirección de Gestión Urbana será la responsable de la gestión de los residuos sólidos municipales en el cantón de Tibás, mediante la coordinación de acciones necesarias para una gestión eficaz y eficiente. El Concejo Municipal y la Alcaldía, en apego a sus deberes y responsabilidades dotarán a esta dependencia del personal técnico y profesional competente necesario, así como del presupuesto adecuado para cumplir con sus funciones, con base en lo establecido en el Código Municipal y la legislación vigente para la prestación de servicios.

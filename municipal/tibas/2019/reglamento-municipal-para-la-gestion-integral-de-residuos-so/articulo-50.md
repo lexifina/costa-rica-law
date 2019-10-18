@@ -1,0 +1,1 @@
+Artículo 50°. Beneficios económicos en el tratamiento y disposición de los residuos: La Municipalidad procurará obtener recursos económicos de los residuos sólidos valorizables para el cual se dará prioridad a su venta. Solamente cuando esta acción no sea posible, se procederá según el procedimiento que establezca la legislación vigente.

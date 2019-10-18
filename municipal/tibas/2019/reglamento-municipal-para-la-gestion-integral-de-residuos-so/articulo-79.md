@@ -1,0 +1,1 @@
+Artículo 79°. Sanciones administrativas. La Municipalidad, ante la violación de este reglamento, aplicará las medidas protectoras y sanciones, del artículo 99° de la Ley Orgánica del Ambiente, Ley N° 7554 del 04/10/1995.
