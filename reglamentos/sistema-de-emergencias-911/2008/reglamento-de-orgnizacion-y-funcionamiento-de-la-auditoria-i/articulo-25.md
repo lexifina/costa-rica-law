@@ -1,7 +1,0 @@
-CAPÍTULO VII
-Del funcionamiento de la Auditoría Interna
-Artículo 25.—Funcionamiento de la Auditoría Interna. De acuerdo con lo establecido dentro de los deberes del Auditor y personal de la Auditoría, se deberá verificar el cumplimiento, la validez y la suficiencia del sistema de control interno de su competencia institucional, informar de ello y proponer las medidas correctivas que sean pertinentes.
-La Auditoría Interna realizará auditorías o estudios especiales en relación con los fondos públicos sujetos a su competencia institucional, incluidos fondos especiales y otros de naturaleza similar.
-Asimismo, efectuará auditorías o estudios especiales sobre fondos y actividades privadas, de acuerdo con los artículos 5 y 6 de la Ley Orgánica de la Contraloría General de la República, en el tanto estos se originen en transferencias efectuadas por componentes de su competencia.
-Verificará que la Administración tome las medidas de control interno señaladas en la Ley General de Control Interno, en los casos de desconcentración de competencias o bien, en la contratación de servicios de apoyo con terceros; asimismo, examinará regularmente la operación efectiva de los controles críticos, en esas unidades desconcentradas o en la prestación de tales servicios.
-Asesorará, en materia de su competencia, al Jerarca y al resto de las áreas del Sistema de Emergencias 9-1-1; además, advertirá a los responsables de las diferentes actividades supervisadas, sobre las posibles consecuencias de determinadas conductas o decisiones, cuando sean de su conocimiento.

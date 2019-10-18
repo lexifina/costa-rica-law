@@ -1,1 +1,0 @@
-Artículo 29.—Manuales de procedimientos. La Auditoría Interna contará con un Manual de Procedimientos de fácil acceso, con la descripción de los procedimientos de trabajo y los mecanismos de control de calidad aplicables. Dichos procedimientos incluirán, entre otros, las cualidades de la información, análisis y evaluación, registros, acceso, custodia y supervisión del trabajo.

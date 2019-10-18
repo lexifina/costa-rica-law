@@ -1,5 +1,0 @@
-CAPÍTULO VIII
-Ejecución de las auditorías
-Artículo 28.—Plan anual de trabajo. Anualmente la Auditoría Interna preparará el Plan de Trabajo, de conformidad con los lineamientos que establece la Contraloría General de la República y las necesidades de fiscalización del Sistema de Emergencias 9-1-1. Dicho Plan de Trabajo se hará del conocimiento oportuno del Jerarca y estará orientado, principalmente por la determinación de los riesgos institucionales en el alcance de los objetivos, sin dejar de lado los requerimientos de la Contraloría General y otros órganos externos de control.
-El Auditor Interno propondrá al Jerarca, oportuna y debidamente justificados, los requerimientos de recursos para llevar adelante su plan, incluidas las necesidades administrativas de la unidad.
-El Auditor Interno responderá por su gestión ante el Jerarca, a quien le presentará un informe anual de las labores para su conocimiento, sin detrimento de que durante el periodo pueda presentar informes parciales para el conocimiento de ese órgano, sobre lo actuado.

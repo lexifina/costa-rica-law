@@ -1,4 +1,0 @@
-Artículo 35.—Trámite de los informes de auditoría. La presentación de los resultados de los servicios de auditoría se regirá de la siguiente manera:
-Previo a la remisión del informe definitivo, los resultados del estudio se harán del conocimiento del Jerarca o de los encargados de cada área mediante un informe preliminar, que se remitirá por correo electrónico para ser analizado en la denominada conferencia de resultados.
-Superada la conferencia final se remitirá un oficio con el informe definitivo, para que en el plazo máximo establecido por la Ley General de Control Interno, formalice la aceptación de las recomendaciones o la solución alterna propuesta en caso de discrepancia.
-En caso de discrepancias entre el Jerarca o el titular subordinado y la Auditoría Interna, se procederá conforme lo disponen los Artículos 36, 37 y 38 de la Ley General de Control Interno.
