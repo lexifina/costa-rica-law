@@ -1,0 +1,2 @@
+Artículo 2°—Refórmese el inciso 1 del artículo 4 del Reglamento sobre el visado de gastos con cargo al presupuesto de la República (R-2-2003-CO-DFOE) del 1° de diciembre de 2003, para que se lea de la siguiente manera:
+1. La atribución de visado se realizará a través del sistema integrado definido por la normativa que al efecto emita la Contraloría General de la República, para la verificación de la conformidad de los gastos con el bloque de legalidad.

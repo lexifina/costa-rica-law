@@ -1,0 +1,2 @@
+Artículo 4°—Refórmese el inciso 1, del artículo 7, del Reglamento sobre el visado de gastos con cargo al Presupuesto de la República (R-2-2003-CO-DFOE) del 1° de diciembre de 2003, para que se lea de la siguiente manera:
+1. Cuando en el ejercicio de sus facultades la Contraloría General de la República detecte situaciones deficientes o susceptibles de mejora en la aplicación de los procedimientos para cumplir con el proceso de visado, emitirá las disposiciones pertinentes.

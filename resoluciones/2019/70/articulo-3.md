@@ -1,0 +1,6 @@
+Artículo 3°—Refórmese el artículo 6, del Reglamento sobre el visado de gastos con cargo al Presupuesto de la República (R-2-2003-CODFOE) del 1° de diciembre de 2003, para que se lea de la siguiente manera:
+Artículo 6. Emisión de normativa
+1. La Contraloría General de la República, en caso de requerirse, emitirá y actualizará normativa para complementar el proceso de visado, la cual será considerada por los rectores del Sistema y Subsistemas de la Administración Financiera en la emisión de la normativa de su competencia.
+2. Las disposiciones señaladas por la Contraloría General de la República en su normativa son de acatamiento obligatorio, constituyen un mínimo aplicable por parte de la Administración Activa y no la eximen del desarrollo oportuno de otros mecanismos de control que considere necesarios.
+3. En el ejercicio de sus competencias, el Ministerio de Hacienda como rector del Sistema de Administración Financiera, podrá emitir la normativa que al efecto considere necesaria para regular aspectos específicos de la operativización del proceso de visado.
+La normativa relacionada con el proceso de visado que emita el Ministerio de Hacienda en el ejercicio de sus competencias como órgano rector del Sistema de Administración Financiera, deberá observar la normativa aplicable, emitida por la Contraloría General de la República.
