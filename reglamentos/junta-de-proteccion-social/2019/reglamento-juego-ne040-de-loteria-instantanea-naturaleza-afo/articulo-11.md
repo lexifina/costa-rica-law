@@ -1,0 +1,1 @@
+Artículo 11.—Se aprueba el presente reglamento según acuerdo de Junta Directiva JD-717 correspondiente al Capítulo IV), artículo 9) de la Sesión Ordinaria 55-2019 celebrada el 16 de setiembre de 2019.
