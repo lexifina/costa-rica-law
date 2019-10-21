@@ -1,0 +1,1 @@
+Artículo 3º—Mecánica de juego. Raspar toda el área de juego. Si una misma cantidad se repite 3 (tres) veces gana esa cantidad. Si aparece 3(tres) veces la frase GANAMOS TODOS gana ¢100.000. Si aparece 3(tres) veces la frase 175 AÑOS gana ¢25.000.000.
