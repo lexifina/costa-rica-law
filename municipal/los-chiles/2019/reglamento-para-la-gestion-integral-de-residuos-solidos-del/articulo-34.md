@@ -1,0 +1,3 @@
+Artículo 34.—Prohibición para los recolectores. Se prohíbe a la entidad recolectora mezclar para su transporte los residuos sólidos valorizables que han sido separados por los generadores y puestos para su recolección de forma separada con cualquiera de las otras categorías de residuos sólidos establecidas.
+En caso de ser una entidad autorizada, esto será causal para la rescisión del contrato, previo seguimiento del
+debido proceso.

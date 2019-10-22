@@ -1,0 +1,2 @@
+Artículo 45.-La aplicación del aumento automático de las tarifas por cobro del servicio que presta la Municipalidad, se definirá anualmente considerando que la tasa no ha sido actualizada en los últimos dos años, determinándose por única vez como tarifa inicial la actual.
+El aumento automático se aplicará a partir del IPC emitido por el INEC en enero de 2016, siempre y cuando se actualice el estudio de la tarifa correspondiente.

@@ -1,0 +1,3 @@
+Artículo 12.—Gestores de Residuos Sólidos.
+a) Se pueden establecer convenios con gestores de residuos sólidos que estén legalmente establecidos, registrados ante el Ministerio de Salud y capaces de certificar el tratamiento correcto de los residuos sólidos y su trazabilidad.
+b) Los gestores de residuos sólidos que tengan convenios con la Municipalidad deben brindar un informe trimestral de sus funciones donde se describa: cantidad de material acopiado de cada fibra, cantidad de material valorizado por fibra, lista de ciudadanos, organizaciones o empresas colaboradoras, la forma de ejecución del servicio, las certificaciones o comprobantes vigentes emitidos por las empresas a las que venden los residuos y cualquier otra información que se considere pertinente.

@@ -1,0 +1,6 @@
+Artículo 22.—Centros de recuperación de materiales valorizables
+a) La Municipalidad tiene la facultad de instalar y operar centros de recuperación de materiales
+valorizables o autorizar a terceros, previamente calificados, para la acumulación, clasificación, preparación y comercialización de los mismos, además apoyara todas aquellas iniciativas de centros de transferencia comunal
+b) Los centros de recuperación de materiales deben, de previo a iniciar labores, cumplir con la normativa vigente para Centros de Recuperación de Residuos Sólidos Valorizables además contar con los permisos respectivos del Ministerio de Salud, de la Municipalidad y deben además cumplir con los requisitos laborales y ambientales que establezca la legislación vigente.
+c) Estos centros deben contar con adecuadas condiciones higiénicas, laborales y sanitarias. La operación del centro tiene que evitar molestias a las personas vecinas o trabajadoras.
+d) Solamente se permite el des ensamblaje, la mezcla, la transformación y el tratamiento de los residuos si las instalaciones están expresamente autorizadas para ello por el Ministerio de Salud y si el uso del suelo se haya de conformidad con el Plan Regulador Municipal.
