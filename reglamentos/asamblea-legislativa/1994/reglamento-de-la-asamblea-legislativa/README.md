@@ -48,3 +48,4 @@ Reglamento de la Asamblea Legislativa
 | 33 | 2019-03-04 | Reglamento 31 (2019-03-04) |
 | 34 | 2019-07-24 | Reglamento 45 (2019-07-24) |
 | 35 | 2019-10-02 | SINALEVI (sin norma nombrada) |
+| 36 | 2019-10-22 | Reglamento 89 (2019-10-22) |
