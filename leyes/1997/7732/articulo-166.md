@@ -1,15 +1,5 @@
-ARTÍCULO 166.- Prohibición de divulgar información
-Salvo los casos previstos en esta ley y sus reglamentos, en cuanto a
-la difusión de información relevante para el público inversionista o,
-salvo orden judicial, quedará prohibido a los directivos, funcionarios,
-empleados y asesores de la Superintendencia, divulgar información relativa
-a los sujetos fiscalizados y a las transacciones de los mercados de
-valores, que conozcan en virtud de su cargo. Tal prohibición se mantendrá
-aun cuando las citadas personas dejen de prestar sus servicios a la
-Superintendencia, hasta tanto la respectiva información no se haga
-pública. En caso de duda acerca de la divulgación de la información
-particular, el Consejo Directivo de la Superintendencia decidirá por
-mayoría de, al menos, dos tercios de sus miembros.
-La violación de la prohibición contenida en este artículo constituye
-causal de remoción del funcionario infractor, sin perjuicio de las demás
-responsabilidades civiles y penales procedentes.
+Artículo 166- Prohibición de divulgar información
+Salvo los casos previstos en la normativa vigente, así como la divulgación de información relevante para el público o por orden judicial, se prohíbe a los directores del Consejo Nacional de Supervisión del Sistema Financiero (Conassif), así como a funcionarios, empleados y asesores de dicho órgano, de las superintendencias y a los directores, empleados y asesores de las bolsas de valores, divulgar información relativa a los sujetos fiscalizados y a las transacciones de los mercados organizados conforme a esta ley, que conozcan en virtud de su cargo. Tal prohibición se mantendrá aun cuando las citadas personas dejen de prestar sus servicios, hasta tanto la respectiva información se haga pública. En caso de duda acerca de la divulgación de la información particular, el Conassif decidirá lo que corresponda.
+Los directores del Conassif, así como los funcionarios, empleados y asesores de dicho órgano, y funcionarios, empleados y asesores de las superintendencias, mantendrán la confidencialidad de los requerimientos de información y asistencia que les soliciten las autoridades y organismos del exterior, así como de la información que reciban que provenga de dichas autoridades u organismos, de conformidad con los términos previstos en acuerdos o instrumentos suscritos para tales efectos. La referida obligación se mantendrá aun cuando las citadas personas dejen de prestar sus servicios.
+La violación de la prohibición contenida en este artículo será sancionada según lo dispuesto en el artículo 203 del Código Penal. Tratándose de funcionarios de las superintendencias constituirá, además, falta grave para efectos laborales y serán sancionados con el despido sin responsabilidad patronal, siguiendo el debido proceso, sin perjuicio de las responsabilidades civiles que correspondan. El superintendente e intendente serán responsables de denunciar, al Ministerio Público, los actos ilícitos de que tenga conocimiento.
+(Así reformado por el artículo 1° de la ley N° 9746 del 16 de octubre del 2019)
