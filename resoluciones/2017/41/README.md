@@ -14,3 +14,4 @@ Reforma Renta líquida presuntiva de empresas no domiciliadas de transporte y co
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-08-23 | la propia norma |
+| 2 | 2019-10-22 | Resolución 64 (2019-10-22) |
