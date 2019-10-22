@@ -1,4 +1,6 @@
+(Derogado)
 BANCO DE COSTA RICA
+(Esta norma fue derogada por el artículo 51 del Reglamento de organización y funcionamiento de la auditoría interna del BCR, aprobado en seisón N° 48 del 22 de octubre de 2019)
 La Junta Directiva General del Banco en, sesión 11-11, artículo VIII, del 14 de marzo de 2011 y sesión 29-11, artículo IX del 26 de julio del 2011 aprobó el siguiente documento:
 REGLAMENTO DE ORGANIZACIÓN Y FUNCIONAMIENTO
 DE LA AUDITORÍA INTERNA DEL BCR
