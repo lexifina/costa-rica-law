@@ -14,3 +14,4 @@ Suspender por el plazo de un año a partir de esta fecha, el otorgamiento de la 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-11-13 | la propia norma |
+| 2 | 2019-10-22 | Acuerdo municipal 0 (2019-10-22) |
