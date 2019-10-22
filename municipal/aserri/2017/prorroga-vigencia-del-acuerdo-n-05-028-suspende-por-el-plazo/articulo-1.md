@@ -1,4 +1,5 @@
 MUNICIPALIDAD DE ASERRÍ
+(Nota de Sinalei: Mediante acuerdo publicado en La Gaceta N° 200 del 22 de octubre del 2019 se acuerdo prorrogar el presente acuerdo y suspender por el plazo de un año a partir de esta fecha, el otorgamiento de la disponibilidad de agua y permisos constructivos en los distritos de Aserrrí Centro y Salitrillos”)
 AVISO
 Se transcribe Acuerdo N° 08-087, artículo tercero, emitido por el Concejo Municipal de Aserrí en la sesión ordinaria N° 087, celebrada el día 27 de diciembre del 2017, el cual fue definitivamente aprobado en firme y por unanimidad, que textualmente dice:
 *Se conoce y da lectura a la iniciativa de fecha 27 de diciembre del 2017, presentada por los Regidores Propietarios José Alberto Castro Porras y Vera Morales Meza, por medio de la cual solicitan tomar un acuerdo en el que se decrete una prórroga del acuerdo municipal N° 05-028, Artículo Tercero, emitido por este Concejo en la sesión ordinaria N° 028 del 07 de noviembre del 2017, que autorizó la restricción del otorgamiento de la disponibilidad de agua y la concesión de pajas de agua en el acueducto municipal. Con base en dicha iniciativa se toma el siguiente acuerdo:

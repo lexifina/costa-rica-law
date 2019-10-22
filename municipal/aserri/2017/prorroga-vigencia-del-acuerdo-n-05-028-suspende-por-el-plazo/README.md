@@ -14,3 +14,4 @@ Prorroga vigencia del acuerdo N° 05-028 "Suspende por el plazo de un año el ot
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-08-10 | la propia norma |
+| 2 | 2019-10-22 | Acuerdo municipal 0 (2019-10-22) |
