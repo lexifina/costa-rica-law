@@ -1,6 +1,4 @@
-ARTÍCULO 151.- Intercambio de información
-La Superintendencia podrá intercambiar información con organismos
-supervisores similares de otros países, siempre que exista reciprocidad y
-que, cuando se trate de información confidencial, el organismo supervisor
-correspondiente esté sujeto a prohibiciones de divulgación de esa
-información, equiparables a las indicadas en esta ley.
+Artículo 151- Intercambio de información y cooperación
+Las superintendencias podrán intercambiar todo tipo de información con otros organismos supervisores financieros nacionales y extranjeros, y participar en actividades de supervisión conjunta; para ello, deberán suscribir acuerdos de cooperación e intercambio de información en los que se contemple el principio de reciprocidad y en los que se establezca que, cuando se trate de información confidencial, el organismo supervisor correspondiente estará sujeto a prohibiciones de divulgación de esa información, equiparables a las especificadas en esta ley. La información que se comparta en función de los convenios aquí señalados se considerará una excepción a la autodeterminación informativa, en los términos del artículo 8 de la Ley N.º 8968, Protección de la Persona Frente al Tratamiento de sus Datos Personales, de 7 de julio de 2011.
+Las solicitudes de asistencia y cooperación, incluidas las actividades de supervisión conjunta, así como la información y documentación que las superintendencias reciban de las autoridades y los organismos del exterior, serán confidenciales y solamente podrán ser usadas de conformidad con los términos acordados en los referidos instrumentos de cooperación e intercambio de información, en los que se preverá el principio de reciprocidad. La obligación de guardar dicha confidencialidad aplicará a las personas contempladas en el artículo 166 de esta ley, aun cuando hayan dejado de prestar sus servicios a la Superintendencia, y en caso de incumplimiento aplicarían las sanciones establecidas en ese mismo artículo.
+(Así reformado por el artículo 1° de la ley N° 9746 del 16 de octubre del 2019)

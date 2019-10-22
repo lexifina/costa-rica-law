@@ -1,0 +1,4 @@
+Artículo 11.—Se adiciona el inciso r) al artículo 29 de la Ley N° 8653, Ley Reguladora del Mercado de Seguros, de 22 de julio de 2008. El texto es el siguiente:
+Artículo 29.—Objetivos y funciones de la Superintendencia General de Seguros
+r) Solicitar al juez penal que ordene el secuestro de documentos, correos, lugares de almacenamiento, físicos o virtuales, y sus respectivos procesadores de las personas o entidades que pudieran tener conocimiento o información relacionada con el objeto de las acciones de la Superintendencia o de la cooperación internacional de que se trate, en los términos del artículo 151 de la Ley N° 7732, Ley Reguladora del Mercado de Valores. El secuestro estará sujeto a las formalidades establecidas en la Ley N° 7425, Ley sobre Registro, Secuestro y Examen de Documentos, e Intervención de las Comunicaciones, de 9 de agosto de 1994.
+(Corregido mediante Fe de Erratas publicada en La Gaceta N° 220 del 19 de noviembre del 2019, página N° 88.)
