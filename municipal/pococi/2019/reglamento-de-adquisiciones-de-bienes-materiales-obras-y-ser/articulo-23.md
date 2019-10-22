@@ -1,0 +1,1 @@
+Artículo 23.—De la ejecución de inventarios. La dependencia competente procederá a efectuar inventarios físicos de los materiales, bienes y activos propiedad del CCDR Pococí, al menos una vez al año. Para este inventariado, en caso de así requerirse se deberá suprimir la entrada o salida de materiales, bienes y activos.
