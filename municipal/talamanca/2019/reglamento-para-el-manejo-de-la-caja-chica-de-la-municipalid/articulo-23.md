@@ -1,0 +1,2 @@
+Artículo 23.-
+Todo arqueo de Caja Chica se realizará en presencia de la persona responsable de la Tesorería Municipal, quien es responsable del fondo, según lo dispuesto en el numeral 118 del Código Municipal o en presencia de la persona que se designe para tales efectos. Este funcionario tendrá el derecho de pedir una segunda verificación, si mantiene dudas sobre el resultado obtenido.

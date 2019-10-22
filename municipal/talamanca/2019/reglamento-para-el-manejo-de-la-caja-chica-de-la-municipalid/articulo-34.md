@@ -1,0 +1,2 @@
+Artículo 34.-
+Corresponderá a la persona responsable del Área Financiera de la Institución velar por el cumplimiento de este Reglamento, quien rendirá un informe trimestral de los gastos ejecutados bajo esta vía ante la Coordinación de Hacienda con copia a la Alcaldía.

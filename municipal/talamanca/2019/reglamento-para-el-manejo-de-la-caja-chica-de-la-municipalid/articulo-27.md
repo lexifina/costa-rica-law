@@ -1,0 +1,2 @@
+Artículo 27.-
+No se tramitarán excepto por causa de fuerza mayor por medio del fondo de Caja Chica las compras que se definan como artículos de uso común, los que deberán ser adquiridos por medio de los sistemas convencionales de compra que existan en Municipalidad, según las disposiciones establecidas en la Ley de Contratación Administrativa y en el Reglamento General de la Contratación Administrativa.

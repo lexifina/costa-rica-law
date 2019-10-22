@@ -1,0 +1,4 @@
+Artículo 14.- Requisitos que debe contener la factura o tiquete de caja:
+a) Los justificantes que respaldan la compra de bienes y servicios deben ser emitidas por la respectiva casa comercial, a nombre de la Municipalidad de Talamanca y en formato de factura electrónica, según los lineamientos y directrices vigentes por parte del Ministerio de Hacienda. Debe especificar, con claridad, el bien o servicio adquirido, la fecha de adquisición, el valor del bien o del servicio.
+b) Debe venir el número de cédula jurídica o cédula de identidad en caso de persona física.
+c) Toda factura, tiquete o comprobante debe cumplir con establecido por la Dirección General de Tributación Directa, en caso de ser comercios que tengan regímenes simplificados debe constar la respectiva constancia del Ministerio de Hacienda o visto bueno otorgado por la Tesorería Municipal.
