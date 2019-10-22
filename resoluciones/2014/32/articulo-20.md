@@ -1,0 +1,2 @@
+Artículo 20.— Los funcionarios de la Dirección General de Tributación que intervengan en este procedimiento, deberán guardar la confidencialidad exigida en el artículo 117 del Código de Normas y Procedimientos Tributarios, respecto a toda la información que tuvieron conocimiento durante el proceso, aun cuando la solicitud sea denegada o el empleo del sistema de cálculo sea revocado o cancelado.
+(Así adicionado por el artículo 3° de la resolución N° DGT-R-64-2019 del 22 de octubre de 2019)
