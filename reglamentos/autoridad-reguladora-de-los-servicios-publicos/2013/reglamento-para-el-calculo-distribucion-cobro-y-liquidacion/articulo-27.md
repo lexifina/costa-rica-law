@@ -1,1 +1,1 @@
-Artículo 27.—Incumplimiento. Si un prestador incumpliera el arreglo de pago, se procederá a comunicarle del atraso, a fin de que se cumpla con lo pactado, para lo cual se realizarán las notificaciones respectivas indicadas en este reglamento. No se podrá autorizar un nuevo arreglo de pago, con base en la suma originada en el incumplimiento de uno anterior.
+Artículo 27.—Incumplimiento. (Derogado por el artículo 26 del Reglamento de Cobro de la Autoridad Presupuestaria, aprobado en la sesión 47-2019 del 22 de octubre de 2019)

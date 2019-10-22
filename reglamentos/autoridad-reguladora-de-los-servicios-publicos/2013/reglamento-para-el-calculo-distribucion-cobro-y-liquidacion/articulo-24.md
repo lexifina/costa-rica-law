@@ -1,1 +1,1 @@
-Artículo 24.—Procedencia. Procederá el arreglo de pago en toda aquella gestión de cobro administrativo o judicial, en la cual el deudor moroso lo solicite a la Dirección de Finanzas y ésta lo trámite para su respectiva consideración por parte de las instancias autorizadas para tal efecto. De ninguna manera podrán condonarse intereses, parte del capital o recargos.
+Artículo 24.—Procedencia. (Derogado por el artículo 26 del Reglamento de Cobro de la Autoridad Presupuestaria, aprobado en la sesión 47-2019 del 22 de octubre de 2019)

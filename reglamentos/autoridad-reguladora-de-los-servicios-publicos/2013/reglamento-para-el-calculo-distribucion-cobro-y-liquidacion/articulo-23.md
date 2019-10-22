@@ -1,3 +1,3 @@
 CAPÍTULO CUARTO
 Del procedimiento a seguir en los arreglos de pago
-Artículo 23.—Tramitación. La tramitación y seguimiento de los arreglos de pago corresponderá a la Dirección de Finanzas.
+Artículo 23.—Tramitación. (Derogado por el artículo 26 del Reglamento de Cobro de la Autoridad Presupuestaria, aprobado en la sesión 47-2019 del 22 de octubre de 2019)

@@ -1,1 +1,1 @@
-Artículo 21.—Trámite de peticiones tarifarias. De previo al trámite de solicitudes de carácter tarifario ante la Autoridad Reguladora, el prestador deberá estar al día en el pago del canon. El área de la ARESEP que corresponda verificará lo anterior con la Dirección de Finanzas.
+Artículo 21.—Trámite de peticiones tarifarias. (Derogado por el artículo 26 del Reglamento de Cobro de la Autoridad Presupuestaria, aprobado en la sesión 47-2019 del 22 de octubre de 2019)

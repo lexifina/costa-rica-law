@@ -1,1 +1,1 @@
-Artículo 19.—Pago duplicado. En aquellos casos en que se cancele el canon en forma duplicada o se realice un sobre pago, la Dirección de Finanzas, procederá a coordinar para que se reintegre lo correspondiente por ese concepto, deduciéndolo del pago que el regulado realiza a la ARESEP en los siguientes periodos si tiene deuda pendiente, o bien realizando la devolución del dinero si no tiene deuda pendiente.
+Artículo 19.— (Derogado por el artículo 26 del Reglamento de Cobro de la Autoridad Presupuestaria, aprobado en la sesión 47-2019 del 22 de octubre de 2019)

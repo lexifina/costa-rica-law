@@ -1,1 +1,2 @@
-Artículo 31.—Pago de cuotas. El deudor empezará a pagar las cuotas fijadas, de acuerdo con el arreglo de pago, un mes después del día de la firma del arreglo de pago.
+Artículo 31.—Pago de cuotas. (Derogado por el artículo 26 del Reglamento de Cobro de la Autoridad Presupuestaria, aprobado en la sesión 47-2019 del 22 de octubre de 2019)
+.
