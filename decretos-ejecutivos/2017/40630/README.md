@@ -14,3 +14,4 @@ Reglamento para la implementación del sistema de control automatizado para la d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-10-18 | la propia norma |
+| 2 | 2019-10-22 | Decreto Ejecutivo 42019 (2019-10-22) |
