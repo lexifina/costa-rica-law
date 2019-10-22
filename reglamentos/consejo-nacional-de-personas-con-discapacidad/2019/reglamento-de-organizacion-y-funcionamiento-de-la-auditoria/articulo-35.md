@@ -1,0 +1,4 @@
+SECCIÓN VII
+Relaciones y coordinaciones
+Artículo 35.
+El Auditor o Auditora Interna tendrá relaciones de coordinación con el Jerarca y titulares subordinados, en las que propiciará una comunicación responsable, expresa y libre entre las partes, sobre aspectos de interés común y referentes al proceso de fiscalización institucional; asimismo, en cualquier momento, podrá relacionarse e intercambiar información con la Contraloría General y con otros entes operativos, asesores o de control, que conforme a las leyes correspondan y en el ámbito de sus competencias; sin perjuicio de la coordinación que al respecto deba darse con el jerarca o titulares subordinados y sin que esto implique limitación para la efectiva actuación de la Auditoría Interna.

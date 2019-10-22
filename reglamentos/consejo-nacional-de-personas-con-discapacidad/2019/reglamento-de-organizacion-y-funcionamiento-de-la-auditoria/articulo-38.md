@@ -1,0 +1,2 @@
+Artículo 38.
+El jerarca y el responsable del manejo presupuestario velarán porque la asignación presupuestaria que se realice a la Auditoría Interna se efectúe en las diferentes partidas y subpartidas, de manera que corresponda a requerimientos propios y directos de la unidad, para lo cual, el segundo deberá llevar un registro detallado y separado del monto asignado y aprobado para la Auditoría Interna.

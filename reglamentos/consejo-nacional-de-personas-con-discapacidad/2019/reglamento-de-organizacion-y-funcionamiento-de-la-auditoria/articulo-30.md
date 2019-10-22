@@ -1,0 +1,3 @@
+Artículo 30.
+Los procesos de nombramiento, traslado, suspensión, remoción, permuta, sanción, promoción, concesión de licencias, disminución de plazas por movilidad laboral y demás movimientos de personal requiere la autorización previa del Auditor o Auditora Interna, conforme al artículo 24 de la LGCI y las disposiciones administrativas institucionales que correspondan.
+Se considerarán nulos los movimientos de personal que se ejecuten sin la autorización del Auditor o Auditora Interna, además constituirá incumplimiento de lo dispuesto en la LGCI y sometido a las causales de responsabilidad establecidas en el capítulo V de la LGCI.

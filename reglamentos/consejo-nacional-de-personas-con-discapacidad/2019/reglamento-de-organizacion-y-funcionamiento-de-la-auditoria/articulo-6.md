@@ -1,0 +1,2 @@
+Artículo 6.
+Lo dispuesto en este Reglamento, es de acatamiento obligatorio para todos los funcionarios de la Auditoría Interna, y todas las dependencias y personas funcionarias que conforman el Consejo Nacional de Personas con Discapacidad; asimismo, los sujetos privados que sean custodios o administradores por cualquier título de los fondos públicos transferidos por el Conapdis, de conformidad con lo dispuesto en la Ley General de Control Interno Nº 8292, la normativa aplicable y las competencias de cada instancia.

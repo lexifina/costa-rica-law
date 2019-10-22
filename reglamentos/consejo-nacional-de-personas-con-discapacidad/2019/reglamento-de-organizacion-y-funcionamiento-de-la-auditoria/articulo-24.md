@@ -1,0 +1,2 @@
+Artículo 24.
+El Auditor o Auditora Interna podrá delegar en su personal sus funciones, para lo cual utilizará criterios de idoneidad y deberá observar lo pertinente en cuanto a la Ley General de la Administración Pública.

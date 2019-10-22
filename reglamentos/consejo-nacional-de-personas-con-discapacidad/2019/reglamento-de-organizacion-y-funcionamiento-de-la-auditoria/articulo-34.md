@@ -1,0 +1,4 @@
+SECCIÓN VI
+Ámbito de acción
+Artículo 34.
+El Auditor o Auditora Interna, definirá y mantendrá actualizado un registro en el que detalle el ámbito de acción o jurisdicción de la Auditoría Interna (universo auditable), que incluya expresamente los órganos y entes sujetos a su fiscalización, con fundamento en lo estipulado en el artículo 22, inciso a), de la LGCI, tomando en consideración criterios de la Contraloría General y otros, según corresponda.

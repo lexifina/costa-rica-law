@@ -1,0 +1,2 @@
+Artículo 16.
+La organización y funcionamiento de la Auditoría Interna, le compete al Auditor o la Auditora Interna, quién definirá considerando la razón de ser del Conapdis, su organización y las regulaciones que lo rigen; de manera que se garantice entre otros, la eficacia y eficiencia en el cumplimiento de sus obligaciones legales y técnicas y se obtenga el mayor rendimiento en el uso de los recursos asignados a esta unidad.
