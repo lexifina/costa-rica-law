@@ -1,3 +1,5 @@
 Divulgación de secretos.
 ARTÍCULO 203.-
 Será reprimido con prisión de un mes a un año o de treinta a cien días multa, el que teniendo noticias por razón de su estado, oficio, empleo, profesión o arte, de un secreto cuya divulgación pueda causar daño, lo revele sin justa causa. Si se tratare de un funcionario público o un profesional se impondrá, además inhabilitación para el ejercicio de cargos y oficios públicos, o de profesiones titulares, de seis meses a dos años.
+La pena será de cuatro a seis años de prisión, cuando se trate de información de las entidades o empresas supervisadas por las superintendencias del Sistema Financiero Nacional, o de los clientes de dichas entidades o empresas, cuando tal información esté protegida por el secreto, la confidencialidad o la prohibición de divulgación. Si la divulgación la realiza un funcionario público o profesional, además de la pena señalada en este párrafo se impondrá la inhabilitación para el ejercicio de cargos y oficios públicos o de profesionales titulares de uno a tres años.
+(Así adicionado el párrafo anterior por el artículo 6° de la ley N° 9746 del 16 de octubre del 2019)
