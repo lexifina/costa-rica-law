@@ -19,3 +19,4 @@ Crea Comisión de Enlace entre las Instituciones de Educación Superior, los Pod
 | 4 | 1991-01-14 | Decreto Ejecutivo 20263 (1991-01-14) |
 | 5 | 1998-06-08 | Decreto Ejecutivo 27104 (1998-06-08) |
 | 6 | 2006-07-17 | Decreto Ejecutivo 33247 (2006-07-17) |
+| 7 | 2019-10-22 | Decreto Ejecutivo 42012 (2019-10-22) |
