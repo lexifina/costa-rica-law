@@ -1,0 +1,1 @@
+Artículo 13.—El nombramiento de cualquier persona seleccionada podrá ser anulado si con posterioridad a su designación se llega a comprobar que en su selección influyó alguna forma de fraude o engaño intencional de parte del servidor.

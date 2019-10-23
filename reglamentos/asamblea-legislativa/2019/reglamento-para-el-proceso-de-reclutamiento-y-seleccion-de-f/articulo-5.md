@@ -1,0 +1,1 @@
+Artículo 5º—La designación de funcionarios interinos en plaza vacante o por sustitución será competencia del Directorio Legislativo según lo dispuesto en el artículo 25 del Reglamento de la Asamblea Legislativa. Para tales efectos se deberá contar con un registro de postulantes por la clase o clases del puesto y atinencia.

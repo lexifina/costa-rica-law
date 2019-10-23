@@ -1,0 +1,1 @@
+Artículo 18.—Los nombramientos de funcionarios interinos por sustitución o en plaza vacante, no se aplicarán de manera retroactiva, sino que podrán regir a partir del primer día hábil siguiente a su designación por parte del Directorio Legislativo en el tanto se cumpla con la comunicación formal al postulante y la aceptación del nombramiento por parte de este.

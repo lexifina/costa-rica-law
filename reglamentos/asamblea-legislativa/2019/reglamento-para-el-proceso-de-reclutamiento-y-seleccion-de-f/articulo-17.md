@@ -1,0 +1,1 @@
+Artículo 17.—Si el interesado acepta, deberá presentarse con todos sus atestados en la fecha que el Departamento de Recursos Humanos indique y con los formularios internos requeridos debidamente llenos para proceder con el trámite del nombramiento temporal.
