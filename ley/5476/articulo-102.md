@@ -1,5 +1,6 @@
 Artículo 102.- Efectos de la adopción. La adopción produce los siguientes efectos:
 a) Entre los adoptantes y los adoptados se establecen los mismos vínculos jurídicos que unen a los padres con los hijos e hijas consanguíneos. Además, para todos los efectos, los adoptados entrarán a formar parte de la familia consanguínea adoptante.
 b) El adoptado se desvincula, en forma total y absoluta, de su familia consanguínea y no se le exigirán obligaciones por razón del parentesco con sus ascendientes o colaterales consanguíneos. Tampoco tendrá derecho alguno respecto de esos mismos parientes. Sin embargo, los impedimentos matrimoniales por razón del parentesco permanecen vigentes con respecto a la familia consanguínea. Asimismo, subsisten los vínculos jurídicos con la familia paterna o materna, según el caso, cuando el adoptado sea hijo o hija del cónyuge del adoptante.
-c) En lo concerniente al término y la suspensión de la patria potestad, para la adopción regirá lo estipulado en este Código.
+c) En lo concerniente al término y la suspensión de los atributos de la responsabilidad parental, para la adopción regirá lo estipulado en este Código.
+(Así reformado el inciso anterior por el artículo 2° punto II) de la ley que aprobó el Código Procesal de Familia, N° 9747 del 23 de octubre de 2019)
 (Así reformado por el artículo 2 de ley No.7538 del 22 de agosto de 1995)

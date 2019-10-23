@@ -1,3 +1,2 @@
-Artículo 137.- Interés superior de la persona menor de edad.
-Tanto las resoluciones como las medidas que dicten los Tribunales en relación con los menores adoptandos, se dictarán tomando en cuenta el interés superior del menor.
+Artículo 137.- Interés superior de la persona menor de edad. (Derogado por el artículo 4° punto II) inciso a) de la ley que aprobó el Código Procesal de Familia, N° 9747 del 23 de octubre de 2019)
 (Así adicionado por el artículo 2 de ley No.7538 del 22 de agosto de 1995)
