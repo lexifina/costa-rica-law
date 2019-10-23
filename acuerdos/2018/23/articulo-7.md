@@ -1,1 +1,0 @@
-Artículo 7º—Derogaciones. Se derogan los Acuerdos N° 011-2015-MGP del 27 de febrero del 2015, publicado en La Gaceta N° 64 del 1° de abril del 2015; N° 020-2015-DMG del 20 de abril del 2015, publicado en La Gaceta N° 107 del 04 de junio del 2015 y N° 002-2018-MGP del siete de febrero del dos mil dieciocho, publicado en La Gaceta N° 44, del 08 de marzo del 2018.
