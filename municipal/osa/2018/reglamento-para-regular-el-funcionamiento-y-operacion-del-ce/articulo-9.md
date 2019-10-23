@@ -1,1 +1,2 @@
-Artículo 9º—Horario del CECUDI: El horario de atención para la población beneficiada será de al menos 10 horas diarias. De las 7 am hasta las 5:00 pm, durante los días hábiles de la semana. Cada Centro podrá modificar dicho horario, siempre y cuando la efectividad del servicio no se vea afectado.
+Artículo 9.—Horario del CECUDI: el horario de atención para la población beneficiaria será de conformidad con las Normas de Habilitación de los Centros de Atención Integral y, así sea establecido por el Consejo de Atención Integral, quién emitirá la respectiva habilitación del centro.
+(Así reformado mediante sesión ordinaria N° 43-2019 del 23 de octubre del 2019)
