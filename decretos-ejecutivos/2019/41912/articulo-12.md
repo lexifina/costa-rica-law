@@ -1,0 +1,10 @@
+Artículo 12: De la forma de evaluación:
+a-. Primera fase
+Al finalizar la audición de cada participante, los miembros del Jurado Calificador realizarán su evaluación de forma separada, otorgándole una calificación según la valoración de los rubros descritos en el artículo anterior. Hecho esto, entregarán la hoja de evaluación al Jefe del Departamento de Comunicación y Desarrollo del Centro o su representante debidamente acreditado.
+En esta primera fase, está terminantemente prohibido que los miembros del Jurado Calificador efectúen comentarios relacionados con la ejecución de los participantes y/o los resultados de su audición entre ellos, o con funcionarios del CNM, que se encuentren en el recinto de audiciones; los funcionarios autorizados para permanecer el recinto de audiciones, es el Jefe del Departamento de Comunicación y Desarrollo del Centro o su representante. Dicha abstención se mantendrá antes, durante y después de la audición de cada participante.
+La nota mínima para pasar a la segunda fase es de 8 (ocho).
+b-. Segunda fase
+Al finalizar la audición de cada participante, los miembros del Jurado Calificador
+realizarán su evaluación de forma separada, otorgándole una calificación según la valoración de los rubros descritos en el artículo anterior. Hecho esto, entregarán la hoja de evaluación al Jefe del Departamento de Comunicación y Desarrollo del Centro o su representante debidamente acreditado.
+En esta segunda fase, esta terminante prohibido que los miembros del Jurado Calificador efectúen comentarios relacionados con la ejecución de los participantes y/o los resultados de su audición entre ellos, o con funcionarios del CNM, que se encuentren en el recinto de audiciones. Dicha abstención se mantendrá antes, durante y después de la audición de cada participante y entregada su calificación.
+Resultarán ganadores aquellos concursantes que obtengan el mayor puntaje ponderado en la segunda fase del proceso de audición, resultante de la suma de todas las evaluaciones individuales. La calificación mínima para participar como solista, será 9 (nueve).

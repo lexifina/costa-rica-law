@@ -1,0 +1,2 @@
+Artículo 11: Del puntaje y aspectos de evaluación: La evaluación de la audición en cada una de las fases, se hará en una escala del cero al diez (0 al 10); siendo el Cero (0), la calificación más baja y el diez (10), la más alta. Se eliminará la nota más alta y más baja y se hará un promedio de las restantes.
+En ambas fases, se evaluarán los siguientes aspectos: Dominio técnico (afinación, ritmo, articulación, calidad del sonido) e Interpretación musical (tempo fraseo, matices, conocimiento de estilo) de la obra solistica.

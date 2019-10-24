@@ -1,0 +1,1 @@
+Artículo 13: De la asistencia legal: En cada una de las fases del proceso de audición por oposición, se contará con un Profesional en Derecho, que será designado por la Asesoría Legal del CNM, quien fiscalizará el proceso.
