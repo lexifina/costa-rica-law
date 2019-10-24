@@ -1,0 +1,1 @@
+Artículo 20. Durante las labores de aplicación de agroquímicos solo deben permanecer las personas trabajadoras que están realizando la labor. Es responsabilidad del patrono, intermediario o contratista, impedir que haya otras personas no relacionadas con esta labor.

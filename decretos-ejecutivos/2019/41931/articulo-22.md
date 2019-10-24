@@ -1,0 +1,1 @@
+Artículo 22. Se debe colocar letreros con la advertencia "PELIGRO ÁREA TRATADA CON PLAGUICIDAS" y con el período de tiempo en el que no se debe ingresar en las áreas donde se aplicó plaguicidas. Los letreros se deben retirar al momento que se cumple el período de reingreso definido en la etiqueta.

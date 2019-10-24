@@ -1,0 +1,1 @@
+Artículo 25. Las labores de descontaminación de los equipos y remanentes de agroquímicos se realizan bajo la responsabilidad del patrono, intermediario o contratista y deben ser realizadas por personas trabajadoras capacitadas, de conformidad con el Artículo 8 del presente reglamento.

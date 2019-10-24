@@ -1,0 +1,1 @@
+Artículo 16. Las bodegas de agroquímicos deben cumplir con lo que se establece en el Reglamento de Expendios y Bodegas de Agroquímicos, Decreto Ejecutivo Nº 28659-S del 13 de abril del 2000 y sus reformas.

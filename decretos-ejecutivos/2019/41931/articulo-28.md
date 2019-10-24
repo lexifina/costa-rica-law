@@ -1,0 +1,1 @@
+Artículo 28. Se prohíbe comer o beber durante las labores de manejo y uso de agroquímicos. Sin perjuicio de lo anterior, cuando por la índole de las labores y las condiciones de clima se requiera el consumo de agua potable, la persona trabajadora se debe lavar las manos y la cara, con abundante agua y jabón.

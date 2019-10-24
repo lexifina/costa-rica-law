@@ -1,0 +1,1 @@
+Artículo 30. Se prohíbe guardar alimentos, semillas, medicamentos de uso veterinario, utensilios domésticos, equipo de protección personal o cualquier otro equipo de uso personal en los locales destinados al almacenamiento de agroquímicos.

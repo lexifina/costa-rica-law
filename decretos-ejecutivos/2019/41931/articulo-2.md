@@ -1,0 +1,1 @@
+Artículo 2. El presente reglamento establece las condiciones de trabajo y de salud ocupacional, que deben implementarse en los centros de trabajo donde se realizan labores de manejo y uso de agroquímicos, con el fin de proteger la vida, la salud y la seguridad de las personas trabajadoras.

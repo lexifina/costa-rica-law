@@ -1,0 +1,20 @@
+N° 41931 – MTSS
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE TRABAJO Y SEGURIDAD SOCIAL
+En uso de las facultades que les confieren los artículos 74, 140 incisos 3) y 18) y 46 de la Constitución Política; 25, 27, 28 y 103 de la Ley General de la Administración Pública Nº 6227 del 02 de mayo de 1978; 274 del Código de Trabajo, Ley Nº 2 del 27 de agosto de 1943 y sus reformas.
+CONSIDERANDO:
+1. Que el artículo 50 de la Constitución Política de la República de Costa Rica encomienda al Estado, la responsabilidad de procurar el mayor bienestar a todos los habitantes del país, organizando y estimulando la producción y el derecho a un ambiente sano y ecológicamente equilibrado.
+2. Que los artículos 66 de la Constitución Política y 282 del Código de Trabajo establecen la obligación y la responsabilidad de los patronos de garantizar y adoptar las medidas necesarias para mantener la salud y seguridad de las personas trabajadoras y la prevención de los riesgos laborales.
+3. Que es competencia del Ministerio de Trabajo y Seguridad Social regular las condiciones de trabajo de conformidad con la Ley Orgánica del Ministerio de Trabajo y Seguridad Social Nº 1860 y sus reformas.
+4. Que es competencia del Consejo de Salud Ocupacional como órgano técnico especializado adscrito al Ministerio de Trabajo, preparar las propuestas de los Reglamentos de salud ocupacional ( condiciones y medio ambiente de trabajo, medidas de seguridad e higiene, prevención, protección y organización de trabajo), de conformidad con los artículos 274, 283 y 294 del Código de Trabajo, Ley Nº 2 del 27 de agosto de 1943 y sus reformas. N° 41931 - MTSS
+5. Que Costa Rica ratificó los Convenios 81 (Convenio sobre la Inspección del Trabajo de 1947) y 129 (Convenio sobre la Inspección del Trabajo (agricultura) de 1969) de la Organización Internacional del Trabajo, por medio de las Leyes Nº 2561 del 11 de mayo de 1960 y Nº 4737 del 29 de marzo de 1971; donde se establece que "los inspectores del trabajo estén encargados de velar por el cumplimiento de las disposiciones legales relativas a las condiciones de trabajo y a la protección de los trabajadores en el ejercicio de su profesión”. Por lo que es necesario establecer, cuáles son las condiciones de trabajo y de salud ocupacional que deben adoptarse en los centros de trabajo, donde se realizan labores de manejo y uso de agroquímicos con el fin de proteger eficazmente la vida, la salud y la integridad física de las personas trabajadoras.
+6. Que la Comisión Asesora para el Control y la Regulación de las Actividades de Aviación Agrícola, en aplicación del Reglamento Nº 31520-MS-MAG-MINAE-MOPT-MGPSP del 16 de octubre de 2003, solicita al Ministerio de Trabajo y Seguridad Social, la elaboración de un reglamento para el uso y aplicación de plaguicidas, con el propósito de prevenir los riesgos en el lugar de trabajo.
+7. Que la reglamentación vigente requiere ser actualizada para fortalecer criterios técnicos de salud y seguridad, que están siendo implementados por los diferentes actores involucrados en las labores de manejo y uso de agroquímicos, a su vez el reglamento vigente requiere ser ordenado para una mejor comprensión y verificación del cumplimiento por parte de las autoridades de la Inspección de Trabajo.
+8. Que de conformidad con lo establecido en el artículo 12 bis del Decreto Ejecutivo Nº 37045- MP-MEIC de 22 de febrero de 2012 "Reglamento a la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos" y su reforma, esta regulación cumple con los principios de mejora regulatoria, de acuerdo con el informe Nº DMR-DAR-INF-122-18, emitido por la Dirección de Mejora Regulatoria del Ministerio de Economía, Industria y Comercio.
+POR TANTO:
+DECRETAN:
+REGLAMENTO DE SALUD OCUPACIONAL EN EL MANEJO Y USO DE
+AGROQUÍMICOS
+CAPÍTULO I
+DISPOSICIONES GENERALES
+Artículo 1. El presente reglamento rige para todo el país y es de aplicación obligatoria en todos los centros de trabajo, donde se realizan labores de manejo y uso de agroquímicos.

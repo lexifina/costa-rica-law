@@ -1,0 +1,1 @@
+Artículo 27. Se prohíbe la aplicación de agroquímicos, exceptuando fertilizantes y enmiendas de las diez (10) horas a las catorce (14) horas del día. No se debe trabajar en forma continua más de cuatro ( 4) horas en la aplicación de agroquímicos.

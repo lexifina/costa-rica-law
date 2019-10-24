@@ -1,0 +1,1 @@
+Artículo 7. Debe efectuar y cubrir los costos de los exámenes médicos, a las personas trabajadoras que realizan labores de manejo y uso de plaguicidas, de conformidad con el Reglamento Disposiciones para Personas Ocupacionalmente Expuestas a Plaguicidas, Decreto Ejecutivo Nº 38371-S-TSS del 20 de mayo de 2014 y sus reformas.
