@@ -1,2 +1,0 @@
-Artículo 9°—Derogatorias. El presente Reglamento deroga los Reglamentos publicados anteriormente relacionados al sorteo Rueda de la Fortuna. Este Reglamento rige a partir de su publicación en el Diario Oficial La Gaceta.
-Se aprueba el presente Reglamento, según acuerdo JD-815, correspondiente al artículo V), inciso 7) de la sesión ordinaria No.29-2016 celebrada el 08 de agosto del 2016 Departamento de Sorteos.

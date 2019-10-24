@@ -1,7 +1,0 @@
-Artículo 2°—Definiciones. Para los efectos de la presente reglamentación, se entiende por:
-Junta Directiva: el máximo órgano jerárquico de la Junta de Protección Social.
-Participante: Toda persona física mayor de 18 años, que efectúe la activación de los productos que se indican en el presente reglamento a través de la página web www.jps.go.cr, vía telefónica o cualquier otro medio que la Junta de Protección Social designe.
-Funcionario judicial: Funcionario que asiste a los sorteos en calidad de fiscalizador, según lo determine la Junta Directiva.
-Notario Público: funcionario público que tiene la autorización para controlar y servir de testigo frente a la celebración de contratos, testamentos, y otros actos extrajudiciales. Concede carácter público a documentos privados por medio de su firma. Funciona como garantía porque confirma la legalidad de los documentos que controla, es un jurista habilitado por la ley para otorgar garantías a actos que suscitan en el ámbito del derecho privado.
-Tómbola electrónica: Tómbola generada con las activaciones que realizan las personas a través de la página web www.jps.go.cr, vía telefónica o cualquier otro medio que la Junta de Protección Social designe, el o los ganadores se determinan de manera aleatoria a través de un sistema.
-Fondo para premios extra: Fondo con que cuenta la Junta de Protección Social que se destina a las personas consumidoras finales mediante el incremento del plan de premios, conforme lo determina la Junta Directiva.
