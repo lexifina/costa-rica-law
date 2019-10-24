@@ -1,0 +1,1 @@
+Transitorio Único - La mejora de las condiciones y ambientes laborales establecidas en el presente reglamento para las personas trabajadoras que brindan sus servicios dentro de las unidades blindadas, deben ser implementadas dentro de un plazo no mayor a los seis meses, contados a partir de la entrada en vigencia del presente decreto.

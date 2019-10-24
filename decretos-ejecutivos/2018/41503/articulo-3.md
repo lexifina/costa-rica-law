@@ -1,0 +1,18 @@
+CAPÍTULO II
+DE LAS OBLIGACIONES
+SECCIÓN I
+Medidas de Protección que debe cumplir la Persona Empleadora
+Artículo 3. Todas las personas empleadoras, sean Físicas o Jurídicas, de Derecho Público o de Derecho Privado, que ofrezcan el servicio de custodia y transporte de valores, sin perjuicio de lo establecido en otras disposiciones legales o reglamentarias, deben cumplir con las siguientes disposiciones:
+a) Velar por el cumplimiento de las disposiciones, tanto legales como reglamentarias, para la capacitación y adiestramiento de las personas trabajadoras en materia de salud ocupacional.
+b) Proporcionar, en forma gratuita, el equipo y elementos de protección personal y de seguridad en el trabajo, asegurar el uso y funcionamiento del mismo, según el tipo de actividad en la cual hayan sido ubicadas las personas trabajadoras
+e) Garantizar que las jornadas de trabajo, para todas las personas trabajadoras que laboren dentro de las unidades blindadas de custodia y transporte de valores, se ajusten a los requerimientos de los numerales 136, 137 y 141 del Código de Trabajo vigente.
+d) Proveer a las personas trabajadoras de un lugar que reúna las condiciones mínimas y de seguridad para ingerir sus alimentos, conforme lo dispone el numeral 296 del Código de Trabajo.
+e) Organizar el trabajo en los tiempos y formas para que las personas trabajadoras accedan y dispongan de los servicios para saneamiento básico y de bienestar social laboral, según lo establecido en el inciso c) del presente numeral. t) Darle mantenimiento a los elementos y medios para el trabajo, equipos de protección personal, a efecto de que tales dispositivos no se conviertan en fuentes de perjuicio a la salud y la seguridad de las personas trabajadoras que laboran dentro de las unidades blindadas de custodia y transporte de valores.
+g) Implementar actividades preventivas y de protección que controlen y/o minimicen las exigencias físicas y mentales que expongan a las personas trabajadoras durante el ejercicio del trabajo.
+h) Establecer actividades que capaciten a las personas trabajadoras respecto a la prevención y protección de las condiciones de riesgo que derivan de la actividad laboral.
+i) Promover, sea por medio de la Comisión y la Oficina o Departamento de Salud Ocupacional de la empresa, si las tuviere, los correspondientes estudios que determinen, valoren y controlen las condiciones de riesgo y exigencia, así como las causas de los riesgos del trabajo que conllevan a su acontecimiento.
+j) Proveer espacios de trabajos con criterio ergonómico que permitan a la persona trabajadora realizar los diferentes movimientos de las extremidades superiores e inferiores, y minimizar causas que conlleven a sufrir lesiones físicas y adoptar posturas inadecuadas y perjudiciales.
+k) Realizar y sin costo, a las personas trabajadoras que lo requieran, los exámenes médicos preventivos, de conformidad a las disposiciones legales y también reglamentarias vigentes que rigen la materia.
+l) Proveer para todas las personas trabajadoras que lo requieran, según la naturaleza de sus funciones, las instalaciones sanitarias y vestuarios, de conformidad con las disposiciones, tanto legales como reglamentarias vigentes, propias de la materia que las regula.
+m) Se deben realizar antes y durante su labor de trabajo, en forma periódica, estudios para riesgos psicosociales, específicamente estrés laboral, violencia laboral y síndrome del quemado (burn-out), con el fin de disminuir el riesgo de patologías relacionadas a los riesgos psicosociales.
+n) Debe fomentar en sus trabajadores medidas preventivas, con especial énfasis en estilos de vida saludables.
