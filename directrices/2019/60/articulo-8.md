@@ -1,0 +1,1 @@
+Artículo 8º—Ejecución. El SINIRUBE establecerá de forma coordinada y conjunta con las instituciones establecidas en el artículo 3° de esta Directriz un plan de capacitación y gestión del cambio, que garantice la correcta ejecución de los lineamientos de esta Directriz.

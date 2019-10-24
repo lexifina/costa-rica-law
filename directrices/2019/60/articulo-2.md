@@ -1,0 +1,2 @@
+Artículo 2º—Clasificación socioeconómica oficial. Se instruye a las instituciones de la Administración Central y Descentralizada del sector social tomar como oficial la clasificación y priorización que hará el SINIRUBE sobre los hogares considerando los métodos de línea de pobreza y de pobreza multidimensional.
+El Consejo Rector de SINIRUBE adoptará las metodologías estadísticas que utilicen los registros de información disponibles, con el fin de que la clasificación y priorización de hogares sea técnica y rigurosa.

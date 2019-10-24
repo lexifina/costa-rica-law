@@ -1,0 +1,1 @@
+Transitorio I.—Se insta a las instituciones del artículo 3° de esta Directriz que no hayan firmado convenio de cooperación con el SINRUBE, que suscriban dicho convenio dentro de un plazo máximo de 3 meses a partir de la publicación de esta directriz.

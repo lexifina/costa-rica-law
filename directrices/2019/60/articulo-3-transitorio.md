@@ -1,0 +1,1 @@
+Transitorio III.—Las personas incluidas dentro de la Estrategia Puente al Desarrollo o de los programas señalados en el artículo 3° de esta Directriz, que resultaron beneficiarias hasta seis meses después de publicada la presente Directriz bajo las metodologías existentes previo a la misma, mantendrán los beneficios asignados durante el plazo por el cual hayan sido otorgados.

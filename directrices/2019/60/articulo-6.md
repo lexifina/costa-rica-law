@@ -1,0 +1,1 @@
+Artículo 6º—Evaluación. La Dirección General de Desarrollo Social y Asignaciones Familiares (DESAF) tendrá acceso a las bases de datos de beneficiarios del SINIRUBE, con el fin de facilitar sus funciones de evaluación de los programas sociales y fiscalización del uso de los recursos del Fondo de Desarrollo Social y Asignaciones Familiares (FODESAF).
