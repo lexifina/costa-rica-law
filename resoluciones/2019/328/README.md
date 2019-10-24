@@ -14,3 +14,4 @@ Establece que el Tratado de Libre Comercio entre la República de Corea y las Re
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-10-18 | la propia norma |
+| 2 | 2019-10-24 | Resolución 372 (2019-10-24) |

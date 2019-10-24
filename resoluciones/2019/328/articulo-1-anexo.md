@@ -1,5 +1,6 @@
 [imagen]
 [imagen]
+(Así reformado el cuadro de aranceler anterior mediante resolución N° RES-DGA-372-2019 del 24 de octubre del 2019)
 MOV: Movimiento
 I: Inclusión
 E: Eliminación
