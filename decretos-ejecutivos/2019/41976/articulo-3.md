@@ -1,0 +1,1 @@
+Artículo 3. Funciones del Consejo. El Consejo se encargará de aprobar las políticas, estrategias, planes e instrumentos para el desarrollo del sector artesanal; y podrá crear los Comités Técnicos necesarios para cumplir las anteriores funciones.
