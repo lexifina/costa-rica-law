@@ -1,0 +1,1 @@
+Artículo 36: De la inclusión en el expediente personal: Una vez firme la resolución final que se dicte en el respectivo procedimiento disciplinario, será la Gerencia General quien remita copia al Departamento de Talento Humano con el fin de que se incluya en el expediente personal de las partes………………………………………..

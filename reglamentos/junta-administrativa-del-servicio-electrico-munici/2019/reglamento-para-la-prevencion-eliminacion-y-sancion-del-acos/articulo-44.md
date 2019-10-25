@@ -1,0 +1,1 @@
+Articulo 44 Deber de Colaboración. Todas las dependencias y funcionarios (as) de JASEC están en la obligación de brindar su colaboración cuando así se solicite por la Comisión para facilitar su labor y el cabal desempeño del procedimiento, suministrando toda la información documental o testimonial requerida………..….
