@@ -1,0 +1,19 @@
+SECCIÓN II. Definiciones y Acrónimos
+Artículo 3-. Definiciones
+Para los efectos de interpretación y aplicación del presente Reglamento, los términos siguientes se entenderán así:
+1. Acuífero: Formación o formaciones geológicas que son capaces de almacenar y transmitir agua en cantidades aprovechables bajo la acción de gradientes hidráulicos.
+2. Amenaza: Potencial consecuencia de una AOP relacionado con la contaminación de las aguas subterráneas o daños al sistema de acuíferos.
+3. Cobertura: Es la proyección horizontal de una estructura o el área de terreno cubierta por tal estructura.
+4. Contaminación: Alteración de la calidad natural del agua debido a la acción humana o al ambiente hidrogeológico que la almacene.
+5. Contaminantes conservativos: son aquellos que no son afectados por los procesos naturales, en principio dichas concentraciones solo son reducidas por dilución. Dentro de este tipo de contaminación se encuentran muchas sustancias inorgánicas. Su estructura química se mantiene a lo largo del tiempo a pesar de su interacción con los materiales del medio.
+6. Cuadrantes Urbanos: Expansión geográfica-espacial o demográfica de la ciudad, ya sea por extensión física territorial del tejido urbano, por incremento en las densidades de construcción y población o como generalmente sucede, de ambos aspectos. Esta expansión puede darse en forma espontánea o en forma planificada.
+7. Densidad: Número de habitantes por hectárea.
+8. Flujo Base: Flujo de agua que vuelve al sistema superficial. En algunos casos si la cuenca es cerrada es el drenaje del agua subterránea.
+9. Manantial: Flujo de agua subterránea, que proviene de un acuífero, que aflora de manera permanente en la superficie debido a cambios topográficos, rasgos geológicos-estructurales como fallas, o cambios en la conductividad hidráulica, fracturas o discontinuidades.
+10. Método Günther Schosinsky: Método de Balance Hídrico que se encuentra en la Revista Geológica de América Central, N° 34-35 del año 2006.
+11. Planes Reguladores: Instrumento de planificación local que define en un conjunto de planos, mapas, reglamentos y cualquier otro documento, gráfico o suplemento, la política de desarrollo urbano y los planes de distribución de la población, usos del suelo, vías de circulación, servicios públicos, facilidades comunales y construcción, conservación y rehabilitación de áreas urbana.
+12. Recarga acuífera: Se define como el movimiento del agua a través del suelo, zona no saturada, zonas fracturadas, fallas, ríos, quebradas, lagos, drenajes, que tardan un cierto tiempo en llegar a formar parte del flujo subterráneo.
+13. Riesgo: Es la interacción entre los componentes de la vulnerabilidad y la amenaza que determinan el potencial de contaminación de aguas subterráneas.
+14. Sustancia Peligrosa: Son aquellas sustancias que, por su reactividad química y sus características tóxicas, explosivas, corrosivas, radiactivas, biológicas, bioinfecciosas e inflamables, ecotóxicas o de persistencia ambiental, o que, por su tiempo de exposición, puedan causar daños a la salud humana o el ambiente. Asimismo, se consideran peligrosas aquellas sustancias que el Ministerio de Agricultura y Ganadería, Ministerio de Salud y el Ministerio de Ambiente y Energía definan como tal según sus competencias.
+15. Toxicidad: Propiedad que tiene una sustancia, sus productos metabólicos o de degradación, capaz de provocar un daño a la salud y al ambiente.
+16. Vulnerabilidad: Es el concepto que tiene una relación directa con las características intrínsecas o propias del acuífero o las capas que lo protegen relativamente de potenciales contaminantes. Las condiciones hidráulicas, las zonas preferenciales de la recarga (fracturas o fallas, discontinuidades litológicas) son las responsables del grado de vulnerabilidad del acuífero.

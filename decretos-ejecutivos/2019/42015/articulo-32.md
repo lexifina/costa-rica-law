@@ -1,0 +1,3 @@
+Artículo 32. - Metodología para determinar la Recarga de Agua Subterránea
+Para cuantificar teóricamente la recarga potencial de agua subterránea en un área de estudio se debe utilizar la metodología del balance hídrico de suelos establecido por el Balance Hídrico de Humedad de Suelos; Método Günther Shosinsky.
+No obstante, también se podrán utilizar otros métodos para la determinación de la recarga de agua subterránea, como son: isótopos ambientales, trazadores artificiales, fluctuaciones de niveles de agua subterráneas, concentraciones químicas de cloro en la zona no saturada, flujo de agua en la zona no saturada, así como otras metodologías que resulten aplicables. Todos estos métodos se podrán desarrollar en función de la información existente.

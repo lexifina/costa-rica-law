@@ -1,0 +1,2 @@
+Artículo 19-. Área de cobertura de la Red de Alcantarillado Sanitario
+Con el objetivo de mantener actualizada la información en el SINIGIRH, es importante que el AyA incorpore constantemente la ubicación de los sitios de aprovechamiento, las áreas de protección absoluta y áreas estratégicas del recurso hídrico, áreas de cobertura y expansión de los sistemas de abastecimiento de agua potable y alcantarillado sanitario, actual y proyectada.

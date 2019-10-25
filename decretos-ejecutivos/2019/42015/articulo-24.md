@@ -1,0 +1,6 @@
+Sección VIII. Participación del INVU para la protección del Recurso Hídrico
+Subterráneo según sus competencias legales y reglamentarias
+Artículo 24. - De la Participación del INVU en Planificación Urbana
+En el marco de dichas competencias y sin perjuicio de estas, le corresponde al INVU tanto elaborar como revisar los planes reguladores costeros, cantonales, y realizar la planificación urbana regional y nacional para proveer un desarrollo urbano en las ciudades del país, con la finalidad de mejorar la calidad de vida de sus pobladores, aplicando las disposiciones del Ordenamiento Jurídico en relación con el desarrollo urbano control y la protección al ambiente.
+Por lo anterior, es importante que el INVU suministre a través del SNIT y el SINIGIRH, información geoespacial que permita identificar las zonas del territorio nacional que cuentan con plan regulador vigente con variable ambiental, ya sea total o parcial, así como urbano o costero.
+Cabe aclarar que en el marco de sus competencias legales, el Instituto Nacional de Vivienda y Urbanismo (INVU) únicamente solicitará como requisito para el trámite de revisión y aprobación de los Planes Reguladores el que los mismos cuenten con la respectiva aprobación de la incorporación de la Variable Ambiental por parte de la SETENA.

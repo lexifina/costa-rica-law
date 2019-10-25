@@ -1,0 +1,2 @@
+Artículo 22.- Área de cobertura de la Red de Alcantarillado Sanitario
+Para el cumplimiento de lo indicado en el artículo 19 del presente reglamento, en los casos que las Municipalidades, Empresa de Servicios Públicos de Heredia y otros operadores que administren redes de alcantarillado sanitario y potable, es importante que brinden al AyA la delimitación actualizada de la ubicación del alcantarillado sanitario, en formato digital, editable, georeferenciada y legible desde sistemas de información geográfica.

@@ -1,0 +1,2 @@
+Artículo 6–. De la coordinación interinstitucional
+El Estado, mediante el MINAE y en coordinación con MAG, MIVAH y el Ministerio de Salud, por medio de la SETENA, AyA, SFE, SENASA, INTA, SENARA, INVU, Dirección de Aguas y las respectivas Municipalidades, deberán resguardar la protección del recurso hídrico, a fin de implementar las medidas de protección necesarias, considerando el necesario equilibrio con el desarrollo sostenible del país y teniendo en cuenta los avances de la ciencia y la técnica que permiten la mitigación de impactos.

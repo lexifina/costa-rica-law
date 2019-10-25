@@ -1,0 +1,2 @@
+Transitorio X. Vigencia de la denominada Matriz de criterios de uso del suelo según la vulnerabilidad a la contaminación de acuíferos para la protección del recurso hídrico para el cantón de Poás.
+La matriz de Poás, aprobada mediante acuerdo N° 3303 de la Junta Directiva de SENARA en Sesión Extra-Ordinaria # 239-06, se aplicará hasta tanto no existan mapas de vulnerabilidad oficiales, o planes reguladores aprobados en los cantones estipulados en el voto constitucional N° 2012-08892.

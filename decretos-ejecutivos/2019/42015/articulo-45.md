@@ -1,0 +1,2 @@
+Artículo 45.- Obligación de instituciones del Estado con el SINIGIRH
+Todo ente público, debe brindar la información oficial digitalizada, que genere en relación con el Recurso Hídrico, para que sea publicada en el SINIGIRH, la cual debe cumplir con los estándares establecidos por el SNIT y su ficha técnica correspondiente, que permita su acceso universal y público. Cada institución será la responsable de la información publicada, en todos sus alcances y extremos, principalmente en cuanto a fidelidad, confianza y actualización del dato publicado.

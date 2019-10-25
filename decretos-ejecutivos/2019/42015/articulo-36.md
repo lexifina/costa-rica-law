@@ -1,0 +1,3 @@
+Artículo 36.- Disponibilidad de Información Hidrogeológica Oficial
+Asimismo, es importante que las Municipalidades utilicen la información hidrogeológica de la localización y la caracterización de los acuíferos disponible y oficializada mediante el SINIGIRH, para la elaboración de las propuestas de los planes reguladores.
+En caso de no contar con información hidrogeológica en el cantón, la Municipalidad puede elaborar o contratar los estudios hidrogeológicos a quien corresponda, para lo cual se aplicarán los términos de referencia establecidos en la normativa vigente para la incorporación de la variable ambiental en planes reguladores, Manual de Instrumentos Técnicos para el Proceso de Evaluación del Impacto Ambiental (Manual de EIA)-Parte III, Decreto N° 32967-MINAE.

@@ -1,0 +1,2 @@
+Artículo 25. - Cuadrantes Urbanos.
+Para la protección de los acuíferos y como insumo para la aprobación de las AOP, el INVU elaborará la delimitación de los cuadrantes urbanos, conforme a sus competencias establecidas en la Ley de Planificación Urbana N° 4240 y sus reformas, que delimitan el área desarrollada urbanamente, así como su área de expansión; las áreas urbanas que poseen red de alcantarillado sanitario no requerirán los estudios hidrogeológicos para proyectos de desarrollo urbano.

@@ -1,0 +1,4 @@
+Artículo 8. – Funciones de la Secretaría Técnica Nacional Ambiental
+En aquellas actividades, obras o proyectos sometidas a trámite de permiso o licenciamiento ambiental, corresponde a SETENA verificar y aprobar las evaluaciones de las condiciones del recurso hídrico subterráneo.
+Las evaluaciones presentadas para revisión deberán basarse en los requisitos establecidos en los protocolos del Reglamento sobre Procedimientos de Evaluación de Impacto Ambiental y sus respectivos manuales o la normativa vigente.
+En el caso de la inclusión de la variable ambiental en los Planes Reguladores, se deberá cumplir con los protocolos establecidos al efecto en el Manual de Instrumentos Técnicos para el Proceso de Evaluación del Impacto Ambiental (Manual de EIA)-Parte III, Decreto N° 32967 o la normativa vigente, con relación a la inclusión de la Variable Ambiental en planes reguladores.

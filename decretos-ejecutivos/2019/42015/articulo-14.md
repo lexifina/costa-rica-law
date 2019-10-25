@@ -1,0 +1,4 @@
+Artículo 14. – Funciones de SENARA
+Son funciones del SENARA, realizar, coordinar, promover y mantener actualizadas las investigaciones hidrológicas, hidrogeológicas, agrológicas y otras que considere necesarias en las cuencas hidrográficas del país, así como las socioeconómicas y ambientales en las áreas y regiones en que sea factible establecer distritos de riego y avenamiento.
+Corresponde al SENARA investigar, proteger y fomentar el uso de los recursos hídricos del país, tanto superficiales como subterráneos, así como vigilar el cumplimiento de las disposiciones legales en las materias de su incumbencia, según lo establece la Ley Constitutiva de SENARA, Ley N° 6877 y sus reformas.
+Realizar las investigaciones en materia hidrogeológica que le confiere la Ley, brindar servicios de asesoramiento técnico en materia de hidrogeología en aquellos casos que exista consulta expresa de usuarios.

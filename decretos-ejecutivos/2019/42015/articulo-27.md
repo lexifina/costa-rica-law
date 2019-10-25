@@ -1,0 +1,2 @@
+Artículo 27.- Niveles de Aguas Subterráneas
+El MINAE mantendrá un registro de niveles de aguas subterráneas en coordinación con la información técnica que mantiene SENARA, el AyA, el ICE y otras instituciones, para vigilar el comportamiento de los acuíferos, y determinar posibles descensos que pueden traer consecuencias negativas para la calidad y cantidad de los recursos hídricos subterráneos. Esta información deberá estar disponible en el SINIGIRH.

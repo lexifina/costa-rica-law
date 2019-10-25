@@ -1,0 +1,3 @@
+Artículo 44.- De la administración del SINIGIRH
+El Ministerio de Ambiente y Energía, a través de la Dirección de Aguas, será la entidad responsable del SINIGIRH, conforme lo establece la Política Hídrica Nacional y el Plan Nacional de la Gestión Integrada del Recurso Hídrico. Para tales efectos, dicha dependencia será la responsable de la operación, administración, mantenimiento, desarrollo y difusión de la información publicada en SINIGIRH.
+La Dirección de Aguas deberá establecer la guía metodológica o guía técnica requerida de la información hidrogeológica para publicarse en SINIGRH, respetando los parámetros establecidos por el SNIT.

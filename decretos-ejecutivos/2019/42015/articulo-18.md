@@ -1,0 +1,2 @@
+Artículo 18 -. Asesoramiento en materia de Acueductos y Alcantarillados
+En apego a sus competencias, el AyA, asesorará a los demás organismos del Estado y coordinará las actividades públicas y privadas en todos los asuntos relativos al establecimiento de acueductos y alcantarillados, así como el control de la contaminación de los recursos de agua para consumo humano, siendo obligatoria, en todo caso, su consulta, e inexcusable el cumplimiento de sus recomendaciones.

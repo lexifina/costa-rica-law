@@ -1,0 +1,2 @@
+Artículo 34.- Rendimiento Sostenible de Acuíferos
+El MINAE a través de la Dirección de Aguas y en coordinación con las instituciones competentes, establecerá la metodología para determinar el rendimiento sostenible de acuíferos, para lo cual deberá considerar los siguientes criterios: el agua recargada, el flujo subterráneo, el agua de extracción por medio de pozos, los retornos, la descarga de flujo base y manantiales.
