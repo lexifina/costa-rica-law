@@ -1,0 +1,1 @@
+Artículo 16.- Cuando los activos fijos deban salir temporalmente de las instalaciones de la Municipalidad de San Rafael de Heredia, para ser objeto de diagnóstico de su estado, reparación o mantenimiento, se tramitará a través de la Unidad que corresponda, mediante comunicación escrita o por correo.

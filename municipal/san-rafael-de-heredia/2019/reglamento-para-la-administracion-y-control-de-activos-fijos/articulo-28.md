@@ -1,0 +1,1 @@
+Artículo 28. -Funcionarios a quienes se les asigna su utilización. Tendrán un teléfono celular asignado por parte de la Municipalidad, únicamente a aquellos funcionarios que se justifique, que así lo determine y autorice la Alcaldía Municipal.

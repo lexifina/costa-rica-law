@@ -1,0 +1,1 @@
+Artículo 10. -Todas las dependencias de la Municipalidad de San Rafael de Heredia, deberán brindar las facilidades y apoyo a la Administración, durante la toma de los inventarios físicos y/o revisión de las listas de activos, selectivos o generales.

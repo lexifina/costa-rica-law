@@ -1,0 +1,4 @@
+Artículo 47-Procedimiento de devolución de activos. El procedimiento de devolución de activos se desarrollará de la siguiente forma:
+a. Cuando un funcionario (a) sea trasladado a otra oficina de la misma institución del cual el superior inmediato es otra persona, está en la obligación de entregar a su superior inmediato los activos que le fueron asignados y solicitar la anuencia de éste para trasladarlo a la nueva unidad. En este último punto se deberá llenar el documento de traslado de activos correspondiente.
+b. El funcionario que tenga asignado un teléfono celular es responsable de su custodia, conservación, uso correcto y racional, conforme lo dispone este Reglamento y lo establecido en la Ley General de la Administración Pública.
+c. Cumplir con las demás obligaciones que se contemplan en este reglamento.

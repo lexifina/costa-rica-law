@@ -1,0 +1,19 @@
+Artículo 3. -Definiciones generales. Cuando en el presente Reglamento se empleen los siguientes términos y definiciones, debe dárseles las acepciones que se señalan a continuación:
+Municipalidad de San Rafael de Heredia
+a) Usuario: Es aquel funcionario (a) de la Municipalidad de San Rafael de Heredia, a quien se le ha hecho entrega efectiva de un activo para su uso y custodia, en forma exclusiva para el cumplimiento de sus funciones.
+b) Formulario: Son todos los documentos diseñados para el registro y control de los activos, por ejemplo: asignación, traslado, préstamo interno, préstamo externo y reparación de equipo, entre otros.
+c) Activo: Es el importe total de los derechos y activos fijos propiedad de la Municipalidad de San Rafael de Heredia.
+1. Activo fijo: Bien que se adquiere para ser utilizado en las operaciones de la institución, en la realización de sus objetivos, los cuales no están destinados para su venta, como: terrenos, edificios, maquinaria, mobiliario, vehículos entre otros y se espera que sean utilizados durante más de un período contable.
+2. Activo fijo inmueble: Comprende los terrenos, edificios, puentes, todo lo que esté adherido a la tierra o unido a los edificios y construcciones de una manera fija y permanente y demás derechos reales que pesan sobre inmuebles.
+3. Activo fijo mueble: A efectos del presente reglamento se entenderá como aquellos activos destinados por la Municipalidad de San Rafael de Heredia, para su uso en la realización de sus objetivos institucionales, que cumplan las siguientes características:
+. Que el activo fijo no constituya parte permanente de los edificios y pueda ser traspasado sin alterar su integridad material.
+. Que el activo fijo posea una conformación material que permita su adecuada identificación, sea por medio de placa metálica, grabación, sello, cintas adhesivas o cualquier otro medio tecnológico que brinde seguridad al registro.
+4. Activo fijo de funcionamiento móvil: Son todos aquellos activos que, por sus características de funcionamiento y tamaño, fueron diseñados para tal efecto.
+Estos activos se asignan mediante la firma del formulario de compromiso para su uso y custodia denominado "Boleta de traslado de mobiliario y activos municipal".
+d) Vida útil: Es la estimación del tiempo que durará en servicio un activo fijo, esta valoración es necesaria para conocer el gasto por depreciación de acuerdo con las tablas de la Dirección General de Tributación Directa.
+e) Depreciación: Es el gasto no erogable, de una parte, del costo del activo fijo, dentro del período de su vida útil. Los activos fijos de la Institución serán depreciados por el método de Línea Recta y conforme a la Directriz del Ministerio de Hacienda.
+f) Valor de reposición: Se denomina valor de reposición de un activo fijo, al importe monetario que se debería pagar por su adquisición si en un momento dado se decidiera su compra. Este importe está siempre sujeto a la antigüedad del bien, a su estado de desgaste o conservación y a la ley de la oferta y la demanda.
+g) Adiciones o mejoras: Son las erogaciones monetarias que tienen el efecto directo de aumentar el valor de un activo existente, al incrementar su capacidad, su vida útil y su eficiencia, por lo tanto, las mismas deben cargarse al valor del activo.
+h) Reparación y mantenimiento: Gasto en que se incurre para la correcta operación y funcionamiento del activo, pueden ser modificaciones completas o parciales practicadas al activo por el deterioro normal.
+i) Donación: Es la transmisión de activos fijos sin compromiso de contraprestación por las partes.
+j) Baja de activo: Se entenderá por baja de activo, aquellos retirados de servicio y excluidos de los registros por encontrarse obsoletos de acuerdo con un criterio técnico, por daños irreparables o por otras circunstancias como el robo o extravío.

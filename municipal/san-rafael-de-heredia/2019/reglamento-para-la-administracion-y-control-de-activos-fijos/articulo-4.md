@@ -1,0 +1,7 @@
+CAPÍTULO III
+Administración de activos
+Artículo 4. -Todo funcionario (a) de la Municipalidad de San Rafael de Heredia, recibirá en buenas condiciones de funcionamiento los activos fijos necesarios para el cumplimiento de sus funciones, asumiendo la responsabilidad de darles el uso adecuado. Las modalidades para asignar activos fijos serán:
+Asignación Permanente:
+a. Asignación permanente de activos fijos de uso individual: se entregará a cada funcionario (a) para ser utilizados personalmente para el cumplimiento de sus funciones, mediante el uso del formulario denominado "Boleta de traslado de mobiliario y activos municipal", diseñado para estos efectos. Es obligación del Proceso de Recursos Humanos informar a la Dirección Administrativa Financiera, por medio de la Unidad de Proveeduría, sobre el ingreso de nuevos funcionarios(as), para proceder con la asignación de los activos correspondientes.
+b. Asignación permanente de activos fijos de uso común: serán asignados a los niveles de Alcaldía Municipal, directores, coordinadores, encargados de área o unidades administrativas, en la que vayan a ser utilizados, mediante el uso del formulario denominado "Boleta de traslado de mobiliario y activos municipal", diseñado para estos efectos.
+c. Asignación por tiempo definido: La asignación se hará por un período determinado establecido, a quien lo solicite, mediante el uso del formulario denominado "Boleta de traslado de mobiliario y activos municipal", diseñado para estos efectos.

@@ -1,0 +1,1 @@
+Artículo 14.-Todo traslado, préstamo interno, externo o retiro de un activo fijo mueble, deberá formalizarse a través del encargado o jefe de cada Unidad a su cargo, que deberá realizar los ajustes necesarios y emitir los formularios correspondientes para que sean firmados por los involucrados en los cambios.

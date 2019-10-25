@@ -1,0 +1,3 @@
+Artículo 11-Niveles de autorización de ajustes en el auxiliar y en libros contables:
+a. Ajustes inferiores al equivalente a uno punto cinco (1.5) veces del Salario base sobre el cual se definen las penas a aplicar por la comisión de diversas figuras delictivas contenidas en el Código Penal y demás normativa, deberán ser aprobados por la Jefatura de la Dirección Administrativa.
+b. Ajustes iguales o superiores al equivalente a uno punto cinco (1.5) veces del Salario base sobre el cual se definen las penas a aplicar por la comisión de diversas figuras delictivas contenidas en el Código Penal y demás normativa, deberán ser aprobados por la Alcaldía Municipal.

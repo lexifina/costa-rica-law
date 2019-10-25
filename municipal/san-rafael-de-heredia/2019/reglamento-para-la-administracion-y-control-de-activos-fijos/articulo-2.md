@@ -1,0 +1,1 @@
+Artículo 2. -Las disposiciones de este Reglamento son de acatamiento obligatorio para el funcionario (a) de la Municipalidad de San Rafael de Heredia, que se benefician del uso y servicio de los activos fijos propiedad de esta institución.
