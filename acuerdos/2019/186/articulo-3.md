@@ -1,0 +1,2 @@
+Artículo 3°—Quórum. El quórum de formación y el de votación para las sesiones será la mitad más uno del total de los miembros. El número de estos se verificará en el lugar designado para llevar a cabo la sesión al inicio de la misma. No se sesionará en forma ordinaria o extraordinaria si quince minutos después de la hora fijada no hay quórum.
+En todos aquellos casos en que se dé el empate en la votación de algún asunto entre los miembros de la Comisión, el Presidente tendrá, en razón de su condición, doble voto, para dirimir el conflicto existente.
