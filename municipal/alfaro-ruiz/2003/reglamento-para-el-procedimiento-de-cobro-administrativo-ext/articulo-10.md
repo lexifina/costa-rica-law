@@ -1,4 +1,0 @@
-SECCIÓN II
-Funciones de la unidad de cobro
-Artículo 10.—De la función de recaudación. La función de recaudación es el conjunto de actividades que realiza la Unidad de Cobro, destinadas a percibir efectivamente el pago de todas las obligaciones tributarias municipales de los contribuyentes. Las gestiones de cobro administrativo se harán después de dos trimestres de atraso. Para estos efectos la Unidad de Cobro realizará una notificación a los sujetos pasivos de las deudas en mora. Concluidas las gestiones administrativas en la recuperación de las cuentas morosas, la oficina de cobros entregará a los abogados, para el proceso de cobro judicial, la documentación necesaria para que inicien los trámites judiciales. Sin embargo no será requisito el haber tramitado un cobro administrativo para poder enviar las cuentas en mora a cobro judicial.
-(Así reformado y publicado en La Gaceta N° 119 del 20 de junio del 2008)
