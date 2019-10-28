@@ -1,4 +1,6 @@
+(Revocada)
 RE-0168-IT-2018
+(Esta norma fue revocada por la resolución RE-0107-IT-2019 del 28 de octubre de 2019)
 San José, a las 09:30 horas del 14 de diciembre de 2018
 CONOCE EL INTENDENTE DE TRANSPORTE SOBRE LA
 MODIFICACIÓN A LA RESOLUCIÓN RIT-002-2018 DE LAS 15:30

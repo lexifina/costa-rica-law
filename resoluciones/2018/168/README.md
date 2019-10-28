@@ -15,3 +15,4 @@ Reforma Requisitos que deben cumplir los permisionarios y concesionarios del ser
 | --- | --- | --- |
 | 1 | 2018-12-18 | la propia norma |
 | 2 | 2019-01-21 | Resolución 3 (2019-01-21) |
+| 3 | 2019-10-28 | Resolución 107 (2019-10-28) |
