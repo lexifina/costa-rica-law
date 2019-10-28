@@ -1,8 +1,4 @@
 CAPITULO XX
 Del escalafón, de los ascensos y traslados
-Artículo 93.—Cuando se produce una vacante o se crea una plaza y tratándose de la misma actividad o serie, ésta puede ser ocupada por el funcionario inmediato inferior, que haya evidenciado su eficiencia, con buenas calificaciones periódicas, así como por otros factores que comprueben su indiscutible idoneidad.
-Se establecen las siguientes excepciones:
-No podrá acordarse ningún ascenso para el servidor que no haya cumplido su período de prueba.
-b) Sólo podrá acordarse un nuevo ascenso para el mismo servidor después de transcurrido, a partir de la fecha del anterior ascenso, un plazo mínimo de seis meses, según lo estime la importancia del nuevo puesto y la idoneidad del candidato, ajuicio de la Gerencia o de la Junta Directiva para los casos de funcionarios nombrados por ésta. Queda a salvo el derecho del servidor para ser nombrado en un puesto de categoría superior, en cualquiera de los casos citados, mediante concurso por oposición.
-En el caso de nombramientos de puestos de dirección, según lo contempla el artículo 9 de este Reglamento.
-En el caso de los puestos que por un cambio sustancial y permanente deban ser reasignados en la misma serie y hasta un máximo de dos categorías; se aplicará la reasignación al funcionario, tomando en cuenta su experiencia laboral, su eficiencia y otros factores que evidencien su idoneidad. Siempre y cuando no contravenga con el requisito legal respectivo.
+Artículo 93.— Cuando se produce una vacante o se crea una plaza, ésta puede ser ocupada por el funcionario inmediato inferior, sea en la misma u otra serie, siempre y cuando haya evidenciado su eficiencia, con buenas calificaciones periódicas, así como por otros factores que comprueben su indiscutible idoneidad.
+(Así reformado en sesión N° 6092 del 28 de octubre de 2019)
