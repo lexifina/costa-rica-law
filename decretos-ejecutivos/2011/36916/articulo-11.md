@@ -1,1 +1,0 @@
-Artículo 11.- Sesiones de la Comisión Consultiva de la REDCUDI. La Comisión Consultiva de la REDCUDI sesionará ordinariamente al menos una vez cada tres meses, y extraordinariamente cuando se le convoque. La convocatoria la realizará el/la Ministro(a) de Bienestar Social y Familia.

@@ -1,1 +1,0 @@
-Artículo 3.- Objetivo General de la REDCUDI. Articular las diferentes actividades que se desarrollan en el país en materia de cuido y desarrollo infantil, tanto públicas como privadas, según lo indicado en el artículo anterior; para fortalecer las modalidades existentes y ampliar las alternativas de atención infantil integral.

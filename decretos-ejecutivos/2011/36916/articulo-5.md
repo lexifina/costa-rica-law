@@ -1,5 +1,0 @@
-Artículo 5.- Financiamiento de los programas de la REDCUDI. Para cumplir los objetivos, metas y planes de acción de la REDCUDI, se contará con recursos provenientes de las siguientes fuentes:
-a) El Fondo de Desarrollo Social y Asignaciones Familiares (FODESAF), asignará, al menos, los recursos dispuestos en la Directriz Nº 008-P del 16 de agosto de 2010;
-b) El Instituto Mixto de Ayuda Social y el Patronato Nacional de la Infancia, destinarán recursos para construcción, remodelación, ampliación, compra de edificaciones y terrenos, alquiler, equipamiento, apertura y operación de centros de cuido y desarrollo infantil, de manera tal que, como mínimo, cumplan las metas estipuladas en el Plan Nacional de Desarrollo 2011-2014;
-c) El Instituto Nacional de Aprendizaje (INA) financiará y ejecutará la capacitación técnico-laboral, elaborada en coordinación con la Secretaría Técnica de la REDCUDI, dirigida a las personas que se desempeñen como cuidadoras y promotoras de cuido y desarrollo infantil; y
-d) Otros recursos de fuentes nacionales e internacionales, que se le asignen mediante convenio, directriz presidencial, decreto o ley de la República.
