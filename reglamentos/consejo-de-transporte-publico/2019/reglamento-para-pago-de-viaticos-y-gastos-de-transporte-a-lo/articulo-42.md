@@ -1,0 +1,3 @@
+Artículo 42
+Regreso con posterioridad a lo estipulado. Cuando el funcionario viaje al exterior y no regrese al país inmediatamente después de finalizado el evento en el que participaba, por disfrutar de sus vacaciones o de un permiso especial, deberá presentar la liquidación respectiva cuando asuma nuevamente las funciones propias de su cargo y liquide según los términos del art. 19 de este reglamento.
+Las sumas que se reconozcan se determinarán tomando corno base el itinerario de viaje que el funcionario hubiese seguido bajo el supuesto de que hubiere regresado al país inmediatamente después de concluida la misión.

@@ -1,0 +1,3 @@
+Artículo 44
+Tipos de cambio de Adelantos y de Reintegros. La suma que se gire por concepto de adelanto, podrá ser en colones o dólares, según lo estime más conveniente la Administración. Para tales efectos se utilizará el tipo de cambio de referencia dado por el Banco Central de Costa Rica correspondiente a la fecha en que se gire dicho adelanto.
+En cuanto al reintegro que se derive de la liquidación deberá hacerse en la misma moneda en que se giró el adelanto. En caso de que el adelanto haya sido insuficiente y exista la debida justificación de la misma, el CTP, le reintegrará al funcionario, en colones o dólares, el exceso gastado conforme a las tarifas aprobadas, debiendo contarse con la aprobación formal por el Director Ejecutivo.

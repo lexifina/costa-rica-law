@@ -1,0 +1,5 @@
+Artículo 7
+Formularios: Los formularios para "Adelanto" y "Liquidación" de gastos de viaje, deberán de llevar los siguientes requisitos, sin perjuicio de las instrucciones que recomienda la Controlaría General de la República:
+Nombre del Funcionario solicitante, número de cédula y departamento o a la dirección a la que pertenece, fecha de solicitud, número consecutivo, objeto del viaje, lugar exacto del viaje, medio de transporte a utilizar, indicar las fechas en las que estará realizando la gira, incluir los montos aprobados por concepto de Desayuno, Almuerzo, Cena, Hospedaje y pasajes según corresponda, firma del jefe del Departamento y del Superior del jefe inmediato, firma de revisado por el Departamento Financiero.
+En lo referido a "Otros" gastos, se entenderán siempre que sean necesarios los siguientes: Combustible, lubricantes y otras erogaciones estrictamente necesarias y justificadas.
+La información consignada en la liquidación de gastos de viaje y de transporte tiene el carácter de declaración jurada, es decir, que ésta es una relación cierta de los gastos incurridos en la atención de asuntos oficiales.

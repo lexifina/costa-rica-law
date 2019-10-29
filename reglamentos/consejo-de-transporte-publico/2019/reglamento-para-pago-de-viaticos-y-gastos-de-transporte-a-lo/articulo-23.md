@@ -1,0 +1,2 @@
+Artículo 23
+Responsabilidad Administrativa. En caso de concurrir cualquiera de las circunstancias enunciadas en el Artículo 22 de este reglamento, éstas deberán ser comunicadas al Departamento de Recursos Humanos del CTP, por parte del superior inmediato, donde esta destacado el funcionario, en un plazo no mayor de cinco días hábiles, plazo que iniciará a partir del momento en que la administración conozca de las situaciones indicadas en el artículo anterior.

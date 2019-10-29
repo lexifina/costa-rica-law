@@ -1,0 +1,3 @@
+Artículo 40
+A los funcionarios discapacitados. Tendrán derecho al reconocimiento del 100% de la factura de hotel, cuando deban pagar tarifas mayores que el artículo 38 determina de acuerdo con las disposiciones correspondientes a hoteles y similares que cuenten con acceso y alojamiento que ellos requieran, en salvaguarda del principio de igualdad de oportunidades consagrado en la Ley N º 7600 del 2 de mayo de 1996.
+Para estos casos y para el reconocimiento de las diferencias económicas posibles, el funcionario tendrá que presentar la correspondiente factura del hotel, por habitación individual.

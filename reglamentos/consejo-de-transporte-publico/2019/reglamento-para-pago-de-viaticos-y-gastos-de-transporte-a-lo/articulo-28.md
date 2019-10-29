@@ -1,0 +1,2 @@
+Artículo 28
+Responsabilidad Jerárquica. El jefe, superior inmediato del funcionario, que reciba viático corrido será responsable de velar porque dicho funcionario cumpla con los requisitos y condiciones que en el presente reglamento se disponen para disfrutar· del referido pago. La omisión en ese sentido o la falta de comunicación oportuna al Departamento de Recursos Humanos y al Departamento Financiero, constituirá una falta grave para los efectos disciplinarios, tanto para el funcionamiento como para el superior de éste, que omitan informar del incumplimiento.

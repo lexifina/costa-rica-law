@@ -1,0 +1,2 @@
+Artículo 12
+Los Incumplimientos. El funcionario está obligado a realizar la respectiva liquidación de viáticos y gastos de transporte, dentro del plazo establecido según el artículo 10 del presente reglamento, teniendo en cuenta que de no realizarla dentro de dicho plazo, no podrá salir a un nuevo viaje, ni se girará adelanto alguno, hasta tanto no liquide de manera definitiva la liquidación pendiente; además si el funcionario incumple permanentemente se hará acreedor de las sanciones administrativas, civiles y/o penales que correspondan.

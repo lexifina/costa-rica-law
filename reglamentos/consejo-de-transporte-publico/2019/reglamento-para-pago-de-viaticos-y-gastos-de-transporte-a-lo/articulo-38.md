@@ -1,0 +1,3 @@
+Artículo 38
+Tarifas en el exterior del país. La suma diaria por concepto de viáticos en el exterior· para sufragar los gastos de hospedaje, alimentación y otros gastos menores se regirá según el "Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos" de la Contraloría General de la República, en sus artículos 34, 35, 36 y 37 respectivamente.
+El desglose de la tarifa según el Artículo 35 del "Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos" de la Contraloría General de la República, es el siguiente: hospedaje 60%, desayuno 8%, almuerzo 12%, cena 12% e imprevistos 8%.

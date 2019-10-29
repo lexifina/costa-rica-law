@@ -1,0 +1,2 @@
+Artículo 34
+Becarios o Estudiantes. Estos no podrán recibir monto alguno por concepto de viático; sin embargo, la Dirección Ejecutiva queda facultada para otorgar un subsidio, el cual, conjuntamente con la beca que reciba, no podrá excederse del 75% del monto de las tarifas que señala la Contraloría General de la República en el Reglamento de Gastos de Viaje y de Transporte para funcionarios, en su artículo 34.

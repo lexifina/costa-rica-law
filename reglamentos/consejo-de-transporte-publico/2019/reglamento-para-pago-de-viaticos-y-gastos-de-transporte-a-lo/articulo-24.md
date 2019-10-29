@@ -1,0 +1,3 @@
+Artículo 24
+Dependencia que autoriza el viático corrido. Al Departamento de Recursos Humanos deberá hacerse llegar la respectiva solicitud por parte del superior inmediato del funcionario que requerirá de ese viático, en la misma nota se justificará la solicitud, además indicará el lugar al que será trasladado el funcionario, con una estimación del tiempo necesario, los costos, con una anticipación mínima de cinco días hábiles.
+Una vez realizado el estudio, el Departamento de Recursos Humanos realizará el contrato respectivo para que la Dirección Ejecutiva del CTP o quien él designe, autorice o no la solicitud planteada.

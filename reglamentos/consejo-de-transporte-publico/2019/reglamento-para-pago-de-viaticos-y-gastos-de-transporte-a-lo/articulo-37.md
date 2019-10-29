@@ -1,0 +1,2 @@
+Artículo 37
+Tributos, cánones o impuestos de salida. Se reconocerán los tributos, cánones o tarifas que deben pagar en las terminales de transporte aéreas, marítimas o terrestres, así como cualesquiera otros requisitos migratorios esenciales, excluyendo gastos por pasaporte o visas, siempre que no se trate de un viaje con carácter oficial Estos gastos deberán ser debidamente justificados para ser reconocidos.

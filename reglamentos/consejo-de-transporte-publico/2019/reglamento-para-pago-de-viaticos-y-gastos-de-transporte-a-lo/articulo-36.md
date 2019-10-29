@@ -1,0 +1,2 @@
+Artículo 36
+Reconocimiento de gastos de Traslado. Se reconocerán, sin necesidad de incluirse en el acuerdo de viaje, los gastos de traslado de los funcionarios de la terminal de transporte de la ciudad destino del viaje hasta el hotel o sitio de hospedaje y viceversa, así como el transporte entre las ciudades que requieran según itinerario de la gira. Para lo anterior, deberán de emplearse los medios más económicos, en atención a las circunstancias propias de cada caso.
