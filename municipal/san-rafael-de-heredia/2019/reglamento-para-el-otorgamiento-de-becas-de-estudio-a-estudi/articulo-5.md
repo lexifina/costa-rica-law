@@ -1,0 +1,13 @@
+Artículo 5°—De la documentación necesaria para que una solicitud de beca sea admitida: Para que la solicitud de beca sea admitida, las personas interesadas, durante el período de recepción establecido en este Reglamento, deberán presentar ante el Concejo de Distrito la siguiente documentación:
+1. Formulario de pre-solicitud de beca debidamente lleno, utilizándose el mismo formulario para todo del cantón.
+2. Ser residente del cantón de San Rafael de Heredia. Presentar recibo de servicio público y definir claramente la dirección con el fin de posible visita para confirmar.
+3. Fotocopia de la cédula de identidad de los padres o encargado del menor y constancia del Registro Civil del menor solicitante.
+4. Constancia de salario del padre, madre o encargado. En caso de ingresos informales, propios o independientes deberán llenar el formulario de Declaración Jurada de Ingresos que está en el formulario de solicitud y adjuntar copia de la cédula del firmante.
+5. Para ser considerado beneficiario de una beca, todos los ingresos brutos familiares en conjunto, incluyendo salarios, pensiones y demás; no podrán exceder del monto correspondiente a un salario base vigente establecido por el artículo 2 de la Ley 7337.
+6. Constancia de matrícula extendida por la Dirección de Centro Educativo donde se indique que el estudiante solicitante a la fecha se encuentra matriculado, el nivel que cursa y si es beneficiario, o no, de alguna beca.
+7. Copia del último reporte de calificaciones del año anterior, extendido por el centro educativo según corresponda.
+8. Constancia de que el menor solicitante, recibe o no pensión, emitida por el Juzgado. En caso de pensión voluntaria deberá llenar la declaración jurada y adjuntar copia de la cédula del firmante.
+9. En caso de que algún miembro de la familia o el estudiante reciba pensión de la Caja Costarricense del Seguro Social u otra institución debe presentar constancia, ya que se realizará el estudio correspondiente.
+10. En caso, que el estudiante motive su solicitud de una beca en una enfermedad crónica o de discapacidad propia del miembro de su familia que vela por su por su custodia y tiene a su cargo su vivienda y manutención, deberá presentar el dictamen médico actualizado.
+11. Si alquila casa, presentar recibo de pago firmado por el propietario del inmueble. Si es prestada, el dueño deberá llenar el formulario de préstamo de vivienda y adjuntar copia de la cédula del firmante.
+En caso, que se requiera, el beneficio deberá someterse a un estudio socioeconómico o una verificación cuyo objetivo es analizar las condiciones socioeconómicas del núcleo familiar. Los procesos deberán ser elaborados por cada Consejo de distrito del cantón,
