@@ -1,3 +1,4 @@
 CAPÍTULO III
-Del registro
-Artículo 4º—Todo semillero, almácigo, vivero o banco de yemas destinado a la comercialización o distribución con fines de establecimiento de cultivo o de campos de experimentación, debe estar registrado ante el Programa de Viveros y cumplir con las medidas fitosanitarias específicas para cada actividad.
+DEL REGISTRO
+Artículo 4º—Sujetos que deben inscribirse en el registro del Programa Nacional de Material Vegetal Propagativo: Este reglamento establecerá control fitosanitario sobre: los laboratorios de reproducción sexual y asexual de vegetales, semilleros, almácigos, viveros, bancos de germoplasma, campos de producción de semillas u otros materiales de propagación. En caso de incumplimiento de no estar registrados ante el SFE, se actuará conforme a lo estipulado en la Ley de Protección Fitosanitaria N’ 7664, sus reglamentos y legislación conexa.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 42167 del 29 de octubre de 2019)

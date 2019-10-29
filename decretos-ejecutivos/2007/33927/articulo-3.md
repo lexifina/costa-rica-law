@@ -1,8 +1,9 @@
 CAPÍTULO II
 De la Organización Administrativa
-Artículo 3º—Créase el Programa de Viveros, Semilleros, Almácigos y Bancos de Yemas como sección del Departamento de Vigilancia y Control de Plagas con las siguientes funciones:
-a- Coordinar y supervisar la programación y desarrollo de actividades técnicas, legales y administrativas del Programa.
-b- Establecer las medidas técnicas, legales y mecanismos de control e inspección de semilleros, almácigos, viveros y bancos de yemas con el fin de obtener plantas de excelente condición tanto física como fitosanitaria.
-c- Establecer y actualizar sistemas de control para cumplir con los requisitos y medidas fitosanitarias dictadas por el Programa, en coordinación con otros Departamentos del SFE, del Sector Agropecuario y del sector privado.
-d- Establecer y mantener actualizado el registro de viveros, almácigos, semilleros y banco de yemas.
-e- Aprobar o desaprobar las solicitudes de registro con base en las regulaciones fitosanitarias establecidas para cada rubro, a saber: hortalizas, frutales, ornamentales y otros que el SFE considere normar.
+Artículo 3°—Créase el Programa Nacional de Material Vegetal Propagativo que establece las normas, los requisitos y procedimientos fitosanitarios para regular a los productores que producen y a su vez comercializan material vegetal propagativo, de acuerdo a lo estipulado en el artículo 22 de la Ley 7664, como parte de las funciones del Departamento de Operaciones Regionales del SFE, con las siguientes funciones:
+a) Dar los lineamientos y políticas en materia fitosanitaria relacionada con el manejo y trazabilidad del material vegetal propagativo a nivel nacional, desde la etapa de producción hasta su establecimiento en el campo.
+b) Establecer y dar seguimiento a los procedimientos técnicos y administrativos para el registro y control fitosanitario de los sitios que se dedican a la producción y comercialización de material vegetal propagativo.
+c) Coordinar y supervisar la programación y desarrollo de actividades técnicas, fitosanitarias, legales y administrativas del Programa, en coordinación con las Unidades Operativas Regionales, así como con otros Departamentos del SFE u otras instancias del Sector agropecuario.
+d) Establecer las medidas técnicas fitosanitarias, mecanismos de control, inspección y trazabilidad de sitios destinados a la producción y comercialización de material vegetal propagativo.
+e) En colaboración con las Unidades Operativas Regionales, mantener actualizado el registro de los establecimientos destinados a la producción y comercialización de material vegetal propagativo.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 42167 del 29 de octubre de 2019)

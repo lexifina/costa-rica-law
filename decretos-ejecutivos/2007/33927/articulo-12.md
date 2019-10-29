@@ -1,1 +1,2 @@
-Artículo 12.—El SFE complementará los procedimientos técnicos y administrativos por medio de medidas fitosanitarias para cada rubro o situación en particular, las que serán de observancia obligatoria para los propietarios y poseedores de viveros, semilleros, almácigos y banco de yemas.
+Artículo 12.—De las modificaciones al registro. Cualquier declaración hecha al registro puede modificarse a solicitud de parte, y aprobada o denegada vía resolución administrativa. Se puede transferir los derechos de registro por cesión.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 42167 del 29 de octubre de 2019)

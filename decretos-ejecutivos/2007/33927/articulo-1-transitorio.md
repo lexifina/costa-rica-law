@@ -1,0 +1,2 @@
+Transitorio único: Los propietarios u ocupantes por cualquier título de establecimientos de propagación y comercialización de material vegetal propagativo, contarán con un plazo de hasta seis meses, a partir de la publicación del presente decreto para su registro, de acuerdo con los lineamientos establecidos en los procedimientos administrativos y técnicos emitidos por el SFE, con base en este Decreto.
+(Así adicionado por el artículo 3° del decreto ejecutivo N° 42167 del 29 de octubre de 2019)

@@ -24,13 +24,27 @@ Certificado fitosanitario: certificado diseñado según los modelos de certifica
 Desvitalización: Procedimiento que elimina la capacidad de germinación, crecimiento o reproducción posterior de las plantas o productos vegetales.
 Disposiciones Técnicas: Todas las medidas que las autoridades fitosanitarias de la Dirección recomienden para obtener una buena calidad fitosanitaria del material vegetal producido.
 Frutales: Se ubican dentro de este concepto los árboles y arbustos que produzcan frutas, todos los cítricos y el aguacate.
+Germoplasma: Plantas destinadas para uso en programas de mejoramiento o conservación. (Organización de las Naciones Unidas para la Agricultura y la Alimentación, siglas en inglés FAO, 1990),
+(Así adicionada la definición anterior por el artículo 2° del decreto ejecutivo N° 42167 del 29 de octubre de 2019)
 Material de Reproducción: Son plantas o partes de ellas destinadas a la propagación.
+Medida Fitosanitaria: cualquier legislación reglamento o procedimiento oficial que tenga el propósito de prevenir la introducción y/o diseminación de plagas cuarentenarias o de limitar las repercusiones económicas de las plagas no cuarentenarias reglamentadas (Normativa Internacional para Medidas Fitosanitarias- NIMF N° 5).
+(Así adicionada la definición anterior por el artículo 2° del decreto ejecutivo N° 42167 del 29 de octubre de 2019)
 Patrón: Plantas que proporcionan el soporte del injerto.
-Plagas: Cualquier organismo vivo que compita u ocasione daños a las plantas o a sus productos y que pueden considerarse como tal, debido a su carácter económico, invasor o extensivo.
+Plaga: Cualquier especie, raza o biotipo vegetal o animal o agente patógeno dañino para las plantas o productos vegetales (FAO, 1990: revisado FAO, 1995; CIPF, 1997)
+(Así reformada la definición anterior por el artículo 1° del decreto ejecutivo N° 42167 del 29 de octubre de 2019)
 Planta Madre: Planta utilizada como productor de semilla o partes vegetales destinadas a la reproducción.
+Plantas: Plantas vivas y partes de ellas, incluidas las semillas y el germoplasma
+(Así adicionada la definición anterior por el artículo 2° del decreto ejecutivo N° 42167 del 29 de octubre de 2019)
+Plantas para plantar: plantas destinadas a permanecer plantadas, a ser plantadas o replantadas (Normativa Internacional para Medidas Fitosanitarias-NIMF N° 5).
+(Así adicionada la definición anterior por el artículo 2° del decreto ejecutivo N° 42167 del 29 de octubre de 2019)
 Productor Comercial: Se refiere a toda persona física o jurídica que se dedique a la producción o comercialización de material vegetal.
+Programa Nacional de Material Vegetal Propagativo: órgano competente en materia de administración del registro y responsable de llevar a cabo el procedimiento administrativo del mismo.
+(Así adicionada la definición anterior por el artículo 2° del decreto ejecutivo N° 42167 del 29 de octubre de 2019)
+Semillas: Clase de producto básico correspondiente a las semillas para plantar o destinadas a ser plantadas y no al consumo o elaboración (véase grano) (Organización de las Naciones Unidas para la Agricultura y la Alimentación, siglas en inglés FAO, 1990), revisado por el Comité Internacional de Medidas Fitosanitarias- CIMF, 2001.
+(Así adicionada la definición anterior por el artículo 2° del decreto ejecutivo N° 42167 del 29 de octubre de 2019)
 Variedades: Todo material vegetal que se utiliza para su propagación, debidamente seleccionado por sus características genéticas permanentes.
 Vivero: Sitio donde se ubican las plantas procedentes de almácigos o germinadores para ser injertados o recreados.
+Vigilancia: Un proceso oficial, mediante el cual se recoge y registra información sobre la presencia o ausencia de una plaga utilizando encuestas, monitoreo u otros procedimientos (Normativa Internacional para Medidas Fitosanitarias-NIMF N° 5).
+(Así adicionada la definición anterior por el artículo 2° del decreto ejecutivo N° 42167 del 29 de octubre de 2019)
 Semillero: Área determinada donde se localiza material vegetal en germinación.
-Yemas: Brote de una planta a partir del cual se desarrollan las ramas,
-las hojas y las flores.
+Yemas: Brote de una planta a partir del cual se desarrollan las ramas, las hojas y las flores.
