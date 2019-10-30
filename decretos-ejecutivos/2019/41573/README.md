@@ -14,3 +14,4 @@ Reforma Decreto Ejecutivo N° 41431 "Suspensión de la ejecución del Reglamento
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-02-27 | la propia norma |
+| 2 | 2019-10-30 | Decreto Ejecutivo 42033 (2019-10-30) |
