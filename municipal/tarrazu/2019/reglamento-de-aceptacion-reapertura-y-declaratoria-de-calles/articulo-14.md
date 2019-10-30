@@ -1,0 +1,1 @@
+Artículo 14.—Cuando el acuerdo se refiera a expropiaciones deberá el Concejo Municipal declarar de utilidad pública el terreno a expropiar, ordenar la publicación en el Diario Oficial La Gaceta, su inscripción provisional en el Registro Nacional y de inmediato delegar en el (la) alcalde (sa) la tramitación del procedimiento de expropiación.

@@ -1,0 +1,1 @@
+Artículo 12.—Una vez cumplido con lo establecido en el artículo anterior, el Concejo Municipal tomará un acuerdo, tomando en consideración para ello el cumplimiento de los requisitos previos establecidos, los estudios técnicos y socioeconómicos para fundamentar el procedimiento respectivo y demostrar que la aceptación de la vía pública es de entera utilidad pública municipal.

@@ -1,0 +1,1 @@
+Artículo 8º—De los requisitos documentales. A los efectos de la tramitación el Departamento de Gestión Vial Municipal deberá tener en un lugar visible el listado de los requisitos descritos en los artículos anteriores a presentar por el Administrado(s).
