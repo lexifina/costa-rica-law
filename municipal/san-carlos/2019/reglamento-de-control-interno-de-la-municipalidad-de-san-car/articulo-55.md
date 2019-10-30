@@ -1,0 +1,2 @@
+ARTÍCULO 55 TECNOLOGÍAS DE INFORMACIÓN
+El Departamento de Tecnologías de Información y Comunicaciones, deberá presentar en el mes de junio de cada año, el plan anual de trabajo tendiente a fortalecer las Tecnologías de Información en la Institución, el cual tomará como base la información remitida por los respectivos titulares sobre las necesidades de TIC. Este plan será aprobado por el Comité Gerencial de Tecnologías de Información y Comunicaciones y remitido para conocimiento de la Alcaldía Municipal y su respectiva inclusión en el Plan Anual Operativo de la Institución.

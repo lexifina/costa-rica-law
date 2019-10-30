@@ -1,0 +1,2 @@
+ARTÍCULO 14 COMITÉ GERENCIAL DE TECNOLOGÍAS DE INFORMACIÓN Y COMUNICACIONES
+Se crea el Comité Gerencial de Tecnologías de Información y Comunicaciones, el cual será coordinado por el titular de Tecnologías de Información y Comunicaciones y el cual tendrá las funciones indicadas en el Artículo 57 del presente reglamento.

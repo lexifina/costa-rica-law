@@ -1,0 +1,4 @@
+ARTÍCULO 31 RELACIÓN DEL SEVRI CON EL PROCESO DE PLANIFICACIÓN
+El SEVRI estará sustentado en el proceso de planificación municipal, considerando la misión y la visión institucionales, así como objetivos, metas, políticas e indicadores de desempeño.
+Los resultados de la valoración del riesgo deben ser insumos para retroalimentar ese proceso de planificación, aportando elementos para que el jerarca y los titulares subordinados estén en capacidad de revisar, evaluar y ajustar periódicamente los enunciados y supuestos que sustentan los procesos de planificación estratégica y operativa institucional, para determinar su validez ante la dinámica del entorno y de los riesgos internos y externos.
+En el presupuesto de cada año deberán asignarse de forma prioritaria los recursos para poder aplicar las medidas de mitigación incluidas en el plan de mejora anual.

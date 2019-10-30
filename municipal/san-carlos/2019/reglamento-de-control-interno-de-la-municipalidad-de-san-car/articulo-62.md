@@ -1,0 +1,3 @@
+ARTÍCULO 62 ACCIONES PARA EL FORTALECIMIENTO DEL SCI
+Cuando el funcionario detecte alguna deficiencia o desviación en la gestión o en el control interno, o sea informado de ella, debe emprender oportunamente las acciones preventivas o correctivas pertinentes para fortalecer el SCI. Así también, debe verificar de manera sistemática los avances y logros en la implementación de las acciones adoptadas como
+producto del seguimiento del SCI.

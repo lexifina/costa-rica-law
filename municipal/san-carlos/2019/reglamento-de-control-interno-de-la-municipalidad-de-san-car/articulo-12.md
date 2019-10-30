@@ -1,0 +1,2 @@
+ARTÍCULO 12 COMITÉ DE RIESGO Y CONTROL
+El Comité de Riesgo y Control estará compuesto por un Regidor, el Alcalde o a quién él designe en su representación y los siguientes titulares con funciones estratégicas: Planificación, Hacienda, Tecnología, Recursos Humanos, Servicios Públicos, Unidad Técnica de Gestión Vial Municipal y Relaciones Públicas. El Comité de Riesgo y Control, se deberá reunir al menos con una periodicidad de (2) veces al año.

@@ -1,0 +1,2 @@
+ARTÍCULO 23 EL CLIMA ORGANIZACIONAL
+El Departamento de Recursos Humanos, deberá realizar un monitoreo constante del Clima y Cultura Organizacional, para lo cual deberá realizar estudios anuales de estos factores, en coordinación con el Departamento de Control Interno, y dentro de las autoevaluaciones de Control Interno; las evaluaciones anuales y presentar los planes de mejora de dichas evaluaciones.

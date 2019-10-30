@@ -1,0 +1,3 @@
+ARTÍCULO 25 ESTRUCTURA ORGANIZATIVA
+Bajo la responsabilidad del Departamento de Recursos Humanos y en coordinación con las unidades de Planificación, Hacienda, Legal, Dirección General y Control Interno; deberán realizarse revisiones de la estructura Organizacional de la Municipalidad al menos cada 2 años, procurando una eficiente administración por procesos y garantizando que la estructura está alineada con la estrategia de la institución.
+Será responsabilidad de los titulares el buen funcionamiento y la integridad de la estructura organizacional y funcional de sus dependencias, así como el realizar las recomendaciones de mejora y ajuste de esta conforme a la estrategia institucional.

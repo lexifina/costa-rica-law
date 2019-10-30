@@ -1,0 +1,3 @@
+ARTÍCULO 56 COMITÉ GERENCIAL DE TECNOLOGÍAS DE INFORMACIÓN Y COMUNICACIONES
+El Comité Gerencial de Tecnologías de Información y Comunicaciones será coordinado por el titular de Tecnologías de Información y Comunicaciones y estará integrado por los titulares de las unidades de Planificación, Hacienda, Control Interno, Contabilidad, Dirección General, Recursos Humanos, Archivo Central y contará con la participación de un regidor.
+El Comité tendrá la función de coadyuvar a mantener la concordancia con la estrategia institucional, el establecimiento de las prioridades de los proyectos de TI, a lograr un equilibrio en la asignación de recursos y a la adecuada atención de los requerimientos de todas las unidades de la organización.
