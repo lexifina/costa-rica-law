@@ -3672,40 +3672,114 @@ Además se le indicará el nombre y número de identificación del funcionario r
 2) En caso de corresponder revisión documental y reconocimiento físico de las mercancías deberá entregar al funcionario aduanero responsable un ejemplar del manifiesto de entrega rápida y los originales de los conocimientos de embarque y de las facturas comerciales así como de cualquier otro documento que considere conveniente aportar.
 B. Actuaciones de la Aduana.
 1) La aplicación informática recibido el mensaje del DUA simplificado realizará la validación correspondiente y de estar todo conforme y habiéndose efectuado el pago de la obligación tributaria, aceptará el DUA y comunicará en forma inmediata el número y el tipo de revisión correspondiente.
-(*)XI. Del Despacho de Envíos de Socorro
-En este tipo de despacho por su naturaleza se aplicará en lo procedente el Procedimiento de Importación Definitiva y Temporal con las particularidades que se establecen a continuación.
+(*)XI. Procedimiento para el Despacho de Envíos de Socorro1
+1 Adicionado mediante resolución N° RES-DGA-400-2019 del 30 de Octubre de 2019.
+(*) (Mediante resolución resolución DGA-047 del 13 de febrero de 2009, se había adicionado el procedimiento para el Despacho de Envíos de Socorro. Posteriormente por resolución N° RES-DGA-400-2019 del 30 de octubre del 2019, se ordenó derogar la resolución DGA-047 del 13 de febrero de 2009, que adicionó el procedimiento antes indicado. El Procedimiento para el Despacho de Envíos de Socorro, que se muestra fue adicionado por resolución N° RES-DGA-400-2019 del 30 de octubre del 2019)
+Este procedimiento se aplicará para la recepción, envío y tránsito de envíos de socorro en situaciones de emergencia o desastre acontecidas dentro o fuera de Costa Rica.
+Abreviaturas
+CNE: Comisión Nacional de Prevención de Riesgos y Atención de Emergencias
+CAT's: Comités Asesores Técnicos
+COE: Centro de Operaciones de Emergencia
+CATAI: Comité Asesor Técnico de Asistencia Internacional
+DGA: Dirección General de Aduanas
+DUT: Declaración Única de Tránsito
+Definiciones
+CATAI: Es el Comité Asesor Técnico encargado de gestionar la asistencia humanitaria y técnica internacional en situaciones de emergencia o desastre, ya sea Costa Rica como país asistido, asistente o país de tránsito internacional. En este sentido, la Ley No. 8488 titulada: “Ley Nacional de Emergencias y Prevención del Riesgo” señala que este equipo técnico asesora a la Comisión, al COE y a las demás instancias de coordinación del Sistema Nacional de Gestión del Riesgo, en su tema de competencia.
+El CATAI es Coordinado por un funcionario de la CNE, lo anterior de conformidad con el Artículo No. 14 del Reglamento de Organización y Funcionamiento de los Comités Asesores Técnicos CAT's. Para la activación de los Procedimientos para el Despacho de Envíos de Socorro, el Coordinador del CATAI remitirá al Director General de Aduanas un oficio con la documentación que se señala en el presente procedimiento para el ingreso, salida o tránsito de los envíos de socorro del país.
+Representantes DGA: La DGA cuenta con un Representante Titular y un Suplente en el CATAI, ambos pertenecientes al Departamento de Procesos Aduaneros y designados y así comunicados a las Aduanas, y oficialmente a la CNE según lo dispuesto en el artículo No. 12 del Reglamento de Organización y Funcionamiento de los CAT's, Decreto Ejecutivo Nº 39650-MP.
+Llamamiento de Asistencia Internacional: Documento Oficial expedido por el Gobierno de la República a través del Ministerio de Relaciones Exteriores y Culto, donde se detalla el nombre del evento, fecha y descripción de los hechos, los daños causados y la lista de necesidades del país derivado de una situación de emergencia o desastre.
+Capítulo I.- Base Legal
+1º) Ley Nº 7557, publicada en la gaceta Nº 212 del 8 de noviembre de 1995, “Ley General de Aduanas” y sus reformas.
+2º) Ley Nº 8360, publicada en la gaceta Nº 130 del 08 de julio de 2003, “Código Aduanero Uniforme Centroamericano”.
+3º) Ley Nº 8488, publicada en la gaceta Nº 08 del 11 de enero de 2006, “Ley Nacional de Emergencias y Prevención del Riesgo”.
+4º) Decreto Ejecutivo Nº 25270-H, publicado en el alcance Nº 37 de La Gaceta Nº 123 del 28 de junio de 1996, “Reglamento a la Ley General de Aduanas” y sus reformas.
+5º) Decreto Ejecutivo Nº 31536, publicado en la Gaceta Nº 243 del 17 de diciembre de 2003, “Reglamento del Código Aduanero Uniforme Centroamericano”.
+6º) Decreto Ejecutivo Nº 34361-MP, publicada en La Gaceta Nº 52 del 13 de marzo de 2008, “Reglamento a la Ley Nacional de Prevención de Riesgos y Atención de Emergencias”.
+7º) Decreto Ejecutivo Nº 39650-MP, publicado en el Alcance 135 a la Gaceta No. 148 del 03 de Agosto de 2016, “Reglamento de Organización y Funcionamiento de los Comités Asesores Técnicos (CAT's)”.
+8º) Decreto Ejecutivo No. 41911-H-COMEX del 21 de mayo de 2019 (Resolución No. 386-2017 (COMIECO-EX), publicado en el Alcance No. 217 al Diario Oficial La Gaceta No. 189 del 07 de Octubre de 2019, “Procedimiento Centroamericano para la Facilitación del Tránsito Terrestre de Envíos de Socorro”.
+Capítulo II.- Procedimiento Común
+Para el envío, tránsito o recepción de envíos de socorro por vía terrestre, marítima o aérea, se seguirá el siguiente procedimiento.
 I. Políticas Generales
-1) Se consideran envíos de socorro, vehículos y otros medios de transporte que posean características especiales según la emergencia de que se trate; alimentos, medicinas, ropa, frazadas, carpas, casas prefabricadas, artículos para purificar y para almacenar agua, u otras mercancías de primera necesidad para ayudar a personas afectadas en la emergencia. También podrán ingresar como envíos de socorro equipos, vehículos y otros medios de transporte, animales especialmente adiestrados, provisiones, suministros, efectos personales y otras mercancías para el personal dedicado a la atención de la emergencia durante el tiempo que dure la misión.
-2) La Comisión Nacional de Prevención de Riesgos y Atención de Emergencias (C.N.E.), deberá remitir a la Dirección General de Aduana, copia de la cédula jurídica a efectos de registrarla como importador en el sistema informático. La documentación que ampara los envíos de socorro, remitidos a la Comisión deben indicar expresamente a dicha institución como la consignataria de los mismos o ser endosados a ésta.
-3) Previo al ingreso de cada uno de los envíos de socorro, la C.N .E. deberá comunicar formalmente a la DGA o a la aduana de control, los datos de identificación de las personas responsables del ingreso, un detalle general de las mercancías, la fecha prevista de llegada, matrícula del vehículo, número de contenedor y de los precintos aduaneros que se utilizarán durante el transporte.
-4) Los transportistas aduaneros responsables de ingresar mercancías consistentes en envíos de socorro, podrán declarar en el manifiesto de ingreso en una sola línea la totalidad de los bultos y la descripción “envíos de socorro”, sin que sea necesario la transmisión para el caso de ingreso terrestre.
-5) Los envíos de socorro, se inspeccionarán y despacharán desde la zona primaria de la aduana, puertos o aeropuertos.
-6) La C.N .E. o la persona responsable del transporte de los envíos de socorro, deberá presentar una lista remitida por el Estado o institución responsable de la donación, la cual deberá especificar la cantidad y descripción de los bienes donados, además del número de matrícula del medio de transporte y de la UT cuando corresponda.
-7) Cuando los envíos de socorro correspondan a medicamentos o alimentos, la C.N .E. deberá coordinar con la entidad de Gobierno responsable (Ministerio de Salud), la emisión del documento físico que autoriza el ingreso, previo a la presentación de las mercancías a la aduana de ingreso.
-8) Corresponderá a la aduana de control conservar copia de todos los documentos que sirvieron de soporte para la autorización del ingreso de los envíos de socorro.
-9) Tratándose del envío de donaciones desde nuestro país, no será obligatorio la presentación de DUA de exportación ni del manifiesto de salida por parte del remitente. No obstante, cuando se trate de mercancías que por su naturaleza deben cumplir requisitos no arancelarios, deberá gestionarlos ante la entidad gubernamental responsable.
-10) Para la salida de envíos de socorro fuera del territorio nacional, el remitente deberá presentar ante la aduana de salida un listado en la cual especifique la cantidad y descripción de los bienes donados, además del número de matrícula del medio de transporte y de la UT cuando corresponda. Para el caso de las mercancías donadas a un país centroamericano deberán acompañarse de la respectiva DTI.
-II. Presentación de los Envíos
-A. Actuaciones de la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias.
-1) Para cada uno de los envíos, presenta por escrito ante la aduana de ingreso, un listado en donde se consigna la totalidad de las mercancías declaradas como envíos de socorro.
-2) Para las mercancías consistentes en alimentos o medicamentos, adjunta la autorización emitida por la autoridad competente.
-3) Comunica por escrito a la Aduana de Control, el recibo conforme de los envíos de socorro en el lugar de destino, a efectos de que la aduana cierre el expediente.
-B. Actuaciones del Responsable de Ingreso, del Transportista Aduanero o del Depositario.
-1) La persona responsable del medio de transporte que ingresa las mercancías, presenta a la Aduana , el listado de los envíos de socorro.
-2) Si el ingreso de los envíos de socorro lo realiza un transportista aduanero autorizado, podrá consignar la totalidad de los bultos en un solo conocimiento de embarque.
-3) Si los envíos de socorro por ingresar consolidados con otras mercancías, son movilizados a las instalaciones de un depositario aduanero, éste deberá registrarlos en el inventario utilizando el código 30.
-4) Finalizado el proceso de ingreso y con el acta de envío de socorro autorizada por el funcionario aduanero, el depositario aduanero registra en la aplicación informática la salida utilizando el código 06 denominado “Acta de Envíos de Socorro” indicando el número y la fecha de la misma.
-5) El depositario aduanero conservará una copia del acta emitida para autorizar el ingreso de los envíos de socorro.
-C. Actuaciones de la Aduana
-1) Recibe el listado y se traslada al lugar donde se localizan las mercancías para realizar la inspección del medio de transporte y de las UTs; haciéndose acompañar de las demás autoridades competentes.
-2) Presencia la descarga de las mercancías para el caso de ingreso marítimo o aéreo y para el caso de ingreso terrestre, podrá solicitarlo, según lo considere necesario.
-3) De determinar el ingreso de envíos de socorro consistentes en alimentos o medicamentos, solicitará que se presente las autorizaciones de la entidad de gobierno responsable.
-4) Aplica en lo que sea procedente, el reconocimiento físico y documental de las mercancías, verificando las calidades del solicitante, el consignatario, cantidad, descripción y naturaleza de las mercancías, entre otra información.
-5) Con la solicitud de ingreso y el listado de mercancías, el funcionario aduanero levantará y firmará un acta para autorizar el ingreso de los envíos de socorro. Dicha acta deberá consignar los documentos que respaldan el ingreso de tales envíos.
-6) Cuando los envíos de socorro no hayan sido movilizados al depósito aduanero y se encuentren manifestados, el funcionario aduanero responsable digita en bodegas de aduana el inventario, utilizando el código 30, procediendo el TICA a descargar el conocimiento de embarque del manifiesto de ingreso.
-7) Finalizado el proceso de ingreso, el funcionario aduanero registra en la aplicación informática la salida utilizando el código 06 denominado “Acta de Envíos de Socorro” indicando el número y la fecha de la misma.
-8) El funcionario aduanero confeccionará un expediente con copia fotostática del listado de las mercancías, de todos los documentos que respaldaron el ingreso de mercancías consistentes en envíos de socorro y del original del acta firmada.
-(*)(Así adicionado mediante resolución DGA-047 del 13 de febrero de 2009)
+1º) Se consideran envíos de socorro, entre otros, los siguientes: vehículos y otros medios de transporte, alimentos, medicinas, ropa, frazadas, carpas, tiendas tipo dormitorio o de abastecimiento, hospitales de campaña, casas prefabricadas, artículos para purificar y para almacenar agua u otras mercancías de primera necesidad requeridas como asistencia para las personas afectadas por un desastre.
+Asimismo, maquinaria, equipos especiales, móviles o no, para uso médico, construcción, abastecimiento, rescate, comunicación y transporte completos o en partes, animales especialmente adiestrados, provisiones, suministros, efectos personales y otras mercancías para el personal de socorro que les permita cumplir con sus funciones y ser autosuficientes en zonas de desastre durante el tiempo que dure la misión, como por ejemplo los Grupos Especializados Nacionales del tipo USAR (Urban Search and Rescue - Equipos de Búsqueda y Rescate Urbano), EMT (Emergency Medical Technician - Equipos Médicos de Emergencia), entre otros.
+2º) Previo al ingreso, salida o tránsito de envíos de socorro por el país, la CNE, por intermedio de la Coordinación del CATAI, remitirá vía correo electrónico la siguiente documentación al Director General de Aduanas y a los representantes DGA:
+A. Decreto de Emergencia Nacional o documento expedido por la CNE donde señala la necesidad de que ingresen envíos de socorro al país para la atención de emergencias locales y menores de acuerdo al artículo 15 de la Ley Nacional de Emergencias y Prevención del Riesgo No. 8488.
+B. Llamamiento de Asistencia Internacional cuando hubiese.
+C. Un oficio mediante el que se comunique formalmente el detalle de los envíos de socorro (cantidad, descripción, embalaje), fecha, hora y punto de ingreso o salida de la mercancía, matrícula del vehículo, y cuando corresponda el número de contenedor.
+D. En el caso de vehículos, maquinaria, medios de transporte o equipos especiales que se destinen para la atención de la situación de emergencia en la zona de desastre, se debe informar el número de identificación (VIN, chasis, motor, matricula), marca, estilo o modelo, año, color, y cualquier otro dato que se considere necesario o importante señalar.
+E. Documento que indique el nombre, la identificación y el país de procedencia del personal encargado de atender la situación de emergencia.
+F. Documento de transporte (número de conocimiento de embarque, guía aérea, o carta de porte) mediante el que se trasladen los envíos de socorro.
+G. Según el tipo de mercancía (medicamentos, alimentos, animales, entre otros), el documento físico o permiso emitido por la autoridad competente del país mediante el que se autoriza el ingreso o salida de las mercancías consistentes en envíos de socorro.
+3º) La documentación que ampara los envíos de socorro debe indicar expresamente a la CNE como la consignataria de los mismos o ser endosados a ésta.
+4º) Los envíos de socorro se inspeccionarán y despacharán desde la zona primaria de la aduana y no podrán despacharse hasta que se cuente con la autorización de oficio de la Aduana de control correspondiente.
+5º) Según lo determine la autoridad competente, los alimentos, vacunas, medicamentos, órganos, ropa, sangre, plasma, y otros envíos de socorro de primera necesidad, podrán permanecer de manera definitiva dentro o fuera del país.
+6º) Los envíos de socorro que ingresen, salgan o transiten por Costa Rica en unidades de transporte deberán declararse en una DUCA, así mismo, de conformidad al Procedimiento Centroamericano para la Facilitación del Tránsito Terrestre de Envíos de Socorro, Decreto No. 41911-H-COMEX del 21 de mayo de 2019 (Resolución No. 386-2017 (COMIECO-EX), publicado en el Alcance No. 217 al Diario Oficial La Gaceta No. 189 del 07 de Octubre de 2019, corresponde implementar los procedimientos que permitan la ejecución de lo señalado en el supra mencionado Decreto.
+7º) La Aduana por donde ingrese, salga o transiten los envíos de socorro, deberá brindar toda la asistencia necesaria a efecto de que se les brinde prioridad de paso a todos los vehículos y unidades de transporte, y así facilitar y agilizar el tránsito expedito.
+8º) Los transportistas aduaneros responsables del ingreso de mercancías consistentes en envíos de socorro, podrán declarar en el manifiesto de carga en una sola línea la totalidad de los bultos y la descripción “envíos de socorro”, sin que sea necesario la transmisión para el caso de ingreso terrestre.
+9º) Los vehículos que ingresen al país sin una DUCA y que trasladen mercancías consistentes en envíos de socorro o personal de socorro, requieren un certificado de importación temporal de vehículos y contar con el seguro obligatorio vigente.
+10º) Tratándose del envío de mercancías para la atención de desastres o emergencias en otro país, no será obligatorio la presentación de la declaración de exportación por parte del remitente. No obstante, cuando se trate de mercancías que por su naturaleza requieran algún permiso o autorización, se deberá gestionar ante la entidad gubernamental correspondiente.
+11º) El Coordinador del CATAI remitirá al Director de Aduanas y a los representantes DGA una lista en la que se indiquen los envíos de socorro que deban retornar al país de procedencia. En casos excepcionales donde alguna mercancía ingresada deba permanecer de manera definitiva en el país, la institución interesada se encargará de las gestiones necesarias para la importación definitiva en coordinación de la CNE.
+12º) En el caso de envíos de socorro enviados fuera del país para la atención de una situación emergencia y que deban retornar al territorio nacional, el Representante Titular o Suplente de la DGA ante el CATAI, activará los procedimientos para el reingreso de las mercancías al territorio nacional en Coordinación con la CNE.
+13º) Cuando la Aduana por donde ingrese, salga o transiten los envío de socorro determine inconsistencias en la documentación o existan dudas sobre las mercancías declaradas, valorará en lo que proceda para facilitar su ingreso o salida. Posteriormente la DGA lo informará a la coordinación del CATAI para la aclaración correspondiente.
+14º) En caso de que se determinen fuera de la zona primaria envíos de socorro sin la autorización de ingreso de la Aduana de control, los mismos se pondrán en custodia aduanera y se enviaran a un depositario aduanero. Posteriormente la Aduana informará la situación a la DGA a efecto de que se comunique a la Coordinación del CATAI y se emprendan las acciones que en derecho correspondan.
+15º) Para aquellas situaciones de emergencia que ameriten designar personal aduanero de forma permanente en la ubicación de ingreso, salida o tránsito de los envíos de socorro, la DGA coordinará con la Gerencia de la Aduana la designación y labores a realizar por parte de dicho personal.
+16º) En situaciones de emergencia que se requiera habilitar alguna ubicación como zona primaria para la recepción o salida de envíos de socorro, la CNE por medio del CATAI, deberá comunicarlo de manera previa a la DGA para que se habilite por parte de la Aduana dicha ubicación.
+17º) La Gerencia de la Aduana deberá designar el personal necesario que permita atender de manera eficiente todas las labores requeridas durante el ingreso, salida o tránsito de los envíos de socorro.
+En caso de considerarse necesario ampliará el horario de trabajo a efectos de garantizar el rápido despacho de los envíos de socorro.
+18º) El funcionario de la Aduana de Control aduanero designado confeccionará un expediente con todos los documentos que respaldaron la recepción, tránsito o envío de las mercancías consistentes en envíos de socorro.
+II.- Recepción de Envíos de Socorro
+Este apartado describe el procedimiento de ingreso o recepción de envíos de socorro para la atención de emergencias o desastres que ocurran en el país.
+A.- Actuaciones de la Coordinación del CATAI
+1º) Notifica de manera oficial al Director General de Aduanas y a los representantes DGA el ingreso de los envíos de socorro, y verifica los requisitos y el procedimiento correspondiente para la recepción de las mercancías en el país.
+2º) Remite al Director General de Aduanas y a los representantes DGA la documentación que se describe en la política general número 2 º) de la Sección Políticas Generales.
+3º) Comunica al Director General de Aduanas y a los representantes DGA el recibo conforme de los envíos de socorro en el lugar que se presentó la situación de emergencia, lo anterior previa confirmación y coordinación con los encargados del operativo de entrega de las mercancías.
+4º) Envía al Director de Aduanas y a los representantes DGA la documentación de los envíos de socorro que deben regresar al país de procedencia, lo anterior para que se remita a la Aduana de salida y se efectúen las actuaciones que se citan en el apartado D.- Actuaciones de la Aduana, lo anterior previa confirmación y coordinación con los encargados del operativo de entrega de las mercancías.
+B.- Actuaciones del Transportista Aduanero
+1º) La persona responsable del medio de transporte que ingresa al país las mercancías presenta a la Aduana el listado de los envíos de socorro.
+2º) Si el ingreso de los envíos de socorro lo realiza un transportista aduanero autorizado, podrá consignar la totalidad de los bultos en un solo conocimiento de embarque con la descripción “envíos de socorro”.
+3º) Deberá conservar una copia del acta de autorización de ingreso de los envíos de socorro emitida por la Aduana de control correspondiente.
+C.- Actuaciones del Representante DGA ante el CATAI
+1º) Informa a la Coordinación del CATAI el procedimiento y demás requisitos para el ingreso de los envíos de socorro al país.
+2º) Recibe vía correo electrónico de la Coordinación del CATAI la documentación establecida en la política general 2 º) del Apartado Políticas Generales.
+3º) Remite la documentación a la Gerencia de la Aduana de ingreso para que se efectúe lo descrito en el apartado D.- Actuaciones de la Aduana. En caso de ausencia de algún documento lo solicita a la Coordinación del CATAI.
+4º) Envía a la Gerencia de Aduana de salida la documentación de aquellos envíos de socorro que deban regresar al país de procedencia, lo anterior para que se ejecuten las labores que se citan en el apartado D.- Actuaciones de la Aduana.
+D.- Actuaciones de la Aduana
+1º) El funcionario aduanero designado recibe la documentación de los envíos de socorro que se cita en la política general número 2 º) y se traslada a la ubicación de ingreso de las mercancías para realizar la inspección de las mismas y del medio de transporte.
+2º) Presencia la descarga de las mercancías para el caso de ingreso aéreo o marítimo y en el caso de ingreso terrestre podrá solicitarlo según lo considere necesario.
+3º) De determinar el ingreso de envíos de socorro que requieran permiso o aprobación de otra entidad de gobierno, solicitará que se presente la autorización de ingreso emitida por dicha entidad.
+4º) Aplica en lo que sea procedente el reconocimiento físico y documental de los envíos de socorro. En caso que se presente alguna inconsistencia en la documentación valorará en lo que proceda para facilitar el ingreso de las mercancías al país.
+5º) Una vez que verifique la documentación descrita en la política general No. 2 del apartado Políticas Generales y se determine que el contenido de la misma es satisfactorio, levantará y firmará un acta para autorizar el ingreso de los envíos de socorro.
+6º) Para el caso de vehículos que no deban declaren en una DUCA se debe generar el permiso de importación temporal.
+7º) En el caso de aquellos envíos de socorro que deban regresar al país de procedencia, recibe la documentación de las mercancías y se traslada a la ubicación por la que se efectuará la salida.
+8º) Aplica en lo que sea procedente el reconocimiento físico y documental de los envíos de socorro y verifica que salgan las mercancías que se citan en la documentación.
+9º) De determinarse que toda la documentación es correcta levantará y firmará un acta para autorizar la salida de los envíos de socorro. Dicha acta deberá consignar los documentos de respaldo.
+10º) El funcionario designado confeccionara un expediente en el que se deben incluir los documentos de respaldo que ampararon las mercancías consistentes en envíos de socorro y del original del acta confeccionada.
+III.- Salida de los Envíos de Socorro
+Este apartado describe el procedimiento de salida de envíos de socorro para la atención de emergencias o desastres que ocurran en otro país.
+A.- Actuaciones de la Coordinación del CATAI
+1º) Notifica de manera oficial al Director General de Aduanas y a los representantes DGA la salida de envíos de socorro del país, y verifica los requisitos y el procedimiento correspondiente para el envío de las mercancías.
+2º) Remite al Director General de Aduanas y a los representantes DGA la documentación que se describe en la política general número 2 º) de la Sección Políticas Generales.
+3º) Comunica al Director General de Aduanas y a los representantes DGA el recibo conforme de los envíos de socorro en el país o lugar que se presentó la situación de emergencia, lo anterior previa confirmación y coordinación con los encargados del operativo de entrega de las mercancías.
+4º) Envía al Director de Aduanas y a los representantes DGA la documentación de los envíos de socorro que deban regresar al país, lo anterior para que se remita a la Aduana de reingreso y se efectúen las actuaciones que se citan en el apartado D.- Actuaciones de la Aduana, lo anterior previa confirmación y coordinación con los encargados del parte operativo de entrega.
+B.- Actuaciones del Transportista Aduanero
+1º) La persona responsable del medio de transporte que sale del país con las mercancías presenta a la Aduana el listado de los envíos de socorro.
+2º) Si la salida de los envíos de socorro la realiza un transportista aduanero autorizado podrá consignar la totalidad de los bultos en una sola línea del conocimiento de embarque con la descripción “envíos de socorro”.
+3º) Los envíos de socorro que salgan del país deben declararse por parte de transporte aduanero responsable en un manifiesto de salida.
+4º) Deberá conservar una copia del acta de autorización de salida de los envíos de socorro emitida por la Aduana de control correspondiente.
+C.- Actuaciones del Representante DGA ante el CATAI
+1º) Informa a la Coordinación del CATAI el procedimiento y demás requisitos para la salida de los envíos de socorro del país.
+2º) Recibe vía correo electrónico de la Coordinación del CATAI la documentación establecida en la política general 2 º) del Apartado Políticas Generales.
+3º) En caso de recibirse toda la documentación la remite a la Gerencia de la Aduana de salida para que se efectúe lo descrito en el apartado D.- Actuaciones de la Aduana. En caso de ausencia de algún documento lo solicita a la Coordinación del CATAI.
+4º) Envía a la Aduana la documentación de aquellos envíos de socorro que deban reingresar al país, lo anterior para que se ejecuten las labores que se citan en el apartado D.- Actuaciones de la Aduana, lo anterior previa confirmación y coordinación con los encargados del operativo de entrega.
+D.- Actuaciones de la Aduana
+1º) El funcionario aduanero designado recibe la documentación de los envíos de socorro que se cita en la política general número 2 º) y se traslada a la ubicación de salida de las mercancías para realizar la inspección de las mismas y del medio de transporte.
+2º) De determinar la salida de envíos de socorro que requieran permiso o aprobación de otra entidad de gobierno, solicitará que se presente la autorización emitida por dicha entidad.
+3º) Aplica en lo que sea procedente el reconocimiento físico y documental de los envíos de socorro. En caso que se presente alguna inconsistencia en la documentación valorará en lo que proceda para facilitar la salida de las mercancías del país.
+4º) Una vez que el funcionario de la aduana verifique la documentación descrita en la política general No. 2 del apartado Políticas Generales, y se determine que el contenido de la misma es satisfactorio, levantará y firmará un acta para autorizar la salida de los envíos de socorro.
+5º) En el caso de aquellos envíos de socorro que deban retornar o reingresar al territorio nacional, recibe la documentación de las mercancías y se traslada al lugar o ubicación por la que se efectuará el reingreso.
+6º) Aplica en lo que sea procedente el reconocimiento físico y documental de los envíos de socorro y verifica que reingresen solamente las mercancías que se citan en la documentación.
+7º) De determinarse que toda la documentación es correcta levantará y firmará un acta para autorizar el reingreso de los envíos de socorro. Dicha acta deberá consignar los documentos de respaldo.
+8º) El funcionario aduanero confeccionara un expediente en el que se deben incluir los documentos de respaldo que ampararon las mercancías consistentes en envíos de socorro y del original del acta confeccionada.
 (*)PROCEDIMIENTO DE EXPORTACIÓN
 (*)Mediante resolución DGA-155 del 28 de abril de 2008, se acordó adicionar el siguiente Procedimiento de Exportación, el cual se transcribe a continuación:
 Abreviaturas
