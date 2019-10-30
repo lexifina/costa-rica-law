@@ -50,19 +50,18 @@ g) en el caso de la Unión Europea, por la Comisión Europea; o sus sucesores.
 DECLARACIONES
 DECLARACIÓN CONJUNTA DE COSTA RICA Y LA UNIÓN EUROPEA
 DEL CAPÍTULO 1 DEL TÍTULO II (COMERCIO DE MERCANCÍAS) DEL PRESENTE
-ACUERDO
-Costa Rica revisará que los impuestos internos cobrados a las bebidas que figuran más
-adelante se apliquen de conformidad con las disposiciones del capítulo 1 del título II
-(Comercio de mercancías), de modo que:
-a) Para las bebidas carbonatadas clasificadas en la partida arancelaria 2202 y las bebidas
-alcohólicas clasificadas en la partida arancelaria 2203, tal revisión se completará a más
-tardar un año después de la entrada en vigor.
-b) Para las bebidas alcohólicas clasificadas en las partidas arancelarias 2204 a 2208, tal
-revisión se completará a más tardar cuatro años después de la entrada en vigor.
+ACUERDO(*)
+Costa Rica revisará que los impuestos internos cobrados a las bebidas que figuran más adelante se apliquen de conformidad con las disposiciones del capítulo 1 del título II (Comercio de mercancías), de modo que:
+a) Para las bebidas carbonatadas clasificadas en la partida arancelaria 2202 y las bebidasalcohólicas clasificadas en la partida arancelaria 2203, tal revisión se completará a más tardar un año después de la entrada en vigor.
+b) Para las bebidas alcohólicas clasificadas en las partidas arancelarias 2204 a 2208, tal revisión se completará a más tardar cuatro años después de la entrada en vigor.
+(*) (Nota de Sinalevi: Mediante el aparte 29) sub aparte e) del anexo del Tratado Internacional, N° 9775 del 29 de octubre de 2019, “Acuerdo por el que se establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte y Centroamérica, suscrito en Managua, Nicaragua, el 18 de mes de julio de 2019; su Anexo, sus Declaraciones Conjuntas y el Entendimiento Alcanzado entre las Delegaciones de los Gobiernos del Reino Unido de Gran Bretaña e Irlanda del Norte y de las Repúblicas de Costa Rica, El Salvador, Guatemala, Honduras, Nicaragua y Panamá sobre el Apartado 8 del Anexo del Acuerdo por el que se Establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte, y Centroamérica, firmado el 18 de julio de 2019”, se acordó indicar que en la Declaración Conjunta de Costa Rica y la Unión Europea del Capítulo 1 del Título 11 (Comercio de Mercancías) de este Acuerdo no se incorpora lo siguiente al presente Acuerdo:
+i. en el apartado (a) las palabras "las bebidas carbonatadas clasificadas en la partida arancelaria 2202 y"; y
+ii. el apartado (b).”)
 DECLARACIÓN CONJUNTA
 SOBRE EL ARTÍCULO 88 DEL CAPÍTULO 1 DEL TÍTULO II
 (COMERCIO DE MERCANCÍAS)
-Costa Rica y Guatemala pueden seguir aplicando las medidas que figuran más adelante después de la fecha de entrada en vigor del presente Acuerdo. Las Partes examinarán la necesidad de mantener estas medidas, a más tardar diez años después de la fecha de entrada en vigor del presente Acuerdo.
+Costa Rica y Guatemala pueden seguir aplicando las medidas que figuran más adelante después de la fecha en que se ha aplicado la parte IV del Acuerdo UE-Centroamérica. Las Partes examinarán la necesidad de mantener estas medidas, a más tardar diez años después de la fecha en que se ha aplicado la parte IV del Acuerdo UE-Centroamérica.
+(Así reformado el párrafo anterior por el aparte 29) sub aparte f) del anexo del Tratado Internacional, N° 9775 del 29 de octubre de 2019, “Acuerdo por el que se establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte y Centroamérica, suscrito en Managua, Nicaragua, el 18 de mes de julio de 2019; su Anexo, sus Declaraciones Conjuntas y el Entendimiento Alcanzado entre las Delegaciones de los Gobiernos del Reino Unido de Gran Bretaña e Irlanda del Norte y de las Repúblicas de Costa Rica, El Salvador, Guatemala, Honduras, Nicaragua y Panamá sobre el Apartado 8 del Anexo del Acuerdo por el que se Establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte, y Centroamérica, firmado el 18 de julio de 2019”)
 Guatemala
 a) Ley del Café, Decreto nº 19-69 del Congreso de la República de Guatemala, Decreto nº 114-63 del Jefe de Estado y Decreto Ley nº 111-85 del Jefe de Estado. Costa Rica
 a) Ley nº 5515, de 19 de abril de 1974, modificada por la Ley nº 5538, de 18 de junio de 1974, y Ley nº 4895, de 16 de noviembre de 1971, modificada por la Ley nº 7147, de 30 de abril de 1990, y por la Ley nº 7277, de 17 de diciembre de 1991;
@@ -70,11 +69,13 @@ b) Ley nº 2762, de 21 de junio de 1961, modificada por la Ley nº 7551, de 22 d
 c) Ley nº 6247, de 2 de mayo de 1978, y Ley nº 7837, de 5 de octubre de 1998.
 DECLARACIÓN CONJUNTA
 RELATIVA AL PRINCIPADO DE ANDORRA
-1. Los productos originarios del Principado de Andorra clasificados en los capítulos 25 al 97 del Sistema Armonizado serán aceptados por las Repúblicas de la Parte CA como originarios de la Unión Europea de conformidad con el presente Acuerdo.
+1. Los productos originarios del Principado de Andorra clasificados en los capítulos 25 al 97 del Sistema Armonizado que reúnan las condiciones del artículo 3a(5)(b) del Anexo II serán aceptados por las Partes como originarios de la Unión Europea en el sentido del presente Acuerdo."
+(Así reformado el párrafo anterior por el aparte 29) sub aparte a) del anexo del Tratado Internacional, N° 9775 del 29 de octubre de 2019, “Acuerdo por el que se establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte y Centroamérica, suscrito en Managua, Nicaragua, el 18 de mes de julio de 2019; su Anexo, sus Declaraciones Conjuntas y el Entendimiento Alcanzado entre las Delegaciones de los Gobiernos del Reino Unido de Gran Bretaña e Irlanda del Norte y de las Repúblicas de Costa Rica, El Salvador, Guatemala, Honduras, Nicaragua y Panamá sobre el Apartado 8 del Anexo del Acuerdo por el que se Establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte, y Centroamérica, firmado el 18 de julio de 2019”)
 2. El anexo II (Relativo a la definición del concepto de "productos originarios" y métodos de cooperación administrativa) se aplicará, mutatis mutandis, para definir el carácter originario de los productos antes mencionados.
 DECLARACIÓN CONJUNTA
 RELATIVA A LA REPÚBLICA DE SAN MARINO
-1. Los productos originarios de la República de San Marino serán aceptados por las Repúblicas de la Parte CA como originarios de la Unión Europea de conformidad con el presente Acuerdo.
+1. Los productos originarios de la República de San Marino que reúnan las condiciones del artículo 3a(5)(b) del Anexo II serán aceptados por las Partes como productos originarios de la Unión Europea, en el sentido del presente Acuerdo.
+(Así reformado el párrafo anterior por el aparte 29) sub aparte b) del anexo del Tratado Internacional, N° 9775 del 29 de octubre de 2019, “Acuerdo por el que se establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte y Centroamérica, suscrito en Managua, Nicaragua, el 18 de mes de julio de 2019; su Anexo, sus Declaraciones Conjuntas y el Entendimiento Alcanzado entre las Delegaciones de los Gobiernos del Reino Unido de Gran Bretaña e Irlanda del Norte y de las Repúblicas de Costa Rica, El Salvador, Guatemala, Honduras, Nicaragua y Panamá sobre el Apartado 8 del Anexo del Acuerdo por el que se Establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte, y Centroamérica, firmado el 18 de julio de 2019”)
 2. El anexo II (Relativo a la definición del concepto de "productos originarios" y métodos de cooperación administrativa) se aplicará, mutatis mutandis, para definir el carácter originario de los productos antes mencionados.
 DECLARACIÓN CONJUNTA
 RELATIVA A EXCEPCIONES
@@ -119,7 +120,8 @@ En las negociaciones del título VI (Propiedad intelectual) de la parte IV del p
 Tras examinar la legislación pertinente de cada una de las Repúblicas de la Parte CA, la Parte UE considera que esta legislación, al proporcionar periodos de protección de al menos cinco años para los productos farmacéuticos y diez años para los productos químicos agrícolas, ofrece un nivel satisfactorio de protección que corresponde a las obligaciones internacionales pertinentes contraídas por las Repúblicas de la Parte CA, incluidos el artículo 39 del Acuerdo sobre los ADPIC de la OMC, el artículo 15.10 del Tratado de Libre Comercio entre República Dominicana, Centroamérica y Estados Unidos, y el artículo 15.10 del Tratado de Promoción Comercial entre Estados Unidos y Panamá.
 DECLARACIÓN CONJUNTA
 NOMBRES CUYO REGISTRO HA SIDO SOLICITADO
-COMO INDICACIONES GEOGRÁFICAS EN UNA REPÚBLICA DE LA PARTE CA
+COMO INDICACIONES GEOGRÁFICAS EN UNA REPÚBLICA DE LA PARTE CA(*)
+(*) (Nota de Sinalevi: Mediante el aparte 29) sub aparte c) del anexo del Tratado Internacional, N° 9775 del 29 de octubre de 2019, “Acuerdo por el que se establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte y Centroamérica, suscrito en Managua, Nicaragua, el 18 de mes de julio de 2019; su Anexo, sus Declaraciones Conjuntas y el Entendimiento Alcanzado entre las Delegaciones de los Gobiernos del Reino Unido de Gran Bretaña e Irlanda del Norte y de las Repúblicas de Costa Rica, El Salvador, Guatemala, Honduras, Nicaragua y Panamá sobre el Apartado 8 del Anexo del Acuerdo por el que se Establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte, y Centroamérica, firmado el 18 de julio de 2019”, se acordó indicar que la Declaración Conjunta "Nombres cuyo registro ha sido solicitado como indicaciones geográficas en una República de la Parte CA" anteriormente indicada,no se incorpora al presente Acuerdo.anteriormente referido)
 Las Partes reconocen que, para los nombres que figuran en el presente documento, se han presentado solicitudes de registro como indicaciones geográficas en la Parte de origen. A efectos de protección en el territorio de la Parte UE, la Parte de origen comunicará a la Parte UE la finalización de los procedimientos nacionales de protección aplicables. Una vez que estos nombres hayan sido correctamente registrados como indicaciones geográficas en la Parte de origen, estos nombres se someterán a los procedimientos y serán protegidos según lo establecido en el artículo 245 del título VI (Propiedad intelectual) de la parte IV del presente Acuerdo, siempre que se hayan cumplido los requisitos formales para su solicitud en la Parte UE a más tardar un año antes de la entrada en vigor.
 Lista de nombres para los que se han presentado solicitudes:
 | País | Nombre | Producto
@@ -178,7 +180,8 @@ Lista de nombres para los que se han presentado solicitudes:
 53 | Panamá | Coco de tres filos de Colón | Coco
 54 | Panamá | Piña de Chorrera | Piña
 DECLARACIÓN CONJUNTA SOBRE
-UNIONES ADUANERAS DE LA PARTE UE
+UNIONES ADUANERAS DE LA PARTE UE(*)
+(*) (Nota de Sinalevi: Mediante el aparte 29) sub aparte d) del anexo del Tratado Internacional, N° 9775 del 29 de octubre de 2019, “Acuerdo por el que se establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte y Centroamérica, suscrito en Managua, Nicaragua, el 18 de mes de julio de 2019; su Anexo, sus Declaraciones Conjuntas y el Entendimiento Alcanzado entre las Delegaciones de los Gobiernos del Reino Unido de Gran Bretaña e Irlanda del Norte y de las Repúblicas de Costa Rica, El Salvador, Guatemala, Honduras, Nicaragua y Panamá sobre el Apartado 8 del Anexo del Acuerdo por el que se Establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte, y Centroamérica, firmado el 18 de julio de 2019”, se acordó indicar que la Declaración Conjunta sobre uniones aduaneras de la Parte UE anteriormente indicada no se incorpora al presente Acuerdo..anteriormente referido)
 La Parte UE señala que los Estados con los que tenga establecida una unión aduanera en la fecha de la firma del presente Acuerdo y cuyos productos no se beneficien de concesiones arancelarias en virtud del presente Acuerdo tienen la obligación, en relación con los países que no son miembros de la Unión Europea, de adaptarse al Arancel Aduanero Común y, progresivamente, al régimen de preferencias aduaneras de la Unión Europea, tomando las medidas necesarias y negociando acuerdos sobre la base de ventajas mutuas con los países de que se trate.
 Por consiguiente, la Unión Europea ha invitado a las Repúblicas de la Parte CA a entablar negociaciones con dichos Estados lo antes posible.
 Las Repúblicas de la Parte CA informan que harán lo posible para negociar con dichos Estados un acuerdo por el que se establezca una zona de libre comercio.
@@ -253,7 +256,8 @@ DISPOSICIONES FINALES
 ARTÍCULO 9
 Disposiciones finales
 1. Las disposiciones del presente Protocolo se aplicarán entre la Parte UE y cada una de las Repúblicas de la Parte CA desde el primer día del mes siguiente a la fecha en que esa República de la Parte CA haya depositado su instrumento de ratificación de la Convención de la UNESCO.
-2. Si todas las Repúblicas de la Parte CA han depositado sus instrumentos de ratificación de la Convención de la UNESCO antes del intercambio de notificaciones al que se hace referencia en el artículo 353, apartados 2 y 3, de la Parte V (Disposiciones generales y finales) del presente Acuerdo, las disposiciones del presente Protocolo se aplicarán a partir de la entrada en vigor del presente Acuerdo.
+2. Si todas las Repúblicas de la Parte CA han depositado sus instrumentos de ratificación de la Convención de la UNESCO antes del intercambio de notificaciones al que se hace referencia en el artículo 353(*), apartados 2 y 3, de la Parte V (Disposiciones generales y finales) del presente Acuerdo, las disposiciones del presente Protocolo se aplicarán a partir de la entrada en vigor del presente Acuerdo.
+(*) (Nota de Sinalevi: Mediante el aparte 16) sub aparte b) del anexo del Tratado Internacional, N° 9775 del 29 de octubre de 2019, “Acuerdo por el que se establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte y Centroamérica, suscrito en Managua, Nicaragua, el 18 de mes de julio de 2019; su Anexo, sus Declaraciones Conjuntas y el Entendimiento Alcanzado entre las Delegaciones de los Gobiernos del Reino Unido de Gran Bretaña e Irlanda del Norte y de las Repúblicas de Costa Rica, El Salvador, Guatemala, Honduras, Nicaragua y Panamá sobre el Apartado 8 del Anexo del Acuerdo por el que se Establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte, y Centroamérica, firmado el 18 de julio de 2019”, se acordó indicar que no se incorpora al presente Acuerdo ni el artículo 353 ni tampoco referencia alguna al artículo 353)
 SECRETARÍA GENERAL DEL
 SISTEMA DE LA INTEGRACIÓN CENTROAMERICANA
 (SG-SICA)
@@ -269,7 +273,6 @@ El Salvador, Centroamérica.
 PBX : (503) 2248-8800
 FAX: (503) 2248-8899
 www.sica.int/sgsica info.sgsica@sica.int
-[imagen]
 ASESORÍA JURÍDICA
 MINISTERIO DE COMERCIO EXTERIOR
 ______________________________________________________________________________________
@@ -316,7 +319,6 @@ Por lo que se adjunta a la presente. fotocopias certificadas de las notas:
 7) Nota Verbal original en idioma inglés de la Secretaria General de Consejo de la Unión Europea SGS12/011426, con el listado de errores; de fecha de 19 de octubre de 2012. (tres folios).
 n
 Las notas adjuntas son copias fieles y exactas de sus originales remitidas en esta Secretaría General del SICA. Se extiende la presente Certificación en la sede de la Secretaría General del Sistema de la Integración Centroamericana (SICA), en la ciudad de San Salvador, República de El Salvador, a los diecisiete días del mes de diciembre de dos mil doce.
-[imagen]
 Estimados Señores Ministros:
 Tengo el agrado de dirigirme a Ustedes en calidad de Presidencia Pro Tempere del Subsistema de lntegracion Económica Centroamericana (PPT), en relación con el "Acuerdo por el que se establece una Asociación entre Centroamérica. por un lado, y la Unión Europea y sus Estados Miembros. por otro" (en adelante, el Acuerdo), y concretamente a las gestiones realizadas por algunos países de la región para procurar la pronta aclaración de errores de forma, encontrados en la versión en español del texto en su parte comercial, específicamente en los Anexos I, XI, Xlll y XIV del Acuerdo los cuales se citan a continuación:
 I. El Gobierno de la República de Panamá entiende que en el programa de desgravación de Panamá, establecido en el Anexo 1 (Lista de Panamá), página EU/CENTR-AM/Anexo I/es 1939, la descripción correcta de la partida arancelaria a 23.06 se debe leer de la siguiente forma en su versión en español: "Tortas y demás residuos sólidos de la extracción de grasas o aceites vegetales, incluso molidos o en "pellets", excepto los de las partidas 23.04 o 23.05.
@@ -332,8 +334,6 @@ En consulta y a solicitud de los paises centroamericanos, esta PPT gestionó ant
 Agradeceremos a todos los países centroamericanos manifestar normalmente su consentimiento, de manera que todas las Partes del Acuerdo puedan proceder a realizar las aclaraciones solicitadas, las cuales se harón únicamente en relación con tos asuntos listados y no afectan los acuerdos alcanzados entre las Parles del Acuerdo
 Aprovechamos la oportunidad para confirmar la anuencia del Gobierno de la República de Nicaragua a las aclaraciones citadas.
 Con las muestras de mi más alta consideración y estima les saludo cordialmente,
-[imagen]
-[imagen]
 El Ministerio de Economía de El Salvador les saluda para refrirse a la nota ]DMOSD-0408-10-12-IBC de fecha 30 de octubre de 2012 y suscrita por el Ministro de Fomento, Industria y Comercio de Nicaragua, Orlando Solórzano Delgadillo, en su condición de Presidencia pro Témpore del Subsistema de Integración Económica Centroamericana, relacionada con el “Acuerdo por el que se establece una asociación entre Centroamérica por un lado y la Unión europea y sus Estados miembros, por otro “ (en adelante, el Acuerdo y la aclaración de errores de forma encontrados en la versión en español del texto en su parte comercial específicamente en los Anexos I, XI, XIII y XIV del Acuerdo, y que se indica.
 Tengo el gusto de dirigirme a ustedes en calidad de Presidencia Pro Témpore del Subsistema de Integración Económica Centroamericana, en relación con el “Acuerdo por el que se establece una asociación entre Centroamérica, por un lado, y la Unión Europea y sus Estados Miembros, por otro” (en adelante el Acuerdo). Al respecto varios países de la región han realizado gestiones para procurar la pronta aclaración de errores de forma encontrados en la versión en español del texto en su parte comercial, específicamente en los Anexos I, XI, XIII y XIV del Acuerdo, los cuales se sitan a continuación:
 I. El Gobierno de la República de Panamá entiende que el programa de desgravación de Panamá, establecido en el Anexo I (lista de panamá), página EU/CENTR-AM/Anexo I/es 1939, la descripción correcta de la partida arancelaria a 23.06 se debe leer de la siguiente forma en su versión en español: “Tortas y demás residuos sólidos de la extracción de grasas o aceites vegetales, incluso molidos o en “pellets”, excepto los de las partidas 23.04 ó 23.05”.
@@ -350,7 +350,6 @@ Agradeceremos a todos los paises centroamericanos manifestar formalmente su cons
 Aprovechamos la oportunidad para confirmar la anuencia del Gobierno de la República de Nicaragua o las aclaraciones citadas."
 En relación con estos asuntos, el Gobierno de la República de El Salvador manifiesta formalmente su consentimiento para que se proceda con las aclaraciones de los errores de forma citados
 Con las muestras de mi más alta consideración y estima.
-[imagen]
 El Secretario de Estado en los Despachos de Industria y Comercio de Honduras les saluda para referirse a la nota DMOSD-0408-1 0-12-J BC de fecha 30 de octubre de 2012 Y suscrita por Orlando Solórzano Delgadillo en su condición de Presidencia Pro Témpore del Subsistema de Integración Económica Centroamericana, referida al "Acuerdo por el que se establece una asociación entre Centroamérica, por un lado, y la Unión Europea y sus Estados Miembros, por otro" (en adelante, el Acuerdo) y la aclaración de errores de forma encontrados en la versión en español del texto en su parte comercial, específicamente en los Anexos I,XI, XIII y XIV del Acuerdo, y que indica:
 "Tengo el gusto de dirigirme a ustedes en calidad de Presidencia Pro Tempore del Subsistema de lntegracion Económica Centroamericana (PPT). en relación con el “Acuerdo por el que se establece una Asociación entre Centroamérica, por un lado, y la Unión Europea y sus Estados Miembros, por otro (en adelante el Acuerdo). Al respecto, varios países de la región han realizado gestiones para procurar la pronta aclaración de errores de forma encontrados en la versión en español del texto en su parle comercial. específicamente en los Anexos l, XI, XIII, XIV del Acuerdo, los cuales se citan a continuación
 l. El Gobierno de la República de Panamá entiende que en el programa de desgravación de Panamá establecido en el AnexoI (Lista de Panamá). página EU/CENTR-AM/Anexo I/es 1939 la descripción correcta de la partida arancelaria a 23.06 se debe leer de la siguiente forma en su versión en español. "Tortas y demás residuos solidos de la extraccion de grasas o aceites vegetales. incluso molidos o en "pellets ''. excepto los de las partidas 23.04 ó 23.05 .
@@ -367,8 +366,6 @@ Agradeceremos a todos los países centroamericanos manifestar formalmente su con
 Aprovechamos la oportunidad para confirmar la anuencia del Gobierno de la República de Nicaragua a las aclaraciones citadas. "
 En relación con estos asuntos, el Gobiemo de la República de Honduras manifiesta formalmente su consentimiento para que se proceda con las aclaraciones de los errores de forma listados,
 Con las muestras de mi más alta consideración y estima
-[imagen]
-[imagen]
 Respetada Señora ministra y Señores ministros:
 El Ministerio de Comercio e Industrias de Panamá les saluda para referirse a la Nota DMOSD-0408-12-JBC de fecha 30 de octubre de 2012 y suscrita por el Señor Orlando Solórzano Delgadillo, Ministro de Fomento Indutria y Comercio de Nicaragua, en su condición de Presidencia Pro Témpore del Subsistema de Integrción Económica Centroamericana, por un lado, y la Unión Europea y sus Estados miembros, por otro (en adelante, el Acuerdo ) y la aclaración de errores de forma encontrados en la versión en español del texto en su punto comercial, específicamente en los Anexos I, XI, XIII y XIV del acuerdo y que indica
 Tengo el gusto de dirigirme a ustedes en calidad de Presidencia pro Témpore del Subsistema de Integración Económica Centroamericana (PDT), en relación con el acuerdo por el que se establece una Asociación entre centroamérica por un lado y la Unión europea y sus estados miembros, por otro (en adelante el Acuerdo) y concretamente en las gestiones realizadas por algunos países de la resión para procurar la pronta aclaración de errores de forma, encontrados en la versión en español del texto en su parte comercial específicamente en los anexos I, XI, XIII y XIV del Acuerdo los cuales se citan a continuación
@@ -386,8 +383,6 @@ Agradeceremos a todos los países centroamericanos manifestar formalmente su con
 Aprovechamos la oportunidad para confirmar la anuencia del Gobierno de la República de Nicaragua a las aclaraciones citadas. "
 En relación con estos asuntos, el Gobiemo de la República de Panamá manifiesta formalmente su consentimiento para que se proceda con las aclaraciones de los errores de forma listados,
 Con las muestras de mi más alta consideración y estima
-[imagen]
-[imagen]
 Respetada Señora ministra y Señores ministros:
 El Ministerio de Comercio e Industrias de Guatemala les saluda para referirse a la Nota DMOSD-0408-12-JBC de fecha 30 de octubre de 2012 y suscrita por el Señor Orlando Solórzano Delgadillo, Ministro de Fomento Indutria y Comercio de Nicaragua, en su condición de Presidencia Pro Témpore del Subsistema de Integrción Económica Centroamericana, por un lado, y la Unión Europea y sus Estados miembros, por otro (en adelante, el Acuerdo ) y la aclaración de errores de forma encontrados en la versión en español del texto en su punto comercial, específicamente en los Anexos I, XI, XIII y XIV del acuerdo y que indica
 Tengo el gusto de dirigirme a ustedes en calidad de Presidencia pro Témpore del Subsistema de Integración Económica Centroamericana (PDT), en relación con el acuerdo por el que se establece una Asociación entre centroamérica por un lado y la Unión europea y sus estados miembros, por otro (en adelante el Acuerdo) y concretamente en las gestiones realizadas por algunos países de la resión para procurar la pronta aclaración de errores de forma, encontrados en la versión en español del texto en su parte comercial específicamente en los anexos I, XI, XIII y XIV del Acuerdo los cuales se citan a continuación
@@ -406,8 +401,6 @@ Aprovechamos la oportunidad para confirmar la anuencia del Gobierno de la Repúb
 En relación con estos asuntos, el Gobiemo de la República de Guatemala manifiesta formalmente su consentimiento para que se proceda con las aclaraciones de los errores de forma listados,
 El Gobierno de la República de Guatemala que la Nota transcrita, la presente Nota y la aceptación de las correcciones de mérito por parte de la Unión Europea forman parte integral del Acuerdo, y entrarán en virgor por Guatemala de la misma forma y conjuntamente con aquel.
 Con las muestras de mi más alta consideración y estima
-[imagen]
-[imagen]
 El Ministerio de Comercio Exterior de Costa Rica les saluda para referirse a la Nota DMOSD-0408-12-JBC de fecha 30 de octubre de 2012 y suscrita por el Señor Orlando Solórzano Delgadillo, Ministro de Fomento Indutria y Comercio de Nicaragua, en su condición de Presidencia Pro Témpore del Subsistema de Integrción Económica Centroamericana, por un lado, y la Unión Europea y sus Estados miembros, por otro (en adelante, el Acuerdo ) y la aclaración de errores de forma encontrados en la versión en español del texto en su punto comercial, específicamente en los Anexos I, XI, XIII y XIV del acuerdo y que indica.
 Tengo el gusto de dirigirme a ustedes en calidad de Presidencia pro Témpore del Subsistema de Integración Económica Centroamericana (PDT), en relación con el acuerdo por el que se establece una Asociación entre centroamérica por un lado y la Unión europea y sus estados miembros, por otro (en adelante el Acuerdo) y concretamente en las gestiones realizadas por algunos países de la resión para procurar la pronta aclaración de errores de forma, encontrados en la versión en español del texto en su parte comercial específicamente en los anexos I, XI, XIII y XIV del Acuerdo los cuales se citan a continuación.
 l. El Gobierno de la República de Panamá entiende que en el programa de desgravación de Panamá establecido en el Anexo I (Lista de Panamá). página EU/CENTR-AM/Anexo I/es 1939 la descripción correcta de la partida arancelaria a 23.06 se debe leer de la siguiente forma en su versión en español. "Tortas y demás residuos solidos de la extraccion de grasas o aceites vegetales. incluso molidos o en "pellets ''. excepto los de las partidas 23.04 ó 23.05 .
@@ -424,7 +417,6 @@ Agradeceremos a todos los países centroamericanos manifestar formalmente su con
 Aprovechamos la oportunidad para confirmar la anuencia del Gobierno de la República de Nicaragua a las aclaraciones citadas. "
 En relación con estos asuntos, el Gobiemo de la República de Costa Rica manifiesta formalmente su consentimiento para que se proceda con las aclaraciones de los errores de forma listados,
 Con las muestras de mi más alta consideración y estima
-[imagen]
 LISTADO DE ERRORES
 Lista de Panamá
 Anexo I
@@ -468,7 +460,6 @@ LISTA DE COMPROMISOS DE LAS REPÚBLICAS DE LA PARTE CA SOBRE VENDEDORES DE SERVI
 Dice: “... no tendrán efectos jurídicos...”
 Debe decir: “… no tendrán efectos por sí mismos…”
 Panamá | Párrafo 11 | EU/CENTR-AM/Anexo XIV/es 85
-[imagen]
 ROBERTO GAMBOA CHAVERRI, DIRECTOR DE LA ASESORIA JURíDICA DEL MINISTERIO DE COMERCIO EXTERIOR, CERTIFICA: Que las fotocopias que anteceden, numeradas de la uno a la veinte, las cuales llevan calzado el sello de la Dirección de Asesoría Jurídica del Ministerio de Comercio Exterior, son fieles de la certificación COR/C/doce/cero cuarenta y cinco, emitida por la Secretaría General del Sistema de la Integración Centroamericana (SICA), en la Ciudad de San Salvador, República de El Salvador, a los diecisiete días del mes de diciembre del año dos mil doce, por la cual certifica los textos de las notas emitidas por los países de Centroamérica y la Secretaría General de la Unión Europea que de seguido se detaIIan: -------.---------------------------------------------------.,-----------------------------------------
 Nota del Ministerio de Fomento, Industria y Comercio de Nicara-gua, número OMOSD-cero cuatrocientos ocho-diez-doce-JBC , de fecha treinta de octubre de dos mil doce.--- ----------------
 Nota del Ministerio de Economía de la República de El Salvador, número Ref: DIR/CARTA/doce/quinientos veintisiete/N, de fecha primero de noviembre de dos mil doce. -----
@@ -476,7 +467,6 @@ Nota de la Secretaría de Industria y Comercio de la República de Honduras, nú
 Nota del Ministerio de Relaciones Exteriores de la República de Guatemala, de fecha siete den Novi embre de dos mil doce. ----------------------------------------------------------------
 Nota del Ministerio de Comercio Exterior de la República de Costa Rica, número DM cero cero seiscientos cuarenta y siete-doce, de fecha ocho de octubre de dos mil doce.---------------------------
 Nota Verbal en idioma inglés de la Secretaría General del Consejo de la Unión Europea, número SGS doce/cero once mil cuatrocientos veintiséis, de fecha diecinueve de octubre de dos mil doce, que adjunta el listado de errores en idioma español. ES CONFORME. ----------------
-[imagen]
 Se expide la presente certificación, para efectos de su remisión a la Asamblea legislativa, en la ciudad de San José, a las catorce horas del día diecisiete del mes de diciembre del año dos mil doce.--
 TRADUCCIÓN DE CORTESÍA
 CONSEJO DE LA UNIÓN EUROPEA
@@ -485,7 +475,7 @@ NOTA VEBAL
 La Secretaría General del Consejo de la Unión Europea saluda atentamente a las partes centroamericanas del Acuerdo por el que se establece una Asociación entre la Unión Europea y sus Estados Miembros, por un lado, y Centroamérica, por otro, firmado en Tegucigalpa el 29 de junio de 2012 y tiene el honor de referirse a la identificación de, y a las solicitudes de corrección de, ciertos errores en la versión en el idioma español de este Acuerdo, según se detallan en una carta dirigida al Jefe de la Oficina de Acuerdos del Consejo de la Unión Europea de parte de Nicaragua (en su capacidad de Presidencia pro Témpore del SICA), fechada 8 de octubre de 2012, Ref. No. MIFIC-DGCE-JBC-0409-10-12-CMM, así como los errores que figuran en el anexo aquí adjunto.
 Después de una revisión de lo mencionado, la Secretaría General del Consejo, en su capacidad de co-depositaria del supracitado Acuerdo, tiene el honor de confirmar que las solicitudes de corrección de estos errores son válidas y por la presente son aceptadas. Al respecto, la Secretaría General del Consejo procederá a la corrección de estos errores en su debido tiempo.
 La Secretaría General del Consejo de la Unión Europea aprovecha esta oportunidad para renovar a las partes centroamericanas del Acuerdo por el que se establece una Asociación entre la Unión Europea y sus Estados Miembros, por un lado, y Centroamérica, por otro, la expresión de su más alta consideración.
-Bruselas, 19 de octubre de 2012
+Londres(*), 19 de octubre de 2012
+(*) (Así sustituída su denominación por el apartado de las Declaraciones Conjuntas "Declaración Conjunta sobre Mutatis Mutandis" del anexo del Tratado Internacional, N° 9775 del 29 de octubre de 2019, "Acuerdo por el que se establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte y Centroamérica, suscrito en Managua, Nicaragua, el 18 de mes de julio de 2019; su Anexo, sus Declaraciones Conjuntas y el Entendimiento Alcanzado entre las Delegaciones de los Gobiernos del Reino Unido de Gran Bretaña e Irlanda del Norte y de las Repúblicas de Costa Rica, El Salvador, Guatemala, Honduras, Nicaragua y Panamá sobre el Apartado 8 del Anexo del Acuerdo por el que se Establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte, y Centroamérica, firmado el 18 de julio de 2019". Anteriormente se indicada "Bruselas")
 Incluido: Anexo
 Copia: Secretaría General del SICA
-[imagen]

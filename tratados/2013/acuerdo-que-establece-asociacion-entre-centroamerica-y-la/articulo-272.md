@@ -1,6 +1,7 @@
 ARTÍCULO 272
 Limitaciones de la responsabilidad de proveedores de servicios
 Las Partes acuerdan que mantendrán las limitaciones de la responsabilidad de los proveedores de servicios actualmente previstas en sus respectivas legislaciones, fundamentalmente:
-a) para la Parte UE: las previstas en la Directiva 2000/31/CE, sobre comercio electrónico;
+a) para la Reino Unido(*): las previstas en la Directiva 2000/31/CE, sobre comercio electrónico;
+(*) (Así sustituída su denominación por el apartado de las Declaraciones Conjuntas "Declaración Conjunta sobre Mutatis Mutandis" del anexo del Tratado Internacional, N° 9775 del 29 de octubre de 2019, "Acuerdo por el que se establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte y Centroamérica, suscrito en Managua, Nicaragua, el 18 de mes de julio de 2019; su Anexo, sus Declaraciones Conjuntas y el Entendimiento Alcanzado entre las Delegaciones de los Gobiernos del Reino Unido de Gran Bretaña e Irlanda del Norte y de las Repúblicas de Costa Rica, El Salvador, Guatemala, Honduras, Nicaragua y Panamá sobre el Apartado 8 del Anexo del Acuerdo por el que se Establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte, y Centroamérica, firmado el 18 de julio de 2019". Anteriormente se indicaba "Parte UE")
 b) para las Repúblicas de la Parte CA: las adoptadas a nivel nacional con el fin de cumplir sus obligaciones internacionales.
 Una Parte podrá diferir la implementación de las disposiciones del presente artículo por un periodo que no exceda de tres años, a partir de la fecha de entrada en vigor del presente Acuerdo.

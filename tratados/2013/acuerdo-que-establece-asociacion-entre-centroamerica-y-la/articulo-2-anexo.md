@@ -114,11 +114,13 @@ Acumulación de origen
 2. Los materiales originarios de Centroamérica se considerarán como materiales originarios de la Unión Europea cuando se incorporen a un producto obtenido allí. No será necesario que estos materiales hayan sido objeto de elaboraciones o transformaciones suficientes, a condición de que hayan sido objeto de elaboraciones o transformaciones que vayan más allá de las mencionadas en el artículo 6.
 3. No obstante lo dispuesto en los apartados 1 y 2, los materiales originarios de Bolivia, Colombia, Ecuador, Perú o Venezuela se considerarán como materiales originarios de Centroamérica cuando se procesen o se incorporen a un producto obtenido allí60.
 60 En caso de que uno de los países mencionados en el presente apartado deje de ser beneficiario del trato arancelario preferencial en el mercado de la Unión Europea, impidiendo a Centroamérica la acumulación de materias con arreglo al presente artículo, la Unión Europea deberá tomar todas las medidas compatibles con las obligaciones de la OMC necesarias para asegurarse de que Centroamérica mantenga el mismo nivel de flexibilidad al que tiene derecho según el artículo 3. Después de recibir una solicitud conforme a esta disposición, la Unión Europea deberá, sin demora injustificada, informar a las Repúblicas de la Parte CA afectadas sobre las acciones tomadas con el fin de garantizar una continuación de las posibilidades de acumulación previstas en el presente artículo.
+(Nota de Sinalevi: Mediante el aparte 18) sub aparte a) del anexo del Tratado Internacional, N° 9775 del 29 de octubre de 2019, “Acuerdo por el que se establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte y Centroamérica, suscrito en Managua, Nicaragua, el 18 de mes de julio de 2019; su Anexo, sus Declaraciones Conjuntas y el Entendimiento Alcanzado entre las Delegaciones de los Gobiernos del Reino Unido de Gran Bretaña e Irlanda del Norte y de las Repúblicas de Costa Rica, El Salvador, Guatemala, Honduras, Nicaragua y Panamá sobre el Apartado 8 del Anexo del Acuerdo por el que se Establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte, y Centroamérica, firmado el 18 de julio de 2019”, se acordó indicar que el pie de página anterior no se incorpora al Acuerdo anteriormente referido)
 4. Con el fin de que los productos contemplados en el apartado 3 adquieran el carácter originario, no será necesario que los materiales hayan sido objeto de elaboraciones o transformaciones suficientes, siempre que:
 a) la elaboración o transformación de los materiales realizada en Centroamérica vaya más allá de las operaciones contempladas en el artículo 6;
 b) los materiales sean originarios de uno de los países que figuran en el apartado 3, en aplicación de normas de origen idénticas a las aplicables si dichos materiales fueran exportados directamente a la Unión Europea; y
 c) los acuerdos vigentes entre Centroamérica y los demás países contemplados en el apartado 3 permitan procedimientos de cooperación administrativa adecuados para asegurar la plena implementación del presente apartado, así como de la certificación y la verificación del carácter originario de los productos61.
 61 Los Acuerdos contemplados en el presente apartado han sido cumplidos y notificados a la Unión Europea. La referencia de la notificación fue publicada el 29.5.2003 en el DO L 134, p. 1.
+(Nota de Sinalevi: Mediante el aparte 18) sub aparte a) del anexo del Tratado Internacional, N° 9775 del 29 de octubre de 2019, “Acuerdo por el que se establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte y Centroamérica, suscrito en Managua, Nicaragua, el 18 de mes de julio de 2019; su Anexo, sus Declaraciones Conjuntas y el Entendimiento Alcanzado entre las Delegaciones de los Gobiernos del Reino Unido de Gran Bretaña e Irlanda del Norte y de las Repúblicas de Costa Rica, El Salvador, Guatemala, Honduras, Nicaragua y Panamá sobre el Apartado 8 del Anexo del Acuerdo por el que se Establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte, y Centroamérica, firmado el 18 de julio de 2019”, se acordó indicar que el pie de página anterior no se incorpora al Acuerdo anteriormente referido)
 5. El carácter originario de los materiales exportados desde uno de los países contemplados en el apartado 3 a Centroamérica, para ser utilizados en la elaboración o transformación será establecido mediante una prueba de origen en virtud de la cual estos materiales pueden ser exportados directamente a la Unión Europea.
 6. La prueba del carácter originario, adquirida de conformidad con los términos del apartado 4, de las mercancías exportadas hacia la Unión Europea será establecida mediante un certificado de circulación de mercancías EUR.1 expedido o una declaración en factura realizada en el país exportador, de conformidad con las disposiciones del título IV (Prueba de origen) del presente anexo. Estos documentos deberán llevar la mención "acumulación con (nombre del país)".
 7. A solicitud de una República de la Parte CA o de la Unión Europea, los materiales originarios de México, Sudamérica o los países del Caribe serán considerados como materiales originarios de Centroamérica o de la Unión Europea respectivamente, cuando se procesen o se incorporen a un producto obtenido allí.
@@ -128,15 +130,23 @@ a) la elaboración o transformación de los materiales realizada en Centroaméri
 b) los materiales sean originarios de México, Sudamérica o un país del Caribe, en aplicación de normas de origen idénticas a las aplicables si dichos materiales fueran exportados directamente a la Unión Europea;
 c) los materiales sean originarios de México, Sudamérica o un país del Caribe, en aplicación de normas de origen idénticas a las aplicables si dichos materiales fueran exportados directamente a Centroamérica; y
 d) las Repúblicas de la Parte CA, la Unión Europea y el otro país o países en cuestión tengan un acuerdo sobre procedimientos de cooperación administrativa adecuados que aseguren la plena aplicación del presente apartado, así como de la certificación y la verificación del carácter originario de los productos.
-10. Las Partes, de común acuerdo, notificarán al Subcomité de Aduanas, Facilitación del
-Comercio y Normas de Origen los materiales sujetos a las disposiciones de los apartados
-7 a 12.
-11. La acumulación establecida en los apartados 7, 8, 9, 10 y 12 del presente artículo
-podrá ser aplicada siempre que:
+10. Las Partes, de común acuerdo, notificarán al Subcomité de Aduanas, Facilitación del Comercio y Normas de Origen los materiales sujetos a las disposiciones de los apartados 7 a 12.
+11. La acumulación establecida en los apartados 7, 8, 9, 10 y 12 del presente artículo podrá ser aplicada siempre que:
 a) estén en vigor acuerdos de comercio preferencial de conformidad con el artículo XXIV del GATT de 1994 entre la no Parte en cuestión y las Repúblicas de la Parte CA y la Unión Europea, respectivamente. Esta acumulación solo se aplicará entre las Partes para las cuales estos acuerdos estén en vigor;
 b) los Acuerdos contemplados en la letra a) contengan disposiciones sobre acumulación equivalentes a las previstas en los apartados 7, 8, 9, 10 y 12 del presente artículo, con el fin de que las disposiciones sobre acumulación apliquen de manera recíproca entre las Repúblicas de la Parte CA, la Unión Europea y la no Parte en cuestión, respectivamente; y
-c) se hayan publicado anuncios que indiquen el cumplimiento de los requisitos necesarios para solicitar la acumulación de conformidad con los apartados 7, 8, 9, 10 y 12 del presente artículo en el Diario Oficial de la Unión Europea (serie C), en las publicaciones oficiales de las Repúblicas de la Parte CA y de los países no Parte en cuestión, de conformidad con sus propios procedimientos.
+c) se hayan publicado anuncios que indiquen el cumplimiento de los requisitos necesarios para solicitar la acumulación de conformidad con los apartados 7, 8, 9, 10 y 12 del presente artículo en las publicaciones oficiales de las Partes y de los países no Parte en cuestión, de conformidad con sus propios procedimientos.
+(Así reformado el inciso anterior por el aparte 18) sub aparte b) del anexo del Tratado Internacional, N° 9775 del 29 de octubre de 2019, “Acuerdo por el que se establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte y Centroamérica, suscrito en Managua, Nicaragua, el 18 de mes de julio de 2019; su Anexo, sus Declaraciones Conjuntas y el Entendimiento Alcanzado entre las Delegaciones de los Gobiernos del Reino Unido de Gran Bretaña e Irlanda del Norte y de las Repúblicas de Costa Rica, El Salvador, Guatemala, Honduras, Nicaragua y Panamá sobre el Apartado 8 del Anexo del Acuerdo por el que se Establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte, y Centroamérica, firmado el 18 de julio de 2019”)
 12. Las Partes podrán establecer condiciones adicionales para la aplicación de los apartados 7 al 11.
+(*)Artículo 3a
+Acumulación ampliada de origen
+1. La acumulación ampliada de origen prevista en el presente artículo se aplicará no obstante lo estipulado en el artículo 3.
+2. Los materiales originarios de la Unión Europea se considerarán como materiales originarios del Reino Unido cuando se incorporen a un producto obtenido allí. No será necesario que estos materiales hayan sido objeto de elaboraciones o transformaciones suficientes, a condición de que hayan sido objeto de elaboraciones o transformaciones que vayan más allá de las mencionadas en el artículo 6.
+3. Los materiales originarios de la Unión Europea se considerarán como materiales originarios de Centroamérica cuando se incorporen a un producto obtenido allí. No será necesario que estos materiales hayan sido objeto de elaboraciones o transformaciones suficientes, a condición de que hayan sido objeto de elaboraciones o transformaciones que vayan más allá de las mencionadas en el artículo 6.
+4. Sin perJuIcI0 de las disposiciones del artículo 2(1 ), la elaboración o la transformación realizada en la Unión Europea se considerará realizada en el Reino Unido si los materiales obtenidos se someten a una elaboración o transformación posterior en el Reino Unido que vaya más allá de las operaciones mencionadas en el artículo 6.
+5. La acumulación prevista en el presente artículo se aplicará siempre que:
+(a) los países implicados en la adquisición del carácter de originario y el país de destino tengan acuerdos de cooperación administrativa que aseguren la correcta aplicación del presente artículo;
+(b) los materiales y productos hayan adquirido el carácter de originarios mediante la aplicación de las mismas normas de origen que las previstas en el presente Anexo.
+(*) (Así adicionado el artículo 3 a) anterior por el aparte 18) sub aparte c) del anexo del Tratado Internacional, N° 9775 del 29 de octubre de 2019, “Acuerdo por el que se establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte y Centroamérica, suscrito en Managua, Nicaragua, el 18 de mes de julio de 2019; su Anexo, sus Declaraciones Conjuntas y el Entendimiento Alcanzado entre las Delegaciones de los Gobiernos del Reino Unido de Gran Bretaña e Irlanda del Norte y de las Repúblicas de Costa Rica, El Salvador, Guatemala, Honduras, Nicaragua y Panamá sobre el Apartado 8 del Anexo del Acuerdo por el que se Establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte, y Centroamérica, firmado el 18 de julio de 2019”)
 ARTÍCULO 4
 Productos enteramente obtenidos
 1. Los siguientes productos se considerarán como enteramente obtenidos en la Unión Europea o en Centroamérica:
@@ -154,13 +164,17 @@ h) artículos usados recogidos en ellos, aptos únicamente para la recuperación
 i) desperdicios y desechos procedentes de operaciones de fabricación realizadas en ellos;
 j) productos extraídos del suelo o del subsuelo marino fuera de sus aguas territoriales, siempre que tengan derechos exclusivos para explotar dicho suelo o subsuelo;
 k) las mercancías producidas en ellos exclusivamente a partir de los productos especificados de las letras a) a j).
-2. Las expresiones "sus buques" y "sus buques factoría" empleadas en el apartado 1, letras f) y g), se aplicarán solamente a los buques y buques factoría que:
-a) estén registrados en un Estado miembro de la Unión Europea o en una República de la Parte CA de conformidad con la legislación nacional de cada Parte;
-b) enarbolen la bandera de un Estado miembro de la Unión Europea o de una República de la Parte CA; y
-c) cumplan una de las siguientes condiciones:
-i) pertenezcan al menos en un 50 por ciento a nacionales de los Estados miembros de la Unión Europea o de las Repúblicas de la Parte CA, o
-ii) pertenezcan a sociedades cuya sede central y principal lugar de comercialización esté situado en un Estado miembro de la Unión Europea o en una República de la Parte CA, y que pertenezcan al menos en un 50 por ciento al Estado miembro de la Unión Europea o a una República de la Parte CA, entidades públicas o nacionales de dichos Estados.
-3. Las condiciones del apartado 2 pueden ser cumplidas en diferentes países mencionados en el artículo 3 de conformidad con las condiciones establecidas en el presente artículo.
+(*)2. Las expresiones "sus buques" y "sus buques factoría" empleadas en el apartado 1 (f) y (g), se aplicarán solamente a los buques y buques factoría que:
+(a) estén registrados en el Reino Unido o en una República de la Parte CA de conformidad con la legislación nacional de cada Parte;
+(b) enarbolen la bandera del Reino Unido o de una República de la Parte CA; y
+(c) cumplan una de las siguientes condiciones:
+(i) pertenezcan al menos en un 50 por ciento a nacionales del Reino Unido, de los Estados miembros de la Unión Europea o de las Repúblicas de la Parte CA; o
+(ii) pertenezcan a sociedades
+-cuya sede central y principal lugar de comercialización esté situado en el Reino Unido, en un Estado miembro de la Unión Europea o en una República de la Parte CA, y
+-que pertenezcan al menos en un 50 por ciento al Reino Unido, a un Estado miembro de la Unión Europea o a una República de la Parte CA, entidades públicas o nacionales de dichos Estados.
+(*) (Así reformado el inciso 4.2) anterior por el aparte 18) sub aparte d) del anexo del Tratado Internacional, N° 9775 del 29 de octubre de 2019, “Acuerdo por el que se establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte y Centroamérica, suscrito en Managua, Nicaragua, el 18 de mes de julio de 2019; su Anexo, sus Declaraciones Conjuntas y el Entendimiento Alcanzado entre las Delegaciones de los Gobiernos del Reino Unido de Gran Bretaña e Irlanda del Norte y de las Repúblicas de Costa Rica, El Salvador, Guatemala, Honduras, Nicaragua y Panamá sobre el Apartado 8 del Anexo del Acuerdo por el que se Establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte, y Centroamérica, firmado el 18 de julio de 2019”)
+3. Las condiciones del apartado 2 pueden ser cumplidas en los diferentes países mencionados en el artículo 3 de conformidad con las condiciones establecidas en el presente artículo.
+(Así reformado el inciso anterior por el aparte 18) sub aparte d) del anexo del Tratado Internacional, N° 9775 del 29 de octubre de 2019, “Acuerdo por el que se establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte y Centroamérica, suscrito en Managua, Nicaragua, el 18 de mes de julio de 2019; su Anexo, sus Declaraciones Conjuntas y el Entendimiento Alcanzado entre las Delegaciones de los Gobiernos del Reino Unido de Gran Bretaña e Irlanda del Norte y de las Repúblicas de Costa Rica, El Salvador, Guatemala, Honduras, Nicaragua y Panamá sobre el Apartado 8 del Anexo del Acuerdo por el que se Establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte, y Centroamérica, firmado el 18 de julio de 2019”)
 ARTÍCULO 5
 Productos suficientemente elaborados o transformados
 1. A efectos del artículo 2, se considerará que los productos que no son enteramente obtenidos han sido suficientemente elaborados o transformados cuando cumplan las condiciones establecidas en la lista del apéndice 2.
@@ -214,8 +228,10 @@ TÍTULO III
 REQUISITOS TERRITORIALES
 ARTÍCULO 11
 Principio de territorialidad
-1. Las condiciones establecidas en el título II del presente anexo, relativas a la adquisición del carácter originario, deberán cumplirse sin interrupción en la Unión Europea o en Centroamérica.
-2. En el caso de que las mercancías originarias exportadas desde la Unión Europea o desde Centroamérica a otro país sean devueltas, deberán considerarse no originarias, a menos que pueda demostrarse a satisfacción de las autoridades aduaneras que:
+1. Salvo lo dispuesto en el artículo 3 a las condiciones establecidas en el título II del presente anexo, relativas a la adquisición del carácter originario, deberán cumplirse sin interrupción en la Unión Europea o en Centroamérica.
+(Así reformado el inciso anterior por el aparte 18) sub aparte e) del anexo del Tratado Internacional, N° 9775 del 29 de octubre de 2019, “Acuerdo por el que se establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte y Centroamérica, suscrito en Managua, Nicaragua, el 18 de mes de julio de 2019; su Anexo, sus Declaraciones Conjuntas y el Entendimiento Alcanzado entre las Delegaciones de los Gobiernos del Reino Unido de Gran Bretaña e Irlanda del Norte y de las Repúblicas de Costa Rica, El Salvador, Guatemala, Honduras, Nicaragua y Panamá sobre el Apartado 8 del Anexo del Acuerdo por el que se Establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte, y Centroamérica, firmado el 18 de julio de 2019”)
+2. Salvo lo dispuesto en el artículo 3 a en el caso de que las mercancías originarias exportadas desde la Unión Europea o desde Centroamérica a otro país sean devueltas, deberán considerarse no originarias, a menos que pueda demostrarse a satisfacción de las autoridades aduaneras que:
+(Así reformado el inciso anterior por el aparte 18) sub aparte e) del anexo del Tratado Internacional, N° 9775 del 29 de octubre de 2019, “Acuerdo por el que se establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte y Centroamérica, suscrito en Managua, Nicaragua, el 18 de mes de julio de 2019; su Anexo, sus Declaraciones Conjuntas y el Entendimiento Alcanzado entre las Delegaciones de los Gobiernos del Reino Unido de Gran Bretaña e Irlanda del Norte y de las Repúblicas de Costa Rica, El Salvador, Guatemala, Honduras, Nicaragua y Panamá sobre el Apartado 8 del Anexo del Acuerdo por el que se Establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte, y Centroamérica, firmado el 18 de julio de 2019”)
 a) las mercancías devueltas son las mismas que fueron exportadas; y
 b) no han sufrido más operaciones de las necesarias para su conservación en buenas condiciones mientras se encontraban en ese país o mientras se exportan.
 3. La adquisición del carácter originario de conformidad con las condiciones establecidas en el título II del presente anexo no se verá afectada por la elaboración o transformación realizadas fuera de las Partes a materiales exportados a partir de la Unión Europea o de Centroamérica y reimportados posteriormente allí, siempre que:
@@ -230,8 +246,11 @@ ii) el valor agregado total adquirido fuera de las Partes por aplicación de las
 8. Cualquier elaboración o transformación del tipo contemplado por las disposiciones del presente artículo y realizadas fuera de las Partes será efectuada de conformidad con el régimen de perfeccionamiento pasivo, o regímenes similares.
 ARTÍCULO 12
 Transporte directo
-1. El trato arancelario preferencial dispuesto por el presente Acuerdo se aplica exclusivamente a los productos que satisfagan los requisitos del presente anexo transportados directamente entre las Partes. No obstante, los productos pueden ser transportados a través de otros territorios, si fuera necesario, con transbordo o depósito temporal en dichos territorios, siempre que los productos hayan permanecido bajo la vigilancia de las autoridades aduaneras del país de tránsito o de depósito y que no hayan sido sometidos a operaciones distintas de las de descarga, carga o cualquier otra destinada a mantenerlos en buena condición.
+1. El trato arancelario preferencial dispuesto por el presente Acuerdo se aplica exclusivamente a los productos que satisfagan los requisitos del presente anexo transportados directamente entre las Partes o a través de la Unión Europea(*). No obstante, los productos pueden ser transportados a través de otros territorios, si fuera necesario, con transbordo o depósito temporal en dichos territorios, siempre que los productos hayan permanecido bajo la vigilancia de las autoridades aduaneras del país de tránsito o de depósito y que no hayan sido sometidos a operaciones distintas de las de descarga, carga o cualquier otra destinada a mantenerlos en buena condición.
+(*) (Así reformado el inciso anterior por el aparte 18) sub aparte f. i) del anexo del Tratado Internacional, N° 9775 del 29 de octubre de 2019, “Acuerdo por el que se establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte y Centroamérica, suscrito en Managua, Nicaragua, el 18 de mes de julio de 2019; su Anexo, sus Declaraciones Conjuntas y el Entendimiento Alcanzado entre las Delegaciones de los Gobiernos del Reino Unido de Gran Bretaña e Irlanda del Norte y de las Repúblicas de Costa Rica, El Salvador, Guatemala, Honduras, Nicaragua y Panamá sobre el Apartado 8 del Anexo del Acuerdo por el que se Establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte, y Centroamérica, firmado el 18 de julio de 2019”)
 Los productos originarios pueden ser transportados por tubería a través de territorios diferentes a los de las Partes.
+Para evitar dudas, los envíos que se transportan a través de la Unión Europea pueden someterse a operaciones como descarga, carga, división, almacenamiento, etiquetado, marcado o cualquier otra operación destinada a mantenerlos en buena condicion, siempre que permanezcan bajo la vigilancia de las autoridades aduaneras en el Estado miembro de la Unión Europea.
+(Así adicionado el párrafo anterior por el aparte 18) sub aparte f. ii) del anexo del Tratado Internacional, N° 9775 del 29 de octubre de 2019, “Acuerdo por el que se establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte y Centroamérica, suscrito en Managua, Nicaragua, el 18 de mes de julio de 2019; su Anexo, sus Declaraciones Conjuntas y el Entendimiento Alcanzado entre las Delegaciones de los Gobiernos del Reino Unido de Gran Bretaña e Irlanda del Norte y de las Repúblicas de Costa Rica, El Salvador, Guatemala, Honduras, Nicaragua y Panamá sobre el Apartado 8 del Anexo del Acuerdo por el que se Establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte, y Centroamérica, firmado el 18 de julio de 2019”)
 2. El cumplimiento de las condiciones establecidas en el apartado 1 se podrá acreditar mediante la presentación a las autoridades aduaneras de la Parte importadora de:
 a) un documento único de transporte al amparo del cual se haya efectuado el transporte desde la Parte exportadora a través del país de tránsito; o
 b) una certificación expedida por las autoridades aduaneras del país de tránsito que contenga lo siguiente:
@@ -280,56 +299,18 @@ a) no se expidió en el momento de la exportación por errores, omisiones involu
 b) se demuestra, a satisfacción de las autoridades públicas competentes, que un certificado de circulación de mercancías EUR.1 fue expedido pero que no fue aceptado en el momento de la importación por motivos técnicos.
 2. Para la aplicación del apartado 1, el exportador deberá indicar en su solicitud el lugar y la fecha de exportación de los productos a los que se refiere el certificado de circulación de mercancías EUR.1, y manifestar las razones de su solicitud.
 3. Las autoridades públicas competentes podrán expedir a posteriori un certificado de circulación de mercancías EUR.1 solo después de verificar que la información suministrada en la solicitud del exportador coincide con la que figura en el expediente correspondiente.
-4. Los certificados de circulación de mercancías EUR.1 expedidos a posteriori deberán mencionar la frase "expedido a posteriori" en uno de los idiomas siguientes:
-BG ИЗДАДЕН ВПОСЛЕДСТВИЕ
-ES EXPEDIDO A POSTERIORI
-CS VYSTAVENO DODATEČNE
-DA UDSTEDT EFTERFØLGENDE
-DE NACHTRÄGLICH AUSGESTELLT
-ET TAGANTJÄRELE VÄLJA ANTUD
-EL ΕΚΔΟΘΕΝ ΕΚ ΤΩΝ ΥΣΤΕΡΩΝ
-EN ISSUED RETROSPECTIVELY
-FR DÉLIVRÉ A POSTERIORI
-IT RILASCIATO A POSTERIORI
-LV IZSNIEGTS RETROSPEKTĪVI
-LT RETROSPEKTYVUSIS IŠDAVIMAS
-HU KIADVA VISSZAMENŐLEGES HATÁLLYAL
-MT MAHRUG RETROSPETTIVAMENT
-NL AFGEGEVEN A POSTERIORI
-PL WYSTAWIONE RETROSPEKTYWNIE
-PT EMITIDO A POSTERIORI
-RO EMIS A POSTERIORI
-SK VYDANÉ DODATOČNE
-SL IZDANO NAKNADNO
-FI ANNETTU JÄLKIKÄTEEN
-SV UTFÄRDAT I EFTERHAND
+(*)4. Los certificados de circulación de mercancías EUR.1 expedidos a posteriori deberán mencionar la oración "expedido a posteriori" en uno de los idiomas siguientes:
+ES 'EXPEDIDO A POSTERIOR!'
+EN 'ISSUED RETROSPECTIVEL Y.
+(*) (Así reformado el inciso 4) anterior por el aparte 18) sub aparte g) del anexo del Tratado Internacional, N° 9775 del 29 de octubre de 2019, “Acuerdo por el que se establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte y Centroamérica, suscrito en Managua, Nicaragua, el 18 de mes de julio de 2019; su Anexo, sus Declaraciones Conjuntas y el Entendimiento Alcanzado entre las Delegaciones de los Gobiernos del Reino Unido de Gran Bretaña e Irlanda del Norte y de las Repúblicas de Costa Rica, El Salvador, Guatemala, Honduras, Nicaragua y Panamá sobre el Apartado 8 del Anexo del Acuerdo por el que se Establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte, y Centroamérica, firmado el 18 de julio de 2019”)
 5. La mención contemplada en el apartado 4 se insertará en la casilla "Observaciones" del certificado de circulación de mercancías EUR.1.
 ARTÍCULO 17
 Expedición de duplicados de los certificados de circulación de mercancías EUR.1
 1. En caso de robo, pérdida o destrucción de un certificado de circulación de mercancías EUR.1, el exportador podrá solicitar un duplicado a las autoridades públicas competentes que lo hayan expedido sobre la base de los documentos de exportación que obren en su poder.
-2. El duplicado expedido de esta forma deberá contener la mención "duplicado" en uno de los idiomas siguientes:
-BG ДУБЛИКАТ
-ES DUPLICADO
-CS DUPLIKÁT
-DA DUPLIKAT
-DE DUPLIKAT
-ET DUPLIKAAT
-EL ΑΝΤΙΓΡΑΦΟ
-EN DUPLICATE
-FR DUPLICATA
-IT DUPLICATO
-LV DUBLIKĀTS
-LT DUBLIKATAS
-HU MÁSODLAT
-MT DUPLIKAT
-NL DUPLICAAT
-PL DUPLIKAT
-PT SEGUNDA VIA
-RO DUPLICAT
-SK DUPLIKÁT
-SL DVOJNIK
-FI KAKSOISKAPPALE
-SV DUPLIKAT
+(*)2. El duplicado expedido de esta forma deberá contener la mención "duplicado" en uno de los idiomas siguientes:
+ES 'DUPLICADO'
+EN 'DUPLICATE".
+(*) (Así reformado el inciso 2) anterior por el aparte 18) sub aparte h) del anexo del Tratado Internacional, N° 9775 del 29 de octubre de 2019, “Acuerdo por el que se establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte y Centroamérica, suscrito en Managua, Nicaragua, el 18 de mes de julio de 2019; su Anexo, sus Declaraciones Conjuntas y el Entendimiento Alcanzado entre las Delegaciones de los Gobiernos del Reino Unido de Gran Bretaña e Irlanda del Norte y de las Repúblicas de Costa Rica, El Salvador, Guatemala, Honduras, Nicaragua y Panamá sobre el Apartado 8 del Anexo del Acuerdo por el que se Establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte, y Centroamérica, firmado el 18 de julio de 2019”)
 3. La mención contemplada en el apartado 2 se insertará en la casilla "Observaciones" del duplicado del certificado de circulación de mercancías EUR.1.
 4. El duplicado, en el que deberá figurar la fecha de expedición del certificado de circulación de mercancías EUR.1 original, producirá efectos a partir de esa fecha.
 ARTÍCULO 18
@@ -396,7 +377,8 @@ ARTÍCULO 28
 Importes expresados en euros
 1. Para la aplicación de las disposiciones del artículo 19, apartado 1, letra b), y el artículo 24, apartado 3, en los casos en que los productos se facturen en una moneda distinta del euro, los importes en las monedas nacionales de los Estados miembros de la Unión Europea o de las Repúblicas de la Parte CA equivalentes a los importes expresados en euros serán fijados anualmente por cada Estado miembro de la Unión Europea o la República de la Parte CA en cuestión.
 2. Un envío se beneficiará de las disposiciones del artículo 19, apartado 1, letra b), o del artículo 24, apartado 3, respecto a la moneda en que se haya emitido la factura, según el importe fijado por el Estado miembro de la Unión Europea o la República de la Parte CA en cuestión.
-3. Los importes que se habrán de utilizar en cualquier moneda nacional determinada serán el equivalente en esa moneda nacional de los importes expresados en euros el primer día laborable del mes de octubre. Los importes se notificarán a la Comisión Europea antes del 15 de octubre y se aplicarán a partir del 1 de enero del siguiente año. La Comisión Europea notificará los importes correspondientes a los Estados miembros de la Unión Europea y las Repúblicas de la Parte CA en cuestión.
+3. Los importes que se utilizarán en cualquier moneda nacional determinada serán el equivalente en esa moneda nacional de los importes expresados en euros el primer día laborable del mes de octubre. Los importes se notificarán antes del 15 de octubre, y se aplicarán a partir del 1 de enero del siguiente año. Las Partes se notificarán mutuamente los importes correspondientes.
+(Así reformado el inciso anterior por el aparte 18) sub aparte i) del anexo del Tratado Internacional, N° 9775 del 29 de octubre de 2019, “Acuerdo por el que se establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte y Centroamérica, suscrito en Managua, Nicaragua, el 18 de mes de julio de 2019; su Anexo, sus Declaraciones Conjuntas y el Entendimiento Alcanzado entre las Delegaciones de los Gobiernos del Reino Unido de Gran Bretaña e Irlanda del Norte y de las Repúblicas de Costa Rica, El Salvador, Guatemala, Honduras, Nicaragua y Panamá sobre el Apartado 8 del Anexo del Acuerdo por el que se Establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte, y Centroamérica, firmado el 18 de julio de 2019”)
 4. Los Estados miembros de la Unión Europea y las Repúblicas de la Parte CA podrán redondear al alza o a la baja el importe resultante de la conversión a su moneda nacional de un importe expresado en euros. El importe redondeado no podrá diferir del importe resultante de la conversión en más del 5 por ciento. Un Estado miembro de la Unión Europea o una República de la Parte CA podrá mantener sin cambios el contravalor en moneda nacional de un importe expresado en euros si, en el momento de la adaptación anual prevista en el apartado 3, la conversión de ese importe, antes de redondearlo, resulta en un aumento inferior al 15 por ciento de contravalor en moneda nacional. El contravalor en moneda nacional se podrá mantener sin cambios si la conversión diera lugar a una disminución de ese valor equivalente.
 5. Los importes expresados en euros serán revisados por el Comité de Asociación a petición de una Parte. Al realizar esa revisión, el Comité de Asociación considerará la conveniencia de preservar los efectos de los límites relacionados en términos reales. Para tal efecto, podrá decidir la modificación de los importes expresados en euros.
 TÍTULO V
@@ -404,6 +386,7 @@ DISPOSICIONES DE COOPERACIÓN ADMINISTRATIVA
 ARTÍCULO 29
 Cooperación administrativa
 1. Las autoridades públicas competentes de las Partes se suministraran mutuamente, a través de la Comisión Europea, los modelos de sellos utilizados por sus oficinas para la expedición de los certificados de circulación de mercancías EUR.1, así como las direcciones de las autoridades públicas competentes responsables de la verificación de estos certificados y de las declaraciones en factura.
+(Nota de Sinalevi: Mediante el aparte 18) sub aparte j) del anexo del Tratado Internacional, N° 9775 del 29 de octubre de 2019, “Acuerdo por el que se establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte y Centroamérica, suscrito en Managua, Nicaragua, el 18 de mes de julio de 2019; su Anexo, sus Declaraciones Conjuntas y el Entendimiento Alcanzado entre las Delegaciones de los Gobiernos del Reino Unido de Gran Bretaña e Irlanda del Norte y de las Repúblicas de Costa Rica, El Salvador, Guatemala, Honduras, Nicaragua y Panamá sobre el Apartado 8 del Anexo del Acuerdo por el que se Establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte, y Centroamérica, firmado el 18 de julio de 2019”, se acordó indicar que la frase", a través de la Comisión Europea," contenido en el párrafo anterior no se incorpora al Acuerdo anteriormente referido)
 2. Con el fin de asegurar la correcta aplicación del presente anexo, las Partes se prestarán asistencia mutua, a través de las autoridades públicas competentes o, cuando sea aplicable, las autoridades aduaneras, sobre la verificación de la autenticidad de los certificados de circulación de mercancías EUR.1 o las declaraciones en factura y la exactitud de la información recogida en dichos documentos.
 ARTÍCULO 30
 Verificación de las pruebas de origen
@@ -428,10 +411,9 @@ TÍTULO VI
 CEUTA Y MELILLA
 Artículo 34
 Aplicación del presente anexo
-1. El término "Unión Europea" utilizado en el artículo 2 no incluye a Ceuta y Melilla.
-2. Los productos originarios de Centroamérica, cuando sean importados en Ceuta o Melilla, disfrutarán en todos los aspectos, del mismo régimen aduanero que el aplicado a los productos originarios del territorio aduanero de la Unión Europea en virtud del Protocolo 2 del Acta de Adhesión del Reino de España y de la República Portuguesa a las Comunidades Europeas. Las Repúblicas de la Parte CA concederán a las importaciones de los productos cubiertos por el Acuerdo originarias de Ceuta y Melilla el mismo régimen aduanero que se concede a los productos importados y originarios de la Unión Europea.
-3. A los efectos de la aplicación del apartado 2 relativo a los productos originarios de Ceuta y Melilla, el presente anexo se aplicará, mutatis mutandis, en las condiciones especiales establecidas en el artículo35.
-ARTÍCULO 35
+El término "Unión Europea" utilizado en el presente Anexo no incluye a Ceuta y Melilla. Los productos originarios de Ceuta y Melilla no se consideran productos originarios de la Unión Europea.
+(Así reformado el artículo 34) anterior por el aparte 18) sub aparte k) del anexo del Tratado Internacional, N° 9775 del 29 de octubre de 2019, “Acuerdo por el que se establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte y Centroamérica, suscrito en Managua, Nicaragua, el 18 de mes de julio de 2019; su Anexo, sus Declaraciones Conjuntas y el Entendimiento Alcanzado entre las Delegaciones de los Gobiernos del Reino Unido de Gran Bretaña e Irlanda del Norte y de las Repúblicas de Costa Rica, El Salvador, Guatemala, Honduras, Nicaragua y Panamá sobre el Apartado 8 del Anexo del Acuerdo por el que se Establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte, y Centroamérica, firmado el 18 de julio de 2019”)
+ARTÍCULO 35(*)
 Condiciones especiales
 1. Siempre que hayan sido transportados directamente de conformidad con las disposiciones del artículo 12, los siguientes serán considerados como:
 a) productos originarios de Ceuta y Melilla:
@@ -443,6 +425,7 @@ ii) los productos obtenidos en Centroamérica, en cuya fabricación se hayan uti
 2. Ceuta y Melilla serán consideradas un territorio único.
 3. El exportador o su representante autorizado consignarán "Centroamérica" y "Ceuta y Melilla" en la casilla 2 de los certificados de circulación de mercancías EUR.1 o en las declaraciones en factura. Además, en el caso de los productos originarios de Ceuta y Melilla, su carácter originario deberá indicarse en la casilla 4 de los certificados de circulación de mercancías EUR.1 o en las declaraciones en factura.
 4. Las autoridades aduaneras españolas serán responsables de la aplicación del presente anexo en Ceuta y Melilla.
+(*) (Nota de Sinalevi: Mediante el aparte 18) sub aparte l) del anexo del Tratado Internacional, N° 9775 del 29 de octubre de 2019, “Acuerdo por el que se establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte y Centroamérica, suscrito en Managua, Nicaragua, el 18 de mes de julio de 2019; su Anexo, sus Declaraciones Conjuntas y el Entendimiento Alcanzado entre las Delegaciones de los Gobiernos del Reino Unido de Gran Bretaña e Irlanda del Norte y de las Repúblicas de Costa Rica, El Salvador, Guatemala, Honduras, Nicaragua y Panamá sobre el Apartado 8 del Anexo del Acuerdo por el que se Establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte, y Centroamérica, firmado el 18 de julio de 2019”, se acordó que el numeral 35 anterior no se incorpora al Acuerdo anteriormente referido)
 TÍTULO VII
 DISPOSICIONES FINALES
 ARTÍCULO 36
@@ -456,7 +439,8 @@ Disposiciones transitorias para productos en tránsito o almacenamiento
 Las disposiciones del presente Acuerdo podrán ser aplicadas a los productos que cumplan las disposiciones del presente anexo y que, en la fecha de entrada en vigor del presente Acuerdo, se encuentren en tránsito o en almacenamiento temporal en depósitos aduaneros en las Partes o en zonas francas, a condición de que se presente a las autoridades aduaneras de la Parte importadora, dentro de los cuatro meses a partir de esa fecha, una prueba de origen expedida a posteriori, junto con los documentos que demuestren que las mercancías han sido transportadas directamente de conformidad con el artículo 12.
 ARTÍCULO 39
 Disposición transitoria a efectos de acumulación
-Las Partes para las que el presente Acuerdo haya entrado en vigor de conformidad con el artículo 353 de la parte V (Disposiciones finales), pueden utilizar materiales originarios de las Repúblicas de la Parte CA para las que el Acuerdo no haya entrado aún en vigor. El artículo 3 del presente anexo se aplicará mutatis mutandis.
+Las Partes para las que el presente Acuerdo haya entrado en vigor de conformidad con el artículo 353(*) de la parte V (Disposiciones finales), pueden utilizar materiales originarios de las Repúblicas de la Parte CA para las que el Acuerdo no haya entrado aún en vigor. El artículo 3 del presente anexo se aplicará mutatis mutandis.
+(*) (Nota de Sinalevi: Mediante el aparte 16) sub aparte b) del anexo del Tratado Internacional, N° 9775 del 29 de octubre de 2019, “Acuerdo por el que se establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte y Centroamérica, suscrito en Managua, Nicaragua, el 18 de mes de julio de 2019; su Anexo, sus Declaraciones Conjuntas y el Entendimiento Alcanzado entre las Delegaciones de los Gobiernos del Reino Unido de Gran Bretaña e Irlanda del Norte y de las Repúblicas de Costa Rica, El Salvador, Guatemala, Honduras, Nicaragua y Panamá sobre el Apartado 8 del Anexo del Acuerdo por el que se Establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte, y Centroamérica, firmado el 18 de julio de 2019”, se acordó indicar que no se incorpora al presente Acuerdo ni el artículo 353 ni tampoco referencia alguna al artículo 353)
 APÉNDICE 1
 NOTAS INTRODUCTORIAS DEL ANEXO II
 NOTA 1:
@@ -578,12 +562,13 @@ PUEDA OBTENER EL CARÁCTER ORIGINARIO
 Los productos mencionados en la lista pueden no estar todos cubiertos por el Acuerdo.
 Por lo tanto, es necesario consultar a las otras partes del presente Acuerdo.
 Lista de las elaboraciones o transformaciones que deben aplicarse a los materiales no originarios para que el producto transformado pueda obtener el caracter originario
-APÉNDICE 2 A
+APÉNDICE 2 A(*)
 ADDENDUM DE LA LISTA DE LAS ELABORACIONES O TRANSFORMACIONES QUE
 DEBEN APLICARSE A LOS MATERIALES NO ORIGINARIOS
 PARA QUE EL PRODUCTO TRANSFORMADO
 PUEDA OBTENER EL CARÁCTER ORIGINARIO
 DISPOSICIONES COMUNES
+(*) (Nota de Sinalevi: Mediante el aparte 18) sub aparte m.xiii) del anexo del Tratado Internacional, N° 9775 del 29 de octubre de 2019, “Acuerdo por el que se establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte y Centroamérica, suscrito en Managua, Nicaragua, el 18 de mes de julio de 2019; su Anexo, sus Declaraciones Conjuntas y el Entendimiento Alcanzado entre las Delegaciones de los Gobiernos del Reino Unido de Gran Bretaña e Irlanda del Norte y de las Repúblicas de Costa Rica, El Salvador, Guatemala, Honduras, Nicaragua y Panamá sobre el Apartado 8 del Anexo del Acuerdo por el que se Establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte, y Centroamérica, firmado el 18 de julio de 2019”, en relación al apéndice 2 A anterior se indicó que para evitar dudas, si la entrada en vigor del presente Acuerdo corresponde a una fecha posterior al 1 de enero y hasta el 31 de diciembre inclusive del mismo año calendario, los contingentes anuales del apéndice 2 A del Anexo 11 del presente Acuerdo (con las modificaciones introducidas por el presente Anexo) se aplicarán de manera prorrateada durante el resto de dicho año calendario.)
 1. Para los productos que se describen a continuación, también pueden aplicarse las siguientes normas en lugar de las fijadas en el apéndice 2 (Lista de las elaboraciones o transformaciones que deben aplicarse a los materiales no originarios para que el producto transformado pueda obtener el carácter originario) para determinar si un producto es originario de Centroamérica.
 2. Cuando un producto está cubierto por una norma de origen objeto de contingentes, la prueba de origen de dicho producto contendrá la siguiente declaración: "Producto originario de conformidad con el apéndice 2A del anexo II (Relativo a la definición del concepto de "productos originarios" y métodos de cooperación administrativa)".
 3. Las Repúblicas de la Parte CA acordarán la distribución de los contingentes regionales establecidos en las notas 1 y 2, así como los contingentes pertinentes de la nota 6 del presente apéndice, y, sobre esa base, cada República de la Parte CA expedirá los certificados de exportación correspondientes.
@@ -594,13 +579,11 @@ DISPOSICIONES COMUNES
 NOTA 1
 1. Para los productos de la partida ex 1604 (Atunes, listados y bonitos (Sarda spp.)) exportados desde Centroamérica a la Unión Europea, podrán utilizarse, por un periodo de tres años a partir de la entrada en vigor del presente Acuerdo, los materiales del capítulo 03 originarios de Chile o México de conformidad con las normas de origen aplicables como si dichos materiales fueran exportados directamente a la Unión Europea. Seis meses antes de la expiración de dicho periodo de tres años, las Partes mantendrán consultas para examinar si se encuentran listos los procedimientos administrativos necesarios para solicitar la acumulación prevista en el artículo 3, apartado 7, del anexo II (Relativo a la definición del concepto de "productos originarios" y métodos de cooperación administrativa) de la parte IV del presente Acuerdo.
 Además, para estos productos exportados desde Centroamérica a la Unión Europea, el valor establecido en el artículo 5, apartado 2, letra a), del anexo II no excederá del 15 por ciento del precio franco fábrica del producto.
-2. Para los productos de la partida ex 1604 (lomos de atún) la siguiente norma conferirá origen a las mercancías exportadas desde Centroamérica a la Unión Europea dentro del contingente anual de 4,000 toneladas métricas: Fabricación a partir de materiales del capítulo 03
+2. Para los productos de la partida ex 1604 (lomos de atún) la siguiente norma conferirá origen a las mercancías exportadas desde Centroamérica a la Unión Europea dentro del contingente anual de 545(*) toneladas métricas: Fabricación a partir de materiales del capítulo 03
+(*) Así reformado por el el aparte 18) sub aparte m.i) del anexo del Tratado Internacional, N° 9775 del 29 de octubre de 2019, “Acuerdo por el que se establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte y Centroamérica, suscrito en Managua, Nicaragua, el 18 de mes de julio de 2019; su Anexo, sus Declaraciones Conjuntas y el Entendimiento Alcanzado entre las Delegaciones de los Gobiernos del Reino Unido de Gran Bretaña e Irlanda del Norte y de las Repúblicas de Costa Rica, El Salvador, Guatemala, Honduras, Nicaragua y Panamá sobre el Apartado 8 del Anexo del Acuerdo por el que se Establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte, y Centroamérica, firmado el 18 de julio de 2019”)
 NOTA 2
-Para los productos de la partida 3920 (Las demás placas, láminas, hojas y tiras, de
-plástico no celular y sin refuerzo, estratificación ni soporte o combinación similar con otras
-materias), la siguiente norma conferirá origen a las mercancías exportadas desde
-Centroamérica a la Unión Europea dentro del contingente anual de 5,000 toneladas
-métricas:
+Para los productos de la partida 3920 (Las demás placas, láminas, hojas y tiras, de plástico no celular y sin refuerzo, estratificación ni soporte o combinación similar con otras materias), la siguiente norma conferirá origen a las mercancías exportadas desde Centroamérica a la Unión Europea dentro del contingente anual de 681(*) toneladas métricas:
+(*) Así reformado por el el aparte 18) sub aparte m.ii) del anexo del Tratado Internacional, N° 9775 del 29 de octubre de 2019, “Acuerdo por el que se establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte y Centroamérica, suscrito en Managua, Nicaragua, el 18 de mes de julio de 2019; su Anexo, sus Declaraciones Conjuntas y el Entendimiento Alcanzado entre las Delegaciones de los Gobiernos del Reino Unido de Gran Bretaña e Irlanda del Norte y de las Repúblicas de Costa Rica, El Salvador, Guatemala, Honduras, Nicaragua y Panamá sobre el Apartado 8 del Anexo del Acuerdo por el que se Establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte, y Centroamérica, firmado el 18 de julio de 2019”)
 Fabricación a partir de materiales de cualquier partida.
 NOTA 3
 Para los productos de las partidas 4810, ex 4811, 4816, 4817, ex 4818, ex 4819, ex 4820 y ex 4823, las siguientes normas conferirán origen en el caso de un incremento superior al 0 por ciento de los aranceles consolidados de la Unión Europea ante la OMC aplicables a los siguientes productos:
@@ -621,170 +604,179 @@ a) Para los productos de la partida 6115 [Calzas, panty-medias, leotardos, calce
 Fabricación a partir de materiales de cualquier partida, excepto a partir de la misma partida que el producto.
 Esta norma conferirá origen a las mercancías exportadas desde Centroamérica Unión Europea en los siguientes contingentes anuales por cada país:
 País | Unidades (pares)
-Costa Rica | 4 000 000
-El Salvador | 2 500 000
-Honduras | 7 000 000
-Panamá | 1 500 000
+Costa Rica | 544 800
+El Salvador | 340 500
+Honduras | 953 400
+Panamá | 204 300
+(Así reformada la table anterior por el aparte 18) sub aparte m.iii) del anexo del Tratado Internacional, N° 9775 del 29 de octubre de 2019, “Acuerdo por el que se establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte y Centroamérica, suscrito en Managua, Nicaragua, el 18 de mes de julio de 2019; su Anexo, sus Declaraciones Conjuntas y el Entendimiento Alcanzado entre las Delegaciones de los Gobiernos del Reino Unido de Gran Bretaña e Irlanda del Norte y de las Repúblicas de Costa Rica, El Salvador, Guatemala, Honduras, Nicaragua y Panamá sobre el Apartado 8 del Anexo del Acuerdo por el que se Establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte, y Centroamérica, firmado el 18 de julio de 2019”)
 b) Para los productos de los capítulos 61 y 62 especificados en las letras c) y d): Fabricación a partir de materiales de cualquier partida, excepto a partir de materiales de la misma partida que el producto.
 Esta norma conferirá origen a las mercancías exportadas desde Centroamérica a la Unión Europea en los siguientes contingentes anuales por cada país:
 País | Unidades
 | Año 1 (entrada en vigor) | Año 2 | Año 3 | Año 4 | Año 5 | A partir del año 6
-Costa Rica | 7 000 000 | 7 630 000 | 8 260 000 | 8 890 000 | 8 520 000 | 10 150 000
-El Salvador | 9 000 000 | 10 157 500 | 11 315 000 | 12 472 500 | 13 630 000 | 14 787 500
-Guatemala | 7 000 000 | 7 630 000 | 8 260 000 | 8 890 000 | 9 520 000 | 10 150 000
-Honduras | 54 750 000 | 59 130 000 | 63 510 000 | 67 890 000 | 72 270 000 | 76 650 000
-Nicaragua | 8 750 000 | 9 537 500 | 10 325 000 | 11 112 500 | 11 900 000 | 12 687 500
-Panamá | 3 500 000 | 3 815 000 | 4 130 000 | 4 445 000 | 4 760 000 | 5 075 000
-Total | 90 000 000 | 97 900 000 | 105 800 000 | 113 700 000 | 121 600 000 | 129 500 000
+Costa Rica | 7 000 000 | 7 630 000 | 8 260 000 | 8 890 000 | 8 520 000 | 1 382 431(*)
+El Salvador | 9 000 000 | 10 157 500 | 11 315 000 | 12 472 500 | 13 630 000 | 2 014 057(*)
+Guatemala | 7 000 000 | 7 630 000 | 8 260 000 | 8 890 000 | 9 520 000 | 1 382 429(*)
+Honduras | 54 750 000 | 59 130 000 | 63 510 000 | 67 890 000 | 72 270 000 | 10 439 730(*)
+Nicaragua | 8 750 000 | 9 537 500 | 10 325 000 | 11 112 500 | 11 900 000 | 1 728 037(*)
+Panamá | 3 500 000 | 3 815 000 | 4 130 000 | 4 445 000 | 4 760 000 | 691 217(*)
+Total | 90 000 000 | 97 900 000 | 105 800 000 | 113 700 000 | 121 600 000 | 17 637 901(*)
+(*) (Así reformada la table anterior correspondiente a partir del año 6 por el aparte 18) sub aparte m. iv) del anexo del Tratado Internacional, N° 9775 del 29 de octubre de 2019, “Acuerdo por el que se establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte y Centroamérica, suscrito en Managua, Nicaragua, el 18 de mes de julio de 2019; su Anexo, sus Declaraciones Conjuntas y el Entendimiento Alcanzado entre las Delegaciones de los Gobiernos del Reino Unido de Gran Bretaña e Irlanda del Norte y de las Repúblicas de Costa Rica, El Salvador, Guatemala, Honduras, Nicaragua y Panamá sobre el Apartado 8 del Anexo del Acuerdo por el que se Establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte, y Centroamérica, firmado el 18 de julio de 2019”)
 c) Para Costa Rica, Guatemala, Honduras y Panamá, las cantidades indicadas en el apartado 1, letra b), se distribuirán según se indica en los siguientes cuadros:
 COSTA RICA
 SA | Año 1 | Año 2 | Año 3 | Año 4 | Año 5 | A partir de año 6
-Total de unidades por año | 7 000 000 | 7 630 000 | 8 260 000 | 8 890 000 | 9 520 000 | 10 150 000
-610343 | 200 000 | 218 000 | 236 000 | 254 000 | 272 000 | 290 000
-610510 | 600 000 | 654 000 | 708 000 | 762 000 | 816 000 | 870 000
-610590 | 120 000 | 130 800 | 141 600 | 152 400 | 163 200 | 174 000
-610610 | 450 000 | 490 500 | 531 000 | 571 500 | 612 000 | 652 500
-610711 | 235 000 | 256 150 | 277 300 | 298 450 | 319 600 | 340 750
-610719 | 70 000 | 76 300 | 82 600 | 88 900 | 95 200 | 101 500
-610821 | 47 000 | 51 230 | 55 460 | 59 690 | 63 920 | 68 150
-610822 | 25 000 | 27 250 | 29 500 | 31 750 | 34 000 | 36 250
-610910 | 1 860 000 | 2 027 400 | 2 194 800 | 2 362 200 | 2 529 600 | 2 697 000
-611120 | 200 000 | 218 000 | 236 000 | 254 000 | 272 000 | 290 000
-611241 | 50 000 | 54 500 | 59 000 | 63 500 | 68 000 | 72 500
-611430 | 30 000 | 32 700 | 35 400 | 38 100 | 40 800 | 43 500
-611780 | 20 000 | 21 800 | 23 600 | 25 400 | 27 200 | 29 000
-620113 | 8 000 | 8 720 | 9 440 | 10 160 | 10 880 | 11 600
-620213 | 15 000 | 16 350 | 17 700 | 19 050 | 20 400 | 21 750
-620311 | 350 000 | 381 500 | 413 000 | 444 500 | 476 000 | 507 500
-620312 | 350 000 | 381 500 | 413 000 | 444 500 | 476 000 | 507 500
-620331 | 175 000 | 190 750 | 206 500 | 222 250 | 238 000 | 253 750
-620333 | 265 000 | 288 850 | 312 700 | 336 550 | 360 400 | 384 250
-COSTA RICA
-HS | Año 1 | Año 2 | Año 3 | Año 4 | Año 5 | A partir de año 6
-620341 | 500 000 | 545 000 | 590 000 | 635 000 | 680 000 | 725 000
-620343 | 520 000 | 566 800 | 613 600 | 660 400 | 707 200 | 754 000
-620431 | 175 000 | 190 750 | 206 500 | 222 250 | 238 000 | 253 750
-620433 | 165 000 | 179 850 | 194 700 | 209 550 | 224 400 | 239 250
-620453 | 30 000 | 32 700 | 35 400 | 38 100 | 40 800 | 43 500
-620461 | 70 000 | 76 300 | 82 600 | 88 900 | 95 200 | 101 500
-620463 | 280 000 | 305 200 | 330 400 | 355 600 | 380 800 | 406 000
-621133 | 45 000 | 49 050 | 53 100 | 57 150 | 61 200 | 62 250
-621143 | 45 000 | 49 050 | 53 100 | 57 150 | 61 200 | 62 250
-621210 | 100 000 | 109 000 | 118 000 | 127 000 | 136 000 | 145 000
+Total de unidades por año | 7 000 000 | 7 630 000 | 8 260 000 | 8 890 000 | 9 520 000 | 1382 431(*)
+610343 | 200 000 | 218 000 | 236 000 | 254 000 | 272 000 | 39 498(*)
+610510 | 600 000 | 654 000 | 708 000 | 762 000 | 816 000 | 118 498(*)
+610590 | 120 000 | 130 800 | 141 600 | 152 400 | 163 200 | 23 699(*)
+610610 | 450 000 | 490 500 | 531 000 | 571 500 | 612 000 | 88 870(*)
+610711 | 235 000 | 256 150 | 277 300 | 298 450 | 319 600 | 46 410(*)
+610719 | 70 000 | 76 300 | 82 600 | 88 900 | 95 200 | 13 824(*)
+610821 | 47 000 | 51 230 | 55 460 | 59 690 | 63 920 | 9 282(*)
+610822 | 25 000 | 27 250 | 29 500 | 31 750 | 34 000 | 4 937(*)
+610910 | 1 860 000 | 2 027 400 | 2 194 800 | 2 362 200 | 2 529 600 | 367 331(*)
+611120 | 200 000 | 218 000 | 236 000 | 254 000 | 272 000 | 39 498(*)
+611241 | 50 000 | 54 500 | 59 000 | 63 500 | 68 000 | 9 875(*)
+611430 | 30 000 | 32 700 | 35 400 | 38 100 | 40 800 | 5 925(*)
+611780 | 20 000 | 21 800 | 23 600 | 25 400 | 27 200 | 3 950(*)
+620113 | 8 000 | 8 720 | 9 440 | 10 160 | 10 880 | 1 580(*)
+620213 | 15 000 | 16 350 | 17 700 | 19 050 | 20 400 | 2 962(*)
+620311 | 350 000 | 381 500 | 413 000 | 444 500 | 476 000 | 69 122(*)
+620312 | 350 000 | 381 500 | 413 000 | 444 500 | 476 000 | 69 122(*)
+620331 | 175 000 | 190 750 | 206 500 | 222 250 | 238 000 | 34 561(*)
+620333 | 265 000 | 288 850 | 312 700 | 336 550 | 360 400 | 52 335(*)
+620341 | 500 000 | 545 000 | 590 000 | 635 000 | 680 000 | 98 745(*)
+620343 | 520 000 | 566 800 | 613 600 | 660 400 | 707 200 | 102 695(*)
+620431 | 175 000 | 190 750 | 206 500 | 222 250 | 238 000 | 34 561(*)
+620433 | 165 000 | 179 850 | 194 700 | 209 550 | 224 400 | 32 586(*)
+620453 | 30 000 | 32 700 | 35 400 | 38 100 | 40 800 | 5 925(*)
+620461 | 70 000 | 76 300 | 82 600 | 88 900 | 95 200 | 13 824(*)
+620463 | 280 000 | 305 200 | 330 400 | 355 600 | 380 800 | 55 297(*)
+621133 | 45 000 | 49 050 | 53 100 | 57 150 | 61 200 | 8 887(*)
+621143 | 45 000 | 49 050 | 53 100 | 57 150 | 61 200 | 8 887(*)
+621210 | 100 000 | 109 000 | 118 000 | 127 000 | 136 000 | 19 749(*)
+(*) (Así reformada la table anterior correspondiente a partir del año 6 para la distribución de Costa Rica por el aparte 18) sub aparte m. v) del anexo del Tratado Internacional, N° 9775 del 29 de octubre de 2019, “Acuerdo por el que se establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte y Centroamérica, suscrito en Managua, Nicaragua, el 18 de mes de julio de 2019; su Anexo, sus Declaraciones Conjuntas y el Entendimiento Alcanzado entre las Delegaciones de los Gobiernos del Reino Unido de Gran Bretaña e Irlanda del Norte y de las Repúblicas de Costa Rica, El Salvador, Guatemala, Honduras, Nicaragua y Panamá sobre el Apartado 8 del Anexo del Acuerdo por el que se Establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte, y Centroamérica, firmado el 18 de julio de 2019”)
 GUATEMALA
 SA | Año 1 | Año 2 | Año 3 | Año 4 | Año 5 | A partir de año 6
-Total de unidades por año | 7 000 000 | 7 630 000 | 8 260 000 | 8 890 000 | 9 520 000 | 10 150 000
-610462 | 1 050 000 | 1 144 500 | 1 239 000 | 1 333 500 | 1 428 000 | 1 522 500
-610520 | 3 500 000 | 3 815 000 | 4 130 000 | 4 445 000 | 4 760 000 | 5 075 000
-620342 | 1 050 000 | 1 144 500 | 1 239 000 | 1 333 500 | 1 428 000 | 1 522 500
-620343 | 700 000 | 763 000 | 826 000 | 889 000 | 952 000 | 1 015 000
-620462 | 700 000 | 763 000 | 826 000 | 889 000 | 952 000 | 1 015 000
+Total de unidades por año | 7 000 000 | 7 630 000 | 8 260 000 | 8 890 000 | 9 520 000 | 1 382 429(*)
+610462 | 1 050 000 | 1 144 500 | 1 239 000 | 1 333 500 | 1 428 000 | 207 364(*)
+610520 | 3 500 000 | 3 815 000 | 4 130 000 | 4 445 000 | 4 760 000 | 691 215(*)
+620342 | 1 050 000 | 1 144 500 | 1 239 000 | 1 333 500 | 1 428 000 | 207 364(*)
+620343 | 700 000 | 763 000 | 826 000 | 889 000 | 952 000 | 138 243(*)
+620462 | 700 000 | 763 000 | 826 000 | 889 000 | 952 000 | 138 243(*)
+(*) (Así reformada la table anterior correspondiente a partir del año 6 para cada una de las entradas del código SA pertinente de la columna de distribución de Guatemala por el aparte 18) sub aparte m. vi) del anexo del Tratado Internacional, N° 9775 del 29 de octubre de 2019, “Acuerdo por el que se establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte y Centroamérica, suscrito en Managua, Nicaragua, el 18 de mes de julio de 2019; su Anexo, sus Declaraciones Conjuntas y el Entendimiento Alcanzado entre las Delegaciones de los Gobiernos del Reino Unido de Gran Bretaña e Irlanda del Norte y de las Repúblicas de Costa Rica, El Salvador, Guatemala, Honduras, Nicaragua y Panamá sobre el Apartado 8 del Anexo del Acuerdo por el que se Establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte, y Centroamérica, firmado el 18 de julio de 2019”)
 HONDURAS
 SA | Año 1 | Año 2 | Año 3 | Año 4 | Año 5 | A partir de año 6
-Total de unidades por año | 54 750 000 | 59 130 000 | 63 510 000 | 67 890 000 | 72 270 000 | 76 650 000
-620520 | 11 000 000 | 11 880 000 | 12 760 000 | 13 640 000 | 14 520 000 | 15 400 000
-620530 | 13 750 000 | 14 850 000 | 15 950 000 | 17 050 000 | 18 150 000 | 19 250 000
-620590 | 1 000 000 | 1 080 000 | 1 160 000 | 1 240 000 | 1 320 000 | 1 400 000
-620630 | 10 000 000 | 10 800 000 | 11 600 000 | 12 400 000 | 13 200 000 | 14 000 000
-620640 | 13 000 000 | 14 040 000 | 15 080 000 | 16 120 000 | 17 160 000 | 18 200 000
-620690 | 1 000 000 | 1 080 000 | 1 160 000 | 1 240 000 | 1 320 000 | 1 400 000
-621210 | 5 000 000 | 5 400 000 | 5 800 000 | 6 200 000 | 6 600 000 | 7 000 000
+Total de unidades por año | 54 750 000 | 59 130 000 | 63 510 000 | 67 890 000 | 72 270 000 | 10 439 730(*)
+620520 | 11 000 000 | 11 880 000 | 12 760 000 | 13 640 000 | 14 520 000 | 2 097 480(*)
+620530 | 13 750 000 | 14 850 000 | 15 950 000 | 17 050 000 | 18 150 000 | 2 621 850(*)
+620590 | 1 000 000 | 1 080 000 | 1 160 000 | 1 240 000 | 1 320 000 | 190 680(*)
+620630 | 10 000 000 | 10 800 000 | 11 600 000 | 12 400 000 | 13 200 000 | 1 906 800(*)
+620640 | 13 000 000 | 14 040 000 | 15 080 000 | 16 120 000 | 17 160 000 | 2 478 840(*)
+620690 | 1 000 000 | 1 080 000 | 1 160 000 | 1 240 000 | 1 320 000 | 190 680(*)
+621210 | 5 000 000 | 5 400 000 | 5 800 000 | 6 200 000 | 6 600 000 | 953 400(*)
+(*) (Así reformada la table anterior correspondiente a partir del año 6 para cada una de las entradas del código SA pertinente de la columna de distribución de Honduras por el aparte 18) sub aparte m. vii) del anexo del Tratado Internacional, N° 9775 del 29 de octubre de 2019, “Acuerdo por el que se establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte y Centroamérica, suscrito en Managua, Nicaragua, el 18 de mes de julio de 2019; su Anexo, sus Declaraciones Conjuntas y el Entendimiento Alcanzado entre las Delegaciones de los Gobiernos del Reino Unido de Gran Bretaña e Irlanda del Norte y de las Repúblicas de Costa Rica, El Salvador, Guatemala, Honduras, Nicaragua y Panamá sobre el Apartado 8 del Anexo del Acuerdo por el que se Establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte, y Centroamérica, firmado el 18 de julio de 2019”)
 PANAMA
 SA | Año 1 | Año 2 | Año 3 | Año 4 | Año 5 | A partir de año 6
-Total de unidades por año | 3 500 000 | 3 815 000 | 4 130 000 | 4 445 000 | 4 760 000 | 5 075 000
-610322 | 40 000 | 43 600 | 47 200 | 50 800 | 54 400 | 58 000
-610422 | 40 000 | 43 600 | 47 200 | 50 800 | 54 400 | 58 000
-610610 | 140 000 | 152 600 | 165 200 | 177 800 | 190 400 | 203 000
-610821 | 770 000 | 839 300 | 908 600 | 977 900 | 1 047 200 | 1 116 500
-610910 | 1 100 000 | 1 199 000 | 1 298 000 | 1 397 000 | 1 496 000 | 1 595 000
-611020 | 800 000 | 872 000 | 944 000 | 1 016 000 | 1 088 000 | 1 160 000
-611120 | 50 000 | 54 500 | 59000 | 63 500 | 68 000 | 72 500
-620322 | 10 000 | 10 900 | 11 800 | 12 700 | 13 600 | 14 500
-620342 | 200 000 | 218 000 | 236 000 | 254 000 | 272 000 | 290 000
-620343 | 100 000 | 109 000 | 118 000 | 127 000 | 136 000 | 145 000
-620520 | 100 000 | 109 000 | 118 000 | 127 000 | 136 000 | 145 000
-620630 | 10 000 | 109 000 | 118 000 | 127 000 | 136 000 | 145 000
-620920 | 50 000 | 54 500 | 59 000 | 63 500 | 68 000 | 72 500
+Total de unidades por año | 3 500 000 | 3 815 000 | 4 130 000 | 4 445 000 | 4 760 000 | 691 217(*)
+610322 | 40 000 | 43 600 | 47 200 | 50 800 | 54 400 | 7 900(*)
+610422 | 40 000 | 43 600 | 47 200 | 50 800 | 54 400 | 7 900(*)
+610610 | 140 000 | 152 600 | 165 200 | 177 800 | 190 400 | 27 649(*)
+610821 | 770 000 | 839 300 | 908 600 | 977 900 | 1 047 200 | 152 067(*)
+610910 | 1 100 000 | 1 199 000 | 1 298 000 | 1 397 000 | 1 496 000 | 217 239(*)
+611020 | 800 000 | 872 000 | 944 000 | 1 016 000 | 1 088 000 | 157 992(*)
+611120 | 50 000 | 54 500 | 59000 | 63 500 | 68 000 | 9 875(*)
+620322 | 10 000 | 10 900 | 11 800 | 12 700 | 13 600 | 1 975(*)
+620342 | 200 000 | 218 000 | 236 000 | 254 000 | 272 000 | 39 498(*)
+620343 | 100 000 | 109 000 | 118 000 | 127 000 | 136 000 | 19 749(*)
+620520 | 100 000 | 109 000 | 118 000 | 127 000 | 136 000 | 19 749(*)
+620630 | 10 000 | 109 000 | 118 000 | 127 000 | 136 000 | 19 749(*)
+620920 | 50 000 | 54 500 | 59 000 | 63 500 | 68 000 | 9 875(*)
+(*) (Así reformada la table anterior correspondiente a partir del año 6 para cada una de las entradas del código SA pertinente de la columna de distribución de Panamá por el aparte 18) sub aparte m. viii) del anexo del Tratado Internacional, N° 9775 del 29 de octubre de 2019, “Acuerdo por el que se establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte y Centroamérica, suscrito en Managua, Nicaragua, el 18 de mes de julio de 2019; su Anexo, sus Declaraciones Conjuntas y el Entendimiento Alcanzado entre las Delegaciones de los Gobiernos del Reino Unido de Gran Bretaña e Irlanda del Norte y de las Repúblicas de Costa Rica, El Salvador, Guatemala, Honduras, Nicaragua y Panamá sobre el Apartado 8 del Anexo del Acuerdo por el que se Establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte, y Centroamérica, firmado el 18 de julio de 2019”)
 A petición de una República de la Parte CA y cuando se alcance un acuerdo con la Parte UE, podrán modificarse las cantidades anuales asignadas a cada subpartida de los capítulos 61 y 62 que se indica.
 d) Para El Salvador y Nicaragua, las cantidades indicadas en el apartado 1, letra b), se distribuirán como se indica en los siguientes cuadros. El Salvador y Nicaragua podrán distribuir esas cantidades entre las subpartidas indicadas en los siguientes cuadros dentro de los límites indicados para cada subpartida individual.
 EL SALVADOR
 SA | Año 1 | Año 2 | Año 3 | Año 4 | Año 5 | A partir de año 6
-Unidad total por año (contingente global anual, límites por subpartida) | 9 000 000 | 10 157 500 | 11 315 000 | 12 472 500 | 13 630 000 | 14 787 500
-610220 | 495 000 | 534 600 | 574 200 | 613 800 | 653 400 | 693 000
-610230 | 770 000 | 831 600 | 893 200 | 954 800 | 1 016 400 | 1 078 000
-610422 | 220 000 | 237 600 | 255 200 | 272 800 | 290 400 | 308 000
-610442 | 220 000 | 237 600 | 255 200 | 272 800 | 290 400 | 308 000
-610443 | 440 000 | 475 200 | 510 400 | 545 600 | 580 800 | 616 000
-610444 | 220 000 | 237 600 | 255 200 | 272 800 | 290 400 | 308 000
-610462 | 990 000 | 1 069 200 | 1 148 400 | 1 227 600 | 1 306 800 | 1 386 000
-610463 | 330 000 | 356 400 | 382 800 | 409 200 | 435 600 | 462 000
-620212 | 220 000 | 237 600 | 255 200 | 272 800 | 290 400 | 308 000
-620213 | 550 000 | 594 000 | 638 000 | 382 000 | 726 000 | 770 000
-620292 | 220 000 | 237 600 | 255 200 | 272 800 | 290 400 | 308 000
-620293 | 330 000 | 356 400 | 382 800 | 409 200 | 435 600 | 462 000
-620342 | 550 000 | 594 000 | 638 000 | 682 000 | 726 000 | 770 000
-620520 | 825 000 | 891 000 | 957 000 | 1 023 000 | 1 089 000 | 1 155 000
-620530 | 1 100 000 | 1 188 000 | 1 276 000 | 1 364 000 | 1 452 000 | 1 540 000
-620711 | 550 000 | 594 000 | 638 000 | 682 000 | 726 000 | 770 000
-620719 | 440 000 | 475 200 | 510 400 | 545 600 | 580 800 | 616 000
-620721 | 800 000 | 864 000 | 928 000 | 992 000 | 1 056 000 | 1 120 000
-620722 | 550 000 | 594 000 | 638 000 | 682 000 | 726 000 | 770 000
-620791 | 385 000 | 415 800 | 446 600 | 477 400 | 508 200 | 539 000
-620799 | 220 000 | 237 600 | 255 200 | 272 800 | 290 400 | 308 000
-620821 | 220 000 | 237 600 | 255 200 | 272 800 | 290 400 | 308 000
-620822 | 440 000 | 475 200 | 510 400 | 545 600 | 580 800 | 616 000
-620891 | 660 000 | 712 800 | 765 600 | 818 400 | 871 200 | 924 000
-620892 | 275 000 | 297 000 | 319 000 | 341 000 | 363 000 | 385 000
-621210 | 990 000 | 1 069 200 | 1 148 400 | 1 227 600 | 1 306 800 | 1 386 000
+Unidad total por año (contingente global anual, límites por subpartida) | 9 000 000 | 10 157 500 | 11 315 000 | 12 472 500 | 13 630 000 | 2 014 057(*)
+610220 | 495 000 | 534 600 | 574 200 | 613 800 | 653 400 | 94 387(*)
+610230 | 770 000 | 831 600 | 893 200 | 954 800 | 1 016 400 | 146 824(*)
+610422 | 220 000 | 237 600 | 255 200 | 272 800 | 290 400 | 41 950(*)
+610442 | 220 000 | 237 600 | 255 200 | 272 800 | 290 400 | 41 950(*)
+610443 | 440 000 | 475 200 | 510 400 | 545 600 | 580 800 | 83 899(*)
+610444 | 220 000 | 237 600 | 255 200 | 272 800 | 290 400 | 41 950(*)
+610462 | 990 000 | 1 069 200 | 1 148 400 | 1 227 600 | 1 306 800 | 188 773(*)
+610463 | 330 000 | 356 400 | 382 800 | 409 200 | 435 600 | 62 924(*)
+620212 | 220 000 | 237 600 | 255 200 | 272 800 | 290 400 | 41 950(*)
+620213 | 550 000 | 594 000 | 638 000 | 382 000 | 726 000 | 104 874(*)
+620292 | 220 000 | 237 600 | 255 200 | 272 800 | 290 400 | 41 950(*)
+620293 | 330 000 | 356 400 | 382 800 | 409 200 | 435 600 | 62 924(*)
+620342 | 550 000 | 594 000 | 638 000 | 682 000 | 726 000 | 104 874(*)
+620520 | 825 000 | 891 000 | 957 000 | 1 023 000 | 1 089 000 | 157 311(*)
+620530 | 1 100 000 | 1 188 000 | 1 276 000 | 1 364 000 | 1 452 000 | 209 748(*)
+620711 | 550 000 | 594 000 | 638 000 | 682 000 | 726 000 | 104 874(*)
+620719 | 440 000 | 475 200 | 510 400 | 545 600 | 580 800 | 83 899(*)
+620721 | 800 000 | 864 000 | 928 000 | 992 000 | 1 056 000 | 152 544(*)
+620722 | 550 000 | 594 000 | 638 000 | 682 000 | 726 000 | 104 874(*)
+620791 | 385 000 | 415 800 | 446 600 | 477 400 | 508 200 | 73 412(*)
+620799 | 220 000 | 237 600 | 255 200 | 272 800 | 290 400 | 41 950(*)
+620821 | 220 000 | 237 600 | 255 200 | 272 800 | 290 400 | 41 950(*)
+620822 | 440 000 | 475 200 | 510 400 | 545 600 | 580 800 | 83 899(*)
+620891 | 660 000 | 712 800 | 765 600 | 818 400 | 871 200 | 125 849(*)
+620892 | 275 000 | 297 000 | 319 000 | 341 000 | 363 000 | 52 437(*)
+621210 | 990 000 | 1 069 200 | 1 148 400 | 1 227 600 | 1 306 800 | 188 773(*)
+(*) (Así reformada la table anterior correspondiente a partir del año 6 para cada una de las entradas del código SA pertinente de la columna de distribución de El Salvador por el aparte 18) sub aparte m. ix) del anexo del Tratado Internacional, N° 9775 del 29 de octubre de 2019, “Acuerdo por el que se establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte y Centroamérica, suscrito en Managua, Nicaragua, el 18 de mes de julio de 2019; su Anexo, sus Declaraciones Conjuntas y el Entendimiento Alcanzado entre las Delegaciones de los Gobiernos del Reino Unido de Gran Bretaña e Irlanda del Norte y de las Repúblicas de Costa Rica, El Salvador, Guatemala, Honduras, Nicaragua y Panamá sobre el Apartado 8 del Anexo del Acuerdo por el que se Establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte, y Centroamérica, firmado el 18 de julio de 2019”)
 NICARAGUA
 SA | Año 1 | Año 2 | Año 3 | Año 4 | Año 5 | A partir de año 6
-Unidad total por año (contingente global anual, límites por subpartida) | 8 750 000 | 9 537 500 | 10 325 000 | 11 112 500 | 11 900 000 | 12 687 500
-610423 | 50 000 | 54 000 | 58 000 | 62 000 | 66 000 | 70 000
-610442 | 195 000 | 210 600 | 226 200 | 241 800 | 257 400 | 273 000
-610443 | 75 000 | 81 000 | 87 000 | 93 000 | 99 000 | 105 000
-610453 | 30 000 | 32 400 | 34 800 | 37 200 | 39 600 | 42 000
-610463 | 300 000 | 324 000 | 348 000 | 372 000 | 396 000 | 420 000
-610510 | 770 000 | 831 600 | 893 200 | 954 800 | 1 016 400 | 1 078 000
-610610 | 590 000 | 637 200 | 684 400 | 731 600 | 778 800 | 826 000
-610620 | 400 000 | 432 000 | 464 000 | 496 000 | 528 000 | 560 000
-610711 | 3 590 000 | 3 877 200 | 4 164 400 | 4 451 600 | 4 738 800 | 5 026 000
-610712 | 530 000 | 572 400 | 614 800 | 657 200 | 699 600 | 742 000
-610822 | 2 780 000 | 3 002 400 | 3 224 800 | 3 447 200 | 3 669 600 | 3 892 000
-610910 | 3 890 000 | 4 201 200 | 4 512 400 | 4 823 600 | 5 134 800 | 5 446 000
-610990 | 1 000 000 | 1 080 000 | 1 160 000 | 1 240 000 | 1 320 000 | 1 400 000
-620323 | 50 000 | 54 000 | 58 000 | 62 000 | 66 000 | 70 000
-620342 | 1 000 000 | 1 080 000 | 1 160 000 | 1 240 000 | 1 320 000 | 1 400 000
-620343 | 470 000 | 507 600 | 545 200 | 582 800 | 620 400 | 658 000
-620443 | 245 000 | 264 600 | 284 200 | 303 800 | 323 400 | 343 000
-620444 | 140 000 | 151 200 | 162 400 | 173 600 | 184 800 | 196 000
-620462 | 1 370 000 | 1 479 600 | 1 589 200 | 1 698 800 | 1 808 400 | 1 918 000
-620463 | 350 000 | 378 000 | 406 000 | 434 000 | 462 000 | 490 000
-620520 | 330 000 | 356 400 | 382 800 | 409 200 | 435 600 | 462000
-620711 | 365 000 | 394 200 | 423 400 | 452 600 | 481 800 | 511 000
-620719 | 55 000 | 59 400 | 63 800 | 68 200 | 72 600 | 77 000
-620721 | 95 000 | 102 600 | 110 200 | 117 800 | 125 400 | 133 000
-620722 | 20 000 | 21 600 | 23 200 | 24 800 | 26 400 | 28 000
-620791 | 160 000 | 172 800 | 185 600 | 198 400 | 211 200 | 224 000
-620821 | 100 000 | 108 000 | 116 000 | 124 000 | 132 000 | 140 000
-620822 | 90 000 | 97 200 | 104 400 | 111 600 | 118 800 | 126 000
-620891 | 10 000 | 10 800 | 11 600 | 12 400 | 13 200 | 14 000
-620892 | 10 000 | 10 800 | 11 600 | 12 400 | 13 200 | 14 000
-621210 | 30 000 | 32 400 | 34 800 | 37 200 | 39 600 | 42 000
-621220 | 500 000 | 540 000 | 580 000 | 620 000 | 660 000 | 700 000
-621230 | 20 000 | 21 600 | 23 200 | 24 800 | 26 400 | 28 000
-621290 | 1 000 000 | 1 080 000 | 1 160 000 | 1 240 000 | 1 320 000 | 1 400 000
+Unidad total por año (contingente global anual, límites por subpartida) | 8 750 000 | 9 537 500 | 10 325 000 | 11 112 500 | 11 900 000 | 1 728 037(*)
+610423 | 50 000 | 54 000 | 58 000 | 62 000 | 66 000 | 9 534(*)
+610442 | 195 000 | 210 600 | 226 200 | 241 800 | 257 400 | 37 183(*)
+610443 | 75 000 | 81 000 | 87 000 | 93 000 | 99 000 | 14 301(*)
+610453 | 30 000 | 32 400 | 34 800 | 37 200 | 39 600 | 5 720(*)
+610463 | 300 000 | 324 000 | 348 000 | 372 000 | 396 000 | 57 204(*)
+610510 | 770 000 | 831 600 | 893 200 | 954 800 | 1 016 400 | 146 824(*)
+610610 | 590 000 | 637 200 | 684 400 | 731 600 | 778 800 | 112 501(*)
+610620 | 400 000 | 432 000 | 464 000 | 496 000 | 528 000 | 76 272(*)
+610711 | 3 590 000 | 3 877 200 | 4 164 400 | 4 451 600 | 4 738 800 | 684 541(*)
+610712 | 530 000 | 572 400 | 614 800 | 657 200 | 699 600 | 101 060(*)
+610822 | 2 780 000 | 3 002 400 | 3 224 800 | 3 447 200 | 3 669 600 | 530 090(*)
+610910 | 3 890 000 | 4 201 200 | 4 512 400 | 4 823 600 | 5 134 800 | 741 745(*)
+610990 | 1 000 000 | 1 080 000 | 1 160 000 | 1 240 000 | 1 320 000 | 190 680(*)
+620323 | 50 000 | 54 000 | 58 000 | 62 000 | 66 000 | 9 534(*)
+620342 | 1 000 000 | 1 080 000 | 1 160 000 | 1 240 000 | 1 320 000 | 190 680(*)
+620343 | 470 000 | 507 600 | 545 200 | 582 800 | 620 400 | 89 620(*)
+620443 | 245 000 | 264 600 | 284 200 | 303 800 | 323 400 | 46 717(*)
+620444 | 140 000 | 151 200 | 162 400 | 173 600 | 184 800 | 26 695(*)
+620462 | 1 370 000 | 1 479 600 | 1 589 200 | 1 698 800 | 1 808 400 | 261 232(*)
+620463 | 350 000 | 378 000 | 406 000 | 434 000 | 462 000 | 66 738(*)
+620520 | 330 000 | 356 400 | 382 800 | 409 200 | 435 600 | 62 924(*)
+620711 | 365 000 | 394 200 | 423 400 | 452 600 | 481 800 | 69 598(*)
+620719 | 55 000 | 59 400 | 63 800 | 68 200 | 72 600 | 10 487(*)
+620721 | 95 000 | 102 600 | 110 200 | 117 800 | 125 400 | 18 115(*)
+620722 | 20 000 | 21 600 | 23 200 | 24 800 | 26 400 | 3 814(*)
+620791 | 160 000 | 172 800 | 185 600 | 198 400 | 211 200 | 30 509(*)
+620821 | 100 000 | 108 000 | 116 000 | 124 000 | 132 000 | 19 068(*)
+620822 | 90 000 | 97 200 | 104 400 | 111 600 | 118 800 | 17 161(*)
+620891 | 10 000 | 10 800 | 11 600 | 12 400 | 13 200 | 1 907(*)
+620892 | 10 000 | 10 800 | 11 600 | 12 400 | 13 200 | 1 907(*)
+621210 | 30 000 | 32 400 | 34 800 | 37 200 | 39 600 | 5 720(*)
+621220 | 500 000 | 540 000 | 580 000 | 620 000 | 660 000 | 95 340(*)
+621230 | 20 000 | 21 600 | 23 200 | 24 800 | 26 400 | 3 814(*)
+621290 | 1 000 000 | 1 080 000 | 1 160 000 | 1 240 000 | 1 320 000 | 190 680(*)
+(*) (Así reformada la table anterior correspondiente a partir del año 6 para cada una de las entradas del código SA pertinente de la columna de distribución de Nicaragua por el aparte 18) sub aparte m. x) del anexo del Tratado Internacional, N° 9775 del 29 de octubre de 2019, “Acuerdo por el que se establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte y Centroamérica, suscrito en Managua, Nicaragua, el 18 de mes de julio de 2019; su Anexo, sus Declaraciones Conjuntas y el Entendimiento Alcanzado entre las Delegaciones de los Gobiernos del Reino Unido de Gran Bretaña e Irlanda del Norte y de las Repúblicas de Costa Rica, El Salvador, Guatemala, Honduras, Nicaragua y Panamá sobre el Apartado 8 del Anexo del Acuerdo por el que se Establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte, y Centroamérica, firmado el 18 de julio de 2019”)
 2. Después del periodo de cinco años previsto en el apartado 1, letra b), las Partes evaluarán la aplicación del sistema de contingentes, en particular con respecto a las cantidades y su distribución. Las Partes evaluarán si es viable aceptar un incremento anual para los próximos años, así como su distribución entre los productos de los capítulos 61 y 62.
 NOTA 5
-Para los productos de la subpartida 7607 20 (Hojas y tiras, delgadas, de aluminio, (incluso impresas o fijadas sobre papel, cartón, plástico o soportes similares), de espesor inferior o igual a 0,2 mm (sin incluir el soporte), con soporte), la siguiente norma conferirá origen a las mercancías exportadas desde El Salvador a la Parte UE dentro de un contingente anual de 1 000 toneladas métricas:
+Para los productos de la subpartida 7607 20 (Hojas y tiras, delgadas, de aluminio, (incluso impresas o fijadas sobre papel, cartón, plástico o soportes similares), de espesor inferior o igual a 0,2 mm (sin incluir el soporte), con soporte), la siguiente norma conferirá origen a las mercancías exportadas desde El Salvador a la Parte UE dentro de un contingente anual de 136(*) toneladas métricas:
+(*) (Así reformado por el el aparte 18) sub aparte m.xi) del anexo del Tratado Internacional, N° 9775 del 29 de octubre de 2019, “Acuerdo por el que se establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte y Centroamérica, suscrito en Managua, Nicaragua, el 18 de mes de julio de 2019; su Anexo, sus Declaraciones Conjuntas y el Entendimiento Alcanzado entre las Delegaciones de los Gobiernos del Reino Unido de Gran Bretaña e Irlanda del Norte y de las Repúblicas de Costa Rica, El Salvador, Guatemala, Honduras, Nicaragua y Panamá sobre el Apartado 8 del Anexo del Acuerdo por el que se Establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte, y Centroamérica, firmado el 18 de julio de 2019”)
 Fabricación a partir de materiales de cualquier partida.
 NOTA 6
-Para los productos de las partidas 8544 30 (Juegos de cables para bujías de encendido y demás juegos de cables de los tipos utilizados en los medios de transporte); 8544 42 (Los demás conductores eléctricos para una tensión inferior o igual a 1 000 V: Provistos de piezas de conexión); 8544 49 (Los demás conductores eléctricos para una tensión inferior o igual a 1 000 V: los demás) y 8544 60 (Los demás conductores eléctricos para una tensión superior a 1 000 V) la siguiente norma conferirá origen a las mercancías exportadas desde Centroamérica a la Unión Europea dentro del contingente anual de 20 000 toneladas métricas:
+Para los productos de las partidas 8544 30 (Juegos de cables para bujías de encendido y demás juegos de cables de los tipos utilizados en los medios de transporte); 8544 42 (Los demás conductores eléctricos para una tensión inferior o igual a 1 000 V: Provistos de piezas de conexión); 8544 49 (Los demás conductores eléctricos para una tensión inferior o igual a 1 000 V: los demás) y 8544 60 (Los demás conductores eléctricos para una tensión superior a 1 000 V) la siguiente norma conferirá origen a las mercancías exportadas desde Centroamérica a la Unión Europea dentro del contingente anual de 2 724(*) toneladas métricas:
+(*) (Así reformado por el el aparte 18) sub aparte m.xii. a) del anexo del Tratado Internacional, N° 9775 del 29 de octubre de 2019, “Acuerdo por el que se establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte y Centroamérica, suscrito en Managua, Nicaragua, el 18 de mes de julio de 2019; su Anexo, sus Declaraciones Conjuntas y el Entendimiento Alcanzado entre las Delegaciones de los Gobiernos del Reino Unido de Gran Bretaña e Irlanda del Norte y de las Repúblicas de Costa Rica, El Salvador, Guatemala, Honduras, Nicaragua y Panamá sobre el Apartado 8 del Anexo del Acuerdo por el que se Establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte, y Centroamérica, firmado el 18 de julio de 2019”)
 Fabricación a partir de materiales de cualquier partida.
 Esta norma conferirá origen a las mercancías exportadas desde Centroamérica a la Unión
 Europea dentro de los siguientes contingentes anuales:
 País | Toneladas métricas
-Honduras | 8 000
-Centroamérica | 12 000
+Honduras | 1 090
+Centroamérica | 1 634
+(*) (Así reformada la table anterior por el aparte 18) sub aparte m.xii. b) del anexo del Tratado Internacional, N° 9775 del 29 de octubre de 2019, “Acuerdo por el que se establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte y Centroamérica, suscrito en Managua, Nicaragua, el 18 de mes de julio de 2019; su Anexo, sus Declaraciones Conjuntas y el Entendimiento Alcanzado entre las Delegaciones de los Gobiernos del Reino Unido de Gran Bretaña e Irlanda del Norte y de las Repúblicas de Costa Rica, El Salvador, Guatemala, Honduras, Nicaragua y Panamá sobre el Apartado 8 del Anexo del Acuerdo por el que se Establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte, y Centroamérica, firmado el 18 de julio de 2019”)
 APÉNDICE 3
 EJEMPLARES DE CERTIFICADO DE CIRCULACIÓN DE MERCANCÍAS EUR.1 Y
 SOLICITUD DE CERTIFICADO DE CIRCULACIÓN DE MERCANCÍAS EUR.1
@@ -792,15 +784,16 @@ Instrucciones para su impresión
 1. Cada formato del certificado deberá medir 210 × 297 mm; se permitirá una tolerancia en la longitud de hasta 5 mm por defecto u 8 mm por exceso. El papel utilizado será de color blanco, de tamaño para escribir, sin pasta mecánica y con un peso mínimo de 25 g/m2. Irá revestido de una impresión de fondo labrada de color verde que haga visible cualquier falsificación por medios mecánicos o químicos.
 2. Las autoridades públicas competentes de los Estados miembros de la Unión Europea y de las Repúblicas de la Parte CA podrán reservarse el derecho de imprimir los certificados ellos mismos o confiar su impresión a imprentas autorizadas. En este último caso, cada certificado deberá hacer referencia a esta autorización. Cada certificado deberá incluir el nombre, los apellidos y la dirección del impresor o una marca que permita su identificación. Deberá llevar un número de serie, impreso o no, que permita identificarlo.
 [imagen]
-[imagen]
-[imagen]
 164 Para las mercancías sin embalar, hágase constar el número de objetos o la mención "a granel".
+[imagen]
 165 Complétese solo si la normativa del país o territorio exportador lo exige.
+[imagen]
 NOTAS
 1. El certificado no deberá llevar raspaduras ni correcciones superpuestas. Cualquiermodificación deberá hacerse tachando los datos erróneos y añadiendo las correcciones necesarias. Tales modificaciones deberán ser rubricadas por la persona que completó el certificado y visadas por parte de las autoridades públicas o aduaneras competentes del país o territorio de expedición.
 2. No deberán quedar renglones vacíos entre los distintos artículos indicados en el certificado y cada artículo irá precedido de un número de orden. Se trazará una línea horizontal inmediatamente después del último artículo. Los espacios no utilizados deberán rayarse de forma que resulte imposible cualquier añadido posterior.
 3. Las mercancías deberán describirse de conformidad con la práctica comercial y de manera suficientemente detallada para permitir su identificación.
-[imagen] 166 En caso de que las mercancías no estén embaladas, indíquese r el número de artículos o la mención "a granel", según sea el caso.
+[imagen]
+166 En caso de que las mercancías no estén embaladas, indíquese r el número de artículos o la mención "a granel", según sea el caso.
 DECLARACIÓN DEL EXPORTADOR
 Yo, el que suscribe, exportador de las mercancías designadas en el anverso,
 DECLARO que estas mercancías cumplen los requisitos exigidos para la obtención del certificado adjunto;
@@ -823,6 +816,7 @@ SOLICITO la expedición del certificado adjunto para estas mercancías.
 APÉNDICE 4
 DECLARACIÓN EN FACTURA
 Requisitos específicos para extender una declaración en factura
+(*) (Nota de Sinalevi: Mediante el aparte 18) sub aparte m.xiv) del anexo del Tratado Internacional, N° 9775 del 29 de octubre de 2019, “Acuerdo por el que se establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte y Centroamérica, suscrito en Managua, Nicaragua, el 18 de mes de julio de 2019; su Anexo, sus Declaraciones Conjuntas y el Entendimiento Alcanzado entre las Delegaciones de los Gobiernos del Reino Unido de Gran Bretaña e Irlanda del Norte y de las Repúblicas de Costa Rica, El Salvador, Guatemala, Honduras, Nicaragua y Panamá sobre el Apartado 8 del Anexo del Acuerdo por el que se Establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte, y Centroamérica, firmado el 18 de julio de 2019”, en relación al apéndice 4) anterior se indicó que todas las versiones de la declaración de facturación sólo se incorporan las redactadas en español e inglés, y la segunda oración de la nota al pie de página 2 no se incorpora.)
 La declaración en factura cuyo texto figura a continuación se extenderá utilizando una de las versiones lingüísticas establecidas y de conformidad con las disposiciones de la legislación nacional del país exportador. Si la declaración se extiende a mano, deberá escribirse con tinta y en caracteres de imprenta. La declaración en factura se extenderá de conformidad con las notas a pie de página correspondientes. No será necesario reproducir las notas a pie de página.
 Versión búlgara
 Износителят на продуктите, обхванати от този документ (разрешение № … от митница или от друг компетентен държавен орган (1)) декларира, че освен където ясно е отбелязано друго, тези продукти са с … (2) преференциален произход.

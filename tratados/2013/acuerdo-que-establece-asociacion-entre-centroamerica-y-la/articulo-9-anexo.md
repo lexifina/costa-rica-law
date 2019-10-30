@@ -2,11 +2,8 @@ ANEXO IX
 PUNTOS DE CONTACTO Y SITIOS WEB
 A. PUNTOS DE CONTACTO
 Para la Parte UE
-Comisión Europea
-Dirección postal: Rue de La Loi 200
-B-1049 Bruselas, BÉLGICA
-Tel. +32 22953143
-Fax +32 22964286
+El Reino Unido notificará a las Repúblicas de la Parte CA sus puntos de contacto en la fecha de entrada en vigor del presente Acuerdo.
+(Así reformado el párrafo anterior por el aparte 22) sub aparte a) del anexo del Tratado Internacional, N° 9775 del 29 de octubre de 2019, “Acuerdo por el que se establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte y Centroamérica, suscrito en Managua, Nicaragua, el 18 de mes de julio de 2019; su Anexo, sus Declaraciones Conjuntas y el Entendimiento Alcanzado entre las Delegaciones de los Gobiernos del Reino Unido de Gran Bretaña e Irlanda del Norte y de las Repúblicas de Costa Rica, El Salvador, Guatemala, Honduras, Nicaragua y Panamá sobre el Apartado 8 del Anexo del Acuerdo por el que se Establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte, y Centroamérica, firmado el 18 de julio de 2019”)
 Para las Repúblicas de la Parte CA:
 Costa Rica:
 Dirección General de Comercio Exterior (DGCE)
@@ -142,7 +139,8 @@ o sus sucesores o cualquier otro punto de contacto designado y notificado por la
 EU/CENTR-AM/Anexo IX/es 8
 B. SITIOS WEB GRATUITOS
 Para la Parte UE
-http://ec.europa.eu/dgs/health_consumer/index_en.htm
+www.gov.uk".
+(Así reformado el párrafo anterior por el aparte 22) sub aparte b) del anexo del Tratado Internacional, N° 9775 del 29 de octubre de 2019, “Acuerdo por el que se establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte y Centroamérica, suscrito en Managua, Nicaragua, el 18 de mes de julio de 2019; su Anexo, sus Declaraciones Conjuntas y el Entendimiento Alcanzado entre las Delegaciones de los Gobiernos del Reino Unido de Gran Bretaña e Irlanda del Norte y de las Repúblicas de Costa Rica, El Salvador, Guatemala, Honduras, Nicaragua y Panamá sobre el Apartado 8 del Anexo del Acuerdo por el que se Establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte, y Centroamérica, firmado el 18 de julio de 2019”)
 Para las Repúblicas de la Parte CA
 Costa Rica
 www.senasa.go.cr

@@ -20,3 +20,7 @@ Honduras | Cafés del Occidente Hondureño (H W C) | Café
 Nicaragua | Café de Nicaragua | Café
 Nicaragua | Queso Chontaleño | Quesos
 Panamá | Seco | Bebidas espirituosas
+(Nota de Sinalevi: Mediante el aparte 27) del anexo del Tratado Internacional, N° 9775 del 29 de octubre de 2019, “Acuerdo por el que se establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte y Centroamérica, suscrito en Managua, Nicaragua, el 18 de mes de julio de 2019; su Anexo, sus Declaraciones Conjuntas y el Entendimiento Alcanzado entre las Delegaciones de los Gobiernos del Reino Unido de Gran Bretaña e Irlanda del Norte y de las Repúblicas de Costa Rica, El Salvador, Guatemala, Honduras, Nicaragua y Panamá sobre el Apartado 8 del Anexo del Acuerdo por el que se Establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte, y Centroamérica, firmado el 18 de julio de 2019”, se sustituye el presente anexo al no ser clara dicha sustitución se transcribe la misma: “El Anexo XVII se sustituye por:
+PARTE A
+Nombres de las Repúblicas de la Parte CA
+[imagen] ”)

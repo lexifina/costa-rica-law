@@ -2,6 +2,7 @@ ARTÍCULO 188
 Salvaguardias de competencia sobre proveedores importantes
 Las Partes introducirán o mantendrán medidas apropiadas con el fin de impedir que los proveedores que, individualmente o en conjunto, sean un proveedor importante, empleen o sigan empleando prácticas anticompetitivas. Estas prácticas anticompetitivas incluirán, en particular:
 a) realizar subvenciones cruzadas anticompetitivas24;
-24 Solamente para la Parte UE "o estrechamiento de márgenes" (margin squeeze).
+24 Solamente para la Reino Unido(*) "o estrechamiento de márgenes" (margin squeeze).
+(*) (Así sustituída su denominación por el apartado de las Declaraciones Conjuntas "Declaración Conjunta sobre Mutatis Mutandis" del anexo del Tratado Internacional, N° 9775 del 29 de octubre de 2019, "Acuerdo por el que se establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte y Centroamérica, suscrito en Managua, Nicaragua, el 18 de mes de julio de 2019; su Anexo, sus Declaraciones Conjuntas y el Entendimiento Alcanzado entre las Delegaciones de los Gobiernos del Reino Unido de Gran Bretaña e Irlanda del Norte y de las Repúblicas de Costa Rica, El Salvador, Guatemala, Honduras, Nicaragua y Panamá sobre el Apartado 8 del Anexo del Acuerdo por el que se Establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte, y Centroamérica, firmado el 18 de julio de 2019". Anteriormente se indicaba "Parte UE")
 b) utilizar información obtenida de competidores con resultados anticompetitivos; y
 c) no poner oportunamente a disposición de otros proveedores de servicios la información técnica sobre instalaciones esenciales y la información comercialmente pertinente necesaria para suministrar servicios.
