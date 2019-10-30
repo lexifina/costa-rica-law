@@ -14,3 +14,4 @@ Manuales aprobados por el Consejo Sectorial de Ministros de Transportes de Centr
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-11-23 | la propia norma |
+| 2 | 2019-10-30 | Decreto Ejecutivo 42092 (2019-10-30) |
