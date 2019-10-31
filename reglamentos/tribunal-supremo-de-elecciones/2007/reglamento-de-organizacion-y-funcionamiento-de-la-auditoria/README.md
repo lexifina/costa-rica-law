@@ -15,3 +15,4 @@ Reglamento de Organización y Funcionamiento de la Auditoria Interna del Tribuna
 | --- | --- | --- |
 | 1 | 2007-11-16 | la propia norma |
 | 2 | 2016-08-08 | Decreto TSE 8 (2016-08-08) |
+| 3 | 2019-10-31 | Decreto TSE 21 (2019-10-31) |
