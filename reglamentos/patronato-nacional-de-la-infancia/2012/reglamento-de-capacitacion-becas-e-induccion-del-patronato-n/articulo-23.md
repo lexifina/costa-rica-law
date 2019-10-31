@@ -1,2 +1,0 @@
-Artículo 23.—Aplicación y Alcance. El proceso de inducción, tiene aplicación para todos (as) los (as) colaboradores (as) de nuevo ingreso, en condición de propiedad e interinos y para aquellos (as) colaboradores (as), que se trasladan a laborar a otra dependencia dentro de la misma institución.
-Dicho proceso, se realizará dentro de los tres primeros días, a partir del momento que rige el nombramiento o traslado.

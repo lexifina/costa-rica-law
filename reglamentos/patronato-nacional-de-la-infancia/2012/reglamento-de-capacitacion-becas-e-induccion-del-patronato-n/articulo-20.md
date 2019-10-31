@@ -1,6 +1,0 @@
-Artículo 20.—Recuperación del costo de la beca.
-a. Corresponde al Departamento de Recursos Humanos realizar las diligencias y trámites pertinentes a efecto de que el PANI pueda recuperar los dineros que fueron cancelados por concepto de las becas concedidas a funcionarios y funcionarias que incumplieron con las disposiciones contenidas en el presente reglamento.
-b. El Departamento de Recursos Humanos deberá determinar cuál es el monto que debe ser retribuido al PANI y realizará la gestión de cobro frente a la persona becada que abandonó sus estudios. Para esto, el Departamento de Recursos Humanos gestionará dos avisos de cobro.
-c. Si la persona becada no responde al segundo llamado de cobro que le realice el Departamento de Recursos Humanos, el mismo presentará solicitud ante la Asesoría Jurídica para que se gestione el cobro judicial.
-d. El Departamento Recursos Humanos deberá efectuar la primera gestión de cobro, en un plazo no mayor a 30 días naturales a partir del momento en que tiene conocimiento de los hechos que motivan la recuperación de tales sumas. Igualmente las gestiones subsiguientes las realizará en igual plazo, dando 30 días naturales entre una y otra.
-e. La Asesoría Jurídica sentará la base legal para la recuperación de dineros girados para efectos de becas, con la persona que los adeuda, incluyendo la posibilidad de arreglo de pago.

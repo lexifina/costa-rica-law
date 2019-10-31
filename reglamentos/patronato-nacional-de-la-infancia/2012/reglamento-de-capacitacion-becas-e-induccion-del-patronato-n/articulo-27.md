@@ -1,2 +1,0 @@
-Artículo 27.—Vigencia: El presente reglamento rige a partir de la fecha de su publicación en el Diario Oficial La Gaceta y deroga el Reglamento de Capacitación, Educación y Becas para el personal del PANI, publicado en La Gaceta Nº 88 del 9 de mayo del 2000, así como cualquier otra disposición reglamentaria o administrativa que se le oponga.
-Aprobado en sesión ordinaria 2012-012, celebrada el lunes 19 de marzo del 2012.
