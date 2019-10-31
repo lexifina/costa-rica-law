@@ -1,0 +1,3 @@
+CAPÍTULO II
+Ámbito de Aplicación
+Artículo 5º: Materias objeto de consulta ante el Colegio de Contadores Públicos de Costa Rica. Las respuestas a las consultas técnicas que se considerarán oficiales serán las emitidas por escrito en materias de su competencia, acompañadas o con referencia al acuerdo de Junta Directiva en el que consta su aprobación, ello conforme lo establece la Ley No. 1038, su Reglamento y demás normativa aplicable. Las consultas sobre temas básicos de orden administrativo se consideran oficiales, las atendidas por el Titular Subordinado de cada Departamento conforme a lo indicado en el artículo 3º de este reglamento.

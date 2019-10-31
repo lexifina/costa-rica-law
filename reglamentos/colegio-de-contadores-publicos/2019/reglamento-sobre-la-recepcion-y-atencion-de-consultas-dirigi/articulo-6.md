@@ -1,0 +1,1 @@
+Artículo 6º: Sujetos que participan en el procedimiento consultivo. Son parte del procedimiento consultivo los sujetos consultantes, así como la Junta Directiva, el Comité Consultivo Permanente, el Director Ejecutivo y los Jefes de los Departamentos del Colegio de Contadores Públicos de Costa Rica.
