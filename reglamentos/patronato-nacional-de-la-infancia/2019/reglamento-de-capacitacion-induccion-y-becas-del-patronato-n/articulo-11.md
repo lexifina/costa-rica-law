@@ -1,0 +1,4 @@
+Artículo 11.—Solicitud de capacitación no planificada:
+Las solicitudes para participar en capacitaciones No Planificadas deberán presentarse ante el Departamento Recursos Humanos, con al menos días hábiles de anticipación, indicándose la relación e importancia que tiene para el puesto, así como la justificación de imprevisibilidad del porqué no se planificó y solicitó previamente dentro del Plan de Capacitación Institucional.
+Las solicitudes, deberán contar con el visto bueno del superior jerárquico y serán resueltas por Presidencia Ejecutiva, para asegurar el predominio del interés general de la institución.
+Una vez formalizada la matrícula de un funcionario en un proceso de capacitación, sea este en jornada laboral o no, la asistencia y cumplimiento de los requisitos del curso es de carácter obligatorio.

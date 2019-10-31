@@ -1,0 +1,1 @@
+Artículo 14.—De las sanciones Disciplinarias: El Departamento de Recursos Humanos pondrá en conocimiento de la Presidencia Ejecutiva, el incumplimiento de las disposiciones contempladas en este reglamento para determinar la procedencia o no de ordenar la respectiva investigación disciplinaria por medio de un Procedimiento Administrativo Disciplinario

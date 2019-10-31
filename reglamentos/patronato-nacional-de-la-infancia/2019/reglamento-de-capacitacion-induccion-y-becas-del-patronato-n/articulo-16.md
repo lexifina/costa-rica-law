@@ -1,0 +1,1 @@
+Artículo 16.—Vigencia y derogatoria: El presente reglamento rige a partir de la fecha de su publicación y deroga el Reglamento de Capacitación y Becas para el personal del PANI, publicado en el Alcance al Diario Oficial La Gaceta N° 150 del 06 de agosto del 2012, así como cualquier otra disposición reglamentaria o administrativa que se le oponga.
