@@ -1,0 +1,2 @@
+V.- Se faculta al Ministerio de Cultura y Juventud, por medio del Centro de Producción Artística y Cultural, a invertir la alternancia del Festival de las Artes, de forma tal que durante el año 2020 se celebre en Edición Nacional (FNA) y durante el año 2021, en Edición Internacional (FIA), como parte del Programa Nacional del Bicentenario 2021.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 42036 del 31 de octubre de 2019)
