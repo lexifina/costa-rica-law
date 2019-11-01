@@ -13,3 +13,4 @@ Política de Seguridad de la Información
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-12-19 | la propia norma |
+| 2 | 2019-11-01 | Circular 197 (2019-11-01) |

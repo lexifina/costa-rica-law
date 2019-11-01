@@ -41,8 +41,7 @@ b. Proponer políticas y/o lineamientos a la Administración Superior para que c
 c. Dar seguimiento y apoyo a la seguridad de la información, así como al presupuesto en esta materia.
 d. Elevar a la Administración Superior las métricas, indicadores y evaluaciones facilitadas por la Dirección de Tecnología de Información y Comunicaciones, que permitan medir el desempeño de la seguridad de la información en el Poder Judicial y tomar decisiones en relación a su mejora continua.
 e. Proponer planes, estrategias y proyectos a la Administración Superior con el fin de promover una cultura de seguridad institucional.
-4) Dirección de Tecnología de Información y Comunicaciones
-a. Velar, en conjunto con la Administración Superior, por la implementación y operación del Sistema de Gestión de Seguridad de la Información (SGSI) en su componente tecnológico.
+4) Dirección de Tecnología de Información y Comunicaciones a. Velar, en conjunto con la Administración Superior, por la implementación y operación del Sistema de Gestión de Seguridad de la Información (SGSI) en su componente tecnológico.
 b. Formular las políticas y/o lineamientos generales y específicas en materia tecnológica para la seguridad de la información del Poder Judicial y velar por su cumplimiento.
 c. Velar, en conjunto con la Administración Superior, porque todas las personas que laboran para la organización, conozcan y estén comprometidos con las políticas y/o lineamientos de seguridad de la información y las consecuencias de su incumplimiento.
 d. Desarrollar e implementar los proyectos tecnológicos en materia de seguridad de la información que hayan sido aprobados por la Administración Documento firmado digitalmente Superior.
@@ -54,7 +53,8 @@ i. Detectar, analizar y resolver de forma oportuna los problemas e incidentes de
 j. Delegar la implementación de procedimientos y estándares que se desprenden de las políticas y/o lineamientos de seguridad de la información.
 k. Proponer estrategias y soluciones específicas para la implantación de los controles necesarios, destinados a cumplir con las políticas y/o lineamientos de seguridad establecidos y la debida solución de las situaciones de riesgo detectadas en el ámbito tecnológico.
 5) Control Interno
-a. Velar por que los riesgos de seguridad de la información sean gestionados adecuadamente y elevar los resultados obtenidos, acciones o estrategias al Subcomité Institucional de Seguridad de la Información.
+a. Velar por que los riesgos de seguridad de la información sean gestionados adecuadamente por las oficinas y despachos judiciales y elevar los resultados obtenidos, acciones o estrategias, cuando así corresponda al Consejo Superior.
+(Así reformado el inciso anterior mediante circular N°197 del 1° de noviembre de 2019)
 6) Subcomité Institucional de Seguridad de la Información
 a. Mediar en los conflictos en materia de seguridad de la información y los riesgos asociados, para así proponer soluciones.
 b. Coordinar con los comités de Continuidad y de Riesgos de la institución, para mantener alineada toda la estrategia institucional.
