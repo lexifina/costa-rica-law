@@ -1,0 +1,12 @@
+Artículo 2º—Clasificación de las calles públicas. Las calles públicas cantonales se clasificaran, según las siguientes características:
+CAMINOS Y/O CALLES ESPECIALES: Se considerarán calles especiales aquellas que no cumplen con los requisitos de diseño, pero que a lo largo de los años el uso y destino de las mismas ha sido eminentemente público.
+CAMINOS CLASIFICADOS EN USO: Son aquellos transitables durante la mayor parte del año, cuentan con algunos elementos de la infraestructura de drenaje, tales como cunetas, alcantarillado primario o puentes, y son caminos alternos de poca importancia, que dan acceso a zonas de baja producción agropecuaria, y que poseen un ancho mínimo de superficie de ruedo de 4 metros. La superficie de ruedo se encuentra en tierra o lastre, pero los cuales pueden transitar vehículos de cualquier tipo.
+CAMINOS EN DESUSO: Clasificados en desuso para el tránsito de vehículos por no ser aptas para el tránsito vehicular.
+Se utilizan para la movilidad y comunicación local, a través de medios de transporte como motocicleta, bicicleta, animales o peatonal. El derecho de vía es muy angosto, y se encuentra rodeado de árboles, arbustos o maleza, dando la apariencia que el camino no está en uso.
+CAMINOS CLASIFICADOS EN ASFALTO Y EN LASTRE: Dichos caminos a su vez se subdividen en:
+Primarias: Aquellas que constituyen una red vial continua, sirven para canalizar las vías locales hacia sectores de la ciudad o bien, hacia carreteras de enlace entre el desarrollo propuesto y otros núcleos poblados o que se considere que puedan llegar a tener esa función.
+Requieren de las siguientes dimensiones: de catorce metros (12 m) de derecho de vía, nueve metros (9 m) de calzada, un metro con cincuenta centímetros (1,50 m) de acera y un metro (1 m) de franjas verdes.
+Podrán habilitar un número ilimitado de lotes. En zonas industriales el derecho de vía será de 17 m.
+Secundarias: Aquellas vías cantonales que tendrán un derecho de vía de 10 m, la calzada será de 7 m y el resto se repartirá entre aceras y zonas verdes.
+Terciarias: Aquellas que sirvan a 100 o menos unidades de vivienda o lotes. Tendrán un derecho de vía de 8,50 m, con una calzada de 5,50 m y el resto se repartirá entre aceras y zonas verdes.
+De uso restringido: Son las clasificadas como terciarias que por sus características de continuidad limitada tendrán un derecho de vía de 7 m, una calzada de 5 m y el resto podrá ser acera o zona verde. Su longitud máxima será 120 m.

@@ -1,0 +1,7 @@
+CAPÍTULO TERCERO
+COMITES DE CAMINOS Y ASOCIACIONES DE
+DESARROLLO INTEGRAL
+Artículo 8º—De los órganos de apoyo. Con el fin de que sea un componente importante que forma parte de la organización de la Comunidad. Los Comités de Caminos serán instancias de apoyo junto con las Asociaciones de Desarrollo Integral, que a su vez coordinarán con el Departamento de Infraestructura Vial Cantonal o la Dirección encargada, para labores atinentes a su creación. Serán testigos de honor en los convenios que se formalicen.
+Todo lo relativo a asesoramiento, información, instrucción y capacitación se coordinará a través del Departamento de Infraestructura Vial Cantonal o la Dirección correspondiente.
+Los Comités de Caminos y las Asociaciones de Desarrollo podrán coordinar con la Municipalidad todas aquellas acciones destinadas a realizar declaratorias de calles públicas, con el único fin de contribuir con su acción al buen éxito de las labores del organismo municipal y obtener su apoyo.
+La Municipalidad de Siquirres, queda autorizada para emprender las acciones administrativas pertinentes y suministrar servicios de cualquier clase, de así requerirse, por estos grupos organizados, como una forma de contribuir al desarrollo de las comunidades y al progreso económico y social del país. La Administración Municipal les otorgará las facilidades y estudios necesarios habidos en los expedientes administrativos cuando el objeto pretendido sea la declaratoria de una calle pública, quedando obligada a colaborar con dichos grupos dentro de sus atribuciones y posibilidades.
