@@ -1,0 +1,1 @@
+Artículo 3°—Ámbito de aplicación. Este reglamento es aplicable a todas las personas en condición de persona funcionaria del INA que realice funciones aptas para prestar sus servicios en la modalidad de teletrabajo y que cumplan con los requerimientos necesarios planteados en este reglamento y los procedimientos asociados.

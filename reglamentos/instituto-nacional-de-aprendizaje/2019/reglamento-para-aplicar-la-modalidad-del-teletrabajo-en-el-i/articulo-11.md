@@ -1,0 +1,8 @@
+Artículo 11.- Funciones de la Unidad de Recursos Humanos. La gestión de la modalidad de Teletrabajo estará a cargo de la URH Corresponderá a la Unidad de Recursos Humanos:
+a) Recibir durante los meses de diciembre y junio las solicitudes por parte de la jefatura solicitante junto con el formulario de actividades teletrabajables de las personas interesadas en la incorporación a la modalidad de teletrabajo. Se exceptúade estas fechas los casos que, por condición médica emitida por la CCSS, certificación de condición de discapacidad por CONAPDIS o sentencia judicial en firme que recomiende la aplicación del teletrabajo a la persona funcionaria.
+b) Mantener un archivo actualizado con la información sobre las personas funcionarias que participan en la modalidad del teletrabajo.
+c) Desarrollar las gestiones correspondientes para la inclusión a la modalidad de teletrabajo desde la recepción de los formularios, declaraciones juradas, entrevistas, transporte, visitas de seguimiento y coordinación con la USST para la revisión del equipo y conexiones en sitio, hasta su aprobación y archivo de documentos asociados al trámite.
+d) Remitir a la Gerencia General la adenda al contrato de teletrabajo para la respectiva firma.
+e) Atender las solicitudes internas y externas de información, orientación y asesoría sobre la modalidad de teletrabajo en el INA
+f) Definir puestos teletrabajables, según actividades desarrolladas por las personas funcionarias.
+g) Impulsar la modernización en la gestión institucional para facilitar trámites y procedimientos internos además del desarrollo del teletrabajo.
