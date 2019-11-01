@@ -14,3 +14,4 @@ Para el quinquenio 2010-2015 se usarán las tablas de mortalidad elaboradas por 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-11-01 | la propia norma |
+| 2 | 2019-11-01 | Reglamento 1525 (2019-09-02) |
