@@ -1,4 +1,5 @@
 N° 9671
+(Nota de Sinalevi: Mediante resolución RES-DGA-328-2019 del 11 de octubre de 2019, la Dirección General de Adunas indica que el presente Tratado rige a partir del 01 de noviembre de 2019.)
 (Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 41965 del 4 de setiembre de 2019, Costa Rica ratifica el presente tratado de libre comercio)
 LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
 DECRETA:
