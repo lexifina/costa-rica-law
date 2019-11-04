@@ -15,3 +15,4 @@ Reglamento de Registro Precalificado y Prestación de Servicios de Peritos Exter
 | --- | --- | --- |
 | 1 | 2016-09-13 | la propia norma |
 | 2 | 2018-01-22 | Reglamento 12217 (2018-01-22) |
+| 3 | 2019-11-04 | Reglamento 12408 (2019-11-04) |

@@ -1,3 +1,1 @@
-CAPÍTULO II
-DISPOSICIONES GENERALES PARA LA PRESTACIÓN DE SERVICIOS
-Artículo 16° Alcance y Responsabilidad. Este reglamento es aplicable para todas aquellas dependencias que realizan la labor de asignación de avalúos, inspecciones individuales, recomendación para desembolso de recursos de crédito e inspecciones masivas de seguimiento en el Banco Nacional.
+Artículo 16.—La Unidad de Cobro será la encargada de fiscalizar los contratos resultantes o derivados de la aplicación del presente reglamento o en su defecto al que la Dirección General de Crédito designe.
