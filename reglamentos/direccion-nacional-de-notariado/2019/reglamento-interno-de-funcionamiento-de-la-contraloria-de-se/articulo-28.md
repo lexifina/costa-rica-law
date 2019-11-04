@@ -1,0 +1,1 @@
+Artículo 28.- Cuando un servidor de la DNN, que no labore en la Contraloría de Servicios, reciba una queja, denuncia o sugerencia de parte del público externo, deberá comunicarlo el día hábil inmediato siguiente a su recibo a la Contraloría de Servicios, por escrito, para que la misma sea tramitada como corresponde.

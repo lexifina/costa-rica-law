@@ -1,0 +1,1 @@
+Artículo 14.- Herramientas Tecnológicas. Para el cumplimiento de sus funciones la Contraloría de Servicios contará con teléfono, fax, correo electrónico, así como los medios tecnológicos necesarios para el buen desempeño y funcionamiento de sus labores.

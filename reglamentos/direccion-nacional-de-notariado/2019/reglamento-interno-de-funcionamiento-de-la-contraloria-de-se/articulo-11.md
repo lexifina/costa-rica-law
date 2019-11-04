@@ -1,0 +1,3 @@
+Artículo 11.- Del Recurso Humano de la Contraloría de Servicios Institucional. De acuerdo a la normativa que rige el funcionamiento de la Contraloría de Servicios estas estarán conformadas:
+a) Por un (a) Contralor (a), que deberá ser un (a) profesional que cumpla los requisitos establecidos al efecto en la Ley N° 9158. Dicho profesional debe estar nombrado en plaza fija y no podrá recaer en un puesto de confianza. Dicho puesto se desempeñará sin recargo de funciones.
+b) Cuando por la naturaleza de las funciones que se desarrollen, sea necesario dotar de más recurso humano a la Contraloría de Servicios, la Dirección Ejecutiva podrá dotar de personal conforme lo dispuesto en la normativa que regula las Contralorías de Servicios.

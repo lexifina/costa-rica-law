@@ -1,0 +1,1 @@
+Artículo 22.- De los medios para presentar gestiones ante la Contraloría de Servicios Institucional. Las quejas, denuncias, sugerencias, felicitaciones o solicitudes se podrán presentar ante la Contraloría Servicios Institucional de manera personal, escrita, verbal, por medios electrónicos o físicos, vía fax, en el buzón de sugerencias o en un sobre cerrado.

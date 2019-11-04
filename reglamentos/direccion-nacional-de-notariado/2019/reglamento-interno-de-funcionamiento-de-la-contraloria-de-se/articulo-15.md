@@ -1,0 +1,1 @@
+Artículo 15.- Todo funcionario o persona que brinde soporte o tenga acceso al Sistema de Registro de Denuncias de la Contraloría de Servicios, se encuentra en la obligación de guardar confidencialidad de la información resguardada, asimismo deberá firmar el formulario de “Manifiesto de Compromiso”, mismo que será entregado por él o la titular de la Contraloría de Servicios.

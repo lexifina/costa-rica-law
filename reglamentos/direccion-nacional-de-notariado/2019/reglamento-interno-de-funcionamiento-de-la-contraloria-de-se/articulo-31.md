@@ -1,0 +1,4 @@
+Artículo 31.- Sobre tramitación de asuntos complejos. Si la Contraloría de Servicios Institucional estima que el caso es complejo, deberá realizar una investigación preliminar y procederá a realizar lo siguiente:
+• Realiza la indagatoria mediante revisión de documentos, consultas entrevistas y cualquier otro recurso que considere pertinente.
+• Una vez realizada la investigación remite a la Jefatura de la Unidad contra la que se presentó la gestión, el resultado de la investigación, la cual debe contener al menos los antecedentes de la denuncia, análisis, conclusiones y recomendaciones.
+• Se debe dar seguimiento al caso investigado hasta que la Administración adopte la solución pertinente. Si no se tiene respuesta o alguna justificación del atraso, se procederá con lo dispuesto en el numeral 44 de la Ley N° 9158.

@@ -1,0 +1,1 @@
+Artículo 27.- Sobre el registro de la gestión. Verificados los requisitos mencionados en el artículo anterior, se registra la gestión en el Sistema Electrónico creado al efecto, y se procede a asignar al titular subordinado de la Unidad en la que se presentó la queja, denuncia, sugerencia para que el asunto sea atendido con la mayor diligencia.

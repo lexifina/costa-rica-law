@@ -1,0 +1,1 @@
+Artículo 13.- Del horario de atención al público. La Contraloría de Servicios Institucional atenderá al público en jornada continua de lunes a viernes en un horario de 7:30 a.m. a las 15:00 p.m. horas, sin perjuicio de ser modificado en aras del interés público o en acatamiento de Decreto Ejecutivo, el cual deberá ser comunicado a los usuarios de la DNN.

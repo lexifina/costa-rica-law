@@ -1,0 +1,1 @@
+Artículo 5.- Todas las dependencias, áreas, unidades, departamentos, direcciones de la Dirección Nacional de Notariado deberán como parte de sus responsabilidades, brindar información, cooperación y prestar colaboración a la Contraloría de Servicios, cuando esta lo requiera, siempre que sea relacionada con las funciones y objetivos de dicho órgano.
