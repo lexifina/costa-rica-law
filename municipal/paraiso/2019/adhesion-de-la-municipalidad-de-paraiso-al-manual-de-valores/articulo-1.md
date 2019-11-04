@@ -1,0 +1,3 @@
+MUNICIPALIDAD DE PARAÍSO
+CONCEJO MUNICIPAL
+Que de conformidad con lo establecido por el Concejo Municipal de Paraíso, según consta en la sesión ordinaria doscientos setenta y cuatro del 10 de setiembre del año dos mil diecinueve aprueba el artículo 41 el cual literalmente dice: artículo 41: Se acuerda por unanimidad el Concejo Municipal de Paraíso se adhiere a la Actualización del Manual de Valores Base Unitarios Por Tipología Constructiva, publicada en el Alcance N°288 de La Gaceta Nº 226 del miércoles 29 de noviembre 2017. Publíquese en el diario oficial La Gaceta. Comuníquese. Acuerdo en Firme y definitivamente aprobado con cinco votos positivos y dos votos negativos
