@@ -1,0 +1,16 @@
+N° 9768
+LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
+DECRETA:
+REFORMAS DEL CAPÍTULO IV DE LA LEY N.° 7558, LEY ORGÁNICA
+DEL BANCO CENTRAL DE COSTA RICA; DEL ARTÍCULO 151 DE
+LA LEY N.° 1644, LEY ORGÁNICA DEL SISTEMA BANCARIO
+NACIONAL Y DEL ARTÍCULO 171 DE LA LEY N.° 7732,
+LEY REGULADORA DEL MERCADO DE VALORES
+ARTÍCULO 1- Se reforma el artículo 119 de la Ley N.° 7558, Ley Orgánica del Banco Central de Costa Rica, de 3 de noviembre de 1995. El texto es el siguiente:
+Artículo 119- Ámbito de supervisión y fiscalización de la Superintendencia Con el propósito de velar por la estabilidad, la solidez y el eficiente funcionamiento del Sistema Financiero Nacional, la Superintendencia General de Entidades Financieras (Sugef) ejercerá sus actividades de supervisión y fiscalización sobre todas las entidades que llevan a cabo intermediación financiera, con estricto apego a las disposiciones legales y reglamentarias, velando por que cumplan con los preceptos que les sean aplicables.
+Para efectos de esta ley, los términos fiscalización y supervisión aluden, en general, a las funciones y responsabilidades atribuidas por esta ley a la Superintendencia.
+En relación con las operaciones de las entidades fiscalizadas, el Consejo Nacional de Supervisión del Sistema Financiero (Conassif) dictará las normas generales que sean necesarias para el establecimiento de sanas prácticas bancarias de gobierno corporativo, incluidas las de idoneidad de miembros del órgano de dirección y puestos claves de la organización, así como de gestión de riesgos y de registro de las transacciones, entre otros aspectos, todo en salvaguarda del interés de la colectividad.
+Para efectos de aplicar las normas de su competencia, emitir los lineamientos correspondientes y ejercer la supervisión, la Superintendencia podrá establecer categorías de intermediarios financieros, en función del tipo, el tamaño, la complejidad o el perfil de riesgo de esos intermediarios.
+Las normas generales y las directrices dictadas por el Conassif serán de observancia obligatoria para las entidades fiscalizadas.
+Las medidas preventivas o correctivas adoptadas por el Conassif y la Superintendencia podrán ser impugnadas por el interesado, sujetándose a lo dispuesto en los artículos 146 y 148 de la Ley N.° 6227, Ley General de la Administración Pública, de 2 de mayo de 1978.
+El Conassif emitirá una regulación prudencial sobre el Sistema de Banca para el Desarrollo, basada en criterios y parámetros que tomen en cuenta las características particulares de la actividad crediticia proveniente del Sistema de Banca para el Desarrollo y que se encuentren de acuerdo con las disposiciones internacionales.

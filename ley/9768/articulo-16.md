@@ -1,0 +1,3 @@
+ARTÍCULO 16- Se reforma el artículo 145 de la Ley N.° 7558, Ley Orgánica del Banco Central de Costa Rica, de 3 de noviembre de 1995. El texto es el siguiente:
+Artículo 145- Deberes de la empresa controladora
+La empresa controladora del grupo financiero local o la entidad financiera que funja como tal será la responsable de las relaciones del grupo o conglomerado financiero con el supervisor responsable y deberá velar por que cada una de las empresas supervisadas cumplan las disposiciones legales y regulatorias, atiendan los requerimientos de información y documentación, y cumplan las medidas u órdenes administrativas emitidas por dicho supervisor en el ejercicio de sus facultades, en la forma y el plazo establecido o que este disponga.

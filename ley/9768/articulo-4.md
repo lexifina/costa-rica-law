@@ -1,0 +1,6 @@
+ARTÍCULO 4- Se reforman el primer párrafo y los incisos a) y b) del artículo 136 de la Ley N.° 7558, Ley Orgánica del Banco Central de Costa Rica, de 3 de noviembre de 1995. Los textos son los siguientes:
+Artículo 136- Reglamento para las entidades financieras
+El Consejo Nacional Supervisión del Sistema Financiero (Conassif), a propuesta del superintendente, dictará un reglamento que le permita a la Superintendencia juzgar la situación económica y financiera de las entidades fiscalizadas, para velar por la estabilidad y eficiencia del sistema financiero. Dicho reglamento incluirá lo siguiente:
+a) Definición de la situación de las entidades supervisadas, la cual podrá establecerse considerando aspectos relacionados con gobierno corporativo, gestión de riesgos, situación financiera y económica, legal o de operaciones y cumplimiento legal y regulatorio, entre otros. Estas situaciones determinarán el grado de normalidad o de inestabilidad o irregularidad financiera de las entidades supervisadas.
+b) Requerimientos de capital adicional, cuando sea necesario para que las entidades supervisadas puedan enfrentar mayores riesgos o por su importancia sistémica. Estos requerimientos serán adicionales a los establecidos por ley o por reglamento, que deben entenderse como los mínimos necesarios para iniciar o realizar operaciones.
+[…]

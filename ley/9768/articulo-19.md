@@ -1,0 +1,5 @@
+ARTÍCULO 19- Se reforma el artículo 148 de la Ley N.° 7558, Ley Orgánica del Banco Central de Costa Rica, de 3 de noviembre de 1995. El texto es el siguiente:
+Artículo 148- Aplicación de límites establecidos
+Los límites establecidos en esta ley a las entidades financieras, en relación con las operaciones activas con una sola persona, natural o jurídica, con grupos de interés económico o con empresas vinculadas a la propia entidad financiera, por propiedad o gestión, serán aplicables a cada una de las entidades sujetas a supervisión que formen parte de los grupos o conglomerados financieros.
+Adicionalmente, dichos límites serán aplicables al grupo o conglomerado financiero de manera consolidada, como parte de la supervisión consolidada, con el propósito de reducir los riesgos del grupo o conglomerado y proteger el sistema financiero nacional. Las auditorías externas de los grupos o conglomerados financieros deberán dictaminar sobre el cumplimiento de estos límites.
+Lo anterior se entiende sin perjuicio de los límites o las prohibiciones que establezca el reglamento para las operaciones entre entidades integrantes de un mismo grupo o conglomerado financiero.

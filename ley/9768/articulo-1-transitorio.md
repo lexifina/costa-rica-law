@@ -1,0 +1,2 @@
+DISPOSICIONES TRANSITORIAS
+TRANSITORIO I- El Consejo Nacional de Supervisión del Sistema Financiero (Conassif) deberá emitir, en el plazo máximo de treinta y seis meses contado desde la vigencia de esta ley, la normativa indicada en el capítulo IV de la Ley N.° 7558, Ley Orgánica del Banco Central de Costa Rica, de 3 de noviembre de 1995, según se ha modificado mediante la presente ley. Cada normativa definirá el plazo de entrada en vigencia.
