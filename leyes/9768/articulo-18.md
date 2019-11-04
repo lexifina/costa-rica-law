@@ -1,0 +1,10 @@
+ARTÍCULO 18- Se reforma el artículo 147 de la Ley N.° 7558, Ley Orgánica del Banco Central de Costa Rica, de 3 de noviembre de 1995. El texto es el siguiente:
+Artículo 147- Deberes de intermediarios financieros con domicilio en el exterior
+Los intermediarios financieros domiciliados en el exterior e integrantes de un grupo financiero deberán cumplir con los siguientes requisitos:
+a) Mantener un capital social no inferior al capital mínimo requerido a los bancos privados costarricenses, convertido a dólares al tipo de cambio de venta de referencia del Banco Central de Costa Rica, a la fecha de entrada en vigencia de dicho capital mínimo.
+b) Estar domiciliados en una plaza bancaria aceptada por el Consejo Nacional de Supervisión del Sistema Financiero (Conassif), que cumpla con los parámetros de regulación, supervisión e intercambio de información dispuestos en el reglamento emitido por este. El Consejo cancelará la autorización de la plaza del exterior que no cumpla con esos parámetros. Si cancela la autorización podrá autorizar la exclusión de esa empresa del grupo financiero, una vez que haya eliminado todas las vinculaciones.
+c) Estar supervisados por las autoridades correspondientes y cumplir con la regulación del país donde estén registrados.
+d) No realizar actividades de captación de recursos de terceros en el territorio nacional, ya sea por su propia cuenta y riesgo, haciendo uso de las instalaciones o los medios facilitados por las entidades o empresas supervisadas costarricenses, o a través de los funcionarios de estas.
+Las entidades supervisadas costarricenses podrán prestar servicios de corresponsalía a los bancos domiciliados en el exterior integrante del grupo o conglomerado financiero, incluyendo, pero no limitado a la transferencia de fondos.
+El tipo, el alcance y las características de los servicios que pueden prestar dichas entidades a los bancos del exterior parte de su grupo o conglomerado financiero será reglamentado por el Consejo Nacional del Supervisión del Sistema Financiero.
+Las operaciones que estos intermediarios realicen en el exterior no estarán sujetas al control monetario del Banco Central.

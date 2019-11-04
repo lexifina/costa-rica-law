@@ -1,0 +1,3 @@
+ARTÍCULO 27- Se reforma el artículo 159 de la Ley N.° 7558, Ley Orgánica del Banco Central de Costa Rica, de 3 de noviembre de 1995. El texto es el siguiente:
+Artículo 159- Penas para funcionarios de entidades y empresas fiscalizadas
+Los miembros del órgano de dirección, administradores, gerentes o apoderados de una entidad o empresa sujeta a la supervisión de la Superintendencia o de un supervisor responsable, que incurran en las conductas a que se refiere el artículo 248, Autorización de actos indebidos, de la Ley N.° 4573, Código Penal, de 4 de mayo de 1970, serán sancionados con pena de prisión de tres a seis años.

@@ -1,0 +1,3 @@
+TRANSITORIO II- En un plazo de veinticuatro meses contado a partir de la entrada en vigencia de esta ley, las labores de supervisión, fiscalización e inspección de las empresas supervisadas, a las que se hace referencia en el artículo 140 bis de esta ley, empezarán a ser ejercidas por la Superintendencia General de Entidades Financieras (Sugef) o el supervisor responsable, de conformidad con la normativavigente. Posterior a ese plazo, se aplicarán los reglamentos que emita el Consejo Nacional de Supervisión del Sistema Financiero (Conassif), de acuerdo con el plazo de entrada en vigencia de cada norma.
+Rige a partir de su publicación.
+Dado en la Presidencia de la República, San José, a los dieciséis días del mes de octubre del año dos mil diecinueve.
