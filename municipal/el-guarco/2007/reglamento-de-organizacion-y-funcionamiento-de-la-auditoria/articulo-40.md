@@ -1,1 +1,0 @@
-Artículo Nº 40.—Creación y ocupación de plazas. A solicitud del auditor interno, en razón del crecimiento de la Institución que haga presumir un mayor riesgo, el auditor podrá solicitar se asigne una plaza asistencial para las labores de auditoría interna. Se debe considerar las necesidades reales en beneficio del funcionamiento del sistema de control interno. (art. 28 LGCI).

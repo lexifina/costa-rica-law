@@ -1,2 +1,0 @@
-Artículo Nº 39.—Manual institucional de cargos. En lo que corresponda, las disposiciones de este Reglamento serán de aplicación en todas las unidades que conforman la estructura organizacional de la Municipalidad.
-La administración activa debe definir en el manual institucional de cargos o clases, las funciones correspondientes al cargo de auditor establecido en la presente normativa, así como los requisitos a ese cargo, según lo dispuesto en los lineamientos que al respecto emita la Contraloría General de La República.
