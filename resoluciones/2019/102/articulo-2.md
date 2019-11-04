@@ -1,0 +1,1 @@
+Artículo 2° – Derogar las “Directrices sobre la comunicación de Relaciones de Hechos y Denuncias Penales por las Auditorías Internas del Sector Público", resolución RCO- 9-2008 de las once horas del diecinueve de febrero de dos mil ocho, publicada en el Diario Oficial La Gaceta N.° 51 del 12 de marzo de 2008.
