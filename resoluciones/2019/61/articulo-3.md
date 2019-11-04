@@ -1,0 +1,1 @@
+Artículo 3º—Gestión de las solicitudes: Todas las solicitudes que se encuentren en la bandeja del funcionario del Departamento de Gestion de Exenciones a la fecha de notificación de la presente resolución, deberán ser revisadas y autorizadas conforme las disposiciones de los artículos 1° y 2° de esta resolución.
