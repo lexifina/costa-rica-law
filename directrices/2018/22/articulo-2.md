@@ -1,1 +1,2 @@
-Artículo 2.- Los jerarcas de la Administración Descentralizada con oficinas en la Región Huetar Caribe, en caso de requerir nuevas plazas, dentro del marco legal correspondiente, procurarán priorizar la atención de la presente directriz.
+Artículo 2.-—Los jerarcas de la Administración Central y Descentralizada deberán agilizar los procedimientos de clasificación de los puestos para efectuar los traslados horizontales de funcionarios de JAPDEVA, cuando los manuales de clasificación de puestos, índices y categorías salariales difieran con los de JAPDEVA.
+(Así reformado por el artículo 1° de la directriz N° 062 del 5 de noviembre de 2019)

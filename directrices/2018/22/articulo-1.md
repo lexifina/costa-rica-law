@@ -21,4 +21,6 @@ XIV. Que en virtud de la necesidad de iniciar los traslados horizontales y uso d
 Por tanto, emiten la siguiente:
 DIRECTRIZ
 “TRASLADO HORIZONTAL Y USO DE PLAZAS VACANTES PARA FUNCIONARIOS DE LA JUNTA DE ADMINISTRACIÓN PORTUARIA Y DE DESARROLLO ECONÓMICO DE LA VERTIENTE ATLÁNTICA EN LA REGIÓN HUETAR CARIBE”
-Artículo 1.- Se instruye a los jerarcas de la Administración Descentralizada con oficinas en la Región Huetar Caribe, para que, dentro del marco legal correspondiente, nombren en forma prioritaria a funcionarios de la Junta de Administración Portuaria y de Desarrollo Económico de la Vertiente Atlántica (JAPDEVA), en plazas vacantes o mediante un proceso de traslado horizontal.
+Artículo 1.- Se instruye a los jerarcas de la Administración Central y Descentralizada con oficinas en la Región Huetar Caribe, para que, dentro del marco legal correspondiente, nombren en forma prioritaria a funcionarios de la Junta de Administración Portuaria y de Desarrollo Económico de la Vertiente Atlántica (JAPDEVA), en plazas vacantes o mediante un proceso de traslado horizontal, en el marco de lo establecido en el artículo 3 de la Ley N° 9764 del 15 de octubre de 2019.
+Para dichos efectos, podrán reubicar las plazas de otras sedes en la Región Huetar Caribe.
+(Así reformado por el artículo 1° de la directriz N° 062 del 5 de noviembre de 2019)

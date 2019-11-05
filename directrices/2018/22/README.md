@@ -14,3 +14,4 @@ Traslado horizontal y uso de plazas vacantes para funcionarios de la Junta de Ad
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-09-04 | la propia norma |
+| 2 | 2019-11-05 | Directriz 62 (2019-11-05) |
