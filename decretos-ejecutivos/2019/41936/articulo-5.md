@@ -1,0 +1,1 @@
+Artículo 5°.- Horario de servicio. En su calidad de Auxiliar de la Función Pública Aduanera, Correos de Costa Rica, S.A., deberá prestar sus servicios en los horarios establecidos, por el Gerente de la Aduana de control, mediante Resolución publicada en el Diario Oficial “La Gaceta”.
