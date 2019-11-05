@@ -15,4 +15,6 @@ i) Las juntas de educación y las juntas administrativas de las instituciones p�
 (Así adicionado el inciso anterior por el artículo 2° de la Ley Exoneración de Tributos a las Juntas de Educación y Juntas Administrativas de las Instituciones Públicas de Enseñanza, N° 8788 del 18 de noviembre de 2009)
 j) El Hospicio de Huérfanos de San José.
 (Así adicionado el inciso anterior por el artículo 5° de la Ley Proayuda al Hospicio de Huérfano de San José, N° 8810 del 3 de mayo de 2010)
+k) Las Asociaciones Administradoras de Sistemas de Acueductos y Alcantarillados Comunales (Asadas).
+(Así adicionado el inciso anterior por el artículo único de la Ley para establecer a las Asociaciones Administradoras de Sistemas de Acueductos y Alcantarillados Comunales como no sujetas al impuesto sobre la renta, N° 9774 del 29 de octubre del 2019)
 (Así reformado por el artículo 15 de la ley N° 7293 del 31 de marzo de 1992)
