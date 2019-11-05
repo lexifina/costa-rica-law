@@ -1,0 +1,59 @@
+Artículo 6°- Cambio de Premios
+1. Ganadores de Multisorteos
+Los ganadores de los premios en efectivo y los medios enteros de los Multisorteos, deberán presentarse en la Plataforma de Servicios en las Oficinas Centrales de la Junta de Protección Social, para validar el premio correspondiente a partir del primer día hábil siguiente a la realización de cada Multisorteo y en un horario de lunes a viernes de 7:30 am a 3:00 pm. y deberán presentar:
+✓ La lotería con la cual salieron favorecidos, misma que deben traer en perfecto estado y sin alteraciones.
+✓ El documento de identidad vigente y en buen estado.
+✓ Si el premio es en efectivo, la certificación de cuenta IBAN (conocida anteriormente como cuenta cliente) emitida por la entidad financiera con la que posea una cuenta bancaria.
+El proceso de validación se realizará únicamente los días hábiles.
+El proceso de validación consiste en la verificación de los documentos y que la lotería sea válida, es decir que cumpla con las medidas de seguridad (papel de seguridad, marca de agua, tinta invisible y tinta termo cromática).
+No se hará efectivo el premio, sin excepción, cuando se presente una de las siguientes condiciones:
+1. El número de cédula de identidad o documento de identidad que se registró en el sistema no se encuentre vigente.
+2. El número de cédula de identidad o documento de identidad que se registró en el sistema no coincide con la cédula de identidad vigente u otro documento de identidad vigente presentado.
+3. La lotería no cuente con las medidas de seguridad señaladas.
+4. La información de la lotería registrada en el sistema durante la activación y no coincide con la información de la lotería presentada en físico.
+Se procederá a sacar copia tanto del documento de identidad vigente y de las fracciones activadas, estos documentos serán custodiados y se procederá a entregar las fracciones originales a la persona ganadora, dado que esta lotería participará en el “Sorteo Extraordinario de Navidad No. 4573” a efectuarse el 15 de diciembre, 2019.
+Una vez validados los documentos, se confeccionará un acta de validación, posteriormente en el caso de los ganadores de enteros, se procederá a la entrega de la lotería, en el caso de los ganadores de premios en efectivo, el ganador deberá dejar la certificación de la cuenta IBAN para efectuar el depósito del premio.
+En caso que algún ganador no pueda presentarse a validar y retirar su premio, podrá autorizar a un representante, mediante una carta debidamente firmada, con la indicación del nombre completo y el número de cédula o documento de identidad de la persona autorizada. En el caso de premios en efectivo, el premio siempre se pagará a una cuenta bancaria a nombre del ganador, por lo cual deberá presentar también la certificación de la cuenta IBAN emitida por el banco o entidad a nombre del ganador. El representante también deberá presentar ambas cédulas o documentos de identidad y dejar fotocopia de las mismas en el trámite.
+2. Ganadores de 70 entradas dobles para asistir al evento del Sorteo Extraordinario de Navidad 2019.
+Los ganadores de las entradas dobles para asistir al Evento del Sorteo Extraordinario de Navidad 2019, deberán presentarse en el Departamento de Mercadeo en las Oficinas Centrales de la Junta para validar el premio correspondiente a partir del primer día hábil siguiente a la realización del sorteo y hasta el viernes 13 de diciembre del 2019 y en un horario de 7:30 am a 3:00 pm y deberán presentar:
+✓ La lotería con la cual salieron favorecidos, misma que deben traer en perfecto estado y sin alteraciones.
+✓ El documento de identidad vigente y en buen estado.
+El proceso de validación se realizará únicamente los días hábiles.
+El proceso de validación consiste en la verificación de los documentos y que la lotería sea válida, es decir que cumpla con las medidas de seguridad (papel de seguridad, marca de agua, tinta invisible y tinta termo cromática).
+No se hará efectivo el premio, sin excepción, cuando se presente una de las siguientes condiciones:
+1. El número de cédula de identidad o documento de identidad que se registró en el sistema no se encuentre vigente.
+2. El número de cédula de identidad o documento de identidad que se registró en el sistema no coincide con la cédula de identidad vigente u otro documento de identidad vigente presentado.
+3. La lotería no cuente con las medidas de seguridad señaladas.
+4. La información de la lotería registrada en el sistema durante la activación y no coincide con la información de la lotería presentada en físico.
+Se procederá a sacar copia tanto del documento de identidad vigente y de las fracciones
+activadas, estos documentos serán custodiados por el Departamento de Mercadeo y se procederá a entregar las fracciones originales a la persona ganadora, dado que esta lotería participará en el “Sorteo Extraordinario de Navidad No. 4573” a efectuarse el 15 de diciembre, 2019.
+A cada ganador se le entregará, el día del evento del Sorteo Extraordinario de Navidad 2019, un distintivo especial, para él y su acompañante, con el cual tendrá derecho a ingresar al evento del Sorteo Extraordinario de Navidad 2019.
+La hora en que deba presentarse en el Centro Comercial Oxígeno Human Playground la Junta de Protección Social le estará informando el día que se presenta a validar los documentos.
+A los ganadores de entradas dobles y que registren su asistencia el día del evento del Sorteo Extraordinario de Navidad 2019 se le obsequiará medio entero del Sorteo Extraordinario de Navidad No. 4573.
+En caso que alguno o varios ganadores de entradas no se presenten el día del evento del Sorteo Extraordinario de Navidad 2019 o previamente no cumplan con los requisitos de validación, los medios enteros que les correspondían se sortearán entre los ganadores de entradas que sí asistieron al evento, previo al Sorteo Extraordinario de Navidad 2019.
+Se aclara que las entradas dobles para asistir al evento del Sorteo de Navidad 2019 no son transferibles a terceros, por tanto, si algún ganador de estas entradas decide no asistir o no puede asistir el día del evento no podrá ceder su entrada a otra persona ni enviar a otra persona en su representación, sin excepción.
+En caso que algún ganador de una entrada no pueda presentarse a validar su entrada, podrá autorizar a un representante, mediante una carta debidamente firmada, con la indicación del nombre completo y el número de cédula o documento de identidad de la persona autorizada. El representante también deberá presentar ambas cédulas o documentos de identidad y dejar fotocopia de las mismas en el trámite. Se aclara que la entrada solo se tramitará a nombre del ganador
+3. Ganadores de 30 entradas sencillas para asistir al evento del Sorteo Extraordinario de Navidad 2019.
+Las personas que salgan favorecidas en el sorteo de 30 entradas sencillas para asistir al evento del Sorteo Extraordinario de Navidad 2019, además de encontrarse presentes en el momento del sorteo en el puesto promocional que tendrá la Junta de Protección Social en el Centro Comercial Oxígeno Human Playground, deberán presentar su documento de identificación vigente a los funcionarios de la Junta de Protección Social para que se les entregue el distintivo especial con el cual tendrá derecho a ingresar al evento. Deberán firmar un acta de entrega del distintivo y al ingresar al evento se les obsequiará medio entero del Sorteo Extraordinario de Navidad No. 4573.
+En caso que alguno o varios ganadores de entradas decidan no ingresar al evento del Sorteo Extraordinario de Navidad 2019, los medios enteros que les correspondían se sortearán entre todos los ganadores de entradas que sí asistieron al evento, previo al Sorteo Extraordinario de Navidad 2019.
+Se aclara que las entradas sencillas para asistir al evento del Sorteo de Navidad 2019 no son transferibles a terceros, por tanto, si algún ganador de estas entradas decide no asistir no podrá ceder su entrada a otra persona ni enviar a otra persona en su representación, sin excepción.
+4. Ganadores de los 5 premios de un millón de colones
+Los ganadores de uno de los 5 premios de ¢1.000.000,00 (un millón de colones con cero céntimos) que se sortearán entre los ganadores de entradas para asistir al evento del Sorteo Extraordinario de Navidad 2019, deberán presentarse en Plataforma de Servicios de la Junta de Protección Social para validar su premio a partir del lunes 16 de diciembre del 2019 en un horario de lunes a viernes de 7:30 am a 3:00 pm (exceptuando días feriados o asuetos brindados por el Gobierno Central), para lo cual deberá presentar:
+✓ Documento de identidad vigente y en buen estado.
+✓ La certificación de cuenta IBAN (conocida anteriormente como cuenta cliente) emitida por la entidad financiera con la que posea una cuenta bancaria.
+Se aclara que para el sorteo de los 5 premios de un millón de colones solo participan los ganadores de entradas que estén presentes en el evento del Sorteo Extraordinario de Navidad 2019.
+En caso que algún ganador no pueda presentarse a validar y retirar su premio, podrá autorizar a un representante, mediante una carta debidamente firmada, con la indicación del nombre completo y el número de cédula o documento de identidad de la persona autorizada. El premio siempre se pagará a una cuenta bancaria a nombre del ganador, por lo cual deberá presentar también la certificación de la cuenta IBAN emitida por el banco o entidad a nombre del ganador. El representante también deberá presentar ambas cédulas o documentos de identidad y dejar fotocopia de las mismas en el trámite.
+5. Ganadores de los 2 Suzuki Vitara 2019
+Los ganadores deberán presentarse en el Departamento de Mercadeo ubicado en las oficinas centrales de la Junta de Protección Social, para validar el premio correspondiente a partir del día hábil siguiente a la fecha de realización del sorteo en un horario de lunes a viernes de 7:30 a.m. a 3:00 p.m., y deberán presentar:
+✓ Las fracciones con las que resultaron favorecidos, en buen estado.
+✓ Documento de identidad vigente y en buen estado.
+El proceso de validación se realizará únicamente los días hábiles.
+El proceso de validación consiste en la verificación de los documentos y que la lotería sea válida, es decir que cumpla con las medidas de seguridad (papel de seguridad, marca de agua, tinta invisible y tinta termo cromática).
+No se hará efectivo el premio, sin excepción, cuando se presente una de las siguientes condiciones:
+5. El número de cédula de identidad o documento de identidad que se registró en el sistema no se encuentre vigente.
+6. El número de cédula de identidad o documento de identidad que se registró en el sistema no coincide con la cédula de identidad vigente u otro documento de identidad vigente presentado.
+7. La lotería no cuente con las medidas de seguridad señaladas.
+8. La información de la lotería registrada en el sistema durante la activación y no coincide con la información de la lotería presentada en físico.
+Si las fracciones no tuviesen algún premio, la lotería será custodiada por la Junta de Protección Social. Si dichas fracciones tuviesen también algún premio en efectivo, será acreedor de ambos premios, para lo cual, deberá presentar primero la lotería para validarla y posteriormente el comprobante del cambio del premio que incluya el detalle de la lotería cambiada.
+Posterior a la validación, el Departamento de Mercadeo brindará los datos del ganador a la Agencia proveedora, para que realice los trámites de inscripción del vehículo, únicamente a nombre del ganador no a un tercero. En caso de que el ganador desee vender u obsequiar el vehículo, debe asumir realizar el traspaso y asumir el pago de los derechos de traspaso que correspondan.
+El vehículo será entregado en las instalaciones de la agencia, en el momento que la Junta de Protección Social se lo comunique a los ganadores.
