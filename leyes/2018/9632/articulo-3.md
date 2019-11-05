@@ -2,3 +2,4 @@ Artículo 3°: Apruébanse los siguientes Egresos Ordinarios y Extraordinarios d
 (Nota de Sinalevi: Por lo extenso de su contenido y tipo de formato consulta el Alcance Digital N° 207 a La Gaceta N° 230 del 11 de diciembre de 2018, tomo E)
 (Modificado por el artículo 1° del decreto ejecutivo N° 41651 del 4 de abril del 2019)
 (Así reformado por el artículo 3° de la ley N° 9741del 17 de setiembre de 2019)
+(Así reformado por el artículo único de la ley N° 9776 del 30 de octubre de 2019)
