@@ -1,1 +1,0 @@
-Artículo 25.- Derogatoria. Deróguese el Decreto Ejecutivo Nº 17884-H, denominado "Reglamento a la Ley de Impuesto a la Propiedad de Vehículos Automotores, Embarcaciones y Aeronaves", del 1° de diciembre de 1987, publicado en La Gaceta Nº 35 del 9 de diciembre de 1987.

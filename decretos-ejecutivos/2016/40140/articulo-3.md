@@ -1,1 +1,0 @@
-Artículo 3°.-Hecho generador y momento en que ocurre. Es la propiedad de vehículos automotores, embarcaciones y aeronaves. Ocurre en el momento de su inscripción y se mantiene hasta la cancelación definitiva del asiento de inscripción.

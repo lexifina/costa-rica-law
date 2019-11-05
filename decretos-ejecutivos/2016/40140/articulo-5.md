@@ -1,1 +1,0 @@
-Artículo 5º.- Contribuyentes. Son contribuyentes de este impuesto, independientemente de que ostenten o no el usufructo y disfrute del bien, las personas físicas y jurídicas, de hecho o de derecho, públicas y privadas que sean propietarias de los vehículos, las embarcaciones y las aeronaves indicados en el artículo segundo de este Reglamento.
