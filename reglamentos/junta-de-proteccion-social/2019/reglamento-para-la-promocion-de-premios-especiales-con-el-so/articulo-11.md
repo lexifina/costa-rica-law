@@ -1,0 +1,1 @@
+Artículo 11.—Vigencia: Este procedimiento rige a partir de su publicación y el registro de participación se hará a partir del miércoles 06 de noviembre del 2019 y hasta el miércoles 4 de diciembre del 2019.

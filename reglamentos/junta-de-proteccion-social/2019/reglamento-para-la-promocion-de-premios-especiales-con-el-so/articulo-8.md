@@ -1,0 +1,2 @@
+Artículo 8º—Caducidad: Los medios enteros del Sorteo
+Extraordinario de Navidad N° 4573 que obtengan los ganadores en las mecánicas de juego que se publiquen semanalmente en Facebook, podrán ser reclamados a partir del primer día hábil siguiente a la realización de cada selección aleatoria que se realice y dentro del período de caducidad de 60 días naturales, establecido en el artículo 18 de la Ley N° 8718. Si transcurrido el plazo de caducidad el ganador no se presenta, la Junta procederá a efectuar la destrucción respectiva.

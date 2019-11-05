@@ -1,0 +1,2 @@
+Artículo 5º—Detalle de los premios: Los premios especiales “Sorteo Extraordinario de Navidad N° 4573” mediante mecánicas de juego en Facebook consisten en medios enteros para dicho sorteo, que serán sorteados entre las personas que participen semanalmente de las diferentes mecánicas de juego que se publiquen en la página “Junta de Protección Social (oficial)” en Facebook, conforme las condiciones de participación definidas en el artículo N° 3 de este procedimiento.
+En cada selección aleatoria semanal se otorgará un premio de 40 medios enteros.
