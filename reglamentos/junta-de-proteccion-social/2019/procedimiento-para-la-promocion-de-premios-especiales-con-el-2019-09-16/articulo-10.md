@@ -1,0 +1,1 @@
+Artículo 10.—Vigencia: Este procedimiento rige a partir de su publicación y será aplicable durante las entrevistas que se desarrollen en los diferentes medios de comunicación, antes del Sorteo Extraordinario de Navidad 2019.
