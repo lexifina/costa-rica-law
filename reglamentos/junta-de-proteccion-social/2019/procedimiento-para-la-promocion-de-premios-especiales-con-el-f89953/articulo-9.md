@@ -1,0 +1,1 @@
+Artículo 9º—Vigencia. Esta promoción tiene vigencia durante los eventos promocionales que la Junta efectuará, cuyas fechas, lugares y horas se estará comunicando oportunamente y la lotería participante corresponde al Sorteo Extraordinario de Navidad Nº 4573, que se estará vendiendo durante dichos eventos.

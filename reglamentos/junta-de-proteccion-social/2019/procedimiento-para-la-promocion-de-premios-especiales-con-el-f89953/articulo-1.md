@@ -1,0 +1,3 @@
+JUNTA DE PROTECCIÓN SOCIAL
+Procedimiento para la promoción de premios especiales, con el “sorteo extraordinario de navidad Nº 4573” para el año 2019 que será realizada a través de eventos promocionales
+Artículo 1º—Objeto. El objeto del presente procedimiento es regular los aspectos relacionados con la promoción establecida para el otorgamiento de premios adicionales, con motivo de la realización del “Sorteo Extraordinario de Navidad Nº 4573” del año 2019, aprobada por la Junta Directiva de la Junta de Protección Social según acuerdo JD-720 correspondiente al capítulo IV), artículo 12) de la sesión ordinaria 55-2019 celebrada el 16 de setiembre del 2019, como parte de la estrategia de comercialización para este producto, mediante eventos promocionales.
