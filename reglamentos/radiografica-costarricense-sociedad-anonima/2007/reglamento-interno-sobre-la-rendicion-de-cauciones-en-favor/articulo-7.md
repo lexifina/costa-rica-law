@@ -1,1 +1,0 @@
-Artículo 7º—Cese de la caución. La obligación de rendir caución cesará por la renuncia, despido o traslado del funcionario a otro puesto en el que no se requiera rendir caución, así como por el cese de la función de recaudación, custodia y trasiego de dineros y valores.
