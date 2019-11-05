@@ -1,0 +1,4 @@
+Artículo 9º—Asistencia, Ausencias de la Presidencia o la Secretaría.
+Los miembros de la Comisión tienen la obligación de asistir a todas las sesiones que sean debidamente convocadas, pudiendo ausentarse únicamente en caso fortuito o fuerza mayor.
+En caso de ausencia o de enfermedad y, en general, cuando concurra alguna causa justa, de la presidencia o la secretaría, estos serán sustituidos por una presidencia ad-hoc y una secretaría suplente, según corresponda, y serán elegidos de conformidad con lo indicado en el artículo 12 del presente Reglamento.
+A las sesiones de la Comisión, podrán asistir con derecho a voz, pero sin voto, todas aquellas personas que sean citadas previamente y mediante citación realizada por la Presidencia de la Comisión, sin embargo, estos invitados no tienen la obligación de asistir a la sesión, y su participación se limitará a asesorar a la Comisión en los temas técnicos que le sean consultados.

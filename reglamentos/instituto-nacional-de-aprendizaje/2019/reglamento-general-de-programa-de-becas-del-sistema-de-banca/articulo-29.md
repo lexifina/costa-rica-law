@@ -1,0 +1,2 @@
+Artículo 29.—Interposición de los recursos
+Los recursos ordinarios deberán interponerse ante la Comisión dentro del término de tres días tratándose del acto final y de veinticuatro horas en los demás casos, ambos plazos contados a partir de la última comunicación del acto. El recurso de revisión deberá interponerse ante la Junta Directiva de conformidad a las reglas del artículo 354 de la Ley General de Administración Pública.

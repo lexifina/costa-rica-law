@@ -1,0 +1,4 @@
+Artículo 10.—De las sesiones de la Comisión Evaluadora
+La Comisión se reunirá de manera ordinaria una vez al mes y extraordinariamente cada vez que se requiera. Para reunirse en sesión ordinaria no hará falta una citación especial. Cuando las circunstancias lo ameriten, quien ejerza la Presidencia o quien le sustituya de conformidad con este Reglamento, podrá convocar a sesionar a la Comisión en lugar, día y hora distinta al ordinario.
+Para reunirse en sesión extraordinaria será siempre necesaria una citación por escrito, con una antelación mínima de veinticuatro horas, salvo los casos de urgencia. A la citación se acompañará copia del orden del día, salvo casos de urgencia.
+No obstante, quedará válidamente constituida la Comisión sin cumplir todos los requisitos referentes a la citación o al orden del día, cuando asistan todos sus miembros y así lo acuerden por unanimidad.

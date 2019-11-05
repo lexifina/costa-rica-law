@@ -1,0 +1,5 @@
+Artículo 24.—Formas de Solicitud
+Se consideran tres formas de solicitud para la ejecución del Programa de Becas, mediante planes para la ejecución de los recursos, según se detalla:
+a) Planes específicos generados por la UFODE: Se refiere a planes elaborados por la UFODE que pueden estar basados en acuerdos, cartas de entendimientos o Convenios que genere la Unidad con centros académicos, laboratorios, centros de investigación, instancias de representación empresarial y del SBD.
+b) Planes referidos por actores del Sistema de Banca para el Desarrollo: Se refiere a los planes de becas que actores del Sistema de Banca para el Desarrollo remitirá a la Unidad, según los tipos de becas establecidos, en el formato definido previamente.
+c) Solicitud directa de beneficiarios: Se refiere a solicitudes que presenten de manera directa las personas beneficiarias contempladas en la Ley 9274 del SBD para aplicar para alguno de los tipos de becas consideradas en el presente Reglamento, previa convocatoria del INA.
