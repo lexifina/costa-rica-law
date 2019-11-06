@@ -1,1 +1,0 @@
-Artículo 12.—Una vez resuelto el recurso de revocatoria, la persona denunciada y la persona denunciante, podrán recurrir ante la Junta de Relaciones laborales dentro de un plazo de ocho días hábiles. Para tales efectos, los miembros de la Junta de Relaciones Laborales estarán sujetos a lo establecido en el artículo 6° del presente Reglamento.
