@@ -1,0 +1,2 @@
+Artículo 6.-Límite para la jornada extraordinaria
+La jornada ordinaria sumada a la extraordinaria podrá ser hasta de doce horas diarias según lo dispuesto por el artículo 140 del Código de Trabajo, por lo que el máximo por laborar en jornada extraordinaria podrá ser de hasta 4 horas diarias. No obstante, estos límites de tiempo pueden ser superados solamente en los casos previstos en el artículo 3 inciso c) de este Reglamento, bajo autorización de la Dirección Ejecutiva.
