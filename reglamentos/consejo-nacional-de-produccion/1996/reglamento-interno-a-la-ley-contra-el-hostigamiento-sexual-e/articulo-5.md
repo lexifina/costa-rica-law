@@ -1,2 +1,0 @@
-Artículo 5°—En un plazo improrrogable de 3 días hábiles siguientes a la denuncia, la Gerencia General procederá a integrar el Órgano Director, que tendrá bajo su responsabilidad el procedimiento sumario administrativo.
-El órgano estará conformado por tres personas, de las cuales al menos una deberá ser profesional en Leyes. En caso de que el denunciante sea una mujer, el órgano estará conformado al menos por dos personas del sexo femenino; y en caso de que el denunciante sea un varón el órgano estará conformado por al menos dos personas del sexo masculino.

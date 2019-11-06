@@ -1,2 +1,0 @@
-Artículo 13.—En un plazo de quince días hábiles a partir del día de la comparecencia de las partes, el Órgano Director emitirá el informe que trasladará a la Gerencia General con las recomendaciones disciplinarias que considere aplicables, quien resolverá en definitiva en un plazo de ocho días hábiles.
-(Así corrida su numeración en sesión N°2775 del 8 de setiembre de 2010, que lo traspasó del antiguo artículo 10 al 13 actual)

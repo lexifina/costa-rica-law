@@ -1,4 +1,0 @@
-Artículo 12—Para la valoración de la prueba deberán tomarse en consideración todos los elementos aportados, dentro de los cuales podrán encontrarse pruebas indiciarías, entendiéndose por éstas las conjeturas que puedan derivarse de las circunstancias que se mueven alrededor de los hechos que pretenden demostrarse. Para los efectos probatorios del hecho deberá considerarse el estado de ánimo de la persona que presenta la denuncia, así como, su desempeño, cumplimiento y dinámica laboral.
-Cualquier valoración sobre la vida personal de quien denuncia, en especial lo relativo al ejercicio de su sexualidad, será improcedente. En caso de duda, se estará a lo que más beneficie a la persona hostigada.
-(Así reformado en sesión ordinaria N° 2775 del 8 de setiembre de 2010)
-(Así corrida su numeración en sesión N°2775 del 8 de setiembre de 2010, que lo traspasó del antiguo artículo 9 al 12 actual)
