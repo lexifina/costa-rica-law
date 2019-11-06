@@ -1,0 +1,6 @@
+CAPÍTULO III
+SUPUESTOS DE PROHIBICIÓN DEL ARTÍCULO 5 DE LA LEY DE TRÁNSITO POR
+VÍAS PÚBLICAS TERRESTRES
+Artículo 5°-Verificación de la condición de pérdida total. Para los efectos de determinar la condición de pérdida total de un vehículo, se verificarán los documentos presentados por el consignatario y/o por medio de la inspección física efectuada por los encargados de la IVE.
+Para la revisión documental señalada en el artículo 19 del presente Reglamento, el MOPT a través del COSEVI establecerá el listado de condiciones bajo las cuales, se consideran que un vehículo presenta la condición de pérdida total. Dicho listado será incluido en el Manual de Procedimientos para la Revisión Técnica de vehículos automotores en las estaciones RTV y sus actualizaciones.
+Los encargados de la IVE deberán verificar que el vehículo no presenta la condición de pérdida total y transmitirán al Sistema Informático del Servicio Nacional de Aduanas el dictamen de aceptación o rechazo y comunicarán al MOPT el resultado de dicha verificación por medio del correo electrónico designado por el jerarca de dicho Ministerio para tal fin y al consignatario al medio de notificación señalado, conforme a lo establecido en el Artículo 21 del presente Reglamento.

@@ -1,0 +1,3 @@
+CAPITULO VI
+PROCESO DE REVISIÓN DOCUMENTAL
+Artículo 18°.-Presentación de documentos y apertura de expediente. Previo a la nacionalización del vehículo y como requisito para su importación definitiva, el consignatario debe presentar una solicitud de inspección ante cualquier estación de revisión técnica de vehículos en el territorio nacional y aportar la documentación descrita en el artículo 4 del presente Reglamento y señalar un lugar o medio para atender notificaciones, conforme a la normativa vigente. Los encargados de la IVE podrán disponer que dicha solicitud se pueda realizar por medios electrónicos, y procederán a conformar un expediente digital.

@@ -1,0 +1,3 @@
+Artículo 7°.- Indicios de manipulación en el número de identificación, VIN o Chasis. Se comprobará por medio de la inspección técnica que no existen indicios de manipulación o alteración de los números de identificación del vehículo.
+El número de identificación del vehículo deberá coincidir con el indicado en el título de propiedad original o el documento equivalente.
+Los encargados de la IVE transmitirán el dictamen de aceptación o rechazo al Sistema Informático del Servicio Nacional de Aduanas y comunicarán al MOPT el resultado de dicha verificación por medio del correo electrónico designado por el jerarca de dicho Ministerio para tal fin y al consignatario al medio de notificación señalado, conforme a lo establecido en el Artículo 21 del presente Reglamento.

@@ -1,0 +1,1 @@
+Artículo 13°.-Requisitos de la entidad de inspección técnica vehicular. La entidad encargada de realizar la inspección técnica vehicular previo a la nacionalización de los vehículos, deberá cumplir con los requisitos dispuestos en el artículo 27 de la Ley de Tránsito.
