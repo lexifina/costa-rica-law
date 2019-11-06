@@ -1,0 +1,1 @@
+Artículo 44. Son funciones propias de los Comités Comunales de Deportes y Recreación, en cada distrito, las mismas anteriormente descritas, según corresponda, con la salvedad que éstas estarán circunscritas al nivel, desarrollo y alcances que les competen a un organismo adscrito al Comité Cantonal de Deportes y Recreación.

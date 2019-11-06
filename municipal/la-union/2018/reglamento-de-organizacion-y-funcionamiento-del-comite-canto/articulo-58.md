@@ -1,0 +1,1 @@
+Artículo 58.- El presupuesto lo debe plantear el Comité Cantonal en la primera semana del mes de julio de cada año, ante los órganos correspondientes para su conocimiento y aprobación, a fin de poderlo ejecutar en el año siguiente; entre lº de enero al 31º de diciembre de aquel año, periodo establecido como ejercicio económico del mismo.

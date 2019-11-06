@@ -1,0 +1,1 @@
+Artículo 76.- La Junta Directiva del Comité Comunal debe comunicar al Comité Cantonal la conformación de puestos con nombre, número de cédula, dirección física exacta, número de teléfono, apartado, correo electrónico -si lo tiene-, de cada uno de sus miembros.

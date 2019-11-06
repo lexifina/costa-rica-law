@@ -1,0 +1,1 @@
+ARTÍCULO 9.- Prohibición para Conformar Comité Cantonal De Deportes. No podrán formar parte del Comité Cantonal, el Alcalde, Alcaldes suplentes, auditor, sub-auditor, tesorero, contador, regidores y síndicos propietarios y suplentes, sus cónyuges o parientes por afinidad o consanguineidad hasta tercer grado inclusive.

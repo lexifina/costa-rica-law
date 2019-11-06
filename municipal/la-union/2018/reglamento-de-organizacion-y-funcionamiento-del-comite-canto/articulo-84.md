@@ -1,0 +1,1 @@
+Artículo 84.- Las Comisiones subordinados a los comités comunales, se deberán reunir por lo menos dos veces al mes. Sus sesiones serán públicas, salvo aquellas que por su naturaleza deban ser privadas. El quórum se logrará con la presencia de tres de sus miembros.

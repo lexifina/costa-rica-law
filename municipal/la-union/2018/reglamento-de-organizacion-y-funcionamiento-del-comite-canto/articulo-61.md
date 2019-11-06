@@ -1,0 +1,1 @@
+Artículo 61.- El Comité Cantonal está en la obligación legal de presentar, ante las autoridades correspondientes, las liquidaciones presupuestarias que se originen, reflejando en ellas los egresos, superávit, superávit específico y déficit, indicando el porqué de su producción.

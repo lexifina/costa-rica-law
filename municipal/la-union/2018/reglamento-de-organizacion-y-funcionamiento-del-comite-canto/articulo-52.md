@@ -1,0 +1,5 @@
+Artículo 52.- Son Funciones de los Presidentes de las Comisiones de Desarrollo Deportivo, Recreativo y Ciencias Aplicadas al Deporte y la Recreación;
+a) Planificar, elaborar, asesorar, dirigir los proyectos que conllevan el desarrollo de las actividades deportivas y recreativas dentro de la esfera pública en el cantón.
+b) Establecer programas de carácter técnico y científico que permitan el mejoramiento deportivo en general, mediante la utilización de los medios y métodos más modernos para la construcción y adecuación de las instalaciones deportivas, medios de comunicación, información y tecnología informática, medicina deportiva, así propiciar la capacitación de dirigentes, administradores, técnicos, entrenadores, jueces y atletas, que permitan un progreso constante, secuente y continuo del deporte cantonal, tanto en el entorno local, como nacional e internacional.
+c) Presidir las Comisiones de Desarrollo Deportivo y Recreativo así como la Comisión Técnica de Ciencias Aplicadas al Deporte y la Recreación, según les sea asignadas.
+d) Rendir informes mensuales y trimestrales de las labores efectuadas, cuando así le sean requeridos.

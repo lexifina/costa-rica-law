@@ -1,0 +1,1 @@
+Artículo 54.- Todas las funciones descritas para los miembros del Comité Cantonal le son asignadas también a los miembros de todos y cada uno de los Comités Comunales de Deportes y Recreación, excepto en aquellos casos en que la ley, por su jerarquía de órganos adscritos no permiten que en su totalidad o de manera parcial, algunas de ellas no las puedan ejercer.

@@ -1,0 +1,5 @@
+Artículo 51.- Son funciones de la Comisión Administrativa:
+a) Elaborar, asesorar y supervisar, el desarrollo del conjunto de funciones y procesos básicos que la planificación, organización, dirección, coordinación y control de los mismos, repercute de forma positiva en la administración de los recursos públicos con apego a los principios de legalidad, eficacia, economía y eficiencia, de la actividad realizada en la organización.
+b) Será responsable del control del personal, administrativo, técnico, profesional y misceláneo que contrate el Comité Cantonal y participará, recomendando las mejores opciones que los concursos y antecedentes propicien para la contratación, por parte del Comité Cantonal de los mismos.
+c) Será además responsable del control y fiscalización de la rendición de los informes financieros requeridos, emitidos por las entidades y funcionarios correspondientes.
+d) Rendir trimestralmente, ante el Comité Cantonal, para efectos de evaluación y control, informes de la gestión realizada, en los cuales se determine, lo planeado, lo ejecutado y sus resultados.

@@ -1,0 +1,3 @@
+Artículo 37. Custodia de Actas.
+La custodia del libro de actas le corresponderá al secretario del Comité Cantonal de Deportes y Recreación, para lo cual se destinará un archivo con el fin de resguardar el libro de actas y demás documentos de interés del comité de Deportes en donde se justifiquen sus actuaciones, en especial la información contable y presupuestaria de dicha organización. El secretario velará por su limpieza, integridad, y deterioro.
+El libro de actas, se presentará cuando sea requerido por la Consejo Municipal, o la Administración Municipal, Autoridades Administrativas Nacional, y oficinas Jurisdiccionales.

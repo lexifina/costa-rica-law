@@ -1,0 +1,3 @@
+CONTRATACIÓN
+Artículo 38.
+Para la adquisición de bienes y servicios por parte del Comité Cantonal de Deportes y Recreación, se utilizará las plataformas informáticas con que cuenta la Administración Municipal (SICOP), respetando en todo la Ley de Contratación Administrativa y su Reglamento. Por lo que todo requerimiento de compra deberá ser remitido por parte del presidente del Comité Cantonal de Deportes y Recreación, con la debida antelación a la proveeduría Municipal para su adquisición, teniendo como responsable tanto del proceso de Compra como de las autorizaciones, requeridas para la efectiva adquisición, al presidente del Comité de Deportes.

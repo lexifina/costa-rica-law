@@ -1,0 +1,1 @@
+Artículo 66.- Dicho presupuesto debe ser consecuente con el plan de desarrollo del gobierno local en materia deportiva y recreativa y las políticas deportivas del Comité, además debe reflejar las necesidades de las Organizaciones Deportivas, los Comités Comunales, debiendo ser sometido para aprobación del Concejo Municipal a más tardar en la primera semana de julio de cada año.

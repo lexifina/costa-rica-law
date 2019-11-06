@@ -1,0 +1,2 @@
+Artículo 73._ Forma de Elección.
+Los miembros a elegir, serán designados por elección secreta de las organizaciones que conforman la asamblea general, cuyo máximo de representantes será de dos por organización. Los postulantes a cargos de elección podrán serlo por decisión propia de los mismos o mediante la postulación que haga cualquiera de las organizaciones participantes en la asamblea. En cualquier caso deberá respetarse a la hora de la designación, la equidad de género que se establece en la legislación vigente.

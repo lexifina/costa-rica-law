@@ -1,0 +1,1 @@
+Artículo 70.- Al finalizar la etapa de los Juegos Deportivos Nacionales, estudiantiles y juegos paralímpico, Juegos Dorados, y demás actividades deportiva competitiva no contemplada en los anteriores, el Director Deportivo deberá presentar a la Comisión Respectiva, un informe escrito de las actividades realizadas, los logros alcanzados, los problemas surgidos y su solución.

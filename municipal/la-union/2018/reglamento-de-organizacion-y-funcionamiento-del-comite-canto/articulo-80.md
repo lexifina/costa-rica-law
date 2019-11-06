@@ -1,0 +1,1 @@
+Artículo 80.- Cuando un Comité Comunal, en coordinación con el área técnica del Comité Cantonal realice torneos o actividades de cualquier deporte, estará en la obligación de confeccionar el respectivo reglamento, que deberá ser aprobado previamente por el Comité Cantonal.

@@ -1,0 +1,2 @@
+Artículo 81.- Comisiones Específicas de Trabajo por Disciplina o Proyecto deportivo
+Cada comité comunal podrá formar Comisiones Específicas de Trabajo por Disciplina o Proyecto deportivo como apoyo, en los barrios y caseríos que lo ameriten. Seguirá los procedimientos establecidos en el nombramiento de los comités comunales descritos de este reglamento. Su funcionamiento se limitará a su jurisdicción territorial.
