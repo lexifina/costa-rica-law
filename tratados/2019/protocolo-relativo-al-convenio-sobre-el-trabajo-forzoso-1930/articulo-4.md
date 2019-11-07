@@ -1,0 +1,3 @@
+Artículo 4
+1. Todo Miembro deberá velar por que todas las víctimas de trabajo forzoso u obligatorio, independientemente de su situación jurídica o de que se encuentren o no en el territorio nacional, tengan acceso efectivo a acciones jurídicas y de reparación apropiadas y eficaces, tales como una indemnización.
+2. Todo Miembro deberá adoptar, de conformidad con los principios fundamentales de su sistema jurídico, las medidas necesarias para velar por que las autoridades competentes puedan decidir no enjuiciar ni imponer sanciones a las víctimas de trabajo forzoso u obligatorio por su participación en actividades ilícitas que se han visto obligadas a cometer como consecuencia directa de estar sometidas a trabajo forzoso u obligatorio.
