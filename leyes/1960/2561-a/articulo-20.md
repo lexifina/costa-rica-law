@@ -1,2 +1,2 @@
 ARTICULO 20
-Las legislaciones que prevean una represión colectiva aplicable a toda una comunidad por delitos cometidos por cualquiera de sus miembros no deberán establecer, como método represivo, el trabajo forzoso u obligatorio por una comunidad.
+(Suprimido por el artículo 7° del Protocolo relativo al Convenio sobre el trabajo forzoso, 1930, N° 9745 del 23 de octubre de 2019)

@@ -1,2 +1,2 @@
 ARTICULO 6
-Los funcionarios de la administración, incluso cuando deban estimular a las poblaciones para su cargo a que se dediquen a una forma cualquiera de trabajo, no deberán ejercer sobre esas poblaciones una presión colectiva o individual con el fin de hacerlas trabajar para particulares, compañías o personas jurídicas privadas.
+(Suprimido por el artículo 7° del Protocolo relativo al Convenio sobre el trabajo forzoso, 1930, N° 9745 del 23 de octubre de 2019)

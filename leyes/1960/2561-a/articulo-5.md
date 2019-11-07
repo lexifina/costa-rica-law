@@ -1,3 +1,2 @@
 ARTICULO 5
-1. Ninguna concesión a particulares, compañías o personas jurídicas privadas deberá implicar la imposición de cualquier forma de trabajo forzoso u obligatorio cuyo objeto sea la producción o recolección de productos que utilicen dichos particulares, compañías o personas jurídicas privadas, o con los cuales comercien.
-2. Si las concesiones existentes contienen disposiciones que impliquen la imposición de semejante trabajo forzoso u obligatorio, esas disposiciones deberán quedar sin efecto tan pronto sea posible, a fin de satisfacer las prescripciones del artículo 1 del presente Convenio.
+(Suprimido por el artículo 7° del Protocolo relativo al Convenio sobre el trabajo forzoso, 1930, N° 9745 del 23 de octubre de 2019)
