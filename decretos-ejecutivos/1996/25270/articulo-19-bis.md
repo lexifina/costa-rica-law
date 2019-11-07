@@ -16,6 +16,9 @@ n. Brindar apoyo técnico a los diferentes órganos del Servicio Nacional de Adu
 o. Preparar, con base en la información proporcionada por la aduana de jurisdicción, el criterio técnico para la autorización de empresas de zona franca fuera de parque industrial.
 p. Colaborar con el Departamento de Procesos Administrativos en la elaboración de proyectos de resolución de los recursos interpuestos contra las resoluciones que denieguen la inscripción de los Auxiliares de la Función Pública Aduanera en el registro correspondiente.
 q. Preparar certificaciones de información relacionada con el registro de Auxiliares de la Función Pública Aduanera.
-r. Otras que le encomienden la Dirección de Gestión Técnica.
+r. Llevar el Registro de Importadores Habituales y asignar el número de registro correspondiente.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 42017 del 7 de noviembre del 2019)
+s. Otras que le encomiende la Dirección de Gestión Técnica.
+(Así modificada su numeración por el artículo 1° del decreto ejecutivo N° 42017 del 7 de noviembre del 2019, que lo traspasó del antiguo inciso r) al s))
 El Departamento Estadística y Registro estará a cargo de un jefe.
 (Así adicionado por el artículo 1° del Decreto Ejecutivo N° 34475 de 4 de abril de 2008).

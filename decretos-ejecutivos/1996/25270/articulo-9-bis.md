@@ -10,10 +10,16 @@ h. Asesorar a la Dirección General en la negociación de acuerdos, convenios o 
 i. Conformar equipos de participación, apoyo a la negociación y seguimiento de convenios, tratados y acuerdos comunitarios e internacionales, proyectos de ley, reglamentos, decretos y toda otra normativa jurídica, con el objeto de determinar sus implicaciones jurídicas para el Sistema Aduanero Nacional y efectuar las recomendaciones pertinentes.
 j. Coordinar a lo interno y externo del Servicio la elaboración de proyectos normativos relevantes para el desarrollo de la institución, así como proponer los proyectos de ley, reglamentos u otra normativa, relacionada con las nuevas tendencias en materia aduanera.
 k. Coordinar con las instituciones involucradas, el análisis y estudio sobre los convenios a suscribir con otros países.
-l. Preparar para la firma del Director General los proyectos de resolución de los procedimientos sancionatorios contra los auxiliares y de determinación de la obligación tributaria aduanera, así como de todos los actos derivados de éstos.
+l. Preparar para la firma del Director General los proyectos de resolución de los procedimientos sancionatorios de suspensión contra Auxiliares de la función Pública Aduanera producto de informes de las Aduanas, la ejecución de cobros e inhabilitaciones cuando haya deudas pendientes de los Auxiliares o importadores referidos por las Aduanas y los procedimientos de sanción no previstos en la Ley General de Aduanas, así como de todos los actos derivados de éstos.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 42017 del 7 de noviembre del 2019)
 m. Dar seguimiento a los asuntos de su competencia, que estén siendo ventilados en los tribunales de justicia, con el fin de coordinar y recomendar las acciones administrativas y/o judiciales pertinentes.
 n. Divulgar al Servicio la información sobre la promulgación de las normas jurídicas que afecten el régimen jurídico aduanero.
 o. Analizar y sistematizar, recopilar, clasificar, asignar y difundir los documentos de interés jurídico generados por la Dirección General y el Tribunal Aduanero Nacional, para el Servicio y los usuarios del Sistema.
 p. Colaborar con las actividades de capacitación de la Dirección General.
-q. Otras que le encomiende la Dirección General.
+q. Autorizar el archivo de los adeudos tributarios aduaneros, multas, suspensiones y demás asuntos tramitados conforme a sus competencias, que se encuentren concluidos en razón de haberse finalizado el procedimiento administrativo respectivo, y no existan trámites, diligencias o actos administrativos pendientes.
+(Así adicionado el inciso anterior por el artículo 2° del decreto ejecutivo N° 42017 del 7 de noviembre del 2019)
+r. Coadyuvar con la Procuraduría General de la República, el Ministerio Público y la Dirección Jurídica del Ministerio de Hacienda, en la representación del Servicio Nacional de Aduanas y cualquiera de sus órganos en toda clase de juicios, litigios y audiencias dentro de éstos, sean judiciales o administrativos, surgidos contra resoluciones, directrices, actos o con cualquier otra calidad de interviniente en el proceso y rendir informes o efectuar toda clase de solicitudes.
+(Así adicionado el inciso anterior por el artículo 2° del decreto ejecutivo N° 42017 del 7 de noviembre del 2019)
+s. Otras que le encomiende la Dirección General.
+(Así modificada su numeración por el artículo 2° del decreto ejecutivo N° 42017 del 7 de noviembre del 2019, que lo traspasó del antiguo inciso q) al s))
 (Así adicionado por el artículo 1° del Decreto Ejecutivo N° 34475 de 4 de abril de 2008).

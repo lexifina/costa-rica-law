@@ -14,7 +14,8 @@ l. Presentar las denuncias correspondientes ante la autoridad judicial cuando pr
 m. Determinar los ajustes a la obligación tributaria aduanera e iniciar los procedimientos de cobro o devolución de tributos de las obligaciones tributarias aduaneras, cuando corresponda.
 n. Imponer a los Auxiliares de la Función Pública Aduanera la sanción de multa, como resultado de los procedimientos sancionatorios que tramite.
 o. Atender y resolver consultas de las jefaturas de los Departamentos de la aduana, con el objetivo de retroalimentar sobre la correcta aplicación a partir de las disposiciones y procedimientos aduaneros vigentes.
-p. Canalizar adecuadamente la atención de las denuncias que le sean trasladadas por la Dirección de Gestión de Riesgo y retroalimentar periódicamente a esa Dirección, sobre los resultados obtenidos e informar, a quien corresponda, los resultados para que se adopten las acciones legales y administrativas procedentes.
+p. Canalizar adecuadamente la atención de las denuncias y retroalimentar periódicamente a la Dirección de Gestión de Riesgo, sobre los resultados obtenidos e informar, a quien corresponda, los resultados para que se adopten las acciones legales y administrativas procedentes .
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 42017 del 7 de noviembre del 2019)
 q. Controlar y dar seguimiento a los servicios que brinda la aduana a su cargo y recomendar a la Dirección General los cambios procedimentales en las áreas técnicas y normativas de la aduana, con el fin de mejorar la calidad del servicio.
 r. Supervisar la aplicación de los procedimientos aduaneros.
 s. Determinar las necesidades en lo concerniente a presupuesto, recursos humanos, tecnológicos y materiales; sistemas de información; comunicaciones; registro; procesamiento automático de la información; controles y otros servicios, y establecer procedimientos de trabajo que permitan una gestión eficaz y eficiente.

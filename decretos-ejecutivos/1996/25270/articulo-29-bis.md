@@ -1,5 +1,6 @@
 Artículo 29 bis.—Funciones del Departamento de Denuncias y Operativos Especiales. El Departamento realizará las siguientes funciones:
-a. Atender las denuncias remitidas por la Dirección de Gestión de Riesgo, así como retroalimentar periódicamente a esa Dirección sobre los resultados obtenidos.
+a. Recibir y atender las denuncias, su previa valoración y comunicación inmediata a la Dirección de Gestión de Riesgo y seguimiento correspondiente. Deberá informar a quien corresponda, los resultados para que se adopten las acciones legales y administrativas procedentes. Asimismo en un plazo no mayor a 5 días de la emisión del informe de conclusión de la denuncia, deberá remitir la ficha de resultados de conclusión y hallazgos de la realización de la investigación de lo denunciado a la Dirección de Gestión de Riesgo.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 42017 del 7 de noviembre del 2019)
 b. Efectuar estudios específicos originados por denuncias y otros motivos afines a su competencia.
 c. Efectuar como resultado de sus actuaciones fiscalizadoras, la investigación sobre posibles delitos aduaneros e infracciones administrativas o tributarias aduaneras, preparar la denuncia correspondiente, así como recabar las pruebas que fundamenten las acciones legales respectivas.
 d. Ejecutar operativos especiales y actividades de fiscalización en todo el territorio nacional, en coordinación con otras autoridades y dependencias, cuando corresponda.

@@ -7,7 +7,7 @@ e. Definir políticas y directrices para la identificación de sectores sensible
 f. Identificar, analizar y valorar los riesgos aduaneros.
 g. Aprobar y emitir las estrategias, disposiciones o planes de acción para enfrentar, reducir, evitar, transferir o aceptar los riesgos, así como planes para la supervisión, evaluación y comunicación de resultados, preparados por los departamentos de la Dirección.
 h. Evaluar permanentemente el desempeño y eficacia de las fases del proceso de inteligencia aduanera, análisis de riesgo y de la planificación de la fiscalización contenida en el Plan Anual de Fiscalización.
-i. Recibir, asignar y dar seguimiento a las denuncias que sean del conocimiento del Servicio Nacional de Aduanas.
+i. (Derogado por el artículo 3° del decreto ejecutivo N° 42017 del 7 de noviembre del 2019)
 j. Requerir y analizar los resultados de los informes de las actuaciones de fiscalización y los relativos a la atención de denuncias, fichas informativas, fichas de riesgo, publicaciones y otras fuentes de información que sean del conocimiento de la Dirección.
 k. Elaborar y presentar para aprobación de la autoridad superior del Servicio Nacional de Aduanas el Plan Anual de Fiscalización, efectuar su revisión periódica y actualización respectiva.
 l. Revisar y remitir al Director General la propuesta de criterios de selección de personas, mercancías y operaciones aduaneras en que se basa el Plan Anual de Fiscalización. Dichos criterios podrán ser actualizados y modificados anualmente.

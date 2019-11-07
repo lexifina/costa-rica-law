@@ -1,7 +1,7 @@
 Artículo 25 bis.—Funciones del Departamento Control Posterior del Valor en Aduana. Este Departamento tendrá las siguientes funciones:
 a. Instruir estudios e investigaciones para verificar la declaración del valor en aduana y la correcta determinación de la obligación tributaria aduanera.
 b. Efectuar la revisión a posteriori de las declaraciones aduaneras correspondientes a los criterios de revisión posterior, establecidos por la Dirección de Gestión de Riesgo, con el fin de establecer la correcta determinación de la obligación tributaria y el cumplimiento de las demás normas que regulan el despacho de las mercancías.
-c. Efectuar estudios e investigaciones originados por denuncias en materia de valoración aduanera trasladadas por la Dirección de Gestión de Riesgo, así como retroalimentar periódicamente a esa Dirección sobre los resultados obtenidos.
+c. (Derogado por el artículo 3° del decreto ejecutivo N° 42017 del 7 de noviembre del 2019)
 d. Investigar la comisión de delitos aduaneros, infracciones administrativas y tributarias aduaneras, preparar la denuncia ante la autoridad judicial correspondiente, así como diligenciar y procurar las pruebas que fundamenten las acciones legales respectivas.
 e. Comprobar el cumplimiento de las disposiciones, relativas a los derechos contra prácticas desleales de comercio internacional, medidas de salvaguardia y propiedad intelectual.
 f. Comunicar a las dependencias competentes los resultados de los estudios y las investigaciones realizados ante presuntas irregularidades que cometan importadores, con el objeto de que se instruyan los expedientes correspondientes y se adopten las medidas pertinentes.
