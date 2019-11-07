@@ -1,2 +1,2 @@
 ARTICULO 3
-A los efectos del presente Convenio, la expresión "autoridades competentes" designa a las autoridades metropolitanas, o a las autoridades centrales o superiores del territorio interesado.
+(Suprimido por el artículo 7° del Protocolo relativo al Convenio sobre el trabajo forzoso, 1930, N° 9745 del 23 de octubre de 2019)
