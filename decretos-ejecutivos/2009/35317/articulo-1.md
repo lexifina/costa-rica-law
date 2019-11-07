@@ -1,4 +1,6 @@
+(Derogado)
 N° 35317-H
+(Derogado por el artículo 3° del decreto ejecutivo N° 42017 del 7 de noviembre del 2019)
 EL PRESIDENTE DE LA REPÚBLICA
 Y LA MINISTRA DE HACIENDA
 Con fundamento en los artículos 140 incisos 3), 18) y 20) y 146 de la Constitución Política; artículos 4, 25, inciso 1), 27, inciso 1), 28, inciso 2), acápite b), 269 de la Ley General de la Administración Pública, Ley Nº 6227 de 2 de mayo de 1978, sus modificaciones y reformas, los artículos 6, 7 y 8 de la Ley Nº 8360 del 24 de junio de 2003, Segundo Protocolo de Modificación al Código Aduanero Uniforme Centroamericano y los artículos 1, 5 bis, 11, 21, 46 y 56 de la Ley Nº 7557, Ley General de Aduanas, Ley Nº 7557 del 20 de octubre de 1995, sus modificaciones y reformas.
