@@ -1,0 +1,1 @@
+Artículo 20.—De las funciones del Concejo de Participación Social. Serán funciones del Consejo de Participación Social las siguientes: a) Conocer todos los planes, políticas y proyectos que se ejecuten en el marco de la Agencia. b) Atender todas las consultas realizadas por el Consejo de la Agencia.

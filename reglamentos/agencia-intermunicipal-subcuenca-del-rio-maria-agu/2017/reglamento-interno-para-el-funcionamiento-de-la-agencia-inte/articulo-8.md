@@ -1,0 +1,1 @@
+Artículo 8º—De los acuerdos del Consejo de la Agencia Intermunicipal del Río María Aguilar. Los acuerdos relacionados con políticas de uso del suelo, de inversiones conjuntas, con convenios con otras entidades públicas (distintas a los cuatro municipios), con agencias de cooperación serán tomados por unanimidad. Los demás acuerdos requieren un mínimo de tres votos.

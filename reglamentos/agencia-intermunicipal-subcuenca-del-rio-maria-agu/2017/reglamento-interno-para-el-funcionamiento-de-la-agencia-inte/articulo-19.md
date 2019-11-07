@@ -1,0 +1,1 @@
+Artículo 19.—De las sesiones de Participación Social. El Consejo de Participación Social, se reunirá ordinariamente dos veces al año y extraordinariamente cuando sea convocado por el Consejo de la Agencia. La convocatoria se realizará a través de correo electrónico.

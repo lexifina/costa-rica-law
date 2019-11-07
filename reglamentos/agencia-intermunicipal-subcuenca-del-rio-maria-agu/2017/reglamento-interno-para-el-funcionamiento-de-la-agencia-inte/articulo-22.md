@@ -1,0 +1,1 @@
+Artículo 22.—Sobre la ejecución presupuestaria. La ejecución presupuestaria de la Agencia, estará sujeta a las normas y principios establecidos en el Código Municipal y demás normativa vigente en derecho público.

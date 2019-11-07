@@ -1,0 +1,1 @@
+Artículo 11.—De la Secretaría del Consejo de la Agencia. El Director de la Secretaría Técnica, será nombrado por los miembros del Consejo de la Agencia. El Director, o quien este designe, tendrá las funciones de Secretaría del Consejo de la Agencia, así mismo deberá asistir a las sesiones del Consejo de la Agencia con voz, pero sin voto.

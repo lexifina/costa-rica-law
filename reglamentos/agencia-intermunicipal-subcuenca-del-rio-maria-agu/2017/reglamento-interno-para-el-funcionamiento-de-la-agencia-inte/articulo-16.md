@@ -1,0 +1,1 @@
+Artículo 16.—De las sesiones del Consejo Asesor El Consejo Asesor se reunirá ordinariamente cada tres meses y extraordinariamente cuando lo convoque el Coordinador o el Consejo de la Agencia. La convocatoria se realizará a través de correo electrónico.

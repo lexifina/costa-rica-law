@@ -1,0 +1,1 @@
+Artículo 15.—Del Coordinador del Consejo Asesor. El Consejo Asesor nombrará de su seno un coordinador de sus sesiones, quién los convocará, con el apoyo de la UNE, y propondrá la agenda de sus reuniones.

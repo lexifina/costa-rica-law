@@ -1,0 +1,1 @@
+Artículo 6º—De la conformación del Consejo de Agencia. El Consejo de Agencia estará integrado por los cuatro alcaldes de las municipalidades miembro, así como el director de la Secretaría Técnica, los alcaldes pueden delegar su representación en cualquiera de sus Vicealcaldes.

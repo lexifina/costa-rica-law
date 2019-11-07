@@ -1,0 +1,1 @@
+Artículo 10.—De las sesiones del Consejo de la Agencia. La Agencia sesionará ordinariamente una vez por bimestre, en la fecha, hora y sede que fije su Presidente, sesionará extraordinariamente cuando sea convocado por el Presidente o dos de sus miembros. Las convocatorias se realizarán a través de correo electrónico.
