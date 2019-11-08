@@ -1,0 +1,5 @@
+Artículo 2°- La modificación indicada en el artículo ante1ior, en lo que se refiere al traslado de partidas es por un monto de veintisiete mil seiscientos cuarenta y cuatro millones novecientos cincuenta y seis mil ochocientos noventa y tres colones con treinta y nueve céntimos ((27.644.956.893,39), su desglose así como el detalle de los cambios efectuados en la programación de los títulos presupuestarios citados, se presenta en los niveles de título, programa/subprograma, partida y subpartida presupuestaria estará disponible en la página electrónica del Ministerio de Hacienda, en la siguiente dirección: http://www.hacienda.go.cr/contenido/12485-modificaciones-presupuestarias, y en forma impresa, en los archivos que se custodian en la Dirección General de Presupuesto Nacional.
+El detalle de las rebajas que se presentan en la modificación a que se refieren los artículos 1° y 2° de este Decreto se muestra como sigue:
+[imagen]
+El detalle de los aumentos que se presentan en la modificación a que se refieren los artículos 1° y 2º de este Decreto se muestra como sigue:
+[imagen]
