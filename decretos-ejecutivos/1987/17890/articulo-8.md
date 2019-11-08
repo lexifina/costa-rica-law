@@ -1,1 +1,0 @@
-Artículo 8°—Beneficiarios del incentivo. Serán beneficiarios del incentivo que re produce mediante la reversión del impuesto establecido en el artículo anterior todos los productores bananeros, siempre y cuando se superen las metas de exportación ya mencionadas.

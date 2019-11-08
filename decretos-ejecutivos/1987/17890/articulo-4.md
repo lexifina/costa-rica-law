@@ -1,1 +1,0 @@
-Artículo 4°.- Reglamentación de los créditos. Las operaciones crediticias que se realicen con los recursos de este Fondo para enfrentar las consecuencias producidas por desastres naturales, deberán adecuarse al Reglamento del Fondo de Contingencias.

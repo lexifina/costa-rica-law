@@ -1,4 +1,0 @@
-Artículo 10.— Traspaso de fondos a “ASBANA” y pago al beneficiario.
-Una vez que ASBANA determine el exceso de cajas exportadas sobre las metas propuestas para cada año y haya efectuado los cálculos como lo estipula el artículo anterior, notificará todo ello al Ministerio de Hacienda a más tardar el 30 de marzo siguiente.
-A tenor de tal comunicación el Ministerio de Hacienda habiendo realizado las verificaciones que considere pertinentes traspasará a ASBANA, en el menor tiempo posible, las sumas que ingresarán al Fondo de Contingencias y las que se distribuirán entre los productores.
-Una vez que hayan sido traspasadas dichas sumas a ASBANA, ésta ingresará al Fondo de Contingencias el monto correspondiente y procederá a distribuir entre los productores bananeros los montos a que tengan derecho por concepto del incentivo aquí regulado.

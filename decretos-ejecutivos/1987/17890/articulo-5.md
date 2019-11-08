@@ -1,1 +1,0 @@
-Artículo 5° —Administración de los recursos. Para la correcta administración de los recursos del Fondo de Contingencias ASBANA establecerá los mecanismos contables pertinentes, así como los controles adecuados y mantendrá en una cuenta corriente un saldo de aproximadamente un 10% de los recursos. El resto de los fondos los invertirá en bonos del Gobierno Central.

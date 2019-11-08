@@ -1,1 +1,0 @@
-Artículo 6°—Costo del manejo de los fondos. ASBANA deberá cobrar al prestatario una comisión por una única vez de un 2% sobre los créditos que conceda con los dineros del Fondo de Contingencias y aplicará el producto de dicho cobro a cubrir los gastos administrativos que implique el manejo del Fondo.
