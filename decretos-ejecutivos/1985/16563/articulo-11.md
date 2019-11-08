@@ -1,1 +1,1 @@
-Texto no disponible
+Artículo 11. (Este decreto ejecutivo fue derogado por el artículo 2° del decreto ejecutivo N° 19532 del 9 de marzo de 1990. Posteriormente por el artículo 3° aparte a) del decreto ejecutivo N° 42037 del 8 de noviembre de 2019, “Creación del Fondo de prevención, exclusión y combate contra el fusarium oxysporum f.sp cubense raza 4 tropical y de otras plagas y enfermedades que afecten el cultivo de banano y derogatoria del fondo de contingencias bananeras”, se vuelve a derogar este numeral)

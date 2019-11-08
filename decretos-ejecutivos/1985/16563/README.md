@@ -13,3 +13,4 @@ Plan de Restitución de Areas Bananeras a Cargo de ASBANA
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1985-10-01 | la propia norma |
+| 2 | 2019-11-08 | Decreto Ejecutivo 42037 (2019-11-08) |
