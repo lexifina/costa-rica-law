@@ -1,0 +1,1 @@
+Artículo 26.—Expediente. Cada Acta de las sesiones que celebre la Junta Directiva debe llevar su respectivo expediente, el cual estará formado por los documentos originales o copias de los asuntos que se conocen en cada sesión. El expediente puede constar por medios digitales.

@@ -1,0 +1,1 @@
+Artículo 27.—Libro Auxiliar. El expediente de cada Acta, tendrá el carácter de Libro Auxiliar del Libro de Actas de la Junta Directiva y debe ser identificable con facilidad por su número de sesión y el número del libro de actas.

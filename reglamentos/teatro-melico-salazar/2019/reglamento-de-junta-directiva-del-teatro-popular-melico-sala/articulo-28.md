@@ -1,0 +1,1 @@
+Artículo 28.—Ingreso y retiro de las sesiones. En el acta, igualmente se consignará el retiro del recinto de sesiones de cualquiera de los miembros de Junta Directiva por más de quince minutos. También se consignará el ingreso y retiro del recinto de sesiones de cualquiera de los invitados especiales, llamados al momento de conocerse un punto específico de agenda.

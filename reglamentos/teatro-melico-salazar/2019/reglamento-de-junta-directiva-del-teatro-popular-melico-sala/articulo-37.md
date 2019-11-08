@@ -1,0 +1,1 @@
+Artículo 37.—Modificación de la agenda. La Junta Directiva podrá modificar o alterar el orden del día de las sesiones ordinarias en la forma y oportunidad que estime convenientes por la mayoría absoluta de los presentes.

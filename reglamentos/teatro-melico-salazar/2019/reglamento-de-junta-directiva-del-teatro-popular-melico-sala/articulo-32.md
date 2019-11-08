@@ -1,0 +1,1 @@
+Artículo 32.—Restitución. Cuando por alguna circunstancia imprevisible, una página del Libro de Actas deba ser sustituida por deterioro o extravío, tal asunto será puesto en conocimiento de la Junta Directiva. La Secretaría solicitará simultáneamente la sustitución de la página a la Auditoría Interna.

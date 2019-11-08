@@ -1,0 +1,1 @@
+Artículo 38.—Agenda de sesiones extraordinarias. En el orden del día para una sesión extraordinaria de Junta Directiva se incluirán, única y específicamente, aquellos asuntos para los que fue convocada.

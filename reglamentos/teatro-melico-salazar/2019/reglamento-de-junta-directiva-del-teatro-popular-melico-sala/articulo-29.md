@@ -1,0 +1,1 @@
+Artículo 29.—Aprobación de las actas. Las actas de las sesiones ordinarias y extraordinarias, deberán ser aprobadas en la sesión ordinaria siguiente. El borrador del acta se entregará a los directivos por cualquier medio que deje constancia de su envío, para que lo revisen por lo menos con tres días hábiles de antelación a la celebración de la sesión en que será aprobada.

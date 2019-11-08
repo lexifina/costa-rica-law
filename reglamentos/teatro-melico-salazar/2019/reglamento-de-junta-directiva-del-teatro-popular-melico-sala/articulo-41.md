@@ -1,0 +1,1 @@
+Artículo 41.—Asistencia del Asesor Legal. A las sesiones asistirán el Asesor Legal a efectos de asesorar a la Junta Directiva en el estudio, análisis y discusión de asuntos, en sus respectivos ámbitos.

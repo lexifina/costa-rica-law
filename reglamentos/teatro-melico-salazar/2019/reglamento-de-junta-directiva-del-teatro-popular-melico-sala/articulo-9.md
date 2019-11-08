@@ -1,0 +1,3 @@
+Artículo 9°—Vicepresidencia y Secretaría. La Junta
+Directiva elegirá, en el mes de junio de cada año, las personas que ocuparán la Vicepresidencia y la Secretaría por un período de un año, cargos en los que podrán ser reelectos. Los otros cuatro miembros serán vocales. En caso de ausencia o impedimento transitorio del Presidente(a), será reemplazado por el Vicepresidente, quien ejercerá con iguales atribuciones, facultades y deberes de aquel.
+Cuando en alguna sesión, por cualquier motivo, las personas Presidente o Vicepresidente de la Junta Directiva estuvieren ausentes o impedidos para el ejercicio de su cargo, los restantes miembros de Junta Directiva nombrarán a uno de ellos en su sustitución con carácter ad hoc.

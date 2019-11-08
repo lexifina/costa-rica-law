@@ -1,0 +1,1 @@
+Artículo 3°—Jerarquía política. El TPMS estará dirigido por una Junta Directiva como órgano superior jerárquico encargado de la política institucional quien debe proponer la política pública nacional y la toma de decisiones estratégicas necesarias para la funcionalidad del TPMS y para cumplir eficientemente con los objetivos asignados por el ordenamiento jurídico.

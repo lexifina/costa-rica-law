@@ -1,0 +1,1 @@
+Artículo 19.—Objeto de acuerdos. No podrá ser objeto de acuerdo ningún asunto que no figure en el orden del día, salvo que cinco de los miembros del órgano colegiado decidan lo contrario declarada la urgencia del asunto.
