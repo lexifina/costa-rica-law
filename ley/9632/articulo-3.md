@@ -3,3 +3,4 @@ Artículo 3°: Apruébanse los siguientes Egresos Ordinarios y Extraordinarios d
 (Modificado por el artículo 1° del decreto ejecutivo N° 41651 del 4 de abril del 2019)
 (Así reformado por el artículo 3° de la ley N° 9741del 17 de setiembre de 2019)
 (Así reformado por el artículo único de la ley N° 9776 del 30 de octubre de 2019)
+(Modificado por el artículo 1° del decreto ejecutivo N° 42030 del 6 de noviembre de 2019)
