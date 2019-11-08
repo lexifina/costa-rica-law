@@ -16,3 +16,4 @@ Reforma Recaudación Distribución Impuesto $ 1.00 Caja Banano Exportada
 | 1 | 1989-05-22 | la propia norma |
 | 2 | 1989-07-31 | Decreto Ejecutivo 19152 (1989-07-31) |
 | 3 | 1990-03-09 | Decreto Ejecutivo 19532 (1990-03-09) |
+| 4 | 2019-11-08 | Decreto Ejecutivo 42037 (2019-11-08) |
