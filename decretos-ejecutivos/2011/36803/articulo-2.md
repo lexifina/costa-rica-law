@@ -1,1 +1,0 @@
-Artículo 2°.- Para el cumplimiento de lo dispuesto en el artículo anterior la Corporación Bananera Nacional, deberá realizar los traslados de fondos correspondientes y el efectivo pago ante la Caja Costarricense de Seguro Social dentro del plazo máximo de dos meses contados a partir de la publicación del presente decreto.
