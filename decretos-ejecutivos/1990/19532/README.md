@@ -14,3 +14,4 @@ Reforma Reglamento Recaudación Impuesto Exportación Banano(Corregida su numera
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1990-03-14 | la propia norma |
+| 2 | 2019-11-08 | Decreto Ejecutivo 42037 (2019-11-08) |
