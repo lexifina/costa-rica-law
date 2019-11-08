@@ -1,1 +1,0 @@
-Artículo 12.—Aplicación de las cuotas. Los recursos que se reciban para el servicio de la deuda serán aplicados en su orden, primero el pago de intereses y el remanente, si lo hay, a amortizar el principal.

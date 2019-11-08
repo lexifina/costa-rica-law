@@ -1,1 +1,0 @@
-Artículo 13.—Calculo de los intereses. Para el cálculo de los intereses se considerará el año calendario de 365 días calculando los intereses sobre saldos a la fecha de la aplicación. La Junta Directiva de ASBANA, S. A. revisará anualmente la tasa de interés que será igual a la establecida para los créditos del Fondo de Préstamos a Productores.

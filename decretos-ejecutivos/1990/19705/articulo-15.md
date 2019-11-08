@@ -1,1 +1,0 @@
-Artículo 15.—Previsiones supletorias. En todo lo relacionado con los fines del presente Reglamento y no previsto aquí regirán, con carácter supletorio, las leyes y reglamentos que regulan la concesión de crédito, especialmente en lo que se refiere a la actividad bananera.

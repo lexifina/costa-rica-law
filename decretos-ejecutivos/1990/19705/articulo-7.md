@@ -1,3 +1,0 @@
-Artículo 7°—Condiciones de los créditos. El plazo, eventual período de gracia y la forma de pago de los créditos que otorgue ASBANA, S. A., quedará a juicio de la Junta Directiva, tomando en consideración las estipulaciones del presente Reglamento y estudiando cada caso concreto, con base en el informe que rendirán los departamentos especializados.
-ASBANA, S. A., podrá modificar las condiciones propuestas por el solicitante, asustándolas a la situación agronómica y financiera real y a las disposiciones de estas normas, de modo que la financiación procure la solución de los problemas que afronta el solicitante.
-El monto máximo a financiar en cada caso, estará determinado por los requerimientos de crédito de cada finca y a las disponibilidades del Fondo.

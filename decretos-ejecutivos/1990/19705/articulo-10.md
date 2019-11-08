@@ -1,1 +1,0 @@
-Artículo 10.—Control del plan de inversión. Con el objeto de controlar el avance del plan de inversión, ASUANA, S. A. hará cortes periódicos del mismo y los comparará con el avance material corroborado en el campo.

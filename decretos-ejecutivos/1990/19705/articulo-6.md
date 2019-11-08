@@ -1,2 +1,0 @@
-Artículo 6°—Aprobación. Concluido el análisis de las solicitudes, el Departamento de Fomento Bananero enviará a la Junta Directiva un informe con sus recomendaciones, que indiquen claramente, desde un punto de vista técnico, su opinión del estudio.
-Ese informe deberá contener la información suficiente para la toma de decisión por parte de la Junta Directiva, la cual será en definitiva el órgano que apruebe o no el crédito.
