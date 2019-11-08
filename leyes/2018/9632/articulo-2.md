@@ -20,3 +20,4 @@ Artículo 2°: Apruébanse los siguientes Egresos Ordinarios y Extraordinarios d
 (Así reformado por el artículo 1° de la ley N° 9752 del 3 de octubre de 2019)
 (Modificado por el artículo 1° del decreto ejecutivo N° 41990 del 4 de octubre de 2019)
 (Así reformado por el artículo único de la ley N° 9776 del 30 de octubre de 2019)
+(Modificado por el artículo 1° del decreto ejecutivo N° 42030 del 6 de noviembre de 2019)

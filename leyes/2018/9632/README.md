@@ -1,6 +1,6 @@
 # Ley de Presupuesto Ordinario y Extraordinario de la República para el Ejercicio Económico del 2019
 
-Ley N° 9632 del 2018-11-28. SINALEVI, ficha 87777: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=87777&param2=118273&param3=1>.
+Ley N° 9632 del 2018-11-28. SINALEVI, ficha 87777: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=87777&param2=118331&param3=1>.
 
 Publicada en La Gaceta N° 230 del 2018-12-11.
 
@@ -25,3 +25,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 15 de 22 | 2019-10-21 | Ley 9752 | 2019-10-03 |
 | 16 de 22 | 2019-10-21 | Decreto Ejecutivo 41990 (2019-10-04) | 2019-10-04 |
 | 17 de 22 | 2019-11-05 | Ley 9776 | 2019-10-30 |
+| 18 de 22 | 2019-11-08 | Decreto Ejecutivo 42030 (2019-11-06) | 2019-11-06 |
