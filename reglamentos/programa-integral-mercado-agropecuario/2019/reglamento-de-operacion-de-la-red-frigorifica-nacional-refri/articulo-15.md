@@ -1,0 +1,1 @@
+Artículo 15.—Vigencia y derogatoria: Este Reglamento rige a partir de la publicación en el Diario Oficial La Gaceta y deroga el Reglamento de Operación de la Red Frigorífica Nacional (REFRINA) del Programa Integral de Mercadeo Agropecuario (PIMA).
