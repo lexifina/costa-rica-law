@@ -1,0 +1,1 @@
+Artículo 11.—Cuando se trate de obras de construcción, se girarán los recursos hasta que se cuente con el Permiso de Construcción. De ser necesario, la Municipalidad girará el monto requerido para la formalización de los trámites del permiso de construcción.
