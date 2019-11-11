@@ -16,3 +16,4 @@ Comunica emisión de resoluciones de la Dirección General de Servicio Civil (DG
 | 1 | 2018-07-19 | la propia norma |
 | 2 | 2018-10-31 | Resolución 10 (2018-10-31) |
 | 3 | 2019-03-28 | Resolución 5 (2019-03-28) |
+| 4 | 2019-11-11 | Resolución 19 (2019-11-11) |
