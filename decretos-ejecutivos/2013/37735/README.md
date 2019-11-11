@@ -17,3 +17,4 @@ Reglamento general del Sistema Nacional de Planificación
 | 2 | 2014-03-12 | Decreto Ejecutivo 38321 (2014-03-12) |
 | 3 | 2014-05-12 | Decreto Ejecutivo 38491 (2014-05-12) |
 | 4 | 2018-11-14 | Decreto Ejecutivo 41483 (2018-11-14) |
+| 5 | 2019-11-11 | Decreto Ejecutivo 42069 (2019-11-11) |

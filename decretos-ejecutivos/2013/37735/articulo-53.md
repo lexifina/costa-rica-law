@@ -1,2 +1,2 @@
-Artículo 53.—Regulaciones sobre inversiones con endeudamiento público. El aval para el inicio de negociaciones sobre proyectos de inversión pública con endeudamiento público se emitirá con base en al menos el estudio de prefactibilidad.
-(Así reformado por el artículo 2° del decreto ejecutivo N° 38321 del 12 de marzo del 2014)
+Artículo 53. Aprobación final de inicio de trámites para obtener créditos en el exterior. MIDEPLAN emitirá una aprobación final de inicio de trámites para obtener créditos en el exterior. Para esto se deberá cumplir con los requisitos establecidos en las normas técnicas emitidas por MIDEPLAN de conformidad con el objeto del financiamiento.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 42069 del 11 de noviembre del 2019)
