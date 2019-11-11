@@ -1,1 +1,0 @@
-Articulo 7°—La Empresa prestaré m servicios únicamente para usos domésticos, comerciales, industriales, oficiales y de servicio social y religioso. En ningún taso serán prestados para uso agrícola y para lotes que carezcan de edificación, a menos que disponga de los permisos correspondientes para la construcción.

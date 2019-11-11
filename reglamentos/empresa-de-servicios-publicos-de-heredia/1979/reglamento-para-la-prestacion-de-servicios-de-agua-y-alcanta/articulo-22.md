@@ -1,1 +1,0 @@
-Artículo 22.—Cuando los medidores, dejaren de funcionar por desperfecto, sin interrumpir el suministro de agua, el importe de la factura mensual se calculará de acuerdo con el promedio de los consumos registrados en los tres periodos anteriores.

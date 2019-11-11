@@ -1,1 +1,0 @@
-Artículo 80.— Por estar destinados los hidrantes a combatir incendios, está prohibido su uso por entidades o personas distintas al Cuerpo de Bomberos. Sin embargo, por motivo de interés colectivo, la Empresa podrá autorizar el uso temporal de un hidrante para otros fines, pero bajo su control y por las entidades y procedimientos que ella señale.

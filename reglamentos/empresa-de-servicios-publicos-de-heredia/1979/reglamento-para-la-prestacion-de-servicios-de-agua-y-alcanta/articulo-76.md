@@ -1,1 +1,0 @@
-Artículo 76,—La no cancelación dentro del plazo en cada caso señalado, de los recargos o multas impuestas a un abonado, dará derecho a la Empresa para suspender los servicios hasta que se efectúe la cancelación.

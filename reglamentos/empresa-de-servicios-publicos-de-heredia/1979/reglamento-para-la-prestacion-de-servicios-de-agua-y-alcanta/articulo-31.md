@@ -1,1 +1,0 @@
-Artículo 31.—Cuando los líquidos residuales industriales sean vertidos a los colectores públicos, la Empresa se reserva el derecho de exigir al usuario o abonado que por su cuenta, mantenga un tratamiento previo adecuado y el control de flujo de dichas líquidos, de acuerdo con las autoridades sanitarias y a satisfacción de la Empresa.

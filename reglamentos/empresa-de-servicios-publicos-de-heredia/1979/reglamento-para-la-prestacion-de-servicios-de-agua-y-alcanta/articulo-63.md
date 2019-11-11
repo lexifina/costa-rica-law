@@ -1,2 +1,0 @@
-B. CAMBIOS EN LOS SERVICIOS:
-Artículo 63.- Los abonados podrán solicitar de la Empresa cambios de acometida, segregaciones, cambios de diámetro y acometidas adicionales de sus servicios de acueducto o alcantarillado. Para la tramitación de tales solicitudes, el abonado deberá estar al día con los pagos correspondientes. La Empresa se reserva, en todo caso, el derecho de aceptar o negar la solicitud por razones técnicas.

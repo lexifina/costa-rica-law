@@ -1,1 +1,0 @@
-Articulo 11.—Es obligación de los abonados y los usuarios, mantener sus instalaciones interiores en buen estado y hacer uso de los servicios de acueducto de acuerdo con este Reglamento y las instrucciones que para estos casos imparta la Empresa.

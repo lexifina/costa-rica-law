@@ -1,1 +1,0 @@
-Articulo 30.—La Empresa podrá señalar cuáles aguas o líquidos residuales no podrán verterse o hacer que se viertan a los colectores públicos, y en qué casos deberán instalarse interceptores de grasas, de aceites o de materiales arenosos en la propiedad del abonado.

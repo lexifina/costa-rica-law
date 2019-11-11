@@ -1,1 +1,0 @@
-Artículo 25.—- Cuando por fugas indeterminadas se haya acumulado una deuda por varios recibos mensuales, la Empresa podrá darle facilidades al abonado para su cancelación en abonos, en concordancia con el artículo anterior.

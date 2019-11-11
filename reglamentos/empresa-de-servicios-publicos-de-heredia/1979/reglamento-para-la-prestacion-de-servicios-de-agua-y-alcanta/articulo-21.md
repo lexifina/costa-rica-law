@@ -1,1 +1,0 @@
-Artículo 21.—Todo atraso en el pago de los servicios de agua tendrá una multa de dos por ciento mensual acumulativo hasta el veinte por ciento de la deuda. (Artículo 13 de la Ley General de Agua Potable y Ley N° 1271 de 6 de marzo de 1851).

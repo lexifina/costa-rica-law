@@ -1,1 +1,0 @@
-Artículo 79.— Es privativo de la Empresa señalar la ubicación, especificaciones y forma de conectar los hidrantes públicos contra incendio a la red de distribución, para dicho señalamiento e instalación se requerirá del Instituto Nacional de Seguros en las zonas ya servidas, así como para los nuevos desarrollos urbanísticos y de los planos correspondientes.

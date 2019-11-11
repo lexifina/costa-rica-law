@@ -1,1 +1,0 @@
-Artículo 47.—Para edificaciones de uno y dos pisos, destinados a vivienda, el diámetro de la acometida de cañería será de 12,7 mm; y el de la acometida de alcantarillado será de: 150 mm. Para edificaciones de tres o más pisos destinadas a vivienda, y para todas las destinadas a colectividades, industria o comercio, la Empresa fijará, en cada caso los diámetros de !as acometidas.

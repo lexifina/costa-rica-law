@@ -1,1 +1,0 @@
-Articulo 23.—Los recibos por servicios de agua deben ser cancelados dentro de los 10 días hábiles siguientes a la fecha en que han sido puestos al cobro (resolución SNE del 10 de diciembre de 1976). Cuando los recibos no fueren pagados en el plazo indicado, la ESPH, podrá suspender inmediatamente el servicio. (Ley N° 1634 18 de setiembre de 1953: Ley General de Agua Potable).

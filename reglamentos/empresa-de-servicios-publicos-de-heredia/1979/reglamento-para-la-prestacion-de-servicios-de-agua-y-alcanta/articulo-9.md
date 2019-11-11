@@ -1,3 +1,0 @@
-B. DE LAS INSTALACIONES:
-Articulo 9°—Es obligación de los usuarios y del público en general, velar por d buen estado de las redes de distribución y demás instalaciones de la Empresa, y dar aviso a ella de los daños de que tengan conocimiento. Cada usuario, en particular está obligado a vigilar y evitar que se dañe o altere bu acometida, caja de registro e hidrómetro.
-Las contravenciones serán sancionadas de conformidad con los artículos 14 y 15 de la Ley General de Agua Potable, sin perjuicio de que en caso de reincidencia i por parte de un usuario, la Empresa pueda además, suspenderle el servicio.

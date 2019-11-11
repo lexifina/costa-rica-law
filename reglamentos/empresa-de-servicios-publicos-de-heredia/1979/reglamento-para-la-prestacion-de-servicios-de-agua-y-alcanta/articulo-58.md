@@ -1,3 +1,0 @@
-CAPITULO III Cambios
-A. CAMBIOS Y CANCELACIONES DE LOS SERVICIOS:
-Artículo 58.—Cuando una finca disfrute del servicio de agua, su edificación se amplio se reconstruya o sea reemplazada por otra, ya sea aumentando el área construida o pasando de un uso unifamiliar, a multifamiliar, o cambiarle su destino de vivienda al de comercio, industria o colectividad, tales cambios deben hacerse del deben hacerse del conocimiento de la ESPH, previamente y por escrito y ésta decidirá qué reacondicionamiento requieren los servicios para poder continuar prestándoles en forma sanitaria a las nuevas condiciones planteadas por el abonado.

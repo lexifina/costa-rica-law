@@ -1,1 +1,0 @@
-Artículo 66.- En la solicitud de cambio de diámetro de una acometida de acueducto, el abonado deberá expresar por escrito las razones del aumento o disminución del consumo de agua; la Empresa se reserva el derecho de otorgar o denegar dicho cambio.

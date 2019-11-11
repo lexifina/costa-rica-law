@@ -1,1 +1,0 @@
-Artículo 33.— Para que la Empresa considere una solicitud de servicios es requisito indispensable que existan vías públicas de acceso al perímetro de la propiedad a que pertenece la edificación, en las cuales hayan o puedan instalarse las tuberías requeridas.

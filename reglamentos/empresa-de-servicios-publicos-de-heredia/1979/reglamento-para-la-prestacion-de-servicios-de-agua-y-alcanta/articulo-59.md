@@ -1,1 +1,0 @@
-Artículo 59.- Si a criterio de la Empresa tales cambios necesitan el reacondicionamiento de los servicios, el abonado deberá cancelar el servicio que hubiere venido rigiendo y solicitar uno nuevo de acuerdo con las nuevas circunstancias, pagar las obras de reacondicionamiento de las acometidas y los derechos correspondientes.

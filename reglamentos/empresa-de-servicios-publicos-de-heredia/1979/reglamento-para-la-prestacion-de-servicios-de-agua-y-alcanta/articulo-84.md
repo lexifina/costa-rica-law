@@ -1,1 +1,0 @@
-Artículo 84.— En los casos no previstos en el presente Reglamento, deberá estarse a lo dispuesto por las leyes y reglamentos del Instituto Costarricense de Acueductos y Alcantarillados, al Ministerio de Salud y del Servicio Nacional de Electricidad.

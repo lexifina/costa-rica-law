@@ -1,1 +1,0 @@
-Artículo 34.— Se atenderán solicitudes únicamente por servicios de alcantarillado sanitario, cuando la propiedad tenga servicio de agua; si no lo tiene la solicitud para servicio de alcantarillado sanitario debe ser presentada simultáneamente con la del servicio de acueducto.

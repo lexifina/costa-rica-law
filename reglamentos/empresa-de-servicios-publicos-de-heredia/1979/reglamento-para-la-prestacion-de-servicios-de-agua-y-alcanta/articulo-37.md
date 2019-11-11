@@ -1,1 +1,0 @@
-Artículo 37.—En todos los casos, el solicitante deberá expresar el destino que va a dar al agua solicitada, ya sea para usos domésticos (unifamiliares o multifamiliares), colectivos, comerciales, industriales, etc.

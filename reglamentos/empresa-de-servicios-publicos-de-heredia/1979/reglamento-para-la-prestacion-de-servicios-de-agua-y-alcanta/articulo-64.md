@@ -1,1 +1,0 @@
-Artículo 64.- Para que la Empresa ejecute las obras de cambio de acometida, el abonado debe cancelar previamente la suma presupuestada para las obras indispensables. En caso de que sea necesario prolongar la red local, el abonado también previamente deberá pagar el valor presupuestado para dicha extensión.

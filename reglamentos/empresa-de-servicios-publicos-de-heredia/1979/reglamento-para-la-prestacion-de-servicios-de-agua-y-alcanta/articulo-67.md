@@ -1,1 +1,0 @@
-Artículo 67.- Para que la Empresa ejecute las obras de cambio de diámetro, el abonado debe cancelar previamente el costo de la nueva acometida, el derecho de conexión y cuando se trate del cambio de un medidor a otro de mayor diámetro, el valor de éste.

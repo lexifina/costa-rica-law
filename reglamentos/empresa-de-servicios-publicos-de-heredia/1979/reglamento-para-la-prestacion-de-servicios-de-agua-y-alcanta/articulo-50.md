@@ -1,1 +1,0 @@
-Artículo 50.— La Empresa se reserva el derecho de aprobar o aplazar solicitudes para el servicio de agua o alcantarillado sanitario por motivos de carácter técnico, económico o administrativo que a juicio de ella, sean inconvenientes para el interés general, aún cuando cumplan con este Reglamento.

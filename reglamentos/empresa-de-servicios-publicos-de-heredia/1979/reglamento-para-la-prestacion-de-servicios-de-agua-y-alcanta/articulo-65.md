@@ -1,1 +1,0 @@
-Artículo 65.- Para que la Empresa ejecute la separación de los servicios en partes o parte de una finca, segregada físicamente del resto de ésta pero con acceso a la vía pública, se requiere que el abonado cancele anticipadamente, en ambos casos el precio de las acometidas necesarias, y además realice los trabajos de separación dentro de la propiedad.

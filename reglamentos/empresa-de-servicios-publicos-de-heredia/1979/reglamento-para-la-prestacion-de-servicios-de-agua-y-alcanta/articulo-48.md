@@ -1,2 +1,0 @@
-Artículo 48.—Para obtener los servicios, todo nuevo abonado deberá haber construido u obligarse a construir dentro de su predio y hasta el borde de la cuneta, dos sistemas separados de desagüe: el de las aguas negras y el de las aguas pluviales. La Empresa no concederá ni prestará sus servicios a quienes incumplan con dicha separación.
-La Empresa no prestará servicio directo de desagüe para sótanos y semisótanos.

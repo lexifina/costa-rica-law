@@ -1,2 +1,0 @@
-C. DERIVACIONES. SEGREGACIONES Y ADICIONES:
-Artículo 15.— Está prohibido al abonado tomar de las tuberías Interiores o de los tanques de una finca, derivación alguna (ramal), para darle servicios a otra edificación, apartamento, local o predio independiente; se consideran como tales aquellos que corresponden a una separación tísica, catastral, o de uso. Tales derivaciones sólo podrán hacerse en casos muy especiales, previa la autorización expresa de la Empresa.

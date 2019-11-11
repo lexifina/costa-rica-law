@@ -1,1 +1,0 @@
-Artículo 8°— Las obligaciones de la Empresa para con el abonado son las correspondientes a las condiciones existentes en la finca respectiva en el momento de serle otorgados los servicios y sólo subsistirán mientras el tamaño de la construcción, el volumen de sus consumos y el uso que se le dé al agua se mantenga tuno originalmente fueron solicitados.

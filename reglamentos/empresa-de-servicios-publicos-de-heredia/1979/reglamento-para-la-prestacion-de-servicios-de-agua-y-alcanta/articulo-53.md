@@ -1,2 +1,0 @@
-Artículo 53.—Todo abonado o urbanizador potencial que solicite servicios de acueducto o de alcantarillado sanitario pagará una contribución por cada concepto (acueductos o colectores) de ¢ 5,00 por metro cuadrado del lote. Si el área de construcción es mayor que el área de la propiedad (varios pisos), la tasa se aplicará por área de construcción y en el caso de urbanizaciones, de acuerdo con el área que indica el plano catastrado.
-(Así SUSPENDIDO por la Sesión celebrada en marzo de 1983, publicada en La Gaceta N° 62 de 30 de marzo de 1983.)

@@ -1,1 +1,0 @@
-Artículo 60.- Si en el inmueble ocurrieren los cambios antes indicados y no se pusieren en conocimiento de la Empresa, ésta podrá suspender los servicios y dar por terminado el convenio existente con el abonado.

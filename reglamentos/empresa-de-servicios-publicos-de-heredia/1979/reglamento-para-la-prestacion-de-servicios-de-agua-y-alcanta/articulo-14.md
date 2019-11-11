@@ -1,1 +1,0 @@
-Articulo 14.—El abonado o el usuario de las instalaciones interiores tiene la plena responsabilidad por el manejo de los servicios dentro de la finca y, por consiguiente relevarán a la Empresa de todo reclamo por daño o perjuicio a personas o propiedades, ocasionado directa o indirectamente por suministro, uso y evacuación del agua en relación con el predio afectados.

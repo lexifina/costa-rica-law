@@ -1,2 +1,0 @@
-Artículo 45.—La Empresa remitirá los recibos a domicilio, en el momento que lo crea oportuno, si el abonado no desea que sus recibos le sean enviados a la , propiedad en que se presta el servicio, sino que desea que los mismos le sean remitidos a su apartado o a un banco para ser descontados de su cuenta corriente, deberá llenar y firmar la fórmula especial que la Empresa tendrá en uso para ese propósito.
-Esto no implica ninguna obligación por parte de la ESPH, y por consiguiente no asume ninguna responsabilidad por estos envíos.

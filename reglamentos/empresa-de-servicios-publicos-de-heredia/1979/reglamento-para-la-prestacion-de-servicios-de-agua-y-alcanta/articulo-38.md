@@ -1,1 +1,0 @@
-Articulo 38.—Para solicitar la separación de servicios o el cambio de diámetro de la acometida, es necesario que el abonado llene una fórmula de solicitud de solicitud de servicio en el Departamento Comercial, que esté al día en el pago de los servicios y cuya atención estará sujeta a lo establecido por el. artículo 62 del presente Reglamento.
