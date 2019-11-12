@@ -16,3 +16,4 @@ Reglamento de Vertido y Reuso de Aguas Residuales
 | 1 | 2007-03-19 | la propia norma |
 | 2 | 2010-07-01 | Decreto Ejecutivo 36304 (2010-07-01) |
 | 3 | 2017-08-04 | Decreto Ejecutivo 40699 (2017-08-04) |
+| 4 | 2019-11-12 | Decreto Ejecutivo 42075 (2019-11-12) |
