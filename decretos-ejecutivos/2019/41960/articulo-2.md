@@ -1,0 +1,1 @@
+Artículo 2°.- Se establece esta Metodología como complemento en la elaboración de todas las estrategias, políticas, proyectos, programas, planes y ejecución de actividades específicas que se lleven a cabo en el territorio nacional, por instituciones nacionales e internacionales de carácter público o privado.

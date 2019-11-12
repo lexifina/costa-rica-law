@@ -1,0 +1,1 @@
+Artículo 6°.- Esta metodología podrá ser modificada en todos sus alcances cuando así se justifique por parte de las autoridades técnicas y especializadas de los Ministerios de Agricultura y Ganadería (MAG) y Ambiente y Energía (MINAE)

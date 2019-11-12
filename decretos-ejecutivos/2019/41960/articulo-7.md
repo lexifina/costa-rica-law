@@ -1,0 +1,1 @@
+Artículo 7°- Deróguese el Decreto Ejecutivo número 23214-MAG-MIR.ENEM de fecha 13 de abril de 1994, denominado "METODOLOGIA PARA LA DETERMINACION DE LA CAPACIDAD DE USO DE LAS TIERRAS DE COSTA RICA", publicado en La Gaceta Nº 107 del 06 de junio del 1994.

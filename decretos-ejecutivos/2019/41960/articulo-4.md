@@ -1,0 +1,1 @@
+Artículo 4º.- Posterior a la publicación de este Decreto, el Estado y sus instituciones no podrán facilitar o incentivar actividades de manejo y uso de las tierras diferentes a las establecidas y recomendadas para las distintas clases y subclases definidas en el presente Decreto.
