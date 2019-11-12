@@ -15,3 +15,4 @@ Reglamento de funcionamiento de la Comisión de Ética y Valores del Tribunal Su
 | --- | --- | --- |
 | 1 | 2015-12-18 | la propia norma |
 | 2 | 2018-06-19 | Decreto TSE 9 (2018-06-19) |
+| 3 | 2019-11-12 | Decreto TSE 22 (2019-11-12) |
