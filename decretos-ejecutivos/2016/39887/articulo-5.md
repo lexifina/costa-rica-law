@@ -14,6 +14,8 @@ iii. Ubicación propuesta para el cabezal de desfogue o conexión al alcantarill
 iv. Dirección del flujo de los cuerpos de agua que atraviesen o colinden con la propiedad.
 v. Ubicación de los pozos de abastecimientos de agua existentes o proyectados, dentro de la misma propiedad del proyecto global.
 vi. Ubicación de los pozos y fuentes de abastecimiento de agua existentes en las propiedades colindantes con el proyecto global, en un radio de 200 metros de la planta de tratamiento.
+j) En el caso de proyectos con disposición por infiltración de aguas residuales ordinarias tratadas que excedan los 190 metros cúbicos en sus consumos reales o proyectados mensuales de agua potable, debe adjuntarse el criterio, estudio o dictamen sobre el estudio de tránsito de contaminantes, por parte del Área de Aguas Subterráneas (ASUB) del Servicio Nacional de Aguas Subterráneas Riego y Avenamiento (SENARA) de conformidad con el Reglamento 510 del 05 de diciembre del 2006 “Servicio Nacional de aguas subterráneas riego y avenamiento”, publicado en La Gaceta No. 6 del 09 de enero de 2007.
+(Así adicionado el inciso anterior por el artículo 40 del Reglamento para la disposición al subsuelo de aguas residuales ordinarias tratadas, aprobado mediante decreto ejecutivo N° 42075 del 12 de noviembre el 2019)
 CUADRO 1
 Retiros a linderos de propiedad
 SISTEMA DE TRATAMIENTO | RETIRO

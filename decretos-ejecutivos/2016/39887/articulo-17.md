@@ -15,5 +15,5 @@ l) Si el sistema de tratamiento utiliza equipo electromecánico de uso diario, d
 m) Sistema de iluminación interno y externo de las edificaciones.
 n) Sistema de manejo de aguas pluviales.
 o) Si el sistema de disposición final es el reuso, deberá incluir plano topográfico con las curvas de nivel a cada metro del terreno a utilizar, plano de distribución en planta del área empleada para el reuso, detalle del tipo de riego y la ubicación de al menos dos pozos de monitoreo ubicados uno aguas arriba del área de reuso y otro aguas abajo.
-p) Si el sistema de disposición final es por infiltración o percolación, deberá incluir detalle de las estructuras utilizadas, ubicación y detalle de los pozos de monitoreo y del perfil del suelo.
+p) (Derogado por el artículo 41 del Reglamento para la disposición al subsuelo de aguas residuales ordinarias tratadas, aprobado mediante decreto ejecutivo N° 42075 del 12 de noviembre el 2019)
 q) Estaciones de bombeo en los casos en que por topografía sea necesario.
