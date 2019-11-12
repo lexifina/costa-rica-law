@@ -1,14 +1,3 @@
-Artículo 167.- Las entidades autorizadas podrán otorgar sus créditos
-mediante sistemas de pago, en los cuales la cuota se ajuste con base en la
-variación de los salarios mínimos. Esas cuotas pueden ser menores al
-mínimo necesario para cubrir intereses y amortización -cuota
-refinanciada- y las diferencias en descubierto se acumularán en el saldo
-del crédito en forma de capitalización, sin que por ello se pueda aplicar
-el artículo 505 del Código de Comercio. En todo caso, el monto de la
-cuota así fijada será aplicable primero a cubrir intereses, y si queda
-algo será aplicado a amortizar la deuda. Similar tratamiento podrá
-aplicarse a créditos ya establecidos.
-Los entes autorizados podrán utilizar sistemas mediante otros
-parámetros fijados por la Junta Directiva del Banco.
-(Así reformado por el artículo 165 de la Ley Orgánica del Banco
-Central de Costa Rica No.7558 del 3 de noviembre de 1995)
+Artículo 167.- El plazo máximo de los préstamos que establece esta Ley, a excepción de lo dispuesto en el artículo 58 anterior, así como las condiciones generales de los créditos serán definidos por parte del Banco Hipotecario de la Vivienda (Banhvi) y las entidades autorizadas del Sistema Financiero Nacional para la Vivienda, de conformidad con criterios técnicos, financieros y de mercado; sin embargo, en programas especiales de vivienda para las familias en condiciones de pobreza, exclusión, vulnerabilidad y riesgo, el Banco podrá autorizar la financiación hasta del cien por ciento (100%) del valor tasado.
+(Así reformado por el artículo único de la ley N° 8728 del 8 de julio de 2009.)
+(Así modificada su numeración por el artículo único de la ley N° 9779 del 12 de noviembre del 2019, que la traspasó del antiguo artículo 161 al 167)

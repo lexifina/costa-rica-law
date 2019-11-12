@@ -1,13 +1,6 @@
-Artículo 114.- Una vez emitida la garantía hipotecaria, si por
-incumplimiento del deudor fuere ejecutada la hipoteca garantizada, el
-acreedor hipotecario tendrá derecho a reclamar los beneficios de la
-garantía, cuando haya sido adjudicado a su favor el inmueble hipotecado
-en el correspondiente juicio de ejecución, o cuando haya adquirido la
-propiedad del inmueble por cualquier otro medio. Este reclamo deberá
-ejercitarse dentro de los treinta días siguientes a la fecha en que
-adquirieron el inmueble. Transcurrido dicho plazo sin que hubiere
-presentado el reclamo correspondiente, se considerará que el acreedor
-renuncia a los beneficios de la garantía, la cual quedará cancelada.
-Cuando la entidad autorizada, actuando por sí o en representación de
-los cesionarios, optare por los beneficios de la garantía, deberá
-traspasar al Banco la propiedad del respectivo inmueble.
+Artículo 114.- Serán requisitos de la mencionada garantía hipotecaria:
+a) Que el préstamo hipotecario pueda ser fiscalizado por el Banco.
+b) Que el principal del crédito no exceda de un noventa y cinco por ciento (95%) del valor tasado del inmueble que se hipotecará; sin embargo, en programas especiales de vivienda para familias de escasos recursos económicos, el Banco podrá autorizar la financiación de hasta el ciento por ciento (100%) del valor tasado.
+c) Que el crédito se garantice con una hipoteca de primer grado, salvo que el Banco autorice una de segundo grado, lo que podrá hacerse exclusivamente si el acreedor de primer grado es una institución del Estado u otra entidad del Sistema.
+ch) Que la operación satisfaga las demás reglas y normas que fije el Banco.
+(Así modificada su numeración por el artículo único de la ley N° 9779 del 12 de noviembre del 2019, que la traspasó del antiguo artículo 108 al 114)

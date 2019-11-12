@@ -1,8 +1,2 @@
-Artículo 147.- Con la salvedad del pago de impuestos, contribuciones
-y tasas municipales, la construcción de viviendas declaradas de interés
-social de acuerdo con los reglamentos del Sistema, estará exenta del pago
-de derechos de catastro de planos, de los timbres fiscales, de los
-timbres de construcción, de los cupones de depósito, de otros cargos y
-timbres de los colegios profesionales y del cincuenta por ciento (50%)
-del pago de permisos de construcción y urbanización y de todo otro
-impuesto.
+Artículo 147.- El Banco deberá mantener una oferta permanente de compra de títulos en la Bolsa Nacional de Valores y en otras entidades similares, con cargo al fondo de estabilización, con el objeto de hacer más activas las operaciones de compra-venta de los títulos generados por el Sistema. En lo posible evitará las fluctuaciones bruscas en sus precios y procurará lograr una liquidez permanente en el mercado para facilitar las operaciones de compra y venta de los títulos valores del Sistema.
+(Así modificada su numeración por el artículo único de la ley N° 9779 del 12 de noviembre del 2019, que la traspasó del antiguo artículo 141 al 147)

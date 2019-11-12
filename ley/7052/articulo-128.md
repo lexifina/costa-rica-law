@@ -1,6 +1,2 @@
-Artículo 128.- Las participaciones hipotecarias globales representan
-para el propietario los mismos derechos y privilegios que le corresponden
-al acreedor hipotecario de los créditos que forme la cartera de hipotecas
-elegibles. Tienen la misma fuerza y valor probatorio que un título valor.
-Pueden traspasarse por endoso sin que constituyan responsabilidad para el
-endosante.
+Artículo 128.- Las participaciones hipotecarias podrán ser dadas en prenda, con expresa indicación de sus objetivos y a petición del acreedor prendario o del titular de la participación hipotecaria. Este acto deberá comunicarse por escrito al acreedor hipotecario o emisor del respectivo contrato de participación.
+(Así modificada su numeración por el artículo único de la ley N° 9779 del 12 de noviembre del 2019, que la traspasó del antiguo artículo 122 al 128)

@@ -1,11 +1,2 @@
-Artículo 78.- El directorio deberá nombrar a un gerente para la
-administración de la mutual, quien tendrá también las facultades de
-apoderado generalísimo sin límite de suma y acreditará su personería
-conforme con lo establecido en el artículo anterior para el presidente.
-El directorio podrá también, si lo estimare necesario nombrar subgerentes
-con facultades de apoderados generales, uno de los cuales sustituirá al
-gerente durante sus ausencias temporales, según lo determine la Junta
-Directiva.
-El gerente y los subgerentes deberán ser personas idóneas para el
-cargo y poseer la calificación que señala el artículo 80 para los
-directores.
+Artículo 78.- Dentro de un plazo de treinta días a partir de la fecha de la constitución, el directorio provisional convocará, en la forma prescrita en los estatutos, a la primera asamblea general ordinaria de la mutual, en la cual se nombrará el directorio. Una copia certificada del acta de dicha asamblea deberá enviarse al Banco. Si éste lo aprueba, enviará a la mutual, dentro de un plazo de quince días, un certificado de incorporación al Sistema, que se publicará en el diario oficial "La Gaceta".
+(Así modificada su numeración por el artículo único de la ley N° 9779 del 12 de noviembre del 2019, que la traspasó del antiguo artículo 72 al 78)

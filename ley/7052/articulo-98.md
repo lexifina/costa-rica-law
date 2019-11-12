@@ -1,5 +1,2 @@
-Artículo 98.- Corresponde al Banco aprobar los estatutos de la
-federación, contentivos de su organización, objetivos y funcionamiento.
-Además, el Banco ejercerá funciones fiscalizadoras sobre la federación,
-con el objeto de garantizar que sus actividades y operaciones se ajusten
-a los principios y propósitos que inspiran esta ley.
+Artículo 98.- (Derogado por el artículo 164 de la Ley Orgánica del Banco Central de Costa Rica, Nº 7558 de 3 de noviembre de 1995)
+(Así modificada su numeración por el artículo único de la ley N° 9779 del 12 de noviembre del 2019, que la traspasó del antiguo artículo 92 al 98)

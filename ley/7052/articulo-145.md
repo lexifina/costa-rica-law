@@ -1,16 +1,4 @@
-TITULO SETIMO
-DISPOSICIONES FINALES
-CAPITULO UNICO
-Disposiciones generales
-Artículo 145.- Las inscripciones de las escrituras principales y
-adicionales, en las que se formalicen las operaciones de las soluciones
-individuales de vivienda declaradas de interés social, de acuerdo con los
-reglamentos del Sistema, estarán exentas del pago del ciento por ciento
-(100%) de los derechos de registro, de los timbres fiscales, de los
-timbres, de las cargas de los colegios profesionales y del impuesto de
-transferencia de bienes inmuebles.
-Tratándose de créditos internos, esta exención es aplicable
-únicamente a los tributos que deban ser pagados por el ejecutor o
-constructor.
-( Así reformado por el artículo 1º de la ley No.7208 del 21 de noviembre
-de 1990 ).
+CAPITULO VII
+De la estabilización del mercado secundario de valores del Sistema
+Artículo 145.- El Banco tendrá a su cargo la organización de la actividad estabilizadora del mercado secundario, que estará constituido por todos los títulos emitidos por el Sistema, para lo cual las entidades autorizadas deberán prestarle su más amplia colaboración.
+(Así modificada su numeración por el artículo único de la ley N° 9779 del 12 de noviembre del 2019, que la traspasó del antiguo artículo 139 al 145)

@@ -1,0 +1,2 @@
+Artículo 180.- Las facultades conferidas en esta ley al Banco Hipotecario de la Vivienda, en cuanto al funcionamiento de las entidades autorizadas, sólo corresponden al financiamiento de viviendas que otorguen éstas. En consecuencia, las otras funciones para las que tengan facultad las entidades autorizadas quedan fuera de la competencia y del control del Banco.
+(Así modificada su numeración por el artículo único de la ley N° 9779 del 12 de noviembre del 2019, que la traspasó del antiguo artículo 174 al 180)

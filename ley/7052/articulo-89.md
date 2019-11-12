@@ -1,15 +1,9 @@
-Artículo 89.- El gerente de la mutual tendrá las siguientes
-obligaciones y funciones:
-a) Cumplir con las disposiciones de la presente ley, de sus reglamentos
-y de las resoluciones del directorio.
-b) Informar al directorio, por lo menos una vez al mes, sobre la
-situación financiera de la mutual.
-c) Nombrar, sancionar y remover al personal de la mutual, de todo lo
-cual deberá informar al directorio.
-ch) Someter anualmente al directorio un plan de operación en que se
-señalen objetivos y estrategias, el presupuesto, el balance general, los
-estados de ganancias y pérdidas y la memoria de la mutual.
-d) Responder ante el directorio por el eficiente y correcto
-funcionamiento administrativo y económico de la mutual.
-e) Ejercer todas las demás funciones y facultades que le confieren la
-ley, los reglamentos, los estatutos y las disposiciones del directorio.
+Artículo 89.- Habrá asambleas ordinarias y extraordinarias de asociados. La asamblea general se reunirá en forma ordinaria en el mes de febrero de cada año, y será convocada de acuerdo con los estatutos de la mutual.
+La asamblea general extraordinaria podrá ser convocada en cualquier momento por el directorio, o cuando lo solicite al menos el diez por ciento (10%) de los asociados, y además, cuando el Banco, en el ejercicio de sus facultades de fiscalización, así lo solicite.
+Las asambleas se constituirán con los asociados que tengan derecho a voto, de conformidad con esta ley y con los estatutos de la mutual.
+La asamblea general ordinaria tendrá las siguientes facultades:
+a) Pronunciarse sobre el balance y el estado de ganancias y pérdidas.
+b) Elegir a los miembros del directorio.
+c) Nombrar al auditor externo de la mutual y fijarle sus honorarios.
+ch) Conocer y pronunciarse sobre cualquier otro asunto que el directorio o los asociados asistentes presente a su consideración.
+(Así modificada su numeración por el artículo único de la ley N° 9779 del 12 de noviembre del 2019, que la traspasó del antiguo artículo 83 al 89)

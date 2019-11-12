@@ -1,8 +1,3 @@
-CAPITULO II
-De las asociaciones mutualistas de ahorro y préstamo
-Artículo 68.- Se autoriza la formación de asociaciones mutualistas
-de derecho privado, de duración indefinida, sin fines de lucro y con
-autonomía administrativa, en los lugares en que, a su juicio, determine
-el Banco bajo su control y fiscalización.
-( Así reformado por el artículo 1 de la ley No. 7208 de 21 de noviembre
-de 1990 ).
+Artículo 68- Para recibir la protección y los beneficios conferidos en la presente ley y formar parte del censo oficial, las personas físicas solicitantes deberán ser mayores de edad y contar con una construcción con fines habitacionales; el terreno deberán tenerlo en posesión de manera quieta, pública, pacífica e ininterrumpida, por un plazo mínimo de diez años, antes de la entrada en vigencia de la presente ley.
+El Estado conservará el dominio en todos los territorios insulares, en razón de la normativa vigente en nuestro país.
+(Así adicionado por el artículo único de la ley N° 9779 del 12 de noviembre del 2019)

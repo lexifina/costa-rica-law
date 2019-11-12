@@ -1,16 +1,3 @@
-Artículo 83.- Habrá asambleas ordinarias y extraordinarias de
-asociados. La asamblea general se reunirá en forma ordinaria en el mes de
-febrero de cada año, y será convocada de acuerdo con los estatutos de la
-mutual.
-La asamblea general extraordinaria podrá ser convocada en cualquier
-momento por el directorio, o cuando lo solicite al menos el diez por
-ciento (10%) de los asociados, y además, cuando el Banco, en el ejercicio
-de sus facultades de fiscalización, así lo solicite.
-Las asambleas se constituirán con los asociados que tengan derecho a
-voto, de conformidad con esta ley y con los estatutos de la mutual.
-La asamblea general ordinaria tendrá las siguientes facultades:
-a) Pronunciarse sobre el balance y el estado de ganancias y pérdidas.
-b) Elegir a los miembros del directorio.
-c) Nombrar al auditor externo de la mutual y fijarle sus honorarios.
-ch) Conocer y pronunciarse sobre cualquier otro asunto que el directorio
-o los asociados asistentes presente a su consideración.
+Artículo 83.- En la sesión posterior a la de su instalación, el directorio designará de entre sus miembros a un presidente y a un vicepresidente, los cuales podrán ser reelegidos. El presidente del directorio lo será también de la mutual de que se trate, y tendrá la función de dirigir las sesiones del directorio y de las asambleas, así como la obligación de cumplir y hacer que se cumplan los acuerdos, resoluciones y demás disposiciones de esos dos cuerpos. En caso de ausencia temporal del presidente, será reemplazado por el vicepresidente, con iguales funciones.
+El presidente tendrá la representación judicial y extrajudicial de la mutual con las facultades de un apoderado generalísimo sin límite de suma. Acreditará su personería por inscripción de la escritura que se otorgará en lo conducente, relativa al acta de nombramiento y aceptación del cargo, en la Sección de Personas del Registro Público, o mediante aviso que se publicará en "La Gaceta", lo que será potestativo. El presidente podrá delegar esa representación en el director que indique el directorio, cuando éste lo considere necesario.
+(Así modificada su numeración por el artículo único de la ley N° 9779 del 12 de noviembre del 2019, que la traspasó del antiguo artículo 77 al 83)

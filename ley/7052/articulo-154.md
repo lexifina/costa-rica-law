@@ -1,12 +1,3 @@
-Artículo 154.- Los empleadores, sean instituciones del Estado,
-municipalidades, empresas o personas particulares, estarán obligados a
-deducir del sueldo de los trabajadores, cuando éstos lo soliciten, los
-ahorros periódicos fijos que deseen depositar en las entidades
-autorizadas que esta ley faculta para ese fin, así como las cuotas
-mensuales de pago de los préstamos hipotecarios que dichas personas
-hubieren recibido de cualquiera de las entidades del Sistema.
-Los organismos y empresas que hagan las retenciones de que trata
-este artículo, quedan también obligados a girar mensualmente el monto
-total retenido, a las entidades autorizadas que corresponda, bajo
-apercibimiento de las sanciones que al efecto se establezcan en el
-reglamento de la presente ley.
+Artículo 154.- Todos los actos y contratos que, en cuanto a operaciones del Sistema, realicen el Banco y las entidades autorizadas entre sí o entre otras personas físicas o jurídicas, estarán exonerados del pago de todo tipo de tributos. Esta exención se aplicará únicamente en lo que se refiere a los tributos pagaderos por el Banco o por la respectiva entidad autorizada. Asimismo, estará exento del pago de honorarios notariales, el traspaso de terrenos -a título gratuito u oneroso- de las instituciones públicas a entidades autorizadas, para el desarrollo de proyectos de vivienda.
+( Así reformado por el artículo 1º de la ley No. 7208 del 21 de noviembre de 1990 ).
+(Así modificada su numeración por el artículo único de la ley N° 9779 del 12 de noviembre del 2019, que la traspasó del antiguo artículo 148 al 154)
