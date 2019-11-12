@@ -1,4 +1,6 @@
+(Derogado)
 Ley 7194 de 29 de agosto de 1990
+(Esta norma fue derogada por el artículo 2° de la norma que aprobó el Acuerdo con el Gobierno de los Estados Unidos de América para el intercambio de información en materia tributaria, N° 9749 del 29 de octubre de 2019)
 LEY DE APROBACION DEL CONVENIO DE INTERCAMBIO
 DE INFORMACION TRIBUTARIA ENTRE
 EL GOBIERNO DE LA REPUBLICA DE COSTA RICA Y
