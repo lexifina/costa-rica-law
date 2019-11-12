@@ -14,3 +14,4 @@ Reforma Manual de Procedimientos Aduaneros en el marco TICA (Contiene Ingreso y 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-11-04 | la propia norma |
+| 2 | 2019-11-12 | Resolución 428 (2019-11-12) |

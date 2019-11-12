@@ -1,4 +1,6 @@
+(Revocada)
 DIRECCIÓN GENERAL DE ADUANAS
+(Esta norma fue revocada mediante resolución N° RES-DGA-428-2019 del 12 de noviembre del 2019)
 RES-DGA-410-2019.—Dirección General de Aduanas.—San José, a las trece horas y veinte minutos del día cuatro de noviembre del dos mil diecinueve.
 Considerando:
 I.—Que el artículo 6 de la Ley General de Aduanas, No. 7557 del 20 de octubre de 1995, publicada en La Gaceta N° 212 del 08 de noviembre de 1995 y sus reformas, establece que uno de los fines de régimen jurídico aduanero es facilitar y agilizar las operaciones de comercio exterior.
