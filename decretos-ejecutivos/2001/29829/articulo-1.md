@@ -1,6 +1,6 @@
-PODER EJECUTIVO
-DECRETOS
+(Derogado)
 Nº 29829-MTSS
+(Este decreto ejecutivo fue derogado por el artículo 1° del decreto ejecutivo N° 42099 del 26 de noviembre de 2019)
 EL PRESIDENTE DE LA REPÚBLICA
 Y EL MINISTRO DE TRABAJO Y SEGURIDAD SOCIAL
 En uso de las atribuciones que les confiere el artículo 140 de la Constitución Política en sus incisos 3), 18) y 20), la Ley General de la Administración Pública en sus artículos 25, 27 y 28.2b y 83, inciso c).

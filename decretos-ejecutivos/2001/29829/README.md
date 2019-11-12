@@ -14,3 +14,4 @@ Creación del Consejo Nacional de Normalización y Certificación Técnica (CONO
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-10-08 | la propia norma |
+| 2 | 2019-11-12 | Decreto Ejecutivo 42099 (2019-11-26) |
