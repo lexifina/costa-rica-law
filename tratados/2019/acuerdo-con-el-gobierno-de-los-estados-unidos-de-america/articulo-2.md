@@ -1,0 +1,3 @@
+ARTÍCULO 2
+Jurisdicción
+La Parte requerida no estará obligada a proporcionar información que no esté en poder de sus autoridades ni en posesión o bajo el control de personas que se hallen dentro de su jurisdicción territorial. Con respecto a información en poder de sus autoridades o en posesión o bajo el control de personas dentro de su jurisdicción territorial, sin embargo, la Parte requerida proporcionará información de conformidad con este Acuerdo, independientemente de si la persona a la que se refiere la información es un residente o nacional de una Parte, o de si la información está en poder de este.

@@ -1,0 +1,5 @@
+ARTÍCULO 14
+Entrada en vigencia
+1. Este Acuerdo entrará en vigencia un mes después de la fecha en que Costa Rica notifique por escrito a Estados Unidos que Costa Rica ha completado sus procedimientos internos necesarios para la entrada en vigencia de este Acuerdo.
+Las disposiciones de este Acuerdo tendrán efecto para las solicitudes efectuados en o después de la fecha de entrada en vigencia, con respecto a los periodos impositivos que inician en o después de la fecha de entrada en vigencia.
+2. El Acuerdo entre el Gobierno de la República de Costa Rica y el Gobierno de los Estados Unidos de América para el Intercambio de Información con Respecto a Impuestos, firmado en San José el 15 de marzo de 1989 ("Acuerdo de 1989") se dará por terminado en la fecha de entrada en vigencia de este Acuerdo. Sin perjuicio de dicha terminación, los términos del Acuerdo de 1989 continuarán siendo aplicados como si este se mantuviera vigente para solicitudes de información relacionados con periodos impositivos iniciados de previo a la entrada en vigencia de este Acuerdo.
