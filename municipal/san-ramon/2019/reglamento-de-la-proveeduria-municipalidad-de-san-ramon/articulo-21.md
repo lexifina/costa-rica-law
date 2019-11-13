@@ -1,0 +1,2 @@
+Artículo 21.—Estudio y valoración de ofertas. Una vez que la Proveeduría cuente con los Análisis Técnicos y Legales, correspondientes, en donde se indique; si las ofertas son admisibles o no, verificará los demás aspectos solicitados en el cartel incluyendo la correcta aplicación de la fórmula de evaluación y la uniformidad en las unidades de medida solicitadas.
+El analista de compras aplicará el sistema de evaluación y el estudio de razonabilidad de precios correspondiente a las ofertas que se determinen admisibles.

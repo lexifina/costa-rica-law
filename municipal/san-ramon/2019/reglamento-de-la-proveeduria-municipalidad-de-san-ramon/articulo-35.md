@@ -1,0 +1,1 @@
+Artículo 35.—Modificaciones unilaterales y contratos adicionales. La Municipalidad podrá aumentar o disminuir así como realizar contratos adicionales a un contrato original previamente establecido, dichas modificaciones y contratos adicionales se regirán conforme lo regulado en la ley vigente de contratación administrativa y su reglamento.

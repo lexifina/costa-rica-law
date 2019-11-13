@@ -1,0 +1,1 @@
+Artículo 3º—Este reglamento será aplicable -sin excepción- a todos los procedimientos de contratación, así como en los procesos de almacenamiento y distribución o tráfico interno de bienes que promueva la Municipalidad por medio de la Proveeduría Institucional.

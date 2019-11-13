@@ -1,0 +1,11 @@
+SECCIÓN CUARTA
+Garantías
+Artículo 28.—Disposiciones sobre garantías de participación y cumplimiento.
+28.1. Garantía de participación. En las licitaciones públicas obligatoriamente, y en los demás procedimientos, facultativamente, se exigirá a los oferentes una garantía de participación, cuyo monto se definirá en el cartel entre un uno y un cinco por ciento del monto total ofertado, o bien un monto fijo en caso de que el negocio sea cuantía sea inestimable o no le represente erogación. Dicha garantía deberá tener una vigencia mínima de hasta un mes adicional a la fecha máxima establecida para dictar el acto de adjudicación.
+28.2. Garantía de cumplimiento. En las licitaciones públicas obligatoriamente, y en los demás procedimientos, facultativamente, se exigirá a los oferentes una garantía de cumplimiento de entre el 5% y el 10% del monto adjudicado.
+Dicha garantía deberá tener una vigencia mínima de hasta dos meses adicionales a la fecha probable de la recepción definitiva del objeto contractual.
+28.3. Las garantías, tanto de participación como de cumplimiento, deberán ser rendidas electrónicamente a través del Sistema Integrado de Compras Públicas (SICOP), de conformidad con lo establecido en el Reglamento de uso del Sistema sobre la rendición de garantías.
+28.4. Es competencia de la Proveeduría en coordinación con la Tesorería Municipal, solicitar la autorización a la Alcaldía para la devolución de las garantías de participación y cumplimiento.
+28.5. La devolución de la garantía de participación para quienes no resultaron adjudicados en el proceso de contratación, se realizará a petición del interesado dentro de los ocho días hábiles siguientes a la firmeza del acto de adjudicación.
+En el caso del adjudicatario, se devolverá una vez rendida a satisfacción la garantía de cumplimiento y se hayan observado las restantes formalidades necesarias para el inicio del contrato, de lo cual deberá quedar constancia en el expediente.
+28.6. Las garantías de cumplimiento serán devueltas, dentro de los veinte días hábiles siguientes a la fecha en que la Municipalidad haya realizado la recepción definitiva del objeto contratado, de lo cual deberá quedar constancia en el expediente. Cuando en los carteles de licitación se establezca un plazo distinto, prevalecerá lo indicado en el cartel.

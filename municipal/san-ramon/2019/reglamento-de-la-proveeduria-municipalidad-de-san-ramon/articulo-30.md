@@ -1,0 +1,1 @@
+Artículo 30.—Recurso de revocatoria. Los recursos de revocatoria se recibirán por medio de la plataforma electrónica del Sistema Integrado de Compras Públicas y se tramitarán en la forma y plazos establecidos en la legislación vigente.

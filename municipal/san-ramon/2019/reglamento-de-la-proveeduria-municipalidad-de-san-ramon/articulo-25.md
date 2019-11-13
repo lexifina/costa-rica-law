@@ -1,0 +1,1 @@
+Artículo 25.—Formalización contractual. Los contratos se formalizarán en la plataforma del Sistema Integrado de Compras Públicas, de conformidad con los requerimientos legales y cartelarios aplicables. Por la Municipalidad lo suscribirá el representante legal y de requerirse firma del contratista, ésta será suscrita por su apoderado o representante legal debidamente acreditados.

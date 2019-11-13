@@ -1,0 +1,4 @@
+SECCIÓN TERCERA
+Procedimiento de contratación
+Artículo 15.—El cartel. Contendrá las condiciones generales de la contratación y las especificaciones técnicas. Su contenido establecerá como mínimo los requisitos establecidos en el artículo 52 del RLCA.
+15.1 El Departamento de Proveeduría será el encargado de elaborar los carteles de contratación directa y licitación abreviada y pública respectivos, y en caso que se requiera los someterá a revisión ante el departamento de Gestión Jurídica, dependencia que tendrá un plazo de tres días hábiles para pronunciarse, y contar con el aval del superior jerárquico de la dependencia solicitante del bien, obra o servicio. En las compras de menor cuantía, gastos fijos, adquisición de bienes y servicios que están bajo la competencia de la alcaldía municipal, basta con el aval de la dependencia solicitante.
