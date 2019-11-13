@@ -1,0 +1,4 @@
+Artículo 19.-Perspectivas de evaluación. La evaluación del BDP está conformada por dos componentes:
+a. Evaluación Individual: Compuesta por los objetivos, indicadores y las respectivas metas que se le hayan asignado a los funcionarios, según los resultados esperados del área en que está asignado y su puesto de trabajo.
+Ésta comprende gestión ordinaria (asignaciones diarias regulares), así como su gestión extraordinaria (asignaciones que abarcan la milla extra o un adicional a su labor cotidiana), dado que la evaluación debe estar alineada al Plan Estratégico Corporativo, mismo que ya incluye la gestión extraordinaria en sus objetivos.
+b. Evaluación del equipo: Corresponde al resultado del criterio del BSC de la gestión propia del área, dependencia o departamento en la que está desempeñándose el funcionario evaluado (entendida como aquella donde se encuentra el superior inmediato que lo debe evaluar).

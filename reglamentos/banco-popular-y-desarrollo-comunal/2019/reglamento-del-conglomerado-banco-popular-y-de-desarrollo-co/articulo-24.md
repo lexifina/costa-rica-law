@@ -1,0 +1,5 @@
+Artículo 24.-Consideraciones especiales. Para el pago del incentivo se considera lo
+siguiente:
+a. El funcionario que al inicio al período a evaluar tenga más de un año de laborar y cese en sus funciones, tiene derecho al pago respectivo de manera proporcional a los meses laborados, siempre que se cumpla con las condiciones para el reconocimiento y pago establecido en el artículo 23 y haya laborado durante el año que se evalúa, un período mínimo de seis meses (183 días naturales).
+b. En el caso de los funcionarios de nuevo ingreso, que tengan menos de un año de laborar para la entidad a la fecha de la evaluación del desempeño, el reconocimiento es proporcional a los meses laborados, siempre que tengan más de nueve meses (274 días naturales) de prestar el servicio durante el año que se evalúa.
+c. El funcionario que no sea de primer ingreso y se haya ausentado, por cualquier causa, tiene derecho al pago proporcional por el tiempo laborado en el período de evaluación, siempre que se cumpla con lo establecido en el artículo 23 y haya laborado en forma efectiva un período mínimo de seis meses (183 días naturales) durante el año que se evalúa.

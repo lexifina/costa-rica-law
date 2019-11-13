@@ -1,0 +1,1 @@
+Artículo 21.-Responsabilidad. Es responsabilidad de cada jefatura del Conglomerado elaborar y presentar ante el superior inmediato, reportes de avance semestral y final al cierre de cada año sobre los resultados del BDP correspondientes a los funcionarios de su dependencia.

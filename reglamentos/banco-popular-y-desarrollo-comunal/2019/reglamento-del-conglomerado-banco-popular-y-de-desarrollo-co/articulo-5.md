@@ -1,0 +1,1 @@
+Artículo 5°-Personal comprendido en Alta Gerencia: Para efectos de este Reglamento, el personal considerado en este nivel son los que ocupan los cargos de Gerente General Corporativo, Subgerencias Generales, y los Gerentes de las Sociedades del Conglomerado.
