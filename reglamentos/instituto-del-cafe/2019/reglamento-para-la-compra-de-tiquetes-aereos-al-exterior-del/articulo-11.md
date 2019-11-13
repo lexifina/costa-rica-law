@@ -1,0 +1,1 @@
+Artículo 11.—E1 Gerente de Administración y Finanzas, será el responsable de ejercer y custodiar el pago de los tiquetes aéreos aprobados por la comisión de tiquetes, lo anterior, mediante la modalidad de pago de tarjeta de compras institucional. Además, deberá remitir toda la información correspondiente a las Unidades involucradas para su correcto trámite y control.
