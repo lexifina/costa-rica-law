@@ -1,0 +1,2 @@
+Artículo 21
+El nombramiento, traslado, suspensión, remoción, concesión de licencias y demás movimientos de personal de la Auditoría Interna, deben ser canalizados y autorizados por el auditor interno o en su defecto por el subauditor interno; de acuerdo con el marco jurídico que rige para la Institución. Lo anterior de conformidad con lo establecido en los artículos 24 y 28 de la Ley general de control interno.
