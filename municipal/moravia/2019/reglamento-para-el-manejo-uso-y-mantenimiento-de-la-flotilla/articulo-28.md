@@ -1,0 +1,1 @@
+Artículo 28.—Normas complementarias. En lo no previsto en este reglamento, solo el Concejo Municipal podrá mediante directriz, suplir la ausencia normativa. El Alcalde Municipal podrá proponer dichas directrices al Concejo Municipal cuando resulte necesario.

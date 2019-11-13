@@ -1,0 +1,2 @@
+Transitorio I.—Para realizar todas aquellas actuaciones que resulten necesarias e indispensables para operativizar este reglamento se establece un plazo de 3 meses, contados a partir de la vigencia del mismo. Para la implementación de los dispositivos señalados en el artículo 23 de este Reglamento se establece un plazo de 6 meses. El citado plazo no será aplicable en cuanto a la normativa que pueda ser aplicable de forma directa.
+Este Reglamento rige a partir de su publicación en el Diario Oficial La Gaceta.

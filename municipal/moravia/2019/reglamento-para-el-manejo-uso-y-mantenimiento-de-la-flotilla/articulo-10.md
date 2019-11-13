@@ -1,0 +1,1 @@
+Artículo 10.—Del color de los vehículos. A efecto de estandarizar el color de la flotilla de vehículos municipales se define el azul oscuro como color oficial, salvo el caso de la maquinaria o equipo especial que por la línea de fabricación o regulación legal no esté disponible en ese color.

@@ -1,0 +1,1 @@
+Artículo 13.—De la revisión básica. Cuando se esté frente al supuesto regulado en el artículo anterior, el funcionario que condujere el vehículo, antes de iniciar el viaje deberá verificar como mínimo los niveles de aceite, agua y llantas.
