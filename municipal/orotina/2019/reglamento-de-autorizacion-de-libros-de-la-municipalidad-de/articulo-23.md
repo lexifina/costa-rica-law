@@ -1,0 +1,1 @@
+Artículo 23.—Registro oportuno. El encargado de las anotaciones en el libro, velará para que en los folios (hojas sueltas) y libros autorizados, se hagan oportunamente los registros correspondientes, todo conforme con las normas establecidas en nuestra legislación vigente, aplicable al efecto.

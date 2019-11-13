@@ -1,0 +1,1 @@
+Artículo 4º—Naturaleza de la autorización de libros: La autorización de libros es un requisito de validez de las actuaciones de la Administración Activa, tendiente a proporcionar una garantía razonable de la confiabilidad y oportunidad de la información que en ellos se incorpore. Todo lo anterior de conformidad con el bloque de legalidad.

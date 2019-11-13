@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de aplicación: El presente Reglamento resulta aplicable a todas las dependencias, actuales o que en el futuro se establezcan, que se encuentren, administrativa, jerárquica o legalmente adscritas a la Municipalidad Orotina.

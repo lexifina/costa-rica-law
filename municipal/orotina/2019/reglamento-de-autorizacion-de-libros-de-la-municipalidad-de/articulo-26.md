@@ -1,0 +1,1 @@
+Artículo 26.—Pérdida y deterioro. En caso de pérdida, deterioro o maltrato de los folios (hojas sueltas) o libros autorizados, deberá el representante o persona autorizada reportarlo de inmediato por escrito a la Auditoría Interna, lo anterior según lo estipulado en el Capítulo Cuarto sobre reposición de folios (hojas sueltas) y libros, en lo que aplique.

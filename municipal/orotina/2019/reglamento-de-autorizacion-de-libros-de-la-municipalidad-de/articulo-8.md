@@ -1,0 +1,6 @@
+Artículo 8º—Requisitos de los libros que se autorizan. Para este trámite, será necesario considerar lo siguiente:
+a) Los libros deben encontrarse con su totalidad de folios y en buen estado, no pudiéndose haber iniciado ninguno de ellos, excepto cuando se trate de cambio de tipo de libro, siempre y cuando la información que contiene corresponda plenamente al tipo de libro para el que se solicita el cambio.
+b) Los folios deberán estar numerados de forma consecutiva. Tratándose de libros compuestos por hojas sueltas, deberán igualmente estar numeradas y contener estampado el logotipo de la Municipalidad, nombre del libro y área o comisión de referencia, junto con el número de tomo del libro.
+c) Ante el evento de que el trámite consista en una renovación o cambio de tipo de libro, deberá aportarse el libro anterior, para su cierre o verificar su razón de cierre. Si el libro anterior ha sido cerrado, no debe presentar anotaciones después del sello de cierre, ya que cualquier anotación
+subsecuente después de dicho sello carece de validez.
+d) Cantidad de folios. La cantidad de folios que componen el libro, será la que contengan los libros cuando éstos sean pre elaborados, y 250 folios cuando correspondan hojas sueltas.

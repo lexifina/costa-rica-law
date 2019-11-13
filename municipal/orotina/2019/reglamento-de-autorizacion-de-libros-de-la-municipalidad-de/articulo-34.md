@@ -1,0 +1,1 @@
+Artículo 34.—Normas técnicas y recomendaciones de Auditoria Interna. Los libros autorizados por la Auditoria Interna, aparte de lo indicado en el presente Reglamento, deberán cumplir con las recomendaciones que la Auditoria Interna en el ejercicio de sus funciones formule.

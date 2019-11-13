@@ -1,0 +1,1 @@
+Artículo 30.—Archivo de libros. Los libros de actas anteriores, utilizados y con su razón de cierre incorporado por parte de la Auditoría Interna, deberán ser entregados formalmente a la secretaria del Concejo Municipal para su archivo, custodia, consulta e inspección.
