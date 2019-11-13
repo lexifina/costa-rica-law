@@ -1,0 +1,1 @@
+Artículo 21- La Comisión de Asuntos Sociales, según necesidades y proyecciones que tengan en el plan operativo anual. Podrán presentar directamente dictamen o propuesta al Concejo Municipal, solicitando los cambios en el porcentaje asignado y la forma de distribución del mismo en los rubros de para estudios y programa de ayudas o beneficios sociales.

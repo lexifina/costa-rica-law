@@ -1,0 +1,1 @@
+Artículo 20.—Para donaciones, beneficios sociales, ayudas, estudiantiles y subvenciones, dispondrá anualmente según sus posibilidades de un porcentaje de hasta un 1% del total de los recursos del presupuesto ordinario municipal.

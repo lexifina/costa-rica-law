@@ -1,0 +1,1 @@
+Artículo 12.—En caso de que un acontecimiento de grandes proporciones afecte a varias personas-familias y organizaciones del cantón, la Municipalidad ayudará a tantos como lo permitan los recursos establecidos anualmente para tales fines; teniendo claro que solo dará ayuda directa para las familias en condiciones de mayor vulnerabilidad socioeconómica.

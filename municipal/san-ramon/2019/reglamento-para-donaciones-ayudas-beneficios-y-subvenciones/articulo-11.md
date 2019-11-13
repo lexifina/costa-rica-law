@@ -1,0 +1,1 @@
+Artículo 11.—Para efectos de otorgar esas ayudas el Concejo Municipal, previo dictamen de la Comisión de Asuntos Sociales se reserva, el derecho de determinar, si la ayuda se brinda en dinero, materiales o en artículos de primera necesidad, de acuerdo con las prioridades que se determinen en cada caso.

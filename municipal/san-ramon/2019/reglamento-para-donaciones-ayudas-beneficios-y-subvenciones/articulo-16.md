@@ -1,0 +1,1 @@
+Artículo 16.—La Municipalidad otorgará ayudas con base en lo dispuesto en los artículos anteriores, se brindará solamente una por persona, familia u organización y por una sola vez, en ambos casos, por la misma causa o motivo. Salvo situaciones muy calificadas por el Concejo Municipal, excepcionalmente la ayuda, beneficio o subvención, se podrá conceder, por más de una vez.

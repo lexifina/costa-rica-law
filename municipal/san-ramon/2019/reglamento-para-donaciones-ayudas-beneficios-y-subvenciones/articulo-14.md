@@ -1,0 +1,1 @@
+Artículo 14.—En caso de aprobación de la solicitud, la Municipalidad otorgará a las personas, familias u organizaciones, la donación, ayuda, subvención o dentro de un plazo de 15 días hábiles, después de aprobada la solicitud por parte del Concejo Municipal.
