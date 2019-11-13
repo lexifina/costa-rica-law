@@ -27,7 +27,8 @@ m. El estudiante puede solicitar financiamiento para la adquisición de computad
 1. Por medio de la solicitud de préstamo inicial.
 2. Por medio de una solicitud de ampliación del préstamo.
 3. Por medio de una solicitud de desembolso dentro del saldo de la operación crediticia, resuelta por la Sección de Desembolsos y Control de Crédito mediante una Acuerdo Administrativo.
-n. Cuando el prestatario haya realizado la adquisición a través de un tercero en el exterior, la Sección de Desembolsos y Control de Crédito, recibe la Factura o Comprobante de Compra y una declaración jurada del prestatario.
+n. Cuando el prestatario haya realizado la adquisición a través de un tercero, la Sección de Desembolsos y Control de Crédito, recibe la Factura o Comprobante de Compra y una declaración jurada del prestatario.
+(Así reformado el inciso anterior en sesión N° 29 del 13 de noviembre del 2019)
 o. (Eliminado en sesión N° 07 del 25 de febrero del 2019)
 p. Cuando el prestatario haya realizado la adquisición en el exterior o por medio del internet, debe presentar la Factura cancelada o Comprobante de Compra o la Orden de pedido emitida por la casa comercial.
 q. Cuando el prestatario solicite renovar o adquirir otra computadora de escritorio o portátil, tableta, accesorios, herramientas, instrumentos, suministros, materiales u otros equipos, la Sección de Desembolsos y Control de Crédito, puede autorizar la compra del nuevo equipo; una vez transcurrido un año, o salvo casos excepcionales a juicio de la Jefatura de la Sección de Desembolsos y Control de Crédito.
