@@ -1,0 +1,1 @@
+Artículo 6.- A los funcionarios de JAPDEVA que se acojan a un traslado horizontal, les serán aplicadas las disposiciones salariales y de clasificación de puestos, propios de la institución a la que sean trasladados.

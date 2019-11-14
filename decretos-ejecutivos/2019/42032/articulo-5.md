@@ -1,0 +1,1 @@
+Artículo 5.- Para llevar a cabo el traslado horizontal de los funcionarios de JAPDEVA, las entidades receptoras deberán agilizar los procedimientos de clasificación de los puestos, cuando vayan a ser trasladados a instituciones de la Administración Central o Descentralizada cuyos manuales de clasificación de puestos, índices y categorías salariales difieran con los de JAPDEVA.

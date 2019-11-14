@@ -1,0 +1,1 @@
+Artículo 4.- Si el traslado de los puestos ocupados se realiza hacia una dependencia cubierta por el Régimen del Servicio Civil, deberá aplicarse lo dispuesto en el artículo 3 y transitorio I de la Ley N ° 9764 del 15 de octubre de 2019.
