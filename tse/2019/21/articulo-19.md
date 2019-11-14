@@ -1,0 +1,1 @@
+Artículo 19.—Fundamentación del acto de desestimación de denuncias. La desestimación de las denuncias se realizará mediante resolución debidamente motivada, que acredite de forma razonada los argumentos valorados para tomar esa decisión; deberá constar en el expediente de la denuncia la documentación que sirvió de respaldo para lo resuelto.

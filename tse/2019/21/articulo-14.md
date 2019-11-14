@@ -1,0 +1,1 @@
+Artículo 14.—Denuncia anónima. La Auditoría Interna no dará trámite a las denuncias planteadas de forma anónima. En casos excepcionales podrá instaurar de oficio una investigación administrativa preliminar, siempre y cuando con esta se alleguen elementos de prueba que den mérito para ello. De lo contrario, se archivarán sin más trámite, previa resolución de rigor.

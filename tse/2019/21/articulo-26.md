@@ -1,0 +1,1 @@
+Artículo 26.—Expediente de la denuncia. La Auditoría Interna mantendrá un expediente de cada una de las denuncias que tramita. Para solicitarlo o consultarlo, deberá existir autorización previa del auditor interno.

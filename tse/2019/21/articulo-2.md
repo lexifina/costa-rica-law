@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de aplicación. Este reglamento se aplicará para la atención de denuncias presentadas por funcionarios del Tribunal y cualquier otra persona ante la Auditoría Interna y que se enmarquen dentro del ámbito de su competencia.

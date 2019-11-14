@@ -1,0 +1,1 @@
+Artículo 13.—Admisibilidad de la denuncia. Cumplidos los requisitos de la denuncia, la Auditoría Interna realizará, dentro de un plazo razonable, una investigación administrativa preliminar con el objetivo de valorar si existe suficiente mérito para declarar su admisibilidad o determinar si procede adoptar otro tipo de acciones.

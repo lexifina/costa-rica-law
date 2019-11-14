@@ -1,0 +1,1 @@
+Artículo 16.—Traslado de las denuncias a la Administración activa. Las denuncias que, a criterio del auditor interno no sean competencia de la Auditoría Interna por su contenido, serán trasladadas formalmente a la Administración para su atención.

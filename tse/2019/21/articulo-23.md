@@ -1,0 +1,3 @@
+CAPÍTULO VI
+Otras disposiciones
+Artículo 23.—Denuncias que no compete resolver a la Auditoría. Serán trasladadas al Tribunal para su debido trámite las denuncias sobre asuntos disciplinarios o con motivo de la prestación de servicios de funcionarios a este organismo electoral, a efecto de que esta instancia valore lo que corresponda sobre los hechos denunciados, con indicación expresa de lo estipulado en los artículos 6 de la Ley General de Control Interno y 8 de la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública, el cual comunicará al denunciante lo que corresponda.

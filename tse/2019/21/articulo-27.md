@@ -1,0 +1,1 @@
+Artículo 27.—Derogatoria. El presente reglamento deja sin efecto los artículos 53, 54, 55 y 56 del Reglamento de Organización y Funcionamiento de la Auditoría Interna del Tribunal Supremo de Elecciones, publicado en La Gaceta N° 221 de 16 de noviembre de 2007.
