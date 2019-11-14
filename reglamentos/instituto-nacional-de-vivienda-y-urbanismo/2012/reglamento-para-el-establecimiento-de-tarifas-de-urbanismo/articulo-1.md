@@ -1,6 +1,6 @@
 INSTITUTO NACIONAL DE VIVIENDA Y URBANISMO
-REGLAMENTO PARA EL ESTABLECIMIENTO
-DE LAS TARIFAS DE LA DIRECCIÓN DE URBANISMO
+REGLAMENTO PARA EL ESTABLECIMIENTO DE TARIFAS DE URBANISMO(*)
+(*) (Así modificada su denominación en sesión N° 6415 del 14 de noviembre de 2019)
 Considerando:
 1) Que la estructura de costos aprobada por la Junta Directiva del INVU, que consta en el Artículo II, Inciso 2, del Acta de la Sesión Ordinaria Nº 5694, celebrada el 17 de setiembre de 2008, fue actualizada según acuerdo el acuerdo tomado por la Junta Directiva de este Instituto, según consta en el Artículo II, Inciso 3), del acta de la Sesión Ordinaria Nº 5930 del 08 de marzo de 2012, (La Gaceta Nº 116 del 15 de junio del 2012).
 2) Que el Ministerio de Hacienda solicitó al Instituto Nacional de Vivienda y Urbanismo prestar servicios que garanticen su autosuficiencia dejando de utilizar los recursos del Gobierno Central para el desarrollo de sus actividades ordinarias.
