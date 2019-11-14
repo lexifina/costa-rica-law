@@ -1,0 +1,3 @@
+CAPÍTULO II
+TIPOS DE LICENCIAS Y SU REGULACIÓN
+Artículo 6. Competencia municipal. Compete a la Municipalidad de Los Chiles velar por el adecuado cumplimiento de la Ley y este Reglamento dentro de los límites territoriales de su jurisdicción. Para el trámite de cancelación de licencias, el Alcalde o Alcaldesa Municipal designarán el órgano respectivo que se encargará de llevar el procedimiento administrativo y recomendar lo pertinente, según lo establece la Ley General de Administración Pública. En la cancelación de licencias sobre un establecimiento declarado de interés turístico y que cuente con licencia clase E, se dará aviso al Instituto Costarricense de Turismo (ICT).

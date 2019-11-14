@@ -1,0 +1,3 @@
+CAPÍTULO VI- DISPOSICIONES TRANSITORIAS
+TRANSITORIO I.
+La Municipalidad otorgará un plazo prudencial de 180 días a partir de la vigencia de la Ley 9047, a las personas físicas y jurídicas propietarios de una patente de licores, para reclasificar la actividad principal relacionada con la explotación de la patente de licores. Concluido este plazo la Municipalidad podrá reclasificar las actividades de oficio; no obstante a lo anterior, el pago de la patente procederá a partir de cumplido el plazo de 180 días que otorga la Ley. El cómputo del plazo supra citado comprende a partir del 08 de agosto del 2012 hasta el 08 de febrero del 2013.

@@ -1,0 +1,1 @@
+Artículo 18. Denegatoria. La licencia o patente de licores podrá denegarse cuando se incumplan los artículos 8 o 9 de la Ley 9047, o en observancia del artículo 81 del Código Municipal, de lo cual se expedirá copia al Departamento de Patentes.

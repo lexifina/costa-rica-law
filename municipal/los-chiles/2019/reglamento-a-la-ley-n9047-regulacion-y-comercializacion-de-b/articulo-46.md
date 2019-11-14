@@ -1,0 +1,1 @@
+Artículo 46. Las infracciones comprobadas serán motivo suficiente para promover el proceso de cancelación de la licencia para la comercialización de bebidas con contenido alcohólico, lo que implica la clausura y cancelación de la licencia comercial, sin perjuicio de la denuncia penal correspondiente ante el ente competente.

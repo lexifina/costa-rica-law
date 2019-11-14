@@ -1,0 +1,1 @@
+Artículo 48. Recursos. El acuerdo que deniegue una licencia o la resolución que imponga una sanción tendrán los recursos de revocatoria y apelación, de conformidad con el régimen recursivo contemplado en el Código Municipal. En los casos en que la resolución sea emitida por el Concejo Municipal, cabra solamente el recurso de reconsideración o revisión.

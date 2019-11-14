@@ -1,0 +1,3 @@
+TRANSITORIO II.
+A la entrada en vigencia de la Ley, las patentes de licores para la venta de bebidas con contenido alcohólico adquiridas mediante la Ley N°10 del 7 de octubre de 1936 que se encuentren en estado de inactividad, sea, que no estén ligadas a ninguna actividad comercial en particular, deberán cancelar a la Municipalidad la patente Trimestralmente, tasada en el monto mínimo equivalente en Colones a medio Salario Base, que corresponde a las clases B y C conforme a los conceptos definidos en los artículos 2, 4 y 10 de la Ley.
+Rige a partir de su publicación.

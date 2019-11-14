@@ -1,0 +1,1 @@
+Artículo 38. No se podrá consumir bebidas con contenido alcohólico dentro de los establecimientos comerciales cuya actividad comercial principal es el expendio de bebidas con contenido alcohólico en envase cerrado para llevar bajo al sistema de mayoreo o al detalle. Esta prohibición incluye las inmediaciones que formen parte de la propiedad en donde se autorizó la licencia.

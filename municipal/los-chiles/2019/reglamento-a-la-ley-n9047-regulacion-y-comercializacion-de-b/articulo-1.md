@@ -1,0 +1,18 @@
+MUNICIPALIDAD DE LOS CHILES
+PROYECTO DE REGLAMENTO A LA LEY Nº 9047, “REGULACIÓN
+Y COMERCIALIZACIÓN DE BEBIDAS CON CONTENIDO ALCOHOLICO”
+PARA LA MUNICIPALIDAD DE LOS CHILES
+La Municipalidad de Los Chiles, según lo establecido en los artículos 169 y 170 de la Constitución Política, 4 inciso a), 13 inciso d) y 43 del Código Municipal, procede a emitir el Reglamento para el otorgamiento de Licencias Municipales requerido en el transitorio II de la Ley Nº 9047 denominada “Ley para la Regulación y Comercialización de Bebidas con Contenido Alcohólico”. La Municipalidad de Los Chiles, considerando:
+Primero: Que el artículo 169 de la Constitución Política y el literal 3 del Código Municipal, establecen como competencia de la Administración Municipal velar por los intereses y servicios cantonales, concepto en el cual se encuentra inmersa regulación de las actividades comerciales, tal como la venta y consumo de bebidas con contenido alcohólico.
+Segundo: Que para cumplir con las competencias otorgadas por el artículo 170 de la Constitución Política, que establecen la autonomía política, administrativa y financiera de las municipalidades, el artículo 4 del Código Municipal otorga la potestad de dictar reglamentos autónomos de organización y de servicio, así como cualquier otra disposición que autorice el ordenamiento jurídico.
+Tercero: Que de conformidad con lo establecido en los artículos 88, 89, 90, 90 bis, 91 y 92 del Código Municipal, es competencia de las Municipalidades establecer las políticas generales de las actividades económicas que se desarrollan en su cantón.
+Cuarto: Que según el voto Nº 6469-97 de las dieciséis horas veinte minutos del ocho de octubre de mil novecientos ochenta y siete, la Sala Constitucional estableció: “…que es materia municipal todo lo que se refiere al otorgamiento de las licencias para el ejercicio del comercio en su más variada gama de actividades y su natural consecuencia que es percibir el llamado impuesto de patente”.
+Quinto: Que el transitorio II de la Ley No.9047 denominada: "Regulación y Comercialización de Bebidas con Contenido Alcohólico", publicada en el Alcance Digital Nº109 del diario oficial La Gaceta de fecha 8 de agosto del 2012, dispone que las municipalidades deben emitir y publicar el reglamento de dicho cuerpo normativo en un plazo de 3 meses.
+Sexto: Se propone el siguiente Proyecto de Reglamento para la solicitud de Licencias Municipales para la comercialización de bebidas con contenido alcohólico dentro del Cantón de Los Chiles.
+Por tanto, mediante la Sesión Ordinaria 264, celebrada por el Concejo Municipal en fecha martes 06 de agosto del 2019, se aprueba el presente Reglamento a la Ley Nº9047 del 8 de Agosto de 2012, “Ley sobre la Regulación y Comercialización de Bebidas con Contenido Alcohólico”, que se regirá por siguientes disposiciones:
+La Municipalidad de Los Chiles, según lo establecido en los artículos 169 y 170 de la Constitución Política, 4 inciso a), 13 inciso d) y 43 del Código Municipal, procede a emitir el Reglamento para el otorgamiento de Licencias Municipales requerido en el transitorio II de la Ley Nº 9047 denominada “Ley para la Regulación y Comercialización de Bebidas con Contenido Alcohólico”. La Municipalidad de Los Chiles, considerando:
+REGLAMENTO A LA LEY N° 9047 DE FISCALIZACIÓN, REGULACIÓN
+Y COMERCIALIZACIÓN DE BEBIDAS CON CONTENIDO ALCOHÓLICO
+EN EL CANTÓN DE LOS CHILES
+CAPÍTULO I- DISPOSICIONES GENERALES
+Artículo 1. Objeto. Este reglamento tiene por objeto establecer pautas claras y precisas para la autorización, control y fiscalización de las actividades comerciales asociadas a la comercialización, expendio y consumo de bebidas con contenido alcohólico en el Cantón de Los Chiles.
