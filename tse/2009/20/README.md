@@ -17,3 +17,4 @@ Reglamento para la Observación de Procesos Electivos y Consultivos
 | 2 | 2010-07-20 | Decreto TSE 11 (2010-07-20) |
 | 3 | 2012-10-09 | Decreto TSE 19 (2012-10-09) |
 | 4 | 2015-02-02 | Decreto TSE 3 (2015-02-02) |
+| 5 | 2019-11-14 | Decreto TSE 23 (2019-11-14) |
