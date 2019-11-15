@@ -1,0 +1,14 @@
+Artículo 5°—Mecánica sorteo. Se realizarán cuatro sorteos (uno por semana) de 5 premios de ¢1.000.000,00 (un millón de colones con cero céntimos) correspondientes a los incentivos por retiro de lotería del Sorteo Extraordinario de Navidad N° 4573, por medio de una tómbola electrónica, entre todos los vendedores que obtengan acciones cada semana.
+Se llevarán a cabo tres selecciones aleatorias en cada sorteo:
+a) Una primera selección para obtener un ganador entre los socios comerciales de la Junta que cumplan con las condiciones de participación.
+b) Una segunda selección para obtener dos ganadoras entre las mujeres vendedoras de la Junta que cumplan las condiciones de participación.
+c) Una tercera selección para obtener dos ganadores entre los hombres vendedores que cumplan con las condiciones de participación.
+Los sorteos correspondientes a cada semana se realizarán los sábados 23 y 30 de noviembre, el sábado 7 de diciembre y el domingo 15 de diciembre 2019 en el programa Rueda de la Fortuna, según corresponda.
+Se realizarán cortes de retiro de lotería para la asignación de las acciones.
+Las siguientes son las fechas de retiro para participar en los sorteos de incentivos:
+• Para el primer sorteo de incentivos a realizarse el sábado 23 de noviembre del 2019, participan los vendedores autorizados de la Junta que retiren el Sorteo Extraordinario de Navidad N° 4573 del lunes 18 de noviembre 2019 hasta el viernes 22 de noviembre 2019 al medio día.
+• Para el segundo sorteo de incentivos a realizarse el sábado 30 de noviembre del 2019 participan los vendedores autorizados de la Junta que retiren el Sorteo Extraordinario de Navidad N° 4573 del viernes 22 de noviembre 2019 al medio día hasta el viernes 29 de noviembre 2019 al medio día.
+• Para el tercer sorteo de incentivos a realizarse el sábado 07 de diciembre del 2019 participan los vendedores autorizados de la Junta que retiren el Sorteo Extraordinario de Navidad N° 4573 del viernes 29 de noviembre 2019 al medio día, hasta el viernes 6 de diciembre 2019 al medio día.
+• Para el cuarto sorteo de incentivos a realizarse el domingo 15 de diciembre del 2019 participan los vendedores autorizados de la Junta que retiren el Sorteo Extraordinario de Navidad N° 4573 del viernes 6 de diciembre 2019 al medio día hasta el viernes 13 de diciembre 2019 medio día.
+Para el sorteo del premio de ¢8.000.000,00 (ocho millones de colones con cero céntimos), por devolución menor al 5% de los sorteos Nos. 4573, 4574 y 4575, este se efectuará el sábado 11 de enero 2020 en el programa Rueda de la Fortuna entre todos los vendedores que cumplieron las condiciones de participación del incentivo por devolución, realizándose por medio de una selección aleatoria con tómbola electrónica.
+Los sorteos serán debidamente fiscalizados por personal de la Junta.

@@ -1,0 +1,1 @@
+Artículo 7°—Caducidad. Los premios de incentivos a otorgar pueden ser reclamados por los vendedores que hayan resultado ganadores dentro del plazo de 60 días naturales contados a partir del día hábil siguiente a la fecha de realización de cada sorteo según lo establecido en el artículo N° 18 de la Ley 8718.
