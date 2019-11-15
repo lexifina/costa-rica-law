@@ -1,0 +1,1 @@
+Artículo 2°.- Modíficase el artículo 2° de la ley N° 9632, Ley de Presupuesto Ordinaria y Extraordinaria de la República para el ejercicio Económico del 2019 y sus reformas antes citadas, con el fin de realizar el traslado de partidas en el título del Servicio de Deuda Pública.
