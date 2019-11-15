@@ -1,0 +1,1 @@
+Artículo 4º—Liquidación del Fondo de Contingencias Bananeras. Corresponde a CORBANA liquidar contable y financieramente el Fondo de Contingencias Bananeras, para lo cual elaborará un informe, y comunicará el resultado al Ministerio de Hacienda y al Ministerio de Agricultura y Ganadería, en un plazo de tres meses contados a partir de la publicación de este Decreto Ejecutivo.
