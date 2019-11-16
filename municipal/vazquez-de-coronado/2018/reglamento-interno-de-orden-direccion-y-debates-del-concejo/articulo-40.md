@@ -1,0 +1,1 @@
+Artículo 40. En caso de que uno o varios miembros del Concejo participen en una actividad oficial en representación del Concejo, que les impida presentarse a la sesión ordinaria o extraordinaria, sí tendrán a la dieta respectiva, previo acuerdo del Concejo.

@@ -1,0 +1,1 @@
+Artículo 22. El proponente de la moción cuenta con cinco minutos para defenderla. Además, se contabilizarán cinco minutos para quien quiera debatirla. Si más de una persona quiere debatirla, tendrán que distribuir ese tiempo.

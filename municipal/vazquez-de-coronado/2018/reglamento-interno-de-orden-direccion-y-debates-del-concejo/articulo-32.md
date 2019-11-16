@@ -1,0 +1,1 @@
+Artículo 32. El espacio de regidores y síndicos será punto en agenda en todas aquellas sesiones que no se conozca de audiencias de atención al público. En dicho punto se conocerán las mociones de los regidores y/o los temas que los síndicos deseen presentar sobre temas de sus distritos, y el tiempo se regulará según lo establecido para las mociones en el presente reglamento.

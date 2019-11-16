@@ -1,0 +1,1 @@
+Artículo 3. Las sesiones del Concejo deberán efectuarse en la sala de sesiones ubicada en el edificio sede de la Municipalidad, salvo cuando el Concejo decida sesionar en uno de los distritos del cantón.

@@ -1,0 +1,1 @@
+Artículo 73. Las comisiones deberán sesionar en forma ordinaria al menos dos veces por mes y extraordinariamente cuando sea necesario. Se procurará que las sesiones no choquen horariamente unas con otras en las que también participen algunos de sus integrantes.

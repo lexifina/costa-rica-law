@@ -1,0 +1,7 @@
+CAPÍTULO XV
+DE LA ATENCIÓN AL PÚBLICO Y DE REPRESENTANTES OFICIALES
+Artículo 80. Los ciudadanos del cantón, u otras personas interesadas en los asuntos municipales podrán solicitar audiencia de atención al público del Concejo Municipal. Se darán dos audiencias en sesiones ordinarias al mes, en las primeras y terceras sesiones de cada mes. Quienes hayan solicitado audiencia, tendrán 20 minutos para hacer su exposición, sin poder exceder ese tiempo.
+No se atenderán más de tres audiencias por sesión ordinaria. Si una misma persona solicita audiencia de atención al público en el lapso de 3 meses, y existieran más solicitudes de otros interesados, se colará en lista de espera dicha solicitud hasta cumplir el lapso señalado, no obstante, si existiera disponibilidad por no existir otras solicitudes pendientes se atenderá sin mayores dilaciones.
+La Secretaría del Concejo gestionará una lista con las solicitudes de atención, y de oficio les asignará el espacio en las sesiones correspondientes, en coordinación con la Presidencia del Concejo Municipal.
+A juicio de la Presidencia del Concejo, si un tema requiere de una atención especial, someterá el asunto a conocimiento del pleno, para la eventual convocatoria de una sesión extraordinaria.
+Los miembros del Concejo Municipal que deseen referirse a lo expuesto por el público deberán apegarse a lo dispuesto en el artículo 28 del presente reglamento.

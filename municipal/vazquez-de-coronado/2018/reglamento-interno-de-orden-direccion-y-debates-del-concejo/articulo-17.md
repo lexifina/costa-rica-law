@@ -1,0 +1,2 @@
+Artículo 17. En sesiones extraordinarias se tratarán asuntos específicos, y solo se podrá modificar el orden del día, por medio del acuerdo de la unanimidad de los regidores.
+En setiembre de cada año, se realizarán las sesiones extraordinarias necesarias para analizar el proyecto de presupuesto ordinario que presente el alcalde para el año siguiente. Se tratará como punto único el análisis del presupuesto.

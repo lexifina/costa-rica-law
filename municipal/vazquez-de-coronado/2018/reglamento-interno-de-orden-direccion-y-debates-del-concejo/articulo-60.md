@@ -1,0 +1,1 @@
+Artículo 60. La Presidencia del Concejo tendrá la potestad de sustituir a un integrante de una comisión permanente o especial cuando, de manera injustificada, el regidor se ausente a tres sesiones consecutivas o a seis sesiones alternas, en un periodo de dos meses. Esta situación deberá constar en actas de la respectiva sesión del Concejo.
