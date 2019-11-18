@@ -1,0 +1,8 @@
+ARTÍCULO 35- Notificaciones
+El auto de inicio se deberá comunicar a las partes; en caso de que sea una persona jurídica, deberá ser realizada en el domicilio social establecido por el Registro Mercantil, salvo que esta haya señalado a la Administración su interés de recibir las notificaciones por otro medio.
+En caso de que el denunciado no cuente con un domicilio social o permanecieran cerrados, fueran imprecisos, inciertos o inexistentes, la primera notificación deberá realizarse de conformidad con el siguiente orden:
+a) Oficinas administrativas o en el establecimiento comercial, con una persona mayor de edad debidamente identificada.
+b) En el domicilio contractual, en el domicilio real, registral o con su agente residente, cuando ello proceda. En este último caso, la notificación será practicada en la oficina que tenga abierta para tal efecto. Si la persona jurídica tiene representación conjunta, quedará debidamente notificada con la actuación efectuada a uno solo de sus representantes.
+Para la notificación de personas físicas, esta se realizará de forma personal. Tendrán ese mismo efecto las realizadas en la residencia o lugar de trabajo, en el domicilio contractual, la casa de habitación o el domicilio real o registral por indicación de la Administración o de cualquiera de las partes.
+Las posteriores notificaciones deberán ser realizadas en el lugar o medio indicado por este.
+En lo no dispuesto en el presente artículo aplicará de forma supletoria lo contemplado en la Ley N.° 6227, Ley General de la Administración Pública, de 2 de mayo de 1978 y sus reglamentos, y en la Ley N.° 8687, Notificaciones Judiciales, de 4 de diciembre de 2008 y sus reglamentos.

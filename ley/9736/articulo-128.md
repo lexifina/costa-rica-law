@@ -1,0 +1,2 @@
+ARTÍCULO 128- Daños y perjuicios a terceros provocados por una práctica monopolística absoluta
+La exoneración total o parcial de la sanción administrativa no exonera a los agentes económicos responsables de haber incurrido en una conducta monopolística absoluta, de los eventuales daños y perjuicios causados a terceros. Sin embargo, la responsabilidad civil del primer agente económico en acogerse al beneficio será subsidiaria a la de los demás infractores.

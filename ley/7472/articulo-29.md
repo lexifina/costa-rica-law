@@ -1,3 +1,2 @@
-Artículo 29°.- Criterios de valoración.
-Para imponer las multas a que se refiere el artículo anterior, la Comisión para promover la competencia debe tomar en cuenta como criterios de valoración: la gravedad de la infracción, la amenaza o el daño causado, los indicios de intencionalidad, la participación del infractor en el mercado, el tamaño del mercado afectado, la duración de la práctica o concentración, la reincidencia del infractor y su capacidad de pago.
+Artículo 29°.- Criterios de valoración. (Derogado por el artículo 137 inciso c) de la Ley de Fortalecimiento de las Autoridades de Competencia de Costa Rica, N° 9736 del 5 de setiembre del 2019)
 (Así corrida su numeración por el artículo 80 de la ley de Contingencia Fiscal, N° 8343 del 18 de diciembre de 2002, que lo traspaso del antiguo artículo 26 al 29 actual)

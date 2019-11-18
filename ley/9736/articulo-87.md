@@ -1,0 +1,2 @@
+ARTÍCULO 87- Ampliación de la inspección
+Si durante la inspección surge sospecha razonable de que en cualesquiera otros establecimientos industriales, comerciales u otras propiedades muebles e 1inmuebles se halla evidencia relevante para el objeto de la inspección, que pueda servir para demostrar una práctica monopolística, el Órgano Superior de la autoridad de competencia correspondiente podrá solicitar a la autoridad judicial competente una ampliación de la autorización concedida, para que se realice una inspección en dichos establecimientos o propiedades.

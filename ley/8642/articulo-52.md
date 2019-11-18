@@ -1,7 +1,8 @@
 CAPÍTULO II
 RÉGIMEN DE COMPETENCIA
-ARTÍCULO 52.- Régimen sectorial de competencia
-La operación de redes y la prestación de servicios de telecomunicaciones, estarán sujetas a un régimen sectorial de competencia, el cual se regirá por lo previsto en esta Ley y supletoriamente por los criterios establecidos en el capítulo III de la Ley N.º 7472, Promoción de la competencia y defensa efectiva del consumidor, de 20 de diciembre de 1994.
+Artículo 52- Régimen sectorial de competencia
+La operación de redes y la prestación de servicios de telecomunicaciones estarán sujetas a un régimen sectorial de competencia, que se regirá por lo previsto en esta ley y supletoriamente por los criterios establecidos en el capítulo III de la Ley N.º 7472, Promoción de la Competencia y Defensa Efectiva del Consumidor, de 20 de diciembre de 1994 y por lo previsto en la Ley de Fortalecimiento de las Autoridades de Competencia de Costa Rica.
+(Así reformado el párrafo anterior por el artículo 140 inciso a) de la Ley de Fortalecimiento de las Autoridades de Competencia de Costa Rica, N° 9736 del 5 de setiembre del 2019)
 A la Sutel le corresponde:
 a) Promover los principios de competencia en el mercado nacional de telecomunicaciones.
 b) Analizar el grado de competencia efectiva en los mercados.
@@ -9,5 +10,19 @@ c) Determinar cuándo las operaciones o los actos que se ejecuten o celebren fue
 d) Garantizar el acceso de los operadores y proveedores al mercado de telecomunicaciones en condiciones razonables y no discriminatorias.
 e) Garantizar el acceso a las instalaciones esenciales en condiciones equitativas y no discriminatorias.
 f) Evitar los abusos y las prácticas monopolísticas por parte de operadores o proveedores en el mercado, estos últimos no podrán asignar a un solo operador sus sistemas y tecnologías con fines monopolísticos. Si se lIega a determinar que un proveedor ha creado o utilizado otras personas jurídicas con estos fines monopolísticos, la Sutel deberá garantizar que dicha práctica cese inmediatamente, sin detrimento de las responsabilidades que esta conducta derive.
+g) Prevenir y detectar los monopolios e investigar los carteles, las prácticas monopolísticas, las concentraciones ilícitas y demás restricciones al funcionamiento eficiente del mercado de las telecomunicaciones, e imponer las medidas y sanciones dispuestas en el ordenamiento jurídico.
+(Así adicionado el inciso anterior por el artículo 140 inciso a) de la Ley de Fortalecimiento de las Autoridades de Competencia de Costa Rica, N° 9736 del 5 de setiembre del 2019)
+h) Autorizar o denegar concentraciones en el sector telecomunicaciones y redes que sirvan de soporte a los servicios de radiodifusión sonora y televisiva e imponer las condiciones que considere necesarias para contrarrestar los posibles efectos anticompetitivos derivados de una concentración.
+(Así adicionado el inciso anterior por el artículo 140 inciso a) de la Ley de Fortalecimiento de las Autoridades de Competencia de Costa Rica, N° 9736 del 5 de setiembre del 2019)
+i) Solicitar a cualquier persona física o jurídica, entidad de hecho o de derecho, pública o privada, nacional o extranjera, la información y la documentación que requiera para atender sus funciones.
+(Así adicionado el inciso anterior por el artículo 140 inciso a) de la Ley de Fortalecimiento de las Autoridades de Competencia de Costa Rica, N° 9736 del 5 de setiembre del 2019)
+j) Inspeccionar y obtener copias de documentos y registros físicos o electrónicos, previa autorización fundada de un juzgado de lo Contencioso Administrativo y Civil de Hacienda, los establecimientos industriales, comerciales y demás propiedades muebles e inmuebles de los operadores y proveedores, cuando esto sea necesario para recabar, evitar que se pierda o destruya evidencia útil para la investigación de prácticas monopolísticas absolutas o relativas contempladas en la presente ley, y sus reglamentos. De conformidad con lo dispuesto en el capítulo IV del título III de la Ley de Fortalecimiento de las Autoridades de Competencia de Costa Rica.
+(Así adicionado el inciso anterior por el artículo 140 inciso a) de la Ley de Fortalecimiento de las Autoridades de Competencia de Costa Rica, N° 9736 del 5 de setiembre del 2019)
+k) Realizar actividades de promoción y abogacía de la competencia en el sector telecomunicaciones y redes, que sirvan de soporte a los servicios de radiodifusión sonora y televisiva.
+(Así adicionado el inciso anterior por el artículo 140 inciso a) de la Ley de Fortalecimiento de las Autoridades de Competencia de Costa Rica, N° 9736 del 5 de setiembre del 2019)
+l) Emitir opinión, en materia de competencia y libre concurrencia, respecto de las leyes, los reglamentos, los acuerdos, las circulares y los demás actos administrativos relacionados con el sector telecomunicaciones y redes que sirvan de soporte a los servicios de radiodifusión sonora y televisiva, sin que tales criterios tengan ningún efecto vinculante.
+(Así adicionado el inciso anterior por el artículo 140 inciso a) de la Ley de Fortalecimiento de las Autoridades de Competencia de Costa Rica, N° 9736 del 5 de setiembre del 2019)
+m) Las demás que le confiera la Ley de Fortalecimiento de las Autoridades de Competencia de Costa Rica y su reglamento.
+(Así adicionado el inciso anterior por el artículo 140 inciso a) de la Ley de Fortalecimiento de las Autoridades de Competencia de Costa Rica, N° 9736 del 5 de setiembre del 2019)
 La Sutel tendrá la competencia exclusiva para conocer de oficio o por denuncia, así como para corregir y sancionar, cuando proceda, las prácticas monopolísticas cometidas por operadores o proveedores que tengan por objeto o efecto limitar, disminuir o eliminar la competencia en el mercado de las telecomunicaciones.
 Se autoriza a la Sutel para que realice convenios e intercambio de información con las autoridades reguladoras de telecomunicaciones de otras jurisdicciones. Los deberes de confidencialidad definidos para la Sutel serán extendidos a las personas que, producto de este intercambio de información, tengan conocimiento de la información generada.

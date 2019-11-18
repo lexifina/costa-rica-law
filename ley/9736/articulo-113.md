@@ -1,0 +1,2 @@
+ARTÍCULO 113- Incumplimiento del deber de confidencialidad de la información: Incurrirá en falta muy grave y será sancionado con el despido sin responsabilidad patronal, siguiendo el debido proceso, con independencia de las sanciones penales que procedan, aquel funcionario de la autoridad de competencia correspondiente, que revele información declarada como confidencial por parte de dicha autoridad, ya sea en beneficio propio o de un tercero.
+La autoridad de competencia correspondiente estará en la obligación de presentar la denuncia al Ministerio Público.

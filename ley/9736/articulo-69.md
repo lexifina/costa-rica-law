@@ -1,0 +1,4 @@
+ARTÍCULO 69- Efectos de la solicitud de terminación anticipada del procedimiento especial con reconocimiento de comisión de la infracción
+En caso de aceptarse la solicitud de terminación en los términos antes indicados, el Órgano Superior impondrá una multa cuyo monto será reducido en un diez por ciento (10%) del que le correspondería para la infracción investigada.
+Lo anterior sin perjuicio de las medidas correctivas que procedan conforme a la ley.
+En caso de rechazo por incumplimiento de las condiciones establecidas en los artículos 67 y 68 de esta ley, la solicitud no surtirá efecto alguno en el procedimiento especial, por lo que el reconocimiento de responsabilidad no podrá ser considerado una confesión y la información intercambiada durante su trámite no podrá ser utilizada en contra de los agentes económicos investigados.
