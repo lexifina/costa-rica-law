@@ -1,0 +1,1 @@
+Artículo 20- Aprobación y Plazo. Los arreglos de pago no podrán exceder el plazo de 24 meses para la cancelación total de la deuda. El Regulador General será quien apruebe o rechace la solicitud y establezca el plazo aprobado.

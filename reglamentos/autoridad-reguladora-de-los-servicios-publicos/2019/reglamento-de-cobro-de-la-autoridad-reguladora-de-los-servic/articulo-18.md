@@ -1,0 +1,1 @@
+Artículo 18- Intereses y multas en el arreglo de pago. En todo arreglo de pago se cobrarán los intereses y multas que correspondan de conformidad con lo indicado en la Ley 7593 y lo dispuesto en el presente reglamento.

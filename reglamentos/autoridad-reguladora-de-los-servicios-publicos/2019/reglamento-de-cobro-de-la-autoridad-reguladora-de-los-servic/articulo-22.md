@@ -1,0 +1,1 @@
+Artículo 22- Pago de cuotas. El deudor empezará a pagar las cuotas fijadas, un mes calendario después del día de la firma del arreglo de pago, por medio de transferencia electrónica, depósito bancario o directamente en las cajas de la institución.

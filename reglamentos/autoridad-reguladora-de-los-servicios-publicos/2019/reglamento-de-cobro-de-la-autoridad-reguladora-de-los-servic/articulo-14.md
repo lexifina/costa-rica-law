@@ -1,0 +1,1 @@
+Artículo 14-Trámite de peticiones tarifarias. De previo al trámite de solicitudes de carácter tarifario ante la Autoridad Reguladora, el prestador deberá estar al día en el pago del canon. El área de la Autoridad Reguladora que corresponda verificará lo anterior con la Dirección de Finanzas.

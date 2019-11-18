@@ -1,0 +1,1 @@
+Artículo 16- Tramitación. La tramitación, el cálculo de las cuotas, la remisión de la solicitud al Regulador General, custodia y seguimiento del pago de los arreglos corresponderá a la Dirección de Finanzas.

@@ -1,0 +1,2 @@
+Artículo 25- Trámite. Corresponderá a la Dirección de Finanzas determinar las operaciones incobrables dentro de la gestión de cobro administrativo y comunicarlo a la Dirección General de Operaciones mediante un informe. En la gestión de cobro judicial le corresponderá a la Dirección General de Asesoría Jurídica y Regulatoria, determinar las operaciones incobrables.
+Para ambos casos, remitirán un informe a la Junta Directiva con el detalle que permita conocer el estado de la cuenta, así como el respaldo documental, para que sea sometida a conocimiento y aprobación.

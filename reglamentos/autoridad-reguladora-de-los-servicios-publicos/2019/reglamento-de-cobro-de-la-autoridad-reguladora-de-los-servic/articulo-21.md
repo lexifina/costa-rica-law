@@ -1,0 +1,1 @@
+Artículo 21- Cantidad de arreglos de pago. Un deudor no podrá tener más de dos arreglos vigentes. En el caso de presentar solicitud para un tercer arreglo, no se dará trámite a su petición hasta que cancele alguno de los dos vigentes.

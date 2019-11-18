@@ -1,0 +1,1 @@
+Artículo 11- De los pagos por medio de agentes recaudadores. Los agentes recaudadores remitirán a la Autoridad Reguladora los fondos recaudados, con su respectivo detalle dentro del plazo estipulado y según lo pactado en el convenio correspondiente.
