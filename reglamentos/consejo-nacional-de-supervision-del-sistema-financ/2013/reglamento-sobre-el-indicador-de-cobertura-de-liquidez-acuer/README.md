@@ -15,3 +15,4 @@ Reglamento sobre el Indicador de Cobertura de Liquidez (Acuerdo N° 17-13)
 | --- | --- | --- |
 | 1 | 2013-08-30 | la propia norma |
 | 2 | 2018-07-30 | Reglamento 1433 (2018-07-30) |
+| 3 | 2019-11-18 | Reglamento 1544 (2019-11-18) |
