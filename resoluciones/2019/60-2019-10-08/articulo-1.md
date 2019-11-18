@@ -28,10 +28,11 @@ Por tanto,
 RESUELVE:
 Procedimiento para solicitar el registro, las ordenes especiales para, la autorización de la
 exoneración o tarifa reducida del Impuesto sobre el Valor Agregado
-Artículo 1.- Registro de contribuyentes solicitantes de exoneraciones o tarifa reducida del IVA.
-Los contribuyentes del IVA que opten por solicitar la autorización de órdenes especiales, exoneración para adquirir bienes y servicios sin el pago previo del Impuesto al Valor Agregado o la tarifa reducida, según corresponda ante la Dirección General de Hacienda, deberán estar registrados en el Registro Único Tributario de la Dirección General de Tributación, en alguna de las siguientes condiciones:
- Exportador.
- Proveedor de exportador.
- Proveedor de las Corporaciones Municipales.
- Proveedor de la Caja Costarricense del Seguro Social (CCSS).
- Comercializador, distribuidor y productor de productos incluidos en canasta básica tributaria, y sus insumos.
+Artículo 1°—Registro de contribuyentes solicitantes de exoneraciones o tarifa reducida del IVA. Los contribuyentes del IVA que soliciten ante la Dirección General de Hacienda, la autorización de órdenes especiales, exoneración para adquirir bienes y servicios sin el pago previo del Impuesto al Valor Agregado o la tarifa reducida, según corresponda, , deberán estar registrados en el Registro Único Tributario de la Dirección General de Tributación, en alguna de las siguientes condiciones:
+□ Exportador.
+□ Proveedor de exportador.
+□ Proveedor de las Corporaciones Municipales.
+□ Proveedor de la Caja Costarricense de Seguro Social
+(CCSS), tratándose de obra pública se consideran los contratistas y subcontratistas.
+□ Comercializador, distribuidor y productor de productos incluidos en la canasta básica tributaria, y sus insumos.
+(Así reformado por el artículo 1° de la resolución N° DGT-DGH-R-68-2019 del 18 de noviembre de 2019)

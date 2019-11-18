@@ -14,3 +14,4 @@ Procedimiento para solicitar el registro, las ordenes especiales para, la autori
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-10-15 | la propia norma |
+| 2 | 2019-11-18 | Resolución 68 (2019-11-18) |
