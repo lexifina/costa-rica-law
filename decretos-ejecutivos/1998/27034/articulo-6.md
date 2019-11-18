@@ -1,1 +1,0 @@
-Artículo 6°—El permiso o licencia, podrá ser cancelado por el Departamento de Insumos Agrícolas, previo dictado del acto administrativo correspondiente, si se incumple con cualquiera de los requisitos señalados en el ordinal 3° de este Reglamento.

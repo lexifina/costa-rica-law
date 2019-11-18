@@ -1,1 +1,0 @@
-Artículo 2°—El permiso será otorgado por el Ministerio de Agricultura y Ganadería a través del Departamento de Insumos Agrícolas de la Dirección de Servicios de Protección Fitosanitaria, previo cumplimiento de los requisitos a que se refiere el presente Reglamento.
