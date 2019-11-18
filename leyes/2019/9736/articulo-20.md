@@ -1,0 +1,6 @@
+TÍTULO II
+PROMOCIÓN Y ABOGACÍA DE LA COMPETENCIA
+ARTÍCULO 20- Objetivo y lineamientos estratégicos de cada autoridad de competencia en materia de promoción y abogacía de la competencia
+Las actividades de promoción y abogacía de la competencia tendrán como objetivo fomentar e impulsar mejoras en el proceso de competencia y libre concurrencia en el mercado; eliminar y evitar las distorsiones o barreras de entrada, así como aumentar el conocimiento y la conciencia pública sobre los beneficios de la competencia.
+Para ello, utilizarán medios no-coactivos, tales como la emisión de opiniones y guías, la realización de estudios de mercado y de actividades de asesoramiento, capacitación y difusión y acuerdos de cooperación para fomentar y desarrollar sus relaciones con otras entidades.
+El Órgano Superior de cada autoridad de competencia establecerá de forma anual sus prioridades en materia de promoción y abogacía de la competencia, para asegurar el cumplimiento de sus objetivos en esta materia y una efectiva asignación de los recursos. Asimismo, las autoridades de competencia podrán coordinar, entre sí y con otras instituciones del Estado, aquellas actividades que promuevan la competencia a nivel nacional en sectores prioritarios.

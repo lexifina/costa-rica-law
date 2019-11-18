@@ -1,0 +1,2 @@
+ARTÍCULO 130- Prescripción de la potestad sancionadora
+La potestad para sancionar las infracciones previstas en la presente ley, en la Ley N.° 7472, Promoción de la Competencia y Defensa Efectiva del Consumidor, de 20 de diciembre de 1994 y sus reglamentos y en el capítulo II del título III de la Ley N.° 8642, Ley General de Telecomunicaciones, de 4 de junio de 2008 y sus reglamentos, prescribirá en un plazo de cuatro años, contado a partir de la notificación al agente económico investigado del auto de inicio de la etapa de instrucción del procedimiento correspondiente.

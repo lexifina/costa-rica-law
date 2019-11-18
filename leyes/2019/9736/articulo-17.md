@@ -1,0 +1,12 @@
+CAPÍTULO III
+AUDITORÍA, PRESUPUESTO, NORMAS INTERNAS Y
+RÉGIMEN DE RETRIBUCIÓN DE LA COPROCOM
+ARTÍCULO 17- Presupuesto de la Coprocom
+El presupuesto de la Coprocom estará constituido por:
+a) Una transferencia procedente del presupuesto nacional de la República, que corresponda al menos a cinco mil trescientos nueve coma cero cinco (5 309,05) salarios base, en concordancia con la normativa dispuesta en la Ley N.° 9635, Fortalecimiento de las Finanzas Públicas, de 3 de diciembre de 2018. El Órgano Superior elaborará el presupuesto de la Coprocom y lo remitirá al jerarca del Ministerio de Economía, Industria y Comercio (MEIC), para su incorporación dentro del presupuesto de esta cartera ministerial, de conformidad con lo dispuesto en la Ley N.° 9524, Fortalecimiento del Control Presupuestario de los Órganos
+Desconcentrados del Gobierno Central, de 7 de marzo de 2018. La denominación salario base utilizada en esta ley debe entenderse como la contenida en el artículo 2 de la Ley N.° 7337, de 5 de mayo de 1993.
+b) Las donaciones y las subvenciones provenientes de otros Estados, entidades públicas u organismos internacionales, que no comprometen la independencia y la transparencia de la Coprocom, en los términos que establezca el reglamento ejecutivo. No se aceptarán donaciones de aquellos que participan como agentes económicos en los mercados, ya sean entidades públicas estatales o entidades privadas, nacionales o internacionales.
+c) Los ingresos por el cobro del trámite de notificación de las concentraciones económicas. Este cobro será determinado por el Órgano Superior de acuerdo con el principio de servicio al costo en cada fase del procedimiento, que deberá revisarlo anualmente. La metodología para el cálculo de dicho cobro será establecida mediante reglamento técnico, que será sometido a consulta pública, previo a su emisión.
+El funcionamiento ordinario de la Coprocom, así como su presupuesto, estarán sujetos a la fiscalización de la Contraloría General de la República y de la auditoría interna del MEIC, según las competencias establecidas en la normativa vigente.
+El jerarca del Ministerio de Economía, Industria y Comercio no tendrá injerencia en la asignación y ejecución del presupuesto de la Coprocom.
+Se autoriza a las instituciones del Estado y entidades públicas estatales para que efectúen donaciones o aportes a la Coprocom y le asignen temporalmente el personal calificado para cumplir sus fines y ejecutar proyectos específicos. En tales casos aplicarán las mismas restricciones indicadas en el inciso b) de este artículo.

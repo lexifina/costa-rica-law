@@ -1,0 +1,1 @@
+ARTÍCULO 102- Supuestos de presunción favorable de las concentraciones Se establecerán, vía reglamento ejecutivo, los casos en los que, salvo prueba en contrario, se presumirá que una concentración no tiene como objeto o efecto previsible la obstaculización significativa de la competencia.

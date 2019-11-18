@@ -1,0 +1,3 @@
+ARTÍCULO 135- Daños y perjuicios
+Las resoluciones de la autoridad de competencia correspondiente no prejuzgarán sobre los daños y perjuicios causados por la realización de prácticas monopolísticas, que serán conocidos exclusivamente por las autoridades judiciales competentes.
+La demanda podrá interponerse por cualquier persona física o jurídica que hubiese sufrido daños, producto de las conductas declaradas como prácticas monopolísticas por la autoridad de competencia correspondiente. Lo anterior, incluso cuando no haya sido parte en el procedimiento especial administrativo, y siempre y cuando sea capaz de mostrar un nexo causal entre el daño reclamado y la conducta declarada anticompetitiva por la autoridad de competencia correspondiente.

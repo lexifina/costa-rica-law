@@ -1,0 +1,3 @@
+ARTÍCULO 26- Programas de cumplimiento voluntario
+Cada autoridad de competencia promoverá que los agentes económicos suscriban programas de cumplimiento voluntario en materia de competencia. Para ello, podrán emitir guías en las que especifiquen los elementos que deberían contener estos programas.
+Al aplicar los criterios de ponderación de las sanciones del artículo 120 de esta ley, la autoridad de competencia podrá considerar en la intencionalidad, si el infractor demuestra haber adoptado de previo al inicio de la investigación un programa de cumplimiento que reúna los requisitos que se determinen reglamentariamente, así como haber cesado la práctica ilícita.

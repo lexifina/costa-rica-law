@@ -1,0 +1,3 @@
+ARTÍCULO 120- Criterios de ponderación
+El Órgano Superior de la autoridad de competencia correspondiente dictará las sanciones por resolución fundada. Estas se aplicarán en forma gradual y proporcionada, tomando en consideración los siguientes criterios: la gravedad de la infracción, la amenaza o el daño causado, la intencionalidad, el tamaño delmercado afectado, la participación del infractor en el mercado, la duración de la conducta, la reincidencia y la capacidad de pago del infractor. El Órgano Superior, en la resolución respectiva, deberá razonar la utilización o no de los criterios de ponderación.
+Los criterios establecidos en el párrafo anterior se desarrollarán mediante reglamento.

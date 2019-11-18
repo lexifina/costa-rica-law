@@ -1,0 +1,2 @@
+ARTÍCULO 39- Inicio de la etapa de investigación preliminar
+El encargado de investigaciones del Órgano Técnico correspondiente dará inicio a la etapa de investigación preliminar. Se encargará de reunir, asegurar y ordenar las pruebas y demás antecedentes necesarios para determinar la procedencia, o no, del inicio de la etapa de instrucción. Para esto, podrá utilizar todos los mecanismos de recolección de información y pruebas autorizados por ley.

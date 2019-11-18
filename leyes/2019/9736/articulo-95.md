@@ -1,0 +1,4 @@
+ARTÍCULO 95- Suspensión de la transacción
+Una concentración que deba ser notificada no podrá ejecutarse antes de ser autorizada conforme a las reglas de este capítulo.
+En casos excepcionales, la autoridad de competencia correspondiente podrá dispensar la suspensión establecida en el párrafo anterior, previa solicitud motivada del interesado. La resolución se dictará previa ponderación, entre otros factores, del perjuicio que causaría la suspensión de la ejecución a los agentes económicos participantes en la concentración y del efecto que la ejecución de la operación causaría al proceso de competencia y libre concurrencia.
+El levantamiento de la suspensión de la ejecución podrá estar subordinado al cumplimiento de las condiciones y obligaciones que determine la autoridad de competencia correspondiente, para garantizar la eficacia de la decisión que finalmente se adopte.

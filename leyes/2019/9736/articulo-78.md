@@ -1,0 +1,5 @@
+ARTÍCULO 78- Garantías
+Para asegurar el cumplimiento de los compromisos que adquiere el agente económico investigado, el Órgano Superior de la autoridad de competencia correspondiente podrá solicitar la rendición de una garantía de tipo económico, a la orden de dicha autoridad. En ningún caso el monto de la garantía será superior a la multa máxima prevista para la conducta a que se refieren los compromisos ofrecidos.
+El Órgano Superior de la autoridad de competencia correspondiente determinará el lapso durante el que deberán mantener las garantías ofrecidas, que no podrá ser mayor al establecido para el cumplimiento de las condiciones que se pretendan garantizar.
+En caso de constatarse el incumplimiento de los compromisos asumidos, comprobado mediante procedimiento especial, esta podrá ser ejecutada total o parcialmente para el pago de la multa que corresponda.
+Contra la resolución que establezca la necesidad de rendir una garantía cabrá recurso de reconsideración, que deberá interponerse dentro de un plazo de tres días hábiles.

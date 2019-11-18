@@ -1,0 +1,6 @@
+SECCIÓN II
+EXONERACIÓN Y REDUCCIÓN DE LA MULTA
+ARTÍCULO 121- Exoneración de la multa
+Cualquier agente económico o persona física que haya incurrido, coadyuvado, propiciado, inducido, participado o esté participando en la comisión de prácticas monopolísticas absolutas, podrá reconocerlo ante la autoridad de competencia correspondiente y acogerse al beneficio de exoneración de la aplicación de la respectiva multa.
+El Órgano Superior de la autoridad de competencia eximirá totalmente a un agente económico o persona física del pago de la multa que hubiera podido imponerle, siempre y cuando sea el primero entre los agentes económicos o personas físicas involucradas en la conducta, en aportar elementos de prueba veraz, que sean desconocidos para la autoridad de competencia correspondiente y que a juicio de esta permitan fundamentar la solicitud de una inspección o comprobar una infracción en relación con la comisión de una práctica monopolística absoluta.
+La exoneración del pago de la multa concedida a un agente económico beneficiará igualmente a sus representantes legales, o a las personas integrantes de los órganos directivos que hayan intervenido en el acuerdo o decisión, siempre y cuando hayan colaborado con la autoridad de competencia correspondiente hasta el dictado de la resolución final del procedimiento especial.

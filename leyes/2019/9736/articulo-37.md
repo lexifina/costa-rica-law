@@ -1,0 +1,3 @@
+ARTÍCULO 37- Medidas cautelares
+En cualquier momento de cada etapa del procedimiento especial, el órgano respectivo podrá dictar, de oficio o por solicitud del denunciante o de terceros interesados, las medidas cautelares adecuadas y necesarias para proteger y garantizar, provisionalmente, el objeto del procedimiento especial y la efectividad de la posible resolución. Contra lo que se resuelva cabrán los recursos que se establecen en los artículos 59 y 60 de la presente ley.
+Para la imposición de medidas cautelares se deberán demostrar los presupuestos y aplicar el procedimiento establecido en la Ley N.° 8508, Código Procesal Contencioso-Administrativo, de 28 de abril de 2006 y sus reglamentos.

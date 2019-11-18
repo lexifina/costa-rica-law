@@ -1,0 +1,4 @@
+ARTÍCULO 54- Comparecencia oral y privada
+Durante la comparecencia oral y privada se evacuará la prueba ante el Órgano Superior de la autoridad de competencia correspondiente, con la asistencia de los agentes económicos denunciados y, de haberlo, con los denunciantes y coadyuvantes o terceros interesados, sin que su inasistencia impida la realización de la comparecencia, cuando la citación le haya sido debidamente notificada.
+El Órgano Superior contará con el personal profesional y técnico que requiera para la realización de la comparecencia, respetando la independencia entre etapas del procedimiento especial definido en esta ley. Quien participe en la audiencia estará obligado por el deber de confidencialidad, establecido en el artículo 113 de la presente ley.
+Para los fines de la recepción de la prueba, el Órgano Superior tendrá las mismas facultades y deberes que las autoridades judiciales.

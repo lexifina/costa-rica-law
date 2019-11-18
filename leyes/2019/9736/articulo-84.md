@@ -1,0 +1,3 @@
+ARTÍCULO 84- Confidencialidad de la inspección
+La existencia y el contenido de todas las actuaciones, la documentación y los acuerdos que se tomen en relación con la diligencia de inspección serán confidenciales, al menos hasta el momento de su realización. Una vez finalizada la diligencia, la información será clasificada por el Órgano correspondiente, según la etapa del procedimiento especial en la que se realice.
+Todos los funcionarios que participen en la diligencia deberán resguardar la confidencialidad sobre toda información que conozcan antes y en el transcurso de la diligencia, de conformidad con la normativa vigente y aplicable a la materia.

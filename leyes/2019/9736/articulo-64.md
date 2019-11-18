@@ -1,0 +1,2 @@
+ARTÍCULO 64- Conducción del procedimiento sumario
+El procedimiento sumario será conducido por el Órgano Director designado al efecto por el Órgano Superior de cada autoridad de competencia correspondiente, que podrá ser asistido por el personal técnico y profesional que requiera. El Órgano Superior dictará la resolución final y, cuando sea procedente, impondrá las medidas y sanciones que correspondan.

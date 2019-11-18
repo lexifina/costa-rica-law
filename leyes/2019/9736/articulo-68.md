@@ -1,0 +1,3 @@
+ARTÍCULO 68- Tramitación de la solicitud de terminación anticipada del procedimiento especial con reconocimiento de comisión de la infracción
+La solicitud a la que se refieren los artículos 66 y 67 podrá ser presentada desde el inicio de la etapa de instrucción, en cualquier momento antes del inicio de la comparecencia oral y privada, ante el Órgano Superior de la respectiva autoridad de competencia, al que corresponderá resolverla en un plazo de treinta días hábiles.
+En caso de que la propuesta se presente ante otro órgano de la autoridad de competencia correspondiente, este deberá remitirla al Órgano Superior, sin mayor trámite, en el plazo máximo de tres días hábiles.

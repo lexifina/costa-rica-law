@@ -1,0 +1,6 @@
+ARTÍCULO 23- Estudios de mercado
+Cada autoridad de competencia realizará estudios con el fin de profundizar su comprensión sobre el funcionamiento de los mercados sobre los que ejercen su competencia; detectar distorsiones o barreras en materia de competencia y libre concurrencia, y propiciar su eliminación.
+Previo a formular sus recomendaciones, la autoridad de competencia correspondiente podrá convocar a los agentes económicos interesados para trabajar en el diseño de estas y evaluar los costos y beneficios esperados de su implementación.
+Las recomendaciones que emita el Órgano Superior de cada autoridad de competencia, en virtud de los estudios de mercado, no tendrán efectos vinculantes.
+Sin embargo, aquellas entidades públicas que se aparten de estas recomendaciones deberán informar a la autoridad de competencia correspondiente sobre las razones para no implementarlas, en un plazo no mayor a treinta días naturales. Tal informe deberá ser suscrito por la máxima autoridad, que tenga las potestades para implementar las recomendaciones de la entidad pública que lo emita.
+Cada autoridad de competencia presentará versiones públicas de sus estudios, en resguardo de la información confidencial a la que se tuvo acceso.

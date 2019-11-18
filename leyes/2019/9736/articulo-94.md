@@ -1,0 +1,8 @@
+SECCIÓN II
+PROCEDIMIENTO DE ANÁLISIS DE CONCENTRACIONES
+ARTÍCULO 94- Propósito del procedimiento y plazo para resolver
+El procedimiento para el control de concentraciones constará de una primera fase que tendrá como propósito identificar si la concentración genera riesgos al proceso de competencia, en razón de sus posibles efectos en el mercado. De darse esta circunstancia, se dará inicio a una segunda fase, en la que se valorarán los posibles efectos de la transacción en los mercados potencialmente afectados por esta.
+El Órgano Superior de la autoridad de competencia correspondiente tendrá un plazo de treinta días naturales para emitir su resolución de primera fase, contado a partir de la comunicación de la concentración, que contenga toda la información requerida por la presente ley o, en su defecto, de la fecha de presentación de la información prevenida en su oportunidad.
+En caso de ordenarse una segunda fase del procedimiento, esta tendrá una duración máxima hasta de noventa días naturales adicionales al plazo de la primera fase. Este plazo empezará a correr a partir del día en que los solicitantes aporten de manera completa la información y documentación requerida al momento de iniciar esta fase.
+Tanto en la primera como en la segunda fase, el plazo para resolver no se contabilizará mientras la información y documentación que deban aportar los solicitantes no esté completa.
+Si el Órgano Superior de la autoridad de competencia correspondiente no ha emitido su resolución, una vez hayan concluido los plazos para resolver antes indicados, la concentración se tendrá por autorizada sin condiciones y sin necesidad de ningún trámite adicional o de pronunciamiento de la autoridad de competencia respectiva.

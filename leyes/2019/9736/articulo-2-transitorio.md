@@ -1,0 +1,2 @@
+TRANSITORIO II- Al entrar en vigencia la presente ley, y considerando las regulaciones hacendarias, el presupuesto, los activos, el patrimonio y los expedientes administrativos de la Unidad Técnica de Apoyo a la Coprocom se mantendrán en la Coprocom.
+El Programa Presupuestario 224 del Ministerio de Economía, Industria y Comercio (MEIC) se mantendrá hasta que se le asigne un presupuesto autónomo y necesario para el cumplimiento de las funciones la Coprocom.

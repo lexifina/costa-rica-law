@@ -1,0 +1,2 @@
+ARTÍCULO 80- Resolución basada en información falsa, incompleta o inexacta
+El Órgano Superior de la autoridad de competencia correspondiente podrá anular, de oficio o a petición de parte, y sin más trámite, la decisión de terminar un procedimiento especial de forma anticipada con determinados compromisos, si esta se hubiera basado en información incompleta, inexacta o engañosa facilitada por las partes, sin perjuicio de la multa que corresponda.

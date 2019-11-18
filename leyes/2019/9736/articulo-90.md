@@ -1,0 +1,2 @@
+ARTÍCULO 90- Necesidad e independencia del análisis de competencia
+La autoridad de competencia correspondiente analizará la transacción considerando las posibles consecuencias sobre la competencia y libre concurrencia en el mercado. El control de concentraciones en materia de competencia será independiente de las potestades que pueda tener otra entidad pública, en virtud de las leyes que sean aplicables a la transacción; lo anterior, cuando los agentes económicos involucrados cumplan con los criterios establecidos en este capítulo.

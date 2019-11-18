@@ -1,0 +1,1 @@
+TRANSITORIO VI- El Consejo de Gobierno, dentro del plazo máximo de nueve meses, a partir de la publicación de la presente ley, deberá haber elevado a conocimiento de la Asamblea Legislativa la designación de los miembros permanentes y suplentes del Órgano Superior de la Comisión para Promover la Competencia (Coprocom).

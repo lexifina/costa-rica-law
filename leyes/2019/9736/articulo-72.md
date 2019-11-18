@@ -1,0 +1,3 @@
+ARTÍCULO 72- Tramitación de la solicitud de terminación anticipada del procedimiento especial con ofrecimiento de compromisos
+La solicitud de terminación anticipada con ofrecimiento de compromisos podrá ser presentada desde el inicio de la etapa de instrucción, en cualquier momento antes del inicio de la comparecencia oral y privada, ante el Órgano Superior de la respectiva autoridad de competencia, a quien corresponderá resolverla dentro de un plazo de treinta días hábiles a partir de su recibo.
+En caso de que la propuesta se presente ante otro órgano de la autoridad de competencia, este deberá remitirla al Órgano Superior de la respectiva autoridad de competencia, sin mayor trámite, en un plazo máximo de tres días hábiles.

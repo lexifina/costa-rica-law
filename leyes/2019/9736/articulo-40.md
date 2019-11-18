@@ -1,0 +1,4 @@
+ARTÍCULO 40- Recomendación de inicio de la etapa de instrucción
+Cuando el encargado de investigaciones del Órgano Técnico correspondiente estime que los elementos de prueba recabados durante la investigación preliminar son suficientes para el inicio de la etapa de instrucción, así lo recomendará al encargado de instrucción. Junto con su recomendación, remitirá el informe respectivo que incorporará los resultados de la investigación preliminar, así como el expediente completo de la investigación preliminar.
+El expediente deberá contener la especificación de las conductas presuntamente cometidas por el agente económico investigado, la totalidad de la prueba ofrecida por el denunciante, si la hay, y la prueba recabada en la investigación preliminar.
+Asimismo, deberá contener la indicación completa y detallada de aquella prueba ofrecida que deba ser evacuada posteriormente.

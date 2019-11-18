@@ -1,0 +1,3 @@
+ARTÍCULO 4- Representación y legitimación judicial de la Coprocom
+La Coprocom asumirá la representación y defensa de los procesos judiciales en que se revisen actos emitidos por esta en el ejercicio de sus competencias legales. Para ello, contará con legitimación procesal pasiva antes dichas instancias judiciales o ante aquellas instancias administrativas en que también corresponda la defensa de sus intereses. Dicha defensa en instancias judiciales se ejercerá de manera conjunta con la Procuraduría General de la República.
+La legitimación procesal activa de la Coprocom la ejercerá conforme lo establecido en el inciso e) del artículo 3 de la presente ley.

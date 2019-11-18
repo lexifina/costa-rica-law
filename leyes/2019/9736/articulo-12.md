@@ -1,0 +1,4 @@
+ARTÍCULO 12- Sesiones, cuórum y votaciones de la Comisión
+La Comisión se reunirá ordinariamente una vez por semana y, de forma extraordinaria, cuando así lo considere necesario. Para sesionar, los comisionados serán convocados de oficio por el presidente. Asimismo, a solicitud de uno de sus miembros, el presidente deberá convocar a sesión extraordinaria. Para ello, quien lo solicite deberá señalar el tema de interés por tratar.
+El cuórum se integrará con la presencia de la totalidad de los miembros. La renuncia o el cese de uno de los miembros no implicarán la desintegración del Órgano Superior, siempre y cuando el cuórum requerido para sesionar se mantenga.
+Los acuerdos se tomarán con el voto de la mayoría de los miembros y quien no coincida deberá razonar su voto. Cuando se produzca un empate, el presidente resolverá con su voto de calidad. Salvo que tenga causal de impedimento o excusa, ningún miembro presente podrá abstenerse de votar.

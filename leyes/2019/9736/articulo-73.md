@@ -1,0 +1,3 @@
+ARTÍCULO 73- Traslado al denunciante
+El Órgano Superior de cada autoridad de competencia trasladará una versión no confidencial de la propuesta de terminación anticipada del procedimiento especial con ofrecimiento de compromisos al denunciante, si lo hubiera, para que en un plazo de cinco días hábiles haga las manifestaciones que considere convenientes.
+Para terminar anticipadamente el procedimiento especial no se requerirá la aprobación o consentimiento del denunciante. Sin embargo, las manifestaciones que este formule serán consideradas por el Órgano Superior correspondiente al adoptar el acuerdo respectivo y deberá referirse expresamente a estas consideraciones.

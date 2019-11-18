@@ -1,0 +1,4 @@
+ARTÍCULO 93- Prevención de notificaciones previas de concentración incompletas
+Dentro de los primeros quince días hábiles desde la presentación de la solicitud, el Órgano Técnico de la autoridad de competencia correspondiente verificará elcumplimiento de los requisitos formales y prevendrá a los solicitantes la presentación de la información que esté incompleta o que requiera aclaración.
+En caso de que la información prevenida se presente incompleta, se prevendrá por una única vez al solicitante para que la presente dentro de un plazo de quince días hábiles. Transcurrido ese plazo, si no se presenta la información completa, el Órgano Técnico correspondiente ordenará el archivo del expediente y se tendrá por no presentada la gestión.
+Contra la resolución de archivo cabrán los recursos de revocatoria y de apelación ante el Órgano Superior correspondiente, que se deberán interponer dentro de un plazo de cinco días hábiles.
