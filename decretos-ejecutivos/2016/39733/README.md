@@ -14,3 +14,4 @@ Publica Resolución N° 374-2015 (COMIECO-LXXIV) del 4 de diciembre de 2015 y su
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-05-04 | la propia norma |
+| 2 | 2019-11-18 | Decreto Ejecutivo 42273 (2019-11-18) |

@@ -32,7 +32,6 @@ RESUELVE:
 3. Se deroga la Resolución No. 314-2013 (COMIECO-EX) del 5 de julio de 2013, y su Anexo .
 4. La presente Resolución entrará en vigencia el 4 de mayo de 2016 y será publicada por los Estados Parte.
 San Salvador, El Salvador, 4 de diciembre de 2015.
-[imagen]
 El infrascrito Director de Integración Económica y Competitividad, a cargo de la Secretaría General de la Secretaría de Integración Económica Centroamericana (SIECA), CERTIFICA: Que la presente
 fotocopia y la que antecede, impresas únicamente en su anverso, as! como las veinticuatro (24) del anexo adjunto, rubricadas y selladas con el sello de la SIECA, reproducen fielmente la Resolución No. 374-2015 (COMIECO-LXXIV), adoptada por el Consejo de Ministros de Integración Económica, el cuatro (4) de diciembre de dos mil quince (2015), de cuyos originales se reprodujeron. Y, para remitir a los Estados Parte para su correspondiente publicación, extiendo la presente copia certificada en la ciudad de Guatemala, el ocho (8) de diciembre de dos mil quince
 REGLAMENTO TÉCNICO
@@ -102,6 +101,10 @@ No aplica para aquellas fórmulas especiales de fertilizantes que se utilicen de
 3.24 Monoproducto: fertilizante que contiene un solo tipo de compuesto químico o que en el producto no se ha efectuado mezcla alguna.
 3.25 Nombre comercial: nombre, denominación, designación o abreviatura que identifica o distingue a una empresa o establecimiento en su actividad comercial.
 3.26 Panfleto: material impreso que acompaña a cada presentación comercial de un fertilizante o enmienda, de uso agrícola que contiene información complementaria a la etiqueta.
+3.26 (bis) Producto extraído: fertilizante o enmienda que se extraiga de la naturaleza, de origen animal, vegetal o mineral, independientemente de su estado físico.
+(Así adicionado el punto anterior mediante el aparte 1) de la parte resolutiva de la Resolución N° 415-2019 (COMIECO-LXXXVIII) de fecha 25 de octubre de 2019, que aprueba incorporar al “Reglamento Técnico Centroamericano RTCA 65.05.54:15 fertilizantes y enmiendas de uso agrícola, requisitos para el registro”, las definiciones de producto extraído y producto formulado”, aprobada mediante decreto ejecutivo N° 42273 del 18 de noviembre del 2019)
+3.26 (ter) Producto formulado: fertilizante, enmienda, mezcla de fertilizantes o enmiendas de origen animal, vegetal, mineral o sintético, con o sin coadyuvantes de formulación o ingredientes inertes, independientemente de su estado físico.
+(Así adicionado el punto anterior mediante el aparte 1) de la parte resolutiva de la Resolución N° 415-2019 (COMIECO-LXXXVIII) de fecha 25 de octubre de 2019, que aprueba incorporar al “Reglamento Técnico Centroamericano RTCA 65.05.54:15 fertilizantes y enmiendas de uso agrícola, requisitos para el registro”, las definiciones de producto extraído y producto formulado”, aprobada mediante decreto ejecutivo N° 42273 del 18 de noviembre del 2019)
 3.27 Producto natural: fertilizante o enmienda que provenga de la naturaleza, de origen animal, vegetal o mineral que se utilice como tal en forma simple o formando parte de una mezcla más compleja.
 3.28 Producto sintético: fertilizante o enmienda que es generado a partir de otros materiales en los cuales se dan reacciones químicas modificándose los componentes originales.
 3.29 Reenvasado o reempacado: acción de transferir el producto de su envase original a otras presentaciones.
