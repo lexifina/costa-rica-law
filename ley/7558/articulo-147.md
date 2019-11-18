@@ -1,9 +1,10 @@
-Artículo 147.- Deberes de bancos o empresas con domicilio en el exterior
-Los bancos o empresas financieras domiciliadas en el exterior e integrantes de un grupo financiero deberán cumplir con los siguientes requisitos:
-a) Tener un capital no inferior a tres millones de dólares estadounidenses ($3.000.000,00). La Junta Directiva (*) del Banco Central podrá aumentar este monto, de conformidad con el índice de inflación aplicable, hasta por dos veces el monto de la variación del índice entre cada período de ajuste.
-(*) (De acuerdo con el artículo 188, inciso h), de la Ley Reguladora del Mercado de Valores No.7732 de 17 de diciembre de 1997, esta función corresponde al Consejo Nacional de Supervisión del Sistema Financiero, creado por dicha ley. Lo anterior no afecta la vigencia de los antiguos reglamentos y acuerdos del Banco Central, los cuales se mantendrán vigentes mientras no sean modificados por el Consejo Nacional)
-b) Estar domiciliadas en una plaza bancaria aceptada por el Banco Central, conforme a lo dispuesto en el reglamento.
-c) Estar fiscalizadas y supervisadas por las autoridades correspondientes y cumplir con la regulación del país donde estén registradas.
-d) Por medio de la sociedad controladora, presentar al órgano supervisor informes auditados por firmas de reconocido prestigio internacional, de aceptación del órgano supervisor del grupo. El auditoraje deberá revelar información agregada sobre la posición financiera de la institución en general y, en particular, sobre la calidad, el riesgo y la concentración de los activos.
-e) No realizar operaciones en moneda nacional
-Las operaciones que estas entidades realicen en el exterior no estarán sujetas al control monetario del Banco Central ni a la supervisión de los órganos supervisores nacionales, excepto en lo previsto en este capítulo.
+Artículo 147- Deberes de intermediarios financieros con domicilio en el exterior
+Los intermediarios financieros domiciliados en el exterior e integrantes de un grupo financiero deberán cumplir con los siguientes requisitos:
+a) Mantener un capital social no inferior al capital mínimo requerido a los bancos privados costarricenses, convertido a dólares al tipo de cambio de venta de referencia del Banco Central de Costa Rica, a la fecha de entrada en vigencia de dicho capital mínimo.
+b) Estar domiciliados en una plaza bancaria aceptada por el Consejo Nacional de Supervisión del Sistema Financiero (Conassif), que cumpla con los parámetros de regulación, supervisión e intercambio de información dispuestos en el reglamento emitido por este. El Consejo cancelará la autorización de la plaza del exterior que no cumpla con esos parámetros. Si cancela la autorización podrá autorizar la exclusión de esa empresa del grupo financiero, una vez que haya eliminado todas las vinculaciones.
+c) Estar supervisados por las autoridades correspondientes y cumplir con la regulación del país donde estén registrados.
+d) No realizar actividades de captación de recursos de terceros en el territorio nacional, ya sea por su propia cuenta y riesgo, haciendo uso de las instalaciones o los medios facilitados por las entidades o empresas supervisadas costarricenses, o a través de los funcionarios de estas.
+Las entidades supervisadas costarricenses podrán prestar servicios de corresponsalía a los bancos domiciliados en el exterior integrante del grupo o conglomerado financiero, incluyendo, pero no limitado a la transferencia de fondos.
+El tipo, el alcance y las características de los servicios que pueden prestar dichas entidades a los bancos del exterior parte de su grupo o conglomerado financiero será reglamentado por el Consejo Nacional del Supervisión del Sistema Financiero.
+Las operaciones que estos intermediarios realicen en el exterior no estarán sujetas al control monetario del Banco Central.
+(Así reformado por el artículo 18 de la ley N° 9768 del 16 de octubre del 2019)

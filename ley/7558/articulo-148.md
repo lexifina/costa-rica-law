@@ -1,4 +1,5 @@
-Artículo 148.- Aplicación de límites establecidos
-Los límites establecidos en esta ley a las entidades financieras, en relación con el otorgamiento de créditos a una sola persona, natural o jurídica, a grupos de interés económico o a empresas vinculadas a la propia entidad financiera por propiedad o gestión, serán aplicables a cada una de las entidades sujetas a supervisión que formen parte de los grupos financieros.
-Adicionalmente, dichos límites serán aplicables al grupo financiero consolidado, con el propósito de reducir los riesgos del grupo y proteger todo el sistema financiero. Las auditorías externas de los grupos financieros deberán dictaminar sobre el cumplimiento de estos límites.
-Lo anterior se entiende sin perjuicio de los límites o prohibiciones que establezca el reglamento para las operaciones entre entidades integrantes de un mismo grupo financiero.
+Artículo 148- Aplicación de límites establecidos
+Los límites establecidos en esta ley a las entidades financieras, en relación con las operaciones activas con una sola persona, natural o jurídica, con grupos de interés económico o con empresas vinculadas a la propia entidad financiera, por propiedad o gestión, serán aplicables a cada una de las entidades sujetas a supervisión que formen parte de los grupos o conglomerados financieros.
+Adicionalmente, dichos límites serán aplicables al grupo o conglomerado financiero de manera consolidada, como parte de la supervisión consolidada, con el propósito de reducir los riesgos del grupo o conglomerado y proteger el sistema financiero nacional. Las auditorías externas de los grupos o conglomerados financieros deberán dictaminar sobre el cumplimiento de estos límites.
+Lo anterior se entiende sin perjuicio de los límites o las prohibiciones que establezca el reglamento para las operaciones entre entidades integrantes de un mismo grupo o conglomerado financiero.
+(Así reformado por el artículo 19 de la ley N° 9768 del 16 de octubre del 2019)
