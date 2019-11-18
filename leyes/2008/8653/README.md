@@ -1,6 +1,6 @@
 # Ley Reguladora del Mercado de Seguros, incluye reforma integral a la Ley N° 12 del 30 de octubre de 1924
 
-Ley N° 8653 del 2008-07-22. SINALEVI, ficha 63749: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=63749&param2=116584&param3=1>.
+Ley N° 8653 del 2008-07-22. SINALEVI, ficha 63749: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=63749&param2=118459&param3=1>.
 
 Publicada en La Gaceta N° 152 del 2008-08-07.
 
@@ -11,3 +11,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 1 de 6 | 2008-08-07 | Ley 8653 | 2008-07-22 |
 | 2 de 6 | 2011-09-12 | Ley 8956 | 2011-06-17 |
 | 3 de 6 | 2019-06-13 | Ley 9694 | 2019-06-04 |
+| 4 de 6 | 2019-11-18 | Ley 9736 | 2019-09-05 |
