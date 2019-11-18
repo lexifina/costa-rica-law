@@ -1,0 +1,2 @@
+ARTÍCULO 3º.-Derogatorias
+Deróguese, del Reglamento a la Ley de General de Aduanas, Decreto Ejecutivo Nº 25270 del 14 de junio de 1996, publicado en el Alcance Nº 37 al Diario Oficial La Gaceta Nº 123 del 28 de junio de 1996, el inciso i) del artículo 14 bis, el párrafo 2 del artículo 15, el inciso h) del artículo 15 bis, el inciso c) del artículo 25 bis y el inciso h) del artículo 26 bis; además el Decreto Ejecutivo Nº 35317-H del 20 de mayo de 2009, publicado en el Diario Oficial La Gaceta númerol23 del 26 de junio del 2009.
