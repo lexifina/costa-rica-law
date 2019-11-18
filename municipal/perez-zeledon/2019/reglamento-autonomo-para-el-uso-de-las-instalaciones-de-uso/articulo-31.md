@@ -1,0 +1,1 @@
+ARTÍCULO 31°: De acuerdo con la naturaleza del espectáculo y su complejidad, éste tendrá derecho hasta un máximo de 2 (dos) ensayos, los cuales serán fijados por la Administración del Complejo Cultural y el responsable del grupo, quienes programarán las respectivas fechas.

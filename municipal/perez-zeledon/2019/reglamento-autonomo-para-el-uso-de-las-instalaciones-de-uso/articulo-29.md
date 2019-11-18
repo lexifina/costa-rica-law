@@ -1,0 +1,1 @@
+ARTÍCULO 29°: Deberá indicarse al público por parte del arrendante y su grupo de trabajo sobre las acciones a tomar en caso de emergencia, indicando las rutas de evacuación o salidas de emergencia, además, deberá indicar al público el personal con el que cuenta para atender los casos de emergencia.

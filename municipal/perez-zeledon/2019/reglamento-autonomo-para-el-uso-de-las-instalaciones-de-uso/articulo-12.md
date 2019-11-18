@@ -1,0 +1,1 @@
+Artículo 12°: El soporte para los elementos escenográficos será siempre proporcionado por el arrendatario que vaya a realizar la actividad o espectáculo, no pudiendo utilizarse para tales efectos el vestido del escenario (patas, telones de fondo y boca, entre otros)

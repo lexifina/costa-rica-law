@@ -1,0 +1,1 @@
+ARTÍCULO 21°: El interesado colocará las mantas publicitarias, banner o afiches de los espectáculos, en la ventana principal del auditorio. Únicamente se permitirá propaganda de actividades que sean realizadas en las instalaciones del Complejo Cultural, salvo aquellas de carácter municipal.

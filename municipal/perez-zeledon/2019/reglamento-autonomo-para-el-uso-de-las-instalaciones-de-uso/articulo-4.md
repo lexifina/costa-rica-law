@@ -1,0 +1,1 @@
+Artículo 4°: El horario de servicio del complejo cultural será a partir de las 07:00 y hasta las 22:00 horas de lunes a domingo, exceptúan los días feriados en los cuales las instalaciones se encontrarán cerradas.

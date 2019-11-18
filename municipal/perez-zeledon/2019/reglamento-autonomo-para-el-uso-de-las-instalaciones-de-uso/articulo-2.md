@@ -1,0 +1,1 @@
+Artículo 2°: El Complejo Cultural es propiedad de la Municipalidad de Pérez Zeledón y a través de él se fomenta y desarrolla las bellas artes y se promueve la herencia cultural del Cantón de Pérez Zeledón.

@@ -1,0 +1,1 @@
+ARTÍCULO 41°: En el caso del incumplimiento de alguna de las cláusulas establecidas en este reglamento, la Administración del Complejo Cultural, se reservará el derecho de arrendar de nuevo el espacio al arrendatario que en ocasión anterior ha incumplido este reglamento. Las partes podrán acudir a los medios legales necesarios para tal efecto.

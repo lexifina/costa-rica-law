@@ -1,0 +1,1 @@
+Artículo 7°: Está terminantemente prohibido ingerir alimentos en todas las áreas del teatro, a excepción del foyer en el cual podrá habilitarse un espacio para ello previa coordinación con la administración municipal.

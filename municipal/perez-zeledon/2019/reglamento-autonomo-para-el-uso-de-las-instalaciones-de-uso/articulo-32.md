@@ -1,0 +1,1 @@
+ARTÍCULO 32°: En el caso de que el usuario desee arrendar el foyer u otro local del Complejo Cultural deberá reservar un mínimo de dos horas y un máximo de seis y se calculará el precio en el 40% (cuarenta por ciento) de la tarifa de arrendamiento para el Complejo Cultural.

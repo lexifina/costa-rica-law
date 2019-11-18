@@ -1,0 +1,1 @@
+Artículo 6°: El público asistente realizará su entrada y salida por los espacios designados para ello, deberán respetar el orden establecido para las colas en taquilla y para los accesos (entradas y salidas) a los espectáculos. Se deberán respetar las salidas de emergencia y las áreas demarcadas de amarillo, para protección de los usuarios.

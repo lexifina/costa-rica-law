@@ -1,0 +1,1 @@
+ARTÍCULO 39°: Queda absolutamente prohibido fumar e ingerir licor, comercializar o expender el producto en el cualquiera de las instalaciones del Complejo Cultural, lo anterior, de acuerdo a la Ley N° 9028 y Ley N° 9047.

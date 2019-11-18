@@ -1,0 +1,2 @@
+Disposiciones Transitorias
+Transitorio l: En el plazo de diez días hábiles la Administración del Complejo Cultural deberá presentar el borrador del contrato y de los formularios de solicitud y de permisos para espectáculos públicos requeridos en el presente instrumento. Además, se deberá coordinar con el Proceso de Informática con el fin de que estos documentos estén disponibles en la página web de este Gobierno Local.

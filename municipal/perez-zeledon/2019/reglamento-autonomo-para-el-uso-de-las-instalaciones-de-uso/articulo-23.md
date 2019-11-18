@@ -1,0 +1,1 @@
+ARTÍCULO 23°: Antes del ingreso al edificio el día del evento, el arrendatario deberá entregar al encargado del Complejo Cultural o a quien este asigne para tal fin, la copia del contrato firmado y contar con los permisos respectivos.

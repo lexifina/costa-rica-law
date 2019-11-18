@@ -1,0 +1,1 @@
+ARTÍCULO 20°: No es permitido pegar carteles, fotos o cualquier otro tipo de publicidad o propaganda en las paredes del foyer o Auditorio. Si se quisiera efectuar alguna exposición, los interesados deberán solicitarlo en el respectivo formulario y traer el equipo necesario para tal efecto.

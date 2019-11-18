@@ -1,0 +1,1 @@
+Artículo 13°: En caso de necesitar un sonido adicional, el solicitante será responsable del equipo adicional que ingrese al edificio, del montaje, desmontaje y utilización del mismo, previa coordinación con el funcionario municipal encargado de las instalaciones.

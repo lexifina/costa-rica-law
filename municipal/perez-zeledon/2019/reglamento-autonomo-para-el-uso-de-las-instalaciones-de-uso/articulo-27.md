@@ -1,0 +1,1 @@
+ARTÍCULO 27°: En el caso de la exoneración del impuesto de espectáculos públicos deberá cumplir con las condiciones y procedimientos establecidos en el artículo 9 y 10 del Reglamento para el Cobro del Impuesto de Espectáculos Públicos de la Municipalidad de Pérez Zeledón.

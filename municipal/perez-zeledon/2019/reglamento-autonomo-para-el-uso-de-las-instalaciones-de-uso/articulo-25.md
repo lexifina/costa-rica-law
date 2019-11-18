@@ -1,0 +1,1 @@
+ARTÍCULO 25°: Los boletos serán puestos a la venta el mismo día de la función, antes del inicio del espectáculo. En caso de requerir venta de boletos en días anteriores (2 días máximo) deberá coordinarse con la Administración del Complejo Cultural para su programación.

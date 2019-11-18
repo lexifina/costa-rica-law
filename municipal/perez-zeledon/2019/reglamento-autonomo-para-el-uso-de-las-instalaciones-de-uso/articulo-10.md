@@ -1,0 +1,1 @@
+Artículo 10°: Queda prohibido el uso de elementos o la realización de acciones que atenten contra las instalaciones del edifico municipal o la integridad de las personas presentes, como el lanzamiento de serpentinas, confeti, fuego, explosiones simuladas, vertido de materiales sólidos o líquidos, entre otros.
