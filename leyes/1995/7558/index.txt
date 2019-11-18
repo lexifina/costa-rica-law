@@ -141,8 +141,13 @@ articulo-137.md
 articulo-138.md
 articulo-139.md
 articulo-140.md
+articulo-140-bis.md
+articulo-140-ter.md
 articulo-141.md
+articulo-141-bis.md
+articulo-141-ter.md
 articulo-142.md
+articulo-142-bis.md
 articulo-143.md
 articulo-144.md
 articulo-145.md
@@ -156,6 +161,10 @@ articulo-152.md
 articulo-153.md
 articulo-154.md
 articulo-155.md
+articulo-155-bis.md
+articulo-155-ter.md
+articulo-155-quater.md
+articulo-155-quinquies.md
 articulo-156.md
 articulo-157.md
 articulo-158.md

@@ -1,5 +1,6 @@
 SECCION II
-Operaciones de la Superintendencia en los entes fiscalizados
+Funciones de la Superintendencia en los Entes Fiscalizados
+(Así modificada su denominación por el artículo 3° de la ley N° 9768 del 16 de octubre del 2019 . Anteriormente indicaba “Operaciones de la Superintendencia en los entes fiscalizados”)
 Artículo 134.- Supervisión y vigilancia
 La Superintendencia realizará sus operaciones de supervisión y vigilancia sobre los entes fiscalizados, de la siguiente forma:
 a) El Superintendente, por sí o por medio de los funcionarios de la Superintendencia, podrá efectuar cualquier acción directa de supervisión o de vigilancia en las entidades fiscalizadas, en el momento que lo considere oportuno, independientemente de la contratación que se hubiere hecho, de conformidad con el inciso
