@@ -1,0 +1,4 @@
+ARTÍCULO 71- Contenido de la solicitud de terminación anticipada del procedimiento especial con ofrecimiento de compromisos
+La solicitud de terminación anticipada del procedimiento especial con ofrecimiento de compromisos deberá contener el compromiso expreso de suprimir los hechos comprendidos en el auto de inicio de la etapa de instrucción y traslado de cargos así como de tomar medidas para que, cuando corresponda, se contrarresten sus posibles efectos anticompetitivos, debiendo indicar la forma y el plazo para su implementación.
+La propuesta deberá incluir la forma en cómo se pretende garantizar el cumplimiento de lo ofrecido, indicando el tipo de garantía y las demás condiciones que regirán su cumplimiento.
+En los procedimientos en los que intervenga más de una parte, la propuesta de terminación anticipada deberá ser presentada por todos los agentes económicos y personas físicas investigados.

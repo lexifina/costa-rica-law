@@ -1,0 +1,2 @@
+TRANSITORIO XI- La Procuraduría General de la República continuará representando y concluirá la defensa de los casos que contra la Comisión para Promover la Competencia hayan iniciado de manera previa a la entrada en vigencia de la presente ley. Asimismo, concluirá las gestiones de cobro de multas iniciadas. Lo anterior, salvo que la propia Comisión resuelva lo contrario.
+Igualmente, mientras se conforma la nueva Comisión, la Procuraduría General de la República asumirá la representación en los asuntos judiciales que se presenten a partir de la publicación de esta ley.

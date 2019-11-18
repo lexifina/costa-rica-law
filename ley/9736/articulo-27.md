@@ -1,0 +1,2 @@
+ARTÍCULO 27- Difusión y publicación
+Cada autoridad de competencia pondrá a disposición del público, de manera pronta y oportuna, y en el medio que determine pertinente, sus resoluciones firmes, acuerdos, estudios de mercado y recomendaciones, criterios, opiniones y guías, así como las decisiones y motivaciones brindadas por las entidades públicas, que se aparten de sus opiniones y recomendaciones. Dichas publicaciones se realizarán en resguardo de la información confidencial a la que se tuvo acceso.

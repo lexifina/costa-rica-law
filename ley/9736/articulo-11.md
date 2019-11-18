@@ -1,0 +1,5 @@
+ARTÍCULO 11- Impedimento, inhibitoria y recusación de los integrantes del órgano superior de la Coprocom
+Serán motivos de impedimento, inhibitoria o recusación para los miembros del Órgano Superior, además de los establecidos en la Ley N.°9342, Código Procesal Civil, de 3 de febrero de 2016, los siguientes:
+a) Haber sido consultor, asesor o abogado, durante los dos años anteriores, de alguno de los agentes económicos involucrados, de sus competidores en el mercado o de otros con un interés directo en el resultado del proceso en algún procedimiento que vaya a iniciar o esté en trámite ante la Coprocom.
+b) Ser propietario, accionista o miembro de la Junta Directiva, de algún agente económico involucrado en el procedimiento en cuestión, o de un agente económico que sea competidor de este, o de otros con un interés directo en el resultado del proceso.
+El procedimiento por observar en estos casos es el establecido en la Ley N.° 6227, Ley General de la Administración Pública, de 2 de mayo de 1978 y sus reglamentos.

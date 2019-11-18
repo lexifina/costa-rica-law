@@ -14,4 +14,8 @@ k) En general, todo acto deliberado que induzca la salida de competidores del me
 l) El condicionamiento de la celebración de contratos a la aceptación de prestaciones suplementarias que, por su naturaleza o con arreglo a los usos de comercio, no guarden relación con el objeto de dichos contratos.
 m) Imponer, bajo la amenaza de ruptura de las relaciones comerciales, condiciones de pago u otras condiciones de tipo comerciales no reconocidas en las costumbres comerciales.
 Para determinar si estas prácticas son sancionables, la Comisión deberá analizar y pronunciarse sobre las pruebas que aporten las partes tendientes a demostrar los efectos procompetitivos o la mayor eficiencia en el mercado derivada de sus acciones.
+n) El establecimiento de subsidios cruzados entre diferentes bienes o servicios ofrecidos por el agente económico.
+(Así adicionado el inciso anterior por el artículo 137 inciso b) de la Ley de Fortalecimiento de las Autoridades de Competencia de Costa Rica, N° 9736 del 5 de setiembre del 2019)
+ñ) La diferencia negativa o insuficiente entre el precio que un proveedor integrado verticalmente cobra a sus competidores por un insumo, y el precio al que vende a sus clientes un bien o servicio para el cual dicho insumo sea esencial, de forma tal que impida a un competidor igualmente eficiente subsistir en el mercado o competir de forma efectiva.
+(Así adicionado el inciso anterior por el artículo 137 inciso b) de la Ley de Fortalecimiento de las Autoridades de Competencia de Costa Rica, N° 9736 del 5 de setiembre del 2019)
 (Así reformado por el artículo 1° de la ley N° 9072 del 20 de setiembre de 2012)

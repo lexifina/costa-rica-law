@@ -13,8 +13,9 @@ a) Son infracciones muy graves:
 10) Incumplir la obligación de acceso o interconexión y las demás obligaciones que de ella se deriven.
 11) Suspender el acceso o la interconexión sin autorización de la Sutel.
 12) Cobrar a los usuarios finales tarifas distintas de las fijadas por la Sutel, cuando corresponda.
-13) Realizar las prácticas monopolísticas establecidas en esta Ley.
-14) Realizar una concentración sin la autorización a que se refiere esta Ley.
+13) Cometer las infracciones a las que se refiere el artículo 118 de la Ley de Fortalecimiento de las Autoridades de Competencia de Costa Rica.
+(Así reformado el acápite anterior artículo 140 inciso i) de la Ley de Fortalecimiento de las Autoridades de Competencia de Costa Rica, N° 9736 del 5 de setiembre del 2019)
+14) (Derogado por el artículo 140 inciso i) de la Ley de Fortalecimiento de las Autoridades de Competencia de Costa Rica, N° 9736 del 5 de setiembre del 2019)
 15) Utilizar la información de los usuarios finales para fines no autorizados en la ley.
 16) Violar la privacidad o intimidad de las comunicaciones de los usuarios finales.
 17) Incumplir las medidas cautelares adoptadas por la Sutel.
@@ -33,6 +34,10 @@ b) Son infracciones graves:
 11) Cualquier acción en contra de lo dispuesto en esta Ley, los reglamentos u otras obligaciones contractuales, que por su naturaleza, daño causado y trascendencia no se considere como infracción muy grave.
 12) Incumplir, dos o más veces en un año calendario, las infracciones leves establecidas en el inciso c) de este artículo.
 (Así adicionado el subinciso anterior por el artículo 2° de la ley N° 9597 del 13 de agosto de 2018)
+13. Cometer las infracciones a las que se refiere el artículo 117 de la Ley de Fortalecimiento de las Autoridades de Competencia de Costa Rica.
+(Así adicionado el acápite anterior por el artículo 140 inciso i) de la Ley de Fortalecimiento de las Autoridades de Competencia de Costa Rica, N° 9736 del 5 de setiembre del 2019)
 (*)c) Son infracciones leves:
 1) Incumplir el inciso 4) del artículo 49 de esta ley.
 (*)(Así adicionado el inciso anterior por el artículo 2° de la ley N° 9597 del 13 de agosto de 2018)
+2) Cometer las infracciones a las que se refiere el artículo 116 de la Ley de Fortalecimiento de las Autoridades de Competencia de Costa Rica.
+(Así adicionado el acápite anterior por el artículo 140 inciso i) de la Ley de Fortalecimiento de las Autoridades de Competencia de Costa Rica, N° 9736 del 5 de setiembre del 2019)

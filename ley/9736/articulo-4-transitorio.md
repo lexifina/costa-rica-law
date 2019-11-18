@@ -1,0 +1,1 @@
+TRANSITORIO IV- La Unidad Técnica de Apoyo a la Comisión para Promover la Competencia (Coprocom), creada en la Ley N.°7472, Promoción de la Competencia y Defensa Efectiva del Consumidor, de 20 de diciembre de 1994 y sus reglamentos, seguirá funcionando hasta que se implemente el estudio que se menciona en el transitorio IX de la presente ley, conforme al transitorio X.

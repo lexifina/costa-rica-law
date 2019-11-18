@@ -1,0 +1,2 @@
+ARTÍCULO 108- Notificación tardía y omisión de notificación previa
+En los casos en que una concentración sujeta a notificación previa, según lo previsto en la presente ley, hubiese sido notificada de forma tardía, de conformidad con lo establecido en el artículo 89 de la presente ley, o no hubiese sido notificada, se tramitará mediante procedimiento especial, conforme a lo establecido en el capítulo I del título III de la presente ley.
