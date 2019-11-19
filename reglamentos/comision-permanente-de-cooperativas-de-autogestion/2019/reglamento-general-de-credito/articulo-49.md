@@ -1,0 +1,1 @@
+Artículo 49.-Pérdida de condición de sujeto de crédito. Sin perjuicio de lo establecido en el Artículo 2 de este Reglamento, aquel organismo que no posea su personería jurídica vigente no podrá ser sujeto de crédito.

@@ -1,0 +1,1 @@
+Artículo 45.-Comisión financiera. La Comisión Permanente de Cooperativas de Autogestión podrá cobrar una comisión de hasta el 3% sobre el monto del crédito, por una sola vez, según las características del proyecto.

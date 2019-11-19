@@ -1,0 +1,2 @@
+Artículo 8º-Compromiso de la comisión. La tramitación y estudio de las solicitudes no implica compromiso alguno para el Fondo Nacional de Autogestión respecto de las mismas.
+Queda ampliamente facultada la Comisión de Crédito para conceder sumas diferentes a las solicitadas, modificar planteamientos o desechar las propuestas, aun cuando se hubieren satisfecho todos los requisitos reglamentarios y legales, especialmente si los proyectos no mostraren capacidad de pago para la cooperativa autogestionaria solicitante o generen riesgos patrimoniales para el Fondo.

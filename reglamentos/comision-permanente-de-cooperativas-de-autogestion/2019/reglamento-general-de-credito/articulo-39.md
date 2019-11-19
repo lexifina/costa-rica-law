@@ -1,0 +1,4 @@
+Capítulo V
+Formalización y Desembolsos
+Artículo 39.-Contratos de préstamo. La formalización de los créditos se hará mediante un contrato de préstamo en el cual se indicarán todas las condiciones del préstamo otorgado, salvo en el caso de préstamos constituidos exclusivamente con garantías hipotecarias o prendarias, documentos en los cuales se indicarán las condiciones pactadas en el crédito.
+En los contratos de préstamo u otros documentos de formalización de los créditos, los organismos deberán comprometerse a atender instrucciones, especialmente las de orden económico, administrativo o contable y permitir las inspecciones y fiscalizaciones que el mismo considere necesarias.

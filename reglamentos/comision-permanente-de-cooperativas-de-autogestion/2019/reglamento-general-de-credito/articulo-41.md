@@ -1,0 +1,1 @@
+Artículo 41.-Cambios en las condiciones. Cuando durante el proceso de formalización del crédito, se determine la necesidad de modificar alguna de las condiciones aprobadas por el comité de crédito, la Dirección de Proyectos emitirá el informe técnico respectivo para conocimiento de la Comisión de Crédito.

@@ -1,0 +1,2 @@
+Artículo 17.-Libro de actas. La Comisión de Crédito contará con un Libro de Actas, el cual podrá ser llevado en forma física o electrónica., deberá cumplirse para ambos casos con las disposiciones que para tal efecto establezca la Contraloría General de la República de Costa Rica, así como aquéllas que establezca la Auditoría Interna del INFOCOOP.
+El texto del acta se transcribirá en el Libro de Actas de la Comisión de Crédito, a fin de presentarla para ser firmada por el Presidente y el Secretario o quien los sustituya.
