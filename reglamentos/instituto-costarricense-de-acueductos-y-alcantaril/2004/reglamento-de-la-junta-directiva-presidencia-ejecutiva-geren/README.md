@@ -15,3 +15,4 @@ Reglamento de la Junta Directiva, Presidencia Ejecutiva, Gerencia y Subgerencia 
 | --- | --- | --- |
 | 1 | 2004-06-08 | la propia norma |
 | 2 | 2005-01-11 | Reglamento 2 (2005-01-11) |
+| 3 | 2019-11-19 | Reglamento 70 (2019-11-19) |

@@ -1,6 +1,8 @@
-Artículo 4º—Son facultades y atribuciones de la Junta Directiva:
+Artículo 4º—La Junta Directiva tendrá las facultades y atribuciones señaladas en los artículos 6, 7, 8, 9, 10, 11 y 16 de la Ley Constitutiva del Instituto Costarricense de Acueductos y Alcantarillados Nº 2726 sus reformas, y las siguientes:
+(Así reformado el párrafo anterior mediante sesión N° 2019-70 del 19 de noviembre de 2019)
 1) Dirigir la política de AyA, fiscalizar las operaciones y acordar las inversiones de los recursos de la misma.
-2) Conocer del Presupuesto Ordinario anual y los extraordinarios y acordar lo que corresponda de previo a someterlos a los entes externos, deberá velar por su concordancia con el Plan Nacional de Desarrollo.
+2) Conocer en sesión extraordinaria como tema único el Presupuesto Anual Ordinario y acordar lo que corresponda antes de someterlo a los entes externos, y velar por su concordancia con el Plan Nacional de Desarrollo (PND). Las modificaciones presupuestarias y presupuestos extraordinarios deberán conocerse en una sesión extraordinaria pudiéndose agendar con otros temas Publíquese.
+(Así reformado el inciso anterior mediante sesión N° 2019-70 del 19 de noviembre de 2019)
 3) En la última sesión del mes de julio de cada año, la Junta Directiva conocerá de todos los planes y proyectos globales e integrales que la administración se propone ejecutar durante el año correspondiente. En dicha sesión, si ello fuere posible, se aprobarán las propuestas que se presenten, previa discusión y aprobación de las mismas.
 4) Durante los meses de mayo y octubre la Junta Directiva conjuntamente con la Administración Superior evaluará y calificará los logros obtenidos durante ese período de tiempo, evaluando lo actuado a ese momento. Dicha calificación y evaluación cubre a los Directores de Área y a los Regionales.
 5) Conocer la recomendación de la Administración y resolver lo correspondiente a adjudicar, o declarar desiertas las licitaciones públicas que se realicen de conformidad con la Ley y el Reglamento de Contratación Administrativa.
