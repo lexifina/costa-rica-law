@@ -15,3 +15,4 @@ Reglamento de la Junta Directiva, Presidencia Ejecutiva y Órgano Gerencial de A
 | --- | --- | --- |
 | 1 | 2015-08-27 | la propia norma |
 | 2 | 2018-12-18 | Reglamento 73 (2018-12-18) |
+| 3 | 2019-11-19 | Reglamento 70 (2019-11-19) |
