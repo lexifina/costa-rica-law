@@ -15,3 +15,4 @@ Reglamento la Prevención, Denuncia y Procedimiento Interno Administrativo en ma
 | --- | --- | --- |
 | 1 | 2011-06-18 | la propia norma |
 | 2 | 2019-02-26 | Reglamento municipal 148 (2019-02-26) |
+| 3 | 2019-11-19 | Reglamento municipal 186 (2019-11-19) |
