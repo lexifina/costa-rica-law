@@ -1,2 +1,2 @@
-Artículo 131.—En el proceso de investigación que establece este Capítulo Dirección de Asuntos Jurídicos, podrá requerir de otras dependencias y funcionarios en general aportar documentos y/o citarlos para que declaren o realicen cualquier acto necesario para el desenvolvimiento normal del procedimiento disciplinario o para su decisión recomendativa.
-(Así reformado mediante sesión ordinaria N° 148 del 26 de febrero del 2019)
+Artículo 131.—En el proceso de investigación que establece este Capítulo la oficina de Asuntos Laborales de la Dirección de Recursos Humanos, podrá requerir de otras dependencias y funcionarios en general aportar documentos y/o citarlos para que declaren o realicen cualquier acto necesario para el desenvolvimiento normal del procedimiento disciplinario o para su decisión recomen dativa.
+(Así reformado mediante sesión ordinaria N° 186 del 19 de noviembre el 2019)
