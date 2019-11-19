@@ -1,1 +1,0 @@
-Artículo 24.—Intervenir en la discusión y votación de los asuntos en que tengan ellos interés directo su cónyuge o alguno de sus parientes dentro del tercer grado de consanguinidad o segundo grado de afinidad.

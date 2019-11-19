@@ -1,1 +1,0 @@
-Artículo 40: En caso de renuncia o destitución de alguno de los miembros de la Junta Directiva del Comité Cantonal de Deportes y Recreación, para su reposición debe procederse basándose en el artículo 16 de este reglamento para que se respete la representación a quien le corresponda.

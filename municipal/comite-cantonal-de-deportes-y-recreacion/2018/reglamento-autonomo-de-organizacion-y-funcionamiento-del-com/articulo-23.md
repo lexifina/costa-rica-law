@@ -1,1 +1,0 @@
-Artículo 23.—Suscribir contratos, ni convenios por servicios profesionales con el Comité, Cantonal de Deportes y Recreación, Comités Comunales, Asociaciones Deportivas, Municipalidad y cualquier entidad pública o privada de la cual forman parte.

@@ -1,1 +1,0 @@
-Artículo 83.— El comité comunal saliente en coordinación con el Comité Cantonal fijarán fecha y lugar para que se realice la asamblea, ésta será presidida por el miembro de la Junta Directiva del Comité Cantonal que esta Junta designe.

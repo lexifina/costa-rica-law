@@ -1,1 +1,0 @@
-Artículo 11.—Recomendar, proponer candidatos y participar en las Asambleas Provinciales y Nacionales del Congreso Nacional del Deporte de conformidad con la Ley 7800 del ICODER y en las Asambleas Nacionales para elegir al Representante de los Comités Cantonales de Deporte en el Consejo Nacional del Deporte y la Recreación.
