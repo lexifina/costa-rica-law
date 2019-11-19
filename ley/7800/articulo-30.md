@@ -1,9 +1,3 @@
-ARTÍCULO 30.- Exonérase al Comité Olímpico de todo tipo de impuestos,
-tasas y sobretasas, para la importación y adquisición de artículos o
-implementos deportivos necesarios para la práctica y participación de los
-equipos olímpicos en las competencias nacionales e internacionales
-organizadas por el citado Comité.
-Asimismo, se exoneran de tasas e impuestos de cualquier naturaleza
-los bienes inmuebles propiedad del Comité Olímpico y de las federaciones
-y asociaciones nacionales que cumplan con los fines para los cuales han
-sido creados.
+Artículo 30.—Se exoneran ambos Comités de todo tipo de impuestos, tasas y sobretasas, para la importación y adquisición de artículos o implementos deportivos necesarios para la práctica y participación de los equipos nacionales en las competencias nacionales e internacionales organizadas por los citados Comités.
+Asimismo, se exoneran de tasas e impuestos de cualquier naturaleza los bienes inmuebles propiedad de los Comités y de las federaciones y asociaciones nacionales que cumplan con los fines para los cuales han sido creados.
+(Así reformado por el artículo 18 de la ley N° 9739 del 5 de noviembre del 2019, “Reformas para la inclusión al deporte y la recreación de las personas con discapacidad”)

@@ -1,5 +1,2 @@
-ARTÍCULO 49.- Las federaciones deportivas gozarán de plena autonomía
-en la elección de los deportistas que integren las selecciones nacionales,
-según lo indique la Federación Internacional respectiva. Para las
-actividades olímpicas, lo harán de acuerdo con la Carta Olímpica y los
-propios reglamentos del Comité Olímpico de Costa Rica.
+Artículo 49.—Las federaciones deportivas gozarán de plena autonomía en la elección de las personas deportistas que integren las selecciones nacionales, según lo indique la Federación Internacional respectiva. Para las actividades olímpicas, lo harán de acuerdo con la Carta Olímpica y los propios reglamentos del Comité Olímpico Nacional de Costa Rica. Para las actividades paralímpicas, lo harán de acuerdo con los lineamientos que indique el Comité Paralímpico Internacional y los estatutos y reglamentos del Comité Paralímpico Nacional de Costa Rica. Para las actividades de olimpiadas especiales, lo harán conforme a los lineamientos de Olimpiadas Internacionales y los reglamentos y estatutos de Olimpiadas Especiales Costa Rica.
+(Así reformado por el artículo 13 de la ley N° 9739 del 5 de noviembre del 2019, “Reformas para la inclusión al deporte y la recreación de las personas con discapacidad”)
