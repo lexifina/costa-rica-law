@@ -1,5 +1,2 @@
-ARTÍCULO 27.- Autorízase a las personas físicas o jurídicas, públicas
-o privadas, para que otorguen contribuciones o donaciones al Comité
-Olímpico. Las sumas donadas se considerarán gastos deducibles del impuesto
-sobre la renta en un porcentaje no mayor al diez por ciento (10%). Las
-donaciones internacionales estarán exentas de todo tipo de impuestos.
+Artículo 27.—Se autoriza a las personas físicas o jurídicas, públicas o privadas, para que otorguen contribuciones o donaciones a los Comités. Las sumas donadas se considerarán gastos deducibles del impuesto sobre la renta en un porcentaje no mayor al diez por ciento (10%). Las donaciones internacionales estarán exentas de todo tipo de impuestos.
+(Así reformado por el artículo 18 de la ley N° 9739 del 5 de noviembre del 2019, “Reformas para la inclusión al deporte y la recreación de las personas con discapacidad”)

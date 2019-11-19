@@ -1,5 +1,2 @@
-ARTÍCULO 24.- El Comité Olímpico Nacional, una vez expresada su
-conformidad de aceptar la personalidad indicada en el párrafo segundo del
-artículo anterior, procederá a registrar la Carta Olímpica en el Registro
-de Asociaciones Deportivas del Registro Nacional. En este caso, no
-requerirá la aprobación previa del Instituto.
+Artículo 24.—Los Comités, una vez que expresen su conformidad de aceptar la personalidad indicada en el párrafo segundo del artículo anterior, procederán a registrar la Carta Olímpica y el Manual del Comité Paralímpico Internacional, según sea el Comité Olímpico Nacional o el Comité Paralímpico Nacional, respectivamente, en el Registro de Asociaciones Deportivas del Registro Nacional. En estos casos, no requerirá la aprobación previa del Instituto.
+(Así reformado por el artículo 18 de la ley N° 9739 del 5 de noviembre del 2019, “Reformas para la inclusión al deporte y la recreación de las personas con discapacidad”)

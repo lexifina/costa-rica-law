@@ -1,19 +1,9 @@
-ARTÍCULO 25.- Será competencia del Comité Olímpico, junto con las
-federaciones y asociaciones de representación nacional e internacional:
-a) Inscribir y acreditar las delegaciones deportivas de Costa Rica en
-los Juegos Olímpicos y demás juegos patrocinados por el Comité Olímpico
-Internacional.
-b) Elaborar, en coordinación con las asociaciones y federaciones
-afiliadas a su organismo, el plan de preparación de la participación de
-Costa Rica en los juegos patrocinados por el Comité Olímpico Internacional
-y establecer las marcas mínimas para las disciplinas que las requieren.
-c) Colaborar en la preparación y el estímulo de la práctica de las
-actividades representadas en los Juegos Olímpicos.
-d) Difundir los ideales del Movimiento Olímpico.
-e) Denegar la inscripción de los atletas que no reúnan los requisitos
-establecidos por la Carta Olímpica o el Comité Olímpico Internacional.
-f) Coordinar con el Instituto el Plan nacional anual para efectos de
-la competencia de cada entidad y el logro de mejores resultados para el
-deporte nacional.
-g) Las demás competencias que definan sus propios estatutos, las
-normas a las que esté sujeto y la Carta Olímpica.
+Artículo 25.—Los Comités, cada uno dentro de sus ámbitos de acción y especificidad, tendrán las siguientes competencias, junto con las federaciones y asociaciones de representación nacional e internacional vinculadas a cada uno de ellos:
+a) Inscribir y acreditar las delegaciones deportivas de Costa Rica en los Juegos Olímpicos y eventos del ciclo de Juegos Paralímpicos, además del resto de juegos patrocinados y reconocidos por los Comités Olímpico Internacional o Paralímpico Internacional, según corresponda.
+b) Elaborar, en coordinación con las asociaciones y federaciones afiliadas a cada organismo, el plan de preparación de la participación de Costa Rica en los juegos patrocinados por los Comités Olímpico Internacional y Paralímpico Internacional y establecer las marcas mínimas para las disciplinas que las requieren, de conformidad con los ámbitos de acción de los respectivos Comités.
+c) Colaborar en la preparación y el estímulo de la práctica de las actividades representadas en los Juegos Olímpicos y Paralímpicos, según corresponda a cada Comité.
+d) Difundir los ideales del Movimiento Olímpico y los del Movimiento Paralímpico, según corresponda a cada Comité.
+e) Denegar la inscripción de los atletas que no reúnan los requisitos establecidos por la Carta Olímpica o el Comité Olímpico Internacional, cuando corresponda al Comité Olímpico y, para el caso específico del Comité Paralímpico, cuando no se cumplan aquellos requisitos que consten en los estatutos del Comité Paralímpico Internacional.
+f) Cada Comité deberá coordinar, con el Instituto, el Plan nacional anual para efectos de la competencia de cada entidad y el logro de mejores resultados para el deporte nacional, dentro del rango de acción respectivo y según la especificidad de los Comités.
+g) Las demás competencias que definan sus propios estatutos y las normas a las que esté sujeto.
+(Así reformado por el artículo 18 de la ley N° 9739 del 5 de noviembre del 2019, “Reformas para la inclusión al deporte y la recreación de las personas con discapacidad”)

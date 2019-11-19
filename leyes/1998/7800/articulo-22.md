@@ -1,6 +1,2 @@
-ARTÍCULO 22.- El Comité Olímpico y las federaciones deportivas de
-representación nacional e internacional son las entidades responsables de
-vigilar, dirigir, organizar y reglamentar el deporte de alta competición,
-dentro de los términos establecidos en esta ley, la Carta Olímpica
-Internacional y las normas emanadas de las federaciones y los organismos
-internacionales en los respectivos deportes.
+Artículo 22.—El Comité Olímpico Nacional de Costa Rica, el Comité Paralímpico Nacional de Costa Rica, las federaciones y asociaciones deportivas de representación nacional e internacional son las entidades responsables de vigilar, dirigir, organizar y reglamentar el deporte adaptado y convencional de alta competición, dentro de los términos establecidos en esta ley, la Carta Olímpica Internacional, la Carta de Constitución del Comité Paralímpico Internacional, los estatutos y las normas emanadas de las federaciones y los organismos internacionales en los respectivos deportes.
+(Así reformado por el artículo 8° de la ley N° 9739 del 5 de noviembre del 2019, “Reformas para la inclusión al deporte y la recreación de las personas con discapacidad”)

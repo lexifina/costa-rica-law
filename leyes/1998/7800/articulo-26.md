@@ -1,3 +1,3 @@
-ARTÍCULO 26.- Para el ejercicio de sus funciones, corresponde al
-Comité Olímpico la representación exclusiva de Costa Rica ante los juegos
-patrocinados por el Comité Olímpico Internacional.
+Artículo 26.—Para el ejercicio de sus funciones, corresponde al Comité Olímpico la representación exclusiva de Costa Rica ante los juegos patrocinados por el Comité Olímpico Internacional.
+En relación con el Comité Paralímpico Nacional de Costa Rica la representación exclusiva de Costa Rica para los Juegos Paracentroamericanos, Juegos Paracentroamericanos y del Caribe, Juegos Parapanamericanos y Juegos Paralímpicos y del ciclo paralímpico, así como todos los eventos auspiciados por el Comité Paralímpico Internacional. En las disciplinas en las cuales el International Paralympic Committee (IPC) ostenta la administración y gobierno, el Comité Paralímpico Nacional de Costa Rica tendrá la representación nacional e internacional en todos los eventos. En el resto de los casos, la representación Nacional e Internacional la ostentará la Federación o Asociación que desarrolle la respectiva disciplina de Deporte Adaptado y se encuentre afiliada a la Federación Internacional reconocida por el IPC.
+(Así reformado por el artículo 18 de la ley N° 9739 del 5 de noviembre del 2019, “Reformas para la inclusión al deporte y la recreación de las personas con discapacidad”)

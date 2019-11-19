@@ -1,5 +1,2 @@
-ARTÍCULO 47.- Dentro de las organizaciones deportivas reguladas en
-esta ley, las federaciones deportivas de representación nacional serán las
-únicas que podrán denominarse con los nombres "costarricense", "de Costa
-Rica" y "nacional". De la aplicación de esta disposición se exceptúa al
-Comité Olímpico.
+Artículo 47.—Dentro de las organizaciones deportivas reguladas en esta ley, las federaciones deportivas de representación nacional serán las únicas que podrán denominarse con los nombres “costarricense”, “de Costa Rica” y “nacional”. De la aplicación de esta disposición se exceptúan al Comité Olímpico Nacional de Costa Rica y al Comité Paralímpico Nacional de Costa Rica y Olimpiadas Especiales Costa Rica.
+(Así reformado por el artículo 12 de la ley N° 9739 del 5 de noviembre del 2019, “Reformas para la inclusión al deporte y la recreación de las personas con discapacidad”)
