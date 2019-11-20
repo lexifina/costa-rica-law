@@ -18,3 +18,5 @@ p) Coordinar la formulación y autorizar el anteproyecto de presupuesto del Mini
 q) Formular el Plan Operativo Anual (POA) de la Dirección y el correspondiente anteproyecto de presupuesto, de acuerdo con las prioridades institucionales y del sector educación, así como remitirlos al Viceministro Administrativo para su aprobación.
 r) Establecer los Manuales de Procedimientos requeridos para el funcionamiento de la Dirección y sus dependencias, el manejo de la información oficial, así como la prestación de los servicios y la realización de trámites bajo su responsabilidad, previo visto bueno del Viceministro Administrativo.
 s) Otras funciones inherentes, relacionadas con sus competencias y atribuciones, asignadas por el superior jerárquico.
+t) Elaborar, administrar y mantener actualizados el sitio web administrativo y los portales educativos de la institución.
+(Así adicionado el inciso anterior por el artículo 2° del decreto ejecutivo N° 42179 del 20 de noviembre del 2019)

@@ -18,3 +18,4 @@ Organizaci√≥n administrativa de la oficinas centrales del Ministerio de Educaci√
 | 3 | 2018-01-09 | Decreto Ejecutivo 40953 (2018-01-09) |
 | 4 | 2018-03-19 | Decreto Ejecutivo 41007 (2018-03-19) |
 | 5 | 2019-07-15 | Decreto Ejecutivo 42058 (2019-07-15) |
+| 6 | 2019-11-20 | Decreto Ejecutivo 42179 (2019-11-20) |

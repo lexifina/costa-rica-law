@@ -10,5 +10,5 @@ h) Aprobar, dar seguimiento y evaluar los planes, programas, proyectos y accione
 i) Establecer los lineamientos técnicos, directrices y manuales de procedimientos para orientar la asignación, uso, supervisión y control de los recursos públicos canalizados a las Juntas de Educación y Juntas Administrativas, en temas de su competencia.
 j) Formular el Plan Operativo Anual (POA) de la Dirección y el correspondiente anteproyecto de presupuesto, de acuerdo con las prioridades institucionales y del sector educación, así como remitirlos al Viceministro Académico para su aprobación.
 k) Establecer los Manuales de Procedimientos requeridos para el funcionamiento de la Dirección y sus dependencias, el manejo de información oficial, así como la prestación de servicios y la realización de trámites bajo su responsabilidad, previo visto bueno del Viceministro Académico.
-l) Elaborar, administrar y mantener actualizados el sitio web administrativo y los portales educativos de la institución.
-m) Otras funciones inherentes, relacionadas con su ámbito de competencia y atribuciones, asignadas por el superior jerárquico.
+l) Otras funciones inherentes, relacionadas con su ámbito de competencia y atribuciones, asignadas por el superior jerárquico.
+(Mediante el artículo 1° del decreto ejecutivo N° 42179 del 20 de noviembre de 2019, se acordó eliminar el inciso l) original y correr la numeración de los restantes incisos, por lo que el inciso m) paso a ser el inciso l))
