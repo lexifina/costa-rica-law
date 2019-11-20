@@ -1,0 +1,3 @@
+Artículo 16. — Recursos. El sujeto pasivo que se encuentre inconforme con el valor determinado por la Administración Tributaria o con el monto de impuesto determinado, podrá interponer los recursos de revocatoria y apelación dispuestos en los numerales 145 y 146 del Código de Normas y Procedimientos Tributarios, conforme se detalla:
+a) Cuando el contribuyente pagó el impuesto en el período indicado en el primer párrafo de artículo 2, el plazo para interponer el recurso deberá contarse a partir del día hábil siguiente a aquél en que se canceló el impuesto.
+b) En los casos de pago fuera del período establecido en el primer párrafo de artículo 2, o de no pago, el plazo para recurrir se inicia a partir del primer día hábil siguiente al vencimiento del plazo para el pago.

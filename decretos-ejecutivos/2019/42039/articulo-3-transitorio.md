@@ -1,0 +1,1 @@
+Transitorio III. — Para los efectos del último párrafo del artículo 17, en tanto no se implemente un medio de consulta más ágil, la demostración del pago se hará mediante la presentación, por parte del interesado, del documento en que conste la cancelación del mismo.

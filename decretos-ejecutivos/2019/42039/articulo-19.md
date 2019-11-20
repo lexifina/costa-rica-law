@@ -1,0 +1,1 @@
+Artículo 19. — Sanción. La mora en el pago del impuesto será sancionado con una multa del diez por ciento (10%) mensual, por cada mes de atraso, que se aplicará sobre el monto del impuesto que debió pagarse, pero el total no podrá exceder de ese monto.

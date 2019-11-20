@@ -1,0 +1,1 @@
+Artículo 3. — Hecho generador y momento en que ocurre. El hecho generador del Impuesto es la propiedad de vehículos automotores, embarcaciones y aeronaves ocurre en el momento de su inscripción en el Registro correspondiente conforme a la definición del inciso k) del artículo 1 de este Reglamento, y se mantiene hasta la cancelación definitiva del asiento de inscripción.

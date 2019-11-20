@@ -1,0 +1,1 @@
+Artículo 22. — Derogatoria. Deróguese el Decreto Ejecutivo Nº 40140-H, denominado "Reglamento a la Ley de Impuesto a la Propiedad de Vehículos Automotores, Embarcaciones y Aeronaves", del 17 de noviembre de 2016, publicado en La Gaceta Nº 45 del 28 de febrero de 2017 y sus reformas.
