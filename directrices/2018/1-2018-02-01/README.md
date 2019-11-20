@@ -14,3 +14,4 @@ Presentación y calificación de documentos relacionados a cementerios
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-04-23 | la propia norma |
+| 2 | 2019-11-20 | Directriz 2 (2019-11-20) |
