@@ -15,3 +15,4 @@ Reglamento para la Constitución y Funcionamiento del Sistema Nacional de Invers
 | --- | --- | --- |
 | 1 | 2008-08-22 | la propia norma |
 | 2 | 2017-09-01 | Decreto Ejecutivo 40691 (2017-09-01) |
+| 3 | 2019-11-20 | Decreto Ejecutivo 42070 (2019-11-20) |
