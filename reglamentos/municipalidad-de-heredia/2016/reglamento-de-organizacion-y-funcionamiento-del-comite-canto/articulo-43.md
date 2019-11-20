@@ -1,1 +1,2 @@
-Artículo 43.—Las instalaciones deportivas serán clasificadas por el Comité Cantonal, en categorías, de acuerdo a las condiciones de éstas; también ordenará el uso de éstas por los usuarios, de acuerdo con el tipo de actividad que realicen.
+Artículo 43.—El Comité Cantonal percibirá los ingresos por el uso de las instalaciones deportivas del Cantón y la reservación de estas áreas deberá realizase en coordinación y con la anuencia previa del Comité Comunal respectivo, para lo cual debe establecerse un medio de pago de fácil acceso a los vecinos de la comunidad y no podrán reservarse o pagarse cuotas por áreas deportivas o recreativas sin que el Comité Comunal esté anuente.
+(Así reformado mediante sesión ordinaria N° 265-2019 del 20 de noviembre del 2019)

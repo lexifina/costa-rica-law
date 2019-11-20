@@ -2,4 +2,7 @@ Artículo 28.—Sustituciones por ausencias permanentes: En el caso de ausencias
 a) Cuando se trate de un miembro que ha sido nombrado de manera directa por parte del Concejo Municipal en la Junta Directiva del Comité Cantonal el Concejo nombrará al sustituto de manera directa.
 b) Cuando se trate del representante de las organizaciones de desarrollo comunal en la Junta Directiva del Comité Cantonal, lo nombrará el Concejo de la terna que envíen las Asociaciones de Desarrollo debidamente organizadas o en su defecto las Asociaciones de Desarrollo reconocidas legalmente por la Dirección Nacional del Desarrollo de la Comunidad.
 c) Cuando se trate de un representante de las asociaciones deportivas o recreativas del cantón para integrar la Junta Directiva del Comité Cantonal, se convocará a una Asamblea de Organizaciones Deportivas y Recreativas para que realicen el nuevo nombramiento.
-d) Cuando se trate de un miembro de un Comité o Comités Vecinales de Deportes lo realizará la Junta Directiva del Comité Cantonal de manera directa.
+d) Cuando se trate de un representante según la Ley 9633, es decir, mayor de 15 y menor de 18 años, el Comité Cantonal de Deportes coordinará con el Comité Cantonal de la Persona Joven su sustitución, conforme a lo que señala el artículo 8 inciso d) de este Reglamento.
+(Así reformado el inciso anterior mediante sesión ordinaria N° 265-2019 publicada en La Gaceta N° 233 del 6 de diciembre del 2019)
+e) Cuando se trate de un miembro de un Comité Comunal se seguirá el procedimiento que señala el artículo 26 de este Reglamento.
+(Así aicionado el inciso anterior mediante sesión ordinaria N° 265-2019 publicada en La Gaceta N° 233 del 6 de diciembre del 2019)

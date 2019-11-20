@@ -1,2 +1,3 @@
-Artículo 18.—Comités Comunales de Deporte y Recreación:
-De conformidad con el Código Municipal existirá un Comité Comunal de Deportes y Recreación en cada uno de los distritos administrativos del Cantón de Heredia. Dichos comités estarán adscritos al Comité Cantonal y su objetivo será colaborar en el cumplimiento de las metas previstas por el Comité Cantonal de Deportes y Recreación de Heredia.
+Artículo 18.—Comités Comunales de Deportes y Recreación:
+De conformidad con el Código Municipal existirán Comités Comunales de Deportes y Recreación en Heredia, para lo cual la comunidad se organizará y solicitará el apoyo del Comité Cantonal de Deportes y Recreación para su conformación conforme este Reglamento. Dichos Comités Comunales serán órganos adscritos al Comité Cantonal y su objetivo será promover el deporte y la recreación en la comunidad y darle el adecuado aprovechamiento a las áreas deportivas de su circunscripción.
+(Así reformado mediante sesión ordinaria N° 265-2019 publicada en La Gaceta N° 233 del 6 de noviembre del 2019)

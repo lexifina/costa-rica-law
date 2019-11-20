@@ -1,1 +1,2 @@
-Artículo 52.—La Junta Directiva del Comité Cantonal podrá suscribir convenios de cooperación con las organizaciones deportivas, recreativas y comunales.
+Artículo 52.—La Junta Directiva del Comité Cantonal podrá suscribir convenios de cooperación con las organizaciones deportivas, recreativas y comunales, en tanto no afecten los programas propios del Comité Comunal ni la calendarización de actividades prevista por el Comité Comunal. Por tal motivo, de previo a adoptar los convenios deberá consultar la anuencia del Comité Comunal de Deportes y Recreación respectivo, sea para su aprovechamiento en el deporte o para publicidad en el inmueble.
+(Así reformado mediante sesión ordinaria N° 265-2019 publicada en La Gaceta N° 233 del 6 de diciembre del 2019)
