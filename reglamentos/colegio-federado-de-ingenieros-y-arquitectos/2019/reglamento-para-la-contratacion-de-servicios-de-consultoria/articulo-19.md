@@ -1,0 +1,1 @@
+Artículo 19. Remuneración fijada mediante tarifas: esta modalidad se aplica en aquellos servicios profesionales que están debidamente establecidos. Los honorarios se calculan como porcentaje sobre el valor del estudio o proyecto por realizarse, de acuerdo con el arancel establecido en el Decreto Ejecutivo correspondiente.

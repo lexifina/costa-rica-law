@@ -1,0 +1,1 @@
+Artículo 38. Derogatorias. Se deroga el Reglamento para la Contratación de Servicios de Consultoría en Ingeniería y Arquitectura, aprobado por la Asamblea de Representantes del CFIA en sesión N° 6-88 AER del 16 de agosto de 1988 y publicado en el Diario Oficial La Gaceta N° 202 del 25 de octubre de 1988.

@@ -1,0 +1,1 @@
+Artículo 20. Precio global o suma alzada: este método de remuneración es aplicable cuando el alcance de los servicios se puede prefijar y definir, en forma clara y precisa, por la característica de los proyectos que no se encuentran cubiertos por el arancel tarifable.

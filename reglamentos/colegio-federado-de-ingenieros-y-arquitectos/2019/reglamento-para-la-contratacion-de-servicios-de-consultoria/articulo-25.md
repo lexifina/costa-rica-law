@@ -1,0 +1,2 @@
+CAPÍTULO VII. De las Cláusulas Contractuales
+Artículo 25. Objeto del contrato: las relaciones entre el consultor y el cliente deben estar enmarcadas dentro de los principios éticos, profesionales y de la justa remuneración, que aseguren a las partes contratantes el logro de los objetivos y acuerdos establecidos previamente. El objeto del contrato, por tanto, es establecer en forma escrita las condiciones de la relación contractual cliente-consultor.

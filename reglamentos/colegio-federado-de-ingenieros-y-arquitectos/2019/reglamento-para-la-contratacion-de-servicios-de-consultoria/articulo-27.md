@@ -1,0 +1,1 @@
+Artículo 27. Alcance del contrato: el contrato debe definir de manera precisa, el alcance de los trabajos que debe realizar el consultor y las obligaciones y responsabilidades que este y el cliente adquieren en su relación contractual.

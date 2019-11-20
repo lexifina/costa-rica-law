@@ -1,0 +1,1 @@
+TRANSITORIO II: Las contrataciones y relaciones jurídicas que se encuentren en curso a la entrada en vigencia del presente Reglamento continuarán sustanciándose por las normas que regían en la fecha de su inicio.

@@ -1,0 +1,1 @@
+Artículo 18. Modalidades de remuneración de los servicios: la remuneración de los servicios de consultoría se efectuará de acuerdo con alguna de las modalidades que se describen en los artículos 19, 20 y 21 de este reglamento, o con alguna combinación de ellas.

@@ -1,0 +1,1 @@
+Artículo 34.-Contratación de servicios de consultoría por etapas: se podrán contratar servicios de consultoría para desarrollarse en etapas; estos servicios podrán ser desarrollados por diferentes profesionales y cada contrato deberá inscribirse ante el CFIA.

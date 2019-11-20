@@ -1,0 +1,4 @@
+Artículo 12. Servicios de consultoría no relacionados con construcción de obras: son parte del ejercicio profesional de las diferentes áreas de la ingeniería y de la arquitectura que no están relacionadas con una obra constructiva.
+Comprenden un proceso integral que incluye el planeamiento, modelaje, diseño, ejecución, evaluación, seguimiento y que puede ser desarrollado, en sus etapas, por uno o varios profesionales, según la complejidad del proyecto, y/o los términos contractuales.
+Estos proyectos deben desarrollarse bajo la responsabilidad de un profesional o empresa inscrita en el CFIA, de acuerdo con su rama y especialidad, y con base en los perfiles profesionales aprobados por la Junta Directiva General del CFIA.
+Cuando se necesite la inclusión de otros servicios para el registro de responsabilidad profesional, el CFIA los podrá incluir en sus plataformas tecnológicas, a través de las disposiciones internas correspondientes.

@@ -1,0 +1,1 @@
+Artículo 28. Obligatoriedad de registro de responsabilidad de los servicios de consultoría: debe registrarse obligatoriamente en el Colegio Federado la responsabilidad profesional de los consultores que intervienen en cualquier tipo de proyecto.

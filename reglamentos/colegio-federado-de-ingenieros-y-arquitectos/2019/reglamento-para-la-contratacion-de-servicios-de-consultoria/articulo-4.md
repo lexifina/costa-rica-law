@@ -1,0 +1,2 @@
+Artículo 4. Relación entre los profesionales: la actividad de la consultoría, por naturaleza o por el procedimiento de ejecución de los proyectos, obliga a una relación permanente entre los profesionales.
+En todos los casos, las relaciones entre profesionales deberán sujetarse con lo que se indica en el Capítulo III, "De la Relación con los Colegas del Código de Ética Profesional", y en el artículo 2, incisos e), t), y w), del presente reglamento.

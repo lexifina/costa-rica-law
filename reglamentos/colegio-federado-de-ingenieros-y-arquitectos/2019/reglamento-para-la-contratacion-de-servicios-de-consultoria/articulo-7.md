@@ -1,0 +1,2 @@
+Artículo 7. Fases de un proyecto en las que se brindan servicios de consultoría:
+un proyecto se divide en tres fases. La primera fase corresponde a la realización de los estudios preliminares, la elaboración de planos y documentos técnicos; la segunda fase se refiere a la organización y dirección de ejecución del proyecto u obra, y la tercera fase contempla los servicios de operación y gestión del mantenimiento de los proyectos y obras.

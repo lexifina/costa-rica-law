@@ -1,0 +1,1 @@
+TRANSITORIO I: Los servicios de honorarios de las figuras de gerencia de proyectos, responsabilidad de la ejecución de la construcción (REC) y coordinador de proyectos, serán acordados de mutuo acuerdo entre las partes, hasta tanto, el arancel respectivo no establezca una determinada tarifa.

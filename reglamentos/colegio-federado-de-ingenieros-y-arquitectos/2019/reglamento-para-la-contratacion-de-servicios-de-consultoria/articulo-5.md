@@ -1,0 +1,2 @@
+CAPÍTULO IV. De los Servicios de Consultoría
+Artículo 5. Actividades de consultoría: abarcan todo el quehacer profesional en las distintas ramas de la ingeniería y la arquitectura, por lo que la clasificación de los servicios profesionales únicamente se debe considerar como una guía, sin que se pretenda, con ello, describir el total de los servicios que de las distintas disciplinas puedan derivarse en un determinado momento.

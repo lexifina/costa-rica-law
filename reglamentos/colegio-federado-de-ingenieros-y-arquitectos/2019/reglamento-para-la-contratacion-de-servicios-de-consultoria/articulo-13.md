@@ -1,0 +1,3 @@
+Artículo 13. Coordinador de proyecto: cuando el cliente lo considere necesario, podrá contratar un "coordinador de proyecto", en su representación, con el fin de realizar la contratación de profesionales necesarios para el desarrollo del proyecto y trámites asociados.
+El coordinador de proyectos podrá ser parte del equipo consultor contratado para el desarrollo del proyecto en el área de su especialidad.
+Cuando el coordinador del proyecto asume el servicio de gerencia de proyecto, según lo establecido en este reglamento, percibirá el honorario profesional indicado en el arancel para dicho servicio.
