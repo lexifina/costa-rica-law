@@ -1522,13 +1522,16 @@ Donde:
 Hbm = Horas - bus en la hora "m".
 F = Cantidad de unidades de la flota autorizada.
 Hcm = Horas - chofer en la hora "m".
-5) Determinar para cada día de la semana y día feriado la cantidad de requerimientos de horas - chofer disponible para conducción (HD) en jornada diurna (5 a.m. a 7 p.m.), jornada mixta (4 a.m. a 5 a.m. y 7 p.m. a 11 p.m.) y jornada nocturna (11 p.m. a 4 a.m.).
-6) Determinar para cada día de la semana y día feriado el requerimiento total de horas disponibles para conducción en jornadas ordinarias equivalentes de 8 horas, al sumar la cantidad de horas - chofer en jornada diurna, la cantidad de horas - chofer en jornada mixtas ajustadas por el factor 8/7 y la cantidad de horas - chofer en jornadas nocturnas ajustadas por el factor 4/3 (8/6), debido a que la jornada ordinaria mixta es de 7 horas y la nocturna de 6 horas.
+5) Determinar para cada día de la semana y día feriado la cantidad de requerimientos de horas-chofer disponible para conducción (HD) en jornada diurna (5 a. m. a 7 p. m.) y jornada nocturna (7 p. m. a 5 a. m.).
+(Así reformado el punto anterior mediante resolución N° RE-0139-JD-2019 del 20 de noviembre de 2019)
+6) Determinar para cada día de la semana y día feriado el requerimiento total de horas disponibles para conducción en jornadas ordinarias equivalentes de 8 horas, al sumar la cantidad de horas-chofer en jornada diurna y la cantidad de horas-chofer en jornadas nocturnas ajustadas por el factor 4/3 (8/6), debido a que la jornada ordinaria nocturna es de 6 horas
+.
+[imagen]
 Donde:
-HDd = Horas disponibles para conducción en el día "d".
+HDd = Horas disponibles para conducción en el día “d”.
 HDjd = Horas disponibles para conducción en jornada diurna.
-HDjm = Horas disponibles para conducción en jornada mixta.
 HDjn = Horas disponibles para conducción en jornada nocturna.
+(Así reformado el punto 6) anterior mediante resolución N° RE-0139-JD-2019 del 20 de noviembre de 2019)
 7) Determinar para cada día de la semana y día feriado el requerimiento total de horas laborales considerando el factor de suplemento de la actividad de conducción de vehículos de transporte público, según la categoría de la ruta (Urbana - Interurbana corta: 15% e Interurbana media - larga: 20%). Este factor de suplemento considera elementos como el tiempo para descanso y alimentación, servicios para la unidad (combustible, revisión técnica, servicios externos) y la entrega de la recaudación. Para el ajuste respectivo se dividen los requerimientos calculados en el paso 6 entre 0.85 en el caso de las rutas urbanas e interurbanas cortas y entre 0.80 en el caso de las rutas interurbanas medias y largas.
 Donde:
 HLd = Horas laborales en el día "d".
@@ -1573,32 +1576,15 @@ Donde:
 JLCB = Jornadas laborales semanales por bus.
 JLST = Jornadas laborales semanales totales.
 F = Cantidad de unidades de la flota autorizada. Ejemplo del procedimiento para la determinación de la cantidad de jornadas semanales equivalentes de choferes Categoría de ruta: Urbana Flota autorizada: 60 Tiempo medio de viaje: 1 hora
-Formulario 1. Horas-chofer para cada hora-día (Pasos 1 al 4)
+Formulario 1.
 [imagen]
-Formulario 2. Horas-chofer por tipo de jornada para cada día (Paso 5)
-Tipo de jornada | Rango horario | Lunes | Martes | Miércoles | Jueves | Viernes | Sábado | Domingo
-Jornada mixta | 4 am - 5 am | 17 | 17 | 17 | 17 | 17 | 14 | 14
-Jornada diurna | 5 am - 7 pm | 745 | 745 | 745 | 745 | 745 | 542 | 467
-Jornada mixta | 7 pm - 11 pm | 89 | 89 | 89 | 89 | 89 | 90 | 94
-Jornada nocturna | 11 pm - 4 am | 5 | 5 | 5 | 5 | 5 | 3 | 1
-Formulario 3. Jornadas de 8 horas para cada día de la semana (Pasos 6 al 8)
-Factor de tiempo disponible para conducción (Ruta urbana) = 85%
-Elemento | Lunes | Martes | Miércoles | Jueves | Viernes | Sábado | Domingo
-HDd | 873 | 873 | 873 | 873 | 873 | 665 | 592
-HLd | 1027 | 1027 | 1027 | 1027 | 1027 | 782 | 696
-JLd | 128.4 | 128.4 | 128.4 | 128.4 | 128.4 | 97.8 | 87.0
-Formulario 4. Determinación de cantidad de choferes (Pasos 9 al 13)
-Paso | Elemento | Cálculo | Valor
-9 | JLS = Jornadas laborales semanales de choferes en horas ordinarias (48 horas) | 826,6 / 6 | 137,8
-10 | JLHE = Jornadas laborales semanales a ser cubiertas en horas extras | 137,8 - 128,4 | 9,4
-%HE = Porcentaje de horas extras | 9,4 / 128,4 | 7,3%
-11 | JLSa = Jornadas laborales semanales ajustadas por las horas extras | 128,4 + 9,4 * 1,5 | 142,5
-12 | FV = Factor vacaciones | 2 / 52 | 3,85%
-FDF = Factor días feriados | (9 / 365) * (87.0 / 118.1) | 1,82%
-FI = Factor incapacidades | 10% * (3 / 365) | 0,08%
-FA = Factor ausentismo | 2 / 365 | 0,55%
-JLST = Jornadas laborales semanales totales | 142,5 * (100% + 3,85% + 1,82% + 0,08% + 0,55%) | 151,4
-13 | JLCB = Jornadas laborales semanales por bus | 151,4 / 60 | 2,52
+(Así reformado el formulario 1) anterior mediante resolución N° RE-0139-JD-2019 del 20 de noviembre de 2019)
+[imagen]
+(Así reformado el formulario 2) anterior mediante resolución N° RE-0139-JD-2019 del 20 de noviembre de 2019)
+[imagen]
+(Así reformado el formulario 3) anterior mediante resolución N° RE-0139-JD-2019 del 20 de noviembre de 2019)
+[imagen]
+(Así reformado el formulario 4) anterior mediante resolución N° RE-0139-JD-2019 del 20 de noviembre de 2019)
 Volumen mensual de pasajeros:
 (Así reformado el punto 4.10 anterior mediante resolución N° RJD-060-2018 del 13 de abril de 2018)
 4.11 Procedimiento para la determinación de precios de los bienes utilizados en la estructura de costos de la metodología
@@ -1633,7 +1619,7 @@ Para el precio del litro de aceite hidráulico y de baterías nuevas, una vez en
 (Así reformala la sección 4.11.3) anterior mediante resolución N° RJD-060-2018 del 18 de abril de 2018)
 (Nota de Sinalevi: Mediante resolución N° RE-0097-IT-2019 del 27 de setiembre de 2019, se acordó actualizar el valor del precio del filtro de combustible para el reconocimiento del costo mensual del filtro de combustible en las fijaciones ordinarias de tarifas para el servicio de transporte remunerado de personas, modalidad autobús, según el siguiente detalle:
 Precio del filtro de combustible (PF)
-¢42.303,36”).
+¢42.303,36").
 4.11.5 Determinación de los precios de limpieza y lavado de vehículos y de motor
 Los precios base para cada ítem de este rubro, serán los valores adoptados del estudio técnico ejecutado, contratado o avalado por la Aresep y se actualizarán mediante indexación con el Índice de Precios al Consumidor (IPC) calculado por el Instituto Nacional de Estadística y Censos (INEC). Para este fin, se ajustarán los valores con el último índice que esté disponible a la fecha de audiencia pública de la aplicación de la metodología.
 (Así adicionada la sección 4.11.5) anterior mediante resolución N° RJD-060-2018 del 18 de abril de 2018. Notesé que no existe la sección 4.11.4))
