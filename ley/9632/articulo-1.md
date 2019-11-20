@@ -17,3 +17,4 @@ INCISO B: DETALLE DEL CÁLCULO DE LOS INGRESOS EXTRAORDINARIOS INTERNOS DEL GOBI
 (Así reformado el inciso b) anterior por el artículo 1° de la ley N° 9711 del 24 de julio de 2019)
 (Así reformado el inciso b) y c) por el artículo 1° de la ley N° 9741del 17 de setiembre de 2019)
 (Modificado el inciso b) y c) anterior por el artículo 1° del decreto ejecutivo N° 42029 del 11 de noviembre del 2019)
+(Modificado los inciso b) y c) por el artículo 1° del decreto ejecutivo N° 42060 del 20 de noviembre de 2019)
