@@ -1,0 +1,1 @@
+Artículo 19.—Del voto salvado. Los miembros de la junta podrán hacer constar en el acta su voto contrario al acuerdo adoptado y los motivos que lo justifiquen, quedando en tal caso exentos de las responsabilidades que pudieren derivarse de los acuerdos tomados por la mayoría.

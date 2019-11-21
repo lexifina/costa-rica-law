@@ -1,0 +1,1 @@
+Artículo 2°—Finalidad. La Casa de la Cultura de Puntarenas tendrá como finalidad ser un espacio para diversos sectores sociales del cantón central de Puntarenas, por medio de la organización ciudadana entorno al quehacer programático y operativo, que permita la salvaguarda del patrimonio cultural y la valorización de las nuevas expresiones culturales.

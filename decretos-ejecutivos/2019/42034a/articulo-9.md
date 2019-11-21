@@ -1,0 +1,1 @@
+Artículo 9°—Pérdida de credenciales. Cualquier miembro de la Junta Administrativa que se ausente sin causa justa, a tres sesiones ordinarias consecutivas o cinco no consecutivas en un mismo semestre, perderá su calidad y deberá ser sustituido por la Institución que lo nombró.

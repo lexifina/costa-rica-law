@@ -1,0 +1,1 @@
+Artículo 14.—De la naturaleza de las sesiones. La Junta Administrativa, sesionará privadamente, pero podrá disponer, acordándolo así por unanimidad de sus miembros presentes, la participación del público en general o particular en las sesiones convocadas. A estos participantes se les concede el derecho de participar en las deliberaciones con voz, pero sin voto.

@@ -1,0 +1,1 @@
+Artículo 17.—De la revisión de los acuerdos. Los miembros de la junta podrán interponer recurso de revisión contra cualquier acuerdo tomado. Éste será resuelto al conocerse el acta de esa sesión, a menos que, por tratarse de un asunto que el presidente juzgue urgente, prefiera conocerlo en sesión extraordinaria.

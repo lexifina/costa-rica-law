@@ -1,0 +1,4 @@
+Artículo 18.—De las actas. De cada sesión se levantará un acta, que contendrá la indicación de las personas asistentes, así como las circunstancias de lugar y tiempo en que se está celebrando. Describirá además los puntos principales de la deliberación, la forma y resultado de la votación y el contenido (lo más específico posible) de los acuerdos tomados.
+Las actas se aprobarán en la siguiente sesión ordinaria. Antes de esa aprobación carecerán de firmeza los acuerdos tomados en la respectiva sesión, a menos que dos terceras partes de los miembros presentes acuerden su firmeza.
+Las actas serán firmadas por el presidente y el secretario.
+El recurso de revisión deberá ser planteado a más tardar al discutirse el acta, recurso que deberá resolverse en la misma sesión. Las simples observaciones de forma, relativas a la redacción de los acuerdos, no serán consideradas como recursos de revisión.

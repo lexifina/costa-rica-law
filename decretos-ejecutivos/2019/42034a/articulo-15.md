@@ -1,0 +1,1 @@
+Artículo 15.—De la frecuencia de las sesiones. La Junta Administrativa de la Casa de la Cultura de Puntarenas se reunirá ordinariamente dos veces al mes y en forma extraordinaria las veces que sean necesarias.

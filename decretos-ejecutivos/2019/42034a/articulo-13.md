@@ -1,0 +1,1 @@
+Artículo 13.—Quórum. Para que la Junta pueda sesionar válidamente, su quórum deberá estar conformado por la mayoría absoluta de sus componentes. En el caso de esta Junta la mayoría absoluta la conforman tres miembros.

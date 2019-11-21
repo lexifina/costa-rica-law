@@ -1,0 +1,7 @@
+Artículo 6°—Funciones. Son funciones de la Junta Administrativa:
+a. Dictar los acuerdos y supervisar el cumplimiento de la correcta administración de los fondos que se obtengan para la sostenibilidad y desarrollo de la Casa de la Cultura de Puntarenas, que provengan del Estado, o de donaciones privadas, así como de cualesquiera otros ingresos públicos o privados, que se perciban con ese carácter o para un fin especifico.
+b. Conocer las medidas técnicas y administrativas dictadas para la conservación, salvaguarda, adquisición de bienes y mantenimiento del mobiliario y las instalaciones de la institución.
+c. Promover el interés que tiene el público en general por la Casa de la Cultura de Puntarenas, entre ellos las entidades privadas y públicas, nacionales o extranjeras, para obtener subvenciones, donaciones y contribuciones para la implementación y mejoramiento de su función.
+d. Conocer el plan anual, los informes de actividades y de ejecución presupuestaria para someterlos a conocimiento y aprobación del Ministerio de Cultura y Juventud.
+e. Establecer convenios de cooperación con otros entes públicos y privados que procuren el cuido del inmueble que alberga la Casa de la Cultura de Puntarenas y proponer al Ministerio de Cultura y Juventud, la suscripción de convenios que le permitan cumplir con los objetivos y fines aquí establecidos.
+F Nombrar a su representante ante la Junta Promotora de Turismo, de conformidad con el artículo 24, inciso e), de la Ley N° 8461 del 20 octubre 2005.

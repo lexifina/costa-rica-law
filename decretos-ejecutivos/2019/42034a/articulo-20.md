@@ -1,0 +1,1 @@
+Artículo 20.—Colaboración. El Ministerio de Cultura y Juventud, deberá colaborar con el buen desarrollo de fines y objetivos de la Casa de la Cultura de Puntarenas, por medio de la asesoría o acompañamiento de su personal técnico especializado en la promoción de actividades culturales u otras áreas, según sea acordado entre las partes.
