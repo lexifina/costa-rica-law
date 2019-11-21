@@ -1,5 +1,0 @@
-Artículo 9º—De la fecha y los horarios de los sorteos. Los sorteos de Nuevos Tiempos se realizarán de lunes a domingo, conforme al Calendario de Sorteos aprobado por la Junta Directiva y en el horario y frecuencia que esta lo determine.
-El Calendario de Sorteos para Nuevos Tiempos será publicado en los medios oficiales para conocimiento de los jugadores.
-El día, la hora o el lugar de realización de estos sorteos podrán ser modificados por la Junta, previa información al público en general por los medios que estime más adecuados. En caso de anticipar o suprimir el sorteo, la comunicación debe hacerse con al menos 2 días hábiles de anticipación a la fecha señalada para celebrar el sorteo, siempre y cuando no se hayan capturado apuestas para el caso de supresión del sorteo y en caso de posposición, la comunicación podrá hacerse con no menos de un día hábil de anticipación a la fecha original.
-Los sorteos serán fiscalizados conforme lo dispone el artículo 75 del Reglamento a la Ley de Loterías.
-(Así mediante sesión N° 05-2016 del 18 de febrero del 2016)
