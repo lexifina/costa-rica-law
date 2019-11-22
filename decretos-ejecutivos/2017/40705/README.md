@@ -14,3 +14,4 @@ Reglamento Técnico RTCR 478:2015 Productos Químicos. Productos Químicos Pelig
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-05-03 | la propia norma |
+| 2 | 2019-11-22 | Decreto Ejecutivo 42061 (2019-11-22) |
