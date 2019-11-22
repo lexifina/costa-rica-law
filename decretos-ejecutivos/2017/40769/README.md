@@ -15,3 +15,4 @@ Reglamento para el cobro de los tr√°mites de registro y control de productos qu√
 | --- | --- | --- |
 | 1 | 2018-02-16 | la propia norma |
 | 2 | 2018-09-24 | Decreto Ejecutivo 41423 (2018-09-24) |
+| 3 | 2019-11-22 | Decreto Ejecutivo 42061 (2019-11-22) |
