@@ -1,0 +1,1 @@
+Artículo 2°—Comuníquese a los señores viceministros, al Director General Administrativo y Financiero; al Gerente de la Dirección Financiera, a los directores jefes de programa y subprograma presupuestarios y demás encargados de administrar las partidas y subpartidas presupuestarias; todos del Ministerio de Seguridad Pública.
