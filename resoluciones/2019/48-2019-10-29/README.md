@@ -14,3 +14,4 @@ Denegación y cancelación del registro de los productos que contengan en su for
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-11-11 | la propia norma |
+| 2 | 2019-11-22 | Resolución 59 (2019-11-22) |

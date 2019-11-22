@@ -17,7 +17,8 @@ LA DIRECCIÓN DE MEDICAMENTOS
 VETERINARIOS, RESUELVE:
 1º—Cancelar el registro vigente de todos aquellos productos que contengan en su formulación el principio activo Colistina y sus sales.
 2º—Denegar las solicitudes de registro y renovación de registro de los productos que contengan en su formulación el principio activo Colistina y sus sales.
-3º—Prohibir la importación y fabricación de productos veterinarios que contengan en su formulación el principio activo Colistina y sus sales.
+3º—Prohibir la importación y fabricación de productos veterinarios que contengan en su formulación el principio activo Colistina y sus sales. Las exportaciones con destino a Costa Rica, de dichos productos que se encuentren en tránsito a la fecha de la publicación de la presente resolución, se podrá autorizar su ingreso al territorio nacional siempre que la fecha de salida del lugar de embarque indicada en la Guía de Embarque, sea anterior a la fecha de publicación de la resolución y cumpliendo previamente con los requisitos y autorizaciones correspondientes para su importación.
+(Así reformado el por tanto anterior mediante resolución SENASA-DMV-059-2019 del 22 de noviembre de 2019)
 4º—Otorgar a los comercializadores al por mayor y al por menor, seis (6) meses calendario para el agote de las existencias de productos que contengan como ingrediente activo Colistina o sus sales, periodo tras el cual no se permitirá más su comercialización.
 5º—Contra la presente resolución caben los recursos ordinarios de revocatoria ante esta Dirección Nacional y de apelación ante la Dirección General del Servicio Nacional de Salud Animal, dentro del término de tres días hábiles contados a partir de la notificación de la presente resolución, conforme a los términos de la Ley General de la Administración Pública.
 Publíquese en el Diario Oficial La Gaceta y en la página electrónica del SENASA. Rige a partir de su publicación.
