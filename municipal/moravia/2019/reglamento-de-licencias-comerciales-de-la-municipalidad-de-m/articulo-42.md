@@ -1,0 +1,2 @@
+Artículo 42.—La Declaración Jurada del Impuesto que deben presentar los patentados ante la Municipalidad de Moravia, quedará sujeta a las disposiciones de los artículos 122, 123, 124 y 125 del Código de Normas y Procedimientos Tributarios, así como otras leyes que regulen esta materia. Si se comprueba que los datos suministrados son incorrectos y como consecuencia de ello se determina una variación del tributo, se hará la recalificación
+correspondiente.

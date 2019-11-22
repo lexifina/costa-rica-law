@@ -1,0 +1,1 @@
+Artículo 59.—Cuando el patentado se encuentre explotando la actividad comercial ilegalmente, tal como trasladarse a otro local comercial, traspase la licencia comercial, amplié la actividad comercial o cambie la actividad autorizada sin contar con la autorización respectiva municipal, se podrá suspender temporal o permanentemente la licencia comercial.

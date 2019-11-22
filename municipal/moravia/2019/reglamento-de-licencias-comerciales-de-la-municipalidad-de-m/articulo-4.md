@@ -1,0 +1,1 @@
+Artículo 4º—El plazo máximo para resolver de una solicitud de licencia comercial es de veinte días hábiles, contados a partir de la respectiva solicitud, siempre que el interesado hubiere presentado la totalidad de requisitos legales y reglamentarios dispuestos al efecto y que no hubiere imposibilidad legal para ello.

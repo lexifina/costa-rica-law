@@ -1,0 +1,1 @@
+Artículo 8º—No se concederán licencias municipales en casas de habitación, salvo que el interesado demuestre que existe una división material del área que se destinará para comercio con respecto a la actividad residencial. Lo anterior, siempre que las regulaciones relativas a ordenamiento urbano lo permitan.

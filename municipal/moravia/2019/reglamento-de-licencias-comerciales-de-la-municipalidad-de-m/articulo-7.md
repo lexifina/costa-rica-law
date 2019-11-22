@@ -1,0 +1,1 @@
+Artículo 7º—La licencia municipal para ejercer cualquier actividad, sólo podrá ser denegada cuando esta sea contraria a la ley, el orden, la moral o las buenas costumbres, el interés público y/o cuando el o la solicitante no haya cumplido los requisitos legales y reglamentarios.

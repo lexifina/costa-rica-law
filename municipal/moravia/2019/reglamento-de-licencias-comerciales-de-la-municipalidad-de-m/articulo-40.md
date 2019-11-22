@@ -1,0 +1,1 @@
+Artículo 40.—A partir del 1 de octubre de cada año, la Municipalidad pondrá a disposición de los sujetos pasivos los formularios y la información necesaria para que puedan presentar la Declaración Jurada del Impuesto de Patente. La declaración deberá presentarse en tiempo y forma por los medios oficiales aprobados por el ayuntamiento.

@@ -1,0 +1,1 @@
+Artículo 2º—Todas las actividades que se desarrollen con fines lucrativos dentro del cantón de Moravia, aún y cuando su domicilio fiscal se encuentre en otro cantón, deberán obtener la licencia respectiva y pagar el impuesto correspondiente, siempre que el hecho generador del impuesto sea realizado dentro del Cantón de Moravia.

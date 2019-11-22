@@ -1,0 +1,1 @@
+Artículo 23.—Para el caso del otorgamiento de licencias comerciales ocasionales para Ferias de venta de productos, servicios, empleo, salud y científicas, la parte legitimada deberá aportar el formulario establecido para el trámite debidamente lleno.

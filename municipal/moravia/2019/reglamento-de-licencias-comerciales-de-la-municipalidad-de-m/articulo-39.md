@@ -1,0 +1,1 @@
+Artículo 39.—Los contribuyentes del Régimen de Tributación Simplificado deberán presentar copia de las declaraciones juradas trimestrales correspondientes al período fiscal, debidamente selladas o recibidas mediante medio idóneo por la Dirección General de Tributación. El plazo máximo para su presentación será el fijado por la normativa legal vigente.

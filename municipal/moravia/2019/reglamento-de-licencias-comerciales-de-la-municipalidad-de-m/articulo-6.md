@@ -1,0 +1,1 @@
+Artículo 6º—La actividad que el patentado desarrollará será únicamente la que la Municipalidad de Moravia le ha autorizado mediante la licencia otorgada y solamente deberá ser utilizada en el lugar autorizado al efecto.

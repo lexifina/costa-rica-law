@@ -1,0 +1,5 @@
+CAPÍTULO VI
+SECCIÓN I
+Del procedimiento de cierre de negocios
+o suspensión de actividades
+Artículo 58.—La licencia para el desarrollo de una actividad lucrativa que haya sido otorgada por la Municipalidad de Moravia, podrá suspenderse cuando el pago del impuesto se encuentre atrasado por dos trimestres o más. Previo a la suspensión de la licencia, se deberá apercibir en dos ocasiones al patentado, de manera que en la primera y segunda prevención se otorgará un plazo de cinco días hábiles para que se haga efectivo pago. Vencidos los términos antes indicados y no habiéndose pagado la deuda, se procederá a la suspensión de la licencia y al cierre del local, colocándose sellos oficiales en los accesos del negocio.

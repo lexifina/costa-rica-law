@@ -1,0 +1,1 @@
+Artículo 12.—Será obligación formal de los patentados mantener actualizados ante la Municipalidad sus datos de identificación y notificación, preferiblemente un medio electrónico para recibir comunicaciones. En caso de que no fuere posible efectuar notificación al medio señalado, cualquier comunicación quedará notificada con el transcurso de 24 horas después de dictada.

@@ -1,0 +1,1 @@
+Artículo 16.—La autorización final de la actividad solicitada será otorgada por la Jefatura del Departamento de Patentes, lo que se hará constar mediante la firma en el certificado correspondiente, previo a ello, esa misma Jefatura deberá emitir una resolución debidamente motivada en torno al cumplimiento de todos los requisitos por parte del solicitante.

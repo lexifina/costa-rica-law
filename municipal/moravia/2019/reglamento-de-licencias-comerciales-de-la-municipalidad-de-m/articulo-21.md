@@ -1,0 +1,1 @@
+Artículo 21.—Para el caso del otorgamiento de licencias comerciales ocasionales para Fiestas cívicas, patronales, turnos y ferias, la parte legitimada deberá aportar el formulario establecido para el trámite debidamente lleno.

@@ -1,0 +1,1 @@
+Artículo 25.—Para el caso del otorgamiento de licencias comerciales ocasionales para Ventas Navideñas (Artículos navideños, venta de peras, manzanas, uvas y venta de pólvora) la parte legitimada deberá aportar el formulario establecido para el trámite debidamente lleno.
