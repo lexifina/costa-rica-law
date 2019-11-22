@@ -1,0 +1,1 @@
+Transitorio I: Para el caso de los incisos arancelarios incluidos en numeral 2 “Ámbito de Aplicación”, el MEIC contará con un plazo de 6 meses posterior a la entrada en vigencia del presente reglamento, para coordinar con la Dirección General de Aduanas del Ministerio de Hacienda, el mecanismo por medio del cual se hará la implementación de las notas técnicas.
