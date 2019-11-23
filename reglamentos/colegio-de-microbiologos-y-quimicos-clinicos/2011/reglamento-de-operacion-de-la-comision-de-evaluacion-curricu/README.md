@@ -17,3 +17,4 @@ Reglamento de Operación de la Comisión de Evaluación Curricular
 | 2 | 2015-08-05 | Reglamento 0 (2015-08-05) |
 | 3 | 2016-10-01 | Reglamento 3 (2016-10-01) |
 | 4 | 2017-04-22 | Reglamento 1 (2017-04-22) |
+| 5 | 2019-11-23 | Reglamento 2 (2019-11-23) |
