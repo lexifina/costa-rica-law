@@ -11,7 +11,8 @@ Artículo 6º—Son atribuciones del CARAO en materia de Acreditación y Recerti
 6.7. Dictar la periodicidad de las reuniones ordinarias y extraordinarias del CARAO.
 6.8. Sugerir a la Junta Directiva la creación de alianzas con Colegios Profesionales u homólogos -tanto a nivel nacional como internacional- en materia de recertificación y acreditación.
 6.9. Elaborar el proyecto de presupuesto propio a su gestión y presentarlo a la Junta Directiva para su aprobación.
-6.10. Cobrar una cuota del 5% porcentual del ingreso total por inscripciones o la exoneración de pago, de cada actividad registrada por un ente proveedor. Dicho monto será depositado en la cuenta que para este fin designe el Departamento de Contabilidad del CCDCR y será utilizado para el fortalecimiento de la educación continua del gremio.
+6.10. Cobrar una cuota del 2% porcentual del ingreso total por inscripciones o la Exoneración de pago, de cada actividad registrada por un ente proveedor. Dicho monto será depositado en la cuenta que para este fin designe el Departamento de Contabilidad del CCDCR y será utilizado para el fortalecimiento de la educación continua del gremio”.
+(Así reformado el inciso anterior mediante sesión N° 087 del 24 de noviembre de 2019)
 6.11. Nombrar pares externos para evaluar las actividades de recertificación profesional.
 6.12. Normar y fiscalizar los procesos de divulgación de los cursos en proceso de acreditación difundidos por los proveedores de
 educación continua.

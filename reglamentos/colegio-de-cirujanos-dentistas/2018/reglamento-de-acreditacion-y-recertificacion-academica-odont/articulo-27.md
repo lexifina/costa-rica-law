@@ -1,7 +1,6 @@
 CAPÍTULO X
 Creditaje y tiempo del Programa de Recertificación
-Artículo 27.—Para considerar la Recertificación Profesional, el participante cumplirá con un total de 5 créditos en un período de un año. El periodo de recertificación será anual, de acuerdo con las siguientes disposiciones:
-[imagen] [imagen]
+Artículo 27.—
+Para considerar la Recertificación profesional, el participante cumplirá con un total de 15 créditos en un periodo de un año. El periodo de recertificación será anual.
 [imagen]
-[imagen]
-[imagen]
+(Así reformado mediante sesión N° 087 del 24 de noviembre del 2019)

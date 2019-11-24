@@ -14,3 +14,4 @@ Reglamento de acreditación y recertificación académica odontología
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-12-21 | la propia norma |
+| 2 | 2019-11-24 | Reglamento 87 (2019-11-24) |
