@@ -1,0 +1,1 @@
+Artículo 2º.— Modifícase el artículo 2º de la Ley No. 9632, Ley de Presupuesto Ordinario y Extraordinario de la República para el Ejercicio Económico del 2019 y sus reformas antes citada, con el fin de realizar el traslado de partidas en los órganos del Gobierno de la República incluidos en el presente decreto.
