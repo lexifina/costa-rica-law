@@ -14,3 +14,4 @@ Reglamento sobre la Distribución de Utilidades por la Venta de Bienes Adjudicad
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-12-29 | la propia norma |
+| 2 | 2019-11-25 | Reglamento 1545 (2019-11-25) |
