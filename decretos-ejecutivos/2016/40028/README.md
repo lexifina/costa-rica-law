@@ -15,3 +15,4 @@ Reglamento de Carrera Policial de Grados Policiales y Sistemas de Ascensos de lo
 | --- | --- | --- |
 | 1 | 2016-12-09 | la propia norma |
 | 2 | 2018-05-24 | Ley 9552 |
+| 3 | 2019-11-25 | Decreto Ejecutivo 42180 (2019-11-25) |
