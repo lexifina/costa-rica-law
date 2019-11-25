@@ -33,3 +33,4 @@ Reglamento sobre la Suficiencia Patrimonial de Entidades Financieras
 | 18 | 2017-06-14 | Reglamento 1340 (2017-06-14) |
 | 19 | 2018-05-15 | Reglamento 1416 (2018-05-15) |
 | 20 | 2019-05-20 | Reglamento 1501 (2019-05-20) |
+| 21 | 2019-11-25 | Reglamento 1545 (2019-11-25) |
