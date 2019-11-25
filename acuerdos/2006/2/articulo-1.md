@@ -37,6 +37,7 @@ Q 1 = cantidad de participantes o acciones (instrumento de capital) o valor faci
 ME
 P I = precio de la emisión I en moneda extranjera.
 TC = tipo de cambio de referencia para la compra según el Banco Central de Costa Rica (*) para la fecha de corte, del colón con respecto a la moneda extranjera en la cual está denominada la emisión I.
+(Nota de Sinalevi: Mediante sesión N° 1545-2019 del 25 de noviembre del 2019 se reforma la referencia al tipo de cambio compra de referencia del BCCR para reexpresar los importes en moneda extranjera, para que se lea: “tipo de cambio indicado en el Reglamento de Información Financiera”. )
 Nota: Para calcular el tipo de cambio del colón con respecto a una moneda extranjera diferente al dólar estadounidense, se debe multiplicar el tipo de cambio de referencia para la compra del dólar estadounidense con el tipo de cambio del dólar estadounidense con respecto a la moneda extranjera en la cual está denominada la emisión I según el Banco Central de Costa Rica, todo para la fecha de corte. La unidad de Desarrollo debe tratarse como moneda extranjera para efectos de este cálculo.
 2. Identificar la serie de precios para cada emisión que conforma la cartera de inversiones. Cuando una emisión no cuenta con una serie de precios completa para las 521 observaciones, se debe completar la serie con el primer precio de la serie.
 3. Calcular la variación relativa a 21 días para cada emisión según la siguiente fórmula:
