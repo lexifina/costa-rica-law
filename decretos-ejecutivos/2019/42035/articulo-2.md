@@ -1,0 +1,1 @@
+Artículo 2º—Se concede autorización a todas las personas funcionarias de la Administración Central, para que participen el día 25 de noviembre del 2019 a partir de las 08:30 y hasta las 13:00, en las actividades de conmemoración del Día Nacional e Internacional de la No Violencia contra las Mujeres. Lo anterior, sin detrimento de la continuidad en la presentación de servicios.
