@@ -14,3 +14,4 @@ Reglamento sobre Gestión y Evaluación del Riesgo de Crédito para el Sistema d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-09-15 | la propia norma |
+| 2 | 2019-11-25 | Reglamento 1545 (2019-11-25) |

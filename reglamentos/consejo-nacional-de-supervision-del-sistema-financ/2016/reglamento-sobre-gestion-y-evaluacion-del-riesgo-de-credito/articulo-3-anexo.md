@@ -50,6 +50,9 @@ Cuando exista tanto una calificación de riesgo para un instrumento financiero e
 La categoría de riesgo 1, tanto de la cartera de microcrédito como la de banca de desarrollo y la de banca de segundo piso, estarán sujetas a una estimación genérica de 0.25% para el caso de créditos denominados en moneda nacional y en moneda extranjera colocados en deudores generadores de divisas; y de 0.50% para el caso de créditos denominados en moneda extranjera colocados en deudores no generadores de divisas.
 Mediante Lineamientos Generales a este Reglamento, la SUGEF establecerá la definición de deudores no generadores de divisas.
 El monto de la estimación genérica se calcula multiplicando los porcentajes de estimación indicados, por la exposición en caso de incumplimiento, sin considerar los efectos de mitigación por riesgo de crédito.
+(Nota de Sinalevi: Mediante sesión N° 1752-2022 del 29 de agosto del 2022 se reforma el punto anterior. De conformidad con lo establecido en la indicada norma la misma empieza a regir a partir del 1° de enero del 2024 por lo que a partir de esa fecha el texto de dicho punto será el siguiente: “ 3. Cálculo de estimaciones genéricas
+La categoría de riesgo 1, tanto de la cartera de microcrédito como la de banca de desarrollo y la de banca de segundo piso, estarán sujetas a una estimación genérica de 0.25%.
+El monto de la estimación genérica se calcula multiplicando los porcentajes de estimación indicados, por la exposición en caso de incumplimiento, sin considerar los efectos de mitigación por riesgo de crédito.")
 4. Cálculo de estimaciones específicas.
 Las categorías de riesgo 2 a 6, tanto de la cartera de microcrédito como la de banca de desarrollo y la de banca de segundo piso, estarán sujetas a estimaciones específicas, según los porcentajes indicados en la tabla siguiente:
 Categoría de riesgo | Porcentaje de Estimación Específica (sobre la exposición descubierta)
@@ -160,6 +163,7 @@ Adicionalmente, el uso de estos avales como mitigadores de riesgo de crédito, e
 a) Los recursos asignados al Fondo y las inversiones que los respaldan deben mantenerse en forma separada de cualquier otro tipo de recursos, y el Fondo debe mantener registros separados e información contable y financiera propia.
 b) Las inversiones que respaldan los Fondos deben estar valoradas a precios de mercado.
 c) Las inversiones en moneda extranjera que respaldan los Fondos deben actualizarse al tipo de cambio de cierre del colón con respecto al dólar, utilizando el tipo de cambio de compra de cierre comunicado por el BCCR (*).
+(Nota de Sinalevi: Mediante sesión N° 1545-2019 del 25 de noviembre del 2019 se reforma la referencia al tipo de cambio compra de referencia del BCCR para reexpresar los importes en moneda extranjera, para que se lea: “tipo de cambio indicado en el Reglamento de Información Financiera”. )
 d) Los avales y garantías deben ser irrevocables e incondicionales.
 El cumplimiento de cada una de las condiciones indicadas en esta nota deberá ser certificado trimestralmente, con corte al 31 de marzo, 30 de junio, 30 de setiembre y 31 de diciembre, por un Contador Público Autorizado. La Secretaría Técnica del Consejo Rector deberá mantener esta certificación accesible al público, dentro de los siete días hábiles posteriores al cierre de cada trimestre.
 2/ Persona jurídica del país o del exterior, incluyendo entidades financieras, aseguradoras, Fondos especializados de avales o garantías, y otros proveedores de protección crediticia.
