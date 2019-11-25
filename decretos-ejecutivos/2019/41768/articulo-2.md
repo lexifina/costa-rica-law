@@ -1,0 +1,1 @@
+Artículo 2.- La administración y protección del Parque Nacional Volcán Miravalles – Jorge Manuel Dengo y la Zona Protectora Miravalles corresponderá al Ministerio de Ambiente y Energía, a través del Sistema Nacional de Áreas de Conservación, específicamente al Área de Conservación Arenal Tempisque.
