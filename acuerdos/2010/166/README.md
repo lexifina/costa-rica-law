@@ -14,3 +14,4 @@ Instrucciones para el Reglamento de Gestión de Riesgos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-04-05 | la propia norma |
+| 2 | 2019-11-25 | Reglamento 1545 (2019-11-25) |
