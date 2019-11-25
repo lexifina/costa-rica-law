@@ -25,3 +25,4 @@ Reglamento de Gestión de Riesgos
 | 10 | 2018-06-25 | Reglamento 1426 (2018-06-25) |
 | 11 | 2019-03-05 | Reglamento 1486 (2019-03-05) |
 | 12 | 2019-03-05 | Reglamento 1485 (2019-03-05) |
+| 13 | 2019-11-25 | Reglamento 1545 (2019-11-25) |
