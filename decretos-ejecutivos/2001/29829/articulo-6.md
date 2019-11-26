@@ -1,1 +1,0 @@
-Artículo 6º—Autorización Expresa. Queda autorizado el CONOCETE a solicitar apoyo técnico y financiero a los a las instituciones públicas y privadas y a los gobiernos amigos y organismos internacionales que estén interesados en la materia de normalización y certificación de competencias laborales.
