@@ -1,1 +1,0 @@
-Artículo 86. —Derogatorias. El presente reglamento deroga totalmente al Reglamento para la Prestación de los Servicios del Instituto Costarricense de Acueductos y Alcantarillados, publicado en La Gaceta N° 77 del 22 de abril de 2015 y su reforma publicada en la Gaceta N° 106 del 02 de junio del 2016, así como cualquier otro acuerdo o directriz de AyA, que se le oponga.

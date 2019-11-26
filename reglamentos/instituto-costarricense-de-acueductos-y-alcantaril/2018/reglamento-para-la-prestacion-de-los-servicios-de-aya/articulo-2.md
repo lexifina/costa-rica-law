@@ -1,1 +1,0 @@
-Artículo 2º—Ámbito de aplicación. Este Reglamento es aplicable a los servicios públicos de abastecimiento de agua para uso poblacional y saneamiento de aguas residuales en cuanto a la disponibilidad y prestación efectiva de los servicios.

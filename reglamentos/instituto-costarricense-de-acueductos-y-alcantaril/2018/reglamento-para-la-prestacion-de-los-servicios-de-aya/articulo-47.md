@@ -1,3 +1,0 @@
-Artículo 47. —De otros trámites que el usuario puede gestionar ante AyA. El usuario podrá gestionar ante las Plataformas de Servicio de AyA, otros trámites además de los ya previstos en este reglamento, tales como: certificaciones, constancias, estados de cuentas, historiales de pago, entre otros; para los cuales la Institución contará con un plazo de resolución es de 10 días hábiles desde la fecha en que fue presentada la solicitud.
-Para los cambios de nombre de su cuenta, cambio de clase, cobro por unidades de consumo, estudio por altos consumos, la Institución contará con un plazo de resolución es de 20 días hábiles desde la fecha en que fue presentada la solicitud.
-Lo anterior conforme a las regulaciones del presente reglamento y sus procedimientos.

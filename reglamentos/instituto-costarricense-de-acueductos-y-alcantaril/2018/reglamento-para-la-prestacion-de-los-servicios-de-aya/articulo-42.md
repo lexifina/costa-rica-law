@@ -1,1 +1,0 @@
-Artículo 42. —De la construcción del sifón sanitario. Para el caso del sistema de alcantarillado sanitario es responsabilidad del usuario la construcción y el debido mantenimiento del sifón sanitario, según las especificaciones técnicas de AyA. En los casos donde exista caja de registro, el mantenimiento es responsabilidad del usuario.

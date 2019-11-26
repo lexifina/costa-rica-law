@@ -1,1 +1,0 @@
-Artículo 51. —De la facturación del servicio para proyectos de desarrollos urbanísticos. El servicio será facturado en forma mensual y en tarifa empresarial en la etapa de construcción. Hasta tanto se cuente con la aprobación y/o recepción formal de la obra por parte del AyA, la tarifa será recalificada según corresponda, en un plazo de 10 días hábiles.
