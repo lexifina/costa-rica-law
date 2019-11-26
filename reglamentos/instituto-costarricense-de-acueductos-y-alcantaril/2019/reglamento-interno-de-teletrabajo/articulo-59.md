@@ -1,0 +1,1 @@
+Artículo 59.—Instalación y mantenimiento de medios telemáticos: La Dirección Sistemas de Información de AyA es la responsable de la instalación y el mantenimiento oportuno de los enlaces telemáticos requeridos para realizar las labores de teletrabajo.

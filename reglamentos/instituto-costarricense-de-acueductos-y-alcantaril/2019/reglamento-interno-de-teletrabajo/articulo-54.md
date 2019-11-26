@@ -1,0 +1,1 @@
+Artículo 54.—Requerimientos y características tecnológicas del equipo de cómputo y comunicación: Será responsabilidad de la Dirección Sistemas de Información de AyA, establecer anualmente los parámetros de los requerimientos y características mínimas del equipo de cómputo y comunicación (banda de acceso a internet),

@@ -1,0 +1,1 @@
+Artículo 48.—Solicitud de recisión contractual de la adenda: Informar y solicitar a la Dirección de Gestión Capital Humano la recisión contractual de la adenda al Contrato de prestación de servicios bajo la modalidad de teletrabajo en el caso que no cumpla con las condiciones establecidas.

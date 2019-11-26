@@ -1,0 +1,1 @@
+Artículo 9º—Selección de teletrabajadores: AyA se reserva la facultad de incorporar o no a sus funcionarios en esta modalidad de trabajo, dependiendo de las funciones que desempeñen y de los requisitos establecidos en el presente Reglamento, según el análisis técnico de la Comisión Institucional de Teletrabajo.

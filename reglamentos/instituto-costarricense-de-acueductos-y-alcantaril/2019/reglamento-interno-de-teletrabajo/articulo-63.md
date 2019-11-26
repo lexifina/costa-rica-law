@@ -1,0 +1,1 @@
+Artículo 63.—Informes estadísticos: La Dirección de Gestión Capital Humano será responsable de elaborar los informes estadísticos y de ejecución de la gestión de teletrabajo, actividad que presentará de forma semestral para su presentación por parte de la Dirección ante la Comisión Interinstitucional de Teletrabajo de AyA.
