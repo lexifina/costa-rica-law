@@ -1,0 +1,1 @@
+Artículo 13.—Los Planes y Programas de Capacitación deberán ejecutarse según el Plan Anual Operativo de cada departamento o sección, o bien, cuando así lo disponga la Alcaldía Municipal, Departamento de Recursos Humanos o personas que ocupan puestos de Dirección de área.

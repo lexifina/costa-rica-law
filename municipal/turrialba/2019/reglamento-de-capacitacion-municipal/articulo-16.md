@@ -1,0 +1,1 @@
+Artículo 16.—El seguimiento de los planes y programas de capacitación será uno de los mecanismos o instrumentos necesarios que implementará el Departamento de Recursos Humanos, para actualizar y registrar los resultados obtenidos.

@@ -1,0 +1,1 @@
+Artículo 30.—El Departamento de Recursos Humanos deberá cumplir con el Plan Anual de Capacitación; las capacitaciones que no estén comprendidas dentro de dicho plan, deberán ser previamente autorizadas por la Alcaldía Municipal.

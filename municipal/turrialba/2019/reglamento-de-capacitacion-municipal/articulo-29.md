@@ -1,0 +1,1 @@
+Artículo 29.—El Departamento de Recursos Humanos en coordinación con la Alcaldía Municipal, deberá comunicar al personal municipal, la realización de los eventos de capacitación programados, así como que ofrezcan condiciones para acceder a estos.

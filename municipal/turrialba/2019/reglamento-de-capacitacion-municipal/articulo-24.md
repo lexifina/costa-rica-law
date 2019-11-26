@@ -1,0 +1,1 @@
+Artículo 24.—El personal que asista a un proceso de capacitación, deberá entregar con una semana de anticipación al evento, los temas y actividades por desarrollar al Departamento de Recursos Humanos para su respectivo análisis. Así como posteriormente de haberla recibido deberá brindar un informe sobre lo desarrollado en ella, esto dentro del plazo citado en este artículo.

@@ -1,0 +1,1 @@
+Artículo 6º—Las capacitaciones que se brinden al personal municipal, deben estar orientadas a complementar y perfeccionar las competencias de todo el personal municipal, según las exigencias de perfiles de puesto de acuerdo con las necesidades y objetivos de la institución.

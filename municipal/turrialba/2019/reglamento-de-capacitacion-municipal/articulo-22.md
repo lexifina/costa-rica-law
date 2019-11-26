@@ -1,0 +1,1 @@
+Artículo 22.—En los siguientes tres días hábiles de haber obtenido el certificado o título, el personal municipal que recibió la capacitación deberá presentar el original y una copia al Departamento de Recursos Humanos.
