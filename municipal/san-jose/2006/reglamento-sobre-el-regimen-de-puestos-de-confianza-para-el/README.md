@@ -17,3 +17,4 @@ Reglamento sobre el Régimen de Puestos de Confianza para el Concejo Municipal d
 | 2 | 2015-01-13 | Reglamento municipal 246 (2015-01-13) |
 | 3 | 2015-02-23 | Reglamento municipal 122 (2015-02-23) |
 | 4 | 2016-04-12 | Reglamento municipal 311 (2016-04-12) |
+| 5 | 2019-11-26 | Reglamento municipal 187 (2019-11-26) |
