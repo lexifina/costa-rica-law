@@ -1,4 +1,5 @@
 BANCO DE COSTA RICA
+(Nota de Sinalevi: El texto de esta norma fue reformado parcialmente y reproducido su texto en forma íntegra en sesión N° 31 del 16 de julio de 2019, y publicado en el Alcance Digital N° 230 a La Gaceta N° 200 del 22 de octubre de 2019. Posteriormente en sesión N° 54 del 26 de noviembre del 2019, se acordó dejar sin efecto las reformas introducidas a esta norma en sesión N° 31 del 16 de julio de 2019 y publicado en el Alcance N° 230 a La Gaceta N° 200, del martes 22 de octubre del 2019. Dado lo anterior el texto que se muestra es el publicado antes de las reformas dejadas sin efecto en sesión N° 31 del 16 de julio de 2019)
 REGLAMENTO DE SERVICIOS LEGALES
 PARA EL COBRO JUDICIAL
 Propósito
@@ -25,7 +26,6 @@ Abogado externo: profesional en Derecho contratado por el Banco para la prestaci
 Abogado de cobro institucional: servidor del Banco nombrado en propiedad, al cual por su perfil profesional en Derecho, se le encarga la dirección de la ejecución de garantías en sede judicial como parte de sus obligaciones laborales, sin cobro de honorario alguno
 CSO: Centro de Soporte Operativo.
 Ejecución de garantías: sinónimo de proceso cobratorio en sede judicial.
-(Nota de Sinalevi: El texto de esta norma fue reformado parcialmente y reproducido su texto en forma íntegra en sesión N° 31 del 16 de julio de 2019, y publicado en el Alcance Digital N° 230 a La gaceta N° 200 del 22 de octubre de 2019, y se transcribe a continuación:)
-Capítulo I
+CAPÍTULO I
 Contratación de Abogados
-Artículo 1 - Contratación. La contratación de abogados externos se regirá por los procedimientos ordinarios establecidos en la Ley de Contratación Administrativa y su Reglamento, así como por los principios constitucionales en materia de contratación administrativa y la jurisprudencia relacionada.
+Artículo 1º-Contratación. La contratación de abogados externos se regirá por los procedimientos ordinarios establecidos en la Ley de Contratación Administrativa y su Reglamento, así como por los principios constitucionales en materia de contratación administrativa y la jurisprudencia relacionada.
