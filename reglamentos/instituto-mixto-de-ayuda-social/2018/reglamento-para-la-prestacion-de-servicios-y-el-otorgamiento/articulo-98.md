@@ -12,7 +12,6 @@ g) Copia fiel del acta o transcripción del acuerdo del órgano superior del suj
 h) Constancia emitida por el sujeto acreedor, que demuestra que el sujeto de Derecho Privado se encuentra al día con los pagos, en casos de inmuebles que se encuentren gravados con hipoteca.
 i) En casos de adjudicaciones aportar; constancia o documento autorizante del sujeto público que corresponda.
 j) Constancia del sujeto público en caso de adjudicaciones y en caso de terrenos inalienable.
-k) Que el inmueble donde se va a ejecutar el proyecto, se encuentre inscrito a nombre del sujeto de Derecho Público o Privado, o convenio de comodato para uso del inmueble, entre el sujeto privado y el ente público propietario, cuya vigencia sea igual o mayor a 25 años, si el inmueble no pertenece a la organización que desarrolla el proyecto. En caso de proyectos a ejecutar en terrenos públicos, se deberá contar con autorización del ente competente.
-l) Nota de la organización, en que se especifique la forma en que se administrará, mantendrá y se le dará sostenibilidad al proyecto construido con fondos IMAS.
-m) Documento de recomendación técnica del proyecto, emitido por una persona profesional afín, aprobado por el ente competente en la materia, según corresponda.
-n) Certificado de Uso de Suelo, extendido por la municipalidad respectiva.
+k) Nota de la organización, en que se especifique la forma en que se administrará, mantendrá y se le dará sostenibilidad al proyecto construido con fondos IMAS.
+l) Documento de recomendación técnica del proyecto, emitido por una persona profesional afín, aprobado por el ente competente en la materia, según corresponda.
+(Así reformado mediante acuerdo N° 522-11 de la sesión N° 75-11-2019)

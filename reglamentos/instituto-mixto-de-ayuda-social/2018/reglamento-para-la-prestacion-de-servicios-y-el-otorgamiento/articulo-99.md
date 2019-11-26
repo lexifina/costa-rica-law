@@ -1,7 +1,6 @@
-Artículo 99: Requisitos específicos del beneficio de Infraestructura Comunal para
-sujetos privados: Las organizaciones privadas solicitantes deberán presentar los
-siguientes requisitos específicos:
-a) Nota de compromiso de la persona profesional afín a la naturaleza del proyecto, donde indique que será la responsable técnica del diseño y la inspección de la obra. Dicha persona profesional deberá estar activa en el colegio profesional respectivo. O bien, copia del contrato de consultoría aprobado por el Colegio Federado de Ingenieros y Arquitectos de Costa Rica.
+Artículo 99: Requisitos específicos del beneficio de Infraestructura Comunal para sujetos privados: Las organizaciones privadas solicitantes deberán presentar los siguientes requisitos específicos:
+a) Nota de compromiso de la persona profesional afín a la naturaleza del proyecto, donde indique que será la responsable técnica del diseño y la inspección de la obra.
+Dicha persona profesional deberá estar activa en el colegio profesional respectivo. O bien, copia del contrato de consultoría aprobado por el Colegio Federado de Ingenieros y Arquitectos de Costa Rica.
 b) Plano de catastro del terreno en que se construirá.
 c) Planos de construcción aprobados por el Colegio Federado de Ingenieros y Arquitectos y por el ente competente que deba prestar el servicio en casos excepcionales de proyectos de electrificación, acueductos, acceso y otros
 d) Permiso de construcción otorgado por la municipalidad correspondiente.
@@ -16,3 +15,6 @@ l) Documento en el que un profesional afín del Colegios Federado de Ingenieros 
 m) Nota emitida por la entidad competente, que garantice que el inmueble cuenta con disponibilidad de servicio de agua potable, cuando corresponda
 n) Nota emitida por la entidad competente, que garantice la disponibilidad del servicio de electricidad, cuando corresponda.
 o) Documento de la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias, que indique si existen o no riesgos, amenazas o afectaciones, identificadas en el terreno, que limiten o restrinjan la construcción de determinadas edificaciones.
+p) Que el inmueble donde se va a ejecutar el proyecto se encuentre inscrito a nombre del sujeto de Derecho Privado. En caso de proyectos a ejecutar en terrenos públicos, se deberá contar con autorización del ente competente.
+q) Certificado de uso de suelo extendido por la Municipalidad respectiva, cuando la naturaleza del proyecto así lo requiera.
+(Así reformado mediante acuerdo N° 522-11 de la sesión N° 75-11-2019)

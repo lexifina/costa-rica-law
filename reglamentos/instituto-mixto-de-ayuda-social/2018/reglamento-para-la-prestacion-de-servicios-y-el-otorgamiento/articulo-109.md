@@ -11,8 +11,11 @@ h) Factura proforma de los bienes o servicios por adquirir a nombre de la organi
 i) Aportar certificación literal de las servidumbres inscritas a nombre del sujeto privado cuando se trate de proyectos de acueductos y/o electrificación.
 j) Oficio de aporte complementario de materiales, mano de obra e imprevistos, en casa de que existan aportes de otras instituciones, se deberá presentar la certificación correspondiente.
 k) Convenio de comodato con una vigencia mínima de veinticinco años, si la organización no es la propietaria del inmueble y éste pertenezca a una entidad pública.
-l) Documento en el que un profesional afín del Colegios Federado de Ingenieros y Arquitectos, avale la capacidad estructural y funcional del edificio, en caso de remodelaciones o mejoras.
+l) Documento en el que un profesional afín del Colegios Federado de Ingenieros y Arquitectos avale la capacidad estructural y funcional del edificio, en caso de remodelaciones o mejoras.
 m) Constancia que demuestra que el inmueble, donde se desarrollará el proyecto se encuentra al día con los pagos, en casos de inmuebles que se encuentren gravados con hipoteca.
 n) Nota emitida por la entidad competente, que garantice que el inmueble cuenta con disponibilidad de servicio de agua potable, cuando corresponda
 o) Nota emitida por la entidad competente, que garantice la disponibilidad del servicio de electricidad, cuando corresponda.
 p) Documento de la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias, que indique si existen o no riesgos, amenazas o afectaciones, identificadas en el terreno, que limiten o restrinjan la construcción de determinadas edificaciones.
+q) Que el inmueble donde se va a ejecutar el proyecto se encuentre inscrito a nombre del sujeto de Derecho Público, o convenio de comodato para uso del inmueble, entre el propietario registral del inmueble y el ente público, cuya vigencia sea igual o mayor a 25 años. En caso de proyectos a ejecutar en terrenos demaniales, se deberá contar con autorización del ente competente.
+r) Certificado de uso de suelo extendido por la Municipalidad respectiva, cuando la naturaleza del proyecto así lo requiera.
+(Así reformado mediante acuerdo N° 522-11 de la sesión N° 75-11-2019)
