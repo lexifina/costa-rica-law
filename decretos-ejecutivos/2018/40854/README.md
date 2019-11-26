@@ -14,3 +14,4 @@ Conformación del Consejo Nacional de Salarios para el período 2018-2021
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-01-23 | la propia norma |
+| 2 | 2019-11-26 | Decreto Ejecutivo 42100 (2019-11-26) |
