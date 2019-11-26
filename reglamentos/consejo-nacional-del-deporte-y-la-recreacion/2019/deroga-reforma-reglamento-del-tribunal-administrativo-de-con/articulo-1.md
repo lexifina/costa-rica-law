@@ -1,0 +1,2 @@
+CONSEJO NACIONAL DEL DEPORTE Y LA RECREACIÓN
+El Consejo Nacional del Deporte y la Recreación en la sesión ordinaria 1107-2019, celebrada el 07 de noviembre del 2019, mediante Acuerdo N° 16 acordó derogar el Acuerdo N° 4 de la sesión ordinaria 1103-2019, celebrada por este órgano colegiado el 17 de octubre de 2019, referente a modificación del Artículo N°4 del Reglamento del Tribunal Administrativo de Conflictos Deportivos (TRIACODE), publicado el miércoles 06 de noviembre del 2019 en La Gaceta N° 211.
