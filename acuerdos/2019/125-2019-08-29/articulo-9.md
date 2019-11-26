@@ -1,0 +1,1 @@
+Artículo 9º—En el Plan Estratégico Institucional, se incluirán e implementarán acciones afirmativas o medidas de corrección que se requieran con el fin de asegurar la eliminación de las desigualdades que enfrentan los usuarios y funcionarios con discapacidad.

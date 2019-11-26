@@ -1,0 +1,4 @@
+Artículo 3º— La presente política parte de tres enfoques fundamentales:
+a. Legislación nacional armonizada con los tratados internacionales ratificados por el Estado costarricense, especialmente la Convención sobre los Derechos de las Personas con Discapacidad, de las Naciones Unidas, que tiene rango supra-legal e incluso supra constitucional cuando versa sobre Derechos Humanos, en arreglo a lo que establece el artículo 7 de la Constitución Política.
+b. Políticas inclusivas en materia de seguridad ciudadana basadas en la participación de las Personas con Discapacidad.
+c. Gerencia Social por resultados y que responda a la necesidad de lograr una institución inclusiva y respetuosa de los derechos para toda la población, en la cual las Personas con Discapacidad no encuentren barreras para su participación en la vida política y pública.

@@ -1,0 +1,1 @@
+Artículo 5º— Todas las instancias policiales y administrativas; en general todo el personal del Ministerio de Seguridad Pública, será responsable de promover la inclusión de la presente política en los procedimientos y labores diarias, dentro de su ámbito.

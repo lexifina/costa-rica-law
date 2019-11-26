@@ -1,0 +1,1 @@
+Artículo 10º—La perspectiva de derechos de las personas con discapacidad y el principio de no discriminación por razones de discapacidad, deberán ser transversales en todos los servicios ministeriales tanto a usuarios internos como externos.

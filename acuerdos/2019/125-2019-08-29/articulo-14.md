@@ -1,0 +1,1 @@
+Artículo 14º—Se trabajará para garantizar que el entorno, los bienes, los servicios y las instalaciones de atención al público interno y externo, relacionado con los servicios ministeriales, sean accesibles a las personas con discapacidad, para que los usen y disfruten, en igualdad de condiciones con los demás.

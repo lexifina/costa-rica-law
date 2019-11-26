@@ -1,0 +1,1 @@
+Artículo 7º—El Ministerio de Seguridad Pública desarrollará todas las medidas de carácter administrativo, normativo, procedimental y operativo que sean necesarios, con el fin de garantizar la integración y aplicación de esta política en los distintos ámbitos del Ministerio y así se ha de establecer en el Plan Operativo Institucional del Ministerio de Seguridad Pública.

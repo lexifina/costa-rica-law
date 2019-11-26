@@ -1,0 +1,1 @@
+Artículo 4º— La Política sobre los Derechos Humanos y la Igualdad de Oportunidades de las Personas con Discapacidad del Ministerio de Seguridad Pública, es inclusiva, articuladora, participativa, estratégica, integradora y ajustable, en concordancia con lo establecido en el artículo 2 de la Política Nacional de Discapacidad (PONADIS 2011-2030).

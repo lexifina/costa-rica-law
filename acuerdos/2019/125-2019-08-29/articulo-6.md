@@ -1,0 +1,1 @@
+Artículo 6º— Para la implementación de esta política, todas las instancias policiales y administrativas; deberán hacer en su PAO los ajustes que se requieran para garantizar el ejercicio efectivo de los derechos de las personas con discapacidad, de acuerdo con lo establecido en la PONADIS 2011-2030.
