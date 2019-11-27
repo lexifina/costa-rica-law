@@ -1,0 +1,19 @@
+BANCO CENTRAL DE COSTA RICA
+JUNTA DIRECTIVA
+La Junta Directiva del Banco Central de Costa Rica, en el artículo 10, del acta de la sesión 5904-2019, celebrada el 20 de noviembre de 2019,
+considerando que:
+A. El artículo 2 de la Ley Orgánica del Banco Central de Costa Rica, Ley 7558, establece que uno de los objetivos prioritarios de esta Entidad es mantener la inflación baja y estable.
+B. El citado artículo 2 también dispone que uno de los objetivos subsidiarios del Banco Central es “promover el ordenado desarrollo de la economía costarricense, a fin de lograr la ocupación plena de los recursos productivos de la Nación, procurando evitar o moderar las tendencias inflacionistas o deflacionistas que puedan surgir en el mercado monetario y crediticio”.
+C. El Banco Central ajusta su Tasa de Política Monetaria (TPM) de manera prospectiva, con base en el análisis de la evolución esperada de la inflación y de sus determinantes macroeconómicos.
+D. El Banco Central definió su meta de inflación de largo plazo en 3,0%, con una tolerancia de ± 1 punto porcentual (p.p.).
+E. El Índice Mensual de Actividad Económica, en su serie tendencia-ciclo, registró en setiembre de 2019 un crecimiento interanual de 2,0%, la mayor tasa observada desde noviembre de 2018, y alcanzó el cuarto mes consecutivo de recuperación.
+Este repunte estuvo asociado con una mejora en la producción agrícola y en la actividad manufacturera en régimen definitivo, la relativa estabilidad en los flujos de comercio con la región centroamericana y, más recientemente, con un efecto base en relación con la huelga que, en el último cuatrimestre de 2018, afectó en especial a los servicios públicos de salud y educación.
+No obstante, el crecimiento medio en los últimos 12 meses fue de 1,6%, inferior al crecimiento potencial estimado para la economía costarricense (3,5%). Ello confirma la presencia de holgura en la capacidad de producción.
+F. En octubre de 2019 la inflación general, medida por la variación interanual del Índice de Precios al Consumidor, fue de 2,1%.
+Este fue el segundo mes consecutivo de desaceleración significativa en la inflación, luego del incremento registrado en julio y agosto pasados (a una tasa de 2,9% en ambos meses) como consecuencia de la entrada en vigencia del impuesto al valor agregado. En este comportamiento incidió, en mayor medida, la caída en los precios de bienes agrícolas, combustibles y electricidad. La inflación subyacente mostró una evolución similar, y en octubre último se ubicó en 2,4% (interanual). La reducción en la inflación general y subyacente sugiere la persistencia de fuerzas desinflacionarias en la economía.
+Por su parte, las expectativas de inflación de los agentes económicos a un año plazo continúan ancladas a la meta del Banco Central, con una mediana de 3,0%.
+G. Los modelos de proyección del Banco Central ubican la inflación por debajo del punto medio del rango meta para lo que resta de 2019 y en 2020. Además, los modelos sugieren que los riesgos para el pronóstico de inflación están sesgados ligeramente a la baja, por la persistencia de factores desinflacionarios, en particular una brecha de producto negativa y una tasa de desempleo superior a la tasa de largo plazo en que se estabilizaría la inflación.
+H. En lo que transcurre de 2019 la TPM ha experimentado 6 ajustes consecutivos a la baja, para una reducción acumulada de 200 puntos base desde el 28 de marzo. Dado que la transmisión de estos ajustes al resto de tasas de interés del Sistema Financiero toma tiempo, se considera prudente en esta ocasión mantener la TPM en su nivel actual.
+dispuso por unanimidad y en firme:
+mantener el nivel de la Tasa de Política Monetaria en 3,25% anual.
+Esta decisión tuvo sustento en el análisis de la trayectoria prevista para la inflación y sus determinantes, los riesgos en ese pronóstico, y el rezago con el que tienen efecto las medidas de política monetaria.
