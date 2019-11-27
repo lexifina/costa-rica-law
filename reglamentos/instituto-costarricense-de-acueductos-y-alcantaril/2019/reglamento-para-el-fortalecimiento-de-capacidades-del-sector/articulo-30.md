@@ -1,0 +1,4 @@
+Artículo 30°: Sanciones en actividades de Capacitación y Formación
+a) Cuando el funcionario una vez formalizada su asistencia a una actividad no se haga presente sin una debida justificación por parte de la Jefatura, se le separará del Programa por al menos 1 año.
+b) En caso que el funcionario presente problemas de conducta durante la actividad, se deberá de hacer el debido reporte a la Jefatura y a la Dirección Gestión del Capital Humano, para proceder con la separación del funcionario del Programa por un tiempo definido de 3 meses.
+c) Si al funcionario se le aplica una suspensión de 15 días o más, sin goce de salario por el régimen disciplinario de AyA, durante el disfrute de un beneficio de beca, será excluido del programa de capacitación, por al menos 1 año, contados a partir del primer día que se reintegre de la medida disciplinaria.

@@ -1,0 +1,4 @@
+Artículo 20º. Facilidades de transporte
+En caso de que el Instituto no cuente con el servicio de transporte, los funcionarios solicitarán a la Dirección Gestión del Capital Humano, la autorización previa de los gastos del traslado del centro de trabajo y el lugar donde se realice la capacitación y viceversa, acogiéndose a las tarifas establecidas para los medios colectivos de transporte, procediendo después a la respectiva liquidación según lo que establece el Reglamento de Transportes del AyA y la normativa vigente.
+Y en aquellos casos que se cuente con transporte institucional, los funcionarios deberán acogerse al uso de este medio, con el fin de optimizar espacios de parqueo, uso de vehículos oficiales, entre otros.
+Para los becados de entes externos, las facilidades de transporte mencionadas en esta Sección se acordarán en los convenios o acuerdos que sustentan estas becas.

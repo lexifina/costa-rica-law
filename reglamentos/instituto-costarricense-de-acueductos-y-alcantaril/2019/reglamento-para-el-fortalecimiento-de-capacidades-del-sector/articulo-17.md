@@ -1,0 +1,15 @@
+CAPÍTULO II
+BECAS
+Sección I. De los sujetos del beneficio y los criterios de otorgamiento de beca
+Artículo 17º. Requisitos y responsabilidades de los Becarios
+Sin perjuicio de otras condiciones establecidas por este Reglamento y la Ley vigente, se podrá conceder beca al funcionario que cumpla con los siguientes requisitos:
+1. Laborar para el AyA a tiempo completo con nombramiento en cargos fijos por tiempo indefinido y en funciones acordes al puesto que desempeña.
+2. Podrán optar por estos estudios los funcionarios interinos, que estén en una plaza vacante. Y cuando ningún funcionario en propiedad reúna los requisitos correspondientes o si éstos no tienen interés en la beca.
+3. Los funcionarios que hayan obtenido una calificación mínima de 80 en la Evaluación del Desempeño, podrán optar por las becas de pregrado en los niveles de Bachillerato y Licenciatura, con el fin de formar y mejorar sus capacidades y competencias en el cargo que ocupan en la Institución.
+4. Los funcionarios que hayan obtenido una calificación superior a 80 en la Evaluación del Desempeño, podrán optar por las becas de Postgrado para los niveles de Maestría y Doctorado, con el fin de fortalecer sus capacidades y competencias para el cargo que ocupan en la Institución.
+5. El funcionario durante todo el proceso de gestión de solicitud y otorgamiento de beca, no deberá tener una medida disciplinaria institucional vigente ni compromisos pendientes derivados de un beneficio de beca anterior.
+6. Todo funcionario que se le otorgue una beca, debe de firmar y cumplir a cabalidad lo estipulado en el Contrato de Beca.
+7. Todo funcionario que haya sido beneficiario de una actividad de capacitación, formación o de desarrollo, adquirirá el compromiso de ser parte del equipo de facilitadores e instructores, equipos de trabajo institucional, entre otros, según sea la necesidad y área de especialidad.
+8. El funcionario que curse actividades de desarrollo y disfrute de vacaciones legales no deberá de ningún modo desatender la asistencia a clases, ya que hay un compromiso adquirido mediante la firma de un Contrato de Beca.
+9. Todo funcionario que haya sido designado para participar en actividades formación y capacitación, debidamente informado por la Jefatura y gestionada por la Dirección Gestión del Capital Humano, no se le podrá conceder vacaciones ni licencias, con goce de salario o sin él, que coincidan con el período en que se desarrolla la actividad. Por lo que, la asistencia será obligatoria salvo alguna situación de emergencia o caso fortuito que deberá de ser comunicado de forma inmediata o en el tiempo máximo de un día hábil, para tomar las medidas que correspondan.
+10. Ningún funcionario del Instituto, podrá adelantar o formalizar el trámite o pago para participar en actividades de formación y desarrollo por concepto de inscripción, matrícula o pago por materias, sin antes contar con la aprobación de la Dirección Gestión del Capital Humano o recomendación del Comité Superior de Capacitación, cuando así se requiera y se formalice mediante la firma del Contrato de Beca.

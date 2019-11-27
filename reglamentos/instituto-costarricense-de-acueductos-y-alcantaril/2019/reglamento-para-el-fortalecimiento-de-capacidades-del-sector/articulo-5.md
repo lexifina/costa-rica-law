@@ -1,0 +1,2 @@
+Artículo 5º. Administrador de actividades de formación, capacitación y desarrollo
+La Dirección Gestión del Capital Humano es la única dependencia facultada en el AyA, para administrar y aprobar actividades dirigidas a la formación, capacitación y desarrollo de los funcionarios del Instituto y de los entes operadores delegados, y dará a conocer al Comité Superior de Capacitación aquellos casos cuando así corresponda en diversos temas.

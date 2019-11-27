@@ -1,0 +1,5 @@
+Artículo 11º. Quórum del Comité Superior de Capacitación
+El Comité podrá sesionar, siempre que estén presentes la mitad más uno de los miembros efectivamente convocados.
+Podrá fijar a inicios de año, una programación de sesiones ordinarias y convocar a extraordinarias cuando sea requerido. Estas convocatorias se harán de forma escrita, mediante correo electrónico al menos 5 días hábiles antes.
+Cada sesión deberá registrarse en una minuta como respaldo de los temas abordados y acuerdos tomados en cada sesión, donde se adjunte la lista de asistencia firmada por cada miembro presente, las cuales deben ser remitidas a los miembros del Comité Superior de Capacitación en un plazo no mayor a 5 días hábiles después de realizada la sesión.
+Los miembros del Comité que falten a tres sesiones ordinarias o extraordinarias consecutivas, sin que haya informado de la ausencia a cada sesión, deberá de justificar por escrito ante el Comité su ausencia. En caso de que el Comité no acoja la nota de justificación, podrá relevarlo de su cargo y lo sustituirá el suplente designado.

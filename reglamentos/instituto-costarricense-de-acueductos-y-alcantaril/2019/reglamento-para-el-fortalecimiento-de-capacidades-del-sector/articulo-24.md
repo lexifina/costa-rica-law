@@ -1,0 +1,5 @@
+Artículo 24°. Acreditación Centros Privados de Estudios
+Se entiende que las becas para realizar estudios en centros técnicos y universitarios privados, procederán en aquellos centros de estudio que estén debidamente autorizados y reconocidos en el caso de estudios universitarios por el Consejo Nacional de Estudios Superiores (CONESUP) u otro órgano competente. Además, debe tener carreras acreditadas por el Sistema Nacional de Acreditación de la Educación Superior (SINAES) en los siguientes casos:
+a. En caso que un funcionario curse una carrera universitaria de pregrado (Bachillerato o Licenciatura) el Centro de Estudio debe de contar con carreras acreditadas en el Sistema Nacional de Acreditación de la Educación Superior (SINAES), aunque no sea la carrera que se va a becar.
+b. Y en el caso de que curse estudios en el nivel de postgrado, la carrera a realizar debe estar acreditada al Sistema Nacional de Acreditación de la Educación Superior (SINAES).
+Para el caso de estudios de primaria y secundaria, así como para aquellos programas técnicos, el centro de estudio debe estar reconocido por el Ministerio de Educación Pública u órgano competente.

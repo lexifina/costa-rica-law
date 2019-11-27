@@ -1,0 +1,2 @@
+Artículo 2º. Definición de prioridades
+En concordancia con el Plan Estratégico Institucional, la Política de Fortalecimiento de Capacidades del Sector de Agua Potable y Saneamiento, el Diagnóstico de Necesidades de Capacitación (DNC) y otros instrumentos vigentes, que se consideren pertinentes, serán utilizados por la Dirección Gestión del Capital Humano para definir y recomendar al Comité Superior de Capacitación los temas prioritarios de formación, capacitación y desarrollo de sus funcionarios y de los entes operadores de manera bienal.

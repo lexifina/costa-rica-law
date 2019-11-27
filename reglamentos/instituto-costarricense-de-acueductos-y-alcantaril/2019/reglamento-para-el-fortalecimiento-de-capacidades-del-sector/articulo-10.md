@@ -1,0 +1,2 @@
+Artículo 10º. Acreditación de Suplentes en el Comité
+Cada Miembro del Comité Superior de Capacitación deberá designar y acreditar, ante la Dirección Gestión del Capital Humano, un suplente que pueda representarlo cuando así lo requiera, evitando con ello que no se cuente con el quórum requerido en cada sesión. Cabe indicar, que el suplente designado deberá de contar con criterio en los temas abordados y toma de decisión, para que los acuerdos en cada sesión queden en firme.

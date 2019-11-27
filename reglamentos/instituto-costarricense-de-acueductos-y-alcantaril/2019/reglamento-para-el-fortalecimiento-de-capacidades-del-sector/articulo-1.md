@@ -1,0 +1,27 @@
+INSTITUTO COSTARRICENSE DE ACUEDUCTOS Y ALCANTARILLADOS
+Acuerdo de Junta Directiva del AyA
+Sesión No. 2019-63 Extraordinaria | Fecha de Realización 16/Oct/2019 | Acuerdo No. 2019-388
+Artículo 1-ARTÍCULO 1: Reglamento para el Fortalecimiento de Capacidades del Sector de Agua Potable y Saneamiento. (Ref. GG-DGCH-20199-02110) Memorando GG-2019-01726. Informe de becas. Acuerdo 2019-239. Memorando GG-DCH-2019-02725.
+Atención Dirección Gestión del Capital Humano, Gerencia General,
+Asunto Aprobación del Reglamento para el Fortalecimiento de Capacidades del Sector de Agua Potable y Saneamiento | Fecha Comunicación 18/Oct/2019
+JUNTA DIRECTIVA
+INSTITUTO COSTARRICENSE DE ACUEDUCTOS Y ALCANTARILLADOS
+CONSIDERANDOS
+PRIMERO: Que son atribuciones del Instituto según los artículos Nº 1, 2, 5 y corresponde a la Junta Directiva en el artículo N° 11- inciso i) de la Ley Constitutiva; establecer las políticas, reglamentos internos y demás lineamientos institucionales en esa materia.
+SEGUNDO: Que, en amparo de la Ley de Capacitación del Funcionario, Ley N° 6362, publicada en La Gaceta N° 174 del 18 de setiembre de 1979, señala en el artículo N° 5: "La formación profesional y la capacitación constituyen un derecho y un deber de los funcionarios de la Administración Pública. Como derecho implica que a todo servidor que reúna las condiciones requeridas para participar en programas de profesionalización y capacitación, se le brinde la posibilidad de participar en ellos. Como deber, la obligación de someterse a aquellos programas de adiestramiento en servicio y mejoramiento técnico que demande el buen desempeño del cargo.”
+TERCERO: Que la Política de Fortalecimiento de Capacidades del Sector Agua Potable y Saneamiento, aprobada por la Junta Directiva del AyA mediante Acuerdo de Sesión Ordinaria 2015-039, de fecha 05 de febrero 2015, considera que la Ley Constitutiva le otorga al AyA dos funciones esenciales, rectora y operadora, por lo que, para su cumplimiento es indispensable tener una cultura organizacional donde se establezca el aprendizaje continuo por medio de lineamientos, normatividad y programas de formación, capacitación y desarrollo según las prioridades institucionales en sus diferentes especialidades operativas, técnicas y profesionales.
+CUARTO: Que la capacitación y formación, debe ser considerada como una inversión institucional, de primordial interés para la Institución y una responsabilidad derivada de su rectoría y operación, en la inducción, actualización, fortalecimiento y formación de las capacidades humanas de la fuerza laboral institucional y de los demás entes operadores del Sector Agua Potable y Saneamiento, en el país.
+QUINTO: Que se destinan recursos para la formación y el desarrollo del potencial humano institucional y del sector, con el fin de elevar los niveles de competencias, productividad y de calidad de los servicios que se brindan a la población nacional.
+SEXTO: Que la consecución de tales fines, y la administración de los recursos que se destinan requiera de un cuerpo normativo.
+SÉTIMO: Lo que se indica en el tema de formación y capacitación en la Política Nacional para el Subsector de Agua Potable de Costa Rica 2017-2030, la Política Nacional de Saneamiento en Aguas Residuales 2016-2045 y demás normatividad que sea vinculante con el Sector Agua Potable y Saneamiento.
+OCTAVO: Que en el Marco Estratégico Institucional el proceso de formación, capacitación y desarrollo del capital humano es un tema transversal y abordado de forma integral en las dos funciones esenciales: rectora y operadora.
+NOVENO: Que el Instituto tiene obligaciones y derechos, según lo estipulado en el Reglamento de las Asociaciones Administradoras de Sistemas de Acueductos y Alcantarillados Comunales (ASADAS), Capítulo VIII, inciso 7 y 8, donde indica que el Instituto tiene la obligación de capacitar a los miembros y usuarios de dicho ente en todos los aspectos para la gestión de los servicios, a través de sus ORAC´S.
+POR TANTO
+Esta junta directiva aprueba el siguiente Reglamento para el Fortalecimiento de Capacidades del Sector de Agua Potable y Saneamiento:
+CAPÍTULO I
+DISPOSICIONES GENERALES
+Sección I. Del Instituto y sus dependencias
+Artículo 1º. Potestades
+El Instituto Costarricense de Acueductos y Alcantarillados, en adelante denominado AyA, podrá disponer de recursos para sufragar o atender, total o parcialmente, las necesidades de formación, capacitación y desarrollo de sus funcionarios y entes operadores.
+La Dirección Gestión del Capital Humano con la colaboración de todas las dependencias llevará a cabo el proceso de planificación, ejecución y seguimiento anual del Programa de actividades de formación, capacitación y desarrollo humano, desde la preparación del Diagnóstico de Necesidades de Capacitación (DNC) en forma bienal, formulará la propuesta presupuestaria, ejecutará y dará seguimiento a los planes anuales.
+En relación con las actividades de esta índole que se gestionen con entes cooperantes externos, deberán ser registradas por la Dirección de Cooperación y Asuntos Internacionales. Y cuando estas se desarrollen en el exterior, deben ser coordinadas y tramitadas por esta misma Dirección, en concordancia con los objetivos estratégicos y los temas definidos como prioritarios en el Diagnóstico de Necesidades de Capacitación (DNC), para lo cual se emitirá un criterio técnico de la Dirección Gestión del Capital Humano.
