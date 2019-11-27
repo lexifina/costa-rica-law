@@ -1,0 +1,1 @@
+Artículo 31. -De los acuerdos firmes. Los acuerdos que la Comisión tome serán declarados en firme. Estos podrán ser impugnados por las personas interesadas ante la Gerencia, conforme a los recursos que establece el artículo 70 de este Reglamento y la Ley General de la Administración Pública.

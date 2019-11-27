@@ -1,0 +1,1 @@
+Artículo 67. -Del incumplimiento de las obligaciones por los responsables de Unidades Administrativas. El incumplimiento a las obligaciones establecidas en este Reglamento por parte de los superiores jerárquicos de unidades administrativas se considerará falta y se tramitará conforme a las disposiciones del Reglamento Autónomo de Servicios.

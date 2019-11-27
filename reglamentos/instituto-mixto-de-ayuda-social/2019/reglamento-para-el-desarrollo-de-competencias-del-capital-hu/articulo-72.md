@@ -1,0 +1,1 @@
+Artículo 72. -De la derogatoria. Queda derogado el Reglamento de Capacitación y Formación de las personas trabajadoras del I.M.A.S., publicado en la Gaceta N º 188 del 04 de octubre de 2017, así como cualesquiera otras normas dictadas por el Consejo Directivo que se opongan al presente Reglamento.
