@@ -39,3 +39,4 @@ Reglamento Autónomo de Trabajo del Instituto Costarricense de Turismo
 | 24 | 2018-05-23 | SINALEVI (sin norma nombrada) |
 | 25 | 2018-12-17 | Reglamento 6057 (2018-12-17) |
 | 26 | 2019-10-28 | Reglamento 6092 (2019-10-28) |
+| 27 | 2019-11-27 | Reglamento 6095 (2019-11-27) |
