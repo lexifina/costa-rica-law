@@ -6,13 +6,7 @@ iii. Importe total retenido. Monto retenido según el porcentaje de retención, 
 iv. Deducciones por:
 - Aportes a fondos de pensiones complementarias (hasta un 10% del ingreso bruto mensual del trabajador).
 - Créditos fiscales, conforme lo establece el artículo 34 de la Ley del Impuesto sobre la Renta.
-v. Tipo de retención efectuada, según los códigos que se detallan a continuación:
-SL: por salarios y demás gastos laborales.
-SLV: devolución de incentivos por retiro anticipado del régimen de pensiones voluntarias.
-IN: por Intereses.
-RO: por recompras y reportos.
-DP: por dividendos y participaciones.
-RE: por remesas al exterior.
-OR: por otros conceptos no especificados.
-RB: Retenciones Banca para el Desarrollo.
-(Así adicionado el punto anterior por el artículo 2° de la resolución DGT-R-29-2016 del 18 de mayo de 2016)
+(*)v. Tipo de retenciones efectuada, según los códigos que se detallan a continuación:
+[imagen]
+[imagen]
+(*) (Así reformado el punto v) anterior mediante resolución N°DGT-R-071-2019 del 28 de noviembre del 2019)
