@@ -46,3 +46,4 @@ Acuerdo sobre el Suministro de Información Periódica.
 | 31 | 2017-03-07 | Acuerdo 222 (2017-03-07) |
 | 32 | 2018-07-03 | Acuerdo 231 (2018-07-03) |
 | 33 | 2019-07-26 | Acuerdo 235 (2019-07-26) |
+| 34 | 2019-11-28 | Acuerdo 237 (2019-11-28) |

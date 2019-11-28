@@ -800,6 +800,15 @@ s. Identificación de la proyección de reembolsos en fondos abiertos del “Rep
 (cuentas: 800000000000, 800500000000, 801000000000, 801500000000, 802000000000, 802500000000, 803000000000).
 t. Reporte de Servicios de Intermediación de Valores. Anexo 62.”
 j. Se elimina el Reporte de Clasificación de riesgo de los clientes Normativa Ley 8204 (Anexo 49)”)
+(Nota de Sinalevi: Mediante el artículo 1° del acuerdo N° SGV-A-237 del 28 de noviembre de 2019, se acordó reformar la presente norma, de la siguiente forma: “Artículo 1. Adiciones
+a Se agregan las siguientes cuentas al Estado de Situación Financiera de Fondos de Inversión, Sociedades Calificadoras y Proveedores de Precios:
+[imagen]
+b Se modifica el nombre de las siguientes cuentas:
+[imagen]
+c Se eliminan las siguientes cuentas:
+[imagen]
+Anexo 15 EF Fondos.xls Anexo 31 Suficiencia Patrimonial.xls
+Anexo 59 EF Sociedades Calificadoras y Proveedores.xls”)
 SGV-A-75.—Superintendencia General de Valores. Despacho del Superintendente. A las catorce horas del veinticuatro de abril del dos mil tres.
 Considerando:
 I. Que mediante artículo 13 del Acta de la Sesión 81 -99. celebrada el 18 de marzo de 1999. el Consejo Nacional de Supervisión del Sistema Financiero aprobó el Reglamento sobre el Suministro de Información Periódica, Hechos Relevantes y otras Obligaciones de Información con lineamientos sobre los deberes de comunicación de los diferentes participantes en el mercado de valores.
