@@ -1,0 +1,1 @@
+Artículo 2º—Aplicar la PND 2018-2030 y sus Planes de Acción en el Sector Público costarricense e instar al sector privado, sociedad civil organizada, redes de personas evaluadoras y academia, como actores corresponsables del desarrollo nacional; a fomentar su aplicación; para potenciar conjuntamente el uso de la evaluación en la mejora de la gestión pública.

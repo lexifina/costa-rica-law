@@ -1,0 +1,2 @@
+Artículo 4º—El documento que contiene la PNE 2018-2030; se encuentra disponible en la dirección electrónica del Ministerio de Planificación Nacional y Política Económica (http://www.mideplan. go.cr). Una versión impresa de la PNE 2018-2030 se custodiará en el Centro de Documentación del Ministerio de Planificación Nacional y Política Económica.
+(Nota de Sinalevi: Por lo extenso de su contenido el texto de la Política Nacional de Evaluación y su Plan Marco de Acción 2018-2030, puede ser consultado en el siguiente link)
