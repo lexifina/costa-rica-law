@@ -1,0 +1,1 @@
+Artículo 4º—De los horarios. El DDE deberá cancelarse para el uso de los estacionamientos en el horario comprendido entre las 6:00 de la mañana y las 6:00 de la tarde. Se exceptúan de esta regulación los días domingo, los días feriados de ley y de fiesta nacional o local.

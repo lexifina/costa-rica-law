@@ -1,0 +1,1 @@
+Artículo 15.—De las motocicletas. Las motocicletas que utilicen los estacionamientos deberán pagar la misma tarifa que los vehículos de cuatro ruedas y quedan sujetas a las infracciones, multas y sanciones que dispone el presente reglamento

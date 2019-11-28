@@ -1,0 +1,1 @@
+Artículo 21.—Prohibición de la actividad informal. Queda absolutamente prohibido a cualquier persona física o jurídica, dedicarse a la actividad lucrativa de vigilancia de vehículos en las vías públicas del cantón de Montes de Oca.

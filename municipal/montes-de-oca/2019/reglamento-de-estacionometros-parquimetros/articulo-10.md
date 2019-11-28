@@ -1,0 +1,1 @@
+Artículo 10.—De las faltas y sanciones. Se sancionarán las faltas cometidas por los Inspectores de Parquímetros de conformidad con el Código de Trabajo, Código Municipal y el Reglamento Autónomo de Servicios de la Municipalidad de Montes de Oca.
