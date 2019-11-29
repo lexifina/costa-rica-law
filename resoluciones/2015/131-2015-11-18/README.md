@@ -15,3 +15,4 @@ Simplificación de Requerimientos de Información Financiero- Contable para las 
 | --- | --- | --- |
 | 1 | 2016-01-15 | la propia norma |
 | 2 | 2016-02-26 | Resolución 21 (2016-02-26) |
+| 3 | 2019-11-29 | Resolución 93 (2019-11-29) |
