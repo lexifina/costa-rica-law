@@ -1,5 +1,5 @@
 CAPÍTULO III
 TRANSPORTE ÁEREO
-ARTÍCULO 164.-
-La Dirección General de Aviación Civil del MOPT, por medio de los controladores aéreos correspondientes, no autorizará la salida del país de ninguna aeronave hasta que la Dirección General comunique, formalmente, el cumplimiento de los requisitos migratorios por parte de toda persona que viaje. El incumplimiento de esta disposición será sancionado mediante una multa equivalente a diez mil dólares moneda de los Estados Unidos de América (US $ 10 000,00).
-El incumplimiento de lo dispuesto en el presente artículo implicará falta grave, en el ejercicio de las funciones del controlador aéreo responsable; para ello, la Dirección General de Migración y Extranjería solicitará al MOPT, por medio de Aviación Civil, el procedimiento administrativo correspondiente, para su aplicación.
+Artículo 164- La Dirección General de Migración y Extranjería impedirá la salida del país de un medio de transporte aéreo que incumpla con los requisitos migratorios de los pasajeros o de su tripulación, para lo cual deberá coordinar con la Dirección General de Aviación Civil del Ministerio de Obras Públicas y Transportes (MOPT).
+El funcionario público que permita, autorice o facilite la salida irregular de un medio de transporte internacional, se someterá al procedimiento administrativo de la Ley N.° 6227, Ley General de Administración Pública, de 2 de mayo de 1978.
+(Así reformado por el artículo único de la ley N° 9730 del 27 de agosto de 2019)
