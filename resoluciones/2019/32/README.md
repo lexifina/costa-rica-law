@@ -14,3 +14,4 @@ Actualiza la resolución RIE-131-2015 "Simplificación de Requerimientos de Info
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-04-03 | la propia norma |
+| 2 | 2019-11-29 | Resolución 93 (2019-11-29) |
