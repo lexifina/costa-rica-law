@@ -1,3 +1,4 @@
-Artículo 41.- Toda la información que contenga el Archivo Criminal
-tendrá carácter confidencial y será para uso exclusivo del organismo y de
-las demás autoridades.
+Artículo 41- Toda la información que contenga el Archivo Criminal tendrá carácter confidencial y será para uso del Organismo de Investigación Judicial (OIJ), el Ministerio Público y los órganos jurisdiccionales que conocen materia penal.
+Los cuerpos policiales de carácter preventivo, las instituciones gubernamentales que regulan temas de seguridad nacional y la oficina del Tribunal Supremo de Elecciones encargada de aprobar los trámites de naturalización costarricense podrán realizar consultas sobre personas para determinar si mantienen expedientes criminales activos, datos de identificación contenidos en la reseña policial, fotografías y asuntos pendientes como capturas de personas, de vehículos o presentaciones.
+Las policías que realicen labores de investigación para fines represivos, como la Policía de Control Fiscal del Ministerio de Hacienda, la Policía de Control de Drogas del Ministerio de Seguridad Pública y la Policía Profesional de Migración y Extranjería podrán consultar íntegramente los expedientes criminales que se mantienen en el sistema de Archivo Criminal.
+(Así reformado por el artículo único de la ley N° 9753 del 23 de octubre de 2019, “Incorpora el acceso a la información del archivo criminal a los cuerpos policiales del Ministerio de Seguridad Pública”)
