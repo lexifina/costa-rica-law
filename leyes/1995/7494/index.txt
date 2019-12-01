@@ -108,6 +108,7 @@ articulo-98.md
 articulo-99.md
 articulo-100.md
 articulo-100-bis.md
+articulo-100-ter.md
 articulo-101.md
 articulo-102.md
 articulo-103.md
