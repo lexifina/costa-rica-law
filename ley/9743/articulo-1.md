@@ -1,0 +1,30 @@
+N° 9743
+LA ASAMBLEA LEGISLATIVA
+DE LA REPÚBLICA DE COSTA RICA
+DECRETA:
+ADICIÓN DEL ARTÍCULO 100 TER A LA LEY N.° 7494,
+LEY DE CONTRATACIÓN ADMINISTRATIVA, DE
+2 DE MAYO DE 1995, PARA INHABILITAR AL
+CONTRATISTA QUE INCUMPLA CON LA
+CONSTRUCCIÓN, LA RECONSTRUCCIÓN,
+LA CONSERVACIÓN, EL MANTENIMIENTO
+Y LA REHABILITACIÓN DE PROYECTOS
+DE INFRAESTRUCTURA VIAL PÚBLICA
+ARTÍCULO ÚNICO- Se adiciona el artículo 100 ter a la Ley N.° 7494, Ley de Contratación Administrativa, de 2 de mayo de 1995. El texto es el siguiente:
+Artículo 100 ter- Sanción de inhabilitación para contratistas en proyectos de infraestructura vial pública.
+La Administración, una vez concluido el debido proceso, inhabilitará para participar en procedimientos de contratación administrativa relacionados con proyectos de infraestructura vial pública, por un período de tres a diez años, según la gravedad de la falta, a la persona física o jurídica que, sin justa causa, incurra en incumplimiento grave del contrato, por cualquiera de las causas establecidas en este artículo. La sanción aquí prevista impedirá la participación del contratista en futuros procedimientos de contratación administrativa relacionados con proyectos de infraestructura vial pública.
+La inhabilitación será comunicada a la Contraloría General de la República, que llevará un registro al respecto, el cual será de acceso público.
+No será necesaria la aplicación de la sanción de apercibimiento señalada en el artículo 99 de la presente ley, como requisito previo para la aplicación de la sanción de inhabilitación, cuando se trate de incumplimientos graves en contrataciones relacionadas con proyectos de infraestructura vial pública.
+Se entenderá por proyectos de infraestructura vial pública aquellos que impliquen la construcción, la reconstrucción, la conservación, el mantenimiento y la rehabilitación de vías nacionales y cantonales, que sean ejecutados por el Estado o los gobiernos locales respectivamente, incluyendo cualquier tipo de obras relacionadas con puentes y demás estructuras viales conexas, así como las contrataciones que se realicen para llevar el control de calidad de las obras, la administración, la supervisión o la inspección de este tipo de proyectos en nombre del Estado o de las municipalidades.
+La inhabilitación no se extingue por la fusión, la transformación o el cambio de razón o denominación social de la sociedad sancionada. En caso de que la fusión dé origen a una nueva sociedad, o bien, que la empresa sancionada sea absorbida por otra o forme un consorcio para participar en nuevas contrataciones con el Estado, los efectos de la sanción recaerán sobre la que permanezca.
+Se tendrá como fraude de ley la constitución de una nueva sociedad con la finalidad de evadir los efectos de la sanción de inhabilitación, en cuyo caso los efectos de la sanción recaerán en iguales condiciones sobre la sociedad así constituida.
+Para los efectos de la sanción de inhabilitación prevista en este artículo, se entenderán como faltas graves cualquiera de las siguientes:
+a) Las acciones u omisiones del contratista que ocasionen incumplimientos en el proyecto de infraestructura vial pública, que pongan en peligro la vida o la seguridad de las personas.
+b) Las conductas atribuibles al contratista, que causen retrasos y encarecimientos de la obra no previstos y que no logren ser resarcidos en su totalidad mediante la ejecución de otros medios sancionatorios regulados en el cartel y en el contrato.
+c) Los incumplimientos reincidentes del contratista en la ejecución del objeto contractual sobre los cuales ya ha sido sancionado previamente mediante otros mecanismos regulados en la Ley N.° 7494, Ley de Contratación Administrativa, de 2 de mayo de 1995, y su reglamento.
+d) Las causas atribuibles al contratista que conlleven la resolución contractual en sede jurisdiccional, cuando dicha gestión sea promovida por la administración y haya condenatoria en firme en contra del contratista.
+e) Las demás faltas graves que así sean establecidas en el cartel y en el contrato.
+En aquellos supuestos en que un funcionario público, por razones de su cargo, conozca de la presunta existencia de un incumplimiento contractual, deberá informarlo inmediatamente al jerarca correspondiente, a efectos de que se realice una investigación preliminar para determinar si existe mérito para abrir un procedimiento sancionatorio, so pena de incurrir en falta grave, sin perjuicio de las demás responsabilidades que establezca el ordenamiento jurídico.
+Cuando la Contraloría General de la República, en el ejercicio de sus potestades, señale un posible incumplimiento contractual, recomendará, mediante su criterio técnico a la autoridad administrativa competente, la apertura del procedimiento respectivo, para determinar si corresponde la aplicación de la sanción de inhabilitación, según lo dispuesto en este artículo. La Administración garantizará en todo momento la oportunidad suficiente de audiencia y de defensa.
+Será responsabilidad de la Contraloría General de la República mantener actualizado el registro de contratistas que hayan sido inhabilitados y será obligación de la Administración y de la Contraloría General de la República verificar este registro en la fase de análisis de las ofertas de aquellos procedimientos de contratación cuyo objeto sea el previsto en este artículo; esto con el fin de declarar inadmisible cualquier oferta que provenga de una empresa inhabilitada por las causales aquí señaladas.
+Dado en la Presidencia de la República, San José, a los cinco días del mes de noviembre del año dos mil diecinueve.
