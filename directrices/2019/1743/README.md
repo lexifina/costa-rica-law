@@ -14,3 +14,4 @@ Comunicar a la industria tabacalera la prórroga de la Cuarta Campaña Anual 201
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-09-12 | la propia norma |
+| 2 | 2019-12-02 | Directriz 6335 (2019-12-02) |

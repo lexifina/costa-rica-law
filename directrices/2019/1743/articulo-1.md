@@ -10,4 +10,5 @@ II.—Que el artículo 8 del Reglamento de etiquetado de los productos de tabaco
 III.—Que mediante el oficio N° DGS-PCT-188-2018 del 02 de noviembre de 2018, suscrito por el Dr. Esteban Solís Chacón, Coordinador Técnico, Programa de Control de Tabaco, dirigido a la Dra. Priscilla Herrera García, Directora General de Salud, se manifiesta: “Considerando que no fue posible definirla, muy respetuosamente le comento que se procederá a gestionar la ampliación del plazo de la 4ta Campaña de Advertencias Sanitarias (DM-JG-4482-2017) que dará inicio el próximo 19 de noviembre por un periodo de dos años (2018- 2020)”, en razón de lo anterior, se hace necesario prorrogar el plazo de la cuarta campaña. Por tanto,
 EL MINISTRO DE SALUD,
 DISPONE:
-Artículo 1º—Comunicar a la industria tabacalera la prórroga de la Cuarta Campaña Anual 2018-2019, hasta noviembre del 2020.
+Artículo 1- Comunicar a la industria tabacalera la prórroga de la Cuarta Campaña Anual 2018-2019 hasta el 31 de diciembre del 2020.
+(Así reformado por el artículo 1° de la directriz N° MS-DM-JG-6335-2019 del 2 de diciembre de 2019)
