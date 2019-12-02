@@ -13,3 +13,4 @@ Procedimiento para la Comunicación de Auto de Liquidación y Testimonios de Sen
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-09-11 | la propia norma |
+| 2 | 2019-12-02 | Circular 213 (2019-12-02) |
