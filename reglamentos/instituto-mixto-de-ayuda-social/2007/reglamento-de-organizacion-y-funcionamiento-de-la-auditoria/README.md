@@ -14,3 +14,4 @@ Reglamento de Organización y Funcionamiento de la Auditoría Interna del Instit
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-07-17 | la propia norma |
+| 2 | 2019-12-02 | Reglamento 79 (2019-12-02) |

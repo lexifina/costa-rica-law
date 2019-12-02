@@ -5,4 +5,5 @@ DE LA AUDITORÍA INTERNA DEL INSTITUTO
 MIXTO DE AYUDA SOCIAL (IMAS)
 CAPÍTULO I
 Disposiciones generales
-Artículo 1º—Objeto. El presente Reglamento regula las actividades, organización, objetivos, funciones y atribuciones de la Auditoría Interna del Instituto Mixto de Ayuda Social.
+Artículo 1°—Ámbito de aplicación. El presente Reglamento regula el cumplimiento de las funciones y actividades de la Auditoría Interna del Instituto Mixto de Ayuda Social, considerando las funciones administrativas esenciales de planificación, organización, dirección, coordinación, control y seguimiento de los servicios de auditoría para los cuales se encuentra facultada.
+(Así reformado mediante sesión ordinaria N° 79-12-2019 del 2 de diciembre del 2019)

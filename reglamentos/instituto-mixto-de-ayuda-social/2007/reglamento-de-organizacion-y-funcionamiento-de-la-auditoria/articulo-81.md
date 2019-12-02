@@ -1,1 +1,2 @@
-Artículo 81.—Aprobación. Este reglamento fue aprobado por el Consejo Directivo en su sesión Nº-043-07, artículo 4º, acuerdo Nº 203-07, celebrada el 4 de junio del 2007.
+Artículo 81.—Aprobación. Esta reforma al reglamento fue aprobada por el Consejo Directivo en su sesión N° 79-12-2019, artículo 72, acuerdo N° 553-12-2019, celebrada el 02 de diciembre de 2019.
+(Así reformado mediante sesión ordinaria N° 79-12-2019 del 2 de diciembre del 2019)
