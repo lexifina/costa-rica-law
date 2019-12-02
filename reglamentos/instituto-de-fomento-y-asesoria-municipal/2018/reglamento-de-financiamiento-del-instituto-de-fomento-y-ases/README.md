@@ -14,3 +14,4 @@ Reglamento de Financiamiento del Instituto de Fomento y Asesoría Municipal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-12-21 | la propia norma |
+| 2 | 2019-12-02 | Reglamento 49 (2019-12-02) |
