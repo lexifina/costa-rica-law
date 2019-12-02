@@ -1,0 +1,1 @@
+Artículo 2°.- Ámbito de Aplicación Esta Directriz es de acatamiento obligatorio para el Poder Ejecutivo. Asimismo, se insta al Sector Público Descentralizado que en la medida de sus posibilidades adopte lo establecido en esta Directriz.

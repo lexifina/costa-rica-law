@@ -1,0 +1,1 @@
+Artículo 6°.- Proceso de Verificación de Cumplimiento Para verificar el cumplimiento de la implementación de la Directriz, el MICITT realizará anualmente un informe de los resultados de la implementación, el cual será publicado en el sitio web del MICITT.

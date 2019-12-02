@@ -1,0 +1,1 @@
+Artículo 7°. - Implementación por parte de otras instituciones. Se insta a los jerarcas del Poder Legislativo, Poder Judicial, el Tribunal Supremo de Elecciones, las instituciones autónomas, las semiautónomas, municipalidades y concejos municipales, las empresas públicas, y entes públicos no estatales a considerar la implementación de lo dispuesto en la presente directriz.
