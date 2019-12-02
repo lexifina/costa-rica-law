@@ -1,0 +1,2 @@
+Artículo 8º—Informe de Estado de Situación. En los casos en que el jerarca y el titular subordinado disfrute de licencia con o sin goce de salario, capacitación, beca o vacaciones, durante un periodo superior a un mes, deberá presentar un Informe de Estado de Situación de la unidad o dependencia a su cargo, a más tardar el último día hábil de labores.
+Tratándose de incapacidades superiores a un mes, el funcionario deberá entregar el informe de estado de situación, cinco días hábiles después de su reintegro a labores.

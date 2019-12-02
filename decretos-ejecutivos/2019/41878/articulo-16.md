@@ -1,0 +1,1 @@
+Artículo 16.—Auditoría General. La Auditoría General del Ministerio será responsable de verificar que los jerarcas y los titulares subordinados observen -cuando proceda- las regulaciones aquí dispuestas. Asimismo, deberá verificar que el Departamento de Control y Documentación y el Departamento de Control y Fiscalización de Activos cumplan la normativa en lo pertinente.

@@ -1,0 +1,1 @@
+Artículo 15.—Publicación en el Portal Web del Ministerio de Seguridad Pública. Es deber de la Dirección de Tecnologías de Información realizar la publicación de los “Informes de Fin de Gestión” en el Portal Web del Ministerio, en aras de facilitar el acceso a cualquier ciudadano(a) interesado.

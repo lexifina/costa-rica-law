@@ -1,0 +1,1 @@
+Artículo 9º—Entrega formal de activos. Los funcionarios sujetos a presentar el Informe de Fin de Gestión, deberán tramitar ante el Departamento de Control y Fiscalización de Activos y la jefatura inmediata, la entrega de los bienes institucionales que tenga asignados, conforme la reglamentación interna y procedimientos establecidos para ello.

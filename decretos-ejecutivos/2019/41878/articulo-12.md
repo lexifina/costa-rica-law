@@ -1,0 +1,5 @@
+Artículo 12.—Deberes del Sucesor. Son deberes del sucesor:
+1. Dar lectura en forma expedita y cuidadosa, en el término de diez días hábiles, a partir del recibido del Informe de Fin de Gestión; emitir las consideraciones pertinentes sobre el informe de fin de gestión y demás documentos relacionados con planes y proyectos afines con la materia de trasparencia y control de gestión, así como las Directrices Institucionales para la Formulación, Aprobación, Ejecución, Evaluación, y Seguimiento de los mismos.
+2. Dar seguimiento y controlar el cumplimiento de objetivos, actividades y metas establecidos en dicho informe.
+3. Utilizar como referencia el “Informe de Fin de Gestión” para darle continuidad al quehacer sustantivo de la dependencia o unidad.
+4. Verificar que el traslado de bienes o recursos, esté confeccionado, firmado y comunicado a la Unidad que controla los activos, así como la liquidación de cajas chicas y fondos especiales. En caso de existir alguna observación relevante debe informarlo inmediatamente al superior jerárquico, y a las instancias correspondientes.
