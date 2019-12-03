@@ -16,3 +16,4 @@ Reglamento para la Custodia y Administración de la Caja Chica de la Asamblea Le
 | 1 | 2009-02-09 | la propia norma |
 | 2 | 2011-11-24 | Acuerdo 26 (2011-11-24) |
 | 3 | 2012-12-11 | Acuerdo 51 (2012-12-11) |
+| 4 | 2019-12-03 | Reglamento 83 (2019-12-03) |
