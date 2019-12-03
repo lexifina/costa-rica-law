@@ -1,15 +1,5 @@
-Artículo 159.- Sin perjuicio de lo prescrito en esta ley sobre
-atribuciones para otorgar préstamos a personas naturales o a familias sin
-casa, las entidades autorizadas estarán facultadas para otorgar
-financiamiento para proyectos de vivienda a asociaciones cooperativas,
-asociaciones solidaristas y asociaciones de desarrollo de la comunidad,
-mediante préstamos hipotecarios individuales a cada miembro de la
-asociación interesada, siempre que reúna los requisitos necesarios. Las
-cooperativas de vivienda, las asociaciones solidaristas y las
-asociaciones de desarrollo de la comunidad, podrán también actuar como
-sujetos de crédito en operaciones que cuenten con la garantía de la
-hipoteca global y la fianza solidaria de todos los beneficiarios del
-proyecto respectivo. En estos casos, las entidades autorizadas podrán
-establecer tasas preferenciales de interés, dentro de los lineamientos
-que al efecto dicte el BANHVI, en virtud del menor costo de
-administración de los créditos en que incurran las entidades autorizadas.
+Artículo 159.- En el caso de ejecución de créditos otorgados ante el Banco o ante las entidades autorizadas, el deudor hipotecario, los acreedores hipotecarios de grado inferior, los terceros poseedores o demás anotantes, estarán debidamente notificados en el lugar en que indique la escritura de constitución del crédito, de adquisición del inmueble o en el documento anotado al margen del asiento de propiedad. El deudor hipotecario queda en la obligación de comunicar por escrito a los entes acreedores, cualquier cambio de domicilio.
+Si no constara domicilio alguno o, si el notificador informara que alguna de las partes por notificar no se localiza en el lugar indicado como su domicilio, se procederá a comunicarle por medio de un edicto, que se publicará en el Boletín Judicial por tres veces.
+El Banco y las entidades autorizadas no están obligados a comprobar la personería de sus representantes legales en cada juicio. Bastará con que lo hagan por una sola vez y que acrediten, en cada oficina donde se litigue, una certificación donde se indique el plazo de vigencia del poder con que se actúa.
+( Así reformado por el artículo 1º de la ley No.7208 del 21 de noviembre de 1990 ).
+(Así modificada su numeración por el artículo único de la ley N° 9779 del 12 de noviembre del 2019, que la traspasó del antiguo artículo 153 al 159)

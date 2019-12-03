@@ -1,12 +1,2 @@
-Artículo 133.- Los certificados de inversión inmobiliaria serán
-títulos libremente negociables que se emitirán a la orden o al portador y
-que generarán intereses pagaderos por medio de cupones. En el texto del
-título se expresará:
-a) La denominación del título.
-b) El nombre de la entidad emisora y la firma o firmas de sus
-representantes.
-c) El lugar y las fechas de emisión y de vencimiento.
-ch) La tasa de interés y la periodicidad del pago.
-d) La indicación de si es a la orden o al portador.
-e) El número del título y el número y la cantidad de cupones.
-f) El monto por el que se emite y el plazo.
+Artículo 133.- En las participaciones hipotecarias globales se expresará, en la forma que se indique en el reglamento, todo aquello que permita la plena identificación del contrato y de su propietario, en caso de ser nominativo, e igualmente se identificará la entidad emisora, la emisión de que se trate, la fecha de emisión y los términos contractuales relativos al propio contrato y a las relaciones de la entidad emisora con el inversionista. Cada participación hipotecaria global estará acompañada por tantos cupones como pagos de intereses hayan sido previstos en su caso, y en cada cupón se indicará la serie, el número de emisión del contrato, el número de cupón y su fecha de vencimiento.
+(Así modificada su numeración por el artículo único de la ley N° 9779 del 12 de noviembre del 2019, que la traspasó del antiguo artículo 127 al 133)

@@ -1,2 +1,2 @@
-Artículo 88.- Las mutuales no podrán otorgar préstamos a sus
-directores.
+Artículo 88.- Los directores no podrán desempeñar ningún otro trabajo remunerado por la mutual. Percibirán dietas por la asistencia a las sesiones del directorio. La asamblea general de la mutual determinará el número de sesiones mensuales y el monto de las dietas.
+(Así modificada su numeración por el artículo único de la ley N° 9779 del 12 de noviembre del 2019, que la traspasó del antiguo artículo 82 al 88)

@@ -1,3 +1,4 @@
-Artículo 138 bis.- Cuotas de participación mutualista
+Artículo 144 bis.- Cuotas de participación mutualista
 Las asociaciones mutualistas podrán emitir valores nominativos denominados cuotas de participación mutualista, por un monto que en ningún momento podrá igualar o superar el cincuenta por ciento (50%) de su patrimonio total. Estos valores tendrán las características propias de los valores nominativos conforme al libro tercero del Código de Comercio y a la Ley Nº 7732, Ley Reguladora del Mercado de Valores, en lo que les sean aplicables.
 (Así adicionado por el artículo 1° de la ley N° 9199 del 5 de febrero del 2014, "Reforma Ley del Sistema Financiero Nacional para la Vivienda y Creación del BANHVI (Banco Hipotecario de la Vivienda) para modernizar las fuentes de capitalización de la mutuales")
+(Así modificada su numeración por el artículo único de la ley N° 9779 del 12 de noviembre del 2019, que la traspasó del antiguo artículo 138 bis al 144 bis)

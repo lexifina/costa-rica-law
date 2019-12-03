@@ -1,12 +1,2 @@
-Artículo 158.- Previa autorización del Banco, en cada caso, las
-entidades autorizadas estarán facultadas para otorgar financiamiento
-puente o interino para la preparación y ejecución de conjuntos
-habitacionales, así como también para las obras y servicios
-complementarios.
-Las entidades autorizadas podrán otorgar este financiamiento,
-individualmente o en conjunto con otras entidades que se interesen. A
-petición de las entidades autorizadas, el Banco podrá, si lo estimare
-conveniente para el sano desarrollo del Sistema, concederles asistencia
-financiera para que hagan frente a estas solicitudes, dentro de los
-términos y mecanismos que esta ley autoriza. La Junta Directiva del Banco
-deberá reglamentar esta disposición.
+Artículo 158.- En los juicios de ejecución que entablen el Banco y las entidades autorizadas, el acreedor hipotecario será depositario de los bienes embargados, sin obligación de rendir fianza.
+(Así modificada su numeración por el artículo único de la ley N° 9779 del 12 de noviembre del 2019, que la traspasó del antiguo artículo 152 al 158)

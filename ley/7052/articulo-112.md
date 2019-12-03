@@ -1,13 +1,6 @@
-Artículo 112.- En los casos en que el deudor o la entidad autorizada
-no cumplan con las condiciones legales, reglamentarias o materiales en
-que se basó el compromiso de garantía, el Banco enviará a ambos un aviso
-de incumplimiento, en el que se señalarán las condiciones de su
-compromiso de garantía que no han sido acatadas, y dará un plazo
-razonable para su cumplimiento. Cuando el incumplimiento fuese atribuido
-al deudor hipotecario y éste no lo subsanare dentro del plazo concedido,
-se dará por vencida la respectiva obligación hipotecaria y el titular del
-crédito quedará facultado para ejecutar la hipoteca, sin perjuicio de sus
-derechos como acreedor de una hipoteca garantizada.
-Cuando el incumplimiento fuere atribuido a una entidad autorizada,
-transcurrido el plazo otorgado para subsanarlo, se dará por vencido el
-correspondiente compromiso de garantía.
+TITULO QUINTO
+DE LAS GARANTIAS
+CAPITULO I
+De las garantías de los préstamos hipotecarios
+Artículo 112.- El Banco estará facultado para garantizar el pago de créditos hipotecarios otorgados por las entidades autorizadas. Tal garantía asegurará al acreedor hipotecario, o al cesionario de esos derechos hipotecarios, el cobro íntegro del capital, los intereses y las demás obligaciones accesorias de la hipoteca, incluidos los gastos del juicio de ejecución. Esta garantía estará respaldada por los activos del Banco y por la garantía subsidiaria e ilimitada del Estado.
+(Así modificada su numeración por el artículo único de la ley N° 9779 del 12 de noviembre del 2019, que la traspasó del antiguo artículo 106 al 112)

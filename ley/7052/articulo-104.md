@@ -1,3 +1,2 @@
-Artículo 104.- DEROGADO.
-(Derogado por el artículo 164 de la Ley Orgánica del Banco Central
-de Costa Rica, Nº 7558 de 3 de noviembre de 1995)
+Artículo 104.- Corresponde al Banco aprobar los estatutos de la federación, contentivos de su organización, objetivos y funcionamiento. Además, el Banco ejercerá funciones fiscalizadoras sobre la federación, con el objeto de garantizar que sus actividades y operaciones se ajusten a los principios y propósitos que inspiran esta ley.
+(Así modificada su numeración por el artículo único de la ley N° 9779 del 12 de noviembre del 2019, que la traspasó del antiguo artículo 98 al 104)

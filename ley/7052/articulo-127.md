@@ -1,10 +1,2 @@
-Artículo 127.- En las participaciones hipotecarias globales se
-expresará, en la forma que se indique en el reglamento, todo aquello que
-permita la plena identificación del contrato y de su propietario, en caso
-de ser nominativo, e igualmente se identificará la entidad emisora, la
-emisión de que se trate, la fecha de emisión y los términos contractuales
-relativos al propio contrato y a las relaciones de la entidad emisora con
-el inversionista. Cada participación hipotecaria global estará acompañada
-por tantos cupones como pagos de intereses hayan sido previstos en su
-caso, y en cada cupón se indicará la serie, el número de emisión del
-contrato, el número de cupón y su fecha de vencimiento.
+Artículo 127.- El cesionario podrá vender o ceder a terceros, en las mismas condiciones en que los adquirió, los derechos que le fueren cedidos, mediante cesión que deberá registrarse ante la acreedora hipotecaria, para todos los efectos que establece esta ley.
+(Así modificada su numeración por el artículo único de la ley N° 9779 del 12 de noviembre del 2019, que la traspasó del antiguo artículo 121 al 127)

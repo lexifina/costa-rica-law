@@ -1,8 +1,3 @@
-Artículo 120.- La entidad autorizada que haya cedido sus derechos
-hipotecarios continuará siendo titular legal de la hipoteca en su propio
-nombre, pero actuará como agente del cesionario en lo referente a todos
-los derechos de este último, adquiridos por la cesión respectiva; en
-consecuencia, la acreedora de que se trate tendrá la obligación de cobrar
-la deuda hipotecaria de conformidad con los términos de la hipoteca, las
-regulaciones y los procedimientos establecidos, incluida la ejecución
-hipotecaria.
+Artículo 120.- Una vez emitida la garantía hipotecaria, si por incumplimiento del deudor fuere ejecutada la hipoteca garantizada, el acreedor hipotecario tendrá derecho a reclamar los beneficios de la garantía, cuando haya sido adjudicado a su favor el inmueble hipotecado en el correspondiente juicio de ejecución, o cuando haya adquirido la propiedad del inmueble por cualquier otro medio. Este reclamo deberá ejercitarse dentro de los treinta días siguientes a la fecha en que adquirieron el inmueble. Transcurrido dicho plazo sin que hubiere presentado el reclamo correspondiente, se considerará que el acreedor renuncia a los beneficios de la garantía, la cual quedará cancelada.
+Cuando la entidad autorizada, actuando por sí o en representación de los cesionarios, optare por los beneficios de la garantía, deberá traspasar al Banco la propiedad del respectivo inmueble.
+(Así modificada su numeración por el artículo único de la ley N° 9779 del 12 de noviembre del 2019, que la traspasó del antiguo artículo 114 al 120)
