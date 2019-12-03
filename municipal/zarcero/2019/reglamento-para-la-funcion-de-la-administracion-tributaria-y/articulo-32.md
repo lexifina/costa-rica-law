@@ -1,0 +1,4 @@
+Artículo 32—Sobre la documentación relacionada con los arreglos de pago.
+Toda la documentación que haya sido requerida por la Sección de Cobros de la Municipalidad para la suscripción del arreglo de pago, así como dicho documento, serán agregados al expediente y debidamente foliado, para su conservación. Los requisitos que se establezcan para ello serán los siguientes:
+Presentar debidamente lleno el formulario de solicitud de arreglo de pago, que será brindado por la municipalidad, el cual tendrá la validez de Declaración Jurada para todos los efectos legales.
+Cuando se trate de personas jurídicas, deberá aportarse la personería jurídica original con no más de quince días de emitida y un Estado de Resultados emitido por un profesional en contaduría privada o pública. Para las personas jurídicas sin actividad lucrativa, bastará el documento emitido por Tributación Directa.
