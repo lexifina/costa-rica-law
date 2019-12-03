@@ -1,10 +1,2 @@
-CAPITULO IV
-Del sector cooperativo
-Artículo 102.- Podrán optar por la condición de entidades
-autorizadas del Sistema, las cooperativas de vivienda, de ahorro y
-crédito y de servicios múltiples, organizadas o que se organicen de
-conformidad con la legislación del ramo, exclusivamente en la parte de
-sus operaciones dedicadas al financiamiento habitacional.
-También podrán optar por la condición de entes autorizados, los
-organismos de integración cooperativa de cobertura nacional que
-represente a más de diez asociaciones cooperativas.
+Artículo 102.- Las mutuales podrán constituirse en una federación con personalidad jurídica propia de Derecho privado, que se inscribirá en la Sección de Personas del Registro Público, con base en la respectiva escritura pública de constitución.
+(Así modificada su numeración por el artículo único de la ley N° 9779 del 12 de noviembre del 2019, que la traspasó del antiguo artículo 96 al 102)

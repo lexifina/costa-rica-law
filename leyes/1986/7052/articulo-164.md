@@ -1,4 +1,3 @@
-Artículo 164.- Las certificaciones de las entidades autorizadas,
-relativas a saldos a su favor, debidamente expedidas por sus
-representantes legales y refrendadas por sus auditores, constituyen
-título ejecutivo.
+Artículo 164.- Previa autorización del Banco, en cada caso, las entidades autorizadas estarán facultadas para otorgar financiamiento puente o interino para la preparación y ejecución de conjuntos habitacionales, así como también para las obras y servicios complementarios.
+Las entidades autorizadas podrán otorgar este financiamiento, individualmente o en conjunto con otras entidades que se interesen. A petición de las entidades autorizadas, el Banco podrá, si lo estimare conveniente para el sano desarrollo del Sistema, concederles asistencia financiera para que hagan frente a estas solicitudes, dentro de los términos y mecanismos que esta ley autoriza. La Junta Directiva del Banco deberá reglamentar esta disposición.
+(Así modificada su numeración por el artículo único de la ley N° 9779 del 12 de noviembre del 2019, que la traspasó del antiguo artículo 158 al 164)

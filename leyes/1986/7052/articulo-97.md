@@ -1,4 +1,2 @@
-Artículo 97.- La asamblea general de la federación se constituirá
-con los directores de las mutuales incorporadas a ella. El directorio de
-la federación estará integrado por un representante de cada una de las
-mutuales, elegidos por la asamblea general.
+Artículo 97.- (Derogado por el artículo 164 de la Ley Orgánica del Banco Central de Costa Rica, Nº 7558 de 3 de noviembre de 1995)
+(Así modificada su numeración por el artículo único de la ley N° 9779 del 12 de noviembre del 2019, que la traspasó del antiguo artículo 91 al 97)

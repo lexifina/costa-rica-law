@@ -1,6 +1,2 @@
-CAPITULO IV
-De los certificados de inversión inmobiliaria
-Artículo 132.- El Banco y las entidades autorizadas por ley, previa
-autorización del primero, podrán emitir títulos valores obligacionales
-denominados certificados de inversión inmobiliaria, conforme con los
-artículos siguientes, y colocarlos en el mercado de capitales.
+Artículo 132.- Las participaciones hipotecarias globales que emitan las entidades autorizadas serán previamente aprobadas por el Banco, en la forma que se establezca en el reglamento.
+(Así modificada su numeración por el artículo único de la ley N° 9779 del 12 de noviembre del 2019, que la traspasó del antiguo artículo 126 al 132)

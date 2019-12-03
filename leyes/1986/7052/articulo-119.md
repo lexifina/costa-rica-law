@@ -1,7 +1,2 @@
-De las participaciones hipotecarias
-Artículo 119.- Los derechos individualizados podrán ser cedidos,
-total o parcialmente, mediante un contrato de participación en hipotecas.
-Las citadas participaciones hipotecarias gozarán de la misma
-confidencialidad establecida para las cuentas bancarias, y se emitirán
-con los respectivos cupones de intereses. Deberán incluir, como mínimo,
-los requisitos a que se refiere el artículo 127 de esta ley.
+Artículo 119.- Los créditos hipotecarios garantizados por el Banco a que hace referencia esta ley, podrán ser cedidos de acuerdo con las leyes vigentes sobre el particular.
+(Así modificada su numeración por el artículo único de la ley N° 9779 del 12 de noviembre del 2019, que la traspasó del antiguo artículo 113 al 119)

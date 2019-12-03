@@ -1,3 +1,2 @@
-Artículo 166.- DEROGADO.
-(Derogado por el artículo 164 de la Ley Orgánica del Banco Central
-de Costa Rica, Nº 7558 de 3 de noviembre de 1995)
+Artículo 166.- En los casos en que se trate de la construcción de unidades habitacionales en condominio, la parte del capital de construcción que aporten los dueños del inmueble, que no sean clientes de las entidades autorizadas que otorgan el financiamiento, deberá ser depositada en ellas para su debida inversión.
+(Así modificada su numeración por el artículo único de la ley N° 9779 del 12 de noviembre del 2019, que la traspasó del antiguo artículo 160 al 166)

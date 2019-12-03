@@ -1,6 +1,4 @@
-Artículo 73.- Tendrán la condición de asociados:
-a) Las personas naturales que, como organizadores, hayan presentado la
-solicitud correspondiente y que aparezcan como tales en la escritura de
-constitución.
-b) Las personas naturales o jurídicas que tengan derecho por lo menos a
-un voto en las asambleas generales.
+Artículo 73.- Para obtener la condición de entidades autorizadas, las instituciones que tengan interés deben solicitarla por escrito al Banco. Antes de otorgar la autorización solicitada, la Junta Directiva deberá analizar la constitución legal, la situación financiera y la sujeción de las instituciones solicitantes a las disposiciones de sus leyes orgánicas, a sus contratos sociales, a los acuerdos, resoluciones y dictámenes de la Junta Directiva y a las demás condiciones que se dispongan en el reglamento de la presente ley para estos casos.
+Si como resultado de los análisis mencionados, la Junta Directiva, por votación afirmativa no menor de cinco de sus miembros, considerara que hay mérito suficiente para aprobar la solicitud, lo expresará así mediante resolución razonada.
+La condición de entidad autorizada que otorgue la Junta directiva, en virtud de las disposiciones precedentes, regirá mientras la institución calificada como tal cumpla con las condiciones y requisitos antes enumerados.
+(Así modificada su numeración por el artículo único de la ley N° 9779 del 12 de noviembre del 2019, que la traspasó del antiguo artículo 67 al 73)

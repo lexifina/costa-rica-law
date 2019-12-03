@@ -1,3 +1,2 @@
-Artículo 126.- Las participaciones hipotecarias globales que emitan
-las entidades autorizadas serán previamente aprobadas por el Banco, en la
-forma que se establezca en el reglamento.
+Artículo 126.- La entidad autorizada que haya cedido sus derechos hipotecarios continuará siendo titular legal de la hipoteca en su propio nombre, pero actuará como agente del cesionario en lo referente a todos los derechos de este último, adquiridos por la cesión respectiva; en consecuencia, la acreedora de que se trate tendrá la obligación de cobrar la deuda hipotecaria de conformidad con los términos de la hipoteca, las regulaciones y los procedimientos establecidos, incluida la ejecución hipotecaria.
+(Así modificada su numeración por el artículo único de la ley N° 9779 del 12 de noviembre del 2019, que la traspasó del antiguo artículo 120 al 126)

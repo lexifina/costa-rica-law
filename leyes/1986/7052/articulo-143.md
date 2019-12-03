@@ -1,3 +1,2 @@
-Artículo 143.- Los rendimientos efectivos de las inversiones del
-Fondo de estabilización se agregarán a su monto total, sin derecho a
-reembolso por parte de los aportantes.
+Artículo 143.- Las letras inmobiliarias de vivienda deberán ser aceptadas por la entidad que las emite, y podrán contar con el aval del Banco, lo que deberá expresarse en la letra. Estos títulos deberán emitirse con los requisitos indicados en el Código de Comercio. A tales títulos se les aplicará la razón de endeudamiento expresada en el artículo 135 de esta ley.
+(Así modificada su numeración por el artículo único de la ley N° 9779 del 12 de noviembre del 2019, que la traspasó del antiguo artículo 137 al 143)

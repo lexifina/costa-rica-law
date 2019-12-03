@@ -1,4 +1,2 @@
-Artículo 131.- Las participaciones hipotecarias globales podrán ser
-negociadas en la Bolsa Nacional de Valores y serán inscritas en ésta sin
-más trámite que la constancia de registro en el Banco o en otra
-institución, previa autorización del Banco.
+Artículo 131.- El monto del volumen total de las participaciones hipotecarias globales en circulación, no deberá exceder del noventa y cinco por ciento (95%) del saldo acumulado de los créditos hipotecarios que conformen la cartera de hipotecas elegibles.
+(Así modificada su numeración por el artículo único de la ley N° 9779 del 12 de noviembre del 2019, que la traspasó del antiguo artículo 125 al 131)

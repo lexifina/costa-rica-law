@@ -1,4 +1,4 @@
-Artículo 125.- El monto del volumen total de las participaciones
-hipotecarias globales en circulación, no deberá exceder del noventa y
-cinco por ciento (95%) del saldo acumulado de los créditos hipotecarios
-que conformen la cartera de hipotecas elegibles.
+De las participaciones hipotecarias
+Artículo 125.- Los derechos individualizados podrán ser cedidos, total o parcialmente, mediante un contrato de participación en hipotecas.
+Las citadas participaciones hipotecarias gozarán de la misma confidencialidad establecida para las cuentas bancarias, y se emitirán con los respectivos cupones de intereses. Deberán incluir, como mínimo, los requisitos a que se refiere el artículo 127 de esta ley.
+(Así modificada su numeración por el artículo único de la ley N° 9779 del 12 de noviembre del 2019, que la traspasó del antiguo artículo 119 al 125)

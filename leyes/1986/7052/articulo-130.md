@@ -1,5 +1,4 @@
-Artículo 130.- Las participaciones hipotecarias globales son títulos
-valores preferenciales y como tales gozan de todos los privilegios que
-tienen los títulos valores emitidos o garantizados por el Estado; son de
-libre comercio y pueden ser adquiridas, sin limitación alguna, por las
-instituciones del Estado, sin perjuicio de otras leyes vigentes.
+CAPITULO III
+De lo contratos de participaciones hipotecarias con garantía global
+Artículo 130.- Podrán emitirse contratos de participaciones hipotecarias con garantía global, que estarán respaldados con la garantía de la cartera hipotecaria de las entidades autorizadas, de acuerdo con el contenido de los artículos que forman el presente capítulo y del reglamento que al efecto establezca el Banco.
+(Así modificada su numeración por el artículo único de la ley N° 9779 del 12 de noviembre del 2019, que la traspasó del antiguo artículo 124 al 130)

@@ -1,3 +1,2 @@
-Artículo 87.- DEROGADO.
-(Derogado por el artículo 164 de la Ley Orgánica del Banco Central
-de Costa Rica, Nº 7558 de 3 de noviembre de 1995)
+Artículo 87.- Para que el directorio sesione legalmente se requerirá la concurrencia de, por lo menos, la mayoría de los directores. Las resoluciones deberán aprobarse con el voto de la mayoría de los directores presentes. En caso de empate, el presidente de la mutual tendrá doble voto.
+(Así modificada su numeración por el artículo único de la ley N° 9779 del 12 de noviembre del 2019, que la traspasó del antiguo artículo 81 al 87)

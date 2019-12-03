@@ -1,5 +1,3 @@
-Artículo 160.- En los casos en que se trate de la construcción de
-unidades habitacionales en condominio, la parte del capital de
-construcción que aporten los dueños del inmueble, que no sean clientes de
-las entidades autorizadas que otorgan el financiamiento, deberá ser
-depositada en ellas para su debida inversión.
+Artículo 160.- Los empleadores, sean instituciones del Estado, municipalidades, empresas o personas particulares, estarán obligados a deducir del sueldo de los trabajadores, cuando éstos lo soliciten, los ahorros periódicos fijos que deseen depositar en las entidades autorizadas que esta ley faculta para ese fin, así como las cuotas mensuales de pago de los préstamos hipotecarios que dichas personas hubieren recibido de cualquiera de las entidades del Sistema.
+Los organismos y empresas que hagan las retenciones de que trata este artículo, quedan también obligados a girar mensualmente el monto total retenido, a las entidades autorizadas que corresponda, bajo apercibimiento de las sanciones que al efecto se establezcan en el reglamento de la presente ley.
+(Así modificada su numeración por el artículo único de la ley N° 9779 del 12 de noviembre del 2019, que la traspasó del antiguo artículo 154 al 160)

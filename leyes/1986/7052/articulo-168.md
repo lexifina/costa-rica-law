@@ -1,7 +1,2 @@
-Artículo 168.- Toda operación hipotecaria realizada para los fines
-de esta ley, otorgada por una entidad autorizada, deberá contar con el
-respaldo de un seguro de incendio y terremoto, que cubra el avalúo de la
-vivienda existente o de la que esté en proceso de construirse, y de un
-seguro temporal de desgravamen hipotecario decreciente, emitidos ambos al
-costo por el Instituto Nacional de Seguros, a cuyo efecto éste y el Banco
-deberán negociar las primas correspondientes.
+Artículo 168.- Las entidades gubernamentales, las instituciones autónomas y los demás organismos del Estado, así como las instituciones públicas no estatales, quedan facultadas para invertir sus reservas en los títulos valores que emitan el Banco y las mutuales, de conformidad con lo dispuesto en esta ley.
+(Así modificada su numeración por el artículo único de la ley N° 9779 del 12 de noviembre del 2019, que la traspasó del antiguo artículo 162 al 168)

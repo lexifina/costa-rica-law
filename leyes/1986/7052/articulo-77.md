@@ -1,17 +1,9 @@
-Artículo 77.- En la sesión posterior a la de su instalación, el
-directorio designará de entre sus miembros a un presidente y a un
-vicepresidente, los cuales podrán ser reelegidos. El presidente del
-directorio lo será también de la mutual de que se trate, y tendrá la
-función de dirigir las sesiones del directorio y de las asambleas, así
-como la obligación de cumplir y hacer que se cumplan los acuerdos,
-resoluciones y demás disposiciones de esos dos cuerpos. En caso de
-ausencia temporal del presidente, será reemplazado por el vicepresidente,
-con iguales funciones.
-El presidente tendrá la representación judicial y extrajudicial de
-la mutual con las facultades de un apoderado generalísimo sin límite de
-suma. Acreditará su personería por inscripción de la escritura que se
-otorgará en lo conducente, relativa al acta de nombramiento y aceptación
-del cargo, en la Sección de Personas del Registro Público, o mediante
-aviso que se publicará en "La Gaceta", lo que será potestativo. El
-presidente podrá delegar esa representación en el director que indique el
-directorio, cuando éste lo considere necesario.
+Artículo 77.- La escritura de constitución de una mutual, que el Registro Público inscribirá sin causar derechos y sin ulterior trámite, deberá contener los siguientes datos:
+a) Los nombres y los apellidos, los números de las cédulas de identidad, las profesiones u oficios, las nacionalidades y los domicilios exactos de los fundadores.
+b) El nombre y el domicilio de la mutual en formación.
+c) El número de personas que integrará su directorio, el cual no podrá ser mayor de siete ni menor de cinco.
+ch) La nómina del directorio provisional, con indicación del nombre y los apellidos de su presidente, que fungirá hasta que se efectúe la primera asamblea general ordinaria.
+d) Los estatutos de la mutual.
+e) La autorización escrita del Banco para constituir la mutual.
+f) Cualquier otra información o documentación que se disponga en el reglamento o que el Banco exija.
+(Así modificada su numeración por el artículo único de la ley N° 9779 del 12 de noviembre del 2019, que la traspasó del antiguo artículo 71 al 77)

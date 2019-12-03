@@ -1,3 +1,2 @@
-Artículo 91.- DEROGADO.
-(Derogado por el artículo 164 de la Ley Orgánica del Banco Central
-de Costa Rica, Nº 7558 de 3 de noviembre de 1995)
+Artículo 91.- Cada ahorrante tendrá derecho a un voto en las asambleas generales, por cada quinientos colones (¢ 500,00) del saldo mínimo que haya tenido en su cuenta de ahorros durante los seis meses anteriores al mes en que se celebre la asamblea. Sin embargo, ningún asociado tendrá derecho a más de cincuenta votos propios, y ninguna persona podrá ejercer la representación de más de cincuenta votos en las asambleas.
+(Así modificada su numeración por el artículo único de la ley N° 9779 del 12 de noviembre del 2019, que la traspasó del antiguo artículo 85 al 91)

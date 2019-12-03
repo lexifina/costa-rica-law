@@ -1,27 +1,2 @@
-Artículo 118.- Los títulos valores que emitan el Banco y las
-entidades autorizadas tendrán las siguientes características:
-a) Pueden ser cedidos o negociados libremente.
-b) Pueden ser dados en prenda.
-c) Cuando se trate de títulos nominativos, su tenedor tendrá la
-facultad de designar beneficiarios, para el caso de muerte, quienes,
-cuando ésta ocurra y con sólo comprobarla, asumirán, de pleno derecho y
-sin necesidad de trámites judiciales o administrativos, la propiedad
-definitiva del respectivo título, para lo cual sólo requerirán su
-identificación como tales y si fueren menores, los de sus representantes.
-ch) Constituyen título ejecutivo hipotecario cuando su garantía original
-sea también hipotecaria, y título ejecutivo simple en los demás casos.
-d) Cuando tengan garantía hipotecaria, para los efectos de su cobro, el
-Banco o la entidad autorizada correspondiente continuará siendo titular
-de la hipoteca, pero deberá actuar como representante legal especial o ad
-hoc del cesionario, y, en consecuencia, la acreedora respectiva tendrá la
-obligación de cobrar la deuda hipotecaria de conformidad con sus
-términos, por los medios legales que procedan, sin costo alguno para el
-cesionario.
-e) Tienen la misma confidencialidad de las cuentas bancarias y pueden
-ser emitidos en forma nominativa, a la orden o al portador.
-f) Tienen las exenciones que determinan los incisos a) y b) del
-artículo 38 de esta ley.
-g) Pueden ser adquiridos sin limitación alguna por cualquier persona
-natural o institución pública o privada.
-h) Su garantía se pierde sólo por causas imputables el cesionario.
-i) Las demás que se determinen en el reglamento.
+Artículo 118.- En los casos en que el deudor o la entidad autorizada no cumplan con las condiciones legales, reglamentarias o materiales en que se basó el compromiso de garantía, el Banco enviará a ambos un aviso de incumplimiento, en el que se señalarán las condiciones de su compromiso de garantía que no han sido acatadas, y dará un plazo razonable para su cumplimiento. Cuando el incumplimiento fuese atribuido al deudor hipotecario y éste no lo subsanare dentro del plazo concedido, se dará por vencida la respectiva obligación hipotecaria y el titular del crédito quedará facultado para ejecutar la hipoteca, sin perjuicio de sus derechos como acreedor de una hipoteca garantizada. Cuando el incumplimiento fuere atribuido a una entidad autorizada, transcurrido el plazo otorgado para subsanarlo, se dará por vencido el correspondiente compromiso de garantía.
+(Así modificada su numeración por el artículo único de la ley N° 9779 del 12 de noviembre del 2019, que la traspasó del antiguo artículo 112 al 118)

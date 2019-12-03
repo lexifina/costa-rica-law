@@ -1,3 +1,2 @@
-Artículo 103.- A estos entes se les aplicarán todas aquellas
-disposiciones limitativas señaladas para las asociaciones mutualistas de
-ahorro y crédito.
+Artículo 103.- La asamblea general de la federación se constituirá con los directores de las mutuales incorporadas a ella. El directorio de la federación estará integrado por un representante de cada una de las mutuales, elegidos por la asamblea general.
+(Así modificada su numeración por el artículo único de la ley N° 9779 del 12 de noviembre del 2019, que la traspasó del antiguo artículo 97 al 103)

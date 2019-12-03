@@ -1,6 +1,2 @@
-Artículo 174.- Las facultades conferidas en esta ley al Banco
-Hipotecario de la Vivienda, en cuanto al funcionamiento de las entidades
-autorizadas, sólo corresponden al financiamiento de viviendas que
-otorguen éstas. En consecuencia, las otras funciones para las que tengan
-facultad las entidades autorizadas quedan fuera de la competencia y del
-control del Banco.
+Artículo 174.- Toda operación hipotecaria realizada para los fines de esta ley, otorgada por una entidad autorizada, deberá contar con el respaldo de un seguro de incendio y terremoto, que cubra el avalúo de la vivienda existente o de la que esté en proceso de construirse, y de un seguro temporal de desgravamen hipotecario decreciente, emitidos ambos al costo por el Instituto Nacional de Seguros, a cuyo efecto éste y el Banco deberán negociar las primas correspondientes.
+(Así modificada su numeración por el artículo único de la ley N° 9779 del 12 de noviembre del 2019, que la traspasó del antiguo artículo 168 al 174)

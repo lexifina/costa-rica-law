@@ -1,8 +1,2 @@
-Artículo 150.- Para la aplicación de las exenciones tributarias que
-se establecen en esta ley, el Banco en consulta con el Instituto Nacional
-de Vivienda y Urbanismo, deberá definir lo que se entiende por vivienda
-de carácter social y por otros tipos de vivienda, a fin de establecer
-claramente sus diferencias.
-En todo caso, el Banco tendrá como definiciones primarias, en este
-sentido, aquellas expresadas por leyes específicas que regulen la
-materia.
+Artículo 150.- La Junta Directiva del Banco reglamentará, en el curso de los doce meses siguientes a su instalación, todo lo relativo al Fondo de estabilización y a sus operaciones.
+(Así modificada su numeración por el artículo único de la ley N° 9779 del 12 de noviembre del 2019, que la traspasó del antiguo artículo 144 al 150)
