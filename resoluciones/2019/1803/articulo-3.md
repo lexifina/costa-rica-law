@@ -1,0 +1,1 @@
+Artículo 3º—A efectos de que la Dirección General de Educación Vial, y el Cosevi ordenen sus procedimientos internos y ajustes informáticos para dar cabal cumplimiento a esta resolución, se otorga un mes de plazo contado a partir de su publicación.
