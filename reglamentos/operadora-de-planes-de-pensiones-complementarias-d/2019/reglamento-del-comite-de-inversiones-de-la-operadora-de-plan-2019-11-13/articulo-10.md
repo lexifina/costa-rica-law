@@ -1,0 +1,1 @@
+Artículo 10.—Políticas para la adquisición de inversiones. Las políticas para la adquisición de inversiones se apegarán a los límites de exposición al riesgo de manera global y por tipo de riesgo, la política de inversión aprobada por la Junta Directiva.

@@ -1,0 +1,1 @@
+Artículo 8º—Parámetro de Inversión. La Dirección de Inversiones, gestionarán respectivamente las transacciones en conformidad con los parámetros definidos en la política de inversión, siempre en apego a los criterios de oportunidad, estrategias de inversión y requerimientos de flujo de caja.

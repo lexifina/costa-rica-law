@@ -1,0 +1,1 @@
+Artículo 7º—Objetivo de las inversiones. El Comité velará por mantener un balance adecuado entre rentabilidad y riesgo, salvaguardando en todo momento los intereses de los afiliados a los fondos, y cumpliendo lo establecido en la normativa aplicable.
