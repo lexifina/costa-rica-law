@@ -18,3 +18,4 @@ Procedimiento ECA-MC-P07 Quejas y Sugerencias V03
 | 3 | 2015-09-07 | Acuerdo 0 (2015-09-07) |
 | 4 | 2016-04-18 | Acuerdo 5 (2016-04-18) |
 | 5 | 2019-04-22 | Acuerdo 6 (2019-04-22) |
+| 6 | 2019-12-04 | Acuerdo 13 (2019-12-04) |
