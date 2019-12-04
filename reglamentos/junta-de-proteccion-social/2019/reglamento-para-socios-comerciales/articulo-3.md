@@ -1,0 +1,1 @@
+Artículo 3.- Ámbito de Aplicación. - Este reglamento será de aplicación para todo vendedor autorizado y/o adjudicatario, sean personas físicas o jurídicas que deseen constituirse o estén constituidos como Socios Comerciales.

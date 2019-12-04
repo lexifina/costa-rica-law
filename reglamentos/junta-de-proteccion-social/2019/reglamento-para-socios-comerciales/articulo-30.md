@@ -1,0 +1,3 @@
+Artículo 30.- De los Reclamos por Diferencias que Presenten los Vendedores de Lotería- Cuando un Socio Comercial presente un reclamo por diferencias en las loterías entregadas, la Junta realizará una investigación para determinar si el mismo es procedente.
+En caso de que la investigación resulte procedente, el Socio Comercial deberá suministrar los videos correspondientes que demuestren la situación que reclama a efecto de contar con la evidencia necesaria para su resolución.
+En los casos que se determine que la diferencia reclamada por lotería recibida en el proceso de recepción de lotería no vendida, obedece a un error del Socio Comercial, éste se hará responsable por el reintegro de dinero equivalente a la misma.

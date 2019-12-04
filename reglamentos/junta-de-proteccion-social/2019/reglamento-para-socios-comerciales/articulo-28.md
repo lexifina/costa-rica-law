@@ -1,0 +1,1 @@
+Artículo 28.- De la Recepción de la Lotería Preimpresa Recibida en la Compra de Excedentes- El Socio Comercial entregará los paquetes de loterías preimpresas recibidas en la compra de excedentes conforme a los procedimientos establecidos para tal fin, ya sea en las oficinas centrales de la Junta o en otro lugar que ésta determine.

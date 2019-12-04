@@ -1,0 +1,1 @@
+Artículo 27.- De la Comisión por Recepción de Excedentes- La Junta definirá el porcentaje de comisión que se pagará al Socio Comercial por la recepción de excedentes. El pago de la comisión que se establezca, se llevará a cabo de manera quincenal y se calculará tomando como base para ello, la cantidad de fracciones recibidas.

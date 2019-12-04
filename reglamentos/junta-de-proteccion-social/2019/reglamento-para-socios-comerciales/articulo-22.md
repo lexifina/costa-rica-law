@@ -1,0 +1,3 @@
+Artículo 22.- De la Garantía para el Reembolso por Cambio de Premios- El Socio Comercial deberá rendir una garantía para el reembolso por cambio de premios que consiste en la suscripción de una letra de cambio. La Junta definirá el monto que debe cubrir la garantía que rinda el Socio Comercial.
+Esta garantía deberá tener una vigencia mínima de un año y ser equivalente al monto que para el cambio de premios le haya sido autorizado por la Junta al Socio Comercial.
+A efecto de que la Junta pueda desembolsarle el monto de los premios cambiados al Socio Comercial, el mismo día en que éste los presenta, el rendimiento de la garantía por su parte es obligatorio.

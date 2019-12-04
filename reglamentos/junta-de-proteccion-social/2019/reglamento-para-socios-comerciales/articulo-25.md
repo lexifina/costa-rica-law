@@ -1,0 +1,1 @@
+Artículo 25.- De la Comisión por Cambio de Premios- La Junta definirá el porcentaje de comisión que se pagará al Socio Comercial por el cambio de premios que realice. El pago de la comisión que se establezca, se llevará a cabo de manera quincenal y se calculará tomando como base para ello, el total de premios cambiados.

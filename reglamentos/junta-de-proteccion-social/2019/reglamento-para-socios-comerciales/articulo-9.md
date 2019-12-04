@@ -1,0 +1,1 @@
+Artículo 9.- Del Porcentaje de Descuento. - La Junta definirá los porcentajes de descuento por venta de lotería que le aplicará a cada Socio Comercial ya sean personas jurídicas o físicas, conforme a las necesidades y requerimientos del mercado.

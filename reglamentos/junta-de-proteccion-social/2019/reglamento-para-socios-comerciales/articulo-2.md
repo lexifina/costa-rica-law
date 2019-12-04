@@ -1,0 +1,1 @@
+Artículo 2.- Objeto. - El presente reglamento regula las condiciones que rigen para el trámite de constitución en Socio Comercial, así como los deberes y derechos de los vendedores autorizados y/o adjudicatarios que se constituyan como tales.
