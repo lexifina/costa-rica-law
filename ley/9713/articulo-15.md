@@ -1,0 +1,4 @@
+ARTÍCULO 15- Revisión, verificación y recalificación
+Toda declaración queda sujeta a revisión y verificación por los medios establecidos en esta ley. Si se comprueba que los datos suministrados son incorrectos o inexactos, por cuya circunstancia se determina una variación en el tributo, se procederá a la recalificación correspondiente.
+En cualquier caso, la declaración jurada que deben presentar los patentados ante la Municipalidad, su contenido, veracidad o exactitud, así como las mencionadas distribuciones de ingresos brutos entre los cantones, quedan sujetos a las disposiciones especiales del régimen sancionatorio la omisión, la falsedad o cualquier desviación de los datos suministrados.
+Asimismo, de forma supletoria se aplicarán los artículos 103, 104, 116, 123 y 124 de la Ley N.° 4755, Código de Normas y Procedimientos Tributarios, de 3 de mayo de 1971.

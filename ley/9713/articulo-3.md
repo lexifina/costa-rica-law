@@ -1,0 +1,4 @@
+ARTÍCULO 3- Licencia e impuesto
+Las actividades enunciadas en el artículo 1 de esta ley obligan al interesado a tener un permiso o una licencia de funcionamiento.
+La licencia se cancela o llega a su fin a solicitud razonada del interesado o cuando haya evidencia de que la actividad no está siendo ejercida, lo cual será decidido por la Municipalidad mediante la respectiva resolución, previa inspección municipal. La inspección municipal verificará el cumplimiento de los criterios de accesibilidad establecidos en la Ley N.º 7600, Igualdad de Oportunidades para las Personas con Discapacidad, de 2 de mayo de 1996.
+Las personas que ejerzan su profesión y que se encuentren organizadas bajo una sociedad o asociación de tipo mercantil, de hecho o derecho, quedan obligadas a obtener una licencia y al pago correspondiente.
