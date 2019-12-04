@@ -6,3 +6,5 @@ c) Firmar un contrato de adhesión de beca preestablecido por el ICODER y cumpli
 d) Respetar las normas disciplinarias nacionales e internacionales regidas por su deporte.
 e) Respetar las Normas de Lucha contra el Dopaje.
 f) Indicar al menos con 12horas de anticipación por medio de un correo electrónico los cambios de horario y/o lugar de entrenamiento en caso de existir alguna modificación en lo indicado en los reportes mensuales.
+g) La beca ICODER se le depositara al atleta beneficiado a la cuenta cliente y cuenta Iban indicada en el CODIGO BEC-05.
+(Así adicionado el inciso anterior mediante publicación en el Alcance Digital N° 270 a La Gaceta N° 231 del 4 de diciembre del 2019)

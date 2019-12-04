@@ -8,16 +8,24 @@ MANUAL DE PROCEDIMIENTOS PROGAMA DE BECAS DEPORTIVAS ICODER
 ** Oficio indicando el inicio del proceso de becas por parte de la Dirección de Deporte del ICODER.
 ** Cada Entidad Deportiva de Representación Nacional está recibiendo la documentación y capacitación necesaria para este proceso, y las dudas o consultas sobre este proceso se tramitan en la Oficina de Rendimiento Deportivo, Tercer Piso del Estadio Nacional de La Sabana, en horario de 8:00 a.m. a 12 m.d.
 2. Entrega de documentación de las Entidades Deportivas de Representación Nacional y sus atletas seleccionados Nacionales.
-| CRONOGRAMA DE ACTIVIDADES – ETAPA 1. | Fecha de inicio | Fecha de cierre
-2 | Entidades Deportivas entregan la documentación del proceso de becas al ICODER para iniciar análisis de propuestas. | SETIEMBRE / OCTUBRE | OCTUBRE
+EXPEDIENTE.
+| CRONOGRAMA DE ACTIVIDADES – ETAPA 1. | Fecha de inicio | | Fecha de cierre |
+1 | Entidades Deportivas reciben la documentación del proceso de becas y se atienden consultas de las Entidades sobre el nuevo proceso. | AGOSTO / NOVIEMBR E | | NOVIEMBRE |
+(Así reformado el cuadro anterior mediante publicación en el Alcance Digital N° 270 a La Gaceta N 231 del 4 de diciembre del 2019)
 **Cada expediente debe contar con la documentación completa de cada atleta postulado, (UN
 EXPEDIENTE POR ATLETA), y sea el atleta becado anteriormente o nuevo ingreso. Además tiene que estar revisado por la Entidad Deportiva de Representación Nacional y tener todos los adjuntos solicitados, como se muestra en seguida:
  Entregar en un AMPO (Archivador T-832) la documentación que se solicita en el orden indicado, además en la pestaña el nombre completo del atleta y número de cédula, con cita en la Oficina #4, Tercer Piso del Estadio Nacional de La Sabana, en Rendimiento Deportivo, en horario de 8:00 a.m. a 12 m.d, en físico.
- En el interior del AMPO (Archivador T-832), el reglamento del programa de becas deportivas para atletas seleccionados nacionales o atletas de proyección deportiva hacia el alto rendimiento, publicado en La Gaceta N°35 del 19 de febrero del 2015. Archivo: CODIGO BEC-01.
- En el interior del AMPO (Archivador T-832), el manual de procedimientos- Archivo: CODIGO BEC-02.
- En el interior del AMPO (Archivador T-832), la carta de invitación al proceso de becas, Oficio DN-CPSN- Archivo: CODIGO BEC-03.
- En el interior del AMPO (Archivador T-832), la carta de la ENTIDAD DEPORTIVA postulando al atleta al proceso de becas, Oficio firmado y sellado por el representante legal de la Federación o Asociación Deportiva de Representación Nacional, con el número de Acuerdo y Sesión de Junta Directiva. Archivo: CODIGO BEC-04.
- En el interior del AMPO (Archivador T-832), de último, el Formulario de Solicitud de Beca completo de manera digital e impreso, las firmas en cada sitio donde corresponde y los anexos que el formulario solicita. (VER ANEXOS). Archivo: CODIGO BEC-05.
+ En el interior del EXPEDIENTE(*) (Archivador T-832), el reglamento del programa de becas deportivas para atletas seleccionados nacionales o atletas de proyección deportiva hacia el alto rendimiento, publicado en La Gaceta N°35 del 19 de febrero del 2015. Archivo: CODIGO BEC-01.
+(*)(Así reformado el punto anterior mediante publicación en el Alcance Digital N° 270 a La Gaceta N 231 del 4 de diciembre del 2019)
+ En el interior del EXPEDIENTE (*) (Archivador T-832), el manual de procedimientos- Archivo: CODIGO BEC-02.
+(*)(Así reformado el punto anterior mediante publicación en el Alcance Digital N° 270 a La Gaceta N 231 del 4 de diciembre del 2019)
+ En el interior del EXPEDIENTE (*) (Archivador T-832), la carta de invitación al proceso de becas, Oficio DN-CPSN- Archivo: CODIGO BEC-03.
+(*)(Así reformado el punto anterior mediante publicación en el Alcance Digital N° 270 a La Gaceta N 231 del 4 de diciembre del 2019)
+ En el interior del EXPEDIENTE (*) (Archivador T-832), la carta de la ENTIDAD DEPORTIVA postulando al atleta al proceso de becas, Oficio firmado y sellado por el representante legal de la Federación o Asociación Deportiva de Representación Nacional, con el número de Acuerdo y Sesión de
+Junta Directiva. Archivo: CODIGO BEC-04.
+(*)(Así reformado el punto anterior mediante publicación en el Alcance Digital N° 270 a La Gaceta N 231 del 4 de diciembre del 2019)
+ En el interior del EXPEDIENTE (*)(Archivador T-832), de último, el Formulario de Solicitud de Beca completo de manera digital e impreso, las firmas en cada sitio donde corresponde y los anexos que el formulario solicita. (VER ANEXOS). Archivo: CODIGO BEC-05.
+(*)(Así reformado el punto anterior mediante publicación en el Alcance Digital N° 270 a La Gaceta N 231 del 4 de diciembre del 2019)
 EL ATLETA TIENE QUE ADJUNTAR EN SU EXPEDIENTE:
  Copia de la cédula de identidad del atleta por ambos lados.
  Copia de la cédula de identidad del tutor por ambos lados en caso de menores de edad.
@@ -82,12 +90,18 @@ Entidades Deportivas de Representación Nacional
 Estimados presidentes:
 Reciban un cordial saludo, a la vez nos permitimos hacer de su conocimiento que a partir de agosto del presente año da inicio del proceso de becas por parte de la Dirección de Deporte del ICODER.
 Cada Entidad Deportiva de Representación Nacional está recibiendo la documentación y capacitación necesaria para este proceso, y las dudas o consultas sobre este proceso se tramitan desde agosto y hasta el setiembre del año en curso, en la Oficina de Rendimiento Deportivo, Tercer Piso del Estadio Nacional de La Sabana, en horario de 8:00 a.m. a 12 m.d. Además se les informa que cada expediente debe contar con la documentación completa de cada atleta postulado, (UN EXPEDIENTE POR ATLETA), sea este atleta becado anteriormente o nuevo ingreso. Además tiene que estar revisado por la Entidad Deportiva de Representación Nacional y tener todos los adjuntos solicitados, como se muestra en seguida:
- Entregar en un AMPO (Archivador T-832) la documentación que se solicita en el orden indicado, además en la pestaña del folder el nombre completo del atleta y número de cédula, con cita en la Oficina #4, Tercer Piso del Estadio Nacional de La Sabana, en Rendimiento Deportivo, en horario de 8:00 a.m. a 12 m.d, en físico.
- En el interior del AMPO (Archivador T-832), el reglamento del programa de becas deportivas para atletas seleccionados nacionales o atletas de proyección deportiva hacia el alto rendimiento, Archivo: CODIGO BEC-01.
- En el interior del AMPO (Archivador T-832), el manual de procedimientos- Archivo: CODIGO BEC-02.
- En el interior del AMPO (Archivador T-832), la carta de invitación al proceso de becas, Oficio DN-CPSN- Archivo: CODIGO BEC-03.
- En el interior del AMPO (Archivador T-832), la carta de la ENTIDAD DEPORTIVA postulando al atleta al proceso de becas, Oficio firmado y sellado por el representante legal de la Federación o Asociación Deportiva de Representación Nacional, con el número de Acuerdo y Sesión de Junta Directiva. Archivo: CODIGO BEC-04.
- En el interior del AMPO (Archivador T-832), de último, el Formulario de Solicitud de Beca completo de manera digital e impreso y los anexos que el formulario solicita. (VER ANEXOS). Archivo: CODIGO BEC-05.
+ Entregar en un EXEDIENTE (*) (Archivador T-832) la documentación que se solicita en el orden indicado, además en la pestaña del folder el nombre completo del atleta y número de cédula, con cita en la Oficina #4, Tercer Piso del Estadio Nacional de La Sabana, en Rendimiento Deportivo, en horario de 8:00 a.m. a 12 m.d, en físico.
+(*)(Así reformado el punto anterior mediante publicación en el Alcance Digital N° 270 a La Gaceta N 231 del 4 de diciembre del 2019)
+ En el interior del EXEDIENTE(*) (Archivador T-832), el reglamento del programa de becas deportivas para atletas seleccionados nacionales o atletas de proyección deportiva hacia el alto rendimiento, Archivo: CODIGO BEC-01.
+(*)(Así reformado el punto anterior mediante publicación en el Alcance Digital N° 270 a La Gaceta N 231 del 4 de diciembre del 2019)
+ En el interior del EXEDIENTE (*)(Archivador T-832), el manual de procedimientos- Archivo: CODIGO BEC-02.
+(*)(Así reformado el punto anterior mediante publicación en el Alcance Digital N° 270 a La Gaceta N 231 del 4 de diciembre del 2019)
+ En el interior del EXEDIENTE (*)(Archivador T-832), la carta de invitación al proceso de becas, Oficio DN-CPSN- Archivo: CODIGO BEC-03.
+(*)(Así reformado el punto anterior mediante publicación en el Alcance Digital N° 270 a La Gaceta N 231 del 4 de diciembre del 2019)
+ En el interior del EXEDIENTE (*)(Archivador T-832), la carta de la ENTIDAD DEPORTIVA postulando al atleta al proceso de becas, Oficio firmado y sellado por el representante legal de la Federación o Asociación Deportiva de Representación Nacional, con el número de Acuerdo y Sesión de Junta Directiva. Archivo: CODIGO BEC-04.
+(*)(Así reformado el punto anterior mediante publicación en el Alcance Digital N° 270 a La Gaceta N 231 del 4 de diciembre del 2019)
+ En el interior del EXEDIENTE (Archivador T-832), de último, el Formulario de Solicitud de Beca completo de manera digital e impreso y los anexos que el formulario solicita. (VER ANEXOS). Archivo: CODIGO BEC-05.
+(*)(Así reformado el punto anterior mediante publicación en el Alcance Digital N° 270 a La Gaceta N 231 del 4 de diciembre del 2019)
 EL ATLETA TIENE QUE ADJUNTAR EN SU EXPEDIENTE:
  Copia de la cédula de identidad del atleta por ambos lados.
  Copia de la cédula de identidad del tutor por ambos lados en caso de menores de edad.
@@ -191,6 +205,7 @@ Métodos de entrenamiento: Idem anterior | (5pts) | 5 métodos como mínimo, 1 p
 Test pedagógicos: De orden físico y técnico; señale los objetivos y fechas de realización, resultados esperados. | (5pts) | 5 Test como mínimo, 1 puntos por cada uno
 Control y seguimiento Médico: Área de intervención, tipo de control, pruebas, fecha de realización, profesionales responsables. | (3pts) | Indicar como mínimo 3, 1 puntos por cada uno
 Requerimientos y necesidades | (3pts) | no indico = 0 punto indica 1 = 1 punto indica 2 = 2 punto indica 3 = 3 punto
+(Así reformado el cuadro anterior mediante publicación en el Alcance digital N° 270 a La Gaceta N° 231 del de diciembre del 2019)
 2.2 Macrociclo: Plan Gráfico: | (54pts) |
 Fechas de comienzo y terminación | (1pts) | no indico = 0 puntos
 A quien(es) va dirigido: nombre del Equipo o Atleta; además debe incluir el Cuerpo Técnico o Entrenador responsable | (2pts) | 1 puntos por cada uno
@@ -200,123 +215,228 @@ Plan de Carga: indicando el tipo de capacidad o tarea a desarrollar; presentar l
 | | los % bien 2 puntos, indico 2 de los % bien 4 puntos, indico 3 de los % bien 6 puntos, indico 4 de los % bien 8 puntos, indico 5 o más de los % bien 10 puntos )
 Competencias planificadas: Preparatorias, Fundamentales y Principales. (Señale en el microciclo y fechas probables de realización) | (3pts) | 1punto por cada una
 Test pedagógicos: (Señale en el microciclo y fechas probables de realización). | (5pts) | Estos deberán indicar como mínimo 5, 1punto por cada uno
-CÓDIGO BEC-07
+(*) CÓDIGO BEC-07
 Criterios de evaluación BECAS
-Objetivo general:
-Facilitar un aporte, beca o incentivo económico a los mejores atletas costarricenses y seleccionados nacionales, evaluados por la Comisión Permanente de Selecciones Nacionales con parámetros y criterios técnicos establecidos, luego de obtener resultados importantes durante el último período anual competitivo o que poseen un alto potencial para el alto rendimiento competitivo, comprobado y certificado.
-Otros puntos a valorar o evaluar por la Comisión Permanente de Selecciones Nacionales:
-1. Frecuencia de entrenamiento semanal como seleccionado nacional para el año, según está plasmado en el plan de entrenamiento anual que los atletas deben aportar, siendo el porcentaje de asistencia del 100%.
-2. La categoría competitiva del evento donde se compitió y alcanzó el logro deportivo y el tipo de atletas participantes, para lo cual los atletas deben aportar el ranking y otros anexos que respalden los datos brindados.
-3. Valoración del grupo interdisciplinario cuando se considere oportuno por parte de la Comisión.
-4. Obtener una calificación superior al 80% en la calificación del Macrociclo de trabajo, según lo establecido por el Departamento de Rendimiento Deportivo, según se indica en el anexo CODIGO BEC-05.
-5. Además de los logros obtenidos en el último año también se valora la proyección deportiva del atleta para el próximo ciclo olímpico o competitivo de la disciplina, siendo importante el fortalecimiento y continuidad de los proyectos deportivos de la Entidad Deportiva y los atletas.
-6. Entrega de formulario completo, sin omisión de información y llenado de manera digital. (NO se revisa formularios completados a mano, ni incompletos).
-7. Cumplimiento del código de ética y respeto a las normas, acuerdos o directrices emitidos por la Comisión Permanente de Selecciones Nacionales o el Consejo Nacional del Deporte y la Recreación.
-8. En deportes de tiempo y marca los registros deben ser mejores de una competencia a otra y mostrar una estabilidad de tiempos en sus últimas competencias.
-9. En deportes de conjunto además de alcanzar el logro deportivo colectivo deben de tener logros o menciones individuales como atletas destacados en el evento deportivo internacional.
-10. En deportes de raqueta, contacto o combate deberán entregar las llaves de competencia desde la fase inicial hasta la final.
-11. Todo atleta debe tomar en cuenta que para optar por la beca deberá dedicarse solamente en una disciplina deportiva de manera constante y continua. Sin embargo queda a criterio de la Comisión Permanente de Selecciones Nacionales avalar la participación de un atleta en eventos de otras disciplinas cuando su preparación lo amerita.
-12. Se entregarán becas deportivas únicamente a los atletas que tengan las condiciones básicas necesarias para entrenarse y lo hagan de manera constante y continua. La responsabilidad de la Entidad Deportiva es el seguimiento y control de su asistencia, así como brindar estas condiciones.
-CATEGORÍA DE BECAS: MAYOR
-Categoría de Atleta Mayor TOP. | Hasta: 1.500.000 colones
-Categoría de Atleta Mayor Elite | Hasta: 900.000 colones
-Categoría de Atleta Mayor Avanzado | Hasta: 600.000 colones
-Categoría de Atleta Mayor en Ascenso | Hasta: 300.000 colones
-CATEGORÍA DE BECAS: JUVENIL (Según la categorización de su disciplina deportiva)
-Categoría de Atleta Juvenil TOP | Hasta: 500.000 colones
-Categoría de Atleta Juvenil Elite | Hasta: 300.000 colones
-Categoría de Atleta Juvenil Avanzado | Hasta: 150.000 colones
-Categoría de Atleta Juvenil en Ascenso | Hasta: 100.000 colones
+Glosario
+CNDR = Consejo Nacional del Deporte y la Recreación
+ICODER = Instituto Costarricense del Deporte y la Recreación
+CPSN = Comisión Permanente de Selecciones Nacionales
+CON = Comité Olímpico Nacional
+JJOO = Juegos Olímpicos
+JPA = Juegos Panamericanos
+JCyCa = Juegos Centroamericanos y del Caribe
+JCA= Juegos Centroamericanos
+Beca = Ayuda económica procederte de fondos públicos o privados que se concede a una persona para pagar total o parcialmente sus gastos.
+NORCECAS = Norte América, Centroamérica, Centroamérica y Caribe
+NACAC = Norte América, Centroamérica y Caribe
+TROPHY = Copa por regiones
+INT = Internacional
+AVAN = Avanzado
+ASCEN = Ascenso
+Objetivo General del Programa de Becas:
+Otorgar un aporte, beca o incentivo a los atletas Seleccionados Nacionales o de proyección deportiva hacia el alto rendimiento que debe ser utilizada para mantener o mejorar su rendimiento deportivo en todo su proceso de preparación deportiva, evaluados por la Comisión Permanente de Selecciones Nacionales con parámetros y criterios técnicos establecidos, luego de obtener resultados importantes durante el último período anual competitivo o que poseen un alto potencial para el alto rendimiento competitivo, comprobado y certificado.
+Objetivo de los Criterios de evaluación BECAS:
+Aplicar las herramientas o instrumentos que permita al Equipo Interdisciplinario que conforma la CPSN, asignar de manera oportuna los recursos.
+Otros puntos para valorar o evaluar por la CPSN:
+1. Con el fin de distribuir y otorgar el incentivo económico a los atletas Seleccionados Nacionales:
+a. Caracterizar las Entidades Deportivas de Representación Nacional.
+b. Frecuencia de entrenamiento de cada atleta correspondiente al menos al 90%.
+c. Evaluar el evento donde se compitió y alcanzó el logro deportivo y el tipo de atletas participantes, para lo cual los atletas deben aportar el ranking y otros anexos que respalden los datos brindados.
+d. Consultar en caso de existir alguna duda, cuando la CPSN lo considere pertinente, a algún grupo de profesionales del área del deporte y la salud que atienden a los Seleccionados Nacionales.
+e. Obtener una calificación de al menos el 90% del plan escrito presentado, según lo establecido por el Departamento de Rendimiento Deportivo, como se indica en el anexo CODIGO BEC-06.
+2. Entrega de formulario completo, sin omisión de información y llenado de manera digital. NO se revisa formularios completados a mano, ni incompletos.
+3. La CPSN se reserva el derecho de emitir una lista de atletas becados que, por resultados en el año a evaluar; el cumplimiento en la entrega de informes mensuales y el aval de la Entidad Deportiva, se les aplicará un procedimiento expedito de renovación de Beca Deportiva ICODER para el año siguiente. Cabe mencionar que aquellos atletas que no figuren en esta lista deberán realizar el trámite completo con todos los requisitos que se solicitan para optar por beca.
+4. Cumplimiento del código de ética y respeto a las normas, acuerdos o directrices emitidos por la CPSN o el CNDR.
+5. En deportes de tiempo y marca, los registros deben ser mejores de una competencia a otra y/o mostrar una estabilidad de tiempos en sus últimas competencias.
+6. En deportes de conjunto, raqueta, combate, arte y precisión, deberán entregar las llaves de competencia desde la fase inicial hasta la final, además de indicar si previo a esa competencia, desarrollaron un proceso eliminatorio, en la que se demuestre que realizaron una serie de partidos, heats, rondas o combates en los que se ganaron la clasificación a dicho evento.
+7. En todos los deportes en que la competencia se lleve a cabo por llaves de eliminatoria directa o por arrastre a repechaje, en el cual el competidor de Costa Rica no gane al menos un partido, combate, heat, ronda, quedara a criterio de La CPSN, mediante un análisis técnico, si este atleta puede recibir el monto que indica la tabla de puntuación.
+8. Todo evento reportado en la solicitud de Becas ICODER que no se encuentre contemplado en la Tabla General de puntuación para Criterios de Asignación de Becas ICODER, podrá ser valorado por la CPSN, siguiendo los criterios establecidos para las disciplinas deportivas similares en este reglamento.
+9. Cuando un atleta logre un resultado en los Circuitos del Ranking Mundial, la CPSN podrá valorar el resultado a fin de ser considerado como Ranking General Mundial y no en un evento específico.
+10. Todo atleta debe tomar en cuenta que para optar por la beca deberá dedicarse solamente a una disciplina deportiva de manera constante y continua. Sin embargo, queda a criterio de la CPSN avalar la participación de un atleta en eventos de otras disciplinas cuando su preparación lo amerite.
+11. Todo atleta que por ranking de su entidad deportiva se encuentren clasificado a JJOO, pero el proceso de clasificación no ha terminado, podrá recibir el monto indicado para los atletas clasificados a JJOO, una vez terminado el proceso de clasificación por ranking la CPSN mediante un análisis técnico, definirá si este atleta puede seguir recibiendo el monto indicado en los criterios de evaluación de becas.
+12. Todo atleta con resultados a nivel mayor que demuestre una proyección objetiva a mediano y largo plazo será valorado por la CPSN mediante un análisis técnico con el fin de determinar si este atleta puede recibir un monto mayor del que indica la tabla de puntuación.
+[imagen]
+Todo Atleta:
+Clasificado a Juegos Olímpicos | Hasta ₡600,000.00
+Clasificado a Juegos Panamericanos | Hasta ₡400,000.00
+Clasificado a Juegos Centroamericanos y Caribe | Hasta ₡200,000.00
+Una vez pasada la justa deportiva, la Comisión Permanente de Selecciones Nacionales podrá evaluar la participación de cada atleta con el fin de ajustar el monto que recibe.
+CATEGORÍA DE BECAS: ATLETAS MAYORES
 1. Categoría de Atleta TOP.
-Atletas que participen en disciplinas o pruebas de nivel individual o colectivo convocados por su Federación y/o ente Internacional Respectivo y que participen también en eventos del Ciclo Olímpico o Paraolímpico, podrán obtener una beca económica hasta 1.500.000 colones mensuales. En esta categoría hay tres divisiones:
-1.1. Beca TOP 1: Hasta 1.500.000 Colones mensuales o Ser medallista de Juegos Olímpicos de verano o invierno.
-1.2. Becas TOP 2: Hasta 1.250.000 Colones mensuales o Ser Medallitas de Campeonato Mundial de nivel individual o colectivo con la presencia de mínimo 24 países en su respectivo evento o categoría.
-1.3. Becas TOP 3: Hasta 1.000.000 Colones mensuales o Obtener un Primer lugar como mínimo en los Juegos Panamericanos.
-Nota: Aquellos atletas medallistas de los deportes de combate o raqueta que hubieran ganado como mínimo 4 combates o partidos de la fase final inclusive para obtener la medalla, podrán estar en esta categoría.
-MAYOR | MONTO | JUEGOS | JUEGOS | JUEGOS
-| | J.O | C.M. | J.P.
-TOP 1 | ₡1.500.000,00 | Podium | |
-TOP 2 | ₡1.250.000,00 | | Podium |
-TOP 3 | ₡1.000.000,00 | | | Primer Lugar
+Atletas que participen en deportes convocados por su Federación y/o entidad Internacional respectiva que figuran dentro de las disciplinas o modalidades deportivas de todo el Ciclo Olímpico o Paraolímpico; además de lograr de manera individual una puntuación entre 475 a 600, en algún evento deportivo, podrán obtener una beca económica hasta por 1.750.000 colones mensuales. En esta categoría hay tres divisiones:
+1.1.Beca TOP 1: hasta 1.750.000 colones mensuales obteniendo entre 600 a 575 puntos.
+▪ Ser medalla de Oro en los Juegos Olímpicos de Verano o Invierno y/o de Campeonato Mundial 1.2.Becas TOP 2: hasta 1.500.000 colones mensuales obteniendo entre 550 a 525 puntos.
+▪ Ser medalla de Plata en los Juegos Olímpicos de Verano o Invierno y/o de Campeonato Mundial 1.3. Becas TOP 3: Hasta 1.250.000 Colones mensuales obteniendo entre 500 a 475 puntos.
+▪ Ser medalla de Bronce en los Juegos Olímpicos de Verano o Invierno y/o de Campeonato Mundial
+Nota: Cuando la puntuación les alcance a los atletas para estar dentro de la categoría Top por sus resultados en el Campeonato Mundial, pero este deporte no esté en la última fase del Ciclo Olímpico actual, podrá recibir hasta:
+- Un 60% del monto indicado en la tabla para aquellos deportes que estén presentes hasta Juegos Panamericanos.
+- Un 40% del monto indicado en la tabla para aquellos deportes que estén presentes hasta Juegos Centroamericanos y del Caribe.
+- Un 25% del monto indicado en la tabla para aquellos deportes que estén presentes hasta Juegos Centroamericanos.
+[imagen]
 2. Categoría de Atleta Elite.
-Atletas que participen en disciplinas o pruebas de nivel de nivel individual o colectivo convocados por su Federación y/o ente Internacional Respectivo, que participen también en eventos del Ciclo Olímpico, podrán obtener una beca económica por sus logros hasta 900.000 colones mensuales. En esta categoría hay tres divisiones:
-2.1. Beca ELITE 1: Hasta 900.000 Colones mensuales
- Colocarse de la posición 4 a 6 en los Juegos Olímpicos Verano o Invierno
-2.2. Beca ELITE 2: Hasta 800.000 Colones mensuales
- Colocarse de la posición 4 a la 6 del Campeonato Mundial, con participación como mínimo de 24 países en su respectivo evento o categoría.
-2.3. Beca ELITE 3: Hasta 700.000 Colones mensuales
- Colocarse de la posición 2 a la 3 en los Juegos Panamericanos.
-Nota: Aquellos atletas medallistas de los deportes de combate o raqueta que hubieran ganado como mínimo 4 combates o partidos de la fase final, podrán estar en esta categoría.
-MAYOR | MONTO | JUEGOS | JUEGOS | JUEGOS
-| | J.O | C.M. | J.P.
-ELITE 1 | ₡900.000,00 | Posición 4 a la 6 | |
-ELITE 2 | ₡800.000,00 | | Posición 4 a la 6 |
-ELITE 3 | ₡700.000,00 | | | Posición 2 a la 3
-3. Categoría de Atleta Avanzado.
-Atletas que participen en disciplinas o pruebas de nivel individual o colectivo convocados por su Federación y/o ente Internacional Respectivo, que participen también en eventos del Ciclo Olímpico podrán obtener una beca hasta 600.000 colones mensuales. En esta categoría hay tres divisiones:
-3.1. Beca Avanzado 1: Hasta 600.000 Colones mensuales
- Colocarse de la posición 6 a la 8 en los Juegos Olímpicos de Verano o Invierno y / o Primer Lugar Juegos Centroamericanos y del Caribe.
-3.2. Beca Avanzado 2: Hasta 500.000 Colones mensuales
- Colocarse de la posición 6 a la 8 del Campeonato Mundial, con participación como mínimo de 24 países en su respectivo evento o categoría y / o segundo o tercer lugar Juegos Centroamericanos y del Caribe.
-3.3. Beca Avanzado 3: Hasta 400.000 Colones mensuales
- Colocarse de la posición 4 a la 6 en los Juegos Panamericanos y / o posiciones del 4 al 6 en Juegos Centroamericanos y del Caribe.
- Clasificado Olímpico de verano o invierno o al Campeonato MundialMayor.
-Nota: Aquellos atletas medallistas de combate o raqueta que hubieran ganado como mínimo 3 combates o partidos de la fase final, podrán estar en esta categoría.
-MAYOR | MONTO | JUEGOS | JUEGOS | JUEGOS | JUEGOS
-| | J.O | C.M. | J.P. | J.C.C
-AVANZADO 1 | ₡600.000,00 | Posición 6 a 8 | | | Primer Lugar
-AVANZADO 2 | ₡500.000,00 | | Posición 6 a 8 | | Posición 2 a 3
-AVANZADO 3 | ₡400.000,00 | Clasificado | Clasificado | Posición 4 a 6 | Posición 4 a 6
-| | | | |
-4. Categoría de Atleta Ascenso.
-Atletas que participen en disciplinas o pruebas de nivel individual o colectivo convocados por su Federación y/o ente Internacional Respectivo, que participen también en eventos del Ciclo Olímpico podrán obtener una beca económica hasta 300.000 colones mensuales. En esta categoría hay tres divisiones:
-4.1. Beca Ascenso 1: Hasta 300.000 Colones mensuales
- Clasificado Juegos Panamericanos.
-4.2. Beca Ascenso 2: Hasta 200.000 Colones mensuales
- Clasificado a Juegos Centroamericanos y del Caribe. Primer Lugar en Juegos Centroamericanos. Podium en Campeonato Panamericano y / o Centroamericano y del Caribe.
-4.3. Beca Ascenso 3: Hasta 100.000 Colones mensuales
- Posición 4 a la 6 en los Campeonato Panamericano y / o Centroamericano y del Caribe. Primer Lugar en el Campeonato Centroamericano. Podium en otros eventos internacionales avalados por el Consejo Nacional del Deporte y la Recreación. (mínimo de 5países en la misma prueba).
-Nota: Aquellos atletas medallistas de combate o raqueta que hubieran ganado como mínimo 3 combates/partidos de la fase final, podrán estar en esta categoría.
-5. Categoría de Atleta Juvenil TOP.
-Atletas Juveniles que participen en pruebas de nivel individual o colectivo convocados por su Federación y/o ente Internacional Respectivo, que participen también en eventos del Ciclo Olímpico podrán obtener una beca hasta 500.000 colones mensuales. En esta categoría hay dos divisiones:
-5.1. Beca Juvenil A TOP 1: Hasta 500.000 Colones mensuales
- Ser Primer Lugar en Juegos Olímpicos de la Juventud y en el Campeonato Mundial de su respectiva disciplina con participación como mínimo de 24países en la misma prueba o categoría.
-5.2. Beca Juvenil A TOP 2: Hasta 350.000 Colones mensuales
- Obtener la posición 2 o 3 en Juegos Olímpicos de la Juventud y en el Campeonato Mundial de su respectiva disciplina con participación como mínimo de 24países en la misma prueba o categoría.
-Nota: Aquellos atletas medallistas de combate o raqueta que hubieran ganado como mínimo 3 combates/partidos de la fase final, podrán estar en esta categoría.
-JUVENIL | MONTO | JUEGOS | JUEGOS
-| | J.O | C.M.
-TOP 1 | ₡500.000,00 | Primer Lugar | Primer Lugar
-TOP 2 | ₡350.000,00 | Posición 2 a la 3 | Posición 2 a la 3
-6. Categoría de Atleta Juvenil ELITE.
-Atletas Juveniles según su Disciplina Deportiva que participen en pruebas de nivel individual o colectiva convocados por su Federación y/o ente Internacional Respectivo, que participen también en eventos del Ciclo Olímpico podrán obtener una beca económica hasta300.000 colones mensuales. En esta categoría hay dos divisiones:
-6.1. Beca Juvenil ELITE 1: Hasta 300.000 Colones mensuales
- Obtener la posición 4 o 6 en Juegos Olímpicos de la Juventud y en el Campeonato Mundial de su respectiva disciplina con participación como mínimo de 24países en la misma prueba o categoría.
-6.2. Beca Juvenil ELITE 2: Hasta 200.000 Colones mensuales
- Obtener la posición 7 o 8 en Juegos Olímpicos de la Juventud y en el Campeonato Mundial de su respectiva disciplina con participación como mínimo de 24países en la misma prueba o categoría.
-Nota: Aquellos atletas medallistas de combate o raqueta que hubieran ganado como mínimo 3 combates/partidos de la fase final, podrán estar en esta categoría.
-JUVENIL | MONTO | JUEGOS | JUEGOS
-| | J.O | C.M.
-ELITE 1 | ₡300.000,00 | Posición 4 a la 6 | Posición 4 a la 6
-ELITE 2 | ₡200.000,00 | Posición 7 a la 8 | Posición 7 a la 8
-7. Categoría de Atleta Juvenil Avanzado
-Atletas Juveniles según su Disciplina Deportiva que participen en pruebas de nivel individual convocados por su Federación y/o ente Internacional Respectivo, que participen también en eventos del Ciclo Olímpico podrán obtener una beca de 150 000 colones. Para estar en esta categoría los atletas deben de tener el siguiente resultado:
-7.1. Beca Juvenil Avanzado: Hasta 150.000 Colones mensuales
- Estar clasificado a los Juegos Olímpicos de la Juventud y / o al Campeonato Mundial de su respectiva disciplina con participación como mínimo de 24países en la misma prueba o categoría.
- Obtener Primer lugar de su Categoría de los Campeonatos Panamericanos y Centroamericanos y del Caribe (mínimo de 8 países en la misma prueba).
-Nota: Aquellos atletas medallistas de combate o raqueta que hubieran ganado como mínimo 3 combates o partidos de la fase final, podrán estar en esta categoría.
-JUVENIL | MONTO | JUEGOS | JUEGOS | CAMPEONATO | CAMPEONATO
-| | J.O | C.M. | C.P | C.C.C
-AVANZADO 1 | ₡150.000,00 | Clasificado | Clasificado | Primer Lugar | Primer Lugar
-8. Categoría de Atleta Juvenil Ascenso.
-Atletas Juveniles según su Disciplina Deportiva que participen en pruebas de nivel individual convocados por su Federación y/o ente Internacional Respectivo, que participen también en eventos del Ciclo Olímpico podrán obtener una beca de 100 000 colones como mínimo. Para que un atleta se ubique en esta categoría deberá tener al menos:
-8.1. Beca Juvenil Avanzado: Hasta 100.000 Colones mensuales
- Obtener del 2 al 3 lugar de su Categoría de los Campeonatos Panamericanos y Centroamericanos y del Caribe (mínimo de 8 países en la misma prueba).
- Debe de haber Ganado medalla de ORO Campeonatos Centroamericanos de su Categoría. (mínimo de 5 países en la misma prueba).
-Nota: Aquellos atletas medallistas de combate o raqueta que hubieran ganado como mínimo 3 combates de la fase final, podrán estar en esta categoría.
-JUVENIL | MONTO | CAMPEONATO | CAMPEONATO | CAMPEONATO | OTROS
-| | C.P | C.C.C | C.C.A |
-ASCENSO 1 | ₡100.000,00 | Posición 2 a la 3 | Posición 2 a la 3 | Primer Lugar | Podium
+Atletas que participen en deportes convocados por su Federación y/o ente Internacional Respectivo que figuran dentro de las disciplinas o modalidades deportivas de todo el Ciclo Olímpico o Paraolímpico; además de lograr de manera individual una puntuación entre 300 a 450 puntos, en algún evento deportivo, podrán obtener una beca económica hasta 1.000.000 colones mensuales. En esta categoría hay tres divisiones:
+2.1.Beca ELITE 1: hasta 1.000.000 Colones mensuales obteniendo entre 400 a 450 puntos.
+▪ Colocarse de la posición 4 Juegos Olímpicos de Verano o Invierno y/o del Campeonato Mundial o ganar medalla de Oro de los Juegos Panamericanos
+2.2.Beca ELITE 2: hasta 800.000 colones mensuales obteniendo entre 325 a 350 puntos.
+▪ Colocarse de la posición 5ta de los Juegos Olímpicos de Verano o Invierno y/o 5ta a la 6ta del Campeonato Mundial
+▪ Lograr ubicarse en la posición 1 y 2 de los Circuitos del Ranking Mundial en los Eventos Relacionados con el Organismo Rector Internacional.
+2.3.Beca ELITE 3: hasta 750.000 Colones mensuales Obtener 300 puntos.
+▪ Colocarse de la posición 6ta de los Juegos Olímpicos de Verano o Invierno o 2do lugar de los Juegos Panamericanos.
+▪ Lograr ubicarse en la posición 3 de los Circuitos del Ranking Mundial en los Eventos Relacionados con el Organismo Rector Internacional.
+Nota: Cuando la puntuación les alcance a los atletas para estar dentro de la categoría Elite por sus resultados en el Campeonato Mundial, pero este deporte no esté en la última fase del Ciclo Olímpico actual, podrá recibir hasta:
+- Un 60% del monto indicado en la tabla para aquellos deportes que estén presentes hasta Juegos Panamericanos.
+- Un 40% del monto indicado en la tabla para aquellos deportes que estén presentes hasta Juegos Centroamericanos y del Caribe.
+- Un 25% del monto indicado en la tabla para aquellos deportes que estén presentes hasta Juegos Centroamericanos.
+[imagen]
+3. Categoría de Atleta Internacional.
+Atletas que participen en deportes convocados por su Federación y/o ente Internacional Respectivo que están o no dentro de las disciplinas o modalidades deportivas de todo el Ciclo Olímpico o Paraolímpico; además de lograr de manera individual una puntuación entre 225 a 275 puntos, en algún evento deportivo, podrán obtener una beca económica hasta 600.000 colones mensuales. En esta categoría hay tres divisiones:
+3.1.Beca Internacional 1: hasta 600.000 Colones mensuales Obtener 275 puntos.
+▪ Colocarse de la posición 7ma de los Juegos Olímpicos de Verano o Invierno y / o 3er Lugar Juegos Panamericanos
+▪ Lograr ubicarse en la posición 4 de los Circuitos del Ranking Mundial en los Eventos Relacionados con el Organismo Rector Internacional
+▪ Lograr ubicarse en la posición 1 del Tenis Grupo 2 Future de los Circuitos del Ranking Mundial en los Eventos Relacionados con el Organismo Rector Internacional
+3.2.Beca Internacional 2: hasta 500.000 Colones mensuales Obtener 250 puntos.
+▪ Colocarse de la posición 8va de los Juegos Olímpicos de Verano o Invierno y / o 1er Lugar de los Juegos Centroamericanos y del Caribe.
+▪ Lograr ubicarse en la posición 5 de los Circuitos del Ranking Mundial en los Eventos Relacionados con el Organismo Rector Internacional
+▪ Lograr ubicarse en la posición 2 del Tenis Grupo 2 Future de los Circuitos del Ranking Mundial en los Eventos Relacionados con el Organismo Rector Internacional
+▪ Colocarse en 1er Lugar de los NORCECAS / NACAC
+3.3.Beca Internacional 3: hasta 400.000 Colones mensuales Obtener 225 puntos.
+▪ Colocarse de la posición 9no al 16vo de los Juegos Olímpicos de Verano o Invierno y / o 2do Lugar de los Juegos Centroamericanos y del Caribe.
+▪ Lograr ubicarse en la posición 6 de los Circuitos del Ranking Mundial en los Eventos Relacionados con el Organismo Rector Internacional
+▪ Lograr ubicarse en la posición 3 del Tenis Grupo 2 Future o posición 1 de Tenis Grupo 3 Future de los Circuitos del Ranking Mundial en los Eventos Relacionados con el Organismo Rector Internacional
+▪ Colocarse en 2do Lugar de los Campeonados Panamericanos
+▪ Ser medalla de Oro en el Campeonato Mundial de las Entidades Deportivas Internacionales que no están dentro de los Deportes del Ciclo Olímpico
+Nota: Cuando la puntuación les alcance a los atletas para estar dentro de la categoría Internacional por sus resultados en el Campeonato Mundial, pero este deporte no esté en la última fase del Ciclo Olímpico actual, podrá recibir hasta:
+- Un 60% del monto indicado en la tabla para aquellos deportes que estén presentes hasta Juegos Panamericanos.
+- Un 40% del monto indicado en la tabla para aquellos deportes que estén presentes hasta Juegos Centroamericanos y del Caribe.
+- Un 25% del monto indicado en la tabla para aquellos deportes que estén presentes hasta Juegos Centroamericanos.
+[imagen]
+4. Categoría de Atleta Avanzado.
+Atletas que participen en deportes convocados por su Federación y/o ente Internacional Respectivo que están o no dentro de las disciplinas o modalidades deportivas de todo el Ciclo Olímpico o Paraolímpico; además de lograr de manera individual una puntuación entre 150 a 200 puntos, en algún evento deportivo, podrán obtener una beca económica hasta 300.000 colones mensuales. En esta categoría hay tres divisiones:
+4.1.Beca Avanzado 1: hasta 300.000 Colones mensuales Obtener 200 puntos.
+▪ Colocarse de la posición 17 al 32 de los Juegos Olímpicos de Verano o Invierno
+▪ Colocarse de 4to Lugar en los Juegos Panamericanos o 3er Lugar de los Juegos Centroamericanos y del Caribe.
+▪ Lograr ubicarse en la posición 7 de los Circuitos del Ranking Mundial en los Eventos Relacionados con el Organismo Rector Internacional
+▪ Lograr ubicarse en la posición 4 del Tenis Grupo 2 Future o posición 2 de Tenis Grupo 3 Future de los Circuitos del Ranking Mundial en los Eventos Relacionados con el Organismo Rector Internacional
+▪ Colocarse en 3do Lugar de los Campeonados Panamericanos
+▪ Colocarse en 2do Lugar de los NORCECAS / NACAC
+▪ Colocarse en 1er Lugar de los eventos de Continental Open Series, Campeonato Centroamericano y Caribe, Trophy o CONCECABA.
+4.2.Beca Avanzado 2: hasta 250.000 Colones mensuales Obtener 175 puntos.
+▪ Colocarse de la posición 33 al 50 de los Juegos Olímpicos de Verano o Invierno y/o 7mo del Campeonato Mundial
+▪ Colocarse de 5to Lugar en los Juegos Panamericanos o 4to Lugar de los Juegos Centroamericanos y del Caribe.
+▪ Lograr ubicarse en la posición 8 de los Circuitos del Ranking Mundial en los Eventos Relacionados con el Organismo Rector Internacional
+▪ Lograr ubicarse en la posición 5 del Tenis Grupo 2 Future / posición 3 de Tenis Grupo 3 Future / posición 1 de Tenis Grupo 4 Future de los Circuitos del Ranking Mundial en los Eventos Relacionados con el Organismo Rector Internacional
+▪ Colocarse en 3do Lugar de los Campeonados Panamericanos
+▪ Colocarse en 1er Lugar en los Campeonatos Iberoamericanos
+▪ Colocarse en 2do Lugar de los eventos de Continental Open Series, Campeonato Centroamericano y Caribe, Trophy o CONCECABA.
+▪ Ser medalla de Plata en el Campeonato Mundial de las Entidades Deportivas Internacionales que no están dentro de los Deportes del Ciclo Olímpico
+4.3.Beca Avanzado 3: hasta 200.000 Colones mensuales Obtener 150 puntos.
+▪ Colocarse de 6ta Lugar en los Juegos Panamericanos o 5ta Lugar de los Juegos Centroamericanos y del Caribe.
+▪ Lograr ubicarse en la posición 8 de los Circuitos del Ranking Mundial en los Eventos Relacionados con el Organismo Rector Internacional
+▪ Lograr ubicarse en la posición 6 del Tenis Grupo 2 Future / posición 4 de Tenis Grupo 3 Future / posición 2 de Tenis Grupo 4 Future de los Circuitos del Ranking Mundial en los Eventos Relacionados con el Organismo Rector Internacional
+▪ Colocarse en 4to Lugar de los Campeonados Panamericanos
+▪ Colocarse en 2do Lugar en los Campeonatos Iberoamericanos
+▪ Colocarse en 3er Lugar de los eventos de Continental Open Series, Campeonato Centroamericano y Caribe, Trophy o CONCECABA.
+▪ Colocarse en 3er Lugar de los NORCECAS / NACAC
+▪ Ser medalla de Bronce en el Campeonato Mundial de las Entidades Deportivas Internacionales que no están dentro de los Deportes del Ciclo Olímpico
+Nota: Cuando la puntuación les alcance a los atletas para estar dentro de la categoría Avanzado por sus resultados en el Campeonato Mundial, pero este deporte no esté en la última fase del Ciclo Olímpico actual, podrá recibir hasta:
+- Un 60% del monto indicado en la tabla para aquellos deportes que estén presentes hasta Juegos Panamericanos.
+- Un 50% del monto indicado en la tabla para aquellos deportes que estén presentes hasta Juegos Centroamericanos y del Caribe o Juegos Centroamericanos.
+[imagen]
+5. Categoría de Atleta en Ascenso.
+Atletas que participen en deportes convocados por su Federación y/o ente Internacional Respectivo que están o no dentro de las disciplinas o modalidades deportivas de todo el Ciclo Olímpico o Paraolímpico; además de lograr de manera individual una puntuación entre 125 a 100 puntos, en algún evento deportivo, podrán obtener una beca económica hasta 150.000 colones mensuales. En esta categoría hay dos divisiones:
+5.1.Beca Ascenso 1: hasta 150.000 Colones mensuales Obtener 125 puntos.
+▪ Colocarse de 1er Lugar de los Juegos Centroamericanos
+▪ Colocarse 8vo del Campeonato Mundial
+▪ Lograr ubicarse en la posición 9 al 16 de los Circuitos del Ranking Mundial en los Eventos Relacionados con el Organismo Rector Internacional
+▪ Lograr ubicarse en la posición 7 del Tenis Grupo 2 Future / posición 5 de Tenis Grupo 3 Future / posición 3 de Tenis Grupo 4 Future de los Circuitos del Ranking Mundial en los Eventos Relacionados con el Organismo Rector Internacional
+▪ Colocarse en 4to Lugar de los NORCECAS / NACAC
+▪ Ser medalla de Oro en el Campeonato Panamericano de las Entidades Deportivas Internacionales que no están dentro de los Deportes del Ciclo Olímpico
+5.2.Beca Ascenso 2: hasta 100.000 Colones mensuales Obtener 100 puntos.
+▪ Colocarse de la posición 51 al 70 de los Juegos Olímpicos de Verano o Invierno
+▪ Colocarse de 7ma Lugar en los Juegos Panamericanos o 6ta Lugar de los Juegos Centroamericanos y del Caribe.
+▪ Lograr ubicarse en la posición 7 de los Circuitos del Ranking Mundial en los Eventos Relacionados con el Organismo Rector Internacional
+▪ Lograr ubicarse en la posición 4 del Tenis Grupo 2 Future o posición 2 de Tenis Grupo 3 Future de los Circuitos del Ranking Mundial en los Eventos Relacionados con el Organismo Rector Internacional
+▪ Colocarse en 1er Lugar de los Campeonados Centroamericanos
+▪ Colocarse en 4to Lugar de los eventos de Continental Open Series, Campeonato Centroamericano y Caribe, Trophy o CONCECABA.
+▪ Colocarse en 3er Lugar en los Campeonatos Iberoamericanos
+▪ Ser medalla de Plata en el Campeonato Panamericano de las Entidades Deportivas Internacionales que no están dentro de los Deportes del Ciclo Olímpico
+Nota: Cuando la puntuación les alcance a los atletas para estar dentro de la categoría Ascenso, su representada debe estar en todas las fases del Ciclo Olímpico actual (Juegos Olímpicos, Juegos Panamericanos, Juegos Centroamericanos y del Caribe o Juegos Centroamericanos).
+[imagen]
+CATEGORÍA DE BECAS: ATLETAS JUVENILES
+Se considera atleta de Categoría Juvenil al deportista que está por ascender a la categoría mayor de su deporte, si un atleta se encuentra en una categoría inferior a la juvenil. La CPSN valorará, con base en la proyección objetiva del atleta y respaldado por un análisis técnico por parte de la Comisión Técnica de la Entidad Deportiva a la que representa, si dicho atleta podría ser becado con algún monto en específico.
+6. Categoría de Atleta Juvenil TOP.
+Atletas que participen en deportes convocados por su Federación y/o ente Internacional Respectivo que figuran dentro de las disciplinas o modalidades deportivas de todo el Ciclo Olímpico o Paraolímpico; además de lograr de manera individual una puntuación entre 475 a 600, en algún evento deportivo, podrán obtener una beca económica hasta 600.000 colones mensuales. En esta categoría hay tres divisiones:
+6.1.Beca Juvenil TOP 1: hasta 600.000 Colones mensuales Obteniendo entre 600 a 575 puntos.
+▪ Ser medalla de Oro en el Campeonato Mundial 6.2.Becas Juvenil TOP 2: hasta 500.000 Colones mensuales Obteniendo entre 550 a 525 puntos.
+▪ Ser medalla de Plata en el Campeonato Mundial
+6.3. Becas Juvenil TOP 3: hasta 400.000 Colones mensuales Obteniendo entre 500 a 475 puntos.
+▪ Ser medalla de Bronce en el Campeonato Mundial
+Nota: Cuando la puntuación les alcance a los atletas para estar dentro de la categoría Juvenil TOP por sus resultados en el Campeonato Mundial, pero este deporte no esté en la última fase del Ciclo Olímpico actual, podrá recibir hasta:
+- Un 60% del monto indicado en la tabla para aquellos deportes que estén presentes hasta Juegos Panamericanos.
+- Un 40% del monto indicado en la tabla para aquellos deportes que estén presentes hasta Juegos Centroamericanos y del Caribe.
+- Un 25% del monto indicado en la tabla para aquellos deportes que estén presentes hasta Juegos Centroamericanos.
+[imagen]
+7. Categoría de Atleta Juvenil ELITE.
+Atletas que participen en deportes convocados por su Federación y/o ente Internacional Respectivo que figuran dentro de las disciplinas o modalidades deportivas de todo el Ciclo Olímpico o Paraolímpico; además de lograr de manera individual una puntuación entre 300 a 450 puntos, en algún evento deportivo, podrán obtener una beca económica hasta 300.000 colones mensuales. En esta categoría hay tres divisiones:
+7.1.Beca Juvenil ELITE 1: hasta 300.000 Colones mensuales Obteniendo entre 400 a 450 puntos.
+▪ Colocarse de la posición 4 del Campeonato Mundial 7.2.Beca Juvenil ELITE 2: hasta 250.000 Colones mensuales Obteniendo entre 325 a 350 puntos.
+▪ Colocarse de la posición 5ta a la 6ta del Campeonato Mundial
+▪ Lograr ubicarse en la posición 1 y 2 de los Circuitos del Ranking Mundial en los Eventos Relacionados con el Organismo Rector Internacional.
+7.3.Beca Juvenil ELITE 3: hasta 200.000 Colones mensuales Obtener 300 puntos.
+▪ Lograr ubicarse en la posición 3 de los Circuitos del Ranking Mundial en los Eventos Relacionados con el Organismo Rector Internacional.
+Nota: Cuando la puntuación les alcance a los atletas para estar dentro de la categoría Juvenil ELITE por sus resultados en el Campeonato Mundial, pero este deporte no esté en la última fase del Ciclo Olímpico actual, podrá recibir hasta:
+- Un 60% del monto indicado en la tabla para aquellos deportes que estén presentes hasta Juegos Panamericanos.
+- Un 50% del monto indicado en la tabla para aquellos deportes que estén presentes hasta Juegos Centroamericanos y del Caribe o Juegos Centroamericanos.
+[imagen]
+8. Categoría de Atleta Juvenil Internacional
+Atletas que participen en deportes convocados por su Federación y/o ente Internacional Respectivo que están o no dentro de las disciplinas o modalidades deportivas de todo el Ciclo Olímpico o Paraolímpico; además de lograr de manera individual una puntuación entre 225 a 275 puntos, en algún evento deportivo, podrán obtener una beca económica hasta 150.000 colones mensuales. En esta categoría hay tres divisiones:
+8.1.Beca Juvenil Internacional 1: hasta 150.000 Colones mensuales Obtener 275 puntos.
+▪ Lograr ubicarse en la posición 4 de los Circuitos del Ranking Mundial en los Eventos Relacionados con el Organismo Rector Internacional
+▪ Lograr ubicarse en la posición 1 del Tenis Grupo 2 Future de los Circuitos del Ranking Mundial en los Eventos Relacionados con el Organismo Rector Internacional
+8.2.Beca Juvenil Internacional 2: hasta 125.000 Colones mensuales Obtener 250 puntos.
+▪ Lograr ubicarse en la posición 5 de los Circuitos del Ranking Mundial en los Eventos Relacionados con el Organismo Rector Internacional
+▪ Lograr ubicarse en la posición 2 del Tenis Grupo 2 Future de los Circuitos del Ranking Mundial en los Eventos Relacionados con el Organismo Rector Internacional
+▪ Colocarse en 1er Lugar de los NORCECAS / NACAC
+8.3.Beca Juvenil Internacional 3: hasta 100.000 Colones mensuales Obtener 225 puntos.
+▪ Lograr ubicarse en la posición 6 de los Circuitos del Ranking Mundial en los Eventos Relacionados con el Organismo Rector Internacional
+▪ Lograr ubicarse en la posición 3 del Tenis Grupo 2 Future o posición 1 de Tenis Grupo 3 Future de los Circuitos del Ranking Mundial en los Eventos Relacionados con el Organismo Rector Internacional
+▪ Colocarse en 2do Lugar de los Campeonados Panamericanos
+▪ Ser medalla de Oro en el Campeonato Mundial de las Entidades Deportivas Internacionales que no están dentro de los Deportes del Ciclo Olímpico
+Nota: Cuando la puntuación les alcance a los atletas para estar dentro de la categoría Juvenil Internacional, su representada debe estar en todas las fases del Ciclo Olímpico actual (Juegos Olímpicos, Juegos Panamericanos, Juegos Centroamericanos y del Caribe o Juegos Centroamericanos).
+[imagen]
+9. Categoría de Atleta Juvenil Avanzado.
+Atletas que participen en deportes convocados por su Federación y/o ente Internacional Respectivo que están o no dentro de las disciplinas o modalidades deportivas de todo el Ciclo Olímpico o Paraolímpico; además de lograr de manera individual una puntuación entre 150 a 200 puntos, en algún evento deportivo, podrán obtener una beca económica hasta 75.000 colones mensuales. En esta categoría una división:
+9.1.Beca Avanzado 1: hasta 75.000 Colones mensuales Obtener 200 puntos.
+▪ Lograr ubicarse en la posición 7 de los Circuitos del Ranking Mundial en los Eventos Relacionados con el Organismo Rector Internacional
+▪ Lograr ubicarse en la posición 4 del Tenis Grupo 2 Future o posición 2 de Tenis Grupo 3 Future de los Circuitos del Ranking Mundial en los Eventos Relacionados con el Organismo Rector Internacional
+▪ Colocarse en 3do Lugar de los Campeonados Panamericanos
+▪ Colocarse en 2do Lugar de los NORCECAS / NACAC
+▪ Colocarse en 1er Lugar de los eventos de Continental Open Series, Campeonato Centroamericano y Caribe, Trophy o CONCECABA.
+Nota: Cuando la puntuación les alcance a los atletas para estar dentro de la categoría Juvenil Avanzado, su representada debe estar en todas las fases del Ciclo Olímpico actual (Juegos Olímpicos, Juegos Panamericanos, Juegos Centroamericanos y del Caribe o Juegos Centroamericanos).
+[imagen]
+Tabla General de puntuación para Criterios de Asignación de Becas ICODER.
+[imagen]
+Todo evento reportado en la solicitud de Becas ICODER que no se encuentre contemplado en la Tabla General de puntuación para Criterios de Asignación de Becas ICODER, podrá ser valorado por la CPSN, siguiendo los criterios establecidos para las disciplinas deportivas similares en este reglamento.
+- En el CÓDIGO BEC-08, se corrige en su totalidad.
+[imagen]
+Todo evento reportado en la solicitud de Becas ICODER que no se encuentre contemplado en la Tabla General de puntuación para Criterios de Asignación de Becas ICODER, podrá ser valorado por la CPSN, siguiendo los criterios establecidos para las disciplinas deportivas similares en este reglamento.
+- En el CÓDIGO BEC-10, se reforma de la siguiente manera:
+REVISIÓN DE EXPEDIENTES
+[imagen] Se marca con una X lo que se adjunta | SI | NO
+1. Oficio DN-CPSN- | |
+2. Oficio de postulación de la E.D.R.N | |
+3. Formulario de solicitud de beca COMPLETO | |
+4. Anexo. Cédula de identidad atleta | |
+5. Anexo. Cédula de identidad tutor | |
+6. Anexo. Plan Escrito | |
+7. Anexo. Certificado de finalización del Programa de Aprendizaje del Atleta sobre Salud y Antidopaje (ALPHA): | |
+8. Anexo. Certificación CCSS | |
+9. Anexo. Certificación FODESAF | |
+10. Anexo. Certificación Cuenta Cliente y Cuenta IBAN** Del tutor en caso de ser menor de edad. | |
+11. Anexo. Personería Jurídica | |
+12. Anexo. Cédula de Represente Legal de la Entidad Deportiva | |
+[imagen]
+(*)(Así reformado el CÓDIGO BEC-08 anterior mediante publicación en el Alcance digital N° 270 a La Gaceta N° 231 del 4 de diciembre del 2019)
 CÓDIGO BEC-08
 MAYOR | JUEGOS | JUEGOS | JUEGOS | JUEGOS | JUEGOS | CAMPEON ATO | CAMPEONA TO | CAMPEO NATO | OTROS
 J.O | C.M. | J.P. | J.C.C | J.C | C.P | C.C.C | C.C.A
