@@ -1,0 +1,2 @@
+ARTÍCULO 2- Potestades de administración tributaria de la Municipalidad
+Queda facultada la Municipalidad de San Rafael de Heredia para ejercer las potestades determinativas, fiscalizadoras, recaudatorias y sancionatorias que corresponden a su carácter de administración tributaria, de acuerdo con lo dispuesto por esta ley y cualquier otra potestad prevista en la Ley N.º 4755, Código de Normas y Procedimientos Tributarios, de 3 de mayo de 1971.
