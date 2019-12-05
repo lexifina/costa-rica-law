@@ -14,3 +14,4 @@ Reglamento para la venta de ahorro y préstamo a través de terceros
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-11-27 | la propia norma |
+| 2 | 2019-12-05 | Reglamento 6418 (2019-12-05) |
