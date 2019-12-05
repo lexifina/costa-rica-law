@@ -1,1 +1,0 @@
-Artículo 2º—La Unidad de Cultura y Economía será la encargada de generar las condiciones para crear y potenciar los emprendimientos e industrias culturales y creativas costarricenses, a través de los macroprocesos de información, capacitación y acceso al financiamiento, coordinando y articulando esfuerzos a nivel público y privado.
