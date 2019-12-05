@@ -1,1 +1,0 @@
-Artículo 4º—El Ministerio de Economía, Industria y Comercio dará seguimiento a los costos de producción, cosecha, empaque, transporte interno y embarque de la fruta, pudiendo requerir información pertinente sobre el cumplimiento de la normativa ambiental y laboral, así como otra información que sea necesaria a efectos de revisión del precio fijado anteriormente.
