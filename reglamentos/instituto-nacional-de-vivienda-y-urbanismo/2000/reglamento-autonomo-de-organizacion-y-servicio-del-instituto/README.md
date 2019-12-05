@@ -24,3 +24,4 @@ Reglamento Autónomo de Organización y Servicio del Instituto Nacional de Vivie
 | 9 | 2012-12-13 | Reglamento 5972 (2012-12-13) |
 | 10 | 2015-10-29 | Reglamento 6157 (2015-10-29) |
 | 11 | 2016-09-01 | Reglamento 6217 (2016-09-01) |
+| 12 | 2019-12-05 | Reglamento 6418 (2019-12-05) |
