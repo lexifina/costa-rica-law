@@ -1,2 +1,2 @@
-Artículo 41.- Emisión de la resolución de desbabilitación. La Dirección deberá emitir la resolución de deshabiltación de áreas dentro del plazo de cinco días hábiles, contados a partir de la recepción de la documentación remitida por la Aduana de Control o por la empresa, según corresponda. Dicha resolución deberá notificarse a la empresa beneficiaria y a PROCOMER.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 40141 del 20 de diciembre del 2016)
+Artículo 41.- Emisión de la resolución de deshabilitación. La Dirección emitirá la resolución de deshabilitación de áreas dentro del plazo de cinco días hábiles, contados a partir de la fecha en que se incorporó el acta de inspección en la plataforma tecnológica, o en su caso, el acta levantada por la empresa. Dicha resolución deberá notificarse a la empresa beneficiaria y a PROCOMER.
+(Así reformado por el artículo 2° del decreto ejecutivo N° 42182 del 5 de diciembre del 2019)

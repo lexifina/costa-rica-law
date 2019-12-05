@@ -1,0 +1,8 @@
+"Artículo 10 ter. - Tipos de poderes y vigencia de certificaciones. Para efectos de realizar los diferentes trámites dentro del Régimen de Zona Franca, se observarán las siguientes disposiciones:
+a) Trámites y tipos de poderes
+Para realizar el trámite de ingreso al Régimen de Zonas Francas, el trámite de fusión de empresas beneficiarias, y el trámite de renuncia al Régimen, se requerirá poder generalísimo o poder especial debidamente otorgado, siempre y cuando no exista limitación del mandatario en cuanto al alcance de su actuación. En caso de existir limitación de suma en el poder, ésta no podrá ser inferior al compromiso de la inversión mínima y total asumido por la empresa.
+Los demás trámites podrán ser realizados mediante poder generalísimo o poder especial, así como también poder general; siempre y cuando, de igual manera, el mandatario no esté revestido de limitaciones respecto al alcance de su actuación. En caso de existir limitación de suma en el poder, ésta no podrá ser inferior al compromiso de la inversión mínima y total asumido por la empresa.
+Finalmente, en el caso de los poderes especiales, su alcance deberá seguir detalladamente lo dispuesto en el artículo 1256 del Código Civil, entendiéndose que dichos poderes deberán ser específicos en cuanto a los actos a realizar por el mandatario, sin poder extenderse ni siquiera a otros actos que se consideren consecuencia natural.
+b) Plazo de vigencia de las certificaciones
+Toda certificación en la que conste un poder mantendrá una vigencia de tres meses, contados a partir de su expedición
+(Así adicionado por el artículo 3° del decreto ejecutivo N° 42182 del 5 de diciembre del 2019)

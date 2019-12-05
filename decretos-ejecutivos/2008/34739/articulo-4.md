@@ -18,6 +18,8 @@ CAECR: Clasificación de Actividades Económicas de Costa Rica vigente, que se s
 Cese definitivo de operaciones: se entiende como aquella situación en que se encuentra una empresa beneficiaria, cuando habiendo iniciado operaciones, sin previo aviso, detiene de forma total sus actividades y operaciones dentro o fuera del régimen, sin realizar internamiento de maquinaria, equipo e insumos, así como tampoco la realización de ventas al mercado nacional o reexportación.
 Código de auxiliar: Es el número de identificación otorgado por la Dirección General de Aduanas al momento de emitir la resolución que otorga la condición de auxiliar de la función pública aduanera.
 Código de ubicación: Es el número de identificación otorgado por la Dirección General de Aduanas para cada punto geográfico donde se localizan instalaciones del beneficiario, para realizar operaciones propias de su actividad dentro del Régimen.
+Código CFIA: Es el número (consecutivo) que asigna el Colegio Federado de Ingenieros y Arquitectos al momento de registrar la responsabilidad profesional de un proyecto, en atención al artículo 54 de la Ley Orgánica del Colegio Federado de Ingenieros y Arquitectos.
+(Así adicionada la definición anterior por el artículo 1° del decreto ejecutivo N° 42182 del 5 de diciembre del 2019)
 Comercialización: Es la actividad que consiste simplemente en manipular, reempacar y redistribuir mercancías que sean propiedad del beneficiario del Régimen de Zonas Francas.
 COMEX: El Ministerio de Comercio Exterior.
 Contrato de operaciones: Contrato que deben suscribir los beneficiarios del Régimen con la Promotora de] Comercio Exterior de Costa Rica, en el cual se detallan sus derechos y obligaciones, con base en el acuerdo de otorgamiento del Régimen.
@@ -28,6 +30,8 @@ Declaración Aduanera: declaración realizada mediante transmisión electrónica
 DGT: Dirección General de Tributación .
 Deshabilitación de áreas: Es la disminución del área previamente autorizada para el beneficiario, ya sea por reestructuración, cierre total de una de las ubicaciones o reducción del área de una o más ubicaciones
 Desperdicios: Mercancías remanentes del proceso productivo.
+Departamento de Estadística y Registros: Departamento que forma parte de la estructura de la Dirección de Gestión Técnica de la Dirección General de Aduanas.
+(Así adicionada la definición anterior por el artículo 1° del decreto ejecutivo N° 42182 del 5 de diciembre del 2019)
 Dirección: Dirección General de Aduanas.
 Empleados Calificados: Trabajadores directos, a tiempo completo, competentes para ejecutar la Actividad Autorizada en el Acuerdo Ejecutivo de Otorgamiento y en el Contrato de Operaciones. Estos trabajadores deben estar inscritos por la empresa beneficiaria del Régimen de Zonas Francas ante la Caja Costarricense de Seguro Social y estar cubiertos por la normativa laboral y conexa del país.
 (Así adicionada la definición anterior por el artículo 1° del decreto ejecutivo N° 41346 del 4 de octubre del 2018)
