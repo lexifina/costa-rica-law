@@ -14,3 +14,4 @@ Estilo de pesca "Green Stick" o ‘Palo verde’
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-04-19 | la propia norma |
+| 2 | 2019-12-05 | Acuerdo 566 (2019-12-05) |
