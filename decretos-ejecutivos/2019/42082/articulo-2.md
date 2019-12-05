@@ -1,0 +1,1 @@
+Artículo 2°.- Modifícanse los artículo 2° y 3° de la ley N° 9632, Ley de Presupuesto Ordinario y Extraordinario de la República para el ejercicio Económico del 2019 y sus reformas antes citada, con el fin de ralizar el traslado de partidas en los Órganos del Gobierno de la República aquí incluidos.
