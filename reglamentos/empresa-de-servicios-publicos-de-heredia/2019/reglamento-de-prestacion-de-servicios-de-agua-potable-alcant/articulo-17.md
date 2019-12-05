@@ -1,0 +1,2 @@
+Artículo 17.- De los alcances del Dictamen de Disponibilidad y constancia de capacidad de los servicios de la ESPH S.A.
+La constancia de capacidad hídrica y de capacidad de recolección y tratamiento determina que durante su vigencia la ESPH S.A. está en capacidad de brindar los servicios solicitados y permitirá gestionar ante los diferentes entes públicos la obtención, previos cumplimientos de los requisitos legales, de los permisos y las autorizaciones necesarias para la construcción, por parte del interesado.

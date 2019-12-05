@@ -1,0 +1,1 @@
+Artículo 21.- Restricción para la dotación de servicios nuevos y/o ampliaciones de servicios en zonas de restricción: Se aplicarán las restricciones establecidas según la zona donde se ubica la finca y se solicita el servicio, de acuerdo a las restricciones que imperen en el momento de la solicitud de los servicios.

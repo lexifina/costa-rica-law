@@ -1,0 +1,96 @@
+Artículo 5.- Definiciones
+Para los efectos de este Reglamento se entenderá por:
+Abastecimiento colectivo: Cuando de una conexión, se provee de agua a más de una unidad de consumo.
+Abastecimiento individual: Cuando de una conexión se provee de agua una sola unidad de consumo.
+Acometida de agua: Longitud de tubería que se instala desde la red de distribución hasta el punto de instalación de la conexión del servicio; llega hasta el límite de la propiedad.
+Acometida de alcantarillado sanitario: Longitud de tubería que se instala desde la red de recolección hasta el accesorio de salida de la caja sifón.
+Acueducto o sistema de acueducto: Sistema cuyo objetivo es captar, potabilizar, almacenar y distribuir agua potable con la finalidad de proporcionarla a un núcleo de población determinado. Incluye la fuente de recurso hídrico y las obras de infraestructura física. Consta de las siguientes etapas:
+a) Producción (gestión ambiental, captación y conducción y potabilización).
+b) Distribución (almacenamiento, redes de distribución, conexiones domiciliarias, hidrómetros); y
+c) Comercialización (medición de consumos, lectura de hidrómetros, facturación, cobro y actividades relacionadas con la atención del usuario)
+Agua potable: Agua tratada que cumple con las disposiciones de valores recomendables o máximos admisibles estéticos, organolépticos, físicos, químicos, biológicos y microbiológicos, establecidos en el Reglamento de Calidad de Agua Potable. Establecido en la Reglamentación vigente de Prestación de Servicios de Acueducto, Alcantarillado Sanitario e Hidrantes, AR-PSAYA-2015).
+Agua residual: Agua que ha recibido un uso y que ha sido contaminado con materia orgánica, sustancias químicas o sólidos en suspensión. Para recibirlas en el sistema público de alcantarillado sanitario, deben cumplir con la normativa ambiental que dicten otras autoridades competentes.
+Agua residual de tipo especial: Agua residual de tipo diferente al ordinario.
+Agua residual de tipo ordinario: Agua residual generada por las actividades domésticas del hombre (uso de inodoros, duchas, lavatorios, fregaderos, lavado de ropa, etc.).
+Alcantarillado sanitario: Red pública de tuberías que se utilizan para recolectar y transportar las aguas residuales hasta su punto de tratamiento y disposición. Entiéndase este concepto como sinónimo de red o sistema de recolección.
+Alto Consumo: Es aquel que supere el 100% el consumo promedio normal del abonado, de los últimos doce meses.
+Arreglo de pago: Acuerdo entre partes, (ESPH S.A. y el propietario o usuario) en el que ambos convienen que la deuda del primero sea cubierta en cuotas, cuyos montos y plazos se establecen según la conveniencia y procedimientos establecidos por la ESPH S.A ..
+Caja Sifón: Contenedor subterráneo generalmente construido en la acera y utilizada para interconectar las aguas residuales provenientes de la propiedad con la red de recolección sanitaria en funcionamiento. Cumple además con la función de eliminar olores hacia lo interno de la propiedad, así como de facilitar las tareas de desobstrucción.
+Calle o vía pública: Cualquier acceso de dominio de la colectividad para el libre tránsito de personas y/o vehículos.
+Capacidad hidráulica: Corresponde a la condición de la infraestructura instalada de los sistemas de abastecimiento y aguas residuales para trasegar los caudales para la prestación de los servicios.
+Capacidad hídrica: Condición existente de factibilidad técnica y administrativa para la explotación de agua potable para el abastecimiento por parte del ESPH S.A..
+Capacidad de recolección: Condición existente de factibilidad técnica y administrativa para la recolección, tratamiento y disposición de aguas residuales por parte del ESPH S.A ..
+Ciclo de lectura: período de tiempo comprendido entre dos lecturas consecutivas de un hidrómetro, que oscila entre veintisiete y treinta y tres días naturales, y hasta sesenta días naturales en el caso de lectura bimensual.
+Certificación de capacidad de aguas residuales: la ESPH S.A. determinara ante una solicitud de servicio si hay o no capacidad.
+Cliente: Persona física y/o jurídica que utiliza en forma legítima los servicios prestados por la ESPH S.A. o el operador de los sistemas delegados. Se utiliza como sinónimo de usuario.
+Conexión: Unión del sistema público de abastecimiento de agua o de aguas residuales con el sistema privado.
+Conexiones cruzadas: Interconexión de sistemas (agua, agua residual, agua de desagüe pluvial, agua industrial no potable u otros) que ponen en riesgo de contaminación el sistema de agua, la integridad del sistema de aguas residuales y el sistema pluvial.
+Conexión fraudulenta: Conexión, que habiendo sido suspendida; se conecta a los sistemas de agua y/o aguas residuales sin la autorización de la ESPH S.A. del sistema; o que estando activa se detecta que utiliza un medio que permita falsear el consumo real del servicio.
+Conexión no autorizada o ilícita: Conexión realizada por terceros a los sistemas de agua y/o aguas residuales, sin la debida autorización del ESPH S.A ..
+Consumo: Volumen de agua que un usuario utiliza en un período de tiempo determinado.
+Consumo normal: Consumo del servicio libre de distorsiones efectuado durante un ciclo de lectura.
+Consumo promedio normal: Es el promedio de los consumos normales de un usuario registrados en los últimos 12 meses.
+Continuidad del servicio: Es una cualidad del servicio que indica el tiempo del servicio ininterrumpido durante un periodo determinado.
+Crecimiento vegetativo: Corresponde al aumento de nuevos servicios para una vivienda o un comercio en una finca individual con consumo de agua inferior o igual a un servicio equivalente y hasta cuatro fraccionamientos de la finca y con frente a calle pública o servidumbre de acceso, donde existen redes de distribución y/o recolección. No corresponde a este concepto los desarrollos urbanísticos. En todo caso, el consumo de agua mensual, no deberá ser superior a cuatro servicios equivalentes.
+Derrame de aguas residuales: Salida de aguas residuales del sistema de aguas de alcantarillado sanitario.
+Dictamen o certificación de disponibilidad de servicios: Pronunciamiento mediante el cual un prestador de servicio comunica a un tercero interesado, la capacidad de sus sistemas (acueducto, alcantarillado sanitario e hidrantes) para abastecer el consumo de nuevos abonados.
+Disponibilidad de servicio de agua: Existencia real y actual, no futura ni potencial, de las obras e infraestructura global necesaria y capacidad hídrica e hidráulica de abastecimiento para solventar las necesidades de servicios de una población determinada.
+Documento idóneo: Croquis de referencia y ubicación del inmueble, escritura, escrito con que se prueba, confirma o justifica alguna información, la que deberá ajustarse para el caso concreto, conforme a la aplicación del principio de razonabilidad y lógica.
+Extensión de ramal: Aumento de longitud de un segmento de la red del acueducto y/o del sistema de recolección hasta un punto determinado.
+Factibilidad técnica: Estudio para verificar que determinada acción es posible realizar con las condiciones adecuadas. Es una evaluación que demuestre que la actividad puede ponerse en marcha y mantenerse, mostrando evidencias de que se ha planeado cuidadosamente, contemplado los problemas que involucra y mantenerlo en funcionamiento.
+Factibilidad Administrativa: se refiere a la disponibilidad de los recursos necesarios para llevar a cabo los objetivos o metas señalados.
+Factura: Documento impreso o digital emitido en forma periódica por el operador, que muestra los conceptos, consumo, vencimiento, montos a cobrar por los servicios prestados y entre otros, información de interés para el usuario. También puede presentar información de las cuentas por cobrar vencidas.
+Facturación: Proceso mediante el cual se determina los conceptos, volúmenes y montos a cancelar por parte del usuario.
+Fraccionamiento: Es la división de cualquier inmueble con el fin de vender, traspasar, negociar, repartir, explotar o utilizar en forma separada, las parcelas resultantes; incluye tanto particiones de adjudicación judicial o extrajudicial, localizaciones de derechos indivisos y meras segregaciones en cabeza del mismo dueño, como las situadas en urbanizaciones o construcciones nuevas que interesen al control de la formación y uso urbano de los bienes inmuebles.
+Fuga: Escape de agua en las redes de distribución o instalaciones de agua.
+KPa, Kilopascal: Unidad de medida de la presión atmosférica, equivalente a mil Pascales (1000 Pascales).
+Hidrante: Se entiende por hidrante el dispositivo de emergencia y atención de incendios o toma de agua, diseñada para proporcionar caudal considerable en caso de incendio, situado en puntos estratégicos en la vía pública o privada, debidamente equipado de acuerdo a las disposiciones técnicas emitidas por el Benemérito Cuerpo de Bomberos de Costa Rica y que se encuentra debidamente conectado y en funcionamiento con el sistema de red de agua potable en la vía pública o privada; en donde el Benemérito Cuerpo de Bomberos de Costa Rica o el ente administrador y operador público o privado del sistema de acueducto y alcantarillado, según el área de competencia, pueda utilizarlo en caso de eminente riesgo o emergencia.
+Hidrómetro: Dispositivo o instrumento destinado a medir y registrar el volumen de agua.
+Inmueble: Terreno debidamente individualizado que consigna uno o varios propietarios.
+Inspecciones técnicas por abastecimientos: Revisión que el operador efectúa, a solicitud del usuario o de oficio para verificar el uso ·del servicio y datos básicos de éste.
+Instalación de conexión: Acción que se concreta cuando la conexión ubicada en una propiedad privada, es integrada de manera física al sistema del operador.
+Instalaciones internas: Instalaciones mecánicas de abastecimiento de agua y aguas residuales ubicadas dentro de la propiedad.
+Inspección técnica: Revisión especializada que realiza la ESPH S.A. o el operador en cuanto al funcionamiento y uso de los sistemas de agua, aguas residuales y medición, ubicados en vía pública, en servidumbres de paso o en fincas y edificaciones privadas, conforme lo establece el artículo 5 inciso i) de la Ley Constitutiva de AyA (Ley No. 2726).
+Interconexión: Conexión de nuevos sistemas, infraestructura y desarrollos urbanísticos que cumplan con la normativa técnica vigente, a los sistemas de distribución y recolección operados por el la ESPH S.A. o el operador para la habilitación de los servicios de agua y aguas residuales.
+Límite de propiedad para el servicio de agua: Corresponde a la parte del lindero del predio o de la servidumbre de acceso a este predio, frente al punto donde se ubica el hidrómetro con el que brinda el servicio de agua. En el caso de propiedades ubicadas frente a vía pública o servidumbre de paso y tubería, constituida a favor del ESPH S.A., corresponde al lindero del predio o de la finca filial. En el caso de propiedades ubicadas frente a servidumbres de acceso corresponde al frente de esta servidumbre con vía pública.
+Límite de propiedad para el servicio de alcantarillado Sanitario: Corresponde al límite de servicio público de alcantarillado sanitario que presta la ESPH S.A., Se establece en el segmento de tubería donde inicia la caja de registro con sifón ubicada en la acera; se entiende que la caja de registro es propiedad del titular del servicio, por lo que le corresponde su mantenimiento.
+Paso alterno de agua no autorizado (bypass): Mecanismo no autorizado de conexión de agua, usado para falsear el consumo registrado en el hidrómetro.
+Pozo de registro o inspección: Estructura con acceso y tapa que sirve para inspección y mantenimiento de los sistemas de recolección. Utilizados cuando hay cambios de dirección, pendiente o diámetro y confluencia de varias tuberías.
+Poseedor: Persona que realiza actos de posesión estables y efectivos, en forma pacífica, pública e ininterrumpida, como dueño por más de un año en inmuebles no inscritos por el Registro Público.
+Prestador: se refiere al prestador del servicio de que se trate, normalmente la ESPH S.A.
+Prevista agua: Longitud de tubería instalada desde la red de distribución hasta el punto para la conexión del servicio; llega hasta el límite de la propiedad, que no ha sido conectada a las instalaciones internas del inmueble.
+Prevista alcantarillado sanitario: Longitud de tubería que se instala desde la red de recolección para dar servicio al inmueble pero que no ha sido conectada a la caja sifón.
+Proceso sucesorio: Proceso Legal en sede judicial o notarial, cuyo fin es la liquidación y partición de los bienes herenciales, previa a su determinación y la de las personas entre quienes han de distribuirse.
+Propietario: Persona física o jurídica que ejerce el dominio sobre bienes inmuebles con respaldo en un título habilitante, debidamente inscrita en el Registro Público.
+Proyecto de desarrollo urbanístico: Proyecto de infraestructura con fines urbanos, construida en apertura de espacios (urbanizaciones, condominios, centros comerciales, torres de viviendas u oficinas, entre otras infraestructuras), destinados a atender las necesidades de la población donde existirán servicios de agua y aguas residuales
+Prueba Volumétrica: Revisión que se realiza al hidrómetro con el fin de verificar el registro correcto de volumen de agua. Corresponde al procedimiento técnico mediante el cual un hidrómetro es sometido a diferentes flujos de agua, realizando una comparación entre el volumen registrado y un patrón de referencia, con el fin de que se obtengan los respectivos porcentajes de error.
+Recepción de obras: Acción que resulta del aprobar y recibir o traspasar una obra o infraestructura de agua o aguas residuales; construida por un particular y que pasa a ser patrimonio de la ESPH S.A., una vez que se haya comprobado técnica y jurídicamente el cumplimiento de los requisitos solicitados.
+Redes: Sistema de tuberías para la distribución de agua y la recolección de aguas residuales.
+Red pública: Sistema de tuberías de agua o recolección de aguas residuales propiedad de la ESPH S.A ..
+Servicio de abastecimiento: Corresponde al suministro de agua para consumo humano que brinda ESPH S.A.; también denominado como servicio de agua.
+Servicio de aguas residuales: Corresponde a la recolección, tratamiento y disposición de las aguas residuales.
+Servicio equivalente: Corresponde al consumo de agua o aporte de aguas residuales de una vivienda unifamiliar. El consumo de agua o aporte de aguas residuales, que no sea para vivienda unifamiliar, se determinará mediante la tabla de equivalencias definida en el manual de procedimientos.
+Servicio de hidrantes: Mantenimiento operación y desarrollos de las redes de hidrantes para la atención de incendios, al servicio del Cuerpo de Bomberos.
+Servicio provisional: Servicio que, por la naturaleza de la actividad, se presta por un periodo determinado y que posteriormente pasara a ser un servicio permanente.
+Servicio temporal: Servicio que, por la naturaleza de la actividad, se presta por un periodo determinado.
+Servidor público: Aquel individuo que presta servicios a la Administración Pública o a nombre y por cuenta de ésta, como parte de su organización, en virtud de un acto válido y eficaz de investidura.
+Servidumbre de acceso público: Derecho real de ingreso o tránsito de peatones y/o vehículos a favor de entes públicos y sobre un predio ajeno. Implica para su dueño una limitación al ejercicio pleno de los atributos del derecho de propiedad, sin que por ello la porción de terreno pierda su condición de propiedad privada.
+Servidumbre de hecho: Aquella establecida sobre un predio a fuerza del uso y la costumbre, tolerado por el propietario del bien, sin que medie imposición legal o acto formal de constitución mediante escritura pública.
+Servidumbre de paso privada: Derecho real de ingreso y tránsito de peatones v/o vehículos en beneficio de una finca o varias, y sobre un predio ajeno. Implica para su dueño una limitación al ejercicio pleno de los atributos del derecho de propiedad, sin que por ello la porción de terreno pierda su condición de propiedad privada.
+Servidumbre de paso y tubería: Derecho real de instalar tubería de agua y/o de alcantarillado sanitario sobre un predio ajeno, para la operación administración y mantenimiento por parte de la ESPH S.A.. Implica una utilidad permanente y continúa del acceso para el cumplimiento de su fin público, así como un límite al ejercicio del derecho de propiedad por parte de su dueño.
+Servidumbre de paso y tubería inscrita: Servidumbre que conste debidamente inscrita sobre uno o varios inmuebles en el Registro de la Propiedad.
+Sistema de aguas residuales: Conjunto de obras que contemplan al menos los componentes civiles y electromecánicos necesarios para la recolección, tratamiento y reúso de aguas residuales de tipo ordinario. Dentro de este concepto no se consideran los sistemas particulares de tratamiento y disposición de aguas residuales.
+Sistema de tratamiento: Conjunto de procesos físicos, químicos o biológicos, cuya finalidad es mejorar la calidad del agua residual cruda antes de su disposición.
+Sistemas internos de la propiedad: La red e instalaciones internas, tanto de agua como de alcantarillado sanitario que se encuentran dentro de una propiedad.
+Sistema privado: Conjunto de instalaciones de agua y alcantarillado sanitario que no es administrado por la ESPH S.A. u otro operador público.
+Sistema público: Conjunto de instalaciones de agua y alcantarillado sanitario administrados y operado por la ESPH S.A..
+Solicitudes de conexión: Formalismo, pedimento o gestión que hace el interesado a fin de conseguir un servicio para su disfrute.
+Suspensión del servicio: Acción que permite interrumpir la prestación de los servicios de suministro de agua, por falta de pago o por razones propias de la operación del servicio.
+Tarifa: Lista o catálogo de precios que deben de pagarse por la prestación de un servicio.
+Unidad de consumo: Cada una de las unidades de vivienda, comercio, industria u otras, que cuenta con instalaciones propias de agua y alcantarillado sanitario y que reciben los servicios brindados por el prestador del servicio.
+Urbanización: Fraccionamiento y habilitación de un terreno para fines urbanos, mediante apertura de calles y provisión de servicios.
+Uso de agua: Destino que el usuario le da al servicio de agua.
+Usuario: Persona física y/o jurídica que utiliza en forma legítima los servicios prestados por la ESPH S.A. o el operador de los sistemas delegados.
+Venta de agua en bloque: Modalidad de venta de agua a otro prestador, empresas navieras que operen legalmente en Costa Rica y vendedores de agua a terceros que operen legalmente.
+Venta de agua pago anticipado: Corresponde a la venta de volúmenes de agua, previa y técnicamente definidos y cancelados, ante la solicitud de un usuario.
+Zona de restricción de servicios: es aquella zona donde se limita el otorgamiento de servicios, normalmente en forma temporal, mediante leyes, reglamentos o acuerdos basados en estudios técnicos, que clasifiquen y delimiten las áreas geográficas, según la disponibilidad de infraestructura y recurso hídrico

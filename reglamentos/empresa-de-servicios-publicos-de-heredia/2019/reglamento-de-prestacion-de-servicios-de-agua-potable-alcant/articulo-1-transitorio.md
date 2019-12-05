@@ -1,0 +1,1 @@
+Transitorio I. -El presente Reglamento deroga y deja sin efecto el Reglamento para La Prestación de Servicios de Agua y Alcantarillado, publicado en el diario oficial la Gaceta número 161, el 30 de agosto de 1979, así como sus modificaciones.
