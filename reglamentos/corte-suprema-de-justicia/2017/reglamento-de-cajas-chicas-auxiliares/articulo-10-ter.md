@@ -1,0 +1,2 @@
+Artículo 10° ter. Compra de bienes y servicios por internet mediante la tarjeta de compras. Se podrá realizar compras de bienes y servicios por internet mediante la tarjeta de compras institucionales de la Caja Chica del Departamento de Proveeduría o de la Caja Chica Auxiliar que corresponda; conforme se establece en el artículo 7 del Reglamento de Caja Chica General del Poder Judicial.
+(Así adicionado mediante circular N° 215-2019 del 6 de diciembre de 2019)

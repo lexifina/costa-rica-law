@@ -13,3 +13,4 @@ Reglamento de Cajas Chicas Auxiliares
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-12-18 | la propia norma |
+| 2 | 2019-12-06 | Circular 215 (2019-12-06) |
