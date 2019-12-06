@@ -1,0 +1,3 @@
+Artículo 6º—Tramitación de patrocinios: Según lo dispuesto por el artículo 139 inciso o del Reglamento a la Ley de Contratación Administrativa, los patrocinios están excluidos del proceso del concurso, sin embargo, todo solicitante deberá estar inscrito en el Sistema de Compras Públicas (SICOP) así como cumplir los requisitos que establece el Reglamento a la Ley de Contratación Administrativa en el artículo 65, inciso c.
+Compete al departamento de Comunicación e Imagen la tramitación de patrocinios, la cual tendrá la responsabilidad del archivo y resguardo de los documentos y expedientes del proceso.
+La documentación será remitida la proveeduría institucional, quién será la encargada de realizar el proceso respectivo.
