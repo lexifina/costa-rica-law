@@ -1,0 +1,6 @@
+Artículo 2°—Definiciones. Para efectos del presente reglamento, se entenderán los siguientes términos según se indica a continuación:
+• Caucionante o sujeto obligado: El Jerarca, Titulares Subordinados y funcionarios que determinan los objetivos y políticas de la Empresa y a quien se le ha encomendado la administración, recaudación y custodia de bienes, fondos o valores públicos o bien, que por la naturaleza de sus funciones y responsabilidades tenga facultades de uso y disposición de recursos públicos.
+• Caución: Garantía razonable que deberá rendir el funcionario que tenga a cargo las funciones indicadas en el inciso anterior. La caución a favor de RACSA sólo podrá ser admitida mediante la constitución de un seguro o póliza de fidelidad.
+• Custodia: Guarda o tenencia de recursos, valores, bienes o derechos propiedad de la Empresa o de Clientes, que se administran, se recaudan, custodian o conservan con cuidado y vigilancia.
+• Fondos públicos: Son los recursos, valores, bienes y derechos propiedad del Estado, que se encuentran en administración, custodia o a disposición de órganos, empresas o de entes públicos y en particular de RACSA por su naturaleza jurídica.
+• Recaudación: Se refiere a la cobranza de impuestos, contribuciones especiales, tasas, multas, ingresos por venta de bienes y servicios y otros ingresos que perciba o reciba RACSA a su favor.

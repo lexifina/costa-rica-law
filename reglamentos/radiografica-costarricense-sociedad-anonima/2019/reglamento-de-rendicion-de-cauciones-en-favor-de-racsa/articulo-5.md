@@ -1,0 +1,2 @@
+Artículo 5°—Monto de las cauciones. Considerando que la caución o garantía, es una medida de control interno que se complementa con otras medidas adoptadas por la Empresa, según el artículo N° 12 de la LGCI, se establecen los siguientes montos de cauciones según sea el nivel jerárquico del caucionante, siendo que el mecanismo para caucionar será únicamente la constitución de una póliza de fidelidad o seguro, y que es deber del caucionante gestionar y sufragar de su propio peculio el costo de la garantía en favor de RACSA:
+[imagen]

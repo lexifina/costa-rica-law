@@ -1,0 +1,1 @@
+Artículo 10.—De las formas de caucionar. La caución en favor de RACSA se hará mediante la suscripción con cargo al peculio del funcionario obligado a rendir caución, de un seguro o póliza de fidelidad ante el Instituto Nacional de Seguros, o las entidades o empresas aseguradoras autorizadas que llegaren a constituirse.

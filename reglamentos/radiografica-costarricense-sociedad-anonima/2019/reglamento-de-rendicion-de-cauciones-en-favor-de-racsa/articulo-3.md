@@ -1,0 +1,7 @@
+Artículo 3°—Caucionantes. Tomando en consideración los niveles de responsabilidad, monto administrado, remuneración, proporcionalidad, razonabilidad, riesgo y los principios de una administración transparente y efectiva de los recursos públicos, los funcionarios que deberán caucionar serán los siguientes:
+a) Jerarca: miembros titulares y suplentes de junta directiva.
+b) Titulares subordinados: gerentes y subgerentes, y directores.
+c) Responsables titulares: jefes de departamento.
+d) Encargados de administrar, recaudar, custodiar y trasegar fondos y valores: personal que realiza labores de tesorería, labores de caja chica y fondos fijos, recaudación directa de ingresos por venta de servicios, trámite ante entidades financieras u otras que impliquen manejo ordinario de valores y compras en efectivo, custodia de dispositivos o depósitos bancarios de RACSA o de terceros.
+La anterior obligación se mantiene aún, cuando la nomenclatura del puesto varíe, siempre que las funciones se mantengan análogas. Por resolución razonada, el Departamento de Talento Humano podrá sujetar a caución otro puesto o función adicional a los ya contemplados. Firme la resolución, el servidor contará hasta con diez (10) días hábiles para cumplir con la respectiva obligación.
+El funcionario que, obligado a caucionar, se le asigne una función que genere ese mismo deber, caucionará una sola vez y por el monto de mayor valor.

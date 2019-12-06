@@ -1,0 +1,3 @@
+Transitorio I: A más tardar noventa días naturales posteriores a la publicación de este Reglamento, todos los funcionarios sujetos a rendir caución, deben presentar el documento de ajuste del monto, renovación o acreditación de la caución a favor de la Empresa ante su jefatura, la Dirección Financiera y el Departamento de Talento Humano.
+7. Revisión y evaluación. Se debe realizar una revisión anual del Reglamento por parte del Departamento de Talento Humano en conjunto con el área de Gestión Estratégica y Desempeño Empresarial, esto para verificar si se han realizado cambios en los procesos de gestión.
+San José, 22 de noviembre del 2019
