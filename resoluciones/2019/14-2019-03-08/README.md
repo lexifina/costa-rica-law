@@ -14,3 +14,4 @@ Resolución Conjunta de Alcance General para el Registro de Transparencia y Bene
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-04-03 | la propia norma |
+| 2 | 2019-12-06 | Resolución 74 (2019-12-06) |

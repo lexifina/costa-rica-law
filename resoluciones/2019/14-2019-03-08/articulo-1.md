@@ -16,12 +16,14 @@ X— El artículo 4 de la Ley de Protección al Ciudadano del Exceso de Requisit
 Por tanto,
 RESUELVEN:
 Resolución Conjunta de Alcance General para el Registro de Transparencia y Beneficiarios Finales.
-ARTÍCULO 1. Alcance: Las personas jurídicas inscritas en el Registro Nacional con plazo social vigente que se detallan en este artículo, las cuales deben cumplir con las disposiciones establecidas en la Ley para Mejorar la Lucha contra el Fraude Fiscal y el Reglamento del Registro de Transparencia y Beneficiarios Finales, deben ingresar a través de su representante legal indicado en el siguiente cuadro, la declaración de participaciones y beneficiarios finales en el Registro de Transparencia y Beneficiarios Finales, disponible en la página web Central Directo del Banco Central de Costa Rica: https://www.centraldirecto.fi.cr.
-Personas jurídicas obligadas al suministro de información | Representante Legal
-Sociedades Anónimas | Presidente
-Sociedades de Responsabilidad Limitada | Gerente o Subgerente
-Sociedad en Nombre Colectivo | Administrador
-Sociedades en Comandita | Gerente
-Sucursales de Sociedades Extranjeras | Apoderado Generalísimo
-Empresas Individuales de Responsabilidad Limitada | Gerente
-Sociedades Civiles | Administradores
+ARTÍCULO 1. Personas jurídicas: Las siguientes personas jurídicas inscritas en el Registro Nacional con plazo social vigente deben a través de su representante legal, ingresar en la página web Central Directo del Banco Central de Costa Rica: https://www.centraldirecto.fi.cr, para completar la declaración y suministrar la información requerida, incluyendo la indicación de las participaciones e identificación de los beneficiarios finales en el RTBF.
+Personas jurídicas
+Sociedades Anónimas
+Sociedades de Responsabilidad Limitada
+Sociedad en Nombre Colectivo
+Sociedades en Comandita
+Sociedades Extranjeras con cédula jurídica nacional
+Empresas Individuales de Responsabilidad Limitada
+Sociedades Civiles y Sociedades Profesionales
+En todos los casos el representante legal debe contar como mínimo con la “representación extrajudicial” que será verificada ante el Registro Nacional. En los casos que dicha representación deba ejercerse en forma conjunta, el declarante debe contar con la autorización de los otros representantes para completar la declaración en el RTBF, lo cual será consignado en el acuerdo de uso del servicio así como en la declaración jurada que debe firmar al enviar la declaración.
+(Así reformado por el artículo 1° de la resolución N° DGT-ICD-R-74-2019 del 6 de diciembre de 2019)

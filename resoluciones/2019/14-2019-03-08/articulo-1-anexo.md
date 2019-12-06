@@ -24,7 +24,8 @@ Registro de Transparencia y Beneficiarios Finales de Central Directo
 1.3.1 Persona física:
 1.3.1.1 Datos de identificación:
 1.3.1.1.1 Tipo de identificación.
-1.3.1.1.2 Número de identificación.
+1.3.1.1.2 Tipo de participación(*).
+(*) (Así modificada su denominación por el artículo 2° de la resolución N° DGT-ICD-R-74-2019 del 6 de diciembre de 2019. “Anteriormente se indicaba: “Tipo de identificación”)
 1.3.1.1.3 Nombre.
 1.3.1.1.4 Fecha de nacimiento.
 1.3.1.1.5 Lugar de nacimiento.
@@ -35,7 +36,8 @@ Registro de Transparencia y Beneficiarios Finales de Central Directo
 1.3.1.1.10 Dirección física para localización.
 1.3.1.2 Detalle de las participaciones:
 1.3.1.2.1 Fecha de adquisición de la primera participación, la cual debe corresponder al primer registro en el libro de accionistas de acuerdo a la clase de participación.
-1.3.1.2.2 Tipo de identificación
+1.3.1.2.2 Tipo de participación(*).
+(*) (Así modificada su denominación por el artículo 2° de la resolución N° DGT-ICD-R-74-2019 del 6 de diciembre de 2019. “Anteriormente se indicaba: “Tipo de identificación”)
 1.3.1.2.3 Cantidad de participaciones que posee.
 1.3.1.2.4 Cantidad de derechos a voto que posee.
 1.3.1.2.5 Copropiedad en caso que corresponda.
@@ -59,7 +61,8 @@ Registro de Transparencia y Beneficiarios Finales de Central Directo
 1.3.2.1.9 Dirección física para localización.
 1.3.2.2 Detalle de las participaciones:
 1.3.2.2.1 Fecha de adquisición de la primera participación, la cual debe corresponder al primer registro en el libro de accionistas de acuerdo a la clase de participación.
-1.3.2.2.2 Tipo de identificación
+1.3.2.2.2 Tipo de participación(*).
+(*) (Así modificada su denominación por el artículo 2° de la resolución N° DGT-ICD-R-74-2019 del 6 de diciembre de 2019. “Anteriormente se indicaba: “Tipo de identificación”)
 1.3.2.2.3 Cantidad de participaciones que posee.
 1.3.2.2.4 Cantidad de derechos a voto que posee.
 1.3.2.2.5 Copropiedad en caso que corresponda.
@@ -89,7 +92,8 @@ Registro de Transparencia y Beneficiarios Finales de Central Directo
 1.3.3.1.12 Fecha de fin del fideicomiso.
 1.3.3.2 Detalle de las participaciones:
 1.3.3.2.1 Fecha de adquisición de la primera participación, la cual debe corresponder al primer registro en el libro de accionistas de acuerdo a la clase de participación.
-1.3.3.2.2 Tipo de identificación
+1.3.3.2.2 Tipo de participación(*)
+(*) (Así modificada su denominación por el artículo 2° de la resolución N° DGT-ICD-R-74-2019 del 6 de diciembre de 2019. “Anteriormente se indicaba: “Tipo de identificación”)
 1.3.3.2.3 Cantidad de participaciones que posee.
 1.3.3.2.4 Cantidad de derechos a voto que posee.
 1.3.3.2.5 Copropiedad en caso que corresponda.
