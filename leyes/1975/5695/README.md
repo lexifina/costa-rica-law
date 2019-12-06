@@ -1,6 +1,6 @@
 # Ley de Creación del Registro Nacional
 
-Ley N° 5695 del 1975-05-28. SINALEVI, ficha 37687: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=37687&param2=111841&param3=1>.
+Ley N° 5695 del 1975-05-28. SINALEVI, ficha 37687: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=37687&param2=118667&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -19,3 +19,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 11 de 14 | 2012-01-27 | Ley 8905 | 2010-12-07 |
 | 12 de 14 | 2015-05-21 | Ley 9246 | 2014-05-07 |
 | 13 de 14 | 2018-04-10 | Ley 9524 | 2018-03-07 |
+| 14 de 14 | 2019-12-06 | Ley 9770 | 2019-10-29 |
