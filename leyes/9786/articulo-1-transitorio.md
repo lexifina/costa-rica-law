@@ -1,0 +1,1 @@
+TRANSITORIO I- El Poder Ejecutivo, mediante el Ministerio de Salud, con base en criterios técnicos y previa consulta pública, reglamentará la presente ley en un plazo máximo de seis meses, contado a partir de su publicación en el diario oficial La Gaceta.

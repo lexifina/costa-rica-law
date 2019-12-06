@@ -1,0 +1,2 @@
+ARTÍCULO 7- Educación para la gestión
+En el Programa Nacional de Educación para la Gestión Integral de Residuos, establecido en el artículo 19 de la Ley de Gestión Integral de Residuos, Ley N.° 8839, de 24 de junio de 2010, o en cualquier política, plan, programa de educación relacionado con sostenibilidad o gestión ambiental deberá integrarse una sección sobre el tema específico de la gestión integral de los residuos plásticos, con énfasis especial en la sustitución, reducción y eliminación del plástico de un solo uso.
