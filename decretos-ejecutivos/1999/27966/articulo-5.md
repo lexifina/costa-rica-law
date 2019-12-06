@@ -1,7 +1,8 @@
 CAPITULO II
 De la clasificación y asignación de vehículos oficiales
-Artículo 5°—De la clasificación y asignación de vehículos: Los vehículos propiedad del Ministerio, se clasifican;
-1) De uso administrativo: Aquellos destinados al cumplimiento de las funciones propias del Ministerio. Estos deberán portar los distintivos del Ministerio y deben cumplir con los controles y requerimientos establecidos en el presente Reglamento, la Ley de Transito y Normas Técnicas.
-2) De uso discrecional: Aquellos asignados al servicio del Ministro y Viceministros, conforme lo establece y regula la Ley de Transito y
-el Manual de Control Interno relativo al Uso. Control y Mantenimiento de Vehículos emitido por la Contraloría General de la República. Este tipo de vehículos no cuenta con restricciones en cuanto a gasto de combustible, horario de operación, ni recorrido. aspectos que asumirá bajo estricta responsabilidad el funcionario. Sin embargo, deberá llevarse un control mensual del kilometraje y combustible.
-3) De seguridad: Aquellos que utilicen o requiera la Policía de Control Fiscal, para lograr los objetivos y metas que le son asignadas.
+Artículo 5°—Clasificación de vehículos. Los vehículos propiedad del Ministerio se clasifican de conformidad a lo establecido en Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial vigente en:
+a. De uso discrecional. Forman esta categoría los vehículos asignados al Ministro (a). Estos vehículos no cuentan con restricciones en cuanto a combustible, horario de operación ni recorrido, características que asumirá bajo su estricto criterio, el funcionario responsable de la unidad. No obstante, deberá llevarse un control mensual del kilometraje y combustible.
+b. De uso semi-discrecional. Forman esta categoría los vehículos asignados a los Viceministros (as). Estos vehículos estarán sujetos a limitaciones de horario, uso de combustible y recorrido, según los lineamientos que al efecto emita el Departamento de Servicios de la Dirección Administrativa y Financiera, pero pueden portar placas particulares y no tendrán marcas visibles que los distingan como vehículos oficiales.
+c. De uso administrativo general. Forman esta categoría los vehículos asignados a las diferentes dependencias del Ministerio, destinados a ofrecer servicios regulares de transporte a los funcionarios del Ministerio, cuando así lo requieran para el normal desarrollo de las funciones asignadas.
+d. De uso policial: Forman esta categoría los vehículos asignados a la Policía de Control Fiscal, para lograr los objetivos y metas que le son asignadas respecto al control fiscal.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 42192 del 6 de diciembre del 2019)

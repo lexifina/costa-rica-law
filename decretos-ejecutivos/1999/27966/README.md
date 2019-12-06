@@ -16,3 +16,4 @@ Reglamento para el Uso, Control y Mantenimiento de Vehículos del Ministerio de 
 | 1 | 1999-07-14 | la propia norma |
 | 2 | 2006-06-01 | Decreto Ejecutivo 33208 (2006-06-01) |
 | 3 | 2009-09-01 | Decreto Ejecutivo 35564 (2009-09-01) |
+| 4 | 2019-12-06 | Decreto Ejecutivo 42192 (2019-12-06) |
