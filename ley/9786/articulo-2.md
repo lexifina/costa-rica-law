@@ -1,0 +1,2 @@
+ARTÍCULO 2- Reconversión productiva
+Se autoriza al Sistema de Banca para el Desarrollo y a las entidades del Sistema Financiero Nacional a generar programas especiales de investigación para la innovación, financiamiento y acompañamiento a micro y pequeñas empresas que desarrollen proyectos de conservación, reducción, reciclaje, prevención y reconversión productiva de industrias dedicadas a la fabricación de productos plásticos. Lo anterior deberá considerar lo dispuesto en el artículo 7 de la Ley N.° 8634, Ley Sistema de Banca para el Desarrollo, de 26 de abril de 2008.
