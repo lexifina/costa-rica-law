@@ -16,3 +16,4 @@ Reglamento para la operación del fondo general de caja chica del Poder Judicial
 | 2 | 2002-11-11 | Reglamento 51 (2002-11-11) |
 | 3 | 2004-02-23 | Reglamento 6 (2004-02-23) |
 | 4 | 2010-12-13 | Circular 170 (2010-12-13) |
+| 5 | 2019-12-06 | Circular 215 (2019-12-06) |
