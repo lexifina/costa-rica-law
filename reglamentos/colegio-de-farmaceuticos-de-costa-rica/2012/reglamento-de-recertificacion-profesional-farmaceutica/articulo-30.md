@@ -1,7 +1,3 @@
-Artículo 30.—Cada periodo de recertificación consta de tres años consecutivos.
-En el primer período de su recertificación, el profesional farmacéutico debe documentar que obtuvo cada año un mínimo de 10 créditos.
-En el segundo período de su recertificación, el profesional farmacéutico debe documentar que obtuvo cada año un mínimo de 15 créditos.
-A partir del tercer período de recertificación y en adelante, el profesional farmacéutico debe documentar que obtuvo cada año un mínimo de 20 créditos.
-Si el farmacéutico no cumple con el número mínimo de créditos de alguno de los años del período de recertificación inscrito, deberá iniciar de nuevo su período completo de tres años.
-La CRPF reconocerá las actividades recertificables de EFC que el profesional haya realizado del 1 de enero al 31 de diciembre de cada año.
+Artículo 30.—Cada periodo de recertificación consta de tres años consecutivos. La CRPF reconocerá las actividades recertificables de EFC que el profesional haya realizado del 1 de enero al 31 de diciembre de cada año. La presentación de atestados debe realizarse a más tardar el 31 de enero del año siguiente. Si el farmacéutico no cumple con dicho plazo, podrá solicitar cambio de fecha de inscripción por una única vez, durante el primero o segundo año del periodo de inscripción original, de lo contrario se perderá la recertificación del año correspondiente.
 Los créditos no son acumulables de un año para otro, ni de un periodo para otro.
+(Así reformado en Asamblea General Extraordinaria del 8 de diciembre de 2019)

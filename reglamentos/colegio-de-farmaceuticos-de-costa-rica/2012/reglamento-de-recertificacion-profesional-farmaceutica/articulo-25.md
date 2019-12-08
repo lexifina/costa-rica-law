@@ -1,1 +1,2 @@
-Artículo 25.—La CRPF tiene potestad para suspender la acreditación de un ente proveedor y/o de una actividad de EFC, en caso de incumplimiento de requisitos o falsedad de datos a juicio de la Comisión.
+Artículo 25.—La CRPF tiene potestad para suspender la acreditación de un ente proveedor y/o de una actividad de EFC, en caso de incumplimiento de requisitos, falsedad de datos, o cuando el ente proveedor no haga entrega de la lista de los participantes y de los resultados de la evaluación de calidad del curso a más tardar 30 días hábiles posteriores a la finalización de la actividad.
+(Así reformado en Asamblea General Extraordinaria del 8 de diciembre de 2019)

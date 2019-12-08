@@ -15,7 +15,8 @@ Actividad educativa de participación: Actividad educativa presencial o a distan
 Actividad educativa de aprovechamiento: Actividad educativa presencial o a distancia en la que se mide el aprendizaje obtenido por el discente, mediante una evaluación.
 Área de desempeño profesional: Campo de ejercicio profesional en el cual labora, se entrena, se capacita y se desarrolla un profesional en Farmacia.
 Autor: Productor intelectual original de una obra, independientemente de la forma de expresión (libros, folletos u otros escritos), según lo establecido en la Ley N° 6683 de 14 de octubre de 1982, Ley de Derechos de Autor y Derechos Conexos y sus reformas.
-Cartel (poster) en actividades científicas: Presentación esquemática, resumida, escrita, con exposición oral o no, de una investigación en una actividad científica.
+Cartel (poster) en actividades científicas: Cartel (poster) en actividades científicas: Presentación esquemática, resumida, escrita, de una investigación en una actividad científica.
+(Así reformada la definición anterior en Asamblea General Extraordinaria del 8 de diciembre de 2019)
 Ciclo de conferencias: Serie de conferencias debidamente planificadas secuencialmente para el desarrollo de un tema.
 Ciencia de la salud: Aquella considerada como tal en el artículo 40 de la Ley General de Salud.
 Comisión de Recertificación Profesional Farmacéutica (CRPF): Equipo rector del Sistema de Recertificación Profesional Farmacéutica, nombrado por la Junta Directiva del Colegio de Farmacéuticos de Costa Rica.
@@ -40,4 +41,5 @@ Simposio: Consiste en un grupo de charlas, discursos o exposiciones verbales, pr
 Sistema de Recertificación Profesional Farmacéutica (SRPF): Conjunto de actividades de educación farmacéutica continua y procesos avalados por el Colegio de Farmacéuticos de Costa Rica, conducentes a garantizar la actualización profesional de los miembros inscritos en el Sistema.
 Taller: Actividad donde varias personas trabajan cooperativamente para analizar un tema (problema), se practica y se consolida una solución (producto).
 Tutoría: Es la interacción académica que se da entre el docente y el discente y discentes entre sí, que tiene como objetivo reforzar el auto aprendizaje, mediante acciones académicas, de orientación, técnicas y administrativas; así como la retroalimentación del conocimiento de la disciplina.
-Voto de calidad: Facultad que tiene el coordinar de la Comisión para emitir doble voto en caso de empate.
+Voto de calidad: Facultad que tiene el coordinador de la Comisión para emitir doble voto en caso de empate.
+(Así reformada la definición anterior en Asamblea General Extraordinaria del 8 de diciembre de 2019)

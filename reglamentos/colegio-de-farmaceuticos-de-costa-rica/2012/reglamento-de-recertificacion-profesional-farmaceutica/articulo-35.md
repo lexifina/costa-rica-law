@@ -1,3 +1,3 @@
-Artículo 35.—La Junta Directiva entregará el certificado de recertificación al farmacéutico que a criterio de la CRPF hubiere cumplido con los requisitos establecidos por el SRPF para el período correspondiente.
-Para obtener el certificado de RPF el profesional farmacéutico debe mantener su condición de miembro activo del CFCR.
-Cada año la Junta Directiva definirá la fecha en que se entregarán los certificados a los profesionales farmacéuticos que hayan cumplido con los requisitos de sus respectivos períodos de recertificación.
+Artículo 35.—Contra las resoluciones de la CRPF caben los recursos de revocatoria y apelación. El recurso de revocatoria deberá interponerse ante la CRPF dentro del plazo de 10 días hábiles contados a partir del día siguiente de recibida la notificación de la resolución de la CRPF. En caso de una resolución desfavorable del recurso de revocatoria, el solicitante podrá plantear recurso de apelación ante la Junta Directiva, dentro de los siguientes 10 días hábiles luego de recibida la notificación de la resolución.
+Ambas gestiones recursivas deberán ser resueltas en un plazo no mayor de 15 días naturales.
+(Así reformado en Asamblea General Extraordinaria del 8 de diciembre de 2019)

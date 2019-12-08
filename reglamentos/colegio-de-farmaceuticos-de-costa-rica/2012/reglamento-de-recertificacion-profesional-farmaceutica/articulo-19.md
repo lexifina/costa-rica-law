@@ -1,1 +1,2 @@
-Artículo 19.—La solicitud de acreditación de actividades de EFC debe presentarse a la CRPF con la descripción curricular en el formato establecido para tal fin, mínimo 30 días naturales antes de iniciar la actividad.
+Artículo 19.—La solicitud de acreditación de actividades de EFC debe presentarse a la CRPF con la descripción curricular en el formato establecido para tal fin, mínimo 45 días naturales antes de iniciar la actividad. El ente proveedor no podrá difundir la actividad como acreditada hasta tanto no haya recibido un dictamen positivo por parte de la CRPF.
+(Así reformado en Asamblea General Extraordinaria del 8 de diciembre de 2019)

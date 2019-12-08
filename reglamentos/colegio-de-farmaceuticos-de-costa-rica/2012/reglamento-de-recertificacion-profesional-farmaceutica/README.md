@@ -14,3 +14,4 @@ Reglamento de Recertificación Profesional Farmacéutica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-03-18 | la propia norma |
+| 2 | 2019-12-08 | Reglamento 0 (2019-12-08) |

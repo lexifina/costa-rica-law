@@ -1,1 +1,1 @@
-Artículo 39.—El presente reglamento rige a partir de su publicación en el Diario Oficial La Gaceta.
+Artículo 39.— (Derogado en Asamblea General Extraordinaria del 8 de diciembre de 2019)

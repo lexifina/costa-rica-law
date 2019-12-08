@@ -1,2 +1,2 @@
-Artículo 34.—Contra las resoluciones de la CRPF caben los recursos de revocatoria y apelación. El recurso de revocatoria deberá interponerse ante la CRPF dentro del plazo de 10 días hábiles contados a partir del día siguiente de recibida la resolución de la CRPF. En caso de una resolución desfavorable del recurso de revocatoria, el solicitante podrá plantear recurso de apelación ante la Junta Directiva, dentro de los siguientes 10 días hábiles luego de recibida la notificación de la resolución.
-Ambas gestiones recursivas deberán ser resueltas en un plazo no mayor de 15 días naturales.
+Artículo 34.—La respectiva resolución será registrada en el expediente de RPF del Colegiado y podrá ser consultada por el interesado cuando lo desee.
+(Así reformado en Asamblea General Extraordinaria del 8 de diciembre de 2019)

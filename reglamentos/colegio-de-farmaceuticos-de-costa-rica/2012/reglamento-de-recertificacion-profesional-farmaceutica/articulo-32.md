@@ -1,1 +1,2 @@
-Artículo 32.—La CRPF notificará al farmacéutico la resolución de su solicitud en un plazo no mayor de 30 días naturales y le informará al cabo de cada periodo la fecha en que recibirá su certificado de recertificación profesional farmacéutica.
+Artículo 32.—Para obtener el reconocimiento de las actividades recertificables de EFC, el farmacéutico deberá presentar anualmente la solicitud, utilizando el formulario y presentando el original o copia de los certificados y/o documentos que respalden su participación en dichas actividades. La CRPF definirá la fecha límite de recepción de documentos para reconocimiento de las actividades recertificables de EFC.
+(Así reformado en Asamblea General Extraordinaria del 8 de diciembre de 2019)
