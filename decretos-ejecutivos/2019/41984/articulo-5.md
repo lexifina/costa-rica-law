@@ -1,0 +1,1 @@
+Artículo 5º—Se insta a todas las instituciones, empresas públicas y privadas y a la sociedad en general, a que se unan a este esfuerzo, realizando actividades que promuevan el “Día de la Creatividad y la Innovación” en Costa Rica.

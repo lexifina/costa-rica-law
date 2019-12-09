@@ -1,0 +1,1 @@
+Artículo 4º—Se insta a todas las instituciones públicas del país para que efectúen la celebración del día de la creatividad e innovación, así como a conformar comisiones para la promoción de la creatividad e innovación en el seno de cada una de ellas.
