@@ -1,1 +1,0 @@
-Artículo 2º—Deróguese el Decreto Ejecutivo número 41798- H del 10 de junio de 2019, publicado en el Alcance número 143 a La Gaceta número 118 del 25 de junio de 2019, a partir de la vigencia del presente decreto.
