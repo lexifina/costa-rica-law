@@ -1,4 +1,1 @@
-ANEXO 12: TABLA DE MONTOS MÁXIMOS DE COMPROMISO SEGÚN SALARIO MENSUAL BRUTO DEL FIADOR RANGO DE SALARIOS Y MONTO MAXIMO A GARANTIZAR POR FIADOR
-[imagen]
-[imagen] [imagen]
-(Así reformado mediante sesión N° 13-2018 del 16 de abril del 2018)
+ANEXO 12: TABLA DE MONTOS MÁXIMOS DE COMPROMISO SEGÚN SALARIO MENSUAL BRUTO DEL FIADOR RANGO DE SALARIOS Y MONTO MAXIMO A GARANTIZAR POR FIADOR (Derogado mediante sesión N° 32-2019 del 9° de diciembre de 2019. Asimismo se indica que este anexo se incorporara como parte del Plan Anual de Gestión de Crédito)
