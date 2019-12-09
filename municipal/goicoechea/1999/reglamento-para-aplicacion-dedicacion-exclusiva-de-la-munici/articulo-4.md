@@ -1,1 +1,0 @@
-Artículo 4°—Se le reconocerá dedicación exclusiva al Alcalde Municipal de acuerdo al artículo 20° del Código Municipal, el cual deberá cumplir con los requisitos establecidos en el artículo 3° incisos a) y e).
