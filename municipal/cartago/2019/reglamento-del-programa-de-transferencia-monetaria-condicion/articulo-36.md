@@ -1,0 +1,3 @@
+Artículo 36° El dictamen de la CPAS para la asignación de transferencias anuales será conocido por el Concejo Municipal a más tardar la sesión de la última semana de febrero.
+Además, de acuerdo con la disponibilidad de recursos, a solicitud del Concejo la omisión podrá emitir dictámenes individuales o grupales para asignar nuevas transferencias durante el ejercicio presupuestario respectivo, siempre respetando lo establecido en el artículo 57, inciso a, del Código Municipal, los cuales requerirán, aprobación del Concejo Municipal para ser efectivos. En estos casos, la asignación será efectiva a partir del siguiente mes de la aprobación.
+Los acuerdos del Concejo que ratifiquen estos dictámenes sólo requieren mayoría simple.

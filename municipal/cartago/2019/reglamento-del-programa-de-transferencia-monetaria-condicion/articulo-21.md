@@ -1,0 +1,1 @@
+Artículo 21° La Secretaría de la CPAS entregará a cada síndico propietario la cantidad de formularios que le corresponde distribuir al Concejo de Distrito en su distrito, junto con una lista de las becas de continuidad. Las becas de continuidad para el nuevo curso quedan sujetas a comprobación del cumplimiento de los requisitos establecidos en este reglamento.

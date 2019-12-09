@@ -1,0 +1,1 @@
+Artículo 4º Se establece el programa de transferencia monetaria condicionada para regular el proceso de asignación, control y seguimiento de las ayudas económicas, para estudiantes residentes del cantón y para las personas funcionarias de la Municipalidad de Cartago, sus hijas e hijos que habiten en el cantón.

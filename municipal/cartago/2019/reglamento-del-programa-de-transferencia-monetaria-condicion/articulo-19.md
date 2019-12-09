@@ -1,0 +1,2 @@
+Artículo 19° Las familias beneficiarias recibirán una transferencia monetaria condicionada otorgada a la familia del estudiante para satisfacer necesidades básicas, que se aprobará mediante una resolución administrativa y se suscribirá una carta de compromiso.
+Los montos de la transferencia serán definidos por el Consejo Municipal del Cantón Central de Cartago, así como a cualquier otro documento vigente y vinculante.

@@ -1,0 +1,1 @@
+Artículo 41° El funcionario competente será la persona que a nombre y por cuenta de la Municipalidad de Cartago verificará las condicionalidades, emitirá el criterio profesional en cuanto la aprobación, suspensión y revocación de la transferencia monetaria condicionada.

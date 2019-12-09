@@ -1,0 +1,2 @@
+Disposición transitoria única. Las ayudas económicas otorgadas a personas estudiantes para el curso lectivo del año 2019 de acuerdo a lo dispuesto por el REGLAMENTO DEL SISTEMA DE BECAS DE LA MUNICIPALIDAD DE CARTAGO, aprobado por el Concejo Municipal en el artículo IV de la sesión N° 54-2017 del día 10 de enero del 2017, continuarán rigiéndose por lo dispuesto en ese reglamento hasta el final de su ejecución.
+Rige a partir de su publicación.

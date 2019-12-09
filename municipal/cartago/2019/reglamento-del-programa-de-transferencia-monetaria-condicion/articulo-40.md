@@ -1,0 +1,1 @@
+Artículo 40° La información suministrada se incluirá en un sistema al cual tendrá acceso el departamento de becas, la cual será de fácil consulta cuando se solicite, la información necesaria para realizar el monitoreo y la evaluación del Programa.

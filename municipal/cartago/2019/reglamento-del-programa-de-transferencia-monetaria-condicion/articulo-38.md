@@ -1,0 +1,1 @@
+Artículo 38° Será la Municipalidad la encargada coordinar con la dirección del MEP el suministro y actualización de la información que demuestre que los (as) estudiantes se mantienen matriculados y asistiendo al Sistema para lo cual creara el convenio necesario.
