@@ -14,3 +14,4 @@ Procedimiento para la promoción del "Premio Acumulado" con los sorteos de loter
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-05-17 | la propia norma |
+| 2 | 2019-12-09 | Reglamento 72 (2019-12-09) |
