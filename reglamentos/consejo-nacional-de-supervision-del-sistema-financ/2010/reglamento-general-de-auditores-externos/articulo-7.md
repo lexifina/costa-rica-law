@@ -9,5 +9,6 @@ d. Ser agente de bolsa en ejercicio.
 e. Formar parte de organismos de administración de la entidad auditada.
 f. Mantener oficinas comerciales dentro de las instalaciones de la entidad regulada.
 g. Ser proveedor de servicios auxiliares de seguros autorizado de la entidad aseguradora durante los períodos económicos auditados.
-Adicionalmente, las firmas de auditorías externas o auditores externos independientes deben cumplir con las obligaciones y deberes establecidos en las leyes reguladoras de los colegios profesionales respectivos y los principios éticos rectores de su profesión.
+Adicionalmente, las firmas de auditorías externas o auditores externos independientes deben cumplir con las obligaciones y deberes establecidos en la Ley de Creación del Colegio de Contadores Públicos de Costa Rica, las normas establecidas por este y los principios éticos rectores de su profesión. En el caso de auditorías de TI, el profesional o encargado del equipo debe cumplir con los deberes establecidos por ISACA.
+(Así reformado el párrafo anterior mediante sesión N° 1548-2019 del 9 de diciembre del 2019)
 (Así reformado en sesiones N° 1318-2017 y 1319-2017 del 13 y 20 de marzo de 2017)
