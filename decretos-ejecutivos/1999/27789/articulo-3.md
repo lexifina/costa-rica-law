@@ -5,4 +5,6 @@ c) Un ancho mínimo de 3,00 metros para las entradas y salidas;
 d) Radios de giro con un mínimo de 4,66 metros de trayectoria de la saliente trasera y carriles de circulación de al menos 3,00 metros de ancho;
 e) Reservar, como mínimo, dos espacios para el estacionamiento de motocicletas. El número máximo lo establecerá el propietario, dependiendo de la ubicación que tenga el parqueo y su potencial demanda por parte de los conductores de este tipo de vehículos.
 f) Contar con al menos dos espacios que puedan destinarse expresa y exclusivamente para el estacionamiento de vehículos conducidos por personas con discapacidad o que las transporten, los cuales deberán ubicarse cerca de la entrada principal de los estacionamientos respectivos.”
+g) El espacio asignado a las bicicletas deberá tener un elemento de soporte o apoyo que no podrá ser utilizado por las motocicletas.
+(Así adicionado el inciso anterior por el artículo 32 del Reglamento de la Ley de Movilidad y Seguridad Ciclística, aprobado mediante decreto ejecutivo N° 42111 del 9 de diciembre del 2019)
 (Así reformado por el artículo 1° del Decreto Ejecutivo N° 28829, del 28 de Julio de 2000)
