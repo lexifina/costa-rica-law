@@ -1,0 +1,1 @@
+Artículo 72.- Descuento por pago adelantado. - La Municipalidad de Cartago podrá otorgar un descuento por el pago adelantado anual del impuesto de patente, siempre que sea cancelado a más tardar el último día del trimestre en que se genera la emisión al cobro.

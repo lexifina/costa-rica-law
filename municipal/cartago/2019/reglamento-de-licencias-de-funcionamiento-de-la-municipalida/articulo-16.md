@@ -1,0 +1,9 @@
+Artículo 16.- Traspaso de Licencia de Funcionamiento. - Formulario de Solicitud de Traspaso Licencia Municipal de Funcionamiento debidamente lleno, el cual debe ser firmado por el (los) propietario (s) del inmueble y el solicitante de la licencia. En caso de que el inmueble tenga más de un propietario adjunte a este formulario lista con el nombre, número de identificación y firma de cada uno de los propietarios, con los siguientes requisitos:
+a. Documento de identidad del cedente y adquiriente, documento de identidad de el/los propietarios (s) del inmueble. Si el cedente o adquiriente es una persona jurídica y/o el dueño de la propiedad es persona jurídica debe adjuntar original de personería jurídica vigente y documento de identidad del representante legal de la sociedad.
+b. Documento extendido por el emisor de la Póliza de Riesgos del Trabajo. La cual deberá indicar; lugar de trabajo, actividad solicitada, vigencia y que la misma este a nombre del solicitante. (Ley 6727 de Riesgos del Trabajo) o en su defecto indicar que se trata de una actividad laboral familiar. (Artículo 194 del Código de Trabajo)
+c. Hacer entrega del certificado de la licencia municipal anterior, caso contrario presentar declaración jurada indicando por qué no posee el certificado original.
+d. Deberá estar al día con el pago de las obligaciones con la Caja Costarricense del Seguro Social, (CCSS).
+e. Deberá estar al día en el pago de sus obligaciones con el FODESAF.
+f. Deberá encontrarse inscrito ante la Dirección General de Tributación para la actividad solicitada.
+g. Tanto el solicitante como el propietario (s) del inmueble deberán estar al día con el pago de tributos y precios municipales, incluidos arreglos de pago, así como dar cumplimiento a las obligaciones formales.
+h. Señalar lugar y medio de notificación dentro del espacio establecido para estos fines en el formulario. Ley N° 8687, Ley de Notificaciones Judiciales, artículo 3 y 34

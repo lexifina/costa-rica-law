@@ -1,0 +1,5 @@
+CAPITULO II
+SECCION I
+REQUISITOS PARA EL OTORGAMIENTO DE LICENCIA MUNICIPAL
+Artículo 11.- Obligatoriedad de la licencia municipal. - Para ejercer cualquier actividad lucrativa, los interesados deberán contar con la licencia municipal respectiva, la cual se obtendrá mediante el cumplimiento de los requisitos establecidos en el formulario de solicitud de Licencia municipal de funcionamiento. El ejercicio de dicha actividad generará la obligación del contribuyente, de pagar a favor de la Municipalidad, el impuesto de Patentes de conformidad con la ley y el presente Reglamento. Dicho impuesto se pagará durante todo el tiempo en que se haya ejercido la actividad lucrativa, o por el tiempo que se haya poseído la licencia municipal, aunque la actividad no se haya realizado.
+Cuando existieran disposiciones legales proteccionistas que afecten el pago del impuesto de patente, corresponderá al interesado solicitar la exención correspondiente. No obstante, en tales casos, se mantiene la obligación de solicitar la respectiva licencia municipal.

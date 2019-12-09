@@ -1,0 +1,1 @@
+Artículo 42.- Rechazo de la solicitud. - El Concejo Municipal podrá rechazar la solicitud de Licencia para venta ambulante o estacionaria, por legalidad, oportunidad o conveniencia y, tendrá los recursos que señala el Código Municipal.

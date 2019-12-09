@@ -1,0 +1,1 @@
+Artículo 69.- Revocatoria. - La resolución de extinción por revocatoria de la licencia de perifoneo, sin responsabilidad de la municipalidad, la dictará el Alcalde Municipal, con fundamento en lo dispuesto en el artículo 152, siguientes y concordantes de la Ley General de la Administración Pública, previa iniciativa de revocatoria emanada por el Jefe del Departamento de Patentes.

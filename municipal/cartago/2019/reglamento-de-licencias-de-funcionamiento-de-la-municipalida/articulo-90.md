@@ -1,0 +1,1 @@
+Artículo 90.- Base Imponible. - La base imponible para la determinación de este impuesto, es la sumatoria del cinco por ciento (5%) del ingreso recaudado del respectivo espectáculo público que se efectúe en el Cantón de Cartago, conforme lo establece la Ley 6844.

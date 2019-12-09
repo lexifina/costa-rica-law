@@ -1,0 +1,1 @@
+Artículo 73.- Declaración por autoliquidación. – Para los casos de licencias temporales deberán presentar formulario de autoliquidación debidamente lleno, en un plazo máximo de diez días hábiles contados a partir de la fecha de finalización del evento. De presentar el formulario de autoliquidación fuera del plazo antes indicado los montos autoliquidados generaran intereses.

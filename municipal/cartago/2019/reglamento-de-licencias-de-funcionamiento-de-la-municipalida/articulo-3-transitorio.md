@@ -1,0 +1,1 @@
+Transitorio III.- En tanto no existan los medios electrónicos apropiados para que se lleve a cabo automáticamente lo contemplado en el presente Reglamento, el interesado deberá gestionarlo ante el Departamento de Patentes.

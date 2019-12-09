@@ -1,0 +1,3 @@
+Artículo 92.- Obligaciones de los Contribuyentes. - Todos los contribuyentes del impuesto están obligados a presentar el formulario de autoliquidación del Impuesto sobre espectáculos según corresponda.
+Esta declaración debe de ser presentada a más tardar el día quince de cada mes, si por alguna razón el día límite de la presentación corresponde a un día no hábil, se habilitará el día hábil siguiente. La presentación tardía de la declaración generara interés en el pago del impuesto.
+Con la presentación se deberá realizar el pago del impuesto declarado. La declaración podrá ser presentada de forma presencial o no presencial utilizando los medios que ofrezca la Municipalidad.

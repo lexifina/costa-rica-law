@@ -1,0 +1,3 @@
+SECCION II
+DEL IMPUESTO DE ESPECTACULOS PUBLICOS
+Artículo 88.- Del hecho generador del impuesto de espectáculos públicos. - Constituye el hecho generador de la obligación tributaria, la presentación o desarrollo de toda clase de espectáculo público y de diversión no gratuita, tales como cines, teatros, salones de baile, discotecas, estadios y plazas nacionales o particulares; en general sobre todo espectáculo que se efectué con motivo de festejos cívicos y patronales, veladas, ferias, turnos o novilladas, circos, excepto las realizadas en favor de las municipalidades u organismos o entidades gubernamentales.

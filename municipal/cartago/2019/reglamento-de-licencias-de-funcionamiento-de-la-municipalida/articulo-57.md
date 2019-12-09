@@ -1,0 +1,1 @@
+Artículo 57.- Ubicación y cantidad de puestos estacionarios. - La ubicación de los puestos estacionarios, será de un máximo de ocho puestos por manzana; es decir, dos puestos por cuadra, siempre y cuando las condiciones lo permitan a juicio del Concejo Municipal y con base en el presente Reglamento.

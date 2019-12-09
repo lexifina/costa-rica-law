@@ -1,0 +1,11 @@
+Artículo 23.- Solicitud de Licencia Municipal de Transporte. - Cuando la actividad a desarrollar sea: Taxi, Taxi Carga, Buseta de Estudiantes, Buseta del I.C.T., Autobuses en Ruta Cantonal, Ruta Provincial y Ruta Distrital, deberá presentar solicitud con los siguientes requisitos:
+a. Formulario de Solicitud de Licencia Municipal de Transporte debidamente lleno, el cual debe ser firmado por el solicitante de la licencia quien deberá ser el concesionario ante el Ministerio de Obras Públicas y Transporte (MOPT).
+b. Documento de identidad del solicitante. Si la licencia es solicitada por una persona jurídica debe adjuntar original de personería jurídica vigente y documento de identidad del representante legal de la sociedad.
+c. Documento extendido por el emisor de la Póliza de Riesgos del Trabajo. La cual deberá indicar; lugar de trabajo, actividad solicitada, vigencia y que la misma este a nombre del solicitante. (Ley 6727 de Riesgos del Trabajo). O en su defecto exoneración.
+d. Documento extendido por el emisor de la Póliza de Responsabilidad Civil, con no más un mes de emitido, el cual deberá indicar; lugar, actividad solicitada, vigencia, o en su defecto nota que indique que la actividad a desarrollar no amerita este tipo de póliza.
+e. Deberá estar inscrito y al día con el pago de las obligaciones con la Caja Costarricense del Seguro Social, CCSS.
+f. Deberá estar al día en el pago de sus obligaciones con el FODESAF
+g. Deberá encontrarse inscrito ante la Dirección General de Tributación para la actividad solicitada.
+h. El solicitante deberá estar al día con el pago de tributos y precios municipales, incluidos arreglos de pago, así como dar cumplimiento a las obligaciones formales.
+i. Señalar lugar y medio de notificación dentro del espacio establecido para estos fines en el formulario. Ley N° 8687, Ley de Notificaciones Judiciales, artículo 3 y 34
+Una vez obtenida la Concesión o Permiso extendido por el Consejo de Transporte Público, MOPT, el Departamento de Patentes podrá coordinar con esa entidad para corroborar el otorgamiento de la Concesión o Permiso; en el caso de que se constate que la Concesión o Permiso no fueron otorgados, se iniciara el Proceso de eliminación de Licencia Municipal.

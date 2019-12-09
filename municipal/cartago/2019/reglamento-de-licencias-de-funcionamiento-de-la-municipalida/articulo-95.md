@@ -1,0 +1,1 @@
+Artículo 95.- Pago. - El pago del impuesto, será establecido mediante la autoliquidación presentada. El pago del impuesto deberá ser cancelado en las cajas recaudadoras definidas por la Municipalidad.

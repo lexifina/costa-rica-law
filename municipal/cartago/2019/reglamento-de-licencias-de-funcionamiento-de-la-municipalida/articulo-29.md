@@ -1,0 +1,5 @@
+SECCION III
+PROCEDIMIENTOS ESPECIALES LICENCIAS COMERCIALES
+Artículo 29.- Extinción de derecho de Licencia. - En caso de extinción, caducidad, renuncia y revocatoria de una licencia por cualquier motivo, el Departamento de Patentes será el ente encargado de declararla mediante resolución, quien al efecto notificará a las partes interesadas y dará audiencia por el término de cinco días hábiles para que se apersonen y manifiesten lo que en derecho corresponda.
+El Departamento de Patentes podrá revocar de oficio las licencias municipales que no paguen dos trimestres consecutivos el monto del impuesto de patente.
+Los propietarios de locales comerciales que alquilen dichos locales para actividades comerciales, una vez que les desocupen los referidos locales y que el dueño de la licencia no gestione su eliminación, podrá solicitar por escrito al Departamento de Patentes, que la referida licencia se desvincule de su local en los sistemas informáticos de la Municipalidad. El Departamento de Patentes previa inspección, constatará que no existe el negocio en dicho lugar y procederá como en derecho corresponde.

@@ -1,0 +1,1 @@
+Artículo 58.- Restricciones ventas ambulantes. - Los vendedores ambulantes no podrán operar fuera de su ruta comercial y su actividad no podrá obstaculizar a otros negocios o comerciantes establecidos. Tampoco podrán permanecer estacionados en un mismo sitio, salvo el tiempo necesario que lo requiera el cliente.

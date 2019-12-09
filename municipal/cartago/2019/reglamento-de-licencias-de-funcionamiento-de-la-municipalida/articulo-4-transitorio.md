@@ -1,0 +1,1 @@
+Transitorio IV.- Cuando este Reglamento hace alusión al Impuesto sobre las ventas y su respectivo formulario, se deberá estar a lo dispuesto en la Ley de Fortalecimiento de las Finanzas Públicas N° 9635, que sustituye el Impuesto sobre las Ventas, por el Impuesto al Valor Agregado específicamente sobre las fechas de entrada en vigencia del mismo y su implementación.
