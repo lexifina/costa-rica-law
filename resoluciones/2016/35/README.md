@@ -28,3 +28,4 @@ Metodología para la Fijación Ordinaria de Tarifas para el Servicio Remunerado 
 | 13 | 2019-07-23 | Resolución 107 (2019-07-23) |
 | 14 | 2019-09-27 | Resolución 97 (2019-09-27) |
 | 15 | 2019-11-20 | Resolución 139 (2019-11-20) |
+| 16 | 2019-12-10 | Resolución 124 (2019-12-10) |
