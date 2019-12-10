@@ -1,1 +1,2 @@
-Artículo 36.—Si la Comisión considera que la organización cumple con los requisitos y que el proyecto es de interés y beneficio para la comunidad, enviará el expediente con el respectivo dictamen al Concejo Municipal quien tomará el acuerdo definitivo que precalificará o no a la organización como entidad privada idónea para administrar fondos públicos.
+Artículo 36.—Si transcurrido 1 año la organización, sin que medie justificación válida, no cumple con tramitar y desarrollar el proyecto designado y aprobado, se le otorgará a otra organización para su ejecución.
+(Así reformado mediante sesión ordinaria N° 207-2019 del 10 de diciembre del 2019)

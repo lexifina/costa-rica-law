@@ -1,1 +1,2 @@
-Artículo 37.—En el acuerdo municipal, se indicará que la precalificación no constituye una garantía de que la organización recibirá los recursos públicos ni de que la Contraloría General de la República le otorgará la calificación de idoneidad, asimismo, se indicará que la vigencia de la precalificación es por el plazo de un año.
+Artículo 37.—El Concejo de Distrito tomará la decisión de cambiar el destino de las partidas específicas de la ley 7755 que no hayan sido ejecutadas en 2 años, reasignándole a otra organización para que ésta ejecute el nuevo proyecto.
+(Así reformado mediante sesión ordinaria N° 207-2019 del 10 de diciembre del 2019)

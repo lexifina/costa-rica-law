@@ -14,3 +14,4 @@ Reglamento de Concejos de Distritos y partidas específicas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-07-31 | la propia norma |
+| 2 | 2019-12-10 | Reglamento municipal 207 (2019-12-10) |
