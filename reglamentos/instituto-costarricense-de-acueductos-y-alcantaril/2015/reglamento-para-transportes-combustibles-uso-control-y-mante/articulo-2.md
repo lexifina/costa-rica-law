@@ -11,7 +11,8 @@ Director de UEN: Es el funcionario catalogado como director superior.
 Director General: Es el funcionario catalogado como director de área y depende del director de UEN.
 Jefe Cantonal: Es el funcionario de mayor jerarquía en cada cantón.
 Encargado de Transportes: Es el funcionario asignado de la flotilla en cada subgerencia de área, región o unidad ejecutora.
-Estacionamiento oficial: Instalaciones de AyA donde deben pernoctar los vehículos y maquinarias institucionales.
+Estacionamiento oficial: Instalaciones de AyA donde deben pernoctar los vehículos y maquinarias institucionales, o instalaciones destacadas para la inspección de obras requeridas a los Contratistas en los Documentos de Licitación, las cuales deberán contar con resguardo en el perímetro, así como, con seguridad física y/o electrónica debidamente monitoreada, con el fin de velar por los activos institucionales.
+(Así reformado la definición anterior en sesión N° 75 del 10 de diciembre de 2019)
 Institucional: Lo relativo o perteneciente a AyA.
 Jornada ordinaria de ruedo: Es la jornada comprendida entre las 06:00 hasta las 16:00 horas en que se autoriza a los vehículos de AyA a circular normalmente y así se consigna en la Boleta de Autorización de Ruedo (Jornada ordinaria), la cual se hace por día, semana o mensual según las actividades a realizar.
 Jornada extraordinaria de ruedo: Es la jornada de tiempo comprendida entre las 5:00 am y las 6:00 am y entre las 16:00 y las 24:00 horas, para lo cual se debe llenar la Boleta de Autorización de Ruedo (Tiempo extraordinario), la cual se debe hacer por día, semanal, quincenal o mensual. Casos muy especiales deben autorizarlos la Dirección Centro de Servicios de Apoyo o la Dirección de Maquinaria y Equipo.

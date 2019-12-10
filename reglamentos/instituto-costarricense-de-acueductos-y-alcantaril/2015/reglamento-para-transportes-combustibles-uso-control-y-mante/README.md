@@ -14,3 +14,4 @@ Reglamento para transportes, combustibles, uso, control y mantenimiento de vehí
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-06-22 | la propia norma |
+| 2 | 2019-12-10 | Reglamento 75 (2019-12-10) |
