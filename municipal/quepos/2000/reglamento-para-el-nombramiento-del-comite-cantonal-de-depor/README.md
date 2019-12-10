@@ -14,3 +14,4 @@ Reglamento para el nombramiento del Comité Cantonal de Deportes y Recreación d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-08-01 | la propia norma |
+| 2 | 2019-12-10 | Reglamento municipal 342 (2019-12-10) |
