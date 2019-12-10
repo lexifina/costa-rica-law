@@ -1,0 +1,31 @@
+N° 42012-MEP
+EL PRESIDENTE DE LA REPÚBLICA
+Y LA MINISTRA DE EDUCACIÓN PÚBLICA
+Con fundamento en las atribuciones que les confieren los artículos 140, incisos 3) y 18) y 146 de la Constitución Política; el artículo 27 de la Ley N° 6227 del 02 de mayo de 1978 “Ley General de la Administración Pública”,
+Considerando:
+I.—Que la Constitución Política de Costa Rica, en sus artículos números 78, 84 y 85, garantizan el financiamiento de la educación pública, incluida la educación superior universitaria estatal, así como su patrimonio y rentas propias.
+II.—Que la educación en Costa Rica es un sistema completo e integral, en el que las Instituciones de Educación Superior Universitaria Estatal se constituyen en un instrumento esencial para fomentar la generación de conocimiento, la movilidad y cohesión social y el enriquecimiento de la identidad cultural del país, con capacidad para promover el desarrollo económico, ambiental y social de cara a los retos y oportunidades del Siglo XXI.
+III.—Que la Sala Constitucional en reiterada jurisprudencia ha desarrollado los alcances del derecho a la educación como un derecho prestacional y servicio público. En resolución N° 2000- 11098 de las 9:30 horas del 15 de diciembre de 2000 señaló: “es claro que la intención del constituyente derivado fue la de dotar a la educación pública de los recursos necesarios para llevar a la práctica el mandato contenido en varios de los artículos que componen el Título VII de la Constitución Política, incluido el mismo numeral 78, profusamente regulado en diversos instrumentos de Derecho Internacional, tales como la Declaración Universal de Derechos Humanos (artículo 28); el Pacto Internacional de Derechos Económicos, Sociales y Culturales (artículo 13); Convención sobre los Derechos del Niño (artículo 28); Declaración de los Derechos del Niño (artículo 7); Carta de la Organización de Estados Americanos (artículo 49); Convención Americana sobre Derechos Humanos (artículo 26); Protocolo Adicional a la Convención Americana sobre Derechos Humanos en materia de Derechos Económicos, Sociales y Culturales (artículo 13); Declaración Americana sobre los Derechos y Deberes del Hombre (artículo XII); etc.”
+IV.—Que asimismo, la jurisprudencia constitucional ha indicado que al asignar al sector educación una dotación presupuestaria establecida constitucionalmente como un porcentaje del Producto Interno Bruto, el legislador investido de poder reformador buscó evitar que el Estado costarricense continuara dedicando a la enseñanza un porcentaje cada vez menor respecto de la producción interna, en detrimento del desarrollo nacional y del respeto al derecho de todo ser humano a recibir del Estado educación gratuita y de calidad.
+V.—Que el Gobierno de la República y las autoridades universitarias coinciden en la enorme importancia de la educación pública como herramienta de transformación social y en ese entendimiento han emprendido una ruta de diálogo para la construcción conjunta de soluciones para atender la situación actual.
+VI.—Que el Gobierno de la República es respetuoso de la autonomía universitaria consignada en el artículo 84 de la Constitución Política y la jurisprudencia en la materia.
+VII.—Que mediante Decreto Ejecutivo N° 4437 del 23 de diciembre de 1974 “Crea Comisión de Enlace entre las Instituciones de Educación Superior, los Poderes del Estado y las Instituciones Autónomas” se creó la Comisión de Enlace corno uno de los organismos coordinadores de la educación universitaria, previsto en el Convenio de Coordinación de la Educación Superior en Costa Rica.
+VIII.—Que el Convenio de Coordinación de la Educación Superior Universitaria Estatal en su artículo 4 establece la integración de la Comisión de Enlace, así como las funciones que le corresponde ejercer.
+IX.—Que mediante Acuerdo N° 1315-2019 del 21 de octubre de 2019 del Consejo Nacional de Rectores, se acordó adicionar al artículo 4 del Convenio de Coordinación de la Educación Superior Universitaria estatal vigente un último párrafo que señala: “La representación estudiantil designada de conformidad con lo establecido en el artículo 12 del presente Convenio actuará también como parte de la Comisión de Enlace.”
+X.—Que en razón de la relevancia de los asuntos tratados en la Comisión de Enlace, resulta necesario garantizar en la integración de la misma a la representación de los y las estudiantes de las universidades públicas, como mecanismo de participación activa en la definición y discusión sobre el financiamiento del Fondo Especial para la Educación Superior Universitaria Estatal.
+XI.—Que la solicitud de inclusión de un representante estudiantil en la Comisión de Enlace es una reivindicación histórica planteada por las Presidencias de las Federaciones de Estudiantes de las Universidades Estatales y plasmada en el documento de demandas estudiantiles para fortalecer la educación pública, entregado por éstas el 08 de julio de 2019. Por tanto,
+Decretan:
+“REFORMA AL ARTÍCULO 2 DEL DECRETO EJECUTIVO
+N° 4437 DEL 23 DE DICIEMBRE DE 1974, CREA COMISIÓN
+DE ENLACE ENTRE LAS INSTITUCIONES DE EDUCACIÓN
+SUPERIOR, LOS PODERES DEL ESTADO
+Y LAS INSTITUCIONES AUTÓNOMAS”
+Artículo 1º—Refórmese el artículo 2 del Decreto Ejecutivo N° 4437 del 23 de diciembre de 1974 “Crea Comisión de Enlace entre las Instituciones de Educación Superior, los Poderes del Estado y las Instituciones Autónomas”, para que en adelante se lea:
+“Artículo 2º—La Comisión de Enlace es uno de los organismos coordinadores de la educación universitaria, previsto en el Convenio de Coordinación de la Educación Superior en Costa Rica, suscrito por la Universidad de Costa Rica, el Instituto Tecnológico de Costa Rica, la Universidad Nacional, la Universidad Estatal a Distancia y la Universidad Técnica Nacional.
+La Comisión estará integrada por:
+a) El o la Ministra de Educación Pública, quien la presidirá
+b) El o la Ministra de Planificación Nacional y Política Económica
+c) El o la Ministra de Hacienda
+d) El o la Ministra de Ciencia y Tecnología
+e) Cada uno de los Rectores o Rectoras del Consejo Nacional de Rectores
+f) Uno de los Presidentes o Presidentas de las federaciones de estudiantes de las Universidades Públicas, designado según lo señalado en el Convenio de Coordinación de la Educación Superior Universitaria Estatal.

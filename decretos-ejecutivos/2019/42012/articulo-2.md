@@ -1,0 +1,1 @@
+Artículo 2º—La nueva integración de la Comisión de Enlace señalada en el artículo anterior, se hará efectiva una vez que los respectivos Consejos Universitarios e Institucionales ratifiquen el acuerdo N° 1315-2019 del 21 de octubre de 2019 del Consejo Nacional de Rectores.
