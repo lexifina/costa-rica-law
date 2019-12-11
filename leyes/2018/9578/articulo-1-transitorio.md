@@ -1,4 +1,4 @@
-TRANSITORIO ÚNICO- Los dineros y los intereses generados por depósitos judiciales en cuentas, certificados a plazo o cualquier otro producto financiero, que a partir de la entrada en vigencia de esta ley cumplan con lo dispuesto en el artículo 2 y se hallen bajo administración bancaria, deberán ser trasladados a favor del Régimen No Contributivo de Pensiones (RNC), administrado por la Caja Costarricense de Seguro Social (CCSS), para lo cual la Unidad Macro Proceso Financiero Contable y la Dirección Ejecutiva del Poder Judicial tendrán seis meses para consolidar y registrar toda la información de cada uno de los circuitos judiciales por expediente, para que dentro de este mismo plazo el Consejo Superior y la Corte Plena del Poder Judicial ordenen al banco o a los bancos administradores dicho traslado.
+TRANSITORIO ÚNICO-(Anulado mediante resolución de la Sala Constitucional N° 24684 del 11 de diciembre del 2019)
 Rige a partir de su publicación.
 Dado en la Presidencia de la República, a los veintidós días del mes de junio del año dos mil dieciocho.
-Ejecútese y publíquese.
+Ejecútese y publíquese
