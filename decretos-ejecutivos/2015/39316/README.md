@@ -14,3 +14,4 @@ Reglamento para el Manejo y Disposición Final de Lodos y Biosólidos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-12-02 | la propia norma |
+| 2 | 2019-12-11 | Decreto Ejecutivo 42110 (2019-12-11) |
