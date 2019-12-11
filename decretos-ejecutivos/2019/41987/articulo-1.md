@@ -1,0 +1,15 @@
+N° 41987-MJP
+EL PRESIDENTE DE LA REPÚBLICA
+Y LA MINISTRA DE JUSTICIA Y PAZ
+Con fundamento en lo dispuesto en los artículos 140, inciso 18) y 146 de la Constitución Política, en el artículo 32 de la Ley de Asociaciones N° 218 del 8 de agosto de 1939 y los artículos 27 y siguientes del Reglamento a la Ley de Asociaciones N° 29496-J, publicado en La Gaceta N° 96 del 21 de mayo del 2001.
+Considerando:
+I.—El artículo 32 de la Ley de Asociaciones N° 218 del 8 de agosto de 1939 y sus reformas, confiere al Poder Ejecutivo la potestad de declarar de utilidad pública a las asociaciones simples, federadas o confederadas, cuyo desarrollo y actividades sean particularmente útiles para los intereses del Estado, y que por ello contribuyan a solventar una necesidad social.
+II.—La Asociación Centro de Rehabilitación para el Adicto (ACERPA), cédula de persona jurídica número 3-002-148312, se inscribió en el Registro de Asociaciones del Registro Público desde el 16 de diciembre del 2003, al tomo 405, asiento 8265. Asimismo, dicha entidad fue declarada de utilidad pública mediante el decreto ejecutivo número N° 28227-J del veinte de octubre de mil novecientos noventa y nueve, publicado en el Diario Oficial La Gaceta número 223 del diecisiete de noviembre de mil novecientos noventa y nueve.
+III.—El artículo 32 del Reglamento a la Ley de Asociaciones establece: “...En cualquier momento, el Ministerio de Justicia y Paz, revocará este beneficio, si desaparecen los motivos por los cuales fue concedido. (...)” Así mismo, el ordinal 32 del Reglamento a la Ley de Asociaciones, agrega: “(...) La declaratoria será revocable en cualquier momento, mediante resolución razonada...”.
+IV.—La Unidad de Servicios Técnicos de la Asesoría Jurídica del Ministerio de Justicia y Paz determinó, que la Asociación Centro de Rehabilitación para el Adicto (ACERPA), cédula de persona jurídica número 3-002-148312, actualmente no desarrolla los fines para los cuales fue concebida, y actualmente lo que hace es alquilar sus instalaciones, siendo que no cuenta con un programa de atención a personas con adicciones al alcohol y otras drogas. Aunado a que dicha asociación ha incumplido con la obligación de presentar los informes anuales de gestiones de la asociación, lo cual implica que la asociación en su actividad y desarrollo no es útil a los intereses del Estado y no viene a solventar una necesidad social; en consecuencia se extinguió el motivo por el cual fue declarada de utilidad pública, por lo que resulta procedente derogar la declaración de utilidad pública. Por tanto,
+Decretan
+DEROGAR LA DECLARATORIA DE UTILIDAD PÚBLICA
+A LA ASOCIACIÓN CENTRO
+DE REHABILITACIÓN
+PARA EL ADICTO
+Artículo 1º—Dejar sin efecto el decreto ejecutivo número N° 28227-J del veinte de octubre de mil novecientos noventa y nueve, publicado en el Diario Oficial La Gaceta número 223 del diecisiete de noviembre de mil novecientos noventa y nueve, mediante el cual se declaró de utilidad pública para los intereses del Estado a la Asociación Centro de Rehabilitación para el Adicto (ACERPA), cédula de persona jurídica número 3-002-148312.
