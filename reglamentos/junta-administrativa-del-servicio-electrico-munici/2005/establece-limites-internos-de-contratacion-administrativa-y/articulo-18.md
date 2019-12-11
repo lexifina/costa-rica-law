@@ -1,2 +1,15 @@
-Artículo 18: Refrendo. Cuando se requiera de Aprobación Interna o Refrendo del órgano Contralor, la Proveeduría, una vez recibida la Certificación Presupuestaria, enviará el expediente en dos días hábiles a la Asesoría Legal.
-De no requerir Aprobación Interna o Refrendo Contralor, se notificará la orden de pedido en el mismo término.
+Artículo 18: Contenido de la Orden de Compra.
+Las órdenes de compra deberán contener al menos los siguientes aspectos:
+a) Objeto general de la contratación
+b) Estimación económica
+c) Alcances detallados del objeto de la contratación
+d) Plazo de entrega
+e) Lugar de entrega
+f) Forma de pago
+g) Cláusula penal y multa (cuando proceda)
+h) Garantía de cumplimiento (cuando proceda)
+i) Garantías sobre bienes y equipos (cuando proceda)
+j) Documentos integrantes del contrato
+k) Administrador del contrato (fiscalizador) y suplente
+l) Indicación de certificación de contenido presupuestario
+m) Incorporación del IVA

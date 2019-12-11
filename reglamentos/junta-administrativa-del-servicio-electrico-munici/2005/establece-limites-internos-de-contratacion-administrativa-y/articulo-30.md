@@ -1,0 +1,4 @@
+Artículo 30: Procedimiento por denuncias sobre hechos de corrupción o contratos defectuosos
+En caso de realizarse una denuncia por hecho de corrupción o contratos defectuosos a la jefatura de Proveeduría, se deberá realizar una valoración previa, para aplicar un posible proceso sancionatorio, de ser un asunto disciplinario se remitiría al Gerente General para que conforme la investigación correspondiente y se proceda de conformidad con la regulación de los artículos 308 en delante de la Ley General de Administración Pública
+En el caso de contratos irregulares la Proveeduría deberá ajustarse al procedimiento vigente a nivel institucional y proceder como corresponda.
+Para todos los casos se debe observar y ajustarse a todo lo regulado en la ley de Control Interno, Ley contra la corrupción y el enriquecimiento ilícito en la función pública y su reglamento y toda otra normativa vigente y aplicable.

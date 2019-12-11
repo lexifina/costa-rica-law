@@ -1,31 +1,38 @@
 Artículo 2: Definiciones
-Para efectos de la aplicación de este Reglamento, se definen los siguientes términos:
-Director de Negocio: Funcionario responsable de un Área de Negocios.
-Líderes de UEN: Funcionario responsable de cada Unidad de Negocios.
-Coordinador del Proceso Contratación de Bienes y Servicios: Funcionario responsable de coordinar los procesos de contratación administrativa requeridos en su Proceso, asesorando a los administradores de contrato y demás funcionarios involucrados en los procesos de compra en materia de contratación administrativa, con apego a la normativa vigente.
-Junta de Adquisiciones: Órgano institucional competente para resolver los diferentes procedimientos y trámites de contratación administrativa que disponga el presente reglamento, incluyendo las adjudicaciones e impugnaciones contra el acto de adjudicación.
-Ejecutivo de Cuenta: Designa a cualquier funcionario del Proceso Contratar Bienes o Servicios a quien se le encarga ejecutar el manejo de un tipo o grupo determinado de procedimientos de contratación administrativa, en función de la cuenta presupuestaria, unidad solicitante o cualquier otro aspecto especializado, incluyendo la firma de órdenes de compra o la integración de la Junta de Adquisiciones cuando proceda.
-Administrador de contrato o fiscalizador: Es el funcionario encargado de especificar el requerimiento de la contratación, participar en los estudios de análisis y evaluación técnica de las ofertas y administrar los contratos de suministro de bienes y servicios, con el fin de asegurar el cumplimento de las condiciones contractuales pactadas.
-Cartel: Es el reglamento específico de una contratación, artículo 44 del Decreto Ejecutivo N 35148 y 36010 MINAET: Reglamento al Título II De la Ley 8660.
-Condiciones generales: Grupo de condiciones que aplica a todo tipo de contrato y que deben cumplir los oferentes.
-Compras Institucionales: Compras que involucran dos o más centros de costo dentro de una partida presupuestaria, que se tramita para satisfacer las necesidades de abastecimiento de un mismo tipo de productos.
-Calificación de proveedores: Mecanismo por el cual se evaluará el desempeño del proveedor contratista en la ejecución y cumplimiento del contrato.
-Proceso Contratar Bienes y Servicios: Área encargada en atender las diferentes actividades de los procedimientos de contratación administrativa.
-Contratista: Es la persona física o jurídica a quien se le ha adjudicado un contrato.
-Director de Proyecto: Es la persona que aplica conocimientos, habilidades, herramientas y técnicas a las actividades de un proyecto para satisfacer los requisitos del mismo.
-Estudio financiero: Utilización de técnicas específicas para examinar los documentos financieros de una empresa y para controlar los flujos de fondos, productos y servicios, tanto internos como externos a la Empresa.
-Estudio legal: Verificación y análisis de requisitos jurídicos, establecidos en el cartel.
-Estudio técnico: Estudio para evaluar las características técnicas de un bien o servicio, con el fin de facilitar el proceso de adjudicación.
-Expediente Administrativo: Archivo histórico de determinado proceso, que físicamente estará custodiado en la Proveeduría, la cual lo mantendrá foliado, y debidamente actualizado. También podrá estar dicho expediente en forma electrónica o digital.
-Finiquito del Contrato: Documento suscrito por representantes debidamente acreditados por parte de JASEC y el contratista mediante el cual, se da por finalizada su relación contractual a satisfacción plena de ambas partes, una vez entregados los bienes y/o prestados los servicios, cobradas las multas y/o cláusula penal en los casos que corresponda, efectuado los pagos.
-Gestor: Funcionario designado por el Proceso CBS para consolidar y formar un Paquete de Gestión único y coherente para realizar Compras Institucionales
-Oferente: Toda persona física o jurídica que presenta su propuesta en apego a los términos establecidos vía cartel o pliego de condiciones a JASEC.
-Plan de compras: Conjunto de requerimientos expresados en el Sistema Financiero Contable por todos los usuarios responsables del presupuesto, necesarios para el desarrollo del POI-Presupuesto.
-Programa de adquisiciones: Conjunto de Procedimientos de Compra planeados y programados por el Proceso Contratar Bienes y Servicios para ejecutar el insumo que le proporciona el Plan de Compras.
-Paquete de gestión: Conjunto de documentos necesarios para el trámite de un proceso de contratación. El paquete de gestión se compone de:
-• Reserva presupuestaria
-• Pliego de condiciones técnicas y acta de decisión Inicial
-• En caso de contratos de excepción (sin concurso): se agrega la cotización del proveedor seleccionado bajo la excepción.
-Reglamento a la Ley Nº 8660: Decreto MINAET 35148 Reglamento al Título II de la Ley de Fortalecimiento y Modernización de las Entidades Públicas del Sector Telecomunicaciones.
-Comisión Financiera: Órgano designado por la Junta Directiva para el análisis y dictamen de asuntos de tipo financiero. Está integrado por dos miembros de la Junta, el Gerente General, el Subgerente y el Jefe Área Servicios Financieros.
-(Así reformado en sesión N° 015 del 3 de setiembre de 2018)
+Para efectos de la aplicación de este Reglamento, se definen los siguientes términos:..
+1) Departamento Proveeduría: Departamento encargado de atender las diferentes actividades de los procedimientos de contratación administrativa.
+2) Director de Negocio: Funcionario responsable de la planeación, organización, dirección, coordinación, control, evaluación y supervisión de los planes y programas de las Áreas a cargo, coadyuvando al logro de los objetivos de JASEC, procurando una mayor proyección de los servicios que presta la Empresa, así como los ingresos necesarios para la operación de la Dirección bajo conceptos de análisis de costo-beneficio, productividad y minimización de costos.
+3) Jefe de Área: Funcionario responsable de la planificación, organización, dirección, coordinación, control y evaluación de la gestión técnica, financiera y/o administrativa de la Empresa, según corresponda, así como la definición de políticas y estrategias relacionadas con el Área a cargo. En los casos de Jefe de Unidad Ejecutora, adicionalmente aplica conocimientos, habilidades, herramientas y técnicas a las actividades de un proyecto para satisfacer los requisitos del mismo.
+4) Jefe(a) Departamento Proveeduría: Funcionario responsable de la planificación, organización, dirección, coordinación, control y evaluación de los procesos de contratación administrativa requeridos a nivel institucional, asesorando a los administradores de contrato y demás funcionarios involucrados en los procesos en materia de contratación administrativa, con apego a la normativa vigente.
+5) Junta de Adquisiciones: Órgano institucional competente para resolver los diferentes procedimientos y trámites de contratación administrativa que disponga el presente reglamento, incluyendo las adjudicaciones e impugnaciones contra el acto de adjudicación.
+6) Jefe de Departamento: Funcionario responsable de la planificación, organización, dirección, coordinación, control y evaluación de la gestión del departamento a cargo.
+7) Analista de Concurso: Cualquier funcionario del Departamento Proveeduría responsable de ejecutar el manejo de un tipo o grupo determinado de procedimientos de contratación administrativa, en función de la cuenta presupuestaria, unidad solicitante o cualquier otro aspecto especializado, incluyendo la firma de órdenes de compra o la integración de la Junta de Adquisiciones cuando proceda, como también el registro, el cumplimiento de los tiempos de las etapas de los procesos y su conducción en la plataforma Sistema de Compras Públicas (SICOP).
+8) Gestor de Compra: Funcionario designado por el Departamento Proveeduría para consolidar y formar un Paquete de Gestión único y coherente para realizar compras institucionales y el registro en la plataforma Sistema de Compras Públicas (SICOP
+9) Administrador o fiscalizador de contrato: Es el funcionario encargado de especificar el requerimiento de la contratación, participar en los estudios de análisis y evaluación técnica de las ofertas y administrar los contratos en la fase de ejecución, con el fin de asegurar el cumplimento de las condiciones contractuales pactadas.
+Además deberá utilizar para toda respuesta y documentación el Sistema de Compras Públicas (SICOP).
+10) Encargado de Unidad Ejecutora de Proyecto: Funcionario de la Organización a quien se le asigna como responsable de desarrollar un proyecto específico.
+11) SICOP: Sistema Integrado de Compras Públicas (SICOP) creado mediante la Ley No. 9395 del 31 de agosto de 1996.
+12) Cartel: Es el reglamento específico de una contratación, artículo 44 del Decreto Ejecutivo N° 35148 y 36010 MINAET: Reglamento al Título II De la Ley 8660. Constituye un cuerpo de especificaciones técnicas, legales y administrativas, claras, suficientes, concretas, objetivas y amplias de lo que se requiere contratar.
+13) Condiciones Generales: Grupo de condiciones que aplica a todo tipo de contrato y que deben cumplir los oferentes.
+14) Calificación de proveedores: Mecanismo por el cual se evaluará el desempeño del contratista en la ejecución y cumplimiento del contrato.
+15) Compras Institucionales: Compras que involucran dos o más centros de costo dentro de una partida presupuestaria, que se tramita para satisfacer las necesidades de abastecimiento de un mismo tipo de productos, según las necesidades institucionales.
+6) Contratista: Es la persona física o jurídica a quien se le ha adjudicado un contrato.
+17) Estudio financiero: Utilización de técnicas específicas para examinar los documentos financieros de una empresa y para controlar los flujos de fondos, tanto internos como externos a la Empresa.
+18) Estudio legal: Verificación y análisis de requisitos jurídicos, establecidos en el cartel.
+19) Estudio técnico: Estudio para evaluar y verificar el cumplimiento de las características técnicas de un bien o servicio definidas en el cartel, con el fin de facilitar el proceso de adjudicación.
+20) Estudio para la estimación preliminar de precios: Estudio que otorga certeza en cuanto al costo del bien o el servicio que se requiere y a partir de ello, realizar el análisis de la razonabilidad de los precios de las ofertas que se reciban con posterioridad. (Ver resolución de la Contraloría General de la Republica No. RC-573-2002 de las 9:00 horas del 4 de setiembre de 2002).
+21) Estudio de razonabilidad de precios: Estudio que tiene como objetivo indagar la razonabilidad de los precios cotizados, con respecto a los precios de mercado, para así determinar si los mismos son aceptables o no, es decir, para verificar si estos podrían considerarse como ruinosos o no remunerativos para el oferente, excesivos, superiores a la disponibilidad presupuestaria o si obedecen a una práctica colusoria o de comercio desleal y conforme a los resultados tomar las decisiones pertinentes. El estudio de razonabilidad de precios debe realizarse en todas las compras que se realicen a través de la Proveeduría.
+22) Expediente Administrativo: Los expedientes electrónicos se conservarán en el Sistema Integrado de Compras Públicas, todo interesado tendrá libre acceso al expediente en el Sistema, se exceptúa el acceso de las partes y el público en general, los documentos confidenciales aportados por los participantes, que así sean declarados mediante acto razonado.
+En caso del expediente en físico estará custodiado en la Proveeduría, la cual lo mantendrá foliado, y debidamente actualizado.
+23) Finiquito del Contrato: Documento suscrito por representantes debidamente acreditados por parte de JASEC y del contratista, mediante el cual se da por finalizada la relación contractual a satisfacción plena de ambas partes, una vez entregados los bienes y/o prestados los servicios, cobradas las multas y/o cláusula penal en los casos que corresponda, así como efectuado los pagos. La firma del mismo está sujeta a que se cumplas los requisitos legalmente establecidos.
+24) Oferente: Toda persona física o jurídica que presenta su propuesta en apego a los términos establecidos vía cartel o pliego de condiciones a JASEC.
+25) Plan de Compras: Conjunto de requerimientos de bienes y servicios necesarios para el desarrollo del POI-Presupuesto, incluido en el Sistema Financiero Contable por todos los usuarios responsables del presupuesto.
+26) Programa de adquisiciones: Conjunto de procedimientos de compra publicados en el Sistema Integrado de Compras Públicas SICOP y que han sido planeados y programados por el Departamento Proveeduría con base en el Plan de Compras
+27) Paquete de Gestión: Conjunto de documentos necesarios para el trámite de un proceso de contratación que se incorporan en el expediente electrónico. El paquete de gestión se compone de:.
+a. Reserva presupuestaria
+b. Estudio para la estimación preliminar de precios
+c. Pliego de condiciones técnicas
+d. Acta de decisión Inicial
+e. En caso de contratos de excepción (sin concurso): se agrega la cotización del proveedor seleccionado bajo la excepción
+28) Criterios Sustentables: deben establecerse de acuerdo a la normativa vigente como directrices y políticas en materia ambiental señaladas por el Ministerio de Ambiente y Energía u otras autoridades
+29) IVA (impuesto sobre el valor añadido o impuesto sobre el valor agregado):. impuesto que grava el valor añadido o agregado de un producto en las distintas fases de su producción.

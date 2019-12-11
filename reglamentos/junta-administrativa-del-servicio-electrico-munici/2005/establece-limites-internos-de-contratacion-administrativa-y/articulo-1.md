@@ -1,5 +1,3 @@
-JUNTA ADMINISTRATIVA DEL SERVICIO ELÉCTRICO
-MUNICIPAL DE CARTAGO
 PROCESO CONTRATAR BIENES Y SERVICIOS
 UEN DE APOYO
 REGLAMENTO PARA LA APROBACIÓN DE LOS ACTOS
@@ -12,7 +10,8 @@ Licitación por Registro | 15.500.001 | 96.600.000 | Gerencia o subgerencia hast
 Licitaciones | 55.0 en adelante | | Junta Directiva
 Refrendo Interno | 5 millones a 34 millones | |
 Refrendo Contraloría | 34 millones en adelante | |
-(Nota de Sinalevi: El texto de este reglamento fue reformado parcialmente y reproducido su texto en forma íntegra en sesión N° 5244 del 24 de enero de 2018, y publicado en La Gaceta N° 34 del 22 de febrero de 2018, por lo que se reproduce a continuación:)
-CAPÍTULO I
-Artículo 1º— Fundamento legal y objeto. El establecimiento de la Junta de Adquisiciones y de su competencia funcional se fundamenta en lo establecido en el artículo 20 de la Ley 8660, denominada “Fortalecimiento y Modernización de las Entidades Públicas del Sector Telecomunicaciones.”
-El objeto de este reglamento es regular la actuación de la Junta de Adquisiciones de la JASEC, estableciendo la forma en que esta debe integrarse para producir válidamente los actos de adjudicación de los procedimientos de contratación administrativa y los actos que resuelven las impugnaciones. Para la gestión de los procedimientos de contratación y la preparación de los actos que deben producirse en sus diversas etapas, así como para preparar los informes de recomendación necesarios para el acto final, la Junta de Adquisiciones se apoyará en la Proveeduría Institucional, la cual tendrá a su cargo y responsabilidad la conducción de los procedimientos respectivos, al tenor de los artículos 16 y 199 del Decreto MINAET 35148.
+(Nota de Sinalevi: El texto de este reglamento fue reformado parcialmente y reproducido su texto en forma íntegra en sesión N° 098-2019 del 11 de noviembre del 2019, y publicado en La Gaceta N° 4 del 9 de febrero del 2020, por lo que se reproduce a continuación:)
+CAPÍTULO I CONCEPTOS Y COMPETENCIAS
+Artículo 1: Fundamento legal y objeto. El establecimiento de la Junta de Adquisiciones y de su competencia funcional se fundamenta en lo establecido en el artículo 20 de la Ley 8660, denominada “Fortalecimiento y Modernización de las Entidades Públicas del Sector Telecomunicaciones”.
+El objeto de este reglamento es regular la actuación de la Junta de Adquisiciones de la JASEC, estableciendo la forma en que esta debe integrarse para producir válidamente los actos de adjudicación de los procedimientos de contratación administrativa y los actos que resuelven las impugnaciones. Para la gestión de los procedimientos de contratación y la preparación de los actos que deben producirse en sus diversas etapas, así como para preparar los informes de recomendación necesarios para el acto final, la Junta de Adquisiciones se apoyará en la Proveeduría Institucional, la cual tendrá a su cargo y responsabilidad la conducción de los procedimientos respectivos, al tenor de los artículos 16 y 199 del Decreto Ejecutivo 35148-MINAET.
+La actividad contractual deberá respetar los principios constitucionales de contratación administrativa, entre ellos la eficiencia, eficacia, publicidad, Libre competencia, igualdad, intangibilidad patrimonial y buena fe.

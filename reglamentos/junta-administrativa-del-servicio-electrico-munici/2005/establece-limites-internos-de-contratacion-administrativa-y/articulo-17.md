@@ -1,2 +1,2 @@
-Artículo 17: Firmas de la Orden de Compra. Las órdenes de pedido cuyo monto sea inferior al límite económico de la contratación directa, independientemente del procedimiento que les dio origen, serán firmadas por dos funcionarios del Proceso Contratar Bienes y Servicios.
-Las órdenes de pedido cuyo monto sea superior al límite económico de la contratación directa, independientemente del procedimiento que les dio origen, serán firmadas por el Coordinador del Proceso Contratar Bienes y Servicios y un Profesional Contratar Bienes y Servicios.
+Artículo 17: Confección de la Orden de Compra.
+Una vez firme el acto de adjudicación y recibida la garantía de cumplimiento cuando esta proceda, la Proveeduría confeccionará la orden de compra y tramitará las firmas correspondientes en un plazo no mayor a tres días hábiles. Cuando se requiera de una Certificación Presupuestaria, el Departamento de Presupuesto y Control dispondrá de un plazo de un día hábil para producirla.

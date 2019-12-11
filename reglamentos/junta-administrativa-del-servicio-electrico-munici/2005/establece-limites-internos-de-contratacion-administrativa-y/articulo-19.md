@@ -1,1 +1,3 @@
-Artículo 19: Una vez perfeccionado el contrato y recibido el expediente, la Asesoría Legal, dentro de los plazos regulados en el artículo N° 168 del Decreto N° 35148-MINAET, resolverá la solicitud de aprobación.
+Artículo 19: Firmas de la Orden de Compra
+Las órdenes de pedido cuyo monto sea inferior al límite económico de la contratación directa, independientemente del procedimiento que les dio origen, serán firmadas por dos funcionarios de la Proveeduría
+Las órdenes de pedido cuyo monto sea superior al límite económico de la contratación directa, independientemente del procedimiento que les dio origen, serán firmadas por la jefatura de Proveeduría y un Profesional de la Proveeduría

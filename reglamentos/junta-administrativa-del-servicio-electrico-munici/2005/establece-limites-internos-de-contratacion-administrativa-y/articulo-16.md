@@ -1,13 +1,4 @@
-Artículo 16: Contenido de la Orden de Compra. Las órdenes de compra, deberá contener al menos los siguientes aspectos:
-a) Objeto general de la contratación.
-b) Estimación económica.
-c) Alcances detallados del objeto de la contratación.
-d) Plazo de entrega
-e) Lugar de entrega.
-f) Forma de pago.
-g) Cláusula penal y multa (cuando proceda).
-h) Garantía de cumplimiento (cuando proceda).
-i) Garantías sobre bienes y equipos (cuando proceda).
-j) Documentos integrantes del contrato.
-k) Administrador del contrato (fiscalizador)
-l) Indicación de certificación de contenido presupuestario
+Artículo 16. Tramite del Paquete de Gestión
+Una vez recibido en el Sicop la solicitud del trámite de la presentación del Paquete de Gestión por el gestor de la compra, el analista de concurso asignado contara con un máximo de cinco días hábiles para advertir al usuario de realizar ajustes al cartel o cualquier otro documento, cuando el Paquete de Gestión no reúna los requisitos mencionados en este reglamento, se devolverá la documentación para que el gestor revise integralmente y presente de nuevo la solicitud en la plataforma Sicop. Esta corrección deberá responderse en cuatro días hábiles o solicitar por el grado de complejidad un plazo mayor que no sobrepase los 15 hábiles.
+El analista procederá a invitar al concurso, dos días hábiles posteriores a la aprobación definitiva.
+En todo caso, al obtener la aprobación en la plataforma Sicop, el plazo de invitación del concurso es un mínimo de un día y un máximo de cinco días hábiles.

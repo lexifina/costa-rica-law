@@ -1,11 +1,2 @@
-Artículo 12: Deber de información sobre el Plan de Compras a la Junta Directiva. La Gerencia General deberá presentar a la Junta Directiva un informe trimestral sobre el avance de la ejecución del Plan de Compras institucional. Este informe deberá indicar lo siguiente:
-a) Objeto contractual
-b) Estimación económica
-c) Gestor de compras
-d) Cronograma con el detalle de las actividades desde la publicación del proceso adquisitivo hasta la entrega de la orden de compra.
-e) Cronograma del estado de ejecución una vez entrega la orden de compra hasta la recepción definitiva.
-f) Cualquier otra información relevante sobre la ejecución del proyecto.
-Para su elaboración, la Gerencia General podrá auxiliarse de los órganos administrativos encargados de la gestión y ejecución de las compras institucionales. El Informe deberá ser remitido a la Junta Directiva dentro de los cinco días hábiles posteriores a la presentación de la Evaluación Física Financiera. El órgano colegiado deberá conocerlo en la sesión ordinaria inmediata posterior, siempre que la agenda así lo permita.
-La Junta Directiva se reserva la potestad de solicitar informes extraordinarios.
-Le Corresponderá a la Comisión Financiera dictaminar los proyectos de presupuesto ordinario, presupuestos extraordinarios y modificaciones presupuestarias.
-(Así reformado en seisón N° 015 del 3 de setiembre de 2018)
+Artículo 12. Acta de Adjudicación
+Los actos resolutivos de la Junta de Adquisiciones quedarán consignados en un acta, y en particular el acto de adjudicación contendrá al menos la siguiente información: objeto o requerimiento del concurso, descripción detallada de las ofertas recibidas, análisis legal de las ofertas recibidas, análisis técnico que determine la admisibilidad de las ofertas, calificación y comparación de ofertas, disponibilidad presupuestaria y detalle de adjudicación, declaraciones de que no existen conflictos de interés ni riegos de fraude, soborno y corrupción etc. El acta deberá ser firmada por los miembros competentes para producir el acto. Las contrataciones que se adjudiquen bajo procedimientos de excepción al concurso deberán consignar el fundamento legal procedente en el acta de adjudicación.

@@ -1,1 +1,3 @@
-Artículo 20: Multas y Cláusula Penal. Compete al Coordinador del Proceso Contratar Bienes y Servicios o algún Profesional Contratar Bienes y Servicios, en conjunto con el funcionario de la Proveeduría designado para el trámite, la fijación del monto de la multa por entrega defectuosa o ejecución tardía del contrato, mediante un acto debidamente motivado, todo de conformidad con el cartel y la falta según sea el caso, conforme a lo regulado en los artículos N° 41 y 43 del Decreto N° 35148-MINAET. El traslado de cargos se hará en un máximo de cinco días hábiles, una vez recibida la documentación del pago en trámite.
+Artículo 20: Aprobación interna y refrendo
+Cuando se requiera de Aprobación Interna o Refrendo del órgano Contralor, la Proveeduría, una vez recibida la Certificación Presupuestaria, enviará el expediente en dos días hábiles a la Asesoría Legal
+De no requerir Aprobación Interna o Refrendo Contralor, se notificará la orden de compra en el mismo término.

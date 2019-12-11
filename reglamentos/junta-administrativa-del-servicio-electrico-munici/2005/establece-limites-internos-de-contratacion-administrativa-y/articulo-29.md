@@ -1,0 +1,2 @@
+Artículo 29: Lineamientos anticorrupción en los procedimientos de adquisición.
+Deberá incorporarse al expediente administrativo declaraciones de la no afectación al régimen de prohibiciones o intereses particulares a los servidores que intervienen en la conducción de procedimientos, estudios técnicos y actos de adjudicación, cuya participación sea directa e indirecta, así como que no exista parentesco hasta tercer grado de consanguineidad o afinidad, conforme a la política de riegos de fraude, soborno y corrupción aprobada por la Junta Directiva de JASEC.
