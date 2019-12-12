@@ -1,7 +1,8 @@
 Capítulo II
 Definiciones
 Artículo 3.- Para efectos de este Reglamento se establecen las siguientes definiciones:
-a) Equiparación de cursos: Acto mediante el cual la Universidad Técnica Nacional, declara que un curso aprobado en una institución de educación superior universitaria, nacional o extranjera, es equivalente a determinado curso vigente y del mismo grado académico que se imparte en una carrera de la UTN.
+a) Equiparación de cursos: Acto mediante el cual la Universidad Técnica Nacional, declara que un curso aprobado en una institución de educación superior, nacional o extranjera, o de algunos de los Colegios o centros fusionados, es equivalente a determinado curso vigente y del mismo grado académico que se imparte en una carrera de la UTN.
+(Así reformado el inciso anterior en sesión N° 27 del 12 de diciembre del 2019)
 b) Equiparación de bloques de cursos, módulos o trabajo comunal universitarios: acto mediante el cual la UTN determina qué bloques de cursos, módulos o TCU de instituciones son equivalentes a cursos, bloques, módulos o TCU que ella misma confiere.
 (Así reformado el inciso anterior en sesión N° 6 del 22 de marzo de 2018)
 c) Equiparación de títulos de pregrado: Acto mediante el cual la Universidad Técnica Nacional, acepta los estudios realizados en los colegios universitarios estatales y que culminaron con la obtención de un diploma de pregrado con los de algún plan de estudios que se imparte en la UTN, con el fin de continuar estudios en la universidad.
