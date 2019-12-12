@@ -1,0 +1,1 @@
+Artículo 6º—Ningún pago por Caja Chica podrá exceder de ¢150.000.00, aprobado por el Concejo Municipal, mediante modificación según acuerdo del Concejo Municipal, artículo XVI Acta 443-2016 del 20 de marzo del 2016.

@@ -1,0 +1,1 @@
+Artículo 15.—El fraccionamiento del pago de una compra para tramitarlo por Caja Chica, así como cualquier violación o infracción al presente reglamento, así como del procedimiento establecido al respecto, será motivo de sanción, según artículo 57 del Reglamento Autónomo Interno de Trabajo y lo establecido en esta materia en la Convención Colectiva de Trabajo.
