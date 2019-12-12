@@ -15,3 +15,4 @@ Denomina Reserva Indígena Bribrí de Cocles en Reserva Indígena Bribrí de Kek
 | --- | --- | --- |
 | 1 | 1996-07-15 | la propia norma |
 | 2 | 2001-03-22 | Decreto Ejecutivo 29956 (2001-03-22) |
+| 3 | 2019-12-12 | SINALEVI (sin norma nombrada) |

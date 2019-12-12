@@ -1,3 +1,4 @@
+(Nota de Sinalevi: Mediante resolución de la Sala Primera de la Corte Suprema de Justicia N° 004507-F-S1-2019 del 12 de diciembre de 2019, se anuló este numeral, solo en cuanto a la nueva delimitación hecha que excluye parte de la finca 19.056-000, pero no en lo que favorece. Asimismo, dicha sentencia declara que el inmueble 19.056-000 forma parte de la Reserva Indígena de Këköldi, el cual deberá inscribirse de conformidad con la Ley Indígena y su Reglamento a nombre de la Asociación de Desarrollo Integral de la Reserva Indígena Bribrí de Këköldi)
 Artículo 2°-La Reserva Indígena Bribrí de Këköldi se localiza en las hojas cartográficas del Instituto Geográfico Nacional, escala 1:50.000, Amubri 3644 IV, Sixaola 3644 I y Cahuita 3645 III, y se delimita por los puntos cuyas coordenadas son las siguientes:
 Partiendo de la Cima del Cerro Pirripli, 220m/snm, al sur de Puerto Viejo, en coordenadas N 399 825 E 600 825, se continúa hacia el este por una estribación del cerro Pirripli, pasando por los puntos de coordenadas:
 N 399 725 | E 601 405 | (cerro, 100 m.)
@@ -45,4 +46,4 @@ N 399 700 | E 597 780 |
 N 399 455 | E 598 950 | (Cerro, 100 m.)
 N 399 700 | E 599 105 |
 N 399 825 | E 600 825 | (Cerro Pirripli, punto inicial de la descripción).
-(Así reformado por el artículo 1° del decreto ejecutivo N° 29956 del 22 de marzo del 2001. Asimismo el artículo 2° del decreto ejecutivo antes mencionado indica derogar la delimitación de la Reserva Indígena de Këköldi, establecida en el artículo 2 del Decreto 25296-G, publicado en La Gaceta 134 de 15 de julio de 1996.)
+(Nota de Sinalevi Mediante el artículo 1° del decreto ejecutivo N° 29956 del 22 de marzo del 2001, se reforman los límites de la presente Reserva Indígena y artículo 2° deroga la delimitación que tenía anteriormente la Reserva Indígena de Keköldi en el presente artículo).
