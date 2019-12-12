@@ -1,0 +1,1 @@
+Artículo 14. Garantía de cumplimiento: Las empresas precalificadas deberán rendir una garantía de cumplimiento ajustable al 31 de enero de cada año, del 15% del monto de la garantía del año inmediato anterior. En caso de tratarse de primer ingreso se fija la base de dicha garantía en ¢2.000.000,00.
