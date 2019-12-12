@@ -1,1 +1,1 @@
-Artículo 3º—Quedan vigentes los artículos 3° y 4° del Decreto 25296-G, publicado en La Gaceta 134 de 15 de julio de 1996.
+Artículo 3º-(Anulado mediante resolución de la Sala Primera de la Corte Suprema de Justicia N° 004507-F-S1-2019 del 12 de diciembre de 2019. Se indica que dicha anulación, solo en cuanto mantiene la vigencia del artículo 3 del decreto ejecutivo N° 25296 del 24 de junio de 1996)

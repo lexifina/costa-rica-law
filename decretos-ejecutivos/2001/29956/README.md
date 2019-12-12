@@ -14,3 +14,4 @@ Reforma Reserva Indígena Bribrí de Keköldi
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-11-16 | la propia norma |
+| 2 | 2019-12-12 | SINALEVI (sin norma nombrada) |

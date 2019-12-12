@@ -1,1 +1,1 @@
-Artículo 2º—Deróguese la delimitación de la Reserva Indígena de Këköldi, establecida en el artículo 2 del Decreto 25296-G, publicado en La Gaceta 134 de 15 de julio de 1996.
+Artículo 2º--(Anulado mediante resolución de la Sala Primera de la Corte Suprema de Justicia N° 004507-F-S1-2019 del 12 de diciembre de 2019)
