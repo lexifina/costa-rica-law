@@ -1,1 +1,1 @@
-Artículo 67—Solicitud y adjudicación de ayudas económicas para giras. La solicitud de este beneficio debe ser efectuada por estudiantes con beca socioeconómica activa o por estudiantes no becados que presenten una situación de emergencia no previsible; se tramita cada cuatrimestre a más tardar la tercera semana de clases, mediante los procedimientos establecidos para estos fines.
+Artículo 67—Solicitud y adjudicación de ayudas económicas para giras. (Derogado mediante sesión N° 27-2019 del 12 de diciembre de 2019)
