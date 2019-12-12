@@ -1,1 +1,0 @@
-Artículo 12.—Del Trámite administrativo correspondiente: Desarrollo Humano confeccionará la respectiva acción de personal, debiendo entregar copia de ésta a la persona que está siendo nombrada para que se dé por enterada de este acto administrativo.
