@@ -1,0 +1,5 @@
+Artículo 5º—Gastos por concepto de alimentación. Por alimentación, la municipalidad reconocerá gastos por concepto de desayuno, almuerzo o cena de acuerdo con las siguientes reglas:
+a) Se pagará desayuno, en aquellos casos en que, de acuerdo con las disposiciones de este reglamento, el beneficiario sea acreedor también al pago de hospedaje y /o la gira se inicie antes de o a las siete horas.
+b) Se pagará almuerzo únicamente, en aquellos casos en que, por acuerdo firme del Concejo Municipal, la respectiva sesión sea convocada para iniciar a las 11:00 horas y se prolongue hasta las catorce horas o más.
+c) Se pagará cena únicamente, en aquellos casos en que por acuerdo firme de del Concejo Municipal, la respectiva sesión sea convocada para iniciar antes de o a las 18:05 horas y el regreso al domicilio sea posterior a las 20:00 horas.
+d) En ningún caso se pagarán gastos por este concepto, cuando la sesión está asociada a actividades oficiales o comunales, en las que se provea alimentación a los regidores y síndicos municipales.

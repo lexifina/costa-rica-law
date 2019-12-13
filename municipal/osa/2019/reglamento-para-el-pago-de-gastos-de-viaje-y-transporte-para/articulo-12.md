@@ -1,0 +1,1 @@
+Artículo 12.—Declaración jurada. La información consignada en la liquidación de gastos de transporte y alimentación tiene el carácter de declaración jurada, o sea, que ésta es una relación cierta de los gastos incurridos.

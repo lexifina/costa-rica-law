@@ -1,0 +1,1 @@
+Artículo 15.—Comprobantes. Para el reconocimiento de gastos de hospedaje, la Administración requerirá del beneficiario la presentación de las facturas respectivas. Los gastos de alimentación y pasajes de transporte terrestre no requerirán la presentación de comprobantes de pago.

@@ -1,0 +1,1 @@
+Artículo 13.—Asignación presupuestaria. Una vez verificado el cumplimiento de los requisitos que establece este reglamento, el Departamento de Presupuesto efectuara la asignación presupuestaria para cubrir estos gastos.
