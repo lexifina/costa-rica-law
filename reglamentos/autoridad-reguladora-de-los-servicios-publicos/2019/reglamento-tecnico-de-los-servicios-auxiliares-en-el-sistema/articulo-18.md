@@ -1,0 +1,3 @@
+Artículo 18. Revisión de la parametrización de equipos y sistemas
+El prestador debe presentar al OS/OM toda la información técnica relacionada con la parametrización de los equipos y sistemas instalados para el cumplimiento de los requisitos de servicios auxiliares, de acuerdo con los procedimientos técnicos elaborados por el OS/OM y aprobados por la Aresep.
+El OS/OM realizará una revisión de la información completa suministrada y presentará el resultado en un informe indicando los requerimientos de parámetros y sistemas que se cumplen y, cuando aplique, el detalle de los incumplimientos específicos que deben ser subsanados por el prestador.

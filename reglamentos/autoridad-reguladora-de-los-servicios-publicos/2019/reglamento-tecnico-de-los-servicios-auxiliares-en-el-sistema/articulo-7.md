@@ -1,0 +1,4 @@
+Artículo 7. Control de Tensión
+El servicio de Control de Tensión es el conjunto de acciones sobre equipos que pueden inyectar y/o absorber potencia reactiva (generadores según su curva de capacidad, capacitores, reactores, etc.) y otros elementos de control de tensión, tales como transformadores con cambiador de derivaciones bajo carga, con el objetivo de mantener la tensión en las barras del SEN dentro de los niveles establecidos en la regulación nacional y regional vigente para el cumplimiento de los criterios de seguridad operativa y los CCSD.
+Todos los agentes generadores, transmisores y distribuidores tienen la obligación de contribuir al control de tensión de acuerdo con lo establecido en la regulación nacional y cumplir con las instrucciones del OS/OM.
+Los detalles de requerimientos técnicos de este servicio auxiliar se establecerán en el procedimiento técnico elaborado por OS/OM y aprobado por la Aresep.

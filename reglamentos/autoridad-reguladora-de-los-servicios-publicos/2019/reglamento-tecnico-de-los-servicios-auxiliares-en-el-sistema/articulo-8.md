@@ -1,0 +1,4 @@
+Artículo 8. Arranque en Negro
+El servicio auxiliar de arranque en negro corresponde a la capacidad de una central o unidad generadora que estando fuera de servicio y sin contar con suministro eléctrico externo, puede arrancar sin tensión de referencia con el fin de energizar líneas, tomar carga y sincronizarse con el SEN para contribuir con el restablecimiento del servicio eléctrico luego de un colapso parcial o total del SEN.
+Es obligación del prestador de este servicio mantener los equipos y sistemas que permitan el arranque en negro en condiciones óptimas y cumplir con las instrucciones del OS/OM en la implementación de este servicio para el restablecimiento del SEN.
+Los detalles de requerimientos técnicos de este servicio auxiliar se establecerán en el procedimiento técnico elaborado por OS/OM y aprobado por la Aresep.
