@@ -1,0 +1,3 @@
+Artículo 8 Conformación
+La JRL estará integrada por cuatro miembros propietarios con pleno poder de decisión y cuatro suplentes que entrarán en funciones durante las ausencias temporales en iguales condiciones. Corresponderá a SIBANPO y a la Administración designar a sus representantes titulares y suplentes.
+Los miembros durarán en sus cargos un año y podrán ser reelectos o removidos en cualquier momento por quien los hubiere designado. Además, tendrán permiso, en horas laborales para estudiar los casos y asistir a las sesiones, de manera que se garantice el cumplimiento eficiente de sus funciones.

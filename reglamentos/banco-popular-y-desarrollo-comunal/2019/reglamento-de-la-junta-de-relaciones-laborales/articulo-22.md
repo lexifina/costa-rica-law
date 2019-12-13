@@ -1,0 +1,4 @@
+Artículo 22 Plazo para atender los casos en JRL
+La JRL deberá conocer todos los casos sometidos a su conocimiento dentro de un plazo no mayor de treinta días hábiles, contados a partir de la fecha de presentación del caso por parte de los interesados.
+Cuando la JRL no conozca dentro del plazo mencionado por inasistencia injustificada de la Administración, el caso se considerará fallado a favor del trabajador, en concordancia con la Convención Colectiva vigente. Por el contrario, si no se pudiere resolver por inasistencia de la Representación Sindical, se elevará a conocimiento y resolución de la Gerencia General Corporativa o la respectiva Subgerencia, según corresponda a la adscripción de la persona relacionada
+La JRL tendrá siempre el deber de resolver expresamente los casos sometidos a su conocimiento

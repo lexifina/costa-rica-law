@@ -1,0 +1,2 @@
+Artículo 4 Naturaleza jurídica
+La JRL es un órgano bipartito y paritario, de carácter permanente, el cual está integrado por igual número de representantes de la Administración y de SIBANPO. Es un órgano que actuará con absoluta independencia de criterio y equilibrio de intereses por parte de quienes lo integren, y en la apreciación de la prueba aplicará las reglas de la sana crítica, en respeto absoluto al ordenamiento jurídico.

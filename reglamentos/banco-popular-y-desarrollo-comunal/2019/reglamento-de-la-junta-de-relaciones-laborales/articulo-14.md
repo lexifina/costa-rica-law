@@ -1,0 +1,3 @@
+Artículo 14 Impedimentos, recusaciones y excusas
+Serán motivo de abstención las mismas causales de impedimento, recusación y excusas que se establecen en el Código Procesal Civil. La parte afectada (investigado o reclamante) podrá solicitar la inhabilitación de cualquiera de los miembros de la JRL que, por su relación directa con el caso, pueda comprometer la objetividad de la resolución.
+La JRL deberá tramitar y resolver los impedimentos, recusaciones y excusas de sus miembros en la misma sesión en que sean interpuestos; si procede a acogerlos, se agendará el caso para la próxima sesión con otro miembro. Si se rechaza, se continuará con el conocimiento del caso. Ningún asunto puede suspenderse por causa de dichos impedimentos, excusas y recusaciones.

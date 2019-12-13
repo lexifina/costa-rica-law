@@ -1,0 +1,2 @@
+Artículo 17 Quórum para sesionar
+La JRL sesionará válidamente cuando estén presentes los cuatro miembros propietarios, conforme lo establecen los artículos 9 y 14 de este Reglamento, otorgándose un plazo de 15 minutos de espera para iniciar la sesión, sí alguna de las partes no se hubiera presentado. No obstante, y ante la ausencia, recusación o excusa de los propietarios, quedará debidamente constituida con la presencia del suplente.

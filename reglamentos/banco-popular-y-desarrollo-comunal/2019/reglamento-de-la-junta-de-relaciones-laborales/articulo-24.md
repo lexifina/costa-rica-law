@@ -1,0 +1,4 @@
+Artículo 24 Traslado del reclamo
+De cada reclamo se conformará un expediente, al cual se le asignará número de caso y será debidamente foliado.
+La Secretaría Ejecutiva de la JRL, en un plazo no mayor de 24 horas, dará traslado al reclamo y las pruebas presentadas a la instancia competente para que lo conteste y pueda ofrecer las pruebas de descargo, dentro del plazo que establezca la JRL, que será de 3 días hábiles, pudiendo ser ampliado por el Presidente de la JRL y a solicitud de la instancia competente, en función de la complejidad del caso, sin que este plazo pueda exceder de 10 días hábiles.
+Una vez vencidos los plazos indicados, se incluirá el caso en el orden del día y la Junta de Relaciones Laborales hará las investigaciones oportunas, admitirá y evacuará la prueba que estime necesaria.
