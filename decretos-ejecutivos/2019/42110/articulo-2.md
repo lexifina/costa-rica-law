@@ -1,0 +1,1 @@
+Artículo 2° – Deróguese el Anexo 2 “Ficha de emergencia para el transporte terrestre de lodos y biosólidos ordinarios y especiales”, del Decreto Ejecutivo No. 39316-S del 10 de agosto del 2015 “Reglamento para el manejo y disposición final de lodos y biosólidos” publicado en el Alcance No. 106 al Diario Oficial La Gaceta No. 234 del 2 de diciembre del 2015.
