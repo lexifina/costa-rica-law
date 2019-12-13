@@ -1,0 +1,1 @@
+Artículo 3º—Se insta a las dependencias del Sector Público para que, dentro del marco de sus competencias, contribuyan con recursos humanos, económicos u otras opciones de colaboración, en la consecución de las actividades relacionadas con la efectiva implementación de la Agenda Prioritaria en coordinación con el CONAFAC.
