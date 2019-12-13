@@ -1,1 +1,0 @@
-Artículo 11.—La Municipalidad podrá crear una comisión para atender en forma exclusiva los asuntos que les remitan los concejos de distrito. Esta comisión estará integrada en la forma y términos que establece el Código Municipal.
