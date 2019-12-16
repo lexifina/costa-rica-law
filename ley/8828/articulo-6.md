@@ -1,7 +1,5 @@
-ARTÍCULO 6.- Actividades mercantiles autorizadas
-Cada concejo determinará las actividades productivas a que se refieren los incisos a) y b) del artículo anterior, en razón de lo cual se tomará en consideración el aporte actual y potencial de dichas actividades, desde el punto de vista de la necesidad de:
-a) Orientar y estimular la estructura productiva regional, proyectada a la comercialización nacional e internacional.
-b) Fomentar y diversificar la comercialización nacional e internacional de bienes y servicios.
-c) Integrar, de manera coordinada, los distintos sectores que componen el sistema económico regional, para aprovechar las oportunidades de desarrollo productivo, ambiental y humano.
-d) Integrar el esfuerzo regional institucional del país a las políticas de las sociedades municipales de economía mixta.
-e) Crear los mecanismos necesarios para la exportación de los productos que se dan en la región.
+Artículo 6- Atribuciones. Sin perjuicio de lo dispuesto en el artículo 2 de esta ley, son atribuciones de las SPEM las siguientes:
+a) Modernizar, racionalizar y ampliar los servicios públicos y las actividades productivas existentes.
+b) Desarrollar nuevas actividades productivas, con el propósito de unificar integralmente los recursos humanos, naturales y de capital.
+c) Promover el desarrollo humano integral.
+Se excluyen de la aplicación de esta ley los servicios públicos de acueductos y alcantarillados que seguirán prestándose como un servicio social sin fines de lucro, bajo el principio de servicio al costo.

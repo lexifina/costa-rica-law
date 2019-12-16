@@ -1,0 +1,1 @@
+Artículo 39- Distribución de dividendos o beneficios. En caso de que, además de la municipalidad, participen en la SPEM otras municipalidades o instituciones públicas, la distribución de dividendos o beneficios se realizará en la misma proporción de capital accionario que pertenezca a cada una de ellas.

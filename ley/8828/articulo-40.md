@@ -1,0 +1,2 @@
+Artículo 40- Representación municipal del capital accionario. El representante del capital accionario de la municipalidad es el alcalde. Cuando sean varias las municipalidades y los integrantes de la SPEM, participarán todos los alcaldes que las representen y su voto tendrá un valor equivalente al porcentaje accionario que su municipalidad ostente en la SPEM.
+En el caso de las instituciones públicas, la representación estará a cargo del representante legalmente constituido.
