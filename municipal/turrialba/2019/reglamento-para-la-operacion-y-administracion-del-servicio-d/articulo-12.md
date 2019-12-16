@@ -1,0 +1,1 @@
+Artículo 12.—Cambio de toma. El abonado o usuario podrá solicitar a la Municipalidad, que varíe el sitio donde se encuentra instalado el servicio cuando así lo requiera para su mejor aprovechamiento, para cuyos efectos deberá cumplir con los mismos requisitos establecidos en el artículo anterior así como cancelar el costo del servicio previo a la realización del mismo.

@@ -1,0 +1,3 @@
+CAPÍTULO SÉTIMO
+De las tarifas
+Artículo 22.—Componentes. Para el sostenimiento del Servicio de Alcantarillado Sanitario, la Municipalidad establecerá una tarifa para cada una de las actividades que integran el servicio brindado, a saber: conexión, reubicación, recolección, tratamiento y disposición final de las aguas residuales, las cuales se elaborarán previo estudio de costos de administración, operación, mantenimiento, desarrollo, inversión y servicio de la deuda y tomando como base el principio de servicio al costo más un rédito de desarrollo y criterios de justicia social distributiva, sostenibilidad ambiental, conservación, eficiencia económica y equilibrio financiero.

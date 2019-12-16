@@ -1,0 +1,1 @@
+Artículo 20.—Falta de pago. El atraso superior a treinta días, posteriores a la fecha en que se puso al cobro la respectiva mensualidad del servicio de alcantarillado sanitario, se reputará como falto de pago y facultará a la municipalidad para proceder con el trámite de cobro administrativo y judicial de la deuda, según las disposiciones de la reglamentación respectiva.
