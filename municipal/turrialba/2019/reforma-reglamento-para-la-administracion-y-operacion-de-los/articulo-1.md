@@ -1,0 +1,7 @@
+MUNICIPALIDAD DE TURRIALBA
+Que en la sesión ordinaria N° 161-2019, celebrada por el Concejo Municipal de Turrialba, el día el día martes 28 de mayo del 2019 en su Artículo Tercero, acordó lo siguiente:
+MODIFICACIONES A LOS ARTÍCULOS 10 Y 13
+DEL REGLAMENTO DE ESTACIONOMETROS
+Artículo 10.—La fijación del aparcamiento será por medio de tarjetas de estacionamiento, establecimientos distintos colores según se trate de las tarjetas, serán durante media hora, una hora o nueve horas, también se puede fijar el aparcamiento por medio electrónico que la Municipalidad autorice y por el tiempo ya establecido, cada tarjeta se utilizará por una única vez y quien utilice la tarjeta en forma indebida, el medio electrónico que contravenga lo establecido anteriormente, será acreedor de una sanción que establece el artículo 13 y 15 del presente reglamento
+Artículo 13.—Será sancionado de conformidad con el artículo 3 de la ley 6852 del 15 de marzo de 1983 al propietario del vehículo, que estacione su vehículo en zonas de estacionamiento autorizados sin hacer uso de las respectivas boletas o el medio electrónico autorizado por la Municipalidad, mantenga estacionado el vehículo después de vencido el tiempo por el pagó, el vehículo se estacione en lugares exclusivamente para estacionamiento de personas con discapacidad o los vehículos debidamente identificados con la placa o documento por el CONAPDIS.
+Turrialba 14 de junio del 2019.
