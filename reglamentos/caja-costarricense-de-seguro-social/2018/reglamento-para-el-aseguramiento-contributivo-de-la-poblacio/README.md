@@ -14,3 +14,4 @@ Reglamento para el aseguramiento contributivo de la población recolectora de ca
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-10-11 | la propia norma |
+| 2 | 2019-12-16 | Reglamento 9071 (2019-12-16) |
