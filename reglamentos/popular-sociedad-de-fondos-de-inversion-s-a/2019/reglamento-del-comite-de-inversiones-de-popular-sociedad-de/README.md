@@ -14,3 +14,4 @@ Reglamento del Comité de Inversiones de Popular Sociedad de Fondos de Inversió
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-06-26 | la propia norma |
+| 2 | 2019-12-16 | Reglamento 0 (2019-12-16) |
