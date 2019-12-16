@@ -15,3 +15,4 @@ Reglamento del Comité de Riesgos de Popular Sociedad de Fondos de Inversión
 | --- | --- | --- |
 | 1 | 2009-12-04 | la propia norma |
 | 2 | 2011-06-20 | Reglamento 306 (2011-06-20) |
+| 3 | 2019-12-16 | Reglamento 0 (2019-12-16) |
