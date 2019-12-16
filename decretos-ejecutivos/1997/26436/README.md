@@ -15,3 +15,4 @@ Normas Básicas Reguladoras del Proceso Educativo en los Colegios Humanisticos C
 | --- | --- | --- |
 | 1 | 1997-11-18 | la propia norma |
 | 2 | 2018-04-19 | Decreto Ejecutivo 41138 (2018-04-19) |
+| 3 | 2019-12-16 | Decreto Ejecutivo 42177 (2019-12-16) |
