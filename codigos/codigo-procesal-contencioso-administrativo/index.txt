@@ -110,6 +110,8 @@ articulo-109.md
 articulo-110.md
 articulo-111.md
 articulo-112.md
+articulo-112-bis.md
+articulo-112-ter.md
 articulo-113.md
 articulo-114.md
 articulo-115.md
