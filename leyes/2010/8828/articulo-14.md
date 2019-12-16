@@ -1,12 +1,6 @@
-ARTÍCULO 14.- Atribuciones de la asamblea general de accionistas
-Serán atribuciones de la asamblea general de accionistas:
-a) Nombrar y destituir al fiscal.
-b) Aprobar, dentro de los alcances de la presente Ley, el Pacto Constitutivo y sus reformas.
-c) Conocer anualmente los estados financieros de la entidad.
-d) Acordar la disolución anticipada de las SPEM, con la decisión de la mayoría del capital social.
-e) Nombrar y remover, cuando proceda, a los miembros de la junta directiva, según los procedimientos y requisitos fijados en esta Ley.
-f) Aprobar contratos y convenios relacionados con los fines de las SPEM.
-g) Acordar la emisión de títulos de crédito.
-h) Decidir todo lo relativo a la administración de los bienes pertenecientes a las SPEM.
-i) Aprobar los aumentos de capital social, cuando la sociedad lo requiera.
-j) Las demás funciones señaladas en esta Ley o en el Pacto Constitutivo.
+Artículo 14- Estructura administrativa. Las SPEM tendrán la siguiente estructura mínima:
+a) La Asam blea General de Accionistas.
+b) La Junta Directiva.
+c) La Gerencia General.
+d) Un fiscal.
+El Pacto Constitutivo respetará esta organización mínima, pero se podrán incluir otros órganos sociales, siempre y cuando sean congruentes con la naturaleza y los fines de estas sociedades y se conformen con los preceptos de la presente ley, la Ley N.º 3284, Código de Comercio, de 30 de abril de 1964 y la Ley N.º 7794, Código Municipal, de 8 de julio de 1998 y la demás normativa pública o privada aplicable, para una adecuada gestión social.

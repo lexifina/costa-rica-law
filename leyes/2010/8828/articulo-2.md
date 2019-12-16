@@ -1,2 +1,1 @@
-ARTÍCULO 2.- Objeto
-Las SPEM tendrán como objeto la ejecución de las obras necesarias y prioritarias para el desarrollo de la comunidad y las de servicios públicos locales, con el fin de satisfacer, oportuna y adecuadamente, los intereses de los munícipes.
+Artículo 2-Objetivo de las SPEM. Las SPEM tendrán como objetivo la constitución, aplicación, instalación y ejecución de infraestructura necesarias para el desarrollo comunal y regional, además de la gestión de los servicios públicos municipales, con el fin de satisfacer, oportuna y adecuadamente, el interés público, la sana administración, la planificación y la maximización de los fondos y servicios públicos.

@@ -1,2 +1,1 @@
-ARTÍCULO 10.- Reglamento de funciones
-Las SPEM adoptarán las disposiciones necesarias para reglamentar las operaciones a que se refiere el artículo 9 anterior, de acuerdo con los objetivos y las necesidades enunciados en esta Ley y en concordancia con la normativa aplicable según el artículo 4.
+Artículo 10- Fines empresariales. En relación con los fines, los criterios y las actividades a que se refieren los artículos 7 y 8 anteriores, las SPEM prepararán y ejecutarán programas y proyectos específicos de fomento económico, de carácter cantonal y regional, cuando así lo autoricen los concejos municipales involucrados, mediante acuerdo adoptado por las dos terceras partes del total de sus miembros.
