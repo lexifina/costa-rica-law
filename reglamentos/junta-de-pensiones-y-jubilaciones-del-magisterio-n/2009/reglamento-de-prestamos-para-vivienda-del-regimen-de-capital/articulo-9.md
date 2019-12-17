@@ -1,2 +1,3 @@
 Artículo 9º—De la sustitución de Garantías. JUPEMA se reserva el derecho de solicitar en cualquier momento la modificación o sustitución de cualquiera de las garantías que respalden los créditos otorgados. Lo anterior en procura de salvaguardar los intereses de la Institución.
-Será potestad de la Dirección Ejecutiva de la Institución, aprobar la sustitución de garantías otorgadas bajo la línea de vivienda, previa recomendación técnica del Comité de Crédito.
+Será potestad de la Dirección Ejecutiva de JUPEMA, aprobar la sustitución de garantías otorgadas bajo la línea de vivienda, previa recomendación técnica de los profesionales que la Unidad de Crédito designe para el estudio correspondiente y el aval del Comité de Crédito.
+(Así reformado mediante sesión N° 0143 del 17 de diciembre de 2019)

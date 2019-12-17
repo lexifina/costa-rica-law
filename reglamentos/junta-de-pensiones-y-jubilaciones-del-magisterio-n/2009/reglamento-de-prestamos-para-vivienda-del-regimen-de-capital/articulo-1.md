@@ -14,14 +14,34 @@ En virtud de que la concesión de créditos con fondos del Régimen de Capitaliz
 3. Comité de Crédito: Estará conformado por el (la) Jefe del Departamento de Crédito y Cobro, quien coordinará el Comité, el (la) Oficial de Cobro, el (la) oficial de crédito y un miembro externo al Departamento de Crédito y Cobro, que será nombrado por la Dirección Ejecutiva. Este comité, será el responsable de analizar las solicitudes de crédito de Vivienda del programa del Régimen de Capitalización Colectiva.
 4. Comportamiento de pago histórico: Antecedentes crediticios del deudor en la atención de sus obligaciones financieras durante los últimos cuatro años, independientemente de si estas se encuentran vigentes o extintas a la fecha de corte.
 Información brindada por la SUGEF.
-5. Convalidación: Reconocimiento de la propiedad objeto de hipoteca para otros trámites de índole similar.
-6. Morosidad: El mayor número de días de atraso en el pago de principal, intereses, otros productos y cuentas por cobrar asociados a la operación crediticia, contados a partir del primer día de atraso, que presenta el deudor en la atención de sus operaciones crediticias en la entidad a una fecha determinada según las condiciones contractuales de pago.
-7. Plazo: Es el período de tiempo específico en el que ha de cubrirse el monto total otorgado en crédito.
+5) Hipoteca: Gravamen inscrito ante el Registro de la Propiedad en primer grado a favor de JUPEMA, se acepta hasta un 80% del valor del inmueble según el avalúo.
+(Así reformado el inciso anterior mediante sesión N° 0143 del 17 de diciembre de 2019)
+6) JUPEMA: Junta de Pensiones y Jubilaciones del Magisterio Nacional.
+(Así reformado el inciso anterior mediante sesión N° 0143 del 17 de diciembre de 2019)
+7) MEP: Ministerio de Educación Pública
+(Así reformado el inciso anterior mediante sesión N° 0143 del 17 de diciembre de 2019)
 8. Pluses salariales permanentes: corresponden a aquellas compensaciones salariales que hayan sido percibidas por los trabajadores y que formen parte de su salario ordinario, con carácter de permanencia.
-9. Sujeto de Crédito: Los afiliados al Régimen, según los artículos 7 y 21 de la Ley 7531 y sus reformas.
+9) Pignoración de la Póliza Mutual de la Sociedad de Seguros de Vida del Magisterio Nacional: como garantía en el proceso de formalización del crédito, el solicitante debe autorizar la pignoración de la póliza mutual de la Sociedad de Seguros de Vida del Magisterio Nacional sobre el monto disponible para pignorar en concordancia al monto del crédito.
+(Así reformado el inciso anterior mediante sesión N° 0143 del 17 de diciembre de 2019)
 10. Sucesor: Para efectos de este Reglamento, entiéndase “sucesor” como todo aquel beneficiario que haya adquirido el derecho en calidad de padres o hermanos del causante.
 11. Tasa de interés: La tasa de interés es el precio del dinero en el mercado financiero.
-12. Uso de suelos: Certificación emitida por la Municipalidad, que indica el uso para determinado terreno.
+12) Pólizas: Garantía colateral del crédito en caso de fallecimiento, JUPEMA acepta la pignoración de la póliza mutual de la Sociedad de Seguros de Vida del Magisterio Nacional, la póliza de saldos deudores y la póliza de incendio y líneas aliadas para los créditos de vivienda, que consideren el valor de alguna construcción en la garantía.
+(Así reformado el inciso anterior mediante sesión N° 0143 del 17 de diciembre de 2019)
+13) Póliza de Saldos Deudores: póliza que se suscribe con alguna aseguradora, debidamente autorizada, que sirve como garantía colateral de la operación crediticia.
+(Así adicionado el inciso anterior mediante sesión N° 0143 del 17 de diciembre de 2019)
+14) Sujeto de Crédito: Los afiliados al Régimen, según los artículos 7 y 21 de la Ley 7531 y sus reformas.
+(Así adicionado el inciso anterior mediante sesión N° 0143 del 17 de diciembre de 2019)
+15) Sucesor: Para efectos de este Reglamento, entiéndase “sucesor” como todos aquellos beneficiarios que hayan adquirido el derecho como padres o hermanos del causante, además de nietos amparados bajo la ley 2248 del Régimen de Pensiones del Magisterio Nacional.
+(Así adicionado el inciso anterior mediante sesión N° 0143 del 17 de diciembre de 2019)
+16) Tasa de interés: La tasa de interés es el precio del dinero en el mercado financiero.
+(Así adicionado el inciso anterior mediante sesión N° 0143 del 17 de diciembre de 2019)
+17) Uso de suelos: Certificación emitida por la Municipalidad de la localidad donde se ubica el terreno, que indica el uso de este.
+(Así adicionado el inciso anterior mediante sesión N° 0143 del 17 de diciembre de 2019)
 4. Cuerpo del reglamento
-Artículo 1º—Sujetos de crédito. Son sujetos de los créditos regulados por este Reglamento, los pensionados y jubilados por derecho propio, los sucesores (según se indica en el apartado definiciones) y los trabajadores en servicio del Ministerio de Educación Pública, Universidades Públicas, y el Instituto Nacional de Aprendizaje. Los trabajadores activos con nombramiento en propiedad deben contar al menos, con 3 cotizaciones inmediatas anteriores a la fecha de solicitud y los interinos con más de 12 cotizaciones consecutivas. En el caso de trabajadores de centros educativos privados se requerirán 12 cotizaciones inmediatas anteriores a la fecha de solicitud del crédito.
-Los solicitantes o codeudores que sean extranjeros residentes, deben contar con 60 cotizaciones con el mismo patrono, previas a la solicitud de crédito. Para todos los casos, la Institución debe valorar la asegurabilidad del solicitante, en términos de edad y monto requerido.
+CAPÍTULO 1
+Artículo 1. Sujetos de crédito. Son sujetos de los créditos, fiadores o codeudores regulados por este Reglamento.
+• Los pensionados y jubilados por derecho propio y los sucesores (según se indica en el apartado definiciones).
+• Los trabajadores en servicio con nombramiento en propiedad del Ministerio de Educación Pública, Universidades Públicas, y el Instituto Nacional de Aprendizaje con 3 cotizaciones inmediatas anteriores a la fecha de solicitud.
+• Los trabajadores en servicio con nombramiento interino del Ministerio de Educación Pública, Universidades Públicas, y el Instituto Nacional de Aprendizaje con 12 cotizaciones inmediatas anteriores a la fecha de solicitud cuyo el nombramiento venza en un periodo posterior a tres meses.
+• Los trabajadores de centros educativos privados con 12 cotizaciones inmediatas anteriores a la fecha de solicitud y cuyo nombramiento venza en un periodo posterior a tres meses.
+(Así reformado mediante sesión N° 0143 del 17 de diciembre de 2019)
