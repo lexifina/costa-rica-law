@@ -1,0 +1,37 @@
+MUNICIPALIDAD DE TURRIALBA
+COMUNICA
+DIRECTRIZ DE POLÍTICAS MUNICIPALES
+EN MATERIA DE ACCESIBILIDAD
+Fundamentación Jurídica:
+Objetivo general:
+Propiciar las condiciones necesarias para garantizar el desarrollo y la igualdad de oportunidades a las personas con discapacidad en el cantón de Turrialba.
+La Municipalidad de Turrialba con el sustento del artículo 8º y 9º de la Ley 7600 de Igualdad de Oportunidades para las persona con discapacidad, contribuirá para que las personas con discapacidad del Cantón de Turrialba:
+Definiciones importantes de la Ley 7600
+Accesibilidad: son las medidas adoptadas, por las instituciones públicas y privadas, para asegurar que las personas con discapacidad tengan acceso, en igualdad de condiciones con los demás, al entorno físico, el transporte, la información y las comunicaciones, incluidos los sistemas y las tecnologías de la información y a otros servicios e instalaciones abiertos al público o de uso público. Estas medidas incluyen también la identificación y eliminación de dichas barreras.
+Igualdad de oportunidades: Principio que reconoce la importancia de las diversas necesidades del individuo, las cuales deben constituir la base de la planificación de la sociedad, con el fin de asegurar el empleo de los recursos para garantizar que las personas disfruten de iguales oportunidades de acceso y participación en idénticas circunstancias.
+Equiparación de oportunidades: Proceso de ajuste del entorno, los servicios, las actividades, la información, la documentación, así como las actitudes a las necesidades de las personas, en particular de las discapacitadas.
+Discapacidad: condición que resulta de la interacción entre las personas con deficiencias físicas, mentales, intelectuales o sensoriales a largo plazo y las barreras debidas a la actitud y el entorno, que evitan su participación plena y efectiva en la sociedad, en igualdad de condiciones con las demás.
+Organización de personas con discapacidad: Son aquellas organizaciones dirigidas por personas con discapacidad o por sus familiares cuyos fines y objetivos están dirigidos a la promoción y defensa de la igualdad de oportunidades.
+Ayuda técnica: Elemento requerido por una persona con discapacidad para mejorar su funcionalidad y garantizar su autonomía. Servicio de apoyo: Ayudas técnicas, equipo, recursos auxiliares.
+POLÍTICAS MUNICIPALES EN MATERIA
+DE ACCESIBILIDAD
+1°—Las personas con necesidades especiales cuenten con el acceso a ejercer todos sus derechos en su plenitud.
+2°—En procura del ejercicio de los derechos de las personas con discapacidad, contribuirá al desarrollo pleno en el seno familiar y comunal con apoyos concretos para estos, asegurando la adecuada atención fortalecer el desarrollo integral de esta población.
+3°—Promoverá la Accesibilidad de sus servicios de atención al público de información y documentación, asesoría profesional y otros para las personas con discapacidad en igualdad de condiciones, en el cumplimiento con lo establecido en la Ley 7600.
+4°—Promoverá solidariamente en conjunto con otras entidades relacionadas con este sector la eliminación de todas las barreras discriminatorias en los servicios, en contra de las personas con discapacidad, de acuerdo con la Convención Interamericana para la eliminación de todas las formas de discriminación contra las personas con discapacidad y en apego a la Ley 7600.
+5°—La Alcaldía municipal tendrá la responsabilidad de designar una subcomisión de accesibilidad a nivel institucional, que estará bajo la tutela de la comisión de Accesibilidad del Concejo Municipal. Esta subcomisión desarrollará diversos tipos de actividades para el personal y autoridades municipales enfocadas en la sensibilización y la promoción del conocimiento integral de las necesidades de las personas con discapacidad.
+6°—Proporcionará en la medida de sus posibilidades una comunicación permanente con las personas con discapacidad y las Organizaciones no gubernamentales que las representan, a fin de asegurar su participación en la toma de decisiones, ejecución y evaluación local de planes, programas y proyectos en relación a la temática de la discapacidad. Esto a través de la Comisión Municipal de Accesibilidad.
+7°—Evidenciará en sus acciones proyectos y programas formulados en el PAO Municipal, contenido presupuestario que garantice la igualdad de oportunidades, esto con el sustento en la circular N° 8060 de la Contraloría General de la República, la Directriz 27, y la Ley N° 7600. Tomando en cuenta sus competencias legales, y sus limitaciones logísticas, económicas y materiales.
+8°—A través de la Subcomisión Municipal de Accesibilidad de la Administración se facilitará las adecuaciones necesarias para hacer accesibles el lugar de trabajo de los funcionarios (as) con discapacidad en la jurisdicción del Cantón de Turrialba.
+9°—Las políticas locales de la Municipalidad de Turrialba en materia de discapacidad serán de conocimiento público para toda la población del Cantón de Turrialba, publicándose en la página web de la Municipalidad.
+10.—El Concejo Municipal de Turrialba en concordancia a los lineamientos emitidos por el Consejo Nacional de Rehabilitación y Educación Especial sobre las Comisiones Municipales de Accesibilidad, tanto la del Concejo Municipal y la Subcomisión administrativa, velará por la consolidación y fortalecimiento de la misma. Tomando en cuenta sus competencias legales, sus limitaciones logísticas, económicas y materiales.
+11.—Promoverá la adecuación de las directrices políticas y normativas municipales a los lineamientos nacionales sobre discapacidad, para ello la Comisión Municipal en Accesibilidad brindará la asesoría al respecto.
+12.—La municipalidad asegurará la accesibilidad en la información, comunicación, tecnología y prestación de servicios que presta, acorde con las demandas y necesidades de las personas con discapacidad.
+13.—Garantizará el seguimiento y monitoreo del cumplimiento de estas políticas institucionales, desarrollando las medidas, tanto estratégicas como operativas, que sean necesarias para la integración y aplicación de esta política en todos los ámbitos que la comprenden, mediante la creación, desarrollo y ejecución de planes anuales
+operativos y presupuestos institucionales inclusivos y participativos.
+14.—Incentivará la coordinación, y el establecimiento de alianzas con las empresas de transporte, con las instituciones públicas que operan en el cantón, para mejorar la accesibilidad tanto en los servicios institucionales, como en las vías cantonales y nacionales, responsables de garantizar el desarrollo local inclusivo.
+15.—Garantizará la accesibilidad en los espacios públicos del cantón para todas las personas, especialmente las que enfrentan alguna discapacidad.
+16.—En consideración tomando las anteriores Políticas Municipales se elaborará un plan Cantonal de Accesibilidad el cual tendrá una vigencia de 8 años, (con la idea que sea la unión de dos administraciones municipales, y consolidar un plan con visión institucional). La dirección de la elaboración de este plan estará a cargo de la Comisión Municipal de Accesibilidad, donde se deberá considerar la participación de la Alcaldía, Concejo Municipal, funcionarios municipales, Conapdis, población con discapacidad y ciudadanía general interesada.
+El primer plan deberá elaborarse en el año 2020.
+Aprobado en la sesión extraordinaria N° 088-2019, celebrada por el Concejo Municipal de Turrialba, el viernes 17 de mayo del 2019, en el artículo segundo.
+Turrialba, 13 de noviembre del 2019.
