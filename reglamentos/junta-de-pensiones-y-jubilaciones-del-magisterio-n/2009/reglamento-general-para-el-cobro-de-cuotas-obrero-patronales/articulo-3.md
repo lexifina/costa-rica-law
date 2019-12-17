@@ -15,6 +15,8 @@ Funcionario Supervisor: Funcionario encargado del procedimiento de investigació
 Acto Administrativo: Declaración unilateral de la Junta de Pensiones ejecutada por los funcionarios competentes en ejercicios de las atribuciones administrativas.
 Prueba: Toda la prueba que en derecho corresponda y sea pertinente, para determinar las transgresiones establecidas en el artículo 15 de la Ley 8721.
 Prevención: Acto mediante el cual se informa oficialmente al patrono de transgresiones cometidas por la administración del Centro Educativo en contraposición con lo estipulado por la legislación vigente.
+- Propuestas de pago: son acuerdos de pago entre JUPEMA y los patronos, que permiten normalizar períodos adeudados con la Institución.
+(Así adicionada la definición anterior en sesión N° 143 del 17 de diciembre de 2019)
 Recurso de Apelación: Recurso procesal a través del cual se busca que Junta Directiva, enmiende conforme a Derecho la resolución de la Dirección Ejecutiva.
 Recurso de Revocatoria: Anulación, sustitución o enmienda de un fallo o resolución.
 Resolución Firme: Se entenderá firme administrativamente sin necesidad de pronunciamiento expreso, la resolución que establece la sanción o la determinación de una deuda, cuando notificada la resolución que establece la acción o sanción no se haya impugnado la misma en el plazo correspondiente o, cuando se hayan declarado sin lugar la impugnación interpuesta.
