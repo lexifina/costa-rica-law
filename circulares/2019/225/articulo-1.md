@@ -1,0 +1,7 @@
+CIRCULAR N° 225-2019
+ASUNTO: Fecha de pago del aguinaldo para todas las personas obligadas a pagar pensión alimentaria para el 2019.
+A TODAS LAS AUTORIDADES JUDICIALES DEL PAÍS
+Y PÚBLICO EN GENERAL
+SE LES HACE SABER QUE:
+El Consejo Superior del Poder Judicial en sesión N° 108-19 celebrada el 12 de diciembre de 2019, artículo LXIX, acordó hacer de conocimiento de todos los despachos que conocen la materia de pensiones alimentarias, lo siguiente: “Que ante la situación de incertidumbre generada a las personas usuarias de los Juzgados que tramitan pensiones alimentarias y los mismos Despachos de Pensiones Alimentarias por publicación en la prensa de la aprobación del proyecto de Ley 21175, denominado Reforma del Artículo 16 de la ley N° 7654 (Ley de Pensiones Alimentarias) y sus reformas, para la razonabilidad en la fecha de pago de Aguinaldo por Pensión Alimentaria, Ley 9788, que traslada el día de pago del aguinaldo para el día 21 de diciembre, según me indicaron el día de hoy en el Despacho de la Ministra de Justicia, la ley dicha, NO ha sido publicada, por lo que NO ha entrado a regir y no existe fecha para ello, en virtud de esa situación el artículo 16 de la Ley de Pensiones Alimentarias se mantiene vigente, y por tanto la fecha de pago del Aguinaldo para todas las personas obligadas a pagar pensión alimentaria para el año 2019 es el día 15 de diciembre del presente año.”
+San José, 17 de diciembre de 2019.
