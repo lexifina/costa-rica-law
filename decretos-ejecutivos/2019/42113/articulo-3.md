@@ -1,0 +1,1 @@
+Artículo 3º.- La Norma oficializada por el presente Decreto Ejecutivo se pone a disposición, para ser consultada por las personas interesadas o vinculadas, en la página web del Ministerio de Salud, cuya dirección electrónica es www.ministeriodesalud.go.cr y la versión impresa estará disponible en la Dirección de Garantía de Acceso a los Servicios de Salud de dicho Ministerio.
