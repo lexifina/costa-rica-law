@@ -2,8 +2,8 @@ ARTÍCULO 5. Tasas de interés. La tasa de interés vigente para cada línea de 
 a) Línea de Gastos Personales: 15% Anual fija sobre saldos.
 b) Línea de Pago de Deuda al Fondo de Pensión: 9% Anual fija sobre saldos.
 c) Línea de Microempresa: 11% Anual fija sobre saldos, los primeros 3 años. Posterior a este plazo Tasa Básica Pasiva + 4 puntos porcentuales.
-d) Línea para Entidades Sociales y Financieras del Magisterio Nacional: 10% Anual Fija sobre saldos, en tanto este porcentaje no sea inferior a la tasa básica pasiva, según la publicación del Banco Central, más 3 puntos.
-Cualquier solicitud para cambios en las tasas de interés, presentada por la entidad solicitante debe ser avalada por la Junta Directiva, previo estudio de impacto, elaborado por el Departamento Financiero Contable.
+d) Línea para entidades sociales y financieras del Magisterio Nacional: según acuerdo en sesión de Junta Directiva de JUPEMA.
+(Así reformado el inciso mediante sesión N° 0143-2019 del 17 de diciembre de 2019)
 e) Línea de Salud: 8% Anual fija sobre saldos.
 f) Derechos Sucesorios: 15% Anual fija sobre saldos.
 La tasa de interés sube en cinco puntos porcentuales, para aquellos créditos en los cuales los beneficiarios pierdan su condición de beneficiario del derecho sucesorio, por incumplimiento de algún requisito, y según las causales de caducidad de los derechos, que se establecen en las leyes:

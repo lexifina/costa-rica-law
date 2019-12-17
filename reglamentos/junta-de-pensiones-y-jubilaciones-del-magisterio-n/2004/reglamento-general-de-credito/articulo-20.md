@@ -3,4 +3,5 @@ Por lo tanto, puede solicitar a los deudores la presentación de facturas origin
 En el caso de la Línea de Salud y de Urgencia, los desembolsos son girados a nombre del beneficiario, o directamente a nombre de la persona u organización que prestó o presta el servicio o que le es cancelada la deuda pendiente, según sea la naturaleza o la finalidad del crédito.
 Para los casos otorgados bajo la Línea de Pago de Deuda de Pensión, los desembolsos deben realizarse a nombre de JUPEMA.
 En la línea de crédito para Entidades Sociales y Financieras del Magisterio Nacional, se aplica lo que consigne el acuerdo de Junta Directiva que autorizó el préstamo.
-Todo desembolso parcial genera intereses que corren a partir de la fecha propuesta de la formalización.
+Todo desembolso parcial cobra intereses que corren a partir de la fecha en que se genera el desembolso.
+(Así reformado el párrafo anterior mediante sesión N° 0143-2019 del 17 de diciembre de 2019)
