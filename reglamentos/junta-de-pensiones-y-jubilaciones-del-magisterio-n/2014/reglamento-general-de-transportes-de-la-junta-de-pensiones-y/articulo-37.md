@@ -1,6 +1,6 @@
-Artículo 37.—El presente Reglamento rige a partir de su publicación en La Gaceta, previa aprobación por la Junta Directiva de la Junta de Pensiones y Jubilaciones del Magisterio Nacional.
-(Así reformado mediante sesión ordinaria N° 006-2016 del 20 de enero del 2016)
+Artículo 37.—Se prohíbe el uso de vehículos institucionales para el traslado de los señores directores desde o hacia su residencia, al lugar donde se llevan a cabo las sesiones de junta directiva y comisiones.
 (Corrida su numeración mediante publicación en el Alcance Digital N° 42 a La Gaceta NJ° 40 del 24 de febrero del 2017, que lo traspasó del antiguo artículo 36 al 37)
+(Así reformado en sesión N° 143 del 17 de diciembre de 2019)
 Este Reglamento deroga al anterior Reglamento General de transportes y que fuese aprobado por la Junta Directiva en la sesión ordinaria Nº 064-2011, celebrada el 9 de junio de 2011.
 Glosario
 Para efectos del presente Reglamento se entenderá por:
