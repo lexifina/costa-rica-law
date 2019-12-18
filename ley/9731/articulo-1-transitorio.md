@@ -1,0 +1,1 @@
+TRANSITORIO I- Las armas que una persona tenga inscritas a su nombre, antes de entrar a regir esta ley, podrán ser renovadas por dicha persona, según lo establecido para la renovación de matrículas y permisos de portación, siempre y cuando se mantengan las mismas condiciones y modalidad bajo las cuales fueron inscritas según la ley anterior.
