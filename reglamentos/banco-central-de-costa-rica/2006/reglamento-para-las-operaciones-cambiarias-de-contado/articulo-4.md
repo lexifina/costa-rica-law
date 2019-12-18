@@ -9,8 +9,9 @@ Para efectos de control de este promedio, su cálculo considerará únicamente l
 La tolerancia para el cumplimiento de este indicador es de 1 punto porcentual hacia arriba y 3 puntos porcentuales hacia abajo de la razón no objetada por la Gerencia del Banco Central.
 d) Cada solicitud de cambio de la relación de posición en moneda extranjera a capital base deberá acompañarse de la información que el Banco Central requiera. La Gerencia del Banco Central comunicará al intermediario cambiario la resolución correspondiente, a más tardar quince días hábiles contados a partir del día hábil posterior a la fecha de recibo de la solicitud.
 Si la Gerencia no objeta la solicitud, la vigencia del cambio aplicará a partir del mes siguiente a la fecha de recibo de la comunicación por parte del Banco Central.
-e) El capital base o la garantía dada al Banco Central (en el caso de las casas de cambio), deberá expresarse en dólares de los Estados Unidos de América, utilizando el Tipo de Cambio de Referencia para la compra vigente para el día hábil anterior.
+e) El capital base o la garantía dada al Banco Central (en el caso de las casas de cambio), deberá expresarse en dólares de los Estados Unidos de América, utilizando el Tipo de Cambio de Referencia para la venta vigente para el día hábil anterior.
 El capital base corresponde a la información más reciente suministrada al Banco Central de Costa Rica por la superintendencia respectiva.
+(Así reformado el inciso e) anterior en sesión N° 5909 del 18 de diciembre de 2019)
 f) La posición en moneda extranjera podrá variar diariamente por concepto de operaciones cambiarias hasta +2% o hasta -2% del valor del capital base expresado en dólares.
 g) Para el control del límite a la variación diaria en la posición en moneda extranjera no se considerarán las siguientes operaciones:
 i. Las transacciones cambiarias que tengan como objetivo cancelar préstamos recibidos del Banco Central.
