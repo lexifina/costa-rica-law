@@ -1,0 +1,8 @@
+MUNICIPALIDAD DE CÓBANO
+El Concejo Municipal de Distrito de Cóbano en su sesión Ordinaria número 186-19, artículo IX, inciso b, del día 19 de noviembre del 2019, acordó aprobar y publicar el Reglamento de:
+REGLAMENTO DE PUBLICIDAD EXTERIOR PARA EL
+CONCEJO MUNICIPAL DE DISTRITO DE COBANO
+El Concejo Municipal de Distrito de Cóbano, en adelante el Concejo, con fundamento en las potestades y facultades que le otorgan los artículos 4 inciso a), 13 incisos c) y e) y 17 incisos a) y h) del Código Municipal, Constitución Política en sus artículos 169 y 170, la Ley de Construcciones N° 833 del 4 de noviembre de 1949, su Reglamento y sus reformas; así como lo predispuesto en el numeral 43 del Código Municipal, y lo indicado en la Ley 8173 y sus reformas, establece este Reglamento que en lo sucesivo se llamará Reglamento de Publicidad Exterior, el cual regirá una vez que haya sido aprobado por el Concejo Municipal y publicado en el Diario Oficial La Gaceta y se complementa de forma supletoria en lo no regulado por cualquier disposición legal o reglamentaría que no se le oponga.
+CAPÍTULO I
+De la Aplicación
+Artículo 1°—Con este Reglamento se pretende delimitar y evitar la contaminación visual, el obtener ingresos para coadyuvar con el comercio, en la erradicación de ventas no autorizadas y a la vigilancia de las actividades establecidas, además de ir ordenando de forma gradual, la ciudad, para que exista armonía de ésta con el paisaje natural, para lo cual deberá procurarse un concurso armónico entre las construcciones, sus complementos y dicho paisaje. Los ingresos recaudados se destinarán a reforzar con personal, para la aplicación antes indicada

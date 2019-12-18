@@ -1,0 +1,1 @@
+Artículo 14.—Póliza de Responsabilidad Civil: La Administración Tributaria en conjunto con el Departamento de Catastro en razón de conveniencia podrá valorar sí aquel rotulo que se va instalar está en una estructura que pueda producir riesgos a terceras personas, de darse de esta forma se faculta exigir dicha póliza.

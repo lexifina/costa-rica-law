@@ -1,0 +1,1 @@
+Artículo 4°—La licencia deberá ser solicitada por el propietario de la estructura que se va a fijar el rótulo y con la conformidad del propietario del predio en que colocará la misma, cuando sea el caso.

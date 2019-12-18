@@ -1,0 +1,2 @@
+Transitorio III.— Todos los rótulos que requieran emplear armazones o estructuras, el Concejo exigirá un perito responsable que se encargue de la construcción, se exigirá un croquis acotado que muestre las inscripciones o figuras que van a tener, y la respectiva licencia de construcción que cumpla con lo indicado en el artículo 29 de la Ley 833. Aplicaran las sanciones que indica el artículo 33 de la misma Ley por las infracciones a lo indicado.
+Concejo Municipal de Distrito Cóbano.
