@@ -1,0 +1,1 @@
+Artículo 7º—Relaciones de dependencia. El Comité de Caminos depende en primera instancia del Concejo Municipal de Distrito de Cóbano y en segunda instancia de la asamblea general de vecino (as); siendo ésta el órgano máximo de representación.

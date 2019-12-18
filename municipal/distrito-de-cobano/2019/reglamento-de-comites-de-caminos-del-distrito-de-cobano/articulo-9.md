@@ -1,0 +1,1 @@
+Artículo 9º—Investidura del Comité de Caminos. El Comité de Caminos para su legitimación deberá ser juramentado en un plazo máximo de treinta días naturales, a partir de la presentación de la solicitud, por parte de los interesados al Concejo Municipal y será el mismo órgano colegiado quien proceda con dicho acto de juramentación.

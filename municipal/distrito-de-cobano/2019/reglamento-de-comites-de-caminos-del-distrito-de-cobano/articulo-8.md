@@ -1,0 +1,2 @@
+Artículo 8º—Requisitos para adscripción del comité de caminos. Para la adscripción de los Comités de Caminos se deberá cumplir con lo siguiente:
+- Solicitud formal indicando, la nómina de lo (as) de la Junta Directiva del Comité, así como el listado de los integrantes de la asamblea general. También incluir el código o códigos y nombre del camino a intervenir (en caso de no existir, brindar la ubicación y descripción del mismo). De ello se informará a la Junta Vial Distrital.
