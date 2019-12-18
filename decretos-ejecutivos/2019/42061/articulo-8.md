@@ -1,0 +1,1 @@
+Artículo 8º—Deróguese el artículo 4 del Decreto Ejecutivo Nº 40769 del 13 de noviembre del 2017 “Reglamento para el cobro de los trámites de registro y control de productos químicos peligrosos”, publicado en el Alcance Nº 303 a La Gaceta Nº 238 del 15 de diciembre del 2017.
