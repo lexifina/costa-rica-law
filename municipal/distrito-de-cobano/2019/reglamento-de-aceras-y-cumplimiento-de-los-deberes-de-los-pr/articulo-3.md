@@ -1,0 +1,1 @@
+Artículo 3º—El Concejo Municipal de Distrito de Cóbano realizará las obras y servicios correspondientes cuando los propietarios o poseedores de bienes inmuebles, omitan el cumplimiento de los deberes a que hace referencia el artículo 84 del Código Municipal, y cobrará la tarifa y multa respectiva.

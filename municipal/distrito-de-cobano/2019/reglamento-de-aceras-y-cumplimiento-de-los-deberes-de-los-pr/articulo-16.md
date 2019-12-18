@@ -1,0 +1,1 @@
+Artículo 16.—Para el cobro de las obras y servicios regulados en este reglamento, El Concejo Municipal de Distrito de Cóbano calculará los costos con base en el índice de precios de construcciones que pública el Instituto Nacional de Estadística y Censos cada año en el diario oficial la gaceta.

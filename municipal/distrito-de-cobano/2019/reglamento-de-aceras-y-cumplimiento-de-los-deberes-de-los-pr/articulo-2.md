@@ -1,0 +1,1 @@
+Artículo 2º—El Concejo Municipal de Distrito de Cóbano debe velar de oficio por el cumplimiento de las disposiciones contempladas en los artículos 84, 85, 85 bis y 85 ter, del Código Municipal, así como de este Reglamento, iniciando el procedimiento en aquellos casos en que detecte incumplimiento.

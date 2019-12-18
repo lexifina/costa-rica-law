@@ -1,0 +1,1 @@
+Artículo 7º—Cualquier obra que se realice deberá cumplir con los lineamientos establecidos en la Ley N° 7600 y su Reglamento, y con los lineamientos y especificaciones técnicas, definidas en el artículo 10 de este Reglamento.
