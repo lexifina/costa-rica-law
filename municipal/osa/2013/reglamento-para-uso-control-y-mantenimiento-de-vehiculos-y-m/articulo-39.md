@@ -1,1 +1,0 @@
-Artículo 39.—Uso de maquinaria. Es prohibido poner en operación aquellas unidades que no estén en condición operar de forma segura, previo criterio técnico y también es prohibido simular el mal estado de los equipos o causar daños mayores o menores en estos que afecten su desempeño

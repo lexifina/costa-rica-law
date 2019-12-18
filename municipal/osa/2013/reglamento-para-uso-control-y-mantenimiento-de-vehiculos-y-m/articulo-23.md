@@ -1,1 +1,0 @@
-Artículo 23.—Acatamiento de instrucciones. Los conductores que debido a la circulación por las vías públicas con vehículos de la Institución se vean involucrados en un accidente de tránsito, deben seguir las instrucciones que la ley de tránsito establece y la Dirección de Administración Interna haya dictado al respecto.

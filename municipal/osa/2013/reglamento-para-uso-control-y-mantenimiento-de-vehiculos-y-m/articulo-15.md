@@ -1,1 +1,0 @@
-Artículo 15.—Protección a chóferes y conductores. La institución otorgará como protección a sus chóferes y conductores, durante el ejercicio de sus labores, las pólizas de riesgo del trabajo y las relativas a vehículos según las disposiciones de la Ley de Tránsito que fuese aplicable.

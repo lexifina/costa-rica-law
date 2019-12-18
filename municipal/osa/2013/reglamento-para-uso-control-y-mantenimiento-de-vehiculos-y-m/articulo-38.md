@@ -1,1 +1,0 @@
-Artículo 38.—Aseo de maquinaria y vehículos. El chofer es la persona encargada y responsable de velar por la limpieza y lavado interno y externo de la maquinaria o vehículo asignado, la administración suministrara los materiales para dicha tarea.

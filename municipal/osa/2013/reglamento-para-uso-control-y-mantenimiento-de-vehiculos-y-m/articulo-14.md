@@ -1,1 +1,0 @@
-Artículo 14.—Personas autorizadas para conducir vehículos. Únicamente están autorizados para conducir vehículos los funcionarios municipales de la Unidad Técnica de Gestión Vial Municipal y el Alcalde o bien aquellos autorizados por la Administración.
