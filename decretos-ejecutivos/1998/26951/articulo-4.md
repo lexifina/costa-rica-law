@@ -1,2 +1,0 @@
-Artículo 4º—Autoridad competente. Todo trámite de expedición de pasaporte diplomático o de servicio únicamente puede efectuarse en el Ministerio de Relaciones Exteriores y Culto, de conformidad con el artículo 3 de la Ley N º 7411. Los pasaportes serán firmados por el Jefe del Departamento de Pasaportes y por el Ministro de Relaciones Exteriores y Culto, o por el funcionario que él autorice.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 35086 de 27 de enero de 2009).

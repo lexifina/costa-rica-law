@@ -1,1 +1,0 @@
-Artículo 30.—Procedimiento. La incineración deberá llevarse a cabo en presencia del Jefe de Pasaportes y un representante de la Auditoría Interna, haciéndose constar en un acta del protocolo de un Notario del Estado, tomando en cuenta el numero de pasaporte, su titular, la razón, el lugar, hora y fecha en que se efectúa la incineración.

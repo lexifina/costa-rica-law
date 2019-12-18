@@ -1,1 +1,0 @@
-Artículo 3°—Investidura legal. Corresponde al Ministro de Relaciones Exteriores y Culto, en el funcionario que éste designe, el trámite para otorgar, revalidar, anular y visar los pasaportes diplomáticos y de servicio.

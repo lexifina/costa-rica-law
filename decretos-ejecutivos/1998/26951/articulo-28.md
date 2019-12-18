@@ -1,1 +1,0 @@
-Artículo 28.—Control de las visas. El control del otorgamiento de las visas en los pasaportes diplomáticos y de servicio, en cuanto sus plazos y vigencia, será responsabilidad del funcionario encargado del Departamento de Pasaportes.

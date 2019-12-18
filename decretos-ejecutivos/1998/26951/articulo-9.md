@@ -1,7 +1,0 @@
-Artículo 9°—Definición de Funcionario del Servicio Exterior. De acuerdo con lo dispuesto en el artículo 13 de la Ley 7411. se entenderá por funcionarios remunerados del Servicio Diplomático Costarricense en el exterior
-a. Los funcionarios de la carrera del Servicio Exterior, que se encuentren en ejercicio de sus funciones fuera de Costa Rica o bien en el Servicio-Interno de la Cancillería, cuando viajen en funciones propias de su/cargo.
-b. Los funcionarios consulares que para su acreditación, conforme a las normas y costumbres del país receptor requieran de dicho documento. Para comprobar la necesidad de portar pasaporte diplomático, hará la solicitud por escrito apenando la documental necesaria. Caso contrario sólo podran contar con pasaporte de servicio, conforme al artículo 2 de la Ley 7411.
-c. Los funcionarios del servicio interno del Ministerio de Relaciones Exteriores y Culto, que viajen en función estrictamente diplomática
-que no requiera la aceptación del Estado receptor. En esto»presupuestos los pasaportes quedarán sujetos a visa diplomática autorizada por el Ministro o el funcionario por él designado. debiendo el beneficiario depositarlos en la Canci llena una ve/ concluida la Misión para la que le fue entregado.
-La leyenda de "no recoger" que se usa en los pasaportes. la utilizara el Jefe de Pasaportes. apegado a los preceptos que la ley le impone y bajo su responsabilidad.
-d. Los designados por el Poder Ejecutivo, con rango diplomático. conforme al Estatuto del Sen icio Exterior.

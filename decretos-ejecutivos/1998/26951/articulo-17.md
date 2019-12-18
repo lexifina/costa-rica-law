@@ -1,1 +1,0 @@
-Artículo 17.—Deber de cuidado. El Departamento de Pasaportes preparara los citados documentos para su firma con la nitidez del caso y cerciorándose de que el expediente cuente con la documentación requerida, previo a la expedición del documento migratorio correspondiente.
