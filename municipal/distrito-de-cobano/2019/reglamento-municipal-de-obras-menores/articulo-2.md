@@ -1,0 +1,1 @@
+Artículo 2º—Este Reglamento rige en todo el Distrito de Cóbano. Ninguna de las construcciones que se denominarán obras menores, será construida sin las condiciones que se detallan en el Reglamento de Construcciones General, publicado en La Gaceta N° 56, Alcance N° 17 del 22 de marzo de 1983, por parte del INVU, así como sus reformas.

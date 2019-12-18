@@ -1,0 +1,1 @@
+Artículo 8º—El Departamento de Construcciones, será la encargada de determinar el monto a imponer para conceder el permiso, conforme al artículo 70 de la Ley de Planificación Urbana, para lo que podría requerir por parte del encargado, un croquis, una declaración jurada de las obras o documentos que demuestren el valor de la obra como cotizaciones, facturas entre otros.

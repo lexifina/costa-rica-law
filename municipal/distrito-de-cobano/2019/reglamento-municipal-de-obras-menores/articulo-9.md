@@ -1,0 +1,1 @@
+Artículo 9º—Toda obra que no sea declarada como Obra Menor por parte de la Unidad de Planificación Urbana y Control Constructivo, deberá presentar la solicitud de Licencia Municipal de Construcción que para tal efecto se señala en el artículo 74º de la Ley de Construcciones y conforme el Decreto Nº 27967-MPMIVAH-S-MEIC.
