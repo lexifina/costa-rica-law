@@ -1,6 +1,6 @@
 SECCIÓN VII
-TRAMITE DE DENUNCIAS
-Articulo 10.- Denuncias
+Trámite de denuncias
+Artículo 10.—Denuncias
 Inciso 1.- Denuncias de conducta indebida
 Sin perjuicio de lo indicado en el inciso 2 de este artículo, cualquier denuncia relacionada con algún incumplimiento de este Código debe tramitarse de acuerdo con el procedimiento establecido por cada entidad del Conglomerado.
 Inciso 2: Acciones por tomar en caso de identificar un conflicto de interés
