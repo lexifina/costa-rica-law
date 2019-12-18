@@ -1,0 +1,7 @@
+Artículo 8º—Procedimiento de declaratoria de incobrables por baja cuantía:
+a) Una vez determinado el costo del trámite de cobro se analizará el listado de los contribuyentes morosos para determinar cuáles adeudan montos por debajo el costo establecido.
+b) A estos contribuyentes se les realizará una campaña de Telegestión (llamadas telefónicas), en caso de que no se apersonen al municipio a realizar la debida cancelación se redacta una resolución administrativa, en materia de declaración de tributos incobrables.
+c) El Concejo Municipal revisa la resolución y expediente del caso para llegar a un acuerdo con respecto a la declaración de tributos incobrables.
+d) En caso de que existan inconformidades en la resolución, la Unidad de Servicios Tributarios (Cobros) se encargará de realizar un estudio para subsanar las mismas.
+e) Si la resolución es aprobada por el Concejo Municipal, la Unidad de Servicios Tributarios (Cobros) procederá a excluir aquellos cobros declarados incobrables y genera un control mediante documento electrónico, el cual se incluirá en la base de datos que deberá ser revisada antes de cualquier solicitud de constancia de impuestos y/o certificación emitida por el contador municipal.
+f) La Unidad de Servicios Tributarios (Cobros) realizará un seguimiento periódico a estos casos, si posteriormente se detecta que el contribuyente posee una forma de hacerle frente a la deuda se podrá emitir una nueva resolución para revalidarla. Esta revisión periódica será cada dos años y el resultado de esta será comunicado a la Administración Financiera.
