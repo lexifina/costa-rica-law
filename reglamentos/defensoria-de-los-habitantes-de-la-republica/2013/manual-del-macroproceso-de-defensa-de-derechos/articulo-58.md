@@ -1,1 +1,0 @@
-Artículo 58.—Modificación de las recomendaciones. En esta fase no podrán modificarse las recomendaciones emitidas, salvo si el órgano fundamenta en su informe de cumplimiento la necesidad de ejecutar acciones alternativas conducentes a remediar o atender la pretensión del habitante. Tampoco procederá realizar actos propios de la fase de investigación.

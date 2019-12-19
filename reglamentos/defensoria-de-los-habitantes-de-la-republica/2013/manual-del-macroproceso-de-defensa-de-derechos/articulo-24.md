@@ -1,1 +1,0 @@
-Artículo 24.—Inspecciones. La necesidad y conveniencia de realizar inspecciones debe ser determinada en cada caso específico por el personal a cargo de la Solicitud de Intervención. Para estos efectos y de ser necesario se coordinará la inspección a través de la Dirección de Oficinas Regionales.

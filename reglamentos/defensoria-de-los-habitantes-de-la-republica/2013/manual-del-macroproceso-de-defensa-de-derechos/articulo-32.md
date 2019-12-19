@@ -1,2 +1,0 @@
-Artículo 32.—Del cierre de las Intervenciones Sumarias. Cuando una Solicitud de Intervención se resuelva mediante gestiones sumarias, el o la profesional a cargo del caso procederá a elaborar un informe de cierre.
-Sin embargo, si el asunto se resolvió de manera expedita y a satisfacción expresa del o la habitante, se podrán consignar las gestiones realizadas y los resultados logrados, que justifican el cierre, en el SOL, prescindiéndose de la notificación de un informe final escrito.

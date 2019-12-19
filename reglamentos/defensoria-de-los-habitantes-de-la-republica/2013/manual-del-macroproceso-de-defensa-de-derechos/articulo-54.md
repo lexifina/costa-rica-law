@@ -1,2 +1,0 @@
-Artículo 54.—Suspensión de las recomendaciones. La interposición del recurso de reconsideración por alguna de las partes involucradas suspende únicamente el cumplimiento de las recomendaciones recurridas.
-Esta suspensión no se aplicará a las recomendaciones que competan a los demás órganos involucrados en el caso concreto, salvo que la Dirección considere que el argumento que fundamenta el recurso puede incidir directamente sobre todas las recomendaciones, en cuyo caso deberá notificárseles la suspensión.

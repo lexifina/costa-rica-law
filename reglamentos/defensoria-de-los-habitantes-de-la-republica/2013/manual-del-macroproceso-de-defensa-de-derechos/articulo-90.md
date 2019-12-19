@@ -1,3 +1,0 @@
-Artículo 90.—De los Procesos Interinstitucionales. La Defensoría de los Habitantes podrá participar como observadora, asesora, coordinadora o acompañante de procesos de trabajo interinstitucionales como foros, comisiones, coaliciones y redes, incluidos los procesos electorales, para fiscalizar que las acciones que se emprendan conduzcan a proteger los derechos e intereses de las y los habitantes.
-Las gestiones que se realicen deberán ser registradas en el SOL conforme tengan lugar las acciones institucionales.
-Al finalizar el proceso se elaborará un reporte final en el que se consignarán los principales resultados.

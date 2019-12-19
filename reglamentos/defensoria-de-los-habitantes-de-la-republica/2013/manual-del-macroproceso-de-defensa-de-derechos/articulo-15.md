@@ -1,2 +1,0 @@
-Artículo 15.—Firma. Las inadmisibilidades y los recursos de reconsideración deberán ser firmados por el o la Defensora de los Habitantes o el Defensor Adjunto por delegación.
-(Nota de Sinalevi: Mediante el punto 5 del acuerdo N° 00001921 del 8 de mayo de 2015, “Ratifica la delegación en la Dirección de Admisibilidad y Atención Inmediata, las Direcciones de Defensa y Sedes Regionales, de las funciones de defensa, según las particularidades de sus ámbitos temáticos y el alcance de sus competencias”, se acordó reformar en forma expresa el presente artículo)

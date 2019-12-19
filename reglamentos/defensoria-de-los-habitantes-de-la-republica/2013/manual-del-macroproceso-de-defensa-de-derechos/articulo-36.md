@@ -1,1 +1,0 @@
-Artículo 36.—Recordatorios y otras gestiones. De no recibirse respuesta en el plazo de cinco días hábiles se procederá a realizar las gestiones necesarias para obtener la información requerida: enviar un recordatorio, realizar llamadas telefónicas, apersonarse a la Institución denunciada a solicitar la información, o cualquier otro recordatorio.

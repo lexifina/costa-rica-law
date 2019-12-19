@@ -1,1 +1,0 @@
-Artículo 42.—Borrador Informe Final. Una vez que el o la Profesional de Defensa de Derechos obtenga la información necesaria para dilucidar el asunto sometido a su consideración, procederá a analizarla y a elaborar una propuesta del informe final.

@@ -1,7 +1,0 @@
-Artículo 9º—Inadmisibilidad de las Solicitudes de Intervención. Las Solicitudes de Intervención serán declaradas inadmisibles siguiendo el procedimiento en cada caso:
-a) Cuando el asunto denunciado esté fuera de la competencia institucional se orientará y asesorará de forma expedita a la persona denunciante sobre otras vías posibles para reclamar sus derechos o gestionar lo que corresponda por la Dirección de Admisibilidad y Oficinas Regionales.
-b) Cuando para declarar la inadmisibilidad se requiera un mayor análisis que fundamente el rechazo o porque el o la habitante manifieste su inconformidad, este se hará por acto motivado que emitirá el o la Jerarca dentro del plazo del artículo 45 del reglamento de la ley.
-c) En este supuesto las Oficinas Regionales presentarán la propuesta de inadmisibilidad a la Dirección de Oficinas Regionales para su dictamen y posterior remisión al o la Defensora de los Habitantes, para que resuelva lo que considere pertinente.
-d) Cuando la Solicitud de Intervención se presente en forma escrita, la inadmisibilidad deberá emitirse por escrito.
-e) Además, podrán rechazarse las solicitudes en las que se advierta mala fe, carencia de fundamento o inexistencia de pretensión, y las que se traten de simples reiteraciones de una gestión anterior igual o similar rechazada.
-f) Independientemente de la forma de recepción de la solicitud de intervención el o la profesional deberá informar al o la habitante de la posibilidad de plantear un recurso de reconsideración por disconformidad con la inadmisibilidad.

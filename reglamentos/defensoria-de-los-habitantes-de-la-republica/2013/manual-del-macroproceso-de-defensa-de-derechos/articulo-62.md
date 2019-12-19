@@ -1,2 +1,0 @@
-Artículo 62.—De la fase de monitoreo. En esta fase la Defensoría verificará periódicamente el avance de los procesos señalados en el artículo anterior, para asegurar que esas acciones conducirán al cumplimiento efectivo de las recomendaciones. Verificado lo anterior se procederá al archivo de la investigación.
-En caso de incumplimiento o de que no se verifiquen avances significativos, se evaluará una estrategia de intervención para determinar las acciones administrativas o judiciales a adoptar.

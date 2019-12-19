@@ -1,2 +1,0 @@
-Artículo 39.—Censura Pública. El o la Jerarca tiene la potestad exclusiva de emitir censura pública a las y los funcionarios por actos o conductas lesivas graves y reiteradas a los derechos e intereses de los habitantes. Igualmente podrá emitirla en caso de incumplimiento reiterado a las recomendaciones de la Institución y/o la negativa a contestar o enviar la documentación requerida por la Defensoría de los Habitantes de la República.
-La censura pública será emitida a través de acto motivado y basada en hechos y violaciones evidentes o comprobadas.

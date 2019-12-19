@@ -1,4 +1,0 @@
-Artículo 44.—Revisión y aprobación de Informe Final. Los informes finales serán revisados por la Dirección de Defensa respectiva y posteriormente por el personal del Despacho encargado de esa función. La aprobación definitiva y firma del informe final con recomendaciones corresponderá al o la Defensora de los Habitantes o la o al Defensor Adjunto por delegación del primero.
-En aquellos casos en que la pretensión de la persona denunciante sea resuelta satisfactoriamente se emitirá un informe final que podrá ser firmado por el o la Directora de Defensa, si así lo delegare el o la Jerarca.
-Una vez recibida la propuesta de informe final, la dirección tendrá un plazo de cinco días hábiles máximo para revisarla y remitirla al despacho, el cual tendrá a su vez otros cinco días hábiles para su aprobación.
-Este mismo procedimiento aplicará a las demás formas de Intervención que requieran de un informe final.

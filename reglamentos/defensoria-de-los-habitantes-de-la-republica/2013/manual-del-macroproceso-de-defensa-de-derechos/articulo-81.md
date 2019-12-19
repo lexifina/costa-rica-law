@@ -1,3 +1,0 @@
-Artículo 81.—De la Consulta de Constitucionalidad. El o la Jerarca podrá plantear las consultas de constitucionalidad en relación con los proyectos de ley, la aprobación legislativa de actos o contratos administrativos, los tratados internacionales, convenios internacionales, que considere vulneran derechos o libertades fundamentales.
-Al efecto, deberán observarse las condiciones, plazos y requisitos que establecen los artículos 96 inciso ch), 98 y 99 de la Ley de la Jurisdicción Constitucional.
-De conformidad con el párrafo segundo del artículo 28 del Reglamento a la Ley 7319, la Defensoría no interpondrá consultas de constitucionalidad fundadas en meros intereses particulares no fundamentales o en temas propios de ser conocidos por la vía de inconstitucionalidad.
