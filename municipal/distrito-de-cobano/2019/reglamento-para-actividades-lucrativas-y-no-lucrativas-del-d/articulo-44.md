@@ -1,0 +1,1 @@
+Artículo 44. La información consignada por el solicitante en el formulario tiene el carácter de declaración jurada, por lo que, si los datos son falsos, la Sección de Patentes podrá denunciar ante los Tribunales de Justicia, los casos comprobados de defraudación o perjuicio, por los delitos contemplados en el artículo 318 del Código Penal.

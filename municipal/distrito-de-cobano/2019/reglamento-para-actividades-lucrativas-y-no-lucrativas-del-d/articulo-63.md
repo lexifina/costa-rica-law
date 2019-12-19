@@ -1,0 +1,2 @@
+Artículo 63. Firmas y certificaciones digitales. Documentos Electrónicos. Cuando los medios tecnológicos a disposición del Concejo Municipal lo permitan, la Ley de Certificados, Firmas Digitales y Documentos Electrónicos, número 8454 de 30 de agosto del 2005, se aplicará para tramitación de licencias, pago de tributos y otros procedimientos relacionados con este reglamento.
+El presente Reglamento deroga cualquier Reglamento a la ley de patentes 7866, que el Concejo Municipal haya emitido con anterioridad.

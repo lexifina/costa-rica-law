@@ -1,0 +1,1 @@
+Artículo 37. Las resoluciones del Concejo que ordenen recalificaciones deberán ser notificadas al interesado en el local donde se realiza la actividad, las cuales podrán ser impugnadas dentro de los cinco días hábiles siguientes.

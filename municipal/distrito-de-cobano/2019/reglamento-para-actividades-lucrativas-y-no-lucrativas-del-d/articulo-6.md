@@ -1,0 +1,1 @@
+Artículo 6. - Cuando en un mismo establecimiento dedicado a actividades lucrativas ejerzan actividades conjuntamente varias sociedades o personas jurídicas, el monto del impuesto lo determinará la suma de impuesto que corresponde a cada uno individualmente.

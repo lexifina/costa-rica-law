@@ -1,0 +1,9 @@
+CONCEJO MUNICIPAL DEL DISTRITO DE CÓBANO
+REGLAMENTO DE LA LEY NUMERO 7866.
+REGLAMENTO PARA ACTIVIDADES LUCRATIVAS
+Y NO LUCRATIVAS EN EL DISTRITO DE CÓBANO.
+El Concejo Municipal del Distrito de Cóbano, por acuerdo número siete, tomado en la sesión ordinaria No. 185-19, artículo IX, inciso d, celebrada el día doce de noviembre de 2019, conoció y aprobó por unanimidad, publicación del Reglamento para Actividades Lucrativas y no Lucrativas del Distrito de Cóbano
+El presente reglamento está fundamentado en los artículos 169, 170 y 172 de la Constitución Política, 11, inciso 2), 12, 13 y 136 inciso e), de la Ley General de la Administración Pública; 2, 3, 4º inciso a), 13 inciso c), 52, 77 y del 88 al 91bis del Código Municipal;1° y siguientes de la Ley de Impuestos Municipales de Puntarenas, No. 7866, ley 9047 y reglamento a esta ley del Distrito central de Puntarenas, Ley de Certificados, Firmas Digitales y Documentos Electrónicos, número 8454, Reglamento para la Operación de Actividades de Turismo de Aventura, Ley 4755 y Ley de Notificaciones, Citaciones y Otras Comunicaciones judiciales, Ley de juegos y su reglamento, Ley N° 8767, Ley de Protección de los niños, niñas y adolescentes contra la Ludopatía y su respectivo reglamento, Reglamento sobre barberías, peluquerías, salones de belleza y afines, ley 8220 - protección al ciudadano de exceso de trámites, ley general de espectáculos públicos y materiales audiovisuales e impresos 7440, Ley
+CAPÍTULO I
+Objetivo del Reglamento
+Artículo 1: El Concejo Municipal del Distrito de Cóbano, establece el presente Reglamento, con el objeto de establecer los trámites que deben cumplir en cuanto a la solicitud, traspaso, traslado y cancelación de las de Licencias comerciales y otros requisitos legales que deben observar los particulares y los funcionarios municipales relacionados con el otorgamiento, cobro, registro y control de las Licencias.

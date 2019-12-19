@@ -1,0 +1,2 @@
+Artículo 48. De las licencias de espectáculo público en locales comerciales. La Municipalidad podrá autorizar licencia para la presentación de espectáculos públicos en los locales que cuenten con una licencia Municipal para salones de baile, cines, campo ferial, y discotecas o bien en sitios que cumplan con los requisitos para obtener una licencia para este fin.
+Queda prohibida la presentación de espectáculos públicos en bares, cantinas o tabernas y restaurantes, si el espectáculo es para karaokes o actividades bailables de cualquier tipo.

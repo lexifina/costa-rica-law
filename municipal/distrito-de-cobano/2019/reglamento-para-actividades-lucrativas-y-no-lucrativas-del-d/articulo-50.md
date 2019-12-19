@@ -1,0 +1,10 @@
+Artículo 50. Actividades comerciales temporales que no sean espectáculos públicos, tales como: (ventas de ropa americana, salas de patines, constructoras, etc.)
+1. Formulario debidamente lleno de solicitud de licencia municipal para la actividad a desarrollar, con todos los datos requeridos para su trámite debidamente firmado por la persona interesada o por el representante legal cuando corresponda, en caso de que él o la solicitante no efectúe el trámite de manera personal, la firma deberá estar autenticada por Notario. (Incluye Declaración Jurada y Firma del Patentado).
+2. Contrato de arrendamiento en donde se indique que la actividad solicitada cuenta con el visto bueno del propietario del inmueble en caso de que aplique.
+3. Póliza de Seguros o exoneración.
+4. Autorización o exoneración del uso del repertorio musical, extendido por la Asociación de Compositores y Autores Musicales (ACAM).
+5. Fotocopia de la cédula de identidad del solicitante o en el caso de tratarse de sociedades anónimas, documento de identificación del representante legal y certificación de personería jurídica original y actualizada y con no más de un mes de emitida.
+6. Permiso Sanitario de Funcionamiento en caso de que la actividad que se pretende llevar a cabo lo requiera o en el caso de requerirlo lleve a cabo en un lugar que no sea un local comercial autorizado mediante Licencia comercial y Permiso Sanitario.
+7. Resolución Municipal de Ubicación.
+8. Estas licencias se autorizarán hasta por 30 días.
+9. En caso de vender boletos, presentar mensualmente, en los primeros diez días de cada mes los boletos o tiquetes que se utilizarán para el ingreso a las actividades con el objetivo de que la Municipalidad proceda a sellar y registrar cada uno de ellos. se deberá indicar el valor de la entrada, horario, y la fecha en que se llevara a cabo, el nombre del negocio, razón social del patentado o patentada y estar numerados en forma consecutiva, en caso de boletos electrónicos presentar copia del contrato de la empresa encargada de la venta de los tiquetes.

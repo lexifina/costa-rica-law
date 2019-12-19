@@ -1,0 +1,2 @@
+Artículo 16. Obligación de contar con certificados: Todo certificado de licencia municipal original deberá encontrarse en un lugar visible y accesible a los funcionarios municipales, dentro de la zona de exposición y venta de los bienes y/o servicios de la actividad permitida; junto con el recibo de pago que constate que se encuentren al día con el pago del impuesto.
+En caso de pérdida y/o extravío deberá tramitar la respectiva reposición mediante solicitud expresa ante el departamento de Patentes.

@@ -1,0 +1,1 @@
+Artículo 17. La sección de Patentes deberá resolver las solicitudes de licencia dentro de los30 días hábiles siguientes, después de haberla presentado en forma. Vencido este término, el particular podrá ejercer su actividad sin perjuicio de lo que en definitiva decida el Concejo por medio de la Sección de Patentes.

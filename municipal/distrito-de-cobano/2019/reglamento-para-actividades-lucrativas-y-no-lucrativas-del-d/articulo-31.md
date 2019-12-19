@@ -1,0 +1,1 @@
+Artículo 31. La Declaración jurada para los fines de este Reglamento debe estar fundamentada en la declaración que el patentado ante la Dirección General de Tributación Directa para los efectos del impuesto sobre la Renta. El Concejo Municipal puede verificar ante la Dirección General de Tributación Directa los datos suministrados por el patentado.
