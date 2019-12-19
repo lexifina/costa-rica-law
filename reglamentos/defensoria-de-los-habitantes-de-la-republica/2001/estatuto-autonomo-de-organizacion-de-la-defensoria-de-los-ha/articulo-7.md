@@ -1,4 +1,5 @@
-Artículo 7°— Organización y Funciones del Despacho. El Despacho estará conformado por el/la Defensor (a) de los Habitantes y el Defensor (a) Adjunto (a), un Director de Despacho, así como por el personal de confianza, profesional y de apoyo, asignado a éstos y que se requiera para desempeñar sus funciones.
+Artículo 7°—Organización y funciones del Despacho.
+El Despacho estará conformado por el Defensor (a) de los Habitantes y el Defensor (a) Adjunto (a), un Director (a) de Despacho, así como por el personal de confianza, profesional y de apoyo, asignado a éstos y que se requiera para desempeñar sus funciones. Asimismo, se considera parte del Despacho el Departamento de Comunicación Institucional.
 El personal del Despacho tendrá las siguientes responsabilidades:
 a) Facilitar el planeamiento y colaborar en el control de la gestión institucional.
 b) Realizar la revisión técnica de los proyectos de informe final con recomendaciones y demás proyectos de resolución emitidos por las Direcciones en el ejercicio de su competencia, con el fin de asegurar la uniformidad de los criterios y la consecuente aplicación de las políticas institucionales. En virtud de lo anterior deberá, además de las funciones que le otorga el presente Estatuto, coordinar la elaboración y actualización de un Digesto que contendrá las Resoluciones finales emanadas de esta Defensoría.
@@ -9,8 +10,7 @@ f) Coordinar las relaciones interinstitucionales e internacionales y los program
 g) Conocer, evaluar y elaborar una recomendación al/a la Defensor (a) de los Habitantes sobre las solicitudes de las Direcciones de Defensa para revocar admisibilidades, e informes finales.
 h) Resolver los conflictos de competencia entre las Direcciones de Defensa.
 i) Ordenar, previa autorización del Defensor (a) de los Habitantes, la apertura de expedientes y el correspondiente registro de las investigaciones de oficio que sean de interés institucional.
-j) Mantener un registro estadístico de la casuística tramitada por la Defensoría de los Habitantes.
-k) Representar al Defensor (a) de los Habitantes en el Consejo Directivo del Programa Estado de la Nación.
-l) Realizar todas aquellas otras funciones que le indique el/ la Defensor (a) de los Habitantes o que se desarrolle en la normativa interna de la institución.
+j) Representar al Defensor (a) de los Habitantes en el Consejo Directivo del Programa Estado de la Nación.
+k) Realizar todas aquellas otras funciones que le indique el/ la Defensor (a) de los Habitantes o que se desarrolle en la normativa interna de la institución.
 El Despacho también será responsable de emitir las líneas estratégicas de trabajo, dirección y coordinación que deberán articularse a lo interno de la institución para que el personal técnico, profesional y de apoyo asignado al Mecanismo Nacional de Supervisión de la Convención Sobre los Derechos de las Personas con Discapacidad, desarrolle adecuadamente las funciones y competencias que corresponden a éste.
-(Así reformado mediante acuerdo N° 00002137 del 2 de marzo del 2018)
+(Así reformado mediante acuerdo N° 2266 del 19 de diciembre del 2019)

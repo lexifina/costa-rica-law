@@ -1,7 +1,9 @@
 CAPÍTULO X
 Consejo de Directores
-Artículo 29.—De la constitución. El Consejo de Directores estará conformado por el Defensor (a) de los Habitantes, el Defensor (a) Adjunto (a) de los Habitantes, los Directores de Defensa, el Director (a) del Despacho, el Director (a) de Admisibilidad, el Director (a) de Asuntos Jurídicos, el Director (a) de Promoción y Divulgación, el Director (a) de Oficinas Regionales de, el Director (a) de Planificación Institucional y el Director (a) Administrativo.
+Artículo 29.—De la constitución. El Consejo de Directores estará conformado por el Defensor (a) de los Habitantes, el Defensor (a) Adjunto (a) de los Habitantes, los Directores de Defensa, el Director (a) del Despacho, el Director (a) de Admisibilidad, el Director (a) de Asuntos Jurídicos, el Director (a) del Instituto de Educación en Derechos Humanos de la Defensoría de los Habitantes, el Director (a) de Oficinas Regionales, el Director (a) de Planificación y Desarrollo Institucional, y el Director (a) Administrativo.
+(Así reformado el párrafo anterior mediante acuerdo N° 2266 del 19 de diciembre del 2019)
 Además, asistirá a sus sesiones el personal del Despacho y de apoyo que indique el Defensor (a) de los Habitantes.
+(Así reformado el párrafo anterior mediante acuerdo N° 2266 del 19 de diciembre del 2019)
 El Consejo de Directores sesionará con un quórum mínimo de siete de sus miembros y sus decisiones serán adoptadas por mayoría simple. Tendrán derecho a voz y voto los funcionarios indicados en el párrafo anterior, también tendrán derecho a voto las y los funcionarios de la institución que ostenten una Dirección en virtud de un recargo de funciones. Participarán además con derecho a voz pero sin voto, las y los representantes de los Directores (as) que no pudieran asistir al Consejo. Dichos funcionarios no serán tomados en cuenta para establecer un quórum.
 El Consejo de Directores tendrá las siguientes funciones:
 a) Coordinar las labores de defensa, promoción y divulgación que realiza la Defensoría cíe los Habitantes.

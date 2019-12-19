@@ -21,3 +21,4 @@ Estatuto Autónomo de Organización de la Defensoría de los Habitantes de la Re
 | 6 | 2009-01-16 | Acuerdo 1434 (2009-01-16) |
 | 7 | 2010-06-08 | Reglamento 1570 (2010-06-08) |
 | 8 | 2018-03-02 | Reglamento 0 (2018-03-02) |
+| 9 | 2019-12-19 | Reglamento 0 (2019-12-19) |

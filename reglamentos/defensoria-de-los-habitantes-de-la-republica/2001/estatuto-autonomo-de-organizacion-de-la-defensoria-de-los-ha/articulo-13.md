@@ -14,7 +14,8 @@ h) Elaborar y someter los proyectos de informe final con recomendaciones a consi
 i) Elaborar y someter a consideración del defensor (a) de los Habitantes, los proyectos de resolución de recursos de reconsideración que se presenten contra las resoluciones que emita la Defensoría.
 j) Emitir criterio sobre proyectos de ley relacionados con temas afines a la temática de su conocimiento.
 k) Dar seguimiento a las recomendaciones emitidas por la Defensor de los Habitantes, con el fin de verificar el acatamiento de las mismas, para lo cual podrá solicitar los informes de cumplimento necesarios.
-l) Realizar actividades de promoción y promulgación así como proporcionar insumos para las actividades que habrá de programar y desarrollar la Dirección de promoción y divulgación.
+l) Realizar actividades de promoción y divulgación, así como proporcionar insumos para las actividades que habrá de programar y desarrollar el Instituto de Educación en Derechos Humanos de la Defensoría de los Habitantes.
+(Así reformado el inciso anterior por acuerdo N° 2266 del 19 de diciembre del 2019)
 m) En caso de que se tenga noticia del no acatamiento injustificado de las recomendaciones de esta Defensoría lo comunicará inmediatamente al respectivo Jerarca, lo anterior a efecto de que se tomen las medidas del artículo 58 del Reglamento a la Ley de la Defensoría.
 n) Coordinar con el despacho las relaciones interinstitucionales e internacionales y los programas de cooperación internacional e interinstitucional en materia de su competencia.
 o) En casos de conflictos de competencia entre las direcciones de Defensa, se elevará en consulta al despacho para su definitiva resolución por parte de Defensor (a) de los Habitantes.
