@@ -1,0 +1,1 @@
+ARTÍCULO 3- Se autoriza al Instituto Nacional de Fomento Cooperativo (lnfocoop) para que suscriba un finiquito laboral con cada uno de los empleados del Consorcio Agroatirro R.L., una vez cancelada la totalidad de los derechos laborales reclamados por ellos.
