@@ -1,0 +1,2 @@
+Artículo 18.- Actualización de la. guía de diseño y señalización de facilidades cicloinclusivas.
+La "Guía Técnica de Diseño para la Infraestructura Ciclística" será revisada al menos cada dos años para efectos de actualización. Para convocar dicho proceso se deberá hacer una consulta pública acorde con la normativa vigente. Los interesados podrán registrarse ante el Viceministerio de Transportes y Seguridad Vial del MOPT, lo anterior, con el fin de formar parte de la base de datos de grupos de interés en materia de movilidad activa.

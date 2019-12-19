@@ -1,0 +1,1 @@
+Artículo 2.- Alcance. El presente reglamento se aplicará a todas aquellas políticas públicas, acciones y obras de infraestructura que busquen desarrollar, promover, fomentar y regular el uso de la bicicleta como modo de transporte, para facilitar la movilidad ciclística y garantizar la seguridad de las personas ciclistas.

@@ -1,0 +1,6 @@
+Artículo 20.- Modelos de Sistemas de Bicicletas Públicas. Para la promoción del uso de la bicicleta y el fortalecimiento del modelo de movilidad activa, en la implementación de los sistemas de bicicletas públicas establecidos en el artículo 13 de la Ley Nº 9660, se podrá considerar la utilización de los siguientes modelos, sin limitarse a ellos:
+a) Estaciones fijas de alquiler de bicicletas: Consiste en el alquiler y devolución de bicicletas en las estaciones establecidas en un sitio permanente.
+b) Sistema mixto de alquiler de bicicletas: Consiste en que las bicicletas se alquilan en estaciones específicas, pero pueden ser devueltas en cualquier estación de alquiler.
+c) Esquema libre de distribución de bicicletas: En este sistema no se necesita de una red fija de puntos de préstamo/devolución. Las bicicletas se encuentran distribuidas por toda la ciudad.
+d) Alquiler de bicicletas eléctricas: Consiste en que las bicjcletas se alquilan y se devuelven en un lugar fijo y que deben recargarse en las estaciones de alquiler.
+e) Alquiler de bicicletas para transporte de carga: en este sistema se requiere de un modelo de estaciones fijas de alquiler, donde a las bicicletas se les adiciona/acopla equipo para el transporte de carga.

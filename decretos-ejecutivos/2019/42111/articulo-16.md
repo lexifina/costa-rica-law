@@ -1,0 +1,1 @@
+Artículo 16.- La bicicleta como vehículo. Con el objeto de otorgar el mayor grado de eficiencia a los desplazamientos ciclistas, la bicicleta se considera un vehículo, por tanto se debe promover y respetar su circulación como un vehículo más en las vías públicas.

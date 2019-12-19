@@ -1,0 +1,1 @@
+Transitorio IV. ·En un plazo de seis meses a partir de la publicación del presente reglamento en el Diario Oficial La Gaceta, la Dirección General de Ingeniería de Tránsito en conjunto con la Unidad de Movilidad Activa y en coordinación con los Gobiernos Locales, deberán generar una Guía Técnica que facilite la implementación de los sistemas de bicicletas públicas.

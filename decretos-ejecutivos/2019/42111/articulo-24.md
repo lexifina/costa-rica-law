@@ -1,0 +1,1 @@
+Artículo 24.- Obligaciones de las personas usuarias. Las personas usuarias del sistema de bicicletas públicas para circular en las vías públicas, deberán cumplir con lo estipulado en la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial Nº 9078, la Ley de Movilidad y Seguridad Ciclística Nº 9660 y sus reglamentos.

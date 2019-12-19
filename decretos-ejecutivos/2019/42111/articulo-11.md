@@ -1,0 +1,1 @@
+Artículo 11.- Viabilidad de proyectos de movilidad activa (Intervenciones autorizadas) Todos los proyectos de movilidad activa deberán contar con un estudio técnico que contemple aspectos financieros, económicos, sociales, ingenieriles, ambientales y legales.

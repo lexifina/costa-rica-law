@@ -1,0 +1,1 @@
+Artículo 10.- Participación ciudadana en el Plan Nacional de Movilidad Activa. Para la elaboración del Plan Nacional de Movilidad Activa se deberá considerar la participación ciudadana en todas las etapas del mismo; esto a través del desarrollo de un plan de comunicación que incluya una estrategia de participación y un cronograma de actividades.

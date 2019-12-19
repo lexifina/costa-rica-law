@@ -1,0 +1,1 @@
+Artículo 33.- Financiamiento. Las fuentes de financiamiento para alcanzar los objetivos de la Ley de Movilidad y Seguridad Ciclística Nº9660, son los estipulados en el artículo 15 de dicha Ley, esto en el entendido que no van a darse recursos adicionales, a los previamente contemplados por dicha Ley.

@@ -1,0 +1,1 @@
+Artículo 12.- Creación de la Unidad de Movilidad Activa. Con el objetivo de formalizar, y promover el uso de medios de transporte de movilidad activa, se crea la Unidad de Movilidad Activa en la Dirección de Proyectos del Cosevi.

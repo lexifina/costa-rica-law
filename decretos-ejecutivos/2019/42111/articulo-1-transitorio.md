@@ -1,0 +1,1 @@
+Transitorio I. La Secretaría de Planificación Sectorial del MOPT contará con un plazo de 18 meses para la elaboración del Plan Nacional de Movilidad Activa, contados a partir de la publicación del presente reglamento en el diario oficial La Gaceta.
