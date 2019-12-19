@@ -1,0 +1,1 @@
+Artículo 2º—Esta norma se aplicará como complemento a los requisitos generales establecidos en el Decreto Ejecutivo N° 41045-S del 8 de marzo del 2018 “Reglamento general para la habilitación de servicios de salud”.

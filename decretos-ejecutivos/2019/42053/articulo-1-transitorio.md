@@ -1,0 +1,1 @@
+Transitorio I - A partir de la entrada en vigencia de esta norma todas las solicitudes de habilitación de este tipo de servicios de salud, ya sean de primera vez o de renovación, se regirán de acuerdo a las disposiciones de la presente norma.
