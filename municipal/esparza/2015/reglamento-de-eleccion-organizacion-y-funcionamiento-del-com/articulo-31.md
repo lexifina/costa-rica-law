@@ -1,4 +1,4 @@
-Artículo 31.—Del Tesorero. Son funciones del Tesorero las que se enuncian a continuación:
+ARTÍCULO 31.- Del Tesorero. Son funciones del Tesorero las que se enuncian a continuación:
 a) Custodiar y responder por los dineros del Comité Cantonal, supervisando el estado Financiero del Comité.
 b) Fiscalizar y recaudar los ingresos económicos, ordinarios y extraordinarios que ingresen a la cuenta corriente.
 c) Vigilar que la Contabilidad esté correcta y al día.
@@ -11,4 +11,5 @@ i) Las que establezcan otros reglamentos como el de Caja Chica del CCDRE, o cual
 j) Velar por el cumplimiento de este reglamento.
 k) Presentar propuestas e iniciativas.
 l) Velar por el cumplimiento de todas las obligaciones, objetivos, contratos, convenios, lineamientos y políticas de la Corporación Municipal y del CCDRE.
-m) Cualquier otra función que la Junta o el ordenamiento jurídico le asigne.
+m) Firmar la fórmula de viáticos y transportes del Presidente de la JD y Cualquier otra función que la Junta o el ordenamiento jurídico le asigne.
+(Así reformado mediante publicación en el Alcance Digital N° 283 a La Gaceta N° 242 del 19 de diciembre del 2019)

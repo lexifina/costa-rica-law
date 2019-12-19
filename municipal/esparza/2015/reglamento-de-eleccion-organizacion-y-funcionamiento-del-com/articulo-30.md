@@ -1,8 +1,9 @@
-Artículo 30.—Del Secretario. Son funciones del Secretario las que se detallan seguidamente:
+ARTÍCULO 30.- Del Secretario. Son funciones del Secretario las que se detallan seguidamente:
 a) Realizar las funciones de Secretaría como: levantar actas, extractos, acuerdos. Siempre y cuando no se cuente con el órgano de Secretaria Ejecutiva.
 b) Firmar conjuntamente con el presidente las actas de las sesiones.
-c) Supervisar el cumplimiento de las funciones de la Secretaria de Actas.
-d) Velar por el cumplimiento de este reglamento.
+c) Supervisar el cumplimiento de las funciones de la Secretaria de Actas o Ejecutiva.
+d) Velar por el cumplimiento de este reglamento y el control de acuerdos, informando a la Junta Directiva la ejecución o no de estos.
 e) Presentar propuestas e iniciativas.
 f) Velar por el cumplimiento de todas las obligaciones, objetivos, contratos, convenios, lineamientos y políticas de la Corporación Municipal y del CCDRE.
 g) Cualquier otra función que la Junta o el ordenamiento jurídico le asigne.
+(Así reformado mediante publicación en el Alcance Digital N° 283 a La Gaceta N° 242 del 19 de diciembre del 2019)

@@ -1,9 +1,9 @@
 CAPÍTULO VI
 De las funciones de los miembros de la Junta Directiva
-Artículo 28.—Del Presidente. Son funciones del Presidente las que se detallan a continuación:
+ARTÍCULO 28.- Del Presidente. Son funciones del Presidente las que se detallan a continuación:
 a) Preparar el orden del día para las sesiones.
-b) Presidir y dirigir las sesiones de Junta Directiva.
-c) Dar y regular la palabra y la participación equitativa de las y los participantes.
+b) Presidir y dirigir las sesiones de Junta Directiva, así como las Asambleas y reuniones que la Junta Directiva convoque.
+c) Dar y regular la palabra y la participación equitativa de las y los participantes
 d) Garantizar el respeto mutuo de entre las y los miembros de la Junta; las y los funcionarios del Comité, dentro de las reuniones, sesiones o actos públicos.
 e) Conceder la palabra y retirársela a quien haga uso de ella sin permiso, o no se concrete al tema de discusión o se exceda en sus expresiones.
 f) Velar por el cumplimiento de este reglamento.
@@ -18,3 +18,5 @@ n) Supervisar las diferentes comisiones y asistir a las reuniones de estas cuand
 o) Firmar los carnés, extendidos a diferentes órganos, personas o atletas, relacionados con el CCDRE.
 p) Cualquier otra que le señale el ordenamiento jurídico.
 q) Presentar propuestas e iniciativas.
+r) Firmar la fórmula de viáticos y transportes del funcionario administrativo de mayor jerarquía, así como a los demás miembros de la Junta Directiva.
+(Así reformado mediante publicación en el Alcance Digital N° 283 a La Gaceta N° 242 del 19 de diciembre del 2019)

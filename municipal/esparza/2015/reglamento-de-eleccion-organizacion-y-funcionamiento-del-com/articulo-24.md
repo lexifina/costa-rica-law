@@ -1,8 +1,8 @@
-Artículo 24.—Funciones de la Junta Directiva del CCDRE:
+ARTÍCULO 24.- Funciones de la Junta Directiva del CCDRE:
 a) Prever, planificar, ejecutar, coordinar y controlar todo el accionar del CCDRE.
 b) Proponer al Concejo Municipal las prioridades, alcances y políticas deportivas y recreativas del cantón.
 c) Ejecutar las políticas que en materia deportiva y recreativa le fije la Municipalidad al Comité Cantonal y en la medida de sus posibilidades, aquellas que fije el ICODER.
-d) Velar porque los recursos asignados por la Municipalidad de Esparza sean dirigidos en forma prioritaria a las personas residentes en el cantón y que lo representen.
+d) Velar porque los recursos asignados por la Municipalidad de Esparza sean dirigidos en forma prioritaria a las personas residentes en el Cantón y que lo representen.
 e) Establecer y mantener actualizadas su estructura administrativa y organizativa, con sus respectivos manuales de puestos y de organización y funcionamiento.
 f) Implementar las estrategias y políticas generales de acción, una vez que sean conocidas por el Concejo Municipal.
 g) Elaborar y proponer para conocimiento del Concejo Municipal los informes y planes anuales; sus ajustes en coherencia con las políticas deportivas y recreativas.
@@ -15,15 +15,16 @@ l) Proponer al Concejo la construcción de infraestructura deportiva, para lo cu
 m) Evaluar el impacto y el desarrollo de los programas recreativos y deportivos que se implementan en el cantón o en los que se participa representando a Esparza.
 n) Divulgar y promocionar todas las actividades recreativas y deportivas que se realizan en el cantón.
 ñ) Gestionar la consecución de recursos económicos, materiales y humanos.
-o) Presentar ante el Concejo Municipal y ante la Gestión de Planificación y Presupuesto de la Municipalidad los siguientes informes:
-1. Informe de ejecución presupuestaria que comprenderá las secciones de ingresos y egresos, dentro de los quince días naturales siguientes a la finalización del primer, segundo y tercer trimestres de cada año.
-2. Informe de ejecución presupuestaria, de estados financieros y de liquidación presupuestaria, dentro de los quince días naturales siguientes a la finalización del cuarto trimestre de cada año.
-3. Informe sobre el cumplimiento del plan de trabajo dentro de los quince días naturales siguientes a la finalización del primer semestre y 30 días naturales siguientes a la finalización del segundo semestre, y deberá comprender un análisis de la ejecución física y financiera de los recursos, incluyendo la justificación acerca de los recursos y los proyectos no ejecutados.
-Estos informes deberán ser elaborados en utilizando los formatos establecidos por la Contraloría General de la República para cada uno de ellos y deberán venir firmados por el Presidente y el Tesorero de la Junta Directiva del CCDRE.
-La Gestión de Planificación y Presupuesto de la Municipalidad, una vez recibidos cada uno de estos informes, deberán analizarlos y posteriormente emitir un informe técnico ante el Concejo y la Alcaldía, 15 días naturales siguientes al recibido de los mismos.
+o) Presentar ante la Administración de la Municipalidad con copia al Concejo Municipal los siguientes informes:
+Informe sobre el cumplimiento del plan de trabajo, y la ejecución y liquidación presupuestaria que comprenderá las secciones de ingresos y egresos, dentro de los quince días naturales siguientes a la finalización del primer, segundo semestre de cada año.
+Informe de estados financieros de conformidad con las NICSP, dentro de los quince días naturales siguientes a la finalización de cada trimestre del año.
+Para lo cual el Comité deberá registrar la información financiera en el sistema oficial de la Municipalidad.
+Estos informes deberán ser elaborados utilizando los formatos establecidos por la Contraloría General de la República y Contabilidad Nacional para cada uno de ellos y deberán venir firmados por el Presidente y el Tesorero de la Junta Directiva del CCDRE.
+La Gestión Financiera y la de Planificación y Presupuesto de la Municipalidad, una vez recibidos cada uno de estos informes, deberán analizarlos y posteriormente emitir un informe técnico ante el Concejo y la Alcaldía, 15 días naturales siguientes al recibido de los mismos
 p) Nombrar y remover en su oportunidad al personal administrativo, en apego a la legislación vigente.
 q) Actualizar las listas de asociaciones, organizaciones, fundaciones y otras formas de Sociedad civil organizada con personería jurídica vigente; tanto de las adscritas deportivas y recreativas como el resto inscritas de la Sociedad Civil del Cantón y adscritas al CCDRE.
 r) Capacitar técnicamente en la medida de sus posibilidades a los colaboradores de los distritos del cantón para integrarlos en la relación deportiva comunal.
 s) Resolver los conflictos que pudieren presentarse con motivo de la aplicación o interpretación de sus reglamentos y resoluciones.
 t) Conocer en segunda instancia los recursos contra las disposiciones y resoluciones dictadas por los funcionarios administrativos.
 u) Aprobar las tarifas por derechos de alquiler y publicidad de las instalaciones deportivas y recreativas.
+(Así reformado mediante publicación en el Alcance digital N° 283 a La Gaceta N° 242 del 19 de diciembre del 2019)

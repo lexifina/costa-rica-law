@@ -1,15 +1,15 @@
-Artículo 56.—Funciones especiales del Encargado de la Administración. Además de las que le pueda asignar la Junta Directiva, la Municipalidad o las autoridades deportivas nacionales, son funciones del Encargado de la Administración las siguientes:
+ARTÍCULO 56. Funciones especiales del Encargado de la Administración. Además de las que le pueda asignar la Junta Directiva, la Municipalidad o las autoridades deportivas nacionales, son funciones del Encargado de la Administración las siguientes:
 a) Ejercer las funciones inherentes a la condición de administrador general, vigilando la organización, funcionamiento, coordinación y fiel cumplimiento al marco jurídico aplicable.
 b) Ejecutar los acuerdos, políticas y objetivos que la Junta Directiva le solicite y que estén contenidas en el Plan Operativo Anual y en el presupuesto del Comité y aquellas que la Junta Directiva le ordene desarrollar y poner en práctica en la institución, todo dentro del marco de legalidad y en apego a las sanas prácticas administrativas.
 c) Planificar, dirigir y controlar directamente la ejecución de los programas que el Comité desarrolla, en su área operativa, en el campo de la Recreación, el Deporte aficionado, el Deporte Competitivo, la Atención Integral a las Comunidades, la Capacitación y los Proyectos de construcción, reparación y mantenimiento de infraestructura deportiva.
-d) Rendir informes a la Junta Directiva cuando esta se lo solicite.
+d) Rendir informes a la Junta Directiva cuando esta se lo solicite y los establecidos en el artículo 24 de este Reglamento.
 e) Asistir a las sesiones de la Junta Directiva.
 f) Presentar ante la Junta Directiva los anteproyectos de presupuestos ordinarios y extraordinarios.
 g) Recomendar a la Junta Directiva, el nombramiento, las sanciones o remoción de los funcionarios de planta del Comité Cantonal, conforme al marco jurídico aplicable.
-h) Fiscalizar la ejecución de las distintas contrataciones administrativas llevadas a cabo por el Comité Cantonal.
+h) Elaborar los carteles de contratación administrativa, además de desarrollar y Fiscalizar la ejecución de las distintas contrataciones administrativas llevadas a cabo por el Comité Cantonal.
 i) Vigilar la política adoptada por el Comité Cantonal para el logro de sus fines.
 j) Asumir la responsabilidad directa por la apropiada generación, tamaño y funcionamiento del sistema administrativo.
-k) Supervisar las labores del personal técnico y administrativo.
+k) Dirigir las labores del personal técnico y administrativo, dentro de las cuales se encuentran tramite de vacaciones y permisos entre otros.
 l) Desarrollar y mantener un manual de puestos.
 m) Resolver los conflictos de trabajo.
 n) Levantar los expedientes sobre irregularidades administrativas y técnicas.
@@ -25,3 +25,5 @@ w) Asistir a reuniones, seminarios, juntas y otras actividades dentro o fuera de
 x) Velar porque los objetivos, actividades y metas de cada programa se cumplan de acuerdo a los cronogramas y planes de trabajo establecidos, proponiendo y dirigiendo las acciones y ajustes que canalicen correctamente los recursos disponibles.
 y) Velar porque los servicios sustantivos y de apoyo se efectúen con la mayor eficiencia y eficacia, de modo que se eviten pérdidas económicas originadas por atrasos, tardanzas o deficiencias de los procedimientos.
 z) Evaluar periódicamente la calidad de los resultados en la comunicación de políticas, planes y programas técnicos y administrativos y recomendar los cambios o ajustes necesarios para el logro de objetivos.
+A falta de un Administrador, dichas funciones las podrá realizar un miembro de la Junta Directiva con las mismas funciones y responsabilidades, pero sin recibir salario por sus funciones.
+(Así reformado mediante publicación en el Alcance Digital N° 283 a La Gaceta N° 242 del 19 de diciembre del 2019)

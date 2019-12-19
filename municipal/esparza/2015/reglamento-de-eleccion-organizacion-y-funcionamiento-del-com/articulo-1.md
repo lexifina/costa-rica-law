@@ -39,7 +39,8 @@ Gobierno Local: Son los concejales de distritos, Síndicos, Regidores, Vicealcal
 ICODER: Instituto Costarricense del Deporte y la Recreación.
 Inscripción: Cuota que paga un atleta por participar en una actividad deportiva o recreativa.
 Instalaciones Deportivas y Recreativas: Unidades o conjuntos de espacios o estructuras naturales o creadas, cuya finalidad es propiciar la realización de actividades deportivas y recreativas.
-JD o Junta Directiva: Máxima autoridad y jerarca superior en el CCDRE, conformada por 5 personas residentes en el cantón: dos de nombramiento del Concejo Municipal, dos miembros de las organizaciones deportivas y recreativas del cantón y un miembro de las organizaciones comunales restantes.
+JD o Junta Directiva: Máxima autoridad y jerarca superior en el CCDRE, conformada por 7 personas residentes en el Cantón: dos de nombramiento del Concejo Municipal, dos miembros de las organizaciones deportivas y recreativas del cantón, un miembro de las organizaciones comunales restantes y dos miembros de la población entre los 15 años y menores de 18 años.
+(Así reformada la definición anterior mediante publicación en el Alcance Digital N° 283 a La Gaceta N° 242 del 19 de diciembre del 2019)
 Municipalidad: Municipalidad del cantón de Esparza.
 Organización Comunal: Ente u Órgano debidamente constituido que cumple una finalidad u objetivo según su creación y constitución.
 Organización Deportiva: Ente u Órgano legalmente constituido que cumple una finalidad u objetivo para la recreación y el deporte. Pueden ser Asociaciones Deportivas o Sociedades Anónimas Deportivas, siempre y cuando se encuentren adscritas al CCDRE.

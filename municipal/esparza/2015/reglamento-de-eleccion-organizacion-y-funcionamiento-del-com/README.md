@@ -14,3 +14,4 @@ Reglamento de Elección, Organización y Funcionamiento del Comité Cantonal de 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-08-25 | la propia norma |
+| 2 | 2019-12-19 | Reglamento municipal 0 (2019-12-19) |
