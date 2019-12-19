@@ -1,0 +1,4 @@
+Sección II
+Funciones del Departamento de Gestión de Cobro Administrativo
+Artículo 10.—De la Función de Gestión de Recaudación. La función del Departamento de Gestión de Cobro Administrativo es el conjunto de actividades destinadas a atraer a los contribuyentes para que normalicen sus obligaciones tributarias con la Municipalidad.
+La función se realizará en tres etapas sucesivas: voluntaria, administrativa y ejecutiva. En la etapa voluntaria, el sujeto pasivo de la obligación tributaria municipal cancelará sus obligaciones sin necesidad de actuación alguna por parte del Departamento. En la etapa administrativa, el Departamento efectuará un requerimiento persuasivo de pago a los sujetos pasivos morosos. En la etapa judicial o ejecutiva, la gestión se efectuará utilizando los medios legales establecidos y recurriendo a los órganos jurisdiccionales respectivos. Esta etapa es la que ejecutarán los abogados(as) internos y/o externos contratados.

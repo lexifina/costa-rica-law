@@ -1,0 +1,13 @@
+Artículo 15.—Requisitos para la formalización del arreglo de pago
+Personas Físicas:
+1. Debe apersonarse el contribuyente, cónyuge o persona autorizada por escrito por el propietario para la formalización del arreglo de pago.
+2. Presentar fotocopia de la cédula de identidad del contribuyente y de la persona autorizada.
+3. El contribuyente o persona autorizada deberá cancelar un treinta por ciento del total de la suma adeudada, porcentaje autorizado por los ejecutivos de cuenta. No obstante, el Coordinador de Gestión de Cobro Administrativo, queda facultado para autorizar arreglos con un aporte inicial del quince por ciento. El Director Tributario y/o el Alcalde Municipal podrán autorizar la formalización de un arreglo de pago con una cuota inicial menor al quince por ciento o sin cuota inicial.
+4. Para el caso de que el contribuyente por alguna razón no pueda presentarse personalmente a formalizar el arreglo de pago, podrá hacerlo mediante otra persona debidamente autorizada para tales efectos mediante un poder especial, el cual no será necesario rendirlo ante notario público o por medio de una Pág 48 La Gaceta Nº 100 — Lunes 27 de mayo del 2013autorización autenticada. También se deberá presentar copia de las cédulas de identidad de ambos. Los mismos requisitos serán exigidos para el caso de que sea el o la inquilina quien desee realizar un arreglo de pago.
+5. En caso de que el propietario haya fallecido, el albacea deberá acreditar su designación para proceder a la formalización del arreglo de pago.
+6. Si el propietario no puede firmar el arreglo de pago, por no saber o no poder hacerlo, podrá solicitarle a otra persona que lo haga a su ruego y además, estampará su huella digital.
+Personas Jurídicas:
+1. Personería Jurídica (que no supere los tres meses de emitida) o certificación de Notario Público.
+2. Fotocopia de la cédula jurídica y cédula de identidad del representante legal.
+3. Cancelación de un treinta por ciento del total de la suma adeudada, porcentaje autorizado por los ejecutivos de cuenta. No obstante, el Coordinador de Gestión de Cobro Administrativo, queda facultado para autorizar arreglos con un aporte inicial del quince por ciento. El Director Tributario y/o el Alcalde Municipal podrán autorizar la formalización de un arreglo de pago con una cuota inicial menor al quince por ciento o sin cuota inicial.
+4. En caso de que un tercero sea el autorizado para realizar un arreglo de pago a nombre de la persona jurídica, se deberá presentar la respectiva autorización escrita o poder especial del representante legal de la sociedad y acompañar fotocopia de la cédula de identidad tanto de quien ostenta la representación legal como del autorizado.
