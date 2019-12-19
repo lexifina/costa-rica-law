@@ -1,0 +1,1 @@
+ARTÍCULO 23. Muerte. En caso de muerte del adjudicatario, y no exista en los archivos la escritura indicada en el artículo 14, el local debe ser cerrado por la administración quien podrá disponer del mismo.

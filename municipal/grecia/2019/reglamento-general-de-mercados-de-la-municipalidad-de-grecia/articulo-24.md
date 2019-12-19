@@ -1,0 +1,1 @@
+ARTÍCULO 24. Obligaciones de terceros autorizados. La persona designada para continuar con la operación del puesto ante la incapacidad o muerte del adjudicatario se encuentra sujeta a las mismas obligaciones y prohibiciones del inquilino.

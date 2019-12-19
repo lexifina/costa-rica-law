@@ -1,0 +1,2 @@
+ARTÍCULO 13. Pérdida de la adjudicación. La persona favorecida en una adjudicación, que no reúna los requisitos anteriores o no se presente dentro del término de ocho días hábiles a formalizar el respectivo contrato o no cancele la totalidad del monto ofertado, perderá la adjudicación respectiva.
+La Municipalidad podrá sacar a remate nuevamente el puesto que quede libre, perdiendo el interesado cualquier suma que haya adelantado por concepto de garantía de participación como cláusula penal.

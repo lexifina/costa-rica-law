@@ -1,0 +1,1 @@
+ARTÍCULO 50. Se autoriza a la Fuerza Pública, el ingreso a las instalaciones el mercado Municipal sin previa autorización, para ejercer su función y contribuir con el cumplimiento del presente reglamento.

@@ -1,0 +1,1 @@
+ARTÍCULO 47.- Incumplimiento a la Ley N°9047: Bebidas con contenido alcohólico: Cuando se incurra en la prohibición dispuesta en el artículo 18 inciso h), se dará aviso a las autoridades de policía para la imposición de las sanciones contenidas en la Ley de Regulación y Comercialización de Bebidas con contenido Alcohólico (N°9047) y su reglamento.
