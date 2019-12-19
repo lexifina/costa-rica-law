@@ -1,0 +1,2 @@
+Artículo 20.- Registro estadístico.
+El Departamento de Gestión Ambiental de la Municipalidad o en su defecto la empresa privada que realiza la recolección de los residuos ordinarios reciclables, deberá mantener un registro estadístico mensual de la cantidad de residuos recolectados por tipo de material y peso, con la finalidad de tener un control de las tasas de generación y determinar las áreas prioritarias a trabajar. La empresa privada está en la obligación de presentarlos semestralmente al departamento de gestión ambiental.

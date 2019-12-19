@@ -1,0 +1,2 @@
+Artículo 34.- Inspecciones.
+Los funcionarios del subproceso de Gestión Ambiental debidamente identificados, deben realizar las inspecciones de verificación, seguimiento o cumplimiento de este reglamento. Al encontrarse indicios de incumplimiento de este reglamento, se le notificará al responsable para el inicio del procedimiento administrativo ordinario respectivo, de conformidad con lo preceptuado en la Ley General de la Administración Pública.

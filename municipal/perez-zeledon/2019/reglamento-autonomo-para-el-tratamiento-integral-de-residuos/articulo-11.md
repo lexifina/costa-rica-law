@@ -1,0 +1,10 @@
+Artículo 11.- Responsabilidades del recolector.
+1. Prestar el servicio de la recolección de residuos sólidos en forma accesible, periódica y eficiente para todos los usuarios.
+2. Garantizar la recolección en el área bajo su responsabilidad. La frecuencia de la recolección es decidida de común acuerdo con los responsables municipales. El recolector puede ser la Municipalidad o una empresa privada a la que fue otorgada una concesión. Independientemente de esto, la responsabilidad frente al usuario sigue siendo de la Municipalidad.
+3. Si el recolector es concesionario privado este debe:
+a. Acoger el sistema de recolección separada municipal en caso de que exista y esto debe quedar contemplado en el contrato, cumplir con los requisitos de los vehículos, de seguridad ocupacional y todo lo estipulado en el presente reglamento y en la legislación vigente.
+b. Estar debidamente inscrito como gestor autorizado en el Ministerio de Salud y la Municipalidad debe de conocer y fiscalizar que sean autorizados.
+c. Brindar informes trimestrales sobre la forma de ejecución del servicio, indicar los pesos de los materiales recolectados, la dirección exacta para el tratamiento o la disposición final de los residuos y entregar documentos que certifiquen lo anterior.
+d. Cumplir con los siguientes requisitos: póliza de riesgos del trabajo, predio o edificación con permiso sanitario de funcionamiento al día, haber obtenido previamente la licencia municipal de actividad lucrativa, estar al día con los impuestos municipales, estar inscrito como patrono o trabajador independiente y al día con las obligaciones ante la CCSS.
+4. En caso de quedar residuos esparcidos por la vía pública en el momento de la recolección, la Municipalidad o la empresa responsable, debe recogerlos y depositarlos en el camión recolector; así como tomar cualquier otro medio adecuado para evitar la contaminación.
+5. Los vehículos utilizados para la recolección de residuos deben ser los correctos para el tipo de residuo que recolecten y estar debidamente identificados. Los vehículos deben de tener las características técnicas y normativas idóneas para la prestación del servicio.

@@ -1,0 +1,6 @@
+Artículo 15.- Colocación de los residuos en condominios, edificios, servidumbres y sitios de difícil acceso.
+1. Para el caso de los usuarios con propiedades ubicadas en condominios y edificios de dos pisos o más, deberán instalar un contenedor de almacenamiento colectivo, sobre la ruta de recolección establecida, cumpliendo con lo estipulado en el artículo 10 inciso f de este reglamento.
+2. En servidumbres, callejones, alamedas y calles en mal estado o de difícil acceso por donde el vehículo recolector no pueda transitar, los residuos se deberán depositar en la entrada de éstos en un contenedor de uso colectivo cerca de la calle principal sin obstruir la vía pública.
+3. En los tramos dentro de la zona del servicio que excedan la ruta donde el vehículo recolector transita, los residuos se deberán depositar en un contenedor de almacenamiento colectivo dispuesto sobre la ruta de recolección establecida.
+4. Es responsabilidad de los vecinos del lugar, dar mantenimiento, de manera permanente a los contenedores, canastas y que los residuos siempre estén en bolsa para ser recolectados.
+5. El camión recolector tendrá la responsabilidad de entrar solamente a los caminos debidamente habilitados y con posibilidad de maniobrar.
