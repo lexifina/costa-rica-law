@@ -1,10 +1,20 @@
-Artículo 24.- Creación,funcionamiento, conformación e integración de los comités cantonales de la persona joven
+Artículo 24.-Creación, funcionamiento, conformación e integración de los comités cantonales de la persona joven
 En cada municipalidad se conformará un comité cantonal de la persona joven y será nombrado por un período de dos años; sesionará al menos dos veces al mes y estará integrado por personas jóvenes, de la siguiente manera:
-a) Una persona representante municipal, quien lo presidirá, designada por el concejo municipal. Esta persona representa a las personas jóvenes no tipificadas en los numerales siguientes.
+a) Una persona representante municipal, designada por el concejo municipal.
+(Así reformado el inciso anterior por el artículo 1° de la ley contra el adultocentrismo en los Comités Cantonales de la Persona Joven,N° 9735 del 4° de setiembre del 2019)
 b) Dos personas representantes de los colegios del cantón, electas en una asamblea de este sector. Cada gobierno estudiantil tendrá la posibilidad de postular un candidato y una candidata para integrar el comité cantonal de la persona joven.
 c) Dos personas representantes de las organizaciones juveniles cantonales debidamente registradas en la municipalidad respectiva, electas en una asamblea de este sector. Cada organización tendrá la posibilidad de postular un candidato y una candidata para integrar el comité cantonal de la persona joven.
 d) Una persona representante de las organizaciones deportivas cantonales, escogida por el comité cantonal de deportes.
 e) Una persona representante de las organizaciones religiosas que se registren para el efecto en la municipalidad del cantón, electa en una asamblea de este sector. Cada organización tendrá la posibilidad de postular un candidato y una candidata para integrar el comité cantonal de la persona joven.
 Cada municipalidad conformará el comité cantonal de la persona joven en los meses de octubre y noviembre de cada año, en los años pares, iniciando sus funciones el primero de enero del año impar.
-El comité cantonal de la persona joven de su seno definirá a un secretario o secretaria que fungirá por dos años.
+El comité cantonal de la persona joven definirá, de su seno, una presidencia y una secretaría, mediante una votación que se decidirá por mayoría simple en su primera sesión ordinaria. Los postulantes a la presidencia y secretaría del comité cantonal de la persona joven deben presentar su carta de postulación, junto con su currículum, a los miembros electos del comité y en la dirección de promoción social de la municipalidad en la cual se está circunscrito, una semana antes de la primera sesión del comité.
+(Así reformado el párrafo anterior por el artículo 1° de la Ley contra el adultocentrismo en los Comités Cantonales de la Persona Joven, N° 9735 del 4° de setiembre del 2019)
+La designación de los representantes del comité cantonal de la persona joven deberá respetar el principio de paridad de género, publicidad y transparencia.
+(Así adicionado el párrafo anterior por el artículo 1° de la Ley contra el adultocentrismo en los Comités Cantonales de la Persona Joven, N° 9735 del 4° de setiembre del 2019)
+Cada municipalidad reglamentará el procedimiento de elección de los miembros del comité cantonal de la persona joven, así como los aspectos relacionados con la conformación del cuórum estructural y cuórum funcional, a fin de que se clarifique el funcionamiento, la misión y la visión de los comités cantonales de la persona joven en sus cantones.
+(Así adicionado el párrafo anterior por el artículo 1° de la Ley contra el adultocentrismo en los Comités Cantonales de la Persona Joven, N° 9735 del 4° de setiembre del 2019)
+No obstante, en caso de empate, el presidente del comité tendrá voto de calidad de acuerdo con el inciso f) del artículo 49 de la Ley N.º 6227, Ley General de la Administración Pública, de 2 de mayo de 1978.
+(Así adicionado el párrafo anterior por el artículo 1° de la Ley contra el adultocentrismo en los Comités Cantonales de la Persona Joven, N° 9735 del 4° de setiembre del 2019)
+Cada comité cantonal de la persona joven deberá presentar anualmente un informe de labores detallado sobre su gestión y el uso de los recursos públicos como mecanismo de rendición de cuentas.
+(Así adicionado el párrafo anterior por el artículo 1° de la Ley contra el adultocentrismo en los Comités Cantonales de la Persona Joven, N° 9735 del 4° de setiembre del 2019)
 (Así reformado por el artículo 10° de la ley N° 9155 del 3 de julio del 2013)
