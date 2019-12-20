@@ -1,0 +1,1 @@
+Artículo 5º—Apoyo. Se insta a los Colegios Profesionales en Ciencias de la Salud, vinculados con el diagnóstico de laboratorio, diagnóstico clínico y prescripción de medicamentos a brindar apoyo en esta iniciativa Regional y Nacional.
