@@ -1,0 +1,2 @@
+Artículo 4º—Adiciónese un párrafo final al artículo 2 de la resolución de esta Dirección Nº DGT-R-012-2018 de las ocho horas del día diecinueve de febrero de dos mil dieciocho, para que diga:
+“Aquellas personas jurídicas registradas ante la Administración Tributaria bajo el código de actividad económica “960113 personas jurídicas constituidas en el país que no desarrollan actividad económica de fuente costarricense”, no deberán ni podrán emitir comprobantes electrónicos.”
