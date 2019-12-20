@@ -14,3 +14,4 @@ Gobernanza e implementación de los objetivos de desarrollo sostenible en Costa 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-03-01 | la propia norma |
+| 2 | 2019-12-20 | Decreto Ejecutivo 42127 (2019-12-20) |
