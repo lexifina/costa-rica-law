@@ -1,1 +1,0 @@
-Artículo 6°—Telecentros: El Ministerio de Trabajo y Seguridad Social evaluará y recomendará la utilización de telecentros en aquellas localidades donde existan las condiciones idóneas para que los teletrabajadores puedan desarrollar sus actividades, en cuyo caso coordinará con las instancias correspondientes el procedimiento y la normativa de uso de esos servicios.
