@@ -1,0 +1,1 @@
+Artículo 4º—La Administración Pública Central y Descentralizada, de conformidad con el bloque de legalidad apoyará mediante la aplicación de las reglas de simplificación de trámites, eficiencia administrativa y coordinación interinstitucional, con los trámites que deba cumplir para el desarrollo de los proyectos.

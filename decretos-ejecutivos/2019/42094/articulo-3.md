@@ -1,0 +1,1 @@
+Artículo 3º—A efecto de autorizar la limpieza y despeje en los terrenos del derecho de vía y aquellas otras áreas que sea necesario intervenir para el desarrollo de las obras, las instancias competentes tramitarán con la debida agilidad la solicitud que en tal sentido le presente el Ministerio de Obras Públicas y Transportes.
