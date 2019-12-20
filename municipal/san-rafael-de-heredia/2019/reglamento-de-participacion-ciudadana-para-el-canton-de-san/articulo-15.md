@@ -1,0 +1,1 @@
+Artículo 15. El referendo y el plebiscito corresponden a las únicas instancias de participación ciudadana vinculantes para el municipio de acuerdo con la ley, las restantes son de tipo consultivo o resolutivo.

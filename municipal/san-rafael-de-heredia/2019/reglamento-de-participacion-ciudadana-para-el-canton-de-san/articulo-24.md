@@ -1,0 +1,3 @@
+CAPÍTULO 5
+De los organismos colegiados de los distritos
+Artículo 24. El organismo colegiado de distrito por excelencia es el Concejo de Distrito, es un órgano de la municipalidad con potestades para ejercer plenamente las atribuciones que les otorga el Código Municipal, con miras al desarrollo de su respectivo distrito. Dicho Concejo se constituyen en verdaderas instancias participativas en sus comunidades. Su integración y funciones están reguladas por el Código Municipal vigente y los respectivos reglamentos dictados por el Concejo Municipal.

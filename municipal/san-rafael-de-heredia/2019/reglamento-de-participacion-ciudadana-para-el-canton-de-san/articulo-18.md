@@ -1,0 +1,1 @@
+Artículo 18. Para toda audiencia deberá contarse con una agenda previa sobre el tema o los temas a tratar. Cuando se solicite una audiencia en un distrito debe darse al Concejo y la Alcaldía Municipal un plazo prudencial para que puedan prepararse con respecto a los temas de esta.

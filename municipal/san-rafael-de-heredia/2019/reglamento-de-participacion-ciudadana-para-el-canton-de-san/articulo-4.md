@@ -1,0 +1,1 @@
+Artículo 4. La Municipalidad de San Rafael de Heredia velará por la protección de los derechos e intereses de todas las personas que tienen su domicilio en la jurisdicción territorial del Cantón de San Rafael de Heredia, respondiendo y garantizando lo establecido en el Código Municipal, en su Título I: Disposiciones Generales.

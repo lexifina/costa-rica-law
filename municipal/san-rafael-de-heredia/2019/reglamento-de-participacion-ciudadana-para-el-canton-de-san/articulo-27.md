@@ -1,0 +1,1 @@
+Artículo 27. En el caso del órgano colegiado distrital, podrá formar las comisiones que requiera su distrito y comunicarlo al Concejo Municipal. En todos los casos de comisiones especiales permanentes y temporales, se seguirá lo establecido en el presente reglamento.

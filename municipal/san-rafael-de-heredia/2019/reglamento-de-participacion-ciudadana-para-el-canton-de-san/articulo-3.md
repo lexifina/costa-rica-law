@@ -1,0 +1,1 @@
+Artículo 3. El ámbito de aplicación de las presentes normas se restringe únicamente a la jurisdicción del Cantón de San Rafael de Heredia, y es válido para todas las personas habitantes o munícipes y organizaciones de la sociedad civil, domiciliadas en su territorio.

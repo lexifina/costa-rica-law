@@ -1,0 +1,6 @@
+Rendición de cuentas
+Artículo 20. La Rendición de Cuentas es el proceso conformado por un conjunto de normas, procedimientos, metodologías, prácticas y resultados mediante los cuales, la Alcaldía Municipal informa, explica y da a conocer los resultados de la gestión a la ciudadanía, la sociedad civil, otras entidades públicas, a partir de la promoción del diálogo, que comprende acciones de petición de información y explicaciones, así como la evaluación de la gestión. Los espacios de rendición de cuentas tienen los siguientes propósitos:
+• Brindar información a la ciudadanía a través de distintos medios, consolidando procesos de generación de información de calidad y en lenguaje claro.
+• Generar espacios de diálogo en doble vía con la ciudadanía, a través de la cuales se invita a la comunidad y grupos de interés a establecer un diálogo sobre las principales problemáticas del cantón.
+• Incentivar y reforzar en la Comunidad, la importancia e interiorización de la rendición de cuentas permanente de resultados, avances y actividades de interés para la ciudadanía en general y los diferentes grupos de interés.
+• Realizar un análisis de la gestión y los resultados obtenidos en la gestión municipal con el propósito de mejorar continuamente la calidad de la información suministrada y las estrategias institucionales implementadas.

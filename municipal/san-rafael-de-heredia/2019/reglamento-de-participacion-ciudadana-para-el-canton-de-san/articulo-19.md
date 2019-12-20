@@ -1,0 +1,3 @@
+CAPÍTULO 4
+Consultas populares
+Artículo 19. Al tenor de lo establecido en los artículos 4 inciso g y artículo 5 del Código Municipal, del Decreto 03-98 del Tribunal Supremo de Elecciones y el Manual para la realización de consultas populares a escala cantonal y distrital, el Gobierno Local por medio de la Alcaldía Municipal convocará a reuniones con la participación de la ciudadanía para informar y pedir opinión sobre temas que se relacionen con el desarrollo sostenible del cantón, tales como planificación urbana, manejo de desechos, áreas silvestres, manejos de recursos hídricos, planes de inversión, problemas de contaminación y asuntos de salud, bajo el principio de legalidad.

@@ -1,0 +1,1 @@
+Artículo 39. La municipalidad fomentará y garantizará, por todos los medios a su¿ alcance, la incorporación de la sociedad civil a las instancias municipales participativas definidas en este reglamento y propiciará las condiciones necesarias para su adecuada inserción.

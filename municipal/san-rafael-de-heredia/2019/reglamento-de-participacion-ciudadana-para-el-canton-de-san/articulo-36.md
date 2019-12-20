@@ -1,0 +1,1 @@
+Artículo 36. Toda persona vecina del Cantón de San Rafael de Heredia, bajo el principio de derecho, podrá participar de las organizaciones locales, de los mecanismos de consulta a la ciudadanía, de los espacios de sensibilización y formación sobre participación ciudadana y cualquier otra acción que apunte a fortalecer la cogestión ciudadanía y gobierno local.

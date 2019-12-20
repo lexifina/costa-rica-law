@@ -1,0 +1,1 @@
+Artículo 45. El Concejo Municipal y la Alcaldía tomarán las medidas del caso a fin de proponer recursos económicos destinados al fomento de la participación ciudadana; para la organización de consultas, para actividades de formación y sensibilización, para difundir y promover las audiencias municipales.

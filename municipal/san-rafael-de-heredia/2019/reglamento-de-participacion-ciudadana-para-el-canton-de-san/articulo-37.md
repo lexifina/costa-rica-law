@@ -1,0 +1,1 @@
+Artículo 37. Toda persona vecina del Cantón de San Rafael de Heredia, estará en el deber de denunciar ante el Concejo Municipal, la Auditoria Municipal, o ente la Defensoría de los Habitantes, situaciones que violenten el cumplimiento del presente reglamento, aportando las respectivas pruebas del caso.
