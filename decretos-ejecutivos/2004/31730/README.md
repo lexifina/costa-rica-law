@@ -14,3 +14,4 @@ Crea Programa de Renovación Urbana Repoblamiento del Cantón Central de San Jos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-04-05 | la propia norma |
+| 2 | 2019-12-20 | Decreto Ejecutivo 42154 (2019-12-20) |
