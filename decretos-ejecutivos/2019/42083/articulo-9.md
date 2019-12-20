@@ -1,0 +1,1 @@
+Artículo 9. Periodicidad. Cada año, el día 18 de setiembre, se entregará el reconocimiento a las personas empleadoras que postulen su nombre para optar por el mismo. De manera oportuna el Ministerio de Trabajo y Seguridad Social, informará a través de sus medios virtuales oficiales de comunicación sobre la convocatoria.

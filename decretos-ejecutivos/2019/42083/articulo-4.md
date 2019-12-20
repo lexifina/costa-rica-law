@@ -1,0 +1,1 @@
+Artículo 4. Ingreso a la modalidad del teletrabajo. Toda persona trabajadora, incluida la que tiene personal a cargo, que se vaya a desempeñar bajo la modalidad de teletrabajo, deberá suscribir con la parte empleadora un contrato escrito o adenda de teletrabajo.
