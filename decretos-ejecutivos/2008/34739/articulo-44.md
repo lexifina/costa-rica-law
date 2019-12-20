@@ -1,4 +1,5 @@
-Artículo 44.—Solicitud de sustitución. La solicitud correspondiente será planteada por la empresa sustituta ante PROCOMER con los requisitos siguientes:
+Artículo 44.- Solicitud de sustitución. La solicitud correspondiente debe ser planteada por la empresa sustituta ante PROCOMER con los requisitos siguientes:
+(Así reformado el párrafo anterior por el artículo 2° del decreto ejecutivo N° 42189 del 20 de diciembre del 2019)
 I. Información común para la solicitud de sustitución del Régimen y la condición de Auxiliar de la Función Pública Aduanera:
 a) Nombre y número de identificación de la empresa sustituta.
 b) Nombre y número de identificación de la beneficiaria que será sustituida e indicación del número de Acuerdo Ejecutivo con que se le otorgó el Régimen.
@@ -9,7 +10,8 @@ f) Nombre del representante legal de la empresa sustituta, con indicación del d
 g) Declaración jurada de la empresa sustituta en la cual se indique lo siguiente:
 i. Que la empresa no se dedicará a la producción o comercialización de cualquier tipo de armas y municiones que contengan uranio empobrecido ni la producción o comercialización de cualquier tipo de arma.
 ii. Que la empresa no se dedicará a la extracción minera, la exploración o extracción de hidrocarburos, ni tampoco se dedicará a la generación de energía eléctrica, salvo que la generación sea para el autoconsumo.
-iii. Que la empresa se encuentra inscrita como contribuyente en la DGT.
+iii) Que la empresa está inscrita como contribuyente ante la DGT, y está al día con las obligaciones tributarias y aduaneras de conformidad con lo dispuesto en los artículos 18 bis, 62, 64 y 99 del Código de Normas y Procedimientos Tributarios, Ley Nº 4755 del 3 de mayo de 1971, y sus reformas; el artículo 29 de la Ley General de Aduanas, Ley Nº 7557 del 20 de octubre de 1995 y sus reformas y el artículo 6 del Reglamento a la Ley del Impuesto sobre la Renta, Decreto Ejecutivo Nº 18445-H del 09 de septiembre de 1988 y sus reformas.
+(Así reformado el inciso anterior por el artículo 2° del decreto ejecutivo N° 42189 del 20 de diciembre del 2019)
 iv. Que la empresa se encuentra al día en todas sus obligaciones obrero-patronales con la Caja Costarricense de Seguro Social.
 v. Que la empresa, sus accionistas, directores, empleados o personeros, no han sido sancionados en relación con las actividades de la empresa, mediante resolución firme en vía administrativa, por haber incurrido en infracciones administrativas, aduaneras, tributarias o tributario-aduaneras.
 vi. Que la empresa, sus accionistas, directores, empleados o personeros, no han sido condenados en relación con las actividades de la empresa, mediante resolución firme en la vía judicial, por haber incurrido en delitos aduaneros o tributarios.

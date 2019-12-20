@@ -47,6 +47,8 @@ Gerencia General: La Gerencia General de la Promotora del Comercio Exterior de C
 IMAS: Instituto Mix.to de Ayuda Social.
 Importación definitiva: Es el ingreso de mercancías al territorio aduanero nacional, que cumplan con las formalidades y los requisitos legales, reglamentarios y administrativos para el uso y consumo definitivo en el territorio aduanero nacional.
 Incremento de área: Es el aumento del área previamente autorizada para el beneficiario, siempre que las nuevas áreas no sean colindantes o no se encuentren dentro de un mismo parque. Para estos casos la Dirección otorgará. un nuevo código de ubicación a las nuevas áreas.
+Índice de Elegibilidad Estratégica para empresas de servicios (IEES): Indicador objetivo que permite determinar si una empresa de servicios es o no elegible como beneficiaria del Régimen de Zonas Francas bajo la categoría c) del artículo 17 de la Ley y que se calcula usando la fórmula que se detalla en este Reglamento.
+(Así adicionada la definición anterior por el artículo 6° del decreto ejecutivo N° 42189 del 20 de diciembre del 2019)
 Inicio de Operaciones: es el momento en que la empresa beneficiaria realiza actividades pre-operativas relacionadas con la generación de empleo, de construcción de obras de infraestructura, acondicionamiento de planta y otras actividades relacionadas con el proceso de instalación al amparo del Régimen.
 Inicio de operaciones productivas: es el momento en que la empresa beneficiaria realiza actividades del proceso productivo y/o prestación de servicios, al amparo del Régimen .
 Insumo: mercancía utilizada en la producción del bien final, excluyéndose la maquinaria y equipo.
@@ -81,11 +83,15 @@ Régimen : El Régimen de Zonas Francas, que es el conjunto de incentivos y bene
 Reutilización: es la acción de volver a utilizar los bienes o productos. La utilidad puede venir para el usuario mediante una acción de mejora restauración.
 SEL: empresas beneficiarias del Régimen de Zonas Francas bajo la categoría prevista en el inciso c) del artículo 17 de la Ley N° 7210, cuya actividad autorizada consiste en la prestación de servicios de logística integral.
 (Así adicionada la definición anterior por el artículo 1° del decreto ejecutivo N° 41263 del 16 de julio de 2018)
+Servicios: Se entenderán como servicios aquellos que han sido clasificados como estratégicos de conformidad con el acuerdo adoptado por la Comisión Especial para la Definición de Sectores Estratégicos de conformidad con las disposiciones de los artículos 2 y 21 bis de la Ley Nº 7210 de Régimen de Zonas Francas y sus reformas y, por ende, elegibles a prestarse bajo el Régimen de Zonas Francas.
+(Así adicionada la definición anterior por el artículo 6 del decreto ejecutivo N° 42189 del 20 de diciembre del 2019)
 Sobrante de bulto: mayor cantidad de bultos que la cantidad indicada en el manifiesto de carga respectivo.
 (Así adicionada la definición anterior por el artículo 1° del decreto ejecutivo N° 41263 del 16 de julio de 2018)
 Subproductos: Los bienes que se obtienen en forma accesoria al proceso productivo principal.
 Transferencia de bienes: Es el traslado, previo acuerdo entre beneficiarios, del dominio o derecho sobre bienes ingresados en dicho Régimen.
 Ubicación: Punto o puntos geográficos donde se localizan instalaciones del beneficiario, para realizar operaciones propias de su actividad dentro del Régimen.
 Valor Agregado Nacional (VAN): es la proporción de las ventas totales que realiza una empresa beneficiaria del Régimen de Zonas Francas durante su período fiscal y que se concibe como el aporte realizado por la empresa en la economía nacional.
+Vinculación: Para efectos de lo dispuesto en el artículo 146 del presente reglamento, se determina la vinculación entre ·empresas tomando los criterios señalados en el artículo 68 del Reglamento de la Ley del Impuesto sobre la Renta, Decreto Ejecutivo Nº 18445-H del 9 de setiembre de 1988 y sus reformas.
+(Así adicionada la definición anterior por el artículo 6 del decreto ejecutivo N° 42189 del 20 de diciembre del 2019)
 Zona Franca: El área delimitada sin población residente autorizada para que se establezcan en ella empresas acogidas al Régimen de Zonas Francas.
 (Así reformado por el artículo 1° del decreto ejecutivo N° 40141 del 20 de diciembre del 2016)

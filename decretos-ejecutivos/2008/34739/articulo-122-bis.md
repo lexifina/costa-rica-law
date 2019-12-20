@@ -6,3 +6,5 @@ d) Fluctuaciones propias de su giro comercial: Por razones propias de su giro co
 e) Procedimiento administrativo: PROCOMER recomendará al Ministerio de Comercio Exterior, el inicio de un procedimiento administrativo a todas aquellas empresas que incumplan en más un 25% del nivel de inversión total, empleo y valor agregado establecidos en acuerdo ejecutivo de otorgamiento.
 f) Inversión mínima establecida en la Ley: Las empresas deberán cumplir con los niveles mínimos de empleo e inversión establecidos en la Ley de Régimen de Zonas Francas.
 (Así adicionado por el artículo 2° del decreto ejecutivo N° 40141 del 20 de diciembre del 2016)
+Para efectos de las empresas de servicios de la categoría c) del artículo 17 de la Ley ,.además de lo señalado en este artículo debe cumplirse las disposiciones contenidas en el capítulo XXV del presente Reglamento.
+(Así adicionado el párrafo anterior por el artículo 8° del decreto ejecutivo N° 42189 del 20 de diciembre del 2019)

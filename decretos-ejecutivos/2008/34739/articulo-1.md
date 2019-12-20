@@ -19,4 +19,5 @@ Reglamento a la Ley de Régimen de Zonas Francas
 CAPÍTULO I
 Disposiciones generales
 Artículo 1.-Alcance
-El presente reglamento establece las normas y procedimientos relativos al otorgamiento del Régimen de Zonas Francas y a las operaciones que pueden realizar los beneficiarios de dicho 4 Régimen, de conformidad con la Ley de Régimen de Zonas Francas, Ley Nº 7210 del 23 de noviembre de 1990 y sus reformas.
+El presente reglamento establece las normas y procedimientos relativos al otorgamiento del Régimen de Zonas Francas, y a las operaciones que pueden realizar los beneficiarios de dicho Régimen, así como los requisitos de permanencia de conformidad con la Ley de Régimen de Zonas Francas, Ley Nº 7210 del 23 de noviembre de 1990 y sus reformas.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 42189 del 20 de diciembre del 2019)

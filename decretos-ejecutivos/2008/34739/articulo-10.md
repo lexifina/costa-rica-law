@@ -3,7 +3,6 @@ Disposiciones para el otorgamiento del Régimen y de la condición de Auxiliar d
 Función Pública Aduanera
 Sección I
 Solicitud de otorgamiento del Régimen y de la condición de Auxiliar de la Función
-Pública Aduanera
 Artículo 10.-Reguisitos de la solicitud. Todo interesado en acogerse al Régimen y obtener la condición de Auxiliar de la Función Pública Aduanera, deberá presentar la solicitud ante PROCOMER en el formulario que está a disposición de los usuarios en formato digital en la dirección http://www.procomer.com o en la dirección http://www.vuicr.com.
 El formulario deberá completarse con la siguiente información y acompañarse de la documentación que de seguido se indica:
 l. Información común para la solicitud de ingreso al Régimen y el Auxiliar de la Función Pública Aduanera:
@@ -33,7 +32,7 @@ l) Actividades productivas fuera del área habilitada como Zonas Francas: En cas
 m) Empresas ubicadas fuera de parque: en el caso de las empresas que deseen ubicarse fuera de parque, deberán rendir declaración jurada simple, no protocolizada, firmada digitalmente por el representante legal de la empresa en el formulario digital de solicitud, en la cual se indique lo siguiente:
 I. Que la empresa cuenta con la capacidad de sujetarse a los mecanismos necesarios para controlar el ingreso y salida de bienes y personas.
 II. Que la empresa proveerá a la Dirección, COMEX y PROCOMER todas las facilidades y asistencia dispuesta en el artículo 14 de la Ley.
-n) Empresas ubicadas fuera de parque bajo la categoría a) y empresas de servicios ubicadas dentro de la GAM: en este caso las empresas deberán acreditar que la naturaleza del proyecto les impide desarrollarlo dentro de un parque. El cumplimiento de este requisito se acreditará mediante declaración jurada.
+n) Empresas ubicadas fuera de parque bajo la categoría a) y empresas de servicios ubicadas dentro de la GAM: en este caso las empresas deberán acreditar que la naturaleza del proyecto les impide desarrollarlo dentro de un parque. El cumplimiento de este requisito se acreditarámediante declaración jurada.
 II. Información para el otorgamiento del Régimen:
 a) Información detallada sobre la contaminación que producirá el proceso productivo y sus desechos, o bien, copia del formulario presentado ante la instancia respectiva del Ministerio de Ambiente y Energía (MINAE) en relación con el estudio de impacto ambiental, cuando corresponda, según las leyes y reglamentos aplicables. Tal información deberá presentarse sólo cuando la actividad que realice la empresa al amparo del régimen se encuentra dentro de la lista de actividades que requieren elestudio de impacto ambiental, según lo establecido por la Secretaría Técnica Nacional Ambiental (SETENA). Para tales efectos, PROCOMER contará con una lista de las actividades que requieren el citado estudio, previa coordinación con la SETENA y pondrá dicha lista a disposición de los usuarios, en formato digital, en la dirección electrónica http://www.procomer.com.
 b) Monto de la inversión nueva inicial en activos fijos, así como la inversión total prevista y el nivel de empleo.
@@ -51,5 +50,5 @@ c) Fotocopia del anverso y reverso de la cédula de identidad del representante 
 d) En el caso de que el solicitante sea una persona física, deberá aportar además lo siguiente:
 i. Fotocopia del anverso y reverso de la cédula de identidad del solicitante, siempre y cuando la solicitud no sea gestionada personalmente.
 ii. Documento extendido por la Caja Costarricense de Seguro Social que permita constatar que el solicitante no labora para el Estado costarricense, sus instituciones autónomas, semiautónomas y empresas públicas; según lo establecido en el artículo 29 bis de la Ley General de Aduanas.
-iii. Aportar certificación del Registro de Delincuentes (gestionarla directamente ante la entidad responsable para efectos laborales).
-(Así reformado por el artículo 1° del decreto ejecutivo N° 42182 del 5 de diciembre del 2019)
+iii. Aportar certificación del Registro de Delincuentes (gestionarla directamente ante la entidad responsable para efectos laborales)."
+(Así reformado por el artículo 2° del decreto ejecutivo N° 42182 del 5 de diciembre del 2019)

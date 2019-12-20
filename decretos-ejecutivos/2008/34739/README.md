@@ -24,3 +24,4 @@ Reglamento a la Ley de Régimen de Zonas Francas
 | 9 | 2018-10-04 | Decreto Ejecutivo 41346 (2018-10-04) |
 | 10 | 2019-06-04 | Decreto Ejecutivo 41783 (2019-06-04) |
 | 11 | 2019-12-05 | Decreto Ejecutivo 42182 (2019-12-05) |
+| 12 | 2019-12-20 | Decreto Ejecutivo 42189 (2019-12-20) |
