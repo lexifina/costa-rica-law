@@ -1,0 +1,1 @@
+Artículo 14.—Plazo de nombramientos: Los y las integrantes de la COMAD desempeñarán sus cargos por un período de un año y podrán ser reelectos. No obstante, el integrante de la Comisión que, sin justa causa, se ausente de tres sesiones consecutivas, será sustituido en forma definitiva, por otra persona designada por la Presidencia Municipal.

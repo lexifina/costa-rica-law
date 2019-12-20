@@ -1,0 +1,1 @@
+Artículo 17.—Organización: En el seno de la Comisión, se designará entre los regidores (as) propietarios (as), un coordinador(a) y un secretario(a) que coordinarán las sesiones y levantarán las actas de la Comisión.

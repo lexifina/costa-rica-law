@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito: La Comisión Municipal de Accesibilidad y Discapacidad, en adelante COMAD, velará porque el Concejo Municipal y la Alcaldía impulsen políticas públicas locales a favor de la igualdad y la equiparación de oportunidades, promoviendo un desarrollo local participativo e inclusivo que contemple las diversas necesidades y derechos de la población con discapacidad.
