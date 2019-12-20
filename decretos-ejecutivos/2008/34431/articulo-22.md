@@ -1,1 +1,0 @@
-Artículo 22.—De las zonas de aplicación del canon. El MINAE, mediante resolución administrativa, definirá las cuencas, subcuencas o tramos de cuenca que constituirán las zonas de aplicación del canon, sobre las cuales se fijarán las metas de reducción de la carga contaminante vertida.

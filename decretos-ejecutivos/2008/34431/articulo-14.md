@@ -1,1 +1,0 @@
-Artículo 14.—De la fijación de los límites permisibles para el vertido de sustancias contaminantes. La fijación de los límites máximos permisibles de vertidos de sustancias contaminantes, se regirá por lo dispuesto en el Reglamento de Vertido y Reuso de Aguas Residuales reglamento que regula la materia de vertido y reuso de aguas residuales.

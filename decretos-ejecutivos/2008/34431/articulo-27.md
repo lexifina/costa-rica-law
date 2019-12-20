@@ -1,1 +1,0 @@
-Artículo 27.—Metas de Reducción. Cada seis años, el MINAE fijará la meta de reducción de la carga contaminante vertida en cada zona de aplicación del canon, de conformidad con el procedimiento establecido en el artículo 29. Esta meta será definida para cada uno de los parámetros objeto del cobro.
