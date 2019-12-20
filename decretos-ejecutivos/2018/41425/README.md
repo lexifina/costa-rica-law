@@ -14,3 +14,4 @@ Deroga decreto ejecutivo N° 33096 del 14 de marzo de 2006 "Incentiva el uso de 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-12-21 | la propia norma |
+| 2 | 2019-12-20 | Decreto Ejecutivo 42080 (2019-12-20) |
