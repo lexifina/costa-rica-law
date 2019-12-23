@@ -1,1 +1,2 @@
-Artículo 5º—La Caja Chica mantendrá dinero en efectivo para ser utilizado exclusivamente en la adquisición de bienes y servicios indispensables e imprevistos y que, en razón de su baja cuantía, el costo de adquirirlos por medio de otra modalidad de contratación no se justifique por el beneficio que esto representa.
+Artículo 5º—La Caja Chica mantendrá dinero en efectivo para la atención de situaciones no previsibles oportunamente y para adquirir bienes y servicios de carácter indispensable y urgente que, en razón de su baja cuantía, el costo de adquirirlos por medio de otra modalidad de contratación no se justifique por el beneficio que esto representa.
+(Así reformado en sesión N° 79 del 23 de diciembre de 2019)

@@ -1,1 +1,2 @@
-Artículo 9º—La custodia de la caja chica permanecerá exclusivamente en poder del Tesorero (a) Municipal, únicamente este funcionario tocará estos fondos y rendirá cuentas del mismo a su superior jerárquico.
+Artículo 9º—La custodia de la caja chica permanecerá exclusivamente en poder del Tesorero (a) Municipal, únicamente este funcionario tocará estos fondos y rendirá cuentas del mismo a su superior jerárquico. En caso de ausencia del funcionario, la custodia de la Caja Chica recaerá en el funcionario o funcionaria que formalmente le supla o en su defecto al superior jerárquico inmediato.
+(Así reformado en sesión N° 79 del 23 de diciembre de 2019)

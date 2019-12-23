@@ -4,4 +4,4 @@ b) Haber sido emitidos a nombre de la Municipalidad de San Isidro de Heredia.
 c) Estar correctamente confeccionados, nítidos, sin borrones, tachaduras o alteraciones que hagan dudar de su legitimidad.
 d) Describir claramente el bien adquirido o el servicio recibido, el cual debe coincidir con lo estipulado en el vale.
 e) Haber sido en fecha igual o posterior a la fecha de emisión del vale.
-f) Tener la leyenda de “Cancelado” por parte de la casa proveedora o traer adjunto el correspondiente tiquete de caja.
+(Así reformado en sesión N° 79 del 23 de diciembre de 2019)
