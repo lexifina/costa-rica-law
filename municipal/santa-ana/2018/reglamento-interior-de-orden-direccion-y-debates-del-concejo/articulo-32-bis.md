@@ -1,0 +1,5 @@
+Artículo 32 bis.—Avocación de asuntos sometidos a trámite de comisión. Por razones de conveniencia y oportunidad, el Concejo Municipal podrá avocar asuntos sometidos a trámite de comisión.
+La Presidencia podrá presentar la moción de avocación en cualquier momento del debate. Las regidurías también podrán solicitar la avocación por medio de moción presentada para tal efecto, de acuerdo con lo dispuesto en este reglamento para las iniciativas de las regidurías.
+Una vez presentada la moción de avocación, esta no requerirá de trámite de dispensa de comisión y habiendo agotado la discusión, se someterá a votación.
+Para ser aprobada, la moción de avocación requerirá de mayoría calificada para ser aprobada. Una vez aprobada la moción de avocación, se procederá a discutir y votar el asunto, de conformidad con lo establecido en el presente Reglamento sobre acuerdos municipales. Rechazada la moción de avocación, no se podrá conocer otra moción sobre el mismo asunto en la misma sesión.
+(Así adicionado en sesión N° 191 del 23 de diciembre del 2019)

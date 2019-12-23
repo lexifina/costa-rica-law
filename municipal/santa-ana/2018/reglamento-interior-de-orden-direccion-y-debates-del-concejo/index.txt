@@ -30,6 +30,7 @@ articulo-29.md
 articulo-30.md
 articulo-31.md
 articulo-32.md
+articulo-32-bis.md
 articulo-33.md
 articulo-34.md
 articulo-35.md
@@ -108,6 +109,7 @@ articulo-107.md
 articulo-108.md
 articulo-109.md
 articulo-110.md
+articulo-110-bis.md
 articulo-111.md
 articulo-112.md
 articulo-113.md

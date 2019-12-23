@@ -14,3 +14,4 @@ Reglamento interior de orden, dirección y debates del Concejo Municipal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-08-22 | la propia norma |
+| 2 | 2019-12-23 | Reglamento municipal 191 (2019-12-23) |
