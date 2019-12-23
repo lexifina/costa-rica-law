@@ -10,4 +10,6 @@ Cuando exista peligro grave para la seguridad o salud del trabajador o de su fam
 Cuando el patrono comprometa con su imprudencia o descuido inexcusable, la seguridad del lugar donde se realizan las labores o la de las personas que allí se encuentren;
 Cuando el patrono viole alguna de las prohibiciones contenidas en el artículo 70, y
 Cuando el patrono incurra en cualquier otra falta grave a las obligaciones que le imponga el contrato.
+k) Cuando la parte patronal incurra en actos discriminatorios contra alguna persona trabajadora con VIH.
+(Así adicionado el inciso anterior por el artículo 49 de la Ley General sobre el VIH SIDA, N° 9797 del 2 de diciembre de 2019)
 La regla que contiene el párrafo final del artículo 81 rige también a favor de los trabajadores.
