@@ -1,0 +1,2 @@
+Artículo 48- Sector privado
+Como parte de las políticas internas para las personas empleadas en los lugares de trabajo, así como en el marco de sus planes de responsabilidad social empresarial, las empresas deberán incluir actividades y programas destinados a la promoción de estilos de vida saludables, a la prevención del VIH y otras infecciones de transmisiónsexual (ITS), así como al respeto de los derechos de las personas con VIH y a su no estigmatización ni discriminación por esa condición.

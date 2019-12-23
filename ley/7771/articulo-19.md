@@ -1,11 +1,2 @@
-ARTÍCULO 19.- Acciones de los bancos
-Para prevenir la transmisión del VIH, los bancos de productos humanos
-deberán ejercer control sobre la calidad y los procesos que apliquen, con
-el objeto de procurar garantizar la inocuidad de la sangre y sus
-derivados, de la leche materna, el semen y otros tejidos u órganos, desde
-la recolección hasta la utilización.
-Para ese fin, todos los bancos deberán realizar, antes de utilizar
-los productos mencionados, las pruebas correspondientes para determinar la
-existencia de hepatitis B, hepatitis C, sífilis, VIH y cualquier otra
-enfermedad infecto-contagiosa, según determinen las autoridades
-competentes de salud.
+Artículo 19- Derecho a la prueba de VIH
+Todas las personas tendrán derecho al acceso a la prueba de VIH y a que esta se les realice de manera oportuna en los servicios de salud públicos y privados, siguiendo las normas de calidad establecidas por el Ministerio de Salud y contando con información, consejería y asesoramiento previo y posterior a la prueba. La realización de dicha prueba de VIH tendrá carácter voluntario, será gratuita en los servicios de salud públicos y se garantizará la confidencialidad de los resultados, así como la comunicación de estos por un profesional de la salud, en un espacio y momento adecuado.

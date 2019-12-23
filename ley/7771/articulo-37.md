@@ -1,18 +1,3 @@
-ARTÍCULO 37.- Cuidado del menor institucionalizado
-El Ministerio de Justicia, en coordinación con el Ministerio de Salud
-y el Patronato Nacional de la Infancia, deberá desarrollar programas
-educativos acerca de salud para atender las necesidades especiales de los
-menores institucionalizados, con el fin de introducir actitudes y
-comportamientos adecuados que eviten la transmisión de infecciones, en
-especial del VIH o enfermedades de transmisión sexual.
-Las decisiones relacionadas con la notificación a los padres u otra
-persona responsable acerca del estado de esos menores infectados por el
-VIH, el consentimiento para tratarlos y cualquier otro tipo de
-intervención, deben ser tomados en la misma forma que para el resto de la
-sociedad, atendiendo especialmente el principio del respeto del interés
-supremo de la infancia; todo de conformidad con la presente ley y la
-Convención de los Derechos del Niño.
-El Patronato Nacional de la Infancia, en coordinación con el
-Departamento Nacional de Control del Sida, deberá diseñar y ejecutar
-programas educativos y de prevención de enfermedades infecto-contagiosas,
-dirigidos a menores trabajadores de la calle.
+Artículo 37- Ámbito de niñez y adolescencia
+Todas las instituciones públicas y privadas que tengan, dentro de sus competencias esenciales, la protección, defensa o atención de población adolescente y joven, deberán incorporar de forma prioritaria la prevención del VIH en beneficio de esta población, dentro de sus políticas, programas y proyectos, incluyendo información actualizada sobre los diferentes sistemas de prevención de dicha infección.
+Las instituciones educativas procurarán incorporar en su currículo educativo, a partir del segundo ciclo y hasta educación diversificada, todo lo referente a la prevención y el desarrollo del VIH.

@@ -1,11 +1,4 @@
-ARTÍCULO 24.- El preservativo como medio de prevención
-El preservativo constituye un medio de prevención contra el contagio
-del VIH; consecuentemente, el Ministerio de Salud y la Caja Costarricense
-de Seguro Social, procurarán que los establecimientos brinden el acceso a
-los preservativos y dispongan de ellos, en lugares adecuados y condiciones
-óptimas y en cantidades acordes con la demanda de la población.
-Dichas instituciones se encargarán, además, de fortalecer las
-campañas educativas sobre la conveniencia y el uso del preservativo.
-Los moteles y centros de habitación ocasional que no llevan registro
-de huéspedes quedan obligados a entregar como mínimo dos preservativos,
-como parte del servicio básico.
+Artículo 24- Medidas universales de bioseguridad
+Los bancos de productos biológicos humanos, los laboratorios y demás establecimientos de salud deberán contar con el personal, material y equipo adecuados, de conformidad con las recomendaciones sobre medidas universales de bioseguridad difundidas por el Ministerio de Salud.
+Las personas trabajadoras en servicios de atención de la salud, públicos o privados, en especial las personas profesionales en odontología, microbiología, enfermería, medicina y todas las que practiquen procedimientos faciales y capilares, acupuntura, tatuajes, perforaciones corporales o cualquier otro procedimiento quirúrgico o invasivo, deberán acatar las medidas de bioseguridad universal, así como otras disposiciones del Ministerio de Salud para el uso de equipos y el manejo tanto de instrumentos como de material humano y biológico.
+El Ministerio de Salud es el responsable de regular y fiscalizar los establecimientos relacionados con las actividades mencionadas en este artículo.

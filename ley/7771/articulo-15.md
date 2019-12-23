@@ -1,9 +1,2 @@
-Sección II
-Vigilancia Epidemiológica
-ARTÍCULO 15.- Obligación de comunicar
-Exclusivamente para fines epidemiológicos y estadísticos, los
-médicos, microbiólogos, directores de los servicios de salud y los
-directores o responsables de laboratorios que atiendan casos de detección
-del VIH, deberán informar sobre las pruebas que resultaron positivas, al
-Ministerio de Salud, el cual elaborará los formularios oficiales para los
-fines indicados y los distribuirá.
+Artículo 15- Derecho a la simplificación de trámites de denuncia
+Actuando de conformidad con el principio de protección de la integridad y seguridad de la persona denunciante y el respeto a sus derechos humanos, todas las instancias públicas y privadas competentes deberán contar con procedimientos prontos, cumplidos, expeditos y oportunos para tramitar denuncias por discriminación en perjuicio de personas con VIH y sida o sus familiares y personas allegadas.

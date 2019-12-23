@@ -1,17 +1,2 @@
-Capítulo III
-Investigación en materia de VIH-Sida
-ARTÍCULO 29.- Reglas
-De conformidad con las reglas vigentes en la materia, las
-investigaciones relativas al VIH-Sida deberán respetar las consideraciones
-especiales del paciente. Por esta razón, el protocolo de investigación,
-los médicos y científicos quedan sujetos a las disposiciones de esta ley,
-la Ley General de Salud y la Declaración de Helsinki, dictada por la
-Asociación Médica Mundial, así como cualquier otra normativa, nacional o
-internacional, dictada para el efecto.
-Ninguna persona infectada por el VIH podrá ser objeto de
-experimentos, sin haber sido advertida de la condición experimental y de
-los riesgos, y sin que medie su consentimiento previo o el de quien
-legalmente esté autorizado para darlo.
-En todo caso, las investigaciones científicas en seres humanos
-relacionadas con el VIH no serán permitidas cuando peligre la vida de las
-personas.
+Artículo 29- Control de los hemoderivados
+Los fabricantes de hemoderivados y productos biológicos de origen humano estarán obligados a certificar que la prueba exigida por el Ministerio de Salud fue realizada, para determinar que cada donante no es VIH-positivo y que los productos y la sangre empleada en el proceso no están infectados con el VIH. Además, deberán acreditar que cuentan con las instalaciones, los equipos, las materias primas y el personal adecuado para realizar dichas pruebas, sin perjuicio del cumplimiento de otro tipo de controles y normas de calidad, y de cualquier otra medida requerida por el Ministerio de Salud.

@@ -1,8 +1,3 @@
-ARTÍCULO 12.- Registro expedito de la medicación antirretroviral
-Los medicamentos para el tratamiento del VIH-Sida deberán ser
-inscritos, mediante un trámite expedito, en los registros que para el
-efecto lleva el Ministerio de Salud, siempre que estas medicinas hayan
-sido aprobadas por la Administración de Alimentos y Drogas de los Estados
-Unidos de América (FDA) y el Committee for Proprietary Medicinal Products
-(CPMP) de la Unión Europea. El procedimiento mencionado se regirá por el
-reglamento de esta ley.
+Artículo 12- Derecho a la confidencialidad
+Sin perjuicio del derecho fundamental de autodeterminación informativa y demás excepciones reguladas en la legislación vigente, la confidencialidad es un derecho fundamental de las personas con VIH. Nadie podrá referirse, pública ni privadamente, a los resultados de los diagnósticos, las consultas y la evolución de la enfermedad, sin el consentimiento previo de la respectiva persona VIH, salvo los casos contemplados en esta ley.
+La persona con VIH tendrá derecho a comunicar su estado serológico a quien desee. Las autoridades sanitarias deberán brindarle el asesoramiento técnico y acompañamiento necesario para comunicar lo que corresponda a sus contactos sexuales, así como informarle lo procedente sobre sus eventuales responsabilidades, en caso de transmisión.

@@ -1,17 +1,4 @@
-ARTÍCULO 38.- Prohibición del aislamiento
-Prohíbese la segregación, el aislamiento y las restricciones a las
-actividades laborales, deportivas, recreativas y de cualquier otra índole,
-en perjuicio de las personas privadas de libertad e infectadas por el VIH.
-Solamente se exceptúan de lo estipulado en el párrafo anterior, los
-siguientes supuestos:
-a) Cuando la convivencia con otras personas privadas de libertad
-arriesgue la salud del paciente, siempre que medie el consentimiento del
-afectado.
-b) Cuando la persona privada de libertad haya sido amenazada por
-actos de abuso físico o sexual por parte de otros presos, o cuando estos
-la traten de manera discriminatoria o degradante, siempre que medie el
-consentimiento del afectado.
-c) Cuando se trate de una persona privada de libertad que
-deliberadamente intente infectar con el VIH a otros sujetos, se le
-aplicará una medida de aislamiento, sin perjuicio de aplicar otro tipo de
-medidas cautelares.
+CAPÍTULO VI
+Régimen penitenciario
+Artículo 38- Medidas preventivas en las cárceles
+El Ministerio de Justicia, en coordinación con el Ministerio de Salud y la Caja Costarricense de Seguro Social (CCSS), definirá e implementará las políticas públicas y demás actividades de prevención tendientes a disminuir el riesgo de transmisión del VIH, tanto para las personas privadas de libertad como para su pareja sexual, y para las personas funcionarias del sistema penitenciario. A efectos de la prevención del VIH se deberán introducir, en primera instancia, prácticas y estilos de vida saludables a nivel sexual; asimismo, se proveerán los condones masculinos y femeninos a la población penitenciaria.

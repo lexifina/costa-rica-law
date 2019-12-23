@@ -1,0 +1,2 @@
+Artículo 26- Obligación de reportar resultados
+Exclusivamente para fines epidemiológicos y estadísticos, los servicios de salud públicos y privados deberán remitir, al Ministerio de Salud, los resultados confirmatorios de las pruebas positivas de VIH y los datos requeridos según el protocolo de vigilancia establecido. Para los fines indicados, dicho Ministerio establecerá los formularios oficiales y los sistemas automatizados de información y deberá respetarse el carácter confidencial de la información de la persona con VIH.
