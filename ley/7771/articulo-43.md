@@ -1,11 +1,2 @@
-ARTÍCULO 43.- Violación de la confidencialidad y comercialización de
-productos humanos
-Se impondrá prisión de seis meses a tres años al trabajador de la
-salud, público o privado, o al que tenga restricción por el secreto
-profesional que, a sabiendas de que un paciente está infectado por el VIH,
-sin su consentimiento, de mala fe y sin justa causa de conformidad con
-esta ley, facilite información, se refiera pública o privadamente a la
-infección o la comunique a otra persona.
-La misma pena se aplicará al trabajador de la salud, público o
-privado, que ofrezca dinero a un donante de sangre, leche materna, semen,
-tejidos y otros productos humanos, como compensación.
+Artículo 43- Reclamación por agravios
+De conformidad con las Reglas Mínimas de las Naciones Unidas para el Tratamiento de las Personas Reclusas, las personas privadas de libertad con VIH tienen el derecho de denunciar todo tipo de tratamiento institucional o penitenciario discriminatorio, cruel o degradante, o que incumpla las disposiciones tutelares de esta ley. La denuncia podrá presentarse de manera informal ante las instancias penitenciarias competentes, los organismos nacionales e internacionales, el Mecanismo Nacional de Prevención de la Tortura o la Defensoría de los Habitantes de la República, y deberá tramitarse y resolverse con prontitud y cumplidamente, sin perjuicio de las medidas cautelares que correspondan en beneficio de la dignidad de la persona privada de libertad denunciante.

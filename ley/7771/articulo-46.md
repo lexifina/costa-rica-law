@@ -1,8 +1,2 @@
-Capítulo II
-Contravenciones
-ARTÍCULO 46.- Negativa a comunicar
-Se impondrá una multa de uno a tres salarios base del puesto de
-oficinista 1 del Poder Judicial a las personas que, de acuerdo con el
-artículo 18 de esta ley y para fines epidemiológicos, estén obligadas a
-reportar al Ministerio de Salud, los resultados de la infección por el VIH
-y no lo hagan.
+Artículo 46- Ámbito familiar
+El ejercicio de los derechos y deberes que corresponden a padres o madres de familia o responsables parentales, en relación con la autoridad parental y el VIH, deberán responder al interés superior de las personas menores de edad en materia sexual, salud reproductiva y la enfermedad.

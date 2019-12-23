@@ -1,8 +1,2 @@
-ARTÍCULO 47.- Solicitud ilegal de la prueba
-Se impondrá una multa de cinco a quince salarios base
-correspondientes al puesto de oficinista 1 del Poder Judicial al patrono,
-médico de empresa o encargado de un centro educativo, público o privado,
-que solicite u obligue a un empleado, una persona por contratar o un
-estudiante que quiera ingresar o permanecer en un centro educativo, a
-realizarse el examen diagnóstico de infección por el VIH, sin perjuicio de
-otras responsabilidades en que pueda incurrir.
+Artículo 47- Medios de comunicación
+Los medios de comunicación colectiva contribuirán con el cumplimiento de los fines de esta ley, promoviendo o divulgando información útil y veraz que coadyuve a la creación de culturas o estilos de vida saludables y velarán por el respeto de los derechos fundamentales de las personas VIH positivas, evitando su discriminación por tal motivo y previniendo la reproducción de estereotipos que conduzcan a su estigmatización y exclusión social.

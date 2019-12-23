@@ -1,0 +1,2 @@
+Artículo 47- Medios de comunicación
+Los medios de comunicación colectiva contribuirán con el cumplimiento de los fines de esta ley, promoviendo o divulgando información útil y veraz que coadyuve a la creación de culturas o estilos de vida saludables y velarán por el respeto de los derechos fundamentales de las personas VIH positivas, evitando su discriminación por tal motivo y previniendo la reproducción de estereotipos que conduzcan a su estigmatización y exclusión social.

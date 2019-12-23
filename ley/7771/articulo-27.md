@@ -1,7 +1,2 @@
-Capítulo II
-Atención integral en salud
-ARTÍCULO 27.- Obligatoriedad
-Los trabajadores de la salud, públicos y privados, deben prestar
-apoyo y atención a los pacientes con VIH-Sida. Asimismo, están obligados
-a brindar la atención que requieran las personas afectadas con VIH-Sida
-tomando en cuenta las medidas de bioseguridad dispuestas.
+Artículo 27- Gratuidad de la donación
+Toda donación de sangre, leche materna, óvulos, semen, órganos y tejidos humanos deberá ser gratuita. Queda prohibida la comercialización de estos productos. El Ministerio de Salud es responsable de establecer las regulaciones e implementar los controles correspondientes .

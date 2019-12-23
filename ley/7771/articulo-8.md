@@ -1,13 +1,4 @@
-ARTÍCULO 8.- Confidencialidad
-Con las excepciones contenidas en la legislación, la confidencialidad
-es un derecho fundamental de los portadores del VIH-Sida. Nadie podrá,
-pública ni privadamente, referirse al padecimiento de esta enfermedad, sin
-el consentimiento previo del paciente.
-El personal de salud que conozca la condición de un paciente
-infectado por el VIH-Sida, guardará la confidencialidad necesaria
-referente a los resultados de los diagnósticos, las consultas y la
-evolución de la enfermedad.
-El portador del VIH-Sida tiene derecho a comunicar su situación a
-quien desee; sin embargo, las autoridades sanitarias deberán informarle su
-obligación de comunicarlo a sus contactos sexuales y advertirle, a su vez,
-sus responsabilidades penales y civiles en caso de contagio.
+Artículo 8- Derecho a la información
+Todas las personas tendrán derecho a contar con información científica y actualizada acerca de VIH, en todos los ámbitos públicos y privados, con el fin de contribuir a la prevención.
+El Estado y sus instituciones deberán garantizar el ejercicio de este derecho a toda población clave de mayor riesgo (Pemar) respondiendo a sus necesidades y particularidades.
+Las personas con VIH tienen derecho a contar con información comprensible, oportuna, precisa, clara, veraz y científica, acerca de su diagnóstico, tratamiento y pronóstico por parte de las personas profesionales en la materia.

@@ -1,6 +1,2 @@
-ARTÍCULO 9.- Excepción de la confidencialidad
-Para efectos exclusivamente probatorios en un proceso penal o de
-divorcio en materia de familia y a solicitud de la autoridad judicial
-competente, el personal de salud que atienda al paciente con VIH-Sida
-deberá reportar la situación de infección por el VIH, con el debido
-respeto a la dignidad humana del paciente.
+Artículo 9- Derecho a la consejería
+Toda persona tiene derecho a recibir consejería para obtener información, orientación, apoyo y acompañamiento psicosocial antes y después de la prueba del VIH, así como durante el tratamiento de la enfermedad, para la toma de las decisiones relacionadas con su salud sexual y reproductiva de manera corresponsable.
