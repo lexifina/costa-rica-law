@@ -1,0 +1,2 @@
+Artículo 15- Derecho a la simplificación de trámites de denuncia
+Actuando de conformidad con el principio de protección de la integridad y seguridad de la persona denunciante y el respeto a sus derechos humanos, todas las instancias públicas y privadas competentes deberán contar con procedimientos prontos, cumplidos, expeditos y oportunos para tramitar denuncias por discriminación en perjuicio de personas con VIH y sida o sus familiares y personas allegadas.

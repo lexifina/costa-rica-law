@@ -1,13 +1,3 @@
-ARTÍCULO 4.- Prohibición de discriminación o trato degradante
-Prohíbese toda discriminación contraria a la dignidad humana y
-cualquier acto estigmatizador o segregador en perjuicio de los portadores
-del VIH-Sida, así como de sus parientes y allegados.
-Asimismo, se prohíben las restricciones o medidas coercitivas de los
-derechos y las libertades de las personas infectadas por el VIH-Sida,
-excepto los casos previstos en esta ley relativos a comportamientos
-riesgosos o peligrosos de estas personas.
-Salvo las excepciones contenidas en esta ley, a todo portador del
-VIH-Sida le asiste el derecho de que no se interfiera en el desarrollo de
-sus actividades civiles, familiares, laborales, profesionales, educativas,
-afectivas y sexuales, estas últimas de acuerdo con las respectivas
-recomendaciones de protección.
+Artículo 4- Integración del Consejo Nacional de Atención Integral del VIH (Conasida)
+El Conasida estará integrado por una persona representante de las siguientes instituciones: Ministerio de Salud, Ministerio de Educación Pública (MEP), Ministerio de Trabajo y Seguridad Social (MTSS), Ministerio de Justicia y Paz (MJP), Caja Costarricense de Seguro Social (CCSS), Patronato Nacional de la Infancia (PANI), Instituto Nacional de las Mujeres (lnamu), Colegio de Médicos y Cirujanos de Costa Rica (CMCCR), Junta de Protección Social (JPS), un representante del Instituto Nacional de Seguros (INS) y una persona representante de las organizaciones de la sociedad civil que atienden los asuntos relacionados con el VIH y dos representantes de las organizaciones de las personas con VIH, registradas ante el Conasida; estas representaciones serán nombradas por un período de dos años y no devengarán dietas por el ejercicio de sus funciones en este Consejo Nacional.
+El Conasida será coordinado por el Ministerio de Salud, en tanto que su organización y funcionamiento será regulado mediante reglamento de dicho Ministerio.

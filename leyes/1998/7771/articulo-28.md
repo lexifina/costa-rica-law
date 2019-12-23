@@ -1,6 +1,2 @@
-ARTÍCULO 28.- Albergues de atención
-El Estado podrá destinar los recursos necesarios para la creación y
-el fortalecimiento de albergues para la atención de los pacientes que
-requieran apoyo, según los lineamientos del Ministerio de Salud. El Estado
-está facultado para apoyar, en iguales términos, los albergues privados
-sin fines de lucro, que se dediquen a atender a estos pacientes.
+Artículo 28- Bancos de productos biológicos humanos
+Los bancos de productos humanos, públicos y privados, deberán ejercer controles estrictos sobre la calidad y los procesos que apliquen, con el objeto de garantizar la inocuidad de la sangre y sus derivados, desde la recolección hasta la utilización, bajo la vigilancia y regulación del Ministerio de Salud, conforme a los mejores estándares posibles de la materia. Para esos fines, todos los bancos de productos humanos deberán realizar, antes de utilizar los productos mencionados, las pruebas correspondientes para determinar la existencia de VIH, según los lineamientos que al respecto determinen las autoridades de salud.

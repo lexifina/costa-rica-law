@@ -1,13 +1,8 @@
-ARTÍCULO 7.- Derecho a la atención integral en salud
-Todo portador del VIH-Sida tiene derecho a asistencia médico-
-quirúrgica, psicológica y de consejería; además, a todo tratamiento que le
-garantice aminorar su padecimiento y aliviar, en la medida de lo posible,
-las complicaciones originadas por la enfermedad.
-Para lo anterior, la Caja Costarricense de Seguro Social deberá
-importar, comprar, mantener en existencia y suministrar directamente a los
-pacientes los medicamentos antirretrovirales específicos para el
-tratamiento del VIH-Sida.
-Los médicos tratantes deberán presentar, a la Caja Costarricense de
-Seguro Social, reportes sobre la aplicación de dichos medicamentos. El
-reglamento de esta ley determinará condiciones, periodicidad y demás
-requisitos de esos informes.
+TITULO II
+DERECHOS FUNDAMENTALES DE LAS PERSONAS CON VIH
+CAPITULO ÚNICO
+Derechos y obligaciones de los sujetos destinatarios de esta ley
+Artículo 7- Derecho a la vida humana digna y a la libertad e igualdad responsables
+Todas las personas tendrán derecho a vivir en un entorno libre de actitudes y prácticas estigmatizantes y discriminatorias, a contar con información científica exacta y actualizada que promueva la igualdad, la solidaridad, el respeto a las diferencias, la no discriminación por situaciones relacionadas con el VIH y, en general, por ningún motivo.
+Asimismo, toda persona con VIH tiene los derechos y las obligaciones consagrados en la Constitución Política, los instrumentos internacionales sobre derechos fundamentales aplicables en la República, los estipulados en la Ley N.º 5395, Ley General de Salud, de 30 de octubre de 1973, en esta ley y demás legislación conexa o relacionada con la materia.
+La violación de cualquier derecho o garantía será denunciable ante las autoridades competentes, para reclamar las responsabilidades penales, civiles y administrativas del caso.

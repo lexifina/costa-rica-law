@@ -1,13 +1,2 @@
-ARTÍCULO 14.- Autorización excepcional para la prueba
-La prueba diagnóstica de infección por el VIH no es obligatoria,
-salvo en los siguientes casos:
-a) Cuando exista, según el criterio médico que constará en el
-expediente clínico, necesidad de efectuar la prueba exclusivamente para
-atender la salud del paciente, a fin de contar con un mejor fundamento de
-tratamiento.
-b) Cuando se requiera para fines procesales penales y de divorcio,
-previa orden de la autoridad judicial competente.
-c) Cuando se trate de donación de sangre, hemoderivados, leche
-materna, semen, órganos y tejidos.
-En los casos anteriores, los resultados de la prueba se utilizarán en
-forma confidencial.
+Artículo 14- Prohibición de discriminación o estigmatización
+Se prohíbe toda distinción, exclusión o restricción basada en la condición serológica VIH positivo, por acción o por omisión, que tenga por objeto o por resultado menoscabar o anular el reconocimiento, goce o ejercicio de los derechos fundamentales de las personas con VIH, de sus familiares y sus personas cercanas.

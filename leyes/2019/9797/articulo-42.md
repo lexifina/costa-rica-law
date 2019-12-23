@@ -1,0 +1,2 @@
+Artículo 42- Ejecución de la pena
+Las personas privadas de libertad, en estado terminal por padecimiento de sida, podrán ser valoradas por el juez ejecutor de la pena para efectos de acceder a los derechos y beneficios humanitarios y de protección a la dignidad de la persona enferma terminal, regulados por la Ley N.º 7594, Código Procesal Penal, de 10 de abril de 1996, y demás normativa pertinente.

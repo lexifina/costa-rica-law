@@ -1,17 +1,6 @@
-Título IV
-Infracciones y Sanciones
-Capítulo I
-Delitos contra la salud por contagio eventual del VIH
-ARTÍCULO 41.- Actuación dolosa del trabajador de la salud
-Se impondrá prisión de tres a ocho años al trabajador de la salud,
-público o privado que, conociendo que el producto por transfundir o
-transplantar o el artículo por utilizar están infectados por el VIH, lo
-utilice en una persona a sabiendas de los riesgos y admita como probable
-el resultado de infección.
-La pena será de doce a veinte años de prisión si, como resultado de
-la transfusión, el transplante, el suministro o la utilización de un
-artículo, algunas personas resultaren infectadas por el VIH-Sida.
-Las mismas penas se impondrán a los trabajadores de la salud,
-públicos o privados, que conozcan los riesgos y admitan como probable el
-resultado de sus actos, así como a quienes faciliten alguna de las
-actividades anteriores.
+Artículo 41- Prohibición de aislamiento
+Se prohíbe la segregación, el aislamiento y las restricciones arbitrarias en contra de las actividades laborales, deportivas, recreativas y de cualquier otra índole legítima, en perjuicio de las personas privadas de libertad con VIH.
+Solamente se exceptúan de lo estipulado en el párrafo anterior, los siguientes supuestos:
+a) Cuando la convivencia con otras personas privadas de libertad arriesgue la salud del paciente, siempre que medie el consentimiento previo de la persona afectada.
+b) Cuando la persona privada de libertad haya sido amenazada con actos de abuso físico o sexual por parte de otra persona privada de libertad, o cuando sea tratada de manera discriminatoria o degradante, siempre que medie el consentimiento previo de la persona afectada.
+c) Cuando se trate de una persona privada de libertad que deliberadamente intente o haya intentado infectar con el VIH u otras infecciones de transmisión sexual en perjuicio de otras personas.

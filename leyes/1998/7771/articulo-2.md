@@ -1,25 +1,21 @@
-ARTÍCULO 2.- Definiciones
-VIH: virus de inmunodeficiencia humana causante de la enfermedad
-denominada Sida. El término se utiliza además para describir al grupo de
-portadores del virus, que no han desarrollado aún síntomas ni signos de la
-enfermedad, es decir, pacientes asintomáticos.
-Sida: término que define la enfermedad o al grupo de pacientes que la
-padecen.
-VIH-Sida: incluye los casos de personas infectadas por el virus, pero
-unas son asintomáticas y las otras ya han desarrollado la enfermedad.
-Infectado: una persona contagiada por el virus.
-Seropositivo: término que describe la aparición de anticuerpos en el
-suero del paciente, que permiten diagnosticar el estado de infección por
-un agente, mediante una prueba de laboratorio.
-Portador: persona que tiene en su organismo un microorganismo o una
-enfermedad.
-Antirretrovirales: grupo de medicamentos que actúan, específicamente,
-contra el VIH, inhibiendo su reduplicación.
-Allegado: persona con la que habitualmente se relaciona el paciente.
-Pruebas positivas: exámenes de laboratorio que reportan la existencia
-de evidente infección por el VIH.
-Tratamiento ambulatorio: terapia que el paciente recibe sin necesidad de
-internarse en un centro de atención de la salud.
-Enfermedad infectocontagiosa: enfermedad producida por la transmisión
-del agente causal que la causa, ya sea por contacto directo con la persona
-afectada o por otra vía, como el aire, los alimentos, el agua, u otras.
+Artículo 2- Definiciones
+Para efectos de aplicación de la presente ley se utilizarán las siguientes definiciones:
+a) Antirretrovirales: medicamentos que actúan específicamente contra el VIH, inhibiendo su replicación o ciclo de vida.
+b) Atención integral de la salud: conjunto de políticas y acciones para la promoción de la salud, la prevención, la educación, la atención, el apoyo, la orientación, el tratamiento, la rehabilitación y la inclusión social, dentro del marco de los derechos humanos.
+c) Consentimiento informado: acuerdo escrito que involucra al personal de salud y a la persona a la que atiende, y que conlleva una concatenación de actos en la relación entre ambas partes. Está constituido por dos elementos: proveer información de forma clara y coherente a la persona que recibe el servicio de salud y obtener el acuerdo o la autorización de la persona que recibe el servicio. Su propósito es asegurar que a la persona se le haya informado acerca del proceso de salud y enfermedad, y que esta haya autorizado que se realice determinado acto o procedimiento, lo cual viene a garantizar el principio de la autonomía de la voluntad de la persona, como uno de los pilares de la atención del VIH.
+d) Contactos sexuales: personas con las que persona con VIH ha mantenido, mantiene o mantendrá relaciones sexuales.
+e) Discriminación por VIH: toda distinción, exclusión o restricción basada en la condición de persona con VIH, por acción u omisión, que tenga por objeto o por resultado menoscabar o anular el reconocimiento, goce o ejercicio de los derechos fundamentales de las personas con VIH y sus familiares o personas cercanas, ya sea en el ámbito público o privado.
+f) Enfoque de derechos humanos: este enfoque coloca a las personas y su interrelación con el tejido social en el centro de la atención de la ley; es un marco para la comprensión y el funcionamiento de actores para garantizar la dignidad humana y el interés público en la salud individual y colectiva.
+g) Enfoque de diversidad: se refiere al reconocimiento de las diferencias entre diversos grupos o sectores de la población y al respeto a esas diferencias, así como al respeto de sus derechos .
+h) Enfoque de género: toma en consideración las relaciones de poder y la construcción social de roles diferenciados para hombres y mujeres. Reconoce las necesidades diferenciadas de las personas y la subordinación y desventaja histórica que han tenido las mujeres para acceder a sus derechos y para que sus necesidades sean visibilizadas y atendidas. Implica incorporar estos aspectos en relación con el abordaje del VIH.
+i) Estado serológico: estado en el cual una persona tiene o no tiene anticuerpos detectables contra un antígeno específico, medidos en una prueba serológica de sangre.
+j) Estilos de vida saludables: conjunto de conocimientos y decisiones personales que pueden alcanzarse, en la medida que se cuente con las oportunidades y condiciones sociales que permiten a las personas ejercer cierto grado de control para la construcción de su nivel de salud.
+k) ITS: infecciones de transmisión sexual.
+l) Personas cercanas: redes de apoyo con las que habitualmente cuentan y se relacionan las personas con VIH.
+m) Persona con VIH: persona con un estado serológico positivo por VIH.
+n) Pemar, población clave de riesgo de exposición al VIH: es aquella parte de la población que tiene más probabilidad de estar expuesta al VIH o de transmitirlo, por lo que su participación es fundamental de cara a obtener una respuesta de éxito frente al VIH; es decir, es clave en la epidemia y en la búsqueda de una respuesta para esta.
+ñ) Seropositivo: término que describe la aparición de anticuerpos del VIH en el suero de la persona y que permite diagnosticar la infección mediante una prueba específica de laboratorio.
+o) Síndrome de Inmunodeficiencia Adquirida (sida): enfermedad causada por el VIH, el virus de la inmunodeficiencia humana. El VIH destruye la capacidad del organismo para combatir la infección y la enfermedad, lo que al final puede llevar a la muerte. Los medicamentos antirretrovíricos o antirretrovirales hacen más lenta la reproducción vírica y pueden mejorar mucho la calidad de vida, pero no eliminan la infección por el VIH.
+p) VIH, Virus de la Inmunodeficiencia Humana: el VIH puede destruir e inhibir la capacidad del organismo para combatir la infección y la enfermedad.
+q) Violencia contra las mujeres: manifestación de las relaciones de poder históricamente desiguales entre mujeres y hombres, y se refiere a cualquier acción o conducta, basada en su género, que cause muerte, daño o sufrimiento físico, sexual o psicológico a las mujeres. Puede ocurrir tanto en el ámbito público como en el privado, e incluye la violencia que toma lugar en la familia y en relaciones de pareja (incluyendo exparejas), en la calle y la comunidad, en lugares de trabajo, instituciones públicas y establecimientos de salud, así como aquella perpetrada y tolerada por el Estado. Constituye un factor que vulnera a las niñas, adolescentes y mujeres adultas y adultas mayores ante el VIH.
+r) Violencia sexual: incluye la violación y otras conductas sexuales abusivas, incluyendo tocamientos indeseados y obligar a realizar, ver o escuchar actos con contenido sexual, así como la explotación sexual y la trata de personas con fines sexuales. Incluye el abuso sexual hacia personas menores de edad. Constituye un factor de riesgo para la transmisión del VIH que afecta de forma particular a las mujeres, incluyendo a las mujeres trans y a personas menores de edad y adultos mayores hombres y mujeres

@@ -1,11 +1,2 @@
-Título III
-Prevención y Atención
-Capítulo I
-Acciones de Prevención
-Sección I
-La Prueba
-ARTÍCULO 13.- Carácter de la prueba
-Las pruebas para el diagnóstico clínico de la infección por el VIH y
-sus resultados serán confidenciales entre el médico, el personal del
-sector salud involucrado y el paciente, con las excepciones establecidas
-en esta ley.
+Artículo 13- Confidencialidad laboral
+La persona con VIH que así lo desee podrá comunicar su estado serológico a su empleador. A partir de la comunicación al empleador, la persona no podrá ser despedida por su condición serológica ni por cualquier otro motivo de discriminación en ese o cualquier otro sentido. El empleador que ha sido notificado, conforme a esta norma, estará obligado a cumplir con la garantía del derecho a la confidencialidad y atención integral de la persona con VIH; para lo cual, el trabajador que corresponda recibirá el apoyo de la Inspección General de Trabajo del Ministerio de Trabajo y Seguridad Social y del Consejo de Salud Ocupacional.

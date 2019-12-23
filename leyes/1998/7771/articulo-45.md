@@ -1,6 +1,4 @@
-ARTÍCULO 45.- Inhabilitación por conducta dolosa o culposa
-Cuando el trabajador de la salud incurra en alguna de las conductas
-descritas en los cuatro artículos anteriores, el juez podrá imponer, de
-oficio, además de las penas consignadas en cada caso, la inhabilitación
-absoluta o especial, de acuerdo con la gravedad del hecho y dentro de los
-límites establecidos en el Código Penal.
+Artículo 45- Obligaciones del Ministerio de Trabajo, empleadores públicos y privados, y organizaciones sindicales o gremiales
+El Ministerio de Trabajo y Seguridad Social regulará espacios laborales libres de todo estigma y discriminación por razones vinculadas al VIH. También, vigilará por que las instancias públicas o privadas no soliciten dictámenes ni certificaciones médicas sobre VI H a los trabajadores con el fin de ejercer presiones indebidas o discriminación por tal condición en cuanto a obtener un puesto laboral o conservarlo.
+Todos los empleadores incluirán, en sus reglamentos internos de trabajo, disposiciones que garanticen información para la prevención del VIH y el respeto por los derechos de las personas trabajadoras sin discriminación por VIH, de acuerdo con la normativa laboral vigente.
+Todas las organizaciones o agrupaciones sindicales y las organizaciones de la sociedad civil, que atiendan asuntos de derechos humanos, podrán defender los derechos de las personas con VIH y sus allegados e interponer denuncias en vía administrativa y judicial por infracciones a esta ley, así como coadyuvar en los esfuerzos por hacer efectivas las disposiciones comprendidas en la presente ley.

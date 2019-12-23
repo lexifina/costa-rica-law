@@ -1,7 +1,3 @@
-ARTÍCULO 40.- Reclamación por agravios
-De conformidad con las Reglas mínimas de las Naciones Unidas para el
-tratamiento de reclusos, las personas privadas de libertad tienen el
-derecho de denunciar todo tratamiento que incumpla las disposiciones de
-esta ley. La denuncia podrá presentarse ante las instancias penitenciarias
-competentes, los organismos nacionales e internacionales o la Defensoría
-de los Habitantes de la República.
+Artículo 40- Cuidado de la persona menor de edad institucionalizada
+El Ministerio de Justicia, en coordinación con el Ministerio de Salud y el Patronato Nacional de la Infancia (PANI), desarrollarán programas educativos en materia de salud para atender las necesidades especiales de las personas menores de edad institucionalizadas, con el fin de introducir prácticas y estilos de vida saludables, que prevengan la transmisión del VIH u otras infecciones de transmisión sexual.
+Las decisiones relacionadas con la notificación a los padres u otra persona responsable acerca del estado serólogico VIH positivo de cada persona menor de edad institucionalizada, el conocimiento para tratarle y cualquier otro tipo de intervención necesaria, deberán ser consideradas y procesadas en la misma forma que al resto de la sociedad, atendiendo especialmente el principio de interés superior de las personas menores de edad, de conformidad con la presente ley, la Ley N.º 7739, Código de la Niñez y la Adolescencia, de 6 de enero de 1998, la Convención sobre los Derechos del Niño y demás legislación vigente sobre la materia.

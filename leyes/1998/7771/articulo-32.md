@@ -1,6 +1,3 @@
-ARTÍCULO 32.- Capacitación al trabajador de la salud
-Todos los centros de salud, públicos o privados, deberán facilitar a
-sus trabajadores capacitación adecuada acerca del manejo del VIH-Sida y de
-los medios e instrumentos recomendados por el Ministerio de Salud para
-asegurar el cumplimiento de las medidas de bioseguridad, y ofrecerles las
-condiciones y los recursos necesarios para evitar el contagio.
+Artículo 32- Financiamiento de programas y albergues
+El Estado, de acuerdo con sus posibilidades, destinará recursos para el desarrollo de programas de promoción, prevención y atención del VIH por parte de las organizaciones de la sociedad civil debidamente inscritas en el Ministerio de Salud.
+Igualmente, el Estado podrá destinar recursos para la creación y el fortalecimiento de albergues para la atención integral de las personas con VIH que así lo requieran, siempre y cuando cumplan con los lineamientos técnicos y jurídicos del Ministerio de Salud. Estas organizaciones deberán respetar las condiciones de las personas usuarias, sin discriminación alguna.
