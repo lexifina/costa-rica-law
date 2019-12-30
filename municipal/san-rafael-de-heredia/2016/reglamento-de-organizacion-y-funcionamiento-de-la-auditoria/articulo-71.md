@@ -1,1 +1,0 @@
-Artículo 71- Una vez entregado el libro con la razón de cierre por parte de la Auditoría Interna, la dependencia municipal deberá disponer de las condiciones de ubicación física, facilidad de localización y cumplimiento del ordenamiento jurídico que rige en materia archivística.

@@ -1,2 +1,0 @@
-Artículo 49— La denuncia anónima: Podrá presentarse denuncia en documento anónimo o a través de cualquier otro medio de comunicación, fax, correo electrónico, ante el despacho de Auditoría.
-No obstante, su atención y tramitación estará sujeta a la existencia de elementos que a criterio de la Auditoría, permitan la clara identificación de los hechos acontecidos y de los presuntos responsables.

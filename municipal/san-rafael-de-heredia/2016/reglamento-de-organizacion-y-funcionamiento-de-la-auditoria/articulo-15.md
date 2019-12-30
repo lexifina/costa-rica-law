@@ -1,1 +1,0 @@
-Artículo 15° - Jornada laboral del Auditor Interno. La jornada laboral del Auditor debe ser de tiempo completo y no será de ninguna forma limitada administrativamente. El auditor interno será nombrado indefinidamente y a tiempo completo por parte del Concejo Municipal.

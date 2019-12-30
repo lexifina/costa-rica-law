@@ -1,1 +1,0 @@
-Artículo 75- El proceso de apertura, autorización, reposición y en general manejo de los libros de actas de las sesiones del Concejo Municipal, de las Comisiones nombradas en el seno del mismo (Comisiones del Concejo) y otros, se regirán por lo indicado en el presente reglamento.
