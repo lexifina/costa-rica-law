@@ -1,0 +1,3 @@
+2. Modificar el punto C. Clasificación directa en Nivel 3, de la Sección II. ANÁLISIS DEL COMPORTAMIENTO DE PAGO HISTÓRICO de los Lineamientos Generales del Reglamento para la Calificación de Deudores, Acuerdo SUGEF 1-05; de conformidad con el siguiente texto:
+“C. Clasificación directa en NIVEL 3
+Independientemente del puntaje final del deudor, el comportamiento de pago histórico de un deudor es clasificado en NIVEL 3 cuando durante el periodo de evaluación el deudor, en relación con al menos una operación directa, haya tenido que recurrir a la dación de bienes en pago de sus obligaciones, haya sido cancelada su obligación, total o parcialmente, como producto de un proceso de cobro judicial, o haya sido asumida formalmente por un fiador o avalista.”
