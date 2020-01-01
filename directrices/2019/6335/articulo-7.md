@@ -1,0 +1,1 @@
+Artículo 7- La industria tabacalera tendrá un plazo de doce meses contado a partir del rige de esta Directriz Ministerial, para la implementación de las nuevas advertencias sanitarias, conforme a lo dispuesto en el transitorio del Decreto Ejecutivo Nº 37778-S del 09 de julio del 2013, “Reglamento de etiquetado de los productos de tabaco y sus derivados.”

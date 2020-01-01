@@ -1,0 +1,1 @@
+Artículo 3- Advertir a la industria tabacalera, que los mensajes y advertencias sanitarias, en los empaques primarios y secundarios de los productos de tabaco y sus derivados, deberán reproducirse en proporciones iguales durante toda la campaña y para todas las marcas.
