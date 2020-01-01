@@ -1,0 +1,3 @@
+Transitorio I.—Las sociedades administradoras podrán realizar la solicitud de modificación por Hecho Relevante de los prospectos de los fondos de inversión que administran, para incorporar los cambios establecidos en el presente Acuerdo, a partir del 1° de enero del 2020.
+La fecha límite para presentar la solicitud de modificación de los prospectos será el 31 de enero del 2020.
+El texto con todas sus reformas se podrá consultar al momento de su entrada en vigencia, en el sitio web de la SUGEVAL (www.sugeval.fi.cr) en su sección de “Normativa/Acuerdos del Superintendente/Acuerdos aplicados a Sociedades Adm. de Fondos de Inversión (SAFIS).
