@@ -1,0 +1,1 @@
+Artículo 7.- Capacitación a funcionarios públicos en construcción sostenible. La Dirección de Gestión de Calidad Ambiental (DIGECA) del MINAE, gestionará la capacitación básica a las instituciones de la Administración Pública, a efectos de asegurar el cumplimiento de la presente directriz.

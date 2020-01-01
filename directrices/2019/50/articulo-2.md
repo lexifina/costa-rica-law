@@ -1,0 +1,1 @@
+Artículo 2.- Alcances. Se instruye a los jerarcas de instituciones de la Administración Central y Descentralizada a implementar las disposiciones de la presente Directriz para la construcción de edificios, rehabilitación, remodelación, renovación, mejora, adecuación, ampliación o mantenimiento de éstos.

@@ -1,0 +1,33 @@
+ANEXO 1
+GUÍA DE DEFINICIONES
+Para mayor comprensión de los Criterios de sostenibilidad de aplicación en construcciones nuevas y los Criterios de sostenibilidad de aplicación en construcciones existentes, rehabilitaciones, remodelaciones, adecuaciones, ampliaciones (Anexos 2 y 3 respectivamente), se entenderá por:
+Adecuación constructiva: intervención constructiva que se le realiza a una edificación ya existente, con el fin de ajustarlo o adaptarlo a las especificaciones requeridas, con el fin de que satisfaga las necesidades requeridas.
+Ampliación (constructiva): intervención constructiva que constituye una inversión adicional para aumentar los equipos, o el área de infraestructura construida.
+Climatización pasiva: consiste en gestionar las condiciones internas de una edificación, incluida la temperatura sin que se consuma energía externa, aprovechando al máximo las condiciones geográficas y climáticas del sitio en donde se encuentra la edificación.
+Certificación: procedimiento por el cual una parte asegura por escrito que un producto, proceso o servicio es conforme con los requisitos especificados.
+Certificación de tercera parte: procedimiento por el cual una tercera parte asegura por escrito que un producto, proceso o servicio es conforme con los requisitos especificados.
+Compuestos orgánicos volátiles: son todos aquellos hidrocarburos que se presentan en estado gaseoso a la temperatura ambiente normal o que son muy volátiles a dicha temperatura. Se puede considerar como COV aquel compuesto orgánico que a 20ºC tenga una presión de vapor de 0.01 kPa o más, o una volatilidad equivalente en las condiciones particulares de uso.
+Construcción: arte de construir toda estructura que se fija o incorpora en un terreno; incluye obras de edificación, reconstrucción, alteración o ampliación que impliquen permanencia.
+Corredor biológico: los corredores biológicos son áreas que conectan dos o más regiones
+naturales. Pueden ser franjas estrechas de vegetación, bosques ribereños, cercas vivas, plantaciones, vegetación remanente o grandes extensiones, lo que facilita la vinculación entre poblaciones naturales o el flujo de individuos a través de éste.
+Diseño modular: es el diseño basado en la modulación reticular de espacios que permitan optimizar el tiempo de construcción y debido a que son transportables, desarmables y reorganizables, permiten impulsar múltiples funcionalidades y su reutilización al generar un nuevo uso diferente al que fueron creados.
+Diseño paisajístico: es el diseño destinado a modificar las características físicas visibles de un espacio, ya sea urbano o rural, para gestionar el paisaje con la finalidad de conservarlo, protegerlo, hacerlo más acogedor o dotarlo de mayor estética a los ojos de las personas que lo contemplan o lo usan.
+Ecosistema: es el conjunto formado por los seres vivos y los elementos no vivos del ambiente y la relación vital que se establece entre ellos.
+Edificación: construcción destinada a cualquier actividad, ya sea habitación, trabajo, almacenamiento o protección de enseres, etc. Edificaciones de uso privado: Aquellas que no albergan permanentemente, ni sirven de lugar de reunión con regularidad, a un número considerable de personas.
+Entorno: espacio que rodea una edificación y que interactúa con éste.
+Especies invasoras: es una especie exótica o no nativa del ecosistema presente, cuya introducción causa o puede causar un daño económico, ambiental o daños a la salud humana.
+Estrategias pasivas: consiste en el empleo de prácticas arquitectónicas con el fin de obtener edificios que logren su acondicionamiento ambiental mediante procedimientos naturales. Utilizando el sol, las brisas y vientos, las características propias de los materiales de construcción, la orientación, entre otras.
+Hábitat: es el lugar compuesto por una suma de factores físicos y geográficos, que ocupa una población que puede ser de cualquier tipo: animales, insectos, personas, peces, etc. El hábitat es el lugar en el cual se cumplen las condiciones más importantes para que una especie de seres vivos puedan vivir allí. El hábitat es parte del ecosistema.
+Inclemencias climáticas: fenómeno atmosférico riguroso, desagradable y difícil de soportar, como el frío, el calor, viento fuerte, lluvia torrencial, entre otros.
+Masa térmica: Conjunto de materiales con capacidad de almacenamiento de calor que forma parte de las paredes, suelos y pilares de un edificio. Es la capacidad de un material o una estructura para absorber calor del espacio que le rodea y almacenarlo por un tiempo determinado.
+Mejora (constructiva): intervención constructiva que se introduce en edificaciones ya existentes, sustituyendo ciertas partes o piezas para que cumpla de mejor manera su función. Es un acondicionamiento de una edificación ya existente para cumplir de mejor manera su función.
+Reflectividad: relación entre el rayo incidente y la radiación reflejada por éste en una superficie.
+Rehabilitación: intervención constructiva para recuperar un edificio, con el fin de habilitarlo para el uso inicial con el que fue diseñado. Incluye una serie amplia de prácticas de varios tipos.
+Recuperación: Sinónimo de rehabilitación.
+Remodelación: intervención constructiva que constituye un cambio sustancial con el fin de modificar, transformar o alterar una edificación, ya sea mediante cambios en su estructura general o en ciertos componentes específicos, lo que significa cambiar una parte del carácter de la edificación.
+Renovación: intervención constructiva para hacer nuevo un espacio constructivo sin cambiar su uso original.
+Sistemas de cimentación: sistemas que se encuentran justo debajo de la parte inferior de una estructura y que se apoya directamente sobre el terreno transmitiendo las cargas del edificio mediante compresión vertical.
+Técnicas de riego eficientes: técnicas de riego que disminuyen las pérdidas desde la fuente hasta las plantas que consumen el agua de riego. Generalmente incluyen técnicas como el riego por goteo, micro aspersión y otras de alta eficiencia en el uso del agua.
+Tercera parte: persona u organismo reconocido como independiente de las partes involucradas, en lo que concierne a la emisión de certificaciones.
+Ventilación natural o pasiva: es la técnica por la cual se permite el ingreso de aire exterior dentro de un edificio por medios naturales (no mecánicos), así mismo, es gestionar las condiciones internas de una edificación.
+Vista de interés: se refiere a la vista desde la obra de infraestructura, que comprende una parte del territorio, cuyo carácter sea el resultado de la acción y la interacción de factores naturales y humanos y que provea una sensación de mayor valor por su interés estético, cultural o arquitectónico.
