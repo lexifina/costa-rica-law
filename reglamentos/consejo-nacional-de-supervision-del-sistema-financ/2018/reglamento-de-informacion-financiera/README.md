@@ -14,3 +14,4 @@ Reglamento de información financiera
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-01-01 | la propia norma |
+| 2 | 2020-01-01 | Reglamento 1515 (2019-07-29) |
