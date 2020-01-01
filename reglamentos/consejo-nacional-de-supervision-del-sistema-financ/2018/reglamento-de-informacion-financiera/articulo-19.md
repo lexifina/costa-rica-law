@@ -1,0 +1,1 @@
+Artículo 19. NIIF 9. Otras disposiciones prudenciales relacionadas con cartera de crédito. Las entidades reguladas deberán contar con políticas y procedimientos para determinar el momento de la suspensión del registro del devengo de las comisiones e intereses de operaciones de préstamos. Sin embargo, el plazo de la suspensión del devengo no debe ser mayor a ciento ochenta días.

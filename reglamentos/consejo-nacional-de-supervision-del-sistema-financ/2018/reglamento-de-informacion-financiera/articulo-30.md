@@ -1,0 +1,3 @@
+Artículo 30. Responsabilidad de la información financiera. La alta gerencia de cada entidad es responsable de la presentación de su información financiera separada o consolidada, según corresponda, de acuerdo con lo que disponga la regulación pertinente emitida por el CONASSIF y las NIIF.
+Todos los estados financieros deben venir firmados por el gerente general o quien ejerza su función en su ausencia, por el contador o quien lo sustituya; y para las entidades supervisadas por SUGEF, refrendados por el auditor interno o su análogo.
+En el caso de las entidades supervisadas por la SUGEF, la nota de remisión de la información financiera deberá incluir una fotocopia del acuerdo de aprobación de la información financiera, tomado por el respectivo Órgano de Dirección.

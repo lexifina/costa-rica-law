@@ -1,0 +1,2 @@
+Artículo 8. NIC 8. Estimaciones contables. Las estimaciones contables son las mejores aproximaciones de valores o partidas que se incluyen en los estados financieros para medir los efectos de sucesos o transacciones económicas ya ocurridas, o bien una situación actual que es propia de un activo o pasivo de la entidad, incluidos los ajustes que se producen tras la evaluación de un elemento como resultado de nueva información o nuevos acontecimientos.
+Todo cambio en las estimaciones contables es prospectivo y se registra en los resultados del periodo.

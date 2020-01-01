@@ -1,0 +1,1 @@
+Transitorio III Para la aplicación de la NIIF 9, específicamente la medición de las pérdidas crediticias esperadas, se continuará con la regulación prudencial emitida por el CONASSIF para la cartera de créditos y créditos contingentes concedidos, hasta que esta norma se modifique.

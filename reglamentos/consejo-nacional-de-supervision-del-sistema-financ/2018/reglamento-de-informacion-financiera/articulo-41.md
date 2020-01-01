@@ -1,0 +1,6 @@
+Sección V
+Sanciones
+Artículo 41. Sanciones. Las Superintendencias, siguiendo el debido proceso, podrán sancionar a las entidades reguladas que incumplan lo establecido en este Reglamento de conformidad con el régimen sancionatorio previsto en la Ley Orgánica del Banco Central de Costa Rica, Ley 7558, la Ley Reguladora del Mercado de Valores, Ley 7732, la Ley Régimen Privado de Pensiones Complementarias, Ley 7523, y la Ley Reguladora del Mercado de Seguros, Ley 8653, según corresponda.
+Las sanciones que se impongan deben tratarse como hechos relevantes.
+Los incumplimientos no autorizados, en la presentación de información financiera dentro de los plazos establecidos en este Reglamento serán considerados como una negativa a proporcionar información a la SUGEF o al público, en los términos establecidos en el artículo 155 inciso a) aparte iii), de la Ley Orgánica del Banco Central de Costa Rica, Ley 7558.
+La entidad queda obligada a publicar dentro del plazo de cinco días hábiles posteriores a la fecha de la presentación de la información financiera, por su cuenta, en dos medios de comunicación escrita de circulación nacional, un aviso al público en el que se indique la información a que se refiere el Anexo 6.F.

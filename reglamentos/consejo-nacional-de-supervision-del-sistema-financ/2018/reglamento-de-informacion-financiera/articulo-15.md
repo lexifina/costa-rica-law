@@ -1,0 +1,2 @@
+Artículo 15. NIC 40. Propiedades de inversión. Las propiedades de inversión deben ser valuadas al valor razonable.
+Para las propiedades de inversión entregadas en arrendamiento en las que el valor razonable no se pueda medir con fiabilidad de una forma continuada, su valor se medirá aplicando el modelo del costo indicado en la NIC 16 Propiedades, Planta y Equipo. El valor residual de la propiedad de inversión debe asumirse que es cero.

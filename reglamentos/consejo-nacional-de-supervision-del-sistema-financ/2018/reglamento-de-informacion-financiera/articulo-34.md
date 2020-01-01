@@ -1,0 +1,2 @@
+Artículo 34. Comparabilidad de los estados financieros. Los estados financieros anuales auditados o no auditados, separados y consolidados, serán comparativos con el ejercicio inmediato anterior. Para las entidades, grupos y conglomerados financieros, los estados financieros intermedios corresponden a los trimestres que terminan en marzo, junio y setiembre de cada año.
+Las partidas con saldos cero podrán omitirse. En el caso de los estados financieros comparativos, la omisión podrá efectuarse cuando el saldo cero se presente en la misma partida para ambos periodos.

@@ -1,0 +1,2 @@
+Artículo 21. Otros aspectos – Reservas. Las reservas patrimoniales que por ley o voluntariamente creen las entidades reguladas no pueden aplicarse para registrar directamente, contra ellas, gastos ni pérdidas sin que previamente hayan pasado por los resultados del período.
+El uso de las reservas de educación y bienestar social deben ser registradas como incremento de las utilidades al final del ejercicio económico, sin que éste afecte las contribuciones y participaciones a que está obligada la entidad dentro de su marco normativo.
