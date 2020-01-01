@@ -1,0 +1,2 @@
+Artículo 4º. Responsabilidad del contribuyente por el no ingreso de la declaración jurada en tiempo.
+Si por motivos no imputables a los sistemas de la Administración Tributaria, el contribuyente no ingresa la declaración jurada dentro de los plazos establecidos, el contribuyente será el único responsable por la presentación ocurrida fuera de los plazos legales establecidos en la normativa que regula la materia.
