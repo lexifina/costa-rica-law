@@ -1,2 +1,3 @@
 Disposiciones transitorias
-Transitorio I Las entidades deberán modificar la presentación y clasificación de los estados financieros y los importes comparativos, de manera que se reestablezca la comparación al momento de la entrada en vigencia de esta regulación.
+Transitorio I La presentación de los estados financieros intermedios y anuales auditados del 2020 no se requiere en forma comparativa. Todos los efectos de la implementación del Reglamento de Información Financiera deben realizarse mediante ajustes a los resultados acumulados. En el caso particular del ajuste inicial por el cambio en el tipo de cambio de referencia para la conversión de moneda extranjera a la moneda oficial ‘colón’, señalado en los artículos 12 y 32 de este Reglamento, se aplicará en enero a los resultados del periodo 2020.
+(Así reformado mediante sesión N° 1545-2019 del 25 de noviembre del 2019)
