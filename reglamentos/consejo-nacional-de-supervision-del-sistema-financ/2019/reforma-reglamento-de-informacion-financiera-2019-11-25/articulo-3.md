@@ -1,0 +1,1 @@
+iii. Modificar en la regulación vigente aprobada por el CONASSIF o los acuerdos o lineamientos emitidos por los Superintendentes, según se detalla en el anexo, la referencia al tipo de cambio compra de referencia del BCCR para reexpresar los importes en moneda extranjera, para que se lea: “tipo de cambio indicado en el Reglamento de Información Financiera”.

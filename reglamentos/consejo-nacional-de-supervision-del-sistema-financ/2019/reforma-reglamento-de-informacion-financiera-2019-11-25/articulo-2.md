@@ -1,0 +1,4 @@
+ii. Modificar el párrafo segundo del artículo 32, Estados financieros de las empresas extranjeras integrantes de grupos y conglomerados financieros y de las empresas extranjeras propietarias de una entidad de seguros autorizada bajo la modalidad de sucursal, del Reglamento de Información Financiera, de acuerdo con el siguiente texto:
+“Artículo 32. Estados financieros de las empresas extranjeras integrantes de grupos y conglomerados financieros y de las empresas extranjeras propietarias de una entidad de seguros autorizada bajo la modalidad de sucursal.
+[…]
+Para efectos de presentación al órgano supervisor costarricense correspondiente, se deberán presentar traducidos al idioma español cuando corresponda y convertidos a colones, utilizando el tipo de cambio de venta de referencia del Banco Central de Costa Rica en la fecha de corte de los estados financieros. […]”
