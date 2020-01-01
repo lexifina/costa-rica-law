@@ -1,0 +1,21 @@
+N° 42121-MTSS-H-MIDEPLAN
+EL SEGUNDO VICEPRESIDENTE EN EJERCICIO DE LA PRESIDENCIA DE LA
+REPÚBLICA, LA MINISTRA DE TRABAJO Y SEGURIDAD SOCIAL,
+EL MINISTRO DE HACIENDA, Y LA MINISTRA DE PLANIFICACION
+NACIONAL Y POLITICA ECONOMICA
+En uso de las facultades conferidas por el artículo140, incisos 3) y 18) y el artículo146, ambos de la Constitución Política, Ley de la Administración Financiera de la República y Presupuestos Públicos, Ley Nº8131 del 18 de setiembre de 2001y sus reformas, Ley de Fortalecimiento de la Finanzas Públicas, Ley Nº9635 del 03 de diciembre de 2018, y el Decreto Ejecutivo N° 35730-MTSS, del 14 de enero de 2010, Creación de la Comisión Negociadora de Salarios del Sector Público, reformado mediante Decreto Ejecutivo N° 41781-MP-MTSS-MIDEPLAN-H, del 13 de junio de 2019.
+CONSIDERANDO:
+1º—Que el artículo 5, inciso b) de la Ley Nº8131 del 18 de setiembre del año 2001, publicada mediante Gaceta número 198 del 16 de octubre del año 2001, dispone: “La administración de los recursos financieros del sector público se orientará a los intereses generales de la sociedad, atendiendo los principios de economía, eficiencia y eficacia, con sometimiento a la ley”
+2º— Que el transitorio XXXV del Título III de la Ley Nº9635 del 03 de diciembre de 2018 dispone: “Las remuneraciones totales del presidente de la República, los vicepresidentes de la República, los diputados, los ministros, los viceministros, los presidentes ejecutivos y los gerentes del sector público descentralizado serán excluidos de cualquier aumento salarial en los próximos dos años. Asimismo, los salarios de los funcionarios públicos, cuyas remuneraciones totales mensuales sean iguales o superiores a cuatro millones de colones (₵4.000.000.00), no serán susceptibles de incrementos salariales durante los próximos dos años a partir de la aprobación de esta Ley. Se comprende para estos efectos, como remuneración total a la erogación monetaria equivalente a la suma del salario base e incentivos, dietas, y/o complementos salariales correspondientes, o cualquier otra remuneración independiente de su denominación.”
+3º—Que mediante Decreto Ejecutivo Nº 41781-MP-MTSS-MIDEPLAN-H publicado en Alcance Nº145 a La Gaceta Nº119 del 26 de junio del 2019, se reactiva la Comisión Negociadora de Salarios del Sector Público, como instancia de diálogo social en los procesos de fijación salarial.
+4º— Que se debe mantener un esfuerzo sostenido, por reducir las brechas sociales en procura de proteger a los grupos de menores ingresos del Gobierno Central, brindando protección social sin afectar su poder adquisitivo, en los términos de la inflación acumulada.
+5º— Que la Comisión Negociadora de Salarios del Sector Publico, en sesión Nº 03-2019 del día 17 de diciembre 2019, con la participación del Poder Ejecutivo, la Central General de Trabajadores (CGT), Central de Movimientos de Trabajadores Costarricenses (CMTC) y Confederación de Trabajadores Rerun Novarum (CTRN) fijo y aprobó un incremento salarial anual, para el sector público, que regirá a partir del 01 de enero 2020, que se aplicará gradualmente desde siete mil quinientos colones exactos y hasta ocho mil setecientos cincuenta colones.
+6º—Que, para el Poder Ejecutivo, es necesario racionalizar el uso de los recursos, para atender las obligaciones de financiamiento del Presupuesto Nacional y enfrentar de la mejor manera el déficit fiscal que actualmente dificulta el financiamiento del Estado. Por tanto,
+DECRETAN:
+Artículo 1º—Autorizar un aumento general al salario base de todas las categorías del sector público, de ₵7.500.00 (Siete mil quinientos colones exactos) e incrementos adicionales graduales hasta ₵8.750.00 (ocho mil setecientos cincuenta colones exactos), aplicados conforme se detalla en la siguiente tabla. Mismos que corresponden a la fijación salarial para todo el año 2020.
+Grupo Salarial | Nivel Mínimo Salario Base | Nivel Máximo Salario Base | Aumento General a la Base | Aumento Adicional Salario Base | Aumento Total a Salario Base
+1 | | Hasta 300.000 | 7.500 | 1.250 | 8.750
+2 | Mayor a 300.000 | Hasta 350.000 | 7.500 | 1.000 | 8.500
+3 | Mayor a 350.000 | Hasta 600.000 | 7.500 | 500 | 8.000
+4 | Mayor a 600.000 | Hasta 750.000 | 7.500 | 250 | 7750
+5 | Mayor a 750.000 | O más | 7.500 | - | 7.500
