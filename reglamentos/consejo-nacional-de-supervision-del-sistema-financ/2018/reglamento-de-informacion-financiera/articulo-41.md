@@ -17,3 +17,30 @@ a) De conformidad con dicha reforma a los lineamientos generales, el importe lib
 b) Luego de aplicado dicho importe a la estimación contracíclica, el remanente se reclasificará en esta cuenta analítica.
 c) El saldo de esta cuenta analítica se reversará mensualmente, como máximo, a razón de un veinticuatroavo (1/24), hasta eliminarla.
 d) De previo a aplicar la reversión indicada en el punto c) anterior, debe verificarse primero el cumplimiento del requerimiento de estimación contracíclica, y reclasificar a esta cuenta el monto que corresponda, hasta donde alcance.”)
+(Nota e Sinalevi: Mediante sesión N° 1542-2019 del 4 de noviembre del 2019, se acordó adicionar las subcuentas y cuentas analíticas para el registro los montos recaudados por las entidades de seguros en los anexos 2 y 4 del presente reglamento. De conformidad con lo establecido en la indicada norma la misma empieza a regir el 1° de enero del 2020. No obstante mediante información suministrada por el Consejo Nacional de Supervisión del Sistema Financiero, los anexos no fueron publicados en el Diario Ofiical La Gaceta, los mismos pueden ser visualizados en la página Web de las Superintendencias Dado lo anterior se transcriben las reformas de los anexos 2 y 4 del Reglamento de Información Financiera vigente a partir de 1° de enero de 2020, conforme el siguiente texto:
+Subcuenta |
+2 040 020 330 | Cuenta por pagar 0,5% sobre primas vendidas INEC
+Concepto
+En esta subcuenta se registran las cuentas por pagar al Ministerio de Hacienda correspondientes al 0,5% de las primas que se vendan en el país para el Financiamiento del INEC, de acuerdo con el artículo 40 de la Ley del Benemérito Cuerpo de Bomberos
+“[…]
+Subcuenta |
+4 060 090 230 | Aporte 0,5% INEC
+Concepto
+En esta subcuenta se registra el gasto correspondiente a la retención del 0,5% de las primas que se vendan en el país para el Financiamiento del INEC, de acuerdo con el artículo 40 de la Ley del Benemérito Cuerpo de Bomberos
+Cuentas Analíticas |
+4 060 090 230 | M 010 Seguros Generales
+4 060 090 230 | M 020 Seguros Personales
+[…]”
+2. Modificar el Anexo 4 -Plan de cuentas para entidades supervisadas por Sugese Catálogo de cuentas- para adicionar las subcuentas y cuentas analíticas para el registro de los montos recaudados por las entidades de seguros, con motivo del aporte del cero coma cinco por ciento (0,5%) de las primas de todos los seguros que se vendan en el país, según el siguiente detalle:
+“[…]
+2 040 020 | Cuentas y comisiones por pagar diversas
+[…]
+2 040 020 330 | Cuenta por pagar 0,5% sobre primas vendidas INEC
+[…]”
+“[…]
+4 060 090 | Otros gastos operativos
+[…]
+4 060 090 230 | 0,5% INEC
+4 060 090 230 | M 010 Seguros Generales
+4 060 090 230 | M 020 Seguros Personales
+“)
