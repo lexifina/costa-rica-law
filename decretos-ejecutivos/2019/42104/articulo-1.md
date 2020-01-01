@@ -21,17 +21,17 @@ Trabajadores en Ocupación Calificada | ¢11.761.76
 Trabajadores en Ocupación Especializada | ¢13.872,70
 A los trabajadores que realicen labores ya reconocidas como pesadas, insalubres o peligrosas y las que se determinen como tales por el Consejo de Salud Ocupacional, se les fijará un salario mínimo por hora, equivalente a la sexta parte del salario mínimo fijado por jornada para el Trabajador en ocupación no calificada.
 Las ocupaciones en Pesca y Transporte acuático, cuando impliquen imposibilidad para el trabajador de regresar al lugar de partida inicial, al finalizar su jornada ordinaria, tienen derecho a la alimentación.
-b) Ocupaciones Genéricas por Mes:
-Trabajadores en Ocupación No Calificada | ¢316.964,69
-Trabajadores en Ocupación Semicalificada | ¢341.004,39
-Trabajadores en Ocupación Calificada | ¢358.468,86
-Técnicos Medios de Educación Diversificada | ¢375.649,82
-Trabajadores en Ocupación Especializada | ¢402.556,51
-Técnicos de Educación Superior | ¢462.947,09
-Diplomados de Educación Superior | ¢500.000,15
-Bachilleres Universitarios | ¢567.118,50
-Licenciados Universitarios | ¢680.565,53
-Periodistas contratados como tales (incluye 23% en razón de disponibilidad) por mes | ¢838.183,17
+(*)b) Ocupaciones Genéricas por Mes:
+Trabajadores en Ocupación No Calificada Trabajadores en Ocupación Semicalificada | C316.964,69
+C341.004,39
+Trabajadores en Ocupación Calificada | C358.468,86
+Técnicos Medios de Educación Diversificada | C375.649,82
+Trabajadores en Ocupación Especializada | C402.556,51
+Técnicos de Educación Superior | C462.947,09
+Diplomados de Educación Superior | CS00.000,15
+Bachilleres Universitarios | C567.118,50
+Licenciados Universitarios | C680.565,53
+(*) (Así reformado el cuadro del aparte b) anterior por el artículo 1° del decreto ejecutivo N° 42122 del 20 de diciembre de 2019)
 Si por disposición legal o administrativa se solicita al trabajador determinado título académico de los aquí incluidos, se le debe pagar el salario mínimo correspondiente, excepto si las tareas que desempeña están catalogadas en una categoría ocupacional superior de las establecidas en este Decreto, en cuyo caso regirá el salario de esa categoría y no el correspondiente al título académico.
 Los salarios para profesionales, bachilleres y licenciados, aquí incluidos rigen para aquellos trabajadores con título universitario debidamente reconocido.
 Los profesionales contratados en las condiciones señaladas en los dos párrafos anteriores, que estén sujetos a disponibilidad, bajo los límites señalados en el artículo 143 del Código de Trabajo, tendrán derecho a percibir un 23% adicional sobre el salario mínimo, estipulado según su grado académico de Bachilleres o Licenciados Universitarios.
