@@ -1,0 +1,5 @@
+Artículo 3º—El precio mínimo establecido en el presente Decreto Ejecutivo no incluye:
+a) Los costos contingentes, considerados como aquellos que no se exigen para todas las cajas, para todos los embarques, por todas las empresas compradoras, o para una mayoría de los productores.
+b) El costo del entarimado.
+c) El mayor costo que puedan implicar nuevas modalidades de empaque, o nuevos productos o materiales que las empresas comercializadoras o compradoras requieran que se utilicen en el proceso de preparación de la fruta para su embalaje o en el empaque propiamente dicho, una vez que la misma llega a las plantas empacadoras.
+d) Los costos referidos en los anteriores incisos y los que tradicionalmente o que en la actualidad han asumido las empresas compradoras o comercializadoras, continuarán asumiéndolos éstas, siendo alguno de estos costos: el uso de los contenedores y chasis, flete del predio de la comercializadora al muelle, costos de conexión de los contenedores, frío en el puerto, entre otros.
