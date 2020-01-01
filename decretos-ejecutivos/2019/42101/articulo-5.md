@@ -1,0 +1,1 @@
+Artículo 5º—La Autoridad Presupuestaria, según su proceder administrativo y técnico, hará extensivas las disposiciones del presente Decreto Ejecutivo, según lo señalado en los artículos 39 y 40 del Decreto Ejecutivo N° 41617 del 08 de marzo de 2019.
