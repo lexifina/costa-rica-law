@@ -1,0 +1,1 @@
+Artículo 2º—Del Comité Gerencial de Tecnologías de la Información. El CGTIC constituye un órgano asesor de la Municipalidad de Belén en las decisiones sobre asuntos estratégicos de Tecnologías de Información y Comunicación.

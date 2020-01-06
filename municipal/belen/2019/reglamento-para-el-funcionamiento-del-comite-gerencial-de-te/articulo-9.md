@@ -1,0 +1,1 @@
+Artículo 9º—De la normativa supletoria. En lo previsto en el presente reglamento, el CGTIC se regirá por las normas contenidas en la Ley General de la Administración Pública en lo que corresponde a la regulación de órganos colegiados, así como cualquier otra disposición ahí incluida u otra de Derecho Público que resulte aplicable al caso concreto.
