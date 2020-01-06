@@ -1,0 +1,4 @@
+Artículo 5. Competencias del Terapeuta Físico o Fisioterapeuta para la aplicación de la Fisioterapia Dermatofuncional. Todo profesional en Terapia Física o Fisioterapia que desee ejercer la Fisioterapia Dermatofuncional, debe poseer capacitación de conformidad con lo estipulado en el artículo anterior y en cumplimiento de lo siguiente:
+a. Haber realizado cursos de educación continua de Fisioterapia Dermatofuncional o cursado posgrado en Fisioterapia Dermatofuncional. En los casos en que se trate de cursos realizados en el extranjero, los mismos deberán encontrarse apostillados en el país de origen y reconocidos por el Consejo Nacional de Rectores, según corresponda.
+b. Valorar, evaluar y determinación la necesidad de intervención, educar a los pacientes, establecer metas y gestionar correctamente los desechos.
+c. Identificar y seleccionar los diferentes procedimientos de valoración clínica e instrumental, de conformidad con los padecimientos del paciente.

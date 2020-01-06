@@ -1,0 +1,12 @@
+Capitulo II. De la aplicación de la Fisioterapia Dermatofuncional.
+Artículo 4. Requisitos generales para la aplicación de la Fisioterapia Dermatofuncional.
+Son requisitos generales para la aplicación de la Fisioterapia Dermatofuncional, los siguientes:
+a. La aplicación de Fisioterapia Dermatofuncional, debe ser realizada por un Terapeuta Físico o Fisioterapeuta que cumpla con los siguientes requerimientos curriculares o académicos:
+i. Poseer grado académico de Licenciatura o superior en Terapia Física o Fisioterapia.
+ii. Estar debidamente incorporado al Colegio y al día con sus obligaciones profesionales ante el Colegio de Terapeutas de Costa Rica.
+iii. Contar con capacitación en Fisioterapia Dermatofuncional, mediante posgrados universitarios debidamente reconocidos por las autoridades correspondientes, especializaciones o cursos de educación continua avalados por el Colegio, cuando los mismos hayan sido realizados en Costa Rica. En caso de contar con cursos realizados en el extranjero, los certificados de capacitación deberán encontrarse debidamente apostillados por la autoridad competente en el país de origen. Asimismo, para los títulos de posgrados en Fisioterapia Dermatofuncional extranjeros, se deberá realizar el procedimiento de reconocimiento ante la autoridad nacional competente, sea el Consejo Nacional de Rectores. En ambos casos de capacitación en el extranjero, deberá acreditarse ante la instancia correspondiente del Colegio, los contenidos y horas de capacitación.
+iv. Contar con la certificación emitida por el Colegio, para aplicar la Fisioterapia Dermatofuncional.
+v. Conocer las limitaciones y contraindicaciones de las técnicas de Fisioterapia Dermatofuncional que desea aplicar, así como estar en capacidad de elegir otras alternativas de tratamiento.
+vi. Conocer sobre el proceso de asepsia de las técnicas de Fisioterapia Dermatofuncional que desea aplicar y las regulaciones nacionales respecto a la eliminación de desechos biológicos.
+b. El Terapeuta Físico o Fisioterapeuta debe llevar un expediente completo y mantener registros detallados de cada paciente, en el cual deben constar los progresos, las diversas reacciones producidas por la aplicación de la Fisioterapia Dermatofuncional y los cuidados inmediatos post intervención.
+c. El Terapeuta Físico o Fisioterapeuta debe contar con un consentimiento informado de cada paciente para el uso exclusivo de la Fisioterapia Dermatofuncional.

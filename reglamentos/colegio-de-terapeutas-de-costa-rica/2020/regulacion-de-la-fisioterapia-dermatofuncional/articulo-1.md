@@ -1,0 +1,12 @@
+COLEGIO DE TERAPEUTAS DE COSTA RICA
+Regulación de la Fisioterapia Dermatofuncional
+Considerando
+Que los Terapeutas Físicos o Fisioterapeutas proporcionan servicios que desarrollan, mantienen y restauran el máximo movimiento y la capacidad funcional de las personas y realizan sus intervenciones en cualquier etapa de la vida, cuando el movimiento y la función están amenazados por el envejecimiento, lesiones, enfermedades, trastornos, condiciones o factores ambientales e inesteticismos, ayudando a maximizar la calidad de vida de los pacientes y contemplando la integridad física, psicológica, emocional y social de estos.
+Que la Fisioterapia Dermatofuncional, por su parte, aborda las disfunciones físicas, estéticas o funciones derivadas de patologías, procedimientos quirúrgicos y secuelas que afecten directa o indirectamente el sistema tegumentario.
+Que mediante la Fisioterapia Dermatofuncional, es posible emplear los métodos propios de la Fisioterapia, tales como el uso de agentes electro físicos, técnicas manuales, entre otras, para actuar en las sub áreas de disfunciones dermatológicas, disfunciones vasculares, de cicatrización, disfunciones estéticas, pre y post operatorios de cirugías plásticas reparadoras y estéticas, vasculares, entre otras.
+Que de acuerdo con el artículo 2 de la Ley nro. 8989 de creación del Colegio de Terapeutas de Costa Rica, este tiene como objetivo la vigilancia del correcto ejercicio profesional, la verificación de la adecuada preparación y desarrollo profesional de sus miembros, así como la contribución con el avance científico de las carreras que alberga.
+Que de conformidad con el artículo 67 del Reglamento a la Ley nro. 8989, corresponde a la Junta Directiva dictar instructivos, directrices, circulares y demás clases de actos administrativos necesarios para una adecuada observancia de la Ley y de dicho Reglamento.
+Que en la actualidad existe variedad de ofertas académicas en el área de la Fisioterapia Dermatofuncional, tanto a nivel nacional como internacional, incorporando cada día más profesionales que se desempeñan en esta área.
+Por las consideraciones antes expuestas, resulta necesario y oportuno dictar la presente Reglamentación de la Fisioterapia Dermatofuncional.
+Capítulo I. Disposiciones generales
+Artículo 1. Propósito. El propósito del presente reglamento es establecer los lineamientos básicos para comprobar la idoneidad y adecuada preparación para realizar Fisioterapia Dermatofuncional, por parte de los agremiados al Colegio de Terapeutas de Costa Rica.
