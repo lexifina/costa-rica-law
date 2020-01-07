@@ -14,3 +14,4 @@ Reglamento de coordinación interinstitucional para la protección de los recurs
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-10-25 | la propia norma |
+| 2 | 2020-01-07 | Decreto Ejecutivo 42229 (2020-01-07) |
