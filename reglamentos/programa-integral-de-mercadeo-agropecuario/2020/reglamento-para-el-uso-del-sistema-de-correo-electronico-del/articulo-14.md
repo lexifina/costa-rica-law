@@ -1,0 +1,1 @@
+Artículo 14: Información incompleta del mensaje: En caso de determinar que el contenido de la comunicación realizada electrónicamente está incompleta, la oficina y/ o notificado, deberá comunicarlo a la oficina de origen, para que se subsane el error y se trasmita nuevamente el mensaje.

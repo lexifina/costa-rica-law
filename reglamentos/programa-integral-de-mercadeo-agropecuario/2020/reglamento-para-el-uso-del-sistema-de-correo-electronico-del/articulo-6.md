@@ -1,0 +1,1 @@
+Artículo 6: Firma digital o electrónica: TI establecerá los mecanismos necesarios para la implementación, en su momento, de la firma digital certificada de manera que ésta se utilice para la autenticación de los documentos de archivo transmitidos por el SCE, garantizando la integridad, confiabilidad y autenticidad de los mismos.

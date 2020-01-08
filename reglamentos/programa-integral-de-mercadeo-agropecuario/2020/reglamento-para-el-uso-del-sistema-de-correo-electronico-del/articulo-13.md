@@ -1,0 +1,1 @@
+Artículo 13: Envío de correo a destinatario erróneo: Si por error un colaborador de PIMA enviare una nota o comunicación electrónica a un destinatario que no corresponde, el notificado deberá comunicarlo de inmediato al notificando a efecto de que éste enmiende el envío y proceda a remitir la comunicación electrónica a la oficina correcta.
