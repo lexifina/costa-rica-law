@@ -1,1 +1,0 @@
-Artículo 2.—Al entrar en vigencia la presente resolución, se deja sin efecto la actualización efectuada mediante la resolución número RES-DGH-041-2019, del cinco de julio de 2019, publicada en La Gaceta número 133 del 16 de julio de 2019.
