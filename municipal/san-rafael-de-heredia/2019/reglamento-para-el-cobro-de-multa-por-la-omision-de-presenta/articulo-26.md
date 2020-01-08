@@ -1,0 +1,2 @@
+Articulo 26.—Integración del ordenamiento. Cualquier disposición oscura u omisa, se integrará acudiendo a los principios de legalidad, así como los generales del derecho municipal y administrativo, expresados en el Código de Normas y Procedimientos Tributarios, Código Municipal, Ley General de Administración Pública, Código Procesal Contencioso Administrativo y Código Procesal Civil.
+Rige a partir de su publicación. Segunda vez-San Rafael de Heredia, 18 de diciembre del 2019.
