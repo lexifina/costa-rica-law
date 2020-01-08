@@ -1,0 +1,1 @@
+Artículo 30.-Para el registro de las operaciones, el Tesorero y el Contador, con la asistencia obligatoria de los representantes de la Tesorería y Contabilidad Municipal, deberán elaborar el respectivo detalle de cuentas contables que identifique adecuadamente todos los ingresos y egresos que se originen durante los Festejos.

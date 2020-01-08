@@ -1,0 +1,1 @@
+Artículo 45°. Vigencia: Este Proyecto de Reglamento de Organización y Funcionamiento de la Comisión de Fiestas Populares del Cantón, de Alajuelita de rige a partir de su I publicación en el Diario Oficial La Gaceta.

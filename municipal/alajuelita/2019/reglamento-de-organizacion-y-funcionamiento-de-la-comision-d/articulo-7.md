@@ -1,0 +1,2 @@
+CAPÍTULO II De la integración de la Comisión de Festejos Populares
+Artículo 7º-Conforme lo establecido en el artículo 1º, de la citada Ley Nº 4286, los Concejos Municipales serán los encargados de nombrar las Comisiones de los Festejos Populares, por lo que es su responsabilidad garantizarse, por los medios que estime pertinentes, la idoneidad de los miembros que designe para integrar esas comisiones, teniendo en cuenta aspectos como reconocida solvencia moral, capacidad para asumir el cargo y compromiso.

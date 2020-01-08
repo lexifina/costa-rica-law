@@ -1,0 +1,1 @@
+Artículo 26.-Cada gasto deberá estar respaldado mediante justificante original, nítido, con membrete, debidamente cancelado, que cumpla con las disposiciones tributarias y extendidas a nombre de la Comisión.

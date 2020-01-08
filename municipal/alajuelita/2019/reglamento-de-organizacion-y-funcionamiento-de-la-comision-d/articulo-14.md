@@ -1,0 +1,1 @@
+Artículo 14.-El Contador tendrá la obligación de llevar los registros contables exigidos por ley, a saber, Diario general, Mayor e Inventarios, debiendo consignar donde corresponde la respectiva razón de cierre al finalizar su gestión. Asimismo, deberá conciliar mensualmente la cuenta corriente bancaria de la Comisión de Festejos.

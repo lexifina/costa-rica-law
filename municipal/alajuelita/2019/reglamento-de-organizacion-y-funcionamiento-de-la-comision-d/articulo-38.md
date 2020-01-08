@@ -1,0 +1,1 @@
+Artículo 38.-Las Actividades Culturales deberán coordinarse con la Sección de Cultura de la Municipalidad de Alajuelita. Se autoriza incluir la respectiva partida presupuestaria en el Presupuesto de la Comisión de Fiestas.

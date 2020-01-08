@@ -1,0 +1,1 @@
+Artículo 4º-El Concejo Municipal, la Alcaldía y el Municipio de Alajuelita en general, tienen clara conciencia de que el centro y fundamento de la gestión pública, es el servicio a la comunidad y que el mismo debe realizarse con absoluta transparencia, a efecto de que los ciudadanos, recobren confianza en la gestión pública.

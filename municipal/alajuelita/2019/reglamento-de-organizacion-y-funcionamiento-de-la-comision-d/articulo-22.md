@@ -1,0 +1,1 @@
+Artículo 22.-Al efectuar los depósitos de los ingresos recaudados, el Tesorero deberá llevar un registro de ingresos, que cuente al menos con número de depósito o cheque, nombre del depositante, fecha y concepto.

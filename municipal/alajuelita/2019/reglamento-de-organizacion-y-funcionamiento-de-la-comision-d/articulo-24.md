@@ -1,0 +1,1 @@
+Artículo 24.-Todos los gastos en que incurra la Comisión de Festejos Populares, deberán corresponder, guardar relación y ser indispensables para el desarrollo de las actividades para las que fue nombrada dicha comisión.

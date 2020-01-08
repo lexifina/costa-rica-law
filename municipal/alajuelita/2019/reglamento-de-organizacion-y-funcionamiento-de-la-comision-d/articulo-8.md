@@ -1,0 +1,1 @@
+Artículo 8º-Las comisiones de Festejos Populares del Cantón de Alajuelita se nombran con el propósito de planificar y organizar la realización de los Festejos Populares que sirviendo de recreación y esparcimiento de la comunidad, logren la obtención de una utilidad destinada en la ejecución de obras comunales a definir por el Concejo Municipal respectivo.

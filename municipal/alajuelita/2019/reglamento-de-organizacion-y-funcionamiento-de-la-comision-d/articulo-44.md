@@ -1,0 +1,1 @@
+Artículo 44.-Todo aquel Funcionario que participe en la implementación de Actividades Organizadas por los Festejos Populares, se encontrará a las Órdenes de la misma, durante el periodo en que se encuentre desempeñando dichas funciones.

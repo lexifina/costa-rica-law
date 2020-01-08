@@ -1,0 +1,1 @@
+Artículo 43.-Con fundamento en la Ley de Licores y su Reglamento y en la Autonomía Municipal que preceptúan los artículos 169 y 170, de la Constitución Política se dispone: que los horarios de funcionamiento en el campo ferial, lo serán hasta las 02:00 horas a. m.

@@ -1,0 +1,1 @@
+Artículo 6º-El Concejo Municipal, es el primer obligado a dar ejemplo de transparencia, en la ejecución de los actos que tiendan al nombramiento, control y fiscalización de los Festejos Populares, y de todo tipo de eventos masivos en el Cantón por ello debe de establecer un procedimiento altamente confiable en el nombramiento de las Comisiones.

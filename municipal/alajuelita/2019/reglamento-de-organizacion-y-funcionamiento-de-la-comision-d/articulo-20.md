@@ -1,0 +1,2 @@
+CAPÍTULO V De los controles sobre los ingresos y egresos
+Artículo 20.-Deberá abrirse una cuenta Bancaria para la custodia y el manejo de los Recursos generados por la Comisión de Festejos. Esta cuenta se mantendrá abierta a fin de que sea utilizada por las subsiguientes comisiones. Una vez determinada la correspondiente liquidación de ingresos y egresos, la Tesorería Municipal trasladará los recursos de las utilidades a las arcas municipales y dejará la cuenta inactiva para efectos bancarios; procediendo a activar la misma cuando ingresen los nuevos miembros de Comisión.

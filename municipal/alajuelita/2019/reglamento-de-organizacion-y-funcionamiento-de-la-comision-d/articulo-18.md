@@ -1,0 +1,1 @@
+Artículo 18.-Las actas de sesión de las Comisiones de Festejos Populares se aprobarán en la siguiente sesión ordinaria. Antes de esa aprobación los acuerdos adoptados carecerán de firmeza, salvo que los miembros presentes acuerden su firmeza por votación calificada.

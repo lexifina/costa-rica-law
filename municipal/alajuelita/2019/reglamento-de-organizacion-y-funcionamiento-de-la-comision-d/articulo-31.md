@@ -1,0 +1,3 @@
+Artículo 31.-A los miembros de las Comisiones de Festejos Populares les serán aplicables en lo que corresponda, la Reglamentación de la Ley Nº 7494, Ley de la Contratación Administrativa. Asimismo, las contrataciones que promuevan esas Comisiones de Festejos se regirán por dicha Ley y su Reglamento.
+Para efectos de la selección de los procedimientos concursales que regula la Ley de la Contratación Administrativa, así como para la tramitación de los contratos, sujetos a refrendo contralor según el Reglamento sobre Refrendos vigente, se utilizará el estrato en el cual se ubica la municipalidad.
+Las Comisiones podrán hacer uso del Ordenamiento Jurídico vigente atinente a la materia.
