@@ -3,4 +3,5 @@ No aplica para:
 a) Productos alimenticios que a pesar de estar considerados de bajo riesgo presenten algún descriptor nutricional.
 b) Productos que estén dirigidos específicamente a una población menor de 3 años.
 c) Bebidas energéticas y suplementos a la dieta.
-d) Productos cosméticos que a pesar de estar considerados de bajo riesgo están indicados específicamente para el rostro.
+d) Productos cosméticos que a pesar de estar considerados de bajo riesgo están indicados específicamente para el rostro, excepto aquellos que se incluyen en el listado anexo.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 42263 del 8 de enero del 2020)

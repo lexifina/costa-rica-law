@@ -1,7 +1,8 @@
 Artículo 3-. DEFINICIONES. Para fines de este procedimiento se entenderá por:
-a) Alimento de bajo riesgo: productos listados en el anexo a este decreto.
-(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 39920 de 25 de agosto del 2016)
+a) Alimento de bajo riesgo: productos que se encuentran en el anexo a este decreto y que será actualizado únicamente para la adición de nuevos productos en la dirección www. registrelo.go.cr, que no tengan etiquetado nutricional.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 42263 del 8 de enero del 2020)
 b) Producto Cosmético: Es toda sustancia o preparado destinado a ser puesto en contacto con las diversas partes superficiales del cuerpo humano (epidermis, sistemas piloso y capilar, uñas, labios y órganos genitales externos) o con los dientes y las mucosas bucales, con el fin exclusivo o principal de limpiarlos, perfumarlos, modificar su aspecto y/o corregir los olores corporales y/o protegerlos o mantenerlos en buen estado. El producto que, en razón de su composición, se le atribuye propiedades terapéuticas, deberá registrarse como medicamento.
-c) Producto Cosmético de bajo riesgo: productos listados en el anexo a este decreto.
+c) Producto Cosmético de bajo riesgo: productos que se encuentran en el anexo a este decreto y que será actualizado únicamente para la adición de nuevos productos en la dirección www.registrelo.go.cr.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 42263 del 8 de enero del 2020)
 d) Registro: Es el proceso mediante el cual el Ministerio autoriza la comercialización de un producto con base a la solicitud o notificación del administrado, que se presenta acompañada de la documentación requerida para su evaluación, registro estadístico y posterior vigilancia.
 e) Registro Simplificado: Acto mediante el cual el administrado solicita el registro, la renovación o un cambio posterior al registro, de alimentos o cosméticos de bajo riesgo cumpliendo con todos los requisitos establecidos en la normativa centroamericana aplicable a la materia

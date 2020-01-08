@@ -16,3 +16,4 @@ Procedimiento para registro simplificado de productos cosméticos y alimentos de
 | 1 | 2016-02-08 | la propia norma |
 | 2 | 2016-08-25 | Decreto Ejecutivo 39920 (2016-08-25) |
 | 3 | 2017-07-07 | Decreto Ejecutivo 40629 (2017-07-07) |
+| 4 | 2020-01-08 | Decreto Ejecutivo 42263 (2020-01-08) |
