@@ -14,3 +14,4 @@ Reglamento para la autorización de licencias que regulan la comercialización y
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-03-19 | la propia norma |
+| 2 | 2020-01-09 | Reglamento municipal 193 (2020-01-09) |
