@@ -1,1 +1,0 @@
-Artículo 2°—Deróguese el Decreto Ejecutivo N° 41865-H de fecha 09 de julio de 2019, publicado en el Alcance N° 175 a La Gaceta N° 146 de fecha 06 de agosto de 2019, a partir de la vigencia del presente decreto.
