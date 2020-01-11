@@ -1,3 +1,7 @@
-CAPÍTULO V
-De los propietarios
-Artículo 21.—El propietario conducirá el vehículo por su cuenta y riesgo y asumirá la responsabilidad civil y penal que se pudiere originar en accidentes en que intervenga, consecuentemente la Agencia no asumirá ni aceptará responsabilidad alguna por los daños causados al vehículo a terceras personas o a sus bienes en caso de accidente y únicamente asumirá la responsabilidad de indemnizar a sus trabajadores por concepto de riesgos profesionales y conforme al régimen jurídico aplicable, cuando utilicen su vehículo en ejecución del contrato para cumplir sus funciones.
+Articulo 21.—Queda prohibido al empleado autorizado dentro del sistema:
+a) Incumplir injustificadamente con los objetivos de la gira.
+b) Llevar a cabo otras actividades dentro de la jornada de trabajo que no estén acordes con el objeto de la gira.
+c) Cobrar el arriendo del vehículo cuando se utilice para la gira el de otra persona o medios de transportes colectivo.
+d) Incluir recorridos desde o hacia su domicilio; pues es improcedente el pago del arriendo del vehículo por la asistencia a sus funciones.
+Excepto cuando se tenga habilitado el contrato de teletrabajo y se esté brindando servicios bajo tal modalidad, por tanto, las giras se tomarán desde y hasta su casa de habitación registrada en la modalidad de Teletrabajo u oficina más cercana según sea más conveniente para los intereses del Banco.
+e) Transportar en el vehículo, cuando se mantenga a disposición del Banco, personas ajenas al Conglomerado Financiero Banco Popular y de Desarrollo Comunal, salvo que se autorice previamente el viaje de cualquier persona que deba realizar el mismo recorrido.

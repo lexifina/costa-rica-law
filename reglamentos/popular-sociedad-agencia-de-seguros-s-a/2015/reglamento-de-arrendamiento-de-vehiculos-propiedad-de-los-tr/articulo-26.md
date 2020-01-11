@@ -1,1 +1,1 @@
-Artículo 26—En todo lo que no esté previsto expresamente en este reglamento, se aplicará lo dispuesto en la Ley de Contratación Administrativa, su Reglamento y demás normas relacionadas que resulten oportunas considerar.
+Artículo 26.—Cuando se trate de giras dentro de un mismo mes calendario, cuya distancia individual resulte inferior a los 10 kilómetros, el funcionario autorizado las puede agrupar en un único tramite de cobro al cierre de ese mes calendario.

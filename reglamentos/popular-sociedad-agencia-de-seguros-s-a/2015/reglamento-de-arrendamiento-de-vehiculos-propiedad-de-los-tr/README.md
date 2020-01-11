@@ -15,3 +15,4 @@ Reglamento de arrendamiento de vehículos propiedad de los trabajadores del Popu
 | --- | --- | --- |
 | 1 | 2015-03-20 | la propia norma |
 | 2 | 2016-07-29 | Reglamento 0 (2016-07-29) |
+| 3 | 2020-01-11 | Reglamento 5794 (2020-01-11) |

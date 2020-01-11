@@ -1,1 +1,1 @@
-Artículo 5º—La tarifa para el pago de kilometraje, se regirá por los lineamientos que establezca la Contraloría General de la República.
+Artículo 5º—En ninguna circunstancia se asignarán choferes del Banco para conducir los vehículos aceptados dentro del sistema.

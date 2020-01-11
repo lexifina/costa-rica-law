@@ -1,8 +1,8 @@
-Artículo 2º—Para los efectos de la siguiente reglamentación se entenderá por:
-- Reglamento: El presente reglamento para el pago de kilometraje de los trabajadores de Popular Sociedad Agencia de Seguros S. A., cuyo vehículo se usa en funciones propias del cargo.
-- Arrendamiento: Utilización dentro de un esquema de arrendamiento, de vehículos propiedad de los trabajadores de Popular Sociedad Agencia de Seguros S.A.
-- Agencia: Popular Sociedad Agencia de Seguros S.A.
-- Contrato: Marco regulatorio que considera las obligaciones, deberes y responsabilidades de las partes que lo suscriben.
-- Sistema: El sistema de arrendamiento de los vehículos propiedad de los trabajadores de Popular Sociedad Agencia de Seguros S. A.
-- Beneficiario: Trabajador de Popular Sociedad Agencia de Seguros S. A., a quien se cancela el kilometraje al amparo de este reglamento y en funciones propias de su cargo.
-- Órgano de Control: El Área Administrativo-Financiera.
+Artículo 2º—Para efectos del presente Reglamento, se entiende por:
+a) Arrendamiento: utilización dentro de un esquema de alquiler, de vehículos propiedad de empleados del Banco Popular.
+b) Banco: El Banco Popular y de Desarrollo Comunal.
+c) Contrato: Marco regulatorio que considera las obligaciones, deberes y responsabilidades de las partes que lo suscriben, el cual no podrá exceder los cuatro años de vigencia.
+d) Empleado: Persona con la que el Banco mantiene un vínculo jurídico laboral.
+e) Reglamento: Reglamento para arrendamiento de vehículos propiedad de empleados del Banco Popular y de Desarrollo Comunal.
+f) Sistema: Esquema bajo el cual se habilita el arrendamiento de vehículos propiedad de empleados del Banco y que debe operar en el marco de un control interno que garantice el uso racional y apropiado del mismo.
+g) Unidad de Transportes: Es la dependencia administrativa que opera en Oficinas Centrales, sea a la Unidad de Transportes adscrita al Área de Servicios Generales o la que ejerza en condición homologa sus funciones en el resto de los Centros de Negocios o cualquier otra dependencia administrativa a quien se le haya asignado vehículo, responsable de determinar la disponibilidad vehicular interna. A la Unidad de Transportes adscrita al Área de Servicios Generales le corresponde disponer y mantener actualizado el Registro Centralizado de empleados inscritos en el sistema; conforme la documentación que le hagan llegar los representantes del Banco autorizados para la inscripción y des inscripción de empleados dentro del sistema, así como disponer y enviar las alertas necesarias a los titulares subordinados respectivos para la actualización del Registro.

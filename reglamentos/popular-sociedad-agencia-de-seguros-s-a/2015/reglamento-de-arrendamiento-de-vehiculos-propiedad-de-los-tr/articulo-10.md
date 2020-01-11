@@ -1,1 +1,3 @@
-Artículo 10º—El incumplimiento de requisitos de este reglamento, será causa suficiente para que el Órgano de Control no dé trámite al ingreso o permanencia en el sistema de kilometraje a quien incumple.
+Artículo 10.—La Unidad de Transportes de Oficinas Centrales mantendrá actualizado el Registro Centralizado de los empleados que se encuentran admitidos dentro del sistema, el cual trimestralmente deberá ser de conocimiento general, a fin de que se determine si la necesidad inicial que motive la consideración de inclusión se mantiene.
+Los empleados que por motivación propia resuelvan retirarse del registro de personal aceptado en el sistema, deberán de comunicarlo formalmente a su jefatura de Dirección a la que pertenece con al menos un mes de anticipación a la fecha en que se desea no volver a ser considerado.
+Le corresponderá a la Unidad de Transporte de Oficinas Centrales mantener accesible el Registro Centralizado de empleados incluidos en el sistema.
