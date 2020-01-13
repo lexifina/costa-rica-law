@@ -1,2 +1,1 @@
-CAPÍTULO III. DISPOSICIONES FINALES
-Artículo 4.- Se deroga el Perfil Profesional de la Imagenología Diagnóstica y Terapéutica publicado en el Alcance Digital No. 111 del miércoles 09 de diciembre del 2015.
+(Nota de Sinalevi: EN la publicación de esta norma no aparece este artículo. No obstante, el sistema exige una numeración consecutiva por lo que se ha creado el mismo pero sin texto)

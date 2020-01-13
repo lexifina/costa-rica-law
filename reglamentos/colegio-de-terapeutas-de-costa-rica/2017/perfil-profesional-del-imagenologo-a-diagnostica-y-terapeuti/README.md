@@ -14,3 +14,4 @@ Perfil profesional del imagenólogo (a) diagnóstica y terapéutica en Costa Ric
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-07-21 | la propia norma |
+| 2 | 2020-01-13 | Reglamento 0 (2020-01-13) |
