@@ -1,1 +1,0 @@
-Artículo 21.—Todo plano, tramitado conforme al sistema APT, deberá cancelar el pago del Cobro Administrativo del Colegio Federado de Ingenieros y de Arquitectos, mismo que será verificado por los analistas, caso contrario se procederá con el rechazo del o los proyectos.
