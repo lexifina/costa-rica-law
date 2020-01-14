@@ -1,1 +1,0 @@
-Artículo 3º—Es obligatorio el uso de la bitácora digital para el control de proyectos, para todos los miembros incorporados al Colegio Federado, que participen en un proyecto. Dicha obligación es tanto para proyectos de índole público o privado, constructivos o no.

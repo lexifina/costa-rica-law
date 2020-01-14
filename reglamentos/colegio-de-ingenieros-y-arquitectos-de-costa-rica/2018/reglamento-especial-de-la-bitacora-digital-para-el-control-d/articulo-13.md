@@ -1,1 +1,0 @@
-Artículo 13.—La plataforma de bitácora digital actualizará la información de los responsables, en caso de que se produjera algún cambio en la ejecución del proyecto. Tanto el profesional saliente como el entrante deberán registrar en la bitácora digital para el control de proyectos el estado de la entrega y la recepción del proyecto.
