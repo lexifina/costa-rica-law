@@ -20,3 +20,4 @@ Reglamento para el reconocimiento, equiparación de estudios realizados en la Un
 | 5 | 2018-09-06 | Reglamento 20 (2018-09-06) |
 | 6 | 2019-08-01 | Reglamento 16 (2019-08-01) |
 | 7 | 2019-12-12 | Reglamento 27 (2019-12-12) |
+| 8 | 2020-01-14 | Reglamento 1 (2020-01-14) |
