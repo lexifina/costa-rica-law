@@ -1,0 +1,1 @@
+Artículo 17.—La confección de cheques o transferencias por reintegros de caja chica tendrá un plazo máximo de dos días hábiles, a partir de recibida la nómina de pago correspondiente por parte de la Alcaldía y será responsabilidad del Contador.

@@ -1,0 +1,1 @@
+Artículo 16.—El plazo máximo para la confección de nóminas de pago por reintegros de caja chica, una vez solicitados por el Tesorero, será de dos días hábiles y será responsabilidad del Asistente del Alcalde o el Director Administrativo, cuando exista.

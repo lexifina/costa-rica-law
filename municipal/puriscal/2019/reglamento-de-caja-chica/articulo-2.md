@@ -1,0 +1,2 @@
+Artículo 2º—Responsable. El (la) tesorero(a) municipal es el (la) responsable del uso correcto de este fondo. Le corresponde en esta función cumplir y hacer cumplir lo dispuesto en el artículo 103 del Código Municipal. En ausencia del (la) tesorero(a) por permiso temporal, vacaciones, enfermedad u otra causa, los recursos del fondo se traspasarán transitoriamente a custodia del funcionario que lo supla, previo arqueo del Coordinador de Hacienda o el Auditor
+Municipal. Si no se produce este traspaso de fondos no podrá utilizarse el mismo.
