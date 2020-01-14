@@ -1,0 +1,4 @@
+CAPÍTULO V
+Disposiciones finales
+Artículo 10.—A partir de la publicación del presente Reglamento, los profesionales en Terapia del Lenguaje que utilicen o vayan a utilizar electroestimulación dentro de sus planes de intervención, tendrán un plazo de seis (6) meses para adecuar su formación a las condiciones establecidas y gestionar la certificación correspondiente ante el Colegio de Terapeutas de Costa Rica.
+Aquellos profesionales que cuenten con capacitaciones previas de electroestimulación en Terapia del Lenguaje realizadas en el extranjero podrán acudir al Colegio durante este plazo de seis (6) meses, y gestionar la emisión de la certificación de conformidad con las disposiciones de este reglamento, exceptuando la necesidad de apostillado de los certificados. Trascurrido ese plazo, no se recibirán certificados de capacitación sin el apostillado otorgado en el país de origen, aunque sean de fecha previa a la entrada en vigor de este reglamento.

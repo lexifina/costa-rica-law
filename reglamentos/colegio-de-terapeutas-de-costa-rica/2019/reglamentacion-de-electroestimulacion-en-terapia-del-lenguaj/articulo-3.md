@@ -1,0 +1,1 @@
+Artículo 3°—Población meta y patologías a tratar. La electroestimulación como herramienta terapéutica en Terapia del Lenguaje, podrá ser utilizada en la intervención o tratamiento de trastornos en motricidad orofacial y/o en tejidos blancos del sistema estomatognático.
