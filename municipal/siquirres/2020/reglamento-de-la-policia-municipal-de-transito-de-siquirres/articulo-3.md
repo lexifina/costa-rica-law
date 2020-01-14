@@ -1,0 +1,1 @@
+Artículo 3º—Las autoridades municipales investidas deberán cumplir las disposiciones, las obligaciones, los protocolos y el ámbito geográfico de competencia territorial debidamente definido por el Instituto Geográfico Nacional, territorio que deberá estar demarcado mediante señalización vertical.

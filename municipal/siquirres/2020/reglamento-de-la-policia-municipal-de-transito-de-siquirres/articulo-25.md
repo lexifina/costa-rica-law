@@ -1,0 +1,3 @@
+Artículo 25.—Los funcionarios de la policía municipal de tránsito, igualmente tendrán derecho a los siguientes incentivos:
+Capacitación especializada policial; pasantías, trabajos de investigación técnico policial y similares, cursos, prácticas de tiro, pasantías en el ministerio de obras públicas y transportes, cada vez que la ley de tránsito sufra alguna modificación.
+La municipalidad suscribirá una póliza de riesgo policial que cubrirá a todos los policías municipales de tránsito, para lo cual destinará el debido contenido presupuestario. Igualmente tendrá derecho a un incentivo de carácter permanente denominado riesgo policial, el cual se calculará sobre la base del salario mensual.

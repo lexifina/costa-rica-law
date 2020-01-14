@@ -1,0 +1,1 @@
+Artículo 16.—Las disposiciones sobre el uniforme tienen por finalidad conservar en el público el sentido distintivo del servicio de la Policía Municipal Tránsito, obligando a los responsables a velar por la no alteración de las prendas o uso indebido.
