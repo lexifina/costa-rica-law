@@ -11,4 +11,5 @@ Y CALIDAD EN OBRAS DEL SISTEMA FINANCIERO
 NACIONAL PARA LA VIVIENDA
 CAPÍTULO I
 Del Registro
-Artículo 1º—El Colegio Federado de Ingenieros y de Arquitectos contará con un registro de profesionales en las ramas de ingeniería civil e ingeniería de construcción y de la arquitectura, que fungirán como inspectores fiscalizadores de inversión y calidad de las obras a cargo del Sistema Financiero Nacional para la Vivienda.
+Artículo 1º—El Colegio Federado de Ingenieros y de Arquitectos contará con un registro de profesionales en ingeniería y arquitectura que fungirán como inspectores fiscalizadores de inversión y calidad de las obras a cargo del Sistema Financiero Nacional para la Vivienda.
+(Así reformado en sesión N° 08 del 14 de enero del 2020)
