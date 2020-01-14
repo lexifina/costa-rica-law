@@ -14,3 +14,4 @@ Regulación de la responsabilidad profesional del ingeniero topógrafo en obras 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-05-30 | la propia norma |
+| 2 | 2020-01-14 | Reglamento 8 (2020-01-14) |
