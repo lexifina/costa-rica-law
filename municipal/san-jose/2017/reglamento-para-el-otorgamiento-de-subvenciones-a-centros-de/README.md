@@ -14,3 +14,4 @@ Reglamento para el otorgamiento de subvenciones a centros de educación pública
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-08-14 | la propia norma |
+| 2 | 2020-01-15 | Reglamento municipal 0 (2020-01-15) |

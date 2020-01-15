@@ -1,4 +1,6 @@
+(Derogado)
 MUNICIPALIDAD DE SAN JOSÉ
+(Esta norma fue derogada por el artículo 16 del Reglamento para el otorgamiento de subvenciones a centros de educación pública, de beneficencia y servicio social, y publicado en La Gaceta 28 del 12 de febrero de 2020)
 REGLAMENTO PARA EL OTORGAMIENTO DE SUBVENCIONES A
 CENTROS DE EDUCACIÓN PÚBLICA, DE BENEFICENCIA Y DE
 SERVICIO SOCIAL.
