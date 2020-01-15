@@ -17,3 +17,4 @@ Reglamento de Adelanto de Fondos del IFAM
 | 2 | 2001-12-05 | Reglamento 3145 (2001-12-05) |
 | 3 | 2007-04-23 | Reglamento 3653 (2007-04-23) |
 | 4 | 2016-02-03 | Reglamento 4372 (2016-02-03) |
+| 5 | 2020-01-15 | Reglamento 1 (2020-01-15) |
