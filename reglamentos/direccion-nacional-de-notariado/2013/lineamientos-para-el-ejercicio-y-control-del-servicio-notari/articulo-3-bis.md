@@ -1,0 +1,2 @@
+Artículo 3 bis. Objeción de conciencia. El Notario que por razones morales y de conciencia se negare brindar el servicio, lo informará así a la Dirección Nacional de Notariado, mediante comunicación escrita debidamente razonada y justificada, indicando los servicios en que alega la objeción de conciencia.
+(Así adicionado mediante acuerdo firme 2020-001-006 del acta 001-2020 del 16 de enero de 2020)
