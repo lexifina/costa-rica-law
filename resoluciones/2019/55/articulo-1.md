@@ -16,21 +16,15 @@ Listado de países no cooperantes
 Bosnia y Herzegovina
 Corea del Norte
 Cuba
-Eritrea
-Guadalupe
 Irak
 Islas Norkfolk
-Islas Vírgenes de los Estados Unidos de América
 Kirguistán
 North Macedonia
 Maldivas
-Martinica
 Montenegro
 Omán
 Palestina
-Polinesia Francesa
-Reunión
-San Pedro y Miquelón
 Timor-Leste
 Uzbekistán
 Wallis y Futuna
+(Así reformado por el artículo 1° de la resolución N° DGT-R-02-2020 del 16 de enero del 2020)

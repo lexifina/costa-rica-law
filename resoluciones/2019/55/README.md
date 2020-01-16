@@ -14,3 +14,4 @@ Listado de países no cooperantes a efectos de la aplicación del inciso k) del 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-10-01 | la propia norma |
+| 2 | 2020-01-16 | Resolución 2 (2020-01-16) |
