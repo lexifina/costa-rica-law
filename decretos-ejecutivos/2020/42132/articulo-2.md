@@ -1,0 +1,1 @@
+Artículo 2º—Deróguese el Decreto Ejecutivo Nº 41784-S del 4 de junio del 2019 “Reforma al Decreto Ejecutivo Nº 41411-S del 13 de setiembre de 2018 “Reglamento Técnico: RTCR: 494-2018. Textiles y Productos Textiles. Ropa Usada. Registro y Obligatoriedad de Sanitización”, publicado en el Alcance Nº 136 a La Gaceta Nº 112 del 17 de junio del 2019.
