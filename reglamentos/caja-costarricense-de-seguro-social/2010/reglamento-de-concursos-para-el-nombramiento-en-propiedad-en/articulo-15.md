@@ -1,5 +1,0 @@
-CAPÍTULO 3
-Del Concurso para la adjudicación de plazas en propiedad
-Artículo 15.—Requerimiento Específico de Personal. Previo a la publicación de la convocatoria a concurso para la adjudicación de una plaza en propiedad y ante la existencia de una vacante, la Unidad de Gestión de Recursos Humanos, deberá verificar con la jefatura inmediata correspondiente, el perfil aplicable de los previstos en el Manual Descriptivo de Puestos.
-Al efectuar la verificación del perfil del puesto, la Jefatura respectiva, podrá precisar aspectos deseables relacionados con formación y capacitación, a fin de lograr el mejor desempeño de las funciones y responsabilidades específicas del puesto. Al respecto, la Dirección de Administración y Gestión de Personal, debe avalar los aspectos deseables referidos por la jefatura, previo a la publicación de la convocatoria a concurso.
-En caso de que la plaza vacante sea objeto de un estudio de reasignación, la convocatoria a concurso para la adjudicación en propiedad, se realizará una vez resuelto dicho estudio.

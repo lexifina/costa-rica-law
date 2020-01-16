@@ -1,4 +1,0 @@
-Artículo 5º—Facultades de las organizaciones sindicales representantes de los trabajadores. Las organizaciones sindicales legalmente constituidas y que representen trabajadores de la Institución, dispondrán de las siguientes facultades:
-1. Tener acceso a la información de las convocatorias, al registro de plazas vacantes y al registro de elegibles, establecidos en el presente Reglamento, según los medios institucionales dispuestos al efecto.
-2. Interponer en forma directa los recursos regulados en el presente Reglamento, en contra del cartel del concurso para la adjudicación de una plaza en propiedad y cualquier otro acto de alcance general.
-3. Presentar los recursos establecidos en el presente Reglamento, en contra de actos lesivos a los intereses de un afiliado, en el tanto, acrediten la solicitud expresa del directamente afectado para ejercer dicha representación.

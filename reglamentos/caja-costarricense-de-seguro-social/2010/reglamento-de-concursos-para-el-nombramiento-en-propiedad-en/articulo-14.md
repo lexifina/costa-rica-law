@@ -1,3 +1,0 @@
-Artículo 14.—De la actualización de los atestados. Los atestados incorporados al Registro de Elegibles, podrán ser actualizados por la persona inscrita en dicho registro en cualquier momento, para lo cual, deberá presentar las certificaciones requeridas que justifiquen la actualización.
-El rubro correspondiente a la experiencia laboral institucional, la experiencia relacionada con el puesto, la experiencia en el centro de trabajo y la evaluación del desempeño, serán actualizados de oficio por la respectiva Unidad de Gestión de Recursos Humanos.
-El resultado de la actualización se le comunicará por escrito al interesado al lugar señalado para atender notificaciones.

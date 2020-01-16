@@ -1,1 +1,0 @@
-Artículo 25.—Término del Nombramiento Interino. El funcionario interino cuyo nombramiento concluya por motivo de la adjudicación en propiedad de la plaza, tendrá derecho a participar en igualdad de condiciones dentro del proceso de selección para nombramientos interinos e integrar el rol de sustituciones del centro de trabajo.

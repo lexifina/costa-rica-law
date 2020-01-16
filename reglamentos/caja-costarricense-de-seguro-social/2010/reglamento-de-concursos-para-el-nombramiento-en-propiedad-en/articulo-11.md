@@ -1,2 +1,0 @@
-Artículo 11.—Sobre la comunicación de admisibilidad. En un plazo de diez días hábiles, contados a partir de la solicitud de inscripción al Registro de Elegibles, cada Unidad de Gestión de Recursos Humanos tiene la obligación de comunicar al interesado, lo resuelto sobre su solicitud al lugar o medio señalado para recibir notificaciones.
-Al interesado, cuya solicitud se consideró admisible, se le otorgará el plazo de un mes contado a partir de la notificación sobre la admisibilidad, para la presentación de los atestados, sin perjuicio del derecho a la actualización.

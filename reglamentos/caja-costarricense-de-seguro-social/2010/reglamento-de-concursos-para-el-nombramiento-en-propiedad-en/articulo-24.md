@@ -1,2 +1,0 @@
-Artículo 24.—Declaratoria de concurso desierto. Agotado infructuosamente el proceso interno de la primera convocatoria a concurso para la adjudicación de la plaza en propiedad y si persiste la vacante, la Unidad de Gestión de Recursos Humanos, emitirá un acto administrativo en el cual se declare el concurso desierto.
-Superado el plazo de tres meses a partir de la declaratoria de desierto del concurso interno, procederá a efectuar una segunda convocatoria interna, la que será independiente de la primera, conforme a los términos establecidos en el presente Reglamento.
