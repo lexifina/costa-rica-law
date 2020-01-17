@@ -1,0 +1,9 @@
+CAPÍTULO IV
+De la prestación de los servicios
+SECCIÓN PRIMERA
+De las condiciones
+Artículo 13.- De las condiciones para la prestación de los servicios. AyA prestará sus servicios una vez comprobada la factibilidad técnica en inmuebles, construidos o por edificar, dedicados a la residencia de personas o para actividades comerciales o industriales que cumplan con los requisitos y usos autorizados.
+Los servicios de agua potable y de saneamiento los otorgará el AyA sobre calle o vía pública o sobre servidumbre de tubería y de paso inscrita a favor del AyA o inscrita a favor de terceros, según aplique de acuerdo con lo establecido en el artículo 15 de este reglamento. Lo anterior, siempre que existan redes del AyA en funcionamiento.
+Si la red pública no alcanza hasta el punto de conexión, el propietario o poseedor podrá realizar una extensión de ramal y/o otros componentes del sistema hidráulico, en observancia con los requerimientos técnicos que AyA señale, para lo cual se brindará la asesoría respectiva previo estudio técnico y de conveniencia institucional.
+En casos muy calificados, especialmente por condiciones socioeconómicas y de riesgo sanitario, AyA realizará la extensión de ramal y/o otros componentes hidráulicos, a fin de garantizar el acceso al agua potable y saneamiento en su dimensión de derecho humano; y en armonía a su obligación legal de garantizar la prestación de los servicios en todo el territorio nacional. La calificación especial deberá ser debidamente fundamentada por las Subgerencias Operativas de Gestión de Sistemas, mediante una resolución administrativa, la cual será emitida en un plazo de 20 días hábiles, a partir de generada la solicitud.
+En zonas calificadas como deficitarias, únicamente se aprobarán servicios para vivienda individual y comercio individual, resultantes de la aplicación del concepto de “desarrollo máximo de crecimiento”, que se define en el artículo 5 de este reglamento.

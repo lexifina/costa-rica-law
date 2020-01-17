@@ -1,0 +1,2 @@
+Artículo 44.- De la ejecución de las interconexiones de obras primarias y proyectos realizados por parte de AyA.
+Cuando el AyA haya definido y notificado previamente que por razones de conveniencia, ciencia y técnica institucional la interconexión al sistema público en operación debe ser realizado por personal calificado del Instituto, AyA será el encargado de ejecutar únicamente las labores propias de intervención de redes o activos institucionales a interconectar con las obras de infraestructura u obra primaria a construir por el interesado.
