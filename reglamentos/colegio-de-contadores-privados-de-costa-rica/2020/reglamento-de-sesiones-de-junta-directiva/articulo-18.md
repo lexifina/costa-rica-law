@@ -1,0 +1,1 @@
+Artículo 18.—Corresponde a los vocales reemplazar por su orden cualquiera de los demás miembros de la junta directiva en sus ausencias o faltas temporales previa autorización por acuerdo de la junta directiva.

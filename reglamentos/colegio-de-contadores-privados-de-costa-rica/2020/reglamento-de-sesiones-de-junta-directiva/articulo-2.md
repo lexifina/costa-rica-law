@@ -1,0 +1,6 @@
+CAPÍTULO II
+De las sesiones ordinarias y extraordinarias
+Artículo 2°—El presente artículo establece un orden en cuanto a las convocatorias ordinarias y extraordinarias de la siguiente manera:
+a) Las sesiones ordinarias de junta directiva, se celebrarán en la fecha y la frecuencia que acuerde la junta directiva según lo establece el artículo 13 de la Ley 1269 y el artículo 10 del Reglamento a la Ley N° 1269, el tiempo de las mismas estará supeditado al cumplimiento de la agenda aprobada, se establece un máximo de 4 horas para las mismas.
+b) La convocatoria a sesión extraordinaria de la Junta Directiva debe realizarse por escrito, o por los medios electrónicos acordados a solicitud del presidente o bien tres o más miembros de la misma, con al menos veinticuatro horas de antelación debiéndose acompañar de una copia del orden del día, salvo casos de urgencia.
+c) Será válido el acto, sin cumplir todos los requisitos referentes a la convocatoria o al orden del día, cuando asistan todos los miembros de la Junta y así lo acuerden por unanimidad o bien cuando se apruebe en sesión, mediante acuerdo Firme, comunicándole a los miembros ausentes de acuerdo a lo que señala el inciso b., de este artículo.
