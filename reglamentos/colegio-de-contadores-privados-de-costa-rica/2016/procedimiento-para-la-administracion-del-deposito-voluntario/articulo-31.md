@@ -1,1 +1,3 @@
 Artículo 31.—Cuando se ausente del país un contador o se encuentre con permiso autorizado por el Colegio, será condición expresa o insustituible para el goce de los beneficios aquí establecidos continuar con el pago de la parte proporcional de la cuota que corresponde a DEVOAS.
+Nota: A la fecha el monto máximo establecido como ayuda social por fallecimiento de un contador es de tres millones de colones exactos (¢3.000.000,00).
+Aprobado en asamblea general extraordinaria 142-2016, del 17 de abril de 2016, con el voto favorable de cien colegiados presentes y dos abstenciones. Acuerdo Firme. publicado en el Diario Oficial La Gaceta N° 27 del viernes 1° de julio del 2016.
