@@ -1,4 +1,5 @@
-Artículo 3: Las Asambleas tanto Ordinarias y extraordinarias las presidirá el Presidente del Colegio tal como se señala en el artículo 16 inciso c de la Ley 1269.
-Las actas de dichas Asambleas serán firmadas por el Presidente y el Secretario de Junta Directiva previo a la revisión hecha por la secretaría y Asesoría Legal.
-En los casos de Asambleas de Elección, ya sea de Miembros de Junta Directiva del Colegio o de los Miembros de Órganos Representativos, una vez concluida la participación en los temas a tratar según la convocatoria hecha al respecto, la Junta Directiva y en particular el Presidente de Junta Directiva dará la participación a los Miembros del Tribunal de Elecciones para que conduzcan la Asamblea en los aspectos y procedimientos de elección.
-Una vez concluido el proceso de votación, la Junta Directiva realizara el cierre de la Asamblea.
+Artículo 3°—Las asambleas tanto ordinarias como extraordinarias las dirigirá el presidente del colegio o quien lo sustituya, tal como se señala en el artículo 16, inciso c de la Ley N° 1269, y el artículo 18 del reglamento de la ley.
+Las actas de dichas asambleas serán firmadas por el presidente y el secretario de junta directiva previo a la revisión hecha por la secretaría y asesoría legal.
+En los casos de asambleas de elección, ya sea de miembros de junta directiva del colegio o de los miembros de órganos representativos, una vez concluida la participación en los temas a tratar según la convocatoria hecha al respecto, la junta directiva y en particular el presidente de junta directiva dará la participación a los miembros del tribunal de elecciones para que conduzcan la asamblea en los aspectos y procedimientos de elección.
+Una vez concluido el proceso de votación la junta directiva realizara el cierre de la asamblea.
+(Aprobado en asamblea general extraordinaria N° 148- 2020 del 18 de enero de 2020).

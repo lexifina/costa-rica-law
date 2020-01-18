@@ -14,3 +14,4 @@ Reglamento de Asambleas del Colegio de Contadores Privados de Costa Rica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-01-20 | la propia norma |
+| 2 | 2020-01-18 | Reglamento 148 (2020-01-18) |
