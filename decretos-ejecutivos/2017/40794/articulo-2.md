@@ -1,1 +1,0 @@
-Articulo 2.- Modifíquese el Decreto Ejecutivo Nº 37294-COMEX-METC-S del 18 de junio de 2012, que publicó la Resolución Nº 283-2012 (COMIECO-LXII) del 14 de mayo de 2012; de conformidad con el numeral 1 de la parte dispositiva de la Resolución Nº 379-2016 (COMIECO-LXXY1II) de fecha 24 de noviembre de 2016, que se publica mediante el presente Decreto Ejecutivo.
