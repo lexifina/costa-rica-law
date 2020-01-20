@@ -86,6 +86,10 @@ Se considerarán los proyectos dirigidos a la compra de equipo médico especiali
 - Cuando la compra del equipo no pueda ser atendida con presupuesto de la unidad de salud o bien de la CCSS.
 Se atenderán solicitudes presentadas por otras entidades públicas que brinden servicios complementarios a Hospitales y Clínicas de la CCSS, mediante la realización de estudios de laboratorio que permitan la verificación de diagnósticos.
 No se tendrán en cuenta proyectos de entidades privadas que venden servicios a la CCSS, entre ellas las cooperativas de autogestión que tienen a cargo algunos servicios de salud.
+(*)6.9. que indica lo siguiente:
+Se financiarán proyectos presentados por organizaciones sociales sin fines de lucro, destinados a impulsar la autonomía de personas adultas mayores, para gozar de una vejez, digna, activa y participativa, así como el fortalecimiento de los derechos de las personas adultas mayores establecidos en la Convención Interamericana sobre la Protección de los Derechos Humanos de las Personas Mayores.
+Para el trámite de proyectos se aplicarán los requisitos estipulados en el presente Manual, según el tipo de proyecto.
+(*)(Así adicionado el punto 6.9) anterior mediante acuerdo N° 039 del 20 de enero del 2020. Nótese que ya existe un punto 6.9)
 6.10. Sector Prevención y Atención de Cáncer: Se atenderán solicitudes de compra del equipo requerido para la detección temprana y tratamiento del cáncer.
 Serán objeto de financiamiento los proyectos de capacitación cuyos fines sean crear conciencia en la población sobre hábitos de vida saludable, y otros que contribuyan a la prevención del cáncer.
 (Así reformado el punto 6.10) anterior en sesión N° 06 del 22 de febrero de 2016)

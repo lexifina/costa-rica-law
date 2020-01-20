@@ -22,3 +22,4 @@ Manual de Criterios Técnicos de la Junta de Protección Social
 | 7 | 2016-02-22 | Reglamento 6 (2016-02-22) |
 | 8 | 2017-05-02 | Acuerdo 414 (2017-05-02) |
 | 9 | 2017-08-08 | Acuerdo 0 (2017-08-08) |
+| 10 | 2020-01-20 | Acuerdo 39 (2020-01-20) |
