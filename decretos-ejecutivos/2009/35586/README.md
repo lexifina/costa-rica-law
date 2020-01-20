@@ -14,3 +14,4 @@ Reglamento de Carreteras de Acceso Restrngido
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-11-17 | la propia norma |
+| 2 | 2020-01-20 | Decreto Ejecutivo 42171 (2020-01-20) |
