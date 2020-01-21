@@ -1,4 +1,5 @@
-Artículo 2º—Definiciones. Para los efectos del presente Reglamento, se entiende por:
+Artículo 2º—Definiciones. Para los efectos del presente Títutlo I (*), se entiende por:
+(*)(Así modificada su denominación por el artículo 4 del decreto ejecutivo N° 42207 del 21 de enero del 2020. Anteriormente indicaba presente Reglamento)
 • AACUE: El Acuerdo por el que se establece una Asociación entre Centroamérica, por un lado, y la Unión Europea y sus Estados miembros, por otro, Ley de Aprobación N° 9154 del 3 de julio de 2013.
 • Anexo I: El Anexo I “Eliminación de Aranceles Aduaneros” del AACUE.
 • Apéndice 1: El Apéndice 1 “Contingentes Arancelarios de Importación de las Repúblicas de la Parte CA” del Anexo I del AACUE, en el que se establecen los contingentes de importación otorgados por Centroamérica para los productos originarios procedentes de la Unión Europea.

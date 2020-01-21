@@ -1,0 +1,5 @@
+Artículo 34.- Certificados de Exportación.
+Para los productos contemplados en el inciso a) del artículo 33 del presente Título II, el interesado deberá gestionar, por cada exportación, un Certificado de Exportación para ser presentado ante las autoridades competentes de Reino Unido al momento de la importación. Sin embargo, el interesado podrá indicar en su solicitud cuáles de los requisitos establecidos en el artículo 36 del presente Título II están vigentes o no cuentan con cambios que ameriten nuevamente su presentación, señalando al efecto el número de trámite con el que COMEX atendió su solicitud anterior o expediente administrativo en el que constan estos, de modo que no estará obligado a aportarlos de nuevo.
+COMEX emitirá los Certificados de Exportación en el formato establecido en Anexo I del presente Reglamento.
+Los Certificados de Exportación serán expedidos únicamente para el año calendario o período que conste en ellos.
+(Así adicionado por el artículo 5° del decreto ejecutivo N° 42207 del 21 de enero del 2020)
