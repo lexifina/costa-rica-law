@@ -1,0 +1,2 @@
+Artículo 10.—Votaciones. Las votaciones de acuerdos y asuntos atinentes a la Comisión Mixta y del Comité Técnico, se aprobarán o rechazarán mediante mayoría (Mitad más uno) de los miembros presentes en la sesión. Solo se aceptará la abstención en el supuesto de que el integrante de la Comisión Mixta y Comité Técnico, no haya conocido el asunto o acuerdo, en el momento de la votación.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 42308 del 21 de enero del 2020)

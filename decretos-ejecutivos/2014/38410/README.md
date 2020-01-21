@@ -15,3 +15,4 @@ Declara de interés público y nacional la lucha contra el Comercio Ilícito y l
 | --- | --- | --- |
 | 1 | 2014-05-20 | la propia norma |
 | 2 | 2016-08-22 | Decreto Ejecutivo 40014 (2016-08-22) |
+| 3 | 2020-01-21 | Decreto Ejecutivo 42308 (2020-01-21) |
