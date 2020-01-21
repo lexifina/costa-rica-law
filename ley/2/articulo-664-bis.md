@@ -1,0 +1,2 @@
+Artículo 664 bis- En los servicios de importancia transcendental, así como en el caso del artículo 376 quinquies, la constatación por medio de inspección ocular que realice el juez de trabajo, del incumplimiento del plan de servicios mínimos acordado entre las partes o determinado por el juez de trabajo, determinará por si sola la ilegalidad del movimiento.
+(Así adicionado por el artículo 2° de la Ley para brindar seguridad jurídica sobre la huelga y sus procedimientos, N° 9808 del 21 de enero del 2020)
