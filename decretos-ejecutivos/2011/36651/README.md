@@ -17,3 +17,4 @@ Reglamento para la Emisión de Certificados de Origen y la Verificación de Orig
 | 2 | 2013-01-21 | Decreto Ejecutivo 37550 (2013-01-21) |
 | 3 | 2013-05-27 | Decreto Ejecutivo 37800 (2013-05-27) |
 | 4 | 2013-09-05 | Decreto Ejecutivo 37821 (2013-09-05) |
+| 5 | 2020-01-21 | Decreto Ejecutivo 42298 (2020-01-21) |

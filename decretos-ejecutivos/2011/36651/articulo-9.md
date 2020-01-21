@@ -1,6 +1,6 @@
 Artículo 9º—Objetivos y funciones de la Unidad de Origen. Los objetivos y funciones de la Unidad de Origen de la VUCE son los siguientes:
-a) Aprobar los certificados de origen detallados en el presente reglamento y los Certificados de Exportación de Banano o de Productos Textiles y de Confección a la Unión Europea.
-(Así reformado el inciso anterior por el artículo 14 del Reglamento para la emisión de certificados de exportación de banano y productos textiles y de confección a la Unión Europea en el marco del acuerdo por el que se establece una Asociación entre Centroamérica y la Unión Europea, aprobado mediante decreto ejecutivo N° 37821 del 5 de setiembre del 2013)
+a) Aprobar los certificados de origen detallados en el presente reglamento y los Certificados de Exportación de Banano o de Productos Textiles y de Confección a la Unión Europea o al Reino Unido.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 42298 del 21 de enero del 2020)
 b) Realizar procedimientos de verificación de origen a solicitud de la autoridad competente de la Parte Importadora, en el marco de los Acuerdos que contemplen dicha responsabilidad.
 c) Elaborar las propuestas de procedimientos específicos para la emisión de los certificados de origen correspondientes a cada Acuerdo.
 d) Implementar los mecanismos que sean necesarios para que los diferentes trámites relacionados con la emisión de los certificados de origen se realicen a través de medios electrónicos.
