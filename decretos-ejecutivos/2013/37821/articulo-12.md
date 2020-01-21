@@ -1,1 +1,5 @@
 Artículo 12.—Formato del Certificado de Exportación. De conformidad con la Resolución N° 316-2013 del 05 de julio de 2013 (COMIECO-EX) adoptada por Costa Rica mediante Decreto Ejecutivo N° 37820-COMEX del 30 de julio de 2013; el formato del Certificado de Exportación de Banano será el que consta en el Anexo I: Formato del Certificado de Exportación de Banano del presente Reglamento. Por su parte, el formato del Certificado de Exportación de Productos Textiles o de Confección, será el que consta en el Anexo II: Certificado de Exportación de Productos Textiles o de Confección del presente Reglamento.
+(*)Para tas exportaciones amparadas en el AACRU:
+a) El formato del Certificado de Exportación de Banano será el que consta en el Anexo III: Formato del Certificado de Exportación de Banano del presente Reglamento.
+b) El formato del Certificado de Exportación de Productos Textiles o de Confección, será el que consta en el Anexo IV: Certificado de Exportación de Productos Textiles o de Confección del presente Reglamento.
+(*) (Así adicionado el párrafo anterior por el artículo 5° del decreto ejecutivo N° 42188 del 21 de enero del 2020)
