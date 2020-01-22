@@ -1,0 +1,1 @@
+ARTÍCULO 3- El destino del terreno indicado en el artículo 2 de esta ley será donado a favor de la Asociación de Desarrollo Integral de Fila Guinea Debajo de Gutiérrez Brown de Coto Brus, cédula jurídica número tres-cero cero dos dos-siete cero ocho nueve tres cero (N.° 3-0022-708930). Dicho terreno estará destinado a plaza de deportes comunal de Fila Guinea Abajo.
