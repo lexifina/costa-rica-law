@@ -1,0 +1,1 @@
+Artículo 5º—Plan de Acción. La PNE 2030 tendrá un plan de acción con las metas y responsabilidades de las instituciones públicas participantes, quienes tendrán la responsabilidad de la ejecución de los programas y el cumplimiento de sus metas conforme con los ejes de intervención de la Política.
