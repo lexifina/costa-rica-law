@@ -21,15 +21,15 @@ l) La Unidad de Servicios Generales deberá llevar un control para cada unidad a
 8. Pólizas y sus coberturas
 9. Revisión Técnica
 10. Multas
-m) Velar porque los vehículos estén debidamente asegurados y dar seguimiento a las denuncias presentadas en el Instituto Nacional de Seguros, así como de cualquier otro trámite pertinente. Para los casos de maquinaria y equipo asignados a otras unidades, los responsables de dichas unidades deberán cumplir con todos los requisitos previos para el aseguramiento y remitirlo a la Unidad de Servicios Generales.
+m) Velar porque los vehículos discrecionales y de uso administrativo estén debidamente asegurados y dar seguimiento a las denuncias presentadas en el Instituto Nacional de Seguros, así como de cualquier otro trámite pertinente de los vehículos que administra la Unidad de Servicios Generales.
+Los responsables de maquinaria y equipo asignados a otras unidades, la jefatura respectiva, deberán velar porque estén debidamente asegurados y dar seguimiento a las denuncias presentadas en el Instituto Nacional de Seguros. Deberán cumplir con todos los requisitos previos para el aseguramiento y realizar el trámite de pago en el sistema (SIAF), así como de cualquier otro trámite pertinente.
 n) Llevar un control actualizado del Registro de Choferes, y personas autorizadas para conducir los vehículos institucionales que al menos debe consignar los siguientes datos:
 1. Nombre, apellidos y cédula del chofer.
 2. Número y tipo de licencia, fecha de expedición y de vencimiento.
-ñ) Efectuar los trámites necesarios para contratar o alquilar servicios de transporte externo, cuando por razón de necesidad institucional se requieran, conforme lo dispuesto en el Reglamento General de Contrataciones del INCOP.
-o) Informar mediante reporte trimestral a la Dirección Administrativa Financiera, sobre los servicios de transporte prestados a los funcionarios de la institución.
-p) Llevar un control actualizado de las solicitudes de uso de los vehículos de la Institución y el gasto promedio mensual de combustible.
+o) Efectuar los trámites necesarios para contratar o alquilar servicios de transporte externo, cuando por razón de necesidad institucional se requieran, conforme lo dispuesto en el Reglamento General de Contrataciones del INCOP.
+p) Informar mediante reporte trimestral a la Dirección Administrativa Financiera el gasto promedio trimestral de combustible de los vehículos de uso administrativo y discrecional.
 q) Velar porque se cumpla el presente reglamento, informando de cualquier infracción del mismo a la Dirección Administrativa Financiera, quien trasladará a la Unidad de Recursos Humanos para lo que corresponda.
 r) Tramitar las giras, previa solicitud del funcionario que requiere el servicio, con la debida aprobación del superior inmediato.
-s) Realizar los trámites de inscripción de vehículos a nombre de la Institución, y todos los que sean necesarios para que dichas unidades circulen de acuerdo con los trámites de las leyes aplicables. Para los casos de maquinaria y equipo asignados a otras unidades, los responsables de dichas unidades deberán cumplir con todos los requisitos previos y remitirlo a la Unidad de Servicios Generales.
+s) Realizar los trámites de inscripción de vehículos de uso administrativo y discrecional a nombre de la Institución, para que dichas unidades circulen de acuerdo con los trámites de las leyes aplicables. Para los casos de maquinaria y equipo asignados a otras unidades, los responsables de dichas unidades deberán cumplir con el trámite de inscripción.
 t) Todas aquellas funciones atinentes que le solicite la Dirección Administrativa Financiera.
-Se exceptúa a la unidad de Servicios Generales el control operativo y administrativo de los vehículos o maquinaria que estén asignados a otras dependencias o unidades administrativas, no así, de lo indicado en los incisos m) y s), de este artículo, para lo cual las áreas responsables de maquinaria o equipo tendrán que cumplir con lo indicado en dichos incisos.
+(Así reformado mediante sesión N° 4204 del 22 de enero del 2020)
