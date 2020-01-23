@@ -1,0 +1,1 @@
+Artículo 19.—Devolución por incumplimiento. Ante la rescisión del contrato por incumplimiento, la persona beneficiaria queda obligada a pagarle al Estado los costos de los beneficios otorgados para los estudios, así como, aquellos daños y perjuicios generados en razón de su incumplimiento, en el mismo plazo que disfrutó la beca.

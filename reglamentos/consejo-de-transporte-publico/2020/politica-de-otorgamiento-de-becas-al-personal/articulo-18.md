@@ -1,0 +1,1 @@
+Artículo 18.—Procedimiento para constatar el incumplimiento. Para ello, la Institución seguirá el debido proceso y determinará, por medio de la instancia correspondiente, el grado de responsabilidad de la persona beneficiaria y los montos que ésta debe restituir al Estado de los aranceles pagados, como consecuencia del incumplimiento.

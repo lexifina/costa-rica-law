@@ -1,0 +1,1 @@
+Artículo 2º—Del financiamiento. El financiamiento total o parcial de la participación del personal del CTP en las facilidades y los beneficios otorgados será fijado anualmente con la aprobación del presupuesto institucional respectivo en su subpartida 6-02-01 denominada “Becas a funcionarios”.

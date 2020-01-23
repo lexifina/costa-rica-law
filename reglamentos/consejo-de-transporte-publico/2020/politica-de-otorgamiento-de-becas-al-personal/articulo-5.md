@@ -1,0 +1,1 @@
+Artículo 5º—Principios rectores. Los principios que orientarán el procedimiento de adjudicación de becas y participación en las actividades académicas para el desarrollo del talento humano en el CTP serán principalmente los de pertinencia institucional, transparencia, legalidad, ética, equidad y libre participación.

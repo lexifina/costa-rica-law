@@ -1,0 +1,1 @@
+Artículo 20.—Falsedad de los documentos e informaciones. Cualquier documento o información falsa que se presente dará lugar a la rescisión del contrato, sin perjuicio de las responsabilidades laborales, administrativas y penales correspondientes.

@@ -1,0 +1,1 @@
+Artículo 4º—Derecho a la formación. Toda persona funcionaria del CTP tendrá derecho a la formación académica, la asignación de becas y la obtención de facilidades de estudio siempre que cumpla con las condiciones establecidas.

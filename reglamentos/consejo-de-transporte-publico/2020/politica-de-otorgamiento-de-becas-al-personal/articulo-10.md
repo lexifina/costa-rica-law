@@ -1,0 +1,1 @@
+Artículo 10.—Responsabilidades de las jefaturas inmediatas. En concordancia con la normativa vigente, las jefaturas inmediatas son las responsables de verificar las condiciones anteriores, e informar por escrito cuando tengan conocimiento de que se incumplan algunas de las condiciones citadas, lo cual se constituye el incumplimiento de contrato y suspensión del beneficio.
