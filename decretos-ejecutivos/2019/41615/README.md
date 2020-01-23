@@ -17,3 +17,4 @@ Reglamento de canasta básica Tributaria
 | 2 | 2019-04-19 | Decreto Ejecutivo 41639 (2019-03-27) |
 | 3 | 2019-07-19 | Decreto Ejecutivo 41861 (2019-07-19) |
 | 4 | 2019-10-01 | Decreto Ejecutivo 41943 (2019-10-01) |
+| 5 | 2020-01-23 | Decreto Ejecutivo 42173 (2020-01-23) |
