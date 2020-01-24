@@ -1,0 +1,1 @@
+Artículo 76.—Legislación supletoria. Se considera para lo no contemplado en este Reglamento, Código Municipal, al Código Civil, Código procesal Civil, la Ley General de Administración Pública y el Código de Normas y Procedimientos Tributarios; y / o toda normativa relaciona como legislación supletoria.

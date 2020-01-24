@@ -1,0 +1,1 @@
+Artículo 32.—Derechos del contribuyente. Todo deudor de tributos municipales está legitimado para solicitar el beneficio de prorroga administrativa en cualquier momento ante la Municipalidad de San Carlos.

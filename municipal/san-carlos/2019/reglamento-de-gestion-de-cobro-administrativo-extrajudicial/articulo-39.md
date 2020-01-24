@@ -1,0 +1,1 @@
+Artículo 39.—Pagos en exceso. Toda suma en exceso percibida se aplicará primeramente al pago de las sanciones si las hubiere, luego a los intereses y por último a la obligación principal. El excedente se aplicará como abono al principal según la cuota fijada. Si existiere aún una suma sobrante, esta se aplicará como abono extraordinario al principal.

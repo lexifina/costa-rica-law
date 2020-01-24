@@ -1,0 +1,2 @@
+Artículo 7º—Horario de actuaciones. Los funcionarios de la Administración Tributaria Municipal y los Abogados Externos actuarán en horas y días hábiles. Sin embargo, podrán actuar fuera de ese horario, cuando sea necesario para lograr el cumplimiento de sus deberes de gestión, fiscalización o recaudación tributaria.
+En estos casos no se requerirá la habilitación de horas. En caso del trabajo de los abogados externos, sus actuaciones y jornadas serán a criterio de su ejercicio independiente, sin que, por ello, se genere ningún vínculo laboral directo con la Municipalidad.

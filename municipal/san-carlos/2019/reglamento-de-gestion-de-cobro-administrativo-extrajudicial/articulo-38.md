@@ -1,0 +1,1 @@
+Artículo 38.—Resolución de la solicitud. Cuando el adeudo se encuentre en cobro administrativo, corresponderá a Plataforma de Servicios y/o Unidad de Cobros realizar la aprobación o negación de dicha solicitud, cuando la deuda se encuentre en cobro judicial corresponde únicamente a la Unidad de Cobros.

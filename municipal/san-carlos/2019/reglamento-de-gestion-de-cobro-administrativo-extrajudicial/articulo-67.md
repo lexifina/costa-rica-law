@@ -1,0 +1,1 @@
+Artículo 67.—Del pago de honorarios de abogado(a) por parte de la Municipalidad. La Municipalidad se reserva el pago de honorarios y la resolución del contrato unilateralmente por causa justificada imputada al abogado(a) externo director.

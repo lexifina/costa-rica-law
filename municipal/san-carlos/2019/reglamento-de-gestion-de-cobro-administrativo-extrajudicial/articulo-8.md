@@ -1,0 +1,1 @@
+Artículo 8º—Obligación de inscripción. Las personas físicas o jurídicas que realicen actividades económicas, que posean bienes inmuebles en el cantón o que utilicen los servicios públicos municipales, adquieren el deber de inscribirse como contribuyente ante la Administración Tributaria de la Municipalidad de San Carlos.

@@ -1,0 +1,1 @@
+Artículo 44.—Modificación del aplazamiento y fraccionamiento. Si el interesado no hubiere realizado el primer pago en los plazos establecidos de antemano, o cuando no se realice el pago puntual de alguna de las cuotas, se tendrá por revocado la prorroga administrativa y la oficina de cobros sin más trámite continuará con el proceso de cobro judicial de la deuda.

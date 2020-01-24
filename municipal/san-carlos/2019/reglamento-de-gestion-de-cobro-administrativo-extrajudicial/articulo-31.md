@@ -1,0 +1,3 @@
+SECCIÓN VI
+Prorroga administrativa
+Artículo 31.—Definición. La prórroga administrativa es el compromiso que adquiere el sujeto pasivo con la Municipalidad, de pagar la deuda, dentro del tiempo concedido. Se realizará en la etapa de cobro Administrativo y extrajudicial. En la etapa de cobro judicial únicamente procederá si el contribuyente cancela la totalidad de honorarios legales de los Abogados Externos y un porcentaje inicial de la deuda como pago parcial de lo adeudado. En consecuencia, el saldo restante deberá cancelarse en plazo máximo de dos meses, generando la cancelación total de la deuda, hasta este momento procederá el levantamiento y archivo del expediente.

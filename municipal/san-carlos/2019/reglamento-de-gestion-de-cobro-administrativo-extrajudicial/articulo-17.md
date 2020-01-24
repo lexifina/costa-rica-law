@@ -1,0 +1,1 @@
+Artículo 17.—Ejecución de la gestión de cobro. Consiste en el requerimiento de cobro efectuado a los sujetos pasivos que presenten cualquier tipo de morosidad por obligaciones con la Municipalidad. Los funcionarios de la Unidad de Cobros, previo a realizar cualquier gestión, deberán garantizarse que los adeudos se encuentren activos y que la deuda prevalece.

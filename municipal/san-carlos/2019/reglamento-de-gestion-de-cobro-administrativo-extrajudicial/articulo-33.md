@@ -1,0 +1,1 @@
+Artículo 33.—Oficinas responsables. Corresponderá a la oficina de cobros y plataforma de servicios de la municipalidad recibir el trámite para la confección del beneficio prorroga administrativa (arreglo de pago).

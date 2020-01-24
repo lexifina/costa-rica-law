@@ -1,0 +1,1 @@
+Artículo 53.—Resolución Administrativa. Una vez determinados las cuentas exiguas, el Administrador Tributario en conjunto con la encargada (o) o Jefe de Unidad de Cobros y de la Unidad de Bienes Inmuebles procederá a emitir la Resolución Administrativa del caso.

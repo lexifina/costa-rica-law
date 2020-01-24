@@ -1,0 +1,2 @@
+Artículo 9º—Obligación de comunicar la modificación de datos. Los obligados tributarios deben comunicar toda modificación de sus datos de trascendencia tributaria, en la forma y por los medios que determine la Administración Tributaria Municipal, dentro del plazo de diez días hábiles contados a partir de la modificación.
+Además, cada dos años deberá actualizar la información de sus datos ante el Registro Único de Contribuyentes de esta Municipalidad.

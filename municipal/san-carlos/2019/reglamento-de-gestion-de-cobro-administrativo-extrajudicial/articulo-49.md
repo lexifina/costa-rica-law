@@ -1,0 +1,1 @@
+Artículo 49.—De la recuperación futura de un crédito o cuenta declarada incobrable. Cuando por cualquier motivo la Administración obtenga la recuperación de una cuenta que haya sido previamente incluida como incobrable, la Unidad de Cobros procederá a realizar el trámite pertinente en el SIM.

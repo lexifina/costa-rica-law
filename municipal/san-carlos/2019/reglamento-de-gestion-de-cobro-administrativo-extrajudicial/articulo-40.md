@@ -1,0 +1,1 @@
+Artículo 40.—Denegatoria de la solicitud y gestión de cobro. El no cumplimiento de la totalidad de los requisitos establecidos para la prorroga administrativa será causal de la denegatoria de la misma.

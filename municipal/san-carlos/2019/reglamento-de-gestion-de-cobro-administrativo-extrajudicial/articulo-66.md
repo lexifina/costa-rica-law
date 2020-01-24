@@ -1,0 +1,1 @@
+Artículo 66.—Condonación de honorarios. Procederá únicamente la condonación de los honorarios profesionales cuando así lo haya determinado el abogado(a) director del proceso en coordinación con la Unidad de Cobros.

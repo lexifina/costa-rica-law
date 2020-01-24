@@ -1,0 +1,1 @@
+Artículo 64.—Asesoría en la toma de decisiones. Es obligación y responsabilidad del abogado director del cobro judicial asesorar en la toma de decisiones que requiera la institución y que tiendan a la efectiva recuperación de lo que le es adeudado.

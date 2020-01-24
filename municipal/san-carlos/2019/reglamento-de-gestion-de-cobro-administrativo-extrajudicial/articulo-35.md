@@ -1,0 +1,1 @@
+Artículo 35.—Generación de intereses. Todo tributo municipal o nacional administrado por la municipalidad, una vez que se consolide el hecho generador y no sea cancelado dentro del plazo correspondiente; generará intereses a partir del onceavo día del mes siguiente de su emisión de acuerdo a lo establecido en el artículo 57 del Código de Normas y Procedimientos Tributarios.

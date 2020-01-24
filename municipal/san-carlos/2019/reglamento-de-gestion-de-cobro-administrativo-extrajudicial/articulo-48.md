@@ -1,0 +1,1 @@
+Artículo 48.—Obligaciones del abogado. El abogado director no podrá suspender en forma definitiva el proceso judicial hasta que lo haya manifestado por escrito a la Unidad de Cobros y tenga el visto bueno de la misma Unidad.

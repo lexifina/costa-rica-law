@@ -1,0 +1,16 @@
+Artículo 3º—Definiciones. Sin perjuicio de otras definiciones contenidas en el resto del articulado y demás normativa tributaria, para los efectos del presente Reglamento, se entiende por:
+Reglamento: El Reglamento de Gestión de Cobro Administrativo, judicial y extrajudicial de la Municipalidad de San Carlos.
+Municipalidad: La Municipalidad de San Carlos.
+Administración Tributaria Municipal: Es el órgano administrativo encargado de la gestión, recaudación y comprobación de los tributos municipales.
+Unidad de Cobro Municipal: Corresponde a la Unidad de Cobros encargada de la función de cobranza de la Municipalidad.
+Obligaciones vencidas: Las obligaciones dinerarias vencidas, o bien, créditos exigibles de plazo vencido a favor de la Municipalidad. Compromisos que pueden provenir tanto de obligaciones tributarias municipales o de administración municipal, así como de cánones, arrendamientos o cualquier crédito existente de plazo vencido a favor de la Municipalidad.
+Obligaciones Tributarias Municipales: Corresponderán a todas aquellas prestaciones en dinero por los contribuyentes o responsables a la Municipalidad, como consecuencia de impuestos municipales o de Administración Municipal, tasas o contribuciones especiales.
+Sujeto pasivo: La persona obligada al cumplimiento de la obligación vencida, sea en calidad de contribuyente, responsable o deudor de la Municipalidad.
+Abogados externos: Los profesionales en derecho que habiendo cumplido con los requisitos que la Municipalidad exige, y concursado para ofrecer sus servicios profesionales a la Institución; bajo la normativa de este Reglamento, realicen la gestión de cobro judicial respectiva para la recuperación de las obligaciones vencidas de esta última.
+Cobro administrativo: Las acciones que se realizan administrativamente por parte de la Administración Tributaria Municipal y la Unidad de Cobros para efecto de que las obligaciones vencidas sean canceladas por parte de los sujetos pasivos.
+Precobro judicial: La notificación que se realiza previo al cobro judicial.
+Cobro extrajudicial o prejudicial: Las acciones realizadas por la Unidad de cobros de la Municipalidad para la cancelación de las obligaciones vencidas, trasladadas a los abogados externos, previo a iniciar la gestión judicial correspondiente.
+Cobro judicial: Las acciones que se realicen por parte de los abogados externos vía judicial en aras de obtener la recuperación de las obligaciones vencidas trasladadas a estos para su respectivo cobro.
+Prórroga administrativa: Es el compromiso que adquiere el sujeto pasivo con la Unidad de Cobro de la Municipalidad de pagar dentro del plazo convenido por ambos, que no podrá exceder seis meses contados a partir de su aprobación, la obligación vencida adeudada a la Municipalidad, solo en casos justificados se podrá extender el plazo y el cual no podrá ser mayor a un año.
+Medio para atender notificaciones: Son aquellos autorizados en la Ley de Notificaciones Judiciales, tales como, el correo electrónico y fax o por cualquier otra forma tecnológica autorizada que permita la seguridad del acto de comunicación y confirmación del envío de este.
+Notificación electrónica: Comunicación de un acto administrativo efectuada mediante el uso de correo electrónico u otro medio idóneo digital.

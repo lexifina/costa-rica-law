@@ -1,0 +1,1 @@
+Artículo 45.—Control y seguimiento. Una vez aprobada la solicitud de la prorroga administrativa, la Unidad de Cobros deberá implementar los controles a su alcance, necesarios para su adecuado cumplimiento.
