@@ -4,10 +4,11 @@ REGLAMENTO DE OPERACIONES DEL COMITÉ
 DE LICITACIONES DE BN SOCIEDAD
 CORREDORA DE SEGUROS S.A.
 Artículo 1º—Del Objeto. El presente reglamento establece la integración, funciones y competencias del Comité de Licitaciones de BN Sociedad Corredora de Seguros y de otros órganos internos en materia de adquisición de bienes y servicios con cargo al presupuesto institucional.
-Artículo 2º—Conformación del Comité de Licitaciones: La integración del Comité de Licitaciones, será la siguiente:
-a. Titulares: El Gerente General quien fungirá como Presidente, el Técnico en Contratación Administrativa quien fungirá como Secretario, la Jefatura Administrativa, el Director de Operaciones y el Soporte de Tecnología.
+Artículo 2°—Conformación del Comité de Licitaciones: La integración del Comité de Licitaciones, será la siguiente:
+a. Titulases: El Gerente General quien fungirá como presidente, el encargado en Contratación Administrativa quien fungirá como secretario, la jefatura administrativa, el Director de Estrategia Digital y Operaciones.
 b. Suplentes Funcionario de Soporte de Tecnología.
 c. Asesoría: El comité contara con la asesoría de la Dirección Jurídica del Banco Nacional en lo correspondiente con la aplicación de la Ley y Reglamento de Contratación Administrativa.
+(Así reformado el artículo anterior mediante publicación en La Gaceta N° 16 del 27 de enero del 2020)
 Artículo 3°—De la Idoneidad de los Miembros. Los miembros que integren el Comité de Licitaciones deben tener capacitación en la Ley de Contratación Administrativa y en su Reglamento. En caso que algún miembro de los citados en el punto anterior, no posea capacitación sobre Contratación Administrativa, se le concederá un periodo de 6 meses para recibir la capacitación necesaria.
 Artículo 4º—Funciones del Comité de Licitaciones. Corresponderá al Comité de Licitaciones:
 a. Conocer, aprobar, rechazar o corregir los pliegos de condiciones de los procesos de compra directa (escasa cuantía), de las licitaciones abreviadas y públicas, o cualquier tipo de procedimiento por excepción de conformidad con lo dispuesto en este reglamento, en la Ley de Contratación Administrativa y en el Reglamento a la Ley de la Contratación Administrativa.
@@ -43,6 +44,8 @@ Artículo 13º—Sesiones. El Órgano, se reunirá con la frecuencia, el día, h
 Artículo 14º—Acuerdos del Comité. Los acuerdos del Comité serán tomados por mayoría absoluta de los miembros presentes en cada sesión. Para efectos de evitar conflictos de interés, cuando el proceso de compra involucre la adquisición de bienes o servicios para las áreas en las que el miembro del Comité sea representante, éste miembro tendrá vos pero se abstendrá de votar. Dichos acuerdos tienen recurso de revocatoria. Sin embargo, tratándose de actos de adjudicación, dichos acuerdos tendrán los recursos que al efecto señale la Ley de Contratación Administrativa.
 Artículo 15º—Regulación. En lo no regulado expresamente aquí, se regirá por lo dispuesto en la Ley de Contratación Administrativa y demás normativa atinente a la materia, así como a los acuerdos de la Junta Directiva de BN Corredora de Seguros.
 Artículo 16º—Prohibición. Los miembros que conforman el Comité de Licitaciones tienen prohibido recibir remuneraciones.
-Artículo 17º—Procedimiento. Para garantizar el cumplimiento de las funciones de los miembros. El comité funcionara en apego a lo estipulado en el procedimiento PR16GA01 Procedimiento de Adquisición de bienes y servicios
-Artículo 18º—Vigencia. Las presentes normas de operación empezarán a regir a partir de su publicación en el Diario Oficial La Gaceta.
+Artículo 17—Procedimiento. Pala garantizar el cumplimiento de las funciones de los miembros. El comité funcionara en apego a lo estipulado en el procedimiento PRO01-AD01 Procedimiento de Adquisición de bienes y servicios.
+(Así reformado el artículo anterior mediante publicación en La Gaceta N° 16 del 27 de enero del 2020)
+Artículo 18.—Vigencia. Las presentes modificaciones de estos artículos, empezarán a regir a partir de su publicación en el Diario Oficial La Gaceta, las demás condiciones del Reglamento de Operaciones del Comité de Licitaciones permanecen invariables.
+(Así reformado el artículo anterior mediante publicación en La Gaceta N° 16 del 27 de enero del 2020)
 La Sabana, 27 de julio del 2018.
