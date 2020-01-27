@@ -1,0 +1,2 @@
+Artículo 9 bis.—En el caso de que las personas menores de edad a las que se refiere el artículo 9, inciso d) cumplan su mayoría de edad encontrándose en el ejercicio del cargo, podrán ejercerlo hasta finalizar su periodo de nombramiento; no obstante, no podrán ser reelectos al amparo de dicho artículo cuando sean mayores de edad. Siempre deberá garantizarse que las personas electas con base en dicho artículo al momento de su elección tuvieran entre quince y diecisiete años.
+(Así adicionado mediante sesión ordinaria N° 270-2020 del 27 de enero del 2020)

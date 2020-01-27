@@ -14,3 +14,4 @@ Reglamento interno de organización y funcionamiento del Comité Cantonal de Dep
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-01-15 | la propia norma |
+| 2 | 2020-01-27 | Reglamento municipal 270 (2020-01-27) |

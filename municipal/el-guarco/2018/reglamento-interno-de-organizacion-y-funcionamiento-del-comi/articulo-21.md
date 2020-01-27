@@ -1,6 +1,6 @@
-Artículo 21.—Son funciones del Vocal, las que se detallan seguidamente:
-a) Sustituir al vicepresidente, al tesorero y al secretario, en ausencia del titular, con los mismos deberes y atribuciones.
-b) Estudiar y promover modificaciones que tiendan a mejorar la eficiencia de la organización administrativa del Comité Cantonal.
-c) Sugerir y ejecutar en caso de aprobación las medidas de coordinación con los distintos órganos del Comité Cantonal y de éste con otros organismos.
-d) Tramitar los asuntos que para su estudio o ejecución se le encomienden.
-e) Vigilar el estricto cumplimiento de leyes y reglamentos.
+Artículo 21.—Son funciones de los vocales, las que se detallan seguidamente:
+a) Participar con voz y voto en las deliberaciones del Comité Cantonal.
+b) Sustituir a los miembros del CCDR en ausencia del titular con los mismos deberes y atribuciones, excepto al Presidente. En el caso de las personas menores de edad tampoco podrán sustituir a quien ejerza la Tesorería.
+c) Tramitar los asuntos que para su estudio o ejecución se le encomienden.
+d) Y cualquier otra atinente al cargo o que la Junta Directiva le encomiende y este acepte.
+(Así reformado mediante sesión ordinaria N° 270-2020 del 27 de enero del 2020)
