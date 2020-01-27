@@ -18,3 +18,4 @@ Reglamento para la Operación del Comité de Licitaciones de BN Sociedad Corredo
 | 3 | 2013-07-01 | Reglamento 67 (2013-07-01) |
 | 4 | 2014-09-17 | Reglamento 95 (2014-09-17) |
 | 5 | 2018-06-19 | Reglamento 200 (2018-06-19) |
+| 6 | 2020-01-27 | Reglamento 0 (2020-01-27) |
