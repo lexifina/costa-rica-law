@@ -14,3 +14,4 @@ Reglamento del fondo de caja chica de BN Corredora de Seguros S. A
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-08-17 | la propia norma |
+| 2 | 2020-01-27 | Reglamento 0 (2020-01-27) |
