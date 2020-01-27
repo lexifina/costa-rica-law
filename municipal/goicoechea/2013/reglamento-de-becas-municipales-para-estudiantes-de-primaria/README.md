@@ -14,3 +14,4 @@ Reglamento de Becas Municipales para estudiantes de Primaria, Secundaría, Banda
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-04-03 | la propia norma |
+| 2 | 2020-01-27 | Reglamento municipal 4 (2020-01-27) |
