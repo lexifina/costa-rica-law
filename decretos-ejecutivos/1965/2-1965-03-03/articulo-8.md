@@ -7,10 +7,12 @@ El Presidente y el Vicepresidente de la Directiva del Gobierno Estudiantil podr�
 Son atribuciones del Consejo:
 1) Conocer de los asuntos que sometan el Director o cualquiera de los demás miembros, que no sean la expresa competencia de aquél;
 2) Planificar las proyecciones sociales de la institución. dentro de las líneas generales del sistema educativo;
-3) Conocer de los informes de las Comisiones y Departamentos de la institución;
+3) Conocer de los informes de los Departamentos de la institución.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 42175 del 27 de enero del 2020)
 4) Conocer de los asuntos disciplinarios que le asigna el presente reglamento;
-5) Integrar las Comisiones Permanentes y Especiales que requiere la marcha de la Institución , excepto al Comité Asesor de la Dirección.
-(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 7158 del 30 de junio de 1977).
+5) Conocer y brindar resolución a las situaciones, casos o temáticas que incidan en la buena marcha de la institución y que le sean planteadas por parte del director o directora de la institución o quien asuma sus funciones.
+Con el fin de propiciar la atención directa de cada caso por el Consejo y evitar el fenómeno del exceso de cargas labores docentes, la dirección del centro educativo y el propio Consejo se encuentran imposibilitados a efecto de conformar comisiones permanentes y especiales en las que se asuman funciones propias de la dirección, un departamento en particular, del personal docente, administrativo docente o técnico docente.
+(Así reformado el inciso anterior mediante el artículo 1° del decreto ejecutivo N° 42175 del 27 de enero del 2020)
 6) Conocer de las gestiones que plantee la Directiva del Gobierno Estudiantil;
 7) Dictar el Reglamento Interno del Colegio, para cuya vigencia necesita de la aprobación del Ministerio de Educación Pública. El Reglamento Interno se hará sin contrariar las normas generales del Reglamento General de Establecimientos Oficiales de Educación Media.
 (Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 2425 del 26 de junio de 1972).

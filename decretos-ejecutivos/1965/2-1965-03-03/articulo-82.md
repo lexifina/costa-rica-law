@@ -1,2 +1,2 @@
-Artículo 82.-Si el estudiante tuviese que rendir pruebas complementarias, el Consejo lo comunicará de inmediato al interesado y al Ministerio de Educación, esta Dependencia tendrá a su cargo la preparación, ejecución y calificación de las pruebas, todo lo cual deberá efectuar durante la segunda quincena del mes de mayo.
+Artículo 82.- (Derogado por el artículo 4° del decreto ejecutivo N° 42175 del 27 de enero del 2020)
 (Así adicionado por el artículo 1° del decreto ejecutivo N° 1926 del 12 de agosto de 1971).

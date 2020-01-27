@@ -1,2 +1,2 @@
-Artículo 79.-Los documentos antes señalados, serán presentados en el curso del mes de abril; de no ser así procederá a cancelar la matrícula provisional otorgada, y se dará aviso al Director de la institución educativa correspondiente.
+Artículo 79.- (Derogado por el artículo 4° del decreto ejecutivo N° 42175 del 27 de enero del 2020)
 (Así adicionado por el artículo 1° del decreto ejecutivo N° 1926 del 12 de agosto de 1971).

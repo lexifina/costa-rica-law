@@ -1,1 +1,1 @@
-Artículo 51.-Para ser admitido como alumno regular de primer año en una institución de Enseñanza Media, se requiere poseer certificado de Conclusión de Estudios Primarios: obtenido en el país, o haber realizado estudios similares en el extranjero, parcial o totalmente, que el Consejo Superior de Educación haya reconocido como equivalentes, a solicitud del interesado.
+Artículo 51.- (Derogado por el artículo 4° del decreto ejecutivo N° 42175 del 27 de enero del 2020)

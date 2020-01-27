@@ -1,2 +1,2 @@
-Artículo 76.-La solicitud, firmada por el padre o la madre o la persona encargada del estudiante si es menor de edad, deberá ser remitida a la Oficialía Mayor del Consejo Superior de Educación a más tardar, en el, curso del mes de marzo y venir acompañada de una manifestación escrita del Director de la institución a la cual ingresará el petente, indicando que en la sección respectiva hay lugar disponible para él.
+Artículo 76.- (Derogado por el artículo 4° del decreto ejecutivo N° 42175 del 27 de enero del 2020)
 (Así adicionado por el artículo 1° del decreto ejecutivo N° 1926 del 12 de agosto de 1971).

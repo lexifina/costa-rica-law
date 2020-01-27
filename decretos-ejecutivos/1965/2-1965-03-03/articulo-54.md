@@ -1,1 +1,1 @@
-Artículo 54.-Los oyentes están obligados a guardar el comportamiento y las normas de disciplina en el colegio, y pueden ser retirados del mismo por disposición del Director si su presencia es perjudicial para la marcha de la institución.
+Artículo 54.- (Derogado por el artículo 4° del decreto ejecutivo N° 42175 del 27 de enero del 2020)

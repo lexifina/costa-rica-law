@@ -30,3 +30,4 @@ Reglamento General Establecimientos Oficiales de Educación Media
 | 15 | 1977-06-30 | Decreto Ejecutivo 7158 (1977-06-30) |
 | 16 | 1982-03-29 | Decreto Ejecutivo 13488 (1982-03-29) |
 | 17 | 1982-04-29 | Decreto Ejecutivo 13578 (1982-04-29) |
+| 18 | 2020-01-27 | Decreto Ejecutivo 42175 (2020-01-27) |

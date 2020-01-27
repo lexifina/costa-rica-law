@@ -1,3 +1,1 @@
-Artículo 60.-En todos los casos que contemplan los artículos precedentes, las calificaciones se ajustarán a una escala decimal numérica, cuya nota inferior será el "uno" y la superior "diez". Para una más exacta evaluación del aprovechamiento de los alumnos, todas sus notas serán calculadas y expresadas con decimales hasta centésimos.
-La calificación de los alumnos corresponde en cada caso al profesor de la respectiva asignatura o actividad. No obstante, en los dos primeros trimestres, de los años correspondientes al primer ciclo, no podrá ponerse nota inferior a "cuatro", excepto en el caso de comisión de fraude y en conducta.
-(Así reformado por el artículo 2° del decreto ejecutivo N° 11 del 20 de marzo de 1969).
+Artículo 60.- (Derogado por el artículo 2° del decreto ejecutivo N° 42175 del 27 de enero del 2020)

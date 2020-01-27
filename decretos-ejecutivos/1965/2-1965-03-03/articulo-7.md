@@ -11,7 +11,7 @@ e) Interponer el veto, por razones de oportunidad, conveniencia o legalidad, a l
 El veto deberá interponerse dentro del día hábil siguiente a la fecha en que se tomó el acuerdo y se comunicará a los miembros del Consejo mediante circular que contendrá las razones que justifiquen el ejercicio de este derecho.
 La interposición del veto implicará que el Consejo deberá reconsiderar el asunto en su sesión siguiente, y si este no compartiere las razones aducidas en el veto, mediante votación no inferior a las dos terceras partes del total de sus miembros, se elevará el asunto al Ministro de Educación quien resolverá en definitiva.
 (Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 7158 del 30 de junio de 1977).
-5) Convocar al Comité Asesor de la Dirección y presidir sus sesiones;
+5) (Derogado por el artículo 3° del decreto ejecutivo N° 42175 del 27 de enero del 2020);
 6) Presenciar lecciones de los profesores y asesorarlos en su labor;
 7) Calificar anualmente al personal de la institución, de acuerdo con las instrucciones, disposiciones y leyes vigentes;
 8) Conceder a los funcionarios y empleados de la institución, en casos urgentes y debidamente justificados, licencias que no excedan de tres días hábiles y comunicarlo al superior jerárquico;

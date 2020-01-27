@@ -1,1 +1,1 @@
-Artículo 5°_Los estudiantes que hubieren aprobado todos los cursos indicados en el respectivo plan de estudios, recibirán los títulos que determine el Consejo Superior de Educación.
+Artículo 5°_(Derogado por el artículo 2° del decreto ejecutivo N° 42175 del 27 de enero del 2020)

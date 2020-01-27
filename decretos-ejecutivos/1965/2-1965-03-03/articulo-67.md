@@ -1,1 +1,1 @@
-Articulo 67.-La nota de conducta inferior a seis, obtenida en dos bimestres, o en el último, así como el promedio final inferior a "seis", obligan al alumno a presentar examen en aquellas asignaturas en que el promedio sea inferior a "ocho".
+Articulo 67.- (Derogado por el artículo 2° del decreto ejecutivo N° 42175 del 27 de enero del 2020)

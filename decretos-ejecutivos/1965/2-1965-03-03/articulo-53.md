@@ -1,1 +1,1 @@
-Artículo 53.-En calidad de oyentes pueden ser admitidos, si las condiciones de la institución lo permiten en cada caso, a juicio del Director, aquellos jóvenes de un nivel similar de edad, que deseen atender las lecciones de cualquier asignatura y de cualquier año, sin otro propósito que el de mejorar su nivel cultural.
+Artículo 53.- (Derogado por el artículo 4° del decreto ejecutivo N° 42175 del 27 de enero del 2020)

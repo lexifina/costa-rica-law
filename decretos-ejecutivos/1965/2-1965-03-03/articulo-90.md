@@ -1,7 +1,6 @@
 CAPITULO XI
 Disposiciones Generales
-(*)Articulo 90.- La promoción de los alumnos de quinto año se regirá de acuerdo con lo dispuesto en el Reglamento respectivo. (Decreto Ejecutivo N° 6 del 16 de noviembre de 1955, reformado por los Decretos Ejecutivos N° 4 de 3 de diciembre de 1956 y N° 4 de 11 de febrero de 1964)".
-(*)(Este artículo fue derogado en lo correspondiente por el artículo transitorio 1° del decreto ejecutivo N° 9 del 20 de febrero de 1968).
+(*)Articulo 90.- (Derogado por el artículo 2° del decreto ejecutivo N° 42175 del 27 de enero del 2020)
 (Así corrida su numeración mediante artículo 1° del decreto ejecutivo N° 1926 del 12 de agosto de 1971, que lo traspasó del anterior artículo 75 al 90 actual).
 DECRETAN:
 Artículo 1°-Disponer la vigencia del anterior acuerdo del Consejo Superior de Educación para todos sus efectos.

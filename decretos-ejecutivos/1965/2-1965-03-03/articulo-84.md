@@ -1,2 +1,2 @@
-Artículo 84.-De todo lo actuado por el Ministerio de Educación Pública, se informará al Consejo Superior de Educación. Sin embargo, corresponderá al Ministerio, resolver definitivamente la situación escolar del gestionante.
+Artículo 84.- (Derogado por el artículo 4° del decreto ejecutivo N° 42175 del 27 de enero del 2020)
 (Así adicionado por el artículo 1° del decreto ejecutivo N° 1926 del 12 de agosto de 1971).

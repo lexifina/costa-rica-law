@@ -1,2 +1,1 @@
-Artículo 61.-En los casos de reclamo o apelación, el Comité de Evaluación solicitará al profesor respectivo, a la mayor brevedad, los antecedentes y documentos pertinentes y podrá dar por buena la calificación apelada, corregirla con base en errores de procedimiento técnico o numérico que se encuentren, o disponer, dando las razones para ello, que se realice una prueba escrita o de otro tipo que considere del caso, cuya elaboración y calificación asumirá el Comité. En estos casos el Comité puede asesorarse con los profesores que juzgue convenientes.
-(Así reformado por el artículo 2° del decreto ejecutivo N° 11 del 20 de marzo de 1969).
+Artículo 61.- (Derogado por el artículo 2° del decreto ejecutivo N° 42175 del 27 de enero del 2020)

@@ -12,7 +12,8 @@ Artículo 44.-Son atribuciones y obligaciones especiales de los profesores:
 11) Proporcionar informes sobre los alumnos del colegio cuando sea necesario, con el objeto de facilitar la solución de los problemas;
 12) Elaborar el material didáctico de su asignatura, de acuerdo con las normas establecidas por los respectivos Departamentos;
 13) Participar en aquellos estudios que tiendan a su perfeccionamiento profesional cuando el colegio los ofrezca o los recomiende;
-14) Formar parte de las comisiones y realizar los trabajos específicos que el Director o el Consejo les encomienden;
+14) Formar parte, según solicitud del director o directora, de las comisiones, comités, equipos de trabajo y afines que sean exigidos de forma expresa por disposición normativa o lineamientos generales emitidos por el Ministro o Ministra de Educación pública.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 42175 del 27 de enero del 2020)
 15) Asistir a las sesiones del Consejo y de los demás organismos de que formen parte y cumplir los acuerdos que se dicten;
 16) Mantener dentro y fuera del establecimiento, normas de vida compatibles con su decoro y su dignidad de educador;
 17) Planificar el trabajo de acuerdo con lo que establezca el Departamento correspondiente de la institución;

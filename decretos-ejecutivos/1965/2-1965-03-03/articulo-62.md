@@ -1,5 +1,1 @@
-Artículo 62.-Los alumnos deberán rendir pruebas extraordinarias, hasta en dos convocatorias, mediando entre ambas un período prudencial:
-a) En todas las materias en que hayan tenido nota final inferior a ocho, cuando la nota general de conducta hubiere sido inferior a seis en dos trimestres, o inferior a seis en el promedio anual.
-b) En las materias en que tuvieren una nota final menor a seis, siempre que no hubieren sido aplazados en más de tres asignaturas o actividades. Estas pruebas de recuperación serán rendidas en forma escrita y calificadas por un tribunal integrado por el profesor de la asignatura y otros dos profesores de la misma materia o de materias afines, designados por el Director. Dicho tribunal está en la obligación de entregar a la Secretaría del Liceo las pruebas debidamente corregidas y calificadas hasta 48 horas después de su administración.
-El tribunal puede disponer que la prueba sea complementada con otras de distinto tipo, según la índole de la asignatura. Las pruebas versarán sobre toda la materia estudiada en el año y serán calificadas con las palabras "aprobado" o "improbado", sin especificación numérica. (Art. 352 del Código de Educación).
-(Así reformado por el artículo 2° del decreto ejecutivo N° 11 del 20 de marzo de 1969).
+Artículo 62.- (Derogado por el artículo 2° del decreto ejecutivo N° 42175 del 27 de enero del 2020)

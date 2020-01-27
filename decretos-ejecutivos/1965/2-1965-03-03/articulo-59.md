@@ -1,2 +1,1 @@
-Artículo 59.-La calificación anual del alumno en cada asignatura será la que resulte del promedio de las tres notas trimestrales. Cuando la calificación anual sea inferior a 6, el alumno será aplazado y cuando sea igual a 6 ó mayor, se tendrá por aprobado; sin embargo, la nota inferior a 6 en el tercer trimestre produce por sí sola la calificación de aplazado, cualquiera que sea el promedio.
-(Así reformado por el artículo 2° del decreto ejecutivo N° 11 del 20 de marzo de 1969).
+Artículo 59.- (Derogado por el artículo 2° del decreto ejecutivo N° 42175 del 27 de enero del 2020)
