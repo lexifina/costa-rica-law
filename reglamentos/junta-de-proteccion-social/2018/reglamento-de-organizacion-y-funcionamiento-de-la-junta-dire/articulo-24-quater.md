@@ -1,0 +1,2 @@
+Artículo 24quater.—Los integrantes de los comités corporativos y de las comisiones de trabajo, deberán respetar los principios elementales de objetividad, imparcialidad, transparencia, resguardo de la hacienda pública y probidad, con el fin de que sus actuaciones sean apegadas a la ley, resguardándose de no intervenir en asuntos donde tengan algún interés personal o familiar, directa o indirectamente.
+(Así adicionado en sesión N° 06 del 27 de enero de 2020)
