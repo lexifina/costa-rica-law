@@ -12,4 +12,4 @@ Fijación del monto mínimo de la hora profesional de los
 miembros del Colegio de Ingenieros Agrónomos de Costa Rica
 y su metodología de actualización.
 Artículo 1º—Se establece en un monto mínimo de ¢22.000,00 (veintidós mil colones netos) el valor de la hora profesional, que los miembros del Colegio de Ingenieros Agrónomos de Costa Rica deberán cobrar por la prestación de servicios privados en Ciencias Agropecuarias y Forestales.
-(Nota de Sinalevi: Mediante acuerdo N° 6 de la sesión N° 01-2019 del 14 de enero del 2019, se acordó actualizar el monto mínimo de ¢25.500,00 (veinticinco mil quinientos colones) el valor de la hora profesional, que los miembros del Colegio de Ingenieros Agrónomos de Costa Rica deberán cobrar por la prestación de los servicios privados que brinden)
+(Nota de Sinalevi: Mediante acuerdo N° 05-04-2020 de la sesión N° 04-2020 del 27 de enero del 2020, se acordó actualizar el monto mínimo de ¢26.000,00 (veintiséis mil colones) el valor de la hora profesional, que los miembros del Colegio de Ingenieros Agrónomos de Costa Rica deberán cobrar por la prestación de los servicios privados que brinden)
