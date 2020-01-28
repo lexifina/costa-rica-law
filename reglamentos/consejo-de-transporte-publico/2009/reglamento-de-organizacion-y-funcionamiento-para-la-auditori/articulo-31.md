@@ -1,1 +1,0 @@
-Artículo 31.—Responsabilidades con respecto a la gestión de la Auditoría Interna. El Auditor Interno y el funcionario de Auditoría asignado a un área de trabajo, son los responsables, en ese orden, del correcto cumplimiento de las funciones encomendadas a la Auditoría Interna. El Auditor Interno podrá delegar autoridad y exigir responsabilidad.

@@ -1,1 +1,0 @@
-Artículo 78.—De la información y documentación. La información, documentación y otras evidencias de las investigaciones que se efectúen y cuyos resultados puedan originar la apertura de un procedimiento administrativo, serán confidenciales durante la formulación del informe respectivo.

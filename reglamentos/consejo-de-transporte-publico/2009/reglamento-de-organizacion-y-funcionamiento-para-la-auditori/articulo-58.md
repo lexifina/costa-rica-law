@@ -1,1 +1,0 @@
-Artículo 58.—Comunicación de los resultados en materia confidencial. Cuando se trate de estudios de naturaleza confidencial o aquellos que revelen presunción de responsabilidad, civil o penal, la comunicación de los resultados quedará a criterio del Auditor sin perjuicio de las disposiciones que a nivel interno emita para su regulación.

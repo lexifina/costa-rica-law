@@ -1,3 +1,0 @@
-SECCIÓN VI
-Relaciones y coordinaciones
-Artículo 36.—Información y relación con órganos externos. El Auditor Interno goza de total independencia y libertad para la comunicación y el intercambio de información con la Contraloría General de la República en el ejercicio de sus competencias, así como con otras instancias externas e internas, sin perjuicio de la coordinación que al respecto deba darse; de igual forma regulara la relación de los funcionarios de la Auditoría Interna con las dependencias internas o externas de la Institución, con la finalidad de que las mismas se establezcan en apego a la normativa jurídica y técnica aplicable.

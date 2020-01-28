@@ -1,1 +1,0 @@
-Artículo 71.—Solicitud de aclaración. En caso de determinar la Auditoría que existe imprecisión de los hechos, se otorgará a la parte un plazo no menor de 10 días hábiles para que el denunciante complete su información o de lo contrario se archivará o desestimará la gestión sin perjuicio de que sea presentada con mayores elementos posteriormente, como una nueva gestión.

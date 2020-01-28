@@ -1,1 +1,0 @@
-Artículo 40.—De la coordinación para la realización de labores especializadas. La Auditoría Interna deberá coordinar, cuando así lo estime necesario, la incorporación de profesionales, técnicos o estudiantes de diferentes disciplinas, funcionarios o no del CTP, para llevar a cabo labores de su especialidad en apoyo a las funciones y responsabilidades de auditoría.

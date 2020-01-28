@@ -1,1 +1,0 @@
-Artículo 3º—Ámbito de aplicación. El presente Reglamento es de aplicación obligatoria para todos los funcionarios de la Auditoría Interna del Consejo de Transporte Público y para los funcionarios de la administración activa en lo que resulte aplicable.

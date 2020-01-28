@@ -1,3 +1,0 @@
-SECCIÓN V
-Del personal de Auditoría
-Artículo 26.—Del comportamiento de los servidores de Auditoría. Los funcionarios de Auditoría Interna desempeñarán sus funciones de modo que su labor sea medio de mejoramiento, funcionamiento y consecución en general, del logro de los objetivos institucionales. Por ello actuarán con buen trato verbal, tacto y cortesía en el desempeño de sus funciones, sin que por ello se pierda o desvíe la objetividad del trabajo.

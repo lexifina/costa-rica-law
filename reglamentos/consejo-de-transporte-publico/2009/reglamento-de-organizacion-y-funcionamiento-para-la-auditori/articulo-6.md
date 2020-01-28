@@ -1,1 +1,0 @@
-Artículo 6º—Facultades del Auditor Interno. Corresponderá al Auditor Interno, velar por el mantenimiento actualizado de la visión, misión y políticas que regirán el accionar de la Auditoría Interna. Así como los enunciados o códigos de ética que deben tener en cuenta los funcionarios de la Auditoría en sus distintas relaciones internas y externas.

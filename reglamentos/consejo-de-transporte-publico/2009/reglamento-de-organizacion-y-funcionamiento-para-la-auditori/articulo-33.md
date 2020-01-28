@@ -1,1 +1,0 @@
-Artículo 33.—Creación de plazas. Para la creación y ocupación de nuevas plazas en la Auditoría Interna se deberá considerar en todo momento sus necesidades reales, el Auditor Interno propondrá ante el Jerarca la solicitud y no podrán ser aplicados en perjuicio del funcionamiento del Sistema de Control Interno Institucional.

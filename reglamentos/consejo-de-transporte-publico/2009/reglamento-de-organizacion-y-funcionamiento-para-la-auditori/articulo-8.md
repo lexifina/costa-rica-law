@@ -1,1 +1,0 @@
-Artículo 8º—De la objetividad. Es deber de los funcionarios de la Auditoría Interna realizar sus actuaciones en total apego a la normativa legal, técnica y ética que rige la materia, evitando conflicto de intereses.
