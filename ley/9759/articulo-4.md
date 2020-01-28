@@ -1,0 +1,1 @@
+ARTÍCULO 4- Dicho inmueble se utilizará para la construcción del ebais de Sabalito por la Caja Costarricense de Seguro Social (CCSS). En caso de que se disuelva la persona jurídica donataria, la propiedad del terreno donado volverá a ser de la Municipalidad de Coto Brus y deberá inscribirse esta condición y limitación como un gravamen sobre este inmueble.

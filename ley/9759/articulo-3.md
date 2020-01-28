@@ -1,0 +1,1 @@
+ARTÍCULO 3- Se dona el inmueble segregado y desafectado de uso público a la Caja Costarricense de Seguro Social (CCSS), cédula jurídica número cuatro-cero cero cero-cero cuatro dos uno cuatro siete (NY 4-000-042147).
