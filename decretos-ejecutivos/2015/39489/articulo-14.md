@@ -1,3 +1,4 @@
-Artículo 14.—Actas del Consejo de Representantes de Autoridades Científicas CITES. De las sesiones del Consejo de Representantes de Autoridades Científicas CITES, el Secretario del Consejo deberá llevar un respaldo documental.
-Los acuerdos tomados por el Consejo de Representantes de Autoridades Científicas CITES se consignarán en el acta respectiva debiendo consignar de manera expresa el número de votos a favor, número de votos en contra, abstenciones y la motivación de las mismas.
+Artículo 14. Actas del Consejo de Representantes de Autoridades Científicas CITES. De las sesiones del Consejo de Representantes de Autoridades Científicas CITES, el Secretario del Consejo deberá llevar un respaldo documental.
+Los acuerdos tomados por el Consejo de Representantes de Autoridades Científicas CITES se consignarán en el acta respectiva debiendo consignar de manera expresa el número de votos a favor, número de votos en contra, abstenciones de conformidad a los numerales 5 6 y 57 de la Ley General de la Administración Pública Nº6227 y la motivación de las mismas.
 Dichos acuerdos deberán ser formalmente comunicados a la Autoridad Administrativa dentro del plazo de 5 días hábiles posteriores a su firmeza.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 42200 del 28 de enero del 2020)

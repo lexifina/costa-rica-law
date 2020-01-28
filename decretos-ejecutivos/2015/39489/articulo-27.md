@@ -1,2 +1,1 @@
-Artículo 27.—Vigencia. Rige a partir de su publicación en el Diario Oficial La Gaceta.
-Dado en la Presidencia de la República.—San José, a los dieciséis días del mes de diciembre de dos mil quince.
+Artículo 27.— (Nota de Sinalevi: El texto de este numeral debe de ser consultado en el artículo 26, ya que mediante el artículo 2° del decreto ejecutivo N° 42200 del 28 de enero del 2020, se ordenó derogar el artículo 22 original y correr la numeración de los restantes artículos.)
