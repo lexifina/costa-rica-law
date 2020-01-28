@@ -1,0 +1,1 @@
+ARTÍCULO 5- El Benemérito Cuerpo de Bomberos tendrá un plazo de diez años para que construya la obra de la Estación de Bomberos de Puntarenas y la Unidad Naval; caso contrario, el dominio volverá a la Municipalidad de Puntarenas.

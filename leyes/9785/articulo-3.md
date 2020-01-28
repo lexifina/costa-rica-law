@@ -1,0 +1,1 @@
+ARTÍCULO 3- El bien descrito en el artículo 2 se desafecta de su uso público anterior para ser donado al Benemérito Cuerpo de Bomberos de Costa Rica, según lo dispuesto en el artículo 1 de esta ley, que lo destinará, exclusivamente, a que construya sus instalaciones (Estación de Bomberos de Puntarenas y la Unidad Naval), para la prestación de sus servicios en Puntarenas.
