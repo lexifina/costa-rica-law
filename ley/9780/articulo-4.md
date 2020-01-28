@@ -1,0 +1,2 @@
+ARTÍCULO 4- Creación de la Comisión Nacional para la Prevención y Atención de Ahogamientos
+Se crea la Comisión Nacional para la Prevención y Atención de Ahogamientos, en adelante la Comisión, como un órgano técnico adscrito al Instituto Costarricense de Turismo (ICT), encargado de definir los lineamientos y las acciones de prevención y atención de ahogamientos, mediante la implementación de unidades de guardavidas y la señalización informativa en las playas nacionales.
