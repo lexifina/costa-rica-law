@@ -1,6 +1,6 @@
 # Ley para trasladar recursos al régimen no contributiva de pensiones, administrado por la Caja Costarricense de Seguro Social (CCSS)
 
-Ley N° 9578 del 2018-06-22. SINALEVI, ficha 86882: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=86882&param2=119318&param3=1>.
+Ley N° 9578 del 2018-06-22. SINALEVI, ficha 86882: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=86882&param2=122021&param3=1>.
 
 Publicada en La Gaceta N° 132 del 2018-07-20.
 
@@ -10,3 +10,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | --- | --- | --- | --- |
 | 1 de 3 | 2018-07-20 | Ley 9578 | 2018-06-22 |
 | 2 de 3 | 2019-12-11 | Sala Constitucional, resolución 24684 (2019-12-11) | 2019-12-11 |
+| 3 de 3 | 2020-01-28 | Sala Constitucional, resolución 001752 (2020-01-28) | 2020-01-28 |
