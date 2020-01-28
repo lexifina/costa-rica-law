@@ -1,2 +1,0 @@
-Artículo 119. —Archivo y custodia de los contratos. Una vez recibido por parte de la Dirección Ejecutiva, el contrato refrendado o aprobado, ésta lo remitirá a la Proveeduría Institucional, quien se encargará de entregar una copia al contratista, otra a la unidad solicitante o fiscalizadora, e incorporará una copia al expediente de la contratación administrativa correspondiente.
-El original será custodiado por la Proveeduría Institucional en el respectivo expediente de contratación administrativa

@@ -1,7 +1,9 @@
-Artículo 37. —Ejecución de la garantía de participación. La garantía de participación se ejecutará en aquellos casos en que el oferente incumpla sus obligaciones. Son causales de ejecución, entre otras, las siguientes:
-a) Que se retire una oferta, que no ha sido excluida del concurso por la Proveeduría Institucional del CTP.
-b) Que se brinde información falsa en la oferta.
-c) Que quien cotice esté cubierto por una causal de prohibición.
-d) Que el oferente no cumpla con la prevención de requisitos dentro del plazo otorgado para ello.
-e) Que el contratista, de manera injustificada, se niegue a suscribir el respectivo contrato; brindar la garantía de cumplimiento o bien a satisfacer otros requisitos necesarios para que el contrato sea eficaz.
-En caso de ejecución de garantías de participación cuando se de alguno de los casos anteriores, la Proveeduría Institucional dará audiencia por el plazo de tres días hábiles al oferente sobre la causal imputada señalando los hechos concretos y las respectivas pruebas, luego el Proveedor Institucional remite a la Dirección de Asuntos Jurídicos un resumen señalando el incumplimiento del oferente con el propósito de que elaboren un informe en un plazo de cinco días hábiles y esta Dirección emitirá resolución motivada, refiriéndose de manera expresa a los argumentos invocados por el interesado, contra lo cual, no habrá ningún tipo de recurso . Una vez realizado el informe, la Dirección de Asuntos Jurídicos lo remite a la Jefatura de la Proveeduría Institucional, esta recibe el informe que detalla la resolución para el cobro o no de las garantías. Envía nota con la resolución al Departamento Financiero solicitando el cobro respectivo y en caso de que no proceda el cobro lo archiva en el expediente, posterior a esto se archiva copia de la resolución y de la nota de cobro enviada al Departamento Financiero en el expediente.
+SECCION SEGUNDA
+LICITACION ABREVIADA
+Artículo 37.- Aprobación de solicitudes de contratación: las aprobaciones de las solicitudes de contratación deberán ser remitidas vía SICOP y contará con las siguientes aprobaciones
+1. Unidad Técnica Solicitante: Jefatura de Departamento o Dirección responsable del proceso, dará aprobación obligatoria a todas las solicitudes de Contratación Administrativa.
+2. Proveedor Institucional: Proveedor Institucional dará aprobación obligatoria a todas las
+solicitudes de Contratación Administrativa.
+Después de darse las aprobaciones anteriores sigue la aprobación final, la cual se definirá por la cuantía o monto económico y será uno de los siguientes supuestos:
+3. Director Ejecutivo: cuando el monto sea menos del 50% del límite económico establecido para la Licitación Abreviada
+4. Junta Directiva: Cuando por monto sea igual o mayor al 50% del límite económico establecido por la Contraloría General de la República para la Licitación Abreviada Todas las aprobaciones se tramitarán por el Sistema Integrado de Compras Públicas (SICOP).

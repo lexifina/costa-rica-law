@@ -14,3 +14,4 @@ Reglamento interno de contratación administrativa del Consejo de Transporte Pú
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-07-02 | la propia norma |
+| 2 | 2020-01-28 | Reglamento 7 (2020-01-28) |

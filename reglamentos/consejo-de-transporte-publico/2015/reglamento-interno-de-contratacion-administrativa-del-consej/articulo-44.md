@@ -1,24 +1,4 @@
-SECCIÓN CUARTA
-EL CARTEL
-Artículo 44. —Concepto y Contenido. El cartel es el reglamento específico de la contratación que se promueve y se entienden incorporadas a su clausulado todas las normas jurídicas y principios constitucionales aplicables y pertinentes al respectivo procedimiento. Deberá constituir un cuerpo de especificaciones técnicas, claras, suficientes, concretas, objetivas y amplias en cuanto a la oportunidad de participar.
-La Proveeduría Institucional será la responsable de elaborar el cartel del procedimiento de contratación que corresponda, con la participación de la unidad usuaria, técnica, legal y financiera.
-El cartel deberá contener al menos lo siguiente:
-a) Un encabezado que contenga la identificación del CTP como administración promovente, la indicación del tipo y número del concurso y la descripción del objeto contractual.
-b) Indicación de la oficina que tramita el procedimiento y que proporcionará la información adicional necesaria respecto de las especificaciones y documentación relacionada.
-c) El día, hora límite y dirección, para la presentación de ofertas y garantías de participación; así como el número de copias que deberá adjuntarse a la oferta original, cuando así proceda.
-d) El porcentaje de las garantías que se deben rendir, cuando se requieran.
-e) Indicación de las especies fiscales y demás timbres que deba aportar el oferente.
-f) Indicación de cualquier opción de compra futura, y de ser posible, una estimación del momento en que se podrán ejercer dichas opciones.
-g) Descripción de la naturaleza y cantidad de los bienes o servicios objeto del procedimiento, incluidas especificaciones técnicas que podrán acompañarse de planos, diseños e instrucciones correspondientes. Las especificaciones técnicas se establecerán prioritariamente en términos de desempeño y funcionalidad. El sistema internacional de unidades, basado en el sistema métrico decimal es de uso obligatorio.
-h) Sistema de valoración y comparación de las ofertas. Cuando únicamente se considere el precio, bastará una simple indicación al respecto.
-i) Solicitud de muestras, cuando se estimen indispensables.
-j) Indicación precisa, de los documentos que se deberán aportar para la evaluación de la idoneidad del oferente en aspectos económicos, técnicos u otros.
-k) Términos de pago.
-l) Plazo de vigencia de la oferta y plazo de adjudicación.
-m) Lugar y fecha de inicio y conclusión de la entrega de los bienes o servicios, cuando así proceda.
-n) Indicación de que se reserva el derecho de adjudicar parcialmente una misma línea o bien parte de un mismo objeto de conformidad con lo establecido en la decisión inicial. En este último caso, esta alternativa será posible cuando el objeto lo permita y ello no afecte su funcionalidad. En ambos supuestos se exigirá, al menos, los precios unitarios.
-No será necesario advertir en el cartel, la posibilidad de adjudicar parte de la totalidad de las líneas contempladas en éste.
-La obligación de participar en la totalidad de los renglones, solamente será posible cuando exista una justificación técnica para ello y así haya sido advertido en el cartel.
-o) El uso de medios electrónicos si resulta procedente, la posibilidad de presentar ofertas vía fax deberá habilitarse expresamente en el cartel, previéndose para ello un plazo de confirmación por escrito. En ningún caso se aceptará la presentación de ofertas por la vía telefónica.
-El cartel no podrá imponer restricciones, ni exigir el cumplimiento de requisitos que no sean indispensables o resulten convenientes al interés público, si con ello limita las posibilidades de concurrencia a eventuales participantes.
-Las medidas, límites, plazos, tolerancia, porcentajes u otras disposiciones de similar naturaleza que deba contener el cartel, se establecerán con la mayor amplitud que permita la clase de negocio de que se trate, en lo posible utilizándolos como punto de referencia. Asimismo, respecto de los tipos conocidos de materiales, artefactos, o equipos, cuando únicamente puedan ser caracterizados total o parcialmente mediante nomenclatura, simbología, signos distintivos no universales, o marca, ello se hará a manera de referencia; y aun cuando tal aclaración se omitiere, así se entenderá.
+Artículo 44.- Cronograma de actividades y plan de trabajo para la Licitación Abreviada. Para el eficiente y eficaz cumplimiento de las funciones de la Proveeduría Institucional del Consejo de Transporte Público y como responsable de cumplir en forma eficiente y oportuna con las funciones de tramitación de los procedimientos de Contratación Administrativa, todas las unidades involucradas en el proceso de Contratación Administrativa están obligadas a cumplir con los tiempos estipulados en el cronograma de actividades y plan de trabajo para la Licitación Abreviada, el cual se encuentra publicado en la intranet del Consejo de Transporte Público, ubicándose de la siguiente manera:
+1. Procedimientos
+2. Pestaña denominada "Adquisición de Bienes y Servicios".
+3. Procedimientos

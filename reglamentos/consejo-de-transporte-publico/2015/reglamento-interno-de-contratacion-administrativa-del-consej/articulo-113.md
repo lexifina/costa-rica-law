@@ -1,1 +1,0 @@
-Artículo 113. —De los contratos. Una vez que el CTP determine la formalización contractual, se deberán integrar al documento contractual, los términos relevantes del cartel y de la oferta adjudicada, para ordenar los derechos, las obligaciones y demás datos de interés que se encuentran dispersos en el cartel, según la estructura que éste tenga.

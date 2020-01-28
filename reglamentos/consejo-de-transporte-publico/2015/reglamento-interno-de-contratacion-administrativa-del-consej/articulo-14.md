@@ -1,5 +1,5 @@
-Artículo 14.- De los requisitos de la solicitud de inicio de procedimiento de contratación administrativa. Cada Solicitud de Inicio de Procedimiento de Contratación Administrativa que se presente en la Proveeduría Institucional deberá cumplir con lo estipulado en el artículo 8 del RLCA. No se tramitará ninguna solicitud de esta índole, si no se cumple con los requisitos allí establecidos.
-Además deberán incluir la respectiva solicitud de bienes y servicios con la disponibilidad presupuestaria, la cual debe cumplir con los siguientes requisitos:
-1.- Enunciación del tipo de bien, servicio u obra requerido, de acuerdo con las características establecidas en el catálogo de artículos en uso.
-2.- El código, el nombre y el monto de la partida presupuestaria que cubrirá el costo estimado de la compra, debidamente autorizado por el Encargado de Presupuesto y con las respectivas firmas autorizadas que se encuentren vigentes en la normativa aplicable.
-3.- La justificación de la compra deberá estar asociada al Plan Anual de Compras, o una justificación amplia del motivo por el cual no fue contemplada en el plan anual de compras publicado por la Proveeduría Institucional a inicio de año.
+CAPITULO IV
+REQUISITOS PREVIOS DE LA SOLICITUD DE CONTRATACIÓN Y TRAMITE POSTERIOR
+A LA SOLICITUD DE CONTRATACIÓN
+Artículo 14.- De las Solicitudes de contratación. Todo procedimiento de contratación que lleve a cabo la Proveeduría Institucional, deberá estar amparado a la correspondiente solicitud que haya realizado previamente la Unidad Técnica Solicitante, la cual deberá ser tramitada por el Sistema Integrado de Compras Públicas (SICOP).
+Cada Unidad Técnica Solicitante remitirá vía electrónica la solicitud de inicio del procedimiento de Contratación Administrativa a la Proveeduría Institucional por medio del Sistema Integrado de Compras Públicas SICOP. Dicha solicitud deberá ser remitida a la Proveeduría Institucional, con indicación expresa de las razones y necesidad de la adquisición determinada, debidamente firmada por la Unidad Técnica Solicitante, por cuanto a que toda solicitud de compra debe responder a una necesidad justificada y razonada.

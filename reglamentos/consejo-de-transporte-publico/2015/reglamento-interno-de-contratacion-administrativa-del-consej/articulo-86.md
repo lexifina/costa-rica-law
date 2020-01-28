@@ -1,3 +1,0 @@
-Artículo 86.- Plazo para recepción de ofertas. Si no está previsto en el cartel, el plazo mínimo para recibir ofertas será de quince días hábiles, contado desde el día siguiente de la publicación del aviso a participar hasta el día y hora de la apertura de las ofertas, inclusive.
-En los plazos anteriores, no se cuenta el día de la publicación y sí el del vencimiento.
-Una vez publicado el aviso a concursar, la Proveeduría Institucional del CTP dispondrá únicamente de tres oportunidades para modificar de oficio el pliego de condiciones o para conferir prórrogas al plazo de recepción de ofertas, las cuales deben ser publicadas en el Diario Oficial la Gaceta.

@@ -1,2 +1,1 @@
-Artículo 31. —Mecanismos de pago. La Administración, podrá utilizar cualquier medio de pago con la condición de que resulte seguro para ambas partes, incluidos los medios electrónicos.
-La Administración, detallará en el cartel los medios de pago que utilizará para cancelar sus obligaciones, a fin de que éstos sean conocidos.
+Artículo 31.- Publicación. la invitación a participar, las modificaciones al cartel y el acto de adjudicación, se publicarán en el Sistema Integrado de Compras Públicas (SICOP).

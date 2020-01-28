@@ -1,4 +1,12 @@
-Artículo 55. —Apertura de ofertas y aclaraciones. Se tendrá por cerrado el plazo de recepción de ofertas a la hora y fecha señaladas en el cartel. De inmediato, la Proveeduría Institucional procederá a realizar la apertura de ofertas correspondientes.
-La apertura de las ofertas se realizará en la Proveeduría Institucional en presencia de los interesados que tengan a bien asistir. A ésta podrán asistir, funcionarios de las dependencias interesadas. Toda persona que asista deberá demostrar su condición, ya sea como interesado o bien como representante de las dependencias interesadas. Los oferentes o sus representantes tendrán derecho a hacer constar sus observaciones en el acta digital, sin que sea procedente resolver en el mismo acto las preguntas y reclamos que dirijan, aunque sí deben considerarse dentro del estudio de ofertas.
-Cuando se acuda a la contratación por medios electrónicos, la Proveeduría Institucional debe asegurarse que los sistemas utilizados garanticen la apertura de ofertas en la hora y fecha señalada y que una vez que se hubiese dado ese acto, se permita conocer las generalidades de las ofertas presentadas.
-Con posterioridad al cierre del plazo de recepción de las ofertas, no se admitirá el retiro ni la modificación de éstas, pero sí las aclaraciones que presenten los participantes por su propia iniciativa o a petición del CTP, con tal que no impliquen alteración de sus elementos esenciales.
+SECCION SEGUNDA
+SOBRE APROBACIONES DE SOLICITUDES DE CONTRATACIÓN, REVISIÓN DE
+CARTEL/OFERTA Y COMPETENCIAS PARA ADJUDICAR PARA MATERIAS EXCLUIDAS
+DE LOS PROCEDIMIENTOS ORDINARIOS DE CONTRATACIÓN.
+Artículo 55.- Aprobación de solicitudes de contratación. las aprobaciones de las solicitudes de contratación derivadas de procesos que se encuentren en el capítulo IX del Reglamento a la Ley de Contratación Administrativa "Materias excluidas de los procedimientos ordinarios de contratación" se regirán de la siguiente manera:
+Aprobaciones de solicitudes de contratación:
+1. Unidad Técnica Solicitante: Jefatura de Departamento o Dirección responsable del proceso, dará aprobación obligatoria a todas las solicitudes de Contratación Administrativa, independiente de la cuantía del proceso.
+2. Proveedor Institucional: Cuando el monto sea igual o menor al 50% del límite económico establecido por la Contraloría General de la República para la Contratación Directa, en este caso esta sería la última aprobación, de no ser así debe incluirse alguna de las dos aprobaciones que a continuación se mencionan.
+Después de darse las aprobaciones anteriores sigue la aprobación final de la solicitud de contratación la cual se definirá por la cuantía del proceso y será alguna de las mencionadas a continuación:
+3. Director Ejecutivo: Cuando por monto supere el 50% del límite económico establecido por la Contraloría General de la República para la Contratación Directa y menos del 50% del límite económico establecido para la Licitación Abreviada.
+4. Junta Directiva: Cuando por monto sea igual o mayor al 50% del límite económico establecido por la Contraloría General de la República para la Licitación Abreviada.
+Todas las aprobaciones se tramitarán por el Sistema Integrado de Compras Públicas (SICOP).

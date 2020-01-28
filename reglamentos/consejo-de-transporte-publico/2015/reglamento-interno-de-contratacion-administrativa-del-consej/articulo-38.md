@@ -1,4 +1,1 @@
-Artículo 38. —Garantía de cumplimiento. Cuando lo estime conveniente o necesario para salvaguardar el interés institucional, la Proveeduría Institucional podrá solicitar en el cartel una garantía de cumplimiento hasta un máximo de un 10% del monto adjudicado o por una suma fija. La garantía de cumplimiento respalda la correcta ejecución del contrato, conforme la normativa vigente.
-En caso de oferta conjunta, cada interesado podrá garantizar solo su parte del negocio. Tratándose de oferta en consorcio se rendirá una garantía que respalde el cumplimiento de manera solidaria.
-Si el objeto contractual aumenta o disminuye, la Administración deberá prevenir al contratista sobre el ajuste de la respectiva garantía de cumplimiento.
-Es una obligación del contratista mantener vigente la garantía de cumplimiento mientras no se haya recibido el objeto del contrato, situación que corresponde vigilar a la Proveeduría Institucional.
+Artículo 38.- Publicación. la invitación a participar, las modificaciones al cartel y el acto de adjudicación, se publicarán en el Sistema Integrado de Compras Públicas (SICOP).

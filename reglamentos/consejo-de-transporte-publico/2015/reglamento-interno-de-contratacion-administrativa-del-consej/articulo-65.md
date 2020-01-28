@@ -1,5 +1,7 @@
-Artículo 65. —Plazo y competencia para dictar el acto final. El acto final se dictará dentro del plazo máximo fijado en el cartel. Ese plazo podrá prorrogarse por un período igual y por una sola vez, siempre y cuando se acrediten razones de interés público para tomar esa decisión. De dictarse el acto fuera de ese plazo se deberá iniciar la investigación preliminar que corresponda, no obstante el acto dictado será válido pese a que se dicte extemporáneamente.
-El acto final, sea de adjudicación, desierto o infructuoso, será emitido de la siguiente manera:
-Proveedor Institucional: cuando el monto sea menor o igual al cincuenta por (50%) del límite económico fijado por la Contraloría General de la República para las Contrataciones Directas.
-Director Ejecutivo: cuando el monto de la contratación Directa supere el 50% del límite económico establecido para la contratación directa y menos del 50% del límite económico establecido para la Licitación Abreviada
-Junta Directiva: sea mayor o igual al cincuenta (50%) por ciento de la Licitación Abreviada y para todas las Licitaciones Públicas.
+Artículo 65.- Contrato u orden de compra. La formalización contractual se realizará cuando resulte imprescindible para el correcto entendimiento de los alcances de los derechos y las obligaciones contraídas por las partes; cuando por seguridad jurídica, en razón del objeto, sea necesario; por tal motivo, la Proveeduría Institucional del Consejo de Transporte Público, tramitará contratos por medio del Sistema Integrado de Compras SICOP, en los siguientes supuestos:
+a. Obra pública.
+b. Contratos de ejecución continuada, entre ellos arrendamiento y servicios
+c. Cuando por disposición de la Contraloría General de la República en razón de sus labores de fiscalizador de la Hacienda Pública así lo requiera.
+Dicho contrato será confeccionado por el Asesor Legal del Departamento de Proveeduría o en su defecto el Departamento de Asuntos Jurídicos y firmado por la Jefatura del Departamento de Asuntos Jurídicos, por el representante legal de la contratante y por el Director Ejecutivo.
+Todos los demás procesos la Proveeduría Institucional confeccionará orden de compra por medio del Sistema Integrado de Compras Públicas SICOP y tendrá las aprobaciones del Jefe del Departamento Financiero y del Proveedor Institucional.
+Se deberán cumplir con los plazos establecidos en los formularios publicados en la intranet del Consejo de Transporte Público.

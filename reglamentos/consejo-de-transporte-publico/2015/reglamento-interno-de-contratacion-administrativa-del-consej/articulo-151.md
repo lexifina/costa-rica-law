@@ -1,1 +1,0 @@
-Artículo 151.- Procedimientos para las sanciones a servidores del CTP. Las sanciones a los funcionarios del CTP se substanciarán siguiendo los procedimientos establecidos en la LGAP y el RLCA y lo que al respecto señale el Estatuto del Servicio Civil y su reglamento.

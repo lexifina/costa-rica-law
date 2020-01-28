@@ -1,5 +1,0 @@
-Artículo 128. —Requisito de las facturas. Es obligación la Proveeduría Institucional en conjunto con los miembros de la Comisión Contraparte (Unidad Solicitante) y Departamento Financiero, verificar que las facturas remitidas para su pago cumplan con los requisitos de forma y contenido que establecen la normativa que le es aplicable, y contengan además:
-1. La indicación de la fecha de emisión del documento cobratorio, que el deudor es el CTP.
-2. La descripción clara y precisa de los bienes, servicios u obras objeto del cobro, incluyendo cantidades, la contratación o procedimiento en que se originó (número, tipo y objeto de la contratación, número y fecha de la orden de compra u otros que permitan determinar el origen de la obligación).
-3. La leyenda de que la compra está exenta de los impuestos de consumo y de ventas o los que correspondan.
-4. El encargado o ejecutor del proyecto, deberá indicar si se trata de un pago parcial o cancelación. Para las cancelaciones deberá indicar las reversiones o sobrantes, de existir, aportando los originales correspondientes.

@@ -1,1 +1,3 @@
-Artículo 21. —Trámite posterior a la decisión inicial. Una vez adoptada la decisión inicial y cumplidos los requisitos previos, el expediente administrativo se trasladará a la Proveeduría quien conducirá el procedimiento de contratación administrativa, y será la responsable de verificar que el procedimiento de contratación administrativa sea el adecuado de conformidad con la ley, así como el cumplimiento de los requisitos del Programa de Adquisiciones, y conformará el expediente respectivo.
+CAPITULO VII
+LA OFERTA
+Artículo 21.- Ofertas base y alternativas, ofertas en conjunto, ofertas en consorcio, experiencia en consorcios y responsabilidad en consorcios. El CTP permitirá la presentación de cualquiera de estas ofertas, siempre que cumplan con lo dispuesto en el RLCA.

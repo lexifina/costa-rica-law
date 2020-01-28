@@ -1,3 +1,0 @@
-Artículo 121.- Modificación del contrato. El CTP podrá aumentar, disminuir o modificar la prestación objeto del contrato en razón de un interés justificado de acuerdo con lo dispuesto por el artículo 12 de la LCA y artículos 200 y 201 del RLCA. Por vía de modificación no se podrá variar el objeto del negocio.
-La modificación deberá ser aprobada y confeccionada por la Proveeduría Institucional, solicitada previamente por la Unidad Solicitante responsable de la contratación, si se trata de una variación superficial o formal respecto de las condiciones pactadas, por estar referida a aspectos de detalle del contrato.
-La variación de condiciones específicas o relevantes del contrato deberá ser autorizada por el Director Ejecutivo o la Junta Directiva, según corresponda.

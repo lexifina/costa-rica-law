@@ -1,4 +1,0 @@
-SECCION QUINTA
-FISCALIZACIÓN DE LA EJECUCION CONTRACTUAL Y PROCEDIMIENTO EN CASO DE INCUMPLIMIENTOS
-Artículo 135. —Fiscalización de la ejecución contractual. La Unida Solicitante o Contraparte Técnica es la responsable de verificar los plazos y condiciones pactadas en el contrato. Ellas son las responsables de recibir los bienes, obras y servicios contratados debiendo controlar la entrega oportuna, de acuerdo a los términos de la contratación. Salvo que medien contrataciones que se agoten con la entrega pura y simple donde el responsable será el Almacén Central del CTP.
-Las unidades solicitantes o fiscalizadoras acreditarán en el expediente de la contratación, las actuaciones correspondientes al control practicado, remitiendo copia de los documentos la Proveeduría Institucional y al Almacén Central del CTP.

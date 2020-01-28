@@ -1,1 +1,0 @@
-Artículo 118. —Formalización del contrato. Una vez corregido y firmado el contrato por el contratista, la Proveeduría Institucional remitirá el contrato para refrendo interno a la Dirección de Asuntos Jurídicos y el Director Ejecutivo , cada uno tendrá un plazo de hasta 3 días hábiles máximo para la firma del contrato.
