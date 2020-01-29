@@ -1,0 +1,26 @@
+N° 42119-MTSS-COMEX
+EL PRESIDENTE DE LA REPÚBLICA,
+LA MINISTRA DE COMERCIO EXTERIOR,
+Y LA MINISTRA DE TRABAJO Y SEGURIDAD SOCIAL
+En uso de las facultades que les confieren los artículos 140 incisos 3) y 18), de la Constitución Política de la República de Costa Rica; 27, 28, 120 y 121 de la Ley General de la Administración Pública, Ley N° 6227 del 02 de mayo de 1978; la Ley de Creación del Ministerio de Comercio Exterior y de la Promotora del Comercio Exterior de Costa Rica, Ley N° 7638 del 30 de octubre de 1996 y sus reformas; el artículo 21 inciso a) de la Ley de Régimen de Zonas Francas; Ley N° 7210 del 23 de noviembre de 1990 y sus reformas; el artículo 1°, 2° y 6° de la Ley Orgánica del Ministerio de Trabajo y Seguridad Social, Ley N° 1860 del 21 de abril de 1955; y el Decreto Ejecutivo N° 29044-TSS-COMEX del 30 de octubre del 2000.
+Considerando:
+I.—Que el artículo 56 de la Constitución Política de la República de Costa Rica, establece que el trabajo es un derecho del individuo y una obligación con la sociedad, por lo que el Estado debe procurar que todos tengan una ocupación honesta y útil, debidamente remunerada.
+II.—Que la Ley N° 1860 del 21 de abril de 1955, “Ley Orgánica del Ministerio de Trabajo y Seguridad Social”, dispone en su artículo 1° que al Ministerio de Trabajo y Seguridad Social le corresponde garantizar la justicia social en los vínculos creados por el trabajo y los que tiendan a mejorar las condiciones de vida del pueblo costarricense.
+III.—Que en el marco de los procesos de cambio económico y social que vive nuestro país en la actualidad, resulta indispensable que el Ministerio de Trabajo y Seguridad Social establezca y desarrolle acciones y estrategias que, partiendo de una perspectiva de igualdad entre los géneros, favorezcan el mejoramiento sostenido de la productividad y empleabilidad de la fuerza de trabajo nacional.
+IV.—Que el Decreto Ejecutivo N° 29044-TSS-COMEX del 30 de octubre del 2000, crea el Programa Nacional de Empleo (PRONAE), como un medio para fomentar el empleo y coadyuvar en el desarrollo de proyectos que incidan positivamente en las condiciones económicas y sociales de las comunidades y personas que participan en la ejecución de los mismos.
+V.—Que es necesario habilitar el acceso de la oferta programática de los servicios de empleo de PRONAE, a personas con condiciones de empleabilidad reducidas.
+VI.—Que el PRONAE debe ajustarse a la necesidad presente de demanda ocupacional en el país y dar acceso a sus modalidades de formación y capacitación a cualquier costarricense o extranjero con condición migratoria regular en el país.
+VII.—Que se hace necesario adecuar el Programa Nacional de Empleo a las realidades tecnológicas y necesidades de formación actuales, asegurado la pertinencia en el tiempo.
+VIII.—Que es necesario una búsqueda y mejora constante en el uso eficiente de los recursos públicos, sobre todo aquellos de inversión social y para la generación de competencias y habilidades para el empleo formal y decente. Por tanto,
+Decretan:
+“MODIFICACIÓN AL ARTÍCULO 16 INCISO B)
+DEL DECRETO EJECUTIVO N° 29044-TSS-COMEX
+DEL 30 DE OCTUBRE DE 2000”
+Artículo 1º—Modifíquese el artículo 16 inciso b) del Decreto Ejecutivo N° 29044-TSS-COMEX del 30 de octubre del 2000, que “Crea Programa Nacional de Empleo y su Reglamento Respectivo”, para que en adelante se lea de la siguiente manera:
+“Artículo 16.—(…)
+b) Para el Desarrollo de los proyectos de capacitación y formación, entre ellos la Estrategia EMPLEATE del Ministerio de Trabajo y Seguridad Social, que tiene la finalidad de promover empleos de calidad para las personas jóvenes en situación de vulnerabilidad, se asignará el subsidio por el período de duración del programa de capacitación ocupacional o formación. Lo anterior, siempre y cuando exista el contenido presupuestario para cubrirlo.
+Para el caso de las personas beneficiarias que requieran cubrir la totalidad de la inversión del programa de formación o capacitación se les otorgará el 100% del auxilio definido dentro del presupuesto anual institucional. A aquellas personas beneficiarias que no requieran cubrir la totalidad de la inversión del programa de formación o capacitación, se les otorgará el 50% del auxilio definido dentro del presupuesto anual institucional. Se aplicará lo siguiente:
+1. Por una participación presencial o virtual de al menos 15 horas semanales, recibirá el monto del subsidio completo.
+2. Por una participación presencial o virtual correspondiente a al menos 7.5 horas semanales, recibirá el monto del subsidio equivalente al 50% del monto total.
+3. Para los proyectos de formación exclusivamente virtuales, recibirá el monto necesario para el pago respectivo de la formación. Esto para los casos donde sea imposible realizar el cálculo según los parámetros anteriores. El costo de la formación virtual no podrá ser superior al 90% del monto del subsidio aplicable según fórmula de cálculo supra mencionada. Adicionalmente, el participante podrá recibir un 10% del monto del subsidio para cubrir gastos propios como acceso a Internet.
+Los subsidios entregados al amparo de este Decreto de ninguna forma serán considerados salario. Se pagan mes vencido, una vez demostrado el cumplimiento de horas, para los puntos 1 y 2, y el cumplimiento de los objetivos de formación virtual para el primer mes según corresponda.”
