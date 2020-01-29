@@ -1,0 +1,1 @@
+Artículo 3.- Deróguese el inciso d) del artículo 9 del Reglamento del Título III de la Ley de Fortalecimiento de las Finanzas Públicas, Ley N°9635 de 3 de diciembre de 2018, referente a empleo público, Decreto Ejecutivo N°41564-MIDEPLAN-H, de 11 de febrero de 2019.
