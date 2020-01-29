@@ -1,0 +1,20 @@
+N° 42093-MINAE
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE AMBIENTE Y ENERGÍA
+En uso de las facultades conferidas en los artículos 50, 140 incisos 3), 18) y 20) y 146 de la Constitución Política; numerales 12 y 13 de la Ley Orgánica del Ambiente N° 7554 del 04 de octubre de 1995; artículo 11 incisos 3) y 4) de la Ley de Biodiversidad N° 7788 del 30 de abril de 1998; y los artículos 25 inciso 1), 27 inciso 1), 28 inciso 2) acápite b) y 113 de la Ley General de la Administración Pública N° 6227 del 2 de mayo de 1978.
+Considerando:
+I.—Que de conformidad con lo dispuesto en el artículo 50 de la Constitución Política, el Estado debe procurar el mayor bienestar a todos los habitantes del país, además preservar el derecho a disfrutar de un ambiente sano y ecológicamente equilibrado.
+II.—Que Costa Rica alberga aproximadamente el 5% de la biodiversidad mundial, con una cobertura forestal del 53% del territorio.
+III.—Que la Región Chorotega alberga más de 378.652 habitantes, equivalente al 7% de la población nacional. Esta región conformada por once cantones que, aunque rica en biodiversidad, cultura e historia, es una de las regiones más pobres del país (30,26% incidencia de pobreza según INEC, 2011). De acuerdo con la información estadística, el desempleo de la Región Chorotega es 12.5% y el índice de Desarrollo Humano Cantonal de Liberia es de 68,06 (Puesto 191 de 473 según MIDEPLAN, 2013.
+IV.—El Proyecto NyA es un desarrollo turístico ubicado en la ciudad de Liberia, en una propiedad de 894 hectáreas, donde se desarrollarán hoteles, zonas comerciales, áreas de entretenimiento turístico, residencias, áreas de oficinas e industria y proyectos educativos.
+Se proyecta como una ciudad sostenible comprometida con la comunidad y se crea bajo los principios ecológicos, sociales y de equidad, que enriquecerá la experiencia humana al proporcionar un entorno inclusivo para las personas.
+V.—Que el Proyecto destinará el 30% de su área total a áreas verdes, de estas 270 hectáreas destinadas para la conservación, un 80% cuentan con un plan de densificación y recuperación de bosque con el objetivo de restaurar el paisaje local, incorporar corredores biológicos como fuente de biodiversidad, sumideros de carbono y recuperación de especies autóctonas. Según el plan de reforestación se sembrará más de 43000 unidades de árboles en 8 años.
+VI.—Que Guanacaste es una de las regiones con mayor potencial de generación de energía solar del mundo, por lo que el Proyecto tendrá una capacidad instalada de 8MW de energía solar, de los cuales 4MW se utilizarán para abastecer la primera fase y 4MW para la producción de hidrógeno.
+VII.—Que el Proyecto buscará asegurar que el 60% de sus visitantes circulen internamente con transporte limpio, por medio de ciclo vías que estarán construidas en todo el proyecto y el uso de autobuses impulsados por hidrógeno.
+VIII.—Que el proyecto se enfocará en estrategias para reducir el desperdicio de agua y la promoción de iniciativas de conservación de la misma desde sus fuentes.
+IX.—Que el Concejo Municipal de Liberia acordó en Sesión Extraordinaria N° 43-2019 celebrada el 10 de julio de 2019, declarar el Proyecto NYA de interés comunal y regional y además solicitarle al Gobierno de la República, la Declaratoria de Interés Público del mismo.
+X.—Que de conformidad con el Reglamento a la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos, Decreto Ejecutivo N° 37045-MP-MEIC y sus reformas, se determinó que la presente propuesta no establece ni modifica trámites, requisitos o procedimientos, que el administrado deba cumplir, situación por la que no se procedió con el trámite de control previo. Por tanto,
+Decretan:
+DECLARATORIA DE INTERÉS PÚBLICO
+DEL PROYECTO NYA
+Artículo 1º—Se declara de interés público el Proyecto NYA, que consiste en un desarrollo turístico ubicado en la ciudad de Liberia, en una propiedad de 894 hectáreas, donde se desarrollarán hoteles, zonas comerciales, áreas de entretenimiento turístico, residencias, áreas de oficinas e industria y proyectos educativos.
