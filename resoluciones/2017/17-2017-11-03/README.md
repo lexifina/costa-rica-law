@@ -18,3 +18,4 @@ Comunica emisión de resoluciones de la Dirección General de Servicio Civil (DG
 | 3 | 2019-03-13 | Resolución 3 (2019-03-13) |
 | 4 | 2019-08-01 | Resolución 14 (2019-08-01) |
 | 5 | 2019-08-23 | Resolución 15 (2019-08-23) |
+| 6 | 2020-01-29 | Resolución 1 (2020-01-29) |
