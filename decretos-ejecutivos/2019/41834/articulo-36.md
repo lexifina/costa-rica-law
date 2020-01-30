@@ -1,0 +1,4 @@
+Artículo 36. Custodia de Documentos Originales.
+El Tribunal procurará no custodiar documentos originales presentados por las partes o cualquier otro interesado, por lo que deberá hacer una reproducción por cualquiera de los mecanismos tecnológicos al alcance del Tribunal. El funcionario que recibe el documento original lo devolverá al interesado y el Tribunal custodiará únicamente la copia confrontada como fiel y exacta de su original.
+Si se trata de muestras o documentos originales irreproducibles, serán custodiados y depositados en la caja fuerte del Tribunal.
+De los valores, muestras o documentos que se encuentren custodiados en la caja fuerte, se llevará un inventario riguroso y actualizado una vez al mes, con indicación, al menos, del tipo de documento, fecha de ingreso y salida, número de expediente dentro del cual fue aportado y la parte que lo presenta.

@@ -1,0 +1,1 @@
+Artículo 44. Recursos contra las resoluciones del Tribunal. Contra las resoluciones dictadas por el Tribunal, no cabrá recurso extraordinario de revisión, solo procede la gestión o solicitud de adición y aclaración.

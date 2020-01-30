@@ -1,0 +1,1 @@
+Artículo 37. Principio de confidencialidad. Los documentos e información contenidos en los expedientes sometidos a conocimiento del Tribunal, en materia de refugio, se regirán por el principio de confidencialidad establecido en la normativa nacional e internacional.

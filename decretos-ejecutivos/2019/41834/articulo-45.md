@@ -1,0 +1,2 @@
+Artículo 45. Adición y aclaración. El Tribunal no podrá variar ni modificar sus resoluciones, pero sí aclarar cualquier concepto oscuro que contengan o suplir cualquier omisión sobre los puntos debatidos.
+La aclaración o adición solo procede respecto de la parte dispositiva. La adición o aclaración puede hacerse de oficio o a instancia de parte, deberá hacerse dentro de los tres días hábiles siguientes a la notificación. El Tribunal resolverá en el término de un mes.

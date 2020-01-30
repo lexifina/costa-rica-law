@@ -1,0 +1,3 @@
+CAPÍTULO III
+Facultades, Atribuciones y Obligaciones de los miembros del Tribunal
+Artículo 13. De la Asistencia. Los miembros propietarios y suplentes del Tribunal, se encuentran exonerados del registro de marca, sin embargo, cuando por cualquier razón deban ausentarse, por vacaciones, permisos, licencias o incapacidades, deben coordinarlo previamente con el Presidente del Tribunal, salvo que se trate de casos calificados de urgencia, en cuyo caso la comunicación debe realizarse al Presidente lo antes posible. Una vez conocida la ausencia del miembro propietario, el Presidente del Tribunal iniciará el trámite de comunicación al miembro suplente.

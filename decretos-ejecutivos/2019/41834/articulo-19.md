@@ -1,0 +1,3 @@
+CAPÍTULO IV
+De los impedimentos, inhibiciones, recusaciones y excusas
+Artículo 19. Impedimentos, inhibiciones, recusaciones y excusas de los miembros del Tribunal. Aplican para los miembros propietarios y suplentes del Tribunal, los supuestos en caso de impedimento, inhibición, recusación y excusa contemplados en el Código Procesal Civil, Ley Orgánica del Poder Judicial, Ley de la Administración Financiera de la República y Presupuestos Públicos. Podrán ser recusados, sin caución alguna, por las mismas causas. Será aplicable lo establecido en la Ley General de la Administración Pública, en cuanto a la abstención y recusación.

@@ -1,0 +1,1 @@
+Artículo 12.- Régimen Disciplinario y Remoción. Para la aplicación de amonestaciones, sanciones de suspensión o remoción, deberá observarse las formalidades dispuestas por el Consejo, y la Ley General de la Administración Pública, el derecho común y demás regulaciones que rigen la relación de servicio entre el Estado y los funcionarios públicos.

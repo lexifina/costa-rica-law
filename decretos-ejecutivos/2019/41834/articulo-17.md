@@ -1,0 +1,1 @@
+Artículo 17. Rendición de cuentas. El Tribunal debe rendir cuentas de su labor anualmente el primer mes de cada año y cuando adicionalmente lo solicite el Consejo. El informe podrá rendirse en audiencia por solicitud del Consejo. Le corresponde además resolver las consultas planteadas por ese órgano cuando así lo requiera.

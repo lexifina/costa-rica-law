@@ -1,0 +1,1 @@
+Artículo 6. Plataforma tecnológica. El Tribunal podrá hacer uso de todos los recursos tecnológicos disponibles para el desarrollo y ejecución de sus procedimientos, para lo cual los soportes magnéticos, digitales y virtuales contarán con el mismo valor y efecto jurídico que los procedimientos incorporados en soporte de papel.

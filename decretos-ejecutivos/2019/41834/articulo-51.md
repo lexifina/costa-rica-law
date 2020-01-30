@@ -1,0 +1,3 @@
+CAPÍTULO X
+Notificaciones
+Artículo 51. De las notificaciones. Las resoluciones que dicte el Tribunal serán notificadas de forma personal o a los medios que dispongan las partes para tal efecto. Podrán señalar un lugar dentro del perímetro judicial de San José, así como un medio para su notificación o incluso dos medios diferentes, indicando cual prevalece. En caso de omitirse lo anterior, la notificación se practicará a cualquiera de los dos medios señalados. Para aquellos casos en que se señale lugar y medio o dos medios diferentes para atender notificaciones, será indispensable agotar el medio accesorio antes de aplicar la notificación automática.

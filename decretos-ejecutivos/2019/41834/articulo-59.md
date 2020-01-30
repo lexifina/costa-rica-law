@@ -1,0 +1,2 @@
+Artículo 59. Notificaciones en el Centro de Aprehensión. Cuando la parte se encuentre bajo aprehensión administrativa en el Centro de Aprehensión u otros centros para personas extranjeras autorizados por la Dirección General, será notificada en persona, con el fin de no causar indefensión.
+Estas notificaciones tendrán carácter prioritario. En el acta se hará constar la entrega de la cédula de notificación y el nombre de quien recibe y en lo posible firmará con el notificador.

@@ -1,0 +1,1 @@
+Artículo 49. Ejecución de las resoluciones. Los autos, ordenanzas, disposiciones y resoluciones del Tribunal serán comunicadas de inmediato para su ejecución y conocimiento, a las partes, a la Dirección General de Migración y Extranjería, a la Comisión de Visas Restringidas y Refugio y a la Policía Profesional de Migración y Extranjería, según corresponda.

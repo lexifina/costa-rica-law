@@ -1,0 +1,3 @@
+CAPÍTULO IX
+Resolución del Tribunal
+Artículo 42. Prueba para mejor proveer. Listo el expediente para su resolución final y antes de que ésta se dicte, el Tribunal podrá acordar cualquier medio probatorio previsto en el ordenamiento jurídico, que estime relevante para la decisión del recurso. En la misma resolución se establecerá el plazo dentro del que debe ejecutarse lo ordenado. Asimismo, el Tribunal, podrá solicitar adiciones o aclaraciones de cualquier prueba que se tenga. Acerca de las pruebas que sean evacuadas, se conferirá audiencia por escrito a las partes en el plazo de tres a cinco días hábiles, para lo que tengan a bien manifestar.
