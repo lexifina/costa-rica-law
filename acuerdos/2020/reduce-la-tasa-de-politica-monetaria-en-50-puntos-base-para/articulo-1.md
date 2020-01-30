@@ -1,0 +1,14 @@
+BANCO CENTRAL DE COSTA RICA
+La Junta Directiva del Banco Central de Costa Rica, en el artículo 11, del acta de la sesión 5914-2020, celebrada el 29 de enero de 2020,
+considerando que:
+A. Según lo dispuesto en el artículo 2 de la Ley Orgánica del Banco Central de Costa Rica, Ley 7558, uno de los objetivos prioritarios de esta entidad es mantener la estabilidad interna de la moneda nacional, entendida ésta como una inflación baja y estable.
+B. El citado artículo 2, establece adicionalmente que uno de sus objetivos subsidiarios, es “promover el ordenado desarrollo de la economía costarricense, a fin de lograr la ocupación plena de los recursos productivos de la Nación, procurando evitar o moderar las tendencias inflacionistas o deflacionistas que puedan surgir en el mercado monetario y crediticio”.
+C. La política monetaria es de carácter prospectivo; es decir, reacciona en respuesta a los pronósticos de inflación. Para ello, toma en consideración el entorno económico así como las proyecciones de los determinantes macroeconómicos de la inflación.
+D. Las proyecciones macroeconómicas para el bienio 2020- 2021 señalan la presencia e riesgos a la baja en la inflación, asociados principalmente a: (i) la persistencia de holgura en la capacidad de producción (brecha del producto negativa), a pesar del repunte actual y proyectado de la actividad económica; y (ii) a un desempleo que se mantiene en niveles por encima de la tasa en que la inflación se estabilizaría.
+E. Las expectativas de inflación se encuentran estables alrededor de la meta inflacionaria.
+F. El crecimiento promedio ponderado de nuestros socios comerciales, según las proyecciones de los organismos financieros internacionales, se prevé similar en el bienio 2020-2021 al observado en el 2019. Además, estos organismos señalan que continúan las bajas presiones inflacionarias y una mayor disponibilidad de liquidez internacional.
+G. La coincidencia de un contexto local marcado por presiones desinflacionarias y expectativas de inflación ancladas, y un contexto externo de moderado crecimiento, baja inflación y bajas tasas de interés, ofrece espacio para seguir aplicando una política monetaria contracíclica, orientada a promover las condiciones crediticias para apoyar la reactivación económica.
+H. El Título IV, numeral 2, literales D y E de las Regulaciones de Política Monetaria disponen que, en ese orden, corresponde a esta Junta Directiva determinar la Tasa de Política Monetaria y la tasa de interés de captación a un día plazo (DON).
+dispuso, por unanimidad y en firme:
+1. Reducir la Tasa de Política Monetaria en 50 puntos básicos, para ubicarla en 2,25% anual, a partir del 30 de enero de 2020.
+2. Reducir la tasa de interés bruta de los depósitos a un día plazo (DON) en 82 puntos básicos, para que alcance 0,62%, a partir del 30 de enero de 2020.
