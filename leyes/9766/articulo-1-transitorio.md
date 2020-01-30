@@ -1,0 +1,3 @@
+TRANSITORIO ÚNICO- Las concesiones o los contratos que no cumplan con lo establecido en la presente reforma del artículo 39 de la Ley N.º 7788, Ley de Biodiversidad, de 30 de abril de 1998, otorgados con anterioridad a la entrada en vigor de esta ley, mantendrán su vigencia en respeto a los derechos adquiridos, siempre que los concesionarios o permisionarios cumplan con todas sus obligaciones legales y contractuales. Sin embargo, no será prorrogado ni renovado ningún contrato o concesión que no se ajuste a lo establecido en el artículo 39, una vez vencido el plazo por el que fueron otorgados.
+Rige a partir de su publicación.
+Dado en la Presidencia de la República, San José a los veintinueve días del mes de octubre del año dos mil diecinueve.
