@@ -1,3 +1,2 @@
-Capitulo III
-Disposiciones finales
-Artículo 14.- Deber de información: Los centros educativos públicos y privados que implementen el PDBI, a solicitud de las autoridades del Ministerio de Educación Pública, tienen el deber de rendir con fines estadísticos, de asesoría, seguimiento e inspección la información necesaria sobre el desarrollo del Programa en sus centros educativos.
+Artículo 14.- Departamento de Evaluación Académica y Certificación: La Dirección de Gestión y Evaluación de la Calidad del Ministerio de Educación Pública, mediante su Departamento de Evaluación Académica y Certificación, es la instancia encargada de implementar y realizar los procesos de equiparación del Diploma o asignaturas de Bachillerato Internacional con el Bachiller en Educación Media, según lo dispuesto en los artículos 6, 7, 8, 10 y 12 de este Reglamento.
+(Así modificada su numeración por el artículo 2° del decreto ejecutivo N° 42313 del 31 de enero del 2020, que lo traspaso del antiguo artículo 13 al 14)
