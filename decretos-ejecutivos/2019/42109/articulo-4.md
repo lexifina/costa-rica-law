@@ -1,0 +1,1 @@
+Artículo 4º—Recursos. Para el desempeño de su cometido, el Ministerio de Gobernación y Policía y todos los órganos y entes del sector público, apoyarán la implementación y desarrollo del proyecto, en la medida de sus capacidades y competencias, así como las acciones a ejecutar por parte de la Dirección General de Migración y Extranjería.
