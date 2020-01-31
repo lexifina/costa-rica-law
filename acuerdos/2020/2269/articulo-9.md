@@ -1,0 +1,1 @@
+Artículo 9º—Información que consta en el digesto institucional. Las disposiciones contenidas en el presente Acuerdo deberán adoptarse para la protección de datos personales contenidos en la información que se publicará en el digesto institucional.

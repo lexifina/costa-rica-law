@@ -1,0 +1,1 @@
+Artículo 10.—Función asesora de la Dirección Jurídica. Las dudas que surjan en cuanto al manejo de la información conforme los términos contenidos en la Ley N° 8968, deberán remitirse a la Dirección Jurídica institucional para su análisis.
