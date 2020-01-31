@@ -1,0 +1,1 @@
+Artículo 24.—Derogatoria. El presente Reglamento deroga el Reglamento de concursos para nombramiento en propiedad en la Caja Costarricense de Seguro Social, aprobado por la Junta Directiva en el artículo 2° de la sesión 8449, de fecha 27 de mayo del 2010 y su reforma aprobada en el artículo 11 de la sesión 8715 del 7 mayo del 2014.

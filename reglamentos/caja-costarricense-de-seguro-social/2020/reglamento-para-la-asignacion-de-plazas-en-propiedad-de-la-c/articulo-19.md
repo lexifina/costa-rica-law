@@ -1,0 +1,2 @@
+Artículo 19.—Declaratoria de concurso desierto. Ante la imposibilidad de asignar la plaza en propiedad aplicadas infructuosamente las modalidades de concurso conforme los términos de este Reglamento, la Unidad de Gestión de Recursos Humanos deberá emitir un acto administrativo en el cual se declare el concurso desierto.
+Emitida la declaración, se deberá iniciar nuevamente con la realización de los concursos, conforme las modalidades y el orden establecido, en un plazo no mayor a un mes.

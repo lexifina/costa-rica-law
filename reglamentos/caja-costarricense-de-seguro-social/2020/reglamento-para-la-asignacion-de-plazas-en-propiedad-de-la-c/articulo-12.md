@@ -1,0 +1,6 @@
+Artículo 12.—Criterios de desempate para las modalidades de concurso interno. Cuando dos o más personas trabajadoras dispongan de la misma calificación en concurso para asignar la plaza en propiedad por mayor puntaje, se aplicarán los siguientes aspectos de prioridad que se indican a continuación:
+a) El primer criterio de desempate será el total de días de experiencia acumulada en el puesto objeto de concurso, conforme el servicio donde se encuentra la plaza.
+b) El segundo criterio de desempate será el total de días de experiencia acumulada en el servicio o unidad administrativa donde se encuentra la clase de puesto objeto de concurso por la
+persona trabajadora, indistintamente del puesto desempeñado, conforme la información indicada en las respectivas acciones de personal.
+c) El tercer criterio de desempate será el total de días de experiencia acumulada en el centro donde se encuentra el puesto objeto de concurso por la persona trabajadora, indistintamente del puesto desempeñado, conforme la información indicada en las respectivas acciones de personal.
+d) El cuarto criterio de desempate será el total de días de experiencia acumulada en la Caja, por la persona trabajadora, conforme la información indicada en las respectivas acciones de personal.

@@ -1,0 +1,5 @@
+Capítulo IV.
+Condiciones para el nombramiento en propiedad
+Artículo 16.—Asignación de la plaza en propiedad. En la modalidad de concurso por mayor puntaje, la asignación de la plaza la deberá hacer la Unidad de Gestión de Recursos Humanos que realizó el concurso, en el plazo de 3 días hábiles, una vez establecidas las calificaciones en firme y en estricto apego al orden descendente de la ubicación de las personas, conforme la cantidad de plazas incluidas en el cartel.
+Para los concursos en los que corresponde la conformación de una nómina, la asignación de la plaza en propiedad será responsabilidad de la jefatura respectiva una vez que haya concluido las entrevistas. Su decisión la deberá comunicar a la Unidad de Gestión de Recursos Humanos mediante acto razonado con criterios objetivos que justifiquen la asignación de la plaza a la persona con mejor condición de idoneidad en el plazo de tres días hábiles.
+La ausencia de la motivación del acto de asignación de la plaza anulará su designación y corresponderá resolver al superior inmediato.

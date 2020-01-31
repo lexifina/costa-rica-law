@@ -1,0 +1,2 @@
+Artículo 22.—Trámite del nombramiento en la plaza objeto de concurso. En los casos que corresponda aplicar el periodo de prueba, se deberá realizar una acción de personal por nombramiento interino, por el plazo máximo de tres meses, que podrá modificarse por la aprobación o no del periodo de prueba.
+Cuando finalice el periodo de prueba de manera satisfactoria, o en su defecto, si no corresponde la aplicación del periodo de prueba, se deberá confeccionar la acción de personal para el nombramiento en propiedad a la persona sobre la que recae la adjudicación.

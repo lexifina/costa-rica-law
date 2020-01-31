@@ -1,0 +1,1 @@
+Artículo 6º—Inscripción. La persona interesada en participar en algún proceso concursal deberá de aplicar a través del sistema automatizado en el plazo establecido en el cartel. Una vez cerrado el periodo de inscripción, el sistema no permitirá la inscripción de algún participante.

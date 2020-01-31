@@ -1,0 +1,8 @@
+Artículo 21.—Periodo de prueba. El periodo de prueba se aplicará cuando se presente cualquiera de las siguientes situaciones:
+a) Le implique a la persona trabajadora un cambio en el servicio o unidad administrativa.
+b) Le implique a la persona trabajadora un cambio de jefatura en el puesto objeto de concurso.
+c) En el puesto objeto de concurso no ha registrado un nombramiento con anterioridad.
+El periodo de prueba será por un plazo no mayor de tres meses a partir de la ocupación de la plaza, con la opción de que la jefatura pueda indicar la adaptación al puesto con anterioridad. El periodo de prueba se suspenderá por incapacidades, vacaciones, licencias sin goce de salario; una vez reincorporado el funcionario, se continúa con el cómputo del plazo.
+Para poder realizar nombramientos interinos en un código presupuestario diferente al adjudicado, o continuar realizando el nombramiento interino que la persona trabajadora ejecuta antes de la adjudicación de la plaza en propiedad, se debe superar el periodo de prueba cuando éste corresponda según los incisos previamente indicados.
+Si no se supera el periodo de prueba una vez en firme la resolución, la persona conservará el derecho de regresar a su puesto inmediato anterior, permitiendo asignar la plaza a otra persona, siempre en estricto apego a los términos señalados en el presente reglamento.
+De no realizarse la valoración del periodo de prueba en el plazo establecido, a través de la herramienta que se determine para tales efectos, se tomará como una aceptación tácita por las partes para la adjudicación en propiedad de manera definitiva de la plaza.

@@ -1,0 +1,2 @@
+Artículo 17.—Comunicación de la plaza en propiedad.
+La Unidad de Gestión de Recursos Humanos será la encargada de realizar la comunicación a la persona que se le asignó la plaza en propiedad, al medio que estableció para recibir notificaciones en el plazo de tres días hábiles una vez obtenidas las calificaciones en firme o recibido el comunicado de la jefatura, según la modalidad de concurso que se trate.
