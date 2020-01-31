@@ -1,0 +1,1 @@
+Artículo 27.—El período para recepción de postulaciones, es el mismo de la recepción de solicitudes de becas, pero deberá además la persona solicitante entregar constancia de notas del último año cursado.

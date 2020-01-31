@@ -1,0 +1,1 @@
+Artículo 4º—Fines: El otorgamiento de las becas municipales tiene como finalidad apoyar los procesos formales de educación pública de las personas habitantes del cantón de Heredia, especialmente a aquellas que se encuentran en desventaja social; para evitar la exclusión, el rezago y el bajo rendimiento.

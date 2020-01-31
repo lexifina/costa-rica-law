@@ -1,0 +1,1 @@
+Artículo 6º—Montos de Becas. Las becas de estudio se otorgarán por un monto de un 5% del salario base de un Técnico Judicial 1 para educación preescolar y primaria y un 6% del salario de un Técnico Judicial 1 para secundaria; en el primer semestre de cada año para ambos casos.

@@ -1,0 +1,1 @@
+Artículo 15.—Divulgación. La Secretaría del Concejo publicará la resolución de personas solicitantes que el Concejo Municipal aprobó o improbó; así como datos de entrega del beneficio en las instalaciones municipales.

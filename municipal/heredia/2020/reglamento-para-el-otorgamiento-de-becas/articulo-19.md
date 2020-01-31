@@ -1,0 +1,1 @@
+Artículo 19.—Confidencialidad de la Información: La Oficina de Igualdad, Equidad y Género garantizará el resguardo de la confidencialidad de los datos del hogar de las personas solicitantes y beneficiarias, así como la integridad de los documentos derivados del proceso que hayan sido entregados en esa dependencia.

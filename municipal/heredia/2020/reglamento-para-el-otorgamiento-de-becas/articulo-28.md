@@ -1,0 +1,1 @@
+Artículo 28.—La Oficina de Igualdad, Equidad y Género de la Municipalidad de Heredia presentará ante la Alcaldía una nómina con la selección preliminar de dos estudiantes por distrito en el mes de abril de cada año, previo análisis de promedio ponderado anual de las personas postulantes. La Alcaldía remitirá la nómina preliminar al Concejo Municipal para su aprobación definitiva.
