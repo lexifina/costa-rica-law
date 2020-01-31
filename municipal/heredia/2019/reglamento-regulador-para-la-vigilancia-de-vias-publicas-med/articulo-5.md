@@ -1,0 +1,1 @@
+Artículo 5°—Autoridad competente para la planificación, administración y operación de los dispositivos de vigilancia. La Municipalidad de Heredia planificará, administrará y operará el SVPCMH, mediante cámaras de video vigilancia ciudadana y el respectivo centro de captación y almacenaje de las imágenes y videos.

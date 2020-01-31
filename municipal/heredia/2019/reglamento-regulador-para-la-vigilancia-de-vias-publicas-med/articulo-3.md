@@ -1,0 +1,1 @@
+Artículo 3°—Acerca de la vigilancia de vías de transporte y circulación. Las disposiciones establecidas en este Reglamento, son de aplicación para la vigilancia en calles y avenidas urbanas, además carreteras, caminos y autopistas nacionales, pudiendo ser de aprovechamiento en vigilancia de edificaciones y áreas públicas y privadas al alcance del SVPCMH.
