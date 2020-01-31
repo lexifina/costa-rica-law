@@ -14,3 +14,4 @@ Reglamento Orgánico de la Universidad Técnica Nacional
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-06-19 | la propia norma |
+| 2 | 2020-01-31 | Reglamento 3 (2020-01-31) |

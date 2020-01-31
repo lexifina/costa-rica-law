@@ -8,3 +8,5 @@ Además de las funciones generales establecidas en el artículo 33 le correspond
 6. Procurar las condiciones normativas, procedimentales, estructurales, así como los recursos que se requieren para
 ejecutar los procesos de investigación y transferencia tecnológica en la universidad.
 7. Dirigir política y estratégicamente sus Programas, Centros y Laboratorios adscritos.
+8. Dirigir y coordinar el funcionamiento de la Editorial Universitaria.
+(Así adicionado el inciso anterior en sesión N° 3 del 31 de enero de 2020)
