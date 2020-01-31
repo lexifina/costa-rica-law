@@ -1,0 +1,1 @@
+Artículo 15.- Confidencialidad de la información. La Contraloría de Servicios reservará o el secreto de la identidad de la persona denunciante cuando esta lo solicite, o bien, cuando se considere que la investigación pueda afectar la continuidad y atención de los servicios que se le brinda o se ponga en peligro su integridad física.

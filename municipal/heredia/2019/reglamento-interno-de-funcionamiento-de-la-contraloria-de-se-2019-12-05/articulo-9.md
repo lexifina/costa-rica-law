@@ -1,0 +1,7 @@
+Artículo 9.- Potestades
+a) Acceso a información municipal, relacionada con la prestación de los servicios que genere una inconformidad, reclamo, consulta, denuncia o sugerencia, excepto aquella denominada como secreto de estado, confidencial e informes que sirvan para la sustentación de procedimientos administrativos en trámite o pendientes de resolución y de carácter personalísimo.
+b) Actuar como persona mediadora en la búsqueda de una solución más adecuada a las gestiones planteadas como una forma de agilizar la prestación de los servicios.
+c) Ejecutar sus funciones con independencia de criterio, con respecto a los demás órganos o dependencias de la administración activa.
+d) Establecer los mecanismos de comunicación, coordinación y apoyo con la Secretaría Técnica, otras contralorías de servicios y todas las instancias que considere oportuno, a fin de mejorar la atención de las gestiones presentadas por las personas usuarias.
+e) Suspender una investigación cuando se compruebe que el hecho denunciado ya ha sido presentado ante otra instancia administrativa competente para resolver. Esto evitará la duplicación de funciones y recursos.
+f) Atender en forma colectiva aquellas gestiones que tengan relación con un mismo tema o problema y que por la cantidad de gestiones sobrepase las posibilidades reales de resolución y atención individualizada. Se le deberá informar a los usuarios de tal circunstancia y de su resolución.
