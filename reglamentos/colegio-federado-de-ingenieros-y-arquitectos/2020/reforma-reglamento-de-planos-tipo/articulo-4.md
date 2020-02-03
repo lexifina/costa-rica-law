@@ -1,0 +1,2 @@
+Artículo 4º—Se modifica el artículo 7 del Reglamento de Planos Tipo, aprobado mediante acuerdo Nº 29 de la sesión Nº 32-13/14-G.O., de Junta Directiva General de fecha de 19 de agosto de 2014 y publicado en el Diario Oficial La Gaceta Nº 212 del 4 de noviembre de 2014, para que en lo sucesivo se lea de la siguiente forma:
+“Artículo 7º—Disposiciones generales. El CFIA revisará periódicamente el contenido de este reglamento, así como la vigencia de los proyectos tipo.”
