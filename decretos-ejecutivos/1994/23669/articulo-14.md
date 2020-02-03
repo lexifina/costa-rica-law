@@ -1,2 +1,0 @@
-Artículo 14.—Pueden acogerse excepcionalmente al Régimen de Dedicación Exclusiva o mantener este beneficio, aquellos servidores a quienes se les permita laborar media jornada, siempre que firmen una declaración jurada en la que conste que el resto del tiempo lo dedicarán a labores domésticas propias, comunicándolo por escrito a la Oficina de Recursos Humanos respectiva
-(Así reformado por el artículo 1° del decreto ejecutivo N° 33451 del 24 de octubre del 2006)

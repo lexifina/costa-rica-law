@@ -1,1 +1,0 @@
-Artículo 23.-Derógase el Decreto Ejecutivo Nº 20182-H del 24 de enero de 1991 y sus reformas Decretos Nº 22630-H, Nº 22654-H del 9 y 15 de noviembre de 1993 y Decreto Nº 23103-H del 19 de abril de 1994.
