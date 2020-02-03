@@ -1,0 +1,1 @@
+Artículo 10.—El CFIA otorgará a las instituciones que se unan a la Plataforma APC-I una autenticación electrónica por medio de usuario y clave, para que los funcionarios autorizados puedan ingresar a la plataforma digital de tramitación, siguiendo los procedimientos y políticas de seguridad establecidos por el Departamento de Tecnología de la Información del CFIA.

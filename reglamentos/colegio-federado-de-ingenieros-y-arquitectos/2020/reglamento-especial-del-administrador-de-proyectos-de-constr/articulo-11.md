@@ -1,0 +1,2 @@
+Artículo 11.—Una vez que sean entregadas las claves de acceso a los funcionarios autorizados, será responsabilidad exclusiva del funcionario y de la institución para la que labora, la utilización y correcto uso que se brinde a la misma, según corresponda, de acuerdo con lo dispuesto en los artículos 190 y 199, siguientes y concordantes de la Ley General de la Administración Pública.
+El Colegio no será responsable del mal uso que se brinde a las claves de acceso, así como de los costos y gastos en que se incurra por una deficiente o errónea utilización del sistema.

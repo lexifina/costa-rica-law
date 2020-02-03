@@ -1,0 +1,1 @@
+Artículo 18.—Se deberán adjuntar los planos del proyecto, en un archivo digital cuyo formato será PDF o bien en aquellos formatos compatibles, según lo determine el Departamento de Tecnología de la Información del CFIA.

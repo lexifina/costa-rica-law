@@ -1,0 +1,4 @@
+CAPÍTULO III
+De la información remitida por
+los miembros del CFIA al APC
+Artículo 12.—A los efectos de lo establecido en el artículo 53 de la Ley Orgánica del Colegio Federado de Ingenieros y de Arquitectos, todos los contratos por servicios profesionales relacionados con las Ingenierías y la Arquitectura serán registrados a través del APC.

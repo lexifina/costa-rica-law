@@ -1,0 +1,2 @@
+Artículo 13.—El profesional responsable del proyecto en cualquiera de sus etapas deberá registrar su responsabilidad en el sistema de APC, por medio del PIN registrado o la firma digital respectiva.
+Asimismo, en caso de que en el proyecto se requiera la participación de otros profesionales de distintas ramas de la Ingeniería y/o de la Arquitectura, le corresponderá al profesional responsable del proyecto reportar el registro de esas responsabilidades. Su omisión por parte del profesional responsable será considerada una falta a la ética profesional.
