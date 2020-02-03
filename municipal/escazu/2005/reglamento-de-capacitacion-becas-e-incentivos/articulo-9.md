@@ -1,1 +1,0 @@
-Artículo 9º—Beca como incentivo. Se considerará beca como incentivo a las becas otorgadas a funcionarios para que realicen estudios escolarizados y no escolarizados en las actividades de capacitación no programadas

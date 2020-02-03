@@ -1,1 +1,0 @@
-Artículo 75.—Si por alguna razón el funcionario escogido no puede asistir a la actividad deberá justificarlo por escrito al Departamento de Recursos Humanos en un periodo no mayor a cinco días hábiles de presentado el inconveniente.

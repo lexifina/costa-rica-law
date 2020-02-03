@@ -1,1 +1,0 @@
-Artículo 28.—Los desembolsos para el pago de eventos de capacitación (cursos, seminarios, talleres, congresos, simposios, u otros afines), becas e instructores corresponderá coordinarlos al Departamento de Recursos Humanos, a la Dirección Administrativa-Financiera y al Alcalde.

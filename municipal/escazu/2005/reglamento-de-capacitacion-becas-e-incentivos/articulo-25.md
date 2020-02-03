@@ -1,1 +1,0 @@
-Artículo 25.—Para el logro de los objetivos planteados en el Artículo 23, el Departamento de Recursos Humanos organizará eventos (cursos, talleres, seminarios, y otras actividades afines) y otorgará becas por medio de la Municipalidad para la satisfacción de las necesidades determinadas.

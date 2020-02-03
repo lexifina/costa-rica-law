@@ -1,1 +1,0 @@
-Artículo 18.—Las facilidades que otorgue la Municipalidad de beca o ayuda económica a estudiantes nativos y residentes del Cantón, no se regirán por este Reglamento sino por el Artículo 62 del Código Municipal y su Reglamento.

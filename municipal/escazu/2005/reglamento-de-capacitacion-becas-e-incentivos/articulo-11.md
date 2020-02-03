@@ -1,1 +1,0 @@
-Artículo 11.—Financiamiento del material didáctico. Se considerará como financiamiento del material al pago total o parcial de documentos, folletos, fotocopias o bibliografía que sea necesario para la consecución de los objetivos de la capacitación o formación, según lo determine el Departamento de Recursos Humanos, previo estudio.

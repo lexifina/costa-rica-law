@@ -1,1 +1,0 @@
-Artículo 23.—La planificación de las acciones de capacitación o formación se fundamentarán en diagnósticos actualizados, realizados por el Departamento de Recursos Humanos en coordinación con las jefaturas de las unidades administrativas correspondientes.

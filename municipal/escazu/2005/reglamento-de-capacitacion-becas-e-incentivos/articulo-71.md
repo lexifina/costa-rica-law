@@ -1,1 +1,0 @@
-Artículo 71.—Quedará libre de los compromisos adquiridos ante la adjudicación de una beca, el funcionario que interrumpa sus estudios por prescripción médica. Sólo tendrá valor para este propósito el certificado que extienda el Médico de Empresa de la Municipalidad, el funcionario deberá notificar su situación al Departamento de Recursos Humanos.

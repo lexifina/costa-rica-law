@@ -1,2 +1,0 @@
-Artículo 4º—Actividades de capacitación escolarizadas. Se considerarán actividades de capacitación escolarizadas o de formación todas aquellas que se realizan en forma sistemática, ordenada y secuencial en una carrera determinada que otorga un grado académico en un Centro de Estudios reconocido.
-Se contempla la Educación General Básica, Enseñanza Media, Carreras Técnicas, Universitarias, Para-Universitarias y de especialización o cualquier otra denominación análoga.

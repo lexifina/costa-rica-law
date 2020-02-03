@@ -1,1 +1,0 @@
-Artículo 44.—La Comisión Institucional de Becas debe solicitar las sanciones correspondientes a los funcionarios que infrinjan las normas establecidas para regular la adjudicación \ administración de las becas.

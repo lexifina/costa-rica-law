@@ -1,1 +1,0 @@
-Artículo 63.—La Municipalidad podrá ceder funcionarios que tengan pendiente el compromiso laboral adquirido por un contrato de estudios con la Institución, siempre y cuando el traslado del funcionario sea a un ente Estatal, quedando obligado a concluir el compromiso adquirido con el nuevo patrono y en las condiciones que establezca el contrato de estudios.

@@ -1,1 +1,0 @@
-Artículo 6º—Actividades de inducción. Se considerarán actividades de Inducción todas aquellas que permitan al funcionario adquirir conocimientos en torno a la Municipalidad a fin de acelerar y facilitar el proceso de identificación y aceptación de ésta. Estas serán no escolarizadas y programadas únicamente por el Departamento de Recursos Humanos.
