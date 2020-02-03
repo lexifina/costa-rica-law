@@ -1,0 +1,1 @@
+Artículo 24.—En el caso de enfermedad o ausencia prolongada, éstos, o en su caso la empresa, deberá nombrar a un sustituto quien deberá registrar su firma en el Cuaderno de Bitácora con lo cual acepta las responsabilidades y condiciones establecidas en las reglamentaciones vigentes.

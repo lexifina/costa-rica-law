@@ -1,0 +1,1 @@
+Artículo 2º—Se entenderá por “empresa” toda aquella unidad económica, conformada en una entidad de acuerdo con la legislación nacional que tenga entre sus propósitos la construcción o la consultoría en los campos de la ingeniería y/o la arquitectura.

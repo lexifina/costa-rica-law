@@ -1,0 +1,1 @@
+Artículo 12.—Las empresas inscritas ante el CFIA tienen el deber de mantener en todo momento actualizados sus datos de contacto; así como informar al Colegio de cualquier cambio. En caso de que la empresa no actualice sus datos, o que los brindados no sean veraces y exactos, exonera de todo tipo de responsabilidad al Colegio, en caso de no poder ser contactado.

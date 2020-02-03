@@ -1,0 +1,6 @@
+COLEGIO FEDERADO DE INGENIEROS Y DE ARQUITECTOS DE COSTA RICA
+La Junta Directiva General del Colegio Federado de Ingenieros y de Arquitectos de Costa Rica, en uso de las atribuciones establecidas en el artículo 28, inciso n) de su Ley Orgánica Nº 3663 de 10 de enero de 1966 y sus reformas, mediante acuerdo Nº 03 de la sesión Nº 08-19/20-G.O. de fecha 14 de enero de 2020, acordó derogar el Reglamento de Empresas Consultoras y Constructoras aprobado por la Junta Directiva General mediante sesión Nº 17/80- G.E. de fecha de 26 de junio de 1980, publicado en el Diario Oficial La Gaceta Nº 134 del 15 de julio de 1980, así como, el Reglamento Especial de Miembro Responsable de Empresas Constructoras, aprobado por la Junta Directiva General mediante sesión Nº 29/83-G.O. de fecha de 10 de mayo de 1983, publicado en el Diario Oficial La Gaceta Nº 114 del 16 de junio de 1983 y, en su lugar, emitir el Reglamento de Empresas. Por tanto,
+REGLAMENTO DE EMPRESAS
+CAPÍTULO I
+Generalidades
+Artículo 1º—El presente Reglamento tiene como objetivo regular las obligaciones de las empresas que brinden servicios de ingeniería y arquitectura en el país, así como las relaciones de dichas empresas con los profesionales miembros del CFIA que pertenezcan a ellas.

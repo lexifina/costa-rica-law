@@ -1,0 +1,1 @@
+Artículo 22.—El profesional que renuncie a su cargo de profesional responsable de empresa deberá informar y registrar su renuncia de forma inmediata ante el CFIA, a través del trámite que al efecto establezca éste.

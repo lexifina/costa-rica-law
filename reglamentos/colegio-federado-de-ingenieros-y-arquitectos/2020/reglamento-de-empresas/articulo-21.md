@@ -1,0 +1,1 @@
+Artículo 21.—El profesional que la empresa registre en los términos del artículo 60 del Reglamento Interior General, será responsable de velar que las actuaciones de la empresa se realicen en los términos y condiciones estipulados en la Ley y este Reglamento.

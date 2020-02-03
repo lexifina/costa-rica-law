@@ -1,0 +1,1 @@
+Artículo 15.—Las disposiciones de la Ley Orgánica y su Reglamento, los Reglamentos Especiales del Colegio Federado de Ingenieros y de Arquitectos, el Código de Ética Profesional, el Reglamento que Regula Los Procedimientos de la Aplicación de la Ética Profesional y sus Efectos Patrimoniales, le serán aplicables a las Empresas inscritas en el CFIA.

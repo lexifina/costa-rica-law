@@ -1,0 +1,2 @@
+Artículo 23.—El profesional que deba retirarse de un proyecto a su cargo, temporal o permanentemente, o sea sustituido por vicisitudes en la ejecución del contrato, lo hará constar en el Reglamento Especial de la Bitácora para el Control de Obras.
+El nuevo profesional deberá verificar el estado del proyecto y actividades que haya realizado su antecesor y en su defecto hará las observaciones pertinentes, ya que, a partir de la fecha de su incorporación a la obra, será el responsable de las labores para las cuales ha sido contratado.

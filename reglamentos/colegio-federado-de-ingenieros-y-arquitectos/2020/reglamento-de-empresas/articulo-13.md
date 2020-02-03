@@ -1,0 +1,1 @@
+Artículo 13.—Las empresas podrán hacer promoción de sus servicios sólo cuando ella no contenga lenguaje jactancioso o engañoso o en cualquier forma denigrante para la dignidad de la ingeniería y de la arquitectura.
