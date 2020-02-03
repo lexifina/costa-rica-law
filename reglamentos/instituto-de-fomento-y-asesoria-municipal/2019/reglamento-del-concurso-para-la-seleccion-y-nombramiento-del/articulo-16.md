@@ -1,0 +1,1 @@
+Artículo 16.—Inicio del concurso público. La Junta Directiva mediante acuerdo firme, ordenará a la Dirección Ejecutiva, iniciar el proceso del concurso público (externo) para el nombramiento definitivo de la persona titular del cargo de Auditor Interno.

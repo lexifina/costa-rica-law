@@ -1,0 +1,1 @@
+Artículo 2º—Requisitos mínimos. Los requisitos mínimos obligatorios para ocupar el cargo de Auditor Interno son los establecidos en el Reglamento de Organización y Funcionamiento de la Auditoría Interna del IFAM.

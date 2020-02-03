@@ -1,0 +1,1 @@
+Artículo 21.—Resultado del concurso público. El informe final con los resultados del concurso público (externo) incluyendo la terna respectiva, será presentado por la Unidad de Talento Humano a la persona titular de la Dirección Ejecutiva, para que realice los trámites correspondientes ante la Contraloría General de la República.

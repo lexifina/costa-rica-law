@@ -1,0 +1,2 @@
+Artículo 14.—Resultados del concurso interno. El informe con los resultados del proceso de reclutamiento del concurso interno, incluyendo la terna respectiva, será presentado por la Unidad de Talento Humano a la persona titular de la Dirección Ejecutiva.
+La Dirección Ejecutiva realizará los trámites correspondientes ante la Contraloría General de la República, para obtener la autorización correspondiente.

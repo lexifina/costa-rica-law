@@ -1,0 +1,1 @@
+Artículo 3º—Requisitos adicionales. La Junta Directiva establecerá mediante acuerdo en firme, los requisitos adicionales atinentes para dicho cargo, los cuales deberán complementarse con los requisitos mínimos indicados en el artículo anterior, con la finalidad de establecer un perfil acorde con las prácticas profesionales más recientes para la mejor prestación del servicio.

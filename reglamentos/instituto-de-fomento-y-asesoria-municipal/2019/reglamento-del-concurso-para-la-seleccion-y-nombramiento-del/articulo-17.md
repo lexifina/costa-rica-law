@@ -1,0 +1,2 @@
+Artículo 17.—Publicación del aviso. La Unidad Talento Humano elaborará el aviso alusivo al concurso público para nombrar a la persona titular de la Auditoría Interna; y, además, coordinará lo pertinente para su debida publicación en uno de los diarios de circulación nacional, en el cual deberá informarse sobre los aspectos relevantes del concurso.
+El contenido del aviso alusivo y de la publicación, deberá de ser previamente aprobado por la Dirección Ejecutiva.

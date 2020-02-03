@@ -1,0 +1,7 @@
+Artículo 18.—Presentación de ofertas. Las personas interesadas deberán presentar sus ofertas de servicios ante la Unidad Talento Humano del IFAM, dentro de un plazo máximo de diez días hábiles a partir de la fecha de apertura del concurso, aportando como mínimo la siguiente información:
+a) Hoja de vida, con su respectiva fotografía tamaño pasaporte.
+b) Título(s) académico(s). Presentar original y fotocopia, para su verificación. Los Títulos académicos obtenidos en centros universitarios en el exterior, deben ser previamente reconocidos y equiparados por CONARE.
+c) Certificación del colegio profesional respectivo, en la que se certifique que el concursante es miembro activo, habilitado y al día en el ejercicio de la profesión.
+d) Certificaciones sobre experiencia en el ejercicio del cargo de Auditoría Interna o Externa, en el sector público o privado, emitida por la autoridad o funcionario competente de la institución o empresa respectiva, con especificación del tiempo y detalle de las labores realizadas. Para su validación, es requisito indispensable presentar documentos originales.
+e) Certificaciones sobre el tiempo en que se ha desempeñado en puestos de jefatura, emitida por la autoridad o funcionario competente de la Institución o empresa respectiva. Para su validación, es requisito indispensable presentar documentos originales.
+f) Señalar el lugar o el medio para recibir notificaciones.

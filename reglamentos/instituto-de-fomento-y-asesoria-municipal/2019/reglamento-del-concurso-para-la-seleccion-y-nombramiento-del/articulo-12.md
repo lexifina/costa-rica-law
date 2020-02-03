@@ -1,0 +1,2 @@
+Artículo 12.—Integración de la terna. La terna estará integrada por los concursantes idóneos que obtuvieron la calificación más alta, ordenadas de mayor a menor, de conformidad con los criterios de evaluación establecidos en el capítulo IV de este Reglamento. Para los anteriores efectos, se deben tomar en cuenta las disposiciones que establecen los Lineamientos que se señalan en el artículo 1 del presente reglamento.
+La Unidad de Talento Humano, comunicará a cada concursante su calificación individual, así como su posición en la terna.

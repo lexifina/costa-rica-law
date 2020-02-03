@@ -1,0 +1,3 @@
+Artículo 20.—Entrevista. La Junta Directiva o una Comisión que ésta designe, entrevistará a todas las personas idóneas que integren la terna y elegirá al candidato que será contratado.
+Si la Junta Directiva integrara una Comisión, ésta deberá informar al órgano Colegiado el resultado de la entrevista con el propósito de tomar por acuerdo firme la decisión correspondiente.
+La Junta Directiva presentará el acuerdo en firme a la Unidad de Talento Humano, con las calificaciones finales de las personas entrevistadas y, adjuntará los reportes o actas individuales de cada una de las personas candidatas entrevistadas.

@@ -1,0 +1,1 @@
+Artículo 24.—Criterios básicos para concursar. Conforme al artículo 2 del presente reglamento, se establecen como criterios básicos de participación los establecidos en el Reglamento de Organización y Funcionamiento de la Auditoría Interna del IFAM, cuyo cumplimiento cabal le garantiza al aspirante una nota base de 60%.

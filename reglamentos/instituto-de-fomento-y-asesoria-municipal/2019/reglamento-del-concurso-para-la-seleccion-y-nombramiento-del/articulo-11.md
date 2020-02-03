@@ -1,0 +1,1 @@
+Artículo 11.—Valoración de ofertas. Las ofertas de servicios serán evaluadas por la Unidad de Talento Humano de conformidad con los criterios establecidos en el capítulo IV de este Reglamento, y conformará un registro de elegibles.
