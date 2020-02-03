@@ -1,14 +1,7 @@
 CAPÍTULO II
 Del Registro de Elegibles
 Artículo 3°—De los concursos. El Concurso consta de diversas etapas, los plazos de cada una de ellas estarán definidos en la primera etapa de los respectivos concursos.
-a) Concurso de la Carrea Administrativa (clases de puestos comprendidas en el Título I del Estatuto del Servicio Civil).
-Etapa I: Publicidad: Se divulgará el concurso mediante un afiche, dicho documento se publica tanto en un periódico de circulación nacional como en el sitio web de la Dirección General de Servicio Civil, en el mismo se informa de todas las disposiciones e instrucciones del concurso.
-Etapa II: La inscripción: En el plazo establecido en la publicación, el oferente completa la oferta de servicios electrónica dispuesta en el sitio web de la Dirección General de Servicio Civil, en ese mismo proceso se les asigna la fecha, lugar y hora de entrega de la documentación que se establezca en la publicación.
-Etapa III: Verificación de información: En el Área de Reclutamiento y Selección de la Dirección General de Servicio Civil se realiza la verificación de la información completada en la oferta de servicios con la documentación entregada por el oferente, en caso de que proceda, se le asigna fecha, hora y lugar para la realización de las pruebas.
-Etapa IV: Pruebas: La persona interesada realiza las pruebas en la fecha programada por la Dirección General de Servicio Civil.
-Etapa V: Calificación: En esta etapa se califican las pruebas.
-Etapa VI: Declaratoria de concurso: Se conforma el Registro de Elegibles para cada clase y especialidad con aquellos oferentes que hayan alcanzado una calificación igual o superior a 70.
-Etapa VII: Difusión: El oferente puede conocer sus resultados ingresando al sitio web de la Dirección General de Servicio Civil mediante su usuario y clave.
+a) (Derogado por el artículo 3° del decreto ejecutivo N° 42203 del 3° de febrero del 2020)
 b) Concurso de la Carrera Docente (clases de puestos comprendidas en el Título II del Estatuto de Servicio Civil)
 Cada concurso contará con un Instructivo Digital y sus Anexos, en aplicación de lo que establecen los artículos 84 del Estatuto de Servicio Civil, 5 del Reglamento de la Carrera Docente, 367 de la Ley General de la Administración Pública.
 El Concurso consta de las siguientes etapas:

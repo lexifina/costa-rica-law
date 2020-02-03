@@ -1,4 +1,5 @@
-CAPÍTULO V
+CAPÍTULO IV
+(Mediante el artículo 3° del decreto ejecutivo N° 42203 del 3 de febrero del 2020, se ordena derogar el capítulo III y adecuar la numeración de los demás capítulos por lo que el capítulo V pasa a ser el capítulo IV)
 Salarios e incentivos
 Artículo 18.—De las certificaciones.
 1) Descripción del trámite: Permite a la persona interesada solicitar una certificación salarial o una certificación de factores descriptivos de puestos.

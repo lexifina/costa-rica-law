@@ -1,18 +1,12 @@
-Artículo 5°—Del Reconocimiento de puntos adicionales por carreras acreditadas por el Sistema Nacional de Acreditación de la Educación Superior, Título I. De la Carrera Administrativa.
-1) Descripción del trámite: Permite a una persona inscrita en el Registro de Elegibles de la Dirección General de Servicio Civil, recibir un puntaje adicional si su carrera está acreditada por el Sistema Nacional de Acreditación de la Educación Superior.
-2) Requisitos: Presentar solicitud por escrito ante el Área de Reclutamiento y Selección de Personal de la Dirección General de Servicio Civil. En la solicitud se debe indicar:
-• Nombre completo del solicitante.
-• Número de cédula.
-• Número teléfono/celular.
-• Correo electrónico.
-• Dirección física
-• Firma y cédula
-Adicionalmente, el interesado deberá presentar original y una copia de su título universitario. Dicha copia indicará en el reverso el nombre y apellidos del solicitante, así como su número de cédula y firma.
-(Así reformado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 41204 del 30 de mayo del 2018)
+Artículo 5.- Del Reconocimiento de puntos adicionales por carreras acreditadas por el Sistema Nacional de Acreditación de la Educación Superior y (o) por acreditación del idioma Inglés. Título 1. De la Carrera Administrativa.
+1) Descripción del trámite:
+Permite a una persona inscrita en el Registro de Elegibles de la Dirección General de Servicio Civil, recibir un puntaje adicional si su carrera está acreditada por el Sistema Nacional de Acreditación de la Educación Superior (SINAES), y (o) a una persona inscrita en el Registro de Elegibles, en el Estrato Gerencial y el Estrato Profesional del Título I del Estatuto de Servicio Civil, recibir un puntaje adicional por acreditación del idioma Inglés. El puntaje otorgado para la acreditación del idioma Inglés, previa comprobación, será el que se establece en la Resolución DG-137-2010 del 18 de mayo del 2010 y Resolución DG-094-2012 del 26 de marzo del 2012, ambas emitidas por la Dirección General de Servicio Civil.
+2) Requisitos:
+Presentar solicitud ante el Área de Reclutamiento y Selección de Personal de la Dirección General de Servicio Civil, vía correo electrónico a la dirección: consultasUSl@dgsc.go.cr indicando el nombre completo, conocido como, número de cédula, así como señalando un medio para atender notificaciones, adjuntando el título universitario escaneado para el reconocimiento de puntos adicionales por carreras acreditadas por el Sistema Nacional de Acreditación de la Educación Superior y (o) la certificación escaneada, en la que conste la acreditación del idioma Inglés avalada por la instancia respectiva, para el reconocimiento de puntos adicionales por acreditación del idioma Inglés, según sea el caso que corresponda para el presente trámite. Esta petición debe ser escaneada con firma física o firma digital.
 3) Procedimiento:
-• La persona interesada debe presentar su solicitud de manera escrita ante el Área de Reclutamiento y Selección de Personal de la Dirección General de Servicio Civil. Presentar original y copias de los documentos.
-• El funcionario responsable en el Área de Reclutamiento y Selección de Personal de la Dirección General de Servicio Civil revisará la documentación presentada, en caso de que la solicitud se presente incompleta, se informará a la persona interesada de tal situación mediante la prevención única y por escrito, indicando cuáles son los requisitos omitidos en la solicitud o el trámite, o qué aclaraciones o subsanación de información debe realizar.
-• Una vez que sea aceptada la solicitud del trámite, el funcionario responsable en el Área de Reclutamiento y Selección de Personal de la Dirección General de Servicio Civil estudiará el caso y procederá a aplicar la normativa vigente.
-• El Profesional responsable en el Área de Reclutamiento y Selección de Personal de la Dirección General de Servicio Civil informará de manera escrita al interesado, el resultado de su solicitud.
+a) La persona interesada debe enviar su solicitud vía correo electrónico ante el Área de Reclutamiento y Selección de Personal de la Dirección General de Servicio Civil y adjuntar el título universitario escaneado y (o) la certificación escaneada, según sea el caso que corresponda.
+b) El funcionario responsable en el Área de Reclutamiento y Selección de Personal de la Dirección General de Servicio Civil estudiará el caso y procederá a aplicar la normativa vigente.
+c) El Profesional responsable en el Área de Reclutamiento y Selección de Personal de la Dirección General de Servicio Civil informará al medio señalado para atender notificaciones por la persona interesada, el resultado de su solicitud.
 4) Plazo de resolución: 10 días hábiles
 5) Vigencia del trámite: Indefinida
+(Así reformado por el artículo 1° del decreto ejecutivo N° 42203 del 3° de febrero del 2020)

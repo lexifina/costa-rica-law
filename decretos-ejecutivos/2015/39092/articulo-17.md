@@ -1,4 +1,5 @@
-CAPÍTULO IV
+CAPÍTULO III
+(Mediante el artículo 3° del decreto ejecutivo N° 42203 del 3 de febrero del 2020, se ordena derogar el capítulo III y adecuar la numeración de los demás capítulos, por lo que el capítulo IV pasa a ser el capítulo III)
 Auditoría de gestión de recursos humanos
 Artículo 17.—De la Denuncia.
 1) Descripción del trámite: Permite a la persona interesada solicitar que se investiguen posibles irregularidades que se comentan en las Oficinas de Gestión Institucional de Recursos Humanos, por parte de los funcionarios públicos bajo el Régimen de Servicio Civil.
