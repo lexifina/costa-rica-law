@@ -1,0 +1,1 @@
+Artículo 22.—Número de control para activos no individualizados mediante placa. El Departamento del Almacén consignará un solo número de placa patrimonial a todos aquellos activos que no pueden ser individualizados ya que requieren de varios componentes para su puesta en marcha.

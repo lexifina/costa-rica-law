@@ -1,0 +1,1 @@
+Artículo 15.—De la determinación del costo de activos con adiciones y mejoras. Se reconocerá una adición o mejora a los activos de la empresa, solo cuando se emita un criterio técnico de un experto, en donde se considere el incremento en la vida útil del mismo, así como la capacidad de uso y su valor.

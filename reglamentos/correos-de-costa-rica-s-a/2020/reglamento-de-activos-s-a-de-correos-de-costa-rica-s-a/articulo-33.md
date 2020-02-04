@@ -1,0 +1,2 @@
+Artículo 33.—Cambios en las características de vehículos. Será responsabilidad de la Dirección de Transportes, comunicar por escrito a la Dirección Jurídica cuando un vehículo presente alteraciones en sus características; esto con el fin de hacer las gestiones pertinentes ante el Registro de la Propiedad de Bienes Muebles.
+Una vez registrado el cambio de características, la Dirección Jurídica deberá presentar el estudio registral respectivo al Departamento de Contabilidad para que proceda a realizar los registros pertinentes.

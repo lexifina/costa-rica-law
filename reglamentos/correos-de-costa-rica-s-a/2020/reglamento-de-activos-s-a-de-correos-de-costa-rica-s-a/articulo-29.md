@@ -1,0 +1,4 @@
+Artículo 29.—Del trámite para donar activos. Le corresponderá a la Dirección Administrativa, valorar de previo a iniciar un proceso de desecho, cuáles activos presentan las características para poder ser donados a una institución benéfica.
+Para ello deberá además tomar en consideración que únicamente para este fin, se podrán donar activos que se encuentren totalmente en desuso y de escaso valor económico, y con la debida aprobación de la Junta Directiva.
+Todos los activos que se retiren de operación por las razones indicadas se deberán informar mediante oficio al Departamento de Contabilidad con la información necesaria para su debido retiro.
+El presente artículo aplica únicamente para bienes no inscribibles en el Registro Público. En el caso de los vehículos, se deberá cumplir con el Manual vigente “Procedimientos para el reciclaje, desecho y donación de activos y otros remanentes” a fin de que se realice el proceso denominado como “Donación de Vehículos”.

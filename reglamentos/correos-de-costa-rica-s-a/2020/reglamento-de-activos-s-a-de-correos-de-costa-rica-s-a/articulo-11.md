@@ -1,0 +1,1 @@
+Artículo 11.—De la obligación de velar porque en los registros contables se incluyan todas las operaciones. El jefe del Departamento de Contabilidad velará porque en los registros contables se incluyan todas las operaciones relacionadas con los activos.

@@ -1,0 +1,1 @@
+Artículo 23.—De los útiles de oficina. Para los efectos de este reglamento no se considerarán como activos los útiles de oficina cuyo valor sea inferior al establecido por la política de capitalización.

@@ -1,0 +1,4 @@
+Artículo 14.—De la determinación del costo inicial de activos. Para determinar el costo inicial de los activos se tomará en consideración:
+a) Su precio de adquisición, incluidos los aranceles de importación y los impuestos indirectos no recuperables que recaigan sobre la adquisición, después de deducir cualquier descuento o rebaja del precio.
+b) Todos los costos directamente atribuibles a la ubicación del activo en el lugar y en las condiciones necesarias para que pueda operar de la forma prevista por las unidades.
+c) La estimación inicial de los costos de desmantelamiento y retiro del elemento, así como la rehabilitación del lugar sobre el que se asienta. La obligación en que incurre una entidad cuando adquiere el elemento o como consecuencia de haber utilizado dicho elemento durante un determinado periodo, con propósitos distintos al de producción de inventarios durante tal periodo.

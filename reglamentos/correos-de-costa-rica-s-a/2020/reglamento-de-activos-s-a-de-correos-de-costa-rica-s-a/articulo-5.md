@@ -1,0 +1,7 @@
+Artículo 5º—De la responsabilidad sobre el control y registro de activos. De acuerdo con el orden jerárquico y registro de activos la responsabilidad es la siguiente:
+a) La Gerencia de Administración y Finanzas, en conjunto con la Dirección de Finanzas y el Departamento de Contabilidad, serán las responsables de coordinar todas las actividades relacionadas con el registro de activos.
+b) La Dirección Administrativa a través del Departamento de Compras y Contrataciones será responsable de la adquisición de los activos exceptuando las adquisiciones efectuadas por medio de caja chica. También será responsable de lo referente a: remates, desechos, donaciones, entre otros.
+c) La Dirección Administrativa a través del Departamento del Almacén será la responsable de recibir, asignar las placas pre-numeradas y despachar los activos, así como suministrar la información respectiva al Departamento de Compras y Contrataciones para el trámite de pago y al Departamento de Contabilidad para su registro.
+d) La Dirección de Finanzas a través del Departamento de Contabilidad deberá mantener un registro actualizado de los activos y su ubicación.
+e) Los encargados de áreas serán responsables del control y resguardo de los bienes asignados, así como de brindar cualquier información sobre los activos a su cargo al Departamento de Contabilidad.
+f) Los Directores Regionales, Director de Distribución y Dirección Administrativa serán responsables por los desechos de activos que se ejecuten en sitio; de acuerdo con lo establecido en el manual de procedimiento de desecho.

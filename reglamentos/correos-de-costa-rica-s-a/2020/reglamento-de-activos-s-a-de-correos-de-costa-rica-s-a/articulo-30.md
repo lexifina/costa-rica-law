@@ -1,0 +1,2 @@
+Artículo 30.—Del trámite para el retiro contable de activos entregados como pago. Cuando un activo se entregue como parte de pago para la compra de otro bien, se considerará el valor en libros del activo a la fecha de retiro, y se acreditará el costo del activo que se sustituye o se desecha.
+La diferencia entre el valor del activo nuevo y el valor que acepte la compañía proveedora, previo peritaje, por el activo sustituido será el monto a cancelar. La diferencia entre cargos y créditos será la ganancia o pérdida contable generada en dicha transacción.

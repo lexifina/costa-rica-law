@@ -1,0 +1,2 @@
+Artículo 32.—Del control de vehículos. El Departamento de Transportes, así como las Direcciones Regionales y Administrativas que tengan vehículos automotores asignados, deberán llevar un control permanente del estado de funcionamiento de cada unidad (combustible, lubricantes, reparaciones, kilometraje, entre otros). Asimismo, deberán enviar semestralmente dicho control a la Gerencia de Logística.
+Cada unidad que tenga a cargo un vehículo de la empresa deberá informar al Departamento de Contabilidad cuando esté en desuso, o se encuentre en un taller ajeno a la empresa.

@@ -1,0 +1,6 @@
+Artículo 21.—De las responsabilidades del Departamento del Almacén.
+a) El Departamento del Almacén a partir del momento en que recibe el bien, será el encargado de asignar el número de placa patrimonial a los activos capitalizables, así como el número de control para los no capitalizables; colocándolas en un lugar visible para su fácil identificación, antes de su entrega al colaborador.
+b) Esta información deberá remitirse oportunamente al Departamento de Contabilidad mediante los formularios denominados “Entrada y Salida de Activos”.
+c) En cuanto a la adquisición de vehículos automotores y con la finalidad de poder identificarlos en el auxiliar de activos, es responsabilidad del Departamento del Almacén informar al Departamento de Contabilidad mediante el documento que para estos efectos existe, el número de placa patrimonial, el número de placa de circulación, número de motor y chasis.
+d) En casos excepcionales cuando el activo requiera ser instalado en el sitio, se podrán recibir activos en las diferentes áreas, previa coordinación con el Almacén para la colocación de la placa.
+e) Una vez que los activos están ingresados y registrados en el Departamento del Almacén, para que proceda la salida de estos bienes a las diferentes áreas, será necesario en todos los casos confeccionar la boleta de salida de activos.

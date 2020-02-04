@@ -1,0 +1,1 @@
+Artículo 38.—De la autorización para la salida de activos de las oficinas de Correos. Solamente los encargados de área tendrán la facultad de aprobar la salida de bienes a cualquier colaborador en cumplimiento de sus funciones, mediante un oficio que contenga las características del o los activos que salen de las instalaciones.
