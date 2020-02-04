@@ -15,3 +15,4 @@ Reglamento a la Ley del Teatro Nacional.
 | --- | --- | --- |
 | 1 | 2003-07-08 | la propia norma |
 | 2 | 2014-07-08 | Decreto Ejecutivo 38571 (2014-07-08) |
+| 3 | 2020-02-04 | Decreto Ejecutivo 42629 (2020-02-04) |
