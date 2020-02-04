@@ -1,1 +1,3 @@
 Artículo 8°—Documentación de actuaciones. En todo caso, el desarrollo de las tareas llevadas a cabo por los funcionarios de la Unidad de Cobro, deberán consignarse en un expediente administrativo, el cual se conformara en orden cronológico, en que se obtengan o produzcan los distintos documentos que deberán foliarse en orden secuencia!, con el fin de resguardar adecuadamente su conservación.
+Sin perjuicio de lo regulado en el presente artículo la Unidad de Gestión de Cobro, podrá contar con herramientas tecnológicas que le permitan igualmente llevar un registro de las gestiones de cobro que se realicen.
+(Así adicionado el párrafo anterior mediante sesión ordinaria N° 07-2020 del 4 de febrero del 2020)

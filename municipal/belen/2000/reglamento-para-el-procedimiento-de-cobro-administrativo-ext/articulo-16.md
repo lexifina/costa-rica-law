@@ -1,2 +1,2 @@
-Artículo 16.—Monto mínimo para realizar arreglos de pago. Únicamente procederán arreglos de pago cuando las obligaciones vencidas sean por un monto mayor a la quinta parte del salario base, establecido en el artículo 2 de la Ley Nº 7337, del 5 de mayo de 1993.
-(Así reformado en sesión N° 74 del 19 de diciembre de 2006)
+Artículo 16.— Monto mínimo para realizar arreglos de pago. Únicamente procederán arreglos de pago cuando las obligaciones vencidas sean por un monto mayor a la quinta parte del salario base, establecido en el artículo 2 de la Ley Nº 7337, del 5 de mayo de 1993. No obstante, se autoriza a la persona que coordine la Unidad de Gestión de Cobro a dar “visto bueno” en arreglos de pagos de montos menores, en casos debidamente justificados, para facilitar el pago al sujeto privado.
+(Así reformado mediante sesión ordinaria N° 07-2020 del 4 de febrero del 2020)
