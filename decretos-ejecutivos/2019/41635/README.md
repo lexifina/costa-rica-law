@@ -14,3 +14,4 @@ Reglamento al artículo 49 de la Ley de Pesca y Acuicultura, para establecer la 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-04-12 | la propia norma |
+| 2 | 2020-02-04 | Decreto Ejecutivo 42181 (2020-02-04) |
