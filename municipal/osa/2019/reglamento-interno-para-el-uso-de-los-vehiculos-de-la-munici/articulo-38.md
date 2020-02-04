@@ -1,0 +1,1 @@
+Artículo 38.—Cumplimiento de normativa. Es responsabilidad exclusiva de cada chofer y usuario de la Administración en General acatar el cumplimiento de lo establecido en el presente Reglamento, por lo que si efectuare acciones que contravengan dichas disposiciones, se impondrán las sanciones que esa acción origine.

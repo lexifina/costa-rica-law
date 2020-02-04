@@ -1,0 +1,1 @@
+Artículo 15.—Las solicitudes de vehículos deberán tramitarse de acuerdo con las disposiciones que para tales efectos emita la Unidad de Servicios Generales y/o el departamento de la Unidad Técnica de Gestión Vial Municipal.

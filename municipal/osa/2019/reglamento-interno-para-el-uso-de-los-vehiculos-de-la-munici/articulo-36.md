@@ -1,0 +1,1 @@
+Artículo 36.—El Departamento de Servicios Generales deberá, en un plazo no mayor a seis meses a partir de la vigencia de este Reglamento, elaborar un Manual de Procedimientos para el uso de los Vehículos de la Municipalidad de Osa.

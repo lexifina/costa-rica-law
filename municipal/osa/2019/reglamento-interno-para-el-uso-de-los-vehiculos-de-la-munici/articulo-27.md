@@ -1,0 +1,1 @@
+Artículo 27.—En todo caso de accidente de tránsito corresponderá al Departamento de Servicios Jurídicos brindar el apoyo legal suficiente ante las instancias judiciales que correspondan en representación de los intereses de la Municipalidad y ante las cuales tenga la legitimación correspondiente.

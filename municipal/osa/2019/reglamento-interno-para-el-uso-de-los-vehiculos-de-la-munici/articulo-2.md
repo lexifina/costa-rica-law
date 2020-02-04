@@ -1,0 +1,1 @@
+Artículo 2°—Las disposiciones contenidas en el presente reglamento son aplicables a todos los funcionarios, que, por razón de sus cargos, usen o controlen los recursos de transporte de la Municipalidad de Osa, Alcalde Municipal y miembros del Concejo Municipal.

@@ -1,0 +1,1 @@
+Artículo 5°—Son vehículos de Equipo Pesado y Equipo Especial todos los vehículos utilizados por la Municipalidad, para prestar servicios regulares de transporte materiales y equipo, incluyendo la maquinaria y equipos de aseo de vías, recolección y disposición de residuos sólidos y de la Unidad Técnica de Gestión Vial Municipal.

@@ -1,0 +1,1 @@
+Artículo 4°—Son vehículos de uso administrativo todos los vehículos utilizados por la Municipalidad, para prestar servicios regulares de transporte en el desarrollo normal de sus funciones y actividades de las diferentes oficinas y dependencias como medio de transporte de personas.
