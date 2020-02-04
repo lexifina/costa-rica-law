@@ -14,3 +14,4 @@ Oficializa Manual de Especificaciones Generales para la Conservación de Caminos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-02-29 | la propia norma |
+| 2 | 2020-02-04 | Decreto Ejecutivo 42299 (2020-02-04) |
