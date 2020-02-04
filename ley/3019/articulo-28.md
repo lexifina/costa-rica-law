@@ -1,5 +1,2 @@
-Artículo 28.- La constancia dada por el Tesorero del Colegio, con el
-visto bueno del Presidente, de que cualquiera de sus miembros o
-dependientes debe pagar una determinada cantidad por multa o alcance de
-cuentas en fondos que haya administrado, tendrá el valor de título
-ejecutivo ante los Tribunales.
+Artículo 28- La constancia de deuda dada por el tesorero del Colegio, respecto de cualquiera de sus miembros o autorizados, constituirá título ejecutivo y el afectado deberá pagar el monto correspondiente a la deuda más los respectivos intereses. Esto de acuerdo con la normativa que al efecto emita la Junta de Gobierno a recomendación de la Fiscalía.
+(Así reformado por el artículo 1° de la ley N° 9809 del 4 de febrero del 2020)
