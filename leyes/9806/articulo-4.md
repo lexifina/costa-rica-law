@@ -1,0 +1,1 @@
+ARTÍCULO 4- En la condición de disolución o incumplimientode los fines de dicho proyecto, la Unión Zonal de Asociaciones de Desarrollo Integral de Sabalito deberá reversar el inmueble a la Municipalidad de Coto Brus.
