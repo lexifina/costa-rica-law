@@ -1,4 +1,4 @@
-Artículo 8º—De la Secretaría.
+Artículo 8. De la Secretaría.
 La Secretaría General de la Junta Directiva Nacional dará el apoyo logístico a los Comités y a las Comisiones adscritas a las Juntas Directivas del Conglomerado Financiero y tendrá las siguientes funciones:
 a) Remitir a la membrecía del Comité o de la Comisión y demás participantes de la sesión, el orden del día junto con la documentación y dentro del plazo indicado en el artículo 10 de este Reglamento.
 b) Coadyuvar con la Presidencia en la remisión de la convocatoria a sesiones extraordinarias.

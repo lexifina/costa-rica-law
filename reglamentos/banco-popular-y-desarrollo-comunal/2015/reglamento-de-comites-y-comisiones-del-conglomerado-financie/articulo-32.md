@@ -1,9 +1,8 @@
-Sección VIII
-De la Comisión de Asuntos Jurídicos del Banco
-Artículo 32.—Integración y funciones. Esta Comisión la conforman entre una y tres personas integrantes de la Junta Directiva Nacional, el Asesor Legal de Junta Directiva Nacional, el Director Jurídico del Banco o en quien se delegue la función y un representante de la Administración y tendrá las siguientes funciones:
-a) Proponer a la Junta Directiva Nacional, para su aprobación, la reglamentación necesaria para la efectiva gestión del Banco, así como los reglamentos de índole corporativa.
-b) Recomendar a la Junta Directiva Nacional cualquier acción jurídica que estime necesaria como resultado del análisis de algún asunto que, con motivo del ejercicio de sus funciones, haya tenido conocimiento y que pueda tener implicaciones de cualquier índole para el Banco o las Sociedades.
-c) Velar por que la normativa interna del Banco se ajuste al ordenamiento jurídico nacional.
-d) Revisar todas las propuestas de reglamentación que la Junta Directiva Nacional le someta para su análisis.
-e) Desempeñar otras funciones que la Junta Directiva Nacional le asigne relacionadas con la materia legal.
-f) Analizar los proyectos de Reglamentos que la Junta Directiva Nacional le remita y realizar las recomendaciones a la instancia que corresponda.
+Sección VIII. Articulo 32 *Se acuerda eliminar la sección correspondiente a la Comisión de Asuntos Jurídicos según acuerdo JDN-5706-Acd-121-2020-art. 10.
+Del Comité Corporativo de Remuneraciones y Nominaciones del Conglomerado Banco Popular
+Artículo 32. Fundamento e integración.
+El Comité Corporativo de Nominaciones y Remuneraciones tiene su fundamento en el Reglamento sobre Gobierno Corporativo, acuerdo SUGEF 16-16; acuerdo Sugef 22-18, Reglamento sobre Idoneidad de los Miembros del Órgano de Dirección y de la Alta Gerencia; en el Reglamento del Conglomerado sobre el sistema de evaluación del desempeño basado en el Balanced Scorecard y en el balance de desarrollo personal, emitido por la Junta Directiva Nacional en sesión N.0 5293 del 9 de julio de 2015 y publicado en La Gaceta del 11 de agosto de 2015, y en la demás normativa aplicable.
+Este Comité lo integra un director por cada junta directiva de las sociedades del Conglomerad6 Financiero.
+En el caso del Banco Popular lo integra por lo menos uno y máximo tres directores. Para el caso de la evaluación y posterior recomendación al órgano de dirección de las personas que se nominen para integrar las Juntas Directivas de las Sociedades Anónimas, se deberá integrar un Comité de Nominaciones Especial, compuesto únicamente por tres miembros de la Junta Directiva Nacional.
+** Modificado mediante acuerdo JDN-57 45-Acd-573-2020-art. 8 del 18 de mayo del 2020.
+(Nota de Sinalevi: En la publicación de este reglamento se publica dos veces el artículo N° 32)

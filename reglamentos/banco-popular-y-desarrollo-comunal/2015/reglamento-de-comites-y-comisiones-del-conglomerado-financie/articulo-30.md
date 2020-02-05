@@ -1,6 +1,6 @@
-Sección VI
-De la Comisión de Pautas, Políticas y Juntas de Crédito Local
-Artículo 30. Integración y funciones. Esta Comisión está constituida entre uno y tres integrantes de la Junta Directiva Nacional y tendrá las siguientes funciones:
+Sección VI. De la Comisión de Pautas, Políticas y Juntas de Crédito Local
+Artículo 30. Integración y funciones.
+Esta Comisión está constituida entre uno y tres integrantes de la Junta Directiva Nacional y tendrá las siguientes funciones:
 a) Conocer, analizar y dar seguimiento a las pautas definidas por la Asamblea y emitir las recomendaciones pertinentes para su aplicación.
 b) Velar por la congruencia entre las pautas de la Asamblea, los alcances del marco estratégico institucional y sus elementos.
 c) Dar seguimiento a las políticas definidas por la Junta Directiva Nacional y emitir las recomendaciones pertinentes para su aplicación.
