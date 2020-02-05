@@ -1,0 +1,2 @@
+Capítulo III: De los Programas de Apoyo
+Artículo 16.- Del Programa de Acompañamiento y Gestión Empresarial. El Ministerio de Cultura y Juventud, el Ministerio de Economía, Industria y Comercio, y el Instituto acional de Aprendizaje, elaborarán el Programa de Acompañamiento y Gestión Empresarial para el impulso de emprendimientos creativos y culturales, que permita fortalecer las capacidades de gestión empresarial de los emprendimientos creativos y culturales y mejorar su posicionamiento competitivo en los mercados nacionales e internacionales.

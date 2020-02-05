@@ -1,0 +1,6 @@
+Artículo 14.- De las Mesas Ejecutivas Sectoriales. Las Mesas Ejecutivas Sectoriales constituyen el espacio de coordinación de los procesos de implementación de la Estrategia, según los segmentos poblacionales definidos en el artículo 5 del presente Decreto Ejecutivo. Estarán coordinadas por las instituciones del Sistema Nacional de Cultura que tienen su relación con cada uno de los sectores de la población objetivo, para ello se crean:
+a-. Mesa Ejecutiva Audiovisual: Coordinada por el/la Director(a) del Centro de Producción Cinematográfica.
+b-. Mesa Ejecutiva Artes Escénicas y Música: Coordinada por los Directores del Teatro Popular Melico Salazar y el Centro Nacional de la Música.
+c-. Mesa Ejecutiva de Artes Visuales: Coordinada por el/la Director (a) del Museo de Arte y Diseño Contemporáneos.
+d-. Mesa Ejecutiva de Identidad Territorial: Coordinada por la Dirección de Cultura.
+Las Mesas Ejecutivas Sectoriales estarán integradas por representantes de las instituciones públicas, académicas, y organizaciones privadas vinculadas con el o los sectores respectivos. Será responsabilidad de cada una de los coordinadores de las Mesas Ejecutivas Sectoriales presentar ante la Mesa Nacional de Coordinación y Seguimiento de la Estrategia, para su aprobación, la propuesta de integración de las Mesas Ejecutivas Sectoriales.

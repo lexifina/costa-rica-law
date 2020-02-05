@@ -1,0 +1,1 @@
+Artículo 20.- Derogatorias. Deróguese el Decreto Ejecutivo Nº 38427-C del 29 de abril del 2014, publicado en el Diario Oficial La Gaceta Nº 99 del 26 de mayo del 2014, denominado "Creación de la Unidad de Cultura y Economía (UCE)".
