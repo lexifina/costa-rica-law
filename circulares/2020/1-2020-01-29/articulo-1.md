@@ -13,12 +13,9 @@ Tarifas de Honorarios para Peritos
 y Peritas (Variación IPC: 1,52%)
 Rige a partir del 01 de enero de 2020
 [imagen]
-[imagen]
-[imagen]
 CUADRO Nº 2
 Tarifas de Honorarios para Ejecutores
 Rige a partir del 01 de enero de 2020
-[imagen]
 [imagen]
 CUADRO Nº 3
 Tarifas de Honorarios de Peritos y Peritas en
@@ -33,7 +30,6 @@ Honorarios actualizados según el Índice de
 Precios al Consumidor (IPC)
 Rige a partir del 01 de enero de 2020
 [imagen]
-[imagen]
 CUADRO Nº 5
 Tarifas de Honorarios por Servicios Médicos
 Forenses y Especialidades Médicas
@@ -42,22 +38,14 @@ los honorarios aprobados por el Colegio
 de Médicos y Cirujanos
 Rige a partir del 01 de enero de 2020
 [imagen]
-[imagen]
 CUADRO Nº 6
 Tarifas de Honorarios por Servicios Médicos
 Forenses y Especialidades Médicas
 Honorarios actualizados según Estudio de Mercado
 Rige a partir del 01 de enero de 2020
 [imagen]
-CUADRO Nº 7
-Tarifas de Honorarios para Actuarios Matemáticos,
-Traductores en Idiomas e Intérpretes de
-Lenguaje de Señas Costarricense
-Rige a partir del 01 de enero de 2020
 [imagen]
-CUADRO Nº 8
-Tarifas de ayuda para testigos, imputados y
-ofendidos de escasos recursos económicos
-Rige a partir del 01 de enero 2020
+(Así reformado el cuadro anterior mediante circular N°11 del 5 de febrero de 2020. Asimismo en dicha circular se reitera que en cuanto a la tabla N° 7, dnominada “Tarifas de Honorarios para Actuarios Matemáticos Traductores en Idiomas e Intérpretes de Lengaje de Señas Costarricenses”, debe aplicarse lo dispuesto en la circular 86-2019 del 28 de junio del 2019, emitida por esta Dirección Ejecutiva, donde se establece que a los montos producto de los honorarios se les debe incluir el 13% del IVA.
 [imagen]
+(Así reformado el cuadro anterior mediante circular N°11 del 5 de febrero de 2020)
 San José, 29 de enero de 2020.

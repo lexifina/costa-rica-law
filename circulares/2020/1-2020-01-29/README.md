@@ -13,3 +13,4 @@ Tarifas de Honorarios de Peritos y Peritas, Ejecutores, Honorarios para Peritos 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-01-29 | la propia norma |
+| 2 | 2020-02-05 | Circular 11 (2020-02-05) |
