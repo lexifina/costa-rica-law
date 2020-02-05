@@ -1,0 +1,1 @@
+Artículo 4º—Derogatoria. Deróguese el Decreto Ejecutivo Nº 32909-H-MEIC, del 10 de noviembre de 2005, publicado en el Diario Oficial La Gaceta Nº 49 del 09 de marzo de 2006 y sus actualizaciones posteriores.

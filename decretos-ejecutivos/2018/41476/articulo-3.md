@@ -1,0 +1,1 @@
+Artículo 3º—Libro de Servicios Profesionales. En el libro de Servicios Profesionales del Contador Público Autorizado, deberán incluirse en todo caso, los honorarios reales cobrados, conforme lo establece el artículo 15 del Reglamento a la Ley Nº 1038 citada, Decreto Ejecutivo Nº 13606-E del 25 de mayo de 1982.
