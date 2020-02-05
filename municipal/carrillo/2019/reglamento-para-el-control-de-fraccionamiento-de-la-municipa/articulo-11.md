@@ -1,0 +1,11 @@
+Artículo 11.—Fraccionamiento frente a servidumbres de paso. Todas las parcelas resultantes de un fraccionamiento tendrán acceso directo a vía pública. En casos calificados, la Municipalidad podrá admitir la segregación (subdivisión) de lotes mediante servidumbres de paso, siempre que se cumpla con las siguientes normas:
+a) La servidumbre se aceptará en terrenos especiales en que por su ubicación o dimensión se demuestre que es imposible fraccionar con acceso adecuado a vías públicas existentes, utilizándose preferentemente para casos en que ya existan viviendas en el terreno a fraccionar.
+b) Se aceptará la constitución de una única servidumbre de paso por finca.
+c) En segregaciones (subdivisiones) hasta de seis lotes para vivienda unifamiliar, se tendrá una servidumbre de 6 metros de ancho como mínimo.
+d) La longitud de una servidumbre de acceso a lotes de vivienda unifamiliar no excederá de 60 metros.
+e) Las servidumbres preferiblemente remataran con un ensanchamiento que facilite el viraje de los vehículos, pudiendo hacerlo mediante el diseño de rotondas o “martillos” siempre que la longitud total, contemplando dichos elemento, no exceda los 60 metros.
+f) Toda servidumbre, en el entronque con vía pública deberá cumplir con un diseño vial que facilite la maniobrabilidad y visibilidad de los vehículos y personas que la utilicen.
+g) Todos los lotes resultantes de las segregaciones (subdivisiones), deberán tener como frente mínimo del lote a la servidumbre de 6 m y como área mínima de 140 m2.
+h) El área de la servidumbre no será computable para efectos de cálculo del área mínima de lote y sobre ella no podrán hacerse construcciones.
+i) La segregación autorizada frente a esta servidumbre de paso, implica que la entrada a los lotes será considerada servidumbre de paso común y en todo momento cualquier autoridad o funcionarios de entidades [prestatarias de los servicios públicos de cualquier índole (incluidas del agua y electricidad), así aquellos encargados del control urbanístico, municipal, de seguridad pública, salud, bomberos y cualquier otro similar]; podrán utilizarla para sus respectivos fines.
+j) Ni la municipalidad, ni ninguna institución pública tienen obligación de darle mantenimiento a las servidumbres de paso, ni de prestar servicios en los lotes interiores.
