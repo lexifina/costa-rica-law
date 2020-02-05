@@ -1,0 +1,12 @@
+DIRECCIÓN GENERAL DE SERVICIO CIVIL
+AVISOS
+DG-AV-020-2019.
+La DGSC comunica la emisión de las siguientes resoluciones:
+I.—DG-172-2019: Efectuar la declaratoria de los candidatos elegibles del Concurso de los Estratos Administrativo Docente y Técnico Docente N° TAD-01-2018, constituyéndose el Registro Único de Elegibles, para ocupar las plazas vacantes actuales y futuras, tanto en propiedad como interinamente de los puestos Administrativos Docentes y Técnicos Docentes del Ministerio de Educación Pública.
+II.—DG-173-2019: Modifica el Artículo 4° de la Resolución N° DG-149-2019 del 29 de agosto de 2019, para que se lea de la siguiente manera: “Rige a partir de la fecha de la presente resolución hasta el 31 de diciembre de 2020”.
+III.—DG-175-2019: Modifica el párrafo final del artículo 7 de la Resolución N° DG-111-2013 del 31 de julio de 2013, contenido en dicha Resolución.
+IV.—DG-176-2019: Modifica el Manual Descriptivo de Especialidades Docentes Resolución N° DG-399-2010, en la Especialidad “Currículum”, de manera que en el apartado “Atinencias Académicas” se incluyan las carreras”.
+V.—DG-177-2019: Modifica el Manual Descriptivo de Especialidades Docentes Resolución N° DG-399-2010, en la Especialidad “Bachillerato en Química, de manera que en el apartado “Atinencias Académicas” se incluya la carrera”.
+VI.—DG-179-2019: Delega a la funcionaria Xinia Salazar Valverde, que ocupa la Jefatura de la Oficina de Gestión Institucional de Recursos Humanos en el Ministerio de Cultura y Juventud, como responsable delegada en esa Institución, y en tanto ocupe el cargo de Directora de Recursos Humanos, para que suscriba los distintos trámites y actos que esta Dirección General debe aprobar en materia de Administración de Recursos Humanos, en concordancia con lo dispuesto en la Resolución N° DG-347-2011 del 1º de julio de 2011 y sus reformas, a excepción de lo dispuesto en la Resolución N° DG-201-2014, el Oficio Circular N° GESTIÓN-010-2008, referido a los estudios de análisis ocupacional de los puestos de las Oficinas de Recursos Humanos, así como la aprobación de nombramientos y ascensos interinos en plaza vacante, los cuales requerirán el aval de la instancia pertinente de esta Dirección General.
+VII.—DG-181-2019: Se crea el Catálogo de Formaciones, como un instrumento auxiliar al Manual General de Clasificación de Clases, de aplicación en el Sistema Clasificatorio de Puestos del Régimen de Servicio Civil, para las clases Específicas que conforman el Título I del Estatuto de Servicio Civil.
+Publíquese.—3 de diciembre de 2019.
