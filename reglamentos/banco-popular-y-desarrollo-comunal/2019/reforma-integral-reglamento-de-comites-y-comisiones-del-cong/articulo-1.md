@@ -1,4 +1,6 @@
+(Derogado)
 BANCO POPULAR Y DE DESARROLLO COMUNAL
+(Esta norma fue derogada en sesiones N° 5706, 5716, 5734, 5745 y 5747 celebradas el 05 de febrero de 2020, 11 de marzo de 2020, 18 de mayo de 2020, 24 de junio de 2020 y 01 de julio de 2020)
 DIVISIÓN CONTRATACIÓN ADMINISTRATIVA
 La Junta Directiva Nacional, en su calidad de tal y actuando en funciones propias de Asamblea de Accionistas de Popular Valores Puesto de Bolsa S. A.; Popular Sociedad Agencia de Seguros S. A.; Popular Sociedad de Fondos de Inversión S. A. y Operadora de Planes de Pensiones Complementarias del Banco Popular y de Desarrollo Comunal S. A., en sesiones ordinarias Nos. 5668 y 5675 celebradas el lunes 02 de setiembre y el lunes 30 de setiembre del 2019, acuerdan por unanimidad aprobar la modificación del Reglamento de Comités y Comisiones del Conglomerado Financiero Banco Popular y de Desarrollo Comunal, para que se lea de la siguiente manera:
 “1. Aprobar el Reglamento de Comités y Comisiones del Conglomerado Financiero Banco Popular y de Desarrollo Comunal, en los siguientes términos:

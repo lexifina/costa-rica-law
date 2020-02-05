@@ -14,3 +14,4 @@ Reforma integral Reglamento de Comités y Comisiones del Conglomerado Financiero
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-11-12 | la propia norma |
+| 2 | 2020-02-05 | Reglamento 5706 (2020-02-05) |
