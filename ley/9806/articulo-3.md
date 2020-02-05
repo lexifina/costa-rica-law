@@ -1,0 +1,1 @@
+ARTÍCULO 3- El destino del terreno indicado en el artículo 2 de esta ley será donado a favor de la Unión Zonal de Asociaciones de Desarrollo Integral de Sabalito de Coto Brus, cédula jurídica número tres - cero cero dos - seis nueve dos cuatro uno ocho (N.° 3-002-692418), para el Complejo Cultural y Recreativo Comunal de Sabalito de Coto Brus.
