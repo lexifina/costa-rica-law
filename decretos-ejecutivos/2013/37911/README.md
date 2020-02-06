@@ -14,3 +14,4 @@ Sistema de Registro del Ministerio de Agricultura y Ganadería, para Certificar 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-08-19 | la propia norma |
+| 2 | 2020-02-06 | Decreto Ejecutivo 42314 (2020-02-06) |
