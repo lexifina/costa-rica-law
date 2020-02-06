@@ -1,0 +1,2 @@
+Artículo 20.—Fiscalización de centros infantiles. El desarrollo de un proceso educativo de calidad y acorde a las necesidades de la población estudiantil inscrita en centros infantiles, corresponde a la institución pública a cargo de dichos centros.
+La fiscalización del servicio de Educación Preescolar desarrollado en centros infantiles, se ejecuta mediante las supervisiones de circuito educativo, las direcciones regionales de educación y el Departamento de Educación de la Primera Infancia, todas estas dependencias del MEP.

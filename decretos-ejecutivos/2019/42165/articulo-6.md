@@ -1,0 +1,2 @@
+Artículo 6º—Evaluación de los aprendizajes. La evaluación de los aprendizajes en la modalidad de centros infantiles se regirá según las disposiciones presentes en el Reglamento de Evaluación de los Aprendizajes vigente del MEP, el programa de estudio vigente, las guías pedagógicas aplicables, las demás disposiciones especiales aprobadas por el CSE, este reglamento y las disposiciones propias
+de cada centro infantil.

@@ -1,0 +1,3 @@
+Artículo 9º—Organización del curso lectivo y la jornada educativa. Cada centro infantil con el propósito de cumplir con los “Fines de la Educación Preescolar” y su respectivo plan y programas, distribuye la jornada diaria en experiencias, las cuales se desarrollarán según el grupo de edad y los lineamientos o guías que sobre la materia establezca el MEP.
+Cada centro infantil tendrá una jornada diaria que responderá como mínimo a los lineamientos en materia de jornada de Educación Preescolar establecidos por el MEP.
+Para el cumplimiento de los horarios del servicio educativo y del curso lectivo, los centros infantiles deberán acatar lo estipulado en el calendario escolar oficial del MEP, garantizando un mínimo de doscientos días lectivos por año.

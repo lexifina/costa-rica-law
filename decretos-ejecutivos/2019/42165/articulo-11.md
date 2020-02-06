@@ -1,0 +1,2 @@
+Artículo 11.—Titulación. La población estudiantil de centros infantiles que logre la promoción y el egreso en el nivel de Educación Preescolar, tendrá derecho a recibir el Certificado de Conclusión del Nivel de la Educación Preescolar.
+El certificado antes detallado será firmado por el director, directora o puesto afín del centro infantil y la supervisión educativa del MEP competente. Corresponderá al centro infantil establecer las coordinaciones respectivas con la supervisión de circuito competente en el tiempo y plazo establecido por el MEP para este fin.

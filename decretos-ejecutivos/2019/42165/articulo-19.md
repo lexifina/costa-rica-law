@@ -1,0 +1,1 @@
+Artículo 19.—Asesoramiento. El asesoramiento y acompañamiento a nivel técnico-académico de la labor educativa desarrollada por centros infantiles, corresponde a nivel regional a los departamentos de asesoría pedagógica de las direcciones regionales de educación y a nivel nacional al Departamento de Educación de la Primera Infancia del MEP.
