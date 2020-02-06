@@ -1,6 +1,7 @@
 No. 41820-H
 EL PRESIDENTE DE LA REPÚBLICA
 Y LA MINISTRA DE HACIENDA
+(Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 42194 del 6 de febrero del 2020, se establece convalidar el presente decreto ejecutivo, subsanándose el defecto contenido en el mismo, relativo a la implantación de la firma del titular de la cartera de Hacienda, y, por ende, se mantienen todos sus efectos jurídicos, surgidos a partir del 1 de julio de 2019, fecha en la cual entró en vigencia)
 Con fundamento en las atribuciones y facultades que les confieren los artículos 140 incisos 3) y 18) y 146 de la Constitución Política del 7 de noviembre de 1949; 25 inciso 1), 27 inciso 1) y 28 apartado 2 inciso b) de la Ley Nº 6227 del 2 de mayo de 1978, denominada "Ley General de la Administración Pública" y sus reformas.
 Considerando:
 I.- Que conforme con la misión de la Administración Tributaria y en cumplimiento del mandato legal establecido en el artículo 99 del Código de Normas y Procedimientos Tributarios, N° 4755 del 03 de mayo de 1971 y sus reformas, que faculta a la Administración Tributaria para gestionar y fiscalizar los tributos y de conformidad con las modernas tendencias del Derecho Tributario y la Teoría de la Hacienda Pública, la Administración Tributaria ha de contar con instrumentos ágiles y efectivos para el cumplimiento de sus funciones, garantizando el respeto de los derechos constitucionales y legales de los contribuyentes y demás obligados tributarios.
