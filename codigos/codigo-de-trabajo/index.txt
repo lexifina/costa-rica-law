@@ -377,7 +377,12 @@ articulo-372.md
 articulo-373.md
 articulo-374.md
 articulo-375.md
+articulo-375-bis.md
 articulo-376.md
+articulo-376-bis.md
+articulo-376-ter.md
+articulo-376-quater.md
+articulo-376-quinquies.md
 articulo-377.md
 articulo-378.md
 articulo-379.md
@@ -663,9 +668,11 @@ articulo-658.md
 articulo-659.md
 articulo-660.md
 articulo-661.md
+articulo-661-bis.md
 articulo-662.md
 articulo-663.md
 articulo-664.md
+articulo-664-bis.md
 articulo-665.md
 articulo-666.md
 articulo-667.md

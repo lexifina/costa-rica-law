@@ -1,3 +1,5 @@
-Artículo 661.- La calificación debe pedirse en cualquier tiempo mientras subsista la huelga o el paro, salvo lo dispuesto en la oración final del artículo 384.
+Artículo 661- La calificación podrá solicitarse en cualquier tiempo mientras subsista la huelga o el paro, salvo lo dispuesto en el artículo 384. En el caso de servicios públicos, la calificación podrá solicitarse hasta tres días después de su finalización.
+Los jerarcas de las entidades públicas están obligados a solicitar la calificación de la huelga dentro de las veinticuatro horas a partir de la suspensión de las labores; caso contrario, incurrirán de forma personal en las distintas responsabilidades que la ley señala.
 Sin perjuicio de lo dispuesto en el artículo 668, solo podrá intentarse un único proceso de calificación por el mismo movimiento o hechos, siempre que se trate de un mismo empleador o empleadora, aunque tenga lugar en todo el territorio nacional o en determinadas regiones, sin perjuicio de que si se produjera únicamente en un centro de trabajo se circunscribirá la calificación a ese centro.
 (Así adicionado por el artículo 2° de la ley N° 9343 del 25 de enero de 2016, “Reforma Procesal Laboral”.)
+(Así reformado por el artículo 1° de la Ley para brindar seguridad jurídica sobre la huelga y sus procedimientos, N° 9808 del 21 de enero del 2020)

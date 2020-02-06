@@ -1,0 +1,5 @@
+Artículo 661 bis- Declarada la legalidad de la huelga en servicios públicos no esenciales y transcurridos ocho días naturales a partir de la firmeza de dicha declaratoria sin que las partes hayan alcanzado una solución al conflicto, o al menos un acuerdo para deponerla mientras continúan las negociaciones, la parte patronal podrá solicitar al juez la suspensión de la huelga, cuando compruebe de manera fehaciente que esta está causando graves daños de difícil o imposible reparación a la ciudadanía.
+Presentada la gestión, el juez concederá audiencia a la contraparte dentro del plazo máximo de cuarenta y ocho horas, plazo en el cual deberán presentar sus alegatos. Recibidos los alegatos de las partes, el juez resolverá la solicitud en un plazo máximo de veinticuatro horas.
+Contra el resultado cabrá recurso de apelación, la cual se tramitará conforme a lo establecido en el artículo 668 de este Código.
+De acogerse la suspensión de la huelga, se procederá al arbitraje obligatorio.
+(Así adicionado por el artículo 2° de la Ley para brindar seguridad jurídica sobre la huelga y sus procedimientos, N° 9808 del 21 de enero del 2020)
