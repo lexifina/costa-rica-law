@@ -1,0 +1,1 @@
+Artículo 37°- Control de las visas. El control del otorgamiento de las visas en los pasaportes diplomáticos y pasaportes de servicio, en cuanto a sus plazos y vigencia, será responsabilidad del funcionario encargado del Departamento de Pasaportes, lo cual estará regulado en el procedimiento que emita el Departamento de Pasaportes.

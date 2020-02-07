@@ -1,0 +1,1 @@
+Artículo 16°- Comunicación del Poder Ejecutivo. El Poder Ejecutivo deberá comunicar a las autoridades migratorias y al Departamento de Pasaportes del Ministerio de Relaciones Exteriores y Culto, los cambios de titular de los puestos a que se refiere la Ley N° 7411, a fin de controlar el uso de los citados documentos.

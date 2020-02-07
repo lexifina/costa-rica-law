@@ -1,0 +1,1 @@
+Artículo 42°- Deber de cuidado. El Departamento de Pasaportes preparará los citados documentos para su firma con la nitidez del caso, cerciorándose de que el expediente cuente con la documentación requerida, previo a la expedición del documento migratorio correspondiente.

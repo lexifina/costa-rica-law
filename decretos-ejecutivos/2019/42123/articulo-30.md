@@ -1,0 +1,1 @@
+Artículo 30°- Deterioro del pasaporte. A fin de solicitar la reposición por deterioro del documento, se deberá sin excepción, entregar el mismo al Departamento de Pasaportes para su anulación y expedición de uno nuevo.

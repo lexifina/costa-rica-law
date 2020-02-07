@@ -1,0 +1,1 @@
+Artículo 20°- Calidad de titular. El funcionario solicitante, deberá acreditar la calidad de beneficiario del pasaporte diplomático y pasaporte de servicio ante el Departamento de Pasaportes del Ministerio de Relaciones Exteriores y Culto en los términos de la Ley N° 7411, el presente reglamento y las disposiciones administrativas que al efecto se dicten.

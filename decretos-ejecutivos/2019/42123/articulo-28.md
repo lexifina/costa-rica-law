@@ -1,0 +1,1 @@
+Artículo 28°- Procedimiento en caso de incumplimiento. En caso de incumplimiento por el funcionario o dependiente de éste con su consentimiento, de los plazos anteriores o cualquier otra obligación que le imponga el presente reglamento, constituirá una falta de servicio, cuya gravedad se valorará en el procedimiento correspondiente.
