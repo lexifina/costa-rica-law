@@ -1,0 +1,35 @@
+N° 42175-MEP
+EL PRESIDENTE DE LA REPÚBLICA
+Y LA MINISTRA DE EDUCACIÓN PÚBLICA
+En ejercicio de las atribuciones conferidas por los artículos 77, 81, 140 incisos 3), 8), y 18) y 146 de la Constitución Política, los principios, objetivos y fines establecidos para la educación costarricense en la Ley Fundamental de Educación, Ley N° 2160 del 25 de setiembre de 1957; el artículo 346 del Código de Educación, Ley N° 181 del 18 de agosto de 1944, los artículos 1 y 2 de la Ley Orgánica del Ministerio de Educación Pública, Ley N° 3481 del 13 de enero de 1965; y los artículos 25 inciso 1), 27 inciso 1), 28 incisos 1) y 2) acápite b, de la Ley General de la Administración Publica, Ley N° 6227 del 2 de mayo de 1978;
+Considerando:
+I.—Que el artículo 1° de la Ley Orgánica del Ministerio de Educación Pública, Ley N° 3481 de fecha 13 de enero de 1965, dispone que el Ministerio de Educación Pública (en adelante MEP) es el órgano del Poder Ejecutivo en el ramo de la Educación, a cuyo cargo está la función de administrar todos los elementos que lo integran, para la ejecución de las disposiciones pertinentes del título sétimo de la Constitución Política, de la Ley Fundamental de Educación, de las leyes conexas y de los respectivos reglamentos.
+II.—Que al MEP, como ente administrador de todo el sistema educativo, ejecutor de los planes, programas y demás determinaciones aprobadas por Consejo Superior de Educación (en adelante CSE), le corresponde promover el desarrollo y la consolidación de la excelencia académica, que permita el acceso de toda la población a una educación de calidad, centrada en el desarrollo integral de las personas y la promoción de una sociedad costarricense que disponga de oportunidades y que contribuya a la equidad social.
+III.—Que el Decreto Ejecutivo N° 2 de fecha 03 de marzo del año 1965, denominado Reglamento General Establecimientos Oficiales de Educación Media, es la norma que a nivel histórico ha regido con carácter general el funcionamiento administrativo y académico de los centros educativos públicos que imparten el III Ciclo de la Educación General Básica y el Ciclo Diversificado.
+IV.—Que el Reglamento General Establecimientos Oficiales de Educación Media de cita, fue reformado por última vez en el año 1985, situación que ha motivado la descontextualización de esta norma ante las necesidades actuales del sistema educativo y la falta de concordancia de la misma con normas posteriores de carácter especial aplicables a campos como la evaluación de los aprendizajes, convivencia estudiantil y matrícula y traslados de la población estudiantil.
+V.—Que las normas que motivan la actualización o derogación parcial del texto del Reglamento General Establecimientos Oficiales de Educación Media son el Decreto Ejecutivo N° 40862-MEP de fecha 12 de enero del año 2018, denominado Reglamento de Evaluación de los Aprendizajes, norma a cargo de regular el proceso de evaluación de los aprendizajes y la implementación del sistema de convivencia estudiantil en el sistema educativo costarricense y el Decreto Ejecutivo N° 40529-MEP de fecha 28 de julio de 2017, denominado Reglamento de matrícula y de traslados de los estudiantes, reglamento que establece los procesos de matrícula, y de traslados de la población estudiantil en los centros educativos públicos y privados de los diversos ciclos, niveles y modalidades.
+VI.—Que en consonancia con el proceso de reforma y actualización normativa antes indicado, el MEP ejecuta en conjunto con las representaciones sindicales del sector educación, el proceso de valorización docente y disminución del exceso de cargas laborales docentes, acciones que tienen como objetivo fortalecer el papel y reconocimiento de la función docente en la sociedad, disminuir el exceso de labores administrativas que asume la población docente con motivo de su puesto y, garantizar el derecho a la educación de la población estudiantil al propiciar la permanencia del personal docente en el aula.
+VII.—Que en atención al artículo 8 inciso c) de la Ley de Creación del Consejo Superior de Educación Pública, Ley N° 1362 de fecha 8 de octubre de 1951, el Consejo Superior de Educación en sesión N° 70-2019, celebrada el día 12 de diciembre de 2019, mediante acuerdo N° 03-70-2019, dispuso: aprobar la “Reforma de los artículos 7 inciso 21), 8 inciso 3 y 5) y 44 inciso 14); y derogación de los artículos 5, 7 inciso 5) , 23, 24, 25 ,26, 50, 51, 52, 53, 54, 56, 57, 58, 59, 60, 61 ,62, 63, 64, 65, 66, 67, 68, 69, 70, 72, 75, 76, 77, 78, 79, 80, 81, 82, 83, 84, 85, 86, 87, 88, 89 y 90 del Reglamento General Establecimientos Oficiales de Educación Media - Decreto Ejecutivo N° 2.”
+VIII.—Que de conformidad con el artículo 12 del Reglamento a la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos, Decreto Ejecutivo N° 37045-MPMEIC de fecha 22 de febrero de 2012, adicionado por el artículo 12 bis del Decreto Ejecutivo N° 38898-MP-MEIC de fecha 20 de noviembre de 2014, y en virtud de que este instrumento jurídico no contiene trámites, requisitos ni obligaciones que perjudiquen al administrado, se exonera del trámite de la evaluación costo beneficio de la Dirección de Mejora Regulatoria del Ministerio de Economía, Industria y Comercio. Por tanto;
+Decretan:
+“REFORMA DE LOS ARTÍCULOS 7 INCISO 21), 8 INCISOS 3
+Y 5) Y 44 INCISO 14) Y DEROGATORIA DE LOS ARTÍCULOS
+5, 7 INCISO 5) , 23, 24, 25, 26, 50, 51, 52, 53, 54, 56, 57, 58, 59,
+60, 61, 62, 63, 64, 65, 66, 67, 68, 69, 70, 72, 75, 76, 77, 78, 79, 80,
+81, 82, 83, 84, 85, 86, 87, 88, 89 Y 90 DEL REGLAMENTO
+GENERAL ESTABLECIMIENTOS OFICIALES
+DE EDUCACIÓN MEDIA-DECRETO
+EJECUTIVO N° 2”
+Artículo 1º—Se reforman los artículos 7 0 inciso 21), 8 0 incisos 3) y 5) y 440 inciso 14) del Decreto Ejecutivo N° 2 del 03 de marzo del año 1965, “Reglamento General Establecimientos Oficiales de Educación Media”, publicado en La Gaceta N° 54 del 07 de marzo de 1965, cuyo texto en adelante dirá:
+“Artículo 7.- x
+(…)
+21) Designar los profesores consejeros o guía de cada curso y a los que deban formar parte del Departamento de Orientación según dispone el artículo 11;
+“Artículo 8.-
+(…)
+3) Conocer de los informes de los Departamentos de la institución.
+(…)
+5) Conocer y brindar resolución a las situaciones, casos o temáticas que incidan en la buena marcha de la institución y que le sean planteadas por parte del director o directora de la institución o quien asuma sus funciones.
+Con el fin de propiciar la atención directa de cada caso por el Consejo y evitar el fenómeno del exceso de cargas labores docentes, la dirección del centro educativo y el propio Consejo se encuentran imposibilitados a efecto de conformar comisiones permanentes y especiales en las que se asuman funciones propias de la dirección, un departamento en particular, del personal docente, administrativo docente o técnico docente.
+“Artículo 44.-
+(…)
+14) Formar parte, según solicitud del director o directora, de las comisiones, comités, equipos de trabajo y afines que sean exigidos de forma expresa por disposición normativa o lineamientos generales emitidos por el Ministro o Ministra de Educación pública.”

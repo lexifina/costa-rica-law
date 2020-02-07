@@ -1,0 +1,1 @@
+Artículo 3º—Deróguese con motivo del proceso reducción del exceso de cargas laborales docentes ejecutado por el MEP y la redistribución de funciones administrativas a cargo de las direcciones de centro educativo el artículo 7 inciso 5) y el artículo 23 del Decreto Ejecutivo N02 del 03 de marzo del año 1965, “Reglamento General Establecimientos Oficiales de Educación Media”.
