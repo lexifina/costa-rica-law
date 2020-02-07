@@ -1,6 +1,6 @@
 # Creación del Sistema Nacional de Educación Musical
 
-Ley N° 8894 del 2010-11-10. SINALEVI, ficha 69298: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=69298&param2=116836&param3=1>.
+Ley N° 8894 del 2010-11-10. SINALEVI, ficha 69298: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=69298&param2=119290&param3=1>.
 
 Publicada en La Gaceta N° 243 del 2010-12-15.
 
@@ -10,3 +10,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | --- | --- | --- | --- |
 | 1 de 3 | 2010-12-15 | Ley 8894 | 2010-11-10 |
 | 2 de 3 | 2019-07-02 | Ley 9643 | 2019-02-16 |
+| 3 de 3 | 2020-02-07 | Ley 9804 | 2020-01-14 |
