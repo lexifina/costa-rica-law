@@ -22,7 +22,8 @@ d) Contar con una plataforma tecnológica robusta y escalable que soporte la sol
 e) Enviar a la Administración Tributaria los archivos XML emitidos por el sistema para su respectiva validación.
 f) Emitir y entregar los respectivos comprobantes electrónicos cuando así lo solicite el cliente.
 g) Emitir, entregar y recibir los respectivos comprobantes electrónicos.
-h) Entregar al receptor las confirmaciones emitidas por el Ministerio de Hacienda producto de la validación. Emitir, entregar y recibir los respectivos comprobantes electrónicos, así como la aceptación y/o rechazo de los mismos para el respaldo de créditos y gastos
+h) Entregar al receptor los mensajes de aceptación o rechazo emitidos por el Ministerio de Hacienda producto de la validación.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 42195 del 7 de febrero del 2020)
 i) Entregar al receptor las confirmaciones emitidas por el Ministerio de Hacienda producto de la validación, así como las confirmaciones de aceptaciones o rechazos de los comprobantes electrónicos que reciben y que se constituirán en créditos o gastos.
 j) Almacenar y conservar en soporte electrónico los archivos XML recibidos, en las condiciones que se indican en el presente reglamento.
 Contar con planes de contingencia y de continuidad del negocio para prevenir los efectos de fallas, caídas o problemas de operación del sistema, debiendo estar estos documentados y actualizados.
