@@ -1,0 +1,1 @@
+Artículo 23.- La Junta Directiva del Colegio de Enfermeras de Costa Rica, se reserva el derecho de dar en concesión o reserva, el salón multiuso o rancho, para que sea explotado o comercializado por un tercero, esto con la finalidad de que puedan ofrecer a los visitantes productos para el consumo durante su estadía en el Centro de Recreación.

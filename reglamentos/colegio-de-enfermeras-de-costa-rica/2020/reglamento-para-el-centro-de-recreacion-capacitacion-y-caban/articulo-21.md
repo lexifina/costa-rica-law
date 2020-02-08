@@ -1,0 +1,1 @@
+Artículo 21.- Se deberá retirar del Centro de Recreación, cualquier tipo de equipo que se haya utilizado para la actividad, a más tardar en las siguientes 24 horas posteriores al evento. En caso contrario el Colegio no se hará responsable del mismo.

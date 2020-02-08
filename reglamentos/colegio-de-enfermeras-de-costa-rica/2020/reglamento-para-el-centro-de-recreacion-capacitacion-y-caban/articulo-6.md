@@ -1,0 +1,1 @@
+Artículo 6.- Las(os) Colegiadas(os) que asistan al Centro de Recreación, deberán presentar su Licencia de Enfermería al día y encontrarse con los pagos de colegiatura al día. Las personas autorizadas o invitados, deberán presentar su documento de identidad, vigente y en buen estado, no podrán tener acceso en caso de que el Colegiado(a) no se encuentre al día con las obligaciones.

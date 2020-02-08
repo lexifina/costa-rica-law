@@ -1,0 +1,1 @@
+Artículo 65.- Este Reglamento rige a partir del día siguiente de su aprobación por parte de la Asamblea General del Colegio de Enfermeras de Costa Rica, o sea a partir del día 08 de febrero mes de 2020.

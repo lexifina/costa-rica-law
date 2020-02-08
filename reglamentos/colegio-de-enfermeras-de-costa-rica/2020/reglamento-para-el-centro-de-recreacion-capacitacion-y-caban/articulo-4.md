@@ -1,0 +1,1 @@
+Artículo 4.- El Encargado reportará a la Administración mediante informe escrito cualquier conflicto que se presente en el Centro de Recreo. La Administración se encargará de realizar la respectiva gestión ante la Junta Directiva, para lo que corresponda.

@@ -1,0 +1,1 @@
+Artículo 9.- Todo usuario acepta que el Colegio de Enfermeras no asume ninguna responsabilidad por cualquier perjuicio, daño o accidente que suceda dentro de las instalaciones, ocasionados por incumplimiento de las normativas que establece este Reglamento.

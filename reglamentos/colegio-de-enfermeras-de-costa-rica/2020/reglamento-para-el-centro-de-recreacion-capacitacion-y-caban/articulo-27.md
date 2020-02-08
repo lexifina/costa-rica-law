@@ -1,0 +1,1 @@
+Artículo 27.- El colegiado (a) tiene la obligación de respetar la autoridad delegada en el Encargado del Centro de Recreación, todos los acompañantes del colegiado (a), deberán registrar su ingreso con toda la documentación e información necesaria a la entrada del Centro de Capacitación y Recreación.

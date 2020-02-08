@@ -1,0 +1,1 @@
+Artículo 26.- El Encargado del Centro de Recreación, es el responsable de vigilar que los huéspedes cumplan con el buen uso de las cabañas. De igual forma es su deber reportar de inmediato cualquier anomalía a la Administración o a la Junta Directiva para que esta proceda como corresponda.

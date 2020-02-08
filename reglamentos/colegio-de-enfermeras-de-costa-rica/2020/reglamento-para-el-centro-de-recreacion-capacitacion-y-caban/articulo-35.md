@@ -1,0 +1,1 @@
+Artículo 35.- Quedan a salvo los derechos del establecimiento, así como de los colegiados (as) e invitados para denunciar ante las autoridades competentes los hechos que constituyan algún ilícito o que dieran lugar a responsabilidad por alguna de las partes en sus personas y bienes, siempre y cuando ocurren dentro del complejo.

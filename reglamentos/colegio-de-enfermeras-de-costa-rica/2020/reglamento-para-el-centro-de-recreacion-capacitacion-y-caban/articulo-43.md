@@ -1,0 +1,1 @@
+Artículo 43.- En caso de pérdida, daño o deterioro de los enseres o instalaciones de las cabañas, causado por el inadecuado uso, manipulación o acción negligente, el encargado del Centro de Recreación, deberá notificar a la Administración para que se tomen las acciones pertinentes.

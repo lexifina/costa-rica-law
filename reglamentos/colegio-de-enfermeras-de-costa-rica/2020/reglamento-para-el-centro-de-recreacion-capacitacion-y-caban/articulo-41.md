@@ -1,0 +1,1 @@
+Artículo 41.- Para el uso de las cabañas y el disfrute del complejo, no podrá existir discriminación alguna por razones de género, afinidad política, religión, nacionalidad, condición social o lugar de procedencia.

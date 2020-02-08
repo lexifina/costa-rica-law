@@ -1,0 +1,1 @@
+Artículo 34.- No se permitirá a los huéspedes tener en las cabañas ningún tipo de animales, armas, explosivos, drogas y/o artículos inflamables que puedan provocar accidentes o alterar el orden público y la seguridad de las personas. La presencia de alguno/a de ellos/as, faculta al Colegio, por medio el encargado del Centro de Recreación, a solicitar el desalojo de la cabaña.

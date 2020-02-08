@@ -1,0 +1,1 @@
+Artículo 52.- La Junta Directiva, el Administrador o el Encargado del Centro de Recreación, podrán ordenar el cierre de la piscina por razones de falta de higiene en el agua, por mal funcionamiento de los equipos, por falta de químicos en el agua o por inclemencias del tiempo que pusiese en peligro a los usuarios.

@@ -1,0 +1,2 @@
+Artículo 29.- Los colegiados (as) que hagan uso de las instalaciones deberán velar por el aseo de estas y serán responsables de cualquier daño a la cabaña, mobiliario, enseres, medidores y otros durante su estadía. Además, será responsabilidad del colegiado(a) el cuido de la ropa de cama, almohadas, implementos de aseo, accesorios de baño, paños y utensilios de cocina y vajillas.
+En caso de pérdida o destrucción, su costo será trasladado al agremiado.

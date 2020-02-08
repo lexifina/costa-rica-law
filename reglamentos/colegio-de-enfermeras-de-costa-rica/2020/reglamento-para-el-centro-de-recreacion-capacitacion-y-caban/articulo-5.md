@@ -1,0 +1,1 @@
+Artículo 5.- El encargado del Centro de Recreación, posee autoridad para hacer respetar las disposiciones del presente Reglamento, por lo que cuenta con la potestad de llamar la atención y aplicar las medidas correctivas en el momento que así lo considere.

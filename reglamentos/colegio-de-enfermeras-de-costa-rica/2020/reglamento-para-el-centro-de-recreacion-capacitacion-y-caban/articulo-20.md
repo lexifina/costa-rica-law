@@ -1,0 +1,1 @@
+Artículo 20.- Cualquier daño causado a las instalaciones del Centro de Recreación, equipo, mobiliario u otros deberá ser cubierto en su justo valor de reposición en los cinco días hábiles posteriores a la fecha en que se presentó el daño. Los daños que sean provocados en forma intencional serán además motivo de sanción según lo estipulado en el Artículo 12 inciso g).

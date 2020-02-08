@@ -1,0 +1,1 @@
+Artículo 8.- Tanto los colegiados (as) o sus invitados, el Encargado del Centro de Recreación, colaboradores, y empresas externas que le brinden servicios al Colegio a través del Centro de Recreación, deben cumplir las disposiciones contenidas en este Reglamento.

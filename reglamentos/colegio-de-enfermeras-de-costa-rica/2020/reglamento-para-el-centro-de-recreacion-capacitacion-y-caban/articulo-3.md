@@ -1,0 +1,1 @@
+Artículo 3- El Centro de Recreación, permanecerá abierto inclusive los días feriados, salvo indicación contraria de Junta Directiva, en un horario de 8:00 a.m. a 08:00 p.m. Los días lunes permanecerá cerrado por mantenimiento.

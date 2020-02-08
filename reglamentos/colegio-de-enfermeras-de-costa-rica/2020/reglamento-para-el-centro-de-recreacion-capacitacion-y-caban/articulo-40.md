@@ -1,0 +1,1 @@
+Artículo 40.- Los objetos y valores olvidados por algún colegiado (a) o sus invitados, quedarán en custodia del encargado del Centro de Recreación, por un término de 30 días, concluido este término y al no haberse reclamado los mismos, el Colegio dispondrá de ellos donándolos a alguna institución de beneficencia o asistencia pública.

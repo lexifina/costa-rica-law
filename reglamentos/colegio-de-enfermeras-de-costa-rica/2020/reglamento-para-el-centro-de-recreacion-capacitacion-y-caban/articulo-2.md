@@ -1,0 +1,1 @@
+Artículo 2.- Este Reglamento regula todas las actividades que se desarrollen en el Centro de Recreación, y establece normas disciplinarias emanadas de Junta Directiva y asumidas por la Administración, quien es responsable de velar por el cumplimiento de parte de los Colegiados (as), familiares e invitados.
