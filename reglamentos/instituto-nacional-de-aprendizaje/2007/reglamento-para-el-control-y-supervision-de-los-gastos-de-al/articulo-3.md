@@ -1,1 +1,5 @@
-Artículo 3º—Ámbito de aplicación: La presente normativa aplicará para los gastos de alimentación sufragados con fondos públicos en los que se incurra durante la celebración de las jornadas de trabajo, así como sesiones ordinarias y extraordinarias de la Junta Directiva del INA.
+Artículo 3º—Principios rectores:
+Austeridad: es la política económica basada en la reducción del gasto público.
+Deber de probidad: obligación del funcionario público de administrar los recursos públicos con apego a los principios de legalidad, eficacia, economía y eficiencia, rindiendo cuentas satisfactoriamente.
+Principio de eficiencia: la aplicación más conveniente de los recursos asignados para maximizar los resultados obtenidos o esperados.
+Principio de legalidad: es el sometimiento de toda actuación pública al ordenamiento jurídico.

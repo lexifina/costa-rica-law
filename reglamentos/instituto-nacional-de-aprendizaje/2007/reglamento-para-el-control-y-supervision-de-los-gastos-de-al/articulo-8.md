@@ -1,2 +1,1 @@
-Artículo 8º—Vigencia: El presente reglamento rige a partir de su aprobación por la Junta Directiva.
-Acuerdo firme por unanimidad.
+Artículo 8º—Responsabilidad: La responsabilidad que corresponda por el incumplimiento de los deberes establecidos en este Reglamento, se regulará por lo establecido en el Reglamento Autónomo de Servicios del INA, la Ley Orgánica de la Contraloría General de la República, Ley General de Control Interno, Ley de la Administración Financiera y Presupuestos Públicos y la Ley contra la Corrupción y el Enriquecimiento ilícito en la Función Pública y recaerá sobre la Secretaría Técnica como órgano de apoyo de la Junta Directiva.

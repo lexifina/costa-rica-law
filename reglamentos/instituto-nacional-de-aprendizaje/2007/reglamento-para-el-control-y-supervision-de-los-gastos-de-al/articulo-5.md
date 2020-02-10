@@ -1,3 +1,1 @@
-SECCIÓN II
-Lineamientos específicos
-Artículo 5º—Prohibición de comprar bebidas alcohólicas: queda prohibida la compra de bebidas alcohólicas con cargo a los recursos institucionales para las jornadas de trabajo, sesiones ordinarias y extraordinarias de la Junta Directiva.
+Artículo 5º—Carácter excepcional del gasto: Se determinará la procedencia del gasto observando los principios de austeridad y probidad, entendiendo que el mismo solo procede en los casos estrictamente necesarios cuando la reunión o sesión se prolongue por más de dos horas, que abarque la hora de desayuno, almuerzo o cena, o bien que se requiera para su debida continuidad el consumo de algún alimento con el objeto de evitar una interrupción o dispersión de los participantes.
