@@ -1,0 +1,1 @@
+ARTÍCULO 2.- Las resoluciones, los oficios de respuesta a las consultas amparadas o no al artículo 119 del Código de Normas y Procedimientos Tributarios, así como cualquier otro acto administrativo sustentado en el Decreto Ejecutivo N.° 41820 del 19 de junio de 2019, mantienen todos sus efectos jurídicos a partir del 1 de julio de 2019.
