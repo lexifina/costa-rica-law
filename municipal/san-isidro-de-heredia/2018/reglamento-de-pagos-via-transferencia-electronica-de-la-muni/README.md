@@ -14,3 +14,4 @@ Reglamento de pagos vía transferencia electrónica de la Municipalidad de San I
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-02-04 | la propia norma |
+| 2 | 2020-02-10 | Reglamento municipal 9 (2020-02-10) |
