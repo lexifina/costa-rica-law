@@ -14,3 +14,4 @@ Reglamento para la Selección y Nombramiento de los puestos de Auditor y Subaudi
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-12-30 | la propia norma |
+| 2 | 2020-02-10 | Reglamento 4 (2020-02-10) |
