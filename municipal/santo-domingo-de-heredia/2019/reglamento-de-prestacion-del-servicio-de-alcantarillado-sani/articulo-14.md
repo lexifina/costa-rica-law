@@ -1,0 +1,7 @@
+Artículo 14: Responsabilidad y obligación de los usuarios:
+a) Mantener en buenas condiciones de funcionamiento los sistemas e instalaciones internos de su sistema sanitario domiciliar. La Municipalidad no asumirá ninguna responsabilidad por su mal funcionamiento; por tanto, queda eximida de todo reclamo por daños y perjuicios a personas o propiedades, ocasionados directa o indirectamente por el uso de los sistemas mencionados.
+b) la instalación de interceptores de grasas o aceites, de materiales arenosos y otros que se consideren factibles. Como parte del sistema sanitario domiciliar, el usuario queda obligado a darle el mantenimiento necesario a dichas instalaciones.
+c) Para el caso del sistema de saneamiento sanitario es responsabilidad del usuario la construcción y el debido mantenimiento de la caja sifón, según las especificaciones técnicas.
+d) Autorizar el acceso a su propiedad del personal de la MSDH debidamente identificado, para realizar inspecciones propias de su competencia.
+e) Solicitar a la MSDH la actualización de los datos cuando se adquiere la titularidad de un inmueble que cuente con los servicios. La solicitud debe acompañarse de los documentos válidos que comprueben su titularidad.
+f) Respetar al funcionario de MSDH, no esperar ni demandar un trato contrario al establecido por la legislación vigente o la ética, facilitarle en lo posible su labor y cumplir con los trámites y requisitos que correspondan, en caso contrario MSDH podrá utilizar los mecanismos legales pertinentes en defensa de sus funcionarios.

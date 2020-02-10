@@ -1,0 +1,3 @@
+Artículo 32: De la aplicación de saldos a favor del usuario o del servicio
+El usuario podrá solicitar a la MSDH, aplicando el artículo 35 del Reglamento para el Procedimiento de cobro administrativo, extrajudicial y judicial de la Municipalidad de Santo Domingo de Heredia, aplicación de saldos a su favor, originados en la duplicación de pagos, modificaciones en los montos facturados que previamente se cancelaron y otros servicios que el AMSDH no ejecutó y fueron pagados por el usuario, en tanto no haya superado el plazo de prescripción que dispone el Código de Normas de Procedimientos Tributarios.
+Así mismo dicha devolución sería aplicable a este mismo servicio y no a otros servicios o impuestos municipales.

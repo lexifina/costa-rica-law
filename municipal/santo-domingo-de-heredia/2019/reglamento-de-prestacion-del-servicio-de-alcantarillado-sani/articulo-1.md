@@ -1,0 +1,9 @@
+MUNICIPALIDAD DE SANTO DOMINGO DE HEREDIA
+La Secretaría del Concejo Municipal comunica que mediante el Acuerdo Municipal tomado bajo la Sesión 279-2019 de fecha 21 de octubre de 2019, el Concejo Municipal, en apego a las competencias y atribuciones que establece el artículo 169 y 170 de la Constitución Política y los artículos 3, 4, 13.inciso 3 y 43 del Código Municipal; aprobó y adoptó para su aplicación y entrada en vigencia el Reglamento de Prestación del Servicio de Alcantarillado Sanitario y Planta de Aguas Residuales de la Urbanización La Zamora, que a continuación se detalla:
+"Con sustento en los dispuesto en los artículos 169 y 170 de la Constitución Política, 4°, inciso a), 13, inciso d), 43, 77, 78, 83, del Código Municipal; artículos 285 al 297 de la Ley Nº 5395 del 30 de octubre de 1973, "Ley General de Salud" artículos 50, 51 y 52 de la Ley Nº 7554 del 4 de octubre de 1995, "Ley Orgánica del Ambiente" artículos 69 y 128 de la Ley Nº 7317 del 30 de octubre 1992, "Ley de Conservación de Vida Silvestre"; se emite el presente Reglamento de Prestación de Servicio Alcantarillado Sanitario y Tratamiento de Aguas Residuales Domiciliarias de la Urbanización los Zamora del cantón de Santo Domingo.
+Este Reglamento establece las pautas necesarias para que la Municipalidad de Santo Domingo de Heredia brinde el servicio de alcantarillado sanitario y saneamiento de aguas residuales mediante la Planta de Tratamiento de la urbanización la Zamora, al filo y en cumplimiento de las normativas vigentes, en cuando a saneamiento de aguas residuales y su reuso o vertido.
+CAPÍTULO I:
+OBJETIVO, ÁMBITO DE APLICACIÓN Y ALCANCE
+Sección Única
+Artículo 1: Objetivo
+Reglamentar las relaciones, derechos y obligaciones entre la Municipalidad de Santo Domingo y los usuarios de la Urbanización la Zamora; surgidas de la disponibilidad y prestación efectiva de los servicios recolección, tratamiento y disposición de las aguas residuales.

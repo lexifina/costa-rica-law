@@ -1,0 +1,2 @@
+Artículo 16: Tipo de agua a verter PTAR la Zamora.
+Queda totalmente prohibido verter al alcantarillado sanitario del residencial la Zamora, agua residual que no sea de tipo ordinario. Si el MSDH determina la existencia de una descarga de aguas residuales que sobrepasa los límites establecidos en la normativa ambiental vigente, solicitará al Ministerio de Salud la investigación respectiva y la aplicación de las sanciones que procedan.

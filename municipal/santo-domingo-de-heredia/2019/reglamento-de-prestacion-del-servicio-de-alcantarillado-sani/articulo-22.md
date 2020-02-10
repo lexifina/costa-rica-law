@@ -1,0 +1,2 @@
+Artículo 22.- De la conexión fraudulenta
+Cuando se determine conexión fraudulenta en los servicios de saneamiento, la MSDH la suspenderá el servicio siguiendo el debido proceso e incluirá a la facturación el cobro del servicio, desde la fecha de suspensión y/o verificación hasta la fecha de determinación de la fraudulencia, corno servicio fijo en la tarifa correspondiente y podrá iniciar la acción penal que corresponda.

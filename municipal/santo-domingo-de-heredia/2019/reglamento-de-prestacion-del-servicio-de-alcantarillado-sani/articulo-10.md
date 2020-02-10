@@ -1,0 +1,3 @@
+Artículo 10.- De las inspecciones por parte de la MSDH
+La MSDH podrá realizar los estudios e investigaciones necesarias para el logro de sus fines, dentro de los inmuebles y edificaciones privadas, por medio del personal debidamente identificado, previa notificación. En caso de que el usuario no permita el ingreso del personal de la MSDH para realizar los estudios requeridos, se utilizarán los medios legales pertinentes.
+A solicitud del usuario, la MSDH realizara revisiones para comprobar el adecuado funcionamiento del hidrómetro cuando sea requerido. Esta revisión generara un costo por servicio.
