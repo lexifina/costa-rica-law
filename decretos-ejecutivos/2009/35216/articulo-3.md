@@ -1,1 +1,1 @@
-Artículo 3º—Los lineamientos técnicos básicos incluidos en el PAN, así como las estrategias propuestas, servirán de base para la ejecución del Plan Nacional de Uso, Manejo y Conservación de Suelos, en todos los Comités y Planes por Área que se constituyan, posterior a la publicación de este Decreto Ejecutivo.
+Artículo 3º—(Derogado por el artículo 5° del Plan Nacional de manejo y conservación de suelos para las tierras de uso agroecológico de Costa Rica, aprobado mediante decreto ejecutivo N° 42316 del 10 de febrero del 2020)

@@ -15,3 +15,4 @@ Oficialización del Programa de Acción Nacional de Lucha Contra la Degradación
 | --- | --- | --- |
 | 1 | 2009-06-23 | la propia norma |
 | 2 | 2012-06-25 | Ley 9046 |
+| 3 | 2020-02-10 | Decreto Ejecutivo 42316 (2020-02-10) |

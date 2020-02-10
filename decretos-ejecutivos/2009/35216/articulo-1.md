@@ -22,4 +22,4 @@ Oficialización del Programa de Acción Nacional de Lucha contra
 la Degradación de la Tierra en Costa Rica y modificación
 del Decreto Ejecutivo de creación de la Comisión Asesora
 sobre Degradación de Tierras-CADETI-
-Artículo 1º—Oficializar el Programa de Acción Nacional de Lucha contra la Degradación de la Tierra en Costa Rica, en adelante conocido como PAN, elaborado por la Comisión Asesora sobre Degradación de Tierras (CADETI) en el marco de la Convención de las Naciones Unidas de Lucha contra la Desertificación en los países Afectados por Sequía Grave o Desertificación en particular en África, como el instrumento de lucha contra la degradación de la tierra en Costa Rica.
+Artículo 1º—(Derogado por el artículo 5° del Plan Nacional de manejo y conservación de suelos para las tierras de uso agroecológico de Costa Rica, aprobado mediante decreto ejecutivo N° 42316 del 10 de febrero del 2020)
