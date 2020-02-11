@@ -14,3 +14,4 @@ Reforma integral Reglamento Especial para la Inhabilitación por Morosidad de lo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-12-17 | la propia norma |
+| 2 | 2020-02-11 | Reglamento 12 (2020-02-11) |
