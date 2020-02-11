@@ -1,0 +1,1 @@
+Artículo 15.—El control de verificación de marcas señalado en el artículo anterior, debidamente firmado por quien ocupe el cargo de Secretario (a) del Concejo Municipal, deberá remitirse al Departamento correspondiente de forma oportuna, a fin de que se proceda con el pago y rebajo de las dietas conforme corresponda.

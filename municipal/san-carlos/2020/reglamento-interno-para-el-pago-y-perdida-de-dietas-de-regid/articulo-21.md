@@ -1,0 +1,1 @@
+Artículo 21.—Los regidores y síndicos serán los responsables de actualizar sus expedientes personales ante el Departamento de Recursos Humanos Municipal en caso de que la información que en ellos se encuentra requiera ser modificada.
