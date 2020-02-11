@@ -1,0 +1,1 @@
+Artículo 28.—De la vigencia del presente reglamento. La presente disposición reglamentaria regirá una vez que sea debidamente publicado por única vez en el Diario Oficial La Gaceta, en virtud de lo regulado en el artículo 43 del Código Municipal.”

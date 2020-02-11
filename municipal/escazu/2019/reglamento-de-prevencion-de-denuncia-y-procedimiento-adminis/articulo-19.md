@@ -1,0 +1,1 @@
+Artículo 19.—De la duración del procedimiento administrativo. El procedimiento administrativo por acoso u hostigamiento sexual tendrá una duración de dos meses, entendido como un plazo ordenatorio y no perentorio. Serán únicamente perentorios los que la ley le otorgue esa condición.

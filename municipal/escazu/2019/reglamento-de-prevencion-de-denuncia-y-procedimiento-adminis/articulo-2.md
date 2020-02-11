@@ -1,0 +1,2 @@
+Artículo 2º—Del ámbito de aplicación: la presente disposición reglamentaria regirá para toda persona funcionaria que labore para la Municipalidad de Escazú, indistintamente del nombramiento que ostenten, así como a los funcionarios de elección popular.
+Cuando el hostigamiento sexual se dirija de funcionarios municipales a terceros ajenos a la institución o viceversa, queda excluido del presente reglamento y será competencia de la Autoridad Judicial competente en materia de delitos sexuales.

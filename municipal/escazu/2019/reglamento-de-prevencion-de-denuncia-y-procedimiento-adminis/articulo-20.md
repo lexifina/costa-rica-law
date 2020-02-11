@@ -1,0 +1,1 @@
+Artículo 20.—Del acceso al expediente administrativo. Podrá únicamente las partes, así como sus abogados debidamente apersonados al proceso, accesar al expediente administrativo. En el caso de las partes requieran copias, o bien la emisión de certificaciones, deberá observarse lo dispuesto en el artículo 272.2 de la Ley General de la Administración Pública.

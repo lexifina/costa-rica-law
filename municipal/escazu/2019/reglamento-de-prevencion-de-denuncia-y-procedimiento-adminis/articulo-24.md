@@ -1,0 +1,10 @@
+CAPÍTULO V
+De las medidas cautelares a partir de la denuncia
+por acoso u hostigamiento sexual
+Artículo 24.—De la aplicación de medidas cautelares. Al recibirse la denuncia por acoso u hostigamiento sexual, o bien en cualquier etapa de la instrucción del procedimiento administrativo, la persona denunciante podrá solicitar, o bien la Comisión Instructora de Acoso Sexual podrán sugerir al Órgano Decisor la adopción de las medidas cautelares que se estimen pertinentes, las cuales deberán ser racionales y proporcionales con relación al objeto del procedimiento administrativo. Las medidas cautelares que se pueden adoptar pueden ser alguna de las siguientes:
+a) Suspensión con goce de salario de la persona funcionaria denunciada.
+b) Reubicación temporal de la persona denunciada o de la persona denunciante, siempre y cuando no resulte en revictimación.
+c) Cambio en la supervisión de las labores de la persona denunciante, cuando la persona denunciada sea su superior inmediato
+d) Otras medidas que recomiende la Comisión Instructora, siempre que garanticen los derechos de las partes, guarden proporcionalidad y legalidad, y siempre que no afecte el servicio público que se brinda.
+La solicitud de medida cautelar deberá ser presentada ante el titular de la Alcaldía Municipal o al Concejo Municipal, por la parte que la promueva al inicio o bien durante la sustanciación del procedimiento administrativo. La medida cautelar deberá ser resuelta en única instancia por el Órgano Decisor dentro del término de tres días hábiles posteriores a su recibo. Contra lo resuelto solo cabrá recurso de adición y/o aclaración dentro del término de tres días posteriores a su notificación y resuelto en igual plazo por quién la dicta.
+La medida cautelar, a petición de parte o de oficio por parte del titular de la Alcaldía Municipal o del Concejo Municipal podrá ser modificada, según las circunstancias que se presenten en la instrucción del procedimiento administrativo. El cambio de medida cautelar deberá observar el iter procedimental indicado en el párrafo anterior.

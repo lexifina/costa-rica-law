@@ -1,0 +1,1 @@
+Artículo 21.—Del apoyo psicológico a la persona denunciante. La Municipalidad de Escazú pondrá a disposición de la parte denunciante el apoyo psicológico que requiera, sea a través de las personas psicólogas que laboren para este Ayuntamiento, o bien a través de alguna profesional que se contrate de forma externa al efecto.
