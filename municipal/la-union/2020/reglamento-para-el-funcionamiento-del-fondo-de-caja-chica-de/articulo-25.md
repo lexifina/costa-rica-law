@@ -1,0 +1,1 @@
+Artículo 25.—Todo arqueo al fondo de caja chica se realizará en presencia del Tesorero Municipal, quién es el funcionario responsable del fondo o quien este designe para tal efecto, según lo dispuesto en el Código Municipal vigente para tales efectos. Este funcionario tendrá el derecho de pedir una segunda verificación, si mantiene dudas sobre el resultado obtenido.

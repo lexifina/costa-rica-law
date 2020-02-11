@@ -1,0 +1,1 @@
+Artículo 9º—Cuando se presuma, que este reglamento se está utilizando para obviar los procesos de contratación, se requerirá de un visto bueno del proveedor municipal. En todo caso, será el Tesorero (a) Municipal, quien definirá en última instancia, si se autoriza la compra o contratación a través de este fondo.

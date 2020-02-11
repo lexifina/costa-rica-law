@@ -1,0 +1,1 @@
+Artículo 29.—Se confeccionarán reintegros del fondo de caja chica cuando se haya gastado no más del 50% del fondo establecido, con el propósito de darle la rotación óptima a los recursos y mantener la liquidez del fondo.

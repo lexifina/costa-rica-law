@@ -1,0 +1,1 @@
+Artículo 26.—Si por caso fortuito o fuerza mayor el encargado del fondo se ausente de su puesto y siendo necesario la utilización del fondo, se realizará un arqueo en presencia del tesorero municipal o a quien él designe y dos testigos, haciendo constar mediante un documento firmado, el contenido del mismo
