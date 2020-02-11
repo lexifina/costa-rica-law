@@ -1,1 +1,2 @@
-Artículo 9º—Rige a partir de su publicación en el Diario Oficial.
+Artículo 9º—Sin perjuicio de las gestiones administrativas de cobro de las contribuciones y cuotas correspondientes, el Colegio se reserva el derecho de acudir al cobro judicial, en atención a lo dispuesto en el artículo 64 de la Ley Orgánica del CFIA.
+(Así modificada la numeración del artículo anterior mediante sesión N° 12-19/20-GO del 11 de febrero del 2020, que lo traspasó del antiguo artículo 8° al 9°)
