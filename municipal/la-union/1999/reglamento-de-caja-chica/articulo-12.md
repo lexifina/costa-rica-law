@@ -1,1 +1,0 @@
-Artículo 12.—El Alcalde tendrá un máximo de 24 horas para autorizar la confección de la nómina de pago, la cual se trasladará de inmediato a la Sección de Contabilidad para la elaboración del cheque respectivo.

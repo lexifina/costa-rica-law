@@ -1,1 +1,0 @@
-Artículo 8°—Una vez entregado el dinero al funcionario para realizar la compra, esté tendrá hasta un máximo de 24 horas para presentar la respectiva liquidación, de lo contrario será deducido de la planilla.
