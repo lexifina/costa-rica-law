@@ -1,0 +1,1 @@
+Artículo 51.—El presidente(a) Municipal es el que llevará el control del tiempo autorizado en cada situación y cuando se haya vencido sonará el timbre o campañilla y le indicará al exponente que el tiempo ha llegado a su fin.

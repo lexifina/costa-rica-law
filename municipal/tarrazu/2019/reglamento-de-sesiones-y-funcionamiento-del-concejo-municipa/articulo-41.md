@@ -1,0 +1,1 @@
+Artículo 41.—Las comisiones deberán sesionar en forma ordinaria una vez por mes y extraordinariamente cuando sea necesario. Se procurará que las sesiones de una no coincidan con las de otras en las que también participen algunos de sus integrantes. El presidente(a) de una comisión podrán convocar a reuniones.

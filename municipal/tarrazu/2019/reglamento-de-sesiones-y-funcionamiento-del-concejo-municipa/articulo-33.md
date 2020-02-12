@@ -1,0 +1,1 @@
+Artículo 33.—Toda moción o asunto será sometido a votación estando los regidores presentes ocupando sus respectivas curules. Si un regidor así lo desea podrá razonar su voto y pedir que se incluya en el acta.

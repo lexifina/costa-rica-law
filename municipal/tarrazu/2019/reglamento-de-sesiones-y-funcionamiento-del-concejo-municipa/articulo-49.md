@@ -1,0 +1,1 @@
+Artículo 49.—El presidente(a) otorgará el uso de la palabra según el orden de petición. La presidencia podrá otorgar la palabra para referirse a los temas, de cada capítulo del orden del día, hasta por un máximo de cinco minutos en una primera intervención y de tres minutos en una segunda. Salvo casos especiales donde será potestad del presidente ampliar dichos términos.

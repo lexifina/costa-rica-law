@@ -1,0 +1,1 @@
+Artículo 60.—Los particulares que asistan a una sesión deberán guardar silencio y respeto, solo podrán intervenir cuando el presidente les conceda la palabra. Cuando incurran en faltas graves o manifestaren su comportamiento indebido podrán ser retirados por orden del presidente.

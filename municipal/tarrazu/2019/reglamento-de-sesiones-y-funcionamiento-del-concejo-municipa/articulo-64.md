@@ -1,0 +1,3 @@
+Artículo 64.—Las solicitudes que presenten las dependencias administrativas municipales para realizar eventos en cualquier día y horario serán resueltas por el titular de la Secretaría Municipal.
+Las solicitudes provenientes de otras instituciones públicas, de órganos externos de la Administración Pública, de las otras organizaciones y entes privados que se formulen serán resueltas por el Concejo Municipal.
+Cuando el titular de la Secretaria Municipal lo estime prudente, por cualquier razón plausible remitirá a conocimiento del Concejo Municipal cualquier solicitud de permiso de uso del salón de sesiones.

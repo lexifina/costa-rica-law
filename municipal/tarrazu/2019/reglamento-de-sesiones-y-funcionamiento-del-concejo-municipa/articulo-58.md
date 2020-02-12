@@ -1,0 +1,1 @@
+Artículo 58.—El tiempo de la audiencia podrá modificarse de acuerdo con el criterio del Concejo Municipal, para lo cual se requiere que el órgano colegiado apruebe por votación de mayoría simple la ampliación del espacio otorgado.

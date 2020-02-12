@@ -1,0 +1,1 @@
+Artículo 8º—Cuando la sesión ordinaria coincida con días feriados o de asueto, el Concejo Municipal sesionará el día siguiente hábil. En el caso de que las sesiones ordinarias se realicen los viernes y coincida con un día feriado o asueto se sesionará el día hábil anterior.

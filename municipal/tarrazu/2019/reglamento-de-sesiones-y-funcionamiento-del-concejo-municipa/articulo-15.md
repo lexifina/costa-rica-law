@@ -1,0 +1,1 @@
+Artículo 15.—El regidor suplente que sustituya a un propietario tendrá derecho a permanecer durante toda la sesión como miembro del Concejo con voz y voto, y con el derecho a devengar la dieta correspondiente.

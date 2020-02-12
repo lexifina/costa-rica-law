@@ -1,0 +1,1 @@
+Artículo 9º—Las sesiones ordinarias semanales se efectuarán en la Sala de Sesiones de la Municipalidad de Tarrazú o conforme lo acordado previamente. Las sesiones extraordinarias podrán celebrarse en la Sala de Sesiones o cualquier lugar del cantón, cuando vayan a tratarse asuntos relativos a los intereses de los y las vecinas de la localidad.

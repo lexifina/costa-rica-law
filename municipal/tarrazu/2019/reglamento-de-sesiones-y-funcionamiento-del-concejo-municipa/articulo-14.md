@@ -1,0 +1,1 @@
+Artículo 14.—Los Regidores propietarios o suplentes que llegare después de transcurridos los quince minutos perderá el derecho a devengar la dieta, aunque no se hubiere efectuado su sustitución, sin embargo, puede permanecer en la sala de sesiones, pero sin derecho a presentar mociones u otro documento, ni tampoco al voto.

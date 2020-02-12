@@ -1,0 +1,3 @@
+CAPÍTULO II
+Del Directorio del Concejo
+Artículo 2º—El Directorio Municipal será integrado con un presidente(a) y un vicepresidente, electos por el Concejo Municipal, en votación secreta. El vicepresidente reemplazará al presidente en sus ausencias temporales. En caso de que al mismo tiempo faltaren temporalmente el presidente y el vicepresidente, ambos serán reemplazados por los regidores de mayor edad, correspondiendo la Presidencia al mayor y la Vicepresidencia al que le sigue. En la ausencia definitiva del presidente, o vicepresidente, deberá realizarse una nueva elección entre los regidores propietarios.

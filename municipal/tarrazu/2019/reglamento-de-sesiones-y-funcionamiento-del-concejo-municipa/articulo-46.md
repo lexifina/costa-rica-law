@@ -1,0 +1,1 @@
+Artículo 46.—Las Comisiones Municipales preparan dictámenes y recomendaciones para el Concejo Municipal, los cuales no son vinculantes, de manera que, de existir razones de legalidad, oportunidad, técnicas, científicas o principios elementales de justicia, lógica o conveniencia, podrá un Regidor(a) o participante permanente motivar y dejar constancia de su oposición.

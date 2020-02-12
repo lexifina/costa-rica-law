@@ -1,0 +1,1 @@
+Artículo 42.—Cada Comisión deberá llevar actas que recojan de manera sucinta lo acontecido en sus reuniones, las cuales contendrán los siguientes elementos: encabezado, fecha, número de la reunión, asistentes, firmas, asuntos tratados y sus respectivos acuerdos.

@@ -1,0 +1,2 @@
+Artículo 10.—El Concejo Municipal podrá realizar previo acuerdo y convocatoria las sesiones extraordinarias que estime pertinentes, según las formalidades establecidas en el Código Municipal. En ellas tratará los temas que expresamente se incluyan en la convocatoria, o bien agregar otros que consideren necesarios, lo cual será por votación unánime.
+Las sesiones extraordinarias deberán convocarse con un mínimo de veinticuatro horas de anticipación.

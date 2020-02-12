@@ -1,0 +1,1 @@
+Artículo 48.—El uso de la palabra será otorgado por la Presidencia a los Regidores propietarios y suplentes, al alcalde y Vicealcalde, Síndicos y Secretaría Municipal. Queda a criterio del presidente aprobar o denegar este espacio, de acuerdo con criterios lógicos y razonables para brindar mayor fluidez al desarrollo de los asuntos de la sesión.

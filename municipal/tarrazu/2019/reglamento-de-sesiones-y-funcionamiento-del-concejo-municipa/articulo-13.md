@@ -1,0 +1,1 @@
+Artículo 13.—Las sesiones del Concejo deberán iniciarse dentro de los quince minutos siguientes a la hora señalada, pasados éstos, si no hubiere quórum, se dejará constancia en el libro de actas, y se consignará el nombre de regidores y síndicos presentes, para efecto de pago de dietas.

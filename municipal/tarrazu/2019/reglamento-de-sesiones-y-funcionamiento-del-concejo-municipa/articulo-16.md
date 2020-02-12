@@ -1,0 +1,1 @@
+Artículo 16.—Si en el transcurso de la sesión, se rompiere el quórum, la Presidencia, por medio de la Secretaría, instará a los señores regidores que se hubieren retirado sin permiso, para que ocupen sus curules. Transcurridos cinco minutos sin que se pueda restablecer el quórum, se levantará la sesión. Los regidores remisos perderán el derecho a la dieta correspondiente.

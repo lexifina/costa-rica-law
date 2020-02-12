@@ -1,0 +1,3 @@
+CAPÍTULO V
+Del orden del día y actas
+Artículo 17.—La preparación del orden del día es competencia del presidente del Concejo. Es menester que el presidente con el apoyo de la Secretaría del Concejo tenga pleno conocimiento de los asuntos a tratar en las sesiones, para incluir lo necesario en cada orden del día y con ello cumplir con los plazos establecidos de cada instancia que requiera la decisión del órgano colegiado. El cambio del orden del día debe de ser solicitada únicamente por un regidor propietario, en sesiones ordinarias mediante acuerdo aprobado por dos terceras partes de los miembros presentes y en sesiones extraordinarias mediante acuerdo de votación unánime.

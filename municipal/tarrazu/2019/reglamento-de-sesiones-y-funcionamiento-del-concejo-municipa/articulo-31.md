@@ -1,0 +1,1 @@
+Artículo 31.—La Presidencia Municipal con la debida justificación no dará curso y declarará fuera de orden las proposiciones o mociones que resulten improcedentes o que simplemente vayan dirigidas a dilatar u obstaculizar el curso normal de las sesiones o la resolución de un asunto.

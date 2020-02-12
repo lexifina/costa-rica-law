@@ -1,0 +1,1 @@
+Artículo 53.—Las sesiones en que se atenderá a particulares será en la sesión ordinaria que se celebre la primera y tercera semana de cada mes. Si un particular se presentare a una sesión sin audiencia el Concejo podrá acordar atenderlo por simple mayoría de votos.

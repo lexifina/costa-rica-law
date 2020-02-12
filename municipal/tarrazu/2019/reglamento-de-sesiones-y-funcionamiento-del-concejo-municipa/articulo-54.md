@@ -1,0 +1,1 @@
+Artículo 54.—Cuando el objeto de la solicitud de la Audiencia fuere de competencia de la Alcaldía, la Presidencia ordenará a la Secretaría remitir el memorial presentado a la Alcaldía, para que le dé el trámite correspondiente. La Secretaría lo hará del conocimiento de las personas interesadas.

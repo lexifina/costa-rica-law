@@ -1,0 +1,1 @@
+Artículo 20.—Las Actas deberán ser aprobadas en la sesión ordinaria inmediata posterior, salvo que circunstancias de fuerza mayor lo impidan en cuyo caso la aprobación se pospondrá para la siguiente sesión ordinaria.

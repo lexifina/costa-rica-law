@@ -1,0 +1,1 @@
+Artículo 6º—El funcionario(a) a cargo de la secretaría, será el responsable de la transcripción de las actas del Concejo, en las que se harán constar los acuerdos tomados y en forma sucinta las deliberaciones habidas, salvo cuando se trate de nombramientos o elecciones, en dónde solamente se hará constar el acuerdo tomado.

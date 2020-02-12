@@ -1,0 +1,1 @@
+Artículo 27.—Los acuerdos tomados por el Concejo quedarán firmes al aprobarse el acta respectiva. Cuando el Concejo lo estime conveniente, por razones de oportunidad y conveniencia, por votación de las dos terceras partes o mayoría calificada podrá declarar sus acuerdos como definitivamente aprobados; en este caso no procede el recurso de revisión.
