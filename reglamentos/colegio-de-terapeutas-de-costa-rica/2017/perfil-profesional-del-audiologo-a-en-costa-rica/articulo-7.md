@@ -1,1 +1,1 @@
-Artículo 7.- El profesional con grado académico universitario de Bachiller en Audiología tiene autonomía profesional, sin embargo, no puede realizar diagnóstico audiológico terapéutico ni prescripción terapéutica de prótesis auditivas.
+Artículo 7º—El profesional con grado académico universitario de Bachiller en Audiología tiene autonomía profesional, sin embargo, no puede realizar diagnóstico audiológico terapéutico ni prescripción terapéutica de prótesis auditivas.

@@ -1,33 +1,39 @@
-CAPÍTULO V. COMPETENCIAS PROFESIONALES PARA EL AUDIÓLOGO CON
-GRADO ACADÉMICO UNIVERSITARIO DE MÁSTER
-Artículo 8.- Son competencias laborales deí máster en Audiología:
-1. Administrar interrogatorios y realizar anamnesis en los usuarios atendidos.
-2. Realizar otoscopias y su reporte correspondiente.
-3.Realizar, dirigir y supervisar todo tipo de pruebas diagnósticas de la función auditiva (periférica y central) y la función vestibular.
-4. Emitir un diagnóstico audiológico terapéutico.
-5. Realizar la prescripción terapéutica, adaptación, ajuste, verificación y evaluación de todo tipo de prótesis auditivas.
-6. Realizar la prescripción y adaptación de sistemas o equipos de audición asistida.
-7. Realizar la toma de impresiones de conductos auditivos externos para la fabricación ergonómica de audífonos, moldes, protectores auditivos para natación o contra ruido.
-8. Dirigir, administrar y coordinar la ejecución, control, asesoramiento, orientación, evaluación y seguimiento de la habilitación - rehabilitación auditiva de los usuarios.
-9. Realizar la medición y control de ruido por medio de pruebas de sonometria y dosimetría con su respectivo reporte y recomendaciones.
-10. Desarrollar, coordinar, dirigir y supervisar programas de conservación auditiva.
-11. Realizar la prescripción terapéutica audiológica, monitoreo electrofisiológico intraquirúrgico, ajuste externo, programación, mapeo, verificación y validación de sistemas auditivos implantables.
-12. Brindar orientación y consejeria a pacientes con problemas auditivos, usuarios de prótesis auditivas u otros acerca de la habilitación - rehabilitación de todo tipo de problema auditivo.
-13. Manejo audiológico deí acúfeno o tinnitus.
-14. Prescripción terapéutica de equipos e instrumentos para la terapia y control del acúfeno.
-15. Manejo de la ceruminosis y técnicas de extracción de cerumen.
-16. Administración de establecimientos audiológicos y dirección de servicios de audiología.
-17. Promover, organizar y participar en actividades docentes de desarrollo y dirección académica en el campo audiológico.
-18. Organizar, participar y dirigir programas de educación continuada en Audiología.
-19. Organizar, participar y dirigir programas de salud pública relacionados con la salud auditiva y contra la contaminación sónica,
-20. Promover, participar, coordinar, dirigir y supervisar la intervención e investigación en el campo de la audiología u otras disciplinas afines.
-21. Realizar peritajes en Audiología forense.
-22. Diseñar, dirigir, implementar y supervisar programas de detección de hipoacusia y conservación auditiva en distintos grupos, como población infantil, adultos mayores, trabajadores de la industria ruidosa comunidades, grupos de alto riesgo, etc.
-23. Recibir y referir interconsulta a los diferentes especialistas del área de la salud.
-24. Realizar y supervisar el tamizaje auditivo.
-25. Brindar asesorías y consultorías.
-26. Promover la calidad de vida del paciente con deficiencia auditiva.
-27. Realizar y ejecutar pruebas para el diagnóstico de trastornos vestibulares, así como la aplicación de técnicas de rehabilitación para dichos trastornos.
-28. Manejar pruebas avanzadas para el diagnóstico de trastornos auditivos a nivel del sistema nervioso central.
-29. Realizar pruebas de función del procesamiento auditivo, tanto en niños como en adultos.
-30. Realizar consulta por teleaudiologia.
+CAPÍTULO V
+Competencias Profesionales para el Audiólogo(a)
+con Grado Académico Universitario de Licenciado
+Artículo 8º—Son competencias laborales del Licenciado en Audiología:
+a. Administrar interrogatorios y realizar anamnesis en los usuarios atendidos.
+b. Realizar otoscopías y videotoscopías, y su reporte correspondiente.
+c. Realizar, dirigir y supervisar todo tipo de pruebas diagnósticas de la función auditiva (periférica y central).
+d. Emitir un diagnóstico audiológico y su eventual tratamiento protésico.
+e. Realizar la prescripción terapéutica, adaptación, ajuste, verificación y evaluación de todo tipo de prótesis auditivas.
+f. Realizar la prescripción y adaptación de sistemas o equipos de audición asistida.
+g. Participar activamente en los equipos interdisciplinarios encargados de la selección de candidatos para sistemas auditivos implantables.
+h. Realizar la toma de impresiones de conductos auditivos externos para la fabricación ergonómica de audífonos, moldes, protectores auditivos para natación o contra ruido.
+i. Dirigir, administrar y coordinar la ejecución, control, asesoramiento, orientación, evaluación y seguimiento de la habilitación-rehabilitación auditiva de los usuarios.
+j. Realizar la medición y control de ruido por medio de pruebas de sonometría y dosimetría con su respectivo reporte y recomendaciones.
+k. Desarrollar, coordinar, dirigir y supervisar programas de conservación auditiva.
+l. Realizar la prescripción terapéutica audiológica, monitoreo electrofisiológico intraquirúrgico, ajuste externo, programación, mapeo, verificación y validación de sistemas auditivos implantables.
+m. Brindar orientación y consejería a pacientes con problemas auditivos, usuarios de prótesis auditivas, familiares u otros, acerca de la habilitación-rehabilitación de todo tipo de problema auditivo.
+n. Realizar el manejo audiológico del acúfeno o tinnitus.
+o. Realizar la prescripción terapéutica de equipos e instrumentos para la terapia y control del acúfeno.
+p. Realizar el manejo de la ceruminosis y técnicas de extracción de cerumen, siempre y cuando no comprometa la salud del paciente. Para ejercer esta competencia, el profesional en Audiología deberá contar con la certificación emitida por el Colegio de Terapeutas de Costa Rica.
+q. Administrar establecimientos audiológicos y dirección de servicios de audiología.
+r. Promover, organizar y participar en actividades docentes, estrategias educativas, de desarrollo y dirección académica en el campo audiológico.
+s. Organizar, participar y dirigir programas de educación continuada en Audiología.
+t. Organizar, participar y dirigir programas de salud pública relacionados a la Salud Auditiva y contra la contaminación sónica.
+u. Promover, participar, coordinar, dirigir y supervisar la intervención e investigación en el campo de la audiología u otras disciplinas afines.
+v. Realizar peritajes en Audiología Ocupacional y Forense.
+w. Diseñar, dirigir, implementar y supervisar programas de detección de hipoacusia y conservación auditiva en distintos grupos, como población infantil, adultos mayores, trabajadores de la industria ruidosa, comunidades, grupos de alto riesgo, etc.
+x. Recibir y referir interconsulta a los diferentes especialistas del área de la salud.
+y. Realizar y supervisar tamizaje auditivo.
+z. Brindar asesorías y consultorías audiológicas.
+aa. Promover la calidad de vida del paciente con deficiencia auditiva.
+bb. Realizar pruebas para el diagnóstico de trastornos vestibulares.
+cc. Rehabilitar desórdenes vestibulares periféricos. Para ejercer esta competencia, el profesional en Audiología deberá contar con la certificación emitida por el Colegio de Terapeutas de Costa Rica.
+dd. Manejar pruebas avanzadas para el diagnóstico de trastornos auditivos a nivel del sistema nervioso central.
+ee. Realizar consulta por teleaudiología.
+ff. Velar por el mantenimiento y calibración necesaria de los equipos e instrumental de uso profesional.
+gg. Mantener el registro al día de los pacientes atendidos.
+hh. Realizar procedimientos para el control de infecciones en su consulta.
+ii. Tener criterio propio y autonomía profesional.

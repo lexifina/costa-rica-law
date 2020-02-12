@@ -14,3 +14,4 @@ Perfil Profesional del Audiólogo (a) en Costa Rica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-06-09 | la propia norma |
+| 2 | 2020-02-12 | Reglamento 0 (2020-02-12) |
