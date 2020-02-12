@@ -1,6 +1,6 @@
 # Ley Orgánica del Banco Popular y de Desarrollo Comunal
 
-Ley N° 4351 del 1969-07-11. SINALEVI, ficha 35582: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=35582&param2=108594&param3=1>.
+Ley N° 4351 del 1969-07-11. SINALEVI, ficha 35582: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=35582&param2=119389&param3=1>.
 
 Publicada en La Gaceta N° 163 del 1969-07-19.
 
@@ -28,3 +28,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 18 de 22 | 1996-12-02 | SINALEVI | 1996-12-02 |
 | 19 de 22 | 2002-05-27 | Ley 8262 | 2002-05-02 |
 | 20 de 22 | 2002-11-05 | Ley 8322 | 2002-10-21 |
+| 21 de 22 | 2020-02-12 | Ley 9816 | 2020-02-11 |
