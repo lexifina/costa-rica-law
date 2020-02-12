@@ -1,0 +1,1 @@
+Artículo 8º—Sobre la administración de la IDECORI. La dirección, organización, planeación Y el funcionamiento de la IDECORI es responsabilidad del ION, para lo cual coordinará con los diferentes sectores productores de información geográfica, en lo que corresponda.

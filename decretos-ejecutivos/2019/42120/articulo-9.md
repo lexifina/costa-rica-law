@@ -1,0 +1,1 @@
+Artículo 9º—Sobre el geoportal de la IDECORI. El SNIT creado mediante Decreto Ejecutivo N° 37773-JP-H-MINAEMICITT, es administrado por el ION del Registro Nacional, y se constituye en el geoportal de la IDECORI.

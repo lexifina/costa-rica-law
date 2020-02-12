@@ -1,0 +1,2 @@
+Artículo 4.—Ámbito de aplicación. La información geográfica que se produzca, es considerada de interés nacional y fundamental para fortalecer la toma de decisiones, por lo tanto el sector público está obligado a acatar el presente Decreto.
+En cuanto a la información geográfica producida por el sector privado, y que al efecto manifieste interés en integrarla al geoportal del SNIT, debe cumplir con las normas técnicas de información geográfica, políticas, lineamientos, protocolos, manuales y guías oficializados por el IGN, dentro del marco de la IDECORI.

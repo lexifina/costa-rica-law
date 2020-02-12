@@ -1,0 +1,1 @@
+Transitorio único. Los convenios para la publicación de información geográfica temática en el geoportal del SNIT que se encuentran firmados y vigentes entre la Junta Administrativa del Registro Nacional y las entidades públicas y privadas, mantendrán su eficacia hasta la fecha de finalización; posteriormente les será aplicable lo establecido en el presente Decreto.
