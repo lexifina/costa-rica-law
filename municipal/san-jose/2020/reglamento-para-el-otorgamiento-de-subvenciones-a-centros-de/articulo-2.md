@@ -1,0 +1,8 @@
+Artículo 2º—De las definiciones. Para efectos de lo dispuesto en este reglamento se adoptan las siguientes definiciones y terminologías:
+a) Cantón: Cantón San José.
+b) Centros de Beneficencia o Servicio Social: Aquellas Asociaciones inscritas bajo la Ley 218, Fundaciones inscritas bajo la Ley 5338, u otras figuras jurídicas similares sin fines de lucro y legalmente constituidas ubicadas en el Cantón San José, que desarrollen obras sociales, programas, proyectos y/o actividades al servicio de sus habitantes, o dirigidas a la atención particular de grupos o personas en condiciones de vulnerabilidad y riesgo social. Quedan excluidas de la aplicación del presente reglamento las Asociaciones constituidas mediante la Ley 3859 “Ley sobre el Desarrollo de la Comunidad”.
+c) Centros de Educación Pública: Centros de enseñanza preescolar, primaria y secundaria que estén ubicados y presten servicios en el Cantón Central de San José.
+d) Comisión de Asuntos Sociales: Comisión permanente que pertenece al Concejo Municipal con el fin de valorar la posibilidad de otorgar subvenciones a centros de educación pública, de beneficencia y de servicio social; entre otras.
+e) Criterio Institucional: Se refiere a la valoración y al criterio que, en razón de la necesidad o propósito que genera la solicitud de subvención, emite la dependencia institucional competente.
+f) Municipalidad: Municipalidad de San José.
+g) Subvención: Concesión de subsidio económico efectuado por la Municipalidad, sin contraprestación alguna de bienes, servicios o derechos; para coadyuvar o contribuir en la satisfacción de necesidades concretas, o para fomentar el desarrollo de una obra o servicio de interés para el cantón.

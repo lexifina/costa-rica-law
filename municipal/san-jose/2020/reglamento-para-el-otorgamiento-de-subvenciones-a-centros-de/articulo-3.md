@@ -1,0 +1,1 @@
+Artículo 3º—De la naturaleza de la subvención. La Municipalidad podrá subvencionar a centros de educación pública, beneficencia o servicio social que presten servicios al cantón, siempre y cuando cumplan con lo dispuesto en este Reglamento.
