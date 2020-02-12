@@ -1,0 +1,3 @@
+ARTÍCULO 26- Concientización del público
+La administración del Fondo llevará a cabo actividades destinadas a la concientización del público sobre el sistema de garantía de depósitos tales como: cobertura de la garantía, depósitos garantizados y excluidos de la garantía, entidades contribuyentes cuyos depósitos se encuentran garantizados por el Fondo, y los procedimientos para el pago de los depósitos garantizados.
+La administración del Fondo deberá desarrollar un plan de contingencia que defina estrategias de comunicación al público en casos de crisis o inestabilidad financiera u otros posibles escenarios que requieran la coordinación con otros participantes de la red de seguridad financiera.

@@ -1,0 +1,2 @@
+ARTÍCULO 32- Causal de un proceso de resolución
+Deberá iniciarse un proceso de resolución cuando la entidad financiera supervisada se encuentre en una situación de inestabilidad o irregularidad financiera de grado tres, según se define en el inciso d) del artículo 136 de la Ley 7558, Ley Orgánica del Banco Central de Costa Rica, de 3 de noviembre de 1995 y el Conassif, previo informe del Interventor en que se recomiendan las medidas a aplicar, dicte el acto de resolución.

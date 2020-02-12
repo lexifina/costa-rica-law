@@ -1,0 +1,5 @@
+ARTÍCULO 35- Administradores de la resolución
+Los administradores de la resolución designados por el Conassif podrán ser funcionarios de las superintendencias del sistema financiero o podrán ser también profesionales externos con título académico en áreas afines, experiencia y competencias en materia financiera y bancaria, así como prestigio y conocimiento sobre ese tipo de procesos.
+Para la designación de profesionales externos, el Conassif abrirá y mantendrá actualizado un registro de personas (físicas) especializadas e independientes. El Conassif definirá, vía reglamento, los requisitos de competencia que deberán cumplir los administradores de la resolución. El Conassif podrá sustituir, en cualquier momento, a los administradores de la resolución.
+La remuneración de los administradores será fijada por el Conassif y se hará con cargo a los recursos de la entidad en resolución.
+Al finalizar su función, el administrador de la resolución deberá presentar al Consejo un informe detallado de su gestión, en el que se incluya un detalle pormenorizado de los gastos en que se haya incurrido.

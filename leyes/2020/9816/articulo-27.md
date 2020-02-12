@@ -1,0 +1,2 @@
+ARTÍCULO 27- Informe anual de auditoría externa
+La administración del Fondo contratará una auditoría externa anual y publicará los estados financieros auditados correspondientes a cada ejercicio fiscal, elaborados conforme a las normas contables vigentes, y en un plazo máximo de un mes desde la recepción final del informe de auditoría. El informe anual de auditoría se publicará conforme a los lineamientos que emita la Junta Directiva del Banco Central.

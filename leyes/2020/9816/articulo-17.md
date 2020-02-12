@@ -1,0 +1,10 @@
+ARTÍCULO 17- Contribuciones
+Las entidades contribuyentes deberán aportar al Fondo de Garantía de Depósitos, al que se refiere el artículo 5 de la presente ley. El aporte anual de una entidad contribuyente no podrá exceder el cero coma quince por ciento (0, 15%) de los depósitos garantizados por la entidad.
+La contribución indicada se constituirá por lo siguiente:
+a) El monto equivalente al cero coma uno por ciento (0, 1 %) de los depósitos garantizados por la entidad y
+b) el restante cero coma cero cinco por ciento (0,05%) se tendrá como un máximo y se pagará conforme al nivel de riesgo de la entidad. Para tales efectos, el Conassif emitirá un reglamento en el que se determinará la contribución correspondiente, de acuerdo con el nivel de riesgo, teniendo en cuenta que la contribución será mayor cuanto mayor sea el riesgo.
+La contribución indicada en el presente artículo es anual, se pagará de forma trimestral dentro de los diez días hábiles posteriores al final de cada trimestre. Los montos respectivos se determinarán sobre la base del promedio de los depósitos garantizados del último trimestre.
+Las contribuciones deberán aportarse en colones. Para el caso de los depósitos en moneda extranjera, la contribución se realizará en dólares. La administración del Fondo deberá invertirlas conforme a las políticas aprobadas por el Conassif.
+Estas contribuciones serán debitadas automáticamente por el Banco Central de las cuentas de reserva de las entidades contribuyentes. En el caso de las que carezcan de una cuenta de este tipo, por no estar obligadas a ello, deberán depositarlas conforme lo que determine la Administración del Fondo de Garantía de Depósitos.
+La contribución al Fondo de Garantía de Depósitos y las contribuciones a los fondos, a los que se refiere el último párrafo del artículo 5 de la presente ley, serán consideradas como un gasto deducible del impuesto sobre la renta para efectos tributarios.
+La certificación que expida la administración del Fondo, del monto de la deuda que lleguen a tener las entidades contribuyentes, tendrá carácter de título ejecutivo.

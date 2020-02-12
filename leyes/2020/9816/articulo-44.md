@@ -1,0 +1,2 @@
+ARTÍCULO 44- Recapitalización interna
+Conforme lo establezca reglamentariamente, la autoridad de resolución podrá adoptar medidas de recapitalización interna para convertir en capital o reducir el principal de los pasivos o instrumentos de deuda de la entidad en resolución. El objetivo de la recapitalización interna es que la entidad en resolución pueda recuperar las condiciones para continuar sus actividades, manteniendo la confianza del mercado. Al efecto, los administradores de la resolución elaborarán un plan de reorganización operacional de la entidad.

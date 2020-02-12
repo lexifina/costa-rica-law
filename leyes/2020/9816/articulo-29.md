@@ -1,0 +1,11 @@
+ARTÍCULO 29- Sanciones
+Las entidades contribuyentes están obligadas al pago de las contribuciones que se refieren en esta ley.
+Las entidades que incumplan sus obligaciones de pago, en los términos señalados en esta ley, y los definidos reglamentariamente serán sancionadas por la Sugef, previo procedimiento administrativo ordinario abierto al efecto conforme a la Ley 6227, Ley General de la Administración Pública, de 2 de mayo de 1978, con una multa que se determinará de la siguiente manera:
+a) Atraso en el pago de una cuota en un periodo de un año calendario: cero coma diez por ciento (0, 10%) de su patrimonio.
+b) Atraso en el pago de dos cuotas en un periodo de un año calendario: cero coma veinte por ciento (0,20%) de su patrimonio.
+c) Atraso en el pago de tres cuotas en un periodo de un año calendario: cero coma cuarenta por ciento (0,40%) de su patrimonio.
+d) Si el atraso en la cancelación de una contribución cualquiera es mayor de treinta días hábiles, ese incumplimiento se imputará como una cesación de pagos conforme al inciso iii), literal d) del artículo 136 de la Ley N.º 7558, Ley Orgánica del Banco Central, de 27 de noviembre de 1995, y se declarará la intervención de la entidad contribuyente.
+El patrimonio de la entidad infractora será el vigente al momento de producirse la infracción. El pago de las multas deberá efectuarse en un plazo máximo de treinta días hábiles después de quedar en firme.
+El importe de estas multas será a favor del Fondo de Garantía de Depósitos y se incorporará en los recursos del compartimento correspondiente.
+Independientemente de la sanción impuesta, las entidades contribuyentes deberán cancelar al Fondo las cuotas adeudadas más el respectivo interés moratoria, a la tasa básica pasiva calculada por el Banco Central de Costa Rica, más cuatro puntos porcentuales.
+Se declara de interés público la sanción impuesta y deberá ser comunicada por la Sugef al público, en su página web, así como también la entidad estará obligada a hacer de conocimiento del público la sanción que le fue impuesta y lo publicará como un hecho relevante en su sitio web. Estas publicaciones se realizarán conforme lo disponga el Conassif mediante reglamento.

@@ -1,0 +1,2 @@
+ARTÍCULO 36- Responsabilidades de los administradores de la resolución
+Los administradores de la resolución tendrán a su cargo el proceso de resolución, según los términos y procedimientos establecidos en esta ley y en el reglamento que al efecto emita el Conassif. Además, tendrán la representación judicial y extrajudicial de la entidad suspendida en resolución, con las mismas facultades que ostentaban los anteriores administradores y órganos directivos.
