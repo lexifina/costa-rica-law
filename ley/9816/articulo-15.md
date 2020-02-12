@@ -1,0 +1,4 @@
+ARTÍCULO 15- Política de inversiones
+La política de inversiones será elaborada por el administrador del Fondo y aprobada por el Conassif. Esta política debe contar con objetivos claros y medibles en términos de liquidez, moneda y preservación del capital, en línea con la finalidad del Fondo. La política se debe fundamentar en un análisis de riesgos y su efectividad será evaluada en el informe anual.
+La política debe contener al menos las especificaciones de emisores, mercados y plazas, valores e instrumentos financieros para coberturas, plazos, monedas e indicadores de medición y administración de riesgos. Está permitida la inversión en los mercados internacionales, dentro de los lineamientos aprobados por el Conassif.
+El Fondo no podrá invertir en títulos del Banco Central de Costa Rica, del Gobierno central ni de ninguna de las entidades contribuyentes.

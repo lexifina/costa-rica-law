@@ -1,4 +1,3 @@
-Artículo 170.-
-Todos los gastos que resulten de la liquidación de un banco, así como las dietas para los representantes de los acreedores y de los accionistas o asociados en la Junta liquidadora, los sueldos y honorarios para los empleados y demás personas ocupadas de la liquidación, incluso una retribución equitativa para el Superintendente General de Entidades Financieras (*), estarán a cargo del banco en liquidación y serán aprobados por el Juez.
-( Así reformado por Ley No. 6894 de 22 de setiembre de 1983, artículo 1º).
-(* Así modificado el nombre del ente contralor bancario por el artículo 176 de la Ley Orgánica del Banco Central de Costa Rica Nº 7558 de 3 de noviembre de 1995)
+Artículo 170-Todos los gastos que resulten de la liquidación de una entidad financiera, así como los honorarios para los miembros de la junta liquidadora, los sueldos y honorarios para los empleados y demás personas ocupadas de la liquidación, estarán a cargo de la entidad en liquidación y serán aprobados por el juez a quo.
+La junta liquidadora ganará por concepto de honorarios hasta un cinco por ciento (5%) de la cantidad que efectivamente produzca la liquidación. En virtud de sus funciones, el presidente de la junta liquidadora devengará un cincuenta por ciento (50%) más de honorarios que el resto de miembros de la junta.
+(Así reformado por el artículo 55 aparte k) de la Ley de creación del fondo de garantía de depósitos y de mecanismos de resolución de los intermediarios financieros, N° 9816 del 11 de febrero de 2020)

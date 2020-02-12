@@ -1,3 +1,3 @@
-Artículo 161.-
-Si algún acreedor de un banco o el propio establecimiento se presentare a los tribunales pidiendo la declaración de quiebra, el Juez dará aviso inmediato al Superintendente General de Entidades Financieras (*).
-(* Así modificado el nombre del ente contralor bancario por el artículo 176 de la Ley Orgánica del Banco Central de Costa Rica Nº 7558 de 3 de noviembre de 1995)
+Artículo 161-Los bancos y las demás entidades financieras supervisados por la Superintendencia General de Entidades Financieras (Sugef) estarán sometidos al procedimiento de intervención y resolución establecido en los artículos 139 bis y siguientes de la Ley 7558, Ley Orgánica del Banco Central de Costa Rica, de 3 de noviembre de 1995.
+Si algún acreedor de un banco o entidad financiera o el propio establecimiento se presentara ante los tribunales pidiendo la declaración de quiebra, el juez dará aviso al superintendente general de entidades financieras.
+(Así reformado por el artículo 55 aparte b) de la Ley de creación del fondo de garantía de depósitos y de mecanismos de resolución de los intermediarios financieros, N° 9816 del 11 de febrero de 2020)

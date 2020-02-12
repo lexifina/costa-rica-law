@@ -1,0 +1,4 @@
+ARTÍCULO 33- Inicio del proceso de resolución
+Cuando corresponda iniciar un proceso de resolución de los intermediarios financieros supervisados, conforme a lo dispuesto en el artículo anterior, el Conassif, tras informe razonado y a propuesta del interventor, declarará el inicio del proceso de resolución de la entidad conforme lo establece, en lo que corresponda, el artículo 139 bis de la Ley 7558, Ley Orgánica del Banco Central, de 03 de noviembre de 1995.
+En el acuerdo de inicio del proceso de resolución, el Consejo designará al administrador o los administradores de la resolución que llevarán a cabo las actividades de resolución de la entidad, en los términos que indica esta ley.
+Con esa designación cesan automáticamente en sus funciones los órganos sociales y directivos de la entidad.

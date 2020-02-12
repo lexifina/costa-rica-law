@@ -1,0 +1,3 @@
+ARTÍCULO 21- Costos de administración y operación
+El Banco Central de Costa Rica, como administrador, cobrará los servicios prestados al Fondo. Los gastos anuales de administración y operación del Fondo estarán determinados por un presupuesto elaborado por el administrador del Fondo y aprobado por la Junta Directiva del Banco Central. El presupuesto no podrá exceder el siete coma cinco por ciento (7,5%) de la suma anual de las contribuciones.
+El Banco Central de Costa Rica podrá financiar, total o parcialmente, los costos de administración y operación del Fondo, cuando este no cuente con los recursos suficientes para esos fines. Ese financiamiento será con cargo al Fondo, a la tasa de interés y el plazo que establezca al efecto la Junta Directiva del Banco Central.

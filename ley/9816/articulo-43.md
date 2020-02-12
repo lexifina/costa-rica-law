@@ -1,0 +1,7 @@
+ARTÍCULO 43- Transmisión de activos y pasivos a un fideicomiso o vehículo de propósito especial
+Conforme lo establezca reglamentariamente, la autoridad de resolución podrá obligar a la entidad objeto de resolución o a la entidad puente a transmitir a uno o varios fideicomisos, o vehículos de propósito especial, determinadas categorías de activos y pasivos que figuren en el balance de la entidad, en los casos siguientes:
+a) Cuando la utilización de un procedimiento de quiebra pueda alterar significativamente el valor de mercado de los activos de la entidad objeto de resolución o de la entidad puente;
+b) Cuando la transmisión de los activos y pasivos sea necesaria para garantizar el buen funcionamiento de la entidad objeto de resolución o de la entidad puente; o
+c) Cuando la transmisión de los activos y pasivos sea necesaria para maximizar los ingresos procedentes de la liquidación.
+En caso de quiebra, la transmisión de activos y pasivos estará exenta de la aplicación de la acción revocatoria de la entidad transmitente. El fideicomiso o vehículo de propósito especial no adquirirá ninguna responsabilidad fiscal o laboral derivada de los activos transmitidos.
+El fideicomiso o vehículo de propósito especial tendrá las atribuciones de la entidad puente, en lo que le sea aplicable, y se gestionará similarmente. Su objetivo final será lograr el traspaso de los activos y pasivos excluidos a otra entidad en marcha en el sistema financiero nacional, conforme lo reglamente la autoridad de resolución.

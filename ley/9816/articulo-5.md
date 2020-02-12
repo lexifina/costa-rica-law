@@ -1,0 +1,5 @@
+TÍTULO II
+FONDO DE GARANTÍA DE DEPÓSITOS
+ARTÍCULO 5- Creación y objeto
+Se crea el Fondo de Garantía de Depósitos, como un patrimonio autónomo cuyo fin es garantizar, hasta cierto límite, los depósitos que las personas físicas y jurídicas mantengan en las entidades contribuyentes, de conformidad con los términos y las condiciones establecidos en esta ley y la reglamentación aplicable. El Fondo de Garantía de Depósitos no estará sujeto a las disposiciones de la Ley 8653, Ley Reguladora del Mercado de Seguros, de 22 de julio de 2008.
+Las cooperativas de ahorro y crédito que aporten a un fondo de garantía de depósitos que cubra a sus ahorrantes, en un monto igual o superior al que se establece en la presente ley, no tendrán que aportar al Fondo de Garantía de Depósitos objeto de la presente ley. Cualquier fondo existente o creado en el futuro por entidades financieras, con el mismo propósito, será regulado por el Conassif y supervisado por la Sugef. Para esos fondos, el Conassif dictará los reglamentos pertinentes para que cumplan con su propósito, tomando en cuenta las mejores prácticas en la materia y las disposiciones de esta ley.

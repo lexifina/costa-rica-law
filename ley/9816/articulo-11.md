@@ -1,0 +1,13 @@
+ARTÍCULO 11- Funciones del Consejo Nacional de Supervisión del Sistema Financiero en cuanto al Fondo de Garantía de Depósitos
+En lo relativo al Fondo de Garantía de Depósitos, el Conassif tendrá las siguientes funciones:
+a) Aprobar la reglamentación para el cálculo de contribuciones u otros cargos previstos en esta ley.
+b) Aprobar el monto de las contribuciones al Fondo, dentro de los parámetros establecidos reglamentariamente y el tope fijado en esta ley.
+c) Establecer, por la vía reglamentaria, el nivel de estabilidad de largo plazo del Fondo.
+d) Autorizar al administrador del Fondo, cuando sea necesario, la obtención de créditos o líneas contingentes para el Fondo.
+e) Aprobar las políticas, los procedimientos y la normativa que regularán la gestión de los activos y pasivos del Fondo.
+f) Aprobar la utilización oportuna de los recursos del Fondo de Garantía de Depósitos durante los procesos de resolución de las entidades contribuyentes y solicitar a la administración del Fondo la ejecución de lo aprobado, de conformidad con los fines de esta ley. Cuando se paguen los depósitos garantizados, estos deberán estar disponibles para los depositantes en un plazo máximo de diez días hábiles después de que el Conassif autorice su utilización.
+g) Emitir la reglamentación y los procedimientos del proceso de resolución que regulen el funcionamiento de cada uno de los mecanismos de resolución mencionados en esta ley, todo conforme a las mejores prácticas y los estándares internacionales.
+h) Establecer, por vía reglamentaria, las disposiciones sobre el uso de la información del Fondo que tenga carácter confidencial, en el entendido de que la entidad que la reciba estará sujeta a las prohibiciones y sanciones que establece la regulación vigente y los memorandos de entendimiento que se suscriban.
+i) Garantizar que la administración del Fondo sea parte integral de los mecanismos de coordinación existentes que promuevan la estabilidad financiera, incluida la disposición oportuna de información sobre la situación económica financiera de las entidades contribuyentes y las pruebas que sobre estas se realicen. En todos los casos, quienes compartan y dispongan de esta información quedan sujetos al principio de confidencialidad establecido en el artículo 132 de la Ley 7558, Ley Orgánica del Banco Central de Costa Rica, de 3 de noviembre de 1995.
+j) Reglamentar lo relacionado con la información que deben divulgar las entidades contribuyentes en relación con la cobertura y el fondo de garantía de depósitos que les aplica.
+k) Establecer las instancias de coordinación e intercambio de información necesarios de todos los partícipes de la red de seguridad financiera.

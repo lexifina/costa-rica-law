@@ -1,4 +1,10 @@
-Artículo 164.-
-La liquidación de los negocios del banco fallido se hará por una junta compuesta por el Superintendente General de Entidades Financieras (*), quien la presidirá, un representante de los acreedores y un representante de los accionistas o asociados. Esta junta tendrá la atribuciones y deberes que la ley señala a los curadores definitivos, con las modificaciones que a continuación se expresan.
-( Así reformado por ley Nº 6894 de 22 de setiembre de 1983, artículo 1º).
-(* Así modificado el nombre del ente contralor bancario por el artículo 176 de la Ley Orgánica del Banco Central de Costa Rica Nº 7558 de 3 de noviembre de 1995)
+Artículo 164-La liquidación de los negocios de la entidad supervisada por la Superintendencia General de Entidades Financieras se hará por una junta liquidadora, la que tendrá las atribuciones y los deberes que la Ley 3284, Código de Comercio, de 30 de abril de 1964, señala para los curadores de las quiebras, así como las señaladas en esta ley.
+La junta liquidadora estará compuesta por un presidente propietario, un representante de los acreedores y un representante de los accionistas o asociados. El presidente y su suplente serán nombrados por la autoridad judicial competente que esté conociendo la quiebra. Quienes ocupen estos puestos deben cumplir los siguientes requisitos:
+a) Ser mayor de edad.
+b) Poseer un grado académico universitario atinente a las labores a desarrollar.
+c) No ser empleado público.
+d) Absoluta solvencia moral y experiencia relevante en materia financiera.
+e) No ser pariente dentro del cuarto grado de consanguinidad o afinidad del juez ni de los accionistas o directores de la entidad. Para entidades financieras públicas, cooperativas y mutuales y cualquiera otra que no cumpla con una estructura de sociedad anónima, aquella relación aplicará respecto a los directores de la entidad supervisada.
+En el caso de las entidades públicas, la junta liquidadora será nombrada por el Consejo de Gobierno, una vez que el juzgado competente le notifique la declaratoria de la quiebra. Los miembros elegidos deberán cumplir con los requisitos antes señalados. El presidente se elegirá en el seno de esa junta liquidadora.
+En todos los casos, el presidente será el representante de la quiebra y ejecutará los acuerdos tomados por la junta liquidadora. El Consejo de Gobierno podrá remover, sustituir a los miembros de la junta liquidadora en cualquier momento.
+(Así reformado por el artículo 55 aparte e) de la Ley de creación del fondo de garantía de depósitos y de mecanismos de resolución de los intermediarios financieros, N° 9816 del 11 de febrero de 2020)

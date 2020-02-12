@@ -1,0 +1,3 @@
+ARTÍCULO 10- Estructura de la administración del Fondo
+La estructura deberá ser una unidad administrativa del Banco Central independiente del área que administra los pasivos del BCCR y tendrá como objeto exclusivo el administrar el Fondo y en su diseño se considerará la gestión del conflicto de interés en la administración de sus recursos. Además, dicha unidad deberá conformarse
+con los recursos estrictamente necesarios para la buena gestión del Fondo y dentro de los límites presupuestarios fijados por la Junta Directiva, así como los parámetros establecidos en la presente ley, para cubrir sus gastos administrativos.

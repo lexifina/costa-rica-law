@@ -1,0 +1,6 @@
+ARTÍCULO 12- Funciones de la Superintendencia General de Entidades Financieras respecto del Fondo de Garantía de Depósitos
+En cuanto al Fondo de Garantía de Depósitos, le corresponderá a la Sugef las siguientes funciones:
+a) Colaborar con el administrador del Fondo en la elaboración de la reglamentación del cálculo de contribuciones u otros cargos previstos en esta ley.
+b) Proveer, de forma oportuna, al Conassif, al Banco Central y a otras entidades que conformen la red de seguridad financiera toda la información y colaboración que requieran para el ejercicio de las funciones que esta ley les asigna. Los receptores de esta información estarán sujetos a la prohibición indicada en el párrafo primero del artículo 132 de la Ley 7558, Ley Orgánica del Banco Central de Costa Rica, de 3 de noviembre de 1995.
+c) Proveer periódica y oportunamente, a la administración del Fondo de Garantía de Depósitos, la información necesaria para hacer efectivo el pago de los depósitos y los montos de las contribuciones que deben ser cobradas a las entidades contribuyentes.
+d) Exigir a las entidades contribuyentes el cumplimiento de las obligaciones establecidas en el título II de la presente ley y proveer a la administración del Fondo la información que resulte necesaria para los efectos de ese título.
