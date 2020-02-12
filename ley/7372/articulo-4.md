@@ -1,7 +1,2 @@
-ARTICULO 4.- La Comisión distribuirá los dineros, a que se refiere la
-presente Ley, de la siguiente manera: una tercera parte de los recursos de
-acuerdo con la población estudiantil que reciba educación técnica en cada
-colegio; otra tercera parte de conformidad con la ubicación geográfica y
-los indicadores socioeconómicos, que señala MIDEPLAN sobre el cantón o la
-zona en donde esté ubicado cada colegio y la otra tercera parte según la
-naturaleza y el costo de operación por especialidad.
+Artículo 4- La Comisión distribuirá los dineros a que se refiere la presente ley de la siguiente manera: una tercera parte de los recursos de acuerdo con la población estudiantil que reciba educación técnica en cada centro educativo; otra tercera parte de conformidad con la ubicación geográfica y los indicadores socioeconómicos que señala el Ministerio de Planificación Nacional y Política Económica (Mideplán), sobre el cantón o la zona en donde esté ubicado cada centro educativo y, la otra tercera parte, según la naturaleza y el costo de operación por especialidad.
+(Así reformado por el artículo único de la ley N° 9807 del 21 de enero del 2020)
