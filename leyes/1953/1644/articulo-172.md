@@ -1,6 +1,9 @@
-Artículo 172.-
-La aplicación del producto de la liquidación al pago de las obligaciones del banco, se hará en la siguiente forma:
-Tan pronto como la Junta Liquidadora haya verificado la lista del activo y pasivo, destinará una parte correspondiente del activo al pago de las obligaciones del banco que tuvieren preferencia sobre las demás.
-Una vez pagadas estas obligaciones, destinará los fondos líquidos que hubiere o que resultaren de la realización del activo, en forma proporcional, al pago de las deudas comunes debidamente aprobadas.
-Sin embargo, la Junta Liquidadora tendrá la facultad de pagar, de una vez, las obligaciones que no excedan de mil colones por persona natural o jurídica.
-Si aún quedaren valores del activo en poder de la Junta Liquidadora, después de efectuados todos los pagos y depositada en el Banco Central una provisión suficiente para los créditos sobre los cuales hubiere litigio pendiente, y después de pagados todos los gastos a que se refiere el artículo 170 de esta ley, deberán destinarse dichos valores al pago de interese sobre todas las deudas aprobadas del banco desde la fecha de la declaratoria de quiebra hasta la fecha del pago de las obligaciones respectivas. La tasa de interés se regirá por los fondos que hubiere disponibles para este efecto, pero no podrá ser superior a la que rigió para las obligaciones respectivas en el momento de declararse la quiebra.
+Artículo 172-En los procesos de quiebra de los intermediarios financieros se aplicará el siguiente orden de prelación de pagos, luego de cubiertos los gastos de este y atendidos los pasivos con privilegio garantizados por determinado bien hasta por el monto del seguro:
+a) Pasivos laborales.
+b) Depósitos hasta por el monto garantizado o las correspondientes acreencias del fondo de garantía de depósitos por los pagos efectuados en la cobertura de dichos depósitos.
+c) Créditos otorgados por el Banco Central de Costa Rica.
+d) El resto de los depósitos.
+e) Otros pasivos incluyendo los gastos y costos incurridos por el Fondo de Depósitos en el ejercicio de sus funciones, en relación con la entidad en quiebra.
+f) Pasivos subordinados.
+g) Los intereses sobre todas las deudas aprobadas desde la fecha de la declaratoria de quiebra hasta la fecha del pago de las obligaciones respectivas. La tasa de interés se regirá por los fondos que haya disponibles para este efecto, pero no podrá ser superior a la que rigió para las obligaciones respectivas en el momento de declararse la quiebra.
+(Así reformado por el artículo 55 aparte m) de la Ley de creación del fondo de garantía de depósitos y de mecanismos de resolución de los intermediarios financieros, N° 9816 del 11 de febrero de 2020)

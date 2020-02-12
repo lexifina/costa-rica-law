@@ -1,3 +1,2 @@
-Artículo 174.-
-En caso de que la Junta Liquidadora continúe la liquidación, deberá distribuir entre los accionistas o asociados, después de pagados todos los gastos, el sobrante del dinero y otros bienes que quedaren en su poder, en proporción al capital aportado por cada uno de ellos.
-( Así reformado por Ley Nº 6894 de 22 de setiembre de 1983, artículo 1º).
+Artículo 174-En caso de que la junta liquidadora continúe la liquidación, deberá distribuir entre los accionistas o asociados, después de pagados todos los gastos, el sobrante del dinero y otros bienes que quedaran en su poder, en proporción al capital aportado por cada uno de ellos.
+(Así reformado por el artículo 55 aparte ñ) de la Ley de creación del fondo de garantía de depósitos y de mecanismos de resolución de los intermediarios financieros, N° 9816 del 11 de febrero de 2020)
