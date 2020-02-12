@@ -1,0 +1,3 @@
+ARTÍCULO 3.- Modifíquese el párrafo primero del apartado IV del artículo 71 del Reglamento a la Ley de Régimen de Zonas Francas, Decreto Ejecutivo Nº 34739-COMEX-H del 29 de agosto del 2008 y sus reformas, para que se lea de la siguiente forma:
+"Artículo 71.- Otorgamiento del Régimen bajo varias clasificaciones( ... )
+IV. Ventas al mercado local con actividades bajo varias clasificaciones. Cuando una empresa tenga varias clasificaciones, las ventas al mercado local de cada actividad deben regirse por la normativa que sea aplicable a cada categoría, según los términos establecidos en el artículo 3, párrafo segundo del literal a) del artículo 21 ter y el artículo 22 de la Ley, respectivamente ( ... )".
