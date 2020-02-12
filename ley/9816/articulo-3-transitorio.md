@@ -1,0 +1,1 @@
+TRANSITORIO III- Las contribuciones al Fondo de Garantía de Depósitos deberán iniciar, y la cobertura surtirá efecto, tres meses después de que el Consejo Nacional de Supervisión del Sistema Financiero (Conassif) emita la reglamentación requerida en esta ley.

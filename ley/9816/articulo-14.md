@@ -1,0 +1,12 @@
+ARTÍCULO 14- Patrimonio del Fondo
+El Fondo de Garantía de Depósitos tendrá patrimonio propio, separado del patrimonio del Banco Central, y se conformará con los siguientes recursos:
+a) Las contribuciones que realicen las entidades contribuyentes y las multas que se recauden según lo señalado por esta ley.
+b) Los aportes adicionales que voluntariamente realicen las entidades contribuyentes y que serán consideradas para efectos de determinar el monto de sus contribuciones periódicas.
+c) Los recursos de las entidades contribuyentes supervisadas trasladados por el Banco Central bajo instrucción de la autoridad de resolución, provenientes de la utilización del encaje mínimo legal y de la reserva de liquidez o, en el caso del Banco Popular y de Desarrollo Comunal, provenientes de las garantías constituidas para estos efectos en el Fideicomiso de Garantías del Sistema de Pagos del Banco Central, según lo dispuesto en los artículos 16 y 24 de esta ley.
+d) Las utilidades de cada ejercicio anual del Fondo.
+e) Los aportes y las donaciones de personas o instituciones públicas o privadas, nacionales o internacionales.
+f) El aporte de recursos de otros fondos, públicos o privados, de naturaleza similar. En este caso, los intermediarios financieros que contribuyeron a estos fondos tendrán derecho a trasladar al Fondo de Garantía de Depósitos las contribuciones realizadas y a que se les ajuste, según corresponda, el monto de las contribuciones que deberán realizar al Fondo, conforme lo defina el Conassif.
+g) La recuperación por los pagos que haya realizado a los procesos de resolución de las entidades contribuyentes o por el pago de las sumas garantizadas.
+h) La cobertura de depósito no cobrada por el ahorrante o inversionista en el plazo de cuatro años, contado a partir del momento en que Conassif ordene el pago a los depositantes, según el proceso de resolución de las entidades contribuyentes supervisadas.
+El patrimonio del Fondo es inembargable y no podrá ser afectado por las obligaciones de las entidades contribuyentes.
+Es inembargable y no podrá ser afectado por las obligaciones de las entidades contribuyentes el patrimonio de los fondos a los que se refiere el último párrafo del artículo 5 y que se destinen para garantizar la cobertura señalada en el artículo 22, ambos de la presente ley. Para tales efectos, la contabilidad del patrimonio de dichos fondos debe llevarse de forma separada.

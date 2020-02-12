@@ -1,0 +1,2 @@
+ARTÍCULO 57- Se reforma el artículo 42 de la Ley 4351, Ley Orgánica del Banco Popular y de Desarrollo Comunal, de 11 julio de 1969. El texto es el siguiente:
+Artículo 42- La liquidación y disolución del banco solo podrá declararse por la vía judicial, una vez que la autoridad resolutora determine, por resolución razonada, que debe procederse a esta, por causas financieras que evidencien que es imposible seguir operando y por ende que resulta imposible el cumplimiento de los fines para los cuales fue creado el banco.

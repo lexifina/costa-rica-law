@@ -1,0 +1,1 @@
+TRANSITORIO II- El Consejo Nacional de Supervisión del Sistema Financiero (Conassif) contará con un plazo máximo de un año, desde la entrada en vigencia de la presente ley, para emitir su reglamentación.
