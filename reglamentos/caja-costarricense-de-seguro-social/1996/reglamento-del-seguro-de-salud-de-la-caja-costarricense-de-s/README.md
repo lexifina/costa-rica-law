@@ -31,3 +31,4 @@ Reglamento del Seguro de Salud de la Caja Costarricense de Seguro Social
 | 16 | 2015-10-22 | Reglamento 2015 (2015-10-22) |
 | 17 | 2016-12-22 | Reglamento 8881 (2016-12-22) |
 | 18 | 2018-08-30 | Reglamento 8986 (2018-08-30) |
+| 19 | 2020-02-13 | Reglamento 9079 (2020-02-13) |
