@@ -1,0 +1,1 @@
+Artículo 10.—Direccionamiento de las denuncias. En caso que la denuncia se presente en una oficina del ministerio que no es la competente, esta deberá remitir la documentación a la unidad especializada de la Asesoría Jurídica, la cual debe venir en sobre cerrado en resguardo de la confidencialidad de la identidad del denunciante y los documentos o pruebas aportadas.

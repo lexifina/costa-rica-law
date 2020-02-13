@@ -1,0 +1,1 @@
+Artículo 24.—Denuncia ante las autoridades penales. El órgano director del procedimiento podrá en cualquier momento comunicar al jerarca competente hechos que podrían constituir infracción a las leyes penales, para que sea denunciado ante el Ministerio Público, sin perjuicio de la responsabilidad disciplinaria correspondiente.

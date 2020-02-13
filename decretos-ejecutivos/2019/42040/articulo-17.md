@@ -1,0 +1,1 @@
+Artículo 17.—Recursos. Contra la resolución que dicta la desestimación y archivo de la denuncia, cabrá por parte del denunciante, los recursos de revocatoria y apelación, dentro de los tres días hábiles siguientes a la comunicación de conformidad con lo preceptuado por la Ley General de la Administración Pública.

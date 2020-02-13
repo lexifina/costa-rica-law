@@ -1,0 +1,1 @@
+Artículo 9º—Información adicional. El denunciante también deberá aportar las pruebas con las que cuente, señalar los posibles testigos y el lugar o medio para citarlos. También podrá señalar el medio para recibir notificaciones, si desea que la administración le comunique el resultado de la investigación.

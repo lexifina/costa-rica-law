@@ -1,0 +1,1 @@
+Artículo 19.—Fase final de la denuncia. Una vez concluida la investigación, el informe final se comunicará al jerarca competente a fin de que adopte las acciones correspondientes conforme el ordenamiento jurídico.

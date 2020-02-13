@@ -1,0 +1,1 @@
+Artículo 21.—Adición y aclaración. Contra el informe de la investigación procederá la aclaración y la adición por parte del jerarca competente, en un plazo de tres días hábiles. El investigador a cargo debe resolver lo que corresponda en un plazo de 15 días hábiles.

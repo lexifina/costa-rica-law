@@ -1,0 +1,1 @@
+Artículo 4º—Competencia para la recepción y trámite de las denuncias. Corresponderá a una unidad especializada de la Asesoría Jurídica, recibir las denuncias, calificar su contenido, valorar su admisibilidad, hacer la investigación y llevar a cabo el procedimiento administrativo en caso que proceda.

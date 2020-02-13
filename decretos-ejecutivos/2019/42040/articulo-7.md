@@ -1,0 +1,1 @@
+Artículo 7º—Forma de presentar las denuncias. Las denuncias podrán presentarse en forma verbal, escrita o electrónica en la unidad especializada de la Asesoría Jurídica del Ministerio de Justicia y Paz.

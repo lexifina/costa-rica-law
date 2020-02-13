@@ -1,0 +1,1 @@
+Artículo 3º—Ámbito de aplicación. La atención de denuncias que versen sobre presuntos actos de corrupción o contra el deber de probidad cometidos por funcionarios de la Dirección General de Adaptación Social, Dirección de la Policía Penitenciaria, Viceministerio de Paz y Administración Central del Ministerio de Justicia y Paz.

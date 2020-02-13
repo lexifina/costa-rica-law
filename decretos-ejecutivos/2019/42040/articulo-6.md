@@ -1,0 +1,1 @@
+Artículo 6º—Deber de denunciar. Los funcionarios públicos tienen el deber de denunciar los actos presuntamente corruptos que se produzcan en la función pública, en el ejercicio de sus funciones o de los que tengan conocimiento.
