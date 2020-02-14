@@ -1,0 +1,1 @@
+ARTÍCULO 11- Prohibiciones de los miembros de la Asociación Los miembros de la Asociación no podrán tener una relación de parentesco por afinidad o consanguinidad hasta de tercer grado con las personas que ocupen los cargos de la alcaldía, vicealcaldías, regidurías y la auditoría municipal de la Municipalidad de Bagaces.
