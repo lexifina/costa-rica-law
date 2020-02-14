@@ -14,3 +14,4 @@ Reglamento de perfiles de profesionales en ciencias de la salud
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-02-12 | la propia norma |
+| 2 | 2020-02-14 | Decreto Ejecutivo 42244 (2020-02-14) |
