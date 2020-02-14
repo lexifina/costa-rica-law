@@ -1,0 +1,1 @@
+ARTÍCULO 13- Todas aquellas personas físicas o jurídicas que realicen contribuciones al Museo podrán deducir estas donaciones de la renta bruta respectiva al período económico en que se realizaron, esto de conformidad con la Ley Nº 7092, Ley del Impuesto sobre la Renta, de 21 de abril de 1988.
