@@ -25,5 +25,5 @@ del Ministerio de Cultura y Juventud
 CAPÍTULO I
 Disposiciones Generales
 Artículo 1º—Objeto. La presente normativa tiene por objeto la creación del Programa Puntos de Cultura del Ministerio de Cultura y Juventud, estableciendo de forma clara los beneficiarios, procedimientos, requisitos y compromisos que exige el programa.
-El programa está dirigido a organizaciones de la sociedad civil, sin fines de lucro, que se dediquen a actividades socioculturales y cuyo quehacer impacta positivamente la sociedad.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 41113 del 10 de abril del 2018)
+El programa está dirigido a toda organización sociocultural sinfines de lucro, jurídica o de hecho, cooperativas autogestionarias con fines culturales que se dediquen a actividades socioculturales y que propicien los derechos culturales, la cultura de paz, los derechos humanos, la multiculturalidad, diversidad y pluralidad cultural.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 42441 del 14 de febrero del 2020)

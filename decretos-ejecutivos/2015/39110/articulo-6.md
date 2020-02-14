@@ -8,4 +8,14 @@ e. Las organizaciones a las que pertenezcan los funcionarios del Ministerio de C
 f. Las organizaciones a las que pertenezca alguno de los miembros de la Comisión Seleccionadora, los funcionarios de la Dirección de Cultura o sus parientes hasta el segundo grado de consanguinidad o afinidad.
 g. Las organizaciones que estén ejecutando algún proyecto en alguno de los programas de becas o fondos de apoyo de proyectos culturales o proyecto de la Dirección de Cultura del Ministerio de Cultura y Juventud, o sus órganos desconcentrados.
 h. Los contratistas que se encuentren prestando algún servicio, debidamente formalizado por las vías de la contratación administrativa, a la Dirección de Cultura.
+i. Las organizaciones religiosas, político-partidistas u otras cuando desarrollen eventos, actividades o productos de índole religiosa y/o político partidista.
+(Así adicionado el inciso anterior por el artículo 2° del decreto ejecutivo N° 42441 del 14 de febrero del 2020)
+j. Las organizaciones de cualquier índole que propongan eventos, actividades o productos que propicien la venta y consumo de licores, cigarrillos y cualquier sustancia ilícita, y/o que tenga restricción de consumo por parte de menores de edad.
+(Así adicionado el inciso anterior por el artículo 2° del decreto ejecutivo N° 42441 del 14 de febrero del 2020)
+k. Las organizaciones de cualquier índole que propongan eventos, actividades o productos que propicien el abuso contra los animales o que atenten contra la adecuada conservación de los recursos naturales.
+(Así adicionado el inciso anterior por el artículo 2° del decreto ejecutivo N° 42441 del 14 de febrero del 2020)
+l. Las organizaciones de cualquier índole que propongan eventos, actividades o productos cuyo fin es principalmente comercial.
+(Así adicionado el inciso anterior por el artículo 2° del decreto ejecutivo N° 42441 del 14 de febrero del 2020)
+m. Las organizaciones de cualquier índole que propongan eventos, actividades o productos eventos y/o actividades, proyectos o productos que atenten contra el orden público, el odio y/o conductas discriminatorias por razones de etnia, raza, edad, religión, afiliación política, ideología, preferencia deportiva, nacionalidad, género, orientación sexual o identidad de género o cualquier otra condición social o personal.
+(Así adicionado el inciso anterior por el artículo 2° del decreto ejecutivo N° 42441 del 14 de febrero del 2020)
 (Así reformado por el artículo 2° del decreto ejecutivo N° 41113 del 10 de abril del 2018)

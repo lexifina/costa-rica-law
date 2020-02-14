@@ -1,8 +1,7 @@
-Artículo 11.- Instancia responsable del proceso de selección y asignación. Se establece la Comisión Seleccionadora del Programa de Puntos de Cultura, como órgano encargado de seleccionar y asignar los fondos disponibles. Estará compuesta por los siguientes integrantes:
-• El Director de Cultura o su representante, quien presidirá las deliberaciones.
-• Dos representantes del equipo de trabajo de la Dirección de Cultura.
-• Dos representantes de organizaciones culturales, debidamente inscritas en el Sistema de Información Cultural, creado y administrado por el Ministerio de Cultura y Juventud, denominado SICultura.
-• Dos representantes de universidades estatales.
-Los representantes de organizaciones culturales serán seleccionados de la siguiente manera: El encargado del Sistema facilitará a la coordinación de Fomento Cultural la lista de organizaciones inscritas. Posteriormente, esta unidad administrativa preseleccionará a aquellas organizaciones que cumplan con una experiencia mínima definida por la Dirección de Cultura y les cursará invitación para conformar esta Comisión Seleccionadora. De las organizaciones que respondan positivamente este llamado, serán escogidos los representantes requeridos por este artículo.
-La designación de los representantes de universidades estatales será solicitada vía escrita, por el Director de Cultura a las rectorías, direcciones o jefaturas de instancias universitarias públicas, cuya labor esté relacionada con los fines y objetivos del Programa Puntos de Cultura. Para este fin, la unidad técnica encargada de la administración del Programa Puntos de Cultura deberá levantar un listado de centros de investigación, facultades y escuelas universitarias que cuenten con dicha característica.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 39955 del 5 de setiembre de 2016)
+Artículo 11.—Instancia responsable del proceso de selección y asignación. Se establece la Comisión Seleccionadora del Programa de Puntos de Cultura, como órgano encargado de seleccionar y asignar los fondos disponibles. Estará compuesta por los siguientes integrantes:
+a. Un representante del Director(a) de Cultura, quien presidirá las deliberaciones.
+b. Dos representantes del equipo de trabajo de la Dirección de Cultura.
+c. Dos representantes de organizaciones culturales que en años anteriores hayan sido seleccionadas por el programa, y ejecutado satisfactoriamente sus proyectos.
+La escogencia de estos representantes corresponderá a la Dirección de Cultura.
+En caso de que alguna de las temáticas lo amerite, la Dirección de Cultura podrá invitar a dos miembros externos para que formen parte de la Comisión Seleccionadora, cuidando siempre que el número de miembros que seleccionan sea impar. La escogencia de estos representantes corresponderá a la Dirección de Cultura.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 42441 del 14 de febrero del 2020)
