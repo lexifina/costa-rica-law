@@ -1,0 +1,2 @@
+Artículo 6. Obligación de brindar información.
+qLa Administración Tributaria podrá exigir a la Junta, la información que requiera para el correcto ejercicio de sus funciones, en los términos y con las facultades que al efecto establece la normativa vigente. Por su parte, la Junta estará́ obligada a brindar la información que dichas autoridades le soliciten, colaborando con ellas en el ejercicio de sus funciones, cuando así les sea requerido; caso contrario quedará sujeta a la responsabilidad y sanciones establecidas en la normativa vigente.

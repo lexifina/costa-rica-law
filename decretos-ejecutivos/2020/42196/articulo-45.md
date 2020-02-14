@@ -1,0 +1,3 @@
+Artículo 45. Unión de derechos de compra.
+A solicitud de los interesados, se podrán unir los derechos de compra siempre que se presenten simultáneamente dos compradores y que se trate de padres e hijos, hermanos, cónyuges entre sí y convivientes en unión de hecho. Dichas relaciones deberán demostrarse mediante el documento idóneo correspondiente.
+La unión de derecho de compra se autorizará siempre y cuando una de las autorizaciones no haya sido utilizada. Será aplicable en las mercancías cuyo valor supere el monto de autorización individual, para lo cual una de las autorizaciones debe ser utilizada en su totalidad en esa compra, quedando afecta esta unión a las limitaciones establecidas en la lista.

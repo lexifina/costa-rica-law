@@ -1,0 +1,2 @@
+Artículo 36. Ingreso al Depósito.
+De previo a ingresar la mercancía al Depósito, el concesionario deberá́ informar y aportar toda la documentación necesaria al Puesto donde conste la cantidad, características, marcas y demás datos de las mercancías nacionales, así́ como su precio Golfito; debiendo adjuntar las respectivas facturas del proveedor, a fin de que el Puesto verifique el correcto pago del impuesto único del Depósito. Una vez comprobado el correcto pago del tributo, el Puesto permitirá́ el ingreso de la mercancía al Depósito.

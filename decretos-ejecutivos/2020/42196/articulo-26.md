@@ -1,0 +1,4 @@
+Artículo 26. Fijación de precios y descuentos.
+Cada concesionario fijará los precios para las mercancías que disponga vender en el Depósito, considerando una utilidad bruta máxima de un 40% y sobre el costo de la mercancía puesta en las bodegas del Depósito. El Ministerio de Economía, Industria y Comercio podrá́ regular los porcentajes de esta utilidad bruta, previa consulta con la Junta.
+En el caso de los descuentos, éstos se podrán fijar y modificar por parte del Concesionario sin intervención de la autoridad aduanera, sin perjuicio de lo dispuesto en el artículo 27 del presente Reglamento.
+Para tales efectos, deberán indicar en las facturas que emitan, el porcentaje y monto en colones del descuento concedido. No obstante, el descuento no se tomará en cuenta para efectos de cómputo del monto máximo de compras de los productos y mercancías de cada adquirente, debiendo reflejarse el valor de la mercancía y el respectivo descuento en la factura.

@@ -1,0 +1,3 @@
+Artículo 28. Comunicación de la venta de mercancía.
+El concesionario transmitirá́ por medio de la aplicación informática diseñada para tal efecto, la información de cada venta debiendo informar sobre: el nombre, tipo y número de identificación del comprador; cantidad y código de mercancía; los números de facturas, así́ como el valor unitario de las mercancías, sus descuentos y la suma total de la venta.
+En todos los casos, el comprador debe registrar su huella digital y los precios consignados deben ser iguales a los autorizados previamente por el Puesto, salvo los descuentos, los que no requieren de autorización alguna del Puesto.

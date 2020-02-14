@@ -1,0 +1,2 @@
+Artículo 29. Salida de mercancías y unidades de transporte del Depósito.
+Las unidades de transporte autorizadas por la Junta para el traslado de mercancías compradas dentro del Depósito a cualquier parte del país; deberán ubicarse dentro de las instalaciones del Depósito, donde realizarán sus labores de carga. Dichas unidades de transporte únicamente podrán transportar mercancías adquiridas en los locales comerciales del Depósito.

@@ -1,0 +1,3 @@
+Artículo 27. Mercancías en promoción.
+Las promociones de mercancías serán aquellas que se vendan en conjuntos, con un único precio y con una vigencia máxima de treinta días calendario. El concesionario debe informar al Puesto de previo a la promoción: las condiciones en que se realizará la promoción con indicación del plazo, precio, cantidad, características y el costo de la unión de mercancías.
+El precio de cada unidad promocional no será menor a la suma del costo de cada una de las mercancías que forman tal unidad promocional, y no será́ mayor o igual a la suma de los precios unitarios de venta de las mercancías en promoción. Asimismo, debe cumplirse con las disposiciones que en esta materia regula la Ley número 7472, y su Reglamento

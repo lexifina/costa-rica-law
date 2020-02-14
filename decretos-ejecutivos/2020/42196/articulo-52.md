@@ -1,0 +1,2 @@
+Artículo 52. Sobre la remuneración de los Directores.
+Los Directores no podrán ser remunerados con dietas en los casos de inasistencia a las sesiones de ese órgano colegiado. Por ello no procede el pago de dietas cuando esos funcionarios no asistan a las sesiones por encontrarse cumpliendo una misión especial, ya sea dentro o fuera del país, por asistir a actividades relacionadas con las competencias asignadas a ese Órgano o por cualquier otra razón justificada.

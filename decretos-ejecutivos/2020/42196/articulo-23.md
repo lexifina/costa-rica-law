@@ -1,0 +1,2 @@
+Artículo 23. Leyenda en empaques o embalajes.
+Todas aquellas mercancías importadas o nacionales que se comercialicen en el Depósito, previo a su venta, deberán portar un dispositivo de seguridad tanto en cada unidad que se venda como en su empaque o embalaje, que tenga la Leyenda "Depósito Libre Comercial de Golfito. Únicamente para uso personal. Prohibida su venta”; según las disposiciones que establezca la Dirección General de Aduanas. Las autoridades competentes podrán decomisar las mercancías que se encuentren sin etiquetado.
