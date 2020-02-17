@@ -14,3 +14,4 @@ Declara de Interés Publico y Nacional el Proyecto para la Construcción de la T
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-05-11 | la propia norma |
+| 2 | 2020-02-17 | Decreto Ejecutivo 42217 (2020-02-17) |

@@ -10,4 +10,5 @@ Decretan:
 De Interés Público y Nacional el Proyecto
 para la Construcción de la Torre de Cuidados
 Críticos Llamada “Torre de Esperanza”
-Artículo 1º—Se declaran de interés público y nacional, las actividades que llevará a cabo la Asociación Pro Hospital Nacional de Niños, para la recaudación del recurso económico, para la adquisición de equipo médico y la construcción de la Torre de Cuidados Críticos llamada “Torre de Esperanza”.
+Artículo 1º—Se declaran de interés público y nacional, las actividades que llevará a cabo la Caja Costarricense de Seguro Social y la Asociación Pro Hospital Nacional de Niños, para la construcción, equipamiento, contratación y todas aquellas actividades para el desarrollo del Proyecto Torre de Cuidados Críticos llamada “Torre de Esperanza” y obras complementarias del Hospital Nacional de Niños “Dr. Carlos Sáenz Herrera”.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 42217 del 17 de febrero del 2020)
