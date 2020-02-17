@@ -1,1 +1,0 @@
-Artículo 39.—Solamente con autorización del Ministerio de Salud podrá realizarse la exhumación de fallecidos por viruela, escarlatina, tifus exsantimático, difteria, cólera y peste bubónica y cualquier otra a criterio de dicho Ministerio.

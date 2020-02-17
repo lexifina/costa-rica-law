@@ -1,1 +1,0 @@
-Artículo 24.—La Junta cobrará una tasa anual que fijará la Municipalidad, de acuerdo con los costos para el mantenimiento de las zonas verdes y sitios comunes del cementerio, previa recomendación de la Junta y de conformidad con el Reglamento de Tasas de la Municipalidad de Tibás.

@@ -1,1 +1,0 @@
-Artículo 44.—A partir del momento en que los restos de una persona hayan salido del cementerio, la Junta salva su responsabilidad, la que será asumida por el solicitante y los propietarios de las bóvedas que participaron firmando la autorización para el traslado.
