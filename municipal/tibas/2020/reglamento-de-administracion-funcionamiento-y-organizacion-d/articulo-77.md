@@ -1,0 +1,1 @@
+Artículo 77. — Las urnas o recipientes depositarios de las cenizas producto de la cremación de cadáveres o restos humanos, podrán ser de metal preferiblemente inoxidable y herméticamente sellados, o bien de madera debidamente cerradas, para el traslado de cenizas producto de la cremación de cadáveres o restos humanos fuera del territorio nacional.

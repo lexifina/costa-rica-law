@@ -1,0 +1,1 @@
+Artículo 71. —En el ejercicio de su potestad normativa el Consejo Municipal podrá modificar este Reglamento en todo o en parte, aprobándolo asi en acto motivado y publicándolo una vez en el diario oficial La Gaceta. Toda modificación entrara en vigencia hasta después de publicada

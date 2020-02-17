@@ -1,0 +1,1 @@
+Artículo 79. —Para celebrar un evento en la Capilla es necesario reservarse la fecha y la hora con anticipación y ver la disponibilidad que con que se cuenta para ese momento, la reservación se efectuará en la oficina administrativa del cementerio en horario de oficina, pagar el monto indicado de cobro en ese momento por el alquiler.

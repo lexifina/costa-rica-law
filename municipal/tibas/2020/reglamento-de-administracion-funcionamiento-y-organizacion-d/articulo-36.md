@@ -1,0 +1,1 @@
+Artículo 36. —Para inhumar un cadáver en una bóveda o condominio que no tenga nexos familiares con el arrendatario o beneficiarios, sólo lo podrá autorizar el arrendatario titular y si éste ha fallecido, los beneficiarios lo podrán autorizar pero deberán contar con mayoría simple.

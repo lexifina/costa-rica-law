@@ -1,0 +1,1 @@
+Artículo 43. —Los cadáveres deberán traerse para su inhumación en ataúdes cerrados. No se permitirá la inhumación de más de un cadáver en la misma caja y en la misma fosa, salvo cuando se trate de la madre y el producto del parto, fallecidos en el acto de alumbramiento.

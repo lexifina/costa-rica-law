@@ -1,0 +1,1 @@
+Artículo 82. —La capilla no puede ser sede de ningún movimiento religioso que tenga reuniones periódicas o que reúnan grupos grandes de personas, fuera de las horas de oficina no es permitido el ingreso a personas ajenas a esta Capilla.

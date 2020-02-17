@@ -1,0 +1,1 @@
+Artículo 76. —La cremación de restos humanos exhumados después de transcurridos cinco años o más desde el día de la defunción, podrá efectuarse sin necesidad de autorización de la Autoridad judicial, pero es necesario en todo caso la autorización de la Dirección de Área Rectora de Salud, correspondiente al sitio de la exhumación.

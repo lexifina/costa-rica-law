@@ -1,0 +1,2 @@
+Artículo 45.—De las exhumaciones: Todas las exhumaciones se llevarán a cabo por orden judicial, o por la autorización del Ministerio de Salud para trasladar restos a otros cementerios o para ser incinerados, a estas exhumaciones se aplicarán, supletoriamente, las disposiciones contenidas en el Reglamento General de Cementerios y en la Ley General de Salud.
+Para las exhumaciones, remociones o traslados internos no es necesario presentar la autorización del Ministerio de Salud.

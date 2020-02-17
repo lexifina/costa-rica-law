@@ -1,0 +1,1 @@
+Artículo 72. —Lo no dispuesto en el presente reglamento, se regirá por las disposiciones atinentes de la Ley General de Salud y del Reglamento General de Cementerios. Así mismo en caso de duda en la aplicación de una norma específica, prevalecerá lo dispuesto en la Ley y el Reglamento de citas.

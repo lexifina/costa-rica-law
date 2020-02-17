@@ -1,0 +1,1 @@
+Artículo 68.—La Municipalidad por medio de la Administración se reserva el derecho de admisión al Cementerio de cualquier persona que a su juicio pudiera poner en peligro la tranquilidad, la moral y el orden público que debe resguardarse en el lugar.

@@ -1,0 +1,2 @@
+Transitorio dos: Para la transición del nuevo método de recaudación de los servicios que preste el Cementerio, se dará un Transitorio de un máximo de 1años.
+(Nota de Sinalevi: Mediante Fe de Erratas y publicada en La Gaceta N° 129 del 6 de julio de 2021, página N° 2, se acordó suprimir de este artículo los párrafos segundo y tercero original, que hacían mención a que este reglamento se ordenaba publicarlo como proyecto de reglamento de conformidad con el numeral 43 de Código Municipal)

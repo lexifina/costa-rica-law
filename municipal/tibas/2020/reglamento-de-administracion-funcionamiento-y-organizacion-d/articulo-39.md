@@ -1,0 +1,1 @@
+Artículo 39. —Traslados Externos de Restos Humanos. No se permiten los traslados provenientes de bóvedas, mausoleos o nichos de alquiler desde otros Cementerios, al Osario General ni a los nichos de alquiler de este Cementerio.

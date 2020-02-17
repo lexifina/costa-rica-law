@@ -1,0 +1,1 @@
+Artículo 54.—Está prohibido el traslado externo de restos humanos entre bóvedas, si entre el fallecido y los arrendatarios de una y otra bóveda no existen los vínculos familiares indicados en el artículo 1 del Decreto Nº 704 del 7 de setiembre de 1949.

@@ -1,0 +1,1 @@
+Artículo 80. — La Capilla no puede ser prestada para celebrar misa de nueve días de personas fallecidas u otros eventos fuera de actos fúnebres, ni prestar a las asociaciones de desarrollo, no se puede otorgar su préstamo en cortesía.

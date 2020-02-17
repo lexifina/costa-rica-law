@@ -1,0 +1,1 @@
+Artículo 66. —Los Cinerarios: Serán espacios para resguardar las cenizas de seres humanos, su alquiler será anual, y prorrogable hasta 10 años y solo para vecinos del Cantón de Tibás, su precio lo establecerá la Municipalidad de Tibás a partir de la publicación de este Reglamento.

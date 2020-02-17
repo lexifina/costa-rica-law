@@ -1,0 +1,2 @@
+Artículo 48. —Las exhumaciones de fallecidos por consecuencia de las enfermedades indicadas en el Artículo 37 del Reglamento General de Cementerios, según Decreto Ejecutivo N 32833-S, del 3 de agosto del 2005, además de los requisitos establecidos en el presente Reglamento, requieren el permiso escrito de la Dirección de Vigilancia del Ministerio de Salud, en obligada consulta a la Dirección del Área Rectora.
+Para este tipo de exhumaciones se levantará un acta a través de un formulario que aportará la Administración, el original al expediente y la copia al interesado.

@@ -1,0 +1,8 @@
+Artículo 13. —De los requisitos para las Cesiones del Derecho de Uso Especial Privado en Precario para Arrendamiento: (Al fallecer arrendatario titular) El solicitante de arrendamiento de un Derecho de Uso Especial Privado en Precario deberá presentar ante la administración del Cementerio, los siguientes requisitos:
+a. Mediante declaración Jurada Protocolizada ante Notario Público, deberá solicitar que se nombre un nuevo arrendatario y deberá de demostrar que es familiar del difunto arrendatario titular; manifestando en la declaración que acepta las consecuencias derivadas del delito de perjurio.
+b. Constancia de parentesco de los beneficiarios, emitida por el Registro Civil.
+c. Certificación Literal del Arrendatario fallecido, emitida por el Registro Civil.
+d. Presentar documento idóneo (contrato de alquiler, recibo de electricidad, acta de la Guardia Rural que indique que es vecino del Cantón, o cualquier otro) con el que se demuestre ser vecino del Cantón de Tibás y con al menos tres años de residencia.
+e. Estar al día en los tributos municipales, para lo cual deberá presentar original o fotocopia del recibo correspondiente; además deberá estar al día en el pago de la cuota de mantenimiento y de renovación del derecho.
+f. Copia de cédula de identidad por ambos lados del solicitante(s); la cual deberá ser firmada por éste con lapicero azul.
+g. Cualquier otro requisito que establezca la Administración. No obstante, el Administrador podrá realizar las investigaciones que considere necesarias, para el fiel cumplimiento de los requisitos establecidos en el presente reglamento.

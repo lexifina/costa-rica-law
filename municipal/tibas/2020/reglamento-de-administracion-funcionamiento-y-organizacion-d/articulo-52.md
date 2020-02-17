@@ -1,0 +1,1 @@
+Artículo 52. —Una vez recibida toda la documentación a satisfacción, la Administración tiene un plazo de treinta días calendario, contados a partir de la fecha del recibo, para resolver sobre el traslado de los restos humanos.

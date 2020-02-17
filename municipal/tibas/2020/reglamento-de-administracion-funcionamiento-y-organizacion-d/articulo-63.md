@@ -1,0 +1,1 @@
+Artículo 63. —Inhumaciones en Nichos de Alquiler: No se permitirán ataúdes de metal de ningún tipo, sólo de madera o de sus derivados y que sean de fácil desintegración. No se usarán nichos de alquiler para momias o restos traídos de éste u otro cementerio.

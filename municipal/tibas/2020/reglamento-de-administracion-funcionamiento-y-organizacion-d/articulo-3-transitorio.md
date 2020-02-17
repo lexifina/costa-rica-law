@@ -1,0 +1,1 @@
+Transitorio tres: Este reglamento deroga cualquier otro reglamento anterior y cualquier acto administrativo no ajustado al marco jurídico, facultando a la Administración del Cementerio a subsanar posibles errores, a partir de la publicación en el Diario Oficial la Gaceta.

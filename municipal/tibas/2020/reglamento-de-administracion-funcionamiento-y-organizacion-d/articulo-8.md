@@ -1,0 +1,1 @@
+Artículo 8º—La Municipalidad de Tibás: Tendrá el personal técnico, administrativo y operativo que requiere para la adecuada operación del Cementerio. Debe contar al menos con un administrador, una secretaria y un panteonero con funciones previamente establecidas por el Departamento de Recursos Humanos.

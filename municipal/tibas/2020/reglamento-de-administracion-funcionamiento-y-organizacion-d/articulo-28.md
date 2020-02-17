@@ -1,0 +1,2 @@
+Artículo 28. —Todo Arrendatario o Beneficiario está en la obligación de mantener en buen estado de conservación y presentación las bóvedas, para lo cual la Administración deberá vigilar el fiel cumplimiento de esta disposición, concediéndole un plazo de 3 meses calendario para el debido mantenimiento.
+Transcurrido este tiempo y de no realizar la mejora, se procederá según párrafo segundo del Artículo 22 de este Reglamento.

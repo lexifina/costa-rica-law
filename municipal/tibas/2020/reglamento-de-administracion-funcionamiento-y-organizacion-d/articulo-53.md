@@ -1,0 +1,1 @@
+Artículo 53.—A partir del momento en que los Restos Humanos hayan salido del Cementerio, la responsabilidad legal de cualquier tipo de custodia, será asumida por la persona que firmó el formulario respectivo y los propietarios de las bóvedas o condominios que autorizaron el traslado, por lo tanto, la Municipalidad queda exenta de toda responsabilidad.

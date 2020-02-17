@@ -1,0 +1,1 @@
+Artículo 27. —En toda obra que se realice en el Cementerio sólo se admitirá el color blanco para lo cual deberán presentar una muestra para su aprobación. Se admite un rodapié con una altura máxima de 15 cm, gris claro u oscuro. Deben presentar copia de factura de todos los materiales a usar.

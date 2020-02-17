@@ -1,0 +1,1 @@
+Artículo 62. —Nichos de Alquiler Especiales: Estos están destinados a obesos, el período de alquiler será por 10 años. La cuota será el valor del alquiler corriente de los cinco años por dos períodos (diez años), para posibles prórrogas rige el artículo 55 de este reglamento.

@@ -1,0 +1,1 @@
+Artículo 81. —La Capilla se abre 30 minutos antes que inicie un evento, los portones principales deberán estar cerrados, a más tardar a las 23; 00 horas. Quedando uno de los arrendatarios como responsable del inmueble

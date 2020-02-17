@@ -1,0 +1,1 @@
+Artículo 64. —Pago del Nicho de Alquiler: Una vez cancelado el alquiler de un nicho, si no se llegara a utilizar, por alguna razón ajena a la Administración, el monto acreditado no será reintegrado al representante. Estos ingresos cubrirán los gastos en que incurrió la Administración (destape, traslado de restos humanos, escombros, limpieza).

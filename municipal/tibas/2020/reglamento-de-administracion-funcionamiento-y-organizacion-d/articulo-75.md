@@ -1,0 +1,1 @@
+Artículo 75. —Para poder efectuarse la cremación de cadáveres humanos exhumados en cualquier fecha después del fallecimiento. Si no han transcurrido cinco años desde el día de la defunción, deberá obtenerse la autorización escrita de la autoridad judicial competente, previa a la aprobación de la Dirección Rectora de salud, correspondiente al sitio de la exhumación.

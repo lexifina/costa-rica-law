@@ -1,0 +1,1 @@
+Artículo 70. —Errores en nombres, apellidos o cualquier otro dato en los registros de difuntos, será corregidos por medio de los arrendatarios titulares, beneficiarios, representantes o albaceas, previa justificación y comprobación mediante la certificación emitida por el Registro Civil.
