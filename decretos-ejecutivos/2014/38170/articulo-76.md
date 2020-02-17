@@ -23,5 +23,8 @@ s) Formular el Plan Operativo Anual (POA) de la Dirección y el correspondiente 
 t) Establecer los Manuales de Procedimientos requeridos para el funcionamiento de la Dirección y sus dependencias, el manejo de información oficial, así como la prestación de servicios y la realización de trámites bajo su responsabilidad, previo visto bueno del Viceministro Académico.
 u) Formular y coordinar el desarrollo de acciones que se realicen desde el ámbito técnico del Colegio Nacional Virtual Marco Tulio Salazar.
 (Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 41007 del 19 de marzo del 2018)
-v) Otras funciones inherentes, relacionadas con su ámbito de competencia y atribuciones, asignadas por el superior jerárquico.
-(Corrida la numeración del inciso anterior por el artículo 1° del N° 41007 del 19 de marzo del 2018 que lo traspasó del antiguo inciso u) al v))
+v) Emitir los manuales de procedimientos, protocolos, directrices y lineamientos que resulten necesarios para el correcto desarrollo de las funciones a cargo del personal docente de los Equipos Técnicos Itinerantes Regionales (ETIR), entre estas la coordinación con comités de apoyo educativo o los centros educativos que por razones especiales no puedan contar con esos comités.
+(Así adicionado el inciso anterior por el artículo 4° del decreto ejecutivo N° 42225 del 17 de febrero del 2020)
+w) Otras funciones inherentes, relacionadas con su ámbito de competencia y atribuciones, asignadas por el superior jerárquico.
+(Así modificada la numeración del inciso anterior por el artículo 1° del N° 41007 del 19 de marzo del 2018 que lo traspasó del antiguo inciso u) al v))
+(Así modificada la numeración del inciso anterior por el artículo 4° del decreto ejecutivo N° 42225 del 17 de febrero del 2020, que lo traspasó del antiguo inciso v) al w))
