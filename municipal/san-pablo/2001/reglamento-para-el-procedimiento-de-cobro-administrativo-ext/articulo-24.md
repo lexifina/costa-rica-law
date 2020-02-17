@@ -1,1 +1,2 @@
-Artículo 24.—Novación. La novación como forma de extinción de la obligación tributaria, consistirá en la transformación o sustitución de una obligación por otra. La novación se admitirá únicamente cuando se mejoren las garantías a favor de la Municipalidad y ello no implique demérito de la efectividad en la recaudación.
+Artículo 24.—Monto mínimo para realizar arreglo de pago. Únicamente procederán arreglos de pago cuando las obligaciones vencidas sean por un monto mayor a la cuarta parte del salario base, correspondiente al Oficinista 1, de conformidad con el Decreto de Salarios Mínimos vigente al momento de efectuarse el arreglo de pago respectivo.
+(Así reformado mediante sesión N° 08-20 del 17 de febrero del 2020)

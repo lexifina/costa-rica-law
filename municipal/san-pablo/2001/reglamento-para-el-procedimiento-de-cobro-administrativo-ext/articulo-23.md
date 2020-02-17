@@ -1,1 +1,2 @@
-Artículo 23.—Dación en pago. El procedimiento para la extinción de la obligación tributaria municipal mediante dación en pago, se regirá por el Decreto Ejecutivo Nº 20870-H del 27 de octubre de 1991, publicado en La Gaceta Nº 234 del 6 de diciembre de 1991, que reglamentó el artículo 4º de la Ley Nº 7218.
+Artículo 23.—Resolución del arreglo de pago. El convenio de arreglo de pago se resolverá únicamente, ante el pago total que realice el sujeto pasivo de la obligación vencido, o cuando se haya retrasado diez días hábiles en el cumplimiento de su obligación, en cuyo caso, vencido dicho plazo, se remitirá inmediatamente el expediente a etapa ejecutiva.
+(Así reformado mediante sesión N° 08-20 del 17 de febrero del 2020)
