@@ -15,3 +15,4 @@ Reglamento para el Procedimiento y Tarifas a cobrar por omisiones de los deberes
 | --- | --- | --- |
 | 1 | 2014-03-10 | la propia norma |
 | 2 | 2018-11-12 | Reglamento municipal 46 (2018-11-12) |
+| 3 | 2020-02-17 | Reglamento municipal 8 (2020-02-17) |
