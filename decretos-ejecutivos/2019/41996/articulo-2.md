@@ -1,0 +1,1 @@
+Artículo 2º. —Creación. Créase la Unidad Presidencial de Análisis de Datos, como una instancia asesora de la Presidencia de la República, que ejercerá una función permanente de asesoría al Presidente de la República, fortaleciendo un enfoque de toma de decisiones de política pública fundamentadas en la evidencia que aporta el análisis de los datos.
