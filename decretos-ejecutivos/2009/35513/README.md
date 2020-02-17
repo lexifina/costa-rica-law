@@ -16,3 +16,4 @@ Establece Organizaci√≥n Administrativa de las Direcciones Regionales de Educaci√
 | 1 | 2009-09-25 | la propia norma |
 | 2 | 2010-09-27 | Decreto Ejecutivo 36202 (2010-09-27) |
 | 3 | 2014-01-30 | Decreto Ejecutivo 38170 (2014-01-30) |
+| 4 | 2020-02-17 | Decreto Ejecutivo 42225 (2020-02-17) |
