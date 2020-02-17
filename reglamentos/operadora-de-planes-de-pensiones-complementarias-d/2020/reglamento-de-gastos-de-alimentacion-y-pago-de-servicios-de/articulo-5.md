@@ -1,0 +1,1 @@
+Artículo 5°—Corresponderá a cada dirección o área de los trabajadores y las trabajadoras que laboren dicho tiempo extraordinario, autorizar con su firma los comprobantes emitidos por los gastos indicados.
