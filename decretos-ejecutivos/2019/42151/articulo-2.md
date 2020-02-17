@@ -1,0 +1,1 @@
+Artículo 2º—Modifíquese el artículo 26 del “Reglamento sobre Grados Policiales y Sistemas de Ascenso de los Servidores de la Fuerza Pública”, Decreto Ejecutivo N° 30381-SP del 2 de mayo del 2002, para que donde dice “Concejo”, se lea correctamente: “Consejo”.
