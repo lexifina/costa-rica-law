@@ -94,3 +94,4 @@ Manual de Procedimientos Aduaneros en el marco TICA (Contiene Ingreso y salida d
 | 79 | 2019-10-30 | Resolución 400 (2019-10-30) |
 | 80 | 2019-11-04 | Resolución 410 (2019-11-04) |
 | 81 | 2020-02-14 | Resolución 56 (2020-02-14) |
+| 82 | 2020-02-17 | Resolución 57 (2020-02-17) |

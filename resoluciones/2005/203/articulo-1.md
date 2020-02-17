@@ -1375,6 +1375,11 @@ En lo aplicable y no regulado en el presente procedimiento se estará lo dispues
 Abreviaturas
 Las abreviaturas no definidas en esta Sección corresponderán a las establecidas en el Manual de Procedimientos Aduaneros.
 DGME: Dirección General de Migración y Extranjería.
+(*)DUCA: La Declaración Única Centroamericana
+El formato de impresión de la DUCA, será distinguido de acuerdo al tipo de operación, de la manera siguiente:
+1. DUCA-T: para las mercancías en tránsito aduanero internacional terrestre.
+2. DUCA-F: para las mercancías originarias de la región centroamericana.
+(*)(Así adicionada la abreviatura anterior mediante resolución N° RES-DGA-057-2020 del 17 de febrero del 2020)
 DUT: Declaración Única de Tránsito.
 INS: Instituto Nacional de Seguros.
 SENASA: Servicio Nacional de Salud Animal.
@@ -1388,6 +1393,10 @@ VUCE: Ventanilla Única de Comercio Exterior.
 Definiciones
 DECLARACIÓN _ÚNICA DE
 TRÁNSITO (DUT): declaración del transportista internacional terrestre realizada mediante transmisión electrónica de datos por medio del sistema TIM, donde se declaran los datos relacionados con las mercancías y el medio de transporte objeto de tránsito internacional terrestre.
+(*)Declaración Única
+Centroamericana (DUCA-T)
+Declaración del transportista internacional terrestre, realizada mediante transmisión electrónica de datos por medio del sistema “Portal de la DUCA”, donde se declaran los datos relacionados con las mercancías y el medio de transporte objeto de tránsito internacional terrestre. La DUCA-T podrá ser impresa en su versión completa o en su versión resumida, manteniendo en ambos casos, el mismo número de autorización.
+(*)(Así adicionada la definición anterior mediante resolución N° RES-DGA-057-2020 del 17 de febrero del 2020)
 MEDIO DE TRANSPORTE: los medios de transporte utilizados para la movilización de mercancías de un lugar a otro, que reúnen las condiciones exigidas en el Reglamento sobre el Régimen de Tránsito Aduanero Internacional Terrestre.
 VENTANILLA UNICA DE TRÁNSITO: lugar habilitado en las aduanas de ingreso o salida terrestre en donde se localizan y trabajan de manera coordinada funcionarios de las siguientes instituciones: DGME, MAG y DGA, involucradas en la autorización del tránsito internacional terrestre y del ingreso o egreso a CR de conductores de los medios de transporte comercial.
 Capítulo I-Base Legal
@@ -1402,6 +1411,8 @@ Capítulo I-Base Legal
 9º) Decreto Nº 35317-H del 20 de mayo del 2009, publicado en La Gaceta 123 del 26 de junio del 2009, establece que las unidades de transporte que ingresen por una frontera terrestre, deben ser destinadas a un régimen aduanero en un término no mayor de dos horas, a partir del registro de su ingreso a los patios de aduana.
 10º) Ley Nº 8764 publicada en La Gaceta N º 170 del 1º de setiembre de 2009 “Ley General de Migración y Extranjería”.
 11º) Ley Nº 7664 publicada en La Gaceta N º 83 del viernes 2 de mayo de 1997, “Ley de Protección Fitosanitaria”.
+Resolución N°409-2018 (COMIECO LXXXV) del 7 de diciembre de 2018, mediante la que se aprobó el formato de la Declaración Única Centroamericana (DUCA) y su instructivo de llenado.
+(Así adicionado el punto anterior mediante resolución N° RES-DGA-057-2020 del 17 de febrero del 2020)
 Políticas Generales
 1. La Dirección General de Migración y Extranjería, el Ministerio de Agricultura y Ganadería y la Dirección General de Aduanas, trabajarán en forma conjunta a efectos de autorizar de manera coordinada las operaciones de tránsito internacional terrestre de ingreso, paso o salida de mercancías del territorio aduanero nacional. Dichas instituciones operaran bajo un mismo procedimiento en la Ventanilla Única de Tránsito localizadas en las aduanas de ingreso y salida terrestre.
 2. El transportista internacional terrestre que inicie, pase o concluya un tránsito internacional terrestre por Costa Rica, debe apegarse a lo establecido en el Reglamento sobre el Régimen de Tránsito Aduanero Internacional Terrestre, vigente a la fecha, así como a las disposiciones de la legislación nacional y el presente procedimiento; debiendo utilizar para movilizar las mercancías en tránsito internacional terrestre por el territorio nacional la declaración de tránsito gestionada el sistema informático TIM y el Comprobante de Viaje emitido por el sistema TICA.
@@ -1446,6 +1457,10 @@ Políticas Generales
 (Así adicionado el punto anterior por resolución RES-DGA-052 del 28 de febrero de 2012)
 41. Los medios de transporte que salen del territorio nacional vacíos, el transportista aduanero debe transmitir al sistema informático, el manifiesto de carga de salida, donde debe declarar la condición en lastre; en todos los casos, el funcionario aduanero verificará la condición de vacío del mismo. Tratándose de un medio de transporte de matrícula extranjera, debe también gestionarse la cancelación del Certificado de Importación Temporal previamente autorizado.
 (Así adicionado el punto anterior por resolución RES-DGA-353-2012 del 25 de octubre del 2012)
+42. En todos los casos, el funcionario aduanero deberá verificar por medio del sistema informático TICA, que los conductores de los medios de transporte que ejecuten tránsitos internacionales terrestres, que ingresen o salen del país hayan realizado los trámites migratorios.
+(Así adicionado el punto anterior mediante resolución N° RES-DGA-057-2020 del 17 de febrero del 2020)
+43. En caso de que por medio del sistema informático TICA no sea posible verificar que los conductores de los medios de transporte que ejecuten tránsitos internacionales terrestres que ingresen o salen del país hayan realizado los trámites migratorios respectivos; la autoridad aduanera deberá establecer la contingencia correspondiente, en cuyo caso los funcionarios de aduana deberán aplicar lo indicado en la circular número DGT-DPA-167-2013, de fecha 13 de mayo del año 2013, que señala lo siguiente: “…instruir a los funcionarios de la aduana encargados de autorizar el ingreso o egreso de los tránsitos internacionales, para que antes de llevar a cabo esa labor, verifiquen físicamente si el pasaporte del chofer indicado en la declaración de tránsito internacional (DUT) que respalda el tránsito internacional que están ejecutando, ya tiene el sello de ingreso o salida de la Dirección de Migración y Extranjería, según sea el cas.
+(Así adicionado el punto anterior mediante resolución N° RES-DGA-057-2020 del 17 de febrero del 2020)
 I. Del ingreso de las mercancías amparadas a una DUT
 1. Destino final Aduana de Frontera
 A. Actuaciones del Conductor
@@ -1489,6 +1504,8 @@ D. Actuaciones del Funcionario Aduanero en la Ventanilla Única de Tránsito
 10º) Imprime en hoja blanca dispuesta en la Ventanilla Única de Tránsito, el Comprobante de Viaje, que mostrará el número de Certificado de Importación Temporal, cuando corresponda y lo entrega al conductor para el control en carretera, previo estampado de su firma, junto con el original del comprobante de pago del seguro obligatorio.
 11º) Archiva una impresión del Comprobante de Viaje, cuando también contenga la información del Certificado de Importación Temporal, junto con la fotocopia del comprobante de pago del seguro obligatorio.
 12º) Para las mercancías cuarentenarias o con NT del MAG, una vez registrado por el funcionario del MAG la autorización de la DUT , registra en la “Aplicación Trabajo en Portón” del sistema TICA el inicio del viaje y el sistema de manera automática informa el cierre de la DUT al TIM, permaneciendo por un plazo máximo de dos horas, el medio de transporte, la UT y sus mercancías en la zona primaria, hasta la presentación del DUA correspondiente.
+13 Una vez autorizada la DUCA-T por el MAG, en el mismo módulo “Control de Viaje” en la opción “Autorizaciones SIECA” verifica si el conductor registrado en la DUCA-T ya realizó los trámites migratorios para el ingreso al país. Si se trata de un nuevo chofer, ingresa el número de pasaporte y nombre en “TR Trabajo en Portón”, a fin de verificar si realizó los trámites migratorios de ingreso. En caso de que el conductor no haya realizado los trámites migratorios, no se podrá tramitar la autorización de ingreso a la DUCA-T.
+(Así adicionado el punto anterior mediante resolución N° RES-DGA-057-2020 del 17 de febrero del 2020)
 2. Destino final Aduana Interna
 A. Actuaciones del Conductor
 1º) El conductor en la Ventanilla Única de Tránsito se identifica ante el funcionario de Migración y entrega el pasaporte o documento de identificación y la Tarjeta de Ingreso y Egreso (TIE), así como el carnet de transportista autorizado; concluido el proceso ante Migración, pasa a la ventanilla del MAG para realizar el control según las competencias y funciones definidas por la normativa aplicable para las Direcciones de SFE o SENASA.
@@ -1530,6 +1547,8 @@ D. Actuaciones del Funcionario Aduanero en la Ventanilla Única de Tránsito de 
 11º) Archiva una impresión del Comprobante de Viaje, cuando también contenga la información del Certificado de Importación Temporal, junto con la fotocopia del comprobante de pago del seguro obligatorio.
 12º) Para las mercancías cuarentenarias o con NT del MAG, o que la UT haya sido abierta por alguna autoridad competente, una vez registrado por el funcionario del MAG la actuación en la DUT ; actualiza en la “Aplicación Trabajo en Portón” del sistema TICA, el número del nuevo precinto aduanero colocado.
 13º) Realizado el registro, autoriza la continuación del tránsito internacional terrestre hasta su destino final en el territorio nacional, previa impresión de la viñeta correspondiente y firma de la DUT.
+14 Para todos los casos, antes de autorizar la DUCA-T, en el módulo “Control de Viaje” en la opción “Autorizaciones SIECA” verifica si el conductor registrado en la DUCA-T ya realizó los trámites migratorios para el ingreso al país. Si se trata de un nuevo chofer, ingresa el número de pasaporte y nombre en “TR Trabajo en Portón”, a fin de verificar si realizó los trámites migratorios de ingreso. En caso de que el conductor no haya realizado los trámites migratorios, no se podrá tramitar la autorización de ingreso a la DUCA-T.
+(Así adicionado el punto anterior mediante resolución N° RES-DGA-057-2020 del 17 de febrero del 2020)
 E. Actuaciones de la Aduana Destino
 1º) El sistema informático TICA recibe de parte de la ubicación destino la confirmación de llegada del viaje y valida que la ubicación destino esté autorizada a recibir el tránsito aduanero internacional terrestre.
 2º) Con la confirmación de llegada en la “Aplicación Trabajo en Portón”, de manera automática se comunica al sistema TIM, la finalización del tránsito y el cierre de la DUT en destino final.
@@ -1572,6 +1591,8 @@ D. Actuaciones del Funcionario Aduanero en la Ventanilla Única de Tránsito
 8º) Imprime en hoja blanca dispuesta en la Ventanilla Única de Tránsito, el Comprobante de Viaje con la información del Certificado de Importación Temporal, cuando corresponda y lo entrega al conductor para el control en carretera, previo estampado de su firma, junto con el original del comprobante de pago del seguro obligatorio.
 9º) Archiva una impresión del comprobante de viaje cuando incluya información del Certificado de Importación Temporal, junto con la fotocopia del comprobante de pago del seguro obligatorio.
 10º) Para las mercancías cuarentenarias o no cuarentenarias que fueron objeto de inspección por parte de MAG, verifica que la DUT impresa que le presenta el conductor, tenga adherida la viñeta de MAG y procede a realizar las actuaciones indicadas anteriormente.
+11 Para todos los casos, antes de autorizar la DUCA-T, en el módulo “Control de Viaje” en la opción “Autorizaciones SIECA” verifica si el conductor registrado en la DUCA-T ya realizó los trámites migratorios para el ingreso al país. Si se trata de un nuevo chofer, ingresa el número de pasaporte y nombre en “TR Trabajo en Portón”, a fin de verificar si realizó los trámites migratorios de ingreso. En caso de que el conductor no haya realizado los trámites migratorios, no se podrá tramitar la autorización de ingreso a la DUCA-T.
+(Así adicionado el punto anterior mediante resolución N° RES-DGA-057-2020 del 17 de febrero del 2020)
 2. Aduana de Salida en Tránsito de Paso
 A. Actuaciones del Conductor
 1º) El conductor en la Ventanilla Única de Tránsito de la aduana de salida terrestre, se identifica ante el Oficial de Migración y entrega el pasaporte o documento de identificación y la Tarjeta de Ingreso y Egreso (TIE), así como el carnet de transportista autorizado; concluido el proceso ante Migración pasa a la ventanilla de la aduana.
@@ -1594,6 +1615,8 @@ C. Actuaciones del Funcionario de Aduanas Ventanilla Única de Tránsito
 5º) Realizado dichos registros, autoriza la continuación del tránsito internacional terrestre hacia el siguiente país.
 6º) La aplicación informática recibirá de parte del sistema TIM la cancelación del viaje una vez que el país siguiente confirme la recepción del medio de transporte al autorizar la DUT.
 7º) En el caso de salida por vía marítima o aérea, el sistema informático TICA recibe de parte de la ubicación destino la confirmación de llegada del viaje y valida que la ubicación destino esté autorizada a recibir el tránsito. Con la confirmación de llegada en la aplicación “Trabajo en Portón”, de manera automática se comunica al sistema TIM, la finalización del tránsito y el cierre de la DUT en destino final.
+8) Para todos los casos, antes de autorizar la continuación del tránsito internacional terrestre, en el módulo “Control de Viaje” en la opción “Autorizaciones SIECA” verifica si el conductor registrado en la DUCA-T ya realizó los trámites migratorios para la salida del país. Si se trata de un nuevo chofer, ingresa el número de pasaporte y nombre en “TR Trabajo en Portón”, a fin de verificar si realizó los trámites migratorios de salida. En caso de que el conductor no haya realizado los trámites migratorios, no se podrá tramitar la continuidad del tránsito hacia el país siguiente.
+(Así adicionado el punto anterior mediante resolución N° RES-DGA-057-2020 del 17 de febrero del 2020)
 III. De la Salida de Mercancías en Exportación o Reexportación
 Este procedimiento aplica para las mercancías que inician el tránsito por vía terrestre desde cualquier aduana del país y se amparan en un DUA de los siguientes regímenes aduaneros: exportación definitiva, exportación de zonas francas, exportación de perfeccionamiento activo, exportación temporal y reexportación.
 1. Aduana de Partida
@@ -1628,6 +1651,9 @@ C. Actuaciones del Funcionario Aduanero en la Ventanilla Única de Tránsito de 
 5º) En el caso de la presentación del FAUCA, verifica su información contra el DUA de exportación, si todo está correcto lo autoriza con su firma y sello.
 6º) Realizado dichos registros, autoriza el inicio del tránsito internacional terrestre de la DUT en la aplicación “Autorizaciones SIECA” del TICA, con la autorización se imprime la viñeta correspondiente de salida, misma que debe consignar número de precinto aduanero, número de identificación del funcionario y su firma.
 7º) Con la autorización de la DUT por parte del funcionario aduanero, el sistema TICA envía de manera automática al sistema TIM el inicio del Tránsito Internacional Terrestre comunicándose esta información a los países por donde viajará el medio de transporte.
+8) Para todos los casos, antes de autorizar el inicio del tránsito internacional terrestre, en el módulo “Control de Viaje” en la opción “Autorizaciones SIECA” verifica si el conductor registrado en la DUCA-T ya realizó los trámites migratorios para la salida del país. Si se trata de un nuevo chofer, ingresa el número de pasaporte y nombre en “TR Trabajo en Portón”, a fin de verificar si realizó los trámites migratorios de salida.
+En caso de que el conductor no haya realizado los trámites migratorios, no se podrá tramitar el inicio del tránsito.
+(Así adicionado el punto anterior mediante resolución N° Res-DGA-057-2020 del 17 de febrero del 2020)
 Mercancías Cuarentenarias
 1. Aduana de Partida
 A. Actuaciones del Declarante del DUA
@@ -1673,6 +1699,9 @@ D. Actuaciones del Funcionario Aduanero en la Ventanilla Única de Tránsito de 
 5º) Para medios de transporte con matrícula centroamericana o Panameña, con el número de Certificado de Importación Temporal ingresa al Módulo VEHITUR del TICA, verifica que se encuentre vigente y que se cumplan las formalidades establecidas para la cancelación de dicho certificado, según el manual de procedimientos; revisado lo anterior y si todo es correcto, registra la cancelación. Seguidamente imprime el comprobante de finalización y entregar una copia al conductor.
 6º) Cumplidos los pasos anteriores, autoriza el inicio del tránsito internacional terrestre de la DUT en la “Aplicación Autorizaciones SIECA” del TICA, imprime la viñeta correspondiente de salida, misma que debe consignar número de precinto aduanero, número de identificación del funcionario y su firma. En casilla de observaciones debe indicar el motivo del cambio de precinto aduanero declarado en la DUT.
 7º) Con la autorización de la DUT por parte del funcionario aduanero, el sistema TICA envía de manera automática al sistema TIM, el inicio del Tránsito Internacional Terrestre comunicándose esta información a los países por donde viajará el medio de transporte.
+8) Para todos los casos, antes de autorizar el inicio del tránsito internacional terrestre, en el módulo “Control de Viaje” en la opción “Autorizaciones SIECA” verifica si el conductor registrado en la DUCA-T ya realizó los trámites migratorios para la salida del país. Si se trata de un nuevo chofer, ingresa el número de pasaporte y nombre en “TR Trabajo en Portón”, a fin de verificar si realizó los trámites migratorios de salida.
+En caso de que el conductor no haya realizado los trámites migratorios, no se podrá tramitar el inicio del tránsito.
+(Así adicionado el punto anterior mediante resolución N° RES-DGA-057-2020 del 17 de febrero del 2020)
 IV. De la salida de mercancías amparada a un manifiesto marítimo o aéreo
 Este procedimiento aplica para las mercancías que inician el tránsito internacional terrestre desde un puerto marítimo o aéreo, excepto las ingresadas por Puerto Caldera, que deben tramitar de previo el DUA de reexportación.
 1. Aduana de Partida
@@ -1714,6 +1743,8 @@ C. Actuaciones del funcionario aduanero en la Ventanilla Única de Tránsito de 
 3º) Para vehículos registrados en Centroamérica o Panamá, con el número de Certificado de Importación Temporal ingresa al Módulo VEHITUR del TICA, previa verificación de que se encuentre vigente, cancela dicho certificado, adicionalmente imprime el comprobante que debe archivar.
 4º) Realizado dichos registros, autoriza la continuación del tránsito internacional terrestre hasta su destino final en el siguiente país destino.
 (*)(Así adicionado el Capítulo III denominado "Procedimiento de Tránsito Internacional Terrestre", anterior mediante resolución RES-DGA-320 del 15 de noviembre de 2011)
+5) Para todos los casos, antes de autorizar la continuación del tránsito internacional terrestre, en el módulo “Control de Viaje” en la opción “Autorizaciones SIECA” verifica si el conductor registrado en la DUCA-T ya realizó los trámites migratorios para la salida del país. Si se trata de un nuevo chofer, ingresa el número de pasaporte y nombre en “TR Trabajo en Portón”, a fin de verificar si realizó los trámites migratorios de salida. En caso de que el conductor no haya realizado los trámites migratorios, no se podrá tramitar la continuación del tránsito.
+(Así adicionado el punto anterior mediante resolución N° RES-DGA-057-2020 del 17 de febrero del 2020)
 PROCEDIMIENTO DE DEPÓSITO
 Capitulo I - Base Legal
 1) Ley No. 8360 de fecha 24 de junio de 2003, publicada en La Gaceta No. 130 del 8 de julio de 2003, “Segundo Protocolo de Modificación al Código Aduanero Uniforme Centroamericano”.
