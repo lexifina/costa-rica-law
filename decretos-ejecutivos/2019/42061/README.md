@@ -14,3 +14,4 @@ Reglamento para el cobro de los trámites de notificación de material primas al
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-12-18 | la propia norma |
+| 2 | 2020-02-17 | Resolución 28 (2020-02-17) |

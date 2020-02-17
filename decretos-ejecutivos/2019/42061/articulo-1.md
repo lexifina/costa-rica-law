@@ -1,6 +1,7 @@
 Nº 42061-S
 EL PRESIDENTE DE LA REPÚBLICA
 Y EL MINISTRO DE SALUD
+(Nota Sinalevi: Mediante resolución DM-CB-28-2020 del 17 de febrero de 2020, se procede a declarar el pago de la tarifa por los trámites de notificación de material primas alimentarias, productos químicos no peligrosos y productos químicos no terminados establecidos en el Decreto Ejecutivo N° 42061-S “Reglamento para el cobro de los trámites de notificación de material primas alimentarias, productos químicos no peligrosos y productos químicos no terminados”, las cuales serán obligatorias a partir del 17 de febrero del 2020.)
 En ejercicio de las facultades que les confieren los artículos 140 incisos 3) y 18), 146 de la Constitución Política, 28 inciso b) de la Ley N° 6227 del 02 de mayo de 1978 “Ley General de la Administración Pública”, 56 bis de la Ley Nº 5412 de 8 de noviembre de 1973 “Ley Orgánica del Ministerio de Salud”, Ley Nº 8262 del 2 de mayo de 2002 “Ley de Fortalecimiento de las Pequeñas y Medianas Empresas”, y Decreto Ejecutivo Nº 39295-MEIC del 22 de junio del 2015 “Reglamento a la Ley de Fortalecimiento de las Pequeñas y Medianas Empresas, Ley N° 8262”.
 Considerando:
 1º—Que el Artículo 50 de la Constitución Política dispone que el Estado procurará el mayor bienestar a todos los habitantes del país, organizando y estimulando la producción y el más adecuado reparto de la riqueza.
