@@ -1,0 +1,1 @@
+TRANSITORIO IV- Los funcionarios del Instituto de Desarrollo Rural (lnder), que se encuentran laborando para el Fideicomiso 955, mantendrán sus condiciones laborales actuales, una vez aprobada la presente ley.

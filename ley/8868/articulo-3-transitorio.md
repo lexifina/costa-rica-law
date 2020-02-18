@@ -1,0 +1,1 @@
+TRANSITORIO III- A partir de la entrada en vigencia de esta ley, las instituciones públicas iniciarán la coordinación interinstitucional para orientar los programas ambientales y empresariales establecidos en el artículo 5 de la presente ley.
