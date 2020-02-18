@@ -14,3 +14,4 @@ Reglamento de Junta Directiva del INCOP
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-08-22 | la propia norma |
+| 2 | 2020-02-18 | Reglamento 4208 (2020-02-18) |
