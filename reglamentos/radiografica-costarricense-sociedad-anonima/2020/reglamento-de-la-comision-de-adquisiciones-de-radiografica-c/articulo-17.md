@@ -1,0 +1,1 @@
+Artículo 17.—Cualquiera de los miembros de la Comisión podrá interponer recurso de revisión contra los acuerdos dictados que no estén firmes, en cuyo caso será interpuesto y resuelto al conocerse el borrador de la minuta en la sesión ordinaria siguiente, salvo que, por tratarse de un asunto que el Presidente juzgue urgente, se decida conocer en sesión extraordinaria.
