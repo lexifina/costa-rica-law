@@ -1,0 +1,1 @@
+Artículo 56. Ausencias, llegadas tardías y omisiones de marca no reportadas o justificadas en tiempo. Las ausencias, llegadas tardías o las omisiones de marca no reportadas ni justificadas en el plazo de 5 días hábiles siguientes a la supuesta falta, no aprobadas por escrito por la jefatura inmediata, se tendrán como injustificadas para los efectos correspondientes.

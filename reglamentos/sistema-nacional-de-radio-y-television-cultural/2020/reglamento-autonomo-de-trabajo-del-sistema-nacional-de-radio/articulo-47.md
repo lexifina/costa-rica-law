@@ -1,0 +1,1 @@
+Artículo 47. Selección interna. Para la consideración de personas candidatas y para el proceso de selección, cuando sea interno, el SINART, S.A. tomará en cuenta la eficiencia y productividad en el desempeño del puesto que ocupa el trabajador, conforme con las normas que regulan las evaluaciones del desempeño.

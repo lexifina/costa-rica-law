@@ -1,0 +1,1 @@
+Artículo 62. Tipos de faltas. Las faltas en que incurran las personas trabajadoras del SINART, S.A., podrán ser leves o graves, atendiendo a los criterios determinados en este Reglamento y demás normativa aplicable.

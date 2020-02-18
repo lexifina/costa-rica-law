@@ -1,0 +1,1 @@
+Artículo 91. Derogatorias. Este reglamento deroga todos los acuerdos del Consejo Ejecutivo, actos de la Dirección General y de las demás dependencias y jefaturas del SINART, S.A. que se opongan a lo dispuesto en este Reglamento.

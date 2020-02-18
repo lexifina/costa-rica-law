@@ -1,0 +1,4 @@
+CAPÍTULO III: Jornadas de trabajo, horarios, descansos, feriados y asuetos
+Artículo 7. Jornada ordinaria de trabajo. Se entiende por jornada ordinaria de trabajo el tiempo máximo que el trabajador permanece a las órdenes del SINART, S.A. bajo las condiciones de subordinación y dependencia.
+El máximo de la jornada ordinaria diurna es de cuarenta y cuatro horas semanales, con dos días libres, entendiendo que uno de ellos es un día no laborable debido a la jornada ordinaria acumulativa de la Empresa y el otro es un día de descanso, lo cual definirá el Departamento de Recursos Humanos en conjunto con la jefatura inmediata. En el caso de las personas trabajadoras contratados a tiempo parcial, la jornada diurna y semanal se definirá en proporción al número de horas contratadas por el SINART, S.A.
+Quedan a salvo los derechos adquiridos de las personas trabajadoras en la Empresa.

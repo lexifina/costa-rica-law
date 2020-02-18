@@ -1,0 +1,1 @@
+Artículo 59. Sanciones por incumplimiento del deber de asistencia y puntualidad. El incumplimiento del trabajador de su deber de asistencia y puntualidad genera responsabilidad disciplinaria, la que será establecida en este reglamento y en la normativa interna y externa aplicable.

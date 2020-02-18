@@ -1,0 +1,5 @@
+Artículo 63. Sanciones. Las faltas leves y graves serán sancionadas de la siguiente manera:
+1. Las faltas leves, se sancionarán desde una amonestación verbal hasta una amonestación por escrito con copia al expediente del trabajador.
+2. Las graves se sancionarán con una suspensión sin goce de salario que puede ir desde un día hasta ocho días hábiles o con el despido sin responsabilidad patronal.
+Dichas sanciones, a excepción de las amonestaciones verbales, los apercibimientos escritos que no se adjuntan al expediente del trabajador y en caso de faltas de mera constatación, no podrán imponerse sin antes haberle brindado a la persona trabajadora, el adecuado derecho de defensa y debido proceso, el cual comprenderá, según las particularidades del caso específico, el derecho de presentar un descargo e incluso ofrecer testigos.
+En todo caso, la instancia interna que resulte competente para la imposición de la respectiva sanción, según el caso específico, podrá contar con la asesoría legal de la Empresa o de consultoría externa, cuando lo estime necesario.

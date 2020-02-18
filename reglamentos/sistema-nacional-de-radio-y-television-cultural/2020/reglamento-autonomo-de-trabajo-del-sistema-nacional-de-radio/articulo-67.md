@@ -1,0 +1,1 @@
+Artículo 67. Prescripción de las faltas. La acción para investigar las faltas y la imposición de eventuales sanciones, prescribirán en los plazos establecidos para tales efectos en el Código de Trabajo. La jefatura respectiva que permita, por negligencia grave o dolo, la prescripción de una falta disciplinaria, podrá incurrir en falta grave para efectos disciplinarios.

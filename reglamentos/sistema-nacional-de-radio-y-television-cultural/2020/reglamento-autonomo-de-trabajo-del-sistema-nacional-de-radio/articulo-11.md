@@ -1,0 +1,3 @@
+Artículo 11. Jornadas especiales. El SINART, S.A. de acuerdo con las necesidades empresariales podrá establecer jornadas especiales distintas a las definidas anteriormente, sin que se pueda sobrepasar el número máximo de horas definidas para la jornada de trabajo semanal. Para ello, deberá de llegar a un acuerdo con la persona trabajadora.
+El servicio podrá prestarse, en diferentes tipos de jornada, dentro de una misma semana laboral, haciendo la jefatura el cálculo correspondiente con base en la jornada acumulativa y respetando las doce horas de descanso que establece el Código de Trabajo.
+El establecimiento de jornadas especiales lo será sin perjuicio de los eventuales derechos que pudiere tener el trabajador en cuanto a la jornada que estuviere desempeñando.

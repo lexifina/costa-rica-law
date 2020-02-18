@@ -1,0 +1,2 @@
+Artículo 14. Horario de trabajo. Las personas trabajadoras laborarán su jornada de conformidad con los horarios de trabajo establecidos en el centro de trabajo u oficina en la que se encuentre asignado.
+Si el trabajador cambia de dependencia en que labora y eso implica un cambio de horario, la jefatura inmediata del puesto que ocupe podrá asignarle el horario manteniendo el máximo de la jornada semanal prevista en su contrato de trabajo, sin perjuicio de los derechos adquiridos en materia de la jornada.

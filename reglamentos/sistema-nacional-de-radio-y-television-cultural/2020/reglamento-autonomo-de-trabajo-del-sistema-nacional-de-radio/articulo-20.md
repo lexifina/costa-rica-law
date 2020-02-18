@@ -1,0 +1,1 @@
+Artículo 20. Del trabajo en días feriados, asuetos o día de descanso. El trabajo en días feriados, asuetos o día de descanso, se regirá por lo que dispone el Código de Trabajo y la Convención Colectiva vigente en cuanto a su disfrute y forma de pago.

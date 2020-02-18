@@ -1,0 +1,1 @@
+Artículo 2. Ámbito de Aplicación. Las normas incluidas en este Reglamento son de aplicación obligatoria para las personas trabajadoras del SINART, S.A., a efecto de que las labores se lleven a cabo conforme a la normativa vigente aplicable, la armonía requerida y la mayor eficiencia y productividad posible, así como el absoluto respeto a dichas personas trabajadoras.

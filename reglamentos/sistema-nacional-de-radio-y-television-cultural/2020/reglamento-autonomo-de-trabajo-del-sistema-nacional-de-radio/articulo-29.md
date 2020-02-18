@@ -1,0 +1,1 @@
+Artículo 29. Descanso semanal. Las personas trabajadoras del SINART, S.A. tienen derecho a un día libre y un día de descanso semanal que podrá ser cualquier día de la semana, según sea definido por su jefatura, de acuerdo con las necesidades empresariales.

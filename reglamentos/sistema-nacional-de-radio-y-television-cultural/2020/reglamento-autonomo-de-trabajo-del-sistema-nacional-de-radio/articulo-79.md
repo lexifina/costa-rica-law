@@ -1,0 +1,2 @@
+Artículo 79. Normativa aplicable para la prevención y sanción de las conductas sobre acoso u hostigamiento sexual. El SINART, S.A. promoverá en su gestión normas para prevenir, denunciar, investigar y sancionar las conductas de acoso u hostigamiento sexual en todos los ámbitos de la relación laboral o de servicio.
+Para esos efectos se aplicará la Ley contra el Hostigamiento Sexual en el Empleo y la Docencia, el Reglamento contra el Hostigamiento Sexual del SINART y la normativa interna vigente y aplicable que al respecto se emita.

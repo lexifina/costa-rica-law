@@ -1,0 +1,1 @@
+Artículo 38. Parámetros del Sistema de Evaluación del Desempeño. El SINART, S.A., con base en criterios técnicos y objetivos y de acuerdo con los intereses empresariales, establecerá, revisará y modificará las metodologías y procesos que estime pertinentes para la definición y establecimiento de los parámetros o factores referentes a la medición de la eficiencia y productividad.

@@ -1,0 +1,1 @@
+Artículo 71. Licencia por embarazo y maternidad. El SINART, S.A. otorgará a la trabajadora embarazada la licencia por maternidad, cuyo goce y pago será conforme con las disposiciones establecidas en el Código de Trabajo y la normativa vigente y aplicable.

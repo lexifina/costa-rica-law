@@ -1,0 +1,2 @@
+Artículo 23. Autorización para laborar jornada extraordinaria. Por ser excepcional, la aprobación de la jornada extraordinaria de trabajo deberá estar plenamente justificada y autorizada, de previo a realizarse y en ningún caso podrá ejecutarse o autorizarse de manera permanente.
+Ningún trabajador podrá laborar jornada extraordinaria si no cuenta con la respectiva autorización de la jefatura inmediata, otorgada conforme con la normativa que para esos efectos emita el SINART, S.A., que será de acatamiento obligatorio.

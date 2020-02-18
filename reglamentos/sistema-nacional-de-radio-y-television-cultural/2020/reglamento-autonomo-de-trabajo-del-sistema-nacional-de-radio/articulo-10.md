@@ -1,0 +1,2 @@
+Artículo 10. Jornada mixta. La jornada mixta se da cuando los servicios se prestan parte durante la jornada diurna y parte en la jornada nocturna, siempre y cuando la parte de la jornada nocturna no sea de tres horas y media o más. Si corresponde a ese número de horas pasará a considerarse jornada nocturna.
+Sin embargo, cuando se trate de labores que por su propia naturaleza no sean insalubres o peligrosas, podrá estipularse una jornada mixta de hasta 8 horas diarias si se presentan situaciones que ameriten esa extensión.

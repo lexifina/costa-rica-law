@@ -1,0 +1,1 @@
+Artículo 8. Jornada diurna. La jornada diurna es la que se presta entre las cinco horas (5:00 a. m.) y las diecinueve horas (7:00 p. m.). El máximo de la jornada diurna, así como su extensión, podrá ser de hasta 10 horas diarias, cuando se trate de labores que por su propia naturaleza no sean insalubres o peligrosas.

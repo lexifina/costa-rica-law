@@ -1,0 +1,3 @@
+CAPÍTULO VIII. Selección de personal, nombramientos,
+ascensos, traslados, permutas y creación de plazas nuevas
+Artículo 45. Sistema de selección y ascensos. En el SINART, S.A. se mantendrá vigente un sistema de selección y de ascensos, que estará sustentado en criterios y procedimientos técnicos y objetivos de selección, clasificación y valoración de puestos acordes con los perfiles de cada puesto, de manera que no se incurra en ninguna práctica o modalidad de discriminación por razones de edad, etnia, género, religión, orientación sexual, políticas, económicas, sociales, sindicales, discapacidad o de cualquier otra naturaleza.

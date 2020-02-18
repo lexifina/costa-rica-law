@@ -1,0 +1,1 @@
+Artículo 66. Otras faltas. Cualquier otra infracción o negligencia en el cumplimiento de los deberes propios del cargo, no prevista en los artículos anteriores, será conocida por los órganos competentes, a efecto de examinar si constituyen falta grave o leve, con el objeto de aplicar el régimen disciplinario.

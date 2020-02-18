@@ -1,0 +1,1 @@
+Artículo 50. Aprobación de nombramientos. Los nombramientos de personas trabajadoras del SINART, S.A. serán aprobados por la Dirección General, de conformidad con lo dispuesto en el artículo 26, inciso d) de la Ley Orgánica del SINART, S.A.; salvo aquellos puestos que, por su naturaleza o por ser puestos de confianza, correspondan al Presidente Ejecutivo y/o al Consejo Ejecutivo.

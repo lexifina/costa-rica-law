@@ -1,0 +1,2 @@
+Artículo 5. Período de prueba. En los contratos de trabajo por tiempo indeterminado existirá un período de prueba de tres meses. Durante dicho periodo y sin aviso previo, cualquiera de las partes puede dar por terminado el contrato sin responsabilidad alguna para ellas.
+Para efectos de evaluar al trabajador durante el periodo de prueba, la jefatura inmediata será la responsable de aplicar los instrumentos técnicos establecidos para tal efecto conforme a las disposiciones que dicte el SINART, S.A.

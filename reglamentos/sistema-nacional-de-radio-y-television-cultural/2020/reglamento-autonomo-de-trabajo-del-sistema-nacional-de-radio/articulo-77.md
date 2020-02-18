@@ -1,0 +1,1 @@
+Artículo 77. Normativa aplicable para la prevención y sanción de las conductas sobre acoso laboral. El SINART, S.A. promoverá en su gestión normas para prevenir y sancionar las conductas de acoso laboral en todos los ámbitos de la relación laboral o de servicio.
