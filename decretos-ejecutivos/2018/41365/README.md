@@ -14,3 +14,4 @@ Reglamento para la rendición de cauciones de los funcionarios del Ministerio de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-11-23 | la propia norma |
+| 2 | 2020-02-19 | Decreto Ejecutivo 42300 (2020-02-19) |
