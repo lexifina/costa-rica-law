@@ -1,0 +1,1 @@
+Artículo 5º—Intérpretes escénicos. Para el nombramiento de intérpretes escénicos se seguirá el procedimiento del concurso por oposición, para lo cual se realizarán las pruebas y audiciones correspondientes, sin perjuicio de lo establecido en la normativa correspondiente de acuerdo con la modalidad de contratación empleada.

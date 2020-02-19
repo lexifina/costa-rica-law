@@ -1,0 +1,3 @@
+Artículo 13.—Sede. El lugar de trabajo será la sede de la Compañía Nacional de Danza y los teatros, salas de ensayo u otros lugares que autorice la Dirección General y Artística, con giras dentro y fuera del país como parte ordinaria de la labor, de conformidad con el plan anual de trabajo aprobado por la Junta Directiva del Teatro Melico Salazar.
+El control de asistencia y puntualidad será establecido previamente para las giras, al interior del país o al extranjero, por la Dirección General y Artística.
+El control de asistencia y puntualidad así como su régimen disciplinario se realizará a través de los procedimientos vigentes conforme al Reglamento Autónomo de Servicios del Ministerio de Cultura.

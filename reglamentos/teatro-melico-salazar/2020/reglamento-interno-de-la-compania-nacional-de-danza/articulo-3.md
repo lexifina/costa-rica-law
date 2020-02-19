@@ -1,0 +1,1 @@
+Artículo 3º—Programación anual. Corresponderá a la Dirección Artística de la Compañía Nacional de Danza, proponer la programación anual de las actividades a desarrollar, elevando dicha programación a los órganos jerárquicos del Teatro Popular Melico Salazar para su aprobación.

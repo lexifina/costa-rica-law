@@ -1,0 +1,3 @@
+Artículo 9º—Evaluación del personal. El personal de la Compañía Nacional de Danza, administrativo, artístico y técnico, será evaluado de conformidad con la normativa y los instrumentos aplicables en el Ministerio de Cultura, por cumplimiento de objetivos.
+Las evaluaciones considerarán la especificidad de las funciones artísticas.
+La ejecución de las tareas del personal artístico, administrativo o técnico contratado administrativamente, será evaluada de conformidad con los parámetros establecidos en el respectivo contrato, y podrá dar lugar a que no se considere de nuevo, no renueve o prorrogue el contrato, o a la resolución por incumplimiento.

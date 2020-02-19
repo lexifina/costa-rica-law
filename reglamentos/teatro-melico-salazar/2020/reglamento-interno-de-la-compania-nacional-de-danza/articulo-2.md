@@ -1,0 +1,1 @@
+Artículo 2º—Organización. La Compañía Nacional de Danza estará constituida por un Director Artístico, los maestros de danza, intérpretes escénicos, asistentes técnicos, administrador, productor y el personal administrativo y técnico, necesarios para el buen funcionamiento del programa.
