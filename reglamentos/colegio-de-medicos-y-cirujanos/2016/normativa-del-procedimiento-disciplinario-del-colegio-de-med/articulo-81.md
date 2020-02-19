@@ -1,2 +1,0 @@
-Artículo 81.—
-La comparecencia deberá tener lugar normalmente en la sede del Tribunal de Ética Médica. En caso de requerirse una inspección ocular o pericial, la audiencia se podrá desarrollar en el lugar donde se desarrolle la pericia. Podrá también llevarse a cabo en otras sedes para obtener economía de gastos o cualesquiera otras ventajas administrativas evidentes, si ello es posible sin pérdida de tiempo ni perjuicio grave para las partes.

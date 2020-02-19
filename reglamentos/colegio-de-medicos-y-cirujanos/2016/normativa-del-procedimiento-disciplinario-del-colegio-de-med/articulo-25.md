@@ -1,2 +1,0 @@
-Artículo 25.—Nulidad de la notificación.
-1. La notificación hecha por un medio no establecido en el artículo 19 de este reglamento, u omisa en cuanto a una parte cualquiera de la disposición del acto, será absolutamente nula. Sin embargo, la misma se tendrá por hecha en el momento en que gestione la parte o el interesado, dándose por enterado, expresa o implícitamente, ante el Tribunal de Ética Médica.

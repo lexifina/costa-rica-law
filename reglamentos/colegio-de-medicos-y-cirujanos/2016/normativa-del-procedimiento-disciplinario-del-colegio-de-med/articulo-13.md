@@ -1,2 +1,0 @@
-Artículo 13.—Aplicación supletoria de normas
-En ausencia de disposición expresa de su texto, se aplicarán supletoriamente, en lo que fueren compatibles, la Ley General de la Administración Pública, el Código Procesal Contencioso Administrativo, las demás normas, escritas y no escritas, con rango legal o reglamentario, del ordenamiento administrativo y, en último término, el Código Procesal Civil, la Ley Orgánica del Poder Judicial, el Código Procesal Penal y el resto del derecho común.

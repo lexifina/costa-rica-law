@@ -1,2 +1,0 @@
-Artículo 7°—De la verificación de los hechos
-En el procedimiento disciplinario se deberán verificar los hechos que sirven de motivo a la decisión final en la forma más fiel y completa posible, para lo cual el Órgano que instruye el procedimiento deberá adoptar todas las medidas probatorias pertinentes o necesarias, aunque no hayan sido propuestas por las partes y aún en contra de su voluntad, con las salvedades que las leyes y la Constitución Política de la República establezcan.

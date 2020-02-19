@@ -1,4 +1,0 @@
-Artículo 32.—Prorroga de Plazo
-Los plazos establecidos en este reglamento son improrrogables, sin embargo, los que otorgue el Tribunal de Ética Médica o la Junta de Gobierno a las partes para el cumplimiento de un acto, podrán ser prorrogados por dichos Órgano, hasta en una mitad más, lo anterior si la parte interesada demuestra los motivos que lo aconsejen como conveniente o necesario, si no ha mediado culpa y siempre que no hay lesión de los intereses o derechos de la contraparte o de tercero.
-Los plazos fijados para el Tribunal de Ética Médica podrán ser prorrogados por la Junta de Gobierno, únicamente si existen causas de caso fortuito o fuerzas mayores, debidamente comprobadas. En caso que se decrete la prórroga, ésta deberá serle comunicada a las partes. La solicitud de prórroga deberá hacerse antes del vencimiento del plazo, con expresión de los motivos y de pruebas.
-En iguales condiciones cabrá hacer nuevos señalamientos o prórrogas.

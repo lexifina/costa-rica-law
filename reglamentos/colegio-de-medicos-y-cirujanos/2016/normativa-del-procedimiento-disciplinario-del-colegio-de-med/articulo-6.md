@@ -1,3 +1,0 @@
-Artículo 6°— Del derecho de defensa.
-El derecho de defensa deberá ser ejercido por los denunciados en forma razonable, a juicio del Tribunal de Ética Médica Colegio de Médicos y Cirujanos de Costa Rica. El Tribunal podrá excepcionalmente limitar su intervención a lo que considere prudente y necesario. Dicho Tribunal podrá prevenirle que en el plazo de tres días hábiles nombre un abogado, sin perjuicio que pueda hacerlo en cualquier estado del proceso. En todo caso se respetará el derecho de audiencia y de defensa, consagrados en las leyes del país y en este Reglamento.
-El no nombramiento de un abogado por parte del denunciado no significará una violación a los principios del debido proceso.

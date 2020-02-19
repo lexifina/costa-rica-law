@@ -1,3 +1,0 @@
-Artículo 3°—Alcance
-1. El procedimiento desarrollado en el presente Reglamento se aplicará a todo proceso que conlleve la posibilidad de producir una sanción a todos los profesionales agremiados al Colegio de Médicos y Cirujanos de Costa Rica con ocasión de la violación a los principios y valores que rigen la actuación de los miembros de este colegio; mismos que se encuentran debidamente señalados en la diversas normativas que rigen el actuar profesional y en el Código de Moral Médica.
-2. El Tribunal de Ética Médica y la Fiscalía del Colegio de Médicos y Cirujanos de Costa Rica deberán adoptar sus resoluciones y recomendaciones dentro del procedimiento con estricto apego al Ordenamiento Jurídico y al presente reglamento.

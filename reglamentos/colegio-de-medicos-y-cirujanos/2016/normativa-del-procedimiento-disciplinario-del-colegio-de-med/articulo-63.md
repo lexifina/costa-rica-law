@@ -1,2 +1,0 @@
-Artículo 63.—
-El Departamento de Fiscalía o las otras partes podrán introducir antes del acto final nuevos hechos relacionados con los inicialmente conocidos o invocados, pero en el caso del procedimiento disciplinario tendrá que observarse el trámite de comparecencia oral y la intimación respectiva para probarlos. En tal caso se dará establecido en el artículo 71 inciso d) al investigado para se refiera a los nuevos hechos y ofrezca la prueba que considere pertinente.
