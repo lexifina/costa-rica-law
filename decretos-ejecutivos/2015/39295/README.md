@@ -18,3 +18,4 @@ Reglamento a la Ley de Fortalecimiento de las Pequeñas y Medianas Empresas, Ley
 | 3 | 2017-03-17 | Resolución 15 (2017-03-17) |
 | 4 | 2018-03-06 | Resolución 16 (2018-03-06) |
 | 5 | 2019-03-08 | Resolución 13 (2019-03-08) |
+| 6 | 2020-02-19 | Resolución 25 (2020-02-19) |
