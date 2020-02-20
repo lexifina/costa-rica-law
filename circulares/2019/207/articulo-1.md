@@ -3,4 +3,6 @@ ASUNTO: Sobre la presentación de escritos por medio de correo electrónico.
 A TODOS LOS DESPACHOS JUDICIALES DEL PAÍS
 SE LES HACE SABER QUE:
 El Consejo Superior del Poder Judicial en sesión N19 celebrada el 20 de noviembre del 2019, artículo IX, dispuso comunicar a todos los despachos judiciales del país, que considera totalmente viable que los usuarios del sistema judicial puedan presentar sus gestiones en los diferentes procesos judiciales por medio de correo electrónico, siempre que se garantice su autenticidad, generándose un mejor acceso a la justicia.
+(Nota de Sinalevi: Mediante circular N° 23 del 20 de febrero del 2020 y publicada en el Boletín Judicial N° 67 del 1° de abril del 2020, se aclaró la presente norma en el sentido de que: “lo dispuesto en la circular 207-2019 sobre la presentación de escritos por medio de correo electrónico, no es aplicable a aquellas oficinas judiciales que tramiten sus expedientes de forma electrónica. Lo anterior por cuanto, para tales efectos, ya existe un medio electrónico habilitado para que las personas interesadas puedan remitir sus escritos mediante Internet, denominado “Gestión en Línea” al cual se puede acceder en la dirección electrónica:
+https://pjenlinea.poder-judicial.go.cr/SistemaGestionEnLineaPJ/Publica/wfpConsultas.aspx.”)
 San José, 26 de noviembre del 2019.
