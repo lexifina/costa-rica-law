@@ -1,0 +1,1 @@
+Artículo 18. De la comunicación al ejecutor del contrato. La Proveeduría Institucional, comunicará a la Unidad, Proceso, Subproceso solicitante y al ejecutor del contrato, de la aprobación interna de los contratos, cuando corresponda, y el inicio del proceso de ejecución contractual.

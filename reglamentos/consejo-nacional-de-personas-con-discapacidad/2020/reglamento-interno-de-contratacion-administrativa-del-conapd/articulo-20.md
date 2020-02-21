@@ -1,0 +1,4 @@
+Capítulo VIII
+Sanciones a proveedores comerciales
+Artículo 20. Previa instauración de un procedimiento administrativo ordinario para una posible sanción a una persona contratista, la Administración valorará si procede aplicar la cláusula penal (atraso en la entrega) y/o multa (incumplimiento en la calidad del bien o servicios), conforme a lo establecido en el artículo 35 de la Ley de Contratación Administrativa y artículos 47, 48, 49 y 50 del Reglamento.
+En caso de que la Administración inicie un procedimiento administrativo sancionatorio contra un contratista, de manera preventiva podrá interponer medidas cautelares en resguardo de los intereses institucionales y del objeto contractual. Dichas medidas cautelares las tramitará la Unidad de Proveeduría Institucional con el asesoramiento de la Unidad de Asesoría Jurídica en aquellos casos que de acuerdo con su complejidad lo amerite.

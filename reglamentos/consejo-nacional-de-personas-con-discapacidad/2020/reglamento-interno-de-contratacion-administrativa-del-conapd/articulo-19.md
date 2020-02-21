@@ -1,0 +1,3 @@
+Capítulo VII
+De la Fiscalización de la relación contractual
+Artículo 19. Fiscalización. De conformidad con el artículo 13 de la Ley número 7494 y sus reformas, el Conapdis debe fiscalizar el proceso de ejecución contractual y tiene la potestad de aplicar los términos contractuales, para que el contratista corrija cualquier desajuste respecto del cumplimiento exacto de · 1as obligaciones pactadas. Dependiendo de la complejidad del objeto contractual, el fiscalizador del contrato podrá ser unipersonal o pluripersonal e interdisciplinario, en este último caso deberá nombrarse un coordinador o responsable. Todo lo anterior en consonancia con la Directriz Institucional de Compras para el periodo correspondiente y sus anexos.
