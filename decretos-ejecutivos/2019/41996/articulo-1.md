@@ -1,4 +1,6 @@
+(Derogado)
 Nº 41996-MP-MIDEPLAN
+(Este decreto ejecutivo fue derogado por el artículo 1° del decreto ejecutivo N° 42216 del 21 de febrero del 2020)
 EL PRESIDENTE DE LA REPÚBLICA,
 EL MINISTRO DE LA PRESIDENCIA Y EL MINISTRO AI. DE PLANIFICACIÓN
 NACIONAL Y POLÍTICA ECONÓMICA
