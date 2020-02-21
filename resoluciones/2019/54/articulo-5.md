@@ -1,1 +1,0 @@
-Artículo 5°—Se deja sin vigencia la resolución DGH-016- 2019 y DGA-DGT-008-2019 de la Dirección General de Hacienda y de la Dirección General de Aduanas del Ministerio de Hacienda, San José, de las diez horas del día 11 de marzo de dos mil diecinueve, publicada en La Gaceta N° 61 del miércoles 27 de marzo del 2019.
