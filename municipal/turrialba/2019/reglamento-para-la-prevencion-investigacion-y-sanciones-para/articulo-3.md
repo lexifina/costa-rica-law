@@ -1,0 +1,1 @@
+Artículo No. 3. Ámbito de aplicación: El presente Reglamento regirá para todas las personas trabajadoras de la Municipalidad de Turrialba, todos los usuarios de los servicios y personal de contratación externa y cualquier otra persona vinculada a las laborales que realiza la Municipalidad, sobre las cuales la Alcaldía o el Concejo Municipal ejerzan la potestad disciplinaria.

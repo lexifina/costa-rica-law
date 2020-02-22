@@ -1,0 +1,6 @@
+Artículo 5. Definiciones:
+a) Hostigamiento Sexual: se entiende por acoso u hostigamiento sexual, toda conducta sexual escrita, verbal o no verbal o física, indeseable por quien la recibe, reiterada o aislada, que provoca una interferencia sustancial con el desempeño del trabajo de una persona o crea un ambiente de trabajo intimidante, hostil u ofensivo.
+b) Manifestaciones de acoso sexual: se consideran manifestaciones de acoso sexual los requerimientos de favores sexuales, el uso de palabras de naturaleza sexual, escritas u orales, que resultaren hostiles, humillantes u ofensivas para quien las reciba, los acontecimientos corporales u otras conductas físicas de naturaleza sexual, indeseadas y ofensivas para quien las reciba u otras conductas de carácter sexual según las circunstancias.
+c) Persona denunciante: es aquella que manifiesta sufrir hostigamiento. Para efectos de este reglamento incluye a: toda persona servidora de la Municipalidad de Turrialba, también usuarias de los servicios y de contratación externa al servicio de ésta Municipalidad, así como a cualquier otra vinculada a las labores municipales.
+d) Persona Denunciada: persona a la que se atribuye una presunta conducta constitutiva de hostigamiento sexual.
+e) Órgano Instructor: encargado de dirigir el procedimiento administrativo disciplinario y emitir las recomendaciones finales.

@@ -1,0 +1,9 @@
+MUNICIPALIDAD DE TURRIALBA
+ALCALDÍA
+REGLAMENTO PARA LA PREVENCIÓN, INVESTIGACIÓN Y SANCIONES
+PARA EL ACOSO Y EL HOSTIGAMIENTO SEXUAL EN LA MUNICIPALIDAD
+DE TURRIALBA
+Cuerpo Normativo:
+Con sustento en los artículos 169 y 170, de la Constitución Política y fundamentado en las disposiciones contenidas en los artículos 1º al 4º y párrafo primero e inciso a), 21 inciso ch) y 47 del Código Municipal y de conformidad con Ley N.º 7476 del 03 de febrero de 1995, denominada Ley contra el Hostigamiento Sexual en el Empleo y la Docencia y su modificación y adición mediante Ley N.º 8805 del 2 de junio del 2010, y Ley No. 5811 del 10 de octubre de 1975 “Ley que Regula la Propaganda que Utilice la Imagen de la Mujer”, se emite la siguiente normativa para el Procedimiento Interno Administrativo en casos de Hostigamiento Sexual en la Municipalidad de Turrialba, en cuanto a su tipificación, sanciones y procedimientos el cual se regirá por las siguientes disposiciones:
+CAPÍTULO I DISPOSICIONES GENERALES
+Artículo No. 1. Principios regentes: La normativa que sanciona el acoso y el hostigamiento sexual contra la dignidad de la mujer y del hombre en las relaciones laborales en la MUNICIPALIDAD DE TURRIALBA, se basa en los principios constitucionales del respeto por la libertad y la vida humana, el derecho al trabajo y el principio de igualdad ante la ley, los cuales obligan al Estado a condenar la discriminación por razón del sexo, entiéndase cualquier comportamiento realizado con el propósito o efecto de atentar contra su dignidad y de crear un entorno intimidatorio, degradante u ofensivo. Así como establecer políticas para eliminar la discriminación, buscando promover el desarrollo de relaciones interpersonales basadas en el respeto y la no discriminación, que conlleven a la construcción de una sociedad justa e igualitaria que garantice el ejercicio de los Derechos Humanos en condiciones de equidad entre hombres y mujeres.

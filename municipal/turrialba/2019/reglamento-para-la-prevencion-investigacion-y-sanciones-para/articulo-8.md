@@ -1,0 +1,3 @@
+CAPÍTULO II
+PREVENCIÓN DEL ACOSO Y HOSTIGAMIENTO SEXUAL
+Artículo No. 8. Plazo para interponer la denuncia y prescripción. El plazo para interponer la denuncia será de hasta dos años, computado a partir del último hecho constitutivo del supuesto acoso u hostigamiento sexual o a partir del cese de la causa justificada que le impidió denunciar. El plazo de prescripción para la aplicación de sanciones disciplinarias, es el de un mes previsto en el artículo 414 del Código de Trabajo.

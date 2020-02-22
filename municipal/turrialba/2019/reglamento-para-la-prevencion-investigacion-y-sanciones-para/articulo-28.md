@@ -1,0 +1,1 @@
+Artículo No. 28. Vigencia y Derogatorias: El presente Reglamento rige a partir del día siguiente a su publicación en el Diario Oficial La Gaceta y deroga todas las disposiciones reglamentarias sobre esta materia que se hayan aprobado con anterioridad en la Municipalidad de Turrialba.
