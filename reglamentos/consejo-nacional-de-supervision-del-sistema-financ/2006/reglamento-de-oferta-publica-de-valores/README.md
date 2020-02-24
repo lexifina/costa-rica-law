@@ -24,3 +24,4 @@ Reglamento de Oferta Pública de Valores
 | 9 | 2014-09-08 | Reglamento 1124 (2014-09-08) |
 | 10 | 2015-02-23 | Reglamento 1150 (2015-02-23) |
 | 11 | 2016-06-17 | Reglamento 1259 (2016-06-17) |
+| 12 | 2020-02-24 | Reglamento 1560 (2020-02-24) |
