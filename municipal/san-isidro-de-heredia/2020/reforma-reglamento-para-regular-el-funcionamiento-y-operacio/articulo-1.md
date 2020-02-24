@@ -1,0 +1,5 @@
+MUNICIPALIDAD SAN ISIDRO DE HEREDIA
+CONCEJO MUNICIPAL
+La Municipalidad de San Isidro de Heredia informa que según Acuerdo Nº 65-2020, adoptado por el Concejo Municipal en Sesión Ordinaria 07-2020 del 03 de febrero de 2020 se llevó a cabo la aprobación de una reforma parcial al Reglamento para regular el funcionamiento y operación del Centro de cuido y desarrollo infantil-CECUDI del cantón de San Isidro de Heredia publicado en el Diario Oficial La Gaceta Nº 24 del 4 de febrero de 2019.
+Dicha reforma afecta específicamente el artículo 7 con base en lo siguiente: Único: Refórmese el artículo 7 Reglamento para regular el funcionamiento y operación del Centro de cuido y desarrollo infantil-CECUDI del cantón de San Isidro de Heredia, para que en adelante se lea de la siguiente forma: Artículo 7º-Horario del CECUDI: El horario de atención para la población beneficiada será de al menos 10 horas diarias, de las 06:30 am a 04:30 pm, durante los días hábiles de la semana. Se excluyen de servicio los días feriados de ley y aquellos que sean declarados asueto de acuerdo con la normativa correspondiente.
+San Isidro de Heredia 13 de febrero 2020.
