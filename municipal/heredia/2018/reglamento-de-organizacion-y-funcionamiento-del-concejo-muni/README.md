@@ -14,3 +14,4 @@ Reglamento de organización y funcionamiento del Concejo Municipal de la Municip
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-09-16 | la propia norma |
+| 2 | 2020-02-24 | Reglamento municipal 304 (2020-02-24) |
