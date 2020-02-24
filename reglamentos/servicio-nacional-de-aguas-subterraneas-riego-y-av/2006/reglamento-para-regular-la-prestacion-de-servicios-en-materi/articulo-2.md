@@ -1,1 +1,2 @@
-Artículo 2º—Dependencia administrativa a cargo de prestar los servicios. El ASUB será la dependencia administrativa de SENARA responsable de prestar los servicios a que se refiere este Reglamento.
+Artículo 2º—Dependencia administrativa a cargo de prestar los servicios. La Dirección de Investigación y Gestión Hídrica (DIGH) será la dependencia administrativa del SENARA responsable de prestar los servicios a que se refiere este Reglamento.
+Los criterios y dictámenes técnicos estarán firmados por el profesional responsable a cargo de la revisión del estudio técnico hidrogeológico e irán refrendados por el Jefe de la Unidad respectiva y el Director de la DIGH.

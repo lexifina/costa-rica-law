@@ -1,1 +1,1 @@
-Artículo 13.—Mecanismo para la actualización de costos. Los costos de la prestación de servicios, serán revisados anualmente para efectos de la respectiva actualización debiendo observarse en todo caso la justificación y aprobación requerida de la Contraloría General de la República.
+Artículo 13.—Destino de los recursos generados. Los recursos generados por la prestación de servicios serán destinados a cubrir los costos de tales servicios y las inversiones requeridas para el desarrollo de los mismos, según lo establezca el respectivo estudio tarifario aprobado.

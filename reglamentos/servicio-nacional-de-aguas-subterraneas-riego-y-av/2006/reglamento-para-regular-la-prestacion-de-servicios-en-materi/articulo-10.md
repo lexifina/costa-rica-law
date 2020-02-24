@@ -1,5 +1,4 @@
-Artículo 10.—Procedimiento en caso de Insuficiencia de Información Técnica Disponible
-a) Si al realizar una valoración del servicio solicitado, el SENARA determina que el proyecto sometido a estudio por el usuario carece de información suficiente, el SENARA emitirá una resolución donde le indique el tipo y calidad de la información que se requiere completar, dando al usuario un plazo razonable para que aporte el estudio correspondiente, suscrito por un geólogo en la materia.
-b) El plazo en que el usuario deberá aportar la información adicional solicitada no podrá ser superior a tres meses, pasado éste término sin haberse recibido la información, el expediente será archivado.
-c) Una vez aportada la información, el SENARA aplicará la tarifa establecida para la determinación del costo del servicio para su cancelación en la Tesorería y procederá a evaluarla y a emitir la resolución de fondo que correspondiere.
-d) Una vez elaborado el dictamen o criterio técnico, el usuario podrá retirarlo personalmente o por persona autorizada al efecto en las oficinas del ASUB, salvo que previamente haya autorizado a SENARA para que ésta lo envíe directamente a otra dependencia pública.
+Artículo 10.—Plazo de revisión y resolución del SENARA. La DIGH brindará los servicios referidos en este reglamento, dentro de los siguientes plazos a partir del recibido de la solicitud cumpliendo con toda la información solicitada:
+a) Dictámenes generales, dictámenes detallados y solicitudes de Perforación de Pozos y Concesiones de Aprovechamiento de Aguas, 30 días hábiles.
+b) Certificaciones de Base de Datos: 5 días hábiles.
+c) Asesorías a entidades públicas en materia hidrogeológica: Según convenio.

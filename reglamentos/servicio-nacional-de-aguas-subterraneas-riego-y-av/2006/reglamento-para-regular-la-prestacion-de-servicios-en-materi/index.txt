@@ -12,4 +12,3 @@ articulo-11.md
 articulo-12.md
 articulo-13.md
 articulo-14.md
-articulo-1-transitorio.md
