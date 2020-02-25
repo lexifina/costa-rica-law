@@ -1,2 +1,0 @@
-ARTÍCULO 10. CONCURSO INTERNO.
-En el caso en que no sea posible llenar la plaza vacante mediante ascenso directo, la Municipalidad realizará un concurso interno para dichos efectos, en el que podrán participar solamente los funcionarios de la Institución que cumplan con los requisitos para ello; ya sean interinos o nombrados en propiedad. Todo lo anterior de acuerdo con el artículo 51 de la Convección Colectiva vigente. Los concursos internos deberán realizarse en un plazo no mayor a 2 meses calendario.

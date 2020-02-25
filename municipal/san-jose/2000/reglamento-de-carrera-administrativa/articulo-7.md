@@ -1,2 +1,0 @@
-ARTÍCULO 7. REQUISITO ACADÉMICO COMO CONDICIÓN DE ADMISIBILIDAD.
-El requisito académico comprende los estudios formales realizados en instituciones de enseñanza primaria, secundaria, técnica, y universitaria, para cumplir los requisitos que establece el Manual Descriptivo de Puestos a fin de ocupar un puesto determinado. Su cumplimiento es una condición de admisibilidad para participar en el concurso.

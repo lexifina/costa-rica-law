@@ -1,7 +1,0 @@
-ARTÍCULO 9. ASCENSO DIRECTO.
-Para llenar una plaza vacante la Municipalidad debe ascender de forma directa al funcionario que ocupando el puesto del grado inmediato inferior, cumpla con las condiciones para ocupar el cargo. Lo anterior de acuerdo con el artículo 51 de la Convección Colectiva vigente.
-Para que se pueda aplicar el ascenso directo deben concurrir al menos los siguientes requisitos, sin perjuicio de cualquier otro que establezca la Ley: que el funcionario a ascender tenga derecho a la Carrera Administrativa municipal; que cumpla con todos los requisitos académicos y de cualquier otra naturaleza que se prevean para la plaza; que el puesto a ocupar sea del grado inmediato superior; y que la plaza vacante corresponda a la misma dependencia en la que labora el funcionario.
-El ascenso directo se podrá dar:
-9.1 Sin procedimiento de valoración: cuando no exista más de un funcionario que califique para ascenso directo, la Municipalidad lo nombrará en la plaza vacante que corresponda.
-9.2 Con procedimiento de valoración: cuando existan dos o más funcionarios que califiquen para ascenso directo, la Municipalidad realizará entre ellos una valoración, tomando como parámetros los factores definidos para concursos internos, y nombrará al funcionario que en el proceso obtenga la mayor nota final.
-El procedimiento de ascenso directo, con o sin valoración, deberá realizarse en un plazo no mayor a 2 meses calendario.

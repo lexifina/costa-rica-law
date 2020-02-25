@@ -1,2 +1,0 @@
-ARTÍCULO 21. VIGENCIA DE LA CALIFICACIÓN OBTENIDA EN EL CONCURSO INTERNO.
-Los postulantes en un concurso interno que obtengan nota superior a 70% y no resulten seleccionados, podrán participar en futuros concursos internos manteniendo la misma calificación; siempre y cuando la plaza sea similar a la que había participado y que esté dentro de la misma dependencia. Dicha condición se mantendrá y aplicará por un lapso no mayor de 1 año, después de efectuado el concurso.
