@@ -2,11 +2,11 @@ SECCIÓN V
 De la reposición de títulos de Licencia Municipal
 Artículo 20.- Ante el deterioro, extravío u destrucción del Certificado de Licencia Municipal, los patentados podrán solicitar la emisión de un nuevo título, mediante solicitud ante la Sección de Patentes, para lo cual aportarán los siguientes documentos:
 1. En el caso de personas físicas:
-a) Copia de la cédula de identidad del solicitante o documento DIMEX (Documento De Identidad Migratoria Para Extranjeros) vigente.
+a) (Eliminado en sesión N° 200 del 25 de febrero el 2020).
 b) Dirección física de su domicilio.
 2. En caso de personas jurídicas:
 a) personería jurídica original y vigente, no mayor a un mes de emitida.
-b) Copia de la cédula de identidad del representante legal.
+b) (Eliminado en sesión N° 200 del 25 de febrero el 2020)
 c) Dirección física del domicilio del representante legal.
 3. Estar al día en el pago de tributos y obligaciones tributarias.
 4. Pago de US $6.00 por la reposición del certificado.

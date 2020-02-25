@@ -17,3 +17,4 @@ Reglamento para licencias municipales de la Municipalidad de Curridabat
 | 2 | 2015-12-10 | Reglamento municipal 294 (2015-12-10) |
 | 3 | 2017-11-25 | Reglamento municipal 83 (2017-11-25) |
 | 4 | 2018-05-15 | Reglamento municipal 107 (2018-05-15) |
+| 5 | 2020-02-25 | Reglamento municipal 200 (2020-02-25) |

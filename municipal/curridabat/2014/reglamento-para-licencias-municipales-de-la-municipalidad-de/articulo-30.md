@@ -4,11 +4,11 @@ Artículo 30.- La Sección de Patentes procederá a revocar las licencias munici
 1. El patentado expresamente solicite la eliminación de la patente y así sea comunicado a la Sección de Patentes, aportando:
 a) Nota donde solicita la eliminación de la patente
 b) En el caso de personas físicas:
-c) b.1 Copia de la cédula de identidad del solicitante o documento DIMEX (Documento De Identidad Migratoria Para Extranjeros) vigente
+c) b.1 (Eliminado en sesión N° 200 del 25 de febrero el 2020)
 d) b.2 Dirección física de su domicilio.
 e) En caso de personas jurídicas:
 c.1 personería jurídica original y vigente, no mayor a un mes de emitida.
-c.2 Copia de la cédula de identidad del representante legal.
+c.2 (Eliminado en sesión N° 200 del 25 de febrero el 2020)
 c.3 Dirección física del domicilio del representante legal.
 f) Estar al día en el pago de tributos y obligaciones tributarias. La firma que se consigne en la solicitud deberá estar autenticada por un abogado, o firmarlo ante el funcionario municipal de la Plataforma de Servicios, el cual verificará que el solicitante firmó ante él, debiendo estampar el sello correspondiente en el formulario de solicitud.
 2. Por la muerte del titular de la licencia comercial. En caso de personas jurídicas por disolución, quiebra o insolvencia judicialmente declaradas o por la causal establecida en la Ley de Impuesto a las Personas Jurídicas N° 9428.

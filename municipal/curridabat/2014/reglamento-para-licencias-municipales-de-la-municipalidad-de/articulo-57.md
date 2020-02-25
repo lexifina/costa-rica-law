@@ -1,6 +1,8 @@
 Artículo 57.- Para la obtención de esta licencia se deberán aportar los siguientes requisitos:
-a) Formulario de solicitud de licencia municipal para espectáculo público permanente. En el caso de personas físicas, deberá aportar copia de la cédula de identidad del solicitante o documento DIMEX (Documento De Identidad Migratoria Para Extranjeros) vigente y dirección física de su domicilio.
-En caso de personas jurídicas, deberá aportar personería jurídica original y vigente, no mayor a un mes de emitida, copia de la cédula de identidad del representante legal y dirección física del domicilio del representante legal.
+a) Formulario de solicitud de licencia municipal para espectáculo público permanente.
+(Así reformado el párrafo anterior en sesión N° 200 del 25 de febrero del 2020)
+En caso de personas jurídicas, deberá aportar personería jurídica original y vigente, no mayor a un mes de emitida, y dirección física del domicilio del representante legal.
+(Así reformado el párrafo anterior en sesión N° 200 del 25 de febrero del 2020)
 La firma que se consigne en la solicitud deberá estar autenticada por un abogado, o firmarlo ante el funcionario municipal de la Plataforma de Servicios, el cual verificará que el solicitante firmó ante él, debiendo estampar el sello correspondiente en el formulario de solicitud.
 b) Presentar mensualmente, en los primeros diez días de cada mes, los boletos o tiquetes que se utilizarán para el ingreso a las actividades con el objetivo de que la Municipalidad proceda a sellar y registrar cada uno de ellos. Los boletos deberán tener impreso el valor de la entrada, el nombre del negocio, razón social del patentado y estar numerados en forma consecutiva, en caso de boletos electrónicos presentar copia del contrato con la empresa encargada de la venta de los tiquetes.
 c) Aportar contrato de arrendamiento o en su defecto autorización de la persona física o jurídica propietaria del inmueble, que indique que la actividad solicitada cuenta con visto bueno de la persona propietaria del inmueble.

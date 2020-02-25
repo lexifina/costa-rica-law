@@ -1,10 +1,10 @@
 Artículo 6.-Para solicitar para una licencia comercial ante la Municipalidad de Curridabat, se requiere completar el formulario respectivo, junto con los siguientes documentos:
 1. En el caso de personas físicas:
-a) Copia de la cédula de identidad del solicitante o documento DIMEX (Documento De Identidad Migratoria Para Extranjeros) vigente
+a) (Eliminado en sesión N° 200 del 25 de febrero el 2020)
 b) Dirección física de su domicilio.
 2. En caso de personas jurídicas:
 a) Personería jurídica original y vigente, no mayor a un mes de emitida.
-b) Copia de la cédula de identidad del representante legal.
+b) (Eliminado en sesión N° 200 del 25 de febrero el 2020)
 c) Dirección física del domicilio del representante legal.
 3. Tipo de actividad que se pretende realizar.
 4. Nombre del establecimiento (negocio denominado o nombre de fantasía).
@@ -13,10 +13,11 @@ c) Dirección física del domicilio del representante legal.
 7. Copia del Permiso Sanitario de funcionamiento extendido por el Ministerio de Salud vigente emitido a nombre del solicitante de la licencia, o el permiso emitido por el Servicio Nacional de Salud Animal (SENASA) vigente emitido a nombre del solicitante de la licencia. En ambos casos deberá mostrarse el documento original para ser confrontado con la copia por el funcionario de la Plataforma de Servicios.
 8. Copia del recibo de Póliza de Riesgos de Trabajo vigente (al día) o carta de exoneración vigente emitida por el Instituto Nacional de Seguros (INS) a nombre del solicitante en caso de persona física. En caso de persona jurídica copia del recibo de Póliza de Riesgos de Trabajo vigente (al día). Deberá mostrarse el documento original para ser confrontado con la copia por el funcionario de la Plataforma de Servicios.
 9. Documentos a presentar del propietario registral de la propiedad en caso de que no sea el mismo que solicita la licencia comercial:
-a) Informe Registral de la Propiedad donde se ubicará la actividad lucrativa.
-b) Autorización del dueño de la propiedad o contrato de arrendamiento, firmas que deberán ser autenticadas por un abogado o en su defecto deberá mostrarse el documento original para ser confrontado con la copia por el funcionario de la Plataforma de Servicios. En caso de ser una persona física copia de la cédula de identidad o en caso de persona jurídica personera jurídica original y vigente no mayor a un mes de emitida, junto con la copia de la cédula de identidad del representante legal del inmueble.
-c) Estar al día en el pago de tributos y obligaciones tributarias.
-10. Contar con certificado del uso de suelo del lugar en donde se va a desarrollar la actividad, en el cual se indica que es conforme y el respectivo visto bueno de zonificación para ejercer la actividad según el Plan Regulador Urbano del Cantón de Curridabat, junto con la copia del plano catastrado, a excepción de que se trate de una actividad comercial a desarrollarse en un centro comercial, oficentro o similar, de conformidad con lo establecido en el artículo 19 del presente reglamento.
+a) Autorización del dueño de la propiedad o contrato de arrendamiento, firmas que deberán ser autenticadas por un abogado o en su defecto deberá mostrarse el documento original para ser confrontado con la copia por el funcionario de la Plataforma de Servicios. En caso de persona jurídica, aportar personería jurídica original y vigente no mayor a un mes de emitida.
+b) Estar al día en el pago de tributos y obligaciones tributarias.
+(Así reformado el inciso 9) anterior en sesión N° 200 del 25 de febrero del 2020)
+10. Contar con certificado del uso de suelo del lugar en donde se va a desarrollar la actividad, en el cual se indica que es conforme y el respectivo visto bueno de zonificación para ejercer la actividad según el Plan Regulador Urbano del Cantón de Curridabat, a excepción de que se trate de una actividad comercial a desarrollarse en un centro comercial, oficentro o similar, de conformidad con lo establecido en el artículo 19 del presente reglamento.
+(Así reformado el inciso anterior en sesión N° 200 del 25 de febrero del 2020)
 11. Cumplir con el espacio de parqueo según los metros cuadrados de área comercial, de conformidad con lo que establece el Reglamento de Construcciones y el Plan Regulador Urbano del Cantón de Curridabat.
 12. Declaración jurada en la cual indica expresamente que el área de acera no será obstaculizada de manera que impida el libre tránsito de peatones, ni será utilizada como parqueo por parte de los clientes o zona de descarga de los proveedores.
 13. En el caso de que se solicite licencia comercial para instalar máquinas de juego, sean manuales, electrónicas o juegos electrónicos, el solicitante además de los requisitos supra mencionados, deberá cumplir con lo siguiente:

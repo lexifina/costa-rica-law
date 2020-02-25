@@ -1,8 +1,10 @@
 SECCIÓN III
 De las actividades de espectáculos públicos ocasionales
 Artículo 60.- Para solicitar licencia de espectáculos públicos ocasionales para la realización de conciertos o presentaciones similares, se deberán aportar los siguientes requisitos, según la actividad a desarrollar:
-a) Formulario de solicitud de licencia municipal para espectáculo público permanente. En el caso de personas físicas, deberá aportar copia de la cédula de identidad del solicitante o documento DIMEX (Documento de Identidad Migratoria Para Extranjeros) vigente y dirección física de su domicilio.
-En caso de personas jurídicas, deberá aportar personería jurídica original y vigente, no mayor a un mes de emitida, copia de la cédula de identidad del representante legal y dirección física del domicilio del representante legal.
+a) Formulario de solicitud de licencia municipal para espectáculo público permanente. y dirección física de su domicilio.
+(Así reformado el párrafo anterior en sesión N° 200 del 25 de febrero del 2020)
+En caso de personas jurídicas, deberá aportar personería jurídica original y vigente, no mayor a un mes de emitida, y dirección física del domicilio del representante legal.
+(Así reformado el párrafo anterior en sesión N° 200 del 25 de febrero del 2020)
 La firma que se consigne en la solicitud deberá estar autenticada por un abogado, o firmarlo ante el funcionario municipal de la Plataforma de Servicios, el cual verificará que el solicitante firmó ante él, debiendo estampar el sello correspondiente en el formulario de solicitud.
 b) Presentar los boletos o tiquetes que se utilizarán en el evento para que la Municipalidad proceda a su registro. Cada uno de ellos deberá tener impreso el valor de la entrada, la descripción y fecha del evento.
 c) En caso, que los boletos sean emitidos electrónicamente, deberá presentar copia del contrato con la empresa que se encargará de la venta de los tiquetes y certificación de contador público haciendo constar el ingreso bruto total recaudado una vez finalizado el evento.
