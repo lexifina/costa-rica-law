@@ -14,3 +14,4 @@ Reglamento para uso, control y mantenimiento de los vehículos del Ministerio de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-08-19 | la propia norma |
+| 2 | 2020-02-25 | Decreto Ejecutivo 42331 (2020-02-25) |
