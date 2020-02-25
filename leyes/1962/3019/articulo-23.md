@@ -1,5 +1,3 @@
-Artículo 23.- Para imponer cualquier corrección, el Presidente, por sí
-o por medio de uno de los miembros de la Junta de Gobierno, levantará la
-información del caso y hecha las averiguaciones se oirá por ocho días al
-interesado. Este término podrá ampliarse cuando fuere necesario, a juicio
-de la Junta.
+Artículo 23- Salvo en los casos de no pago de cuotas de colegiatura señalados en el artículo 8 de esta ley, solo podrán aplicarse las sanciones estipuladas en la Normativa de Sanciones del Colegio cuando se haya demostrado, previo cumplimiento del debido proceso y respetando el derecho de defensa, que el profesional en medicina o el autorizado ha cometido una falta tipificada en el Código de Ética Médica. También será sancionado aquel médico incorporado, profesional o tecnólogo autorizado que realice actos que excedan su competencia profesional o técnica, según determinación definida mediante una normativa interna aprobada por la Junta de Gobierno.
+La Junta de Gobierno reglamentará el procedimiento disciplinario y la normativa de sanciones.
+(Así reformado por el artículo 1° de la ley N° 9809 del 4 de febrero del 2020)

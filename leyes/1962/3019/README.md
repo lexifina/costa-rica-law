@@ -1,6 +1,6 @@
 # Ley Orgánica del Colegio de Médicos y Cirujanos
 
-Ley N° 3019 del 1962-08-09. SINALEVI, ficha 37536: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=37536&param2=70683&param3=1>.
+Ley N° 3019 del 1962-08-09. SINALEVI, ficha 37536: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=37536&param2=119462&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -10,3 +10,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 2 de 6 | 1982-12-22 | SINALEVI (3 normas) | 1962-08-09 |
 | 3 de 6 | 2001-12-19 | Sala Constitucional, resolución 2001-13008 (2001-12-19) | 2001-12-19 |
 | 4 de 6 | 2008-01-01 | Ley 8508 | 2006-04-28 |
+| 5 de 6 | 2020-02-25 | Ley 9809 | 2020-02-04 |

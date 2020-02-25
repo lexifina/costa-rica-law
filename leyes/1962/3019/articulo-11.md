@@ -1,8 +1,2 @@
-Artículo 11.- Para que haya sesión de Asamblea General, será necesaria
-una concurrencia de treinta miembros por lo menos. En caso de que no haya
-quórum en la primera reunión debidamente convocada, podrá celebrarse la
-Asamblea General transcurrido un plazo mínimo de ocho días y con un quórum
-de diez miembros. La convocatoria se hará en el periódico oficial y en
-alguno de los diarios de mayor circulación, con tres días de anticipación
-por lo menos, indicando el lugar, día y hora de la reunión y los asuntos
-que deberán ser tratados en ella.
+Artículo 11- Para que se verifique una asamblea, es preciso una convocatoria que se publicará en un diario de circulación nacional. Deberán mediar cinco días hábiles, por lo menos, entre la publicación y el día señalado, y expresar en el aviso el objeto de la convocatoria en relación con el proyecto respectivo. Constituirán cuórum treinta miembros del Colegio; no obstante, si no estuviera presente ese número de miembros media hora después de la hora señalada para comenzar la sesión, esta podrá celebrarse válidamente si concurren no menos de quince miembros.
+(Así reformado por el artículo 1° de la ley N° 9809 del 4 de febrero del 2020)

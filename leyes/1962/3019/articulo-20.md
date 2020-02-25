@@ -1,10 +1,4 @@
-Artículo 20.- La Junta de Gobierno podrá corregir disciplinariamente a
-cualquiera de los miembros dependientes del Colegio:
-1) Por infracción de la presente ley o sus reglamentos o las
-disposiciones del Código de Moral Médica que haya adoptado o
-adopte el Colegio;
-2) Por faltas o abusos que cometan en el ejercicio o práctica de
-sus respectivas profesiones o empleos; y
-3) Por irregularidad en su conducta moral o por vicios que les
-hagan desmerecer en el concepto público o comprometan el decoro
-de la profesión.
+Artículo 20- El Colegio de Médicos y Cirujanos de Costa Rica ejercerá la potestad disciplinaria contra cualquiera de sus miembros y autorizados, por medio de la Junta de Gobierno y el Tribunal de Ética Médica.
+La Junta de Gobierno podrá acordar, previo informe de recomendación de la Fiscalía del Colegio, la apertura de un procedimiento disciplinario contra cualquiera de sus miembros o autorizados, en cuyo caso lo remitirá al Tribunal de Ética Médica.
+El Tribunal de Ética Médica procederá a realizar un debido proceso con el fin de averiguar la verdad real de los hechos denunciados. En caso de que el Tribunal de Ética determine que se produjo una falta al Código de Ética Médica, procederá a imponer la sanción correspondiente; caso contrario ordenará el archivo de la causa.
+(Así reformado por el artículo 1° de la ley N° 9809 del 4 de febrero del 2020)
