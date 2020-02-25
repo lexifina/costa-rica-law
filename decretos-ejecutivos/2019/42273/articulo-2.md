@@ -1,0 +1,1 @@
+Artículo 2º—Modifíquese el Decreto Ejecutivo N° 39733-COMEX-MEIC-MAG de fecha 21 de abril de 2016, que publicó la Resolución N° 374-2015 (COMIECO-LXXIV) de fecha 4 de diciembre de 2015; de conformidad con el numeral I de la dispositiva de la Resolución N° 415-2019 (COMIECO-LXXXVIII) de fecha 25 de octubre de 2019, que se publica mediante el presente Decreto Ejecutivo.
