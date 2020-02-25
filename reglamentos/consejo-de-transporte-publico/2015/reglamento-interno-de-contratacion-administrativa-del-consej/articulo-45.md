@@ -1,3 +1,0 @@
-CAPÍTULO IX
-MATERIAS EXCLUIDAS DE LOS PROCEDIMIENTOS ORDINARIOS DE CONTRATACIÓN
-Artículo 45.- Forma de contratar. Las materias excluidas legalmente de los procedimientos ordinarios de contratación, podrán ser objeto de negociación directa entre el Consejo de Transporte Público y el contratante, en el tanto la Administración actúe en ejercicio de su competencia y el contratante reúna los requisitos de idoneidad legal, técnica y financiera para celebrar el respectivo contrato, por tal motivo todo proceso de contratación que tramite el Consejo de Transporte Público y se encuentre regulado en el capítulo IX del Reglamento a la Ley de Contratación Administrativa, deberá gestionarse por el Sistema Integrado de Compras Púbicas SICOP.

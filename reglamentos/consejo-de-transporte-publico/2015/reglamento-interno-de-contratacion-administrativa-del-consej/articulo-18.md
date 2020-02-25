@@ -1,3 +1,0 @@
-TRÁMITE POSTERIOR A LA SOLICITUD DE CONTRATACIÓN
-Artículo 18.- Trámite posterior a la confección de solicitud de contratación. Cada Unidad Técnica Solicitante remitirá vía electrónica la solicitud de contratación a la Proveeduría Institucional por medio del Sistema Integrado de Compras Públicas SICOP.
-La Proveeduría Institucional, una vez recibida la solicitud por medio del SICOP, procederá a la revisión y verificación de todos los requisitos (artículo 16 de este mismo reglamento), una vez culminada esa etapa, conducirá el procedimiento de Contratación Administrativa, y será la responsable de verificar que el procedimiento de Contratación Administrativa sea el adecuado de conformidad con la ley.

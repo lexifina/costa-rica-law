@@ -1,3 +1,0 @@
-Artículo 68.- Prórroga a la ejecución de los contratos. En situaciones de caso fortuito o fuerza mayor debidamente acreditadas, el contratista podrá solicitar por escrito ante la Comisión de Contraparte Técnica y/o Jefatura de la Unidad Técnica Solicitante, prórrogas para la ejecución del contrato, misma que analizará la gestión en un plazo de cinco días hábiles.
-También se autorizará prórrogas para la ejecución del contrato por demoras ocasionadas por el propio Consejo de Transporte Público
-No se concederán prórrogas vencidos los términos de ejecución previstos, sin perjuicio del derecho de justificar el incumplimiento por los medios legales establecidos.

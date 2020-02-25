@@ -1,1 +1,0 @@
-Artículo 61.- Comisión de Recomendación de Adjudicación. Interviene para este tipo de procesos cuando el cuando monto supere el 50% del límite económico establecido para la Contratación Directa de escasa cuantía.

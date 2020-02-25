@@ -1,4 +1,0 @@
-Artículo 60.- Competencia para dictar el acto final. reg1ran las mismas reglas que se utilizan para los procedimientos ordinarios, el responsable de emitir el acto final, se definirá por la cuantía o monto económico y será uno de los siguientes supuestos:
-1. Proveedor Institucional: cuando el monto sea igual o menor al cincuenta por (50%) del límite económico fijado por la Contraloría General de la República para las Contrataciones Directas de escasa cuantía.
-2. Director Ejecutivo: cuando el monto supere el 50% del límite económico establecido para la Contratación Directa de escasa cuantía y menos del 50% del límite económico establecido para la Licitación Abreviada.
-3. Junta Directiva: cuando el monto sea igual o mayor al cincuenta (50%) por ciento de la Licitación Abreviada y para montos de las Licitaciones Públicas.

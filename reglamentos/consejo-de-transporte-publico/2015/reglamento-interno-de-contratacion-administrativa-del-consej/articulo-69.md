@@ -1,1 +1,0 @@
-Artículo 69.- Encargado de la elaboración de documento contractuales (contrato) u órdenes de compra: Para contratos será responsabilidad de su elaboración el Asesor Legal destacado en la Proveeduría Institucional o en su defecto el Departamento de Asuntos Jurídicos y las órdenes de compra corresponderán al analista de contratación responsable de tramitar el proceso.

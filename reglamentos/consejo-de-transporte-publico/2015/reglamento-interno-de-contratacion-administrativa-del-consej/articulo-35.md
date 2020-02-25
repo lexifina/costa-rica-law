@@ -1,1 +1,0 @@
-Artículo 35.- Competencia para dictar el acto final. El acto final, sea de adjudicación, re adjudicación, desierto o infructuoso, será emitido por la Junta Directiva del Consejo de Transporte Público.

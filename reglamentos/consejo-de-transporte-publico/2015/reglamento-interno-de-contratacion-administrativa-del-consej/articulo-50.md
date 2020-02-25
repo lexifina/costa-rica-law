@@ -1,2 +1,0 @@
-Artículo 50.- Recepción de ofertas. El plazo para recibir ofertas es de mínimo de un día y un máximo de hasta cinco días hábiles.
-Las ofertas serán presentadas a través del Sistema Integrado de Compras Públicas SICOP, vencido el plazo otorgado para la presentación de ofertas se practicarán los análisis de las ofertas y el sistema de evaluación a todas las ofertas admitidas a concurso, para determinar el ganador; todo lo anterior en los términos dispuestos en el pliego de condiciones.
