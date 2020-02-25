@@ -1,0 +1,5 @@
+INSTITUTO NACIONAL DE VIVIENDA Y URBANISMO
+El Instituto Nacional de Vivienda y Urbanismo comunica que mediante acuerdo de Junta Directiva tomado en Sesión Ordinaria N° 6429, Artículo IV, Inciso 2), celebrada el 13 de febrero de 2020, con los votos a favor de Arq. Tomás Martínez Baldares, Ing. Édgar Jiménez Mata, Lic. Rodolfo Freer Campos, Arq. Lucía Artavia Guzmán, Arq. Eugenia Solís Umaña y Sr. Alejandro Li Glau, se acordó modificar el acuerdo adoptado en la Sesión Ordinaria N° 6426, Art. IV, Inc. 2 del 30 de enero del 2020, en relación con el texto del Transitorio Cuarto del Reglamento de Fraccionamiento y Urbanizaciones, publicado en el Alcance N° 252 a La Gaceta N° 216 del 13 de noviembre de 2019, con la intención de realizar prórroga para su entrada en vigencia.
+Léase entonces el Transitorio Cuarto del Reglamento de Fraccionamiento y Urbanizaciones de la siguiente manera:
+“Transitorio Cuarto. Vigencia. El presente Reglamento empieza a regir 7 meses después de su publicación en el Diario Oficial La Gaceta”
+Por tanto, dicha regulación entra en vigencia a partir del 13 de junio de 2020.
