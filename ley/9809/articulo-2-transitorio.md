@@ -1,0 +1,1 @@
+TRANSITORIO II- El Colegio de Médicos y Cirujanos, dentro de los seis meses siguientes a la entrada en vigencia de la presente ley, deberá aprobar las modificaciones que correspondan a la normativa de sanciones de dicho colegio profesional.

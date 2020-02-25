@@ -1,10 +1,2 @@
-Artículo 25.- Las resoluciones de la Asamblea General, en materia de
-su competencia, conforme a la presente ley, tendrán fuerza de sentencia
-ejecutoria, exceptuándose las dictadas en asuntos que no han venido en
-apelación, pues en este caso cabe el recurso de revisión para ante la
-misma, recurso que debe plantearse a más tardar en los cinco días hábiles
-siguientes al de la sesión en que se tomó el acuerdo recurrido. Ningún
-asunto podrá reverse más de una vez. También tendrán fuerza de sentencia
-ejecutoria las resoluciones de la Asamblea General y de la Junta de
-Gobierno contra las que no se hayan interpuesto, en tiempo, los recursos
-que la ley establece.
+Artículo 25- Las resoluciones de la Junta de Gobierno en materia de su competencia, así como las dictadas por la Asamblea General que hayan quedado en firme, podrán ser ejecutadas de forma inmediata.
+(Así reformado por el artículo 1° de la ley N° 9809 del 4 de febrero del 2020)
