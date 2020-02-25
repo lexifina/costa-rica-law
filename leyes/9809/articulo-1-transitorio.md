@@ -1,0 +1,1 @@
+TRANSITORIO I- La aplicación de las normas establecidas en esta ley en ningún caso podrá ir en perjuicio de los derechos adquiridos por los actuales miembros agremiados o autorizados del Colegio, quienes seguirán gozando de esa condición, con las obligaciones y los derechos que señala esta normativa.
