@@ -1,2 +1,3 @@
 Artículo 22.—Informe final de cumplimiento de la regla fiscal. La DGPN y la STAP entregarán a la CGR el informe final de cumplimiento establecido en el artículo 21 del Título IV de la Ley aquí reglamentada, el día 20 del mes de marzo de cada año con copia a la Presidencia de la República y su respectiva publicación en la página web del Ministerio de Hacienda.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 41891 del 24 de julio de 2019)
+Para ello, deberá compararse la liquidación de ese año con la del año anterior para verificar que el gasto ejecutado haya respetado el tope de crecimiento de la regla fiscal.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 42218 del 26 de febrero del 2020)

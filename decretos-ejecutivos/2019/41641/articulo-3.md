@@ -1,1 +1,5 @@
-Artículo 3º.—Periodo de referencia para aplicación de la regla fiscal Para la aplicación de la regla fiscal, las entidades deberán tomar como referencia el gasto corriente incorporado en el presupuesto ordinario aprobado del año en que se realiza la formulación del presupuesto del siguiente periodo.
+Artículo 3º—Periodo de referencia para aplicación de la regla fiscal. Durante la fase de formulación del presupuesto ordinario del siguiente periodo, las entidades tomarán como base para la aplicación de la regla fiscal el presupuesto ordinario aprobado del año en curso.
+Una vez finalizada la fase de ejecución presupuestaria, se verificará que el gasto ejecutado no haya superado la tasa de crecimiento establecida en la regla fiscal. Para ello se comparará el gasto ejecutado de la liquidación presupuestaria del año culminado, contra el gasto ejecutado de la liquidación presupuestaria del año que le antecede.
+De manera que durante la formulación presupuestaria se verificará el cumplimiento de la regla fiscal comparando los presupuestos ordinarios aprobados al inicio de los 2 períodos.
+Mientras que, al finalizar la ejecución, se verificará su cumplimiento comparando las liquidaciones presupuestarias de los 2 períodos.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 42218 del 26 de febrero del 2020)
