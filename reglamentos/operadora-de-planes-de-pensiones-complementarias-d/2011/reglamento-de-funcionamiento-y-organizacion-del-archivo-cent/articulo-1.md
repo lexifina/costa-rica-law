@@ -5,5 +5,5 @@ REGLAMENTO DE FUNCIONAMIENTO
 Y ORGANIZACIÓN DEL ARCHIVO CENTRAL
 CAPÍTULO I
 Disposiciones generales
-Artículo 1°—El Archivo Central de la Operadora de Planes de Pensiones Complementarias de Banco Popular y Desarrollo Comunal S. A. (en adelante, Popular Pensiones) es la unidad administrativa que reúne, conserva, clasifica, ordena, describe, selecciona y administra el acervo documental de Popular Pensiones, compuesto por las Archivos de Gestión de los diferentes departamentos y áreas de la Operadora. Este archivo está adscrito al Dirección de Administración. Se regirá por la Ley N° 7202, Ley del Sistema Nacional de Archivos, su Reglamento, este Reglamento y las demás normativas relacionadas.
-(Así reformado en sesión N° 562 del 29 de mayo de 2019)
+Artículo 1°—El Archivo Central de la Operadora de Planes de Pensiones Complementarias de Banco Popular y Desarrollo Comunal S. A. (en adelante, Popular Pensiones) es la unidad administrativa que reúne, conserva, clasifica, ordena, describe, selecciona y administra el acervo documental de Popular Pensiones, compuesto por las Archivos de Gestión de las diferentes Direcciones y áreas de la Operadora. Este archivo está adscrito a la Dirección de Administración Se regirá por la Ley Nº 7202, Ley del Sistema Nacional de Archivos, su Reglamento, este Reglamento y las demás normativas relacionadas.
+(Así reformado en sesión ordinaria N° 586 del 26 de febrero del 2020)
