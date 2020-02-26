@@ -1,0 +1,1 @@
+Artículo 4º—Alcance. Conforme al Reglamento a la Ley de Catastro Nacional el visado municipal de fraccionamiento se extenderá únicamente para los efectos contemplados en el artículo 79, inciso b: “Para fraccionamientos, el visado requerido, es el de la municipalidad respectiva independientemente, si el fraccionamiento está ubicado en distrito urbano o rural”.

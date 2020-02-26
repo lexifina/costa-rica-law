@@ -1,0 +1,7 @@
+Artículo 9º—Para fraccionamientos simples de todo el cantón se autorizarán aquellas propuestas de segregación frente a calle pública existente si cumplen con las siguientes condiciones urbanísticas:
+a) Que la calle pública que enfrenta esté representada en los mapas oficiales de la municipalidad o que lo demuestre mediante documento idóneo del Concejo Municipal o de la Unidad Técnica Vial y para más de 10 fraccionamientos de una misma finca frente a calle pública el solicitante deberá hacer efectiva la ampliación vial.
+b) Que existan servicios indispensables según lo establecido en el artículo 7 de este reglamento y para más de 10 fraccionamientos de una misma finca frente a calle pública el solicitante deberá aportar la disponibilidad de los servicios de parte de los proveedores o medidas alternas que lo garanticen.
+c) Que el área mínima del lote cumpla con el mínimo de 120 metros cuadrados.
+d) Que el frente mínimo del lote cumpla con el mínimo de 6 metros lineales.
+e) Que la relación de proporción de distancias de fondo entre frente cumpla con la proporción fondo/frente menor de 7; donde la distancia del frente lo es al acceso inmediato (sea este una calle pública o una servidumbre de cualquier tipo) y la distancia del fondo se usará el largo mayor del rectángulo dentro del cual se circunscriba el polígono sujeto al análisis.
+En casos de planos con más de un frente podrán sumarse los frentes y mantener el fondo.

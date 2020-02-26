@@ -1,0 +1,11 @@
+MUNICIPALIDAD DE NANDAYURE
+La Municipalidad de Nandayure, de conformidad con las potestades conferidas por los artículos 4 inciso a), 13 incisos c) y e), así como el artículo 17 incisos a) y h) todos del Código Municipal Ley número 7794 y al tenor de los ordinales 169 y 170 de la Constitución Política y a Ley de Vivienda y Urbanismo; Ley de Planificación Urbana número 4240; Reglamento a la Ley de Catastro Nacional; Ley de Catastro Nacional, acuerdan promulgar el presente Reglamento:
+REGLAMENTO PARA EL CONTROL DE FRACCIONAMIENTOS
+DE LA MUNICIPALIDAD DE NANDAYURE
+CAPÍTULO I
+Disposiciones generales
+Este reglamento se fundamenta en criterios técnicos y con fundamento en las potestades conferidas en los artículos 2, 3, 4 inciso a, y 13 incisos c), del Código Municipal, artículos 169 y 170 de la Constitución Política, artículo 15 de la Ley de Planificación Urbana, la Ley de Simplificación Tributaria N˚ 8114 del 9 de julio del 2001, Ley general de Caminos, Ley de Expropiaciones y la Ley General de la Administración Pública N˚ 6227 del 2 de mayo de 1978.
+Artículo 1º—Generalidades. La Municipalidad de Nandayure es una institución autónoma cuyos objetivos se encuentran plasmados en el Código Municipal y la Constitución Política, y otros establecidos en el ordenamiento jurídico costarricense.
+En el amparado de los principios de desarrollo sostenible y planificación territorial y con la finalidad de asegurar una calidad de vida óptima a los habitantes del cantón de Nandayure, este reglamento establecerá y delimitará las condiciones para garantizar el uso eficiente del suelo al momento de realizar operaciones de fraccionamientos o urbanizaciones, por medio de alternativas técnicas y legales.
+De conformidad con los artículos 21 y 32 de la Ley de Planificación Urbana, estas disposiciones forman parte de los principales reglamentos de desarrollo urbano del territorio del cantón de Nandayure.
+Dicho Reglamento, mediante la delimitación o puntualización de las reglas municipales de obligado acatamiento para la realización de operaciones de fraccionamientos, define los requisitos urbanísticos correspondientes al acceso a la vía pública, a la realización de operaciones de lotificación y amanzanamiento, así como los requisitos para la cesión de áreas para uso público.
