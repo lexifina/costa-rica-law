@@ -1,2 +1,2 @@
-Artículo 42.—Este Reglamento rige a partir de su aprobación y deroga cualquier disposición de la Asamblea que se le oponga.
-Aprobado en la asamblea general extraordinaria Nº 16:2013- 2014 del 29 de junio de 2013.
+Artículo 42.—Este reglamento rige partir de su aprobación y publicación en diario oficial, así mismo deroga cualquier disposición de la asamblea que se le oponga.
+(Así reformado y publicado en La Gaceta N° 38 del 26 de febrero de 2020)

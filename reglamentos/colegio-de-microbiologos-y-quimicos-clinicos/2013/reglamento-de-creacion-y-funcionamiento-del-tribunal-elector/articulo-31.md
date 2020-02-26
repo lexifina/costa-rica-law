@@ -1,1 +1,1 @@
-Artículo 31.—Si el votante ejerció su voto fuera del área establecida para ello o utilizó otra manera para expresar su voto diferente a la equis, este voto será considerado como válido pues representa la intención de voto, siempre y cuando no se haya escrito nada en la papeleta.
+Artículo 31. (Derogado y publicado en La Gaceta N° 38 del 26 de febrero de 2020)

@@ -1,1 +1,1 @@
-Artículo 19.—En caso de que algún agremiado realice los arreglos para ponerse al día con sus obligaciones con el colegio, durante los ocho días anteriores o el mismo día de las elecciones, este deberá presentar las pruebas de que se encuentra al día al tribunal electoral y este ente decidirá si se le deja emitir su voto previa inclusión en la bitácora del proceso electoral.
+Artículo 19. (Derogado y publicado en La Gaceta N° 38 del 26 de febrero de 2020)

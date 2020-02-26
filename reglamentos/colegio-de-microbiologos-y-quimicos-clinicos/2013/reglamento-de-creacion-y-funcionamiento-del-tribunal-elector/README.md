@@ -15,3 +15,4 @@ Reglamento de creación y funcionamiento del Tribunal Electoral del Colegio de M
 | --- | --- | --- |
 | 1 | 2013-06-29 | la propia norma |
 | 2 | 2017-12-09 | Reglamento 2 (2017-12-09) |
+| 3 | 2020-02-26 | Reglamento 0 (2020-02-26) |
