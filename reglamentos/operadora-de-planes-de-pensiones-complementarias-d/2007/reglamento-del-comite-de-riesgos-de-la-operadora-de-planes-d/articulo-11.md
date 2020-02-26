@@ -1,4 +1,5 @@
-Artículo 11.—Otras responsabilidades de los miembros del Comité. Se definen las siguientes responsabilidades particulares para los miembros del Comité:
-a. Presidente: Autorizar las convocatorias ordinarias y el orden del día o agenda, presidir las sesiones del Comité, así como convocar a sesiones extraordinarias.
-b. Secretario: Elaborar y expedir las convocatorias, agendas, incluyendo los soportes documentales necesarios, los cuales deben ser remitidos a cada uno de los integrantes del Comité. Deberá asegurarse de que los acuerdos del Comité se registren íntegramente, vigilando que el archivo esté completo y se mantenga actualizado.
-c. Miembros: Enviar al secretario antes de las sesiones los asuntos que consideren convenientes de tratar; analizar el orden del día o agenda y los documentos sobre los asuntos a tratar, así como manifestar los comentarios que estimen pertinentes.
+Artículo 11.-De la vigilancia del régimen de inversiones en valores de emisores nacionales. En su función de vigilancia del régimen de inversión aplicable, según lo establecido en el Reglamento de Gestión de Activos, para las inversiones en el mercado nacional, el Comité de Riesgo velará por el cumplimiento de:
+a) Los límites generales.
+b) Los límites por tipo de instrumento.
+c) Los límites por emisor.
+(Así reformado |mediante sesión N°586 del 26 de febrero del 2020)
