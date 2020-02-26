@@ -1,2 +1,0 @@
-Artículo 9º—Áreas públicas. El desarrollador o fraccionador cederá gratuitamente a la Municipalidad el terreno para áreas verdes y equipamiento comunal. La ubicación de las áreas municipales en cada proyecto urbanístico será propuesta por el desarrollador en el anteproyecto presentado, pero deberá contar con el aval del Concejo Municipal.
-Los terrenos en que se ubiquen las áreas públicas deberán tener una topografía de calidad.
