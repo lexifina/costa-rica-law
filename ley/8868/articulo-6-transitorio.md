@@ -1,0 +1,1 @@
+TRANSITORIO VI- Durante el plazo de dos años el monto total del superávit libre del Servicio Fitosanitario del Estado se utilizará para la atención de los deberes del Estado para el fortalecimiento del fideicomiso y el sector palmero.
