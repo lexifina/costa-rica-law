@@ -1,0 +1,1 @@
+Artículo 13.—Impuesto a pagar. Conforme al artículo 70 de la Ley de Planificación Urbana, el impuesto por la construcción de las obras a que se refiere este reglamento, será del 1% del valor de la obra.

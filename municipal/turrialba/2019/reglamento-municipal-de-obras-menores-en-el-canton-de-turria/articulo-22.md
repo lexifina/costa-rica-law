@@ -1,0 +1,2 @@
+Artículo 22.—Facultades de los Inspectores Municipales.
+Los inspectores municipales podrán notificar cualquier acto que se emita con motivo de las obras a las que se refiere este reglamento, asimismo, deberán clausurar dichas obras cuando se presente alguno de los supuestos señalados en el artículo anterior, y en general, realizar cualquier actuación legitima a fin de evitar que se consoliden las infracciones a este reglamento y normativa conexa.

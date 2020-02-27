@@ -1,0 +1,1 @@
+Artículo 23.—Recursos. Las resoluciones que rechacen las solicitudes de licencia de obras menores serán susceptibles de los recursos de revocatoria y/o de apelación de conformidad con lo dispuesto en el artículo 171 del Código Municipal, los cuales deberán ser interpuestos dentro de los cinco días hábiles contados a partir de su notificación y estar debidamente fundamentados.

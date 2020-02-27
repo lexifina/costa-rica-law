@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de aplicación. En concordancia con el artículo 1° de la Ley de Construcciones, la Municipalidad velará por el control y la supervisión de cualquier construcción que se realice en su jurisdicción, sin perjuicio de las facultades que las leyes conceden en esta materia a otros órganos administrativos.
