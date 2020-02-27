@@ -1,0 +1,10 @@
+Artículo 7- Comisión lnterinstitucional
+La Comisión lnterinstitucional creada de conformidad con el inciso 7) del artículo 116 de la Ley 1644, Ley Orgánica del Sistema Bancario Nacional, de 26 de setiembre de 1953 y mediante el Decreto Ejecutivo N.º 26363-H, de 15 de octubre de 1997, en el Fideicomiso N.º 955 Ministerio de Hacienda-Banco Nacional de Costa Rica, mantendrá las siguientes atribuciones y funciones:
+a) Dictar las políticas para la administración de la cartera de crédito del Fideicomiso.
+b) Controlar la ejecución del contrato de Fideicomiso, especialmente en los aspectos relativos a la gestión de la cartera de crédito, utilidad y morosidad de los créditos.
+c) Revisar periódicamente las tasas de interés de los subpréstamos concedidos con los mencionados fondos.
+d) Promover el desarrollo de programas de fortalecimiento, sostenibilidad, responsabilidad ambiental y empresarial.
+e) Coordinar y velar por el cumplimiento de los deberes de las instituciones mencionadas en el artículo 5.
+Dicha Comisión estará integrada por el ministro de Hacienda o su representante, quien la presidirá y tendrá el voto decisorio en caso de empate; el ministro de Agricultura y Ganadería o su representante; el presidente ejecutivo del Instituto de Desarrollo Rural (lnder) o su representante; el presidente de la Cámara Nacional de Productores de Palma o su representante; además, el Banco Nacional de Costa Rica tendrá un representante en la Comisión, nombrado por su Junta Directiva, con la salvedad de que el representante del fiduciario tendrá voz pero no voto.
+Los representantes de esta Comisión deberán ser designados bajo el criterio de idoneidad comprobada, respecto a conocimientos en materia financiera, empresarial y del cultivo de palma aceitera.
+Para ejecutar las acciones de la Comisión lnterinstitucional se contará con el órgano técnico del Fideicomiso N. º 955, un agrónomo especialista en el cultivo de palma aceitera y un profesional en labores administrativas y de contaduría, y continuarán bajo nombramiento del Instituto de Desarrollo Rural (INDER), a tiempo completo y por el plazo de desarrollo del fideicomiso.

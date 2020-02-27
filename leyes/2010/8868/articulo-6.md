@@ -1,2 +1,1 @@
-ARTÍCULO 6.-Vigencia del Fideicomiso
-El plazo del presente Fideicomiso será de cuarenta y nueve años a partir de la vigencia de esta Ley.
+Artículo 6- Administración de los activos del Fideicomiso 955 El fiduciario continuará con la administración y gestión de cobro de todas las operaciones de crédito formalizadas con dicho Fideicomiso, manteniendo, para todos los efectos legales, la condición de acreedor, de conformidad con los términos originalmente pactados con los productores.

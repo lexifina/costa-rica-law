@@ -1,0 +1,2 @@
+Artículo 8- Vigencia del Fideicomiso
+El plazo del presente Fideicomiso será de cincuenta años a partir de la entrada en vigencia de esta ley, modificando el plazo establecido en la Ley 8868, Autorización para Ampliar el Plazo del Fideicomiso N. º 955 Ministerio de Hacienda – Banco Nacional de Costa Rica y Ampliar el Área de Cobertura a las Zonas Aptas para la Siembra y Producción de Palma Aceitera en Costa Rica, de 15 de octubre de 2010.
