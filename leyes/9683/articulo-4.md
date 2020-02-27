@@ -1,0 +1,1 @@
+ARTÍCULO 4- Se declara de interés turístico nacional la cuenca del río Naranjo, desde el nacimiento del río Naranjo hasta el límite del Parque Recreativo Nacional Manuel Antonio, coordenadas margen derecho aguas abajo este_m_: 487306,702, norte_m: 1037582.70351, margen izquierdo aguas abajo, este_m_: 487426.692, norte_m_: 1037582.812.

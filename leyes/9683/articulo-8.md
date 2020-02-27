@@ -1,0 +1,1 @@
+ARTÍCULO 8- Se declara de interés público toda obra que se realice con el fin de mantener el equilibrio ambiental libre de barreras físicas; mantener la belleza escénica y la biodiversidad; proteger las áreas de recarga y los acuíferos de los manantiales, así como los valores históricos y culturales comprendidos dentro de la cuenca hidrográfica del río Naranjo.
