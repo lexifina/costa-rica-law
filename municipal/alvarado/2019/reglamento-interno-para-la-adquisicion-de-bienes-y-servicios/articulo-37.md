@@ -1,0 +1,1 @@
+Artículo 37.—En ausencia de normativa o disposición expresa, no prevista en este reglamento; se deberá estar a lo dispuesto en la Ley de Contratación Administrativa y su Reglamento, Ley General de Control Interno; así como la jurisprudencia y disposiciones administrativas emitidas dentro de su competencia por la Contraloría General de la República.

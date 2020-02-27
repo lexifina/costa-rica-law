@@ -1,0 +1,1 @@
+Artículo 9º—Exclusión de relación de empleo con el contratado. De conformidad con el artículo 65 de la Ley de Contratación Administrativa, ninguna contratación de servicios ya sea técnica o profesional, generará relación de empleo público, con las excepciones señaladas en el artículo 67 de la misma Ley.

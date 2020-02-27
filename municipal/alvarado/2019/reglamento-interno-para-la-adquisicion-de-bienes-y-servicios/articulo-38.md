@@ -1,0 +1,1 @@
+Artículo 38.—El presente Reglamento deja sin efecto cualquier otro anterior o norma de igual o menor escala que le oponga y entrará en vigor y a regirá partir de la respectiva publicación en el Diario Oficial La Gaceta.

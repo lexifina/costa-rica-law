@@ -1,0 +1,1 @@
+Artículo 2º—Programación de adquisiciones. Una vez asignado y aprobado el presupuesto ordinario anual del Comité para el año en ejercicio, la Junta Directiva elaborará y aprobará un Plan Anual de Compras. Este plan, incluirá razonablemente, todas las compras orientadas a suplir todas las necesidades del Comité durante el año.

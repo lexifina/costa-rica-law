@@ -1,0 +1,1 @@
+Artículo 6º—No fraccionamiento de contrataciones. La Junta Directiva vigilará, razonablemente y en concordancia a la disponibilidad presupuestaria y de liquidez, que las adquisiciones de bienes y servicios que requieran dentro de su ámbito de competencia no sean fraccionadas.

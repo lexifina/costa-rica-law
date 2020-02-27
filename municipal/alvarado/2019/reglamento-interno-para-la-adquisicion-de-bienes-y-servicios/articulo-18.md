@@ -1,0 +1,1 @@
+Artículo 18.—Programación de contrataciones. El Comité Cantonal programará sus necesidades de bienes y servicios con la debida anticipación a su uso, de manera que los trámites de compra se realicen con el tiempo suficiente para adquirir los mismos en las mejores condiciones.

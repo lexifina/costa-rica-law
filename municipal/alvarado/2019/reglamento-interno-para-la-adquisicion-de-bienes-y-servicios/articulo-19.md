@@ -1,0 +1,1 @@
+Artículo 19.—Existencias en bodega. Las compras de los bienes se podrán hacer igualmente para mantener existencias en la bodega de materiales y suministros. Las existencias para esa bodega se calcularán siguiendo una metodología racional evitando así inventarios en exceso o agotamiento de existencias.

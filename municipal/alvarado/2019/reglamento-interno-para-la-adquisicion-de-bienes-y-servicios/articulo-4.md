@@ -1,0 +1,1 @@
+Artículo 4º—Dirección y supervisión de contrataciones. La Junta Directiva tendrá la dirección y supervisión de las contrataciones. Deberá consignar vía acuerdo, con amplia justificación de los motivos, el inicio de cada proceso de contratación. Igualmente deberá acordar la aprobación del cartel y la adjudicación de la contratación.

@@ -1,0 +1,1 @@
+Artículo 30.—Recibo de obras. En los supuestos de obras, éstas serán recibidas después de contar con el informe técnico en el que conste que están a satisfacción de la Junta Directiva. Para lo anterior, podrán contar con la asistencia de otros órganos de la Municipalidad o del mismo Comité Cantonal.

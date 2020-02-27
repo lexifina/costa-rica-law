@@ -1,0 +1,1 @@
+Artículo 3º—Contrataciones no incluidas en el Plan Anual de Compras. En casos especiales, de urgencia o de evidente necesidad, la Junta Directiva, previa constatación de disponibilidad presupuestaria, relación con el Plan Anual Operativo y justificación, podrá autorizar contrataciones no contempladas en el Plan Anual de Compras.
