@@ -1,0 +1,1 @@
+Artículo 3º—Principios. Todas las contrataciones que se realicen mediante el presente reglamento deberán observar los principios generales de contratación administrativa. eficiencia, eficacia, publicidad, libre competencia, igualdad, buena fe e intangibilidad patrimonial.
