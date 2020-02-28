@@ -1,0 +1,1 @@
+Artículo 18.—Debido Proceso. Para la imposición de cualquier sanción derivada del incumplimiento de lo preceptuado por este reglamento, deberá seguirse un procedimiento respetuoso de las reglas y principios del debido proceso, en particular la garantía del derecho de defensa del sancionado.

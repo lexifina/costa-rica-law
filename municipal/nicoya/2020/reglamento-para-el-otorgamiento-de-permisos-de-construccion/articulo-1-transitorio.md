@@ -1,0 +1,1 @@
+Transitorio 1º—El presente Reglamento es de carácter provisional y dejará de regir en el momento en que comience la aplicación de las reglas sobre el otorgamiento de permisos de construcción en la zona de amortiguamiento del Refugio Nacional de Vida Silvestre Ostional contenidas en el Plan Regulador del cantón de Nicoya.

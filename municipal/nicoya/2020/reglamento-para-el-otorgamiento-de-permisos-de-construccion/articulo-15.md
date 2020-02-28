@@ -1,0 +1,1 @@
+Artículo 15.—Permiso de Construcción. Una vez terminado el proceso de obtención de permiso de construcción. Se deberá mantener en sitio los planos constructivos debidamente visados y el rótulo del proyecto. Emitido por el APC del CFIA.

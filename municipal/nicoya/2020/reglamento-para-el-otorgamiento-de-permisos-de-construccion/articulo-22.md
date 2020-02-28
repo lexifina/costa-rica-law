@@ -1,0 +1,1 @@
+Artículo 22.—Responsabilidad social corporativa. La Municipalidad de Nicoya incentivará la contribución activa y voluntaria al mejoramiento social, económico y ambiental por parte de las empresas, con el objetivo, no solamente de mejorar la calidad de su ambiente y favorecer el desarrollo sostenible, sino también de promover una cultura de responsabilidad compartida.

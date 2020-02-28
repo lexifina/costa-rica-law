@@ -1,0 +1,1 @@
+Artículo 14.—Notificación. Si la Oficina de Control Constructivo encontrare correctos los planos y completa la información, se le notificará al interesado por medio del profesional responsable de la obra. Utilizando para este fin la plataforma del APC del CFIA.

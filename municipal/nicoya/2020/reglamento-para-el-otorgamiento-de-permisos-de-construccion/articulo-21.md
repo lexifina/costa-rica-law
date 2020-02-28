@@ -1,0 +1,1 @@
+Artículo 21.—Instrumentos voluntarios. La Municipalidad promoverá el cumplimiento voluntario de la legislación ambiental por parte de sus munícipes, para lo cual desarrollará instrumentos que faciliten su comprensión y adecuada aplicación.

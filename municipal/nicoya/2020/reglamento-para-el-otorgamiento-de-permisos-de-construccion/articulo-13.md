@@ -1,0 +1,1 @@
+Artículo 13.—Recursos. Contra las resoluciones que se dicten se pueden interponer los respectivos recursos de revocatoria y apelación de acuerdo con los plazos establecidos en la Ley General de la Administración Pública.

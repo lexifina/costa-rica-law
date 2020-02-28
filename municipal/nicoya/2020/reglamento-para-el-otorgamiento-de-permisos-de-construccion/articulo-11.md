@@ -1,0 +1,1 @@
+Artículo 11.—Sistemas anticolisión de aves. Tanto para el área de impacto directo como en la zona de impacto indirecto, las construcciones deben contar con sistemas de protección para evitar la colisión de las aves contra las ventanas o puertas de vidrio.

@@ -1,0 +1,1 @@
+Artículo 6º—Altura de la edificación. Para el área de impacto directo la altura de las construcciones nuevas no debe sobrepasar los nueve metros. Para el área de impacto indirecto, la altura establecida es de doce metros.

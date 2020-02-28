@@ -1,0 +1,3 @@
+CAPÍTULO IV
+De las Actuaciones Administrativas
+Artículo 12.—Defecto u omisión. Si la Oficina de Control Constructivo o el Inspector de Construcciones encontrare algún defecto u omisión o considere que algún aspecto técnico en los planos debe modificarse, se notificará al interesado a efecto de que proceda a hacer las enmiendas señaladas por medio del profesional responsable de la obra. Utilizando para este fin la plataforma del APC del CFIA. La omisión de cualquiera de los requisitos anteriores impedirá a la Municipalidad conocer la solicitud. Su tramitación se mantendrá rechazada hasta que el interesado complete la misma.

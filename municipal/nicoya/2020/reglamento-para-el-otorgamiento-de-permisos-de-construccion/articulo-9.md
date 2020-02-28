@@ -1,0 +1,1 @@
+Artículo 9º—Sistema de tratamiento de aguas. Todas las nuevas construcciones en el área de impacto directo e indirecto deben contar con sistemas de tratamiento de aguas residuales conforme a lo establecido en el reglamento N° 39887-S MINAE. Se prohíben los taques sépticos de alcantarilla artesanales.

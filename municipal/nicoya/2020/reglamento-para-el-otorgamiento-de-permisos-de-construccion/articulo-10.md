@@ -1,0 +1,1 @@
+Artículo 10.—Rotulación. Todas las construcciones deben mantener en un sitio visible frente a vía pública el rótulo de proyecto generado por la plataforma Administrador de Proyectos de Construcción (APC) del Colegio Federado de Ingenieros y de Arquitectos.
