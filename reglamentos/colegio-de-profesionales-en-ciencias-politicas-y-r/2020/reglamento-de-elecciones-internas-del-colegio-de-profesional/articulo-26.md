@@ -1,0 +1,1 @@
+Artículo 26.—Acta de declaratoria. El Tribunal levantará un acta indicando quién ganó en cada puesto de cada órgano del Colegio y la trasladará al Diario Oficial La Gaceta para anunciar la conformación de los diferentes órganos en un plazo no mayor a 10 días hábiles después de la asamblea general.

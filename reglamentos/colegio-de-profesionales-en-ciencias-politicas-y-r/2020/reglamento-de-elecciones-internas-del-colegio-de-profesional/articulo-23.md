@@ -1,0 +1,1 @@
+Artículo 23.—Propaganda. Desde el momento que se avale la candidatura para un puesto y hasta el día de la asamblea general en que se verifique la elección, los candidatos inscritos podrán promover su candidatura ante los agremiados, siguiendo las disposiciones reglamentarias que al efecto determine el Tribunal.

@@ -1,0 +1,1 @@
+Artículo 14.—Pérdida de la condición de integrantes del Tribunal Electoral. Las personas miembros del Tribunal perderán su condición, si incurren en alguna de las causales establecidas en el artículo 18 de la Ley o si se determina, por profesional competente, que sus facultades mentales son incompatibles con las responsabilidades encomendadas.

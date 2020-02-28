@@ -1,0 +1,1 @@
+Artículo 4°—Aprobación. La Asamblea General deberá aprobar esta reglamentación y cualquier reforma que se le realice. Para entrar en vigencia el Colegio deberá publicar en el Diario Oficial La Gaceta este reglamento y sus reformas.

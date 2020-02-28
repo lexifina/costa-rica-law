@@ -1,0 +1,1 @@
+Artículo 2°—Objetivo y ámbito de aplicación. El presente reglamento tiene el objetivo de detallar los procedimientos de elección de los miembros de la junta directiva, la fiscalía, el Comité de Ética Profesional y el Tribunal Electoral del Colegio de Profesionales de Ciencias Políticas y Relaciones Internacionales.

@@ -1,0 +1,1 @@
+Artículo 13.—Imparcialidad. Los miembros del Tribunal Electoral serán absolutamente imparciales en sus actuaciones. Tienen prohibido involucrarse de cualquier forma en manifestaciones proselitistas o emitir manifestaciones en favor o en contra de cualesquiera de los candidatos o candidatas de un proceso electoral.

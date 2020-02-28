@@ -1,0 +1,1 @@
+Artículo 30.—Trámite de Denuncias. Estudiadas las circunstancias e indicios incluidos en las denuncias, el tribunal podrá decidir si prosigue con la investigación de lo denunciado o, por el contrario rechaza o desestima la denuncia, para lo cual deberá notificar al denunciante la decisión adoptada. No serán recibidas y tramitadas denuncias anónimas.

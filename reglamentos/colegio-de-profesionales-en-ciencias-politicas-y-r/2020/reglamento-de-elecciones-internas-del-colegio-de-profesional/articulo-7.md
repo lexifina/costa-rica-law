@@ -1,0 +1,1 @@
+Artículo 7°—Periodo de nombramiento. Los miembros permanecerán en sus funciones dos años y podrán ser reelegidos por una única vez. El Tribunal Electoral designará de su seno una presidencia, una secretaría, una tesorería y dos vocalías.

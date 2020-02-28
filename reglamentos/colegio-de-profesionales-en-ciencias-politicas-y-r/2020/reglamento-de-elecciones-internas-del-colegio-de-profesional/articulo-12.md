@@ -1,0 +1,2 @@
+Artículo 12.—Quórum y sesiones. El Tribunal sesionará al menos una vez al mes cuando tenga asuntos por tratar y adicionalmente en las ocasiones que la Presidencia del órgano lo convoque.
+Para celebrar sus sesiones, el Tribunal requiere de un quórum de al menos tres de sus miembros. Sus acuerdos se tomarán por mayoría simple; en caso de empate el Presidente tiene voto de calidad, debiendo quedar consignado este hecho en el acta respectiva.

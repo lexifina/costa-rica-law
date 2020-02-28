@@ -1,0 +1,3 @@
+Artículo 22.—Presentación. Quienes se hayan postulado a cada puesto de cada órgano del Colegio tendrán oportunidad de presentarse ante la asamblea general cuando el tribunal habilite el espacio, de manera que expliquen sus intenciones y propuestas. Este acto podrá ser por medio de un tercero. Se dispondrá de un máximo
+de 3 minutos por postulante para su debida presentación en el caso de que el mecanismo de elección sea nominal.
+En caso de que la votación se haya acordado por papeleta, un representante de la misma dispondrá de hasta 5 minutos para hacer la presentación formal de la papeleta completa ante la asamblea general.

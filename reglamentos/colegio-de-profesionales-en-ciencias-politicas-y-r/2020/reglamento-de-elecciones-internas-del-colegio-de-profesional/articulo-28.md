@@ -1,0 +1,1 @@
+Artículo 28.—Obligatoriedad de la aplicación de lo resulto: Las resoluciones de este tribunal serán finales, salvo que se demuestre que esta fue sustentada en hechos falsos, espurios, incomprobables o que el Tribunal fue dolosamente inducido a error.
