@@ -1,0 +1,1 @@
+Artículo 3°—El domicilio legal del Comité será el cantón de Alvarado, distrito Pacayas, pudiendo variarse para casos excepcionales la sede en forma temporal previo acuerdo tomado por mayoría de dos terceras partes de los miembros de la junta directiva.

@@ -1,0 +1,1 @@
+Artículo 67.—Los colores oficiales del deporte en el cantón de Alvarado son el blanco, verde, y negro, pudiendo usar el amarillo sin perjuicio del diseño artístico y estética con los dos colores anteriores, como un complemento, ocupando hasta un 20%.

@@ -1,0 +1,8 @@
+Artículo 10.—La Junta Directiva del Comité Cantonal de Deportes y Recreación de Alvarado estará integrada por cinco miembros residentes en el cantón, nombrados para tal efecto con quince días hábiles de antelación al vencimiento del período de junta directiva saliente, de la siguiente forma:
+a) Dos miembros de nombramiento del Concejo Municipal.
+b) Dos miembros de las organizaciones deportivas y recreativas
+del cantón.
+c) Un miembro de las organizaciones comunales restantes.
+Los miembros a que se refiere el inciso a), serán de nombramiento directo del Concejo Municipal. Los mismos debe apersonarse con al menos con un mes calendario de antelación a la secretaria del Concejo Municipal, con su currículum, en el cual será deseable se demuestre experiencia en deporte y o recreación.
+Los miembros del inciso b) serán elegidos por asamblea convocada por el Comité Cantonal para tal efecto, para tal fin este estará obligado a realizar la convocatoria con ocho días hábiles previos a la mencionada Asamblea. Tal asamblea la conformaran las Asociaciones Deportivas con personería jurídica vigente y adscritas al citado Comité Cantonal mínimo treinta días naturales previos a la fecha del citado vencimiento, teniendo derecho a voto el presidente o vicepresidente de cada Asociación.
+Tal designación se realizará por la mayoría simple de los presentes.E1 miembro del inciso c) será elegido por Asamblea convocada por el Comité Cantonal, según el procedimiento establecido para los representantes del inciso b) anterior, y para tal fin la asamblea será conformada por las organizaciones comunales debidamente inscritas y vigentes, según la reglamentación respectiva.

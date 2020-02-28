@@ -1,0 +1,1 @@
+Artículo 15.—Son funciones del Vicepresidente, (a) las que se detallan enseguida: Sustituir al presidente en ausencia de éste con los mismos deberes y obligaciones. Colaborar en el cumplimiento de las obligaciones y objetivos del comité cantonal.
