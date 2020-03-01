@@ -1,0 +1,1 @@
+Artículo 23.—Regalos del personal a cargo. Las jefas y jefes judiciales no deberán aceptar regalos, invitaciones o atenciones sociales del personal a su cargo, fuera del convencionalismo social, que puedan dar motivo razonable a que un observador dude de su imparcialidad en el ejercicio de las funciones de supervisión y disciplina que les corresponden respecto a estos.

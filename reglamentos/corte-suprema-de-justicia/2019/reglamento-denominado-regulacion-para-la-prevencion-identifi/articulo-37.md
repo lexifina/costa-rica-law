@@ -1,0 +1,1 @@
+Artículo 37.—Trato a las partes. Las autoridades jurisdiccionales deben tratar por igual a las partes del proceso, sin incurrir en actos que reflejen algún tipo de favoritismo por una de ellas. La judicatura debe percibirse ante la imagen pública en todo momento independiente e imparcial.

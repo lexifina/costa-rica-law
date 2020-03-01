@@ -1,0 +1,4 @@
+Artículo 36.—Regulación de audiencias. En el ejercicio del derecho de acceso a los cargos públicos en condiciones de igualdad, toda persona tiene derecho a solicitar audiencia y a ser escuchado por la persona integrante de un órgano al que le corresponda designar en un concurso público.
+No se podrá hacer ningún tipo de discriminación injustificada entre quienes soliciten audiencia, la que deberá concretarse a la presentación de atestados y a dar a conocer las capacidades e interés en el concurso, todo ello con el fin de que se pueda adoptar una decisión informada.
+La reunión se realizará en el despacho de la persona funcionaria decisora y se dejará constancia del motivo de la visita en la agenda de cada despacho.
+Ningún jerarca institucional podrá negar injustificadamente una audiencia, cuando el tema por tratar esté relacionado con el gobierno judicial o sea de alto interés público.

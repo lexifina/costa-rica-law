@@ -1,0 +1,2 @@
+Artículo 46.—Deber de seguimiento por parte de los órganos competentes. Será responsabilidad del jerarca y de los titulares subordinados establecer, mantener, perfeccionar y evaluar las medidas de control que sean necesarias para el cumplimiento de este Reglamento, así como su adecuado seguimiento.
+La Auditoría Interna deberá contemplar dentro de su universo auditable la fiscalización de las actuaciones de los responsables de esta normativa.

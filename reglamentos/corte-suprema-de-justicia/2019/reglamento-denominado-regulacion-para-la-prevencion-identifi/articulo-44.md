@@ -1,0 +1,1 @@
+Artículo 44.—Consulta e interpretación y aplicación. Le corresponde a la Oficina de Cumplimiento adscrita a la Comisión de Transparencia, sin perjuicio de las competencias de la Corte Plena y del Consejo Superior del Poder Judicial, evacuar por escrito las consultas que se formulen sobre la interpretación y aplicación de este reglamento.

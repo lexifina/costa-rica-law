@@ -1,0 +1,1 @@
+Artículo 34.—Prohibición de lobby para acceder a cargos. Las personas servidoras del Poder Judicial tienen prohibido hacer lobby político, recomendar, promover o censurar a terceros ante la Asamblea Legislativa, directa o indirectamente, para la designación de magistradas y magistrados propietarios y suplentes.

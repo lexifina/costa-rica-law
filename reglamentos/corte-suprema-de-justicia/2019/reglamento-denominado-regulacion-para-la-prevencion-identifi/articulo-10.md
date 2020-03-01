@@ -1,0 +1,1 @@
+Artículo 10.—Deber de denunciar. Todo el personal del Poder Judicial deberá estar atento y denunciar, ante el nivel superior jerárquico o ante la autoridad competente, las situaciones de conflicto de intereses que afecten a otras personas servidoras judiciales, en el sentido regulado en este reglamento.

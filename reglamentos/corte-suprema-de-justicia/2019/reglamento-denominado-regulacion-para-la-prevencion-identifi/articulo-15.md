@@ -1,0 +1,1 @@
+Artículo 15.—Ejemplo de la clase gerencial y jefaturas. Las personas funcionarias de la clase gerencial y las jefaturas, deberán dar el ejemplo personal al organizar sus intereses privados de manera que quede protegida su propia reputación de integridad y la de la institución.

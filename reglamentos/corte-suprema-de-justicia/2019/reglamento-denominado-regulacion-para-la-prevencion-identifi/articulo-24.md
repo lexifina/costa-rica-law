@@ -1,0 +1,1 @@
+Artículo 24.—Prohibición de realizar actividades privadas incompatibles. Las personas servidoras judiciales no deberán ofrecer o desempeñar trabajos o actividades privadas, remuneradas o no, que comprometan su imparcialidad, posibiliten un conflicto de interés o contra sus deberes y responsabilidades en la función pública.
