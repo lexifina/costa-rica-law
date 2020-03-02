@@ -1,0 +1,5 @@
+ARTÍCULO 4
+PROCEDIMIENTOS
+Las Partes conformarán un Mecanismo de Consulta Bilateral de Cooperación que se reunirá ordinariamente cada dos años, comenzando tan pronto como sea posible tras la ejecución de este Acuerdo y alternando entre Belice y Costa Rica. Las fechas serán acordadas previamente por la vía diplomática. Las Partes pueden reunirse extraordinariamente cuando las circunstancias lo requieran. Por acuerdo mutuo, las Partes pueden comunicarse a través de medios electrónicos cuando así lo requieran.
+La coordinación del presente Acuerdo, en cada uno de los países será ejecutada a través la Dirección de Cooperación Internacional del Ministerio de Relaciones Exteriores y Culto (DCI) por la Parte costarricense y la Unidad de Cooperación del Ministerio de Relaciones Exteriores y Comercio exterior de Belice.
+A los funcionarios, expertos o técnicos enviados por una de las Partes, que no sean nacionales ni extranjeros residentes en el país anfitrión se les otorgarán las facilidades acordadas por las partes y de conformidad con su legislación nacional.
