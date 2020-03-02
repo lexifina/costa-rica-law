@@ -1,0 +1,5 @@
+Artículo 2
+Implementación de Proyectos con Organizaciones
+Subordinadas y con Socios de la Soberana Orden de Malta
+2.1. Con el fin de cumplir con sus misiones, la Soberana Orden de Malta ejecutará acciones directamente o a través de sus organizaciones subordinadas. Las organizaciones subordinadas son las fundaciones, los servicios de ayuda, las asociaciones nacionales o cualquier otra institución relacionada con la Soberana Orden de Malta y establecida con el objeto de cumplir con sus propósitos, tal como la Asociación Nacional o Malteser International, su agencia de ayuda mundial. Estas organizaciones subordinadas actúan en el marco de sus competencias; por lo tanto, pueden establecer convenciones específicas que se enmarquen dentro de ellas.
+2.2. La República de Costa Rica le concederá a la Soberana Orden de Malta y a sus organizaciones subordinadas el derecho de reemplazar o contratar a cualquier persona física o jurídica para asegurar la ejecución correcta de los programas y proyectos.

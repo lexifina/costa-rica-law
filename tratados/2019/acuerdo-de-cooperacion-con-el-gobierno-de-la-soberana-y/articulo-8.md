@@ -1,0 +1,4 @@
+Artículo 8
+Comité de evaluación
+8.1. Con el fin de garantizar un seguimiento adecuado de la cooperación, se creará un Comité de Evaluación para examinar y elegir los proyectos y planes de cooperación para alcanzar los objetivos establecidos en el presente Acuerdo. A tal efecto, el Comité preparará informes anuales de los resultados obtenidos de los Proyectos realizados y establecerá Proyectos y Programas para implementar en el futuro.
+8.2. El Comité de Evaluación estará compuesto por dos representantes de cada una de las Partes Contratantes. Sus miembros serán seleccionados por la Dirección de Cooperación Internacional del Ministerio de Relaciones Exteriores y Culto, en el caso de la República de Costa Rica y en el caso de la Soberana Orden de Malta por el embajador de la Soberana Orden de Malta ante la República de Costa Rica. Este comité se reunirá al menos una vez al año según la iniciativa de cualquiera de las Partes Contratantes.
