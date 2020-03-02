@@ -148,7 +148,7 @@ Centro educativo Bilingüe San Rafael | Alajuela | Atenas
 Instituto Preescolar Dulces Chiquitines | San José | San José
 Kinder Metodista Jerusalén | San José | San José
 Kindergarten el Sol Brillante | San José | Curridabat
-Escuela el Castillo | Alajuela | Alajuela
+(Derogada la Escuela El Castillo por el artículo 1° del decreto ejecutivo N° 42338 del 2° de marzo del 2020) | (Derogado por el artículo 1° del decreto ejecutivo N° 42338 del 2° de marzo del 2020) | (Derogado por el artículo 1° del decreto ejecutivo N° 42338 del 2° de marzo del 2020)
 C) De Preescolar y I Ciclo
 Centro de Estimulación y Educación al Niño | San José | Vásquez de Coronado
 Centro Educativo Valle verde de Atenas | Alajuela | Atenas
@@ -177,7 +177,7 @@ Escuela Niño Jesús de Praga | San José | San José
 Escuela Bilingüe Santo Tomas de Aquino | Cartago | Cartago
 Saint Anthony School | San José | Moravia
 Primaria Santi Spiritus | Puntarenas | Esparza
-Escuela Cempa | Guanacaste | Abangares
+(Derogada la Escuela CEMPA por el artículo 2° del decreto ejecutivo N° 42338 del 2° de marzo del 2020) | (Derogado por el artículo 2° del decreto ejecutivo N° 42338 del 2° de marzo del 2020) | (Derogado por el artículo 2° del decreto ejecutivo N° 42338 del 2° de marzo del 2020)
 Escuela Victoria | San José | Montes de Oca
 Instituto de Psicopedagogía Integral Aprender para crecer | San José | Moravia
 Colegio San Gregorio | Cartago | Cartago
