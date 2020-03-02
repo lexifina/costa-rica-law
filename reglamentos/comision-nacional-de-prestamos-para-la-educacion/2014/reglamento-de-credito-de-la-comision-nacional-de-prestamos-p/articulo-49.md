@@ -1,5 +1,6 @@
-ARTÍCULO 49: POLIZA DE INCENDIO Y TERREMOTO DE EDIFICACIONES DADAS EN GARANTIA HIPOTECARIA. CONAPE exigirá al solicitante que asegure y presente el documento respectivo de la póliza de incendio y terremoto sobre las edificaciones, cuando el valor del terreno ofrecido en garantía hipotecaria, sea menor a los porcentajes establecidos en este reglamento.
-a. Dicha póliza debe cubrir el valor del inmueble dado en garantía, salvo casos excepcionales que aprobará el Comité de Crédito de CONAPE.
+Artículo 49.—Póliza de incendio y terremoto de edificaciones dadas en garantía hipotecaria. CONAPE exigirá al solicitante que asegure y presente el documento respectivo de la póliza de incendio y terremoto sobre las edificaciones, cuando el valor del terreno ofrecido en garantía hipotecaria, sea menor a los porcentajes establecidos en este reglamento.
+a. Dicha póliza debe cubrir el inmueble dado en garantía, salvo casos excepcionales que aprobará el Comité de Crédito de CONAPE.
 b. La póliza deberá tener una acreencia a favor de CONAPE por el monto aprobado del crédito, más el 50%, salvo casos excepcionales que analiza y recomienda la Jefatura de la Sección de Análisis y Gestión de Crédito al Comité de Crédito.
+c. Cuando la garantía hipotecaria incluya construcciones o edificaciones, la póliza deberá incluir las coberturas de los desastres naturales que el perito indique en su reporte, minimizando con ello los riesgos asociados para CONAPE.
 (Corrida su numeración mediante sesión N° 13-2018 del 16 de abril del 2018 que lo traspasó del antiguo 50 al 49. Lo anterior ya que en dicha sesión se ordena derogar el artículo 29 original y correr la numeración de los siguientes)
-(Así reformado mediante sesión N° 07-2019 del 25 de febrero del 2019)
+(Así reformado mediante sesión N° 08 del 2 de marzo del 2020)

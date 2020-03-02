@@ -1,15 +1,17 @@
-(*)ANEXO 7: REQUISITOS PARA EL SOLICITANTE SEGÚN NIVEL DE ESTUDIOS
-Podrán ser sujetos de crédito personas asalariadas y no asalariadas que cumplan los requisitos establecidos por CONAPE. En el caso de las asalariadas, la constancia salarial debe indicar que está libre de embargos.
+(*)Anexo 7: Requisitos para el solicitante según nivel de estudios. Podrán ser sujetos de crédito personas asalariadas y no asalariadas que cumplan los requisitos establecidos por CONAPE. En el caso de las asalariadas, la constancia salarial debe indicar que está libre de embargos.
 La solicitud de préstamo debe incluir fotocopia legible por ambos lados de la cédula de identidad de:
-ü Solicitante del préstamo.
-ü Del encargado o quien tenga la patria potestad, en caso de que el solicitante sea menor de edad.
-ü Del apoderado generalísimo cuando corresponda.
+Solicitante del préstamo.
+Del encargado o quien tenga la patria potestad, en caso de que el solicitante sea menor de edad.
+Del apoderado generalísimo cuando corresponda.
 Según la garantía ofrecida,
-ü Del fiador (es).
-ü Del propietario(s) de bienes inmuebles a hipotecar o del representante legal en caso de ser persona jurídica.
-ü De la persona quien registra a su nombre el título valor a dar en garantía.
-Se establece en todos los niveles de estudio que los nuevos solicitantes de préstamo (no incluye ampliaciones) y cambios de carrera en préstamos aprobados, realicen un test de autoevaluación vocacional e intereses profesionales establecido por CONAPE, mediante el cual se determinarán las aptitudes de un estudiante para una determinada carrera. Para cambios de carrera en préstamos aprobados, el resultado del test será vinculante para la aprobación o no de los mismos.
-(*) (Así reformado en sesión N° 29 del 13 de noviembre del 2019)
+Del fiador (es).
+Del propietario(s) de bienes inmuebles a hipotecar o del representante legal en caso de ser persona jurídica.
+De la persona quien registra a su nombre el título valor a dar en garantía.
+Previo a la aprobación de una nueva solicitud de préstamo, el solicitante deberá aportar comprobante original con el número de cuenta de ahorros en colones extendido por cualesquiera de los Bancos autorizados por CONAPE para depositar los desembolsos del crédito.
+Se establece en todos los niveles de estudio que los nuevos solicitantes de préstamo (no incluye ampliaciones) y cambios de carrera en préstamos aprobados, realicen un test de autoevaluación vocacional e intereses profesionales establecido por CONAPE, mediante el cual se determinarán las aptitudes de un estudiante para una determinada carrera.
+Para cambios de carrera en préstamos aprobados, el resultado del test será vinculante para la aprobación o no de los mismos.
+Los requisitos y documentos para solicitar el préstamo son:
+(*) (Así reformado en sesión N° 08 del 2 de marzo del 2020)
 1. Para cursos, programas, carreras técnicas, pregrados y grados en Costa Rica el solicitante deberá presentar:
 a. El solicitante debe abrir o tener una cuenta de ahorros en colones en cualesquiera de los Bancos con los que CONAPE haya suscrito un convenio para tales efectos, con el fin de depositar en dicha cuenta los desembolsos del crédito. El solicitante debe presentar a CONAPE el comprobante original con el número de cuenta extendido por el Banco, como requisito indispensable para autorizar el desembolso. (En casos de excepción, CONAPE podrá autorizar otro mecanismo de emisión de los desembolsos1).
 1 El comprobante podrá ser presentado por el solicitante cuando entrega la solicitud de préstamo o en la fase de formalización del contrato de crédito para estudios, para su correspondiente foliado.
@@ -21,9 +23,9 @@ i. Constancia de salario extendida por el patrono, si es asalariado.
 ii. En presencia de ingresos por ejercicio libre de la profesión o ingresos por actividades propias, deberá presentar una Certificación de Ingresos o Estudio de Ingresos, según corresponda, extendida por un Contador Público Autorizado.
 Para efectos del análisis del crédito, se considerará el ingreso menor reportado (ingreso neto) entre el documento extendido por el Contador Público Autorizado y la última Declaración de la Renta (renta neta), en caso de que se requiera solicitar de manera adicional.
 iii. Cuando el ingreso provenga de una pensión u otro ingreso, deberá de presentar el documento correspondiente emitido por la entidad respectiva.
-e. e. Fotocopia legible del título de bachiller en educación secundaria o certificación extendida por el colegio en el que obtuvo el título, firmada por el Director del colegio y por el Asesor Supervisor o el Director Regional. Se eximen de este requisito a los solicitantes que realicen estudios en el INA, cuando ese instituto no lo establezca como requisito y a los estudiantes en programas de Educación técnica y formación Dual cuando no sea requisito para su matrícula. Si el solicitante ha obtenido otros títulos de bachillerato o licenciatura universitaria, deberá presentar únicamente las fotocopias legibles del título o las Certificaciones extendidas por la entidad educativa correspondiente.
+e. Fotocopia legible del título de bachiller en educación secundaria o certificación extendida por el colegio en el que obtuvo el título, firmada por el Director del colegio y por el Asesor Supervisor o el Director Regional. Se eximen de este requisito a los solicitantes que realicen estudios en el INA, cuando ese instituto no lo establezca como requisito y a los estudiantes en programas de Educación técnica y formación Dual cuando no sea requisito para su matrícula. Si el solicitante ha obtenido otros títulos de bachillerato o licenciatura universitaria, deberá presentar únicamente las fotocopias legibles del título o las Certificaciones extendidas por la entidad educativa correspondiente.
 El estudiante que haya obtenido el bachillerato en alguno de los programas de la Educación Abierta que no presente la copia del título de Bachiller en educación secundaria, debe presentar la Certificación extendida por el Departamento de Evaluación Académica de la Dirección de Gestión y Evaluación de la Calidad del Ministerio de Educación Pública.
-(Así reformado el inciso e) en sesión N° 29 del 13 de noviembre del 2019)
+(Así reformado el inciso anterior mediante sesión N° 29-2019 del 13 de noviembre de 2019)
 f. Si va a iniciar la carrera:
 i. Certificación de notas firmada por el Director del Colegio y por el Asesor Supervisor o el Director Regional.
 ii. O fotocopia del Informe al Hogar.

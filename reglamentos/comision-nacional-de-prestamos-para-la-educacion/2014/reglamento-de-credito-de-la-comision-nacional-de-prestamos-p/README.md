@@ -20,3 +20,4 @@ Reglamento de Crédito de la Comisión Nacional de Préstamos para la Educación
 | 5 | 2019-10-14 | Reglamento 27 (2019-10-14) |
 | 6 | 2019-11-13 | Reglamento 29 (2019-11-13) |
 | 7 | 2019-12-09 | Reglamento 32 (2019-12-09) |
+| 8 | 2020-03-02 | Reglamento 8 (2020-03-02) |
