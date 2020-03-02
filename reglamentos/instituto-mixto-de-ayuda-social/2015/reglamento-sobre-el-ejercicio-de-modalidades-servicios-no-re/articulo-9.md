@@ -1,1 +1,0 @@
-Artículo 9: Propiedad intelectual. Los productos que se generen en virtud de las labores que realicen las personas estudiantes en el ejercicio de las modalidades no remuneradas de servicio, serán propiedad del IMAS, en apego a lo que en esta materia establezca el marco jurídico costarricense.

@@ -1,2 +1,0 @@
-Capítulo IV. Terminación
-Artículo 16. Terminación. El cese de la vinculación entre el estudiante y el IMAS podrá verificarse por la conclusión satisfactoria del convenio, por renuncia del estudiante, o por indicación formal de la Institución Educativa, por la revocación de la autorización para ejecutar la modalidad por incumplimiento de los deberes por parte del estudiante o por razones de interés institucional. La comunicación formal entre las partes dará por terminadas las obligaciones mutuas.
