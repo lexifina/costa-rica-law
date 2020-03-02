@@ -1,0 +1,1 @@
+Artículo 10.—Aprobación: El empleador posee la potestad de aprobar la aplicación del Programa de Teletrabajo a aquellos colaboradores que cumplan con los requisitos establecidos mediante este Reglamento, no obstante; la Comisión de Teletrabajo deberá determinar la duración y la periodicidad del beneficio del teletrabajo.

@@ -1,0 +1,2 @@
+Artículo 2º—Ámbito de aplicación: El alcance del presente Reglamento es de acatamiento obligatorio para todos los colaboradores de Correos que laboren o lleguen a laborar en la modalidad de teletrabajo. También será de aplicación para aquellos colaboradores que tengan a su cargo personal que labore bajo dicha modalidad.
+Quedan excluidas de la aplicación de la presente regulación, aquellas labores que no estén sujetas a una relación laboral.

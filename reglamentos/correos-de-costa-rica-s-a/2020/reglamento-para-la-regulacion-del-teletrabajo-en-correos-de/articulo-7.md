@@ -1,0 +1,18 @@
+Artículo 7º—Características esenciales del teletrabajo:
+Para los efectos de este Reglamento, son características esenciales del teletrabajo las siguientes:
+a) Se ejecuta fuera del centro habitual de trabajo, sin afectar las necesidades de coordinación, reuniones o de atención de usuarios.
+b) Se utilizan recursos tecnológicos para la prestación de los servicios y la comunicación.
+c) Está sujeto al cumplimiento de metas, objetivos y entrega de los productos previamente indicados por la jefatura inmediata de la persona telecolaboradora. El seguimiento, control y la evaluación de los telecolaboradores, serán realizados por la jefatura inmediata. La eficiencia y cumplimiento de las labores encomendadas se medirá de acuerdo con el resultado esperado, en cuanto a calidad, cantidad y plazo de entrega, según los informes que al efecto presentará el telecolaborador. Las mediciones señaladas deben estar debidamente descritas y claras, de forma previa a la ejecución del teletrabajo.
+d) La persona telecolaboradora debe estar disponible, en lo referente a tiempo y desplazamiento, de acuerdo con lo que se establece en este Reglamento o en el acuerdo específico que se suscriba en cada caso particular.
+e) Es voluntario para ambas partes, salvo que dicha modalidad haya sido implementada desde el inicio de la relación laboral. Cuando el teletrabajo no forma parte de la descripción inicial de las funciones del puesto, se deberá suscribir conjuntamente con el colaborador un acuerdo, en el que se establecerá la información con las condiciones necesarias para la realización de sus funciones bajo esta modalidad de trabajo.
+f) El puesto que ocupe la persona colaboradora debe estar autorizado para ejercer esta forma de trabajo, según lo establezca la Gerencia de Recursos Humanos. La persona telecolaboradora debe reunir habilidades y competencias definidas por Recursos Humanos (en el perfil del puesto) y además poseer habilidades para trabajar bajo poca supervisión, para el alcance de objetivos que deben ser determinadas por la jefatura inmediata.
+g) No genera a favor del colaborador un derecho adquirido a continuar desarrollando su trabajo bajo esta modalidad de manera indefinida.
+h) No requiere de supervisión presencial o física para su ejecución.
+i) La persona telecolaboradora tiene los mismos derechos y obligaciones que el resto del personal de Correos de Costa Rica.
+j) Se excluyen de esta modalidad las actividades o las funciones que por su naturaleza o por condición empresarial deban realizarse presencialmente.
+k) No procede el pago de tiempo extraordinario.
+l) En la modalidad de teletrabajo no se aplica el pago de viáticos.
+m)El horario de la persona telecolaboradora, se apegará a lo establecido en el contrato laboral o acción de personal, en caso de modificaciones de horario o horario flexible, acorde a lo establecido en las políticas laborales vigentes y dentro de los límites de la Ley N° 2, Código de Trabajo, de 27 de agosto de 1943, en lo que respecta a la jornada laboral.
+n) No podrá utilizarse el teletrabajo como medio para propiciar tratos discriminatorios en perjuicio de las personas trabajadoras. Las personas teletrabajadoras tienen el mismo acceso a la formación y a las oportunidades de desarrollo que sus homólogos, que laboran en las instalaciones físicas de la Empresa.
+o) En los casos en que la modalidad de teletrabajo sea una condición acordada desde el inicio de la relación laboral, la persona telecolaboradora no podrá exigir posteriormente realizar su trabajo en las instalaciones físicas de la Empresa, a no ser que las partes de común acuerdo modifiquen lo inicialmente pactado.
+p) La persona telecolaboradora estará protegida por la póliza de riesgos del trabajo, de acuerdo con la ley.

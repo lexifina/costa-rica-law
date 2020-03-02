@@ -1,0 +1,1 @@
+Artículo 6º—Implementación: El teletrabajo podrá implementarse por necesidad de Correos, siempre y cuando las clases de puestos lo permitan, y los colaboradores cumplan los requisitos necesarios que se detallan en el presente Reglamento. La solicitud de Teletrabajo que pueda presentar el personal dependerá de la aprobación por escrito de la Empresa.

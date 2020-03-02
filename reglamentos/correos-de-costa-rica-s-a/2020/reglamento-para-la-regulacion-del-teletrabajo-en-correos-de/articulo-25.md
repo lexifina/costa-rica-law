@@ -1,0 +1,1 @@
+Artículo 25.—Si el cliente comercial de Correos cumple con lo estipulado en el artículo 20 de este Reglamento, deberá hacer formal la solicitud para su implementación, adicionando aparte de la normativa interna con la que se cuenta, las razones de la población seleccionado y fin del mismo.

@@ -1,0 +1,4 @@
+SECCIÓN IV
+Requisitos y obligaciones de los colaboradores
+durante el teletrabajo
+Artículo 15.—Ingreso a la modalidad del teletrabajo. Para establecer una relación de teletrabajo regida por los principios de la presente ley, el empleador y el telecolaborador deberán suscribir un contrato de teletrabajo, el cual estará sujeto a esta norma y a las demás disposiciones que rigen el empleo en Costa Rica. En dicho contrato, deberá especificarse en forma clara y detallada las condiciones en que se ejecutarán las labores, las obligaciones, los derechos y las responsabilidades que deben asumir las partes. Serán elegibles para realizar teletrabajo, aquellos colaboradores que hayan demostrado buen desempeño, adecuados indicadores de productividad y competencias como responsabilidad y cumplimiento de objetivos bajo poca o mínima supervisión. Todo lo anterior, será debidamente revisado por la Gerencia de Recursos Humanos.
