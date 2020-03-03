@@ -1,0 +1,2 @@
+Transitorios:
+1) La presente reforma entrará a regir a partir de su publicación en el Diario Oficial La Gaceta, aquellas personas que a la entrada en vigencia de la reforma cuenten con un seguro por el Estado definitivo, mantendrán dicho beneficio hasta que venza su período de vigencia; una vez vencido dicho plazo, la persona deberá solicitar el beneficio ajustándose a las condiciones de la reforma.
