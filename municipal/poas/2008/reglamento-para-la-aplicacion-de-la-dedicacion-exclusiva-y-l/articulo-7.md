@@ -1,5 +1,5 @@
 CAPÍTULO IV
 Del procedimiento para acogerse al régimen
 de prohibición y/o dedicación exclusiva
-Artículo 7º—Para acogerse a la prohibición o dedicación exclusiva, el interesado deberá presentar a la Alcaldía la solicitud y aportar la documentación requerida, de ser aceptada la solicitud por parte de la Alcaldía, el profesional deberá suscribir un contrato con la Municipalidad, comprometiéndose a prestar servicios en forma exclusiva para el Municipio y no ejercer de manera particular ninguna profesión que ostente. A cambio de ello el beneficiario recibirá una compensación económica tal y como se indica en el Artículo 5° de este reglamento.
-(Así reformado mediante sesión N° 165 del 22 de junio del 2009).
+Artículo 7º—Para acogerse a la dedicación exclusiva, el interesado deberá presentar a la Alcaldía la solicitud y aportar la documentación requerida. La Administración deberá acreditar mediante resolución administrativa razonada y debidamente justificada, la necesidad institucional para suscribir el contrato, asegurar el contenido económico presupuestario y contar con la aprobación del Concejo Municipal; de ser aceptada la solicitud, el profesional deberá suscribir un contrato con la Municipalidad, comprometiéndose a prestar servicios en forma exclusiva para el Municipio y no ejercer de manera particular ninguna profesión que ostente. A cambio de ello el beneficiario recibirá una compensación económica tal y como se indica en el artículo 5º de este reglamento.
+(Así reformado mediante sesión ordinaria N° 201-2020 del 3 de marzo del 2020)
