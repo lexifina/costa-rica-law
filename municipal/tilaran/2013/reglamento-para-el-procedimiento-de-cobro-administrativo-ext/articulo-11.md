@@ -1,1 +1,0 @@
-Artículo 11.—Sanciones por Incumplimiento en caso de incumplimiento por parte de los funcionarios en algunas de las acciones contempladas en éste Reglamento se procederá de conformidad con el Reglamento Autónomo de Organización y Servicio.

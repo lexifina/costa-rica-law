@@ -1,1 +1,0 @@
-Artículo 24.—Informes y su Contenido: Los informes generados por la Unidad de cobros serán responsabilidad del Encargado (a) de cobros y remitidos al Coordinador del Proceso de Hacienda y a la Alcaldía.

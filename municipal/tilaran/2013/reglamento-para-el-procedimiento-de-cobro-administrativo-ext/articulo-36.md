@@ -1,3 +1,0 @@
-CAPÍTULO V
-De las Tasas, Tarifas e Impuestos
-Artículo 36.—Servicios e impuestos Municipales Sujetos a Cobro. Los impuestos sujetos a cobro son todos los impuestos de Ley de competencia municipal. Los servicios municipales sujetos a cobro son: recolección de residuos sólidos, aseo de vías, derechos de inhumación y exhumación, mantenimiento de cementerio, mantenimiento de parque y cualquier otro que la municipalidad brinde. Además, están sujetas a cobro las certificaciones del registro público, y las omisiones de los dueños sobre el mantenimiento de la propiedad como limpieza de lotes, u otros establecidos en el artículo 75 del código municipal.

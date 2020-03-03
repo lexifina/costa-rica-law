@@ -1,1 +1,0 @@
-Artículo 55.—De la contratación: Los abogados externos que por alguna razón personal o profesional, quieran dejar de servir a la Municipalidad, deberán de comunicar esa decisión expresamente y por escrito a la Alcaldía Municipal, con treinta días naturales de antelación, nota de la cual la alcaldía remitirá una copia a la Coordinación de Hacienda.
