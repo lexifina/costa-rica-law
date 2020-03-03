@@ -1,0 +1,1 @@
+Artículo 6º—Uso y destino: Los bienes exentos mediante la exención concreta o genérica deben ser de USO exclusivo en humanos y consumidos en territorio Nacional, no se deben utilizar para la fabricación y/o comercialización de bienes a exportar.

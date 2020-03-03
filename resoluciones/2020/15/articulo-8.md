@@ -1,0 +1,1 @@
+Artículo 8º—Plazo para Resolver: Una vez constatado el cumplimiento de los requisitos legales vigentes señalados, el Departamento de Gestión de Exenciones deberá emitir la autorización correspondiente. Para los efectos se deben considerar los plazos previstos en el artículo 102 del Código de Normas y Procedimientos Tributarios.
