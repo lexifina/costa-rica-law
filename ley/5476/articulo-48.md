@@ -8,6 +8,8 @@ Artículo 48- Divorcio. Causales. Será motivo para decretar el divorcio:
 5) La separación judicial por un plazo no menor de un año, si durante ese lapso no ha mediado reconciliación.
 6) La ausencia del cónyuge legalmente declarado.
 7) La separación de hecho por un plazo no menor de tres años.
+8) La solicitud de una de las partes ante la incompatibilidad de caracteres para poder hacer vida en común, después de transcurridos seis meses contados a partir de la celebración del matrimonio.
+(Así adicionado el inciso anterior por el artículo 1° de la Ley para la reivindicación de la autonomía de la voluntad en el proceso de divorcio, N° 9823 del 3 de marzo de 2020)
 También, podrá decretarse el divorcio por el mutuo consentimiento de los cónyuges, para lo cual estos, personalmente o uno solo de ellos por medio de un apoderado especialísimo dado en escritura pública, deben otorgar un convenio de divorcio en escritura pública que contenga los siguientes puntos:
 a) A quien corresponde la custodia personal de los hijos comunes menores de edad.
 b) Cuál de los cónyuges asume la obligación de alimentar a dichos hijos y la proporción en que se obligan.
