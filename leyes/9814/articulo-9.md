@@ -1,0 +1,4 @@
+ARTÍCULO 9- Inspecciones anuales
+Toda vez que el permiso ha sido debidamente otorgado, los permisionarios deberán cumplir el Plan de manejo, cuyo objetivo será minimizar el impacto ambiental originado por la producción de sal y camarón.
+Para tales efectos, el Sistema Nacional de Áreas de Conservación (Sinac) deberá hacer al menos una visita anual a las áreas de aprovechamiento, para supervisar el cumplimiento del Plan de manejo. El Instituto Costarricense de Pesca y Acuicultura (lncopesca), a través del Departamento de Acuicultura, deberá realizar visitas de seguimiento técnico, según se establezca en el contrato con la empresa acuícula, de conformidad con la Ley 8436, Ley de Pesca y Acuicultura, de 25 de abril de 2005.
+Los entes mencionados en el párrafo anterior, según el ámbito de sus competencias, podrán brindar, mediante oficio fundamentado, las recomendaciones que consideren oportunas para mejorar y facilitar la implementación del Plan de manejo.
