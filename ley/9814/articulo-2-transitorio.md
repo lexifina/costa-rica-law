@@ -1,0 +1,2 @@
+TRANSITORIO II- Elaboración del Plan de manejo y el Plan de manejo conjunto Todas aquellas áreas de manglar que no cuenten con un Plan de manejo, el Ministerio de Ambiente y Energía (Minae), a través del Sistema Nacional de Áreas de Conservación (Sinac), deberá elaborarlo en un plazo de doce meses. Asimismo para realizar el Plan de manejo conjunto de aprovechamiento de los recursos biológicos, entre el Minae-Sinac y el MAG-lncopesca tendrán doce meses para elaborarlo conjuntamente.
+En ambos casos, los plazos comenzarán a regir a partir de la publicación de la presente ley.
