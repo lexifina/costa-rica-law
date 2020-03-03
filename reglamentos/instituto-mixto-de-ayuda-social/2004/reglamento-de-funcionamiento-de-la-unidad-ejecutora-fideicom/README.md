@@ -17,3 +17,4 @@ Reglamento de Funcionamiento de la Unidad Ejecutora Fideicomiso BICSA- IMAS- BAN
 | 2 | 2006-07-17 | Reglamento 0 (2006-07-17) |
 | 3 | 2007-04-23 | Reglamento 0 (2007-04-23) |
 | 4 | 2014-11-20 | Reglamento 0 (2014-11-20) |
+| 5 | 2020-03-03 | Reglamento 0 (2020-03-03) |
