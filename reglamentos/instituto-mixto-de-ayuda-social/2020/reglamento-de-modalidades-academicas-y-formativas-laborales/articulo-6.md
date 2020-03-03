@@ -1,0 +1,1 @@
+Artículo 6º—Propiedad intelectual. Los productos que se generen en virtud de las labores que realicen las personas bajo las modalidades académicas y formativas laborales, serán propiedad del IMAS y órganos adscritos a éste, en apego a lo que en esta materia establezca el marco jurídico costarricense.

@@ -1,0 +1,1 @@
+Artículo 18.—De la derogatoria. Queda derogado el Reglamento sobre el ejercicio de modalidades académicas y formativas laborales en el Instituto Mixto de Ayuda Social (I.M.A.S), publicado en La Gaceta N° 40 del 03 de junio de 2015, así como cualesquiera otras normas dictadas por el Consejo Directivo que se opongan al presente Reglamento.
