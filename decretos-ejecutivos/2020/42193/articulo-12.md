@@ -1,0 +1,1 @@
+Artículo 12.—Normas supletorias. En lo no dispuesto en este decreto se aplicará lo señalado por la Ley N° 6227 del 02 de mayo de 1978, Ley General de la Administración Pública en relación con el funcionamiento de los órganos colegiados.

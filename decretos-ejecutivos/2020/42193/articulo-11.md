@@ -1,0 +1,1 @@
+Artículo 11.—Sede. La sede del CONACOT será la Casa Presidencial de la República de Costa Rica. Sin embargo, podrán sesionar en otra sede cuando así lo estime necesario y de común acuerdo entre las partes.

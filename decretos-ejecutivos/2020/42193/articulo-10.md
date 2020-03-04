@@ -1,0 +1,1 @@
+Artículo 10.—Comisiones de trabajo. El CONACOT podrá conformar comisiones de trabajo ad hoc que analicen y desarrollen temas específicos, pudiendo integrar en éstas a especialistas del sector público o privado, de acuerdo con el tema o materia a tratar.

@@ -1,0 +1,1 @@
+Artículo 9º—Recursos. Para el cumplimiento de los objetivos del CONACOT, tanto el Instituto Costarricense de Turismo como las entidades que la conforman, dentro del ámbito de sus posibilidades y marco legal respectivo, brindarán todo el apoyo logístico, económico, profesional, académico y administrativo, para su buen funcionamiento.
