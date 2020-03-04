@@ -1,0 +1,1 @@
+Artículo 4º—Toda problemática identificada susceptible de crear un Programa Social Selectivo, se gestionará ya sea ante el Área encargada de los Programas Sociales Selectivos, la Alcaldía Municipal, Concejos de Distrito, o ante el Concejo Municipal; quienes remitirán al Área encargada de los Programas Sociales Selectivos para su respectiva valoración.

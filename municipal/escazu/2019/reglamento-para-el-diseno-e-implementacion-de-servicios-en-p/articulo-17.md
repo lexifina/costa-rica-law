@@ -1,0 +1,1 @@
+Artículo 17.—Denuncias o irregularidades. De haberse planteado denuncia de alguna irregularidad, o que esta haya sido detectada por funcionario/a municipal competente, se procederá, en tutela de los fondos públicos, a suspender cautelarmente el servicio cuestionado, y a la apertura de una investigación, cuyo plazo máximo para la emisión de la resolución final será de tres meses.

@@ -1,0 +1,1 @@
+Artículo 19.—Proceso de apelación. Cualquier resolución de suspensión o de revocación del servicio, será notificada a la persona solicitante, quien podrá interponer recurso de revocatoria ante el órgano que dictó la resolución y de apelación ante la Alcaldía Municipal, los cuales deberán interponerse dentro de quinto día hábil después de notificado.

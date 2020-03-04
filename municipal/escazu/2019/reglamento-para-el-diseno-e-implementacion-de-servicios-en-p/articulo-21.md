@@ -1,0 +1,1 @@
+Artículo 21.—De los servicios. Las personas o familias pueden recibir en forma simultánea los diferentes servicios dentro de los Programas Sociales Selectivos de la Municipalidad de Escazú, según la valoración social correspondiente.

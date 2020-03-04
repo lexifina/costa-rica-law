@@ -1,0 +1,1 @@
+Artículo 15.—De la aprobación de servicios. Para la aprobación de un servicio se seguirán los lineamientos establecidos en el presente Reglamento y el o los manuales respectivos. Cuando exista un reglamento específico para el servicio brindado se tomará como prioridad.

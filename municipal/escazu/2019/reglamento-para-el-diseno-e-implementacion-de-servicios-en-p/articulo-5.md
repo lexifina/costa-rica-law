@@ -1,0 +1,1 @@
+Artículo 5º—Identificación de la problemática. El Área encargada de Programas Sociales Selectivos deberá realizar el análisis preliminar de datos, con fuentes primarias, secundarias, mapas sociales, información interna o externa, donde se evalúe la población posiblemente afectada y la posible potestad del gobierno local en atenderla.

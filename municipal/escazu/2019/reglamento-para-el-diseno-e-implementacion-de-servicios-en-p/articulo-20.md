@@ -1,0 +1,1 @@
+Artículo 20.—Del expediente. Todo servicio que reciba una persona física o jurídica, estará registrado en un expediente administrativo, físico o electrónico, individual o colectivo, que contenga la documentación que dio origen a la asignación del servicio.

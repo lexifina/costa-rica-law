@@ -1,0 +1,9 @@
+Artículo 13.—Del procedimiento de los Programas Sociales Selectivos. Cada manual de procedimiento deberá contener primordialmente:
+a. Personal designado: La designación del personal a cargo de los requerimientos que se consideren necesarios para ejecutar el servicio.
+b. Base de datos: el personal designado deberá elaborar una base de datos que contenga como mínimo: nombre completo, número de cedula, número de expediente, número telefónico, dirección del domicilio, y motivo de atención.
+c. Expediente digital o físico: El personal asignado deberá elaborar un expediente ya sea físico o digital con la información personal y familiar de la persona solicitante del servicio.
+d. Valoración socioeconómica: Toda persona que solicite algún servicio social selectivo deberá someterse a un estudio social elaborado por el personal encargado de cada área.
+e. Toda valoración social incluirá revisión en el Sistema Nacional de Información y Registro Único de beneficiarios del estado (SINIRUBE), de encontrarse desactualizada la información deberá de realizar una valoración social nueva, con el fin de actualizar datos.
+De encontrarse actualizada la información en el Sistema Nacional de Información y Registro Único de beneficiarios del estado (SINIRUBE) se utilizará como criterio de selección la certificación emitida por el sistema, priorizando condiciones de pobreza extrema, pobreza básica y vulnerabilidad social. Se hace la salvedad en casos excepcionales certificados como no pobres que quedará bajo criterio técnico la viabilidad de brindar el servicio, mediante valoración social.
+f. Evaluación: Que responda a los indicadores diseñados para cada uno de los servicios sociales selectivos.
+g. Informes técnicos de seguimiento: Se deberá efectuar un informe de los resultados de los servicios brindados, el informe debe contener datos estadísticos, por lo que se debe de mantener la base de datos actualizada.

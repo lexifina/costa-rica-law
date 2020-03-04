@@ -1,0 +1,1 @@
+Artículo 10.—Del destino del servicio. Los servicios sociales selectivos servirán de apoyos complementarios para el mejoramiento en la calidad de vida de las poblaciones con vulnerabilidad socioeconómica que residen en Escazú.

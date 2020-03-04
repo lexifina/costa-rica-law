@@ -1,0 +1,1 @@
+Artículo 8º—De la aprobación de programa. El Concejo Municipal valorará la aprobación del Programa social selectivo planteado con fundamento en los criterios técnicos y jurídicos emitidos por la Administración Municipal mediante la Alcaldía.
