@@ -1,0 +1,1 @@
+Artículo 11.—Cuando el titular de un DIE cesare en sus funciones, dicho carné deberá ser devuelto por la EARTH, en un plazo máximo de ocho días hábiles desde el cese, al departamento de Inmunidades y Privilegios.
