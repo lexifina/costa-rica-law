@@ -12,7 +12,8 @@ Artículo 4°—La Junta Directiva tendrá las facultades y atribuciones señala
 11) Emitir las directrices y acuerdos necesarios para la marcha de la Institución.
 12) En materia de viajes al exterior y permisos con y/o sin goce de salario, le corresponderá:
 a) Autorizar los permisos con y/o sin goce de salario y viaje al exterior de los funcionarios por más de un año.
-b) Autorizar los viajes al exterior de los miembros de Junta Directiva, Presidencia Ejecutiva, Gerente, Subgerente, Auditor y Subauditor.
+b) Autorizar los viajes al exterior de los miembros de Junta Directiva, Presidencia Ejecutiva, gerente, subgerente, auditor, subauditor y director jurídico.
+(Así reformado el inciso anterior en sesión N° 13 del 4 de marzo del 2020)
 c) Autorizar los permisos sin goce de salario de los funcionarios.
 13) Autorizar el otorgamiento de becas de estudios de licenciaturas, maestrías, postgrados, doctorados o especialidades de los funcionarios, que presente la Presidencia Ejecutiva, según el plan general de capacitación institucional.
 14) Encomendar a los señores miembros de la Junta Directiva, actividades y/o fiscalización en casos especiales, o comisiones especiales.
