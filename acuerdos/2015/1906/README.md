@@ -15,3 +15,4 @@ Delegación de Funciones al Defensor Adjunto de los Habitantes
 | --- | --- | --- |
 | 1 | 2015-04-29 | la propia norma |
 | 2 | 2015-09-17 | Acuerdo 1942 (2015-09-17) |
+| 3 | 2020-03-05 | Acuerdo 2279 (2020-03-05) |
