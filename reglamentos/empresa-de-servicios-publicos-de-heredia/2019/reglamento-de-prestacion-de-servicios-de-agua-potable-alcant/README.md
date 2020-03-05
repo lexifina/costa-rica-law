@@ -14,3 +14,4 @@ Reglamento de prestación de servicios de agua potable, alcantarillado sanitario
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-12-05 | la propia norma |
+| 2 | 2020-03-05 | Reglamento 0 (2020-03-05) |
