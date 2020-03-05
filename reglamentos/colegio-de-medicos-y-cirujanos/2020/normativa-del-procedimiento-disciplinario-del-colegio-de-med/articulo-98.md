@@ -1,0 +1,4 @@
+Capítulo 6. Del acto final
+Artículo 98.- Contenido del acto final. El acto final deberá ser motivado aunque sea de forma sucinta y deberá indicar expresamente una relación de los hechos que el Tribunal de Ética Médica ha tenido por probados y no probados; deberá abarcar todas las consideraciones de hecho y derecho que se han debatido en el proceso por las partes, con mención de las pruebas que se han evacuado en el expediente.
+La parte resolutiva del acto final deberá indicar si ésta es unánime o si es por mayoría de sus integrantes. En este último caso, el miembro que disienta deberá redactar con los mismos requisitos el voto de minoría.
+En caso de acreditarse los hechos investigados, la parte resolutiva deberá contener los artículos que se consideran trasgredidos, la calificación de la falta y la determinación de la sanción a imponer en caso de que proceda.

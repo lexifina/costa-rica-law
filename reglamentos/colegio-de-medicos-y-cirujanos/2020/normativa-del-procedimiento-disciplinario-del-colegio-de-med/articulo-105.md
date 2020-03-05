@@ -1,0 +1,2 @@
+Capítulo 2. De la prescripción
+Artículo 105.- Plazo de prescripción. La acción para demandar la responsabilidad de los agremiados por violación al Código de Ética Médica del Colegio de Médicos y Cirujanos y demás cuerpos normativos que regulan el correcto ejercicio de la profesión prescribirá a los cuatro años de cometida la falta. En caso de que la conducta del médico que se esté imputando haya causado una lesión o muerte, el plazo de prescripción comenzará desde la existencia de la lesión o el acaecimiento de la muerte.

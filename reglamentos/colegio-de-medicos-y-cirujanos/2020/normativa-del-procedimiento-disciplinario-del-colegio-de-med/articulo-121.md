@@ -1,0 +1,1 @@
+Artículo 121.- Recurso de reconsideración.. El recurso de reconsideración deberá interponerse, cuando así proceda, en el término de 3 días contados a partir de la notificación de la resolución de rechazo del recurso de revocatoria.

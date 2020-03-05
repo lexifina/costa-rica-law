@@ -1,0 +1,1 @@
+Artículo 61.- Resolución de apertura de la investigación preliminar. Presentada la denuncia y una vez que se ha procedido con el análisis preliminar de admisibilidad el fiscal adjunto procederá de oficio a emitir una resolución de apertura de la investigación preliminar.

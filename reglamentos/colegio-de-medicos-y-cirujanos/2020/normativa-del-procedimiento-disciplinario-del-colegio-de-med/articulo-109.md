@@ -1,0 +1,1 @@
+Artículo 109.- Adhesión.. Quien tenga derecho a recurrir podrá adherirse al recurso interpuesto por cualquiera de las partes, siempre que cumpla con los requisitos establecidos en el presente Reglamento.

@@ -1,0 +1,1 @@
+Artículo 4.- Debido proceso. Dentro del procedimiento administrativo se deberán respetar los principios generales del procedimiento y los principios del debido proceso, entre los cuales destacan la intimación e imputación, el informalismo, la oficiosidad, la proporcionalidad y la razonabilidad, la motivación y comunicación de los actos y la igualdad procesal de partes.

@@ -1,0 +1,1 @@
+Artículo 80.- Ejecución de medidas urgentes. Las medidas cautelares se ejecutarán inmediatamente y la oposición de las partes no podrá detener su ejecución cuando las medidas cautelares revistan el carácter de urgentes.

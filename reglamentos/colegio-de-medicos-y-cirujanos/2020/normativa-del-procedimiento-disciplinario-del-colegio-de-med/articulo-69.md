@@ -1,0 +1,2 @@
+Artículo 69.- Obligatoriedad del procedimiento. El procedimiento que se establece en este título será de observancia obligatoria en todo proceso disciplinario en contra de los agremiados del Colegio de Médicos y Cirujanos de la República de Costa Rica y profesionales autorizados.
+Todos los agremiados y profesionales autorizados están obligados a comparecer ante la citación a un proceso disciplinario por parte del Tribunal de Ética o la Junta de Gobierno, según corresponda la etapa del proceso.

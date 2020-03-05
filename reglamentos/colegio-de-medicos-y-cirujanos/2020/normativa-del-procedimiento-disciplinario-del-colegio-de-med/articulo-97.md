@@ -1,0 +1,1 @@
+Artículo 97.- Recursos durante las audiencias. Durante la celebración de la audiencia oral y privada únicamente será admisible el recurso de revocatoria en relación a las resoluciones que emita el Tribunal con motivo de las peticiones que realicen las partes durante la audiencia. El recurso será resuelto de inmediato.

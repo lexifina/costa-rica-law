@@ -1,0 +1,4 @@
+Artículo 20.- Recusación
+1. Cuando hubiere motivo de abstención, podrá también recusar al miembro la parte perjudicada con la respectiva causal.
+2. Toda recusación deberá ser planteada por escrito, expresando la causa en que se funde e indicando o acompañando la prueba conducente ante el Tribunal de Ética Médica. La recusación será resuelta por los miembros no recusados.
+En caso que se recuse al pleno del Tribunal de Ética Médica o a algunos de sus integrantes de forma tal que pueda resultar en falta de quorum, la solicitud se trasladará a la Junta de Gobierno para que resuelva lo que corresponda. Si las recusaciones son declaradas con lugar y el Tribunal de Ética Médica no cuenta con miembros suficientes para formar quórum, la Junta de Gobierno nombrará los miembros ad hoc necesarios para conocer el caso.

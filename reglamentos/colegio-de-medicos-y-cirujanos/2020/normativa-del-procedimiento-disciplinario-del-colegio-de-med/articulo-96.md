@@ -1,0 +1,3 @@
+Artículo 96.- Conclusiones. Concluida la recepción de toda la prueba ofrecida y declarada inevacuable la que no hubo posibilidad de hacer llegar al proceso, el Tribunal dará por finalizada esa etapa y dará a las partes denunciantes e investigados un tiempo razonable para que emitan en forma oral sus conclusiones finales.
+Una vez que las partes han finalizado sus conclusiones, la audiencia se dará por concluida y el Tribunal de Ética Médica se retirará a deliberar sobre la decisión final.
+Cuando los integrantes del Tribunal de Ética Médica lleguen a un acuerdo en cuanto a la decisión final, designaran a uno de sus miembros para la redacción del acto final y una vez listo, el Tribunal de Ética Médica lo revisara en pleno y se someterá a votación de los demás miembros.

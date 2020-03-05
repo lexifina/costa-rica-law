@@ -1,0 +1,1 @@
+Artículo 67.- Dictámenes y peritajes no son vinculantes. Los dictámenes y peritajes serán facultativos y no vinculantes tanto para el Tribunal de Ética Médica como para la Junta de Gobierno, con las salvedades de este reglamento.

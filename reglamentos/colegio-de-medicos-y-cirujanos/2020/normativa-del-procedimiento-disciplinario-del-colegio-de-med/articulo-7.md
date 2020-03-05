@@ -1,0 +1,1 @@
+Artículo 7.-De las comparecencias. Las partes tendrán derecho a una comparecencia oral y privada ante el Tribunal de Ética Médica del Colegio de Médicos y Cirujanos de Costa, nombrado al efecto, en la que se ofrecerá y recibirá toda la prueba.

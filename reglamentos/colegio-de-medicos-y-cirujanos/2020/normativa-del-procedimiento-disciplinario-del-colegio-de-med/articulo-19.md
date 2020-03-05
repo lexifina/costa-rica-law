@@ -1,0 +1,2 @@
+Artículo 19.- Abstención de miembros del Tribunal de Ética Médica. El miembro del Tribunal de Ética Médica en quien se dé algún motivo de abstención, pondrá razón de ello y lo comunicará a los demás miembros del Tribunal, quienes resolverán si el miembro que se abstiene debe continuar conociendo el proceso, o bien separarse del mismo.
+Si la abstención fuere declarada procedente, el miembro con impedimento se separará de la prosecución del caso.

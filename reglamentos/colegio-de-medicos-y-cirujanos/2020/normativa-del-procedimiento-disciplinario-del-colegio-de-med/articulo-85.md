@@ -1,0 +1,1 @@
+Artículo 85.- Rebeldía. Concluido el plazo conferido en la resolución de traslado de cargos, sin que el denunciado se haya apersonado a los autos, se declarará en estado de rebeldía, significando que el procedimiento se continuará sin su participación; sin perjuicio de que pueda apersonarse en cualquier momento, tomando el procedimiento en el estado en que se encuentre.

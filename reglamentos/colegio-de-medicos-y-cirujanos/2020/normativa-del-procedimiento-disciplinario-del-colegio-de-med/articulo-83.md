@@ -1,0 +1,1 @@
+Artículo 83.- Resolución que ordena el archivo. Contra la resolución de la Junta de Gobierno que ordena el archivo del expediente contra alguno de los investigados, cabrá el recurso de revocatoria y el recurso de reconsideración.

@@ -1,0 +1,1 @@
+Artículo 49.- Poder. El poder del denunciante podrá constituirse por los medios del derecho común, o por simple carta autenticada por un abogado, que podrá ser el mismo apoderado. No obstante, en la audiencia oral y privada podrá nombrarse abogado de viva voz y sin necesidad de formalidades.

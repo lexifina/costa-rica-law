@@ -1,0 +1,3 @@
+Artículo 36.-Prórroga de plazo. Los plazos establecidos a las partes en este Reglamento son improrrogables, sin embargo, los que otorgue el Tribunal de Ética Médica o la Junta de Gobierno a las partes para el cumplimiento de un acto, podrán ser prorrogados por dichos órganos, hasta en una mitad más, lo anterior si la parte interesada demuestra los motivos que lo aconsejen como conveniente o necesario, si no ha mediado culpa y siempre que no hay lesión de los intereses
+o derechos de la contraparte o de tercero.
+Los plazos fijados para el Tribunal de Ética Médica y la Junta de Gobierno se entenderán como ordenatorios. Sin embargo, las respuestas a las gestiones de las partes y el acto final deberán emitirse en un plazo razonable.

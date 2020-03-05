@@ -1,0 +1,1 @@
+Artículo 55.-Presentación de la denuncia. La denuncia deberá presentarse ante el Departamento de Fiscalía. Para tales efectos, el interesado deberá completar el "Formulario de Denuncia" y aportar toda la información que en él se le indique. Lo anterior sin perjuicio de que la persona denunciante adjunte otros documentos relacionados con los hechos denunciados.
