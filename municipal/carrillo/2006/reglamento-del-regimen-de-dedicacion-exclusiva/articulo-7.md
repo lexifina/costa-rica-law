@@ -1,1 +1,0 @@
-Artículo 7º—Una vez firmado el contrato, el servidor no podrá ejercer de manera remunerada o ad-honoren la profesión comprometida con dicha exclusividad, ni actividades relacionadas con esto o con su cargo, si no es con la Institución con que firmó dicho contrato, salvo las excepciones que se presentarán más adelante.

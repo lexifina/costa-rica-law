@@ -1,1 +1,0 @@
-Artículo 10.—En caso de que el servidor disfrute de un permiso sin goce de salario los efectos del contrato se suspenderán en forma temporal no obstante, a su regreso el servidor podrá seguir acogido a la Dedicación Exclusiva.
