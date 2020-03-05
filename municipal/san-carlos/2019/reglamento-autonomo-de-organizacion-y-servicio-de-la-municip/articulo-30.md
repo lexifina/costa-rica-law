@@ -1,0 +1,2 @@
+Artículo 30 La persona que concurse por oposición y cumpla con lo estipulado en el código municipal, quedará elegible si obtiene una nota mayor o igual a 70 y mantendrá esta condición por el término de un año, contado a partir del momento en que se le comunique.
+Previo informe y consulta de permutas y traslados horizontales de la persona con sus Jefes inmediatos, el o la Alcalde (sa) podrá autorizar estos movimientos, siempre que no se le cause perjuicio al personal y cuando satisfaga una necesidad real de la Municipalidad.

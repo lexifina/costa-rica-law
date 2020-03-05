@@ -1,0 +1,1 @@
+Artículo 97- No tendrán derecho del uniforme el personal que ocupe puestos en plazas de confianza, suplencias e interinos que tengan un período menor a los tres meses. Salvó mediante justificación escrita del Alcalde (sa) se incluya el personal que se encuentra nombrado en estas categorías, para dicho beneficio.

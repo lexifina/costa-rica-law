@@ -1,0 +1,2 @@
+Artículo 8°.- El o la Alcalde (sa) Municipal, es el enlace entre el Concejo Municipal y los servidores(as) de la comunidad, él o ella es el o la funcionario(a) de mayor jerarquía dentro de la institución, por lo que toda información por parte de la administración que sea dirigida al Concejo Municipal ha de ser remitida por su despacho.
+A él o ella corresponde la presentación ante el concejo de toda iniciativa y de los informes que presente la administración ante dicha instancia. En ambos casos, podrá delegar esta función de manera circunstancial o permanente.

@@ -1,0 +1,1 @@
+Artículo 23- Corresponde al alcalde(sa) Municipal, realizar nombramientos, promociones y remoción del personal municipales, con excepción del personal que dependan directamente del concejo municipal, así mismo, del personal ocasionales contratados con cargo a las partidas presupuestarias de servicios especiales o jornales ocasionales.

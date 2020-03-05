@@ -1,0 +1,1 @@
+Artículo 60- Si durante el disfrute de las vacaciones, se enferma o accidenta la persona y es incapacitado(a) para trabajar, por la Caja Costarricense del Seguro Social o el Instituto Nacional de Seguros, el periodo se interrumpe y los días que falten de disfrutar se concederán al término de la incapacidad.

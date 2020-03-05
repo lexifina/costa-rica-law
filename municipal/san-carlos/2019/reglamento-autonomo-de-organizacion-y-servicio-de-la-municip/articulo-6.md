@@ -1,0 +1,1 @@
+Artículo 6°.- Los (as) directores(as), jefaturas y todos aquellos funcionarios (as) que tengan bajo su responsabilidad, tareas de administración o supervisión de personal, son responsables ante el alcalde (sa) o vicealcalde (sa) designado, de velar por la correcta aplicación de todas las disposiciones de este reglamento.

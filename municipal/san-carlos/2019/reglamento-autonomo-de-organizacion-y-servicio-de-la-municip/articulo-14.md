@@ -1,0 +1,1 @@
+Artículo 14- Es deber de cada jefatura de las diferentes unidades administrativas de la municipalidad, enviar copia al expediente personal, de aquellas gestiones que dentro de su ámbito de competencia puedan generar actos jurídico-administrativos.

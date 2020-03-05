@@ -1,0 +1,3 @@
+Artículo 58- Las vacaciones se deberán gozar sin interrupciones salvo, cuando así lo convengan al personal municipal y siempre que se tratare de labores de índole especial, que no permitan la ausencia prolongada y la presencia se considere necesaria para la buena marcha del servicio.
+Las boletas de vacaciones serán autorizadas por las jefaturas inmediatas, quienes enviarán copia al Departamento Recursos Humanos para los registros pertinentes.
+En el caso de la Alcaldía, ésta deberá informar al Concejo Municipal, de los días que se ausentará por vacaciones. Lo anterior para efectos de que conozca su suplencia.

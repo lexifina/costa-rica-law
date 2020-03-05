@@ -1,0 +1,2 @@
+Artículo 105- Tanto la amonestación verbal como la escrita, relacionadas con aspectos disciplinarios ajenos a las faltas por inasistencia al trabajo, serán impuestas por quien funge como jefe inmediato, previo cumplimiento del debido proceso establecido en el Artículo 111 del presente reglamento.
+Las sanciones de suspensión sin goce de salario o despido, por inasistencia al trabajo corresponderá aplicarlas al o la Alcaldesa, conforme a la normativa vigente y el presente reglamento

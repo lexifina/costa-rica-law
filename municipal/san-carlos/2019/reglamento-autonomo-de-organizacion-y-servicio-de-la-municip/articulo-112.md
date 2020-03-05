@@ -1,0 +1,1 @@
+Artículo 112- El presente reglamento entrará en vigencia en la fecha de aprobación del Concejo Municipal. Se procederá a reproducir y entregar vía física o electrónica al personal municipal, incluyendo al Alcalde (sa) Municipal y será remitido a los correos electrónicos del personal.

@@ -1,0 +1,1 @@
+Artículo 62- Cuando el personal desempeñe labores técnicas o profesionales que dificulten su reemplazo, o se trate del o la Alcaldesa, podrá la Municipalidad acumularle las vacaciones por un periodo. Es obligación de la Municipalidad, el no permitir que se acumulen dos o más periodos de vacaciones.

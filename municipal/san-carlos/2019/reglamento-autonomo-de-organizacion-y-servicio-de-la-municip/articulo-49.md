@@ -1,0 +1,1 @@
+Artículo 49- Por el incumplimiento de lo dispuesto en la Ley 9028 y su Reglamento, se procederá a realizar el informe sanitario correspondiente, para que las autoridades de Salud, apliquen el procedimiento sumatorio establecido por Ley.

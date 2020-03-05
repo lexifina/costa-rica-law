@@ -1,0 +1,1 @@
+Artículo 86- Cada persona será responsable del buen uso que se le dé a las prendas. Por tanto, queda prohibido el ingreso a lugares de diversión portando el uniforme municipal, salvo en labores relativas al cargo.

@@ -1,0 +1,2 @@
+Artículo 104- Para aplicar amonestación verbal o escrita, previamente deberá concederse audiencia al o la funcionaria (a) en cumplimiento del debido proceso sumario del Libro II de la Ley General de la Administración Pública.
+En los demás casos (suspensión sin goce de salario y despido), deberá abrirse un procedimiento administrativo ordinario de conformidad con el Libro II de la Ley General de la Administración Pública, para lo cual él o la Alcalde(sa) nombrará o designará el Órgano Director que corresponda, sea unipersonal o colegiado.

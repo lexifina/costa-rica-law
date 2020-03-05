@@ -1,0 +1,1 @@
+Artículo 78- La Municipalidad es anuente en la creación de jornadas flexibles de trabajo; mismas que serán aprobadas por el o la Alcaldesa, previa solicitud del o la interesada y con la anuencia del jefe(a) inmediato. Lo señalado siempre y cuando no se vea afectado el servicio y los intereses de la institución.

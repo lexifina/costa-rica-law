@@ -1,0 +1,1 @@
+Artículo 91- En caso de que una funcionaria este embarazada se le permitirá, hacer los arreglos al uniforme, o bien utilizar piezas de vestir en color similar al uniforme para utilizarlos durante el período de embarazo. Cuando ya no sea posible modificar las prendas se le excusará del uso de uniforme por el resto del embarazo siempre y cuando mantenga la decencia y la formalidad.

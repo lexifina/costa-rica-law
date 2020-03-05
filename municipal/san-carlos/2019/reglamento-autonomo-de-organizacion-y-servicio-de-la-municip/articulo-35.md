@@ -1,0 +1,1 @@
+Artículo 35- Se establece la carrera administrativa municipal, como medio de desarrollo y promoción humano. Se entenderá como un sistema integral, regulador del empleo y las relaciones laborales entre el personal municipal y la administración municipal.

@@ -1,0 +1,1 @@
+Artículo 52- La Municipalidad debe propiciar las facilidades necesarias con el fin de que todo el personal municipal, sin discriminación alguna, puedan capacitarse y superarse en el desempeño de sus puestos.

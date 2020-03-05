@@ -1,0 +1,1 @@
+Artículo 42- El pago de salario de todo el personal se calculará y pagará en forma mensual con adelanto quincenal, depositándose en la cuenta respectiva del o la funcionaria en alguno de los bancos del Estado o Cooperativa, de existir previo contrato con las entidades financieras.

@@ -1,0 +1,1 @@
+Artículo 94- El período de duración de estas prendas de vestir, es de 1 año, después de iniciar su uso, convirtiéndose en obligatoriedad su uso dentro de la jornada laboral. Sin embargo, cuatro meses antes de cumplido este plazo de uso, se analizará la posibilidad de cambiar los mismos, si lo amerita.

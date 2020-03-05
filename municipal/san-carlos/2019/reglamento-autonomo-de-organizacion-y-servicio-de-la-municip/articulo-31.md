@@ -1,0 +1,1 @@
+Artículo 31- El personal de la municipalidad deberá pasar satisfactoriamente un periodo de prueba de tres meses de servicio, contados a partir de la fecha de vigencia del acuerdo de su nombramiento. En tiempo laborado de forma interina podrán ser computados para este efecto.

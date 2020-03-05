@@ -1,0 +1,1 @@
+Artículo 20- El personal municipal son los nombrados de acuerdo con el artículo 143 del Código Municipal y que satisfagan los requisitos que establece el manual de puestos de la municipalidad, el artículo 111 de la Ley General de la Administración Pública y lo estipulado en el artículo 136 del Código Municipal.

@@ -1,0 +1,1 @@
+Artículo 85- Los materiales con que se fabricarán las prendas, serán todos de buena calidad y se contratará su confección y compra siguiendo las disposiciones del Código Municipal y la Ley de Contratación Administrativa; a la vez acatando los estudios y criterios técnicos del área de salud ocupacional.

@@ -1,0 +1,1 @@
+Artículo 88- Al personal que se les dote de uniforme, tendrán la obligación de utilizarlo durante la jornada laboral. El uniforme debe estar siempre bien limpio, ordenado y planchado, con faldas por dentro en el caso de los hombres, y sin mangas largas redobladas.
