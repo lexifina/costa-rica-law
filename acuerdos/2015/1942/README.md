@@ -14,3 +14,4 @@ Reforma acuerdos Nos. 1906 y 1921 para ampliar los términos de la delegación d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-10-07 | la propia norma |
+| 2 | 2020-03-05 | Acuerdo 2279 (2020-03-05) |
