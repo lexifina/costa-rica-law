@@ -1,0 +1,27 @@
+MUNICIPALIDAD DE CURRIDABAT
+MODIFICACIÓN PARCIAL DEL REGLAMENTO
+PARA LICENCIAS MUNICIPALES
+Por acuerdo N° 11 que se consigna en el artículo único, capítulo 7º, del acta de la sesión ordinaria N° 200-2019, del 25 de febrero de 2020, con fundamento en el artículo 43 del Código Municipal, el Concejo de Curridabat dispone modificar el Reglamento para Licencias Municipales, en los términos siguientes: Primero: Eliminación del último párrafo del artículo 3 para que se lea así:
+“Artículo 3°—La licencia municipal para ejercer una actividad lucrativa, sólo podrá ser denegada cuando la actividad es contraria a la normativa que resulte aplicable al caso, la moral o las buenas costumbres, cuando el establecimiento no haya llenado los requisitos legales y reglamentarios, cuando la actividad en razón de su ubicación física, no esté permitida por las leyes o reglamentos vigentes, o no sea conforme con el uso del suelo de la zona de acuerdo al Plan Regulador del Cantón de Curridabat.
+Tratándose de licencias para la venta de bebidas con contenido alcohólico, no se permitirá la explotación de una patente de licores en establecimientos comerciales que pretendan realizar otras actividades lucrativas que sean excluyentes entre sí, de forma conjunta, como es el caso de “pulpería y cantina”, “bar y soda”, “bar y licorera” y similares. Este tipo de establecimientos deben ser instalados en forma totalmente independiente, con entradas independientes y con patentes y/o licencias diferentes.”
+Segundo: Modificar los artículos que se detallan a continuación, de manera que se elimine el requisito de aportar copia de la cédula de identidad o documento DIMEX (Documento de Identidad Migratoria Para Extranjeros) del solicitante o representante legal:
+Artículo 6 eliminar los incisos 1.a) y 2.b)
+Artículo 20 eliminar los incisos 1.a) y 2.b)
+Artículo 30 eliminar los incisos 1.b.1 y 1.c.2
+Artículo 52 eliminar el párrafo segundo y la parte final del párrafo tercero la frase “…y Copia de la cédula de identidad del representante legal”
+Artículo 57 inciso a) párrafo primero eliminar la frase
+“En el caso de personas físicas, deberá aportar copia de la cédula de identidad del solicitante o documento DIMEX (Documento De Identidad Migratoria Para Extranjeros) vigente y dirección física de su domicilio, y del párrafo segundo la frase “copia de la cédula de identidad del representante legal”
+Artículo 60 inciso a) primer párrafo eliminar la frase “En el caso de personas físicas, deberá aportar copia de la cédula de identidad del solicitante o documento DIMEX (Documento de Identidad Migratoria Para Extranjeros) vigente (…), y del segundo párrafo la frase “(…) copia de la cédula de identidad del representante legal (…)”
+Artículo 64 inciso a) primer párrafo eliminar la frase “En el caso de personas físicas, deberá aportar copia de la cédula de identidad del solicitante o documento DIMEX (Documento De Identidad Migratoria Para Extranjeros) vigente (…)” y del segundo párrafo la frase (…) y copia de la cédula de identidad del representante legal (…)”
+Tercero: Modificar el inciso 9) del artículo 6 del Reglamento para Licencias Municipales, de manera que se elimine el requerimiento del Informe Registral de la Propiedad donde se ubicará la actividad lucrativa, así como la copia de la cédula de identidad o documento DIMEX (Documento de Identidad Migratoria Para Extranjeros) del solicitante o representante legal para que se lea así:
+“9. Documentos a presentar del propietario registral de la propiedad en caso de que no sea el mismo que solicita la licencia comercial:
+a) Autorización del dueño de la propiedad o contrato de arrendamiento, firmas que deberán ser autenticadas por un abogado o en su defecto deberá mostrarse el documento original para ser confrontado con la copia por el funcionario de la Plataforma de Servicios. En caso de persona jurídica, aportar personería jurídica original y vigente no mayor a un mes de emitida.
+b) Estar al día en el pago de tributos y obligaciones tributarias.”
+Cuarto: Modificar el inciso 10) del artículo 6 del Reglamento para Licencias Municipales, de manera que se elimine el requerimiento de la copia del plano catastrado, para que se lea así:
+“10. Contar con certificado del uso de suelo del lugar en donde se va a desarrollar la actividad, en el cual se indica que es conforme y el respectivo visto bueno de zonificación para ejercer la actividad según el Plan Regulador Urbano del Cantón de Curridabat, a excepción de que se trate de una actividad comercial a desarrollarse en un centro comercial, oficentro o similar, de conformidad con lo establecido en el artículo 19 del presente reglamento.”
+Quinto: Modificar el artículo 23 del Reglamento para Licencias Municipales para que se lea así:
+“Artículo 23.—La municipalidad contará con un cuerpo de inspectores municipales, debidamente identificados quienes podrán realizar las visitas a aquellos locales que soliciten licencia para actividades comerciales, así como de aquellos que ya se encuentren funcionando. Este cuerpo de inspectores contará con un Encargado de Inspectores quien fiscalizará el cumplimiento debido de sus funciones.”
+Sexto: Modificar el segundo párrafo del artículo 37 del Reglamento para Licencias Municipales, para que se lea así:
+“Si la persona física o jurídica cuenta con más patentes en Curridabat o en otras municipalidades deberá presentar certificación de un contador público autorizado indicando el monto que le corresponde a cada una.”
+Rige a partir de su publicación.
+Curridabat, 27 de febrero de 2020.
