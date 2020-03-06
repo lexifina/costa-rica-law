@@ -1,33 +1,29 @@
-ANEXO 1
-CUADRO 1: Cuadro 1: Parámetros de Calidad del Agua.
+Anexo 1
+Cuadro 1: Parámetros de Calidad del Agua.
 Control Operativo (CO)
 Parámetros de aceptabilidad | Unidad | Valor de alerta (VA) | Valor Máximo Admisible (VMA)
 Turbiedad | UNT | 1,0 | 5,0
 Olor | - | Aceptable | Aceptable
-Cloro residual libre (a) | mg/L | 0,3 | 0,6 (b) (c)
-(a) ) Para el parámetro cloro residual libre, se establece rangos permisibles y no VA ni VMA.
-(b) Se permitirá valor máximo de cloro residual libre de 0,8 mg / L en no más del 20 % de las muestras medidas.
-(c) En situaciones de emergencia calificadas como tal por el Ministerio de Salud se permitirá una concentración de cloro residual libre de 0,8 mg/L en los puntos de muestreo medidos en la red de distribución.
-(Así reformado el cuadro anterior por el artículo 1° del decreto ejecutivo N° 41499 del 29 de noviembre del 2018)
-Cuadro 2: Parámetros de Calidad del Agua.
+Cloro residual libre (a) | mg/L | 0,3 | 1,0
+(a) Para el parámetro cloro residual libre, se establece rangos permisibles y no VA ni VMA.
+(Así reformado el cuadro anterior por el artículo 1° del decreto ejecutivo N° 42332 del 6 de marzo del 2020. De conformidad con el artículo 2° del decreto ejecutivo antes referido dicha modificación rige a partir de su publicación y tendrá una vigencia de 6 meses.)
+Cuadro 2: Parámetros de Calidad del Agua
 Nivel Primero (N1)
-PARAMETRO | Unidad | Valor Alerta (VA) | Valor Máximo Admisible (VMA)
+Parámetro | Unidad | Valor Alerta (VA) | Valor Máximo Admisible (VMA)
 Color aparente | U-Pt-Co | < 5 | 15(c)
 Conductividad | μS/cm | 400 | -
-Coliforme fecal | NMP/100 ml o UFC/100 ml | No detectable (c) | No detectable (c)
-Escherichia coli | NMP/100 ml o UFC/100 ml | No detectable (c) | No detectable (c)
-Cloro residual libre (a) | mg/L | 0,3 | 0,6 (d,e)
+Coliforme fecal | NMP/100 ml o UFC/100ml | No detectable (c) | No detectable (c)
+Escherichia coli | NMP/100 ml o UFC/100ml | No detectable (c) | No detectable (c)
+Cloro residual libre (a) | mg/L | 0,3 | 1,0
 Cloro residual combinado (a) (b) | mg/L | 1,0 | 1,8
 Turbiedad | UNT | 1,0 | 5,0
 Olor | --- | Aceptable | Aceptable
 Temperatura (a) | °C | 18 | 30
 pH (a) | Valor pH | 6,0 | 8,0
 (a) Para los parámetros de pH, temperatura, cloro residual libre y cloro residual combinado, se establece rangos permisibles y no VA ni VMA.
-(b))Sólo en el caso que el residual del cloro se encuentre en forma combinada o se esté dosificando cloro en la forma de cloramina (cloro-amoniaco).
+(b) Sólo en el caso que el residual del cloro se encuentre en forma combinada o se esté dosificando cloro en la forma de cloramina (cloro-amoniaco).
 (c) No detectable (N.D.): de acuerdo al límite de detección del Método.
-(d) Se permitirá valor máximo de cloro residual libre de 0,8 mg / L en no más del 20 % de las muestras medidas.
-(e) En situaciones de emergencia calificadas como tal por el Ministerio de Salud se permitirá una concentración de cloro residual libre de 0,8 mg/L en los puntos de muestreo medidos en la red de distribución.
-(Así reformado el cuadro anterior por el artículo 1° del decreto ejecutivo N° 41499 del 29 de noviembre del 2018)
+(Así reformado el cuadro anterior por el artículo 1° del decreto ejecutivo N° 42332 del 6 de marzo del 2020. De conformidad con el artículo 2° del decreto ejecutivo antes referido dicha modificación rige a partir de su publicación y tendrá una vigencia de 6 meses.)
 CUADRO 3. Parámetros de Calidad del Agua
 Nivel Segundo (N2)
 Nivel Segundo (N2) PARAMETRO | Valor de Alerta (VA) mg/L | Valor Máximo Admisible (VMA) mg/L
