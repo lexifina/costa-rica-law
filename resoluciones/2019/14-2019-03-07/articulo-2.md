@@ -1,1 +1,0 @@
-Artículo 2º—Al entrar en vigencia la presente resolución, se deja sin efecto la actualización efectuada mediante resolución número RES-DGH-0020-2018 de las trece horas del 7 de marzo de 2018, publicada en el Alcance N° 64 a La Gaceta N° 55 del 23 de marzo de 2018.
