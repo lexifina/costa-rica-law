@@ -23,3 +23,4 @@ Reglamento de Fondos Rotativos de Trabajo del Instituto Nacional de Aprendizaje
 | 8 | 2018-02-26 | Reglamento 4836 (2018-02-26) |
 | 9 | 2018-09-12 | Reglamento municipal 4863 (2018-09-12) |
 | 10 | 2019-03-11 | Reglamento 10 (2019-03-11) |
+| 11 | 2020-03-09 | Reglamento 8 (2020-03-09) |
