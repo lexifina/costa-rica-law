@@ -1,0 +1,1 @@
+Artículo 10.—En ningún caso el ejercicio de estas obligaciones podrá ser considerado como muestra de relación laboral. La condición de patrono la ejerce exclusivamente la Organización no Gubernamental contratante.

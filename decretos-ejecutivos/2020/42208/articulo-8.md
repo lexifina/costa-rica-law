@@ -1,0 +1,1 @@
+Artículo 8°—En ningún caso el personal de apoyo podrá realizar en sus horas laborales funciones propias -de la labor de la organización no gubernamental que no estén vinculadas a la gestión del SINAC.

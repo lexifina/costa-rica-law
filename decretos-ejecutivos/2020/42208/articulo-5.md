@@ -1,0 +1,1 @@
+Artículo 5°—La prioridad de contratación de los puestos para personal de apoyo, será definida por el Director(a) Ejecutivo(a) o Director del Área de Conservación según corresponda, con base en el diagnóstico de estructura ocupacional del SINAC.

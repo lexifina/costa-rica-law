@@ -1,0 +1,3 @@
+Artículo 3°—Los convenios tendrán un plazo de dos arios de vigencia y podrán ser prorrogados por tiempos iguales mientras subsista la necesidad institucional y el interés de la organización no gubernamental. La prórroga será firmada por el Director Ejecutivo bajo solicitud del Director del Área de Conservación correspondiente, la cual deberá tramitarse al menos con un mes de antelación al vencimiento del convenio. Dicha solicitud deberá adjuntar:
+a) Manifestación formal de interés de que el convenio se prorrogue, debidamente filmada por quien ostente la representación de la organización.
+b) Evaluación del convenio según los procedimientos del SINAC.

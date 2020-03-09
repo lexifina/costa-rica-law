@@ -1,0 +1,1 @@
+Artículo 11.—El personal de apoyo deberá utilizar uniforme y carnet suministrado por la Organización no Gubernamental. Dicho uniforme no podrá portar signos distintivos Oficiales de El Estado que pueda confundir al personal de apoyo con funcionarios públicos.
