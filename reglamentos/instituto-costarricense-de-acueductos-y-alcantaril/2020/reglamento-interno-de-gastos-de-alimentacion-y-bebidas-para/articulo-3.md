@@ -1,0 +1,1 @@
+Artículo 3º—Supuestos de procedencia gastos de alimentación. Se autoriza el pago de gastos de alimentación durante la celebración de las sesiones descritas en el artículo 1, siempre que estas se prolonguen por tres horas o más, y en ellas deban decidirse aspectos de relevancia institucional o de interés prioritario de los prestadores o usuarios de los servicios públicos.

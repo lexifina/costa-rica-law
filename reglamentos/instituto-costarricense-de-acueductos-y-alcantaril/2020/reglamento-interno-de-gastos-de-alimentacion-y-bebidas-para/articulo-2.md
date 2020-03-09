@@ -1,0 +1,1 @@
+Artículo 2º—Principios que atenderá el gasto. Los gastos de alimentación y bebidas atenderán a los principios de racionalidad, razonabilidad, pertinencia, austeridad y contención del gasto público, en apego a una sana administración de los recursos, al interés público y bajo responsabilidad del Despacho de Junta Directiva.

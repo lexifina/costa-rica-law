@@ -1,0 +1,1 @@
+Artículo 6º—Procedimiento para la adquisición de los productos alimenticios. Para brindar los servicios de alimentación en las condiciones descritas en el artículo 5 de este Reglamento, se recurrirá a los procedimientos de contratación administrativa, dispuestos en la Ley de Contratación Administrativa y su Reglamento.

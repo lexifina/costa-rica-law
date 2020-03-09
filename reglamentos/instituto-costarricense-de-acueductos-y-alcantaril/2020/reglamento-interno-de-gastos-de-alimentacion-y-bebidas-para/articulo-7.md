@@ -1,0 +1,1 @@
+Artículo 7º—Contratación. Corresponderá al Despacho de la Junta Directiva la elaboración de los términos de referencia para la contratación por demanda de los productos alimenticios regulados en el presente reglamento y su tramitación ante la Dirección de Proveeduría.
