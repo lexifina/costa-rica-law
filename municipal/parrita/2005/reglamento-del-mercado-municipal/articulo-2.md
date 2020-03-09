@@ -1,1 +1,0 @@
-Artículo 2º—Se denomina Mercado, para los efectos de este reglamento, los lugares construidos o destinados por la Municipalidad para servir como centro de expendio de servicio y/o abastecimiento de artículos de primera necesidad.
