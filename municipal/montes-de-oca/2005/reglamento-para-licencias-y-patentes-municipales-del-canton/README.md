@@ -14,3 +14,4 @@ Reglamento para Licencias y Patentes Municipales del Cantón de Montes de Oca
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-03-27 | la propia norma |
+| 2 | 2020-03-09 | Reglamento municipal 200 (2020-03-09) |

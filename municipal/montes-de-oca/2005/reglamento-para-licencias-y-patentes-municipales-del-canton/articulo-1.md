@@ -18,7 +18,8 @@ CAPÍTULO I
 Disposiciones generales
 Artículo 1º—Definiciones. Para los efectos de aplicación o interpretación del presente Reglamento de Patentes Municipales, cuando se empleen los términos y definiciones siguientes; deben dárseles las acepciones y significaciones que se señalan a continuación:
 ACAM: Asociación de Compositores y Autores Musicales.
-Actividades lucrativas: Se entenderá por actividades lucrativas, todas aquellas que generen directa o indirectamente ingresos a los patentados.
+Actividades lucrativas: se entenderá por actividades lucrativas, todas aquellas que generen directa o indirectamente ingresos a los patentados. Se exceptúan del ámbito de aplicación, las actividades lucrativas ejercidas por Micro Empresas de Subsistencia.
+(Así reformada la definición anterior mediante sesión ordinaria N° 200-2020 del 9 de marzo del 2020)
 Actividades promocionales: Es la propaganda o anuncios que se realizan mediante vallas, pizarras, pantallas, rótulos y similares de cualquier clase; de locales, actividades o productos.
 Actividades semiindustriales: Son aquellas en las cuales los procesos de transformación de materias primas se hace a pequeña escala, por medios artesanales o con uso de tecnologías mínimas y de baja intensidad.
 Almacenes, casas importadoras, fabricantes y distribuidores: Negocios dedicados a actividades de comercialización y distribución al mayoreo, de artículos de consumo masivo para el hogar y las personas.
@@ -55,6 +56,8 @@ Licorera o licorería: Establecimientos comerciales cuya actividad principal es 
 Menores de edad: Toda persona física menor de dieciocho años de acuerdo a lo definido por el Código de la Niñez y la Adolescencia.
 MEP: Ministerio de Educación Pública.
 Micro y pequeñas empresas: Cuando se trate de actividades lucrativas ejercidas directamente por el propietario y su núcleo familiar, o en los cuales no haya más de 10 empleados.
+Micro empresa de subsistencia: Empresa que se dedica a la actividad comercial o de servicios cuyos ingresos sean destinados a la manutención del núcleo familiar, situación que deberá ser demostrada mediante la Ficha de Información Social (FIS) y la valoración social y deberá contar con el Visto Bueno de la Oficina de Desarrollo Social de la Municipalidad de Montes de Oca otorgándose únicamente a aquellas personas que demuestren ser vecinas de nuestro cantón.
+(Así adicionada la definición anterior mediante sesión ordinaria N° 200-2020 del 9 de marzo del 2020)
 MINAE: Ministerio de Ambiente y Energía.
 MOPT: Ministerio de Obras Públicas y Transportes.
 Municipio: Lo que señala el artículo 1º del Código Municipal.
