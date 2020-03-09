@@ -1,1 +1,0 @@
-Artículo 17.—De los Inspectores de Parquímetros. La boleta de infracción será levantada por los inspectores de parquímetros e implicará el pago de la multa establecida en la ley 3580. Esta multa será impersonal, pues se levantará contra la placa del vehículo mediante el cual se cometió la infracción.

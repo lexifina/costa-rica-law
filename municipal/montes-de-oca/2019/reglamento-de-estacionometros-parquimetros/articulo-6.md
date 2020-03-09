@@ -1,1 +1,0 @@
-Artículo 6º—De la demarcación de zonas especiales. La Municipalidad demarcará, de acuerdo con los artículos 43 y 49 de la Ley 7600, zonas especiales para el estacionamiento de vehículos debidamente identificados y autorizados para el uso de estos espacios. En todo caso, estos vehículos también deberán pagar el DDE.
