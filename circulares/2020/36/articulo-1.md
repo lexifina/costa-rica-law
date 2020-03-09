@@ -1,0 +1,6 @@
+N° 36-2020
+ASUNTO: Reiteración de la obligación de las jefaturas inmediatas de notificar oportunamente al área de tecnología correspondiente, cualquier movimiento generado en relación con el personal a su cargo, así dispuesto en el “Reglamento de la Administración y el uso de los servicios Tecnológicos del Poder Judicial”.
+A TODOS LOS DESPACHOS JUDICIALES DEL PAÍS,
+SE LES HACE SABER QUE:
+El Consejo Superior del Poder Judicial en sesión N° 10-20 celebrada el 6 de febrero de 2020, artículo XV, acordó reiterar a la población judicial lo dispuesto por la Corte Plena en sesión N° 19-17 celebrada el 19 de junio de 2017, artículo III, en el “Reglamento de la Administración y el uso de los servicios Tecnológicos del Poder Judicial” sobre la obligación de las jefaturas inmediatas de notificar oportunamente al área de tecnología correspondiente, cualquier movimiento generado en relación con el personal a su cargo (ascenso, destitución, jubilación, suspensión, defunción, contratación, extensiones de permiso, solicitud de nuevas cuentas de usuarios, entre otros) para efectos de inhabilitación temporal o permanentemente; para acceder al correo electrónico e internet.
+San José, 9 de marzo del 2020.
