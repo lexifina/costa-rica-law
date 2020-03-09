@@ -1,0 +1,1 @@
+Artículo 23.—Sistema de Clasificación de documentos. El archivo Central utilizará el sistema de clasificación más apropiado según los criterios archivísticos más moderno, tanto en el Archivo Central como en los Archivos de Gestión.

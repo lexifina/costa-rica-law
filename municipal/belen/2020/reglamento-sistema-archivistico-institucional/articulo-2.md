@@ -1,0 +1,20 @@
+Artículo 2º—Definiciones. A los efectos del presente Reglamento, los conceptos que a continuación se emplean tienen el siguiente significado:
+- Archivística: Ciencia que trata lo relacionado con los archivos, en sus diferentes etapas o edades.
+- Archivo: Los archivos son las entidades y unidades administrativas de instituciones que reúnen, conservan, clasifican, ordenan, describen, seleccionan, administran y facilitan la información.
+- Archivo Central: Aquellos que tienen bajo su responsabilidad la custodia y administración en una segunda etapa de los fondos documentales de una entidad o institución.
+- Archivo de Gestión: Es el lugar donde se custodian todos los documentos producidos y recibidos por una oficina, unidad, departamento o dirección. Dentro del ciclo vital de los documentos, es el archivo de la oficina que reúne su documentación en trámite o sometida a continua utilización y consulta administrativa por las mismas oficinas. Generalmente los documentos, que se conservan en esta en esta etapa, tienen un valor legal-administrativo entre los 0 a 5 años.
+- Boleta de préstamo: Instrumento descriptivo que permite controlar el préstamo de los documentos.
+- Clasificación: Dividir o separar un conjunto de documentos estableciendo secciones, grupos o series.
+- Comisión Nacional de Selección y Eliminación de documentos: Órgano de la Dirección General del Archivo Nacional encargado de dictar las normas sobre selección y eliminación de documentos, de acuerdo con su valor científico-cultural y de resolver consultas sobre eliminación de documentos de los entes productores públicos.
+- Comité Institucional de Selección y Eliminación de Documentos: Órgano interno de la municipalidad encargado de analizar y determinar la vigencia legal y administrativa de los documentos.
+- Documento: Son los escritos, los impresos, los planos, los dibujos, los cuadros, las fotografías, las fotocopias, las cintas cinematográficas, los discos, las grabaciones magnetofónicas y en general todo objeto mueble que tenga carácter representativo o declarativo.
+- Eliminación: Procedimiento archivístico que se encarga de identificar y destruir los documentos que ya cumplieron con su vigencia administrativa-legal, conforme a los plazos establecidos en la fase de valoración. Estos documentos no cuentan con ningún tipo de valor para la Administración Pública ni la ciudadanía.
+- Fondo Documental: Es la totalidad de documentos custodiados por una oficina, organización, familia o persona,
+- Lista de Remisión: Instrumento descriptivo ya sea formularios o listas, por medio de las cuales se traslada o remite la documentación de la etapa de archivo de gestión al archivo central, cuando han cumplido su vigencia.
+- Ordenación: Consiste en la asignación de números o letras que se da a los documentos, así como su colocación en el espacio físico correspondiente.
+- Serie documental: Conjunto de unidades documentales (carpetas) que forman parte de los grupos o subgrupos de un fondo y se caracterizan por tener elementos semejantes entre sí.
+- Sistema Archivístico Institucional: Modelo de integración de todos los archivos de una institución, pública o privada, cuya finalidad es la organización de la información archivística para ponerla al servicio de los clientes internos y externos.
+- Tabla de Plazos de Conservación de Documentos: Instrumento en el que constan todos los tipos documentales producidos o recibidos en una oficina o institución, en el cual se anotan todas sus características y se fija el valor administrativo y legal.
+- Valor Administrativo: Surgen de las funciones de una oficina, por lo que poseen información útil para tomar decisiones.
+- Valor Legal: Son documentos que se refiere a los derechos y obligaciones tanto de personas como de instituciones.
+- Valoración: Fase del tratamiento archivístico que consiste en analizar y determinar los valores primarios y secundarios de los documentos, fijando los plazos de transferencia, acceso y conservación o eliminación, total o parcial.

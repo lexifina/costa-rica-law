@@ -1,0 +1,1 @@
+Artículo 12.—Expedientes administrativos. Es el conjunto de documentos que se hacen parte de un mismo trámite o asunto administrativo, cualquier que sea el tipo de información que contenga y que se encuentren vinculados entre sí para ser archivados.

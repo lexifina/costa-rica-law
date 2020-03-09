@@ -1,0 +1,1 @@
+Artículo 10.—Tablas de plazos. Cada dependencia administrativa, además de observar y respetar las medidas de preservación y seguridad a que se refiere el art. 8, deberá elaborar con el asesoramiento del Archivo Central, la tabla de plazos de conservación de los documentos que se custodian en los Archivo de Gestión.

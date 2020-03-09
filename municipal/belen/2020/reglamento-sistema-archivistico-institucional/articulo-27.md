@@ -1,0 +1,1 @@
+Artículo 27.—Convocatoria a reunión. El Comité Institucional de Selección y Eliminación de Documentos, se reunirá previa convocatoria del Presidente, debiendo establecer las normas de trabajo y la frecuencia de las reuniones, de conformidad con lo que establece el artículo 138 del reglamento a la Ley N° 7202 del Sistema Nacional de Archivos.

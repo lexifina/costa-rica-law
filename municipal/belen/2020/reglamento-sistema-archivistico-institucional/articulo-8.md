@@ -1,0 +1,2 @@
+De los Archivos de Gestión
+Artículo 8º—Responsabilidad. Las Jefaturas de las Direcciones y unidades serán responsables por los archivos de gestión bajo su responsabilidad, velando por una correcta organización siguiendo los lineamientos emitidos por el Archivo Central. Para ello deberán nombrar a un funcionario que se encargue de su mantenimiento y coordine con el archivo Central las transferencias documentales según los lineamientos y plazos establecidos.

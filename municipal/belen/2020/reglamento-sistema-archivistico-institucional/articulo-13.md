@@ -1,0 +1,2 @@
+Artículo 13.—Consulta del expediente administrativo. La consulta al expediente administrativo solo podrá darse dentro de las instalaciones de la oficina productora o del Archivo Central.
+Lo anterior por cuanto solo existirá un original que se conservará completo y actualizado. Su consulta fuera del recinto a solicitud de entidades gubernamentales o tribunales de justicia tendrá que ser autorizado por la Administración Superior bajo su entera responsabilidad y previa firma de recibo que al efecto se extenderá.
