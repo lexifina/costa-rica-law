@@ -1,0 +1,1 @@
+Artículo 2º.- De conformidad con los artículos 340 y 341 de la Ley General de Salud, Ley número 5395 del 30 de octubre de 1973, las instituciones públicas quedarán en la obligación de cumplir las disposiciones que, de carácter general o particular, dicten las autoridades de salud sobre la alerta sanitaria por COVID-19, hasta que se resuelva la problemática actual.

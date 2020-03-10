@@ -1,0 +1,1 @@
+Artículo 6º.- Se invita al Poder Legislativo, Poder Judicial, Tribunal Supremo de Elecciones, universidades, municipalidades y al sector privado, a aplicar las medidas contempladas en la presente directriz, así como la difusión de los protocolos definidos por la autoridad sanitaria para la atención de la alerta sanitaria por COVID-19.
