@@ -16,3 +16,4 @@ Procedimientos de las Directrices Generales de Política Presupuestaria, Salaria
 | 1 | 2016-01-01 | la propia norma |
 | 2 | 2018-03-14 | Decreto Ejecutivo 40980 (2018-03-14) |
 | 3 | 2019-03-08 | Decreto Ejecutivo 41618 (2019-03-08) |
+| 4 | 2020-03-11 | Decreto Ejecutivo 42259 (2020-03-11) |
