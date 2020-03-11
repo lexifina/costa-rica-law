@@ -14,3 +14,4 @@ Reglamento para el otorgamiento de licencias e incapacidades a los beneficiarios
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-05-29 | la propia norma |
+| 2 | 2020-03-11 | Reglamento 9084 (2020-03-11) |
