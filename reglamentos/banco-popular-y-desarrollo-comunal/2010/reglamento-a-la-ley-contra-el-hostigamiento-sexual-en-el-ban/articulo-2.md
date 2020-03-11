@@ -1,1 +1,0 @@
-Artículo 2º—Ámbito de Aplicación. El presente Reglamento regirá para el personal del Banco, se aplicará en relaciones de jerarquía o autoridad; relaciones entre personas del mismo nivel jerárquico, entre personas de un nivel jerárquico inferior a uno superior, y relaciones entre personas servidoras y usuarias en el ámbito de trabajo o servicio.

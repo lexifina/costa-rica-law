@@ -1,1 +1,0 @@
-Artículo 16.—Recepción de la Denuncia. Recibida la denuncia por parte de la Comisión Institucional o el Órgano Director correspondiente, ésta deberá proceder de conformidad con lo establecido en el presente Reglamento, sin recurrir a la ratificación de la denuncia, ni la investigación preliminar de los hechos.

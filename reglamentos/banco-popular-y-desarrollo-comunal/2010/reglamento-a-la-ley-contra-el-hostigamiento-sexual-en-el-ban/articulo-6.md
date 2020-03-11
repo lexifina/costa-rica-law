@@ -1,3 +1,0 @@
-Artículo 6º—Acciones de Seguimiento Oportuno. La Gerencia General Corporativa en conjunto con la Dirección de Desarrollo Humano y Organizacional llevará a cabo acciones de seguimiento que aporten los insumos necesarios para desarrollar las acciones preventivas que se requieran en materia de Equidad e Igualdad de Género y Acoso u Hostigamiento Sexual, de conformidad con los lineamientos institucionales establecidos.
-En forma periódica, la Dirección de Desarrollo Humano y Organizacional ajustará las acciones preventivas realizadas con la finalidad de desarrollar la mejora continua.
-La Junta Directiva Nacional garantizará la dotación presupuestaria requerida para estos fines.

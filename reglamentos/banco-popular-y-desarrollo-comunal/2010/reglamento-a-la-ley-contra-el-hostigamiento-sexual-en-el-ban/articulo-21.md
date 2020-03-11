@@ -1,1 +1,0 @@
-Artículo 21.—Prescripción. El plazo de prescripción se computará de conformidad con el artículo 603 del Código de Trabajo en el caso de empleados y empleadas, y en los demás casos, según las disposiciones especiales aplicables.

@@ -1,1 +1,0 @@
-Artículo 20.—Dictado del Acto Final. El Órgano Decisor contará con un plazo no mayor de un mes, contado a partir del recibo del expediente y Proyecto de Recomendación, para dictar y comunicar el acto final.
