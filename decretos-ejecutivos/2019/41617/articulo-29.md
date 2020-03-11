@@ -1,1 +1,2 @@
-Artículo 29.-Las entidades públicas no podrán invertir, ni mantener recursos en ningún tipo de fondo de inversión, cuentas corrientes y cuentas de ahorro que se manejen como inversiones a la vista, cuentas con saldos pactados o en cualquier otra figura de depósito, excepto lo indicado en el artículo anterior.
+Artículo 29.- Las entidades públicas bajo el ámbito de la Autoridad Presupuestaria, salvo disposición legal en contrario, no podrán invertir, ni mantener recursos en ningún tipo de fondo de inversión, cuentas corrientes y cuentas de ahorro que se manejen como inversiones a la vista, cuentas con saldos pactados o en cualquier otra figura de depósito.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 42267 del 11 de marzo del 2020)

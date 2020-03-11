@@ -14,3 +14,4 @@ Directrices Generales de Política Presupuestaria, Salarial, Empleo, Inversión 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-03-28 | la propia norma |
+| 2 | 2020-03-11 | Decreto Ejecutivo 42267 (2020-03-11) |

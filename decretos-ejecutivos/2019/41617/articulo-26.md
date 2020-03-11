@@ -1,5 +1,4 @@
 CAPÍTULO III
 Sobre inversiones financieras
-Artículo 26.-Las nuevas adquisiciones de activos financieros a plazo en moneda nacional o extranjera o la renovación de este tipo de operaciones, incluyendo las garantías judiciales y ambientales y otras cauciones ordenadas por el Poder Judicial, se harán en títulos de deuda interna del Gobierno u otros instrumentos que ofrecerá el MH, a través de la TN.
-Los títulos valores emitidos por el Ministerio de Hacienda que adquieran las entidades sujetas a estas directrices serán emitidos en forma desmaterializada, es decir se eliminará la emisión de títulos valores física, salvo los casos justificados por leyes, decretos u otra normativa.
-Para la adquisición de cualquier otro tipo de activo financiero, se deberá contar con la autorización previa de la TN.
+Artículo 26.- Las entidades públicas bajo el ámbito de la Autoridad Presupuestaria trasladarán la totalidad de los recursos públicos a cuentas de la entidad dentro de la Caja Única del Estado, independientemente del instrumento financiero (cuenta bancaria y/o inversiones) en que se encuentren esos recursos públicos, salvo que exista normativa superior en contrario.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 42267 del 11 de marzo del 2020)

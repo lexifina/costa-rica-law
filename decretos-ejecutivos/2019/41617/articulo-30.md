@@ -1,1 +1,2 @@
-Artículo 30.-Las entidades públicas, salvo autorización legal en contrario, solo podrán tener cuentas corrientes en los bancos estatales.
+Artículo 30.- Las entidades públicas bajo el ámbito de la Autoridad Presupuestaria solo podrán tener cuentas en Caja Única del Estado, salvo autorización legal en contrario. La Tesorería Nacional con previa solicitud y justificación de la respectiva entidad, autorizará el uso de cuentas corrientes en la banca estatal, únicamente para garantías, cajas chicas y recaudación.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 42267 del 11 de marzo del 2020)
