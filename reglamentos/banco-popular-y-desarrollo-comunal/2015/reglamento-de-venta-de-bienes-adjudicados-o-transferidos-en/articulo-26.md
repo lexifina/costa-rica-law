@@ -1,0 +1,1 @@
+Artículo 26.—Vigencia. El presente reglamento rige a partir de su publicación en el Diario Oficial La Gaceta, y deroga el ‘Reglamento de Venta de Bienes Adjudicados o Transferidos en Pago de Obligaciones’, publicado en el alcance digital N° 187 de La Gaceta N° 147 del 3 de agosto del 2017, página 41.

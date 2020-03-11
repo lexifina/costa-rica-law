@@ -1,3 +1,3 @@
 Artículo 25.—Gastos de traspaso. Todo gasto por concepto de honorarios profesionales y obligaciones fiscales que se deriven del traspaso de la propiedad del bien corre por cuenta del comprador.
-En el caso de ventas con financiamiento con recursos del Banco, la escritura es confeccionada por la notaría que el Banco designe, conforme a lo dispuesto en el Reglamento de Contratación de Abogados Externos y Servicios Notariales y demás disposiciones aplicables.
+En el caso de ventas con financiamiento con recursos del Banco, el traspaso del bien se confeccionará según los procedimientos establecidos en el Banco.
 En el caso de venta de contado, la parte compradora puede designar un notario(a) de su elección, previa solicitud expresa al Área de Bienes Adjudicados.

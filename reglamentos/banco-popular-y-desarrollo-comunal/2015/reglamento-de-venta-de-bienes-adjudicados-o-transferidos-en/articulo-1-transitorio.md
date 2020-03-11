@@ -1,2 +1,1 @@
-Transitorio—Todos los procedimientos de venta de bienes iniciados antes de la vigencia de este Reglamento culminan de acuerdo con la normativa vigente al momento de la publicación del cartel.
-Rige a partir de su publicación en La Gaceta
+Transitorio.—Todos los procedimientos de venta de bienes iniciados antes de la vigencia de este Reglamento culminan de acuerdo con la normativa vigente al momento de la publicación del cartel.
