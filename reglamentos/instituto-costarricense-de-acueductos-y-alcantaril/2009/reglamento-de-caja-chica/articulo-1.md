@@ -1,10 +1,8 @@
-INSTITUTO COSTARRICENSE DE ACUEDUCTOS
-Y ALCANTARILLADOS
+INSTITUTO COSTARRICENSE DE ACUEDUCTOS Y ALCANTARILLADOS
 JUNTA DIRECTIVA DEL INSTITUTO COSTARRICENSE
 DE ACUEDUCTOS Y ALCANTARILLADOS
-REGLAMENTO DE CAJA CHICA Y FONDOS DE TRABAJO
-DEL INSTITUTO COSTARRICENSE DE ACUEDUCTOS
-Y ALCANTARILLADOS
+REGLAMENTO DE CAJA CHICA DEL INSTITUTO COSTARRICENSE DE ACUEDUCTOS Y ALCANTARILLADOS
+(Así modificada su denominación en sesión N° 15 del 11 de marzo del 2020)
 Conoce esta Junta Directiva el proyecto del Reglamento General de Cajas Chicas y Fondos de Trabajo del Instituto Costarricense de Acueductos y Alcantarillados
 RESULTANDO
 1º—Que con fecha 24 de noviembre de 1997 mediante el Acuerdo Nº 1997-370, en Sesión Nº 1997-055 la Junta Directiva del Instituto Costarricense de Acueductos y Alcantarillados, aprobó el Reglamento General de Cajas Chicas y Fondos de Trabajo, que fue publicado en La Gaceta Nº 13 del 20 de enero de 1998.
@@ -18,4 +16,5 @@ CONSIDERANDO
 La Junta Directiva del Instituto Costarricense de Acueductos y Alcantarillados acuerda aprobar el presente Reglamento de Caja Chica y Fondos de Trabajo, cuyo texto dirá:
 CAPÍTULO I
 Disposiciones Generales
-Artículo 1º—Objeto y Ámbito de Aplicación. Este reglamento tiene por objeto regular la organización y el funcionamiento de los fondos fijos de Cajas Chicas y los Fondos de Trabajo que el Instituto Costarricense de Acueductos y Alcantarillados tenga establecidos o establezca en sus dependencias.
+Artículo 1º—Objeto y Ámbito de Aplicación. Este reglamento tiene por objeto regular la organización y el funcionamiento de los fondos fijos de Cajas Chicas y los que el Instituto Costarricense de Acueductos y Alcantarillados tenga establecidos o establezca en sus dependencias.
+(Así reformado en sesión N° 15 del 11 de marzo del 2020)

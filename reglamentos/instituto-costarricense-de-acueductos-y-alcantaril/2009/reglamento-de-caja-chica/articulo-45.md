@@ -1,1 +1,1 @@
-Artículo 45.—Gasto sin Documento Justificante. El funcionario que haya realizado un gasto de caja chica, en el cual el proveedor por una situación excepcional no le suministre una factura o comprobante de caja, debe de presentar un documento justificante de cobro con su firma y el visto bueno de su jefatura.
+Artículo 45.—Gasto sin Documento Justificante. (Derogado en sesión N° 15 del 11 de marzo del 2020)

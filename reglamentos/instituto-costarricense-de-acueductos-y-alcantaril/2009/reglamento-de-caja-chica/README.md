@@ -14,3 +14,4 @@ Reglamento de Caja Chica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-04-06 | la propia norma |
+| 2 | 2020-03-11 | Reglamento 15 (2020-03-11) |

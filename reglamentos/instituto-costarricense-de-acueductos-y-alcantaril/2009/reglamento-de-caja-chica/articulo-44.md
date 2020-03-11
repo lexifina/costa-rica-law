@@ -1,16 +1,9 @@
-Artículo 44.—Requisitos Documentos Soporte de Gasto. Las facturas por pagos de Bienes y Servicios, deberán contener la siguiente información y requisitos:
-a. Factura membretada y numerada.
-b. En buen estado, fecha completa, legible, sin alteraciones, borrones, roturas o cualquier otro tipo de situación que pueda causar duda de su autenticidad.
-c. Emitida a nombre del A y A
-d. Cantidad, artículo y precio.
-e. Total de la factura.
-f. Sello de cancelado en la factura o comprobante de caja que concuerde con la factura, cuando se presentan ambos comprobantes.
-g. Si la factura no tiene membrete debe anotarse: nombre de la casa comercial, nombre del propietario, número de cédula de identidad o cédula jurídica, dirección exacta y número de teléfono.
-h. Los comprobantes de caja, emitidos en sustitución de la factura, deben contener impreso el nombre de la casa comercial, número de cedula jurídica, dirección y número de teléfono.
-i. En los casos que se deba realizar retención de impuesto sobre la renta, la factura o recibo de dinero debe ser timbrado o en su defecto indicar el número de oficio de autorización de la Dirección General de Tributación Directa.
-j. Toda factura electrónica debe contener la leyenda “Factura electrónica autorizada por Tributación Directa en Gaceta Nº 171 del 05-09-2007”
-k. En los casos de que se compre una herramienta, se debe adjuntar el “Vale de Herramienta”, sellado por la bodega correspondiente.
-l. Se debe indicar el uso y lugar que tendrá el artículo adquirido.
-m. Indicar código de: centro gestor, posición financiera, centro u orden de costo, cuenta mayor y montos.
-n. Visto bueno de la jefatura o funcionario autorizado.
-o. Todas las facturas, comprobantes de caja y/o recibos de dinero se deben adherir con pegamento a una hoja, sin que queden sobrepuestos los documentos.
+Artículo 44: Requisitos documentos soporte de gasto
+a. Los comprobantes electrónicos por pagos de bienes y servicios deberán emitirse a nombre del AyA y cumplir con los requisitos que se indican en el Art.13 del Reglamento de Comprobantes Electrónicos para efectos tributarios emitido por el Ministerio de Hacienda.
+b. La documentación justificante del gasto debe contener la siguiente información:
+b.1 En caso de que se compre una herramienta se debe adjuntar al formulario de liquidación de gastos el “Vale de herramienta”, sellado por la bodega correspondiente.
+b.2 En la justificación de la compra se debe indicar el uso que se dará al bien y el lugar donde se utilizará, así como, consignar la certificación de que se realizó el proceso de validación de la factura en el Sistema de Facturación Electrónica.
+b.3 Las facturas electrónicas, factura electrónica de compra, notas de crédito y de débito electrónicas deben presentarse con el visto bueno de la jefatura que autoriza el gasto.
+b.4 En los casos donde se justifique el gasto con una factura emitida por un proveedor que no este obligado a la emisión de comprobantes electrónicos, o bien, con un tiquete electrónico, se debe adjuntar la factura de electrónica de compra emitida en el Sistema de Facturación Electrónica.
+b.5 Documentos justificantes del gasto como comprobantes de pasajes, peajes, ferry, taxis y vales de herramientas, se deben adherir con pegamento a una hoja, sin que queden sobrepuestos los documentos.
+(Así reformado en sesión N° 15 del 11 de marzo del 2020)
