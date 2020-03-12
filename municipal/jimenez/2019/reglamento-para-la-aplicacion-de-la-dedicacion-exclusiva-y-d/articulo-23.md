@@ -1,0 +1,1 @@
+Artículo 23.—Horas extraordinarias. Al servidor municipal, que se encuentre sometido al régimen de disponibilidad y sea requerido para presentarse a realizar alguna actuación propia de sus funciones fuera del horario municipal, se le pagarán horas extras por no encontrarse incluido dentro de la compensación de la disponibilidad.

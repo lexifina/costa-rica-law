@@ -1,0 +1,1 @@
+Artículo 22.—Derechos Adquiridos. Una vez suscrito el contrato, el pago por disponibilidad laboral no constituirá un beneficio permanente ni un derecho adquirido; por lo que al finalizar la vigencia de este, la Administración no tendrá la obligación de renovarlo.

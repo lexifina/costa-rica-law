@@ -1,0 +1,3 @@
+Artículo 17.—Prohibición y porcentajes de compensación. Los funcionarios públicos a los que por vía legal se les ha impuesto la restricción para el ejercicio liberal de su profesión, denominada prohibición, y que cumplan con los requisitos establecidos en el artículo 7 del presente reglamento, recibirán una compensación económica calculada sobre el salario base del puesto que desempeñan, de conformidad con las siguientes reglas:
+1. Un treinta por ciento (30%) para los servidores en el nivel de licenciatura u otro grado académico superior.
+2. Un quince por ciento (15%) para los profesionales en el nivel de bachiller universitario.

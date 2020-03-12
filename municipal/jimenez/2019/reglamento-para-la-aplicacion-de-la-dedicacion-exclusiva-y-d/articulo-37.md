@@ -1,0 +1,1 @@
+Artículo 37.—Conversión de incentivos a montos nominales fijos. Cualquier incentivo o compensación existente que a la entrada en vigencia de la Ley 9635 que se encuentre expresado en términos porcentuales, su cálculo a futuro será un monto nominal fijo, resultante de la aplicación del porcentaje al salario base a enero de 2018.

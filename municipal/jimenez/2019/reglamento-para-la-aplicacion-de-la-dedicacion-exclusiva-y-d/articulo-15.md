@@ -1,0 +1,1 @@
+Artículo 15.—Extensión de la Limitación. Para los funcionarios señalados en la ley como posibles beneficiarios de compensación económica por prohibición, no podrán ejercer de manera privada, de forma remunerada o ad honorem la profesión o las profesiones que ostenten.

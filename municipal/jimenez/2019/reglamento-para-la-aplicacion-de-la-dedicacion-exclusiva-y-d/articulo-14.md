@@ -1,0 +1,1 @@
+Artículo 14.—Obligación de los Funcionarios: Los funcionarios sujetos por ley al régimen de prohibición no podrán ejercer su profesión o profesiones, independientemente de que cumplan o no con los requisitos para hacerse acreedores a la compensación por este concepto.

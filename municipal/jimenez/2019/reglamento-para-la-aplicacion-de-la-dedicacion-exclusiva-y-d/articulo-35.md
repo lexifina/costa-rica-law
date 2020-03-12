@@ -1,0 +1,1 @@
+Artículo 35.—Lo no regulado en el presente reglamento se debe complementar con la Ley 9635, Decreto Ejecutivo N° 41564-MIDEPLAN-H, Decreto Ejecutivo N° 41729-MIDEPLAN-H y cualquier otra norma de orden jerárquico en el ordenamiento jurídico superior al presente reglamento.

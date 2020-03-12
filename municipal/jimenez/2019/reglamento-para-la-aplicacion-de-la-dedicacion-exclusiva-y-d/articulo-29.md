@@ -1,0 +1,1 @@
+Artículo 29.—Posibilidad de asignación de turnos: La Municipalidad de Jiménez, podrá establecer roles o turnos que garanticen que no se afectará el servicio público en caso de necesidad o urgencia y a la vez considerar la posibilidad de que los servidores que ocupan puestos que requieren de disponibilidad puedan disfrutar de8 días feriados o asuetos.

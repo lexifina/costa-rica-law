@@ -1,0 +1,1 @@
+Artículo 5º—Justificación. Previo a la suscripción de los contratos, el jerarca de la Administración deberá acreditar, mediante resolución administrativa razonada, la necesidad institucional y la relación de costo oportunidad de suscribir dichos contratos, en razón de las funciones que ejerzan el o los funcionarios y el beneficio para el interés público.

@@ -1,0 +1,1 @@
+Artículo 20.—Procedencia: Para que proceda el pago de la disponibilidad, el requerimiento de la Municipalidad de los servicios eventuales de las funciones asignadas al puesto, deberán ser debidamente justificadas y necesarias para la prestación a cabalidad de los servicios municipales, así como la garantía del adecuado uso de los recursos públicos en los horarios inhábiles.
