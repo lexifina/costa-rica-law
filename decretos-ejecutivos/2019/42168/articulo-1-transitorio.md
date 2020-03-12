@@ -1,0 +1,2 @@
+Transitorio Único:
+Las solicitudes presentadas con anterioridad a la entrada en vigencia de este Decreto, cualquiera que sea su estado, continuarán sustanciándose, en todos sus trámites y recursos, por las regulaciones que existían a la fecha de inicio. Sin embargo, el interesado estará facultado para solicitar expresamente a la administración el archivo de su gestión, a afectos de iniciar nuevamente su gestión.

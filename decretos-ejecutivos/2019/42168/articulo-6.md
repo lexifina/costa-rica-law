@@ -1,0 +1,2 @@
+Artículo 6. Sobre los accesos a 1Cls sistemas digitales.
+Las personas que deseen realizar su trámite a través del Sistema de Previsión Vial (SIPREVI) del Ministerio de Obras Públicas y Transportes, deberán contar con firma digital para poder gestionar su solicitud. El trámite en el sistema APC Requisitos del Colegio Federado de Ingenieros y de Arquitectos de Costa Rica (CFIA), podrá realizarse a través de firma digital; o bien mediante clave de acceso cuando el trámite sea realizado por los miembros del Colegio Federado.

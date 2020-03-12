@@ -1,0 +1,21 @@
+Artículo 4.- Requisitos.
+Para solicitar el otorgamiento de un alineamiento vial por cualquiera de los mecanismos establecidos en el artículo anterior, se deberán presentar los requisitos que se describen a continuación:
+1. Completar el Formulario Solicitud de Alineamiento Vial, con la siguiente información:
+a) El nombre y número de identificación del propietario del inmueble. En caso que. Sea una persona jurídica, se deberá indicar la razón social y número de cédula jurídica.
+b) Provincia, cantón, distrito y ubicación exacta del inmueble en que se ejecutará la construcción.
+c) Número de Folio Real y número de plano catastro del inmueble en que se ejecutará la construcción.
+d) Tipo de construcción a ejecutar, ya sea vivienda, local comercial, urbanización, condominio, caseta de guardas, parqueo, u otros tipos de edificaciones.
+e) Nombre completo del solicitante y número de documento de identificación.
+f) Número de teléfono o dirección de correo electrónico.
+En los casos en que la solicitud sea tramitada en forma presencial, el Formulario Solicitud de Alineamiento Vial se podrá obtener en el Centro Información y Trámites del Ministerio de Obras Públicas y Transportes, o bien, se podrá descargar a través de su sitio web, en la dirección www.mopt.go.cr, en la opción alineamiento vial. Tal Formulario deberá ser firmado por la persona legitimada. En aquellos casos en que el trámite se efectúe de manera presencial y quien firma la solicitud no sea quien se apersone a presentarla, la firma del "solicitante" deberá estar debidamente autenticada.
+En el Anexo 1 del presente Decreto Ejecutivo, consta el Formulario que se deberá utilizar para el caso de persona física y en el Anexo 2 consta el Formulario que se deberá utilizar cuando se trate de una persona jurídica.
+En los casos en que la.solicitud se realice en forma digital, tal información se suministrará en línea, por cualquiera de los sistemas que se enuncian en el inciso 2) del artículo 3 del presente Decreto Ejecutivo.
+2. En caso de personas jurídicas, certificación de personería jurídica vigente, con no más de un mes de emitida. Tratándose de certificaciones digitales, conforme a la vigencia legal respectiva.
+3. En caso de que la solicitud se realice a través de un tercero, deberá aportar una autorización otorgada por la persona legitimada para solicitar el alineamiento, la cual deberá estar autenticada, de conformidad con lo dispuesto en el artículo 283 de la Ley General de la Administración Pública, Ley No. 6227.·
+4. Presentación de plano catastrado
+Se deberá aportar plano catastrado en los siguientes supuestos:
+a) Cuando el trámite se realice de forma presencial se deben aportar dos copias del plano Catastrado.
+b) Si el trámite se realiza por medio del Sistema SIPREVI, se deberá anexar al sistema el plano catastrado, siguiendo para tales efectos las especificaciones técnicas que señale el sistema.
+e) Si el trámite se presenta por medio del Sistema APC Requisitos, el solicitante deberá indicar alguno de los siguientes datos: el tomo y folio real de la propiedad, número de contrato APT, o en su defecto, número de plano catastrado; para que, el sistema automáticamente busque el plano catastro de la propiedad y lo cargue. No obstante, si la búsqueda no arroja resultados, el sistema automáticamente habilitará la opción para que el administrado adjunte el plano catastrado del bien inmueble sobre el cual se solicita el alineamiento, quien- deberá seguir las especificaciones técnicas que al efecto advierta el sistema.
+d) Si posterior a la revisión de documentos que realiza el funcionario encargado del trámite, se logra constatar que el plano catastrado que remite el CFIA o bien, el que aporte el interesado, según corresponda, es ilegible o presenta alguna situación que dificulte la labor de revisión, dicha situación le será prevenida al Administrado para que, dentro del plazo de 3 días hábiles contados a partir de la presentación del trámite, proceda con el aporte del plano catastrado en un formato legible.
+En todos los casos, los planos deberán ser legibles y visibles en tamaño real, así como cumplir con lo dispuesto en la Ley de Catastro Nacional No. 6545 del 25 de marzo de 1981 y su reglamento.

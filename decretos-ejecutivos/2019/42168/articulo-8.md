@@ -1,0 +1,3 @@
+Artículo 8. - Del plazo para resolver y aplicación del silencio positivo.
+El Departamento de Previsión Vial deberá resolver dentro de los tres meses siguientes a la fecha de presentación de la solicitud respectiva. Si no lo hiciere dentro de ese plazo, operará la figura del silencio administrativo positivo y quedará como línea de construcción el límite de la propiedad con la vía pública.
+Para la aplicación del silencio positivo, el administrado deberá seguir el procedimiento establecido en el artículo 7 de la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos No. 8220.
