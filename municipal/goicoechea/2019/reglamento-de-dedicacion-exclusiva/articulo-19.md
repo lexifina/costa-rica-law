@@ -1,0 +1,16 @@
+Artículo 19.—Se establece como modelo de uso obligatorio para la dedicación exclusiva, el siguiente contrato, sin que resulte posible ninguna modificación al mismo por las partes:
+CONTRATO DE DEDICACIÓN EXCLUSIVA
+Entre nosotros ___________________________________ , Alcalde Municipal de la Municipalidad de Goicoechea, denominado en lo sucesivo y para los efectos de este contrato La MUNICIPALIDAD, y el servidor que desempeña el puesto de: ____________________________________ , denominado en lo sucesivo en este contrato SERVIDOR convenimos en el siguiente CONTRATO DE DEDICACIÓN EXCLUSIVA, el cual se rige por las siguientes cláusulas:
+1- EL SERVIDOR se compromete, mientras estén vigentes las disposiciones legales que lo fundamentan, a prestar sus servicios profesionales en forma exclusiva a la Municipalidad de Goicoechea, en el puesto de , que desempeña actualmente en el Departamento de__________________________________________________ , y respecto de su profesión, que es ____________________ .
+Asimismo, se compromete a no ejercer en forma remunerada, gratuita o ad honorem dicha profesión, con las salvedades contenidas en el artículo 13 del Reglamento de Dedicación Exclusiva vigente en la Municipalidad, y en cualquier otro caso que el presente Reglamento así lo autorice.
+2- La MUNICIPALIDAD le concede al SERVIDOR una compensación económica equivalente a un ________________% de su salario base, por su dedicación exclusiva.
+3- La MUNICIPALIDAD velará por el cumplimiento de las obligaciones que se señalan en el presente contrato, sin prejuicio de las facultades de inspección que podrían realizar la Auditoría Interna o en su defecto el Departamento de Recursos Humanos de la Institución, cuando así se considere conveniente.
+4- El servidor se compromete, bajo la fe del juramento, a cumplir estrictamente con todas las estipulaciones de este contrato, además de todas las disposiciones del Reglamento de Dedicación Exclusiva de la Municipalidad de Goicoechea. El incumplimiento de las citadas disposiciones dará ocasión a que se apliquen las sanciones contempladas en el artículo 13 del Reglamento de Dedicación Exclusiva de la Municipalidad de Goicoechea.
+5-El presente contrato rige a partir del día en que las partes lo acuerdan y firman. Este contrato se preparará en dos tantos a firmarse por las partes, que se distribuirán así:
+1. La Municipalidad (El original).
+2. El servidor.
+Se remitirá copia del contrato a la Dirección Administrativa, la Auditoría Interna, el Departamento de Recursos Humanos y el expediente del servidor. En este acto el servidor municipal manifiesta conocer y aceptar expresa y enteramente todas las disposiciones, requisitos y obligaciones contenidas en el Reglamento de Dedicación Exclusiva de la Municipalidad de Goicoechea, así como sus implicaciones legales.
+En fe de lo anterior y debidamente enterado de los deberes impuestos del valor y trascendencia de lo aquí acordado, lo aceptamos íntegramente y firmamos, en dos tantos, en la ciudad de Guadalupe, a los __________________________ días del mes de del dos mil ______________________________________ .
+___________________ _______________________
+Por La Municipalidad SERVIDOR
+Cédula número Cédula número

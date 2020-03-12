@@ -1,0 +1,1 @@
+Artículo 22.—Derogatoria. El presente Reglamento deroga en un todo el anterior Reglamento de Dedicación Exclusiva, que había sido aprobado por este Concejo Municipal en sesión extraordinaria N. 2-99, de 20 de enero de 1999, artículo 2.

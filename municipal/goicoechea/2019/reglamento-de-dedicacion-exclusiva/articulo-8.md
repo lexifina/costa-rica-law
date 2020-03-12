@@ -1,0 +1,1 @@
+Artículo 8º—El contrato debe ser suscrito en original, en dos tantos, uno para la Municipalidad y otro para el servidor y cuatro copias: una para la Dirección Administrativa, la Auditoría Interna, otra al expediente del funcionario y una para el Departamento de Recursos Humanos.

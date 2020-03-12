@@ -1,0 +1,1 @@
+Artículo 5º—Se le reconocerá dedicación exclusiva al Alcalde Municipal de acuerdo al artículo 20 del Código Municipal, para ello quien ocupe dicho cargo deberá cumplir con los requisitos establecidos en el artículo 4 anterior, en lo que le resulte aplicable.

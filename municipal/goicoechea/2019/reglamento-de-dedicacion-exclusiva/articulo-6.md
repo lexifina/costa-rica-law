@@ -1,0 +1,6 @@
+CAPÍTULO III
+De la aplicación del régimen de dedicación exclusiva
+Artículo 6º—En virtud de la modernización y profesionalización del Recurso Humano en esta Municipalidad y a efecto de obtener el mejor rendimiento de los profesionales que la Municipalidad tiene a su servicio, así como de aquellos que se contratasen a futuro, cuando se determine que por necesidad institucional e interés público esos servidores podrán estar bajo el Régimen de Dedicación Exclusiva, se acuerda establecer el incentivo salarial denominado Dedicación Exclusiva, el cual se pagará de conformidad con los siguientes porcentajes:
+1) 25% sobre el salario base del puesto, para aquellos casos en los que el Manual Descriptivo de Puestos lo exija, y posea ese servidor, el grado de Licenciado Universitario.
+2) 10% sobre el salario base del puesto, para aquellos casos en los que el Manual Descriptivo de Puestos lo exija, y posea ese servidor, el grado de Bachillerato Universitario.
+Siempre y en todo caso, la aplicación del Régimen de Dedicación Exclusiva hará necesaria, además de los demás requisitos establecidos por este Reglamento, la previa suscripción del respectivo contrato entre esta Municipalidad y el servidor, de conformidad con lo regulado en este Reglamento.
