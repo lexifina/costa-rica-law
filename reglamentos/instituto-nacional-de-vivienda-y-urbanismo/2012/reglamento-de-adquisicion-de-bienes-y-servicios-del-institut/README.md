@@ -14,3 +14,4 @@ Reglamento de adquisición de bienes y servicios del Instituto Nacional de Vivie
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-01-16 | la propia norma |
+| 2 | 2020-03-12 | Reglamento 6433 (2020-03-12) |
