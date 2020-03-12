@@ -1,0 +1,2 @@
+Artículo 7º—Cuando el miembro del órgano colegiado haya asistido de manera parcial, sea por haber llegado tarde a la sesión, por retirarse antes de que ésta concluya, por ausentarse de manera injustificada, no se generará derecho a pago de dietas.
+Cuando los miembros de El Concejo sean funcionarios públicos, solo podrán devengar el pago de dieta, si no existe superposición horaria entre las sesiones de este órgano y su jornada laboral.

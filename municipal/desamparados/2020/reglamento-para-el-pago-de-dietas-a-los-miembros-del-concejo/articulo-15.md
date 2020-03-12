@@ -1,0 +1,1 @@
+Artículo 15.—La Administración y El Concejo deberán revisar y en su caso actualizar el presente reglamento al menos cada dos años a partir de su aprobación, o bien, cuando las circunstancias así lo ameriten. Se deroga cualquier disposición y acuerdo previo tomado por el Concejo Municipal de Desamparados relacionado con el pago de dietas de los miembros del Concejo Municipal.

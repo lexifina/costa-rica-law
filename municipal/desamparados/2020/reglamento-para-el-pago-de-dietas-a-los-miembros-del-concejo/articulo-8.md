@@ -1,0 +1,3 @@
+CAPÍTULO II
+De la forma de pago en general
+Artículo 8º—Los pagos de dieta correspondientes a los miembros de El Concejo, se realizarán celebradas tres sesiones y, eventualmente se hará el pago de cuatro sesiones en los casos de los meses donde se generen cinco sesiones ordinarias o se presente alguna situación particular, cancelando el monto establecido para cada sesión, previa verificación de la asistencia por parte del Proceso de Talento Humano y permanencia durante la sesión, por parte de la Presidencia del Concejo. El Proceso de Talento Humano determinará, vía calendario presentado en los primeros quince días del mes de enero de cada año ante el Concejo Municipal y la Alcaldía, las fechas de pago de las dietas en cuestión.

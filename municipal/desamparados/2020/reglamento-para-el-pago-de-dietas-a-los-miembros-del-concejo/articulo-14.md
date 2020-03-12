@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Justificación de las omisiones de marcas y disposiciones finales
+Artículo 14.—El miembro del Concejo Municipal que omita una marca, podrá justificarla ante el Presidente, mediante el formulario confeccionado por el Proceso de Talento Humano. La persona que haya omitido la marca deberá presentar de manera personal dicha justificación al Proceso antes indicado, al día siguiente de realizada la sesión correspondiente. Ante situaciones de imposibilidad para la realización de la marca, el miembro del Concejo que presente esta condición deberá hacerlo del conocimiento de la Presidencia, quien remitirá el caso al Proceso de Talento Humano, con motivo de que tome las acciones correspondientes para suplir el método de comprobación de asistencia.
