@@ -1,0 +1,2 @@
+Artículo 5º.- El Ministerio de Salud está facultado para realizar las acciones de inspección, vigilancia y control, reguladas en la Ley General de Salud, Ley número 5395 del 30 de octubre de 1973, relacionadas con el cumplimiento de las disposiciones consignadas en el presente Decreto Ejecutivo.
+Ante el incumplimiento del contenido del presente Decreto Ejecutivo, el Ministerio de Salud deberá proceder conforme a lo dispuesto en los artículos 355 y siguientes de la Ley General de Salud, según corresponda.
