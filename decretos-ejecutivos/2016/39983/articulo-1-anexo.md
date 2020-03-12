@@ -146,7 +146,8 @@ i.5) Descongestionantes y/o emolientes nasales con cloruro de sodio 0.9%, Fenile
 J) NIÑOS:
 j.1) Dolor y dentición:
 j.1.1) Ver inciso a.3) del presente decreto ejecutivo.
-j.1.2) Acetaminofén 100 mg/mL en gotas (jarabe y solución) o 150 mg/5 mL (jarabe y solución).
+j.1.2) Acetaminofén 100 mg/mL en gotas (jarabe y solución) o 150 mg/5 mL o 160 mg/5 mL (jarabe y solución).
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 42261 del 12 de marzo de 2020)
 j.2) Gastrointestinal:
 j.2.1) Ver incisos b.1) y b.2) del presente decreto ejecutivo.
 j.3) Resfrios y alergias:
