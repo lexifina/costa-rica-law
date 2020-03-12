@@ -1,14 +1,14 @@
 Artículo 7º—Los factores precitados para efecto de reconocimiento en la carrera profesional, se valorarán en puntos de la siguiente forma:
 a) Grados académicos:
-1) Bachillerato 8 puntos
-2) Licenciatura 16 puntos
-3) Especialidad 26 puntos
-4) Maestría 32 puntos
-5) Doctorado 40 puntos
-6) Licenciatura adicional 5 puntos
-7) Especialidad adicional 7 puntos
-8) Maestría adicional 10 puntos
-9) Doctorado adicional 12 puntos
+1) Bachillerato 8 puntos.
+2) Licenciatura 16 puntos.
+3) Especialidad 26 puntos.
+4) Maestría 32 puntos.
+5) Doctorado 40 puntos.
+6) Licenciatura adicional 5 puntos.
+7) Especialidad adicional 7 puntos.
+8) Maestría adicional 10 puntos.
+9) Doctorado adicional 12 puntos.
 b) Cursos de capacitación recibidos:
 1) De aprovechamiento. Un punto por cada 40 horas naturales efectivas de instrucción hasta un máximo de 20 puntos.
 2) De participación recibida. Un punto por cada 80 horas naturales efectivas hasta un máximo de 20 puntos.

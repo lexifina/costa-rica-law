@@ -14,3 +14,4 @@ Reglamento de Carrera Profesional de la Municipaliadad de Heredia
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-02-09 | la propia norma |
+| 2 | 2020-03-12 | Reglamento municipal 0 (2020-03-12) |

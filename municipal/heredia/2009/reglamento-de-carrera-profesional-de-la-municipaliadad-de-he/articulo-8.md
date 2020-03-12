@@ -1,6 +1,5 @@
 TÍTULO II
-De los requisitos para optar por los factores
-de carrera profesional
+De los requisitos para optar por los factores de carrera profesional
 Artículo 8º—De los grados académicos. La interpretación y la aplicación de los factores indicados en el título anterior, se hará de acuerdo con los criterios siguientes:
 a) Relacionados directamente con el puesto que ejerce el servidor.
 b) Conferidos o reconocidos y equiparados por alguna de las universidades facultadas para ello.
