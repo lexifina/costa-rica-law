@@ -1,0 +1,1 @@
+Artículo 15.—Es responsabilidad y obligación de todo agente de PMA, informar a su jefatura inmediata de todo hecho ilícito del que tenga conocimiento y que para su corrección se requiera el concurso de otros cuerpos policiales o jurisdiccionales; así como procurará evitar la comisión de cualquier delito, falta o infracción a la ley, que ocurra en su presencia.

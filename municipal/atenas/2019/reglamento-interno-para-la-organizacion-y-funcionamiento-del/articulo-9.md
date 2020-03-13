@@ -1,0 +1,1 @@
+Artículo 9º—Mostrar solidaridad y apoyo a sus compañeros y compañeras, auxilio a personas los munícipes, contribuyentes y visitantes del cantón de Atenas y colaborar con otros cuerpos de policía que formalmente lo requieran y soliciten.

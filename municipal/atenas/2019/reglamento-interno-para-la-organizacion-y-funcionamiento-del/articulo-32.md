@@ -1,0 +1,1 @@
+Artículo 32.—La Administración Municipal y el Concejo Municipal debe tomar en consideración que según el aumento de contratación de los agentes de PMA se debe analizar la contratación de más profesionales en unidad de apoyo legal.

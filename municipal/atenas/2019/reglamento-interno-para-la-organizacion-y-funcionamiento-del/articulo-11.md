@@ -1,0 +1,1 @@
+Artículo 11.—En todo momento la persona designada como agente de PMA, debe presentarse en perfecto estado de aseo e higiene personal, portar y conservar en perfecto estado su uniforme procurando siempre una imagen decorosa. Mismo cuidado y atención debe prestar al uso, y conservación de las armas, chalecos, esposas, placas, gases y cualquier otro equipo asignado.

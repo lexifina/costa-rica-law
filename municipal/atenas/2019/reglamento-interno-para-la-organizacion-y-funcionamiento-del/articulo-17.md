@@ -1,0 +1,1 @@
+Artículo 17.—Cada agente de PMA, tiene la obligación de someterse a las pruebas de dopaje y alcoholemia, según solicitud de su Superior Jerárquico, siempre que sea en horas laborales, y la institución tenga previstos los recursos necesarios para ese fin.

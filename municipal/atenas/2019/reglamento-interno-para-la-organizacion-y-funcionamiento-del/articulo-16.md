@@ -1,0 +1,1 @@
+Artículo 16.—Es obligación de los agentes de PMA, cumplir con las disposiciones de la Alcaldía Municipal, como superior jerárquico. Favorecer el trabajo de las dependencias administrativas de la Municipalidad, informando de cuantas deficiencias, omisiones, ilegalidades y otras condiciones detecte en el campo y que sean competencia de los órganos de la Municipalidad.

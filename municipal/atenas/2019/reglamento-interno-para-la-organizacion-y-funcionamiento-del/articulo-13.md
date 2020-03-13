@@ -1,0 +1,1 @@
+Artículo 13.—Desempeñar dignamente sus cargos, conservando las buenas costumbres, la moral y la disciplina, así como un trato respetuoso para todas las personas, aun cuando se encuentre fuera de servicio.
