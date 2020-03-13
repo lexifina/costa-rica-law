@@ -1,2 +1,8 @@
-Artículo 26.—El Coordinador será el responsable de convocar a los demás miembros de Comisión, supervisar la labor efectuada, ejercer la representación de la Comisión y de que se comuniquen los acuerdos, estudios, informes y dictámenes o resoluciones que se adopten. La convocatoria a sesiones se hará por escrito con veinticuatro horas de antelación, excepto cuando las dos terceras partes de sus integrantes acuerden prescindir de dicho trámite. En ausencia del Coordinador éste será sustituido por el miembro de mayor edad, salvo otra decisión tomada por las dos terceras partes de sus miembros.
-(Corrida su numeración por el artículo 20 del Reglamento Orgánico del Sistema Nacional de Acreditación (SINAES), publicado en el Alcance N° 81 de La Gaceta N° 69 del 20 de abril del 2018, que lo traspaso del antiguo artículo 28 al 26, ya que se indicó derogar los numerales 7 y 22 originales y correr la numeración de los restantes artículos)
+Artículo 26.—Para lograr acuerdo para aprobación y/o reforma, requerirán votación calificada no menor a las tres cuartas partes de los votos (cinco miembros presentes; cuatro votos; seis miembros presentes: cinco votos; siete miembros presentes: seis votos; ocho miembros presentes: seis votos), los asuntos que se relacionen con los siguientes temas:
+a) Afiliación de Instituciones de Educación Superior;
+b) Procedimiento, condiciones y requisitos para la afiliación de Instituciones de Educación Superior;
+c) Políticas, manuales, reglamentos y procedimientos para la evaluación con miras para la acreditación,
+d) Afiliación del SINAES a organismos nacionales o internacionales y los convenios de cooperación, salvo los de simple venta de servicios;
+e) Acreditación de planes, carreras, programas e instituciones que hayan cumplido satisfactoriamente los requisitos fijados para el proceso de acreditación;
+f) Reglamentación en general.
+g) Reconocimiento de acreditaciones por agencias reconocidas.

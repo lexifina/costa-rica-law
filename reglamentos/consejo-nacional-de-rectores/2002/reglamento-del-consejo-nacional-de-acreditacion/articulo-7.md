@@ -1,4 +1,8 @@
-CAPÍTULO II
-Deberes y derechos de los miembros del Consejo
-Artículo 7º-Los miembros del Consejo no podrán desempeñar simultáneamente cargos de rector, presidente, vicerrector, decano, director, encargado de unidad académica, dueño, miembro de consejo universitario o cualquiera de sus equivalentes, en ninguna de las instituciones de educación superior universitaria del país ni formar parte de sus órganos directivos o entes administradores de nivel superior de la institución. Quienes se encuentren en tal condición perderán automáticamente su condición de consejales.
-(Corrida su numeración por el artículo 20 del Reglamento Orgánico del Sistema Nacional de Acreditación (SINAES), publicado en el Alcance N° 81 de La Gaceta N° 69 del 20 de abril del 2018, que lo traspaso del antiguo artículo 8 al 7, ya que se indicó derogar el numeral 7 original y correr la numeración de los restantes artículos)
+Artículo 7º—Para el cumplimiento de sus funciones el Consejo Nacional de Acreditación cuenta con una Secretaría General del Consejo Nacional de Acreditación que se conforma de funcionarios con la especialidad y competencias definidas para el cargo.
+A la Secretaría General le corresponde:
+a) Brindar apoyo administrativo y preparar las agendas de sesión del Consejo, según el orden del día que le comunique el presidente;
+b) Asistir con voz, pero sin voto a las sesiones del Consejo, levantando las actas correspondientes;
+c) Comunicar las resoluciones y acuerdos del Consejo, excepto en los casos de resolución definitiva de acreditaciones, de actos que impliquen la representación del órgano y otros que por reglamento o acuerdo sean confiados exclusivamente al presidente;
+j) Llevar a cabo el seguimiento de los acuerdos del CNA;
+d) Emitir las certificaciones de acuerdos o resoluciones que le sean solicitadas; y
+e) Las demás atribuciones que determinen los reglamentos del SINAES o acuerde el Consejo Nacional de Acreditación.
