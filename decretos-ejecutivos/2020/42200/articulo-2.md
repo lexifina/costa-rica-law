@@ -1,0 +1,1 @@
+Artículo 2.- Derogatoria. Deróguese el artículo 22 del Decreto Ejecutivo Nº39489-MINAE del 16 de diciembre del 2015 publicado en La Gaceta Nº 3 7, Alcance Digital º25 del 23 de febrero de 2016, y adecúese la numeración en los artículos, de manera que el actual artículo 23 se numere artículo 22 y así sucesivamente.
