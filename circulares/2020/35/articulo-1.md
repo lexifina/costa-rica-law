@@ -218,4 +218,10 @@ Se autoriza a las jefaturas a otorgar licencia o permiso con goce de salario sin
 6.) Autorizar a las jefaturas para realizar cambios de horarios de forma temporal a todas aquellas personas que fungen en puestos no compatibles con teletrabajo, con el propósito de administrar correctamente el riesgo de contagio por hacinamiento en las oficinas.
 7.) Ordenar la suspensión de reuniones presenciales en la medida de las posibilidades y promover la realización de reuniones virtuales por medio de los sistemas que la institución cuenta.
 8.) Incorporar a las mujeres embarazadas como población de riesgo, así como la valoración de otorgar teletrabajo durante el periodo de la emergencia.”)
+(Nota de Sinalevi: Mediante sesión N° 21-2020 del 13 de marzo del 2020, publicada en el Boletín Judicial N° 67 del 1° de abril del 2020 mediante circular N° 45-2020 del 13 de marzo del 2020 se amplían los presentes lineamientos según se transcribe a continuación:)
+1) Únicamente tendrán acceso a los edificios judiciales aquellas personas que sean requeridas para diligencias, actuaciones judiciales o deban realizar otros trámites, no así sus acompañantes, salvo que se trate de adultos mayores, personas menores de edad, con discapacidad o víctimas en estado de vulnerabilidad.
+2) En aquellos casos en los que el Oficial de Seguridad detecte que la persona usuaria presenta síntomas respiratorios como tos y/o estornudos le proporcionará mascarilla, la cual deberá utilizar durante sus trámites dentro de las edificaciones judiciales.
+3) Las personas juzgadoras que dirigen juicios o debates restringirán la asistencia del público, en tanto esto sea legalmente posible.
+4) No se autorizarán viajes de trabajo al exterior a personas servidoras.
+5) No se permitirá el ingreso de personas externas, a la soda que se ubica en el Edificio de la Tercera Etapa -Organismo de Investigación Judicial- ubicado en el Primer Circuito Judicial de San José.”)
 San José, 09 de marzo de 2020.
