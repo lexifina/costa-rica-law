@@ -1,0 +1,3 @@
+Artículo 23.- Comparecencia oral y privada.
+La audiencia oral y privada con la Comisión Investigadora, se regirá por lo dispuesto en la Ley General ele la Administración Pública. En dicha audiencia se admitirá y recibirá toda prueba que no hubiere siclo cvc1cuc1cla con anterioridad y se oirán los alegatos y conclusiones de las partes.
+En la convocatoria a la comparecencia deberá prevenírsele a las partes que deben presentar toda la prueba antes o en el momento ele la comparecencia, si no lo hubiesen hecho. Además, se le indicará que su ausencia injustificada no suspenderá la comparecencia, en los términos del artículo 315 de la Ley General de Administración Pública.

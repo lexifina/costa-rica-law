@@ -1,0 +1,2 @@
+Artículo 11-Órganos facultados para recibir, investigar y resolver las denuncias
+La Alcaldía Municipal o cualquier otra dependencia que de acuerdo a la Ley pueda ejercer la potestad disciplinaria, será la competente para recibir, tramitar y resolver las denuncias por acoso laboral, según corresponda, sin embargo, las mismas también podrán ser recibidas por los Departamento ele Recursos Humanos y de Salud Ocupacional quienes deberán de remitir las mismas ele manera inmediata ante la Alcaldía para el trámite correspondiente.

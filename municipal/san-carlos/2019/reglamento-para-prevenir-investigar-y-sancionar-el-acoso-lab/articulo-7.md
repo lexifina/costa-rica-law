@@ -1,0 +1,2 @@
+Artículo 7 .- Ámbito de cobertura.
+El presente reglamento rige para tocias las personas servidoras ele la Municipalidad de San Carlos, nombradas en propiedad, interinamente, en puestos de confianza, a plazo fijo de igual manera rige para el personal ele contratación externa al servicio ele la institución cuando sean presuntas víctimas de acoso laboral por parte ele alguna persona servidora de la Municipalidad de San Carlos.

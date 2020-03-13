@@ -1,0 +1,2 @@
+Artículo 25.- Conclusión de la Comparecencia
+Una vez evacuada toda la prueba documental testimonial ofrecida por las partes, estas procederán a rendir ante la Comisión Investigadora las correspondientes conclusiones o en su defecto, contarán con un plazo de tres días hábiles contados a partir del siguiente día hábil de la conclusión de ésta, para presentarla por escrito las mismas, lo anterior de conformidad con el artículo 317 de la Ley General de la Administración Pública.

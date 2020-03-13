@@ -1,0 +1,2 @@
+Artículo 17.- La presunta víctima como parte del proceso
+La presunta víctima será expresamente reconocida como parte en el proceso, con todos los derechos inherentes a esta condición, incluyendo la posibilidad de ser asistida por una persona profesional en derecho, sobre lo cual será advertido por el órgano instructor en Ia primera resolución. De igual manera, tiene derecho a ser atendida por las persona profesionales de los Servicios de Salud o en los servicios de Psicología y áreas afines a disposición de los (as ) servidores (as) de la Municipalidad de San Carlos.

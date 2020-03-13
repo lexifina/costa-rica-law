@@ -1,0 +1,2 @@
+Artículo 20.- De las garantías procesales.
+El procedimiento se instruirá ele conformidad con las normas contenidas en la Ley General de la Administración Pública, garantizando el debido proceso y el derecho de defensa de la persona denunciada, lo que incluye la posibilidad de contar con representación legal. La persona denunciante será tenida como parte del procedimiento y podrá participar activamente del mismo, de manera personal o por medio de su representante legal.

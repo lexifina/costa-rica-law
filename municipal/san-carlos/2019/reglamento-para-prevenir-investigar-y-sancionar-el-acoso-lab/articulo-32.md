@@ -1,0 +1,2 @@
+Artículo 32.- Solicitud de Medidas cautelar-es
+Las Medidas Cautelares podrán ser dictadas en cualquier etapa del proceso, atendiendo la solicitud de parte previo análisis y dictado por parte ele la Comisión Investigadora o de oficio emitida por parte ele es(a, previa justificación razonada para ante quien ocupe el puesto de Alcaldía, en condición ele Órgano Decisor. La medida podrá acordarse sin previa audiencia y su duración no podrá superar el plazo dispuesto para la instrucción del procedimiento.

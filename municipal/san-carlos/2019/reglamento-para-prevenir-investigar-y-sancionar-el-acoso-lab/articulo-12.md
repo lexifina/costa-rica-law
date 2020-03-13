@@ -1,0 +1,5 @@
+Artículo 12-Conformación de la Comisión Investigadora y plazo del nombramiento.
+La persona titular ele la Alcaldía, siendo considerado Órgano decisor dentro de este tipo de procesos, deberá conformar una Comisión Investigadora, que tendrá como responsabilidad realizar la investigación e instrucción de los casos de acoso laboral que sean denunciados en la Municipalidad de San Carlos. Esta Comisión estará integrada por tres miembros y sus respectivas suplencias:
+a) Una persona profesional en recursos humanos,
+b) Y un profesional en el área ele psicología o con conocimiento en procesos de acoso laboral
+c) Una profesional en derecho. Ésta última velará por el respeto al debido proceso, del mismo modo dicho integrante en el caso ele que la denuncia sea verbal, levantará el acta respectiva consignando las maní festaciones ele la persona denunciante La Comisión deberá ser establecida por un plazo de tres años renovables y la Administración le brindará la capacitación y el apoyo necesario para la ejecución de las labores encomendadas.
