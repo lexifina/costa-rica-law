@@ -1,0 +1,1 @@
+Artículo 56.- Publicación. la invitación a participar para la empresa con la que se va contratar, las modificaciones al cartel y el acto de adjudicación, se publicarán en el Sistema Integrado de Compras Públicas (SICOP).
