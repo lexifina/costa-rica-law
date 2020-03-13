@@ -1,0 +1,1 @@
+Artículo 4º—En dicha actividad se impulsará la importancia de los valores institucionales con el objetivo de mejorar la calidad de servicio que ofrece la institución. En dicha actividad se realizaran sesiones de capacitación, información, actividades de diversa índole en donde se incentive el fortalecimiento de los valores.

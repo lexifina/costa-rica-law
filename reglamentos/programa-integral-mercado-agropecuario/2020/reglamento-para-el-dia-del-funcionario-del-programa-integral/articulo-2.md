@@ -1,0 +1,1 @@
+Artículo 2º—El día del Funcionario se conmemorará institucionalmente el tercer viernes del mes de noviembre de cada año. De manera tal que servirá para conmemorar la fecha de la creación el Programa Integral de Mercadeo Agropecuario, según ley N° 6142, el 25 de noviembre 1977.

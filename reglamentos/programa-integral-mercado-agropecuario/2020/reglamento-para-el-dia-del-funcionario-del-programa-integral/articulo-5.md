@@ -1,0 +1,1 @@
+Artículo 5º—La actividad de la conmemoración del día del funcionario estará a cargo del proceso de Recursos Humanos, quien será el responsable de la presupuestación correspondiente y contará con el respaldo de todas las áreas institucionales.
