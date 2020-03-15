@@ -1,7 +1,14 @@
-CAPÍTULO III
-De los arreglos de pago
-Artículo 18.—El arreglo de pago es el compromiso que asume el contribuyente moroso de cancelar en tiempo perentorio de acuerdo con lo dispuesto en este Reglamento, la cuenta que adeuda a la Municipalidad de San Rafael de Heredia. Las personas interesadas en un arreglo, deberán presentar solicitud escrita para tales efectos. El arreglo de pago se otorgará por parte del Departamento de Cobro, el que debe contar con el Visto Bueno de la Jefatura para lo cual ésta valorará las siguientes condiciones del sujeto pasivo:
-a. Existencia y Verificación de la deuda. El Departamento de Cobro se encargará de verificar todos los datos relativos a la deuda sujeta al arreglo de pago.
-b. Interés del sujeto pasivo. El sujeto pasivo debe mostrar voluntad y compromiso para cumplir con el arreglo de pago que proceda.
-De proceder el arreglo de pago, ambas partes pactarán el monto a cancelar mensualmente; el plazo máximo para la cancelación total de la deuda vencida, será de seis meses, excepto en casos debidamente documentados a personas en estado de pobreza extrema, en los que el plazo máximo no podrá exceder los doce meses, previo análisis y resolución del Departamento de Cobro, contando con el visto bueno de la Alcaldía Municipal y del Concejo Municipal.
-En el caso de personas jurídicas, la solicitud deberá ser firmada por el representante legal o apoderado generalísimo y deberá aportar la certificación de personería jurídica correspondiente.
+Artículo 18: Condiciones para otorgar arreglos de pago: El arreglo de pago se podrá conceder, previo al cumplimiento de requisitos, de acuerdo con los plazos fijados en el artículo 17 de este reglamento, en toda solicitud de arreglo de pago deberá evaluarse la capacidad económica del sujeto pasivo, los motivos de la morosidad y el monto adeudado.
+Son sujetas de aplicación de arreglo de pago las siguientes situaciones:
+a) Pago de servicio de recolección de basura.
+b) Pago de servicios de limpieza y aseo de vías.
+c) Pago de impuesto de bienes inmuebles.
+d) Pago de servicios y derechos de cementerio.
+e) Mantenimiento de parques y obras de ornato.
+f) Pago de construcción de aceras.
+g) Multa por construcción de aceras.
+h) Multas por concepto de permisos de construcción.
+i) Multas por presentación tardía de la declaración de bienes inmuebles.
+j) Deudas que se encuentran en cobro administrativo.
+k) Deudas que estando en la etapa de cobro judicial y extrajudicial, donde el interesado manifieste por escrito su interés de suscribir un arreglo de pago, en cuyo caso se constituirá en la última opción de arreglo de pago por este proceso.
+l) En el caso de las deudas derivadas del impuesto sobre actividades lucrativas o de expendio de bebidas con contenido alcohólico.

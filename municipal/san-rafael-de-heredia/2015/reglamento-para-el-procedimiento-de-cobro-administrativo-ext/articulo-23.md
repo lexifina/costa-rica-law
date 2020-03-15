@@ -1,1 +1,1 @@
-Artículo 23.—Toda la documentación relativa a arreglos de pago estará en custodia del Departamento de Cobro, la cual en su oportunidad y de ser necesario realizará las gestiones de cobro judicial correspondiente.
+Artículo 23: Sobre la documentación relacionada con los arreglos de pago: Toda la documentación para la suscripción del arreglo de pago, que haya sido requerida por la Unidad de Cobros de la Municipalidad, así como el compromiso de pago, será agregado al expediente y debidamente foliado para su conservación.

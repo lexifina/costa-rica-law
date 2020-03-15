@@ -1,1 +1,3 @@
-Artículo 42.—Terminación o suspensión del proceso judicial. Una vez que el cobro judicial haya sido iniciado, solo podrá darse por terminado el proceso judicial por el pago total de la suma adeudada a la Municipalidad, incluyendo las costas procesales y personales y cualquier otro gasto generado durante su tramitación o con ocasión del mismo. También podrá darse por terminado en el caso en que se determine fehacientemente o así se declare, la imposibilidad de cobro de la cuenta, o la improcedencia de la gestión cobratoria.
+SECCIÓN III
+Resolución de la Contratación de Abogadas (os) Externos
+Artículo 42: Resolución de la Contratación. Las abogadas (os) externos que, por alguna razón personal o profesional, quieran dejar de servir a la Municipalidad, deberán de comunicar esa decisión expresamente y por escrito a la Dirección Tributaria, con treinta días naturales de antelación, nota de la cual remitirán una copia a la Unidad de Cobros.

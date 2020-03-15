@@ -1,10 +1,6 @@
-CAPÍTULO V
-Formas de extinción de la obligación tributaria municipal
-Artículo 26.—Formas de extinción de la obligación tributaria municipal. La obligación tributaria municipal se extingue por cualquiera de los siguientes medios:
-a. Pago efectivo.
-b. Compensación.
-c. Confusión.
-d. Condonación.
-e. Prescripción.
-f. Dación en pago.
-g. Novación.
+Artículo 26: Interrupción de la prescripción: El curso de la prescripción se interrumpe por las siguientes actuaciones:
+a. Cuando el sujeto pasivo se presenta, o por cualquier medio electrónico verificable, a realizar la determinación de su tributo.
+b. Cuando el deudor hace un reconocimiento expreso de su obligación
+c. Cuando el sujeto pasivo o su representante ha solicitado aplazamientos o fraccionamientos de pago.
+d. Las notificaciones de todo acto administrativo o judicial que se realice con el fin de ejecutar el cobro de la deuda.
+e. La interposición de peticiones o reclamos con respecto a los servicios municipales brindados y que son objeto de cobro.

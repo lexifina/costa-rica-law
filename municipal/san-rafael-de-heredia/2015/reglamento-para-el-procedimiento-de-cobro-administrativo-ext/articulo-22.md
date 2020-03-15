@@ -1,1 +1,1 @@
-Artículo 22.—En el caso de que el contribuyente moroso incumpliere el compromiso adquirido de arreglo de pago. La Municipalidad procederá de inmediato a pasar esa cuenta a cobro judicial.
+Artículo 22: Monto mínimo para realizar arreglos de pago. Únicamente procederán arreglos de pago cuando las obligaciones vencidas sean por un monto mayor a la sexta parte del salario base, correspondiente a un Auxiliar Administrativo I, de conformidad con el Decreto de Salarios Mínimos vigente al momento de efectuarse el arreglo de pago respectivo.

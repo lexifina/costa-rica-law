@@ -1,5 +1,5 @@
-Artículo 30.—Prescripción. La prescripción es la forma de extinción de la obligación que surge como consecuencia de la inactividad del Departamento de Cobro en ejercicio de la acción cobradora.
-Los plazos para que ésta opere, su interrupción y demás aspectos sustanciales se regirán conforme a la ley.
-En el caso de los tributos municipales, el plazo de prescripción es de cinco años, de conformidad con el artículo 73 del Código Municipal, y en el caso de tributos de administración municipal, se regula según lo establecido en el artículo 51 del Código de Normas y Procedimientos Tributarios.
-La declaratoria de prescripción únicamente procederá a petición de parte, y podrá otorgarse administrativamente, para lo cual, el sujeto pasivo presentará la solicitud respectiva ante el Departamento de Cobro, el que le aplicará el trámite establecido en el artículo 168 del Código de Normas y Procedimientos Tributarios.
-Emitida la resolución administrativa que declara la prescripción de lo adeudado, el Departamento de Cobro procederá a actualizar el saldo de la cuenta. Lo pagado para satisfacer una obligación prescrita no es objeto de repetición.
+CAPITULO III
+De los Abogados Externos
+SECCIÓN I
+Artículo 30: De la designación. Los abogados externos serán designados en virtud de la contratación por medio del Sistema Integrado de Compras Púbicas (SICOP), que realizará la Municipalidad para su contratación, en cumplimiento de la normativa que establece la Ley de Contratación Administrativa y su Reglamento para la contratación de este tipo de servicios.
+El número de abogados externos a contratar dependerá de la cartera de sujetos pasivos morosos que será remitida a la etapa ejecutiva y será determinado por la Jefatura de la Unidad de Cobros. Asimismo, corresponde a la Dirección Tributaria conjuntamente con la Jefatura de la Unidad de Cobros analizar a los participantes en el concurso y realizar la evaluación respectiva, para efectos de determinar quiénes serán los profesionales que serán contratados por la Municipalidad.

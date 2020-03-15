@@ -1,3 +1,3 @@
-CAPÍTULO VI
-Disposiciones Finales
-Artículo 51.—A las materias que son objeto del presente reglamento, resultan aplicables supletoriamente las disposiciones contenidas en el Código de Normas y Procedimientos Tributarios, Código Municipal, Código Procesal Civil, La Ley General de la Administración Pública, la Ley Orgánica del Colegio de Abogados, La Ley Reguladora de la Jurisdicción de lo Contencioso Administrativo y Normas Conexas, y el Decreto de Aranceles Profesionales para Abogados, así como cualquier otra norma que guarde relación con este reglamento.
+Artículo 51: Archivo temporal de deudas tributarias consideradas como montos exiguos. Las deudas tributarias que hayan sido archivadas temporalmente, conforme lo establece artículo 49 del presente reglamento, deberán ser revisadas una vez que se haya realizado la actualización del monto exiguo que establece el artículo 52, para determinar si aún se mantienen dentro de dicho monto.
+En el caso de las deudas que aún representen montos exiguos se deberá aplicar lo establecido en el artículo 48 de este reglamento.
+Las deudas que ya no representen montos exiguos se deberán sacar del archivo temporal y ejecutarse de las gestiones de cobro establecidas en este reglamento.

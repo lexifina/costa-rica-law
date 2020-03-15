@@ -1,1 +1,1 @@
-Artículo 13.—La dirección y control, tanto de las acciones, como las gestiones de cobro judicial estarán a cargo de del Departamento de Administración Tributaria en coordinación con los asesores legales externos que se contraten y el Departamento Legal de la Municipalidad.
+Artículo 13: De la función de fiscalización: El objeto de la función de fiscalización es comprobar la situación tributaria de los sujetos pasivos, con el fin de verificar el efectivo cumplimiento de sus obligaciones y deberes, propiciando la regularización correspondiente.

@@ -1,0 +1,1 @@
+Artículo 54: El día hábil siguiente al remate el abogado deberá informar por escrito a la Dirección Tributaria el resultado del remate, si pasado un lapso de ocho días no cumpliera con lo anterior, esa Dirección Tributaria le enviará una nota solicitando el informe, remitiendo copia al Alcalde para que se proceda de conformidad con el artículo 34 de este Reglamento.

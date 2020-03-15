@@ -1,6 +1,2 @@
-Artículo 15.—Agotadas las gestiones administrativas en la recuperación de cuentas morosas remitidas por cada oficina que tenga a su cargo el cobro de tributos municipales, la oficina encargada de cobros realizará el trámite de cobro judicial con la documentación necesaria que haya sido remitida por cada oficina para que inicie los trámites judiciales, la cual debe contener:
-a) Nombre completo
-b) Número de cédula
-c) Dirección exacta
-d) Monto del principal
-e) Monto de los intereses y liquidación de los mismos por cada período, indicando cual ha sido el interés sobre el cual se hizo el cálculo y los montos por cada rubro.
+Artículo 15: Cuando un contribuyente se encuentre en estado de morosidad y se haya dado inicio al proceso de cobro administrativo o judicial, ya sea con llamadas telefónicas, mensajería de texto, envíos de correos, notificación por edicto u otros mecanismos de notificación, deberá obligatoriamente cubrir el costo administrativo que dicha gestión ocasionó y que será cancelado conjuntamente con los tributos y demás recargos.
+El costo de los gastos administrativos se determinará con base en un estudio de Costos de los procesos administrativos o judiciales el cual se determinará mediante la Fiscalización de Tarifas, actualizándose al menos una vez al año y publicado en el Diario Oficial La Gaceta.

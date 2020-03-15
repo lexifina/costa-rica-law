@@ -1,1 +1,11 @@
-Artículo 16.—El Departamento de Administración Tributaria deberá rendir informes trimestrales al Alcalde Municipal sobre las gestiones realizadas de cobro de las cuentas morosas y el estado en que se encuentren las acciones de cada gestión a la fecha.
+SECCION III
+Del Proceso de Cobros de la Municipalidad
+SUBSECCION I
+Artículo 16: Obligaciones del Proceso de Cobros de la Municipalidad: La Unidad de Cobros de la Municipalidad, en cumplimiento de su función de recaudación tendrá las siguientes obligaciones:
+a. Realizar o gestionar las acciones de cobro administrativo de las cuentas atrasadas, en forma oportuna de modo que se interrumpan o suspendan los plazos de prescripción de los tributos.
+b. Crear y poner en práctica las estrategias necesarias, diseñar o variar los procesos y establecer los controles y lineamientos oportunos para hacer efectivo el cobro y el correspondiente pago de las cuentas morosas.
+c. Las gestiones de cobro administrativo se iniciarán cuando el contribuyente tenga un atraso de hasta dos trimestres y se procederá a enviar dos notificaciones administrativas, otorgándole un plazo de quince días hábiles en ambas, para que efectúe el pago, si vencido el plazo después de la última notificación no se hiciere presente el sujeto pasivo a cancelar, se remitirá la certificación de la deuda, junto con la documentación adicional que corresponda a las abogadas (os) externos, para efectos de proceder al cobro judicial, de conformidad con lo que establece este Reglamento.
+El expediente original quedará en poder de la Unidad de Cobros con el fin de que sirva como base para atender futuros recursos de las personas contribuyentes en la vía judicial. Las notificaciones indicadas se realizarán por los medios legales correspondientes, establecidos en el presente Reglamento, o bien aplicando las disposiciones en esa materia establecidas en la Ley de Notificaciones Judiciales No. 8687 del 04 de diciembre del 2008.
+d. Ejercer las funciones de control y fiscalización sobre la actuación que ejerzan las abogadas (os) externos en la etapa ejecutiva.
+e. Organizar la información y asistencia al contribuyente, así como controlar el cumplimiento de obligaciones materiales que se le deleguen, siempre que impliquen la comprobación abreviada o formal de la situación tributaria del sujeto pasivo.
+f. Establecer, en el marco de sus funciones, los procedimientos y directrices necesarias para facilitar a los contribuyentes, responsables y declarantes, el cumplimiento voluntario de sus obligaciones tributarias.

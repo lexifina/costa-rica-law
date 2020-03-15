@@ -1,5 +1,1 @@
-SECCIÓN III
-De las Sanciones
-Artículo 46.—Resolución automática del contrato de servicios profesionales. Se resolverá automáticamente el contrato por servicios profesionales cuando se den las siguientes causales:
-a. El abogado externo realice cualquier acción judicial o administrativa contra la Municipalidad.
-b. Cuando se pierda un incidente o el proceso, debido al vencimiento del plazo para aportar algún documento o recurso.
+Artículo 46: Competencia. Corresponde a la Dirección Tributaria mediante el estudio respectivo determinar cuáles son los montos que se considerarán exiguos.

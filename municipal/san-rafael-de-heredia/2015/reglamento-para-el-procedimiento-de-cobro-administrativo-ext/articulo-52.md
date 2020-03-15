@@ -1,1 +1,1 @@
-Artículo 52.—Derogaciones. Este Reglamento deroga cualquier otra disposición administrativa, o reglamentaria que se contraponga a lo aquí regulado.
+Artículo 52: Actualización. El monto exiguo deberá actualizarse cada año tomando en cuenta los incrementos en los costos que deba incurrir la Municipalidad para completar el proceso de cobro administrativo.
