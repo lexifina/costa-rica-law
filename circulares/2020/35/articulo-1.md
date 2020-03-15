@@ -224,4 +224,11 @@ Se autoriza a las jefaturas a otorgar licencia o permiso con goce de salario sin
 3) Las personas juzgadoras que dirigen juicios o debates restringirán la asistencia del público, en tanto esto sea legalmente posible.
 4) No se autorizarán viajes de trabajo al exterior a personas servidoras.
 5) No se permitirá el ingreso de personas externas, a la soda que se ubica en el Edificio de la Tercera Etapa -Organismo de Investigación Judicial- ubicado en el Primer Circuito Judicial de San José.”)
+(Nota de Sinalevi: Mediante sesión N° 22-2020 del 15 de marzo del 2020, publicada en el Boletín Judicial N° 67 del 1° de abril del 2020 mediante circular N° 46-2020 del 15 de marzo del 2020 se amplían los presentes lineamientos según se transcribe a continuación:)
+1.) Se suspenden las giras de trabajo en tanto legalmente sea factible.
+2.) Se suspenden las actividades protocolarias así como las de capacitación presenciales, prevalecen las virtuales.
+3.) No se realizarán reuniones presenciales, en su lugar se utilizarán los medios tecnológicos con que cuenta la institución para ello.
+4.) Las jefaturas de las personas servidoras que arriben de un viaje al exterior, deberán disponer que teletrabajen en tanto se someten a los protocolos del Ministerio de Salud para descartar que estén contaminadas con el COVID-19. En caso de que sus puestos no sean teletrabajables, se les deberá otorgar una licencia con goce de salario hasta por 5 días, en tanto las autoridades de salud definen su situación.
+5.) Los gimnasios de los diferentes edificios y el de la Ciudad Judicial deberán permanecer cerrados.
+6.) Deberá la Secretaría de la Corte emitir la circular correspondiente y el Departamento de Prensa y Comunicación Organizacional darle la debida divulgación.”)
 San José, 09 de marzo de 2020.
