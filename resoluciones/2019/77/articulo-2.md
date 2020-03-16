@@ -1,1 +1,0 @@
-2. El saldo actual acumulado de la estimación contra cíclica, registrado en la cuenta analítica “139.02.M.02 (Componente contra cíclico), que mantienen las entidades, no será sujeto de des acumulación en virtud del cambio de porcentaje establecido en esta Resolución.
