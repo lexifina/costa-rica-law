@@ -1,3 +1,6 @@
-SECCIÓN II
-Del pago de gastos de viaje
-Artículo 58.—Cuando un miembro del Consejo Directivo le corresponda en cumplimiento de su cargo realizar giras de trabajo dentro o fuera del país, tendrá derecho a cobrar los gastos de hospedaje y alimentación y otros gastos derivados de su desplazamiento. Para estos efectos, se aplicará la normativa vigente para el personal de la institución.
+Artículo 58.—Participación virtual de las personas directoras
+Cuando alguna de las personas directoras requiera asistir virtualmente a la sesión, deberá comunicarlo por cualquier medio escrito a la persona que preside el Consejo Directivo con al menos tres días hábiles de antelación a la fecha de celebración de la respectiva sesión.
+En caso de urgencia debidamente justificado, podrá comunicarlo dentro de las 24 horas anteriores a la realización de la sesión.
+La persona directora que participe virtualmente en la sesión deberá coordinar con la Secretaría, con el tiempo suficiente previo a la hora de inicio de la sesión, para asegurarse que cuenta con la funcionalidad de los equipos y las condiciones necesarias para participar de forma segura en la sesión.
+Es obligación de las personas directoras que participan virtualmente en la sesión, asegurarse que en el lugar que se encuentren tienen los medios tecnológicos necesarios para garantizar su participación, la seguridad y la privacidad de la sesión, salvo que, en relación con este último punto, el órgano colegiado haya tomado acuerdo en sentido contrario.
+(Así adicionado mediante publicación en La Gaceta N° 60 del 25 de marzo del 2020)

@@ -1,0 +1,3 @@
+Artículo 62.—Del no pago de dietas. No procederá el pago de dietas de las o los Directores del Consejo Directivo en las siguientes situaciones:
+1. Cuando un director ingrese a la sesión después de iniciada o se retire treinta minutos antes de que concluya la misma sin la debida justificación y quien presida el Consejo no haya justificado su ausencia. No obstante lo anterior, el director podrá integrarse al estado de avance de la Agenda de la Sesión y podrá ejercer sus derechos y atribuciones conforme a la ley.
+(Así modificada su numeración mediante publicación en La Gaceta N° 60 del 25 de marzo del 2020, que lo traspasó del antiguo artículo 57 al 62)
