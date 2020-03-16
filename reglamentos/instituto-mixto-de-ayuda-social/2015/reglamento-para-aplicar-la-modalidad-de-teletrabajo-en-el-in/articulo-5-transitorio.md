@@ -1,1 +1,0 @@
-Transitorio V.- Dentro de los seis meses siguientes de la entrada en vigencia de este reglamento, el Área de Desarrollo Humano debe presentar el manual de procedimiento para optar por la modalidad de teletrabajo.

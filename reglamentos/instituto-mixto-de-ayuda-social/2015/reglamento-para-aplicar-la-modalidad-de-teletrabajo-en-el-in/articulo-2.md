@@ -1,2 +1,0 @@
-Artículo 2º- El alcance Este reglamento es aplicable a todas las personas funcionarias que opten voluntariamente por la modalidad de teletrabajo, o para aquellas personas que ocupen cargos que por su naturaleza implique realizar teletrabajo per se y superen el proceso de selección para trabajar bajo la modalidad de teletrabajo.
-Podrán teletrabajar aquellas personas que ocupen puestos técnicos o profesionales que cuenten con las competencias, actividades teletrabajables y requisitos establecidos en este Reglamento.

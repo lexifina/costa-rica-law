@@ -1,1 +1,0 @@
-Artículo 54º-: Cumplimiento de requisitos La verificación de los requisitos establecidos en este Reglamento para optar por la modalidad de teletrabajo, estará a cargo del Área Desarrollo Humano, la cual solicitará dictamen técnico a las instancias responsables en el proceso.

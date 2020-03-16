@@ -1,1 +1,0 @@
-Artículo 55º- Valoración de la CIT Una vez emitidos los criterios técnicos, el Área de Desarrollo Humano elevará a la Comisión Institucional de Teletrabajo, las solicitudes de las personas funcionarias con la recomendación que corresponda, indicando si cumplen o no con los requisitos y si podrían o no aplicar a la modalidad de teletrabajo.

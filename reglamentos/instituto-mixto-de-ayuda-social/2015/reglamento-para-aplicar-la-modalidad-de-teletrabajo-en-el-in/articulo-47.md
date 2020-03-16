@@ -1,3 +1,0 @@
-Artículo 47 º- Duración de la relación de teletrabajo. La duración del teletrabajo móvil será de carácter permanente y el teletrabajo domiciliario será temporal, de al menos un año, la misma se definirá en el contrato o adendum al contrato.
-Si se requiere concluir antes de la fecha estipulada, el superior o la superiora jerárquica deberán comunicarlo al CIT, con copia al Área de Desarrollo Humano. En caso de requerirse su continuidad, y de haber consenso entre las partes, se prorrogará automáticamente, por igual término, lo que también se comunicará al Área de Desarrollo Humano.
-El IMAS se reserva la facultad de variar la duración de las condiciones de tiempo de la relación de teletrabajo, cuando las condiciones institucionales; así lo requieran.

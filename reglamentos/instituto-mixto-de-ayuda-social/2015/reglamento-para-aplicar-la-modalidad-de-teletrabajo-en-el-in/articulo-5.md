@@ -1,5 +1,0 @@
-CAPÍTULO II: ÓRGANOS COMPETENTES
-Artículo 5 º- Comisión Institucional de Teletrabajo (CIT): Créase la Comisión Institucional de Teletrabajo como equipo interdisciplinario conformado por personas funcionarias de diversas dependencias del IMAS responsable de asesorar a las autoridades institucionales en la planificación de acciones que impulsen el teletrabajo en la Institución.
-Esta Comisión permanente estará conformada por el o la Gerente General, la o el Jefe del Área de Desarrollo Humano, la o el Jefe de Planificación Institucional, la o el Jefe del Área de Tecnologías de Información, la o el Jefe de Asesoría Jurídica, una persona representante de la Subgerencia de Desarrollo Social. Estará presidida por la o el Gerente General.
-Dicha Comisión debe llevar un libro de actas legalizado, donde se consignen los acuerdos de dicho órgano.
-Las personas integrantes tendrán la misma jerarquía dentro de la Comisión independientemente de la unidad administrativa que representen, de igual forma todas las personas integrantes tienen voz y voto y solo en caso de empate la o el Gerente General tendrá el voto de calidad que dirima el caso.

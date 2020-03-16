@@ -1,1 +1,0 @@
-Artículo 36 º-: Calificación mínima. El o la teletrabajadora deberá mantener una calificación superior o igual a 85 o su equivalente cualitativo en la evaluación del desempeño que se le aplique, según lo dispuesto en el Reglamento Autónomo de Servicios.

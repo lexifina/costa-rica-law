@@ -1,1 +1,0 @@
-Transitorio II.- Dentro del mes siguiente de la entrada en vigencia de este reglamento, el Área de T.I. deberá tener la definición del equipo y las condiciones mínimas con las que debe contar un funcionario o funcionaria para realizar sus funciones en su lugar de teletrabajo

@@ -1,1 +1,0 @@
-Artículo 51 º-: Cumplimiento de disposiciones. Toda persona funcionaria que cumpla con los requisitos establecidos en el artículo 24 de este Reglamento, además deberá cumplir con el procedimiento establecido en el Manual respectivo para optar por la modalidad de teletrabajo.

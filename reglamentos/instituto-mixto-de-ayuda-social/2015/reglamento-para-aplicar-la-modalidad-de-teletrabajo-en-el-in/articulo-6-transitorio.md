@@ -1,1 +1,0 @@
-Transitorio VI.- La Comisión Institucional de Teletrabajo recibirá propuestas de los departamentos e instancias administrativas para incorporarse en la modalidad de teletrabajo a partir de un mes de la entrada en vigencia del presente reglamento. Publíquese.

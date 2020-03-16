@@ -1,1 +1,0 @@
-Artículo 52 º-: Solicitudes de Ingreso La persona funcionaria que desee acogerse a la modalidad de teletrabajo debe completar el formulario de incorporación y someterse a las valoraciones laborales, psicológicas, tecnológicas, médicas, de salud ocupacional y legales que se han establecido para una persona teletrabajadora.

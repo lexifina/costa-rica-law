@@ -1,1 +1,0 @@
-Transitorio III.- Dentro del mes siguiente de la entrada en vigencia de este reglamento, el Área de Desarrollo Humano debe definir los perfiles de las actividades o las funciones que pueden sujetarse a la modalidad de prestación de servicios del teletrabajo, para lo cual se deben considerar las herramientas básicas a suministrar por la Comisión Nacional de Teletrabajo.

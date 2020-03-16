@@ -1,1 +1,0 @@
-Artículo 41 º- Del equipo tecnológico El equipo tecnológico que se destine para teletrabajar deberá cumplir con las recomendaciones ergonómicas definidas por Salud Ocupacional y el Documento Técnico sobre Teletrabajo del Instituto Nacional de Seguros (I.N.S.).

@@ -1,1 +1,0 @@
-Artículo 40º- Del Reintegro de activos En caso de que la persona teletrabajadora domiciliaria se reincorpore a la modalidad presencial devolverá a la Institución, en forma inmediata, los activos que le fueron facilitados para el desempeño de sus funciones, entregándolos a la dependencia correspondiente, conforme lo establecido en la normativa institucional.
