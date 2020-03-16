@@ -18,3 +18,4 @@ Reglamento de información financiera
 | 3 | 2020-01-01 | Reglamento 1542 (2019-11-04) |
 | 4 | 2020-01-01 | Reglamento 1545 (2019-11-25) |
 | 5 | 2020-01-01 | Reglamento 1551 (2019-12-16) |
+| 6 | 2020-03-16 | Reglamento 1564 (2020-03-16) |
