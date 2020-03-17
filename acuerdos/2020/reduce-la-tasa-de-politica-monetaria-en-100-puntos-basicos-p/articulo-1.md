@@ -1,0 +1,24 @@
+BANCO CENTRAL DE COSTA RICA
+JUNTA DIRECTIVA
+La Junta Directiva del Banco Central de Costa Rica, en el artículo 8, del acta de la sesión 5921-2020, celebrada el 16 de marzo de 2020,
+considerando que:
+A. El artículo 2 de la Ley Orgánica del Banco Central de Costa Rica, Ley 7558, establece como principal objetivo de esta entidad, mantener la estabilidad interna y externa de la moneda nacional y asegurar su conversión a otras monedas.
+B. El citado artículo 2, adicionalmente dispone que el Banco Central tiene como objetivos subsidiarios los siguientes:
+i. “Promover el ordenado desarrollo de la economía costarricense, a fin de lograr la ocupación plena de los recursos productivos de la Nación, procurando evitar o moderar las tendencias inflacionistas o deflacionistas que puedan surgir en el mercado monetario y crediticio”.
+ii. “Promover la eficiencia del sistema de pagos internos y externos y mantener su normal funcionamiento”.
+iii. “Promover un sistema de intermediación financiera estable, eficiente y competitivo”.
+C. El literal e) del artículo 3 indica que una de las funciones esenciales del Banco Central es “la promoción de condiciones favorables al robustecimiento, la liquidez, la solvencia y el buen funcionamiento del Sistema Financiero Nacional”.
+D. La política monetaria tiene carácter prospectivo, es decir, reacciona en respuesta a los pronósticos de inflación. Para ello, toma en consideración el entorno económico así como la evolución prevista de los determinantes macroeconómicos de la inflación.
+E. La propagación internacional del covid-19 ha impactado y podría impactar, por diversos canales, la actividad económica mundial. Así, la disrupción de cadenas de valor por las medidas de contención ha afectado la producción de bienes y servicios en muchos países. Además, la pérdida de ingresos asociada a esas disrupciones, y la incertidumbre sobre el impacto del virus, podrían afectar la demanda privada; es decir, el consumo y la inversión. La demanda agregada global también se podría ver afectada por la alta volatilidad en los mercados financieros internacionales, particularmente en la última semana. Así, los organismos financieros internacionales están revisando a la baja sus proyecciones de crecimiento para la economía global en el 2020.
+F. Por otra parte, en semanas recientes han caído significativamente los precios del petróleo, producto de una guerra de precios entre algunos exportadores importantes de crudo y de la menor demanda esperada como consecuencia del coronavirus. El precio del West Texas Intermediate, referente relevante para Costa Rica, ha caído cerca de 36% en lo que transcurre del mes de marzo. G. Ante estos acontecimientos, los bancos centrales de varias economías avanzadas han reducido sus tasas de política monetaria, y muy significativamente en el caso de los Estados Unidos.
+H. La economía costarricense, que tiene un alto grado de integración comercial y financiera con la economía internacional, está expuesta a esos efectos económicos globales del coronavirus.
+En particular, en los meses siguientes la economía costarricense podría verse afectada por atrasos logísticos en la obtención de insumos, una menor demanda exterior de nuestros bienes y servicios, una caída en el turismo, y los efectos directos e indirectos que las medidas de contención puedan tener sobre la demanda interna.
+I. En este entorno, se acentúan los riesgos a la baja sobre el crecimiento económico y sobre la inflación, con respecto a lo contemplado en el Programa Macroeconómico 2020-2021. En particular, los modelos de pronóstico del Banco Central sugieren que la inflación se mantendría por debajo del punto medio del rango meta en los siguientes dos años. Las expectativas inflacionarias de los agentes económicos están también contenidas.
+J. El Título IV, numeral 2, literales D y E de las Regulaciones de Política Monetaria disponen que, en ese orden, corresponde a esta Junta Directiva determinar la Tasa de Política Monetaria y la tasa de interés de captación a un día plazo (DON).
+dispuso, por unanimidad y en firme:
+1. Reducir la Tasa de Política Monetaria en 100 puntos básicos (p.b.), para ubicarla en 1,25% anual, a partir del 17 de marzo de 2020.
+2. Consecuente con la reducción en la Tasa de Política Monetaria, modificar las tasas de interés para las facilidades permanentes en el Mercado Integrado de Liquidez, de la siguiente manera:
+a. Facilidad Permanente de Crédito = 200 p.b., es decir equivalente a la TPM + 75 p.b.
+b. Facilidad Permanente de Depósito = 1 p.b., es decir equivalente a la TPM – 124 p.b.
+c. Con ello el corredor de tasas de interés para operaciones en el Mercado Integrado de Liquidez es de 199 p.b. a partir del 17 de marzo de 2020.
+3. Ubicar la tasa de interés bruta de los depósitos a un día plazo (DON) en 0,01% anual a partir del 17 de marzo de 2020.
