@@ -1,0 +1,1 @@
+Artículo 2º—Modifícase el artículo 2º Ley N° 9791, Ley de Presupuesto Ordinario y Extraordinario de la República para el Ejercicio Económico del 2020, antes citada, con el fin de realizar el traslado de partidas y cambio de fuentes en el Título del Servicio de la Deuda Pública incluido en el presente decreto.
