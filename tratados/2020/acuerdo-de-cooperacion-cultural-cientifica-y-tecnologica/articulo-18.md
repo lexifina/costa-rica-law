@@ -1,0 +1,5 @@
+ARTÍCULO 18
+Las Partes se comprometen a proteger los derechos de propiedad intelectual resultantes de la ejecución del presente acuerdo. A este propósito prevalecerán las disposiciones de los acuerdos internacionales vigentes para ambas Partes en esta materia.
+Si fuese necesario ambas Partes se consultarán recíprocamente y facilitarán la suscripción de acuerdos específicos con el propósito de proteger los derechos sobre la propiedad intelectual.
+Las informaciones científicas y tecnológicas sujetas a derechos de propiedad intelectual derivadas de la actividad de cooperación relacionada con el presente acuerdo no serán divulgadas a terceras Partes sin el previo consentimiento escrito de ambas Partes y de conformidad con lo establecido por las normas internacionales en materia de propiedad intelectual.
+Las dos Partes favorecerán la transferencia de tecnologías entre las entidades estatales y públicas, las asociaciones y las organizaciones, respetando las obligaciones que se deriven de acuerdos específicos.

@@ -1,0 +1,3 @@
+ARTÍCULO 7
+Ambas Partes se comprometen a intercambiar toda documentación útil sobre sus respectivas legislaciones relativas a las instituciones de formación e instrucción superior y sobre la estructura de las mismas, así como sobre su evolución, con el propósito de verificar la existencia de requisitos aptos para determinar los principios y los criterios de una evaluación equitativa de los respectivos certificados y títulos de estudio extendidos por las mismas instituciones, con el único fin de la continuación de los estudios en los niveles superiores de sus propios ciudadanos.
+En cuanto al reconocimiento y equiparación de títulos y diplomas universitarios, las Partes podrán suscribir un acuerdo específico en esta materia.

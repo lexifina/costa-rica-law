@@ -1,0 +1,2 @@
+ARTÍCULO 6
+Las Partes fortalecerán además, la colaboración en el campo de la enseñanza, favoreciendo el intercambio de expertos y de informaciones sobre los respectivos ordenamientos de las escuelas, universidades y de institutos de educación superior, sobre las metodologías didácticas y su evolución, para una más equitativa evaluación comparativa de los respectivos certificados y títulos de estudio expedidos por las instituciones mismas, con el solo fin de la continuación de los estudios en los niveles superiores.
