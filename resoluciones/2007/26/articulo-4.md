@@ -1,1 +1,0 @@
-Artículo 4º—Derogar el “Manual sobre normas técnicas de control interno relativas a los sistemas de información computadorizados”, publicado en el Alcance Nº 7 de La Gaceta Nº 24 del 2 de febrero de 1996.

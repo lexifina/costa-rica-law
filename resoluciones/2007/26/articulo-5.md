@@ -1,1 +1,0 @@
-Artículo 5º—Informar que dicha normativa será distribuida por medio de los mecanismos pertinentes a cada institución y estarán a disposición en la dirección electrónica www.cgr.go.cr de la Contraloría General de la República.
