@@ -14,3 +14,4 @@ Normas de control interno para el Sector Público (N-2-2009-CO-DFOE) y reforma R
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-02-06 | la propia norma |
+| 2 | 2020-03-17 | Resolución 17 (2020-03-17) |
