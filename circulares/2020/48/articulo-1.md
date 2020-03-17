@@ -1,0 +1,6 @@
+Nº 48-2020
+ASUNTO: Aclaración sobre la información que se puede brindar por parte de los despachos judiciales, a terceros que no son parte en el expediente, o no son el abogado director, en caso de solicitud de información sobre tomos 800 o datos del estado del proceso con relación a un remate o al estado del expediente.
+A TODOS LOS DESPACHOS JUDICIALES DEL PAÍS
+SE LES HACE SABER QUE:
+“El Consejo Superior en sesión N° 12-2020 celebrada el 13 de febrero de 2020 artículo LIX, dispuso hacer de conocimiento de los Juzgados Cobratorios de la materia civil, que en el caso de gestiones presentadas por terceros que no son parte en el expediente o presentadas por un abogado que no es el abogado director del asunto, y referidas a información sobre tomos 800 generados dentro del proceso, en las que se solicite brindar el número de tomo y asiento de una anotación judicial, o el nombre del acreedor o anotante de ésta, así como la existencia o no de publicación del edicto en procesos con señalamiento o remate, o a datos generales del proceso, podrá brindarse la información, dada la limitante actual que existe en cuanto al acceso de los datos que se publicitan por el Registro Público concernientes a las anotaciones realizadas directamente por los despachos judiciales.”
+San José, 17 de marzo de 2020
