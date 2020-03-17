@@ -1,0 +1,1 @@
+Artículo 15.—La revisión y actualización de las políticas, procedimientos y demás lineamientos y disposiciones operativas, relacionadas con el presupuesto inicial y las variaciones presupuestarias, se regirá por las disposiciones generales establecidas por el Banco al respecto.

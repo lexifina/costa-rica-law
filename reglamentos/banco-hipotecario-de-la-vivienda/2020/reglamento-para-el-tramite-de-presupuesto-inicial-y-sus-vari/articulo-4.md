@@ -1,0 +1,1 @@
+Artículo 4º—La formulación y ejecución del Presupuesto Inicial y sus variaciones presupuestarias, será responsabilidad de la Autoridad Superior Administrativa o quien esta designe, a través del Departamento Financiero - Contable y su Área de Presupuesto y en estricto apego a la normativa institucional emitida para tal efecto.

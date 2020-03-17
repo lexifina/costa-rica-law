@@ -1,0 +1,1 @@
+Artículo 11.—Corresponde al Departamento Financiero -Contable y su Área de Presupuesto, remitir por las vías o plataformas establecidas formalmente la información a la Contraloría General de la República, del presupuesto inicial y las variaciones presupuestarias correspondientes al Banco.

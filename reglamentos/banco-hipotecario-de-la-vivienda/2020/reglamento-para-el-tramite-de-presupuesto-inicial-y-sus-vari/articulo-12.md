@@ -1,0 +1,1 @@
+Artículo 12.—El Presupuesto Inicial y las variaciones presupuestarias deberán ser formuladas, aprobadas, ejecutadas, controladas y evaluadas, con estricto apego al bloque de legalidad y con la normativa técnica establecida, norma 4.3.12 de las NTPP.

@@ -1,0 +1,1 @@
+Artículo 14.—En casos excepcionales debidamente justificados, podrán formularse variaciones presupuestarias adicionales, debiendo ser presentado así para aprobación por parte del Jerarca Superior del Banco.

@@ -1,0 +1,1 @@
+Artículo 8º—En el caso de solicitudes que impliquen creación, variación o eliminación de puestos de la estructura de personal del Banco, debe adjuntarse el estudio o recomendación elaborado por el Área de Recursos Humanos de la Dirección Administrativa cumpliendo además con las políticas, procedimientos o lineamientos formulados por la Dirección Administrativa al respecto.
