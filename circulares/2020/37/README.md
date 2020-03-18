@@ -13,3 +13,4 @@ Lineamiento temporal para que las Jefaturas puedan conceder el beneficio de tele
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-03-10 | la propia norma |
+| 2 | 2020-03-18 | Circular 49 (2020-03-18) |
