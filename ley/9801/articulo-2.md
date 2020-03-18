@@ -1,0 +1,1 @@
+ARTÍCULO 2- El inmueble donado será destinado a la construcción de un albergue para las personas de zonas y cantones alejados que deban pernoctar, en Ciudad Quesada, por acompañar a familiares internados o en observación en el Hospital San Carlos y el resto del mismo inmueble a facilidades comunales de índole social de la Municipalidad de San Carlos.
