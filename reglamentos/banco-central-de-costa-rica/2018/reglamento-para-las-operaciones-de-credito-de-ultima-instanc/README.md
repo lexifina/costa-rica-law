@@ -15,3 +15,4 @@ Reglamento para las operaciones de crédito de última instancia en moneda nacio
 | --- | --- | --- |
 | 1 | 2018-12-11 | la propia norma |
 | 2 | 2018-12-11 | Reglamento 5854 (2018-11-21) |
+| 3 | 2020-03-18 | Reglamento 5922 (2020-03-18) |

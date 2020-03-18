@@ -1,2 +1,4 @@
-Artículo 27. Procedimiento operativo
-La administración deberá comunicar al sistema financiero el procedimiento que deberán seguir las entidades financieras para la cesión de las garantías y el trámite de las solicitudes de crédito establecidos en este Reglamento.
+TÍTULO V. OTRAS DISPOSICIONES
+Artículo 27. Derogatorias. Se derogan:
+a) los Títulos I y II de las Regulaciones de Política Monetaria, denominados en ese orden, Operaciones de Crédito de Redescuento y Préstamos de Emergencia.
+b) el Reglamento de Instrumentos Contingentes de Provisión de Liquidez por parte del Banco Central.

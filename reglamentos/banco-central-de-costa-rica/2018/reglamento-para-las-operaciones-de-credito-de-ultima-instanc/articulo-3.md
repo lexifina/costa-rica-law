@@ -10,6 +10,4 @@ Mercado de monedas extranjeras (Monex): mercado de divisas organizado por el Ban
 Pasivo financiero de corto plazo: obligaciones con el público, no mayores a 90 días. Incluye los siguientes instrumentos: cuenta corriente, ahorro a la vista, cheques de gerencia, cheques certificados, certificados de depósito a plazo (CDP) y de inversión (CI) y depósitos a plazo vencido. Excluye el pasivo con otras entidades financieras.
 Sistema Nacional de Pagos Electrónicos (SINPE). Es el portal financiero que integra y articula el sistema de pagos costarricense.
 SUGEF: Superintendencia General de Entidades Financieras.
-Artículo 3. Definiciones y abreviaturas
 Tasa de política monetaria (TPM): tasa de interés de referencia del Banco Central de Costa Rica para conducir el costo de las operaciones a un día plazo en el MIL. Es aprobada por la Junta Directiva del Banco Central de Costa Rica.
-(Nota de Sinalevi: En la publicación de este reglamento aparece dos veces el artículo N°3)

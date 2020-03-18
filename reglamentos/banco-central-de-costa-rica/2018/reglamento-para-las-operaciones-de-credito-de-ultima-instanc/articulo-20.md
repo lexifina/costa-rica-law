@@ -1,9 +1,11 @@
-Artículo 20. Garantías admisibles
-Los créditos de última instancia recibirán en garantía cartera de crédito en colones y US dólares, que deberá cumplir con los siguientes requisitos:
-a) Cartera A1 o A2 cuyo deudor haya tenido comportamiento de pago histórico 1 o 2 en los dos años previos a la solicitud, como mínimo, clasificación según lo dispuesto en el Acuerdo SUGEF-1-05, Reglamento para la calificación de deudores.
-b) No provenir de créditos otorgados a deudores que formen parte de un grupo o conglomerado financiero, incluyendo el de la propia entidad.
-c) Estar respaldada en su totalidad con garantía hipotecaria en primer grado o fideicomiso de garantía cuyo patrimonio esté constituido por bienes inmuebles y que éstos no tengan gravámenes.
-d) Que el deudor de la operación de crédito no se encuentre en proceso de administración por intervención judicial. En caso de que el deudor entre en dicho proceso, el intermediario financiero debe sustituir esa garantía o hacer la amortización proporcional del crédito recibido.
-e) Que la garantía no provenga de un deudor que acumule deudas con la entidad por un monto superior al 2% del capital base de esa entidad.
+Artículo 20. Garantías admisibles. Los créditos de última instancia recibirán en garantía cartera de crédito en colones y dólares estadounidenses, que deberá cumplir con los siguientes requisitos:
+a) La cartera deberá ser A1 o A2, y su deudor deberá haber tenido comportamiento de pago histórico 1 o 2 en los dos años previos a la solicitud, como mínimo. Esta clasificación se fundamentará en lo dispuesto en el Acuerdo SUGEF-1-05, Reglamento para la calificación de deudores.
+b) La cartera otorgada en garantía no podrá provenir de créditos por tarjetas de crédito ni de créditos otorgados a otras entidades financieras o a deudores que formen parte de un mismo grupo o conglomerado financiero, incluyendo el de la propia entidad.
+c) El porcentaje de aceptación de las garantías por tipo de cartera de crédito será aprobado por la Junta Directiva del Banco Central y comunicado oportunamente a las entidades autorizadas.
+Inicialmente, las operaciones de crédito deberán estar respaldadas, en su totalidad, con garantía hipotecaria en primer grado o fideicomiso de garantía cuyo patrimonio esté constituido por bienes inmuebles sin otros gravámenes. Para este tipo de cartera, el porcentaje de aceptación de la garantía será del 40% para USD y 50% para moneda nacional, menos las provisiones por incobrables establecidas según la normativa emitida al respecto por la SUGEF.
+El equivalente en colones de los créditos en USD, será calculado al tipo de cambio promedio del Monex del día anterior a la fecha de la solicitud de crédito.
+El tipo de cartera de crédito admisible como garantía se irá ampliando en forma gradual, por decisión de la Junta Directiva.
+d) El deudor de la operación de crédito otorgada como garantía no podrá encontrarse en proceso de administración por intervención judicial. En caso de que el deudor entre en dicho proceso, el intermediario financiero debe sustituir esa garantía o hacer la amortización proporcional del crédito recibido.
+e) La garantía no podrá provenir de un deudor que acumule deudas con la entidad por un monto superior al 2% del capital base de esa entidad.
 f) El plazo que resta para el vencimiento del crédito dado en garantía deberá ser mayor, en al menos un año, a la fecha de vencimiento de la operación de crédito solicitada al Banco Central de Costa Rica.
-g) En los documentos de formalización del crédito se haya estipulado la renuncia del deudor a ser notificado en caso de cesión en garantía del crédito.
+g) En los documentos de formalización del crédito se deberá estipular la renuncia del deudor a ser notificado en caso de cesión en garantía del crédito.

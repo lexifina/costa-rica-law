@@ -15,10 +15,10 @@ G. La regulación existente en materia de operaciones de crédito de liquidez es
 H. La Política de alto nivel en la gestión integral de riesgos aprobada por esta Junta Directiva señala que el Banco Central de Costa Rica tolera un nivel de riesgo bajo en el cumplimiento de su misión, visión, objetivos institucionales y estratégicos, razón por la cual, adoptará las medidas y controles necesarios para mantener los riesgos en este nivel.
 dispuso:
 1. Aprobar el Reglamento para las Operaciones de Crédito de Última Instancia en Moneda Nacional del Banco Central de Costa Rica, en los términos que a continuación se indican:
-Reglamento para las Operaciones de Crédito de Última Instancia
-en moneda nacional del Banco Central de Costa Rica
+(Nota de Sinalevi: El texto de esta norma fue reformado parcialmente y reproducido su texto en forma íntegra en sesión N° 5922-2020 del 18 de marzo del 2020, y publicado en el Alcance Digital N° 70 a La Gaceta N° 68 del 2 de abril del 2020, por lo que se transcribe a continuación:)
+“Reglamento para las Operaciones de Crédito de Última Instancia en moneda nacional del
+Banco Central de Costa Rica
 TÍTULO I. DISPOSICIONES GENERALES
 Capítulo I. Único
-Artículo 1. Objetivo
-Normar los términos, condiciones y el trámite de la solicitud del crédito de última instancia en moneda nacional al Banco Central de Costa Rica, así como la administración y recuperación de estas operaciones.
+Artículo 1. Objetivo. Normar los términos, condiciones y el trámite de la solicitud del crédito de última instancia en moneda nacional al Banco Central de Costa Rica, así como la administración y recuperación de estas operaciones.
 Estos instrumentos de crédito constituyen un apoyo transitorio de liquidez para entidades financieras solventes.

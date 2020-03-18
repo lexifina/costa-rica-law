@@ -1,5 +1,4 @@
-Artículo 2. Normativa complementaria
-Será de aplicación complementaria la siguiente normativa:
+Artículo 2. Normativa complementaria. Será de aplicación complementaria la siguiente normativa:
 a) Ley General de la Administración Pública.
 b) Ley General de Control Interno.
 c) Código de Comercio.
