@@ -1,0 +1,3 @@
+ARTÍCULO 2
+ÁREAS DE COOPERACIÓN
+Las Partes desarrollarán, de común acuerdo, proyectos de cooperación de conformidad con las leyes, reglamentos, políticas, planes y programas de sus respectivos Gobiernos y tomando en cuenta sus posibilidades científicas, técnicas y financieras, en las áreas que consideren de mayor importancia, en particular, en las áreas de educación, cultura, salud, turismo, agricultura, ambiente, ciencia y tecnología, biblioteca y archivos, deportes y juventud, cooperativas, fortalecimiento institucional del Servicio Exterior, los derechos de los niños y la familia en todas sus manifestaciones, y en cualquier otra área que pueda ser acordada mutuamente por las Partes.

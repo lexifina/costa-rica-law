@@ -1,0 +1,5 @@
+ARTÍCULO 6
+EL PROGRAMA BIENAL DE COOPERACIÓN BILATERAL
+1. Con el propósito de ejecutar este Acuerdo, por medio de sus consultas bilaterales, las Partes establecerán un "Programa Bienal de Cooperación Bilateral" que será estructurado con base en los proyectos elaborados por los organismos y entidades nacionales de cada uno de los países, de conformidad con sus áreas de interés. Se presentará a la Dirección de Cooperación Internacional del Ministerio de Relaciones Exteriores y Culto de Costa Rica y al Ministerio de Relaciones Exteriores de Indonesia para su facilitación y desarrollo.
+2. Los proyectos o actividades cumplirán con todas las especificaciones, incluyendo: objetivos, cronogramas de trabajo, costos previstos, recursos financieros, recursos técnicos, aéreas de ejecución, así como las obligaciones operativas y financieras de cada una de las Partes.
+3. Los órganos competentes de cada una de las Partes evaluarán anualmente cada uno de los proyectos que conformen el Programa y presentarán a sus respectivos Gobiernos las recomendaciones necesarias para su mejor ejecución.
