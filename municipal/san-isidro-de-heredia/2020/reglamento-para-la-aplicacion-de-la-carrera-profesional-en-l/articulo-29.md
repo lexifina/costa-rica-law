@@ -1,0 +1,1 @@
+Artículo 29.—Consulta Externa. De existir duda razonable en cuanto al reconocimiento de capacitación, la Comisión se encuentra autorizado para recurrir en consulta ante el Área de Gestión de Recursos Humanos de la Dirección General del Servicio Civil.

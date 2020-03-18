@@ -1,0 +1,2 @@
+Artículo 39.—Grados académicos otorgados en el extranjero. Para el reconocimiento de dichos grados académicos, los títulos deberán estar reconocidos y equiparados por alguna de las universidades facultadas para ello, de conformidad con las normas establecidas por el Concejo Nacional de Rectores y por el Colegio Profesional respectivo.
+Se deberá aportar la certificación respectiva emitida por el Departamento de Registro o instancia administrativa competente.

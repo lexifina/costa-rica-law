@@ -1,0 +1,1 @@
+Artículo 11.—Registro de Presentación. Una vez registrada la fecha de ingreso de la solicitud, el Alcalde o la Alcaldesa Municipal, trasladarán formalmente la misma a la Comisión de Carrera Profesional. La fecha de vigencia de la concesión inicial (no de los ajustes), será a partir del primer día del siguiente mes calendario a la fecha de recibo de la solicitud.

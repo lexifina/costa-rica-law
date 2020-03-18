@@ -1,0 +1,1 @@
+Artículo 31.—Instituciones. La docencia podrá desempeñarse tanto en Instituciones Públicas como Privadas. Para este último caso, tanto el Centro de Enseñanza como la carrera o curso impartido, deberá estar autorizado por el Consejo Nacional de Educación Superior (CONESUP).

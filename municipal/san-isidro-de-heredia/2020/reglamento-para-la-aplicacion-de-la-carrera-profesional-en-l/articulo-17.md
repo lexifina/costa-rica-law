@@ -1,0 +1,1 @@
+Artículo 17.—Constatación. Toda copia de certificado, constancia o documento de similar naturaleza, recibido para efectos de reconocimiento, debe ser confrontados con el original y, además, refrendado con sello, fecha, firma y nombre del funcionario o funcionaria de la Alcaldía Municipal que lleva a cabo la recepción formal.

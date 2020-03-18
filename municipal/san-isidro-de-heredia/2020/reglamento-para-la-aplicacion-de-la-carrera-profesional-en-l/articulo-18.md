@@ -1,0 +1,1 @@
+Artículo 18.—Duración. Los certificados de capacitación que no indiquen expresamente la duración en horas, pero incluyan en su información las fechas, horarios de realización de la respectiva actividad o cualquier otro dato que permita inferir en forma fehaciente la cantidad de horas, pueden ser reconocidos y clasificados en la modalidad correspondiente.

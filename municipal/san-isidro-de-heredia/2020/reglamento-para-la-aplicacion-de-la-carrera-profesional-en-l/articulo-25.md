@@ -1,0 +1,1 @@
+Artículo 25.—Capacitación en el Extranjero. La capacitación recibida en el extranjero será reconocida sin mayor trámite que el ordinario, salvo que el respectivo certificado se encuentre en idioma extranjero, en cuyo caso deberá procederse con su traducción por parte de un traductor oficial.

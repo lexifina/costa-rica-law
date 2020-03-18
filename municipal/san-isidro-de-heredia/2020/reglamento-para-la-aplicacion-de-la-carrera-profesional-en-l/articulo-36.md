@@ -1,0 +1,1 @@
+Artículo 36.—Excepciones. La especialidad se ponderará como tal para efectos de puntaje, si fue obtenida una vez superada la licenciatura. Si la especialidad fue obtenida a partir del bachillerato universitario, sólo se le otorgará el puntaje previsto para la licenciatura.

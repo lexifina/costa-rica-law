@@ -1,0 +1,9 @@
+Artículo 42.—Generalidades. Para el reconocimiento de las publicaciones que el funcionario haya hecho, debe tomarse en cuenta los siguientes aspectos:
+a) La obra puede ser de autoría individual o colectiva. En el caso de publicaciones realizadas por varios autores, los puntos que se confieran al respecto serán distribuidos en forma proporcional entre todos ellos. Las fracciones de puntos que resultaren del procedimiento anterior no se considerarán, pero se podrán acumular como remanentes a efectos de completar nuevos puntos cuya distribución deberá seguir este mismo procedimiento.
+b) Puede encontrarse escrita en español u otro idioma. Para este último caso, deberá aportar traducción oficial de la obra.
+c) Se reconocerán las publicaciones virtuales, siempre y cuando cuenten con el registro ISBN.
+d) Si la publicación es impresa en primera edición, deberá poseer un mínimo de veinte ejemplares.
+e) El contenido de la publicación debe versar sobre la carrera profesional de la cual se ostenta el grado académico reconocido.
+f) Si la publicación corresponde a un libro, debe contar con el respaldo de un Consejo Editorial y con el respectivo registro ISBN, según el Sistema Internacional de numeración de libros, que extiende la Biblioteca Nacional. Para este efecto, se actuará de conformidad con el criterio emitido por la UNESCO, que define el libro como una publicación de más de 48 páginas efectivas de texto.
+g) No serán consideradas las publicaciones puramente informativas o descriptivas, destinadas a divulgar hechos, acontecimientos o situaciones de interés del público en general.
+h) Los proyectos requeridos para la obtención de grados académicos están excluidos de este elemento, al igual que los trabajos obtenidos del desempeño habitual del puesto; a excepción de aquellos que se realicen a título personal y en los cuales concurra el aporte del funcionario y de la Municipalidad.

@@ -1,0 +1,1 @@
+Artículo 3º—Factores. El incentivo se concederá con base a grados académicos, capacitación recibida que haya sido sufragada por el servidor, publicaciones especializadas, colaboraciones prestadas como instructor en cursos promovidos en la administración pública, experiencia docente en centros universitarios o para-universitarios.

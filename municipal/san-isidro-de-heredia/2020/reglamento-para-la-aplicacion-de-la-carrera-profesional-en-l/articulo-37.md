@@ -1,0 +1,1 @@
+Artículo 37.—Grados Adicionales. Se entenderá por grados y especialidades adicionales aquellos que presente el servidor y que no hayan sido tomados o considerados para la puntuación básica del título anterior, pero que sean estrictamente afines con el puesto que desempeña. Solo se reconocerá un grado o especialidad adicional a cada servidor.

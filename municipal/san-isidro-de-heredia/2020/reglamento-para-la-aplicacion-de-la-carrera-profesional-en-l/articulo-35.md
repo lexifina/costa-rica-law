@@ -1,0 +1,1 @@
+Artículo 35.—Puntaje. El puntaje previamente establecido para cada uno de los grados académicos, no es acumulativo, con la excepción de la licenciatura adicional, especialidad adicional, maestría adicional y doctorado adicional, que se suma al puntaje.

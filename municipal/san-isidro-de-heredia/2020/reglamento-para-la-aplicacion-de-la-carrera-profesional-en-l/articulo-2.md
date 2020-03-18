@@ -1,0 +1,1 @@
+Artículo 2º—Naturaleza. Para los efectos de aplicación y control, la Carrera Profesional constituirá un componente del sistema de salarios e incentivos del sistema de administración de recursos humanos del Estado y deberá concebirse estrechamente relacionada con los demás subsistemas que lo conforman.

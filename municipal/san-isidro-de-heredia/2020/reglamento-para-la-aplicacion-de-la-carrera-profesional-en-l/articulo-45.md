@@ -1,0 +1,1 @@
+Artículo 45.—Prohibición de Fraccionamiento. La puntuación no podrá fraccionarse. Solamente se sumarán unidades completas y las horas o meses excedentes, se acumularán como remanentes para ser sumados a futuro.

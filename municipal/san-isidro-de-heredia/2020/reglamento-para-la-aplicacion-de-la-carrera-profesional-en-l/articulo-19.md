@@ -1,0 +1,1 @@
+Artículo 19.—Equivalencias. Para efectos de reconocimiento, las constancias y certificaciones sobre la aprobación o participación en cursos o actividades de capacitación, tienen la misma validez que los certificados.

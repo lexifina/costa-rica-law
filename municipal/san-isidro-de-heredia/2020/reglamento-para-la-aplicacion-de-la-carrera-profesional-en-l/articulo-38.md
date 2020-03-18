@@ -1,0 +1,1 @@
+Artículo 38.—Limitaciones. Los grados y títulos académicos conferidos por universidades privadas existentes en el país serán aceptados siempre y cuando la respectiva universidad y la carrera profesional estén debidamente autorizados por el CONESUP.

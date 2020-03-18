@@ -1,0 +1,1 @@
+Artículo 10.—Solicitud. Para ingresar al “Régimen de Carrera Profesional”, el profesional municipal, deberá presentar ante la Alcaldía Municipal, una solicitud por escrito acompañada de los atestados que considere pertinentes, con indicación de medio o lugar para atender comunicaciones.

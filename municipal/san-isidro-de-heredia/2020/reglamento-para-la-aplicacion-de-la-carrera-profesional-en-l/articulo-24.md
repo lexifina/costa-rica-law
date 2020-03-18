@@ -1,0 +1,1 @@
+Artículo 24.—Cursos virtuales. Los certificados obtenidos mediante sistemas de enseñanza virtual, en línea o a distancia pueden ser reconocidos, siempre que los objetivos, contenidos, sistema de evaluación, calendario, horario de actividades y la duración, estén claramente definidos en los respectivos programas.

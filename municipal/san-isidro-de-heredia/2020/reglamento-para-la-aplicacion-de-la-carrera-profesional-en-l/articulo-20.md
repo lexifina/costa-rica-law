@@ -1,0 +1,1 @@
+|Artículo 20.—Vigencia. No se reconocerán actividades cuyos contenidos hayan perdido vigencia, en lo que respecta a la aplicación de conocimientos, tecnologías y prácticas de trabajo. Únicamente se reconocerán capacitaciones cuya solicitud se presente dentro del plazo de un año y seis meses calendario, contados a partir de la fecha de finalización según indique el certificado.

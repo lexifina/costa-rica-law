@@ -1,0 +1,1 @@
+Artículo 23.—Valoración profesional. Las diferencias conceptuales o de enfoque en el diseño de las actividades de capacitación, no deben ser determinantes para rechazar solicitudes de reconocimientos de capacitación recibida, ya que toda valoración debe basarse en el buen juicio profesional.
