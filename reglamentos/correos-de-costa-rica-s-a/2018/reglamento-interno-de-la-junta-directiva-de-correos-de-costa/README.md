@@ -14,3 +14,4 @@ Reglamento interno de la junta directiva de Correos de Costa Rica S.A.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-11-23 | la propia norma |
+| 2 | 2020-03-18 | Reglamento 1612 (2020-03-18) |
