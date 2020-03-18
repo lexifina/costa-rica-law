@@ -1,0 +1,1 @@
+Artículo 3.- Que en lo no modificado expresamente se mantiene incólume el Decreto Ejecutivo Nº 41945-MAG-MEIC-COMEX del 27 de agosto de 2019, publicado en el Diario Oficial La Gaceta Nº 177 de 19 de setiembre de 2019.
