@@ -1,0 +1,1 @@
+ARTICULO 8º .- Se faculta a la Dirección General de Migración y Extranjería para que adopte medidas alternativas o de excepción al presente Decreto Ejectivo, bajo estricto motivo de interés público o por caso de humanidad, con la respectiva coordinación con el Ministerio de Salud para el abordaje relacionado con el COVID-19.
