@@ -1,0 +1,1 @@
+Artículo 3º—Notariado del INVU registrará la información respectiva de las personas profesionales en Notariado. Además, proporcionará la información y documentación necesaria para el buen ejercicio de sus funciones y velará por el cumplimiento de sus obligaciones, debiendo notificar a la Administración cualquier incumplimiento.

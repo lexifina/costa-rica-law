@@ -1,0 +1,1 @@
+Artículo 5º—La persona profesional en Notariado podrá autorizar una persona para que en su nombre pueda retirar el expediente asignado, lo cual quedará constando en el Registro de Autorizados. Únicamente la persona profesional en Notariado y la persona autorizada, pueden hacer retiro y devolución del expediente.

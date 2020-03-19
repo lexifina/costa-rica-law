@@ -1,0 +1,1 @@
+Artículo 4º—Las respectivas dependencias deberán orientar a Notariado Institucional y proporcionarle la información necesaria para que ejecute los actos administrativos y actos o contratos jurídicos pertinentes.

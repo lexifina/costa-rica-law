@@ -1,0 +1,1 @@
+Artículo 15.—Al asignarse a la persona profesional en notariado la confección de una escritura, ésta recibirá el expediente conteniendo la información necesaria, de tal forma que se incorpore en el texto de la misma y podrá solicitar a las partes documentación adicional que a su juicio será necesaria para el buen cumplimiento de su labor.

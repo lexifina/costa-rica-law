@@ -1,0 +1,1 @@
+Artículo 12.—Las personas profesionales en Notariado que ofrecen servicios al INVU son responsables de cualquier daño o perjuicio para la Institución, originado por causas imputables atribuibles al ejercicio de la función notarial, que no sean subsanables. En tales casos se procederá conforme a los artículos 15 y 16 de este Reglamento.

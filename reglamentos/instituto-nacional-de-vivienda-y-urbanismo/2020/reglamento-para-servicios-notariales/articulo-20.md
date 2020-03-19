@@ -1,0 +1,1 @@
+Artículo 20.—Al menos tres llamadas de atención en un periodo de doce meses o el incumplimiento de las disposiciones de este Reglamento y de sus deberes como profesional en notariado, serán causa justa para prescindir de sus servicios, siguiendo el debido proceso.

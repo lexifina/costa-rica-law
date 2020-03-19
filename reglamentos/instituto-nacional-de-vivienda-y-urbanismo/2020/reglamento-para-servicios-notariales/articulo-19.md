@@ -1,0 +1,1 @@
+Artículo 19.—Cuando una persona profesional en Notariado se vea imposibilitada para realizar un trabajo que se le asignó, por incumplimiento o impedimento legal, salvo fuerza mayor (debidamente justificado), perderá el turno respectivo sin reposición de honorarios y se reasignará el expediente de acuerdo al rol.

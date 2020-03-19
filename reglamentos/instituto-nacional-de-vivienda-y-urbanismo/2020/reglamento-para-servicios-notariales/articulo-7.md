@@ -1,0 +1,2 @@
+Artículo 7º—El pago de honorarios y cualquier otro gasto asociado con la operación, estará a cargo de la persona cliente, salvo los casos de bonos de vivienda subsidiados por el BANVHI para los cuales el pago se hará por medio del INVU.
+La persona profesional en Notariado deberá facturar directamente a quien suscribe la escritura y deberá agregar copia de dicha factura en el expediente, sin excepción.
