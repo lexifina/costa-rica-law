@@ -1,0 +1,2 @@
+ARTÍCULO 6- Exoneración del impuesto al valor agregado en arrendamientos comerciales
+Quedan exentos del pago del impuesto establecido en la Ley 6826, Ley del Impuesto al Valor Agregado, de 8 de noviembre de 1982, los arrendamientos utilizados para actividades comerciales, por los meses de abril, mayo y junio de 2020, siempre y cuando el arrendatario y el arrendador estén inscritos en el Registro Único Tributario de la Dirección General de Tributación, en el Régimen General o el Régimen Especial Agropecuario.
