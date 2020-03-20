@@ -1,0 +1,15 @@
+# Circular 52
+
+Suspende las actividades presenciales y que no sean teletrabajables a partir del 23 de marzo de 2020 y hasta el 3 de abril del 2020
+
+- Tipo: Circular
+- Número: 52
+- Fecha: 2020-03-20
+- Ente emisor: Corte Suprema de Justicia
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=90855&param2=119913&param3=1 (ficha 90855)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 2020-03-20 | la propia norma |
