@@ -1,0 +1,3 @@
+Artículo 4º .- Recurso en caso de rechazo.
+En caso de que la resolución de la jefatura de inspección de trabajo sea de rechazo a la solicitud de suspensión temporal del contrato de trabajo, la parte gestionante podrá recurrir dicha decisión ante la Dirección Nacional de Inspección del Trabajo, que deberá resolver el recurso en el plazo de tres días hábiles.
+Se tendrá por agotada la vía administrativa en este procedimiento con la emisión de la resolución por parte de la jefatura regional de la inspección de trabajo, a partir de lo cual se podrá acudir a la vía judicial para lo que en derecho corresponda.

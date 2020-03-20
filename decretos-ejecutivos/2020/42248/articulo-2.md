@@ -1,0 +1,4 @@
+Artículo 2º .- Del procedimiento.
+Ante la presentación de la solicitud para la suspensión temporal del contrato de trabajo, la persona inspectora asignada para el caso procederá a recibir la documentación respectiva para su trámite y comunicará el caso inmediatamente a la jefatura de la inspección de trabajo.
+La jefatura de la inspección de trabajo contará con el plazo de dos días hábiles a partir de que se le comunique el caso para emitir la resolución correspondiente.
+La resolución que emita la jefatura de la inspección de trabajo será para aceptar o rechazar la solicitud para la suspensión temporal del contrato de trabajo; asimismo, en caso de que la persona empleadora no cumpla con los requisitos del artículo 1 º del presente Reglamento, la resolución será para indicar a la parte empleadora la necesidad de subsanar la formalización según especifique.
