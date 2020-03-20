@@ -1,0 +1,3 @@
+Artículo 7º-Las solicitudes de certificación de infracciones deberán cursarse a la siguiente dirección electrónica: recepcion-documentos@csv.go.cr
+Deberá adjuntarse copia de la cédula de identidad u otro documento de identificación válidamente aceptado, para asegurar la autenticidad de la petición y personería jurídica vigente tratándose de personas jurídicas, con copia igualmente de la cédula de identidad u otro documento de identificación del representante legal.
+Asimismo, deberá adjuntarse imagen del entero de pago de timbres, del entero del pago de la certificación y señalar una dirección de correo electrónico como ÚNICO medio para recibir las comunicaciones futuras, así como para remitirle la certificación.
