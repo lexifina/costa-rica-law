@@ -1,1 +1,0 @@
-Articulo 6º—Una vez concluida la autopsia, el cadáver será entregado a los parientes del occiso en un plazo no mayor de veinticuatro horas a partir del fallecimiento, en condiciones adecuadas, debidamente suturado, limpio de toda mancha de sangre, o cualquier otro líquido o materia orgánica, con el cabello peinado y vestido con su propia ropa o envuelto en una sábana limpia.

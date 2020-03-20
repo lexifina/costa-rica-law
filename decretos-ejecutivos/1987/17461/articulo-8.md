@@ -1,1 +1,0 @@
-Artículo 8º—Si transcurrido el plazo señalado en el artículo 6º y aún no se hubiere practicado la autopsia correspondiente, el director del establecimiento se verá en la ineludible obligación de entregar el cadáver a los familiares del occiso, excepto si mediara una orden judicial en sentido contrario.

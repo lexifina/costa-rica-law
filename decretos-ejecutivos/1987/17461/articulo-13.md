@@ -1,1 +1,0 @@
-Artículo 13.—El Departamento de Vigilancia Epidemiológica del Ministerio será el responsable de llevar el Registro de Autopsias, de efectuar los estudios epidemiológicos relativos a la información registrada, de normar, controlar y evaluar todo lo referente a la materia objeto de este Reglamento.

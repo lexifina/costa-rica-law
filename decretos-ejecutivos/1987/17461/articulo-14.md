@@ -1,2 +1,0 @@
-Artículo 14.—Es obligatorio registrar todas las autopsias practicadas en los establecimientos autorizados (hospitalarios, morgues judiciales, privados y otros que •autorice el Ministerio) en el registro de autopsias que llevara el departamento, enviando debidamente llenadas las fórmulas oficiales de protocolo de autopsia.
-El director del establecimiento en el cual se practicó la autopsia es el responsable de su envío y el plazo máximo para efectuarlo es de treinta días, a partir de la fecha de la necropsia.

@@ -1,1 +1,0 @@
-Articulo 19.—El incumplimiento de alguna de las disposiciones contenidas en el presente Reglamento, de parte de los directores de los establecimientos aquí señalados, obligará al Ministerio a cancelar o suspender el permiso sanitario de funcionamiento. Lo anterior al amparo de las disposiciones contenidas en el artículo 364 de la Ley General de Salud.

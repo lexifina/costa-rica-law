@@ -1,1 +1,0 @@
-Artículo 12.—El ultraje y la profanación del cadáver, se regirán por lo que al efecto establece el Código Penal. En materia laboral, dicha falta será tenida como grave, en cuyo caso se aplicará la sanción disciplinaria que corresponda.

@@ -1,1 +1,0 @@
-Artículo 7º—Quedan exceptuados de la aplicación de los plazos señalados en el artículo anterior, los cadáveres que se encuentren en poder de las morgues judiciales o cuya preservación por medios químicos o físicos, sea certificada por un anatomopatólogo, ante el Departamento del Ministerio.

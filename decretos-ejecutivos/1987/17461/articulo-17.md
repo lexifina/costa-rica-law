@@ -1,1 +1,0 @@
-Artículo 17.—El director del establecimiento podrá ordenar la autopsia mediante resolución razonada en el expediente del occiso, en aquellos casos no contemplados en el presente Reglamento, que revistan interés científico, epidemiológico o social.
