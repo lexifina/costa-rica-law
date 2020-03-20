@@ -1,4 +1,2 @@
-CAPÍTULO III
-De los acuerdos
-Artículo 28.—De los acuerdos. Los acuerdos tomados por el Comité Director quedarán firmes al aprobarse el acta respectiva en la siguiente sesión ordinaria o al haberse declarado así en la misma sesión, por cuatro votos, de conformidad con el requisito establecido al efecto, en cuyo caso deberá quedar redactado al momento de tomarse el acuerdo firme.
-Los acuerdos de la Comité Director serán ejecutivos y comunicables desde que se adoptan, salvo si se interpone recurso de revisión contra los mismos, en cuyo caso adquirirán firmeza con la decisión desestimatoria del recurso.
+Artículo 28.—Sobre la realización de sesiones virtuales del Comité Director. El Comité Director podrá sesionar estando las personas directoras presentes físicamente y otras de forma virtual. No obstante, de manera excepcional y con la debida motivación y justificación, el Comité Director podrá celebrar sesiones virtuales con la participación del 100% de las personas directoras.
+(Así adicionado mediante acta N° 002-2020 del 20 de marzo del 2020)

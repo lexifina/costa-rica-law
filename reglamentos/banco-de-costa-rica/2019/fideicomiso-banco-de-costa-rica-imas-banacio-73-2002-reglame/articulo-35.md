@@ -1,0 +1,2 @@
+Artículo 35.—Recursos contra los acuerdos. La persona interesada podrá interponer recurso de reconsideración contra los acuerdos de la Comité Director del Fideicomiso, dentro del plazo legal. Cabrá recurso de reconsideración o reposición contra los acuerdos del órgano colegiado.
+(Así modificada su numeración mediante acta N° 002-2020 del 20 de marzo del 2020, que lo traspaso del antiguio artículo 30 al 35)

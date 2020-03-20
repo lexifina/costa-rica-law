@@ -1,3 +1,7 @@
-CAPÍTULO IV
-Del pago de gastos de viaje
-Artículo 31.—Pago gastos de viaje. Cuando una persona representante del Comité Director le corresponda en cumplimiento de su cargo realizar giras de trabajo dentro o fuera del país, tendrá derecho a cobrar los gastos de hospedaje y alimentación y otros gastos derivados de su desplazamiento con cargo al presupuesto del Fideicomiso. Para estos efectos, se aplicará la normativa vigente para el personal de la Unidad Ejecutora.
+Artículo 31.—Actas de las sesiones virtuales. El acta correspondiente a una sesión virtual, deberá cumplir con los requisitos del artículo 14, y se le adicionará lo siguiente:
+A. Lo atinente a los motivos o razones por las cuales la sesión se realiza de esa forma,
+B. La lista de personas integrantes del Comité Director, con la descripción de quienes estuvieron presentes físicamente y quiénes de forma virtual.
+C. Mecanismo tecnológico utilizado por parte de la persona directora para participar en la sesión.
+D. Identificación del lugar donde se encontraba la persona del Comité Director que participó virtualmente.
+E. Cualquier otra circunstancia que se considere oportuna.
+(Así adicionado mediante acta N° 002-2020 del 20 de marzo del 2020)
