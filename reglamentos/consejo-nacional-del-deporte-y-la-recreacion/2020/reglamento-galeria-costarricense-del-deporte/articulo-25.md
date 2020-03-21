@@ -1,0 +1,1 @@
+Artículo 25.—Toda persona física y persona jurídica tendrá derecho a postular un solo candidato por cada período. Así mismo, la postulación deberá estar referida a equipos deportivos o a candidato individual, sea vivo o fallecido.

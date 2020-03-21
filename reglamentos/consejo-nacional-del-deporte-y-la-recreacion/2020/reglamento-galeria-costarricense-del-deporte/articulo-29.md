@@ -1,0 +1,3 @@
+CAPÍTULO QUINTO
+De la ceremonia de incorporación
+Artículo 29.—Se celebrará una ceremonia solemne de introducción del nuevo o nuevos integrantes de la Galería Costarricense del Deporte, una vez ratificado su nombre o sus nombres, durante el segundo semestre del año, donde se les colocará la medalla respectiva y se develará su fotografía. La medalla tendrá el mismo molde y diseño para todos los años, no deberá ser de metales preciosos, sus medidas serán de 60 milímetros de diámetro por 3 milímetros de espesor, de un lado llevará impreso el escudo del Instituto Costarricense del Deporte y la Recreación y en la otra cara tendrá grabado -no impreso- el nombre de la persona honrada seguido de la inscripción: Homenaje del Deporte Costarricense.
