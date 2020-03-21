@@ -1,0 +1,4 @@
+Artículo 19.—Sesiones. La COMAD se reunirá en pleno ordinariamente durante la primera semana de cada mes y, extraordinariamente, las veces que sea necesario y que sea convocada.
+Convocará a sesiones el coordinador o coordinadora y en caso de urgencia podrán ser convocadas por al menos dos regidores (as) de la comisión, o por la Alcaldía Municipal.
+Se considerará que hay quórum cuando se encuentren presentes al menos dos de sus miembros (as) propietarios (as).
+Los acuerdos se tomarán por mayoría simple de los votos presentes.
