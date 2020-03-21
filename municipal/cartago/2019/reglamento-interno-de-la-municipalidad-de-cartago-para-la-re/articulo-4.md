@@ -1,0 +1,1 @@
+Artículo 4º—El seguimiento y evaluación de los programas Sociales Selectivos será responsabilidad del área que tenga a su cargo cada uno de los programas, de acuerdo al sistema de planificación institucional, que lleva el Área de Planificación.

@@ -1,0 +1,2 @@
+Artículo 5º—La selección de la población objetivo, el estudio de factibilidad, la regulación, la operación, el funcionamiento, y el modelo de cada programa selectivo que adopte la Municipalidad de Cartago, se regirá por las leyes, decretos, reglamento, lineamientos y directrices, que a nivel Nacional se promulguen para cada uno de esos programas; exceptuando aquellos que sean de creación propia de Municipalidad de Cartago, para los; cuales deberán crearse
+reglamentos específicos.

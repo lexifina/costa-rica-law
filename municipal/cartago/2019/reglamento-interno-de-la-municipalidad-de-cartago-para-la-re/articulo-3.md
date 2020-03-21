@@ -1,0 +1,1 @@
+Artículo 3º—Estos programas contaran con población objetivo, responsables, indicadores objetivos y metas debidamente integrados en et sistema de planificación institucional en coordinación con el Área de Planeamiento y Presupuesto.
