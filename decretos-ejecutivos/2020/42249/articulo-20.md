@@ -1,0 +1,3 @@
+Artículo 20.- El incumplimiento de alguna de las disposiciones contenidas en el presente Reglamento por parte de los directores de los establecimientos aquí señalados, obligará al Ministerio a cancelar o suspender el permiso sanitario de funcionamiento. Lo anterior al amparo de las disposiciones contenidas en el artículo 364 de la Ley General de Salud.
+Artículo 20.- Deróguese el Decreto Ejecutivo número 17461-S del 12 de marzo de 1987, denominado Reglamento de la Autopsia Hospitalaria y Médico Legal.
+(Nota de Sinalevi: En la publicación de este reglamento se consignó dos veces el artículos N° 20.)

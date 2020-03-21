@@ -1,0 +1,1 @@
+Artículo 12.- La Unidad de Epidemiología de la Dirección de Vigilancia de la Salud del Ministerio, será responsable de llevar el Registro de Autopsias, efectuar los estudios epidemiológicos relativos a la información registrada, normar, controlar y evaluar todo lo referente a la materia objeto de este Reglamento.

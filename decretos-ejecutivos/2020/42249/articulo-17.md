@@ -1,0 +1,1 @@
+Artículo 17.- En el caso de epidemias o pandemias declaradas por la Autoridad de Salud, la realización de autopsias hospitalarias no será de carácter obligatorio y quedará a criterio del médico patólogo regente de la morgue.

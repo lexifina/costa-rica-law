@@ -1,0 +1,1 @@
+Artículo 10º- Las autoridades judiciales y los directores de instituciones del Sistema Hospitalario Nacional, y en su defecto, dentro de éste último los jefes del Servicio de Anatomía Patológica, podrán en su caso y en el ámbito de sus competencias ordenar las autopsias que estimen pertinentes.

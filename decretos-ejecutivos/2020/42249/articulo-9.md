@@ -1,0 +1,1 @@
+Artículo 9º-Quedan exceptuados de la aplicación de los plazos señalados en el artículo anterior, los cadáveres que se encuentren en poder de las morgues judiciales o cuya preservación por medios químicos o físicos sea certificada por un Anatomopatólogo, ante el Ministerio de Salud.
