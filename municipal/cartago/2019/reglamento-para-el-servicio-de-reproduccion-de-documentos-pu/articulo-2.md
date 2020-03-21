@@ -1,0 +1,3 @@
+Artículo 2º—En la Municipalidad de Cartago se brindará el servicio de reproducción de documentos públicos como:
+a. Servicio interno. para personas funcionarias de esta corporación municipal en asuntos estrictamente laborales no personales y para los documentos del orden del día de las sesiones del Concejo Municipal que la Secretaría deba entregar de forma general a las personas integrantes de este órgano colegiado.
+b. Servicio a particulares. para personas no funcionarias de esta Municipalidad, para los documentos que soliciten las personas funcionarias para trámites personales y para los documentos que solicite la persona regidora y síndica.

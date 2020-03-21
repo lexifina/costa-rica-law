@@ -1,0 +1,1 @@
+Artículo 6º—El Departamento de Contabilidad Municipal, adscrito al Área Administrativa Financiera establecerá el valor unitario de cada página que se fotocopie y el valor unitario de cada página que se escanee, que deberán ser revisados y actualizados cada seis meses. Las tarifas establecidas serán aprobadas por el Concejo Municipal.

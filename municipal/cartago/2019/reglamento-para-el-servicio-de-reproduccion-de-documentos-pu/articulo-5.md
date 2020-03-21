@@ -1,0 +1,1 @@
+Artículo 5º—La Municipalidad dispondrá del plazo máximo de hasta diez días naturales para proporcionar al particular las reproducciones solicitadas contado desde la fecha en que se recibe la solicitud.
