@@ -1,4 +1,4 @@
-CIRCULAR N° 52-2020
+N° 52-2020
 ASUNTO: Acuerdo de Corte Plena. Sesión N° 15-2020 del 20 de marzo de 2020, en atención a la declaratoria de emergencia nacional, debido a la situación de emergencia sanitaria provocada por la enfermedad COVID19.
 A LOS DESPACHOS JUDICIALES DE PAÍS, ABOGADOS,
 ABOGADAS Y PÚBLICO EN GENERAL
@@ -58,4 +58,6 @@ k. Corresponderá al Consejo Superior con apoyo de la Comisión de Emergencias d
 l. La Fiscalía General, Dirección del Organismo de Investigación Judicial y la Dirección de Defensa Pública, adoptarán las medidas necesarias para la implementación del presente acuerdo según sus competencias y atribuciones legales.
 m. Lo anterior sin perjuicio de las decisiones que pudieran ser adoptadas posteriormente por los Poderes Ejecutivo o Legislativo modificando las condiciones actuales de la declaratoria de emergencias.
 n. Se excluye del presente acuerdo a la Sala Constitucional, de conformidad con los artículos 10 y 48 de la Constitución Política, la Ley de la Jurisdicción Constitucional y 40 de la Ley Orgánica del Poder Judicial.”
+(Nota de Sinalevi: Mediante Circular N° 53-2020 del 22 de marzo del 2020, publicada en el Boletín Judicial N° 67 del 1° de abril del 2020, se aclaró la presente norma en el sentido de que: “ En aquellos casos en que por razones de interés público y según la naturaleza del servicio, sea estrictamente necesario mantener la prestación de un servicio y se requiera de la actividad presencial de las personas servidoras para la ejecución de sus labores, deberán cumplir con un horario de 8:00 a.m. a 4:00 p.m., como ha sido lo usual en cierres colectivos. Las jornadas de 6:00 a.m. a 12:00 m.d. y de 12:00 m.d. a 6:00 p.m., se aplicarán en casos excepcionales, a criterio del Consejo Superior, cuando por las características y funciones del despacho no sea posible cumplir con las medidas dictadas por el Ministerio de Salud.
+La persona teletrabajadora debe estar disponible dentro de la jornada laboral para atender asuntos de su jefatura, compañeros y usuarios y relacionados con sus funciones, por medio del correo electrónico, teléfono fijo, teléfono móvil, Internet y cualquier otro medio que permita la comunicación. Esto con el fin de permitir un adecuado intercambio de información, su supervisión; así como de recibir las instrucciones correspondientes o ejecutar tareas urgentes; y que puedan atender en tiempo real todas las solicitudes de información o consultas que reciben de su Jefatura por los medios mencionados”.)
 San José, 20 de marzo del 2020.
