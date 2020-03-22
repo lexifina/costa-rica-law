@@ -1,0 +1,1 @@
+Artículo 5°—Corresponde al Departamento de Infraestructura y Gestión Vial atender, gestionar y dar seguimiento al presente Reglamento, así como a las quejas de los usuarios en relación a lo dispuesto en éste, para lo cual, deberá coordinar con las dependencias municipales correspondientes.
