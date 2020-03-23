@@ -13,3 +13,4 @@ Aclaración de la Circular Nº 32-09 sobre “Políticas de accesibilidad para l
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-06-22 | la propia norma |
+| 2 | 2020-03-23 | Circular 19 (2020-03-23) |
