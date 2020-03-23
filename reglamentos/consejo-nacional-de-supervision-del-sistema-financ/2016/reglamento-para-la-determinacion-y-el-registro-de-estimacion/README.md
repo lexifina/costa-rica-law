@@ -19,3 +19,4 @@ Reglamento para la determinación y el registro de estimaciones contracíclicas 
 | 4 | 2018-12-21 | Resolución 3966 (2018-12-21) |
 | 5 | 2019-01-14 | Resolución 77 (2019-01-14) |
 | 6 | 2020-03-16 | Resolución 902 (2020-03-16) |
+| 7 | 2020-03-23 | Reglamento 1566 (2020-03-23) |
