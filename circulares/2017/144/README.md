@@ -13,3 +13,4 @@ Pasos a seguir en caso de eventuales readecuaciones por riesgo y enfermedades de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-09-21 | la propia norma |
+| 2 | 2020-03-23 | Circular 13 (2020-03-23) |
