@@ -14,3 +14,4 @@ Políticas de accesibilidad para las personas con discapacidad
 | --- | --- | --- |
 | 1 | 2009-05-21 | la propia norma |
 | 2 | 2009-06-22 | Circular 67 (2009-06-22) |
+| 3 | 2020-03-23 | Circular 19 (2020-03-23) |
