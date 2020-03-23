@@ -1,0 +1,1 @@
+Artículo 4.- Puestos de trabajo teletrabajables. La modalidad de teletrabajo se aplicará en aquellos puestos en los que se determine que tienen actividades y tareas que se pueden desarrollar de manera no presencial, los cuales se determinarán mediante los procedimientos establecidos por el Departamento de Recursos Humanos.

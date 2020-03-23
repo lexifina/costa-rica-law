@@ -1,0 +1,1 @@
+Artículo 5.- Actividades Teletrabajables. Las actividades o funciones teletrabajables serán definidas por la Jefatura en coordinación con el Departamento de Recursos Humanos, según el mapeo institucional. Podrán ser establecidas, según conveniencia institucional, en forma permanente, temporal, total o parcial y están sujetas a evaluaciones y modificaciones.

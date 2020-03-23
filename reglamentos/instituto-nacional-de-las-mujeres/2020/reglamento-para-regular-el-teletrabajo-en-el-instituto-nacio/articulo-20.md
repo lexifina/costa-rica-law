@@ -1,0 +1,1 @@
+Artículo 20.- Responsabilidad en caso de daño o pérdida de los recursos informáticos institucionales. La persona teletrabajadora será responsable por el deterioro o pérdida de los equipos de trabajo institucionales asignados, cuando se compruebe dolo o culpa grave, de conformidad con las disposiciones del Reglamento de Administración de Activos del INAMU.

@@ -1,0 +1,1 @@
+Artículo 10.- Medición de la eficiencia y cumplimiento. El cumplimiento y la eficiencia en el desempeño de las labores encomendadas a la persona teletrabajadora se medirá de acuerdo con los resultados según la meta u objetivo por cumplir, y según los informes que al efecto se presentarán y aprobarán oportunamente por la Jefatura.
