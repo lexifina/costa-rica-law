@@ -1,0 +1,1 @@
+ARTÍCULO 10- Acceso a subsidios. Las personas trabajadoras afectadas por la reducción de jornadas de trabajo, la suspensión de contratos de trabajo o el despido como consecuencia del suceso provocador y sus consecuencias, que motiva la declaratoria de emergencia nacional, podrán acceder a los programas de desempleo existentes.
