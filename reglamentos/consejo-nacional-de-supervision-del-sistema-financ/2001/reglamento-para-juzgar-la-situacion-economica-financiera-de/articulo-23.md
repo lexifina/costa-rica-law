@@ -5,4 +5,5 @@ c. Cuando una entidad financiera esté ubicada en irregularidad financiera de gr
 d. Cuando como resultado de la aplicación del Capítulo I de este Reglamento el intermediario obtenga una calificación global que se ubique entre 1.76 y 2.5, ambos inclusive, pero uno cualquiera de los elementos de evaluación, incluyendo la evaluación cualitativa, presente una calificación individual de inestabilidad o irregularidad financiera de grado tres.
 e. Cuando como resultado de la aplicación del Capítulo I de este Reglamento el intermediario obtenga una calificación global que se ubique entre 1.76 y 2.5, ambos inclusive, pero dos o más elementos de evaluación, incluyendo la evaluación cualitativa, presenten calificaciones individuales de inestabilidad o irregularidad financiera de grado dos ó tres.
 f. Cuando una entidad financiera presente pérdidas en seis o más periodos mensuales, consecutivos o no, en los últimos 12 meses.
+(Nota de Sinalevi: Mediante sesión N° 1566-2020 del 23 de marzo de 2020, se suspende la aplicación del inciso anterior a partir del cierre de marzo 2020 y hasta el 31 de marzo de 2021)
 (Así reformado en sesión N° 852 del 20 de mayo de 2010)
