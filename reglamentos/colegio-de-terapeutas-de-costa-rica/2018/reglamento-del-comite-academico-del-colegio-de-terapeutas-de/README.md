@@ -14,3 +14,4 @@ Reglamento del comité académico del Colegio de Terapeutas de Costa Rica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-11-02 | la propia norma |
+| 2 | 2020-03-23 | Reglamento 6 (2020-03-23) |
