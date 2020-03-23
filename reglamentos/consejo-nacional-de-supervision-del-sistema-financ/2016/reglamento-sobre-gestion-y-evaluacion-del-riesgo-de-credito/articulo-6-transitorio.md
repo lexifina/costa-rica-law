@@ -1,0 +1,5 @@
+Transitorio VI.
+A partir de esta modificación y hasta el 31 de marzo de 2021, y en respuesta a la declaratoria de emergencia nacional mediante Decreto Ejecutivo N. 42227-MPS del 16 de marzo de 2020, debido a la situación de emergencia sanitaria provocada por la enfermedad COVID19, se admite que a criterio de cada entidad supervisada, esta tome acciones inmediatas para exceptuar en sus políticas y procedimientos crediticios, la presentación de información usualmente requerida para efectos de análisis de capacidad de pago, con el fin único de asegurar el otorgamiento expedito de prórrogas, restructuraciones o refinanciamientos, o una combinación de éstas.
+En estos casos y durante el plazo indicado, podrá mantenerse sin cambio la última calificación de capacidad de pago del deudor.
+La Superintendencia General establecerá en el SICVECA crediticio, el código identificador con que cada entidad supervisada deberá reportar los casos exceptuados mediante este Transitorio.
+(Así adicionado mediante sesión N° 1566-2020 del 23 de marzo de 2020)
