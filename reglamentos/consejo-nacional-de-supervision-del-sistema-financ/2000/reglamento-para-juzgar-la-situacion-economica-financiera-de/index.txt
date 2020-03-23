@@ -50,6 +50,7 @@ articulo-10-transitorio.md
 articulo-11-transitorio.md
 articulo-12-transitorio.md
 articulo-13-transitorio.md
+articulo-14-transitorio.md
 articulo-1-anexo.md
 articulo-2-anexo.md
 articulo-3-anexo.md

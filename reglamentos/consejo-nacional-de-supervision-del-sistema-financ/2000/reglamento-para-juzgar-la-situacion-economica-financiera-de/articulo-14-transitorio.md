@@ -1,0 +1,3 @@
+Transitorio 14
+A partir de esta modificación y hasta el 30 de septiembre de 2020, se autoriza al Superintendente General de Entidades Financieras para que con base en elementos de riesgos sistémicos o cuando sea necesario para salvaguardar la estabilidad del sistema financiero, previa resolución debidamente fundamentada, disponga la modificación de los parámetros que determinan los niveles de normalidad o de irregularidad para los indicadores de liquidez establecidos en el Artículo 6 de este Reglamento.
+(Así adicionado mediante sesión N° 1566-2020 del 23 de marzo de 2020)

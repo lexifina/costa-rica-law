@@ -40,3 +40,4 @@ Reglamento para Juzgar la Situación Económica-Financiera de las Entidades Fisc
 | 25 | 2019-05-20 | Reglamento 1501 (2019-05-20) |
 | 26 | 2019-07-29 | Reglamento 1515 (2019-07-29) |
 | 27 | 2019-11-25 | Reglamento 1545 (2019-11-25) |
+| 28 | 2020-03-23 | Reglamento 1566 (2020-03-23) |
