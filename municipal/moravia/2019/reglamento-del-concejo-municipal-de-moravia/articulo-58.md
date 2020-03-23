@@ -1,1 +1,3 @@
 ARTÍCULO 58.- La Secretaría del Concejo Municipal levantará, por cada sesión ordinaria y extraordinaria celebrada por el órgano colegiado una lista de asistencia conforme a la cual serán pagadas las dietas de los Regidores propietarios y suplentes, así como los Síndicos propietarios y suplentes.
+En el caso de sesiones virtuales excepcionales a las que refiere el artículo 53 bis de este Reglamento, la Secretaría del Concejo Municipal emitirá una certificación donde hará constar la asistencia a la videoconferencia y tendrá la misma validez que los listados dichos en el párrafo anterior.
+(Así adicionado el párrafo anterior mediante sesión N° 204 del 23 de marzo del 2020)
