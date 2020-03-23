@@ -13,3 +13,4 @@ Modificar el texto de la circular 7-2014, sobre “Información contenida en los
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-08-07 | la propia norma |
+| 2 | 2020-03-23 | Circular 16 (2020-03-23) |
