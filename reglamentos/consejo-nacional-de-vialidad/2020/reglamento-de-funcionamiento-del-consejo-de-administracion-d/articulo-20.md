@@ -1,0 +1,1 @@
+Artículo 20. Sesiones en lugares distintos. La Presidencia podrá convocar a sesiones en lugares distintos al habitual, con el fin de realizar visitas a proyectos o en aquellos lugares de interés para el Conavi.

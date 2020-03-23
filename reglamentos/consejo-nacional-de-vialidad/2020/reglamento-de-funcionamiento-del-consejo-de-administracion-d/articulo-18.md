@@ -1,0 +1,3 @@
+Artículo 18. De las Sesiones Extraordinarias. La convocatoria a sesiones extraordinarias deberá hacerse por lo menos con veinticuatro horas de antelación por la Presidencia del Consejo, indicando los asuntos a tratar. La convocatoria se acompañará con el Orden del Día y únicamente podrán discutirse los aspectos ahí consignados.
+En casos de urgencia, así calificados por la Presidencia del Consejo, el plazo de convocatoria podrá reducirse a doce horas. La convocatoria a sesiones extraordinarias será comunicada por escrito.
+No se aplicarán los requisitos del plazo y las formalidades para la convocatoria a sesiones extraordinarias cuando se encuentren presentes todos los miembros del órgano y así lo acuerden por unanimidad.

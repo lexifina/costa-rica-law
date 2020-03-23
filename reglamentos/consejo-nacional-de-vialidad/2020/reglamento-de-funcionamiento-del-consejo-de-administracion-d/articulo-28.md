@@ -1,0 +1,2 @@
+Artículo 28. Libro Oficial de Actas. La Secretaría de Actas, deberá conformar un libro de actas en el que, una vez firmes las actas respectivas, se transcribirán inmediatamente a fin de que sean firmadas por la persona a cargo de la Presidencia y de la Secretaría del Consejo, o, en su defecto, de la persona encargada de la Secretaría de Actas y por aquellas personas miembros que hubieren hecho constar su voto disidente.
+La responsabilidad de la custodia, firma y foliado del mismo, recae en la persona encargada de la Secretaría de Actas.

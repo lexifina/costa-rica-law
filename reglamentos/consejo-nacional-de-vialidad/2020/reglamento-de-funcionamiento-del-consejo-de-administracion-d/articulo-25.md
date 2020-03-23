@@ -1,0 +1,1 @@
+Artículo 25. Privacidad de las Sesiones. Las sesiones del Consejo, serán siempre privadas, pero éste podrá disponer, acordándolo así por unanimidad de las personas miembros presentes, que tenga acceso a ella el público o bien ciertas personas, concediéndoles o no el derecho a participar en las deliberaciones con voz, pero sin voto.

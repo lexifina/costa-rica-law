@@ -1,0 +1,2 @@
+Artículo 8. Funcionarios Auxiliares. Además de los siete miembros del Consejo, asistirán a las sesiones la persona encargada de la Dirección Ejecutiva y de la Secretaría de Actas; también asistirán cuando expresamente les convoque la Presidencia del Consejo, la persona encargada de la Gerencia de Gestión de Asuntos Jurídicos y de la Auditoría Interna.
+Estos asistentes tendrán derecho a voz, pero no a voto.

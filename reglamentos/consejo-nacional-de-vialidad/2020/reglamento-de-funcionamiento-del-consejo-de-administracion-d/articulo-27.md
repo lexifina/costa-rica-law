@@ -1,0 +1,4 @@
+Artículo 27. Actas.
+a. La Secretaría de Actas elaborará, de cada sesión un acta, que contendrá como mínimo la indicación de las personas asistentes, las circunstancias de lugar y tiempo en que se ha celebrado, los puntos principales de la deliberación, la forma y el resultado de la votación y el contenido de los acuerdos.
+b. Las personas miembros del Consejo aprobarán las Actas en la siguiente sesión ordinaria. Antes de esa aprobación carecerán de firmeza los acuerdos tomados en la respectiva sesión, a menos que las personas miembros presentes acuerden su firmeza por votación de dos tercios de la totalidad de las personas miembros del Consejo.
+c. Las actas serán firmadas por la persona a cargo de la Presidencia y de la Secretaría de Actas, esta última, en ausencia de la persona designada en la Secretaría del Consejo.
