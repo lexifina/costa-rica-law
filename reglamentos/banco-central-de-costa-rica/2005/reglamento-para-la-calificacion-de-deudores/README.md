@@ -46,3 +46,4 @@ Reglamento para la Calificación de Deudores
 | 31 | 2019-05-23 | Resolución 1514 (2019-05-23) |
 | 32 | 2019-05-28 | Reglamento 1503 (2019-05-28) |
 | 33 | 2020-03-16 | Reglamento 1564 (2020-03-16) |
+| 34 | 2020-03-23 | Reglamento 1566 (2020-03-23) |
