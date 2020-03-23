@@ -1,0 +1,2 @@
+ARTÍCULO 9- Restitución de derechos. Adicionalmente a las multas establecidas en el artículo 7, la persona empleadora que incurra en alguna de las faltas establecidas en ese artículo tendrá la obligación de restituir a las personas trabajadoras en el goce de todos los derechos indebidamente afectados, con el pago de las diferencias salariales correspondientes.
+Queda salvo el derecho de la persona trabajadora de acudir a la sede jurisdiccional respectiva, para el cobro de los daños y perjuicios causados.

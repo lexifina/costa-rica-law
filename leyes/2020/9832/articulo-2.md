@@ -1,0 +1,2 @@
+ARTÍCULO 2-Ámbito de aplicación. La presente ley será de aplicación para todas las relaciones de empleo privado que se rigen por la Ley 2, Código de Trabajo, de 27 de agosto de 1943, bajo el principio de excepcionalidad.
+La persona empleadora tendrá la potestad de determinar unilateralmente los contratos de trabajo afectados por la reducción de la jornada de trabajo, sin perjuicio de las limitaciones consignadas en el artículo 6.
