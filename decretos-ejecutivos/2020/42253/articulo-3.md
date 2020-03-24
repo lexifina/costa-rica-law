@@ -1,0 +1,1 @@
+ARTÍCULO 3°.- Regulación horaria de la restricción vehicular nocturna. Durante los días lunes a domingo, inclusive, y en el período comprendido entre las 22:00 horas y las 05:00 horas, no se permitirá el tránsito vehicular en todo el territorio nacional, salvo las excepciones contempladas en el artículo 4° del presente Decreto Ejecutivo.
