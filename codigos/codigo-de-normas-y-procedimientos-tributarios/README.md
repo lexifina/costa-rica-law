@@ -1,6 +1,6 @@
 # Código de Normas y Procedimientos Tributarios ( Código Tributario )
 
-Ley N° 4755 del 1971-05-03. SINALEVI, ficha 6530: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=6530&param2=115419&param3=1>.
+Ley N° 4755 del 1971-05-03. SINALEVI, ficha 6530: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=6530&param2=119739&param3=1>.
 
 Publicada en La Gaceta N° 117 del 1971-06-04.
 
@@ -26,3 +26,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 16 de 22 | 2017-01-18 | Sala Constitucional, resolución 639 (2017-01-18) | 2017-01-18 |
 | 17 de 22 | 2018-12-04 | Ley 9635 | 2018-12-03 |
 | 18 de 22 | 2019-03-07 | Ley 9642 | 2018-12-17 |
+| 19 de 22 | 2020-03-24 | Ley 9820 | 2020-03-03 |
