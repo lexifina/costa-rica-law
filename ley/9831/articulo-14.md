@@ -1,0 +1,4 @@
+ARTÍCULO 14- Revisión periódica de las comisiones
+El Banco Central de Costa Rica revisará las comisiones máximas autorizadas por concepto de comisión de adquirencia, intercambio y otras comisiones o cargos, con el propósito de ajustarlas de acuerdo con los principios detallados en esta ley.
+Las revisiones ordinarias se realizarán al menos una vez al año, pudiendo realizar revisiones extraordinarias fundamentadas en estudios técnicos, en caso de que detecte desviaciones importantes en el cumplimiento del objetivo de esta ley.
+Las nuevas comisiones máximas que establezca el Banco Central de Costa Rica entrarán a regir el 1 º de enero de cada año, o conforme lo indique el Banco Central de Costa Rica en su resolución general, garantizando, en ambos casos, un período prudencial que les permita a los proveedores de servicio realizar los cambios tecnológicos necesarios para pasar de las comisiones vigentes a las comisiones máximas establecidas de acuerdo con esta ley.
