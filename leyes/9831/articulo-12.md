@@ -1,0 +1,2 @@
+ARTÍCULO 12- Registro público de sanciones
+El Banco Central de Costa Rica llevará un registro de los proveedores de servicio y afiliados que incumplan las disposiciones de la presente ley o hayan sido objeto de una sanción administrativa por el incumplimiento. Para efectos de transparencia, dicho registro será público, de acceso a través de su página web y deberá contener el detalle de los incumplimientos, así como las sanciones impuestas.

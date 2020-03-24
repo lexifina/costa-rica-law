@@ -1,0 +1,3 @@
+ARTÍCULO 10-Sanción por incumplimiento de los topes máximos de comisiones
+El proveedor de servicios que incumpla los topes máximos de comisiones, establecidos por el Banco Central de Costa Rica para el sistema de tarjetas, será sancionado con el pago de una multa equivalente al cobro en exceso que haya realizado y nunca menor a doscientos salarios base.
+Adicionalmente, el infractor deberá devolver a los afiliados todas las sumas cobradas que excedan las comisiones máximas autorizadas por el Banco Central de Costa Rica, dentro de los diez días hábiles siguientes a la imposición de la sanción a la cual se refiere el presente artículo.

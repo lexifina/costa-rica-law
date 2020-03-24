@@ -1,0 +1,2 @@
+ARTÍCULO 3- Ámbito de aplicación
+La presente ley es de acatamiento obligatorio para todos los proveedores de servicios del sistema de tarjetas, se encuentre o no sujeto a la supervisión financiera de alguna de las superintendencias del Consejo Nacional de Supervisión Financiera (Conassif), así como a las entidades que les presten soporte tecnológico para sus fines comerciales, las marcas de tarjetas, los afiliados y clientes que acepten y utilicen dispositivos de pago.

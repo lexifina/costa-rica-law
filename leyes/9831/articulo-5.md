@@ -1,0 +1,2 @@
+ARTÍCULO 5- Requerimientos de información
+El Banco Central de Costa Rica podrá requerir, a los proveedores de servicio y afiliados, toda la información que estime necesaria para cumplir con los objetivos de la presente ley, pudiendo ordenar que esta información esté certificada por un auditor independiente, cuando así lo estime necesario. El Banco Central de Costa Rica está obligado a guardar la confidencialidad de la información individual que le suministren las personas físicas y jurídicas.
