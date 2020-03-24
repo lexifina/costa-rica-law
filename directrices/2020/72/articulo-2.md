@@ -1,0 +1,6 @@
+Artículo 2.- Las Oficinas de Recursos Humanos de la Administración Central, deberán realizar una programación semestral sobre el cumplimiento de períodos de vacaciones de las personas servidoras, de acuerdo con los siguientes lineamientos:
+a) La programación deberá contemplar las fechas de cumplimiento de vacaciones de las personas servidoras, de manera que se evite la acumulación de más de un período de vacaciones sin disfrutar.
+b) En aquellos casos de personas funcionarias que registren más de un periodo de vacaciones, deberá coordinarse con la jefatura inmediata para que disfruten las vacaciones correspondientes a los períodos vencidos. Para ello, deberán tomarse las medidas necesarias para asegurar la continuidad del servicio público.
+c) Deberán realizarse proyecciones de las personas servidoras prontas a adquirir el derecho a pensión, con el objetivo de que puedan disfrutar los días de vacaciones de previo a la finalización de la relación laboral.
+d) En enero y julio de cada año, las Oficinas de Recursos Humanos deberán informar a su jerarca respectivo sobre el cumplimiento de las disposiciones de la presente directriz.
+Se insta a las Oficinas de Recursos Humanos de la Administración Descentralizada a aplicar los lineamientos del presente artículo.
