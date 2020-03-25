@@ -4,3 +4,5 @@ b. Aprobar las modificaciones contractuales de las contrataciones que haya previ
 c. Resolver los recursos de revocatoria contra los actos de adjudicación en los casos donde haya adjudicado o cuando el recurrente así lo haya solicitado.
 d. Autorizar o aceptar según corresponda, las donaciones de bienes muebles o inmuebles cuando la Operadora sea sujeto donante o donatario.
 e. Firmar los contratos derivados de los procesos de contratación que no superen el 20% del monto máximo para tramitar una licitación abreviada en la Operadora.
+f) En caso de ausencia del titular responsable de la Gerencia General, las funciones que a éste le corresponden, según lo previsto en este Reglamento, serán asumidas y ejecutadas por quien ocupe la Dirección Financiera.
+(Así adicionado el inciso anterior mediante sesión ordinaria N° 1201 del 25 de marzo del 2020)

@@ -14,3 +14,4 @@ Reglamento del sistema de compras de bienes y servicios de la Operadora de Pensi
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-07-20 | la propia norma |
+| 2 | 2020-03-25 | Reglamento 1201 (2020-03-25) |

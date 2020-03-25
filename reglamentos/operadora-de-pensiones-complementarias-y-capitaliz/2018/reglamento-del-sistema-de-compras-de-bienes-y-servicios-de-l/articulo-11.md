@@ -10,3 +10,5 @@ h. Promover la utilización de medios electrónicos y digitales en los procesos 
 i. Garantizar el desarrollo eficiente y oportuno de los procesos de contratación desarrollados en la Operadora.
 j. Procurar que los funcionarios involucrados en los procesos de contratación administrativa reciban una adecuada capacitación en la materia.
 k. Cualquier otra función establecida en la LCA, RCA o el presente reglamento.
+l) En caso de ausencia del titular responsable de la Dirección Financiera, las funciones que a éste le corresponden, según lo previsto en este Reglamento, serán asumidas y ejecutadas por quien ocupe la Gerencia General.
+(Así adicionado el inciso anterior mediante sesión ordinaria N° 1201 del 25 de marzo del 2020)
