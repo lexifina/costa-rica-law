@@ -1,0 +1,1 @@
+Artículo 7°—Derecho de admisión. La Municipalidad por medio de la Administración se reserva el derecho de admisión al cementerio de cualquier persona que a su juicio pudiera poner en peligro la tranquilidad y el orden que debe guardarse en este lugar.

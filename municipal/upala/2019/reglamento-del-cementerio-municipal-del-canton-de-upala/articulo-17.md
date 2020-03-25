@@ -1,0 +1,2 @@
+Artículo 17.—Supervisión. El Gestor Ambiental y el Encargado del Cementerio velarán por la correcta aplicación y uso de los servicios eléctricos, drenajes, instalaciones de agua y uso de servidumbres entre las parcelas, imponiendo las medidas que crean convenientes para el mejoramiento de los servicios, así como las demás disposiciones de este reglamento.
+Como medio de apoyo, los demás departamentos municipales deberán brindar su colaboración.

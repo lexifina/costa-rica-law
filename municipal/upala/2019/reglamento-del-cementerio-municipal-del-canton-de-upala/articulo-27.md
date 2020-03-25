@@ -1,0 +1,1 @@
+Artículo 27.—Derecho de uso. El adquirente, obtendrá el derecho de uso por un período de 20 años, renovable por un plazo igual, siempre y cuando cumpla con las obligaciones establecidas en el presente reglamento y en el contrato de adquisición respectivo.

@@ -1,0 +1,2 @@
+Artículo 18.—Construcción. Toda construcción y mejora hecha en el cementerio será realizada exclusivamente por la municipalidad a excepción de la construcción y reparación de nichos, para lo cual la municipalidad contará con un diseño constructivo pre-elaborado que será de acatamiento obligatorio.
+La municipalidad queda habilitada para suscribir convenios o recibir donaciones de instituciones públicas o privadas que ayuden a mejorar la infraestructura del cementerio.

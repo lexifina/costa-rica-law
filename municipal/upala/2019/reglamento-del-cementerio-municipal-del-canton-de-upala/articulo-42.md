@@ -1,0 +1,1 @@
+Artículo 42.—Identificación. Se exigirá que cada sepultura sea marcada con una losa, cruz u otro distintivo que llevarán número progresivo y el año en que fue hecha la inhumación, ubicada en la cara frontal del nicho, con vistas al paso peatonal principal. Las dimensiones de dicha placa deberán de ser como mínimo 15 cm a un máximo de 40 cm.

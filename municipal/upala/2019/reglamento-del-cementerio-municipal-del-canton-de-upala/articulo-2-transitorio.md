@@ -1,0 +1,2 @@
+II.—Se establece un período de 12 meses a partir de la publicación del presente reglamento, para que los familiares de los difuntos o en su defecto persona cercana o interesada a éste, se apersone a la municipalidad para actualizar los datos de la persona fallecida, con el fin de iniciar el registro de ocupación dentro del cementerio. También deberá nombrar por cada persona fallecida un responsable del pago del mantenimiento.
+Rige a partir de su publicación en el Diario Oficial La Gaceta.

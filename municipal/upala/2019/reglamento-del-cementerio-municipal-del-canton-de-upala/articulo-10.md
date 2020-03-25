@@ -1,0 +1,1 @@
+Artículo 10.—Ejercer supervisión. La Administración Municipal queda obligada a facilitar las inspecciones a las autoridades administrativas sanitarias, a fin de fiscalizar la aplicación correcta de lo establecido por la Ley General de Salud y el Reglamento General de Cementerios.

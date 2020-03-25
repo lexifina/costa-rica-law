@@ -1,0 +1,1 @@
+Artículo 48.—Exhumación por incumplimiento. En caso de los derechos adquirientes cuyos poseedores incumplan las obligaciones de este reglamento o del contrato, facultará a la Municipalidad para efectuar exhumaciones ordinarias de oficio y será causal para la rescisión del contractual.

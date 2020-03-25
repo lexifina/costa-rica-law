@@ -1,0 +1,2 @@
+Artículo 4°—Autorización para cobro. La Municipalidad de Upala, para atender los gastos que demanda el cumplimiento de sus obligaciones, queda facultada para percibir los derechos de inhumación, exhumación, mantenimiento, derecho de lotes y alquiler de nichos, de acuerdo con las tarifas que apruebe el Concejo Municipal, las cuales deben ser publicadas en el Diario Oficial La Gaceta.
+Las tarifas por estos servicios serán actualizadas cada año considerando el estudio tarifario definido por la Administración Municipal.

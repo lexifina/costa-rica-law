@@ -1,0 +1,1 @@
+Artículo 26.—Construir bóveda. La adquisición de un derecho funerario implica la obligatoriedad de construir la bóveda, en un plazo no mayor de 5 años de haber adquirido el derecho. El incumplimiento de esta obligación autoriza a la Municipalidad para rescindir y/o resolver el contrato respectivo.

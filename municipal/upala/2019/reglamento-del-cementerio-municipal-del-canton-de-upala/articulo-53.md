@@ -1,0 +1,1 @@
+Artículo 53.—Normas supletorias. En lo no previsto en este reglamento se aplicarán las disposiciones de la Ley General de Salud, Ley de Regulación sobre Propiedad y Arrendamiento de Tumbas en Cementerio, la Ley General de la Administración Pública, el Código Municipal y el Reglamento General de Cementerios.

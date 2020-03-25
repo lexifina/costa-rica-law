@@ -1,0 +1,1 @@
+Artículo 8°—Reserva de derecho de construcción. Respetando los parámetros consagrados en los principios de razonabilidad y proporcionalidad, la municipalidad se reserva el derecho de realizar todo tipo de construcciones, reparaciones y mantenimiento en las instalaciones del cementerio.

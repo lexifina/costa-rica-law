@@ -1,0 +1,2 @@
+Artículo 21.—Colores. Las bóvedas que sean construidas en el cementerio deben pintarse o enchaparse en tonos sobrios (blancos o grises suaves). Además, todos los nichos deben quedar tapados.
+La administración municipal inspeccionará la colocación de las lápidas, cruces y demás elementos decorativos, mismos que deben mantenerse en la misma línea de colores descritos anteriormente, permitiéndose el negro para los detalles.

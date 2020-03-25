@@ -1,0 +1,1 @@
+Artículo 12.—Comités administradores o encargado del cementerio. Los demás cementerios que se encuentren en el cantón y deseen adherirse a este reglamento tendrán la facultad de nombrar un Comité Administrador o Encargado de Cementerio, asignándole las funciones que les sean aprobadas.
