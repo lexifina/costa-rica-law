@@ -1,0 +1,4 @@
+Artículo 2º—Refórmese el artículo 72 inciso d) del Decreto Ejecutivo Nº 38170-MEP, “Organización Administrativa de las Oficinas Centrales del Ministerio de Educación Pública”, del 30 de enero del año 2014, publicado en La Gaceta Nº 31 del 13 de febrero de 2014, cuyo texto en adelante dirá:
+“Artículo 72.—Son funciones del Departamento de Desarrollo Organizacional:
+d) Coordinar con la Dirección de Desarrollo Curricular y la Dirección de Vida Estudiantil, el diseño, implementación y seguimiento de estrategias, programas y proyectos a aplicar por el personal docente y personal del área psicosocial de los Equipos Técnicos Itinerantes Regionales (ETIR), que permitan el abordaje de aspectos vinculados con el componente psicosocial, prácticas culturales, educación inclusiva y el desarrollo organizacional de las Direcciones Regionales de Educación.
+(…)”
