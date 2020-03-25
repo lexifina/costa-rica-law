@@ -1,0 +1,1 @@
+2º—Se corre la numeración del artículo 56 al artículo 60 correspondientes al Reglamento de Organización y Funcionamiento del Consejo Directivo del IMAS, para que ahora sean del artículo 61 al artículo 65.
