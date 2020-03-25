@@ -1,0 +1,1 @@
+ARTÍCULO 4- Exención de pago de impuestos No estarán sujetos al pago de ninguna clase de impuestos, timbres, tasas, contribuciones o derechos, los documentos que se requieran para formalizar el contrato de préstamo, así como su inscripción en los registros correspondientes queda exonerada de todo tipo de pago.
