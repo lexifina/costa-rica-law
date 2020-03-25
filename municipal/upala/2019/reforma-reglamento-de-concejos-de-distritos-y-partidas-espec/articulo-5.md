@@ -1,0 +1,2 @@
+Artículo 5º—Refórmese el artículo 11 y léase de la siguiente manera:
+Artículo 11.—De su seno, el Concejo de Distrito elegirá a un secretario, un tesorero y dos vocales quienes durarán en sus cargos dos años, pudiendo ser reelectos, asimismo podrá constituir comisiones auxiliares de trabajo necesarias para la mejor atención de los problemas y soluciones de cada comunidad. El síndico propietario fungirá como presidente del Concejo de Distrito.

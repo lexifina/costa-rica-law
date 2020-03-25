@@ -1,0 +1,2 @@
+Artículo 2º—Refórmese el artículo 2° y léase de la siguiente manera:
+Artículo 2º—El propósito del presente Reglamento es regular el funcionamiento de los Concejos de Distrito del cantón Upala, el trámite de las partidas específicas asignadas al cantón y determinar las responsabilidades y la participación de las unidades o departamentos municipales, el adecuado procedimiento en caso de variación del destino y las labores de seguimiento para la finalización de la iniciativa financiada con recursos de partidas específicas.

@@ -1,0 +1,1 @@
+Artículo 20.—Corrección de Numeración. Corríjase la numeración en orden ascendente de los artículos 39 y 40 del actual Reglamento de Concejos de Distritos y Partidas Específicas, pasando el actual artículo 39 al 40 y el artículo 40 al 41.
