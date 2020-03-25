@@ -1,0 +1,2 @@
+Artículo 11.—Evaluación: esta etapa tiene como propósito, contrastar los criterios de evaluación definidos y el grado de cumplimiento de los objetivos y metas que fueron planificadas y pactadas con las personas servidoras públicas.
+La evaluación será realizada por la jefatura inmediata durante febrero de cada año, en esta se evaluarán los resultados del año inmediato anterior. El período de evaluación del desempeño comprenderá doce meses partiendo del 1° de enero de cada año al 31 de diciembre.

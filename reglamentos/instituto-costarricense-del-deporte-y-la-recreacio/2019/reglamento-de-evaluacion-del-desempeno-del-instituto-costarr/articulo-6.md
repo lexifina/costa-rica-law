@@ -1,0 +1,7 @@
+Artículo 6º—Roles de los actores participantes: el proceso de evaluación requiere la coordinación permanente entre las unidades de Planificación, Recursos Humanos, las jefaturas y jerarcas institucionales:
+a. Dirección Nacional: responsable de la consolidación, planificación y evaluación, tanto estratégica como operativa.
+b. Unidad de Planificación Institucional: responsable de la elaboración, seguimiento y evaluación de la planificación estratégica de la cual surgen los objetivos y metas institucionales.
+c. Unidad de Recursos Humanos: responsable de establecer los parámetros técnicos para la evaluación del desempeño de las personas funcionarias del ICODER, así como dirigir, orientar y asesorar a las jefaturas y jerarcas institucionales en el proceso que conlleva la evaluación del desempeño.
+d. Jefaturas institucionales: responsables de establecer las metas y objetivos en participación con las personas funcionarias a cargo y realizar la evaluación del desempeño anualmente bajo los parámetros previamente definidos.
+También les corresponde registrar en un expediente todos los documentos relacionados con cada una de las etapas de la evaluación del desempeño; en caso de traslado de un funcionario la jefatura deberá remitir el expediente a la nueva jefatura.
+e. Contraloría de servicio: le corresponde recomendar a la jerarquía institucional los rubros a evaluar en relación con las funciones que les asigna el artículo 14 de la Ley Reguladora del Sistema Nacional de Contralorías de Servicios, Ley N° 9158.

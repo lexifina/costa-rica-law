@@ -1,0 +1,1 @@
+Artículo 23.—Reconocimiento de la anualidad: se reconocerá únicamente a las personas funcionarias públicas que obtengan una evaluación igual o superior al 80% (muy bueno, excelente y sobresaliente), según lo dispuesto en la normativa aplicable.

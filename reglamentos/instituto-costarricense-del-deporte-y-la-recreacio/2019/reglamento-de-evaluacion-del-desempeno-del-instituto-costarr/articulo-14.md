@@ -1,0 +1,1 @@
+Artículo 14.—Evaluación de las competencias individuales: se evaluarán las competencias individuales de las personas utilizando como guía el Diccionario de Competencias emitido por el Ministerio de Planificación Nacional y Política Económica para este fin, según el grupo de puesto que desempeñe la persona servidora.
