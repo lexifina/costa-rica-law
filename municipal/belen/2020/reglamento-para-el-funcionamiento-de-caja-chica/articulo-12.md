@@ -1,0 +1,1 @@
+Artículo 12.—Trámite de vales. Se dará trámite a un vale de caja chica, toda vez que la persona que lo solicite no tenga pendiente la liquidación de un vale anterior, siendo éste del mismo o de otro centro de costos.

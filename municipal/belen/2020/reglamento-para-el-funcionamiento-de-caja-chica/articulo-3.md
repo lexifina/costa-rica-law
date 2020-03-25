@@ -1,0 +1,1 @@
+Artículo 3º—Establecimiento de la Caja Chica. Se establece un fondo de caja chica cuyo monto podrá aumentarse o disminuirse, previo estudio enviado por la Tesorería Municipal con el visto bueno de la Dirección Administrativa Financiera, el cual será aprobado por el Alcalde Municipal.

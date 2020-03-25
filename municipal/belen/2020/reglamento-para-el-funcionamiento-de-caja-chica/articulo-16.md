@@ -1,0 +1,1 @@
+Artículo 16.—Anulación del vale de caja chica. Cuando por algún motivo la compra no se lleve a cabo, la persona que ha recibido el dinero, deberá hacer el reintegro del mismo a más tardar el día hábil siguiente al de su entrega, a excepción de lo estipulado en el artículo 14, en cuyo caso deberá entregarse el mismo día.

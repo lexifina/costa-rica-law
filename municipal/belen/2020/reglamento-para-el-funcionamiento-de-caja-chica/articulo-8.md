@@ -1,0 +1,1 @@
+Artículo 8º—Devoluciones de dinero. La Tesorería recibirá devoluciones de dinero, únicamente en efectivo, sin excepción de ninguna clase, asimismo deberá ser en moneda nacional. No podrán recibirse para este fondo notas de crédito.
