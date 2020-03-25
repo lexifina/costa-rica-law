@@ -1,2 +1,0 @@
-Artículo 5: Del Trámite de las Solicitudes.
-Una vez recibida por Fiscalía la solicitud de la autorización temporal del ejercicio profesional, ésta verificará el fiel cumplimiento y legitimidad de los requisitos presentados. Finalizada la revisión, la Fiscalía procederá a realizar un informe de carácter recomendativo ante la Junta de Gobierno, conducente a que se otorgue o deniegue la solicitud.

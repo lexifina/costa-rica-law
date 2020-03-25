@@ -1,3 +1,0 @@
-Artículo 2: Ámbito de Aplicación.
-Esta normativa resulta de acatamiento obligatorio para todos los profesionales que habiendo cumplido los requisitos académicos que se exigen para obtener el título como médico general, especialista o sub especialista, sean nacionales o extranjeros y soliciten una autorización temporal para ejercer la profesión médica en el país.
-No obstante, la aplicación de esta normativa no exime a los solicitantes de cumplir con los demás cuerpos normativos vigentes emitidos por el Colegio de Médicos y Cirujanos, de manera que todo aquello que no se encuentre regulado expresamente en la presente normativa se regirá por los cuerpos normativos aplicables según corresponda.
