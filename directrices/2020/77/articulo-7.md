@@ -1,0 +1,1 @@
+Artículo 7°.-Se invita al Poder Judicial, Poder Legislativo, Tribunal Supremo de Elecciones, municipalidades y universidades públicas, a la aplicación de las medidas de prevención contempladas en la presente Directriz.

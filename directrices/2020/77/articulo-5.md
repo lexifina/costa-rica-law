@@ -1,0 +1,1 @@
+Artículo 5°.- Se exceptúa de la presente directriz los servicios que prestan aquellas instituciones necesarias para la atención de la emergencia nacional por COVID-19, quienes para esos efectos podrán requerir de la cantidad de personas servidoras que sean necesarias.

@@ -1,0 +1,1 @@
+Artículo 6°.- Las medidas señaladas en la presente Directriz serán revisadas de manera bisemanal y podrán ser actualizadas por MIDEPLAN y la Comisión Nacional de Emergencias, según los lineamientos sanitarios del Ministerio de Salud y el comportamiento epidemiológico del COVID-19.
