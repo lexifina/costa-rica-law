@@ -1,2 +1,0 @@
-ARTÍCULO 6. Dirección de correo electrónico para notificaciones: El representante legal o apoderado debe brindar una dirección de correo electrónico en la que se le notificará al obligado todos los actos relacionados a este registro, incluso los que se refieran al proceso sancionatorio cuando proceda.
-Para efectos de notificaciones se entenderá que la dirección de correo electrónico indicada en este artículo es el medio oficial de comunicación con el sujeto obligado según los artículos 134 y 137 del Código de Normas y Procedimientos Tributarios.

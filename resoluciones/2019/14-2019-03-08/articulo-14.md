@@ -1,3 +1,0 @@
-ARTÍCULO 14. Acuse de recibo: Finalizado el proceso de la declaración el Registro de Transparencia y Beneficiarios Finales enviará un acuse de confirmación de la recepción de la información al correo electrónico suministrado por el representante legal o apoderado, de acuerdo a lo establecido en el artículo 5 de la presente resolución.
-Si el obligado no recibe el acuse de recibo durante el día en que suministró la información, debe considerarla como no presentada y por lo tanto, deberá hacerla de nuevo hasta que se logre presentar de forma exitosa.
-Este acuse de recibo implica únicamente que la declaración fue debidamente registrada en el sistema.
