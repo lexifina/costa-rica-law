@@ -1,0 +1,1 @@
+Artículo 7º—Aplicación de sanción. Después de trascurridos los plazos establecidos en los artículos 1º y 3º de esta resolución, el obligado no ha cumplido con el suministro de la información, la Administración Tributaria podrá dar inicio al proceso sancionador para aplicar la multa pecuniaria indicada en el artículo 6º anterior.

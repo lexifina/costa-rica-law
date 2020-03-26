@@ -1,0 +1,1 @@
+Artículo 8º—Aplicabilidad. Esta resolución aplica para el período 2019 de la obligación en el suministro de información establecido en el capítulo denominado “Transparencia y beneficiarios finales de las personas jurídicas y otras estructuras jurídicas”, de la Ley para Mejorar la Lucha contra el Fraude Fiscal.
