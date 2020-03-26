@@ -1,0 +1,1 @@
+Artículo 3º—Se instruye a las instancias públicas competentes a dirigir todos los esfuerzos institucionales necesarios, en aras de facilitar la realización de los procesos que componen el Plan Nacional para la Recuperación de Territorios Indígenas de Costa Rica, a través de procedimientos ágiles, eficientes y la menor burocracia posible.

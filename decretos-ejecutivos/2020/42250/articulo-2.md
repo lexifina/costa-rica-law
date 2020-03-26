@@ -1,0 +1,1 @@
+Artículo 2º—Se insta a la Administración Central y Descentralizada para que, dentro del marco de sus competencias y en estricto apego al ordenamiento jurídico, brinden todas las facilidades para que, a través de la cooperación interinstitucional, se logre la eficiente, correcta, exitosa, pronta y eficaz implementación de dicho plan.
