@@ -14,3 +14,4 @@ Reglamento para el Nombramiento y Funcionamiento de los Concejos de Distrito del
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-06-17 | la propia norma |
+| 2 | 2020-03-26 | Reglamento municipal 200 (2020-03-26) |
