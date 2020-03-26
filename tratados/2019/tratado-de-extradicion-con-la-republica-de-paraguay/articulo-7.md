@@ -1,0 +1,7 @@
+ARTÍCULO 7
+PRINCIPIO DE ESPECIALIDAD
+1. Ninguna persona extraditada conforme a este Tratado, será detenida, procesada o condenada en el territorio del Estado Requirente por delitos cometidos antes de la fecha de la solicitud de extradición, distintos a los que hubieran motivado su extradición, excepto por las siguientes circunstancias:
+a) Cuando dicha persona ha abandonado el territorio del Estado Requirente después de la extradición y regresado voluntariamente al mismo;
+b) Cuando dicha persona no ha abandonado el territorio del Estado Requirente dentro de los treinta días naturales o consecutivos, después de haber estado en libertad de hacerlo; y
+c) Cuando las autoridades competentes del Estado Requerido consintieren en la extensión de la extradición a efectos de la detención, enjuiciamiento o condena de la persona reclamada por un delito distinto del que motivó la solicitud. El Estado Requirente deberá remitir al Estado Requerido una solicitud formal de extensión de la extradición, la que será resuelta por este último. La solicitud deberá estar acompañada de los documentos previstos en el párrafo 4 del artículo 9 de este Tratado y del testimonio de la declaración judicial sobre los hechos que motivaron la solicitud de ampliación, prestada por el extraditado con la debida asistencia jurídica.
+2. La persona entregada sólo podrá ser reextraditada a un tercer Estado con el consentimiento expreso del Estado Requerido, salvo los casos previstos en los incisos a) y b) del párrafo anterior.
