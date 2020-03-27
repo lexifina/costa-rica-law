@@ -110,3 +110,4 @@ Estación no actualizada con la última versión del SINPE | No aplica | ₡7.00
 Gestión de Riesgo: | No aplica | | No aplica
 a) Costo administrativo por el uso del crédito intradiario | | ₡70.000 c/día |
 b) Administración del incumplimiento diario de los mecanismos de garantía | | ₡35.000 c/tipo de moneda |
+(Nota de Sinalevi: Mediante sesión N° 5925-2020 del 27 de marzo del 2020 se ordena agregar una nota al presente numeral que indica lo siguiente: “ En el caso de las sociedades administradoras de fondos de inversión y las operadoras de pensiones que utilicen los servicios del SINPE a nombre de sus fondos, deberán pagar una sola tarifa de suscripción mensual por cada servicio, sujeto a cobro, en el que participen, independientemente de la cantidad de fondos bajo su administración, que a su vez, hayan registrado como participantes de Sinpe”.)

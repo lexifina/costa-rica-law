@@ -20,3 +20,4 @@ Reglamento del sistema de pagos del Banco Central de Costa Rica
 | 5 | 2018-09-03 | Reglamento 5841 (2018-09-03) |
 | 6 | 2018-11-07 | Reglamento 5852 (2018-11-07) |
 | 7 | 2018-11-15 | Reglamento 5853 (2018-11-15) |
+| 8 | 2020-03-27 | Reglamento 5925 (2020-03-27) |
