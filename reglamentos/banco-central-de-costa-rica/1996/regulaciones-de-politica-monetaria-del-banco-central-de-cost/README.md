@@ -96,3 +96,4 @@ Regulaciones de Política Monetaria del Banco Central de Costa Rica
 | 81 | 2019-05-31 | Reglamento 5879 (2019-05-31) |
 | 82 | 2019-12-18 | Reglamento 5909 (2019-12-18) |
 | 83 | 2020-03-20 | Reglamento 5923 (2020-03-20) |
+| 84 | 2020-03-27 | Reglamento 5925 (2020-03-27) |
