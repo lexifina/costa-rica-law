@@ -1,0 +1,41 @@
+CONTRALORÍA GENERAL DE LA REPÚBLICA
+RESOLUCIONES
+R-DC-16-2020.—Contraloría General de la República.— Despacho Contralor.—San José a las ocho horas del diecisiete de marzo de dos mil veinte.
+Considerando:
+I.—Que el artículo 179 de la Constitución Política establece que la Asamblea Legislativa no podrá aumentar los gastos presupuestos por el Poder Ejecutivo, si no es señalando los nuevos ingresos que hubieren de cubrirlos, previo informe de la Contraloría General de la República sobre la efectividad fiscal de los mismos.
+II.—Que en virtud del artículo 180 de la Constitución Política, todo proyecto de modificación del presupuesto de iniciativa del Poder Ejecutivo que implique aumento o creación de gastos debe señalar los nuevos ingresos que hubieren de cubrirlos, previo informe de la Contraloría General de la República sobre la efectividad fiscal de los mismos.
+III.—Que el artículo 38 de la Ley de la Administración Financiera de la República y Presupuestos Públicos, N° 8131 de 18 de setiembre de 2001 y sus reformas (LAFRPP), incluye la obligatoriedad para el Poder Ejecutivo, por medio del Ministro de Hacienda, de presentar el proyecto de Ley de presupuesto a conocimiento de la Asamblea Legislativa, adjuntando la certificación de ingresos por parte de la Contraloría General de la República y la certificación sobre la capacidad de endeudamiento del sector público por parte del Banco Central de Costa Rica.
+IV.—Que el inciso b) del artículo 4° de la Ley para el Equilibrio Financiero del Sector Público, N° 6955 de 24 de febrero de 1984 y sus reformas, determina que el proyecto de presupuesto deberá ser remitido a la Asamblea Legislativa con inclusión de los ingresos probables debidamente certificados por la Contraloría General de la República en cuanto a su efectividad fiscal.
+V.—Que el artículo 19 de la LAFRPP dispone que el marco de referencia para preparar los presupuestos del sector público estará constituido, entre otros, por la programación macroeconómica que realizará el Poder Ejecutivo, con la colaboración del Banco Central de Costa Rica y cualquier otra institución cuyo concurso se requiera para estos fines.
+VI.—Que esta Contraloría General, mediante oficios DFOESAF-0665(18651)-2019, DFOE-SAF-0666(18653)-2019 y DFOESAF-0667(18655)-2019, todos de 02 de diciembre de 2019, sometió la presente normativa a consulta de la Comisión de Asuntos Hacendarios de la Asamblea Legislativa, del Banco Central de Costa Rica y del Ministerio de Hacienda, respectivamente, y recibió respuesta por parte del Banco Central de Costa Rica mediante oficio GER-0327-2019 de 10 de diciembre de 2019, y de la Dirección General de Presupuesto Nacional mediante oficio DGPN-0497-2019 de 20 de diciembre de 2019.
+RESUELVE
+I. Emitir los siguientes:
+Lineamientos sobre el proceso de certificación de la efectividad
+fiscal de los ingresos del Presupuesto de la República
+y sus Modificaciones
+1 Regulaciones generales y definiciones
+1.1 Propósito de los lineamientos
+El propósito de los presentes lineamientos es regular el proceso de certificación de efectividad fiscal de los ingresos del Presupuesto de la República y sus Modificaciones (incluyendo los insumos, análisis y producto de este proceso) como parte de las competencias constitucionales y legales asignadas a la Contraloría General de la República.
+1.2 Certificación de efectividad fiscal
+Se entenderá la Certificación de Efectividad Fiscal como el dictamen que emite la Contraloría General de la República sobre los ingresos estimados por el Ministerio de Hacienda, o sobre los que remita la Asamblea Legislativa al amparo del artículo 179 de la Constitución Política, en lo referido estrictamente a la factibilidad y razonabilidad con la cual tales ingresos pueden llegar a ser efectivos durante un ejercicio económico determinado.
+1.3 Sobre la razonabilidad y la factibilidad de las estimaciones
+Una estimación es razonable si se sustenta en criterios válidos y coherentes, mientras que la factibilidad hace referencia a la posibilidad, dada la información disponible, con la cual la estimación pueda llegar a ser efectiva.
+1.4 De los ingresos del presupuesto de la República
+Los ingresos a incluir en el presupuesto de la República pueden ser ciertos o probables:
+1) Ingreso cierto: es todo aquel ingreso sobre el cual el Ministerio de Hacienda tiene certeza de su disposición efectiva en el Fondo General del Gobierno.
+2) Ingreso probable: es todo aquel ingreso cuya certidumbre sobre su recaudación se encuentra asociada al comportamiento de variables macroeconómicas y fiscales, cambios normativos y sociales, eventos imprevisibles o al cumplimiento de normativa vigente relativa a las relaciones financieras entre el Gobierno Central y otras entidades públicas.
+1.5 Ingresos certificables
+Son ingresos certificables únicamente los ingresos probables previstos en el «Clasificador de los Ingresos del Sector Público» vigente, con excepción de los rubros que componen la clase denominada “Financiamiento”, que hayan sido incluidos en la respectiva estimación del Ministerio de Hacienda o de la Asamblea Legislativa (en este último caso, según lo previsto en el artículo 179 de la Constitución Política) como producto de la iniciativa que a estos entes les otorga el marco jurídico vigente.
+2 Etapas del proceso de certificación de efectividad fiscal
+El proceso de certificación de la efectividad fiscal de los ingresos del Presupuesto de la República y sus Modificaciones se compone de las siguientes etapas:
+2.1 Inicio
+La solicitud de certificación de efectividad fiscal por parte del Ministerio de Hacienda o de la Asamblea Legislativa, según sea el caso, es el acto que inicia el proceso de certificación de la efectividad fiscal. Esta solicitud deberá venir acompañada del respectivo expediente, el cual deberá contener las estimaciones de ingresos realizadas por el solicitante, así como la documentación de respaldo y justificaciones técnicas relacionadas con dichas estimaciones.
+2.2 Análisis
+A efectos de valorar la razonabilidad y factibilidad de las estimaciones realizadas por el solicitante, la Contraloría General de la República recurrirá a métodos analíticos y estadísticos, como modelos de series temporales, rangos o intervalos estadísticos, análisis de tendencias y estacionalidades históricas, y expectativas de variables relevantes, entre otros; asimismo, podrá celebrar sesiones de trabajo con el solicitante o el equipo que éste designe, con el fin de obtener información adicional, evacuar dudas, compartir criterios técnicos o cualquier otra razón que resulte pertinente para el proceso, siempre limitado a la información disponible a ese momento.
+2.3 Producto
+El proceso de certificación de efectividad fiscal concluye con la emisión del dictamen sobre la razonabilidad y factibilidad de las estimaciones de ingresos realizadas por el solicitante, debidamente sustentado en el respectivo expediente.
+El producto final será una certificación sobre la razonabilidad y factibilidad de las estimaciones de ingresos realizadas por el solicitante, que suscribirá el Área de Fiscalización respectiva.
+3 Plazos
+Para el caso de solicitudes realizadas por el Poder Ejecutivo en cumplimiento al artículo 38 de la LAFRPP, el Ministerio de Hacienda deberá remitir a la Contraloría General la solicitud de certificación referida en el punto 2.1 con posterioridad a la publicación de la revisión del Programa Macroeconómico por parte del Banco Central de Costa Rica. La Contraloría General emitirá la Certificación de Efectividad Fiscal dentro de los doce días hábiles siguientes a la recepción de la referida solicitud.
+En los demás casos, ya sea para incrementar o disminuir las rentas esperadas, la certificación se emitirá dentro de los quince días hábiles posteriores a la recepción de la respectiva solicitud, plazo que se suspenderá cuando el Órgano Contralor determine que la información contenida en el expediente indicado en el punto 2.1, no resulta suficiente y pertinente para la emisión de la certificación solicitada, y se reanudará en el momento en que la Contraloría General disponga de la totalidad de la información y esta resulte conforme lo requerido para emitir la citada certificación.
+Rige a partir de su publicación. Publíquese.
