@@ -14,3 +14,4 @@ Restricción vehicular en horario nocturno para mitigar los efectos del Covid-19
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-03-24 | la propia norma |
+| 2 | 2020-03-27 | Decreto Ejecutivo 42270 (2020-03-27) |
