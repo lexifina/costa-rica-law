@@ -1,0 +1,2 @@
+Transitorio II.—Tratándose de instituciones, entidades, órganos u otros sujetos pasivos de la fiscalización de la Contraloría General de la República, que -por el sector al que pertenecenya han declarado, aprobado y divulgado un marco de gestión de las tecnologías de información y comunicación, establecido por sí misma o por un órgano supervisor, se tendría por cumplido el Transitorio I de la presente resolución.
+Rige a partir de su publicación. Publíquese.
