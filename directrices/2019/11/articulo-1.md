@@ -19,7 +19,8 @@ Con sustento en lo anterior, se emite la presente Directriz, al personal bajo la
 3.6 Por alguna otra causa no incluida en esta Directriz, para su estudio, deberá aportar el interesado o el profesional responsable, croquis y/o levantamiento topográfico de detalles, así como estudio de antecedentes catastrales registrales
 3.7 Se utilizará preferentemente cuando existan construcciones u edificaciones.
 En todos los casos anteriores, en el cuerpo del plano en trámite debe indicarse la nota “para uso unifamiliar”.
-4- Se analizarán casos especiales, para accesos por servidumbre de paso o agrícola para ASADAS u otros, para usos de acueductos rurales, siempre y cuando cuente, el documento en trámite, con declaratoria de interés público por parte del Concejo Municipal y el Decreto de Sequía N° 38642-MPMAG.
+4-Se analizarán casos especiales, para accesos por servidumbre de paso o agrícola para ASADAS u otros, para usos de acueductos rurales, siempre y cuando cuente, el documento en trámite, con declaratoria de interés público por parte del Concejo Municipal y el Decreto de Sequía N° 41852-MP-MAG.
+(Así reformado el punto anterior mediante directriz N° 0011-03-2020 y publicada en La Gaceta N° 63 del 28 de marzo del 2020)
 5- La Municipalidad de Nicoya, establece que no se ha de exigir el 10% del área de la finca madre:
 5.1 En el caso de fraccionamientos simples frente a camino público existente, entendidos estos como aquellos fraccionamientos en los cuales resulten no mas de diez (10) lotes, de área menor a 5000 m2 cada uno en una misma finca.
 5.2 En fraccionamientos de lotes de 5000 m2 de área o más

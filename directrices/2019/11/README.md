@@ -14,3 +14,4 @@ Establece que se emitirá visados municipales del artículo 33 y 34 de la Ley 42
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-06-05 | la propia norma |
+| 2 | 2020-03-28 | Directriz 11 (2020-03-28) |
