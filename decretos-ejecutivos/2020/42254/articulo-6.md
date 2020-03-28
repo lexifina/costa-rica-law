@@ -1,0 +1,1 @@
+Artículo 6.- De la competencia para sancionar las faltas. Corresponderá al Ministerio de Seguridad Pública, sancionar las faltas cometidas por sus Inspectores Institucionales de Tránsito, de conformidad con la normativa interna que rige la materia.
