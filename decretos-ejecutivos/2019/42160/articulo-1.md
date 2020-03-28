@@ -1,0 +1,24 @@
+N° 42160-S
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE SALUD
+En uso de las facultades que les confieren los artículos 140 incisos 3) y 18) y 146 de la Constitución Política; 25 inciso 1), 27 inciso 1), 28 inciso 2) acápite b) y 103 inciso 1) de la Ley Nº 6227 del 02 de mayo de 1978 “Ley General de la Administración Pública”; 1, 2 5 y 6 de la Ley Nº 5412 del 8 de noviembre de 1973 “Ley Orgánica del Ministerio de Salud” y los artículos 1 y 4 de la Ley Nº 8289 del 10 de julio del 2002 “Reforma de la Ley Orgánica del Ministerio de Salud, N° 5412, para el otorgamiento de personalidad jurídica instrumental al Instituto sobre Alcoholismo y Farmacodependencia”.
+Considerando:
+1º—Que de acuerdo con los artículos 5, 21 y siguientes de la Ley Nº 5412 del 8 de noviembre de 1973 “Ley Orgánica del Ministerio de Salud”, el Instituto sobre Alcoholismo y Farmacodependencia (IAFA) es un órgano adscrito al Ministerio de Salud, el cual tiene independencia en su funcionamiento administrativo y personalidad jurídica instrumental, teniendo a su cargo la dirección técnica, el estudio, la prevención, el tratamiento y la rehabilitación de la adicción al alcohol, al tabaco y a otras drogas lícitas o ilícitas, así como la coordinación y aprobación de todos los programas públicos y privados orientados a aquellos mismos fines, de conformidad con dicha ley.
+2º—Que resulta preciso y oportuno velar por la salud de las personas funcionarias del Instituto sobre Alcoholismo y Farmacodependencia, de una manera equitativa, en procura de un mejor desempeño en las labores que realizan, y al amparo del reconocimiento del derecho a la salud integral que tienen todas las personas.
+3º—Que toda acción que tome la Administración Pública para mejorar las condiciones de sus trabajadores, debe demostrar una verdadera mejoría y efectividad, y reflejar un verdadero costo beneficio tanto para el Estado como para los ciudadanos en general.
+4º—Que la Junta Directiva del Instituto sobre Alcoholismo y Farmacodependencia, en Sesión Ordinaria N° 33-18, mediante Acuerdos N° 4 y 5 ratificados en la Sesión Ordinaria N° 01-19, acordó modificar el Reglamento Autónomo de Servicio del IAFA, para que las personas funcionarias de la institución participen en un programa sostenido, sistemático de salud ocupacional, que los beneficie y eliminar las vacaciones psicoprofilácticas; ya que según los resultados del Informe de Evaluación de Riesgos, las personas funcionarias no presentan una verdadera mejoría a pesar de gozar de dichas vacaciones; así como por no reflejar un verdadero costo-beneficio.
+5º—Que según Acuerdo N° 8 Firme, tomado en Sesión Ordinaria Nº 10-19, celebrada el 28 de marzo de 2019, la Junta Directiva del IAFA, aprobó la reforma al Reglamento Autónomo de Servicio del IAFA, en aras de fortalecer el servicio público que ofrece la institución.
+6º—Que con fundamento en lo antes expuesto resulta evidente la necesidad de reformar el Decreto Ejecutivo Nº 36706–S del 31 de enero del 2011 “Reglamento Autónomo de Servicio del Instituto sobre Alcoholismo y Farmacodependencia, publicado en La Gaceta N° 187 del día 29 de setiembre del 2011.
+7º—Que en cumplimiento al artículo 13 inciso i) del Estatuto de Servicio Civil, la Licda. Irma Velásquez Yánez, Directora de la Asesoría Jurídica de la Dirección General de Servicio Civil, otorgó a la presente reforma el visto bueno mediante el oficio número AJOF- 2962019 del 1° de julio de 2019.
+8º—Que de conformidad con el artículo 12 bis del Decreto Ejecutivo N° 37045-MP-MEIC de 22 de febrero de 2012 “Reglamento a la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos” y sus reformas, se considera que por la naturaleza del presente reglamento no es necesario completar la Sección I denominada Control Previo de Mejora Regulatoria, que conforma el formulario de Evaluación Costo Beneficio, toda vez que el mismo no establece trámites ni requerimientos para el administrado. Por tanto,
+Decretan:
+REFORMA AL PÁRRAFO PRIMERO Y AL INCISO Ñ) DEL
+ARTÍCULO 21 Y ADICIÓN DEL INCISO Q) AL ARTÍCULO 15,
+DEL DECRETO EJECUTIVO N°36706-S, “REGLAMENTO
+AUTÓNOMO DE SERVICIO DEL INSTITUTO SOBRE
+ALCOHOLISMO Y FARMACODEPENDENCIA”
+Artículo 1º—Refórmese el párrafo primero y el inciso ñ) del artículo 21 del Decreto Ejecutivo Nº 36706–S del 31 de enero del 2011 “Reglamento Autónomo de Servicio del Instituto sobre Alcoholismo y Farmacodependencia”, publicado en La Gaceta N° 187 del día 29 de setiembre del 2011, para que de ahora en adelante se lea así:
+“Artículo 21.—Derechos de las personas funcionarias. Las personas funcionarias del Instituto tendrán derecho a:
+(…)
+ñ) Participar de las actividades del Plan de Salud Integral del Instituto y de cualquier otra actividad que la institución promueva en aras de la salud integral, el bienestar y la calidad de vida laboral de la persona funcionaria del IAFA en todos sus procesos.”
+(…).”
