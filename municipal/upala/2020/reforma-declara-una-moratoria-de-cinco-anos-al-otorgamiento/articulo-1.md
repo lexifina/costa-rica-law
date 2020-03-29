@@ -1,0 +1,5 @@
+MUNICIPALIDAD DE UPALA
+El Concejo Municipal por unanimidad, con dispensa del trámite de comisión, acuerda en definitiva y en firme, realiza ADENDA al acuerdo tomado en el acta N° 225-2020, Capítulo V, artículo 1, el cual textualmente contiene lo siguiente: El Concejo Municipal por unanimidad, con dispensa del trámite de comisión, acuerda en definitiva y en firme, dar por aprobada la siguiente moción, y a su vez, que se publique en el Diario Oficial La Gaceta.
+Moción, Considerando: con base en el artículo 44 y 45 del Código Municipal, y considerando que el próximo 09 de marzo del 2020, se vence la moratoria sobre la construcción de hidroeléctricas en nuestro cantón de Upala, ratificamos las razones por las que se tomó dicho acuerdo de moratoria.
+Por lo tanto: con el respaldo de distintos representantes de sectores de la sociedad, para que se prorrogue por 5 (cinco) años más a partir de su vencimiento.
+Por lo que, se agrega lo siguiente al acuerdo: La Moratoria aprobada fue el 13 de marzo de 2015, en sesión N° 06-2015, Capítulo V, artículo 1 y publicada en La Gaceta N° 47 del 09 de marzo del 2015, mediante solicitud N° 27926 .
