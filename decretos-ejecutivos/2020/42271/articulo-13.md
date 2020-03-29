@@ -1,0 +1,8 @@
+CAPÍTULO VI
+MORATORIA DE LA OBLIGACIÓN TRIBUTARIA ADUANERA EN LA IMPORTACIÓN DEFINITIVA DE
+MERCANCÍAS
+ARTÍCULO 13.- Potestad de los importadores de acogerse a la moratoria de la obligación tributaria aduanera al momento de nacionalizar la mercancía. Conforme al artículo 4 de la Ley N° 9830, podrán acogerse a la moratoria únicamente las personas físicas o jurídicas inscritas como contribuyentes en el Registro Único Tributario de la Dirección General de Tributación, condición que será verificada de forma automática por el sistema informático TICA (en adelante sistema informático), al momento de aceptación de la declaración aduanera.
+Para ello, al momento de transmitir cada Declaración Aduanera de Importación Definitiva autodeterminada en el sistema informático, el declarante deberá manifestar expresamente si se acoge al beneficio de la moratoria.
+De igual manera, con dicha manifestación se entiende que la Administración está autorizada para que, ante la falta de pago conforme al artículo 19 del presente Reglamento, las deudas sean trasladadas a cobro judicial.
+En caso de acogerse a la moratoria, el sistema informático no realizará el cobro de la obligación tributaria aduanera de cada una de las declaraciones en esa condición, transmitidas durante los meses de abril, mayo y junio del año 2020, debiéndose realizar dicho pago de conformidad con el procedimiento especial desarrollado al efecto por medio de una resolución de alcance general que emita la Dirección General de Aduanas.
+En caso de no acogerse, el sistema informático realizará el cobro de la obligación tributaria aduanera, conforme al procedimiento de importación definitiva vigente, establecido en la Ley General de Aduanas.

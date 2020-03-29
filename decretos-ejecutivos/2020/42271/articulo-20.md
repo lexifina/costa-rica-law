@@ -1,0 +1,1 @@
+Artículo 20.- Revocación del beneficio de la moratoria. De conformidad con la Ley General de Aduanas, de existir indicios de la comisión de una infracción administrativa o un delito, la autoridad aduanera revocará el beneficio otorgado al importador, con las consecuencias legales correspondientes.

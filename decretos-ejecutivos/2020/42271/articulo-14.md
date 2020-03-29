@@ -1,0 +1,1 @@
+ARTÍCULO 14.- Excepción a la moratoria. Se excluyen del beneficio de la moratoria los productos agrícolas y pecuarios clasificados del capítulo 1 al 24 del Sistema Arancelario Centroamericano y se mantendrán los mecanismos establecidos en la normativa nacional, ante un posible desabasto.

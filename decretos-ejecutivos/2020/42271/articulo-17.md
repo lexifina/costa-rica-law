@@ -1,0 +1,2 @@
+ARTÍCULO 17.- Pago. El monto total por concepto de las obligaciones tributarias aduaneras no cobradas al importador asociadas a las declaraciones transmitidas desde el 01 de abril al 30 de junio de 2020, deberán ser canceladas a más tardar el 31 de diciembre de 2020.
+Cada uno de los pagos que se efectúen deberán realizarse de modo que contemplen el pago total del monto correspondiente a una o varias declaraciones aduaneras, de manera que al 31 de diciembre de 2020, se encuentre cancelada la totalidad adeudada por el importador en virtud del beneficio otorgado.
