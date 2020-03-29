@@ -14,3 +14,4 @@ Declara una moratoria de cinco años al otorgamiento de permisos, autorizaciones
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-03-09 | la propia norma |
+| 2 | 2020-03-29 | Reglamento municipal 0 (2020-03-29) |

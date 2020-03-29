@@ -31,4 +31,6 @@ A partir de lo anterior, en aplicación del principio precautorio en materia amb
 La Presidencia; una vez discutida la moción la somete a votación obteniendo el siguiente resultado; la Regidora Campos Cruz, los Regidores Barrantes Alvarado, Carrillo Alfaro y Segura Torres, votan positivamente su aprobación, la Regidora Espinoza Chavarría, manifiesta que su voto es nulo por cuando estaba a favor de que la moción primero se sometiera al trámite de comisión.
 Por lo tanto y de acuerdo al resultado de la votación el Concejo Municipal acuerda en firme la aprobación de dicha moción, misma que acuerda dispensarla del trámite de comisión.
 Se autoriza al Alcalde Municipal publicarla en el diario oficial La Gaceta.
+(Nota de Sinalevi: La Municipalidad de Upala mediante acta N° 225-2020, acordó lo siguiente: “Considerando: con base en el artículo 44 y 45 del Código Municipal, y considerando que el próximo 09 de marzo del 2020, se vence la moratoria sobre la construcción de hidroeléctricas en nuestro cantón de Upala, ratificamos las razones por las que se tomó dicho acuerdo de moratoria.
+Por lo tanto: con el respaldo de distintos representantes de sectores de la sociedad, para que se prorrogue por 5 (cinco) años más a partir de su vencimiento.”)
 Rige a partir de su publicación.
