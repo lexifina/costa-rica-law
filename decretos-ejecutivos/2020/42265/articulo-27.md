@@ -1,0 +1,1 @@
+Artículo 27.- La Tesorería Nacional verificará que todas las entidades públicas bajo el ámbito de la Autoridad Presupuestaria cumplan con lo ordenado en el artículo anterior, asimismo en caso de incumplimiento, deberá informar al Ministro de Hacienda.

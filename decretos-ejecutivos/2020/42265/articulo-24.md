@@ -1,0 +1,1 @@
+Artículo 24.-Los órganos desconcentrados de las entidades descentralizadas deberán incorporar en el presupuesto ordinario los recursos provenientes de superávit acumulado, asignándolos en los gastos donde la normativa lo permita, con el objetivo de lograr un uso eficiente de dichos recursos y se disminuya la dependencia de los recursos de Gobierno Central.

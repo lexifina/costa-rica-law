@@ -1,0 +1,1 @@
+Artículo 29.- Las entidades públicas bajo el ámbito de la Autoridad Presupuestaria solo podrán tener cuentas en Caja Única del Estado, salvo autorización legal en contrario. La Tesorería Nacional con previa solicitud y justificación de la respectiva entidad, autorizará el uso de cuentas corrientes en la banca estatal, únicamente para garantías, cajas chicas y recaudación.

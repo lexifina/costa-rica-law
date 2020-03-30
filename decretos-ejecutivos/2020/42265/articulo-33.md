@@ -1,0 +1,1 @@
+Artículo 33.-Los ministerios, entidades públicas y órganos desconcentrados deberán valorar en coordinación con el MH el esquema en la estructuración de los proyectos de inversión que mejor convenga para el financiamiento y gestión, explorando la posibilidad de aplicación de esquemas de asociación público privadas entre otros, de acuerdo con el ordenamiento jurídico vigente.

@@ -1,0 +1,1 @@
+Artículo 35.-Todo incremento en el costo de los proyectos de inversión pública, asociado a un mal cálculo y no a una extensión o modificación del proyecto deberá ser asumido por el ministerio, institución o entidad que lo presupuesta.

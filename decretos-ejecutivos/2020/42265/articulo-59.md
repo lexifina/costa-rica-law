@@ -1,0 +1,1 @@
+Artículo 59.-No se permitirán las reasignaciones de puestos ocupados en propiedad y vacantes, para las entidades públicas, ministerios y órganos desconcentrados. Con excepción de aquellas reasignaciones que sean descendentes.

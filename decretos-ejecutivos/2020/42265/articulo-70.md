@@ -1,0 +1,1 @@
+Artículo 70.-La STAP, cuando corresponda, divulgará en la página electrónica del MH, los requisitos o trámites que deben cumplir las entidades públicas, ministerios u órganos desconcentrados, para que sus gestiones o solicitudes sean atendidas.

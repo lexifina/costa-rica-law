@@ -1,0 +1,4 @@
+Artículo 10.-Para las entidades públicas financieras no bancarias, el gasto presupuestario máximo del 2021, se establecerá con base en la proyección de ingresos totales 2021 (corrientes, capital y financiamiento), definida por dichas entidades públicas en coordinación con la STAP.
+Para el cálculo de los ingresos se utilizará como insumo la serie histórica del periodo 2016- 2019, así como la estimación de ingresos para los años 2020-2021.
+La proyección de ingresos debe ser remitida a la STAP, a más tardar los primeros cinco días hábiles del mes de abril del 2020.
+Los montos del gasto presupuestario máximo resultantes, serán comunicados por la STAP a más tardar el 30 de abril del 2020.
