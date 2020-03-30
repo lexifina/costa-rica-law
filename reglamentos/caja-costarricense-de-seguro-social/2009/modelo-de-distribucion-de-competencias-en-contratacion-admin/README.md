@@ -14,3 +14,4 @@ Modelo de distribución de competencias en contratación administrativa y facult
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-04-27 | la propia norma |
+| 2 | 2020-03-30 | Reglamento 9089 (2020-03-30) |
