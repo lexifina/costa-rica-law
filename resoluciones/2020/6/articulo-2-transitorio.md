@@ -1,0 +1,2 @@
+Transitorio segundo.—Las personas jurídicas que deban presentar una declaración extraordinaria o realizar correcciones de conformidad con lo dispuesto en los artículos 6, 9 y 10 de esta resolución, ya sea por cambios extraordinarios o correcciones con posterioridad al período de declaración 2019 (setiembre 2019 a marzo 2020) y antes de la declaración anual de setiembre 2020, por esta única vez, presentarán dichos cambios en la declaración anual que se debe presentar en el mes de setiembre de 2020.
+Publíquese.

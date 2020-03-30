@@ -1,0 +1,1 @@
+Artículo 7º—Orden de presentación de las declaraciones ordinarias. En virtud de que la obligación de la declaración ordinaria es anual, las declaraciones deben presentarse en orden ascendente; es decir, en caso de tener declaraciones pendientes, se deben presentar desde el período más antiguo hasta el actual.
