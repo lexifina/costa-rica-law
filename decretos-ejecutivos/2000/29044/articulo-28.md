@@ -1,2 +1,2 @@
-Artículo 28.— La Dirección Nacional de Empleo, determinará el plazo perentorio en el cual otorgará el subsidio temporal de empleo a los beneficiarios, considerando en cada caso, la naturaleza y la magnitud del desastre y las posibilidades de reinserción al mercado laboral de los beneficiarios.
-(Así adicionado por el artículo 1° del decreto ejecutivo N° 35028 de 16 de enero del 2009.)
+Artículo 28.- La Dirección Nacional de Empleo podrá otorgar el subsidio hasta por tres meses prorrogables hasta por dos periodos iguales, mientras se mantengan las circunstancias que motivaron el subsidio y se tenga disponibilidad de recursos.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 42272 del 30 de marzo del 2020)
