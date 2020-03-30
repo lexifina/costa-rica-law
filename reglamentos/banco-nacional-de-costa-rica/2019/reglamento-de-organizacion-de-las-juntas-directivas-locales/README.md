@@ -14,3 +14,4 @@ Reglamento de organización de las juntas directivas locales del BNCR
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-07-30 | la propia norma |
+| 2 | 2020-03-30 | Reglamento 12449 (2020-03-30) |
