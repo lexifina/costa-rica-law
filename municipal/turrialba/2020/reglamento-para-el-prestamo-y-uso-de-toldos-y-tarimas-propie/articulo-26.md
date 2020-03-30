@@ -1,0 +1,1 @@
+Artículo 26.—Devolución. Una vez terminado el contrato, el prestatario tendrá que devolver los bienes municipales dados en préstamo, en el término, lugar y forma convenidos, lo cual verificará el encargado de Servicios Municipales y remitirá copia de recibido a Proveeduría.

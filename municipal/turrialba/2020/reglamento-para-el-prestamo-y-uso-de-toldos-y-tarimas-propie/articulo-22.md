@@ -1,0 +1,1 @@
+Artículo 22.—Daños y perjuicios. En caso de verificar daños o desperfectos en el bien o bienes, la persona lo recibirá y dejará constancia y se ejecutará el cobro respectivo, a fin de proceder a su arreglo, composición o, si se trata de la pérdida o rotura de una pieza o elemento, para su compra.

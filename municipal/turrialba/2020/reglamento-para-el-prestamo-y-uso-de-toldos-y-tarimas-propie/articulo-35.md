@@ -1,0 +1,1 @@
+Artículo 35.—Reserva municipal. La Municipalidad se reserva el derecho de rechazar las solicitudes de préstamo de bienes municipales, así como de limitar la cantidad, duración y los lugares donde se utilizarán dichos bienes, por razones de oportunidad y conveniencia.

@@ -1,0 +1,1 @@
+Artículo 21.—De la resolución. La Municipalidad se reserva el derecho de rescindir el contrato y retirar todos los bienes prestados, previo aviso a los prestatarios, cuando se requiera atender asuntos Municipales urgentes generados por caso fortuito o fuerza mayor.

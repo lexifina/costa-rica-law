@@ -1,0 +1,1 @@
+Artículo 11.—Veto. La gestión de préstamo de bienes municipales podrá ser rechazada por la Alcaldía, cuando no cumpla con los requisitos establecidos en este reglamento, cuando su préstamo suponga menoscabo o interferencia con la labor Municipal, incluidas actividades programadas por la institución, o por razones de oportunidad y conveniencia de acuerdo con la ley.

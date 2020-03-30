@@ -1,0 +1,1 @@
+Artículo 33.—Documentos de respaldo. Toda actividad relacionada con el uso, préstamo, control y mantenimiento de bienes municipales deberá poseer documentación idónea que la respalde y justifique, que señalen su origen, naturaleza, objetivo y resultados obtenidos, así como también las autorizaciones necesarias cuando corresponda.
