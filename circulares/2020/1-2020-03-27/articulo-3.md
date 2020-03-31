@@ -1,0 +1,1 @@
+Artículo 3º—Conservación de documentos originales. Los auxiliares de la función pública aduanera, importadores, exportadores y, en general, los usuarios de los servicios de inspección y control a cargo del SENASA y el SFE, según corresponda legal y reglamentariamente, deberán conservar la documentación original una vez que la reciban.
