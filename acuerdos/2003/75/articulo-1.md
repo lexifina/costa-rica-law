@@ -802,13 +802,16 @@ t. Reporte de Servicios de Intermediación de Valores. Anexo 62.”
 j. Se elimina el Reporte de Clasificación de riesgo de los clientes Normativa Ley 8204 (Anexo 49)”)
 (Nota de Sinalevi: Mediante el artículo 1° del acuerdo N° SGV-A-237 del 28 de noviembre de 2019, se acordó reformar la presente norma, de la siguiente forma: “Artículo 1. Adiciones
 a Se agregan las siguientes cuentas al Estado de Situación Financiera de Fondos de Inversión, Sociedades Calificadoras y Proveedores de Precios:
-[imagen]
 b Se modifica el nombre de las siguientes cuentas:
-[imagen]
 c Se eliminan las siguientes cuentas:
-[imagen]
 Anexo 15 EF Fondos.xls Anexo 31 Suficiencia Patrimonial.xls
 Anexo 59 EF Sociedades Calificadoras y Proveedores.xls”)
+(Nota de Sinalevi: Mediante el acuerdo SGV-A-239 del 1 de marzo del 2020, se acordó adicionar el transitorio VI al presente acuerdo, el texto de dicho transitorio es el siguiente: “Transitorio VI. Se modifica en forma extraordinaria el plazo de entrega de la información que se detalla en el siguiente cuadro, para las fechas de corte comprendidas entre el 31 de marzo y el 31 de mayo del 2020:
+[imagen]
+[imagen]
+[imagen]
+Para los informes antes detallados, a partir de la información con fecha de corte 1ero de junio 2020 y en adelante, se reanudará el envío de dicha información de acuerdo con los plazos ordinarios establecidos en el “Cuadro de Información Periódica”, que se indica en el artículo 2 del acuerdo SGV-A-75.
+La información del Reporte Diario de los Fondos de inversión, para los días 6 al 8 de abril del 2020, deberá ser remitida a más tardar el día 13 de abril del 2020 a las 12 m.d.”)
 SGV-A-75.—Superintendencia General de Valores. Despacho del Superintendente. A las catorce horas del veinticuatro de abril del dos mil tres.
 Considerando:
 I. Que mediante artículo 13 del Acta de la Sesión 81 -99. celebrada el 18 de marzo de 1999. el Consejo Nacional de Supervisión del Sistema Financiero aprobó el Reglamento sobre el Suministro de Información Periódica, Hechos Relevantes y otras Obligaciones de Información con lineamientos sobre los deberes de comunicación de los diferentes participantes en el mercado de valores.
