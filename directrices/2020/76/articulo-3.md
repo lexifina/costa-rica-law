@@ -1,0 +1,1 @@
+Artículo 3º .- Las medidas promovidas en el artículo 1º de la presente Directriz, en ningún caso se entenderán como la suspensión de la obligación de pago del servicio ni la condonación de las deudas que tengan los usuarios con los prestatarios del suministro de agua potable.
