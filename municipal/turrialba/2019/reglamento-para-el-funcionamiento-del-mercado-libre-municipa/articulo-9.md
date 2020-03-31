@@ -1,0 +1,1 @@
+Artículo 9º—La Junta Administradora nombra entre sus miembros: Presidente, Vicepresidente, Secretario, 2 vocales y un Fiscal, quienes son ad honorem, por un periodo de dos años y pueden ser reelectos una única vez. El fiscal según la normativa vigente no tiene voz ni voto.

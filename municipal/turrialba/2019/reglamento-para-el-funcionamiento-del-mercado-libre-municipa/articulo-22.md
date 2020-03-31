@@ -1,0 +1,1 @@
+Artículo 22.—En caso de que a un agro productor o artesano le sea suspendido su permiso, su espacio no puede ser ocupado por él ni por persona interpuesta hasta tanto no se obtenga el permiso nuevamente para participar en el mercado libre municipal. La persona que ocupa el espacio lo hará en forma provisional, mientras dure la sanción y no podrá adquirir derecho alguno.

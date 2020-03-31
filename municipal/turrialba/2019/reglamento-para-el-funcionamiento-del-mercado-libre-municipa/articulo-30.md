@@ -1,0 +1,1 @@
+Artículo 30.—Si el vendedor abandona su espacio asignado por un plazo de tres semanas consecutivas o alternas, sin justificación alguna, el puesto del mismo quedará a disposición de la Junta Administradora.

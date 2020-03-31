@@ -1,0 +1,1 @@
+Artículo 2º—El Mercado Libre Municipal no persigue ninguna finalidad lucrativa para la Municipalidad de Turrialba, únicamente los gastos operativos para su correcto funcionamiento que puedan derivarse.

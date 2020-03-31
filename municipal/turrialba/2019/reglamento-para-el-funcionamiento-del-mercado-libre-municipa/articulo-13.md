@@ -1,0 +1,1 @@
+Artículo 13.—Está prohibido al inspector del mercado recibir dádivas, productos agrícolas o cualquier otro tipo de beneficio, la violación del presente capítulo por parte del inspector del mercado, le hará acreedor de las sanciones administrativas correspondientes y la respectiva denuncia penal en caso de ser necesario.

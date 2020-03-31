@@ -1,0 +1,1 @@
+Artículo 5º—El Mercado Libre Municipal funciona iniciando el día viernes de 5:00 a.m. hasta las 5:00 p.m., y sábado de 6:00 a.m., hasta las 4:00 p.m., salvo en casos de excepción (días feriados) en que se habilitarán días diferentes.

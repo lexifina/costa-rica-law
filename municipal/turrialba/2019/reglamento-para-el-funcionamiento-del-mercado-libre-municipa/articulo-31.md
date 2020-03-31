@@ -1,0 +1,1 @@
+Artículo 31.—Los vendedores deben evitar la presencia de menores de cinco años en su espacio. En caso de la permanencia de los mismos, queda bajo responsabilidad y supervisión del vendedor. Eximiendo a la Municipalidad, Junta Administradora y inspector del mercado, de los daños que el menor pueda causarles a terceros o, asimismo.

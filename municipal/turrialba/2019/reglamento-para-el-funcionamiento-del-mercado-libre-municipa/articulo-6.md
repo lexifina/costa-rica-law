@@ -1,0 +1,1 @@
+Artículo 6º—Sin excepción todo productor debe terminar sus actividades de venta los sábados a las 4:00 p.m. La violación del horario establecido faculta a la Junta Administradora para aplicar las sanciones correspondientes establecidas en el capítulo VII, artículo 20, siguientes y concordantes del presente reglamento.

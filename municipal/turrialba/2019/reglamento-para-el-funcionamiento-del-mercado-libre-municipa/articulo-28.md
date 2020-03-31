@@ -1,0 +1,1 @@
+Artículo 28.—Por las características del bien público, ningún vendedor puede alegar derechos adquiridos sobre el mismo, quedando la Junta Administradora facultada para suspender, revocar o reubicar los puestos cuando lo considere conveniente.

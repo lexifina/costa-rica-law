@@ -1,0 +1,3 @@
+CAPÍTULO II
+Administración del mercado libre municipal
+Artículo 7º—La Administración del Mercado Libre Municipal está delegada a una Junta Administradora y un inspector del mercado. La Junta Administradora está compuesta de 6 miembros: 2 representantes de los productores elegidos en Asamblea, 2 representantes del Concejo Municipal designados por este órgano, 2 representantes de los consumidores elegidos en Asamblea de Consumidores y sus respectivos suplentes, quienes podrán asistir a las sesiones con derecho a voz, pero sin voto. Siempre respetando la equidad de género. La Junta Administradora debe reunirse al menos dos días al mes ordinariamente y de manera extraordinaria las que requieran.
