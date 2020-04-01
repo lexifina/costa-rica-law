@@ -1,3 +1,6 @@
-Artículo 10.—Reclamos.
-De conformidad con lo indicado en el artículo 631 del Código de Comercio, todo reclamo sobre transacciones realizadas o registradas en una cuenta corriente deberá ser interpuesto por la persona cuentacorrentista ante el Banco, en forma escrita y dentro de los sesenta días naturales posteriores a la fecha de envío del estado de su cuenta corriente.
-Transcurrido ese plazo, se entenderá para todos los efectos que la clientela tiene por reconocida la cuenta y aceptado el saldo deudor o acreedor de ella.
+**Artículo 10.—Pago de intereses. El cálculo de intereses se realiza en forma diaria, sobre el saldo disponible al final del día, a partir de los saldos mínimos establecidos según cada tipo de producto. El período de cálculo corresponde al mes calendario (del último día del mes anterior, hasta el penúltimo día del mes presente), el pago de los intereses se realiza el último día del mes. Existen dos metodologías para el cálculo de intereses, el Banco definirá la metodología de cálculo de intereses para cada tipo de producto.
+Metodologías de cálculo:
+Por BANDAS distribuye el saldo en los diferentes rangos establecidos, el cual permite pagar la tasa de interés definida para el rango en el cual se encuentra el tracto respectivo del saldo de la cuenta.
+Por NIVEL reconoce la tasa de interés de acuerdo con el nivel que se encuentra el saldo total de la cuenta.
+La Gerencia General Corporativa reconocerá una tasa de interés que en ningún caso será superior a la tasa de ahorro a plazo a 18 meses. Asimismo, podrá modificar la metodología de la forma de cálculo de la tasa de interés y la tasa de interés como tal en cualquier momento, previo aviso a los ahorrantes.
+(Así reformado mediante sesión N° 5722 del 1° de abril del 2020)
