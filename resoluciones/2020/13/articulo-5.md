@@ -1,0 +1,1 @@
+Artículo 5º—Se deja sin vigencia la resolución DGH-054- 2019 y DGA-230-2019 de la Dirección General de Hacienda y de la Dirección General de Aduanas del Ministerio de Hacienda, San José, de las nueve horas del día 06 de setiembre de dos mil diecinueve, publicada en La Gaceta N° 177 del jueves 19 de setiembre del 2019.
