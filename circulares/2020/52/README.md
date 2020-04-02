@@ -15,3 +15,4 @@ Suspende las actividades presenciales y que no sean teletrabajables a partir del
 | 1 | 2020-03-20 | la propia norma |
 | 2 | 2020-03-22 | Circular 53 (2020-03-22) |
 | 3 | 2020-03-28 | Circular 58 (2020-03-28) |
+| 4 | 2020-04-02 | Circular 63 (2020-04-02) |
