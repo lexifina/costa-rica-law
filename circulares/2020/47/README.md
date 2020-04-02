@@ -13,3 +13,4 @@ Disposiciones adoptadas por la Corte Plena en atención a la declaratoria de eme
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-03-16 | la propia norma |
+| 2 | 2020-04-02 | Circular 63 (2020-04-02) |

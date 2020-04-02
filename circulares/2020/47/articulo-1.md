@@ -1,4 +1,5 @@
 CIRCULAR No. 47-2020
+(Nota de Sinalevi: Mediante sesión N° 18-2020 del 2 de abril del 2020 y publicada en el Boletín Judical N° 69 del 13 de abril del 2020, mediante circular N° 63 del 2 de abril del 2020, se acordó prorrogar la vigencia de la presente norma hasta el 20 de abril del 2020)
 ASUNTO: Disposiciones adoptadas por la Corte Plena en atención a la declaratoria de emergencia nacional, debido a la situación de emergencia sanitaria provocada por la enfermedad COVID-19.
 A LOS DESPACHOS JUDICIALES DE PAÍS, ABOGADOS,
 ABOGADAS Y PÚBLICO EN GENERAL
