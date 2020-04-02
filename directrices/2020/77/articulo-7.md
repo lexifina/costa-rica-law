@@ -1,1 +1,2 @@
-Artículo 7°.-Se invita al Poder Judicial, Poder Legislativo, Tribunal Supremo de Elecciones, municipalidades y universidades públicas, a la aplicación de las medidas de prevención contempladas en la presente Directriz.
+Artículo 7°.- Las medidas señaladas en la presente Directriz serán revisadas de manera bisemanal y podrán ser actualizadas por MIDEPLAN y la Comisión Nacional de Emergencias, según los lineamientos sanitarios del Ministerio de Salud y el comportamiento epidemiológico del COVID-19.
+(Así modificada su numeración por el artículo 1° de la directriz N° 78 del 2 de abril del 2020, que lo traspaso del antiguo artículo 6 al 7)

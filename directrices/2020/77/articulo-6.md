@@ -1,1 +1,2 @@
-Artículo 6°.- Las medidas señaladas en la presente Directriz serán revisadas de manera bisemanal y podrán ser actualizadas por MIDEPLAN y la Comisión Nacional de Emergencias, según los lineamientos sanitarios del Ministerio de Salud y el comportamiento epidemiológico del COVID-19.
+Artículo 6°.- Se exceptúa de la presente directriz los servicios que prestan aquellas instituciones necesarias para la atención de la emergencia nacional por COVID-19, quienes para esos efectos podrán requerir de la cantidad de personas servidoras que sean necesarias.
+(Así modificada su numeración por el artículo 1° de la directriz N° 78 del 2 de abril del 2020, que lo traspaso del antiguo artículo 5 al 6)
