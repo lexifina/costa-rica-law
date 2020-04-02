@@ -19,3 +19,4 @@ Reglamento de organización y funcionamiento de la junta directiva de la Junta d
 | 4 | 2019-06-17 | Reglamento 34 (2019-06-17) |
 | 5 | 2020-01-16 | Reglamento 3 (2020-01-16) |
 | 6 | 2020-01-27 | Reglamento 6 (2020-01-27) |
+| 7 | 2020-04-02 | Reglamento 20 (2020-04-02) |
