@@ -1,0 +1,1 @@
+Artículo 21 -De la vigencia del permiso de vertidos. El permiso de vertidos tendrá una vigencia hasta de diez años, pudiendo solicitarlo nuevamente por períodos iguales, previa presentación de la solicitud correspondiente y siempre que se cumpla con lo estipulado en este Reglamento.

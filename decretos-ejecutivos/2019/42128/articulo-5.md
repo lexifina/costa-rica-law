@@ -1,0 +1,1 @@
+Artículo 5 - El fundamento del canon. El fundamento del canon lo constituye, el uso de los cuerpos de agua para verter en ellos sustancias nocivas que de algún modo alteren y generen daños en su calidad, al ambiente o a la sociedad.

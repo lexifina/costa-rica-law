@@ -1,0 +1,1 @@
+Artículo 32 - Derogatorias. Deróguese el Reglamento del Canon Ambiental por Vertidos, Decreto Ejecutivo Nº 34431-MINAE-S, del 04 de marzo de 2008, publicado en La Gaceta N° 74 del 17 de abril del 2008.

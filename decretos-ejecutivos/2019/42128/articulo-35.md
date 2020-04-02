@@ -1,0 +1,1 @@
+Artículo 35 - Directriz de inversión. El MINAE, procederá en el plazo de tres meses posteriores a la promulgación del presente Decreto, a elaborar la Directriz para la inversión de los fondos provenientes del Canon Ambiental por Vertidos conforme a este Reglamento.

@@ -1,0 +1,3 @@
+Artículo 19 - Cuerpos de agua aptos para la descarga de aguas residuales. Se podrán otorgar permisos de vertido en los cuerpos receptores definidos en este Reglamento.
+No se otorgará permisos de vertidos en cuerpos de agua ubicados en las Áreas Silvestres Protegidas con categoría de manejo de Parques Nacionales o Reservas Biológicas.
+En caso de que el vertido se solicite en un cuerpo de agua que se encuentre dentro de otras categorías de manejo de las áreas silvestres protegidas, se dará audiencia al SINAC para que en un plazo de 1 O días naturales se pronuncie sobre la viabilidad de otorgar el permiso.

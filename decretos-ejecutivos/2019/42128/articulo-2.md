@@ -1,0 +1,1 @@
+Artículo 2 -Ámbito de aplicación. Están sometidas al presente Reglamento todas las personas físicas o jurídicas, públicas o privadas, que utilicen los cuerpos de agua para introducir, transportar y eliminar vertidos, que puedan provocar modificaciones en la calidad física, química o biológica del agua.

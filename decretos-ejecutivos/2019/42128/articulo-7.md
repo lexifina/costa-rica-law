@@ -1,0 +1,2 @@
+Artículo 7 - La base para el cobro del canon. El canon se cobrará sobre la carga contaminante neta vertida, medida en kilogramos, de los parámetros de contaminación denominados "Demanda Química de Oxígeno" (DQO) y "Sólidos Suspendidos Totales" (SST). Para efectos de lo dispuesto en este artículo y considerando el parámetro DQO, el cobro se realizará tomando la DQO soluble.
+Previa consulta con los sectores interesados, y mediante justificación técnica y científica, por medio de Decreto Ejecutivo se podrá en el futuro extender el cobro a otros parámetros de contaminación.

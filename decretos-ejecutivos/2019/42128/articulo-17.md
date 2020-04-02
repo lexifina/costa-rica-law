@@ -1,0 +1,1 @@
+Artículo 17 - De la fijación de los límites permisibles de vertido de sustancias contaminantes. La fijación de los límites máximos permisibles de vertidos de sustancias contaminantes, se regirá por lo dispuesto en el Reglamento que regula el vertido y uso de aguas residuales Nº 33601 del 9 de agosto de 2006, reglamento que regula la materia de vertido y reuso de aguas residuales.
