@@ -1,0 +1,2 @@
+TRANSITORIO III.- Durante los días viernes 3 de abril al martes 7 de abril de 2020, inclusive, la regulación horaria de la restricción vehicular nocturna establecida en el artículo 3° del presente Decreto Ejecutivo será en el período comprendido entre las 17:00 horas y las 05:00 horas; en esa franja horaria no se permitirá el tránsito vehicular en todo el territorio nacional, salvo las excepciones contempladas en el artículo 4° del presente Decreto Ejecutivo.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 42283 del 2 de abril del 2020)
