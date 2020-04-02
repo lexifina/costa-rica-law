@@ -1,0 +1,1 @@
+Artículo 7º.- Colaboración interinstitucional. Se insta a la Administración Pública Central y Descentralizada para que, en el marco de sus competencias y dentro de sus posibilidades, contribuyan con recursos humanos y económicos u otras alternativas de colaboración y cooperación para la realización de las acciones que se ejecuten en el marco del presente Decreto Ejecutivo.
