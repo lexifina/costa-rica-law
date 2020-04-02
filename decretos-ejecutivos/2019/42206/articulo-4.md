@@ -1,0 +1,1 @@
+Artículo 4. Vinculación del Consejo de Atención Integral (CAi) en la REDCUDI. La participación de un representante de la Secretaría Técnica de la REDCUDI en el Consejo de Atención Integral está regulada en el artículo 8 inciso c) de la Ley Nº 8017, así reformado por el artículo 23 de la Ley Nº 9220.

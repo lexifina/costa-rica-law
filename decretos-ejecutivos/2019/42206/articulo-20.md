@@ -1,0 +1,13 @@
+Artículo 20. Funciones de la Dirección Ejecutiva de la Secretaría Técnica de la REDCUDI. Le corresponderá al Director Ejecutivo de la REDCUDI cumplir con las siguientes funciones:
+a) Representar a la REDCUDI por delegación del Ministro o Ministra que el gobierno haya designado para coordinar el sector social o en su defecto, por la Presidencia Ejecutiva del IMAS.
+b) Garantizar la ejecución de las funciones asignadas a la Secretaría Técnica de la REDCUDI.
+c) Presentar informes ante las autoridades superiores sobre las labores o proyectos desarrollados por la Secretaría Técnica y la Comisión Técnica lnterinstitucional.
+d) Preparar propuestas técnicas que promuevan el trabajo en red y la articulación de la REDCUDI, el alcance de la universalidad y el cumplimiento de sus objetivos en consulta con la Comisión Técnica lnterinstitucional, para ser presentadas ante la Comisión Consultiva para su
+aprobación.
+e) Identificar, mediante los diferentes espacios de articulación interinstitucional e intersectorial, las fortalezas y necesidades de las Alternativas de Cuidado y Desarrollo Infantil de la REDCUDI, con el fin de diseñar estrategias tendientes a potenciar sus capacidades, compartir buenas prácticas y promover la cooperación entre unas y otras, para lo cual se podrá contar con asistencia técnica internacional.
+f) Dirigir el proceso de planificación estratégica de la REDCUDI asociado a la Secretaría Técnica y a la Comisión Técnica lnterinstitucional, su seguimiento, programación y conducción del proceso de elaboración del Marco Conceptual, Operativo y Organizacional, cuando proceda.
+g) Promover y dar seguimiento a la implementación de los acuerdos emanados de la Comisión Consultiva y de la Comisión Técnica 1 nterinstitucional.
+h) Propiciar espacios de diálogo y construcción de propuestas en el seno de los órganos que constituyen la REDCUDI, que conduzcan a la universalización progresiva de servicios de cuidado y desarrollo infantil de calidad, la corresponsabilidad social de los cuidados, la trazabilidad entre la inserción y permanencia en el mercado laboral y educativo y el acceso a Alternativas de Cuidado y Desarrollo Infantil sin ningún tipo de discriminación.
+i) Preparar propuestas de reforma a la normativa de la REDCUDI para el mejor alcance de sus objetivos.
+j) Dar seguimiento a las contrataciones de bienes y serv1c1os para la Secretaría Técnica de la REDCUDI, de conformidad con el presupuesto asignado.
+k) Realizar, en razón de las funciones consignadas en la Ley Nº 9220, cualquier otra tarea o función que le encomiende el Ministro o Ministra que el gobierno haya designado para coordinar el sector social del país, o en su defecto, el IMAS.

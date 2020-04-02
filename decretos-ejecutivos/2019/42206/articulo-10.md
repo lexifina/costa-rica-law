@@ -1,0 +1,6 @@
+Artículo 10. Ejecución de las funciones de la Comisión Consultiva como órgano de Coordinación Superior. Para dar cumplimiento a las funciones atribuidas en el artículo 8 de la Ley Nº 9220, la Comisión Consultiva deberá:
+a) Discutir acerca del estado de situación de los serv1c1os de cuidado y desarrollo infantil en el país y proponer políticas públicas para mejorarlo, para lo cual podrá delegar en la Secretaría Técnica y en la Comisión Técnica lnterinstitucional la elaboración de las propuestas técnicas corres pond ie ntes.
+b) Analizar y aprobar las propuestas de políticas, lineamientos estratégicos e instrumentos técnicos interinstitucionales e intersectoriales propuestos por la Secretaría Técnica de la REDCUDI y la Comisión Técnica lnterinstitucional, que impulsen el cumplimiento de los fines de la REDCUDI.
+c) Gestionar la elaboración de decretos ejecutivos para dotar de carácter vinculante a las políticas y los lineamientos estratégicos que apruebe.
+d) Discutir y aprobar propuestas de mejora al marco jurídico relativo al cuidado y el desarrollo infantil y gestionar su aprobación ante la Asamblea Legislativa.
+e) Apoyar la labor de la Secretaría Técnica de la REDCUDI para consolidar su funcionamiento y la implementación de las políticas sobre cuidado y desarrollo integral para la población objeto de la Ley Nº 9220.

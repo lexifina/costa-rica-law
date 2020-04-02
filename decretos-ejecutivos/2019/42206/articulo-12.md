@@ -1,0 +1,7 @@
+Artículo 12. Funciones de la Comisión Técnica lnterinstitucional de la REDCUDI. Para cumplir con sus objetivos la Comisión Técnica lnterinstitucional de la REDCUDI tendrá las siguientes funciones:
+a) Proponer a la Comisión Consultiva políticas, lineamientos, programas y acciones pertinentes para el adecuado funcionamiento y desarrollo de la REDCUDI, previo a la realización de discusiones de carácter técnico para su construcción.
+b) Analizar los diagnósticos y otros estudios relevantes sobre el ámbito del cuidado y desarrollo infantil, que brinden pautas para el diseño de políticas, lineamientos, programas y acciones pertinentes para el adecuado funcionamiento y desarrollo de la REDCUDI.
+c) Elaborar un plan de trabajo anual, y monitorear y evaluar su cumplimiento.
+El plan deberá integrar las acciones de todas las instituciones participantes vinculadas con el alcance de la Ley N º 9220 y a su vez estas deberán integrarlas en su planificación interna.
+d) Asesorar a la Secretaría Técnica y a la Comisión Consultiva en cuanto a los enfoques y aspectos técnicos de las políticas y lineamientos estratégicos que analice.
+e) Elaborar de manera participativa los instrumentos técnicos que se consideren necesarios para brindar un mejor servicio de cuidado y desarrollo infantil, con el fin de que sean implementados por las distintas Alternativas de Atención. Uno de estos instrumentos serán los estándares esenciales de calidad.
