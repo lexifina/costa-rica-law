@@ -1,0 +1,10 @@
+N° 65-2020
+ASUNTO: Recomendaciones para la atención en el Centro de Atención a Personas con Enfermedad Mental en Conflicto con la Ley (CAPEMCOL).
+A LOS DESPACHOS JUDICIALES DEL PAÍS
+SE LES HACE SABER QUE:
+El Consejo Superior del Poder Judicial en sesión N° 32-2020 celebrada el 2 de abril de 2020, artículo LXXVIII, dispuso hacer de conocimiento de los despachos judiciales del país, las siguientes recomendaciones propuestas por profesionales del Centro de Atención a Personas con Enfermedad Mental en Conflicto con la Ley como medidas de prevención en consideración a la pandemia declarada por la Organización Mundial de la Salud del COVID-19 que afecta el país, Decreto Ejecutivo 42227-MP-S Poder Ejecutivo, la alerta amarilla nacional decretada por la Comisión Nacional de Prevención de Riesgo y Atención de Emergencias, la Declaratoria de Emergencia Institucional GA-CAED-0118-2020 y en resguardo de la salud de las personas trabajadoras y usuarios de la Institución, y bajo la conciencia de virus COVID-19, remitidas por el doctor Christian Elizondo Salazar, Director General interino del Hospital Nacional Psiquiátrico, que dicen:
+• El usuario participará por medio de videoconferencia, y no deberá trasladarse fuera de CAPEMCOL. El servicio de videoconferencia, se utilizará como un medio alternativo a las visitas presenciales de la Defensa Pública, y se coordinará previamente con CAPEMCOL al teléfono 2296-1262 (Directo Asesoría Legal) o a la central 22903884, ext. 106.
+• Cuando se realice un cambio de medida de traslado de CAPEMCOL a Centro de Atención Institucional, hacer el traslado directamente desde la sede judicial en la que se llevó a cabo la audiencia, ya que desde CAPEMCOL se puede remitir la documentación de egreso por fax al 2290-3851, y/o correo electrónico: capemcoljuridico@gmail.com y así se evita la movilización social del usuario.
+• Si alguna persona usuaria requerida para diligencia judicial tiene síntomas respiratorios u otras condiciones de salud, se le informará a la Autoridad Judicial que por este motivo no está en condiciones de asistir.
+Publíquese por una única vez en el Boletín Judicial.
+San José, 3 de abril del 2020.
