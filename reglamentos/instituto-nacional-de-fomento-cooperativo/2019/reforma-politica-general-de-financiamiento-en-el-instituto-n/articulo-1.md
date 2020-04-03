@@ -1,5 +1,7 @@
+(Derogado)
 INSTITUTO NACIONAL
 DE FOMENTO COOPERATIVO
+(Esta norma fue derogada por la Política General de Financiamiento en el Instituto Nacional de Fomento Cooperativo aprobada mediante sesión N° 4131 del 3 de abril del 2020)
 MODIFICACIÓN
 El INFOCOOP comunica que la Junta Interventora en sesión N° 121, artículo tercero, inciso 5.1 celebrada el 27 de junio del 2019, acuerda eliminar toda referencia de la Tasa de Equilibrio institucional de la Política de Crédito y del Reglamento de Crédito del INFOCOOP, en consecuencia, se aprueba las siguientes modificaciones:
 POLÍTICA GENERAL DE FINANCIAMIENTO EN EL
