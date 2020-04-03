@@ -41,6 +41,8 @@ k) Centros de la red de cuido y desarrollo infantil.
 l) Centros de atención de personas en condición de vulnerabilidad.
 m) Establecimientos de alquiler de vehículos “rent a car” únicamente para efectos de brindar servicios de asistencia a los vehículos ya alquilados, así como la recepción de todos los vehículos que sean devueltos.
 n) Todos aquellos otros establecimientos con permiso sanitario de funcionamiento que no brinden atención al público presencial.
+o) Los estacionamientos o parqueos, únicamente a efectos de brindar dicho servicio al personal o personas usuarias de los servicios de salud.
+(Así adicionado el inciso anterior por resolución N° MS-DM-2593-2020 del 3 de abril del 2020)
 En el caso de los hoteles, únicamente podrán mantenerse abiertos aquellos que brinden hospedaje a:
 a) Turistas extranjeros que ya se encuentren en el país.
 b) Tripulaciones de vuelos o casos de servicios especiales.
