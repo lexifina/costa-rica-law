@@ -1,0 +1,1 @@
+Artículo 8. Derogatorias.- La emisión de la presente Resolución deroga el texto y todos los efectos de la Resolución MS-DM-2382-2020/MEP-0537-2020 de las catorce horas con diez minutos del día dieciséis de marzo del dos mil veinte y cualquier otra disposición de igual o menor rango, que se le oponga.
