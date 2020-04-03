@@ -1,1 +1,0 @@
-Artículo 4.- Actividades de apoyo pedagógico a distancia. El director o directora del centro educativo podrá solicitar al personal docente de la institución, realizar actividades de apoyo pedagógico a distancia para sus estudiantes, de conformidad con las recomendaciones y lineamientos que emita el Viceministerio Académico del Ministerio de Educación.
