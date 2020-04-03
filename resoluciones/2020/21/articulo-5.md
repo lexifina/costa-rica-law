@@ -1,0 +1,1 @@
+Artículo 5°—Uso y destino: Los bienes incluidos en los Decretos Ejecutivos N° 41824-H-MAG, que cuentan con beneficio fiscal a través de una autorización genérica o concreta de conformidad con las disposiciones de ésta resolución, deben ser de USO exclusivo de productores agropecuarios registrados ante el MAG.
