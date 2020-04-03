@@ -29,16 +29,25 @@ SEGUNDO: Se resuelve ordenar el cierre temporal de todos los establecimientos co
 Se exceptúan de la disposición del párrafo anterior:
 a) Los servicios a domicilio.
 b) Las instituciones que por la naturaleza de sus funciones deben permanecer abiertas como los servicios de migración, aduanas, fitosanitario del Estado, puestos fronterizos terrestres, marítimos y aéreos, entre otros.
-c) Los establecimientos de salud públicos y privados (clínicas, farmacias, hospitales, laboratorios, consultorios, servicios de radiodiagnósticos, servicios de emergencias, entre otros), así como las clínicas veterinarias.
-d) Supermercardos, abastecedores, panaderías, carnicerías, verdulerías y pulperías.
-e) Establecimientos de venta de insumos agropecuarios, con una reducción de su capacidad máxima de ocupación normal al cincuenta por ciento (50%).
+c) Los establecimientos de salud públicos y privados (clínicas, farmacias, hospitales, laboratorios, consultorios, servicios de radiodiagnósticos, servicios de emergencias, ópticas, entre otros), así como las macrobióticas y clínicas veterinarias.
+d) Supermercados, abastecedores, panaderías, carnicerías, verdulerías y pulperías.
+e) Establecimiento de venta de insumos agropecuarios, veterinarios y alimentos para animales, con una reducción de su capacidad máxima de ocupación normal al cincuenta por ciento (50%).
 f) Establecimientos de suministros de higiene, con una reducción de su capacidad máxima de ocupación normal al cincuenta por ciento (50%).
-g) Servicios bancarios púbicos o privados, con una reducción de su capacidad máxima de ocupación normal al cincuenta por ciento (50%).
-h) Funerarias y/o capillas de velación, con una reducción de su capacidad máxima de ocupación normal al cincuenta por ciento (50%).
-i) Establecimientos públicos y privados donde hay comercialización de productos agricolas, pecuarios, pesca y acuicultura, tales como ferias y mercados, con una reducción de su capacidad máxima de ocupación normal al cincuenta por ciento (50%).
-j) Los centros de la red de cuido y desarrollo infantil.
-k) Centros de atención de personas en condición de vulnerabilidad.
-l) Todos aquellos otros establecimientos con permiso sanitario de funcionamiento que no brinden atención al público presencial.
+g) Servicios bancarios y financieros púbicos o privados, con una reducción de su capacidad máxima de ocupación normal al cincuenta por ciento (50%).
+h) Servicio de suministro y abastecimiento de combustibles.
+i) Funerarias y/o capillas de velación, con una reducción de su capacidad máxima de ocupación normal al cincuenta por ciento (50%).
+j) Establecimientos públicos y privados donde hay comercialización de productos agrícolas, pecuarios, pesca y acuicultura, tales como ferias y mercados, con una reducción de su capacidad máxima de ocupación normal al cincuenta por ciento (50%).
+k) Centros de la red de cuido y desarrollo infantil.
+l) Centros de atención de personas en condición de vulnerabilidad.
+m) Establecimientos de alquiler de vehículos “rent a car” únicamente para efectos de brindar servicios de asistencia a los vehículos ya alquilados, así como la recepción de todos los vehículos que sean devueltos.
+n) Todos aquellos otros establecimientos con permiso sanitario de funcionamiento que no brinden atención al público presencial.
+En el caso de los hoteles, únicamente podrán mantenerse abiertos aquellos que brinden hospedaje a:
+a) Turistas extranjeros que ya se encuentren en el país.
+b) Tripulaciones de vuelos o casos de servicios especiales.
+c) Turistas de largas estadías o que residan en el hotel.
+d) Brinden servicios a la Administración Pública para la atención de la crisis por emergencia nacional COVID-19.
+e) Brinden servicios a embajadas.
+(Así reformada la disposición segunda anterior por resolución DM-RM-0865-2020 del 2 de abril del 2020)
 TERCERO: Se instruye a las autoridades de salud, tanto del Ministerio de Salud como de los Cuerpos Policiales del país cuya condición les ha sido delegada, para que giren Orden Sanitaria a aquellos establecimientos que incumplan con la presente disposición, ordenando la clausura inmediata de dichos establecimientos y la tramitación del cobro de las multas resultantes según corresponda.
 CUARTO: La presente medida de carácter sanitaria rige a partir del viernes 03 de abril de 2020 a las 5:00 pm y hasta el domingo 12 de abril a las 11:59 pm.
 COMUNÍQUESE:
