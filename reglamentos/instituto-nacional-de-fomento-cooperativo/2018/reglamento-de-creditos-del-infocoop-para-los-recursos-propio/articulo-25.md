@@ -1,4 +1,0 @@
-Artículo No. 25: Limites de Financiamiento. En el interés de ajustarse a las buenas prácticas de un manejo de los riesgos involucrados, el nivel de riesgo aceptado por el Instituto y una adecuada distribución de los Recursos Financieros orientados al Crédito, el monto total acumulado máximo de los financiamientos por Organismo Cooperativo con el INFOCOOP no deberá sobrepasar 11 veces el Capital Social del ente Cooperativo, el 10% del Patrimonio del INFOCOOP, ni el 20% del Presupuesto anual de colocaciones.
-Las obligaciones con otras entidades financieras y/o comerciales, se considerarán para establecer su Capacidad de Endeudamiento, pero serán valoradas para determinar su Capacidad de Pago.
-La Capacidad de Pago se indicará a la hora de recomendar dicho Crédito.
-(Así reformado en sesiones N° 082 y 086 del 6 y 27 de setiembre de 2018)
