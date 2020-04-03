@@ -1,1 +1,0 @@
-Artículo 48.—De la diligencia profesional. El abogado debe cumplir en forma pronta y eficaz con todos los trámites que el cobro judicial requiere, efectuando todas las acciones necesarias para lograr al menor tiempo posible, la recuperación de la deuda.

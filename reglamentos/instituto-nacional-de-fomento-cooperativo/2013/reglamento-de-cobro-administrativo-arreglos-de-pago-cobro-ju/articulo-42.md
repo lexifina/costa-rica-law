@@ -1,2 +1,0 @@
-Artículo 42.—Constancia técnica en imposibilidad de cobro. En el evento de que se dé la imposibilidad de cobro de la obligación, el abogado encargado del proceso de cobro deberá dejar constancia escrita sobre las razones, y adjuntar los documentos que respalden este criterio técnico.
-Tratándose de una obligación que se encuentre en proceso judicial, se deberá adicionar la constancia del abogado encargado, y los documentos de respaldo que correspondan.

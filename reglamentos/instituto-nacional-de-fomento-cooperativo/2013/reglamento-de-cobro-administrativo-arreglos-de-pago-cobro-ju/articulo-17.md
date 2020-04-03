@@ -1,3 +1,0 @@
-CAPÍTULO II
-Proceso de ejecución de los fideicomisos de garantía
-Artículo 17.—De la ejecución de los fideicomisos de garantía.Le corresponde al Área de Financiamiento, ejercer el control, seguimiento y autorización a los fiduciarios respectivos, para dar inicio a los procesos de ejecución de los fideicomisos de garantía que mantenga el INFOCOOP, en caso de incumplimiento por parte de las cooperativas. En todo caso, dicha dependencia deberá solicitar las autorizaciones que correspondan, informar y emitir recomendaciones a la Dirección Ejecutiva sobre las situaciones que se presenten en estos procesos y que así estime conveniente.

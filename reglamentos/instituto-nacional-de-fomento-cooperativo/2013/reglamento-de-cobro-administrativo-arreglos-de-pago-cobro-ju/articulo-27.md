@@ -1,1 +1,0 @@
-Artículo 27.—De la persecución de otros bienes. Cuando se compruebe que los bienes están sumamente deteriorados o que la garantía se ha extinguido, el Abogado encargado del cobro informará por escrito sobre la posibilidad de perseguir otros bienes, de conformidad con el procedimiento establecido en la Ley de Cobro Judicial y el Código Procesal Civil de Costa Rica.

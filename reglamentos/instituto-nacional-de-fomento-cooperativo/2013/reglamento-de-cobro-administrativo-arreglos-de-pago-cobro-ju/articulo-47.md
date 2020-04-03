@@ -1,1 +1,0 @@
-Artículo 47.—De la asesoría profesional. El abogado encargado del proceso de cobro deberá brindar asesoría oportuna al INFOCOOP con respecto a los asuntos bajo su dirección, sugerir alternativas mejores, o manifestar oportunamente y por escrito al Área de Financiamiento si considera inconveniente o riesgosa alguna instrucción que se le gire.
