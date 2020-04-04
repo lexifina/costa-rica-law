@@ -1,0 +1,23 @@
+N° 78-S-MTSS-MIDEPLAN
+EL PRESIDENTE DE LA REPÚBLICA,
+EL MINISTRO DE SALUD, LA MINISTRA DE TRABAJO Y SEGURIDAD SOCIAL, LA MINISTRA
+DE PLANIFICACIÓN NACIONAL Y POLÍTICA ECONÓMICA
+Con fundamento en las atribuciones que les confieren los artículos 21, 50, 140 incisos 8), 18) y 20), así́ como el ordinal 146 de la Constitución Política; los artículos 25, 28 párrafo 2), inciso b), 99, 100, 107, 113 incisos 2) y 3) de la Ley General de la Administración Publica, Ley número 6227 de 2 de mayo de 1978; el artículo 156 del Código de Trabajo, Ley número 2 del 27 de agosto de 1943; el artículo 46 de la Ley de Fortalecimiento de las Finanzas Públicas, Ley número 9635 del 03 de diciembre de 2018; y,
+CONSIDERANDO:
+I. Que mediante la Directriz N° 077-S-MTSS-MIDEPLAN del 25 de marzo de 2020, se dispuso a la Administración Pública Central y se instó a la Administración Pública Descentralizada, a establecer un plan de servicio básico de funcionamiento, de manera que se garantice la continuidad de aquellas tareas estrictamente necesarias para asegurar el fin público institucional.
+II. Que mediante resolución número MS-DM-2382-2020 / MEP-0537-2020 del 16 de marzo de 2020, se estableció el cierre de todos los centros educativos a nivel nacional, como acción inmediata para disminuir la propagación del COVID-19 en los centros educativos. Asimismo, se dispuso garantizar la continuidad de los servicios de vigilancia y limpieza de dichos lugares, así como del servicio de comedores estudiantiles.
+III. Que dada la naturaleza particular de los servicios educativos, regulados por disposiciones especiales, según el artículo 78 de la Constitución Política, el artículo 25 inciso 7 del Convenio Centroamericano sobre Unificación Básica de la Educación, el artículo 2 de la Convención de los Derechos del Niño, los artículos 4 y 5 del Código de la Niñez y la Adolescencia, el artículo 213 del Código de Educación y artículo 176 del Estatuto del Servicio Civil, requiere de disposiciones técnicas de organización, diferenciadas del resto de la Administración Pública, por lo que le corresponde a su jerarca determinar mediante resolución razonada, las medidas adicionales necesarias para evitar el riesgo de contagio minimizando la cantidad de personas prestando servicios presencialmente y garantizando simultáneamente la continuidad del servicio público de educación.
+IV. Qué asimismo, se requiere disponer de medidas especiales durante la semana del 06 al 12 de abril, que abarca la Semana Santa, respecto al funcionamiento de las instituciones públicas. En razón de lo anterior, resulta necesario actualizar la Directriz N° 077-S-MTSS-MIDEPLAN del 25 de marzo de 2020.
+Por tanto, emiten la siguiente
+DIRECTRIZ
+REFORMA A LA DIRECTRIZ NÚMERO 077-S-MTSS-MIDEPLAN DEL 25 DE MARZO DE 2020,
+SOBRE EL FUNCIONAMIENTO DE LAS INSTITUCIONES ESTATALES DURANTE LA
+DECLARATORIA DE EMERGENCIA NACIONAL POR COVID-19
+Artículo 1°.- Adiciónese un párrafo final al artículo 2, un nuevo artículo 4 y adecúese la numeración de la Directriz N° 077-S-MTSS-MIDEPLAN del 25 de marzo de 2020, de manera que el actual artículo 4° se enumere como artículo 5° y así sucesivamente, para que en adelante se lean:
+“Artículo 2°.-
+(…)
+El Ministerio de Educación Pública, mediante resolución administrativa motivada, deberá establecer las medidas correspondientes por implementar en dicho Ministerio, minimizando la cantidad de personas funcionarias que prestan servicios presencialmente y garantizando a la vez, la continuidad del servicio público.”
+“Artículo 4.- Del 06 al 08 de abril de 2020, se deberá suspender todo servicio de atención al público y las instituciones estatales deberán funcionar, según lo establecido en el artículo 1 de la presente directriz, exclusivamente mediante la modalidad de teletrabajo. El resto de servidores cuyos puestos no sean teletrabajables, deberá aplicárseles lo dispuesto en los incisos b) y c) del artículo 3 de la presente directriz. De conformidad con lo establecido en el artículo 148 del Código de Trabajo, se otorgarán como días feriados el 09 y 10 de abril del 2020, correspondientes al Jueves y Viernes Santos.
+Quedan excluidos de la presente disposición los servicios que prestan aquellas instituciones necesarias para la atención de la emergencia nacional por COVID- 19.
+El Ministerio de Educación Pública dispondrá las medidas correspondientes mediante resolución interna respecto a la Semana Santa.
+Se insta al Poder Judicial, Poder Legislativo, Tribunal Supremo de Elecciones, municipalidades y universidades públicas, a la aplicación de las medidas de prevención contempladas en este artículo”
