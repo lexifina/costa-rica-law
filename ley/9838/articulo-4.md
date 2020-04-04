@@ -1,0 +1,4 @@
+ARTÍCULO 4- Se adiciona el inciso k) al artículo 151 de la sección II Retiro de circulación, inmovilización por retiro de placas de matrícula y devolución de vehículos, del capítulo IV Registro de conductores y propietarios, sanciones y multas respectivas, del título V Prohibiciones y sanciones, de la Ley 9078, Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial, de 4 de octubre de 2012. El texto es el siguiente:
+Artículo 151- Inmovilización del vehículo por retiro de placas
+[...]
+k) Cuando el vehículo sea conducido en las vías públicas durante los días, las horas y/o en las áreas o zonas cuyo tránsito haya sido restringido por emergencia nacional decretada. Para este caso, únicamente aplicará el retiro de las placas y el vehículo deberá ser trasladado por el propietario o por el conductor responsable, si así procede.
