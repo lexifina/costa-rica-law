@@ -1,6 +1,6 @@
 # Ley General de Salud
 
-Ley N° 5395 del 1973-10-30. SINALEVI, ficha 6581: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=6581&param2=119668&param3=1>.
+Ley N° 5395 del 1973-10-30. SINALEVI, ficha 6581: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=6581&param2=120018&param3=1>.
 
 Publicada en La Gaceta N° 222 del 1973-11-24.
 
@@ -18,3 +18,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 8 de 19 | 2014-04-25 | Ley 9234 | 2014-04-22 |
 | 9 de 19 | 2018-05-17 | Ley 9532 | 2018-04-26 |
 | 10 de 19 | 2020-03-17 | Ley 9824 | 2020-03-03 |
+| 11 de 19 | 2020-04-04 | Ley 9837 | 2020-04-03 |
