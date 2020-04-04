@@ -1,0 +1,2 @@
+TRANSITORIO XXIV- El dinero recogido por las multas establecidas en el inciso dd) del artículo 145, en el marco de la emergencia nacional por la pandemia de COVID-19 declarada por el Gobierno, se usará para financiar ayudas a personas afectadas económicamente por dicha emergencia. Esta disposición tendrá efectos desde que se decrete la emergencia nacional hasta el levantamiento de esta.
+(Así adicionado por el artículo 5° de la ley Establece la restricción vehicular en casos de emergencia nacional previamente decretada, N° 9838 del 3 de abril del 2020)

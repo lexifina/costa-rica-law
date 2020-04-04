@@ -93,6 +93,7 @@ articulo-92.md
 articulo-93.md
 articulo-94.md
 articulo-95.md
+articulo-95-bis.md
 articulo-96.md
 articulo-97.md
 articulo-98.md
@@ -275,3 +276,4 @@ articulo-20-transitorio.md
 articulo-21-transitorio.md
 articulo-22-transitorio.md
 articulo-23-transitorio.md
+articulo-24-transitorio.md
