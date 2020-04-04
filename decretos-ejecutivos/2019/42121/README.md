@@ -14,3 +14,4 @@ Autoriza un aumento general al salario base de todas las categorías del sector 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-01-01 | la propia norma |
+| 2 | 2020-04-04 | Decreto Ejecutivo 42286 (2020-04-04) |

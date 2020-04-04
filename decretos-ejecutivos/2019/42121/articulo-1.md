@@ -1,4 +1,6 @@
+(Suspendida)
 N° 42121-MTSS-H-MIDEPLAN
+(Mediante el artículo 1° del decreto ejecutivo N° 42286 del 4 de abril del 2020, se suspende la aplicación del aumento general al salario base de los servidores del Gobierno Central para el año 2020, señalado en el presente decreto ejecutivo)
 EL SEGUNDO VICEPRESIDENTE EN EJERCICIO DE LA PRESIDENCIA DE LA
 REPÚBLICA, LA MINISTRA DE TRABAJO Y SEGURIDAD SOCIAL,
 EL MINISTRO DE HACIENDA, Y LA MINISTRA DE PLANIFICACION
