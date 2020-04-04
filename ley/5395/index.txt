@@ -378,6 +378,7 @@ articulo-375.md
 articulo-376.md
 articulo-377.md
 articulo-378.md
+articulo-378-bis.md
 articulo-379.md
 articulo-380.md
 articulo-381.md
