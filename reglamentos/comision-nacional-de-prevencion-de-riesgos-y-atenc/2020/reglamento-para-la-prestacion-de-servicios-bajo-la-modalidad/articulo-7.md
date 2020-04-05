@@ -1,0 +1,7 @@
+Artículo 7º—Sobre el Equipo Institucional de Teletrabajo de la CNE. Es el equipo responsable de planificar, coordinar, y desarrollar acciones para la planificación del Teletrabajo en la Institución, así como establecer la normativa y procedimientos requeridos para ello. Le corresponde asesorar a los superiores inmediatos para la adecuada aplicación, planificación y desarrollo del sistema de Teletrabajo. Asimismo, dicho equipo será la instancia institucional que servirá de enlace con el Equipo de Coordinación Técnica de Teletrabajo del Ministerio de Trabajo y Seguridad Social. En el ejercicio de sus funciones deberá:
+a. Determinar en conjunto con las jefaturas las actividades teletrabajables de la CNE.
+b. Mantener actualizados los reglamentos y formularios para asegurar la correcta aplicación de esta modalidad de trabajo a nivel institucional y capacitar a las áreas involucradas sobre el tema.
+c. Administrar la información referente a todos los teletrabajadores en la Institución y coordinar con las áreas involucradas las acciones necesarias para el buen desarrollo de esta modalidad.
+d. Atender las solicitudes internas y externas de información, orientación y asesoría sobre el sistema de teletrabajo en la CNE.
+e. Brindar informes periódicos a la Presidencia sobre el desarrollo del sistema de teletrabajo.
+f. Colaborar en la definición, seguimiento y cumplimiento de las metas que permitan evaluar la productividad de los teletrabajadores.
