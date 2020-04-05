@@ -1,0 +1,1 @@
+Artículo 22.—Contra la resolución de JDG que rechace la Certificación de Actualización Profesional en Diseño Eléctrico de Edificios de un miembro agremiado al CFIA cabrá el recurso de reconsideración, el cual deberá interponerse dentro del plazo de diez (10) días hábiles, contados a partir del día hábil siguiente a su comunicación.

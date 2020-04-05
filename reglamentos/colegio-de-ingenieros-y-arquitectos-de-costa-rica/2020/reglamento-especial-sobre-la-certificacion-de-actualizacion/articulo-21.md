@@ -1,0 +1,1 @@
+Artículo 21.—La JDG emitirá un acuerdo donde le comunicará al profesional, si se aprueba o rechaza solicitud de la Certificación de Actualización Profesional en Diseño Eléctrico de Edificios. El comunicado de dicho acuerdo le será notificado al profesional a los medios electrónicos que tenga registrados ante el Departamento de Registro y Documentación del CFIA.

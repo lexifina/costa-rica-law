@@ -1,0 +1,1 @@
+Artículo 24.—La Certificación de Actualización Profesional en Diseño Eléctrico de Edificios tendrá una vigencia de cinco años, contados a partir de la fecha del acuerdo de JDG de aprobación de la solicitud para optar por el CAPDEE.

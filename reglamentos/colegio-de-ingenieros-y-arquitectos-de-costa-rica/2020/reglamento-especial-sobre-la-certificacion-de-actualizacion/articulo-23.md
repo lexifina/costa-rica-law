@@ -1,0 +1,1 @@
+Artículo 23.—El CFIA emitirá un documento de certificado con consecutivo único de CAPDEE a aquellos profesionales que hayan obtenido la certificación por aprobación de la JDG, el cual comprobará que ostentan la acreditación e indicará su periodo de vigencia.

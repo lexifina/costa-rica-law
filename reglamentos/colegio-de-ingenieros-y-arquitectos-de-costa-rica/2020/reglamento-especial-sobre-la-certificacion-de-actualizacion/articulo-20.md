@@ -1,0 +1,1 @@
+Artículo 20.—La documentación presentada por el solicitante para optar por la Certificación de Actualización Profesional en Diseño Eléctrico de Edificios será revisada y analizada por la COMCAP, para posteriormente elevar su recomendación sobre los resultados de las solicitudes a la JDG.

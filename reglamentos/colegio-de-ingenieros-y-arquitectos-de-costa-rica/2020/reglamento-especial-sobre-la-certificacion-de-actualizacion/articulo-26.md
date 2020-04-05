@@ -1,0 +1,5 @@
+Artículo 26.—El profesional que tenga su Certificación de Actualización Profesional próximo a vencer, deberá solicitar la renovación para mantener esa condición. Para tales efectos deberá cumplir los siguientes requisitos:
+a) Estar habilitado para el ejercicio profesional.
+b) Estar al día con sus obligaciones ante el CFIA.
+c) Acreditar que ha participado activamente en labores de: diseño, inspección, Dirección de Obra, Responsabilidad de la ejecución de la construcción (REC) y/o verificación, de instalaciones eléctricas y de telecomunicaciones de proyectos eléctricos en edificios o plantas de producción con capacidades en transformadores mayor a 50 KVA, que la suma de la carga total, al menos sea de 300 KVA, durante cinco años. Se deberá presentar experiencia comprobada.
+d) Acreditar 75 horas lectivas durante los cinco años de vigencia del CAPDEE en capacitaciones formal de aprovechamiento avalados por la COMCAP, en los temas que se darán a conocer por el sitio web del CFIA o por los medios que al efecto establezca la JDG.

@@ -1,0 +1,1 @@
+Artículo 30.—Vigencia y derogatoria. El presente Reglamento empieza a regir a partir de su publicación en el Diario Oficial La Gaceta. Asimismo, deroga toda la normativa interna anterior a la promulgación que se le oponga.

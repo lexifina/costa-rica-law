@@ -1,0 +1,1 @@
+Artículo 4º—Declaración de principios. La Certificación de Actualización Profesional en Diseño Eléctrico de Edificios del CFIA se adhiere a los siguientes principios: respeto, equidad, transparencia, ética profesional y responsabilidad social, mismos que deben regir todas las actuaciones individuales y colectivas sin detrimento de lo dispuesto por el Código de Ética del CFIA.
