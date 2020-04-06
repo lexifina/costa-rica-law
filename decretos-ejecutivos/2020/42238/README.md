@@ -15,3 +15,4 @@ Medidas sanitarias en materia migratoria para prevenir los efectos del COVID-19
 | --- | --- | --- |
 | 1 | 2020-03-18 | la propia norma |
 | 2 | 2020-03-25 | Decreto Ejecutivo 42256 (2020-03-25) |
+| 3 | 2020-04-06 | Decreto Ejecutivo 42287 (2020-04-06) |
