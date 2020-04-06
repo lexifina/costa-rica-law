@@ -14,3 +14,4 @@ Autoriza al Departamento de Gestión de Exenciones conceder autorización de exe
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-07-16 | la propia norma |
+| 2 | 2020-04-06 | Resolución 23 (2020-04-06) |
