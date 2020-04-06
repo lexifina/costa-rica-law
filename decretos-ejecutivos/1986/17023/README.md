@@ -15,3 +15,4 @@ Declara Zona Protectora Tivives
 | --- | --- | --- |
 | 1 | 1986-06-02 | la propia norma |
 | 2 | 1998-10-13 | Ley 7575 |
+| 3 | 2020-04-06 | Decreto Ejecutivo 42404 (2020-04-06) |
