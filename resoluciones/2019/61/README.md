@@ -14,3 +14,4 @@ Revisión de exención de solicitudes genéricas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-11-04 | la propia norma |
+| 2 | 2020-04-06 | Resolución 23 (2020-04-06) |

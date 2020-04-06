@@ -1,4 +1,5 @@
 DIRECCIÓN GENERAL DE HACIENDA
+(Esta norma fue dejada sin efecto parcialmente por el artículo 6° de la resolución N° RES-DGH-023-2020 del 6 de abril del 2020 “Solicitud de exención genérica de las juntas de educación o administrativas de las instituciones públicas de enseñanza del Ministerio de Educación Pública (MEP)”)
 RES-DGH-061-2019.—Dirección General de Hacienda, a las once horas con cuarenta minutos del diecisiete de octubre del dos mil diecinueve.
 Considerando:
 I.—Que el artículo 5° de la Ley Nº 3022 de fecha 27 de agosto de 1962, denominada “Crea Dirección General de Hacienda en el Ministerio de Hacienda”, establece que el Ministro de Hacienda, el Director General de Hacienda u otro funcionario de esa Dirección, escogido por aquéllos, son los funcionarios facultados para autorizar, bajo su responsabilidad, las exenciones de impuestos debiendo, en cada caso, señalar la ley en que se ampare dicha petición.
