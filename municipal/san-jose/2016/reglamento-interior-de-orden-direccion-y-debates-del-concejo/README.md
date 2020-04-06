@@ -14,3 +14,4 @@ Reglamento Interior de Orden, Dirección y Debates del Concejo Municipal del Can
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-05-19 | la propia norma |
+| 2 | 2020-04-06 | Reglamento municipal 206 (2020-04-06) |
