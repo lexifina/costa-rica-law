@@ -14,3 +14,4 @@ Ampliación de las medidas sanitarias en materia migratoria para prevenir los ef
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-03-25 | la propia norma |
+| 2 | 2020-04-06 | Decreto Ejecutivo 42287 (2020-04-06) |
