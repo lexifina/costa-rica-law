@@ -1,2 +1,1 @@
-Artículo 200.-A los aeródromos de servicio privado o particular se les considerará como de utilidad pública cuando el Consejo Técnico de Aviación Civil, así lo declare y sea aceptado por sus propietarios.
-Cuando la conveniencia de los servicios prestados por los aeródromos privados o particulares sea determinante para ser administrados por el Estado, serán expropiados de acuerdo a lo establecido por las leyes, mediante el trámite que establezca el Departamento de Asuntos Legales del Ministerio de Obras Públicas y Transportes.
+Artículo 200.-(Derogado por el artículo 3° del decreto ejecutivo N° 42395 del 7 de abril del 2020, que aprobó el Reglamento para el Diseño y Construcción de Aeródromos, Volumen l, denominado RAC-14)

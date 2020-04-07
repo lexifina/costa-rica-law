@@ -1,1 +1,1 @@
-Artículo 120.-Las luces de obstáculos de los vehículos y otros objetos susceptibles de movimiento cuyo señalamiento se prescribe en el artículo 98, deberán ser luces de destellos, de color rojo o preferiblemente amarillo de 40 candelas de luz roja o amarilla.
+Artículo 120.- (Derogado por el artículo 3° del decreto ejecutivo N° 42395 del 7 de abril del 2020, que aprobó el Reglamento para el Diseño y Construcción de Aeródromos, Volumen l, denominado RAC-14)

@@ -1,2 +1,1 @@
-Artículo 118.-Cuando la parte superior del obstáculo se encuentra a más de 45 m., sobre el terreno circundante, se colocarán dos luces intermedias por cada 45 m., adicionales o fracción de esta cantidad. Estas luces intermedias se espaciarán tan uniformemente como sea posible entre la luz superior y el nivel del terreno.
-Nota: En las áreas con muchas edificaciones, puede usarse la elevación media de la parte más alta de los edificios como equivalente al nivel del terreno.
+Artículo 118.- (Derogado por el artículo 3° del decreto ejecutivo N° 42395 del 7 de abril del 2020, que aprobó el Reglamento para el Diseño y Construcción de Aeródromos, Volumen l, denominado RAC-14)

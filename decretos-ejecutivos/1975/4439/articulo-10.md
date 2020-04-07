@@ -1,3 +1,4 @@
-Elevación de los Umbrales de Pista
-Artículo 10.-La autoridad competente señalará las elevaciones de los umbrales de todas las pistas por instrumentos.
-Las elevaciones del umbral serán redondeadas al metro o pie más próximo.
+Aeródromos Internacionales
+Artículo 10.- Aeródromos internacional son los que el Poder Ejecutivo designe con ese carácter para que sirvan de puntos de entrada y salida del país.
+(Así reformado por el artículo 5° del decreto ejecutivo N°42395 del 7 de abril del 2020, que aprobó el Reglamento para el Diseño y Construcción de Aeródromos, Volumen l, denominado RAC-14)
+(Así modificada su numeración por el artículo 17 del decreto ejecutivo N°42395 del 7 de abril del 2020, que aprobó el Reglamento para el Diseño y Construcción de Aeródromos, Volumen l, denominado RAC-14, que lo traspasó del antiguo artículo 166 al 10, ya que el artículo 3° del decreto ejecutivo en mención, derogó los numerales del 1 al 154, 158, 163, así como del artículo 169 al 176, artículo 180, 186, así como del artículo 192 al 203, así como el artículo 207, ordenando así correr la numeración de los restantes artículos)

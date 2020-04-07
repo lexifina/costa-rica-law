@@ -1,2 +1,2 @@
 Longitud de Zonas Libres de Obstáculos
-Artículo 43.-La autoridad competente de la D.G.A.C., determinará la longitud de las zonas libres de obstáculos, de acuerdo a las características y circunstancias propias de cada pista.
+Artículo 43.- (Derogado por el artículo 3° del decreto ejecutivo N° 42395 del 7 de abril del 2020, que aprobó el Reglamento para el Diseño y Construcción de Aeródromos, Volumen l, denominado RAC-14)

@@ -1,2 +1,2 @@
 Franjas de las Calles de Rodaje
-Artículo 64.-Ambos lados de las calles de rodaje, la superficie del terreno adyacentes deberá estar al mismo nivel que la de éstas, y no deberá tener pendientes que puedan causar daños a las aeronaves que salgan accidentalmente de la calle de rodaje.
+Artículo 64.- (Derogado por el artículo 3° del decreto ejecutivo N° 42395 del 7 de abril del 2020, que aprobó el Reglamento para el Diseño y Construcción de Aeródromos, Volumen l, denominado RAC-14)

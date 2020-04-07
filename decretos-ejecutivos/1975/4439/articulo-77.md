@@ -1,1 +1,1 @@
-Artículo 77.-El límite inferior de la superficie de aproximación será una línea horizontal, contenida en el plano vertical que contenga también el borde interior del área de aproximación y con la elevación del punto medio del umbral.
+Artículo 77.- (Derogado por el artículo 3° del decreto ejecutivo N° 42395 del 7 de abril del 2020, que aprobó el Reglamento para el Diseño y Construcción de Aeródromos, Volumen l, denominado RAC-14)

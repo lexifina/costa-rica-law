@@ -1,3 +1,2 @@
 Plataformas
-Artículo 67.-Deberán proveerse las plataformas que sean necesarias para que el embarque y desembarque de los pasajeros, carga o correo, así como las operaciones de servicio a las aeronaves, puedan hacerse sin obstaculizar el tránsito del aeródromo.
-Deberá asignarse un área aislada de estacionamiento para las aeronaves en las cuales se sospecha que se ha colocado algún dispositivo incendiario, o que se quiera aislar de las actividades habituales de un aeródromo.
+Artículo 67.- (Derogado por el artículo 3° del decreto ejecutivo N° 42395 del 7 de abril del 2020, que aprobó el Reglamento para el Diseño y Construcción de Aeródromos, Volumen l, denominado RAC-14)

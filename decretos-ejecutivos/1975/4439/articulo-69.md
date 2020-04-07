@@ -1,2 +1,2 @@
 Resistencia de las Plataformas
-Artículo 69.-Toda parte de plataforma deberá poder soportar el tránsito de las aeronaves que hayan de utilizarla, considerándose que estarán sometidas a mayor intensidad de tránsito y mayores esfuerzos que las pistas, como resultado del lento movimiento en ellas de las aeronaves y el efecto de los que permanecen estacionados.
+Artículo 69.- (Derogado por el artículo 3° del decreto ejecutivo N° 42395 del 7 de abril del 2020, que aprobó el Reglamento para el Diseño y Construcción de Aeródromos, Volumen l, denominado RAC-14)

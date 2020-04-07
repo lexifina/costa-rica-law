@@ -1,1 +1,1 @@
-Artículo 98.-Los vehículos que se encuentren en el área de movimiento de un .aeródromo, se considerarán como obstáculo y se señalarán; no obstante la autoridad competente podrá eximir de ellos al equipo de servicio de las aeronaves y a los vehículos que se utilicen solamente en área de la plataforma.
+Artículo 98.- (Derogado por el artículo 3° del decreto ejecutivo N° 42395 del 7 de abril del 2020, que aprobó el Reglamento para el Diseño y Construcción de Aeródromos, Volumen l, denominado RAC-14)

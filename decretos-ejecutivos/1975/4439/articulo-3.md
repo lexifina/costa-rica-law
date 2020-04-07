@@ -1,11 +1,3 @@
-Área de un Aeródromo
-Artículo 3°-Los aeródromos según su categoría estarán constituidos por todas o algunas de las siguientes áreas:
-Área de aterrizaje;
-Área de señales;
-Área de movimiento;
-Área de seguridad;
-Área de protección;
-Área de parada;
-Área de estacionamiento de aeronaves;
-Área de mantenimiento y hangares; y
-Otras áreas que se observarán para la ubicación de instalaciones y, dependencias conexas con la aeronáutica.
+Registro de Aeródromos
+Artículo 3.-La Dirección General de Aviación Civil llevará un registro de todos los aeródromos de la República, con información actualizada de ubicación, elevación, temperatura media, características físicas y toda la información aeronáutica requerida en el Registro Aeronáutico Costarricense.
+(Así modificada su numeración por el artículo 17 del decreto ejecutivo N°42395 del 7 de abril del 2020, que aprobó el Reglamento para el Diseño y Construcción de Aeródromos, Volumen l, denominado RAC-14, que lo traspasó del antiguo artículo 157 al 3, ya que el artículo 3° del decreto ejecutivo en mención, derogó los numerales del 1 al 154, 158, 163, así como del artículo 169 al 176, artículo 180, 186, así como del artículo 192 al 203, así como el artículo 207, ordenando así correr la numeración de los restantes artículos)

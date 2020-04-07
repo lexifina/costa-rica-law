@@ -1,6 +1,3 @@
-Distancia entre cambios de Pendiente
-Artículo 25.-A lo largo de una pista deberán evitarse ondulaciones o cambios de pendiente apreciables que estén muy próximos. La distancia entre los puntos de intersección de dos curvas sucesivas no deberá ser menor que la suma de los valores numéricos, absolutos de los cambios de pendiente correspondientes, multiplicada por el valor que corresponda entre los siguientes:
-30.000 m. Cuando la letra de clasificación técnica sea A o B;
-15.000 m. Cuando la letra de clasificación técnica de pista sea C;
-5.000 m. Cuando la letra de clasificación técnica de pista sea D, E ó F.
-En todo caso, la distancia mínima entre dos cambios de pendiente sucesivos no deberá ser menor de 45 m.
+Aeródromo Abandonado
+Artículo 25.-La autoridad competente de aeronáutica podrá declarar un aeródromo abandonado, cuando previa inspección del mismo así lo considere, ya sea por falla del uso por las aeronaves, o ya por la carencia de instalaciones en buenas condiciones de servicio.
+(Así modificada su numeración por el artículo 17 del decreto ejecutivo N°42395 del 7 de abril del 2020, que aprobó el Reglamento para el Diseño y Construcción de Aeródromos, Volumen l, denominado RAC-14, que lo traspasó del antiguo artículo 191 al 25, ya que el artículo 3° del decreto ejecutivo en mención, derogó los numerales del 1 al 154, 158, 163, así como del artículo 169 al 176, artículo 180, 186, así como del artículo 192 al 203, así como el artículo 207, ordenando así correr la numeración de los restantes artículos)

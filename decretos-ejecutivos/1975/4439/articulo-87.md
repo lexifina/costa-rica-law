@@ -1,1 +1,1 @@
-Artículo 87.-Los objetos que a causa de su función deban conservarse dentro de las franjas, a fin de satisfacer requisitos de navegación aérea, debieran construirse y situarse de modo que el peligro se reduzca al mínimo.
+Artículo 87.- (Derogado por el artículo 3° del decreto ejecutivo N° 42395 del 7 de abril del 2020, que aprobó el Reglamento para el Diseño y Construcción de Aeródromos, Volumen l, denominado RAC-14)

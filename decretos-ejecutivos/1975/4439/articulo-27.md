@@ -1,2 +1,2 @@
-Resistencia de las Pistas
-Artículo 27.-Las pistas deberán poder soportar el tránsito de las aeronaves que están destinadas
+Artículo 27.- La utilización renumerada de aeródromo o aeropuertos particulares, así como de cualquiera de sus servicios, estará sujeta a las tarifas que apruebe previamente el Consejo Técnico de Aviación Civil.
+(Así modificada su numeración por el artículo 17 del decreto ejecutivo N°42395 del 7 de abril del 2020, que aprobó el Reglamento para el Diseño y Construcción de Aeródromos, Volumen l, denominado RAC-14, que lo traspasó del antiguo artículo 205 al 27, ya que el artículo 3° del decreto ejecutivo en mención, derogó los numerales del 1 al 154, 158, 163, así como del artículo 169 al 176, artículo 180, 186, así como del artículo 192 al 203, así como el artículo 207, ordenando así correr la numeración de los restantes artículos)

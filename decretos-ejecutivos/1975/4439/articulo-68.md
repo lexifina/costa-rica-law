@@ -1,2 +1,2 @@
 Dimensiones de las Plataformas
-Artículo 68.-EI área total de las plataformas deberá ser suficiente para permitir el movimiento rápido de todo el tránsito aéreo, que se prevea.
+Artículo 68.- (Derogado por el artículo 3° del decreto ejecutivo N° 42395 del 7 de abril del 2020, que aprobó el Reglamento para el Diseño y Construcción de Aeródromos, Volumen l, denominado RAC-14)

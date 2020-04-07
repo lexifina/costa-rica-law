@@ -1,2 +1,2 @@
 Ancho de las Zonas de Parada
-Artículo 47.-La zona de parada debe tener el mismo ancho de la pista con la cual esté relacionada.
+Artículo 47.- (Derogado por el artículo 3° del decreto ejecutivo N° 42395 del 7 de abril del 2020, que aprobó el Reglamento para el Diseño y Construcción de Aeródromos, Volumen l, denominado RAC-14)

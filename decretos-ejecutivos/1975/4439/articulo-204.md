@@ -1,3 +1,1 @@
-CAPITULO IX
-Tasas e Impuestos Aeroportuarios
-Artículo 204.-Para la utilización de un aeródromo o aeropuerto en el país, así como de los servicios que éste, preste, se deberá pagar las tasas o derechos que fije el Consejo Técnico de Aviación Civil, con la aprobación del Poder Ejecutivo.
+Artículo 204.-(Nota de Sinalevi: El texto de este numeral debe ser consultado en el artículo 26, ya que por el artículo 3° del decreto ejecutivo N° 42395 del 7 de abril del 2020, que aprobó el Reglamento para el Diseño y Construcción de Aeródromos, Volumen l, denominado RAC-14, se derogó los numerales del 1 al 154, 158, 163, así como del artículo 169 al 176, artículo 180, 186, así como del artículo 192 al 203, así como el artículo 207, y en su artículo 17 del decreto ejecutivo en mención, se ordena correr la numeración de los restantes artículos)

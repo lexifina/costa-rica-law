@@ -1,2 +1,2 @@
 Clasificación Técnica de las Pistas de Aeródromos
-Artículo 163.-De acuerdo a las condiciones técnicas de los aeródromos las pistas de clasificación en clase A, B, C, E y F.
+Artículo 163.- (Derogado por el artículo 3° del decreto ejecutivo N° 42395 del 7 de abril del 2020, que aprobó el Reglamento para el Diseño y Construcción de Aeródromos, Volumen l, denominado RAC-14)

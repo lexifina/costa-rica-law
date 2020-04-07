@@ -1,2 +1,3 @@
-Requisitos Mínimos
-Artículo 5°-Todo aeródromo tendrá como requisitos mínimos los siguientes: a) áreas de aterrizaje, b) área de seguridad, c) área de protección, d) indicador de la dirección del viento, e) señales de borde pista, f) identificación, y g) cercas.
+Aeródromos de Servicio Público
+Artículo 5.- Los aeródromos de servicio público son los abiertos al tráfico aéreo general. Cualquier persona natural o jurídica puede hacer uso de ellos mediante la respectiva autorización de la Dirección General de Aviación Civil, previo pago de los correspondientes derechos a tasas a que haya lugar.
+(Así modificada su numeración por el artículo 17 del decreto ejecutivo N°42395 del 7 de abril del 2020, que aprobó el Reglamento para el Diseño y Construcción de Aeródromos, Volumen l, denominado RAC-14, que lo traspasó del antiguo artículo 160 al 5, ya que el artículo 3° del decreto ejecutivo en mención, derogó los numerales del 1 al 154, 158, 163, así como del artículo 169 al 176, artículo 180, 186, así como del artículo 192 al 203, así como el artículo 207, ordenando así correr la numeración de los restantes artículos)

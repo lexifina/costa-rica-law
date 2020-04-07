@@ -1,1 +1,1 @@
-Artículos 84.-Los objetos que no sobresalgan de la superficie de aproximación pero que sin embargo puedan afectar adversamente el emplazamiento o al funcionamiento óptimo de las ayudas visuales o las no visuales, debieran en lo posible eliminarse.
+Artículos 84.- (Derogado por el artículo 3° del decreto ejecutivo N° 42395 del 7 de abril del 2020, que aprobó el Reglamento para el Diseño y Construcción de Aeródromos, Volumen l, denominado RAC-14)

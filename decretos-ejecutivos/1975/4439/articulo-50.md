@@ -1,3 +1,2 @@
 Superficie de las Zonas de Parada
-Artículo 50.-Las características de rozamiento de la superficie de las zonas de parada pavimentadas no deben ser inferiores a las pistas con las cuales estén relacionadas.
-Las características de deceleración de las zonas de parada no pavimentadas no podrán ser inferiores a las de las pistas con las que estén relacionadas.
+Artículo 50.- (Derogado por el artículo 3° del decreto ejecutivo N° 42395 del 7 de abril del 2020, que aprobó el Reglamento para el Diseño y Construcción de Aeródromos, Volumen l, denominado RAC-14)

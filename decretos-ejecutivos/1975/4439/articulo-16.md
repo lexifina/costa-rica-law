@@ -1,5 +1,3 @@
-Artículo 16.-La información arriba citada se proporcionará sin demora a las dependencias de los servicios de tránsito aéreo y a las dependencias de información aeronáutica y se mantendrá actualizada para permitir que ellas faciliten la información necesaria a las aeronaves que hacen uso.
-Recomendación.-Cuando existan cantidades anormales de agua en una pista, deberá facilitarse una descripción de la situación indicando la altura del agua si se dispone de mediciones.
-Recomendación.-Dentro de lo posible, las pistas en los aeródromos que puedan estar afectadas por el agua, deberán tener medido su coeficiente de rozamiento cuando la superficie esté mojada.
-Por superficie mojada se entenderá una completamente saturada pero no encharcada.
-La medición tiene por objeto determinar el efecto lubricante del agua por debajo de las velocidades de "aqua planing" (hidro planeo).
+Artículo 16.- El permiso de operación de un aeródromo será inscrito en la Dirección General de Aviación Civil.
+(Así reformado por el artículo 10 del decreto ejecutivo N°42395 del 7 de abril del 2020, que aprobó el Reglamento para el Diseño y Construcción de Aeródromos, Volumen l, denominado RAC-14)
+(Así modificada su numeración por el artículo 17 del decreto ejecutivo N°42395 del 7 de abril del 2020, que aprobó el Reglamento para el Diseño y Construcción de Aeródromos, Volumen l, denominado RAC-14, que lo traspasó del antiguo artículo 181 al 16, ya que el artículo 3° del decreto ejecutivo en mención, derogó los numerales del 1 al 154, 158, 163, así como del artículo 169 al 176, artículo 180, 186, así como del artículo 192 al 203, así como el artículo 207, ordenando así correr la numeración de los restantes artículos)

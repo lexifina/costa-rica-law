@@ -1,1 +1,1 @@
-Artículo 32.-La franja que comprenda una pista de aproximación por instrumentos que haya de usarse en condiciones de poca visibilidad o base baja de nubes, deberá extenderse hasta una distancia de por lo menos 150 m, a cada lado del eje de la pista o zona de parada, lo largo de toda la franja.
+Artículo 32.- (Derogado por el artículo 3° del decreto ejecutivo N° 42395 del 7 de abril del 2020, que aprobó el Reglamento para el Diseño y Construcción de Aeródromos, Volumen l, denominado RAC-14)

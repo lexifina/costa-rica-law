@@ -1,3 +1,3 @@
-Superficie de las Pistas
-Artículo 28.-La superficie de las pistas se construirán sin irregularidades que den como resultado pérdida de la eficacia del frenado, o de otro modo afecten adversamente al despegue y aterrizaje de una aeronave.
-La superficie de las pistas deberá construirse de modo que proporcione un buen coeficiente de rozamiento cuando esté mojada.
+Artículo 28.-El valor de los derechos de aterrizaje (la autoridad competente de aviación determinará en cada caso particular el derecho que sea aplicable), se determinará a base del peso máximo de aterrizaje de la aeronave, constante en su certificado de aeronavegabilidad.
+(Así reformado por el artículo 16 del decreto ejecutivo N°42395 del 7 de abril del 2020, que aprobó el Reglamento para el Diseño y Construcción de Aeródromos, Volumen l, denominado RAC-14)
+(Así modificada su numeración por el artículo 17 del decreto ejecutivo N°42395 del 7 de abril del 2020, que aprobó el Reglamento para el Diseño y Construcción de Aeródromos, Volumen l, denominado RAC-14, que lo traspasó del antiguo artículo 206 al 28, ya que el artículo 3° del decreto ejecutivo en mención, derogó los numerales del 1 al 154, 158, 163, así como del artículo 169 al 176, artículo 180, 186, así como del artículo 192 al 203, así como el artículo 207, ordenando así correr la numeración de los restantes artículos)

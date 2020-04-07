@@ -1,3 +1,2 @@
 Uso de Banderas
-Artículo 109.-Las banderas utilizadas para señalar obstáculos se colocarán alrededor de éstos, en su parte superior, o alrededor de su borde más alto.
-Cuando se usen banderas para señalar obstáculos extensos o estrechamente agrupados entre sí, se colocarán por lo menos cada 15 m. Las banderas no deberán aumentar el riesgo que presenten los obstáculos que señalen.
+Artículo 109.- (Derogado por el artículo 3° del decreto ejecutivo N° 42395 del 7 de abril del 2020, que aprobó el Reglamento para el Diseño y Construcción de Aeródromos, Volumen l, denominado RAC-14)

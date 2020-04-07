@@ -1,1 +1,1 @@
-Artículo 107.-Las señales que se pongan en los vehículos consistirán en dos discos que se corten en ángulo recto. El diámetro de los discos no será menor de 60 cm.
+Artículo 107.- (Derogado por el artículo 3° del decreto ejecutivo N° 42395 del 7 de abril del 2020, que aprobó el Reglamento para el Diseño y Construcción de Aeródromos, Volumen l, denominado RAC-14)

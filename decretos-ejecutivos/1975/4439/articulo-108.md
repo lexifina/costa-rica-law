@@ -1,1 +1,1 @@
-Artículo 108.-Las señales se pintarán de acuerdo con las disposiciones de los artículos 101, 102, 103 y 104.
+Artículo 108.- (Derogado por el artículo 3° del decreto ejecutivo N° 42395 del 7 de abril del 2020, que aprobó el Reglamento para el Diseño y Construcción de Aeródromos, Volumen l, denominado RAC-14)

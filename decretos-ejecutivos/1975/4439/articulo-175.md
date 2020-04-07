@@ -1,1 +1,1 @@
-Artículo 175.-En caso de construcciones de nuevos aeródromos que no puedan cumplir con parte de estos requisitos, la autoridad competente podrá autorizar su construcción, previo estudio y justificación.
+Artículo 175.- (Derogado por el artículo 3° del decreto ejecutivo N° 42395 del 7 de abril del 2020, que aprobó el Reglamento para el Diseño y Construcción de Aeródromos, Volumen l, denominado RAC-14)

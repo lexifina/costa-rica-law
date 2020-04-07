@@ -1,1 +1,1 @@
-Artículo 89.-Los objetos que debido a su función deban mantenerse dentro de la zona libre de obstáculos con el fin de satisfacer requisitos de navegación aérea debieran situarse de tal modo que el peligro se reduzca al mínimo.
+Artículo 89.- (Derogado por el artículo 3° del decreto ejecutivo N° 42395 del 7 de abril del 2020, que aprobó el Reglamento para el Diseño y Construcción de Aeródromos, Volumen l, denominado RAC-14)

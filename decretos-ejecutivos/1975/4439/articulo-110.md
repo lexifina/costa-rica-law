@@ -1,1 +1,1 @@
-Artículo 110.-Las banderas que se usen para señalar obstáculos no medirán en ningún caso menos de 60 cm, por cada lado.
+Artículo 110.- (Derogado por el artículo 3° del decreto ejecutivo N° 42395 del 7 de abril del 2020, que aprobó el Reglamento para el Diseño y Construcción de Aeródromos, Volumen l, denominado RAC-14)

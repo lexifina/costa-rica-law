@@ -1,1 +1,1 @@
-Artículo 197.-La autoridad aeronáutica podrá requerir por medio del Departamento de Asuntos Legales del Ministerio de Obras Públicas y Transportes la demolición o supresión de las construcciones, plantaciones u obras que se hicieren en contravención a lo dispuesto en este capítulo, sin que ello dé lugar a indemnización.
+Artículo 197.- (Derogado por el artículo 3° del decreto ejecutivo N° 42395 del 7 de abril del 2020, que aprobó el Reglamento para el Diseño y Construcción de Aeródromos, Volumen l, denominado RAC-14)

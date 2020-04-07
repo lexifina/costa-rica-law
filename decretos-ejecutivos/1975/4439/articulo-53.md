@@ -1,2 +1,2 @@
 Ancho de las Calles de Rodaje
-Artículo 53.-Las calles de rodaje deberán tener una anchura no inferior a las indicadas en el Capítulo VI de "Construcción de Aeródromos", para cada letra de clasificación técnica de aeródromos.
+Artículo 53.- (Derogado por el artículo 3° del decreto ejecutivo N° 42395 del 7 de abril del 2020, que aprobó el Reglamento para el Diseño y Construcción de Aeródromos, Volumen l, denominado RAC-14)

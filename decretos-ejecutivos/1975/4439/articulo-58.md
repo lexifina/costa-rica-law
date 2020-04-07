@@ -1,5 +1,3 @@
 Pendientes de las Calles de Rodaje
 Pendientes longitudinales
-Artículo 58.-La pendiente longitudinal de las calles de rodaje deben ser lo más reducidas posible y no exceder de los siguientes valores:
-1,5% Cuando la letra de clasificación técnica de la pista más larga servida sea A o B;
-3% Cuando la letra de clasificación técnica de la pista más larga servida sea C, D, E o F.
+Artículo 58.- (Derogado por el artículo 3° del decreto ejecutivo N° 42395 del 7 de abril del 2020, que aprobó el Reglamento para el Diseño y Construcción de Aeródromos, Volumen l, denominado RAC-14)

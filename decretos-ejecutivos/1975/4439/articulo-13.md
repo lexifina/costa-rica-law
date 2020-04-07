@@ -1,17 +1,4 @@
-Resistencias de los Pavimentos
-Artículo 13.-La autoridad competente determinará la resistencia de los pavimentos, de acuerdo a las características del suelo de la subrasante.
-Recomendación.-La información sobre resistencias de pavimento deberá proporcionarse mediante uno de los métodos siguientes :
-a) El peso bruto permisible del avión, respecto a los aviones con trenes principales de dos patas, para todos los siguientes tipos de disposición de ruedas en cada pata principal:
-1) Rueda simple.
-2) Rueda doble.
-3) Rueda doble en tándem.
-Para otros tipos de trenes de aterrizaje, habría que proporcionar información similar.
-b) La carga permisible en cada pata del tren de aterrizaje principal, para todos los siguientes tipos de disposición de ruedas en cada pata principal:
-1) Rueda simple.
-2) Rueda doble.
-3) Rueda doble en tándem.
-Para otros tipos de trenes de aterrizaje, habría que proporcionar información similar.
-c) El correspondiente número de clasificación por cargas (L.C.N.).
-Deberá darse detalles del tipo de pavimento e incluir el espesor de los pavimentos flexibles y el radio Westergaard de rigidez relativa de los pavimentos rígidos.
-La información deberá contener una indicación de la frecuencia de cubrimientos que se ha tenido en cuenta al evaluar las cargas permisibles.
-La autoridad competente notificará también cualesquiera otros factores limitadores, tales como presión de los neumáticos, dimensiones del tren de aterrizaje y el peso de la aeronave, bien sea con carácter general o referidos a una aeronave determinada que sea necesario considerar.
+Helipuertos
+Artículo 13.-Pueden ser terrestres o acuáticos, en este último caso será denominado hidrohelipuerto. Los terrestres pueden ser: a nivel del suelo o elevados.
+Para la operación de helipuertos, la autoridad competente de la Dirección General de Aviación Civil determinará los requisitos y especificaciones técnicas necesarias a observar, de acuerdo al tipo de helicóptero que vaya a utilizarse de manera muy especial controlará aquellos helipuertos elevados que se pretendan construir en edificios públicos o privados para que éstos reúnan todos los requisitos de seguridad, garantía y eficiencia.
+(Así modificada su numeración por el artículo 17 del decreto ejecutivo N°42395 del 7 de abril del 2020, que aprobó el Reglamento para el Diseño y Construcción de Aeródromos, Volumen l, denominado RAC-14, que lo traspasó del antiguo artículo 177 al 13, ya que el artículo 3° del decreto ejecutivo en mención, derogó los numerales del 1 al 154, 158, 163, así como del artículo 169 al 176, artículo 180, 186, así como del artículo 192 al 203, así como el artículo 207, ordenando así correr la numeración de los restantes artículos)

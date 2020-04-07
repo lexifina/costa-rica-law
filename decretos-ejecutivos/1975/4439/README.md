@@ -14,3 +14,4 @@ Reglamento de Aeródromos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1975-05-03 | la propia norma |
+| 2 | 2020-04-07 | Decreto Ejecutivo 42395 (2020-04-07) |

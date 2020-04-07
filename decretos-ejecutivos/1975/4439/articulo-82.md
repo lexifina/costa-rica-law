@@ -1,2 +1,2 @@
 Eliminación y Restricción de Obstáculos
-Artículo 82.-Todo objeto o parte de los mismos que sobresalgan por encima de una superficie de subida en el despegue, debieran considerarse como obstáculos y eliminarse, excepto cuando en opinión de la autoridad competente, dicho obstáculo esté apantallado por uno existente e inamovible.
+Artículo 82.- (Derogado por el artículo 3° del decreto ejecutivo N° 42395 del 7 de abril del 2020, que aprobó el Reglamento para el Diseño y Construcción de Aeródromos, Volumen l, denominado RAC-14)

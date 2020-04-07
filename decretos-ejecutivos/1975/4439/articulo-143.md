@@ -1,5 +1,2 @@
 Señales de Umbral
-Artículo 143.-Se proveerán señales de umbral en todas las pistas. El umbral deberá situarse normalmente en el extremo de la pista, a menos que consideraciones de carácter operacional justifiquen la elección de otro emplazamiento.
-Cuando el umbral esté emplazado en el extremo de la pista, las fajas de señalamiento del umbral empezarán normalmente a 6 m., del extremo de la pista, pero cuando haya intersecciones de pistas o de calles de rodaje cerca del umbral, la autoridad competente podrá ejercer su criterio ajustando el emplazamiento de las señales del umbral.
-Las señales del umbral de pista consistirán en una serie de fajas longitudinales dispuestas simétricamente respecto al eje de la pista, cuyas dimensiones y características serán señaladas por la autoridad competente.
-Los umbrales se podrán desplazar temporal o permanentemente, según se trate de reparaciones por daños de la pista, o de tramos de pista inutilizados. La autoridad competente determinará el señalamiento respectivo.
+Artículo 143.- (Derogado por el artículo 3° del decreto ejecutivo N° 42395 del 7 de abril del 2020, que aprobó el Reglamento para el Diseño y Construcción de Aeródromos, Volumen l, denominado RAC-14)

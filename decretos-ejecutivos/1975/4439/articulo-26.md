@@ -1,2 +1,6 @@
-Pendientes Transversales
-Artículo 26.-Las pendientes transversales máximas de pista, están indicadas en el Capítulo VI referente a Construcción de Aeródromos para cada letra de acuerdo a la clasificación técnica de aeródromo.
+CAPITULO IX
+Tasas e Impuestos Aeroportuarios
+(*) (Nota de Sinalevi: Mediante el artículo 17 del decreto ejecutivo N° 42395 del 7 de abril del 2020, que aprobó el Reglamento para el Diseño y Construcción de Aeródromos, Volumen l, denominado RAC-14, se acordó modificar la numeración del presente decreto ejecutivo por la derogación a la que hace referencia el artículo 3° del decreto ejecutivo antes mencionado. No obstante no indica nada de la modificación en la numeración de sus capítulos, quedando los mismos tal y como fueron publicados originalmente)
+Artículo 26.- Para la utilización de un aeródromo o aeropuerto en el país, así como de los servicios que éste preste, se deberá pagar las tasas o derechos que fije el Consejo Técnico de Aviación Civil.
+(Así reformado por el artículo 15 del decreto ejecutivo N°42395 del 7 de abril del 2020, que aprobó el Reglamento para el Diseño y Construcción de Aeródromos, Volumen l, denominado RAC-14)
+(Así modificada su numeración por el artículo 17 del decreto ejecutivo N°42395 del 7 de abril del 2020, que aprobó el Reglamento para el Diseño y Construcción de Aeródromos, Volumen l, denominado RAC-14, que lo traspasó del antiguo artículo 204 al 26, ya que el artículo 3° del decreto ejecutivo en mención, derogó los numerales del 1 al 154, 158, 163, así como del artículo 169 al 176, artículo 180, 186, así como del artículo 192 al 203, así como el artículo 207, ordenando así correr la numeración de los restantes artículos)

@@ -1,1 +1,1 @@
-Artículo 106.-Las balizas utilizadas para señalar alambres elevados debieran colocarse con una separación máxima de 40 m., entre sí, con su parte superior a un nivel no inferior al del alambre más alto en el punto señalado.
+Artículo 106.- (Derogado por el artículo 3° del decreto ejecutivo N° 42395 del 7 de abril del 2020, que aprobó el Reglamento para el Diseño y Construcción de Aeródromos, Volumen l, denominado RAC-14)

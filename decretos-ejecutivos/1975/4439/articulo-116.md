@@ -1,2 +1,2 @@
 Emplazamiento de las Luces de Obstáculos
-Artículo 116.-Las luces superiores estarán dispuestas de manera que señalen el punto o borde superior del obstáculo respecto a la superficie de señalamiento del mismo. Si se trata de chimeneas o estructuras de naturaleza similar, las luces se colocarán de 1,50 m. a 3 m., por debajo de la cúspide.
+Artículo 116.- (Derogado por el artículo 3° del decreto ejecutivo N° 42395 del 7 de abril del 2020, que aprobó el Reglamento para el Diseño y Construcción de Aeródromos, Volumen l, denominado RAC-14)

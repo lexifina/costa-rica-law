@@ -1,4 +1,1 @@
-CAPITULO VI
-Aeródromos: Clasificación, Requisitos para Construcción
-Categoría de Aeródromos Civiles
-Artículo 155.-El Consejo Técnico de Aviación Civil determinará la categoría que corresponde a los diferentes aeródromos del país, teniendo en consideración la aeronave crítica que vaya a utilizar. Es privativo del Poder Ejecutivo el determinar por decreto los aeropuertos internacionales.
+Artículo 155.- (Nota de Sinalevi: El texto de este numeral debe ser consultado en el artículo 1, ya que por el artículo 3° del decreto ejecutivo N° 42395 del 7 de abril del 2020, que aprobó el Reglamento para el Diseño y Construcción de Aeródromos, Volumen l, denominado RAC-14, se derogó los numerales del 1 al 154, 158, 163, así como del artículo 169 al 176, artículo 180, 186, así como del artículo 192 al 203, así como el artículo 207, y en su artículo 17 del decreto ejecutivo en mención, se ordena correr la numeración de los restantes artículos)

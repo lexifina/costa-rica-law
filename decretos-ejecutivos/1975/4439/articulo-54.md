@@ -1,2 +1,2 @@
 Uniones e Intersecciones de las Calles de Rodaje
-Artículo 54.-Con el fin de facilitar el movimiento de las aeronaves, deberán proveerse superficies de enlace en los puntos de unión o intersecciones de calles de rodaje con pistas, plataformas y otras vías de circulación. La autoridad competente de la D. G. A. C., establecerá los radios mínimos, de acuerdo al ángulo de intersección, para las curvas de enlace, así como determinará las salidas de alta velocidad, cuando éstas sean necesarias.
+Artículo 54.- (Derogado por el artículo 3° del decreto ejecutivo N° 42395 del 7 de abril del 2020, que aprobó el Reglamento para el Diseño y Construcción de Aeródromos, Volumen l, denominado RAC-14)

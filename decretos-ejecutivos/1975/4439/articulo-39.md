@@ -1,1 +1,1 @@
-Artículo 39:-Las pendientes transversales en cualquier parte de una franja más allá de la parte que ha de nivelarse para tener en cuenta las aeronaves que, accidentalmente se salgan de pista, no deben exceder de una pendiente ascendente del 5 por ciento, medida en sentido de alejamiento de la pista.
+Artículo 39.- (Derogado por el artículo 3° del decreto ejecutivo N° 42395 del 7 de abril del 2020, que aprobó el Reglamento para el Diseño y Construcción de Aeródromos, Volumen l, denominado RAC-14)

@@ -1,4 +1,2 @@
 Señalamiento de Pistas sin Pavimentar
-Artículo 149.-En las pistas no pavimentadas, deberán proveerse, en la medida de lo posible, señales de designación de pista y señales de umbral de pista.
-Cuando la extensión de las pistas no esté claramente indicada por el contraste de su superficie con el terreno colindante, deberán emplearse para este fin balizas diurnas sencillas. Cuando se instalen luces de pista y de umbral, las balizas deberán colocarse en los soportes de las luces. Cuando no haya luces, las balizas diurnas, de forma plana rectangular, o bien cónica, deben colocarse de modo que delimiten claramente la pista.
-Las balizas planas rectangulares deben tener como dimensiones mínimas 1 m., por 3 m. y deben colocarse de modo que su lado más largo sea paralelo al eje de la pista. Las balizas cónicas deben tener una altura que no exceda de 50 cm.
+Artículo 149.- (Derogado por el artículo 3° del decreto ejecutivo N° 42395 del 7 de abril del 2020, que aprobó el Reglamento para el Diseño y Construcción de Aeródromos, Volumen l, denominado RAC-14)

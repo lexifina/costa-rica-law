@@ -1,2 +1,2 @@
 Características
-Artículo 122.-Los faros de peligro producirán una serie de destellos de color rojo. La frecuencia de los destellos estará comprendida entre 20 y 60 por minuto. La intensidad máxima del destello no será menor de 2.000 candelas de luz roja. La duración del destello será mayor que la del período de oscuridad.
+Artículo 122.- (Derogado por el artículo 3° del decreto ejecutivo N° 42395 del 7 de abril del 2020, que aprobó el Reglamento para el Diseño y Construcción de Aeródromos, Volumen l, denominado RAC-14)

@@ -1,4 +1,1 @@
-CAPITULO VIII
-Permisos de Operación de Aeródromos
-Artículo 178.-Ningún área de tierra o de agua puede ser utilizada para el aterrizaje de aeronaves, si no ha sido habilitada previamente como aeródromo por el Consejo Técnico de Aviación Civil mediante el permiso de operación correspondiente, salvo caso de fuerza mayor, o permisos especiales expedidos al efecto.
-El permiso de operación se otorgará mediante acuerdo del Consejo, previa inspección y estudios hechos por el personal técnico de la Dirección General de Aviación Civil, para determinar los tipos de aeronaves a emplearse y las restricciones que sean del caso.
+Artículo 178.- (Nota de Sinalevi: El texto de este numeral debe ser consultado en el artículo 14, ya que por el artículo 3° del decreto ejecutivo N° 42395 del 7 de abril del 2020, que aprobó el Reglamento para el Diseño y Construcción de Aeródromos, Volumen l, denominado RAC-14, se derogó los numerales del 1 al 154, 158, 163, así como del artículo 169 al 176, artículo 180, 186, así como del artículo 192 al 203, así como el artículo 207, y en su artículo 17 del decreto ejecutivo en mención, se ordena correr la numeración de los restantes artículos)

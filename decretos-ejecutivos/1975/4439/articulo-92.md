@@ -1,1 +1,1 @@
-Artículo 92.-Se prohíbe toda construcción que sobresalga de una superficie de aproximación, dentro de la distancia de 3.000 m., al borde interior del área de aproximación, o por encima de una superficie de transición, excepto cuando en opinión de la autoridad competente, la nueva construcción estaría apantallada por un obstáculo existente e inamovible.
+Artículo 92.- (Derogado por el artículo 3° del decreto ejecutivo N° 42395 del 7 de abril del 2020, que aprobó el Reglamento para el Diseño y Construcción de Aeródromos, Volumen l, denominado RAC-14)

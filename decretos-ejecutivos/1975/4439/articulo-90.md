@@ -1,2 +1,2 @@
 Restricción de Nuevas Construcciones
-Artículo 90.-En un aeródromo cuya pista sea de aproximación por instrumentos, al considerar nuevas construcciones propuestas en la vecindad de éste, se deberán tomar en consideración las disposiciones de la autoridad competente de la D.G.A.C., sobre áreas y distancias de protección, que dependerán del tipo de instalación existente.
+Artículo 90.- (Derogado por el artículo 3° del decreto ejecutivo N° 42395 del 7 de abril del 2020, que aprobó el Reglamento para el Diseño y Construcción de Aeródromos, Volumen l, denominado RAC-14)

@@ -1,2 +1,2 @@
 Resistencia de las Zonas de Parada
-Artículo 49.-Las zonas de parada deben prepararse o construirse de manera que en caso de un despegue interrumpido, puedan soportar la carga de las aeronaves a las que tengan por objeto servir, sin ocasionar daños estructurales a las mismas.
+Artículo 49.- (Derogado por el artículo 3° del decreto ejecutivo N° 42395 del 7 de abril del 2020, que aprobó el Reglamento para el Diseño y Construcción de Aeródromos, Volumen l, denominado RAC-14)

@@ -1,3 +1,2 @@
 Obstáculos Fuera de la Inmediata Vecindad de los Aeródromos
-Artículo 123.-Deberá consultarse a la Dirección General de Aviación Civil las nuevas construcciones que se pretenda edificar por encima de una altura de 150 m., aún fuera de las proximidades inmediatas de un aeródromo, a no ser que un estudio especial aeronáutico que se acompañe demuestre que no constituyen peligro para las aeronaves.
-Nota: En dicho estudio se tomará en cuenta la naturaleza de las operaciones y la diferencia entre operaciones diurna y nocturnas.
+Artículo 123.- (Derogado por el artículo 3° del decreto ejecutivo N° 42395 del 7 de abril del 2020, que aprobó el Reglamento para el Diseño y Construcción de Aeródromos, Volumen l, denominado RAC-14)

@@ -1,4 +1,3 @@
-Cambios de Pendiente Longitudinal
-Artículo 23.-Cuando no se pueda evitar un cambio de pendiente entre dos pendientes consecutivas, éste no debe exceder del:
-1,5% Cuando la letra de clasificación técnica de pista sea A, B, o C;
-2% Cuando la letra de clasificación técnica de pista sea D, E, o F.
+Artículo 23.- El propietario o administrador deberá dar aviso a la autoridad aeronáutica civil o de policía más cercana, de los accidentes ocurridos a las aeronaves dentro de los límites de su aeródromo o de cualquier otra circunstancia que afecten o ponga en peligro las operaciones aéreas del mismo.
+(Así reformado por el artículo 14 del decreto ejecutivo N°42395 del 7 de abril del 2020, que aprobó el Reglamento para el Diseño y Construcción de Aeródromos, Volumen l, denominado RAC-14)
+(Así modificada su numeración por el artículo 17 del decreto ejecutivo N°42395 del 7 de abril del 2020, que aprobó el Reglamento para el Diseño y Construcción de Aeródromos, Volumen l, denominado RAC-14, que lo traspasó del antiguo artículo 189 al 23, ya que el artículo 3° del decreto ejecutivo en mención, derogó los numerales del 1 al 154, 158, 163, así como del artículo 169 al 176, artículo 180, 186, así como del artículo 192 al 203, así como el artículo 207, ordenando así correr la numeración de los restantes artículos)

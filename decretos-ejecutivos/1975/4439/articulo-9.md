@@ -1,2 +1,3 @@
-Elevación del Aeródromo
-Artículo 9°-La autoridad determinará la elevación del aeródromo y ésta será redondeada al metro o pie más próximo.
+Aeródromos Nacionales
+Artículo 9.-Son aeródromos nacionales los puestos a servicio público en el interior del país.
+(Así modificada su numeración por el artículo 17 del decreto ejecutivo N°42395 del 7 de abril del 2020, que aprobó el Reglamento para el Diseño y Construcción de Aeródromos, Volumen l, denominado RAC-14, que lo traspasó del antiguo artículo 165 al 9, ya que el artículo 3° del decreto ejecutivo en mención, derogó los numerales del 1 al 154, 158, 163, así como del artículo 169 al 176, artículo 180, 186, así como del artículo 192 al 203, así como el artículo 207, ordenando así correr la numeración de los restantes artículos)

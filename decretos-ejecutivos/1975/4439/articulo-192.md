@@ -1,8 +1,4 @@
 CAPITULO IX
 Despeje y Señalamiento de Obstáculos y Zona de Protección
 Limitaciones Legales
-Artículo 192 .-Se considera obstáculo todo objeto fijo o móvil que sobre- pase cualquiera de las superficies siguientes:
-a) De aproximación;
-b) De transición;
-c) Horizontal y cónica; y
-d) Otros que sean considerados como tales por la autoridad aeronáutica.
+Artículo 192 .- (Derogado por el artículo 3° del decreto ejecutivo N° 42395 del 7 de abril del 2020, que aprobó el Reglamento para el Diseño y Construcción de Aeródromos, Volumen l, denominado RAC-14)

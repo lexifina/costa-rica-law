@@ -1,2 +1,2 @@
 Características de las Luces del Área fuera de Servicio
-Artículo 131.-La luz indicadora del área fuera de servicio será una luz fija de color rojo; o una de destellos roja o amarilla. La luz roja fija tendrá una intensidad suficiente para que resulte bien visible teniendo en cuenta la intensidad de las luces adyacentes y el nivel general de la iluminación contra la cual se verá normalmente. En ningún caso dicha intensidad será menor de 10 candelas de luz roja. La luz de destellos roja o amarilla tendrá una intensidad efectiva no menor de 5 candelas de luz roja o amarilla.
+Artículo 131.- (Derogado por el artículo 3° del decreto ejecutivo N° 42395 del 7 de abril del 2020, que aprobó el Reglamento para el Diseño y Construcción de Aeródromos, Volumen l, denominado RAC-14)

@@ -1,1 +1,1 @@
-Artículo 88.-Todo lo que pueda poner en peligro a una aeronave en vuelo, dentro de los límites de una zona libre de obstáculos, debiera considerarse como obstáculo y eliminarse.
+Artículo 88.- (Derogado por el artículo 3° del decreto ejecutivo N° 42395 del 7 de abril del 2020, que aprobó el Reglamento para el Diseño y Construcción de Aeródromos, Volumen l, denominado RAC-14)

@@ -1,2 +1,2 @@
 Señales de Distancia Fija
-Artículo 144.-Se proporcionará señalamiento de distancia fija en todas las pistas de letras A o B de la clasificación técnica de aeródromo. El emplazamiento, dimensiones y más detalles serán suministrados por la autoridad competente.
+Artículo 144.- (Derogado por el artículo 3° del decreto ejecutivo N° 42395 del 7 de abril del 2020, que aprobó el Reglamento para el Diseño y Construcción de Aeródromos, Volumen l, denominado RAC-14)

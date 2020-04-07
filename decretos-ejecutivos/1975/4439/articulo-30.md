@@ -1,4 +1,2 @@
 Longitud de Franjas
-Artículo 30.-La franja debe extenderse más allá del extremo de la pista o de la zona de parada si la hay, hasta una distancia de por lo menos:
-60 m. Cuando la letra de clasificación técnica sea A, B o C.
-30 m. Cuando la letra de clasificación técnica sea D, E o F.
+Artículo 30.- (Derogado por el artículo 3° del decreto ejecutivo N° 42395 del 7 de abril del 2020, que aprobó el Reglamento para el Diseño y Construcción de Aeródromos, Volumen l, denominado RAC-14)

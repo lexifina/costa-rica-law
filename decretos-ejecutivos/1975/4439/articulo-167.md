@@ -1,2 +1,1 @@
-Control y Vigilancia de los Aeródromos
-Artículo 167.-Los aeródromos civiles estarán sujetos al control y vigilancia de la autoridad aeronáutica administrativa.
+Artículo 167.- (Nota de Sinalevi: El texto de este numeral debe ser consultado en el artículo 11, ya que por el artículo 3° del decreto ejecutivo N° 42395 del 7 de abril del 2020, que aprobó el Reglamento para el Diseño y Construcción de Aeródromos, Volumen l, denominado RAC-14, se derogó los numerales del 1 al 154, 158, 163, así como del artículo 169 al 176, artículo 180, 186, así como del artículo 192 al 203, así como el artículo 207, y en su artículo 17 del decreto ejecutivo en mención, se ordena correr la numeración de los restantes artículos)

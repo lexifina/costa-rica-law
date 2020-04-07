@@ -1,2 +1,3 @@
-Franjas
-Artículo 29.-Cada pista, incluyendo las zonas de parada si existieren, estará comprendida dentro de una franja. La superficie de la parte de la franja o con zona de parada estará a ras con la superficie de ésta o de la zona de parada. La superficie de la franja se preparará hasta una distancia, de 30 m, para evitar un borde vivo en el extremo de la pista y protegerla de la erosión producida por el chorro de los reactores.
+Artículo 29.- Rige a partir de su publicación.
+Dado en la Casa Presidencial.-San José, a los tres días del mes de enero de mil novecientos setenta y cinco.
+(Así modificada su numeración por el artículo 17 del decreto ejecutivo N°42395 del 7 de abril del 2020, que aprobó el Reglamento para el Diseño y Construcción de Aeródromos, Volumen l, denominado RAC-14, que lo traspasó del antiguo artículo 208 al 29, ya que el artículo 3° del decreto ejecutivo en mención, derogó los numerales del 1 al 154, 158, 163, así como del artículo 169 al 176, artículo 180, 186, así como del artículo 192 al 203, así como el artículo 207, ordenando así correr la numeración de los restantes artículos)

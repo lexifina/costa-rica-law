@@ -1,2 +1,2 @@
 Zonas Libres de Obstáculos
-Artículo 42.-En los aeródromos cuya longitud de pista no sea igual a la "longitud de campo compensado”, de manera especial y en aquellos en que la autoridad competente juzgue necesario, se dispondrá de zonas libres de obstáculos, que se ubicarán cada una en los extremos de la pista. El origen de la zona libre de obstáculos estará en el extremo de la pista.
+Artículo 42.- (Derogado por el artículo 3° del decreto ejecutivo N° 42395 del 7 de abril del 2020, que aprobó el Reglamento para el Diseño y Construcción de Aeródromos, Volumen l, denominado RAC-14)

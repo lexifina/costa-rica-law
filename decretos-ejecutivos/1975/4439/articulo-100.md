@@ -1,1 +1,1 @@
-Artículo 100.-Cuando se use una luz elevada dentro del área de movimiento, se hará destacar de día señalándola apropiadamente, y su construcción será tal que no constituya un peligro para las aeronaves.
+Artículo 100.- (Derogado por el artículo 3° del decreto ejecutivo N° 42395 del 7 de abril del 2020, que aprobó el Reglamento para el Diseño y Construcción de Aeródromos, Volumen l, denominado RAC-14)

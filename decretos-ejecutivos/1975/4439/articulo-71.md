@@ -1,2 +1,2 @@
 Márgenes de separación en las Plataformas
-Artículo 71.-Las posiciones de estacionamiento individuales deberán ser tales que se proporcione margen de separación adecuado entre aeronaves adyacentes y entre éstas y edificios y cualquier otro obstáculo.
+Artículo 71.- (Derogado por el artículo 3° del decreto ejecutivo N° 42395 del 7 de abril del 2020, que aprobó el Reglamento para el Diseño y Construcción de Aeródromos, Volumen l, denominado RAC-14)

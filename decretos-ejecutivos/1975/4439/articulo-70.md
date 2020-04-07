@@ -1,2 +1,2 @@
 Pendiente de las Plataformas
-Artículo 70.-Las pendientes de las plataformas deberán ser suficientes para impedir la acumulación de agua en su superficie, pero sus valores deberán mantenerse lo más bajo posible. En las áreas de estacionamiento de aviones las pendientes máximas no excederán del 1 por ciento.
+Artículo 70.- (Derogado por el artículo 3° del decreto ejecutivo N° 42395 del 7 de abril del 2020, que aprobó el Reglamento para el Diseño y Construcción de Aeródromos, Volumen l, denominado RAC-14)

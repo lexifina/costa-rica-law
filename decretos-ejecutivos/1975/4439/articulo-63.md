@@ -1,2 +1,2 @@
 Superficie de las Calles de Rodaje
-Artículo 63.-La superficie de las calles de rodaje no deberá tener irregularidades que puedan ocasionar daños a la estructura de las aeronaves que las utilicen.
+Artículo 63.- (Derogado por el artículo 3° del decreto ejecutivo N° 42395 del 7 de abril del 2020, que aprobó el Reglamento para el Diseño y Construcción de Aeródromos, Volumen l, denominado RAC-14)

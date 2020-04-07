@@ -1,3 +1,2 @@
 Áreas fuera de Servicio
-Artículo 130.Se colocarán balizas indicadoras del área de servicio siempre que alguna parte de una calle de rodaje, plataforma, o apartadero de espera sea inadecuada para el movimiento de las aeronaves pero que todavía sea posible que éstas la eviten sin menoscabo de la seguridad. Las balizas indicadoras del área fuera de servicio serán colocadas a intervalos suficientemente reducidos para que quede delimitada el área fuera de servicio.
-Las balizas del área fuera de servicio consistirán en objetos llamativos tales como banderas, conos, luces o tableros colocados verticalmente. En las áreas de movimiento utilizadas durante la noche, se emplearán luces de área fuera de servicio.
+Artículo 130. (Derogado por el artículo 3° del decreto ejecutivo N° 42395 del 7 de abril del 2020, que aprobó el Reglamento para el Diseño y Construcción de Aeródromos, Volumen l, denominado RAC-14)

@@ -1,2 +1,2 @@
 Despeje y Nivelación de Franjas
-Artículo 34.-La parte de la franja que comprenda una pista de vuelo por, instrumentos deberá proporcionar, por lo menos (siendo recomendable todo el ancho de la franja), hasta una distancia de 75 m., del eje un área despejada y nivelada en atención a los aviones a que está destinada la pista, para prever el caso . de que alguno de ellos se salga accidentalmente de la pista.
+Artículo 34.- (Derogado por el artículo 3° del decreto ejecutivo N° 42395 del 7 de abril del 2020, que aprobó el Reglamento para el Diseño y Construcción de Aeródromos, Volumen l, denominado RAC-14)

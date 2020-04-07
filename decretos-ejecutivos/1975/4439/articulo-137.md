@@ -1,3 +1,2 @@
 Ayudas para la Localización
-Artículo 137.-Todos los aeródromos que no cuenten con otros medios suficientes de identificación visual, estarán provistos de una señal de identificación de aeródromos. La señal o señales de identificación de aeródromo deben colocarse de modo que, en lo posible, puedan distinguirse desde todos los ángulos sobre la horizontal.
-Donde se instalen, las señales de identificación de aeródromo consistirán en el nombre del mismo. El color que se escoja deberá hacer que éstas se destaquen suficientemente. Las letras no serán menores de 3 m., de altura.
+Artículo 137.- (Derogado por el artículo 3° del decreto ejecutivo N° 42395 del 7 de abril del 2020, que aprobó el Reglamento para el Diseño y Construcción de Aeródromos, Volumen l, denominado RAC-14)

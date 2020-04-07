@@ -1,2 +1,2 @@
 Pendientes Transversales
-Artículo 38.-Las pendientes transversales en la parte de una franja que hayan de nivelarse deben ser las adecuadas para impedir la acumulación de agua en la superficie, pero sin exceder del 2,5 por ciento en las franjas cuya letra de clasificación técnica de aeródromos sea A, B o C y el 3% en las franjas cuya clasificación técnica de aeródromo sea D, E o F, excepto en los primeros 3 m., hacía afuera del borde de pista o zona de parada, donde la pendiente puede llegar a ser de hasta 5 por ciento, para facilitar el drenaje.
+Artículo 38 .- (Derogado por el artículo 3° del decreto ejecutivo N° 42395 del 7 de abril del 2020, que aprobó el Reglamento para el Diseño y Construcción de Aeródromos, Volumen l, denominado RAC-14)

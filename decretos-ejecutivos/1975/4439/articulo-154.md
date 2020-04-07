@@ -1,2 +1,2 @@
 Ayudas Luminosas
-Artículo 154.-Para aeródromos de servicio nocturno, la autoridad competente determinará detalladamente todas las áreas y zonas que se deban iluminar en base a las especificaciones técnicas y recomendaciones de OACI para cada tipo de aeródromo, de acuerdo a la clasificación técnica de aeródromos.
+Artículo 154.- (Derogado por el artículo 3° del decreto ejecutivo N° 42395 del 7 de abril del 2020, que aprobó el Reglamento para el Diseño y Construcción de Aeródromos, Volumen l, denominado RAC-14)

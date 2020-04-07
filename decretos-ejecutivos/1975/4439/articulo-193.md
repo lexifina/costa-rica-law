@@ -1,1 +1,1 @@
-Artículo 193.-En las inmediaciones de los aeródromos no podrán hacerse construcciones, plantaciones u obras de cualquier naturaleza que constituyan obstáculos a la partida y llegada de aeronaves, sin obtener autorización previa de la Dirección General de Aviación Civil.
+Artículo 193.- (Derogado por el artículo 3° del decreto ejecutivo N° 42395 del 7 de abril del 2020, que aprobó el Reglamento para el Diseño y Construcción de Aeródromos, Volumen l, denominado RAC-14)

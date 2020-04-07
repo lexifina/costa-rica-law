@@ -1,6 +1,3 @@
-CAPÍTULO III
-Características Físicas de los Aeródromos Pistas
-Número de Orientación de las Pistas
-Artículo 17.-Se tomarán en consideración todos o la mayor parte de los factores que afectan a la orientación, al emplazamiento y al número de pistas.
-Como factores importantes se considerarán: el coeficiente de utilización determinado por la distribución de los vientos; y, la alineación de la pista para facilitar la provisión de aproximaciones que se ajusten a las especificaciones sobre superficies de aproximación.
-Cuando se esté eligiendo el emplazamiento de un nuevo aeródromo y se prevea que se precisará de una pista de vuelo por instrumentos es necesario observar las áreas por las que tendrán que volar las aeronaves durante las maniobras de aproximación por instrumentos y aproximación frustrada para lograr que los obstáculos situados en estas áreas no restrinjan las operaciones de las aeronaves a cuyo uso se destine el aeródromo.
+Artículo 17.- El permiso de operación de los aeródromos y otras instalaciones aeronáuticas podrá ser revocado o suspendido en cualquier momento por motivos especiales de orden público o de interés general de navegación o cuando dejen de reunir el mínimo de requisitos exigidos.
+(Así reformado por el artículo 11 del decreto ejecutivo N°42395 del 7 de abril del 2020, que aprobó el Reglamento para el Diseño y Construcción de Aeródromos, Volumen l, denominado RAC-14)
+(Así modificada su numeración por el artículo 17 del decreto ejecutivo N°42395 del 7 de abril del 2020, que aprobó el Reglamento para el Diseño y Construcción de Aeródromos, Volumen l, denominado RAC-14, que lo traspasó del antiguo artículo 182 al 17, ya que el artículo 3° del decreto ejecutivo en mención, derogó los numerales del 1 al 154, 158, 163, así como del artículo 169 al 176, artículo 180, 186, así como del artículo 192 al 203, así como el artículo 207, ordenando así correr la numeración de los restantes artículos)

@@ -1,6 +1,3 @@
-Separación de Pistas Paralelas
-Artículo 21.-En aquellos aeródromos en que se disponga de pistas paralelas para uso simultáneo solamente cuando existan condiciones visuales, la distancia mínima entre sus respectivos ejes deberá ser :
-210 m. Cuando la letra de clasificación técnica sea A o B para la pista más larga;
-150 m. Cuando la letra de clasificación técnica de la pista más larga sea C;
-120 m. Cuando la letra de clasificación técnica de la pista más larga sea D, E, o F.
-Nota: Las operaciones IFR simultáneas no han sido consideradas.
+Artículo 21.- Los propietarios de aeródromos particulares, o privados en que no opere el Estado, podrán establecer el cobro de derechos de aterrizaje con tarifas aprobadas por el Consejo Técnico de Aviación Civil. Sus rentas serán dedicadas al mantenimiento y operación de los mismos aeródromos bajo las normas técnicas que dicte la autoridad competente.
+(Así reformado por el artículo 12 del decreto ejecutivo N°42395 del 7 de abril del 2020, que aprobó el Reglamento para el Diseño y Construcción de Aeródromos, Volumen l, denominado RAC-14)
+(Así modificada su numeración por el artículo 17 del decreto ejecutivo N°42395 del 7 de abril del 2020, que aprobó el Reglamento para el Diseño y Construcción de Aeródromos, Volumen l, denominado RAC-14, que lo traspasó del antiguo artículo 187 al 21, ya que el artículo 3° del decreto ejecutivo en mención, derogó los numerales del 1 al 154, 158, 163, así como del artículo 169 al 176, artículo 180, 186, así como del artículo 192 al 203, así como el artículo 207, ordenando así correr la numeración de los restantes artículos)

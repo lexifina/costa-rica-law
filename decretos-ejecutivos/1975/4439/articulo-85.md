@@ -1,1 +1,1 @@
-Artículo 85.-Se considerará como obstáculo, y se eliminará todo lo que la autoridad competente, después de realizar un estudio aeronáutico, opine que pueda constituir un peligro para las aeronaves que se encuentren en el área de movimiento, o en vuelo dentro de los límites de las superficies horizontal, interna y cónica.
+Artículo 85.- (Derogado por el artículo 3° del decreto ejecutivo N° 42395 del 7 de abril del 2020, que aprobó el Reglamento para el Diseño y Construcción de Aeródromos, Volumen l, denominado RAC-14)

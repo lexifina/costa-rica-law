@@ -1,2 +1,1 @@
-Artículo 117.-En caso de obstáculos de gran extensión o estrechamente agrupados entre sí, se colocarán luces superiores en el punto o borde más alto respecto a la superficie de señalamiento de los mismos, a intervalos no superiores a 45 m., a fin de indicar la configuración general y el tamaño del obstáculo. Si hay dos o más bordes de la misma altura se señalará el que se encuentre más cerca del área de aterrizaje.
-Nota: Los obstáculos consistentes en áreas edificadas o cubiertas de árboles se consideran como obstáculos de gran extensión.
+Artículo 117.- (Derogado por el artículo 3° del decreto ejecutivo N° 42395 del 7 de abril del 2020, que aprobó el Reglamento para el Diseño y Construcción de Aeródromos, Volumen l, denominado RAC-14)
