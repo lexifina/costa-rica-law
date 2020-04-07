@@ -1,1 +1,0 @@
-Artículo 2º—Al entrar en vigencia la presente resolución, se deja sin efecto la actualización efectuada mediante la resolución número RES-DGH-059-2019, del siete de octubre de 2019, publicada en La Gaceta número 196 del 16 de octubre de 2019.
