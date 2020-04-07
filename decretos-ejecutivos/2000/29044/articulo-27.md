@@ -1,2 +1,2 @@
-Artículo 27.-Una vez verificados los requisitos del artículo 26, podrá otorgarse, el monto del subsidio temporal de empleo, cuyo monto será fijado por la Dirección Nacional de Empleo para cada declaratoria de emergencia, en consideración con la disponibilidad presupuestaria. El monto del subsidio no podrá ser inferior al resultado de la aplicación de la fórmula de cálculo establecida en el artículo 16 de este Decreto.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 42272 del 30 de marzo del 2020)
+Artículo 27.-Una vez verificados los requisitos del artículo 26, podrá otorgarse, el monto del subsidio temporal de empleo, cuyo monto será fijado por la Dirección Nacional de Empleo para cada declaratoria de emergencia, en consideración con la disponibilidad presupuestaria.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 42290 del 7 de abril del 2020)
