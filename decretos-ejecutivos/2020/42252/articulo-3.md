@@ -1,0 +1,1 @@
+Artículo 3º—Se insta a las instituciones pertenecientes al Poder Ejecutivo que deban otorgar permisos para la operación del sistema de incineración objeto de esta declaratoria, tramitar los permisos de su competencia con la máxima celeridad y prioridad que permitan las normativas vigentes.

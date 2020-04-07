@@ -1,0 +1,20 @@
+N° 42252-SP
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE SEGURIDAD PÚBLICA
+De conformidad con las facultades establecidas en los artículos 140, incisos 3 y 18, 146 de la Constitución Política, 25.1 y 27.1 de la Ley N° 6227 del 02 de mayo de 1978, Ley General de la Administración Pública y con vista en el Tratado de Amistad, Comercio y Navegación con los Estados Unidos, firmado en Washington el 10 de julio de 1851, aprobado mediante Ley N° 46 del 21 de enero de 1852.
+Considerando:
+I.—Que geográficamente, Costa Rica se encuentra ubicado entre los Estados productores de estupefacientes del sur de América y los países consumidores del norte de América, lo que genera un importante tránsito de drogas por nuestro territorio, aguas jurisdiccionales y Espacio Aéreo.
+II.—Que por dificultades de múltiple naturaleza, entre ellas la imposibilidad de fumigar con herbicidas las plantaciones y el desarrollo de nuevas variedades híbridas de las especies vegetales de las que se extraen alcaloides, la producción de drogas se ha multiplicado exponencialmente.
+III.—Que junto con un aumento en las cantidades de droga que transita por nuestros espacios soberanos, nuestras autoridades han aumentado también, de manera significativa, sus capacidades de interdicción de cargamentos de estupefacientes, realidad que se hace patente en el incremento de los decomisos de estos productos ilícitamente traficados.
+IV.—Que por las condiciones anteriormente consideradas, la cantidad de droga decomisada que debe ser adecuadamente destruida es cada vez mayor y no sólo excede las capacidades de nuestras autoridades para tal efecto, sino que éstas han debido recurrir a empresas privadas y a la cooperación internacional para evitar grandes acumulaciones de narcóticos decomisados que generan problemas de salud y, lo que es más grave, grandes amenazas de seguridad al tener cantidades significativas de droga, cuya apropiación sería un indudable objetivo por parte de la criminalidad organizada.
+V.—Que para interdictar el narcotráfico y disponer del producto decomisado, resulta de capital importancia para las autoridades competentes, contar con un sistema de incineración que, contando con las máximas garantías ambientales y de seguridad, permitan un adecuado desecho de todas las drogas producto del decomiso por parte de nuestras autoridades.
+VI.—Que la oficina de Asuntos Internacionales de Narcóticos y Aplicación de la Ley (INL, por sus siglas en inglés) es una de las oficinas en el Departamento de Estado de los Estados Unidos, cuya autoridad deriva del Protocolo de Asistencia Extranjera (Foreign Assitance Act -FAA- de 1961). Bajo este protocolo, INL está encargada de proveer a los gobiernos huéspedes el desarrollo e implementación de medidas efectivas antinarcóticas, combate al crimen, y control de fronteras.
+VII.—Que la INL, ha establecido una hoja de ruta con el propósito de establecer los requerimientos necesarios para la compra de un incinerador de drogas, y posibles sustancias químicas, para ser donado al gobierno de Costa Rica, el cual servirá para la destrucción de dichas sustancias químicas ilícitas.
+VIII.—Que el proceso de donación de dicho incinerador se encuentra en sus últimas etapas de compra, de acuerdo a especificaciones técnicas acordadas de antemano y en apego las regulaciones nacionales e internacionales, como por ejemplo, el Decreto Ejecutivo N° 39136-S-MINAE del 15 de junio de 2015 “Reglamento sobre las condiciones de operación y control de emisión de instalaciones para coincineración de residuos sólidos ordinarios”. Por tanto,
+Decretan:
+DECLARATORIA DE INTERÉS PÚBLICO DE LA
+ADQUISICIÓN DE UN SISTEMA DE INCINERACIÓN
+PARA LA DISPOSICIÓN DE LA DROGA
+DECOMISADA POR LAS AUTORIDADES
+COSTARRICENSES
+Artículo 1º—Se declara de interés público la adquisición de un sistema de incineración para la disposición de la droga decomisada por las autoridades costarricenses. El cual fue adquirido por la oficina de Asuntos Internacionales de Narcóticos y Aplicación de la Ley del Departamento de Estado del Gobierno de los Estados Unidos y será donado al Gobierno de Costa Rica.
