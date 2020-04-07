@@ -1,0 +1,2 @@
+Artículo 6.- Vigencia. Rige a partir de su comunicación. Publíquese igualmente en la página Web del Ministerio de Comercio Exterior, así como en el Diario Oficial La Gaceta. La presente Circular se mantendrá vigente en tanto rija la declaratoria de emergencia nacional sanitaria dispuesta por el Decreto Ejecutivo N° 42227-MP-S del 16 de marzo de 2020 o así lo disponga la Directora General de Comercio Exterior.
+San José, 31 de marzo del 2020.
