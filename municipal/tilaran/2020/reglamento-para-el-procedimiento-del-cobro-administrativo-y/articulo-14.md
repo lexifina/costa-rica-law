@@ -1,0 +1,1 @@
+Artículo 14º. Horario de actuaciones: Los funcionarios del Proceso de Servicios Ciudadanos y Técnicos actuarán normalmente en horas y días hábiles. Sin embargo, podrán actuar fuera de esas horas y días hábiles, cuando sea necesario para lograr el cumplimiento de sus deberes de gestión, fiscalización o recaudación tributaria.

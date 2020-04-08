@@ -1,0 +1,1 @@
+Artículo 42º.De la Divulgación de la estrategia de cobro: el Coordinador del Proceso de Servicios Ciudadanos y Técnicos, en coordinación con los Asistentes Técnicos del proceso a cargo, definirá las formas y medios de divulgar en los contribuyentes la estrategia de cobro anual a aplicar por parte de la municipalidad.

@@ -1,0 +1,1 @@
+Artículo 36º. Inclusión de los arreglos de pago en las constancias de pago de tributos municipales: Cuando un contribuyente solicite una constancia de pago de impuestos y mantenga un arreglo de pago sobre su morosidad, deberá indicarse en la misma la existencia del arreglo y su condición de si está al día o no.

@@ -1,0 +1,1 @@
+Artículo 30º. Ubicación y responsable de custodia del Expediente: los expedientes serán resguardados por el personal de la Unidad de Asistencia Técnica del Proceso de Servicios Ciudadanos y Técnicos y es responsabilidad de ésta unidad la custodia del mismo.

@@ -1,0 +1,1 @@
+Artículo 43º.Seguimiento al Cumplimiento de la Estrategia Es responsabilidad el Coordinador del Proceso de Servicios Ciudadanos y Técnicos, dar seguimiento al cumplimiento de la estrategia de cobro por parte de los funcionarios e informar regularmente de sus resultados a la Alcaldía.

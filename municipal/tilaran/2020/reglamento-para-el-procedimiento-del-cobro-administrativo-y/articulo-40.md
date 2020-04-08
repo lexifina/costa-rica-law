@@ -1,0 +1,3 @@
+Capítulo VI
+Estrategia de Cobro e Incentivos
+Artículo 40º. Estrategia de Cobro: el Coordinador del Proceso de Servicios Ciudadanos y Técnicos, en coordinación con los Asistentes Técnicos del proceso a cargo, establecerá anualmente, en el mes de julio de cada año, la estrategia de cobro para el año posterior, orientada a promover el pronto pago en los contribuyentes, la cual sera sometida a la aprobación previa del (de la) Alcalde (sa) Municipal junto con el Plan Presupuesto asociado al proceso citado. La estrategia debe contemplar: política de incentivos para el pago por adelantado de los servicios y tributos municipales, acciones de información a desarrollar sobre las fechas de cobro, forma y calendario de ejecución de los avisos de cobro administrativo.

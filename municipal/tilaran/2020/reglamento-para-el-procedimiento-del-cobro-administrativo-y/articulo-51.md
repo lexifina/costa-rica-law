@@ -1,0 +1,1 @@
+Artículo 51º. Condonación de honorarios. Procederá únicamente la condonación de los honorarios profesionales cuando así lo haya determinado el abogado director del proceso, el cual lo hará constar mediante nota dirigida al Coordinador del Proceso de Servicios Ciudadanos y Técnicos con la justificacion correspondiente.

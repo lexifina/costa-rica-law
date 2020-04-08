@@ -1,0 +1,5 @@
+Artículo 6º. Dependencias Involucradas: Las áreas municipales que tienen competencia en la Administración Tributaria son todas aquellas que realizan acciones vinculadas con la gestión de tributos, tasas y servicios. Las áreas que la integran son:
+• Unidad de Asistencia Técnica: Su función principal es mantener actualizado la información documental y digital de todas las propiedades que existen en el cantón.
+Le corresponde también, incluir y traspasar fincas nuevas, y mantener actualizada el valor de los diferentes predios en el canton, regular y fiscalizar toda aquella persona física o jurídica que desarrolla una actividad lucrativa en el cantón.
+• Unidad de inspecciones y notificaciones: Es la encargada de realizar las gestiones de notificación de todas las actuaciones a los contribuyentes y sujetos pasivos para informarles de sus obligaciones tributarias.
+• Plataforma de Servicios: Es la encargada de brindar la información que el contribuyente y sujeto pasivo requiere sobre los diferentes trámites municipales; así como de realizar la

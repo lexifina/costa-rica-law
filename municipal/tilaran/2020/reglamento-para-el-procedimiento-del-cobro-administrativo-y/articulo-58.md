@@ -1,0 +1,3 @@
+Capítulo VIII
+Terminación de la Suspensión de la Acción Judicial
+Artículo 58º. Terminación o suspensión del proceso judicial: Una vez que el cobro judicial haya sido iniciado, sólo podrá darse por terminado o suspendido, segun sea el caso, el proceso judicial por el pago total de la suma adeudada a la Municipalidad, incluyendo las costas procesales, personales y cualquier otro gasto generado durante su tramitación o con ocasión del mismo.También podrá darse por terminado en el caso en que se determine fehacientemente o así se declare, la imposibilidad de cobro de la cuenta por causas ajenas al abogado.

@@ -1,0 +1,1 @@
+Artículo 55º. Otras sanciones. La Municipalidad podrá realizar los trámites administrativos y judiciales respectivos contra el profesional en derecho, en aquellos casos en que se demuestre negligencia, dolo, culpa grave o impericia en la tramitación judicial de las obligaciones vencidas. Sanciones que podrán ser administrativas, disciplinarias, penales o civiles.

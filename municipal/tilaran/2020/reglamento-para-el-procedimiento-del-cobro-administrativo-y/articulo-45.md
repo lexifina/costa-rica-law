@@ -1,0 +1,1 @@
+Artículo 45º. Formalización de la contratación: Los oferentes seleccionados firmarán un contrato con la municipalidad, así como cualquier otro documento que requiera la institución, necesario para la prestación eficiente de estos servicios y para cumplir con las normas que regulan este tipo de contratación.

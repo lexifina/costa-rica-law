@@ -1,0 +1,6 @@
+Artículo 3°. Definición de Obligación del Sujeto Pasivo: Para los fines de este Reglamento se entiende por obligaciones tributarias documentadas y no documentadas:
+1) Aquellas que representen deudas por concepto de impuestos nacionales y municipales bajo administración del Municipio, que presenten atraso en el pago de las mismas o que se encuentren vencidas.
+2) Aquellas que representen deudas por concepto de tasas y contribuciones especiales que presenten atraso en el pago o que se encuentren vencidas.
+3) Aquellas que representen deudas por concepto de alquileres, arrendamientos, canones, préstamos o créditos que se hayan otorgado a beneficiarios de programas municipales que presenten atraso en el pago o, que se encuentren vencidas o que exista algún tipo de incumplimiento que obligue a su vencimiento.
+4) Aquellas obligaciones que incumplan alguna de las cláusulas pactadas entre la Municipalidad de Tilarán y el deudor que faculten al municipio a darlas por vencidas, en forma anticipada o con el vencimiento del plazo de la obligación, o de la deuda, que contemplen las leyes y reglamentos aplicables y vigentes.
+5) Aquellas obligaciones correspondientes a las multas, intereses y recargos que se deriven de los incisos anteriores
