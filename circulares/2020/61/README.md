@@ -13,3 +13,4 @@ Instrumento de medición a utilizar por los Juzgados, Tribunales Penales, Seccio
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-04-01 | la propia norma |
+| 2 | 2020-04-08 | Circular 67 (2020-04-08) |

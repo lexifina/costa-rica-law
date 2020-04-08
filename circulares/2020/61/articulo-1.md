@@ -1,4 +1,5 @@
 Nº 61-2020
+(Nota de Sinalevi: Mediante circular N° 67-2020 del 8 de abril del 2020, referente a Lineamientos generales para la implementación del acuerdo adoptado por la Corte Plena en sesión extraordinaria N°18-2020, celebrada el 2 de abril de 2020, publicada en el Boletín Judicial N° 95 del 20 de mayo del 2020, se acordó establecer que la presente norma se mantiene por el plazo del 13 al 20 de abril del 2020, en lo que se refiere a la Jurisdicción Penal.)
 ASUNTO: Instrumento de medición a utilizar por los Juzgados, Tribunales Penales, Secciones de Flagrancia, Ejecución de la Pena, Tribunal de Apelación y Sala Tercera, para remitir los informes de labores en modalidad de teletrabajo, dados por la emergencia del COVID-19.
 A LOS DESPACHOS JUDICIALES DEL PAÍS
 SE LES HACE SABER QUE:
@@ -6,28 +7,16 @@ El Consejo Superior del Poder Judicial en sesión N° 30-20 celebrada el 31 de m
 Se Autoriza que las juezas y jueces de flagrancia colaboren en materia ordinaria, en aquellos casos que por carga de trabajo se justifique según la potestad que tiene la Jueza o Juez Coordinador de organizar su oficina, con excepción del Tribunal de Flagrancia del Segundo Circuito Judicial de San José.
 Asimismo, se autoriza que los diferentes Tribunales Penales revisen sus agendas para que puedan, en la medida de lo posible, adelantar juicios de personas privadas de libertad.
 A partir del 30 de marzo de 2020, cada Jueza o Juez, Coordinadora o Coordinador Judicial, Técnica o Técnico Judicial deberán de llevar un control personal de las labores realizadas en teletrabajo conforme la plantilla adjunta y remitirla a la Jueza o Juez Coordinador o Coordinadora o Coordinador Judicial según corresponda, al finalizar el viernes de cada semana laboral.
-[imagen]
 La Jueza o Juez Coordinador junto a la Coordinadora o Coordinador Judicial revisarán las plantillas individuales.
 La Dirección de Planificación remitirá por medio de correo electrónico a la cuenta oficial del despacho y a la Jueza o Juez Coordinador el acceso a la carpeta electrónica OneDrive para que las diferentes oficinas registren la información solicitada. El acompañamiento para completar la información y cualquier duda adicional se canalizará por medio del profesional asignado de la Dirección de Planificación.
 Los juzgados contravencionales deberán pasar el reporte de funciones directamente al Consejo Superior.
 La Sala Tercera. La Secretaría de la Sala procederá a cargar en el sistema OneDrive los resultados semanales, a través de un link que llegará a la cuenta oficial del despacho, las variables serán cuantitativas y se detallarán elementos cualitativos si así se considera, las variables a completar son las siguientes:
-[imagen]
-[imagen]
 Los Tribunales de Apelación. La persona Coordinadora Judicial procederá a cargar en el sistema OneDrive los resultados semanales, a través de un link que llegará a la cuenta oficial del despacho, las variables serán cuantitativas y se detallarán elementos cualitativos si así se considera, las variables a completar son las siguientes:
-[imagen]
 Los Tribunales Penales. La persona Coordinadora Judicial procederá a cargar en el sistema OneDrive los resultados semanales, a través de un link que llegará a la cuenta oficial del despacho, las variables serán cuantitativas y se detallarán elementos cualitativos si así se considera, las variables a completar son las siguientes:
-[imagen]
 Los Tribunales y Sección de Flagrancia. La persona Coordinadora Judicial procederá a cargar en el sistema OneDrive los resultados semanales, a través de un link que llegará a la cuenta oficial del despacho, las variables serán cuantitativas y se detallarán elementos cualitativos si así se considera, las variables a completar son las siguientes:
-[imagen]
 Los Juzgados Penales. La persona Coordinadora Judicial procederá a cargar en el sistema OneDrive los resultados semanales, a través de un link que llegará a la cuenta oficial del despacho, las variables serán cuantitativas y se detallarán elementos cualitativos si así se considera, las variables a completar son las siguientes:
-[imagen]
-[imagen]
 Los Juzgados de Ejecución de la Pena. La persona Coordinadora Judicial procederá a cargar en el sistema OneDrive los resultados semanales, a través de un link que llegará a la cuenta oficial del despacho, las variables serán cuantitativas y se detallarán elementos cualitativos si así se considera, las variables a completar son las siguientes:
-[imagen]
 Los Juzgados de Contravenciones. La persona Coordinadora Judicial procederá a cargar en el sistema OneDrive los resultados semanales, a través de un link que llegará a la cuenta oficial del despacho, las variables serán cuantitativas y se detallarán elementos cualitativos si así se considera, las variables a completar son las siguientes:
-[imagen]
-[imagen]
-[imagen]
 Los jueces coordinadores de contravenciones serán los encargados de comunicar al Consejo Superior.
 Seguimiento del instrumento:
 a. La persona Profesional responsable de la Dirección de Planificación debe dar seguimiento semanal, de forma que se verifique que las funcionarias o funcionarios en materia penal hagan una utilización efectiva de la matriz remitida, acorde con las condiciones propias de cada despacho, los resultados recopilados serán remitidos a la jerarquía institucional, partiendo de los datos recopilados de la primera semana se podrán desarrollar estimaciones o proyecciones y revisión de las cargas de trabajo realizadas en ese periodo para efectuar las recomendaciones que correspondan.
@@ -35,5 +24,4 @@ b. Los funcionarios y funcionarias, servidoras y servidores judiciales deberán 
 c. La Coordinadora o Coordinador Judicial de cada oficina será el responsable de compilar los datos remitidos por cada funcionaria o funcionario en la matriz creada para la oficina cargada en OneDrive (se pasará un link por correo electrónico a la cuenta oficinal del despacho y Jueza o Juez Coordinador) durante la primera audiencia de los días martes, lo cual será revisado por el Profesional de la Dirección de Planificación a cargo.
 d. La persona profesional de la Dirección de Planificación deberá revisar la información cargada en OneDrive, dar el seguimiento respectivo y remitir un informe por materia al Coordinador del Proyecto de Mejora Integral del Proceso Penal Ámbito Jurisdiccional, quien a su vez revisará los datos y procederá a informar a las Jefaturas de la Dirección de Planificación, para remitir un informe a la jerarquía institucional.
 e. Para una comunicación efectiva, deberán utilizar medios electrónicos, a saber la aplicación “Microsoft Teams” o correo electrónico, con el fin de aclarar dudas o consultas que se tengan.
-[imagen]
 San José, 1° de abril de 2020.
