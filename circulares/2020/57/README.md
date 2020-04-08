@@ -14,3 +14,4 @@ Disposiciones para el funcionamiento del sistema de justicia penal durante la at
 | --- | --- | --- |
 | 1 | 2020-03-27 | la propia norma |
 | 2 | 2020-04-01 | Circular 60 (2020-04-01) |
+| 3 | 2020-04-08 | Circular 67 (2020-04-08) |

@@ -1,4 +1,5 @@
 N° 57-2020
+(Nota de Sinalevi: Mediante circular N° 67-2020 del 8 de abril del 2020, referente a Lineamientos generales para la implementación del acuerdo adoptado por la Corte Plena en sesión extraordinaria N°18-2020, celebrada el 2 de abril de 2020, publicada en el Boletín Judicial N° 95 del 20 de mayo del 2020, se acordó establecer que la presente norma se mantiene por el plazo del 13 al 20 de abril del 2020, en lo que se refiere a la Jurisdicción Penal.)
 ASUNTO: Disposiciones para el funcionamiento del sistema de justicia penal durante la atención de la emergencia nacional por los riesgos de contagio del virus que ocasiona la enfermedad del Covid-19, conforme a lo dispuesto en la circular de la Secretaría General de la Corte N° 52-20 del 20 de marzo del año en curso.
 A TODOS LOS DESPACHOS JUDICIALES DEL PAÍS
 QUE CONOCEN LA MATERIA PENAL
