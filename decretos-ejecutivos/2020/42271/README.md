@@ -14,3 +14,4 @@ Reglamento a la Ley Alivio Fiscal ante el COVID-19 (Moratoria del impuesto al va
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-03-29 | la propia norma |
+| 2 | 2020-04-08 | Decreto Ejecutivo 42292 (2020-04-08) |
