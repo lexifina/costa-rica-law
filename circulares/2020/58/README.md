@@ -13,3 +13,4 @@ Aclaración del acuerdo de la sesión extraordinaria número 15-2020 de 20 de ma
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-03-28 | la propia norma |
+| 2 | 2020-04-08 | Circular 67 (2020-04-08) |

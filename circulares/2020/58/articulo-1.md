@@ -1,4 +1,5 @@
 N° 58-2020
+(Nota de Sinalevi: Mediante circular N° 67-2020 del 8 de abril del 2020, referente a Lineamientos generales para la implementación del acuerdo adoptado por la Corte Plena en sesión extraordinaria N°18-2020, celebrada el 2 de abril de 2020, y publicada en el Boletín Judicial N° 95 del 20 de mayo del 2020, se acordó establecer que la presente norma se mantiene por el plazo del 13 al 20 de abril del 2020, en lo que se refiere a la Jurisdicción Penal.)
 ASUNTO: Aclaración del acuerdo de la sesión extraordinaria número15-2020 de 20 de marzo de 2020, artículo Único, comunicado mediante Circular N° 52-2020 del 20 de marzo de 2020.
 A LOS DESPACHOS JUDICIALES DE PAÍS,
 ABOGADOS, ABOGADAS Y PÚBLICO EN GENERAL
