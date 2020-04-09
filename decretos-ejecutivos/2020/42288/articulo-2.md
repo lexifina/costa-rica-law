@@ -1,0 +1,1 @@
+Artículo 2.- Los establecimientos farmacéuticos que incumplan con la prohibición establecida en este Decreto Ejecutivo, podrán hacerse acreedores a las medidas sanitarias especiales contempladas en el artículo 355 y siguientes de la Ley General de Salud, Ley número No. 5395 del 30 de octubre de 1973, según corresponda.
