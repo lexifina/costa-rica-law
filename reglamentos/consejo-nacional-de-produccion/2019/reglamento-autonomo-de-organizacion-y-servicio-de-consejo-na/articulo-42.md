@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Llegadas Tardías
+Artículo 42.—Se considera llegada tardía, el ingreso a laborar cinco minutos posteriores a la hora de inicio de la jornada laboral institucional, que en caso de ser injustificada implicará la aplicación de la sanción correspondiente, Si el trabajador o trabajadora se presentara a laborar con posterioridad a las once y treinta minutos del día se considerará como media ausencia de conformidad con lo dispuesto en el Título XV del presente reglamento. En todo caso, el funcionario o funcionaria habrá de registrar obligatoriamente el ingreso al centro de trabajo mediante el sistema correspondiente.

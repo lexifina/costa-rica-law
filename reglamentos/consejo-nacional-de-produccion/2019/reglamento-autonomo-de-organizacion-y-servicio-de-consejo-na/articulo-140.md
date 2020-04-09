@@ -1,0 +1,1 @@
+Artículo 140.—Presunción de conocimiento.—El presente reglamento se presumirá de conocimiento de los trabajadores y las trabajadoras del CNP, posterior a su publicación en La Gaceta, a su divulgación y comunicación oficial y será de observancia obligatoria.

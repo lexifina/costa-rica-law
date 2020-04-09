@@ -1,0 +1,1 @@
+Artículo 141.—El CNP se reserva el derecho de adicionar o modificar, en cualquier momento, las disposiciones de este reglamento; las cuales deberá someter a conocimiento de SINCONAPRO, SIPROCNP y aprobación de la Junta Directiva de la Institución.

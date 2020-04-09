@@ -1,0 +1,1 @@
+Artículo 31.—Las dependencias de Recursos Humanos velarán porque estas instrucciones y los procedimientos establecidos sean acatados, verificando que las jefaturas correspondientes apliquen las sanciones cuando el caso lo amerite.

@@ -1,0 +1,1 @@
+Artículo 56.—Cuando un trabajador o trabajadora se encuentra en el disfrute de sus vacaciones y le sobrevenga una incapacidad, en forma inmediata se suspende el disfrute de vacaciones y empieza a regir la incapacidad, reiniciándose el disfrute a partir de la fecha en que vence la incapacidad.

@@ -1,0 +1,1 @@
+Artículo 57.—La Institución se regulará en cuanto al otorgamiento, registro y control de incapacidades por enfermedad, licencias por Maternidad y licencias por fase terminal, conforme los alcances del “Reglamento para el Otorgamiento de Licencias e Incapacidades a los Beneficiarios del Seguro Social emitidas por la Caja Costarricense de Seguro Social y sus reformas

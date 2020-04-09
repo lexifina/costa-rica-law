@@ -1,0 +1,1 @@
+Artículo 33.—Las dependencias de Recursos Humanos no podrán tramitar más de tres justificaciones al mes por concepto de olvido, en el tanto que es deber del personal de la Institución, realizar el registro de ingreso a su centro de labores.

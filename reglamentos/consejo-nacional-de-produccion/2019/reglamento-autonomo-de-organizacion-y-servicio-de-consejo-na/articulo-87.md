@@ -1,0 +1,4 @@
+CAPÍTULO II
+Del Procedimiento
+Artículo 87.—La persona afectada por acoso u hostigamiento sexual podrá plantear la denuncia sea en forma verbal o escrita ante la Gerencia General y tratándose de FANAL de su Administración General. En caso que el denunciado sea el Gerente General, el Sub Gerente General, el Director o Sub Director FANAL, se plantea la denuncia ante el Presidencia Ejecutiva. Si es el Presidente Ejecutivo el denunciado, será planteada ante el Consejo de Gobierno. De lo manifestado por la persona denunciante se levantará un acta con la colaboración de la Asesoría Jurídica,
+Los plazos para el cómputo de la prescripción de la interposición de la denuncia y de la aplicación de la sanción correrán de conformidad con lo establecido en el artículo 38 de la Ley N° 7476 y sus reformas, Ley contra Hostigamiento o acoso sexual en el empleo o la docencia.

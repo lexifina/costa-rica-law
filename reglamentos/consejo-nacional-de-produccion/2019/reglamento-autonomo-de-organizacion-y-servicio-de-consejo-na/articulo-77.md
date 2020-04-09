@@ -1,0 +1,1 @@
+Artículo 77.—Queda terminantemente prohibido fumar o vapear dentro de las instalaciones de la Institución, la cual incluye todos los lugares conexos o anexos y vehículos que los trabajadores y las trabajadoras utilizan en el desempeño de su labor, conforme lo establece la Ley N° 9028.—Ley General de Control del Tabaco y sus Efectos Nocivos en la Salud.

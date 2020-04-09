@@ -1,0 +1,1 @@
+Artículo 116.—Encontrándose en curso un Procedimiento Administrativo que persiga la responsabilidad civil o laboral de un funcionario, no se aceptará la renuncia al cargo con pago de prestaciones legales y demás incentivos vigentes, hasta tanto no se encuentre firme el acto final del procedimiento, salvedad hecha de norma expresa más favorable que lo permita.

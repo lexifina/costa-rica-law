@@ -1,0 +1,1 @@
+Artículo 70.—El personal de la Institución sin distinción alguna, gozará de las mismas oportunidades para optar por puestos de mayor nivel ocupacional y serán considerados elegibles en el ramo de su especialidad, siempre y cuando reúnan los requisitos formales solicitados conforme la normativa interna vigente.

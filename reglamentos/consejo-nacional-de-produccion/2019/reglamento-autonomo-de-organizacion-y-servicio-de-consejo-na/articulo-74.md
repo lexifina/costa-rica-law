@@ -1,0 +1,1 @@
+Artículo 74.—De conformidad con el artículo 60 de la Ley N° 7600 denominada Ley de Igualdad de Oportunidades para las Personas con Discapacidad, la Institución garantizará la eliminación de acciones o disposiciones que promuevan la discriminación del personal con discapacidades, fomentando la igualdad de oportunidades entre el personal institucional.

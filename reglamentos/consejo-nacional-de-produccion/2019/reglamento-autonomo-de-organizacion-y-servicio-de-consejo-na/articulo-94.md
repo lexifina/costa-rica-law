@@ -1,0 +1,1 @@
+Artículo 94.—En un plazo de quince días hábiles a partir del día de la comparecencia de las partes, el Órgano Director emitirá el informe recomendativo que trasladará a la Gerencia General o a la Administración General FANAL según corresponda, con las recomendaciones disciplinarias que considere aplicables, quien resolverá en definitiva en un plazo de ocho días hábiles.

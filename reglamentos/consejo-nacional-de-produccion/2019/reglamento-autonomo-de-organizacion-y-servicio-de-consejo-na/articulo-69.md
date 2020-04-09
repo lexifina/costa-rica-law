@@ -1,0 +1,1 @@
+Artículo 69.—Queda prohibido a las unidades administrativas encargadas de los procesos de reclutamiento, selección y nombramiento de personal, así como a sus respectivos Titulares Subordinados, realizar actos de discriminación.

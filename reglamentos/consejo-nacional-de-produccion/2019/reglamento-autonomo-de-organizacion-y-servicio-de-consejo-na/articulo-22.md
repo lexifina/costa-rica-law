@@ -1,0 +1,1 @@
+Artículo 22.—El expediente del personal deberá contener todos aquellos documentos y datos que sirven para determinar el historial de la relación de servicio en asuntos como: información personal del funcionario y documentos que la respaldan, acciones de personal, calificaciones de la evaluación de desempeño, aspectos disciplinarios y otros que se consideren de importancia.

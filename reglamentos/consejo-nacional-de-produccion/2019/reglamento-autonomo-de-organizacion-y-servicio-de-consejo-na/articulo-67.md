@@ -1,0 +1,1 @@
+Artículo 67.—El personal que labora en la Institución ya sea con nombramiento en propiedad o interino, desempeñará sus funciones en igualdad de condiciones y tendrán los mismos derechos en relación a jornada laboral, remuneración salarial, acceso a la carrera administrativa, vacaciones, permisos, licencias y demás beneficios que estén establecidos por normativa interna.

@@ -1,0 +1,1 @@
+Artículo 95.—La resolución final tendrá recurso de revocatoria con apelación en subsidio para ante la Gerencia General o la Administración General FANAL, que será interpuesto en un plazo de tres días hábiles siguientes a la notificación de ésta. La apelación será conocida por la Junta Directiva del CNP o la Gerencia General según corresponda.

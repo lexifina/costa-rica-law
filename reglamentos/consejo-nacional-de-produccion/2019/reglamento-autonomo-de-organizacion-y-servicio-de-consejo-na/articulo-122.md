@@ -1,0 +1,1 @@
+Artículo 122.—Por vía de mandamiento, el Órgano Instructor o Director podrá requerir de previo o durante la tramitación del Procedimiento, la actuación de cualquiera de las dependencias de la Institución en asuntos de su especialidad, las cuales deberán cumplir con lo solicitado dentro del plazo que señale el órgano.

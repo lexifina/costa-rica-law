@@ -1,0 +1,1 @@
+Artículo 88.—La persona ofendida podrá poner en consideración de la Gerencia General y tratándose de FANAL de su Administración General, su reubicación temporal en la Institución en cualquier momento del proceso. La Gerencia General o la Administración General FANAL según corresponda resolverá en única instancia la procedencia de la reubicación temporal solicitada.

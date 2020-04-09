@@ -1,0 +1,3 @@
+Transitorio II.—La Administración dictará en un plazo no mayor a seis meses prorrogables por una única vez toda la normativa interna que sea requerida para la adecuada ejecución del presente reglamento.
+Este reglamento fue aprobado por la Junta Directiva del CNP, mediante los acuerdos: N° 39445 tomado en el Artículo 9°, de la sesión ordinaria N° 3008, celebrada el 05 de marzo del 2019, N° 39480 tomado en el Artículo 6°, de la sesión ordinaria N° 3013, celebrada el día 22 de mayo del 2019 y N° 39557 tomado en el artículo 4° de la sesión ordinaria 3027, celebrada el 06 de noviembre del 2019.
+Rige a partir de su publicación en el Diario Oficial La Gaceta.

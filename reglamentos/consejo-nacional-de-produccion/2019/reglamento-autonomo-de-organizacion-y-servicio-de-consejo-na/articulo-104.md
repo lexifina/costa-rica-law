@@ -1,0 +1,1 @@
+Artículo 104.—De previo o durante el transcurso de la comparecencia, se le debe indicar a las partes que pueden llegar a un arreglo conciliatorio, para lo cual, si se citaran de manera conjunta y de concretarse el mismo, se dejará constancia en un acta firmada por las partes y se archiva la gestión.

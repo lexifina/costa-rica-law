@@ -1,0 +1,1 @@
+Artículo 13.—Las calificaciones serán consideradas como parte de los criterios para ascensos, traslados y un factor de obligada consideración al decidir sobre cualquier modificación de los términos de la relación del servicio .

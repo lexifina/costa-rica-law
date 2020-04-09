@@ -1,0 +1,1 @@
+Artículo 113.—Estarán sujetos a responsabilidad disciplinaria todos aquellos funcionarios que, por dolo o culpa grave debidamente demostrado, faltan a sus deberes laborales de conformidad con lo dispuesto en el Código de Trabajo, en las leyes administrativas que le impongan deberes y responsabilidades y en lo indicado en el presente reglamento.

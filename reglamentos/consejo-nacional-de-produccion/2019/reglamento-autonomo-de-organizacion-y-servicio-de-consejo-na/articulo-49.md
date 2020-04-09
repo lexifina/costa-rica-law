@@ -1,0 +1,1 @@
+Artículo 49.—El Reglamento de Teletrabajo para el personal de la Institución normará las condiciones y requerimientos necesarios para esta modalidad de prestación de servicio, no generando derechos adquiridos al personal incorporado bajo este sistema.

@@ -1,0 +1,1 @@
+Artículo 93.—Para los efectos probatorios del hecho deberá considerarse el estado de ánimo de la persona que presenta la denuncia, así como, su desempeño, cumplimiento y dinámica laboral. Cualquier valoración sobre la vida personal de quién denuncia será improcedente.

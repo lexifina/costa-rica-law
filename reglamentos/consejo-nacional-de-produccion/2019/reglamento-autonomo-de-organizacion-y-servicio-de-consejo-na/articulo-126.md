@@ -1,0 +1,5 @@
+CAPÍTULO IV
+Del Curso del Procedimiento
+Artículo 126.—El derecho de defensa se concederá al presunto responsable de la forma prescrita por la LGAP, debiendo comparecer en forma personal a la audiencia y, en casos de excepción, por medio de apoderado, debiendo indicarlo expresamente el Acto de Apertura.
+En la comparecencia oral y privada, el Órgano Instructor informará a las partes del objeto del Procedimiento, conocerá de las alegaciones de nulidad invocadas por las partes y dictará las medidas para sanear el procedimiento de ser posible. Posteriormente evacuará la prueba ofrecida, así como las alegaciones planteadas.
+Las partes, sus representantes debidamente acreditados y sus abogados podrán hacer uso de la palabra, lo cual será regulado por quien presida el Órgano, para asegurarse que su empleo sea razonable siendo que, de intervenir varios abogados por una misma parte, solo uno de ellos podrá pronunciarse respecto a las conclusiones que se emitirán a efecto de dar por finalizada la audiencia.

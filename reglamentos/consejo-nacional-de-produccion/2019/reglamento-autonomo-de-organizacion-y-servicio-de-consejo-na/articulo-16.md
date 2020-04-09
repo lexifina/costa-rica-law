@@ -1,0 +1,1 @@
+Artículo 16.—La jefatura concederá una entrevista al servidor (a) dentro de los dos días hábiles siguientes al recibo de la impugnación y deberá resolver dentro de los tres días siguientes a esa entrevista. Si persiste la inconformidad del servidor, este podrá apelar ante la Junta de Relaciones Laborales al amparo de lo dispuesto en el Convenio Colectivo vigente del CNP.

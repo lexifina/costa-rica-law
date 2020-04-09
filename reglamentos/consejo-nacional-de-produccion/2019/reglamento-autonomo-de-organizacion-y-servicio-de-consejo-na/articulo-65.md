@@ -1,0 +1,1 @@
+Artículo 65.—No puede ser computado para el otorgamiento del treceavo mes o aguinaldo, lo que percibe económicamente la persona durante su incapacidad por enfermedad o accidente, toda vez que los subsidios no tienen naturaleza salarial. Se excepciona de lo indicado, lo tocante a las licencias por Maternidad con fundamento en lo dispuesto en el artículo 95 del Código de Trabajo.

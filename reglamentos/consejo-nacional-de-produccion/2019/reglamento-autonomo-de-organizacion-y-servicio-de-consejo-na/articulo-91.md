@@ -1,0 +1,3 @@
+Artículo 91.—Se dará traslado de la denuncia a la persona denunciada en el Acto de Apertura del Procedimiento, concediéndole un plazo de ocho días hábiles para que se refiera a todos y cada uno de los hechos que se le imputan y ofrezca los medios de prueba en descargo de los mismos.
+Si el denunciado no ejerce su defensa se continuará con el proceso utilizando toda la documentación y prueba que exista en el expediente hasta la formulación del informe final por parte del Órgano Director para ser elevado a conocimiento del Órgano Decisor.
+La denuncia de hostigamiento sexual que resulte ser falsa podrá implicar para la persona denunciante el incurrir en cualquiera de las conductas propias de la difamación, la injuria o la calumnia según el Código Penal.

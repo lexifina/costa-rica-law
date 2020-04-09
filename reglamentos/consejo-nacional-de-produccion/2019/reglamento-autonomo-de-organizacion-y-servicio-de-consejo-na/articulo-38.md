@@ -1,0 +1,1 @@
+Artículo 38.—En caso de que la jefatura correspondiente no acepte las justificaciones del trabajador o trabajadora y proceda a sancionar; el trabajador (a) podrá presentar los alegatos correspondientes ante la Junta de Relaciones Laborales dentro de los cinco días hábiles siguientes a la comunicación de la sanción.

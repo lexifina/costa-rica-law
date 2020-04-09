@@ -1,0 +1,1 @@
+Artículo 8º—En vacante de puestos profesionales con requisito legal obligatorio de poseer títulos profesionales e incorporación al respectivo Colegio, podrá ser nombrada únicamente la persona que reúna tales requisitos.

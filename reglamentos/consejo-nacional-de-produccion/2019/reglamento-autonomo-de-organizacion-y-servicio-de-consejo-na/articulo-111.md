@@ -1,0 +1,1 @@
+Artículo 111.—La Institución se compromete a disponer de un área técnica encargada de operativizar la instrucción de los Procedimientos administrativos Disciplinarios, para lo cual se le dotará del personal, equipo y facilidades necesarias para tales efectos.

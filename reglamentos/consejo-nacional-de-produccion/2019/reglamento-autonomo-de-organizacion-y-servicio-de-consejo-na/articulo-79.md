@@ -1,0 +1,1 @@
+Artículo 79.—Se establecerán las comisiones de salud ocupacional que, a juicio del Consejo de Salud Ocupacional, sean necesarias, en los términos que expresamente señala el artículo 288 del Código de Trabajo y el Decreto Ejecutivo N° 39408-MTSS de 28 de enero del 2016 o en su defecto la normativa vigente en la materia.
