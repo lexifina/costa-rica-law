@@ -1,0 +1,1 @@
+Transitorio Único.- Con la finalidad de dar seguimiento a la presente Directriz, las instituciones de la Administración Pública Centralizada informarán al Ministerio de Presidencia sobre las medidas realizadas en relación con la presente Directriz en el plazo de 10 días hábiles a partir de la entrada en vigencia de esta disposición.
