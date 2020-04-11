@@ -1,0 +1,1 @@
+Artículo 6.- Del incumplimiento de la orden sanitaria. De conformidad con el artículo 378 de la Ley General de Salud, al omiso en el cumplimiento de las órdenes sanitarias o de medidas sanitarias especiales o generales dictadas por las Autoridades de Salud, se le aplicará una multa fija de un salario base.

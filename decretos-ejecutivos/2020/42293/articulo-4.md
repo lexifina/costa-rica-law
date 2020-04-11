@@ -1,0 +1,2 @@
+Artículo 4.- De la Orden Sanitaria. La Autoridad de Salud emitirá y notificará la orden sanitaria, o delegará la realización de dicho acto en aquellas personas facultadas por leyes especiales o investidas de forma expresa por el Ministro de Salud, con calidad de autoridad sanitaria y con las atribuciones correspondientes.
+La Orden Sanitaria comunica al administrado una o varias medidas sanitarias especiales que deberán ser cumplidas en un plazo determinado.

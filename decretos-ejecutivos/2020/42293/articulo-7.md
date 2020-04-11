@@ -1,0 +1,4 @@
+Artículo 7.- De la multa en caso de aislamiento. De acuerdo con el artículo 378 de la Ley General de Salud, en caso de que el incumplimiento de la orden sanitaria se refiera a la medida de aislamiento señalada en el artículo 365 de la Ley General de Salud, se aplicará la siguiente gradualidad de la multa fija:
+a) A la persona con factores de riesgo de un cuadro grave por una enfermedad contagiosa, que sea objeto de orden de aislamiento, una multa fija de un salario base.
+b) A la persona sospechosa de una enfermedad contagiosa o a aquella que, aun sin presentar síntomas o signos evidentes de dicha enfermedad, sea objeto de orden de aislamiento en razón de ser contacto cercano a un agente causal de la enfermedad, una multa fija de tres salarios base.
+c) A la persona que, médica o clínicamente, haya sido diagnosticada de una enfermedad contagiosa, una multa fija de cinco salarios base.

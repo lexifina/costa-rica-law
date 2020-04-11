@@ -1,0 +1,1 @@
+Artículo 3.- De la Inspección, vigilancia y control. Corresponde a la Autoridad de Salud las labores de inspección, vigilancia y control de las disposiciones de la Ley General de Salud, y demás leyes, reglamentos y disposiciones administrativas relativas a la salud, las cuales son de orden público.
