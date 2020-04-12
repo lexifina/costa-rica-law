@@ -1,2 +1,3 @@
-Artículo 6°.- Se exceptúa de la presente directriz los servicios que prestan aquellas instituciones necesarias para la atención de la emergencia nacional por COVID-19, quienes para esos efectos podrán requerir de la cantidad de personas servidoras que sean necesarias.
+Artículo 6.- Quedan exceptuados de la presente directriz, todos aquellos servidores públicos que sean necesarios para la atención de emergencia por COVID-19. Asimismo todos aquellos servidores públicos que sean requeridos por los Comités Municipales de Emergencia, deberán brindar la colaboración necesaria según lo que sea dispuesto por la Comisión Nacional de Emergencias y Prevención del Riesgo.
 (Así modificada su numeración por el artículo 1° de la directriz N° 78 del 2 de abril del 2020, que lo traspaso del antiguo artículo 5 al 6)
+(Así reformado por el artículo 1° de la directriz N° 80 del 12 de abril del 2020)
