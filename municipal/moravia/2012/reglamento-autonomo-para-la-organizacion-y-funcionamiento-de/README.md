@@ -18,3 +18,4 @@ Reglamento Autónomo para la Organización y Funcionamiento del Comité Cantonal
 | 3 | 2019-12-09 | Reglamento municipal 188 (2019-12-09) |
 | 4 | 2020-01-09 | Reglamento municipal 193 (2020-01-09) |
 | 5 | 2020-01-09 | Reglamento municipal 193 (2020-01-09) |
+| 6 | 2020-04-13 | Reglamento municipal 207 (2020-04-13) |
