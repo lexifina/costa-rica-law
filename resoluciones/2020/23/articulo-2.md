@@ -1,0 +1,7 @@
+Artículo 2º—Revisión de las solicitudes de exención genérica: El funcionario del Departamento de Gestión de Exenciones, encargado de la revisión de las solicitudes genéricas con fundamento en el artículo 8, inciso 33) del Título I de la Ley 9635, deberá verificar única y exclusivamente:
+a) Que el beneficiario de la exención corresponde a una junta de educación o administrativas de las instituciones públicas de enseñanza del Ministerio de Educación Pública (MEP).
+b) Que su solicitud este respaldada con el fundamento legal correspondiente.
+c) Que el beneficiario se encuentre al día en el pago de sus obligaciones con la Caja Costarricense de Seguro Social (CCSS) de conformidad con el artículo N° 74 inciso 5) de la Ley N° 17 de fecha 22 de octubre de 1943.
+d) Que el beneficiario se encuentre al día en el cumplimiento de sus obligaciones tributarias materiales y formales, así como en la presentación de las declaraciones tributarias a las que estuviera obligada ante las dependencias del Ministerio de Hacienda de conformidad con el artículo 18 bis de la Ley 4755 de fecha 3 de mayo de 1971.
+e) Que en la solicitud se indique, por parte del beneficiario, que toda adquisición de bienes y servicios son los necesarios para realizar los fines de la junta de educación y/o administrativa del MEP y en beneficio de los centros educativos públicos que les corresponda atender.
+f) No se les requerirá a las juntas de indicar expresamente el detalle de los bienes y servicios a exonerar.

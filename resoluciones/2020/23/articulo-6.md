@@ -1,0 +1,1 @@
+Artículo 6°—Derogatoria: Dejar sin efecto la resolución RES-DGH-061-2019 de fecha 17 de octubre del 2019 y la resolución RES-DGH-038-2019 en cuanto a lo que se refiera al régimen de exención de las Juntas de Educación y Administrativas del MEP
