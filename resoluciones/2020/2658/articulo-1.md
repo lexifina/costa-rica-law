@@ -1,0 +1,49 @@
+MINISTERIO DE SALUD
+MS-DM-2658-2020. MINISTERIO DE SALUD. - San José a las once horas del once de abril de dos mil veinte.
+Se establecen disposiciones sanitarias dirigidas a las personas encargadas de establecimientos que cuenten con permisos sanitarios de funcionamiento, con fundamento en las atribuciones que les confieren los artículos 50, 140 incisos 6), 8) y 20)y 146 de la Constitución Política; 25, 28, párrafo 2) incisos a) e i) de la Ley No. 6227del 02 de mayo de 1978 “Ley General de la Administración Pública”; 1, 2, 4, 7, 147, 148,149, 161, 162, 163, 164, 166, 168, 169, 337, 338, 338 bis, 340, 341, 348, 378 de la Ley No.5395 del 30 de octubre de 1973 “Ley General de Salud”; 2 y 6 de la Ley No. 5412 del 08de noviembre de 1973 “Ley Orgánica del Ministerio de Salud”; y,
+CONSIDERANDO:
+I. Que los artículos 21 y 50 de la Constitución Política regulan los derechosfundamentales a la vida y salud de las personas, así como el bienestar de lapoblación, que se constituyen en bienes jurídicos de interés público que elEstado está obligado a proteger, mediante la adopción de medidas que lesdefiendan de toda amenaza o peligro.
+II. Que los artículos 1, 4, 6, 7, 337, 338, 340, 341, 355 y 356 de la Ley General deSalud, Ley número 5395 del 30 de octubre de 1973 y los numerales 2 inciso b) yc)y 57 de la Ley Orgánica del Ministerio de Salud, Ley número 5412 del 08 denoviembre de 1973, regulan la obligación de protección de los bienes jurídicosde la vida y la salud pública por parte del Poder Ejecutivo, a través del Ministeriode Salud.
+III. Que, con fundamento en lo anterior, el Ministerio de Salud es la autoridadcompetente para ordenar y tomar las medidas especiales para evitar el riesgo odaño a la salud de las personas, o que estos se difundan o agraven, así comopara inhibir la continuación o reincidencia en la infracción de los particulares.Dichas normas legales que establecen la competencia del Ministerio de Salud enmateria de salud, consagran la potestad de imperio en materia sanitaria, que lefaculta para dictar todas las medidas técnicas que sean necesarias paraenfrentar y resolver los estados de emergencia sanitarios.
+IV. Que corresponde al Poder Ejecutivo por medio del Ministerio de Salud, ladefinición de la política nacional de salud, la formación, planificación ycoordinación de todas las actividades públicas y privadas relativas a salud, asícomo la ejecución de aquellas actividades que le competen conforme a la ley.Por las funciones encomendadas al Ministerio de Salud y sus potestadespoliciales en materia de salud pública, debe efectuar la vigilancia y evaluar lasituación de salud de la población cuando esté en riesgo. Ello implica la facultad para obligar a las personas a acatar disposiciones normativas que emita para mantener el bienestar común de la población y la preservación del orden público en materia de salubridad.
+V. Que las autoridades públicas están obligadas a aplicar el principio de precauciónen materia sanitaria en el sentido de que deben tomar las medidas preventivasque fueren necesarias para evitar daños graves o irreparables a la salud de loshabitantes.
+VI. Que la Organización Mundial de la Salud (OMS) el 30 de enero de 2020 emitióuna alerta sanitaria generada a raíz de la detección en la ciudad de Wuhan de laProvincia de Hubei, en China, un nuevo tipo de coronavirus el cual se haexpandido a diferentes partes del mundo, provocando la muerte en poblacionesvulnerables y saturación en los servicios de salud.
+VII. Que mediante el Decreto Ejecutivo número 42227-MP-S del 16 de marzo del2020, se declaró estado de emergencia nacional debido a la situación deemergencia sanitaria provocada por la enfermedad COVID-19 en el territorionacional.
+VIII. Que resulta imperante aplicar medidas inmediatas de prevención, atención ymitigación de la alerta sanitaria por COVID-19, así como garantizar elcumplimiento efectivo de los protocolos del Ministerio de Salud yconjuntamente, tomar medidas preventivas que contribuyan al adecuadomanejo de la problemática objeto de la presente regulación.
+IX. Que los establecimientos comerciales constituyen sitios donde acuden personasque requieren adquirir bienes y/o servicios, lo que constituye un riesgo para susalud y la de las personas trabajadoras de dichos establecimientos ante laposibilidad de contagio por el virus.
+X. Que el artículo 364 de la Ley General de Salud establece: “La cancelación osuspensión de permisos consiste en revocatoria definitiva o temporal de laautorización de instalación o funcionamiento de un establecimiento o de unaactividad para la cual fue otorgada o inhibiendo el uso y la exhibición deldocumento que la acredite.”
+XIV. Que resulta un hecho notorio el incremento epidemiológico acelerado de loscasos por el COVID-19 en el país y con ello, la necesidad de que las personasacaten la medida reiterada por el Poder Ejecutivo de permanecerresponsablemente en el sitio de habitación para evitar la exposición y latransmisión del COVID-19.
+XV. Que se hace necesario y oportuno emitir las presentes medidas de caráctersanitario con el objetivo de regular el funcionamiento de los establecimientoscomerciales que atienden al público.
+Por tanto,
+EL MINISTRO DE SALUD
+RESUELVE
+PRIMERO. Las presentes medidas sanitarias se emiten con el objetivo de prevenir y mitigar el riesgo o daño a la salud pública y atender el estado de emergencia nacional dado mediante el Decreto Ejecutivo No. 42227-MP-S del 16 de marzo de 2020 y en procura del bienestar de todas las personas que radiquen en el territorio costarricense de manera habitual ante los efectos del COVID-19.
+SEGUNDO: Se resuelve ordenar el cierre temporal de todos los establecimientos con permiso sanitario de funcionamiento que brinden atención al público, los días lunes, martes, miércoles, jueves y viernes de las 19:00 horas a las 5:00 horas del día siguiente. Asimismo, se ordena el cierre temporal de dichos establecimientos los días sábados y domingos de manera total. Dichas restricciones se aplicarán a partir del 13 de abril de 2020 y hasta el 30 de abril de 2020.
+Se exceptúan de la disposición del párrafo anterior:
+a) Los servicios a domicilio.
+b) Las instituciones que por la naturaleza de sus funciones debenpermanecer abiertas como los servicios de migración, aduanas,fitosanitario del Estado, puestos fronterizos terrestres, marítimos yaéreos, entre otros.
+c) Los servicios comunitarios de Municipalidades.
+d) Las plataformas de gestiones municipales, con una reducción de sucapacidad máxima de ocupación normal al cincuenta por ciento (50%).
+e) Los establecimientos de salud públicos y privados (clínicas, farmacias,hospitales, laboratorios, consultorios, servicios de radiodiagnósticos,servicios de emergencias, ópticas, entre otros), así como lasmacrobióticas y clínicas veterinarias.
+f) Supermercardos, abastecedores, panaderías, carnicerías, verdulerías ypulperías.
+g) Establecimientos de venta de insumos agropecuarios, veterinarios yalimentos para animales, con una reducción de su capacidad máxima deocupación normal al cincuenta por ciento (50%).
+h) Establecimientos de suministros de higiene, con una reducción de sucapacidad máxima de ocupación normal al cincuenta por ciento (50%).
+i) Servicios bancarios y financieros públicos o privados, con una reducciónde su capacidad máxima de ocupación normal al cincuenta por ciento(50%).
+j) Servicio de suministro y abastecimiento de combustibles.
+k)Funerarias y/o capillas de velación, con una reducción de su capacidadmáxima de ocupación normal al cincuenta por ciento (50%).
+l) Establecimientos públicos y privados donde hay comercialización deproductos agrícolas, pecuarios, pesca y acuicultura, tales como ferias ymercados, con una reducción de su capacidad máxima de ocupaciónnormal al cincuenta por ciento (50%).
+m) Centros de la red de cuido y desarrollo infantil.
+n) Centros de atención de personas en condición de vulnerabilidad.
+o) Establecimientos de alquiler de vehículos “rent a car” únicamente paraefectos de brindar servicios de asistencia a los vehículos ya alquilados, asícomo la recepción de todos los vehículos que sean devueltos.
+p) Estacionamientos o parqueos, únicamente a efectos de brindar dichoservicio al personal o personas usuarias de los servicios de salud.
+q) Todos aquellos otros establecimientos con permiso sanitario defuncionamiento que no brinden atención al público presencial.
+En el caso de los hoteles, cabinas o establecimientos de alojamiento, únicamente podrán mantenerse abiertos aquellos que brinden hospedaje a:
+a) Turistas extranjeros que ya se encuentren en el país.
+b) Tripulaciones de vuelos o casos de servicios especiales.
+c) Turistas de largas estadías o que residan en el hotel.
+d) Brinden servicios de alojamiento a funcionarios de la Administración Públicaoa prestadores de servicios públicos (banca, transporte de valores,comunicaciones, electricidad), ó se trate de personas que están laborandoen el servicio de distribución de mercancías o artículos alimentarios y deprimera necesidad, medicamentos, insumos agrícolas o veterinarios.
+e) Brinden servicios a embajadas.
+TERCERO: Los establecimientos exceptuados en el artículo anterior deberán garantizar la aplicación estricta de los protocolos del Ministerio de Salud para evitar la propagación del COVID-19.
+CUARTO: Los establecimientos con permiso sanitario de funcionamiento que brinden atención al público durante el horario habilitado según lo establecido en la presente resolución, deberán funcionar con una reducción de su capacidad máxima de ocupación normal al cincuenta por ciento (50%), con un estricto cumplimiento de los protocolos del Ministerio de Salud.
+QUINTO. La presente resolución rige a partir de las 5:00 horas del 13 de abril y hasta las 11:59 horas del 30 de abril de 2020.
+COMUNÍQUESE:
