@@ -14,3 +14,4 @@ Reglamento para la Elección del Representante de las Organizaciones de Pequeño
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-10-24 | la propia norma |
+| 2 | 2020-04-13 | Decreto Ejecutivo 42363 (2020-04-13) |
