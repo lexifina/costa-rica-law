@@ -13,3 +13,4 @@ Marco regulatorio general para la tutela del derecho a la salud y la vida de las
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-04-08 | la propia norma |
+| 2 | 2020-04-14 | Circular 71 (2020-04-14) |
