@@ -1,1 +1,3 @@
-Artículo 9º—Vigencia legal de los presupuestos extraordinarios y las modificaciones presupuestarias. Los Presupuestos Extraordinarios entrarán en vigencia una vez que sea aprobado por la Contraloría General de la República. Las Modificaciones Presupuestarias de Aprobación Administrativa tendrán efecto legal en el presupuesto a partir de la aprobación por parte del Alcalde y las Modificaciones Presupuestarias de Aprobación del Concejo a partir de la ratificación del acta en la cual fueron aprobados o a partir de su acuerdo en firme.
+Artículo 9º-Vigencia legal de los presupuestos extraordinarios y las modificaciones presupuestarias. Los PE entrarán en vigencia una vez que sea aprobado por la CGR.
+Las Modificaciones Presupuestarias tendrán efecto legal en el presupuesto a partir de la ratificación del acta en la cual fueron aprobadas o a partir de su acuerdo en firme por parte del Jerarca.
+(Así reformado mediante sesión N° 0207-2020 del 14 de abril del 2020)

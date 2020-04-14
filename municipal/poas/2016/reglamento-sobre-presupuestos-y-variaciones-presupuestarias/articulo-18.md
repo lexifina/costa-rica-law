@@ -1,3 +1,2 @@
-Artículo 18.—Tipos de modificaciones presupuestarias. Se crean las siguientes modificaciones presupuestarias con el propósito de alcanzar los objetivos que persigue la Municipalidad de Poás.
-a) Modificación presupuestaria de aprobación administrativa.
-b) Modificación presupuestaria de aprobación del Concejo.
+Artículo 18.-Nivel de detalle. El nivel de detalle requerido será el mismo nivel de detalle que se estableció para la aprobación interna de los presupuestos, correspondiendo dicho nivel al de la máxima segregación, de conformidad con los clasificadores presupuestarios para el sector público vigentes, tanto de ingresos como de egresos.
+(Así reformado mediante sesión N° 0207-2020 del 14 de abril del 2020)

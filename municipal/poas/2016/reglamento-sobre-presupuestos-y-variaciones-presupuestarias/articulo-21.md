@@ -1,17 +1,2 @@
-Artículo 21.—Modificaciones Presupuestarias de Aprobación del Concejo Municipal.
-La aprobación de las modificaciones presupuestarias cuando éstas se realicen entre programas corresponderá al Concejo Municipal. El o la encargada de presupuesto le entregará al Alcalde para la aprobación por parte del Concejo Municipal, el expediente completo de la Modificación Presupuestaria donde constará como mínimo:
- Declaración jurada por parte del encargado o encargada de la elaboración del presupuesto indicando que el documento presentado cumple con el bloque de legalidad.
- Nota dirigida al Alcalde con la indicación del monto total a modificar en el presupuesto así como dos cuadros: uno donde se indique el monto que se rebaja de cada uno de los programas y otro indicando el monto que se aplica a cada uno de ellos.
- Índice de la información presentada en el documento “Modificación Presupuestaria de Aprobación del Concejo Municipal.
- Los documentos deberá presentar el máximo nivel de detalle, es decir hasta la subpartida.
- Cuadro Detalle General de Egresos (Por Rebajar).
- Cuadro Sección de Egresos por Partida General y por Programa (Por Rebajar).
- Cuadro Sección de Egresos Detallados General y por Programa (Por Rebajar).
- Cuadro Detalle General de Egresos (Por Aumentar).
- Cuadro Sección de Egresos por Partida General y por Programa (Por Aumentar).
- Cuadro Sección de Egresos Detallados General y por Programa (Por Aumentar).
- Cuadro de Origen y Aplicación de Fondos.
- Cuadros de los Programas I, II y III de las Subpartidas que se rebajan.
- Cuadros de los Programas I, II y III de las Subpartidas que se aumentan.
- Documentos de solicitud de modificación de presupuesto por parte de la oficina, unidad, departamento o funcionario (a) interesado (a). De obtenerse por escrito la aprobación de las diferentes oficinas, departamentos o funcionarios que tienen a su cargo los recursos a reasignar. En caso de que se niegue sin justificación a autorizar su uso, el alcalde decidirá si lo aprueba.
- Documento impreso del sistema de presupuesto donde consten los saldos de las cuentas a debitar y acreditar. En tal caso deberá mantenerse un archivo o expediente separado donde consten este tipo de acuerdos, accesible tanto a las instancias de control interno como a la Contraloría General de la República, para sus funciones de fiscalización posterior.
+Artículo 21.-Registro de modificaciones. Para los efectos de mantener un sistema de información que permita acceder, identificar y registrar información confiable, relevante, pertinente, oportuna a partir de lo cual se posibilite el análisis de las variaciones al presupuesto, se fomente la transparencia en la gestión y se facilite la rendición de cuentas, una vez aprobadas las MP por el Jerarca, se transcribirá el acuerdo respectivo a la jefatura de la UP, quienes deberán registrar las mismas en los sistemas computarizados y manuales que para los efectos de control presupuestario y contable que cuenta la institución se haya establecido. Además éste deberá mantener actualizada, la inclusión y validación de modificaciones en el SIPP de acuerdo a los lineamientos establecidos por la CGR.
+(Así reformado mediante sesión N° 0207-2020 del 14 de abril del 2020)

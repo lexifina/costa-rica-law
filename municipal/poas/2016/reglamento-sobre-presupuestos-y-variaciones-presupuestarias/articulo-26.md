@@ -1,1 +1,2 @@
-Artículo 26.—Obligatoriedad de lo establecido en este Reglamento. Lo establecido en el presente Reglamento es de carácter vinculante para la Municipalidad de Poás.
+Artículo 26.-Vigencia. Rige a partir de su publicación en el Diario Oficial La Gaceta.
+(Así reformado mediante sesión N° 0207-2020 del 14 de abril del 2020)

@@ -14,3 +14,4 @@ Reglamento sobre presupuestos y variaciones presupuestarias de la Municipalidad 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-05-09 | la propia norma |
+| 2 | 2020-04-14 | Reglamento municipal 207 (2020-04-14) |
