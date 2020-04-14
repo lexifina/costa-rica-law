@@ -1,9 +1,0 @@
-6. Del Regente Forestal.
-6.1. El profesional acreditado como Regente Forestal deberá cumplir con lo establecido en la Ley Forestal Nº 7575, su Reglamento, sus modificaciones y el reglamento de regencias forestales.
-6.2. En el caso de los proyectos de SAF el Regente Forestal como mínimo deberá realizar dos visitas en el primer año y en los dos años posteriores una visita por año.
-6.3. El Regente debe entregar documentos ordenados para los expedientes respectivos y sus copias para sello de recibido en las respectivas Oficinas Regionales.
-6.4. Es obligación de los Regentes Forestales acompañar al personal de FONAFIFO o a personas que éste autorice, a las visitas de campo que se realicen a los proyectos PSA. Para tales efectos, FONAFIFO notificará al Regente Forestal con al menos ocho días hábiles anteriores a la visita programada. En las visitas de campo también pueden participar los y las propietarios de la finca, sus representantes legales o sus administradores.
-6.5. Informar por escrito al beneficiario del avance y estado de los Proyectos PSA respectivos.
-6.6. Será responsabilidad del Regente Forestal brindar la asistencia técnica de los proyectos y verificar el cumplimiento de recomendaciones técnicas y las obligaciones de parte de sus regentados.
-6.7. Presentar al FONAFIFO la documentación técnica requerida para el trámite y seguimiento de los proyectos de PSA, de manera oportuna, veraz, cumpliendo con los requerimientos establecidos por este Manual.
-6.8. En casos especiales para Reservas Indígenas, el Gerente Regional del Área de Conservación respectiva podrá certificar el área que gozará del PSA, de acuerdo a los procedimientos establecidos en este Manual, siempre y cuando se cumpla con la normativa establecida por el Colegio de Ingenieros Agrónomos y no se cobren honorarios.
