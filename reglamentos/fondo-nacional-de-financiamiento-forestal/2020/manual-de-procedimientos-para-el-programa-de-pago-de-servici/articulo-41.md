@@ -1,0 +1,4 @@
+Artículo 41.- Los proyectos asociados a la Estrategia REDD+.
+41.1. Dados los instrumentos internacionales con rango de Convenio Internacional suscritos y ratificados por el Gobierno de Costa Rica y en especial la Estrategia REDD+, se ha facultado al Fonafifo, para suscribir todo tipo de convenios o contratos, para participar en los mercados y los programas que estos convenios establezcan.
+41.2. En estos supuestos, el Fonafifo podrá no sólo adquirir y reconocer el pago de las acciones de mitigación de gases de efecto invernadero, sino también intermediar en estos mercados y programas nacionales e internacionales, representando a los productores y dueños de bosque privados.
+41.3. En estos convenios y contratos, el Fonafifo tendrá plena libertad de negociar las condiciones, los procedimientos y los requisitos, siempre y cuando se cumpla con lo dispuesto en el Decreto Ejecutivo N° 40464-MINAE, publicado en el Alcance N°175 de fecha 18 de junio del 2017.

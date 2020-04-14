@@ -1,0 +1,2 @@
+Artículo 32.- De la caducidad de los pagos.
+Si en un plazo máximo de tres años posteriores a cada uno de los pagos programados establecidos en el contrato, no se realiza el cobro respectivo, los mismos caducarán y no serán cancelados por el Fonafifo, sin que le genere responsabilidad alguna de su parte. Se exceptúan de esta disposición aquellos casos en que este documentado en el expediente la razón del no cobro en tiempo; y que se haya documentado el seguimiento anual respectivo.

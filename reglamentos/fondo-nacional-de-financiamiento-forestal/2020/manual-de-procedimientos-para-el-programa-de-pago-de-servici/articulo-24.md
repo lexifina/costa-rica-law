@@ -1,0 +1,5 @@
+Artículo 24.- Actividad regeneración natural
+24.1. Proteger la cobertura vegetal en las áreas en la que se dan los procesos de regeneración, no cortar árboles o cualquier tipo de vegetación y proteger del daño del ganado o cualquier otro animal.
+24.2. No realizar ninguna actividad que altere el comportamiento natural del área a proteger.
+24.3. Realizar una descripción del recurso (brinzales y latizales comerciales), presencia de árboles remanentes, fuentes semilleras cercanas, u otros aspectos ecológicos relevantes a la sucesión secundaria, áreas denudadas, sin cobertura forestal, pero que se encuentre en proceso de regeneración y que no cumplen con la definición de bosque y libres de pastoreo.
+24.4. Realizar las acciones necesarias para proteger el área en regeneración de daños realizados por terceras personas o pastoreo de animales, estas acciones de protección como mínimo serán: deslinde del área de plantación, existencia y limpieza de carriles o cercas, rondas corta fuegos en áreas propensas a incendios, supervisión y vigilancia periódica del área del proyecto al menos cada tres meses.

@@ -1,0 +1,2 @@
+Artículo 28.- De la falta.
+En la ejecución del contrato podrán darse dos tipos de faltas: leves y graves. Las leves serán resueltas por el jefe de la Oficina Regional; las graves serán resueltas según lo indicado en el contrato de PSA respectivo. El Fonafifo, determinará la gravedad de la falta que acarrea el incumplimiento contractual, tomando en cuenta el impacto al recurso y a los servicios ambientales, conforme a los criterios técnicos, los cuales deberán estar debidamente documentados en el expediente administrativo.
