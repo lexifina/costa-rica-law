@@ -17,3 +17,4 @@ Reforma acuerdos tomados en la sesión N° 5569-2013 del 7 de noviembre del 2012
 | 2 | 2014-06-25 | Acuerdo 0 (2014-06-25) |
 | 3 | 2015-01-30 | Reglamento 5677 (2015-01-30) |
 | 4 | 2017-05-29 | Acuerdo 0 (2017-05-29) |
+| 5 | 2020-04-15 | Acuerdo 0 (2020-04-15) |
