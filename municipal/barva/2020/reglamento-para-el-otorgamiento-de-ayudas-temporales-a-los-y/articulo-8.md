@@ -1,0 +1,1 @@
+Artículo 8°—La Comisión de Asuntos Sociales del Concejo Municipal, velará para que se garantice la reserva de un monto determinado en el presupuesto anual disponible, para efectos de atender situaciones ayudas temporales que puedan presentarse en el transcurso del año.

@@ -1,0 +1,1 @@
+Artículo 5°—Del otorgamiento de la ayuda temporal: La ayuda temporal a una persona o familia solicitante, se otorgará por una única vez por año presupuestario y ésta se brindará en dinero o en especie (enseres o artículos de primera necesidad), de acuerdo con las prioridades que determinan en cada caso, los (as) profesionales que realizan la valoración técnica.

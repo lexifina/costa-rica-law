@@ -1,0 +1,1 @@
+Artículo 12.—Para otorgar la ayuda, la municipalidad se reserva el derecho de recabar las pruebas que permitan determinar la necesidad real del o la solicitante y para justificar debidamente su estado de desgracia o infortunio y para tal fin hará las visitas pertinentes, entrevistas y en general usará las técnicas que permitan constatar la situación.
