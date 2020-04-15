@@ -1,2 +1,0 @@
-Artículo 9°—De la ejecución de la sanción. La imposición de la sanción de amonestación rige a partir de la firmeza de la resolución que emita la Junta de Gobierno donde se determina aquella. El Colegio llevará un archivo de los miembros del Colegio que hayan sido sancionados o que se hayan acogido a una medida alternativa a la sanción.
-(Así reformado mediante sesión ordinaria N° 2015-10-14 del 14 de octubre del 2015)

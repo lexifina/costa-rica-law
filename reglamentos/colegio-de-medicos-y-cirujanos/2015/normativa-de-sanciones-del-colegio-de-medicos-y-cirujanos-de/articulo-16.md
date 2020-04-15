@@ -1,1 +1,0 @@
-Artículo 16.—Calificación de las faltas. Considerando la gravedad de la falta cometida por el infractor y tomando en consideración la recurrencia, la Junta de Gobierno del Colegio de Médicos y Cirujanos podrá agravar la calificación e imponer la sanción que corresponda.
