@@ -13,3 +13,4 @@ Acuerdo de Corte Plena. Sesión N° 18-2020 del 2 de abril de 2020, en atención
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-04-02 | la propia norma |
+| 2 | 2020-04-15 | Circular 72 (2020-04-15) |
