@@ -17,3 +17,4 @@ Encarga a la Administración del Banco Central que provea el requerimiento neto 
 | 2 | 2014-11-19 | Acuerdo 0 (2014-11-19) |
 | 3 | 2016-07-13 | Acuerdo 0 (2016-07-13) |
 | 4 | 2017-05-29 | Acuerdo 0 (2017-05-29) |
+| 5 | 2020-04-15 | Acuerdo 0 (2020-04-15) |
