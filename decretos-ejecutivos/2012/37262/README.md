@@ -16,3 +16,4 @@ Reglamento para el trámite de desalojos administrativos presentados ante el Min
 | 1 | 2012-08-31 | la propia norma |
 | 2 | 2012-10-30 | Decreto Ejecutivo 37407 (2012-10-30) |
 | 3 | 2015-10-20 | Decreto Ejecutivo 39277 (2015-10-20) |
+| 4 | 2020-04-16 | Resolución 1490 (2020-04-16) |
