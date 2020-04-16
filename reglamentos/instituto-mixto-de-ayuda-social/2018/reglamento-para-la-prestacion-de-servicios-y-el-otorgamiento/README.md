@@ -18,3 +18,4 @@ Reglamento para la prestación de servicios y el otorgamiento de beneficios del 
 | 3 | 2018-12-11 | Reglamento 0 (2018-12-11) |
 | 4 | 2019-02-15 | Reglamento 0 (2019-02-15) |
 | 5 | 2019-11-26 | Reglamento 75 (2019-11-26) |
+| 6 | 2020-04-16 | Reglamento 0 (2020-04-16) |
