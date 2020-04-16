@@ -1,0 +1,3 @@
+Artículo 34 - Entrada en Vigor
+1. La presente Convención entrará en vigor el primer día del mes siguiente a la conclusión de un plazo de tres meses calendario contados a partir de la fecha de depósito del quinto instrumento de ratificación, aceptación o aprobación.
+2. Para cada Signatario que ratifique, acepte o apruebe la presente Convención tras el depósito del quinto instrumento de ratificación, aceptación o aprobación, la Convención entrará en vigor el primer día del mes siguiente a la conclusión de un plazo de tres meses calendario contados a partir de la fecha de depósito por dicho Signatario de su instrumento de ratificación, aceptación o aprobación.

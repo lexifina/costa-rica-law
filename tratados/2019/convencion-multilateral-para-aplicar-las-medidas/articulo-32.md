@@ -1,0 +1,3 @@
+Artículo 32 - Interpretación e Implementación
+1. Las dudas que puedan surgir respecto de la interpretación o implementación de las disposiciones de un Convenio Fiscal Comprendido, tal como puedan resultar modificadas por esta Convención, se resolverán conforme a lo dispuesto en el Convenio Fiscal Comprendido para la resolución de las dudas en la interpretación o aplicación de dicho convenio mediante acuerdo mutuo (tal como estas puedan resultar modificadas por esta Convención).
+2. Las dudas que puedan surgir respecto a la interpretación o implementación de esta Convención pueden abordarse mediante una Conferencia de Partes convocada conforme al apartado 3 del Artículo 31 (Conferencia de Partes).

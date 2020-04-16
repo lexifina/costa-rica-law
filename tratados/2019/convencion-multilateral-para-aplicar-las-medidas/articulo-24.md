@@ -1,0 +1,9 @@
+Artículo 24 - Acuerdo sobre una Resolución Distinta
+1. A los efectos de la aplicación de este Capítulo respecto de sus Convenios Fiscales Comprendidos, toda Parte puede optar por aplicar el apartado 2 y notificará al Depositario en consecuencia. El apartado 2 será aplicable en relación a dos Jurisdicciones Contratantes respecto de un Convenio Fiscal Comprendido únicamente cuando ambas hayan remitido dicha notificación.
+2. No obstante lo dispuesto en el apartado 4 del Artículo 19 (Arbitraje Obligatorio y Vinculante), una decisión arbitral adoptada conforme a este Capítulo no será vinculante para las Jurisdicciones Contratantes de un Convenio Fiscal Comprendido y no se aplicará si las autoridades competentes de las Jurisdicciones Contratantes acuerdan una solución diferente para toda cuestión que permanezca no resuelta en el plazo de tres meses calendario desde la fecha en que se les entregó la decisión arbitral.
+3. Toda Parte que opte por aplicar el apartado 2 puede reservarse el derecho a que este se aplique únicamente en relación con sus Convenios Fiscales Comprendidos en los que se aplique el apartado 2 del Artículo 23 (Tipo de Procedimiento Arbitral).
+(Nota de Sinalevi: De conformidad con el artículo 2° que aprueba la “Convención multilateral para aplicar las medidas relacionadas con los convenios fiscales para prevenir la erosión de las bases imponibles y el traslado de beneficios”, en relación al artículo 18 la República de Costa Rica establece lo siguiente:
+Artículo 18 - Opción de aplicar la VI Parte
+Notificación de selección de disposiciones opcionales
+De conformidad con el artículo 18 de la Convención, Costa Rica elige no aplicar la Parte VI.
+De conformidad con la elección hecha por Costa Rica con respecto a no aplicar la Parte VI, no se debe realizar reservas bajo los artículos 19, 23, 24, 26, 28 y 36 y no se deben realizar notificaciones bajo los artículos 23, 24 y 26 de esta Convención.)

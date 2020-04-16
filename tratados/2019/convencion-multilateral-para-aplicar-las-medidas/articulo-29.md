@@ -1,0 +1,31 @@
+Artículo 29 - Notificaciones
+1. Sin perjuicio de lo dispuesto en los apartados 5 y 6 de este Artículo y en el apartado 7 del Artículo 35 (Fecha de Entrada en Efecto), las notificaciones previstas en las siguientes disposiciones se realizarán en el momento de la firma o en el depósito de los instrumentos de ratificación, aceptación o aprobación:
+a) Cláusula ii) del subapartado a) del apartado 1 del Artículo 2 (Interpretación de Términos);
+b) Apartado 6 del Artículo 3 (Entidades Transparentes);
+c) Apartado 4 del Artículo 4 (Entidades con Doble Residencia);
+d) Apartado 10 del Artículo 5 (Aplicación de los Métodos para Eliminar la Doble Imposición);
+e) Apartados 5 y 6 del Artículo 6 (Objeto de los Convenios Fiscales Comprendidos);
+f) Apartado 17 del Artículo 7 (Impedir la Utilización Abusiva de los Convenios);
+g) Apartado 4 del Artículo 8 (Operaciones de Transferencia de Dividendos);
+h) Apartados 7 y 8 del Artículo 9 (Ganancias de Capital Procedentes de la Enajenación de Acciones o Derechos de Participación Comparables en Entidades cuyo Valor Proceda Principalmente de Bienes Inmuebles);
+i) Apartado 6 del Artículo 10 (Norma Anti-abuso para Establecimientos Permanentes Situados en Terceras Jurisdicciones);
+j) Apartado 4 del Artículo 11 (Utilización de los Convenios Fiscales para Restringir el Derecho de una Parte a Someter a Imposición a sus Propios Residentes);
+k) Apartados 5 y 6 del Artículo 12 (Elusión Artificiosa del Estatuto de Establecimiento Permanente a través de Acuerdos de Comisión y Estrategias Similares);
+l) Apartados 7 y 8 del Artículo 13 (Elusión Artificiosa del Estatuto de Establecimiento Permanente a través de Exenciones Concretas de Actividades);
+m) Apartado 4 del Artículo 14 (Fragmentación de Contratos);
+n) Apartado 6 del Artículo 16 (Procedimiento de Acuerdo Mutuo);
+o) Apartado 4 del Artículo 17 (Ajustes Correspondientes);
+p) Artículo 18 (Opción sobre la Aplicación del Capítulo VI);
+q) Apartado 4 del Artículo 23 (Tipo de Procedimiento Arbitral);
+r) Apartado 1 del Artículo 24 (Acuerdo sobre una Resolución Distinta):
+s) Apartado 1 del Artículo 26 (Compatibilidad); y
+t) Apartados 1, 2, 3, 5 y 7 del Artículo 35 (Fecha de Entrada en Efecto).
+2. La remisión de notificaciones relacionadas con los Convenios Fiscales Comprendidos celebrados por una jurisdicción o territorio, de cuyas relaciones internacionales sea responsable una Parte, cuando dicha jurisdicción o territorio no sea Parte de la Convención conforme a los subapartados b) o c) del apartado 1 del Artículo 27 (Firma y Ratificación, Aceptación o Aprobación) serán hechas por la Parte responsable y pueden diferir de las efectuadas por esa Parte en relación con sus propios Convenios Fiscales Comprendidos.
+3. Cuando la notificación se realice en el momento de la firma, precisará confirmación en el momento del depósito del instrumento de ratificación, aceptación o aprobación, a menos que el documento que contenga la notificación explique expresamente que ésta debe considerarse definitiva, con sujeción a lo dispuesto en los apartados 5 y 6 de este Artículo y en el apartado 7 del Artículo 35 (Fecha de Entrada en Efecto).
+4. Cuando la notificación no se efectúe en el momento de la firma, se entregará, en ese momento, una lista provisional de las notificaciones previstas.
+5. Toda Parte podrá ampliar, en cualquier momento, el listado de convenios notificados conforme a la cláusula ii) del subapartado a) del apartado 1 del Artículo 2 (Interpretación de Términos) mediante notificación dirigida al Depositario. La Parte especificará en su notificación si el convenio está sujeto a alguna de las reservas que haya formulado, entre las enumeradas en el apartado 8 del Artículo 28 (Reservas). La Parte podrá formular también una nueva reserva de las descritas en el apartado 8 del Artículo 28 (Reservas) si el convenio adicional fuera el primero en quedar incluido en el ámbito de dicha reserva. La Parte especificará asimismo cualquier otra notificación adicional que resulte necesaria en virtud de los subapartados b) a s) del apartado 1 a fin de reflejar la inclusión de los convenios adicionales. Del mismo modo, si la ampliación implica la primera inclusión de un convenio fiscal celebrado por una jurisdicción o territorio, de cuyas relaciones internacionales sea responsable una Parte, dicha Parte especificará las reservas (conforme al apartado 4 del Artículo 28 (Reservas)) o notificaciones (conforme al apartado 2 de este Artículo) aplicables a los Convenios Fiscales Comprendidos celebrados por dicha jurisdicción o territorio. En la fecha en la que el convenio o convenios adicionales notificados conforme a la cláusula ii) del subapartado a) del apartado 1 del Artículo 2 (Interpretación de Términos) devengan en Convenios Fiscales Comprendidos, las disposiciones del Artículo 35 (Fecha de Entrada en Efecto) regirán la fecha en la que surtan efectos las modificaciones del Convenio Fiscal Comprendido.
+6. Toda Parte podrá efectuar notificaciones adicionales conforme a los subapartados b) a s) del apartado 1 mediante notificación dirigida al Depositario. Estas notificaciones surtirán efecto:
+a) en relación con un Convenio Fiscal Comprendido suscrito únicamente con Estados o jurisdicciones que sean Parte de la Convención, cuando el Depositario reciba la notificación adicional:
+i) respecto de las notificaciones relacionadas con disposiciones sobre impuestos retenidos en la fuente, cuando el hecho que genera la imposición ocurra a partir del 1 de enero del año siguiente a la conclusión de un plazo de seis meses calendario contados desde la fecha de la comunicación por el Depositario de la notificación adicional; y
+ii) respecto de las notificaciones relacionadas con cualquier otra disposición, para los impuestos exigidos en relación con los períodos fiscales que comiencen a partir del 1 de enero del año siguiente a la conclusión de un plazo de seis meses calendario contados desde la fecha de comunicación por el Depositario de la notificación adicional; y
+b) en relación con un Convenio Fiscal Comprendido del que una o más Jurisdicciones Contratantes se conviertan en Parte de esta Convención tras la fecha de recepción por el Depositario de la notificación adicional: en la última de las fechas en las que la Convención entre en vigor para dichas Jurisdicciones Contratantes.
