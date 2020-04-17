@@ -1,0 +1,11 @@
+Artículo 11. Del contrato. Para la entrega del teléfono celular asignado así como, para el reconocimiento de la tarifa autorizada para el servicio celular propiedad del funcionario responsable, se deberá suscribir un contrato entre el IFAM y el funcionario que utilizará el servicio o el reconocimiento de la tarifa autorizada.
+La Asesoría Jurídica elaborará el contrato que deberá especificar las condiciones de uso y demás regulaciones que, de acuerdo con el acto de asignación y este Reglamento, regirán la utilización del servicio y deberá considerar al menos los siguientes aspectos:
+a) Los datos sobre el número telefónico y marca, modelo y serie del aparato móvil asignado y de sus respectivos accesorios; y el estado en que se encuentran.
+b) La explícita mención de que el servicio asignado o el reconocimiento de la tarifa autorizada es para uso oficial del funcionario responsable y no constituye ni un beneficio personal ni parte de su salario, de conformidad con lo establecido en el artículo 6 de este Reglamento.
+c) El plan correspondiente al uso del servicio celular propiedad del IFAM y la obligación de cancelar cualquier excedente que reporte la facturación mensual del servicio asignado.
+d) La tarifa autorizada que se reconocerá al funcionario propietario del servicio celular.
+e) La autorización expresa del funcionario responsable, para deducir de su salario mensual el importe de los excedentes que genere el servicio asignado, en caso de que no lo deposite oportunamente, según las reglas del artículo 18 de este reglamento.
+f) La indicación expresa de los servicios adicionales que brinda el proveedor del servicio, a los que pueda acceder el funcionario responsable.
+g) Las obligaciones que adquiere el funcionario responsable de mantener en servicio el teléfono asignado o el teléfono por el cual se reconoce la tarifa autorizada, contestarlo y de comunicarse inmediatamente con la dependencia institucional que lo requiera.
+h) La obligación que adquiere el funcionario responsable de reponer el aparato de comunicación asignado, en caso de robo o daño.
+i) La indicación expresa de los motivos de resolución del contrato y la obligación de devolver el teléfono asignado cuando se produzca alguna de ellas.

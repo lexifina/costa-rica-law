@@ -1,0 +1,1 @@
+Artículo 25. Verificación del uso. La Dirección Ejecutiva tendrá la facultad de solicitar el desglose de llamadas tramitadas y de servicios adicionales autorizados, cuando ello se estime necesario para verificar la adecuación del uso del respectivo servicio a las normas de este Reglamento, y particularmente, cuando se considere que el monto de la facturación resulte excesivo.
