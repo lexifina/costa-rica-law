@@ -1,0 +1,1 @@
+Artículo 3.- Objetivo del Bono Proteger. El Bono Proteger tiene como objetivo dotar a las personas beneficiarias de un ingreso básico para coadyuvar temporalmente en la satisfacción de las necesidades básicas de sus hogares, frente al impacto socioeconómico provocado por el estado de emergencia nacional debido a la situación sanitaria provocada por el COVID-19.

@@ -1,0 +1,1 @@
+Artículo 35- Comunicación y difusión. Las instituciones responsables destinarán sus canales de comunicación y atención a la ciudadanía para divulgar y brindar el mayor acceso a la información posible mediante el uso de tecnologías de información, redes sociales y la plataforma virtual.

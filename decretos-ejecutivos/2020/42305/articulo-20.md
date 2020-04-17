@@ -1,0 +1,4 @@
+Capítulo IV
+Control Financiero, Seguimiento, Transparencia y Fiscalización
+Artículo 20.- Control financiero. Los recursos destinados al otorgamiento de Bonos Proteger provenientes del Programa Nacional de Empleo del Ministerio de Trabajo y Seguridad Social (PRONAE}, así como con los recursos asignados tanto al PRONAE como al Instituto Mixto de Ayuda Social (!MAS} por los presupuestos de la República que se aprueben para atender la emergencia nacional causada por el COVID-19, se administrarán bajo los lineamientos de control financiero y trámites presupuestarios de las leyes que rigen esta materia.
+De aprobarse el uso de recursos disponibles del Fondo Nacional de Emergencia para el Plan Proteger, estos serán canalizados por la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias conforme al régimen de excepcionalidad presupuestaria que los rige.

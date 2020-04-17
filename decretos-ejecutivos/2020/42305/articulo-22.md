@@ -1,0 +1,2 @@
+Artículo 22.- Publicidad de la información y datos abiertos. Todos los reportes generados a partir de lo indicado en el artículo 21 del presente Reglamento, deberán estar disponibles al público.
+Los datos agregados serán puestos a disposición del público en formato de datos abiertos, según las recomendaciones existentes que ha generado la Comisión Nacional de Gobierno Abierto y la Agencia Nacional de Protección de Datos de los Habitantes, según sus competencias.

@@ -1,0 +1,1 @@
+Artículo 33.- Accesibilidad y apoyos. La plataforma única de solicitud incorporará herramientas de accesibilidad. Las instituciones responsables, en coordinación con otras instancias públicas o privadas dispondrán de medios para brindar soporte y asistencia a potenciales beneficiarios que lo requieran para completar sus solicitudes en la plataforma única virtual.

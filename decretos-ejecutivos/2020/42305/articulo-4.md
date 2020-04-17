@@ -1,0 +1,4 @@
+Artículo 4.- Recursos y Financiamiento. Los recursos serán asignados al Programa Nacional de Empleo del Ministerio de Trabajo y Seguridad Social y al Programa de Promoción y Protección Social del Instituto Mixto de Ayuda Social. Los recursos serán distribuidos por cada una de las instituciones responsables, conforme a su población meta definida en este reglamento y provendrán de las siguientes fuentes de financiamiento:
+a) Recursos asignados por el Ministerio de Hacienda en el Presupuesto Nacional mediante Presupuestos Ordinarios o Extraordinarios aprobados por la Asamblea Legislativa.
+b) Recursos autorizados para tal fin por la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias.
+c) Cualquier otro recurso o donación destinado para tal fin por organizaciones públicas o privadas, que se canalizará a través de la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias.

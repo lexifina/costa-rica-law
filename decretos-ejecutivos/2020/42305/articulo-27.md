@@ -1,0 +1,1 @@
+Artículo 27.- Manejo de bases de datos. El manejo de la base de datos generada para el Bono Proteger, se realizará conforme al Protocolo de Manejo Responsable de Datos del Ministerio de Trabajo y Seguridad Social.
