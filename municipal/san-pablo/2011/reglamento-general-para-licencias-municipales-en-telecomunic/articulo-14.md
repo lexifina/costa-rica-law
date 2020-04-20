@@ -1,2 +1,0 @@
-Artículo 14.—Franja de amortiguamiento. Se deberá mantener una franja de amortiguamiento mínima alrededor de una Obra Constructiva del diez por ciento (10%) de la altura de la torre de telecomunicaciones, medida desde la máxima proyección horizontal de la torre. En dicha franja no se permitirá ningún tipo de obra o construcción salvo las relacionadas con la estación base.
-Se establece sin embargo, que la torre de telecomunicaciones no se coloque adyacente a la colindancia del predio en cuestión, esto como una medida de seguridad para las construcciones aledañas.

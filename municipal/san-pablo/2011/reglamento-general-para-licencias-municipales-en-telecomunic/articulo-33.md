@@ -1,1 +1,0 @@
-Artículo 33.—Suplementariamente en lo no regulado por este Reglamento, se aplicarán las leyes y reglamentos de jerarquía jurídica superior en materia de urbanismo, construcción, ambiente y salud pública.
