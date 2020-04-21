@@ -15,3 +15,4 @@ Trámite de legalización y reposición de libros de actas y contables que deben
 | --- | --- | --- |
 | 1 | 2012-05-08 | la propia norma |
 | 2 | 2014-06-04 | Acuerdo 0 (2014-06-04) |
+| 3 | 2020-04-21 | Acuerdo 0 (2020-04-21) |
