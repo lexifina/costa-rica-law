@@ -1,0 +1,1 @@
+Artículo 3°—Todo ciudadano del Distrito de Monte Verde al cumplir los 100 años de edad, y que cumpla con alguna de las disposiciones del artículo 2 de este Reglamento, será objeto de una mención honorífica.

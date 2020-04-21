@@ -1,0 +1,1 @@
+Artículo 5°—El Concejo Municipal recibirá de cualquier ciudadano y por escrito toda solicitud de distinción honorífica, en la que se indiquen las justificaciones pertinentes, el historial de la persona o institución propuesta, y el testimonio que corroboren la solicitud.

@@ -1,0 +1,1 @@
+Artículo 2°—Las distinciones honoríficas son aquellos reconocimientos a favor de una persona física o jurídica, que se haya destacado en actos patrióticos, heroicos o sociales, que se expresen a través de la cultura, las artes, la ciencia, la literatura, la tecnología, la salud, el deporte, la educación, el mejoramiento del medio ambiente, y en todo aporte al conocimiento humano.
