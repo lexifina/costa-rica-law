@@ -24,3 +24,4 @@ Reglamento de Control Migratorio
 | 9 | 2018-04-18 | Decreto Ejecutivo 41033 (2018-04-18) |
 | 10 | 2019-04-08 | Decreto Ejecutivo 41650 (2019-04-08) |
 | 11 | 2019-07-05 | Decreto Ejecutivo 41890 (2019-07-05) |
+| 12 | 2020-04-21 | Decreto Ejecutivo 42319 (2020-04-21) |
