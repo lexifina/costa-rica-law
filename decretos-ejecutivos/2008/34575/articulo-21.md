@@ -1,1 +1,0 @@
-Artículo 21.—Pericia y cuidado profesional. El Auditor General y el Subauditor deberán cumplir con pericia y debido cuidado profesional sus funciones, haciendo valer sus competencias con independencia funcional y de criterio, y vigilarán además porque el personal bajo su cargo actúe de igual manera.
