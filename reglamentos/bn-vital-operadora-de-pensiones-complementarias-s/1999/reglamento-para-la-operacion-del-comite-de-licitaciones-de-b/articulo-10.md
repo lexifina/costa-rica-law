@@ -1,1 +1,1 @@
-Artículo 10º-Proveedor Institucional. El Supervisor administrativo será quien actué como Proveedor Institucional. Ante su ausencia las funciones serán atendidas por el Gerente Financiero y Administrativo.
+Artículo 10.—Proveedora Institucional. La Jefa Administrativa será quien actué como Proveedora Institucional. Ante su ausencia las funciones serán atendidas por el Gerente Financiero Administrativo.

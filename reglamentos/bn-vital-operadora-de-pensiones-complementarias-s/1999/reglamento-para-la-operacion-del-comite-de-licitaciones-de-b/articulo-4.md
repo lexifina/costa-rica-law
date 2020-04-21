@@ -1,1 +1,2 @@
-Artículo 4º-Ausencias. Las ausencias del Presidente, tanto en las sesiones del comité como en sus atribuciones señaladas en el artículo anterior, serán suplidas por un Gerente de Área; dicho puesto recaerá en el funcionario de mayor antigüedad en el servicio a la Operadora en la sesión o bien a la hora de ejercer la función.
+Artículo 4º—Ausencias. Las ausencias del Presidente, tanto en las sesiones del comité como en sus atribuciones señaladas en el artículo anterior, serán suplidas por un Gerente de Área; dicho puesto recaerá en el funcionario de mayor antigüedad en el servicio a la Operadora en la sesión o bien a la hora de ejercer la función.
+Las ausencias de la secretaria en las sesiones del Comité serán suplidas por el Encargado de Contratación Administrativa.
