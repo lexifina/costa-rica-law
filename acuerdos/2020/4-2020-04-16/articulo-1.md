@@ -1,0 +1,5 @@
+ENTE COSTARRICENSE DE ACREDITACIÓN
+N° 2020-004
+El Ente Costarricense de Acreditación (ECA), en cumplimiento de la Ley 8279 Ley del Sistema Nacional de la Calidad, da a conocer la modificación de los siguientes Procedimientos: ECAMC-P13 Ejecución de la Evaluación pasa de versión 11 a versión 12. ECA-MC-P13-I01 Instructivo de Muestreo, pasa de versión 09 a versión 10. Los documentos descritos anteriormente se encuentran a disposición de los interesados en la página electrónica http://www.eca.or.cr/docs.php; así mismo puede solicitar el envío de manera electrónica o solicitar gratuitamente una copia no contralada en la Gestoría de Calidad en las oficinas centrales del ECA ubicadas en San José, Barrio Don Bosco, Avenida 02 y Calle 32, contiguo a la Embajada de España, en horario de lunes a viernes de 8 h a 16 h.
+(Nota de Sinalevi: Por tener articulado propio la reforma al ProcedimientoECAMC-P13 Ejecución de la Evaluación y ECA-MC-P13-I01 Instructivo de Muestreo deben ser consultadas en el sistema de forma independiente)
+San José, 16 de abril del 2020.—
