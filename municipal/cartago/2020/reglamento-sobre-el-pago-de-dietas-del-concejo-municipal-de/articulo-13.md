@@ -1,0 +1,2 @@
+Artículo 13.—Impedimento para asistir a sesiones por incapacidad por enfermedad. La persona integrante del Concejo que esté incapacitada para laborar por la Caja Costarricense del Seguro Social (CCSS) o el Instituto Nacional de Seguros (INS), no podrá asistir a las sesiones del Concejo durante el periodo por el cual se le otorgó la incapacidad.
+La Municipalidad no pagará la dieta a quien asista a sesiones estando incapacitado.

@@ -1,0 +1,2 @@
+Artículo 11.—Medio alternativo de registro de asistencia. En caso de imposibilidad material temporal de funcionamiento del medio tecnológico para verificar la asistencia, es obligación de la persona regidora o síndica, propietaria o suplente, firmar la hoja de asistencia a las sesiones ordinarias y extraordinarias que celebre el Concejo.
+Dicho control alternativo de asistencia estará a cargo de quien ocupe la Secretaría del Concejo.

@@ -1,0 +1,1 @@
+Artículo 18.—Expedientes personales de los miembros del Concejo. El Departamento de Recursos Humanos confeccionará y custodiará un expediente para cada uno de las personas integrantes del Concejo, en el que se conservará, al menos, la información y documentación relacionada con este reglamento.

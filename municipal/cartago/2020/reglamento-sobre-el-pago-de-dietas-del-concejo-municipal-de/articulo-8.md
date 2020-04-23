@@ -1,0 +1,2 @@
+Artículo 8°—Control efectivo del pago debido de las dietas. Es deber y facultad de la Administración establecer las sanas medidas de control que considere necesarias a fin de que se realice el pago de las dietas de las personas integrantes del Concejo, de acuerdo con la normativa legal y técnica aplicable.
+La Administración deberá notificar oportunamente y por escrito a los miembros del Concejo, las medidas que establezca para cumplir con esta obligación y mejorar los procedimientos, y los cambios que efectúe.

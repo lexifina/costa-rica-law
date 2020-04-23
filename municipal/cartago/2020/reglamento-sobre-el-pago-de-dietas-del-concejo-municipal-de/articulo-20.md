@@ -1,0 +1,2 @@
+Artículo 20.—Consulta de incapacidades. El Departamento de Recursos Humanos consultará trimestralmente a la CCSS y al INS, si las personas integrantes del Concejo han sido incapacitadas en ese periodo.
+En los casos en que se determine que alguna de ellas estuvo incapacitada, la información se confrontará con las planillas de pago de las dietas del mismo periodo para verificar si en los días de incapacidad, la persona regidora o síndica recibió pago por dieta por asistencia al Concejo.

@@ -1,0 +1,1 @@
+Artículo 5°—Traslado de las sesiones ordinarias. Las sesiones ordinarias del Concejo podrán trasladarse de día mediante acuerdo firme que debe publicarse en La Gaceta previo a su realización, siempre y cuando el traslado sea a un día de la misma semana.

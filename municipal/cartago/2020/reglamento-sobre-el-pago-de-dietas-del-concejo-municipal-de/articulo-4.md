@@ -1,0 +1,3 @@
+Artículo 4°—Sesiones que tendrán retribución económica. Todas las sesiones que realice el Concejo siguiendo las formalidades de ley, serán válidas y eficaces. No obstante, solo se pagará la dieta correspondiente a una sesión ordinaria por semana y hasta dos extraordinarias por mes. El resto de las sesiones que se realicen no tendrán retribución económica.
+Cuando el Concejo realice más de dos sesiones extraordinarias por mes, solamente se pagarán las dos primeras que se efectúen cada mes, a quienes asistan efectivamente a las mismas.
+No podrá pagarse más de una dieta por integrante del Concejo, por cada sesión remunerable.

@@ -1,0 +1,1 @@
+Artículo 19.—Imposibilidad de pago de dietas. La Administración no podrá pagar las dietas a las personas integrantes del Concejo mientras éstas no hayan cumplido con la presentación de los documentos indicados en los artículos 16 y 17 de este Reglamento.

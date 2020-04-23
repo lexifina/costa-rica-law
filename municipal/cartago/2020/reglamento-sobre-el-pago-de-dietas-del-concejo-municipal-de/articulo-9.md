@@ -1,0 +1,3 @@
+Artículo 9°—Registro de asistencia. La Administración deberá implementar un medio apoyado en la tecnología para el registro de asistencia a las sesiones de las personas integrantes del Concejo, que le permita verificar, de previo al pago de las dietas, que efectivamente se presentaron a tiempo, se mantuvieron hasta la finalización de la sesión y no se ausentaron por más de quince minutos.
+Una vez que la persona integrante del Concejo registre su marca de ingreso, no podrá abandonar el Salón de Sesiones sin cumplir con lo dispuesto en el artículo 7 anterior.
+Una vez que la persona integrante del Concejo registre su marca de salida, se considerará ausente de la sesión y no podrá participar en la misma ni con voz ni con voto.

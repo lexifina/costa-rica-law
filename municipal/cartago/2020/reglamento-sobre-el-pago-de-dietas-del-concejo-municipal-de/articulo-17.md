@@ -1,0 +1,2 @@
+Artículo 17.—Autorización de consulta ante entidades aseguradoras. La persona integrante del Concejo deberá autorizar por escrito a la Administración para que en cualquier momento se consulte a la Caja Costarricense del Seguro Social y al Instituto Nacional de Seguros, si su condición es de asegurada, la persona física o jurídica que la emplea y las incapacidades que le hayan sido otorgadas.
+Dicha autorización deberá presentarla dentro de los cinco días hábiles posteriores al día en que asume el cargo y cuando la Administración se lo requiera.
