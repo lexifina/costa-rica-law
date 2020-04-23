@@ -1,0 +1,3 @@
+Artículo 7°—Montos de las cuotas a pagar y plazos. La Administración Tributaria determinará, en cada caso, la cantidad de cuotas de pago, que será igual a los meses concedidos en la facilidad de pago, que no podrán ser más de seis. Las cuotas serán mensuales y por montos iguales, salvo la última que podrá ser por un monto menor.
+Para establecer los montos de las cuotas, las deudas tributarias incluidas en la facilidad de pago se fundirán en una sola. El saldo de la deuda se dividirá en tantas cuotas como meses posea la facilidad de pago.
+La fecha de vencimiento de cada cuota será el último día natural de cada mes cubierto por la facilidad de pago, a partir del mes de enero de 2021.

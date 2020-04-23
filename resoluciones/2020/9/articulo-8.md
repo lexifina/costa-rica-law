@@ -1,0 +1,4 @@
+Artículo 8°—Pago. En todos los casos en que se apruebe una facilidad de pago, la cancelación de la prima y las cuotas mensuales debe hacerse mediante el sistema de conectividad bancaria.
+Si al mes siguiente del vencimiento de la cuota, se verifica en la cuenta corriente que no existe el pago, se tendrá por revocada la facilidad de pago sin necesidad de comunicación alguna.
+Los abonos o pagos extraordinarios que realice el obligado tributario deben coordinarse previamente con la Administración Tributaria y se aplicarán en forma retrógrada a partir de la última cuota, de manera que resulten en una disminución del monto de la última cuota o en el acortamiento del plazo de la facilidad de pago.
+El contribuyente podrá solicitar a la Administración Tributario que los abonos extraordinarios disminuyan el monto de las cuotas, manteniendo el plazo de la facilidad de pago intacto.

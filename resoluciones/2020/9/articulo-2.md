@@ -1,0 +1,1 @@
+Artículo 2°—Competencia. La solicitud de facilidad de pago de las deudas indicadas en el inciso 1) del artículo 1 de la presente resolución será atendida y resuelta por la Administración Tributaria a la que está adscrito el obligado tributario.

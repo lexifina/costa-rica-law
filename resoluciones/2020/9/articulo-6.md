@@ -1,0 +1,1 @@
+Artículo 6°.—Efectos del otorgamiento de la facilidad de pago. El otorgamiento de la facilidad de pago evita que inicie el cómputo de la sanción por morosidad, siempre y cuando se cumplan las condiciones establecidas en la facilidad otorgada.
