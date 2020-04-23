@@ -16,3 +16,4 @@ Reglamento del sistema de becas y beneficios estudiantiles de la Universidad Té
 | 1 | 2019-01-02 | la propia norma |
 | 2 | 2019-12-12 | Reglamento 27 (2019-12-12) |
 | 3 | 2020-04-16 | Reglamento 7 (2020-04-16) |
+| 4 | 2020-04-23 | Reglamento 8 (2020-04-23) |
