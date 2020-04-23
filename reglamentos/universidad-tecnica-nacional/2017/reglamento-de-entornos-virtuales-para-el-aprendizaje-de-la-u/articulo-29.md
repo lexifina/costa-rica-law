@@ -1,3 +1,1 @@
-CAPÍTULO VIII
-EVALUACIÓN DE LOS APRENDIZAJES EN ENTORNOS VIRTUALES
-Artículo 29. Para la aprobación o certificación del curso el estudiante debe cumplir con lo establecido en el Reglamento de Evaluación del Proceso de Aprendizaje.
+Artículo 29. El estudiante deberá mantener una comunicación constante con el docente y demás estudiantes cuando así lo requiera, usando medios sincrónicos y asincrónicos.

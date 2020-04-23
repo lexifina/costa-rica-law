@@ -1,1 +1,1 @@
-Artículo 25. Ingresar al campus virtual, revisar las actividades y posibles notificaciones enviadas por el docente, de conformidad con el programa del curso.
+Artículo 25. Notificar de inmediato al docente ante cualquier problema que se le presente para ingresar al campus virtual o desarrollar las actividades solicitadas.

@@ -1,2 +1,1 @@
-Artículo 34. En los casos estipulados en este capítulo, ante una apelación el participante debe hacer el proceso correspondiente según lo estipulado en la normativa de evaluación de la UTN.
-Rige a partir de su publicación.
+Artículo 34. Para estos casos, todas las actividades y archivos enviados en el aula virtual serán considerados como documentos oficiales y probatorios a partir de los cuales el docente podrá tomar los fallos correspondientes sobre el rendimiento académico y ejecutar las acciones que considere pertinentes.

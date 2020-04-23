@@ -1,1 +1,2 @@
-Artículo 30. En el caso de los cursos de capacitación ofrecidos por el área de TE y PRD, recibirán la certificación correspondiente los participantes que cumplan con todos los puntos del artículo anterior y con el proceso administrativo descrito en este documento. Esta certificación será emitida por el CFPTE.
+Artículo 30. Es responsabilidad de la persona estudiante garantizar que las actividades, tareas, trabajos realizados sean de su autoría y en caso de utilizar referencias serán citadas apropiadamente.
+(Reformado mediante acuerdo Firme 3- 8- 2020, tomado por el Consejo Universitario en la Sesión Extraordinaria No. 08- 2020, celebrada el jueves 23 de abril del 2020, Artículo 3, y publicado en el Diario Oficial la Gaceta No. 119 del sábado 23 de mayo del 2020)
