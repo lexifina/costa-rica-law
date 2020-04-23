@@ -1,2 +1,0 @@
-Artículo 113.—Habrá una rotación cada mes de los usuarios que comercialicen productos hortífruticulas, si la administración así lo llegare a acordar. Esta rotación se efectuará trasladando un espacio a la derecha. Lo anterior con el fin de procurar que todos los usuarios tengan igualdad de condiciones en la utilización de los espacios más rentables de la plaza minorista.
-(Así adicionado por el Consejo Directivo del PIMA y publicado en La Gaceta N° 22 del 31 de enero de 2007)

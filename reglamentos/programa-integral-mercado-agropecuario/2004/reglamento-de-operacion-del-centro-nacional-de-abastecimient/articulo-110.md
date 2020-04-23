@@ -1,2 +1,0 @@
-Artículo 110.—Los espacios que se pondrán a disposición de los vendedores de productos hortífruticulas tendrán una dimensión que será estipulada por la Administración. Dichos espacios estarán debidamente demarcados por la administración. Sin perjuicio de que el Consejo Directivo acuerde otro tipo de espacio por la actividad o la necesidad de la Feria Minorista.
-(Así adicionado por el Consejo Directivo del PIMA y publicado en La Gaceta N° 22 del 31 de enero de 2007)

@@ -1,1 +1,0 @@
-Artículo 69.—Vialidad: En el desarrollo de los terrenos de reserva se debe velar por la existencia de la correcta vialidad. Para el establecimiento de Vías, estas deberán tener la dimensión necesaria acorde con la cantidad de tránsito que se perfile obtener, observando siempre los principios de armonía y vialidad.

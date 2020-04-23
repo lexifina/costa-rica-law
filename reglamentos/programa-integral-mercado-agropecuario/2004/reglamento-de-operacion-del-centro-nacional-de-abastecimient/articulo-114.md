@@ -1,2 +1,0 @@
-Artículo 114.—Los usuarios deberán mostrar y mantener sus productos en tarimas y mesas especiales para este propósito. Está prohibido colocar productos en el suelo de manera permanente. Se deberá colocar en un lugar visible los precios de los productos para darle transparencia y evitar así la especulación en las plazas minoristas. En todo momento será el PIMA quien dicte las normas de inocuidad y calidad que considere necesarias.
-(Así adicionado por el Consejo Directivo del PIMA y publicado en La Gaceta N° 22 del 31 de enero del 2007)

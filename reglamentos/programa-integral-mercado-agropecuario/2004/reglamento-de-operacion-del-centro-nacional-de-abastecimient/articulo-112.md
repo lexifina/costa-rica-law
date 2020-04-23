@@ -1,2 +1,0 @@
-Artículo 112.—La distribución de los locales se efectuará por medio de rifa que llevará a cabo la administración en presencia del Secretario Ejecutivo de la Asociación Junta de Usuarios del CENADA. Una vez efectuada ésta, los usuarios sólo podrán intercambiar una única vez el espacio asignado previa al momento de efectuarse la rifa de los espacios. Dicho intercambio deberá contar con el visto bueno de la administración.
-(Así adicionado por el Consejo Directivo del PIMA y publicado en La Gaceta N° 22 del 31 de enero de 2007)

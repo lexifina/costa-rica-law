@@ -1,1 +1,0 @@
-Artículo 72.—Acatamiento de Normas: Los usuarios una vez establecidos, independientemente del comienzo de su operación se regirán en lo concerniente al PIMA por lo estipulado en la normativa respectiva.
