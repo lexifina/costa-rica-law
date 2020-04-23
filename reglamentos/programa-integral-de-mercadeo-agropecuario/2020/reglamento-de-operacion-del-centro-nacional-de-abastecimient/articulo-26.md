@@ -1,0 +1,2 @@
+Artículo 26: Fallecimiento o desaparición del concesionario
+En caso de fallecimiento o declaratoria de desaparición de la persona física el contrato de concesión se rescinde automáticamente, excepto si existiera algún interés formalmente manifiesto por parte de la familia de continuar con el contrato, además deberá presentarse nota de los miembros del núcleo familiar donde todos declaren su interés de continuar con la relación contractual, de conformidad con el instituto jurídico de hacienda agraria.

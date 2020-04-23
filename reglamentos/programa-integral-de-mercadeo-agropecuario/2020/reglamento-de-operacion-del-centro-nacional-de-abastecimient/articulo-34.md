@@ -1,0 +1,2 @@
+Artículo 34: Registro de “chamberos” colaboradores o personal autorizado
+La Dirección del CENADA, será responsable de llevar un registro de los “chamberos”, colaboradores, empleados o personal autorizado por los concesionarios permanentes u ocasionales para que realicen la actividad para la cual fueron contratados según lo indicado en la solicitud del abastecedor ocasional o concesionario. En dicho registro constará su nombre completo, calidades, lugar de residencia y fotografía.

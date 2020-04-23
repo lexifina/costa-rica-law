@@ -1,0 +1,6 @@
+Artículo 59: Servicio de agua y red de agua pluvial
+El servicio de agua para limpieza de áreas comunes, pasillos, andenes, servicios sanitarios, calles y áreas de circulación está a cargo del CENADA. El PIMA dispondrá de una red de pilas y lava manos comunes dentro de la Central Mayorista para enseres propios de la comercialización,
+el uso de las pilas y los lavamanos para otros propósitos queda prohibido.
+Cuando el concesionario requiera de un abastecimiento de agua potable diferenciado para sus procesos, deberá de realizar la solicitud formal ante la Dirección CENADA para que esta la valore y autorice si así corresponde.
+Queda prohibido a los concesionarios conectarse a la red de agua potable o de aguas servidas de la Central Mayorista sin la autorización respectiva. Toda aquella conexión no autorizada deberá reportarse, así como cualquier anomalía en la red de distribución de agua potable y en la red de aguas servidas, de ser detectada será clausurada por el Proceso de Mantenimiento.
+El costo del consumo de agua potable que el PIMA suministra a todos los concesionarios de la Central Mayorista se encuentra incluido en el canon establecido dentro de la concesión, establecido por el Consejo Directivo.

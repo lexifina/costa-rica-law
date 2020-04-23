@@ -1,0 +1,2 @@
+Artículo 16: Adjudicación
+Una vez cumplidos los requisitos aquí establecidos, la Dirección del CENADA analizará la solicitud, la cual deberá ser resuelta en un plazo no mayor a un mes, en el cual aprobará o improbará la adjudicación mediante los procedimientos establecidos ya sea por procedimiento de adjudicación directa o por medio de remate, la cual será formalizada a través del contrato de derecho de uso.

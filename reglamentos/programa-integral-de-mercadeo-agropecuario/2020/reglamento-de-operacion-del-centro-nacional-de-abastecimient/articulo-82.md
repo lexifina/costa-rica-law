@@ -1,0 +1,8 @@
+CAPITULO XVI. SANCIONES
+Artículo 82: Sanciones a concesionarios y sus ayudantes
+Los concesionarios y sus ayudantes, dentro del CENADA aceptan con su ingreso al CENADA el siguiente régimen sancionatorio cuando contravengan las obligaciones, prohibiciones, normas de este Reglamento y normativa nacional vigente.
+La aplicación de las sanciones se hará de forma preclusiva, en el siguiente orden, excepcionalmente atendiendo la gravedad de la falta y respetando para todos los efectos, el debido proceso.
+a) Amonestación verbal: la amonestación verbal constará en una boleta y se realizará el retiro de mercadería en caso de no corrección inmediata de la falta o de tratarse de mercadería no autorizada mediante este Reglamento.
+b) Amonestación escrita: la amonestación escrita se aplicará una vez que haya una amonestación verbal por una conducta reiterativa, esta se realizará por medio de una boleta, además del retiro de mercadería y la corrección de la falta de forma inmediata según corresponda.
+c) Multa: la multa se aplicará, para usuarios ocasionales y concesionarios permanentes, el valor de veinticuatro horas de permanencia en CENADA de un vehículo liviano y con retiro de mercadería en caso de no corrección inmediata de la falta.
+d) Rescisión del contrato o suspensión de la actividad comercial: la rescisión del contrato se aplicará a los concesionarios permanentes una vez que se hayan aplicado las medidas sancionatorias indicadas anteriormente, sin corrección de la conducta prohibida y previo cumplimiento del debido proceso. Para el caso de usuarios ocasionales, se aplicará la suspensión de las actividades comerciales dentro del CENADA, hasta por un período de un año, previo cumplimiento del debido proceso.

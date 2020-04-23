@@ -1,0 +1,2 @@
+Artículo 23: Traspasos excluidos de canon, cambio de persona física a personería jurídica
+La administración podrá prescindir del cobro del canon producto de una cesión de derechos y establecido en el artículo anterior cuando este obedezca a un cambio de persona física a persona jurídica, y el titular del contrato de concesión de derecho de uso sea el representante legal de la nueva empresa, lo cual deberá constar en el expediente del concesionario.

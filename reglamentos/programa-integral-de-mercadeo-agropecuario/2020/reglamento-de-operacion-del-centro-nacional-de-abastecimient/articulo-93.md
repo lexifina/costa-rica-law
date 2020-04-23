@@ -1,0 +1,3 @@
+Artículo 93: Costos y responsabilidad
+El costo del diseño, instalación, alimentación eléctrica y retiro de los instrumentos de promoción serán asumidos por el concesionario. La Administración vigilará que terminado el contrato de concesión de derecho de uso, el instrumento publicitario sea retirado y que cualquier daño a la infraestructura deberá ser restaurado inmediatamente, bajo la supervisión del ingeniero civil del PIMA.
+El PIMA no se hará responsable por la seguridad ni por el mantenimiento de los materiales publicitarios utilizados, debiendo el concesionario prever su preservación y mantenimiento. Salvo que la misma Administración contribuya al deterioro de esta.

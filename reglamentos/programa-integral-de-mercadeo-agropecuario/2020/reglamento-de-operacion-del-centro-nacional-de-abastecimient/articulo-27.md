@@ -1,0 +1,2 @@
+Artículo 27: Beneficiario de la concesión
+En caso que la persona desaparecida o fallecida hubiese con anterioridad establecido algún beneficiario que reuniere los requisitos mediante una nota formal dirigida a la Dirección CENADA, se prescindirá del procedimiento señalado en artículo anterior, para lo cual dispondrá un plazo de 15 días hábiles y se regirá por el principio agrario del artículo anterior. Pasado este periodo sin que se muestre interés de continuar con la concesión la Dirección CENADA rescindirá el contrato y recuperará el espacio.

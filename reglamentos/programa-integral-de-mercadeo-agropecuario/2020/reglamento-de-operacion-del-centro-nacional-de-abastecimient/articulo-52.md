@@ -1,0 +1,5 @@
+Artículo 52: Reubicaciones
+El Director del CENADA puede reubicar a los concesionarios situados en los espacios denominados “pisos” en otras áreas a concesionar equivalentes a las contratadas, con el objetivo de mejorar el orden y disposición de las instalaciones, procurar la ocupación o consolidar la sectorización del mercado. La reubicación no origina el derecho a ninguna indemnización.
+La Dirección del CENADA en común acuerdo con el concesionario está facultada para realizar reubicaciones de locales y bodegas con el objetivo de mejorar el orden y disposición de las instalaciones, procurar la ocupación o consolidar la sectorización del mercado. Las reubicaciones de común acuerdo serán ejecutadas por la Dirección no origina el derecho a ninguna indemnización.
+La Dirección del CENADA, previa autorización de la Gerencia General podrá disponer reubicaciones generales de concesionarios y traslados a distintas áreas concesionables.
+En cualquiera de los tres casos anteriores deberá comunicarse por escrito al concesionario con un mes de antelación.

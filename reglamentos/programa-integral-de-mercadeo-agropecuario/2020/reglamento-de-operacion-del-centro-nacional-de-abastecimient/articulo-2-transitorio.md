@@ -1,0 +1,1 @@
+Transitorio II: La administración procederá a no prorrogar los contratos de Concesión de Derechos de Uso, para lo cual el concesionario firmará un nuevo contrato bajo las estipulaciones del presente reglamento.

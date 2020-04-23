@@ -1,0 +1,3 @@
+Artículo 86: Ubicación de la publicidad de los concesionarios
+Solo se podrá hacer uso de las precintas del área concesionada para la promoción de bienes y servicios por los signatarios de las áreas concesionadas, así mismo se podrá utilizar el espacio ubicado en el borde superior de las puertas, cortinas o portones.
+El concesionario deberá presentar una solicitud para dicho servicio, la cual será analizada por la Administración, quien velará por aspectos de seguridad y correcto mantenimiento de la infraestructura, que no se invadan otras áreas concesionadas, que no se ponga en peligro la salud de las personas, que no se obstruya el libre tránsito de productos ni personas y que los mensajes no sean ofensivos.

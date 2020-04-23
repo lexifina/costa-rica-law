@@ -1,0 +1,2 @@
+Artículo 13: Del acompañamiento al concesionario:
+La Administración brindará un acompañamiento al concesionario o grupo de concesionarios que así lo soliciten, en las áreas técnicas propias de sus giros comerciales en temas tales como: mantenimiento del área asignada, presentación de sus productos, comportamiento dentro de la Central Mayorista, buenas prácticas comerciales, mantenimiento de normas de inocuidad, calidad de productos, uso de los servicios del CENADA.

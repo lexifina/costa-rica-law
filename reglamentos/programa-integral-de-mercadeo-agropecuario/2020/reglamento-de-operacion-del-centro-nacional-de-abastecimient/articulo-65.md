@@ -1,0 +1,5 @@
+CAPITULO XII. GESTIÓN AMBIENTAL E INOCUIDAD
+Artículo 65: Obligación de los concesionarios en el uso de buenas prácticas de manufactura (BMP).
+Es obligación del concesionario mantener en óptimas condiciones de higiene y limpieza el área concesionada.
+Es obligación del concesionario utilizar las buenas prácticas de manufactura (BPM) para mantener un nivel adecuado del manejo e inocuidad de los productos comercializados. Deberá colocar los residuos de su actividad previamente seleccionados en los contenedores que para tal efecto disponga la Administración. Los concesionarios deberán cumplir con las prácticas ambientales sustentables en cumplimiento con la Ley 8839 “Gestión Integral de Residuos”.
+Es obligación de los concesionarios y de los usuarios brindar la información solicitada por los inspectores del PIMA, Servicio Fitosanitario del Estado, SENASA, Ministerio de Salud o cualquier otra institución del estado que así lo requiera, para efectos de registros de comerciantes, procedencias, volúmenes de los distintos productos comercializados en CENADA, así como permitir el ingreso al local en caso de ser requerido para inspección de estas autoridades.

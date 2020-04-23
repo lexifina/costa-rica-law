@@ -1,0 +1,4 @@
+Artículo 63: Bloqueo de vías
+No está permitido el estacionamiento de vehículos en vías de circulación, en franja amarilla, frente a hidrantes y rampas de acceso a bodegas y accesos a otras calles. Los vehículos deberán limitarse al espacio demarcado para la comercialización.
+La Administración de acuerdo a las necesidades de la Central, podrá asignar por periodos y horarios establecidos a los concesionarios, áreas determinadas para carga y descarga, preferiblemente frente a las áreas concesionadas. Lo anterior debido a que todas las áreas de la Central son comunes para la comercialización.
+Los concesionarios y usuarios deberán de haber concluido la acción de carga y descarga de los productos como máximo una hora antes del inicio de la comercialización entiéndase el ingreso de desabastecedores.

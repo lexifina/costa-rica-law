@@ -1,0 +1,3 @@
+Artículo 20: Ampliación de las áreas concesionables.
+Cuando un concesionario permanente requiera área adicional para ampliar su negocio podrá solicitarla a la administración sin necesidad de participar en ningún procedimiento de selección, lo cual quedará a criterio del Director del CENADA y disponibilidad de espacio.
+El Director dispondrá de la asignación adicional de modo que el conjunto original y el nuevo puesto, local o área contratada constituyan una sola unidad física hasta donde sea posible, siempre y cuando se trate de la comercialización de productos de igual naturaleza de conformidad con la sectorización vigente del CENADA.

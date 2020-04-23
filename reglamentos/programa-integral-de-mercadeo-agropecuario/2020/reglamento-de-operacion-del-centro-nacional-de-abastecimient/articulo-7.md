@@ -1,0 +1,3 @@
+CAPÍTULO II. DE LA ADMINISTRACIÓN DEL CENADA
+Artículo 7: Dependencia administrativa del CENADA
+La Dirección de CENADA es un macro-proceso del PIMA que depende directamente de la Gerencia General. Esta Dirección está a cargo de un funcionario destacado como Director que Administra la Central Mayorista, de acuerdo con las políticas, facultades y atribuciones establecidas en la ley, así como por este Reglamento y las demás disposiciones aplicables. A su vez dicho macro-proceso está constituido de los procesos de Servicios a la Comercialización, el que a su vez cuenta con los sub-procesos de Acceso a Casetas y Ordenamiento regulación de la Central, el proceso de Mantenimiento y Aseo que a su vez está constituido por los subprocesos de Mantenimiento y Aseo.

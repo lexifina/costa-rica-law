@@ -1,0 +1,5 @@
+Artículo 55: Autorización y fiscalización de las mejoras o adiciones
+Toda mejora o adición permanente o transitoria, requiere de autorización escrita de la Dirección de CENADA, previa solicitud formal con una descripción clara y precisa de lo que se pretende realizar. La Dirección de CENADA se reserva el derecho de solicitar planos estructurales, si así lo considera pertinente según la legislación vigente.
+Dicha mejora o adición será analizada y aprobada en un plazo de 10 días hábiles por la Comisión Técnica conformada por el Ingeniero de Planta del PIMA, el Encargado de Mantenimiento y el Director del CENADA, según lo establecido en la Guía Técnica de Estandarización de Bodegas, Locales y Pisos, autorizada por la Gerencia General.
+La Administración puede realizar las inspecciones que considere oportunas en el lugar donde se realicen las mejoras o adiciones autorizadas.
+En caso de detectarse mejoras no autorizadas la Administración mediante procedimiento ordinario de la Ley General de la Administración Pública determinará la correspondiente demolición.
