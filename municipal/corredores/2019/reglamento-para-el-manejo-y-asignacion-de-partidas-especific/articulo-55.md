@@ -1,0 +1,1 @@
+Artículo 55.—Los saldos de partidas específicas, así como sus respectivos intereses, se podrán utilizar para la compra de combustible, mantenimiento de maquinaria municipal; de previo, deberá modificarse su fin.

@@ -1,0 +1,1 @@
+Artículo 48.—El Departamento de Proveeduría será el responsable del resguardo de los expedientes, una vez que se inicie el proceso de contratación administrativa tendiente a la ejecución del proyecto.

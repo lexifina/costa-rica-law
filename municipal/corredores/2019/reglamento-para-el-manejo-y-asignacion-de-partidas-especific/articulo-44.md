@@ -1,0 +1,1 @@
+Artículo 44.—El Departamento de Ingeniería realizará un análisis de cada perfil de proyecto, entre el 15 de diciembre y el último día hábil del mes de marzo del año siguiente, emitirá un informe técnico económico en el que lo acoja o rechace, trasladándolo al Concejo de Distrito.

@@ -1,0 +1,1 @@
+Artículo 39.—El Concejo Municipal deberá trasladar el acuerdo con la lista de proyectos aprobados por el Concejo de Distrito Ampliado al Departamento de Presupuesto municipal, a más tardar la tercera semana del mes de mayo; este último realizará todas las gestiones necesarias ante el Ministerio de Hacienda.

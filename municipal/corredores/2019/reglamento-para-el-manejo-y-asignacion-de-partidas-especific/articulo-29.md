@@ -1,0 +1,1 @@
+Artículo 29.—Los Concejos de Distrito remitirán al Concejo Municipal, a más tardar el dos de mayo, la lista de proyectos aprobados por el Concejo de Distrito Ampliado, que serán propuestos para financiarse por medio de partidas; de igual manera, los expedientes de respaldo.

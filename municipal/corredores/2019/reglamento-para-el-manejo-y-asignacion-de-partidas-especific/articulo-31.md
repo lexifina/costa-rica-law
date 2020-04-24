@@ -1,0 +1,1 @@
+Artículo 31.—El Concejo de Distrito con apoyo del Departamento de Ingeniería municipal, deberán informar, al menos una vez al año, a las entidades idóneas, sobre los proyectos sin ejecutar o con saldos y deberán incentivar la ejecución de las obras.

@@ -1,0 +1,1 @@
+Artículo 6º—La Comisión Mixta definirá anualmente la distribución de los recursos de partidas por cantones, según los criterios de población, pobreza y extensión geográfica definidos en la Ley Nº 7755. Dicha distribución deberá comunicarse a los Ministerios de Hacienda y Planificación Nacional y Política Económica.

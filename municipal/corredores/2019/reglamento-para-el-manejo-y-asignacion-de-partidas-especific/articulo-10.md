@@ -1,0 +1,1 @@
+Artículo 10.—La ciudadanía, comunidades u organizaciones sociales, por medio de las entidades idóneas, podrán presentar hasta el último día hábil del mes de marzo, ante el Concejo de Distrito respectivo, los proyectos de inversión, para optar por fondos de partidas para el siguiente año.

@@ -1,0 +1,1 @@
+Artículo 24.—Las entidades idóneas que requieran modificar una partida específica deberán solicitarlo al Concejo de Distrito de forma escrita; deberá indicar las razones por las cuales solicitan el cambio de destino y formular la nueva propuesta.

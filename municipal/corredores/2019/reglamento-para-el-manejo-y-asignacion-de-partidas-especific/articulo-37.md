@@ -1,0 +1,1 @@
+Artículo 37.—El Concejo Municipal deberá informar a los Concejos de Distrito, a más tardar en el mes de enero, sobre la distribución distrital de los fondos de partidas, siempre y cuando el Concejo Municipal haya recibido oportunamente esta información.

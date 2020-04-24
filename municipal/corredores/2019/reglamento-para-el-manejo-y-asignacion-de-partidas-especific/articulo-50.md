@@ -1,0 +1,1 @@
+Artículo 50.—El Departamento de Presupuesto será el encargado de realizar las modificaciones de los saldos de partidas que se destinarán para combustible; deberá informar a los Departamentos de Obras y Unidad Técnica de Gestión Vial, sobre la disponibilidad de los recursos para combustible.

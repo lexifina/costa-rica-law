@@ -1,0 +1,3 @@
+CAPÍTULO XII
+Disposiciones finales
+Artículo 56.—Sanciones y responsabilidades. El incumplimiento de lo establecido en este reglamento dará lugar a las sanciones previstas en la Ley General de la Administración Pública, Ley de Administración Financiera de la República y Presupuestos Públicos, Ley General de Control Interno, Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública, sin perjuicio de la aplicación de otras causales de responsabilidad contenidas en el ordenamiento jurídico.

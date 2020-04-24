@@ -1,0 +1,1 @@
+Artículo 30.—El Concejo de Distrito convocará a las entidades idóneas y comunidades del Distrito con al menos ocho días de antelación, indicando fecha, hora y lugar, para informar sobre los perfiles de proyectos aprobados para optar por fondos provenientes de partidas.

@@ -1,0 +1,1 @@
+Artículo 22.—La entidad idónea será responsable de la recepción, cuido y resguardo de los materiales entregados; deberá verificar que la facturación, orden de compra y materiales sean los indicados de acuerdo al proyecto. Por su parte, si el proceso es por obra terminada, le corresponderá vigilar la ejecución del proyecto.

@@ -1,0 +1,1 @@
+Artículo 17.—Las entidades idóneas recibirán capacitación, al menos una vez al año, sobre el proceso de formulación de proyectos con fondos de partidas y la solicitud de los fondos ante el Concejo de Distrito.

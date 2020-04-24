@@ -1,0 +1,1 @@
+Artículo 26.—Los Concejos de Distrito deberán informar en la primera quincena del mes de febrero, a la ciudadanía y entidades idóneas, sobre el monto que corresponde al Distrito, por concepto de partidas específicas.

@@ -1,0 +1,1 @@
+Artículo 11.—Las comunidades recibirán, al menos una vez al año, capacitación sobre el proceso de formulación de proyectos con fondos de partidas y solicitud de los fondos ante el Concejo de Distrito.

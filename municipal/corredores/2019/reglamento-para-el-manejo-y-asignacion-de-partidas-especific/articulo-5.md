@@ -1,0 +1,1 @@
+Artículo 5º—Los Ministerios de Hacienda y Planificación Nacional y Política Económica, determinarán y darán a conocer a la Comisión Mixta, el monto que corresponde, del Presupuesto Público Nacional, al rubro de partidas.

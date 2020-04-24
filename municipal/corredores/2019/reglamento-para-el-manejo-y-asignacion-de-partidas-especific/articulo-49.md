@@ -1,0 +1,1 @@
+Artículo 49.—La Municipalidad no podrá realizar erogaciones en gastos corrientes ni operacionales si es la beneficiaria de los recursos de la partida. Cuando el beneficiario sea una entidad idónea, únicamente podrán efectuarse gastos corrientes u operacionales limitados al diez por ciento (10%) del monto de la partida.

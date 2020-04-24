@@ -1,0 +1,1 @@
+Artículo 8º—La Comisión Mixta elaborará en el mes de enero la distribución Distrital de las partidas de conformidad a la Ley Nº 7755. Dicha propuesta se dará a conocer a la Municipalidad a más tardar el quince de enero.

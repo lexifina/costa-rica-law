@@ -1,0 +1,1 @@
+Artículo 43.—El Departamento de Ingeniería, en coordinación con los Concejos de Distrito, será responsable de brindar capacitación, en general, sobre la formulación de proyectos con fondos de partidas y la solicitud de los fondos públicos ante el Concejo de Distrito, al menos una vez al año, según lo contemplado en el artículo 11.

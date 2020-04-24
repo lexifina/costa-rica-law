@@ -1,0 +1,1 @@
+Artículo 32.—El Concejo de Distrito con apoyo de la Administración Municipal, recibirá las solicitudes de modificación de partidas que presentan las entidades idóneas y tomarán los acuerdos respectivos, en estos se indicarán las razones de cambio de destino y nuevas propuestas de proyectos, los cuales trasladarán al Concejo Municipal.
