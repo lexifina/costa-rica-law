@@ -14,3 +14,4 @@ Las embarcaciones atuneras de cerco de bandera extranjera sin licencia costarric
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-04-19 | la propia norma |
+| 2 | 2020-04-24 | Reglamento 0 (2020-04-24) |

@@ -1,4 +1,6 @@
+(Derogado)
 INSTITUTO COSTARRICENSE DE PESCA Y ACUICULTURA
+(Este acuerdo fue derogado por el artículo 35 del Reglamento para el seguimiento, control y vigilancia de embarcaciones pesqueras de las flotas nacionales y extranjeras (AJDIP/077-2020), aprobado mediante acuerdo N° AJDIP/077-2020 del 24 de abril del 2020)
 ADDIP/166-2018.—Puntarenas, a los veintitrés días del mes de marzo de dos mil dieciocho.
 Considerando:
 I.—Los esfuerzos desplegados por el INCOPESCA, de conformidad con el cumplimiento expreso de la Ley, en cuanto a evitar la pesca ilegal en aguas nacionales, práctica altamente nociva y contraria a los principios más elementales del Código de Pesca Responsable.
