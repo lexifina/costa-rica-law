@@ -1,0 +1,1 @@
+Transitorio I: En tanto la comisión aprueba los perfiles teletrabajables de acuerdo al cargo y los requisitos físicos, la Gerencia General podrá otorgar la modalidad de teletrabajo a los funcionarios que de conformidad con las reglas de la lógica y la sana crítica puedan acceder a esta modalidad por el espacio de dos meses y podrá ser renovado.

@@ -1,0 +1,2 @@
+Artículo 5º—De los requisitos físicos. La comisión de teletrabajo elaborará un detalle de los requerimientos y especificaciones físicas de los espacios para teletrabajar en los que determinarán las condiciones del entorno de la persona que teletrabaja, en el cual se incluirá, lo relativo a las herramientas tecnológicas mínimas, conectividad, condiciones de salud ocupacional mínimas y todos aquellos otros requerimientos que resulten indispensables para el correcto desempeño de las
+labores.

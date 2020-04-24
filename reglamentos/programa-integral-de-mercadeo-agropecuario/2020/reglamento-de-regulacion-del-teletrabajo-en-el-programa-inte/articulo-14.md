@@ -1,0 +1,1 @@
+Artículo 14.—Estado de Emergencia. En tanto se encuentre decretado un estado de Emergencia a nivel nacional, regional o local, la Gerencia General, podrá variar las condiciones del teletrabajo de acuerdo a las necesidades institucionales y atención de directrices producto de dicha emergencia, lo cual será comunicado al Consejo Directivo.
