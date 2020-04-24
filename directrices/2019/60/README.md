@@ -14,3 +14,4 @@ Priorización de atención de la pobreza mediante la utilización del sistema na
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-10-24 | la propia norma |
+| 2 | 2020-04-24 | Directriz 81 (2020-04-24) |
