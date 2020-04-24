@@ -1,0 +1,4 @@
+Artículo 16.—Medidas de Atención e Intervención de Conflictos. Cuando un servidor público municipal considere que hay actuaciones que insinúen acoso laboral en su dependencia u otras, sin que medie una denuncia formal, puede acudir a la Dirección de Talento Humano, con el fin de recibir asesoría y/o atención. En este caso, la Dirección de Talento Humano, podrá realizar las siguientes acciones:
+a) Brindar asesoría individual o grupal sobre el tema de acoso laboral, sus manifestaciones y estrategias de prevención.
+b) Otorgar asesoría a las jefaturas en el desarrollo y fortalecimiento de sus habilidades directivas.
+c) Visitar el lugar para informar al grupo (personal, jefaturas, coordinadores o gestores y otros) acerca del acoso laboral y su regulación en la Municipalidad de Parrita, así como prácticas sanas de convivencia, entre otros.

@@ -1,0 +1,12 @@
+Artículo 7.—Conductas y Acciones que no Constituyen Acoso Laboral. No constituyen acoso laboral bajo ninguna de sus modalidades, las siguientes conductas o acciones:
+a) Promover, dictar o ejecutar las reglamentaciones, políticas, directrices, instrucciones, exigencias y disposiciones necesarias para mantener el orden, la disciplina y el aprovechamiento de los recursos institucionales, conforme al bloque de legalidad.
+b) Dictar los actos destinados a ejercer la potestad disciplinaria que legalmente corresponde a las jerarquías sobre sus colaboradores.
+c) Formular comunicados (circulares, oficios, correos electrónicos u otros) encaminados a solicitar exigencias técnicas, de gestión administrativa o mejorar la eficiencia laboral, así como la evaluación laboral periódica de los funcionarios.
+d) Solicitar el cumplimiento de deberes extraordinarios de colaboración con la Institución, cuando sean necesarios para garantizar la continuidad del servicio público, o para solucionar situaciones particulares en la gestión de la Institución.
+e) Las actuaciones administrativas o gestiones encaminadas a dar por terminado el contrato de trabajo, con base en una causa legal o una justa causa, prevista en el Código Municipal, Código de Trabajo, Convención Colectiva y este Reglamento o en la legislación sobre la función pública
+f Las órdenes o instrucciones razonables dadas por las jefaturas para la elaboración de un trabajo o el cumplimiento de las funciones del trabajador.
+g) La exigencia de cumplir las obligaciones o deberes de que trata el Código Municipal, así como de no incurrir en las prohibiciones de que trata el mismo Código y el Código de Trabajo.
+h) Las diferencias o conflictos personales o laborales aislados, de carácter pasajero, que se presenten en un momento concreto y en el marco de las relaciones interpersonales, de forma tal que afecte el ámbito laboral pero que su finalidad no sea la renuncia, el despido o el traslado de las partes implicadas en el suceso.
+i) Excluir justificadamente la participación de personas en procedimientos de contratación interna, capacitaciones, permisos o licencias, así como vacaciones, para los que no se cumplan con los requisitos de ley o los requerimientos institucionales según la necesidad del servicio.
+j) La solicitud de cumplir los Deberes Éticos del Servidor Público Municipal.
+k) Las exigencias de cumplir con las estipulaciones contenidas en los reglamentos, cláusulas de los contratos de trabajo, perfiles de puestos.

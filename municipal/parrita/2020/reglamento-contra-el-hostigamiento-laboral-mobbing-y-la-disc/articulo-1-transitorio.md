@@ -1,0 +1,2 @@
+Transitorio I.—Los procedimientos disciplinarios relativos a esta materia que, con anterioridad a la publicación de este Reglamento, se encuentren activos, se regirán en todos sus trámites y recursos conforme a esta normativa aplicable vigente al momento de su instrucción. Licda. Sandra Hernández Chinchilla, Secretaría Municipal, Municipalidad de Parrita. Es Conforme:
+Se extiende la presente certificación en la Ciudad de Parrita, el catorce de abril del dos mil veinte.

@@ -1,0 +1,2 @@
+Artículo 20.—El mobbing, cuando estuviere debidamente acreditado, se sancionará así: 1.-Como falta disciplinaria grave según el Código Municipal. 2.-Como terminación del contrato de trabajo sin justa causa, cuando haya dado lugar a la renuncia o el abandono del trabajo por parte del servidor público acosado.
+Durante la investigación disciplinaria por conductas constitutivas de mobbing, se podrá ordenar la suspensión provisional del servidor público procedimentado siempre y cuando existan serios indicios de venganza en contra de la posible víctima.
