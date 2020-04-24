@@ -14,3 +14,4 @@ Constitución del Régimen Especial de Tributación para el sector agropecuario 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-10-01 | la propia norma |
+| 2 | 2020-04-24 | Decreto Ejecutivo 42306 (2020-04-24) |
