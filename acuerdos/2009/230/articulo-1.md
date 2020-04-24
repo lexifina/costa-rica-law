@@ -1,4 +1,6 @@
+(Derogado)
 INSTITUTO COSTARRICENSE DE PESCA Y ACUICULTURA
+(Este acuerdo fue derogado por el artículo 35 del Reglamento para el seguimiento, control y vigilancia de embarcaciones pesqueras de las flotas nacionales y extranjeras (AJDIP/077-2020), aprobado mediante acuerdo N° AJDIP/077-2020 del 24 de abril del 2020)
 A.J.D.I.P./230-2009.—Puntarenas, a los diecisiete días del mes de julio del 2009.
 Considerando
 I.—Que el Código de Conducta para la Pesca Responsable de la FAO (Organización de la Naciones Unidas para la Agricultura y la Alimentación), adoptado por Costa Rica mediante Decreto Ejecutivo Nº 27919, publicado en La Gaceta Nº 114 del 14 de junio de 1999, señala que los Estados deberán establecer mecanismos eficaces para vigilar y controlar las actividades de las embarcaciones pesqueras.

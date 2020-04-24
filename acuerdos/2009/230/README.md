@@ -15,3 +15,4 @@ Seguimiento Satelital de Embarcaciones de la Flota Nacional Pesquera Comercial y
 | --- | --- | --- |
 | 1 | 2009-08-04 | la propia norma |
 | 2 | 2010-09-10 | Acuerdo 294 (2010-09-10) |
+| 3 | 2020-04-24 | Reglamento 0 (2020-04-24) |
