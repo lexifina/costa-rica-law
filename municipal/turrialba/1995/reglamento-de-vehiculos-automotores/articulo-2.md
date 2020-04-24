@@ -1,6 +1,0 @@
-Artículo 2°—Los vehículos de la Municipalidad serán administrados por et Ejecutivo Municipal y se clasifican en:
-a) De uso discrecional; El asignado por el Concejo a un determinado funcionario, por la índole de sus funciones y para el mejor desempeño de éstas. El usuario de este tipo de vehículos será responsable del uso correcto del mismo. El asignado al Ejecutivo Municipal se considera de uso discrecional.
-b) De uso administrativo: Todos los demás vehículos. Incluyendo la maquinaria y equipos de vías publicas y recolección.
-Para realizar labores extraordinarias o asistir a actos oficiales de la Municipalidad , que se lleven a cabo fuera de las horas de oficina o bien, en días sábados, domingos o feriados, se requiere de autorización escrita otorgada por el Ejecutivo, con al menos un día de anticipación, excepto que se tratare de asuntos imprevistos, urgentes e impostergables a criterio del Ejecutivo, los que podrán ser autorizados el mismo día, siempre por escrito. En todo caso el Ejecutivo autorizará el servicio únicamente cuando se trate de actividades relacionadas con las labores municipales.
-Estos vehículos no podrán usarse para fines contrarios a la ley, la moral o las buenas costumbres.
-Los asignatarios de vehículos de uso discrecional y administrativo serán responsables del correcto uso de los mismos.

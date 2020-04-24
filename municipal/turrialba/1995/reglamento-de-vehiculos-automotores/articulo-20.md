@@ -1,3 +1,0 @@
-Artículo 20.—La bodega municipal llevará un control exacto de las herramientas y repuestos con que cuenta cada unidad, control que debe mantener actualizado mediante una lista registro de la cual se mantendrá copia en la respectiva unidad automotor.
-Dicho control se coordinará con los chóferes y funcionarios autorizados, este control tiene como objeto el evitar la pérdida o mal uso de tales implementos así como su recuperación oportuna en caso de extravío.
-La bodega deberá reportar al Ejecutivo Municipal mensualmente el consumo de combustible, lubricantes, repuestos y otros accesorios de todos los vehículos, a fin de evaluar su rendimiento, en los formularios que al efecto se crearen.

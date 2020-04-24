@@ -1,1 +1,0 @@
-Artículo 26.—El incumplimiento de las disposiciones comprendidas en este reglamento será sancionado con una amonestación, suspensión o el despido según la magnitud de la falta, de acuerdo con lo que establece el Reglamento interior de trabajo y las leyes laborales conexas, sin perjuicio de lo dispuesto en la Ley de Tránsito.

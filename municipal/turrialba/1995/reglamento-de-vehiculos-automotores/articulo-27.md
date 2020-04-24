@@ -1,1 +1,0 @@
-Artículo 27.—Las disposiciones contenidas en este Reglamento no limitan a la Municipalidad a aplicar sanciones más severas que resulten según la gravedad del caso, todo ello de conformidad con el Reglamento Interior de Trabajo y las leyes respectivas.

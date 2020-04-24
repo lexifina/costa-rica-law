@@ -1,3 +1,0 @@
-Artículo 28.—El presente Reglamento deroga toda la disposición de cualquier índole que se le oponga y se presumirá de conocimiento de los usuarios de los vehículos municipales y será de observancia obligatoria para todos, cualquier reforma o adición a este Reglamento será aprobado por el Concejo, y requerirá para su puesta en práctica de la aprobación definitiva de la Contraloría General de la República.
-Este Reglamento fue aprobado en la sesión ordinaria N° 138-95, celebrada por el Concejo Municipal de Turrialba, el día martes 18 de julio de 1995, en el inciso 8) del artículo 3°.
-Rige a partir de su publicación en el Diario Oficial " La Gaceta ".
