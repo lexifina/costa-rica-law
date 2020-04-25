@@ -14,3 +14,4 @@ Suspensión por parte de la Fuerza Pública de la ejecución de desalojos admini
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-04-16 | la propia norma |
+| 2 | 2020-04-25 | Resolución 1897 (2020-04-25) |
