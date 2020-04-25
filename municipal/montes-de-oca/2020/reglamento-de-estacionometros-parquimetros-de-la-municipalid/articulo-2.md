@@ -1,0 +1,2 @@
+Artículo 2º—De las potestades. La Municipalidad de Montes de Oca, por medio de su Alcaldía, el Departamento de Seguridad Vial, la Sección de Parquímetros y el Departamento de Obras designará las zonas, calles, avenidas, plazas, parques y demás lugares públicos que serán destinados a estacionamientos autorizados, siempre que las vías sean cantonales.
+En caso de la que vía sea nacional, la designación se hará en estrecha colaboración con el Ministerio de Obras Públicas y Transportes (MOPT), de acuerdo con el estudio técnico que se realice para tal fin.

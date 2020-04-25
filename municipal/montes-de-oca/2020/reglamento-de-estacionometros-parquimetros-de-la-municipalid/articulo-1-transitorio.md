@@ -1,0 +1,2 @@
+Transitorio N° 1. La eliminación de las boletas de papel, como forma normal de pago, se realizará en el periodo de un año a partir de la aprobación de este reglamento y en estrecha coordinación con quien opere el STPA.
+Acuerdo definitivamente aprobado por unanimidad por el Concejo Municipal de Montes de Oca, en la sesión ordinaria N° 200-2020, artículo N° 9, punto N° 3, del día 09 de marzo del 2020.
