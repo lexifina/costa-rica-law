@@ -1,0 +1,1 @@
+Artículo 2º—La prórroga consignada en el artículo 1º de este Decreto Ejecutivo implica la moratoria en el cumplimiento por parte de la PYME de las obligaciones consignadas en los numerales 24 y 26 del Decreto Ejecutivo número 39295-MEIC del 22 de junio de 2015, para la renovación de la condición PYME.

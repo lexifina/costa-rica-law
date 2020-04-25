@@ -1,0 +1,1 @@
+Artículo 3º—La Dirección General de la Pequeña y Mediana Empresa deberá vigilar el cumplimiento del plazo indicado del artículo 1º de este Decreto Ejecutivo, así como de que las instituciones públicas que otorgan beneficios a las pymes cuenten con los datos actualizados en razón de esta medida de prórroga.
