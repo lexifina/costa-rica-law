@@ -1,2 +1,2 @@
-Artículo 5: El monto máximo que se pagará por el uso de servicio de taxi, será de diez mil colones. En caso de que se deban realizar ajustes en los citados montos, el Director del Departamento Financiero someterá la propuesta a consideración del Directorio Legislativo.
-(Así reformado mediante acuerdo N° 52-12-13 aprobado en sesión ordinaria N° 151 del 11 de diciembre del 2012)
+Artículo 5.—El monto máximo que se pagará por el uso de servicio de taxi, será de quince mil colones; no obstante, montos superiores a este podrán ser autorizados por el Director Ejecutivo, siempre que cuenten con la debida justificación del jefe correspondiente.
+(Así reformado mediante sesión ordinaria N° 103-2020 del 25 de abril del 2020)
