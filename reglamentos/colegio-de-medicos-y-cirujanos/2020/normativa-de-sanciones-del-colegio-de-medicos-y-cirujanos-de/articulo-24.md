@@ -1,0 +1,1 @@
+Artículo 24.—Transitorio. Las sanciones establecidas en este Reglamento aplicaran para todos los procedimientos disciplinarios posteriores a la publicación de la reforma a la Ley Orgánica del Colegio de Médicos y Cirujanos de Costa Rica, N° 9809, en La Gaceta N° 37 del 25 de febrero del 2020.

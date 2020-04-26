@@ -1,0 +1,1 @@
+Artículo 4º—Prohibición de reforma en perjuicio. Cuando el investigado apele una sanción ante la Junta de Gobierno, esta no podrá imponer una sanción mayor a la ya determinada por el Tribunal de Ética Médica.

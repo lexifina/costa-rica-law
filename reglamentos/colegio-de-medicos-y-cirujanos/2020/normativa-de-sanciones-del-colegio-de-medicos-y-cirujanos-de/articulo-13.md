@@ -1,0 +1,1 @@
+Artículo 13.—De la competencia. El beneficio de ejecución condicional de la sanción será otorgado por una única vez siempre que el profesional se encuentre dentro de los parámetros previamente determinados en la presente normativa. No obstante, el otorgamiento de dicho beneficio quedará a criterio del órgano competente.

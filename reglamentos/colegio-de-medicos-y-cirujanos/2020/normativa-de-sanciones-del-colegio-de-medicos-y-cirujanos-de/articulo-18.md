@@ -1,0 +1,6 @@
+Artículo 18.—Del cumplimiento. El órgano que impone la sanción delegará en la Fiscalía del Colegio de Médicos y Cirujanos la fiscalización del cumplimiento de la medida alternativa. A quien se le conceda el beneficio de ejecución condicional de la sanción, le será notificada la decisión y tendrá un plazo máximo de ocho días, contados a partir de la firmeza de la resolución final que imponga una sanción de suspensión del ejercicio profesional, para comunicarse con la Fiscalía, a efecto de coordinar la disponibilidad y la asignación de los proyectos y los cursos correspondientes. Para tales efectos será obligación de la Fiscalía de este colegio profesional realizar las diligencias necesarias con los órganos internos que corresponda.
+El beneficio de la ejecución condicional de la sanción queda sujeto al cumplimiento de los siguientes requisitos por parte del agremiado sancionado:
+a) No ser sancionado durante el período del beneficio por una nueva falta disciplinaria.
+b) Cumplir con las obligaciones, condiciones y plazos que se impongan.
+c) Mantener un orden estricto en el manejo y control de la documentación que se le confíe y que se genera durante el desarrollo de sus actividades.
+d) Acatar las observaciones e indicaciones formuladas por la persona designada por la Fiscalía para el seguimiento de la ejecución condicional de la sanción.

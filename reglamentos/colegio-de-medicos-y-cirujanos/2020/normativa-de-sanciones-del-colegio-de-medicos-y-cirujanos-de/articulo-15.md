@@ -1,0 +1,1 @@
+Artículo 15.—Incumplimiento. El incumplimiento injustificado por parte del agremiado en los términos impuestos en la sanción sustitutiva o la imposición de una sanción disciplinaria con posterioridad al otorgamiento del beneficio implicará la cancelación inmediata de la medida alternativa y el cumplimiento de las sanciones.

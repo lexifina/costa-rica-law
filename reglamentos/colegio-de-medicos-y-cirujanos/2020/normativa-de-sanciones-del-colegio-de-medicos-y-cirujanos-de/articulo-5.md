@@ -1,0 +1,3 @@
+Artículo 5º—Antecedentes disciplinarios del sancionado. En todos los casos en que proceda la imposición de una sanción disciplinaria, el Tribunal de Ética Médica y la Junta de Gobierno deberán analizar si es la primera ocasión en que el médico o profesional autorizado incurre en una falta disciplinaria, o bien si el mismo es reincidente o recurrente.
+Se entenderá por reincidente como aquel médico o profesional autorizado que incurre nuevamente en una falta tipificada en el Código de Ética Médica.
+Se entenderá por recurrente como aquel médico o profesional autorizado que incurre en una falta tipificada en el Código de Ética Médica por tercera o más veces.

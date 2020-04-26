@@ -1,0 +1,1 @@
+Artículo 2º—Suspensión por condena penal. En caso de que la persona colegiada o autorizada sea condenada por un delito relacionado con el ejercicio de la profesión, la suspensión se prolongará por el plazo de la condena establecida en sede penal.

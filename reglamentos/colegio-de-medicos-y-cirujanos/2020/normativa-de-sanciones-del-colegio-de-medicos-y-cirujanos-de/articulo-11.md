@@ -1,0 +1,1 @@
+Artículo 11.—Publicación de la suspensión para el ejercicio profesional. En caso de suspensión para el ejercicio profesional, una vez firme la sanción, esta deberá publicarse en el Diario Oficial La Gaceta.

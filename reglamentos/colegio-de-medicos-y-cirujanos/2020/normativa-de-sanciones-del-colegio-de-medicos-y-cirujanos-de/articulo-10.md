@@ -1,0 +1,1 @@
+Artículo 10.—Ejecución de las sanciones y registro de infractores. Las sanciones impuestas por el Tribunal de Ética Médica se ejecutarán una vez que el acto administrativo final se encuentre en firme. El Colegio llevará un registro de sus miembros que hayan sido sancionados o que se hayan acogido a una medida alternativa a la sanción.

@@ -1,0 +1,1 @@
+Artículo 20.—Del cálculo de los plazos. El plazo del beneficio acordado empezará a correr a partir de la asignación del proyecto. El plazo de la sanción se tendrá por cumplido hasta que el agremiado sancionado haya ejecutado los trabajos asignados y además haya aportado ante la Fiscalía la documentación que acredite la aprobación del curso de actualización asignado.
