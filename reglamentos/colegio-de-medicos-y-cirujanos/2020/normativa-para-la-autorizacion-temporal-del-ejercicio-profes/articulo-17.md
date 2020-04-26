@@ -1,0 +1,1 @@
+Artículo 17. Derogatorias. La presente normativa deroga la “Normativa para la Autorización Temporal del Ejercicio Profesional para Médicos Generales y Médicos Especialistas”, publicada en el Alcance N° 69 de La Gaceta del 27 de marzo del 2019 aprobada en sesión ordinaria de Junta de Gobierno N°2019-X, del 27 de febrero del 2019.
