@@ -1,0 +1,7 @@
+Artículo 2º—Condiciones para la participación virtual en las sesiones de Junta. Se permite la participación virtual de un miembro de Junta en las sesiones de este órgano colegiado, siempre que concurran los siguientes aspectos de deliberación, confiabilidad y simultaneidad que exige el Principio de Colegialidad:
+a) Que la sesión de Junta se lleve a cabo a través de tecnologías de información y comunicación, que garantice la participación en tiempo real de los miembros de Junta.
+Esta participación debe garantizar la transferencia de datos e información al miembro de Junta por medio de audio e imagen.
+b) Que en el caso de que la sesión se realice de forma presencial y un miembro solicite la participación virtual debe motivar las causales que le impiden sesionar in situ, indicando las fechas que hará uso de este recurso, con el fin de preparar los dispositivos o equipos necesarios para el desarrollo adecuado de la sesión.
+c) Como requerimiento de seguridad, deberá asegurarse la efectiva y recíproca visibilidad y audibilidad de las personas presentes en ambos lugares, para lo cual la Junta garantizará un espacio con la tecnología idónea que dé cumplimiento a esta disposición.
+d) La presencia virtual deberá respetar la prohibición de superposición horaria.
+La participación de los miembros de Junta bajo la modalidad virtual no podrá superar de dos al mes, salvo situaciones de fuerza mayor o caso fortuito.

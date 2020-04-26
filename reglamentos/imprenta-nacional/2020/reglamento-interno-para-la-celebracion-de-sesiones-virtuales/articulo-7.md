@@ -1,0 +1,1 @@
+Artículo 7º—Foros de discusión. No se considerará participación virtual; ninguno de los foros de discusión que se realicen por medios telemáticos para profundizar en la discusión y conocimiento de asuntos o propuestas a someter o que se encuentren pendientes de aprobación por la Junta.
