@@ -1,0 +1,3 @@
+Artículo 12.—Las exhumaciones ordinarias a solicitud de los interesados se realizarán en presencia del encargado del cementerio y dos parientes cercanos de la persona fallecida.
+Las que estuvieren motivadas por el interés de la Administración Municipal, que no ha cancelado el derecho, que no ha renovado contrato y que ha sido debidamente notificado, con el fin de ocupar un espacio en el que hubieren transcurrido cinco años desde la última inhumación, y requerirán la presencia de un representante de dicha Administración, para trasladar los resto humanos a una fosa común.
+En ambos casos deberá levantarse un acta, cuya fórmula dispondrá y suministrará la misma Administración.

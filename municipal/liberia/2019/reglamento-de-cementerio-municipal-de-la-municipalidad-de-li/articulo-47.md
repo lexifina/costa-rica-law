@@ -1,0 +1,1 @@
+Artículo 47.—El contrato de arrendamiento sólo es factible al ocurrir una defunción, parlo tanto el mismo no es transferible ni reservable. Los restos que fueron exhumados (sacados) de los nichos de alquiler se depositarán en nichos de osario, (y se alquilarán a un menor costo).

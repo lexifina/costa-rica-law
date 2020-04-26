@@ -1,0 +1,1 @@
+Artículo 36.—Los jarrones, macetas y otros recipientes que se coloquen sobre las bóvedas deberán estar permanentemente dañados por medio de agujeros conforme lo dispone el Decreto Nº 20 del 8 de noviembre de 1938.

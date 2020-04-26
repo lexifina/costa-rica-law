@@ -1,0 +1,1 @@
+Artículo 10.—Las inhumaciones se realizarán entre las 6:00 a.m. y 6:00 p.m de lunes a domingo, salvo los casos especiales que el médico forense o autoridad competente ordene, cancelando la respectiva tarifa oportunamente aprobadas por el Concejo.

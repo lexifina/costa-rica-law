@@ -1,0 +1,3 @@
+Artículo 38.—Los mausoleos subterráneos a que se refiere el artículo 23 se definen como construcciones de 3 nichos en fondo colocados en ambas parcelas laterales y con acceso por la parcela central. Este acceso estará cubierto por una lápida debidamente asegurada. La construcción no podrá sobresalir más de 20 cm del nivel del suelo, ni podrá tener una profundidad mayor de 2 metros del mismo nivel.
+Todo cementerio deberá contar con un osario general debidamente protegido, donde se depositarán los restos óseos provenientes de las exhumaciones, debiendo estar construido antes de que transcurran los primeros cinco años de servicio.
+Construcción de paredes para osarios: Se construirán paredes de osario con una medida de 50 x 50 cm o menos.

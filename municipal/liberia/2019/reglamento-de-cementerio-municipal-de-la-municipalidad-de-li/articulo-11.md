@@ -1,0 +1,4 @@
+De las exhumaciones
+Artículo 11.—Las exhumaciones serán ordinarias y extraordinarias. Las primeras, tienen lugar después de cinco años de realizada la inhumación y se realizará mediante autorización del Ministerio de Salud para trasladar los restos a otra sepultura o para ser incinerados. De las exhumaciones extraordinarias se realizarán por orden judicial. Las extraordinarias se dan en dos circunstancias:
+a) Cuando los cadáveres sean exhumados por orden de autoridad judicial para investigaciones que interesen a órganos jurisdiccionales, en cuyo caso no requerirán autorización de la autoridad sanitaria. No obstante lo anterior, se deberán guardar las siguientes medidas sanitarias: usar guantes, delantal o bata, mascarillas y bolsas plásticas debidamente identificadas.
+b) Cuando la autoridad sanitaria competente, lo autorice para ser trasladados a otras sepulturas o para ser cremados, deberán guardar las mismas medidas sanitarias indicarlas en el inciso anterior.

@@ -1,0 +1,1 @@
+Artículo 6º—La presentación del comprobante deberá hacerse dos horas antes de la inhumación en los casos en que la misma se realice en nicho municipales o bóvedas particulares, con el fin de determinar el sitio exacto y la ausencia de restos con menos de cinco años de inhumados.

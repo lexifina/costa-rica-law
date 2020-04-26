@@ -1,0 +1,1 @@
+Artículo 33.—Cualquier daño o deterioro ocasionado por la construcción de un nicho será reparado de inmediato por el interesado. En caso contrario el costo de la reparación será cargado a su cuenta por la Municipalidad y constituirá un gravamen sobre el derecho respectivo.
