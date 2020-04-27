@@ -14,3 +14,4 @@ Reglamento interno sobre el uso de vehículos municipales
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-04-14 | la propia norma |
+| 2 | 2020-04-27 | Reglamento municipal 211 (2020-04-27) |
