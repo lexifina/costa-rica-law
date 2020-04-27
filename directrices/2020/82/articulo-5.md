@@ -1,0 +1,1 @@
+Artículo 5º-Revisión de las medidas en protocolos específicos. Las medidas contempladas en los protocolos específicos promovidos por la presente Directriz, podrán ser modificadas, aclaradas o eliminadas por el Ministerio de Salud, según el criterio técnico-epidemiológico sobre el riesgo de contagio del COVID-19 en la respectiva actividad, servicio o centro de trabajo.

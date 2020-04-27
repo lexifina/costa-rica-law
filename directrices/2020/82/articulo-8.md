@@ -1,0 +1,1 @@
+Artículo 8º.-Para el cumplimiento de lo dispuesto en el artículo 4 inciso d), cada persona jerarca informará en su página web o redes institucionales un correo electrónico para la recepción de propuestas, en el plazo de 48 horas a partir de la vigencia de la presente Directriz.

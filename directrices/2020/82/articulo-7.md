@@ -1,0 +1,1 @@
+Artículo 7°.-Informes de cumplimiento. De manera semanal a partir de la vigencia de la presente Directriz, cada persona jerarca deberá informar al Consejo de Gobierno sobre el seguimiento del proceso señalado.
