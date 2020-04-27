@@ -1,1 +1,1 @@
-Artículo 127.—Las supuestas faltas de personal nombrado en calidad de interino, a plazo fijo o por obra determinada, se tramitara a través del proceso sumario independientemente de su naturaleza y aparente gravedad.
+Artículo 127.—(Derogado mediante sesión N° 096 del 27 de abril del 2020)
