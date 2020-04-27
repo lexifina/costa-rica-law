@@ -1,0 +1,5 @@
+Artículo 12°.De las sesiones del Consejo Ejecutivo: A las sesiones del Consejo Ejecutivo, podrán asistir por invitación, todas aquellas personas que se consideren pertinentes y necesarias para el asunto que se vaya a tratar.
+En este caso, el Consejo podrá acordar conceder a los invitados, el derecho de participar en las deliberaciones con voz, pero sin voto.
+De manera permanente, deberán asistir con voz, pero sin voto, el Gerente del FONASCAFE, el Jefe de la Unidad de Asuntos Jurídicos del ICAFE y el Auditor Interno de FONASCAFE
+Para reunirse en sesión ordinaria no hará falta convocatoria especial. En el caso de requerirse la celebración de una sesión extraordinaria, resultará necesaria la convocatoria por escrito, pudiendo realizarse esta por correo electrónico, con la antelación mínima de veinticuatro horas, salvo casos de urgencia; la convocatoria se acompañará con la copia del orden del día.
+No obstante, se podrá sesionar válidamente sin cumplir con todos los requisitos del orden del día y la convocatoria previa, cuando asistan todos sus miembros y así lo acuerden por unanimidad.

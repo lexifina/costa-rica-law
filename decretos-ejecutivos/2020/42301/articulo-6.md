@@ -1,0 +1,1 @@
+Artículo 6°.Vigencia de los nombramientos: El Consejo Ejecutivo será nombrado por un periodo de 4 años, contados a partir de la entrada en vigencia de la Ley N°9630, publicada en el Alcance No.20 a La Gaceta No. 20, del 29 de enero de 2019 y cesarán en sus cargos una vez transcurrido dicho periodo.

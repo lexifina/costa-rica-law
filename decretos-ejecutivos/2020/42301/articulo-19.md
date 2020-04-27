@@ -1,0 +1,2 @@
+Artículo 19°.Convocatoria a sesiones extraordinarias: La convocatoria a sesiones extraordinarias podrá realizarla el presidente o en su defecto tres miembros del Consejo Ejecutivo. Deberá convocarse con un mínimo de veinticuatro horas de anticipación y no más de ocho días naturales.
+La convocatoria deberá enviarse debidamente firmada e indicar los temas a tratar. Podrá firmarla, en su caso, el presidente o los miembros del Consejo Ejecutivo.

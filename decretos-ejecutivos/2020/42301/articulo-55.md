@@ -1,0 +1,1 @@
+Artículo 55.Modificaciones presupuestarias: En aquellos casos para los cuales se agoten las partidas presupuestarias aprobadas, el Consejo Ejecutivo deberá autorizar los traslados y las modificaciones que se requieran.

@@ -1,0 +1,1 @@
+Artículo 22°.Del nombramiento del Gerente de FONASCAFE: El FONASCAFE contará con la figura de un Gerente, quien tendrán a su cargo la operatividad del Fondo, bajo la instrucción de la Dirección Ejecutiva del Instituto del Café de Costa Rica, al igual que toda la estructura organizativa del ICAFE cuando ejecute funciones propias del FONASCAFE.

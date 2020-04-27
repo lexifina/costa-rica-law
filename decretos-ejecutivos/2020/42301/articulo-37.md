@@ -1,0 +1,1 @@
+Artículo 37.Esquemas de garantías: Se dará preferencia a aquellos esquemas que logren el mayor efecto multiplicador en cuanto al monto y productores favorecidos, en especial, programas de garantía de pérdida esperada del portafolio de crédito en comparación con esquemas de garantías de créditos individuales.

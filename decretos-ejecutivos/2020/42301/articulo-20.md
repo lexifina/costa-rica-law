@@ -1,0 +1,1 @@
+Artículo 20°.De la elaboración de manuales y Reglamentos: El Consejo Ejecutivo deberá emitir directrices, lineamientos y elaborar manuales y reglamentos que orienten el funcionamiento del FONASCAFE, siempre y cuando no se contrapongan a lo establecido en la Ley 9630 y el presente Reglamento.

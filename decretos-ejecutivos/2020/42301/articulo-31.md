@@ -1,0 +1,1 @@
+Artículo 31.De la información para auditoría interna y auditorías externas: Los intermediarios financieros deberán facilitar la información para la auditoría interna de ICAFE y auditorías externas que sean contratadas por el Consejo Ejecutivo para la verificación del cumplimiento de los objetivos del Fondo.

@@ -1,0 +1,1 @@
+Artículo 35.Del acceso de los Productores usuarios al fondo de avales y garantías: Los Productores usuarios tendrán acceso a los recursos de este fondo a través de los intermediarios financieros seleccionados por el Consejo Ejecutivo.

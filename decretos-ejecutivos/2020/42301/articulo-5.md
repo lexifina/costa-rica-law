@@ -1,0 +1,3 @@
+Artículo 5°.Procedimiento de elección: La Junta Directiva del Instituto del Café de Costa Rica nombrará directamente y juramentará a los representantes del Sector Productor y del Sector Beneficiador ante el FONASCAFE y comunicará el resultado de la elección al Fondo.
+En caso de que el Consejo Ejecutivo fuera integrado por miembros ajenos a la Junta Directiva del ICAFE, esta última convocará a una sesión extraordinaria para la juramentación de aquellos miembros que no forman parte del Órgano Colegiado.
+El representante del Estado en la figura del Ministro o Viceministro del Ministerio de Agricultura y Ganadería y su respectivo suplente, serán nombrados y comunicados formalmente por el Consejo de Gobierno.

@@ -1,0 +1,1 @@
+Artículo 17°.Cesación en el cargo: Cesará en sus funciones como miembro del Consejo Ejecutivo, el director que en un periodo de tres meses se ausentare tres veces consecutivas o cinco alternas injustificadamente.

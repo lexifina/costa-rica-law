@@ -1,0 +1,1 @@
+Artículo 36.De la metodología para asignación de los recursos del fondo de avales y garantías: La asignación, así como el procedimiento para solicitar la ejecución de las garantías estará regulado en el Reglamento respectivo aprobado por el Consejo Ejecutivo del FONASCAFE.

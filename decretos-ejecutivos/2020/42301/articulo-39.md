@@ -1,0 +1,1 @@
+Artículo 39.Del pago de la contribución al Fondo: Los pagos de la contribución al Fondo de Sostenibilidad Cafetalera podrá realizarse en dólares o colones al tipo cambio de venta vigente al momento del pago.

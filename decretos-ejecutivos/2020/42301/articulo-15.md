@@ -1,0 +1,1 @@
+Artículo 15°.Ausencia definitiva: En caso de vacantes por ausencia definitiva del titular o su suplente, se comunicará al órgano que compete la necesidad de nombramiento para que éste proceda con la designación del sustituto, de conformidad con el procedimiento establecido en el Reglamento de Sesiones del Consejo Ejecutivo del FONASCAFE.

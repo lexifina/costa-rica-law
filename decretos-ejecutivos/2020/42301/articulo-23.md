@@ -1,0 +1,2 @@
+Artículo 23.De las Modalidades Operativas: El FONASCAFE podrá actuar por medio del otorgamiento de créditos directos a los productores, para lo cual contará con la estructura organizativa necesaria que le permita realizar esa función de la forma más eficiente y efectiva posible.
+La otra modalidad operativa será por medio del otorgamiento de avales a intermediarios financieros seleccionados que ofrezcan créditos directos a las unidades productivas registradas en el ICAFE

@@ -1,0 +1,1 @@
+Artículo 18°.Naturaleza de las Sesiones: El Consejo Ejecutivo sesionará ordinariamente dos veces al mes; en los días y fechas que lo acuerde el Consejo Ejecutivo; adicionalmente podrá sesionar extraordinariamente cuantas veces sea necesario y únicamente se remunerarán cuatro sesiones al mes.
