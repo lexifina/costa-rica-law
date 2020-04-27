@@ -16,3 +16,4 @@ Reglamento de Egresos Municipales
 | 1 | 2002-06-06 | la propia norma |
 | 2 | 2011-05-09 | Reglamento municipal 50 (2011-05-09) |
 | 3 | 2016-04-18 | Reglamento municipal 288 (2016-04-18) |
+| 4 | 2020-04-27 | Reglamento municipal 208 (2020-04-27) |
