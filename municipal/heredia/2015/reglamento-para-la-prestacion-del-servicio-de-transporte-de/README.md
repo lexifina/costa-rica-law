@@ -14,3 +14,4 @@ Reglamento para la prestación del servicio de transporte de la Municipalidad de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-09-16 | la propia norma |
+| 2 | 2020-04-27 | Reglamento municipal 317 (2020-04-27) |
