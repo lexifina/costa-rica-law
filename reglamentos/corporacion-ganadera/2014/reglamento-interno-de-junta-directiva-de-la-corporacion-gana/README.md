@@ -16,3 +16,4 @@ Reglamento Interno de Junta directiva de la Corporación Ganadera
 | 1 | 2014-09-11 | la propia norma |
 | 2 | 2015-11-23 | Reglamento 423 (2015-11-23) |
 | 3 | 2017-06-05 | Reglamento 455 (2017-06-05) |
+| 4 | 2020-04-27 | Reglamento 0 (2020-04-27) |
