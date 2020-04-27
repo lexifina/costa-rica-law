@@ -1,0 +1,6 @@
+CIRCULAR N° 78-2020
+ASUNTO: Aclaración sobre la información que se puede brindar por parte de los despachos judiciales, a terceros que no son parte en el expediente o no son el abogado director, en caso de solicitud de información sobre tomos 800, datos del estado del proceso con relación a un remate o al estado del expediente.
+A TODOS LOS DESPACHOS CIVILES DEL PAIS
+SE LES HACE SABER QUE:
+El Consejo Superior del Poder Judicial en sesión N° 23-2020 celebrada el 17 de marzo de 2020, artículo LV, dispuso hacer de conocimiento de todos los despachos civiles del país, que en el caso de gestiones presentadas por terceros que no son parte en el expediente o presentadas por un abogado que no es el abogado director del asunto, y referidas a información sobre tomos 800 generados dentro de un proceso, en las que se solicite brindar el número de tomo y asiento de una anotación judicial, o el nombre del acreedor o anotante de ésta, o la existencia o no de publicación del edicto en procesos con señalamiento o remate, o datos generales del proceso, se podrá brindar la información, dada la limitante actual que existe en cuanto al acceso de los datos que se publicitan por el Registro Público concernientes a las anotaciones realizadas directamente por los despachos judiciales.” Publíquese una sola vez en el Boletín Judicial.
+San José, 27 de abril de 2020.
