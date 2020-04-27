@@ -1,4 +1,0 @@
-Artículo 17.—Del personal de la Auditoría Interna. Con respecto del personal a su cargo, el auditor interno tendrá al menos las siguientes potestades:
-l) Autorizar los movimientos del personal, incluyendo nombramientos, ascensos, traslados, recalificaciones, vacaciones, suspensiones y ceses, de conformidad con lo que establecen los artículos 24 y 28 de la Ley General de Control Interno Nº 8292.
-m) Gestionar de forma oportuna lo relativo a las plazas vacantes de la dependencia a su cargo, de conformidad con el artículo 28 de la Ley General de Control Interno.
-n) Vigilar y tomar las decisiones que correspondan para que los funcionarios de la Auditoría Interna cumplan en el ejercicio de sus competencias con la normativa jurídica y técnica pertinente, así como con las políticas, procedimientos, prácticas y demás disposiciones administrativas de la Municipalidad de Santo Domingo de Heredia y propias de la Auditoría Interna que les sean aplicables.
