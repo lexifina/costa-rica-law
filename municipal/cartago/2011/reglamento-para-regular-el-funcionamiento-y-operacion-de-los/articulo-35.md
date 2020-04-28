@@ -1,1 +1,1 @@
-Artículo 35.—El pago deberá realizarse en las cajas municipales o en cualquiera de los puntos autorizados por la comuna para recibir pagos por servicios o precios municipales. El representante deberá presentar el comprobante de pago con el sello respectivo a la Administración del Centro en cualquier momento en que esta se lo requiera.
+Artículo 35.— (Derogado en sesión del 28 de abril del 2020, artículo N° LXXXVIII, del acta N°313-2020)

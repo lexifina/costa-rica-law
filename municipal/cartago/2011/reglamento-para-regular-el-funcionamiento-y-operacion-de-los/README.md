@@ -14,3 +14,4 @@ Reglamento para Regular el Funcionamiento y Operación de los Centros de Cuido y
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-07-21 | la propia norma |
+| 2 | 2020-04-28 | Reglamento municipal 0 (2020-04-28) |
