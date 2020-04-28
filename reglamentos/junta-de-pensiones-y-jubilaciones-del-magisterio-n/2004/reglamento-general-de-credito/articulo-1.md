@@ -1,6 +1,6 @@
 JUNTA DE PENSIONES Y JUBILACIONES DEL MAGISTERIO NACIONAL
 REGLAMENTO GENERAL DE CRÉDITO
-(Nota de Sinalevi: Este reglamento fue reformado parcialmente y reproducido su texto en forma íntegra, en sesión N° 0109-2017 del 2 de octubre de 2017, y publicado en el Alcance Digital N° 264 a La Gaceta N° 209 del 6 de noviembre de 2017, por lo que se reproduce a continuación:)
+(Nota de Sinalevi: Este reglamento fue reformado parcialmente y reproducido su texto en forma íntegra, en sesión N° 048-2020 del 28 de abril de 2020, y publicado en el Alcance Digital N° 112 a La Gaceta N° 110 del 14 de mayo de 2020, por lo que se reproduce a continuación:)
 1. PROPÓSITO
 Este Reglamento tiene como fin regular la actividad crediticia que realiza la JUPEMA con recursos provenientes del Fondo Especial Administrativo.
 2. ALCANCE
@@ -19,4 +19,5 @@ La Junta Directiva de JUPEMA, en ejercicio de sus atribuciones dicta el presente
 11. Tasa de interés: La tasa de interés es el precio del dinero en el mercado financiero.
 CAPÍTULO I
 CONDICIONES GENERALES
-ARTÍCULO 1. Sujetos de crédito. Son sujetos de crédito los afiliados (as) al Régimen del Magisterio Nacional, cotizantes activos del Régimen, los beneficiarios de derechos sucesorios de pensiones del Magisterio y las Entidades Financieras y Sociales del Magisterio Nacional, según se establece en cada una de las líneas de crédito.
+ARTÍCULO 1 Sujetos de crédito
+Son sujetos de crédito los afiliados (as) al Régimen del Magisterio Nacional, cotizantes activos del Régimen, los beneficiarios de derechos sucesorios de pensiones del Magisterio y las Entidades Financieras y Sociales del Magisterio Nacional, según se establece en cada una de las líneas de crédito.

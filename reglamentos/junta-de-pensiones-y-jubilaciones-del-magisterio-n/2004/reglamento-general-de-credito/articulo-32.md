@@ -1,2 +1,2 @@
-ARTÍCULO 32. Vigencia
-Rige a partir de su publicación.
+ARTÍCULO 32 Disposiciones no previstas
+Las situaciones no previstas en este Reglamento son resueltas por la Junta Directiva.

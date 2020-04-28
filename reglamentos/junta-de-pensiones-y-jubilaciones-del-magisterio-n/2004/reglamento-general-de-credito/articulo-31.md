@@ -1,1 +1,2 @@
-ARTÍCULO 31. Disposiciones no previstas. Las situaciones no previstas en este Reglamento son resueltas por la Junta Directiva.
+ARTÍCULO 31 Derogatorias
+Este reglamento deroga cualquier disposición que se le oponga.

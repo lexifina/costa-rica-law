@@ -1,28 +1,22 @@
-ARTÍCULO 8. Línea: Microempresas
+ARTÍCULO 8
+Línea de microempresa
 a) El solicitante debe tener un líquido estimado, equivalente a un 150% de la cuota mensual que se genere como producto del préstamo autorizado.
-(Así reformado el inciso anterior en sesión N° 0115 del 22 de octubre de 2018)
 b) Debe estar en capacidad de ofrecer, a favor de JUPEMA, una garantía hipotecaria en primer grado, de la cual se considera hasta el 80% del valor del avalúo. La garantía hipotecaria puede ser sustituida por dos fiadores solidarios, trabajadores en servicio del Magisterio con nombramiento en propiedad del MEP, INA, CUC, CUN Limón y Universidades estatales, o personas jubiladas o pensionadas en derecho propio del Magisterio Nacional, con salarios líquidos concordantes con el monto requerido por el deudor, según lo estime la Unidad de Crédito.
 c) Como cobertura de esta línea, el solicitante debe pignorar la póliza mutual de la Sociedad de Seguros de Vida del Magisterio Nacional, o suscribir una póliza de vida, con el Instituto Nacional de Seguros o alguna entidad aseguradora, con el fin de respaldar el crédito en su totalidad.
-(*)d) Debe presentar una solicitud escrita, que incluya como mínimo los siguientes datos:
+d) Debe presentar una solicitud escrita, que incluya como mínimo los siguientes datos:
 a. Nombre completo del solicitante.
 b. Número de cédula de identidad.
 c. Monto del préstamo.
 d. Generalidades del proyecto.
 e. Dirección exacta del solicitante.
 f. Número de teléfono en que puede ser localizado.
-(*) (Así reformado el inciso anterior en sesión N° 0115 del 22 de octubre de 2018)
-e) Los solicitantes de este tipo de crédito, deben aportar las notas de autorización debidamente firmadas por los fiadores aceptando esta condición. Además, deben adjuntar certificaciones o constancias del salario de los últimos tres meses de cada fiador, así como certificación de que se encuentra en propiedad.
+e) Los solicitantes de este tipo de crédito deben aportar las notas de autorización debidamente firmadas por los fiadores aceptando esta condición. Además, deben adjuntar certificaciones o constancias del salario de los últimos tres meses de cada fiador, así como certificación de que se encuentra en propiedad.
 f) Tanto para los casos de solicitudes con garantía hipotecaria como de garantía fiduciaria, el gestionante debe proporcionar los datos necesarios para que el Contador Público Autorizado asignado por JUPEMA, pueda realizar un estudio de factibilidad y brindar su criterio técnico sobre la viabilidad del proyecto, que se vaya a financiar.
-g) Si la garantía es hipotecaria, debe presentar la certificación del Registro Nacional con no más de 8 días naturales de emitida, de la propiedad que se va a entregar como garantía, la cual debe estar libre de gravámenes y anotaciones que imposibiliten su inscripción como garantía o que a criterio del notario o perito evaluador, puedan afectar los intereses institucionales.
+g) Si la garantía es hipotecaria, debe presentar la certificación del Registro Nacional con no más de 8 días naturales de emitida, de la propiedad que se va a entregar como garantía, la cual debe estar libre de gravámenes y anotaciones que imposibiliten su inscripción como garantía o que, a criterio del notario o perito evaluador, puedan afectar los intereses institucionales.
 h) Debe presentar certificación original de la Municipalidad donde indique estar al día en el pago de Impuestos Municipales y Territoriales.
 i) Debe autorizar, cuando corresponda, el avalúo de la propiedad a ofrecer como garantía, el cual es elaborado y presentado por el profesional designado por JUPEMA.
-(Así reformado el inciso anterior en sesión N° 0115 del 22 de octubre de 2018)
-j) Debe Aportar copia certificada del plano catastrado.
-(Así reformado el inciso anterior en sesión N° 0115 del 22 de octubre de 2018)
+j) Debe aportar copia certificada del plano catastrado.
 k) Debe presentar la cédula de identidad en buen estado y vigente.
-(Así reformado el inciso anterior en sesión N° 0115 del 22 de octubre de 2018)
 l) Debe proporcionar satisfactoriamente los datos de contactos solicitados por la Unidad de Crédito.
-(Así reformado el inciso anterior en sesión N° 0115 del 22 de octubre de 2018)
-m) En caso de garantía hipotecaria, debe depositar a favor de JUPEMA, el monto de los honorarios que se requieran para la realización del avalúo, el estudio de factibilidad y otros gastos inherentes.
-(Así reformado el inciso anterior en sesión N° 0115 del 22 de octubre de 2018)
+m) En caso de garantía hipotecaria, debe depositar a favor de JUPEMA, el monto de los honorarios que se requieran para la realización del avalúo, el estudio de factibilidad y otros gastos inherentes. Queda entendido que por el hecho de recibir la solicitud de crédito y los documentos que deben acompañarla, la Institución no adquiere compromiso y obligación alguna con el solicitante, y que la aprobación de este queda sujeto a juicio exclusivo de la Institución, de conformidad con los parámetros establecidos en esta reglamentación, la disponibilidad presupuestaria y los acuerdos expresos de la Junta Directiva.
 El Departamento de Crédito y Cobro realiza un estudio formal con base en la información recibida y en las investigaciones adicionales que considere pertinente realizar. Lo anterior con el propósito de determinar la viabilidad del proyecto. De forma concluyente, debe elaborar un pronunciamiento técnico que debe contar con el aval de la jefatura del Departamento de Crédito y Cobro, previa aprobación del Comité de Crédito.

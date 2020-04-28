@@ -1,4 +1,4 @@
-Artículo 29.—Pagos extraordinarios y cancelaciones anticipadas.
-El beneficiario puede realizar pagos extraordinarios al crédito, o cancelar en forma anticipada cualquiera de los préstamos, sin que por ello deba pagar suma adicional alguna, salvo los intereses generados al momento de la cancelación.
-Se puede autorizar hasta un máximo de dos prórrogas de pago por sujeto de crédito. La primera es autorizada por la Dirección Ejecutiva y la segunda por la Junta Directiva, cada una de las cuales no puede exceder un plazo superior a seis meses.
-(Así reformado mediante sesión N° 0143-2019 del 17 de diciembre de 2019)
+ARTÍCULO 29 Deducciones
+Atendiendo lo indicado en el Artículo 109 de la Ley N° 7531, las deducciones mensuales que corresponden al pago de los intereses y la amortización a los créditos, seguros y pólizas, son aplicadas directamente del monto recibido por pensión o jubilación del beneficiario, previa autorización escrita de éste al formalizarse el crédito, así como en la hipoteca o pagaré.
+Se exceptúan los casos en que la deducción no se pueda aplicar por motivos ajenos a JUPEMA, siempre y cuando esta situación se haya generado con posterioridad la formalización del crédito. En estos casos, el deudor queda obligado a pagar las cuotas oportunamente en las oficinas de JUPEMA.
+Esta disposición aplica para todas las líneas de crédito vigentes, excepto para la de Entidades Sociales y Financieras del Magisterio Nacional, las cuales deben cancelar las cuotas correspondientes en las oficinas de JUPEMA, o bien depositar por medio de transferencia o depósito directo el monto en la cuenta corriente que para tal efecto indique la Unidad de Cobro.
