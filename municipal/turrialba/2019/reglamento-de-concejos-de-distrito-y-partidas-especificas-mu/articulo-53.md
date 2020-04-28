@@ -1,0 +1,1 @@
+Artículo 53.—Ejecutados los proyectos de partidas específicas programados en cada año, la Unidad Ejecutora, en el transcurso de los dos años siguientes, realizará visitas de campo al menos un 35% de los proyectos ejecutados, a fin de verificar el estado, uso, mantenimiento y conservación de los mismos. Dichos proyectos serán seleccionados en razón de su cuantía y naturaleza.

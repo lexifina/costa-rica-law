@@ -1,0 +1,1 @@
+Artículo 45.—Una vez realizadas las visitas de campo establecidas en el ordinal anterior, el área de ingeniería municipal, procederá a confeccionar los diseños constructivos de las obras, según sean planos o croquis, proceso que será concluido antes de finalizar el primer semestre del año.

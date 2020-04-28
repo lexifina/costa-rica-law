@@ -1,0 +1,1 @@
+Artículo 16.—Reuniones en comunidades: Los Concejos de Distrito podrán celebrar reuniones con los vecinos de su circunscripción territorial, con el fin de considerar problemas comunes y proponer las posibles soluciones al Concejo Municipal, bajo su debido proceso.

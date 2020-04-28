@@ -1,0 +1,3 @@
+CAPÍTULO III
+De las Sesiones
+Artículo 12.—Sesión Inaugural: La primera sesión de los Concejos de Distrito, se celebrará al menos quince días naturales después de su juramentación por el Concejo Municipal, en dicha sesión se deberá decidir sobre el día, la hora y sede de las sesiones ordinarias.
