@@ -6,4 +6,5 @@ REGLAMENTO SOBRE EL RÉGIMEN DE PUESTOS DE
 CONFIANZA PARA EL CONCEJO MUNICIPAL DE SAN JOSÉ
 CAPÍTULO I
 De los principios generales
-Artículo 1.—Relación especial de confianza. El presente reglamento establece el régimen especial de puestos de confianza para las Fracciones de partidos políticos que conformen el Concejo Municipal, Presidencia y Vicepresidencia, en los cuales se requieren características para el desempeño de confianza y apoyo especial.
+Artículo 1°—-Relación especial de confianza. El presente reglamento establece el régimen especial de puestos de confianza para las Fracciones de partidos políticos y el Regidor propietario separado de su Fracción que conformen el Concejo Municipal, Presidencia y Vicepresidencia, en los cuales se requieren características para el desempeño de confianza y apoyo especial.
+(Así reformado en sesión N° 209 del 28 de abril del 2020)
