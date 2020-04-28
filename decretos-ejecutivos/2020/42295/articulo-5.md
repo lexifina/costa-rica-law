@@ -23,3 +23,5 @@ u) Los vehículos de personas con labores religiosas y sus colaboradores estrict
 (Corregido el inciso anterior mediante Fe de Erratas y publicado en el Alcance Digital N° 93 a La Gaceta N 83 del 17 de abril del 2020, página N° 2)
 v) Los vehículos conducidos o que transporten personas con discapacidad, cuando dichos vehículos estén debidamente autorizados.
 w) Los vehículos de las personas que deban trasladarse estrictamente para brindar soporte médico o cuido de personas en estado terminal, con enfermedad grave o de asistencia a personas con discapacidad o personas adultas mayores.
+x) Los vehículos de las personas que deban trasladarse estrictamente para asistir a la cita de Revisión Técnica Vehicular, debidamente acreditado con el comprobante de la cita programada.
+(Así adicionado el inciso anterior por el artículo 3° del decreto ejecutivo N° 42328 del 28 de abril del 2020)

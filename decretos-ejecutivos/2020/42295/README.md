@@ -14,3 +14,4 @@ Restricción vehicular diurna ante el estado de emergencia nacional en todo el t
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-04-13 | la propia norma |
+| 2 | 2020-04-28 | Decreto Ejecutivo 42328 (2020-04-28) |
