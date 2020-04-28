@@ -1,6 +1,7 @@
-Artículo 6º—Prohibiciones de ubicación: La instalación de torres, postes u otra infraestructura para la prestación de servicios de telecomunicaciones, no es permitida en las siguientes locaciones:
-1)En parques y otros espacios públicos con destino específico definido por Ley, áreas de protección de ríos, manantiales, nacientes, lagos, lagunas, humedales, áreas silvestres protegidas y Zonas Protectoras, establecidas en el Plan Regulador del Cantón de Belén. Además sobre las áreas de protección consideradas privadas y/o no contempladas en el Plan Regulador vigente pero amparadas a la Ley Forestal y Ley de Biodiversidad.
-2)En general, sitios en los cuales, por las condiciones específicas de su entorno, la colocación de una torre o poste para servicios telecomunicaciones o cualquier otro elemento de infraestructura relacionado con estos servicios, desvirtúe la apreciación del paisaje urbano y el natural, sin olvidar sitios donde afecten la salud de las personas y/o deprecien el valor de las propiedades. Según Decreto 36324-S
-3)En zonas con valor paisajístico, cultural, arqueológico y de patrimonio arquitectónico.
-4)Otras definidas por Aviación Civil.
-5)Cualquier otra definida en la normativa nacional.
+Artículo 6° Prohibiciones de ubicación.
+La instalación de torres, postes u otra infraestructura para la prestación de servicios de telecomunicaciones, no es permitida en las siguientes locaciones:
+1) En parques y otros espacios públicos con destino específico definido por Ley, áreas de protección de ríos, manantiales, nacientes, lagos, lagunas, humedales, áreas silvestres protegidas y zonas de protección, establecidas en el Plan Regulador del Cantón de Belén. Además, sobre las áreas de protección consideradas privadas y/o no contempladas en el Plan Regulador vigente pero amparadas a la Ley Forestal y Ley de Biodiversidad.
+2) En zonas con valor paisajístico, cultural, arqueológico y de patrimonio arquitectónico.
+3) Otras definidas por Aviación Civil.
+4) Cualquier otra definida en la normativa nacional.
+(Así reformado mediante sesión ordianria N° 22-2020 del 28 de abril del 2020)
