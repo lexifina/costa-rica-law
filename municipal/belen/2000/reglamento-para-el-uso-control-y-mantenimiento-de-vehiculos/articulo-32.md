@@ -1,1 +1,0 @@
-Artículo 32°.—Sanciones: Las infracciones al presente Reglamento serán sancionadas disciplinariamente de acuerdo a la normativa vigente en el Estatuto Autónomo de Servicios de la Municipalidad, el Código de Trabajo y este Reglamento.
