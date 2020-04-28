@@ -1,0 +1,1 @@
+Artículo 23.—Estudio y valoración de ofertas. La Proveeduría para licitaciones públicas y abreviadas estudiará y seleccionará las ofertas con el apoyo técnico de la dependencia usuaria o competente y la Asesoría Legal dentro de los plazos establecidos al efecto. La resolución de recomendación de adjudicación se dictará dentro del plazo establecido en el cartel.

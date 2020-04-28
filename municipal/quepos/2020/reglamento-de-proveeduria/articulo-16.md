@@ -1,0 +1,4 @@
+SECCIÓN II
+Registro de Proveedores
+Artículo 16.—El Registro de Proveedores. El registro único de proveedores que deberá ser utilizado por las instituciones públicas será el que contiene el Sistema Integrado de Compras Públicas, lo anterior de acuerdo al artículo 124 del RLCA.
+La Municipalidad llevará un Registro, en cual podrán inscribirse todos los interesados en proveer bienes o servicios. Deberá contener información básica del Proveedor, indicación del lugar o medio de comunicación para recibir invitaciones, lista actualizada de los bienes o servicios que ofrece y cualquier otra información que determine la Proveeduría. La inscripción se rige por un principio de gratuidad y todo interesado podrá realizarla en el momento en que así lo desee, lo anterior para casos excepcionales de contratación.

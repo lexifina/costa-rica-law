@@ -1,0 +1,1 @@
+Artículo 40.—Modificaciones a los contratos. La Municipalidad podrá aumentar o disminuir para un contrato, el objeto de la contratación, conforme lo disponen los artículos 12 de la LCA y 208 del RLCA.
