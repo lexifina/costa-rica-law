@@ -1,2 +1,7 @@
-Artículo 37 — Las sesiones del Concejo deberán efectuarse en el localsede de la municipalidad. Sin embargo, podrán celebrarse sesiones encualquier lugar del cantón, cuando vayan a tratarse asuntos relativos a los intereses de los vecinos de la localidad.
-El quórum para las sesiones será de la mitad más uno de los miembros del Concejo.
+Artículo 37- Las sesiones del concejo deberán efectuarse en el local sede de la municipalidad. Sin embargo, podrán celebrarse sesiones en cualquier lugar del cantón, cuando concurran las siguientes circunstancias:
+a) Cuando vayan a tratarse asuntos relativos a los intereses de los vecinos de una comunidad.
+b) Cuando por declaración de estado de emergencia nacional o cantonal, de conformidad con lo dispuesto por las autoridades competentes del país, no sea posible realizar las sesiones en el recinto de la municipalidad.
+El lugar que se disponga para el traslado de la sesión deberá ser apto para la realización de esta y para garantizar la publicidad y la participación ciudadana en las sesiones del concejo. Además, deberá estar avalado por las autoridades competentes y cumplir las directrices que al efecto emita el Ministerio de Salud para garantizar su idoneidad y la seguridad de los miembros, asistentes y funcionarios municipales.
+El acuerdo que disponga cambiar el lugar de las sesiones deberá ser aprobado por el concejo municipal, fundamentado y publicado en el diario oficial La Gaceta, dando parte al Tribunal Supremo de Elecciones, cuando corresponda.
+El cuórum para las sesiones será de la mitad más uno de los miembros del concejo.
+(Así reformado por el artículo 1° de la ley N° 9842 del 27 de abril del 2020, “Toma de posesión y realización de sesiones virtuales en caso de emergencia nacional o cantonal”)
