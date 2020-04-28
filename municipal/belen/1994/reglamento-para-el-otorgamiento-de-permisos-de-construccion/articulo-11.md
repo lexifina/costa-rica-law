@@ -1,3 +1,5 @@
-Artículo 11—Para solicitar alineamientos y niveles, el interesado debe presentar nota de solicitud, especificando el uso que se le dará a la construcción y adjuntar, dos planos catastrados originales o copias certificadas, dirección exacta del propietario, así como lugar para atender notificaciones.
-Todo alineamiento otorgado por esta Municipalidad, tendrá una vigencia de un año natural, contado a partir de la fecha en que fue otorgado. Si no se hiciera uso del mismo al cabo de ese tiempo, deberá tramitarse de nuevo la respectiva solicitud.
-(Así reformado mediante el acuerdo tomado en sesión N° 25 de 26 de abril de 2005 y definitivamente aprobado en sesión N° 32 de 31 de mayo de 2005).
+Artículo 11
+Para solicitar alineamientos para trámites urbanísticos se debe presentar la gestión de uso de suelo y alineamiento ante la Municipalidad y que esta se atenderá según el procedimiento municipal vigente, disponible en los diferentes sitios de información oficial.
+El alineamiento otorgado por la Municipalidad tendrá una vigencia de un año, contado a partir de la fecha en que fue otorgado.
+Para solicitar alineamiento y niveles en sitio, el interesado debe presentar gestión o solicitud ante la Unidad de Topografía aportando copia del plano catastrado, dirección de la propiedad y la información para comunicarse con el interesado, Unidad que resolverá la gestión en el plazo que indique el procedimiento municipal respectivo.
+(Así reformado mediante sesión ordinaria N° 22-2020 del 28 de abril del 2020)

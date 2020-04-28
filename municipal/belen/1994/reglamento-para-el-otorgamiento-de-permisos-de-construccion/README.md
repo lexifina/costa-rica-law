@@ -21,3 +21,4 @@ Reglamento para el otorgamiento de Permisos de Construcción
 | 6 | 2005-04-05 | Reglamento municipal 21 (2005-04-05) |
 | 7 | 2005-05-31 | Reglamento municipal 32 (2005-05-31) |
 | 8 | 2006-06-27 | Reglamento municipal 37 (2006-06-27) |
+| 9 | 2020-04-28 | Reglamento municipal 22 (2020-04-28) |

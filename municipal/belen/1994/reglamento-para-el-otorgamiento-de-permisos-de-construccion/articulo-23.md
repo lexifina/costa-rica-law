@@ -1,2 +1,3 @@
-Artículo 23—La Municipalidad por medio de la Unidad de Desarrollo Urbano, deberá llevar un libro de registro en el cual se asentará el acta para cada solicitud. En la misma se deberá indicar el nombre, lugar y ubicación de la construcción o edificación que se va a construir, ampliar, remodelar o demoler. También se hará constar el día y la hora en que se señaló el alineamiento y nivel, así como los datos y medidas de los mismos.
-(Así reformado mediante el acuerdo tomado en sesión N° 25 de 26 de abril de 2005 y definitivamente aprobado en sesión N° 32 de 31 de mayo de 2005).
+Artículo 23
+La Municipalidad por medio de la Unidad de Desarrollo Urbano, deberá llevar un registro digital de permisos de construcción en el cual se asentará la información de cada solicitud o gestión. En la misma se deberá indicar los datos del propietario, la finca donde se va a construir, los datos de la obra, tasación, impuesto de construcción, recibo de pago, entre otros.
+(Así reformado mediante sesión ordinaria N° 22-2020 del 28 de abril de 2020)
