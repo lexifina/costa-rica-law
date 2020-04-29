@@ -13,3 +13,4 @@ Acuerdo de Corte Plena. Sesión N° 20-2020 del 15 de abril de 2020, en atenció
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-04-15 | la propia norma |
+| 2 | 2020-04-29 | Circular 86 (2020-04-29) |
