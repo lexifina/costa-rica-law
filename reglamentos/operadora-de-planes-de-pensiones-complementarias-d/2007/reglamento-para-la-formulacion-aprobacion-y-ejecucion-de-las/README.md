@@ -15,3 +15,4 @@ Reglamento para la Formulación, Aprobación y Ejecución de las Modificaciones 
 | --- | --- | --- |
 | 1 | 2007-02-07 | la propia norma |
 | 2 | 2017-06-22 | Reglamento 514 (2017-06-22) |
+| 3 | 2020-04-29 | Reglamento 593 (2020-04-29) |
