@@ -1,1 +1,0 @@
-Artículo 17.—Una vez analizadas las ofertas y efectuadas las recomendaciones pertinentes, la Comisión de Contratación Administrativa, en los casos que corresponda, elevará su dictamen al conocimiento de la Junta Directiva. Transcrito el acuerdo de esta última instancia, retomará la Sección de Proveeduría el procedimiento de contratación para lo que corresponda.

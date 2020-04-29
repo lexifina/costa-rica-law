@@ -1,1 +1,0 @@
-Artículo 28.—Lo no dispuesto en el presente reglamento se regirá supletoriamente por las disposiciones de la Ley de Contratación Administrativa, Nº 7494 del 2 de mayo de 1995, el Reglamento a la Ley de Contratación Administrativa, Decreto Ejecutivo Nº 33411-H que entró a regir el 04 de enero de 2007, así como la Normativa interna del IFAM.

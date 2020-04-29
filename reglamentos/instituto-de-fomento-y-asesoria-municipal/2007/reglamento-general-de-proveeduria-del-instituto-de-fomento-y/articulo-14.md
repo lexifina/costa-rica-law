@@ -1,1 +1,0 @@
-Artículo 14.—La Comisión de Contratación Administrativa tendrá a su cargo el estudio, análisis y recomendación de las licitaciones públicas, las licitaciones abreviadas y aquellas contrataciones previamente autoriza¬das para su trámite por la Contraloría General de la República y la Junta Directiva del IFAM o que por la naturaleza de la contratación así se requiera.

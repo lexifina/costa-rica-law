@@ -1,3 +1,0 @@
-CAPÍTULO IV
-Licitaciones Públicas y Abreviadas
-Artículo 13.—Las Licitaciones Públicas y Abreviadas se abrirán el día y hora señalados, conforme a la invitación, en presencia del Jefe de la Sección de Proveeduría, el Encargado de Compras y la Secretaria de la Sección de Proveeduría. En ausencia del Jefe de la Sección de Proveeduría, estará presente el Director de la Dirección de Administración Interna; y en ausencia de éste, el funcionario expresamente designado por el Director Ejecutivo. En ausencia del encargado de compras, estará presente el funcionario expresamente designado por la jefatura de la Sección de Proveeduría. Se deberá levantar el acta de apertura según las ofertas recibidas y deberá ser firmada por los asistentes a la apertura.
