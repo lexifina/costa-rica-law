@@ -13,3 +13,4 @@ Aclaración del punto número 1.9. de la circular N° 57-2020 sobre las disposic
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-04-01 | la propia norma |
+| 2 | 2020-04-29 | Circular 86 (2020-04-29) |
