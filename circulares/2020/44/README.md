@@ -13,3 +13,4 @@ Adición de disposiciones a la circular N° 35-2020 denominada “Lineamientos i
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-03-12 | la propia norma |
+| 2 | 2020-04-29 | Circular 86 (2020-04-29) |
