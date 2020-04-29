@@ -1,1 +1,0 @@
-Artículo 18.—Cuando al proveedor se le aplique la sanción de suspensión para contratar con la Administración, con apego a las regulaciones que sobre la materia contenga el ordenamiento jurídico, tal circunstancia se hará constar el Registro de Proveedores, a efecto de dar cumplimiento con el fin legal previsto.

@@ -1,3 +1,0 @@
-SECCIÓN III
-De la inclusión y exclusión al Registro
-Artículo 12.—Una vez recibida la solicitud de incorporación al Registro de Proveedores, el IFAM por medio de su Sección de Proveeduría, verificará que toda la información solicitada en el artículo 7º esté a derecho. En caso contrario, previo aviso por escrito que enviará la Sección de Proveeduría, el interesado deberá subsanar los defectos en plazo de ocho días hábiles contados a partir del recibido de la comunicación antes indicada. Si la prevención no es atendida en tiempo y forma, la solicitud se tendrá por rechazada y se procederá a su archivo, sin ser incluida en la base de datos indicada al inicio.

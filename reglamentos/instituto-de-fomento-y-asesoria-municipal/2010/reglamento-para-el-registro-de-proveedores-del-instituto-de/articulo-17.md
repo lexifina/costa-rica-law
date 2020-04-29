@@ -1,1 +1,0 @@
-Artículo 17.—Se excluirán del registro los proveedores que adquieran la condición de inactivos, así como los que incurran en los causales establecidos en el artículo 124 del RLCA. Para que los proveedores inactivos sean incorporados nuevamente en el registro, deberán presentar la documentación indicada en el artículo 7 de este Reglamento.

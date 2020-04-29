@@ -1,1 +1,0 @@
-Artículo 10.—Todos los documentos presentados con la solicitud de inscripción al registro de proveedores, deben ser firmados por las personas que ostenten la representación legal de la empresa y tiene poder para ello.

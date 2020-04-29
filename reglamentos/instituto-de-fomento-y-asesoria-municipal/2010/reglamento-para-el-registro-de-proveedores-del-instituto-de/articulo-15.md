@@ -1,2 +1,0 @@
-Artículo 15.—Se tendrá como proveedor inactivo aquél que habiendo sido invitado a participar en procedimientos de contratación administrativa no lo hiciere en tres ocasiones sin mediar justa causa, en el termino de tres años, contados a partir de la primera invitación; asimismo aquel que se negare a actualizar la información del Registro cuando IFAM así lo haya pedido.
-En cualquier tiempo el proveedor inactivo podrá solicitar el cambio de su condición y en tal caso ocupará en el registro el lugar que por rol corresponda.
