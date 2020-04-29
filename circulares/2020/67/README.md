@@ -13,3 +13,4 @@ Lineamientos generales para la implementación del acuerdo adoptado por la Corte
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-04-08 | la propia norma |
+| 2 | 2020-04-29 | Circular 86 (2020-04-29) |
