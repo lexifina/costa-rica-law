@@ -13,3 +13,4 @@ Aclaración de los horarios en que deben laborar las personas servidoras judicia
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-03-22 | la propia norma |
+| 2 | 2020-04-29 | Circular 86 (2020-04-29) |
