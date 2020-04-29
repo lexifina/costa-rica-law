@@ -1,0 +1,1 @@
+Artículo 2°—Objetivo. El objetivo de este Código de Ética, es inculcar en todos los funcionarios de la Auditoría Interna de la Dirección Nacional de Notariado, una actitud y comportamiento irreprochable, honesto y responsable, que lo concientice para el desempeño de su gestión.
