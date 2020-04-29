@@ -17,3 +17,4 @@ Lineamientos institucionales que deben ser aplicados ante la llegada del Coronav
 | 3 | 2020-03-13 | Circular 45 (2020-03-13) |
 | 4 | 2020-03-15 | Circular 46 (2020-03-15) |
 | 5 | 2020-03-18 | Circular 49 (2020-03-18) |
+| 6 | 2020-04-29 | Circular 86 (2020-04-29) |
