@@ -1,0 +1,2 @@
+Artículo 4º—Toda actividad social que se programe en establecimientos comerciales, deberá contar con el correspondiente permiso de la Municipalidad de Liberia, para su realización.
+Queda entendido que bajo ninguna circunstancia se permitirán otras actividades de espectáculos públicos como bailes, conciertos, conjuntos musicales, luces utilizadas en discotecas y otros, salvo la discoteca o los que cuenten con las licencias o patentes previamente aprobadas según la actividad.

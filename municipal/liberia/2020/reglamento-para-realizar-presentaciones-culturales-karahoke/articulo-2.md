@@ -1,0 +1,12 @@
+Artículo 2º—Definiciones. Para efectos de este reglamento, se entenderá por:
+2-a) MÚSICA TROVA: La trova es la composición poética compuesta para ser cantada característica de los trovadores medievales. Así mismo es una de las fuentes del gran árbol de la música cubana. La definición del género musical trova es poesía con música, son canciones con letra inteligente que cuentan una historia de amor, crítica o que contienen contenido político.
+2-b) ARTISTAS INDIVIDUALES O GRUPALES: Con instrumentos musicales como cuerdas (guitarra acústica, violín, arpa, piano), viento (clarinete, flautas, oboe, saxofón, música andina).
+2-c) PRESENTACIONES CULTURALES: Música guanacasteca, caribeña, bailes típicos, marimbas y
+presentaciones culturales.
+2-d) |KARAOKE: Denomínese karaoke al aparato que emite la música de canciones conocidas con el fin de que una o varias personas puedan poner su voz sobre ella, leyendo sobre grabada, sobre el video clip o cobre imágenes neutras en una pantalla, letras de las canciones; se denomina karaoke además, el establecimiento lúdico donde hay uno de estos aparatos para que los clientes puedan cantar, teniendo todo el acompañamiento musical respectivo.
+2-e) CONCIERTO: Es una actuación musical en vivo con artistas individuales o grupales, de origen nacional o internacional, pudiéndose realizar en establecimientos abiertos o cenados, con tarimas o a nivel de piso donde los artistas brindaran el concierto.
+2-f) RESTAURANTE: Es un establecimiento comercial, en el mayor de los casos público, donde se paga por la comida para ser consumidas en el mismo local. Hoy en día existe una gran variedad de modalidades de servicio y tipos de cocina.
+2-g) BAR: Es un establecimiento comercial donde se sirven bebidas alcohólicas y no alcohólicas en envase abierto y para consumo dentro del mismo y aperitivos, generalmente para ser consumidos de inmediato en el mismo establecimiento en un servicio de barra. La persona que atiende el bar suele estar de pie, tras la barra.
+2-h) DISCOTECA: Es un local público con horario preferentemente nocturno para escuchar música grabada, bailar, interactuar con otras personas y consumir bebidas.
+Donde se utilizan Luces de todo tipo iluminando la pista de baile.
+2-i) SALÓN DE BAILE: Donde la música es tocada en vivo, por lo general. Un salón de baile es una sala grande dentro de un edificio, cuyo propósito es llevar a cabo danzas formales que se llaman bailes.

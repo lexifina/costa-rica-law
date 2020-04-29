@@ -1,0 +1,1 @@
+Artículo 7º—Para las actividades aprobadas como anexos a las actividades descritas en el punto tres de este reglamento, se respetará en todo momento la normativa que establece la Ley General de Salud, este reglamento y la Ley de Patentes del cantón de Liberia y otras afines a esta materia.

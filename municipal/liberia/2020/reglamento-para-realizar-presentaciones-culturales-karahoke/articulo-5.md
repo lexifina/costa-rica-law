@@ -1,0 +1,1 @@
+Artículo 5º—Las solicitudes de permiso para las actividades contempladas en el artículo 3 de este reglamento deberán presentarse con no menos de tres días antes del evento, ante el Departamento de Patentes.
