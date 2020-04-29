@@ -35,4 +35,5 @@ Decretan:
 Creación del Bono Proteger
 Capítulo I
 Generalidades
-Artículo 1.- Fin. Créase el Bono Proteger como una transferencia monetaria extraordinaria y temporal para contribuir con la protección social de los hogares afectados por el cambio en sus condiciones laborales y/o de ingresos como consecuencia de la Emergencia Nacional provocada por el COVID-19.
+Artículo 1.-Fin. Créase el Bono Proteger como un subsidio temporal de desempleo para contribuir con la protección social de los hogares afectados por el cambio en sus condiciones laborales y/o de ingresos como consecuencia de la Emergencia Nacional provocada por COVID-19.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 42329 del 29 de abril del 2020)

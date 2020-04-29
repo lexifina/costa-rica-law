@@ -1,4 +1,5 @@
-Artículo 11.- Responsabilidades del Instituto Mixto de Ayuda Social. Será responsabilidad del Instituto Mixto de Ayuda Social:
-a) Otorgar el Bono Proteger, con cargo al presupuesto dispuesto para tal fin, a las personas trabajadoras temporales o informales que hayan tenido afectación parcial o total en sus ingresos a raíz de la emergencia por el COVID-19, según lo indicado en este Reglamento y que necesariamente se encuentren en condición de pobreza o pobreza extrema.
+Artículo 11.-Responsabilidades del Instituto Mixto de Ayuda Social. Será responsabilidad del Instituto Mixto de Ayuda Social:
+a) Otorgar el Bono Proteger, con cargo al presupuesto dispuesto para tal fin, a las personas trabajadoras temporales o informales, y personas trabajadoras independientes en condición de pobreza o pobreza extrema, que hayan tenido afectación parcial o total en sus ingresos a raíz de la emergencia por COVID-19, según lo indicado en este Reglamento y que necesariamente se encuentren en condición de pobreza o pobreza extrema.
 b) Actualizar y reportar los indicadores de seguimiento, control y evaluación que permitan dar seguimiento y monitoreo a los objetivos previstos en este reglamento.
 c) Asegurar que los datos brindados por las personas beneficiarias del Bono, sean utilizados bajo los estándares de la Ley de Protección de la Persona frente al tratamiento de sus datos personales, Ley Nº 8968.
+(Así reformado por el artículo 7° del decreto ejecutivo N° 42329 del 29 de abril del 2020)

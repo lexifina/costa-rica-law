@@ -1,15 +1,15 @@
-Artículo 19.- De los criterios para la priorización en la asignación de los recursos: Para determinar la prioridad de ejecución de las transferencias del Bono Proteger se utilizarán los siguientes criterios:
+Artículo 19.-De los criterios para la priorización en la asignación de los recursos. Para determinar la prioridad de ejecución de las transferencias del Bono Proteger se utilizarán los siguientes criterios:
 a) Condición de empleo: Determinado a partir de lo declarado por la persona solicitante:
-1. Despedido
+1. Despedida o cesada
 2. Contrato laboral suspendido
-3. Informal
+3. Temporal o Informal
 4. Independiente
 5. Jornada laboral reducida en más de un 50 %
 6. Jornada laboral reducida en un 50 % o menos
 b) Rango de ingresos: determinados a partir de lo declarado por la persona solicitante y utilizando como referencia los deciles de rango de ingreso en empresa privada registrado el Sistema Centralizado de Recaudación (SICERE) al mes de febrero de 2020.
-1. Deciles I y II: Menor ¢275.799
-2. Deciles del III al VIII: Entre ¢275.800 a ¢674.128
-3. Deciles del IX al X: Más de ¢674.129 colones
+1. Deciles I y II: Menor ₡275.799
+2. Deciles del III al VIII: Entre 275.800 a ₡674.128
+3. Deciles del IX al X: Más de ₡674.129 colones
 c) Condición de Pobreza: determinada a partir de lo registrado en el Sistema Nacional de Información y Registro Único de Beneficiarios (SINIRUBE).
 1. Pobreza extrema
 2. Pobreza básica
@@ -37,3 +37,5 @@ h) Discapacidad: Determinada a partir de lo registrado en el Sistema Nacional de
 2. No
 3. No registra
 A partir de estos criterios el sistema realizará un ejercicio de ponderación mediante el cual le permitirá a la Administración Pública determinar la priorización en la asignación de los recursos.
+De conformidad con lo dispuesto en el inciso e) del artículo 2 de la Ley N° 9840, tendrán acceso al bono financiado con los recursos asignados por el Ministerio de Hacienda producto de la recaudación establecida en los artículos 5 y 6 de esa Ley, las personas que se encuentran en mayor vulnerabilidad, por su condición de pobreza o pobreza extrema y que actualmente no estén siendo atendidas por otros programas y subsidios del Estado.
+(Así reformado por el artículo 8° del decreto ejecutivo N° 42329 del 29 de abril del 2020)

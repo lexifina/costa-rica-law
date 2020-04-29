@@ -14,3 +14,4 @@ Creación del Programa Proteger
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-04-17 | la propia norma |
+| 2 | 2020-04-29 | Decreto Ejecutivo 42329 (2020-04-29) |
