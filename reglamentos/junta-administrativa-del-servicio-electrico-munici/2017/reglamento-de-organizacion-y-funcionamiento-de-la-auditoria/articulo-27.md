@@ -1,1 +1,0 @@
-Artículo 27.- Movilidad del Auditor. La suspensión o remoción por justa causa del Auditor Interno se realizará conforme al artículo 31 de la Ley General de Control Interno; al dictamen previo y vinculante de la Contraloría General de la República y lo establecido en el Reglamento Autónomo de Trabajo de JASEC.
