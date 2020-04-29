@@ -1,1 +1,0 @@
-Artículo 6º—El contrato debe ser tramitado en original para la Institución, y tres copias: una para el Departamento de Recursos Humanos, Jefe de área, el expediente del funcionario y una para el empleado municipal.

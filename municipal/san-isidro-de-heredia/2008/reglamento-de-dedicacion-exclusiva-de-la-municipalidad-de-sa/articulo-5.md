@@ -1,5 +1,0 @@
-CAPÍTULO IV
-Del procedimiento para acogerse al régimen
-de dedicación exclusive
-Artículo 5º—El servidor que desee acogerse al régimen de Dedicación Exclusiva y que cumpla con los requisitos que se señalan en el artículo 3º de este Reglamento, deberá solicitarlo al Alcalde Municipal con una copia de la solicitud al Departamento de Recursos Humanos de la Institución. Toda solicitud del pago de dedicación exclusiva será resuelta por el Alcalde Municipal en un plazo no mayor a diez días hábiles.
-Una vez suscrito el contrato entre el servidor y la Institución, el Departamento de Recursos Humanos lo tramitará para su refrendo ante el máximo jerarca (o quien este delegue), adjuntando para ello una certificación firmada por el jefe de Personal en donde conste que en el caso concurren todas las condiciones y requisitos que se señalan en el artículo 3º de este Reglamento y que se han seguido los trámites y procedimientos que el mismo exige; además de los originales y fotocopias del título académico y de la incorporación al colegio profesional respectivo.
