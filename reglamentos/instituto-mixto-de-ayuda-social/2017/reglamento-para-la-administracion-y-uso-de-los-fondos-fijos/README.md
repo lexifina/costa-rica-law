@@ -14,3 +14,4 @@ Reglamento para la administración y uso de los fondos fijos institucionales
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-02-12 | la propia norma |
+| 2 | 2020-04-30 | Reglamento 0 (2020-04-30) |
