@@ -17,3 +17,4 @@ Reglamento Interno de la Junta Directiva de la Junta Administrativa del Servicio
 | 2 | 2008-08-12 | Reglamento 4288 (2008-08-12) |
 | 3 | 2014-12-18 | Reglamento 493 (2014-12-18) |
 | 4 | 2015-08-12 | Reglamento 4999 (2015-08-12) |
+| 5 | 2020-04-30 | Reglamento 10 (2020-04-30) |
