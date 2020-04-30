@@ -1,2 +1,2 @@
-Artículo 22.- Pruebas psicométricas. Como apoyo a la entrevista para establecer aptitudes laborales requeridas para el desempeño de la Carrera del Servicio Exterior, con anterioridad a la entrevista deberán realizarse pruebas psicométricas. Estas pruebas se realizarán bajo la responsabilidad de un profesional en el campo. Además, el resultado de las pruebas psicométricas, pese a no tener un rubro definido en la calificación, será determinante para considerar la idoneidad de las personas participantes. El resultado de las pruebas es confidencial.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 40823 del 13 de diciembre del 2017)
+Artículo 22.—Pruebas psicométricas. Como complemento a la entrevista para establecer aptitudes laborales requeridas para el desempeño de la Carrera del Servicio Exterior, deberán realizarse pruebas psicométricas.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 42390 del 30 de abril del 2020)
