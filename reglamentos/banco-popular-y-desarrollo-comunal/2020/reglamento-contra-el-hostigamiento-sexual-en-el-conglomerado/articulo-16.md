@@ -1,0 +1,1 @@
+Artículo 16.—Recepción de la denuncia: Recibida la denuncia por parte de la Comisión de Acoso u Hostigamiento Sexual o el órgano director correspondiente, esta deberá proceder de conformidad con lo establecido en el presente reglamento, sin recurrir a la ratificación de la denuncia ni la investigación preliminar de los hechos.

@@ -1,0 +1,2 @@
+Artículo 15.—Trámite de la Denuncia: Toda denuncia de acoso u hostigamiento sexual interpuesta en cualquier dependencia del Conglomerado deberá ser trasladada a la Dirección de Capital Humano en un plazo perentorio de dos días hábiles contados a partir de su recepción, y esta a su vez a la Comisión de Acoso u Hostigamiento Sexual de forma inmediata, salvo las excepciones dispuestas en el artículo 14 del presente reglamento.
+La remisión de la documentación deberá hacerse garantizando el principio de confidencialidad que reviste la materia.

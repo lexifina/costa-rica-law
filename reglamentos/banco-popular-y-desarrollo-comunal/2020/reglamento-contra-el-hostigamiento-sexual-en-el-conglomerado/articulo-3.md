@@ -1,0 +1,20 @@
+Artículo 3º—Definiciones: Para los efectos de este reglamento se entiende por:
+Acción preventiva: Acción proactiva desarrollada en cada entidad del Conglomerado que tiene por objetivo mantener condiciones de respeto, por medio de los lineamientos generales de equidad e igualdad de género para prevenir, desalentar, evitar y sancionar las conductas de hostigamiento sexual.
+Acoso u hostigamiento sexual: Toda conducta sexual indeseada por quien la recibe, reiterada y que provoque efectos perjudiciales en los siguientes casos:
+a) Condiciones materiales de empleo o de servicio: Se refiere a todas aquellas acciones que suceden en el ámbito de las relaciones laborales y de servicios, tales como modificaciones perjudiciales al salario, a las condiciones laborales, al logro del cumplimiento de las metas, alteración en los derechos, despidos y cualquier otro trato discriminatorio en intención y resultado, incluyendo las relaciones con oferentes, proveedores, clientes u otros terceros.
+b) Desempeño y cumplimiento laboral: Son todas aquellas acciones que afecten el desarrollo normal de las actividades laborales o de servicio y que resultan en conductas tales como baja eficiencia, ausencias, incapacidades, desmotivación.
+c) Estado general de bienestar personal: Son aquellas acciones que afectan el estado general necesario para enfrentar las actividades de la vida diaria.
+También se considerará acoso u hostigamiento sexual la conducta grave que, habiendo ocurrido una sola vez, perjudique a la víctima en cualquiera de los aspectos indicados.
+Banco: Banco Popular y de Desarrollo Comunal.
+Capital Humano: La Dirección de Capital Humano en el caso del Banco o sus homólogos en las sociedades.
+Comisión de acoso u hostigamiento sexual: órgano encargado en el Conglomerado de realizar la investigación y, en general, la substanciación de todo procedimiento administrativo por acoso u hostigamiento sexual, salvo en los casos de excepción establecidos en el artículo 14 de este reglamento. Esta Comisión será integrada por tres personas, en las que estén representados ambos sexos, con conocimientos en Equidad e Igualdad de Género, acoso u hostigamiento sexual y régimen disciplinario.
+Conglomerado: Conglomerado Financiero Banco Popular y de Desarrollo Comunal, integrado por el Banco Popular y de Desarrollo Comunal y por sus sociedades anónimas.
+Funcionario: Persona que labora para cualquier entidad del Conglomerado, sea como trabajador o trabajadora común, servidor o servidora pública, o bien en cargo de director o directora en algún órgano de Dirección, sin sujeción a una relación de empleo.
+Junta Directiva: Junta Directiva de cualquiera de las entidades del Conglomerado.
+Ley 7476: La Ley contra el Hostigamiento Sexual en el Empleo y la Docencia (Ley Número 7476 de marzo de 1995, y sus reformas).
+Partes: Tendrán la condición de parte dentro del procedimiento disciplinario descrito en este reglamento la persona denunciante y la persona denunciada de acoso u hostigamiento sexual. El Conglomerado estará representado por la Comisión de Acoso u Hostigamiento Sexual indicada en el artículo 8 de este reglamento.
+Persona denunciada: Persona a quien se le atribuye la presunta conducta constitutiva del acoso u hostigamiento sexual.
+Persona denunciante: Persona que sufre el acoso u hostigamiento sexual, o su representante en caso de ser menor de edad o inhábil.
+Potestad disciplinaria: Facultad de la respectiva entidad del Conglomerado para imponer sanciones a los funcionarios cuando incumplan lo dispuesto en este reglamento.
+Representante legal: Condición de aquel que, por designación, mandato legal o judicial, vela por la tutela o restitución de los derechos subjetivos e intereses legítimos de su representado o representada.
+Sociedades: Popular Valores Puesto de Bolsa S. A., Popular Seguros S. A., Popular Fondos de Inversión S. A. y Operadora de Planes y Operadora de Pensiones Complementarias del Banco Popular y de Desarrollo Comunal S. A., así como por cualquier otra sociedad que en el futuro integre dicho Conglomerado.

@@ -1,0 +1,2 @@
+Artículo 6º—Acciones de seguimiento oportuno: La Dirección de Capital Humano en el Banco, y la Gerencia de cada sociedad, llevarán a cabo acciones de seguimiento que aporten los insumos necesarios para desarrollar las acciones preventivas que se requieran en materia de equidad e igualdad de género y acoso u hostigamiento sexual, de conformidad con los lineamientos institucionales establecidos.
+En forma anual deberá presentarse un informe a la respectiva Junta Directiva del Conglomerado, de las labores realizadas e incidencias reportadas en el período.

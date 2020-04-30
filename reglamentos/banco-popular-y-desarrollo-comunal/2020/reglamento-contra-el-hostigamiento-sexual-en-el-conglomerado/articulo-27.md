@@ -1,0 +1,1 @@
+Artículo 27.—Garantías para la persona denunciante, testigos y peritos: Ninguna persona que haya denunciado ser víctima de acoso u hostigamiento sexual o que haya comparecido como testigo de las partes o peritos podrá sufrir, por ello, perjuicio personal alguno en el ámbito de trabajo y de servicio.

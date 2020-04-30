@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de aplicación: El presente reglamento será aplicable para todos los funcionarios del Conglomerado, independientemente de la relación jerárquica, que actúen como denunciantes o denunciados y a cualquier tercero que figure como denunciante.

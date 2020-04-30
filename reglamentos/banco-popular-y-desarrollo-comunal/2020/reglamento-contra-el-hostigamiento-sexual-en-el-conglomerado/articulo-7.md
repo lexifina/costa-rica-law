@@ -1,0 +1,3 @@
+Artículo 7º—Orientación profesional: La Dirección de Capital Humano, a petición de parte, podrá suministrar apoyo profesional integral en los términos indicados en el artículo 5, inciso 5, de este reglamento, a las partes involucradas en los casos de acoso u hostigamiento sexual.
+Los profesionales que brinden apoyo deberán contar con conocimientos en materia de equidad e igualdad de género y acoso u hostigamiento sexual. Brindarán el apoyo en condiciones de absoluta discreción, garantizando el principio de confidencialidad que reviste la materia.
+En el caso de que la parte sea funcionario de una Sociedad del Conglomerado, la Dirección de Capital Humano lo coordinará con la respectiva Gerencia.
