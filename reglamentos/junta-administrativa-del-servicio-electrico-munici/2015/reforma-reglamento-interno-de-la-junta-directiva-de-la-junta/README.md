@@ -14,3 +14,4 @@ Reforma Reglamento Interno de la Junta Directiva de la Junta Administrativa del 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-09-25 | la propia norma |
+| 2 | 2020-04-30 | Reglamento 10 (2020-04-30) |
