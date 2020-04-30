@@ -1,0 +1,1 @@
+Artículo 12.—Si dentro de las siguientes 24 horas, posteriores al envío de la convocatoria por medios telemáticos, electrónicos, al menos cinco miembros del Órgano se oponen al conocimiento de alguno de los asuntos propuestos en la agenda de la sesión virtual, el mismo se tendrá por postergado para ser conocido en la sesión presencial inmediata siguiente.

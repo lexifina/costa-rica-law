@@ -1,0 +1,2 @@
+Artículo 11.—Para la convocatoria a los integrantes del órgano colegiado que participarán de la sesión virtual, se enviará a todos los miembros del Órgano en forma simultánea los temas que se tenga interés en someter a análisis y votación, acompañado, de ser posible, de una propuesta de redacción del acuerdo a adoptar.
+Si se requiere del estudio de documentos, éstos deberán también adjuntarse en formato digital.
