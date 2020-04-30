@@ -14,3 +14,4 @@ Medidas administrativas temporales para la prestación de los servicios público
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-04-15 | la propia norma |
+| 2 | 2020-04-30 | Resolución 74 (2020-04-30) |
