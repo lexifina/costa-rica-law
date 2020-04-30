@@ -1,0 +1,3 @@
+ARTÍCULO 14. De los Centros de Formación para la Empleabilidad.
+Los centros de formación para la empleabilidad podrán asumir los procesos productivos que contemple el programa de formación de EFTP dual, en aquellas zonas donde las empresas no cuenten con todos los procesos productivos, o que no cuenten con las condiciones y/o requisitos establecidas en el artículo anterior.
+El tiempo de las actividades de formación por realizar en el Centro de Formación para la Empleabilidad, será fijado por la Institución o centro educativo, y no podrá exceder el 30% del total del período establecido en la estructura curricular del plan o programa educativo a ejecutar en la Empresa.

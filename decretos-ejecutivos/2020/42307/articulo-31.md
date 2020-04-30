@@ -1,0 +1,2 @@
+Artículo 31. Nivelación de la persona mentora.
+Las personas que han desempeñado funciones de mentoría, pero no cumplen con el perfil académico y técnico definido en este reglamento, a partir de su entrada en vigencia, dispondrán de un plazo de tres años a partir de la publicación del presente Reglamento para nivelar su condición y así evidenciarlo ante la Empresa o Centro de Formación para la Empleabilidad. Durante dicho período podrán continuar fungiendo como personas mentoras.

@@ -1,0 +1,4 @@
+Artículo 8. De las sesiones de la Comisión Asesora.
+La Comisión Asesora sesionará de forma ordinaria bimensualmente en la fecha y hora que el propio órgano acuerde y extraordinariamente cuando sea convocada por la persona que ejerza la presidencia, con una antelación de al menos cuarenta y ocho horas del inicio de la sesión. En caso de ausencia de la presidencia, presidirá el miembro que la Comisión Asesora designe con los votos de la mitad más uno de los miembros que la integran.
+La Comisión sesionará en forma ordinaria en la fecha y hora que el propio órgano acuerde. Cuando quien ejerza la Presidencia o quien le sustituya lo estime pertinente podrá convocar a sesionar a la Comisión en un lugar, día y hora distinta al ordinario.
+Para reunirse en sesión extraordinaria se realizará una convocatoria al medio señalado para tales efectos, la misma deberá de ser realizada con una antelación mínima de cuarenta y ocho horas y estará acompañada del orden del día.

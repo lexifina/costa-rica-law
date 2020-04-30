@@ -1,0 +1,2 @@
+Artículo 33. Representación rotativa para el movimiento sindical del sector educativo.
+Una vez publicado el presente Reglamento, quien ocupe el puesto de Ministro o Ministra del Ministerio de Educación Pública deberá convocar a las organizaciones del movimiento sindical del sector educativo, a efectos de establecer el orden rotativo que será utilizado para designar a su persona representante en la Comisión Asesora y Promotora de la EFTP Dual.

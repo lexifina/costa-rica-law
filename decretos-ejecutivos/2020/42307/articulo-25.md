@@ -1,0 +1,3 @@
+Artículo 25. Cursos de capacitación para personas mentoras.
+El INA diseñará la capacitación requerida para las personas mentoras; considerando lo establecido en la Ley N° 9728, las características propias de la EFTP dual, los lineamientos institucionales para el diseño y el presente reglamento. Asimismo, el INA o las instituciones acreditadas por este, emitirán el diploma correspondiente, una vez concluida la citada capacitación.
+De conformidad con sus procedimientos internos, el INA también se encontrará facultado para reconocer o equiparar la certificación que lo califique como persona mentora.

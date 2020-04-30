@@ -1,0 +1,2 @@
+Artículo 32. Representación de la Comisión Asesora y Promotora de la EFTP Dual.
+Una vez publicado el presente Reglamento, las organizaciones que conforman la Comisión Asesora y Promotora de la EFTP Dual dispondrán de un plazo de 3 meses para comunicarle a la persona que ocupe el puesto de Ministro o Ministra del Ministerio de Educación Pública, quién ostentará la representación correspondiente de la organización que representan.

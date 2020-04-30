@@ -1,0 +1,10 @@
+CAPÍTULO III.
+De las partes que Intervienen en la EFTP.
+ARTÍCULO 13. Requisitos de las empresas y centros de formación para la empleabilidad.
+Para el efectivo cumplimiento de los requisitos establecidos en el artículo 13 de la Ley N° 9728, las empresas o los centros de formación para la empleabilidad que impartan EFTP dual deberán ajustarse a los siguientes parámetros:
+a) En cuanto al tema de acceso al espacio físico, se deberá de atender lo regulado en la Ley N° 7600, Ley de Igualdad de Oportunidades para las Personas con Discapacidad, y Ley N° 8661, Convención sobre los Derechos de las Personas con Discapacidad, de conformidad con el artículo 4 inciso i) y 23 de la Ley N° 9728 y normativa conexa.
+b) De conformidad con la Ley N° 9416, las empresas deberán encontrarse al día en el cumplimiento de sus obligaciones tributarias.
+c) Disponer de las condiciones mínimas y los recursos necesarios requeridos en el programa educativo, de acuerdo con el estándar de cualificación, los cuales serán definidos y verificados por el centro educativo correspondiente, de conformidad con lo dispuesto en el artículo 13, inciso c) de la Ley N° 9728.
+d) Garantizar espacios para el desarrollo del aprendizaje de las personas estudiantes libres de discriminación y en el pleno cumplimiento de la Ley N° 7476, Ley contra el Hostigamiento o Acoso Sexual en el Empleo y la Docencia.
+Con el fin de que los Centros Educativos corroboren que la Empresa o Centro de Formación para la Empleabilidad en el que se van a desarrollar los procesos de EFTP Dual cumplan con los requisitos y lineamientos aquí establecidos, deberán aportar una declaración jurada donde de conformidad con el artículo 318 del Código Penal, manifiesten que cumplen con los citados requisitos y lineamientos.
+Los Centros Educativos podrán realizar aleatoriamente visitas de inspección a la Empresa o Centro de Formación para la Empleabilidad. Si producto de la visita se determina que la entidad faltó a la verdad a la hora de realizar la declaración jurada podrá proceder conforme a derecho.

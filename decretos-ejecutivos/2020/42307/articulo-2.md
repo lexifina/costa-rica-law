@@ -1,0 +1,2 @@
+Artículo 2. Alcance.
+El presente Reglamento, se considerará de aplicación obligatoria para el Ministerio de Educación Pública (MEP), el Instituto Nacional de Aprendizaje (INA), las universidades públicas y privadas, los colegios universitarios, las entidades parauniversitarias y las demás instituciones públicas y privadas, empresas, centros de formación para la empleabilidad, estudiantes, y para quienes participen en el marco de la EFTP Dual, de conformidad con los artículos 1 y 2 de la Ley N° 9728.
