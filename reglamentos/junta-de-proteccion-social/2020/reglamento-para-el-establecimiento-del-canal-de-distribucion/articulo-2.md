@@ -1,0 +1,1 @@
+Artículo 2°—Objeto. El presente reglamento regula los términos y las condiciones que rigen para la venta de las Loterías Preimpresas de la Junta mediante un Canal de Distribución que utiliza una plataforma tecnológica para tales efectos.

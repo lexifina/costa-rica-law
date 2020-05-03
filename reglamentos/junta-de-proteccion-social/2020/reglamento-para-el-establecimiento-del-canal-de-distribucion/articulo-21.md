@@ -1,0 +1,3 @@
+Artículo 21.—Término para reclamos. En caso de que exista disconformidad por parte de algún jugador sobre el pago o no de un premio o sobre el monto respectivo que se haya pagado, se podrá presentar el respectivo reclamo ante la Unidad de Pago de Premios de la JPS, responsable de resolver los reclamos de premios.
+La fecha límite para su presentación, lo es dentro del plazo de sesenta días naturales contados a partir del día hábil siguiente al día del sorteo. La Unidad de Pago de Premios, atenderá, resolverá y comunicará al interesado su resolución, dentro del plazo de 30 días naturales al recibido de la solicitud firmada por el reclamante.
+El presente Reglamento rige a partir de su publicación en el Diario Oficial La Gaceta.

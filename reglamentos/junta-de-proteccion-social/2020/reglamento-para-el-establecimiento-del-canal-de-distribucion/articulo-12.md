@@ -1,0 +1,3 @@
+Artículo 12.—Del Depósito de Garantía. El Distribuidor deberá rendir un depósito de garantía inicial por la suma que determine la Gerencia de Producción y Comercialización o quien está designe.
+El monto de la garantía será actualizado a los tres meses contados a partir del inicio de la prestación de los servicios de distribución. La fijación se hará de acuerdo con el volumen de las ventas realizadas mediante el canal de distribución y será calculada en un 10% de éstas.
+La garantía deberá estar vigente por todo el plazo del convenio que se suscriba con el Distribuidor y hasta tres meses después de fenecido y se ejecutará ante el incumplimiento de las obligaciones que asume el Distribuidor.

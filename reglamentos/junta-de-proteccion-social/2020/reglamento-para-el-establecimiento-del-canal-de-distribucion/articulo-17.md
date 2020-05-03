@@ -1,0 +1,1 @@
+Artículo 17.—De la custodia de Lotería Disponible. La Junta custodiará en sus oficinas centrales la lotería disponible en físico y si el jugador lo desea, puede hacer su retiro dentro de horas hábiles.

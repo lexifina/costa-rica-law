@@ -1,0 +1,2 @@
+Artículo 7°—De los requerimientos tecnológicos. La plataforma tecnológica que utilice el Distribuidor, deberá cumplir con los requerimientos tecnológicos establecidos en “Descripción técnica de la Plataforma Tecnológica” emitido por el Departamento de tecnologías de la Información y la Gerencia de Producción y Comercialización.
+Compete al Departamento de Tecnologías de la Información verificar y validar que la plataforma tecnológica cumple con los requerimientos tecnológicos establecidos.
