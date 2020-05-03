@@ -29,6 +29,7 @@ Representa una excepción a esta disposición el reporte que deberá hacer la je
 1.6. Todos los permisos que se otorguen con ocasión de la emergencia provocada por el Covid-19 deberá ser considerado sin sustitución, por lo que corresponde al despacho u oficina judicial organizarse internamente para la debida prestación del servicio.
 2. Sobre la regulación de prestación de servicios durante el periodo correspondiente a la declaratoria de emergencia a fin de proteger la salud y vida de las personas servidoras y garantizar la continuidad del servicio:
 2.1. Sobre la regulación de horarios en el período correspondiente a la declaratoria de emergencia
+(Nota de Sinalevi: Mediante sesión N° 40-2020 del 23 de abril de 2020 publicada en el Boletín Judicial N° 96 del 21 de mayo del 2020 mediante circular N° 89-2020 del 3 de mayo del 2020 se aclara el punto anterior en el sentido de que las Secciones de Flagrancia de los Tribunales Penales continuarán laborando en su horario ordinario)
 Se mantienen las siguientes disposiciones:
 2.1.1. Se autoriza a las jefaturas para realizar cambios de jornada de trabajo de forma temporal a todas aquellas personas que fungen en puestos no compatibles con teletrabajo, con el propósito de administrar correctamente el riesgo de contagio por hacinamiento en las oficinas. Lo anterior, conforme las disposiciones que se indicarán en los siguientes puntos.
 2.1.2. Los horarios presenciales se realizarán bajo las siguientes disposiciones:
