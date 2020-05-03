@@ -1,0 +1,1 @@
+Artículo 14.—Tiempo límite para la recepción de apuestas. La recepción de apuestas para cada juego se inicia a partir del momento en que la Junta lo defina en la Plataforma Tecnológica. La hora de cierre o momento en que se cierra la recepción de apuestas, será, mínimo de 45 minutos antes de la hora fijada para el inicio de cada sorteo.
