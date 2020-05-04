@@ -16,3 +16,4 @@ Reglamento sobre Gestión y Evaluación del Riesgo de Crédito para el Sistema d
 | 1 | 2016-09-15 | la propia norma |
 | 2 | 2019-11-25 | Reglamento 1545 (2019-11-25) |
 | 3 | 2020-03-23 | Reglamento 1566 (2020-03-23) |
+| 4 | 2020-05-04 | Reglamento 1574 (2020-05-04) |
