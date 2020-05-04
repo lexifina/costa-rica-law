@@ -14,3 +14,4 @@ Sobre la presentación de escritos por medio de correo electrónico
 | --- | --- | --- |
 | 1 | 2019-11-26 | la propia norma |
 | 2 | 2020-02-20 | Circular 23 (2020-02-20) |
+| 3 | 2020-05-04 | Circular 90 (2020-05-04) |
