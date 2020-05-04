@@ -15,3 +15,4 @@ Reglamento de sesiones, acuerdos y comisiones municipales del Concejo Municipal 
 | --- | --- | --- |
 | 1 | 1980-08-25 | la propia norma |
 | 2 | 1999-02-25 | Reglamento municipal 0 (1999-02-25) |
+| 3 | 2020-05-04 | Reglamento municipal 1 (2020-05-04) |
