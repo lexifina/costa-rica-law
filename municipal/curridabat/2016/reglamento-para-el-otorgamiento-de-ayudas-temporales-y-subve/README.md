@@ -17,3 +17,4 @@ Reglamento para el otorgamiento de ayudas temporales y subvenciones en el cantó
 | 2 | 2017-05-02 | Reglamento municipal 53 (2017-05-02) |
 | 3 | 2017-11-21 | Reglamento municipal 82 (2017-11-21) |
 | 4 | 2018-03-13 | Reglamento municipal 98 (2018-03-13) |
+| 5 | 2020-05-05 | Reglamento municipal 1 (2020-05-05) |
