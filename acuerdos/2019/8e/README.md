@@ -14,3 +14,4 @@ Reforma Procedimiento ECA-MC-MC-P09 CODIGO COSEVI/ECA-MC-MA-P09 Aval Técnico pa
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-08-22 | la propia norma |
+| 2 | 2020-05-05 | Acuerdo 5 (2020-05-05) |
