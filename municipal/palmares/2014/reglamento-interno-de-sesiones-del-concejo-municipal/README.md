@@ -15,3 +15,4 @@ Reglamento interno de sesiones del Concejo Municipal
 | --- | --- | --- |
 | 1 | 2014-08-18 | la propia norma |
 | 2 | 2017-07-04 | Reglamento municipal 60 (2017-07-04) |
+| 3 | 2020-05-05 | Reglamento municipal 1 (2020-05-05) |
