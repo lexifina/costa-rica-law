@@ -1,0 +1,1 @@
+Artículo 12.—Convenios. Para el préstamo de los vehículos de la institución y sus respectivas personas conductoras, deberá procederse a formalizar la situación mediante un convenio, de conformidad con el procedimiento de convenios vigente, en el Sistema de Gestión de Calidad, salvo en el caso de que exista un decreto que se pueda aplicar al caso en particular.

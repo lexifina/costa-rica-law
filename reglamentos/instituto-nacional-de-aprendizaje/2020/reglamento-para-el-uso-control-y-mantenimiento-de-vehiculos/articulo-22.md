@@ -1,0 +1,3 @@
+Artículo 22.—Declaración de la Persona Chofer o Conductor/a. La Persona conductora deberá presentarse en los diez días hábiles posteriores al accidente, a comparecer de conformidad con el artículo 173 de la Ley de Tránsito, con el fin de rendir la declaración y prueba pertinente.
+Además, debe solicitar copia del expediente (croquis y declaraciones) para ser entregadas a la Persona Coordinadora de Transportes para lo que corresponda.
+Además, debe colaborar en los trámites correspondientes con la institución aseguradora, aportar copia del parte de tránsito y del aviso de accidente confeccionado por la persona inspectora inspector de tránsito.

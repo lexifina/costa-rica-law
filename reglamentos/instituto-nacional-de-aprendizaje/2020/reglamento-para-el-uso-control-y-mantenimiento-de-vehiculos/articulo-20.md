@@ -1,0 +1,1 @@
+Artículo 20.—Acatamiento de instrucciones. Las personas conductoras o personas conductoras ocasionales que debido a la circulación por las vías públicas con vehículos del INA se vean involucrados en un accidente de tránsito, deben seguir las instrucciones incluidas en este Reglamento.
