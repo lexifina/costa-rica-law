@@ -1,2 +1,0 @@
-6 TRANSITORIO
-N/A

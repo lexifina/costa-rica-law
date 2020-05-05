@@ -27,13 +27,14 @@ d) ECA-MP-P02-F04 Listado de personal para organismos de certificación de perso
 e) ECA-MP-P02-F05 Listado de personal para organismos validadores/verificadores.
 Estos registros se consideran documentos controlados; por lo que deben actualizarse cada vez que ocurra una variación.
 Nota: El OEC puede utilizar un formato diferente para informar de los cambios que ocurran en el personal, siempre y cuando se cumpla con indicar el nombre del personal, el grado académico, el puesto, las actividades dentro del alcance en las cuales el personal está autorizado y la sede donde se ejecuta la actividad.
-3.2.6 Cambios en los procedimientos del OEC que afecten el alcance de la acreditación debido a cambios en reglamentos, directrices, leyes, entre otros y que afecten las actividades dentro del alcance de acreditación.
-3.2.7 Para los casos anteriores los OEC deben entregar al ECA la siguiente documentación:
+3.2.6 Para los casos anteriores (3.2.4 y 3.2.5) los OEC deben entregar al ECA la siguiente documentación en caso de salidas o cambios de puestos: Análisis de impacto que este cambio de personal clave tendrá en su OEC y su relación con las obligaciones que se tiene con la acreditación.
+3.2.7 Cambios en los procedimientos del OEC que afecten el alcance de la acreditación debido a cambios en reglamentos, directrices, leyes, entre otros y que afecten las actividades dentro del alcance de acreditación.
+3.2.8 Para los casos anteriores los OEC deben entregar al ECA la siguiente documentación:
 a) Una matriz comparativa de los cambios realizados entre el documento anterior y vigente, haciendo énfasis a los cambios que podrían afectar el alcance de acreditación.
 b) El procedimiento interno vigente del OEC que incluya los cambios realizados.
 c) Los reglamentos, directrices, leyes entre otros relacionados con la modificación respectiva.
-3.2.8 Cambio de instalaciones o equipos:
+3.2.9 Cambio de instalaciones o equipos:
 a) Cuando se realice un cambio de instalación o equipo que pueda afectar la capacidad para cumplir con los requisitos establecidos para las actividades acreditadas o en proceso de acreditación del OEC.
-3.2.9 Para los casos anteriores los OEC deben entregar al ECA la siguiente documentación:
+3.2.10 Para los casos anteriores los OEC deben entregar al ECA la siguiente documentación:
 a) Las evidencias que demuestren que los cambios realizados en las instalaciones o equipos no afectan las actividades acreditadas ni la capacidad para cumplir con los requisitos aplicables.
-3.2.10 Cambios en el alcance acreditado, como cambio de tipo del OI, modificación de los límites de trabajo, modificaciones de CMC para laboratorios de calibración.
+3.2.11 Cambios en el alcance acreditado, como cambio de tipo del OI, modificación de los límites de trabajo, modificaciones de CMC para laboratorios de calibración.
