@@ -15,3 +15,4 @@ Reforma “Procedimiento Esquemas de Acreditación”, aplicable mediante el for
 | --- | --- | --- |
 | 1 | 2009-04-15 | la propia norma |
 | 2 | 2012-06-25 | Ley 9046 |
+| 3 | 2020-05-05 | Acuerdo 5 (2020-05-05) |
