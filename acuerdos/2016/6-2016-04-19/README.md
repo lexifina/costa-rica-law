@@ -14,3 +14,4 @@ Procedimiento ECA-MC-P25 Procedimiento para alcance flexible de OCR (Versión 01
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-05-26 | la propia norma |
+| 2 | 2020-05-05 | Acuerdo 5 (2020-05-05) |
