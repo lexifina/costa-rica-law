@@ -1,16 +1,17 @@
 ENTE COSTARRICENSE DE ACREDITACIÓN
 AVISO 2019-010
 El Ente Costarricense de Acreditación (ECA), en cumplimiento de la Ley 8279 Ley del Sistema Nacional de la Calidad, da a conocer la modificación de los siguientes documentos: Procedimientos: ECA-MP-P01, generalidades pasa de versión 03 a versión 04. Fecha de entrada en vigencia a partir de la publicación en la gaceta. ECA-MPP02, requisitos para la acreditación pasa de versión 06 a versión 07. Fecha de entrada en vigencia a partir de la publicación en La Gaceta. ECA-MP-P03, visita preliminar, pasa de versión 02 a versión 03, para este documento se brindará un transitorio de 1 mes posterior a su publicación en el Diario Oficial La Gaceta. ECA-MP-P04, solicitud de acreditación y análisis de recursos pasa versión 04 a versión 05 para este documento se brindará un transitorio de 1 mes posterior a su publicación en el Diario Oficial La Gaceta. ECA-MP-P05, admisibilidad de la solicitud, pasa de versión 03 a versión 04, Fecha de entrada en vigencia a partir de la publicación en La Gaceta. ECA-MP-P06, evaluación pasa de versión 02 a versión 03 para este documento se brindará un transitorio 3 meses posteriores a su publicación en el Diario Oficial La Gaceta. ECA-MP-P07, actividades posteriores a la evaluación pasa de versión 05 a versión 06 a este documento se brindará un transitorio 3 meses posteriores a su publicación en el Diario Oficial La Gaceta. ECA-MP-P08, toma de decisión pasa de versión 06 a versión 07. Fecha de entrada en vigencia a partir de la publicación en La Gaceta. ECA-MP-P09, emisión del certificado de acreditación pasa de versión 04 a versión 05. Fecha de entrada en vigencia a partir de la publicación en La Gaceta. ECA-MPP10, seguimiento y reevaluación pasa de versión 05 a versión 06 a este documento se brindará 1 mes posterior a su publicación en el diario oficial La Gaceta. ECA-MP-P11, criterios para OEC multisitios y con sedes temporales pasa de versión 02 a aversión 03. Fecha de entrada en vigencia a partir de la publicación en La Gaceta. Los documentos descritos anteriormente se encuentran a disposición de los interesados en la página electrónica http://www.eca.or.cr/docs.php; así mismo puede solicitar el envío de manera electrónica o solicitar gratuitamente una copia no contralada en la Gestoría de Calidad en las oficinas centrales del ECA ubicadas en San José, Barrio Don Bosco, Avenida 02 y Calle 32, contiguo a la Embajada de España, en horario de lunes a viernes de 8 h a 16 h. única vez.
-San José, 10 de octubre del 2019.—
+San José, 10 de octubre del 2019.-
 (Nota de Sinalevi: La presente norma se extrajo del sitio web del Ente Costarricense de Acreditación, por lo que se transcribe a continuación:)
+(Nota de Sinalevi: El presente procedimiento fue reformado parcialmente y reproducido su texto de forma íntegra mediante publicación en La Gaceta N° 104 del 8 de mayo del 2020, donde se actualiza la versión 07 existente y se publica la versión 08, que se reproduce a continuación:)
 [imagen]
 TABLA DE CONTENIDO
-1 DOCUMENTOS APLICABLES POR TIPO DE OEC ................................................................. 1
-2 REQUISITOS GENERALES PARA LA ACREDITACIÓN DE CUALQUIER TIPO DE OEC ....... 1
-3 CAMBIOS SIGNIFICATIVOS .................................................................................................... 4
-4 ANALISIS DE CAMBIOS SIGNIFICATIVOS POR PARTE DEL ECA ....................................... 7
-5 IDENTIFICACION DE CAMBIOS .............................................................................................. 8
-6 TRANSITORIO .......................................................................................................................... 8
+1 DOCUMENTOS APLICABLES POR TIPO DE OEC .................................................................1
+2 REQUISITOS GENERALES PARA LA ACREDITACIÓN DE CUALQUIER TIPO DE OEC.......1
+3 CAMBIOS SIGNIFICATIVOS ....................................................................................................4
+4 ANALISIS DE CAMBIOS SIGNIFICATIVOS POR PARTE DEL ECA.......................................7
+5 IDENTIFICACION DE CAMBIOS ..............................................................................................9
+6 TRANSITORIO..........................................................................................................................9
 1 DOCUMENTOS APLICABLES POR TIPO DE OEC
 1.1 Es requisito para la acreditación el cumplimiento de este documento y lo establecido en los documentos del ECA-MP-P02-I02 Documentos aplicables en los diferentes procesos de evaluación.
 1.2 El ECA publica en su página web, los documentos normativos adicionales que deben ser cumplidos por parte de los OEC para los diferentes esquemas de acreditación.
@@ -22,6 +23,7 @@ Nota: En el caso de acreditación de proveedores de ensayos de aptitud, organism
 2.4 Las auditorías deben realizarse como mínimo una al año y de forma tal que no se excedan 12 meses a partir de la auditoría anterior. Si el OEC realiza auditorías de manera fraccionada, la siguiente auditoría no debe exceder 12 meses a partir de la realización de la actividad de auditoría anterior.
 2.4.1 Debe documentarse en el informe de auditoría las actividades de evaluación de la conformidad sujetas a acreditación o acreditadas, que fueron auditadas.
 2.4.2 El OEC debe auditar todas las actividades de evaluación de la conformidad incluidas en el alcance sujeto a la acreditación o acreditado, para lo cual deben distribuirse las mismas para que al menos una vez en el ciclo de acreditación todas las actividades acreditadas hayan sido auditadas. El proceso de auditoría implica la observación por parte de los auditores de la realización de la actividad de evaluación de la conformidad.
+Nota: La observación de las actividades de evaluación de la conformidad durante las auditorías no es obligatoria para los organismos de Certificación de Sistemas de Gestión y Organismos Validadores Verificadores de GEI.
 2.4.3 Para procesos iniciales y de ampliación del alcance, el OEC solicitante debe proporcionar información que demuestre que ha abordado los requisitos de acreditación antes de iniciar el proceso de evaluación y acreditación; por lo que es necesario que se entregue evidencia con la solicitud, del análisis realizado a las no conformidades detectadas en la auditoría interna.
 2.5 Haber realizado al menos una revisión por la dirección de todo su sistema, antes de entregar la solicitud de acreditación para evaluaciones iniciales.
 2.6 Las revisiones por la dirección deben realizarse como mínimo una al año y de forma tal que no se excedan 12 meses a partir de la revisión por la dirección anterior. Si el OEC realiza revisiones por la dirección de manera fraccionada debe completarse en 12 meses.
@@ -35,8 +37,7 @@ Nota: De querer continuar con el proceso el OEC debe presentar una nueva solicit
 2.13 Si en un período de 60 días hábiles el OEC pierde comunicación total con el ECA o no entrega la documentación adicional solicitada durante el proceso de acreditación y evaluación, en los plazos establecidos por los procedimientos de ECA, se procede de la siguiente manera:
 a) Para los OEC acreditados, se inicia un procedimiento para el debido proceso conforme al ECA-MC-P16 Procedimiento Para el cumplimiento del debido proceso en el Ente Costarricense De Acreditación.
 b) Para los OEC en proceso de acreditación inicial o ampliación, se archiva definitivamente el expediente.
-2.14 El OEC debe ofrecer alojamiento, transporte, alimentación y la cooperación que sea necesaria para que el ECA verifique el cumplimiento de los requisitos de la acreditación. Es responsabilidad del OEC organizar todos los arreglos necesarios para la ejecución de las
-evaluaciones y las testificaciones, dicha responsabilidad no puede ser trasladada al ECA.
+2.14 El OEC debe ofrecer alojamiento, transporte, alimentación y la cooperación que sea necesaria para que el ECA verifique el cumplimiento de los requisitos de la acreditación. Es responsabilidad del OEC organizar todos los arreglos necesarios para la ejecución de las evaluaciones y las testificaciones, dicha responsabilidad no puede ser trasladada al ECA.
 2.15 Si no es posible ejecutar una evaluación o testificación por causas imputables al OEC, la actividad se suspende y el OEC debe cancelar los honorarios del Equipo Evaluador conforme a lo indicado en el plan de evaluación. Cuando no se puede realizar la evaluación o testificación se debe proceder de la siguiente forma:
 a) En un proceso inicial o ampliación, se archiva el expediente si la evaluación completa no puede ser ejecutada.
 b) En un proceso inicial o de ampliación se excluyen del alcance las actividades que no pudieron ser testificadas o evaluadas.
@@ -76,31 +77,28 @@ d) ECA-MP-P02-F04 Listado de personal para organismos de certificación de perso
 e) ECA-MP-P02-F05 Listado de personal para organismos validadores/verificadores.
 Estos registros se consideran documentos controlados; por lo que deben actualizarse cada vez que ocurra una variación.
 Nota: El OEC puede utilizar un formato diferente para informar de los cambios que ocurran en el personal, siempre y cuando se cumpla con indicar el nombre del personal, el grado académico, el puesto, las actividades dentro del alcance en las cuales el personal está autorizado y la sede donde se ejecuta la actividad.
-3.2.6 Cambios en los procedimientos del OEC que afecten el alcance de la acreditación debido a cambios en reglamentos, directrices, leyes, entre otros y que afecten las actividades dentro del alcance de acreditación.
-3.2.7 Para los casos anteriores los OEC deben entregar al ECA la siguiente documentación:
+3.2.6 Para los casos anteriores (3.2.4 y 3.2.5) los OEC deben entregar al ECA la siguiente documentación en caso de salidas o cambios de puestos: Análisis de impacto que este cambio de personal clave tendrá en su OEC y su relación con las obligaciones que se tiene con la acreditación.
+3.2.7 Cambios en los procedimientos del OEC que afecten el alcance de la acreditación debido a cambios en reglamentos, directrices, leyes, entre otros y que afecten las actividades dentro del alcance de acreditación.
+3.2.8 Para los casos anteriores los OEC deben entregar al ECA la siguiente documentación:
 a) Una matriz comparativa de los cambios realizados entre el documento anterior y vigente, haciendo énfasis a los cambios que podrían afectar el alcance de acreditación.
 b) El procedimiento interno vigente del OEC que incluya los cambios realizados.
 c) Los reglamentos, directrices, leyes entre otros relacionados con la modificación respectiva.
-3.2.8 Cambio de instalaciones o equipos:
+3.2.9 Cambio de instalaciones o equipos:
 a) Cuando se realice un cambio de instalación o equipo que pueda afectar la capacidad para cumplir con los requisitos establecidos para las actividades acreditadas o en proceso de acreditación del OEC.
-3.2.9 Para los casos anteriores los OEC deben entregar al ECA la siguiente documentación:
+3.2.10 Para los casos anteriores los OEC deben entregar al ECA la siguiente documentación:
 a) Las evidencias que demuestren que los cambios realizados en las instalaciones o equipos no afectan las actividades acreditadas ni la capacidad para cumplir con los requisitos aplicables.
-3.2.10 Cambios en el alcance acreditado, como cambio de tipo del OI, modificación de los límites de trabajo, modificaciones de CMC para laboratorios de calibración.
+3.2.11 Cambios en el alcance acreditado, como cambio de tipo del OI, modificación de los límites de trabajo, modificaciones de CMC para laboratorios de calibración.
 4 ANALISIS DE CAMBIOS SIGNIFICATIVOS POR PARTE DEL ECA
 4.1 La unidad de Logística transfiere la información del cambio enviada por parte del OEC a la Secretaria de Acreditación correspondiente, quien realizará un análisis con el área respectiva para determinar la afectación en las actividades del alcance de acreditación.
-4.2 El ECA debe asegurar que la composición del equipo evaluador de la evaluación más cercana luego del cambio significativo, cuente con la competencia requerida para la evaluación de los cambios notificados, por lo que la composición del equipo evaluador puede ampliarse o
-modificarse.
+4.2 El ECA debe asegurar que la composición del equipo evaluador de la evaluación más cercana luego del cambio significativo, cuente con la competencia requerida para la evaluación de los cambios notificados, por lo que la composición del equipo evaluador puede ampliarse o modificarse.
 4.3 Si el OEC no notifica al ECA de estos cambios, y se dan a conocer durante la evaluación, el equipo evaluador puede ampliar el tiempo de evaluación planificado. Si el equipo evaluador no cuenta con la competencia requerida para la evaluación del cambio informado, debe informar al ECA para que se realice la respectiva evaluación técnica de forma extraordinaria.
 4.4 Si los cambios no pueden ser evaluados en la evaluación establecida por causas imputables al OEC, el OEC debe cesar el uso del símbolo de acreditación o marca combinada en los informes o certificados de actividades de evaluación de la conformidad, afectados por el cambio hasta que los mismos hayan sido evaluados satisfactoriamente.
 4.5 Los cambios que se pretendan hacer que impliquen incorporación de técnicas de medición, especificaciones o nuevos requisitos de certificación o inspección, distintos a los cubiertos por la acreditación son considerados como una ampliación del alcance acreditado.
 4.6 En caso de existir cambios que afecten las actividades dentro del alcance de acreditación, en el sistema de gestión, procedimientos, instalaciones o personal, se debe realizar una evaluación en el sitio, la cual puede ser de forma extraordinaria o durante las evaluaciones de seguimiento o reevaluación, siguiendo lo establecido en ECA-MC-P13 Ejecución de la evaluación, ECA-MP-P06 Evaluación, ECA-MP-P07 Actividades posteriores a la evaluación y ECA-MP-P08 Toma de decisión. El objetivo de la evaluación en el sitio es confirmar que el sistema de calidad y la operación del OEC sigue siendo conforme con los requisitos de la norma de acreditación correspondiente y determinar el efecto de los cambios realizados.
-4.7 El proceso de toma de decisión, implica decidir sobre la actualización de los certificados de acreditación con la nueva persona jurídica o la suspensión o retiro de la acreditación por los efectos de la fusión, transformación, compra o venta de la organización. En caso de otorgar el cambio de la persona jurídica, se mantiene el mismo número de acreditación y vigencia, emitiendo un nuevo certificado de acreditación. El solicitante debe presentar el certificado original de acreditación que le fue otorgado y se sustituye con el nuevo certificado de acreditación y la firma del ECA-MP-P09-F02 Compromiso de acreditación, así como otros contratos y acuerdos establecidos con el OEC.
+4.7 El proceso de toma de decisión, implica decidir sobre la actualización de los certificados de acreditación con la nueva persona jurídica o la suspensión o retiro de la acreditación por los efectos de la fusión, transformación, compra o venta de la organización. En caso de otorgar el cambio de la persona jurídica, se mantiene el mismo número de acreditación y vigencia, emitiendo un nuevo certificado de acreditación. El solicitante debe presentar el certificado original de acreditación que le fue otorgado y se sustituye con el nuevo certificado deacreditación y la firma del ECA-MP-P09-F02 Compromiso de acreditación, así como otros contratos y acuerdos establecidos con el OEC.
 4.8 El costo de la evaluación documental, evaluación in situ y la toma de decisión debe ser cubierto por el OEC.
 5 IDENTIFICACIÓN DE CAMBIOS
 Motivo: Revisión Integral del procedimiento ECA-MP-P02
-Refiérase a la solicitud de elaboración o modificación del documento 2019-136
+Refiérase a la solicitud de elaboración o modificación del documento 2020-076.
 Observaciones:
-Se realiza una revisión del procedimiento para verificar el cumplimiento de la nueva versión de la Norma INTE/ISO 17011:2017 y revisión de procesos.
-Principales cambios se subrayan en el documento en los ítems: 1.1, 2.4.1, 2.4.2,2.4.3, 2.5, 2.10, 2.11, 2.13 (a),2.15 (a) (b) (c) (d), 2.16, 3.2.1,3.2.2 ,3.2.3, 3.2.4, 3.2.5 (a),3.2.6, 3.2.7,3.2.8,3.2.9,4.1,4.2, 4.3 , 4.4, 4.6,4.7 y 4.8.
-6 TRANSITORIO
-N/A
+Se realiza reingreso de información del procedimiento ECA-MP-P02 versión 06, por error fueron eliminados requisitos.
