@@ -1,3 +1,3 @@
-Artículo 16.—Toda beca implica una remuneración mensual, cuyo monto se establecerá para cada ciclo lectivo y se entregará durante los primeros días hábiles de cada mes a partir de la aprobación de los listados por parte del Concejo Municipal y hasta el mes de noviembre de cada año.
+Artículo 16.—Toda beca implica una transferencia económica, cuyo monto se establecerá para cada ciclo lectivo y se entregará durante los primeros días hábiles de cada mes a partir de la aprobación de los listados por parte del Concejo Municipal y hasta el mes de noviembre de cada año.
 (Así corrida su numeración en sesión N° 008-2010 del 24 de junio de 2010, que lo traspaso del antiguo artículo 17 al 16 actual. Lo anterior ya que en dicha sesión se ordena derogar el numeral 12 original y correr la numeración de los restantes artículos)
-(Así reformado mediante sesión ordinaria N° 161-2019 del 28 de mayo del 2019)
+(Así reformado mediante sesión ordinaria N° 001-2020 del 5 de mayo del 2020)

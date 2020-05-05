@@ -1,3 +1,2 @@
-Artículo 26.—Cualquier reforma al presente Reglamento, podrá efectuarse por medio de Acuerdo Municipal.
-(Así corrida su numeración en sesión N° 008-2010 del 24 de junio de 2010, que lo traspaso del antiguo artículo 27 al 26 actual. Lo anterior ya que en dicha sesión se ordena derogar el numeral 12 original y correr la numeración de los restantes artículos)
-(Así reformado mediante sesión ordinaria N° 161-2019 del 28 de mayo del 2019)
+Artículo 26.—Para poder dar trámite a la apelación, la misma debe presentarse en un plazo no mayor a cinco días hábiles, que se contarán a partir del momento en que se notifique la decisión correspondiente. La persona becada deberá aportar junto con la carta de justificación de la apelación, todos los documentos probatorios que justifiquen su situación, así como los documentos actualizados de ingresos y número de personas en el grupo familiar y cualquier otra información que compruebe los hechos expuestos en el documento citado.
+(Así adicionado mediante sesión ordinaria N° 001-2020 del 5 de mayo del 2020)

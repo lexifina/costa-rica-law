@@ -1,0 +1,2 @@
+Artículo 29.—Los expedientes de las personas a las que se les retire la beca municipal, deberán conservarse en la Dirección de Responsabilidad Social por dos años para su posterior consulta y/o tramitación de activación, siempre y cuando, existan cupos disponibles. Una vez transcurrido dicho tiempo, el expediente será remitido al archivo central de la Municipalidad de Curridabat.
+(Así adicionado mediante sesión ordinaria N° 001-2020 del 5 de mayo del 2020)

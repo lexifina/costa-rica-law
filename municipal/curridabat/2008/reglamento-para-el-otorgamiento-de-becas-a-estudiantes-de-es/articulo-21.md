@@ -1,6 +1,7 @@
 Artículo 21.—A los beneficiarios de una beca municipal, se les cancelará el beneficio, cuando incurran en cualquiera de las causales que se citan: (Modificado mediante acuerdo N° 8 de las 19:24 horas del 26 de junio del 2014, que consta en el acta de la sesión ordinaria N° 217-2014, primera publicación: La Gaceta N° 152 del 08 de agosto de 2014, segunda publicación: La Gaceta N° 206 del 27 de octubre de 2014).
 1. Inasistencia recurrente al Centro educativo: Cuando el estudiante se ausente del Centro Educativo en reiteradas ocasiones durante un mes, sin justificación alguna.
-2. Deserción: Cuando el estudiante deserta del sistema educativo.
+2. Deserción: Cuando el estudiante abandona del sistema educativo.
+(Así reformado el inciso anterior mediante sesión ordinaria N° 001-2020 del 5 de mayo del 2020)
 3. Rendimiento académico no satisfactorio: Cuando el estudiante repruebe sin justificación el año lectivo, o más de cuatro materias durante el trimestre.
 4. Inadecuada utilización del dinero de la Beca: Cuando se compruebe que el estudiante no utiliza el recurso otorgado en el pago de útiles, materiales, meriendas, transporte u otros fines propios de su educación.
 5. Cambio en la condición económica del becado: Por haber cambiado la situación económica del becario o de su núcleo familiar, de modo que se demuestre que la ayuda de la Municipalidad no es indispensable para que continúe sus estudios.

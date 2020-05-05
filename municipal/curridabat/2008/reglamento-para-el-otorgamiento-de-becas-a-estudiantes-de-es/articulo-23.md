@@ -1,3 +1,3 @@
-Artículo 23.—En caso de renuncia justificada o que se le retire la beca a algún estudiante, el Centro Educativo notificará mediante nota la solicitud de retiro de beca, postulando al mismo tiempo a un estudiante como sustituto. Dicha documentación será remitida al Concejo Municipal por parte de la Dirección de Responsabilidad Social a fin de que se otorgue o no su aprobación.
+Artículo 23.—En caso de renuncia justificada o que se le retire la beca a algún estudiante, el Centro Educativo notificará mediante nota la solicitud de retiro de beca, postulando al mismo tiempo a un estudiante como sustituto, el cual deberá cumplir con lo establecido en los artículos 2, 12 y 14 del presente reglamento
 (Así corrida su numeración en sesión N° 008-2010 del 24 de junio de 2010, que lo traspaso del antiguo artículo 24 al 23 actual. Lo anterior ya que en dicha sesión se ordena derogar el numeral 12 original y correr la numeración de los restantes artículos)
-(Así reformado mediante sesión ordinaria N° 217-2014 del 26 de junio del 2014)
+(Así reformado mediante sesión ordinaria N° 001-2020 del 5 de mayo del 2020)

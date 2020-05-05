@@ -1,3 +1,4 @@
-Artículo 17.—Los centros educativos, en coordinación con la Dirección de Responsabilidad Social darán seguimiento a los estudiantes que cuenten con el beneficio de beca, siendo necesario informar al Concejo Municipal sobre la necesidad de retirar el beneficio si se incumple alguno de los requisitos estipulados en el artículo 14 de este reglamento.
+Artículo 17.—Los centros educativos, en coordinación con la Dirección de Responsabilidad Social, informarán sobre los alcances, requisitos y documentos a presentar, mismos estipulados en los artículos 2 y 14 del presente reglamento, para solicitar el estudio socioeconómico correspondiente en función de determinar el seguimiento, aprobación o denegación de la beca.
+En caso de incumplir con lo establecido en los artículos antes mencionados, no será posible iniciar proceso de estudio socioeconómico para valoración de seguimiento, aprobación o denegación de beca.”
 (Así corrida su numeración en sesión N° 008-2010 del 24 de junio de 2010, que lo traspaso del antiguo artículo 18 al 17 actual. Lo anterior ya que en dicha sesión se ordena derogar el numeral 12 original y correr la numeración de los restantes artículos)
-(Así reformado mediante sesión ordinaria N° 217-2014 del 26 de junio del 2014)
+(Así reformado mediante sesión ordinaria N° 001-2020 del 5 de mayo del 2020)

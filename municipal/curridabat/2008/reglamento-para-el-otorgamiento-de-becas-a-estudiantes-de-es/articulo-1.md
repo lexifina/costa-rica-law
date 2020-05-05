@@ -7,17 +7,25 @@ TÍTULO I
 Disposiciones generales
 Artículo 1º—Para el mejor entendimiento del presente Reglamento, se establecen las siguientes definiciones:
 1. Alcalde: Alcalde Municipal.
-2. Beca: Beneficio mediante el cual la Municipalidad, brinda facilidades o ayudas en dinero o de otra índole a estudiantes de escasos recursos del Cantón de Curridabat, para que puedan realizar sus estudios.
+2. Beca: Beneficio mediante el cual la Municipalidad, brinda asistencia, en forma de transferencias económicas, a través de criterios selectivos a estudiantes de primaria y secundaria del Cantón de Curridabat.
+(Así reformado el inciso anterior mediante sesión ordinaria N° 001-2020 del 5 de mayo del 2020)
 3. Comisión: Comisión de Asuntos Sociales del Concejo Municipal de Curridabat.
-4. COMAD: Comisión Especial en Materia de Discapacidad.
+4. COMAD: Comisión Especial en Materia de Discapacidad, la cual tiene la facultad de sugerir eventuales beneficiarios para que la administración realice los estudios técnicos correspondientes.
+(Así reformado el inciso anterior mediante sesión ordinaria N° 001-2020 del 5 de mayo del 2020)
 5. Concejo: Concejo Municipal del Cantón de Curridabat.
 6. Concejos: Concejos de Distrito. Son los órganos encargados de vigilar la actividad municipal y colaborar en los distritos de las respectivas municipalidades.
 7. Contador: Contador Municipal.
-8. Dirección de Responsabilidad Social: Instancia administrativa municipal encargada de verificar el cumplimiento de los requisitos de los becarios así como también de realizar estudios socioeconómicos para determinar la necesidad del otorgamiento del incentivo a los estudiantes del cantón.
-(Así reformado mediante sesión ordinaria N° 047-2011 del 24 de marzo del 2011)
-9. Formulario de Beca: Formulario de solicitud de beca nueva debidamente foliado y sellado que contiene la información general y básica del beneficiario de la Beca: los nombres, apellidos, edades, estado civil y oficio, de todos los miembros del grupo familiar, la dirección exacta, el centro de estudios y el lugar para recibir notificaciones, entre otros datos.
+8. Dirección de Responsabilidad Social: Instancia administrativa municipal encargada de dar seguimiento a las necesidades de los estudiantes, y establecer controles para garantizar la adecuada asignación de recursos mediante procedimientos objetivos, con criterios técnicos y profesionales.
+(Así reformado el inciso anterior mediante sesión ordinaria N° 001-2020 del 5 de mayo del 2020)
+9. Formulario de Beca: Documento facilitado con el propósito de conocer datos básicos personales, ingresos y egresos económicos mensuales de la persona solicitante de beca y su grupo familiar, así como dirección exacta del domicilio, el centro de estudios al que pertenece, el medio para recibir notificaciones, entre otros datos.
+(Así reformado el inciso anterior mediante sesión ordinaria N° 001-2020 del 5 de mayo del 2020)
 10. Instituciones: Se refiere a todas las Instituciones de Enseñanza Pública del Cantón, maternal, primaria, secundaria, vocacional, técnica, especial y otras.
 11. Municipalidad: La Municipalidad del Cantón de Curridabat.
-12. Sistema de Beca: Proceso mediante el cual se determinan los beneficiarios de las becas.
+12. Sistema de Beca: Programa de la Municipalidad de Curridabat, cuyo propósito se direcciona al otorgamiento de una beca a estudiantes del cantón de Curridabat.
+(Así reformado el inciso anterior mediante sesión ordinaria N° 001-2020 del 5 de mayo del 2020)
 13. Reglamento: Reglamento para el Otorgamiento de Becas a Estudiantes de Escasos Recursos del Cantón de Curridabat.
 14. Tesorería: Tesorería Municipal.
+15. Oficina de Bienestar Social y Familia: Oficina perteneciente a la Dirección de Responsabilidad Social, encargada de realizar los estudios socioeconómicos correspondientes para determinar el seguimiento, aprobación, o denegación de la beca.
+(Así adicionado el inciso anterior mediante sesión ordinaria N° 001-2020 del 5 de mayo del 2020)
+16. Expediente de beca: Conformado por toda la información debidamente foliada y sellada, referente a la información recolectada en el formulario de beca, documentos probatorios, y el respectivo estudio socioeconómico.
+(Así adicionado el inciso anterior mediante sesión ordinaria N° 001-2020 del 5 de mayo del 2020)

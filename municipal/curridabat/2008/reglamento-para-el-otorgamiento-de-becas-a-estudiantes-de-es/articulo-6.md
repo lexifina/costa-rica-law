@@ -1,2 +1,2 @@
-Artículo 6º—Corresponde a la Dirección de Responsabilidad Social administrar la información remitida por los centros educativos e instancias mencionadas en el artículo 3° de este reglamento, a fin de que el Concejo Municipal valore las solicitudes y adjudique o rechace las becas. En el caso de las personas con discapacidad será la COMAD la que lo determine.
-(Así reformado mediante sesión ordinaria N° 217-2014 del 26 de junio del 2014)
+Artículo 6º—Corresponde a la Dirección de Responsabilidad Social administrar la información remitida por los centros educativos e instancias mencionadas en el artículo 3° de este reglamento, a fin de que el Concejo Municipal valore las solicitudes y apruebe o rechace las becas. En el caso de las personas con discapacidad será la COMAD la que lo determine.
+(Así reformado mediante sesión ordinaria N° 001-2020 del 5 de mayo del 2020)

@@ -1,3 +1,5 @@
-Artículo 25.—Deróguese el Reglamento para el Otorgamiento de Becas a Estudiantes de Escasos Recursos del Cantón de Curridabat, publicado en La Gaceta N° 115, del lunes 14 de junio de 2004 y cualesquiera otras disposiciones municipales anteriores sobre la materia que aquí se reglamenta.
-(Así corrida su numeración en sesión N° 008-2010 del 24 de junio de 2010, que lo traspaso del antiguo artículo 26 al 25 actual. Lo anterior ya que en dicha sesión se ordena derogar el numeral 12 original y correr la numeración de los restantes artículos)
-(Así reformado mediante sesión ordinaria N° 161-2019 del 28 de mayo del 2019)
+TÍTULO VIII
+Apelaciones
+(Así adicionado el título anterior mediante sesión ordinaria N° 001-2020 del 5 de mayo del 2020)
+Artículo 25.—Cuando la persona becada esté en desacuerdo con el resultado de su gestión ante el sistema de becas de estudio municipal, podrá presentar una apelación ante la Dirección de Responsabilidad Social en forma escrita y justificada, explicando ampliamente los motivos que considera se deba tomar en cuenta, debe incluir los datos personales, datos para notificar y la firma correspondiente.
+(Así adicionado mediante sesión ordinaria N° 001-2020 del 5 de mayo del 2020)
