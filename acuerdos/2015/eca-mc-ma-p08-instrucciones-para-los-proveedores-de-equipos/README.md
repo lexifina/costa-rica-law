@@ -16,3 +16,4 @@ ECA-MC-MA-P08 Instrucciones para los proveedores de equipos de iluminación, ref
 | 1 | 2015-06-25 | la propia norma |
 | 2 | 2016-04-18 | Acuerdo 5 (2016-04-18) |
 | 3 | 2019-08-05 | Acuerdo 8 (2019-08-05) |
+| 4 | 2020-05-05 | Acuerdo 5 (2020-05-05) |
