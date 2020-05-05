@@ -2,7 +2,8 @@ Artículo 12.—Licencia de construcción.
 1. Para la obtención de la licencia municipal de construcción deberán presentarse los siguientes requisitos:
 a) Comprobante de pago del canon respectivo.
 b) Comprobante de depósito de garantías, en caso de haberse requerido, y póliza de seguro.
-c) Copia de la resolución que otorga el permiso de uso en precario y el convenio suscrito con la Municipalidad.
+c) Copia de la resolución que otorga el permiso de uso en precario.
+(Así reformado el inciso anterior mediante sesión ordinaria N° 001-2020 del 5 de mayo del 2020)
 d) Constancia de estar al día en el cumplimiento de las responsabilidades obrero patronales actualizada con la Caja Costarricense del Seguro Social.
 e) Constancia de estar al día con los tributos municipales.
 f) Proyecto final del Plan Maestro de Ubicación de la red de telecomunicaciones a desarrollar en el cantón, el cual deberá incluir el diseño final de los postes, lumirarias, mobiliario urbano, ubicaciones y demás características técnicas, para su valoración.

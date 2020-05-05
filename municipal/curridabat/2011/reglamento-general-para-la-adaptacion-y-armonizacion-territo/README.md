@@ -17,3 +17,4 @@ Reglamento general para la adaptación y armonización territorial del sistema d
 | 2 | 2012-01-26 | Reglamento municipal 91 (2012-01-26) |
 | 3 | 2012-07-05 | Reglamento municipal 114 (2012-07-05) |
 | 4 | 2015-07-30 | Reglamento municipal 274 (2015-07-30) |
+| 5 | 2020-05-05 | Reglamento municipal 1 (2020-05-05) |
