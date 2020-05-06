@@ -5,3 +5,4 @@ Artículo 2°: Apruébense los siguientes Egresos Ordinarios y Extraordinarios d
 (Modificado por el artículo 1° del decreto ejecutivo N° 42211 del 6 de febrero del 2020)
 (Modificado por el artículo 2° del decreto ejecutivo N°42204 del 12 de febrero del 2020)
 (Modificado por el artículo 1° del decreto ejecutivo N° 42260 del 19 de marzo del 2020)
+(Modificado por el artículo 1° del decreto ejecutivo N° 42309 del 31 de marzo del 2020)
