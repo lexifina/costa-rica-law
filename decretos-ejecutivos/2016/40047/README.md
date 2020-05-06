@@ -14,3 +14,4 @@ Reglamento de Almacenes y Bodegas del Ministerio de Obras Públicas y Transporte
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-12-09 | la propia norma |
+| 2 | 2020-05-06 | Decreto Ejecutivo 42442 (2020-05-06) |

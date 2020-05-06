@@ -1,2 +1,1 @@
-Artículo 77.- Venta de bienes en desuso o mal estado
-Cuando la Comisión de Bienes en Desuso o Mal Estado determine que podrá procederse a la venta de bienes que tengan esa condición, remitirá el expediente respectivo a la Dirección de Proveeduría Institucional, junto con• el informe sobre el valor de mercado y/o valor razonable de los bienes a vender. Lo anterior a fin de que esa dependencia realice los procedimientos que correspondan conforme lo establecido en la Ley de Contratación Administrativa y su Reglamento.
+Artículo 77.- Venta de bienes en desuso o mal estado (Derogado por el artículo 2° del decreto ejecutivo N° 42442 del 6 de mayo del 2020)
