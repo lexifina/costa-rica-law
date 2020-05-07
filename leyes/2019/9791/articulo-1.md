@@ -8,3 +8,4 @@ INCISO A: DETALLE DE LA PROYECCIÓN DE LOS INGRESOS CORRIENTES DEL GOBIERNO DE
 LA REPÚBLICA PARA EL EJERCICIO ECONÓMICO DE 2020 (en colones corrientes)
 (Nota de Sinalevi: Por lo extenso de su contenido y tipo de formato consultar Alcance Digital N° 273 a La Gaceta N° 233 del 6 de diciembre de 2019, Tomo I)
 (Modificado el inciso b) por el artículo 1° del decreto ejecutivo N°42204 del 12 de febrero del 2020)
+(Reformado el inciso a, b y c por el artículo 1° de la ley N° 9841 del 24 de abril del 2020)
