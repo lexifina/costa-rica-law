@@ -1,0 +1,2 @@
+Artículo 8- Solicitud de materiales a Bodega
+Los distintos departamentos utilizarán el formulario denominado "Solicitud de Bienes para Unidad Usuaria", para gestionar el pedido de sus necesidades a la Proveeduría Institucional. Este formulario deberá contener la siguiente información: número de documento, fecha, departamento solicitante, descripción de artículos, cantidad solicitada, firma y sello del encargado o responsable designado para realizar los pedidos.

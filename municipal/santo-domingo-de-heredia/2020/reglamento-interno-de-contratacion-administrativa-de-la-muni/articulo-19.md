@@ -1,0 +1,2 @@
+Artículo 19- Subsanación y aclaraciones de las ofertas.
+Es responsabilidad de la Proveeduría solicitar y/o tramitar las subsanaciones y aclaraciones a las ofertas presentadas en cada procedimiento. Estas serán tramitadas por el funcionario que designe la Proveeduría Institucional, sea este funcionario de la Proveeduría o de cualquier otro departamento de la Municipalidad. Todos los funcionarios tendrán el deber de asistir y colaborar con la Proveeduría en el trámite y estudio de las ofertas.

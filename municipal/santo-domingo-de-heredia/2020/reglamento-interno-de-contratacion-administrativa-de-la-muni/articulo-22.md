@@ -1,0 +1,2 @@
+Artículo 22- Comunicación de la Decisión Final
+La Proveeduría Institucional será la encargada de comunicar a los oferentes los acuerdos o resoluciones de adjudicación dentro de los plazos y parámetros previstos en el RLCA.

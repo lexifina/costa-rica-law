@@ -1,0 +1,2 @@
+Artículo 37- Modificaciones Unilateral de la Contratación.
+La causa imprevisible que de píe a una modificación unilateral de la contratación deberá ser determinada y documentada por la unidad solicitante, y remitida conforme a cuantía al Concejo o la Alcaldía según corresponda, conforme al artículo 21 de este Reglamento, podrá hacerlo cada director o jefe de Área o Departamento de la Municipalidad.

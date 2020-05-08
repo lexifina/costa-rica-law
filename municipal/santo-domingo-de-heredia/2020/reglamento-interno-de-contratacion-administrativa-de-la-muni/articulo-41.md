@@ -1,0 +1,4 @@
+Sección V. Del precio y pago
+Artículo 41- Del Uso de Incoterms
+Cuando los productos ofrecidos sean de importados y el oferente sea una firma domiciliada fuera del territorio nacional, el cartel o términos de referencia determinará el Incoterm que permita determinar los elementos que componen el precio, por lo que será obligatorio para todo oferente cotizar en la forma solicitada, en caso de omisión, la Administración procederá a descalificar la oferta. La administración utilizará los Incoterms definidos por la Cámara de Comercio Internacional, según la norma vigente, en caso de duda se consultará al Capítulo Costa Rica.
+Tratándose de productos en plaza la oferta deberá indicar siempre el precio y la naturaleza de los impuestos que la afectan. Su omisión tendrá por incluido en el precio cotizado los impuestos que lo graven.
