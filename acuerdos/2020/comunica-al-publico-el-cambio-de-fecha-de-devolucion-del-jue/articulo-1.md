@@ -1,0 +1,3 @@
+JUNTA DE PROTECCIÓN SOCIAL
+INSTITUCIÓN BENEMÉRITA
+Comunica al público en general el cambio en la fecha de devolución del juego N° 2042 denominado “Verano Regalón” debido al cierre administrativo de la Institución, en las fechas antes programadas, debido a las disposiciones del estado de emergencia decretada por el gobierno de la República para combatir el COVID-19, así como atender las medidas sanitarias del Ministerio de Salud en todo el país. Siendo así se establece que la devolución de este juego se traslada para el viernes 08 de mayo del 2020 en el horario establecido de las 4:30 p.m. a las 5:30 p.m. Para el pago de premios, se otorgan 60 días naturales que rigen a partir de la presente publicación en el Diario Oficial La Gaceta.
