@@ -1,0 +1,1 @@
+Artículo 3º.-En la implementación de la presente Directriz, se promueve a los bancos comerciales del Estado a que se brinde apoyo prioritario a personas físicas y jurídicas de los sectores económicos más afectados por el estado de emergencia nacional ocasionado por el COVID-19.

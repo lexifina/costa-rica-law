@@ -1,0 +1,1 @@
+Artículo 4º.-Se invita al Banco Popular y de Desarrollo Comunal, así como a los demás intermediarios financieros que operan en el país a aplicar las disposiciones contempladas en esta Directriz, como parte de las medidas de atención de la situación sanitaria provocada por el COVID-19.
