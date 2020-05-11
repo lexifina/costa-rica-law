@@ -16,3 +16,4 @@ Funcionamiento de las instituciones estatales durante la declaratoria de emergen
 | 1 | 2020-03-26 | la propia norma |
 | 2 | 2020-04-02 | Directriz 78 (2020-04-02) |
 | 3 | 2020-04-12 | Directriz 80 (2020-04-12) |
+| 4 | 2020-05-11 | Directriz 84 (2020-05-11) |
