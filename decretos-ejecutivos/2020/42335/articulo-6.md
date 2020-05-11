@@ -1,0 +1,1 @@
+ARTÍCULO 6°.-Coordinación de acciones con el Ministerio de Salud. La Dirección General de Aviación Civil deberá coordinar con el Ministerio de Salud las acciones pertinentes para la adopción y aplicación de las medidas sanitarias que acompañarán la ejecución de los artículos 2° y 4° del presente Decreto Ejecutivo, para mitigar los efectos del COVID-19.

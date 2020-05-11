@@ -1,0 +1,1 @@
+ARTÍCULO 3°.-Funcionamiento de los demás aeropuertos internacionales. Los Aeropuertos Internacionales Tobías Bolaños Palma, Daniel Oduber Quirós y Limón continuarán funcionando mediante las demás operaciones aeronáuticas para las cuales están habilitados, salvo para la actividad indicada en el artículo 2° del presente Decreto Ejecutivo.

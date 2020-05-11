@@ -1,0 +1,1 @@
+ARTÍCULO 5°.-Cumplimiento de la ejecución de la presente esta medida. Para el cumplimiento de la presente medida, el Ministerio de Obras Públicas y Transportes, por medio de la Dirección General de Aviación Civil, deberá adoptar las acciones técnicas de su competencia para la aplicación de lo establecido en el presente Decreto Ejecutivo, según corresponda.

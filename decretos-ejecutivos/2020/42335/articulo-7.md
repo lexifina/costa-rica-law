@@ -1,0 +1,1 @@
+ARTÍCULO 7°.- Revisión de la presente medida. La vigencia de la presente medida de restricción será revisada, actualizada o derogada de conformidad con el desarrollo del estado de emergencia nacional ocasionado por el COVID-19.
