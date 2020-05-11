@@ -15,3 +15,4 @@ Reglamento a la Ley de Impuesto de Patentes de Actividades Lucrativas
 | --- | --- | --- |
 | 1 | 2009-12-14 | la propia norma |
 | 2 | 2018-02-19 | Reglamento municipal 90 (2018-02-19) |
+| 3 | 2020-05-11 | Reglamento municipal 3 (2020-05-11) |
