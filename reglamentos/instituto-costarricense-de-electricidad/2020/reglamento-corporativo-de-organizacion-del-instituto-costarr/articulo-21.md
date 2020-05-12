@@ -1,0 +1,1 @@
+Artículo 21.-Nombramiento de los miembros de las Juntas Directivas de las Empresas ICE. Se rige por el "Procedimiento para la Selección de los Miembros de Juntas Directivas de Empresas ICE" aprobado por el Consejo Directivo en sesión N° 6355, Capítulo III, artículo 2° del 04 de febrero del 2020.

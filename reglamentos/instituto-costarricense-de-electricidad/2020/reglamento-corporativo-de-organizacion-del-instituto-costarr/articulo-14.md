@@ -1,0 +1,1 @@
+Artículo 14.-Estructura organizacional. Las empresas establecerán su estructura de conformidad con lo establecido en su reglamento de organización. La organización que adopten las empresas deberá considerar lo establecido en la Estrategia Corporativa, así como las políticas y directrices corporativas.

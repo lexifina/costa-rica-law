@@ -1,0 +1,1 @@
+Artículo 24.-Integración. Estará integrado por el Presidente Ejecutivo, quien lo presidirá, la Gerencia General del ICE y las Gerencias Generales de las Empresas. Este comité podrá convocar a los gerentes y otros colaboradores cuando lo considere pertinente para apoyo.

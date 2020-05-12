@@ -1,0 +1,1 @@
+Artículo 18.-Atribuciones. Tienen las atribuciones establecidas en el ordenamiento jurídico vigente, sus pactos constitutivos, estatutos, así como las que se determinan en las políticas, reglamentos o acuerdos emitidos por el Consejo Directivo.

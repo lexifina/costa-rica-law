@@ -1,0 +1,1 @@
+Artículo 2º-Alcance. Este reglamento es obligatorio para todos los órganos internos y colaboradores el Instituto Costarricense de Electricidad y sus empresas, así como para quienes integren sus órganos colegiados.
