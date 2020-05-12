@@ -1,0 +1,3 @@
+CAPÍTULO VI
+Dónde imprimir el ISSN
+Artículo 15.—El ISSN debe imprimirse en cada fascículo de la publicación seriada indefinidamente, hasta el momento de dar por terminada su publicación o si ésta cambio de título. Se coloca en posición destacada de preferencia en la parte superior derecha de la cubierta. El número debe ser precedido siempre por las siglas ISSN. Para los recursos continuados publicados en soporte electrónico (publicaciones en línea, CD-ROM), el ISSN debe figurar en la pantalla del título, o si no tiene, en el menú principal, y si es posible, en cualquier etiqueta fijada permanente a la publicación.

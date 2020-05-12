@@ -1,0 +1,3 @@
+CAPÍTULO III
+Estructura de un ISSN
+Artículo 3º—Cada Número Internacional Normalizado de Publicaciones Seriadas (ISSN) está formado por ocho dígitos divididos en dos secciones separados por un guion, con la excepción del dígito verificador final que podrá ser a veces una X mayúscula ejemplo: ISSN 0317-8471 o ISSN 1050-124X. Cada vez que se imprime debe ir precedido de las siglas ISSN, la numeración del ISSN no tiene significado alguno en sí misma; son números asignados secuencialmente e independientemente del país de origen y del idioma Costa Rica se identifica actualmente con tres bloques suministrados por el Centro Internacional estos son 2215, 1409, 1659.

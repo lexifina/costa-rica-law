@@ -1,0 +1,1 @@
+Artículo 7º—Cuando exista duda respecto a la asignación del ISSN a una publicación, el Centro Nacional ISSN podrá solicitar la obra física ya sea en formato digital o impreso para verificar su contenido.

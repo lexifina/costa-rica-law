@@ -1,0 +1,1 @@
+Artículo 11.—La anulación de un ISSN procederá cuando éste haya sido asignado a más de un recurso continuado o cuando más de un ISSN se haya asignado al mismo recurso. La anulación de un ISSN se hará siempre a favor del ISSN válido, por lo tanto, el ISSN anulado siempre figurará vinculado a uno o más ISSN válidos.

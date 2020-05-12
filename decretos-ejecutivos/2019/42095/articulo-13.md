@@ -1,0 +1,1 @@
+Artículo 13.—El ISSN asignado a una publicación en un formato específico será utilizado únicamente para ese formato. Si el solicitante desea editar la publicación en diferentes formatos deberá solicitar un ISSN diferente para cada uno de ellos.

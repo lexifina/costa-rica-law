@@ -1,0 +1,1 @@
+Artículo 12.—La supresión de un registro ISSN se realizará cuando el recurso no sea un recurso continuado, o cuando dicho recurso no se haya llegado a publicar. Un registro suprimido nunca figurará en el Registro del ISSN
