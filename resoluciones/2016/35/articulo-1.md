@@ -1,4 +1,4 @@
-AUTORIDAD REGULADORA DE LOS SERVICIOS PÚBLICOS
+4.7.1AUTORIDAD REGULADORA DE LOS SERVICIOS PÚBLICOS
 RJD-035-2016
 San José, dieciséis horas del veinticinco de febrero del dos mil dieciséis
 METODOLOGÍA PARA FIJACIÓN ORDINARIA DE TARIFAS PARA EL SERVICIO REMUNERADO DE PERSONAS, MODALIDAD AUTOBÚS
@@ -1087,6 +1087,7 @@ Para las rutas a las que se les haya realizado una fijación tarifaria ordinaria
 (*) (Así adicionado el párrafo anterior mediante resolución N° RE-0215-JD-2018 del 11 de diciembre de 2018)
 Los criterios anteriores podrán ser ampliados o detallados por la Administración Superior con la debida justificación técnica y jurídica.
 (Así adicionado el párrafo anterior mediante resolución N° RE-0215-JD-2018 del 11 de diciembre de 2018)
+(Nota de Sinalevi: Mediante resolución N°RE-0058-JD-2020 del 12 de mayo de 2020, se acordó suspender temporalmente, hasta el 28 de febrero de 2021, la disposición de la remisión a la Aresep, de la información proveniente de los sistemas automatizados de conteo de pasajeros, por parte de los prestadores de servicio público remunerado de personas modalidad autobús; establecida en la sección 4.7.1, inciso a) “Mecanismo para la determinación del volumen mensual de pasajeros, punto 1: “Estudio técnico de validación de los datos provenientes del Sistema Automatizado de Conteo de Pasajeros (SCP)” de la “Metodología para fijación ordinaria de tarifas para el servicio de transporte remunerado de personas, modalidad autobús”, resolución RJD-035-2016 y sus reformas, ante la situación de emergencia nacional provocada por la pandemia mundial COVID-19. Lo anterior, supeditado a la valoración técnica que realice la Autoridad Reguladora de los Servicios Públicos.)
 b. Criterios de decisión para la determinación del volumen mensual de pasajeros
 Debido a que puede existir información simultánea procedente de las fuentes indicadas en los puntos 1 al 4 de la sección a) de este apartado, se establecen las siguientes reglas para la determinación del volumen mensual de pasajeros necesario para la aplicación de esta metodología tarifaria ordinaria.
 i.En caso que el operador esté enviando los registros del SCP según las características señaladas en la sección 4.11.2 Precio del sistema automatizado de conteo de pasajeros, durante el último año, o que haya presentado la información del último año correspondiente al SCP o SIR, se podrá realizar una validación estadística de los registros del SCP, y en segundo lugar, las estadísticas reportadas mediante el SIR.
