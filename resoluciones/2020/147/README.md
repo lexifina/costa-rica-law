@@ -14,3 +14,4 @@ Procedimiento especial de importación definitiva con el mecanismo de pago difer
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-04-01 | la propia norma |
+| 2 | 2020-05-13 | Resolución 234 (2020-05-13) |
