@@ -1,5 +1,0 @@
-TÍTULO CUARTO
-Disposiciones generales
-CAPÍTULO I
-Artículo 76.—El Estatuto Orgánico, el Reglamento de Régimen Académico y el Reglamento Disciplinario Estudiantil de las Instituciones de Educación Superior Parauniversitaria, deben contar con la aprobación formal del Consejo Superior de Educación previo al inicio de las actividades institucionales como Centro de Educación Parauniversitaria, como requisito de validez y eficacia para su aplicación.
-Deberán presentarlos ante la Secretaria General, para su análisis técnico y legal, quien posteriormente dará traslado ante el Consejo Superior de Educación para su conocimiento; la normativa interna deberá abarcar los contenidos señalados en el artículo 77 siguiente y contar con la aprobación del Consejo Directivo conforme a lo señalado en los incisos f) y g) del artículo 12 de este reglamento. El Consejo Superior de Educación decidirá lo procedente respecto a las normas descritas en el párrafo anterior, en un plazo no mayor a noventa días, contados a partir de la presentación de la Secretaría General, conforme a lo establecido en el párrafo segundo del artículo 4 de la Ley número 6541 del 19 de noviembre de 1980.

@@ -1,1 +1,0 @@
-Artículo 20.—Las instituciones parauniversitarias públicas, además del Consejo Directivo y el Decano, tendrán la estructura que indique la Ley o en su defecto la que mejor convenga para el cumplimiento de sus objetivos.

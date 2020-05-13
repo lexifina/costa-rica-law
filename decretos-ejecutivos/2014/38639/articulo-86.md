@@ -1,1 +1,0 @@
-Artículo 86.—Transitorio Único: Las Instituciones de Enseñanza Superior Parauniversitaria, contarán con el plazo de 6 meses, contados a partir de la entrada en vigencia del presente reglamento, para ajustar por completo el desarrollo de sus actividades a las disposiciones aquí contenidas.

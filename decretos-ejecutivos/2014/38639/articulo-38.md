@@ -1,1 +1,0 @@
-Artículo 38.—El plazo para resolver las solicitudes que se formulen no será mayor a noventa días, conforme lo establecido en el párrafo segundo del artículo 4 de la Ley número 6541 del 19 de noviembre de 1980.

@@ -1,1 +1,0 @@
-Artículo 59.—Las Instituciones de Educación Superior Parauniversitaria Privadas para el desarrollo eficiente de las funciones y fines, requieren de la existencia mínima de un Área Administrativa, un Área Académica y un Área de Educación Comunitaria.

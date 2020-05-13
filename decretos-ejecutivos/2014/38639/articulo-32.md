@@ -1,1 +1,0 @@
-Artículo 32.—Los estudiantes tendrán derecho a representación en aquellos órganos que el presente reglamento y las disposiciones internas de cada institución señalen. El representante ante el Consejo Directivo será electo por votación directa, universal y secreta de los estudiantes, de acuerdo con el respectivo Reglamento de Elecciones Estudiantiles.

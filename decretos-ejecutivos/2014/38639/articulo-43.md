@@ -1,5 +1,0 @@
-Artículo 43.—Requisitos de graduación. La institución deberá presentar ante el Consejo Superior de Educación lo siguiente:
-a) Certificación de notas donde se consigne: el nombre de la institución, el nombre del estudiante y su número de identificación, la carrera que cursa, el nombre de los cursos, la nota, el número de créditos, el cuatrimestre y el año en que cursó cada uno y la forma de aprobación (curso regular, reconocimiento, suficiencia). Debe aportar los timbres de ley y estar firmada por el decano institucional.
-b) Fotocopia del título de Bachiller de Educación Diversificada o su equivalente debidamente reconocido, con su respectiva autenticación. En el caso de extranjeros, la respectiva certificación de la equiparación de los estudios realizados en el extranjero a la condición de graduado.
-c) Certificaciones a partir de las cuales se han realizado reconocimiento de cursos a los estudiantes.
-d) Copia certificada de la sección correspondiente del libro de actas de “Requisitos de Graduación” donde se registre el resultado de la evaluación final de graduación correspondiente.

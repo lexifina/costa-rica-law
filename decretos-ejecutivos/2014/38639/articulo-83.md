@@ -1,1 +1,0 @@
-Artículo 83.—Cada sede regional estará a cargo de un Coordinador General, quien para ser nombrado deberá cumplir con los requisitos establecidos en los incisos c), d) y e) del artículo 16 del presente reglamento.

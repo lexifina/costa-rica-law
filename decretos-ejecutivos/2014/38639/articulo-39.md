@@ -1,1 +1,0 @@
-Artículo 39.—Cuando se trate de la solicitud de aprobación de nuevas carreras, en áreas donde se carezca internamente de la información técnica necesaria para su valoración el Consejo o sus comisiones podrán solicitar el criterio especializado a las personas u organismos que considere oportuno.
