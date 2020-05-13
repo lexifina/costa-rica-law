@@ -1,0 +1,1 @@
+Artículo 13.—Audiencia. La Comisión convocará a las partes a una audiencia oral y privada con 10 días de antelación, debiendo aplicar las reglas dispuestas en el artículo 308 y siguientes de la Ley General de la Administración Pública para la determinación de la verdad real de los hechos.

@@ -1,0 +1,1 @@
+Artículo 21.—Reincidencia. En caso de que la persona funcionaria previamente sancionada con suspensión reincida en una nueva conducta de acoso laboral, debidamente comprobada a través de un procedimiento administrativo, dentro del período de dos años siguientes a la firmeza de la primera sanción, se aplicará, previo debido proceso, el despido sin responsabilidad patronal.

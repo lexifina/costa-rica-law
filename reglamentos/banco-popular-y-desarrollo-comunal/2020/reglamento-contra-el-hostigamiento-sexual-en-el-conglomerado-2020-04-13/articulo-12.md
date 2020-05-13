@@ -1,0 +1,1 @@
+Artículo 12.—La víctima como parte del proceso. La víctima será expresamente reconocida como parte en el proceso, con todos los derechos inherentes a esta condición, tiene el derecho a ser atendida por los profesionales de los servicios médicos, o en los servicios de Psicología con que cuenta el Conglomerado.

@@ -1,0 +1,1 @@
+Artículo 15.—De las declaraciones de las personas involucradas en el procedimiento. Toda persona denunciante o testigo de un acoso laboral, tiene la garantía de que no sufrirá perjuicio alguno por sus declaraciones, siempre que estas no sean difamatorias, injuriosas o calumniosas.

@@ -1,0 +1,1 @@
+Artículo 27.—Normativa complementaria. En todo aquello no previsto en el presente reglamento se aplicará lo establecido en la Ley General de la Administración Pública, el Código de Trabajo y el Reglamento Interno de Trabajo del Banco o de alguna sociedad del Conglomerado. Este Reglamento no modifica la relación de empleo de las personas funcionarias de las Sociedades.

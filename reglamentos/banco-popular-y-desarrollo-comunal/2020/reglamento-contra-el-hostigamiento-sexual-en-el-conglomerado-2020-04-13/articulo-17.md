@@ -1,0 +1,4 @@
+Artículo 17.—Valoración de las pruebas. La Comisión evaluará las pruebas aportadas al proceso, verificando la presencia de al menos los siguientes elementos en los hechos denunciados: la intencionalidad por parte del supuesto acosador y que estos hayan sido sistemáticos y frecuentes. De igual manera, deberá tomar en consideración la reincidencia o no de este comportamiento en la persona denunciada, para ello acreditará en su recomendación que la conducta investigada de Acoso Laboral contenga al menos los siguientes elementos.
+a. Sistematicidad y frecuencia: se trata de un comportamiento regular, frecuente y no esporádico o aislado.
+b. Duración: el acoso se suscita durante un periodo prolongado.
+c. Intencionalidad: la agresión tiene como finalidad que el funcionario acosado o la funcionaria acosada abandone su trabajo.

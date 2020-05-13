@@ -1,0 +1,1 @@
+Artículo 20.—Recursos. Contra el dictado del Acto Final, únicamente cabe el recurso de revocatoria o reposición, el cual deberá interponerse dentro del plazo de tres días hábiles posteriores a su notificación, ante el jerarca que lo dictó.

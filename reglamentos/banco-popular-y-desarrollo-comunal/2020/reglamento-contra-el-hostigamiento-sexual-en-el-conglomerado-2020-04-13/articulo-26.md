@@ -1,0 +1,2 @@
+Artículo 25.—Asesoría y orientación. La Dirección de Capital Humano brindará asesoría y orientación a las personas funcionarias que consideren estar viviendo una situación de acoso laboral, con el fin de que se les ayude a identificar la circunstancia, los factores que la explican y las acciones que se puedan llevar a cabo, asimismo, podrán orientarla a interponer la denuncia de acoso laboral.
+Podrá coordinar con instituciones públicas o privadas que puedan colaborar con el proceso preventivo y de atención a las víctimas.
