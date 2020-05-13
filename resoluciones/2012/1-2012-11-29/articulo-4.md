@@ -3,5 +3,5 @@ Monto del Impuesto específico anterior, multiplicado por 1 (uno) más el porcen
 ¢ 5,725 * 1.01047 = ? 5.785
 ¢ 2.35 * 1,01047 = ?2,375
 Tipo de Bebidas | Impuesto por Unidad de Consumo
-a. Bebidas carbonatadas y Jarabes de Bebidas Gaseosas tipo “Post Mix” | 6,779 (Así actualizado el impuesto anterior por el artículo 1° de la resolución N° 005 del 11 de febrero del 2020)
-b. Bebidas Carbonatadas y Jarabes de Bebidas Gaseosas tipo “Post Mix”, para Micro y Pequeñas Empresas | 2,783 (Así actualizado el impuesto anterior por el artículo 1° de la resolución N° 005 del 11 de febrero del 2020)
+a. Bebidas carbonatadas y Jarabes de Bebidas Gaseosas tipo “Post Mix” | 6,766 (Así actualizado el impuesto anterior por el artículo 1° de la resolución N° INDER-PE-AT-(RG)-014-2020 del 13 de mayo del 2020)
+b. Bebidas Carbonatadas y Jarabes de Bebidas Gaseosas tipo “Post Mix”, para Micro y Pequeñas Empresas | 2,778 (Así actualizado el impuesto anterior por el artículo 1° de la resolución N° INDER-PE-AT-(RG)-014-2020 del 13 de mayo del 2020)
