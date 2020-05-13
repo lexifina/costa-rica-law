@@ -1,0 +1,2 @@
+Artículo 49.—Responsabilidad en caso de daño o pérdida de los recursos informáticos. Las personas teletrabajadoras incurrirán en responsabilidad civil en caso de deterioro o pérdida de los equipos de trabajo institucionales, siempre y cuando lo anterior se haya causado por dolo o culpa grave debidamente comprobada.
+Para los casos anteriores, el teletrabajador es responsable de darle el uso y cuido adecuados, para el buen funcionamiento del mismo.

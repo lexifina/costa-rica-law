@@ -1,0 +1,1 @@
+Artículo 55.—El Proceso de Recursos Humanos, en asocio con el Alcalde Municipal resolverá, de acuerdo con la normativa vigente, las situaciones de orden laboral que presenten los teletrabajadores y las jefaturas.

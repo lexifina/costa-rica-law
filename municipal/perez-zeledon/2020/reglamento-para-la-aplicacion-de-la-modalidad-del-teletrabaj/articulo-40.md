@@ -1,0 +1,2 @@
+Artículo 40.—Obligaciones sobre el ambiente laboral. El superior jerárquico deberá velar porque se mantenga el ambiente laboral adecuado, así como las retribuciones, oportunidades de
+desarrollo e integración institucional de las personas que participan en la modalidad de teletrabajo. Todas las jefaturas, funcionarios y funcionarias que se encuentren relacionados directa o indirectamente con las personas teletrabajadoras, deben colaborar en su gestión para que esta modalidad de trabajo cumpla con los objetivos que plantea y la normativa asociada.

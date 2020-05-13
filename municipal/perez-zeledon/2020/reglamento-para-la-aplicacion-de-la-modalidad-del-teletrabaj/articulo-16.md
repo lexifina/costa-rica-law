@@ -1,0 +1,1 @@
+Artículo 16.—En la modalidad de teletrabajo, cuando surjan necesidades excepcionales y únicas de trabajar tiempo extraordinario, se aplicará lo que establece la normativa vigente, para lo cual también se debe cumplir con el procedimiento establecido a lo interno de la municipalidad para el pago de la jornada extraordinaria.

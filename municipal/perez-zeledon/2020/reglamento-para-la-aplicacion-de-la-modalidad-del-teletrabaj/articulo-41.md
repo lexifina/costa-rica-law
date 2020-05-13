@@ -1,0 +1,1 @@
+Artículo 41.—Deber de informar irregularidades. Cuando el rendimiento de los o las teletrabajadores no cumpla con lo programado, la jefatura inmediata debe realizar un análisis de las causas y junto con las evaluaciones anteriores, remitirlo a la Comisión, el que debe formular las recomendaciones que correspondan para mejorar el desempeño del teletrabajador.
