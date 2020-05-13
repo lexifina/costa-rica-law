@@ -1,0 +1,1 @@
+Artículo 10.—Derogatorias: Se deja sin efecto la resolución número DGT-R-20-2017, de las ocho horas del treinta y uno de marzo de dos mil diecisiete, publicada en La Gaceta N° 77 del 11 del 25 de abril de 2017.

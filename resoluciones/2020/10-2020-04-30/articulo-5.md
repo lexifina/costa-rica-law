@@ -1,0 +1,1 @@
+Artículo 5º—Cumplimiento de obligaciones tributarias: En caso de que se determine que el interesado no se encuentra al día en el cumplimiento de sus obligaciones tributarias, deberá prevenírsele para que en un plazo de diez días hábiles regularice su situación tributaria, so pena de procederse al archivo de la gestión, sin notificación adicional.

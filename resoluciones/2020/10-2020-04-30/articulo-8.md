@@ -1,0 +1,4 @@
+Artículo 8º—Presentación del registro auxiliar de inversiones: El ente o administrador de los fondos que por ley tienen el beneficio, debe presentar el auxiliar de inversiones, según lo establecido en el artículo anterior, en formato digital.
+Para aquellos que gozan de exención indefinida la presentación será anual, dentro de los primeros quince días naturales del mes de enero, por medio del correo electrónico notificaciones-DSC@hacienda.go.cr, con los requisitos señalados en el artículo anterior.
+Para aquellos a los que se les ha emitido una resolución restringida la presentación deberán hacerla ante la Administración Tributaria competente, cada vez que solicite la renovación.
+El incumplimiento de la presente disposición tipificará la infracción establecida en el artículo 83 del Código de Normas y Procedimientos Tributarios.

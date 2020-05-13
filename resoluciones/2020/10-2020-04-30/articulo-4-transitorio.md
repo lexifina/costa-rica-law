@@ -1,0 +1,1 @@
+Transitorio cuarto.—Aquellas solicitudes de exención que al momento de publicación de la presente resolución estuvieran presentadas ante la Administración Tributaria y se encuentren en trámite, deberán ser resueltas con base en el contenido de la misma, tomando en consideración lo establecido en los transitorios de esta resolución.
