@@ -1,0 +1,11 @@
+MUNICIPALIDAD DE HEREDIA
+El Concejo Municipal del cantón Central de Heredia en la Sesión Ordinaria número trescientos diecisiete-dos mil veinte, celebrada el 27 de abril del dos mil veinte, en el artículo VI, acuerdo 1, mediante moción presentada por el Lic. Manrique Chaves Borbón – Presidente Municipal, para que se modifique parcialmente el Reglamento para la prestación del servicio de transporte de la Municipalidad de Heredia, en su Artículo 12 y:
+Considerando:
+1º—Que el Reglamento para la prestación del servicio de transporte de la Municipalidad de Heredia, fue publicado en La Gaceta número 180, el día miércoles 16 de setiembre del 2015.
+2º—Han pasado más de cuatro años y cinco meses de haber entrado en vigencia, y no ha sido modificado.
+3º—El Reglamento para la prestación del servicio de transporte de la Municipalidad de Heredia, es excluyente y restrictivo, con algunas personas que le brindan colaboración y apoyo en forma voluntaria y desinteresada con la Municipalidad de Heredia.
+4º—Los miembros de los Concejos de Distritos, los cuales son elegidos o electos en las elecciones municipales, y no devengan dietas, ya que, su trabajo esta al servicio municipal de manera voluntaria y sin ningún costo económico para el municipio.
+Acuerda por unanimidad:
+Modificar el artículo 12 del Reglamento para la prestación del servicio de transporte de la Municipalidad de Heredia, y se lea de la siguiente manera:
+Artículo 12.—Se prohíbe transportar en los vehículos de uso administrativo, propiedad de la municipalidad, personas que no sean funcionarios de la municipalidad, salvo regidores, síndicos, miembros de las comisiones municipales, miembros de los concejos de distritos, funcionarios de otras instituciones o empresas del estado que se encuentren realizando funciones, proyectos o actividades en conjunto con la Municipalidad. En tal supuesto, el chofer del vehículo indicará en la boleta de transporte el nombre de las personas que le acompañan, en que condición es que hace su ingreso, el motivo del viaje y el lugar que se dirige, lo que deberá ser autorizado por el alcalde. La persona a quien se asigne la responsabilidad del vehículo deberá cumplir con el contenido de este artículo, y su incumplimiento se tendrá como una falta grave de dicho servidor.
+** Acuerdo definitivamente aprobado.
