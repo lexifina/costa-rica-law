@@ -1,0 +1,1 @@
+Artículo 5°—De la autorización del Sello. La decisión para el otorgamiento del Sello Artesanal, estará a cargo de la Comisión Costarricense del Sector Artesanal, tal y como lo dispone el Decreto Ejecutivo N° 41976-MEIC-MCJ-TUR del 23 de julio de 2019, quien se apoyará en la Secretaría Técnica creada en ese mismo Decreto Ejecutivo.

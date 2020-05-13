@@ -1,0 +1,1 @@
+Artículo 9°—Del plazo de la Autorización de Uso. La Autorización de uso del Sello, se otorgará por un plazo de 3 arios, y podrá renovarse mediante la presentación de los formularios elaborados para tales efectos en la Secretaría Técnica de la Comisión Costarricense del Sector Artesanal; los cuales deben presentarse un mes antes de la fecha de su vencimiento.
