@@ -1,0 +1,1 @@
+Artículo 3°—Mecánica de Juego. Raspar toda el área de juego. Si alguno de sus números coincide con alguno de los números millonarios gana el premio correspondiente a ese número. Puede ganar hasta 3 (tres) veces en el boleto.
