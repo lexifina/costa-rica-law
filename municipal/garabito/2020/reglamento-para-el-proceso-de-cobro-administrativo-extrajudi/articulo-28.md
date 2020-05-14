@@ -1,0 +1,2 @@
+Artículo 28° - Determinación para trasladar una cuenta a cobro judicial.
+La sección de Servicios Financieros trasladará cuentas a cobro judicial cuando la deuda sea superior a un salario base establecido en la Ley. Lo anterior, en virtud de que, si la cuantía del proceso es superior al monto adeudado por el contribuyente, por concepto de tributos municipales, la cuenta continuará en gestión de cobro administrativo hasta que se acumule el monto mínimo definido y previniendo que el plazo de prescripción establecidos en el ordenamiento jurídico no acontezca.

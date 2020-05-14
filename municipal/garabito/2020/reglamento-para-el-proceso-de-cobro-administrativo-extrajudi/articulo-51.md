@@ -1,0 +1,2 @@
+Artículo 51° - Gestión de declaratoria de Tributos Incobrable.
+La sección de Servicios Financieros como dependencia encargada de gestionar la declaratoria de incobrabilidad de una deuda deberá realizar un análisis de si se cumple o no con alguno de los supuestos establecidos en la política de incobrabilidad y emitir una resolución de declaratoria de incobrables, la cual se comunicará a los procesos de Contabilidad y Tecnologías de Información.

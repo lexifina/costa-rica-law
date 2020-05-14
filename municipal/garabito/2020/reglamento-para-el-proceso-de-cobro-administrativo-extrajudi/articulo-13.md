@@ -1,0 +1,2 @@
+Artículo 13° - Recibos de pago.
+Es todo aquel documento físico y/o electrónico, oficial de la Municipalidad, emitido en las cajas de los entes recaudadores convenidos, que demuestra que el pago de la deuda tributaria se ha llevado a cabo, sea de forma total o parcial. Estos recibos, deberán estar autorizados mediante el sello respectivo de cada cajero. De igual manera se entenderá como recibo de pago, toda transacción realizada a través de los medios electrónicos establecidos y que quede debidamente acreditada en la cuenta integral tributaria de la base de datos municipal.

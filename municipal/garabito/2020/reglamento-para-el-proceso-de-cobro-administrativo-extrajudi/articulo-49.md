@@ -1,0 +1,2 @@
+Artículo 49° - Supuestos de incobrabilidad.
+Una deuda se tendrá por incobrable, previo a estudio, si se determina que cumple con alguno de los supuestos establecidos en la política de estimación de incobrabilidad. Para efectos del Impuesto sobre Bienes Inmuebles, no existen causales de incobrabilidad, debido a que las deudas pendientes siempre están garantizadas para su recuperación por el objeto del tributo que es el bien inmueble, salvo que se demuestre la desaparición del mismo.

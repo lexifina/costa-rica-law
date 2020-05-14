@@ -1,0 +1,2 @@
+Artículo 52° - Comunicación de declaratoria de incobrabilidad.
+Las secciones y áreas municipales de Contabilidad, Servicios Financieros, Servicios de Seguridad y Convivencia Social, Servicios Técnicos, Servicios Ciudadanos y Tecnologías de Información, deberán tener una comunicación constante en cuanto al registro para realizar los ajustes contables correspondientes de las deudas declaradas como incobrables.

@@ -1,0 +1,5 @@
+Artículo 45° - Requisitos de los arreglos de pago.
+El solicitante deberá aportar la siguiente documentación:
+a) Fotocopia de cédula de identidad. Presentar original de la cedula de identidad (vigente) y en el caso de personas jurídicas, se deberá presentar una fotocopia de la cédula de identidad del representante legal (vigente). En casos de Terceros deberá aportar fotocopia de la cedula del deudor y para personas jurídicas el poder original que da las facultades para asumir la deuda con la fotocopia copia de la cédula del representante.
+b) Certificación de la Personería Jurídica, con menos de un mes de expedición (en caso de personas jurídicas) o digitales con menos de quince (15) días. c) Firma del arreglo: Será confeccionado por el funcionario de Servicios Ciudadanos, el cuál emitirá dos tantos del mismo, el cual se firmará en forma conjunta por el Coordinador de Servicios Ciudadanos y el contribuyente o autorizado.
+d) Pago de primera cuota: Deberá cancelar, en el acto, la prima que corresponda al convenio de pago.

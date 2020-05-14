@@ -1,0 +1,26 @@
+Artículo 3° - Definiciones.
+Para los fines del presente reglamento se entenderá por:
+a) Abogados Externos: Profesionales Licenciados en Derecho que, habiendo cumplido con los requisitos exigidos en el procedimiento de contratación administrativa, resultan contratados por la Municipalidad, para prestar los servicios profesionales en gestión de cobro extrajudicial y judicial, necesarias para la recuperación de las obligaciones vencidas.
+b) Abogados Internos: Profesionales Licenciados en Derecho que ocupan una plaza en la Municipalidad y se le asigne como función ordinaria la gestión de cobro extrajudicial o judicial en forma directa para la Municipalidad.
+c) Administración Tributaria Municipal: La Municipalidad de Garabito como órgano administrativo encargado de la gestión, percepción y fiscalización de los tributos municipales, por medio de sus dependencias.
+d) Arreglos de Pago: compromiso que asume el sujeto pasivo que se encuentre moroso en el pago de sus obligaciones dinerarias con la Municipalidad, de pagar la deuda dentro del tiempo que se le concede y de acuerdo con lo dispuesto en este reglamento.
+e) Check de estado: Es el estado de cobro en que se encuentra un contribuyente el cual se indica en el Sistema de Información y Administración Municipal, según las gestiones que se haya realizado como la emisión de notificaciones de cobro, arreglo de pago o trasladado a cobro judicial.
+f) Contribuyente o administrado: Es la persona física o jurídica obligada a pagar tributos a la Municipalidad, derivados de impuestos, tasas, tarifas, precios, timbres o contribuciones especiales, multas u otros en calidad de contribuyente, responsable u obligado ante la Municipalidad.
+g) Cuentas vencidas: Son los créditos exigibles de plazo y/o periodo vencido, a favor de la Municipalidad.
+h) Cobro administrativo: Se entenderá por cobro administrativo todas las acciones que realice la Municipalidad, a través de la sección de Servicios Financieros, por su cuenta o cualquier ente autorizado, con el objetivo de cumplir con calendarios de pago que garanticen la cancelación oportuna de las cuentas de los contribuyentes, así como para poner al día las cuentas que se encuentren vencidas y/o morosas.
+i) Cobro extrajudicial: Las acciones realizadas extrajudicialmente por los abogados internos y/o externos en casos calificados, para la cancelación de las obligaciones vencidas trasladadas a éstos para su respectivo cobro, previo a iniciar la gestión de cobro judicial correspondiente.
+j) Cobro judicial: Las acciones que se realicen por parte de los abogados internos y/o externos, vía judicial, en aras de obtener la recuperación de las obligaciones vencidas trasladadas a éstos para su respectivo cobro.
+k) Servicios Financieros: Sección encargada de planear, organizar, coordinar y controlar la ejecución de las diferentes actividades relacionadas con los procesos de cobro y financieros municipales.
+l) Incobrabilidad: Carácter que adquiere una deuda con la Municipalidad cuando adquiere firmeza la resolución que así lo declare y que produce como efecto el cierre de la cuenta desde el punto de vista contable. De acuerdo a la política de incobrabilidad que utilice la Administración Municipal aprobada por el Concejo Municipal.
+m) Honorarios: Son los fijados por el decreto de Arancel de Honorarios por Servicios Profesionales de Abogacía y Notariado vigente.
+n) Monto exiguo: Es aquel que no representa un monto con relevancia económica para la Municipalidad, porque al hacer efectivo su pago, no hay una correspondencia entre el costo y el beneficio recuperado.
+o) Municipalidad: La Municipalidad del Cantón de Garabito.
+p) Obligaciones tributarias materiales: Corresponderán a todas aquellas prestaciones en dinero, adeudadas por los contribuyentes o responsables a la Municipalidad, como consecuencia de impuestos municipales o de administración municipal, tasas o contribuciones especiales.
+q) Obligaciones dinerarias vencidas: Créditos exigibles de plazo y/o periodo vencido a favor de la Municipalidad.
+r) Política de Incobrabilidad: Lineamientos y criterios para clasificar las cuentas morosas como incobrables aprobadas por el Concejo Municipal.
+s) Prescripción: Es un modo de poner fin a las obligaciones tributarias o deuda. En este caso, se extinguen las acciones y derechos ajenos porque el titular no ejerció sus derechos o acciones por un lapso de tiempo determinado por la ley.
+t) Reglamento: El reglamento para el proceso de Cobro Administrativo, extrajudicial y judicial de la Municipalidad de Garabito.
+u) Salario base: según lo establecido en el artículo 2 de la Ley N° 7337, de 5 de mayo de 1993, y sus reformas.
+v) Sistema de Información y Administración Municipal: Sistema informático que utiliza la Municipalidad para administrar la información de sus contribuyentes, así como el detalle de sus obligaciones, integrando las diferentes áreas de gestión tributaria.
+w) Secciones: Unidades organizacionales de la municipalidad responsables de una serie de procesos, subprocesos o actividades.
+x) Sujeto activo y pasivo en el cobro de tributos. La Municipalidad es el sujeto activo en el cobro de los tributos, intereses, multas, precios; mientras que él o los contribuyentes y/o responsables serán los sujetos pasivos de la obligación.

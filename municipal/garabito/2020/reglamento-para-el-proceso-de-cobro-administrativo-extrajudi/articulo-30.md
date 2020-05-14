@@ -1,0 +1,2 @@
+Artículo 30° - Contratación.
+De conformidad con la Ley de Contratación Administrativa y su Reglamento, la Municipalidad podrá contratar los servicios externos para la gestión de cobro administrativo, extrajudicial o judicial, que se regirá por las disposiciones de este reglamento. La relación contractual entre la Municipalidad y el contratista será definida mediante la firma de un contrato administrativo, que será fiscalizado por la sección de Servicios Financieros.

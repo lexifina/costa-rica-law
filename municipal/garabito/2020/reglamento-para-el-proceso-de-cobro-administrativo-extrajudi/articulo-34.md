@@ -1,0 +1,2 @@
+Artículo 34° - Informes de los abogados.
+Los abogados internos y externos deberán presentar a la sección de Servicios Financieros un informe dentro del plazo de los primeros cinco (5) días hábiles de cada mes sobre la gestión de los casos asignados. Adicionalmente, los primeros ocho (8) días hábiles de los meses de enero, abril, julio, octubre deberá presentar avances sobre su labor ordinaria de gestión de cobro. Lo anterior sin perjuicio de que se solicite extraordinariamente información del estado de los casos asignados.

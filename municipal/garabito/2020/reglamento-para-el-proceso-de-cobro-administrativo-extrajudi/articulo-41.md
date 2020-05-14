@@ -1,0 +1,2 @@
+Artículo 41° - De la competencia.
+El trámite de los arreglos de pago se realizará una vez evaluados los requisitos, las condiciones de la deuda, el plazo y el tipo de convenio, determinadas en el Sistema de Información y Administración Municipal, se hará ante y por parte de los funcionarios de la sección de Servicios Ciudadanos y será revisado y autorizado por el Coordinador del área. Una vez finalizado el trámite, procederán a trasladarlo a la sesión de Servicios Financieros para que sea custodiado y se realice el seguimiento.

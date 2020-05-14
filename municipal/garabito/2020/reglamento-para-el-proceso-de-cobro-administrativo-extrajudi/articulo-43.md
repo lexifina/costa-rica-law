@@ -1,0 +1,7 @@
+Artículo 43° - Condiciones para otorgar arreglos de pago.
+a) Monto adeudado. De proceder el arreglo de pago, la sección de Servicios Ciudadanos indicará el monto, el plazo para la cancelación total de la obligación vencida y las fechas de pago mensuales.
+b) Plazo: Los arreglos de pago no podrán exceder los doce (12) meses:
+i. Dependiendo del plazo, se incluirá dentro del arreglo de pago los periodos que vencerán durante el plazo del mismo, esto para evitar que el contribuyente al final del arreglo adeude nuevos periodos al municipio. Sin embargo, si el contribuyente desea se le incluirán todos los periodos del año en curso.
+ii. En caso de que la cuenta ya haya sido trasladada para ser gestionada por los abogados internos o externos, pero aún no se ha presentado la demanda judicial, puede realizarse un arreglo de pago.
+iii. Para los casos en los que ya se ha presentado la demanda en vía judicial, sin que exista sentencia condenatoria de pago. En el evento de que ya se haya dictado sentencia condenatoria en firme de pago a favor del municipio, por parte de las autoridades judiciales, únicamente procederá la cancelación total de la deuda y no habrá opción de arreglo de pago.
+c) Expediente: La sección de Servicios Financieros conformará un expediente administrativo, en el cual se incluirán toda la documentación referente al convenio de pago (solicitud, requisitos, entre otros) y lo mantendrá en custodia de forma consecutiva.

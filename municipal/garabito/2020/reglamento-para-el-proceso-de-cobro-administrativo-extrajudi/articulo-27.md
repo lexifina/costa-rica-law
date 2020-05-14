@@ -1,0 +1,3 @@
+SECCIÓN IV - COBRO JUDICIAL
+Artículo 27° - Traslado de la cuenta a cobro judicial.
+En caso de que la gestión de cobro administrativo no haya surtido efecto, las cuentas morosas se gestionaran en sede judicial, para ello se realizará un informe sobre la cuenta que indicará el nombre correcto del contribuyente, el número de cédula, monto de la deuda, suma correspondiente a intereses, multas y gastos administrativos por la gestión de cobro realizada, los periodos adeudados, numero de arreglo de pago si lo hubiese y la fecha de la notificación realizada. Esta información será certificada por el Contador Municipal y se constituirá en título ejecutivo.

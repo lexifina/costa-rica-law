@@ -1,0 +1,2 @@
+Artículo 32° - Asignación de casos.
+La sección de Servicios Financieros realizará la distribución de los casos de cuentas atrasadas a los abogados internos o externos con el fin de que inicien el proceso judicial de cobro. La asignación se realizará a través de un oficio, en el que se detallará el nombre de los contribuyentes, el monto adeudado y se adjuntará el expediente administrativo. La sección de Servicios Financieros continuará dando seguimiento al trabajo entregado a los profesionales, hasta tanto se alcance el objetivo de recuperar el pendiente de pago.
