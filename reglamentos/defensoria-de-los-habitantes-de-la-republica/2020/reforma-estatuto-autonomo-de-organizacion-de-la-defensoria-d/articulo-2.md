@@ -1,0 +1,1 @@
+2º—Deróguese, sin modificar la numeración del cuerpo normativo, el artículo 30, Capítulo IX de la Contraloría de Servicio, del Estatuto Autónomo de Organización de la Defensoría de los Habitantes de la República, Acuerdo N° 528-DH.
