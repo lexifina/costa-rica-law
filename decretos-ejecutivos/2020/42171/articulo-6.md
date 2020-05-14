@@ -1,0 +1,1 @@
+Artículo 6. Proyectos viales que no se encuentren en operación. No se otorgarán permisos de accesos vehiculares a predios adyacentes a proyectos de infraestructura vial de la Red Vial Nacional, que no se encuentren en operación.

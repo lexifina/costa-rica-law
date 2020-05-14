@@ -1,0 +1,1 @@
+Artículo 8. Prohibición de construcción de accesos sin permiso dentro del derecho de vía de las Rutas Nacionales. El MOPT no permitirá ningún tipo de construcción de accesos vehiculares que se encuentren dentro del derecho de vía de las Rutas Nacionales, que no cuenten con el permiso correspondiente.

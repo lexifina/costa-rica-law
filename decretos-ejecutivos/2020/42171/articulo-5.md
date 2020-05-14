@@ -1,0 +1,1 @@
+Artículo 5. Casos adicionales que requieren permisos de acceso vehicular. Los predios frente a ruta nacional, sin ningún tipo de construcción, donde se realiza algún tipo de actividad que requiera la entrada y salida de vehículos de manera frecuente, requerirán tramitar el permiso de acceso vehicular.
