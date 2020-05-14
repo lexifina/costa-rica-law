@@ -1,0 +1,1 @@
+Artículo 11.—Se aprueba el presente reglamento según acuerdo de Junta Directiva JD-314 correspondiente al Capítulo IV), artículo 7) de la Sesión Extraordinaria 25-2020 celebrada el 27 de abril de 2020.
