@@ -1,0 +1,1 @@
+Artículo 7º—Informe del perito y evacuación de prueba. Una vez presentado el Informe Final, referido al peritaje, así como evacuadas las pruebas de las partes se resolverá en cuanto a la imposición o no de dicha servidumbre. En caso de ser impuesta la Servidumbre se indicará y ordenará la indemnización a la que tendría derecho el (os) dueño(s) del fundo(o) sirviente.

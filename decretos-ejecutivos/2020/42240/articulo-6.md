@@ -1,0 +1,1 @@
+Artículo 6º—Realización del Avalúo. Serán tres peritos quienes fijarán el monto de la indemnización a que tuviere derecho el perjudicado, cada parte, si a bien lo tienen podrán nombrar a un perito, y el Estado nombrará a otro, a menos que las partes convinieran en el nombramiento de dos o un perito únicamente.

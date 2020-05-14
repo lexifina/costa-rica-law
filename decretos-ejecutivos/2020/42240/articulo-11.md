@@ -1,0 +1,1 @@
+Artículo 11.—Ejecución. Satisfecho el monto de la indemnización, el Ministerio de Gobernación y Policía ejecutará lo resuelto. Contra dicho acto donde se describirá la servidumbre y el plazo de la misma, no cabe recurso administrativo alguno de conformidad con lo indicado en el artículo 103 de la Ley.

@@ -1,0 +1,1 @@
+Artículo 10.—Si no aportan la información sobre la cuenta bancaria. En caso de que transcurridos los 3 días, la parte no aporte la información solicitada, el beneficiario de la servidumbre de acueducto deberá de utilizar los medios judiciales a efecto de cumplir con el pago de indemnización señalado, a través de la consignación de pago.

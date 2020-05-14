@@ -1,0 +1,1 @@
+Artículo 9º—Depósito de la Indemnización. A efecto de realizar la indemnización indicada en el artículo 7, se le solicitará al(os) dueño(s) del fundo(s) sirviente(s) para que dentro de 3 días aporte(n) los datos de su(s) cuenta(s) bancaria(s) a efecto de que la parte beneficiaria de la servidumbre de acueducto deposite el monto señalado en el avalúo como indemnización.

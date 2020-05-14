@@ -1,0 +1,1 @@
+Artículo 12.—Valer derechos ante terceros. El Ministerio de Gobernación y Policía entregará una fotocopia certificada de la resolución antes indicada en el artículo 11 de este reglamento, al o los dueños del fundo beneficiario a efectos de hacer valer su derecho ante terceros.
