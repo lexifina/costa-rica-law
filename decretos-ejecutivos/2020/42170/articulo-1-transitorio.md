@@ -1,0 +1,2 @@
+Transitorio único.—Los accesos autorizados con fundamento en el Decreto Ejecutivo Nº 35586-MOPT, antes de la publicación del presente Decreto, se construirán y fiscalizarán conforme las disposiciones establecidas en dicho cuerpo normativo.
+En el caso de los accesos autorizados por la Dirección de Ingeniería de Tránsito, no contemplados en el Decreto Ejecutivo Nº 35586-MOPT, se construirán de conformidad con los diseños autorizados por esa dependencia, quien tendrá a su cargo la fiscalización de las obras.

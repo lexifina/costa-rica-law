@@ -1,0 +1,1 @@
+Artículo 13.—Recursos humanos y materiales. La autoridad competente del MOPT deberá dotar del recurso humano y material necesario para un adecuado funcionamiento de las dependencias a cargo de los procesos regulados en este reglamento.

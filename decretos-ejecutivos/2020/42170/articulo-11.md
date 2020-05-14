@@ -1,0 +1,1 @@
+Artículo 11.—Inoperancia del silencio positivo. En los trámites para la obtención del permiso de acceso vehicular y funcionamiento a rutas nacionales no opera el silencio positivo, en virtud de estar vinculado con la tutela de bienes de dominio público.
