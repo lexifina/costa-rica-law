@@ -1,0 +1,1 @@
+Artículo 12º – En los casos de emergencia y desastres, los Policías Municipales de Goicoechea deberán presentarse en el menor tiempo posible a su respectiva base y prestar sus funciones, aunque estuvieran libres de servicio.

@@ -1,0 +1,1 @@
+Artículo 13º – Se entenderá que todos los miembros de la Policía Municipal y Seguridad Vial de Goicoechea que circulen por la vía pública vestidos de uniforme están en funciones de servicio y estarán, por tanto, obligados a intervenir en todos aquellos sucesos que reclamen su presencia, cumpliendo con los deberes que le impone el presente reglamento.

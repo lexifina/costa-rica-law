@@ -1,0 +1,1 @@
+Artículo 14º – El Policía Municipal y Seguridad Vial de Goicoechea deberá, en todo momento, presentarse en perfecto estado y aseo personal, manteniendo en buen estado de conservación, tanto el vestuario como los equipos que le fueran entregados o encomendados para su uso y/o custodia; procurando siempre una imagen decorosa.

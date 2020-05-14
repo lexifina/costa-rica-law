@@ -1,0 +1,1 @@
+Artículo 15º – Procurará evitar la comisión de delitos, faltas e infracciones y denunciará cuántas vea cometer. Informará de cuántas deficiencias observe en el funcionamiento o conservación de los bienes y servicios municipales.
