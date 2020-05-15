@@ -9,5 +9,5 @@ g) La excepción invocada según el artículo 4° del presente Decreto Ejecutivo
 h) El número de placa del vehículo en el cual requiere movilizarse la persona trabajadora.
 i) Firma de la persona encargada de emitir o de dar validez a la constancia laboral.
 j) En caso de que la persona trabajadora requiera trasladarse con el apoyo de otra persona, la constancia laboral deberá consignar los datos de esa segunda persona, sean nombre y documento de identidad.
-Para los casos de personas trabajadoras independientes, deberán portar y presentar un documento de respaldo sobre sus labores –los datos posibles enumerados en el párrafo anterior- o actividad ejercida que justifique su movilización en franja horaria que va de las 19:00 horas a las 04:59 horas, según las excepciones establecidas en el artículo 4°.
-(Así reformado por el artículo 4° del decreto ejecutivo N° 42294 del 11 de abril del 2020)
+Para los casos de personas trabajadoras independientes, deberán portar y presentar un documento de respaldo sobre sus labores –los datos posibles enumerados en el párrafo anterior- o actividad ejercida que justifique su movilización en alguna de las franjas horarias del artículo 3° de este Decreto Ejecutivo, según las excepciones establecidas en el artículo 4°.
+(Así reformado el párrafo anterior por el artículo 4° del decreto ejecutivo N° 42349 del 15 de mayo del 2020)
