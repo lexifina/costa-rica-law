@@ -14,3 +14,4 @@ Establece Zonas Aduaneras Primarias y Secundarias
 | --- | --- | --- |
 | 1 | 1979-09-26 | la propia norma |
 | 2 | 1979-09-26 | SINALEVI (sin norma nombrada) |
+| 3 | 2020-05-15 | Decreto Ejecutivo 42351 (2020-05-15) |

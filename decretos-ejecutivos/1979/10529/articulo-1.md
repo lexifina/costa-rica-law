@@ -33,12 +33,22 @@ Los límites de la zona secundaria son: Este: ríos Tusubres, Tulín y Galán, c
 Noroeste: quebrada Las Vueltas, ríos Tenorio y Bebedero hasta el río Tempisque; aguas arriba por éste hasta la confluencia del río Charco; después río Charco, Talolingita, cerros San Vicente, quebrada Chapernal, río Tigre, quebrada Danta, río Montaña y Punta División.
 Suroeste y Sur: Océano Pacífico.
 III.- ADUANA DE PEÑAS BLANCAS
-Zona primaria: El edificio donde se encuentran las oficinas administrativas, dormitorios del personal, las bodegas y patios, cuyos límites son: por el Norte: la línea limítrofe con la República de
-Nicaragua; Sur: el corral del Ministerio de Agricultura y Ganadería; Este: línea de construcción de las Agencias de Aduana; Oeste, andén y patio de descarga de la Aduana.
-Todo esto comprende un área aproximada de 500 metros de Norte a Sur y de 150 metros de Este a Oeste.
-Zona secundaria: Comprende, de la provincia de Guanacaste, los cantones de Liberia, Santa Cruz, Bagaces, Carrillo, La Cruz y sus correspondientes distritos, excepto Nicoya, Cañas, Abangares, Tilarán, Nandayure y Hojancha.
+Zona Primaria: El área definida dentro de la poligonal A-B-C-D-E-F-G-H-I-J cuyas coordenadas en sistema CRTM-05 son las siguientes:
+| X | Y |
+A | 323875 | 1239815 |
+B | 323945 | 1239885 |
+C | 324000 | 1239965 |
+D | 324060 | 1240120 |
+E | 324085 | 1240190 |
+F | 324105 | 1240215 |
+G | 324100 | 1240270 |
+H | 324030 | 1240375 |
+I | 323923,8 | 1240663,8 | MOJON EXISTENTE
+J | 323645 | 1240150 |
+La zona primaria descrita comprende un área aproximada 20 hectáreas, y está delimitada al norte y oeste por la línea fronteriza, y al sur y al este por la ruta nacional 1, inclusive. Zona secundaria: Comprende, de la provincia de Guanacaste, los cantones de Liberia, Santa Cruz, Bagaces, Carrillo, La Cruz y sus correspondientes distritos, excepto Nicoya, Cañas, Abangares, Tilarán, Nandayure y Hojancha.
 Límites de la zona secundaria: Oeste: Océano Pacífico; Norte: Frontera Internacional con la República de Nicaragua; Sureste: río Haciendas (parte norte) y límite con Puntarenas (parte sur); Noreste: Cordillera de Guanacaste hasta las nacientes de la quebrada Las Vueltas.
 Vía habilitada: El único camino habilitado para el transporte de mercancías a y desde el extranjero en la frontera norte, es el camino Internacional que pasa frente a la Aduana de Peñas Blancas.
+(Así reformado el punto III) anterior por el artículo 1° del decreto ejecutivo N° 42351 del 15 de mayo del 2020)
 IV.- ADUANA DE LOS CHILES
 Zona primaria: Abarca un área de construcción de 300 a 420 metros cuadrados aproximadamente, ubicada entre la población de Los Chiles e Hito 12.
 Zona secundaria: De la provincia de Alajuela, los cantones de Los Chiles, Upala, Guatuso y sus respectivos distritos.
@@ -63,11 +73,12 @@ Vía habilitada: El puente que existe entre las riberas de Panamá y Costa Rica,
 VIII.- ADUANA DE CANOAS
 Zona primaria: El recinto que corresponde al edificio de la Aduana y sus almacenes; los dormitorios del personal; el gran patio interior de la Aduana; todo el recinto ocupado como antejardín, sala de revisión y vía pública hasta la caseta de la aduana situada sobre la Carretera Interamericana por el norte.
 Por el Sur, el territorio comprendido hasta la frontera con Panamá; por el Este: el antiguo colegio de Canoas; Oeste: la carretera interamericana frente a la aduana y el campo de aterrizaje incluyendo sus instalaciones. También se incluye dentro de la zona primaria de esta aduana: Puesto González, comprendiendo la oficina de la Aduana, la casa del encargado de ese puesto, los patios del ferrocarril; luego, desde la línea fronteriza hasta la última bodega ubicada aproximadamente a 1000 metros de ella.
+La zona primaria abarca además el terreno de aviación civil que otrora fuera utilizado para el Aeropuerto de Corredores, conocido como campo ferial.
 Zona secundaria: Provincia de Puntarenas, los cantones de Coto Brus, Corredores y sus respectivos distritos.
 Límites: Norte, Sur y Este: límite internacional con la República de Panamá; Oeste: ríos Turubo, Canasta, Cotón, Quebrada Garrote, río Limón, aguas arriba hasta la confluencia de la quebrada Huacal, quebrada Pita, Fila Cruces, cerro y Fila Zapote, quebrada Zumbona, río Caracol, río Coto Colorado (entre las confluencias del río Colorado y del río Conte), ríos Conte e Incendio, quebrada La Palma, Fila Incendio, río La Vaca (desde la confluencia de la quebrada Pavas) aguas arriba y alcanzar la frontera de Panamá.
-Como perímetro de Vigilancia Especial Fronterizo se estabalece la zona comprendida entre los caminos paralelos a la línea fronteriza hasta un kilómetro al noreste. La longitud de esta zona será de océano a océano; exceptuándose las zonas primarias que incluya.
-Vía habilitada: La única vía habilitada en el sector oeste de la frontera sur para el movimiento de mercaderías provenientes del extranjero o que se exporten, será el camino internacional que pasa
-frente a la Aduana de Canoas.
+Como perímetro de Vigilancia Especial Fronterizo se establece la zona comprendida entre los caminos paralelos a la línea fronteriza hasta un kilómetro al noreste. La longitud de esta zona será de océano a océano; exceptuándose las zonas primarias que incluya.
+Vía habilitada: La única vía habilitada en el sector oeste de la frontera sur para el movimiento de mercaderías provenientes del extranjero o que se exporten, será el camino internacional que pasa frente a la Aduana de Canoas.
+(Así reformado el punto VIII) anterior por el artículo 1° del decreto ejecutivo N° 42351 del 15 de mayo del 2020)
 IX.- ADUANA DE GOLFITO
 Zona primaria: El edificio donde se asientan las oficinas de la Aduana, incluyendo los dormitorios de los guardas y las habitaciones del Administrador, y de cualquier funcionario allí ubicado. Por el noroeste hasta los talleres de la Compañía Bananera; Noreste: hasta el patio del ferrocarril; Sureste: hasta el mar y el muelle; Suroeste: hasta las instalaciones de la planta eléctrica y los talleres de la Compañía Bananera; el campo de aterrizaje y sus instalaciones en donde se ubican las oficinas aduaneras y oficinas de compañías aéreas.
 Zona secundaria: Provincia de San José, cantón de Pérez Zeledón y sus distritos; provincia de Puntarenas, los cantones de Buenos Aires, Osa, Golfito y sus respectivos distritos.
