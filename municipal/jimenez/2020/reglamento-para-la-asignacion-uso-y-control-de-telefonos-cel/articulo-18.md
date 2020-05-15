@@ -1,0 +1,2 @@
+Artículo 18.—De la devolución del equipo. Cuando el funcionario(a) proceda a realizar la devolución del equipo por cualquier motivo, deberá hacerlo incluyendo todos los accesorios en perfecto estado de conservación y utilidad, ante la Proveeduría Municipal, para que haga la actualización en los registros respectivos.
+Queda a salvo el desgaste causado por el uso normal y moderado del aparato o sus accesorios.

@@ -1,0 +1,1 @@
+Artículo 5º—Finalidad. Se entenderá que el servicio de telefonía celular, así como el respectivo teléfono celular son un instrumento de trabajo para facilitar el mejor desempeño de las labores de los funcionarios a quienes se les asigna, no pudiendo ser utilizado para otros fines distintos a los aquí establecidos, so pena de sanción por el incumplimiento de lo aquí dispuesto.
