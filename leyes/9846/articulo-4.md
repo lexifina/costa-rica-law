@@ -1,0 +1,1 @@
+ARTÍCULO 4- Incorporación de recursos en el presupuesto de la República El Poder Ejecutivo deberá incorporar en el presupuesto de la República, mediante modificaciones y presupuestos extraordinarios sometidos a la valoración de laAsamblea Legislativa, todos los recursos de este contrato de préstamo de apoyo presupuestario autorizado mediante esta ley.
