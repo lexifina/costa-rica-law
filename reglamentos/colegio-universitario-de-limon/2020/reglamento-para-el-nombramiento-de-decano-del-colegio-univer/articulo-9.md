@@ -1,0 +1,2 @@
+Artículo 9º—Cumplido el plazo conferido para la recepción de ofertas, la Unidad de Recursos Humanos dispondrá de diez días (10) hábiles para el análisis de los atestados. Y determinar si cumplen o no con los requisitos del concurso.
+La Unidad de Recursos Humanos dispondrá de veinte (20) días hábiles para coordinar la aplicación de las entrevistas, así como la realización de la convocatoria respectiva de los oferentes seleccionados.

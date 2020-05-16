@@ -1,0 +1,1 @@
+Artículo 10.—La entrevista conductual para la selección y nombramiento del Decano serán realizadas por el Consejo Directivo quien a facultad de ésta, podrá hacerse acompañar de algún especialista que estime necesario, llevándose a cabo en las instalaciones del CUNLIMON.

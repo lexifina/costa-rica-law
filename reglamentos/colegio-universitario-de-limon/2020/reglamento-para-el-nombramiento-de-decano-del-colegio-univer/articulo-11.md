@@ -1,0 +1,1 @@
+Artículo 11.—Finalizado el proceso de entrevistas, el Consejo Directivo y la Unidad de Recursos Humanos dispondrá de diez (10) días hábiles para la resolución del concurso, salvo que existan recursos o nulidades que deban ser resueltas.

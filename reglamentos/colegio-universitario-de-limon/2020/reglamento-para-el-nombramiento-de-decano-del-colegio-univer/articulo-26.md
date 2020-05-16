@@ -1,0 +1,1 @@
+Artículo 26.—Nombramiento Interino del Decano: El Consejo Directivo podrá efectuar el nombramiento en forma interina, del funcionario de cargo superior, para el cargo del Decano, sin necesidad de recurrir a concurso; mientras se realiza el concurso correspondiente.

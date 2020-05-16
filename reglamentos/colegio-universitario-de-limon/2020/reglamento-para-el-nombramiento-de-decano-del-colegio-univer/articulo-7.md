@@ -1,0 +1,3 @@
+Artículo 7 º—Entrega de información por parte de los participantes. Toda persona interesada en participar en el Concurso para el nombramiento del Decano, necesariamente deberá entregar toda la información solicitada, un original y copias que indique el concurso, la información deberá presentarse en sobre manila donde se consignará en la parte exterior, el nombre del concurso, nombre y apellidos del participante y medio para recibir notificaciones (teléfono, fax, correo electrónico).
+El CUNLIMON no se recibirá información que no cumpla con lo establecido en este artículo.
+Posterior al plazo de recepción no se aceptará ningún documento. (Así reformado por el Consejo Directivo en sesión extraordinaria Nº 344 del 09 de febrero del 2017).

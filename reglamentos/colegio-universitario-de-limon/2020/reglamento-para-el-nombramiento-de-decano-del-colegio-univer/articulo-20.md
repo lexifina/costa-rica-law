@@ -1,0 +1,1 @@
+Artículo 20.—El procedimiento del concurso. El procedimiento sobre la manera en que se efectuará el concurso, evaluará y seleccionará a los participantes será publicado oficialmente en la página web del Colegio Universitario de Limón. (Así reformado por el Consejo Directivo en sesión extraordinaria Nº 344 del 09 de febrero del 2017).

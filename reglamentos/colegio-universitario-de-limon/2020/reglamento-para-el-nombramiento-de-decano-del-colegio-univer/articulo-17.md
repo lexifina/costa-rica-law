@@ -1,0 +1,2 @@
+Artículo 17.—Notificación de la hora y fecha de la entrevista. La unidad de Recursos Humanos será la encargada de notificar la hora y fecha de la realización de la entrevista según lo establecido en el artículo anterior, a cada uno de los participantes, en el medio señalado para recibir notificaciones.
+Para ello deberá coordinar junto con el Consejo Directivo la fecha y hora de realización; debiendo existir un plazo no menor de 10 días hábiles de antelación entre la fecha de notificación y la fecha de realización de la entrevista.
