@@ -1,0 +1,1 @@
+Artículo 20.—La orden de compra será firmada, según corresponda, por el presidente y Administrador Las órdenes de compra deberán ser impresas con numeración consecutiva. La secretaria deberá llevar un control de las órdenes de compra utilizadas, con la indicación del monto, objeto, saldo y estado de la contratación.

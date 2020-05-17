@@ -1,0 +1,1 @@
+Artículo 22.—La Junta Directiva en los casos de contratación de obras o servicios y en aquellos otros que determine la Administración, deberá poner un visto bueno a las facturas que presente el proveedor para efectos de pagos parciales o finales de la contratación. El Tesorero confeccionará y entregará el cheque respectivo.

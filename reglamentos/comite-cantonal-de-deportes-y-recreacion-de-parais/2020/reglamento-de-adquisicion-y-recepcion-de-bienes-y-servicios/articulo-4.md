@@ -1,0 +1,1 @@
+Artículo 4º—La Administración del Comité, una vez seleccionado en firme el suplidor o contratista, deberá velar porque los bienes o servicios adquiridos sean entregados al Comité Cantonal en los términos fijados en la contratación, pudiendo requerir, en caso necesario, el apoyo de cualquier Departamento Municipal para tal efecto.
