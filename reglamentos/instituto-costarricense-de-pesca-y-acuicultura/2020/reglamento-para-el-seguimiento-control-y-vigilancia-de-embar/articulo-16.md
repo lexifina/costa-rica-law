@@ -1,0 +1,1 @@
+Artículo 16.—El INCOPESCA deberá tomar las previsiones presupuestarias anuales para contar con el recurso presupuestario y humano debidamente capacitado para el funcionamiento del CSC durante las 24 horas de día, de los 365 días del año. Dentro de estas previsiones deben presupuestarse para la actualización del hardware y software cada 3 años como máximo.

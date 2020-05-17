@@ -1,0 +1,1 @@
+Transitorio I. Para la flota pesquera comercial mediana escala, las presentes disposiciones entrarán en vigencia de conformidad con lo dispuesto en el Decreto Ejecutivo N° 38681-MAG- MINAE y sus reformas, para ese momento, las embarcaciones de esta flota estarán obligadas a tener en funcionamiento y enlazado con el CMS, el dispositivo de seguimiento y control satelital.
