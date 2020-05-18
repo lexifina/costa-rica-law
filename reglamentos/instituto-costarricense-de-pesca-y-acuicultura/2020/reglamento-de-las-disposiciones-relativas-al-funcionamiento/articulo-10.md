@@ -1,0 +1,1 @@
+Artículo 10.—Plazo para emisión del pronunciamiento científico-técnico. La Comisión tendrá al menos un mes natural para emitir el pronunciamiento respectivo, tiempo que comenzará a correr una vez se tengan todos los insumos necesarios solicitados por los miembros de la Comisión. Este tiempo podría extenderse dependiendo de la complejidad del tema a analizar.

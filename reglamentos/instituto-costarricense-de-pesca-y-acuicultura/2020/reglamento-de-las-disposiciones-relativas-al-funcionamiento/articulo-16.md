@@ -1,0 +1,1 @@
+Artículo 16.—Divulgación del pronunciamiento científico-técnico. El pronunciamiento no podrá ser divulgado por la Comisión a terceros, con excepción a las indicadas en al artículo anterior, hasta que el documento sea conocido y aprobado por la Presidencia Ejecutiva o la Junta Directiva según corresponda.

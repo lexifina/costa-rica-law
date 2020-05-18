@@ -1,0 +1,2 @@
+Artículo 15.—Remisión del pronunciamiento científico-técnico. Una vez firme el pronunciamiento, será remitido a la Presidencia Ejecutiva, a la Junta Directiva, y a la Auditoría Interna del Incopesca para su valoración y aprobación con copia a todos los miembros de la Comisión.
+Posterior a la remisión a las autoridades internas del Incopesca, los miembros de la Comisión podrán enviar copia del pronunciamiento a sus jefaturas y autoridades institucionales.

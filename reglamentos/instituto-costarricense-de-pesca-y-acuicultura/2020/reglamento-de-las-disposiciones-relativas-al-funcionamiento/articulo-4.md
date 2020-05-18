@@ -1,0 +1,1 @@
+Artículo 4º—Conflicto de interés. En caso de que la Comisión conozca que existe un posible conflicto de interés por parte de alguno de los miembros en relación a los temas a tratar por la Comisión, este miembro deberá abstenerse de participar en la discusión, desarrollo de las recomendaciones y resolución de dicho tema.

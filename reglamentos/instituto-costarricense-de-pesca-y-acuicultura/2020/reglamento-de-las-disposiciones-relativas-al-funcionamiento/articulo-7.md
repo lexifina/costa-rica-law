@@ -1,0 +1,1 @@
+Artículo 7º—Aprobación de acuerdos de la Comisión. La Comisión tomará sus decisiones por mayoría simple, en caso de empate, el Coordinador podrá ejercer su derecho de doble voto. La Comisión podrá sesionar válidamente cuando exista quorum, es decir la mitad más uno de sus miembros.

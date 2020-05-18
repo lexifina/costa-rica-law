@@ -1,0 +1,1 @@
+Artículo 12.—Aprobación del pronunciamiento científico-técnico. Para la aprobación del pronunciamiento científico-técnico, se requerirá de mayoría simple de votos. La aprobación de los pronunciamientos se realizará en las sesiones ordinarias o extraordinarias.

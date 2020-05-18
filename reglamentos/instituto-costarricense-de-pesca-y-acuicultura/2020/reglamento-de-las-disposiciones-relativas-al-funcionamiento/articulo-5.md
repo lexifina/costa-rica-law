@@ -1,0 +1,1 @@
+Artículo 5º—Sesiones de la Comisión. La Comisión realizará sus sesiones según sea requerido por la Junta Directiva o el Presidente Ejecutivo. El día, hora y lugar de sus sesiones serán fijados por los miembros de la Comisión.

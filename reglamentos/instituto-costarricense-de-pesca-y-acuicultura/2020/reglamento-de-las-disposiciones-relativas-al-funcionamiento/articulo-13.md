@@ -1,0 +1,1 @@
+Artículo 13.—Redacción del borrador del pronunciamiento científico-técnico. En la misma sesión de votación se escogerá a un miembro de la Comisión para que redacte un borrador del pronunciamiento, quien tendrá ocho días hábiles para prepararlo y compartirlo al resto de los miembros de la Comisión.
