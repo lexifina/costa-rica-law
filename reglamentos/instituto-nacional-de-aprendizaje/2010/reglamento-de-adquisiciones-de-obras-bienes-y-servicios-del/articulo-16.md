@@ -1,1 +1,1 @@
-Artículo 16 – Incorporación Clausulas Ambientales en los carteles de contratación. El Proceso de Adquisiciones en el momento de confeccionar un cartel deberá coordinar con la Unidad Técnica Especializada la revisión del mismo, en el caso de incorporar clausulas ambientales, deberá constatar en el expediente un análisis donde se evidencia si las mismas deben ser requisitos de admisibilidad o criterios de evaluación.
+Artículo 16.—Vigencia: La reforma de los artículos 5 y 13 rige a partir de su publicación.

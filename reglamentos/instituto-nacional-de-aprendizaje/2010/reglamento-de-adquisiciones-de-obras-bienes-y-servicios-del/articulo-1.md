@@ -1,4 +1,3 @@
-INSTITUTO NACIONAL DE APRENDIZAJE
 JUNTA DIRECTIVA
 En sesión Nº 4448 celebrada el 9 de agosto del 2010, la Junta Directiva acordó aprobar las modificaciones al Reglamento de Adquisiciones de Obras Bienes y Servicios del INA, según consta en el acta de esa sesión en el artículo VII y el acuerdo Nº 116-2010-JD-V2, para que en adelante disponga lo siguiente:
 REGLAMENTO DE ADQUISICIÓN DEL
@@ -13,7 +12,7 @@ Considerando:
 6º-Que en la sesión Nº 4448, del lunes 9 de agosto del 2010, el Lic. Arturo Gutiérrez Ballard, Asesor de la Subgerencia Administrativa del INA, presenta a Junta Directiva, la propuesta de modificación al Reglamento de Adquisiciones de Obras, Bienes y Servicios del INA, de acuerdo con el oficio SGA-207-2010 del 28 de julio del 2010, y la constancia de legalidad emitida mediante el oficio AL-973-2010.
 7º-Que los señores directores y directoras conocen y discuten la propuesta de Reglamento, y luego de realizar las observaciones y consideraciones correspondientes manifiestan su anuencia.
 8º-Que de conformidad con el artículo 7º inciso d) de la Ley Nº 6868, y al haberse sometido el presente Reglamento al conocimiento de Junta Directiva, se acuerda: Aprobar el Reglamento de Adquisición del Instituto Nacional de Aprendizaje; de conformidad con la propuesta presentada mediante el oficio JD-105-2010, lo expuesto por el Lic. Arturo Gutiérrez Ballard y las interpretaciones y observaciones realizadas por los señores directores. Para que en adelante disponga lo siguiente:
-(Nota de Sinalevi: El texto de esta norma fue reformado parcialmente y reproducido su texto en forma íntegra en sesión N° 13 del 1° de abril del 2019, y publicado en el Alcance Digital N° 89 a La Gaceta N° 76 del 25 de abril del 2019, y se transcribe a continuación:)
-CAPÍTULO I
+(Nota de Sinalevi: El texto de esta norma fue reformado parcialmente y reproducido su texto en forma íntegra en sesión N° 18-2020 del 18 de mayo del 2020, y publicado en el La Gaceta N° 140 del 13 de junio del 2020, y se transcribe a continuación:)
+CAPÍTULO PRIMERO
 Disposiciones generales
-Artículo 1º—Objeto. El presente Reglamento tiene por objeto regular el sistema de adquisición de obras, bienes, servicios de capacitación y formación profesional y cualquier otro servicio general de este Instituto. Así como las competencias de las diversas dependencias involucradas en dicho sistema.
+Artículo 1°—Objeto del Reglamento. El presente Reglamento regula el procedimiento para las donaciones del Instituto Nacional de Aprendizaje (INA) de los bienes muebles e inmuebles, cuando exista una norma legal habilitante que así lo faculte.

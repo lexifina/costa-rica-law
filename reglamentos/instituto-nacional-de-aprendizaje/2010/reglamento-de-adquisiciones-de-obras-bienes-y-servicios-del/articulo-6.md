@@ -1,1 +1,3 @@
-Artículo 6º—Actualización del sistema. La UCI es la responsable del sistema de adquisición de obras, bienes y servicios. Deberá evaluar, actualizar, automatizar, estandarizar y difundir los procedimientos necesarios para el óptimo aprovisionamiento de las obras, bienes y servicios que requieran las diversas dependencias institucionales.
+CAPÍTULO SEGUNDO
+Donaciones
+Artículo 6°—Donaciones: En las donaciones se debe de utilizar las mejores técnicas de administración, el aprovechamiento de espacio y recursos públicos, con el fin de satisfacer los intereses públicos e institucionales de conformidad con los artículos 4 de la Ley General de Administración Pública, y con los artículos 163 y 166 del Reglamento a la Ley de Contratación Administrativa y las normas habilitantes que autoricen al beneficiario o solicitante.
