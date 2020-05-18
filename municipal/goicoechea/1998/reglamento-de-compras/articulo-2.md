@@ -1,2 +1,2 @@
-Artículo 2°-Se autoriza al Alcalde Municipal para realizar compra o adquisición de bienes y/o servicios, así como para suscribir convenios en los cuales la Municipalidad de Goicoechea actúe como parte hasta por la suma de ¢10.000.000,00 (diez millones de colones).
-(Así reformado en sesión N° 31 del 3 de agosto de 2011)
+Artículo 2°-Se autoriza al Alcalde Municipal para realizar compras o adquisiciones de bienes y, o servicios, así como para suscribir convenios en los cuales la Municipalidad de Goicoechea actué como parte hasta por la suma de ¢25.000.000,00 (veinticinco millones de colones).
+(Así reformado mediante sesión ordinaria N° 20-2020 del 18 de mayo de 2020

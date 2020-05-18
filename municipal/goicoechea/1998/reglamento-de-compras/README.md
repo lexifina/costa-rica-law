@@ -15,3 +15,4 @@ Reglamento de Compras
 | --- | --- | --- |
 | 1 | 1998-08-17 | la propia norma |
 | 2 | 2011-08-03 | Reglamento municipal 31 (2011-08-03) |
+| 3 | 2020-05-18 | Reglamento municipal 20 (2020-05-18) |
