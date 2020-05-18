@@ -14,3 +14,4 @@ Reglamento para la organización y funcionamiento de la Junta Directiva Nacional
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-07-16 | la propia norma |
+| 2 | 2020-05-18 | Reglamento 5734 (2020-05-18) |
