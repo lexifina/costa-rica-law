@@ -1,0 +1,17 @@
+DIRECCIÓN GENERAL DE SERVICIO CIVIL
+AVISO
+07 de mayo de 2020.—DG-AV-006-2020
+La DGSC comunica la emisión de las siguientes resoluciones:
+I.—DG-017-2020: Modifica el Manual Descriptivo de Especialidades Docentes, específicamente la especialidad para la actualización y uniformidad en la presentación de las especialidades.
+II.—DG-018-2020: Modifica el Manual Descriptivo de Especialidades Docentes (Resolución DG-399-2010), en particular las especialidades: Turismo Rural, Turismo Costero, Turismo en Alimentos y Bebidas, Turismo en Hotelería y Eventos Especiales y Turismo Generalista, de manera que en el apartado Atinencias Académicas se incluya la carrera “Bachillerato en Gestión Empresarial del Turismo Sostenible”, impartida por la Universidad Nacional.
+III.—DG-019-2020: Modifica la Resolución DG-399-2010 del 9 de diciembre del 2010, que contiene el Manual de Especialidades Docentes, para que se incluya en el apartado de “Atinencias Académicas” la Licenciatura en Mediación Pedagógica en las especialidades y subespecialidades docentes.
+IV.—DG-037-2020: Modifica el Manual Descriptivo de Especialidades Docentes (Resolución DG-399-2010), en particular las Especialidades “Contabilidad y Finanzas, Contabilidad y Costos, Contabilidad, Contabilidad y Auditoría, Administración y Operación Aduanera, Accounting y Banca y Finanzas ”, de manera que en el apartado “Atinencias Académicas” se excluya las carreras.
+Asignar el grupo profesional de acuerdo con lo título II del Estatuto de Servicio Civil
+V.—DG-038-2020: Modifica el Manual Descriptivo de Especialidades Docentes, específicamente la especialidad Artes Industriales, para la actualización y uniformidad en la presentación de las especialidades.
+VI.—DG-039-2020: Modifica el Manual Descriptivo de Especialidades Docentes (Resolución DG-399-2010), para que se modifique en particular la especialidad Agro jardinería, para la actualización y uniformidad en la presentación de las especialidades.
+VII.—DG-047-2020: Delegar como sustituta a la funcionaria Jennifer del Carmen Hernández Chavarría, cédula de identidad número 1-1111-0362, quien ejerce el cargo de Jefe de la Unidad de Organización y Empleo, en el Área de Gestión Institucional de Recursos Humanos del Ministerio de Justicia y Paz (MJP), como responsable en esa Institución, y en tanto ocupe este cargo, de la ejecución, firma y aprobación de todos los actos y movimientos de personal, para los cuales se encuentra delegado el señor Geovanni Morales Sánchez, durante las ausencias del Delegado titular.
+VIII.—DG-048-2020: Emite los lineamientos que regulan la figura de Recalificación de Puestos.
+La DGSC comunica la emisión de los siguiente Acuerdos:
+I.—Acuerdo N°002- 2020-SC: Delegar la firma del Director General de Servicio Civil en el señor Olman Luis Corrales Jiménez, cédula de identidad número 1-0576-0346, en su condición de Director del Área de Carrera Docente, mientras esté en su cargo, firme todas las resoluciones y trámites correspondientes de la Gestión de Recursos Humanos que se genere en el Título I y Título II del Estatuto de Servicio Civil, quedando claro que en el Título I solamente le corresponde lo referente al Ministerio de Educación Pública a excepción de lo que corresponde al Área de Reclutamiento y Selección de Personal.
+II.—Acuerdo N° 003-2020-SC: Adicionar un artículo a los acuerdos, N° 005-2018-SC. San José, 27 de junio de 2018, N°-002-2019-SC. San José, 25 de febrero de 2019 y N° 001-2020-SC.- San José, 24 de febrero de 2020.
+Publíquese.
