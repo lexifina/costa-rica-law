@@ -4,4 +4,5 @@ El Colegio de Abogados de Costa Rica, comunica que mediante acuerdo de Junta Dir
 Se aprueba mantener el Premio Rodrigo Odio González, al Notario Distinguido, aprobado en la sesión 35-88, de fecha 20 de setiembre de 1988 y se deroga su reglamento. En sustitución del mismo se aprueba el Manual al premio en mención, que en lo sucesivo dirá:
 MANUAL DEL PREMIO ANUAL DE NOTARIADO
 RODRIGO ODIO GONZÁLEZ
-Artículo 1º—Créase el Premio “Rodrigo Odio González” para estimular a los Notarios costarricenses que se hayan distinguido en el ejercicio del Notariado y hayan procurado el engrandecimiento, defensa del decoro y realce del Notariado. Podrán ser sujetos del Premio únicamente los notarios incorporados al Colegio de Abogados de Costa Rica y que estén al día en el pago de cuotas.
+Artículo 1°-Créase el Premio “Rodrigo Odio González” para estimular a los notarios y notarias costarricenses que se hayan distinguido en el ejercicio del Notariado y hayan procurado el engrandecimiento, defensa del decoro y realce del Notariado. Podrán ser sujetos del Premio únicamente los notarios y notarias incorporados al Colegio de Abogados de Costa Rica y que estén al día en el pago de cuotas.
+(Así reformado en sesión N° 18 del 18 de mayo del 2020)

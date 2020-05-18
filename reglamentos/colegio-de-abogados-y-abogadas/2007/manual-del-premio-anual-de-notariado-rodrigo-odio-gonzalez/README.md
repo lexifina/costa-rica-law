@@ -15,3 +15,4 @@ Manual del Premio Anual de Notariado Rodrigo Odio González
 | --- | --- | --- |
 | 1 | 2008-01-08 | la propia norma |
 | 2 | 2008-08-19 | Reglamento 30 (2008-08-19) |
+| 3 | 2020-05-18 | Reglamento 18 (2020-05-18) |
