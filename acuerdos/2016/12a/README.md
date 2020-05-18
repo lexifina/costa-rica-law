@@ -14,3 +14,4 @@ Reforma Prcedimiento ECA-MC-C09 Criterios para la acreditación transfrontera de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-01-04 | la propia norma |
+| 2 | 2020-05-18 | Acuerdo 6 (2020-05-18) |
