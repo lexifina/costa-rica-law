@@ -54,7 +54,15 @@ Artículo 53. Las comisiones permanentes analizarán, dictaminarán y recomendar
 7.7 El desarrollo armónico de la infancia y la juventud.
 7.8 El desarrollo armónico de la familia coronadeña.
 7.9 Los otros asuntos afines, o que le asigne el Concejo para su conocimiento.
-8. Comisión de Accesibilidad y Condición de la Mujer (Comad):
+8. Comisión de Accesibilidad (Comad):
 8.1 La Comad será la encargada de velar porque en el cantón se cumpla la Ley de Igualdad de oportunidades para las personas con discapacidad, nro. 7600, del 2 de mayo de 1996 y la otra normativa atinente al ramo.
-8.2 El cumplimiento del reglamento de funcionamiento de la Comisión.
-8.3 La promoción y desarrollo para la gestión de políticas públicas que busquen la equidad entre los géneros.
+8.2 El cumplimiento del reglamento de funcionamiento
+de la Comisión.
+(Así reformado el punto 8) anterior mediante sesión ordinaria N° 003-2020 del 18 de mayo de 2020)
+9. Condición de la Mujer:
+9.1 La promoción y desarrollo para la gestión de políticas públicas que busquen la equidad entre los géneros.
+9.2 Coordinar con las entidades nacionales encargadas de las políticas públicas en materia de equidad de géneros, en relación con la gestión local, gestión comunal y participación ciudadana. Así como la coordinación con los órganos locales encargados de la atención de la mujer en la Corporación Municipal.
+(Así adicionado el punto 9) anterior mediante sesión ordinaria N° 003-2020 del 18 de mayo de 2020)
+10. Comisión de Seguridad:
+10.1 Será la encargada de velar porque en el cantón se cumpla la Ley, nro. 9542, y la otra normativa atinente al ramo.
+(Así adicionado el punto 10) anterior mediante sesión ordinaria N° 003-2020 del 18 de mayo de 2020)

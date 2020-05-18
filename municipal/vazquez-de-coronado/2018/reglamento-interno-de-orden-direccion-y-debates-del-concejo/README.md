@@ -14,3 +14,4 @@ Reglamento interno de orden, dirección y debates del concejo municipal del cant
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-11-16 | la propia norma |
+| 2 | 2020-05-18 | Reglamento municipal 3 (2020-05-18) |
