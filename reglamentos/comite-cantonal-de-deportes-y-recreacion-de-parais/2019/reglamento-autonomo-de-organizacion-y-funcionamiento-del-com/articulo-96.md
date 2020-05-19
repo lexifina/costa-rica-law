@@ -1,0 +1,13 @@
+Son causales de destitución de miembros de comités comunales por:
+Artículo 96.—
+a) Inasistencia a tres sesiones consecutivas sin justificación. (ordinarias y extraordinarias)
+b) Inasistencia a seis sesiones alternas sin justificación (ordinarias y extraordinarias)
+c) Por violación evidente a las leyes y reglamentos que rigen la materia.
+d) Por inhabilitación judicial.
+e) Por renuncia voluntaria hecha por escrito.
+f) Por el incumplimiento comprobado de los deberes y obligaciones de las funciones que la ley y este reglamento imponen a los integrantes de la Junta Directiva. Esta causal puede ser invocada por la Junta Directiva contra uno o varios de sus integrantes, o por uno de sus integrantes, por un habitante del cantón, ante el Comité Cantonal de Deportes o Concejo Municipal, con la respectiva prueba, el que previa audiencia al o los afectados, resolverá lo que corresponda.
+g) El uso inadecuado de bienes, equipo y mobiliario asignado a su cargo, así como la exoneración de cánones a equipos o personas sin comunicación previa por escrito a la Junta Directiva o la Administración, debidamente fundamentada.
+h) Realizar nombramientos inconsultos con el Comité Cantonal de Deportes y Recreación o de la Municipalidad de Paraíso, violentando el Manual Descriptivo de Clasificación y Valoración de Puestos.
+i) Cuando se produzca alguna de las causales del artículo anterior la Junta Directiva del Comité Comunal comunicará por escrito al superior jerárquico quien deberá conocer y pronunciarse en un plazo de ocho días naturales, sobre la(s) renuncia(s) o pérdida de credencial, de los miembros salientes, cerciorándose que dicha renuncia siguió el debido proceso, para que elijan el o los nuevo(s) integrante(s) que finalice(n) el periodo vigente tipificado en el presente reglamento.
+j) El sustituto ocupara el cargo dentro de la Junta Directiva del miembro saliente. Si ha a mejor conveniencia de funcionamiento interno, quedan facultados los directivos dictaminar si procede una reestructuración de nuevos cargos en el directorio.
+k) Transitorio: Para efectos de brindar un trámite expedito y ágil a renuncias o destituciones de miembros de Juntas Directivas de Comités Comunales. Queda facultado el Comité Cantonal de Deportes y Recreación en un plazo de quince días naturales informar a las diferentes organizaciones deportivas, recreativas y sectores existentes en la comunidad sobre la convocatoria y apertura para la recepción de propuestas con el fin de nombrar el o los sustitutos(s) del Comité Comunal. Esta dispensa de trámite aplica únicamente para la reposición hasta un máximo de dos miembros, en caso de tres o más, debe convocarse a una asamblea general extraordinaria de vecinos.

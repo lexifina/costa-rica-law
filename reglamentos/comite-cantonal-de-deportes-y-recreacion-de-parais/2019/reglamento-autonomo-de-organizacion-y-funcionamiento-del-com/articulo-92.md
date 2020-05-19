@@ -1,0 +1,2 @@
+Artículo 92.—El quórum para sesionar está integrado por cuatro miembros. Los acuerdos se tomarán por simple mayoría de votos presentes salvo cuando se estipule en este reglamento un número mayor de votos, en caso de empate en una votación, el presidente tendrá voto calificado (doble). Las observaciones u objeciones a la propuesta de reforma reglamentaria las recibimos únicamente por escrito.
+(Corregido mediante Fe de Erratas y publicada en La Gaceta N° 132 del 5 de junio del 2020)

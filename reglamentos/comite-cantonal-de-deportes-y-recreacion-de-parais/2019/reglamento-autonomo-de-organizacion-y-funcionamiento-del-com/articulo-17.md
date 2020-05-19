@@ -1,0 +1,1 @@
+Artículo 17.—En la Segunda quincena del mes de Diciembre después de ejecutado el Nuevo Nombramiento del Comité Cantonal de Deportes y Recreación, el Concejo Municipal de Paraíso hará una sesión extraordinaria donde recibirá los informes del Comité saliente y juramentará a los miembros del Comité entrante, para iniciar su período el primero de enero del año siguiente.

@@ -1,0 +1,2 @@
+Artículo 34.—La Junta Directiva podrá reunirse en sesión extraordinaria cuando sean convocados por el presidente o conjuntamente por cuatro de sus miembros, la convocatoria debe hacerse por escrito con cuarenta y ocho horas antes, con señalamiento del objeto de la sesión. En las sesiones extraordinarias únicamente se conocerá lo incluido en la convocatoria.
+(Corregido mediante Fe de Erratas y publicada en La Gaceta N° 132 del 5 de junio del 2020, página N° 2)

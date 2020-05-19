@@ -1,0 +1,1 @@
+Artículo 6º—Elaborar el plan de deporte recreativo cantonal que favorezcan el desarrollo de las capacidades personales de quienes participan en el programa, a través de la formación de escuelas especializadas.
