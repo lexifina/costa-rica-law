@@ -1,0 +1,2 @@
+Artículo 7º—Requisito académico, conocimientos y experiencia como condición de admisibilidad.
+El requisito académico y de conocimiento, comprende los estudios formales realizados en instituciones de enseñanza primaria, secundaria, técnica, parauniversitaria y universitaria. La experiencia en labores afines al puesto serán requisitos indispensables, cuando así lo establezca el Manual de Clases y Cargos para un puesto en específico. Su cumplimiento es una condición de admisibilidad para participar en el concurso.
