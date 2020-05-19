@@ -1,0 +1,8 @@
+DISPOSICIONES TRANSITORIAS
+TRANSITORIO ÚNICO- Con la finalidad de que el Instituto Nacional de Seguros (INS) pueda recapitalizar los setenta y cinco mil millones de colones (¢75.000.000.000,00) objeto del presente aporte, para no debilitarlo financieramente frente a un mercado en competencia, el INS deberá realizar las siguientes acciones:
+a) Durante los períodos fiscales de los años 2020, 2021 y 2022, el INS queda autorizado a capitalizar los dineros correspondientes a la reserva de reparto dispuesta por el artículo 205 de la Ley 2, Código de Trabajo, de 27 de agosto de 1943, en caso de que existiera utilidad en el Régimen de Riesgos del Trabajo.
+b) Durante los períodos fiscales de los años 2020, 2021 y 2022, el INS no deberá realizar la contribución del diez por ciento (10%) de sus utilidades, creada con base en el artículo 80 de la Ley 7983, Ley de Protección al Trabajador, de 16 de febrero de 2000, monto que deberá calcular y capitalizar directamente.
+c) Si antes del 2022 el INS logra recapitalizar los setenta y cinco mil millones de colones (¢75.000.000.000,00), por medio de los fondos provenientes de los incisos anteriores, el dinero restante se aplicará según las normas legales de origen.
+d) Si al cabo del período 2022 no se hubieran logrado recapitalizar los setenta y cinco mil millones de colones (¢75.000.000.000,00), los incisos a) y b) anteriores se mantendrán vigentes hasta que se alcance la recapitalización. La Superintendencia General de_ Seguros (Sugese) certificará, con base en sus registros, la recapitalización indicada y lo publicará en La Gaceta.
+Rige a partir de su publicación.
+Dado en la Presidencia de la República, San José, a los dieciocho días del mes de mayo del año dos mil veinte.
