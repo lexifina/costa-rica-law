@@ -1,0 +1,1 @@
+Artículo 27.—Actividades municipales. Cuando la Administración o el Concejo Municipal requieran alguno de los inmuebles culturales para actividades municipales deberán coordinar con la Junta Administradora en coordinación con el Departamento de Gestión Cultural, según lo dispuesto en el artículo sétimo del presente Reglamento.

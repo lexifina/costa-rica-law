@@ -1,0 +1,1 @@
+Artículo 4º—Ámbito de aplicación. Las disposiciones contenidas en el presente reglamento son de cumplimiento obligatorio para todas las personas que laboren en estas o utilicen las instalaciones municipales culturales.

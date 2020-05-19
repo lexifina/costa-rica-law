@@ -1,0 +1,1 @@
+Artículo 49.—Exoneración del pago del 5% de Espectáculos Públicos. Las actividades culturales programadas por la Municipalidad de Turrialba dentro de su programa de extensión cultural no estarán afectadas por el 5% que establece la Ley de Espectáculos Públicos, y los señalados en el artículo 100 de la ley 7800.

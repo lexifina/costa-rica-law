@@ -1,0 +1,2 @@
+Artículo 2º—Instalaciones Culturales. Las instalaciones culturales municipales son: Casa de la Cultura Jorge Debravo, el Teatro Municipal Omar Salazar Obando, así como cualquier otro inmueble que la Municipalidad defina a futuro como instalación cultural y aquellas que utilice en forma temporal para actividades culturales.
+Se pueden declarar otras instalaciones Patrimonio Histórico Arquitectónico del país, que se rigen por la Ley N° 7555 de Conservación y Restauración de Patrimonio Histórico Arquitectónico.
