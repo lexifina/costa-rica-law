@@ -1,0 +1,1 @@
+Artículo 23.—Los funcionarios administrativos del Comité Cantonal de Deportes y Recreación de San José, no podrán pertenecer a la vez al Concejo Municipal del Cantón Central de San José, así como aquellos que se vean impedidos por ley.

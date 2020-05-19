@@ -1,0 +1,1 @@
+Artículo 29.—Corresponde al Presidente del Concejo conceder la palabra y retirársela a quien haga uso de ella sin permiso o se exceda en sus expresiones, bajo ningún concepto cuenta con la potestad de ordenar el retiro de ningún miembro del Concejo Municipal del Cantón San José de la Sala de Sesiones, pues ello conllevaría la pérdida de la dieta respectiva.

@@ -1,0 +1,1 @@
+Artículo 30.—Las dietas se pagarán por parte de la Administración cada ocho días, luego de una semana de sesiones. La planilla será enviada por la dependencia correspondiente, una vez cada ocho días, es decir, el día hábil siguiente a la última sesión efectuada en la semana.

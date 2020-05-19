@@ -1,0 +1,1 @@
+Artículo 8º—Los regidores propietarios perderán la dieta cuando no se presenten dentro de los quince minutos inmediatos posteriores a la hora fijada para comenzar la sesión, o cuando se retiren antes de finalizar la sesión.

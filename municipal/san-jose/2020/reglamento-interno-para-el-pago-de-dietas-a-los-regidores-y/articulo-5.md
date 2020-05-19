@@ -1,0 +1,2 @@
+Artículo 5º—Este reglamento se encuentra regido por los principios de: probidad, objetividad, igualdad, equidad, legalidad, motivación, celeridad y economía procesal, razonabilidad, proporcionalidad, discrecionalidad, conveniencia, oportunidad y buena fe; sin perjuicio de cualquier otro aplicable.
+Los principios indicados inspiran este reglamento y deben orientar su aplicación e interpretación, así como la gestión de la Municipalidad.

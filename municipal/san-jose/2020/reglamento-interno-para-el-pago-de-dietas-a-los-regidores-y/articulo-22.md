@@ -1,0 +1,2 @@
+Artículo 22.—Los funcionarios públicos asalariados del Estado, sus instituciones y empresas públicas no tienen impedimento para percibir dieta en la Corporación Municipal, sea en su carácter de miembro del Concejo Municipal del Cantón Central de San José o como miembros de los Concejos Municipales de Distrito.
+Estas dietas solo se podrán devengar cuando las sesiones se realicen fuera de su horario de trabajo, sea, sin que exista superposición horaria, requisito que no puede ser obviado aun encontrándose en vacaciones, días feriados, permisos o licencias.

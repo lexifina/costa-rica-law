@@ -1,0 +1,1 @@
+Artículo 16.—El regidor sustituido no podrá permanecer en el recinto, y sobre esta designación no cabra apelación o moción alguna, dado que es facultad del Presidente del Concejo realizar la sustitución correspondiente en su función de dirección y coordinación del debate.

@@ -1,0 +1,1 @@
+Artículo 3º—Con el fin de evitar el exceso de acumulación gráfica, al utilizar la palabra funcionario, regidor, síndico o similar terminología, se estará haciendo referencia tanto a hombres como mujeres, sin discriminación de género.

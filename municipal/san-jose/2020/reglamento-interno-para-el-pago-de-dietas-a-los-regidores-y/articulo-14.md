@@ -1,0 +1,1 @@
+Artículo 14.—El dispositivo electrónico de la Sala de Sesiones será el que marque la hora oficial de inicio, o en su defecto, el reloj marcador de la Secretaría Municipal colocado en la mesa principal.

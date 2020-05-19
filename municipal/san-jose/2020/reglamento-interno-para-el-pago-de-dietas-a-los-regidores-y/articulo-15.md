@@ -1,0 +1,1 @@
+Artículo 15.—Si transcurridos los quince minutos de gracia después de iniciada la sesión no se cuenta con quórum, el Presidente Municipal ordenará cerrar las puertas de la sala de sesiones e instruirá a la Secretaria Municipal para que levante la nómina de los presentes, a efectos de acreditar el pago de las dietas respectivas.

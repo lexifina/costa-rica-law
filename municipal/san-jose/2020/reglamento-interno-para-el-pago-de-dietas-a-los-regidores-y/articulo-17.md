@@ -1,0 +1,1 @@
+Artículo 17.—El regidor que sustituya a un propietario, tendrá derecho a permanecer como miembro del Concejo toda la sesión, si la sustitución hubiere comenzado después de los quince minutos referidos en el artículo anterior o si aunque hubiere comenzado con anterioridad, el propietario no se hubiere presentado dentro de esos quince minutos.

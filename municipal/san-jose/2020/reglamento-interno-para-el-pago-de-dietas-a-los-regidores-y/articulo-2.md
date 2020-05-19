@@ -1,0 +1,2 @@
+Artículo 2º—Este reglamento será de aplicación general a todos los miembros del Concejo Municipal del Cantón Central de San José que reciban pago por dietas, así como los regidores suplentes, síndicos propietarios y síndicos suplentes que también las reciben.
+Las disposiciones aquí contenidas deberán ser acatadas por todas las instancias encargadas de fiscalizar, procesar y realizar los pagos correspondientes.

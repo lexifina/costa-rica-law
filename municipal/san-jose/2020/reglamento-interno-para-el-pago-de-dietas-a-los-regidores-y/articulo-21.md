@@ -1,0 +1,2 @@
+Artículo 21.—Cuando el regidor propietario se haya excusado de conocer algún asunto en que se considere interesado directo, o bien, que haya sido recusado, la ausencia lo será por el período de la discusión y votación de tal asunto.
+En estos casos el regidor no pierde la dieta y, además, una vez cesada la circunstancia, podrá ingresar nuevamente al recinto. Para todos los casos, deberán constatarse todos los movimientos suscitados en el acta respectiva, a efectos de su posterior verificación.

@@ -1,0 +1,4 @@
+CAPÍTULO III
+Registro de asistencia para el pago de dietas
+Artículo 13.—Dentro de la Sala de Sesiones la Administración podrá implementar un mecanismo de control que permita determinar la hora de entrada y salida de cada miembro del Concejo Municipal para fundamentar el pago de dietas, apoyada en el uso de la tecnología para precisar el registro de asistencia, reforzado con un control cruzado manual que se llevará a cabo por parte de un funcionario del Departamento de Secretaría, mediante el cual se cotejará el registro de asistencia en caso de existir dudas u omisiones respecto el sistema digital.
+Dicho registro será enviado por la Sección de Actas y Acuerdos del Departamento de Secretaría Municipal a la Administración, el cual será comparado con la información digital, a fin de que se proceda con el pago de la dieta respectiva a los asistentes.
