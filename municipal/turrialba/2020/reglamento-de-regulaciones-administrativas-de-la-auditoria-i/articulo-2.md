@@ -1,0 +1,1 @@
+Artículo 2º—De la jornada. La jornada de trabajo será de tiempo completo, sin embargo, en el cumplimiento de sus funciones y competencias por discrecionalidad y confidencialidad, podrá ingresar y dejar las instalaciones en horas distintas a la jornada establecida.
