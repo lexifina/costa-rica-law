@@ -1,0 +1,38 @@
+MUNICIPALIDAD DE SAN PABLO DE HEREDIA
+CONCEJO MUNICIPAL DE SAN PABLO DE HEREDIA
+Sesión ordinaria N° 08-20 celebrada el diecisiete de febrero del 2020 a partir de las dieciocho horas con quince minutos.
+Considerando:
+Dictamen N° CAJ-001-20 de la Comisión de Asuntos Jurídicos de las reuniones celebrada el día 15 de enero del 2020 y el 10 de febrero de 2020.
+Tema: Análisis de la viabilidad técnica para que el cobro de la construcción de aceras para aquellos munícipes que incumplan las obligaciones en cuanto a la inexistencia o mal estado de la acera se cobre bajo una tabla de plazo, siendo el plazo máximo de financiamiento 60 meses.
+Considerandos:
+1º—Acuerdo municipal CM 32-19 adoptado en la sesión ordinaria N° 05-19 celebrada el día 28 de enero del 2019, donde mediante moción presentada por el Sr. Granda Monge, Sindico Propietario del Primer Distrito acogida por el Sr. Julio Benavides Espinoza, Regidor Propietario, para que se remitiera a la Comisión de Asuntos Jurídicos el tema de la construcción de aceras con el objetivo principal de que se analice la viabilidad técnica a fin de que el cobro de la construcción de aceras para aquellos munícipes que incumplan las obligaciones en cuando a la inexistencia o mal estado de la acera se cobre bajo una tabla de plazo, siendo el plazo máximo de financiamiento 60 meses.
+2º—Que el artículo 7 del Reglamento para el Procedimiento y Tarifas a Cobrar por Omisiones de los Deberes de los Propietarios de Bienes Inmuebles del Cantón de San Pablo de Heredia, indica lo siguiente” La Municipalidad cobrará tarifas, cuando tenga que presentar servicios a los propietarios de bienes inmuebles que omitan el cumplimiento de los deberes.
+3º—Que el artículo 84 del Código Municipal establece lo siguiente:
+(...) Salvo lo ordenado en la Ley General de Salud, cuando los munícipes incumplan las obligaciones anteriores o cuando la inexistencia o mal estado de la acera ponga en peligro la seguridad e integridad o se limite la accesibilidad de los peatones, la municipalidad está facultada para suplir la omisión de esos deberes, realizando de forma directa las obras o prestando los servicios correspondientes. Por los trabajos ejecutados, la municipalidad cobrará al propietario o poseedor del inmueble el costo efectivo del servicio o la obra. El munícipe deberá reembolsar el costo efectivo en el plazo máximo de ocho días hábiles; de lo contrario deberá cancelar por concepto de multa un cincuenta por ciento (50%) del valor de la obra o el servicio, sin perjuicio del cobro de los intereses moratorios.
+4º—Acuerdo municipal CM 774-19 adoptado en la sesión ordinaria N° 47-19 celebrada el día 18 de noviembre del 2019, mediante el cual, se ratifica el acuerdo CM 32-19 para que esta Comisión, en un plazo no mayor a diez días hábiles, se pronuncie en los términos que corresponda sobre el asunto de marras.
+5º—Oficio N° MSPH-AM-NI-013-2020, fechado 20 de enero de 2020, suscrito por el Sr. David Zúñiga Arce, Vicealcalde Municipal, donde remite propuesta de reforma a varios artículos tanto del Reglamento de Omisión de Deberes como el Reglamento de Cobros de la Municipalidad de San Pablo de Heredia.
+6º—Acta N° 01-20 y 03 20 de las reuniones celebradas los días 15 de enero del 2020 y 10 de febrero de 2020. donde se analizó el tema.
+Recomendaciones:
+Se le recomienda al honorable Concejo Municipal:
+1. Aprobar las modificaciones presentadas por la Administración Municipal a varios artículos del Reglamento para el Procedimiento y tarifas a cobrar por omisión de deberes de los Propietarios de Bienes Inmuebles del cantón de San Pablo de Heredia y el Reglamento para el procedimiento de Cobro Administrativo, Judicial y Extrajudicial de la Municipalidad de San Pablo de Heredia.
+2. Instruir a la Administración Municipal para que proceda a someter a consulta pública en el Diario Oficial La Gaceta, la modificación de ambos reglamentos por un periodo de diez días hábiles.
+Este Concejo Municipal Acuerda:
+Aprobar dicho dictamen en sus siguientes recomendaciones:
+1. Aprobar las modificaciones presentadas por la Administración Municipal a varios artículos del Reglamento para el Procedimiento y tarifas a cobrar por omisión de deberes de los Propietarios de Bienes Inmuebles del cantón de San Pablo de Heredia y el Reglamento para el procedimiento de Cobro Administrativo, Judicial y Extrajudicial de la Municipalidad de San Pablo de Heredia, para que se lean de la siguiente manera:
+REGLAMENTO PARA EL PROCEDIMIENTO Y TARIFA S A
+COBRAR POR OMISIÓN DE DEBERES DE LOS
+PROPIETARIOS DE BIENES INMUEBLES DEL
+CANTÓN DE SAN PABLO DE HEREDIA:
+• Artículo 10. La Municipalidad cobrará por metro cuadro la construcción de aceras, de acuerdo a la tarifa técnicamente fijada por los estudios técnicos que elabore la administración, y que el Concejo Municipal aprobará por acuerdo, previa revisión de estudio de actualización de tarifas.
+• Artículo 16. Se le adiciona lo siguiente: “El munícipe deberá reembolsar el costo efectivo del servicio u obra prestada en el plazo de ocho días hábiles, sin perjuicio del cobro de los intereses moratorios, salvo previo convenio municipalidad y contribuyente, razón por la cual no existiría incumplimiento u omisión y por lo tanto no sería procedente la imposición de la multa, salvo previo convenio. En caso de no pago en el tiempo estipulado de ocho días hábiles en el que deberá ser reembolsado el costo efectivo de las obras o servicios, la Municipalidad realizará un estudio socioeconómico que deberá ser elaborado por un profesional en Trabajo Social y deberá estar acorde con los parámetros establecidos en el Reglamento de Cobro Administrativo y Judicial de la Municipalidad de San Pablo de Heredia”.
+• Artículo 21. La Municipalidad bajo ninguna circunstancia suministrará los servicios de forma gratuita, ni exonerará totalmente el pago de cualquier multa, interés o cuenta, a no ser que exista disposición legal que la autorice para ello. La Municipalidad podrá exonerar parcialmente el monto respectivo que debe pagar el contribuyente o realizar un arreglo de pago de acuerdo al Reglamento para el Procedimiento de Cobro Administrativo Extrajudicial de la Municipalidad de San Pablo de Heredia, publicado en La Gaceta Número 199 del 16 de octubre de 2003, previo análisis del expediente socioeconómico que presentará la oficina de Desarrollo Social Inclusivo del mismo. La Administración Municipal deberá presentar ante el Concejo Municipal semestralmente en el mes de enero y en el mes de junio de cada año, un informe del estado de los arreglos de pago, tanto respecto del principal como de los intereses, de los casos que se tramiten bajo dicho concepto.
+REGLAMENTO PARA EL PROCEDIMIENTO DE COBRO
+ADMINISTRATIVO, JUDICIAL Y EXTRAJUDICIAL DE LA
+MUNICIPALIDAD DE SAN PABLO DE HEREDIA:
+(Nota de Sinalevi: Por tener articulado propio la reforma al reglamento al reglamento para el procedimiento de cobro administrativo, judicial y extrajudicial, debe de consultarse en el sistema de forma independiente)
+2. Instruir a la Administración Municipal para que proceda a someter a consulta pública en el Diario Oficial La Gaceta, la modificación de ambos reglamentos por un periodo de diez días hábiles.
+Acuerdo Unánime y Declarado Definitivamente Aprobado N° 99-20
+Importante:
+a. De acuerdo al Código Municipal, artículo 43, sometido a Consulta Pública y publicado por primera vez en el Diario Oficial La Gaceta N° 61 del día 26 de marzo del 2020.
+b. A efecto de garantizar la publicidad, eficacia y seguridad jurídica de lo aquí dispuesto, se gestiona en este acto segunda publicación.
+San Pablo de Heredia, 13 de mayo del 2020.
