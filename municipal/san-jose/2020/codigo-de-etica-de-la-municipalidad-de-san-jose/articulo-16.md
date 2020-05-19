@@ -1,0 +1,3 @@
+Artículo 16.—Presentación de las denuncias.
+Las denuncias pueden presentarse en forma escrita y excepcionalmente, de manera verbal cuando las circunstancias así lo exijan, el denunciante puede indicar medio para notificaciones de lo cual también se deberá guardar confidencialidad.
+La Administración deberá dar trámite excepcional a las denuncias anónimas cuando con éstas se presenten elementos de mérito para abrir de oficio una investigación preliminar, en caso contrario la autoridad respectiva dispondrá su archivo, dejando registro de las actuaciones realizadas y la ausencia de elementos que permitan continuar con el proceso.

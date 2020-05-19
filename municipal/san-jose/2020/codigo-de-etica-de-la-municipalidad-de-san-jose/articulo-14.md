@@ -1,0 +1,2 @@
+Artículo 14.—Deber de denunciar.
+Todos colaboradores tienen el deber de denunciar ante las instancias que se indican en este Código y cualquier otra competente conforme con la normativa, los actos de los que tengan conocimiento sean internos o respecto de terceros y las partes interesadas y que presuntamente sean irregulares, ilegales o contrarios a los principios y valores e intereses de la Municipalidad de San José.

@@ -1,0 +1,2 @@
+Artículo 2º—Alcance
+El presente código es de aplicación obligatoria para todos los colaboradores de la Municipalidad de San José, tanto en las relaciones internas que se desarrollan con compañeros y compañeras de trabajo, así como cuando los colaboradores tratan con partes interesadas, ciudadanos, proveedores y cualquier otro que entre en contacto y/o relación con la Municipalidad de San José.
