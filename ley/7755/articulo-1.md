@@ -1,4 +1,6 @@
 N° 7755
+(Nota de Sinalevi: De conformidad con el artículo 9° de la Ley para apoyar al contribuyente local, y reforzar la gestión financiera de las municipalidades, ante la emergencia nacional por la pandemia del covid-19, N° 9848 del 20 de mayo del 2020, se acordó lo siguiente: “ARTÍCULO 9- De forma excepcional en el ejercicio presupuestario 2020 y 2021, las municipalidades y los concejos municipales de distrito estarán autorizados para que utilicen los recursos que reciban por transferencias del Gobierno central, para garantizar la continuidad de los servicios municipales de agua, seguridad, gestión integral de residuos o cementerio, así como para gastos administrativos, en atención a la disminución de sus ingresos por las consecuencias económicas de la pandemia; sin embargo, no podrán destinarse a la creación de nuevas plazas.
+Quedarán exceptuados de esta disposición los recursos establecidos por la Ley 7755, Control de las Partidas Específicas con Cargo al Presupuesto Nacional, de 23 de febrero de 1998, y aquellos que dispone en su artículo 5 la Ley 8114, Ley de Simplificación y Eficiencia Tributarias, de 4 de julio de 2001.”)
 LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
 DECRETA:
 CONTROL DE LAS PARTIDAS ESPECÍFICAS CON

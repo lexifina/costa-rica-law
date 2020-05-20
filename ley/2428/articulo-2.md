@@ -1,9 +1,6 @@
-Artículo 2º.- Para dictaminar el aumento que corresponda pagar por
-concepto de alquiler, en el próximo período de cinco años, la Comisión
-Recalificadora tomará en cuenta las circunstancias especiales del
-arrendamiento, entre ellas; amplitud, ubicación del local o puesto,
-estado del edificio, costo de la vida, situación económica imperante,
-clase de mercadería que se venda, y cualesquiera otros datos que sirvan
-para la justa determinación del precio del alquiler.
-(Así reformado por el artículo 1º de la Ley Nº 7027 de 4 de abril de
-1986).
+Artículo 2º.- Para dictaminar el aumento que corresponda pagar por concepto de alquiler, en el próximo período de cinco años, la Comisión Recalificadora tomará en cuenta las circunstancias especiales del arrendamiento, entre ellas; amplitud, ubicación del local o puesto, estado del edificio, costo de la vida, situación económica imperante, clase de mercadería que se venda, y cualesquiera otros datos que sirvan para la justa determinación del precio del alquiler.
+(Así reformado por el artículo 1º de la Ley Nº 7027 de 4 de abril de1986).
+(Nota de Sinalevi: De conformidad con el artículo 14 de la Ley para apoyar al contribuyente local, y reforzar la gestión financiera de las municipalidades, ante la emergencia nacional por la pandemia del covid-19, N° 9848 del 20 de mayo del 2020, se acordó lo siguiente: “ARTÍCULO 14- Reducción de tarifas arrendamientos municipales. Se autoriza a todas las municipalidades del país que posean o administren mercados municipales, amparados en la Ley 2428, Ley sobre el Arrendamiento de Locales Municipales, de 14 de setiembre de 1959, para que modifiquen el plazo de cinco años, dispuesto en su artículo 2, por una única vez y hacer una rebaja hasta de un cincuenta por ciento (50%) en los montos cobrados por concepto de arrendamiento de locales, tramos o puestos de los mercados municipales, a partir de la firma de esta ley y hasta diciembre de 2020, cuando se demuestre una disminución significativa de las ventas a partir de la declaratoria de emergencia según el decreto 42248-MTSS, mediante el cual se declaró el estado de emergencia en todo el territorio de la República debido a la situación de emergencia sanitaria provocada por la enfermedad COVID-19.
+Las municipalidades incluidas en este artículo deben velar por que la reducción permita el pago de los servicios básicos necesarios para que los locales operen normalmente.
+Queda a criterio de la Comisión Recalificadora o del concejo municipal, si esta no está debidamente formalizada, determinar los requerimientos que demuestren la disminución de los ingresos y el porcentaje de reducción del alquiler o concesión.
+Este artículo aplicará a partir de la publicación de esta ley y hasta diciembre de 2020.”)
