@@ -1,0 +1,10 @@
+MUNICIPALIDAD DE SAN JOSÉ
+REFORMAS AL REGLAMENTO SOBRE EL RÉGIMEN
+DE PUESTOS DE CONFIANZA PARA EL
+CONCEJO MUNICIPAL DE SAN JOSÉ
+Artículo 1°—-Relación especial de confianza. El presente reglamento establece el régimen especial de puestos de confianza para las Fracciones de partidos políticos y el Regidor propietario separado de su Fracción que conformen el Concejo Municipal, Presidencia y Vicepresidencia, en los cuales se requieren características para el desempeño de confianza y apoyo especial
+Artículo 2°—Sobre la selección y designación. Los funcionarios o funcionarias en puestos de confianza no tienen un sistema de selección, por lo cual serán nombrados directa y discrecionalmente por la instancia competente (Fracciones Políticas del Concejo Municipal, el Regidor propietario separado de su Fracción, /a Presidencia y la Vicepresidencia Municipal), según las razones objetivos de necesidad del área contratante. Tales funcionarios de confianza laborarán en forma tal que garanticen los intereses propios de lo Municipalidad y del Órgano Político.
+Artículo 5°—Delimitación. Se consideran puestos de confianza, los que estén a la disposición permanente de las Fracciones Políticas, el Regidor propietario separado de su Fracción, Presidencia y Vicepresidencia del Concejo Municipal, bajo condiciones de desempeño de confianza y apoyo especial hacia estas instancias.
+Artículo 6°—Cantidad de puestos de Confianza. El número de puestos de confianza será de dos asesores y un (o) oficinista o secretaria (o), para cada fracción política, para el Regidor propietario separado de su Fracción y para la oficina de Síndicos. Dos asesores, un (a) oficinista o secretaria (o) y un vehículo con su respectivo chofer para la Presidencia, y un asesor, un (a) oficinista o secretaría (o) y un vehículo con su respectivo chofer para la Vicepresidencia del Concejo Municipal.
+Acuerdo 3, artículo IV de la sesión ordinaria N° 209, celebrada por el Concejo Municipal del Cantón Central de San José, el 28 de abril del 2020.
+San José, 15 de mayo de 2020.
