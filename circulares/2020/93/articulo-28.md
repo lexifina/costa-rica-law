@@ -1,0 +1,2 @@
+Artículo 28.—Audiencia. La audiencia se desarrollará conforme a lo dispuesto en el Código Procesal Civil y las normas prácticas aprobadas para su aplicación.
+Tratándose de Tribunales Colegiados, si en una audiencia unipersonal debe convertirse en colegiada, se deberán tomar las previsiones para ello, incluso, suspendiendo el acto durante el plazo legal, si fuere necesario. Lo anterior también deberá ser considerado, para otro tipo de audiencias, si se alegara recusación, o alguna otra situación en que deba intervenir otra persona juzgadora.

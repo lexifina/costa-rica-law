@@ -1,0 +1,2 @@
+Artículo 9°—Respaldo: Las gestiones, resoluciones y actuaciones en audiencias orales, quedarán grabadas en audio e incorporadas al expediente judicial al finalizar el acto procesal mediante el sistema institucional SIGAO. Se deberá efectuar el etiquetado de los actos realizados durante la audiencia. Todo en aplicación de las directrices que al efecto dicte la Dirección de Tecnología de la Información.
+En caso de pérdida del audio, se procederá conforme lo establecido en el Código Procesal Civil.

@@ -1,0 +1,1 @@
+Artículo 31.—Aplicabilidad: Este protocolo será aplicable a las audiencias únicas, preliminares, complementarias, de medidas cautelares, pruebas anticipadas, de segunda instancia, casación, en juicios universales y en general, cualquier audiencia que deban ser realizadas en los tribunales de justicia civiles.
