@@ -1,0 +1,1 @@
+Artículo 5º—Se instruye a las autoridades de salud de los Niveles Regionales y Locales para que inicien de inmediato los trámites necesarios para garantizar el fiel cumplimiento de la presente Directriz.

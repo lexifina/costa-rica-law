@@ -1,0 +1,2 @@
+Artículo 3º—En el caso que el Informe indique la instalación eléctrica del establecimiento se encuentra en condición de “No Aprobada”, se entenderá que existe un riesgo inminente para la salud y seguridad humana, y las Áreas Rectoras de Salud no podrán otorgar un Permiso Sanitario de Funcionamiento provisional.
+Además, deberán informar del caso a las Autoridades Municipales que dicha actividad no cuenta con Permiso Sanitario de Funcionamiento, para lo que en derecho proceda.
