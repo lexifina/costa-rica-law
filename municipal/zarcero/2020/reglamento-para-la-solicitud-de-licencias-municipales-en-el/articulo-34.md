@@ -1,0 +1,1 @@
+Artículo 34: Régimen de Tributación Simplificado:Los contribuyentes autorizados por la Dirección General de Tributación en el Régimen de Tributación Simplificado, deberán presentar copia de las declaraciones juradas trimestrales correspondientes al período fiscal, debidamente selladas por la Dirección General de Tributación o los agentes auxiliares autorizados.

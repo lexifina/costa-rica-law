@@ -1,0 +1,1 @@
+Artículo 58: La Alcaldía Municipal nombrará un Órgano Director que será el que conozca del asunto y recomendará, con conocimiento de las pruebas aportadas, si procede o no la cancelación definitiva de la licencia comercial.

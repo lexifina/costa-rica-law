@@ -1,0 +1,1 @@
+Artículo 87: Revocatoria. - La resolución de extinción por revocatoria de la licencia de perifoneo, sin responsabilidad de la municipalidad, la dictará la Alcaldía Municipal, con fundamento en lo dispuesto en el artículo 152, siguientes y concordantes de la Ley General de la Administración Pública, previa iniciativa de revocatoria emanada por la Unidad de Licencias Municipales..

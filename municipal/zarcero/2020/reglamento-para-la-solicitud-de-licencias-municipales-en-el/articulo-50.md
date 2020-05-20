@@ -1,0 +1,1 @@
+Artículo 50: Cuando se trate de falta de pago, previo a la aplicación del artículo anterior, se deberá prevenir al patentado en su local comercial, de la omisión y se le concederá un plazo de cinco días hábiles para su cancelación. Mientras la licencia se encuentre suspendida no se deberá cobrar el recargo de intereses moratorios durante los días de suspensión.

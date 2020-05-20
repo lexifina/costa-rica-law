@@ -1,0 +1,1 @@
+Articulo 30: En caso que no se cumpla con la cancelación del impuesto en los meses indicados en el artículo anterior, la Unidad de Licencias Municipales estará obligada a cobrar el recargo por concepto de intereses moratorios, pero si el pago no se hiciera efectivo en el mes correspondiente, los intereses correrán a partir del primer día de cada trimestre.

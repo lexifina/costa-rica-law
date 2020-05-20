@@ -1,0 +1,9 @@
+Artículo 106: La presente normativa aplica para todas las personas físicas, jurídicas, privadas, públicas, nacionales o extranjeras que comercialicen o expendan bebidas con contenido alcohólico; así como para aquellos que las consuman y comercialicen en vía pública y sitios públicos.Las disposiciones del presente Reglamento son de interés público y resultan de aplicación general en todo el territorio del cantón de Zarcero a efecto de:
+1. Autorizar, denegar o condicionar la emisión de licencias de expendio de bebidas con contenido alcohólico.
+2. Renovar, revocar, o cancelar las licencias que se emitan.
+3. Autorizar los cambios de giro del establecimiento, con el correspondiente ajuste del horario y del monto de pago de los derechos trimestrales de la licencia.
+4. Realizar la homologación de categorías en las actividades asociadas a la comercialización de bebidas de contenido alcohólico, ajustes y cálculos correspondientes a efecto de proceder a la tasación conforme a la Ley de Regulación y Comercialización de Bebidas con Contenido Alcohólico.
+5. Regular y fiscalizar el adecuado funcionamiento de los establecimientos destinados al almacenaje, distribución, venta o consumo de bebidas alcohólicas para la efectiva tutela de las disposiciones urbanísticas, protección de la salud y la seguridad pública.
+6. Velar por el adecuado control superior de las licencias de expendio de bebidas con contenido alcohólico, para lo cual la administración podrá fundamentar sus actuaciones mediante criterios de conveniencia, racionalidad, proporcionalidad, razonabilidad, interés superior del menor, riesgo social y desarrollo equilibrado del cantón; para lo cual podrá hacer uso de las atribuciones, potestades y sanciones dispuestas en la ley y este reglamento.
+7. Imponer las sanciones establecidas en la Ley N° 9047 y este reglamento.
+8. Cualquier otra que se desprenda de la aplicación directa o indirecta de la Ley N° 9047 y este reglamento.

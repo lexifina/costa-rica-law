@@ -1,0 +1,1 @@
+Artículo 81: Actividad de Karaoke permanente. - Las actividades con karaoke deberán respetar en todo momento la normativa que establece la Ley General de Salud y el Reglamento para el Control de Contaminación por Ruido, referente a los niveles autorizados de sonido y confinamiento de ruido.

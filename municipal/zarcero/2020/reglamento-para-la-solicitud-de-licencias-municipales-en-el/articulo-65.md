@@ -1,0 +1,4 @@
+SECCIÓN II
+DE LAS LICENCIAS PARA
+ESPECTÁCULOS PÚBLICOS EN GENERAL
+Artículo 65: Para los negocios que se consideren de espectáculos públicos, constituye el hecho generador de la obligación, la presentación o el ingreso a toda clase de espectáculos públicos o de diversión no gratuitos, tales como circos, carruseles, salas de juegos electrónicos, máquinas tragamonedas, exposiciones y presentaciones deportivas, así como toda función, representación de tipo artística, musical y/o bailable, que se haga en vivo o utilizando reproductores de audio y/o video, en discotecas, salones de baile, u otros lugares destinados para ese fin, así como cualquier otra actividad que pueda catalogarse como entretenimiento, diversión o espectáculo, en los cuales se cobre cuota de ingreso, entendiéndose por la misma los montos que se cancelen por consumo mínimo, barra libre, admisión consumible, derecho de admisión y similares.

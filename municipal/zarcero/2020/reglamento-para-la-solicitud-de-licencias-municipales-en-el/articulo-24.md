@@ -1,0 +1,3 @@
+SECCIÓN II
+PROCEDIMIENTO DE COBRO DEL IMPUESTO
+Artículo 24: A toda actividad que haya sido previamente autorizada por la Municipalidad de Zarcero se le impondrá un impuesto, que será establecido de acuerdo con los mecanismos establecidos en cada ley. Para el caso del impuesto sobre actividades lucrativas, se establecerá de acuerdo a lo dictado en la Ley N° 8391 denominada Ley de Patentes del Cantón de Zarcero y el artículo 1 de este Reglamento. El impuesto se cobrará a partir del momento del inicio de la actividad dentro del cantón de Zarcero, aún y cuando el solicitante haya iniciado la actividad sin la respectiva licencia.

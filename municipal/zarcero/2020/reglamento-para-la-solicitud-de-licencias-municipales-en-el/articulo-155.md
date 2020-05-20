@@ -1,0 +1,1 @@
+Artículo 155: Para cumplir con lo señalado en el artículo anterior, la persona coordinadora de la Unidad de Licencias Municipales, deberá velar porque cada una de las actividades lucrativas del cantón cuente con un expediente, en donde se archivarán en orden cronológico y debidamente foliados, todos los documentos relacionados con dicha actividad.

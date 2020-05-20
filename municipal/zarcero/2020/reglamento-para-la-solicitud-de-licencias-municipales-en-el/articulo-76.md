@@ -1,0 +1,1 @@
+Artículo 76: Cuando no se cumpla con lo dispuesto en los artículos anteriores, sea el pago del impuesto y la multa determinada, se procederá en forma inmediata y sin más trámite a la cancelación de la licencia de espectáculo público y el traslado de la deuda determinada a cobro judicial.

@@ -1,0 +1,1 @@
+Artículo 71: Nadie puede iniciar actividad alguna si su correspondiente solicitud no ha sido debidamente aprobada y cancelada ante la Municipalidad. De iniciarse la actividad sin el permiso correspondiente, se procederá a la suspensión a través de las autoridades de policía y sus organizadores responderán por el acto.

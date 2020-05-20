@@ -1,0 +1,1 @@
+Artículo 110: Todo trámite para obtener la explotación o renovación de las licencias para el expendio o consumo de bebidas con contenido alcohólico, deberán realizarse ante la Unidad de Licencias Municipales, dependencia que le compete verificar la presentación de requisitos y determinar la legalidad del trámite para posteriormente aprobar o denegar la petición.

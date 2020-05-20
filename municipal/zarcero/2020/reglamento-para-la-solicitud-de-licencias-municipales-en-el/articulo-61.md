@@ -1,0 +1,1 @@
+Artículo 61: El impuesto para las corridas de toros, los carruoseles y en general donde se cobre derecho de entrada para la presentación de espectáculos, se establecerá de acuerdo a la totalidad de los boletos o fichas vendidas, correspondiendo dicho impuesto a un 5% del valor de cada boleto o ficha.

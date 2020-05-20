@@ -1,0 +1,2 @@
+Artículo 27: Base imponible: Con excepción de lo señalado en el artículo 7 de la ley N° 8391, se establecen como factores determinantes de la imposición, los ingresos brutos o las ventas brutas anuales que perciban las personas físicas o jurídicas sujetas del impuesto durante el período fiscal anterior al año que se grava.
+Para el caso de establecimientos financieros, de alquileres y de correduría de bienes muebles e inmuebles se considerarán ingresos brutos los percibidos por concepto de intereses y comisiones.

@@ -1,0 +1,1 @@
+Artículo 85: Horario. - No se permitirá el perifoneo de las 18:00 horas a las 07:00 horas del día siguiente, cien metros antes y cien metros después de hospitales, centros de educación, Iglesias, capillas de velación o áreas designadas por el Ministerio de Salud como de tranquilidad excepcional".

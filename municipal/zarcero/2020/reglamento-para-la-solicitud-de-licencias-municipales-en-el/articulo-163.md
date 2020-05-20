@@ -1,0 +1,1 @@
+Artículo 163: A los locales comerciales construidos, con la correspondiente licencia de construcción otorgada por la municipalidad, a la entrada en vigencia de este reglamento, no se le aplicarán las restricciones de estacionamientos.

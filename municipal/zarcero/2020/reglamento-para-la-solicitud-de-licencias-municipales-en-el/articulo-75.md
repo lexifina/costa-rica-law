@@ -1,0 +1,1 @@
+Artículo 75: La no cancelación del impuesto dentro del plazo señalado hará que la Municipalidad imponga una multa de uno a diez veces el monto dejado de pagar, el cuál deberá ser cancelado en el mismo mes.

@@ -1,0 +1,1 @@
+Artículo 13: A toda actividad económica con fines de lucro que haya sido previamente autorizada por la Municipalidad de Zarcero, se le impondrá un impuesto que será establecido de acuerdo con los mecanismos que dicten las leyes respectivas.

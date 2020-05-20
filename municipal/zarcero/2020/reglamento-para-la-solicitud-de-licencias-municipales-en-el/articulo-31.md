@@ -1,0 +1,1 @@
+Artículo 31: El total del ingreso bruto o la venta bruta anual de las actividades lucrativas que hayan operado únicamente una parte del período fiscal anterior, se determinará con base en el promedio mensual del período de la actividad en que se ejerció esta.

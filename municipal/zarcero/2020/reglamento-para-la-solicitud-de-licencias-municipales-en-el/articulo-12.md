@@ -1,0 +1,1 @@
+Artículo 12: Para toda solicitud de otorgamiento, ampliación de actividad, traslado o traspaso de licencias municipales de todo tipo, será requisito indispensable que las personas interesadas, tanto solicitantes como propietarios del inmueble, estén al día en el pago de los tributos, recargos, precios y sanciones municipales.

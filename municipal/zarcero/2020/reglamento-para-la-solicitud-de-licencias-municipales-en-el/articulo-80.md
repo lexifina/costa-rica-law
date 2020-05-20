@@ -1,0 +1,1 @@
+Artículo 80: Actividades programadas como Espectáculo público. - En ningún caso se autorizará actividades de discomóviles, música en vivo, conciertos o similares, después de las doce de la noche, resguardándose con ello el interés público.

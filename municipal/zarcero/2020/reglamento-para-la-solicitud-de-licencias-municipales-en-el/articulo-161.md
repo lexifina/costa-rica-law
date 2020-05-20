@@ -1,0 +1,2 @@
+DISPOSICIONES FINALES
+Artículo 161: Todas las actividades que se estén realizando en el cantón de Zarcero y no cuenten con la respectiva licencia municipal, se les concede un plazo de dos meses para cumplir con lo dispuesto en este reglamento, caso contrario, se procederá a la clausura de la actividad que se esté llevando a cabo o al inicio de el procedimiento administrativo, cuando con una licencia autorizada se desarrolle otra actividad sin el conocimiento municipal.
