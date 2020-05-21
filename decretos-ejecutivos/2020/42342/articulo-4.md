@@ -1,0 +1,1 @@
+Artículo 4°—El Instituto Costarricense de Acueductos y Alcantarillados deberá cumplir y acatar las responsabilidades, requisitos y obligaciones determinados de conformidad con el artículo 18 bis de la Ley N° 7575.
