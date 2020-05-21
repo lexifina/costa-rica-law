@@ -41,12 +41,16 @@ DECRETAN
 LICENCIAS DE EXPORTACIÓN DE PRODUCTOS ESPECÍFICOS, DADA LA EXISTENCIA DE
 RIESGO DE DESABASTO EN EL MERCADO LOCAL PARA LA ATENCIÓN DE LA EMERGENCIA
 SANITARIA POR LA ENFERMEDAD COVID-19
-Artículo 1°.-Con la finalidad de evitar riesgo de desabasto en el mercado local de productos de primera necesidad para la atención de la emergencia sanitaria por la enfermedad COVID-19, se establece como medida excepcional y temporal la restricción de exportación de los productos que se detallan a continuación:
+Artículo 1°.- Con la finalidad de evitar riesgo de desabasto en el mercado local de productos de primera necesidad para la atención de la emergencia sanitaria por la enfermedad COVID-19, se establece como medida excepcional y temporal la restricción de exportación de los productos que se detallan a continuación:
 PRODUCTO | DESCRIPCIÓN | CÓDIGO ARANCELARIO (INCISO)
-Monogafas | Monogafa de seguridad de ventilación indirecta, lente transparente, marco recubierto de espuma y banda para la cabeza ajustable. Diseño ergonómico y panorámica. | 9004.90.10.00.00
+Monogafas | Monogafa de seguridad de ventilación indirecta, lente transparente, marco recubierto de espuma y banda para la cabeza ajustable. Diseño ergonómico y panorámica. Del tipo utilizada en atención médica. | 9004.90.10.00.00
 Mascarilla | Mascarillas N95 | 6307.90.20.00.90
-Guantes | Guantes de Nitrilo (talla L) | 4015.19.00.00.00
-Guantes | Guantes de Nitrilo (talla M) | 4015.19.00.00.00
-Guantes | Guantes de Nitrilo (talla S) | 4015.19.00.00.00
-Batas | Batas descartables | 6210.10.90.00.00
+Guantes | Guantes de Nitrilo | 4015.19.00.00.00
+Batas | Batas descartables del tipo que se usa para la atención médica. | 6210.10.90.00.00
 Mascarillas | Mascarillas quirúrgicas descartables | 6307.90.20.00.90
+Alcohol fricción | Formulaciones alcohólicas con concentraciones superiores al 60% para higiene y de uso externo | 300490910090
+Alcohol multiuso | Formulaciones alcohólicas con concentraciones superiores al 60% para higiene y de uso externo | 380894900099
+Solución antiséptica para higiene | Formulaciones alcohólicas con concentraciones superiores al 60% para higiene y de uso externo | 300490910090
+Alcohol en gel | Formulaciones alcohólicas con concentraciones superiores al 60% para higiene y de uso externo | 380894900099
+Alcohol etílico | Alcohol etílico sin desnaturalizar con grado alcohólico volumétrico superior o igual a 80% vol. | 220710
+(Así reformado por el artículo 1° del decreto ejecutivo N° 42354 del 21 de mayo del 2020)

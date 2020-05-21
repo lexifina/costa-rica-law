@@ -14,3 +14,4 @@ Licencias de exportación de productos específicos, dada la existencia de riesg
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-04-10 | la propia norma |
+| 2 | 2020-05-21 | Decreto Ejecutivo 42354 (2020-05-21) |
