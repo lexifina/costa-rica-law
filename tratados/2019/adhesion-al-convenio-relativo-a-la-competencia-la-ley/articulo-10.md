@@ -1,0 +1,5 @@
+Artículo 10
+1. Sin perjuicio de los artículos 5 a 9, las autoridades de un Estado contratante, en el ejercicio de su competencia para resolver una demanda de divorcio o separación legal de los padres de un niño con residencia habitual en otro Estado contratante o en anulación de su matrimonio, pueden adoptar, si la ley de su Estado lo permite, medidas de protección de la persona o de los bienes del niño, si:
+a) uno de los padres reside habitualmente en dicho Estado en el momento de iniciarse el procedimiento y uno de ellos tiene la responsabilidad parental respecto al niño, y
+b) la competencia de estas autoridades para adoptar tales medidas ha sido aceptada por los padres, así como por cualquier otra persona que tenga la responsabilidad parental respecto al niño, y si esta competencia responde al interés superior del niño.
+2. La competencia prevista en el apartado primero para adoptar medidas de protección del niño cesa cuando la decisión aceptando o desestimando la demanda de divorcio, separación legal o anulación del matrimonio sea firme o el procedimiento finaliza por otro motivo.

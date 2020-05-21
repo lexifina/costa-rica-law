@@ -1,0 +1,2 @@
+Artículo 51
+En las relaciones entre los Estados contratantes, el presente Convenio sustituye al Convenio del 5 de octubre de 1961 sobre Competencia de Autoridades y Ley Aplicable en materia de Protección de Menores y al Convenio para Regular la Tutela de los Menores, firmado en La Haya el 12 de junio de 1902, sin perjuicio del reconocimiento de las medidas adoptadas según el Convenio del 5 de octubre de 1961 antes citado.

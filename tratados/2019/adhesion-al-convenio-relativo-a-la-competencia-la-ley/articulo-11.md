@@ -1,0 +1,4 @@
+Artículo 11
+1. En casos de urgencia, son competentes para adoptar las medidas de protección necesarias las autoridades de cualquier Estado contratante en cuyo territorio se encuentre el niño o bienes que le pertenezcan.
+2. Las medidas adoptadas en aplicación del apartado precedente respecto de un niño que tuviera su residencia habitual en un Estado contratante, dejan de tener efecto desde que las autoridades competentes en virtud de los artículos 5 a 10 adopten las medidas exigidas por la situación.
+3. Las medidas adoptadas en aplicación del apartado primero respecto de un niño que tenga su residencia habitual en un Estado no contratante dejan de tener efecto en todo Estado contratante desde el momento que las medidas exigidas por la situación y adoptadas por las autoridades de otro Estado se reconocen en el Estado contratante en cuestión.

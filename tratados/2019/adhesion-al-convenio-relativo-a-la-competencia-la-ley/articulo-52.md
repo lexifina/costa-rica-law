@@ -1,0 +1,5 @@
+Artículo 52
+1. El Convenio no afectará los instrumentos internacionales en que los Estados contratantes sean partes y que contengan disposiciones sobre materias reguladas por el presente Convenio, salvo declaración en contrario de los Estados vinculados por dichos instrumentos.
+2. El Convenio no afectará a la posibilidad para uno o varios Estados contratantes de concluir acuerdos que contengan disposiciones sobre las materias reguladas por el presente Convenio, respecto a niños que tengan su residencia habitual en uno de los Estados parte en tales acuerdos.
+3. Los acuerdos a concluir por uno o varios Estados contratantes sobre materias reguladas por este Convenio no afectarán la aplicación de las disposiciones del presente Convenio en las relaciones de estos Estados con los demás Estados contratantes.
+4. Los apartados precedentes se aplicarán igualmente a las leyes uniformes basadas en la existencia entre los Estados afectados de vínculos especiales, particularmente de naturaleza regional, u otra naturaleza.

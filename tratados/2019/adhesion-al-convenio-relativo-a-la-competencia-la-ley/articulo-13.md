@@ -1,0 +1,3 @@
+Artículo 13
+1. Las autoridades de un Estado contratante que sean competentes para adoptar medidas de protección de la persona o de los bienes del niño según los artículos 5 a 10, deben abstenerse de ejercer su competencia si, en el momento de iniciarse el procedimiento, se hubieran solicitado las medidas correspondientes a las autoridades de otro Estado contratante que fueran competentes en virtud de los artículos 5 a 10 en el momento de la petición y estuvieran todavía en proceso de examen.
+2. La disposición del apartado precedente no se aplica si las autoridades ante las que se presentó inicialmente la petición de medidas han declinado su competencia.

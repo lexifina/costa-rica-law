@@ -1,0 +1,2 @@
+Artículo 50
+El presente Convenio no afecta al Convenio del 25 de octubre de 1980 sobre los Aspectos civiles de la Sustracción Internacional de Menores, en las relaciones entre las Partes en ambos Convenios. Nada impide, sin embargo, que se invoquen disposiciones del presente Convenio para obtener el retorno de un niño que ha sido ilícitamente desplazado o retenido, o para organizar el derecho de visita.

@@ -1,0 +1,4 @@
+Artículo 9
+1. Si las autoridades de los Estados contratantes mencionados en el artículo 8, apartado 2, estiman que están en mejor situación para determinar, en un caso particular, el interés superior del niño, pueden ya sea solicitar a la autoridad competente del Estado contratante de la residencia habitual del niño, directamente o con la cooperación de la Autoridad Central de este Estado, que les permita ejercer su competencia para adoptar las medidas de protección que estimen necesarias, o ya sea invitar a las partes a presentar dicha petición ante las autoridades del Estado contratante de la residencia habitual del niño.
+2. Las autoridades interesadas pueden proceder a un intercambio de opiniones.
+3. La autoridad que ha originado la petición sólo puede ejercer su competencia en lugar de la autoridad del Estado contratante de la residencia habitual del niño si esta autoridad ha aceptado la petición.

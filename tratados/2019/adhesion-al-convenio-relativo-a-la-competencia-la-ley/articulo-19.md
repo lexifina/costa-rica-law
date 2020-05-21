@@ -1,0 +1,3 @@
+Artículo 19
+1. No puede impugnarse la validez de un acto celebrado entre un tercero y una persona que tendría la condición de representante legal según la ley del Estado en que se ha celebrado el acto, ni declararse la responsabilidad del tercero, por el único motivo de que dicha persona no tuviera la condición de representante legal en virtud de la ley designada por las disposiciones del presente Capítulo, salvo que el tercero supiera o debiera haber sabido que la responsabilidad parental se regía por esta ley.
+2. El apartado precedente sólo se aplica si el acto se ha celebrado entre personas presentes en el territorio de un mismo Estado.

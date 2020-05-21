@@ -1,0 +1,2 @@
+Artículo 36
+En caso de que el niño esté expuesto a un grave peligro, las autoridades competentes del Estado contratante en el que se hayan adoptado o estén bajo consideración medidas de protección de este niño, avisarán, si son informadas del cambio de residencia o de la presencia del niño en otro Estado, a las autoridades de este Estado acerca del peligro y de las medidas adoptadas o en curso de consideración.
