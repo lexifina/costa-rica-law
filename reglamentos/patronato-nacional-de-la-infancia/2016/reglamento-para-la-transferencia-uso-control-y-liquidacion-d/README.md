@@ -16,3 +16,4 @@ Reglamento para la transferencia, uso, control y liquidación de los recursos gi
 | 1 | 2016-11-01 | la propia norma |
 | 2 | 2017-07-18 | Reglamento 25 (2017-07-18) |
 | 3 | 2019-05-27 | Reglamento 15 (2019-05-27) |
+| 4 | 2020-05-21 | Reglamento 16 (2020-05-21) |
