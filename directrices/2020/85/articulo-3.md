@@ -1,0 +1,5 @@
+Artículo 3º—Se instruye a las personas jerarcas de la Administración Pública Centralizada y se insta a las personas jerarcas de la Administración Pública Descentralizada a que de acuerdo con los plazos de avances de los planes de mejora regulatoria definidos en el artículo 21 del Decreto Ejecutivo N° 37045-MP-MEIC del 22 de febrero del 2012, se ejecuten los siguientes porcentajes de avance:
+a) El 50 % de avance al 10 de junio de 2020.
+b) El 75% de avance al 10 de septiembre de 2020.
+c) El 100% del cumplimiento al 10 de diciembre de 2020, de todos los trámites contenidos en el plan de mejora regulatoria debidamente simplificados.
+Las instituciones de la Administración Pública Centralizada deberán incluir los avances en el Sistema de Simplificación de Trámites y Mejora Regulatoria, https://tramitescr.meic.go.cr/; en la observancia de la presente Directriz, se insta a las instituciones de la Administración Pública Descentralizada a incluir los avances referidos en el Sistema de Simplificación de Trámites y Mejora Regulatoria, https://tramitescr.meic.go.cr/.

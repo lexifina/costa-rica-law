@@ -1,0 +1,1 @@
+Artículo 6º—Se invita a las Municipalidades a la aplicación de las medidas contempladas en la presente Directriz, con la finalidad de mejorar el desempeño de la Administración Pública, contribuir con la recuperación económica y a la generación de empleo.
