@@ -14,3 +14,4 @@ Reglamento para la Administración y Control de los Recursos Económicos del Fon
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-05-26 | la propia norma |
+| 2 | 2020-05-21 | Reglamento 16 (2020-05-21) |
