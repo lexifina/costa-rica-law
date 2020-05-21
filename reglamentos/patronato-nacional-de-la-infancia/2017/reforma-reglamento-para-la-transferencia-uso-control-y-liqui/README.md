@@ -14,3 +14,4 @@ Reforma Reglamento para la transferencia, uso, control y liquidación de recurso
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-08-31 | la propia norma |
+| 2 | 2020-05-21 | Reglamento 16 (2020-05-21) |

@@ -1,4 +1,6 @@
+(Derogado)
 PATRONATO NACIONAL DE LA INFANCIA
+(Esta norma fue derogada por el artículo 40 del Reglamento de proyectos financiados por el Patronato Nacional de la Infancia, aprobado en sesión N° 016 del 21 de mayo del 2020)
 Para su conocimiento y fines consiguientes, se le comunica el acuerdo tomado por la Junta Directiva del Patronato Nacional de la Infancia en la sesión y fecha que se indica:
 Sesión Ordinaria 2017-025
 Martes 18 de julio del 2017
