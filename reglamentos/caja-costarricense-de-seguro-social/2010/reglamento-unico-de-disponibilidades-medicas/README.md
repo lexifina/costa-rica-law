@@ -14,3 +14,4 @@ Reglamento Único de Disponibilidades Médicas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-06-28 | la propia norma |
+| 2 | 2020-05-21 | Reglamento 9097 (2020-05-21) |
