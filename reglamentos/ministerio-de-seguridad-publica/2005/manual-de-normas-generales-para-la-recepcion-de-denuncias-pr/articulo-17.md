@@ -1,2 +1,0 @@
-17.—Comunicación de resultados. De los resultados de la investigación preliminar, se comunicará lo que corresponda al denunciante que haya señalado un lugar o medio para tal efecto, siempre y cuando ésta no comprenda la información, documentación u otras evidencias de las investigaciones, cuyos resultados puedan originar la apertura de un procedimiento administrativo o la interposición de un proceso judicial.
-(Así adicionado mediante acuerdo N° 430-2010 del 30 de agosto de 2010)
