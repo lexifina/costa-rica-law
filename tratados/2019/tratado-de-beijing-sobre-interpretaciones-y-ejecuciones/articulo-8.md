@@ -1,0 +1,5 @@
+Artículo 8
+Derecho de distribución
+1. Los artistas intérpretes o ejecutantes gozarán del derecho exclusivo a autorizar la puesta a disposición del público del original y de los ejemplares de sus interpretaciones o ejecuciones fijadas en fijaciones audiovisuales, mediante venta u otra transferencia de propiedad.
+2. Nada de lo dispuesto en el presente Tratado afectará a la facultad de las Partes Contratantes para determinar las condiciones, si las hubiera, en las que se aplicará el agotamiento del derecho mencionado en el párrafo 1 después de la primera venta u otra transferencia de propiedad, con autorización del artista intérprete o ejecutante, del original o de un ejemplar de la interpretación o ejecución fijada.8
+8 Declaración concertada relativa a los artículos 8 y 9: Tal como se la utiliza en estos artículos, la expresión “original y ejemplares”, sujeta al derecho de distribución y al derecho de alquiler en virtud de dichos artículos, hace referencia exclusivamente a ejemplares fijados que pueden ponerse en circulación como objetos tangibles.

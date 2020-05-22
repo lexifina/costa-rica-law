@@ -1,0 +1,5 @@
+Artículo 9
+Derecho de alquiler
+1. Los artistas intérpretes o ejecutantes gozarán del derecho exclusivo a autorizar el alquiler comercial al público del original y de los ejemplares de sus interpretaciones o ejecuciones fijadas en fijaciones audiovisuales, según lo dispuesto en la legislación nacional de las Partes Contratantes, incluso después de su distribución realizada por el artista intérprete o ejecutante o con su autorización.
+2. Las Partes Contratantes estarán exentas de la obligación establecida en el párrafo 1, a menos que el alquiler comercial haya dado lugar a una copia generalizada de esas fijaciones que menoscabe considerablemente el derecho exclusivo de reproducción de los artistas intérpretes o ejecutantes.9
+9 Declaración concertada relativa a los artículos 8 y 9: Tal como se la utiliza en estos artículos, la expresión “original y ejemplares”, sujeta al derecho de distribución y al derecho de alquiler en virtud de dichos artículos, hace referencia exclusivamente a ejemplares fijados que pueden ponerse en circulación como objetos tangibles.
