@@ -1,0 +1,1 @@
+ARTÍCULO 3- De forma excepcional en los ejercicios presupuestarios 2020 y 2021, las municipalidades y los concejos municipales de distrito girarán el uno coma cinco por ciento (1,5%) de lo recaudado a favor de la Junta Administrativa del Registro Nacional, dispuesto en el artículo 30 de la Ley 7509, Impuesto sobre Bienes Inmuebles, de 9 de mayo de 1995.
