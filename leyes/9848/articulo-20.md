@@ -1,0 +1,5 @@
+ARTÍCULO 20- Programa extraordinario de fiscalización. La Contraloría General de la República y las auditorías internas de las municipalidades deberán elaborar y ejecutar, conjuntamente, un programa extraordinario de fiscalización del presupuesto de los años 2020 y 2021, así como sus liquidaciones presupuestarias, a fin de verificar el cumplimiento efectivo de lo establecido y autorizado en la presente ley.
+Las auditorías internas de las municipalidades deberán presentar anualmente, para los períodos 2020, 2021 y 2022, un informe ante el concejo municipal respectivo, para dar cuenta del programa extraordinario de fiscalización, así como de los procesos de gestión, atención de la emergencia, procesos de contratación, el nivel de ejecución presupuestaria y los resultados obtenidos, de conformidad con los términos de la presente ley.
+Rige a partir de su publicación.
+Dado en la Presidencia de la República, San José, a los veinte días del mes de mayo del año dos mil veinte.
+EJECÚTESE Y PUBLIQUESE.

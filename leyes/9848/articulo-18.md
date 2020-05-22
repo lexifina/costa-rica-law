@@ -1,0 +1,1 @@
+ARTÍCULO 18- Divulgación. Para lograr la mayor recaudación posible, las municipalidades que se acojan a la presente ley deberán realizar una adecuada campaña de divulgación, de tal forma que los contribuyentes pasivos se enteren de los alcances y los procedimientos de estos beneficios.

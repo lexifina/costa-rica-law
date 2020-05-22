@@ -1,0 +1,1 @@
+ARTÍCULO 2- De forma excepcional en los ejercicios presupuestarios 2020 y 2021, las municipalidades y los concejos municipales de distrito girarán el cero coma cinco por ciento (0,5%) de lo recaudado a favor del Órgano de Normalización Técnica del Ministerio de Hacienda, dispuesto en el artículo 13 de la Ley 7509, Impuesto sobre Bienes Inmuebles, de 9 de mayo de 1995.
