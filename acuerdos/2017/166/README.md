@@ -14,3 +14,4 @@ Regulación para el cumplimiento del servicio de trabajo comunal por parte del p
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-05-09 | la propia norma |
+| 2 | 2020-05-22 | Acuerdo 100 (2020-05-22) |
