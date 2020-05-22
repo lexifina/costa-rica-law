@@ -1,6 +1,6 @@
 # Ley sobre Arrendamiento de Locales Municipales
 
-Ley N° 2428 del 1959-09-14. SINALEVI, ficha 2528: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=2528&param2=2686&param3=1>.
+Ley N° 2428 del 1959-09-14. SINALEVI, ficha 2528: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=2528&param2=120684&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -8,3 +8,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | --- | --- | --- | --- |
 | 1 de 4 | 1986-04-04 | SINALEVI (1 normas) | 1959-09-14 |
 | 2 de 4 | 1986-04-04 | Ley 6890 | 1959-09-14 |
+| 3 de 4 | 2020-05-22 | Ley 9848 | 2020-05-20 |

@@ -1,6 +1,6 @@
 # Control de las Partidas Específicas con Cargo al Presupuesto Nacional
 
-Ley N° 7755 del 1998-02-23. SINALEVI, ficha 29252: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=29252&param2=80906&param3=1>.
+Ley N° 7755 del 1998-02-23. SINALEVI, ficha 29252: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=29252&param2=120681&param3=1>.
 
 Publicada en La Gaceta N° 55 del 1998-03-19.
 
@@ -13,3 +13,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 3 de 6 | 2000-12-13 | Sala Constitucional, resolución 11 (2000-12-13) | 2000-12-13 |
 | 4 de 6 | 2001-11-15 | Ley 8145 | 2001-10-30 |
 | 5 de 6 | 2010-06-01 | Ley 8823 | 2010-05-05 |
+| 6 de 6 | 2020-05-22 | Ley 9848 | 2020-05-20 |
