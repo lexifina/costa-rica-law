@@ -1,0 +1,2 @@
+Artículo 24.—Prohibición del uso de vehículos oficiales en actividades particulares: No se podrán utilizar vehículos propiedad de la Municipalidad de Belén para actividades que no sean propias de la institución y relacionadas a las funciones municipales.
+Además, queda prohibida la utilización de estos en actividades político-electorales.

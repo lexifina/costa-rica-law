@@ -1,0 +1,1 @@
+Artículo 32.—Sanciones: Las infracciones al presente reglamento serán sancionadas disciplinariamente de acuerdo con el Estatuto Autónomo de Servicios de la Municipalidad de Belén, el Código de Trabajo, este reglamento y la normativa atinente.

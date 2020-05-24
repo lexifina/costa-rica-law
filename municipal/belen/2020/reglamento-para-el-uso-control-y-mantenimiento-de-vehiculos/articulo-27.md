@@ -1,0 +1,1 @@
+Artículo 27.—Cancelación de autorización para conducir: La Municipalidad cancelará, en forma inmediata e indefinida, la autorización para conducir vehículos de la institución a aquellos funcionarios que, por dolo o culpa, ocasionen un accidente de tránsito grave.

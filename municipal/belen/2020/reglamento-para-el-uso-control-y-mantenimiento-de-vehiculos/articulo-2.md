@@ -1,0 +1,1 @@
+Artículo 2º—Vehículos propiedad de la Municipalidad: Son todos los vehículos adquiridos por la Municipalidad para cumplir sus fines, con cargo a las partidas presupuestarias o mediante permuta; y todos los vehículos transferidos de otras instituciones estatales o donados por personas físicas o jurídicas u organismos nacionales o internacionales.

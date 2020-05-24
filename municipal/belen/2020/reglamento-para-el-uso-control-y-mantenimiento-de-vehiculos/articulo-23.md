@@ -1,0 +1,1 @@
+Artículo 23.—Prohibición de arreglos extrajudiciales: Ningún conductor de la Municipalidad está autorizado para efectuar por su cuenta y sin la autorización correspondiente arreglos extrajudiciales en caso de accidentes con vehículos municipales.
