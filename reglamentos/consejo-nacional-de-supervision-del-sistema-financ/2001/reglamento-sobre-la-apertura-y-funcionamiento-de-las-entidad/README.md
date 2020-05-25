@@ -47,3 +47,4 @@ Reglamento sobre la Apertura y Funcionamiento de las Entidades Autorizadas y el 
 | 32 | 2013-02-26 | Reglamento 1029 (2013-02-26) |
 | 33 | 2017-05-16 | Reglamento 1332 (2017-05-16) |
 | 34 | 2019-03-05 | Reglamento 1485 (2019-03-05) |
+| 35 | 2020-05-25 | Reglamento 1577 (2020-05-25) |

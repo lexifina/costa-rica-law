@@ -1,0 +1,3 @@
+Artículo 103 bis. Del derecho de los afiliados a la información
+Cuando hagan ejercicio del derecho a transferirse previsto en el artículo 10 de la Ley de Protección al Trabajador, los afiliados al Régimen Obligatorio de Pensiones y el Fondo de Capitalización Laboral, deberán manifestar, en forma expresa, haber leído el folleto informativo a que se refiere el artículo 75 del Reglamento de Gestión de Activos, correspondiente a la entidad a la cual deseen transferirse, como condición previa y necesaria para el traslado, independientemente del medio utilizado para ello.
+(Así adicionado en sesión N° 1577 del 25 de mayo del 2020)
