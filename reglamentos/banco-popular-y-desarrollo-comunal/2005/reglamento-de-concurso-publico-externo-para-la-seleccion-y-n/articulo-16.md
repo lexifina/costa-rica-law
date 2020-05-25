@@ -1,2 +1,6 @@
-Artículo 16.—Vigencia y reformas. Este Reglamento rige a partir de su publicación en el Diario Oficial La Gaceta, no podrá ser reformado una vez que se publique el primer aviso que convoca a un concurso y deroga cualquier otra normativa que se le oponga.
+Artículo 16°—Recursos
+Contra el acto del respectivo jerarca, cabe el recurso de reposición en los términos del artículo 344 de la Ley General de la Administración Pública.
+Contra los demás actos emitidos por la Comisión, cabe recurso de revocatoria ante la Comisión, y de apelación en subsidio ante la respectiva Junta.
+Todos los recursos se presentarán en un plazo de tres días hábiles posterior a la notificación del acto.
+(Así reformado mediante sesión ordinaria N° 5736 del 25 de mayo del 2020)
 San José, 23 de setiembre del 2005.

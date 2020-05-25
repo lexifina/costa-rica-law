@@ -14,3 +14,4 @@ Reglamento de Concurso Público Externo para la Selección y Nombramiento del Au
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-10-04 | la propia norma |
+| 2 | 2020-05-25 | Reglamento 5736 (2020-05-25) |
