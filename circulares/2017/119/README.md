@@ -15,3 +15,4 @@ Actualización de la Circular No. 228-2015, Protocolo de Justicia Juvenil Restau
 | 1 | 2017-09-19 | la propia norma |
 | 2 | 2018-10-16 | Circular 136 (2018-10-16) |
 | 3 | 2019-01-29 | Circular 13 (2019-01-29) |
+| 4 | 2020-05-25 | Circular 107 (2020-05-25) |
