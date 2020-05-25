@@ -14,3 +14,4 @@ Reforma Establece restricciones para el otorgamiento de servicios nuevos de agua
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-02-28 | la propia norma |
+| 2 | 2020-05-25 | Acuerdo 93 (2020-05-25) |
