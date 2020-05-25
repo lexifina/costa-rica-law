@@ -13,3 +13,4 @@ Protocolo de desjudicialización de las contravenciones
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-08-07 | la propia norma |
+| 2 | 2020-05-25 | Circular 105 (2020-05-25) |
