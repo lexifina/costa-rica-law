@@ -17,3 +17,4 @@ Reglamento de compras y contrataciones de la Empresa de Servicios Públicos de H
 | 2 | 2019-04-22 | Reglamento 3923 (2019-04-22) |
 | 3 | 2019-05-27 | Reglamento 3933 (2019-05-27) |
 | 4 | 2020-04-27 | Reglamento 4006 (2020-04-27) |
+| 5 | 2020-05-25 | Reglamento 4014 (2020-05-25) |
