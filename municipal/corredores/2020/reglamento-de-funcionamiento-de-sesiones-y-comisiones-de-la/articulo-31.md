@@ -1,0 +1,1 @@
+Artículo 31.—Las mociones de orden deben ser conocidas, discutidas y puestas a votación manteniéndose el orden en el cual han sido presentadas. La persona que preside la sesión, no aceptará una moción de orden cuyo contenido pretenda posponer la moción que se encuentra en discusión.

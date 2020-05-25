@@ -1,0 +1,1 @@
+Artículo 29.—Antes de la aprobación del acta, cualquier regidor podrá plantear revisión de acuerdos, salvo respecto de los aprobados definitivamente. Para acordar la revisión, se necesitará la misma mayoría requerida para dictar el acuerdo. Aceptada la revisión el Presidente pondrá en discusión, el asunto a que se refiere el acuerdo.

@@ -1,0 +1,1 @@
+Artículo 7º—A las sesiones extraordinarias, se convocará a los regidores propietarios y suplentes; y a los síndicos cuando fueren a tratarse asuntos relacionados con el distrito que representan. En sesión extraordinaria se conocerán exclusivamente los asuntos indicados en la convocatoria o los que por unanimidad se acuerden.

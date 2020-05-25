@@ -1,0 +1,1 @@
+Artículo 5º—Las sesiones ordinarias y extraordinarias se efectuarán en la sede de la Municipalidad. Sin embargo, podrán celebrarse sesiones en las comunidades del cantón, cuando vayan a tratarse asuntos relativos a los intereses de los vecinos de la localidad, siempre y cuando esto se acuerde así por mayoría simple de los miembros del Concejo Municipal.

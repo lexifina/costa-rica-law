@@ -1,0 +1,1 @@
+Artículo 77.— Cuando los Regidores se ausenten de la sesión municipal previa autorización del Presidente Municipal con el objetivo de representar a la misma, se les otorgará licencia con goce de dieta; si quien se ausentare fuese el Regidor Propietario, el suplente asumirá la titularidad con todos sus derechos, devengando el reconocimiento de la respectiva dieta.

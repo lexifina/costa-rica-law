@@ -1,0 +1,1 @@
+Artículo 6º—Las sesiones extraordinarias deberán convocarse con un mínimo de 24 horas de anticipación y se señalará el objeto de la sesión mediante el acuerdo municipal o según el artículo 17, inciso m) del Código Municipal.

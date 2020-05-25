@@ -1,0 +1,1 @@
+Artículo 10.—El quórum de las sesiones será la mitad más uno de los miembros del Concejo. Deberán encontrarse en el salón de sesiones, ocupando sus respectivas curules al inicio de la sesión durante las deliberaciones y al efectuarse las votaciones. En cada caso, la persona que preside deberá verificar el quorum.

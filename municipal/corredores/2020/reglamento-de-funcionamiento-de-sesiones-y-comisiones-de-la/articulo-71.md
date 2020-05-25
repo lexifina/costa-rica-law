@@ -1,0 +1,1 @@
+Artículo 71.— Para devengar dieta completa el regidor suplente debe haber sustituido antes o después de los quince minutos de gracia contemplados en el párrafo anterior y se extiende hasta el final de la sesión o en el caso establecido en el artículo #12 de este reglamento.

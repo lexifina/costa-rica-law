@@ -1,0 +1,5 @@
+CAPÍTULO IV
+De las comisiones
+Artículo 38.—En la sesión del Concejo posterior inmediata a la instalación de sus miembros, el Presidente nombrará a los integrantes de las Comisiones Permanentes, cuya conformación podrá variarse anualmente. Toda comisión estará integrada al menos por tres miembros. Estos deberán escogerse necesariamente de los regidores propietarios, representantes de las fracciones políticas que tienen representación en la Municipalidad.
+Se consideran comisiones permanentes las siguientes: Hacienda y Presupuesto, Obras Públicas, Asuntos Sociales, Gobierno y Administración, Asuntos Jurídicos, Asuntos Ambientales, Asuntos Culturales, Condición de la Mujer, de Accesibilidad (COMAD) y la de Seguridad.
+Al integrarlas, se procurará que participen en ellas todos los partidos políticos representados en el Concejo, siempre y cuando esto sea posible a juicio del Presidente. La Comisión Permanente de Seguridad podrá tener, en calidad de asesores, a los funcionarios de las fuerzas de policías presentes en el cantón, miembros de la sociedad civil y de asociaciones comunales.

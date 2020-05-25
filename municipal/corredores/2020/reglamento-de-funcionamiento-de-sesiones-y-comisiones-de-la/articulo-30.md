@@ -1,0 +1,1 @@
+Artículo 30.—Toda iniciativa tendiente a adoptar, reformar, suspender o derogar las disposiciones reglamentarias debe ser presentada o acogida para su trámite por algún regidor o bien por el Alcalde o Alcaldesa Municipal y enviada a comisión de asuntos jurídicos para el estudio y dictamen.

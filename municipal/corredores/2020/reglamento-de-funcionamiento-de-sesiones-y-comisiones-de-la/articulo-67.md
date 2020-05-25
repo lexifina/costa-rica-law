@@ -1,0 +1,1 @@
+Artículo 67.—Las dietas de los regidores se pueden aumentar anualmente hasta en un veinte por ciento, en el caso que el presupuesto municipal aumente, con relación al del año anterior, en una proporción igual o superior al porcentaje que se fije.

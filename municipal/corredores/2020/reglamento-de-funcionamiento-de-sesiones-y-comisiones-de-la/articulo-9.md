@@ -1,0 +1,1 @@
+Artículo 9º—Las sesiones ordinarias o extraordinarias podrán celebrarse en cualquier lugar del cantón, cuando vayan a tratarse asuntos relativos a los intereses de los vecinos de la localidad, para lo cual se atenderá lo dispuesto en el artículo cinco de este reglamento.

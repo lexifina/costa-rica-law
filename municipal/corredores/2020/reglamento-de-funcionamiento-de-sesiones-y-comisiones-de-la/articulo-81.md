@@ -1,0 +1,1 @@
+Artículo 81.— Los regidores podrán gozar del beneficio del pago de gastos de transporte, hospedaje y alimentación cuando su residencia se encuentre a más de diez (10) kilómetros o cuando en representación de la Municipalidad tengan que desplazarse a distancias iguales o mayores a la indicada, esto conforme a los lineamientos que dicta la Contraloría General de la República.

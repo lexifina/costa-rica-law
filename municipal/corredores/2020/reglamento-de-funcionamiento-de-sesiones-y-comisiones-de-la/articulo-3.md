@@ -1,0 +1,3 @@
+CAPÍTULO I
+De las sesiones del Concejo
+Artículo 3º—Las sesiones ordinarias del Concejo se celebrarán el día y hora que el Concejo Municipal acuerde y de igual manera sucederá con respecto a la duración de las mismas, la cual no podrá ser mayor a cuatro horas, salvo que ante un caso de excepción, la persona que preside la sesión habilite un tiempo adicional. Se entiende por excepción, atención a: Miembros de los poderes de la República, emergencia cantonal o casos que sean autorizados por las dos terceras partes del Concejo Municipal. Dicho acuerdo deberá ser publicado en el Diario Oficial La Gaceta previamente a la celebración de dichas sesiones.

@@ -1,0 +1,1 @@
+Artículo 80.—Del pago de viáticos a regidores se hará de acuerdo a la Ley 7385 publicado en el Diario La Gaceta 60 del 25 de marzo de 1994, destinará la Municipalidad dentro de su presupuesto anual un monto que se utilizará en el pago de viáticos a los regidores basados en las siguientes cláusulas y en la tabla que publica la Contraloría General de la República.

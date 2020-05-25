@@ -1,0 +1,1 @@
+Artículo 23.—Cuando concurrieren al Concejo Miembros de los Supremos Poderes o invitados especiales, representantes de organismos oficiales o extranjeros, representantes de instituciones autónomas o semiautónomas se les recibirá en el Salón de Sesiones a la hora fijada al efecto e inmediatamente después del saludo de rigor se les concederá la palabra.

@@ -1,0 +1,1 @@
+Artículo 69.—Los regidores y Síndicos perderán las dietas cuando no se presenten dentro de los quince minutos inmediatos posteriores a la hora fijada para el inicio de la sesión o en caso que se retiren antes de la finalización de la sesión.

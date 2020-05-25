@@ -1,0 +1,1 @@
+Artículo 66.—Para elegirlos se requiere de mayoría relativa de los votos presentes, en caso de que se empate en la votación, se recurrirá a la suerte (Proceso establecido por la mayoría simple para el desempate de la votación, según artículo 29 del CM) método que decidirá los puestos en disputa.

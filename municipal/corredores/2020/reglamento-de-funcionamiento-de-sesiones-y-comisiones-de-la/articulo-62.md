@@ -1,0 +1,2 @@
+Artículo 62.—De los regidores suplentes: estarán sometidos a las mismas disposiciones que regulan a los regidores propietarios.
+Sustituirán a los propietarios de su mismo partido político, en los casos de ausencias temporales y ocasionales, y serán llamados por el Presidente Municipal de entre los presentes y según el orden de elección. El suplente que no atienda el llamado de la Presidencia del Concejo Municipal a ocupar la curul del regidor propietario que deberá suplir, se tendrá como ausente de la sesión y perderá el derecho a dieta.

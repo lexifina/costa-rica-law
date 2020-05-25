@@ -1,0 +1,1 @@
+Artículo 52.—Finalizadas las exposiciones de los particulares el Presidente concederá la palabra a los regidores que lo soliciten con el fin de intercambiar brevemente opiniones con los visitantes sobre el asunto de que se trate, para lo cual se aplicarán las normas anteriores en relación al uso de la palabra de los regidores.

@@ -1,0 +1,1 @@
+Artículo 8º—La convocatoria se notificará personalmente al funcionario en el medio que deberá señalar el mismo, en la primera sesión que se convoque. La convocatoria por escrito será para los regidores y síndicos que no estuvieron presentes en la sesión en el momento en que se toma el acuerdo de celebrar la sesión extraordinaria o el medio que previamente han señalado.

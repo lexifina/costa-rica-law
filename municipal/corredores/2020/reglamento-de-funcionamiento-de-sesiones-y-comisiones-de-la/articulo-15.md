@@ -1,0 +1,1 @@
+Artículo 15.—Las sesiones del Concejo se desarrollarán conforme con la orden o agenda previamente elaborada, la cual podrá ser modificada o alterada mediante acuerdo aprobado de las dos terceras partes de los miembros presentes del Concejo Municipal.

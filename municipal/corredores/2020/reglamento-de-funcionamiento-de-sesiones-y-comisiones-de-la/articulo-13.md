@@ -1,0 +1,1 @@
+Artículo 13.—El regidor propietario que llegase después de transcurridos los quince minutos contados a partir de la hora señalada para iniciar la sesión, perderá el derecho de devengar la dieta, y el derecho a voto aunque no se hubiere efectuado su sustitución, si no hubiere sido sustituido, conservará su derecho a voz.

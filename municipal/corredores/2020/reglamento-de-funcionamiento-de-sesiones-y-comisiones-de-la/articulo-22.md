@@ -1,0 +1,1 @@
+Artículo 22.—El Presidente Municipal no dará curso y declarará fuera de orden las proposiciones o mociones de orden que evidentemente resulten improcedentes; o que simplemente vayan a dilatar u obstaculizar el curso normal del debate o la resolución de un asunto. Para ello el Presidente dará un razonamiento verbal que constará en el acta de la sesión.
