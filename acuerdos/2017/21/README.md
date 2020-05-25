@@ -16,3 +16,4 @@ Establece restricciones para el otorgamiento de servicios nuevos de agua potable
 | 1 | 2017-02-03 | la propia norma |
 | 2 | 2017-08-21 | Acuerdo 225 (2017-08-21) |
 | 3 | 2018-12-11 | Acuerdo 336 (2018-12-11) |
+| 4 | 2020-05-25 | Acuerdo 93 (2020-05-25) |
