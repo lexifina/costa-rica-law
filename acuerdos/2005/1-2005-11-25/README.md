@@ -23,3 +23,4 @@ Lineamientos Generales para la aplicación del Reglamento para la Calificación 
 | 8 | 2016-07-07 | Acuerdo 2335 (2016-07-07) |
 | 9 | 2016-07-15 | Reglamento 2456 (2016-07-15) |
 | 10 | 2019-08-01 | Acuerdo 2336 (2019-08-01) |
+| 11 | 2020-05-25 | Resolución 1759 (2020-05-25) |
