@@ -14,3 +14,4 @@ Reglamento de cobro administrativo y judicial de la Municipalidad de Moravia
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-05-04 | la propia norma |
+| 2 | 2020-05-25 | Reglamento municipal 4 (2020-05-25) |
