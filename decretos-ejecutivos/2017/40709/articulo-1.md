@@ -1,4 +1,5 @@
-N° 40709 -MTSS
+N° 40709 –MTSS
+(Nota de Sinalevi: Mediante el artículo 11° del decreto ejecutivo N° 42478 del 26 de mayo del 2020, “Flexibilización reglamentaria para ayudar a patronos con deuda ante la DESAF como medida provisional para enfrentar la situación de emergencia ante el COVID-19”, se acordó que en todo lo que no se oponga, la DESAF deberá continuar aplicando el presente decreto ejecutivo)
 EL PRESIDENTE DE LA REPÚBLICA
 Y EL MINISTRO DE TRABAJO Y SEGURIDAD SOCIAL
 En uso de las facultades y atribuciones que les confieren los artículos 140, incisos 3), 8), 18) y 20), y 146 de la Constitución Política; y con fundamento en los numerales 25, 26. 27 y 28 de la Ley N°6227, del 2 de mayo de 1978, Ley General de la Administración Pública; en las disposiciones conferidas en la Ley N° 5662, del 23 de diciembre de 1974, Ley de Desarrollo Social y Asignaciones Familiares, y su reforma integral mediante Ley N° 8783, del 13 de octubre de 2009; y Reglamento a la Ley de Desarrollo Social y Asignaciones Familiares N° 35873-MTSS.

@@ -14,3 +14,4 @@ Reglamento para el cobro de patronos morosos del Fondo de Desarrollo Social y As
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-11-16 | la propia norma |
+| 2 | 2020-05-26 | Decreto Ejecutivo 42478 (2020-05-26) |
