@@ -13,3 +13,4 @@ Reglamento del Sistema Integrado de Evaluación del Desempeño del Poder Judicia
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-12-16 | la propia norma |
+| 2 | 2020-05-26 | Circular 108 (2020-05-26) |
