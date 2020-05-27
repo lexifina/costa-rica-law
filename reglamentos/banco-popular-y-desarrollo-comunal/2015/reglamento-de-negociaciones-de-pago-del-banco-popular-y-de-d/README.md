@@ -17,3 +17,4 @@ Reglamento de Negociaciones de Pago del Banco Popular y de Desarrollo Comunal
 | 2 | 2019-05-29 | Reglamento 5643 (2019-05-29) |
 | 3 | 2019-11-13 | Reglamento 5687 (2019-11-13) |
 | 4 | 2020-04-29 | Reglamento 5729 (2020-04-29) |
+| 5 | 2020-05-27 | Reglamento 5737 (2020-05-27) |
