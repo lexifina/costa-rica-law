@@ -1,0 +1,13 @@
+MUNICIPALIDAD DE CORREDORES
+El Concejo Municipal de Corredores por medio del acuerdo N° 10 de la Sesión Ordinaria N° 200, celebrada el 06 de abril del 2020, acuerda: Conforme la recomendación de la Comisión de Jurídicos, aprobar el Reglamento Visado Único Municipal de Planos a Catastrar.
+Considerando:
+1º—Que el visado Municipal de Planos en la Municipalidad de Corredores, es un acto en el cual el Departamento de Catastro, Valoración y SIG aprueba el fraccionamiento o división de fincas, con el previo cumplimiento de la normativa afín que asegura su legalidad.
+2º—Que el Tribunal Contencioso Administrativo en la sentencia N° 00185, Expediente 11-001512-1027-CA, con fecha de 18 de mayo de 2012, realiza el siguiente pronunciamiento sobre la existencia de un visto para trámites de catastro únicamente, indicando:
+“(…)” Para todo fraccionamiento de terrenos o inmuebles situados en distritos urbanos y demás áreas sujetas al control urbanísticos, será indispensable haber visado antes, en la oficina municipal autorizada, el plano que indique la situación y cabida de las porciones resultantes y que, además el notario o funcionamiento público autorizante, de fe en el acto de extensión u otorgamiento del documento respectivo, de que la división coincide con la que exprese dicho plano.
+Los fraccionamientos que se hagan por documentos privados, al igual que en los que documentos públicos se reputaran de ineficientes si carecen de razón notarial o municipal sobre la preexistencia del plano visado. “(La negrita es suplida). Como pueden colegirse fácilmente, la norma legal establece un único acto de visado municipal y un único supuesto factico que toma lo exigible.
+3º—La Procuraduría General de la República en el Dictamen N° C-333-2014 del 14 de octubre de 2014, indica:
+“Entonces no existen dos visados municipales, uno para efectos catastrales y otro para efectos registrales, que se desprenden de los artículos 33 y 34 de la Ley de Planificación Urbana y los artículos 79 y 81 del Reglamento a la Ley de Catastro Nacional; sino que todos esos numerales hacen referencia a un único visado municipal que se consigna en los planos para fracciones y urbanizaciones como paso previo y obligado a la inscripción registral”.
+4º—Al igual que los dictámenes C-014-2013, C-046-2014, C-0154-2014.
+CAPÍTULO I
+Disposiciones generales
+Artículo 1º—La Municipalidad de Corredores se acoge a la normativa vigente y a partir de su aprobación, otorga un único Visado Municipal digital. Con el cambio establecido no se valdrá como Visado Municipal para inscripción registral, la figura del Visto Bueno para inscripción catastral que anteriormente se otorgaba.
