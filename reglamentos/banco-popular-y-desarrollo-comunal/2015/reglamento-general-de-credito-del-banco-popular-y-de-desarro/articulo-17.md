@@ -1,1 +1,2 @@
-Artículo 17.—La Gerencia General Corporativa definirá, dentro de un rango del 0% al 5% el porcentaje de las comisiones que se cobrarán sobre los préstamos, otras modalidades de créditos o sobre otras gestiones relacionadas con su concesión y recuperación, así como la frecuencia de su cobro y base de cálculo. Dichas comisiones, podrán ser financiadas.
+Artículo 17.
+La Gerencia General Corporativa definirá, dentro de un rango del 0% al 5% el porcentaje de las comisiones que se cobrarán sobre los préstamos, otras modalidades de créditos o sobre otras gestiones relacionadas con su concesión y recuperación, así como la frecuencia de su cobro y base de cálculo. Dichas comisiones, podrán ser financiadas.

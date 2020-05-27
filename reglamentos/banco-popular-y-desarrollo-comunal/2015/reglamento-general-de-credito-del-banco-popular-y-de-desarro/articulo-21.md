@@ -1,8 +1,11 @@
-*Artículo 21.—Para determinar la capacidad de pago para la parte deudora, personas físicas o jurídicas, sin actividad productiva, se determinará según el ingreso. En el caso de personas físicas se considerará, cuando corresponda, los ingresos del núcleo familiar.
+Artículo 21.
+Para determinar la capacidad de pago para la parte deudora, personas físicas o jurídicas, sin actividad productiva, se determinará según el ingreso. En el caso de personas físicas se considerará, cuando corresponda, los ingresos del núcleo familiar.
 Para las personas jurídicas o físicas con actividad productiva, se determinará la capacidad de pago con base en supuestos técnicos de la actividad que genera el ingreso.
-Considerando siempre, en ambos casos, los escenarios de estrés con fundamento en la metodología aprobada por la Junta Directiva Nacional.
+Considerando siempre, en ambos casos, las escenarios de estrés con fundamento en la metodología aprobada por la Junta Directiva Nacional.
 El nivel de endeudamiento se determinará de la Relación Carga Financiera Total (Amortización, intereses y pólizas) / ingreso neto o flujo de caja libre y estarán diferenciados por segmentos de ingresos y perfil de riesgo.
-• Los niveles de endeudamiento máximos para personas físicas se establecen en: escenario normal hasta un 75%, escenario moderado hasta un 80% y en escenario severo hasta un 85%; para personas jurídicas los niveles máximos serán hasta de un 80% en escenario normal, hasta un 85% en escenario moderado y en escenario severo hasta de un 87.5%; aplicando las variaciones en las tasas de interés, tipo de cambio y por concentraciones de compradores y proveedores.
+• Los niveles de endeudamiento máximos para personas físicas se establecen en:
+escenario normal hasta un 75%, escenario moderado hasta un 80% y en escenario severo hasta un 85%; para personas jurídicas los niveles máximos serán hasta de un 80% en escenario normal, hasta un 85% en escenario moderado y en escenario severo hasta de un 87.5%; aplicando las variaciones en las tasas de interés, tipo de cambio y por concentraciones de compradores y proveedores.
 • La Junta Directiva Nacional establecerá metodologías diferenciadas para medir la capacidad de pago.
 • Queda autorizada la Gerencia General Corporativa para establecer porcentajes de endeudamiento diferenciados según los segmentos y perfil de riesgos definidos siempre y cuando se mantenga el principio de igualdad en cada uno de los estratos definidos y no sobrepasen los topes establecidos en este Reglamento.
-* Este artículo fue modificado por la Junta Directiva Nacional, en sesión 5205 del 28 de agosto de 2014. Publicado en el Alcance Digital N. 60 de la Gaceta No. 207 del 28 de octubre de 2014.
+* Este artículo fue modificado por la Junta Directiva Nacional, en sesión 5205 del 28 de agosto de 2014.
+Publicado en el Alcance Digital N. 60 de la Gaceta No. 207 del 28 de octubre de 2014.

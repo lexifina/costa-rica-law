@@ -1,1 +1,2 @@
-Artículo 7º—En caso de cédulas hipotecarias, sólo se aceptarán vencidas y por la emisión total de las cédulas hipotecarias sobre todos los grados. En tales casos, el plazo en el que se concederá el crédito será hasta un año antes de su prescripción, salvo que éste sea interrumpido legalmente, acto que deberá autorizar la persona deudora de previo o durante la formalización del crédito.
+Artículo 7°
+En caso de cédulas hipotecarias, sólo se aceptarán vencidas y por la emisión total de las cédulas hipotecarias sobre todos los grados. En tales casos, el plazo en el que se concederá el crédito será hasta un año antes de su prescripción, salvo que éste sea interrumpido legalmente, acto que deberá autorizar la persona deudora de previo o durante la formalización del crédito.
