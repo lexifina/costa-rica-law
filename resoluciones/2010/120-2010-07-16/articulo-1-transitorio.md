@@ -1,1 +1,0 @@
-Transitorio I.—La Municipalidad o Concejo Municipal de distrito según corresponda, deberá definir y documentar las regulaciones internas que se indican en el punto 10 de estas directrices, y estar debidamente aprobadas por la autoridad competente, a más tardar el 31 de diciembre de 2010.

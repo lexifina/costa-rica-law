@@ -1,3 +1,0 @@
-10º—Responsabilidad de velar por la calidad de la información y la definición de regulaciones internas
-La autoridad superior administrativa de cada municipalidad o concejo municipal de distrito es responsable de velar porque la información incluida en el SIIM y respaldada en el expediente sea en todo momento veraz, confiable y oportuna, para ello deberá establecer las regulaciones internas pertinentes para lograr una oportuna recopilación, registro y validación de los datos en el SIIM.
-Las regulaciones internas deben contemplar, entre otros aspectos, los funcionarios designados para ejercer cada rol, sus responsabilidades, el establecimiento de plazos, así como cualquier otro aspecto que sea necesario para atender las presentes directrices.
