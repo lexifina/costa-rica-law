@@ -1,0 +1,4 @@
+Artículo 24.—Etapa planificación. La etapa de planificación comprende la formulación por parte de las Organizaciones de los proyectos a presentar ante la Gerencia Técnica del PANI para su respectivo análisis.
+Una vez analizado por la Gerencia Técnica y contando con aval positivo, el proyecto es remitido a la Unidad de Administración de Proyectos para su revisión en apego de la Guía de Formulación de Proyectos del PANI, y posteriormente al Departamento Financiero Contable, cuando corresponda, para su aprobación final.
+Una vez el Proyecto cuente con las aprobaciones mencionadas, será conocido por la Junta Directiva y será remitido a la Asesoría Jurídica para la confección del Convenio y la firma respectiva, en los casos que corresponda.
+En caso de que el proyecto presentado no cuente con alguno de los avales mencionados, podrá solicitarse subsanaciones o se realizará el comunicado de que se procede con el archivo con las justificaciones respectivas.

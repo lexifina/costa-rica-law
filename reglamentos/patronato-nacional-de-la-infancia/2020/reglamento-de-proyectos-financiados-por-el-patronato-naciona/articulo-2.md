@@ -1,0 +1,1 @@
+Artículo 2º—Definición de proyectos. Para el presente reglamento, se entenderá por proyecto todas aquellas actividades coordinadas y relacionadas entre sí que buscan cumplir un objetivo específico, resultado, producto o servicio dentro de un plazo determinado que cuentan con alcance, tiempo y costo definido.
