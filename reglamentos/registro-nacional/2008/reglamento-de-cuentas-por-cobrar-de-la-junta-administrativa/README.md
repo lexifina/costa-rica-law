@@ -15,3 +15,4 @@ Reglamento de cuentas por cobrar de la Junta Administrativa del Registro Naciona
 | --- | --- | --- |
 | 1 | 2008-04-01 | la propia norma |
 | 2 | 2009-06-26 | Reglamento 24 (2009-06-26) |
+| 3 | 2020-05-28 | Reglamento 11 (2020-05-28) |
