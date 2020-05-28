@@ -1,0 +1,1 @@
+Artículo 19.—Es estrictamente prohibido que inquilino alguno tenga más de dos derechos o locales inscritos a su nombre, y no permitirá en forma alguna la cesión de parte de un tramo, así como el subarriendo o traspaso subrepticio del mismo, los cuales se consideran como causales para la resolución del contrato.

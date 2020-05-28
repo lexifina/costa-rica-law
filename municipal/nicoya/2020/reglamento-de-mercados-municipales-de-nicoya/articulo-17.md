@@ -1,0 +1,1 @@
+Artículo 17.—Los alquileres deberán ser pagados por mensualidades adelantadas, en la primera quincena de cada mes en la oficina correspondiente. La falta de pago y, por ende, el atraso en el pago de una mensualidad, dará derecho a la Municipalidad para dar por terminado el contrato y recurrir a la vía judicial a hacer valer sus derechos.

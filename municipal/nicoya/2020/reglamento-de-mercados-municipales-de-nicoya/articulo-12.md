@@ -1,0 +1,9 @@
+Artículo 12.—Para ser inquilino de un local del Mercado Municipal es necesario:
+a) Ser mayor de edad.
+b) Ser de reconocida buena conducta.
+c) No haber sido procesado anteriormente por delitos o contravenciones contra la propiedad, por lo que todo oferente que desee optar por un local comercial en un mercado municipal debe presentar su hoja de delincuencia.
+d) Presentar el respectivo permiso del Ministerio de Salud.
+e) Presentar certificaciones en que conste estar al día con el pago de impuestos, tasas y contribuciones municipales, y cuotas obrero patronal de CCSS.
+f) Únicamente podrán ser inquilinos, además de los costarricenses, los extranjeros que cumplan los requisitos que, para efectos de ejercer el comercio en el país, exige el artículo 8 del Código de Comercio.
+Podrán también ser inquilinos los causahabientes a título universal y los cesionarios del adjudicatario que puedan demostrar que necesitan el local comercial y los ingresos provenientes de este y que no percibe ingresos provenientes de otros trabajos, ya que el fin de los locales es brindar ingresos a las familias que lo necesitan; pero los cesionarios para su validez necesitan de la aprobación del Concejo Municipal, previa consulta del caso particular al Departamento Legal, sin cuya autorización estos contratos carecerán de valor, caso en el cual el principal podrá ser resuelto de pleno derecho por la Municipalidad.
+g) Es de carácter obligatorio que todo negocio dentro del mercado sea atendido personalmente por el arrendatario, salvo que exista una justificación de fuerza mayor debidamente autorizada por la administración del mercado por un periodo determinado, si la administración del local comercial se lleva a cabo por terceras personas diferentes de un familiar el inquilino deberá aportar la respectiva orden patronal u documento idóneo que compruebe dicho acto.

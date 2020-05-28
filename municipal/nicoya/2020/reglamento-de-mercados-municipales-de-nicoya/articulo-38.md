@@ -1,0 +1,2 @@
+Artículo 38.—Cuando se trate de unificar dos tramos contiguos el trámite deberá realizarse directamente en el Departamento de Ingeniería siempre y cuando se tenga el visto bueno del Administrador de Mercado y que no violente lo establecido en el presente Reglamento.
+Una vez reunido el tramo no se puede volver a dividir, para efectos de cobro de alquiler y registro, queda un solo tramo con un único dueño.

@@ -1,0 +1,1 @@
+Artículo 16.—El Consejo municipal autorizará el cambio de destino del puesto para el expendio de artículos o mercaderías distintas a las autorizadas. Para tal efecto, el interesado deberá solicitarlo por escrito a la alcaldía, indicando claramente el número del puesto, el artículo que actualmente expende y el que aspira vender, previa autorización.

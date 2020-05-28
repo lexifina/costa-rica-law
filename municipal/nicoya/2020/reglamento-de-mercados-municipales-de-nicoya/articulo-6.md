@@ -1,0 +1,4 @@
+CAPÍTULO III
+Del administrador
+6º—Habrá una Comisión Permanente de Mercados Municipales, compuesta por siete miembros: tres miembros del Consejo Municipal, tres concesionarios inquilinos del mercado municipal de Nicoya, inscritos como tales en los registros que la Municipalidad lleva para tal efecto y el administrador del mercado -los seis miembros serán designados por el presidente del Consejo Municipal como así lo estipula el artículo 34 del Código Municipal en su inciso g)-, esta comisión se nombrará cada 2 años, en la primera quincena del mes de mayo.
+Tiene como funciones prioritarias: asesorar, vigilar el mantenimiento y ordenamiento de lo estipulado en este reglamento, coordinar y dictaminar todo lo referente a permisos de remodelación, cambios de línea comercial y mejoras del inmueble, dictaminando y recomendando al Consejo Municipal lo que considere prudente.

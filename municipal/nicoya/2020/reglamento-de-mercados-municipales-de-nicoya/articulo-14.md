@@ -1,0 +1,1 @@
+Artículo 14.—Presentada en forma la solicitud de traspaso, el Consejo Municipal la probará en caso de que los interesados estén al día en el pago del arrendamiento, impuestos, patentes y servicios municipales, y lo comunicará así a la administración del mercado para los efectos consiguientes.

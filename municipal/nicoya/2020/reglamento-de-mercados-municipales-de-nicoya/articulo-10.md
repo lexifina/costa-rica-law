@@ -1,0 +1,1 @@
+Artículo 10.—Los empleados del Mercado estarán sujetos a las disposiciones que determina el Código Municipal y demás cuerpos legales y reglamentarios aplicables, y tendrán las funciones que el contrato y el Alcalde Municipal les designe.

@@ -1,0 +1,1 @@
+Artículo 27.—No se permitirá mantener basura, desechos, cajas vacías, cosas en mal estado, yerbas secas, cosas inflamables, etc., sobre los techos de los locales o tramos o negocios. El acto de desobediencia reiterada por parte de algún inquilino incurrirá en pérdida del derecho de explotación que le confiere la Municipalidad.

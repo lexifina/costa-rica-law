@@ -1,0 +1,2 @@
+Artículo 24.—Queda terminantemente prohibido al inquilino introducir mejoras de cualquier clase en los locales comerciales del Mercado, sin previa solicitud escrita ante el Administrador. Dándosele el trámite que establece el artículo anterior.
+Toda mejora que introduzca se tendrá por incorporada al inmueble respectivo a la terminación del contrato por cualquier causa, sin que la Municipalidad tenga que pagar el costo de la misma.
