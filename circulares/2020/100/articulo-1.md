@@ -1,4 +1,5 @@
 N° 100-2020
+(Nota de Sinalevi: Mediante sesión N° 29-2020 del 28 de mayo del 2020, y publicado en el Boletín Judicial N° 104 del 2 de junio del 2020, mediante circular N° 112-2020 se acordó prorrogar los efectos del acuerdo de la sesión N° 18-2020 celebrada el 2 de abril del año en curso, artículo Único, así como lo dispuesto en el acuerdo de sesión extraordinaria N° 26-2020, celebrada el 13 de mayo de 2020, artículo Único, a partir del día 1 de junio de 2020 y hasta el día 15 de dicho mes. Se recuerda todos los despachos el deber de respetar las medidas sanitarias, aforo máximo y distanciamiento social establecido por el Ministerio de Salud en sus diferentes lineamientos, así como en los acuerdos de esta Corte y el Consejo Superior.”)
 ASUNTO: Acuerdo de Corte Plena. Sesión N° 26-2020 del 13 de mayo del 2020, en atención a la declaratoria de emergencia nacional, debido a la situación de emergencia sanitaria provocada por la enfermedad COVID-19.
 A LOS DESPACHOS JUDICIALES DE PAÍS,
 ABOGADOS, ABOGADAS Y PÚBLICO

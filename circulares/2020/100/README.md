@@ -13,3 +13,4 @@ Acuerdo de Corte Plena. Sesión N° 26-2020 del 13 de mayo del 2020, en atenció
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-05-13 | la propia norma |
+| 2 | 2020-05-28 | Circular 112 (2020-05-28) |
