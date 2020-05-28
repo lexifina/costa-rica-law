@@ -15,3 +15,4 @@ Reglamento de Sesiones y Acuerdos del Concejo Municipal de La Unión y sus Comis
 | --- | --- | --- |
 | 1 | 2008-09-16 | la propia norma |
 | 2 | 2018-01-11 | Reglamento municipal 141 (2018-01-11) |
+| 3 | 2020-05-28 | Reglamento municipal 7 (2020-05-28) |

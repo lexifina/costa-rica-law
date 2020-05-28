@@ -1,3 +1,2 @@
-Artículo 3º—Las sesiones extraordinarias del Concejo Municipal se llevarán a cabo cuando se requieran. Pueden llevarse a cabo el día, lugar y hora que así determine el Concejo1.
-__________
-1 De conformidad a los artículos 36 y 37 del Código Municipal y al Dictamen AI-049-2008 del 14 de febrero del 2008 de la Auditoría Interna de la Municipalidad de La Unión.
+Artículo 3º—Las sesiones extraordinarias del Concejo Municipal se realizarán los primeros y terceros martes de cada mes en horario de las 19:00 a las 22:00 horas, en el Salón de Sesiones del Concejo Municipal.
+(Así reformado mediante sesión ordinaria N° 7 del 28 de mayo del 2020)
