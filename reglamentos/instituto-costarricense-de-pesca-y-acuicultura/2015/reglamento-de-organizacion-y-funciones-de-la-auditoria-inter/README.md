@@ -14,3 +14,4 @@ Reglamento de Organización y Funciones de la Auditoría Interna del Instituto C
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-05-04 | la propia norma |
+| 2 | 2020-05-29 | Acuerdo 112 (2020-05-29) |
