@@ -28,5 +28,8 @@ v) Los vehículos conducidos o que transporten personas con discapacidad, cuando
 w) Los vehículos de las personas que deban trasladarse estrictamente para brindar soporte médico o cuido de personas en estado terminal, con enfermedad grave o de asistencia a personas con discapacidad o personas adultas mayores.
 x) Los vehículos de las personas que deban trasladarse estrictamente para asistir a la cita de Revisión Técnica Vehicular, debidamente acreditado con el comprobante de la cita programada.
 (Así adicionado el inciso anterior por el artículo 3° del decreto ejecutivo N° 42328 del 28 de abril del 2020)
-y) Los vehículos de las personas que requieran trasladarse estrictamente con ocasión de una reservación a los hoteles habilitados por el Ministerio de Salud, sea para el ingreso o salida, debidamente acreditado con el comprobante de reservación correspondiente.
+y) Los vehículos de las personas que requieran trasladarse estrictamente con ocasión de una reservación a los hoteles, cabinas o establecimientos de alojamiento habilitados por el Ministerio de Salud, sea para el ingreso o salida, debidamente acreditado con el comprobante de reservación correspondiente.
 (Así adicionado el inciso anterior por el artículo 3° del decreto ejecutivo N° 42348 del 14 de mayo del 2020)
+(Así reformado el inciso anterior por el artículo 3° del decreto ejecutivo N° 42373 del 29 de mayo del 2020)
+z) Los vehículos de las personas que requieran trasladarse estrictamente con ocasión de la realización de la prueba de manejo, debidamente acreditado con el comprobante de matrícula emitido por el sistema de citas de la Dirección General de Educación Vial.”
+(Así adicionado el inciso anterior por el artículo 3° del decreto ejecutivo N° 42373 del 29 de mayo del 2020)

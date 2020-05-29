@@ -17,3 +17,4 @@ Restricción vehicular diurna ante el estado de emergencia nacional en todo el t
 | 2 | 2020-04-28 | Decreto Ejecutivo 42328 (2020-04-28) |
 | 3 | 2020-04-30 | Decreto Ejecutivo 42330 (2020-04-30) |
 | 4 | 2020-05-14 | Decreto Ejecutivo 42348 (2020-05-14) |
+| 5 | 2020-05-29 | Decreto Ejecutivo 42373 (2020-05-29) |
