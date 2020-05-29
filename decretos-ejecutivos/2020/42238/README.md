@@ -20,3 +20,4 @@ Medidas sanitarias en materia migratoria para prevenir los efectos del COVID-19
 | 5 | 2020-05-14 | Decreto Ejecutivo 42347 (2020-05-14) |
 | 6 | 2020-05-15 | Decreto Ejecutivo 42350 (2020-05-15) |
 | 7 | 2020-05-20 | Decreto Ejecutivo 42353 (2020-05-20) |
+| 8 | 2020-05-29 | Decreto Ejecutivo 42374 (2020-05-29) |
