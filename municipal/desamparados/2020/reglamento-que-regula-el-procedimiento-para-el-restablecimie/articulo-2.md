@@ -1,0 +1,1 @@
+Artículo 2º—Área de influencia geográfica de aplicación. Este reglamento será aplicado en el cantón de Desamparados para las obras que requieran permiso municipal de acuerdo con la Ley de Construcciones vigente y que presenten alguna irregularidad que el propietario no estuvo anuente a corregir.
