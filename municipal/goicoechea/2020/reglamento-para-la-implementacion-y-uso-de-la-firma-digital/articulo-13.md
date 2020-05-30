@@ -1,0 +1,1 @@
+Artículo 13.—Que los documentos en soporte electrónico, y con firma digital cuenten con una política de respaldos periódicos de conformidad con el artículo 16 de la Ley General de Control Interno Nº 8292, que garantice los parámetros de validez administrativa legal y valor científico cultural establecidos en Tablas de Plazos de Conservación y Eliminación de documentos.

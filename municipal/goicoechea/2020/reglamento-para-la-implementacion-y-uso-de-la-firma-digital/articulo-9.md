@@ -1,0 +1,1 @@
+Artículo 9º—Realizar las campañas y actividades de educación para los funcionarios que les permita aprender a utilizar los mecanismos de firma digital, así corno reconocer la equivalencia jurídica y la eficacia probatoria de los documentos electrónicos firmados digitalmente con respecto a los documentos en papel con firmas autógrafas.

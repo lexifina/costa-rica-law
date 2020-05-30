@@ -1,0 +1,1 @@
+Artículo 11.—Deberá la Municipalidad conservar los Metadatos que permitan el acceso a la información en un futuro, de acuerdo con los lineamientos de la Directriz con Regulaciones Técnica sobre Administración de Documentos producidos por medios automatizados y demás normativa vigente.

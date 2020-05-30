@@ -1,0 +1,1 @@
+Artículo 2º—Que los artículos 3 y 9 de la Ley de Certificados, Firmas Digitales y Documentos Electrónicos reconocen el mismo valor y eficacia probatoria de los documentos electrónicos firmados digitalmente con respecto a los documentos físicos firmados de manera manuscrita.

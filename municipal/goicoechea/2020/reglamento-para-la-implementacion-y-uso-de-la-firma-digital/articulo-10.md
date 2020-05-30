@@ -1,0 +1,1 @@
+Artículo 10.—Que la implementación de este tipo de programas sea efectuada o bien, supervisada por un grupo interdisciplinario compuesto por los informáticos de la Institución, funcionarios de la Administración superior, Jefatura de Archivo Central y un miembro de la Asesoría legal.

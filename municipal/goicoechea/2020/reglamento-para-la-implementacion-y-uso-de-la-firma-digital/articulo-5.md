@@ -1,0 +1,1 @@
+Artículo 5º—La Municipalidad deberá incluir los mecanismos de firma digital certificada e implementar procesos internos soportados en Plataformas Digitales que utilicen la capacidad de autenticación y de firma digital certificada de sus funcionarios y que potencien la reducción en el uso de papel y la mejora de su eficiencia y eficacia operativa.

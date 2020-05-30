@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Del respaldo físico de los documentos firmados digitalmente
+Artículo 17.—La implementación de la firma digital, no propone la eliminación total de los documentos en papel, aun cuando se busca la reducción del soporte físico, no se puede negar a los ciudadanos, organizaciones y empresas, la utilización de medios físicos o en papel. En tanto, la Municipalidad no cuente con una Plataforma Tecnológica con un software especializado que le de garantía de su gestión a sus usuarios en general. Deberá al menos dejar un respaldo físico de los documentos sustantivos que firme. Se entenderá que este respaldo es de referencia y que la validez legal corresponde al documento firmado ya sea producido y firmado electrónicamente o digitalizado y firmado digitalmente.

@@ -1,0 +1,1 @@
+Artículo 18.—Los documentos sustantivos que se derivan de las funciones específicas de la Municipalidad. Mientras que no será necesario dejar respaldo de aquellos que correspondan a borradores o versiones.

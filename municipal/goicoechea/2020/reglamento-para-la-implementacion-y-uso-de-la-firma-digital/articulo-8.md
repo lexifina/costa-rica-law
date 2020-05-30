@@ -1,0 +1,1 @@
+Artículo 8º—La Municipalidad deberá dentro de sus posibilidades presupuestarias, modernizar los sistemas de información que tengan en operación, en los cuales ofrezcan servicios de cara al ciudadano o de utilización interna, para incorporar mecanismos de firma de documentos y transacciones electrónicas mediante firma digital certificada cuando los trámites así lo requieran.
