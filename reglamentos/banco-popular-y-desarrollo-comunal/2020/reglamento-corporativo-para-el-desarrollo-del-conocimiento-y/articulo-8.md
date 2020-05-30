@@ -1,0 +1,1 @@
+Artículo 8°—De las excepciones. La JDN, o la respectiva Junta, puede autorizar en forma excepcional una capacitación que no se encuentre prevista en el respectivo Plan Anual de Capacitación, para lo cual deberá motivar las razones que fundamentan tal decisión.

@@ -1,0 +1,3 @@
+Artículo 6°—Los objetivos de las actividades de desarrollo de competencias y de conocimientos. Son objetivos de las actividades de desarrollo de competencias y conocimientos las siguientes:
+a. Implementar un sistema de aprendizaje y crecimiento enfocado al desarrollo de las competencias y conocimientos de los temas estratégicos de la industria financiera.
+b. Promover la actualización de los miembros de los Órganos de Dirección, miembros de Juntas de Crédito Local así como delegados y delegadas de la Asamblea de los Trabajadores y Trabajadoras del Conglomerado en la actividad y normativa que los regula.
