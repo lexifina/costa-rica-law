@@ -1,0 +1,7 @@
+Artículo 2°.- Adiciónese el artículo 5 bis a la Directriz N° 077-S-MTSS-MIDEPLAN del 25 de marzo de 2020, Sobre el funcionamiento de las instituciones estatales durante la declaratoria de emergencia nacional por el COVID-19, para que en adelante se lea de la siguiente manera:
+“Artículo 5° bis.- Las modalidades de jornada acumulativa y horario escalonado, deberán regirse por las siguientes reglas:
+a) Jornada acumulativa: los funcionarios podrán solicitar la modificación de la jornada de trabajo para laborar cuatro días continuos hasta 10 horas por día, con lo cual tendrán libre, total o parcialmente, el quinto cualquier día de la semana laboral, que podrá ser cualquiera de lunes a viernes, según corresponda de acuerdo a los días que se laboren bajo esta modalidad y en proporción a la cantidad de horas que conformen su jornada laboral .
+b) Horarios escalonados: se autorizan los rangos de horario de ingreso las 6:30 horas, 8:00 horas y 9:30 horas. Los horarios de salida deberán adaptarse a las reglas específicas que rijan la jornada laboral en cada institución.
+En caso de que se modifiquen, sin disminuir, las horas de atención al público, la entidad o institución deberá informar previamente al público mediante un medio de comunicación masivo.
+La jornada acumulativa y los horarios escalonados podrán aplicarse de manera simultánea y en modalidad de teletrabajo.
+En la observancia de la presente Directriz, se invita a la Administración Pública Descentralizada a la aplicación de las modalidades reguladas en el presente artículo.
