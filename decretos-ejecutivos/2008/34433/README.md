@@ -20,3 +20,4 @@ Reglamento a la Ley de Biodiversidad
 | 5 | 2017-06-29 | Decreto Ejecutivo 40479 (2017-06-29) |
 | 6 | 2017-10-18 | Decreto Ejecutivo 40725 (2017-10-18) |
 | 7 | 2017-10-19 | Decreto Ejecutivo 40729 (2017-10-19) |
+| 8 | 2020-06-01 | Decreto Ejecutivo 42450 (2020-06-01) |
