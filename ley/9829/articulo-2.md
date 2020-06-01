@@ -1,0 +1,4 @@
+ARTÍCULO 2- Hecho generador
+El hecho generador del impuesto establecido en el artículo 1 ocurre en las ventas a nivel de fábrica, en la fecha de emisión de la factura o de la entrega del producto, el acto que suceda primero; en la importación, en el momento de aceptación de la declaración aduanera; en el autoconsumo del fabricante en la fecha en que el cemento se retire de la planta cementera.
+En la producción nacional será contribuyente de este impuesto el fabricante de dicho producto; en la importación, la persona natural o jurídica que introduzca el producto o a cuyo nombre se importe.
+Se entenderá por autoconsumo cualquier salida de inventario del producto, así como el retiro de este de la planta cementera para el caso del productor nacional, o bien, del sitio de despacho o almacenamiento para efectos del importador, para uso o consumo personal del contribuyente o su transferencia sin contraprestación a terceros, sin importar el destino que tenga de este.

@@ -1,0 +1,2 @@
+ARTÍCULO 8- Distribución de los ingresos producidos en la provincia de Guanacaste
+Los ingresos provenientes del gravamen al cemento, producido en la provincia de Guanacaste, serán distribuidos: veinticinco por ciento (25%) para la Municipalidad de Abangares y el restante setenta y cinco por ciento (75%) en partes iguales entre las demás municipalidades de esta provincia. La Municipalidad de Abangares girará un cuarenta por ciento (40%) de los ingresos recibidos al Concejo Municipal del Distrito de Colorado.

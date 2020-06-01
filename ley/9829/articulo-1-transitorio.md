@@ -1,0 +1,3 @@
+TRANSITORIO ÚNICO- El Banco Central de Costa Rica continuará siendo el encargado de la recaudación, fiscalización, administración y distribución del tributo, durante el período fiscal siguiente a la entrada en vigencia de la ley. Durante este período, el Ministerio de Hacienda y las instituciones beneficiarias implementarán las disposiciones necesarias para asumir las responsabilidades asignadas por medio de la presente ley.
+Rige a partir del primer día del mes siguiente a su publicación.
+Dado en la Presidencia de la República, San José, a los veintisiete del mes de abril del año dos mil veinte.

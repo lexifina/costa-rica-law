@@ -1,0 +1,3 @@
+ARTÍCULO 3- Base imponible y tarifa
+El impuesto sobre el cemento producido en territorio nacional o importado será de un cinco por ciento (5%) sobre el precio neto de venta, en el caso del productor nacional. Se excluye de la base imponible el impuesto sobre el valor agregado, así como cualquier otro tributo. En el caso del producto importado, sobre el valor aduanero más los derechos arancelarios a la importación y el uno por ciento (1 %) de la Ley 6946, de 13 de enero de 1984, de la cual se excluye el impuesto sobre el valor agregado, así como cualquier otro tributo.
+Para el autoconsumo del productor nacional la tarifa será de un cinco por ciento (5%) sobre el costo de producción del cemento en la planta cementera.

@@ -1,0 +1,5 @@
+ARTÍCULO 4- Liquidación y pago del impuesto
+El impuesto creado en el artículo 1 de la presente ley se liquidará y lo pagará el productor nacional, de forma mensual, durante los primeros quince días naturales de cada mes. El fabricante presentará la declaración por todas las ventas y autoconsumos efectuados en el mes anterior, respaldados debidamente por medio de los comprobantes autorizados por la Dirección General de Tributación. La presentación de esta declaración y el pago del impuesto son simultáneos.
+Dentro de la declaración se deberá indicar el cantón donde se dio la producción del cemento, para que el Ministerio de Hacienda distribuya lo recaudado acorde con los artículos 6, 7, 8, 9 y 10 de la presente ley.
+En el caso del producto importado, la liquidación y el pago del impuesto se realizará en el momento previo al desalmacenaje del producto, efectuado por las aduanas.
+En estos casos, el impuesto deberá consignarse por separado en la declaración aduanera. No se autorizará la introducción del producto en el territorio nacional, si el importador no prueba haber liquidado y pagado este impuesto, en los términos de este párrafo.
