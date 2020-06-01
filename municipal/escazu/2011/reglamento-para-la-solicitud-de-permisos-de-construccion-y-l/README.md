@@ -14,3 +14,4 @@ Reglamento para la solicitud de permisos de construcción y licencias municipale
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-12-05 | la propia norma |
+| 2 | 2020-06-01 | Reglamento municipal 5 (2020-06-01) |

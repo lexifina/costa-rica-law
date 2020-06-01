@@ -1,1 +1,2 @@
-Artículo 14.—Para resguardar el espacio urbano ambiental y minimizar el impacto visual, no se autorizarán nuevas torres en un radio de 500 metros de otra torre que haya sido autorizada previamente, salvo las que ya existen antes de la promulgación de este Reglamento. Cuando se reciba más de una solicitud dentro de un mismo radio de cobertura, se le otorgará la licencia de construcción al primer solicitante, siempre que haya cumplido con todos los requisitos.
+Artículo 14.—Para la instalación de infraestructura de telecomunicaciones en bienes inmuebles ubicados en el cantón de Escazú, sean estos de carácter privado o áreas públicas, no se aplicará restricción de distancia alguna.
+(Así reformado mediante sesión ordinaria N°05 del 1° de junio del 2020)

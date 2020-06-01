@@ -1,3 +1,4 @@
 CAPÍTULO II
 Atribuciones y facultades municipales
-Artículo 5º—Con las atribuciones y facultades conferidas por la normativa vigente corresponde a la administración municipal, conocer, valorar, fiscalizar y resolver las solicitudes de las licencias municipales, sean éstas comerciales o constructivas.
+Artículo 5º—Con las atribuciones y facultades conferidas por la normativa vigente corresponde a la administración municipal, conocer, valorar, fiscalizar y resolver las solicitudes de las licencias municipales, sean estas comerciales o constructivas, en espacios públicos o privados.
+(Así reformado mediante sesión ordianria N° 05 del 1° de junio del 2020)
