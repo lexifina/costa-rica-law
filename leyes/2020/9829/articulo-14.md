@@ -1,0 +1,3 @@
+ARTICULO 14- Giro del importe a instituciones beneficiarias
+La Tesorería Nacional de la República girará directamente, a cada una de las instituciones beneficiarias, el importe señalado en los artículos 6, 7, 8, 9 y 10 de esta ley, obedeciendo a las reglas de asignación y al calendario de pagos que establezca la Tesorería Nacional para las transferencias, las cuales se depositarán en las cuentas de caja única de los beneficiarios.
+El monto del importe que los beneficiarios destinen a gasto corriente no podrá ser superior al monto ejecutado en este rubro, el año inmediato anterior a la entrada en vigencia de la presente ley.
