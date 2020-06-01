@@ -14,3 +14,4 @@ Suprime el manifiesto de carga de ingreso terrestre en la Aduana de Peñas Blanc
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-03-03 | la propia norma |
+| 2 | 2020-06-01 | Resolución 275 (2020-06-01) |
