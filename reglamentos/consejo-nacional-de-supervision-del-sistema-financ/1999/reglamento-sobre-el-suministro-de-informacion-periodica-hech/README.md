@@ -20,3 +20,4 @@ Reglamento sobre el Suministro de Información Periódica Hechos Relevantes y ot
 | 5 | 2007-04-09 | Reglamento 640 (2007-04-09) |
 | 6 | 2010-11-12 | Reglamento 890 (2010-11-12) |
 | 7 | 2014-09-08 | Reglamento 1124 (2014-09-08) |
+| 8 | 2020-06-01 | Reglamento 1579 (2020-06-01) |
