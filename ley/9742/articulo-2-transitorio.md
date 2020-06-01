@@ -1,0 +1,3 @@
+TRANSITORIO II- El Registro referido en el artículo 10 de esta ley deberá estar funcionando a partir del término de seis meses, contado desde de la vigencia de esta ley. Mientras no esté funcionando este Registro, la actividad del hospedaje no tradicional regulado en la presente ley puede operar sin cumplir la obligación establecida en el inciso a) del artículo 8 de esta ley.
+Rige seis meses después de la publicación de la presente ley, contados a partir del primer día del mes siguiente a dicha publicación.
+Dado en la Presidencia de la República.-San José, a los veintinueve días del mes de octubre del año dos mil diecinueve.

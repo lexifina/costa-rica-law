@@ -1,0 +1,2 @@
+ARTÍCULO 12- Comercialización del servicio de hospedaje no tradicional Los prestatarios del servicio de hospedaje no tradicional podrán comercializar su actividad, siempre que se lleve a efecto por su propietario o representante legal y se cumpla con los requisitos establecidos en la presente ley.
+Reglamentariamente se podrán desarrollar los requisitos, las condiciones, los límites y el contenido de la actividad de comercialización del servicio de hospedaje no tradicional, sin violentar los principios y derechos constitucionales.

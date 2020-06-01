@@ -1,0 +1,2 @@
+ARTÍCULO 2- Ámbito de aplicación
+Las disposiciones de la presente ley y su reglamento aplican a las entidades públicas que esta ley les asigne tareas para regular la actividad de los servicios de hospedaje no tradicional, a las personas usuarias y prestatarios, así como a las empresas comercializadoras o intermediarias de dichos servicios, sean estas personas físicas o jurídicas, así como cualquier otra persona o ente relacionado que realice esta actividad por periodos no mayores a un año, ni inferiores a las veinticuatro horas.
