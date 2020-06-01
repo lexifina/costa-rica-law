@@ -24,15 +24,20 @@ Las participaciones en fondos de inversión abiertos tienen un requerimiento de 
 La inversión en propiedades inmobiliarias tienen un requerimiento de capital por riesgo de mercado equivalente al 20% del valor contable del activo determinado a la fecha de cálculo del requerimiento de capital.
 2.-Requerimiento de Capital por Riesgo de Activos
 El riesgo de los activos de la entidad se calcula para cada uno de los activos en balance, excepto la inversión en propiedades inmobiliarias, y es el resultado de la multiplicación del valor del activo, neta de la estimación para pérdidas esperadas, por el porcentaje de riesgo correspondiente.
-| Activo | Factor de Riesgo
-1 | Efectivo y depósitos a la vista en entidades financieras, Inversiones en títulos emitidos por el Banco Central de Costa Rica y por el Ministerio de Hacienda de Costa Rica en moneda nacional. Inversiones en deuda soberana de países con calificación de riesgo de contraparte ubicado en el grupo 1 según la “Tabla de Riesgo de Contraparte“ de este anexo. | 0.5%
-2 | Inversiones en títulos emitidos por el Banco Central de Costa Rica y por el Ministerio de Hacienda de Costa Rica en moneda extranjera Inversiones en títulos con vencimiento menor a un año con calificación de riesgo del contraparte ubicada en los grupos 1 ó 2, según la “Tabla de Riesgo de Contraparte” de este anexo (se excluyen la inversiones en deuda subordinada. | 1%
-3 | Créditos o Inversiones en títulos con vencimiento a un año, o mayor, con riesgo de contraparte ubicado en los grupos 1 ó 2, según la “Tabla de Riesgo de Contraparte” de este anexo (se excluyen las inversiones subordinadas). | 2%
-4 | Primas por cobrar en un plazo menor a 6 meses. Todo crédito o Inversión en títulos valores con riesgo de contraparte ubicado en el grupo 3, según la “Tabla de Riesgo de Contraparte” (se excluyen las inversiones en deuda subordinada). | 4%
-5 | Todo crédito o inversión en títulos valores con calificación de riesgo de contraparte ubicada en el grupo 4 según la “Tabla de Riesgo de Contraparte” de este anexo, (se excluyen las inversiones en deuda subordinada). | 6%
-6 | Todo crédito o inversión en títulos valores con calificación de riesgo de contraparte ubicada en el grupo 5 según la “Tabla de Riesgo de Contraparte” de este anexo” (se excluyen las inversiones en deuda subordinada). Primas por cobrar en un plazo mayor a 6 meses. Inversiones subordinadas registradas en bolsas de valores autorizadas. | 8%
-7 | Crédito e inversiones subordinadas, excepto los indicados en el punto 6 c) de este cuadro. | 10%
-8 | Otros activos | 20%
+(Así reformado el párrafo anterior en sesión N° 1579 del 1° de junio del 2020)
+| Grupo | Activo | Factor de Riesgo
+| 0 | Efectivo | 0%
+| 1 | a) Depósitos a la vista en entidades financieras, b) Inversiones en títulos emitidos por el Banco Central de Costa Rica y por el Ministerio de Hacienda de Costa Rica en moneda nacional. c) Inversiones en deuda soberana de países con calificación de riesgo de contraparte ubicado en el grupo 1 según la “Tabla de Riesgo de Contraparte“ de este anexo. | 0,5%
+| 2 | a) Inversiones en títulos emitidos por el Banco Central de Costa Rica y por el Ministerio de Hacienda de Costa Rica en moneda extranjera b) Inversiones en títulos con vencimiento menor a un año con calificación de riesgo de contraparte ubicada en los grupos 1 o 2, según la “Tabla de Riesgo de Contraparte” de este anexo (se excluyen las inversiones en deuda subordinada. | 1%
+| 3 | a) Créditos o Inversiones en títulos con vencimiento a un año, o mayor, con riesgo de contraparte ubicado en los grupos 1 o 2, según la “Tabla de Riesgo de Contraparte” de este anexo (se excluyen las inversiones subordinadas). b) Primas por cobrar sobre operaciones al día o con atraso no mayor a 30 días. El monto incluye los tractos no vencidos de la operación. El atraso se cuenta a partir del día siguiente a la fecha de pago pactada sin incluir el periodo de gracia c) Comisiones diferidas frente a intermediarios de seguros. | 2%
+Grupo | Activo | Factor de Riesgo |
+4 | d) Prima por cobrar sobre operaciones con uno o más tractos con más de 30 días de morosidad. El monto incluye los tractos no vencidos de la operación. El atraso se cuenta a partir del día siguiente a la fecha de pago pactada sin incluir el periodo de gracia. e) Todo crédito o Inversión en títulos valores con riesgo de contraparte ubicado en el grupo 3, según la “Tabla de Riesgo de Contraparte” (se excluyen las inversiones en deuda subordinada). | 4% |
+5 | Todo crédito o inversión en títulos valores con calificación de riesgo de contraparte ubicada en el grupo 4 según la “Tabla de Riesgo de Contraparte” de este anexo, (se excluyen las inversiones en deuda subordinada). | 6% |
+6 | c) Todo crédito e inversión en títulos valores con calificación de riesgo de contraparte ubicada en el grupo 5 según la “Tabla de Riesgo de Contraparte” de este anexo” (se excluyen las inversiones en deuda subordinada). d) Inversiones subordinadas registradas en bolsas de valores autorizadas. | 8% |
+7 | Crédito e inversiones subordinadas, excepto los indicados en el grupo 6 de este cuadro. | 10% |
+8 | Otros activos | 20% |
+| | | | | |
+(Así reformado el cuadro anterior en sesión N° 1579 del 1° de junio del 2020)
 Para los títulos sin calificación emitidos por entidades locales o extranjeras la calificación del emisor; si el título y/o el emisor no son calificados, el activo debe ponderarse con el porcentaje correspondiente a “otros activos” .
 En el caso de productos por cobrar sobre créditos e inversiones, éstos deben ponderarse con el porcentaje de riesgo correspondiente al activo que les da origen.
 Para la aplicación del requerimiento de capital por riesgo de activos se debe tomar en cuenta lo siguiente:
