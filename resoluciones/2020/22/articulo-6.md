@@ -1,0 +1,2 @@
+Artículo 6º—Tamaño autorizado para la recepción de documentos electrónicos. Los documentos presentados por medio de correo electrónico o los ingresados a través de los sistemas en línea no podrán superar los 20 MB de memoria. Documentos de mayor tamaño deberán entregarse personalmente en la Plataforma de Servicios de la Contraloría General de la República dentro del horario institucional.
+Cuando los avances tecnológicos lo permitan, se podrán recibir en línea documentos de mayor consumo de memoria, previa comunicación a los usuarios por medio del Sitio Web institucional.

@@ -1,0 +1,1 @@
+Artículo 8º—Documentos electrónicos con contenido malicioso. Todo documento electrónico que se presente para trámite será previamente analizado y de estar dañado o contener algún virus, spyware u otros programas no deseados será inmediatamente descartado y no será registrado. Dicha situación será comunicada al gestionante.

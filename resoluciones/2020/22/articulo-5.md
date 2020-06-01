@@ -1,0 +1,1 @@
+Artículo 5.—Cuentas habilitadas para la recepción de documentos. La presentación de documentos por medio de correo electrónico se deberá gestionar a través de la cuenta institucional contraloria.general@cgrcr.go.cr o de otras cuentas previamente habilitadas y comunicadas en el Sitio Web institucional. El envío a cualquier otra cuenta no será gestionado.

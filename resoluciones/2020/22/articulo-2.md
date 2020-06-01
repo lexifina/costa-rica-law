@@ -1,0 +1,3 @@
+Artículo 2.—Modalidades de presentación. La presentación de documentos ante la Contraloría General de la República podrá ser gestionada por medios físicos o electrónicos, conforme con el siguiente detalle:
+a) Los documentos en soporte físico o los electrónicos que se presenten en forma personal, serán recibidos en la Plataforma de Servicios, dentro del horario oficial de trabajo.
+b) Los documentos que se gestionen por medio de correo electrónico, sistemas en línea o fax, podrán ser presentados sin limitación alguna de horario; no obstante, los presentados en fines de semana, días feriados, asuetos o vacaciones colectivas, se tendrán por recibidos, para efectos legales, el primer día hábil siguiente.

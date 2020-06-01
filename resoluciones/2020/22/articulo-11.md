@@ -1,0 +1,2 @@
+Artículo 11.—Deber de señalar cuenta de correo electrónico. La comunicación y notificación de los documentos electrónicos que emita la Contraloría General de la República, se hará por medio de correo electrónico. Se exceptúan los documentos que por disposición legal deban ser entregados en forma personal.
+En razón de lo anterior, los interesados deberán indicar en sus gestiones de manera expresa al menos una cuenta de correo electrónico para recibir las comunicaciones y notificaciones.

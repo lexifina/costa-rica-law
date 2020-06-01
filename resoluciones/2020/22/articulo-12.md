@@ -1,0 +1,3 @@
+Artículo 12.—Horas y días hábiles. Todas las horas y los días serán hábiles para emitir y notificar electrónicamente los documentos a cargo de la Contraloría General de la República.
+Los documentos se tendrán por notificados con el envío a la cuenta de correo electrónico señalada por el interesado, quien es el responsable de la disponibilidad, seguridad y capacidad de la cuenta seleccionada, así como de la revisión periódica de los correos recibidos.
+La fecha y hora de la notificación se acreditará con el comprobante de transmisión emitido por el servidor de correo de salida de la Contraloría General de la República.
