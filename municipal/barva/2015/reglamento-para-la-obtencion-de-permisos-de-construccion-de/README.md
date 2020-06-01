@@ -14,3 +14,4 @@ Reglamento para la obtención de Permisos de Construcción de la Municipalidad d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-02-21 | la propia norma |
+| 2 | 2020-06-01 | Reglamento municipal 32 (2020-06-01) |
