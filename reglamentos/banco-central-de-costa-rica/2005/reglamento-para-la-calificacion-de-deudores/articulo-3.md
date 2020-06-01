@@ -14,10 +14,22 @@ Entre otras, son operaciones especiales las siguientes:
 1. La operación crediticia adquirida por la entidad que corresponda a un deudor respecto del cual la misma entidad hubiese vendido, cedido o de cualquier otra forma traspasado al menos una operación anterioridad.
 (Así reformado el numeral anterior en sesión N° 851 del 13 de mayo de 2010)
 2. la operación crediticia modificada más de una vez en un periodo de 24 meses mediante readecuación, prórroga, refinanciamiento o una combinación de estas modificaciones;
-(*) 3. el crédito revolutivo, excepto los siguientes casos:
+(*)3. el crédito revolutivo, excepto los siguientes casos:
 i) aquel destinado exclusivamente para la emisión de avales, garantías de cumplimiento y garantías de participación,
 ii) aquel destinado al financiamiento de ciclos definidos de negocio cuyos desembolsos no sean readecuados, prorrogados o refinanciados, excepto capital de trabajo,
+(Nota de Sinalevi: Mediante sesión N° 1579-2020 del 1° de junio del 2020, se adicionó un transitorio XX al presente reglamento. Dicho transitorio establece lo siguiente “Transitorio XX. A partir de la vigencia de esta modificación y hasta el 30 de junio de 2021, los numerales ii) y iii) del punto 3 del inciso i) Operación crediticia especial, del Artículo 3. Definiciones, de este Reglamento, se leerán de la siguiente forma:
+“3. el crédito revolutivo, excepto los siguientes casos:
+i. […]
+ii. aquel destinado al financiamiento de ciclos definidos de negocio, excepto capital de trabajo,
+iii. aquel destinado al financiamiento de capital de trabajo,
+iv. […]”)
 iii) aquel destinado al financiamiento de capital de trabajo, cuando se cumpla alguna de las siguientes condiciones:
+(Nota de Sinalevi: Mediante sesión N° 1579-2020 del 1° de junio del 2020, se adicionó un transitorio XX al presente reglamento. Dicho transitorio establece lo siguiente “Transitorio XX. A partir de la vigencia de esta modificación y hasta el 30 de junio de 2021, los numerales ii) y iii) del punto 3 del inciso i) Operación crediticia especial, del Artículo 3. Definiciones, de este Reglamento, se leerán de la siguiente forma:
+“3. el crédito revolutivo, excepto los siguientes casos:
+i. […]
+ii. aquel destinado al financiamiento de ciclos definidos de negocio, excepto capital de trabajo,
+iii. aquel destinado al financiamiento de capital de trabajo,
+iv. […]”)
 a. el saldo total desembolsado, sea reducido a cero durante un periodo no menor de dos semanas por lo menos una vez cada doce meses, o
 b. el deudor cumpla, simultáneamente, las siguientes condiciones:
 1. se ubique en Nivel 1 o Nivel 2 de capacidad de pago. En caso de que la capacidad de pago sea Nivel 2, deberá existir en el expediente un análisis semestral de la capacidad de pago del deudor, y éste no podrá permanecer en este nivel por más de un año. Este párrafo no aplica para deudores clasificados en Grupo 2,
