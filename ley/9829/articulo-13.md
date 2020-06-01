@@ -1,0 +1,2 @@
+ARTICULO 13- Registros
+Los fabricantes de cemento y los importadores obligados al pago de este impuesto deberán llevar registros auxiliares contables sobre la producción (productores), las compras en el exterior (importadores), las ventas y el autoconsumo, de acuerdo con los requerimientos que establezcan las normas de la Ley 4755, Código de Normas y Procedimientos Tributarios, de 3 de mayo de 1971, que rigen esta materia.
