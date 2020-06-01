@@ -15,3 +15,4 @@ Reglamento de Caja Chica
 | --- | --- | --- |
 | 1 | 2005-10-10 | la propia norma |
 | 2 | 2006-04-27 | Reglamento municipal 9 (2006-04-27) |
+| 3 | 2020-06-01 | Reglamento municipal 22 (2020-06-01) |

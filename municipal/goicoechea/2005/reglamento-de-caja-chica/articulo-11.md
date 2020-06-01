@@ -1,4 +1,3 @@
-CAPÍTULO IV
-De los arqueos
-Artículo 11.—Se realizará arqueos en forma sorpresiva al fondo de caja chica, no sólo para verificar saldos, sino también para supervisar y controlar la aplicación de las normas y principios de auditoria vigentes y de las sanas prácticas de administración y control interno. La Administración cada mes designará un funcionario municipal diferente para que realice un arqueo de caja chica, el cual deberá dejar constancia en el libro foliado, el día en que practicó el arqueo y la evidencia respectiva del resultado, y debe firmar conjuntamente con el Jefe de Tesorería Municipal.
-(Mediante sesión N°9 del 27 de abril del 2006, se elimina del párrafo anterior la frase "Encargado de Caja Chica").
+Artículo 11.—Aparte de lo dispuesto en el artículo 9°, el dinero del fondo de caja chica no puede utilizarse para:
+A) La compra de bienes o servicios que superen el límite establecido para el formulario de caja chica.
+B) La compra de bienes o servicios que sean recurrentes o previsibles, que violente la normativa vigente.

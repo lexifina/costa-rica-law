@@ -1,3 +1,3 @@
 CAPÍTULO II
 Del fondo de Caja Chica y condiciones de entrega de dinero
-Artículo 2º—Se establece un fondo fijo de caja chica para el servicio de esta Municipalidad, por la suma de ¢500.000.00 (quinientos mil colones con cero céntimos).
+Artículo 2º—El fondo de Caja Chica debe ser independiente de otros fondos que se manejan en el Departamento de Tesorería.

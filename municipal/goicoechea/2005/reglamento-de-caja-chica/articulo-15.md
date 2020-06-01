@@ -1,4 +1,1 @@
-CAPÍTULO V
-Disposiciones finales
-Artículo 15—Se deroga cualquier disposición que sobre esta naturaleza haya emitido la Municipalidad con anterioridad al presente.
-Goicoechea, 30 de agosto del 2005.
+Artículo 15.—Si resultare una diferencia luego de realizado el arqueo, ésta debe ser justificada por el responsable del fondo de Caja Chica, quien en forma inmediata debe depositar el sobrante o reintegrar el faltante.
