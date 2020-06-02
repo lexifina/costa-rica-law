@@ -1,0 +1,1 @@
+Artículo 2º—Objeto y declaratoria de interés público. Este Reglamento es de orden público y su objeto es regular la operación y funcionamiento del Sistema Integral Policial de Comando y Control de Escazú (SIPCO) además de las relaciones entre éste, la ciudadanía y las demás instituciones del Estado.
