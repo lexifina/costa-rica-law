@@ -1,1 +1,0 @@
-Artículo 41.—Derogatorias. Se deroga el Decreto Ejecutivo N° 20110 denominado Reglamento Adjudicaciones Becas Personal Ministerio Hacienda del 5 de diciembre de 1990 y publicado en el Diario Oficial La Gaceta N° 3 del 4 de enero de 1991.

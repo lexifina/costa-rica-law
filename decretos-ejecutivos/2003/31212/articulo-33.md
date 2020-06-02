@@ -1,5 +1,0 @@
-CAPITULO VI
-Impedimentos, excusas y recusaciones
-Artículo 33.—Impedimentos. No pueden intervenir, directa o indirectamente, en el proceso de definición de requisitos, selección de candidatos o adjudicación de las becas a que se refiere este Reglamento aquellos funcionarios que tuvieren interés en ellas, bien por que estén concursando en su carácter personal, bien por que lo hacen parientes suyos hasta el segundo grado de consanguinidad o afinidad.
-En estos casos, es obligación del funcionario excusarse ante el superior inmediato o ante la Comisión de Becas, según corresponda, en el momento en que tenga conocimiento de los motivos de su impedimento.
-Mediante resolución, el superior inmediato o la Comisión determinarán la procedencia o no de la excusa. En caso de admitirse, el superior continuará conociendo del proceso de adjudicación. Para esta labor, deberá observar las mismas formalidades a que se encuentra sujeto el inferior. En caso de que se trate de un miembro de la Comisión de Becas, inmediatamente se convocará al suplente del Programa respectivo para que asuma las funciones.

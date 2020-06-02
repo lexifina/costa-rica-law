@@ -1,1 +1,0 @@
-Artículo 32.—Sanción por incumplimiento. El incumplimiento de cualquiera de las obligaciones y deberes por parte de los beneficiarios, se sancionará de conformidad con lo prescrito en los artículos 110 al 115 del Decreto Ejecutivo N° 25271 del 14 de junio de 1996, en la Ley N° 1581 del 30 de mayo de 1953 y Decreto Ejecutivo N° 21 del 14 de diciembre de 1954.

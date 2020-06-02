@@ -1,4 +1,0 @@
-Artículo 18.—Requisitos indispensables para la admisión de la solicitud de participación. Son requisitos indispensables para que un funcionario sea admitido en un concurso, los siguientes:
-a) Que el Jefe Inmediato manifieste su conformidad con la participación del funcionario. Ello se dará por entendido cuando dicha jefatura remita, por medios electrónicos, el formulario de participación a (*) la Dirección del Centro de Investigación y Formación Hacendaria, utilizando para ello la clave que para tales efectos le fue asignada.
-b) Que los documentos probatorios de los requisitos de participación establecidos para cada beca consten en el expediente personal del funcionario que deberá velar por tener su expediente personal actualizado al cierre del concurso.
-(*)(Modificada su denominación por el artículo 10° del decreto ejecutivo N° 35305 del 29 de mayo del 2009).

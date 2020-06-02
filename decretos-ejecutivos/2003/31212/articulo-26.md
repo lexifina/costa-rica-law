@@ -1,1 +1,0 @@
-Artículo 26.—Acuerdo de viaje. Según la naturaleza y condiciones de la beca, el Ministerio procederá a la emisión de un Acuerdo de Viaje, a la confección de la respectiva acción de personal y a la elaboración y firma del respectivo contrato, todo conforme a la Ley de Licencias para Adiestramiento de Servidores Públicos y este reglamento.

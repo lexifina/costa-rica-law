@@ -1,2 +1,0 @@
-Artículo 10.—Nombramiento de los Delegados de los Trabajadores. Para la elección de los delegados de los trabajadores, se seguirá el procedimiento que establecerá (*) la Dirección del Centro de Investigación y Formación Hacendaria vía directriz, el cual deberá contar con la aprobación de la Dirección General del Servicio Civil.
-(*) (Modificada su denominación por el artículo 10° del decreto ejecutivo N°35305 del 29 de mayo del 2009)
