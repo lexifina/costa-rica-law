@@ -1,0 +1,2 @@
+Artículo 2º—Adiciónese un Transitorio IV al Decreto Ejecutivo Nº 38601-C, Reglamento del Fondo de Becas Taller para el desarrollo de proyectos culturales, publicado en el Diario Oficial La Gaceta Nº 180 del 19 de setiembre de 2014, reformado por los Decretos Ejecutivos Nº 39954-C del 5 de setiembre de 2016 y Nº 42331-C del 23 de abril de 2020, para que se lea de la siguiente forma:
+“Transitorio IV. La vigencia del párrafo segundo del artículo 3 inciso c) del presente reglamento, será desde su publicación en el Diario Oficial La Gaceta y hasta el 31 de diciembre de 2020.”
