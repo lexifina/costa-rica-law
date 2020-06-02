@@ -16,3 +16,4 @@ Reglamento del fondo de Becas-Taller para el Desarrollo de Proyectos Culturales
 | 1 | 2014-09-19 | la propia norma |
 | 2 | 2016-09-05 | Decreto Ejecutivo 39954 (2016-09-05) |
 | 3 | 2020-04-23 | Decreto Ejecutivo 42331 (2020-04-23) |
+| 4 | 2020-06-02 | Decreto Ejecutivo 42495 (2020-06-02) |
