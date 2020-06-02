@@ -14,3 +14,4 @@ Reglamento Interno para el Pago de Viáticos, Alimentación, Transporte a los re
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-06-25 | la propia norma |
+| 2 | 2020-06-02 | Reglamento municipal 22 (2020-06-02) |
