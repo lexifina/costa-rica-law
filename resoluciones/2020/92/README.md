@@ -14,3 +14,4 @@ Regulaciones para autorizar el ingreso y la permanencia de personas extranjeras 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-05-31 | la propia norma |
+| 2 | 2020-06-02 | Resolución 93 (2020-06-02) |

@@ -1,4 +1,6 @@
+(Derogado)
 GOBERNACIÓN Y POLICÍA
+(Esta norma se dejó sin efecto por el punto sexto del por tanto de la resolución N° D.JUR-093-05-2020-JM del 2 de junio del 2020, “Autorización ingreso de personas extranjeras al país bajo categoría migratoria de No Residentes subcategoría Personal de Medios de Transporte Internacional de Pasajeros y Mercancías según en el artículo 87 inciso 5) Ley General de Migración y Extranjería”)
 RESOLUCIÓN N° DJUR-0092-05-2020-JM
 MINISTERIO DE GOBERNACIÓN Y POLICÍA. DIRECCIÓN GENERAL DE MIGRACIÓN Y EXTRANJERÍA. San José, al ser las diez horas del día treinta y uno de mayo de dos mil veinte. Se determinan medidas administrativas para el cumplimiento del Decreto Ejecutivo N° 42238-MGP-S, del 17 de marzo 2020 y sus reformas, con relación a la autorización de ingreso de personas extranjeras al país bajo la categoría migratoria de No Residentes, subcategoría “Personal de Medios de Transporte Internacional de Pasajeros y Mercancías” establecida por el artículo 87 inciso 5) de la Ley General de Migración y Extranjería N°8764, y se deroga la resolución DJUR-081-05-2020-JM, de las quince horas del día veintiuno de mayo de dos mil veinte, publicada en La Gaceta N°123, del 27 de mayo de 2020.
 RESULTANDO:
