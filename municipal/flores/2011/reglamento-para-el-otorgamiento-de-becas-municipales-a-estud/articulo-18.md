@@ -1,1 +1,0 @@
-Artículo 18.—Reforma total o parcial de este Reglamento. Cualquier reforma parcial o total del presente Reglamento requerirá la aprobación de al menos 2/3 del total de los miembros del Concejo Municipal del cantón de Flores.
