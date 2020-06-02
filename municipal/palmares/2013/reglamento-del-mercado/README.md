@@ -14,3 +14,4 @@ Reglamento del Mercado
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-01-10 | la propia norma |
+| 2 | 2020-06-02 | Reglamento municipal 5 (2020-06-02) |
