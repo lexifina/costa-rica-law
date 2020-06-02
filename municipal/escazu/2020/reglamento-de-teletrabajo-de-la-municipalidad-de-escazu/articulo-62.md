@@ -1,0 +1,1 @@
+Artículo 62.—Divulgación y comunicación. La Gerencia de Recursos Humanos y Materiales en coordinación con la Comisión Institucional de Teletrabajo serán los responsables de elaborar y dar a conocer los programas de comunicación, sobre la implementación de la gestión de teletrabajo, actividad que desarrollará en coordinación con Relaciones Públicas institucional.

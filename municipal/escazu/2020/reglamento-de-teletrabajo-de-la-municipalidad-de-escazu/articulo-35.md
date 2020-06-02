@@ -1,0 +1,1 @@
+Artículo 35.—Herramientas tecnológicas. La persona teletrabajadora debe mantenerse actualizado en las herramientas tecnológicas que demanda la ejecución de sus actividades, de acuerdo con lo que establezca la municipalidad mediante el proceso de Tecnologías de Información.

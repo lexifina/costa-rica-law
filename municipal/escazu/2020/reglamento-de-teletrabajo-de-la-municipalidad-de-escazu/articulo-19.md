@@ -1,0 +1,1 @@
+Artículo 19.—Solicitud de ingreso. El funcionario o la jefatura interesada en participar del Programa de Teletrabajo, deberá presentar una solicitud formal ante la Gerencia de Recursos Humanos y Materiales quien la presentará ante la Comisión Institucional de Teletrabajo, la cual procederá a su estudio y emitirá la recomendación correspondiente a la Alcaldía.

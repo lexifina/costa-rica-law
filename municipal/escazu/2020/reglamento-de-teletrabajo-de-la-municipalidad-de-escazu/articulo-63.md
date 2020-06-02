@@ -1,0 +1,1 @@
+Artículo 63.—Informes estadísticos. La Gerencia de Recursos Humanos y Materiales conjuntamente con la Comisión Institucional de Teletrabajo serán responsables de elaborar los informes estadísticos y de ejecución de la gestión de teletrabajo, actividad que se presentará de forma semestral.

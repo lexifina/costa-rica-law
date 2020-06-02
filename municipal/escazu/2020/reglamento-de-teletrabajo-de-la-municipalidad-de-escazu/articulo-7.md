@@ -1,0 +1,1 @@
+Artículo 7°—Deber de la persona trabajadora: Todas las Jefaturas y los funcionarios relacionados directa o indirectamente con las personas que teletrabajen, están obligados a colaborar, dentro de sus posibilidades y ámbitos de competencia, en la gestión y en función del cumplimiento de los objetivos del Programa de Teletrabajo.

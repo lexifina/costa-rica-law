@@ -1,0 +1,1 @@
+Artículo 12.—Pago del tiempo extraordinario. En la modalidad de teletrabajo cuando surjan necesidades excepcionales de trabajar tiempo extraordinario, la municipalidad aplicará los procedimientos, normativa establecida en el ordenamiento jurídico y las políticas institucionales para tales efectos.
