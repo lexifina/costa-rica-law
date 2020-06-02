@@ -1,0 +1,1 @@
+Artículo 9º—El colaborador podrá financiarse total o parcialmente la capacitación; para ello se requiere que la capacitación tenga relación con las labores que desempeña o podría desempeñar y se brindará el tiempo necesario para asistir a la capacitación, si es en horas laborales.

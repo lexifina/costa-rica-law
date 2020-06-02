@@ -1,0 +1,1 @@
+Artículo 6º—Actividad de capacitación por aprovechamiento: Se consideran actividades de capacitación por aprovechamiento, aquel certificado o documentos equivalentes que certifican actividades de capacitación, en los cuales se haya aplicado sistemas de evaluación, objetivos para determinar su evaluación.

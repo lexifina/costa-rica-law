@@ -1,0 +1,1 @@
+Artículo 27.—Toda jefatura que tenga conocimiento que un funcionario no asistió a capacitación, tiene el deber de reportar por escrito a Recursos Humanos, de la situación presentada, a más tardar 3 días hábiles contados a partir de la fecha en que tuvo conocimiento sobre la falta.

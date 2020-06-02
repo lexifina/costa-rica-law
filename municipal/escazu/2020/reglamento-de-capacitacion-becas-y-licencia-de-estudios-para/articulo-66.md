@@ -1,0 +1,1 @@
+Artículo 66.—Las becas pueden ser para disfrutar de un permiso con goce de salario, según el periodo que sea necesario para la asistencia a la actividad, un financiamiento parcial según el salario de la persona solicitante que puede ser como mínimo de un 30% hasta el 100% del costo de la actividad.

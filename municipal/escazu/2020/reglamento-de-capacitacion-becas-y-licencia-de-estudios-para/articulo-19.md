@@ -1,0 +1,1 @@
+Artículo 19.—Las personas trabajadoras designadas para un evento de capacitación, no podrán solicitar la participación en eventos no programados que coincidan con el calendario y horario establecido por la Gerencia de Recursos Humanos y Materiales, salvo en situaciones imprevistas, por lo que la Jefatura correspondiente y Recursos Humanos, valorarán la conveniencia del cambio.

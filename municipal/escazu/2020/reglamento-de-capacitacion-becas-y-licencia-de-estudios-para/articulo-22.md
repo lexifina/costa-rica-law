@@ -1,0 +1,1 @@
+Artículo 22.—La municipalidad brindará el tiempo necesario y de ser factible facilitará el transporte institucional a las personas trabajadoras para la participación en actividades de capacitación, que se realicen en horas laborales fuera de sus respectivos centros de trabajo.

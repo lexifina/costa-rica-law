@@ -1,0 +1,1 @@
+Artículo 88.—El recurso se debe presentar ante la Comisión de Becas y lo resolverá dentro de los ocho días hábiles siguientes a la fecha de presentación del recurso. En caso de no acoger la revocatoria, una vez resuelto el recurso se enviará con todo el expediente al superior jerárquico, sea el Alcalde Municipal, quien resolverá el recurso de apelación.

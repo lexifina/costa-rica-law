@@ -1,0 +1,1 @@
+Artículo 14.—La planificación de las acciones de capacitación se fundamentará en la detección de necesidades de capacitación actualizada, realizada por el Proceso de Recursos Humanos en coordinación con los responsables del área organizacional.

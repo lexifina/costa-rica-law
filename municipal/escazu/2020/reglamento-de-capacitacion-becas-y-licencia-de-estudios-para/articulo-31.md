@@ -1,0 +1,1 @@
+Artículo 31.— Los cursos por asistencia serán aprobados por los participantes si asisten mínimo a un 90% del tiempo programado para la capacitación, siempre y cuando no esté en contraposición con las políticas o lineamientos de la empresa o institución que brinda la capacitación.

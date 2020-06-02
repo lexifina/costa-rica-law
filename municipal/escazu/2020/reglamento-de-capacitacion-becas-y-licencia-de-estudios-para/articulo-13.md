@@ -1,0 +1,1 @@
+Artículo 13.—La ejecución de las actividades de capacitación contempladas en el Plan de Capacitación, serán aprobadas por las jefaturas de las dependencias municipales, por lo que queda bajo su responsabilidad la debida ejecución.

@@ -1,0 +1,1 @@
+Artículo 8º—El financiamiento total o parcial de la participación de las personas trabajadoras de la Municipalidad de Escazú, en capacitaciones o de formación profesional, técnica o básica que se lleve a cabo, quedara sujeto a que exista la disponibilidad presupuestaria.

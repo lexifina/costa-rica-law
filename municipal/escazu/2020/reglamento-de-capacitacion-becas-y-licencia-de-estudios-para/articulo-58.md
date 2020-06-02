@@ -1,0 +1,1 @@
+Artículo 58.—El quórum lo integran tres funcionarios, los cuales uno deberá ser el Gerente de Recursos Humanos y Materiales. Las decisiones de la Comisión serán por simple mayoría de votos. El alcalde resolverá todos los casos de empate que se presenten en la Comisión Institucional de Becas.

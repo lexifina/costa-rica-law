@@ -1,0 +1,1 @@
+Artículo 29.—Si, la inscripción a una capacitación representó un gasto para la institución y el participante no demuestra que se presentó al evento de capacitación, Recursos Humanos reportará al Alcalde Municipal para que emita la resolución del respectivo cobro.

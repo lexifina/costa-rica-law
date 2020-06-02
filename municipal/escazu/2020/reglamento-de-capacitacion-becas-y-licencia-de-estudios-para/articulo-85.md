@@ -1,0 +1,1 @@
+Artículo 85.—La Municipalidad podrá concertar con el becado arreglo de pago por el monto que deba retribuir, fijando los tractos de común acuerdo. Una vez formalizado el arreglo de pago, la Municipalidad queda autorizada a rebajar del salario de la persona trabajadora los montos recibidos o bien los días que se le otorgaron para asistir a la actividad.

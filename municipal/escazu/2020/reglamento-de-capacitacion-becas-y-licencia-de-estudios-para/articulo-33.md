@@ -1,0 +1,1 @@
+Artículo 33.—Aquellas personas trabajadoras contratadas interinamente podrán recibir capacitación para mejorar su trabajo previa solicitud y justificación escrita de la jefatura respectiva y la autorización de la jefatura de Recursos Humanos.

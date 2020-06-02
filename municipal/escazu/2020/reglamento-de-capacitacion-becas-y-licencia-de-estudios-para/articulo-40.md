@@ -1,0 +1,1 @@
+Artículo 40.—Los jefes inmediatos serán responsables de exigir el cumplimiento de las anteriores normas y no podrán autorizar nueva licencia para estudios sin antes verificar que el servidor se haya hecho acreedor a la misma, de conformidad con las indicadas prescripciones.

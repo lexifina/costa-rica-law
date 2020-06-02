@@ -1,0 +1,1 @@
+Artículo 81.—Si por alguna razón la persona trabajadora escogida para una beca, no puede asistir a la actividad deberá justificarlo por escrito ante la Comisión de Becas, la cual resolverá según el impedimento presentado.

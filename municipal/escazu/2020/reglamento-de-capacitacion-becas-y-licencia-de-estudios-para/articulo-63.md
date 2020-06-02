@@ -1,0 +1,1 @@
+Artículo 63.—Los concursos de becas deberán ser publicados en todos los centros de trabajo de la Municipalidad, y deberán estipular los requisitos y fechas de cierre del concurso, así como la naturaleza de la actividad.

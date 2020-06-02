@@ -1,0 +1,1 @@
+Artículo 69.—Una vez resuelta la adjudicación de una beca, Recursos Humanos coordinará con el Proceso de Asuntos Jurídicos, la elaboración de un contrato de beca, cuando se requiera de un permiso igual o mayor de 90 días naturales, o el financiamiento total o parcial que signifique una suma igual o mayor a un salario base de un Oficial de Seguridad Municipal.

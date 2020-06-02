@@ -1,0 +1,1 @@
+Artículo 38.—El alcalde no aprobará nuevo contrato de licencia para estudios si el servidor ha omitido presentar la certificación sobre las calificaciones obtenidas durante el curso lectivo anterior o si el servidor fuere reprobado en dos o más asignaturas. En este último caso no podrá autorizarse licencia para estudios durante el año siguiente.

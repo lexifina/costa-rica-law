@@ -1,0 +1,2 @@
+Artículo 47.—Quedan excluidas del presente Reglamento las invitaciones directas que, por su misma naturaleza temática, requieren del conocimiento y experiencia de una persona específica y que se clasifican como CONGRESOS, reuniones o encuentros en donde se toman acuerdos que luego serán de aplicación para la Institución.
+Estas actividades no podrán ser mayores dos semanas, se podrán conceder con goce con la autorización expresa de la Alcaldía.

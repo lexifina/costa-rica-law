@@ -1,0 +1,1 @@
+Artículo 15.—La Gerencia de Recursos Humanos y Materiales, supervisará el mantenimiento y actualización de los registros y controles necesarios para el desarrollo del Plan de Capacitación. Toda persona trabajadora que reciba capacitación por medio de la Municipalidad deberá presentar la documentación según los procedimientos.

@@ -1,0 +1,1 @@
+Artículo 73.—A la persona que se le apruebe una beca estará obligada a laborar para la Institución a tiempo completo o su equivalente en tiempos parciales, el doble del tiempo disfrutado en la beca o bien si se le financiaron los estudios tiene que devolver la totalidad del financiamiento, excepto si ha transcurrido después de la conclusión de los estudios por lo menos dos años.

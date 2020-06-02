@@ -1,0 +1,1 @@
+Artículo 36.—Cuando se trate de estudios tendientes a obtener el título de máster o doctor en la misma carrera profesional u otros cursos de postgrado, la licencia podrá concederse por el número de horas requeridas para atender el horario de materias efectivamente matriculadas y el desplazamiento del servidor del lugar de trabajo al centro de estudios y viceversa.

@@ -1,0 +1,1 @@
+Artículo 30.—La Municipalidad podrá concertar con el colaborador arreglo de pago por el monto a retribuir, fijando los tractos de común acuerdo. Una vez formalizado el arreglo de pago, la Municipalidad queda autorizada a rebajar del salario del funcionario los montos recibidos, esto acorde al salario neto del trabajador.

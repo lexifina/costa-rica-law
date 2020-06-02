@@ -1,0 +1,1 @@
+Artículo 16.—Los desembolsos para el pago de eventos de capacitación, corresponderá coordinarlos a la Gerencia de Recursos Humanos y Materiales, cuando sean del Programa I y a cada jefatura o responsable de gerencia en los Programas II y III; previa coordinación con la Gerencia de Recursos Humanos y Materiales.

@@ -1,0 +1,1 @@
+Artículo 28.— Si la capacitación se brindó en horas laborales y la persona inscrita no presentó los documentos que demuestren que asistió a la misma ante Recursos Humanos, este no deberá proceder a justificar las inconsistencias en horario laboral.

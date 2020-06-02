@@ -1,0 +1,1 @@
+Artículo 51.—La Gerencia de Recursos Humanos coordinará todo lo referente al otorgamiento de becas que instituciones públicas o privadas, nacionales y extranjeras le ofrezcan a la Municipalidad, conforme lo regulado en el presente Reglamento.

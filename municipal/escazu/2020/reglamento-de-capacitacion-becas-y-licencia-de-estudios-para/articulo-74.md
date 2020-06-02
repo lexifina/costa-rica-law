@@ -1,0 +1,1 @@
+Artículo 74.—El funcionario (a) becado deberá, una vez concluida su participación, rendir un informe al Proceso de Recursos Humanos sobre la capacitación recibida por el otorgamiento de la beca y estar en disposición de transmitir los conocimientos adquiridos cuando se le solicite.

@@ -1,0 +1,1 @@
+Artículo 32.—Los cursos por aprovechamiento deberán ser de 30 horas mínimo y aprobados con una calificación mínima de 70, siempre y cuando no estén en contraposición con las políticas o normativa de la empresa o institución que brinda la capacitación.

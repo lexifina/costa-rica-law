@@ -1,0 +1,1 @@
+Artículo 10.—La Municipalidad por medio de la dependencia municipal responsable de elaborar el presupuesto municipal, adjudicará una partida presupuestaría anual para la capacitación a la Gerencia de Recursos Humanos y Materiales, para cubrir las necesidades de capacitación del Programa I y al Programa II y III se le asignará al responsable de cada área según corresponda.

@@ -1,0 +1,1 @@
+Artículo 44.—Las calificaciones periódicas: La evaluación del desempeño anual servirá: como reconocimiento a los buenos servidores, como estímulo para propiciar una mayor eficiencia y como factor que se puede considerar para capacitación, ascensos, concesión de permisos, reducciones forzosas de personal y los demás fines que la Alcaldía considere.

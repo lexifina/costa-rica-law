@@ -1,0 +1,1 @@
+Artículo 5º—Actividad de capacitación por participación: Se considera actividades de capacitación por participación, aquel certificado o documentos otorgados por concepto de participación a una actividad, sin que se aplique evaluación sobre los conocimientos adquiridos.

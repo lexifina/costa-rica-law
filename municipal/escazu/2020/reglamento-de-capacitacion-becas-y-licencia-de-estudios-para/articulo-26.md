@@ -1,0 +1,1 @@
+Artículo 26.—Los colaboradores inscritos para asistir a una capacitación, de no presentar documentos que comprueben su asistencia, se procederá según lo indicado en el artículo 27 del presente Reglamento.

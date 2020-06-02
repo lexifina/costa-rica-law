@@ -1,0 +1,1 @@
+Artículo 62.—Los concursos para la participación en las becas se publicarán con suficiente tiempo, en todos los edificios y centros de trabajo municipales, siempre ajustándose a los periodos establecidos para el cierre de la beca por el organismo auspiciante.

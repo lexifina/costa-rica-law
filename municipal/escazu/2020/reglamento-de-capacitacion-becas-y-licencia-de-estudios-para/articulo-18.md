@@ -1,0 +1,1 @@
+Artículo 18.—Es obligación de los colaboradores de la Municipalidad recibir capacitación para el eficiente desarrollo de las actividades, sin embargo, esta deberá estar programada por la Gerencia de Recursos Humanos y Materiales.

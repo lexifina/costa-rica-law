@@ -1,0 +1,1 @@
+Artículo 56.—Cada miembro será nombrado por el alcalde por un periodo de dos años, pudiendo ser reelecto, por periodos iguales. Cada representante designará un suplente, que será reportado ante el alcalde, para que en caso de que el titular no se encuentre laborando por algún motivo justificado, pueda suplir al representante.

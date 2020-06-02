@@ -1,0 +1,1 @@
+Artículo 46.—La Municipalidad podrá otorgar becas a las personas trabajadoras para la participación en actividades de capacitación formal según la programación establecida como incentivo. El tiempo máximo de la beca estará en función a lo que dure la actividad de capacitación o de formación.

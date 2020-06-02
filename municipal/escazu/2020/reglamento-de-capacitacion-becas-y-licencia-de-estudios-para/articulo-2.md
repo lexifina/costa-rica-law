@@ -1,0 +1,1 @@
+Artículo 2º—Actividad de capacitación programada. Se considerarán actividades de capacitación y formación programadas, las contempladas en el Plan de Capacitación, elaborado para cada año, mismo que sustenta las necesidades reales derivadas del desempeño laboral y sus compromisos con el servicio Municipal.
