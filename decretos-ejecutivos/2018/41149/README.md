@@ -14,3 +14,4 @@ Política Nacional para la Igualdad entre mujeres y hombres en la formación, em
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-04-10 | la propia norma |
+| 2 | 2020-06-03 | Decreto Ejecutivo 42412 (2020-06-03) |

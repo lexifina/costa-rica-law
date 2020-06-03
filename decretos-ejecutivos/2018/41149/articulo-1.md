@@ -354,11 +354,8 @@ La educación secundaria comprende el III ciclo de la educación y la educación
 Para el año 2016, se tiene una matrícula total de 299.388 estudiantes con una distribución casi paritaria entre hombres y mujeres. Este hecho podría indicar que las mujeres que deciden o pueden ingresar a la secundaria no encuentran problemas para hacerlo.
 Uno de los problemas destacados en la educación secundaria es la deserción, motivada por razones como la reprobación o el aplazamiento en algunas materias, las necesidades económicas y/o el desaliento para concluir los estudios secundarios, entre otros. Sin embargo, como se muestra a continuación, las estudiantes no refieren diferencias sustantivas con respecto al
 rendimiento, como un motivo unicausal para su deserción, como lo muestra el cuadro 1.
-[imagen]
 El rendimiento del estudiantado se muestra en el gráfico 2, así se tiene que el porcentaje de aprobación alcanza el 61%, lo que implica que cerca de un 40%, es aplazado o reprobado, lo cual incide en el retiro de la educación secundaria.
-[imagen]
 El Gráfico 3 ilustra las diferencias en el rendimiento de las mujeres y los hombres, en la educación secundaria diurna. Se puede observar una relación casi paritaria en el grupo de aprobados. Aunque el porcentaje de reprobados alcanza un 10%, en dicha categoría los hombres acusan una presencia que supera en un 20% a las mujeres.
-[imagen]
 De las 856 estudiantes embarazadas en el 2016, 715 que cursan la educación en horario diurno y 151 en el nocturno (MEP, 2017d)- Sin embargo, no se encontraron datos a cerca de la cantidad de estudiantes que abandonan por esta razón.
 Una visión completa sobre las barreras de acceso efectivo de las estudiantes a la secundaria, exige un análisis del comportamiento de la matrícula por edad, lugar de residencia, condición socioeconómica, centros de estudios disponibles, embarazo adolescente, condición de discapacidad, deserción y sus causas, entre otras. Los datos procesados por el MEP por sexo y que están disponibles en línea, no permiten obtener esta fotografía, lo cual plantea un nuevo reto para esta política.
 iii. La educación técnica y universitaria
@@ -374,7 +371,6 @@ Aunque los intereses vocacionales coincidan con la oferta de cursos en las insti
 sector público o privado, las posibilidades de acceso efectivo a los mismos, dependerá del lugar donde se impartan y de los recursos económicos disponibles. Esas condiciones son de particular interés para las mujeres, quienes podrían encontrar resistencias familiares para que se desplacen fuera de la zona en que habitan, si los cursos no se imparten cerca de sus comunidades.
 En el caso de la educación universitaria, particularmente, en las carreras de ciencia, ingeniería y tecnología, las expectativas se centran en acceder a las universidades públicas por su excelencia y sus costos. Sin embargo, el acceso es condicionado, porque exige la aprobación de un examen de admisión y de un puntaje que se establece para el ingreso a cada carrera, salvo en los casos de la Universidad Estatal a Distancia y la Universidad Técnica Nacional.
 De modo ilustrativo, el siguiente cuadro muestra las notas de aceptación en algunas de las carreras relacionadas con la ciencia y la tecnología, en la Universidad de Costa Rica para el año 2017. Se observa que los puntajes definidos, se acercan más a las carreras de medicina y microbiología, cuyas notas de corte fueron las más altas para el 2017
-[imagen]
 Estas barreras de ingreso a las universidades públicas, se maximizan para las mujeres por el limitado respaldo familiar para estudiar carreras que no se ajusten a los papeles asignados por la sociedad.
 De igual modo, la oferta académica no es accesible en todo el país, lo que genera la exclusión de quienes habitan fuera del valle central. Existen algunos programas de matrícula diferida para estudiantes de zonas que no tienen representación en las universidades públicas, pero los mismos tienen un alcance restringido.
 De este modo, las decisiones sobre lo que se desea estudiar pasan a depender de la oferta de las universidades privadas y de las posibilidades económicas de las familias, lo que nuevamente excluye a los sectores de menores ingresos.
@@ -382,14 +378,12 @@ El desarrollo de una estrategia de atracción a la educación técnica y superio
 b. La formación, la capacitación y la permanencia de las mujeres en las carreras de ciencia y tecnología.
 i.Formación Técnica
 Algunos centros educativos de secundaria funcionan con la modalidad diversificada que permite elegir una opción técnica, que obliga a quienes la eligen a cursar un año más de estudios. Las mujeres representan el mayor porcentaje de graduación y sus preferencias se concentran en la rama de comercio y servicios, según se muestra en el Cuadro 3.
-[imagen]
 En general, existe una mayor matrícula de mujeres que hombres en las especialidades técnicas. El 79% de las mujeres eligió especialidades de la rama de Comercio y Servicios y muestran preferencias por las ocupaciones relacionadas con el papel asignado por los estereotipos de género.
 Según se detalla en el Anexo 1, en carreras como Automotriz, Mecánica General, Mantenimiento Industrial, Mecánica de Precisión, menos de un 15% de la población estudiantil son mujeres.
 Mientras que, en carreras como Secretariado Bilingüe, Secretariado Ejecutivo y Diseño y Confección de moda, menos del 15% de las personas que matriculan son hombres. En Diseño de Modas, para el 2016, únicamente un hombre matriculó esa carrera.
 No obstante, llama la atención el acercamiento de las mujeres a otras especialidades un poco más distantes con respecto a los estereotipos, como son la Contabilidad, las Finanzas y Productividad y Calidad
 a. Formación Técnica en el Instituto Nacional de Aprendizaje.
 El Instituto Nacional de Aprendizaje (INA), es una institución pública con presencia el todo el país que imparte especialidades que guardan una relación estrecha con las demandas del mercado. Se puede observar, en el siguiente cuadro, que las mujeres tienen un mayor porcentaje de matrícula así como de graduación, con respecto a los hombres. No obstante, en atención a los estereotipos de género, las mujeres tienen mayor presencia en las especialidades relacionadas con las ramas de la industria alimentaria, el comercio y los servicios y el turismo (INA, 2016, pág. 96).
-[imagen]
 La matrícula en Náutico Pesquero, de 514 que matricularon únicamente 60 fueron mujeres, esto representa un 11,6% y en cuanto a índice de feminidad muestra que por cada 100 hombres que matricularon, únicamente 13 mujeres lo hicieron.
 La información presentada sugiere que las mujeres no encuentran barreras para el ingreso
 a la formación y la capacitación técnica en el INA. No obstante, diversas fuentes de información, han señalado algunos obstáculos como son la baja cobertura de las acciones formativas en las zonas rurales, las restricciones presupuestarias para el otorgamiento de becas que incluyan servicios de cuido para las hijas y los hijos de las mujeres, las limitaciones para la obtención de empleo en las zonas rurales y los ambientes sexistas que prevalecen en las especialidades consideradas como propias del ámbito masculino, entre otras.
@@ -397,46 +391,36 @@ De este modo, se observa que los estereotipos de género que modelan las prefere
 ii. La formación universitaria
 Las mujeres han mostrado un incremento sostenido en su ingreso a las universidades, pero no así en aquellas profesiones consideradas como campos propios de los hombres, como es el caso de las ingenierías y otras disciplinas científicas.
 Las estadísticas de CONARE sobre la matrícula del 2016, en las universidades públicas, refieren un porcentaje menor de mujeres en el Instituto Tecnológico de Costa Rica (TEC), donde se imparten carreras relacionadas con la ciencia y la tecnología, mientras que constituyen una mayoría en Universidad Estatal a Distancia (UNED), donde existe una amplia oferta de carreras de las ciencias sociales y permite armonizar los estudios con el empleo y las tareas domésticas, ya que no se requiere asistir a lecciones presenciales.
-[imagen]
 La matrícula de las mujeres en las carreras de la educación superior, registra sesgos de género que se pueden apreciar en el siguiente gráfico:
 060
-[imagen]
 Se destaca la presencia reducida de las mujeres en las áreas de las ciencias básicas y la ingeniería, mientras que constituyen la mayoría en las carreras de Educación, Ciencias Sociales y en Artes y Letras. Dicha elección aleja a las mujeres de la ciencia y la tecnología así como de empleos de mejor calidad, una vez graduadas. Existen esfuerzos para retener a las estudiantes en las universidades, mediante el otorgamiento de algunos beneficios sociales para apoyar su permanencia mientras cursan su carrera. Aunque ha existido un incremento en el número de estudiantes becados, según se consigna en el V Informe del Estado de la Educación (2015), aún quedan necesidades insatisfechas, tales como la entrega de subsidios para el pago de los servicios de cuidado de las hijas y los hijos, que habitualmente, está a cargo de las mujeres(CONARE, 2015).
 Por otra parte, en cuanto a otras fuentes de financiamiento para los estudios universitarios
 está la entrega de préstamos por parte de la Comisión Nacional de Préstamos para la Educación (CONAPE) cuyos intereses son bajos y su cancelación se realiza una vez terminada la carrera. El Cuadro 6 indica que en 2016 un 64% de los préstamos se otorgaron a las mujeres, para el estudio de carreras de las áreas de Ciencias de la Salud, Educación y Ciencias Sociales. El financiamiento otorgado a las mujeres para las carreras en áreas de ciencias básicas e ingenierías, fue más reducido que el de los hombres, lo que coincide con la baja presencia de las mujeres en dichas áreas.
-[imagen]
 La oferta de beneficios sociales para las mujeres en la Educación Superior debe tener en cuenta la dotación de recursos para quienes tienen responsabilidades familiares asociadas con el cuido. Así como, la consideración de las mujeres que no tienen apoyo familiar para el financiamiento de los estudios, por la oposición a que estudien carreras que no forman parte de las expectativas sociales sobre lo masculino y lo femenino.
 El comportamiento de la graduación en las carreras universitarias muestra una situación ventajosa para las mujeres, ya que según los datos del CONARE (2015), ellas tienen un porcentaje
 de graduación mayor (63%) al de los hombres, tanto en universidades públicas como privadas, así se ilustra en el siguiente cuadro.
-[imagen]
 La graduación en las carreras relacionadas con la ciencia y la tecnología, refiere una reducción en el porcentaje de graduación femenina que alcanza el 53%, según los datos disponibles para 2014 en la Plataforma Hipatia del CONARE. Respecto a las áreas relacionadas con la ciencia y la tecnología, el comportamiento de la graduación aparece en el siguiente cuadro (CONARE, 2016).
-[imagen]
 La mayor concentración de mujeres graduadas se ubica en el área de las ciencias médicas, donde se encuentran carreras de servicio a las personas como son la enfermería, la medicina, entre otras, que son congruentes con los estereotipos de género. Asimismo, su representación menor se encuentra en las carreras asociadas a la ingeniería y la tecnología.
-[imagen]
 Se observa una presencia menor de mujeres graduadas en ingeniería mecánica, producción animal, ingeniería de materiales, ingeniería eléctrica, electrónica y física. Como lo señala CINDE, según los datos disponibles en la plataforma Hipatia del CONARE (2016), las ingenierías que tienen una mayor demanda en el mercado laboral son precisamente donde hay menos graduación de mujeres.
 Específicamente, el sector de las tecnologías digitales, que se caracteriza por ser un sector en crecimiento tanto en producción como en fuentes de empleo, y que genera múltiples oportunidades personales y profesionales, la presencia en la producción de las tecnologías es mayoritariamente de hombres. En el Cuadro 10, se observa cómo la cantidad de personas graduadas en el área de tecnologías de información y comunicación o en ingeniería eléctrica y electrónica aproximadamente el 80% son varones frente a 20% mujeres.
-[imagen]
 El costo de la ausencia de las mujeres en estos sectores debe ser medido, entendiendo que la incorporación de más talento y mayor diversidad generará una mayor innovación en la producción de conocimiento indispensable para todas las áreas de la ciencia y la tecnología; especialmente, en las tecnologías digitales donde se requiere cada vez más personas altamente calificadas, pero el impulso vocacional hacia estas áreas es aún insuficiente, dada la alta demanda de las empresas, la desarticulación entre las políticas exteriores del país para la atracción de capital extranjero y la poca oferta de personas calificadas.
 A pesar de los avances en el ingreso y en la graduación de las mujeres en las instituciones de Educación Superior esto no se refleja en las oportunidades de realizar estudios de posgrado, específicamente doctorados. El informe sobre el Estado de la Ciencia, la Tecnología y la Innovación, señala que solo un 18% de los profesionales en general obtiene el grado de doctorado. Las mujeres refieren una situación de desventaja respecto de los hombres, ya que su presencia alcanza el 40% (CONARE, 2014, pág. 70).
 La cantidad de doctorados es muy escasa en el país, como se indica en la información contenida en la Plataforma HIPATIA, apenas un 0,4% de todas las personas graduadas en el 2014 en carreras CTI, obtuvieron un título de doctorado (Estado de la Nación, 2017), esto implica que la cantidad de proyectos que tienen como investigador y/o investigadora principal con doctorado es muy escasa, y es en esos niveles donde existe una menor cantidad de mujeres, porque a pesar de que ellas obtienen la mayor cantidad de diplomas al año, en términos generales, en la obtención de doctorados el porcentaje se reduce significativamente.
 En los datos suministrados por el MICITT correspondientes al 2014, en cuanto a la cantidad de personas dedicadas a la I+D, con nivel de doctorado, se reportaron en los sectores público, académico y OSFL, que de un total de 570 personas con doctorados, un 33.3% eran mujeres.
 Un 73% de las personas con doctorado reportadas obtuvieron sus títulos fuera del país, de las cuáles únicamente un 28% fueron mujeres. Mientras que con doctorados obtenidos en el país, el 47% eran mujeres, como se muestra en el siguiente gráfico:
 065
-[imagen]
 Persiste la participación desigual entre las mujeres y los hombres que estudian carreras del ámbito de la ciencia y la tecnología, en los niveles de grado y de posgrado, la carencia de investigación sobre la causalidad de la asimetría en el acceso, formación y permanencia de las mujeres en estas carreras impide emprender las acciones correctivas pertinentes para asegurar una mayor equidad en la distribución justa de las oportunidades para las mujeres.
 Además, esa misma carencia de la investigación con enfoque de género en estos temas podría dejar por fuera aspectos tales como los ambientes hostiles, los efectos de las situaciones de hostigamiento y acoso sobre la decisión de qué estudiar o de permanecer en una carrera por parte de las mujeres que limitan esas oportunidades.
 c. Empleo de las mujeres en la ciencia y la tecnología
 La situación del empleo de las mujeres del empleo en Costa Rica se ha caracterizado por un crecimiento sostenido en el ingreso al mercado laboral, a partir de la segunda mitad de la década de los noventa. No obstante, aún no se equipara con la participación de los hombres. Según los datos generados por la Encuesta Nacional de Hogares (ENAHO, 2014), disponibles en el sistema de indicadores de género del INEC, la calificación profesional de las mujeres no ha logrado disminuir la brecha de empleo y salarial.
 Con respecto a la Población Económicamente Activa (PEA) por sexo, encontramos que un 75% de hombres están ocupados, mientras que en el caso de las mujeres únicamente un 45,2% tienen ocupaciones remuneradas. El desempleo también refiere inequidades porque la tasa de desempleo abierto de los hombres es del 7,2% mientras que la de mujeres es del 10,6%. Lo que significa que un porcentaje mayor de mujeres de la PEA está buscando empleo, con respecto a los hombres (INEC, 2014).
 Las desigualdades no sólo se reflejan en la cantidad de mujeres y hombres que trabajan, sino también en los ingresos que perciben, así, el comportamiento de la brecha salarial se presenta en siguiente cuadro.
-[imagen] A la luz de los datos incluidos en el cuadro, se aprecia que las mayores disparidades de género se presentan entre las mujeres y los hombres que trabajan menos de 24 horas, mientras que el ingreso es superior para las mujeres en las categorías de 24 a menos de 49 horas. De este modo, para el total de las horas trabajadas, se observa que las mujeres perciben un 87,6% de los salarios con respecto a los percibidos por los hombres.
+A la luz de los datos incluidos en el cuadro, se aprecia que las mayores disparidades de género se presentan entre las mujeres y los hombres que trabajan menos de 24 horas, mientras que el ingreso es superior para las mujeres en las categorías de 24 a menos de 49 horas. De este modo, para el total de las horas trabajadas, se observa que las mujeres perciben un 87,6% de los salarios con respecto a los percibidos por los hombres.
 Otra información de interés es la presencia de hombres y mujeres en los grupos ocupacionales de profesionales y técnicos y de dirección. La ENAHO 2014, acusa una brecha, ya que en el primer grupo, ellos refieren una participación del 27,2%, mientras que las mujeres representan el 20,8. (INEC, 2014). Precisamente en esas categorías se encuentran las mujeres científicas y tecnólogas.
 Por otra parte, según los datos disponibles del CINDE; se evidencia la situación de desventaja, particularmente, en la categoría de especializada o técnica, que constituye una de las mayores demandas del mercado vinculado a la inversión extranjera directa (CINDE,2017).
-[imagen]
 Valga acotar que a pesar de existir un esfuerzo por parte del INEC para registrar indicadores en Ciencia y Tecnología, estos no permiten obtener la información para analizar el mercado de trabajo en ese campo, por lo que se utilizará la información derivada la encuesta de innovación encuesta aplicada por el MICITT a una muestra de empresas de dicho sector, cuyos resultados se exponen en el Informe sobre los Indicadores Nacionales de Ciencia, Tecnología e Innovación, 2014.
 Las actividades en Investigación, Desarrollo e Innovación (I+D+i) son áreas fundamentales
 para el quehacer científico y tecnológico, ya que permiten el avance en la producción del conocimiento científico y tecnológico (MICITT, 2016). El Cuadro 13 muestra la distribución del personal que realiza investigación en Costa Rica.
-[imagen]
 Se muestra que la participación de las mujeres es sustantivamente más baja que la masculina en todas las ocupaciones relacionadas con el área de investigación y desarrollo, solo se acerca a la paridad en la categoría de estudiantes de doctorado. Es importante señalar que estos datos no muestran las cargas e trabajo, las brechas salariales, ni las oportunidades de ascensos.
 En ese sentido, la limitada información disponible sobre el empleo plantea el reto de generar conocimiento sobre las características del mercado laboral y la posición de las mujeres en el mismo, considerando su diversidad étnica, etaria, de condición de discapacidad, de lugar de residencia, entre otros.
 La carencia de información más descriptiva impide reconocer y analizar las nuevas formas de contratación del personal profesional en ciencia y tecnología por productos desarrollados, el teletrabajo, la presión laboral para la producción mercantil, el trabajo asalariado a tiempo parcial, entre otros. Esta situación debe recibir la atención debida ya que la distribución de las responsabilidades familiares entre los hombres y las mujeres aún constituye una meta inconclusa en la sociedad costarricense. Sin duda, los estereotipos de género, unidos a la carga de trabajo doméstica y a la segregación de las ocupaciones por sexo, constituyen un lastre para garantizar el ejercicio pleno del derecho al trabajo, por parte de las mujeres.
@@ -451,7 +435,6 @@ Así lo señala Amador, cuando analiza las TIC en los hogares, utilizando “un 
 La Encuesta Nacional de Hogares, que aplica anualmente el INEC, contiene algunas preguntas sobre la tenencia de teléfono celular, teléfono residencial, fax, computadora, internet, televisión y radio. Sin embargo, no es posible obtener los datos de acceso de las mujeres a esos dispositivos, dado que la unidad de análisis de la encuesta son los hogares y no las personas que lo conforman.
 En el año 2017, se realizó el primer Foro Internacional de Género y Ciberseguridad: creando un mundo digital más inclusivo v1.0, donde se analizaron las diferentes formas de violencia de género que se ejecutan desde ese espacio y donde las mujeres son las principales víctimas de delitos tales como servicios sexuales, suplantación de personalidad, el ciberbullyng, sexting y sextorsión, entre otros delitos, que ponen en evidencia que la violencia de género digital es igual de dañina que la agresión física (INCIBE, 2017).
 Se deja abierta una vertiente importante de investigación acerca de las brechas de género en el uso y el disfrute de la ciencia y la tecnología, que resulta de particular importancia para erradicar las desigualdades presentes en esa dimensión.
-[imagen]
 5. Marco estratégico
 a. Enfoques
 Esta política de igualdad, se construyó a partir de dos enfoques sustantivos derechos humanos: género y diversidades; los cuales fundamentan el accionar de las actuaciones que se realicen.
@@ -483,13 +466,6 @@ Esta Política se nutre y aporta al cumplimiento de los objetivos señalados en 
 • Plan Nacional Ciencia, Tecnología e Innovación 2015-2021.
 • Política Nacional de Sociedad y Economía Basadas en el Conocimiento, 2017.
 • Política pública de la persona joven y su plan de acción 2014 – 2019.
-[imagen]
-[imagen]
-[imagen]
-[imagen]
-[imagen]
-[imagen]
-[imagen]
 d.Ejes estratégicos
 El problema enfocado por esta Política es la desigual participación de las mujeres respecto de los hombres en la atracción, la formación, la capacitación, el empleo de calidad y la investigación, en los diferentes campos de la ciencia, la tecnología y la innovación, así como en el uso y disfrute de los avances científicos-tecnológicos.
 Para enfrentar el problema señalado, la política tiene como objetivo general:
@@ -502,16 +478,11 @@ Eje 4: Apropiación social de la ciencia con perspectiva de género.
 Eje 5: Sostenibilidad y seguimiento.
 La siguiente tabla presenta los ejes, los objetivos específicos y las acciones estratégicas propuestas, a partir de la consulta efectuada con diversos sectores ligados al campo de la ciencia y la tecnología, y en particular, a las mujeres.
 Debe tenerse en cuenta que esta política se proyecta a 10 años plazo y dada la diversidad de actores participantes, los compromisos para su ejecución y su evaluación, formarán parte de los acuerdos que se reflejarán en los planes de acción quinquenales previstos.
-[imagen]
-[imagen]
-[imagen]
-[imagen]
 Ejes/Objetivos específicos | Acciones estratégicas
 Eje 5: Sostenibilidad y seguimiento |
-5. Generar un sistema de Seguimiento y Evaluación coordinado por los mecanismos establecidos para la ejecución del Plan de la Política | 5.1 Crear una Comisión de Alto Nivel y un Comité Técnico Nacional que incluya a las instituciones del sector científico-tecnológico, sector público, educativo y privado que tienen alguna incidencia, interés y responsabilidad en la ejecución de la Política, como órgano de decisión, de gestión y de seguimientos.
+5. Generar un sistema de Seguimiento y Evaluación coordinado por los mecanismos establecidos para la ejecución del Plan de la Política | 5.1. Crear una Comisión de Alto Nivel y una Comisión Técnica Interinstitucional que incluya a las instituciones del sector científico-tecnológico, sector público, educativo y privado que tienen alguna incidencia, interés y responsabilidad en la ejecución de la Política, como órganos de decisión, de gestión y de seguimiento. (Así reformado el punto anterior por el artículo 6 del Reglamento de creación de la comisión de alto nivel de la política para la igualdad entre mujeres y hombres en la formación, el empleo y el disfrute de los productos de la ciencia, la tecnología, las telecomunicaciones y la innovación 2018-2027 aprobado mediante decreto ejecutivo N° 42412 del 3 de junio del 2020)
 5.2 Elaborar el Plan Nacional de Acción para implementar la Política.
 5.3 Realizar un modelo de evaluación y seguimiento para la implementación de la política.
-[imagen]
 6. Modelo de gestión
 La complejidad de erradicar las desigualdades de género en los procesos de atracción, formación, empleo y apropiación del conocimiento, en la ciencia y la tecnología convoca a diversos actores, con capacidades para actuar en el marco de esta política, de acuerdo con sus recursos y sus competencias.
 La conducción de la política estará bajo la responsabilidad del Ministerio de Ciencia, Tecnología y Telecomunicaciones, como institución rectora de este sector. El departamento de Promoción de la Ciencia y la Tecnología, mediante el Programa Ciencia y Género, facilitará la asistencia técnica requerida para la ejecución de la Política y su plan de acción.
@@ -529,8 +500,7 @@ Las personas designadas por las instituciones para participar en la Comisión T�
 Asimismo, desde la Comisión Técnica se promoverán alianzas a nivel nacional y regional para que las mujeres vinculadas a la ciencia y la tecnología, participen en los procesos de la Política, desde su condición de sujetas y considerando la diversidad de intereses y necesidades que les moviliza, de acuerdo con su edad, el lugar de residencia, la condición de discapacidad, la identidad sexual, la condición socio-económica, las posibilidades de disfrutar de los beneficios que se derivan de los avances científicos y tecnológicos, entre otros.
 Las Comisiones indicadas serán respaldadas por un Decreto Ejecutivo promovido por el MICITT, en el que se señalen las funciones y las responsabilidades de quienes formarán parte de las mismas.
 El sistema de evaluación y seguimiento de la política así como del plan de acción quinquenal debe articularse con el plan nacional de ciencia y tecnología, para evitar la duplicidad en la solicitud y el procesamiento de la información requerida para valorar los avances en la respuesta pública ante el problema enfocado por esta Política.
-[imagen] [imagen] 7. Bibliografía
-[imagen]
+7. Bibliografía
 Asamblea General de las Naciones. (1958). Declaración Universal de los Derechos Humanos. Recuperado de http://www.un.org/es/universal-declaration-human-rights/
 Anderson, J. (1998). Public Policy Making. Boston: Houghton Miffin.
 Boix, M. (01 de 07 de 2005). La historia de las mujeres, todavía una asignatura pendiente. Recuperado: http://www.mujeresenred.net/spip.php?article272
@@ -583,7 +553,3 @@ ONU MUJERES. (2017). Incorporación de la perspectiva de género. Recuperado de:
 OREALC/UNESCO. (2016). Inequidad de género en los logros de aprendizaje en educación primaria: ¿Qué nos puede decir TERCE? Santiago, Chile: UNESCO: Oficina Regional de Educación para América Latina y el Caribe.
 Organización Iberoaméricana de Juventud. (2008). Convención Iberoamericana de Derechos de los Jóvenes. Recuperado de: http://www.crin.org/en/docs/FileManager/cidjpdf.pd
 7.Anexos y apéndices
-[imagen]
-[imagen]
-[imagen]
-[imagen]
