@@ -1,0 +1,2 @@
+Artículo 3.- Adiciónese el Transitorio IV al Decreto Ejecutivo No. 33925-C Reglamento del Programa Nacional para el Desarrollo de las Artes Escénicas (PROARTES) del 09 de agosto de 2007 publicado en El Diario Oficial La Gaceta No. 160 del 22 de agosto de 2007, reformado por los Decretos Ejecutivos No. 34615-C y 37914-C, que establece lo siguiente:
+“Transitorio IV. La vigencia de los artículos 30 bis y 30 ter del presente Decreto, será desde su publicación en el Diario Oficial La Gaceta y hasta el 31 de diciembre de 2020.”
