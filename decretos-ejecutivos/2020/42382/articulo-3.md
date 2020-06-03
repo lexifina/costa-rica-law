@@ -1,0 +1,1 @@
+ARTÍCULO 3°.-Regulación horaria de la restricción vehicular nocturna. Durante los días lunes a domingo, inclusive, y en el período comprendido entre las 17:00 horas y las 05:00 horas, no se permitirá el tránsito vehicular en los cantones establecidos en el artículo anterior, salvo las excepciones contempladas en el numeral 4° del presente Decreto Ejecutivo.
