@@ -14,3 +14,4 @@ Reglamento para la Regulación del Consejo de Sostenibilidad Corporativo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-08-13 | la propia norma |
+| 2 | 2020-06-03 | Reglamento 5739 (2020-06-03) |
