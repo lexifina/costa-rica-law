@@ -14,3 +14,4 @@ Restricción vehicular nocturna con franja horaria diferenciada en determinados 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-06-03 | la propia norma |
+| 2 | 2020-06-03 | Decreto Ejecutivo 42383 (2020-06-03) |
