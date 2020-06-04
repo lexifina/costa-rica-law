@@ -14,3 +14,4 @@ Establece medida sanitaria para prohibir el ingreso a las personas en los siguie
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-06-03 | la propia norma |
+| 2 | 2020-06-04 | Resolución 4547 (2020-06-04) |
