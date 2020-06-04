@@ -14,3 +14,4 @@ Medidas sanitarias para evitar la introducción y dispersión del pequeño escar
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-03-07 | la propia norma |
+| 2 | 2020-06-04 | Resolución 30 (2020-06-04) |
