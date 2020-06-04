@@ -1,0 +1,16 @@
+# Resolución 4513
+
+Cierre temporal establecimientos permiso sanitario de funcionamiento distritos Peñas Blancas los Chiles Paquera Pavas poblados La Vega y Bonanza Florencia Fortuna San Rafael(Guatuso) cantones Pococí Upala Alajuelita Desamparados y Corredores
+
+- Tipo: Resolución
+- Número: 4513
+- Fecha: 2020-06-03
+- Ente emisor: Ministerio de Salud
+- Publicación: La Gaceta N° 130 del 2020-06-03, Alcance 133
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=91516&param2=120838&param3=1 (ficha 91516)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 2020-06-04 | la propia norma |
