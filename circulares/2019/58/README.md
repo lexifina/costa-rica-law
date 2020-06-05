@@ -13,3 +13,4 @@ Se modifica la circular 76-2010, respecto a la Oficina, telefax y nombre de la p
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-04-09 | la propia norma |
+| 2 | 2020-06-05 | Circular 114 (2020-06-05) |
