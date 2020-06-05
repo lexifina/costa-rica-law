@@ -1,0 +1,1 @@
+Artículo 5º—Rendición de cuentas. Semestralmente rendirá el Alcalde Municipal un informe al Concejo Municipal, el cual contendrá los egresos que hubiese autorizado, lo anterior de conformidad con el artículo 17 inciso f), del Código Municipal.
