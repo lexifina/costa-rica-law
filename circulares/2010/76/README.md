@@ -14,3 +14,4 @@ Oficina, telefax y nombre de la persona a la cual deben dirigirse los documentos
 | --- | --- | --- |
 | 1 | 2010-08-24 | la propia norma |
 | 2 | 2019-04-09 | Circular 58 (2019-04-09) |
+| 3 | 2020-06-05 | Circular 114 (2020-06-05) |
