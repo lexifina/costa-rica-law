@@ -1,0 +1,1 @@
+Artículo 3°.- De conformidad con el artículo 5 del Decreto Ejecutivo número 40540-H del 1 de agosto de 2017, la presente declatoria de interés público no generará el otorgamiento de ningún tipo de exoneración o beneficio fiscal.
