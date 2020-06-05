@@ -1,0 +1,1 @@
+Artículo 15.- Convocatoria a sesiones. La Comisión podrá reunirse en cualquier momento, debiendo existir una antelación mínima de un día hábil entre el llamado a sesionar que gestione la UAC y el día de la sesión. En caso de estar todos los miembros de acuerdo, podrá sesionarse el mismo día en que se remite la convocatoria.

@@ -1,0 +1,1 @@
+Artículo 62.- Prórrogas previstas en los contratos. Cuando una DS o UT determine que es procedente o no prorrogar un contrato, deberá remitir a la UAC una solicitud con indicación de los motivos de dicho proceder.

@@ -1,0 +1,7 @@
+Artículo 5.-De la Asesoría Jurídica. En cuanto a las contrataciones que tramite el IFAM, será competencia exclusiva de la AJ:
+a. Asesorar a las Unidades participantes respecto a las dudas de orden jurídico que surjan como parte de los procedimientos de contratación.
+b. Emitir recomendaciones de orden jurídico a los borradores de cartel que sean sometidos a su consideración.
+c. Rendir, dentro del plazo que fije la UAC, los dictámenes legales en relación con los procesos de contratación, cuya estimación presupuestaria sea superior al límite máximo de contratación directa según el estrato en que se encuentra ubicado el IFAM, en los Lineamientos Generales de la Contratación Administrativa emitidos por la Contraloría General de la República, así como las contrataciones realizadas por medio de licitación o al amparo de los artículos 138 y 139 (del inciso “h” en adelante con excepción de los incisos n y o), 140, 142, 143, 145 y 146 del RLCA, o cualquier otra que por su naturaleza la UAC solicite algún dictamen, en cualquiera de las etapas del proceso de contratación.
+d. Colaborar con la UAC en la atención de los recursos, elaboración de los contratos administrativos que requieran formalización, en los procesos de rescisión o resolución contractual y en la instrucción de las acciones sancionatorias.
+e. Otorgar refrendo interno a los contratos y las respectivas modificaciones que así lo requieran.
+f. Ejecutar cualquier otra responsabilidad que se defina en el presente Reglamento o que por su naturaleza corresponda a esta Asesoría.

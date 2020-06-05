@@ -1,0 +1,2 @@
+Artículo 19.- Coordinación con las Unidades Técnicas. Cuando la DS determine que, para la satisfacción de una necesidad, requiere un bien o servicio y el IFAM cuenta con una UT especialista, deberá gestionar ante ésta última el requerimiento.
+En caso de que la UT, a la que fue remitido el requerimiento, considere que no es la unidad apropiada para cumplir las labores correspondientes, deberá coordinar con la unidad que estime competente para la gestión del requerimiento. Si hubiere desacuerdo en la definición, el diferendo será resuelto por la Dirección Ejecutiva.

@@ -1,0 +1,1 @@
+Artículo 66.- De los asesores. La UAC, el órgano director y el órgano decisor podrán contar con los asesores internos o externos que sean necesarios para la buena marcha y correcta resolución del procedimiento.

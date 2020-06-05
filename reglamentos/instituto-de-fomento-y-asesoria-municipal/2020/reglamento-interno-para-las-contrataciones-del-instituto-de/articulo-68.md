@@ -1,0 +1,1 @@
+Artículo 68.- De los aspectos no regulados en el Presente reglamento: Sobre lo no regulado en el presente reglamento se aplicará lo previsto en la Ley de Contratación Administrativa N°7494 y su Reglamento, y en general todo el bloque de legalidad.

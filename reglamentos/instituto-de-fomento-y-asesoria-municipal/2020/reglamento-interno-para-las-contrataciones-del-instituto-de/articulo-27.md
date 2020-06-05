@@ -1,0 +1,1 @@
+Artículo 27.- Plazos para presentar las solicitudes de contratación. Las contrataciones deberán requerirse con la anticipación prevista para cada tipo de procedimiento y establecida en el Manual de Usuario.

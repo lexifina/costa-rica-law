@@ -1,0 +1,1 @@
+Artículo 44.- Subsanación de ofertas. La prevención girada a un oferente para que subsane la oferta será emitida ya sea por la UAC, la AJ, la DS o UT, según corresponda, en todos los casos deberá coordinarse previamente con la UAC.

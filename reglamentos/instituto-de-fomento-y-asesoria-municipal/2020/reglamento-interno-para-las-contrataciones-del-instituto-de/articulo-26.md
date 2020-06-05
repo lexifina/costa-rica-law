@@ -1,0 +1,1 @@
+Artículo 26.- Plazos para gestionar el inicio de los procedimientos. Le corresponderá a la UAC comunicar, durante el primer trimestre del año, las fechas máximas para la emisión de la solicitud de contratación, correspondiente a los procedimientos de contratación previstos dentro del Programa de Adquisiciones, de acuerdo con la información indicada por las DS.
