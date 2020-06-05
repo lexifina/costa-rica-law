@@ -1,0 +1,2 @@
+CAPITULO III: DISPOSICIONES FINALES
+Artículo 25°- Factor socio-ambiental: La Federación y las municipalidades adheridas impulsarán una visión de sostenibilidad durante todo el proceso, especialmente en el ámbito socio-ambiental, incluyendo las alternativas que en este aspecto se encuentran previstas en el artículo 31 de la Ley Orgánica de la Autoridad Reguladora de los Servicios Públicos (ARESEP) al definir sus modelos tarifarios.

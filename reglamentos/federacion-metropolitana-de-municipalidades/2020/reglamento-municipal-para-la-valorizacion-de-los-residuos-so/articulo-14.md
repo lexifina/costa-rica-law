@@ -1,0 +1,1 @@
+Artículo 14º- Sistema de valoración y calificación de las ofertas: Entre las ofertas que lograron la admisibilidad se escogerá aquella cuya propuesta que contenga el menor precio por tonelada recibida en la planta. Este precio no incluye ningún concepto de recolección, separación previa, acopio o transporte previo a la llegada a la planta.
