@@ -1,0 +1,2 @@
+Artículo 60.—Vigencia. El presente Reglamento rige a partir de su publicación en el Diario Oficial La Gaceta.
+Aprobado por el Concejo Municipal de El Guarco, en la sesión ordinaria N° 254-2019, celebrada el 04 de noviembre de 2019, ratificada en la sesión N° 255-2019 del 11 de noviembre de 2019, mediante acuerdo N° 865 y subsanada en la sesión N° 259-2019 del 02 de diciembre de 2019, mediante acuerdo N° 885 definitivamente aprobado.

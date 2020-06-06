@@ -1,0 +1,1 @@
+Artículo 59.—Derogatoria. Deróguese el Reglamento de Organización y Funcionamiento de la Auditoría Interna de la Municipalidad de El Guarco, publicado en La Gaceta N° 15 del 22 de enero del 2008, y cualquier otra normativa interna que se contraponga al presente reglamento.
