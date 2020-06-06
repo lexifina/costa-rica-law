@@ -1,0 +1,1 @@
+Artículo 15.—Plazo del proceso. Entre la interposición de la denuncia y la resolución por parte de la Dirección Ejecutiva no debe exceder el plazo de tres meses, plazo ordenatorio según lo estipulado en el artículo 5 de la Ley Nº 7476.

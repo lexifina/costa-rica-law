@@ -1,0 +1,1 @@
+Artículo 21.—Audiencia con la persona denunciada. Durante la audiencia, la persona denunciada tiene derecho a ser acompañada por una persona profesional en Derecho. En caso de que la persona denunciada no ejerza su derecho de defensa, se continuará el proceso.

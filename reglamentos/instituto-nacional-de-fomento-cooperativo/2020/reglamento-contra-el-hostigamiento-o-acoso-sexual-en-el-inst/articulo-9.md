@@ -1,0 +1,1 @@
+Artículo 9º—Normativa complementaria. En todo aquello no previsto en el presente reglamento se aplicará lo establecido en la Ley 7476 y sus reformas, la Ley General de la Administración Pública, el Código de Trabajo y el Reglamento Orgánico del INFOCOOP vigente.

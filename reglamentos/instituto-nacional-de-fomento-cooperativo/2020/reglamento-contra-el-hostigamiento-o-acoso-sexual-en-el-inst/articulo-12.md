@@ -1,0 +1,3 @@
+Artículo 12.—Admisibilidad de las denuncias por hostigamiento sexual. Serán admitidas todas aquellas denuncias que sean interpuestas en el plazo establecido.
+El plazo para interponer la denuncia será de dos años, computados a partir del último hecho constitutivo del supuesto acoso u hostigamiento sexual o a partir del cese de la causa justificada que impidió denunciar.
+En caso de que la denuncia no proceda por haber superado el plazo, será responsabilidad de la persona que recibió la denuncia dar seguimiento a la persona denunciante para garantizarle la disponibilidad de abrir un proceso en caso de que se repitan los hechos reportados.

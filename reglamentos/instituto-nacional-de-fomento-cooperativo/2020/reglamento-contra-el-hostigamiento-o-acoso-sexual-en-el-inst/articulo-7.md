@@ -1,0 +1,1 @@
+Artículo 7º—No procedencia de la conciliación. Los casos denunciados por concepto de hostigamiento o acoso sexual no podrán ser objeto de conciliación, considerando que constituyen formas de violencia que han minado gravemente la dignidad de la víctima. Quien reciba la denuncia y el órgano director tienen prohibido favorecer ni aceptar ningún acuerdo conciliatorio.

@@ -1,0 +1,3 @@
+CAPÍTULO II
+De la prevención
+Artículo 10.—Política. La Junta Directiva y la Dirección Ejecutiva de INFOCOOP, así como las demás Gerencias e instancias institucionales, rechazan las prácticas de hostigamiento o acoso sexual como agresiones y prácticas que minan la dignidad de las personas (sea en sus aspectos físico, psicológico o social) y que generan desigualdad y abuso del poder. La Junta Directiva y la Dirección Ejecutiva de INFOCOOP se asegurarán de que se mantengan los procedimientos y los medios de divulgación necesarios para prevenir los hechos de esta naturaleza, así como los procedimientos para sancionar estas prácticas cuando se dieran.

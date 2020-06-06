@@ -1,0 +1,1 @@
+Artículo 6º—Principio pro-víctima. Según lo establecido en el artículo 18 de la Ley 7476, el principio pro-víctima rige y es de aplicación dentro del marco de estos procedimientos, de modo que en caso de duda se interpretará a favor de la víctima.

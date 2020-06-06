@@ -1,0 +1,3 @@
+CAPÍTULO VII
+Del fuero de protección
+Artículo 26.—De la protección a las personas testigos. Toda persona denunciante o testigo de un hostigamiento o acoso sexual, tiene la garantía de que no sufrirá perjuicio alguno por sus declaraciones, incluyendo aunque no exclusivamente, lo propio del proceso también sumario denominado “Protección en Fueros Especiales y tutela del Debido Proceso”, introducido por la Reforma Procesal Laboral al Código de Trabajo (arts. del 540 al 547); siempre que dichas declaraciones no sean difamatorias, injuriosas o calumniosas. Cualquier forma de despido (con responsabilidad patronal o sin ella) que deba aplicarse a estas personas será notificado previamente al Ministerio de Trabajo y Seguridad Social.
