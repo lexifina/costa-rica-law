@@ -1,0 +1,1 @@
+Artículo 13.—Archivo electrónico. Todas las dependencias del INFOCOOP manejarán un archivo digital de todos los documentos electrónicos que se envíen, y se reciban en el cumplimiento de sus funciones, con el fin de garantizar el libre acceso a la información pública, de conformidad con el artículo 30 de la Constitución Política.

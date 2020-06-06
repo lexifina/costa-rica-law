@@ -1,0 +1,1 @@
+Artículo 6º—Vigencia del certificado digital. La vigencia de los documentos electrónicos con certificado digital será de manera permanente, salvo directriz expresa de la Dirección Ejecutiva que manifieste lo contrario.

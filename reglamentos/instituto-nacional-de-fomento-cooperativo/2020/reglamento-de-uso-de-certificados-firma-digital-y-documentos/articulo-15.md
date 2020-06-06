@@ -1,0 +1,2 @@
+Artículo 15.—Régimen disciplinario. Para la imposición de sanciones se aplicará el régimen establecido en el Reglamento Interno de Trabajo del INFOCOOP, en conjunto con la Ley General de Administración Pública y el Ordenamiento Jurídico Costarricense.
+Para la aplicación supletoria de la Ley de Administración Financiera y su reglamento, la firma digital se considerará como código e información confidencial de la Administración.
