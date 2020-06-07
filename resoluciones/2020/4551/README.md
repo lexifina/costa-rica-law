@@ -14,3 +14,4 @@ Reforma Ordena cierre temporal establecimientos con permiso sanitario de funcion
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-06-05 | la propia norma |
+| 2 | 2020-06-07 | Resolución 4562 (2020-06-07) |

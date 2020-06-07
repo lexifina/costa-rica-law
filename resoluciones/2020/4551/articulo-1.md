@@ -8,6 +8,7 @@ Por tanto,
 EL MINISTRO DE SALUD
 RESUELVE
 PRIMERO: Modificar la disposición Segunda del Por tanto de la resolución ministerial No. MS-DM-4513-2020 de las doce horas del tres de junio del dos mil veinte, para que en lo sucesivo se lea así:
-“SEGUNDO: Se resuelve ordenar el cierre temporal de todos los establecimientos con permiso sanitario de funcionamiento que brinden atención al público, los días lunes, martes, miércoles, jueves y viernes de las 17:00 horas a las 5:00 horas del día siguiente, en los distritos de Cariari (Pococí), Peñas Blancas (San Ramón), Cañas y Bebedero (Cañas), Las Juntas (Abangares) y Los Chiles (Los Chiles). Asimismo, se ordena el cierre temporal de dichos establecimientos los días sábados y domingos de manera total. Dichas restricciones se aplicarán a partir del 04 de junio de 2020 y hasta el 17 de junio de 2020.
+“SEGUNDO: Se resuelve ordenar el cierre temporal de todos los establecimientos con permiso sanitario de funcionamiento que brinden atención al público, los días lunes, martes, miércoles, jueves y viernes de las 17:00 horas a las 5:00 horas del día siguiente, en los distritos de Peñas Blancas (San Ramón), Cañas y Bebedero (Cañas), Las Juntas (Abangares), Los Chiles (Los Chiles), Fortuna (San Carlos) y los cantones de Pococí y Upala. Asimismo, se ordena el cierre temporal de dichos establecimientos los días sábados y domingos de manera total. Dichas restricciones se aplicarán a partir del 04 de junio de 2020 y hasta el 17 de junio de 2020.
+(Así reformado el párrafo anterior por resolución MS-DM-4562-2020 del 7 de junio del 2020)
 (...)”
 SEGUNDO: En lo demás, se confirma la resolución MS-DM-4513-2020 de las doce horas del tres de junio del dos mil veinte.
