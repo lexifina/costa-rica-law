@@ -15,3 +15,4 @@ Cierre temporal establecimientos permiso sanitario de funcionamiento distritos P
 | --- | --- | --- |
 | 1 | 2020-06-04 | la propia norma |
 | 2 | 2020-06-04 | Resolución 4551 (2020-06-04) |
+| 3 | 2020-06-07 | Resolución 4562 (2020-06-07) |
