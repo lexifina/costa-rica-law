@@ -14,3 +14,4 @@ Reglamento interno de proveeduría municipal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-01-08 | la propia norma |
+| 2 | 2020-06-08 | Reglamento municipal 0 (2020-06-08) |
