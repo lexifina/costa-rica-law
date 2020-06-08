@@ -1,1 +1,0 @@
-Artículo 2º—Medidas y recursos. El INA incluirá en los POA y presupuestos, acciones y proyectos, las medidas y recursos que garanticen el acceso oportuno y la equiparación de oportunidades a las personas con necesidades educativas especiales que atiende la institución.
