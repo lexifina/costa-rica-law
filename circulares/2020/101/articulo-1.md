@@ -1,4 +1,7 @@
 N° 101-2020
+(Nota de Sinalevi: Mediante sesión N° 67-2020 del 02 de julio del 2020, publicada en el Boletín judicla N° 133 del 13 de julio del 2020 mediante circular N° 140-2020 del 2 de julio del 2020 se establece lo siguiente: “ 1.3 Fase 3, circular 101-20. Regreso Paulatino a la normalidad, Alerta Amarilla.
+Para aquellos despachos judiciales en materia penal, ubicados en las zonas en que se declare la alerta amarilla aplica la circular número 101-2020 aprobada por el Consejo Superior. Estas disposiciones también serán aplicables a los asuntos que deban atender con intervinientes procedentes de donde se decretó la alerta roja, o a los asuntos que deban realizar en aquel lugar.”)
+(Nota de Sinalevi: Mediante sesión N° 50-2020 del 19 de mayo del 2020, publicada en el Boletín Judicial N° 120 del 24 de junio del 2020, mediante circular N° 113 del 8 de junio del 2020, se aclara la presente norma en el sentido que: “las disposiciones emitidas en la misma, son igualmente atinentes y de aplicación para los Juzgados Penales Juveniles, los Juzgados de Ejecución de las Sanciones Penales Juveniles y los Tribunales de Apelación de Sentencia Penal Juvenil”)
 ASUNTO: Disposiciones para ir retornando a la normalidad en el sistema de justicia penal en el Poder Judicial, conforme a lo dispuesto en la circular de la Secretaría General de la Corte N° 100-2020 del 13 de mayo del año en curso.
 A TODOS LOS DESPACHOS JUDICIALES DE PAÍS QUE CONOCEN
 LA MATERIA PENAL, ABOGADAS, ABOGADOS Y PÚBLICO

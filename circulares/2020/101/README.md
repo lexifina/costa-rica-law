@@ -13,3 +13,4 @@ Disposiciones para ir retornando a la normalidad en el sistema de justicia penal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-05-15 | la propia norma |
+| 2 | 2020-06-08 | Circular 113 (2020-06-08) |
