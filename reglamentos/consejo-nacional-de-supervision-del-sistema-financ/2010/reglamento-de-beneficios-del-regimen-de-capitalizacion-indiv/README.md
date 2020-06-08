@@ -17,3 +17,4 @@ Reglamento de Beneficios del Régimen de Capitalización Individual, reforma Reg
 | 2 | 2012-09-25 | Reglamento 999 (2012-09-25) |
 | 3 | 2015-04-06 | Reglamento 1157 (2015-04-06) |
 | 4 | 2020-05-25 | Reglamento 1577 (2020-05-25) |
+| 5 | 2020-06-08 | Reglamento 1580 (2020-06-08) |
