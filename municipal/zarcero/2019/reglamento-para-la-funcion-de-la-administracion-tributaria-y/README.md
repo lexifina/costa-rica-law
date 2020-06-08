@@ -14,3 +14,4 @@ Reglamento para la función de la administración tributaria y el procedimiento 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-12-03 | la propia norma |
+| 2 | 2020-06-08 | Reglamento municipal 6 (2020-06-08) |
