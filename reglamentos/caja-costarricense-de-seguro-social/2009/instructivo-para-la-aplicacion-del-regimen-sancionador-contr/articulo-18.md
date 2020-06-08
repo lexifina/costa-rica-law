@@ -1,2 +1,2 @@
-Artículo 18.—De la instrucción del procedimiento. El órgano director nombrado al efecto, será el encargado de realizar la instrucción del procedimiento de sanción de acuerdo con el trámite que establece el Reglamento a la Ley de Contratación Administrativa. La Ley General de la Administración Pública se aplicará únicamente en aquello que lo complemente como garantía a las reglas del debido proceso.
+Artículo 18.—De la instrucción del procedimiento. El órgano director nombrado al efecto, será el encargado de realizar la instrucción del procedimiento de sanción de acuerdo con el trámite que establece la Ley General de Administración Pública.
 El acto que suponga el traslado de cargos observará los contenidos indicados en los artículos siguientes.

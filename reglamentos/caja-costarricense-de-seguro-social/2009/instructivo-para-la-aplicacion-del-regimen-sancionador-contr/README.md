@@ -15,3 +15,4 @@ Instructivo para la aplicación del Régimen sancionador contra Proveedores y Co
 | --- | --- | --- |
 | 1 | 2009-08-03 | la propia norma |
 | 2 | 2013-09-17 | Decreto Ejecutivo 37943 (2013-09-17) |
+| 3 | 2020-06-08 | Reglamento 559 (2020-06-08) |
