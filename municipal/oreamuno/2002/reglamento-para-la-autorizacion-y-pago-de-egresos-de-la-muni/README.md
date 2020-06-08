@@ -16,3 +16,4 @@ Reglamento para la autorización y pago de egresos de la Municipalidad de Cantó
 | 1 | 2003-03-26 | la propia norma |
 | 2 | 2005-09-26 | Reglamento municipal 268 (2005-09-26) |
 | 3 | 2009-02-03 | Reglamento municipal 0 (2009-02-03) |
+| 4 | 2020-06-08 | Reglamento municipal 8 (2020-06-08) |

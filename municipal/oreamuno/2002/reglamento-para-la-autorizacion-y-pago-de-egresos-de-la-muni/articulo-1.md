@@ -2,7 +2,7 @@ La suscrita Secretaria, se permite transcribir a usted, el Reglamento para la au
 REGLAMENTO PARA LA AUTORIZACIÓN
 Y PAGO DE EGRESOS DE LA MUNICIPALIDAD
 DEL CANTÓN DE OREAMUNO
+(Nota de Sinalevi: Este reglamento fue reformado parcialmente y reproducido su texto de forma íntegra mediante sesión Ordinaria N° 8-2020 del 08 de junio de 2020, Y publicado en el Alcance Digital N° 261 a La Gaceta N° 241 del 1° de octubre del 2020, por lo que se transcribe a continuación:)
 CAPÍTULO I
-Disposiciones generales
-Artículo 1º—De las atribuciones del Alcalde. Para los efectos de este reglamento se autoriza egresos por gastos fijos y la adquisición de bienes y servicios, de conformidad con el artículo 17, inciso h) del Código Municipal hasta por la suma de tres millones de colones.(¢3.000.000,00).
-(Así reformado mediante acuerdo N° 2307 tomado en sesión del 3 de febrero de 2009)
+Disposiciones Generales
+Artículo 1. De las atribuciones del Alcalde. Para los efectos de este reglamento se autoriza egresos por gastos fijos y la adquisición de bienes y servicios, según lo establecido en el artículo 17 inciso h) del Código Municipal y conforme el inciso e) del artículo 13 inciso c) de este código, de acuerdo con el monto de las Contrataciones Directas, y con base en los límites económicos establecidos por la Contraloría General de la República.

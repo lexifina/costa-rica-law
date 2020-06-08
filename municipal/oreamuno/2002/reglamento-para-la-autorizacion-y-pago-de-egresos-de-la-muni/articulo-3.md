@@ -1,1 +1,1 @@
-Artículo 3º—De otros egresos: En todos los demás casos, el Alcalde Municipal debe solicitar la autorización del Concejo Municipal previo a la realización del desembolso, de lo contrario contraviene los artículos 6, 7 y 8 de la Ley de Administración Financiera
+Artículo 3. De otros egresos: En todos los demás casos, el Alcalde Municipal debe solicitar la autorización del Concejo Municipal previo a la realización del desembolso, de lo contrario contraviene los artículos 6, 7 y 8 de la Ley de Administración Financiera.
