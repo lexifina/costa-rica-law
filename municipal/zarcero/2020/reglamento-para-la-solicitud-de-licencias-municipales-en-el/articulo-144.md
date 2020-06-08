@@ -13,6 +13,7 @@ g)Se prohibe la comercialización o el otorgamiento gratuito de bebidas con cont
 h)En los establecimientos que comercialicen bebidas con contenido alcohólico estará prohibido que laboren menores de edad.
 i)En los establecimientos que funcionen con licencia clase B y E4 estará prohibido el ingreso y la permanencia de menores de edad.
 j) Queda terminantemente prohibido la comercialización de bebidas con contenido alcohólico en casas de habitación.
-k) Se prohibe la comercialización de bebidas con contenido alcohólico fuera de los horarios determinados en la licencia municipal respectiva y que señala el artículo Nº 11 de la Ley Nº 9047 y 137 de este reglamento.
+k) Se prohíbe la comercialización de bebidas con contenido alcohólico fuera de los horarios determinados en la licencia municipal respectiva y que señala el artículo Nº 11 de la Ley N° 9047 y 138 de este reglamento.
+(Así reformado el inciso anterior en sesión N° 006 del 8 de junio del 2020)
 l) Queda prohibida la venta, el canje, el arrendamiento, la transferencia, el traspaso y cualquier forma de enajenación o transacción de licencias, entre el licenciado directo y terceros, sean los licenciados de naturaleza física o jurídica.
 m) Se prohíbe la comercialización y el consumo de bebidas con contenido alcohólico en vías públicas y sitios públicos, salvo en los lugares donde se estén realizando fiestas cívicas, populares, patronales, turnos, ferias y afines autorizados por la municipalidad respectiva; la salvedad se circunscribe al área de la comunidad donde se realiza la actividad, la cual será debidamente demarcada por la municipalidad.
