@@ -1,3 +1,2 @@
-Artículo 561.—Inicio de tránsito terrestre. El inicio del segmento terrestre en el transporte multimodal internacional se contabilizará a partir de la salida efectiva del medio de transporte y la unidad de transporte del puerto aduanero, o de las instalaciones del auxiliar de la función pública aduanera habilitadas por el Servicio Nacional de Aduanas donde se encuentren las mercancías.
-Para tales efectos el responsable del puerto aduanero, o el auxiliar de la función pública aduanera registrarán la hora y fecha de salida efectiva y comunicará inmediatamente a la Aduana de jurisdicción y a la Aduana de destino haciendo referencia a la numeración de la declaración aduanera de tránsito multimodal.
+Artículo 561.—Inicio de tránsito terrestre. (Derogado por el artículo 2° del decreto ejecutivo N° 42385 del 9 de junio del 2020)
 (Así adicionado por el artículo 2° del decreto ejecutivo N° 39267 del 19 de octubre de 2015)

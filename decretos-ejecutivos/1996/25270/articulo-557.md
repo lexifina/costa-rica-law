@@ -1,2 +1,2 @@
-Artículo 557.—Transmisión de la declaración aduanera de tránsito multimodal. Al ingreso de mercancías al territorio nacional o a la salida de éste, el agente aduanero deberá transmitir electrónicamente, la declaración aduanera de tránsito multimodal a la aduana de control, de acuerdo con el formato establecido por la Dirección General y presentar sus documentos de respaldo que se establezcan mediante resolución de alcance general emitida por el Director General de Aduanas.
+Artículo 557.—Transmisión de la declaración aduanera de tránsito multimodal. (Derogado por el artículo 2° del decreto ejecutivo N° 42385 del 9 de junio del 2020)
 (Así adicionado por el artículo 2° del decreto ejecutivo N° 39267 del 19 de octubre de 2015)

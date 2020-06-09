@@ -1,2 +1,2 @@
-Artículo 554.—Oficialización del Manifiesto de Salida. La oficialización del manifiesto de salida en la aplicación informática, se realizará en forma automática, 48 horas naturales después de la salida efectiva del medio de transporte. Las autoridades portuarias serán responsables de comunicar mediante la aplicación informática la fecha y hora de salida efectiva del medio de transporte. En ese mismo plazo el transportista aduanero que realice el tráfico marítimo podrá modificar la información transmitida.
+Artículo 554.—Oficialización del Manifiesto de Salida. (Derogado por el artículo 2° del decreto ejecutivo N° 42385 del 9 de junio del 2020)
 (Así adicionado por el artículo 2° del decreto ejecutivo N° 39267 del 19 de octubre de 2015)

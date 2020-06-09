@@ -1,2 +1,2 @@
-Artículo 555.—Transmisión del operador de transporte multimodal internacional en el ingreso. Una vez transmitido el manifiesto de ingreso multimodal, el operador de transporte multimodal internacional deberá transmitir electrónicamente, antes de la oficialización, el detalle de los conocimientos de embarque multimodal individualizados.
+Artículo 555.—Transmisión del operador de transporte multimodal internacional en el ingreso. (Derogado por el artículo 2° del decreto ejecutivo N° 42385 del 9 de junio del 2020)
 (Así adicionado por el artículo 2° del decreto ejecutivo N° 39267 del 19 de octubre de 2015)

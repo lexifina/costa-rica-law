@@ -1,9 +1,5 @@
-Artículo 545.—Definiciones: Para los efectos de este capítulo se entiende por:
-a) Contrato de transporte multimodal internacional: El contrato o acuerdo de voluntad emitido por el operador de transporte multimodal internacional, que constituirá título representativo de mercancías, en virtud del cual éste se compromete contra el pago de un flete a ejecutar o hacer ejecutar el transporte multimodal internacional de las mercancías.
-b) Declaración aduanera de tránsito multimodal: Acto mediante el cual el declarante expresa libre y voluntariamente el régimen al cual se someten las mercancías y acepta las obligaciones que éste impone.
-c) Documento de Transporte Multimodal Internacional: Se entiende como el documento que hace prueba de un Contrato de Transporte Multimodal Internacional y acredita que el Operador de Transporte Multimodal Internacional ha tomado las mercancías bajo su custodia y se ha comprometido a entregarlas de conformidad con las cláusulas de ese contrato.
-d) Expedidor: Persona que celebra un contrato de transporte multimodal internacional con el operador de transporte multimodal internacional, encomendando el transporte de las mercancías.
-e) Manifiesto de Carga Multimodal: Transmisión electrónica realizada por el Operador de Transporte Multimodal Internacional, que contiene el detalle de los conocimientos de embarque (guías hijas), la categorización, la descripción, el precio, el flete total, el peso y la cantidad de bultos que ampara cada conocimiento de embarque.
-f) Operador de transporte multimodal internacional: Es la persona, física o jurídica, que celebra un contrato de transporte multimodal internacional y asume ante el consignante la responsabilidad del transportista por su plena ejecución.
-g) Transporte Multimodal Internacional: Es el tránsito nacional o internacional de mercancías, amparadas a un solo contrato de transporte multimodal internacional con destino o salida Costa Rica, utilizando como modo de transporte el tráfico marítimo y el terrestre.
+Artículo 545.-Definiciones: Para los efectos de este capítulo se entiende por:
+a) Medio de transporte Conjunto: se entiende por medio de transporte conjunto, aquella unidad de transporte que cuente con un medio automotor capaz de remolcarla.
+b) Medio de transporte separado: es aquella unidad de transporte que debe ser remolcada.
 (Así adicionado por el artículo 2° del decreto ejecutivo N° 39267 del 19 de octubre de 2015)
+(Así reformado por el artículo 1° del decreto ejecutivo N° 42385 del 9 de junio del 2020)

@@ -1,3 +1,2 @@
-Artículo 564.—Finalización del Tránsito. El segmento terrestre en el transporte multimodal internacional se tendrá por finalizado con la entrega por parte del transportista aduanero de las mercancías a puerto aduanero, depositario aduanero o al auxiliar autorizado para recibir mercancías en sus instalaciones, indicados en la declaración.
-Para la salida de las mercancías del territorio nacional, la autoridad portuaria introducirá en la aplicación informática en la forma que a los efectos se disponga, la fecha y hora de salida efectiva del medio de transporte utilizando para ello la forma de numeración del manifiesto ya indicada.
+Artículo 564.—Finalización del Tránsito. (Derogado por el artículo 2° del decreto ejecutivo N° 42385 del 9 de junio del 2020)
 (Así adicionado por el artículo 2° del decreto ejecutivo N° 39267 del 19 de octubre de 2015)

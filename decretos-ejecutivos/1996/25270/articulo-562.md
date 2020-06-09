@@ -1,4 +1,2 @@
-Artículo 562.—Desarrollo del tránsito. El segmento terrestre en el transporte multimodal internacional se realizará por las vías habilitadas que se señalen reglamentariamente, sin desviaciones, descargas, ni estacionamientos; salvo con las paradas propias de las necesidades del transporte, según lo establezca la Dirección General de Aduanas, mediante resolución de alcance general.
-Durante el recorrido se harán constar en el documento que acompaña el vehículo, los controles intermedios que hayan realizado los funcionarios aduaneros encargados del control del tránsito o cualquier otra autoridad, con la fecha y hora del control efectuado.
-En caso de irregularidades, se inmovilizará el vehículo y/o se adoptarán las medidas cautelares que se estimen necesarias, comunicándolo a la aduana de salida o de destino, salvo que las medidas cautelares consistan en su acompañamiento a una aduana o zona de operación aduanera.
+Artículo 562.—Desarrollo del tránsito. (Derogado por el artículo 2° del decreto ejecutivo N° 42385 del 9 de junio del 2020)
 (Así adicionado por el artículo 2° del decreto ejecutivo N° 39267 del 19 de octubre de 2015)
