@@ -1,0 +1,1 @@
+Artículo 27.—Disposiciones generales obligatorias. Las disposiciones de este reglamento son de acatamiento obligatorio para las unidades que conforman la organización del CNP y FANAL y para todos los funcionarios (as) encargados de recaudar, custodiar o administrar fondos y valores.

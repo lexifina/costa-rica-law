@@ -1,0 +1,2 @@
+Artículo 2º—Ámbito de aplicación del Reglamento. Las disposiciones contenidas en el presente Reglamento son aplicables a todos aquellos funcionarios del Consejo Nacional de Producción y FANAL que administren, recauden y custodien fondos o valores públicos o que por la naturaleza de sus funciones y responsabilidades deban caucionar.
+Ningún funcionario (a) o servidor (a) que le corresponda, recaudar, custodiar o administrar fondos y valores públicos, podrá desempeñar su cargo sin cumplir con lo dispuesto en este reglamento.

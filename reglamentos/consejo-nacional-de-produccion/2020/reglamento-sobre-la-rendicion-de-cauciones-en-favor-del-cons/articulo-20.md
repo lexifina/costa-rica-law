@@ -1,0 +1,1 @@
+Artículo 20.—Cancelación de las garantías. La obligación de rendir garantía cesará por la renuncia, despido o traslado del puesto del funcionario a otro donde opere un cambio de funciones que no implique la de recaudar, custodiar o administrar fondos y valores y por ende no exija la caución.

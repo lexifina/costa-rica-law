@@ -1,0 +1,5 @@
+Artículo 3º—Definiciones. Para efectos del presente reglamento, se entenderán las siguientes definiciones:
+Administrador de fondos públicos: El jerarca, servidor o funcionario que determina los objetivos y políticas del CNP/ FANAL y a quién o quiénes se le han encomendado, mediante el ejercicio de las funciones administrativas, la tarea de ejercer el gobierno y cuidado de estos fondos.
+Custodia: Guarda o tenencia de recursos, valores, bienes o derechos de propiedad del CNP/FANAL que se administran o conservan con cuidado y vigilancia. Implica conservar la cosa custodiada y responder por ella.
+Caución: Garantía que rinde una persona u otra en su lugar, para asegurar el cumplimiento de una obligación actual o eventual.
+Fondos públicos: Para los efectos de este reglamento, fondos públicos son los recursos, valores, bienes y derechos propiedad del Estado, de órganos, de empresas o de entes públicos y en particular del CNP/FANAL, de conformidad con lo dispuesto en el artículo 9° de la Ley Orgánica de la Contraloría General de la República N° 7428.

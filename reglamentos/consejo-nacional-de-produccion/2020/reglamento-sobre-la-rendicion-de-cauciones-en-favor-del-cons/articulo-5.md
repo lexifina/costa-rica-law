@@ -1,0 +1,1 @@
+Artículo 5º—De las formas de caucionar. La caución a favor del CNP o la Fanal sólo podrá ser admitida: mediante garantía hipotecaria o fiduciaria, mediante póliza de fidelidad del Instituto Nacional de Seguros o la que extienden las compañías aseguradoras debidamente registradas en el país, o dinero en efectivo.
