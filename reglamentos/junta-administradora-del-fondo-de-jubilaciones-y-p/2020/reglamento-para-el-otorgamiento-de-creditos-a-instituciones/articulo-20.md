@@ -1,0 +1,1 @@
+Artículo 20.—Deberes. La Gerencia General del Fondo informará trimestralmente a la Junta Administradora sobre el cumplimiento de las cláusulas contractuales por parte de las entidades autorizadas por el uso de recursos del Fondo.

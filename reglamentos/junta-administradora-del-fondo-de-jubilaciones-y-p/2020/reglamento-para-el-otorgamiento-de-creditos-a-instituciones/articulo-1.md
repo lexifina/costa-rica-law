@@ -1,0 +1,7 @@
+JUNTA ADMINISTRADORA DEL FONDO
+DE JUBILACIONES Y PENSIONES
+DEL PODER JUDICIAL
+“Proyecto de reglamento para el otorgamiento de créditos a instituciones bancarias del estado, cooperativas, cajas de ahorro, asociaciones y sindicatos de personas servidoras judiciales y de la población jubilada y pensionada y al poder judicial con recursos del fondo de jubilaciones y pensiones del poder judicial (artículo 240 bis, Ley N° 9544)”.
+CAPÍTULO I
+Del ámbito de aplicación y definiciones
+Artículo 1º—Regulación. El presente reglamento norma y desarrolla lo relativo al otorgamiento de créditos a instituciones bancarias del Estado, cooperativas, cajas de ahorro, asociaciones y sindicatos de personas servidoras judiciales y de la población jubilada y pensionada, con recursos del Fondo de Jubilaciones y Pensiones, en adelante “el Fondo”, que cuenten con la plataforma que les permita administrar dichos recursos y que estén supervisadas y autorizadas por la Superintendencia General de Entidades Financieras (SUGEF) conforme lo establece el artículo 240 bis de la Ley N° 9544 del Fondo de Jubilaciones y Pensiones del Poder Judicial, para financiar préstamos para construcción o mejoramiento de vivienda y otros de carácter social para las personas asociadas, según el reglamento que al efecto debe dictarse, así como para la compra de terrenos, ampliación, remodelación, reforzamiento y construcción de edificios destinados al Poder Judicial.
