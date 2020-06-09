@@ -1,0 +1,1 @@
+Artículo 2º—Dicho protocolo deberá ser cumplido por todo pescador que reciba la ayuda socioeconómica durante el periodo de veda, de conformidad con las disposiciones normativas aplicables en la materia.
