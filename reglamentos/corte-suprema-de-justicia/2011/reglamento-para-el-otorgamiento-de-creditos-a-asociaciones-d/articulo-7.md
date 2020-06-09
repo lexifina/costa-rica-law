@@ -1,1 +1,0 @@
-Artículo 7º—Usos. Las entidades autorizadas destinarán estos recursos para conceder créditos a los servidores, jubilados y pensionados judiciales según corresponda y tendrán los usos que se definan en los convenios y contratos específicos que se lleguen a suscribir con ocasión del otorgamiento de los créditos.

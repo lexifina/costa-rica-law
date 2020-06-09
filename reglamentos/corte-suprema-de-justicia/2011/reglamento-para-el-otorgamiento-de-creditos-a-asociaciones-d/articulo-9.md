@@ -1,1 +1,0 @@
-Artículo 9º—Cobro. Los intereses corrientes de la obligación contraída por las entidades financieras sujetas de préstamo, en amparo a lo que se definan en los convenios y contratos específicos que se lleguen a suscribir con ocasión del otorgamiento de los créditos, conforme a la normativa vigente.

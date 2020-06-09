@@ -1,1 +1,0 @@
-Artículo 5º—Límites. En ningún caso se podrá destinar más del 25% del activo del Fondo para conceder recursos a las entidades autorizadas y tampoco podrá destinarse más de un 5% del activo total del Fondo a una sola entidad.
