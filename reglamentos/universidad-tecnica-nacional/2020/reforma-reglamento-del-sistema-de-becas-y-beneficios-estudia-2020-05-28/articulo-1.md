@@ -1,0 +1,7 @@
+UNIVERSIDAD TÉCNICA NACIONAL
+CONSEJO UNIVERSITARIO
+El Consejo Universitario de la Universidad Técnica Nacional comunica la reforma al Reglamento del Sistema de Becas y Beneficios Estudiantiles, adoptada mediante el Acuerdo N° 8-11-2020 de la sesión ordinaria N° 11-2020, Artículo N° 8, celebrada el 28 de mayo de 2020, en el que se incorpora un nuevo artículo transitorio, a saber:
+Acuerdo 8-11-2020:
+Que desde el 01 y hasta el 30 junio del año 2020, las ayudas económicas específicas relacionadas con la dificultad de conexión de la población estudiantil identificada por medio del Formulario UTN Conexión, se otorgarán de acuerdo con los lineamientos establecidos desde la Vicerrectoría de Vida Estudiantil. Posteriormente, se trasladarán a las Coordinaciones de Área de Vida Estudiantil de las Sedes que correspondan, para su debido aval y gestión del pago desde la Cuota de Vida Estudiantil. Adicionalmente, se exime de la realización de estudios socioeconómicos por parte de las encargadas de las Subáreas de Becas y Beneficios Estudiantiles de las Sedes, con el fin de atender a la mayor brevedad posible las necesidades de apoyo económico para obtener temporalmente el servicio de Internet.
+Rige a partir de su publicación.
+El Reglamento del Sistema de Becas y Beneficios Estudiantiles, en su versión completa y actualizada, se encuentra disponible en el portal electrónico de la Universidad Técnica Nacional www.utn.ac.cr, sección “Normativa Universitaria”.
