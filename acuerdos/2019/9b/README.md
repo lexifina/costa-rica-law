@@ -14,3 +14,4 @@ Procedimiento ECA-MC-C21 Criterios para evaluación y acreditación de laborator
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-11-17 | la propia norma |
+| 2 | 2020-06-09 | Acuerdo 7 (2020-06-09) |

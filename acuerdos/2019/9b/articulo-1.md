@@ -1,23 +1,21 @@
 ENTE COSTARRICENSE DE ACREDITACIÓN
-N° 2019-009.—El Ente Costarricense de Acreditación (ECA), en cumplimiento de la Ley 8279 Ley del Sistema Nacional de la Calidad, da a conocer la modificación de los siguientes documentos: Procedimientos: ECA-MP-P04-I01, instrucción para Presentar el alcance de acreditación de laboratorios de ensayo pasa de versión 01 a versión 02. Fecha de entrada en vigencia a partir de la publicación en La Gaceta; ECA-MC-C21 Criterios para evaluación y acreditación de laboratorios clínicos bajo la norma INTE/ISO 15189:2014 de versión 01 a versión 02, para este documento se brindará un transitorio de 30 días naturales para aplicación, a partir de la publicación en Diario Oficial La Gaceta. ECA-MC-C18 Criterios para evaluación y acreditación de laboratorios bajo la Norma INTE-ISO/IEC 17025:2017 pasa de versión 01 a versión 02. Fecha de entrada en vigencia a partir de la publicación en La Gaceta. ECA-MP-P04-I04, instrucción para presentar el alcance de acreditación de laboratorios de ensayos en química. Fecha de entrada en vigencia a partir de la publicación en La Gaceta. ECA-MP-P04-I02, instrucción para presentar el alcance de acreditación de laboratorios de calibración. Fecha de entrada en vigencia a partir de la publicación en La Gaceta. Los documentos descritos anteriormente se encuentran a disposición de los interesados en la página electrónica http://www.eca.or.cr/docs.php; así mismo puede solicitar el envío de manera electrónica o solicitar gratuitamente una copia no contralada en la Gestoría de Calidad en las oficinas centrales del ECA ubicadas en San José, Barrio Don Bosco, avenida 02 y calle 32, contiguo a la Embajada de España, en horario de lunes a viernes de 8 h a 16 h. única vez; cédula N° 8-0130-0191
-San José, 10 de octubre del 2019.—
+N° 2019-009.-El Ente Costarricense de Acreditación (ECA), en cumplimiento de la Ley 8279 Ley del Sistema Nacional de la Calidad, da a conocer la modificación de los siguientes documentos: Procedimientos: ECA-MP-P04-I01, instrucción para Presentar el alcance de acreditación de laboratorios de ensayo pasa de versión 01 a versión 02. Fecha de entrada en vigencia a partir de la publicación en La Gaceta; ECA-MC-C21 Criterios para evaluación y acreditación de laboratorios clínicos bajo la norma INTE/ISO 15189:2014 de versión 01 a versión 02, para este documento se brindará un transitorio de 30 días naturales para aplicación, a partir de la publicación en Diario Oficial La Gaceta. ECA-MC-C18 Criterios para evaluación y acreditación de laboratorios bajo la Norma INTE-ISO/IEC 17025:2017 pasa de versión 01 a versión 02. Fecha de entrada en vigencia a partir de la publicación en La Gaceta. ECA-MP-P04-I04, instrucción para presentar el alcance de acreditación de laboratorios de ensayos en química. Fecha de entrada en vigencia a partir de la publicación en La Gaceta. ECA-MP-P04-I02, instrucción para presentar el alcance de acreditación de laboratorios de calibración. Fecha de entrada en vigencia a partir de la publicación en La Gaceta. Los documentos descritos anteriormente se encuentran a disposición de los interesados en la página electrónica http://www.eca.or.cr/docs.php; así mismo puede solicitar el envío de manera electrónica o solicitar gratuitamente una copia no contralada en la Gestoría de Calidad en las oficinas centrales del ECA ubicadas en San José, Barrio Don Bosco, avenida 02 y calle 32, contiguo a la Embajada de España, en horario de lunes a viernes de 8 h a 16 h. única vez; cédula N° 8-0130-0191
+San José, 10 de octubre del 2019.-
 (Nota de Sinalevi: Por tener articulado propio los procedimientos ECA-MC-P04-I01, ECA-MC-C18, ECA-MP-P04-I04, ECA-MP-P04-I02, deben ser consultados en el sistema de forma independiente)
 (Nota de Sinalevi: El presente procedimiento se extrajo del sitio web del Ente Costarricense de Acreditación, por lo que se transcribe a continuación:)
+(Nota de Sinalevi: El presente procedimiento fue reformado parcialmente y reproducido su texto de forma íntegra mediante publicación en La gaceta N° 146 del 19 de junio del 2020, donde se actualizó la versión 1 existente y se publica la versión 02, que se transcribe a continuación:)
 [imagen]
 CONTENIDO
 1. OBJETIVO ................................................................................................................. 1
 2. ALCANCE .................................................................................................................. 1
 3. DEFINICIONES ......................................................................................................... 1
-4. CRITERIOS GENERALES PARA EVALUACIÓN Y ACREDITACIÓN DE
-LABORATORIOS CLÍNICOS. .......................................................................................... 5
-5. CRITERIOS ESPECÍFICOS PARA EVALUACIÓN DE LA NORMA INTE/ISO
-15189:2014 ....................................................................................................................... 6
+4. CRITERIOS GENERALES PARA EVALUACIÓN Y ACREDITACIÓN DE LABORATORIOS CLÍNICOS. .......................................................................................... 5
+5. CRITERIOS ESPECÍFICOS PARA EVALUACIÓN DE LA NORMA INTE/ISO 15189:2014 ....................................................................................................................... 6
 6 BIBLIOGRAFÍA INFORMATIVA .............................................................................. 18
 7 IDENTIFICACIÓN DE CAMBIOS ............................................................................ 19
 8 TRANSITORIO ........................................................................................................ 19
 1. OBJETIVO
-Establecer los criterios de referencia que deben ser aplicados para la evaluación y acreditación de laboratorios clínicos, de acuerdo con la Norma INTE/ISO 15189:2014.
-Asimismo, establecer requisitos complementarios a los citados en la norma de referencia.
+Establecer los criterios de referencia que deben ser aplicados para la evaluación y acreditación de laboratorios clínicos, de acuerdo con la Norma INTE/ISO 15189:2014. Asimismo, establecer requisitos complementarios a los citados en la norma de referencia.
 2. ALCANCE
 El presente documento debe ser aplicado por el personal de la Secretaría de Acreditación de Laboratorios Clínicos, evaluadores y expertos técnicos para Laboratorios Clínicos, Comité Asesor de Laboratorios Clínicos, Comisión de Acreditación y Laboratorios Clínicos acreditados y en proceso de acreditación.
 3. DEFINICIONES
@@ -41,8 +39,7 @@ Nota: Un laboratorio externo es un laboratorio que está fuera del sistema de ge
 El término linealidad aplicado a un método analítico, se refiere al tramo de concentraciones del analito en el que la respuesta del sistema de medición es una función lineal de la concentración; la representación gráfica de este tramo (concentraciones frente a respuestas) debe exhibir una buena correlación de los puntos experimentales a la recta de regresión para que el método analítico en cuestión sea aceptable.
 3.13 Límite de cuantificación: Concentración mínima de analito en la matriz de una muestra que puede ser cuantificada con una exactitud y precisión aceptable bajo condiciones analíticas específicas.
 Los límites de cuantificación son característicos de desempeño que marcan la habilidad de un proceso de medición química para ‘cuantificar’ adecuadamente un analito.
-Nota: La habilidad para cuantificar se expresa generalmente en términos de la señal o valor (verdadero) del analito que producirá estimaciones con una desviación estándar relativa (RSD) especificada, comúnmente del 10%. Así: LQ = kQ σQ, donde,
-LQ es el límite de cuantificación, σQ es la desviación estándar en ese punto, y kQ es el multiplicador cuyo recíproco es igual a la RSD seleccionada y cuantificada. El valor por omisión de kQ propuesto por La IUPAC es de 10.
+Nota: La habilidad para cuantificar se expresa generalmente en términos de la señal o valor (verdadero) del analito que producirá estimaciones con una desviación estándar relativa (RSD) especificada, comúnmente del 10%. Así: LQ = kQ σQ, donde, LQ es el límite de cuantificación, σQ es la desviación estándar en ese punto, y kQ es el multiplicador cuyo recíproco es igual a la RSD seleccionada y cuantificada. El valor por omisión de kQ propuesto por La IUPAC es de 10.
 3.14 Límite de detección: Concentración mínima de un analito en la matriz de una muestra que puede ser detectada, pero no necesariamente cuantificada, bajo condiciones analíticas específicas.
 El límite de detección, expresado como la concentración cL, o la cantidad qL, se deriva de la medida más pequeña xL, que puede detectarse con certeza razonable por un procedimiento analítico dado. El valor de xL es dado por la ecuación: xL = xbl + ksbl donde xbl es la media de las mediciones del blanco y sbl la desviación estándar de las mediciones del blanco y k es un factor numérico elegido de acuerdo al nivel de confianza deseado.
 Nota: Aplicado a análisis microbiológicos cualitativos, límite de detección es el número mínimo de microorganismos que pueden ser detectados, pero en cantidades que no pueden estimarse con precisión.
@@ -72,7 +69,6 @@ Nota 2: Para evaluar la veracidad, en los casos donde aplique la recuperación, 
 3.32 Verificación (métodos normalizados): Consiste en evaluar el desempeño de un método normalizado para demostrar que cumple con los requisitos para el uso previsto, que fueron especificados como resultado de su validación por parte del ente u organismo emisor de la norma.
 Nota: En caso de que la norma, donde se encuentra el método, no contenga criterios para evaluar los parámetros de desempeño, se aceptará el uso de documentos emitidos por organismos internacionalmente aceptados.
 4. CRITERIOS GENERALES PARA EVALUACIÓN Y ACREDITACIÓN DE LABORATORIOS CLÍNICOS.
-CRITERIOS PARA EVALUACIÓN Y ACREDITACIÓN DE LABORATORIOS BAJO LA
 4.1 El ECA no podrá tener acreditados alcances de acreditación de laboratorios clínicos, que únicamente incluyan actividades de toma de muestra.
 4.2 El ECA realizará la testificación de los sitios de toma de muestra, incluyendo el servicio a domicilio y la toma de muestras en hospitales, de tal manera que todos sean cubiertos durante el ciclo de acreditación. El sitio de toma de muestra central se deberá testificar en todas las evaluaciones de seguimiento 1, seguimiento 2, seguimiento 3 y las reevaluaciones respectivas. La planificación de las testificaciones se debe realizar considerando lo estipulado en el instructivo de muestreo ECA-MC-P13-I01.
 5. CRITERIOS ESPECÍFICOS PARA EVALUACIÓN DE LA NORMA INTE/ISO 15189:2014
@@ -95,7 +91,8 @@ a) El laboratorio de remisión debe tener acreditado el ensayo remitido.
 b) En caso de que no existan laboratorios acreditados en el ensayo a remitir, se deben utilizar laboratorios acreditados, aplicando los siguientes criterios de evaluación:
 - si el laboratorio de remisión está acreditado en la norma INTE/ISO 15189, se deben evaluar los requisitos 5.2, 5.4, 5.5, 5.6, 5.8, 5.9 de la norma INTE/ISO 15189.
 - si el laboratorio de remisión se encuentra acreditado en la norma INTE/ISO/IEC 17025 se le deben evaluar los requisitos, 5.4.4, 5.4.5 y 5.4.6, 5.5.2, 5.6, 5.8, 5.9 de la norma INTE/ISO 15189.
-c) Si laboratorio de remisión no cumple con los puntos a y b de este criterio, el remitente debe realizar una evaluación de todos los requisitos técnicos de la norma INTE/ISO 15189. Debe quedar claramente identificado en el reporte de resultados, que el ensayo remitido está fuera del alcance de acreditación. Las auditorías a los laboratorios de remisión, deben ser como mínimo equivalentes al nivel de la evaluación que ECA realiza, es decir, que el grupo auditor debe tener integrantes competentes para llevar a cabo esa evaluación, debe existir un plan de auditoría y un informe.
+c) Si laboratorio de remisión no cumple con los puntos a y b de este criterio, el remitente debe realizar una evaluación de todos los requisitos técnicos de la norma INTE/ISO 15189. Debe quedar claramente identificado en el reporte de resultados, que el ensayo remitido está fuera del alcance de acreditación.
+Las auditorías a los laboratorios de remisión, deben ser como mínimo equivalentes al nivel de la evaluación que ECA realiza, es decir, que el grupo auditor debe tener integrantes competentes para llevar a cabo esa evaluación, debe existir un plan de auditoría y un informe.
 El OEC debe mantener los registros de competencia del equipo evaluador y debe contar con los registros o evidencias documentadas que demuestren que se revisaron y evaluaron los requisitos respectivos.
 Para que un laboratorio de remisión, al cual se le realizó una auditoría, cumpla con lo establecido en el presente documento, debe subsanar o estar en proceso de subsanación, de todos los incumplimientos detectados durante las evaluaciones, si existen incumplimientos que puedan afectar la validez de los resultados del ensayo que se remite, el incumplimiento debe ser subsanado antes de que el laboratorio utilice el servicio del laboratorio de remisión. Es responsabilidad del OEC, que solicita los servicios, presentar la evidencia, al equipo evaluador de ECA, de lo indicado anteriormente.
 La remisión continua para un ensayo acreditado no debe sobrepasar los 10 días hábiles, en su defecto el laboratorio remitente deberá realizar la suspensión de los ensayos afectados del alcance de acreditación, según se especifica en el documento ECA-MC-P16, Procedimiento para el cumplimiento del debido proceso en el Ente Costarricense de Acreditación.
@@ -103,12 +100,13 @@ Los laboratorios clínicos deben utilizar el símbolo de acreditación según se
 [4.7] Servicios de asesoramiento
 C 4.7 El laboratorio debe definir y documentar qué tipo de asesoría brinda, registrar todas las reuniones o actividades en que participe o que realice con fines de difusión de conocimientos, discusiones y asesoramiento.
 [4.8] Resolución de quejas
-C 4.8 La información de retorno se debe analizar y usar para mejorar el sistema de gestión, las actividades del laboratorio y el servicio al cliente. Siempre que sea posible, el laboratorio debe acusar recibo de la queja y debe facilitar a quien presenta la queja, los informes de progreso y del resultado de tratamiento de la queja.
-Los registros de estas comunicaciones se deben guardar.
+C 4.8 La información de retorno se debe analizar y usar para mejorar el sistema de gestión, las actividades del laboratorio y el servicio al cliente.
+Siempre que sea posible, el laboratorio debe acusar recibo de la queja y debe facilitar a quien presenta la queja, los informes de progreso y del resultado de tratamiento de la queja. Los registros de estas comunicaciones se deben guardar.
 [4.13] Control de registros
 C 4.13 Los laboratorios públicos deben cumplir con lo que corresponda de la Ley General de Archivos.
 Los laboratorios públicos y privados deben guardar los resultados de análisis de acuerdo a los establecido en los decretos ejecutivos 30697-S Norma para la habilitación divisiones de inmunohematología y bancos de sangre en su apartado 4.4.4 y Decreto 30700-S Norma para la habilitación de laboratorios de microbiología y química clínica en su apartado 4.4.3.
-Los registros de calidad y técnicos deben retenerse el tiempo suficiente que permita realizar los seguimientos por parte de ECA, durante el ciclo de acreditación [4.14] Evaluación y auditorías
+Los registros de calidad y técnicos deben retenerse el tiempo suficiente que permita realizar los seguimientos por parte de ECA, durante el ciclo de acreditación
+[4.14] Evaluación y auditorías
 [4.14.4] Sugerencias del personal
 C 4.14.4 El laboratorio debe de contar con evidencia de las sugerencias recibidas, su gestión, las acciones tomadas y cuando sea posible, el resultado de la sugerencia planteada debe ser informado al personal que la efectuó.
 [4.14.5] Auditoría interna
@@ -136,7 +134,7 @@ C 5.1.4 El laboratorio debe contar con un registro donde se establezca las activ
 C 5.1.5 Se debe revisar periódicamente la eficacia del programa de formación, las revisiones no deben superar los 12 meses entre cada una.
 [5.1.6] Evaluación de Competencia
 C 5.1.6 El laboratorio no debe confundir evaluación de desempeño con la evaluación de competencia técnica y de gestión. Los criterios para evaluar el desempeño son distintos a los criterios para evaluar la competencia, aunque el laboratorio podría utilizar un único registro para evaluar ambos.
-La forma en que se asegura el laboratorio que el personal tiene la competencia, es mediante un proceso de verificación objetiva de evaluación de requisitos de competencia definidos en el requisito 5.1.2 de la norma.
+La forma en que se asegura el laboratorio que el personal tiene la competencia, es mediante un proceso de evaluación de los requisitos de competencia definidos en el requisito 5.1.2 de la norma.
 El laboratorio debe evaluar la competencia y el desempeño del personal al menos cada 12 meses.
 [5.1.8] Educación continua y desarrollo profesional
 C 5.1.8 El programa de educación debe ser pertinente a las actividades del laboratorio.
@@ -155,7 +153,7 @@ C 5.3.1.1 El laboratorio debe tener un registro con la lista de equipos crítico
 [5.3.1.2] Pruebas de aceptación de equipo.
 C 5.3.1.2 El laboratorio debe realizar una verificación de instalación, operación, mantenimiento y de desempeño de los equipos críticos.
 [5.3.1.4] Calibración y trazabilidad metrológica de los equipos
-C 5.3.1.4 El laboratorio debe cumplir lo establecido en el Criterio de trazabilidad, ECA-MCC19, en su versión vigente.
+C 5.3.1.4 El laboratorio debe cumplir lo establecido en el Criterio de trazabilidad, ECA-MC-C19, en su versión vigente.
 El laboratorio debe demostrar el análisis de los certificados de calibración de los equipos.
 [5.5] Procesos analíticos
 [5.5.1] Selección, verificación y validación de los procedimientos analíticos
@@ -165,67 +163,74 @@ Si un método se va a utilizar con múltiples aplicaciones, se deben realizar el
 Si un laboratorio tiene varios equipos de un mismo tipo que se utilicen en ensayos acreditados, debe demostrar que la validación o verificación realizada es válida para todos los equipos.
 Se debe justificar la fuente de las especificaciones del desempeño, la elección del requisito escogido considerando la jerarquía de la fuente seleccionada y el uso del método.
 Cuando aplique, debe verificarse un método cuando se presente una o más de las siguientes situaciones:
- cambio o inclusión de personal que realiza el ensayo
- cambio parcial o total del equipo crítico
- recalibración de equipo o patrón crítico
- si el método es modificado por el organismo que lo publicó, se debe determinar la influencia de dichas situaciones y si se encuentra alguna afectación a los resultados de la verificación o validación inicial, se debe repetir el proceso de verificación en la extensión necesaria o realizar una nueva validación del método.
+• cambio o inclusión de personal que realiza el ensayo
+• cambio parcial o total del equipo crítico
+• recalibración de equipo o patrón crítico
+• si el método es modificado por el organismo que lo publicó, se debe determinar la influencia de dichas situaciones y si se encuentra alguna afectación a los resultados de la verificación o validación inicial, se debe repetir el proceso de verificación en la extensión necesaria o realizar una nueva validación del método.
 La documentación de la modificación, actualización, validación, verificación y revalidaciones del método, debe estar disponible a solicitud de los miembros del equipo evaluador durante las evaluaciones del ECA.
-Cuando aplique, la validación de un método debe incluir la estimación de la incertidumbre y además abarcar factores que determinan la desviación (error sistemático) y la recuperación imperfecta (medición de la recuperación del analito con el que se haya enriquecido la muestra, medición de blancos, estudio de interferencias y efectos de matriz).
-En caso de que no aplique la estimación de la incertidumbre el laboratorio deberá documentar esta situación con la justificación técnica que explique y valide la situación.
+Cuando aplique, la validación de un método debe incluir la estimación de la incertidumbre y además abarcar factores que determinan la desviación (error sistemático) y la recuperación imperfecta (medición de la recuperación del analito con el que se haya enriquecido la muestra, medición de blancos, estudio de interferencias y efectos de matriz). En caso de que no aplique la estimación de la incertidumbre el laboratorio deberá documentar esta situación con la justificación técnica que explique y valide la situación.
 Para laboratorios acreditados, cuando el método es modificado, actualizado o sustituido por uno nuevo, el caso debe ser analizado por el ECA, antes de que se pueda considerar incluirlo dentro del alcance de la acreditación.
 [5.5.1.2] Verificación de los procedimientos analíticos
 C 5.5.1.2 Un laboratorio que utiliza métodos normalizados, tal cual se describen en los documentos de referencia y sin ninguna modificación, debe verificar al menos el cumplimiento de los siguientes parámetros de desempeño, según corresponda:
- Veracidad (una posibilidad para evaluar veracidad es la participación en ensayos de aptitud o rondas de comparación)
- Precisión (repetibilidad y reproducibilidad).
- Linealidad.
- Ámbito de trabajo
- Límites de detección y cuantificación.
- Sensibilidad.
- Especificidad.
- Falsos positivos o falsos negativos.
- Recuperación.
- Selectividad
- Incertidumbre.
+• Veracidad (una posibilidad para evaluar veracidad es la participación en ensayos de aptitud o rondas de comparación)
+• Precisión (repetibilidad y reproducibilidad).
+• Linealidad.
+• Ámbito de trabajo
+• Límites de detección y cuantificación.
+• Sensibilidad.
+• Especificidad.
+• Falsos positivos o falsos negativos.
+• Recuperación.
+• Selectividad
+• Incertidumbre.
 Siempre que sea posible, el laboratorio que verifique la veracidad de un método normalizado a través de participaciones en ensayos de aptitud o rondas de comparación, debe asegurar que el material, muestra o equipo utilizado, sea representativo de la realidad y trabajo rutinario del laboratorio.
 La verificación de los parámetros de desempeño debe realizarse contra los valores meta establecidos en la norma o referencia del método. En caso de que el método de referencia no cuente con valores meta para parámetros de desempeño, estos se deben establecer, por parte del laboratorio, con base en documentos técnicos o publicaciones.
 El laboratorio debe documentar una justificación técnica cuando alguno de los parámetros de desempeño, indicados anteriormente, no apliquen debido a la naturaleza del método.
 Los laboratorios clínicos, que utilicen métodos normalizados, tal cual se describen en los documentos de referencia y sin ninguna modificación, deben documentar los resultados de la verificación de sus métodos en un informe de verificación de métodos, el cual debe contener, al menos, la siguiente información:
- Objetivo.
- Alcance.
- Personal que participa.
- Equipos, patrones, materiales de referencia, utilizados en la verificación.
- Procedimiento de verificación utilizado.
- Parámetros de desempeño o especificación de los requisitos.
- La determinación de las características de desempeño del método (establecer los criterios de aceptación de los parámetros de desempeño, datos y análisis de datos).
- Resultados obtenidos.
- Declaración de cumplimiento respecto a los resultados obtenidos en la verificación de los parámetros de desempeño, detallando su aptitud para el uso previsto.
+• Objetivo.
+• Alcance.
+• Personal que participa.
+• Equipos, patrones, materiales de referencia, utilizados en la verificación.
+• Procedimiento de verificación utilizado.
+• Parámetros de desempeño o especificación de los requisitos.
+• La determinación de las características de desempeño del método (establecer los criterios de aceptación de los parámetros de desempeño, datos y análisis de datos).
+• Resultados obtenidos.
+• Declaración de cumplimiento respecto a los resultados obtenidos en la verificación de los parámetros de desempeño, detallando su aptitud para el uso previsto.
 [5.5.1.3] Validación de los procedimientos analíticos
 C 5.5.1.3 a) Un laboratorio, que utiliza métodos normalizados modificados, normalizados utilizados fuera de su alcance previsto, métodos no normalizados, métodos desarrollados por el laboratorio, o métodos validados modificados posteriormente, debe validar, al menos, el cumplimiento de los siguientes parámetros de desempeño, según corresponda:
- Veracidad (una posibilidad para evaluar veracidad es la participación en ensayos de aptitud o rondas de comparación)
- Precisión (repetibilidad y reproducibilidad).
- Linealidad.
- Límites de detección y cuantificación.
- Ámbito de trabajo
- Sensibilidad.
- Falsos positivos o falsos negativos.
- Recuperación.
- Incertidumbre o fuentes de incertidumbre, según aplique.
- Robustez.
- Efecto matriz
- Selectividad
- Especificidad
+• Veracidad (una posibilidad para evaluar veracidad es la participación en ensayos de aptitud o rondas de comparación)
+• Precisión (repetibilidad y reproducibilidad).
+• Linealidad.
+• Límites de detección y cuantificación.
+• Ámbito de trabajo
+• Sensibilidad.
+• Falsos positivos o falsos negativos.
+• Recuperación.
+• Incertidumbre o fuentes de incertidumbre, según aplique.
+• Robustez.
+• Efecto matriz
+• Selectividad
+• Especificidad
 La validación de los parámetros de desempeño debe realizarse contra los valores meta establecidos por la norma o referencia del método, en caso de métodos normalizados modificados, o contra los valores establecidos por el laboratorio y que sean pertinentes a las necesidades del cliente.
-El laboratorio debe documentar una justificación técnica cuando alguno de los parámetros de desempeño, indicados anteriormente, no apliquen por la naturaleza del método. Cuando aplique, un laboratorio que utiliza métodos normalizados modificados, métodos normalizados fuera del alcance previsto, o métodos validados modificados posteriormente, debe validar los parámetros de desempeño del método normalizado, así como lo parámetros de desempeño afectados según la modificación realizada, de acuerdo a la siguiente tabla:
-[imagen]
- Objetivo.
- Alcance.
- Personal que participa.
- Equipos, patrones, materiales de referencia, utilizados en la validación.
- Procedimiento de validación utilizado.
- Parámetros de desempeño o especificación de los requisitos.
- La determinación de las características de desempeño del método (establecer los criterios de aceptación de los parámetros de desempeño, datos y análisis de datos).
- Resultados obtenidos.
- Declaración de cumplimiento respecto a los resultados obtenidos en la validación de los parámetros de desempeño, detallando su aptitud para el uso previsto.
+El laboratorio debe documentar una justificación técnica cuando alguno de los parámetros de desempeño, indicados anteriormente, no apliquen por la naturaleza del método.
+Cuando aplique, un laboratorio que utiliza métodos normalizados modificados, métodos normalizados fuera del alcance previsto, o métodos validados modificados posteriormente, debe validar los parámetros de desempeño del método normalizado, así como lo parámetros de desempeño afectados según la modificación realizada, de acuerdo a la siguiente tabla:
+Modificación | Parámetros de desempeño mínimos a revalidar
+Método de extracción | Selectividad y recuperación
+Matriz de la muestra o inclusión de analitos | Selectividad, límite de detección, límite de cuantificación, ámbito de trabajo.
+Extensión del ámbito | Linealidad
+Cambios en condiciones experimentales Por ejemplo: temperatura de la muestra, tiempo de agitación, condiciones ambientales, entre otros | Robustez
+Sistema de detección | Selectividad, linealidad, ámbito de trabajo
+Cambio de patrones, equipos, reactivos o medios de cultivo | Nivel de incertidumbre, y cuando aplique: límite de detección, límite de cuantificación, ámbito de trabajo (linealidad) y selectividad.
+La información solicitada en el requisito 5.5.1.3 de la norma, debe ser presentada en un informe de validación, el cual debe contener al menos la siguiente información:
+• Objetivo.
+• Alcance.
+• Personal que participa.
+• Equipos, patrones, materiales de referencia, utilizados en la validación.
+• Procedimiento de validación utilizado.
+• Parámetros de desempeño o especificación de los requisitos.
+• La determinación de las características de desempeño del método (establecer los criterios de aceptación de los parámetros de desempeño, datos y análisis de datos).
+• Resultados obtenidos.
+• Declaración de cumplimiento respecto a los resultados obtenidos en la validación de los parámetros de desempeño, detallando su aptitud para el uso previsto.
 C 5.5.1.3 b) Validación de los Métodos de Ensayo comerciales (Sets de análisis):
 En los casos en los que los laboratorios clínicos utilicen sistemas de ensayo comerciales, con datos de validación remitidos por los fabricantes que cumplan con lo estipulado en estos criterios para un método no normalizado, el sistema de ensayo puede ser considerado como un método no normalizado que ha sido validado para su uso previsto, por lo que el laboratorio solo debe de verificar su desempeño contra las especificaciones de la validación.
 En los casos en los que los laboratorios clínicos utilicen sistemas de ensayo comerciales, que no tengan datos sobre validación o que los datos de validación no sean plenamente aplicables, el laboratorio será responsable de completar la validación del método según se especifica para métodos no normalizados o métodos desarrollados por el laboratorio.
@@ -239,10 +244,10 @@ Cuando aplique, el laboratorio debe identificar las contribuciones a la incertid
 NOTA: Las posibles fuentes que pueden contribuir a la incertidumbre, son la toma y preparación de muestra, selección de la alícuota de muestra, calibradores, materiales de referencia, equipo usado, reactivos, magnitudes de entrada por ejemplo absorbancia, condiciones ambientales, condición de la muestra y cambios de operador, entre otras.
 Métodos apropiados de análisis para evaluar incertidumbre son los indicados en, la INTE/ISO/IEC Guía 98-3: Guía para la Expresión de la Incertidumbre en Mediciones (GUM) en su versión vigente, incluyendo los suplementos de dicho documento, la Guía ISO 35, las guías de EURACHEM / CITAC, conjunto de normas ISO 5725, la norma ISO 21748, normas de evaluación de incertidumbre de ASTM, NORDTEST Handbook for Calculation of Measurement Uncertainty in Environmental Laboratories TR 537, ISO/TS 20914 Medical Laboratories-Practical guidance for the estimation of measurement uncertainty, entre otras.
 Los laboratorios deben mantener evidencia documentada que soporte sus estimaciones y evaluaciones de incertidumbre de medición, dichas evidencias deben incluir al menos lo siguiente:
- Memoria de cálculo.
- Datos.
- Procedimiento de estimación o evaluación de la incertidumbre.
- Demostración de la validez de los resultados de estimación de la incertidumbre por la comparación con el error de medida máximo permitido (EMP).
+• Memoria de cálculo.
+• Datos.
+• Procedimiento de estimación o evaluación de la incertidumbre.
+• Demostración de la validez de los resultados de estimación de la incertidumbre por la comparación con el error de medida máximo permitido (EMP).
 Para un análisis en el que se haya verificado y establecido la incertidumbre de medición de los resultados, no es necesario evaluar la incertidumbre de medición para cada resultado, si el laboratorio puede demostrar que los factores críticos de influencia identificados están bajo control.
 Cuando la estimación de la incertidumbre no pueda ser realizada en forma directa, el laboratorio debe:
 a) Determinar la probabilidad de error en el resultado que emite (probabilidad de falsos positivos y falsos negativos)
@@ -274,26 +279,23 @@ Cuando aplique, el laboratorio debe llevar un control con indicadores biológico
 C 5.8 El laboratorio debe cumplir con lo que se establece en la Política para el uso de logotipo y símbolo de acreditación, ECA-MC-P18.
 6. BIBLIOGRAFÍA INFORMATIVA
 Información sobre validación de métodos:
- ILAC-26. Guidance for the implementation of a medical accreditation scheme.
- Guía sobre validación de Métodos de Ensayo Químico; INMETRO-DOQ-CGCRE-008
- The fitness for Purpose of Analytical Methods-EURACHEM
- Guide pour la validation des méthodes d´essai chimicophysiques-METAS
- Method Validation for Chemical Testing – SINGLAS
- ISO/TR: 13843:2000 Guidance on validation of microbiological methods
- International Methods Committee Guidelines for Validation of Qualitative and Quantitative Food Microbiological official methods of Analysis- AOAC.
- Guía para la Acreditación de Laboratorios que realizan análisis microbiológicos-ENAC.
- International Conference on Harmonisation-ICH
- Bioanalytical Method validation-USDHHS/FDA
- Guía ANVISA para validación - métodos analíticos-ANVISA
- Validación del Método de Calibración de Masa Convencional y Volumen de Pesas Clase E2 OIML-METAS.
- Recomendaciones de la Organización Internacional de Metrología Legal (OIML)
- INTE/ISO/IEC Guía 98-3: Guía para la Expresión de la Incertidumbre en Mediciones (GUM).
- EURACHEM/CITAC Guide (2012), Quantifying uncertainty in analytical measurement.
- Recomendaciones de la organización: Clinical and Laboratory Standards Institute.
-7. IDENTIFICACIÓN DE CAMBIOS
-Motivo:
-Elaboración de documento
-Observaciones: Refiérase a la solicitud de elaboración o modificación del documento número 2019-110.
+• ILAC-26. Guidance for the implementation of a medical accreditation scheme.
+• Guía sobre validación de Métodos de Ensayo Químico; INMETRO-DOQ-CGCRE-008
+• The fitness for Purpose of Analytical Methods-EURACHEM
+• Guide pour la validation des méthodes d´essai chimicophysiques-METAS
+• Method Validation for Chemical Testing – SINGLAS
+• ISO/TR: 13843:2000 Guidance on validation of microbiological methods
+• International Methods Committee Guidelines for Validation of Qualitative and Quantitative Food Microbiological official methods of Analysis- AOAC.
+• Guía para la Acreditación de Laboratorios que realizan análisis microbiológicos- ENAC.
+• International Conference on Harmonisation-ICH
+• Bioanalytical Method validation-USDHHS/FDA
+• Guía ANVISA para validación - métodos analíticos-ANVISA
+• Validación del Método de Calibración de Masa Convencional y Volumen de Pesas Clase E2 OIML-METAS.
+• Recomendaciones de la Organización Internacional de Metrología Legal (OIML)
+• INTE/ISO/IEC Guía 98-3: Guía para la Expresión de la Incertidumbre en Mediciones (GUM).
+• EURACHEM/CITAC Guide (2012), Quantifying uncertainty in analytical measurement.
+• Recomendaciones de la organización: Clinical and Laboratory Standards Institute.
+7. IDENTIFICACIÓN DE CAMBIOS Motivo: | Modificación del documento.
+Observaciones: Refiérase a la solicitud de elaboración o modificación del documento número 2020-088. Se mejora redacción del criterio C 5.1.6
 8. TRANSITORIO
-30 Dias naturales posterior a la publicación, es decir a partir del 2019.12.01.
-Publicación en el diario oficial la Gaceta # 198 del 18-octubre-2019.
+No aplica.
