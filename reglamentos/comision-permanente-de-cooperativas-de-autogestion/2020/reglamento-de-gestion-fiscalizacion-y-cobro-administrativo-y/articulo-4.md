@@ -1,0 +1,3 @@
+Artículo 4.
+La CPCA, en su condición de administrador tributario, ejercerá sus funciones de gestión, y fiscalización a través de la Sección de Cobro, Dirección Ejecutiva y del Directorio, órganos que ejercerán sus funciones en la forma en que se dispone en el presente reglamento.
+La Sección de Cobro será la principal unidad ejecutora de la gestión y fiscalización de la obligación parafiscal dispuesta en la Ley. Si producto de su labor de fiscalización se determinara que no se pagó la contribución parafiscal, o que la misma no se pagó en su totalidad, se procederá a determinar también el monto que adeuda la cooperativa autogestionaria.

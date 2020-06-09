@@ -1,0 +1,4 @@
+CAPITULO IV
+FUNCIÓN DE FISCALIZACIÓN
+Artículo 11.
+La CPCA realizará las acciones necesarias tendientes a la efectiva comprobación o investigación de la situación tributaria de una cooperativa, en lo que se refiere a la contribución parafiscal. Para ello, en aquellos casos en que se establezca preliminarmente que no se pagó la contribución o que se pagó incorrectamente, se remitirá a la cooperativa autogestionaria, formal indicación escrita respecto a los períodos y hechos investigados, informe que servirá de base para la gestión y cobro correspondiente. Para tal fin, la Dirección Ejecutiva efectuará el correspondiente traslado de cargos a la cooperativa y se le dará audiencia sobre los mismos por el plazo de cinco días hábiles, con el objeto de que se refiera a éstos y ofrezca la prueba que estime conveniente. Las diligencias de fiscalización no demorarán más de dos meses, salvo causa justificada.

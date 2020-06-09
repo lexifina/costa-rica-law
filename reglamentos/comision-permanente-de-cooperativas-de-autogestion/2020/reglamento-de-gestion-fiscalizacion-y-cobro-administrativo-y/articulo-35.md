@@ -1,0 +1,2 @@
+Artículo 35.
+La asesoría jurídica informará a la Sección de Cobro, y a la Dirección Ejecutiva de la CPCA, acerca de las siguientes resoluciones y actos: embargos decretados, señalamiento de fecha para remate, tomas de posesión de bienes rematados, sentencias firmes, así como cualquier otro acto cuya importancia requiera su comunicación. La comunicación se verificará dentro de un plazo máximo de ocho días hábiles luego de notificada la actuación o resolución judicial. Se debo presentar un informe semestral conforme al formato realizado por la Dirección Ejecutiva.

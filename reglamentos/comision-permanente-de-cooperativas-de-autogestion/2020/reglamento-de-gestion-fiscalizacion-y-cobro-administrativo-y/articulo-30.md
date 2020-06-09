@@ -1,0 +1,2 @@
+Artículo 30.
+En toda demanda judicial se solicitará el embargo de bienes muebles e inmuebles, cuentas de ahorros y corrientes, certificados de inversión, cajas de seguridad, y demás valores bancarios, derechos en general entre otros.

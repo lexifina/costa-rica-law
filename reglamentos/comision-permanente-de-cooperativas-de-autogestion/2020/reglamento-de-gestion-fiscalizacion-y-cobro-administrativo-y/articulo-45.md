@@ -1,0 +1,2 @@
+Artículo 45.
+No procederá formalización de arreglo de pago alguno, en relación con los montos provenientes de un arreglo de pago incumplido, a excepción de causas justificadas, que fundamenten un nuevo arreglo de pago.

@@ -1,0 +1,2 @@
+Artículo 42.
+Cuando se trate de saldos o deudas por concepto de contribución parafiscal, la Dirección Ejecutiva, previo análisis documentado de costo/beneficio, y en los términos del artículo anterior, podrá decretar la incobrabilidad de la deuda, situación que se pondrá en conocimiento del Directorio en carácter informativo.

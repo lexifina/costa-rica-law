@@ -1,0 +1,2 @@
+Artículo 15.
+La resolución correspondiente será notificada a la cooperativa, a través de los medios indicados en el presente reglamento, y cabrá contra la misma los recursos de revocatoria ante la Dirección Ejecutiva y apelación ante el DIRECTORIO, debiéndose interponer ambos recursos en forma conjunta, dentro del plazo de 24 horas siguientes a la comunicación de la resolución de la Dirección Ejecutiva.

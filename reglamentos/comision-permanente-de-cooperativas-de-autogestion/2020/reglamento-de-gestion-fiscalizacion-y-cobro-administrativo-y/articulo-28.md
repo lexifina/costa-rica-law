@@ -1,0 +1,2 @@
+Artículo 28.
+Luego de transcurridos los plazos fijados en el artículo anterior, sin que la cooperativa haya cancelado a la CPCA, lo correspondiente a la contribución parafiscal, la Sección de Cobro cuantificará el monto adeudado y procederá a iniciar el día siguiente al vencimiento de los plazos, la gestión de cobro administrativo y posteriormente la acción judicial, al agotarse la vía administrativa y no haber cancelado la carga parafiscal correspondiente.

@@ -1,0 +1,2 @@
+Artículo 39.
+La finalización anormal o anticipada del proceso de cobro judicial procederá cuando se haya formalizado un arreglo de pago a satisfacción de las partes, y se hayan cancelado las costas procesales y personales generadas debido al respectivo proceso judicial. La solicitud de suspensión será planteada al juzgado competente por ambas partes y en el término de esta no se levantará ningún embargo que hubiese sido decretado, sino cuando se llegue a un arreglo definitivo.

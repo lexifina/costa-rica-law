@@ -1,0 +1,2 @@
+Artículo 5.
+En caso de negativa de brindar la información respectiva por parte de la cooperativa, la CPCA, de conformidad con el artículo 114 de la Ley, puede establecer un excedente presuntivo a fin de determinar de oficio, el monto de la contribución parafiscal. Todo lo anterior, sin perjuicio del apoyo, participación y lineamientos que definan el Directorio, Dirección Ejecutiva y el concurso de la Asesoría Jurídica de la CPCA.

@@ -1,0 +1,2 @@
+Artículo 43.
+Cuando una vez agotadas las instancias correspondientes a la gestión judicial, por parte de la Asesoría Jurídica, no sea posible la recuperación de las sumas pretendidas en juicio, dicha asesoría lo informará a la Dirección Ejecutiva, para el respectivo informe de incobrabilidad.
