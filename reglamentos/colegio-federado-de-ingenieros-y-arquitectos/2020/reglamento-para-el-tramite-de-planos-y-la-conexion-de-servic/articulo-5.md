@@ -1,0 +1,12 @@
+Artículo 5. Definiciones. Para los propósitos de aplicación e interpretación del presente Reglamento, cuando su texto se refiera a algunos de los siguientes conceptos, se entenderán:
+1.Ampliación o remodelación: toda variación que se efectúe sobre la infraestructura, sistemas eléctricos, señales, controles u otros sistemas operados por electricidad existentes en las edificaciones, ya sea que se encuentre o no en funcionamiento.
+2.Condominio: Se entiende como obras en condominio aquellas que se encuentran cubiertas bajo el Régimen de Propiedad Horizontal. El inmueble en condominio puede ser construido en forma vertical, horizontal o mixta y debe tener elementos o partes comunes de carácter indivisible.
+3.Compañía Distribuidora de Energía: ente público reconocido y con autorización gubernamental para operar redes públicas distribuidoras de energía en el país.
+4.Planos Eléctricos: Se entiende por planos eléctricos todos aquellos que
+contienen la información relativa a los proyectos eléctricos que están respaldados por los
+cálculos necesarios, en formato electrónico.
+5.Planos Eléctricos Finales (conocido como as built): son los planos definitivos de la obra eléctrica tal y como fue ejecutada o construida. El responsable de la ejecución de la obra eléctrica deberá entregarlos al propietario y registrarlos ante el CFIA mediante las plataformas digitales correspondientes.
+6.Profesional responsable: todo miembro del CFIA que se encuentre autorizado para asumir la responsabilidad de un proyecto eléctrico, según lo indicado en el presente reglamento.
+7.Punto de acometida o de servicio: Punto de conexión entre las instalaciones de la Compañía Distribuidora de Energía y el cableado del inmueble. El punto de acometida se puede describir como el punto de demarcación entre donde termina la Compañía Distribuidora de Energía y empieza el cableado del inmueble.
+8. Sellado de planos: sello digital del Colegio Federado que se coloca en los planos de un proyecto eléctrico para que pueda ser tramitado por las oficinas públicas encargadas de autorizar esas obras; conforme el artículo 54 de la Ley Orgánica del CFIA.
+9.Vivienda unifamiliar: edificación que consta solamente de una única unidad de vivienda que brinda instalaciones completas e independientes para una o más personas, que incluye instalaciones permanentes para descansar, dormir, cocinar y sanitarias. No son parte de un edificio o estructura con otro tipo de ocupación.

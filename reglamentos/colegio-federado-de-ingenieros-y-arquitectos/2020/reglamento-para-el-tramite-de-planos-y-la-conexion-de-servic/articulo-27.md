@@ -1,0 +1,1 @@
+Artículo 27. En los proyectos de condominios o en los proyectos que cuenten con más de un medidor en un centro de medidores y donde por razones operativas se deban hacer las solicitudes de conexión definitiva de los medidores por separado, deberá presentar una nota, indicando el alcance de la obra finalizada.

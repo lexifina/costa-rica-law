@@ -1,0 +1,1 @@
+Artículo 24. El documento indicado en el artículo 23, será sellado y devuelto por el Colegio Federado para que el profesional encargado de la ejecución de la obra eléctrica (Director de Obra o Responsable de la Ejecución de la Construcción) solicite la conexión del servicio provisional para el período de construcción, mediante el procedimiento indicado en el artículo 25.

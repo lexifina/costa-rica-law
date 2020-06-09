@@ -1,0 +1,1 @@
+Artículo 16. En planos eléctricos de remodelaciones o ampliaciones se debe presentar además un diagrama unifilar indicando los elementos existentes y los nuevos sistemas que se incluirán, con todos los detalles necesarios para su interpretación.

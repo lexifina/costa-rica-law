@@ -1,0 +1,1 @@
+Artículo 31. El profesional responsable de la dirección de obra o el de la ejecución de la construcción de la obra eléctrica deberá entregar los planos eléctricos finales (conocido como “as built”) al propietario y registrarlos ante el CFIA mediante las plataformas digitales correspondientes.

@@ -1,0 +1,1 @@
+Artículo 2. Alcance. El presente reglamento es de acatamiento obligatorio para todos los profesionales en ingeniería con competencia para diseñar, instalar, renovar, modificar, adicionar, aprobar, verificar y revisar sistemas eléctricos en edificaciones según lo dispuesto en este reglamento.

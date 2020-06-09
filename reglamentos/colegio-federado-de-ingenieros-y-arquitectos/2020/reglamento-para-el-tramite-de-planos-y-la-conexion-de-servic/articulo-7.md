@@ -1,0 +1,1 @@
+Artículo 7. Ámbito de aplicación. Aplica a toda instalación de sistemas eléctricos nuevos, así como a toda ampliación o remodelación de una instalación de sistemas eléctricos existente en edificaciones.
