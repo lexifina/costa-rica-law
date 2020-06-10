@@ -1,5 +1,8 @@
-Artículo 35.—De la Asistencia. Se eximirá del control de asistencia a aquellos funcionarios que hayan cumplido cinco años de laborar en el Instituto, previo visto bueno del superior inmediato. Los funcionarios a quienes corresponda este beneficio, solicitarán a la Dirección General el trámite correspondiente de la exoneración de marca.
+Artículo 35º—El beneficio de exoneración de marca. Se podrá eximir del control de asistencia a aquellos funcionarios que así lo requieran, únicamente en casos excepcionales y cuando por la naturaleza de las funciones así lo ameriten; previa justificación de su jefatura inmediata ante la Dirección General del IAFA; si la Dirección General considera que los elementos que se le presentan son suficientes, procederá a solicitar el trámite correspondiente ante el Subproceso de Gestión Humana. Este beneficio no constituirá un derecho adquirido, podrá ser revocado por la Administración cuando lo estime conveniente o al variar las funciones del servidor; previo cumplimiento del debido proceso.
 En caso de que no se cumpla con el horario establecido por el IAFA, los funcionarios que disfruten de este beneficio, se harán acreedores de las siguientes sanciones disciplinarias:
-a) La primera vez que incumpla con el horario recibirá amonestación escrita y el rebajo de la correspondiente fracción de la jornada.
-b) La segunda vez dentro de un período de tres meses consecutivos a partir de la primera falta, se hará acreedor a una suspensión sin goce de sueldo hasta por 15 días.
-c) La tercera vez dentro del plazo de esos tres meses se procederá a la suspensión del beneficio otorgado.
+a) Por cuatro días: Amonestación escrita.
+b) De cinco a siete días: Suspensión sin goce de salario hasta por cuatro días.
+c) De ocho a diez días: Suspensión sin goce de salario hasta por ocho días.
+d) Por más de diez días: Despido sin responsabilidad patronal.
+Las sanciones se aplicarán dentro del mes siguiente, contado a partir de la última llegada tardía, previo debido proceso.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 42461 del 10 de junio del 2020)
