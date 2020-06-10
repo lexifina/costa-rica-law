@@ -1,0 +1,6 @@
+N° 119-2020
+ASUNTO: Responsabilidad de la Jueza o el Juez Coordinador del despacho, de dejar constancia al momento de realizar el remesado, de que no existen bienes decomisados o evidencias ligadas a los expedientes ni documentos de interés para las partes.
+A TODOS LOS DESPACHOS JUDICIALES DEL PAÍS
+SE LES HACE SABER QUE:
+El Consejo Superior del Poder Judicial en sesión N° 46-2020 celebrada el 12 de mayo de 2020, artículo VIII, dispuso comunicar que el dicho Consejo en sesión N° 5-2020, celebrada el 21 de enero de 2020, artículo XI, acordó reiterar a todos los despachos judiciales del país, lo dispuesto por este Consejo en sesión N° 9-19, celebrada el 05 de febrero del 2019, artículo XIX, que previamente a destruir los expedientes deberá la jueza o el juez coordinador del despacho, dejar constancia al momento de realizar el remesado que no existen bienes decomisados o evidencias ligadas a los expedientes ni documentos de interés para las partes.
+San José, 10 de junio de 2020.
