@@ -1,3 +1,2 @@
-Artículo 35.—Responsabilidades de la oficina de combustible del Área Funcional de Maquinaria y Equipo:
-1) Velar por el control de asignación de presupuesto a nivel nacional.
-2) Ejercer periódicamente un control de calidad, tales como arqueos e inspecciones a las Unidades de Transporte de las Direcciones y Regiones.
+Capítulo 13. De los accidentes de tránsito en que intervienen vehículos institucionales
+ARTÍCULO 35.-Los funcionarios que se vean involucrados en un accidente de tránsito con un vehículo institucional, deben cumplir con lo establecido en la Ley de Tránsito y el presente Reglamento.

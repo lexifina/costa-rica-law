@@ -1,2 +1,7 @@
-Artículo 39.—La compra o arrendamiento de vehículos, maquinarias y equipos especiales, se hará en función de la maximización de los recursos, brindando las especificaciones pertinentes para que se adquieran o arrenden aquellos vehículos, maquinaria o equipo especial, que además de satisfacer las necesidades institucionales, proyecte la mínima inversión, el menor costo de operación y la mayor eficiencia energética.
-Dentro de la compra de vehículos se podrá dar como parte de pago aquellos vehículos dados de baja o bien vehículos, maquinaria y equipo especial en operación que requieran sustitución, según criterio técnico del Área Funcional de Maquinaria y Equipo de la Dirección Centro Servicios de Apoyo.
+ARTÍCULO 39. Al inicio de cada año, y acorde con los presupuestos aprobados para la compra y arrendamiento de vehículos, maquinarias y equipos especiales, se enviará a la Dirección Centro Servicios de Apoyo la información necesaria para solicitar, cuando proceda, las respectivas compras de vehículos.
+Para tales efectos, la información requerida es la siguiente:
+1. Justificación por parte del subgerente de área o director nacional, de la necesidad de comprar o arrendar vehículos, maquinaria o equipo especial.
+2. Detallar el uso que se le dará a las nuevas las unidades que se pretenden comprar o arrendar.
+3. Indicar las áreas a las que se le asignarán dichas unidades.
+4. Detallar las características generales de los vehículos requeridos.
+Cada subgerencia de área o dirección nacional una vez aprobada la compra o arriendo, trasladará los recursos presupuestarios a la Dirección Centro Servicios de Apoyo. Todos estos requerimientos deberán ajustarse al Plan de Sustitución de la Flota Vehicular.

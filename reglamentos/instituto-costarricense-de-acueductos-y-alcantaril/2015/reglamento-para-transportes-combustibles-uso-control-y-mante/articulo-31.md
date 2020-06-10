@@ -1,1 +1,1 @@
-Artículo 31.—Cuando se requiera de un aumento en la cuota de combustible, sea temporal o fijo, deberá presentarse ante la Dirección Centro Servicios de Apoyo la debida justificación de la cantidad solicitada, para la respectiva aprobación.
+ARTÍCULO 31. Cada subgerente de área, directores nacionales, directores regionales o directores de UEN, o quién delegue serán los responsables de su debido uso y distribución del presupuesto de combustible.

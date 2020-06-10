@@ -1,3 +1,1 @@
-CAPÍTULO XII
-De la administración y control del gasto de combustible
-Artículo 24.—Los Subgerentes de Área, Directores Nacionales, Directores Regionales o de UEN, en los que éstos deleguen en la Unidad de Transportes, serán los responsables ante el Área Funcional de Maquinaria y Equipo, de lo relacionado con el gasto y rendimiento de los vehículos, así como, de la cuota de combustible que les fue asignada a la flotilla Vehicular bajo su cargo.
+ARTÍCULO 24. Le corresponde a la Dirección Centro Servicios de Apoyo distribuir a todas las unidades de transporte el presupuesto de combustible, para lo cual deberán llevar los registros pertinentes en el sistema informático. Dichas unidades, cuando lo consideren pertinente, podrán solicitar a cualquier unidad de transporte del país, un informe detallado del gasto de combustible.

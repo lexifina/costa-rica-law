@@ -1,7 +1,4 @@
-Artículo 41.—Al inicio de cada año y acorde con los presupuestos aprobados para la compra y/o arrendamiento de vehículos, maquinarias y equipos especiales, se enviará a la Dirección Centro Servicios de Apoyo, la información necesaria para solicitar cuando proceda, las respectivas compras de vehículos.
-Para tales efectos la información requerida es la siguiente:
-1)Justificación por parte del Subgerente de Área o Director Nacional, de la necesidad de comprar o arrendar vehículos, maquinaria o equipo especial.
-2)Detallar el uso que se le dará a las nuevas las unidades que se pretenden comprar o arrendar.
-3)Indicar las áreas a las que se le asignarán dichas unidades.
-4)Detallar las características generales de los vehículos requeridos.
-Cada Subgerencia de Área o Dirección Nacional una vez aprobada la compra o arriendo, trasladará los recursos presupuestarios a la Dirección Centro Servicios de Apoyo. Todos estos requerimientos deberán ajustarse al Plan de Sustitución de la Flota Vehicular del Área Funcional de Maquinaria y Equipo.
+Capítulo 15. Del servicio de mantenimiento y retiro de operación de vehículos, maquinaria y
+equipo especial
+ARTÍCULO 41. La Dirección Centro Servicios de Apoyo establecerá los servicios de mantenimiento que reciben los vehículos, maquinaria y equipo especial de AyA a nivel nacional.
+1. La Dirección Centro Servicios de Apoyo, hará las gestiones pertinentes para retirar de operación aquellos vehículos, maquinaria y equipo especial, que por su restauración o por inseguros, han dejado de ser confiables. Asimismo, concertará con los Encargados de Transportes, la salida de operación de aquellos vehículos que han dejado de ser rentables por su excesivo costo de operación, siempre y cuando se puedan sustituir o prescindir de ellos, de acuerdo con el Plan de Sustitución de Flota Automotora.

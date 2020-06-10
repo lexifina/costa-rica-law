@@ -1,2 +1,3 @@
-Artículo 43.—(Nota de Sinalevi: En la publicación de este reglamento, no aparece este artículo . No obstante el sistema exige una numeración consecutiva, por lo que se ha creado el mismo pero sin texto)
-(Nota de Sinalevi: Mediante Fe de Erratas publicada en La Gaceta N° 144 del 27 de julio de 2015, página 76, el Instituto Costarricense de Acueductos y Alcantarillados, indicó que no existe este artículo)
+Capítulo 17. Disposiciones finales
+ARTÍCULO 43.- Se modifica parcialmente el Reglamento de Transportes, Combustible, Uso, Control y Mantenimiento de Vehículos, Maquinaria y Equipos Especiales, dictado mediante el acuerdo N.° 2015-195, adoptado por la Junta Directiva en la sesión ordinaria N.° 2015-25, celebrada el 18 de mayo de 2015.
+RIGE A PARTIR DE SU PUBLICACIÓN.

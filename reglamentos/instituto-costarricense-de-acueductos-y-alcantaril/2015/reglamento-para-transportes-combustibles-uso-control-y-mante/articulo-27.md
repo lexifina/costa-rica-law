@@ -1,4 +1,8 @@
-Artículo 27.—La administración del combustible en cada Región o Dirección estará a cargo de:
-1)Los Subgerentes de Área, Directores Nacionales, Directores Regionales o de UEN como responsables superiores o en quien éstos deleguen.
-2)La oficina de combustible, será el responsable de la distribución mensual del presupuesto, así como atender las liquidaciones y otras actividades afines. De sus actuaciones será responsable ante el Director de Área de Maquinaria y Equipo.
-3)El Director del Centro Servicios de Apoyo con la colaboración del Área Funcional de Maquinaria y Equipo, será el encargado de planificar y controlar el consumo anual por concepto de combustible de toda la flotilla institucional.
+ARTÍCULO 27. Los encargados de transportes como encargados del combustible en cada dirección o región tienen las siguientes funciones:
+1. Elaborar el cronograma de asignación, distribución y liquidación del presupuesto de combustible.
+2. Calcular mensualmente el presupuesto de combustible a distribuir.
+3. Verificar en el sistema de Gestión de Transportes la asignación correcta del presupuesto mensual y solicitar a la Dirección Centro Servicios de Apoyo, el presupuesto extraordinario, cuando así se requiera.
+4. Atender las liquidaciones de los usuarios, acatando las disposiciones reglamentarias.
+5. Distribuir el presupuesto de combustible según las cuotas establecidas para cada tarjetahabiente (funcionario).
+6. Informar a la Dirección Centro Servicios de Apoyo y a subgerentes de área, directores nacionales, directores regionales o directores de UEN sobre cualquier anomalía presentada en el ejercicio de sus labores.
+7. Cualesquiera otra que la administración superior o el superior en grado le asigne debido a su cargo.

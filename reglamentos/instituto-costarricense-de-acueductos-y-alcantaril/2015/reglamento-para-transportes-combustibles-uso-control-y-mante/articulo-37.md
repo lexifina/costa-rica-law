@@ -1,4 +1,2 @@
-CAPÍTULO XIII
-De los accidentes de tránsito en que intervienen
-vehículos institucionales
-Artículo 37.—Los funcionarios que se vean involucrados en un accidente de tránsito con un vehículo institucional, deben cumplir con lo establecido en la Ley de Tránsito y el presente Reglamento.
+ARTÍCULO 37. La compra o arrendamiento de vehículos, maquinarias y equipos especiales, se hará en función de la maximización de los recursos, brindando las especificaciones pertinentes para que se adquieran o arrenden aquellos vehículos, maquinaria o equipo especial, que además de satisfacer las necesidades institucionales, proyecte la mínima inversión, el menor costo de operación y la mayor eficiencia energética.
+Dentro de la compra de vehículos se podrá dar como parte de pago aquellos vehículos dados de baja o bien vehículos, maquinaria y equipo especial en operación que requieran sustitución, según criterio técnico de la Dirección Centro Servicios de Apoyo y visto bueno de la Gerencia General.

@@ -1,1 +1,1 @@
-Artículo 30.—La cuota asignada de combustible a vehículos, maquinaria y equipo especial no debe ser utilizada para otros fines.
+ARTÍCULO 30. Cuando se requiera de un aumento en la cuota de combustible, sea temporal o fijo, deberá presentarse ante la Dirección Centro Servicios de Apoyo la debida justificación de la cantidad solicitada, para la respectiva aprobación.

@@ -1,1 +1,3 @@
-Artículo 34.—La entrega de la cuota de combustible a los conductores, la realizará el encargado de combustible o la persona que él autorice. La distribución del presupuesto de combustible se hace de acuerdo a las cuotas establecidas conforme a las necesidades de cada Dirección o Región.
+ARTÍCULO 34. Responsabilidades la Dirección Centro Servicios de Apoyo:
+1. Velar por el control de asignación de presupuesto a nivel nacional.
+2. Ejercer periódicamente un control de calidad, tal como arqueos e inspecciones a las unidades de transporte de las direcciones y regiones.

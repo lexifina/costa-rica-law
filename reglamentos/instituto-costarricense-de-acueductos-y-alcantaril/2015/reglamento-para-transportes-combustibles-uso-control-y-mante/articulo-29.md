@@ -1,1 +1,1 @@
-Artículo 29.—El Subgerente de Área, Director Nacional, Director Regionales o de UEN es responsable de la planificación de la cuota anual de combustible que utilizará su zona o región, así como su asignación para cada vehículo, maquinaria o equipo especial.
+ARTÍCULO 29. La cuota asignada de combustible a vehículos, maquinaria y equipo especial no debe ser utilizada para otros fines.
