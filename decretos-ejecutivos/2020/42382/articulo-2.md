@@ -17,6 +17,8 @@ l) Abangares, específicamente el distrito de Las Juntas.
 (Así adicionado el inciso anterior por el artículo 2° del decreto ejecutivo N° 42383 del 3 de junio del 2020)
 m) Cañas, específicamente los distritos de Cañas y Bebedero.
 (Así adicionado el inciso anterior por el artículo 2° del decreto ejecutivo N° 42383 del 3 de junio del 2020)
+n) Puntarenas, específicamente el distrito de Paquera.
+(Así adicionado el inciso anterior por el artículo 2° del decreto ejecutivo N° 42400 del 10 de junio del 2020)
 Quedan excluidas de la presente medida las rutas número 1 (Ruta Interamericana Norte), 6 (Cañas-Upala), 18 (Abangares-Nicoya), 32 (Braulio Carillo), 142 (Cañas-Tilarán-La Fortuna) y 702 (San Ramón-La Fortuna), las cuales se rigen por lo dispuesto en el Decreto Ejecutivo número 42253-MOPT-S del 24 de marzo de 2020.
 (Así adicionado el párrafo anterior por el artículo 2° del decreto ejecutivo N° 42383 del 3 de junio del 2020)
 (Así reformado el párrafo anterior por el artículo 2° del decreto ejecutivo N° 42386 del 7 de junio del 2020)
