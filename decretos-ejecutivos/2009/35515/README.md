@@ -14,3 +14,4 @@ Reglamento a la Ley de Impuesto Solidario para el Fortalecimiento de Programas d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-10-01 | la propia norma |
+| 2 | 2020-06-10 | Decreto Ejecutivo 42233 (2020-06-10) |
