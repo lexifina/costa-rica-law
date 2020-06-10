@@ -1,4 +1,0 @@
-Artículo 34. Ingreso de la propuesta.
-Las propuestas deberán ser presentadas dentro del plazo previsto para tal efecto en el SICOP, pero permanecerán encriptadas e inaccesibles hasta la hora y la fecha señaladas en la invitación para la apertura de las propuestas.
-La propuesta se tendrá por presentada en la hora y la fecha que registre el certificado de estampado de tiempo del SICOP.
-La propuesta participará únicamente en el proceso de selección para el cual fue presentada, asumiendo el socio las consecuencias que se puedan generar por su falta de cuidado o cualquier error imputable a él en el momento de presentar su propuesta y la documentación complementaria.

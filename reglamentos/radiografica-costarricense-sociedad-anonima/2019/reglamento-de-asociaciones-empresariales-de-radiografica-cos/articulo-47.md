@@ -1,2 +1,0 @@
-Artículo 47. Informes de la Unidad Comercial.
-La Unidad Comercial deberá presentar a la Unidad Gestora informes cada tres meses, a fin de medir el nivel de cumplimiento de las proyecciones financieras estimadas en el caso de negocio de la Asociación Empresarial.

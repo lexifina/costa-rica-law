@@ -1,3 +1,0 @@
-Artículo 32. Presentación de la Propuesta.
-Todo socio registrado deberá remitir su propuesta en el formulario electrónico disponible al efecto en el SICOP. Las propuestas deben ser suscritas por el representante legal mediante firma digital certificada.
-La propuesta debe redactarse en idioma español. La información técnica o complementaria, así como los manuales de uso expedidos por el fabricante, deberán presentarse en idioma español, salvo que en la invitación se permitan otros idiomas, con la traducción oficial o libre de su texto, según sea solicitada.

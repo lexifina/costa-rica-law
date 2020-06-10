@@ -1,2 +1,0 @@
-Artículo 28. Selección del Socio para el desarrollo de productos de Innovación.
-Con el propósito de desarrollar productos y servicios innovadores, la Unidad Gestora seleccionará socios para el desarrollo de dichos productos y servicios. Para esta selección valorará las propuestas que se realicen utilizando criterios técnicos, financieros, comerciales y estratégicos del producto o servicio a desarrollar.

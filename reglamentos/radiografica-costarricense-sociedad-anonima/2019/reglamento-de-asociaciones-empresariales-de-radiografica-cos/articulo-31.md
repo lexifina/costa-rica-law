@@ -1,2 +1,0 @@
-Artículo 31. Cómputo del plazo para la recepción de propuestas.
-Para efectos del cálculo del plazo para la recepción de las propuestas, el mismo iniciará a partir del momento de la publicación en el SICOP.

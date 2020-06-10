@@ -1,1 +1,0 @@
-Transitorio IV: Corresponde a la Asesoría Jurídica y a la Dirección Nuevos Negocios e Innovación, capacitar a los funcionarios que participan en la implementación de este Reglamento y la normativa asociada.”

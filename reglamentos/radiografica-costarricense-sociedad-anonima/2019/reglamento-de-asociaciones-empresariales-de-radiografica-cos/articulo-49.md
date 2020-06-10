@@ -1,2 +1,0 @@
-Artículo 49. Terminación anticipada.
-La Gerencia General podrá gestionar una terminación anticipada del Acuerdo de Asociación Empresarial, tomando en consideración los aspectos de legalidad, oportunidad y conveniencia pertinentes, siempre salvaguardando los intereses económicos y estratégicos de la Empresa, para lo cual deberá contar con la autorización previa de la Junta Directiva.
