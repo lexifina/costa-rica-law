@@ -1,4 +1,6 @@
+(Derogado)
 INSTITUTO COSTARRICENSE DE ELECTRICIDAD
+(Esa norma fue dejada sin efecto por el artículo 117 del Reglamento Interno de Contratación Administrativa, publicado en el Alcance Digital N° 146 a La Gaceta N° 144 del 14 de junio del 2020)
 REGLAMENTO INTERNO DE CONTRATACIÓN ADMINISTRATIVA1
 1 Se adiciona código en mayo 2018 por parte de la DCE a esta versión actualizada de documento normativo.
 TÍTULO I
