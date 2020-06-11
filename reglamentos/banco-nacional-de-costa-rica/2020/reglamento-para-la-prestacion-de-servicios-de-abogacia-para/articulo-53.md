@@ -1,0 +1,2 @@
+Artículo 53. –Disposiciones derogadas. El presente Reglamento deroga el REGLAMENTO PARA LA PRESTACIÓN DE SERVICIOS DE ABOGACÍA PARA EL COBRO DE PRESTAMOS DEL BNCR, publicado en el Diario Oficial la Gaceta N° 18 del 31 de enero del 2018 y sus reformas.
+Asimismo, este Reglamento deroga cualquier otra disposición anterior, aprobada por la Junta Directiva General, que contradiga tácita o implícitamente lo dispuesto en la presente normativa.

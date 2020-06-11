@@ -1,0 +1,8 @@
+BANCO NACIONAL DE COSTA RICA
+JUNTA DIRECTIVA
+El Banco Nacional de Costa Rica comunica la parte resolutiva del acuerdo tomado por la Junta Directiva General, en la Sesión No. 12.459, artículo 8º, celebrada el 25 de mayo del 2020, en el cual acordó aprobar la actualización del Reglamento para la Prestación de Servicios de Abogacía para el Cobro de Préstamos en el Banco Nacional de Costa Rica, para que, en lo sucesivo, se lea de conformidad con el siguiente texto:
+REGLAMENTO PARA LA PRESTACIÓN DE SERVICIOS DE ABOGACÍA
+PARA EL COBRO DE PRÉSTAMOS EN EL BANCO NACIONAL
+DE COSTA RICA
+Artículo 1.-Propósito, Alcance y Responsabilidad. El presente Reglamento tiene como propósito regular los servicios de los abogados externos como los de planta en lo que resulte aplicable, que han sido contratados para la interposición y tramitación de acciones judiciales, tendientes a la recuperación en el menor tiempo posible, de las obligaciones que se encuentren en estado irregular, en las que el Banco Nacional de Costa Rica figure como acreedor.
+Este Reglamento es aplicable a todos los profesionales en Derecho que le presten sus servicios al Banco Nacional de Costa Rica, en su condición de abogados de planta o externos, independientemente de la forma o procedimiento utilizado para su contratación. Estarán sujetos a los deberes, obligaciones y responsabilidades que son inherentes a los servicios profesionales contratados, y que se especifican en el procedimiento de contratación, en la Ley de Contratación Administrativa y su reglamento, así como en el Código de Deberes Jurídicos, Morales y Éticos del Profesional en Derecho No. 50 – 2004 del 25 de noviembre del 2004 publicado en la Gaceta del 10 de noviembre del 2004 y sus reformas.

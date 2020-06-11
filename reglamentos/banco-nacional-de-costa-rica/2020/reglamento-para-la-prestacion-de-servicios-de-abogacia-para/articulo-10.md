@@ -1,0 +1,1 @@
+Artículo 10.- Asignación de casos fuera del rol de distribución. La Gerencia, los Sub-Gerentes Generales, los Directores de Zonas Comerciales, el Director General de Crédito Nacional, la Directora de Asuntos Jurídicos y el Director de Cobro, podrán asignar juicios fuera del rol a favor de uno o varios abogados de planta, conforme mejor convenga a los intereses institucionales.

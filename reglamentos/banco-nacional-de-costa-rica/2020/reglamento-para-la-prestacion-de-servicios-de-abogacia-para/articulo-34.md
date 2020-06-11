@@ -1,0 +1,3 @@
+Artículo 34.-Toma en Posesión. Corresponde al Abogado Director la obligación legal y contractual de apersonarse a las diligencias de toma en posesión, de los bienes adjudicados, de conformidad con lo establecido en el Código Procesal Civil, siendo este un acto propio del proceso judicial.
+Deberá comunicar a la UICJ con al menos 6 días hábiles de anticipación, la fecha y hora de la toma en posesión.
+Asimismo, deberá rendir un informe detallado del resultado de la diligencia de toma en posesión, el cual será remitido junto a la copia del acta levantada al efecto al correo o medio oficial a más tardar dentro de los 3 días hábiles siguientes, después de realizada la diligencia.
