@@ -40,16 +40,14 @@ EL DIRECTOR GENERAL DE ADUANAS COMUNICA:
 4. Comuníquese y publíquese en el Diario Oficial La Gaceta.
 ANEXO APERTURAS Y SUPRESIONES RESOLUCION N° 22-98 (COMIECO-VIII)
 M O V . | INCISO ARANCELARIO | DESCRIPCION | N T | DAI | LEY | I.V.A. | GOLFITO | COLOMBIA | C.A. | PANAMA | REP. DOM. | MEXICO | PERU | SINGAPUR | CHILE | CANADA | CARICOM | CAFTA | CAFTA-RD | CHINA | AACUE | AELC | COREA
-| 1507.90.00.00 | - Los demás | 50 | 14 | 1 | 0 | | | 7 | | | | | | | | | | | | | |
-I | 1507.90.00.00.30 | - - Refinados en el Área Centroamericana a partir de aceites en bruto importados de terceros países | | | | | | | | | | | | | | | | | | | | |
+| 1507.90.00.00 (Así corregido el inciso arancelario anterior mediante resolución N° RES-DGA-274-2020 del 1° de junio del 2020) | - Los demás | | | | | | | | | | | | | | | | | | | | |
+I | 1507.90.00.00.30 | - - Refinados en el Área Centroamericana a partir de aceites en bruto importados de terceros países | 50 (Así corregido el dato anterior mediante resolución N° RES-DGA-274-2020 del 1° de junio del 2020) | 14 (Así corregido el dato anterior mediante resolución N° RES-DGA-274-2020 del 1° de junio del 2020) | 1 (Así corregido el dato anterior mediante resolución N° RES-DGA-274-2020 del 1° de junio del 2020) | 0 (Así corregido el dato anterior mediante resolución N° RES-DGA-274-2020 del 1° de junio del 2020) | | 7 (Así corregido el dato anterior mediante resolución N° RES-DGA-274-2020 del 1° de junio del 2020) | | | | | | | | | | | | | | |
 E | 1508.90.00.00.00 | - Los demás | 50 | 14 | 1 | 13 | 10 | 10 | 0 | EXC | EXC | 0 | 7 | 0 | EXC | 0 | EXC | 0 | EXC | EXC | 15 | 15 | 13
 I | 1508.90.00.00 | - Los demás | | | | | | | | | | | | | | | | | | | | |
 I | 1508.90.00.00.10 | - - Refinados en el Área Centroamericana a partir de aceites en bruto importados de terceros países | 50 | 14 | 1 | 13 | 10 | - | 7 | - | - | - | - | - | - | - | - | - | - | - | - | - | -
 I | 1508.90.00.00.90 | - - Los demás | 50 | 14 | 1 | 13 | 10 | 10 | 0 | EXC | EXC | 0 | 7 | 0 | EXC | 0 | EXC | 0 | EXC | EXC | 15 | 15 | 13
 | [imagen] 1511.90.90.00.9 | - - - Otros | | | | | | | | | | | | | | | | | | | | |
-I | 1511.90.90.00.92 | - - - - Refinados en el Área Centroamericana a partir de aceites en bruto importados de terceros | 50 | 14 | 1 | 0 | - | 7 | - | - | - | - | - | - | - | - | - | - | - | - | - | - | -
-| | | APERT | URA | S Y SUPR | ESIO | NES R | ANEXO ESOLUCION N° 22-98 (COMIE | CO-V | III) | | | | | | | |
-M O V . | INCISO ARANCELARIO | DESCRIPCION | N T | DAI | LEY | I.V.A. | GOLFITO | COLOMBIA | C.A. | PANAMA | REP. DOM. | MEXICO | PERU | SINGAPUR | CHILE | CANADA | CARICOM | CAFTA | CAFTA-RD | CHINA | AACUE | AELC | COREA
+I | 1511.90.90.00.92 | - - - - Refinados en el Área Centroamericana a partir de aceites en bruto importados de terceros | 50 | 14 (Así corregido el dato anterior mediante resolución N° RES-DGA-274-2020 del 1° de junio del 2020) | 1 | 0 | - | - (Así corregido el dato anterior mediante resolución N° RES-DGA-274-2020 del 1° de junio del 2020) | 7 (Así corregido el dato anterior mediante resolución N° RES-DGA-274-2020 del 1° de junio del 2020) | - | - | - | - | - | - | - | - | - | - | - | - | - | -
 | | países | | | | | | | | | | | | | | | | | | | | |
 E | 1512.19.00.00.10 | - - - Aceites de girasol y sus fracciones | 50 | 14 | 1 | 0 | - | EXC | 0 | EXC | EXC | 0 | 7 | 0 | EXC | 0 | EXC | 0 | EXC | EXC | 15 | 15 | EXC
 I | 1512.19.00.00.1 | - - - Aceites de girasol y sus fracciones | | | | | | | | | | | | | | | | | | | | |
@@ -59,6 +57,7 @@ I | 1512.19.00.00.30 | - - - Refinados en el Área Centroamericana a partir de a
 E | 1512.29.00.00.00 | - - Los demás | 50 | 14 | 1 | 13 | 10 | 10 | 0 | EXC | EXC | 0 | 7 | 0 | EXC | 0 | EXC | 0 | EXC | EXC | 15 | 15 | EXC
 I | 1512.29.00.00 | - - Los demás | | | | | | | | | | | | | | | | | | | | |
 I | 1512.29.00.00.10 | - - - Refinados en el Área Centroamericana a partir de aceites en | 50 | 14 | 1 | 13 | 10 | - | 7 | - | - | - | - | - | - | - | - | - | - | - | - | - | -
+| | | | | | | | | | | | | | | | | | | | | | | |
 | | | APERT | URA | S Y SUPR | ESIO | NES R | ANEXO ESOLUCION N° 22-98 (COMIE | CO-V | III) | | | | | | | |
 M O V . | INCISO ARANCELARIO | DESCRIPCION | N T | DAI | LEY | I.V.A. | GOLFITO | COLOMBIA | C.A. | PANAMA | REP. DOM. | MEXICO | PERU | SINGAPUR | CHILE | CANADA | CARICOM | CAFTA | CAFTA-RD | CHINA | AACUE | AELC | COREA
 | | bruto importados de terceros países | | | | | | | | | | | | | | | | | | | | |
@@ -150,7 +149,7 @@ I | 1517.90.90.90.11 | - - - - - Refinadas en el | 50 | 9 | 1 | 0 | - | - | 7 | 
 | | | APERT | URA | S Y SUPR | ESIO | NES R | ANEXO ESOLUCION N° 22-98 (COMIE | CO-V | III) | | | | | | | |
 M O V . | INCISO ARANCELARIO | DESCRIPCION | N T | DAI | LEY | I.V.A. | GOLFITO | COLOMBIA | C.A. | PANAMA | REP. DOM. | MEXICO | PERU | SINGAPUR | CHILE | CANADA | CARICOM | CAFTA | CAFTA-RD | CHINA | AACUE | AELC | COREA
 | | Área Centroamericana a partir de aceites en bruto importados de terceros países | | | | | | | | | | | | | | | | | | | | |
-I | 1517.90.90.90.19 | - - - - - Las demás | 50 | 9 | 1 | 0 | - | EXC | 7 | EXC | EXC | 0 | 4.60 | 0 | EXC | 0 | EXC | 0 | EXC | EXC | 10 | 10 | EXC
+I | 1517.90.90.90.19 | - - - - - Las demás | 50 | 9 | 1 | 0 | - | EXC | 0 (Así corregido el dato anterior mediante resolución N° RES-DGA-274-2020 del 1° de junio del 2020) | EXC | EXC | 0 | 4.60 | 0 | EXC | 0 | EXC | 0 | EXC | EXC | 10 | 10 | EXC
 E | 1517.90.90.90.90 | - - - - Los demás | 50 | 9 | 1 | 13 | - | EXC | 7 | EXC | EXC | 0 | 4.60 | 0 | EXC | 0 | EXC | 0 | EXC | EXC | 10 | 10 | EXC
 | | | | | | | | | | | | | | | | | | | | | | |
 I | 1517.90.90.90.9 | - - - - Los demás | | | | | | | | | | | | | | | | | | | | |

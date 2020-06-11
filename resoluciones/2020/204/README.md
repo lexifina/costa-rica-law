@@ -14,3 +14,4 @@ Modificaciones en arancel automatizado cierre y aperturas arancelarias para iden
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-06-11 | la propia norma |
+| 2 | 2020-06-11 | Resolución 274 (2020-06-01) |
