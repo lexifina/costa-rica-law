@@ -1,0 +1,1 @@
+Artículo 10.—Plazo para cumplir prevención de requisitos. En casos de excepción, en los que se prevenga la aclaración de lo consultado, se concederá un plazo de hasta 10 días hábiles al sujeto consultante, bajo el apercibimiento de archivar la gestión en caso de incumplimiento. Dicho plazo interrumpe el plazo de resolución regulado en la presente normativa.

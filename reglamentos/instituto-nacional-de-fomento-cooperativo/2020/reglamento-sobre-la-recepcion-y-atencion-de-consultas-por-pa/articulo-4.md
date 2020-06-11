@@ -1,0 +1,1 @@
+Artículo 4º—Principios de la potestad consultiva. En el ejercicio de la potestad consultiva el Área de Supervisión Cooperativa considerará en el trámite y atención correspondiente los principios de legalidad, eficiencia, eficacia, informalismo, oficiosidad y transparencia.

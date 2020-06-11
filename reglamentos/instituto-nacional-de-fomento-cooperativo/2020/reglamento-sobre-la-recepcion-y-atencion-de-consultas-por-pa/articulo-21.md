@@ -1,0 +1,1 @@
+Artículo 21.—Transitorio. Las consultas planteadas en trámite, que fueron planteadas antes de la entrada en vigor del presente reglamento, se atenderán de acuerdo con la normativa vigente al momento de su presentación.

@@ -1,0 +1,4 @@
+Artículo 12.—Competencia consultiva del Área de Supervisión Cooperativa. Serán atendidas aquellas consultas planteadas por escrito, debidamente firmadas, y relacionadas a los aspectos cooperativos-contables y aspectos concernientes al derecho cooperativo.
+Se entenderá por consultas de tipo cooperativo-contable, aquellas relacionadas a: ingresos con no asociados, otros ingresos, ingresos indirectos, aplicación de reservas de Ley y estatutarias, incremento o disminución de capital, distribución de excedentes, entre otros relacionados.
+Se entenderá por consultas sobre derecho cooperativo, las relacionadas con filosofía, doctrina y métodos cooperativistas y la interpretación de la Ley de Asociaciones Cooperativas vigente.
+La respuesta se brindará con base en la información proporcionada con el interesado.
