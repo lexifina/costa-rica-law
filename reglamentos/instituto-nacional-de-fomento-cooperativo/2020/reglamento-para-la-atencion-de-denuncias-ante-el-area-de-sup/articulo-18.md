@@ -1,0 +1,1 @@
+Artículo 18.—Visita a la cooperativa. En caso de que a criterio del funcionario encargado de la investigación sea necesaria una visita a la cooperativa, con el fin de recabar más información, se programará y se informará sobre ésta a la Gerencia de la Cooperativa, mediante un oficio que llevará copia para el Comité de Vigilancia y el Consejo de Administración.

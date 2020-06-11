@@ -1,0 +1,2 @@
+Artículo 13.—De las denuncias anónimas. Supervisión Cooperativa analizará el contenido y razonabilidad de las denuncias anónimas, de conformidad con la normativa técnica y legal aplicable.
+Si contienen elementos suficientes y prueba idónea que permita valorar los hechos, se aceptarán tales denuncias. Si no cumplen con dicho requisito, se ordenará su archivo junto con la Resolución que fundamenta el acto.

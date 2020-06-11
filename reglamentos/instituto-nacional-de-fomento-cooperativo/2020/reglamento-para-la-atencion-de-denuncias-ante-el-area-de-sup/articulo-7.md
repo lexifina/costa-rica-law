@@ -1,0 +1,1 @@
+Artículo 7º—Legitimación. Están legitimados para presentar denuncias los asociados de las cooperativas, y los integrantes de Órganos Sociales. Asimismo, se faculta para realizar denuncias a los abogados, contadores públicos y privados que estén laborando o que tengan relación con alguna cooperativa.

@@ -1,0 +1,1 @@
+Artículo 19.—Visita no anunciada. En casos de suma gravedad y en donde sea estrictamente necesario para lograr el éxito de la investigación, dicha visita no será anunciada y podrá ser efectuada antes del traslado de la denuncia.

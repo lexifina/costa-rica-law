@@ -1,0 +1,2 @@
+Artículo 16.—Competencia del Área de Supervisión y traslado a la cooperativa. En caso de que, una vez valorada la denuncia, se constate que compete su conocimiento y resolución al Área de Supervisión, se remitirá oficio en el que se brindará un plazo de diez días hábiles a la Administración (gerencia y Consejo) de la Cooperativa para que respondan acerca de los hechos denunciados.
+Se enviará además una copia del oficio al Comité de Vigilancia.

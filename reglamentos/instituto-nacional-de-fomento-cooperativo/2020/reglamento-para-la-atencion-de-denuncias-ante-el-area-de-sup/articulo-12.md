@@ -1,0 +1,3 @@
+Artículo 12.—Denuncias verbales. En casos debidamente justificados se atenderán denuncias verbales que se ajusten a los requerimientos anteriores. Estas serán atendidas directamente por la Gerencia de Supervisión y los funcionarios que la gerencia encargue.
+En este caso se levantará un acta que consignará los datos de la denuncia y se solicitarán al denunciante las ampliaciones pertinentes según la evidencia aportada.
+El acta se leerá en voz alta al denunciante para que brinde su consentimiento y estampe su firma en el documento. Si es posible, consignará la firma de uno o más funcionarios de Supervisión en calidad de testigos.

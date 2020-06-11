@@ -1,0 +1,1 @@
+Artículo 20.—Información no aportada por el interesado. En caso de que el funcionario haya solicitado documentación que fuera imprescindible y que no fue aportada en tiempo por el interesado, deberá consignarlo en el oficio respectivo.

@@ -1,0 +1,6 @@
+CAPÍTULO IV
+Desestimación de las denuncias
+Artículo 24.—De los motivos para desestimar y archivar una denuncia. La Gerencia de Supervisión desestimará y archivará las denuncias que se remitan cuando se presente alguna de las siguientes condiciones:
+1. Que, una vez hecha la investigación y análisis respectivos, no se logró demostrar o acreditar lo denunciado, sino más bien se logró tener certeza que lo denunciado resulta infundado. En ese caso, se dejará constancia del respectivo análisis por parte del funcionario asignado.
+2. Si el asunto planteado ante Supervisión Cooperativa corresponde investigarse o discutirse exclusivamente en otras sedes, sean administrativas o judiciales; o bien, si se encuentra en conocimiento de otras instancias con la competencia para realizar la investigación, y ejercer el control y sanción. En estos casos se realizará la coordinación respectiva para definir la instancia que deberá atenderla, a efecto de no duplicar el uso de recursos públicos.
+3. Si se trata de reiteración o reproducción de otras denuncias similares que no aportan nuevos elementos y que ya hubieran sido resueltas con anterioridad por Supervisión o por otras instancias de la Administración activa.

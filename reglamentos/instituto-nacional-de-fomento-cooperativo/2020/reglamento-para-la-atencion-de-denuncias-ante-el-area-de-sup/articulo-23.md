@@ -1,0 +1,1 @@
+Artículo 23.—Trámite de la Denuncias que deben ser conocidas en sede judicial. En caso de que las denuncias contengan elementos que deban ser conocidos en sede judicial ya sea laboral o penal, le será comunicado al denunciante tal situación, instruyéndolo y brindándole orientación para que proceda en dicho sentido.

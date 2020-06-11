@@ -1,0 +1,1 @@
+Artículo 17.—Análisis y ampliación de lo recibido. Una vez que la información solicitada por Supervisión ha sido enviada por la Cooperativa, se procederá a su análisis por parte del Asesor Jurídico o un Auditor de Cooperativas, y si es necesario se solicitará ampliar lo recibido.
