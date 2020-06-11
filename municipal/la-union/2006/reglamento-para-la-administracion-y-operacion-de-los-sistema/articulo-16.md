@@ -1,1 +1,0 @@
-Artículo 16.—El personal de la Unidad de Estacionamiento Autorizado por medio de los inspectores, tendrán a su cargo la vigilancia de este Reglamento para el distrito central de la Unión, los que están obligados a velar por aplicación del mismo y podrán ser coordinados con las autoridades del tránsito, según lo establece el artículo 5º de la ley 3580.

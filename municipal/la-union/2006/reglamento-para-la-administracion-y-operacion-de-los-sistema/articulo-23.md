@@ -1,1 +1,0 @@
-Artículo 23.—Las zonas o espacios para estacionamiento serán solo para un vehículo. Tal sistema podrá concederse por, periodos mensuales, conforme con el interés de los solicitantes o la conveniencia municipal.

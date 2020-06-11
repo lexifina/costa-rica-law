@@ -1,1 +1,0 @@
-Artículo 18.—Para el mejor cumplimiento de esta Ley, la Municipalidad y la Dirección de Tránsito, tomarán las medidas pertinentes en estrecha y, efectiva colaboración. Los inspectores están envestidos de autoridad para las actuaciones oficiales en lo establecido en la ley 3580 del 2 de noviembre de 1975.

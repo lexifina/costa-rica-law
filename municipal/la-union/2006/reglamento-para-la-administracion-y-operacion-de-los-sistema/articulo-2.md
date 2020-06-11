@@ -1,2 +1,0 @@
-Artículo 2º—Para efectos de cobro de la tasa se divide el distrito primero de la Unión, en zona céntrica y zona no céntrica, la céntrica quedará comprendida entre las calles cuarta y tercera y entre las avenidas cero (central y tres), la cual puede ser ampliada por la Municipalidad de acuerdo a proyección dentro del marco de las leyes correspondientes de la vialidad.
-La zona no céntrica se ubicará inmediatamente siguiente de la céntrica y hasta los límites de la ciudad.

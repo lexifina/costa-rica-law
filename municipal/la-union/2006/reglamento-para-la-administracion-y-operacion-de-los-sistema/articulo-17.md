@@ -1,1 +1,0 @@
-Artículo 17.—La Municipalidad de la Unión por medio de los inspectores velará por el cumplimiento en el pago de la tasa establecida en este Reglamento, quienes reportarán los vehículos de quienes infrinjan la ley, en caso necesario. El encargado de la Unidad pasará el asunto a la Alcaldía de Tránsito respectiva.

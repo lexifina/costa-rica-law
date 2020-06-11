@@ -1,1 +1,0 @@
-Artículo 21.—La Municipalidad de la Unión, por medio de la Unidad a cuyo cargo esté la regulación de estacionamientos demarcará ángulos no menores de diez metros para el estacionamiento de motocicletas y bicicletas, sin cobro alguno. Así mismo todos aquellos obstáculos que sean ubicados en esta área, serán despejados en coordinación con la autoridad respectiva.
