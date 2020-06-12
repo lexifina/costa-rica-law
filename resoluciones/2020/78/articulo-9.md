@@ -1,0 +1,4 @@
+CAPÍTULO II
+De la competencia, admisibilidad, tramitación,
+desistimiento y archivo de la denuncia
+Artículo 9°—Sobre la competencia para tramitar la denuncia. Si la denuncia versa sobre una materia ajena a la competencia de la instancia receptora, sea la Sección de Admisibilidad e Investigaciones Preliminares del Departamento Disciplinario Legal o la Auditoría General, de inmediato se deberá trasladar el expediente a la instancia competente, para que determine sobre su admisibilidad y proceda como corresponde. El traslado del expediente se hará en sobre cerrado en resguardo de la confidencialidad de los datos. En la parte externa del sobre deberá consignarse la leyenda que diga “CONFIDENCIAL”. Admitida la denuncia se procederá a darle el curso respectivo y se informará al denunciante que haya señalado un lugar o medio para tal efecto.

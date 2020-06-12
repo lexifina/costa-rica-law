@@ -1,0 +1,3 @@
+CAPÍTULO III
+Del procedimiento administrativo y plazos
+Artículo 15.—Procedimiento. Cuando se recomiende la apertura de un procedimiento administrativo para determinar eventuales responsabilidades, el órgano director se regirá por las reglas y los plazos contenidos en la Ley General de la Administración Pública, sin perjuicio de las disposiciones contenidas en otros cuerpos normativos especiales según la materia de que se trate. Hasta la resolución final del procedimiento, la información contenida en el expediente se calificará como confidencial, excepto para las partes involucradas y los órganos legalmente autorizados para conocer del asunto.
