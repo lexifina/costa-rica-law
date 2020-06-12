@@ -1,0 +1,1 @@
+Artículo 2º- Deróguense los artículos 546 al 565 del Decreto Ejecutivo N° 25270-H, Reglamento a la Ley General de Aduanas, del 14 de junio de 1996, publicado en el Alcance N° 37, a La Gaceta N° 123, del 28 de junio de 1996 y sus reformas.

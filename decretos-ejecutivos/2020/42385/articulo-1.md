@@ -1,0 +1,26 @@
+N° 42385-H
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE HACIENDA
+Con fundamento en las atribuciones y facultades conferidas en los artículos 140 incisos 3), 8, 18) y 20) y 146 de la Constitución Política; 25 inciso 1), 27 inciso 1), 28 inciso 2) acápite b) y 103 párrafo primero de la Ley General de la Administración Pública, Ley Nº 6227 de fecha 02 de mayo de 1978; la Aprobación del Segundo Protocolo de Modificación al Código Aduanero Uniforme Centroamericano (CAUCA III), Ley Nº 8360 de fecha 24 de junio del 2003; el Reglamento al Código Aduanero Uniforme Centroamericano Nº 31536-COMEX-H de fecha 24 de noviembre del 2003 (RECAUCA III); Ley General de Aduanas Nº 7557 de fecha 20 de octubre de 1995, y sus reformas; así como el Reglamento a la Ley General de Aduanas Nº 25270-H de fecha 14 de junio de 1996, y sus reformas;
+Considerando:
+I.-Que dentro de los fines del régimen jurídico aduanero se encuentra el facilitar y agilizar las operaciones de comercio exterior, mediante la actualización de los procedimientos aduaneros y la modificación de las normas, para adaptarlas a los cambios técnicos y tecnológicos y a los requerimientos del comercio internacional.
+II.-Que el transporte internacional y el tránsito aduanero de mercancías constituyen factores estratégicos para el desarrollo de las exportaciones e importaciones del país y del comercio internacional.
+III.- Que resulta ineludible regular y someter a control aduanero, los medios y unidades de transporte en los que ingresan mercancías extranjeras bajo la modalidad de transporte multimodal internacional marítimo terrestre.
+IV.- Que el artículo 146 de la Ley General de Aduanas define el transporte multimodal como el tránsito nacional o internacional de mercancías amparadas a un solo contrato de transporte, utilizando por lo menos dos medios diferentes de transporte. En consonancia con esta norma, el párrafo final del artículo 149 del mismo cuerpo legal establece que por vía reglamentaria se dispondrán los procedimientos a los que se sujetará la modalidad de transporte multimodal.
+V.-Que la implementación de la modalidad de transporte multimodal es en buena medida una facilitación y agilización para el tránsito nacional e internacional de mercancías, que puede llegar a optimizar los tiempos de movimientos de mercancías entre los países.
+VI.- Que al ser el transporte multimodal una alternativa de facilitación y agilización, por cuanto dicho servicio puede ser prestado por los operadores logísticos ya autorizados, sean estas empresas de transporte navieros o terrestres, es poco factible mantener una figura especial de auxiliar de la función pública aduanera, que solo se pueda dedicar a prestar un único servicio.
+VII.- Que de conformidad con lo establecido en el artículo 12, párrafo tercero del Decreto Ejecutivo No 37045 denominado “Reglamento a la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos” de 22 defebrero de 2012, se hace constar que el presente Decreto Ejecutivo, no establece ni modifica trámites, requisitos o procedimientos que el administrado debe cumplir ante la Administración Central, siendo más bien que dispone mayores beneficios que la regulación existente, por cuanto elimina requisitos existentes para el Operador de Transporte Multimodal Internacional.
+Por tanto
+Decretan:
+“Modificación de los artículos 543, 544 inciso a) y 545 y derogatoria de los artículos 546
+al 565 del Decreto Ejecutivo N° 25270-H, Reglamento a la Ley General de Aduanas, del
+14 de junio de 1996, publicado en el Alcance N° 37, a La Gaceta N° 123, del 28 de junio
+de 1996 y sus reformas.”
+Artículo 1º.- Modifíquense los artículos 543, 544 inciso a) y 545 del Decreto Ejecutivo N° 25270-H, Reglamento a la Ley General de Aduanas, del 14 de junio de 1996, publicado en el Alcance N° 37, a La Gaceta N° 123, del 28 de junio de 1996 y sus reformas, para que se lean en los siguientes términos:
+“Artículo 543.-Objeto. Las normas establecidas en este capítulo tienen por objeto regular la modalidad de transporte multimodal internacional de mercancías, entendido como el tránsito nacional o internacional de mercancías amparadas a un solo contrato de transporte con destino o salida Costa Rica, utilizando como modo de transporte el marítimo y el terrestre. Por lo anterior el Trasportista deberá brindar el servicio completo de movilización de mercancía, desde el punto de recolección de la carga hasta su destino final de entrega.
+Artículo 544.-Ámbito de aplicación. Se autorizará la modalidad de transporte multimodal internacional, solamente para el transporte marítimo-terrestre, y cuando se cumplan las siguientes condiciones:
+a) Que el medio de transporte ingrese o salga del país por el puerto marítimo, de forma conjunta o separada a la unidad de transporte, conteniendo únicamente la carga manifestada, conforme a lo autorizado desde su origen o país de procedencia.
+(…) ”
+Artículo 545.-Definiciones: Para los efectos de este capítulo se entiende por:
+a) Medio de transporte Conjunto: se entiende por medio de transporte conjunto, aquella unidad de transporte que cuente con un medio automotor capaz de remolcarla.
+b) Medio de transporte separado: es aquella unidad de transporte que debe ser remolcada.”
