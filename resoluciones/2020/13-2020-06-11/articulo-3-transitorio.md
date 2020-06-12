@@ -1,0 +1,1 @@
+Transitorio III.- Momento de inscripción como proveedor o intermediario y aporte de documentación de respaldo. Los proveedores e intermediarios podrán iniciar su proceso de inscripción a partir de la fecha de publicación de esta resolución. No obstante, el cobro del impuesto deberá supeditarse al plazo indicado en el Transitorio I.

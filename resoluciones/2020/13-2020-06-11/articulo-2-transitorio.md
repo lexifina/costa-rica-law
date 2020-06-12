@@ -1,0 +1,1 @@
+Transitorio II.- Medio de pago Débito en Tiempo Real (DTR). Hasta tanto la Administración Tributaria disponga del mecanismo DTR en la plataforma ATV, los agentes perceptores y los proveedores o intermediarios con cuentas domiciliadas en Costa Rica deberán utilizar el medio de pago denominado “Conectividad”.

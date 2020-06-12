@@ -1,0 +1,3 @@
+Artículo 22.- Devolución de percepciones por parte del agente perceptor. Conforme el artículo 223 del Reglamento de Procedimiento Tributario, ostenta la legitimación pasiva para solicitar la devolución el agente de percepción que indebidamente perciba tributos por aplicación incorrecta de las normas sustantivas.
+Asimismo, cuando el emisor de tarjetas de crédito o débito revierta una transacción a un tarjetahabiente, deberá devolver también el IVA percibido en la transacción respectiva, siempre que dicha transacción haya sido objeto de percepción, lo cual deberá mostrarse en una línea separada en
+el estado de cuenta del tarjetahabiente.

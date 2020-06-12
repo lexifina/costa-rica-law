@@ -1,0 +1,6 @@
+Artículo 4.- Obligaciones como contribuyente del proveedor o intermediario. Una vez registrado como contribuyente del IVA, el proveedor o intermediario de servicios digitales y/o bienes intangibles tendrá la obligación de:
+a) Mantener actualizada su información en el Registro Único Tributario (RUT), para lo cual el representante legal deberá completar el formulario indicado en el inciso a) del artículo 3 de la presente resolución y enviarlo a la dirección electrónica direccionrecauda@hacienda.go.cr.
+b) Identificar el lugar de consumo de los servicios digitales y/o bienes intangibles que sean adquiridos por consumidores finales o por contribuyentes de este impuesto, para consumo en el territorio nacional.
+c) Efectuar el cobro del IVA sobre la venta de servicios digitales y/o bienes intangibles a consumidores finales o contribuyentes de este impuesto, para consumo en el territorio nacional.
+d) Declarar e ingresar el impuesto al Fisco costarricense conforme con lo dispuesto en el artículo 9 de esta resolución.
+El registro por parte del proveedor o intermediario no generará obligaciones distintas a las ligadas a su condición de contribuyente del IVA, incluyendo el deber de registrarse como contribuyentes de otros impuestos, ni representa la constitución de un establecimiento permanente para efectos del impuesto sobre las utilidades.

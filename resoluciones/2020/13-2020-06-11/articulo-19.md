@@ -1,0 +1,2 @@
+Artículo 19.- Declaración y pago del impuesto por percepción. El perceptor deberá declarar el IVA percibido en forma diaria a más tardar dentro de los tres días hábiles siguientes de efectuada la percepción al tarjetahabiente, mediante el formulario D-102 “Declaración jurada de percepción de IVA de Emisores de Tarjetas”, visible en el Anexo 4 de la presente resolución.
+El pago del impuesto se realizará por medio de conectividad dentro del mismo plazo indicado en este artículo.

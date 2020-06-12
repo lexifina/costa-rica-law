@@ -1,0 +1,1 @@
+Artículo 18.- Base imponible y tarifa de impuesto de la percepción del emisor de tarjetas de crédito o débito. Las entidades perceptoras deberán aplicar la tarifa general del IVA de 13% sobre el monto total de la transacción identificada según el artículo 17 de esta resolución.
