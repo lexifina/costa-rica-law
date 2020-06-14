@@ -1,9 +1,3 @@
-Artículo 45.- Suspensión y retiro de la certificación
-PROCOMER podrá solicitar al ente certificador que suspenda o retire la certificación en los siguientes supuestos:
-a) Incumplimiento a las obligaciones establecidas en el presente reglamento o cualquier otra disposición aplicable.
-b) Quejas reiteradas por parte de personas físicas o jurídicas evaluadas.
-c) Uso del certificado de forma engañosa.
-d) Retraso injustificado en la realización del trámite correspondiente al proceso, mantenimiento o renovación.
-e) Suministro de información falsa en el informe técnico de cumplimiento del protocolo de evaluación marca país o en cualquier otra información o documentación requerida por PROCOMER.
-f) Incumplimiento en la veracidad de los datos suministrados al organismo certificador.
-Así reformado por la Junta Directiva de PROCOMER en la sesión 335-2016 del 22 de agosto del 2016.
+Artículo 45.-Cambio de Organismo Certificador.
+En los casos que el Organismo Certificador designado manifieste su voluntad de no continuar participando en el esquema de evaluación de la Marca País, deberá comunicar por escrito tal situación a la Dirección de Marca País, con doce meses de antelación; período en el cual dicha Dirección deberá efectuar las gestiones necesarias para contar con un nuevo organismo certificador habilitado al vencimiento de este plazo.
+Así reformado por la Junta Directiva de PROCOMER en la sesión 368-2019 del 25 de noviembre del 2019.

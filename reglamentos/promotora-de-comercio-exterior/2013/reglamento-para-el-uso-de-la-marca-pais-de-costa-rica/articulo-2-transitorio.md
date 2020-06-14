@@ -1,2 +1,6 @@
 TRANSITORIO II:
-Durante el primer año de vigencia del presente reglamento, la vigencia de la certificación del evaluador se otorgará por un año. Una vez finalizado este período, la vigencia de la certificación se otorgará por tres años.
+Para todos los efectos, el esquema de evaluación a través de un organismo certificador será implementado plenamente a partir del 2 de enero del año 2020.
+No obstante, las personas que a esa fecha cuenten con una certificación vigente como evaluadores de Marca País, en respeto de los derechos adquiridos de buena fe, podrán continuar realizando funciones como evaluadores hasta la fecha de vencimiento del certificado que lo habilita como tal.
+En virtud de lo anterior, los evaluadores están obligados a cumplir con las obligaciones, requisitos y demás lineamientos aplicables a los evaluadores certificados, visible en Reglamento que es objeto de reforma.
+En estos casos, PROCOMER sólo admitirá los informes de evaluación que emitan los evaluadores certificados, siempre y cuando tales informes sean presentados con un mes de antelación de la fecha de vencimiento del certificado como evaluador. Una vez vencido el plazo de la vigencia de tal certificación ésta no podrá ser renovada y se procederá a quitar el nombre del evaluador de la lista de evaluadores certificados que están en la página web de PROCOMER.
+Así reformado por la Junta Directiva de PROCOMER en la sesión 368-2019 del 25 de noviembre del 2019.

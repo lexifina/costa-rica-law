@@ -1,20 +1,16 @@
-Artículo 41.- De las obligaciones de las personas certificadas como evaluadores de la Marca País
-Las personas físicas que estén certificadas como evaluadores de la Marca País Esencial Costa Rica deberán cumplir con las siguientes obligaciones:
-a) Actuar bajo los principios de imparcialidad, confidencialidad e independencia.
-b) Cumplir con pericia y debido cuidado profesional sus funciones, haciendo valer sus competencias con independencia funcional y de criterio.
-c) Establecer las medidas formales para controlar y administrar situaciones de impedimento que pudieran presentarse sobre hechos o actuaciones que pongan en duda o en peligro (de hecho, o de apariencia) la objetividad e independencia del evaluador, tanto de manera previa a la realización de una evaluación, como durante el proceso de evaluación propiamente dicho.
-d) Mantener vigente la certificación ante el organismo certificador de tercera parte acreditado ante el ECA.
+Artículo 41.- De las obligaciones de los Organismos certificadores de la marca país
+Los organismos certificadores de la Marca País Esencial Costa Rica deberán cumplir con las siguientes obligaciones:
+a) Estar constituido como una persona jurídica.
+b) Implementar un sistema de control y administración que garantice la objetividad e independencia del evaluador designado, tanto de manera previa a la realización de una evaluación, como durante el proceso de evaluación propiamente dicho.
+c) Garantizar que el personal designado para realizar las evaluaciones de la marca país actué bajo los principios de imparcialidad, confidencialidad e independencia, de manera que cumpla con pericia y debido cuidado profesional sus funciones, haciendo valer sus competencias con independencia funcional y de criterio.
+d) Velar porque no exista un conflicto de interés en el personal designado para la realizar las evaluaciones de marca país, bajo el entendido que la existencia de un interés personal que ponga en riesgo su independencia de criterio.
 e) Emitir el informe técnico de cumplimiento del protocolo de evaluación, en el formato elaborado al efecto por PROCOMER.
-f) Determinar la conformidad de la organización con los requisitos del protocolo marca país.
-g) Aplicar los procedimientos y métodos de evaluación del protocolo establecidos por PROCOMER.
-h) Planificar y organizar el trabajo eficazmente y cumplir con los plazos máximos requeridos para la emisión del informe técnico respectivo establecido por PROCOMER.
-i) Llevar a cabo la evaluación dentro del horario acordado con la organización evaluada.
-j) Recopilar evidencia objetiva, mediante entrevistas eficaces, escuchando, observando y revisando documentos, registros y datos.
-k) Confirmar que la evidencia de la evaluación es suficiente y apropiada para apoyar los hallazgos y conclusiones de la evaluación.
-l) Utilizar documentos de trabajo para registrar las actividades de evaluación; documentar los hallazgos de la evaluación y preparar el informe de evaluación apropiado.
-m) Mantener la confidencialidad y seguridad de la información, los datos, los documentos y los registros.
-n) Comunicarse de forma eficaz, oralmente y por escrito (personalmente, o mediante el uso de intérpretes y traductores).
-ñ) Comprender los tipos de riesgos asociados con la evaluación y actuar conforme a los controles de riesgos asociados.
-o) Suministrar a PROCOMER toda la información y documentación que esa entidad les solicite en forma oportuna.
-p) Cualquier otro exigido por la normativa vigente.
-Así reformado por la Junta Directiva de PROCOMER en la sesión 335-2016 del 22 de agosto del 2016.
+f) Aplicar los procedimientos y métodos de evaluación del protocolo establecidos por PROCOMER.
+g) Verificar el trabajo realizado según la frecuencia y metodología establecida al efecto, con el objetivo de validar que las evaluaciones realizadas cumplan con los estándares de calidad y de normas éticas requeridos en el proceso de evaluación de la marca país.
+h) Documentar evidencia objetiva, mediante entrevistas eficaces, escuchando, observando y revisando documentos, registros y datos.
+i) Confirmar que la evidencia de la evaluación es suficiente y apropiada para apoyar los hallazgos y conclusiones de la evaluación.
+j) Utilizar documentos de trabajo para registrar las actividades de evaluación; documentar los hallazgos de la evaluación y preparar el informe de evaluación apropiado.
+k) Garantizar que se mantenga la confidencialidad y seguridad de la información, los datos, los documentos y los registros.
+l) Suministrar a PROCOMER toda la información y documentación relevante que se solicite en forma oportuna y en relación con las evaluaciones realizadas, así como cualquier dato relevante sobre el esquema de evaluación implementado, incluyendo las actividades y labores realizadas por el personal designado por el organismo certificador.
+m) Cualquier otro exigido por la normativa vigente.
+Así reformado por la Junta Directiva de PROCOMER en la sesión 368-2019 del 25 de noviembre del 2019.

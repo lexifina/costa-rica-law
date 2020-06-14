@@ -1,3 +1,5 @@
-Artículo 44.- Plazo de vigencia de la certificación de los evaluadores
-La certificación otorgada a los evaluadores tendrá una vigencia de tres años, la cual podrá ser renovada por un período igual, previo al vencimiento de su vigencia y cumplimiento de los requisitos definidos por organismo certificador.
-Así reformado por la Junta Directiva de PROCOMER en la sesión 330-2015 del 30 de noviembre del 2015.
+CAPÍTULO XI
+Disposiciones finales[7]
+Artículo 44.- Del registro de las licencias
+La Dirección de Marca País llevará un control sistematizado del registro de las licencias otorgadas, indicando el plazo, su objeto y demás información que PROCOMER considere conveniente. Asimismo, PROCOMER publicará, a través de su página web, la base de datos de licenciatarios indicando sus datos básicos de contacto.
+Así reformado por la Junta Directiva de PROCOMER en la sesión 368-2019 del 25 de noviembre del 2019.

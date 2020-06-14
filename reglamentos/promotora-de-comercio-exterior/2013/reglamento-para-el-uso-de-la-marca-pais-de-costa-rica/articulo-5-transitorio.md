@@ -1,3 +1,3 @@
-TRANSITORIO V
+TRANSITORIO V:
 Las personas que actualmente poseen una certificación vigente como evaluadores de Marca País, deberán cumplir con la totalidad de los requisitos establecidos en este Reglamento, así como con los lineamientos detallados en el Procedimiento del Sistema de Gestión de Calidad de PROCOMER, que la Administración emitirá con el objetivo de normalizar las condiciones que deben cumplir las personas interesadas en certificarse, en el momento que les corresponda realizar la renovación correspondiente.
 Así agregado el transitorio V por la Junta Directiva de PROCOMER en la sesión 335-2016 del 22 de agosto del 2016
