@@ -1,0 +1,1 @@
+Artículo 10. En aquellos casos en que una dependencia traslade a otra la administración de una contratación, todos los trámites relativos a la gestión de la contratación deberán ser gestionados y aprobados por la dependencia que asume su administración o el superior jerárquico de éste, según corresponda de acuerdo con los topes y normativa establecida.

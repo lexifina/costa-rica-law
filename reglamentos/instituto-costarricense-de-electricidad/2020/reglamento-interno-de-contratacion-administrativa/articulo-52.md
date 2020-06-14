@@ -1,0 +1,9 @@
+TÍTULO III Ejecución contractual
+CAPÍTULO I Prórrogas, suspensión, modificaciones contractuales, mejoras y actualizaciones
+SECCIÓN I Prórroga en el plazo de ejecución y prórrogas contractuales
+Artículo 52. La prórroga en el plazo de ejecución contractual o al plazo de entrega, deberá ser aprobada o rechazada por el mismo órgano que adjudicó. En aquellas licitaciones o contrataciones directas especiales adjudicadas por la Junta de Adquisiciones ICE/Corporativa, se faculta al Gerente
+respectivo.
+El contratista planteará la solicitud a través del Sistema SICOP para aquellos casos de contrataciones que se tramiten en dicho sistema. En los casos en que se tramiten en físico planteará la solicitud ante la Dirección Proveeduría Institucional, en ambos casos conforme se establece en el artículo 176 del Reglamento al Título II de la Ley 8660, el AC en coordinación con el CCA la valorarán y deberá presentar su recomendación al órgano competente. Una vez autorizada o rechazada la prórroga por el órgano competente será notificada por el CCA. En los casos en los que el trámite se realice a través de la plataforma de compras del ICE, la notificación se hará a través del sistema. En todos los casos la documentación deberá estar incorporada en el expediente administrativo correspondiente.
+Aquellas prórrogas que por su competencia deban ser aprobadas por las Gerencias respectivas, deberán contar con dictamen legal.
+Cuando un contratista solicite una prórroga producto de una mejora o actualización tecnológica, deberá cumplirse con lo que establece el artículo 175 del Reglamento al Título II de la Ley 8660. En ese sentido, el administrador del contrato deberá emitir criterio y trasladarlo al órgano competente que aprobará la mejora, no siendo necesario contar con criterio legal.
+En el caso de los contratos de entrega según demanda, aplicará lo dispuesto en el artículo 37 inciso h.2) para efectos de prórroga al plazo de entrega.

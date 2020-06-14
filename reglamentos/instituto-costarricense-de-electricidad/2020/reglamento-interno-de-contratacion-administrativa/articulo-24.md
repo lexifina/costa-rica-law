@@ -1,0 +1,1 @@
+Artículo 24. Salvo cuando la exclusión se fundamente en las causas señaladas en los incisos a) y b), del artículo anterior, se deberá dar audiencia al proveedor a fin de que ejercite el debido proceso y el derecho de defensa. En el caso de proveedores extranjeros se les notificará en la dirección señalada por el mismo, para efectos de recibir notificaciones.

@@ -1,0 +1,2 @@
+Artículo 29. La decisión administrativa que da inicio al procedimiento de contratación será emitida mediante la formalización del Programa de Adquisiciones, según se indica en los artículos 12 y subsiguientes de este reglamento. La acreditación de esta circunstancia ante la Dirección Proveeduría Institucional, será canalizada e integrada por el CCA, quien velará porque se cumplan todos los requisitos establecidos en los artículos 14 y siguientes del Reglamento al Título II de la Ley
+8660.

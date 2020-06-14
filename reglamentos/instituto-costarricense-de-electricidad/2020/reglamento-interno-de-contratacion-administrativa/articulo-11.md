@@ -1,0 +1,2 @@
+SECCIÓN VII Director de Proyecto
+Artículo 11. Funcionarios nombrados por la Administración Superior, Auditoría Interna, jefaturas de División, Negocio o Unidad. Tendrán como función principal coordinar de la mejor forma con los grupos de trabajo e instancias involucradas, todas las actividades necesarias para llevar a buen término un proyecto hasta la etapa de cierre de la fase de inversión, según se dispone en el modelo para la Administración Proyectos Integral (API).

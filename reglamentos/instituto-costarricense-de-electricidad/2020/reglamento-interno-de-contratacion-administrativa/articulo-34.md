@@ -1,0 +1,1 @@
+Artículo 34. En el caso de las licitaciones abreviadas, el plazo para presentar ofertas no podrá ser inferior a cinco ni mayor a veinte días hábiles, con una prórroga por un tanto igual al previsto inicialmente, según lo dispuesto en el Reglamento a la Ley 8660.
