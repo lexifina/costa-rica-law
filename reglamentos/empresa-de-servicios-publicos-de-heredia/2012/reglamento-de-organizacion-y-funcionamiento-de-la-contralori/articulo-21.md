@@ -1,1 +1,0 @@
-ARTÍCULO 21: Potestades de la Contraloría Interna. El Contralor Interno y el personal de la Unidad, para el desempeño de sus competencias, tendrán las potestades que se establecen en el artículo 33 de la Ley General de Control Interno.

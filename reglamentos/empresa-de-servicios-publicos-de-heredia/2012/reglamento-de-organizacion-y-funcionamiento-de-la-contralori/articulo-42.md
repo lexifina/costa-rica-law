@@ -1,3 +1,0 @@
-SECCIÓN QUINTA
-De la comunicación de resultados
-ARTÍCULO 42: Informes de auditoría en materia de control interno. La Contraloría Interna comunicará los resultados de sus auditorías, mediante informes escritos, los cuales incluirán las recomendaciones que sirven de base a la Administración en la toma de acciones para mejorar los procesos, para lo cual se debe dirigir el informe al funcionario con competencia y autoridad para ordenar la implementación de las recomendaciones. De previo al informe final que necesariamente debe producirse por cada auditoría, se podrán emitir informes parciales, a criterio del Contralor valorando aspectos de oportunidad.

@@ -1,1 +1,0 @@
-ARTÍCULO 40: Relaciones de Hechos. El informe de auditoría que verse sobre relaciones de hechos, solo tratará asuntos de los que puedan derivarse posibles responsabilidades administrativas y civiles, ha de contener los elementos necesarios para identificar los presuntos responsables de los hechos irregulares que se les atribuyen.

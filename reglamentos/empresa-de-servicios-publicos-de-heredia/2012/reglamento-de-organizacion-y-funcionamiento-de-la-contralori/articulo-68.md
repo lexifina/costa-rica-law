@@ -1,3 +1,0 @@
-ARTÍCULO 68: Vigencia. Este Reglamento rige a partir de su publicación en el Diario Oficial La Gaceta.
-1 COMUNIQUESE A LA CONTRALORIA GENERAL DE LA REPUBLICA POR PARTE DE LA CONTROLARORA INTERNA
-2 ACUERDO FIRME

@@ -1,1 +1,0 @@
-ARTÍCULO 33: Programa de Trabajo. Los funcionarios de la Contraloría Interna deben preparar programas de trabajo de acuerdo con lo establecido en las Normas para el Ejercicio de la Auditoría Interna en el Sector Público y el Manual de Normas Generales de Auditoría para el Sector Público así como del Manual de Procedimientos de la Contraloría Interna de la ESPH.

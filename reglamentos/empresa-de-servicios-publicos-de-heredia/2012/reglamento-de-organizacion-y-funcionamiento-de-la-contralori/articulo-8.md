@@ -1,3 +1,0 @@
-SECCIÓN TERCERA
-Ubicación y estructura organizativa
-ARTÍCULO 8: Ubicación en la estructura orgánica: En la Empresa existirá un sólo órgano de Contraloría Interna, único con respecto a su actividad de auditoría interna, con dependencia orgánica de la Empresa de Servicios Públicos de Heredia, su ubicación orgánica dentro de la estructura institucional corresponde a la de un órgano asesor de muy alto nivel y dependerá directamente de la Junta Directiva. La Contraloría Interna se constituye en el segundo componente orgánico del sistema de control interno, cumpliendo así la ESPH con el artículo 20 de la Ley General de Control Interno.

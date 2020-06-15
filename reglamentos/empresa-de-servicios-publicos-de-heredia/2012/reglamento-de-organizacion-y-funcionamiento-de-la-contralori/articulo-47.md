@@ -1,1 +1,0 @@
-ARTÍCULO 47: Solicitud de la Asamblea Legislativa. La Asamblea Legislativa de conformidad con el inciso h) artículo 32 de la Ley General de Control Interno, podrá solicitar información a la Contraloría Interna, salvo si se trata de denuncias trasladadas al Ministerio Público, para lo cual se considerará el artículo 295 del Código Procesal Penal.
