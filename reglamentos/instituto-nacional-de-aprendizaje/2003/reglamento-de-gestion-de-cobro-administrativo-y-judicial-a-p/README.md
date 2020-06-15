@@ -15,3 +15,4 @@ Reglamento de Gestión de Cobro Administrativo y Judicial a Patronos Morosos del
 | --- | --- | --- |
 | 1 | 2003-05-15 | la propia norma |
 | 2 | 2012-01-30 | Reglamento 4515 (2012-01-30) |
+| 3 | 2020-06-15 | Reglamento 22 (2020-06-15) |
