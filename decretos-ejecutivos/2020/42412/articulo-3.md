@@ -1,0 +1,5 @@
+Artículo 3°—Acerca de las funciones de la Comisión de Alto Nivel. Las funciones de esta comisión serán:
+• Promover e implementar las acciones de la Pictti y su Plan de Acción en el ámbito de su competencia, las cuales deberán estar alineadas con los instrumentos nacionales e internacionales, relacionados con el desarrollo de la ciencia, la tecnología, la innovación y las telecomunicaciones, y otras dirigidas al desarrollo social y económico que estén vigentes y sean vinculantes con la Pictti; así como, aquellos instrumentos que se desprendan de los compromisos asumidos por el Estado costarricense para la toma de decisiones.
+• Tomar decisiones con respecto a los compromisos que asumirán las instituciones y las alianzas estratégicas con organizaciones que representa para la ejecución de la Política y el Plan de acción, considerando las competencias, los recursos y los instrumentos de conducción estratégica a nivel institucional y sectorial.
+• Designar los miembros que integran la Comisión Técnica Interinstitucional.
+• Emitir criterios sobre los asuntos de su competencia que les sean consultados por la Comisión Técnica Interinstitucional.

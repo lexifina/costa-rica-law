@@ -1,0 +1,1 @@
+Artículo 5°—A la Comisión se le aplicará lo establecido en el Título Segundo, Capítulo III de la Ley General de la Administración Pública y la jurisprudencia administrativa emitida por la Procuraduría General de la República, referente a los órganos colegiados.

@@ -1,0 +1,1 @@
+Artículo 4 °—Acerca del apoyo técnico para la Comisión de Alto Nivel. La Comisión de Alto Nivel contará con la colaboración técnica de la Comisión Técnica Interinstitucional, para facilitar la ejecución de la política y su plan de acción, de acuerdo con los compromisos asumidos por cada institución.
