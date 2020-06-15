@@ -1,3 +1,0 @@
-Artículo 30.—Declaración en firme de los resultados. La Dirección Institucional de Contralorías de Servicios de Salud(*) o instancia que, en su defecto, sea delegada por la Junta Directiva realizará un consolidado de los resultados finales de la totalidad de las elecciones y las nóminas para llenar los puestos vacantes, con el fin de ratificar en los puestos a las personas electas, aspecto que deberá informarse a la Junta Directiva de la Institución. Este acto le dará declaratoria firme a los resultados de las elecciones.
-(*) (Así modificada su denominación en sesión N° 8886 del 2 de febrero de 2017. Anteriormente se indicaba: “Asesoría y Gestión Legal, Desconcentración y Juntas de Salud”.)
-(Así reformado en sesión N° 8381 del 17 de setiembre de 2009)

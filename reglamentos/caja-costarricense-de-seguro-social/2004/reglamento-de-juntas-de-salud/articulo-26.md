@@ -1,2 +1,0 @@
-Artículo 26.—Escrutinio de resultados. Las elecciones serán cerradas por el Comité Electoral, de acuerdo con los horarios establecidos, no pudiéndose emitir más votos después de su cierre y procediendo a contarlos, sean éstos en blanco, nulos o válidos. Luego del escrutinio y verificados los resultados, los anotarán en el acta de cierre de la elección respectiva. Serán electos los que obtengan la mayoría de votos válidos, en orden de mayor a menor según la cantidad de votos obtenidos y puestos vacantes.
-(Así reformado en sesión N° 8381 del 17 de setiembre de 2009)
