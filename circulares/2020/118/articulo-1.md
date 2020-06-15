@@ -1,4 +1,5 @@
 CIRCULAR N° 118-2020
+(Nota de Sinalevi: Mediante sesión N° 33-2020 del 15 de junio de 2020, publicada en el Boletín Judicial N° 120 del 24 de junio del 2020 mediante circular N° 122-2020 se prorrogan los efectos de la presente circular a partir del día 16 de junio de 2020 y hasta el día 15 de julio de 2020. Los efectos del presente acuerdo se encuentran condicionados al mantenimiento del estado de emergencia dispuesto por el Decreto Ejecutivo N° 42227-MS emitido el día 16 de marzo de 2020 y a lo establecido por los lineamientos del Ministerio de Salud aplicables al Poder Judicial, durante el término de su vigencia.)
 ASUNTO: Acuerdo de Corte Plena. Sesión N° 32-2020 del 8 de junio de 2020, en atención a la declaratoria de emergencia nacional, debido a la situación de emergencia sanitaria provocada por la enfermedad COVID-19.
 A LOS DESPACHOS JUDICIALES DEL PAÍS, ABOGADOS,
 ABOGADAS Y PÚBLICO EN GENERAL

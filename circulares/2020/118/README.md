@@ -13,3 +13,4 @@ Acuerdo de Corte Plena sesión N° 32-2020 del 8 de junio de 2020, en atención 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-06-08 | la propia norma |
+| 2 | 2020-06-15 | Circular 122 (2020-06-15) |
