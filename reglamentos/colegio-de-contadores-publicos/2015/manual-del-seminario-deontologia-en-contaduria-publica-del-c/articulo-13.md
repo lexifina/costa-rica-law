@@ -1,3 +1,0 @@
-CAPÍTULO V
-Del Tribunal Examinador
-Artículo 13.—Integración: El Tribunal Examinador estará integrado por 7 personas elegidas por la Junta Directiva del Colegio de Contadores Públicos de Costa Rica, de la siguiente manera: 5 miembros propietarios de los cuales 3 deberán ser miembros de Junta Directiva y los otros 2 Contadores Públicos Autorizados, y otros 2 miembros suplentes igualmente Contadores Públicos Autorizados. Los que no forman parte de la Junta Directiva deberán contar como mínimo con diez años de incorporados al Colegio de Contadores Públicos de Costa Rica y ejercer la profesión. El trabajo realizado por este tribunal será ad honorem.

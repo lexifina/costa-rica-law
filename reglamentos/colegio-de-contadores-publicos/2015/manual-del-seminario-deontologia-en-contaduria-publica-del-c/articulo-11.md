@@ -1,1 +1,0 @@
-Artículo 11.—Principios a observarse en la prueba: La prueba de aprovechamiento del seminario deberá aplicarse cumpliendo los principios pedagógicos y andrológicos de validez, confiabilidad, equilibrio, transparencia y buena fe.
