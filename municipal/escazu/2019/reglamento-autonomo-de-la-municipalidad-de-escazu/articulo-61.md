@@ -1,1 +1,1 @@
-Artículo 61: La persona trabajadora no será obligada a operar o viajar en vehículos de la Municipalidad o facilitados a la institución, que tengan desperfectos que pongan en peligro la vida de estas o de terceros, igual facultad les asiste cuando los vehículos no cuenten con los seguros obligatorios al día.
+Artículo 61.-(Derogado en sesión N° 007 del 15 de junio del 2020)

@@ -1,1 +1,1 @@
-Artículo 75: La persona funcionaria que denuncie hostigamiento sexual falso podrá incurrir, cuando así se tipifique, en cualquiera de las conductas propias de la difamación, la injuria o la calumnia, de acuerdo con las disposiciones correspondientes del Código Penal, sin perjuicio de que a criterio de la Administración se le pueda abrir un procedimiento administrativo sancionatorio.
+Artículo 75.- (Derogado en sesión N° 007 del 15 de junio del 2020)

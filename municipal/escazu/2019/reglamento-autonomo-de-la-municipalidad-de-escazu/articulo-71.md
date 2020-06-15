@@ -1,1 +1,1 @@
-Artículo 71: Quien ostente el puesto de alcalde podrá reubicar de forma temporal a la persona presuntamente ofendida, mientras dure el procedimiento.
+Artículo 71: (Derogado en sesión N° 007 del 15 de junio del 2020)

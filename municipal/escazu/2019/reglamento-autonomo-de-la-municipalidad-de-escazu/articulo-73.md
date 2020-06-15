@@ -1,1 +1,1 @@
-Artículo 73: Toda infidencia de una persona que conforme la Comisión Instructora o de cualquier otra persona vinculado-directa o indirectamente con el procedimiento, se considerará falta grave de acuerdo con las disposiciones de este reglamento.
+Artículo 73: (Derogado en sesión N° 007 del 15 de junio del 2020)

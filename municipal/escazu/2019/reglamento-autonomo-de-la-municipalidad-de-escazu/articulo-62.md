@@ -1,1 +1,1 @@
-Artículo 62: Ninguna persona trabajadora municipal podrá ser obligada a conducir vehículos municipales si no ostenta el nombramiento de chofer, salvo que por las funciones que desempeñe en la Municipalidad deba realizarlo. La responsabilidad, ya sea en materia civil o penal, en caso de accidentes que sucedan por incumplimiento de este artículo, será exclusivamente de la municipalidad y libera al funcionario de ella.
+Artículo 62: (Derogado en sesión N° 007 del 15 de junio del 2020)

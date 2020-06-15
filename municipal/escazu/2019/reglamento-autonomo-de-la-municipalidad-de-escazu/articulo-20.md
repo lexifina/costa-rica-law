@@ -19,3 +19,5 @@ Artículo 20: Además de lo contemplado en el capítulo anterior y en el present
 15- Cumplir con sus funciones sin sujeción a los límites de la jornada establecida por este Reglamento, cuando fuere necesario, sin que ello generare remuneración, siempre respetando lo establecido en dicha materia por el Código de Trabajo y cumplimiento de metas institucionales.
 16- Informar a quien ocupe el puesto de la Alcaldía, en el plazo improrrogable de 20 días naturales, contados a partir del día que tuvo conocimiento, las faltas graves en que incurran los servidores a su cargo.
 17- Cumplir con todas las demás obligaciones propias de su cargo.
+18. Imponer las sanciones verbales y escritas dispuestas en el artículo 110 de este reglamento, en concordancia con lo dispuesto en el artículo 158 del Código Municipal.
+(Así adicionado el inciso anterior mediante sesión N° 007 del 15 de junio del 2020)
