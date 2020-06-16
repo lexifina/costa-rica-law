@@ -1,0 +1,1 @@
+Artículo 3º—Como parte de la declaratoria de interés público y nacional contenida en el presente Decreto Ejecutivo, el Ministerio de Relaciones Exteriores y Culto, a través de sus funcionarios competentes en el exterior, colaboraran con la divulgación de la estrategia establecida en el artículo 2° de este Decreto Ejecutivo.

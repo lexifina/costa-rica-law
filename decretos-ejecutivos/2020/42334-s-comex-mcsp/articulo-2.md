@@ -1,0 +1,1 @@
+Artículo 2º—Los Ministerios de Salud, Comercio Exterior y coordinación con el Sector Privado, a través de sus respectivas personas jerarcas, deberán elaborar una estrategia conjunta para fomentar la atracción y ampliación de inversiones en el campo de las ciencias de la salud y el bienestar.
