@@ -1,0 +1,1 @@
+Artículo 37°-Periodicidad, Coordinación, Herramientas, Metodología y Resultados. La periodicidad, coordinación, herramientas, metodología y resultados, así como otros aspectos relacionados se regirán según el Marco Orientador del SEVRI de la Municipalidad de San Mateo, debidamente aprobado por el Concejo Municipal..

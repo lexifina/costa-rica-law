@@ -1,0 +1,1 @@
+Artículo 29° -Periodicidad de la Capacitación. El proceso de capacitación deberá ser constante, y con un ciclo programado al menos una vez al año para todos los niveles de la institución, preferiblemente antes de iniciar las actividades de Autoevaluación, SEVRI y Vinculación con Planificación. Las capacitaciones deberán ajustarse al nivel de madurez institucional.

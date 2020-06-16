@@ -1,0 +1,1 @@
+Artículo 32° -Periodicidad de la Autoevaluación. Según lo dispuesto en el artículo 17 inciso c) de la Ley General de Control Interno; la administración debe realizar obligatoriamente autoevaluación, por lo menos una vez al año.

@@ -1,0 +1,1 @@
+Artículo 35°-Resultados de la Autoevaluación. Cada titular subordinado es el responsable de los resultados obtenidos en la Autoevaluación. Dichos resultados deberán enviarse a la Comisión de Control Interno por la vía, formato y fecha establecidos por la misma Comisión.

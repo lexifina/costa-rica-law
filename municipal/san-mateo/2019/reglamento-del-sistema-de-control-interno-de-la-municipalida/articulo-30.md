@@ -1,0 +1,1 @@
+Artículo 30°-Coordinación de la Capacitación. Las capacitaciones deberán ser coordinadas por la Comisión de Control Interno. Además la Comisión de Control Interno debe decidir los temas que se impartirán en la capacitación y avalar la metodología a utilizar.

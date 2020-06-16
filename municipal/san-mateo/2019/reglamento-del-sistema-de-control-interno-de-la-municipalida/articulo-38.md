@@ -1,0 +1,2 @@
+Artículo 38° -Objetivo del Seguimiento. Diseñar, adoptar, evaluar y perfeccionar, actividades permanentes y periódicas para valorar la calidad del funcionamiento de los mecanismos que conforman el proceso de Control Interno en la Municipalidad de San Mateo a lo largo del tiempo, así como para asegurar que las acciones de mejora se atiendan de manera efectiva y con prontitud.
+(Corregido mediante Fe de Erratas y publicada en La Gaceta N° 152 del 25 de junio del 2020, página N° 3)

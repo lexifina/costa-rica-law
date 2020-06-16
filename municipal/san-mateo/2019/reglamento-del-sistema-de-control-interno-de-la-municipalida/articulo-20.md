@@ -1,0 +1,1 @@
+Artículo 20° -Participación de los y las funcionarias especializadas en Control Interno en la Comisión de Control Interno. De acuerdo con el conocimiento técnico sobre Control Interno que estas personas adquieran podrán constituirse en asesores o asesoras sobre el tema de control interno y valoración del riesgo institucional para la Comisión.

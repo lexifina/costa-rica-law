@@ -1,0 +1,5 @@
+Artículo 14°-Conformación de los niveles funcionales.
+· Nivel Político: Está conformado por el Concejo Municipal en sus funciones de fiscalización y gobierno (según el Código Municipal); y por Alcaldía Municipal en sus funciones de administrador general y jefe administrativo (según el Código Municipal).
+· Dirección y coordinación institucional de las acciones relacionadas con el SCI: Comisión de Control Interno (CCI).
+· Supervisión y fiscalización de las actividades realizadas para el fortalecimiento del SCI: Concejo Municipal, Alcaldía, Comisión de Control Interno, Auditoría Interna, y Coordinadores (as) de Unidades y en su totalidad los funcionarios y funcionarias municipales. Cada persona en el rol y función que le atribuye la normativa vigente como parte de la fiscalización y supervisión.
+· Gestión de acciones para el fortalecimiento del SCI: Concejo Municipal, Alcaldía, Comisión de Control Interno y Coordinadores (as) de Unidades, la Unidad de Control Interno (UCI) y la totalidad de los funcionarios y funcionarias municipales.

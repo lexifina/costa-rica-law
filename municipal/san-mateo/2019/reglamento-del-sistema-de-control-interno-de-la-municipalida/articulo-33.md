@@ -1,0 +1,1 @@
+Artículo 33°-Coordinación de la Autoevaluación. La Comisión de Control Interno será la encargada de dar a conocer el período en que cada titular subordinado deberá de aplicar la autoevaluación de su área. Así como hasta que fecha se recibirán los resultados de la misma.

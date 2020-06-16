@@ -1,0 +1,1 @@
+Artículo 18° -Función. Se constituye la Comisión de Control Interno, como ente asesor del Jefe Administrativo (Alcaldía), con el propósito de que coordine a nivel institucional todas las acciones dirigidas al fortalecimiento y mejoramiento del Sistema de Control Interno Interinstitucional.

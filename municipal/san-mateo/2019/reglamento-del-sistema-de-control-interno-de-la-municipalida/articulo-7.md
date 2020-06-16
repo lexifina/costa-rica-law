@@ -1,0 +1,1 @@
+Artículo 7° -Respeto al honor. Todas las personas deberán respetar, en todo momento y en cualquier circunstancia, el buen nombre, la dignidad y la honra de la Institución, de los miembros del Gobierno Local Municipal y de su administración; deberán abstenerse de expresiones injuriosas, calumnias, difamación o juicios de valor, que puedan ir en mengua de la reputación y prestigio.

@@ -1,0 +1,1 @@
+Artículo 5° -Mecanismos que conforman el proceso de Control Interno. Para el adecuado establecimiento, funcionamiento y seguimiento del Proceso de Control Interno, se contemplarán las siguientes actividades: capacitación, Autoevaluación de Control Interno, SEVRI, Vinculación de Control Interno con la Planificación y el Seguimiento.

@@ -1,0 +1,1 @@
+Artículo 9°-Desempeño de funciones. Se deben desempeñar sus funciones con prudencia, integridad, honestidad, decencia, seriedad, moralidad, ecuanimidad y rectitud. Debe repudiar, combatir y denunciar toda forma de corrupción y de tráfico de influencias.
