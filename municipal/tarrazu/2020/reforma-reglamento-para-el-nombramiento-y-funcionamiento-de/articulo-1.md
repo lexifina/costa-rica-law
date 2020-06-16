@@ -1,0 +1,4 @@
+MUNICIPALIDAD DE TARRAZÚ
+CONCEJO MUNICIPAL
+El Concejo Municipal de Tarrazú, toma el acuerdo N° 4, en la sesión ordinaria N° 200-2020, celebrada el 26 de marzo del 2020: donde se acuerda modificar el artículo 5, del Reglamento de Concejos de Distrito del cantón de Tarrazú para que se lea de la siguiente manera:
+“Los Concejos de Distrito en cumplimiento de lo ordenado en el artículo 103 del Código Municipal, en la primera semana del mes de julio de cada año, presentarán a la Alcaldía sus proyectos, de acuerdo al Plan Operativo Anual, Plan Quinquenal de Gestión Vial y Programa de Gobierno del Alcalde, prioridades y requerimientos de financiamiento. Con arreglo a los dispuesto en el artículo 4, pero iniciarán el proceso de consulta participativa y formulación de sus propuestas en los meses de noviembre y diciembre del año anterior al de la formulación del proyecto de presupuesto.”
