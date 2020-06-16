@@ -1,0 +1,2 @@
+Artículo 23.—Incumplimiento de este reglamento. El trabajador que incumpla la atención a lo articulado en el presente reglamento se someterá a lo establecido en los procesos disciplinarios vigentes en el Reglamento para la aplicación del procedimiento disciplinario de la CNFL.
+Aprobado por: Consejo de Administración. Capítulo III, artículo 50 del acta de la Sesión Ordinaria Nº 2501, celebrada el miércoles 15 de abril de 2020.

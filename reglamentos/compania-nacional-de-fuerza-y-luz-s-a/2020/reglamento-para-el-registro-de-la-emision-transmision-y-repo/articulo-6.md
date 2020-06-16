@@ -1,0 +1,1 @@
+Artículo 6º—Falta de requisitos: No será recibida en el Área Administración Financiera ninguna solicitud que no venga acompañada de todos los requisitos solicitados para cada supuesto, mismos que se detallan en el Capítulo III de este reglamento.

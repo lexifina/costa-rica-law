@@ -1,0 +1,1 @@
+Artículo 3º—Género. Para efectos de este reglamento, cuando se hace alusión a “trabajador”, entiéndase que se refiere a trabajador y trabajadora. Lo mismo ocurre cuando se mencionan otros conceptos similares, garantizándose con ello que se respeten los principios de igualdad y equidad de género que la CNFL respeta e implementa en toda su actividad.

@@ -1,0 +1,1 @@
+Artículo 8º—Entrega de títulos. El trabajador del Área Administración Financiera debe dejar constancia de toda entrega de certificados de acciones a los accionistas y estos registros se conservarán en el Área Administración Financiera, en custodia.

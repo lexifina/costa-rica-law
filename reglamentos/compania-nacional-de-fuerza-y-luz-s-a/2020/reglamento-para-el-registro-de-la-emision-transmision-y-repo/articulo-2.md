@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de aplicación. Aplica a los accionistas, así como a los trabajadores del Área Administración Financiera, las jefaturas del Área Administración Financiera, la Unidad Administración Financiera y Contable, la Dirección Administración y Finanzas, Asesoría Jurídica Empresarial, así como a la Gerencia General y al Consejo de Administración.
