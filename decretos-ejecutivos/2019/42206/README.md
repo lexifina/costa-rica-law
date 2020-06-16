@@ -14,3 +14,4 @@ Reglamento a la ley de la Red Nacional de Cuido y Desarrollo Infantil
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-04-02 | la propia norma |
+| 2 | 2020-06-16 | Decreto Ejecutivo 42546 (2020-06-16) |

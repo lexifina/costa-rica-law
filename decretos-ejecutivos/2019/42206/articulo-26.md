@@ -1,5 +1,5 @@
-CAPÍTULO IV
-GESTIÓN PRESUPUESTARIA
-Artículo 26. Responsabilidades de la Secretaría Técnica en gestión presupuestaria. Le compete a la Secretaría Técnica, en materia presupuestaria:
-a) Analizar y recomendar la asignación de los recursos que se destinen del FODESAF a las municipalidades para la construcción y puesta en operación de los centros de atención infantil. Lo anterior mediante criterio fundamentado.
-b) Establecer entre las unidades ejecutoras de la REDCUDI un proceso de coordinación y articulación, para determinar la prioridad de necesidades de la población, la oferta de servicios, la disponibilidad de fondos y la rendición de cuentas correspondiente. Para ello se contará con un acuerdo debidamente fundamentado y consensuado entre las partes.
+CAPÍTULO III
+DE LAS AL TER NATIVAS DE LA RED NACIONAL DE CUIDO Y DESARROLLO
+INFANTIL
+Artículo 26. Enfoques y principios de la REDCUDI. Las Alternativas de Cuidado y Atención Integral que formen parte de la REDCUDI, deberán asumir la visión, los enfoques y los principios que la rigen, de acuerdo con lo que establezca el Marco Conceptual, Operativo y Organizacional de la REDCUDI. La Secretaría Técnica se encargará de divulgarlos entre las Alternativas.
+(Así modificada su numeración por el artículo 1° del decreto ejecutivo N° 42546 del 16 de junio del 2020, que lo traspaso del antiguo artículo 21 al 26)
