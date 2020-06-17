@@ -1,0 +1,1 @@
+Artículo 9º—Venta de reserva urbanizable: Se define como reserva urbanizable, aquella área resultado del fraccionamiento de un inmueble (terreno), cuyo potencial permite el desarrollo habitacional y la infraestructura conexa y no se le aplicarán restricciones al dominio.

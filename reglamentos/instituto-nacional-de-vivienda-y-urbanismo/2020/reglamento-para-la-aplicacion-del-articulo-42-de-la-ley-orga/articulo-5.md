@@ -1,0 +1,1 @@
+Artículo 5º—Venta Fondo de Patio: Se define lote de fondo de patio, como aquel terreno en reserva urbanizable o no urbanizable, que limita en lindero posterior y/o aledaño a un lote residencial o comercial, por su naturaleza no se le aplicaran restricciones al dominio.

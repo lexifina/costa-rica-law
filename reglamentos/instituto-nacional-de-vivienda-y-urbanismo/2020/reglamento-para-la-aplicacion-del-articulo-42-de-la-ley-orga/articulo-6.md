@@ -1,0 +1,1 @@
+Artículo 6º—Venta de Vivienda recuperada: Se define como vivienda recuperada, aquella que ha ingresado al patrimonio de la Institución mediante procesos judiciales y administrativos, para el cual se aplicará restricciones al dominio por un mes.

@@ -1,0 +1,3 @@
+Artículo 7º—Venta Lote mediante la Titulación: Se refiere al lote que se traspasa a un tercero en cumplimiento de los lineamientos, para la titulación de inmuebles, aprobados por la Junta Directiva del Instituto; la imposición de la restricción al dominio, se definirá según el mecanismo de pago, se detalla en los siguientes puntos:
+I. Titulación en venta con pago de contado o financiamiento, plazo restricción al dominio un mes.
+II. Titulación en venta mediante mecanismo de subsidio, plazo restricción al dominio, según se defina en el programa, ley, decreto o destino definido de la entidad que aporta los recursos para el otorgamiento del subsidio, de no indicarse se aplica una restricción al dominio de 10 años.

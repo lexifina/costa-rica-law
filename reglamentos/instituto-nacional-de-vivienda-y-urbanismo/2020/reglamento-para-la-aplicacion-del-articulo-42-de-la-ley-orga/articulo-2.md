@@ -1,0 +1,2 @@
+Artículo 2º—El presente reglamento, se aplicará para la venta de inmuebles que han ingresado al patrimonio de la Institución mediante procesos judiciales y administrativos, correspondientes a venta de lote residencial, venta lote comercial, venta de fondo de patio, venta de reserva urbanizable y venta de reserva no urbanizable, venta de inmuebles adjudicados, a procesos de titulación por venta
+o decreto.
