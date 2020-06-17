@@ -19,9 +19,8 @@ Por tanto,
 EL MINISTRO DE SALUD
 RESUELVE
 PRIMERO. Las presentes medidas sanitarias se emiten con el objetivo de prevenir y mitigar el riesgo o daño a la salud pública y atender el estado de emergencia nacional dado mediante el Decreto Ejecutivo No. 42227-MP-S del 16 de marzo de 2020 y en procura del bienestar de todas las personas que radiquen en el territorio costarricense de manera habitual ante los efectos del COVID-19.
-SEGUNDO: Se resuelve ordenar el cierre temporal de todos los establecimientos con permiso sanitario de funcionamiento que brinden atención al público, los días lunes, martes, miércoles, jueves y viernes de las 17:00 horas a las 5:00 horas del día siguiente, en los distritos de Peñas Blancas (San Ramón), Cañas y Bebedero (Cañas), Las Juntas (Abangares), Los Chiles (Los Chiles), Fortuna (San Carlos), Paquera y los cantones de Pococí y Upala.
-Asimismo, se ordena el cierre temporal de dichos establecimientos los días sábados y domingos de manera total. Dichas restricciones se aplicarán a partir del 04 de junio de 2020 y hasta el 17 de junio de 2020.
-(Así reformada la disposición segunda anterior por resolución N° MS-DM-4663-2020 del 10 de junio del 2020)
+SEGUNDO: Se resuelve ordenar el cierre temporal de todos los establecimientos con permiso sanitario de funcionamiento que brinden atención al público, los días lunes, martes, miércoles, jueves y viernes de las 17:00 horas a las 5:00 horas del día siguiente, en los distritos de Peñas Blancas (San Ramón), Los Chiles (Los Chiles), Fortuna (San Carlos), Paquera (Puntarenas) y los cantones de Pococí y Upala. Asimismo, se ordena el cierre temporal de dichos establecimientos los días sábados y domingos de manera total. Dichas restricciones se aplicarán a partir del 04 de junio de 2020 y hasta el 24 de junio de 2020.
+(Así reformada la disposición segunda anterior por resolución N° MS-DM-4786-2020 del 17 de junio del 2020)
 Se exceptúan de la disposición del párrafo anterior:
 a) Los servicios a domicilio.
 b) Las instituciones que por la naturaleza de sus funciones deben permanecer abiertas como los servicios de migración, aduanas, fitosanitario del Estado, puestos fronterizos terrestres, marítimos y aéreos, entre otros.
@@ -51,4 +50,5 @@ TERCERO: Para calcular el aforo a un 50% de la capacidad máxima del establecimi
 CUARTO. Todos los establecimientos con permiso sanitario de funcionamiento deberán garantizar la aplicación estricta de los lineamientos del Ministerio de Salud para evitar la propagación del COVID-19.
 Aquellos establecimientos que deben permanecer cerrados de lunes a viernes desde las 17:00 horas y hasta las 5:00 horas del día siguiente, así como los sábados y domingos, necesariamente deben cumplir con el aforo al 50% de su capacidad máxima establecida en sus horarios habilitados.
 QUINTO. Se instruye a las autoridades de salud, tanto del Ministerio de Salud como de los Cuerpos Policiales del país cuya condición les ha sido delegada, para que giren Orden Sanitaria a aquellos establecimientos que incumplan con la presente disposición, ordenando la clausura inmediata de dichos establecimientos y la tramitación del cobro de las multas resultantes según corresponda.
-SEXTO. La presente resolución rige a partir del 04 de junio de 2020 y hasta el 17 de junio de 2020.
+SEXTO: La presente resolución rige a partir del 04 de junio de 2020 y hasta el 24 de junio de 2020.
+(Así reformada la disposición sexta anterior por resolución N° MS-DM-4786-2020 del 17 de junio del 2020)
