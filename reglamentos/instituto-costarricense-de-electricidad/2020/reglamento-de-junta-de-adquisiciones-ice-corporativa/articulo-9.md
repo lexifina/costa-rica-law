@@ -1,0 +1,2 @@
+Artículo 9º—En caso de ausencia o enfermedad del secretario(a) en las sesiones ordinarias o extraordinarias, será sustituido por el secretario(a) Adjunto(a), quien asumirá los deberes inherentes al cargo de secretario(a), por el tiempo de su ausencia.
+Corresponderá a la secretaría del Consejo Directivo del ICE, asumir todas las funciones y responsabilidades del secretario(a) de la junta. Tratándose de las compras corporativas se contará con el soporte logístico y administrativo del secretario(a) de la junta Directiva de las empresas ICE que corresponda.
