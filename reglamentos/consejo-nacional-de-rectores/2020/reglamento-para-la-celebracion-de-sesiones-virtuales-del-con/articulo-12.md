@@ -1,0 +1,1 @@
+Artículo 12.—Derogatoria. Este reglamento deroga el Reglamento para la celebración de sesiones virtuales del Consejo Nacional de Acreditación del SINAES, aprobado en sesión del 8 de octubre de 2009, acta Nº 585-2009.
