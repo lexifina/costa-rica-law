@@ -14,3 +14,4 @@ Procedimiento para la atención de solicitudes de exoneración del impuesto sobr
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-05-13 | la propia norma |
+| 2 | 2020-06-17 | Resolución 14 (2020-06-17) |
