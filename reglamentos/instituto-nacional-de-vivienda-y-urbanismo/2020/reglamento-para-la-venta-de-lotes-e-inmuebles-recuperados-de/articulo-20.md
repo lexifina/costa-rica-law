@@ -1,0 +1,1 @@
+Artículo 20.—El oferente deberá formalizar la operación con el Instituto, una vez que haya sido notificado de su escogencia. Se entiende por proceso de formalización el cumplimiento de las condiciones establecidas en el cartel.

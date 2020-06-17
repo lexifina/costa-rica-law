@@ -1,0 +1,2 @@
+Definiciones
+Artículo 2º—Se define como lote residencial el área, resultado del fraccionamiento de un inmueble viable para la construcción de una vivienda o más, de acuerdo con las normas establecidas al respecto en la Ley de Planificación Urbana, el Reglamento Nacional para Control de Fraccionamientos y Urbanizaciones, dentro de las zonas residenciales de los planes reguladores, uso de suelo municipal y, cualquier otra disposición urbanística.

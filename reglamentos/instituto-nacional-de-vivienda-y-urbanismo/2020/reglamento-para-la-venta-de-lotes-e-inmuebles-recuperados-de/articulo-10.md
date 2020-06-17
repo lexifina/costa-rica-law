@@ -1,0 +1,1 @@
+Artículo 10.—El INVU podrá vender inmuebles para el desarrollo urbanístico con financiamiento por medio de fideicomisos, fondos de inversión, préstamos soberanos u otros establecidos en la Ley 1788, mediante convenio, acuerdo u otro dentro del cuadro normativo vigente; el cual deberá ser aprobado por la Junta Directiva del Instituto.

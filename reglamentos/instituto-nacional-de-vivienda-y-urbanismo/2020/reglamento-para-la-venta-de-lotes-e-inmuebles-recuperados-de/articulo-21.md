@@ -1,0 +1,1 @@
+Artículo 21.—Los lotes cuyas ventas no se formalizaron una vez finalizado el proceso de venta, podrán ser nuevamente ofrecidos, previo acuerdo de la Junta Directiva y bajo las mismas condiciones de venta, siempre y cuando el avalúo se encuentre vigente.”

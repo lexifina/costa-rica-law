@@ -1,0 +1,1 @@
+Artículo 17.—Para proceder con la venta directa de inmuebles, la Unidad Fondo de Inversión de Bienes Inmuebles y el Departamento de Programas Habitacionales, someterá a través de la Gerencia General a la Junta Directiva la lista de bienes a vender y el precio base, y las condiciones de venta y adjudicación.

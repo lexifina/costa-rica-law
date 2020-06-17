@@ -1,0 +1,1 @@
+Artículo 19.—Una vez firme el proceso para la venta del o los inmuebles, la Unidad Fondo de Inversión de Bienes Inmuebles, conformará y custodiará un expediente administrativo debidamente foliado, para continuar con el proceso de formalización de la operación, proceso que debe llevarse en conjunto con el Área de Notariado Institucional.

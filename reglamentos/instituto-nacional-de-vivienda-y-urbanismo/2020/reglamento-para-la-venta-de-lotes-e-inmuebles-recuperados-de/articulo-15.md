@@ -1,0 +1,4 @@
+Venta fondos de patio en lindero
+posterior y/o colindante
+Artículo 15.—La venta de los fondos de patio en lindero posterior y/o aledaño o colindante de un lote residencial o comercial, se realizará únicamente mediante solicitud de los titulares de los predios colindantes que se beneficien con él y para reunión de fincas mediante escritura pública.
+Excepcionalmente en caso de no existir interés demostrado en la adquisición del fondo de patio por parte de alguno de los colindantes, en lindero posterior y/o aledaño a un lote residencial o comercial, se podrá vender a otro colindante inmediato interesado.

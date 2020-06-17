@@ -1,0 +1,1 @@
+Artículo 9º—Las viviendas adjudicadas mediante los procesos judiciales o administrativos que se vendan a terceros, se les impondrá las limitaciones establecidas en el artículo 42 de la Ley Orgánica del INVU y su reglamento.
