@@ -17,3 +17,4 @@ Reglamento a la Ley N° 8591 Reglamento para el Desarrollo, Promoción y Fomento
 | 2 | 2010-11-02 | Decreto Ejecutivo 36472 (2010-11-02) |
 | 3 | 2012-06-25 | Ley 9046 |
 | 4 | 2018-03-05 | Decreto Ejecutivo 41015 (2018-03-05) |
+| 5 | 2020-06-18 | Resolución 99 (2020-06-18) |
