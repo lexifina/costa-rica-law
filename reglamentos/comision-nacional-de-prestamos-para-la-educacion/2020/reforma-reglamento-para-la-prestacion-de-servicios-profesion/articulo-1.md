@@ -1,0 +1,7 @@
+COMISIÓN NACIONAL DE PRÉSTAMOS PARA LA EDUCACIÓN
+MODIFICACIÓN A REGLAMENTO INTERNO
+El Consejo Directivo de Conape reunido en sesión ordinaria 19-2020 del 18 de junio de 2020, acordó:
+A. Modifíquese el artículo 19 del Reglamento para la +prestación de servicios profesionales externos para la elaboración de avalúos a bienes inmuebles ofrecidos en garantía de los créditos otorgados por la Comisión Nacional de Préstamos para Educación, tal y como sigue:
+“Artículo 19.—Entrega y solicitud de nuevos avalúos. Concluido el informe de peritaje o avalúo según corresponda, el mismo deberá ser entregado en CONAPE, mediante los medios físicos o electrónicos establecidos como formales por CONAPE. Para las etapas de solicitud y ejecución del préstamo, se tendrá que la vigencia del avalúo o peritaje es de dos años contados a partir de la fecha de su emisión. Para las solicitudes tramitadas en la etapa de cobro con garantía hipotecaria, no se solicitará un nuevo avalúo y se considerará como vigente el último avalúo consignado en el expediente siempre y cuando el mismo no supere los diez años de emitido ni las condiciones crediticias superen lo anotado en el asiento hipotecario en plazo y monto de la deuda, en caso de que un avalúo supere los diez años de emitido y no supere las condiciones crediticias, el Comité de Cobro podrá a solicitud del Jefe de la Sección de Cobros, exonerar la solicitud de nuevo avalúo siempre que se documenten razones que así lo justifiquen”.
+B. Rige a partir de su aprobación.
+C. Publíquese en el Diario Oficial La Gaceta.
