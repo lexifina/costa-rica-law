@@ -14,3 +14,4 @@ Reforma Organizativa y Funcional de la División Marítimo Portuaria del Ministe
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-03-02 | la propia norma |
+| 2 | 2020-06-18 | Decreto Ejecutivo 42454 (2020-06-18) |
