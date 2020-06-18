@@ -1,0 +1,1 @@
+ARTÍCULO 5°.-Coordinación de acciones institucionales. Para el cumplimiento de lo dispuesto en el presente Decreto Ejecutivo, el Ministerio de Seguridad Pública coordinará con la Dirección General de Migración y Extranjería las actuaciones necesarias para la puesta en práctica del reforzamiento del control migratorio en el país.
