@@ -17,3 +17,4 @@ Reglamento sobre Gastos Fijos y Adquisición de Bienes y Servicios Competencia d
 | 2 | 2008-05-19 | Reglamento municipal 170 (2008-05-19) |
 | 3 | 2011-01-05 | Reglamento municipal 56 (2011-01-05) |
 | 4 | 2016-05-23 | Reglamento municipal 6 (2016-05-23) |
+| 5 | 2020-06-18 | Reglamento municipal 15 (2020-06-18) |
