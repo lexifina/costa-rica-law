@@ -1,4 +1,6 @@
+(Anulada)
 Nº 40379-MINAE-MAG
+(Este decreto ejecutivo fue anulado por resolución de la Sala Primera de la Corte Suprema de Justicia N° 002005-F-S1 del 18 de junio del 2020)
 El PRESIDENTE DE LA REPÚBLICA,
 EL MINISTRO DE AMBIENTE Y ENERGÍA
 Y EL MINISTRO DE AGRICULTURA Y GANADERÍA
