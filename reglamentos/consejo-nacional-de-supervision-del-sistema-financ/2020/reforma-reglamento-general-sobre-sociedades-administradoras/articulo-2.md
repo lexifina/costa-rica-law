@@ -1,0 +1,19 @@
+2. Reformar los artículos 41 y 65 del Reglamento general sobre sociedades administradoras y fondos de inversión, para que, en adelante, se lean de la siguiente manera:
+“Artículo 41.—Segregación de la cartera de valores Cuando la cotización de valores que formen parte de la cartera del fondo abierto haya sido suspendida en forma indefinida, o cuando el emisor de valores de deuda se declare en suspensión de pagos, o para aquellos activos en los cuales no es posible obtener un precio de valoración, el gestor de portafolios previa aprobación del Comité de Inversión, debe segregar los activos específicos del resto de la cartera, junto con su correspondiente proporción del activo neto en el día en que se toma la decisión de la segregación.
+Al momento de realizar la segregación del fondo de inversión según lo previsto en este artículo, la sociedad administradora debe identificar a los inversionistas que son propietarios de la cartera separada en la misma proporción de su inversión en el fondo de inversión. Adicionalmente, la sociedad administradora debe informar mediante un Comunicado de Hecho Relevante, sobre la segregación de la cartera de valores, las razones de su actuación y la forma en que serán administrados los activos separados.
+Los registros contables del fondo de inversión deben reconocer la separación de los activos y activo neto correspondientes, de manera que la suscripción y reembolso de las participaciones se continúe realizando con el nuevo valor de la participación que se obtiene de la cartera de activos que no ha sido segregada.
+La gestión de los activos del fondo de inversión que no han sido segregados debe continuarse de conformidad con lo dispuesto en su prospecto.
+Para el caso de los activos segregados, el gestor del portafolio debe administrarlos con el único fin de su liquidación o recuperación en el mejor interés de los inversionistas. El reembolso, parcial o total, de los activos segregados se debe realizar en forma proporcional para brindar a los inversionistas propietarios de la cartera segregada, un trato equitativo.”
+“Artículo 65.—Plazo para acatamiento de porcentajes
+Los porcentajes establecidos en la política de inversión del fondo de inversión deben alcanzarse en el plazo de doce (12) meses a partir de la fecha de recibido de la carta de cumplimiento de requisitos finales para la inscripción.
+Posteriormente, la sociedad administradora debe cumplir con la política de inversión revelada en el prospecto. No obstante, no se considera infracción el exceso sobre los límites establecidos que se deba a una de las causas que se citan a continuación:
+a. Cambios en la valoración de los instrumentos financieros de la cartera.
+b. Cambio de calificación de riesgo de crédito del emisor.
+c. Reducción del activo propio del fondo.
+d. Fusión de sociedades emisoras.
+e. Reducción de los valores en circulación por parte de la sociedad emisora.
+f. Alteraciones en la composición de los grupos económicos de sociedades emisoras.
+g. Segregación de la cartera de valores del fondo de inversión abierto, según lo definido en el artículo 41 de este Reglamento.
+h. Circunstancias sobrevenidas o imprevisibles en el mercado que afecten en forma temporal la negociación de valores.
+Para estos casos, el gestor de portafolios debe iniciar inmediatamente un proceso de ajuste de la composición de la cartera para apegarse a los límites establecidos en la política de inversión del prospecto. Si se estima que el proceso de corrección requerirá de un plazo superior a diez (10) días hábiles, el proceso de ajuste requiere de la validación por el comité de inversión y se debe informar a los inversionistas y a la Superintendencia mediante un Comunicado de Hecho Relevante, con la indicación de la separación temporal de las políticas de inversión, y el plazo que le podría tomar para corregir la situación.
+La Superintendencia puede requerir modificaciones en el plan remedial debidamente fundamentadas.”
