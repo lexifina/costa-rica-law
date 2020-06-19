@@ -1,4 +1,5 @@
 N° 42382-MOPT-S
+(Nota de Sinalevi: Mediante el artículo 10 del decreto ejecutivo N° 42410 del 19 de junio del 2020, “Restricción temporal del tránsito vehicular en el territorio nacional para prevenir la propagación del COVID-19”, se acordó suspender temporalmente el presente decreto ejecutivo durante el período comprendido de las 10:00 horas del sábado 20 de junio de 2020 hasta las 05:00 horas del 22 de junio de 2020, inclusive)
 EL PRESIDENTE DE LA REPÚBLICA,
 EL MINISTRO DE OBRAS PÚBLICAS Y TRANSPORTES Y
 EL MINISTRO DE SALUD
