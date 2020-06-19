@@ -14,3 +14,4 @@ Establece disposiciones sanitarias dirigidas a las personas encargadas de establ
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-06-01 | la propia norma |
+| 2 | 2020-06-19 | Resolución 4821 (2020-06-19) |
