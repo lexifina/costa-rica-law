@@ -1,0 +1,1 @@
+Artículo 5º—Los beneficiarios. Se consideran sujetos de aplicación de este Reglamento para obtener ayudas temporales, las personas físicas vecinas del cantón de Alajuelita que se encuentren en estado de desgracia o infortunio, debidamente comprobado y cuya situación económica les imposibilite atender la situación.

@@ -1,0 +1,1 @@
+Artículo 18°.—Limitación de ayudas. La Municipalidad otorgará ayudas con base en lo dispuesto en los artículos anteriores, únicamente a una persona o familia por una única vez, cuando se origine en la misma causa.
