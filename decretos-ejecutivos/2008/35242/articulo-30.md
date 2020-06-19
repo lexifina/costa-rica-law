@@ -1,1 +1,1 @@
-Artículo 30.—Los integrantes de la UT no percibirán dietas ni emolumento alguno adicional por participar e integrar la UT.
+Artículo 30.— (Derogado por el artículo 1° del decreto ejecutivo N° 42440 del 19 de junio del 2020)

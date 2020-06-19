@@ -26,4 +26,5 @@ Artículo 5º—Abreviaturas utilizadas en este Reglamento
 24. PROCOMER: Promotora de Comercio Exterior de Costa Rica
 25. SFE: Servicio Fitosanitario del Estado.
 26. SPG: Sistema Participativo de Garantía
-27. UT: Unidad Técnica Para el Reconocimiento de Incentivos para la Agricultura Orgánica.
+27. DPO: Departamento de Producción Orgánica de la Dirección Nacional de Extensión del Ministerio de Agricultura y Ganadería (DPO).
+(Así modificada la denominación de la abreviatura anterior por el artículo 2° del decreto ejecutivo N° 42440 del 19 de junio del 2020)
