@@ -19,8 +19,9 @@ Por tanto,
 EL MINISTRO DE SALUD
 RESUELVE
 PRIMERO. Las presentes medidas sanitarias se emiten con el objetivo de prevenir y mitigar el riesgo o daño a la salud pública y atender el estado de emergencia nacional dado mediante el Decreto Ejecutivo No. 42227-MP-S del 16 de marzo de 2020 y en procura del bienestar de todas las personas que radiquen en el territorio costarricense de manera habitual ante los efectos del COVID-19.
-SEGUNDO: Se resuelve ordenar el cierre temporal de todos los establecimientos con permiso sanitario de funcionamiento que brinden atención al público, los días lunes, martes, miércoles, jueves y viernes de las 17:00 horas a las 5:00 horas del día siguiente, en los distritos de Peñas Blancas (San Ramón), Los Chiles (Los Chiles), Fortuna (San Carlos), Paquera (Puntarenas) y los cantones de Pococí y Upala. Asimismo, se ordena el cierre temporal de dichos establecimientos los días sábados y domingos de manera total. Dichas restricciones se aplicarán a partir del 04 de junio de 2020 y hasta el 24 de junio de 2020.
-(Así reformada la disposición segunda anterior por resolución N° MS-DM-4786-2020 del 17 de junio del 2020)
+(*)SEGUNDO: Se resuelve ordenar el cierre temporal de todos los establecimientos con permiso sanitario de funcionamiento que brinden atención al público, los días lunes, martes, miércoles, jueves y viernes de las 17:00 horas a las 5:00 horas del día siguiente, en los distritos de Peñas Blancas (San Ramón), Los Chiles (Los Chiles), Fortuna (San Carlos), Paquera (Puntarenas) y los cantones de Pococí, Upala, Alajuelita y Desamparados.
+Asimismo, se ordena el cierre temporal de dichos establecimientos los días sábados y domingos de manera total. Dichas restricciones se aplicarán a partir del 04 de junio de 2020 y hasta el 24 de junio de 2020.
+(*)(Así reformada la disposición segunda anterior por resolución N° MS-DM-4811-2020 del 19 de junio del 2020)
 Se exceptúan de la disposición del párrafo anterior:
 a) Los servicios a domicilio.
 b) Las instituciones que por la naturaleza de sus funciones deben permanecer abiertas como los servicios de migración, aduanas, fitosanitario del Estado, puestos fronterizos terrestres, marítimos y aéreos, entre otros.
@@ -30,7 +31,8 @@ e) Establecimientos de venta de insumos agropecuarios, con una reducción de su
 f) Establecimientos de suministros de higiene, con una reducción de su capacidad máxima de ocupación normal al cincuenta por ciento (50%).
 g) Servicios bancarios públicos o privados, con una reducción de su capacidad máxima de ocupación normal al cincuenta por ciento (50%).
 h) Funerarias y/o capillas de velación, con una reducción de su capacidad máxima de ocupación normal al cincuenta por ciento (50%).
-i) Establecimientos públicos y privados donde hay comercialización de productos agricolas, pecuarios, pesca y acuicultura, tales como ferias y mercados, con una reducción de su capacidad máxima de ocupación normal al cincuenta por ciento (50%).
+i) Establecimientos públicos y privados donde hay comercialización de productos agrícolas, pecuarios, pesca y acuicultura, tales como mercados, con una reducción de su capacidad máxima de ocupación normal al cincuenta por ciento (50%).
+(Así reformado el inciso anterior por resolución N° MS-DM-4811-2020 del 19 de junio del 2020)
 j) Centros de Atención Integral públicos, privados y mixtos (CAI).
 k) Centros de atención de personas en condición de vulnerabilidad.
 l) Todos aquellos otros establecimientos con permiso sanitario de funcionamiento que no brinden atención al público presencial.
