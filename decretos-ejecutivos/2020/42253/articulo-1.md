@@ -1,4 +1,7 @@
 N° 42253- MOPT- S
+(Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 43408 del 2 de febrero de 2022, se ordenó suspende temporalmente la aplicación de la medida sanitaria consignada en el presente decreto ejecutivo, durante el período comprendido de las 00:00 horas del jueves 3 de febrero de 2022 a las 24:00 horas del lunes 7 de febrero de 2022.)
+(Nota de Sinalevi: Mediante el artículo 2° del decreto ejecutivo N° 42579 del 27 de agosto de 2020, se suspendió el decreto ejecutivo N° 42484 del 17 de julio del 2020, por un período que va del 31 de agosto al 30 de septiembre de 2020. Asimismo por el numeral 3° del decreto ejecutivo antes referido se establece que el período de la suspensión establecido en el numeral 2° del decreto ejecutivo N° 42579 del 27 de agosto del 2020, los cantones y distritos en alerta naranja, así como la zona fronteriza se regirán por las medidas de restricción vehicular dispuestas en el presente decreto ejecutivo)
+(Nota de Sinalevi: Mediante el artículo 10 del decreto ejecutivo N° 42410 del 19 de junio del 2020, “Restricción temporal del tránsito vehicular en el territorio nacional para prevenir la propagación del COVID-19”, se acordó suspender temporalmente el presente decreto ejecutivo durante el período comprendido de las 10:00 horas del sábado 20 de junio de 2020 hasta las 05:00 horas del 22 de junio de 2020, inclusive)
 EL PRESIDENTE DE LA REPÚBLICA,
 EL MINISTRO DE OBRAS PÚBLICAS Y TRANSPORTES Y
 EL MINISTRO DE SALUD
