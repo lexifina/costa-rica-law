@@ -1,0 +1,1 @@
+Artículo 11-Prohibiciones del personal de Auditoría Interna. Los funcionarios de la Auditoría Interna deben respetar el régimen de prohibiciones que les impone el artículo 34 de la Ley General de Control Interno.

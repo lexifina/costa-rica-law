@@ -1,0 +1,1 @@
+Artículo 6-Estructura. Es responsabilidad del titular de la Auditoria Interna disponer para su unidad de una estructura organizativa concordante con la razón de ser y la normativa que regula a la Municipalidad de Santo Domingo de Heredia.

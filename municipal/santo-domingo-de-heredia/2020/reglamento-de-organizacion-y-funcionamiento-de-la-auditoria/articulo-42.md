@@ -1,0 +1,1 @@
+Artículo 42-Admisión de denuncias anónimas. A criterio del titular de la Auditoria Interna las denuncias anónimas serán atendidas, en el tanto aporten elementos necesarios y suficientes y se encuentren soportadas en medios probatorios legales que permitan iniciar la investigación preliminar y determinar que existe de caso, de lo contrario se archivará la denuncia.

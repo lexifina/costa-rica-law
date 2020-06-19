@@ -1,0 +1,1 @@
+Artículo 3-Ámbito de aplicación. Este Reglamento es de acatamiento obligatorio para todos los funcionarios de la Auditoría Interna, para los funcionarios de la administración activa de la Municipalidad de Santo Domingo de Heredia y para los órganos adscritos, en la materia que les resulte aplicable.

@@ -1,0 +1,1 @@
+Artículo 47-Seguimiento denuncias trasladadas: El titular de la Auditoria Interna determinará los casos en que dará seguimiento a las denuncias que se hayan trasladado a otras instancias, para lo que considere pertinente.
