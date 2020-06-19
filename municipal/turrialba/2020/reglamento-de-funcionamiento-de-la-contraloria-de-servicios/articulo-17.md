@@ -1,0 +1,1 @@
+Artículo 17.- Asesoría y colaboración. El o la Contralor (a) podrá requerir la asesoría, colaboración y las facilidades necesarias por parte de los diferentes órganos y unidades administrativas de la organización para el cabal cumplimiento de sus funciones. En casos muy calificados también podrá requerir la asesoría necesaria de expertos externos a la Municipalidad

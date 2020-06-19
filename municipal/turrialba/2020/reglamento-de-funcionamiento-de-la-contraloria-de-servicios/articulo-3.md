@@ -1,0 +1,1 @@
+Artículo 3°-Actuaciones. Jerarca o encargados de tomar las decisiones. La Contraloría será competente para actuar de oficio o a petición de parte, realiza investigaciones, visita las dependencias institucionales, cuando se lo requiera la información pertinente para el cumplimiento de sus funciones.

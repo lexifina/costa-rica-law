@@ -1,0 +1,2 @@
+ARTÍCULO 11.- Reglamento interno de funcionamiento
+Las contralorías de servicios deben estar regidas por un reglamento interno para su funcionamiento, conforme a la presente ley 9158. Este reglamento y sus modificaciones será redactado con la colaboración de la encargada(o) de la contraloría de servicios de la Municipalidad de Turrialba, y deberá ser aprobado por el jerarca de la organización y Concejo Municipal.

@@ -1,0 +1,1 @@
+Artículo 9.-Asignación de Recursos. - La Contraloría de Servicios contará con los recursos para la compra de suministros materiales y tecnológicos, necesarios para el cumplimiento eficiente y efectivo de los objetivos definidos en la ley 9158, articulo 38 y este Reglamento.

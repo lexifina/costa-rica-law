@@ -1,0 +1,2 @@
+Artículo 31.- Obligación de dar respuesta al usuario. - La Contraloría de Servicios está obligada a comunicar al usuario, el resultado de su gestión por cualquier medio disponible, que haya indicado la persona interesada para ese efecto.
+En el caso que se comunique vía telefónica, el funcionario de la Contraloría de Servicios responsable del trámite debe dejar constancia en el expediente de dicha comunicación, e igualmente dejará constancia de la imposibilidad de comunicación con la parte interesada si esa circunstancia se da, luego de dos intentos de comunicación

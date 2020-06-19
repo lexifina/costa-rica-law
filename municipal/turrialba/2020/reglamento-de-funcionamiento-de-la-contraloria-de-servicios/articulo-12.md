@@ -1,0 +1,1 @@
+Artículo 12- Reglas de coordinación. La Contraloría de Servicios y la alcaldía trabajarán en forma coordinada en el ejercicio de sus funciones cuando se requiera. Si un funcionario se negare a brindar información a la Contraloría, ésta podrá solicitar el respaldo de la alcaldía, quien le deberá dar apoyo de inmediato.

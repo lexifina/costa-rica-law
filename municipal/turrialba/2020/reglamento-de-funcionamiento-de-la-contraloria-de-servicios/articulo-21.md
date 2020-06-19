@@ -1,0 +1,3 @@
+CAPITULO VII
+Del procedimiento de recepción de gestiones
+Artículo 21.- De la Recepción de gestiones (consultas, quejas, denuncias, inconformidades, felicitaciones y reportes). Corresponde a la Contraloría de Servicios recibir todas las gestiones que presente el usuario interno y externo, con respecto a los servicios que brinda la Institución, y que no han sido atendidas o resueltas de forma oportuna por el área competente. La persona usuaria puede presentar su gestión en forma personal, presencial verbal por escrito, por teléfono o correo electrónico u otros medios de comunicación, según los procedimientos establecidos en este reglamento.

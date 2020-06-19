@@ -1,0 +1,1 @@
+Artículo 10-infraestructura física de la Contraloría de Servicios. Las Contraloría de Servicios debe ser de fácil y adecuado acceso para la atención de las personas usuarias. Asimismo, el espacio físico asignado debe contar con condiciones adecuadas de ventilación, limpieza, comodidad, privacidad, accesibilidad e iluminación.
