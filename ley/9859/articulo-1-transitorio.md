@@ -1,0 +1,4 @@
+TRANSITORIO- El Banco Central de Costa Rica (BCCR) deberá realizar la primera fijación, para la tasa anual máxima de todo tipo de crédito y para microcrédito, en la primera semana del mes de enero o julio posterior a la entrada en vigencia de la presente ley. Para calcular el promedio simple, del promedio ponderado de los últimos doce meses, de la tasa de interés activa negociada del grupo Otras Sociedades de Depósito, a efectos de realizar la primera fijación de ambas tasas, el BCCR utilizará las tasas promedio de los doce meses anteriores a la primera semana del mes de enero o julio, según corresponda.
+Rige a partir de su publicación.
+Dado en la Presidencia de la República, San José, a los dieciséis días del mes de junio del año dos mil veinte.
+(Corregido el párrafo anterior mediante Fe de Erratas y publicada en La Gaceta N° 167 del 10 de julio del 2020, página N° 2)

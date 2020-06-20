@@ -1,0 +1,7 @@
+ARTÍCULO 3- Se reforma el artículo 63 de la Ley 7472, Ley de Promoción de la Competencia y Defensa Efectiva del Consumidor, de 20 de diciembre de 1994.
+El texto es el siguiente:
+Artículo 63- Delitos en perjuicio del consumidor
+La exigencia de intereses desproporcionados, en contra de los límites señalados en esta ley, es una conducta constitutiva del delito de usura.
+Las penas de los delitos de "usura", "agiotaje" y "propaganda desleal", indicados en los artículos 243, 245 y 249 de la Ley 4573, Código Penal, de 4 de mayo de 1970, deben duplicarse cuando se cometan en perjuicio de los consumidores y usuarios, en los términos estipulados en el artículo 2 de esta ley. Las mismas penas se aplicarán cuando el daño causado exceda el monto equivalente a cincuenta veces el menor de los salarios mínimos mensuales o cuando el número de productos o servicios transados, en contravención de los citados artículos, exceda de cien.
+Se reprimirá con la pena prevista en el artículo 216 del Código Penal, tipificado como "estafa", a quien debiendo entregar un bien o prestar un servicio, ofrecido públicamente en los términos de los artículos 34, 37 y 41 de esta ley, no lo realice en las condiciones pactadas, sino que se valga de un engaño o cualquier otra acción manipuladora.
+En esos casos, la Comisión Nacional del Consumidor debe remitir el expediente a los órganos jurisdiccionales penales, de conformidad con el inciso f) del artículo 53 de la presente ley.
