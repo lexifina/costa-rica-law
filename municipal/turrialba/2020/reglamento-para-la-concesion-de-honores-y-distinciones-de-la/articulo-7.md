@@ -1,0 +1,1 @@
+Artículo 7°—Este honor es preferible otorgarlo en vida, pero podrá darse en personas fallecidas como honor póstumo y se hará entrega en una sesión del Concejo Municipal un certificado correspondiente en el que conste tal nombramiento.

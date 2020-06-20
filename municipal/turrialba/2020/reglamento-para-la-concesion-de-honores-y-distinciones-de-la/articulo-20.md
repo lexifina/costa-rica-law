@@ -1,0 +1,1 @@
+Artículo 20.—Estos nombramientos podrán ser derogados de oficio o a solicitud de parte por el Concejo Municipal en el momento en que la persona incurra en algún delito o falta grave que atente contra la ética y la moral. Dicha eliminación será estudiada por una comisión que el mismo Concejo Municipal nombrará para tal fin.

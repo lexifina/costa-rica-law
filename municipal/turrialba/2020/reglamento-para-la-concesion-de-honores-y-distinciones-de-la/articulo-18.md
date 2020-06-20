@@ -1,0 +1,1 @@
+Artículo 18.—La Municipalidad de Turrialba deberá incluir una partida presupuestaria dentro del presupuesto ordinario de cada año para el otorgamiento de medallas, títulos y respectivos reconocimientos que se brinden durante el periodo administrativo vigente.

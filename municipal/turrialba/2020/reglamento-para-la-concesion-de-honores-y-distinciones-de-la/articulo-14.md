@@ -1,0 +1,2 @@
+Artículo 14.—Llaves de la Ciudad: Consiste en el reconocimiento otorgado a un personaje que ha enaltecido y promovido el cantón de Turrialba. Sea que luego de haber nacido en él, haya destacado dignamente en algún otro cantón del país o bien fuera de él.
+También puede ser otorgado a una persona que no haya nacido en él, siempre y cuando haya hecho un importante aporte para su desarrollo sea a nivel poblacional como estructural.

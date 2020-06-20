@@ -1,0 +1,1 @@
+Artículo 6°—Del ciudadano(a) ejemplar o de honor. El Concejo Municipal podrá otorgar el título de Ciudadano Ejemplar o de Honor, a toda persona del que, por su labor, ayuda y dedicación, se gane tal mérito en el servicio a alguna comunidad del cantón de Turrialba.

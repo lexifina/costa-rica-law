@@ -1,0 +1,2 @@
+Artículo 9°—Para mantener el carácter singular que debe caracterizar la máxima distinción del cantón, la Corporación Municipal podrá conceder un número máximo de dos medallas anuales, salvo que circunstancias excepcionales aconsejen aumentar dicho número, siendo en este último caso necesario el acuerdo unánime del Concejo Municipal.
+La medalla otorgada se entregará en un solemne acto oficial, en la forma que el Concejo Municipal disponga, acompañada del correspondiente diploma.

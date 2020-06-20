@@ -1,0 +1,1 @@
+Artículo 12.—Se le brinda a toda aquella persona que, en el cumplimiento de su deber como servidor público de Fuerza Pública, Cuerpo de Bomberos, Cruz Roja, Organismo de Investigación Judicial, Servidor Municipal, ofrende su vida en el servicio al pueblo turrialbeño, el Concejo Municipal podrá otorgarle el título de Hijo Predilecto o Hijo Adoptivo, en un homenaje póstumo.
