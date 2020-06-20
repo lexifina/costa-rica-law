@@ -1,0 +1,2 @@
+Artículo 36 quater- La Superintendencia General de Entidades Financieras (Sugef) estará obligada a remitir anualmente, a la Comisión Permanente Ordinaria de Asuntos Hacendarios de la Asamblea Legislativa, un estudio que determine los impactos de las disposiciones contenidas en los artículos 36 bis y 36 ter de la presente ley.
+(Así adicionado por el artículo 1° de la ley N° 9859 del 16 de junio del 2020)
