@@ -1,0 +1,1 @@
+Artículo 64.- Las instituciones de Enseñanza Superior Parauniversitaria, contarán con el plazo de 6 meses, contados a partir de la entrada en vigencia del presente reglamento, para ajustar por completo el desarrollo de sus actividades y normativas internas, a las disposiciones aquí contenidas.

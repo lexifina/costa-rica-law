@@ -1,0 +1,1 @@
+Artículo 53.- Para aquellas carreras que se encuentren formalmente acreditadas ante el Sistema Nacional de Acreditación de la Educación Superior, la institución deberá presentar a la Secretaría General una certificación de la acreditación emitida por SINAES. Dichas carreras se considerarán vigentes por todo el plazo en que logren mantener la acreditación por parte del SINAES.

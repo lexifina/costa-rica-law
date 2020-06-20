@@ -1,0 +1,1 @@
+Artículo 10.- Previo al ejercicio de su actividad, las instituciones de educación superior parauniversitaria deberán aparecer inscritas en el libro de registro que para tal efecto lleva de manera actualizada, el Consejo Superior de Educación, por medio de su Secretaría General.

@@ -1,0 +1,1 @@
+Artículo 28.- El Consejo Directivo, sesionará de manera ordinaria hasta un máximo de (6) veces al mes, y de manera extraordinaria cuando proceda, de conformidad con el artículo 52 de la Ley N°6227, Ley General de la Administración Pública. Sus integrantes no recibirán dietas, salvo, cuando así esté dispuesto por ley específica.

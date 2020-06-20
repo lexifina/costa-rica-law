@@ -1,0 +1,3 @@
+Artículo 30.- La institución de educación superior parauniversitaria nombrará al decano o director, con base en el procedimiento que disponga el consejo directivo, por un período de cuatro años, pudiendo ser reelecto.
+La vigencia del nombramiento del decano o director de las instituciones de enseñanza superior parauniversitaria privadas se define por libre iniciativa privada; de conformidad con los parámetros que permiten las leyes aplicables, el presente reglamento y su Estatuto Orgánico.
+El nombramiento de un nuevo decano o director o la reelección deberán ser comunicados al Consejo Superior de Educación, en un plazo perentorio de 15 días hábiles, contados a partir de la correspondiente designación.

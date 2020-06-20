@@ -1,0 +1,1 @@
+Artículo 44.- Se define como crédito la unidad valorativa equivalente a tres horas reloj semanal, de trabajo efectivo del estudiante, durante 15 semanas, aplicadas a una actividad que ha sido supervisada, evaluada y aprobada por el profesor. Esta definición se aplica para todo tipo de cursos: laboratorios, talleres, prácticas de campo y cursos teóricos-prácticos.

@@ -1,0 +1,1 @@
+Artículo 15.- Las instituciones de educación superior parauniversitaria estarán sujetas a la supervisión por parte del Consejo Superior de Educación y por delegación bajo la inspección de la Secretaría General quien coordinara de previo la visita con el director o decano de la institución.

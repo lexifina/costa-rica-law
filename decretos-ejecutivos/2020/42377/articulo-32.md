@@ -1,0 +1,2 @@
+Artículo 32.- El Consejo Directivo o la Junta Directiva designará al sustituto del decano o director en caso de ausencia temporal, quien deberá cumplir con los mismos requisitos exigidos a su titular, dentro del plazo máximo de 15 días naturales.
+En caso de presentarse una condición de vacancia en el puesto de decano o director, el Consejo Directivo o la Junta Directiva deberán nombrar al sustituto en el plazo máximo de 3 meses.

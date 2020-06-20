@@ -1,0 +1,4 @@
+Artículo 54.- Las carreras de diplomado parauniversitario se considerarán inactivas cuando, a partir del informe estadístico descrito en los artículos 12, inciso e).2., y 33 incisos m), del presente reglamento, se evidencie la ocurrencia de alguno de los siguientes hechos:
+a) Que no se registre matricula de estudiantes en una carrera nueva durante 3 años consecutivos.
+b) Que no se registre inscripción de títulos, ni matricula, durante 3 cuatrimestres consecutivos, en carreras con más de 3 años de estar aprobadas.
+La carrera declarada inactiva, podrá registrar matrícula de primer ingreso siempre que se encuentra actualizada conforme a lo señalado en el artículo 52 del presente reglamento; la Secretaría General deberá verificar que la matrícula es efectiva, en cuyo caso la carrera pasará a estar en condición de activa.
