@@ -8,4 +8,6 @@ e) Ley N.° 264, Ley de Jubilaciones y Pensiones para los Empleados del Ferrocar
 f) Ley N.° 15, Ley de Pensiones de Músicos de Bandas Militares, de 5 de diciembre de 1935.
 g) Ley N.° 148, Ley sobre Jubilaciones y Pensiones de la Secretaría de Hacienda y sus Dependencias, de 23 de agosto de 1943.
 h) Ley N.° 4513, Inamovilidad del Personal de Telecomunicaciones, de 2 de enero de 1970.
+i) Ley Nº 313, Ley de Pensiones para Expresidentes, de 23 de agosto de 1939.
+(Así adicionado el inciso anterior por el artículo 9° de la Ley para rediseñar y redistribuir los recursos de la contribución especial solidaria, N° 9796 del 5 de diciembre de 2019)
 Esta ley no será aplicable a las personas cubiertas por el Régimen de Invalidez, Vejez y Muerte que administra la Caja Costarricense de Seguro Social (CCSS), ni a los regímenes de pensiones y jubilaciones del Magisterio Nacional ni al del Poder Judicial.
