@@ -1,0 +1,1 @@
+ARTÍCULO 2- La lista de materiales reutilizables, a los que se refiere la presente ley, deberá ser emitida y actualizada técnicamente por el Laboratorio Nacional de Materiales y Modelos Estructurales (Lanamme-UCR), de acuerdo con las facultades que le otorga la Ley 8114, Ley de Simplificación y Eficiencia Tributarias, de 4 de julio de 2001 y su reglamento.
