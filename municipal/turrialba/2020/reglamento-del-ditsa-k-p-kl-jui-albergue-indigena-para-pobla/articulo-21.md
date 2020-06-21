@@ -1,0 +1,2 @@
+Artículo 21.—Del deterioro o daños en el edificio, el mobiliario y equipo del albergue. Los usuarios y usuarias deben tener cuidado y compromiso con la conservación del edificio, el mobiliario y equipo.
+En todo caso, quien cause deterioro en el edificio, mobiliario o equipo, responderá por los daños ocasionados. La responsabilidad y sanciones que en cada caso pudieran aplicarse, se exigirán conforme a lo dispuesto en el presente reglamento o lo que la Junta Administrativa determine conveniente.

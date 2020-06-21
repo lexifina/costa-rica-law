@@ -1,0 +1,1 @@
+Artículo 18.—Registro de Entrada. Para realizar el registro de entrada todos los usuarios y usuarias deben presentar a la persona encargada de la administración del albergue, la cédula de identidad o cualquier documento idóneo que logre la identificación.

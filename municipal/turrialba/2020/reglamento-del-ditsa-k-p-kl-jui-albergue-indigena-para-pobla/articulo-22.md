@@ -1,0 +1,1 @@
+Artículo 22.—Régimen sancionador. En el supuesto de incumplimiento de dicha reglamentación, las personas usuarias podrán ser desalojados de inmediato del albergue, sin perjuicio de la exigencia de las responsabilidades que se podrían aplicar, según así lo disponga la Junta Administrativa.

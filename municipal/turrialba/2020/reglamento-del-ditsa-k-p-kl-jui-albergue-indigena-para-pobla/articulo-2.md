@@ -1,0 +1,1 @@
+Artículo 2º—El albergue es un sitio destinado al alojamiento y estancia de la población indígena Cabecar que visite el cantón central de Turrialba para realizar gestiones de salud u otro tipo de necesidades personales que sean debidamente justificadas al administrador.
