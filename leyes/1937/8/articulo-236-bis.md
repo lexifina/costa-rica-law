@@ -1,6 +1,7 @@
 Artículo 236 bis- Contribución especial, solidaria y redistributiva de los pensionados y jubilados
 Además de la cotización común establecida en el artículo anterior, los pensionados y los jubilados, cuyas prestaciones superen los montos que se fijarán, contribuirán de forma especial, solidaria y redistributiva, de acuerdo con la siguiente tabla:
-a) Sobre el exceso del tope establecido en el artículo 225 y hasta por el veinticinco por ciento (25%) de dicho tope, contribuirán con el treinta y cinco por ciento (35%) de tal exceso.
+a) Sobre el exceso del monto de seis (6) salarios base del puesto más bajo pagado en el Poder Judicial y hasta por el veinticinco por ciento (25%) de dicho tope, contribuirán con el treinta y cinco por ciento (35%) de tal exceso.
+(Así reformado el inciso anterior por el artículo 7° de la Ley para rediseñar y redistribuir los recursos de la contribución especial solidaria, N° 9796 del 5 de diciembre de 2019)
 b) Sobre el exceso del margen anterior y hasta por un veinticinco por ciento (25%) más, contribuirán con el cuarenta por ciento (40%) de tal exceso.
 c) Sobre el exceso del margen anterior y hasta por un veinticinco por ciento (25%) más, contribuirán con el cuarenta y cinco por ciento (45%) de tal exceso.
 d) Sobre el exceso del margen anterior y hasta por un veinticinco por ciento (25%) más, contribuirán con un cincuenta por ciento (50%) de tal exceso.

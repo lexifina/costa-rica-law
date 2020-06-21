@@ -1,6 +1,6 @@
 # Ley Orgánica del Poder Judicial (1937)
 
-Ley N° 8 del 1937-11-29. SINALEVI, ficha 33635: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=33635&param2=118781&param3=1>.
+Ley N° 8 del 1937-11-29. SINALEVI, ficha 33635: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=33635&param2=121087&param3=1>.
 
 Publicada en La Gaceta N° 270 del 1937-12-01.
 
@@ -43,3 +43,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 36 de 54 | 2019-10-22 | Ley 9746 | 2019-10-16 |
 | 37 de 54 | 2019-10-30 | Ley 9769 | 2019-10-18 |
 | 38 de 54 | 2019-12-13 | Ley 9782 | 2019-11-12 |
+| 39 de 54 | 2020-06-21 | Ley 9796 | 2019-12-05 |
