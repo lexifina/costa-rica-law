@@ -6,3 +6,4 @@ Artículo 5°: Apruébense los siguientes Egresos Ordinarios y Extraordinarios d
 (Modificado por el artículo 1° del decreto ejecutivo N° 42311 del 7 de abril del 2020)
 (Reformado por el artículo 3° de la ley N° 9841 del 24 de abril del 2020)
 (Reformado por el artículo 1° del decreto ejecutivo N° 42416 del 5 de junio del 2020)
+(Modificado por el artículo 1° del decreto ejecutivo N° 42462 del 22 de junio del 2020)
