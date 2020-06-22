@@ -14,3 +14,4 @@ Reglamento de Servicio de Conserjería de las Instituciones Educativas Oficiales
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-09-21 | la propia norma |
+| 2 | 2020-06-22 | Decreto Ejecutivo 42452 (2020-06-22) |
