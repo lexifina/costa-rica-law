@@ -1,0 +1,2 @@
+Artículo 16 bis- En caso de que la sesión municipal, ordinaria o extraordinaria, se deba llevar a cabo de manera virtual, la Secretaría del Concejo Municipal quedará obligada a gestionar lo que corresponda para cumplir lo dispuesto y dejar respaldo de audio, video y datos, para que quien ocupe el cargo de secretaria/o del Concejo Municipal elabore el correspondiente control de asistencia de los Regidores y Síndicos, y con base en el mismo se realice el respectivo pago de dietas.
+(Así adicionado mediante acuerdo N° 35 acta N° 35 del 22 de junio de 2020)

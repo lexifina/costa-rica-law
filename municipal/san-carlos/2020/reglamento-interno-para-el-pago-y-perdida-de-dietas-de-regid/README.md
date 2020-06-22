@@ -14,3 +14,4 @@ Reglamento interno para el pago y pérdida de dietas de regidores y síndicos pr
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-02-11 | la propia norma |
+| 2 | 2020-06-22 | Reglamento municipal 0 (2020-06-22) |
