@@ -1,0 +1,1 @@
+Artículo 15.-Documentación. En caso de que la solicitud sea aprobada, la DGME entregará a la persona extranjera en su primera documentación, un carné que le permitirá residir en el país y laborar en actividades agropecuarias. El trámite de documentación se realizará conforme a los mecanismos, condiciones y procedimientos que determine la DGME.

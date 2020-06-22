@@ -1,0 +1,1 @@
+Artículo 11.- Presentación de requisitos. Toda solicitud de la CETTSA deberá de ser presentada de forma completa con todos los requisitos indicados en el presente Decreto Ejecutivo, de lo contrario dicha solicitud será rechazada por la DGME.

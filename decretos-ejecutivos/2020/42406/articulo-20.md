@@ -1,0 +1,6 @@
+Artículo 20.- Renovación. La persona extranjera que pretenda renovar su CETTSA conforme con el presente Decreto Ejecutivo deberá aportar:
+a) Comprobante vigente de su adscripción a los seguros de la CCSS, ya sea de manera directa, trabajador independiente, o a través de su patrono como asalariado.
+b) Los requisitos que establece el artículo 18 del presente Decreto Ejecutivo.
+c) Comprobante de pago a favor del Gobierno por treinta dólares (US$30,00) o su equivalente en colones al tipo de cambio de referencia del Banco Central, por la emisión del documento que acredite la permanencia legal, al tenor del artículo 252 de la LGME.
+d) En caso de trabajadores asalariados, contrato de trabajo suscrito por el trabajador y el patrono, cuyas firmas deberán ser debidamente autenticadas por abogado. El contrato deberá indicar el nombre, nacionalidad y número de identificación de la persona extranjera, las funciones que realizará, su horario, el salario a devengar y el lugar donde prestará sus labores.
+e) En caso de trabajadores por cuenta propia, mantenerse inscrito en el registro de trabajadores ante el MAG, según las condiciones del último párrafo del artículo 6 del presente Decreto Ejecutivo.

@@ -1,0 +1,1 @@
+Artículo 14.-Vigencia de la acreditación migratoria. La CETTSA se autorizará la primera vez por el período de un año y su renovación será por periodos de dos años, conforme a lo que indica el artículo 19 de este decreto.
