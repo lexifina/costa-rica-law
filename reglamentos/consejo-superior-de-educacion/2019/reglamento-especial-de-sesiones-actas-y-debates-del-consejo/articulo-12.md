@@ -1,1 +1,0 @@
-Artículo 12.—De todas las sesiones se levantará un listado de los miembros presentes, elaborado por la secretaría general. En caso de retiro anticipado, el miembro del Consejo lo comunicará a la presidencia. Cada miembro firmará contiguo a su nombre al final de la sesión o en el momento de su retiro.

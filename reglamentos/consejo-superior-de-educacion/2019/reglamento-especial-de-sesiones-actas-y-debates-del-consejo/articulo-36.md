@@ -1,1 +1,0 @@
-Artículo 36.—Las actas de las sesiones del Consejo se aprobarán en la siguiente sesión ordinaria. En caso de presentarse alguna circunstancia especial que impida la aprobación del acta en ese plazo, la misma deberá ser aprobada a más tardar, en la sesión inmediata siguiente.

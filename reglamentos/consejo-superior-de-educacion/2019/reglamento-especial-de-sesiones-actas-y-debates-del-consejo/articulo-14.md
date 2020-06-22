@@ -1,1 +1,0 @@
-Artículo 14.—Si en el curso de una sesión se rompiera el cuórum, la presidencia instará a los miembros que se hubieren retirado para que se reintegren a la sesión. Pasados diez minutos, si no hubiere cuórum se dejará constancia en el acta, se consignará el nombre de los presentes y la Presidencia pondrá fin a la sesión.

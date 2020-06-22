@@ -1,1 +1,0 @@
-Artículo 20.—Las sesiones serán privadas a menos que, se acuerde lo contrario. Tendrán derecho a voto sólo los miembros propietarios, los suplentes podrán votar únicamente cuando sustituyan al propietario y todos los miembros presentes tendrán voz en la sesión.

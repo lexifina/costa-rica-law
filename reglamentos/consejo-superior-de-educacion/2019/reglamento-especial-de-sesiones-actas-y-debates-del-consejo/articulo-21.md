@@ -1,2 +1,0 @@
-Artículo 21.—Todas las sesiones serán grabadas, sirviendo de apoyo para la redacción del acta correspondiente. Las grabaciones se mantendrán en custodia por parte de la secretaría general en dispositivos electrónicos de almacenamiento permanente.
-El medio por el cual se registran las sesiones del Consejo constituye un documento sujeto a lo dispuesto en la Ley del Sistema Nacional de Archivos, Ley N° 7202 de 24 de octubre de 1990 y su reglamento.
