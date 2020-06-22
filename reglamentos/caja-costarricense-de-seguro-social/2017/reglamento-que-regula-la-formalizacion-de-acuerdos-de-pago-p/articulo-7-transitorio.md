@@ -1,7 +1,5 @@
-Transitorio VII
-De la readecuación de convenios de pago para patronos y trabajadores independientes.
-De forma transitoria por el plazo de un año, las condiciones para las readecuaciones de convenios de pago con patronos y trabajadores independientes, regulados en los artículos 14 y 18 de este reglamento, son las siguientes:
-l. Primera readecuación de convenio de pago para patronos:
+Transitorio VII.—De la readecuación de convenios de pago para patronos y trabajadores independientes. De forma transitoria y hasta el 31 de diciembre 2020, las condiciones para las readecuaciones de convenios de pago con patronos y trabajadores independientes, regulados en los artículos 14 y 18 de este reglamento, son las siguientes:
+1. Primera readecuación de convenio de pago para patronos:
 a. Si el deudor se encuentra al día con el pago de las mensualidades del convenio de pago, y existe morosidad por otras obligaciones generadas con posteridad a la firma del mismo, se puede readecuar el total de la deuda siempre y cuando se haya pagado al menos el 20% del monto principal del convenio de pago.
 b. Si el deudor se encuentra atrasado con el pago de las mensualidades del convenio de pago y/o este se encuentra finalizado por incumplimiento, se puede readecuar el total de la deuda siempre y cuando se haya pagado al menos el 35% del monto principal del convenio de pago más los intereses corrientes y moratorios a la fecha. También se puede incluir en la readecuación de pago otras deudas generadas con posteridad a la firma del convenio de pago original.
 2. Segunda readecuación de convenio de pago para patronos:
@@ -13,3 +11,4 @@ b. Si el deudor se encuentra atrasado con el pago de las mensualidades del conve
 Se pueden realizar readecuaciones por segunda vez en convenios de pago, únicamente cuando la primera readecuación se encuentre al día en el pago de las mensualidades, es decir, la morosidad sea producto de deudas generadas con posterioridad a la firma de la primera readecuación; asimismo, se haya pagado al menos el 30% del monto principal de dicha readecuación y al menos un 20% de la cuotas de trabajador independiente atrasadas que se hayan facturado con posterioridad a la suscripción de la primera readecuación.
 Las demás condiciones establecidas en los artículos 14 y 18 de este reglamento se mantienen incólumes.
 (Así adicionado mediante sesión N° 9043 del 19 de julio del 2019)
+(Así reformado en sesión N° 9106 del 22 de junio del 2020)
