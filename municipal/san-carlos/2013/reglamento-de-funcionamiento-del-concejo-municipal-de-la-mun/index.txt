@@ -20,6 +20,7 @@ articulo-19.md
 articulo-20.md
 articulo-21.md
 articulo-22.md
+articulo-22-bis.md
 articulo-23.md
 articulo-24.md
 articulo-25.md
@@ -36,6 +37,7 @@ articulo-35.md
 articulo-36.md
 articulo-37.md
 articulo-38.md
+articulo-38-bis.md
 articulo-39.md
 articulo-40.md
 articulo-41.md
@@ -52,6 +54,7 @@ articulo-51.md
 articulo-52.md
 articulo-53.md
 articulo-54.md
+articulo-54-bis.md
 articulo-55.md
 articulo-56.md
 articulo-57.md
