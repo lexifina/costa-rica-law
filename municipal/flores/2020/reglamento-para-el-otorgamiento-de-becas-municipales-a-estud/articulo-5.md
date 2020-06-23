@@ -1,0 +1,1 @@
+Artículo 5°—Órgano competente. La adjudicación de las becas la realizará el Concejo Municipal, previa recomendación no vinculante de la Comisión Municipal de Asuntos Sociales (Becas), previo estudio de un o una Trabajadora Social, que se encargará de brindar un estudio socioeconómico de los aspirantes a becas y de su núcleo familiar.
