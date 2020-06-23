@@ -1,0 +1,2 @@
+Artículo 4°. - Límite económico autorizado.
+Se autoriza a la Dirección Ejecutiva para realizar compras o adquisiciones de bienes y servicios, así como suscribir gastos fijos y convenios en los cuales la Federación CAPROBA actúe como parte, hasta por el límite económico mayor fijado para los procesos de Licitación Pública, según el estrato asignado por la Contraloría General de la República, el cual se actualizará automáticamente con la publicación anual que realice el órgano contralor.
