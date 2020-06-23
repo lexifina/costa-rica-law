@@ -1,1 +1,0 @@
-Artículo 14.—Responsabilidad por los fallos en los hidrantes. El desarrollador y/o urbanizador será responsable solidariamente con el ente administrador u operador del sistema de acueducto, tanto civil como penalmente, por los daños y perjuicios que ocasione a terceros, con motivo de fallas en los hidrantes.

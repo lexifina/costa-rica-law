@@ -1,1 +1,0 @@
-Artículo 22.—Uso de hidrantes privados. Pueden ser utilizados tanto por la brigada contra incendios como por el Benemérito Cuerpo de Bomberos de Costa Rica, bajo circunstancias de inminente riesgo, desastre natural o provocado por el hombre.

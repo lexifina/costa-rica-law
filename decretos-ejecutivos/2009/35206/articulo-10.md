@@ -1,1 +1,0 @@
-Artículo 10.—Obligación de contar con hidrantes. Todo proyecto o desarrollo de sistema de acueducto deberá contar con los hidrantes en las condiciones técnicas y de operación requeridas por el Benemérito Cuerpo de Bomberos de Costa Rica.
