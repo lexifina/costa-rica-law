@@ -14,3 +14,4 @@ Reglamento para la atención de denuncias planteadas ante la Auditoría Interna 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-09-11 | la propia norma |
+| 2 | 2020-06-23 | Reglamento municipal 8 (2020-06-23) |

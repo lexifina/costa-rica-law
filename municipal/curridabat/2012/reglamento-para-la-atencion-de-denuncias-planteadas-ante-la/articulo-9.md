@@ -1,1 +1,3 @@
-Artículo 9º—Seguimiento. La AI de acuerdo con los procedimientos establecidos determinará los casos en que dará el seguimiento de las denuncias que remita a las diferentes unidades de la administración Municipal, con el fin de que cumplan la obligación de atenderlas.
+Artículo 9º—Tramitación de la denuncia y prohibición de delegar. Respecto de las denuncias que la auditoría interna considere va a tramitar e investigar, aun cuando pueda contar con el apoyo técnico y profesional que requiera, no podrá delegar tal función en terceros.
+En atención al principio de celeridad, la Auditoría Interna debe programar la realización de las investigaciones por presuntos hechos irregulares dentro de plazos razonables, tomando en consideración el impacto de institutos como la prescripción o la caducidad, que pueden operar en cada caso concreto, así como los criterios de proporcionalidad y razonabilidad.
+(Así reformado en sesión N° 08 del 23 de junio del 2020)
