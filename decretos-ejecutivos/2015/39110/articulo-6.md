@@ -7,6 +7,8 @@ d. Las organizaciones que se encuentren en mora o hayan incumplido en alguno de 
 e. Las organizaciones a las que pertenezcan los funcionarios del Ministerio de Cultura y Juventud, encargados de la selección, coordinación o fiscalización del programa, o sus parientes hasta el segundo grado de consanguinidad o afinidad.
 f. Las organizaciones a las que pertenezca alguno de los miembros de la Comisión Seleccionadora, los funcionarios de la Dirección de Cultura o sus parientes hasta el segundo grado de consanguinidad o afinidad.
 g. Las organizaciones que estén ejecutando algún proyecto en alguno de los programas de becas o fondos de apoyo de proyectos culturales o proyecto de la Dirección de Cultura del Ministerio de Cultura y Juventud, o sus órganos desconcentrados.
+Para la Convocatoria Ordinaria del Fondo Puntos de Cultura 2020 -mediante la cual se seleccionarán los proyectos que serán desarrollados en el año 2021-, no se aplicará esta prohibición, por lo que podrán participar como postulantes las personas que se encuentren ejecutando un proyecto en el marco de la Convocatoria Extraordinaria del Fondo Becas-Taller para el Desarrollo de Proyectos Culturales.
+(Así adicionado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 42697 del 23 de junio del 2020)
 h. Los contratistas que se encuentren prestando algún servicio, debidamente formalizado por las vías de la contratación administrativa, a la Dirección de Cultura.
 i. Las organizaciones religiosas, político-partidistas u otras cuando desarrollen eventos, actividades o productos de índole religiosa y/o político partidista.
 (Así adicionado el inciso anterior por el artículo 2° del decreto ejecutivo N° 42441 del 14 de febrero del 2020)

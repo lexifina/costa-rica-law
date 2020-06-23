@@ -17,3 +17,4 @@ Crea Programa Puntos de Cultura del Ministerio de Cultura y Juventud
 | 2 | 2016-09-05 | Decreto Ejecutivo 39955 (2016-09-05) |
 | 3 | 2018-04-10 | Decreto Ejecutivo 41113 (2018-04-10) |
 | 4 | 2020-02-14 | Decreto Ejecutivo 42441 (2020-02-14) |
+| 5 | 2020-06-23 | Decreto Ejecutivo 42697 (2020-06-23) |
