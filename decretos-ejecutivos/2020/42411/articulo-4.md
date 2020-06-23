@@ -1,0 +1,1 @@
+Artículo 4º-. La disposición consignada en el artículo 1º del presente Decreto Ejecutivo se mantendrá hasta el 30 de mayo de 2021, con posibilidad de prórroga según se valorará por la permanencia del estado de emergencia nacional por el COVID-19.
