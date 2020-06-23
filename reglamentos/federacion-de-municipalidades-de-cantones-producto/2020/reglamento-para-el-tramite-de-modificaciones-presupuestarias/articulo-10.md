@@ -1,0 +1,1 @@
+Artículo 10.-Expediente administrativo. Para cada modificación presupuestaria se abrirá un expediente electrónico numerado, según su orden de tramitación y se custodiará en el Departamento de Contabilidad Municipal.
