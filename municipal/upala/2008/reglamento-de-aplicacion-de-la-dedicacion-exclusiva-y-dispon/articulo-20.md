@@ -1,0 +1,2 @@
+Artículo 20.—Función de la Administración y la Oficina de Coordinación de Recursos Humanos: La Administración y la Oficina Coordinación de Recursos Humanos debe velar por el cumplimiento de las disposiciones establecidas en el presente Reglamento y en los contratos suscritos, sin perjuicio de las regulaciones establecidas en el ordenamiento jurídico respecto a materia profesional o municipal.
+(Así modificada su numeración mediante acta 011-20204-2024 del 23 de junio del 2020, que lo traspaso del antiguio artículo 15 al 20)

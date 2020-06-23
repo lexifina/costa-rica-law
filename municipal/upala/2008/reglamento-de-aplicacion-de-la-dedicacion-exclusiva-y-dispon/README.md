@@ -14,3 +14,4 @@ Reglamento de aplicación de la dedicación exclusiva y disponibilidad para la M
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-06-09 | la propia norma |
+| 2 | 2020-06-23 | Reglamento municipal 0 (2020-06-23) |

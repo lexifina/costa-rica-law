@@ -2,4 +2,9 @@ MUNICIPALIDAD DE UPALA
 REGLAMENTO DE APLICACIÓN DE LA DEDICACIÓN
 EXCLUSIVA Y DISPONIBILIDAD PARA LA
 MUNICIPALIDAD DE UPALA
-Artículo 1º—Se entenderá por dedicación exclusiva para efectos del presente reglamento, la compensación económica retribuida a los servidores de nivel profesional, porcentualmente sobre sus salarios base (previa suscripción de un contrato entre el servidor y el máximo jerarca o con quien este delegue), para que obligatoriamente no ejerzan de manera particular (remunerada u honorario), la profesión que sirve como requisito para desempeñar el puesto que ostenten así como las actividades relacionadas con esta; con las excepciones que se establecen en el presente reglamento.
+CAPÍTULO I
+De la Dedicación Exclusiva
+(Así adicionado el capítulo I) anterior mediante acta 011-2020-2024 del 23 de junio del 2020)
+Artículo 1º—Se entenderá como Dedicación Exclusiva el Régimen de naturaleza contractual que surge por iniciativa de la Administración cuando se identifica la necesidad de que quien ostente un cargo público se desempeñe en ese puesto de manera exclusiva, lo cual implica que no ejerza su profesión liberal ni profesiones relacionadas con dicho cargo en ninguna otra institución pública o privada, por un periodo de tiempo definido. Es de carácter potestativo y únicamente podrá ser otorgada a los funcionarios del sector público que firmen el respectivo contrato.
+Su compensación económica se otorga dependiendo del grado académico y las características del puesto.
+(Así reformado mediante acta 011-2020-2024 del 23 de junio del 2020)

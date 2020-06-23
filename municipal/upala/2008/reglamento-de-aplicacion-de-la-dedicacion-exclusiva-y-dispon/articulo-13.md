@@ -1,1 +1,2 @@
-Artículo 13.—El presente reglamento rige a partir de su publicación y deroga cualquier disposición anterior que se le oponga.
+Artículo 13.- De la Compensación Económica. A cambio de esa disponibilidad y una vez suscrito el contrato establecido en este reglamento, al servidor municipal se le reconocerá una compensación económica de un porcentaje del 40% del salario base del funcionario profesional. La Unidad Técnica de Gestión Vial podrá hacer uso de sus recursos para estos efectos.
+(Así adicionado mediante acta 011-2020-2024 del 23 de junio del 2020)
