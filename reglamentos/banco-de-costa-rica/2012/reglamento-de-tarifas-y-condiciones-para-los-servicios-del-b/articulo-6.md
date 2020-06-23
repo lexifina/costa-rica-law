@@ -1,12 +1,8 @@
 6. Comisiones de confianza
 Dentro de las comisiones de confianza están los mandatos, los fideicomisos y otras comisiones de confianza.
 6.1-. Mandatos
-6.1.1-Cobro de documentos (pagarés, letras, créditos hipotecarios o similares) en gestión de cobro aunque el Banco tenga en garantía esos documentos
-Tarifa (porcentaje) a negociar de acuerdo al costo administrativo, obligaciones y responsabilidades del mandato.
-Mínimo $50.00 mensual
-6.1.2.- Remesas directas de dinero al o del exterior
--10% sobre el principal - mínimo $20.00 o equivalente
-La comisión se negociará si es parte de un servicio integral al cliente
+6.1.1-Cobro de documentos (pagarés, letras, créditos hipotecarios o similares) en gestión de cobro aunque el Banco tenga en garantía esos documentos (Derogado este punto mediante sesión N° 24-2020 del 23 de junio del 2020)
+6.1.2.- Remesas directas de dinero al o del exterior (Derogado este punto mediante sesión N° 24-2020 del 23 de junio del 2020)
 6.2.- Custodias físicas y electrónicas
 Custodia electronica de valores
 Por servicios de custodia local
@@ -49,25 +45,19 @@ Otros costos adicionales generados por solicitud de los clientes, y no estén co
 Custodia electrónica de valores
 Por servicios de custodia local
 6.2.7 Tarifas por movimientos (mercado local), servicios complementarios:
-[imagen]
 (Así reformado el punto 6.2.7) anterior en sesión N° 21 del 23 de mayo de 2016)
 (Así reformado el punto 6.2.7) anterior mediante sesión N° 03-17 del 18 de enero del 2017)
 6.2.8 Tarifas custodia internacional sobre el saldo promedio de valores administrados:
 Se aplicará sobre el saldo promedio mensual 0.0035%
 (Así reformado el punto 6.2.8) anterior en sesión N° 03-17 del 18 de enero del 2017)
 6.2.9 Tarifas por movimientos (custodio internacional):
-[imagen]
 (Así reformado el punto 6.2.9) anterior en sesión N° 03-17 del 18 de enero del 2017)
-6.2.10 Por custodia de macrotítulos de emisiones privadas
-[imagen]
+6.2.10 Por custodia de macrotítulos de emisiones privadas (Derogado este punto mediante sesión N° 24-2020 del 23 de junio del 2020)
 (Así reformado el punto 6.2.10) anterior en sesión N° 03-17 del 18 de enero del 2017)
-6.2.11 Comisión por ingreso a revisar transacciones, en alquiler de espacio a entidades públicas
-- Por cada visita que efectúe el cliente a la bóveda $2.0
+6.2.11 Comisión por ingreso a revisar transacciones, en alquiler de espacio a entidades públicas (Derogado este punto mediante sesión N° 24-2020 del 23 de junio del 2020)
 (Así corrida su numeración en sesión 24-13 del 24 de junio del 2013, que lo traspaso del antiguo punto 6.2.10 al 6.2.11. Lo anterior ya que en dicha sesión se adiciona el numeral 6.2.9 original y correr la numeración de los siguientes)
 (Así reformado el punto 6.2.11) anterior en sesión N° 03-17 del 18 de enero del 2017)
-6.2.12 Administración de los libros de participaciones de los fondos de inversión
-Por la administración de cada libro de participaciones $500.00 mensuales.
-Por generar reportes adicionales al cliente, sobre los libros de participaciones, $10.00 por cada uno.
+6.2.12 Administración de los libros de participaciones de los fondos de inversión (Derogado este punto mediante sesión N° 24-2020 del 23 de junio del 2020)
 (Así corrida su numeración en sesión 24-13 del 24 de junio del 2013, que lo traspaso del antiguo punto 6.2.11 al 6.2.12. Lo anterior ya que en dicha sesión se adiciona el numeral 6.2.9 original y correr la numeración de los siguientes)
 (Así reformado el punto 6.2.12) anterior en sesión N° 03-17 del 18 de enero del 2017)
 6.2.13 Gestión del servicio del impuesto sobre renta

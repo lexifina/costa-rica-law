@@ -209,6 +209,7 @@ Cuadro 5
 2.38.- Comisión por retiro anticipado de un plan de ahorro automático
 Aplica la comisión del 3% sobre la totalidad del saldo ahorrado (principal más intereses), para los planes de ahorro automático cuyo plazo sea superior a 6 meses y se cancelen antes de los 181 días de permanencia.
 (Así reformado el punto 2.38) anterior en sesión 21 del 23 de mayo del 2016)
+(Nota de Sinalevi: Mediante sesión N° 24-2020 del 23 de junio del 2020 se reforma el punto 2.38) anterior. No obstante, al no coincidir el texto con la reforma la misma se transcribe a continuación: “2.38 Comisión por libros de depósito $2.00”)
 2.39. Aplicación de planillas judiciales con fondos trasladados mediante Sinpe (no clientes BCR)
 $0.50 por cada registro
 (Así reformado el punto 2.39) anterior en sesión N° 07-16 del 8 de febrero del 2016)

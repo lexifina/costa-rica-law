@@ -3,8 +3,7 @@
 $10.00 mensual por P.O.S. instalado en comercios afiliados con facturación mensual inferior a $500.00.
 9.2.- Comisión por afiliación al servicio de adquirencia
 $60 a todos los comercios nuevos que deseen afiliarse al servicio de adquirencia BCR; esta comisión se cobrará una única vez.
-9.3.-Comisión por confección de máquina manual a los comercios afiliados
-$35 por cada máquina manual confeccionada para los comercios afiliados, esta comisión se cobrará una vez.
+9.3.-Comisión por confección de máquina manual a los comercios afiliados (Derogado este punto mediante sesión N° 24-2020 del 23 de junio del 2020)
 9.4.-Cobro administrativo en tarjetas de crédito por la conversión de compra en comercios a la modalidad Plan BCR 0%.
 - 3 cuotas: 3% sobre el monto de la transacción a convertir
 - 6 cuotas: 7% sobre el monto de la transacción a convertir.

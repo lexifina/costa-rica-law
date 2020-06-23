@@ -12,6 +12,7 @@ Para créditos abiertos se cobrará cada vez que se realice una operación deriv
 4-Se aplicará un 50 % de la comisión a las personas físicas cuyo salario o pensión es depositado en una cuenta del BCR con excepción del crédito vivienda para pensionados y crédito damnificados por desastres naturales.
 5-En el caso de créditos directos con desembolsos y previa aprobación del Comité de Crédito, el cobro de la comisión se realizará al momento de cada desembolso.
 (Así reformado el punto 1.1) anterior en sesión N° 62-18 del 10 de diciembre del 2018)
+(Nota de Sinalevi: Mediante sesión N° 24-2020 del 23 de junio del 2020 se reforma el punto 1.1) anterior. No obstante, al no ser clara la reforma se transcribe a continuación: “ Crédito BCR Vivienda Accesible 0.75%”)
 (*) 1.2.- Comisión de formalización para cambio de rubro mediante Anexo 14 y para cambio de moneda mediante Anexo 15 de las DAC (personas físicas)
 -$300 de comisión de formalización en el caso de créditos que tengan menos de un año de constituidos.
 $200 en los créditos que tienen más de un año y menos de tres años de constituidos.
@@ -55,8 +56,7 @@ Sobregiros formales e informales documentados
 Se cobrará, además de los intereses correspondientes, una comisión del 2% sobre el saldo no cubierto del sobregiro.
 Mínima $20.00
 (Así corrida su numeración en sesión 24-13 del 24 de junio del 2013, que lo traspaso del antiguo punto 1.5 al 1.6. Lo anterior ya que en dicha sesión se adiciona el numeral 1.2 original y correr la numeración de los siguientes)
-1.7.- Comisión de manejo en operaciones garantizadas con mercadería depositada en bodega de clientes (gastos, kilometrajes y otros)
-$0.10 mensual por cada $5.00 del principal adeudado
+1.7.- Comisión de manejo en operaciones garantizadas con mercadería depositada en bodega de clientes (gastos, kilometrajes y otros)(Derogado este punto mediante sesión N° 24-2020 del 23 de junio del 2020)
 (Así corrida su numeración en sesión 24-13 del 24 de junio del 2013, que lo traspaso del antiguo punto 1.6 al 1.7. Lo anterior ya que en dicha sesión se adiciona el numeral 1.2 original y correr la numeración de los siguientes)
 1.8.- Estudios en el Registro de la Propiedad y estudios personas jurídicas
 $5.00 por cada estudio de índice de bienes inscritos.
@@ -78,8 +78,7 @@ Rige para todos los créditos nuevos otorgados a partir de la aprobación de est
 Los créditos otorgados antes de esta modificación se regirán por la anterior tarifa, o según lo establezca la cláusula o adenda en el contrato de crédito respectivo.
 (Así corrida su numeración en sesión 24-13 del 24 de junio del 2013, que lo traspaso del antiguo punto 1.9 al 1.10. Lo anterior ya que en dicha sesión se adiciona el numeral 1.2 original y correr la numeración de los siguientes)
 (*) (Así reformado el punto 1.10) anterior mediante sesión N° 21 del 23 de mayo de 2016)
-1.11.- Cobro telegramas enviados operaciones vencidas
-$5.00
+1.11.- Cobro telegramas enviados operaciones vencidas (Derogado este punto mediante sesión N° 24-2020 del 23 de junio del 2020)
 (Así corrida su numeración en sesión 24-13 del 24 de junio del 2013, que lo traspaso del antiguo punto 1.10 al 1.11. Lo anterior ya que en dicha sesión se adiciona el numeral 1.2 original y correr la numeración de los siguientes)
 1.12.- Por concepto de administración de proyectos colones y dólares
 Se cobrará un 1% anual pagadero mensualmente sobre los proyectos empresariales a largo plazo.

@@ -26,9 +26,9 @@ $5.00
 Se cobra esta tarifa cuando el cliente ha olvidado el PIN, pero si se le sustituye por problemas atribuibles al Banco no se le deberá cobrar.
 Para los productos de compras institucionales del BCR, no pagarán comisión por reemplazo.
 (Así reformado el punto 3.4) anterior mediante sesión N° 03-17 del 18 de enero del 2017)
-3.5.- Comisión por servicios administrativos en tarjetas de débito
-$10.00 excepto tarjetas: Cuenta Conmigo (HIT), Cuenta Propia (Morpho), Pensionados, y Distribución.
-(Así reformado el punto 3.5) anterior mediante sesión N° 62-18 del 10 de diciembre del 2018)
+3.5 Comisión por servicios administrativos en tarjetas de débito
+$10.00 excepto tarjetas: Cuenta Conmigo (HIT), Cuenta Propia (Morpho), Pensionados, Distribución, pulseras y stickers débito.
+(Así reformado el punto 3.5) anterior mediante sesión N° 24-2020 del 23 de junio del 2020)
 3.6.- Comisión por solicitud de copia de voucher
 $11.50 por voucher consultado a otros procesos o emisores.
 Nota: Este cobro también debe aplicarse para las copias de vouchers o documentación que víncula al cliente con la transacción.
@@ -45,24 +45,40 @@ $5
 3.10.-Comisión por confección de máquina manual a los comercios afiliados
 $35 por cada máquina manual confeccionada para los comercios afiliados, esta comisión se cobrará una vez.
 (Así reformado el punto 3.10) anterior mediante sesión N° 43-14 del 6 de octubre del 2014)
+(Nota de Sinalevi: Mediante sesión N° 24-2020 del 23 de junio del 2020 se reforma el punto 3.10 anterior. No obstante, al no coincidir el texto con la reforma el mismo se transcribe a continuación: “ 3.10 Comisión por solicitud de pulsera y Sticker débito Pulsera (minitarjeta de silicón) $10.00
+Sticker $10.00
+Sustitución y/o solicitud de pulsera adicional (solo silicón) $3.00”)
 3.11.-Cobro administrativo en tarjetas de crédito por la redención de Millas Life Miles
 $5.00 por cada 1000 puntos o fracción para la redención.
 (Así reformado el punto 3.11) anterior mediante sesión N° 43-14 del 6 de octubre del 2014)
+(Nota de Sinalevi: Mediante sesión N° 24-2020 del 23 de junio del 2020 se reforma el punto 3.10 anterior. No obstante, al no coincidir el texto con la reforma el mismo se transcribe a continuación: “3.11 Emisión de tarjeta Prepago
+Tarjeta prepago $10.00”)
 3.12.-Cobro administrativo en tarjetas de crédito por la conversión de compra en comercios a la modalidad Plan BCR 0%.
 - 3 cuotas: 3% sobre el monto de la transacción a convertir
 - 6 cuotas: 7% sobre el monto de la transacción a convertir.
 - 9 cuotas: 10% sobre el monto de la transacción a convertir
 (Así reformado el punto 3.12) anterior mediante sesión N° 43-14 del 6 de octubre del 2014)
+(Nota de Sinalevi: Mediante sesión N° 24-2020 del 23 de junio del 2020 se reforma el punto 3.10 anterior. No obstante, al no coincidir el texto con la reforma el mismo se transcribe a continuación: “ 3.12 Carga de tarjeta Prepago
+Tarjeta Prepago $0.50
+NOTA: El cobro se debe realizar por evento de carga.”)
 3.13.-Comisión por cambio de razón social de comercio afiliado
 $60 por cada cambio de razón social que solicite el comercio afiliado.
 (Así reformado el punto 3.13) anterior mediante sesión N° 43-14 del 6 de octubre del 2014)
+(Nota de Sinalevi: Mediante sesión N° 24-2020 del 23 de junio del 2020 se reforma el punto 3.10 anterior. No obstante, al no coincidir el texto con la reforma el mismo se transcribe a continuación: “ 3.13 Inactividad de tarjeta Prepago Tarjeta prepago Inactividad $6.00
+Saldo al Vencimiento $10.00
+NOTA: El cobro se debe realizar hasta que se consuma el saldo precargado.”)
 3.14.-Implementación del servicio de comercio electrónico (E-Commerce)
 $100.00 por cada implementación, una única vez.
 (Así reformado el punto 3.14) anterior mediante sesión N° 43-14 del 6 de octubre del 2014)
+(Nota de Sinalevi: Mediante sesión N° 24-2020 del 23 de junio del 2020 se reforma el punto 3.10 anterior. No obstante, al no coincidir el texto con la reforma el mismo se transcribe a continuación: “ 3.14 Membresía Anual Jade
+Anual, $100.00”)
 3.15. Protección transacciones comercio electrónico (autenticación 3D secure)
 $40 mensuales por comercio afiliado.
 (Así adicionado el punto 3.15) anterior mediante sesión N° 43-14 del 6 de octubre del 2014)
 (Así reformado el punto 3.15) anterior mediante sesión N° 43-14 del 6 de octubre del 2014)
+(Nota de Sinalevi: Mediante sesión N° 24-2020 del 23 de junio del 2020 se reforma el punto 3.10 anterior. No obstante, al no coincidir el texto con la reforma el mismo se transcribe a continuación: “3.15 Comisión por premora en tarjetas de Crédito: $10.00
+NOTA: La comisión se cobra entre la fecha del pago mínimo del mes y la fecha del siguiente corte.
+Si se cobran intereses moratorios no se cobra comisión por premora.”)
 3.16. Tarifa por reposición de datáfono (POS) extraviados o con daño irreparable por el comercio afiliado.
 $450 por cada dispositivo electrónico extraviado o con daño irreparable.
 (Así adicionado el punto 3.16) anterior mediante sesión N° 43-14 del 6 de octubre del 2014)

@@ -29,6 +29,12 @@ Solo lector $39.00
 Solo tarjeta $32.00
 Renovación $32.00
 Cambio PIN – Desbloqueo $10.00
+(*)C- Costo Tarjeta Firma Digital con Medio de Pago Emisión $55.00
+Solo Lector $30.00
+Solo Tarjeta $25.00
+Renovación $32.00
+Cambio de Pin-Desbloqueo $5.00
+(*)(Así adicionado el inciso c) anterior al punto 4.7) mediante sesión N° 24-2020 del 23 de junio del 2020)
 (Así reformado el punto 4.7) anterior en sesión N° 49-18 del 24 de setiembre de 2018)
 4.8.- Servicio Quick Pass
 Servicio | Costo
@@ -37,15 +43,9 @@ Mantenimiento mensual | $ 1.00
 Sustitución defecto de fábrica (garantía 4 años) | $ 0.00
 Remplazo por pérdida o daño | $35.00
 (Así reformado el punto 4.8) anterior en sesión N° 44 del 14 de octubre de 2015)
-4.9.- Transferencia por medio de web corporativo
-- Para los débitos en tiempo real $2.00
-- Para los débitos directos $0.75
+4.9.- Transferencia por medio de web corporativo (Derogado este punto mediante sesión N° 24-2020 del 23 de junio del 2020)
 (Así reformado el punto 4.9) anterior en sesión N° 44 del 14 de octubre de 2015)
-4.10.- Bancatel Negocios
-$ 2.00 Comisión fija mensual
-Nota:
-Este costo incluye el derecho a consultar hasta 10 cheques al mes. Por cada consulta
-adicional (después del décimo cheque), se cobrará $0.25.
+4.10.- Bancatel Negocios (Derogado este punto mediante sesión N° 24-2020 del 23 de junio del 2020)
 (Así reformado el punto 4.10) anterior en sesión N° 44 del 14 de octubre de 2015)
 (*)4.11.- Cambio de Cheques BNCR
 $2.00 por cada cheque del BNCR que sea cambiado en efectivo en cajas BCR.
@@ -58,3 +58,5 @@ $2.00 por cada depósito a cuentas del BNCR realizado en cajas BCR.
 4.13. Depósitos BNCR
 $2.00 por cada depósito a cuentas del BNCR realizado en cajas BCR.
 (Así adicionado punto 4.13) anterior mediante sesión N° 43-14 del 6 de octubre del 2014)
+4.13 Comisión Host to Host: $1.500.00
+(Así adicionado el punto 4.13) anterior mediante sesión N° 24-2020 del 23 de junio del 2020)
