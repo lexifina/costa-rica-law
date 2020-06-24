@@ -1,0 +1,3 @@
+Artículo 4º—Aspectos primordiales del Informe Final de Gestión. Se instruye a los Jerarcas del Ministerio de Hacienda y Directores de Programa y Subprograma Presupuestario, para que brinden especial atención y comuniquen en el informe de gestión, lo relativo a cambios habidos en el entorno durante el período de su gestión que afecten o se consideren potenciales riesgos al quehacer institucional, señalando para ello los indicadores más importantes en aspectos financieros y operativos.
+Asimismo, deberá informar en cuanto a la administración de los recursos financieros asignados durante su gestión y las sugerencias que estimen necesarias para la buena marcha de la institución.
+Dicho informe será insumo de trabajo para sus sucesores.

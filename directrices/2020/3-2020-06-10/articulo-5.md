@@ -1,0 +1,1 @@
+Artículo 5º—Lineamientos para la confección y presentación de Informes de Fin de Gestión. Es obligación de los Jerarcas del Ministerio de Hacienda y de los Directores de Programa acatar los lineamientos para la confección y presentación de Informes de Fin de Gestión, señalados en la circular DAF-007- 2009, emitida por la Dirección Administrativa y Financiera.

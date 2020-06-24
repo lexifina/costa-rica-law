@@ -1,0 +1,1 @@
+Artículo 2º—Requerimientos del Informe Final de Gestión. Los Jerarcas del Ministerio de Hacienda y Directores de Programa y Subprograma Presupuestario, deben presentar el informe final de gestión cumpliendo con cada uno de los requerimientos que sobre dicha materia se establecen en las directrices emitidas por la Contraloría General de la República.
