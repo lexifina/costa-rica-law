@@ -17,7 +17,7 @@ a) De conformidad con dicha reforma a los lineamientos generales, el importe lib
 b) Luego de aplicado dicho importe a la estimación contracíclica, el remanente se reclasificará en esta cuenta analítica.
 c) El saldo de esta cuenta analítica se reversará mensualmente, como máximo, a razón de un veinticuatroavo (1/24), hasta eliminarla.
 d) De previo a aplicar la reversión indicada en el punto c) anterior, debe verificarse primero el cumplimiento del requerimiento de estimación contracíclica, y reclasificar a esta cuenta el monto que corresponda, hasta donde alcance.”)
-(Nota e Sinalevi: Mediante sesión N° 1542-2019 del 4 de noviembre del 2019, se acordó adicionar las subcuentas y cuentas analíticas para el registro los montos recaudados por las entidades de seguros en los anexos 2 y 4 del presente reglamento. De conformidad con lo establecido en la indicada norma la misma empieza a regir el 1° de enero del 2020. No obstante mediante información suministrada por el Consejo Nacional de Supervisión del Sistema Financiero, los anexos no fueron publicados en el Diario Ofiical La Gaceta, los mismos pueden ser visualizados en la página Web de las Superintendencias Dado lo anterior se transcriben las reformas de los anexos 2 y 4 del Reglamento de Información Financiera vigente a partir de 1° de enero de 2020, conforme el siguiente texto:
+(Nota de Sinalevi: Mediante sesión N° 1542-2019 del 4 de noviembre del 2019, se acordó adicionar las subcuentas y cuentas analíticas para el registro los montos recaudados por las entidades de seguros en los anexos 2 y 4 del presente reglamento. De conformidad con lo establecido en la indicada norma la misma empieza a regir el 1° de enero del 2020. No obstante mediante información suministrada por el Consejo Nacional de Supervisión del Sistema Financiero, los anexos no fueron publicados en el Diario Oficial La Gaceta, los mismos pueden ser visualizados en la página Web de las Superintendencias Dado lo anterior se transcriben las reformas de los anexos 2 y 4 del Reglamento de Información Financiera vigente a partir de 1° de enero de 2020, conforme el siguiente texto:
 Subcuenta |
 2 040 020 330 | Cuenta por pagar 0,5% sobre primas vendidas INEC
 Concepto
@@ -44,3 +44,32 @@ Cuentas Analíticas |
 4 060 090 230 | M 010 Seguros Generales
 4 060 090 230 | M 020 Seguros Personales
 “)
+(Nota de Sinalevi: Mediante resolución N°SGF-2198-2020 del 24 de junio del 2020 se actualizan las cuentas contables en las que se registran los créditos concedidos al Estado y demás instituciones de derecho público. No obstante mediante información suministrada por el Consejo Nacional de Supervisión del Sistema Financiero, los anexos no fueron publicados en el Diario Oficial La Gaceta, los mismos pueden ser visualizados en la página Web de las Superintendencias Dado lo anterior se transcriben las reformas de los anexos I y III del Reglamento de Información Financiera, conforme el siguiente texto: “Entre otras operaciones, pero no limitadas a éstas, deberán considerarse como operaciones activas directas o indirectas aquellas que por su naturaleza se registran en las siguientes cuentas o subcuentas, conforme la codificación del Reglamento de Información Financiera:
+Grupo 130 Cartera de Créditos
+131.35 | Créditos – Sector Público
+132.35 | Créditos - Sector Público
+133.35 | Créditos - Sector Público
+134 | Créditos Restringidos*
+138.35 | Productos por cobrar por Créditos – Sector Público
+138.41 | Cuentas por cobrar asociadas a cartera de créditos*
+Créditos restringidos concedidos al Estado y demás instituciones de derecho público, en cumplimiento de lo dispuesto en el inciso 5) del Artículo 61 de la Ley Orgánica del Sistema Bancario Nacional.
+Grupo 140 Cuentas y Comisiones por Cobrar*
+142.01 | Comisiones por cobrar por créditos contingentes
+147.04 | Otros Gastos por recuperar
+148 | Productos por cobrar asociados a las cuentas por cobrar (derivados de las transacciones registradas en las cuentas y subcuentas de este grupo detallado anteriormente)
+Créditos restringidos concedidos al Estado y demás instituciones de derecho público, en cumplimiento de lo dispuesto en el inciso 5) del Artículo 61 de la Ley Orgánica del Sistema Bancario Nacional.
+| Grupo 610 Cuentas Contingentes Deudoras*
+| 611.01.M.02 | Avales saldo sin depósito previo
+| 611.02.M.02 | Garantía de cumplimiento saldo sin depósito previo
+| 611.03.M.02 | Garantía de participación saldo sin depósito previo
+| 611.04.M.02 | Otras garantías saldo sin depósito previo
+| 612.02 | Cartas de crédito a la vista saldo sin depósito previo
+Grupo 610 Cuentas Contingentes Deudoras* |
+612.04 | Cartas de crédito diferidas saldo sin depósito previo |
+613.01.M.02 | Cartas de crédito confirmadas no negociadas saldo sin depósito previo |
+614 | Documentos descontados |
+615 | Líneas de crédito de utilización automática |
+617.01 | Otras contingencias crediticias |
+619 | Créditos pendientes de desembolsar |
+| | | |
+* Créditos restringidos concedidos al Estado y demás instituciones de derecho público, en cumplimiento de lo dispuesto en el inciso 5) del Artículo 61 de la Ley Orgánica del Sistema Bancario Nacional.”)

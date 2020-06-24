@@ -21,3 +21,4 @@ Reglamento de información financiera
 | 6 | 2020-03-16 | Reglamento 1564 (2020-03-16) |
 | 7 | 2020-04-20 | Reglamento 1570 (2020-04-20) |
 | 8 | 2020-05-04 | Reglamento 1573 (2020-05-04) |
+| 9 | 2020-06-24 | Resolución 2198 (2020-06-24) |
