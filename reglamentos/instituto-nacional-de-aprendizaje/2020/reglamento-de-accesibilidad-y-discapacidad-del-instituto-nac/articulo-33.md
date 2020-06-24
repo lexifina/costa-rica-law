@@ -1,0 +1,6 @@
+Artículo 33. Recursos ordinarios
+Si la persona estudiante, o representante legal, no está conforme con la resolución de apoyo educativo y su aplicación, tendrán derecho a interponer los recursos de revocatoria y apelación. Es optativo uno o ambos, en caso de que la persona recurrente haya interpuesto ambos recursos primero se resolverá la revocatoria y posterior la apelación.
+Los recursos de revocatoria y apelación, que interpongan personas estudiantes que solicitaron apoyo educativo, o sus representantes legales, se deberían remitir a la PECE y en el caso de los SCFP que se imparten afuera de los CE a la persona Encargada del Proceso de Servicio al Usuario de las Unidades Regionales.
+Los recursos de revocatoria serán resueltos por la PECE y en el caso de los SCFP que se imparten fuera de los CE, serán resueltos por la persona Encargada del Proceso de Servicio al Usuario de las Unidades Regionales.
+Los recursos de apelación serán resueltos por la persona jefatura de la Unidad Regional.
+El plazo para interponer ambos recursos es de tres días hábiles a partir de la notificación del acto impugnado, y se tienen interpuestos con solo que el recurrente deje por escrito el motivo de su oposición, sus calidades, firma, dirección exacta de la residencia o correo electrónico para notificaciones.

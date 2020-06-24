@@ -1,0 +1,2 @@
+Artículo 29. Obligación de votar
+Las personas integrantes de la CIAD deben ejercer su derecho al voto, de conformidad con lo dispuesto en los artículos 54 y 57 de la LGAP. No obstante, por decisión de la mayoría de las personas presentes, la presidencia puede postergar la votación por una sola vez, para realizarla en la siguiente sesión; en la que deberán estar presentes, los asistentes de la sesión anterior.
