@@ -1,1 +1,1 @@
-Artículo 11.—De las funciones de las Vocalías. En caso de que el Vicepresidente o el Prosecretario no pudieren sustituir al Presidente o Secretario en sus ausencias temporales, éstos serán sustituidos por los Vocales según el orden de su designación, Vocales que tendrán además las funciones que le asigne el Comité.
+Artículo 11.—De las funciones de las Vocalías. (Suprimido en sesión N° 5745 del 24 de junio del 2020)

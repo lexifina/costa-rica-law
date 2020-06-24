@@ -14,3 +14,4 @@ Reglamento para la organización y funcionamiento del comité de vigilancia de l
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-03-17 | la propia norma |
+| 2 | 2020-06-24 | Reglamento 5745 (2020-06-24) |
