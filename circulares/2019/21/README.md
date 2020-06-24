@@ -13,3 +13,4 @@ Protocolo de Justicia Penal Restaurativa en Contravenciones
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-02-25 | la propia norma |
+| 2 | 2020-06-24 | Circular 126 (2020-06-24) |
