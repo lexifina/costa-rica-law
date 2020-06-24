@@ -1,24 +1,4 @@
-Artículo 15.—Comisiones máximas por gestión cobratoria. Se disponen como comisiones máximas por gestión cobratoria las siguientes:
-a) Para operaciones de crédito con morosidad de 6 a 30 días: US $10.
-b) Para operaciones de crédito con morosidad de 31 días en adelante: Se incrementará la comisión administrativa, según lo establecido en el inciso a), de acuerdo con la siguiente tabla:
-Rangos de Saldo y Comisiones Máximas
-Desde | Hasta | Comisión
-$0 | $30.000 | $10,0
-$30.001 | $50.000 | $15,0
-$50.001 | $75.000 | $25,0
-$75.001 | $100.000 | $35,0
-$100.001 | $150.000 | $50,0
-$150.001 | $200.000 | $25,0
-$200.001 | en adelante | $100,0
-c) Por notificaciones administrativas de cobro en el domicilio o lugar de trabajo del deudor o codeudor de operaciones con atraso mayor a 30 días: se cobrará por cada operación un monto máximo de US $50 o su equivalente en colones, según el monto total adeudado del cliente al momento de la notificación.
-Rangos de Saldo y Castos de Notificación
-Desde | Hasta | Costo
-$0 | $10.000 | $5
-$10.001 | $20.000 | $10
-$20.001 | $40.000 | $15
-$40.001 | $60.000 | $20
-$60.001 | $80.000 | $30
-$80.001 | $100.000 | $40
-$100.001 | en adelante | $50
-d) En lo relativo a cobro judicial: el monto máximo a cobrar será el establecido en el respectivo arancel de honorarios profesionales vigente para cada operación de crédito.
-Las comisiones del inciso a), b) y c) se podrán exonerar al cliente como máximo una vez cada 6 meses, siempre que en el momento realice pagos o arreglos de pago que pongan al día la operación.
+Artículo 15. Comisiones máximas por gestión cobratoria.
+Se dispone como comisiones máximas por gestión cobratoria aquellos cargos por realización evidenciable de una gestión de cobranza administrativa que no podrá ser superior, al monto equivalente al cinco por ciento (5%) de la parte del abono al principal que se encuentra en mora, no pudiendo superar nunca el monto de doce dólares de los Estados Unidos de América ($12), considerando que esta multa aplicará a partir del quinto día de atraso y no podrá aplicarse más de una vez al mes.
+En lo relativo a las gestiones por cobro judicial el monto máximo a cobrar será el establecido en el respectivo arancel de honorarios profesionales vigente para cada operación de crédito.
+Las comisiones enunciadas en este artículo se podrán exonerar al cliente como máximo una vez cada 6 meses, siempre que en el momento realice pagos o arreglos de pago que pongan al día la operación.
