@@ -1,3 +1,0 @@
-CAPÍTULO XII
-Ejecución de la auditoría
-Artículo 39.—Manual Administrativo y Técnico de la Auditoría Interna. El Auditor General deberá formular y mantener actualizado y en uso, un Manual Administrativo y Técnico, con el objeto de definir las características y los procedimientos de auditoria aplicables en la institución. Este Manual deberá emitirse conforme a los lineamientos generales que dicte la Contraloría sobre esta materia, en particular lo dispuesto en el Manual de Normas para el Ejercicio de la Auditoría Interna y en el Manual de procedimientos de auditoria para la Contraloría y las entidades y órganos sujetos a su fiscalización.

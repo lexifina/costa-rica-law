@@ -1,1 +1,0 @@
-Artículo 35.—Presupuesto para capacitaciones. El Auditor General, incluirá dentro del presupuesto anual, los recursos suficientes para cumplir con el programa de capacitación de su personal, tanto en el país como en el extranjero.

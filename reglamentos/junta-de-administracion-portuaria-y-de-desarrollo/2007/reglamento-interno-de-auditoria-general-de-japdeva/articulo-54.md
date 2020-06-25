@@ -1,1 +1,0 @@
-Artículo 54.—El Plan de trabajo y la Valoración del Riesgo. El Plan anual de Trabajo debe responder a los resultados de un proceso continuo de valoración de riesgos. En este proceso debe tenerse en cuenta los criterios de riesgo atinentes a las Gerencias y Consejo de Administración, entre otros que se consideren necesarios.

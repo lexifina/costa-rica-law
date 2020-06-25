@@ -1,1 +1,0 @@
-Artículo 41.—Pericia y debido cuidado profesional. Todo el personal de la Auditoría debe realizar su trabajo con pericia y cuidado profesional. Las personas designadas para cada trabajo deberán poseer en conjunto, los conocimientos, técnicas habilidades y otras competencias para ejecutar adecuadamente el trabajo.

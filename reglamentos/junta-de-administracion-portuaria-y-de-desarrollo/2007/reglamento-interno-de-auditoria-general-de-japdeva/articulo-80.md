@@ -1,1 +1,0 @@
-Artículo 80.—Responsabilidad sobre la evaluación interna. El Auditor deberá iniciar y supervisar el proceso de evaluación interna, asegurarse de que el equipo seleccionado esté calificado y sea tan independiente como sea factible. Además, el Auditor deberá revisar los resultados de cada evaluación interna formal y asegurarse de que se haya tomado la acción correctiva apropiada.

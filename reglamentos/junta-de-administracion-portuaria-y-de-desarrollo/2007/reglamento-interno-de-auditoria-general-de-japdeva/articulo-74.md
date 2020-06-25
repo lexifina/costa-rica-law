@@ -1,1 +1,0 @@
-Artículo 74.—Valoración del Riesgo. La actividad de Auditoría General conforme a sus competencias debe promover mejoras en la valoración del riesgo de los procesos de dirección, de las operaciones y de los sistemas de información de la institución, en relación con lo estipulado en el artículo 8ª de la Ley 8292.

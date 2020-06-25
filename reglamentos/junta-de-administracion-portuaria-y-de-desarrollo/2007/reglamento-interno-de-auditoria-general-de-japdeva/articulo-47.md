@@ -1,1 +1,0 @@
-Artículo 47.—Universo Fiscalizable. El ámbito de acción de la Auditoría abarca todas las actividades de la institución, incluyendo funciones administrativas, financieras, contables, presupuestarias, inversión de recursos, desembolsos, gastos en general y todas las que impliquen un cambio en el patrimonio de la institución y de los servicios que presta.

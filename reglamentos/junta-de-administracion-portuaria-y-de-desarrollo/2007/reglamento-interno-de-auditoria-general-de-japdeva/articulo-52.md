@@ -1,1 +1,0 @@
-Artículo 52.—Componentes del Plan Anual de Trabajo. El Auditor General debe preparar un Plan Anual de Trabajo congruente con la planificación estratégica, cuyo contenido abarque todas las actividades que se pretenden realizar durante el año. Este Plan debe mantenerse actualizado y respaldado presupuestariamente.

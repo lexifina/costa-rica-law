@@ -1,1 +1,0 @@
-Artículo 87.—Derogatoria del Reglamento. Este reglamento deja sin efecto el Reglamento de Organización y Funciones de la Auditoría General aprobado por el Consejo de Administración en sesión extraordinaria Nº 13-88, artículo I, celebrada el 21 de noviembre de 1988.

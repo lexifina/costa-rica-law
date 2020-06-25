@@ -1,1 +1,0 @@
-Artículo 78.—Supervisión. Cada auditoria o estudio especial de auditoría deberá ser supervisado para asegurar su conformidad con las normas de la Auditoría, las políticas y los programas de auditoría.

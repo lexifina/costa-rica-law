@@ -1,1 +1,0 @@
-Artículo 45.—Supervisión del trabajo. Todos los trabajos de la Auditoría deben ser supervisados a lo largo de su ejecución, para asegurar el logro de los objetivos, la calidad del trabajo y el mejoramiento continuo del desarrollo profesional del personal.

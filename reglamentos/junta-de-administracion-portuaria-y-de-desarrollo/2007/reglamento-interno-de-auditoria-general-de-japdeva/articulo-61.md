@@ -1,1 +1,0 @@
-Artículo 61.—Estructura de los informes. Los informes de auditoría indicarán los objetivos, el alcance, los hallazgos, conclusiones y recomendaciones y demás resultados del trabajo, según la naturaleza de este.
