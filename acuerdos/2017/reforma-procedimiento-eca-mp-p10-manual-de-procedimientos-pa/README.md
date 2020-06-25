@@ -14,3 +14,4 @@ Reforma Procedimiento ECA-MP-P10 Manual de Procedimientos para la Evaluación y 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-06-16 | la propia norma |
+| 2 | 2020-06-25 | Acuerdo 8 (2020-06-25) |
