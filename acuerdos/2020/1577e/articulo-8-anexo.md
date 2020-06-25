@@ -1,0 +1,15 @@
+ANEXO H
+OPERACIONES EN FRONTERA TERRESTRE EN CASO DE PRESENTARSE UNA EVENTUALIDAD DE RIESGO O DE CONTAGIO DEL COVID-19
+En los puestos fronterizos terrestres aplicarán el siguiente procedimiento:
+a. El transportista podrá consignar en el campo 55 “Observaciones Generales” de la Declaración Única Centroamericana (DUCA-T), la información de la o las personas que reemplazarán al conductor o piloto, en caso que a este se le impida continuar con su trayecto por razones de salud objeto de estos Lineamientos. Dicha información se consignará al momento de generar la Declaración.
+b. Previo al ingreso a la zona primaria, la autoridad de salud evaluará si los conductores o pilotos de medios de transporte de mercancías ya sea con carga o vacíos, presentan síntomas de COVID-19, así como otras medidas de prevención o mitigación de propagación de acuerdo con los protocolos sanitarios vigentes.
+c. Si de la aplicación de los protocolos sanitarios previstos, se detecta que un conductor o piloto presenta síntomas de la enfermedad, se procederá a:
+i. Notificar al piloto o conductor, y se aplicarán las medidas sanitarias de conformidad con los protocolos vigentes;
+ii. Solicitar al piloto o conductor traslade el medio de transporte y su carga a la zona de estacionamiento establecida en cada puesto fronterizo terrestre, donde la autoridad de salud procederá con la desinfección y sanitización de la unidad de transporte, tanto en su interior como exterior, así como a la carga que transporta;
+iii. La autoridad de salud en el puesto fronterizo terrestre notificará a la autoridad aduanera y migratoria, la aplicación de medidas sanitarias al conductor o piloto;
+iv. El conductor o piloto notificará al transportista propietario del medio de transporte; o a la empresa dueña de la carga (importador o exportador) de las medidas adoptadas por la autoridad de salud;
+v. Designar, por parte del transportista, un nuevo conductor o piloto y/o designar una nueva unidad de transporte. Con un nuevo piloto/conductor o medio de Transporte cuando proceda, debidamente autorizado por el transportista y verificado por la autoridad de salud, se continuará con el proceso de despacho aduanero y migratorio correspondiente;
+vi. El transportista tendrá un plazo de 72 horas para realizar el cambio de conductor y las gestiones correspondientes relacionadas con el medio de transporte y las mercancías;
+vii. La autoridad aduanera, procederá con las modificaciones que corresponda en los documentos de la DUCA-T según corresponda;
+viii. La autoridad aduanera deberá dar consideración a la suspensión de los plazos para los medios de transporte en el régimen en tránsito y que debido a que los pilotos/conductores sean sintomáticos, se les impida el paso, y se reanudarán al momento de la salida de la zona primaria; así como las actualizaciones correspondientes en los sistemas informáticos que les aplique.
+d. Si de la aplicación de los protocolos sanitarios previstos no se detectan síntomas en el conductor o piloto del medio de transporte, se procederá a autorizar su ingreso a zona primaria de conformidad con la legislación aplicable por el país.
