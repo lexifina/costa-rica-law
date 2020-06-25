@@ -14,3 +14,4 @@ Reforma procedimiento ECA-MC-P23 Conformación y Sesión de Órganos Colegiados
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-06-23 | la propia norma |
+| 2 | 2020-06-25 | Acuerdo 8 (2020-06-25) |
