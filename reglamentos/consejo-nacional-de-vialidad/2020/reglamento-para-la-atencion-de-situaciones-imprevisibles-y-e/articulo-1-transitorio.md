@@ -1,0 +1,1 @@
+Transitorio Único: Los procedimientos de contratación por imprevisibilidad de conformidad con los alcances de este Reglamento, que hayan iniciado de previo a entrada en vigencia, continuaran regulándose bajo las disposiciones anteriores.

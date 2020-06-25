@@ -1,0 +1,1 @@
+Artículo 21. Multas. De conformidad con el artículo 47 del “RLCA”, la Gerencia de Conservación de Vías y Puentes deberá aplicar las multas correspondientes, para ello se deberá observar lo dispuesto en las directrices internas emitidas por el CONAVI.

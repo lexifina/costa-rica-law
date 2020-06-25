@@ -1,0 +1,1 @@
+Artículo 31. Derogatoria. Se deroga el Manual de políticas operativas y procedimientos No. PP-18-30.30.0-01 de la Gerencia de Conservación de Vías y Puentes, en lo relativo al procedimiento de imprevisibilidad.

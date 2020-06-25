@@ -1,0 +1,1 @@
+Artículo 18. Orden de inicio. La orden de inicio será suscrita en forma mancomunada solo por el ingeniero de zona y el Director Regional, debiéndose consignar la fecha a partir de la cual se debe dar inicio al objeto del contrato.

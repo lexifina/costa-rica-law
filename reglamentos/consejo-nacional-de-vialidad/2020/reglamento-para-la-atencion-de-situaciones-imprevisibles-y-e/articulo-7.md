@@ -1,0 +1,1 @@
+Artículo 7.De la unidad ejecutora. Que, considerando la naturaleza de los trabajo para la atención de eventos imprevisibles, los procedimientos tramitados bajo este reglamento, serán ejecutados solo por la Gerencia de Conservación de Vías y Puentes, y la unidad ejecutora del contrato estará conformada por el Director Regional y el ingeniero de la zona.

@@ -1,0 +1,3 @@
+Artículo 12. Solicitud de anuencia. Aprobado el inicio de la contratación, el ingeniero de la zona deberá acudir a la lista de potenciales contratistas por zona establecida por la Dirección Regional, debiendo solicitar la anuencia de al menos tres de los potenciales contratistas de esa lista para la realización de los trabajos.
+Lo anterior puede ser en forma escrita mediante un oficio o por correo electrónico.
+En todo momento es responsabilidad de la unidad ejecutora garantizar una adecuada rotación de las solicitudes de anuencia de los potenciales contratistas que conforman la lista por zona, garantizando así el cumplimiento de los principios constitucionales de transparencia, igualdad de trato y libre concurrencia.

@@ -1,0 +1,1 @@
+Artículo 11. Aprobación de la Contratación. El Gerente de Conservación de Vías y Puentes dará la aprobación al Director Regional y al ingeniero de la zona, para el inicio del procedimiento por imprevisibilidad. Lo anterior puede ser en forma escrita mediante un oficio o por correo electrónico.

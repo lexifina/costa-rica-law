@@ -1,0 +1,1 @@
+Artículo 22. Modificaciones contractuales. Cualquier variación a los elementos esenciales del presente contrato se efectuará conforme con los parámetros establecidos por la Ley de Contratación Administrativa y su respectivo Reglamento.

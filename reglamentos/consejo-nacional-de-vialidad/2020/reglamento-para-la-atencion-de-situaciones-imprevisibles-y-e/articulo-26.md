@@ -1,0 +1,1 @@
+Artículo 26. Publicación. De conformidad con lo dispuesto en los artículos 4 y 5 de la Ley No. 8220 “Protección al ciudadano del exceso de requisitos y trámites administrativos”, la Proveeduría Institucional y la Dirección de Tecnologías de la Información, deberán publicar – respectivamente- en La Gaceta y en la Internet e Intranet el presente Reglamento.
