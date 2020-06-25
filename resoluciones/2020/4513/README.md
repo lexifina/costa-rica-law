@@ -21,3 +21,4 @@ Cierre temporal establecimientos permiso sanitario de funcionamiento distritos P
 | 6 | 2020-06-19 | Resolución 4811 (2020-06-19) |
 | 7 | 2020-06-23 | Resolución 4853 (2020-06-23) |
 | 8 | 2020-06-24 | Resolución 4876 (2020-06-24) |
+| 9 | 2020-06-25 | Resolución 4895 (2020-06-25) |
