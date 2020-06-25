@@ -1,18 +1,13 @@
 Artículo 8º—Departamento de Asesoría Legal. Al Departamento de Asesoría Legal le corresponderá:
-a) Elaborar, a petición y en coordinación con la unidad técnica especializada, las actas de desecho de bienes muebles y otros bienes que por sus características no se les asigna número de código. Para la elaboración de estas actas sin códigos de barras, el Departamento de Asesoría Legal deberá tener al menos la siguiente información:
-I. Declaración de la unidad técnica especializada de que son bienes en desuso o desechados.
-II. Descripción del bien o los materiales (cantidad cuando sea posible individualizarlo).
-III. Ubicación de los bienes (edificio, almacén, puesto de seguridad más próximo).
-IV. Procedencia de los materiales o bienes muebles (oficina, edificio).
-V. Estado de los bienes (bueno, malo, en desuso, para desecho, para cesión).
-VI. Quien retira el bien de la institución, ya sea empresa, institución, particular (en los casos en que el bien es retirado de la institución).
-VII. Nombre y firma del funcionario responsable, con sello de la unidad técnica respectiva.
-b) Elaborar, a petición del Departamento de Proveeduría y en coordinación con la unidad técnica especializada, las actas de desecho o desuso, de bienes muebles a los que se les asignó un número de código. Para la elaboración de estas actas con códigos de barras, el Departamento de Asesoría Legal deberá tener al menos la siguiente información:
-I. Declaración de la unidad técnica especializada de que son bienes en desuso o desecho que pueden ser cedidos a las diferentes instituciones citadas en el Capítulo XI.
-II. Descripción del bien mueble, número de código de barras, marca, modelo, número de serie y, cuando sea posible, indicar si el bien está en desuso o es desecho, pero que es objeto de cesiones.
-III. Estado de los bienes muebles (bueno, malo, regular).
-IV. Ubicación de los bienes (almacén, edificio o puesto de seguridad más próximo).
-V. Elaboración de los convenios de préstamos de bienes muebles con otras instituciones.
-VI. Nombre y firma del funcionario responsable con sello de la unidad técnica respectiva.
-VII. Aquello que se indique en la Ley general de la Administración Pública.
-c) Enviar copia de las actas de desecho, desuso, de bienes muebles con código, a los Departamentos de Proveeduría y Financiero, para que procedan con los cambios en los sistemas correspondientes. Además el Departamento Legal enviará copia de las actas de desecho o desuso de bienes muebles sin número de código de barras al Departamento Financiero.
+a) Elaborar, a petición y en coordinación con la unidad técnica especializada, las actas de desecho o desuso de bienes que por sus características no se les asigna número de código. Para la elaboración de estas actas sin código, el Departamento de Asesoría deberá tener al menos la siguiente información:
+I.- Dictamen de la unidad técnica especializada de que son bienes en desuso o desecho.
+II.- Descripción del bien o los materiales (cantidad cuando sea posible individualizarlo).
+III.- Ubicación de los bienes (edificio, almacén, puesto de seguridad más próximo).
+IV. Nombre y firma del funcionario responsable, con sello de una unidad técnica respectiva.
+b) Elaborar, por vía de excepción y a solicitud del Área de Suministro y Bienes Muebles, el acta sea de desecho o desuso, de bienes muebles a los que se les asignó un número de código. Para la elaboración de estas actas, el Departamento de Asesoría Legal deberá tener al menos la siguiente información:
+I.- Dictamen elaborado por Área de Suministros y Bienes Muebles, con base en la información suministrada por las unidades especializadas, donde se indica el estado de bien y su clasificación, nombre y firma del funcionario responsable y el sello correspondiente.
+II.- Descripción del bien, incluyendo su código.
+III.- Ubicación de los bienes.
+IV.- Aquello que se indique en la Ley General de la Administración Pública.
+c)- Enviar copia de las actas de desecho, desuso, de bienes muebles con código, a los Departamentos de Proveeduría y Financiero, para que procedan con los cambios en los sistemas correspondientes.
+(Así reformado mediante sesión N° 116-2020 del 25 de junio del 2020)

@@ -17,3 +17,4 @@ Reglamento de bienes muebles de las Asamblea Legislativa
 | 2 | 2017-02-21 | Acuerdo 2 (2017-02-21) |
 | 3 | 2017-09-20 | Reglamento 180 (2017-09-20) |
 | 4 | 2017-12-19 | Reglamento 199 (2017-12-19) |
+| 5 | 2020-06-25 | Reglamento 116 (2020-06-25) |

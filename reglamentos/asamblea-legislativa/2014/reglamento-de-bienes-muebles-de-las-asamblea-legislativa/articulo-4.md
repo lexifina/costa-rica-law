@@ -1,15 +1,19 @@
 CAPÍTULO II
 Definiciones
 Artículo 4º—Definiciones. Para todos los efectos de interpretación que se deriven de la aplicación de este Reglamento, deben entenderse los términos de la siguiente manera:
-Actas: Declaraciones de recepción, donación, cesión, desecho y desecho sin código.
+Actas: Declaraciones de recepción, donación, desecho y desuso sin código. En casos de excepción, según el artículo 65 bis, se realizarán actas desecho y desecho de bienes con código y para los bienes sin código se realizarán actas de desecho y desuso según lo indicado en el artículo 8° inciso a.
+(Así reformada la definición anterior mediante sesión N° 116-2020 del 25 de junio del 2020)
 Adiciones o mejoras: Erogaciones monetarias que tienen el efecto directo de aumentar el valor de un bien existente, al incrementar su capacidad, vida útil o su eficiencia; por lo tanto, estas deben cargarse al valor del bien.
 Administración de garantías: Proceso que procura obtener el máximo provecho de la inversión inicial en los bienes muebles y mantener las condiciones de operación y de servicio, registrando, conservando y controlando la vigencia de los documentos de respaldo.
 Alta de bienes muebles: Entrada o ingreso de bienes muebles a la Asamblea Legislativa por compra, confección, donación, inventario inicial y aparición de bienes muebles dados de baja.
 Asignación y distribución de bienes muebles: Proceso que se realiza conforme al programa de adquisición del Departamento de Proveeduría y a este Reglamento, siguiendo los procedimientos establecidos.
 Área de Suministros y Bienes Muebles: Área de Suministros y Bienes Muebles del Departamento de Proveeduría.
 Baja de bienes muebles: Eliminación de los bienes muebles de los registros de la institución por motivo de disposición final o sustracción, y siempre que se sigan los procedimientos establecidos en este Reglamento.
+Bien en buen y regular estado: Aquel bien que ha sido valorado como bueno o regular por la unidad técnica correspondiente, ha sido devuelto al Almacén de Bienes Muebles y queda en condición de desuso.
+(Así adicionada la definición anterior mediante sesión N° 116-2020 del 25 de junio del 2020)
 Bien en desuso: Aquel bien declarado por la unidad técnica especializada como obsoleto, deteriorado, o bien, que no sea útil o necesario por otras razones técnicamente calificadas, para las labores que desarrolla la institución.
-Bien en mal estado: Aquel bien declarado en estado de desecho por deterioro físico o funcional por la unidad técnica especializada, en virtud de su estado físico y que no tenga utilidad alguna; para tal efecto se levantará el acta de declaración de desecho.
+Bien en mal estado: Aquel bien que ha sido valorado como malo por la unidad técnica correspondiente, devuelto al Almacén de Bienes Muebles y que queda en condición de desecho.
+(Así reformada la definición anterior mediante sesión N° 116-2020 del 25 de junio del 2020)
 Bienes muebles: Todos los bienes institucionales que hayan sido adquiridos por medio de compra o donación de un tercero y que faciliten la ejecución de las funciones y las actividades conexas de los funcionarios o actividades oficiales de la institución, tales como maquinaria, vehículos, mobiliario y equipo de oficina, instrumentos, electrodomésticos, equipo eléctrico, equipo electrónico, equipo especializado y software, que por su vida útil, costo, disposición de ley o de este Reglamento se identifiquen como tales.
 Compras: Adquisición de bienes muebles realizada por el Departamento de Proveeduría para satisfacer los requerimientos de la institución, de acuerdo con los procedimientos establecidos en la Ley de contratación administrativa, su Reglamento y la normativa institucional interna.
 Custodia: Obligación que tiene cada funcionario de cuidar, proteger y vigilar los bienes muebles que se le han asignado.
@@ -20,6 +24,12 @@ Departamento o unidad técnica: Aquel departamento o unidad designado en el proc
 Dependencia institucional: Órgano legislativo, jefatura de fracciones, independiente, comisión, oficina administrativa y despacho de diputados.
 Depreciación: Gasto no erogable de una parte del costo del bien, dentro de su vida útil, de acuerdo con lo que establece el presente Reglamento.
 Determinación de requerimientos: Cuantificación de los bienes muebles o recursos necesarios para la gestión de cada dependencia, conforme a los proyectos, procesos y actividades que se ejecutan en ella.
+Dictamen técnico de valoración: Declaración de las unidades técnicas correspondientes sobre el estado físico de los bienes muebles, sea como bueno, regular o malo.
+(Así adicionada la definición anterior mediante sesión N° 116-2020 del 25 de junio del 2020)
+Dictamen de baja de bienes muebles: Declaración del Área de Suministros y Bienes Muebles, de bienes muebles en desuso o desecho, de acuerdo con su valoración técnica, los cuales deberán ser retirados el inventario institucional.
+(Así adicionada la definición anterior mediante sesión N° 116-2020 del 25 de junio del 2020)
+Dictamen de donación: Es el dictamen de bienes muebles donados a través de la Comisión de Donaciones de Bienes Muebles, producto de los dictámenes de baja de bienes para desuso.
+(Así adicionada la definición anterior mediante sesión N° 116-2020 del 25 de junio del 2020)
 Directorio legislativo: Máximo órgano jerárquico institucional.
 Disposición final de bienes muebles: Proceso que determina cuándo un bien dejará de pertenecer a la institución, conforme a los procedimientos que se establezcan al efecto.
 Equipo: Colección de instrumentos y aparatos que constituyen un medio para producir. Dentro de esta categoría se incluyen computadoras, máquinas de escribir, calculadoras, faxes, fotocopiadoras, grabadoras, equipos de sonido y otros. De igual forma, en esta categoría también se incluye maquinaria con características especiales como equipo de impresión.
