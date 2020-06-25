@@ -1,2 +1,5 @@
 2. ALCANCE
-Aplica a todos los órganos colegiados del ECA.
+Aplica a los órganos colegiados del ECA:
+- Junta Directiva.
+- Comisión de acreditación.
+- Comité Ejecutivo.

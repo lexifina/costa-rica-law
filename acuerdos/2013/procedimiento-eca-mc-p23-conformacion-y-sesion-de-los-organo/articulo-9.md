@@ -1,3 +1,5 @@
-9. IDENTIFICACIÓN DE CAMBIOS Motivo: | Modificación del procedimiento
-Refiérase a la solicitud de elaboración o modificación del documento número 2016- 083
-Observaciones: Se modifica la estructura completa del procedimiento. Se subrayan los cambios en cada apartado del procedimiento.
+9 PROCESO DE INDUCCIÓN PARA ÓRGANOS COLEGIADOS
+La inducción se realiza cada vez que ingresa un nuevo integrante a un órgano colegiado del ECA.
+El responsable de cada órgano colegiado coordina con cada responsable el paso de la inducción que le corresponda y asegura que los instrumentos utilizados existan en formato digital, prepara las listas de asistencia correspondientes y completa el ECA-P22-F01 Registro de inducciones, donde se indica la fecha, quién es el responsable de brindar la inducción, el tema que se desarrolla, qué documentos de referencia utiliza, los nombres de las personas a las que se dirige la inducción y puede anotar algunas observaciones que considere necesarias
+El programa de inducción para el integrante del órgano colegiado debe contener toda la información para que el integrante posea las competencias necesarias que se indican en la matriz de competencias, de acuerdo a sus funciones.
+La alta dirección del ECA podrá determinar de acuerdo a las necesidades de capacitación, actualización o como mecanismo recordatorio la programación de una inducción como mínimo al año para los integrantes de los órganos colegiados; el tema principal de esta inducción es procedimientos del Sistema de Gestión de Calidad del ECA y su aplicación según los lineamientos internacionales.

@@ -1,0 +1,14 @@
+12 EXPEDIENTES DE LOS INTEGRANTES DE LOS ORGANOS COLEGIADOS
+Los asistentes de los órganos colegiados deben mantener actualizados los expedientes, los cuales deben contener como mínimo:
+| Etapas | Observaciones
+1 | Compromiso de Confidencialidad | Cada año la presidencia del órgano colegiado deberá gestionar con la persona asistente del órgano para que se actualice en enero. Debe de estar en orden cronológico de los anteriores. Si el miembro pertenece al cuerpo de evaluadores colocar un oficio realizado por la Gestoría de calidad donde indique que es evaluador también. Debe haber copia del ECA-MC-P01-F02 Compromiso de Confidencialidad, Imparcialidad y Objetividad en caso de que también sea evaluador. Si es personal del ECA debe también existir copia de la información que se encuentra en recursos humanos.
+2 | Currículo Vitae | Curriculum vitae completo según lo presentado a Comisión para que fuera nombrado por la Junta.
+3 | Atestados | Título universitario en pregrado, grado o postgrado, capacitaciones recibidas, así como cualquier participación en seminarios relacionadas con el área que está representando en el órgano colegiado.
+3 | Nombramiento | Acta, oficio o traslado de acuerdo, nombramiento o documento donde adquirió su investidura según aplique. Debe constar el período de vigencia (desde- hasta) según aplique. Debe constar el sector del que proviene.
+4 | Datos personales | El directorio debe estar actualizado, con los datos personales de cada miembro.
+5 | Plan de Capacitación Individual | Se debe de revisar una vez al año por la Coordinación de la Secretaría respectiva. Deben constar todas las capacitaciones que el ECA le ha brindado.
+7 | Estudio de las Competencias | Para cada uno de los miembros del órgano colegiado
+8 | Evaluaciones de Desempeño | Cada año la coordinación o presidencia del órgano colegiado deberá gestionar con la Asistencia del lice en enero.
+La persona asistente del órgano colegiado será la responsable de mantener actualizado los expedientes de los integrantes de los órganos colegiados de acuerdo con lo indicado en el cuadro anterior. La secretaria (o) del órgano le realizará un recordatorio semestral sobre la revisión y actualización de los expedientes con la finalidad de que se cumpla con los requisitos subjetivos que deban constar de manera documental.
+Los participantes del órgano colegiado deben cumplir con los documentos que se les requieran al efecto, por lo que deberán cumplir con las solicitudes para completar documentos faltantes en un plazo de no más de 15 días naturales. En caso de no cumplirse esto será comunicado a la presidencia del órgano, o en su defecto al órgano superior, para que se le realice el debido proceso.
+Adicionalmente la persona asistente debe revisar cada 6 meses el directorio del órgano colegiado, dejando evidencia en el mismo de su revisión y actualización.

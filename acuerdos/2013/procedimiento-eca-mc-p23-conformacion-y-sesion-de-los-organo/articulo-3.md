@@ -1,8 +1,12 @@
-3. DEFINICIONES
-- Comité Disciplinario ad hoc: Órgano director de un procedimiento administrativo, nombrado por la Comisión de Acreditación para instruir y averiguar los hechos sobre posible incumplimiento de las obligaciones establecidas para los Organismos de Evaluación de la Conformidad, OEC acreditados.
-- Mayoría absoluta: Más de la mitad de la totalidad de los miembros.
-- Mayoría calificada: Dos terceras partes de la totalidad de los miembros.
-- Órganos colegiados: Cuerpo integrado por varias personas físicas que se encuentran en un plano de decisión horizontal, de manera tal que la decisión que toman es la manifestación ideológica (voluntad o juicio) colectivamente expresada por todas o por la mayoría de esas personas, decisión que se considera manifestación del órgano. Cada miembro aporta la contribución de su condición personal, de su preparación, de su experiencia; integrando las eventuales deficiencias de los otros miembros y aún frenando la visión unilateral de alguno de ellos. Los Órganos Colegiados del ECA son: Junta Directiva, Comité Ejecutivo, Comisión de Acreditación, Comité Disciplinario, Comités Asesores y Comités Técnicos ad hoc.
-- Quórum estructural: Cuando la totalidad de la estructura organizativa del órgano colegiado está debidamente nombrado.
-- Voto disidente: Voto a favor, pero con razonamiento diferente al resto de los miembros del órgano colegiado.
-- Voto en contra: Voto en total desacuerdo.
+3. DEFINICIONES CONFORMACIÓN Y SESIÓN DE LOS ÓRGANOS COLEGIADOS
+Abstención: es cuando el miembro del órgano colegiado no puede votar porque ha identificado que tiene impedimentos para intervenir en un procedimiento administrativo, y por ende en una toma de decisión.
+Acta: documento formal que contiene la información respecto a discusión, toma de decisión y asistencia de una sesión tanto ordinaria como extraordinaria.
+Acuerdo: manifestación simultánea de la voluntad de todos los miembros presentes en una sesión luego de haber realizado una deliberación al respecto, contiene la toma de decisión sobre un asunto sometido al conocimiento de un órgano colegiado. Es un acto administrativo y le aplican todas sus reglas.
+Causales de abstención: situaciones que configuran la necesidad de que el miembro del colegio no deba ni pueda votar sobre el asunto sometido a conocimiento, por ende, se tenga que abstener.
+Mayoría absoluta: La mitad más un integrante de la totalidad de los miembros. Es el mínimo que considera la ley para tomar la mayoría de los acuerdos.
+Mayoría calificada: Dos terceras partes de la totalidad de los miembros. Se exige en algunos casos para ciertos acuerdos.
+Órganos colegiados: Cuerpo decisor integrado por varias personas físicas previamente nombradas mediante un procedimiento definido. Todos los integrantes se conocen como miembros y se encuentran en un plano de decisión horizontal, de manera tal que el resultado es la manifestación de voluntad o criterio al respecto de un asunto y todos poseen la misma autoridad y responsabilidad en la toma de decisiones.
+Quórum estructural o estructura legal: Cuando la totalidad de la estructura organizativa del órgano colegiado está debidamente nombrada. Sólo está constituido el quórum estructural cuando todas las representaciones están nombradas, y están ocupadas por un miembro titular, o en su defecto un miembro suplente puede ocuparlo de manera temporal. El quórum estructural es lo que le da la validez y existencia al órgano, debe haber nombramientos para la totalidad de las sillas ocupadas en el órgano.
+Quórum funcional: es el número mínimo de miembros reunidos en una sesión para la toma decisiones, si este número se cumple tanto la sesión como las decisiones tienen validez. Hay diversos tipos de acuerdos en que se solicitan mayoría calificada o mayoría absoluta, en cuyo caso ese se constituiría en su quórum funcional. Este número mínimo es definido por ley y no puede ser modificado.
+Sesión: momento en que se reúnen un órgano colegiado para deliberar cumpliendo formalidades legales.
+Voto disidente o en contra: Voto en total desacuerdo.
