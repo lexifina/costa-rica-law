@@ -14,3 +14,4 @@ Crea el Comisionado de la Presidencia de la República para asuntos relacionados
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-05-29 | la propia norma |
+| 2 | 2020-06-25 | Decreto Ejecutivo 42419 (2020-06-25) |
