@@ -1,0 +1,1 @@
+ARTÍCULO 16- Disuasión e intimidación. Será sancionado con pena de prisión de tres a cinco años, quien, por cualquier medio, intimide o disuada a otra persona para evitar la denuncia, el testimonio, la investigación, la promoción y el ejercicio de la acción penal o el juzgamiento de las actividades delictivas descritas en esta ley.

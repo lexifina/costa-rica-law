@@ -1,0 +1,2 @@
+ARTÍCULO 6-Robo de combustibles derivados del petróleo o sus mezclas Se impondrá la pena de prisión de cinco a quince años, a quien, mediante el uso de la fuerza o violencia sobre las personas, se apodere ilegítimamente(*) de combustibles derivados del petróleo o sus mezclas, los cuales pertenecen al Sistema Nacional de Combustibles.
+(*)(Corregido mediante Fe de Erratas publicada en La Gaceta N° 179 del 22 de julio del 2020, página N° 2)
