@@ -1,0 +1,1 @@
+Artículo 6°—Los vehículos municipales no pueden usarse en acciones diferentes a las que competen a la Corporación Municipal. La violación de esta norma se considerará falta grave a las obligaciones del cargo. Una vez cumplidas las labores, los vehículos automotores deben alojarse en instalaciones municipales.

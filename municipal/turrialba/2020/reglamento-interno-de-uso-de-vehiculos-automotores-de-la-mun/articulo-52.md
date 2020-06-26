@@ -1,0 +1,1 @@
+Artículo 52.—Divulgación del Reglamento. Departamento de Recursos Humanos velará por la debida divulgación de este Reglamento, mediante el uso de las tecnologías de la información, comunicación, entre otros.

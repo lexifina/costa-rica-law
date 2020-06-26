@@ -1,0 +1,1 @@
+Artículo 22.—Protecciones. Para cumplir con lo establecido en el capítulo II de la Ley de Tránsito por Vías Terrestres y dar una amplia protección a la flotilla, todos los vehículos deberán estar cubiertos por el seguro obligatorio de vehículos y una póliza de seguro del Instituto Nacional de Seguros.

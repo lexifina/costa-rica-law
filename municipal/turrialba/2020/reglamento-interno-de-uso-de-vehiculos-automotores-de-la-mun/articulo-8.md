@@ -1,0 +1,1 @@
+Artículo 8°—Por las funciones propias de la Alcaldía Municipal, queda autorizado el uso vehicular en horarios y desplazamientos a distintas partes del país, fuera del rango horario y restricción territorial anotados en este reglamento, siempre y cuando el uso esté estrictamente relacionados a las labores propias del cargo

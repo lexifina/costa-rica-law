@@ -1,0 +1,1 @@
+Artículo 51.—Definición de controles internos. La Jefatura del Departamento de Recursos Humanos definirá las normas y procedimientos de control interno adicionales que estime necesarias tendientes a lograr un adecuado uso de los vehículos de la Municipalidad de Turrialba.

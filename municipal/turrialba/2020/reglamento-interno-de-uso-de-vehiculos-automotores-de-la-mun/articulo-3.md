@@ -1,0 +1,1 @@
+Artículo 3°—Está terminantemente prohibido que en los vehículos municipales viajen personas ajenas a la municipalidad, o que, siendo funcionario o empleado, no se justifique; salvo los casos en que, para estas excepciones, la Alcaldía Municipal haya extendido por escrito el respectivo permiso mediante el documento que se designe para este fin.

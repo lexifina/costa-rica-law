@@ -1,0 +1,1 @@
+Artículo 29.—Personas autorizadas para conducir vehículos. Únicamente están autorizados para conducir vehículos de uso administrativo de la Municipalidad de Turrialba los servidores que ocupen puesto de conductor, y aquellos funcionarios o servidores autorizados por la Jefatura de Recursos humanos en conjunto con la Alcaldía Municipal.

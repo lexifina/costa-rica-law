@@ -1,0 +1,1 @@
+Artículo 16.—Todas las anotaciones, registros y documentación vinculada con el uso de vehículos automotores, deberá ser correctamente archivada y protegida en el Departamento de Gestión Administrativas o el departamento correspondiente, ya sean estos físicos o digitales.

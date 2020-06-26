@@ -1,0 +1,1 @@
+Artículo 23.—Uniformidad de vehículos. Para que los vehículos de la Institución circulen dentro de las normas apropiadas de seguridad y ofrezcan una apariencia uniforme, no se debe colocar adornos, tanto en el interior como en el exterior del mismo, o mantener objetos en el panel de instrumentos, que afecten la buena conducción del vehículo.

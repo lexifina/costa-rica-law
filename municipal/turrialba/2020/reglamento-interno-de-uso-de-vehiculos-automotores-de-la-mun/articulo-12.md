@@ -1,0 +1,1 @@
+Artículo 12.—La prestación del servicio de transporte debe organizarse de tal manera que en el mismo vehículo puedan viajar personas que lleven el mismo rumbo o una ruta similar, con el fin de aprovechar al máximo la prestación del servicio.

@@ -1,0 +1,1 @@
+Artículo 47.—Uso de vehículos en días inhábiles. Los vehículos de uso administrativo solo podrán circular en horas y días que no corresponden al horario normal en circunstancias especiales y con autorización escrita de la alcaldía y del jefe de la unidad solicitante.

@@ -1,0 +1,2 @@
+Artículo 44.—Atención de solicitudes de transporte. La atención de los servicios de transporte será tramitada en primer lugar de acuerdo con el orden de prioridades establecidas por la alcaldía, luego por la urgencia demostrada y posteriormente siguiendo el orden de presentación.
+Las solicitudes de transporte deberán ser presentadas al funcionario asignado, a más tardar una semana anterior a la fecha en la que requiere de la unidad. Las que se presenten posterior a ese día se atenderán dependiendo de la disponibilidad de recursos.
