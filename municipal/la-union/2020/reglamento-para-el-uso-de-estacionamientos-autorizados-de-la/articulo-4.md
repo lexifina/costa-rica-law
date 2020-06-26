@@ -1,0 +1,1 @@
+Artículo 4º—De las zonas de estacionamiento. Para los efectos del cobro de la tarifa, el cantón de La Unión se divide en zona Céntrica y zona No Céntrica, establecidas mediante los estudios técnicos pertinentes que realice la corporación municipal, yque para tales efectos serán debidamente demarcados.

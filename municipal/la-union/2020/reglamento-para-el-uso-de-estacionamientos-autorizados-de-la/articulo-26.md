@@ -1,0 +1,1 @@
+Artículo 26.—De conformidad con el artículo 171 del Código Municipal el administrado se encuentra en la facultad de interponer los recursos administrativos contra la multa que realicen los inspectores. En caso de Recurso de Revocatoria el jefe de los oficiales actuantes conocerá el recurso y el superior en grado de la apelación.

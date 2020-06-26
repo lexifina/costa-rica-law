@@ -1,0 +1,4 @@
+CAPÍTULO IV
+De las infracciones y multas
+Artículo 16.—De la Vigilancia, control y regulación de este Reglamento. La verificación y control del estacionamiento autorizado será responsabilidad de la Municipalidad, para lo cual tendrá Inspectores de Control Vial y Policías Municipales (si existiese), los cuales vigilarán el cumplimiento de todas las normas del presente reglamento y las leyes aplicables. Estos funcionarios estarán investidos de autoridad y tendrán la potestad para levantar
+Las infracciones correspondientes. Dicha infracción conlleva a una multa, la cuál será impersonal, pues se levantará contra la placa del vehículo que cometió la infracción, acompañado preferiblemente de una fotografía digital del vehículo y de la zona de estacionamiento.

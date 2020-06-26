@@ -1,0 +1,1 @@
+Artículo 20.—De la obligatoriedad. Constituye obligación de los Inspectores de Control Vial hacer uso diario y correcto del uniforme, prohibiéndose su utilización para otras tareas que no sean las derivadas de sus funciones y de su servicio.

@@ -1,0 +1,1 @@
+Artículo 9º—De las motocicletas. Las motocicletas que se estacionen en el espacio dedicado a los estacionamientos autorizados deberán pagar la misma tarifa que los vehículos de cuatro ruedas y quedan sujetas a las infracciones, multas y sanciones que dispone el presente reglamento.

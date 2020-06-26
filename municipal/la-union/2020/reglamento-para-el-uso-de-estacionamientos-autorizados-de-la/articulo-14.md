@@ -1,0 +1,5 @@
+CAPÍTULO III
+De las regulaciones en cuanto a la operación
+del estacionamiento de pago autorizado
+Artículo 14.—De las tarifas y su actualización. Los vehículos de dos ruedas o más que se estacionen en los estacionamientos autorizados para tal fin deberán pagar un DDE, según lo regula el presente reglamento. La tarifa del DDE por hora resultará del promedio de las tarifas por hora de los estacionamientos públicos aprobadas por la Dirección General de Ingeniería de Tránsito del cantón de La Unión al 31 de diciembre de cada año, conforme a la Ley 7717 “Reguladora de los Estacionamientos Públicos”.
+Dicho promedio será redondeado en múltiplos de 50 (cincuenta) al número mayor. La tarifa del DDE por fracción corresponderá a periodos menores a los 30 (treinta) minutos inclusive, y resultará de la mitad de la tarifa del DDE por hora redondeado en múltiplos de 50 (cincuenta) al número mayor. La tarifa deberá actualizarse anualmente, para lo cual la Administración Municipal deberá presentar al Concejo Municipal el cálculo de la tarifa para su aprobación y publicación en el Diario Oficial La Gaceta.
