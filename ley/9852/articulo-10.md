@@ -1,0 +1,1 @@
+ARTÍCULO 10-Apoderamiento, alteración o manipulación ilegítima de sistemas e instrumentos de control. Se impondrá la pena de prisión de tres a ocho años, a quien se apodere, altere o manipule ilegítimamente los sistemas e instrumentos de control de los combustibles derivados del petróleo o sus mezclas, los cuales pertenecen al Sistema Nacional de Combustibles.

@@ -1,0 +1,1 @@
+ARTÍCULO 9-Apoderamiento, alteración o manipulación ilegítima de marcadores de combustibles derivados del petróleo. Se impondrá la pena de prisión de uno a tres años, a quien se apodere, altere o manipule ilegítimamente el marcador, la sustancia o el producto utilizado para marcar o diferenciar los combustibles derivados del petróleo o sus mezclas.

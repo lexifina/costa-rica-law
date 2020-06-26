@@ -1,0 +1,4 @@
+CAPÍTULO III
+DECOMISO Y OTRAS ACTUACIONES
+ARTÍCULO 17-Decomiso de combustibles derivados del petróleo. Los combustibles derivados del petróleo o sus mezclas, que según la Ley 6588, Ley que Regula a la Refinadora Costarricense de Petróleo (Recope), de 30 de julio de 1981, correspondan al monopolio de Recope, que no cuenten con las autorizaciones de Recope o provengan de los delitos sancionados por esta ley, podrán ser decomisados por los órganos policiales, jurisdiccionales y el Ministerio Público.
+La Refinadora Costarricense de Petróleo (Recope) deberá acudir inmediatamente, en un plazo no mayor a tres días, a los lugares donde las autoridades descubran la existencia de combustibles derivados del petróleo o sus mezclas, que no cuenten con la autorización de Recope, prestarle la asistencia que requieran; captar, transportar y custodiar el material decomisado, según las técnicas destinadas para este fin.

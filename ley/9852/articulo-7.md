@@ -1,0 +1,1 @@
+ARTÍCULO 7-Transporte y distribución ilegal de combustibles derivados del petróleo o sus mezclas. Se impondrá la pena de prisión de uno a cuatro años, a quien, en el territorio nacional, introduzca, transporte o distribuya combustibles derivados del petróleo o sus mezclas de forma ilegal o sin la debida autorización de Recope o del Ministerio de Ambiente y Energía (Minae).
