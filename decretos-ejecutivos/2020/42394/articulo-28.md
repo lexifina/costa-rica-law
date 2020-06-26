@@ -1,0 +1,3 @@
+SECCIÓN V
+Del Personal de Auditoría
+Artículo 28. -Del personal de la Auditoría Interna: El personal de Auditoría se encontrará cubierto a las disposiciones administrativas aplicables al resto del personal del Consejo, siempre y cuando no se afecte la independencia funcional y de criterio de dichos funcionarios. Sin embargo, el nombramiento, traslado, la suspensión, remoción, concesión de licencias y demás movimientos de ese personal, deberán contar de previo con la autorización del Auditor(a) Interno; todo de acuerdo con el marco jurídico que rige para el CTP y a tenor de lo dispuesto en el artículo 24 de la Ley General de Control Interno, así como, en general, por el ordenamiento jurídico.

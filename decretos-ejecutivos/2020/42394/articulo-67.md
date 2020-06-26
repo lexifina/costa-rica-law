@@ -1,0 +1,5 @@
+Artículo 67. -De las relaciones de hechos. Las relaciones de hechos se ajustarán a las disposiciones siguientes:
+a) Su contenido y características de fondo y forma se ajustarán a lo establecido por la Contraloría General de la República en el documento de relación de hechos y a las directrices internas emitidas por la Auditoría Interna.
+b) En el caso de las relaciones de hechos, no procede efectuar la comunicación verbal de resultados.
+c) Las relaciones de hechos serán comunicadas según sea procedente, a la Dirección Ejecutiva, a la Junta Directiva, o directamente al Ministerio Público y/o a la Contraloría General de la República.
+La relación de hechos se utilizará para acreditar hechos, actuaciones u omisiones que se presumen irregulares en realización de las labores de los funcionarios del CTP, que pueden generar responsabilidad administrativa, civil y penal, en un procedimiento administrativo. Las relaciones de hechos se regularán por lo establecido en las disposiciones emitidas por la Contraloría General de la República, la LGCI, y otras directrices que a criterio del Auditor Interno se deban emitir por parte de la Auditoría.

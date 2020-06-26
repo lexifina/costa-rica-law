@@ -1,0 +1,1 @@
+Artículo 45. -De la relación con la Asesoría Legal del CTP. Es obligación de la Asesoría Legal del CTP brindar el oportuno y efectivo servicio de apoyo mediante los estudios jurídicos que requiera la Auditoría Interna, a fin de establecer adecuadamente su ámbito de acción y atender sus necesidades de orden jurídico, conforme lo estipula el artículo 33, inciso c), de la LGCI.

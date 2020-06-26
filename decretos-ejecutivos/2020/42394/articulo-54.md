@@ -1,0 +1,3 @@
+SECCIÓN III
+Procesamiento de la Información
+Artículo 54. -Procesamiento de información. Los funcionarios de la Auditoría Interna deben identificar, analizar, evaluar y registrar información suficiente y pertinente, de tal manera que les permita cumplir con los objetivos del trabajo. Además, deben identificar la información suficiente, confiable, relevante y útil para fundamentar los hallazgos, conclusiones, recomendaciones y demás resultados del trabajo.

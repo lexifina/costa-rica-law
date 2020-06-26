@@ -1,0 +1,1 @@
+Artículo 60. -Informes dirigidos a los Titulares Subordinados. Cuando los informes de auditoría contengan recomendaciones dirigidas a los titulares subordinados, se procederá según lo contemplado en el artículo 36 de la Ley Nº 8292, sin detrimento que por disposición del Auditor Interno sea dirigido a la Junta Directiva para lo cual se aplique el artículo 61 siguiente.

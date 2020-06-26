@@ -1,0 +1,1 @@
+Artículo 110 -Derogatoria. Deróguese el Reglamento anterior publicado en La Gaceta Nº 41 del 27 de febrero del 2009, Reglamento de Organización y Funcionamiento para la Auditoría Interna del Consejo de Transporte Público.

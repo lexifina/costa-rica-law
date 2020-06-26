@@ -1,0 +1,1 @@
+Artículo 27. -De la declaración de bienes. El Auditor Interno está obligado a cumplir con el requisito de declarar sus bienes de acuerdo con la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública, Ley Nº 8422 y su Reglamento.
