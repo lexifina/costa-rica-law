@@ -3,19 +3,22 @@ a) Guatuso.
 b) Guácimo, específicamente el distrito de Duacarí.
 c) La Cruz.
 d) Los Chiles.
-e) Pococí.
+e) Pococí, específicamente los distritos de Cariari, Colorado, La Rita y Roxana.
+(Así reformado el inciso anterior por el artículo 2° del decreto ejecutivo N° 42423 del 26 de junio del 2020)
 f) Río Cuarto.
-g) San Carlos, específicamente los distritos de Aguas Zarcas, Cutris, La Fortuna, Pital, Pocosol, Venecia y Florencia, este último en relación con los poblados de Bonanza y La Vega.
-(Así reformado el inciso anterior por el artículo 2° del decreto ejecutivo N° 42418 del 24 de junio del 2020)
+g) San Carlos, específicamente los distritos de Aguas Zarcas, Cutris, Pital, Pocosol, Venecia y La Fortuna, en este último distrito únicamente en las comunidades de Tres Esquinas, Los Ángeles, Sonafluca, La Perla, San Isidro, El Tanque, San Jorge y Santa Cecilia.
+(Así reformado el inciso anterior por el artículo 2° del decreto ejecutivo N° 42423 del 26 de junio del 2020)
 h) Sarapiquí, específicamente los distritos de Llanuras del Gaspar y Curuña.
 i) Siquirres, específicamente los distritos de Pacuarito y Reventazón.
-j) Upala.
+j) Upala, específicamente los distritos de Upala, San José (Pizote), Delicias, Yolillal y Canalete.
+(Así reformado el inciso anterior por el artículo 2° del decreto ejecutivo N° 42423 del 26 de junio del 2020)
 k) San Ramón, específicamente el distrito de Peñas Blancas.
 l) Puntarenas, específicamente el distrito de Paquera.
 m) Alajuelita.
 (Así adicionado el inciso anterior por el artículo 2° del decreto ejecutivo N° 42409 del 19 de junio del 2020)
-n) Desamparados.
+n) Desamparados, específicamente los distritos de Desamparados Centro, Patarrá, Los Guido, San Miguel, San Rafael Abajo, San Rafael Arriba y San Juan de Dios.
 (Así adicionado el inciso anterior por el artículo 2° del decreto ejecutivo N° 42409 del 19 de junio del 2020)
+(Así reformado el inciso anterior por el artículo 2° del decreto ejecutivo N° 42423 del 26 de junio del 2020)
 o) San José, específicamente el distrito de Pavas.
 (Así adicionado el inciso anterior por el artículo 2° del decreto ejecutivo N° 42417 del 23 de junio del 2020)
 p) Corredores.
