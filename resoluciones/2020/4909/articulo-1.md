@@ -29,8 +29,7 @@ SEGUNDO: Se resuelve ordenar el cierre temporal de todos los establecimientos co
 I. Lugares decretados en Alerta Naranja:
 a) Distritos Upala, San José (Pizote), Delicias, Yolillal y Canalete del Cantón de Upala.
 b) Sector Sureste del Distrito de la Fortuna de San Carlos (Comunidades de Tres Esquinas, Los Ángeles, Sonafluca, La Perla, San Isidro, El Tanque, San Jorge, Santa Cecilia).
-c) Distritos de Cariari, Colorado, La Rita y Roxana del Cantón de Pococí.
-d) Distritos de Desamparados, Patarrá, Los Guido, San Miguel, San Rafael Abajo, San Rafael Arriba, San Juan de Dios del Cantón de Desamparados.
+c) Distritos de Cariari, Colorado, La Rita y Roxana del Cantón de Pococí. d) Distritos de Desamparados, Patarrá, Los Guido, San Miguel, San Rafael Abajo, San Rafael Arriba, San Juan de Dios del Cantón de Desamparados.
 e) Comunidades de La Vega y Bonanza del distrito de Florencia del Cantón San Carlos
 f) Distrito de Pavas (Cantón de San José).
 g) Distrito de Peñas Blancas del cantón de San Ramón, exceptuando la comunidad del Castillo.
@@ -41,23 +40,25 @@ k) Cantón de Alajuelita.
 l) Cantón de Corredores.
 II. Se exceptúan de la presente disposición:
 a) Los servicios a domicilio.
-b) Las instituciones que por la naturaleza de sus funciones deben permanecer abiertas como los servicios de migración, aduanas, fitosanitario del Estado, puestos fronterizos terrestres, marítimos y aéreos, entre otros.
+b) Las instituciones que por la naturaleza de sus funciones deben permanecer abiertas como los servicios de migración, aduanas, fitosanitario del Estado, puestos fronterizos terrestres, marítimos y aéreos, entre otros.
 c) Los establecimientos de salud públicos y privados (clínicas, farmacias, hospitales, laboratorios, consultorios, servicios de radiodiagnósticos, servicios de emergencias, ópticas, macrobióticas, entre otros), clínicas veterinarias y droguerías.
-d) Supermercados, abastecedores, panaderías, carnicerías, verdulerías y pulperías.
-e) Establecimientos de venta de insumos agropecuarios, con una reducción de su capacidad máxima de ocupación normal al cincuenta por ciento (50%).
-f) Establecimientos de suministros de higiene, con una reducción de su capacidad máxima de ocupación normal al cincuenta por ciento (50%).
-g) Servicios bancarios y financieros públicos o privados, con una reducción de su capacidad máxima de ocupación normal al cincuenta por ciento (50%).
-h) Funerarias y/o capillas de velación, con una reducción de su capacidad máxima de ocupación normal al cincuenta por ciento (50%).
-i) Establecimientos públicos y privados donde hay comercialización de productos agricolas, pecuarios, pesca y acuicultura, tales como mercados, con una reducción de su capacidad máxima de ocupación normal al cincuenta por ciento (50%).
+d) Panaderías, carnicerías y verdulerías.
+e) Establecimientos de venta de insumos agropecuarios, con una reducción de su capacidad máxima de ocupación normal al cincuenta por ciento (50%).
+f) Establecimientos de suministros de higiene, con una reducción de su capacidad máxima de ocupación normal al cincuenta por ciento (50%).
+g) Servicios bancarios y financieros públicos o privados, con una reducción de su capacidad máxima de ocupación normal al cincuenta por ciento (50%).
+h) Funerarias y/o capillas de velación, con una reducción de su capacidad máxima de ocupación normal al cincuenta por ciento (50%).
+i) Establecimientos públicos y privados donde hay comercialización de productos agrícolas, pecuarios, pesca y acuicultura, tales como mercados, con una reducción de su capacidad máxima de ocupación normal al cincuenta por ciento (50%).
 j) Guarderías públicas, privadas o mixtas tuteladas por el CAI o el MEP.
-k) Centros de atención de personas en condición de vulnerabilidad.
-l) Todos aquellos otros establecimientos con permiso sanitario de funcionamiento que no brinden atención al público presencial.
-En el caso de los hoteles, únicamente podrán mantenerse abiertos aquellos que brinden hospedaje a:
-a) Turistas extranjeros que ya se encuentren en el país.
-b) Tripulaciones de vuelos o casos de servicios especiales.
-c) Turistas de largas estadías o que residan en el hotel.
-d) Brinden servicios de alojamiento a funcionarios de la Administración Pública o a prestadores de servicios públicos (banca, transporte de valores, comunicaciones, electricidad) o se trate de personas que están laborando en el servicio de distribución de mercancías o artículos alimentarios y de primera necesidad, medicamentos, insumos agrícolas o veterinarios.
-e) Brinden servicios a embajadas.
+k) Centros de atención de personas en condición de vulnerabilidad.
+l) Todos aquellos otros establecimientos con permiso sanitario de funcionamiento que no brinden atención al público presencial.
+En el caso de los hoteles, únicamente podrán mantenerse abiertos aquellos que brinden hospedaje a:
+1. Turistas extranjeros que ya se encuentren en el país.
+2. Tripulaciones de vuelos o casos de servicios especiales.
+3. Turistas de largas estadías o que residan en el hotel.
+4. Brinden servicios de alojamiento a funcionarios de la Administración Pública o a prestadores de servicios públicos (banca, transporte de valores, comunicaciones, electricidad) o se trate de personas que están laborando en el servicio de distribución de mercancías o artículos alimentarios y de primera necesidad, medicamentos, insumos agrícolas o veterinarios.
+5. Brinden servicios a embajadas.
+En el caso de los supermercados, abastecedores, pulperías y minisúper, podrán operar de lunes a viernes sin restricción horaria con una capacidad de ocupación al cincuenta por cierto (50%). Y de sábado a domingo sin restricción horaria y con una capacidad de ocupación al cincuenta por ciento (50%) solo lo correspondiente a la sección de venta de alimentos, bebidas, abarrotes, suministros de limpieza e higiene, y necesidades básicas.
+(Así reformada la disposición segunda anterior por resolución N° MS-DM-4916-2020 del 27 de junio de 2020)
 TERCERO: Para calcular el aforo a un 50% de la capacidad máxima del establecimiento, se hará de conformidad con los siguientes parámetros:
 1. De conformidad con la capacidad máxima establecida en la solicitud del permiso sanitario de funcionamiento. Dicha capacidad máxima incluye trabajadores y ocupantes.
 2. Debe garantizar guardar un espacio de 1.8 metros entre cada persona dentro del establecimiento y en las aceras previo a su ingreso.

@@ -14,3 +14,4 @@ Ordena cierre temporal de establecimientos con permiso sanitario de funcionamien
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-06-27 | la propia norma |
+| 2 | 2020-06-27 | Resolución 4916 (2020-06-27) |
