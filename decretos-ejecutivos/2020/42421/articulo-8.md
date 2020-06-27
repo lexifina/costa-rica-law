@@ -1,0 +1,1 @@
+ARTICULO 8°.-Temporalidad de la presente medida. La medida de uso obligatorio de la mascarilla o careta consignada en el presente Decreto Ejecutivo, será revisada y actualizada de conformidad con el comportamiento epidemiológico del COVID-19 y con ocasión del estado de emergencia nacional por la situación sanitaria y para resguardar la salud de la población.
