@@ -54,36 +54,7 @@ B. Podrán operar de lunes a domingo sin restricción horaria, pero a puerta cer
 2. Deportes de contacto de alto rendimiento sin espectadores.
 C. Podrán operar de lunes a domingo sin restricción horaria con una capacidad de ocupación al cincuenta por cierto (50%):
 1. Ferias del agricultor.
-2. Mercados, supermercados, minisúper, pulperías, panaderías, carnicerías, verdulerías y similares.
-3. Venta de productos agrícolas, pecuarios, acuícolas y pesqueros.
-4. Venta de insumos agropecuarios, veterinarios y alimentos para animales.
-5. Venta de suministros de higiene.
-I. Lugares que no avanzan a fase tres:
-1. Cantón de Curridabat.
-2. Del cantón de San José: los distritos de La Uruca, La Merced, Hospital, Hatillo, Mata Redonda, Catedral, Zapote, San Francisco de Dos Ríos y San Sebastián.
-3. Del cantón de Escazú: el distrito de San Rafael.
-4. Del cantón de Aserrí: los distritos de Aserrí y San Gabriel.
-5. Del cantón de Cartago: el distrito de Corralillo.
-6. Del cantón de Heredia: el distrito de Ulloa.
-II. Se clasifican como excepciones de la disposición anterior los siguientes casos:
-A. Podrán operar de lunes a domingo sin restricción horaria:
-1. Servicios a domicilio.
-2. Alquiler de vehículos “rent a car”.
-3. Alquiler de bicicletas.
-4. Suministro y abastecimiento de combustibles.
-5. Servicios comunitarios de recolección de residuos.
-6. Los establecimientos de salud públicos y privados (clínicas, farmacias, hospitales, laboratorios, consultorios, servicios de radiodiagnósticos, servicios de emergencias, ópticas, macrobióticas, entre otros), y clínicas veterinarias.
-7. Servicios de salud en unidades móviles cumpliendo con lo establecido en el Decreto Ejecutivo No. 41045-S.
-8. Centros de Atención Integral públicos, privados y mixtos (CAI).
-9. Centros de atención a personas en condición de vulnerabilidad.
-10. Estacionamientos o parqueos públicos.
-11. Actividades de alojamiento para estancia corta (moteles).
-B. Podrán operar de lunes a domingo sin restricción horaria, pero a puerta cerrada y con el mínimo personal requerido:
-1. Actividades a puerta cerrada de teatros (incluyendo el Teatro Nacional y el Teatro Popular Melico Salazar), iglesias y municipalidades con sus sesiones de concejo municipal, consejos de distrito, reunión de comisiones y demás reuniones municipales, para el desarrollo de transmisiones virtuales, con estricto cumplimiento de los protocolos preventivos y lineamientos emitidos por el Ministerio de Salud.
-2. Deportes de contacto de alto rendimiento sin espectadores.
-C. Podrán operar de lunes a domingo sin restricción horaria con una capacidad de ocupación al cincuenta por cierto (50%):
-1. Ferias del agricultor.
-2. Mercados, supermercados, minisúper, pulperías, panaderías, carnicerías, verdulerías y similares.
+2. Mercados, panaderías, carnicerías, verdulerías y similares.
 3. Venta de productos agrícolas, pecuarios, acuícolas y pesqueros.
 4. Venta de insumos agropecuarios, veterinarios y alimentos para animales.
 5. Venta de suministros de higiene.
@@ -105,7 +76,8 @@ C. Podrán operar de lunes a domingo sin restricción horaria con una capacidad 
 21. Parques nacionales según la lista que publique el MINAE.
 22. Hoteles, cabinas o establecimientos de alojamiento.
 23. Todos aquellos otros establecimientos con permiso sanitario de funcionamiento que no brinden atención al público presencial.
-D. Podrán operar de lunes a viernes de las 5:00 horas a las 22:00 horas, y de sábado a domingo de las 5:00 horas a las 19:00 horas:
+D. Podrán operar de lunes a viernes de las 5:00 horas a las 22:00 horas, y de
+sábado a domingo de las 5:00 horas a las 19:00 horas:
 1. Modalidad de autoservicio para los servicios de alimentación al público, entiéndase la misma como el retiro de productos en ventanilla utilizando un vehículo.
 2. Modalidad de retiro de comida en establecimiento para llevar.
 E. Podrán operar de lunes a viernes de las 5:00 horas a las 22:00 horas, y de sábado a domingo de las 5:00 horas a las 19:00 horas, con una capacidad de ocupación al cincuenta por cierto (50%):
@@ -128,8 +100,9 @@ G. Podrán operar de lunes a viernes de las 5:00 horas a las 22:00 horas con una
 3. Centros comerciales (excepto las plazas de comidas que pueden operar sábados y domingos, según categoría E inciso 8).
 4. Tiendas por departamento.
 5. Parques temáticos de animales, parques botánicos o parques marinos que no impliquen el acceso a playas ni balnearios.
-H. Se habilita el acceso a playas de lunes a viernes de las 5:00 horas a las 08:00 horas, con medidas de distanciamiento de 1.8 metros respetando las burbujas sociales.
-Este acceso incluye las actividades deportivas sin contacto.
+H. Se habilita el acceso a playas de lunes a viernes de las 5:00 horas a las 08:00 horas, con medidas de distanciamiento de 1.8 metros respetando las burbujas sociales. Este acceso incluye las actividades deportivas sin contacto.
+I. Podrán operar de lunes a viernes sin restricción horaria con una capacidad de ocupación al cincuenta por cierto (50%) los supermercados, abastecedores, pulperías y minisúper. Y de sábado a domingo sin restricción horaria y con una capacidad de ocupación al cincuenta por ciento (50%) solo lo correspondiente a la sección de venta de alimentos, bebidas, abarrotes, suministros de limpieza e higiene, y necesidades básicas.
+(Así reformada la disposición segunda anterior por resolución N° MS-DM-4915-2020 del 27 de junio de 2020)
 TERCERO: Para calcular el aforo a un 50% de la capacidad máxima del establecimiento, se hará de conformidad con los siguientes parámetros:
 1. De conformidad con la capacidad máxima establecida en la solicitud del permiso sanitario de funcionamiento. Dicha capacidad máxima incluye trabajadores y ocupantes.
 2. Debe garantizar guardar un espacio de 1.8 metros entre cada persona dentro del establecimiento y en las aceras previo a su ingreso.
