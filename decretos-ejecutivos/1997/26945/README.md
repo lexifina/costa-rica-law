@@ -14,3 +14,4 @@ Adiciona Area de Prusia al Parque Nacional Volcán Irazú
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-05-22 | la propia norma |
+| 2 | 2020-06-29 | Decreto Ejecutivo 42493 (2020-06-29) |
