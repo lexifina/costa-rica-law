@@ -15,3 +15,4 @@ Reglamento del Consejo Directivo
 | --- | --- | --- |
 | 1 | 2001-12-03 | la propia norma |
 | 2 | 2017-01-23 | Reglamento 3 (2017-01-23) |
+| 3 | 2020-06-29 | Reglamento 20 (2020-06-29) |

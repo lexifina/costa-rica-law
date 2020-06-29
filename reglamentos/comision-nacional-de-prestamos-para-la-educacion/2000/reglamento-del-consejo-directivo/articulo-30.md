@@ -1,2 +1,4 @@
 Artículo 30.—Las sesiones virtuales o no presenciales, tendrán carácter de excepcionalidad, especialidad o urgencia que requieran una atención inmediata y puede realizarse cuando concurran circunstancias extraordinarias y a condición de que los medios empleados permitan una integración plena dentro de la sesión, a efecto de que se mantenga la simultaneidad en la deliberación.
+Cuando por motivos técnicos se pierda la interacción en tiempo real entre los participantes en la sesión, superior a diez minutos, se considerará interrumpida la participación de ese o esos Directores. Esta circunstancia deberá consignarse en el acta. No obstante, se mantendrá la sesión mientras permanezca el quórum mínimo requerido. Las desconexiones menores a cinco minutos no serán consignadas.
 (Así adicionado en sesión N° 03-01-2017 del 23 de enero de 2017)
+(Así reformado en sesión N° 20 del 29 de junio del 2020)
