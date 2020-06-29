@@ -1,0 +1,11 @@
+N° 42597-RE
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE RELACIONES EXTERIORES Y CULTO
+Considerando:
+1º—Que la Asamblea Legislativa mediante Ley número 9672 del 21 de marzo de 2019 publicada en el Alcance número 247 de La Gaceta Digital número 212 del 7 de noviembre de 2019, aprobó con las reservas señaladas en el artículo 2 la adhesión de Costa Rica al Convenio Internacional sobre la Constitución de un Fondo Internacional de Indemnización de Daños Debidos a Contaminación por Hidrocarburos, hecho en Londres, el 27 de noviembre de 1992 y sus documentos anexos: Resolución aprobada por el Comité Jurídico de la Organización Marítima Internacional el 18 de octubre de 2000. Aprobación de Enmiendas a los Límites de Indemnización que Figuran en el Protocolo de 1992 que Enmienda el Convenio Internacional sobre la Constitución de un Fondo Internacional de Indemnización de Daños Debidos a Contaminación por Hidrocarburos, 1971. Anexo. Enmiendas a los Límites de Indemnización que figuran en el Protocolo de 1992 que Enmienda el Convenio Internacional sobre la Constitución de un Fondo Internacional de Indemnización de Daños Debidos a Contaminación por Hidrocarburos, 1971.
+Artículo 2º—La República de Costa Rica hace reserva de los artículos 32 y 33 de las cláusulas finales del Convenio Internacional sobre la Constitución de un Fondo Internacional de Indemnización de Daños Debidos a Contaminación por Hidrocarburos, 1992, en el sentido de que las enmiendas a dicho Convenio tendrán vigencia en el país, una vez que hayan sido aprobadas de conformidad con los procedimientos establecidos en la Constitución Política de la República de Costa Rica.
+2º—Que de conformidad con el artículo 36 quinquies del mencionado Convenio, los instrumentos de adhesión se depositarán ante el Secretario General de la Organización Marítima Internacional.
+Por tanto,
+En uso de las facultades que les confieren los incisos 10 y 12 del artículo 140 y el artículo 146 de la Constitución Política de la República de Costa Rica.
+Decretan:
+Artículo 1º—La adhesión de la República de Costa Rica con las reservas mencionadas al Convenio Internacional sobre la Constitución de un Fondo Internacional de Indemnización de Daños Debidos a Contaminación por Hidrocarburos, hecho en Londres, el 27 de noviembre de 1992 y sus documentos anexos mencionados.
