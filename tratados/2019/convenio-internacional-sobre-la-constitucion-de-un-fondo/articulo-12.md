@@ -1,0 +1,16 @@
+Artículo 12
+1. Con miras a calcular el monto de las contribuciones anuales adeudadas, si las hay, y teniendo en cuenta la necesidad de mantener suficiente liquidez, la Asamblea elaborará para el año civil una estimación, en forma de presupuesto, de:
+i) Gastos
+a) costos y gastos de administración del Fondo en el año considerado y todo déficit resultante de las operaciones efectuadas en los años anteriores;
+b) pagos que el Fondo efectuará en el año considerado a fin de satisfacer las reclamaciones contra el Fondo que se adeuden en virtud del artículo 4, incluido el rembolso de los préstamos previamente obtenidos por el Fondo para satisfacer dichas reclamaciones, en la medida en que la cuantía total de dichas reclamaciones respecto de un suceso cualquiera no exceda de cuatro millones de unidades de cuenta;
+c) pagos que el Fondo efectuará en el año considerado a fin de satisfacer las reclamaciones contra el Fondo que se adeuden en virtud del artículo 4, incluido el reembolso de los préstamos previamente obtenidos por el Fondo para satisfacer dichas reclamaciones, en la medida en que la cuantía total de dichas reclamaciones respecto de un suceso cualquiera exceda de cuatro millones de unidades de cuenta.
+ii) Ingresos
+a) excedentes de caja correspondientes a operaciones efectuadas en los años anteriores, incluidos los intereses devengados;
+b) contribuciones anuales, si son necesarias para equilibrar el presupuesto;
+c) todo otro ingreso.
+2. La Asamblea fijará el monto total de las contribuciones que proceda imponer. Sobre la base de esa decisión, el Director calculará, respecto de cada Estado Contratante, el monto de la contribución anual de cada una de las personas a las que se hace referencia en el artículo 10:
+a) en la medida en que la contribución se destine a efectuar los pagos a que se hace referencia en el párrafo 1 i), a), y b), sobre la base de una suma fija por cada tonelada de hidrocarburos sujetos a contribución recibidos en el Estado que corresponda por las personas a que se alude, durante el año civil anterior; y
+b) en la medida en que la contribución se destine a efectuar los pagos a que se hace referencia en el párrafo 1 i) c) del presente artículo, sobre la base de una suma fija por cada tonelada de hidrocarburos sujetos a contribución recibidos por la persona a que se alude durante el año civil anterior al año en que se produjo el suceso de que se trate, a condición de que el Estado a que se alude sea Parte en el presente Convenio en la fecha en que ocurrió el suceso.
+3. Las sumas a que se hace referencia en el párrafo 2 supra se calcularán dividiendo el monto total de las contribuciones abonables que proceda considerar por la cantidad total de los hidrocarburos sujetos a contribución en todos los Estados Contratantes durante el año considerado.
+4. La contribución anual empezará a adeudarse en la fecha que ha de determinarse en el Reglamento interior del Fondo. La Asamblea podrá fijar una fecha de pago distinta.
+5. En las condiciones que fije el Reglamento financiero del Fondo, la Asamblea podrá decidir que se hagan transferencias entre los fondos recibidos de conformidad con el artículo 12.2 a) y los fondos recibidos de conformidad con el artículo 12.2 b).

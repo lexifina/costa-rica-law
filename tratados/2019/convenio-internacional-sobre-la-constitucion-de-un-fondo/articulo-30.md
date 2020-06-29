@@ -1,0 +1,2 @@
+Artículo 30
+En el cumplimiento de sus deberes, el Director y el personal y los expertos nombrados por él no solicitarán ni recibirán instrucciones de ningún Gobierno ni de ninguna autoridad ajena al Fondo. Se abstendrán de actuar en forma alguna que sea incompatible con su condición de funcionarios internacionales. Todo Estado Contratante se compromete por su parte a respetar el carácter exclusivamente internacional de las funciones del Director y del personal y los expertos nombrados por él y a no tratar de influir en ellos por lo que hace al cumplimiento de sus deberes.

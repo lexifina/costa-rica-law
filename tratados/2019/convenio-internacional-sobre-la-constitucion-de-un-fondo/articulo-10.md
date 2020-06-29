@@ -1,0 +1,9 @@
+Contribuciones
+Artículo 10
+1. Las contribuciones anuales al Fondo se pagarán, respecto de cada Estado Contratante, por cualquier persona que durante el año civil a que se hace referencia en el artículo 12, párrafo 2 a) o párrafo 2 b), haya recibido hidrocarburos sujetos a contribución en cantidades que en total excedan de 150 000 toneladas:
+a) en los puertos o instalaciones terminales situados en el territorio del Estado de que se trate, cuando dichos hidrocarburos hayan sido transportados por mar hasta esos puertos o instalaciones terminales;
+y
+b) en cualesquiera instalaciones situadas en el territorio del Estado Contratante de que se trate, cuando dichos hidrocarburos hayan sido transportados por mar hasta un puerto o instalación terminal de un Estado no Contratante y descargados en ese puerto o instalación terminal, a condición de que tales hidrocarburos sólo se tengan en cuenta en virtud del presente subpárrafo al producirse su primera recepción en un Estado Contratante después de que hayan sido descargados en ese Estado no Contratante.
+2.
+a) A los fines del párrafo 1, cuando la cantidad de hidrocarburos sujetos a contribución recibidos en el territorio de un Estado Contratante por cualquier persona durante un año civil, sumada a la cantidad de hidrocarburos sujetos a contribución recibidos en el mismo Estado Contratante durante ese año por cualquier persona o personas asociadas, exceda de 150 000 toneladas, aquella persona pagará contribuciones respecto de la cantidad efectivamente recibida por ella aun cuando esta cantidad no exceda de 150 000 toneladas.
+b) Por "persona asociada" se entenderá toda filial o entidad sometida a fiscalización en común. El que una persona quede comprendida o no en esta definición será algo que decidirá la legislación nacional del Estado interesado.

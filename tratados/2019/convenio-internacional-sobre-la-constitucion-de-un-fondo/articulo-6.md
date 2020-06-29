@@ -1,0 +1,2 @@
+Artículo 6
+Los derechos de indemnización estipulados en el artículo 4 prescribirán, a menos que se interponga una acción en virtud de dicho artículo o que se haya cursado una notificación de conformidad con el artículo 7, párrafo 6, dentro de un plazo de tres años contados a partir de la fecha en que se haya producido el daño. Sin embargo, en ningún caso podrá interponerse acción alguna una vez transcurridos seis años desde la fecha del suceso que ocasionó los daños.

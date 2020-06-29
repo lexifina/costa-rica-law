@@ -1,0 +1,2 @@
+Artículo 8
+A reserva de cualquier decisión relativa a la distribución a que se hace referencia en el artículo 4, párrafo 5, todo fallo dictado contra el Fondo por un tribunal que tenga jurisdicción de conformidad con el artículo 7, párrafos 1 y 3, cuando haya adquirido carácter ejecutorio en el Estado en que se fue originado y no se encuentre sujeto en ese Estado a recursos ordinarios de revisión, podrá ser reconocido y ejecutoriado en cada Estado Contratante en las condiciones que se prescriben en el artículo X del Convenio de Responsabilidad Civil, 1992.
