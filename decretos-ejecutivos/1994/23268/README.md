@@ -14,3 +14,4 @@ Crea Reserva Forestal Rubén Torres Rojas
 | --- | --- | --- |
 | 1 | 1994-05-20 | la propia norma |
 | 2 | 1997-11-09 | Decreto Ejecutivo 26945 (1997-11-09) |
+| 3 | 2020-06-29 | Decreto Ejecutivo 42493 (2020-06-29) |
