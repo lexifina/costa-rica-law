@@ -1,0 +1,1 @@
+Artículo 10.—Asesoramiento y Atención. En el momento en que una funcionaria(o) considere que hay manifestaciones de posible acoso laboral en su área de trabajo, sin que medie una denuncia formal, puede acudir a las instancias competentes que son: Dirección Ejecutiva, Asesoría Jurídica, Desarrollo Humano, Comisión de Salud Ocupacional y la Comisión SIGIG.

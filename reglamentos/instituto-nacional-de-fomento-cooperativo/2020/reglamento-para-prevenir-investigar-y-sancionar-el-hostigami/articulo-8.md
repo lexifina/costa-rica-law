@@ -1,0 +1,2 @@
+Artículo 8º—Obligación de colaborar. Toda persona funcionaria del INFOCOOP tiene la responsabilidad de colaborar de forma diligente y oportuna con los procesos de investigación de casos de acoso laboral cuando así le sea requerido por las instancias competentes (Dirección Ejecutiva, Contraloría de Servicios, Órgano Director).
+La omisión de este deber de colaborar con el proceso constituye un hecho generador de responsabilidad administrativa, al cual se aplicará el régimen disciplinario en calidad de falta grave para los efectos de su sanción.

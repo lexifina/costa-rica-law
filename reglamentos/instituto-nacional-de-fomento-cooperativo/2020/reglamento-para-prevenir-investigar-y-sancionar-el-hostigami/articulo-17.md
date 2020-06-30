@@ -1,0 +1,1 @@
+Artículo 17.—Del nombramiento del Órgano Director de Procedimiento. El Órgano será colegiado y estará integrado por tres personas, donde se encuentren representados ambos géneros, de reconocida solvencia moral, preferiblemente capacitadas en materia de acoso laboral, una de las cuales, al menos, será de la Asesoría Jurídica y entre sus miembros se designará quien presida.

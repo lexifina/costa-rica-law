@@ -1,0 +1,1 @@
+Artículo 16.—Traslado de la denuncia. Una vez recibida la denuncia en la Gerencia de Desarrollo Humano y verificada que contenga los elementos del artículo anterior, ésta se remitirá, en un plazo máximo de tres días hábiles, a la instancia correspondiente para que se proceda a conformar el órgano director del procedimiento.

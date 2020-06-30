@@ -1,0 +1,1 @@
+Artículo 33.—De las medidas complementarias. El Órgano Director de Procedimiento podrá sugerirle al Órgano Decisor en su recomendación final, que adopte medidas complementarias de carácter preventivo, debidamente fundamentadas, con la finalidad de garantizar un clima laboral de respeto a las personas que laboran en el centro de trabajo.

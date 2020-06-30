@@ -1,0 +1,4 @@
+Artículo 27.—Valoración de las pruebas. Los medios de prueba serán aquellos contemplados en la legislación común.
+Las pruebas aportadas al proceso se valorarán según los criterios de la lógica y la experiencia y bajo los principios de sana crítica, inmediatez y objetividad.
+Ante la ausencia de prueba directa, se otorgará valor probatorio a los indicios graves, precisos y concordantes que se constatan en el expediente y que conduzcan racionalmente a tener por configurado el acoso laboral denunciado, verificando la presencia de al menos los siguientes elementos en los hechos denunciados: la intencionalidad por parte del (la) supuesto(a) acosador(a) y que estos hayan sido sistemáticos y frecuentes.
+De igual manera, deberá tomar en consideración la reincidencia o no de este comportamiento en la persona denunciada.
