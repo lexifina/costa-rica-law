@@ -1,0 +1,1 @@
+ARTICULO 4: Tomando en cuenta que existen dentro de las propiedades a inscribir a nombre del Instituto Costarricense de Puertos del Pacífico (INCOP), áreas que poseen aptitud forestal, se firmará un Convenio de Cooperación entre el SINAC y el INCOP para el adecuado cuido y protección de las mismas.
