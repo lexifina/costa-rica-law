@@ -1,7 +1,10 @@
-Artículo 20.—Funciones de la Secretaría Técnica del Consejo. Las funciones de la Secretaría Técnica son las establecidas en el artículo 178 del Código de la Niñez y la Adolescencia, a saber:
-a) Preparar un estudio sobre los informes de seguimiento y evaluación sometidos a la consideración del Consejo,
-b) Ejecutar, dar seguimiento y vigilar el cumplimiento de los acuerdos adoptados por el Consejo.
-c) Formular un estudio anual sobre el estado de los derechos de la niñez y la adolescencia. Para realizarlo, gestionará la participación de otras instituciones dedicadas al estudio de esta materia, en especial las universidades.
-Aunadas a las anteriores, le corresponderá apoyar todas las labores administrativas, técnicas y logísticas, para el adecuado funcionamiento del Consejo. Así como representar a la Secretaría Técnica en las actividades públicas y privadas que le sean asignadas por el Consejo.
-Para el cumplimiento de estas funciones, la Secretaría Técnica deberá cada año, presentar al Consejo su Plan de Trabajo para su aprobación.
-Asimismo, deberá remitir al Consejo en el primer trimestre de cada año, un Informe de Labores correspondiente al año anterior, para su conocimiento.
+Artículo 20.—Funciones de la presidencia y vicepresidencia. Son funciones de la presidencia, y en su ausencia, o por delegación, de la vicepresidencia:
+a) Proponer al Consejo el orden del día de cada una de sus sesiones.
+b) Conducir las sesiones, coordinar la consignación de acuerdos, garantizar y monitorear su cumplimiento.
+c) Proponer al Consejo un plan de trabajo anual para su consideración y aprobación.
+d) Proponer al Consejo un informe anual de labores para su consideración y aprobación.
+e) Representar al Consejo en actividades públicas y privadas a nivel nacional e internacional.
+f) Establecer una estrecha relación de coordinación entre el Consejo y la Presidencia de la República.
+g) Promover la articulación y coordinación interinstitucional e intersectorial que favorezcan acciones integrales para la prevención, atención y defensa de los derechos de las personas menores de edad.
+Todas las demás funciones que se deriven de la naturaleza de su cargo.
+(Así modificada su numeración por el artículo 3° del decreto ejecutivo N° 42549 del 30 de junio del 2020, que lo traspaso del antiguo artículo 15 al 20)

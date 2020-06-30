@@ -1,5 +1,11 @@
-Artículo 21.—Comisiones especiales de trabajo. El Consejo podrá conformar comisiones especiales de trabajo, permanentes o temporales, con fines específicos, de conformidad con el artículo 176 del Código de la Niñez y la Adolescencia.
-Las comisiones especiales de trabajo estarán conformadas con no menos de tres representantes de las instancias que conforman el Consejo, integrando entidades públicas y privadas, según la naturaleza del tema a tratar, promoviendo el trabajo interinstitucional e intersectorial, que maximice los recursos humanos, materiales y económicos.
-Las comisiones especiales de trabajo del Consejo dependerán directamente del Pleno del Consejo. El Patronato Nacional de la Infancia, como rector técnico en materia de niñez y adolescencia, brindará asesoría a estas comisiones en el marco de su competencia.
-Las comisiones especiales de trabajo deberán presentar al Consejo, para su consideración y aprobación, en caso de ser permanentes, un plan anual de trabajo y un informe anual de labores.
-En el caso de ser temporales, un plan de trabajo por el periodo de su gestión y un informe final de labores. Además, brindarán los informes de avance, seguimiento o cumplimiento que le sean requeridos por el Consejo.
+CAPÍTULO IV
+Obligaciones de los miembros del Consejo
+Artículo 21.—De las obligaciones de los miembros. Serán obligaciones de los miembros del Consejo:
+a) Asistir con puntualidad a las sesiones del Consejo,
+b) Participar activamente en las sesiones del Consejo.
+c) Votar los asuntos sometidos a la consideración del Consejo
+d) Participar en las comisiones especiales de trabajo que conforme el Consejo.
+e) Realizar las tareas que el Consejo les encomiende y rendir oportunamente los informes que les solicite.
+f) Velar por el cumplimiento oportuno de los acuerdos que se tomen en el seno del Consejo.
+g) Facilitar colaboración para el buen funcionamiento del Consejo y de sus órganos auxiliares.
+(Así modificada su numeración por el artículo 3° del decreto ejecutivo N° 42549 del 30 de junio del 2020, que lo traspaso del antiguo artículo 16 al 21)

@@ -1,9 +1,3 @@
-Artículo 15.—Funciones de la presidencia y vicepresidencia. Son funciones de la presidencia, y en su ausencia, o por delegación, de la vicepresidencia:
-a) Proponer al Consejo el orden del día de cada una de sus sesiones.
-b) Conducir las sesiones, coordinar la consignación de acuerdos, garantizar y monitorear su cumplimiento.
-c) Proponer al Consejo un plan de trabajo anual para su consideración y aprobación.
-d) Proponer al Consejo un informe anual de labores para su consideración y aprobación.
-e) Representar al Consejo en actividades públicas y privadas a nivel nacional e internacional.
-f) Establecer una estrecha relación de coordinación entre el Consejo y la Presidencia de la República.
-g) Promover la articulación y coordinación interinstitucional e intersectorial que favorezcan acciones integrales para la prevención, atención y defensa de los derechos de las personas menores de edad.
-Todas las demás funciones que se deriven de la naturaleza de su cargo.
+Artículo 15.—Requerimientos para realizar sesiones no presenciales o virtuales. Las sesiones virtuales del Consejo podrán realizarse por videoconferencia, utilizando un medio tecnológico que permita una comunicación integral, simultánea, que comprenda video, audio y datos, entre las personas miembros del Órgano y todas aquellas personas que participen de la sesión, en el tanto, se garanticen los principios de colegialidad, simultaneidad y deliberación del órgano colegiado.
+El medio tecnológico a utilizar deberá permitir la grabación de la sesión y la identificación plena y exacta de las personas participantes en la sesión.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 42549 del 30 de junio del 2020)

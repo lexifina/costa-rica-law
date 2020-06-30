@@ -1,2 +1,3 @@
-Artículo 14.—De la presidencia y la vicepresidencia. Cada año, el Consejo elegirá de su seno, un(a) Presidente y un(a) Vicepresidente, quien asumirá en su ausencia. Ambos podrán ser reelegidos en sus cargos por un periodo igual.
-La elección se realizará por mayoría absoluta de los miembros del Consejo.
+Artículo 14.—De la realización de sesiones no presenciales o virtuales. Las sesiones virtuales serán excepcionales, debidamente motivadas y justificadas. Para su realización, la convocatoria a las mismas deberá indicar que la sesión se realizará de manera no presencial o virtual y los motivos que la justifican.
+El Consejo podrá sesionar estando algunas de las personas integrantes presentes físicamente y otras de forma virtual, así como, con la participación de todas las personas integrantes en forma virtual.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 42549 del 30 de junio del 2020)

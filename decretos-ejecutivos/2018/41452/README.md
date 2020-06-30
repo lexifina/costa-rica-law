@@ -14,3 +14,4 @@ Reglamento del Consejo Nacional de la Niñez y la Adolescencia
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-12-06 | la propia norma |
+| 2 | 2020-06-30 | Decreto Ejecutivo 42549 (2020-06-30) |

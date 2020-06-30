@@ -1,2 +1,3 @@
-Artículo 27.—El presente Reglamento rige a partir de su publicación en el Diario Oficial La Gaceta.
-Dado en la Presidencia de la República a los seis días del mes de noviembre del año dos mil dieciocho.
+Artículo 27.—Comité Técnico Asesor. El Consejo dentro de las comisiones especiales de trabajo permanentes constituirá una Comisión denominada Comité Técnico Asesor, conformada por un representante técnico de cada una de las instancias que integran el Consejo. Deberá nombrarse, además, una persona suplente. Ambas designaciones las realizará la máxima autoridad de la institución u organización que representan.
+Este Comité será coordinado por la Secretaría Técnica del Consejo.
+(Así modificada su numeración por el artículo 3° del decreto ejecutivo N° 42549 del 30 de junio del 2020, que lo traspaso del antiguo artículo 22 al 27)

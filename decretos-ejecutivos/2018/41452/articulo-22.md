@@ -1,2 +1,2 @@
-Artículo 22.—Comité Técnico Asesor. El Consejo dentro de las comisiones especiales de trabajo permanentes constituirá una Comisión denominada Comité Técnico Asesor, conformada por un representante técnico de cada una de las instancias que integran el Consejo. Deberá nombrarse, además, una persona suplente. Ambas designaciones las realizará la máxima autoridad de la institución u organización que representan.
-Este Comité será coordinado por la Secretaría Técnica del Consejo.
+Artículo 22.—Del trabajo interinstitucional. Las organizaciones públicas que integran el Consejo deberán articular acciones para el trabajo interinstitucional en el marco de concertación y coordinación que supone el Consejo para el efectivo cumplimiento de los derechos de las personas menores de edad.
+(Así modificada su numeración por el artículo 3° del decreto ejecutivo N° 42549 del 30 de junio del 2020, que lo traspaso del antiguo artículo 17 al 22)
