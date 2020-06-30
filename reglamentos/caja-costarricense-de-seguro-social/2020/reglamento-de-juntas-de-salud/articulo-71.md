@@ -1,0 +1,2 @@
+Artículo 71. De las Donaciones y Contribuciones Las donaciones conseguidas por la Junta de Salud deberán cumplir con las disposiciones contenidas en el Reglamento de Donaciones de la Institución, y guardar relación con el nivel de complejidad del establecimiento de salud; además de coordinarse con las autoridades locales y regionales competentes.
+Los miembros de la Junta de Salud tienen prohibido recibir dádivas o beneficios en virtud de las funciones que desempeñan en el cargo.

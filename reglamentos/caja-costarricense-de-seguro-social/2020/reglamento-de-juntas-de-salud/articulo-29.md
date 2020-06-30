@@ -1,0 +1,3 @@
+Artículo 29.Electores. Toda persona asegurada, independientemente de su condición de aseguramiento, podrá emitir un voto por el candidato de su preferencia, según el sector al que pertenezca (asegurado, patrono, asociaciones u organizaciones pro-salud), siempre y cuando se encuentre adscrito al lugar de donde pertenezca la Junta de Salud.
+Entiéndase lo anterior de la siguiente manera: asegurados eligen a los representantes de asegurados, patronos eligen a los representantes patronales y asociaciones u organizaciones pro-salud eligen a los representantes de asociaciones u organizaciones pro-salud.
+El establecimiento de salud verificará por los medios establecidos por la CCSS, que el usuario elector cumple con los requisitos establecidos.

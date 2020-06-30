@@ -1,0 +1,2 @@
+Artículo 74. Acceso a la información sobre la comunidad y los servicios de salud Como parte de sus funciones, la Dirección Médica y los facilitadores deben brindarle a las Juntas de Salud la información necesaria para poder cumplir con su labor, esto mientras este a su alcance y no transgreda la confidencialidad de dicha información o de datos sensibles, según lo establecido en la legislación vigente en la materia.
+Las autoridades de cada establecimiento de salud deben establecer los lineamientos por medio de los cuales se brindará esta información.

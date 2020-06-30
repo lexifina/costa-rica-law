@@ -1,0 +1,1 @@
+Artículo 55.Decisiones y disposiciones de la Junta de Salud. Las decisiones y disposiciones tomadas en el seno de cada Junta de Salud serán ejercidas como órgano colegiado, y no serán válidas las actuaciones individuales o a título personal, fuera de la conformación de la Junta de Salud.

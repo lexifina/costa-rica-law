@@ -1,0 +1,6 @@
+Artículo 31. Forma de elección y requisitos de los representantes de los asegurados. Los 2 representantes de los asegurados serán electos mediante votación directa, por los asegurados de la zona de adscripción del establecimiento de salud.
+Los requisitos para los candidatos que participen de la elección de asegurados serán los siguientes:
+a) Estar al día en sus obligaciones con la CCSS.
+b) Presentar cédula de identidad o documento de identificación.
+c) Estar adscrito en el establecimiento de salud para el cual se postula o emite su voto independientemente de su condición de aseguramiento.
+El otro de los representantes será electo, de entre ellos, por los representantes de los asegurados de la junta de salud saliente, al menos un mes antes de las elecciones y lo comunicará inmediatamente, por escrito, a la Dirección Médica del establecimiento de salud y la Dirección Institucional de Contralorías de Servicios de Saludo instancia que, en su defecto, sea delegada por la Junta Directiva. Si por alguna razón no se diera la elección o no se le comunique a quien proceda en el plazo convenido durante el proceso de elección, se elegirán entre los candidatos existentes, los tres puestos disponibles en la Junta de Salud para este sector.

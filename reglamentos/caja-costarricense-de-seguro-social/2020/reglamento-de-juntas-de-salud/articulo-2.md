@@ -1,0 +1,1 @@
+Artículo 2. Principios orientadores. El funcionamiento de la Junta de Salud se deberá ajustar a los siguientes principios orientadores: Buena fe, Responsabilidad, Transparencia, Participación y Compromiso social, tanto hacia la comunidad que representa, como al prestador de servicios de salud local.

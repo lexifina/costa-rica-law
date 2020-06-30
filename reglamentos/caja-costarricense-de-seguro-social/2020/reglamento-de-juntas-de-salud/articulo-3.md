@@ -1,0 +1,1 @@
+Artículo 3. Ámbito de aplicación. El presente Reglamento pretende regular el funcionamiento de las Juntas de Salud a nivel nacional, constituidas en los centros de salud brindados por la CCSS o mediante el modelo de gestión por terceros.

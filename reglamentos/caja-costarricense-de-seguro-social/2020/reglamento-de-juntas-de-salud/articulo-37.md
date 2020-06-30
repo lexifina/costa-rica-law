@@ -1,0 +1,1 @@
+Artículo 37.De la celebración de las elecciones. La elección tendrá una duración de 7 (siete) horas, iniciando a las 8:00 a.m. y terminando a las 3:00 p.m. para todos los sectores. Los horarios pueden ser modificados por el Comité Electoral, por razones de fuerza mayor, previa autorización de la DICSS o la instancia que, en su defecto, sea delegada por la Junta Directiva.

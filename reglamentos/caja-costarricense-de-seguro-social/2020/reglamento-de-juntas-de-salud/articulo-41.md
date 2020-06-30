@@ -1,0 +1,1 @@
+Artículo 41.Empates de representantes en el proceso de elección. En caso de presentarse empates en cualquiera de los representantes de los sectores, el Comité de Elección deberá solicitar al Director/a Médico/a o a quien este delegue, al momento del escrutinio de votos, hacer uso del voto de calidad y consignar la decisión en el acta de cierre.

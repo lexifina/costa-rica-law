@@ -1,0 +1,2 @@
+Artículo 77. Apoyo técnico especializado. La DICSS o la instancia que, en su defecto, sea delegada por la Junta Directiva podrá solicitar la colaboración de las distintas instancias técnicas de la Institución, para que, en el campo de su especialización, brinde la capacitación a los miembros de las Juntas de Salud. Para tales efectos, la DICSS coordinará con las instancias respectivas.
+El otorgamiento de viáticos deberá ser cubierto por la Dependencia a la cual pertenezca el funcionario o funcionarios asignados para impartir la actividad.

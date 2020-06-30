@@ -1,0 +1,2 @@
+Artículo 76. Apoyo logístico. La Dirección Regional y la Dirección Médica, en coordinación con las facilitadoras regionales y locales, estará a cargo de brindar todo el apoyo logístico que se requiera para desarrollar con éxito las actividades de capacitación.
+Para ello, al comunicarse el plan anual de capacitación, considerando el lugar y fecha en que les corresponda alguna actividad de capacitación, deberán coordinar lo correspondiente a lugar, apoyo audiovisual, divulgación e invitación a los miembros de Juntas de Salud entre otros.

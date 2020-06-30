@@ -1,0 +1,3 @@
+Artículo 40.Escrutinio de resultados. El cierre de las elecciones quedará autorizado por el Comité Electoral, de acuerdo con los horarios establecidos, no pudiéndose emitir más votos después de su cierre y procediendo a contarlos, sean estos en blanco, nulos o válidos.
+Durante el conteo de votos se podrá contar con la presencia de un representante de la Junta de Salud saliente que no sea candidato a efectos de garantizar la transparencia de este proceso.
+Luego del escrutinio y verificados los resultados, se anotarán los mismos en el Acta de Cierre de la elección respectiva. Serán electos los que obtengan la mayoría de los votos válidos, en orden de mayor a menor según la cantidad de votos obtenidos y puestos vacantes.

@@ -1,0 +1,1 @@
+Artículo 69. Rol de las Juntas de Salud en la formulación de los presupuestos. Durante la formulación del presupuesto ordinario y extraordinario, la Dirección Médica del establecimiento de salud deberá poner en conocimiento de la Junta de Salud el proyecto, a efectos de que ésta realice las observaciones que estime necesarias, para el efectivo cumplimiento de sus fines.

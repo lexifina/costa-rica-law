@@ -1,0 +1,4 @@
+Artículo 82. De las sesiones Las sesiones ordinarias se llevarán a cabo al menos cada dos meses, mismas que deberán de ser definidas el día de la elección del Presidente y Secretario, las cuales se dividirán en dos partes: en la primera parte de la sesión se reunirán solamente los miembros del Consejo y en una segunda parte de ésta, contarán con la participación del Director/a Regional,
+Facilitadores y el representante de la Gerencia Médica para el caso de los Hospitales Nacionales, Hospitales Especializados y Centros Especializados.
+Es responsabilidad del Director/a Regional brindar el apoyo logístico necesario para la celebración de las sesiones de los Consejos Regionales, mientras tanto, el Presidente designado, tendrá las mismas responsabilidades establecidas en el artículo 49 de este Reglamento.
+Le corresponderá al facilitador, así como al Director/a Regional la convocatoria de la primera reunión en donde se elegirá el directorio.

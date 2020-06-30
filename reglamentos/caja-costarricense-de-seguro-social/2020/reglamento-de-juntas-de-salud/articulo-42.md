@@ -1,0 +1,6 @@
+Artículo 42.Comunicación de resultados. El comité de elección procederá a realizar la declaratoria de resultados, con un plazo de 24 horas después de efectuado el conteo de votos, de la siguiente manera:
+a) Deberá informar a la Dirección Médica del establecimiento de salud mediante una copia del acta de cierre de elección con los resultados finales.
+b) Informar de la misma manera a los candidatos participantes en el proceso de elección, que así lo soliciten.
+c) Enviar a la DICSS o la instancia que, en su defecto, sea delegada por la Junta Directiva el acta de cierre de forma digital o física de acuerdo a sus posibilidades.
+El Comité Electoral tendrá 3 días hábiles para remitir el resto de la documentación a la DICSS, la cual puede ser enviada de forma física o digital, de acuerdo a las posibilidades de cada establecimiento de salud.
+La declaratoria en firme de los resultados se dará cuando la DICSS realice un consolidado de los resultados finales de la totalidad de las elecciones en los establecimientos y lo informe a la Junta Directiva de la CCSS. Para esto, la DICSS cuenta con 5 días hábiles después de recibida la totalidad de los resultados obtenidos en todos los establecimientos de salud.

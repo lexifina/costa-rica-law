@@ -1,0 +1,1 @@
+Artículo 88. De la agenda y la logística El Secretario y el Presidente del Consejo Nacional de Juntas de Salud serán los encargados de elaborar la agenda y deberán cumplir con las mismas funciones de los artículos 49 y 50 de este Reglamento.

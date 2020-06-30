@@ -1,0 +1,1 @@
+Artículo 4. Régimen Jurídico Aplicable. La actividad de las Juntas de Salud se regirá por lo dispuesto en la Ley N.º 7852 y sus reformas, publicada en el Diario Oficial La Gaceta de 24 de diciembre de 1998 y por el presente Reglamento, así como por cualquier otra disposición emanada de la Junta Directiva de la Caja Costarricense de Seguro Social.

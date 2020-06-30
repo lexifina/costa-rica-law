@@ -1,0 +1,20 @@
+Artículo 16. Deberes del Director/a Médico/a. Son deberes del Director/a Médico/a con relación a las Juntas de Salud, los siguientes:
+a) Proveer las facilidades y condiciones para la constitución, funcionamiento y una adecuada gestión de las Juntas de Salud durante el periodo de elección y de nombramiento, de conformidad con lo dispuesto en la Ley 7852.
+b) Convocar formalmente a la primera reunión de la Junta de Salud, en un plazo de 15 días hábiles al inicio del periodo de nombramiento de ésta, y deben estar presentes además del Director, el Administrador y el facilitador, para la escogencia del directorio que se realiza cada año.
+c) Nombrar, remover y sustituir discrecionalmente, al facilitador local.
+d) Impulsar y velar por el cumplimiento efectivo del proceso de elección en el establecimiento a su cargo, de conformidad con lo establecido en el capítulo III sobre proceso electoral.
+e) Informar y actualizar a los miembros de la Junta de Salud sobre generalidades y gestión de la Institución.
+f) Mantener informados y actualizados a los miembros de la Junta de Salud sobre el funcionamiento y principales servicios del establecimiento de salud al que está adscrita, así como el plan anual de trabajo y las modificaciones presupuestarias respectivas, entre otros.
+g) Facilitar el acceso a la información pertinente para que la Junta de Salud pueda ejercer sus competencias a cabalidad. No obstante, en caso de tratarse de información confidencial o sensible, el Director/a Médico limitará su acceso conforme al marco jurídico nacional.
+h) Proveer un espacio físico, equipo, recursos, insumos y facilidades para que la Junta de Salud ejerza sus competencias en forma adecuada siempre dentro de las posibilidades reales y normas de la Institución y del establecimiento.
+i) Asistir a las sesiones ordinarias de la Junta de Salud, para rendir informes de la gestión de los servicios, o atender las necesidades de ésta, según lo solicite o convoque previamente la Junta de Salud. Lo mismo aplica para las sesiones extraordinarias a las que sea convocado.
+j) Solicitar criterio a la Junta de Salud sobre las propuestas y documentos de planificación local, así como en la definición de prioridades y políticas generales del establecimiento en materia de inversión, contratación administrativa y recursos humanos, sin que éste sea vinculante. Sin embargo, podrá apartarse del criterio de la Junta de Salud, cuando lo considere improcedente emitiendo la debida justificación o cuando la Junta de Salud no responda en tiempo y forma.
+k) Involucrar a la Junta de Salud en las actividades que desarrolle el centro sobre promoción de la salud, prevención de la enfermedad y participación social.
+l) Informar a la Junta de Salud sobre el resultado de la rendición de cuentas de la gestión de los servicios de salud, al menos una vez al año, en un plazo máximo de quince días hábiles posteriores a la fecha en que se rinde dicho informe.
+m) Dar participación a las Juntas de Salud en los procesos de evaluación de la prestación de los servicios de salud relacionados con el establecimiento de salud.
+n) Solicitar la rendición de cuentas a las Juntas de Salud sobre su gestión.
+o) Canalizar las donaciones gestionadas por la Junta de Salud, según la normativa y política institucional vigente.
+p) Atender y resolver los eventuales conflictos y dificultades que se presenten para el adecuado desarrollo y funcionamiento en general de las Juntas de Salud.
+q) Juramentar a los miembros de las Juntas de Salud, cuando sea requerido, al inicio de periodo o ante la inclusión de nuevos miembros debidamente ratificados por la DICSS o la instancia que, en su defecto, sea delegada por la Junta Directiva.
+r) Pronunciarse sobre las denuncias que haga la Junta de Salud relacionadas con anomalías en los servicios, en la gestión o en la administración de los recursos en un plazo de 10 días hábiles.
+s) Cualesquiera otras funciones asignadas por el presente Reglamento o disposiciones emanadas por la Junta Directiva.

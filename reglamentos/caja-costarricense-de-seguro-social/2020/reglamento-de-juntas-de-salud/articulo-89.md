@@ -1,0 +1,5 @@
+Artículo 89. Elección de representante ante la Auditoría General de Servicios de Salud. Corresponderá al Consejo Nacional de Juntas de Salud elegir a su representante ante la Auditoría General de Servicios de Salud, así como el suplente indicados en el artículo 4 del Reglamento a la Ley N° 8239, “Derechos y Deberes de las Personas Usuarias de los Servicios de Salud Públicos y Privados”.
+Dicho representante y el suplente serán nombrados por un periodo de dos años con posibilidad de reelección, de conformidad con lo que establece el artículo 7 de la ley supra indicada.
+La elección se realizará durante la primera reunión del año en que corresponde nombrar a dicho representante.
+El representante y el suplente serán elegidos entre los miembros de Juntas de Salud que sean propuestos por cada Consejo Regional y en ningún caso podrán pertenecer a la misma Junta o ser de la misma región.
+Cada Consejo Regional de Juntas de Salud podrá proponer a dos miembros de entre la totalidad de las Juntas de Salud adscritas a su circunscripción territorial.

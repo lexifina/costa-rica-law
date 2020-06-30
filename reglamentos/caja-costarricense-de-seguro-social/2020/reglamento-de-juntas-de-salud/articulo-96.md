@@ -1,0 +1,1 @@
+Artículo 96. Derogatorias. Con la entrada en vigor de este Reglamento se deroga el Reglamento de las Juntas de Salud vigente y su Manual; así como las demás disposiciones normativas de igual o menor rango en el tema de Juntas de Salud en cuanto se le opongan.
