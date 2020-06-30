@@ -13,3 +13,4 @@ Fortalecer el Sistema de control interno mediante actividades de control en los 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-01-26 | la propia norma |
+| 2 | 2020-06-30 | Circular 134 (2020-06-30) |
