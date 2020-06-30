@@ -23,7 +23,9 @@ Por principio la concesión de créditos con fondos del Régimen de Capitalizaci
 15. Score: Puntaje basado en un modelo estadístico que pronostica la probabilidad de cumplimiento de una persona en el pago de sus obligaciones.
 16. Seguro de Caución: Garantía que asegura el 100% del saldo principal adeudado del crédito una vez que la operación haya sido declarada formalmente como morosa con más de 90 días de atraso.
 17. Sujeto de Crédito: Afiliados (as) activos (as) del Sistema de Pensiones del Magisterio Nacional, que sean cotizantes a sus regímenes y los jubilados y pensionados (as) directos que tengan declarada en su favor, una pensión o jubilación en dicho Sistema.
+(Así reformada la definición anterior mediante sesión ordinaria N° 072-2020 del 30 de junio del 2020)
 18. Sucesor: Para efectos de este Reglamento, entiéndase “sucesor” como todos aquellos beneficiarios que hayan adquirido el derecho como padres o hermanos del causante, además de nietos amparados bajo la ley 2248 del Régimen de Pensiones del Magisterio Nacional.
+(Así reformada la definición anterior mediante sesión ordinaria N° 072-2020 del 30 de junio del 2020)
 19. |Tasa de interés: La tasa de interés es el precio del dinero en el mercado financiero.
 20. Universidades, CUNLIMON, CUC y el INA: Incluye el Instituto Tecnológico de Costa Rica (ITC), la Universidad Nacional (UNA), la Universidad de Costa Rica (UCR), el Instituto Nacional de Aprendizaje (INA), Universidad Técnica Nacional (UTN) y la Universidad Estatal a Distancia (UNED), el Colegio Universitario de Cartago (CUC) y el Colegio Universitario de Limón (CUN).
 4º—Cuerpo del Reglamento:
