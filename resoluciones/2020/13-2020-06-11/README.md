@@ -14,3 +14,4 @@ Cobro y percepción el impuesto sobre el valor agregado sobre servicios digitale
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-06-12 | la propia norma |
+| 2 | 2020-06-30 | Resolución 18 (2020-07-30) |
