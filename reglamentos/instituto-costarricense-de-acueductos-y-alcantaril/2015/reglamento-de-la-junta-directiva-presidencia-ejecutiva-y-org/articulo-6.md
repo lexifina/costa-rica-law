@@ -1,2 +1,2 @@
-Artículo 6º—La participación virtual excepcional de algunos de los miembros del órgano colegiado se realizará utilizando las tecnologías de información con que cuenta la Institución, y se deberá garantizar la identificación de la persona cuya presencia es virtual, la autenticidad e integridad de la voluntad y la conservación de lo actuado. No obstante, se deberá tomar en cuenta lo señalado en el artículo 5 del presente Reglamento.
-(Así reformado en sesión N° 70 del 19 de noviembre de 2019)
+Artículo 6°—La participación virtual de los miembros del órgano colegiado se realizará utilizando las tecnologías de información con que cuenta la Institución, y se deberá garantizar la identificación de la persona cuya presencia es virtual, la autenticidad e integridad de la voluntad y la conservación de lo actuado. No obstante, se deberá tomar en cuenta lo señalado en el artículo 5 del presente Reglamento.
+(Así reformado en sesión N° 40 del 1° de julio del 2020)
