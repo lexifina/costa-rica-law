@@ -1,0 +1,1 @@
+Artículo 2º—Deróguese el Decreto Ejecutivo número 42258-H del 09 de marzo de 2020, publicado en el Alcance número 77 a La Gaceta número 73 del 07 de abril de 2020, a partir de la vigencia del presente decreto.
