@@ -1,0 +1,1 @@
+Artículo 4º—Plazo de vigencia de las autorizaciones: Todas las autorizaciones de tarifa reducida del 4% otorgadas por el Departamento de Gestión de Exenciones, mediante el sistema EXONET sobre los servicios definidos en esta resolución, tendrán una vigencia desde el 01 de julio de 2020 al 30 de junio de 2021 inclusive, indistintamente de la fecha de su otorgamiento.
