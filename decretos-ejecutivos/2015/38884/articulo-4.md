@@ -1,14 +1,14 @@
-Artículo 4°. Dada la actualización del modelo de costos del industrial se establece los siguientes precios de acuerdo a sus presentaciones, conforme al detalle de los siguientes cuadros:
-Cuadro 2. Precio máximo del arroz pilado en empaques individuales por kilogramo y a
-granel en sacos de 46 kilogramos, para las presentaciones con 79% grano entero o con porcentaje de
-grano entero inferior
-Porcentaje de grano entero | Precio | De industrial a mayorista Colones | De mayorista a detallista Colones | De detallista a consumidor Colones
-Empaque individuales (colones/kilogramo) | Máximo | 549 | 576 | 616
-Empaque a granel (colones/saco de 46 kilogramos) | Máximo | 25.086 | 26.340 | 28.184
-Cuadro 3. Precio único para la presentación con 80% grano entero, en empaques
-individuales por kilogramo
-Porcentaje de grano entero | Precio | De industrial a mayorista Colones / kg | De mayorista a detallista Colones!kg | De detallista a consumidor Colones / kg |
-80% grano entero | Unico | 552 | 579 | 620
+Artículo 4º—Dada la actualización del modelo de costos del industrial y la inclusión del Impuesto al Valor Agregado, se decretan los siguientes precios de acuerdo con sus presentaciones, conforme al detalle de los siguientes cuadros:
+Cuadro 2. Precio mínimo, precio único y precio máximo según
+porcentaje de grano entero arroz pilado en empaques
+individuales por kilogramo.
+[imagen]
+(Así reformado el cuadro anterior por el artículo 1° del decreto ejecutivo N° 42435 del 1° de julio del 2020)
+Cuadro 3. Precio mínimo, precio único y precio máximo según
+porcentaje de grano entero de arroz pilado a granel en
+sacos de 46 kilogramos
+[imagen]
+(Así reformado el cuadro anterior por el artículo 1° del decreto ejecutivo N° 42435 del 1° de julio del 2020)
 Cuadro 4. Precio único para la presentación con 80% grano entero, a granel en sacos de 46
 Kilogramos
 Porcentaje de grano entero | Precio | De industrial a mayorista Colones/ saco | De mayorista a detallista Colones / saco | De detallista a consumidor Colones / saco |

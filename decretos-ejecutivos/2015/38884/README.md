@@ -22,3 +22,4 @@ Precio de referencia del arroz en granza; y el precio máximo y mínimo de todas
 | 7 | 2019-04-08 | Decreto Ejecutivo 41735 (2019-04-08) |
 | 8 | 2019-11-05 | Decreto Ejecutivo 42014 (2019-11-05) |
 | 9 | 2020-04-23 | Decreto Ejecutivo 42324 (2020-04-23) |
+| 10 | 2020-07-01 | Decreto Ejecutivo 42435 (2020-07-01) |
