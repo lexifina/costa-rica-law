@@ -68,4 +68,5 @@ TERCERO: Para calcular el aforo a un 50% de la capacidad máxima del establecimi
 CUARTO. Todos los establecimientos con permiso sanitario de funcionamiento deberán garantizar la aplicación estricta de los lineamientos del Ministerio de Salud para evitar la propagación del COVID-19.
 Aquellos establecimientos que deben permanecer cerrados de lunes a viernes desde las 17:00 horas y hasta las 5:00 horas del día siguiente, así como los sábados y domingos, necesariamente deben cumplir con el aforo al 50% de su capacidad máxima establecida en sus horarios habilitados.
 QUINTO. Se instruye a las autoridades de salud, tanto del Ministerio de Salud como de los Cuerpos Policiales del país cuya condición les ha sido delegada, para que giren Orden Sanitaria a aquellos establecimientos que incumplan con la presente disposición, ordenando la clausura inmediata de dichos establecimientos y la tramitación del cobro de las multas resultantes según corresponda.
-SEXTO. La presente resolución rige a partir del 27 de junio de 2020 y hasta el 01 de julio de 2020.
+SEXTO. La presente resolución rige a partir del 27 de junio de 2020 y hasta el 03 de julio de 2020.
+(Así reformada la parte dispositiva anterior por resolución MS-DM-4990-2020 del 1° de julio del 2020)
