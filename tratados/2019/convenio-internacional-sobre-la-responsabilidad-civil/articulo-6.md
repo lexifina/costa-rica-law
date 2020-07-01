@@ -1,0 +1,5 @@
+Artículo VI
+1. Cuando, a raíz de un suceso, el propietario haya constituido un fondo de conformidad con el artículo V y tenga derecho a limitar su responsabilidad:
+a) ninguna persona que promueva una reclamación nacida de daños ocasionados por contaminación que se deriven de ese suceso podrá ejercer derecho alguno contra otros bienes del propietario en relación con dicha reclamación;
+b) el tribunal u otra autoridad competente de cualquier Estado Contratante ordenará mediante levantamiento la liberación de cualquier buque o cualesquiera bienes pertenecientes al propietario que hayan sido embargados en relación con una reclamación nacida de daños ocasionados por contaminación que se deriven de ese suceso, y del mismo modo liberará toda fianza o garantía de otra índole aportadas para evitar tal embargo.
+2. No obstante, las disposiciones precedentes sólo se aplicarán si el reclamante tiene acceso al tribunal que administre el fondo y éste se halla realmente disponible y es libremente transferible por lo que respecta a su reclamación.

@@ -1,0 +1,4 @@
+Artículo IX
+1. Cuando de un suceso se hayan derivado daños ocasionados por contaminación en el territorio, incluido el mar territorial, o en una zona a la que se hace referencia en el artículo 11, de uno o más Estados Contratantes, o se hayan tomado medidas preventivas para evitar o reducir al mínimo los daños ocasionados por contaminación en ese territorio, incluido el mar territorial o la zona, sólo podrán promoverse reclamaciones de indemnización ante los tribunales de ese o de esos Estados Contratantes. El demandado será informado de ello con antelación suficiente.
+2. Cada Estado Contratante garantizará que sus tribunales tienen la necesaria jurisdicción para entender en tales demandas de indemnización.
+3. Constituido que haya sido el fondo en virtud del artículo V, los tribunales del Estado en que se haya constituido el fondo serán los únicos competentes para dirimir todas las cuestiones relativas al prorrateo y distribución del fondo.
