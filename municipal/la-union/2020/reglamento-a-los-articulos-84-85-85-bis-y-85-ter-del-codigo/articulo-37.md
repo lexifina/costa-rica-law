@@ -1,0 +1,1 @@
+Artículo 37.-Costo de limpieza por concepto de materiales. El costo de la limpieza de materiales no vegetales, se valorará de acuerdo a unidades de masa expresada en kilogramos. Su costo, se actualizará anualmente por la Unidad Ambiental y será publicado en el Diario Oficial La Gaceta.

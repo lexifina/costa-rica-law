@@ -1,0 +1,1 @@
+Artículo 6º-Del procedimiento de notificación a la persona física o jurídica. El Inspector Municipal y/o Ambiental procederá a realizar la notificación correspondiente de conformidad con el artículo 137 del Código de Normas y Procedimientos Tributarios y la Ley de Notificaciones Judiciales.

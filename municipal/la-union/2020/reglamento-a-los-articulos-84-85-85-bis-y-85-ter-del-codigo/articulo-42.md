@@ -1,0 +1,1 @@
+Artículo 42.-Denuncia. La Municipalidad, al tener conocimiento del estado de peligrosidad formulará denuncia respectiva ante la Autoridad de Salud correspondiente y colaborar con ella en el cumplimiento de la Ley General de Salud.

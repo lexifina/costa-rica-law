@@ -1,0 +1,1 @@
+Artículo 29.-Franja verde. Las franjas verdes sólo se permitirán en aceras con un ancho igual o superior a dos metros (2 m). Para el diseño y dimensionamiento deberá consultarse a la Dirección de Infraestructura y Servicios.

@@ -1,0 +1,1 @@
+Artículo 32.-Costo de construcción de un metro cuadrado de acera. El valor de construcción de un metro cuadrado (m2) de acera será determinado anualmente por la Dirección de Infraestructura y Servicios, según el tipo de material requerido, entre otros, y publicado en el Diario Oficial La Gaceta.

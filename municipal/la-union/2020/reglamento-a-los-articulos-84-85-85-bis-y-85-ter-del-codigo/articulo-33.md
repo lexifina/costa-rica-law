@@ -1,0 +1,1 @@
+Artículo 33.-Impedimento económico. Cuando el propietario y/o poseedor carezca de recursos económicos suficientes para realizar la construcción y/o mantenimiento de aceras, deberá presentar a la Municipalidad un estudio socioeconómico que así lo respalde. Dicho estudio deberá ser validado por el Instituto Mixto de Ayuda Social (IMAS).

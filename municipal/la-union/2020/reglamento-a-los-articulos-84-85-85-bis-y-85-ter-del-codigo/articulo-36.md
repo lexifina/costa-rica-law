@@ -1,0 +1,1 @@
+Artículo 36.-Costo de limpieza de vegetación por metro cuadrado. El valor del metro cuadrado (m2) por limpieza en general de predios, se actualizará anualmente por la Unidad Ambiental y será publicado en el Diario Oficial La Gaceta.

@@ -1,0 +1,3 @@
+Artículo 20.-Aceras en mal estado. Se considerarán aceras en mal estado, objeto de notificación, aquellas que contengan huecos, repello levantado, grietas superiores a cinco milímetros (5 mm), tapas de caja de registro en mal estado, diferencias de niveles, entradas a cocheras sin cumplir con lo dispuesto en Reglamento de Construcciones y Reglamento a Ley Nº 7600, cordón de caño resquebrajado o demolido, hecho con material y diseño distinto a lo indicado en este Reglamento.
+Toda acera cuyo deterioro supere una tercera parte de la totalidad, deberá reconstruirse totalmente.
+Por otro lado, las aceras que se encuentren en estado regular, serán objeto a una percibimiento dirigido al propietario como medida preventiva, para realizar las medidas correctivas del caso.

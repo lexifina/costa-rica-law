@@ -1,0 +1,1 @@
+Artículo 45.-Actualización del valor. El valor por concepto de instalación de canoas y bajantes, así como el correspondiente a conservación de fachadas, se actualizará anualmente por la Dirección de Infraestructura y Servicios, y será publicado en el Diario Oficial La Gaceta.

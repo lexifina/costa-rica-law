@@ -1,0 +1,2 @@
+Artículo 10.-Prórroga. El propietario y/o poseedor podrá solicitar una prórroga por los trabajos u obras a realizar, de manera escrita al Inspector que realizó la notificación, justificando las razones del caso y proponiendo el plazo para realizarlas.
+Dicha solicitud será valorada por la Dirección o Unidad correspondiente, la cual deberá ser resuelta y debidamente motivada, en un plazo no mayor a diez días naturales.

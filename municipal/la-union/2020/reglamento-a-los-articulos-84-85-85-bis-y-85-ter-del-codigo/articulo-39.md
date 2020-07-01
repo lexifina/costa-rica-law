@@ -1,0 +1,1 @@
+Artículo 39.-Actualización del valor. El valor del metro lineal por construcción o instalación de cercas, se actualizará anualmente por la Dirección de Infraestructura y Servicios, además, será publicado en el Diario Oficial en La Gaceta.

@@ -1,0 +1,2 @@
+Artículo 51.-Actualización de costo efectivo. Los montos por concepto de costo efectivo serán actualizados cada año por la Dirección o Unidad respectiva y publicados en el Diario Oficial La Gaceta.
+En caso que la Municipalidad deba realizar alguna contratación administrativa necesaria para adquirir los servicios de un tercero para ejecutar las obras y/o servicios, el costo efectivo será el que se determine del proceso de dicha contratación por los servicios necesarios devenidos del perfil del proyecto.
