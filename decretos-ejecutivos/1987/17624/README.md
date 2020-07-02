@@ -19,3 +19,4 @@ Reglamento de Vigilancia Epidemiológica y Control de Enfermedades Transmisibles
 | 4 | 1996-08-23 | Decreto Ejecutivo 25471 (1996-08-23) |
 | 5 | 2001-09-04 | Decreto Ejecutivo 29807 (2001-09-04) |
 | 6 | 2018-09-13 | Decreto Ejecutivo 41411 (2018-09-13) |
+| 7 | 2020-07-02 | Decreto Ejecutivo 42468 (2020-07-02) |
