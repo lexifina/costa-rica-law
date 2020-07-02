@@ -14,3 +14,4 @@ Reglamento del expediente digital único en salud
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-02-20 | la propia norma |
+| 2 | 2020-07-02 | Reglamento 9108 (2020-07-02) |
