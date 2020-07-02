@@ -29,3 +29,5 @@ v) Los vehículos conducidos o que transporten personas con discapacidad, cuando
 (Así adicionado el inciso anterior por el artículo 3° del decreto ejecutivo N° 42294 del 11 de abril del 2020)
 w) Los vehículos de las personas que deban trasladarse estrictamente para brindar soporte médico o cuido de personas en estado terminal, con enfermedad grave o de asistencia a personas con discapacidad o personas adultas mayores.
 (Así adicionado el inciso anterior por el artículo 3° del decreto ejecutivo N° 42294 del 11 de abril del 2020)
+x) Los vehículos de las personas que deban trasladarse estrictamente para asistir a la cita de Revisión Técnica Vehicular, debidamente acreditado con el comprobante de la cita programada.
+(Así adicionado por el artículo 3° del decreto ejecutivo N° 42437 del 2 de julio del 2020)
