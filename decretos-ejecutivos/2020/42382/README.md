@@ -25,3 +25,4 @@ Restricción vehicular nocturna con franja horaria diferenciada en determinados 
 | 10 | 2020-06-24 | Decreto Ejecutivo 42418 (2020-06-24) |
 | 11 | 2020-06-25 | Decreto Ejecutivo 42420 (2020-06-25) |
 | 12 | 2020-06-26 | Decreto Ejecutivo 42423 (2020-06-26) |
+| 13 | 2020-07-02 | Decreto Ejecutivo 42438 (2020-07-02) |

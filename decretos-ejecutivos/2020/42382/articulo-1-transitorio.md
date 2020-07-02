@@ -1,0 +1,2 @@
+TRANSITORIO I.- Durante el período comprendido de las 19:00 horas del viernes 3 de julio a las 04:59 horas del 14 de julio de 2020, inclusive, se suspenderá temporalmente la aplicación de la restricción vehicular nocturna con franja horaria diferenciada establecida en el presente Decreto Ejecutivo únicamente para los incisos k), l), m), n) y o) del artículo 2°, a efectos de que se rijan por lo establecido en el Decreto Ejecutivo número 42253-MOPT-S del 24 de marzo de 2020.
+(Así adicionado por el artículo 4° del decreto ejecutivo N° 42438 del 2 de julio del 2020)

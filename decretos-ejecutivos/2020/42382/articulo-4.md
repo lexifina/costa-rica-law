@@ -22,3 +22,5 @@ t) El vehículo particular que, debido a una emergencia relacionada con la vida 
 u) Los vehículos de personas con labores religiosas y sus colaboradores estrictamente necesarios para la transmisión virtual de actividades religiosas o para la atención de un acto religioso debido al fallecimiento de una persona, debidamente acreditados.
 v) Los vehículos conducidos o que transporten personas con discapacidad, cuando dichos vehículos estén debidamente autorizados.
 w) Los vehículos de las personas que deban trasladarse estrictamente para brindar soporte médico o cuido de personas en estado terminal, con enfermedad grave o de asistencia a personas con discapacidad o personas adultas mayores.
+x) Los vehículos de las personas que deban trasladarse estrictamente para asistir a la cita de Revisión Técnica Vehicular, debidamente acreditado con el comprobante de la cita programada.
+(Así adicionado el inciso anterior por el artículo 3° del decreto ejecutivo N° 42438 del 2 de julio del 2020)
