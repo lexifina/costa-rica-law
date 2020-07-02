@@ -19,3 +19,4 @@ Reglamento para la transición a la Televisión Digital Terrestre en Costa Rica
 | 4 | 2017-12-05 | Decreto Ejecutivo 40812 (2017-12-05) |
 | 5 | 2019-05-14 | Decreto Ejecutivo 41841 (2019-05-14) |
 | 6 | 2019-11-28 | Decreto Ejecutivo 42129 (2019-11-28) |
+| 7 | 2020-07-02 | Decreto Ejecutivo 42518 (2020-07-02) |
