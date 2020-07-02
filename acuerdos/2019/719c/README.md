@@ -14,3 +14,4 @@ Calendario de sorteos y planes de premios de loterías del mes de julio
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-06-18 | la propia norma |
+| 2 | 2020-07-02 | Acuerdo 0 (2020-07-02) |

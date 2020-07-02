@@ -6,20 +6,20 @@ Este Calendario se encuentra sujeto a modificaciones, en cumplimiento de los fin
 CALENDARIO DE LOTERÍAS PREIMPRESAS
 SORTEOS LOTERIA POPULAR JULIO 2020
 DÍA | FECHA | Nº DE SORTEO | TIPO DE LOTERÍA | FECHA CADUCIDAD
-Martes | 07/07/2020 | 6501 | Lotería Popular | lunes, 07 setiembre, 2020
+Miércoles (Así reformado mediante sesión N° 39-2020 del 2° de julio del 2020) | 08/07/2020 (Así reformado mediante sesión N° 39-2020 del 2° de julio del 2020) | 6501 | Lotería Popular | lunes, 07 setiembre, 2020
 Viernes | 10/07/2020 | 6502 | Lotería Popular | jueves, 10 setiembre, 2020
-Martes | 14/07/2020 | 6503 | Lotería Popular | lunes, 14 setiembre, 2020
-Viernes | 17/07/2020 | 6504 | Lotería Popular | jueves, 17 setiembre, 2020
-Martes | 21/07/2020 | 6505 | Lotería Popular | lunes, 21 setiembre, 2020
+Miércoles (Así reformado mediante sesión N° 39-2020 del 2° de julio del 2020) | 15/07/2020 (Así reformado mediante sesión N° 39-2020 del 2° de julio del 2020) | 6503 | Eliminado (Así reformado mediante sesión N° 39-2020 del 2° de julio del 2020) | lunes, 14 setiembre, 2020
+Viernes | 17/07/2020 | 6504 | Eliminado (Así reformado mediante sesión N° 39-2020 del 2° de julio del 2020) | jueves, 17 setiembre, 2020
+Martes | 21/07/2020 | 6505 | Eliminado (Así reformado mediante sesión N° 39-2020 del 2° de julio del 2020) |
 Viernes | 24/07/2020 | 6506 | Lotería Popular | jueves, 24 setiembre, 2020
-Martes | 28/07/2020 | 6507 | Lotería Popular | lunes, 28 setiembre, 2020
+Martes | 28/07/2020 | 6507 | Eliminado (Así reformado mediante sesión N° 39-2020 del 2° de julio del 2020) |
 Viernes | 31/07/2020 | 6508 | GRAN CHANCE | Jueves,01 octubre,2020
 SORTEO LOTERIA NACIONAL JULIO 2020
 DÍA | FECHA | Nº DE SORTEO | TIPO DE LOTERÍA | FECHA CADUCIDAD
-Domingo | 05/07/2020 | 4602 | Lotería Nacional | jueves, setiembre 03, 2020
-Domingo | 12/07/2020 | 4603 | Lotería Nacional | jueves, setiembre 10, 2020
-Domingo | 19/07/2020 | 4604 | Lotería Nacional | jueves, setiembre 17, 2020
-Domingo | 26/07/2020 | 4605 | Lotería Nacional | jueves, setiembre 24, 2020
+Lunes (Así reformado mediante sesión N° 39-2020 del 2° de julio del 2020) | 06/07/2020 (Así reformado mediante sesión N° 39-2020 del 2° de julio del 2020) | 4602 | Lotería Nacional | jueves, setiembre 03, 2020
+Miércoles (Así reformado mediante sesión N° 39-2020 del 2° de julio del 2020) | 22/07/2020 (Así reformado mediante sesión N° 39-2020 del 2° de julio del 2020) | 4603 | Lotería Nacional | jueves, setiembre 10, 2020
+Martes (Así reformado mediante sesión N° 39-2020 del 2° de julio del 2020) | 21/07/2020 (Así reformado mediante sesión N° 39-2020 del 2° de julio del 2020) | 4604 | Eliminado (Así reformado mediante sesión N° 39-2020 del 2° de julio del 2020) | jueves, setiembre 17, 2020
+Martes (Así reformado mediante sesión N° 39-2020 del 2° de julio del 2020) | 28/07/2020 (Así reformado mediante sesión N° 39-2020 del 2° de julio del 2020) | 4605 | Lotería Nacional | jueves, setiembre 24, 2020
 PLANES DE PREMIOS
 SORTEOS ORDINARIOS DE LOTERÍA NACIONAL DE JULIO DEL 2020
 PLAN DE PREMIOS POR EMISIÓN
