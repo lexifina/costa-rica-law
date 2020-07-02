@@ -38,7 +38,8 @@ ii. Una vez autorizado su ingreso, debe esperar con su unidad de transporte a qu
 D.- Actuaciones de la Aduana de Peñas Blancas o el Puesto Aduanero de Las Tablillas:
 i. Recibe la carta de solicitud vía correo electrónico suscrito por el interesado e informa vía correo electrónico a la empresa fecha y hora en que se autoriza efectuar la operación de enganche y desenganche.
 ii. Recibe la documentación del transportista, a efecto de autorizar la DUCA-T en TIM y efectuar el cambio de transportista, según lo indicado resolución RES-DGA-275-2020.
-iii. Crea un movimiento de inventario en el sistema informático TICA.
+iii. Crea un movimiento de inventario en el sistema informático TICA, de las mercancías a granel de sustancias líquidas o gaseosas y de animales vivos, peligrosas para la salud humana, animal, vegetal y para el medio ambiente, así como mercancías refrigeradas y perecederos.
+(Así reformado el punto anterior mediante resolución N° RES-DGA-343-2020 del 2 de julio del 2020)
 iv. Verifica el DUA con levante en el sistema TICA y se autoriza la operación de enganche y desenganche.
 v. Autoriza la salida de las unidades de transporte de la Zona Primaria.
 2°) Desenganche y enganche para exportación.

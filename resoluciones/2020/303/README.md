@@ -14,3 +14,4 @@ Lineamientos para regular el ingreso y salida de vehículos y mercancías, condu
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-06-12 | la propia norma |
+| 2 | 2020-07-02 | Resolución 343 (2020-07-02) |
