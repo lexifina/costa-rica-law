@@ -27,8 +27,11 @@ Junta: Junta de Protección Social.
 Junta Directiva: El máximo órgano jerárquico de la Junta.
 Disponible de Lotería: Inventario físico de lotería preimpresa dispuesta por la Junta para la venta por medio del Canal de Distribución.
 Comisión: Retribución económica que se reconoce al Distribuidor por la prestación de sus servicios.
-Lotería Preimpresa: Modalidad de lotería, que consiste en la venta de billetes con número y serie; si el billete coincide en número y serie con la combinación ganadora determinada en un sorteo, se hace acreedor de un premio.
-Para efectos de este reglamento, se consideran dos modalidades de lotería preimpresa, a saber:
+(*)Lotería Preimpresa: Modalidad de lotería, que consiste en la venta de billetes con número y serie; si el billete coincide en número y serie con la combinación ganadora determinada en un sorteo, se hace acreedor de un premio.
+Para efectos de este reglamento, se consideran dos modalidades de Lotería Preimpresa, a saber:
+• Lotería Nacional.
+• Lotería Popular.
+(*)(Así reformada la definición anterior mediante Sesión Ordinaria N° 39-2020 del 2 de julio de 2020)
 Lotería Nacional: Modalidad que se juega los días domingo.
 Lotería Popular: Modalidad que se juega los días martes y viernes.
 Premio: Retribución económica que se otorga al jugador que resultó favorecido en un sorteo.
