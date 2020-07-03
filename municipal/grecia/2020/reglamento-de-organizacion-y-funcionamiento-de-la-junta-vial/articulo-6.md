@@ -1,0 +1,1 @@
+Artículo 6º—Las personas integrantes de la Junta Vial, para resultar legitimados como tales deben ostentar el carácter de miembros o funcionarios del órgano, institución o sector que representan, de forma tal que acabada esa condición igualmente por derivación se extingue la representación.

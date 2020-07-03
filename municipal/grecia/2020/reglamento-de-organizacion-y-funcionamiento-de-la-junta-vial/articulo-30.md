@@ -1,0 +1,1 @@
+Artículo 30.—Las actas de la Junta Vial deberán ser aprobadas en la misma sesión ordinaria, estando habilitados para deliberar y aprobarlas únicamente quienes estuvieron presentes en la sesión objeto de discusión y votación. Serán firmadas por las personas presentes.

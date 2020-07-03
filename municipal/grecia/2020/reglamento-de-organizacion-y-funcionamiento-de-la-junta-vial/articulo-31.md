@@ -1,0 +1,2 @@
+Artículo 31.—Las actas deberán constar en un “Libro de Actas”, compuesto de hojas removibles o encuadernadas, con folios numerados consecutivamente tanto en el frente como en el reverso.
+Dicho libro de actas será debidamente autorizado por la Auditoría Interna de conformidad con el artículo 22 inciso e) de la Ley Nº 8292 de Control Interno vigente, y sus reformas.
