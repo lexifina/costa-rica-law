@@ -1,0 +1,1 @@
+ARTICULO 29- Todos los trabajadores de la Municipalidad disfrutaran con goce de salario, de todos los días de asueto que debidamente hayan sido declarados por el Concejo Municipal, como también aquellos otros asuetos de alcance general declarados por el Poder Ejecutivo o La Asamblea Legislativa.

@@ -1,0 +1,1 @@
+ARTICULO 62- En el caso de incapacidades, ya sea por la CCSS o por el INS, la Municipalidad otorgará al trabajador un subsidio de medio salario, el cual se pagará normalmente, cada semana hasta por un plazo no mayor de un año consecutivo.

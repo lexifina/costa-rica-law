@@ -1,0 +1,1 @@
+ARTICULO 5- La aplicación del presente Reglamento corresponde al Ejecutivo Municipal, el cual tendrá la facultad de interpretar y resolver las dudas que pudieran surgir en relación con este reglamento.

@@ -1,0 +1,1 @@
+ARTICULO 17-La Municipalidad pagara los salarios en efectivo, los días viernes de cada semana. En caso de coincidir el día de pago con un feriado, se procederá al pago del salario el día hábil inmediato anterior.

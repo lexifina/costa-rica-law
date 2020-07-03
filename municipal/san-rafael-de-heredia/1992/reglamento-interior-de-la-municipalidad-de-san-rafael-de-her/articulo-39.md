@@ -1,0 +1,1 @@
+ARTICULO 39- Las asistencias del Seguro Social, cuando son en horas laborales, se consideran como licencias con goce de salario, deberán ser marcadas en el reloj controlador usando la tarjeta correspondiente.

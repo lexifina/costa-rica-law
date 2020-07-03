@@ -1,0 +1,1 @@
+ARTICULO 36- Salvo los casos previstos en el reglamento la omisión de una marca o cualquiera de las horas de entrada o salida, hará presumir la inexistencia a la correspondiente fracción de jornada, siempre y cuando el trabajador no la justifiquen a más tardar en la fracción de la jornada siguiente a aquella en la que el hecho sucedió.

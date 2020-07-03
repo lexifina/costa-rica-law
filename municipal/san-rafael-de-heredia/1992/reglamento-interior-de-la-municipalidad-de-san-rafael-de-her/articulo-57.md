@@ -1,0 +1,3 @@
+CAPITULO XVIII
+DE LOS RIESGOS PROFESIONALES
+ARTICULO 57- De conformidad con lo establecido en el articulo221 del Código de Trabajo, el patrono deberá dar aviso al I.N.S., de cualquier riesgo profesional que les ocurra a sus trabajadores dentro del término de ocho días hábiles, contados a partir de su acaecimiento. Si el trabajador no estuviera asegurado contra riesgos de trabajo, el INS le otorgara todas las prestaciones que le hubiesen correspondido de haber estado asegurado. El INS conservara el derecho de accionar contra el patrono, por el cobro de los gastos en que haya incurrido ante esa eventualidad. Los requisitos de la notificación deberán ajustarse a lo dispuesto por el artículo 222 del Código de Trabajo.

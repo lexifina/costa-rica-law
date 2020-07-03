@@ -1,0 +1,7 @@
+ARTICULO 60- Ningún trabajador, debe según lo que escribe el artículo 286 del Código de Trabajo:
+a. Impedir o entorpecer el cumplimiento de las medidas de salud ocupacional.
+b. Remover, sin autorización los resguardos y protecciones de las maquinas, útiles de trabajo e instalaciones.
+c. Alterar, dañar o destruir los equipos y elementos de protección personal, de seguridad en el trabajo o negarse a usarlos sin motivo justificado.
+d. Alterar, dañar o destruir los avisos y advertencias sobre condiciones, sustancias, productos y lugares peligrosos.
+e. Hacer juegos o dar bromas que pongan en peligro la vida y salud e integridad personal de los compañeros de trabajo o de terceros.
+f. Manejar, operar o hacer uso de equipo y herramientas de trabajo, para las cuales no cuenten con autorización y conocimientos.

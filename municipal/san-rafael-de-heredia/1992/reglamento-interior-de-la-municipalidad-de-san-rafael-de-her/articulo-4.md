@@ -1,0 +1,1 @@
+ARTICULO 4- El presente reglamento se aplicará únicamente, aquellos funcionarios que dependan directamente del Ejecutivo, no así, a los que dependan del Concejo Municipal, pues a estos se les aplicará las disposiciones que dicho órgano colegiado disponga.

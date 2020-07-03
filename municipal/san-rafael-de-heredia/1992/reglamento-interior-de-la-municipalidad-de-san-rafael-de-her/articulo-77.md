@@ -1,0 +1,1 @@
+ARTICULO 77- La Municipalidad se reserva el derecho de accionar y modificar en cualquier momento las disposiciones de este reglamento, las cuales deben someterse a trámite de estudio y discusión con la parte de los trabajadores antes de realizar alguna modificación.

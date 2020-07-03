@@ -1,0 +1,1 @@
+ARTICULO 64- Todas las licencias que se concedan a los trabajadores serán sin goce de salario, salvo aquellas previstas por el Código Municipal, Leyes o Reglamentos conexos o supletorios, o que sin serlo la Municipalidad considere oportuno otorgar con goce salarial.

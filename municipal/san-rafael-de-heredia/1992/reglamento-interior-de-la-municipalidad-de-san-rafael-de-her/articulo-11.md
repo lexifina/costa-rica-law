@@ -1,0 +1,1 @@
+ARTICULO 11-Pese a lo dispuesto en los artículos anteriores se presume la existencia de un contrato de trabajo entre la Municipalidad y quienes le presten sus servicios personales en forma subordinada ya cambio una retribución o salario de cualquier clase de forma.

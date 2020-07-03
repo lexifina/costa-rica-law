@@ -1,0 +1,1 @@
+ARTICULO 75-Una vez finalizado el periodo establecido de la modalidad de teletrabajo el funcionario(a) municipal, deberá de reincorporarse de manera inmediata a su respectivo recinto de trabajo en el municipio.

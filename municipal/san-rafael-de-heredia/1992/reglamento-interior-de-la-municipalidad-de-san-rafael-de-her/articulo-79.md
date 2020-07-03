@@ -1,0 +1,1 @@
+ARTICULO 79- En defecto de disposiciones propias de este reglamento, deberán tenerse como supletorias el CODIGO MUNICIPAL, EL CODIGO DE TRABAJO y demás LEYES, DECRETOS Y REGLAMENTOS, conexos en la materia, que estén en vigencia. Asa mismo el Manual Descriptivo de Puesto de la Municipalidad.

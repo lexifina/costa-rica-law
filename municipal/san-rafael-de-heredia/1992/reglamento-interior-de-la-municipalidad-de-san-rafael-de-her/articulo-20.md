@@ -1,0 +1,1 @@
+ARTICULO 20-La Municipalidad señalará la época en que el trabajador gozara de sus vacaciones, pero deberá hacerlo dentro de las 15 semanas posteriores al día en las que se cumplan las cincuenta semanas de servicio continuo, tratando que no altere la buena marcha de la Municipalidad, ni la efectividad del descanso del empleado.

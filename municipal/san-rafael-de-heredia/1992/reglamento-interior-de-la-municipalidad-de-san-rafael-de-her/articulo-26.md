@@ -1,0 +1,1 @@
+ARTICULO 26- Cuando los servidores estén disfrutando de sus vacaciones, a estos se les deberá pagar los días de descanso intercalados en el periodo de vacaciones a disfrutar, sean de 15 a 22 días hábiles, pues cuando se trate de mes calendario, en el pago de este, se incluye todos los días del mes que correspondan.

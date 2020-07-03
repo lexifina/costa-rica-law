@@ -1,0 +1,1 @@
+ARTICULO 45- Las sanciones establecidas en el presente capitulo se aplicarán en el transcurso de los quince días después en que cometió la falta, o en que los representantes patronales conocieron de la misma.

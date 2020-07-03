@@ -1,0 +1,1 @@
+ARTICULO 74-La Unidad de Gestión de Desarrollo Humano Municipal brindara el visto bueno correspondiente a dicha solicitud y brindara el debido seguimiento correspondiente a todos(as) aquellos(as) funcionarios(as) municipales que se encuentren en esta modalidad temporal de teletrabajo
