@@ -1,0 +1,5 @@
+Artículo 19.—Conformación del expediente y su custodia.
+19.1 La Dirección Producto y Proyectos deberá, como primer paso, abrir un expediente en el cual se incorporarán todos los documentos electrónicos generados con relación a la propuesta de negocio. El expediente debe ser electrónico. El detalle de los documentos que conforman el expediente será definido por la Gerencia General vía directriz.
+19.2 La Dirección Producto y Proyectos será la responsable de mantener actualizado el expediente electrónico hasta la debida suscripción del Acuerdo de Asociación.
+19.3 El Administrador del Contrato será el responsable de mantener actualizado el expediente electrónico durante el proceso de implementación, incorporando para ello todos los documentos necesarios según el detalle definido por la Gerencia General.
+19.4 El tiempo de conservación en formato digital de este expediente, una vez concluida la etapa de ejecución e incluso firmado el finiquito, será de cinco años contados a partir de la finalización de la relación contractual.

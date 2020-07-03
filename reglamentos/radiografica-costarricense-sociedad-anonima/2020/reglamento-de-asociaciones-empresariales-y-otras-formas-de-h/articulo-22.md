@@ -1,0 +1,1 @@
+Artículo 22.—Respaldo técnico y económico. La Dirección Producto y Proyectos preparará el detalle de la documentación técnica y económica de respaldo que contenga los diferentes elementos que componen el servicio a brindar, con el propósito de demostrar la participación sustancial de RACSA.

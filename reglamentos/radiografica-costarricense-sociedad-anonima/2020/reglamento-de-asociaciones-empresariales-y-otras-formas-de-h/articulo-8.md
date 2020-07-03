@@ -1,0 +1,1 @@
+Artículo 8º—Invitación a integrar el Registro Electrónico de Socios. El Departamento de Proveeduría efectuará al menos una invitación anual para integrar el Registro Electrónico de Socios; no obstante, los interesados se podrán inscribir en cualquier momento.

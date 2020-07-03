@@ -1,0 +1,1 @@
+Artículo 49.—Formalización. Los términos de la colaboración se plasmarán en un Acuerdo para el Desarrollo de Productos Innovadores que establezca en forma sencilla los derechos y obligaciones de las partes según los términos señalados en este reglamento. Para ello la Dirección Jurídica y Regulatoria brindará el acompañamiento respectivo.

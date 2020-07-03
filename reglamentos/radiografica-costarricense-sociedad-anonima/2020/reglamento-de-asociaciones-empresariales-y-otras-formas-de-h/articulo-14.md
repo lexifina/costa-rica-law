@@ -1,0 +1,1 @@
+Artículo 14.—Verificación de poderes inscribibles. Respecto de los apoderados cuyo mandato debe estar inscrito en el Registro Nacional, a solicitud del Departamento de Proveeduría, la Dirección Jurídica y Regulatoria verificará la vigencia de los mandatos y las facultades otorgadas.

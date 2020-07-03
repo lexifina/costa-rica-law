@@ -1,0 +1,2 @@
+Artículo 28.—Ingreso de la propuesta. Las propuestas deberán ser presentadas electrónicamente por medio del formulario que se facilitará para tales efectos.
+La propuesta participará únicamente en el proceso de selección para el cual fue presentada, salvo que se trate de un proceso de precalificación para varios procesos de selección. El socio verificará que la información aportada sea correcta y esté completa.

@@ -1,0 +1,4 @@
+CAPÍTULO IV
+Consideraciones generales
+Artículo 21.—Participación sustancial. RACSA deberá tener una participación sustancial, es decir significativa en relación con el objeto de la solución y/o servicio a ofrecer (aportes directos a la actividad principal). Para ello la Dirección Producto y Proyectos deberá analizar las particularidades de cada caso, tomando en cuenta parámetros como el valor total del objeto contractual, la complejidad de las prestaciones a asumir, las competencias de RACSA, la especialidad de la participación del socio, entre otros elementos, para lo cual utilizará la Metodología para la Elaboración del Capítulo Financiero de Casos de Negocio, definida por la Dirección Gestión Financiera de RACSA.
+Para los casos en que la asociación empresarial responda a una contratación entre Entes de Derecho Público en la cual RACSA sea parte, se deberán observar los porcentajes de participación, y demás requisitos que establezca la Ley.

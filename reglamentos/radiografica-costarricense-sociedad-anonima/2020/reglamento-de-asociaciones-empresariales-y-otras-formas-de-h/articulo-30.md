@@ -1,0 +1,1 @@
+Artículo 30.—Selección del socio. Una vez concluido el análisis respectivo de las propuestas que deberá constar en el expediente, la Dirección Producto y Proyectos seleccionará al socio, para lo cual deberá aplicar un procedimiento de selección que respete los principios de contratación administrativa.
