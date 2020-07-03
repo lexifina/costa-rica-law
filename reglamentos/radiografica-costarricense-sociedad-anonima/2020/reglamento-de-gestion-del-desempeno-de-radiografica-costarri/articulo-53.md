@@ -1,0 +1,1 @@
+Artículo 53.—Brindar el resultado final de las evaluaciones de desempeño al área de nómina para el pago de anualidades para aquellos colaboradores que se encuentren en modalidad de estructura salarial compuesta y/o incentivos que corresponda.

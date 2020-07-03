@@ -1,0 +1,1 @@
+Artículo 10.—Los planes de desempeño deben ser firmados y entregados al Departamento de Talento y Cultura, 15 días hábiles antes del comienzo del proceso de gestión del desempeño. En caso de ajustes a los planes, los mismos deben ser corregidos y devueltos a esta área en un máximo de 5 días hábiles respetando el plazo previo al proceso de gestión.

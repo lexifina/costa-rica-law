@@ -1,0 +1,1 @@
+Artículo 8º—El Departamento de Talento y Cultura en conjunto con el Administrador General de Metas deben garantizar que cada colaborador ingrese al proceso de evaluación del desempeño, con un plan de desempeño asociado, acordado previamente entre la Jefatura y el colaborador, que contenga metas alineadas con los objetivos estratégicos, parámetros y competencias.

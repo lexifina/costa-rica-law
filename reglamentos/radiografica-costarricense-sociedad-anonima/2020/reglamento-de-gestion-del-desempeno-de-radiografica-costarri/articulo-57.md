@@ -1,0 +1,1 @@
+Artículo 57.—Tomar decisiones en cuanto a las recomendaciones emitidas por parte del Departamento de Talento y Cultura y el Administrador General de Metas que resulten del análisis de informes de resultados del proceso de evaluación del desempeño.

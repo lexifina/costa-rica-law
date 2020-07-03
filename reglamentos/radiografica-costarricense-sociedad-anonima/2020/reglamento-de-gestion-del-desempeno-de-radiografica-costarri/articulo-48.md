@@ -1,0 +1,1 @@
+Artículo 48.—Llevar a cabo un proceso de comunicación previo brindando información completa y veraz sobre la forma en que se procederá a definir los indicadores cuantitativos de cumplimiento de metas y a aplicar la evaluación de desempeño.

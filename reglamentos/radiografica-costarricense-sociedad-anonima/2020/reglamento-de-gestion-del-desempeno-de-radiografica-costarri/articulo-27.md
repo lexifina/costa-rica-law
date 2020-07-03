@@ -1,0 +1,1 @@
+Artículo 27.—El colaborador será el responsable de participar activamente, colaborar y poner todo su esfuerzo en el logro del cumplimiento de su plan de desempeño, así como de aportar la documentación que respalde sus resultados.

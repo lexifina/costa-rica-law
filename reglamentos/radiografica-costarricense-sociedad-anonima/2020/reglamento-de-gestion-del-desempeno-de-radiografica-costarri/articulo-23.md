@@ -1,0 +1,1 @@
+Artículo 23.—Los colaboradores de nuevo ingreso y que presenten traslados dentro de la Empresa durante el período de evaluación, deberán aprobar el respectivo período de prueba para ingresar al proceso de gestión de desempeño Empresarial por medio de la elaboración del plan de desempeño individual.

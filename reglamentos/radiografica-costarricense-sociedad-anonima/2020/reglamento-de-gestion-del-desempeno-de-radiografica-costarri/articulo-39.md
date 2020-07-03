@@ -1,0 +1,1 @@
+Artículo 39.—Durante la aplicación del Plan de Mejora, el colaborador y la Jefatura deberán hacer una sesión de seguimiento mínimo cada tres meses para valorar el avance de las acciones acordadas en el Plan.

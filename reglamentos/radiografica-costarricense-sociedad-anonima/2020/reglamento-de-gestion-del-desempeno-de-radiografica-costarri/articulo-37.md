@@ -1,0 +1,1 @@
+Artículo 37.—Responder las consultas e inconformidades presentadas por los evaluados respecto a los resultados obtenidos en la evaluación del desempeño de acuerdo a lo indicado a los artículos 25 y 26 de este Reglamento.

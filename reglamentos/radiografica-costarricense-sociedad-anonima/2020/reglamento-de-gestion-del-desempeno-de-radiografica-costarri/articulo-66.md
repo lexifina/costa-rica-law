@@ -1,0 +1,1 @@
+Artículo 66.—Analizar los resultados de la Evaluación de Desempeño y los reportes que genere el Departamento de Talento y Cultura, con el fin de proponer las recomendaciones respectivas a la Gerencia General.

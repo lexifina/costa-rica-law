@@ -1,0 +1,1 @@
+Artículo 9º—En el proceso de negociación de las metas a establecer en el plan de desempeño del colaborador, la Jefatura debe considerar elementos objetivos tales como: datos históricos, indicadores de gestión, y estadísticas afines, Estrategia Empresarial y cualquier aspecto que impacte las metas.

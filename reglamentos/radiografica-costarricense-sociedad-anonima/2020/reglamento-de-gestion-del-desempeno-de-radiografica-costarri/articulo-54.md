@@ -1,0 +1,1 @@
+Artículo 54.—Establecer los parámetros técnicos necesarios a partir de los lineamientos generales que emita el Ministerio de Planificación Nacional y Política Económica (MIDEPLAN), como rector en materia de empleo público, para la evaluación del desempeño de las personas servidoras públicas.

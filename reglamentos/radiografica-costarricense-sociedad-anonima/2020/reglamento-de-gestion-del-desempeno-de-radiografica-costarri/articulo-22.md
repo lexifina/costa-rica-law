@@ -1,0 +1,1 @@
+Artículo 22.—En caso de períodos de incapacidad, vacaciones, licencias o permisos no consecutivos superiores a un mes serán tomados en cuenta de manera proporcional para el resultado final del plan de desempeño del colaborador, el cual deberá ser ajustado al tiempo efectivo laboral dentro del período de medición, tomando en consideración el impacto en el negocio.

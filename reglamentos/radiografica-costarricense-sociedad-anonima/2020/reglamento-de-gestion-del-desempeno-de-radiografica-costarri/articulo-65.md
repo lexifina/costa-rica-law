@@ -1,0 +1,1 @@
+Artículo 65.—Colaborar con la definición y revisión de los indicadores cuantitativos de cumplimiento de metas para los Planes de Desempeño y Planes de Mejora, verificando su alineamiento con la Estrategia Empresarial.

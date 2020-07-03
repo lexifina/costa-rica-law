@@ -1,0 +1,1 @@
+Artículo 4º—La medición del desempeño individual se enfoca en dos ámbitos, el logro de los indicadores cuantitativos de cumplimiento de metas y la medición de competencias asignadas por el área técnica competente. La evaluación se desarrollará de acuerdo a los porcentajes estipulados en la legislación vigente.

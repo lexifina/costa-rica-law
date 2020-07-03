@@ -1,0 +1,1 @@
+Artículo 6º—Los niveles de desempeño individual se determinan de acuerdo con los siguientes rangos: insuficiente, bueno, muy bueno, excelente y sobresaliente; de conformidad con el cumplimiento de las metas y competencias según los parámetros definidos para cada nivel, los cuales se encuentran definidos en el apartado de definiciones de este Reglamento.

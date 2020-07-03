@@ -1,0 +1,1 @@
+Artículo 58.—Rendir un informe anual a la Junta Directiva con los resultados generales de la evaluación de desempeño, el aporte o contribución de la aplicación del modelo de la gestión del desempeño al logro de los Objetivos Estratégicos Empresariales.

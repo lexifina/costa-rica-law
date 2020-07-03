@@ -1,0 +1,1 @@
+Artículo 13.—La información derivada de los datos y resultados de la evaluación de desempeño de los colaboradores es de acceso restringido y se utilizará únicamente para el ejercicio de las funciones que se encuentren a cargo de la Gerencia General, el Departamento de Talento y Cultura y las respectivas Jefaturas.

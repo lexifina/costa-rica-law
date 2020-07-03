@@ -1,0 +1,1 @@
+Artículo 30.—En caso que el colaborador haya obtenido una calificación final mayor al parámetro establecido como Bueno y no presente brechas en sus competencias actitudinales en medición no requerirá efectuarse Plan de Mejora.

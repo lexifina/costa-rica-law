@@ -1,0 +1,1 @@
+Artículo 12.—El proceso de gestión del desempeño empresarial se basará en las etapas de: planificación, seguimiento, evaluación y realimentación. Todas las etapas deberán documentarse e incluirse en el expediente de personal del colaborador.

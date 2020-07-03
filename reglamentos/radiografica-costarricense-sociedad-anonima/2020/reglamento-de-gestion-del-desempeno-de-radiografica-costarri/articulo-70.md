@@ -1,0 +1,1 @@
+Artículo 70.—El trabajador que haya sido sometido a un plan de mejora en tres ocasiones consecutivas y que a pesar de ello mantiene los resultados por debajo de los niveles aceptables definidos previamente; será sujeto de medidas disciplinarias conforme al Estatuto de Personal de RACSA.

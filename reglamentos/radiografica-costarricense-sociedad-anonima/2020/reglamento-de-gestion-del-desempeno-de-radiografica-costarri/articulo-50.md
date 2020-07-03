@@ -1,0 +1,1 @@
+Artículo 50.—Brindar seguimiento a la medición y control de los indicadores cuantitativos de cumplimiento de metas de los planes de desempeño de los colaboradores. Así como entregar los resultados finales de las evaluaciones a las jefaturas.

@@ -1,0 +1,1 @@
+Artículo 2º—La gestión del desempeño empresarial se rige por los principios rectores de: participación, transparencia, objetividad e imparcialidad, igualdad de oportunidad trato y no discriminación, legalidad, eficacia y eficiencia en apego a lo estipulado en la legislación vigente.

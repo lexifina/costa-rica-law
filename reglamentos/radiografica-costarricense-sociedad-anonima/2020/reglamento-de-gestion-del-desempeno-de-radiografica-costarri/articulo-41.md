@@ -1,0 +1,1 @@
+Artículo 41.—Informar al Departamento de Talento y Cultura si se requiere alguna modificación en el plan de desempeño de algún colaborador a su cargo, debido a cambios en sus funciones, traslados o cualquier otro aspecto que pueda afectar el desempeño del colaborador.
