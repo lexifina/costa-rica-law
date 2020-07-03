@@ -1,0 +1,1 @@
+Artículo 2º—Concepto: Se entenderá por “caución”, la garantía rendida por un funcionario municipal en favor de la Municipalidad, para el resarcimiento de eventuales daños y perjuicios que el caucionado pueda producir al patrimonio de la institución, mediante la presentación de una póliza de fidelidad, sin que ello limite la eventual responsabilidad civil.

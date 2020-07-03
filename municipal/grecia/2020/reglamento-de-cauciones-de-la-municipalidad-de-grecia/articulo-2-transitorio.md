@@ -1,0 +1,2 @@
+Transitorio II.—Los funcionarios que a la entrada en vigencia del presente reglamento mantengan garantías de fidelidad vigentes, podrán esperar a su vencimiento y en el momento de su renovación deberán ajustarse a la presente normativa.
+Rige a partir de su publicación en el Diario Oficial La Gaceta.

@@ -1,0 +1,1 @@
+Transitorio I.—Una vez entrado en vigencia este reglamento, los funcionarios aquí obligados a caucionar, contarán con un plazo de noventa días naturales para suscribir la respectiva póliza y acreditar el contrato ante Gestión de Personal.

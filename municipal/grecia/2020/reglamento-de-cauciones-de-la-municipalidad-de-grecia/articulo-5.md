@@ -1,0 +1,1 @@
+Artículo 5º—Interinatos, suplencias y recargos. Aquellos funcionarios que de manera interina o transitoria ocupen cualquiera de los cargos mencionados en el artículo anterior, deberán caucionar cuando su nombramiento sea igual o superior de un mes, lo cual deberá cumplir en el plazo de quince días naturales.
