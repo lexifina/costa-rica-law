@@ -21,7 +21,8 @@ q) El personal de los servicios de salud con jornada laboral comprendida o que c
 (Así reformado el inciso anterior por el artículo 3° del decreto ejecutivo N° 42348 del 14 de mayo del 2020)
 r) El personal indispensable para el funcionamiento de los operadores y proveedores del servicio de telecomunicaciones, debidamente acreditados.
 s) El personal indispensable para el funcionamiento de la prensa y distribuidores de medios de comunicación, debidamente acreditados.
-t) El vehículo particular que, debido a una emergencia relacionada con la vida o salud de una persona, requiera trasladarse a un establecimiento de salud o farmacéutico.
+t) El vehículo particular que, debido a una emergencia relacionada con la vida o salud de una persona, requiera trasladarse a un establecimiento de salud o farmacéutico. Así como con ocasión de una cita médica programada o para asistir a donar sangre al Banco Nacional de Sangre o al hospital respectivo, en ambos casos con el debido comprobante de la cita programada.
+(Así reformado el inciso anterior por el artículo 2° del decreto ejecutivo N° 42439 del 5 de julio del 2020)
 u) Los vehículos de personas con labores religiosas y sus colaboradores estrictamente necesarios para la transmisión virtual de actividades religiosas o para la atención de un acto religioso debido al fallecimiento de una persona, debidamente acreditados.
 (Corregido el inciso anterior mediante Fe de Erratas y publicado en el Alcance Digital N° 93 a La Gaceta N 83 del 17 de abril del 2020, página N° 2)
 v) Los vehículos conducidos o que transporten personas con discapacidad, cuando dichos vehículos estén debidamente autorizados.
