@@ -1,1 +1,0 @@
-Artículo 3º—Sujeción a los lineamientos de la Contraloría General de la República. El nombramiento del Auditor y el Subauditor del INS, ya sea en forma temporal o por tiempo indefinido se efectuará conforme a los lineamientos citados.

@@ -1,1 +1,0 @@
-Artículo 5º—Publicidad del concurso. Cuando de conformidad con los lineamientos emitidos por la Contraloría General de la República ya mencionados, para elegir al Auditor y el Subauditor del Instituto Nacional de Seguros se deba efectuar un concurso público, este se publicará en al menos un medio de comunicación escrito de cobertura nacional.
