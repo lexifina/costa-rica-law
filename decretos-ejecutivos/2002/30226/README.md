@@ -14,3 +14,4 @@ Reglamento del Servicio Comunal Estudiantil.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-04-01 | la propia norma |
+| 2 | 2020-07-06 | Decreto Ejecutivo 42544 (2020-07-06) |
