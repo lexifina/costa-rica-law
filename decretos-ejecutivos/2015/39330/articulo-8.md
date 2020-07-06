@@ -1,1 +1,3 @@
-Artículo 8º—Eficiencia administrativa. Todos los entes y órganos de la Administración Pública, aplicarán las reglas de la simplificación de trámites, la eficiencia administrativa y la coordinación interinstitucional, para favorecer la resolución favorable de permisos, licencias y otras autorizaciones que requiera la ejecución de este proyecto.
+Artículo 8º—Vigencia. Rige a partir de su publicación en el Diario Oficial La Gaceta.
+Dado en la Presidencia de la República, a los siete días del mes de octubre del año dos mil quince. Publíquese.
+(Así modificada su numeración por el artículo 3° del decreto ejecutivo N° 42310 del 6° de julio de 2020, que lo traspaso del antiguo artículo 9) al 8), ya que ordenó derogar el artículo 7 original y correr la numeración de los restantes artículos)

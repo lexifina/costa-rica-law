@@ -14,3 +14,4 @@ Declara de interés público y nacional la formulación y ejecución del proyect
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-02-10 | la propia norma |
+| 2 | 2020-07-06 | Decreto Ejecutivo 42310 (2020-07-06) |

@@ -1,2 +1,1 @@
-Artículo 9º—Vigencia. Rige a partir de su publicación en el Diario Oficial La Gaceta.
-Dado en la Presidencia de la República, a los siete días del mes de octubre del año dos mil quince. Publíquese.
+Artículo 9º—(El texto de este artículo debe de ser consultado en el numeral 8, ya que por el artículo 3° del decreto ejecutivo N° 42310 del 6° de julio de 2020, se ordenó derogar el artículo 7 original y correr la numeración de los restantes artículos)

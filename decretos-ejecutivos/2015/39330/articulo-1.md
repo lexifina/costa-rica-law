@@ -25,6 +25,7 @@ e. Con la implementación del proyecto, se invierten recursos en la adquisición
 XII. Que el Poder Ejecutivo, consciente de la importancia de los fines que persigue este proyecto y su necesaria articulación de esfuerzos públicos y privados, encauzados a la protección del ambiente, a elevar la eficiencia de la Administración, a la contención del gasto y a favorecer las acciones que fomenten la inversión pública de calidad, apoya este tipo de iniciativas y las alianzas necesarias para el desarrollo óptimo del proyecto.
 XIII. Que este esfuerzo de desarrollo institucional marca la pauta para que las futuras necesidades de espacio institucionales sean hechas como fases posteriores de Ciudad Gobierno, hasta convertir este espacio en un verdadero Centro Cívico Institucional, donde confluyen la mayoría de instituciones del Estado y con ello minimizar los costos de los servicios que presta la Administración y maximizar la agilidad en la prestación de los mismos. Por tanto,
 DECRETAN:
-DECLARATORIA DE INTERÉS PÚBLICO Y NACIONAL
-DEL PROYECTO CIUDAD GOBIERNO, SEGUNDA ETAPA
+Declara de interés público y nacional la formulación y
+ejecución del proyecto denominado “Ciudad Gobierno”(*)
+(*) (Así modificada la denominación del título anterior por el artículo 1° del decreto ejecutivo N° 42310 del 6° de julio de 2020)
 Artículo 1º—Declaratoria. Se declara de interés público y nacional la ejecución del proyecto denominado “Ciudad Gobierno” segunda etapa y, en consecuencia, todas aquellas gestiones, actividades e iniciativas relacionadas directamente con su desarrollo.
