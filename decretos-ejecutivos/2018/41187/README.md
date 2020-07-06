@@ -16,3 +16,4 @@ Reglamento Orgánico del Poder Ejecutivo
 | 1 | 2018-06-21 | la propia norma |
 | 2 | 2018-09-07 | Decreto Ejecutivo 41265 (2018-09-07) |
 | 3 | 2018-11-30 | Decreto Ejecutivo 41464 (2018-11-30) |
+| 4 | 2020-07-06 | Decreto Ejecutivo 42443 (2020-07-06) |
