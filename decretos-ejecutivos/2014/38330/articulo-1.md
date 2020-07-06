@@ -9,18 +9,5 @@ III.—Que mediante oficio número 08339 (DAGJ-1985-2005) del 12 de julio de 200
 IV.—Que mediante oficio número 06525 (DCA-1385) del 23 de mayo del 2006, la División de Contratación Administrativa de la Contraloría General de la República reconsideró el criterio vertido en el oficio número 08339 antes indicado y señaló, que cuando se trate del traspaso entre los mismos órganos del Poder Ejecutivo no es indispensable la existencia de una ley, ya que el inmueble no saldrá del patrimonio del Estado, por lo que para cambiar la naturaleza indicando quien será el nuevo administrador del bien se requiere la emisión de un decreto.
 V.—Que en virtud de lo expuesto, y atendiendo a razones de interés público, procede asignar la administración de la finca matrícula número 1-002857-000, ubicada en la Provincia de San José, Cantón San José, Distrito 03 Hospital, Calle 4, Avenida 2 y 4, setenta metros al sur de la esquina sureste del Banco de Costa Rica, plano catastrado No SJ-4665-1967, con un área de 429,79 m², al Ministerio de Cultura y Juventud, para ser utilizada como instalaciones definitivas de la Administración –Oficinas Centrales del Sistema Nacional de Educación Musical (SINEM). Por Tanto:
 Decretan:
-Artículo 1°—Asignar al Ministerio de Cultura y Juventud para ser utilizadas como instalaciones definitivas de la Administración –Oficinas Centrales del Sistema Nacional de Educación Musical (SINEM) el siguiente bien inmueble para su utilización, vigilancia y mantenimiento, el cual tiene la siguiente característica:
-Partido de San José.
-Folio Real: 002857-000.
-Cantón: San José.
-Distrito: 03 Hospital.
-Ubicación: calle 4, avenida 2 y 4, setenta metros al sur de la esquina sureste del Banco de Costa Rica.
-Naturaleza: terreno construido con 1 edificio.
-Medida: 429,79 m².
-Linderos: Norte: Francisco Aguilar Esquivel.
-Sur: Enrique Esquivel Villanea Sucesores.
-Este: Georgina Castro Fernández.
-Oeste: calle cuarta con 10.57 metros de frente.
-Plano Catastrado: SJ-0004665-1967.
-N° avalúo: AV. ADM-SJ N°339-2012 de fecha 20 de noviembre del 2012.
-Valor avalúo: ¢787.914.700,00.
+Artículo 1°—Asignar al Ministerio de Cultura y Juventud la administración de la finca, matrícula N° 1-002857-000, ubicada en la provincia de San José, cantón San José, distrito 03 Hospital, calle 4, avenidas 2 y 4, setenta metros al sur de la esquina sureste del Banco de Costa Rica, plano catastrado N° SJ-0004665-1967, con un área de 429,79 m², incluyendo dicha facultad de administración, la posibilidad de trasladar su dominio a manera de donación o de venta a otro ente público.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 42543 del 6° de julio del 2020)

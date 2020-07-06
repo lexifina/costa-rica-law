@@ -14,3 +14,4 @@ Asigna un inmueble al Ministerio de Cultura y Juventud para ser utilizado como i
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-04-30 | la propia norma |
+| 2 | 2020-07-06 | Decreto Ejecutivo 42543 (2020-07-06) |
