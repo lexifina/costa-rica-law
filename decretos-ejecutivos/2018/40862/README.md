@@ -21,3 +21,4 @@ Reglamento de evaluación de los aprendizajes
 | 6 | 2019-05-15 | Decreto Ejecutivo 41734 (2019-05-15) |
 | 7 | 2019-09-12 | Decreto Ejecutivo 42064 (2019-09-12) |
 | 8 | 2020-01-30 | Decreto Ejecutivo 42340 (2020-01-30) |
+| 9 | 2020-07-06 | Decreto Ejecutivo 42544 (2020-07-06) |
