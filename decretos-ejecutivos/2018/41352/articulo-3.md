@@ -1,6 +1,0 @@
-Artículo 3º—Ejes transversales. Las acciones del Área tendrán como ejes transversales los siguientes:
-a) Enfoque territorial: Deberán de considerar la particularidad entre los diferentes territorios, esto incluye determinar las amenazas y vulnerabilidades según las realidades locales, con enfoque intergeneracional y de género que visibilice las necesidades particulares de las personas y las poblaciones.
-b) Articulación interinstitucional y multisectorial: Deberán garantizar la coherencia y la coordinación de las políticas en las materias que tienen impacto en el desarrollo humano y en la construcción y preservación de entornos protectores.
-c) Participación ciudadana: Deberán de formularse en conjunto con la ciudadanía y la sociedad civil organizada.
-d) Alianzas público-privadas y colaboración: Deberán de establecer sinergias y alianzas con el sector privado y no gubernamental que ayuden a empoderar a las personas y las comunidades, así como coadyuvar a darle sostenibilidad a las intervenciones.
-e) Monitoreo, seguimiento y evaluación: Las acciones del área contendrán mecanismos claros de seguimiento, monitoreo y evaluación de las acciones y los planes que se ejecuten en los territorios.
