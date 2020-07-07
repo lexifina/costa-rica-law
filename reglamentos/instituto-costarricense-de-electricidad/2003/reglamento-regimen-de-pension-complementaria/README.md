@@ -23,3 +23,4 @@ Reglamento Régimen de Pensión Complementaria.
 | 8 | 2013-11-18 | Reglamento 6067 (2013-11-18) |
 | 9 | 2015-11-16 | Reglamento 6155 (2015-11-16) |
 | 10 | 2018-06-28 | Reglamento 6274 (2018-06-28) |
+| 11 | 2020-07-07 | Reglamento 6389 (2020-07-07) |
