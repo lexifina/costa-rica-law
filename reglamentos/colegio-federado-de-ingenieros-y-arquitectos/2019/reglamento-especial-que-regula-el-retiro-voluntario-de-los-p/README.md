@@ -14,3 +14,4 @@ Reglamento especial que regula el retiro voluntario de los profesionales miembro
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-05-15 | la propia norma |
+| 2 | 2020-07-07 | Reglamento 31 (2020-07-07) |
