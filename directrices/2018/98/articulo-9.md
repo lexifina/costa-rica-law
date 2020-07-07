@@ -8,7 +8,8 @@ Por vacante se debe entender, todo puesto en el que no existe persona ejerciendo
 Quedan exceptuadas del presente artículo, las siguientes plazas:
 a) Las del Ministerio de Educación Pública.
 b) Las de cuerpos policiales dispuestas en la Ley General de Policía.
-c) Las del programa de la Dirección General de Adaptación Social (programa 783) del Ministerio de Justicia y Paz.
+c) Las del programa 787 Actividades Comunes a la Atención de Personas Adscritas al Sistema Penitenciario Nacional y Prevención de la Violencia y Promoción de la Paz Social; y las del programa 789 Atención de Personas Adscritas al Sistema Penitenciario Nacional del Ministerio de Justicia y Paz.
+(Así reformado el inciso anterior por el artículo 1° de la directriz N° 091-H del 7 de julio del 2020)
 d) Las asignadas a personas con discapacidad, siempre y cuando sean ocupadas nuevamente por este personal.
 e) Las de la Dirección de Aguas del Ministerio de Ambiente y Energía.
 f) Las del Ministerio de Relaciones Exteriores y Culto en el programa de Servicio Exterior, salvo embajadas que se cierren durante el año.

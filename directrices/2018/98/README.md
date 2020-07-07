@@ -18,3 +18,4 @@ Durante el ejercicio económico 2018, los órganos que conforman el Presupuesto 
 | 3 | 2018-10-11 | Directriz 26 (2018-10-11) |
 | 4 | 2019-05-23 | Directriz 46 (2019-05-23) |
 | 5 | 2019-08-05 | Directriz 55 (2019-08-05) |
+| 6 | 2020-07-07 | Directriz 91 (2020-07-07) |
