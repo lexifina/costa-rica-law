@@ -31,6 +31,7 @@ articulo-30.md
 articulo-31.md
 articulo-32.md
 articulo-33.md
+articulo-33-bis.md
 articulo-34.md
 articulo-35.md
 articulo-36.md
@@ -45,6 +46,8 @@ articulo-44.md
 articulo-44-bis.md
 articulo-45.md
 articulo-46.md
+articulo-46-bis.md
+articulo-46-ter.md
 articulo-47.md
 articulo-48.md
 articulo-49.md

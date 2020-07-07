@@ -13,11 +13,16 @@ La Sutel está organizada en las siguientes áreas:
 3.1. Mercados de Telecomunicaciones.
 4. Dirección General del Fondo Nacional de Telecomunicaciones.
 4.1. Administración y Control del Fondo.
-5. Dirección General de Operaciones.
-5.1. Planificación, Presupuesto y Control Interno.
-5.2. Tecnología de Información.
-5.3. Recursos Humanos.
-5.4. Finanzas.
-5.5. Gestión Documental.
-5.6. Proveeduría y Servicios Generales.
+5. Dirección General de Competencia.
+5.1. Investigación y concentraciones.
+5.2. Instrucción y promoción y abogacía.
+(Así adicionado el punto 5) anterior mediante resolución N° 0170 del 7 de julio del 2020
+(*)6. Dirección General de Operaciones.
+6.1. Planificación, Presupuesto y Control Interno.
+6.2. Tecnología de Información.
+6.3. Recursos Humanos.
+6.4. Finanzas.
+6.5. Gestión Documental.
+6.6. Proveeduría y Servicios Generales.
+(*) (Así modificada la numeración del punto anterior mediante resolución N° 0170 del 7 de julio del 2020, que lo traspaso del punto 5) al 6)
 (Así reformado mediante sesión ordinaria N° 49-2014 del 21 de agosto del 2014)

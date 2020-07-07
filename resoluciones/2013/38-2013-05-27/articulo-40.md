@@ -4,4 +4,7 @@ Todas las Direcciones Generales que conforman la Sutel tendrán las siguientes f
 2. Tomar las medidas necesarias para que se ejecuten los acuerdos tomados por el Consejo de la Sutel.
 3. Dictar las resoluciones en el ámbito de su competencia definido en este reglamento.
 4. Velar por la calidad y la oportunidad de los servicios que brindan sus unidades administrativas al resto de la organización.
-5. Cualesquiera otras funciones relacionadas con su ámbito de acción y que le sean asignadas por el Consejo.
+5. Cualesquiera otras funciones relacionadas con su ámbito de acción y que le sean asignadas por el Consejo (*)como órgano superior de la Sutel.
+(*)(Así adicionado la frase anterior por resolución N° 0170 del 7 de julio del 2020) reformado
+(*)La Dirección General de Competencia constituye el órgano técnico de la Autoridad de Competencia en materia de telecomunicaciones, está conformada por los procesos que se establecen en la Ley N° 9736.
+(Así el párrafo anterior por resolución N° 0170 del 7 de julio del 2020)
