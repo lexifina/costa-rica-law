@@ -15,3 +15,4 @@ Reglamento de adquisición del Comité Cantonal de Deportes y Recreación de Cur
 | --- | --- | --- |
 | 1 | 2018-01-19 | la propia norma |
 | 2 | 2018-02-06 | Reglamento municipal 97 (2018-02-06) |
+| 3 | 2020-07-07 | Reglamento municipal 10 (2020-07-07) |
