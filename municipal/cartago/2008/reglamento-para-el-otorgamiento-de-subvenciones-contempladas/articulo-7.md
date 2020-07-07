@@ -1,1 +1,0 @@
-Artículo 7º—El Área Administrativa Financiera después de transcurrido un mes, sin que el beneficiario de la ayuda se apersone a la Municipalidad a retirarla, deberá informar por escrito al Concejo sobre esa situación, a efectos de que ese dinero sea reasignado a otras ayudas para personas; familias o instituciones.
