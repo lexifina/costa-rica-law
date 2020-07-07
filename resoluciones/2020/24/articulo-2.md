@@ -1,1 +1,0 @@
-Artículo 2º—Al entrar en vigencia la presente resolución, se deja sin efecto la actualización efectuada mediante la resolución número RES-DGH-001-2020, del ocho de enero de 2020, publicada en La Gaceta Nº 28 del 12 de febrero de 2020.
