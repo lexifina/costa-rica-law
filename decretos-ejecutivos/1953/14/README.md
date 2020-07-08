@@ -22,3 +22,4 @@ Reglamento del Consejo Superior de Educación
 | 7 | 1999-04-19 | Decreto Ejecutivo 27899 (1999-04-19) |
 | 8 | 2001-10-24 | Decreto Ejecutivo 29942 (2001-10-24) |
 | 9 | 2014-01-14 | Decreto Ejecutivo 38149 (2014-01-14) |
+| 10 | 2020-07-08 | Decreto Ejecutivo 42492 (2020-07-08) |
