@@ -1,0 +1,1 @@
+Artículo 33. -Serán competentes para declarar la adoptabilidad administrativa a nivel nacional de las personas menores de edad, los representantes legales de las Oficinas Locales del PANI, dentro de su competencia territorial.

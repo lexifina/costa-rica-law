@@ -1,0 +1,1 @@
+Artículo 68. - El Departamento de Adopciones una vez recibidos los expedientes indicados en el artículo anterior, procederá en el plazo de tres días hábiles, a la verificación de las condiciones psicosociales de aquellas familias seleccionadas cuyas valoraciones tengan más de seis meses de haber sido realizadas, antes de iniciar la fase de emparentamiento.

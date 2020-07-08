@@ -1,0 +1,4 @@
+CAPITULO IX- Disposiciones Finales y Transitorias
+Artículo 127. - Deróguese en su totalidad el Reglamento para los Procesos de Adopción Nacional e Internacional del PANI aprobado por esta Junta Directiva mediante acuerdo que consta en el acta respectiva de la sesión ordinaria 2017-003, artículo 005) aparte 001) celebrada el miércoles 18 de enero del 2017 y que fue publicado en el alcance número 58 del diario oficial la gaceta, del miércoles 15 de marzo del 2017.
+Rige a partir de su publicación.
+Aprobado en firme por la Junta Directiva del Patronato Nacional de la Infancia, mediante acuerdo que consta al artículo 005), aparte 01), tomado en la sesión ordinaria número 2020-022, celebrada el lunes 29 de junio del 2020, comunicado mediante oficio PANI-JD-OF-116-2020, suscrito por el Secretario de la Junta Directiva, señor Milton Ariel Brenes Rodríguez.

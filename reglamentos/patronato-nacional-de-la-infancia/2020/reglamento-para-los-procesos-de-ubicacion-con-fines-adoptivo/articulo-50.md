@@ -1,0 +1,1 @@
+Artículo 50. - Si la persona o personas solicitantes de valoración de idoneidad potencialmente adoptiva no cumplen con los requisitos establecidos en el Código de Familia, el Departamento de Adopciones, deberá comunicarlo a los solicitantes mediante acto administrativo formal, dentro del plazo establecido en el artículo anterior.

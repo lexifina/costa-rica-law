@@ -1,0 +1,3 @@
+SECCIÓN V -Del procedimiento para la declaratoria de idoneidad de las personas solicitantes
+de adopción internacional cuando Costa Rica es el país receptor.
+Artículo 99. -El Departamento de Adopciones procederá a la apertura del expediente administrativo, una vez que los y las solicitantes presenten la documentación establecida en el artículo 92 anterior. Previo, deberán las personas solicitantes haber cumplido con la entrevista introductoria y el taller de informativo y de reflexión que ejecuta el Departamento de Adopciones con todas las familias y solicitantes individuales de una valoración de idoneidad con fines adoptivos como primera fase del procedimiento.

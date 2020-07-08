@@ -1,0 +1,3 @@
+SECCIÓN V -Del procedimiento para la declaratoria de idoneidad de las personas solicitantes
+de adopción nacional
+Artículo 48. -El Departamento de Adopciones procederá a la apertura del expediente administrativo, una vez que las personas solicitantes de una ubicación potencialmente adoptiva hayan aportado el formulario oficial de solicitud debidamente lleno y los documentos anexos requeridos. Previo, deberán los y las solicitantes haber cumplido con la entrevista introductoria y el taller de informativo y de reflexión que ejecuta el Departamento de Adopciones como primera fase del procedimiento con todas las personas solicitantes.

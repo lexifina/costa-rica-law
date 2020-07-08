@@ -1,0 +1,1 @@
+Artículo 102.- Constatado el cumplimiento de requisitos legales y el aporte de los documentos requeridos de acuerdo con lo establecido en el artículo 92, el Departamento de Adopciones procederá a realizar el análisis técnico profesional de las condiciones psicosociales de los y las solicitantes.

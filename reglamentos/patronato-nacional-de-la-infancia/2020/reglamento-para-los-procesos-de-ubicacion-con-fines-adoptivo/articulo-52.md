@@ -1,0 +1,1 @@
+Artículo 52. -Los solicitantes de una valoración de idoneidad potencialmente adoptiva deberán aportar la documentación que les fuera prevenida en un plazo no mayor de diez días hábiles. Si la documentación no es presentada en el plazo señalado, el Departamento de Adopciones, a solicitud de parte, podrá otorgar una prórroga por un plazo igual.

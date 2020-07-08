@@ -1,0 +1,3 @@
+Artículo 34. -La declaratoria de adoptabilidad nacional produce los siguientes efectos:
+a) En sede administrativa acredita que la persona menor de edad, es susceptible de ser protegida mediante una ubicación familiar potencialmente adoptiva.
+b) En sede judicial genera derecho aparente, acredita que la persona menor de edad es susceptible de ser ubicada en una persona o familia potencialmente adoptiva y faculta al juez o jueza a otorgar, con carácter cautelar, la autorización pertinente para una ubicación en riesgo, conforme lo establecido en el artículo 113 del Código de Familia. Además, sirve como elemento probatorio dentro del proceso de declaratoria de abandono.

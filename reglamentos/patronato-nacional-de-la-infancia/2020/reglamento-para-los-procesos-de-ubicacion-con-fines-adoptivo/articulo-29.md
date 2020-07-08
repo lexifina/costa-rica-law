@@ -1,0 +1,1 @@
+Artículo 29.- De cada sesión, el Secretario de los Consejos levantará un acta, en lo conducente, de los asuntos discutidos y los acuerdos tomados, con indicación expresa de las discrepancias presentadas, si las hubiere, en relación con los acuerdos tomados, así como los fundamentos y razonamientos técnicos de las mismos.

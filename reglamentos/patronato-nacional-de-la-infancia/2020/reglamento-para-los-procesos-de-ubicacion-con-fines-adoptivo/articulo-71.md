@@ -1,0 +1,2 @@
+Artículo 71. – Si por la vía de los recursos, la resolución de interrupción fuese revocada, se deberá retomar el proceso de emparentamiento, tomando todas las medidas atencionales y generando los apoyos pertinentes, a efecto de minimizar los riesgos detectados y de propiciar el éxito del proceso.
+La persistencia en las condiciones de riesgo y las incompatibilidades en el ajuste podrían llevar a generar un nuevo proceso de interrupción.
