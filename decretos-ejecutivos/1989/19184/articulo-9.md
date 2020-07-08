@@ -1,11 +1,3 @@
-Artículo 9º.-Cuando un miembro se atrase más de tres meses con las
-Cuotas Ordinarias, Cuotas Ordinarias y otros compromisos económicos con
-el Colegio, la Junta Directiva ordenará se le traslade a categoría de
-Miembro Suspendido por acuerdo que no tiene recurso, perdiendo todos los
-derechos establecidos en la Ley Orgánica. Se comunicará a quien
-corresponda para que el moroso sea cesado de las funciones públicas o
-privadas para las cuales la legislación exige la calidad de Médico
-Veterinario.
-El miembro recuperará inmediatamente sus derechos cuando pague su
-deuda al Colegio o haga un arreglo de pago por la deuda, más un 25% por
-concepto de intereses moratorios.
+Artículo 9º.-Cuando un miembro se atrase más de tres meses con las Cuotas Ordinarias, Cuotas Ordinarias y otros compromisos económicos con el Colegio, la Junta Directiva ordenará se le traslade a categoría de Miembro Suspendido por acuerdo que no tiene recurso, perdiendo todos los derechos establecidos en la Ley Orgánica. Se comunicará a quien corresponda para que el moroso sea cesado de las funciones públicas o privadas para las cuales la legislación exige la calidad de Médico Veterinario.
+El miembro recuperará inmediatamente sus derechos cuando pague su deuda al Colegio o haga un arreglo de pago por la deuda, más un 25% por concepto de intereses moratorios.
+(Nota de SInalevi: Mediante resolución de la Sala Constitucional N° 012777 del 8 de julio del 2020, se interpretó este numeral en el sentido de que: “…no resulta inconstitucional, salvo que se esté en presencia de una suspensión superior a ocho días, en cuyo caso sí existiría la obligación de garantizar el debido proceso a la parte afectada.”)
