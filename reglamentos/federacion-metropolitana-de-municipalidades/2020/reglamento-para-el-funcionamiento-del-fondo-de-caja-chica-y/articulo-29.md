@@ -1,0 +1,1 @@
+Artículo 29.—El encargado de la caja chica, no podrán guardar documentos, efectivo o cheques de propiedad particular, en los lugares destinados para tal fin, y por ningún motivo podrán suplir con su dinero, compras o pagos que correspondan a la Federación, salvo en casos emergentes, debiendo justificarse y razonarse el caso con el aval del Director Ejecutivo.

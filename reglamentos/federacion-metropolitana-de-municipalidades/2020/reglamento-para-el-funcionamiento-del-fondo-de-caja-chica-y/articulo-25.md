@@ -1,0 +1,1 @@
+Artículo 25.—No se tramitarán por medio del fondo fijo de caja chica las compras que se hayan definido como artículos de uso común, los que deberán ser adquiridos por medio de los sistemas convencionales de compra que existan en la Federación, salvo caso fortuito o fuerza mayor.

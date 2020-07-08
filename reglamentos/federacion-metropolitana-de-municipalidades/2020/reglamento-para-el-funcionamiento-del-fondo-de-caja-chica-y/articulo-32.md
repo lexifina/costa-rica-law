@@ -1,0 +1,1 @@
+Artículo 32.—El propósito de esta tarjeta es realizar los mismos pagos a que se refiere este Reglamento y las deducciones automáticas que solamente por este mecanismo se pueden realizar, considerando la virtualización de pagos y transferencias que la Federación debe realizar.

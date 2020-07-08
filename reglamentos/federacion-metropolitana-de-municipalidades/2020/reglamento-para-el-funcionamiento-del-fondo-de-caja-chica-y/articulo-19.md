@@ -1,0 +1,1 @@
+Artículo 19.—Si realizado el arqueo, resulta una diferencia, ésta deber ser justificada por el responsable de la Caja Chica, quién además deberá en forma inmediata depositar el sobrante o reintegrar el faltante, según corresponda, salvo que el encargado solicite una segunda verificación, de acuerdo con el artículo 20 de este Reglamento.

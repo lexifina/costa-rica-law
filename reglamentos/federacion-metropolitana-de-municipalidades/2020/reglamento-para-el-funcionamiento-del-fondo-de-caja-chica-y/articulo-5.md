@@ -1,0 +1,1 @@
+Artículo 5º—Corresponde al Concejo de Alcaldes, mediante al correspondiente acuerdo, variar el monto establecido para este fondo, según solicitud escrita y justificada que le haga el departamento Financiero Contable, de acuerdo con lo establecido en el artículo anterior.

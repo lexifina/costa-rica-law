@@ -1,0 +1,1 @@
+Artículo 30.—Ningún funcionario de la Federación, con la excepción de quienes tengan en custodia los fondos de Caja Chica, podrá mantener en su poder fondos de Caja Chica por más de tres días, salvo los casos previstos en el artículo 12 del presente reglamento.

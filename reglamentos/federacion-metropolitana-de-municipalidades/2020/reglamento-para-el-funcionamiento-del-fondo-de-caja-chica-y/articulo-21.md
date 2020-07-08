@@ -1,0 +1,2 @@
+Artículo 21.—Cuando el Encargado de Fondo de Caja Chica se ausente por vacaciones, incapacidad, permiso con o sin goce de salario o cualesquier otro motivo, quien tenga a su cargo la central telefónica lo sustituirá en su labor como encargado del fondo. Para lo anterior, se realizará un arqueo del cual se dejará constancia escrita, con la firma del encargado y de la persona que la sustituirá.
+Igual procedimiento se utilizará cuando el encargado se reintegre a su puesto.

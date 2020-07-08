@@ -1,0 +1,2 @@
+Artículo 15.—En caso de que el monto gastado exceda el monto autorizado en el vale de caja chica, la diferencia le será reintegrada al funcionario, siempre y cuando el monto total de la compra no supere el máximo autorizado para compras de caja chica, según lo establecido en el artículo primero, inciso g) de este Reglamento.
+De ser este el caso, el funcionario deberá abstenerse de realizar la compra, reintegrar el vale de acuerdo a lo establecido en el artículo 15 de este reglamento, y proceder a solicitar la compra de acuerdo al trámite regular de la Federación

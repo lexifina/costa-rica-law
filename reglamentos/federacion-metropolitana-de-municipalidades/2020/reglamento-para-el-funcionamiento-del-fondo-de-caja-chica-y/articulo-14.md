@@ -1,0 +1,5 @@
+Artículo 14.—Los comprobantes (facturas o recibos) de las adquisiciones que se hagan con fondos de la caja chica y que son el sustento del egreso, deberán cumplir con los siguientes requisitos:
+a. Ser documentos originales, estar timbrados, membretados o dispensados del mismo por la Dirección General de la Tributación del Ministerio de Hacienda y estar emitidos a favor de la Federación, con excepción de los gastos referentes a transporte público, modalidad taxi o autobús, u otros que no tengan la posibilidad de emitir estos documentos, o cuya obtención resulte ser más onerosa que un recibo de dinero, por los montos bajos que representan.
+b. Especificar claramente el detalle la compra o servicio recibido, la cual deberá ser igual o posterior a la fecha de emisión del vale.
+c. Si la factura no tiene logotipo debe de indicarse el nombre, el número de cédula de la persona física o jurídica que suministra el bien o servicio y sus especificaciones.
+d. Venir firmados por la Dirección Ejecutiva, como requisito de comprobación de la adquisición del bien o servicio correspondiente.

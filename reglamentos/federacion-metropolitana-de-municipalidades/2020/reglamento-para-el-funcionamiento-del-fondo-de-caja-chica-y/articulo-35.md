@@ -1,0 +1,1 @@
+Artículo 35.—Las sanciones que correspondan, según lo dispuesto en el artículo anterior, serán aplicadas por el Director Ejecutivo, conforme a lo establecido en el Reglamento Interior de Trabajo y el Código de Trabajo.

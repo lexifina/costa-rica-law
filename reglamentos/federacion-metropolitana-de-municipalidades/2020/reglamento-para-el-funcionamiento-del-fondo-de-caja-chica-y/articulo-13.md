@@ -1,0 +1,1 @@
+Artículo 13.—Cuando por algún motivo la compra no se lleve a cabo, el funcionario que ha recibido el efectivo, deberá hacer el reintegro inmediato del dinero entregado para esos efectos, con una breve explicación del porqué no se realizó dicha compra.

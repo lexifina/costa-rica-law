@@ -1,0 +1,2 @@
+Artículo 4º—Se establece un fondo de caja chica, cuyo monto será de ¢500.000,00 (quinientos mil colones exactos) y su custodia será responsabilidad del funcionario encargado, quien deberá actuar de conformidad con lo que establecido en el presente reglamento.
+Le corresponderá al Departamento Financiero Contable revisar anualmente ese fondo y proponer ante el Concejo de Alcaldes el aumento que se estime conveniente, para satisfacer las necesidades institucionales de los bienes y servicios que deben adquirirse por este medio.

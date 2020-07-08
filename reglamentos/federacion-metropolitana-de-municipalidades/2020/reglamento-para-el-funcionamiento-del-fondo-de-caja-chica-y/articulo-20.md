@@ -1,0 +1,1 @@
+Artículo 20.—Todo arqueo de Caja Chica se realizará en presencia del responsable del fondo, además del funcionario del Área Financiero Contable de la Federación. El responsable de caja chica tendrá el derecho de pedir una segunda verificación, si mantiene dudas sobre el resultado obtenido.
