@@ -17,3 +17,4 @@ Reglamento de Organización y Servicio de la Policía de Tránsito
 | 2 | 2017-05-17 | Decreto Ejecutivo 40456 (2017-05-17) |
 | 3 | 2017-06-01 | Decreto Ejecutivo 40487 (2017-06-01) |
 | 4 | 2017-12-01 | Decreto Ejecutivo 40831 (2017-12-01) |
+| 5 | 2020-07-08 | Decreto Ejecutivo 42463 (2020-07-08) |
