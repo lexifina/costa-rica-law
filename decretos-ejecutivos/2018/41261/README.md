@@ -14,3 +14,4 @@ Nombra en propiedad a los funcionarios interinos de los estratos docente y admin
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-10-20 | la propia norma |
+| 2 | 2020-07-08 | SINALEVI (sin norma nombrada) |

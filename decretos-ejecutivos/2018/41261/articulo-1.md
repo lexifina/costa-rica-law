@@ -1,4 +1,6 @@
+(Anulada)
 N° 41261-MEP
+(Este decreto ejecutivo fue anulado por resolución de la Sala Constitucional N° 12799 del 8 de julio del 2020)
 EL PRESIDENTE DE LA REPÚBLICA
 Y EL MINISTRO DE EDUCACIÓN PÚBLICA
 En uso de las facultades que les confieren los artículos 56, 62, 74, 140 incisos 3) y 18), 146, 191 y 192 de la Constitución Política; artículos 25 inciso 1), 27 inciso 1), 28 y 112 inciso 5 de la Ley General de la Administración Pública, artículos 55, 696, 697y 698 del Código de Trabajo y los artículos 20 y concordantes del Estatuto de Servicio Civil.
