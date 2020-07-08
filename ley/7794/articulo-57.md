@@ -11,3 +11,5 @@ h) Recibir toda queja o denuncia, que sea de su conocimiento, sobre la ilegalida
 (Así adicionado el inciso anterior por el inciso b) del artículo 1 de la Ley N° 8489 del 22 de noviembre del 2005, “Función de los Consejos de Distrito en el control de la eficiencia del sector público”)
 i) Las funciones que el Concejo Municipal delegue por acuerdo firme, conforme a la ley.
 (Así corrida la numeración del inciso anterior, por el inciso b) del artículo 1 de la Ley N° 8489 del 22 de noviembre del 2005, “Función de los Consejos de Distrito en el control de la eficiencia del sector público”, que lo traspaso del antiguo inciso h) al inciso i) actual)
+j) Reunirse, como mínimo una vez cada seis meses, con el alcalde, para planificar el trabajo semestral en relación con los proyectos, las proyecciones, la construcción de los objetivos y las metas para el debido progreso en cada distrito, a fin de que sean incluidos en el presupuesto anual de la municipalidad.
+(Así adicionado el inciso anterior por el artículo 2° de la ley N° 9860 del 8 de julio del 2020, “Para la efectiva interacción de los alcaldes y los concejos de distrito”)
