@@ -1,1 +1,3 @@
-Artículo 45.—Las comisiones podrán reunirse ordinaria y extraordinariamente cuando ellas mismas así lo decidan, siempre y cuando no interfieran con las sesiones ordinarias del Concejo.
+Artículo 45. —Las comisiones podrán reunirse ordinaria y extraordinariamente cuando ellas mismas así lo decidan, siempre y cuando no interfieran con las sesiones del Concejo.
+La modalidad de sesiones virtuales también podrá ser utilizado por las comisiones del Concejo Municipal respetando siempre el cuórum de ley y las mismas disposiciones tecnológicas contenidas en este reglamento y suministradas por la administración para la realización de las sesiones virtuales del Concejo. De igual forma se habilita la participación de forma virtual de los funcionarios municipales en las sesiones de las Comisiones cuando estas sean presenciales o virtuales.
+(Así reformado mediante publicación en el Alcance Digital N° 171 a La Gaceta N° 168 del 11 de julio del 2020)
