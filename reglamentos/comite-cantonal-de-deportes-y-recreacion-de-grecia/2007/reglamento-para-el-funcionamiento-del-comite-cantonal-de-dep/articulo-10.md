@@ -1,1 +1,3 @@
-Artículo 10.—Los miembros de la Junta Directiva del Comité Cantonal de Deportes y Recreación durarán en sus cargos dos años, no devengarán dietas, ni remuneración alguna. Podrán ser reelegidos.
+Artículo 10.—Los miembros de la junta directiva del comité cantonal de deportes y recreación durarán en sus cargos dos años, no devengarán dietas, ni remuneración alguna. podrán ser reelegidos.
+En caso de declaratorias de emergencia nacional, donde se promueva el distanciamiento social y se limite o prohíba la aglomeración de personas por causas de salud pública, se tendrán por prorrogados automáticamente los nombramientos de la junta directiva del comité cantonal por el plazo de un año, o hasta que las medidas sanitarias definidas por el ministerio de salud permitan la realización de la asamblea conforme a la ley y el presente reglamento.
+(Así reformado mediante acuerdo N°SEC-0342-2020 del 9 de julio del 2020)
