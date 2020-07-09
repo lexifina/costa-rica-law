@@ -1,2 +1,0 @@
-Artículo 42.—Aprobación Interna y Refrendo. Las contrataciones que realice el Hospital del Trauma estarán sujetas al trámite de aprobación interna por parte de la asesoría jurídica institucional y al refrendo por parte de la Contraloría General de la República, conforme a las disposiciones establecidas en el Reglamento sobre el Refrendo de las contrataciones de la Administración Pública.
-La aprobación interna estará a cargo de la unidad de asesoría jurídica del Hospital, entendiéndose que tendrán competencia para ello, todos los abogados que formen parte de dicha unidad.

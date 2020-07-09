@@ -1,1 +1,0 @@
-Artículo 35.—Competencia. Corresponderá al Departamento Legal del Hospital del Trauma, la instrucción de los procedimientos que se promuevan para sancionar a los contratistas, a efecto de determinar las responsabilidades que procedan en el caso de infracciones a la materia de contratación administrativa, garantizando el debido proceso.
