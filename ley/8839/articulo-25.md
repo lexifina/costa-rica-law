@@ -1,3 +1,4 @@
 ARTÍCULO 25.- Manejo del Fondo
 Las sumas recaudadas serán remitidas a una cuenta especial en la caja única del Estado que será administrada por el Ministerio de Salud. Para cumplir las funciones señaladas en esta Ley, el Ministerio de Salud deberá elaborar los presupuestos correspondientes a las obligaciones y las actividades que esta Ley les impone, así como a suscribir los contratos de administración que se requieran.
-Con respecto a las multas e ingresos correspondientes a los incisos h), i) y j) del artículo 24 de esta Ley, la Tesorería Nacional deberá girarlos a la municipalidad del cantón donde se originó Ia infracción correspondiente, con el fin de que utilicen estos recursos para el cumplimiento de los objetivos de esta Ley.
+Con respecto a las multas y los ingresos correspondientes a los incisos h) y i) del artículo 24 de esta ley, la Tesorería Nacional deberá girarlos a la municipalidad del cantón donde se originó la infracción correspondiente, para que se utilicen los recursos para el cumplimiento de los objetivos de esta ley.
+(Así reformado el párrafo anterior por el artículo 1° de la ley N° 9825 del 9 de julio del 2020 )

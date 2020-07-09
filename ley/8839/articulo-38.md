@@ -10,3 +10,5 @@ e) Gestionar sus residuos únicamente con gestores autorizados para brindar serv
 f) Mantener un registro actualizado de la generación y forma de gestión de cada residuo.
 g) Reportar a las autoridades competentes sobre su gestión en materia de residuos, según se establezca en esta Ley y en los reglamentos que de ella deriven.
 h) Fomentar el uso de alternativa de producción más limpia y de manejo de residuos en forma integral.
+i) Realizar, de forma oportuna, el pago de la tarifa para los servicios de manejo de residuos según el inciso h) del artículo 8 de la presente ley, para contribuir con un ambiente sano y sostenible
+(Así adicionado el inciso anterior por el artículo 1° de la ley N° 9825 del 9 de julio del 2020 )

@@ -1,11 +1,4 @@
-ARTÍCULO 50.- Infracciones leves y sus sanciones. Se considerarán infracciones leves, sin perjuicio de que constituya delito, las siguientes:
-a) Extraer de los recipientes colectores, depósitos o contenedores instalados en la vía pública, los residuos sujetos a programas de reciclaje por parte de las municipalidades o a quienes estas deleguen.
-b) Arrojar en la vía pública residuos ordinarios.
-c) Extraer y recuperar cualquier material no valorizable, contenido en las celdas de disposición final de los rellenos sanitarios.
-d) Importar al territorio nacional o entregar envases, recipientes o empaques de poliestireno expandido en cualquier establecimiento comercial.
-(Así adicionado el inciso anterior por el artículo único de la ley para la prohibición del poliestireno expandido, N° 9703 del 15 de julio de 2019)
-e) Incumplir con lo establecido en la Ley para Combatir la Contaminación por Plástico y Proteger el Ambiente.
-(Así adicionado el inciso anterior por el artículo 8 de la Ley para combatir la contaminación por plástico y proteger el ambiente, N° 9786 del 26 de noviembre del 2019)
-Sin perjuicio de la obligación del infractor de indemnizar y reparar el daño ambiental, las infracciones leves se sancionarán con una multa de uno a diez salarios base, de acuerdo con el artículo 2 de la Ley N.º 7337, de 5 de mayo de 1993, y con el pago del daño ambiental.
-(Así reformado el párrafo anterior por el artículo único de la ley N° 8875 del 8 de octubre de 2010)
-Los inspectores municipales impondrán las infracciones establecidas en este artículo, los recursos que se capten serán para financiar actividades del plan municipal para la gestión integral de residuos, del correspondiente cantón.
+Artículo 50- Infracciones leves
+Se consideran infracciones leves y será sancionado hasta con cinco veces la tarifa que corresponda de acuerdo con la categoría asignada, quien gestione los residuos ordinarios en condiciones contrarias a las establecidas en las disposiciones municipales sobre el servicio de recolección y disposición de residuos, no contemplados en el artículo 49 de la presente ley.
+Lo anterior sin perjuicio de la obligación del infractor de indemnizar y reparar el daño ambiental, así como el pago de los costos en los que haya incurrido la municipalidad en recoger y disponer los residuos correctamente.
+(Así reformado por el artículo 1° de la ley N° 9825 del 9 de julio del 2020 )
