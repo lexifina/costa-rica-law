@@ -1,4 +1,2 @@
-Artículo 27.—Deberá contemplarse un número no menor del 5% del total de los nichos para indigentes y contingencias.
-A fin de determinar el estado de indigencia el Instituto Mixto de Ayuda Social deberá calificar a los beneficiarios de dicho programa en condición de pobreza extrema, y que no cuenten con los recursos económicos para alimentarse y vestirse y sin techo, cuya característica principal es deambular por las calles. De dicha realidad el IMAS proporcionará una constancia al Área Rectora de Salud correspondiente a fin de que esta la haga llegar a la Administración del cementerio que corresponda.
-Tratándose de contingencias provocadas por desastres naturales, tales como terremotos, inundaciones, epidemias, u otro tipo de calamidad, deberán ser declaradas como tales por el Ministerio de Salud.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 36333 del 18 de agosto de 2010)
+Artículo 27°- Deberá contemplarse tanto para cementerios públicos y privados un número no menor del 5% del total de los nichos para personas en extrema pobreza y contingencias provocadas por desastres naturales, tales como terremotos, inundaciones, epidemias, pandemias u otra emergencia sanitaria, declaradas como tales por el Ministerio de Salud.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 42474 del 9 de julio del 2020)

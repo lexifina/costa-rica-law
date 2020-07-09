@@ -21,3 +21,4 @@ Reglamento General de Cementerios
 | 6 | 2010-08-18 | Decreto Ejecutivo 36333 (2010-08-18) |
 | 7 | 2015-06-24 | Decreto Ejecutivo 39087 (2015-06-24) |
 | 8 | 2016-05-05 | Decreto Ejecutivo 39819 (2016-05-05) |
+| 9 | 2020-07-09 | Decreto Ejecutivo 42474 (2020-07-09) |

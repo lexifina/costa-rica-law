@@ -1,4 +1,4 @@
-Artículo 3º—Definiciones. Para los efectos de aplicación del presente reglamento, entiéndase por:
+Artículo 3º-Definiciones. Para los efectos de aplicación del presente reglamento, entiéndase por:
 1) Ablación: Extirpación de una parte del cuerpo.
 2) Aguas freáticas o subterráneas: Aguas localizadas en el subsuelo sobre una capa impermeable.
 3) Bóveda: Cripta.
@@ -22,3 +22,5 @@ Artículo 3º—Definiciones. Para los efectos de aplicación del presente regla
 21. Sepultura: Lugar donde se entierra un cadáver.
 22. Sepultar: Poner en la sepultura, enterrar.
 23. Tumba: Sepultura.
+24. Regente médico patólogo: médico especialista en anatomía patológica, medicina legal o patología forense, el cual está debidamente capacitado en el manejo especializado integral de cadáveres humanos, y otras piezas quirúrgicas y desechos hospitalarios de tejidos humanos; y en la realización de autopsias sean éstas hospitalarias, médicos forenses o de centros privados. Además, realiza y/o supervisa la realización de certificados de defunción de manera correcta según normativa vigente.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 42474 del 9 de julio del 2020)

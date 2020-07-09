@@ -1,1 +1,2 @@
-Artículo 12.—Las autoridades administrativas del cementerio están obligadas a suministrar al personal la indumentaria requerida para su protección, así como, el equipo indispensable para llevar a cabo sus labores en forma correcta y segura. Además, deberán velar por el correcto uso de la indumentaria y el equipo dentro del cementerio.
+Artículo 12º- Las autoridades administrativas del cementerio serán las encargadas con su personal, de realizar las inhumaciones en casos de muertes masivas, desastres naturales u otra emergencia sanitaria; así como suministrar el equipo de protección personal requerido. Además, deberán velar por el correcto uso del equipo dentro del cementerio.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 42474 del 9 de julio del 2020)
