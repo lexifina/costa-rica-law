@@ -1,0 +1,8 @@
+CAPÍTULO IV
+Del procedimiento para acogerse al régimen
+de dedicación exclusiva
+Artículo 5º—El servidor que desee acogerse al régimen de Dedicación Exclusiva, deberá presentar solicitud formal ante el Alcalde o Alcaldesa Municipal, junto con la documentación que demuestre el cumplimiento de los requisitos personales establecidos en el artículo 3º del presente reglamento. De igual forma, la Alcaldía Municipal podrá analizar de oficio el sometimiento de determinado puesto al régimen de dedicación exclusiva y proponerlo cuando se verifique el cumplimiento de requisitos.
+Una vez recibida la solicitud por parte de la Alcaldía Municipal, ésta la remitiría a una Comisión compuesta por el encargado o encargada del departamento de Recursos Humanos, una persona a quien el Alcalde o Alcaldesa Municipal delegue y el Asesor o Asesora Legal, quienes analizarán la solicitud, verificarán el cumplimiento de requisitos y se referirán a la necesidad institucional y la relación de costo oportunidad de suscribir dicho contrato. Para brindar la recomendación, la Comisión contará con un plazo de diez días hábiles.
+En caso de que el análisis se realice en función de un puesto que no dependa directamente de la Alcaldía Municipal, deberá contarse con el criterio previo de la jefatura directa.
+Una vez rendida la recomendación por parte de la Comisión, será el Alcalde o Alcaldesa Municipal quien apruebe o no la solicitud de dedicación exclusiva mediante resolución razonada, en un plazo no mayor a diez días hábiles. En la misma resolución, se ordenará la suscripción del contrato respectivo.
+De ser aprobada la solicitud, se procederá a suscribir el contrato entre el servidor y la institución, posterior a lo cual, se confeccionará la correspondiente acción de personal.

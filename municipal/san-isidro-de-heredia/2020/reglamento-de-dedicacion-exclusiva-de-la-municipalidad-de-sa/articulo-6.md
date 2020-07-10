@@ -1,0 +1,3 @@
+Artículo 6º—La formalización del contrato debe darse en dos tantos originales, uno que quedará en poder del Departamento de Recursos Humanos y que será incorporado al expediente de personal, y otro que será entregado al funcionario o funcionaria.
+Asimismo, una copia del contrato será entregada tanto a la Alcaldía Municipal para su custodia como a la jefatura directa del funcionario o funcionaria que se acoja al régimen.
+En aquellos casos en que legalmente sea procedente realizar una contratación de personal por plazos determinados, sustituciones, reemplazos o alguna otra figura que no sea tiempo indeterminado, los contratos de dedicación exclusiva se suscribirán por el mismo plazo del nombramiento.
