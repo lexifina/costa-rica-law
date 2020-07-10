@@ -1,1 +1,0 @@
-Artículo 9.—El retiro de los fondos de caja chica se hará por medio de vale provisional o definitivo, previa verificación del contenido presupuestario. El vale deberá contener toda la información solicitada en él, así como la justificación de la adquisición del bien o servicio, así como la cuantía del gasto.

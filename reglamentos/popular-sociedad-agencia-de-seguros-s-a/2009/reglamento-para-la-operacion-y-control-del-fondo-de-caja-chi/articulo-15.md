@@ -1,1 +1,0 @@
-Artículo 15.—El custodio de los fondos de caja chica será un empleado distinto del facultado para autorizar vales, los empleados facultados para autorizar vales de caja chica no podrán autorizar vales a su nombre.

@@ -1,1 +1,0 @@
-Artículo 5—El Gerente debe solicitar la apertura de la caja chica. El monto del fondo fijo que se asigne, así como sus variaciones posteriores, y la dependencia donde ésta opere, serán autorizados por el Área Administrativa Financiera.

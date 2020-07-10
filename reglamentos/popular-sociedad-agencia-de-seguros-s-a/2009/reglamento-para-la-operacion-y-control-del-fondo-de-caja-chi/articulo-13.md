@@ -1,2 +1,0 @@
-Artículo 13.—El Área Administrativa Financiera se responsabilizará de que se realicen los arqueos al menos dos veces al mes, quedando constancia del acto por escrito.
-Cuando existan diferencias, el custodio deberá, de inmediato, depositar en la cuenta corriente de Popular Agencia Seguros los sobrantes detectados y de comprobarse un faltante deberá de inmediato reintegrar el o los faltantes, por medio de la cuenta corriente ya mencionada.
