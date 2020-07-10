@@ -15,3 +15,4 @@ Reglamento para la Operación y Control de Fondos de Caja Chica del Banco Popula
 | --- | --- | --- |
 | 1 | 2009-06-04 | la propia norma |
 | 2 | 2019-02-04 | Reglamento 5613 (2019-02-04) |
+| 3 | 2020-07-10 | Acuerdo 292 (2020-07-10) |
