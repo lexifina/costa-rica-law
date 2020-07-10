@@ -1,0 +1,1 @@
+Artículo 13.—Autorización para retirarse de las actividades curriculares o extracurriculares. La persona estudiante por motivos justificados de acuerdo con el artículo 9, puede solicitar a la persona docente autorización para retirarse del lugar donde recibe el SCFP. Las personas menores de edad deben aportar la autorización de la persona representante legal.

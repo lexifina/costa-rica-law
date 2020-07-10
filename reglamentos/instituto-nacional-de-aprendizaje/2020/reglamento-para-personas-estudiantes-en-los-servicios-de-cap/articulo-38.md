@@ -1,0 +1,1 @@
+Artículo 38.—Deber de confidencialidad. Todas las personas involucradas, directa o indirectamente con el procedimiento administrativo, no podrán revelar la identidad de la persona denunciante ni la denunciada.

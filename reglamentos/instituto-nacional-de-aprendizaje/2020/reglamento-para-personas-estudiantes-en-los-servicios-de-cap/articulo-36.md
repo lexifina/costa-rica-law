@@ -1,0 +1,1 @@
+Artículo 36.—Prescripción. El plazo para imponer la sanción es de un mes y empezará a correr a partir del momento en que el resultado de la investigación sea puesto en conocimiento de la PECE, quien tiene la competencia para imponer la sanción. El inicio del procedimiento disciplinario correspondiente implica la interrupción del cómputo del plazo de la prescripción.

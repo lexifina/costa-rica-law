@@ -1,0 +1,1 @@
+Artículo 30.—Ausencia a la audiencia. La ausencia injustificada de la persona estudiante investigada no impide que se lleve a cabo la audiencia. El ODP evacuará la prueba previamente aportada al expediente. En caso de ausencia justificada de la persona estudiante investigada, el ODP deberá señalar nueva fecha, hora y lugar para la audiencia.

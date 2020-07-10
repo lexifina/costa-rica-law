@@ -1,0 +1,2 @@
+Artículo 37.—Deber de Imparcialidad. Todas las personas funcionarias que participen en el procedimiento administrativo y resolución de los recursos ordinarios y extraordinarios, deberán abstenerse de resolver o asesorar cuando exista un conflicto de interés o cualquier otra causal que comprometa su imparcialidad.
+Para tales efectos se aplicará el procedimiento establecido en el artículo 230 y siguientes de la Ley General de la Administración Pública.

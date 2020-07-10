@@ -1,0 +1,1 @@
+Artículo 26.—Apertura de la audiencia. El ODP se constituirá en la hora, fecha y lugar señalados. Para esos efectos, se verifica la presencia de la persona estudiante investigada, otras personas citadas y se declarará abierta la audiencia.
