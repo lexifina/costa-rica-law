@@ -14,3 +14,4 @@ Reforma Reglamento para la Operación y Control de Fondos de Caja Chica del Banc
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-03-20 | la propia norma |
+| 2 | 2020-07-10 | Acuerdo 292 (2020-07-10) |
