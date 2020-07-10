@@ -1,4 +1,5 @@
 INSTITUTO NACIONAL DE APRENDIZAJE
+(Nota de Sinalevi: Mediante el artículo 16 del Reglamento del Instituto Nacional de Aprendizaje para las contrataciones basadas en los principios de Contratación administrativa con fondos del Sistema de Banca para el Desarrollo (Reglamento de Compras INA-SBD), y publicado en La Gaceta N° 167 del 10 de julio del 2020, se indica derogar parcialmente el presente reglamento)
 UNIDAD DE COMPRAS INSTITUCIONALES
 Reforma al Reglamento del Instituto Nacional de Aprendizaje para las
 contrataciones basadas en los principios de contratación administrativa

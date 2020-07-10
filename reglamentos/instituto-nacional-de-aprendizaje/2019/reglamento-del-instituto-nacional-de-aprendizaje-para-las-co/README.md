@@ -14,3 +14,4 @@ Reglamento del Instituto Nacional de Aprendizaje para las contrataciones basadas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-05-13 | la propia norma |
+| 2 | 2020-07-10 | Reglamento 0 (2020-07-10) |
