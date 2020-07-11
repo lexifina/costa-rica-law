@@ -1,0 +1,8 @@
+CAJA COSTARRICENSE DE SEGURO SOCIAL
+JUNTA DIRECTIVA
+ADICIÓN ARTÍCULO 29. REGLAMENTO
+DEL EXPEDIENTE ÚNICO EN SALUD
+La Junta Directiva de la Caja Costarricense de Seguro Social aprobó en el artículo 682, de la sesión N9108, celebrada el 02 de julio del 2020, la adición al artículo 29 del Reglamento del Expediente Único en Salud que en adelante se transcribe, en forma literal:
+“Acuerdo Primero: Aprobar la reforma al Reglamento de Expediente Digital Único en Salud, en los siguientes términos: Se adiciona al artículo 29 del Capítulo V, el siguiente texto; Artículo 29 bis: Uso de los sistemas automatizados en caso de estado de emergencia. En caso de declaratoria de estado de emergencia, será facultad exclusiva de la Caja, valorando criterios de conveniencia, oportunidad, razonabilidad y salvaguarda de la salud pública e individual, autorizar, a través de personas funcionarias de salud de otros entes públicos o privados competentes, puedan ser consideradas usuarias del EDUS y autorizar los perfiles, niveles de acceso y plazos.
+Todo lo anterior, conforme lo dispuesto en este reglamento, siendo que la administración deberá adoptar las medidas necesarias para garantizar el respeto al ordenamiento jurídico en esta materia. A fin de garantizar la confidencialidad de los datos que se encuentran en el EDUS, cada vez que se conceda el acceso a la información ahí contenida, debe dejarse constancia de las razones por las cuales se permitió dicho acceso y la indicación que se ha hecho uso de todas las herramientas de seguridad para evitar alteraciones o fugas indebidas de información. Igualmente, debe dejarse constancia del nombre del funcionario que lo autorizó lo señalado en el párrafo anterior.
+San José, 08 de julio de 2020.—
