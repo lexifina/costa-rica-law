@@ -1,0 +1,1 @@
+Artículo 6º—El Servicio Fitosanitario del Estado en coordinación con la Corporación Bananera Nacional implementaran actividades de vigilancia continua en las plantaciones de musáceas a nivel nacional con el fin de poder verificar la situación fitosanitaria de Fusarium oxysporum f. sp. cubense raza 4 tropical (Foc R4T) y su monitoreo a nivel nacional.

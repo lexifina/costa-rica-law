@@ -1,0 +1,1 @@
+Artículo 13°. Deróguese el Decreto N° 40364-MAG, Disposiciones Generales para la prevención del hongo Fusarium oxysporum f. sp. cubense Raza 4 Tropical (Foc R4T) agente causal de la marchitez por fusarium en cultivares ‘Cavendish’ y otras musáceas de importancia Económica y Social, publicado en el Diario Oficial La Gaceta N° 81, Alcance 94 del 02 de mayo de 2017.

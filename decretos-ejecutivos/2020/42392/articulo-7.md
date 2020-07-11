@@ -1,0 +1,1 @@
+Artículo 7º—El Servicio Fitosanitario del Estado en coordinación con la Corporación Bananera Nacional desarrollarán y aplicarán a nivel nacional un plan de capacitación y divulgación a técnicos, productores y público en general, sobre la sintomatología de la plaga, así como de las actividades de prevención para evitar su introducción.

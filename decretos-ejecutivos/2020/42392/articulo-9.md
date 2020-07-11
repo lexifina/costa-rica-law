@@ -1,0 +1,3 @@
+Artículo 9º—El Ministerio de Agricultura y Ganadería a través del Servicio Fitosanitario del Estado dispondrá de los recursos necesarios para la implementación de todas las actividades de prevención necesarias con el fin de evitar el ingreso de la plaga al país, tanto para las labores de inspección oficial en los puertos, aeropuertos y puntos fronterizos, vigilancia a nivel de campo, capacitación, divulgación y diagnóstico de laboratorio entre otras.
+Estos recursos provendrán de acuerdo con lo establecido en el artículo 66 de la Ley de Protección Fitosanitaria.
+La operativización y mantenimiento de los controles para la prevención en el ingreso de la plaga, será responsabilidad de los administradores y concesionarios de los puntos de ingreso al país.
