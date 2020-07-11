@@ -1,0 +1,2 @@
+Artículo 5. Vigencia. Esta Directriz se aplicará durante el periodo de vigencia de la resolución MS-DM-6105-2020 del Ministerio de Salud, que a este momento se encuentra en firme hasta el 19 de julio del presente año, por lo que en el tanto esta resolución sea ampliada, se tendrá por prorrogada automáticamente la presente Directriz
+Comuníquese la presente Directriz, para que la misma sea de obligado e inmediato acatamiento, en el entendido de que el incumplimiento de lo aquí dispuesto genera.
