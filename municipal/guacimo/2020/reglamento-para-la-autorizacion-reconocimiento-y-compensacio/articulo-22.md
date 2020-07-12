@@ -1,0 +1,2 @@
+Artículo 22.—Cálculo de monto a pagar. El Departamento de Recursos Humanos deberá verificar que el programa presupuestario disponga de los fondos requeridos. Seguidamente efectuará el cálculo del monto a pagar por concepto de hora extra.
+La jornada extraordinaria será remunerada con un cincuenta por ciento más de los sueldos o salarios estipulados; todo en concordancia con lo establecido en el numeral 139 del Código de Trabajo. Cuando corresponda el cálculo se realizar conforme a las reglas dispuestas en el artículo 152 del Código de Trabajo.

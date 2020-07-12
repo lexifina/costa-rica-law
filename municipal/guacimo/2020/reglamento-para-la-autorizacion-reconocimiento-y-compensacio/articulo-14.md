@@ -1,0 +1,2 @@
+Artículo 14.—Sistema de control de saldos. El control presupuestario de la partida de tiempo extraordinario, deberá registrarse en el sistema automatizado de control de saldos que al efecto lleva el área de presupuesto.
+Además, cada coordinador deberá tener un sistema de control interno de saldos de tiempo extraordinario de su dependencia; lo anterior en estricta coordinación con el Ejecutor de Programa respectivo, quien llevará el control de todas las áreas y actividades que correspondan a su Programa Presupuestario.
