@@ -22,3 +22,5 @@ ARTÍCULO 171.- XVI (Derogado por el inciso 1 del artículo único de Ley No. 27
 ARTÍCULO 173.- XVII (Derogado por el inciso 1 del artículo único de Ley No. 2741 de 12 de mayo de 1961)
 ARTÍCULO 178.- XVIII (Derogado por el inciso 1 del artículo único de Ley No. 2741 de 12 de mayo de 1961)
 ARTÍCULO 183.- XIX (Derogado por el inciso 1 del artículo único de Ley No. 2741 de 12 de mayo de 1961)
+ARTÍCULO 50-XX. Se mantienen vigentes las leyes, las concesiones y los permisos de uso actuales, otorgados conforme a derecho, así como los derechos derivados de estos, mientras no entre en vigencia una nueva ley que regule el uso, la explotación y la conservación del agua.
+(Así adicionado el transitorio anterior por el artículo 2° de la ley N° 9849 del 5 de junio del 2020, “Reconocer y garantizar el derecho humano de acceso al agua”)
