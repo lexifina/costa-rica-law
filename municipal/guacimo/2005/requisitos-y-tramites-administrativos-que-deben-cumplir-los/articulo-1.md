@@ -263,17 +263,23 @@ En construcciones, reparaciones, remodelaciones, anexos en casas y edificios, ac
 * Según sea la obra, granja porcina, avícola o estaciones de servicio, cumplir con lo establecido por el Reglamento sobre granjas porcinas Decreto Ejecutivo N° 30294-S de 2 de abril del 2002, Reglamento sobre granjas avícolas Decreto Ejecutivo N° 30293-S de 2 de abril del 2002 y Reglamento para la regulación del sistema de almacenamiento y comercialización de hidrocarburos, Decreto 30131-MINAE, debiendo presentarse certificación o fotocopia de las respectivas resoluciones del Ministerio de Salud y Ministerio del Ambiente y Energía, o sello y firma del funcionario responsable de esas instituciones que se consignará en los planos.
 * Fotocopia de la resolución o constancia de aprobación mediante sello y firma en el plano, extendida por la Dirección de Ingeniería de Tránsito del Ministerio de Obras Públicas y Transportes, mediante la cual se autoriza el diseño y número de plazas del estacionamiento público presentado en el plano, en caso de solicitarse licencia de construcción de proyecto de estacionamiento y edificación con estacionamiento.
 * Informe de inspección e informe técnico del Departamento de Ingeniería.
-B. Visado de planos de agrimensura.
-Para obtener el visado de un plano de agrimensura esté o no inscrito en el Catastro Nacional, se deberá cumplir con los siguientes requisitos y se tramitará en el Departamento de Ingeniería:
-* Fórmula de solicitud debidamente cumplimentada que para tales efectos entrega la Municipalidad.
-* Documento original o fotocopia del plano de la propiedad a visar, junto con dos fotocopias simples legibles del tamaño del original.
-* Certificación literal registral o notarial de la inca madre o de la finca que corresponde al plano, si procede.
-* Plano original de la finca madre o croquis de ésta debidamente acotado y a escala aproximada firmado por un topógrafo o fotocopia de éstos, en donde se muestren todas las porciones resultantes, cuando se trate de segregaciones o fraccionamientos.
-* Visado del Instituto Nacional de Vivienda y Urbanismo, lo cual se hará constar mediante el sello y firma del funcionario en el plano, cuando el lote tenga acceso por servidumbre o cuando se trate de una parcela mínima productiva.
-* En el caso de urbanizaciones, el visado para segregación de los lotes resultantes se otorgará una vez que haya sido recibido el proyecto y se haya efectuado el traspaso de las áreas públicas correspondientes, lo cual deberá comprobar el solicitante, mediante la entrega de una copia del testimonio de la escritura de traspaso de áreas públicas, debidamente presentada ante el Registro Nacional. La aceptación de dicho traspaso deberá ser gestionado ante el Concejo Municipal, para lo cual se deberá aportar previamente ante la Secretaría Municipal, solicitud escrita en la cual indicará el motivo del traspaso y el nombre del proyecto correspondiente; estudio registral de la finca que se traspasa o la finca madre de la cual se segregarán los lotes a traspasar y copia de los planos de las áreas a traspasar, debidamente catastrados y visados por la municipalidad, además del borrador de la escritura correspondiente.
-* Estar al día en el pago de tributos municipales. (Artículo 36 de la Ley N° 4240).
-* Informe de inspección del departamento.
-En caso de solicitud de resello y en donde se encuentre copia fiel del plano de catastro en los archivos municipales, se le indicará por nota en el reverso del plano aportado, la constancia en donde se indican el número de visado y la fecha de aprobación con la firma del encargado.
+(*)B. Visado Único Municipal de planos. Requisitos
+- Disponibilidad de Agua o Prueba Bacteriológica (Pozos Inscritos) para fraccionamientos urbanos o fines urbanos. En caso no requerir el visado para construcción, el propietario del terreno presentará por escrito dicha manifestación, además se consignará en el visado que dicha aprobación no conlleva el permiso para realizar construcciones que requiere la disponibilidad de agua.
+- Que el propietario se encuentre al día con las obligaciones tributarias (Declaración de bienes inmuebles y estar al día con los impuestos y servicios municipales), dicho requisito será verificado internamente.
+- Croquis de fraccionamiento donde se muestren todas las segregaciones de la finca madre y las porciones restantes.
+- Minuta de Catastro.
+- Imagen Minuta.
+- Imagen Corregida.
+- Archivo digital georreferenciado en el Sistema Oficial CRTM 05, formato Shape.
+- Todas las solicitudes serán recibidas por medio de la Página Oficial de la Municipalidad de Guácimo.
+- Consulta Registral (interna).
+- Visado del INVU, lo cual se hará constar mediante sello y firma del funcionario o su equivalente, cuando el lote tenga acceso por servidumbre de paso y corresponda a fraccionamiento con fines urbanísticos.
+- En el caso de las servidumbres de paso que hayan sido ya previamente aprobadas por la Municipalidad, entiéndase que al menos exista plano con escritura que posee acceso por servidumbre, serán aprobadas a nivel municipal, siempre y cuando cumplan con los requerimientos establecidos en la Ley N° 4240 y su respectivo reglamento.
+- En proyectos Urbanísticos los fraccionamientos individuales serán aprobados una vez que la Municipalidad haya recibido conforme las obras públicas.
+- En fraccionamiento de más de 6 lotes frente a calle pública existente, se debe presentar visado del INVU, para este apartado se contabilizará los movimientos registrales desde la finca madre.
+- Se permitirá máximo dos lotes con acceso irregular (callejón de acceso) por finca madre.
+- Inspección de campo (labor municipal).
+(*)(Así reformado el punto b) anterior mediante publicación en La Gaceta N° 169 del 12 de julio del 2020)
 C. Fijación de garantía de cumplimiento por obras faltantes en proyectos de urbanización.
 Únicamente se fijarán garantías de cumplimiento por obras faltantes en aquellos proyectos que demuestren haber alcanzado un avance de obra mínimo que incluya obras de acueducto, servicio de luz, alumbrado público, alcantarillado pluvial y alcantarillado sanitario, esto último donde no se permita la solución individual por tanque séptico, el cual deberá ser conforme a los requerimientos previamente establecidos por esta municipalidad y cumplir con los siguientes requisitos:
 * Escrito de solicitud dirigida al Departamento de Ingeniería para la fijación de la garantía de cumplimiento por obras faltantes del proyecto.

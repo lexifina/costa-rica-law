@@ -15,3 +15,4 @@ Requisitos y Trámites Administrativos que deben cumplir los ciudadanos ante la 
 | --- | --- | --- |
 | 1 | 2005-04-26 | la propia norma |
 | 2 | 2012-05-11 | Ley 9036 |
+| 3 | 2020-07-12 | Reglamento municipal 0 (2020-07-12) |
