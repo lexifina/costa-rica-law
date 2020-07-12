@@ -14,3 +14,4 @@ Cierre temporal de establecimientos con permiso sanitario de funcionamiento que 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-07-11 | la propia norma |
+| 2 | 2020-07-12 | Resolución 6112 (2020-07-12) |

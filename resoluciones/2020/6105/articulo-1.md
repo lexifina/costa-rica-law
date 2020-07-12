@@ -28,6 +28,7 @@ EL MINISTRO DE SALUD
 RESUELVE
 PRIMERO: Las presentes medidas sanitarias se emiten con el objetivo de prevenir y mitigar el riesgo o daño a la salud pública y atender el estado de emergencia nacional dado mediante el Decreto Ejecutivo No. 42227-MP-S del 16 de marzo de 2020 y en procura del bienestar de todas las personas que radiquen en el territorio costarricense de manera habitual ante los efectos del COVID-19.
 SEGUNDO: Se resuelve ordenar el cierre temporal de todos los establecimientos con permiso sanitario de funcionamiento que brinden atención al público y aquellos que no brinden atención al público también, en los cantones, distritos y poblados de riesgo decretados en Alerta Naranja por la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias, el lunes 13, martes 14, miércoles 15, jueves 16 y viernes 17, durante las 24 horas del día, de manera total.
+(Así reformado el punto anterior mediante resolución N° MS-DM-6112-2020 del 12 de julio del 2020)
 I. Lugares decretados en Alerta Naranja:
 Provincia | Cantones
 San José | · GAM: San José, Escazú, Desamparados, Aserrí, Mora, Goicoechea, Santa Ana, Alajuelita, Vásquez de Coronado, Tibás, Moravia, Montes de Oca y Curridabat. · Fuera de GAM: Puriscal
@@ -42,7 +43,8 @@ II. Se exceptúan de la segunda disposición:
 2. Almacenes fiscales, empresas autorizadas por el Ministerio de Salud para la recepción y despacho de carga según resolución Nº RES-DGA-272-2020 siempre que se trate de empresas que realicen una actividad productiva esencial, agencias aduanales, instituciones públicas y demás operadores logísticos requeridos para las operaciones de comercio exterior.
 3. Supermercados, abastecedores, pulperías y minisúper, solo lo correspondiente a la sección de venta de alimentos, bebidas, abarrotes, suministros de limpieza e higiene, y necesidades básicas.
 4. Panaderías, carnicerías y verdulerías.
-5. Farmacias y centros médicos.
+5. Los establecimientos de salud públicos y privados (clínicas, farmacias, hospitales, laboratorios, consultorios, servicios de radiodiagnósticos, servicios de emergencias, ópticas, macrobióticas, entre otros), clínicas veterinarias y droguerías.
+(Así reformado el inciso anterior mediante resolución N° MS-DM-6112-2020 del 12 de julio del 2020)
 6. Las instituciones que por la naturaleza de sus funciones deben permanecer abiertas como los servicios de migración, aduanas, fitosanitario del Estado, puestos fronterizos terrestres, marítimos y aéreos, entre otros.
 7. Servicio a domicilio (exclusivo para alimentación, farmacia, veterinaria, ferretería y cerrajería).
 8. Suministros agropecuarios, veterinarios y de higiene.
@@ -60,7 +62,8 @@ d) Brinden servicios de alojamiento a funcionarios de la Administración Públic
 e) Brinden servicios a embajadas.
 16. Ferias del agricultor, con franja diferenciada para adultos mayores de las 5:00 horas a las 8:30 horas.
 17. Actividades y proyectos de construcción de obra pública exclusivamente para la atención de emergencias en general o trabajos relacionados con la emergencia por COVID-19.
-TERCERO: Se resuelve ordenar el cierre temporal de todos los establecimientos con permiso sanitario de funcionamiento que brinden atención al público y aquellos que no brinden atención al público también, en los cantones, distritos y poblados de riesgo decretados en Alerta Naranja por la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias, los sábados 11 y 18, y domingos 12 y 19 de julio de 2020, de manera total durante las 24 horas.
+TERCERO: Se resuelve ordenar el cierre temporal de todos los establecimientos con permiso sanitario de funcionamiento que brinden atención al público, en los cantones, distritos y poblados de riesgo decretados en Alerta Naranja por la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias, los sábados 11 y 18, y domingos 12 y 19 de julio de 2020, de manera total durante las 24 horas.
+(Así reformada la disposición tercera anterior mediante resolución N° MS-DM-6112-2020 del 12 de julio del 2020)
 I. Se exceptúan de la tercera disposición:
 1. Los servicios a domicilio.
 2. Las instituciones que por la naturaleza de sus funciones deben permanecer abiertas como los servicios de migración, aduanas, fitosanitario del Estado, puestos fronterizos terrestres, marítimos y aéreos, entre otros.
