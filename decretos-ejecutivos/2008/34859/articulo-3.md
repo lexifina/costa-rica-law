@@ -21,6 +21,8 @@ Este documento no otorga, reconoce, ni resuelve derechos de propiedad o titulari
 3.11.7 Los que elaboren, importen, almacenen, desalmacenen, fraccionen, transporten y vendan material genético o biotecnológico de origen animal o destinado al consumo o uso animal.
 3.11.8 Los establecimientos autorizados y acreditados para la exportación de productos agropecuarios.
 3.11.9 Los zoológicos y demás centros donde se concentren animales silvestres en cautiverio.
+Dentro de este concepto, se entenderán incluidos los medios de transporte de animales vivos en pie, productos, subproductos y derivados de origen animal, alimentos para animales, materias primas destinadas a alimentación animal, y medicamentos veterinarios
+(Así adicionado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 42467 del 13 de julio del 2020)
 3.12 FORMULARIO UNIFICADO: Documento oficial formulado por el SENASA, que debe utilizar el usuario cuando requiere solicitar el Certificado Veterinario de Operación (CVO) y el Certificado Veterinario de Operación Precario (CVO PRECARIO).
 3.13 INCONFORMIDAD CIVIL O ADMINISTRATIVA: Circunstancia por la cual un administrado no puede cumplir con un requisito solicitado para el otorgamiento de CVO. La misma puede derivar por un hecho establecido en resolución administrativa o por hecho que se discute administrativa o judicialmente.
 3.14 INSTALACIONES: Toda infraestructura que requiera un establecimiento para satisfacer las necesidades de la actividad o las actividades que allí se realicen.

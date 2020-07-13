@@ -2,7 +2,8 @@ Artículo 7º—Requisitos. Todos los establecimientos, mediante su representant
 7.1 Que conoce la legislación y las medidas sanitarias y ambientales aplicables a la actividad o actividades solicitadas que desarrollará el establecimiento.
 7.2 Que la información que contiene el formulario unificado es verdadera.
 7.3 Que cuenta con procesos implementados de Emergencias Sanitarias y de Manejo de Desechos, de acuerdo a la reglamentación específica.
-7.4 Además declarar que cuenta con los siguientes permisos al día:
+7.4 Los establecimientos que se desarrollen en bienes inmuebles deberán además declarar que cuentan con los siguientes permisos al día:
+(Así reformado el inciso anterior por el artículo 2° del decreto ejecutivo N° 42467 del 13 de julio del 2020)
 7.4.1 Permiso de uso de suelo, emitido por la municipalidad correspondiente o concesión de uso emitido por la autoridad competente.
 7.4.2 La Viabilidad Ambiental emitido por SETENA a las actividades que se encuentren enlistadas en el Anexo 1 y 2 del DE- 31849 MINAE-S-MOPT-MAG-MEIC del 24 de mayo del 2004, “Reglamento General sobre los Procedimientos de Evaluación del Impacto Ambiental (EIA)”, y que fueren posteriores a la publicación de la Ley Orgánica del Ambiente, Nº 7574 del 13 de noviembre de 1995.
 (Nota de Sinalevi: Mediante directriz del Servicio Nacional de Salud Animal N° 002 del 31 de enero de 2014, se estableció: "... Eliminar la Viabilidad Ambiental emitida por SETENA como requisito para el otorgamiento del Certificado Veterinario de Operación, para los siguientes establecimientos:
@@ -13,5 +14,9 @@ c) Los que no se encasillan en ninguno de los dos anteriores incisos, pero que a
 Además:
 7.5 Comprobante de pago por concepto de solicitud de CVO. Este pago se realizará conforme con lo que establezca el Reglamento de Tarifas vigente del SENASA. En el caso de un establecimiento donde se llevan a cabo varias actividades, el SENASA otorgará un CVO por cada actividad.
 7.6 Designar cuando la legislación aplicable a la actividad así lo ordene, un asesor permanente o regente.. La frecuencia, el tipo y otras características del servicio serán definidas de mutuo acuerdo entre las partes y comunicadas al SENASA.
-7.7 Copia de la cédula de identidad. En caso de persona jurídica debe aportar certificación registral o notarial de la personería y copia de cédula jurídica.
-Además de los requisitos anteriores, en el caso que el establecimiento se ubique en una propiedad de un tercero, el interesado deberá demostrar mediante contrato de arrendamiento o declaración jurada del solicitante, en la cual se indique bajo que título posee, la autorización para operar la actividad o actividades sujetas al CVO.
+7.7 Presentar la cédula de identidad. En caso de persona jurídica debe aportar certificación registral o notarial de la personería.
+(Así reformado el inciso anterior por el artículo 2° del decreto ejecutivo N° 42467 del 13 de julio del 2020)
+Además de los requisitos anteriores, en el caso que el establecimiento se ubique en la propiedad de un tercero o pertenezca a otra persona, según corresponda, el interesado deberá demostrar el título bajo el cual posee y aportar documento donde demuestre que cuenta con la autorización del propietario para desarrollar la actividad o actividades sujetas al CVO en esa propiedad o medio de transporte.
+(Así reformado el párrafo anterior por el artículo 2° del decreto ejecutivo N° 42467 del 13 de julio del 2020)
+7.8 Además de los requisitos establecidos en el presente artículo, con salvedad de los señalados específicamente para establecimientos que se desarrollen en bienes inmuebles, para el caso de los medios de transporte de animales vivos en pie, productos, subproductos y derivados de origen animal, alimentos para animales, materias primas destinadas a alimentación animal, y medicamentos veterinarios, deberá presentarse el correspondiente título de propiedad y ser sometidos a inspección previa con el fin de que sean verificadas las condiciones propias que deben reunir según el uso o actividad a la que se dedicarán y que se encuentran establecidos por norma específica. La inspección previa también será requisito para la renovación del registro anual establecido en el artículo 8 del presente Reglamento.
+(Así adicionado el inciso anterior por el artículo 3° del decreto ejecutivo N° 42467 del 13 de julio del 2020)

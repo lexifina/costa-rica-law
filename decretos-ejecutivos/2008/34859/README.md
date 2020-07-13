@@ -16,3 +16,4 @@ Reglamento General para el Otorgamiento del Certificado Veterinario de Operació
 | 1 | 2008-11-27 | la propia norma |
 | 2 | 2011-05-19 | Decreto Ejecutivo 36548 (2011-05-19) |
 | 3 | 2019-12-20 | Decreto Ejecutivo 42081 (2019-12-20) |
+| 4 | 2020-07-13 | Decreto Ejecutivo 42467 (2020-07-13) |
