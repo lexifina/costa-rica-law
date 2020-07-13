@@ -3,3 +3,4 @@ El registro quedará suspendido en forma automática:
 1- Si no se actualiza la información al finalizar la vigencia.
 2- Si existe duda o contradicción en la información declarada.
 (Así reformado por el artículo 1° del decreto ejecutivo N° 42314 del 6 de febrero del 2020)
+(Nota de Sinalevi: Mediante el artículo 2° del decreto ejecutivo N° 42472 del 13 de julio del 2020, se acordó prorrogar, hasta el 04 de enero del 2021, la fecha de vigencia de los registros del “Sistema de Registro del Ministerio de Agricultura y Ganadería, para certificar la condición de pequeño y mediano productor agropecuario (PYMPA)” que hayan vencido o venzan dentro del período comprendido entre el 01 de febrero del 2020 hasta el 04 de enero del 2021.)
