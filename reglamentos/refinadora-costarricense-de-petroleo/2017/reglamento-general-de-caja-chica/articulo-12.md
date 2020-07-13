@@ -1,1 +1,0 @@
-Artículo 12º-De la prohibición de fraccionar. En caso de detección de fraccionamiento, el Departamento de Administración de Tesorería, está facultado para recomendar a la jefatura respectiva, la apertura de los procesos disciplinarios establecidos en la normativa aplicable.
