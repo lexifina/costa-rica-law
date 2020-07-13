@@ -1,0 +1,2 @@
+ARTÍCULO 10°.- Aplicación de la presente medida ante otras acciones de restricción vehicular.
+Para aquellos cantones en alerta naranja contemplados en el Decreto Ejecutivo número 42382-MOPT-S del 2 de junio de 2020 que coincidan con la lista descrita en el artículo 2° de la presente medida de restricción vehicular, durante el período comprendido entre las 00:00 horas del 13 de julio de 2020 a las 23:59 horas del 17 de julio de 2020, se regirán únicamente por las disposiciones dadas en el presente Decreto Ejecutivo.
