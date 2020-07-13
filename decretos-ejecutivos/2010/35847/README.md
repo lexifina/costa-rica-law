@@ -15,3 +15,4 @@ Reglamento de Bases Especiales para el Servicio de Transporte Remunerado de Pers
 | --- | --- | --- |
 | 1 | 2010-04-06 | la propia norma |
 | 2 | 2011-12-15 | Decreto Ejecutivo 36965 (2011-12-15) |
+| 3 | 2020-07-13 | Decreto Ejecutivo 42547 (2020-07-13) |
