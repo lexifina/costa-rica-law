@@ -1,2 +1,0 @@
-Artículo 27.—El presente Reglamento rige a partir de su publicación.
-(Así corrida su numeración mediante acuerdo Nº 1212-2011 y Nº 1213-2011, tomados en acta número cincuenta y tres de la sesión ordinaria, celebrada a las diecisiete horas doce minutos del día 5 de setiembre del 2011 y definitivamente aprobado mediante publicación realizada en La Gaceta N° 18 del 25 de enero de 2012, que lo traspaso del antiguo artículo 28 al 27 actual. Lo anterior ya que en dichos acuerdos se ordena derogar el numeral 13 original y correr la numeración restante)

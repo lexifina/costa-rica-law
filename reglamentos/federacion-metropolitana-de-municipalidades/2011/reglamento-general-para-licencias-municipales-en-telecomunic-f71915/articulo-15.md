@@ -1,5 +1,0 @@
-CAPÍTULO IV
-Obligaciones de los interesados
-Artículo 15.—Al solicitarse una licencia municipal de las reguladas en este reglamento por parte de personas físicas o jurídicas, públicas o privadas, será obligación que la propiedad para la que se solicite se encuentre al día con el pago de servicios, impuestos y tributos municipales.
-(Así reformado por acuerdo Nº 1212-2011 y Nº 1213-2011, tomados en acta número cincuenta y tres de la sesión ordinaria, celebrada a las diecisiete horas doce minutos del día 5 de setiembre del 2011 y definitivamente aprobado mediante publicación realizada en La Gaceta N° 18 del 25 de enero de 2012)
-(Así corrida su numeración mediante acuerdo Nº 1212-2011 y Nº 1213-2011, tomados en acta número cincuenta y tres de la sesión ordinaria, celebrada a las diecisiete horas doce minutos del día 5 de setiembre del 2011 y definitivamente aprobado mediante publicación realizada en La Gaceta N° 18 del 25 de enero de 2012, que lo traspaso del antiguo artículo 16 al 15 actual. Lo anterior ya que en dichos acuerdos se ordena derogar el numeral 13 original y correr la numeración restante)
