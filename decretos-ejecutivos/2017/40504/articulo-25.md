@@ -1,1 +1,0 @@
-Artículo 25°. Responsabilidad por los daños producidos al alojamiento: El funcionario debe cubrir los gastos de reposición o reparación de daños o averías producidas al alojamiento, salvo aquéllos producto del deterioro normal por el trascurso del tiempo.
