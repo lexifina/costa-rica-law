@@ -3,5 +3,6 @@ a) El transporte público destinado al transporte remunerado de personas en su m
 b) No se permitirá la circulación de vehículos de transporte especial de turismo, estudiantes u ocasionales, así como servicios especiales de autobús, microbuses y busetas, excepto lo dispuesto en el inciso b) del artículo 4° del presente Decreto Ejecutivo y aquellos casos debidamente justificados y aprobados por el Consejo de Transporte Público, requeridos para la continuidad de servicios públicos o atención del estado de emergencia nacional.
 c) No se permitirá la circulación del transporte terrestre de rutas autorizadas internacionales.
 d) No se permitirá el servicio de rutas regulares con recorridos de 75 kilómetros o superiores a esa distancia.
-e) Las rutas regulares con recorridos menores a 75 kilómetros deberán mantener las operaciones hasta por el 20 % del servicio en la ruta autorizadas.
+e) Las rutas regulares con recorridos menores a 75 kilómetros deberán mantener las operaciones entre el rango del 20 % al 50% del servicio en las rutas autorizadas.
+(Así reformado el inciso anterior por el artículo 2° del decreto ejecutivo N° 42469 del 13 de julio del 2020)
 El Consejo de Transporte Público deberá adoptar las acciones de su competencia para establecer los parámetros técnicos y operativos necesarios a fin de que se cumpla las restricciones indicadas en el presente artículo.
