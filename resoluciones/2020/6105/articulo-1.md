@@ -44,7 +44,7 @@ II. Se exceptúan de la segunda disposición:
 3. Supermercados, abastecedores, pulperías y minisúper, solo lo correspondiente a la sección de venta de alimentos, bebidas, abarrotes, suministros de limpieza e higiene, y necesidades básicas.
 4. Panaderías, carnicerías y verdulerías.
 5. Los establecimientos de salud públicos y privados (clínicas, farmacias, hospitales, laboratorios, consultorios, servicios de radiodiagnósticos, servicios de emergencias, ópticas, macrobióticas, entre otros), clínicas veterinarias y droguerías.
-(Así reformado el inciso anterior mediante resolución N° MS-DM-6112-2020 del 12 de julio del 2020)
+(Así reformado el punto anterior mediante resolución N° MS-DM-6112-2020 del 12 de julio del 2020)
 6. Las instituciones que por la naturaleza de sus funciones deben permanecer abiertas como los servicios de migración, aduanas, fitosanitario del Estado, puestos fronterizos terrestres, marítimos y aéreos, entre otros.
 7. Servicio a domicilio (exclusivo para alimentación, farmacia, veterinaria, ferretería y cerrajería).
 8. Suministros agropecuarios, veterinarios y de higiene.
@@ -62,8 +62,10 @@ d) Brinden servicios de alojamiento a funcionarios de la Administración Públic
 e) Brinden servicios a embajadas.
 16. Ferias del agricultor, con franja diferenciada para adultos mayores de las 5:00 horas a las 8:30 horas.
 17. Actividades y proyectos de construcción de obra pública exclusivamente para la atención de emergencias en general o trabajos relacionados con la emergencia por COVID-19.
+18. Actividades y proyectos de construcción exclusivamente para la atención de urgencias por razones de seguridad, debidamente autorizadas por el Ministerio de Vivienda y Asentamientos Humanos, con un máximo de personal de 10 personas y bitácora de la hora de inicio, hora de finalización y cumplimiento de protocolos.
+(Así adicionado el inciso anterior por resolución MS-DM-6155-2020 del 14 de julio del 2020)
 TERCERO: Se resuelve ordenar el cierre temporal de todos los establecimientos con permiso sanitario de funcionamiento que brinden atención al público, en los cantones, distritos y poblados de riesgo decretados en Alerta Naranja por la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias, los sábados 11 y 18, y domingos 12 y 19 de julio de 2020, de manera total durante las 24 horas.
-(Así reformada la disposición tercera anterior mediante resolución N° MS-DM-6112-2020 del 12 de julio del 2020)
+(Así reformado el punto anterior mediante resolución N° MS-DM-6112-2020 del 12 de julio del 2020)
 I. Se exceptúan de la tercera disposición:
 1. Los servicios a domicilio.
 2. Las instituciones que por la naturaleza de sus funciones deben permanecer abiertas como los servicios de migración, aduanas, fitosanitario del Estado, puestos fronterizos terrestres, marítimos y aéreos, entre otros.
