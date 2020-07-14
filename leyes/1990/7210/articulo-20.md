@@ -21,6 +21,7 @@ c) Exención de todo tributo y derecho consular que pese sobre la importación d
 (Así reformado este inciso por el artículo 1º, inciso h), de la ley No.7830 de 22 de setiembre de 1998)
 ch) Exención de todo tributo asociado con la exportación o reexportación de productos. Esta exención se otorgará para la reexportación de la maquinaria de producción y equipos de las Zonas, ingresados al amparo de esta ley.
 d) Exención, por un período de diez años a partir de la iniciación de las operaciones, del pago de impuestos sobre el capital y el activo neto, del pago del impuesto territorial y del impuesto de traspaso de bienes inmuebles.
+(Nota de Sinalevi: Mediante el artículo único de la ley N° 9851 del 17 de junio del 2020, se interpretó auténticamente el inciso anterior en el sentido de que: “…donde dice "impuesto territorial" debe entenderse "impuesto sobre bienes inmuebles".)
 e) Exención del impuesto de ventas y consumo sobre las compras de bienes y servicios.
 f) Exención de todo tributo que pese sobre las remesas al extranjero.
 g) Exención de todos los tributos a las utilidades, así como de cualquier otro, cuya base imponible se determine en relación con las ganancias brutas o netas, los dividendos abonados a los accionistas o los ingresos o las ventas, de conformidad con las siguientes diferenciaciones:
