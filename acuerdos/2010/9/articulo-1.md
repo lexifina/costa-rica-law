@@ -1,63 +1,54 @@
 Política y Procedimiento Retiros Temporales e Indefinidos
-COLEGIO DE LICENCIADOS Y PROFESORES DEPARTAMENTO FISCALÍA
+COLEGIO DE LICENCIADOS Y PROFESORES
+DEPARTAMENTO FISCALÍA
 POLÍTICA Y PROCEDIMIENTO: RETIROS TEMPORALES E INDEFINIDOS | Número: POL/PROFEL01 Versión: 3 Mayo 2012
 Dirigido a: Personas colegiadas, Colaboradores, Fiscales Regionales y/o Auxiliares Regionales. |
 Elaborado por: Departamento de Fiscalía. |
 Fecha de emisión: Febrero 2010 | Reemplaza a: POL/PRO-FEL01 versión 2
 Revisado por: | Comisión de revisión de políticas Aprobado para entrar en vigencia: Sesión Ordinaria 040-2010 celebradael 03-05-10, Acuerdo N° 09
-(Nota de Sinalevi: La presente norma fue reformada parcialmente y publicado su texto de forma íntegra mediante sesión N° 046 del 29 de mayo de 2018 y publicación en el La Gaceta N° 124 del 10 de julio del 2018, por lo que se transcribe a continuación:)
-Objetivo: Establecer los requisitos y lineamientos necesarios para el trámite de retiro Indefinido o Temporal de la Corporación Colypro por parte de las personas colegiadas, al amparo del artículo 6º de la Ley Orgánica Nº 4770 y su reforma y al Reglamento General del Colegio de Licenciados y Profesores en Filosofía, Ciencias y Artes.
-Alcance: Personas colegiadas, Órganos, Colaboradores y/o Fiscales Regionales.
-Políticas generales:
-1. Las personas colegiadas pueden retirarse temporal o indefinidamente de la Corporación, para ello deben comunicar por escrito a la Junta Directiva del Colypro la razón que lo justifica y declarar bajo juramento que mientras ostenten ese estatus no ejercerán la profesión docente, por medio del Formulario F-INC-12 o F-INC-13.
-2. La resolución de la solicitud de retiro la dictará el Encargado de Incorporaciones, pudiendo aceptarla o rechazarla según corresponda de acuerdo con los requisitos definidos, semanalmente se elevará a la Junta Directiva del Colypro el listado de dichas solicitudes recibidas para su respectiva aprobación rechazo.
-3. Las personas colegiadas que al momento de tramitar el retiro tengan deudas pendientes con la Corporación, podrán cancelarlas, realizar un arreglo de pago o en su defecto, el Colegio se reserva el derecho de realizar la gestión de cobro administrativa o judicial; sin detrimento del trámite de retiro.
-4. A la solicitud de retiro F-INC-12, se deberán adjuntar los documentos probatorios correspondientes según sea el caso, de acuerdo con lo que se establece en los requisitos básicos aprobados en las políticas específicas.
-Específicas:
-1. Únicamente se recibirán documentos en español; en caso de venir en otro idioma, el interesado(a), deberá de presentar una traducción oficial realizada por un Traductor Oficial acreditado ante el Ministerio de Relaciones Exteriores y Culto debidamente autenticada por la Cancillería de la República de Costa Rica o ente competente (el traductor firmante deberá estar registrado para este proceso automatizado de autenticación de firmas (apostilla/legalización).
-2. Todos los documentos deben ser originales y adjuntar una copia para ser confrontados.
-3. El formulario de solicitud de retiro deberá incluir la información completa, explicando en forma clara, precisa y fundamentada los motivos del retiro. Esta solicitud debe venir firmada por la persona colegiada que desea retirarse o su apoderado, cumpliendo con todos los requisitos definidos en esta política.
-4. Requisitos básicos:
-4.1 Brindar la información requerida para que el/la Oficial de Plataforma llene de manera digital las casillas del formulario F-INC-12 o F-INC-13 explicando en forma clara, precisa y fundamentada el motivo del retiro, tal y como lo solicita el formulario, y aportar los siguientes documentos:
-4.1.1 Documento probatorio relacionado con su situación particular por la cual solicita el retiro.
-Ejemplo: pensión o jubilación, incapacidad, permiso sin goce de salario, declaración jurada u otro.
-4.1.2 Original y copia de la cédula de identidad del solicitante.
-4.1.3 Estudio de salarios reportados en planillas de la Caja Costarricense de Seguro Social de los últimos doce meses, teniendo como referencia el mes anterior a la presentación del retiro.
-4.2 Cuando la persona interesada indica en la justificación que no labora en educación en el ámbito público o privado, debe presentar además de los anteriores documentos probatorios los siguientes:
-4.2.1 Constancia expedida por la Institución donde laboraba (pública o privada), donde se indique que la persona solicitante no trabaja actualmente (cese del cargo). La misma debe demostrar la fecha del rige y vence del nombramiento que ostentaba. La emisión de la constancia no deberá sobrepasar el mes de extendida.
-4.2.2 Cuando la persona afirma que no está laborando en un puesto como docente, técnico docente, docente administrativo, administrativo docente, o su cargo no requiere formación docente, debe aportar una acción de personal o en su efecto documento probatorio idóneo que lo sustituya, donde se demuestre en qué puesto está contratado y las funciones que desempeña.
-5. Solicitud de retiro por medio de Apoderado Legal. De realizarse por medio de un Apoderado Legal; será éste quien tramite el retiro. Deberá presentar el original o copia del mandato respectivo debidamente certificado por un notario público. Además de los requisitos descritos anteriormente, aportará lo siguiente:
-5.1.1 El formulario F-INC-13 debidamente firmado por el Apoderado del Colegiado.
-5.1.2 Original y copia de la cédula de identidad del apoderado gestionante del retiro.
-6. Solo en casos especiales donde el colegiado esté fuera del país: podrá presentar el formulario de retiro F-INC-12 de forma digital (escaneada), aportando adicionalmente los siguientes requisitos:
-6.1 Copia del pasaporte con los sellos de ingreso al país de destino.
-6.2 Constancia de estudios en el exterior y/o permiso de trabajo emitida por la autoridad correspondiente, escrita o traducida en idioma español.
-6.3 Copia de cédula de residencia, cuando corresponda.
-6.4 Cualquier otro documento probatorio que el Encargado de Incorporaciones considere pertinente.
-7. En casos donde el colegiado esté imposibilitado a gestionar personalmente el retiro, por razones de salud incapacitante debe aportar todos los requisitos del punto 4 de esta política y adicionar los siguientes documentos:
-7.1 Formulario F-INC-12 debidamente completo y firmado por el colegiado.
-7.2 Justificación suscrita por el colegiado debidamente autenticada por un abogado, donde indique la razón por la cual no puede hacer el trámite personalmente, así como el nombre y las calidades de la persona autorizada.
-7.3 Original y copia de la cédula de identidad del solicitante.
-7.4 Original y copia de la cédula de identidad de la persona autorizada.
-7.2 Dictamen médico o epicrisis que justifique el grado de incapacidad.
-8. En caso de que la persona solicitante no presente los documentos probatorios completos o el formulario debidamente lleno y firmado, se le deberá apercibir, que hasta tanto no cumpla con los requisitos faltantes no se tramitará su solicitud de retiro. Lo anterior de acuerdo con el artículo 6º Ley Nº 8220 “Protección al ciudadano del exceso de requisitos y trámites administrativos”.
-***FIN DE LA POLÍTICA***
-Descripción procedimiento:
-Nº | Actividades | Responsable:
-1 | Completa digitalmente el formulario de retiro F-INC-12 según la información que el colegiado proporcione, lo imprime, firma, solicita la firma del colegiado, le adjunta los documentos requeridos según esta política y lo traslada a la Auxiliar de Incorporaciones en un plazo máximo de 3 días hábiles posterior a la fecha de recibido. | Oficial de Plataforma de Servicio/Gestor Regional.
-2 | Recibe la solicitud de retiro, ingresa en el RE-INC-04 los datos del solicitante, y las fecha de recibido en Plataforma y en Incorporaciones, consulta en el sistema de Colegiados la condición actual y el estado de cuenta del colegiado para verificar si existen cuentas por pagar, verifica que cumpla con todos los requisitos establecidos y la traslada al Encargado de Incorporaciones máximo dos días hábiles después para su respectivo estudio y resolución. | Auxiliar de Incorporaciones.
-3 | Notifica en caso de ser necesario, vía electrónica a la Plataforma de Servicio, con copia a su Jefatura inmediata, si hay algún error de recepción y se le proporcionará el tiempo prudencial que indique el Encargado de Incorporaciones para resolver el error, según sea el caso. | Auxiliar de Incorporaciones.
-4 | Recibe las solicitudes de retiro y en un plazo máximo de tres días hábiles emite su resolución, si todo está correcto traslada los documentos a la Auxiliar de incorporaciones y se pasa al punto 9 de este procedimiento. En caso de incumplimiento de requisitos se rechazará el retiro y se trasladará al Abogado de la Dirección Ejecutiva para su respectivo visto bueno. En caso que la documentación aportada sea insuficiente girará instrucciones a la Auxiliar de Incorporaciones para que ésta solicite al interesado lo que se requiera. | Encargado de Incorporaciones
-5 | Se comunica con el colegiado y le solicita aportar en un plazo máximo de 5 días hábiles, la documentación necesaria. En caso que el interesado no atienda dicha solicitud en este plazo, el trámite se detendrá hasta tanto no se solvente la necesidad de la Corporación. Si transcurrido un mes calendario no se ha subsanado la situación, el Retiro se rechazará de oficio. | Auxiliar de Incorporaciones.
-6 | Envía a la Auxiliar de Incorporaciones la documentación requerida para continuar con el trámite. | Interesado.
-7 | Traslada nuevamente todos los documentos al Encargado de Incorporaciones para su respectiva resolución. | Auxiliar de Incorporaciones.
-8 | Verifica todos los documentos aportados, emite su resolución final y los traslada a la Auxiliar de Incorporaciones. | Encargado de Incorporaciones.
-9 | Recibe las resoluciones de retiro con sus debidos respaldos, elabora el listado que enviará semanalmente a la Junta Directiva del Colypro para la aprobación del cambio de condición de los solicitantes y anota en el RE-INC-04 la fecha de traslado para control. | Auxiliar de Incorporaciones
-10 | Aprueba o rechaza en firme los retiros conocidos para que se ejecute el cambio de condición en el sistema de colegiados cuando corresponda. | Junta Directiva del Colypro.
-11 | Recibe el acuerdo de la Junta Directiva, anota el número y fecha del mismo en el RE-INC-04 y en el formulario de solicitud de retiro. Ingresa al Sistema de Colegiados y cambia la condición del colegiado a RETIRO INDEFINIDO o RETIRO TEMPORAL, según corresponda. En caso de que la persona se encuentre SUSPENDIDA, notifica a la Unidad de Cobros y a la Unidad de Archivo para que procedan como corresponda. | Auxiliar de Incorporaciones.
-12 | Realiza oficio para notificar al interesado la aprobación o rechazo del retiro con los detalles del mismo y lo traslada al Encargado de Incorporaciones para su respectiva firma. | Auxiliar de Incorporaciones.
-13 | Notifica al interesado la aprobación o rechazo del retiro por medio de correo electrónico, fax o correo certificado y anota en el RE-INC-04 la fecha de la resolución. | Auxiliar de Incorporaciones.
-14 | Digita en el expediente electrónico del colegiado la resolución de retiro, así como sus respectivos respaldos. | Auxiliar de Incorporaciones.
-15 | Da seguimiento diario al RE-INC-04 para verificar las fechas de vencimiento de los retiros temporales, procede a reactivar la condición de Colegiado cuando corresponda y lo comunica a las Unidades de Cobros y Contabilidad. | Auxiliar de Incorporaciones.
-16 | Realiza la lista de remisión y traslada todos los documentos al archivo central en orden alfabético. | Auxiliar de Incorporaciones.
-17 | Traslada mensualmente a la Unidad de Fiscalización el listado de los retiros aprobados por la Junta Directiva del Colypro para el seguimiento respectivo. | Auxiliar de Incorporaciones.
+(Nota de Sinalevi: El texto de esta norma fue reformada parcialmente y reproducido su texto en forma íntegra y publicado en La Gaceta N° 171 del 14 de julio del 2020, por lo que se transcribe a continuación:)
+OBJETIVO:
+Establecer los requisitos y lineamientos necesarios para el trámite de retiro indefinido o temporal de la Corporación Colypro por parte de las personas colegiadas, al amparo del artículo 6 de la Ley Orgánica Nº 4770 y su reforma y al Reglamento General del Colegio de Licenciados y Profesores en Letras, Filosofía, Ciencias y Artes.
+ALCANCE:
+Personas colegiadas, órganos, colaboradores y/o fiscales regionales.
+POLÍTICAS GENERALES
+1º—Las personas colegiadas pueden retirarse temporal o indefinidamente de la Corporación, para ello deben comunicar por escrito a la Junta Directiva del Colypro la razón que lo justifica y declarar bajo juramento que mientras ostenten ese estatus no ejercerán la profesión docente, por medio del Formulario F-INC-12 o F-INC-13.
+2º—La resolución de la solicitud de retiro la dictará el Encargado de Incorporaciones, pudiendo aceptarla o rechazarla según corresponda, de acuerdo con los requisitos definidos, semanalmente se elevará a la Junta Directiva del Colypro el listado de las solicitudes recibidas para su respectiva aprobación o rechazo.
+3º—Las personas colegiadas que al momento de tramitar el retiro tengan deudas pendientes con la Corporación podrán cancelarlas, realizar un arreglo de pago o, en su defecto, el Colegio se reserva el derecho de realizar la gestión de cobro administrativo o judicial; sin detrimento del trámite de retiro.
+4º—A la solicitud de retiro F-INC-12 se deberán adjuntar los documentos probatorios correspondientes según sea el caso, de acuerdo con lo que se establece en los requisitos básicos aprobados en las políticas específicas.
+ESPECÍFICAS
+1º—Únicamente se recibirán documentos en español; en caso de estar en otro idioma la persona interesada debe presentar el documento original y la traducción oficial realizada por un traductor acreditado por el Ministerio de Relaciones Exteriores y Culto.
+2º—Los documentos que se reciban firmados digitalmente serán almacenados por quien los reciba, en el medio electrónico que la Administración disponga para estos efectos.
+3º—El formulario de solicitud de retiro debe contener la información completa, explicar en forma clara, precisa y fundamentada los motivos del retiro, mismo que debe coincidir con los documentos probatorios. La solicitud debe venir firmada ya sea de manera autógrafa o digital por la persona colegiada que desea retirarse o su apoderado, cumpliendo con todos los requisitos definidos en esta política.
+4º—Requisitos básicos en caso de retiros tramitados de manera presencial por la persona colegiada:
+4.1. Brindar la información requerida para que el/la Oficial de Plataforma llene de manera digital las casillas del formulario F-INC-12; explicar en forma clara, precisa y fundamentada el motivo del retiro.
+4.2. Documento probatorio relacionado con su situación particular por la cual solicita el retiro. Ejemplo: pensión o jubilación, incapacidad, permiso sin goce de salario, declaración jurada, constancia laboral, carta de cese u otro.
+4.3. Cédula de identidad de la persona solicitante.
+4.4. Estudio de salarios reportados en planillas de la Caja Costarricense de Seguro Social de los últimos doce meses, teniendo como referencia el mes anterior a la presentación del retiro, si tiene más de un año de no laborar debe presentar la constancia de no cotizante.
+4.5. Cuando la persona interesada indica en la justificación que no labora en educación, en el ámbito público o privado, y en el estudio de salarios aparece registrado patrono (s) en el último año, debe aportar constancia expedida por la institución o instituciones donde laboraba (públicas o privadas), donde se indique que la persona solicitante ya no trabaja para dicha institución (cese del cargo).
+4.6. Cuando la persona afirma que no está laborando en un puesto como docente, técnico docente, docente administrativo, administrativo docente, o su cargo no requiere formación docente, debe aportar una constancia laboral o en su defecto documento probatorio idóneo que la sustituya, donde indique claramente en qué puesto está contratado y las funciones que desempeña.
+5º—Requisitos básicos en caso de retiros tramitados por medio de apoderado legal. Además de los requisitos indicados en el punto 4, el apoderado legal debe presentar:
+5.1. El original del mandato respectivo o copia del mismo debidamente certificado por un notario público.
+5.2. El formulario F-INC-13 debidamente firmado por el apoderado de la persona colegiada.
+5.3. La declaración jurada (ubicada en la página 3 del formulario F-INC-13), debidamente firmada por la persona colegiada.
+5.4. Original y copia de la cédula de identidad del apoderado que gestiona el retiro.
+6º—Requisitos básicos en caso de retiros de personas que se encuentran fuera del país:
+6.1. Llenar el formulario F-INC-12, firmado y escaneado en formato PDF.
+6.2. Comprobante de salida de Costa Rica (pasaporte o visa con los sellos respectivos).
+6.3. Cualquier documento legal que demuestre cuanto tiempo estará fuera de Costa Rica el solicitante.
+6.4. Cualquier otro documento probatorio que el Encargado de Incorporaciones considere necesario en casos particulares. Debido a las particularidades de este retiro el interesado puede gestionarlo por cualquiera de los siguientes medios:
+a) Por medio de un apoderado legal, como se detalla en el punto 5 de esta política.
+b) Enviando todos los documentos indicados al correo electrónico retiros@colypro.com, desde la cuenta de correo electrónico registrada en la base de datos de este colegio profesional.
+7º—En casos muy calificados, cuando el interesado no pueda realizar el retiro de forma presencial o a través de apoderado legal, la Unidad de Incorporaciones podrá autorizar que el mismo se tramite por medio de correo electrónico cumpliendo los siguientes requisitos:
+7.1. Completar una declaración jurada dando fe de la originalidad de los documentos enviados.
+7.2. Enviar a la dirección electrónica retiros@colypro.com y en formato PDF todos los requisitos indicados en esta política, asegurándose de hacerlo desde la cuenta de correo electrónico registrada en la base de datos de este colegio profesional.
+7.3. Si la Unidad de Incorporaciones lo considera necesario, puede solicitar algún otro documento para corroborar la imposibilidad del colegiado para hacer el trámite de forma presencial.
+8º—En caso de que la persona solicitante no presente la documentación completa se le debe apercibir, indicando que hasta tanto no cumpla con los requisitos faltantes se detendrá el trámite de su solicitud de retiro y se le dará un plazo de 10 días hábiles para completarla, de no hacerlo en este plazo el trámite se archivará de oficio. Lo anterior de acuerdo con el artículo 6 Ley Nº 8220 “Protección al ciudadano del exceso de requisitos y trámites administrativos”.
+9º—El Encargado de la Unidad de Incorporaciones podrá solicitar a la Junta Directiva que exima al solicitante de algún requisito cuando lo considere necesario.
+10.—El cobro de la cuota de colegiatura mensual se suspenderá a partir del mes siguiente en que empieza a regir el retiro.
+11.—El plazo máximo para resolver las solicitudes de reincorporación será el indicado en la ficha de proceso FP-INC-01 incluida en el Sistema de Gestión de Calidad.
+Fin de la política.
+[imagen]
+[imagen]
+[imagen]
+[imagen]
