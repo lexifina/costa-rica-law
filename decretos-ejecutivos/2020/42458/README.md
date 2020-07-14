@@ -16,3 +16,4 @@ Restricción Temporal del tránsito vehicular en los cantones de alerta naranja 
 | 1 | 2020-07-13 | la propia norma |
 | 2 | 2020-07-13 | Decreto Ejecutivo 42459 (2020-07-12) |
 | 3 | 2020-07-13 | Decreto Ejecutivo 42469 (2020-07-13) |
+| 4 | 2020-07-14 | Decreto Ejecutivo 42476 (2020-07-14) |
