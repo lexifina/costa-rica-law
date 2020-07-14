@@ -1,0 +1,1 @@
+Artículo 2º—En caso de que las medidas sanitarias actualmente vigentes se prolonguen, la prórroga establecida en el artículo primero se extenderá por igual plazo, hasta el día hábil siguiente al vencimiento de tales medidas.
