@@ -1,11 +1,13 @@
-Artículo 158.—Son funciones del Departamento de Bases de Datos y Seguridad:
-a) Establecer mecanismos para garantizar la seguridad de la información almacenada en las distintas bases de datos disponibles en el MEP.
-b) Crear condiciones para que las diferentes dependencias del MEP, tanto en el nivel central como regional, puedan disponer de información segura, precisa y oportuna que se ajuste a sus necesidades.
-c) Establecer e implementar las políticas, lineamientos y normas para garantizar la seguridad de las bases de datos asociadas a la utilización de los sistemas informáticos disponibles en el MEP.
-d) Proporcionar un entorno que sea a la vez conveniente y eficiente para ser utilizado al extraer y almacenar información de la base de datos.
-e) Implementar políticas y estándares de desarrollo en materia de bases de datos, tanto en el nivel central como regional.
-f) Mantener acciones preventivas y correctivas en las distintas bases de datos y servidores de bases de datos, para así minimizar los riesgos asociados a las “caídas de sistema”.
-g) Desarrollar e implementar conceptos y técnicas para la gestión eficiente de los datos.
-h) Maximizar la capacidad operativa de los recursos de bases de datos, en coordinación con otros departamentos de la Dirección de Informática de Gestión.
-i) Administrar los distintos instrumentos y mecanismos utilizados para realizar los respaldos de las bases de datos, con el fin de que éstos estén disponibles oportunamente cuando se requieran.
-j) Otras funciones inherentes relacionadas con sus funciones y atribuciones, asignadas por el superior jerárquico.
+Artículo 158.— Son funciones del Departamento de Soporte Técnico:
+a) Velar por el buen estado del equipo de cómputo utilizado en las diferentes dependencias de oficinas centrales y de direcciones regionales que no posean funcionario en soporte técnico asignado, mediante el mantenimiento preventivo, correctivo y servicios, con el fin de garantizar su buen funcionamiento.
+b) Realizar la programación de visitas para la revisión y reparación de equipo de cómputo, de acuerdo con las solicitudes de las dependencias.
+c) Mantener acciones preventivas y correctivas para la instalación y configuración de hardware y software del equipo de cómputo existente en las diferentes dependencias de oficinas centrales y direcciones regionales del MEP.
+d) Maximizar en la medida de sus posibilidades la capacidad operativa de los recursos informáticos de su área de competencia, en coordinación con los otros departamentos de la Dirección y demás dependencias del MEP, tanto en el nivel central como regional.
+e) Apoyar en todo aspecto de soporte técnico los procesos de gestión de las dependencias centrales y direcciones regionales de la institución.
+f) Elaborar y presentar las propuestas de normativas para promover el uso adecuado de los equipos de cómputo y software en las dependencias centrales y direcciones regionales del MEP.
+g) Determinar los estándares mínimos de equipo de cómputo y software, para las dependencias centrales y direcciones regionales de la institución.
+h) Elaborar los carteles de compra de bienes y servicios que son administrados y utilizados por el departamento para el cumplimiento de sus objetivos.
+i) Apoyar a las dependencias del nivel central y regional, que no cuentan con personal informático asignado, en las diferentes etapas de los procesos de compra de equipo de cómputo.
+j) Controlar y custodiar los equipos y repuestos utilizados para la reparación de los equipos del área de su competencia.
+k) Otras funciones inherentes, relacionadas con sus competencias y atribuciones, asignadas por el superior jerárquico.
+(Así modificada su numeración por el artículo 7° del decreto ejecutivo N° 42488 del 14 de julio del 2020, que lo traspaso del antiguo artículo 161 al 158, ya que se ordena derogar los artículos 143, 144 y 145 y correr la numeración de los restantes numerales)

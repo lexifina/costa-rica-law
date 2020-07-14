@@ -1,2 +1,1 @@
-Artículo 179.—Rige a partir de su publicación.
-Dado en la Presidencia de la República, a los treinta días del mes de enero del dos mil catorce.
+Artículo 179.— (Nota de Sinalevi: El texto de este artículo puede ser consultado en el numeral 176, ya que mediante el artículo 7° del decreto ejecutivo N° 42488 del 14 de julio del 2020, se ordena derogar los artículos 143, 144 y 145 y correr la numeración de los restantes numerales)

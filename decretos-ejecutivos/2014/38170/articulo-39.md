@@ -1,6 +1,8 @@
 Artículo 39.—El Nivel Director del Viceministerio Administrativo contará con las siguientes Direcciones:
 a) Dirección de Recursos Humanos (DRH).
-b) Dirección de Infraestructura y Equipamiento Educativo (DIEE).
+b) Dirección de Infraestructura Educativa(**) (DIE)(*).
+(*) (Así modificada su denominación por el artículo 1° del decreto ejecutivo N° 42488 del 14 de julio del 2020)
+(**) (Así modificada su denominación por el artículo 2° del decreto ejecutivo N° 42488 del 14 de julio del 2020)
 c) Dirección de Programas de Equidad (DPE).
 d) Dirección de Informática de Gestión (DIG).
 e) Dirección de Servicios Generales (DSG).

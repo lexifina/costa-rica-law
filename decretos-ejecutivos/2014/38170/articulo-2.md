@@ -20,7 +20,9 @@ DGEC: Dirección de Gestión y Evaluación de la Calidad.
 DGPN: Dirección General de Presupuesto Nacional.
 DGSC: Dirección General de Servicio Civil.
 DHR: Defensoría de los Habitantes de la República.
-DIEE: Dirección de Infraestructura y Equipamiento Educativo.
+DIE(*): Dirección de Infraestructura Educativa(**).
+(*) (Así modificada su denominación por el artículo 1° del decreto ejecutivo N° 42488 del 14 de julio del 2020)
+(**) (Así modificada su denominación por el artículo 2° del decreto ejecutivo N° 42488 del 14 de julio del 2020)
 DIG: Dirección de Informática de Gestión.
 DMC: Departamento de Mejora Continua.
 DPE: Dirección de Programas de Equidad.

@@ -20,3 +20,4 @@ Organizaci√≥n administrativa de la oficinas centrales del Ministerio de Educaci√
 | 5 | 2019-07-15 | Decreto Ejecutivo 42058 (2019-07-15) |
 | 6 | 2019-11-20 | Decreto Ejecutivo 42179 (2019-11-20) |
 | 7 | 2020-02-17 | Decreto Ejecutivo 42225 (2020-02-17) |
+| 8 | 2020-07-14 | Decreto Ejecutivo 42488 (2020-07-14) |

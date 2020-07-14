@@ -1,3 +1,22 @@
-SECCIÓN IV
-De la Dirección de Programas de Equidad
-Artículo 146.—La Dirección de Programas de Equidad es el órgano técnico responsable de reducir la brecha de oportunidades en el sistema educativo costarricense, procurando el acceso y la permanencia de los estudiantes de más bajos ingresos mediante el manejo integral de los distintos programas sociales del MEP, específicamente los relacionados con los servicios de alimentación y nutrición, transporte estudiantil y becas.
+Artículo 146.— Son funciones del Departamento de Planificación y Evaluación de Impacto:
+a) Coordinar con los Departamentos de la Dirección la implementación de la estrategia para la elaboración del Plan Operativo Anual y Presupuesto de cada Departamento y de la Dirección, así como de otros documentos de planificación requeridos por agentes internos y externos del MEP, siguiendo los lineamientos establecidos para tal efecto por la Dirección de Programas de Equidad.
+b) Coordinar con los Departamentos la emisión periódica de los informes sobre el avance en el cumplimiento del Plan Operativo Anual y Presupuesto y remitirlos a la Dirección para su aprobación y entrega a las instancias competentes.
+c) Brindar apoyo técnico a los Departamentos y a la Dirección, en temas relacionados con formulación, ejecución, monitoreo y evaluación de los planes y estrategias de los distintos programas.
+d) A partir de los lineamientos de la Dirección, diseñar e implementar los instrumentos para la evaluación de los servicios y rendir los informes con las recomendaciones pertinentes.
+e) Coordinar la elaboración de los manuales de procedimientos de las instancias de la Dirección, así como el mantenimiento y actualización oportuna de éstos.
+f) Diseñar los procedimientos e instrumentos de inducción a los funcionarios de la Dirección, ante nuevos ingresos, cambio de funciones o actualizaciones en las funciones asignadas a los puestos.
+g) Conducir las acciones tendientes al establecimiento, mantenimiento, perfeccionamiento y evaluación del sistema de control interno y del sistema específico de valoración de riesgos de la Dirección de Programas de Equidad, con la participación de todos los Departamentos y la asistencia de otras dependencias especializadas.
+h) Proponer a la Dirección el conjunto de parámetros de medición de impacto de los programas de equidad.
+i) Efectuar estudios en los que se relacione la capacidad de la planta física y del equipamiento de los comedores estudiantiles, con la población total que recibe los servicios, con el objeto de determinar las condiciones de calidad y equidad de su prestación y formular las recomendaciones pertinentes.
+j) Realizar estudios de impacto social de los programas de equidad y proponer a la Dirección la implementación de las mejores prácticas para el desarrollo de éstos.
+k) Realizar estudios que tiendan a validar los controles que ejercen diferentes actores de la comunidad educativa, sobre el funcionamiento de las sodas estudiantiles y colegiales, con fundamento en la normativa vigente.
+l) Coordinar el diseño de sistemas de información integrados de los programas de equidad.
+m) Coordinar con los demás departamentos el diseño de los lineamientos de trabajo y procedimientos que deben cumplir las instancias ejecutoras de los programas de equidad.
+n) Realizar estudios sobre la distribución de recursos de los programas de equidad y los mecanismos y procedimientos de selección de beneficiarios, en coordinación con los distintos Departamentos, que orienten a la toma de decisiones de las diferentes instancias de la Dirección de Programas de Equidad.
+o) Gestionar el diseño de los planes de capacitación y asesoramiento para Comités, Juntas Administrativas, Patronatos Estudiantiles, Juntas de Educación y Asociaciones de Padres, entre otros, en coordinación con los distintos departamentos y actores interesados en el tema.
+p) Coordinar la implementación de los planes de capacitación y asesoramiento con instituciones públicas, empresas privadas, asociaciones de padres y organizaciones no gubernamentales, entre otros.
+q) Gestionar materiales escritos y audiovisuales de apoyo para la capacitación y asesoramiento requerida en materia específica de la ejecución de los programas de equidad.
+r) Coordinar con el Instituto Nacional de Aprendizaje (INA) el desarrollo del proyecto de capacitación para servidoras de comedores estudiantiles, personal del centro educativo y el personal de sodas en los centros educativos, según los lineamientos técnicos del Departamento de Alimentación y Nutrición.
+s) Diseñar e implementar los procedimientos necesarios para determinar el monto de los subsidios relacionados con los programas de equidad.
+t) Otras funciones inherentes, relacionadas con sus competencias y atribuciones, asignadas por el superior jerárquico.
+(Así modificada su numeración por el artículo 7° del decreto ejecutivo N° 42488 del 14 de julio del 2020, que lo traspaso del antiguo artículo 149 al 146, ya que se ordena derogar los artículos 143, 144 y 145 y correr la numeración de los restantes numerales)

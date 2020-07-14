@@ -1,3 +1,6 @@
 SECCIÓN III
-De la Dirección de Infraestructura y Equipamiento Educativo
-Artículo 135.—La Dirección de Infraestructura y Equipamiento Educativo (DIEE) es el órgano técnico encargado de planificar, desarrollar, coordinar, dirigir, dar seguimiento y evaluar planes, programas y proyectos tendientes al mejoramiento y ampliación de la infraestructura física educativa y su equipamiento, como medio para facilitar el acceso, la calidad y la equidad de la educación pública costarricense. Contempla el mantenimiento preventivo y correctivo, la rehabilitación y la construcción de infraestructura educativa, así como su equipamiento y la dotación de mobiliario.
+De la Dirección de Infraestructura Educativa
+(Así reformada la sección III) anterior por el artículo 5° del decreto ejecutivo N° 42488 del 14 de julio del 2020)
+Artículo 135.—La Dirección de Infraestructura Educativa (DIE) es el órgano técnico encargado de ejecutar todo lo relacionado con la infraestructura física educativa. Para lograr el cumplimiento de la función encomendada debe planificar, dirigir y desarrollar proyectos constructivos, dar seguimiento y evaluar en forma permanente los planes, programas y proyectos de mejoramiento (mantenimiento preventivo y correctivo), tendientes a preservar y mantener en buenas condiciones, así como la ampliación y construcción de la infraestructura física educativa.
+Las funciones de la DIE estarán dirigidas a ser el medio para facilitar el acceso, la calidad y la equidad de la educación pública costarricense.
+(Así reformado por el artículo 5° del decreto ejecutivo N° 42488 del 14 de julio del 2020)
