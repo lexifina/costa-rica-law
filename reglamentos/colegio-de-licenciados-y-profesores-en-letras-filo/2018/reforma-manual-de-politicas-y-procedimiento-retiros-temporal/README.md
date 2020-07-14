@@ -14,3 +14,4 @@ Reforma Manual de Políticas y Procedimiento (Retiros temporales e indefinidos d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-07-10 | la propia norma |
+| 2 | 2020-07-14 | Reglamento 0 (2020-07-14) |
