@@ -1,1 +1,1 @@
-Artículo 9: No se concederán licencias municipales de ningún tipo en casas de habitación, salvo que para efectuar la actividad se separen totalmente el área que se destinará para local comercial de la casa de habitación, debiéndose observar que entre uno y otro no haya comunicación interna, incluyendo el ingreso al local desde su entrada principal.
+Artículo 9: (Derogado mediante sesión ordinaria N° 011-2020 del 14 de julio del 2020)

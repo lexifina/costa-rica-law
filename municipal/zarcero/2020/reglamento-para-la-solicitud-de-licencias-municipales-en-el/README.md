@@ -15,3 +15,4 @@ Reglamento para la solicitud de licencias municipales en el Cantón de Zarcero
 | --- | --- | --- |
 | 1 | 2020-05-20 | la propia norma |
 | 2 | 2020-06-08 | Reglamento municipal 6 (2020-06-08) |
+| 3 | 2020-07-14 | Reglamento municipal 11 (2020-07-14) |
