@@ -1,0 +1,2 @@
+Artículo 14.—Seguridad e Higiene en el Trabajo. La Caja velará por mantener la salud general, ocupacional, el bienestar y la calidad de vida de las personas trabajadoras indígenas, con la finalidad de promover y mantener el más alto nivel de bienestar físico, mental y social de estas personas trabajadoras y sus familias.
+De igual forma, se comprometerá a facilitar los recursos necesarios para mantener condiciones de trabajo dignas, seguras y saludables en los centros de adscripción indígena del país.

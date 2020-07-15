@@ -1,0 +1,1 @@
+Artículo 10.—Traslados y permutas. No se permitirá el traslado o permuta, temporal o definitiva de plazas adscritas a zonas indígenas a otros centros de la Institución, salvo que exista acuerdo de Junta Directiva.

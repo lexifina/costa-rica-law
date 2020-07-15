@@ -1,0 +1,2 @@
+Artículo 4º—De la carrera administrativa. La Caja reconocerá e impulsará la carrera administrativa para las personas trabajadoras indígenas, con el fin de desarrollar el potencial y la idoneidad de este recurso humano en beneficio de esas comunidades.
+Cuando una persona indígena desee participar en nombramientos interinos o en propiedad, en puestos fuera de las zonas indígenas propias de su ascendencia, podrá hacerlo en igualdad de condiciones que las demás personas trabajadoras de la Institución y no se aplicarán las condiciones de empleo establecidas en este Reglamento.

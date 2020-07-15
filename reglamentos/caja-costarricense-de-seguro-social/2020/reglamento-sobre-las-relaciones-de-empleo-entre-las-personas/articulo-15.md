@@ -1,0 +1,1 @@
+Artículo 15: Derecho de libre asociación. La Caja respetará el derecho de libre asociación de las personas trabajadoras indígenas y la libertad sindical; de igual forma proporcionará todas las facilidades a esas agrupaciones para desarrollar sus actividades de representación, lo anterior en concordancia con la legislación vigente.

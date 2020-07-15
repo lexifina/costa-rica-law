@@ -1,0 +1,2 @@
+Artículo 9º—Creación de plazas para laborar en pueblos indígenas. La creación de plazas para laborar en pueblos indígenas deberá regirse por las disposiciones que emita la Junta Directiva de la CCSS en esta materia.
+Cuando se genera la necesidad de creación de plazas previo estudio avalado por la autoridad institucional de recursos humanos, éstas deberán tener prioridad de aprobación ante la Junta Directiva, para lo cual la Gerencia Médica garantizará su incorporación en la modificación presupuestaria inmediata a su aprobación por este órgano colegiado.
