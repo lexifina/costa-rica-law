@@ -14,3 +14,4 @@ Procedimiento para acceder al régimen de excepción para la regularización mig
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-06-22 | la propia norma |
+| 2 | 2020-07-15 | Decreto Ejecutivo 42475 (2020-07-15) |
