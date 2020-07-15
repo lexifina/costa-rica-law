@@ -1,0 +1,1 @@
+Artículo 3º—Que, pasados los tres meses indicados supra, el ingreso de los trámites de Uso de Suelo se hará por la vía no presencial en la plataforma MI MUNI EN CASA y su cumplimiento será obligatorio, sin perjuicio de aquellos casos debidamente justificados, de imposibilidad o gran dificultad para acceder a Internet, o a poder emplear adecuadamente la indicada herramienta.

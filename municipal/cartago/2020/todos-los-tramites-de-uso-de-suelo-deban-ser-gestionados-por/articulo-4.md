@@ -1,0 +1,1 @@
+Artículo 4º—Se procederá a publicar esta disposición en el sitio oficial de la Municipalidad de Cartago www.muni-carta.go.cr y a través del diario de publicación oficial La Gaceta. Se hará de conocimiento de esta resolución a las plataformas de servicio municipales.
