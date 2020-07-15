@@ -1,4 +1,0 @@
-Artículo 14.- Confidencialidad de la Investigación.
-Se prohíbe divulgar información sobre el contenido de las denuncias presentadas en el proceso de investigación, así como de las resoluciones o actos finales adoptados en materia de acoso sexual.
-Dicha prohibición se hará extensiva a las dependencias y personas trabajadoras cuya colaboración sea solicitada de acuerdo con el artículo anterior, a los testigos ofrecidos en el tanto sean personas trabajadoras de la Operadora, a los denunciantes, peritos y partes involucradas en el procedimiento, así como a la Comisión Investigadora.
-La infidencia de cualquiera de las personas que haya participado en el proceso desde la recepción de la denuncia, se considerará falta grave de conformidad con el artículo 81 inciso l) del Código de Trabajo. No implicará inobservancia de esta prohibición los informes que por mandato legal correspondan.

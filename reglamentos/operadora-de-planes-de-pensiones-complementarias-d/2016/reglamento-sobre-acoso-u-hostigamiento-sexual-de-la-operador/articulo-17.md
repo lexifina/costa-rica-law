@@ -1,3 +1,0 @@
-Artículo 17.- Informe y Recomendación Final.
-Concluida la audiencia de recepción de la prueba testimonial, la Comisión resolverá en un plazo máximo de ocho días hábiles sobre la existencia o no de la falta denunciada y rendirá un informe a la Gerencia General o a la Presidencia de la Junta Directiva, según corresponda, formulando la recomendación pertinente.
-De no probarse la falta, se ordenará el archivo del expediente. Asimismo, si durante la tramitación del procedimiento se da la desvinculación laboral de la persona denunciada, deberá dictarse igualmente la resolución fundada, aunque sobrevenga una sanción que no se aplique, esta deberá ser notificada a la persona denunciada y archivada en su expediente personal laboral.

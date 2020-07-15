@@ -1,2 +1,0 @@
-Artículo 20.- Comunicación de la Denuncia.
-Una vez concluido el trabajo de la Comisión con la entrega del informe final, el representante legal será responsable de comunicar al denunciante las resultas del procedimiento, dentro de un plazo no mayor de 15 días hábiles contados a partir de que este fue informado del estudio elaborado por la Comisión. Si el denunciante no está satisfecho con el resultado al que se llegue, puede presentar la denuncia correspondiente ante los Tribunales de Trabajo.
