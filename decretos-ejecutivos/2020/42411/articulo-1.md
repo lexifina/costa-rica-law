@@ -14,6 +14,8 @@ VIII.- Que el Presidente de la República percibe un salario bruto por quincena 
 IX.- Que el monto correspondiente a la reducción salarial citada será destinado, como parte de la contribución solidaria del Presidente de la República, a la atención del estado de emergencia nacional por el COVID-19, para abordar la problemática sanitaria y económica acarreada por dicho escenario actual. Por ende, a la luz del principio de transparencia en torno a la acción adoptada, se procede con la emisión del presente Decreto Ejecutivo para formalizar y respaldar dicha decisión, a efectos de que las instancias competentes tomen las actuaciones que en Derecho correspondan para la ejecución de la deducción salarial referida.
 Por tanto,
 DECRETAN
-Deducción del 10 % del salario bruto por quincena del Presidente de la República
+Deducción del 15 % del salario bruto por quincena del Presidente de la República
 para contribuir con el estado de emergencia nacional por el COVID-19
-Artículo 1°-.Se ordena a la Tesorería Nacional, dependencia del Ministerio de Hacienda, que el 10% del ingreso bruto del Presidente de la República por quincena, se deposite por concepto de donación al Fondo Nacional de Emergencias, a cargo de la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias, para la atención del estado de emergencia nacional por el COVID-19, así declarado mediante el Decreto Ejecutivo número 42227-MP-S del 16 de marzo de 2020.
+(Así reformado el título anterior por el artículo 1° del decreto ejecutivo N° 42481 del 16 de julio del 2020)
+Artículo 1º-. Se ordena a la Tesorería Nacional, dependencia del Ministerio de Hacienda, que el 15% del ingreso bruto del Presidente de la República por quincena, se deposite por concepto de donación al Fondo Nacional de Emergencias, a cargo de la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias, para la atención del estado de emergencia nacional por el COVID-19, así declarado mediante el Decreto Ejecutivo número 42227-MP-S del 16 de marzo de 2020.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 42481 del 16 de julio del 2020)

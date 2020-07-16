@@ -14,3 +14,4 @@ Deducción del 15% del salario por quincena del Presidente de la República para
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-06-23 | la propia norma |
+| 2 | 2020-07-16 | Decreto Ejecutivo 42481 (2020-07-16) |
