@@ -1,0 +1,1 @@
+Artículo 75°- Formas de presentación. Las denuncias podrán presentarse en forma escrita, por los medios señalados en el procedimiento que al efecto establezca la Auditoría Interna y, excepcionalmente, de manera verbal cuando las circunstancias así lo exijan.

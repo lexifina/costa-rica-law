@@ -1,0 +1,1 @@
+Transitorio Único. - La Auditoría Interna del Ministerio de Salud deberá, dentro del plazo máximo de un año a partir de la entrada en vigor del presente reglamento, adecuar sus políticas y procedimientos a las regulaciones contempladas en el presente cuerpo normativo.

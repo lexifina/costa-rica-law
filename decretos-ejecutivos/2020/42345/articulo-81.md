@@ -1,0 +1,1 @@
+Artículo 81°- Resguardo de la identidad del denunciante. Ningún papel de trabajo, razón de archivo o comunicación a terceros generados por la Auditoría Interna, resultado de una denuncia, consignarán la identidad del denunciante.

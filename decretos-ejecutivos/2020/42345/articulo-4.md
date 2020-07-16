@@ -1,0 +1,1 @@
+Artículo 4º- Del presente reglamento. Para la formulación, modificaciones, aprobación y promulgación del presente Reglamento se estará sujeto a lo dispuesto en las directrices y demás normativa técnica promulgada por la Contraloría General de la República sobre este particular.

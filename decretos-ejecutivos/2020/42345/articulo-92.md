@@ -1,0 +1,1 @@
+Artículo 92°- Control del plan de trabajo anual. La Auditoría Interna deberá ejercer un control continuo de la ejecución del plan anual de trabajo, en procura de la debida medición de resultados, la detección oportuna de eventuales desviaciones y la adopción de las medidas correctivas pertinentes.

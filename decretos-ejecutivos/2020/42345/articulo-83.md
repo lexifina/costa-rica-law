@@ -1,0 +1,2 @@
+Artículo 83°- Obligación de iniciar el procedimiento administrativo recomendado por la Auditoría Interna. El jerarca o el funcionario con la competencia para iniciar un procedimiento administrativo por recomendación de la Auditoría Interna, deberá tomar las medidas necesarias para que éste se inicie dentro de los plazos que correspondan a fin de que se interrumpa la prescripción de la responsabilidad.
+Se considerará falta grave del servidor competente el no gestionar lo necesario para que éste se inicie oportunamente o el dejar que la responsabilidad del infractor prescriba.

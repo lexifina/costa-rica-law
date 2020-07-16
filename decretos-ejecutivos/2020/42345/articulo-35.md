@@ -1,0 +1,1 @@
+Artículo 35°- Dependencia de profesionales asesores. Los profesionales en disciplinas distintas a las contables, financieras y administrativas que, en virtud de lo indicado en el artículo anterior, participen en auditorías, estarán bajo la autoridad de la Auditoría Interna y los informes que rindan deben ser dirigidos al Auditor Interno o al Subauditor.

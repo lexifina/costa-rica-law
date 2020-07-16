@@ -1,0 +1,1 @@
+Artículo 2º- Obligación de contar con una Auditoría Interna. En el Ministerio de Salud existirá una sola Auditoría Interna, de conformidad con lo establecido en el artículo 20 de la Ley Nº 8292 del 31 de julio del 2002 “Ley General de Control Interno”.

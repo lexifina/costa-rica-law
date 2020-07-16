@@ -1,0 +1,1 @@
+Artículo 46°- Deberes por ley. El Auditor Interno y el personal de la Auditoría Interna, para el desempeño de sus competencias, tendrán los deberes que se establecen en el artículo 32 de la Ley Nº 8292 del 31 de julio del 2002 “Ley General de Control Interno”.

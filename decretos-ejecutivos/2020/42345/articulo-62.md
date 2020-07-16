@@ -1,0 +1,3 @@
+Artículo 62°- Plazos de los informes. Los informes de control interno, parciales y finales, así como las relaciones de hechos, están sujetos al trámite y los plazos improrrogables previstos en los artículos 36 al 38 de la Ley Nº 8292 del 31 de julio del 2002 “Ley General de Control Interno”.
+El incumplimiento de lo estipulado en los artículos 36 al 38 anteriormente citados, es causal de responsabilidad administrativa, conforme a lo dispuesto en los artículos 39 y 40 de la precitada Ley.
+Los plazos señalados en los artículos precitados empezarán a correr a partir del recibo del informe por parte de los titulares subordinados o del jerarca, según corresponda.

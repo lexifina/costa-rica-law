@@ -1,0 +1,3 @@
+SECCIÓN VIII
+De la planificación y programación del trabajo de auditoría
+Artículo 88°- Planificación. La Auditoría Interna formulará la planificación estratégica y anual de sus procesos conforme a lo dispuesto en las Normas para el Ejercicio de la Auditoría Interna en el Sector Público u otras normas posteriores que al efecto emita la Contraloría General de la República, y basado en la valoración de riesgo institucional, hasta donde sea posible haciendo énfasis en temas sensibles y del sistema de control interno, incluidos los referentes a la prevención de la corrupción y del enriquecimiento ilícito.

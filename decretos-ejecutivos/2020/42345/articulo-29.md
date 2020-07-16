@@ -1,0 +1,5 @@
+Artículo 29°- Obligaciones del personal de la Auditoría. Sin perjuicio de otras obligaciones que le encomiende el Auditor Interno, le corresponde al personal de la Auditoría:
+a) Actuar conforme a las normas éticas emitidas por la Institución, los colegios profesionales a los cuales pertenezcan, organismos competentes y aquellas que el Auditor Interno establezca para garantizar la integridad moral y calidad profesional de los funcionarios a su cargo.
+b) Realizar su trabajo con pericia y cuidado profesional, manteniendo una actitud independiente y objetiva en cuanto a criterio y acción durante la prestación de los servicios de la auditoría interna.
+c) Poseer los conocimientos, técnicas, y otras competencias necesarias para desempeñarse adecuadamente en el ejercicio de sus funciones; así como mantener y perfeccionar sus capacidades mediante la participación en programas de educación y capacitación profesional continua.
+d) Procurar que sus actividades no interfieran en el desarrollo normal de las operaciones de la dependencia auditada.

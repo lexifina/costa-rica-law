@@ -1,0 +1,4 @@
+Artículo 79°- Comunicación al denunciante en caso de denuncias suscritas. Al denunciante se le deberá comunicar cualquiera de las siguientes resoluciones que se adopte de su gestión:
+a) La decisión de desestimar la denuncia o de archivarla.
+b) La decisión de trasladar la gestión para su atención a lo interno del Ministerio de Salud, al Ministerio Público o a la entidad que se considere apropiada para su atención.
+c) El resultado final de la investigación que se realizó con motivo de su denuncia. En caso de que tales resultados puedan originar la apertura de un procedimiento administrativo o la interposición de un proceso judicial, se le comunicará que se realizó la auditoría correspondiente y de su remisión a la autoridad competente, sin aportar información, documentación u otras evidencias inherentes a la investigación.

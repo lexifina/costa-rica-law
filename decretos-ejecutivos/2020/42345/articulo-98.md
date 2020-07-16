@@ -1,0 +1,1 @@
+Artículo 98°- Derogatoria. Deróguese el Decreto Ejecutivo N° 34575-S del 10 de marzo del 2008 “Reglamento de Organización y Funcionamiento de la Auditoría Interna del Ministerio de Salud”, publicado en La Gaceta N°122 del 25 de junio del 2008.

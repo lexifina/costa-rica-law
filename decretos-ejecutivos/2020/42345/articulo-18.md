@@ -1,0 +1,5 @@
+SECCIÓN IV
+Del auditor y subauditor internos
+Artículo 18°- Nombramiento del Auditor Interno y Subauditor. El nombramiento del Auditor y Subauditor Interno lo realizará el Ministro de Salud atendiendo el procedimiento establecido en el artículo 31 de la Ley General de Control Interno; y conforme a lo establecido en la sección 2 “Sobre los nombramientos en los cargos de auditor y subauditor internos” de la Resolución R-CO-83-2018 y demás normativa promulgada por la Contraloría General de la República.
+Tales nombramientos tendrán garantía de inamovilidad según los términos estipulados en el artículo 15 de la Ley Nº 7428 del 7 de septiembre de 1994 “Ley Orgánica de la Contraloría General de la República”.
+La jornada de trabajo del Auditor y Subauditor Interno será a tiempo completo; salvo en casos muy calificados en los que opere la excepción contenida en el párrafo primero del artículo 30 de la Ley Nº 8292 del 31 de julio del 2002 “Ley General de Control Interno” atinente a la reducción de la jornada laboral.

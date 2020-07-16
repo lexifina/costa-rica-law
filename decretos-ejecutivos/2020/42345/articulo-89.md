@@ -1,0 +1,1 @@
+Artículo 89º- Planificación estratégica. El Auditor Interno, como líder y rector del proceso de planificación estratégica de la Auditoría Interna, le corresponde definir su misión, visión, principales políticas y los valores éticos que deben tener en cuenta los funcionarios de la Auditoría en sus distintas relaciones internas y externas.

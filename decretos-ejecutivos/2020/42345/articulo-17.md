@@ -1,0 +1,3 @@
+Artículo 17°- Dirección y administración de la Auditoría Interna. La dirección y administración de la Auditoría Interna, estará bajo la responsabilidad de un Auditor Interno, un Subauditor y Jefes de Unidad de Auditoría.
+El Auditor Interno es el superior jerárquico de la Auditoría Interna, y como tal, le corresponde el máximo nivel de competencia, responsabilidad y autoridad; teniendo a su cargo la dirección, organización y establecimiento de políticas y procedimientos para el manejo de la Auditoría Interna. En esta condición responderá por su gestión ante el Ministro de Salud.
+El Subauditor dependerá del Auditor Interno y será directamente responsable ante éste por su gestión o ante el jerarca, cuando se encuentre ejerciendo interinamente el cargo de Auditor Interno.

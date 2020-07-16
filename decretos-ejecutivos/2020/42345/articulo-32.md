@@ -1,0 +1,1 @@
+Artículo 32°- Obligación de asesorar a la Auditoría. Asuntos Jurídicos del Ministerio de Salud, estará en la obligación de atender de manera oportuna y efectiva, las necesidades de orden jurídico de la Auditoría Interna, que le permitan cumplir sus competencias.

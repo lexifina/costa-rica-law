@@ -1,0 +1,16 @@
+Artículo 20°- Deberes del Auditor Interno. Sin perjuicio de otras obligaciones que le encomiende el jerarca atinente a sus labores de asesoría, control y verificación, son deberes del Auditor Interno:
+a) Programar, coordinar, dirigir y controlar la Auditoría Interna. Para ello dictará los lineamientos, directrices, políticas e instrucciones pertinentes y aplicará criterios adecuados en el ejercicio de las competencias y en las relaciones con los sujetos pasivos.
+b) Conocer, aprobar y dar trámite a los informes que se produzcan como resultado de las auditorías o estudios especiales que se realicen, pudiendo ampliarlos, resumirlos o mantenerlos tal y como le son enviados, con el fin de darlos a conocer al jerarca, direcciones y al personal bajo su cargo, según corresponda.
+c) A solicitud de la parte interesada, asesorar en forma oportuna en asuntos de su competencia, al Ministro de Salud, direcciones y al personal bajo su cargo.
+d) Definir, establecer y mantener actualizadas las políticas, procedimientos y prácticas requeridas por la Auditoría Interna para cumplir con sus competencias, considerando en cada caso lo relativo a los procesos que ejecuta.
+e) Definir, establecer y mantener actualizadas las políticas, procedimientos y prácticas de acceso y custodia de la documentación de la Auditoría Interna, en especial de la información relativa a los asuntos de carácter confidencial que se estipulan en el artículo 6 de la Ley Nº 8292 del 31 de julio del 2002 “Ley General de Control Interno” y el artículo 8 de la Ley Nº 8422 del 6 de octubre del 2004 “Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública”.
+f) Formular, gestionar y mantener vigente el Reglamento de Organización y Funcionamiento de la Auditoría Interna.
+g) Establecer un programa de aseguramiento de la calidad para la Auditoría Interna.
+h) Presentar ante el jerarca un informe anual de la ejecución del plan de trabajo y del estado de las recomendaciones de la Auditoría Interna y de la Contraloría General de la República.
+i) Diseñar, documentar e implantar los procesos de los servicios que presta la Auditoría Interna, referidos a los servicios de auditoría y los servicios preventivos, estableciendo instrumentos efectivos para su administración.
+j) Presentar el plan de trabajo de la Auditoría Interna de conformidad con los lineamientos de la Contraloría General de la República y proponer al Ministro de Salud, los requerimientos de recursos necesarios para ejecutar dicho plan.
+k) Proponer al Ministro de Salud, la creación de plazas que considere indispensables para la debida prestación de sus servicios preventivos y de auditoría y demás recursos que estime necesarios.
+l) Cumplir con pericia y debido cuidado profesional sus funciones, haciendo valer sus competencias con independencia funcional y de criterio y ser vigilantes de que su personal responda de igual manera.
+m) Adquirir y aplicar los conocimientos, técnicas, valores, creencias y actitudes que fortalezcan la efectividad de la actividad de la Auditoría Interna.
+n) Presentar al final de su gestión un informe, de acuerdo con las directrices emitidas por la Contraloría General de la República.
+o) Administrar en forma efectiva los recursos financieros, materiales, humanos y tecnológicos en función de los objetivos institucionales.
