@@ -1,0 +1,3 @@
+CAPÍTULO VIII
+Planificación de la auditoría interna
+Artículo 29.—Planificación estratégica. La auditoría interna contará con la determinación de un proceso de planificación estratégica integral de su unidad, lo cual culmina en la formulación del plan estratégico. Para estos fines debe contar con un adecuado sistema de administración de los riesgos y potencialidades atribuibles a la auditoría interna, analizar sus competencias, misión, visión, el universo auditable, sus factores claves de éxito, así como administrar adecuadamente lo relativo a los diversos temas de fiscalización de manera que contribuyan a garantizar razonablemente la legalidad, eficacia y eficiencia en el manejo del sistema de control interno institucional y de los fondos públicos.

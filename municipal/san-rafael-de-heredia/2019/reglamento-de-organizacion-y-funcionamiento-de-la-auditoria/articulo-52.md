@@ -1,0 +1,1 @@
+Artículo 52.—Ante cualquier situación no prevista en los lineamientos para la autorización y cierre de libros, el auditor interno tendrá la potestad de analizar el caso, para resolver conforme las mejores prácticas y de acuerdo con la legislación aplicable.

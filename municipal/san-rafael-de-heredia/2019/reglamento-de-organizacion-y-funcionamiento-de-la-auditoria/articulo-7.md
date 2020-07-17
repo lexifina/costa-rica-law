@@ -1,0 +1,4 @@
+CAPÍTULO III
+Independencia, objetividad y prohibiciones
+Artículo 7º—Independencia funcional y de criterio. Los funcionarios de la auditoría interna ejercerán sus deberes y potestades con total independencia funcional y de criterio respecto del Jerarca y de los demás órganos de la administración activa.
+Los funcionarios de la auditoría Interna en el desarrollo de sus competencias deben estar libres de impedimentos para proceder con independencia, objetividad e imparcialidad. El auditor interno debe conocer los impedimentos del personal a su cargo, así mismo todos los funcionarios de auditoría tienen la responsabilidad de estar alerta sobre cualquier circunstancia, situación o hecho, personal o externo, que pueda menoscabar o poner en duda su independencia, y comunicarlo de inmediato al auditor interno.

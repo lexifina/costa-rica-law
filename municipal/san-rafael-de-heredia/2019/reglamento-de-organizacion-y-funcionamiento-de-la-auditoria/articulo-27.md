@@ -1,0 +1,1 @@
+Artículo 27.—Otras potestades de la Auditoría Interna. El auditor interno, el sub auditor interno y el personal de la auditoría interna tienen las potestades que establece la Ley General de Control Interno, así como cualquier otra que sea necesaria para el cumplimiento de sus competencias, de acuerdo con el ordenamiento jurídico y técnico aplicable.

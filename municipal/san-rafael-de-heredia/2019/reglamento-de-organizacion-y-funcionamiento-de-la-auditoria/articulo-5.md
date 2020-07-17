@@ -1,0 +1,7 @@
+Artículo 5º—Valores Éticos. La Auditoría Interna de la Municipalidad define los valores éticos que regirán la labor de sus funcionarios así:
+Independencia: Guardar la debida independencia respecto a la administración y otros grupos de interés externos, siendo esencial la independencia e imparcialidad de hecho.
+Objetividad: La Auditoría realizará su trabajo en apego a la normativa legal técnica aplicable, ajustando su criterio a las mismas para garantizar objetividad en su accionar, amparado en sus papeles de trabajo y demás pruebas sustantivas.
+Integridad: Ejercer la función de auditoría de manera franca y honesta, correcta y educada en todas sus relaciones profesionales y empresariales.
+Confiabilidad: Los auditores deben velar por que en todas sus actuaciones prevalezcan siempre los más altos valores morales, siendo consistente y abstenerse de cualquier comportamiento que pudiera desacreditarlo como profesional o persona, actuando de buena fe, profesando respeto con el cumplimiento del deber en cualquier situación.
+Calidad: Los funcionarios de la auditoría interna realizarán su trabajo con un alto grado de compromiso y calidad siendo este último el grado en el que un conjunto de características inherentes cumple con los requisitos y normas establecidos.
+Servicio: El profesional en auditoría debe ayudar a la administración y contribuyentes de una forma espontánea, es decir, adoptar una actitud permanente de colaboración hacia los demás y siendo oportuno, sin esperar nada a cambio.

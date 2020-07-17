@@ -1,0 +1,1 @@
+Artículo 39.—Ámbito de Competencia. La auditoría interna dará trámite únicamente a aquellas denuncias que versen sobre posibles hechos irregulares e ilegales cometidos por los funcionarios municipales, o funcionarios de comités u organizaciones a las que la municipalidad les transfiera fondos públicos.

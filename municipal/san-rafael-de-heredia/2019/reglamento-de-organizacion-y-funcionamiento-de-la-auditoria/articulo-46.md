@@ -1,0 +1,1 @@
+Artículo 46.—Fundamentación del acto de desestimación de la denuncia. La desestimación y consecuente archivo de la denuncia se realizará mediante un acto motivado y deberá quedar debidamente respaldada conforme lo indique la directriz creada en la auditoría interna para estos efectos.

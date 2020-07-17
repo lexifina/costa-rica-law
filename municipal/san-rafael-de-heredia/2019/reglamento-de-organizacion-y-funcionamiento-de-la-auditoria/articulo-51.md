@@ -1,0 +1,1 @@
+Artículo 51.—La auditoría interna deberá emitir los lineamientos para la autorización y cierre de libros que deben ser conocidos por los funcionarios de la auditoría interna y por los usuarios del servicio.

@@ -1,0 +1,2 @@
+Artículo 40.—Confidencialidad. La identidad del denunciante será confidencial durante todo el proceso de atención de la denuncia y aun concluido el proceso, según la normativa vigente establecida en la Ley General de Control Interno y en la Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública.
+La información contenida en el expediente de atención de la denuncia, será calificada como confidencial, excepto para las partes involucradas, las cuales tendrán libre acceso a todos los documentos y las pruebas que existan en el expediente.

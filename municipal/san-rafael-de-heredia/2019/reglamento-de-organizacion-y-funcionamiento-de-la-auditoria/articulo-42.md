@@ -1,0 +1,1 @@
+Artículo 42.—La denuncia verbal. El denunciante comparecerá personalmente en las oficinas de la auditoría interna, y se tomará nota de la presunta situación irregular o ilegal, y se le solicitará cumplir con los requisitos de la denuncia escrita, en la medida de sus posibilidades. Si el denunciante no firma la denuncia, se valorará como una denuncia anónima.
