@@ -14,3 +14,4 @@ Reglamento Técnico: RTCR: 494-2018. Textiles y productos textiles. ropa usada. 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-07-17 | la propia norma |
+| 2 | 2020-07-17 | Decreto Ejecutivo 41784 (2019-06-04) |
