@@ -34,3 +34,5 @@ y) Los vehículos de las personas que requieran trasladarse estrictamente con oc
 (Así reformado el inciso anterior por el artículo 3° del decreto ejecutivo N° 42373 del 29 de mayo del 2020)
 z) Los vehículos de las personas que requieran trasladarse estrictamente con ocasión de la realización de la prueba de manejo, debidamente acreditado con el comprobante de matrícula emitido por el sistema de citas de la Dirección General de Educación Vial.”
 (Así adicionado el inciso anterior por el artículo 3° del decreto ejecutivo N° 42373 del 29 de mayo del 2020)
+aa) Los vehículos de las personas que estrictamente requieran trasladarse al Aeropuerto Internacional Juan Santamaría para salir del país o para recoger a una persona que ingrese al territorio nacional bajo los vuelos habilitados para tal efecto, debidamente acreditado con el tiquete de vuelo personal o de la persona correspondiente que se vaya a recoger.
+(Así adicionado el inciso anterior por el artículo 3° del decreto ejecutivo N° 42482 del 17 de julio del 2020)
