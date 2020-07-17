@@ -1,7 +1,10 @@
 Artículo 3º.—Mecánica de participación. La mecánica de participación consiste en activar a través del App JPS A SU ALCANCE al menos 2 fracciones de Lotería Popular o Lotería Nacional de los sorteos a realizarse del martes 09 de junio del 2020 y hasta el sorteo del martes 22 de setiembre del 2020.
 No participan de esta promoción los funcionarios de la Junta de Protección Social, los miembros de Junta Directiva ni los vendedores autorizados de la Junta de Protección Social que se encuentren activos en los sistemas institucionales. (Estado activo, es el estado que indica que un vendedor puede retirar las loterías).
-Requisitos para activación en App JPS A SU ALCANCE:
-Las personas que nunca hayan activado por la App JPS A SU ALCANCE, deberán:
+Las personas, que adquieran sus fracciones por medio del canal de distribución www.jpsenlinea.com también participarán de esta promoción activando sus fracciones en el App JPS A SU ALCANCE, para lo cual deberán escanear el código datamatrix de cada fracción directamente desde la pantalla de su computadora, o bien, imprimir el comprobante de la compra y escanear cada una de las fracciones, de igual forma, posicionando la cámara en cada uno de los códigos de las fracciones adquiridas.
+Las personas que accedan al canal de distribución, desde un teléfono celular para realizar su compra y a su vez deseen activar sus fracciones en el App JPS A SU ALCANCE, podrán desde otro teléfono celular abrir el app y escanear cada uno de los códigos de sus fracciones adquiridas desde la pantalla del teléfono celular por medio del cual realizó la compra.
+Las personas que adquieran sus fracciones por medio del nuevo canal de distribución deberán realizar sus activaciones en el App JPS A SU ALCANCE a su nombre, es decir, no podrán realizar sus activaciones a nombre de otra persona, por cuanto, en caso de salir favorecidas, al momento de validar las fracciones estas aparecerán a nombre de quien realizó la compra por este medio y el premio correspondiente se cancelará a nombre de la persona que compró las fracciones por ese medio electrónico.
+Los funcionarios de la Junta de Protección Social, los miembros de su Junta Directiva así como vendedores autorizados que se encuentren en estado activo que compren lotería a través del nuevo canal de distribución, no podrán activar sus fracciones a nombre de otra persona pues no podría validar la participación en caso de resultar ganador pues el comprobante de compra electrónico estará a nombre de otra persona.
+Requisitos para activación en App JPS A SU ALCANCE: Las personas que nunca hayan activado por la App JPS A SU ALCANCE, deberán:
 1. Descargar la aplicación en la tienda PlayStore de Google o Apple Store.
 2. Registrarse y completar una única vez el formulario de inscripción.
 3. Una vez registrados, nada más con su cédula y contraseña podrán ingresar a la parte de activaciones.
@@ -11,3 +14,4 @@ Una persona solo podrá realizar la activación de un máximo de 50 fracciones p
 El participante está en la obligación de registrar información veraz y exacta y es el único responsable de la veracidad y exactitud de los datos que registre para participar.
 Activación para el programa Rueda de La Fortuna:
 Se aclara que la lotería que se active para participar de esta promoción puede ser activada además para participar en el juego Cilindro Millonario en el caso de Lotería Nacional y para el juego Dadomanía, para el caso de la Lotería Popular, del programa Rueda de La Fortuna.
+(Así reformado y publicado en La Gaceta N° 174 del 17 de julio del 2020)
