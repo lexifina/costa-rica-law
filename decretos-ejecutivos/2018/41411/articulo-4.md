@@ -1,0 +1,1 @@
+Artículo 4°- Se derogan los artículos 23 y 24 del Decreto Ejecutivo Nº 17624-S del 26 de junio· de 1987 "Reglamento Vigilancia Epidemiológica y Control Enfermedades Transmisibles", publicado en La Gaceta No. 131 del 13 de julio de 1987.
