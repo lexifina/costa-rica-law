@@ -1,0 +1,8 @@
+REGLAMENTO DE ORGANIZACIÓN Y FUNCIONAMIENTO
+DE LA AUDITORÍA INTERNA DE POPULAR SOCIEDAD
+AGENCIA DE SEGUROS S.A.
+CAPÍTULO I
+Disposiciones generales. Este capítulo describe las condiciones y objetivos del reglamento, así como las base o normativa que rige su funcionamiento. El capítulo constituye el conjunto de instrucciones que regularán el accionar del Auditor Interno y de los trabajadores de la Auditoría, así como del personal de Popular Sociedad Agencia de Seguros S.A., en lo que compete a su relación con la Auditoría Interna.
+Artículo 1. — Fundamento y propósito.
+Este Reglamento tiene como fin regular la organización y funcionamiento de la Auditoría Interna de Popular Sociedad Agencia de Seguros S.A., establecer su naturaleza, ubicación y estructura organizativa, ámbito de acción, competencias, relaciones y coordinaciones, normas sobre sus atributos, normas sobre el desempeño y aspectos relacionados con las actividades propias y fundamentales de su competencia funcional.
+Se fundamenta en la Ley General de Control Interno N° 8292, en adelante se identificará con las siglas LGCI, en la Ley Orgánica de la Contraloría General de la República N° 7428, en adelante se identificará con las siglas CGR; Normas Generales de Auditoría para el Sector Público (R-DC-64-2014), Acuerdo SUGEF 16-16, Reglamento sobre Gobierno Corporativo, Lineamientos sobre Gestiones que Involucran a la Auditoría Interna Presentadas ante la Contraloría General de la República (R-DC-83-2018) y las Directrices Generales Relativas al Reglamento de Organización y Funcionamiento de las Auditorías Internas del Sector Público (D-2-2006-CO-DFOE-DAGJ) y toda otra normativa que se publique a futuro y sea de alcance para la Auditoría Interna.

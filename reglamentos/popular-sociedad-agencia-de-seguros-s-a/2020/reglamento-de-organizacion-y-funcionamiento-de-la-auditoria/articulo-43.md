@@ -1,0 +1,4 @@
+CAPÍTULO VIII
+Atención de denuncias. El capítulo define el trámite que se le debe brindar a las denuncias interpuesta ante la Auditoría Interna, su manejo, confidencialidad, requisitos para realizar denuncias, la aceptación o rechazo y la custodia de los documentos de las denuncias. Este capítulo tiene sustento en lo dictado en el inciso c) del artículo 22 de la LGCI y en la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública y su respectivo reglamento.
+Artículo 43. — Trámite de denuncias.
+La Auditoría Interna dará trámite a aquellas denuncias por hechos ilegales o irregulares que tengan relación con el uso y manejo de fondos públicos o que tenga una afectación de la Hacienda Pública y lo establecido en el Reglamento a la Ley Contra la Corrupción o Enriquecimiento ilícito en la Función Pública.

@@ -1,0 +1,4 @@
+Artículo 56. — Vigencia.
+Rige a partir de su publicación en el diario oficial La Gaceta.
+Este reglamento fue aprobado mediante el acuerdo número JDPS-287-Acd ,Acuerdo firme -215-2020-Art-5b por la Junta Directiva de Popular Sociedad Agencia de Seguros S.A., en Sesión Ordinaria No. 287 celebrada el jueves 21 de mayo del 2020.
+“La presente publicación del Reglamento de Organización y Funcionamiento de la Auditoría Interna de Popular Sociedad Agencia de Seguros S.A., se realiza en acato a lo establecido por la Ley General de Control Interno N° 8292, artículo N° 23 y la Resolución R-DC-119-2009 “Normas Generales de Auditoría para el Sector Publico emitido por la Contraloría General de la República y los Lineamientos sobre Gestiones que Involucran a la Auditoría Interna Presentadas ante la CGR.

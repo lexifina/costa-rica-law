@@ -1,0 +1,3 @@
+Artículo 37. — Relación de hechos.
+El informe de Relación de Hechos compila una serie de hechos presuntamente irregulares, acciones u omisiones, que se encuentran ligados por un nexo de causalidad de una falta y a un presunto responsable. La Relación de Hechos se pone en conocimiento del jerarca o titular subordinado correspondiente, o de una autoridad competente para que valore la procedencia de la apertura de un procedimiento administrativo o cualquier otra acción que considere pertinente.
+El marco básico para que la Auditoría Interna lleve a cabo sus labores de investigación de presuntos hechos irregulares está contemplado en los “Lineamientos Generales para el Análisis de Presuntos Hechos Irregulares (R-DC-102-2019) emitido por la CGR.”

@@ -1,0 +1,9 @@
+CAPÍTULO V
+Servicios de auditoría, programa de aseguramiento y normas sobre desempeño. El capítulo está referido a determinar los servicios que brinda la Auditoría, así como de establecer una evaluación periódica de la visión del trabajo llevado a cabo y los criterios de calidad con los cuales puede evaluarse el desempeño de los servicios de la Auditoría Interna. Todo esto a la luz de lo dictado en los artículos 22 de la LGCI, directrices Nº D-2-2004 y D-2-2008-CO-DFOE y el Código de Conducta del Conglomerado Financiero del Banco Popular.
+Artículo 29. — Servicios de Auditoría.
+Como parte de las competencias de los servicios que presta la Auditoría Interna, estos se clasifican en:
+a) Servicios de auditoría
+b) Servicios preventivos
+Los servicios de auditoría son los referidos a los distintos tipos de auditoría, incluidos los estudios especiales. Los servicios preventivos incluyen la asesoría, la advertencia y la autorización de libros. Los resultados derivados de estos servicios preventivos se comunican por escrito mediante oficios u otros medios que la auditoría considere pertinente y el documento respectivo no se rige por el trámite del informe que está reservado para los servicios de auditoría, como lo prescribe la LGCI.
+Tanto la asesoría como la advertencia se dan en conexión y sobre la marcha de un estudio en proceso y no son vinculantes para el que las recibe, cuya decisión queda bajo su entera responsabilidad. Estos servicios se brindan sin que se comprometa su independencia y objetividad en el desarrollo posterior de las propias labores de la actividad.
+Los servicios que presta la auditoría interna deben cumplirse con pericia y con el debido cuidado profesional. En caso de limitaciones relacionadas con la pericia, se deben gestionar el asesoramiento y la asistencia pertinentes.

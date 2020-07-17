@@ -1,0 +1,4 @@
+CAPÍTULO X
+Disposiciones finales. Estas disposiciones incluyen las sanciones establecidas a todos los trabajadores de Popular Sociedad Agencia de Seguros S.A., por el incumplimiento, infracción o violación de las regulaciones contenidas en este reglamento, así como la entrada de vigencia de este.
+Artículo 55. — Sanciones.
+El incumplimiento injustificado de las regulaciones contenidas en este reglamento será causal de responsabilidad administrativa para el Auditor Interno y los trabajadores de la Auditoría Interna, titulares subordinados y trabajadores de Popular Sociedad Agencia de Seguros S.A., de conformidad con lo establecido en el Capítulo V de la Ley General de Control Interno. La determinación de la responsabilidad y aplicación de las sanciones administrativas correspondiente al órgano competente se regirá por la normativa establecida al efecto y por el Reglamento Interno de Trabajo de Popular Sociedad Agencia de Seguros S.A.

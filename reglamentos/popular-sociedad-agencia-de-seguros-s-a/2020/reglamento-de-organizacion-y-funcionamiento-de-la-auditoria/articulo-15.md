@@ -1,0 +1,2 @@
+Artículo 15. — Remoción o suspensión.
+El Auditor solo podrá ser suspendido o removido de su cargo por justa causa y por decisión emanada de la Junta Directiva de Popular Sociedad Agencia de Seguros S.A., previa formación de expediente, con oportunidad suficiente de audiencia y defensa en su favor, así como dictamen previo favorable de la CGR, todo de conformidad con lo establecido en el artículo 15 de la LOCGR Nº 6872 y lineamiento 3. de los Lineamientos sobre Gestiones que Involucran a la Auditoría Interna presentadas ante la CGR.

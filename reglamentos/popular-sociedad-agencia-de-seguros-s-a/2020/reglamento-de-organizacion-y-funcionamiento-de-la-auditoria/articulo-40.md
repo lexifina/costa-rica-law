@@ -1,0 +1,4 @@
+CAPÍTULO VII
+Seguimiento a recomendaciones: El Auditor Interno debe establecer, mantener y velar porque se aplique un proceso de seguimiento de las recomendaciones u observaciones derivadas de los servicios o revisiones de la Auditoría Interna, que asegure que las acciones establecidas por las instancias competentes se hayan implementado eficazmente y dentro de los plazos definidos por la administración. Lo definido en este capítulo tiene como sustento las “Normas Generales de Auditoría para el Sector Público (R-DC-064-2014” y las “Directrices Generales Relativas al Reglamento de Organización y Funcionamientos de las Auditorías Internas del Sector Público”.
+Artículo 40. — Seguimiento.
+El proceso de seguimiento debe realizar conforme lo establecido en la Norma 206. “Seguimiento” de las “Normas Generales de Auditoría para el Sector Público” (R-DC-064-2014) y a la programación establecida.

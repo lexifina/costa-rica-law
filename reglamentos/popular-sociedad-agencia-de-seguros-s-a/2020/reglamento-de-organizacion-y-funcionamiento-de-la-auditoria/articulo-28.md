@@ -1,0 +1,3 @@
+Artículo 28. — Asesoría y asistencia técnica.
+El Auditor Interno y los auditores contarán con la asistencia: técnica, jurídica y asesoría de profesionales de la Sociedad, cuando a consecuencia del ejercicio de sus funciones resulten parte en un proceso judicial conforme lo dispuesto en el artículo 26 de la LGCI.
+De ser necesario, a juicio del trabajador de Auditoría que requiera de la asistencia o asesoría jurídica, el Auditor Interno podrá solicitar a la Junta Directiva que autorice la contratación externa de un profesional en Derecho cuya probada formación profesional y experiencia garanticen la mejor atención del asunto objeto de controversia judicial.

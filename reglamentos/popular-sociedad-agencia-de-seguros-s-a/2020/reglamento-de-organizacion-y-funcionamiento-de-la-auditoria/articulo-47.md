@@ -1,0 +1,2 @@
+Artículo 47. — Respecto a las denuncias.
+La Auditoría Interna no le dará tramite a denuncias anónimas conforme lo establecido en el Artículo 13 del Reglamento a la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública. En casos excepcionales podrá abrirse de oficio una investigación preliminar, cuando con esta se reciban elementos de prueba que den méritos para ello. En caso contrario dispondrá su archivo sin más trámite.

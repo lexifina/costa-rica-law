@@ -1,0 +1,2 @@
+Artículo 14. — Vacaciones.
+Las vacaciones, permisos y otros asuntos del Auditor Interno deberán ser conocidos y aprobados por la Junta Directiva de Popular Sociedad Agencia de Seguros S.A. Sin embargo, en los casos en que dichos permisos o vacaciones no superen los 3 días hábiles, será suficiente la comunicación previa a la Gerencia General y Talento Humano y la coordinación pertinente con la presidencia de la Junta Directiva de Popular Sociedad Agencia de Seguros S.A.
