@@ -1,0 +1,1 @@
+Artículo 5º—Disposición final. Para la ropa usada importada o de origen nacional que no vaya a ser comercializada con base en lo dispuesto en el artículo anterior, se permite como método de disposición final la coincineración, el coprocesamiento o el envío a un relleno sanitario.

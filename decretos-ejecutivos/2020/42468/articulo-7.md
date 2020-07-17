@@ -1,0 +1,1 @@
+Artículo 7º—Medidas Especiales. En caso de contravenirse las disposiciones del presente reglamento técnico, se aplicarán las medidas especiales contempladas en los artículos 355 al 366 de la Ley Nº 5395 de 30 de octubre de 1973 “Ley General de Salud”.
