@@ -1,0 +1,5 @@
+ARTÍCULO 12
+DENEGACIÓN DE BENEFICIOS
+1. Una Parte podrá denegar los beneficios del presente Acuerdo a un inversionista de la otra Parte que sea una persona jurídica de esa otra Parte y a las inversiones de dicho inversionista, si dicha empresa es propiedad de o está controlada por una persona o entidad jurídica de un tercer Estado y la Parte que la deniegue los beneficios de este Acuerdo adopta o mantiene medidas en relación con dicho tercer Estado o con una persona de dicho tercer Estado, que prohíben transacciones con esa persona jurídica o que serían violadas o eludidas si los beneficios del presente Acuerdo se otorgaran a esa persona jurídica o a sus inversiones.
+2. Una Parte podrá denegar los beneficios del presente Acuerdo a un inversionista de otra Parte que es una persona jurídica de esa otra Parte y a las inversiones de ese inversionista, si la persona jurídica no tiene actividades comerciales sustanciales en el territorio de la otra Parte y las personas de un tercer Estado, o de la Parte que deniega, son propietarias o controlan la persona jurídica.
+3. Antes de denegar los beneficios, la Parte que deniega notificará a la otra Parte.
