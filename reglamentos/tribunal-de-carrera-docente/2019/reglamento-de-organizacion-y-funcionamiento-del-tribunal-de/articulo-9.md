@@ -1,0 +1,1 @@
+Artículo 9º—De la Integración del Tribunal. La persona representante del Ministerio de Educación Pública, es quien presidirá el Tribunal y en su seno por mayoría simple, uno de los dos restantes representantes, ejercerá como secretario o secretaria, dicha designación será anual y se realizará en la primera sesión de cada año.

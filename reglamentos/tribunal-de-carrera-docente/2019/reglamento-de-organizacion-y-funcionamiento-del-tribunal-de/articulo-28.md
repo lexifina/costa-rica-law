@@ -1,0 +1,1 @@
+Artículo 28.—Inhibición. En los procesos en que una persona representante del Tribunal estuviera impedido conforme las causales establecidas en esta normativa, deberá inhibirse, para que las otras dos personas representantes del Tribunal, sin trámite alguno, lo declaren separado y procedan a reponerlo conforme se establece en este Reglamento.

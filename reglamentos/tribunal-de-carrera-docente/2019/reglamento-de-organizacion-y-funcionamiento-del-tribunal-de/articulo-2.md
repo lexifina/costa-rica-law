@@ -1,0 +1,1 @@
+Artículo 2º—Objeto. El presente Reglamento regula la organización y las funciones del Tribunal de la Carrera Docente, siendo sus disposiciones de observancia obligatoria, correspondiéndole a la Jefatura administrativa y la persona que ocupe el cargo de Presidente del Tribunal, dentro de sus facultades vigilar su debido cumplimiento.

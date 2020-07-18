@@ -1,0 +1,1 @@
+Artículo 33.—Recibido el expediente administrativo por parte del Asesor(a) Legal, tendrá un plazo de hasta tres días hábiles, que se contará a partir del día siguiente de la asignación del expediente administrativo para realizar el estudio preliminar del referido expediente.

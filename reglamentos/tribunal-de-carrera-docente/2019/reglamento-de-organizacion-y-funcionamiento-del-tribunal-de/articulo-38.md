@@ -1,0 +1,2 @@
+Artículo 38.—Una vez presentado y expuesto el resumen del expediente administrativo por parte del asesor(a) legal en la sesión del Tribunal, si el caso no presenta mayor complejidad, se procederá a deliberar y discutir, y posteriormente se someterá a votación.
+En caso de que de la exposición y resumen del expediente administrativo se determine que se trata de un caso complejo, se pospondrá la discusión y votación para la sesión inmediata siguiente.

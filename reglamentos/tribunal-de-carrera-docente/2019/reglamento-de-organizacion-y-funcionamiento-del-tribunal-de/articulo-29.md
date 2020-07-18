@@ -1,0 +1,1 @@
+Artículo 29.—Nulidad de votación. Aparte de las relativas a la inhibición o separación, es nula cualquier resolución que dictaré el Tribunal cuando concurra una persona representante con impedimento, siempre que el motivo conste en el expediente respectivo o sea del conocimiento de la persona representante.

@@ -1,0 +1,1 @@
+Artículo 18.—El Tribunal debe contar con un programa que resguarde en forma precisa, actualizada y segura una base de datos en la que se ingresen todas las notificaciones efectuadas por los diversos medios: en forma personal, por correo electrónico o fax.

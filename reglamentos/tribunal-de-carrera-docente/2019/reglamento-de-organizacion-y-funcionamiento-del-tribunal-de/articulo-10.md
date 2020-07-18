@@ -1,0 +1,1 @@
+Artículo 10.—Duración. Las personas representantes del Tribunal durarán en sus cargos dos años y podrán ser reelectos, con excepción del representante de las organizaciones de educadores y educadoras, según se establece en el artículo 77 del Estatuto de Servicio Civil.

@@ -1,0 +1,1 @@
+Artículo 34.—El estudio efectuado por el asesor(a) legal deberá ser, primeramente, por la forma, realizando un análisis de los aspectos y requisitos formales, tales como: competencia, legitimación activa y pasiva, plazos de prescripción, litispendencia, cosa juzgada; y una vez cumplida esa primera fase y en caso de que proceda, se realizará un estudio de fondo del asunto.

@@ -1,0 +1,1 @@
+Artículo 7º—La jornada de trabajo será la legalmente establecida, no obstante, cuando por la naturaleza del Tribunal, sus atribuciones y competencias se requiere extender las horas laborales, éstas le serán reconocidas al personal como tiempo extraordinario de servicio.

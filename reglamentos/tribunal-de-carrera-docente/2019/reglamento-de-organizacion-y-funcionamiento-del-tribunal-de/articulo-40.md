@@ -1,0 +1,1 @@
+Artículo 40.—El acto final deberá dictarse con las formalidades que exige el ordenamiento jurídico, lo establecido por en el Estatuto de Servicio Civil, el Reglamento de la Carrera Docente, el Código Procesal Civil y las demás disposiciones aplicables, dentro de los plazos que expresamente se señalen.
