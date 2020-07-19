@@ -14,3 +14,4 @@ Manual de políticas y procedimientos (reincorporaciones al COLYPRO) ( versión 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-09-25 | la propia norma |
+| 2 | 2020-07-19 | Reglamento 0 (2020-07-19) |
