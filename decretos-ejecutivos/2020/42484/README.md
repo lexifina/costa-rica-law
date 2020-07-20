@@ -14,3 +14,4 @@ Restricción vehicular con franja horaria diferenciada en determinados cantones 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-07-20 | la propia norma |
+| 2 | 2020-07-20 | Decreto Ejecutivo 42485 (2020-07-19) |
