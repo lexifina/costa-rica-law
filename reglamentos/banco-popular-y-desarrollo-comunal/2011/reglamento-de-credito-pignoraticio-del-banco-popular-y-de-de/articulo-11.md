@@ -1,1 +1,2 @@
-Artículo 11.-Custodia de la garantía: La Tesorería de cada oficina, o la persona asignada para los efectos, será responsable de la custodia de las garantías.
+Artículo 11.—Custodia de la garantía:
+El Banco custodiará las garantías pignoradas aplicando los procedimientos y normas que al efecto determinará el Área de Pignoración, con el aval de la Dirección de Banca Social y/o Banca de Personas.

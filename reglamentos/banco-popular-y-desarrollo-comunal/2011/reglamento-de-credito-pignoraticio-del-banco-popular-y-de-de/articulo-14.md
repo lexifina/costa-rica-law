@@ -1,1 +1,2 @@
-Artículo 14.-Verificación del estado de la garantía: El deudor podrá solicitar en cualquier momento que se le muestren sus bienes, lo cual se hará contra la presentación del comprobante respectivo, el pago de comisión y un documento de identidad.
+Artículo 14.—Verificación del estado de la garantía:
+El deudor podrá solicitar en cualquier momento que se le muestren sus bienes, lo cual se hará contra la presentación del comprobante respectivo, el pago de comisión y un documento de identidad.

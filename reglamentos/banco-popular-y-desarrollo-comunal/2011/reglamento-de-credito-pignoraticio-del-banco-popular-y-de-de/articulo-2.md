@@ -1,1 +1,2 @@
-Artículo 2°-De las personas sujetas de crédito: Cualquier persona física mayor a 18 años, costarricense o residente debidamente identificada, podrá ser sujeta de crédito siempre y cuando no tenga operaciones morosas, en cobro judicial, incobrables, o adjudicadas con saldo al descubierto, ello sin perjuicio de las disposiciones y jurisprudencia aplicable.
+Artículo 2º—De las personas sujetas de crédito:
+Cualquier persona física mayor a 18 años, costarricense o residente debidamente identificada, podrá ser sujeta de crédito siempre y cuando no tenga operaciones morosas, en cobro judicial, incobrables, o adjudicadas con saldo al descubierto, ello sin perjuicio de las disposiciones y jurisprudencia aplicable.

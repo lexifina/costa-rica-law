@@ -1,2 +1,3 @@
-Articulo 19.-Del lugar, fecha y hora del remate: A la fecha y hora señalada para el primer remate, la correduría jurada anunciará una a una las operaciones relacionadas con los bienes a rematar y su base, y durante el transcurso del remate, anunciará las ofertas de compra que se vayan recibiendo.
-La mejor oferta deberá ser anunciada tres veces. y de no haber mejora, la correduría jurada dará por rematados los articulas e informará a la vez el número de identificación de la persona adjudicataria.
+Artículo 19.—Del lugar, fecha y hora del remate:
+A la fecha y hora señalada para el primer remate, la correduría jurada anunciará una a una las operaciones relacionadas con los bienes a rematar y su base, y durante el transcurso del remate, anunciará las ofertas de compra que se vayan recibiendo.
+La mejor oferta deberá ser anunciada tres veces, y de no haber mejora, la correduría jurada dará por rematados los artículos e informará a la vez el número de identificación de la persona adjudicataria.
