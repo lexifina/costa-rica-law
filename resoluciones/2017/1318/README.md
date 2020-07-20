@@ -14,3 +14,4 @@ Lineamiento para las entidades supervisadas por la SUGEF establecidas en el art�
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-05-24 | la propia norma |
+| 2 | 2020-07-20 | Resolución 2462 (2020-07-20) |
