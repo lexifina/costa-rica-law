@@ -1,1 +1,0 @@
-Artículo 9º—Este Reglamento sustituye al aprobado por la Junta Directiva del Consejo Nacional de Rehabilitación y Educación Especial en Sesión Ordinaria Nº 743, celebrada el 26 de junio del 2003, Acuerdo JD-062-03, publicado en el Diario Oficial La Gaceta Nº 180 del 19 de setiembre del 2003.

@@ -1,1 +1,0 @@
-Artículo 4º—La garantía que debe de rendir el funcionario obligado para ello, será por medio de una póliza de fidelidad suscrita con el Instituto Nacional de Seguros, con cargo a su propio peculio. Dicha póliza será a favor del Consejo Nacional de Rehabilitación y Educación Especial.
