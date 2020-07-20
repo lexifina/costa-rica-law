@@ -13,3 +13,4 @@ Las audiencias orales no se suspenden cuando opera una prescripción o caducidad
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-04-30 | la propia norma |
+| 2 | 2020-07-20 | Circular 153 (2020-07-20) |
