@@ -50,3 +50,4 @@ Reglamento para la Calificación de Deudores
 | 35 | 2020-04-13 | Reglamento 1569 (2020-04-13) |
 | 36 | 2020-04-27 | Reglamento 1572 (2020-04-27) |
 | 37 | 2020-06-01 | Reglamento 1579 (2020-06-01) |
+| 38 | 2020-07-20 | Reglamento 1593 (2020-07-20) |
