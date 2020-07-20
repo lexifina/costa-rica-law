@@ -1,16 +1,9 @@
-Artículo 3º—REQUISITOS PARA TENER POR CUMPLIDO EL ESTADO DE NECESIDAD DE AMPARO ECONOMICO INMEDIATO. Para ser pensionado del Régimen no Contributivo, se deberá acreditar por parte de la Administración, que el solicitante se encuentra en estado de necesidad de amparo económico inmediato. Para ello, debe cumplir los siguientes aspectos:
-a. No ser pensionado de algún régimen contributivo o no contributivo existente.
-b. El solicitante debe encontrarse en condición de pobreza o pobreza extrema, según la Ficha de
-Información Social (FIS) o la Ficha de integración Social del Sistema Nacional de Información y Registro Único de Beneficiarios (SINIRUBE), -las cuales serán revisadas de oficio por la Administración-. En caso de que el solicitante no cuente con ninguna de estas fichas, la Administración deberá determinar si tiene insatisfecha alguna de sus necesidades básicas (salud, alimentación, vivienda, vestido o servicios públicos).
-c. El ingreso por persona del grupo familiar del solicitante debe ser inferior o igual al indicador de la línea de pobreza nacional establecido por el Instituto Nacional de Estadística y Censos (INEC), o línea de pobreza familiar ampliada, según corresponda.
-El indicador de la línea de pobreza familiar ampliada (LPFA) se utilizará para aquellos casos en que el solicitante declare y demuestre, mediante prueba fehaciente, que el grupo familiar tiene gastos por necesidades especiales. Dicho indicador se construye con el monto de la línea de pobreza total del grupo familiar vigente más los gastos por necesidades especiales. E] resultado del indicador LPFA que se obtenga para cada situación particular, se comparará con el ingreso total mensual del grupo familiar.
-Si el resultado de este último es inferior o igual a la LPFA, se tendrá por cumplido este requisito.
-Grupo familiar:
-Corresponde a la familia nuclear, conyugal o simple y comprende a los progenitores (padres) y sus hijos que no han logrado independencia económica y se encuentran solteros. incluye aquellos miembros ausentes por razones laborales o de salud.
-Bienes muebles o inmuebles:
-En caso de que el solicitante tenga inscritos bienes muebles o inmuebles, derechos de usufructo en su condición personal o a nombre de una persona jurídica en que tenga participación en el capital social, deberá demostrar los ingresos que éstos le generen, los cuales la Administración deberá tomar en cuenta para determinar los ingresos de[ grupo familiar y calcular el ingreso por persona.
-Solicitantes extranjeros:
-Los solicitantes extranjeros deberán acreditar, mediante declaración jurada u otro mecanismo estrictamente necesario y pertinente que establezca la Administración, los ingresos provenientes del extranjero que perciba su grupo familiar. Si la Administración determina que lo enunciado en una declaración jurada es falso, ejecutará los procedimientos administrativos y procesos judiciales establecidos al efecto para anular el beneficio y exigir las responsabilidades legales correspondientes.
-d. Para aquellos solicitantes que hayan cumplido con los requisitos anteriores y que sean
-asalariados o trabajadores independientes, registrados como tales ante la Caja, la eficacia de este beneficio se tendrá una vez que los asalariados se encuentren cesantes, y en caso de los trabajadores independientes, a partir de su exclusión ante la Caja.
-(Así reformado en sesión N° 8907 del 25 de mayo de 2017)
+Artículo 3º—Condiciones para tener por cumplido el estado de necesidad de amparo económico inmediato Para ser pensionado del Régimen No Contributivo de Pensiones, se deberá acreditar por parte de la Administración, que el solicitante se encuentra en estado de necesidad de amparo económico inmediato. Para ello, debe cumplir con lo siguiente:
+a. No tener una pensión contributiva o no contributiva de vejez o invalidez. En aquellos casos de solicitantes que cuenten con una pensión por muerte, el monto de la misma no deberá ser igual o mayor a la pensión del Régimen No Contributivo, vigente al momento de presentación de la solicitud.
+b. El solicitante debe encontrarse en condición de pobreza o pobreza extrema, según la Ficha de Inclusión Social del Sistema Nacional de Información y Registro Único de Beneficiarios (SINIRUBE), -la cual será verificada de oficio por la Administración-. En caso de que el solicitante no cuente con esta ficha, antes de presentar la solicitud de pensión deberá requerirle al IMAS la elaboración de la misma.
+Los documentos que debe presentar el solicitante de pensión son los siguientes:
+• Solicitud de Pensión con carácter de declaración jurada, debidamente llena.
+• Documento de identidad según corresponda.
+• Cuenta bancaria IBAN del solicitante o representante legal.
+Si la Administración determina que lo enunciado en una solicitud de pensión, -la cual tiene carácter de declaración jurada-, es falso, ejecutará los procedimientos administrativos y procesos judiciales establecidos al efecto para anular el beneficio y exigir las responsabilidades legales correspondientes.
+(Así reformado en sesión N° 9112 del 20 de julio del 2020)

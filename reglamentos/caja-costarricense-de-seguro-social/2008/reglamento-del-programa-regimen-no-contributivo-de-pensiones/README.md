@@ -20,3 +20,4 @@ Reglamento del Programa Régimen no Contributivo de Pensiones
 | 5 | 2012-09-27 | Reglamento 8602 (2012-09-27) |
 | 6 | 2013-11-20 | SINALEVI (sin norma nombrada) |
 | 7 | 2017-05-25 | Reglamento 8907 (2017-05-25) |
+| 8 | 2020-07-20 | Reglamento 9112 (2020-07-20) |
