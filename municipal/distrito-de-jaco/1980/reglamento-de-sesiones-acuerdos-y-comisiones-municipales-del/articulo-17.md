@@ -1,1 +1,0 @@
-Artículo 17.—Los dictámenes de las comisiones serán incluidos en la Orden del Dia siguiendo el orden en que fueron presentados a la Secretaría, para este efecto la secretaría al recibir los dictámenes consignarán al pie de ellos la hora y fecha de presentación.

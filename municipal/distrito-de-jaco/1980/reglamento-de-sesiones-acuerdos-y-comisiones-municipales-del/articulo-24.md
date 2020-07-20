@@ -1,1 +1,0 @@
-Artículo 24.—Todo acuerdo se tomará previo estudio, informe de la comisión o el Alcalde. Y después de considerarse suficientemente discutido el asunto. El dictamen de comisión podrá dispensarse, en casos urgentes si el Concejo lo acuerda por simple mayoría de votos.
