@@ -1,4 +1,5 @@
 CIRCULAR N° 86-2020
+(Nota de Sinalevi: Mediante sesión N° 42-2020 del 20 de julio del 2020 publicada en el Boletín Judicial N° 141-2020 del 23 de julio del 2020 mediante circular N° 153-2020 del 20 de julio del 2020 se establece que con el fin de que se tenga claridad sobre el funcionamiento de la jurisdicción penal (juzgados penales y penal juvenil, tribunales de juicio, secciones de flagrancia, de apelación de sentencia penal, ejecución de la pena de adultos y de juvenil y la Sala de Casación Penal), se mantiene la vigencia de la presente norma y deben ser consideradas las circulares 102-2020 (protocolo de videoconferencias), 61-2020 (sistema de medición), 86-2020 de penal juvenil, 88-2020 (las audiencias orales no se suspenden en caso de una prescripción), 67-2020 (organización de los despachos), 58-2020 (atención de casos de personas privadas de libertad))
 ASUNTO: Aplicación de las circulares números 35, 37, 44, 46, 53, 57, 58, 60, 61, 63, 66, 67 y 72, todas del 2020 y lineamientos para la materia Penal Juvenil.
 A TODOS LOS DESPACHOS QUE CONOCEN MATERIA
 PENAL JUVENIL

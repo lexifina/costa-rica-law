@@ -13,3 +13,4 @@ Aplicación de las circulares números 35, 37, 44, 46, 53, 57, 58, 60, 61, 63, 6
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-04-29 | la propia norma |
+| 2 | 2020-07-20 | Circular 153 (2020-07-20) |
