@@ -16,3 +16,4 @@ Instrumento de medición a utilizar por los Juzgados, Tribunales Penales, Seccio
 | 2 | 2020-04-08 | Circular 67 (2020-04-08) |
 | 3 | 2020-04-29 | Circular 85 (2020-04-29) |
 | 4 | 2020-04-29 | Circular 86 (2020-04-29) |
+| 5 | 2020-07-20 | Circular 153 (2020-07-20) |
