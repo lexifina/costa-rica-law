@@ -1,4 +1,7 @@
 N° 102-2020
+(Nota de Sinalevi: Esta norma fue reiterada mediante circular N° 169-2021 del 4 de agosto de 2021 y publicada en el Boletín Judicial N° 163 del 25 de agosto de 2021)
+(Nota de Sinalevi: Mediante sesión N° 42-2020 del 20 de julio del 2020 publicada en el Boletín Judicial N° 141-2020 del 23 de julio del 2020 mediante circular N° 153-2020 del 20 de julio del 2020 se establece que con el fin de que se tenga claridad sobre el funcionamiento de la jurisdicción penal (juzgados penales y penal juvenil, tribunales de juicio, secciones de flagrancia, de apelación de sentencia penal, ejecución de la pena de adultos y de juvenil y la Sala de Casación Penal), se mantiene la vigencia de la presente norma y deben ser consideradas las circulares 102-2020 (protocolo de videoconferencias), 61-2020 (sistema de medición), 86-2020 de penal juvenil, 88-2020 (las audiencias orales no se suspenden en caso de una prescripción), 67-2020 (organización de los despachos), 58-2020 (atención de casos de personas privadas de libertad))
+(Nota de Sinalevi: La presente circular fue reiterada mediante sesión Nº 42- 2021 del 20 de mayo del 2021, publicada en el Boletín Judicial N° 115 del 16 de junio del 2021 mediante circular N° 123 del 31 de mayo del 2021)
 ASUNTO: Protocolo para la realización de audiencias orales por medios tecnológicos en materia penal, contravencional, ejecución de la pena y penal juvenil.
 A LOS DESPACHOS JUDICIALES DE PAÍS QUE CONOCEN
 MATERIA PENAL, CONTRAVENCIONAL, EJECUCIÓN
@@ -131,7 +134,6 @@ a. Se seguirán las disposiciones previstas en el Código Procesal Penal y norma
 a. La videoconferencia se regirá por las disposiciones del Código Procesal Penal, y otra normativa legal y reglamentaria concordante, así como de las circulares de Corte Plena y el Consejo Superior del Poder Judicial, en especial sobre el uso de la videoconferencia, la jurisprudencia de la Sala Constitucional y de la Sala Tercera de la Corte Suprema de Justicia, y los principios generales del proceso penal.
 8.0 Apéndice
 Apéndice 1. Diagrama de Flujo
-[imagen]
 9.0 Vigencia. Este protocolo entra en vigencia a partir de su aprobación y posterior publicación.
 De conformidad con la circular N° 67-09 emitida por la Secretaría de la Corte el 22 de junio de 2009, se comunica que en virtud del principio de gratuidad que rige esta materia, la publicación está exenta de todo pago de derechos. Publíquese una sola vez en el Boletín Judicial.
 San José, 21 de mayo de 2020.
