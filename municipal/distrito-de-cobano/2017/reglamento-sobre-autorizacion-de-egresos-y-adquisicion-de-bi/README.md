@@ -14,3 +14,4 @@ Reglamento sobre autorización de egresos y adquisición de bienes y servicios a
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-01-30 | la propia norma |
+| 2 | 2020-07-21 | Reglamento municipal 12 (2020-07-21) |
