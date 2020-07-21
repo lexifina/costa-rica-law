@@ -1,0 +1,2 @@
+Artículo 2 bis: En casos de emergencia y/o necesidad debidamente comprobadas, así como cuando el Poder Ejecutivo decrete cualquier tipo de emergencias contempladas en la Ley N° 8488 (Ley Nacional de Emergencias y Prevención del Riesgo), y conforme al Artículo N° 37 del Código Municipal, el Concejo Municipal podrá sesionar en cualquier lugar del cantón, lo cual incluye la modalidad virtual vía videoconferencia, siempre que se garanticen los principios del criterio C-241 2013 de la Procuraduría General de la República.
+(Así adicionado en sesión N° 41 del 21 de julio del 2020)
