@@ -1,0 +1,1 @@
+Artículo 5.- La ubicación por reestructuración de los puestos se confiere bajo el supuesto que los mismos ostentan la clasificación acorde con las funciones, es decir, que se encuentran debidamente actualizados, según lo establece el artículo 109 del Reglamento del Estatuto de Servicio Civil.

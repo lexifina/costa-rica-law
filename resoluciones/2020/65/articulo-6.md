@@ -1,0 +1,2 @@
+Artículo 6.- En los casos en que los titulares de los puestos afectados por lo dispuesto en la presente resolución, se encuentren disfrutando de licencia por cualquier razón o estuvieren destacados en otra institución, sus puestos serán ubicados a la nueva clasificación siempre que no se cause perjuicio al titular.
+En estos casos, debe quedar la información pertinente debidamente indicada en el informe general de ubicación por reestructuración.

@@ -1,0 +1,1 @@
+Artículo 8.- El Área de Organización del Trabajo y Compensaciones, eliminará paulatinamente del apartado de Rango de Aplicación de las Especialidades contenidas en el Manual Descriptivo de Especialidades vigente, las clases que en esta resolución son suprimidas o se mantienen bajo la condición de Transitorias.
