@@ -1,18 +1,9 @@
 TRANSITORIO II: Los ajustes a nivel de plazos y metodología para la implementación de los espacios participativos establecidos en el Reglamento, se desarrollarán de conformidad con lo establece el presenta cuadro:
-Etapa | Tema | Actividad | Duración1 1Días hábiles. | Fecha/ Periodo2 2Refiere las fechas o lapsos en los que deben de desarrollarse las actividades. | Responsables | Mecanismo
-Definición de Fondo Distrital | Comunicación y convocatoria a los Síndicos Municipales sobre el inicio del proceso y asignación de recursos | Comunicar a los Síndicos Municipales sobre el inicio del proceso de Presupuestación Pública Participativa | 1 días | 11 de agosto | Alcalde Municipal, Equipo Operativo Institucional | Presencial y Mediante oficio
-Capacitación / inducción a Concejos de Distrito y definición del cronograma de actividades | Capacitar a Concejos de Distrito sobre los procesos de Presupuestación Pública Participativa (nueva metodología) y la Asignación de Recursos a cada distrito Establecer el | 1 días | 18 de agosto | Equipo Operativo Municipal | Presencial
 [imagen]
-| | cronograma de actividades previas a la asignación de recursos del Fondo Distrital | | | |
-Difusión del proceso de presupuestación pública participativa y Registro de Organizaciones | Convocatoria abierta a organizaciones comunales y Registro de organizaciones comunales interesadas | Promocionar y divulgar el inicio del proceso de presupuestación pública participativa | 6 días | Del 19 al 26 de agosto | Alcaldía Municipal Concejos de Distrito | WhatsApp, correo electrónico, redes sociales, medios locales de comunicación
-Inscripción de los actores comunales ante la Alcaldía Municipal | 6 días | Del 19 al 26 de agosto | Organizaciones comunales | Correo electrónico y WhatsApp
-Sistematización y socialización de la inscripción | 3 días | Del 26 al 28 de agosto | Alcaldía municipal Concejos de Distrito | Correo electrónico WhatsApp
-Encuentros con organizaciones comunales | Convocatoria a organizaciones comunales acreditadas y registradas en la Municipalidad para iniciar proceso de presupuesto participativo | Encuentro con organizaciones comunales inscritas para comunicar el monto correspondiente al distrito, así como los lineamientos generales a seguir durante el proceso de presupuestación pública participativa | 6 días | Del 31 de agosto al 05 de septiembre | Concejos de Distrito Organizaciones comunales | Presencial, con programación previa
-Definición de proyectos prioritarios y Recepción de requisitos previos | Planteamiento de proyectos del Fondo Distrital de cada distrito | Realizar las reuniones de organizaciones comunales para la definición de los proyectos que serán propuestos en las Sesiones Extraordinarias Ampliadas del Concejo de Distrito | 15 días | Del 07 al 25 de septiembre | Organizaciones Comunales Equipo Operativo Institucional Estudiantes de TCU UCR | A definir por cada organización comunal inscrita
-Recepción y sistematización de proyectos de Fondo Distrital de cada distrito | Entrega de proyectos y requisitos previos a la celebración de las sesiones extraordinarias Ampliadas de los Concejos de Distrito | 3 días | Del 28 al 30 de septiembre | Concejos de Distrito Organizaciones comunales | Presencial, con programación previa
-Análisis y votación de proyectos distritales | Análisis y selección de proyectos por parte de las organizaciones comunales inscritas | Escogencia de 3 proyectos del Fondo Distrital | 7 días | Del 01 al 07 de octubre | Organizaciones Comunales | A definir por cada organización comunal inscrita
-Entrega de formulario de votación | Las organizaciones comunales proceden con la entrega del documento que certifique su votación | 1 día | 08 de octubre | Organizaciones comunales Concejos de Distrito | Presencial, con programación previa
-Celebración de las Sesiones Extraordinarias Ampliadas de los Concejos de Distrito | Presentación y sistematización de votos de las organizaciones comunales | Organización de documentación, verificación de votación y remisión a Alcaldía Municipal por parte de los Concejos de Distrito | 5 días | Del 9 al 13 de octubre | Concejos de Distrito | Presencial
-Socialización de resultados | Socialización de resultados | Publicación de resultados y comunicación por parte de Concejos de Distrito y Alcaldía Municipal a organizaciones comunales inscritas | 3 días | Del 14 al 16 de octubre | Alcaldía Municipal Concejos de Distrito | WhatsApp, correo electrónico, redes sociales, medios de comunicación local
+[imagen]
+[imagen]
+[imagen]
+1 Días hábiles.
+2 Refiere las fechas o lapsos en los que deben de desarrollarse las actividades.
 Lo anterior, con la finalidad de no exponer a los habitantes del cantón a riesgos de salud relacionados con la Pandemia COVID-19, tal y como se expone en el TRANSITORIO I.
-(Así adicionado mediante sesión N° 12-2020 del 21 de julio del 2020)
+(Así adicionado mediante sesión ordinaria N° 12-2020 del 21 de julio del 2020)

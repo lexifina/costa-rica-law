@@ -15,3 +15,4 @@ Reglamento de presupuestos participativos del Cantón de Acosta
 | --- | --- | --- |
 | 1 | 2019-06-12 | la propia norma |
 | 2 | 2020-07-21 | Reglamento municipal 12 (2020-07-21) |
+| 3 | 2020-07-21 | Reglamento 12 (2020-07-21) |
