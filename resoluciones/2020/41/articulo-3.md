@@ -1,0 +1,1 @@
+Artículo 3º—A partir de la fecha en que sea publicada la presente resolución en el Diario Oficial La Gaceta, se deja sin efecto la tasa de interés publicada en el Diario Oficial La Gaceta Nº 2 del martes 07 de enero de 2020.
