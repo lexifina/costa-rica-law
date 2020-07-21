@@ -15,3 +15,4 @@ Reglamento de aceras y cumplimiento de los deberes regulados en el artículos 84
 | --- | --- | --- |
 | 1 | 2019-10-15 | la propia norma |
 | 2 | 2020-04-28 | Reglamento municipal 0 (2020-04-28) |
+| 3 | 2020-07-21 | Reglamento municipal 0 (2020-07-21) |
