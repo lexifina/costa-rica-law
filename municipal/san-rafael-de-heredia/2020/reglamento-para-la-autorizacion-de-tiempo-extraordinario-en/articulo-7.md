@@ -1,0 +1,34 @@
+Artículo 7°—Puestos municipales excluidos del reconocimiento del pago de la jornada extraordinaria: En lo que respecta a los funcionarios(as) excluidos(as) de la limitación de jornada ordinaria, que regula el artículo 143 del Código de Trabajo, cuya jornada común de trabajo va más allá de las ocho horas, las funciones o tareas realizadas durante el lapso de las cuatro horas siguientes hasta completar las 12 horas, no constituye jornada extraordinaria y en consecuencia, no podría generar ningún tipo de pago por ese concepto. Dichos funcionarios(as) sin fiscalización superior inmediata y serán definidos mediante Resolución Administrativa.
+En la Municipalidad de San Rafael de Heredia quedarán excluidos del reconocimiento del pago jornada extraordinaria los siguientes puestos municipales que desempeñen como directores(as), encargados(as), jefes(as) inmediatos(as) de las diversas unidades municipales. Se citan a continuación:
+- Técnico(a) en Soporte de Tecnologías de Información y Comunicación Municipal.
+- Encargado(a) de Cobros Municipal.
+- Encargado(a) de Patentes Municipal.
+- Encargado(a) de Obras y Servicios Municipal.
+- Encargado(a) de Valoración Municipal.
+- Topógrafo(a) Municipal.
+- Encargado(a) de la Policía Municipal.
+- Gestor(a) Ambiental Municipal.
+- Tesorero(a) Municipal.
+- Asistente de Auditoría Municipal.
+- Planificador(a) Institucional Municipal.
+- Planificador(a) Urbano(a) Municipal.
+- Encargado(a) de Catastro Municipal.
+- Abogado(a) Municipal.
+- Encargado(a) de Tecnologías de Información y Comunicación Municipal.
+- Encargado(a) de Asistencia Social (Psicólogo(a)) Municipal.
+- Encargado(a) de Gestión de Desarrollo Humano Municipal.
+- Analista Administrativo(a)-Financiero(a)-(Contador(a)) Municipal.
+- Proveedor(a) Municipal.
+- Encargado(a) de Catastro.
+- Encargado(a) de Bienes Inmuebles, Valoración y Sistema de Información Geográfica Municipal.
+- Asesor(a) Legal Municipal.
+- Ingeniero(a) Unidad Técnica de Gestión Vial Municipal.
+- Ingeniero(a) Urbano-Territorial Municipal.
+- Ingeniero(a) de Proyectos de Obra Comunal Municipal.
+- Director(a) de Planificación Urbana y Territorial Municipal.
+- Director(a) de Administración Tributaria Municipal.
+- Director(a) de Gestión de Servicios Municipal.
+- Auditor(a) Interno(a) Municipal.
+- Director(a) Administrativo Financiero Municipal.
+- Vicealcalde(sa) Municipal.
+- Alcalde(sa) Municipal.

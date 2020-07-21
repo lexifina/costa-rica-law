@@ -1,0 +1,1 @@
+Artículo 22.—Cambios en el personal: Si una vez autorizado el reconocimiento de la jornada extraordinaria, se generan cambios en los nombres de los funcionarios o funcionarias que trabajaran o se cancela la labor, el jefe inmediato deberá indicar claramente la situación y los cambios presentados a la Unidad de Gestión de Desarrollo Humano y Unidad de Contabilidad Municipal.

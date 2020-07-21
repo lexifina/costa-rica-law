@@ -1,0 +1,1 @@
+Artículo 23.—Instrumento para reconocimiento de jornada extraordinaria: El director (a) de cada dirección o unidad municipal, deberá de completar la boleta respectiva: “Boleta para el pago de horas extras o sencillas”, para cada funcionario(a) municipal que laboro tiempo extraordinario o sencillo.

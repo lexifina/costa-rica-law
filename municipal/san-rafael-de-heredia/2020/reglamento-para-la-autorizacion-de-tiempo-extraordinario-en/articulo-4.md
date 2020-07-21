@@ -1,0 +1,1 @@
+Artículo 4°—Labores incompatibles: No se considerará tiempo extraordinario para efectos del presente reglamento, el tiempo que los(as) funcionarios(as) municipales realicen producto de una ausencia injustificada, ni el que ocupe en subsanar los errores imputables sólo a él, cometidos durante la jornada ordinaria y de que por ello se pretenda efectuar un tiempo extraordinario.

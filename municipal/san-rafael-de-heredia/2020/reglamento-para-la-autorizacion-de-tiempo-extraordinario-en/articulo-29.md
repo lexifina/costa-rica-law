@@ -1,0 +1,1 @@
+Artículo 29.—Correlación con el tipo de jornada: A todos aquellos funcionarios o funcionarias que trabajen de conformidad con las jornadas establecidas en el Artículo 136 del Código de Trabajo, se les calculará el pago con base en el tipo de jornada laborada.

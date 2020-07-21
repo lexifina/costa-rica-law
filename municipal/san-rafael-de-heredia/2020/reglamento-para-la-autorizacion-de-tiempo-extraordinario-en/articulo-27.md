@@ -1,0 +1,1 @@
+Artículo 27.—Remuneración: La jornada extraordinaria será remunerada con un cincuenta por ciento más de los sueldos o salarios estipulados; todo en concordancia con lo establecido en el numeral 139 del Código de Trabajo.
