@@ -16,3 +16,4 @@ Reglamento Interior de Orden, Dirección y Debates del Concejo Municipal del Can
 | 1 | 2016-05-19 | la propia norma |
 | 2 | 2020-04-06 | Reglamento municipal 206 (2020-04-06) |
 | 3 | 2020-05-05 | Reglamento municipal 1 (2020-05-05) |
+| 4 | 2020-07-21 | Reglamento municipal 11 (2020-07-21) |
