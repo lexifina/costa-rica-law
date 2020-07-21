@@ -1,0 +1,3 @@
+CAPÍTULO II
+De la solicitud de los recursos
+Artículo 6º—Podrán acceder a los recursos del 3%; todas aquellas cooperativas autogestionarias que, mediante solicitud por escrito, debidamente firmada por el Gerente y aprobada por su Consejo de Administración, presenten a la Dirección Ejecutiva de la CPCA, el requerimiento de necesidades, según sea el caso, asistencia técnica, o capacitación continua. Se podrá calificar solo para uno de los requerimientos. Los recursos asignados a una Cooperativa Autogestionaria no podrán superar el monto de cinco salarios base, únicamente en casos justificados, con el estudio y aprobación por parte del Director Ejecutivo, se podrá ampliar el límite de la asistencia.

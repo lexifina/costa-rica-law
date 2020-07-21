@@ -1,0 +1,1 @@
+Artículo 12.—De cada cobro de comisión deberá entregarse a la cooperativa un comprobante de pago, en donde se detalle el monto rebajado y el Número de operación de crédito a que corresponde el respectivo rebajo.

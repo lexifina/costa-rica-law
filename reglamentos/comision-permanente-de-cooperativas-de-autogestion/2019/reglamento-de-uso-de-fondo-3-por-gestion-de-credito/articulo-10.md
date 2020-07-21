@@ -1,0 +1,1 @@
+Artículo 10.—El apoyo otorgado a una cooperativa autogestionaria en asistencia técnica o programas de capacitación continua deberá ser por un período fiscal, debiendo pasar un mínimo de cinco años para realizar una nueva solicitud ante la CPCA.

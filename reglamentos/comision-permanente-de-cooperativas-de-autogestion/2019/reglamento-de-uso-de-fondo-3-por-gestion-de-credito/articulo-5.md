@@ -1,0 +1,1 @@
+Artículo 5º—Destínese el 33,33 % a la gestión operativa de la Comisión Permanente de Cooperativas de Autogestión, para su mejoramiento y crecimiento continuo en apoyo al sector cooperativo Autogestionario.

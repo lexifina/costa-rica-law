@@ -1,0 +1,1 @@
+Artículo 2º—El porcentaje a cobrar por comisión sobre el crédito otorgado, será definido por la Comisión Especial de Crédito del Fondo Nacional de Cooperativas de Autogestión, según las características de la cooperativa; del proyecto y del monto aprobado.
