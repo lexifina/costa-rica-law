@@ -14,3 +14,4 @@ Procedimiento ECA-MC-PT01 "Proceso de Transición a la Norma ISO/IEC 17025:2017 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-02-09 | la propia norma |
+| 2 | 2020-07-22 | Acuerdo 9 (2020-07-22) |
