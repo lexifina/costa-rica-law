@@ -1,0 +1,6 @@
+Artículo 4º. Tipos de viaje.
+4.1. Viajes producto de un procedimiento de contratación administrativa. Los generados a raíz de un procedimiento de contratación administrativa, que tengan como objeto el brindar entrenamiento a los colaboradores o visitas a fabricantes ligados directamente con el bien objeto de la contratación.
+4.2. Viajes en representación del país o de RACSA. Son aquellos que se realizan para participar en seminarios, congresos, invitaciones, de organizaciones públicas nacionales o extranjeras, para representar a la Empresa o al país en diferentes eventos.
+4.3. Viajes para capacitación en general. Son aquellos que se realizan en atención de un curso, seminario, certificación, especialización, pasantía, entre otros.
+4.4. Viajes de incursión, desarrollo y operación de negocios internacionales. Son los que se realizan para incursionar en otros mercados a nivel internacional, promover nuevos negocios, así como los necesarios para brindar un servicio.
+4.5. Otro tipo de viaje de interés Empresarial: Son los que no se contemplan dentro de las clasificaciones anteriormente señaladas y que, de acuerdo con el criterio de la Junta Directiva, resultan de relevancia para la Empresa.

@@ -1,0 +1,1 @@
+Artículo 10º. En el caso de que un colaborador viaje en calidad de asesor, además de observar los requisitos y el tramité señalado anteriormente, deberá indicar su calidad de asesor, conforme a lo establecido en el Reglamento de Gastos de Viajes y de Transporte para Funcionarios Públicos.

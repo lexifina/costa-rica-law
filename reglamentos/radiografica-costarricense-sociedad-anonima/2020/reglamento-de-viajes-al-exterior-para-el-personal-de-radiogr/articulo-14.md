@@ -1,0 +1,1 @@
+Artículo 14º. De la aprobación de los gastos de representación en el exterior, le corresponde a la Junta Directiva, autorizar los gastos de representación y su monto, todo de acuerdo con el Capítulo V de Gastos de Representación Ocasionales en el Exterior, del Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos de la Contraloría General de la República.

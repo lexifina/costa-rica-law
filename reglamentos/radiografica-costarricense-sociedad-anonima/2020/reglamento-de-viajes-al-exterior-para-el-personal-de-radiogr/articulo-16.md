@@ -1,0 +1,1 @@
+Artículo 16º. La Junta Directiva aprobará los viajes al exterior y sus modificaciones según corresponda: del Gerente General, Auditor Interno, Directores, Jefaturas y demás colaboradores (as) de la Empresa.

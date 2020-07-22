@@ -1,0 +1,1 @@
+Artículo 11º. En el caso de becarios o estudiantes además de observar los requisitos y el tramité señalado anteriormente, deberá acatar lo indicado en el Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos de la Contraloría General de la República y lo establecido en el Reglamento de Capacitación y Desarrollo de RACSA.

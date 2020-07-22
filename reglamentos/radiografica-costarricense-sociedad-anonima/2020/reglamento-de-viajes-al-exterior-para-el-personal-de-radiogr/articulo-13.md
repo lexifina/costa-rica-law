@@ -1,0 +1,1 @@
+Artículo 13º. Cuando corresponda el pago de “gastos de representación” conforme al Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos dictado por la Contraloría General de la República, debe indicarse claramente, el monto establecido para este rubro y su justificación.

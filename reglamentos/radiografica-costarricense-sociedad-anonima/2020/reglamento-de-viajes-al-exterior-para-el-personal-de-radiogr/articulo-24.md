@@ -1,0 +1,3 @@
+Artículo 24º. Derogatoria. El presente Reglamento deroga al Reglamento para Viajes al Exterior para los Funcionarios de RACSA, aprobado en la sesión ordinaria N°1803, Capítulo III Artículo 5° del 8 de noviembre del 2007, publicado en el Diario Oficial La Gaceta N°5 del 8 de enero del 2008.
+8. REVISIÓN Y EVALUACIÓN
+Corresponde a la Dirección Administrativa, en conjunto con las áreas involucradas y bajo supervisión de la Gerencia General, realizar una revisión anual del presente Reglamento, con el objeto de verificar si se han realizado cambios en los procesos de gestión, que impliquen la elaboración de una propuesta de actualización reglamentaria.

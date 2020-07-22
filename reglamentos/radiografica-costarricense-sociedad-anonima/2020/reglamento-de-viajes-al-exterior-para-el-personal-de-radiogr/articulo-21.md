@@ -1,0 +1,4 @@
+Artículo 21º. De los informes.
+a. La Gerencia General, debe remitir un informe semestral a la Junta Directiva de los viajes gestionados.
+b. Todo colaborador que efectúe un viaje de trabajo o de estudio en el exterior, debe rendir un informe de resultados al superior jerárquico, adjuntar copia del mismo a la liquidación del viaje y cuando se trate de capacitación, proceder ante el Departamento de Talento y Cultura conforme lo establecido en el Reglamento de Capacitación y Desarrollo de RACSA.
+c. En el caso de los miembros de la Junta Directiva, Gerente General, y Auditor Interno, deberán presentar su informe de viaje directamente ante la Junta Directiva, a más tardar en las dos sesiones ordinarias posteriores al regreso del viaje, indicando los resultados obtenidos. Dicho informe debe constar en el acta de la sesión correspondiente.
