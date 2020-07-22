@@ -1,0 +1,1 @@
+Artículo 20: Resolución del recurso de revisión: Una vez recibido el recurso, el jefe del Departamento de Consultoría Técnica trasladará el reclamo a la Junta Directiva del Colegio de Contadores Públicos de Costa Rica para que esa Junta Directiva en un plazo máximo de un mes calendario resuelva el mismo.

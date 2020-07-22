@@ -1,0 +1,1 @@
+Artículo 14: Integración: El Tribunal Examinador, estará integrado por cinco Contadores Públicos Autorizados, que tengan cuando menos cinco años de haberse incorporado; de los cuales tres miembros serán de la Junta Directiva. El trabajo realizado por este tribunal será ad honorem.
