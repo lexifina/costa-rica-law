@@ -1,0 +1,1 @@
+Articulo 9º—Procedimiento de formalización del arreglo de pago. Una vez aprobada la solicitud se le asignará un analista del Departamento de Gestión de Cobro, quien notificará al patrono la suscripción del arreglo de pago. Dicho arreglo podrá realizarlo de manera presencial en las oficinas de DESAF o virtual, para este último caso requerirá firma digital.

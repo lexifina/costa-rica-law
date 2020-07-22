@@ -1,0 +1,1 @@
+Artículo 7º—Análisis de solicitudes. Un analista del Departamento de Gestión de Cobros de la DESAF, revisará la solicitud del patrono y la comparará con la información existente en el Sistema de Patrono Morosos y determinará, si es candidato o no del beneficio solicitado, por sus condiciones de adeudo, con base en los mecanismos de validación del artículo anterior.

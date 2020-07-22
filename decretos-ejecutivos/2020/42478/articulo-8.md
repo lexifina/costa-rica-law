@@ -1,0 +1,4 @@
+Artículo 8º—Notificación. Una vez aplicados los mecanismos de validación para la aprobación del beneficio, el analista remitirá un correo electrónico indicando la aprobación o denegatoria de la solicitud.
+Este resultado, le será notificado al patrono solicitante a la dirección del correo electrónico señalada para recibir notificaciones.
+La notificación de dicho resultado será comunicada desde los correos electrónicos DESAF.cobros@mtss.go.cr y/o DESAF.notificaciones@mtss.go.cr, dependiendo si el caso se encuentra en la unidad de cobro administrativo o en la unidad de cobro judicial y deberán constar en el expediente del patrono.
+Contra el resultado de la solicitud cabrán los recursos establecidos en los artículos 342 y siguientes de la Ley General de la Administración Pública, Ley N° 6227 de 2 de mayo de 1978.
