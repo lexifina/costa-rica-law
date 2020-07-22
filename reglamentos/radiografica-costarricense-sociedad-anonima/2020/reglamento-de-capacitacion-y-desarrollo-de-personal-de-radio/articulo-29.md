@@ -1,0 +1,1 @@
+Artículo 29. El Departamento de Talento y Cultura enviará la respectiva designación de capacitación a los participantes que se inscriban en las diferentes actividades de formación, capacitación y desarrollo; en donde se indicarán todos los detalles necesarios para la asistencia. Estas designaciones serán archivadas en el expediente de capacitación de cada colaborador.

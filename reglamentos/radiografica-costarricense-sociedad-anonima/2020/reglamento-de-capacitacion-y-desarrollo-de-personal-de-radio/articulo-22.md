@@ -1,0 +1,1 @@
+Artículo 22. Cuando se realice el pago de las capacitaciones de forma fraccionada entre el colaborador y la Empresa, deberá solicitarse mediante facturas separadas el monto que cancelará cada parte, con la finalidad de facilitar la contabilización del gasto. La proporción que pague la Empresa deberá remitirse a nombre de Radiográfica Costarricense S.A.

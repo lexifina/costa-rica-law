@@ -1,0 +1,1 @@
+Artículo 42. El traslado, alimentación u cualquier otro gasto en que se incurra para asistir a la capacitación será cubierto por el colaborador, salvo casos de excepción avalados por la Gerencia General.

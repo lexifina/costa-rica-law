@@ -1,0 +1,1 @@
+Artículo 2. Los Directores, Auditor y Jefaturas son responsables de establecer las prioridades estratégicas de capacitación de su dependencia mediante el Diagnóstico de Necesidades de Capacitación (DNC), por medio de las matrices aprobadas para este fin.

@@ -1,0 +1,1 @@
+Artículo 36. Si se presenta un atraso mayor a 30 días hábiles por parte del proveedor en la entrega del certificado, el colaborador deberá comunicar al Departamento de Talento y Cultura de dicho atraso, una vez que el proveedor remitiera el certificado el colaborar deberá enviar el mismo al Departamento de Talento y Cultura en un plazo de 5 días hábiles.

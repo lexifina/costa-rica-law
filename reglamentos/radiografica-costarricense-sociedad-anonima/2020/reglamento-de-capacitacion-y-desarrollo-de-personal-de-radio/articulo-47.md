@@ -1,0 +1,1 @@
+Artículo 47. El Departamento de Talento y Cultura brindará apoyo y velará por el cumplimiento de las evaluaciones por parte de las Jefaturas, analizando la información y realizando recomendaciones en caso de ser requerido.

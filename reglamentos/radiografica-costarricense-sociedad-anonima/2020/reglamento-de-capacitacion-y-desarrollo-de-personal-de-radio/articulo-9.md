@@ -1,0 +1,1 @@
+Artículo 9. La elaboración del Plan de Desarrollo, Capacitación y Formación se encuentra a cargo de los Directores, Auditor y Jefaturas de cada dependencia con el apoyo y asesoría del Departamento de Talento y Cultura.

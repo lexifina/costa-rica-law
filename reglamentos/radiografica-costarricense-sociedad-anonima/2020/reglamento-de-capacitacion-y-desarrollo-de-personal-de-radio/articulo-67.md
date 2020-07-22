@@ -1,0 +1,1 @@
+Artículo 67. En caso de que el colaborador repruebe la capacitación y/o las pruebas, exámenes, certificaciones u cualquier otro asociado, desertare sin que hubiese causa de justificación alguna por caso fortuito o fuerza mayor de sus estudios antes de concluir estos, deberá restituir a RACSA el valor total de la capacitación recibida.

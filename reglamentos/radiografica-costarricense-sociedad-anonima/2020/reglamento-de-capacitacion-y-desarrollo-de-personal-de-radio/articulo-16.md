@@ -1,0 +1,1 @@
+Artículo 16. El Departamento de Talento y Cultura puede recomendar a la dependencia solicitante de la capacitación el cambio de facilitador de la capacitación solicitada por motivo de costo; siempre y cuando sea conforme a los objetivos y contenidos establecidos en el Plan de Desarrollo, Capacitación y Formación procurando las economías de escala y la optimización de costos.

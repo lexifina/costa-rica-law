@@ -1,0 +1,1 @@
+Artículo 39. Respecto a las actividades de formación, capacitación y/o desarrollo que se lleven a cabo fuera de horario laboral no procederán pagos por concepto de viáticos o adicionales por la asistencia.

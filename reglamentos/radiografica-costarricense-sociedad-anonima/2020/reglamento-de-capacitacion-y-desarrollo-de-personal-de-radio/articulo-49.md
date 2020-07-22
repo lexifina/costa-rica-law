@@ -1,0 +1,1 @@
+Artículo 49. En caso de que el colaborador no realice la transferencia de conocimientos por causas que le sean imputables, su participación en actividades de Capacitación posteriores será suspendida por un año; salvo que el colaborador justifique y demuestre que existe un eximente de responsabilidad (caso fortuito o fuerza mayor) que le impidió transmitir sus conocimientos.

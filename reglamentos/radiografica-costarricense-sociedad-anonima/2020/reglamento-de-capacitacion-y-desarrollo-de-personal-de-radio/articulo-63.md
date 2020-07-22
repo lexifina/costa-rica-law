@@ -1,0 +1,3 @@
+Artículo 63. En todos los casos antes de efectuar el cobro que corresponda se aplicará el siguiente procedimiento:
+a) Mediante nota formal el Departamento de Talento y Cultura debe notificar al colaborador el monto del adeudo por el incumplimiento del Contrato de Capacitación a fin de que proceda con la cancelación del mismo, así como la posibilidad de realizar un arreglo de pago.
+b) Para los casos en que en el plazo de 10 días hábiles posteriores a la notificación no se llegue a un arreglo de pago, el trabajador conteste negativamente u omita contestar, se iniciará el respectivo cobro judicial del monto adeudado.

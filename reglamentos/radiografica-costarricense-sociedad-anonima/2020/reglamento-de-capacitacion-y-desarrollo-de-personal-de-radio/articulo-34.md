@@ -1,0 +1,1 @@
+Artículo 34. El colaborador que participe en una actividad de formación, capacitación y/o desarrollo debe firmar el Contrato de Capacitación respectivo conforme se establece en este Reglamento. Dicho Contrato será archivado en el expediente de capacitación de cada colaborador.

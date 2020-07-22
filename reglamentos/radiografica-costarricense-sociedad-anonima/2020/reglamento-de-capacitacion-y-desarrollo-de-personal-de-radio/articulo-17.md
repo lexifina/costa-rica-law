@@ -1,0 +1,1 @@
+Artículo 17. El Departamento de Talento y Cultura debe administrar el presupuesto total para todas las actividades de capacitación con el fin de optimizar la inversión en este ámbito, así como racionalizar los costos asociados.

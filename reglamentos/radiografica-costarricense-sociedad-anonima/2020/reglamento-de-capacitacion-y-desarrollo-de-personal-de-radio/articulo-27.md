@@ -1,0 +1,1 @@
+Artículo 27. Las solicitudes de actividades de Capacitación deben presentarse ante el Departamento de Talento y Cultura con al menos 10 días hábiles de anticipación previo al inicio de la actividad. Si las solicitudes se entregan con menor tiempo de anticipación, el Departamento de Talento y Cultura no garantiza el trámite en tiempo de la capacitación solicitada.

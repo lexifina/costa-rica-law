@@ -1,0 +1,1 @@
+Artículo 40. Las capacitaciones no deberán afectar en ningún sentido las labores propias del puesto, por lo cual deberá coordinarse con la Jefatura inmediata cualquier eventualidad. No obstante, en aquellas en que el horario que se establece coincida con el horario de labores, se concederá permiso para su asistencia.

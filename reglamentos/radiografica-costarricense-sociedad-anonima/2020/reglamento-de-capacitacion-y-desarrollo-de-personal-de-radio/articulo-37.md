@@ -1,0 +1,1 @@
+Artículo 37. El Departamento de Talento y Cultura se encargará de revisar los informes y analizar la información, evaluando según el ámbito de su competencia a los proveedores y los servicios contratados.

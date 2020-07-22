@@ -1,0 +1,1 @@
+Artículo 28. La solicitud de capacitación debe presentarse completa y debidamente firmada. En caso que se presente incompleta ante el Departamento de Talento y Cultura, se prevendrá al colaborador, para que subsane los errores en un plazo de 3 días hábiles. De no presentarse la corrección en tiempo y forma, la solicitud será rechazada.

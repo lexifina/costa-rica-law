@@ -1,0 +1,1 @@
+Artículo 12. Los Directores, Auditor y Jefaturas deben proveer los insumos necesarios para la anticipación de necesidades estratégicas, validar los planes de Capacitación y asignar los recursos necesarios para la ejecución del Plan de Desarrollo, Capacitación y Formación.

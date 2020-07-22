@@ -1,0 +1,1 @@
+Artículo 5. El Departamento de Talento y Cultura define las Políticas, Normas y Metodologías para la gestión del aprendizaje, desarrollo del personal en la Empresa y las presenta para su aprobación a las instancias correspondientes.

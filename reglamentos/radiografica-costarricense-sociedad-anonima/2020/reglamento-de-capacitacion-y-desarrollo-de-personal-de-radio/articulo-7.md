@@ -1,0 +1,1 @@
+Artículo 7. Las actividades de formación, capacitación y/o desarrollo se utilizarán para el cierre de brechas cuando sea requerido, y se utilizarán para contribuir a los procesos de sucesión del personal a nivel Empresarial.

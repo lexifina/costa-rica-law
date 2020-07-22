@@ -1,0 +1,1 @@
+Artículo 46. La Jefatura de cada área deberá realizar una evaluación de conocimientos, donde se evaluarán los conocimientos adquiridos y el valor agregado de la capacitación en los procesos de la dependencia y la Empresa. La evaluación se realizará por medio de la metodología establecida para este fin, determinada en el Procedimiento de Formación, Capacitación y Desarrollo.

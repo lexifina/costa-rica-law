@@ -1,0 +1,1 @@
+Artículo 18. El Departamento de Talento y Cultura es el encargado de brindar soluciones integrales para actividades de gestión del aprendizaje y de desarrollo del personal en áreas de interés Empresarial, a efecto de obtener una mayor eficiencia en la gestión.

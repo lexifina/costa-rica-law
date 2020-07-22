@@ -1,0 +1,1 @@
+Artículo 50. En casos específicos de interés empresarial y considerando la modalidad de la capacitación y la naturaleza de misma, el Departamento de Talento y Cultura podrá solicitar al participante la presentación de informes técnicos referidos a la capacitación recibida, según las guías y plazos establecidos para cada caso.

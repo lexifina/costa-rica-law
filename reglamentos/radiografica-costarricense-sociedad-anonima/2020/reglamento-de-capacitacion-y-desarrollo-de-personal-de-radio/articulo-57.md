@@ -1,0 +1,7 @@
+Artículo 57. Modalidad de curso en el exterior
+a) Se refiere a toda capacitación fuera del país, por medio del sistema presencial, mediante cursos, seminarios, congresos, foros, talleres, entre otros. Para esta modalidad se pueden otorgar permisos requeridos tales como; permisos con o sin goce de salario, según lo establece el Estatuto de Personal de RACSA.
+b) El colaborador podrá optar por esta modalidad llenando el formulario respectivo y aportando la documentación necesaria ante el Departamento de Talento y Cultura.
+c) Para las capacitaciones en el exterior, el Departamento de Talento y Cultura deberá solicitar al colaborador designado, que demuestre su nivel de conocimiento del idioma en el cual se llevará a cabo la actividad.
+d) El pago de viáticos, transportes, boletos, imprevistos y cualquier otro costo asociado a la actividad de capacitación serán tramitados y previstos de acuerdo a lo que determine el Departamento de Presupuesto.
+e) Las dependencias de la Empresa deberán prever el costo del pago de viáticos, transportes, boletos, imprevistos, impuestos y cualquier otro costo asociado a la actividad de capacitación.
+f) Cuando el colaborador regrese de la actividad de capacitación en el exterior, deberá presentar un Informe detallado de los conocimientos adquiridos y del programa de devolución de conocimientos a nivel interno de la Empresa. Este informe deberá ser remitido al Departamento de Talento y Cultura en un plazo de 20 días hábiles, contados a partir del ingreso formalmente del colaborador a sus actividades laborales.

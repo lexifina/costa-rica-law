@@ -1,0 +1,1 @@
+Artículo 3. El Departamento de Talento y Cultura autoriza y emite criterio técnico, a partir del análisis de la Capacitación en función del Diagnóstico de Necesidades de Capacitación (DNC), por lo que todo trámite con o sin costo, interno o externo, debe ser coordinado con esta Dependencia.

@@ -1,0 +1,1 @@
+Artículo 51. El colaborador que se encuentra a dos años del derecho de jubilación, u otro que sea identificado por el Departamento de Talento y Cultura en su condición de experto, podrá ser requerido eventualmente para desarrollar acciones de transferencia del conocimiento adquirido durante su trayectoria laboral.

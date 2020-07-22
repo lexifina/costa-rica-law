@@ -1,0 +1,1 @@
+Artículo 68. En caso de que el beneficiario renuncie a su trabajo, o fuese despedido sin responsabilidad patronal, facultará a Radiográfica Costarricense Sociedad Anónima a exigir al colaborador el pago proporcional de la capacitación recibida según lo establecido en el artículo 62.

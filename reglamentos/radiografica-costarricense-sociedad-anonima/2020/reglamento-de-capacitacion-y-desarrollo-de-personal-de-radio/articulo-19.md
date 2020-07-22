@@ -1,0 +1,1 @@
+Artículo 19. La gestión de coordinación, matrícula, pagos y otras acciones relacionadas con actividades de capacitación generadas por Empresas de formación, Organismos Internacionales, o contrataciones especiales en los casos en que así se requiera, estarán a cargo del Departamento de Talento y Cultura.

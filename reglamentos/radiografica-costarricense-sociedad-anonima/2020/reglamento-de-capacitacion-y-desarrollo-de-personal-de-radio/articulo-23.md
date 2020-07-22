@@ -1,0 +1,1 @@
+Artículo 23. En caso que el colaborador incurra en alguna falta según lo establecido en este Reglamento, que faculte a la Empresa a realizar el cobro de la capacitación; en los casos que el pago se efectué de forma fraccionada entre el colaborador y la Empresa, el cobro se realizará únicamente por el monto que fue efectivamente cancelado por Radiográfica Costarricense S.A.
