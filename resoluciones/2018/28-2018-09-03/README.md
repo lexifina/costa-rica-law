@@ -14,3 +14,4 @@ Modifica la descripción de varias notas técnicas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-01-04 | la propia norma |
+| 2 | 2020-07-23 | Resolución 367 (2020-07-23) |

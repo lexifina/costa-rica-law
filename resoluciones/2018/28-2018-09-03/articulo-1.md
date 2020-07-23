@@ -9,7 +9,8 @@ V.—Que de acuerdo a oficio DSFE-140-2018 (Folio N° 37), de fecha 14 de marzo 
 “NT 0035:
 Control de cumplimiento de Requisitos impuestos por el Servicio Fitosanitario del Estado: Las plantas, productos vegetales y otros artículos reglamentarios descritos en este arancel, requieren por Ley N°7664-MAG de éste control, el cual se realiza únicamente en los puntos de ingreso oficial al territorio Nacional, para autorizar su importación, el tránsito nacional e internacional.”
 “NT 0053:
-Control de cumplimiento de Requisitos impuestos por el Servicio Fitosanitario del Estado: Las plantas, productos vegetales y otros artículos reglamentarios descritos en este arancel, requieren por Ley N°7664-MAG de éste control, el cual se realiza únicamente en los puntos de ingreso oficial al territorio Nacional, para autorizar su importación, el tránsito nacional e internacional.”
+Control de cumplimiento de Requisitos impuestos por el Servicio Fitosanitario del Estado: Los productos vegetales y otros artículos reglamentarios descritos en este arancel, requieren por Ley N° 7664-MAG de este control, el cual se realiza únicamente en los puntos de ingreso oficial al territorio Nacional, para autorizar su importación, el tránsito nacional e internacional.
+(Así reformado el punto NT.0053 anterior mediante resolución RES-DGA-367-2020 del 23 de julio de 2020)
 “NT 0059:
 Control de cumplimiento de Requisitos impuestos por el Servicio Fitosanitario del Estado: Los controladores biológicos, sustancias químicas, biológicas o afines y equipos para aplicarlas a la agricultura, descritos en éste arancel, requieren por Ley N°7664-MAG de éste control, el cual se realiza únicamente en los puntos de ingreso oficial al territorio nacional, para autorizar la importación, el tránsito nacional e internacional. A excepción de las personas físicas o jurídicas certificadas PROFAC, a las cuales se les podrá aplicar el control aquí indicado en sus instalaciones registradas y aprobadas.”
 “NT 0265:
@@ -35,8 +36,9 @@ EL DIRECTOR GENERAL DE ADUANAS, RESUELVE
 1º—Modificar la descripción de las notas técnicas 0035, 0053, 0059, 0265 y 0267, para que se lea de la siguiente manera:
 “NT 0035:
 Control de cumplimiento de Requisitos impuestos por el Servicio Fitosanitario del Estado: Las plantas, productos vegetales y otros artículos reglamentarios descritos en este arancel, requieren por Ley N°7664-MAG de éste control, el cual se realiza únicamente en los puntos de ingreso oficial al territorio Nacional, para autorizar su importación, el tránsito nacional e internacional.”
-“NT 0053:
-Control de cumplimiento de Requisitos impuestos por el Servicio Fitosanitario del Estado: Las plantas, productos vegetales y otros artículos reglamentarios descritos en este arancel, requieren por Ley N°7664-MAG de éste control, el cual se realiza únicamente en los puntos de ingreso oficial al territorio Nacional, para autorizar su importación, el tránsito nacional e internacional.”
+“NT.0053:
+Control de cumplimiento de Requisitos impuestos por el Servicio Fitosanitario del Estado: Los productos vegetales y otros artículos reglamentarios descritos en este arancel, requieren por Ley N° 7664-MAG de este control, el cual se realiza únicamente en los puntos de ingreso oficial al territorio Nacional, para autorizar su importación, el tránsito nacional e internacional.
+(Así reformado el punto NT.0053 anterior mediante resolución RES-DGA-367-2020 del 23 de julio de 2020)
 “NT 0059:
 Control de cumplimiento de Requisitos impuestos por el Servicio Fitosanitario del Estado: Los controladores biológicos, sustancias químicas, biológicas o afines y equipos para aplicarlas a la agricultura, descritos en éste arancel, requieren por Ley N°7664-MAG de éste control el cual se realizará únicamente en los puntos de ingreso oficial al territorio Nacional, para autorizar la importación, el tránsito nacional e internacional. A excepción de las personas físicas o jurídicas certificadas PROFAC, a las cuales se les podrá aplicar el control aquí indicado en sus instalaciones registradas y aprobadas.”
 “NT 0265:
