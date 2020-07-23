@@ -1,0 +1,15 @@
+Anexo 1. Procedimiento para tarifación de productos
+1. Productos con precio referenciado
+PROCEDIMIENTO NARRATIVO
+Responsable | N° | Paso Procedimiento | del | Descripción
+| 0. | Inicio |
+Encargado de Actividad o Unidad Productiva. | 1 | Informar características producto. | de | las del | El encargado de la actividad o unidad productiva debe suministrar la información (al encargado de facturación) sobre: la calidad, la cantidad, el peso, o los parámetros que apliquen para definir la tarifa del producto.
+Encargado de Facturación | 2 | Revisión mercado | de | precios | de | En primera instancia el funcionario deberá remitirse a la página del Programa Integral de Mercadeo Agropecuario (PIMA) al último boletín (más actualizado) y tarifar el producto al precio promedio de la unidad de medida que se indica en dicho documento. En caso de que Si el producto no está tarifado en el boletín del PIMA, el funcionario responsable de la facturación deberá regirse por el precio de compra de la unidad de medida indicada en el boletín más reciente del Programa de Abastecimiento Institucional del Consejo Nacional de Producción (CNP).
+3 | Informar sobre productos sin datos de mercado | Una vez verificada la no existencia del producto en los listados del PIMA y del CNP, el funcionario responsable deberá informar al encargado de la unidad productiva y al coordinador de la estación sobre la ausencia de información de mercado para tarifar el producto.
+Encargado de Facturación. | 4 | Elaborar mercado | estudio | de | Al no existir información de mercado en registros de instituciones oficiales, se deberá elaborar una cotización de precios de compra de al menos tres compradores del producto a nivel de Región MAG de donde se suscriba la producción o donde se ubique el producto, en su defecto, se deberá hacer una justificación por cumplir de manera parcial con lo dispuesto anteriormente.
+5 | Informar sobre el estudio de mercado. | Luego de haber pasado por dicho proceso, el encargado de facturación deberá informar al Coordinador de la Estación mediante oficio o correo electrónico sobre los precios de compra obtenidos en el estudio de mercado, además, sugerir un precio final (El precio fijado nunca deberá ser inferior al precio mínimo del estudio de mercado). Dentro del oficio o correo se debe justificar el cumplimiento parcial del estudio, sea por un número menor de cotizaciones o por una ubicación del comprador fuera de lo establecido. Se debe evidenciar un correo electrónico u oficio por parte del Coordinador de la Estación aprobando el precio sugerido. La vigencia
+| | PROCEDIMIENTO NARRATIVO
+Responsable | N° | Paso del Procedimiento | Descripción
+| | | del Estudio de Mercado será de tres meses máximo a partir de la fecha del oficio o del correo electrónico.
+Encargado de Facturación | 6 | Calculo de la Tarifa | El cálculo de la tarifa se obtiene al multiplicar el precio del producto por la cantidad de producto requerido por el cliente. El cálculo se debe efectuar a partir de las unidades de medidas fijadas en las fuentes información oficial o las fijadas en el estudio mercado.
+| | | | | |
