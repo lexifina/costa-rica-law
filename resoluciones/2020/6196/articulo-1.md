@@ -69,7 +69,10 @@ II. Se exceptúan de la presente disposición:
 30. Playas y lagos de lunes a domingo de las 5:00 horas a las 09:30 horas, con medidas de distanciamiento de 1.8 metros respetando las burbujas sociales. Este acceso incluye las actividades deportivas sin contacto.
 31. Actividades de alojamiento para estancia corta (moteles).
 32. Estacionamientos o parqueos públicos.
-33. Todos aquellos otros establecimientos con permiso sanitario de funcionamiento que no brinden atención al público presencial.
+33. Actividades a puerta cerrada de teatros (incluyendo el Teatro Nacional y el Teatro Popular Melico Salazar), iglesias, municipalidades con sus sesiones de concejo municipal, consejos de distrito, reunión de comisiones y demás reuniones municipales, así como cualquier otro espacio cerrado para el desarrollo de transmisiones virtuales, con estricto cumplimiento de los protocolos preventivos y lineamientos emitidos por el Ministerio de Salud y con el personal mínimo requerido.
+(Así adicionado el inciso anterior mediante resolución MS-DM-6299-2020del 24 de julio del 2020)
+34. Todos aquellos otros establecimientos con permiso sanitario de funcionamiento que no brinden atención al público presencial.
+(Así modificada la numeración del inciso anterior mediante resolución MS-DM-6299-2020del 24 de julio del 2020, que lo traspaso del antiguo inciso 33) al 34))
 TERCERO: Para calcular el aforo a un 50% de la capacidad máxima del establecimiento, se hará de conformidad con los siguientes parámetros:
 1. De conformidad con la capacidad máxima establecida en la solicitud del permiso sanitario de funcionamiento. Dicha capacidad máxima incluye trabajadores y ocupantes.
 2. Debe garantizar guardar un espacio de 1.8 metros entre cada persona dentro del establecimiento y en las aceras previo a su ingreso.

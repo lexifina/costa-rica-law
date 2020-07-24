@@ -14,3 +14,4 @@ Cierre temporal establecimientos permiso sanitario de funcionamiento que brinden
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-07-20 | la propia norma |
+| 2 | 2020-07-24 | Resolución 6299 (2020-07-24) |
