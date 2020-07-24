@@ -1,0 +1,1 @@
+Artículo 5º—Los costos que se generen del incumplimiento de este reglamento técnico, los deberá cubrir el infractor, de conformidad con lo dispuesto en el Artículo 62 de la Ley Nº 7472 de Promoción de la Competencia y Defensa Efectiva del Consumidor y su reglamento. Lo anterior sin perjuicio de las responsabilidades legales que se deriven del incumplimiento.

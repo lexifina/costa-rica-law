@@ -1,0 +1,1 @@
+Artículo 2º—No se podrá restringir la comercialización e internamiento al país de cebolla seca que no cumpla con las exigencias relativas a mal corte de tallo y quemaduras de sol, siempre y cuando el porcentaje de imperfecciones obtenido en la muestra no supere el 30%, en cuyo caso se permitirá el acondicionamiento.

@@ -1,0 +1,1 @@
+Artículo 4º—El manejo de los residuos producto del reacondicionamiento deberá hacerse conforme a lo establecido en la Ley Nº 8839 para la Gestión Integral de Residuos y su reglamento y las disposiciones legales que al respecto emita el Ministerio de Salud como rector en materia de gestión integral de desechos.
