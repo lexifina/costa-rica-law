@@ -1,0 +1,1 @@
+Artículo 2°—Ámbito de aplicación. Es aplicable a todos los Órganos, dependencias, comités y comisiones actuales y las que en el futuro se establezcan, que se encuentren adscritas administrativa, jerárquica o legalmente al Instituto Costarricense de Pesca y Acuicultura -INCOPESCAArtículo

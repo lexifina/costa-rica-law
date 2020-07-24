@@ -1,0 +1,1 @@
+Artículo 14.—Modificaciones al presente Reglamento. El presente Reglamento podrá ser modificado por la Auditoría Interna del INCOPESCA en lo que considere oportuno, quien elevará su solicitud al órgano colegiado para el debido trámite y aprobación.

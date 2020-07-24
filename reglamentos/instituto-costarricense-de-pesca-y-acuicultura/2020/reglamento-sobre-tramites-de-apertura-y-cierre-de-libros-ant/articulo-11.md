@@ -1,0 +1,1 @@
+Artículo 11.—Plazo para presentar la solicitud de reposición de libros en la Auditoría Interna. El responsable de los libros e interesado en la reposición de un libro contará con un plazo de diez días hábiles para presentar los documentos ante la Auditoría Interna, una vez se haya enterado del extravío, robo, o destrucción del libro.

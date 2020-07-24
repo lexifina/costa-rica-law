@@ -1,0 +1,1 @@
+3°—Marco legal y competencia. Compete a la Auditoria Interna del Incopesca de conformidad con el artículo 22 inciso e) de la Ley General de Control Interno, la autorización de apertura y cierre de libros contables y de actas que legal o reglamentariamente deben llevar los diferentes Órganos del INCOPESCA.
