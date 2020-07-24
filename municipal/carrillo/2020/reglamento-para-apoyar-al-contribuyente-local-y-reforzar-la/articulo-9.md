@@ -1,0 +1,2 @@
+Artículo 9°—Por haberse reformado el artículo 88 de la Ley 7794, Código Municipal, de 30 de abril de 1998, se establece que en casos de calamidad pública o emergencia nacional o cantonal, declarados por el Gobierno central, las municipalidades podrá suspender, a petición de los licenciatarios, temporalmente la vigencia de las licencias otorgadas por un plazo máximo hasta de doce meses.
+Durante el plazo de suspensión, al no estar desarrollándose la actividad comercial, no se cobrará el impuesto correspondiente a que hace referencia el párrafo anterior.
