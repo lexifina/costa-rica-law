@@ -1,0 +1,2 @@
+Transitorios.
+Transitorio I.—Evaluación del periodo 2018 y 2019. En virtud de lo dispuesto en el Transitorio XXXIII del Título III de la Ley de Fortalecimiento de las Finanzas Públicas, Ley Nº 9635 y de la gradualidad que se requiere para efectuar una serie de ajustes complejos a lo interno de la Municipalidad de Carrillo, para efectuar la evaluación de las labores realizadas en 2018 y en 2019 corresponde aplicar el instrumento de evaluación con que cuenta, de previo a la entrada en vigencia de este reglamento.

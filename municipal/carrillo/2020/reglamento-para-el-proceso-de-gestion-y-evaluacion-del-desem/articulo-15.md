@@ -1,0 +1,1 @@
+Artículo 15.—Sistema informático de evaluación del desempeño. La Municipalidad de Carrillo, coordinando con el Departamento de Tecnologías de Comunicación e Información, implementarán la herramienta tecnológica que le permita atender los requerimientos y facilite la planificación, análisis, seguimiento y evaluación del desempeño de sus trabajadores.
