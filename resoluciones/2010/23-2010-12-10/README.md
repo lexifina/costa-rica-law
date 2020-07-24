@@ -51,3 +51,4 @@ Comunica emisión de resoluciones de la Dirección General del Servicio Civil:(D
 | 36 | 2020-01-29 | Resolución 1 (2020-01-29) |
 | 37 | 2020-03-16 | Resolución 4 (2020-03-16) |
 | 38 | 2020-05-07 | Resolución 6 (2020-05-07) |
+| 39 | 2020-07-24 | Resolución 9 (2020-07-24) |
