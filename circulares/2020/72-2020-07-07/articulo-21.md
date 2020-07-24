@@ -1,0 +1,1 @@
+Artículo 21.—Publicación: Se instruye a la Proveeduría Institucional a realizar la publicación del presente protocolo, de conformidad con lo establecido en los artículos 120.1, 123, 140 y 240 de la Ley General de la Administración Pública.

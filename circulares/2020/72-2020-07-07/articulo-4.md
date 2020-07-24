@@ -1,0 +1,1 @@
+Artículo 4º—Formalización de la convocatoria: La convocatoria se realizará mediante una citación efectuada por el/la Procurador (a) a cargo del expediente, en el cual se señalará el día, hora y enlace para la videoconferencia.

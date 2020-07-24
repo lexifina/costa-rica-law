@@ -1,0 +1,5 @@
+Artículo 10.—Acto de la comparecencia por videoconferencia: El/la procurador(a) a cargo dirigirá la comparecencia según se describe a continuación:
+a. Iniciar activando la opción de grabado disponible en la plataforma, e informar a las personas comparecientes que, a partir de ese momento están siendo grabados en audio y video, lo cual quedará constando en el expediente, sin perjuicio de las autorizaciones que la plataforma solicita a los participantes de la reunión para activar el modo de grabación.
+b. Indicar la fecha, hora, la diligencia a realizar y los datos de identificación del expediente. Además, constatar la identidad del compareciente y/o su abogado, para lo cual el PA deberá solicitar que los documentos de identificación sean expuestos ante la cámara.
+c. Solicitar a los comparecientes que manifiesten expresamente si la ubicación física en la que se encuentran cumple con las condiciones descritas en el artículo 7° de este Protocolo.
+d. Al finalizar la sesión, el/la Procurador(a) a cargo avisará el momento preciso en que detiene la grabación y autorizará la salida de los participantes.
