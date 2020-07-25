@@ -1,0 +1,3 @@
+Artículo 16. Rotulado de bienes patrimoniales. Efectuado el registro del bien, Activos Municipales procederá a iniciar el proceso de identificación de estos con el sistema de rotulado (Placa de metal, plástica o cualquier otro sistema de alta seguridad), para lo cual efectuará, las acciones de coordinación que correspondan con la Bodega Municipal.
+El colaborador de la Bodega Municipal verificara que Activos Municipales realice oportunamente dicha acción, de detectar algún atraso u omisión, hará el requerimiento de inmediato ante dicha Gestión para que proceda con su ejecución, con copia al Ejecutor de Programa Presupuestario.
+Ningún bien podrá salir de la Bodega Municipal si no está debidamente registrado e identificado con el sistema de rotulado.

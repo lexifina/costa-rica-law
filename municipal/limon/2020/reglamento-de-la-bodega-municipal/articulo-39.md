@@ -1,0 +1,1 @@
+Artículo 39. Prohibición de realizar ajustes de oficio. Los colaboradores de la Bodega Municipal, por ningún motivo podrán efectuar ajustes sin seguir los procedimientos establecidos en el presente reglamentos.

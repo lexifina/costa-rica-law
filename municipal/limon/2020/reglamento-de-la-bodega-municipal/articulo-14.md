@@ -1,0 +1,3 @@
+Artículo 14. Recepción de Equipo Liviano y Pesado. El sitio de entrega de equipo liviano y pesado se llevará a cabo en el lugar indicado en el pliego de condiciones (Cartel). Para la recepción, la Unidad de Bienes y Servicios coordinará con el Ejecutor del Programa Presupuestario y la Bodega Municipal, que estará a cargo del registro del equipo para efectos de control.
+Lo anterior para que asistan al acto de recepción, junto a los funcionarios que brindarán la asesoría técnica.
+Tal recepción se efectuará conforme al procedimiento establecido en el Reglamento a la Ley de Contratación Administrativa y se registrará en la Bodega Municipal como Cargo Directo.

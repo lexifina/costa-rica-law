@@ -1,0 +1,2 @@
+Artículo 25. Conteo y verificación de las características de los bienes a despachar. El funcionario de la Bodega Municipal deberá efectuar el conteo y revisión minuciosas que corresponda, a fin de verificar que los bienes que se entreguen coinciden con los que se indican en el formulario “Requisición de Bienes de Bodega”. Lo anterior deberá ser corroborado además por el funcionario que se apersona al retiro.
+Dicho formulario deberá estar firmado por el colaborador de la Bodega Municipal, así como del funcionario que efectúa el retiro.

@@ -1,0 +1,17 @@
+CAPITULO II
+RESPONSABILIDADES DE LAS DEPENDENCIAS INVOLUCRADAS
+Artículo 4. Responsabilidad de la Jefatura de Bodega Municipal (Unidad de Almacenamiento). Recibir y verificar que los proveedores entreguen en la Bodega Municipal, los bienes adjudicados dentro del plazo contractual establecido, y que cumplan con las respectivas condiciones de calidad, cantidad y especificaciones técnicas acordadas.
+A dichos efectos requerirá asesoría y criterio técnico del usuario final del bien o de las dependencias competentes de la Municipalidad del Cantón Central de Limón.
+a) Almacenar y custodiar, en condiciones físicas, técnicas y de seguridad apropiada y bajo un adecuado control de inventarios, los bienes adquiridos por la Municipalidad del Cantón Central de Limón a través de los diferentes procedimientos de contratación administrativa; así como los bienes que se reciben en la bodega adquiridos por cualquiera de los mecanismos que al efecto establece el ordenamiento jurídico.
+b) Instruir y verificar que se dé una adecuada rotación de los bienes según sus características, informando de ello periódicamente a los Ejecutores de Programas Presupuestarios.
+c) Emitir lineamientos en materia de custodia, registro y control de los bienes de conformidad con las políticas, directrices, normas y procedimientos emanados por los superiores jerárquicos.
+d) Verificar que los ejecutores de los programas presupuestarios efectúen oportunamente la designación de los funcionarios que estarán autorizados para solicitar y retirar bienes de la bodega municipal. En caso de detectar atrasos en tal designación, deberá efectuar el requerimiento al respectivo Ejecutor de Programa Presupuestario.
+e) Efectuar los inventarios físicos selectivos o generales de la bodega municipal y emitir el informe respectivo.
+f) Efectuar los inventarios físicos generales y emitir el informe respectivo, el cual se remitirá a la jefatura inmediata para el tramite contable de los ajustes respectivos.
+g) Realizar los ajustes que correspondan, conforme a los procedimientos establecidos en el presente reglamento, cuando sea necesario como resultado de los cierres diarios o mensuales, o bien como resultado de los inventarios selectivos o generales que se realicen en la Bodega Municipal.
+h) Coordinar con la Unidad de Salud Ocupacional, para que se verifique que se cumpla con las condiciones de seguridad e higiene de la Bodega Municipal, de acuerdo con la programación que para tales efectos se realice y rendir un informe al superior inmediato para que las dependencias competentes tomen las acciones correctivas que correspondan, las cuales serán de acatamiento obligatorio.
+i) Asesorar al personal de la Bodega Municipal, así como a los demás funcionarios en aspectos relacionados a sus competencias.
+j) Considerar el reporte de saldos a efectos de que, al tramitarse el plan de compras anual, efectuar las observaciones necesarias a los Ejecutores de Programas Presupuestarios, de detectar las inclusiones de bienes a adquirir respecto a los cuales se tienen suficientes existencias.
+k) Verificar los saldos de inventario, de previo a tramitar las Solicitudes de Pedidos, de detectar existencias insuficientes, advertir al Ejecutor de Programa Presupuestario.
+l) Informar periódicamente a la Jefatura inmediata sobre las labores realizadas en la Bodega Municipal.
+m) Las demás funciones que le asignen sus superiores jerárquicos o el ordenamiento jurídico.

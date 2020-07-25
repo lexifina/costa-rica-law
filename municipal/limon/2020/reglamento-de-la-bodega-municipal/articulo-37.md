@@ -1,0 +1,3 @@
+Artículo 37. Inventarios físicos selectivos. Los colaboradores de la Bodega Municipal deberán efectuar inventarios físicos selectivos, parciales o totales, para verificar que las existencias físicas concuerden con lo registrado en el sistema. Lo anterior conforme la programación que se establezca.
+El inventario selectivo es una muestra aleatoria, entre un 10% y un 20% del total de los bienes en la Bodega Municipal, hasta alcanzar el 100% del inventario.
+Comprende a un grupo de bienes previamente seleccionados y que registren mayor movimiento. La programación de los inventarios selectivos deberá efectuarse en el mes de enero de cada año. Se realizará un reporte de los resultados.

@@ -1,0 +1,2 @@
+Artículo 26. Registro en el sistema informático y demás sistemas de control El colaborador de la Bodega Municipal registrara las salidas en el sistema tanto para los bienes de cargos directo y como los bienes de inventario.
+Para los bienes de inventario, el registro de la salida en el sistema, se enlazará con el sistema de contabilidad municipal, creando el registro contable respectivo cuando este sea habilitado.

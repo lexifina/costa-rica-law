@@ -1,0 +1,1 @@
+Artículo 28. Plazo de validez del formulario “Requisición de Bienes de Bodega” El formulario “Requisición de Bienes de Bodega”, tendrán una validez de treinta días calendario a partir de su confección y una vez transcurrido dicho lapso, sin su efectiva utilización, quedará sin efecto y se deberá iniciar de nuevo con el trámite.
