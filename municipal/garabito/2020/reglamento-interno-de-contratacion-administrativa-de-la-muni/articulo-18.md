@@ -1,0 +1,1 @@
+ARTÍCULO 18: DEL PROCESO DE RESOLUCION DE RECURSOS DE REVOCATORIA. Cuando se considere necesario, podrá solicitarse a la Comisión de Contratación Administrativa, que de curso al proceso de análisis de cada recurso, siendo esta la que debe recomendar al ente que resuelve, la resolución del recurso.

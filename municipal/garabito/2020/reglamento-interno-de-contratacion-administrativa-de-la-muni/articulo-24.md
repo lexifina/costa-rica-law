@@ -1,0 +1,1 @@
+ARTÍCULO 24: VIGENCIA. Rige a partir de su publicación. Garabito 23 de julio del 2020-Mba Juan Alonso Araya Ordóñez-Proveedor Municipal a.i.-Solicitud N° 211276-2 vez-aprobado en SESION ORDINARIA N°12-2020 del 20 julio 2020.

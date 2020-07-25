@@ -1,0 +1,3 @@
+SECCION II: PROCESO DE CONTRATACION Y DICTADO DEL ACTO FINAL.
+ARTÍCULO 15: SISTEMA INTEGRADO DE ACTIVIDAD CONTRACTUAL (SIAC). Toda la información sobre las contrataciones que desarrolla la Municipalidad de Garabito, deberá ser incluida en el SIAC, conforme a lo que indican las Directrices para el Registro, la Validación y el Uso de la Información sobre la Actividad Contractual Desplegada por los Sujetos Pasivos del Control y la Fiscalización de la Contraloría General de la República (D-4-2005-CO-DDI).
+En el proceso de uso y alimentación del SIAC, se atenderá lo que al respecto indica el Manual de Procedimientos de Inclusión de Información en el SIAC.
