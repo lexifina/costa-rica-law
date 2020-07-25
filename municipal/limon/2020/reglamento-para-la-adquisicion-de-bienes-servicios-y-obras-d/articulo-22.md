@@ -1,0 +1,1 @@
+Artículo 22°-Exclusión de Registro de Proveedores. La exclusión en el registro de Proveedores se regirá de acuerdo con la normativa vigente en materia de Contratación Administrativa, artículo 124 del Reglamento de la Ley de Contratación Administrativa.

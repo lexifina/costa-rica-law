@@ -1,0 +1,1 @@
+Artículo 34°.-Dependencia encargada de la elaboración de los contratos. La dependencia de elaborar los contratos, cuando así se requiera, será la Asesoría Legal la que velará para que se incorporen al menos las siguientes disposiciones: precio, tiempo de entrega, forma de pago, características técnicas del objeto contratado y cualquier otro aspecto ateniente.

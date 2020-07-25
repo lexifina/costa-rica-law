@@ -1,0 +1,1 @@
+Transitorio Único: La Municipalidad dentro del proceso de incorporación al Gobierno Digital, paulatinamente podrá establecer los sistemas de compras digitales de acuerdo a su disposición técnica, humana y financiera. Es todo- Promúlguese y publíquese.

@@ -1,0 +1,1 @@
+Artículo 25°. - Invitación a participar. La Proveeduría será la encargada de dar la divulgación al cartel según el procedimiento ordinario que se trate, de acuerdo con lo establecido en los artículos 93 y 98 del RLCA.

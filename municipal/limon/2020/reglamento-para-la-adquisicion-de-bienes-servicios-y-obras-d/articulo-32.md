@@ -1,0 +1,1 @@
+Artículo 32°.-Comunicación. La Proveeduría Municipal será la encargada de comunicar a los oferentes los actos de adjudicación o resoluciones de adjudicación dentro de los plazos previstos en el artículo 88 del RLCA, por los mismos medios utilizados para invitar a participar.

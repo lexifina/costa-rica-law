@@ -1,0 +1,5 @@
+SECCIÓN III
+Procedimiento de Contratación Administrativa
+Artículo 23°. -El Cartel. Contendrá las condiciones generales de la contratación y las especificaciones técnicas, de conformidad con lo indicado en el artículo 51 del RLCA. El contenido del cartel establecerá como mínimo los requisitos establecidos en el citado reglamento.
+23.1 El Departamento de Proveeduría será el encargado de elaborar los carteles de Licitaciones Abreviadas y Públicas y de Contratación Directa en coordinación con la unidad técnica solicitante, además contar con el aval del superior jerárquico de la dependencia solicitante del bien y/o servicio. En las compras de menor cuantía, adquisición de bienes y servicios basta con el visto bueno del encargado de la dependencia solicitante.
+23.2 La invitación a participar lo hará la proveeduría por medios electrónicos habilitados para los procedimientos de contratación ordinarios y excepción y tratándose de Licitaciones Públicas se realizará por medio del diario oficial La Gaceta.
