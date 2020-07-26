@@ -1,0 +1,1 @@
+Artículo 6°- Modifíquese del Reglamento de Aeródromos número 4439T del 03 de enero de 1975, la redacción del artículo 167 para que en adelante se lea: “Los aeródromos civiles estarán sujetos al control y vigilancia de la autoridad aeronáutica”

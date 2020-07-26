@@ -1,0 +1,1 @@
+Artículo 15°- Modifíquese del Reglamento de Aeródromos número 4439T del 03 de enero de 1975, la redacción del artículo 204 para que en adelante se lea: “Para la utilización de un aeródromo o aeropuerto en el país, así como de los servicios que éste preste, se deberá pagar las tasas o derechos que fije el Consejo Técnico de Aviación Civil”

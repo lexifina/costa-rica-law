@@ -1,0 +1,1 @@
+Artículo 5°- Modifíquese del Reglamento de Aeródromos número 4439T del 03 de enero de 1975, la redacción del artículo 166 para que en adelante se lea: “Aeródromos internacional son los que el Poder Ejecutivo designe con ese carácter para que sirvan de puntos de entrada y salida del país”

@@ -1,0 +1,1 @@
+Artículo 2º—Derogación. Deróguese del Reglamento de Aeródromos número 4439T del 03 de enero de 1975 del Capítulo I Definiciones desde la definición “Aeródromos de Alternativa” hasta la definición “zona libre de obstáculos”.

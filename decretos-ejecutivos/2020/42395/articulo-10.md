@@ -1,0 +1,1 @@
+Artículo 10°- Modifíquese del Reglamento de Aeródromos número 4439T del 03 de enero de 1975, la redacción del artículo 181 para que en adelante se lea: “El permiso de operación de un aeródromo será inscrito en la Dirección General de Aviación Civil”

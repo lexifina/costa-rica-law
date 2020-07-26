@@ -1,0 +1,1 @@
+Transitorio único: La definiciones, acrónimos y artículos relacionados con el Formato Global Mejorado para Valoración y Reporte de las Condiciones de la Superficie de la Pista incluidas en la enmienda 13-B, del Anexo 14, volumen I, de la Organización de Aviación Civil Internacional (OACI), incluidos en este reglamento, entrarán en vigencia a partir del 5 de noviembre de 2020.

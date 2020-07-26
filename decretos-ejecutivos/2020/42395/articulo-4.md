@@ -1,0 +1,1 @@
+Artículo 4°- Modifíquese del Reglamento de Aeródromos número 4439T del 03 de enero de 1975, el nombre del Capítulo VI para que en adelante se lea: “Aeródromos: Requisitos para construir, inscribir y operar”.

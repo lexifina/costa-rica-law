@@ -1,0 +1,1 @@
+Artículo 3°- Deróguese del Reglamento de Aeródromos número 4439T del 03 de enero de 1975 del artículo 1 al artículo 154, 158, 163, así como del artículo 169 al 176, artículo 180, 186, así como del artículo 192 al 203, así como el artículo 207.
