@@ -1,0 +1,1 @@
+Artículo 2º—Derogación. Deróguese RAC 139 “Regulaciones Aeronáuticas Costarricense certificación de aeropuertos”, Decreto ejecutivo número 31803-MOPT, publicado en el Diario Oficial La Gaceta el 24 de mayo de 2004.
