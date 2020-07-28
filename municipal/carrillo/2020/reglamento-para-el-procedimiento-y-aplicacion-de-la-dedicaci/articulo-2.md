@@ -1,0 +1,1 @@
+Artículo 2º—Objetivo. El presente reglamento interno tiene como objeto definir internamente las reglas y procedimientos necesarios para su aplicación en estricto cumplimiento de las disposiciones del Título III de la Ley N° 9635 del 03 de diciembre del 2018.

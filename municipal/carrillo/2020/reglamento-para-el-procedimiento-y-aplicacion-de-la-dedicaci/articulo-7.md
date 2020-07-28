@@ -1,0 +1,5 @@
+CAPÍTULO III
+Del procedimiento para acogerse al Régimen
+de Dedicación Exclusiva
+Artículo 7º—El servidor municipal que desee acogerse al Régimen de Dedicación Exclusiva y que cumpla con los requisitos que se señalan en el artículo 3º de este reglamento, deberá solicitarlo por escrito al Departamento de Recursos Humanos de la institución.
+El Departamento de Recursos Humanos tramitará lo atinente para la firma del contrato ante la Alcaldía Municipal, adjuntará para ello una certificación en donde conste que en el caso concurren todas las condiciones y requisitos que se señalan en el artículo 3° de este reglamento, que se ha seguido el procedimiento que se exige; además de los originales y fotocopias del título académico o certificación de la universidad o centro de enseñanza superior que le acredite el grado profesional correspondiente, extendido por su “Oficina de Registro” o la oficina autorizada para extender este tipo de documentos y el título de la incorporación al colegio profesional respectivo.

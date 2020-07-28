@@ -1,0 +1,17 @@
+Artículo 22.—Se establece como modelo de uso obligatorio para la dedicación exclusiva, el siguiente contrato:
+MODELO DE CONTRATO DE DEDICACION EXCLUSIVA
+Entre nosotros, __________________ en condición de Alcalde(sa) Municipal, en representación legal de la denominada en lo sucesivo, LA MUNICIPALIDAD, y el funcionario _______________________, nombrado a tiempo completo, denominado en lo sucesivo en este contrato SERVIDOR MUNICIPAL, con fundamento en el Reglamento para la Aplicación de la Dedicación Exclusiva en la Municipalidad de Carrillo, convenimos en el siguiente CONTRATO DE DEDICACIÓN EXCLUSIVA, el cual se regirá por las siguientes cláusulas:
+PRIMERA: EL SERVIDOR MUNICIPAL se compromete, mientras estén vigentes las disposiciones legales que lo fundamentan, a prestar sus servicios en forma exclusiva a la institución, por corresponder la naturaleza de su trabajo a la profesión que ostenta, en el puesto de ___________, especialidad__________________, que desempeña actualmente en el Departamento (Dirección) de __________________. Asimismo, se compromete a no ejercer la profesión que motiva la firma de este contrato.
+SEGUNDA: LA MUNICIPALIDAD le concede al SERVIDOR una compensación económica equivalente a un__________ % de su salario base.
+TERCERA: LA MUNICIPALIDAD velará por el cumplimiento de las obligaciones que se señalan en el presente contrato y las contenidas en el Reglamento para la Aplicación de la Dedicación Exclusiva en la Municipalidad de Carrillo, sin perjuicio de las facultades de inspección que podrían realizar la Auditoría Interna o en su defecto el Departamento de Recursos Humanos, cuando así lo juzguen convenientes.
+CUARTA: El SERVIDOR MUNICIPAL se compromete, bajo juramento, a cumplir fiel y estrictamente con las estipulaciones de este contrato y las disposiciones del reglamento que lo regula.
+El incumplimiento de las citadas disposiciones dará ocasión a que se apliquen las sanciones disciplinarias que correspondan previa instauración del Órgano de Procedimiento Disciplinario que recomiende a la Alcaldía la imposición de la correspondiente sanción.
+QUINTA: El presente contrato tiene una VIGENCIA MAXIMA DE CINCO AÑOS, rige a partir del día en que las partes lo acuerdan y firman. A la finalización del mismo, las partes deberán proceder a firmar un nuevo contrato, siendo el plazo de cinco años el establecido en cada renovación. Este contrato se preparará en tres tantos que se distribuirán así:
+1.- A la Alcaldía Municipal.
+2.- El servidor municipal.
+3.- Al Departamento de Recursos Humanos (quien custodiará el original)
+El servidor manifiesta conocer y aceptar las disposiciones del reglamento que regula el presente contrato y sus implicaciones legales.
+En fe de lo anterior y debidamente enterado de los deberes impuestos del valor y trascendencia de lo aquí contratado, lo aceptamos y firmamos en la ciudad de Filadelfia a los___________ días, del mes de___________ del 20___.
+Firma por la Institución Firma del Servidor Cédula N°____________ Cédula N°_______________________
+SE ACUERDA; Visto y analizado el citado reglamento “PARA EL PROCEDIMIENTO Y APLICACIÓN DE LA DEDICACIÓN EXCLUSIVA EN LA MUNICIPALIDAD DE CARRILLO y a través de la recomendación emitida por la Comisión de Asuntos Jurídicos este Concejo Municipal dispone aprobar el reglamento antes mencionado a la vez que se proceda a su debida publicación en el Diario Oficial La Gaceta. Acuerdo definitivamente aprobado.
+Filadelfia-Carrillo, 20 de julio del 2020.

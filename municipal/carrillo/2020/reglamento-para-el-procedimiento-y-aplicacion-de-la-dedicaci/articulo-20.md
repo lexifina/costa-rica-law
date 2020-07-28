@@ -1,0 +1,1 @@
+Artículo 20.—Derógase el actual Reglamento de Dedicación Exclusiva de la Municipalidad de Carrillo, no obstante, se conservan los derechos patrimoniales adquiridos por los funcionarios municipales antes de la entrada en vigencia de la Ley N° 9635 en lo referente a este tema.
