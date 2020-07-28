@@ -1,0 +1,1 @@
+Artículo 3.- Participación en las sesiones virtuales. El integrante del órgano colegiado debe informar con anterioridad la plataforma de comunicación por la cual participa para que la Dirección Ejecutiva pueda informar antes de realizar la sesión virtual sobre qué miembros participan de manera virtual para tener el quorum necesario para realizar la sesión.
