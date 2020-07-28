@@ -1,0 +1,1 @@
+Artículo 9º—La asignación del porcentaje que le corresponda al servidor municipal se efectuará de conformidad con lo que al efecto disponga la ley o resolución judicial que lo autorice y así se indicará de forma expresa y obligatoria en la resolución administrativa de la Alcaldía y que autorice la Acción de Personal de cada nombramiento.

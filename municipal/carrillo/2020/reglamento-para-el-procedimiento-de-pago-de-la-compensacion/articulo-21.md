@@ -1,0 +1,1 @@
+Artículo 21.—Cuando el Departamento de Recursos Humanos, tenga noticia de este incumplimiento procederá de inmediato a informar a la Alcaldía, quien procederá a conformar Órgano Director de Procedimiento, a fin de que se lleve a cabo el procedimiento ordinario disciplinario establecido en los artículos 308 y siguientes de la Ley General de la Administración Pública.

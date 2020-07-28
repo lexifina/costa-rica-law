@@ -1,0 +1,1 @@
+Artículo 13.—Es atribución de la Alcaldía y el Departamento de Recursos Humanos, coordinar, controlar y emitir criterios en relación con este beneficio, los cuales serán de acatamiento obligatorio para todos los funcionarios de la Municipalidad.
