@@ -15,3 +15,4 @@ Reglamento para Ayudas Temporales y Subvenciones.
 | --- | --- | --- |
 | 1 | 2003-10-08 | la propia norma |
 | 2 | 2005-05-03 | Reglamento municipal 26 (2005-05-03) |
+| 3 | 2020-07-28 | Reglamento municipal 40 (2020-07-28) |
