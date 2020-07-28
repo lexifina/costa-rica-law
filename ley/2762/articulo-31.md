@@ -1,8 +1,1 @@
-Artículo 31.- El beneficiador deber realizar sus ventas de café para
-consumo local, a través de la Bolsa de Café, y para exportación, sujeto a
-las especificaciones que esta ley señala. El precio de ventas para
-exportación debe estar comprendido dentro de los márgenes mínimos de
-fluctuación normal del mercado. Para calificar cuando un venta se realiza
-dentro de las condiciones aquí previstas, la Oficina del Café mantendrá un
-estudio actualizado de las ventas locales para exportación y de las
-condiciones del mercado internacional.
+Artículo 31- Cada firma beneficiadora podrá tener las líneas de café diferenciado que desee, siempre y cuando demuestre que tiene capacidad para recibirlo, procesarlo, transportarlo y almacenarlo por separado, según los estudios técnicos realizados y autorizados por el Instituto del Café de Costa Rica (!café).

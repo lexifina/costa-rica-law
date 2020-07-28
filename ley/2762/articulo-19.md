@@ -1,7 +1,1 @@
-Artículo 19.- Para el caso previsto en el artículo anterior, la
-Oficina del Café dará aviso a los interesados, por lo menos con dos meses
-de anticipación al inicio de la recolección de la cosecha,de la
-demarcación de zonas y diferencia de precios aprobada. El beneficiador
-debe consignar, en los recibos, la zona a que corresponde la entrega que
-se constata, y en los informes quincenales especificar la cantidad
-recibida de cada zona.
+Artículo 19- Cualquier beneficiador o grupo de productores, que represente cuando menos una tercera parte del total de entregas al beneficio respectivo en el año inmediato anterior, podrá solicitar que se le fijen hasta dos zonas de recibo de café en fruta, atendiendo a la diferencia de altura en que es cosechado el grano. El gestionante o los gestionantes propondrán el porcentaje de diferencia del precio para el pago del café de las respectivas zonas. El Instituto del Café de Costa Rica (lcafé), oyendo a las partes afectadas, y previo estudio técnico de los factores agrícola-económicos que justifiquen el caso, autorizará o denegará la solicitud determinando, cuando proceda, las dos zonas de recibo y diferencia de precio que juzgue indicados. Para dejar sin efecto esta determinación, precisa igualmente la autorización del Instituto del Café de Costa Rica y la notificación a los productores, con la antelación que se señala en el artículo siguiente.

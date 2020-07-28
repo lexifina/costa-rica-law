@@ -1,5 +1,3 @@
-Artículo 8º.- Se tendrá como exportador autorizado de café a toda
-persona física o jurídica que por cuenta propia o a nombre de casas
-principales en el exterior, se dedique a la compra y exportación de este
-producto, previa inscripción en el registro correspondiente de la Oficina
-del Café.
+Artículo 8- Se presume responsables de todos los actos y las omisiones de las firmas beneficiadoras a sus respectivos gerentes o, por cualquier otra forma, representantes legales, debiendo responder solidariamente estos de las responsabilidades civiles o penales que a la firma pudieran corresponder.
+Para operar una planta de beneficio se requiere obtener licencia del Instituto del Café de Costa Rica (lcafé), que establecerá las garantías que juzgue necesarias.
+En el caso de arrendatarios de plantas beneficiadoras, el Instituto del Café de Costa Rica determinará las garantías adicionales que deben ofrecerse.

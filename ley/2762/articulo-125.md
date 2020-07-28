@@ -1,6 +1,8 @@
-Artículo 125.- La Dirección Ejecutiva del Instituto del Café de
-Costa Rica está facultada para no dar trámite a las gestiones de los
-beneficiadores, exportadores y torrefactores que, a su juicio, no hayan
-cumplido las respectivas obligaciones que esta Ley establece.
-(Así reformado por el artículo 1º de la Ley Nº 6988 de 26 de junio de
-1985 e interpretado por Resolución de la Sala Constitucional de las 15:05 horas del 13 de setiembre de 2000, en el sentido de la Junta Directiva del ICAFE puede negarse a resolver favorablemente las gestiones que no cumplan con los requisitos legales relativos a la solicitud de que se trate, lo cual deberá hacer mediante acto debidamente fundamentado).
+TÍTULO TERCERO
+Disposiciones generales y transitorias
+CAPÍTULO I
+Participación y obligaciones del Instituto del Café de Costa Rica
+Artículo 125- La ejecución y la vigilancia de esta ley estarán a cargo del Instituto del Café de Costa Rica (!café), el cual tendrá como finalidades las siguientes:
+a) Propiciar un régimen equitativo de relaciones entre los distintos sectores que participan en la actividad cafetalera. Esta acción la coordinará con las instituciones del Estado, a fin de velar por el cumplimiento y mejoramiento de las disposiciones legales y reglamentarias relativas al café.
+b) Propiciar, en colaboración con entidades públicas y privadas, el desarrollo de la actividad cafetalera en todas sus etapas, así como la diversificación agrícola del país.
+c) Formular y proponer al Poder Ejecutivo las políticas que deban seguirse en cuanto a la actividad cafetalera del país, así como defender los intereses de esa actividad, tanto en el ámbito nacional como internacional.

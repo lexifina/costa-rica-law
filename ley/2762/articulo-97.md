@@ -1,4 +1,2 @@
-Artículo 97.- La certificación de la Oficina del Café, pro la que
-resulte que el exportador ha obtenido mayores utilidades de las que esta
-ley autoriza, y hasta por el monto percibido de más por el exportador,
-tendrá carácter de título ejecutivo en favor del beneficiador.
+Artículo 97- La inscripción de contratos de compraventa de café para la exportación se hará previa autorización y bajo la responsabilidad del director ejecutivo del Instituto del Café de Costa Rica (lcafé). No se inscribirán contratos en los que se consigne como fecha de pago una ulterior a los veinte días hábiles siguientes al momento de entrega del café por el beneficiador, para su exportación.
+Toda entrega de café para exportación deberá informarse por ambas partes al Instituto del Café de Costa Rica, conforme a lo que establece la reglamentación de esta ley. Cumplido el plazo indicado, y con vista de sus registros, el Instituto del Café de Costa Rica deberá certificar el crédito del beneficiador, que tendrá carácter de título ejecutivo y al cual el exportador solo podrá oponer las excepciones de pago o prescripción. Estos créditos prescribirán en el término de cuatro años, a partir del momento en que sean exigibles.

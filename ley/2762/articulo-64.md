@@ -1,10 +1,3 @@
-CAPITULO VI
-Del régimen de financiación
-Artículo 64.- Es función primordial de los Bancos nacionales,
-dirigir la política crediticia para financiación de cosechas de café, con
-criterio económico-social de ayuda y protección al productor, y en tal
-virtud el Banco Central debe incluir en los reglamentos para financiación
-de cosechas de café, un sistema que permita el financiamiento directo a
-los caficultores.
-(Así reformado por el artículo 2º de la Ley Nº 2798 de 1º de agosto de
-1961).
+CAPÍTULO VII
+Precio de liquidación final
+Artículo 64- El precio en toda negociación de café, entre productores y beneficiadores, se determinará exclusivamente mediante liquidaciones provisionales y definitivas. Son prohibidas todas las negociaciones no sujetas a la fijación ulterior de precios en las respectivas liquidaciones, excepto aquellas debidamente autorizadas por esta ley, las cuales deberán ser elaboradas conforme a lo dispuesto en esta ley y sus reglamentos.

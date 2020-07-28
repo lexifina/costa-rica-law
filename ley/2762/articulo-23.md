@@ -1,6 +1,2 @@
-CAPITULO II
-De la elaboración
-Artículo 23.- La Oficina del Café , con base en estudio técnico, debe
-determinar la capacidad máxima de elaboración norma diaria y total por
-cosecha para cada beneficio, en forma periódica o cuando sus instalaciones
-sean modificadas y así se solicite por el interesado.
+Artículo 23- Los beneficiadores están obligados a rendir un informe quincenal al Instituto del Café de Costa Rica (!café), de la cantidad de café entrada a sus patios, detallando el propio y el comprado, las cantidades de café maduro y verde, y el desglose por zonas en su caso. El Instituto del Café de Costa Rica podrá ordenar las investigaciones que crea pertinentes para su constatación.
+La firma beneficiadora que incumpla con la disposición del presente artículo será sometida a la sanción de suspensión de sus operaciones, de conformidad con lo establecido en la presente ley.

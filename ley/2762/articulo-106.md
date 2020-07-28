@@ -1,4 +1,2 @@
-Artículo 106.- La Oficina del Café deberá adoptar las disposiciones
-administrativas necesarias y reclutar el personal indispensable para el
-buen desarrollo de sus funciones incluida la del cumplimiento de esta
-ley.
+Artículo 106- El exportador debe ejecutar los contratos con la misma calidad de café recibida del beneficiador, cuando se trate de exportaciones de café por marcas.
+Cuando por conveniencia del mercado se necesite efectuar mezclas de varias partidas, o mejorar su presentación, el exportador podrá realizarlas haciendo uso de sus propias marcas, debidamente registradas en el Instituto del Café de Costa Rica (lcafé) y bajo la vigilancia de ese organismo.

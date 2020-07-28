@@ -1,13 +1,3 @@
-Artículo 54.- Los beneficiadores estarán obligados a efectuar,
-trimestralmente, liquidaciones y pagos provisionales a sus clientes, en
-proporción a las ventas del trimestre inmediato anterior, cuyo pago hubiere
-recibido el beneficiador o fuere exigible por éste. También estarán
-obligados a efectuar otras liquidaciones provisionales y sus pagos
-correspondientes, cuando las ventas fueren superiores a los porcentajes que
-se establezcan en la reglamentación de esta ley, siguiendo el procedimiento
-allí establecido. En cada liquidación provisional, podrán los
-beneficiadores deducir los gastos y demás erogaciones autorizadas en el
-artículo 57, incisos 3) y 5), en la misma proporción en que estén pagando a
-sus clientes.
-(Así reformado por el artículo 1º de la Ley Nº 6988 de 26 de junio de
-1985).
+Artículo 54- Con el propósito de dar cumplimiento a compromisos de carácter internacional, el Instituto del Café de Costa Rica (lcafé) podrá obligar al beneficiador a colocar su cuota de retención en un almacén general de depósito, que puede ser la misma bodega del beneficiador habilitada como bodega auxiliar del almacén general de depósito y a obtener un certificado de depósito, que debe entregar en custodia al Instituto del Café de Costa Rica o al banco que este designe.
+El Instituto del Café de Costa Rica podrá suspender la inscripción de contratos de compra-venta de café para la exportación, a aquellos beneficiadores que no cumplan la norma anterior sobre el depósito del café de la cuota de retención.
+Se faculta al Instituto del Café de Costa Rica para que establezca o gestione la creación de un mecanismo que permita sufragar los gastos de retención de café, de forma equitativa, entre los diferentes sectores interesados.

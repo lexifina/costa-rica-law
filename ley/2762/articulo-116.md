@@ -1,4 +1,1 @@
-Artículo 116.- El congreso por mayoría, podrá adoptar
-recomendaciones sobre la política del Estado en materia cafetalera.
-Porlos dos tercios de los delegados presentes podrá desaprobar uno o
-varios aspectos de la política cafetalera".
+Artículo 116- Es deber del Instituto del Café de Costa Rica (lcafé) investigar, por todos los medios a su alcance, la veracidad de los precios pactados entre las casas exportadoras y sus compradores o corresponsales en el exterior.

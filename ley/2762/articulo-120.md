@@ -1,10 +1,5 @@
-Artículo 120.- Todos los beneficios del país, dentro de sus
-instalaciones, podrán operar plantas torrefactoras, siempre que cuenten
-con la licencia otorgada por el Instituto del Café de Costa Rica. Para
-obtenerla, deberán estar debidamente registrados como tales en ese
-Instituto; además, estas empresas deberán haber inscrito sus marcas de
-café internacional en el Registro de Marcas del Registro Nacional o, por
-lo menos, haber presentado la solicitud de inscripción y cumplir con los
-demás requisitos que establece la presente ley.
-(Así reformado por el artículo 2, inciso c), de la ley No.7551 del
-22 de setiembre de 1995)
+Artículo 120- Solamente podrán operar aquellas plantas beneficiadoras, recibidores de café, empresas tostadoras, exportadoras y compradores comerciantes que se encuentren debidamente inscritos y autorizados por el Instituto del Café de Costa Rica (lcafé), conforme a los requisitos que establece la presente ley y su reglamento.
+La planta beneficiadora o sus centros de acopio, las empresas tostadoras, las bodegas de exportación y compradores comerciantes, cuando incumplan la normativa señalada deberán regularizar su situación ante el Instituto del Café de Costa Rica, en un plazo de cinco días hábiles, después de notificada la falta.
+El lcafé podrá sancionar y clausurar las instalaciones de los agentes económicos según corresponda y de acuerdo con el artículo anterior, siempre y cuando:
+1) Después de pasados los cinco días otorgados, el infractor deberá cancelar cinco salarios base y realizar los trámites de inscripción correspondientes.
+2) Cuando exista omisión de la resolución y no se regularice la situación del infractor, ni realice el pago correspondiente, el Instituto del Café de Costa Rica podrá clausurar las instalaciones a quien infringe, hasta tanto normalice su situación.

@@ -1,0 +1,1 @@
+Artículo 140- El Congreso nombrará, de su seno y para la respectiva sesión, a un presidente y dos secretarios, quienes ostentarán tal designación hasta la próxima asamblea ordinaria, cuando se efectuarán, en igual sentido, los nombramientos referidos. El cuórum se formará con más de la mitad de sus integrantes.

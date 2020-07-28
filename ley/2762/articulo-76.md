@@ -1,8 +1,1 @@
-TITULO SEGUNDO
-De las relaciones entre beneficiador y exportador
-CAPITULO I
-De los contratos para exportación
-Artículo 76.- Toda negociación con café que se realice beneficiadores
-y casas exportadoras, se ha de regir por las especificaciones contenidas
-en el presente título, o en su defecto por lo que disponga la legislación
-mercantil.
+Artículo 76- En los procesos de liquidación individualizada deberá suscribirse un contrato entre el productor y el beneficiador, donde se definirá la cantidad de café convenida, el tipo de café, lo relacionado con deducciones -gastos de beneficiado, contribuciones en nombre del productor, utilidad del beneficio, entre otras-, así como rendimiento de beneficiado, calidades y diferenciales de precio.

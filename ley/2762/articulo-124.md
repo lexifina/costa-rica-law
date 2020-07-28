@@ -1,1 +1,2 @@
-Artículo 124.- ANULADO por Resolución de la Sala Constitucional No. 8193-00 de las 15:05 horas del 13 de setiembre de 2000.
+Artículo 124- Se facultará el recibo de café por calidad con base en las autorizaciones emitidas por la Junta Directiva por medio de las dos terceras partes (mayoría calificada), considerando el fundamento técnico para sus efectos, los mismos que emitirá mediante resolución fundada.
+Los beneficios están obligados a procesar, por separado, todas las diferentes categorías del café; a saber, convencional, diferenciado, orgánico, veranero y cualquier otra autorizada por el Instituto del Café de Costa Rica (lcafé).

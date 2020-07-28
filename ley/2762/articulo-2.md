@@ -1,1 +1,1 @@
-Artículo 2º.- Se declara de interés público lo relativo a producción, elaboración, mercadeo, calidad y prestigio del café de Costa Rica, para todos los efectos que señala la presente ley.
+Artículo 2- Se declara de interés público lo relativo a producción, elaboración, mercadeo, calidad y prestigio del café de Costa Rica, para todos los efectos que señala la presente ley. De igual manera, se exonera al Instituto del Café de Costa Rica (!café), en todos los asuntos de su actividad, del pago de impuestos del valor agregado, renta, territorial y municipales.

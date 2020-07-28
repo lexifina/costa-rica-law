@@ -1,12 +1,2 @@
-Artículo 61.- A más tardar ocho días hábiles después de la
-publicación referida en el artículo anterior, el beneficiador procederá a
-efectuar la liquidación final de cuentas con sus clientes, y obtendrá de
-cada productor un comprobante por los pagos que efectúe. Transcurridos los
-ocho días a que se refiere este párrafo, o de la respectiva comunicación,
-cuando se trate de liquidaciones provisionales, los recibos que tenga en su
-poder el productor, o la certificación de los recibos expedida por el
-Instituto del Café de Costa Rica, tendrán carácter de título ejecutivo, al
-cual el beneficiador sólo podrá oponer las excepciones de pago o de
-prescripción decenal.
-(Así reformado por el artículo 1º de la Ley Nº 6988 de 26 de junio de
-1985).
+Artículo 61- Dentro de los primeros cinco días calendario del mes de agosto, los beneficiadores deberán enviar, al Instituto del Café de Costa Rica (lcafé), un informe que contenga la cantidad de café en fruta recibido, el detalle de café para la exportación entregado a los exportadores, la cantidad de café enviada al Instituto del Café de Costa Rica para consumo nacional y la cantidad de café en existencia, indicando, en este último caso, la cantidad que se encuentra en bellota, en pergamino y en oro; todos estos datos contados al 31 de julio siguiente al respectivo año cosecha.
+El año cosecha corresponderá al café ingresado a los beneficios entre el 1 ° de abril de un año y el 30 de marzo del año siguiente. Los informes de fanegas presentados al Instituto del Café de Costa Rica, después del 15 de abril, no se computarán al año cosecha inmediato anterior.

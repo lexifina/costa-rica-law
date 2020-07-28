@@ -1,9 +1,3 @@
-Artículo 118.- Si el café a que se refiere el artículo anterior
-estuviere en fruta, quienes lo hubieren decomisado procederán de inmediato
-a depositarlo en el beneficio más cercano del lugar en que hubiere sido
-encontrado, el cual procederá a su elaboración y comercialización, conforme
-con las disposiciones de esta Ley y sus reglamentos. Las empresas
-beneficiadoras que reciban el café extenderán el respectivo recibo a nombre
-de quien lo deposite y en favor del Instituto del Café de Costa Rica.
-(Así reformado por el artículo 1º de la Ley Nº 6988 de 26 de junio de
-1985).
+CAPÍTULO VI
+Origen y trazabilidad del café
+Artículo 118- Con la finalidad de velar por el origen del café y en resguardo del buen nombre del Café de Costa Rica, el Instituto del Café de Costa Rica (lcafé) estará facultado para verificar la trazabilidad del café verde, independientemente de su origen. Tratándose de café importado, el importador deberá notificar el uso de inventario y destino. Conforme lo anterior, la traza irá desde el ingreso en frontera al país, su traslado hasta la bodega debidamente autorizada por el Ministerio de Agricultura y Ganadería (MAG) y hasta la entrega en la puerta del tostador, donde cualquiera de los interventores en el negocio deberá aportar la documentación de mérito que respalde la tenencia del café, en el momento que sea requerido por el lcafé. Adicionalmente, el lcafé podrá acceder, por todos los medios a su alcance, a información sobre todo tipo de comercialización del café propia o de terceros, incluyendo, entre ellas, el uso de una nota técnica de importaciones, avalada por la autoridad competente.

@@ -1,0 +1,1 @@
+Artículo 147-AI propietario de una partida de café beneficiado no inventariada según el caso previsto en el artículo 63, independientemente de la sanción ordinaria que corresponda al caso, se le condenará a la pérdida del café decomisado en tales condiciones.

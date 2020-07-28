@@ -1,4 +1,1 @@
-Artículo 91.- La Oficina del café deberá fiscalizar en los puertos de
-embarque las calidades de café de exportación, confrontándolas con la
-descripción dada en los contratos, o muestras presentadas para su
-inscripción en su caso.
+Artículo 91- Antes de concluir cada año cafetalero, el Poder Ejecutivo y el Instituto del Café de Costa Rica (!café) deberán determinar los medios y, en su caso, proponer a la Asamblea Legislativa la asignación de fondos necesaria para afectar la separación o compra del café que, por razones de convenios internacionales, no pueda ser susceptible de venta.
