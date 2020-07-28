@@ -16,3 +16,4 @@ Reglamento de los Requisitos de Graduación para optar por el Título del Técni
 | 1 | 2008-02-11 | la propia norma |
 | 2 | 2018-02-07 | Decreto Ejecutivo 40964 (2018-02-07) |
 | 3 | 2018-09-21 | Decreto Ejecutivo 41324 (2018-09-21) |
+| 4 | 2020-07-28 | Decreto Ejecutivo 42365 (2020-07-28) |
