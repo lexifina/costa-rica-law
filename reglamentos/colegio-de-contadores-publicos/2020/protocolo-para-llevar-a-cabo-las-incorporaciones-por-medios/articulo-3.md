@@ -1,0 +1,1 @@
+Artículo 3º: En dicha convocatoria, se deberá indicar la hora y fecha de la incorporación, la plataforma virtual que se utilizará, requisitos de vestimenta y formalidades a seguirse el día del evento y programa a llevarse a cabo ese día.

@@ -1,0 +1,1 @@
+Artículo 2º: El Departamento de Admisión, convocará como mínimo tres días hábiles previos a la incorporación, a todas las personas que hayan sido aprobadas por la Junta Directiva y hayan cumplido todos los requisitos formales incluyendo la aprobación del Seminario Deontología en Contaduría Pública.

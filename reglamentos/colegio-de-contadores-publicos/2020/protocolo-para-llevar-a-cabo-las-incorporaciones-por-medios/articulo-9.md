@@ -1,0 +1,1 @@
+Artículo 9º: Una vez que hayan sido juramentados por el Presidente del Colegio de Contadores Públicos, los nuevos Contadores Públicos Autorizados serán convocados, por medio del correo electrónico registrado, en la solicitud de admisión, para la entrega y firma de las credenciales.
