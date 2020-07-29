@@ -1,0 +1,1 @@
+Artículo 5º—Archivo físico. Una vez que las condiciones sanitarias lo permitan, la Dirección solicitará a las personas seleccionadas, que hayan firmado los documentos de manera física, que remitan los originales para su debida custodia en las instancias correspondientes del MCJ.

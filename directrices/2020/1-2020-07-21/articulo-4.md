@@ -1,0 +1,2 @@
+Artículo 4º—Custodia de documentos. La Dirección de Cultura será la entidad del Ministerio de Cultura y Juventud encargada de verificar que los becarios suscriban y registren en el sistema correspondiente el convenio respectivo. De igual forma tramitará ante el Despacho de la Ministra, la firma de estos documentos.
+Posteriormente, de esta documentación se hará una carpeta compartida con la Asesoría Jurídica del MCJ, para su respectiva custodia.

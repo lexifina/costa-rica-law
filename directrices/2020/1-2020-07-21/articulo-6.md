@@ -1,0 +1,1 @@
+Artículo 6º—Excitativa. Se insta a los órganos desconcentrados de esta Cartera Ministerial, a que, en caso de contar con procedimientos similares al descrito en la presente Directriz, adoptar medidas como la presente, para tutelar la salud de sus colaboradores y de los usuarios de los servicios.
