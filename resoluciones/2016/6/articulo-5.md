@@ -1,1 +1,0 @@
-Artículo 5.- Las obligaciones surgidas son independientes del cumplimiento de otras que surjan al amparo del Acuerdo Intergubernamental suscrito entre la República de Estados Unidos de Norteamérica y la República de Costa Rica (IGA, por sus siglas en inglés).
