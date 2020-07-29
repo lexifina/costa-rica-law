@@ -1,0 +1,1 @@
+Artículo 2°—Corresponderá al Ministerio de Ambiente y Energía la administración de dicho inmueble, para que sea utilizado como laboratorio de calibración de instrumentos y otras actividades del Instituto Meteorológico Nacional (IMN), entidad adscrita a ese Ministerio.
