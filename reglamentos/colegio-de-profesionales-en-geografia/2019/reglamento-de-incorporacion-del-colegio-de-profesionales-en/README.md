@@ -14,3 +14,4 @@ Reglamento de incorporación del Colegio de Profesionales en Geografía
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-09-11 | la propia norma |
+| 2 | 2020-07-30 | Reglamento 0 (2020-07-30) |
