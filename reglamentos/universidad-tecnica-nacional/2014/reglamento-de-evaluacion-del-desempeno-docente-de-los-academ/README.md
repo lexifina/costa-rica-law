@@ -14,3 +14,4 @@ Reglamento de evaluación del desempeño docente de los académicos de la Univer
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-09-01 | la propia norma |
+| 2 | 2020-07-30 | Reglamento 17 (2020-07-30) |

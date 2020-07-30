@@ -1,4 +1,6 @@
+(Suspendida)
 UNIVERSIDAD TÉCNICA NACIONAL
+(Nota de Sinalevi: Mediante sesión N° 17 del 30 de julio del 2020, se acordó suspender temporalmente la aplicación de este reglamento)
 CONSEJO UNIVERSITARIO
 El Consejo Universitario de la Universidad Técnica Nacional informa sobre la aprobación de los siguientes reglamentos:
 4. Reglamento de Evaluación del Desempeño Académico de la Universidad Técnica Nacional, aprobado mediante acuerdo N° 104-2014 del 31 de julio de 2014, Acta 15-2014.
