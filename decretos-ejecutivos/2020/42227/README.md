@@ -15,3 +15,4 @@ Declara estado de emergencia nacional en todo el territorio de la República de 
 | --- | --- | --- |
 | 1 | 2020-03-16 | la propia norma |
 | 2 | 2020-04-12 | Decreto Ejecutivo 42296 (2020-04-12) |
+| 3 | 2020-07-30 | Decreto Ejecutivo 42508 (2020-07-30) |
