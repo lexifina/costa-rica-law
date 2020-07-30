@@ -1,0 +1,1 @@
+Artículo 9º—Plan de Trabajo del proyecto presentado. La entidad solicitante deberá presentar anexo al Formulario Único, el Plan de Trabajo propuesto para el cumplimiento de los objetivos del proyecto que se pretende financiar con la subvención solicitada. Este plan debe contener la descripción de los ingresos y gastos del proyecto que justifican los objetivos propuestos.

@@ -1,0 +1,1 @@
+Artículo 29.—De la imposibilidad de cambios en el Plan de Trabajo y el Presupuesto. Una vez que el Plan de Trabajo y el Presupuesto han sido aprobados por el Concejo Municipal, no se le permite a la entidad beneficiaria la solicitud de cambios.

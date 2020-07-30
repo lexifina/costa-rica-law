@@ -1,0 +1,2 @@
+Artículo 10.—Presupuesto. La entidad solicitante deberá presentar anexo al Formulario Único, el Presupuesto propuesto para el cumplimiento de los objetivos del proyecto. El Presupuesto deberá contener el desglose de los ingresos según los recursos solicitados, también, el desglose de los egresos separados por partidas, según lo dispuesto por la Ley de la Contratación Administrativa, Ley N° 7494 del 2 de mayo de 1995 y sus reformas.
+Se deberá presentar informes dependiendo de la periodicidad solicitada por la Administración Municipal.

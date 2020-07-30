@@ -1,0 +1,1 @@
+Artículo 4º—Formulario Único. La entidad interesada en obtener una subvención de la Municipalidad de Cartago deberá solicitar el Formulario Único elaborado por la Municipalidad, por medio de correo electrónico o en las oficinas de la Dirección Administrativa Financiera para copiarlo en un dispositivo de almacenamiento portátil.

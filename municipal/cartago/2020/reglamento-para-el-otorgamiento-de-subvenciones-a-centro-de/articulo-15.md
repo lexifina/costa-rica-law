@@ -1,0 +1,1 @@
+Artículo 15.—Análisis y recomendación por parte de la Comisión de Hacienda y Presupuesto. La Comisión de Hacienda y Presupuesto hará los análisis y estudios necesarios para determinar fehacientemente el objeto y fin que conlleva la subvención solicitada y que ésta sea en beneficio de las personas habitantes del cantón; y realizará la recomendación respectiva al Concejo Municipal.

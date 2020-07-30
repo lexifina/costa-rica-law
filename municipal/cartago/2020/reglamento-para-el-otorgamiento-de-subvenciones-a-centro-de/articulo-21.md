@@ -1,0 +1,1 @@
+Artículo 21.—Refrendo del convenio de cooperación. La Alcaldía deberá someter a refrendo de la Contraloría General de la República, los contratos o convenios con sujetos privados que reciben subvenciones, de conformidad con el Reglamento sobre el refrendo de las contrataciones de la Administración Pública, publicado en La Gaceta N° 28 del 9 de febrero del 2000.

@@ -1,0 +1,1 @@
+Artículo 7º—Antecedentes. En caso de que el programa o proyecto al que se vayan a destinar los recursos solicitados esté en proceso de ejecución previo a la solicitud, sea una actividad permanente o una plurianual; se deberán presentar los antecedentes y el historial del mismo para ser evaluado.

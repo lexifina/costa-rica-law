@@ -1,0 +1,2 @@
+Artículo 24.—Entrega de los recursos a la entidad beneficiaria. El desembolso de los recursos se realizará mediante transferencia bancaria o depósito en la cuenta indicada por la entidad beneficiaria.
+La Administración Municipal deberá notificar formalmente a la entidad beneficiaria la realización del depósito bancario, con el número de comprobante, y la fecha en que los recursos estén disponibles.

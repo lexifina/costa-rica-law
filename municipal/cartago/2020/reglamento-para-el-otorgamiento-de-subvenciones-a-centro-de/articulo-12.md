@@ -1,0 +1,1 @@
+Artículo 12.—Organigrama de la entidad. La entidad solicitante deberá presentar anexo al Formulario Único, certificación de sus estatutos vigentes y el organigrama administrativo, así como los nombres y medios de contacto de las personas que ocupan los diferentes cargos.
