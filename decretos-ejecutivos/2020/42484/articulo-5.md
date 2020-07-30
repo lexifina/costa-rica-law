@@ -4,7 +4,8 @@ b) Guácimo, específicamente el distrito de Duacarí.
 c) La Cruz.
 d) Los Chiles
 e) Pococí, específicamente los distritos de Cariari, Colorado, La Rita y Roxana.
-f) San Carlos, específicamente los distritos de Aguas Zarcas, Cutris, Pital, Pocosol, Venecia y Fortuna, este último para las comunidades de Tres Esquinas, Los Ángeles, Sonafluca, La Perla, San Isidro, El Tanque, San Jorge, Santa Cecilia. Además del distrito de Florencia, en las comunidades de La Vega y Bonanza.
+f) San Carlos, específicamente los distritos de Aguas Zarcas, Cutris, Pital, Pocosol y Venecia.
+(Así reformado el inciso anterior por el artículo 4° del decreto ejecutivo N° 42510 del 30 de julio del 2020)
 g) Siquirres, específicamente los distritos de Pacuarito y Reventazón.
 h) Sarapiquí, específicamente los distritos de Llanuras de Gaspar y Curuña.
 i) Upala.
