@@ -1,0 +1,5 @@
+Artículo 56.—Expediente remitida por la administración municipal.
+1.El expediente administrativo deberá cumplir con las formalidades dispuestas en el artículo 51 del Código Procesal Contencioso Administrativo debiendo estar debidamente identificado, foliado, y en estricto orden cronológico.
+2.El asunto y el expediente que se remita deberá ingresar a conocimiento del Concejo Municipal mediante un oficio suscrito por el Alcalde Municipal o en su defecto por el Director de la Unidad Administrativa competente en el que expresamente se aclare que corresponde a la totalidad de las piezas y los documentos que lo componen a la fecha de remisión.
+3.La documentación que no ingrese a la corriente administrativa del Concejo Municipal con estos requerimientos será devuelta de oficio a la administración, para que cumpla con lo dispuesto en los párrafos precedentes; en cuyo caso el funcionario administrativo que haya generado la omisión será responsable de las consecuencias que la misma implique.
+4.Toda documentación remitida al Concejo Municipal por parte de la administración deberá ser presentada por el Señor Alcalde respetando el orden de jerarquías.

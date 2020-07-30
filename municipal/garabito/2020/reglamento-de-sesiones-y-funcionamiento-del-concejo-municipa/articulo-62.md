@@ -1,0 +1,1 @@
+Artículo 62.—Obligación de formar parte de las comisiones. Los participantes permanentes están en la obligación de formar parte activa y propositiva de las Comisiones que se crean en la Municipalidad. Los asesores deben asistir a las sesiones previa convocatoria, la ausencia deberá justificarse.

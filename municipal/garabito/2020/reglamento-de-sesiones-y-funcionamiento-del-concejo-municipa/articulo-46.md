@@ -1,0 +1,2 @@
+Articulo 46.-
+Los informes de Auditoría, Asesor Legal, Comisiones y correspondencia de trámite urgente a juicio de la presidencia se podrán presentar en cualquier momento para ser conocidos por el Concejo Municipal, excluyéndose del término de las 12 horas antes del día anterior hábil para presentación de documentos en el Concejo Municipal. Los informes del asesor legal que no tengan plazos estipulados en la ley, deberá presentarlos 15 días hábiles después de su firmeza.

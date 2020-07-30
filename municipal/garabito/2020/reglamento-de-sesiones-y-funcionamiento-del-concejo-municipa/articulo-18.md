@@ -1,0 +1,1 @@
+Artículo 18.—Pago de dieta. Los participantes permanentes, según el Código Municipal, tendrán derecho a devengar el pago de la dieta correspondiente, cuando asistan y permanezcan durante el desarrollo de cada sesión.

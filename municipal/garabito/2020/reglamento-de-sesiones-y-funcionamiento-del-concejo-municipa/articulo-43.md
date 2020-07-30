@@ -1,0 +1,1 @@
+Artículo 43.—Aprobación de actas. Las actas de las sesiones deberán ser aprobadas en la Sesión Ordinaria inmediata posterior, salvo que circunstancias de fuerza mayor lo impidan. En la página Web de la Municipalidad y otros sitios de Internet solo deben aparecer las actas definitivas o sea posteriormente a su firma por la Presidencia y Secretaría.

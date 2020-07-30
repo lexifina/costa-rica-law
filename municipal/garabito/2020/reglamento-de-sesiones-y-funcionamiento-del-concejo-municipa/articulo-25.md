@@ -1,0 +1,1 @@
+Artículo 25.—Quórum inicial. Pasados los quince minutos de la hora de inicio de la sesión, si no hubiere quórum no se podrá realizar sesiones ordinarias o extraordinarias, se dejará constancia en el libro de actas y se consignará el nombre de los participantes permanentes presentes, a fin de acreditarles su asistencia para efecto del pago de dietas a quienes corresponda.

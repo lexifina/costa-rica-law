@@ -1,0 +1,1 @@
+Artículo 21.—Sustitución de Regidor(a). El o la regidora suplente que sustituye a un propietario(a), tendrá derecho a permanecer durante toda la sesión como miembro del Concejo con voz y voto, con el derecho a devengar la dieta correspondiente.

@@ -1,0 +1,1 @@
+Artículo 72.—Planteamientos al Concejo. Todo planteamiento realizado al Concejo Municipal deberá presentarse por escrito y contener, nombre, firma, número de cédula, número telefónico y lugar para notificaciones de preferencia forma digital, así como el tema a tratar, sin tema a tratar se suspenderá la audiencia.

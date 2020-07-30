@@ -1,0 +1,3 @@
+CAPÍTULO V
+Comisiones Municipales
+Artículo 57.—De la función de las comisiones. Todas las Comisiones Municipales son por excelencia asesoras especialistas del Concejo en la materia correspondiente o en el asunto asignado; por ello reciben solicitudes expresas para dar recomendaciones, dictámenes o informes; insumos esenciales para la toma de decisiones. Las Comisiones deben estar conformadas con equidad y armonía, procurando nombrar miembros conocedores del tema de todos los partidos políticos representados en el Gobierno Local, logrando la paridad y equidad de género, la participación de la sociedad civil y los vecinos.

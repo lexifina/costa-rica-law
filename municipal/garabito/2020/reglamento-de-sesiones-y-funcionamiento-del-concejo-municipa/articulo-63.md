@@ -1,0 +1,1 @@
+Artículo 63.—Integración y Directorio de Comisiones. Toda Comisión estará integrada al menos por tres participantes permanentes, uno de los cuales asumirá la coordinación de la Comisión, persona que será designada por la Presidencia Municipal, de preferencia regidor propietario. Una vez conformadas las comisiones nombrarán una Secretaría.

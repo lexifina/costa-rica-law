@@ -1,0 +1,2 @@
+Artículo 10.—Recusación.
+Podrá ser recusado, de palabra o por escrito, por cualquier persona interesada, el participante permanente, que no se excuse de intervenir en la discusión y/o votación a la que se refiere el inciso a) del artículo anterior. El Concejo decidirá si la recusación procede, de no prosperar la recusación podrá ser trasladada a otra instancia competente; conforme a lo dispuesto en el artículo 31 del Código Municipal.
