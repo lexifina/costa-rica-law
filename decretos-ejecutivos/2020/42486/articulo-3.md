@@ -1,0 +1,1 @@
+Artículo 3º—El CONARE y las Universidades Públicas que procederán al amparo de la habilitación conferida en el artículo anterior del presente Decreto Ejecutivo, deberán realizar la sustitución de la fuente de financiamiento (transferencia del Presupuesto Nacional).
