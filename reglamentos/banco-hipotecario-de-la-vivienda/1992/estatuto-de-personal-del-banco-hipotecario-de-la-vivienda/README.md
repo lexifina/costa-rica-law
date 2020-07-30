@@ -23,3 +23,4 @@ Estatuto de Personal del Banco Hipotecario de la Vivienda
 | 8 | 2008-12-11 | Reglamento 93 (2008-12-11) |
 | 9 | 2012-03-19 | Reglamento 19 (2012-03-19) |
 | 10 | 2019-01-17 | Reglamento 4 (2019-01-17) |
+| 11 | 2020-07-30 | Reglamento 59 (2020-07-30) |
