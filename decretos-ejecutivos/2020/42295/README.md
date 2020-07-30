@@ -25,3 +25,4 @@ Restricción vehicular diurna ante el estado de emergencia nacional en todo el t
 | 10 | 2020-07-10 | Decreto Ejecutivo 42455 (2020-07-10) |
 | 11 | 2020-07-17 | Decreto Ejecutivo 42482 (2020-07-17) |
 | 12 | 2020-07-19 | Decreto Ejecutivo 42485 (2020-07-19) |
+| 13 | 2020-07-30 | Decreto Ejecutivo 42509 (2020-07-30) |
