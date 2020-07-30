@@ -1,0 +1,1 @@
+Artículo 2º—Todos los vehículos de la Municipalidad de Matina son exclusivamente de uso administrativo y llevarán permanente placas matrícula oficial en los lugares donde reglamentariamente deben colocarse y un distintivo visible en sus costados, que los identifique con el nombre de la Municipalidad y la leyenda - “USO OFICIAL”.)

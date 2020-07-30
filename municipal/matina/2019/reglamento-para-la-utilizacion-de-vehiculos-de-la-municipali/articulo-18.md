@@ -1,0 +1,1 @@
+Artículo 18.—Prohibiciones del arreglo extrajudicial. Queda prohibido al conductor efectuar arreglos extrajudiciales con terceros, debiendo comunicar al particular que se apersone o se comunique con la Municipalidad para efectuar las gestiones correspondientes.

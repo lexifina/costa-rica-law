@@ -1,0 +1,1 @@
+Artículo 13.—Intercambio de combustibles y accesorios. Los conductores de vehículos de la Municipalidad de Matina u otros funcionarios, no podrán hacer intercambio de accesorios o combustibles de un vehículo a otro.

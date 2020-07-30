@@ -1,0 +1,1 @@
+Artículo 12.—Utilización del vehículo fuera de la jornada ordinaria. Es prohibido el uso del vehículo fuera de la jornada de labores, salvo autorización expresa del Alcalde Municipal, conforme a lo establecido en el artículo siete de este reglamento.
