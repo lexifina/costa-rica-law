@@ -2,6 +2,7 @@
 [imagen]
 [imagen]
 [imagen]
+(Así reformado el formulario anterior por el artículo por el artículo 1° del decreto ejecutivo N° 42511 del 31 de julio del 2020)
 [imagen]
 [imagen]
 [imagen]

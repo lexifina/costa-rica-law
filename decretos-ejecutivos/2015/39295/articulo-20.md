@@ -1,5 +1,8 @@
-Artículo 20.- Para la realización del Registro PYME el interesado deberá satisfacer dos de los siguientes requisitos, conforme al artículo 3 de la Ley N° 8262:
-a) Cargas laborales al día, situación que se comprueba con el recibo de la póliza de Riesgos del Trabajo vigente, que el interesado deberá de aportar.
-b) Cargas tributarias al día, que se comprueban con copia del Formulario de Declaración de Impuesto sobre la Renta: Según disponga la empresa, sea el D101 del Régimen Tradicional o el D105 del Régimen Simplificado y que corresponda al último periodo fiscal. En el caso del formulario D 101 deberán reflejarse en él los ingresos y activos percibidos.
-c) Cargas sociales al día, que se comprobarán de manera interna por parte de la DIGEPYME, si el administrado sólo presenta uno de los dos documentos indicados en los dos incisos anteriores.
-No obstante, si se comprueba que el solicitante fue omiso en alguno de los dos requisitos que escogió, DIGEPYME prevendrá por única vez al interesado a efecto de que se subsane dicha omisión en el plazo de 10 días hábiles, a fin de cumplir con lo señalado en el artículo 3 de la Ley N° 8262.
+Artículo 20.—Para la realización del Registro PYME el interesado deberá satisfacer dos de los siguientes requisitos, lo cual deberá consignar en la Declaración Jurada – Anexo N°
+1 denominado “Registro Pyme”- que se encuentra al día o en arreglo de pago en dichos requisitos, los cuales se detallan:
+a. Póliza de riesgos del trabajo al día –cargas laborales-.
+b. Cargas tributarias al día. Para estos efectos deberá estar inscrito ante Tributación Directa del Ministerio de Hacienda, en cualquiera de los dos regímenes tributarios: Régimen Tradicional (D101) o Régimen Simplificado (D105).
+c. Cargas sociales al día o en arreglo de pago.
+Le corresponderá a la DIGEPYME la verificación posterior de los datos consignados en la declaración jurada, debiendo tomar las medidas de control interno, a fin de asegurar el efectivo cumplimiento de lo señalado en la declaración jurada y en el artículo 3 de la Ley N° 8262.
+En caso de que se confirme el incumplimiento de alguno de los requisitos que dieron origen al otorgamiento de la condición PYME, y siguiendo el debido proceso, se procederá con la revocatoria de tal condición, sin perjuicio de las demás responsabilidades civiles, administrativas o penales que correspondan.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 42511 del 31 de julio del 2020)

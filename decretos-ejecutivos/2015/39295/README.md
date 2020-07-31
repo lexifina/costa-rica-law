@@ -20,3 +20,4 @@ Reglamento a la Ley de Fortalecimiento de las Pequeñas y Medianas Empresas, Ley
 | 5 | 2019-03-08 | Resolución 13 (2019-03-08) |
 | 6 | 2020-02-19 | Resolución 25 (2020-02-19) |
 | 7 | 2020-04-23 | Decreto Ejecutivo 42323 (2020-04-23) |
+| 8 | 2020-07-31 | Decreto Ejecutivo 42511 (2020-07-31) |
