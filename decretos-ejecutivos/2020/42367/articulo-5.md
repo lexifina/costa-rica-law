@@ -1,0 +1,1 @@
+Artículo 5º-Registro del SFE: En caso que los efluentes de granjas porcinas no puedan ser aplicados como enmiendas de origen natural en los suelos del mismo establecimiento o finca del mismo propietario, deberán contar con el debido registro del SFE para ser utilizado en otros establecimientos de diferente propietario.

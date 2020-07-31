@@ -1,0 +1,1 @@
+Artículo 8º-Normativa Interna: Por ser los efluentes provenientes de granjas porcinas mejoradores de las características físicas, químicas y microbiológicas del suelo para uso agrícola, son de aplicación para su regulación, las normas emitidas por el Ministerio de Agricultura y Ganadería.
