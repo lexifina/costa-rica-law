@@ -21,4 +21,5 @@ XV.—Que según lo indicado en la directriz en mención y considerando que la m
 Decretan
 PRÓRROGA DE LA VIGENCIA DE LA CONDICIÓN
 PYME ANTE EL COVID-19
-Artículo 1º—Debido al estado de emergencia nacional por la situación sanitaria por el COVID-19 declarado mediante el Decreto Ejecutivo número 42227-MP-S del 16 de marzo de 2020, se establece la presente medida de prórroga de la vigencia de la condición PYME, por el plazo de 9 meses contado a partir de la vigencia del Presente Decreto Ejecutivo, para aquellas Pymes cuya condición tiene como fecha de vencimiento los meses de abril, mayo, junio, julio, agosto, septiembre, octubre, noviembre y diciembre del año 2020.
+Artículo 1º—Debido al estado de emergencia nacional por la situación sanitaria por el COVID-19, declarado mediante el Decreto Ejecutivo número 42227-MP-S del 16 de marzo de 2020, se establece la presente medida de prórroga de la vigencia de la condición PYME, por el plazo de 9 meses contado a partir de la vigencia del presente Decreto Ejecutivo, para aquellas Pymes cuya condición tiene como fecha de vencimiento los meses de marzo, abril, mayo, junio, julio, agosto, septiembre, octubre, noviembre y diciembre del año 2020.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 42512 del 31 de julio del 2020)

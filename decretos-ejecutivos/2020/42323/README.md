@@ -14,3 +14,4 @@ Prorroga la vigencia de la condición PYME ante el COVID-19
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-04-25 | la propia norma |
+| 2 | 2020-07-31 | Decreto Ejecutivo 42512 (2020-07-31) |
