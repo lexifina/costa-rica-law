@@ -1,0 +1,2 @@
+Transitorio III.-Autorizar la incorporación de la Municipalidad de Río Cuarto de Alajuela como organización afiliada la Unión Nacional de Gobiernos Locales, de forma adhonorem en el pago de sus cuotas de afiliación por los periodos 2020 y 2021. Esto por ser la más reciente incorporación al régimen municipal dado que tienen 3 meses de funcionamiento. Lo anterior para brindar acompañamiento en la implementación de sus procesos iniciales de funcionamiento.
+(Así adicionado en sesión N° 01 del 31 de julio del 2020)

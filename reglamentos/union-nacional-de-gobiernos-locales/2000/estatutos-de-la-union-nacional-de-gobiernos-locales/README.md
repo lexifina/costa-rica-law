@@ -16,3 +16,4 @@ Estatutos de la Unión Nacional de Gobiernos locales.
 | 1 | 2000-01-26 | la propia norma |
 | 2 | 2006-04-07 | Reglamento 0 (2006-04-07) |
 | 3 | 2019-02-01 | Reglamento 0 (2019-02-01) |
+| 4 | 2020-07-31 | Reglamento municipal 1 (2020-07-31) |
