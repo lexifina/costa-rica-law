@@ -1,0 +1,10 @@
+Artículo 35°-La comunicación de resultados derivados de los servicios se efectuará mediante informes de auditoría de conformidad con las siguientes regulaciones:
+a) Los informes de auditoría deben contener: resumen ejecutivo, introducción, hallazgos, conclusiones y sus correspondientes recomendaciones
+b) En el aparte de "Introducción" se deberá prevenir al jerarca y titulares subordinados de los deberes y plazos que deben observar en la atención de los informes de auditoría establecidos en los artículos 36, 37 y 38 de la LGCI. Asimismo, advertirá las posibles responsabilidades en que pueden incurrir por incumplir injustificadamente los deberes contenidos en la LGCI según lo establece su artículo 39.
+c) Los hallazgos deben estar suficientemente sustentados para la adecuada toma de decisiones por parte del jerarca o titular subordinado que debe implantar las recomendaciones.
+d) Las recomendaciones deben ser efectivas, pertinentes, oportunas y conformes con los hallazgos documentados.
+e) Las recomendaciones no deben indicar el "cómo" solucionar las causas de la situación o deficiencias documentadas.
+f) Se pueden emitir informes parciales de auditoría durante el transcurso de las evaluaciones, siempre que sean sobre asuntos concluidos desde el punto de vista de la fiscalización prevista y las circunstancias lo ameritan.
+g) En el informe final definitivo de auditoría se debe hacer referencia a los informes parciales emitidos.
+h) Tanto los informes parciales como los informes finales definitivos de auditoría están sujetos al trámite y plazos improrrogables previstos en los artículos 36 al 38 de la LGCI. El incumplimiento de lo estipulado en los artículos indicados es causal de responsabilidad administrativa conforme lo establecido en los artículos 39 y 40 de la LGCI.
+i) Las relaciones de hechos se regulan por los Lineamientos Generales para Presuntos Hechos Irregulares según resolución R-DC-102-2019 emitida por la Contraloría General de la República y no están sujetas al trámite de conflicto por su especial naturaleza.

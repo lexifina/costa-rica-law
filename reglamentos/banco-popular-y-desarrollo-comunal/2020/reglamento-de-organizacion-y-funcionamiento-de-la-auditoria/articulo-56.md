@@ -1,0 +1,3 @@
+CAPITULO VI
+DISPOSICIONES FINALES
+Artículo 56°-Modificaciones al Reglamento. Estas modificaciones fueron aprobadas por la Junta Directiva Nacional en el acuerdo 604 de la sesión ordinaria 57 48 del 6 de julio, 2020, acuerdo No. 463 de la sesión ordinaria No. 5735 del 20 de mayo del 2020 y en el acuerdo 893 de la sesión ordinaria No. 5687 del 13 de noviembre del 2019, y varía el "Reglamento de Organización y Funciones de la Auditoría Interna del Banco Popular y de Desarrollo Comunal", aprobado en el acuerdo No. 105 de la sesión ordinaria No. 5349 del 18 de febrero del 2016 y acuerdo No. 386 de la sesión ordinaria No. 5378 del 14 de junio del 2016.
