@@ -1,0 +1,5 @@
+Artículo 12.- Sobre El Contrato. Adiciónese el artículo 10 bis al Reglamento de Aplicación de la Dedicación Exclusiva y Disponibilidad para la Municipalidad de Upala y que dirá Sobre El Contrato. El plazo de este contrato no podrá ser menor de un año, ni mayor de cinco, con la excepción de lo contenido en el inciso c) del artículo 3 de este reglamento.
+Suscrito el contrato, el pago por dedicación exclusiva no constituirá un beneficio permanente ni un derecho adquirido; por lo que, al finalizar la vigencia de este, la Administración no tendrá la obligación de renovarlo.
+Sesenta días naturales antes de su vencimiento, el funcionario deberá solicitar la prórroga al alcalde o alcaldesa para que revise la solicitud, a fin de determinar la necesidad institucional de la extensión y mediante resolución debidamente razonada por el alcalde o alcaldesa comunicará la continuidad o no del contrato.
+Para efectuar la prórroga, deberá procederse con base en lo establecido en el artículo 5 y 12 del presente reglamento.
+La prórroga no podrá ser menor de un año, ni mayor de cinco.

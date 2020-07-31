@@ -1,0 +1,2 @@
+Artículo 20-. De lo Aplicable al Contrato de Disponibilidad. Agréguese un nuevo artículo 16 al Reglamento de Aplicación de la Dedicación Exclusiva y Disponibilidad para la Municipalidad de Upala y que dirá:
+De lo Aplicable al Contrato de Disponibilidad. Con respecto al contrato de disponibilidad, la municipalidad queda habilitada para aplicar lo determinado en los artículos 8, 9 y 10 bis de este reglamento.

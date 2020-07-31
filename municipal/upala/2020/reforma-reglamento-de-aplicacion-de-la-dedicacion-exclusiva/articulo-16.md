@@ -1,0 +1,1 @@
+Artículo 16-. Traslado de Articulo. Respecto a los artículos 13, 14, 15, 16 y 17 del Reglamento de Aplicación de la Dedicación Exclusiva y Disponibilidad para la Municipalidad de Upala trasládense al final de reglamento con el número de artículo que corresponda, en orden numérico ascendente y partiendo del último artículo de esta reforma.

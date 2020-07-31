@@ -1,0 +1,2 @@
+Artículo 17-. De la Compensación Económica. Agréguese un nuevo artículo 13 al Reglamento de Aplicación de la Dedicación Exclusiva y Disponibilidad para la Municipalidad de Upala y que dirá:
+De la Compensación Económica. A cambio de esa disponibilidad y una vez suscrito el contrato establecido en este reglamento, al servidor municipal se le reconocerá una compensación económica de un porcentaje del 40% del salario base del funcionario profesional. La Unidad Técnica de Gestión Vial podrá hacer uso de sus recursos para estos efectos.

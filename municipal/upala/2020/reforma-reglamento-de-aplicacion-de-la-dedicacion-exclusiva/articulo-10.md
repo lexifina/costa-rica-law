@@ -1,0 +1,3 @@
+Artículo 10.-Cumplimiento. Refórmese el artículo 9° del Reglamento de Aplicación de la Dedicación Exclusiva y Disponibilidad para la Municipalidad de Upala y que dirá:
+Del Cumplimiento. El Departamento de Recursos Humanos y el Alcalde, verificarán cuando lo consideren necesario, lo pertinente y de conformidad con los respectivos procedimientos, el fiel cumplimiento de todas las disposiciones contenidas en este reglamento y el respectivo contrato.
+Cuando comprobare incumplimientos de las obligaciones contraídas por los servidores suscriptores, debe tomar las medidas que este reglamento establece.
