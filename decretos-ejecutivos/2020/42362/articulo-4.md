@@ -1,0 +1,1 @@
+Artículo 4. Domicilio. Para todos los efectos legales el Colegio tendrá su domicilio en la capital de la República, sin perjuicio de fijar otras oficinas filiales o instalaciones en cualquier otro punto, dentro o fuera del país, según criterio de la Junta Directiva.

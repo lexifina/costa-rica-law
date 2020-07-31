@@ -1,0 +1,1 @@
+Artículo 10. De las funciones de los colegiados. Las funciones públicas y privadas, para las cuales la legislación exige el título de profesional en psicología, solo podrán ser desempeñadas por integrantes del Colegio en ejercicio.

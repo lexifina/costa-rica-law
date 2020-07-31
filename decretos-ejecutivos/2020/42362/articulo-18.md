@@ -1,0 +1,1 @@
+Artículo 18. Del ejercicio profesional en la docencia. Las personas profesionales en psicología que ejerzan la docencia con fines de formación profesional o de especialización en áreas de la carrera, deben estar incorporadas y activas como integrantes del Colegio.

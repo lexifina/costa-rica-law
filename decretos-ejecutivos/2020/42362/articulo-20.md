@@ -1,0 +1,1 @@
+Artículo 20. De las obligaciones financieras de las personas integrantes. Todas las personas integrantes deben satisfacer las cuotas, contribuciones, multas u otras obligaciones financieras con el Colegio.

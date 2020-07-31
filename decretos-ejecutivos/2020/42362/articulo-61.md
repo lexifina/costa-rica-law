@@ -1,0 +1,2 @@
+Artículo 61. De la autorización de rebajo de cuota. Toda persona colegiada, independientemente de si labora para el Estado o para el sector privado, debe autorizar, ante el Colegio, la deducción de las cuotas mensuales u otras obligaciones de sus cuentas corrientes, tarjeta de débito o crédito.
+Es obligación de la persona colegiada informar a la administración del Colegio acerca de cualquier cambio en la forma de pago autorizada.

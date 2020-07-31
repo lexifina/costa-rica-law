@@ -1,0 +1,1 @@
+Artículo 69. De la competencia del Tribunal de Honor. Todos los casos conocidos por el Tribunal de Honor serán de carácter confidencial. El incumplimiento a esta disposición será sancionado como falta grave.

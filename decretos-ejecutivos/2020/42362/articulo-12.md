@@ -1,0 +1,1 @@
+Artículo 12. De las personas integrantes de la Asamblea. Únicamente las personas integrantes en ejercicio y las exoneradas podrán participar con derecho a voz y voto en las sesiones de la Asamblea General.

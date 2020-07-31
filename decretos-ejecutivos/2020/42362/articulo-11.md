@@ -1,0 +1,1 @@
+Artículo 11. De condición de profesionales en salud. De conformidad con el artículo 40 de la Ley General de Salud se considera como profesionales de salud a las personas que ejercen la psicología clínica.

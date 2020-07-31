@@ -1,0 +1,1 @@
+Artículo 2. De la naturaleza jurídica. El Colegio de Profesionales en Psicología de Costa Rica es un ente público de carácter no estatal, con domicilio en la ciudad de San José y con potestad de establecer oficinas en cualquier parte del territorio nacional.

@@ -1,0 +1,3 @@
+Artículo 65. De la Auditoria externa. La Junta Directiva contratará anualmente una auditoría externa de los estados financieros que deberá realizarse conforme a las normas y procedimientos que, para tal efecto, establece el Colegio de Contadores Públicos de Costa Rica. Incluirá en el presupuesto anual la partida respectiva para tal fin.
+Las recomendaciones producto de la auditoría externa deben ser analizadas por la Junta Directiva en un plazo máximo de cuatro (4) meses, contados a partir de la entrega del informe respectivo; y se deberán tomar las decisiones pertinentes.
+Quien se desempeña en el cargo de Fiscalía velará por el cumplimiento de lo indicado en los párrafos anteriores, lo cual deberá incluirse en su informe anual.

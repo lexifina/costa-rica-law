@@ -1,0 +1,1 @@
+Artículo 41. Sustitución temporal: En ausencia temporal de quien ejerce la Presidencia, sus funciones serán ejercidas por la persona que ocupe la Vicepresidencia y en ausencia de ambos por los vocales conforme al orden de su número.

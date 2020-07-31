@@ -1,0 +1,1 @@
+Artículo 51. Condición de nombramiento: Quienes integren el Comité Consultivo desempeñarán sus cargos ad honórem; sin embargo, cuando sus dictámenes tengan implicaciones económicas, la Junta Directiva podrá fijar un honorario acorde con el trabajo a realizar.

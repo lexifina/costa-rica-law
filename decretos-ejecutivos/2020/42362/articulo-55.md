@@ -1,0 +1,2 @@
+Artículo 55. Del depósito de ingresos. Todo ingreso, independientemente de su origen, debe ser depositado en las cuentas bancarias del Colegio.
+La Asamblea General no puede aprobar fondos para el Colegio si tienen como propósito satisfacer fines distintos de los que por ley le han sido encargados. Por otra parte, la Junta Directiva no puede aplicar dichos fondos para satisfacer fines distintos de los que por ley le han sido encomendados.

@@ -1,0 +1,2 @@
+Artículo 59. De la aprobación de endeudamiento. La Junta Directiva solo puede tomar acuerdos que impliquen endeudamiento para uso del Colegio, previa autorización expresa de la Asamblea General, y siempre y cuando sean para el cumplimiento de los fines del Colegio.
+Se exceptúa de la autorización indicada en el párrafo anterior el endeudamiento que esté contemplado en el presupuesto anual aprobado por la Asamblea General.

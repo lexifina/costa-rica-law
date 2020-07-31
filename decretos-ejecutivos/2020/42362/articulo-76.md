@@ -1,0 +1,1 @@
+Artículo 76. Del deber de asistencia de la Dirección Ejecutiva. Quien ejerza la jefatura de la Dirección Ejecutiva deberá asistir a las sesiones de Junta Directiva y a las asambleas generales del Colegio, cuando así lo solicite la Junta Directiva o quien esté en la presidencia; en ambas instancias podrá participar con voz, pero sin voto.

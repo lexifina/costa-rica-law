@@ -1,0 +1,3 @@
+CAPÍTULO VII
+Del Tribunal de Honor
+Artículo 67. De la integración de Tribunal de Honor. El Tribunal de Honor estará integrado por cinco personas como propietarias, quienes serán nombradas por la Asamblea General ordinaria y durarán en sus cargos dos (2) años, con la posibilidad de ser reelegidas hasta por un período más. En la misma Asamblea se elegirán cinco suplentes, a quienes se llamará, en el orden de elección, a sustituir a las personas propietarias en las ausencias temporales o por motivos de inhibitoria o recusación para el caso concreto. El Tribunal tendrá una presidencia, una secretaría y tres vocales, cuyos puestos serán designados de su seno en la primera sesión de trabajo que celebren.

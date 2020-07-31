@@ -1,0 +1,1 @@
+Artículo 31. De la presentación de mociones en Asamblea. En las asambleas generales del Colegio las y los participantes deberán presentar sus propuestas por escrito. Ninguna moción podrá ser presentada en forma verbal y, de ser así, no tendrá trámite por parte de la presidencia.

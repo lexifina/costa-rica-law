@@ -1,0 +1,1 @@
+Artículo 78. De los principios de la contratación administrativa. La Dirección Ejecutiva debe velar por el cumplimiento de los principios que rigen la contratación administrativa respecto de toda contratación que realice el Colegio.

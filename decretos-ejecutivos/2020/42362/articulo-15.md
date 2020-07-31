@@ -1,0 +1,1 @@
+Artículo 15. Del derecho a la información. Cada integrante tiene derecho de examinar la contabilidad, archivos, libros de actas y todo asunto relacionado con el Colegio; lo anterior, siguiendo el procedimiento determinado por la Administración del Colegio o la Junta Directiva.

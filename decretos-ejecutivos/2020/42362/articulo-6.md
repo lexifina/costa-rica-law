@@ -1,0 +1,1 @@
+Artículo 6. De los órganos y otras instancias. El Colegio ejercerá sus funciones por medio de la Asamblea General, la Junta Directiva, la Fiscalía, el Tribunal de Honor, el Tribunal Electoral, el Comité Consultivo y los órganos o comisiones que se establezcan. Ningún órgano podrá atribuirse competencias delegadas a otras instancias del Colegio.

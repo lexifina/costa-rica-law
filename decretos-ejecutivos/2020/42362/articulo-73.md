@@ -1,0 +1,1 @@
+Artículo 73. De la integración del Tribunal de Honor. El Tribunal Electoral estará integrado por cinco personas colegiadas, quienes durarán en sus cargos dos (2) años, pudiendo ser reelegidas únicamente por un período más. En el mismo acto se nombrarán dos suplentes, a quienes se llamará a cubrir las ausencias temporales de las personas propietarias.

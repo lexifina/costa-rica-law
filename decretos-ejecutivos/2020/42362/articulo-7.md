@@ -1,0 +1,3 @@
+Artículo 7. Del juramento. Cuando se requiera, el juramento que deberán rendir las personas colegiadas, ya sea para incorporarse o para cumplir cualquiera de los mandatos que el Colegio les encomiende, será el siguiente:
+“¿Juráis por lo más íntimo de vuestras convicciones y prometéis a la Patria y al Colegio observar y defender la Constitución, las Leyes y Reglamentos de la República, el Código de Ética y Deontológico, así como los demás Reglamentos y disposiciones del Colegio, y cumplir fielmente los deberes de vuestra profesión o vuestro mandato?
+Si así lo hiciereis que el Colegio y la Patria os lo reconozcan y si no, que ellos os lo señalen.”

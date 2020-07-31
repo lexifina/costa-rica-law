@@ -1,0 +1,1 @@
+Artículo 19. Del deber de asistencia a las Asambleas. Es deber de cada integrante en ejercicio asistir a las sesiones de Asamblea General y de atender los llamados que haga el Colegio con el fin de integrar sus órganos o comisiones.

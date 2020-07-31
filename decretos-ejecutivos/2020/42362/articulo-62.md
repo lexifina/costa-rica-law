@@ -1,0 +1,2 @@
+Artículo 62. De la morosidad y su informe a Junta. La Dirección Ejecutiva informará mensualmente a la Junta Directiva sobre el estado de morosidad de los colegiados y las colegiadas y recomendará las medidas correctivas que estime convenientes.
+Las personas colegiadas que incurran en una morosidad de tres (3) cuotas o más serán suspendidas una vez agotado el debido proceso, de conformidad con las políticas aprobadas por la Junta Directiva.

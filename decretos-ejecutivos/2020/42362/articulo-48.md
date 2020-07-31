@@ -1,0 +1,1 @@
+Artículo 48. De la normativa en procedimientos disciplinarios. Los procedimientos disciplinarios serán tramitados de conformidad con el Reglamento que al efecto dicte la Asamblea General y complementariamente con la Ley General de la Administración Pública.
