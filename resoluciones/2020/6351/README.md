@@ -14,3 +14,4 @@ Establece disposiciones sanitarias durante mes agosto del 2020 dirigidas a las p
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-08-01 | la propia norma |
+| 2 | 2020-08-01 | Resolución 6466 (2020-07-31) |
