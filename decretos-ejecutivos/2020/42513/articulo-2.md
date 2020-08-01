@@ -1,0 +1,1 @@
+ARTÍCULO 2°.-Para el ingreso de los vuelos internacionales que transporten personas con ocasión de la presente medida, deberán ingresar y aterrizar en el territorio nacional a través de los Aeropuertos Internacionales Juan Santamaría y Daniel Oduber.

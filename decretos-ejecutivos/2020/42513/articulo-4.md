@@ -1,0 +1,4 @@
+ARTÍCULO 4°.-Con ocasión de la presente medida, la persona extranjera que opte por viajar vía aérea hacia Costa Rica bajo la categoría migratoria de No Residentes, subcategorías Turismo, deberá cumplir necesariamente las siguientes condiciones para ingresar al país:
+a) Contar con un seguro de viaje que cubra al menos los gastos de alojamiento y gastos médicos generados por la enfermedad COVID-19, ofrecido por alguna de las aseguradoras autorizadas por la Superintendencia General de Seguros en Costa Rica y debidamente avalado por dicha autoridad.
+b) Completar el formulario denominado Pase de Salud, generado por el Ministerio de Salud.
+c) Contar con la prueba negativa de COVID-19 obtenida a través de la prueba denominada PCR-RT, en los términos establecidos por el Ministerio de Salud.
