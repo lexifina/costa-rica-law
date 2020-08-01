@@ -29,9 +29,9 @@ PRIMERO. Las presentes medidas sanitarias se emiten con el objetivo de prevenir 
 Se entiende por burbuja social el grupo de personas que conviven regularmente en el mismo hogar, en la mayoría de las ocasiones coincide con el núcleo familiar.
 SEGUNDO: Se resuelve ordenar el cierre temporal de todos los establecimientos con permiso sanitario de funcionamiento que brinden atención al público, en los cantones, distritos y poblados de riesgo decretados en Alerta Naranja por la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias, de lunes a domingo de las 17:00 horas a las 5:00 horas del día siguiente. Estas restricciones se aplicarán del 01 de agosto al 09 de agosto de 2020 inclusive; y del 22 de agosto al 30 de agosto de 2020 inclusive.
 I. Se exceptúan de la segunda disposición:
-A. Podrán operar de lunes a domingo sin restricción horaria:
+(*)A. Podrán operar de lunes a domingo sin restricción horaria:
 1. Servicios a domicilio.
-2. Alquiler de vehículos “rent a car”.
+2. Alquiler de vehículos “rent a car”.
 3. Alquiler de bicicletas.
 4. Suministro y abastecimiento de combustibles.
 5. Servicios comunitarios de recolección de residuos.
@@ -44,10 +44,12 @@ A. Podrán operar de lunes a domingo sin restricción horaria:
 12. Actividades de alojamiento para estancia corta (moteles).
 13. La venta de loterías y productos de azar debidamente autorizados por la Junta de Protección Social.
 14. Instituciones públicas en general y municipios.
+15. Todos aquellos otros establecimientos con permiso sanitario de funcionamiento que no brinden atención al público presencial.
+(*) (Así reformado el inciso a) anterior por resolución MS-DM-6465 del 31 de julio del 2020)
 B. Podrán operar de lunes a domingo sin restricción horaria, sin público y a puerta cerrada, con el mínimo personal requerido:
 1. Actividades a puerta cerrada de teatros (incluyendo el Teatro Nacional y el Teatro Popular Melico Salazar), iglesias, municipalidades con sus sesiones de concejo municipal, consejos de distrito, reunión de comisiones y demás reuniones municipales, así como cualquier otro espacio cerrado para el desarrollo de transmisiones virtuales, con estricto cumplimiento de los protocolos preventivos y lineamientos emitidos por el Ministerio de Salud, y con el personal mínimo requerido.
 2. Deportes de contacto de alto rendimiento sin espectadores.
-C. Podrán operar de lunes a domingo sin restricción horaria con una capacidad de ocupación al cincuenta por cierto (50%):
+(*)C. Podrán operar de lunes a domingo sin restricción horaria con una capacidad de ocupación al cincuenta por cierto (50%):
 1. Ferias del agricultor.
 2. Mercados, supermercados, minisúper, pulperías, panaderías, carnicerías, verdulerías y similares.
 3. Venta de productos agrícolas, pecuarios, acuícolas, pesqueros y floristerías.
@@ -57,8 +59,8 @@ C. Podrán operar de lunes a domingo sin restricción horaria con una capacidad 
 7. Venta de repuestos, partes, piezas y accesorios para: vehículos, motores en general, bicicletas, equipo agrícola, maquinaria y equipo pesado e industriales.
 8. Ferreterías y venta de materiales para la construcción.
 9. Cerrajerías.
-10.Vidrieras.
-11.Reparación de vehículos, motores en general, motocicletas, llantas, ciclos y talleres de bicicletas, equipo agrícola, maquinaria y equipo pesado e industriales.
+10. Vidrieras.
+11. Reparación de vehículos, motores en general, motocicletas, llantas, ciclos y talleres de bicicletas, equipo agrícola, maquinaria y equipo pesado e industriales.
 12. Servicio de cambio de aceite a vehículos (Lubricentros).
 13. Servicios de lavado de automóviles (Lavacar).
 14. Revisión Técnica Vehicular (RTV).
@@ -70,10 +72,10 @@ C. Podrán operar de lunes a domingo sin restricción horaria con una capacidad 
 20. Funerarias y/o capillas de velación.
 21. Parques nacionales según la lista que publique el MINAE.
 22. Parques temáticos de animales, parques botánicos o parques marinos que no impliquen el acceso a playas ni balnearios.
-23.Hoteles, cabinas o establecimientos de alojamiento.
+23. Hoteles, cabinas o establecimientos de alojamiento.
 24. Piscinas, restaurantes, gimnasios de los hoteles, cabinas o establecimientos de alojamiento.
-25.Centros con piscinas de aguas termales.
-26. Todos aquellos otros establecimientos con permiso sanitario de funcionamiento que no brinden atención al público presencial.
+25. Centros con piscinas de aguas termales.
+(*) (Así reformado el inciso c) anterior por resolución MS-DM-6465 del 31 de julio del 2020)
 D. Podrán operar de lunes a domingo de las 5:00 horas a las 17:00 horas, con aforo diferenciado:
 1. Modalidad de autoservicio para los servicios de alimentación al público, entiéndase la misma como el retiro de productos en ventanilla utilizando un vehículo.
 2. Modalidad de retiro de comida en establecimiento para llevar.
