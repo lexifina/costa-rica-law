@@ -1,0 +1,16 @@
+Nº 42507-MEIC
+EL PRESIDENTE DE LA REPÚBLICA
+Y
+LA MINISTRA DE ECONOMÍA, INDUSTRIA Y COMERCIO
+En uso de las potestades que les confiere el artículo 140, incisos 3) y 18, artículo 146 de la Constitución Política; artículo 28, inciso 2), acápite b) de la Ley General de la Administración Pública, Ley Nº 6227 del 2 de mayo de 1978; la Ley del Sistema Nacional para la Calidad, Ley Nº 8279 del 02 de mayo de 2002; la Ley de la Promoción de la Competencia y Defensa Efectiva del Consumidor, Ley Nº 7472 del 20 de diciembre de 1994; la Ley de Aprobación del Acta Final en que se incorporan los resultados de la Ronda de Uruguay de Negociaciones Comerciales Multilaterales, Ley Nº 7475 del 20 de diciembre de 1994; Ley Orgánica del Ministerio de Economía, Industria y Comercio, Ley Nº 6054 del 14 de junio de 1977; con su Reglamento Orgánico, Decreto Ejecutivo N° 37457-MEIC del 02 de noviembre de 2012 y sus reformas parciales; y lo dispuesto en el Decreto Ejecutivo N° 41485-MEIC del 24 de octubre de 2018.
+CONSIDERANDO:
+I— Que de acuerdo a la actualización de las normas internacionales relacionadas con la evaluación de la conformidad y reglamentación técnica relacionadas se hace necesario revisar y actualizar el esquema implementado en la regulación para facilitar el comercio y los procesos de demostración del cumplimiento de este reglamento técnico a los esquemas existentes a nivel internacional.
+II— Que los reglamentos técnicos deben contar con esquemas de demostración de la conformidad que no vayan a convertirse en un obstáculo innecesario al comercio. III— Que el sector importador ha manifestado la imposibilidad de obtener certificados emitidos por entes acreditados en los alcances del reglamento técnico costarricense para llantas en los países de fabricación de las mismas.
+IV— Que se hace necesario proceder a la reforma del Decreto Ejecutivo Nº 41485-MEIC del 24 de octubre de 2018, “RTCR 486: 2016 REGLAMENTO TÉCNICO PARA LLANTAS NEUMATICAS”; publicado en el Diario Oficial La Gaceta Nº 23 del 01 de febrero de 2019, Alcance Nº 23, con la finalidad de ajustar las referencias de las normas sobre las cuales se sustenta el Reglamento Técnico Costarricense.
+V— Que el presente Decreto Ejecutivo, cumple con los principios de mejora regulatoria de acuerdo con el Informe Nº DMR-DAR-INF-33-2020, emitido por el Departamento de Análisis Regulatorio de la Dirección de Mejora Regulatoria.
+Por tanto;
+DECRETAN
+REFORMA AL DECRETO EJECUTIVO N° 41485-MEIC DEL 24 DE OCTUBRE DEL 2018, PUBLICADO
+EN EL DIARIO OFICIAL LA GACETA Nº 23 DEL 01 DE FEBRERO DE 2019, ALCANCE Nº 23,
+DENOMINADO: “RTCR 486: 2016 REGLAMENTO TECNICO PARA LLANTAS NEUMÁTICAS”.
+Artículo 1º— Agregar. Agréguese el numeral 5 al Apartado denominado “REQUISITOS DE MARCADO”, por consiguiente córrase la numeración de los apartados para que en adelante se lean “6. EQUIVALENCIA CON OTROS DOCUMENTOS NORMATIVOS”, “7. DEMOSTRACION DE LA CONFORMIDAD”, “8. OTRAS OBLIGACIONES”, y “9. BIBLIOGRAFÍA”, todos correspondientes al Artículo 1 del Decreto Ejecutivo Nº 41485-MEIC del 24 de octubre de 2018, “RTCR 486: 2016 REGLAMENTO TÉCNICO PARA LLANTAS NEUMATICAS”; publicado en el Diario Oficial La Gaceta Nº 23 del 01 de febrero de 2019, Alcance Nº 23.
