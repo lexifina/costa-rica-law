@@ -1,2 +1,2 @@
-Artículo 3°.-Este Decreto empieza a regir 12 meses después de su publicación en el Diario Oficial La Gaceta.
-Dado en la Presidencia de la República. -San José, a los veinticuatro días del mes octubre del dos mil dieciocho.
+Artículo 3º—El presente Reglamento Técnico entrará en vigencia a partir del 02 de agosto del año 2020.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 42131 del 3 de diciembre del 2019)

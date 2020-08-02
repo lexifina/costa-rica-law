@@ -14,3 +14,4 @@ Reglamento Técnico: RTCR 486: 2016 Reglamento Técnico para Llantas Neumáticas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-08-02 | la propia norma |
+| 2 | 2020-08-02 | Decreto Ejecutivo 42131 (2019-12-03) |
