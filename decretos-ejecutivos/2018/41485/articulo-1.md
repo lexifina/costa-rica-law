@@ -15,14 +15,17 @@ Artículo 1º.- Aprobar el siguiente Reglamento Técnico:
 RTCR 486: 2016 Reglamento Técnico para Llantas Neumáticas.
 1. OBJETIVO
 Establecer los requisitos técnicos y de marcado que deben cumplir las llantas neumáticas que se comercializan en el territorio nacional.
-2. ÁMBITO DE APLICACIÓN
-Aplica a las llantas neumáticas nuevas de reemplazo incluidas en las fracciones arancelarias indicadas en la Tabla Nº 1, ya sea que se fabriquen en el país o se importen para su comercialización dentro del territorio nacional.
-Tabla 1. Clasificación de llantas según tipo y fracción arancelaria.
+(*)2. ÁMBITO DE APLICACIÓN. Aplica a las llantas neumáticas nuevas de reemplazo incluidas en las fracciones arancelarias indicadas en la Tabla Nº 1, ya sea que se fabriquen en el país, se importen de manera definitiva o se comercialicen dentro del territorio nacional.
+Tabla Nº 1
+Clasificación de llantas según tipo y fracción arancelaria
 Partida | Texto de la subpartida | Producto
-4011.10.00.00 | Incluidos los del tipo familiar ("break" o "station wagon") y los de carreras). | Llantas neumáticas para vehículos de pasajeros incluidos los camperos (llantas tipo II y tipo III)
-4011.20.10.00 | Radiales | Llantas neumáticas para autobuses o camiones (llantas tipo IV).
-4011.20.90.00 | Los demás
-Se excluyen de la aplicación de este reglamento técnico las llantas que ingresen instaladas en vehículos y la respectiva llanta de repuesto, las de Equipo Original (OE), además las llantas de uso agrícola e industrial (AG y OTR) que se encuentran clasificadas en otras partidas arancelarias.
+4011.10.00.00.00 | Incluidos los del tipo familiar ("break" o "station wagon") y los de carreras). | Llantas neumáticas para vehículos de pasajeros incluidos los camperos (llantas tipo II y tipo III)
+4011.20.10.00.00 | Radiales | Llantas neumáticas para autobuses o camiones (llantas tipo IV).
+4011.20.90.00.00 | Otros
+Nota: las partidas arancelarias podrán ser modificadas por la Autoridad Aduanera Nacional, para lo cual publicará la respectiva resolución administrativa.
+Se excluyen de la aplicación de este reglamento técnico las llantas que ingresen instaladas en vehículos nuevos o usados y su respectiva llanta de repuesto.
+Se excluyen también las llantas especialmente diseñadas para los vehículos mencionados en el párrafo quinto del artículo 24 de La Ley N° 9078 del 04 de octubre del 2012, Ley de Transito por Vías Públicas Terrestres y Seguridad Vial; publicada en el Alcance Nº 165 de La Gaceta Nº 207 del 26 de octubre del 2012, en cuyo caso se deberá tramitar el proceso de dispensa incluido en el Decreto Ejecutivo Nº 41422-MEIC del 16 de octubre del 2018, denominado: “Procedimiento para dispensar del cumplimiento de la nota técnica a productos del sector no alimentario que se encuentran fuera del ámbito de aplicación de un reglamento técnico competencia del MEIC”, publicado en el Diario Oficial La Gaceta N° 237 del 20 de diciembre del 2018.
+(*) (Así reformado el apartado 2) anterior por el artículo 3° del decreto ejecutivo N°42507 del 29 de julio del 2020)
 3. DEFINICIONES
 3. 1 ancho de sección de la llanta: Ancho del neumático, montado en aro de medición, inflado a la presión de medición, sin carga. No incluye barras, ribetes ni adornos que sobresalgan del perfil normal del costado.
 3. 2 ancho total (W): Ancho de la sección transversal de la llanta neumática que incluye barras ribetes o los adornos más sobresalientes en la superficie externa de los costados.
@@ -74,16 +77,27 @@ Se excluyen de la aplicación de este reglamento técnico las llantas que ingres
 3. 48 resistencia a la alta velocidad: capacidad de soportar los límites máximos de velocidad para la cual fue diseñada la llanta neumática.
 3. 49 resistencia o aguante de la llanta neumática: Rodamiento de la llanta neumática en contacto con una rueda de acero a velocidad constante sometido a cargas variables durante periodos de tiempo determinados.
 3. 50 T: Letra colocada inmediatamente adelante del ancho de sección para identificar una llanta de repuesto para su uso temporal.
-4. PRUEBAS DE ENSAYO
+(*)4. PRUEBAS DE ENSAYO
 Las llantas neumáticas para los vehículos indicados en el presente Reglamento, deben cumplir con las siguientes pruebas técnicas:
-Requisito/ tipo | Tipo II | Tipo III | Tipo IV
-Prueba de Fuerza | INTE-ISO 10191, INTE- ISO 4000-1 o FMVSS 571. 109/139. | FMVSS 571.119/139. | INTE-ISO 10454, ó FMVSS 571.119
-Desmontaje de la Ceja1/ | INTE-ISO 10191, INTE-ISO 4000-1, ó FMVSS 571.109/139. | FMVSS 571.119/139. | No aplica
-Resistencia o Aguante | INTE-ISO 10191, INTE- ISO 4000-1 ó FMVSS 571.109/139. | INTE-ISO 10454 o FMVSS 571.119/139. ó UN/ECE Regulation 54 | INTE-ISO 10454, ó FMVSS 571.119, ó UN/ECE Regulation 54
-Resistencia a la velocidad | INTE-ISO 10191. INTE-ISO 4000-1 ó FMVSS 571.109/139 ó UN/ECE Regulation 30. | FMVSS 571. 139 o UN/ECE Regulation 54. UN/ECE Regulation 30. Nota: cuando aplique según índice de capacidad de carga. | No aplica
-Requisito Dimensional | INTE ISO 4000-1. Ó FMVSS 571.109//139. ó UN/ECE Regulation 30. | FMVSS 119/139. ó UN/ECE Regulation 54. UN/ECE Regulation 30. | INTE ISO 4209-1. ó FMVSS 571.119. ó UN/ECE Regulation 54.
-1/ Para llantas con estructuras angulares y convencionales no aplica la prueba de Desmontaje de la ceja en ningún tipo.
-REQUISITOS DE MARCADO
+Tabla 2. Pruebas de ensayo que deben de cumplir las llantas.
+Prueba | Llantas Tipo II | Llantas Tipo III | Llantas Tipo IV
+Prueba de fuerza | INTE/ISO 10191 | INTE/ISO 10191 | INTE/ISO 10454
+FMVSS 571.109 / FMVSS 571.1392) | FMVSS 571.139 | FMVSS 571.119
+Desmontaje de la ceja 1) | INTE/ISO 10191 | INTE/ISO 10191 | NA
+FMVSS 571.109 / FMVSS 571.1392) | FMVSS 571.139
+Resistencia o Aguante | INTE/ISO 10191 | INTE/ISO 10191 | INTE/ISO 10454
+FMVSS 571.109 / FMVSS 571.1392) | FMVSS 571.139 | FMVSS 571.119
+UNECE 30/UNECE 542) | UNECE 54 | UNECE 54
+Resistencia a la velocidad o alta velocidad | INTE/ISO 10191 | INTE/ISO 10191 | NA
+FMVSS 571.109 / FMVSS 571.1392) | FMVSS 571.139
+UNECE 30/UNECE 542) | UNECE 54
+Requisito dimensional | INTE/ISO 4000-1 | INTE/ISO 4000-1 | INTE/ISO 4209
+FMVSS 571.109 / FMVSS 571.1392) | FMVSS 571.139 | FMVSS 571.119
+UNECE 30/UNECE 542) | UNECE 54 | UNECE 54
+Notas: 1) Para llantas con estructura angular o convencional no aplica la prueba de Desmontaje de la ceja en ningún tipo. 2) Según corresponda, algunas llantas Tipo II cumplen con una u otra norma.
+(*) (Así reformado el apartado 4) anterior por el artículo 3° del decreto ejecutivo N°42507 del 29 de julio del 2020)
+5. REQUISITOS DE MARCADO
+(Así adicionado el numeral 5) anterior por el artículo 1° del decreto ejecutivo N° 42507 del 29 de julio del 2020)
 5.1 Las llantas neumáticas deben llevar un marcaje, impresión o estampado con la información exigida en el presente Reglamento Técnico, de manera permanente en al menos uno de sus laterales, de acuerdo con lo indicado en la siguiente tabla.
 Tabla 3. Características a evaluar sobre marcado.
 Requisito \ tipo | Tipo II | Tipo III | Tipo IV |
@@ -119,11 +133,13 @@ NOTAS:
 1. Las posiciones de los indicadores de desgaste de la banda de rodamiento deben ser identificados, según las prácticas de manufacturas reconocidas internacionalmente, por ejemplo, por medio de las siglas TWI (Tread Wear Indicador), por medio de un triángulo (▲) u otro símbolo que especifique este indicador. Esta indicación debe estar grabada en el hombro del neumático en posición adyacente al indicador ubicado dentro de estrías de la banda de rodamiento. La cantidad de indicadores de desgaste no deben ser menores de 3 de cada lado.
 2. Los dos primeros dígitos son para indicar la semana y los otros dos para el año. Ej.: «1911», corresponde a una llanta fabricada en la 19ª semana del 2011.
 3. El tipo de vehículo para el cual fue diseñada la rotación preferida, banda de rodamiento especial, se utilizan las palabras “TUBELESS”, “REINFORCED” o “EXTRA LOAD”, “BIAS BELTED”, RADIAL, P, IN, según sea el caso.
-5.2 El lugar de marcado de la carga, las características de velocidad, el tamaño y la construcción deben estar en el mismo costado de la llanta. No obstante lo anterior, la información podrá ser agregada mediante una etiqueta complementaria cuando la misma no esté en idioma español.
-El tamaño de los caracteres utilizados en el código de construcción de la llanta, debe ser tal que, le permita al consumidor leerlo en condiciones normales de visión.
-5. EQUIVALENCIA CON OTROS DOCUMENTOS NORMATIVOS
+5.2. El lugar de marcado de la carga, las características de velocidad, el tamaño y la construcción deben estar en al menos un costado de la llanta. No obstante, lo anterior, la información podrá ser agregada, previo a su colocación en el mercado, mediante una etiqueta complementaria cuando la misma no esté en idioma español.
+(Así reformado el inciso anterior por el artículo 3° del decreto ejecutivo N°42507 del 29 de julio del 2020)
+6. EQUIVALENCIA CON OTROS DOCUMENTOS NORMATIVOS
+(Así modificada la numeración del apartado anterior por el artículo 1° del decreto ejecutivo N° 42507 del 29 de julio del 2020, que lo traspaso del antiguo apartado 5) al 6)
 Serán equivalentes con este reglamento técnico, aquellos documentos normativos que hayan sido declarados como tales, de conformidad con el Decreto Ejecutivo Nº 38849-MEIC del 06 de enero de 2015, Procedimiento para demostrar equivalencia con un reglamento técnico de Costa Rica (RTCR).
-6. DEMOSTRACION DE LA CONFORMIDAD
+7. DEMOSTRACION DE LA CONFORMIDAD
+(Así modificada la numeración del apartado anterior por el artículo 1° del decreto ejecutivo N° 42507 del 29 de julio del 2020, que lo traspaso del antiguo apartado 6) al 7)
 7.1 Para los efectos de este reglamento se utilizará el Modelo 5, consignado en el Cuadro Nº 1 del Apartado 4, Modelos de Evaluación de Conformidad para Demostrar el Cumplimiento con los Reglamentos Técnicos, del Decreto Ejecutivo N° 37662-MEIC-H-MICIT del 12 de diciembre del 2012, Procedimiento para la Demostración de la Evaluación de la Conformidad de los Reglamentos Técnicos.
 Este modelo está basado en ensayos, evaluación y vigilancia de sistemas de calidad, además de la vigilancia continua de los productos provenientes de la fabricación, del mercado o ambos de acuerdo con los requisitos especificados en este reglamento técnico y que son evaluados para determinar su conformidad.
 Este modelo de certificación incluye la implementación de las siguientes etapas:
@@ -135,22 +151,27 @@ e) Atestación de la conformidad.
 f) Emisión de una licencia para utilizar los certificados o las marcas en los productos.
 g) Vigilancia del proceso de producción o del sistema de calidad o ambos.
 h) Vigilancia mediante el ensayo o inspección de muestras de la fábrica, del mercado abierto, o ambos.
-7.1.1 Para el punto anterior, el Certificados de Conformidad deben ser emitido por un Organismo de Certificación de producto de tercera parte, acreditado bajo la norma internacional ISO 17065: vigente o su norma homóloga en el país de origen vigente (en su versión más actualizada), por el Ente Costarricense de Acreditación (ECA) o por una entidad acreditadora reconocida por el ECA, mediante un acuerdo de reconocimiento multilateral (MLA por sus siglas en inglés) ante el Foro Internacional de Acreditación (IAF por sus siglas en inglés), para los alcances requeridos en este Reglamento.
-7.1.2 Los organismos de certificación de producto deben seguir el siguiente orden de prioridad para la selección del laboratorio:
-a) Laboratorios de tercera parte acreditados bajo la norma ISO/IEC 17025, en su versión vigente, para los ensayos específicos solicitados por el reglamento, por el ECA o por un organismo de acreditación signatario del MRA de ILAC.
-b) Laboratorios de primera parte acreditados bajo la norma ISO/IEC 17025, en su versión vigente, para los ensayos específicos solicitados por el reglamento, por el ECA o por un organismo de acreditación signatario del MRA de ILAC.
-c) Laboratorios de tercera parte no acreditados para el alcance específico, el Organismo de certificación o de inspección respectivo, debe contar con evidencia del cumplimiento de los requisitos técnicos de ISO/IEC 17025, en su versión vigente, por parte del laboratorio.
-d) Laboratorios de primera parte no acreditado para el alcance específico, el Organismo de certificación o de inspección respectivo, debe contar con evidencia del cumplimiento de los requisitos técnicos de ISO/IEC 17025, en su versión vigente, por parte del laboratorio.
+7.1.1 Para el punto anterior, los Certificados de Conformidad deben ser emitidos por un Organismo de Certificación de producto de tercera parte acreditado bajo la norma internacional ISO 17065: vigente o su norma homóloga vigente en el país de origen, por el Ente Costarricense de Acreditación (ECA) o por una entidad acreditadora reconocida por el ECA, mediante un acuerdo de reconocimiento multilateral (MLA por sus siglas en inglés) ante el Foro Internacional de Acreditación (IAF por sus siglas en inglés), para los alcances requeridos en este Reglamento o que alternativamente estén acreditados en los alcances generales para la fabricación de productos de caucho, de acuerdo con la Nomenclatura estadística de actividades económicas de la Comunidad Europea (NACE, alcance 22.1).
+(Así reformado el inciso anterior por el artículo 3° del decreto ejecutivo N°42507 del 29 de julio del 2020)
+7.1.2 Los Organismos de Certificación deberán cumplir con los Criterios para la utilización de laboratorios por los organismos de certificación de producto, establecidos por el Ente Costarricense de Acreditación (Código ECA-MC-C01 en su versión vigente en su página web)
+(Así reformado el inciso anterior por el artículo 3° del decreto ejecutivo N°42507 del 29 de julio del 2020)
 7.1.3 No obstante lo indicado en los numerales 7.1.1 y 7.1.2, a solicitud de un país, la Autoridad Nacional Competente, podrá entablar negociaciones encaminadas: a la conclusión de acuerdos mutuos de reconocimiento de los resultados de sus respectivos procedimientos de evaluación de la conformidad; o realizar acuerdos reconocimientos de los procedimientos de evaluación de la conformidad, aun cuando estos difieran, siempre que se tenga el convencimiento de que, se trata de procedimientos que ofrecen un grado de conformidad con el reglamento técnico.
 Para lo anterior, es posible que se requiera previamente a realizar consultas para llegar a un entendimiento mutuamente satisfactorio.
+7.1.4. No obstante lo indicado en 7.1.1), cuando en el país de fabricación de las llantas no se utilicen esquemas de evaluación de conformidad basados en Organismo para la Evaluación de la Conformidad (OEC) para los productos incluidos en el ámbito de aplicación del presente reglamento técnico, se podrá presentar un documento emitido ya sea por el ente oficial competente para otorgar autorizaciones para el uso de sellos de conformidad en la materia, o por una entidad de carácter privado que cuente con la investidura oficial otorgada para tales fines, como alternativa a los certificados emitidos por OEC, en cuyo caso el ECA verificará que efectivamente en el país de origen no se utilizan sistemas de evaluación de la conformidad basados en OEC.
+(Así adicionado el inciso anterior por el artículo 2° del decreto ejecutivo N° 42507 del 29 de julio del 2020, que lo traspaso del antiguo apartado 6) al 7)
+7.1.5. Los certificados indicados en el numeral 7.1.1 podrán incluir varias familias o tipos de llantas, siempre que hagan referencia a único fabricante, país y planta de producción.
+(Así adicionado el inciso anterior por el artículo 2° del decreto ejecutivo N° 42507 del 29 de julio del 2020, que lo traspaso del antiguo apartado 6) al 7)
 7.2 Previo a la colocación del producto en el mercado
 Tanto los productores como importadores de los productos sujetos a este reglamento técnico, deben cumplir con lo estipulado en el inciso 5.1 del Apartado 5 Procedimiento para la Demostración de la Conformidad, del Decreto Ejecutivo N° 37662-MEIC-H-MICIT del 12 de diciembre del 2012, Procedimiento para la Demostración de la Evaluación de la Conformidad de los Reglamentos Técnicos, conforme el procedimiento que publique el ECA en el Diario Oficial La Gaceta y en su página web, a más tardar a la entrada en vigencia del presente reglamento técnico.
 7.3 Posterior a la colocación del producto en el mercado
 Para los efectos de este reglamento se deberá cumplir con lo estipulado en el inciso 5.2 del Apartado 5 Procedimiento para la Demostración de la Conformidad, del Decreto Ejecutivo N° 37662 MEIC-HMICIT del 12 de diciembre del 2012, Procedimiento para la demostración de la evaluación de la conformidad de los Reglamentos Técnicos.
-7. OTRAS OBLIGACIONES
-8.1 Será responsabilidad del importador y del productor nacional, contar con los documentos que soportan la Declaración de Conformidad de los cuales deberá conservar copia por un periodo no menor de 5 años.
+8. OTRAS OBLIGACIONES
+(Así modificada la numeración del apartado anterior por el artículo 1° del decreto ejecutivo N° 42507 del 29 de julio del 2020, que lo traspaso del antiguo apartado 7) al 8)
+8.1 Será responsabilidad del importador, del productor nacional, del distribuidor y comercializador, contar con los documentos que soportan la Declaración de Conformidad, los cuales deberá conservar copia por un periodo no menor de 5 años, de conformidad con la legislación nacional vigente en materia de comercio. Para lo anterior, el productor nacional o el importador, según sea el caso, deben facilitar copias de dichos documentos a los distribuidores y a los comercializadores.
+(Así reformado el inciso anterior por el artículo 3° del decreto ejecutivo N°42507 del 29 de julio del 2020)
 8.2 Con el fin de constatar la validez de los Certificados de Conformidad aportados, el MEIC, podrá solicitar copia de dichos documentos, sea al productor nacional, al importador o al agente de aduanas que representa a este último.
-8. BIBLIOGRAFÍA
+9. BIBLIOGRAFÍA
+(Así modificada la numeración del apartado anterior por el artículo 1° del decreto ejecutivo N° 42507 del 29 de julio del 2020, que lo traspaso del antiguo apartado 8) al 9)
 9.1 Costa Rica, Manual de Procedimientos para la revisión técnica de vehículos automotores en las estaciones de Revisión Técnica Vehicular. Publicado en el Alcance Nº 69, del Diario Oficial La Gaceta Nº 225 del 21 de noviembre de 2014.
 9.2 Perú, Decreto Supremo Nº 16-2005, Reglamento para Neumáticos de Automóviles, Camión Ligero, Buses y Camiones.
 9.3 México, Norma Oficial NOM-121-SCFI-2004, Industria Hulera - Cámaras para Llantas Neumáticas de Vehículos Automotores y Bicicleta-Especificaciones de Seguridad y Métodos de Prueba.

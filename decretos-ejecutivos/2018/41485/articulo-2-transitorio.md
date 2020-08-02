@@ -1,0 +1,2 @@
+TRANSITORIO II. Tanto los productores como importadores de los productos sujetos a este reglamento técnico, a partir del 02 de agosto del 2020, deberán cumplir con lo dispuesto en el apartado 7.2. Asimismo; todos los comerciantes y distribuidores, a partir del 02 de diciembre de 2020, deberán cumplir con lo establecido en el apartado 7.3 del presente reglamento técnico.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 42507 del 29 de julio del 2020)
