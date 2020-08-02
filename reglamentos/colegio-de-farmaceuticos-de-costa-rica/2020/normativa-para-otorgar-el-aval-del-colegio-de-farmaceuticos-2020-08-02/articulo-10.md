@@ -1,0 +1,1 @@
+Artículo 10.—Derogatorias. La presente normativa deroga la Normativa para Otorgar el Aval del Colegio de Farmacéuticos de Costa Rica a Iniciativas Relacionadas con el Desarrollo de la Farmacia publicada en el Diario Oficial La Gaceta N° 89 del jueves 23 de abril del 2020.
