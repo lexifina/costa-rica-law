@@ -14,3 +14,4 @@ Aprueban sorteos de lotería nacional y popular para el mes de agosto del año 2
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-07-29 | la propia norma |
+| 2 | 2020-08-03 | Acuerdo 566 (2020-08-03) |

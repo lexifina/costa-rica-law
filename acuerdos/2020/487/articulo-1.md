@@ -4,33 +4,26 @@ Y PLANES DE PREMIOS DE LOTERÍAS AGOSTO 2020
 El Calendario de Sorteos correspondiente al mes de agosto 2020 fue aprobado por la Junta Directiva de la Junta de Protección Social, para los productos Lotería Nacional, Lotería Popular, Nuevos Tiempos, Lotto, Lotto Revancha y Rueda de la Fortuna con el acuerdo JD-719 correspondiente al capítulo IV), artículo 11 de la Sesión Ordinaria 55-2019 celebrada el 16 de setiembre de 2019, además el acuerdo JD-999 correspondiente al V), artículo 10) de la Sesión Ordinaria 74-2019 celebrada el 16 de diciembre de 2019 y el acuerdo JD-586 correspondiente al capítulo IV), articulo 9) de la sesión ordinaria 45-2019 celebrada el 05 de agosto de 2019. Asimismo, se aprobaron los Planes de Premios del 2020, mediante acuerdo JD-549, correspondiente al capítulo V), artículo 17) de la sesión ordinaria Nº 42-2019 celebrada el 22 de julio de 2019. Y el juego Tres Monazos con el acuerdo JD- 167 correspondiente al Capítulo II), artículo 5) de la Sesión Ordinaria 13-2020 celebrada el 02 de marzo de 2020 y el acuerdo JD-563 correspondiente al capítulo II), articulo 2) de la sesión ordinaria 44-2019 celebrada el 29 de julio de 2019. Así como los acuerdos para la modificación de los sorteos Nuevos Tiempos y Tres Monazos y retornar los sorteos en horario habitual 12:55 pm y 7:30 pm a partir del viernes 08 de mayo según acuerdos JD 326, JD- 328 y JD -330, capítulo IV), artículo 7) de la sesión ordinaria 26-2020, celebrada el 04 de mayo de 2020.Se aprueban los sorteos de Lotería Nacional y Popular para el mes de Agosto mediante el acuerdo JD-487. Capítulo IV), artículo 11) de la sesión Ordinaria 39-2020 celebrada el 02 de julio de 2020.
 Este Calendario se encuentra sujeto a modificaciones, en cumplimiento de los fines públicos asignados a la Junta de Protección Social y para garantizar la seguridad económica de las loterías que en forma exclusiva administra y distribuye en el territorio nacional, según lo establecido en el artículo N° 2 de la Ley N°7395 “Ley de Loterías”.
 CALENDARIO DE LOTERÍAS PREIMPRESAS
-SORTEOS LOTERIA POPULAR AGOSTO 2020
-DÍA | FECHA | Nº DE SORTEO | TIPO DE LOTERÍA | FECHA CADUCIDAD
-Miércoles | 05/08/2020 | 6509 | Lotería Popular | lunes, 05 octubre, 2020
-Viernes | 07/08/2020 | 6510 | Lotería Popular | jueves, 08 octubre, 2020
-Miércoles | 12/08/2020 | 6511 | Lotería Popular | martes, 13 octubre, 2020
-Viernes | 21/08/2020 | 6514 | Lotería Popular | jueves, 22 octubre, 2020
-Viernes | 28/08/2020 | 6516 | Lotería Popular | jueves, 29 octubre, 2020
-SORTEO LOTERIA NACIONAL AGOSTO 2020
-DÍA | FECHA | Nº DE SORTEO | TIPO DE LOTERÍA | FECHA CADUCIDAD
-Martes | 18/08/2020 | 4608 | Día de la Madre | lunes, 19 de octubre, de 2020
-Martes | 25/08/2020 | 4609 | Lotería Nacional | lunes, 26 de octubre, de 2020
+AGOSTO, 2020
+Sorteo | Fecha sorteos | Lotería | Precio
+No.6509 | 5 de agosto, 2020 | Popular | ₡5000
+No.6510 | 7 de agosto, 2020 | Popular | ₡6000
+No.6511 | 14 de agosto, 2020 | Popular | ₡5000
+No.6514 | 21 de agosto, 2020 | Popular | ₡6000
+No. 4608 | 31 de agosto, 2020 | Nacional Madre | ₡20000
+(Así reformado el cuadro anterior mediante sesión N° 47-2020 del 3° de agosto del 2020)
 PLANES DE PREMIOS
 SORTEOS ORDINARIOS DE LOTERÍA NACIONAL DE AGOSTO DEL
 2020
 PLAN DE PREMIOS POR EMISIÓN
 EMISIÓN: 100.000 billetes cada una (Emisión doble) total :200.000 Billetes
 El Billete consta de 10 fracciones con un valor de ¢10.000 el billete y ¢1.000 la fracción
-[imagen]
-[imagen]
 SORTEO EXTRAORDINARIO DE LOTERÍA NACIONAL DE
 AGOSTO DEL 2020
 PLAN DE PREMIOS POR EMISIÓN
 Día de la Madre
 EMISIÓN: 2 de 100.000 billetes cada una (Emisión doble) total :200.000 Billetes
 El Billete consta de 10 fracciones con un valor de ¢20.000 el billete y ¢2.000 la fracción
-[imagen]
-[imagen]
 PLANES DE PREMIOS SORTEOS ORDINARIOS LOTERÍA POPULAR AGOSTO
 2020
 SORTEO ORDINARIO DE LOTERÍA POPULAR 2020
@@ -39,17 +32,15 @@ INVERSAS 5 FRACCIONES
 PLAN DE PREMIOS POR EMISIÓN
 EMISIÓN: 100.000 billetes cada una (Emisión doble) total :200.000 Billetes
 El Billete consta de 5 fracciones con un valor de ¢5.000 el billete y ¢1.000 la fracción
-[imagen]
 SORTEO ORDINARIO DE LOTERÍA POPULAR 2020
 APROBADO PARA TODOS LOS VIERNES
 INVERSAS 5 FRACCIONES
 PLAN DE PREMIOS POR EMISIÓN
 EMISIÓN: 100.000 billetes cada una (Emisión doble) total :200.000 Billetes
 El Billete consta de 5 fracciones con un valor de ¢6.000 el billete y ¢1.200 la fracción
-[imagen]
 CALENDARIO AGOSTO 2020 DE LOTERÍAS ELECTRÓNICAS
 SORTEOS DE LOTTO-LOTTO REVANCHA AGOSTO 2020
-[imagen] [imagen] [imagen] [imagen] [imagen] [imagen]
+[imagen] [imagen] [imagen]
 ago-20
 DÍA | FECHA | Nº DE SORTEO | TIPO DE LOTERÍA | CADUCIDAD
 Sábado | 1/8/2020 | 2052 | LOTTO Y LOTTO REVANCHA | jueves, 1 de octubre de 2020
