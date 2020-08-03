@@ -14,3 +14,4 @@ Reglamento de Transferencias de Recursos a Organizaciones no Gubernamentales (O.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-06-04 | la propia norma |
+| 2 | 2020-08-03 | Reglamento 27 (2020-08-03) |

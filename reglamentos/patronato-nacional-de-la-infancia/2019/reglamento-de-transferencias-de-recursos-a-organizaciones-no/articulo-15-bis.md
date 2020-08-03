@@ -1,0 +1,2 @@
+Artículo 15 bis. En casos de emergencia nacional decretada, fuerza mayor o caso fortuito, la Junta Directiva determinará el método de cálculo para el giro de los recursos indicados en el artículo 15 inciso e) y f)., con la finalidad de garantizar el derecho a la atención integral de las personas menores de edad y no afectar la prestación del servicio; de acuerdo a propuesta que deberá elevar para su conocimiento la Gerencia Técnica en conjunto con el Departamento Financiero Contable.
+(Así adicionado en sesión N° 027 del 3 de agosto del 2020)
