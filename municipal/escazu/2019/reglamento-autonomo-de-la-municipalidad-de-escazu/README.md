@@ -16,3 +16,4 @@ Reglamento autónomo de la Municipalidad de Escazú
 | 1 | 2019-06-04 | la propia norma |
 | 2 | 2019-10-14 | Reglamento municipal 181 (2019-10-14) |
 | 3 | 2020-06-15 | Reglamento municipal 7 (2020-06-15) |
+| 4 | 2020-08-03 | Reglamento municipal 14 (2020-08-03) |
