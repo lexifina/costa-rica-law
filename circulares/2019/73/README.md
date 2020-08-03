@@ -13,3 +13,4 @@ Mejoras en los Sistemas para la identificación de casos de Crimen Organizado
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-05-13 | la propia norma |
+| 2 | 2020-08-03 | Circular 158 (2020-08-03) |
