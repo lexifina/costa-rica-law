@@ -14,3 +14,4 @@ Reglamento para la colocación de rótulos en establecimientos comerciales sobre
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-07-17 | la propia norma |
+| 2 | 2020-08-03 | Decreto Ejecutivo 42554 (2020-08-03) |

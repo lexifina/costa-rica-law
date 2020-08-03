@@ -1,0 +1,2 @@
+Transitorio Único: Se otorga un plazo hasta el 17 de octubre del 2020, para que todos los establecimientos en el territorio nacional, donde se comercialicen prendas de vestir nuevas y usadas, tanto nacionales como provenientes del exterior, cumplan con la disposición contenida en el artículo del presente reglamento.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° N°42554 del 3° de agosto del 2020)
