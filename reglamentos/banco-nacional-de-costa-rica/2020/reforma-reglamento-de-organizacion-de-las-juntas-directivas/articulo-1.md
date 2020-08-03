@@ -1,0 +1,10 @@
+BANCO NACIONAL DE COSTA RICA
+JUNTA DIRECTIVA GENERAL
+El Banco Nacional de Costa Rica comunica la parte resolutiva del acuerdo tomado por la Junta Directiva General, en la Sesión N° 12.449, artículo 15º, celebrada el 30 de marzo del 2020, en el cual acordó aprobar la modificación al Reglamento de Organización de las Juntas Directivas Locales del BNCR (RG02-GC01), con el propósito de incorporar el artículo 15 bis, Celebración de sesiones virtuales, para que, en lo sucesivo, se lea de conformidad con el siguiente texto:
+Artículo 15 bis. Celebración de sesiones virtuales. Se entenderá por sesión virtual aquella que se realiza utilizando cualquiera de las tecnologías de información y comunicación que garanticen tanto la posibilidad de una comunicación simultánea entre los miembros del órgano colegiado durante toda la sesión, como su expresión mediante documentación electrónica que permita el envío de la imagen, sonido y datos.
+La celebración de sesiones virtuales es un método excepcional, y serán convocadas únicamente en situaciones calificadas de caso fortuito o fuerza mayor para dar continuidad y regularidad al funcionamiento del órgano colegiado.
+Durante el desarrollo de la sesión virtual, el director telepresente deberá asegurarse que en el lugar en que se encuentre, podrá hacer acopio de la tecnología necesaria para mantener una videoconferencia y una comunicación bidireccional en tiempo real que permita una integración plena dentro de la sesión.
+Asimismo, es obligación del telepresente asegurarse de que los medios tecnológicos utilizados cumplen con las seguridades mínimas que garanticen la confidencialidad e integridad de los documentos que se conozcan durante la sesión virtual.
+En el acta respectiva debe indicarse cuál de los miembros del órgano colegiado ha estado “presente” en forma virtual, el mecanismo tecnológico utilizado, la compatibilidad de sistemas, la identificación del lugar en el que se encuentra el ausente y las circunstancias particulares por las cuales la sesión se realizó mediante este mecanismo.
+Es entendido que, en lo demás, el citado Reglamento permanece invariable.
+La Uruca, 23 de julio del 2020.
