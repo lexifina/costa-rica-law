@@ -14,3 +14,4 @@ Eliminación y destrucción de los sorteos de lotería popular N° 6505 del 21/0
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-08-01 | la propia norma |
+| 2 | 2020-08-03 | Acuerdo 566 (2020-08-03) |

@@ -26,15 +26,14 @@ Lotería Nacional Nº 4605 | Martes | 28/7/2020
 Lotería Popular Nº 6507 | SE ELIMINA
 Lotería Popular Nº 6508 | Viernes | 31/7/2020
 c) Se aprueba los ajustes al Calendario de Sorteos de Lotería Popular y Lotería Nacional del mes de agosto, 2020; para que quede de la siguiente manera:
-Sorteos agosto 2020
-Nº Sorteo | Día Sorteo | Fecha del sorteo
-Lotería Popular Nº 6509 | Miércoles | 5/8/2020
-Lotería Popular Nº 6510 | Viernes | 7/8/2020
-Lotería Popular Nº 6511 | Miércoles | 12/8/2020
-Lotería Nacional Nº 4608 “Día de la Madre” | Martes | 18/8/2020
-Lotería Popular Nº 6514 | Viernes | 21/8/2020
-Lotería Nacional Nº 4609 | Martes | 25/8/2020
-Lotería Popular Nº 6516 | Viernes | 28/8/2020
+AGOSTO, 2020
+Sorteo | Fecha sorteos | Lotería | Precio
+No.6509 | 5 de agosto, 2020 | Popular | ₡5000
+No.6510 | 7 de agosto, 2020 | Popular | ₡6000
+No.6511 | 14 de agosto, 2020 | Popular | ₡5000
+No.6514 | 21 de agosto, 2020 | Popular | ₡6000
+No. 4608 | 31 de agosto, 2020 | Nacional Madre | ₡20000
+(Así reformado el cuadro anterior mediante sesión N° 47-2020 del 3° de agosto de 2020)
 El sorteo de Lotería Nacional Nº 4610 Especial que considera como premios vehículo eléctricos se realizará el miércoles 2 de setiembre de 2020.
 Además, se comunica el acuerdo JD-525 correspondiente al capítulo I), artículo 1) de la sesión extraordinaria 42-2020 celebrada el 10 de julio de 2020, mediante el cual se tomaron los siguientes acuerdos:
 Se acoge la recomendación de la Gerencia de Producción y Comercialización y se dispone:
