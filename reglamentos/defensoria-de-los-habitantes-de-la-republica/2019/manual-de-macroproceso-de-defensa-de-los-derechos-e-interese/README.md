@@ -14,3 +14,4 @@ Manual de Macroproceso de defensa de los derechos e intereses de la Defensoría 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-07-31 | la propia norma |
+| 2 | 2020-08-03 | Acuerdo 2289 (2020-08-03) |

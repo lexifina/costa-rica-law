@@ -11,7 +11,8 @@ iii. El derecho o los intereses presuntamente afectados
 iv. Instituciones obligadas y/o responsables de respetar, proteger o garantizar esos derechos o intereses
 c. Cronograma de la investigación
 d. Responsables
-Una vez aprobada la investigación temática la dirección solicitante realizará el registro en el sistema SOL y en el caso del despacho corresponderá al personal asesor.
+Una vez aprobada la investigación temática la dirección solicitante realizará el registro en el sistema SOL.
 Las Direcciones de Defensa y la Dirección de Oficinas Regionales, cuando corresponda, coordinarán entre ellas todos los aspectos necesarios para que exista la adecuada coherencia institucional.
 Las investigaciones temáticas no podrán exceder el plazo de seis meses. Se presentarán avances al Defensor o Defensora cada dos meses. En el caso de las investigaciones temáticas por denuncia la persona profesional a cargo del caso comunicará al habitante que, por la naturaleza de su pretensión, la investigación excederá el plazo de los dos meses.
 Durante la investigación temática, se podrán utilizar las gestiones informales establecidas en el artículo 32, y deberán registrarse en el expediente electrónico. De toda gestión formal e informal efectuada durante la investigación se mantendrá informada a la persona denunciante.
+(Así reformado mediante acuerdo N° 2289 del 3 de agosto del 2020)

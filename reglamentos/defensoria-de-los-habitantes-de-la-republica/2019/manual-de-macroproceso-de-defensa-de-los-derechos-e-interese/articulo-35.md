@@ -7,4 +7,5 @@ d. La petición concreta que formula la persona denunciante.
 e. Indicación de las gestiones realizadas por la Defensoría de los Habitantes, cuando corresponda.
 f. Detalle de los cuestionamientos específicos sobre los cuales se desea que la institución responda.
 g. Cualquier otra información relevante para la intervención.
-En ningún caso las solicitudes de informe deberán contener valoraciones subjetivas o adelanto de criterios; asimismo se deberá hacer mención a la obligatoriedad legal del o la funcionaria de presentar lo solicitado.
+En ningún caso las solicitudes de informe deberán contener valoraciones subjetivas, juicios de valor o adelanto de criterios; asimismo se deberá hacer mención a la obligatoriedad legal del o la funcionaria de presentar lo solicitado.
+(Así reformado mediante acuerdo N° 2289 del 3 de agosto del 2020)

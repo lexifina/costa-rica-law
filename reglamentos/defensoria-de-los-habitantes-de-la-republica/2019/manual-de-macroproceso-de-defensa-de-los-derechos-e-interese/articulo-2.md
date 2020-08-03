@@ -1,2 +1,2 @@
-Artículo 2.- Ámbito de aplicación.
-El presente Manual regula las diferentes estrategias de defensa de derechos e intereses, que lleva a cabo la Defensoría de los Habitantes de la República.
+Artículo 2.- El presente Manual regula las diferentes estrategias de defensa de derechos e intereses, que lleva a cabo la Defensoría de los Habitantes de la República, sin embargo, en lo aquí no previsto el Defensor o Defensora de los Habitantes ordenará la investigación que juzgue conveniente para el establecimiento del asunto sometido a su conocimiento; igualmente, de conformidad con la Ley General de la Administración Pública, podrá revisar en cualquier momento lo actuado por las y los Directores, así como emitir directrices de procedimiento y lineamientos de fondo de acatamiento obligatorio para asegurar un abordaje integral, interdisciplinario y uniforme en la atención de los casos y temas.
+(Así reformado mediante acuerdo N° 2289 del 3 de agosto del 2020)
