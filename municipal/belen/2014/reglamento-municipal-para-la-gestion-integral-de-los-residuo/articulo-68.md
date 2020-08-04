@@ -1,8 +1,7 @@
-Artículo 68.—Las boletas municipales de inspección relacionadas con la gestión integral de residuos deberá contar con la siguiente información:
-a) Nombre del denunciante.
-b) Fecha y hora de inspección.
-c) Dirección exacta de la denuncia.
-d) Descripción de la inspección.
-e) Elementos de respaldo (Fotografías, muestras, entre otros).
-f) Otra información importante.
-g) Firma del funcionario responsable de la inspección.
+Artículo 68.—Cancelación del incentivo. La Municipalidad podrá suspender el incentivo al usuario que:
+a. Mantenga pendientes con la Municipalidad por más de dos meses.
+b. No alcance el puntaje mínimo en su verificación semestral o en una inspección de rutina.
+c. Incumpla los compromisos ambientales adquiridos en la declaración jurada.
+d. Altere datos o documentos de forma intencional para recibir el incentivo.
+e. No presente la renovación del programa en un lapso no mayor a 15 días naturales desde su vencimiento.
+(Así adicionado en sesión N° 42 del 4 de agosto del 2020)

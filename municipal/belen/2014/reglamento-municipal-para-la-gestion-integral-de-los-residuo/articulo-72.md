@@ -1,1 +1,10 @@
-Artículo 72.—Programas de educación ambiental. La Municipalidad en coordinación con otras instituciones públicas y privadas realizará campañas de educación ambiental, con el objetivo de que la comunidad adquiera destrezas sobre la separación de los residuos sólidos y se genere sensibilización acerca de la importancia de una adecuada gestión de los mismos.
+Artículo 72.—Prohibiciones para los recolectores. Se prohíbe a los recolectores de residuos sólidos físicos o jurídicos, públicos o privados realizar las siguientes acciones:
+a) Recolectar residuos peligrosos o de manejo especial debidamente identificados sin contar con la debida autorización de las autoridades competentes para dicha actividad.
+b) Mezclar los residuos valorizables con otros residuos de manera que se produzca contaminación.
+c) Ingresar a propiedad privada con el fin de recoger residuos sin que exista un contrato de recolección entre el recolector y el generador previamente registrado en la Municipalidad.
+d) Dejar residuos esparcidos en vía pública.
+e) Gestionar residuos en sitios no autorizados.
+f) Comprar, vender y almacenar material valorizable robado o sustraído ilícitamente.
+g) Realizar cualquier acción, práctica u operación con los residuos sólidos que deteriore el ambiente y afecte la calidad de los recursos naturales presentes en el cantón.
+(Así reformado en sesión N° 42 del 4 de agosto del 2020)
+(Así modificada su numeración en sesión N° 42 del 4 de agosto del 2020, que lo traspaso del antiguo artículo 65 al 72)

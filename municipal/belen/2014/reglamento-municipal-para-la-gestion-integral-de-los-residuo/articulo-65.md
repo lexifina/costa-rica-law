@@ -1,8 +1,11 @@
-Artículo 65.—Prohibiciones para los recolectores. Se prohíbe a los recolectores de residuos sólidos físicos o jurídicos, públicos o privados realizar las siguientes acciones:
-a) Recolectar residuos peligrosos o de manejo especial debidamente identificados sin contar con la debida autorización de las autoridades competentes para dicha actividad.
-b) Mezclar los residuos valorizables con otros residuos de manera que se produzca contaminación.
-c) Ingresar a propiedad privada con el fin de recoger residuos sin que exista un contrato de recolección entre el recolector y el generador previamente registrado en la Municipalidad.
-d) Dejar residuos esparcidos en vía pública.
-e) Gestionar residuos en sitios no autorizados.
-f) Comprar, vender y almacenar material valorizable robado o sustraído ilícitamente.
-g) Realizar cualquier acción, práctica u operación con los residuos sólidos que deteriore el ambiente y afecte la calidad de los recursos naturales presentes en el cantón.
+Artículo 65.—Requisitos de participación:
+a. Patente municipal vigente y sin pendientes (para comercios).
+b. No tener pendientes en los pagos de los servicios municipales.
+c. Contar con un plan de residuos por parte de los generadores revisado por el Ministerio de Salud (para comercios).
+d. Contar con un plan de reducción y sustitución de plásticos de un solo uso por alternativas compostables o biodegradables.
+e. Presentar el formulario completo con toda la información solicitada en la Unidad de Servicio al Cliente de forma escrita.
+f. Obtener una calificación igual o mayor a noventa puntos (90 puntos) en escala de uno (1) a cien (100) en la evaluación realizada por el Subproceso de Saneamiento Ambiental.
+g. Presentar una declaración jurada con los compromisos en gestión de residuos adquiridos.
+h. Carta de autorización para que funcionarios municipales puedan realizar inspecciones en su establecimiento con el fin de verificar el cumplimiento de los compromisos ambientales adquiridos.
+i. Recibir una visita inicial de verificación por parte del Subproceso de Saneamiento Ambiental.
+(Así adicionado en sesión N° 42 del 4 de agosto del 2020)

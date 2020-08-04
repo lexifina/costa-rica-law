@@ -1,1 +1,2 @@
-Artículo 67.—De las inspecciones de seguimiento y fiscalización relativa a la gestión integral de residuos. Para el caso del procedimiento de inspección y seguimiento de las denuncias, se seguirá el procedimiento estipulado en el artículo 63 del Reglamento General a la Ley para la Gestión Integral de Residuos, Decreto Ejecutivo Nº37567-S-MINAET-H.
+Artículo 67.—Fiscalización. Funcionarios de la Municipalidad realizarán una verificación semestral del cumplimiento del programa a los comercios y personas que se inscriban. Sin embargo, la Municipalidad podrá realizar inspecciones a los comercios y residencias para la verificación del cumplimiento de los compromisos en gestión de residuos cuando considere necesario.
+(Así adicionado en sesión N° 42 del 4 de agosto del 2020)

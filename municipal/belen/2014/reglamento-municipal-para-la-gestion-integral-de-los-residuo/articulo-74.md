@@ -1,1 +1,3 @@
-Artículo 74.—Participación ciudadana. La Municipalidad fomentará la participación ciudadana en los procesos de gestión integral de residuos, ya sea por medio de la elaboración de actividades de capacitación e información, la solicitud de voluntariado en actividades ambientales, la coadministración de puntos estratégicos de recolección a través de asociaciones de desarrollo integral de la comunidad y otros grupos organizados.
+Artículo 74.—De las inspecciones de seguimiento y fiscalización relativa a la gestión integral de residuos. Para el caso del procedimiento de inspección y seguimiento de las denuncias, se seguirá el procedimiento estipulado en el artículo 63 del Reglamento General a la Ley para la Gestión Integral de Residuos, Decreto Ejecutivo Nº37567-S-MINAET-H.
+(Así reformado en sesión N° 42 del 4 de agosto del 2020)
+(Así modificada su numeración en sesión N° 42 del 4 de agosto del 2020, que lo traspaso del antiguo artículo 67 al 74)

@@ -14,3 +14,4 @@ Reglamento municipal para la gestión integral de los residuos sólidos del cant
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-11-11 | la propia norma |
+| 2 | 2020-08-04 | Reglamento municipal 42 (2020-08-04) |

@@ -1,14 +1,3 @@
-Artículo 64.—Prohibiciones para los generadores. Se prohíbe a los generadores de residuos sólidos físicos o jurídicos, públicos o privados realizar las siguientes acciones:
-a) Disponer de residuos sólidos en sitios no autorizados por la Municipalidad como lotes baldíos, márgenes de ríos o en vía
-Pública.
-b) Entregar a los programas de recolección diferenciada residuos mezclados, contaminados, de manejo especial o peligrosos junto a los residuos valorizables.
-c) Queda prohibido depositar en cualquier lugar de las rutas de recolección oficial lo siguiente:
-1) Residuos peligrosos.
-2) Residuos infectocontagiosos.
-3) Animales muertos, así como excretas de animales.
-4) Lodos provenientes de plantas de tratamiento, biodigestores o tanques sépticos.
-5) Baterías de ácido-plomo.
-6) Fluorescentes.
-7) Residuos de demolición o construcción.
-El generador deberá gestionar el tratamiento y la recolección de estos residuos de manera directa con un recolector privado, en coordinación con la Unidad Ambiental de la Municipalidad.
-d) Quemar o incinerar cualquier tipo de residuo.
+Artículo 64.—Programa “Eco Belemita”: El programa Eco Belemita es un programa de incentivos voluntario para el comercio y residencias del Cantón de Belén por medio de la asignación de una tarifa diferenciada en el servicio de recolección de residuos, como resultado de la implementación de buenas prácticas en la gestión integral de los residuos sólidos ordinarios. Cualquier usuario comercial y residencial del cantón que cuente con servicio de recolección de residuos vigente podrá participar por este incentivo.
+Los comercios y personas participantes recibirán un distintivo que deberán colocar en un lugar visible en su establecimiento.
+(Así adicionado en sesión N° 42 del 4 de agosto del 2020)

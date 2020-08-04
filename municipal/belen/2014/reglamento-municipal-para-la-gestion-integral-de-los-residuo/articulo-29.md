@@ -2,7 +2,9 @@ Artículo 29.—Categorías de los residuos sólidos. Los generadores deberán s
 1. Papel: Debe estar limpio y seco, sin grasa, gomas o resinas, grapas metálicas o prenzas de folder. No se incluyen el papel higiénico, las servilletas, los papeles emplasticados, el papel químico, el papel carbón, entre otros.
 2. Cartón: Debe estar limpio y seco, sin restos de grasa o cintas adhesivas.
 3. Vidrio: de botellas de todo color, sin quebrar. No se debe agregar vidrio plano de ventana, cerámica, bombillos, fluorescentes, entre otros.
-4. Plásticos: de botellas y bolsas plásticas, siempre que no sean envases de productos peligrosos. Los plásticos valorizables son los denominados PET (Nº 1), HDPE (Nº 2) y LDPE (Nº 3).
+4. Plásticos: de botellas y bolsas plásticas, siempre que no sean envases de productos peligrosos.
+Los plásticos valorizables son los denominados PET (Nº 1), HDPE (Nº 2) y LDPE (Nº 4).
+(Así reformado el punto 4) anterior en sesión N° 42 del 4 de agosto del 2020)
 5. Metales: Latas de bebidas y latas de alimentos empacados, deben estar limpios, enjuagados y drenados.
 6. Polilaminados: todos los envases tetrabrik o tetrapak, lavados, limpios y drenados.
 7. Residuos electrónicos: residuos de origen tecnológico, especificados en el Reglamento para la gestión Integral de Residuos electrónicos (Decreto Ejecutivo 35933-S).

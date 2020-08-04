@@ -1,1 +1,3 @@
-Artículo 81.—Vigencia. El presente reglamento regirá a partir de su publicación en el Diario Oficial La Gaceta.
+Artículo 81.—Participación ciudadana. La Municipalidad fomentará la participación ciudadana en los procesos de gestión integral de residuos, ya sea por medio de la elaboración de actividades de capacitación e información, la solicitud de voluntariado en actividades ambientales, la coadministración de puntos estratégicos de recolección a través de asociaciones de desarrollo integral de la comunidad y otros grupos organizados.
+(Así reformado en sesión N° 42 del 4 de agosto del 2020)
+(Así modificada su numeración en sesión N° 42 del 4 de agosto del 2020, que lo traspaso del antiguo artículo 74 al 81)

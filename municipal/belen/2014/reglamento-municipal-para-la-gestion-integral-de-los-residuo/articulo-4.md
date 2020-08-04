@@ -16,6 +16,8 @@ MINAE: Ministerio de Ambiente y Energía.
 MINSA: Ministerio de Salud.
 Municipalidad: Para efectos del presente reglamento, siempre que sea indicado, la Municipalidad debe entenderse como Municipalidad de Belén.
 Obligación: Función o grupo de funciones que se deben realizar por una Unidad o ente público o privado, físico o jurídico establecida en la legislación vigente.
+Plásticos de un solo uso: son los productos plásticos diseñados para ser desechados después de su primer uso, lo que implica que solamente puede ser utilizado una vez.
+(Así adicionada la definición anterior en sesión N° 42 del 4 de agosto del 2020)
 Puntos estratégicos: Sitios seleccionados por sus características geográficas, logísticas y administrativas para la colocación de contenedores especializados para la recolección de los residuos valorizables.
 PMGIRS: Plan Municipal para la Gestión Integral de los Residuos Sólidos del Cantón de Belén.
 PYMES: Pequeña y mediana empresa.
