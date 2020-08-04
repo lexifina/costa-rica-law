@@ -1,0 +1,2 @@
+Artículo 157.—Las direcciones municipales deberán de determinar las metas, objetivos y funciones a realizar por el funcionario(a) municipal que implementará la modalidad de teletrabajo, a su vez tendrá la responsabilidad de supervisar de manera diaria y constante directa o indirectamente el avance y resultados obtenidos del desempeño ejecutado por el funcionario(a) municipal.
+(Así adicionado en sesión N° 014 del 4 de agosto del 2020)

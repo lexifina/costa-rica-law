@@ -1,1 +1,2 @@
-Artículo 155.—Para los efectos del artículo 67 del Código de Trabajo, este Reglamento se tendrá expuesto en forma permanente, por lo menos en dos de los sitios más visibles del centro de trabajo.
+Artículo 155.—La modalidad laboral de Teletrabajo al ser su implementación una medida temporal, se debe de velar a cabalidad los mecanismos necesarios para asegurar la continuación de los servicios públicos que presta la municipalidad, por lo que todos(as) aquellos(as) funcionarios(as) que opten por esta modalidad deben de tener la completa disponibilidad en caso que se requiera de forma inmediata su presencia física en el municipio.
+(Así adicionado en sesión N° 014 del 4 de agosto del 2020)

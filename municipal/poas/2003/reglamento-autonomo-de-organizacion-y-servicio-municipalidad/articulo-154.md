@@ -1,1 +1,2 @@
-Artículo 154.—El presente Reglamento, deroga todos aquellos Reglamentos de Trabajo y normas internas de su mismo rango que se le opongan.
+Artículo 154.—La modalidad laboral de Teletrabajo será implementada de forma temporal y en la medida durante toda la semana, el teletrabajo es una medida complementaria y necesaria ante la presencia de alerta o procedimientos expeditos o necesarios, esta modalidad permite que los funcionarios(as) municipales teletrabajables laboren desde sus domicilios sin que deben de desplazarse hasta su centro de trabajo, es decir el municipio.
+(Así adicionado en sesión N° 014 del 4 de agosto del 2020)

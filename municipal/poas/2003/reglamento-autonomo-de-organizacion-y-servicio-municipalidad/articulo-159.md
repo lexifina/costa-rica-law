@@ -1,0 +1,2 @@
+Artículo 159.—La Alcaldía valorará y otorgará el visto bueno correspondiente a dicha solicitud, posteriormente notificará a Gestión de Recursos Humanos para su debido trámite. El coordinador de cada área brindará el debido seguimiento correspondiente a todos(as) aquellos(as) funcionarios(as) municipales que se encuentren en esta modalidad temporal de teletrabajo.
+(Así adicionado en sesión N° 014 del 4 de agosto del 2020)

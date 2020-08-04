@@ -1,0 +1,2 @@
+Artículo 161.—En todo lo demás no indicado en esta capítulo, se aplicará supletoriamente lo dispuesto en las normativas, directrices y decretos de las instancias competentes, Ministerio de Salud, Ministerio de Trabajo y Seguridad Social, Gobierno Central de Costa Rica, así como lo indicado en la Ley para Regular el Teletrabajo N° 9738 y Código de Trabajo, con el fin de solventar cualquier vacío legal existente.
+(Así adicionado en sesión N° 014 del 4 de agosto del 2020)

@@ -1,2 +1,2 @@
-Artículo 156.—Rige a partir de la publicación en el Diario Oficial La Gaceta, previa aprobación del acuerdo por parte del Concejo Municipal.
-San Pedro de Poás, 20 de octubre del 2003.—
+Artículo 156.—Los(as) funcionarios(as) municipales que laborarán en la modalidad de teletrabajo, deberán de cumplir con el horario establecido, jornada laboral y estar disponible para la persona empleadora durante dicho horario y jornada. El incumplimiento de la jornada u horario de trabajo, o bien, el no estar disponible para la persona empleadora durante dicho horario y jornada serán considerados como abandono de trabajo, conforme al inciso a) del artículo 72 de la Ley N° 2, Código de Trabajo, de 27 de agosto de 1943.
+(Así adicionado en sesión N° 014 del 4 de agosto del 2020)

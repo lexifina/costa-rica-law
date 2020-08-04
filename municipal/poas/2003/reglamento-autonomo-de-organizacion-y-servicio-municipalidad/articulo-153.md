@@ -1,1 +1,8 @@
-Artículo 153.—La violación de este Reglamento implica la invalidez del acto respectivo.
+Artículo 153.—Se dispondrá a implementar la modalidad laboral conocida como Teletrabajo, a todos(as) aquellos puestos municipales establecidos en el Manual Descriptivo de Clases de Puestos de este municipio, que sean teletrabajables, es decir que posean las características esenciales y condiciones idóneas y tecnológicas para la realización de las labores y funciones atinentes al puesto teletrabajable. Características esenciales y condiciones idóneas:
+a) Se puede desarrollar fuera de la oficina mediante el uso de las tecnologías digitales.
+b) Funcionarios(as) municipales que poseen un riesgo en su salud la permanencia física en las instalaciones municipales.
+c) La ausencia física del funcionario(a) municipal en las instalaciones de la Municipalidad de Poás no afecta el normal desempeño de las actividades de otros funcionarios(as) municipales, ni perjudicar al usuario.
+d) Está asociada a objetivos claros y metas específicas que permiten la planificación, seguimiento y control.
+e) La supervisión es directa o indirecta y por resultados u objetivos.
+f) La comunicación se da fundamentalmente por medios telemáticos. Condiciones tecnológicas: La Municipalidad de Poás podrá dotar en calidad de préstamo y de acuerdo con sus posibilidades, de equipo de cómputo y accesorios necesarios a los(as) funcionarios(as) municipales que laboren en la modalidad de teletrabajo. En los casos donde esa situación no se pueda cumplir, el acceso a internet, la línea telefónica, el mobiliario y equipo de cómputo, los debe aportar el (la) teletrabajador (a) municipal con los costos que esto represente, siendo esto pactado y aceptado entre ambas partes.
+(Así adicionado en sesión N° 014 del 4 de agosto del 2020)
