@@ -53,3 +53,4 @@ Reglamento de la Asamblea Legislativa
 | 38 | 2020-04-03 | Reglamento 33 (2020-04-03) |
 | 39 | 2020-05-11 | Reglamento 1 (2020-05-11) |
 | 40 | 2020-07-13 | Reglamento 25 (2020-07-13) |
+| 41 | 2020-08-04 | Reglamento 35 (2020-08-04) |
