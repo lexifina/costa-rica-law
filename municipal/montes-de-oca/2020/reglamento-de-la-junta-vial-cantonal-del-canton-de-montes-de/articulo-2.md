@@ -1,0 +1,1 @@
+Artículo 2º—La Junta Vial es un órgano público nombrado por el Concejo Municipal de Montes de Oca, ante quien responde por su gestión, la cual será de consulta obligatoria en materia de planificación y evaluación de la obra pública vial cantonal y del servicio vial municipal, indistintamente de la procedencia u origen de los recursos destinados a esos efectos.
