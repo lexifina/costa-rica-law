@@ -75,7 +75,8 @@ B. Podrán operar de lunes a domingo sin restricción horaria, sin público y a 
 23. Hoteles, cabinas o establecimientos de alojamiento.
 24. Piscinas, restaurantes, gimnasios de los hoteles, cabinas o establecimientos de alojamiento.
 25. Centros con piscinas de aguas termales.
-(*) (Así reformado el inciso c) anterior por resolución MS-DM-6465 del 31 de julio del 2020)
+26. Comercios dentro de las terminales nacionales e internacionales del Aeropuerto Internacional Juan Santamaría y Daniel Oduber.
+(*) (Así reformado el inciso c) anterior por resolución MS-DM-6520-2020 del 5 de agosto del 2020)
 D. Podrán operar de lunes a domingo de las 5:00 horas a las 17:00 horas, con aforo diferenciado:
 1. Modalidad de autoservicio para los servicios de alimentación al público, entiéndase la misma como el retiro de productos en ventanilla utilizando un vehículo.
 2. Modalidad de retiro de comida en establecimiento para llevar.
@@ -123,7 +124,7 @@ I. Se exceptúan de la tercera disposición:
 16. Ferreterías y venta de materiales para la construcción, con una capacidad de ocupación al cincuenta por ciento (50%).
 17. Cerrajerías, con una capacidad de ocupación al cincuenta por ciento (50%).
 18. Vidrieras, con una capacidad de ocupación al cincuenta por ciento (50%).
-19. Alquiler de vehículos “rent a car”.
+19. Alquiler de vehículos “rent a car”.
 20. Revisión Técnica Vehicular (RTV), con una capacidad de ocupación al cincuenta por ciento (50%).
 21. Reparación de vehículos, motores en general, motocicletas, llantas, ciclos y talleres de bicicletas, equipo agrícola, maquinaria y equipo pesado e industriales, con una capacidad de ocupación al cincuenta por ciento (50%).
 22. Servicio de cambio de aceite a vehículos (Lubricentros), con una capacidad de ocupación al cincuenta por ciento (50%).
@@ -140,7 +141,8 @@ I. Se exceptúan de la tercera disposición:
 33. Hoteles, cabinas o establecimientos de alojamiento, con una capacidad de ocupación al cincuenta por ciento (50%).
 34. Centros con piscinas de aguas termales, con una capacidad de ocupación al cincuenta por ciento (50%).
 35. Turismo aventura, con utilización obligatoria de mascarilla o careta mientras se coloca y se retira el equipo de seguridad para realizar la actividad, y respetando las burbujas sociales.
-36. Playas y lagos de lunes a domingo de las 5:00 horas a las 09:30 horas, con medidas de distanciamiento de 1.8 metros respetando las burbujas sociales. Este acceso incluye las actividades deportivas sin contacto.
+36. Playas y lagos de lunes a domingo de las 5:00 horas a las 09:30 horas, con medidas de distanciamiento de 1.8 metros respetando las burbujas sociales.
+Este acceso incluye las actividades deportivas sin contacto.
 37. Actividades de alojamiento para estancia corta (moteles).
 38. Estacionamientos o parqueos públicos.
 39. Actividades a puerta cerrada sin público en teatros (incluyendo el Teatro Nacional y el Teatro Popular Melico Salazar), iglesias, municipalidades con sus sesiones de concejo municipal, consejos de distrito, reunión de comisiones y demás reuniones municipales, así como cualquier otro espacio cerrado para el desarrollo de transmisiones virtuales, con estricto cumplimiento de los protocolos preventivos y lineamientos emitidos por el Ministerio de Salud y con el personal mínimo requerido.
@@ -148,7 +150,9 @@ I. Se exceptúan de la tercera disposición:
 41. Polígonos de tiro, con una capacidad de ocupación al cincuenta por ciento (50%).
 42. Escuelas de natación, con una capacidad de ocupación al cincuenta por ciento (50%).
 43. Parques nacionales, según la lista que publique el MINAE, con una capacidad de ocupación al cincuenta por ciento (50%).
-44. Todos aquellos otros establecimientos con permiso sanitario de funcionamiento que no brinden atención al público presencial.
+44. Comercios dentro de las terminales nacionales e internacionales del Aeropuerto Internacional Juan Santamaría y Daniel Oduber, con una capacidad de ocupación al cincuenta por ciento (50%).
+45. Todos aquellos otros establecimientos con permiso sanitario de funcionamiento que no brinden atención al público presencial.
+(Así reformado el por tanto tercero anterior por resolución MS-DM-6520-2020 del 5 de agosto del 2020)
 CUARTO: Para calcular el aforo a un 50% de la capacidad máxima del establecimiento, se hará de conformidad con los siguientes parámetros:
 1. De conformidad con la capacidad máxima establecida en la solicitud del permiso sanitario de funcionamiento. Dicha capacidad máxima incluye trabajadores y ocupantes.
 2. Debe garantizar guardar un espacio de 1.8 metros entre cada persona dentro del establecimiento y en las aceras previo a su ingreso.
