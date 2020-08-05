@@ -1,0 +1,4 @@
+Artículo 4º—Se reforma el Capítulo III llamado “Del Nivel Asesor”, del Decreto Ejecutivo N° 38170-MEP titulado “Organización administrativa de las oficinas centrales del Ministerio de Educación Pública” publicado en La Gaceta N° 31 del 13 de febrero de 2014 y sus reformas, agregando una Sección VII llamada Unidad de Planificación Sectorial e incluyéndose un artículo 36 quáter que dirá lo siguiente:
+“SECCIÓN VII
+Unidad de Planificación Sectorial
+Artículo 36 quáter.-: La Unidad de Planificación Sectorial es la encargada de cumplir con las funciones propias de la Secretaría Sectorial de Educación y que como parte de su quehacer proporciona los criterios técnicos que permitan un mejor aprovechamiento de los recursos ejecutados en las instituciones y que están sustentados en un proyecto con fines específicos, brindando el aval técnico para que puedan ser inscritos en el Banco de Proyectos de MIDEPLAN.”
