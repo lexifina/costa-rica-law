@@ -77,6 +77,35 @@ Inciso | Inciso | Inciso | Inciso
 0802.11.00.00.20 | 0903.00.00.00.90 | 1008.90.00.00.90 |
 0802.21.00.00.20 | 0904.11.90.00.90 | 1201.90.00.00.00 |
 3º—Eliminar la nota técnica 35 del inciso 0710.80.00.00.19.
-4º—Realizar la apertura del inciso arancelario 1302.19.90.00.00 de la siguiente manera: 1302.19.40.00.00 con el epígrafe “Para uso agrícola” aplicando la nota técnica 59 y 267.
+4º—Realizar la apertura a nivel nacional en el inciso 1302.19.90.00 en los siguientes términos: 1302.19.90.00.10 - - - - Para uso agrícola y 1302.19.90.00.90 - - - - Otros. (Ver Anexo).
+(Así reformado el punto anterior mediante resolución N° RES-DGA-382-2020 del 31 de julio de 2020)
+Anexo Resolución RES-DGA-382-2020
+Mov. | INCISO ARANCELARIO | DESCRIPCIÓN | NT | DAI | LEY | IVA | COLOMBIA | CA | PAN | REP. DOM | MEXICO | PERU | SINGAPUR | CHILE | CANADA | CARICOM | CAFTA | CAFTA-RD | CHINA | AACUE | NORUEGA | SUIZA | LIECHTENSTEIN | ISLANDIA | COREA
+E | 1302.19.90.00.00 | - - - Otros. | 0057 | 0 | 1 | 13 | 0 | 0 | 0 | 0 | 0 | 0 | 0 | 0 | 0 | 0 | 0 | 0 | 0 | 0 | 0 | 0 | 0 | 0 | 0
+I | 1302.19.90.00 | - - - Otros. | | | | | | | | | | | | | | | | | | | | | | |
+I | 1302.19.90.00.10 | - - - -Para uso agrícola. | 0057 0059 0267 | 0 | 1 | 13 | 0 | 0 | 0 | 0 | 0 | 0 | 0 | 0 | 0 | 0 | 0 | 0 | 0 | 0 | 0 | 0 | 0 | 0 | 0
+I | 1302.19.90.00.90 | - - - -Otros. | 0057 | 0 | 1 | 13 | 0 | 0 | 0 | 0 | 0 | 0 | 0 | 0 | 0 | 0 | 0 | 0 | 0 | 0 | 0 | 0 | 0 | 0 | 0
+Donde:
+I: Inclusión
+N.T.: Nota Técnica
+DAI: Derechos Arancelarios a la Importación
+LEY: Ley de Emergencia No. 6946
+VENTAS: Impuesto General sobre las Ventas
+COLOMBIA: Tratado de Libre Comercio entre el Gobierno de la República de Costa Rica y el Gobierno de la República de Colombia.
+C.A./PAN: Protocolo de Incorporación de La Republica de Panamá Al Subsistema de Integración Económica del Sistema de La Integración Centroamericana.
+REP. DOM. Tratado de Libre Comercio Centroamérica - República Dominicana.
+MEXICO: Tratado de Libre Comercio entre el Gobierno de la República de Costa Rica y el Gobierno de los Estados Unidos Mexicanos.
+PERU: Tratado de Libre Comercio entre el Gobierno de la República de Costa Rica y el Gobierno de la República de Perú.
+SINGAPUR: Tratado de Libre Comercio entre la República de Costa Rica y la República de Singapur.
+CHILE: Tratado de Libre Comercio Centroamérica – Chile.
+CANADA: Tratado de Libre Comercio Costa Rica – Canadá.
+CARICOM: Tratado de Libre Comercio entre Costa Rica y la Comunidad del Caribe (vigente con Trinidad y Tobago, Guyana, Barbados y Belice).
+CAFTA: Tratado de Libre Comercio entre Centroamérica- República Dominicana y los Estados Unidos.
+CAFTA-RD: Tratado de Libre Comercio entre Centroamérica- República Dominicana y los Estados Unidos, Bilateral Anexo artículo 3.3.6.
+CHINA: Tratado de Libre Comercio entre la República de Costa Rica y la República Popular China.
+AACUE: Acuerdo de Asociación entre Centroamérica y la Unión Europea y sus Estados Miembros.
+NORUEGA, SUIZA, LIECHTENSTEIN e ISLANDIA: Tratado de Libre Comercio entre Los Estados AELC y Los Estados Centroamericanos
+COREA Tratado de Libre Comercio entre Centroamérica y la República de Corea del Sur
+(Así adicionado el anexo anterior mediante resolución N° RES-DGA-382-2020 del 31 de julio de 2020)
 5º—Eliminar nota técnica 53 del inciso 4403.11.00.00.00.
 6º—Comuníquese la presente Resolución y publíquese en el Diario Oficial La Gaceta.

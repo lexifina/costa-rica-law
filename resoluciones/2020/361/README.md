@@ -14,3 +14,4 @@ Inclusión y eliminación de notas técnicas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-08-05 | la propia norma |
+| 2 | 2020-08-05 | Resolución 382 (2020-07-31) |
