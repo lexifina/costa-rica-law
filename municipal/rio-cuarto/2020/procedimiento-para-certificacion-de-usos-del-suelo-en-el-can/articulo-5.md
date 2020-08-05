@@ -1,0 +1,2 @@
+TRAMITACIÓN Y RESOLUCIÓN DE SOLICITUDES DE USO DEL SUELO
+Artículo 5º Solicitud. En concordancia con lo establecido por la Ley de Planificación Urbana No4240 en su artículo 28, los propietarios o interesados podrán solicitar a la municipalidad el certificado que acredite la conformidad de un uso con respecto a la normativa urbanística vigente. Este mismo trámite de acreditación podrá ser solicitado también para acreditar la condición de “uso no conforme”, es decir, usos preexistentes a la normativa urbanística vigente y que no guarda conformidad con tales normas.

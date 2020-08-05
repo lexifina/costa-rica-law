@@ -1,0 +1,2 @@
+Artículo 14º Edificaciones con Usos No Conformes: En aplicación del presente procedimiento, cuando se identifique la existencia de usos no conforme en edificaciones preexistentes a la Ley No9440, la Municipalidad deberá consignar tal condición en el certificado de uso del suelo y podrá autorizar excepcionalmente lo siguiente:
+a) Obras de ampliación y/o remodelación siempre y cuando no representen un crecimiento el área construida de más del 10% y con el único fin de garantizar mejorar las condiciones de seguridad sanitaria, ambiental y ocupacional que corresponda.

@@ -1,0 +1,1 @@
+Artículo 4º El Certificado de Uso del Suelo. El Certificado de Uso del Suelo constituye un mecanismo de acreditación oficial del uso del suelo. Constituye un acto declarativo por medio del cual la Administración acredita la conformidad o no del uso del suelo con respecto a la normativa urbanística vigente.

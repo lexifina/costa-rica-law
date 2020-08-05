@@ -1,0 +1,1 @@
+Artículo 13º Desarrollos Urbanísticos Preexistentes: En el caso de urbanizaciones y fraccionamientos con fines urbanísticos de uso residencial legalmente aprobados con anterioridad a la entrada en vigor de la Ley No9440, los usos comerciales serán permitidos sólo en los lotes que se consignen como comerciales en el mapa oficial de cada proyecto.

@@ -1,0 +1,29 @@
+Artículo 2º Definiciones. Para los fines del presente procedimiento de entenderán los siguientes términos de esta manera:
+a) Acceso: Vía o vías existentes de carácter público o privado frente a un predio que permiten la entrada o salida de éste.
+b) Acera: Franja de terreno del derecho de vía, que se extiende desde la línea de propiedad hasta la línea externa del cordón y caño, y que se reserva para el tránsito de peatones.
+c) Alineamiento: Distancia o límite físico mínimo para el emplazamiento de una edificación respecto a vías públicas, vías fluviales, arroyos, manantiales, lagos, lagunas, esteros, nacientes, zona marítimo terrestre, vías férreas, líneas eléctricas de alta tensión, zonas especiales emitido por la entidad competente.
+d) Altura de la edificación: Distancia vertical medida desde el nivel mínimo del terreno en contacto con la edificación, hasta la viga corona del último nivel. No se consideran los sótanos ni semi sótanos como parte de dicho cálculo.
+e) Apartamento: Unidad habitacional en una edificación para uso residencial de uno o varios pisos, generalmente constituida por una o más habitaciones, cocina y baño.
+f) Área de construcción: Es la suma total de las áreas de los diversos pisos que constituyen una edificación, excluyendo las azoteas, los balcones abiertos y los pórticos. También se le conoce como área de piso.
+g) Área previamente urbanizada: Todas aquellas urbanizaciones y fraccionamientos cuya cesión de áreas públicas haya sido debidamente aprobada.
+h) Área Urbana: es el ámbito territorial de desenvolvimiento de un centro de población.
+i) Cobertura: Es la proyección horizontal de una estructura o el área de terreno cubierta por tal estructura.
+j) Condominio: Inmueble susceptible de aprovechamiento independiente por parte de distintos propietarios, con elementos comunes de carácter indivisible, cuyas distintas modalidades se definen en la Ley Reguladora de la Propiedad en Condominio, Ley N°7933, su Reglamento Decreto Ejecutivo N°32303-MIVAH-MEIC-TUR, sus reformas o la normativa que lo sustituya.
+k) Construcción: es toda estructura que se fije o se incorpore a un terreno; incluye cualquier obra de edificación, reconstrucción, alteración o ampliación que implique permanencia.
+l) Densidad residencial bruta: relación entre el número de familias o de personas de una unidad residencial y la superficie de ésta en hectáreas.
+m) Distrito Urbano: es la circunscripción territorial administrativa cuya delimitación corresponda al radio de aplicación del respectivo Plan Regulador.
+n) Edificación: Construcción destinada a cualquier actividad, ya sea habitación, trabajo, almacenamiento o protección de enseres, entre otras.
+o) Edificaciones de uso mixto: toda aquella que se destine además del uso residencial, al uso comercial, de servicios, ambos u otros usos que sean compatibles con la zonificación.
+p) Establecimientos industriales y de almacenamiento: son aquellos locales a cubierto o descubierto, destinados a la manipulación, transformación o utilización de productos naturales o artificiales, mediante tratamiento físico, químico o biológico, ya sea por medios manuales o por aplicación de maquinaria o instrumentos. Se comprenden también bajo esta denominación los sitios destinados a recibir o almacenar los utensilios de labor y los materiales que deben ser tratados o que están en proceso de elaboración, o sus productos; además, todos los anexos de las fábricas o talleres y las bodegas.
+q) Fraccionamiento: división de cualquier predio con el fin de vender, traspasar, negociar, repartir, explotar o utilizar en forma separada, las parcelas resultantes; incluye tanto particiones de adjudicación judicial o extrajudicial, localizaciones de derechos indivisos y meras segregaciones en cabeza del mismo dueño, como los situados en urbanizaciones o construcciones nuevas que interesan al control de la formación y uso urbano de los bienes inmuebles.
+r) Línea de construcción: la que demarca el límite de edificación permitido dentro de la propiedad.
+s) Línea de propiedad: la que demarca los límites de la propiedad en particular.
+t) Predio: Se entiende como terreno, propiedad, lote, finca, fundo o parcela, inscrito o no en el Registro Público.
+u) Retiros: son los espacios abiertos no edificados comprendidos entre una estructura y los linderos del respectivo predio.
+v) Urbanización: Fraccionamiento y habilitación de un terreno para fines urbanos, mediante apertura de calles y provisión de servicios.
+w) Uso de la tierra: es la utilización de un terreno, de la estructura física asentada o incorporada a él, o de ambos casos, en cuanto a clase, forma o intensidad de su aprovechamiento.
+x) Vía pública: Es todo terreno de dominio público y de uso común, inalienable e imprescriptible, que por disposición de la autoridad administrativa se destina al libre tránsito de conformidad con las leyes y reglamentos de planificación; incluye acera, cordón, caño, calzada, franja verde, así́ como aquel terreno que de hecho esté destinado ya a ese uso público. Además, se destinan a la instalación de cualquier canalización, artefacto, aparato o accesorio perteneciente a una obra pública o destinado a un servicio público. De conformidad con la Ley de Caminos Públicos, se clasifican en red vial nacional y red vial cantonal.
+y) Vivienda: es todo local o recinto, fijo o móvil, construido, convertido o dispuesto, que se use para fines de alojamiento de personas, en forma permanente o temporal.
+z) Vivienda multifamiliar: edificación concebida como unidad arquitectónica con áreas habitacionales independientes, apta para dar albergue a dos o más familias.
+aa) Vivienda unifamiliar: edificación provista a áreas habitacionales destinadas a dar albergue a una sola familia.
+bb) Zonificación: es la división de una circunscripción territorial en zonas de uso, para efecto de su desarrollo racional.

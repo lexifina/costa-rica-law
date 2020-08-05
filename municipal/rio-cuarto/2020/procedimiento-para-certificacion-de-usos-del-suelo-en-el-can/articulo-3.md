@@ -1,0 +1,1 @@
+Artículo 3º Alcance. Están sometidas al presente procedimiento dentro de la jurisdicción del cantón Río Cuarto, todas las personas físicas o jurídicas públicas o privadas, que requieran o soliciten certificaciones de uso del suelo, sea en condición de propietario, arrendatario, concesionario o interesado.

@@ -1,0 +1,1 @@
+Artículo 16º Generación de derechos subjetivos. La emisión y notificación de un certificado de uso conforme del suelo no genera ni implica la creación de un derecho subjetivo a favor del titular del respectivo inmueble o del interesado, sino que únicamente describe el uso del suelo que se puede dar en un momento determinado.
