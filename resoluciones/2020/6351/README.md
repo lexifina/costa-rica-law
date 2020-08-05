@@ -15,3 +15,4 @@ Establece disposiciones sanitarias durante mes agosto del 2020 dirigidas a las p
 | --- | --- | --- |
 | 1 | 2020-08-01 | la propia norma |
 | 2 | 2020-08-01 | Resolución 6466 (2020-07-31) |
+| 3 | 2020-08-05 | Resolución 6521 (2020-08-05) |

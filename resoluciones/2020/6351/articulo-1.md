@@ -60,7 +60,7 @@ B. Podrán operar de lunes a domingo sin restricción horaria, sin público y a 
 7. Venta de repuestos, partes, piezas y accesorios para: vehículos, motores en general, bicicletas, equipo agrícola, maquinaria y equipo pesado e industriales.
 8. Ferreterías y venta de materiales para la construcción.
 9. Cerrajerías.
-10. Vidrieras.
+10.Vidrieras.
 11. Reparación de vehículos, motores en general, motocicletas, llantas, ciclos y talleres de bicicletas, equipo agrícola, maquinaria y equipo pesado e industriales.
 12. Servicio de cambio de aceite a vehículos (Lubricentros).
 13. Servicios de lavado de automóviles (Lavacar).
@@ -75,7 +75,8 @@ B. Podrán operar de lunes a domingo sin restricción horaria, sin público y a 
 22. Parques temáticos de animales, parques botánicos o parques marinos que no impliquen el acceso a playas ni balnearios.
 23. Piscinas, restaurantes, gimnasios de los hoteles, cabinas o establecimientos de alojamiento.
 24. Centros con piscinas de aguas termales.
-(*) (Así reformado el inciso c) anterior mediante resolución N° MS-DM-6466 del 31 de julio del 2020)
+25.Comercios dentro de las terminales nacionales e internacionales del Aeropuerto Internacional Juan Santamaría y Daniel Oduber.
+(*) (Así reformado el inciso c) anterior mediante resolución N° MS-DM-6521-2020 del 5 de agosto del 2020)
 D. Podrán operar de lunes a viernes de las 5:00 horas a las 22:00 horas, y de sábados a domingo de las 5:00 horas a las 19:00 horas, con aforo diferenciado:
 1. Modalidad de autoservicio para los servicios de alimentación al público, entiéndase la misma como el retiro de productos en ventanilla utilizando un vehículo.
 2. Modalidad de retiro de comida en establecimiento para llevar.
