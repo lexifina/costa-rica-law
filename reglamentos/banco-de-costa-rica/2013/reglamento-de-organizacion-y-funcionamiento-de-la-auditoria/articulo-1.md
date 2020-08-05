@@ -1,4 +1,6 @@
+(Derogado)
 BCR VALORES S. A.
+(Esta norma fue derogada por el artículo 52 del Reglamento de Organización y funcionamiento de la auditoría interna de BCR Valores S.A, aprobado mediante sesión N° 17-2020 del 5 de agosto del 2020)
 REGLAMENTO DE ORGANIZACIÓN Y FUNCIONAMIENTO
 DE LA AUDITORÍA INTERNA DE BCR VALORES S. A.
 I.—Propósito. Establecer un documento que contenga los lineamientos de organización y funcionamiento, acorde con la normativa que rige la labor de auditoría interna en el sector público, conforme lo establece el artículo 23 de la Ley General de Control Interno; así como también lo contemplado en las Normas para el ejercicio de la auditoría interna en el sector público.
