@@ -1,1 +1,2 @@
-Artículo 7º—Orden de presentación de las declaraciones ordinarias. En virtud de que la obligación de la declaración ordinaria es anual, las declaraciones deben presentarse en orden ascendente; es decir, en caso de tener declaraciones pendientes, se deben presentar desde el período más antiguo hasta el actual.
+Artículo 7º—Declaraciones ordinarias pendientes. Las declaraciones deben presentarse en orden ascendente; es decir desde el período más antiguo hasta el actual, ya que la obligación de presentar la declaración ordinaria es anual.
+(Así reformado por el artículo 1° de la resolución N° DGT-ICD-R-19-2020 del 6 de agosto del 2020)

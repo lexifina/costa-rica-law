@@ -14,3 +14,4 @@ Resolución Conjunta de Alcance General para el Registro de Transparencia y Bene
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-03-30 | la propia norma |
+| 2 | 2020-08-06 | Resolución 19 (2020-08-06) |
