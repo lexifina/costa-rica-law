@@ -1,1 +1,3 @@
-Artículo 24.- El Consejo Rector sesionará ordinariamente al menos una vez por mes, pudiendo acordar hacerlo de esta forma, hasta un máximo de cuatro veces al mes y podrá sesionar extraordinariamente en un máximo de dos veces por mes.
+Artículo 24.-Requerimientos para realizar sesiones virtuales. Las sesiones virtuales del Consejo Rector deberán realizarse por cualquier medio tecnológico que garantice los principios de colegialidad y simultaneidad que rigen el funcionamiento de los órganos colegiados.
+El Consejo Rector podrá sesionar de forma virtual, siempre que haya interacción integral, multidireccional y en tiempo real entre las personas miembros del Órgano y todas aquellas personas que participen de la sesión, en el tanto, se respeten los principios de colegialidad, simultaneidad y deliberación del órgano colegiado.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 42550 del 6 de agosto del 2020)

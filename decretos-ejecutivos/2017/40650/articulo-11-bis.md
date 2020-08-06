@@ -1,0 +1,2 @@
+Artículo 11 Bis. Para efectos del nombramiento del personal técnico y profesional, la persona en el cargo de la Dirección Ejecutiva del SINIRUBE remitirá al Consejo Rector la nómina de candidatos a los puestos que cumplen con los requisitos y el perfil idóneo, para que el Consejo Rector decida la contratación a realizar. Tal nómina deriva de la aplicación de un procedimiento de concurso público, realizado con el apoyo técnico y administrativo del Área de Desarrollo Humano del IMAS.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 42550 del 6 de agosto del 2020)

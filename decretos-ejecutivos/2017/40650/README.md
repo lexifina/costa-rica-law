@@ -14,3 +14,4 @@ Reglamento a la Ley N° 9137 Crea Sistema Nacional de Información y Registro Ú
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-10-03 | la propia norma |
+| 2 | 2020-08-06 | Decreto Ejecutivo 42550 (2020-08-06) |

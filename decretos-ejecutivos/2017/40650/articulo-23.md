@@ -1,2 +1,4 @@
-Artículo 23.- Lugar para realizar las sesiones: El Consejo Rector se reunirá ordinariamente en el día y hora que el órgano colegiado determine por mayoría simple, normalmente sesionará en las oficinas centrales del IMAS y supletoriamente podrá utilizar las instalaciones del SINIRUBE y también, por mayoría simple, podrá acordar sesionar en otros lugares.
+Artículo 23.-Sobre las sesiones del Consejo Rector. El Consejo Rector sesionará ordinariamente al menos una vez por mes, pudiendo acordar hacerlo de esta forma, hasta un máximo de cuatro veces al mes, en el día, hora y lugar que el órgano colegiado determine por mayoría simple. Asimismo, podrá sesionar extraordinariamente en un máximo de dos veces por mes.
 Para reunirse en sesión ordinaria no hará falta convocatoria especial, bastará para estos efectos que la persona que ocupe la Presidencia del Consejo Rector realice la convocatoria.
+El Consejo Rector podrá sesionar estando algunas o todas las personas directoras participando de forma virtual, en situaciones debidamente motivadas, como estados de emergencia nacional.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 42550 del 6 de agosto del 2020)
