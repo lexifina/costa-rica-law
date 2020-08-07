@@ -1,0 +1,1 @@
+Artículo 21.—Para solicitar este incentivo el(la) atleta deberá presentar a la Dirección Deportiva una solicitud por escrito, así como cualquier documento o información que le sea solicitada, con el fin de verificar su situación socioeconómica, además deberán respetarse las condiciones establecidas en el Artículo 15, inciso 5,del presente reglamento.

@@ -1,0 +1,1 @@
+Artículo 13.—En el primer mes de cada semestre, los promotores deportivos comunicarán a la Comisión de incentivos los nombres de los(as) atletas propuestos para ser acreedores de tal beneficio, justificando por escrito las razones de su propuesta.

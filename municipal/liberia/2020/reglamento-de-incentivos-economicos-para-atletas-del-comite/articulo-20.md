@@ -1,0 +1,2 @@
+Artículo 20.—El Comité Cantonal de Deportes y Recreación de Liberia podrá aprobar incentivo para cubrir gastos económicos en los que incurren los(as) atletas por concepto de la práctica de especialidad deportiva en la que están inscritos ante el Comité Cantonal de Deportes y Recreación de Liberia.
+Anualmente el Comité Cantonal de Deportes y Recreación de Liberia determinará el presupuesto y los montos tope que se destinarán para este tipo de incentivos.

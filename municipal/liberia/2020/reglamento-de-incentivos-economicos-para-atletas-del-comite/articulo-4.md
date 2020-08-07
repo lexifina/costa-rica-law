@@ -1,0 +1,1 @@
+Artículo 4º—Los costos de preparación (entrenamiento) se definen como los gastos mensuales que se generan en la condición de atleta y que para efectos del Comité Cantonal de Deportes y Recreación de Liberia consisten en: inscripciones, capacitación, material didáctico, alojamiento, alimentación, transporte, lavandería, atención médica o primaria.
