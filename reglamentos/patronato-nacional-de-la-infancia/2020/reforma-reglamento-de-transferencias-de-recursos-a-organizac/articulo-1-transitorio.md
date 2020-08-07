@@ -1,0 +1,3 @@
+Transitorio único. A las organizaciones con Programas No Residenciales en modalidad CIDAI, a las que se les realizó el giro de los recursos para los meses de julio, agosto y setiembre del año 2020, el Departamento Financiero Contable les realizará los cálculos pertinentes para determinar si procede un ajuste positivo de acuerdo a la aplicación que se determine del artículo 15 bis del “Reglamento de transferencias de recursos a Organizaciones No Gubernamentales (O.N.G.) para la atención de personas menores de edad.”
+Publíquese solo una vez.
+Aprobado por unanimidad y en firme en Sesión 2020-027 Artículo 006, Aparte 01, del día 03 de agosto del 2020.
