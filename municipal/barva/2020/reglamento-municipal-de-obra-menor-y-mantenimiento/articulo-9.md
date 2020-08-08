@@ -1,0 +1,4 @@
+CAPÍTULO II
+De las construcciones menores
+Artículo 9°—Se considerará obra menor, Toda obra de reparación, remodelación o ampliación cuyo costo no exceda el equivalente a 10 salarios base, calculado según lo establecido en la Ley Crea Concepto Salario Base para Delitos Especiales del Código Penal, Ley N° 7337, y sus reformas o la normativa que la sustituya. No se considerarán obras menores las obras de construcción que, según el criterio técnico especializado de la Municipalidad, incluyan modificaciones al sistema estructural, eléctrico o mecánico de un edificio, que pongan en riesgo la seguridad de sus ocupantes. La tasación se consignará en el permiso de construcción respectivo. La
+Municipalidad se basará en Manual de Valores Base Unitarios por Tipología Constructiva del Ministerio de Hacienda vigente.

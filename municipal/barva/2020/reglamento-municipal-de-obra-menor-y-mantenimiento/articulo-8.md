@@ -1,0 +1,1 @@
+Artículo 8°—Toda persona que ejecute una obra menor deberá presentar al Departamento de Ingeniería, planos o croquis diseñados con claridad y con las especificaciones técnicas necesarias para garantizar la identificación y la idoneidad de la obra a ejecutar.

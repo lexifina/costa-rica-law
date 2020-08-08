@@ -1,0 +1,1 @@
+Artículo 18.—Una vez otorgado el permiso, el propietario o encargado deberá comunicar a la Municipalidad la fecha de inicio de las obras, en ese momento el Departamento de Ingeniería, por medio de los inspectores fiscalizará el trabajo se llevó a cabo como lo indica el permiso de construcción.
