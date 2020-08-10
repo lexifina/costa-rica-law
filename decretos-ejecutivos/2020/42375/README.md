@@ -14,3 +14,4 @@ Publica resolución N° 419-2019 (COMIECO-LXXXIX) de 05/12/2019 y su anexo: RTCA
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-06-05 | la propia norma |
+| 2 | 2020-08-10 | Decreto Ejecutivo 42592 (2020-08-10) |

@@ -426,7 +426,7 @@ LISTA DE ADITIVOS ALIMENTARIOS PERMITIDOS
 [imagen]
 [imagen]
 [imagen]
-ADVANTAME | 969 | 6 mg/l solo cerveza sin alcohol o con un contenido de alcohol que no exceda del 1,2% vol; de table / Tafelbier / Tab1e beer (contenido de mosto original inferir al 6%excepto Obergariges, cervezas con una acidez mínima de 30 mili-equivalentes expresados como NaOH; Cervezas marrones del tipo “oud bruin” 0.5 mg/l solo cerveza de bajo consumo energético 350 mg/l solo cerveza sin alcohol o con un contenido de alcohol que no exceda del 1,2% vol; de table / Tafelbier / Tab1e beer (contenido fr mosto original inferior al 6%) Excepto Obergariges Einfachbier” cervezas con una acidez minima de 30 mili-equivalentes expresados como NaOH; Cervezas marrones del tipo “oud bruin” | Anexo II Reglamento (CE) N° 1333/2008 (modificado) | Edulcorante |
+ADVANTAME | 969 | 6 mg/l solo cerveza sin alcohol o con grado alcohólico inferior a 1,2% vol; biére de table / Tafelbier / Table Beer (que contenga menos de un 6% de mosto primitivo ) excepto Obergáriges Einfachbier; cervezas con una acidez mínima de 30 miliequivalentes expresados como NaOH; cervezas negras del tipo “oud bruin”. 0.5 mg/l solo cerveza de bajo consumo energético (Así reformado el párrafo anterior mediante Fe de Erratas aprobada mediante decreto ejecutivo N° 42592 del 10 de agosto del 2020) | Anexo II Reglamento (CE) N° 1333/2008 (modificado) | Edulcorante |
 [imagen]
 [imagen]
 [imagen]
