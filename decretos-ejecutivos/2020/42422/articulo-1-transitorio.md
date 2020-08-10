@@ -1,0 +1,1 @@
+Transitorio único. El Sistema Nacional de Áreas de Conservación de conformidad con el numeral 42 de la Ley de Biodiversidad deberá fijar las tarifas, correspondiente para ingreso y actividades en el área para los pescadores y otros usuarios, excluyendo a los usuarios de la pesca en pequeña escala de las comunidades vecinas.
