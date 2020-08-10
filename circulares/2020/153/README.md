@@ -13,3 +13,4 @@ Acuerdo de Corte Plena. Sesión N° 42-2020 del 20 de julio de 2020, en atenció
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-07-20 | la propia norma |
+| 2 | 2020-08-10 | Circular 164 (2020-08-10) |

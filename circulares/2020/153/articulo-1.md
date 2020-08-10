@@ -1,4 +1,5 @@
 N° 153-2020
+(Nota de Sinalevi: Mediante sesión N° 44-2020 del 10 de agosto del 2020, publicada en el Boletín Judicial N° 159 del 20 de agosto del 2020 mediante circular N° 164 del 10 de agosto del 2020 se acuerda prorrogar los efectos de la presente circular a partir del día 16 de agosto de 2020 y hasta el día 31 del mismo mes para todos despachos administrativos y jurisdiccionales del Poder Judicial. Los efectos del presente acuerdo se encuentran condicionados al mantenimiento del estado de emergencia dispuesto por el Decreto Ejecutivo N° 42227-MS emitido el día 16 de marzo de 2020 y a lo establecido por los lineamientos del Ministerio de Salud aplicables al Poder Judicial, durante el término de su vigencia)
 ASUNTO: Acuerdo de Corte Plena. Sesión N° 42-2020 del 20 de julio de 2020, en atención a la declaratoria de emergencia nacional, debido a la situación de emergencia sanitaria provocada por la enfermedad COVID-19.
 A LOS DESPACHOS JUDICIALES DEL PAÍS, ABOGADOS,
 ABOGADAS Y PÚBLICO EN GENERAL
