@@ -1,0 +1,1 @@
+Artículo 2º—Se instruye a los directores y demás funcionarios del Sistema Nacional de Áreas de Conservación comunicar el alcance de esta directriz a las ASADAS, Municipalidades, la Fuerza Pública y demás entes del sector público y privado relacionados con la actividad forestal.
