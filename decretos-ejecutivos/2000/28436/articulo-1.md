@@ -12,7 +12,8 @@ Considerando:
 7º—Que para una correcta apreciación de aspectos formales, se utiliza en el presente Reglamento la enumeración y terminología empleada con respecto a los mismos temas tratados en la normativa internacional, con el fin de facilitar la comparación y análoga referencia a tales regulaciones.
 8º—Que toda la documentación técnica a la que hace referencia el presente reglamento ha sido debidamente aprobada por la Organización de la Aviación Civil Internacional, de conformidad con lo estipulado en el Convenio de Chicago sobre la Aviación Civil Internacional, y se encuentra disponible en idioma español en la Dirección General de Aviación Civil, en la Biblioteca Técnica.
 Decretan:
-Reglamento del Aire RAC 02
+RAC 02 REGLAS GENERALES DE OPERACIÓN Y VUELO
+(Así modificada la denominación del título anterior por el artículo 2° del decreto ejecutivo N° 42591 del 11 de agosto del 2020 que aprobó el RAC-20: Reglamento del Aire)
 CAPITULO I
 Operación de aeronaves
 Reglas generales de operación

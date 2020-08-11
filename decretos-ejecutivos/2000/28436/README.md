@@ -16,3 +16,4 @@ Reglamento Aeronáutico Costarricense Reglas Generales de Operación y Vuelo
 | 1 | 2000-03-09 | la propia norma |
 | 2 | 2001-01-08 | Decreto Ejecutivo 29574 (2001-01-08) |
 | 3 | 2005-04-29 | Decreto Ejecutivo 32391 (2005-04-29) |
+| 4 | 2020-08-11 | Decreto Ejecutivo 42591 (2020-08-11) |
