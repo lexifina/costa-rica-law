@@ -15,3 +15,4 @@ Reglamento de Aprobación de Sistemas de Tratamiento de Aguas Residuales
 | --- | --- | --- |
 | 1 | 2016-09-19 | la propia norma |
 | 2 | 2019-11-12 | Decreto Ejecutivo 42075 (2019-11-12) |
+| 3 | 2020-08-11 | Decreto Ejecutivo 42555 (2020-08-11) |
