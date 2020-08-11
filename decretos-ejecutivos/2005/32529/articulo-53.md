@@ -1,1 +1,0 @@
-Artículo 53.—El Instituto Costarricense de Acueductos y Alcantarillados, en sus relaciones con los pueblos indígenas aplicará los principios y disposiciones del Convenio 169 de la Organización Internacional del Trabajo Sobre Pueblos Indígenas y Tribales en Países Independientes. Estas organizaciones asumirán la administración de los sistemas bajo las normas del AyA.

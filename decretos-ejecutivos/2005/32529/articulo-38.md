@@ -1,1 +1,0 @@
-Artículo 38.—Todo usuario(a) o interesado(a) con interés legítimo, podrá formular peticiones a la Junta Directiva de la Asociación, la cual debe resolver y contestar dentro de los plazos que al efecto determina la Ley General de Administración Pública y la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos (Ley 8220).

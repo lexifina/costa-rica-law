@@ -1,1 +1,0 @@
-Artículo 28.—Las ASADAS podrán contratar servicios, cuando así lo consideren necesario, con empresas y/o personas de reconocida experiencia. Pudiendo hacer uso de las que se encuentren debidamente inscritas en el Registro de Proveedores de AyA.

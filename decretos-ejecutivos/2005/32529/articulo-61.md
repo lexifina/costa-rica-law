@@ -1,1 +1,0 @@
-Artículo 61.—Se deroga el Reglamento de las Asociaciones Administradoras de los Sistemas de Acueductos y Alcantarillados Sanitarios Decreto Ejecutivo 29100-S publicado en La Gaceta 231 del 1 de diciembre del 2000.

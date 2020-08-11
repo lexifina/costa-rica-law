@@ -1,1 +1,0 @@
-Artículo 8º—El Laboratorio Nacional de Aguas de AyA, deberá realizar los controles de calidad de agua en los sistemas comunales y ordenará las correcciones que procedan, conforme con lo dispuesto en el Decreto N° 26066-S, publicado en La Gaceta N° 109 del 9 de junio de 1997.

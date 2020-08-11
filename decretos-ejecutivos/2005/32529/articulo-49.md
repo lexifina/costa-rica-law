@@ -1,1 +1,0 @@
-Artículo 49.—Frente a un siniestro, el Benemérito Cuerpo de Bomberos coordinará con AyA o con el ente administrador, lo pertinente para la atención de éste. El agua utilizada para tales fines, se considerará como pérdidas esenciales del sistema del acueducto, al servicio general y social, lo que deberá ser considerado por ARESEP, al momento de la fiación de tarifas.

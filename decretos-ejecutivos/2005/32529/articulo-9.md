@@ -1,1 +1,0 @@
-Artículo 9º—Los acueductos comunales deberán ajustarse a lo dispuesto en el Reglamento para la Calidad del Agua Potable, Decreto Ejecutivo N° 32327 del 10 de febrero del 2005, publicado a La Gaceta Nº 84 del 3 de mayo del 2005.
