@@ -1,0 +1,1 @@
+Artículo 78. Corresponde a la Junta Directiva definir los mecanismos de supervisión y control de Gobierno Corporativo. Estos mecanismos deben promover y vigilar el cumplimiento de leyes, reglamentos, políticas, códigos y otras disposiciones internas o del Grupo ICE, todo esto conforme a las competencias de cada uno de los órganos de gobierno.

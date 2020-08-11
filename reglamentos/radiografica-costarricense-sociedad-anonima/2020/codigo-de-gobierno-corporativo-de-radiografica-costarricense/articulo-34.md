@@ -1,0 +1,1 @@
+Artículo 34. Facultades: El Comité de Vigilancia tiene la facultad de fiscalizar, supervisar, intervenir, controlar, examinar, inspeccionar todas las operaciones económicas, financieras y administrativas realizadas por los distintos órganos que participan en la administración de la sociedad.

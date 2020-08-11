@@ -1,0 +1,1 @@
+Artículo 81. Será responsable de proporcionar un servicio de apoyo a la Junta Directiva y los comités, procurando la aplicación de las mejores prácticas de Gobierno Corporativo. De igual forma, en materia de gobernanza servirá de enlace cuando se requiera con la Casa Matriz y relacionadas, así como con las instancias públicas pertinentes.

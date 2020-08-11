@@ -1,0 +1,1 @@
+Artículo 48. La Junta Directiva y la Alta Gerencia, definirán las políticas de control interno, las estrategias de control que se aplicarán para conseguir estos objetivos y diseñarán la estructura del sistema de control interno de la compañía, de acuerdo con las necesidades de la misma, la legislación aplicable y las políticas internas del Grupo ICE.

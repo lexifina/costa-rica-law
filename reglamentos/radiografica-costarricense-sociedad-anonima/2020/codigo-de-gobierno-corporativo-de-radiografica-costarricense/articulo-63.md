@@ -1,0 +1,1 @@
+Artículo 63. El proceso de selección de proveedores y los socios empresariales debe ser objetivo, tomando en cuenta aspectos tales como: capacidad técnica y patrimonial, idoneidad y experiencia, precio ofrecido y soporte.

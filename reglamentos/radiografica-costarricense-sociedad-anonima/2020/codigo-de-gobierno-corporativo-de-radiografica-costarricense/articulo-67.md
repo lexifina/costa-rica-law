@@ -1,0 +1,1 @@
+Artículo 67. En enero de cada año la Junta Directiva con soporte del Oficial de Cumplimiento de Gobierno Corporativo realizará una autoevaluación sobre transparencia y divulgación, que permita medir el nivel de transparencia y la calidad de información que se ofrece periódicamente al público, ya sea en forma directa o indirecta.

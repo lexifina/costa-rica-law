@@ -1,0 +1,1 @@
+Artículo 79. Las normas de Gobierno Corporativo deben permanecer acordes con los cambios del entorno, del apetito de riesgo declarado y la estrategia de negocios de la Empresa en particular y del Grupo ICE en general. Para lograr lo anterior la Junta Directiva y la Gerencia General realizarán una revisión anual de toda la normativa y prácticas relacionadas.

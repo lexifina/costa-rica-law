@@ -1,0 +1,1 @@
+Artículo 70. En materia laboral la Empresa busca ofrecer a sus colaboradores un ambiente seguro que mitigue los riesgos de seguridad ocupacional en el trabajo, libre de discriminaciones de cualquier índole y que promueve el desarrollo integral de sus trabajadores.

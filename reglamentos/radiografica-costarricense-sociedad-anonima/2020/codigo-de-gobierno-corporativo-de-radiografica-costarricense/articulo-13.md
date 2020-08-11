@@ -1,0 +1,1 @@
+Artículo 13. Las decisiones del ICE como propietario en ningún caso podrán implicar una afectación a la autonomía que se deriva de las facultades legales y estatutarias, ni tampoco podrán conllevar un incumplimiento de los deberes legales y estatutarios de la Junta Directiva de RACSA.

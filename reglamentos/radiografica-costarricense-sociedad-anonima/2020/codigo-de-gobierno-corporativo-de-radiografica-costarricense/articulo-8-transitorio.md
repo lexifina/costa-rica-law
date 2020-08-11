@@ -1,0 +1,1 @@
+Transitorio VIII. -En un plazo de seis meses la Junta Directiva deberá definir la conveniencia de crear e implementar el Comité de Apoyo de Auditoría, lo que se definirá de acuerdo al alcance y ámbito de competencia que se defina por parte de ICE del Comité de Auditoría Corporativa.

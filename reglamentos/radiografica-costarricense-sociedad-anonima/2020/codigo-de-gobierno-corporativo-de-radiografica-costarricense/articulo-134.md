@@ -1,0 +1,1 @@
+Artículo 134. El presente Código de Gobierno Corporativo rige una vez sea aprobado por la Junta Directiva. Para mayor certeza será publicado en el Diario La Gaceta. Las modificaciones al mismo seguirán igual proceso.

@@ -1,0 +1,1 @@
+Artículo 45. La auditoría interna debe orientarse al mejoramiento de los métodos y procedimientos de control interno, orientándolos para que redunden en una operación más eficiente y eficaz de la Empresa.

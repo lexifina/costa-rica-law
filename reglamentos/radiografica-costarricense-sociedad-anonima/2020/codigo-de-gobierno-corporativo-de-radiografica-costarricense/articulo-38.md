@@ -1,0 +1,1 @@
+Artículo 38. Los integrantes de la Alta Gerencia deberán cumplir con las funciones que les han sido definidas de acuerdo con la descripción del cargo que les ha sido asignado por la Junta Directiva. Los administradores deberán actuar de buena fe, con lealtad y con la diligencia de una buena persona de negocios.

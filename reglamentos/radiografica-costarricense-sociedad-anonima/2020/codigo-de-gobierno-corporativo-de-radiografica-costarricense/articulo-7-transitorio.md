@@ -1,0 +1,1 @@
+Transitorio VII. - En esta etapa de implementación no se requerirá el plan de anual del oficial de cumplimiento de gobierno corporativo. Para la primera presentación del plan anual 2021 del Oficial de Cumplimiento de Gobierno Corporativo, se concede un plazo para la primera sesión de Junta Directiva del mes de diciembre 2020.

@@ -1,0 +1,1 @@
+Artículo 24. Para esto la Junta Directiva aprobará un procedimiento que definirá los aspectos a evaluar y garantizará que cada aspecto evaluado cuente con indicadores específicos, medibles, y relevantes. Este procedimiento debe ser revisado, actualizado y ratificado anualmente por la Junta Directiva.

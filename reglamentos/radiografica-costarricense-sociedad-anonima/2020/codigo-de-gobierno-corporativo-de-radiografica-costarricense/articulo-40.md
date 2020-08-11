@@ -1,0 +1,1 @@
+Artículo 40. Es responsabilidad de la Gerencia General proponer planes tácticos a la Junta Directiva alineados con la estrategia corporativa y una vez aprobadas, velar por su implementación, a la vez que se dedica a la supervisión de la gestión diaria del negocio.

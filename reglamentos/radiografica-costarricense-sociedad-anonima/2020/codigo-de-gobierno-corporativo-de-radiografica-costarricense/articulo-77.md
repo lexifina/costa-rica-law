@@ -1,0 +1,1 @@
+Artículo 77. El Oficial de Cumplimiento de Gobierno Corporativo someterá a aprobación de la Junta Directiva un informe anual de Gobierno Corporativo, con corte al 31 de diciembre de cada año. Una vez aprobado dicho informe será remitido al Consejo Directivo del ICE y tendrá además carácter público, debiendo publicarse en la página web de la Empresa.

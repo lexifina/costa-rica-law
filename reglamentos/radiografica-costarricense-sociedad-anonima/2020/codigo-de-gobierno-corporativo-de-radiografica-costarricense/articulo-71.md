@@ -1,0 +1,1 @@
+Artículo 71. Para con sus clientes la Empresa se compromete al estricto cumplimiento de los requerimientos pactados ofreciéndoles un alto nivel de innovación en el desarrollo y prestación de servicios.

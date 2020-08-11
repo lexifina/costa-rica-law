@@ -1,0 +1,1 @@
+Artículo 82. El Oficial de Cumplimiento de Gobierno Corporativo, deberá de trabajar en el desarrollo de relaciones constructivas basadas en la confianza con la Presidencia de la Junta Directiva, la Junta Directiva, la Gerencia, los mandos de Dirección y cualquier otra autoridad competente.

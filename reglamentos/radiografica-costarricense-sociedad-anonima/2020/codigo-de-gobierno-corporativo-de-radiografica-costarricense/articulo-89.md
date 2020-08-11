@@ -1,0 +1,2 @@
+Artículo 89. Idoneidad de los miembros del comité
+Los miembros del comité deben ser personas con amplia experiencia profesional y laboral en su área de conocimiento, tal que les permita leer y comprender estados financieros de mediana a alta complejidad, preferiblemente con conocimiento de elementos regulatorios de la industria de la infocomunicación y de telecomunicaciones, así como experiencia en la integración de órganos colegiados.

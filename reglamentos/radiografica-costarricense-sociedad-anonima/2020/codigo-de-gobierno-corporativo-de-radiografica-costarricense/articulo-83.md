@@ -1,0 +1,1 @@
+Artículo 83. El Oficial de Cumplimiento de Gobierno Corporativo deberá tener suficiente poder de decisión e independencia de la Gerencia y reportará directamente a la Junta Directiva. Funciones del Oficial de Cumplimiento de Gobierno Corporativo

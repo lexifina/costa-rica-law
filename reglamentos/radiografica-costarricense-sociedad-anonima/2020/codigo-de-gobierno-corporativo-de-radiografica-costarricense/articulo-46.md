@@ -1,0 +1,1 @@
+Artículo 46. La Auditoría Interna está bajo la responsabilidad de un Auditor Interno, nombrado por la Junta Directiva, a quien reporta, pero que cuenta con la autoridad e independencia necesarias para el cumplimiento de sus funciones de acuerdo con lo dispuesto por la legislación y normativa aplicables.

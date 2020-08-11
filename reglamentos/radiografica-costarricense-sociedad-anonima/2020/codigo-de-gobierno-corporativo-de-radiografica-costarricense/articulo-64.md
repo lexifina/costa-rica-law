@@ -1,0 +1,1 @@
+Artículo 64. La Política de Conflictos de Interés definirá los límites a la selección de proveedores y socios empresariales que se deriven de relaciones con quienes soliciten la adquisición de bienes o servicios, o quienes participen en los negocios de RACSA.
