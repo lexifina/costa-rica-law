@@ -17,4 +17,6 @@ n) Ruta 209 (San José-Acosta-La Fila de Mora).
 o) Ruta 230 (Cartago-Turrialba).
 p) Ruta 237 (Paso Real Buenos Aires Puntarenas-Ciudad Neilly Corredores).
 q) Ruta 702 (San Ramón de Alajuela-La Fortuna de San Carlos)
+r) Ruta 34 (Orotina-Palmar Norte)
+(Así adicionado el inciso anterior por el artículo 3° del decreto ejecutivo N°42528 del 11 de agosto de 2020)
 Dichas rutas se rigen por lo dispuesto en los Decretos Ejecutivos número 42253-MOPTS del 24 de marzo de 2020 y 42295-MOPT-S del 11 de abril de 2020.
