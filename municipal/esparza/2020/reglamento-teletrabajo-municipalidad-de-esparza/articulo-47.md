@@ -1,0 +1,1 @@
+Artículo 47- Cuando el rendimiento del tele trabajador no cumpla con lo programado, se debe realizar un análisis de las causas que impidieron el alcance de las metas e implementar las acciones que permitan mejorar los resultados. En caso de determinarse que las causas de bajo desempeño son atribuibles al tele trabajador, se le aplicará lo dispuesto en la normativa establecida.

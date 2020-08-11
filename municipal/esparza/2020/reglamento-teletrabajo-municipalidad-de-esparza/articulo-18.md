@@ -1,0 +1,1 @@
+Artículo 18- Las computadoras utilizadas para el teletrabajo deben cumplir con todas las características técnicas de hardware, software y de seguridad indicadas en la normativa que se establezca a nivel de la Municipalidad por parte del Departamento / Gestión de Informática.

@@ -1,0 +1,1 @@
+Artículo 22- Administrar la información referente a todos los tele trabajadores de la Municipalidad y coordinar con los Departamentos, Gestiones y Direcciones involucradas las acciones necesarias para el buen desarrollo de esta modalidad. En todo caso de deberá integrar al expediente del funcionario, en el Departamento de Recursos Humanos, para lo de su cargo.

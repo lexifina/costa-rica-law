@@ -1,0 +1,1 @@
+Artículo 40- En lo que respecta a los riesgos del trabajo, para el teletrabajo se aplicarán las pólizas previstas para el trabajo presencial y se regirá por lo dispuesto en la Ley N.° 2, Código de Trabajo, de 27 de agosto de 1943.

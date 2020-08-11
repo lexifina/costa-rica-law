@@ -1,0 +1,1 @@
+Artículo 5- El ingreso al programa de teletrabajo es voluntario para las partes, no genera ningún derecho adquirido, manteniendo todos los derechos y obligaciones establecidas en la normativa laboral vigente.

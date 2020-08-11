@@ -1,0 +1,1 @@
+Artículo 15- Si se requiere que el tele trabajador se incorpore a la modalidad presencial de trabajo, la Dirección/ Gestión o jefatura correspondiente debe presentar ante la Comisión Municipal de Teletrabajo los motivos que justifiquen la solicitud, la cual será remitida a la Alcaldía para tomar la resolución final.

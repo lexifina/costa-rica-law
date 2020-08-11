@@ -1,0 +1,1 @@
+Artículo 23.-Mantener actualizada la normativa y los formularios requeridos para asegurar la correcta aplicación de esta modalidad de trabajo en la Municipalidad y capacitar al personal de los Departamentos y Direcciones involucradas sobre el tema.

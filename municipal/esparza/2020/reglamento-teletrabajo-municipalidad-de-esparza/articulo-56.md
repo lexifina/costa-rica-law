@@ -1,0 +1,1 @@
+Artículo 56- El Departamento y/o Gestión de Recursos Humanos debe apoyar, en el proceso de inclusión al programa y seguimiento de los tele trabajadores. Así mismo debe brindar los informes que La Comisión de Teletrabajo solicite en dicha materia.

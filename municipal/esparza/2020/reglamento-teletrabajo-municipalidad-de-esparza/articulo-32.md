@@ -1,0 +1,1 @@
+Artículo 32- En caso de que las actividades se realicen desde la casa de habitación, el funcionario, debe acondicionar un espacio físico, con las características recomendadas por La Comisión de Teletrabajo y permitir el acceso de ésta, para las inspecciones de condiciones ergonómicas, de seguridad e higiene del puesto de trabajo.

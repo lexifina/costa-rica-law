@@ -1,0 +1,1 @@
+Artículo 16- En la modalidad de teletrabajo y dentro el horario ordinario, cuando surjan necesidades y se requiera la presencia del funcionario para atender reuniones de Comisiones Municipales, Audiencias Judiciales y/o administrativas, deberán atender el llamado de su jefatura inmediata o de la Alcaldía Municipal.

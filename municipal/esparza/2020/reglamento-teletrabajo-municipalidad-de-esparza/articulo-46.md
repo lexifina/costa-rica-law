@@ -1,0 +1,1 @@
+Artículo 46- Evaluar las metas del tele trabajador y recomendar las acciones que permitan mejorar su productividad. Para este fin, debe llevar registros y hacer las sesiones de seguimiento correspondientes.

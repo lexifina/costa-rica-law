@@ -1,0 +1,1 @@
+Artículo 25- Colaborar con las Direcciones del tele trabajador en la definición de las metas que permitan evaluar el desempeño de los tele trabajadores, así como la inspección de las condiciones laborales.

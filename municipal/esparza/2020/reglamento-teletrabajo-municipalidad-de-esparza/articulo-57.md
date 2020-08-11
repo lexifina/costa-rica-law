@@ -1,0 +1,1 @@
+Artículo 57- El Departamento y/o Gestión de Recursos Humanos resolverá, de acuerdo con la normativa vigente, las situaciones de orden laboral que presenten los tele trabajadores y las Direcciones y/o Gestiones Municipales.

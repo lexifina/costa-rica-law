@@ -1,0 +1,1 @@
+Artículo 53- El Departamento y/o Gestión de Informática de la Municipalidad, brindará el soporte técnico únicamente a las herramientas de software y sistema operativo necesarios para realizar el teletrabajo. Se excluye cualquier solicitud de instalación, configuración o solución de problemas sobre paquetes de software que no sean requeridos para el teletrabajo.

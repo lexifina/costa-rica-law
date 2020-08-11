@@ -1,0 +1,1 @@
+Artículo 42- Determinar si la información a la cual tiene acceso el Tele trabajador es de carácter confidencial y sensible a los intereses de la Municipalidad y proceder de acuerdo con el cumplimiento de las disposiciones establecidas.
