@@ -1,2 +1,2 @@
-Artículo 7º—Corresponde al Concejo por la vía del acuerdo municipal que se emane al efecto y con base en lo dispuesto en el artículo 13, inciso e) del Código Municipal, autorizar los egresos de la Municipalidad para la adquisición o contratación de bienes y servicios, cuando estos superen la suma de quince millones de colones (¢15.000.000,00) para lo cual el Alcalde dirigirá la solicitud debidamente fundada, así como la partida presupuestaria con la que se adquirirá el bien o servicio.
-(Así reformado mediante sesión N° 09 del 27 de junio del 2016)
+Artículo 7º—Corresponde al Concejo por la vía del acuerdo municipal que se emane al efecto y con base en lo dispuesto en el artículo 13, inciso e) del Código Municipal, autorizar los egresos de la Municipalidad para la adquisición o contratación de bienes y servicios, no se encuentren cubiertos en las disposiciones previstas en el inciso anterior.
+(Así reformado por acuerdo N° 449 del 11 de agosto del 2020)
