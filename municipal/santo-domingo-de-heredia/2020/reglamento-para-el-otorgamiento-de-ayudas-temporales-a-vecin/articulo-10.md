@@ -1,0 +1,1 @@
+Artículo 10.—Las ayudas otorgadas por la Municipalidad con fundamento en esta normativa, podrán estar constituidas por dinero en efectivo, artículos o bienes de primera necesidad, u otros, ello de conformidad con las necesidades y prioridades que se determinen en cada caso, y con fundamento en lo dictaminado por las técnicas respectivas y sociales o similares.

@@ -1,0 +1,1 @@
+Artículo 11.—Cuando se trate de materiales de construcción, deberá coordinarse con las áreas técnicas competentes y de las Direcciones que correspondan, a efecto de determinar las necesidades reales y fiscalizar la obra a ejecutar, incluyendo en el informe técnico lista de materiales, costos de los mismos, y mano de obra.
