@@ -26,34 +26,51 @@ RESUELVE
 PRIMERO. Las presentes medidas sanitarias se emiten con el objetivo de prevenir y mitigar el riesgo o daño a la salud pública y atender el estado de emergencia nacional dado mediante el Decreto Ejecutivo No. 42227-MP-S del 16 de marzo de 2020 y en procura del bienestar de todas las personas que radiquen en el territorio costarricense de manera habitual ante los efectos del COVID-19.
 SEGUNDO: Se permitirá el ingreso de las personas extranjeras que provengan de los países autorizados por el Ministerio de Salud, bajo el criterio y análisis técnico que realizará periódicamente como autoridad rectora sanitaria.
 TERCERO: La lista de países habilitados como puntos de procedencia para el ingreso de personas al territorio nacional, son:
-1. Alemania
-2. Austria
-3. Bélgica
-4. Canadá
-5. Dinamarca
-6. Eslovaquia
-7. Eslovenia
-8. España
-9. Estonia
-10. Finlandia
-11. Francia
-12. Grecia
-13. Hungría
-14. Islandia
-15. Italia
-16. Letonia
-17. Liechtenstein
-18. Lituania
-19. Luxemburgo
-20. Malta
-21. Noruega
-22. Países Bajos
-23. Polonia
-24. Portugal
-25. Reino Unido de Gran Bretaña e Irlanda del Norte
-26. República Checa
-27. Suecia
-28. Suiza
+1. Australia
+2. Canadá
+3. Confederación Suiza
+4. Estado del Vaticano
+5. Gran Ducado de Luxemburgo
+6. Irlanda
+7. Japón
+8. Nueva Zelanda
+9. Principado de Liechtenstein
+10. Principado de Mónaco
+11. Reino Bélgica
+12. Reino de Dinamarca
+13. Reino de España
+14. Reino de los Países Bajos
+15. Reino de Noruega
+16. Reino de Suecia
+17. Reino de Tailandia
+18. Reino Unido de Gran Bretaña e Irlanda del Norte
+19. República Checa
+20. República Chipriota
+21. República de Austria
+22. República de Bulgaria
+23. República de Corea
+24. República de Croacia
+25. República de Eslovenia
+26. República de Estonia
+27. República de Finlandia
+28. República de Hungría
+29. República de Islandia
+30. República de Letonia
+31. República de Lituania
+32. República de Malta
+33. República de Polonia
+34. República de San Marino
+35. República de Singapur
+36. República Eslovaca
+37. República Federal de Alemania
+38. República Francesa
+39. República Helénica (Grecia)
+40. República Italiana
+41. República Oriental del Uruguay
+42. República Popular China
+43. República Portuguesa
+44. Rumanía
+(Así reformada la disposición tercera anterior mediante resolución N° MS-DM-RM-5352-2020 del 12 de agosto del 2020)
 CUARTO: La persona extranjera que opte por viajar vía aérea hacia Costa Rica bajo la categoría migratoria de No Residentes, subcategorías Turismo, deberá cumplir necesariamente las siguientes condiciones para ingresar al país:
 a) Contar con un seguro de viaje que cubra al menos los gastos de alojamiento y gastos médicos generados por la enfermedad COVID-19, ofrecido por alguna de las aseguradoras autorizadas por la Superintendencia General de Seguros en Costa Rica y debidamente registrado ante dicha autoridad; o bien deberá contar con un seguro vigente con cobertura internacional que cubra gastos médicos generados por la enfermedad COVID-19, gastos médicos mínimos equivalentes a los costos de internamiento en un hospital por el tiempo que requiera dicho internamiento y un mínimo de cobertura de 14 días por gasto de hospedaje. Para el caso de los seguros con cobertura internacional, el Instituto Costarricense de Turismo se encargará de verificar el cumplimiento de las condiciones mínimas establecidas en este apartado. Para ello, deberá establecer y coordinar un mecanismo de verificación que asegure la debida constatación de los respectivos requerimientos; además deberá difundir dicho mecanismo, según corresponda, para el conocimiento de las personas extranjeras. En caso de que el seguro con cobertura internacional no cumpla con alguno de dichos requisitos, la persona extranjera deberá adquirir un seguro de viaje ofrecido por alguna de las aseguradoras autorizadas por la Superintendencia General de Seguros en Costa Rica y debidamente registrado por dicha autoridad.
 b) Completar en línea el formulario epidemiológico denominado Pase de Salud, generado por el Ministerio de Salud. El formulario está disponible en el siguiente link: https://salud.go.cr
