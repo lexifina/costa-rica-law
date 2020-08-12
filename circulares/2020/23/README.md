@@ -14,3 +14,4 @@ Se aclara la circular 207-2019 "Sobre la presentación de escritos por medio de 
 | --- | --- | --- |
 | 1 | 2020-02-20 | la propia norma |
 | 2 | 2020-05-04 | Circular 90 (2020-05-04) |
+| 3 | 2020-08-12 | Circular 169 (2020-08-12) |
