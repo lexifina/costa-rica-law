@@ -44,3 +44,4 @@ Establece que los fabricantes e importadores de jarabes utilizados para la elabo
 | 29 | 2019-11-08 | Resolución 10 (2019-11-08) |
 | 30 | 2020-02-11 | Resolución 5 (2020-02-11) |
 | 31 | 2020-05-13 | Resolución 14 (2020-05-13) |
+| 32 | 2020-08-12 | Resolución 41 (2020-08-12) |
