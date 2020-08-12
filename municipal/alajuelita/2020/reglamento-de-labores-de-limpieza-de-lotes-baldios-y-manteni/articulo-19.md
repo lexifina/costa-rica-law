@@ -1,0 +1,2 @@
+Artículo 19.—El monto a cobrar. La Municipalidad cobrará al propietario, cuando aquella haya realizado la obra o el servicio, el monto efectivo del mismo, más un diez por ciento para desarrollo, sin perjuicio de los recargos establecidos por este mismo reglamento y por el Código Municipal.
+El Munícipe deberá reembolsar el costo efectivo en el plazo máximo de ocho días hábiles, de lo contrario deberá cancelar por concepto de multa un 50% (cincuenta por ciento) del valor de la obra o el servicio, sin perjuicio del cobro de los intereses moratorios.

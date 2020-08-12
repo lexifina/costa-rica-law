@@ -1,0 +1,1 @@
+Artículo 9º—Cobro de los costos. Una vez que la Municipalidad haya realizado la obra o servicio de que se trate, procederá al cobro de los costos. Concluida la obra por ejecución municipal, la dependencia encargada de las labores lo comunicará al Proceso de Administración Tributaria para el cálculo del costo.

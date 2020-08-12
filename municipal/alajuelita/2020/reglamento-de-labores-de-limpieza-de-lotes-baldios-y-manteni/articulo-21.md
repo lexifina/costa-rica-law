@@ -1,0 +1,2 @@
+Artículo 21.—Ejecución Municipal. Para la realización de estas labores la Municipalidad, podrá recurrir a la contratación de equipo, maquinaria o mano de obra especializados, así como no especializados, siempre y cuando la situación de urgencia así lo amerite.
+Los interesados en brindar estos servicios, deberán estar registrados como proveedores en el Departamento de Proveeduría municipal y deberán cumplir las disposiciones que establece la Ley de Contratación Administrativa.

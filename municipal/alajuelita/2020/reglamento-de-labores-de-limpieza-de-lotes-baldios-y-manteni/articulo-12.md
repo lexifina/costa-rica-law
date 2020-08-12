@@ -1,0 +1,2 @@
+Artículo 12.—Aprobación de las Tarifas. Corresponde al Concejo Municipal, de conformidad con lo establecido en los artículos 4º, inciso d); 13, inciso b), 77; 85; 85 bis y 85 ter del Código Municipal, la aprobación de la tarifa por las obras que realice en los supuestos del artículo 6º de este reglamento. La tarifa entrará en vigencia a partir de su publicación en el Diario Oficial La Gaceta.
+Será obligación del Proceso de Administración Tributaria hacer una revisión y actualización anual de las tarifas, con base en los estudios técnicos y de costos que haga.

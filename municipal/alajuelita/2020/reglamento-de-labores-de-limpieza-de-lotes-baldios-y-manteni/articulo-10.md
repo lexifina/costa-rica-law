@@ -1,0 +1,1 @@
+Artículo 10.—De las inspecciones. Las inspecciones en general serán competencia de la Unidad de Inspectores Municipales y/o o el funcionario de Gestión Ambiental, para el cumplimiento de lo establecido en el artículo 84 del Código Municipal y del presente reglamento.

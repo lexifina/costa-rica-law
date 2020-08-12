@@ -1,0 +1,2 @@
+Artículo 24.—Derogatoria. El presente reglamento deroga toda disposición reglamentaria que sobre esta materia haya emitido esta Municipalidad anteriormente.
+Dictamen de Comisión de la Sesión Ordinaria número sesión ordinaria 12 de fecha 21 de julio de 2020. Conforme con las reglamentaciones que dicten al efecto, decreta el acuerdo 7.2 de conforme establecido en el párrafo segundo del art.43 del Código Municipal, El presente reglamento entrará en vigencia a partir de su II publicación en La Gaceta.

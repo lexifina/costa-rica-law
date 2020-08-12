@@ -1,0 +1,1 @@
+Artículo 15.—Precio por construcción. El precio por metro cuadrado de construcción de aceras, se actualizará en el mes de enero de cada año, previo estudio que realizará en el Proceso de Ingeniería en coordinación con el Proceso de Administración Tributaria, para su posterior fijación y publicación por el Concejo Municipal.

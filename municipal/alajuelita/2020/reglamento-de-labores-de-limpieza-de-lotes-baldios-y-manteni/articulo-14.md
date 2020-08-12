@@ -1,0 +1,3 @@
+Artículo 14.—Especificaciones para la construcción de aceras. En la construcción de aceras se usará únicamente el concreto, chorreado o prefabricado, con acabado antideslizante, el ancho mínimo es un metro con veinte centímetros (1,20 m).
+En las esquinas de las cuadras, se deben construir rampas para discapacitados adaptándose a los niveles entre acera y calle, de tal forma que permita la continuidad y fluidez del tránsito de peatones, según lo establece el artículo 42 de la Ley Nº 7600.
+El Proceso de Unidad Técnica de Gestión Vial, dictará las disposiciones técnicas pertinentes a fin de que se realicen las obras conforme indica la ley.
