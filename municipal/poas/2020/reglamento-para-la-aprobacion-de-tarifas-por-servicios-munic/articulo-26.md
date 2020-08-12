@@ -1,0 +1,3 @@
+SECCIÓN CUARTA
+Aprobación y vigencia de tarifas
+Artículo 26.—El Concejo Municipal convocará a una sesión extraordinaria que se celebrará a más tardar dentro de los quince días naturales siguientes a la audiencia pública, en la que analizarán las incidencias y resultados de la audiencia pública y se someterá a votación el Proyecto Tarifario. En caso de ser procedentes las oposiciones, el Concejo someterá las tarifas a un análisis por parte del consultor o del funcionario que realizó la revisión, para que, dentro de un plazo no superior a diez días hábiles, presente un nuevo estudio tarifario, tomando en cuenta los estudios técnicos o sugerencias presentadas en las oposiciones admitidas.

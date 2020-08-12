@@ -1,0 +1,1 @@
+Artículo 24.—Para la celebración de la Audiencia, es necesario que en la misma se encuentre el funcionario o consultor que realizó el estudio objeto del procedimiento para que aclare las consultas técnicas que le puedan ser cuestionadas en el estudio.

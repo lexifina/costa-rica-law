@@ -1,0 +1,1 @@
+Artículo 15.—La Municipalidad deberá obligatoriamente aplicar los principios generales de Derecho Tributario y en su defecto, los de otras ramas jurídicas que más se avengan con su naturaleza y fines, a la hora de establecer tarifas por servicios públicos.

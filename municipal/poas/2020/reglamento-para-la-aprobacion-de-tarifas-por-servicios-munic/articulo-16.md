@@ -1,0 +1,3 @@
+Artículo 16.—El estudio tarifario podrá ser ordinario o extraordinario:
+a) Se entenderá ordinario cuando la fijación tarifaria se deriva de las actualizaciones efectuadas al menos una vez al año, con la finalidad de adecuar las tarifas a los costos y a los parámetros de desarrollo y retribución competitiva que los rigen.
+b) Se considerará extraordinario cuando la fijación tarifaria resulte de la variación significativa de los parámetros económicos, sociales o ambientales tomados en consideración al momento de la aprobación del estudio tarifario ordinario. Se entenderá también como fijación extraordinaria, la que sea resultado de la aplicación de un modelo de ajuste automático. En todo caso siempre deberá cumplir con el trámite de audiencia pública.

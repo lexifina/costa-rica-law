@@ -1,0 +1,1 @@
+Artículo 21.—Toda persona con interés legítimo o derecho subjetivo podrá oponerse a la gestión, mediante la presentación de un escrito motivado, acompañado de la prueba en que fundamenten su criterio, durante los primeros veinte días del plazo antes indicado.

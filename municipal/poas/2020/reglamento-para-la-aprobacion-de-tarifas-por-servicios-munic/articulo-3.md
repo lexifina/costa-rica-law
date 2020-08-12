@@ -1,0 +1,3 @@
+Artículo 3º—Definiciones. Para efectos de este Reglamento, se definen los siguientes conceptos:
+a) Servicio al costo, principio que determina la forma de fijar las tarifas y los precios de los servicios públicos, de manera que se contemplen únicamente los costos necesarios para prestar el servicio, que permitan una retribución competitiva y garanticen el adecuado desarrollo de la actividad,
+b) Evaluación de impacto ambiental. Estudio científico-técnico, realizado por profesionales en la materia, que permite identificar y predecir los efectos que producirá un proyecto específico sobre el ambiente, cuantificándolo y ponderándolo, para plantear una recomendación.
