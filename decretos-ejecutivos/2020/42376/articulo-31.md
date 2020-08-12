@@ -1,0 +1,3 @@
+CAPITULO VI
+Responsabilidades Asignadas al Jerarca
+Artículo 31- Aprovisionamiento de recursos. Para la disponibilidad de los recursos determinados para el cumplimiento de su misión organizacional, el jerarca dotará a la Contraloría de Servicios del contenido presupuestario que le permita respaldar el procedimiento establecido para la contratación y adquisición de los distintos recursos que garanticen su óptima gestión, así como para la realización de giras y visitas a las diferentes dependencias e instituciones educativas que se estimen necesarias para el cumplimiento de las metas establecidas por la Dirección de Contraloría de Servicios

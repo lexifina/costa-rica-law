@@ -1,0 +1,1 @@
+Artículo 33- Aceptación de dictámenes. Los dictámenes de la CS serán de carácter vinculante en tanto sus distintas recomendaciones, propuestas y resoluciones, sean refrendadas por el Jerarca de la Institución, es decir el Ministro (a) de Educación Pública, quien sobrelleva la atribución de tomar las acciones que se evidencien necesarias para la optimización del servicio.

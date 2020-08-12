@@ -1,0 +1,1 @@
+Artículo 32- Dotación de personal. Para el correcto funcionamiento y cumplimiento de las metas establecidas anualmente por la CS, el Jerarca debe velar por que se cuente con la dotación de personal necesario para el desarrollo normal de las actividades de esta dependencia.

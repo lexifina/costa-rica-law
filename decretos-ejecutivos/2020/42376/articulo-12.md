@@ -1,0 +1,1 @@
+Artículo 12- Procedimiento de nombramiento del personal de la Contraloría. El Contralor (a) - y todo el personal colaborador subordinado- son funcionarios regulares de la Institución, nombrados conforme a los procedimientos instituidos por el Estatuto de Servicio Civil y/o aquellos vigentes oficializados por la Dirección de Recursos Humanos del MEP.

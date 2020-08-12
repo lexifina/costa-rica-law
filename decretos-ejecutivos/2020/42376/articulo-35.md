@@ -1,0 +1,1 @@
+Artículo 35- Informe anual del jerarca. Será responsabilidad del Jerarca emitir un Informe ante la Secretaría Técnica de las acciones desarrolladas que surjan producto de las recomendaciones y conclusiones emitidas a este por parte de la Contraloría de Servicios

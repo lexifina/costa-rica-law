@@ -1,0 +1,7 @@
+Artículo 8- Funciones de la Contraloría de Servicios. Son funciones de la CS las siguientes:
+a) Verificar que la entidad, a través de sus diversas dependencias académicas y administrativas, cuente con mecanismos y procedimientos eficaces para la prestación efectiva del servicio requerido por los usuarios.
+b) Velar por el cumplimiento de los lineamientos y directrices que emita la autoridad competente en esta materia.
+c) Emitir las pautas administrativas y especializadas a seguir por parte de todos los canales de servicio existentes en aras de garantizar la consistencia y mejoramiento en la ejecución de trámites y procesos que tienen productos entregables al público.
+d) Supervisar y evaluar que la prestación del servicio institucional en el MEP, conlleve el cumplimiento de aquellos marcos normativos que buscan un fin protector a colectivos con condiciones particulares por razones etarias, de discapacidad, de género, de creencias religiosas, de seguridad ocupacional.
+e) Comunicar al Jerarca de la Institución aquellos casos graves y reiterados de negativa, indiferencia o negligencia de parte de un funcionario o unidad administrativa en la atención de solicitudes y recomendaciones efectuadas para corregir aspectos esenciales del servicio proporcionado y determinar en conjunto el inicio de cualquier investigación disciplinaria.
+f) Informar a los usuarios sobre los servicios que brinda la Contraloría y facilitar en la medida de lo posible su llano acceso a los mismos.

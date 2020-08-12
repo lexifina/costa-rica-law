@@ -1,0 +1,1 @@
+Artículo 34- Informe anual a la Secretaría Técnica del Sistema Nacional de Contralorías de Servicios. Será responsabilidad del jerarca avalar el informe anual que la CS envía a la Secretaría Técnica del Sistema Nacional de Contralorías de Servicios, o en su defecto informar a la citada Secretaría las razones de no avalar el informe emitido por la Contraloría de Servicios.

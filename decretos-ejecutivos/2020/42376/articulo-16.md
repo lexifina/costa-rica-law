@@ -1,0 +1,1 @@
+Artículo 16– Inconformidades. Conforme a la definición incluida en el glosario descrito en el artículo 2, son aquellos planteamientos y/o cuestionamientos suscritos por una persona usuaria que versan sobre los presuntos hechos y comportamientos al margen de los principios trascendentales inherentes a la política institucional de la efectividad del servicio.

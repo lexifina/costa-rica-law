@@ -1,0 +1,3 @@
+CAPITULO III
+Oferta y Tipología de Servicios existentes
+Artículo 13- Fuente de estudios. Los estudios de la Dirección de Contraloría de Servicios pueden tener distintas fuentes generadoras ya sea por solicitud de un usuario, por solicitud del Jerarca de la Administración Activa o por solicitud de algún titular de una Dirección del sector académico o administrativo. Los servicios que presta se categorizan según la siguiente tipificación: a) Evacuación de Consultas, b) Denuncias e inconformidades, c) Investigaciones integrales de gestión del servicio, d) Asesoramiento y acompañamiento en instrucción y e) Elaboración de instrumentos y mecanismos de referencia para la evaluación global del servicio.
