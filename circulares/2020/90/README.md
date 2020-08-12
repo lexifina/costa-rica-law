@@ -13,3 +13,4 @@ Aclaración sobre la limitación de presentación de escritos por medio de corre
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-05-04 | la propia norma |
+| 2 | 2020-08-12 | Circular 169 (2020-08-12) |
