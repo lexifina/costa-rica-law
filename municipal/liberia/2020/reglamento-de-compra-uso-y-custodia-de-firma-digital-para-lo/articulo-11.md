@@ -1,0 +1,1 @@
+Artículo 11.—Solicitudes de soporte de Firma Digital: La Unidad de Informática será la encargada de atender las solicitudes de soporte técnico de firma digital en la Municipalidad de Liberia en primera instancia, por los medios ya establecidos y formales. En caso de requerir soporte técnico de entes técnicos superiores, esta hará las gestiones que correspondan.

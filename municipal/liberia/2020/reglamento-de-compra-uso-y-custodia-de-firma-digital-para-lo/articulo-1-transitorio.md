@@ -1,0 +1,1 @@
+Transitorio I.—Se debe considerar que todos los procedimientos internos que requieren firma manuscrita o reglamentos que así lo establecen, deben ser adaptados a las disposiciones del presente reglamento.

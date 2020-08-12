@@ -1,0 +1,1 @@
+Artículo 12.—Instalación y Configuración: La Unidad de Informática será la encargada de brindar el servicio de instalación y configuración de todas las herramientas necesarias para que la firma digital funcione correctamente en el computador de la persona funcionaria.

@@ -1,0 +1,1 @@
+Artículo 13.—Verificación de la validez de la Firma Digital: La Unidad de Informática será la encargada de brindar soporte y asistencia para asuntos de verificación de la validez de una determinada firma digital, capacitación de la persona funcionaria y de la implementación de nuevos servicios con mecanismos de firma digital.

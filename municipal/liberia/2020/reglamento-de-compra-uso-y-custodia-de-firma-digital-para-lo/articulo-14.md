@@ -1,0 +1,1 @@
+Artículo 14.—Citas de emisión y renovación de Firma Digital: Cada la persona funcionaria de la Municipalidad de Liberia, será la encargada de gestionar las citas para la solicitud de la firma digital, en los plazos estipulados anteriormente y de cualquier otro trámite que requiere realizar ante la entidad emisora.

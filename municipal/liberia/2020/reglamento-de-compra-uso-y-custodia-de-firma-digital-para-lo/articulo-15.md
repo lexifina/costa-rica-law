@@ -1,0 +1,3 @@
+CAPÍTULO VI
+Disposiciones finales y transitorias
+Artículo 15.—Normativa complementaria: En lo no previsto por este reglamento, se aplicará supletoriamente lo dispuesto en las directrices que emita la Municipalidad de Liberia, la Ley de Certificados Digitales, Firmas Digitales y Documentos Electrónicos y su Reglamento, la normativa y lineamientos que emita la DCFD, el Código Municipal, Reglamento Autónomo de Organización y Servicios de la Municipalidad de Liberia, Ley de Control Interno, Ley General de Administración Pública, Ley de Notificaciones Judiciales Nº 8687, y demás normativa que regule la materia.

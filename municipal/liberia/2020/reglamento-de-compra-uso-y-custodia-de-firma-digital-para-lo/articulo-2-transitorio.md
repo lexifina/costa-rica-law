@@ -1,0 +1,1 @@
+Transitorio II.—La utilización de la firma digital y la implementación de herramientas y sistemas informáticos se harán de acuerdo con los lineamientos que establezca la Unidad Informática con la autorización del Alcalde Municipal.
