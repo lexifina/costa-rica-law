@@ -1,0 +1,1 @@
+Artículo 14. La voluntad de pertenecer a la organización “GESCUA” deberá expresarse formalmente mediante documento idóneo para tales fines, denominada carta de compromiso debidamente firmada entre las partes “GESCUA” como agente rector y el potencial exponente de nueva integración a la organización.

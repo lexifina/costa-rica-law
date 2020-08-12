@@ -1,0 +1,1 @@
+Artículo 15. La integración a la organización “GESCUA” es un acto de expresa voluntariedad de carácter personal, indelegable y en su consecuencia, nadie puede ser coaccionado a permanecer en ella ni coaccionado a retirarse de la misma, excepto en los casos establecidos en el artículo 19.

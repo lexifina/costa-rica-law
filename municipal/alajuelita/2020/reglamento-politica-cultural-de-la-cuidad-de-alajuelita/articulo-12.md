@@ -1,0 +1,1 @@
+Artículo 12. La Comisión de Cultura municipal, la cual es un ente consultivo del concejo municipal funcionará como un mecanismo de revisión y filtro de los proyectos y procesos definidos como prioritarios para implementar en el cantón, esta implementación deberá ser aprobada y sometida a votación por el Concejo Municipal respectivo. Plan Estratégico 2020-2025

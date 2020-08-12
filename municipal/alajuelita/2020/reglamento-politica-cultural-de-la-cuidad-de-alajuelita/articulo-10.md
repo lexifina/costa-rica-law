@@ -1,0 +1,1 @@
+Artículo 10. La oficina de Gestión Cultural Municipal integrará diferentes procesos de gestión socio-cultural partiendo de una visión inclusiva, participativa y horizontal que no admitirá ningún tipo de discriminación y busca crear unión entre las diferentes organizaciones a través de la colaboración y el trabajo en Red.

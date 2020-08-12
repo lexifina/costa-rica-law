@@ -1,0 +1,3 @@
+Capítulo 2. Mecanismos de gestión, sustentabilidad, monitoreo y evaluación
+Artículo 5. El Plan Estratégico 2020-2024 de la política de cultura de Alajuelita es el principal mecanismo ejecución de la misma, este es fundamentado en las necesidades identificadas en los talleres de Cocreación de la presente Política, igualmente es planteado en concordancia con en el Plan de Desarrollo Humano Cantonal. El mismo debe de ser integrado a los planes de estratégicos y
+operativos de la municipalidad y en sus futuras revisiones, debe también ser consecuente al Plan de Desarrollo Humano actualizado para el momento de dicha revisión, en el año 2024.
