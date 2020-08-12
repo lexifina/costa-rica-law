@@ -4,3 +4,4 @@ b) Acta de entrega y recibo (en caso de permuta, donación y/o venta) de los bie
 c) Entrega física de los bienes al adjudicatario.
 d) Baja de los bienes respectivos.
 e) Aviso a la Gerencia General comunicando la baja de los bienes.
+(Así reformado mediante sesión ordinaria N° 606 del 12 de agosto del 2020)

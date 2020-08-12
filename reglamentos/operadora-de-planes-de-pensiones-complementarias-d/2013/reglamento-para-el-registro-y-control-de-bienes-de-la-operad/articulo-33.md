@@ -1,1 +1,2 @@
-Artículo 33.—Control e informe sobre donaciones. La Gerencia de Administración y Finanzas elaborará un informe con el número de acta, nombre del beneficiario, ubicación por provincia y bienes donados. Este informe deberá ser enviado a la Gerencia General, con el fin de que ésta verifique que los bienes hayan sido debidamente entregados.
+Artículo 33.—Control e informe sobre donaciones. La Dirección de Administración elaborará un informe anual con el número de acta, nombre del beneficiario, ubicación por provincia y bienes donados. Este informe deberá ser enviado a la Gerencia General, con el fin de que ésta verifique que los bienes hayan sido debidamente entregados.
+(Así reformado mediante sesión ordinaria N° 606 del 12 de agosto del 2020)
