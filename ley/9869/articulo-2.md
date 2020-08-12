@@ -1,0 +1,1 @@
+ARTÍCULO 2- Se autoriza a la Municipalidad de San Carlos para que done al Ministerio de Educación Pública, cédula jurídica número dos- uno cero cero – cero cuatro dos cero cero dos (2-100-042002), ambos bienes inmuebles desafectados y descritos en el artículo anterior.
