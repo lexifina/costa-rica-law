@@ -1,6 +1,2 @@
-Artículo 42.- Dentro de la cuota anual destinada a abastecer el
-consumo interno deberá señalarse, necesariamente, un porcentaje no menor
-de la quinta parte de dicha cuota de calidades superiores y las clases de
-café que se rematen en la Bolsa deben ajustarse a los requisitos mínimos
-que señale el Departamento de Control de Alimentos del Ministerio de
-Salubridad Pública.
+Artículo 42- El productor maquilador deberá presentar los informes diarios de ventas y los contratos de compra y venta de café. De igual manera, deberá informar todos los traslados de café realizados. Esta información, para todos los efectos, tendrá carácter de declaración jurada.
+Corresponderá al productor maquilador autorizar, al beneficio maquilador, la presentación ante el Instituto del Café de Costa Rica (lcafé) de los informes quincenales. La firma beneficiadora, que preste el servicio de maquila, deberá informar la nómina de productores con la identificación de maquila.

@@ -1,4 +1,1 @@
-Artículo 50.- El beneficiador debe reportar a la Oficina del Café
-todas las bodegas e instalaciones que utilice para guardar café y los
-inspectores de dicha Oficina tendrán acceso a ellas en cualquier momento
-que los soliciten a los encargados de la vigilancia.
+Artículo 50- Se faculta al Instituto del Café de Costa Rica (lcafé) para que compre y venda café dentro y fuera del país, conforme a los mecanismos que se establezcan en la reglamentación de esta ley. Queda facultada igualmente esta entidad para comercializar café con otros países, mediante trueque, siguiendo los procedimientos establecidos en la Ley 3527, Ley de Trueque, de 15 de julio de 1965 y su reglamento.

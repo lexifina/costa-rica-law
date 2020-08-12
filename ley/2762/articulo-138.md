@@ -1,0 +1,1 @@
+Artículo 138- El Instituto del Café de Costa Rica (lcafé) dará las facilidades administrativas para la organización de las reuniones ordinarias y extraordinarias del Congreso. Tendrá a su cargo, además, cursar la convocatoria correspondiente, por lo menos con un mes de antelación a la fecha fijada para la reunión.

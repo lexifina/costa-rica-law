@@ -1,15 +1,1 @@
-Artículo 84.- Si la Junta Directiva ordenara la inscripción de un
-contrato, en las condiciones señaladas en el artículo anterior, deberá
-motivar su resolución. Si lo rechazara, el beneficiador gozará de un
-plazo de tres días hábiles, contados a partir del día en que se le
-notificó la resolución rechazando la inscripción, para presentar recurso
-de revocatoria contra el respectivo acuerdo. Conocido el recurso por la
-Junta Directiva, ésta podrá acogerlo e inscribir el contrato mediante
-resolución razonada; o rechazarlo y comprar ese café en forma directa, a
-cualquier precio superior, en cuyo caso podrá vender el producto mediante
-el procedimiento de contratación directa. Para adquirirlo contará con un
-plazo de tres días hábiles después de resuelto el recurso. Transcurrido
-ese plazo sin que el Instituto haya ejercido ese derecho, el contrato se
-inscribirá de oficio.
-(Así reformado por el artículo 1º de la Ley Nº 6988 de 26 de junio de
-1985).
+Artículo 84- Se consideran créditos de financiación cafetalera todos aquellos créditos que el productor obtenga con garantía prendaria de su cosecha, dentro de los límites fijados por el Banco Central de Costa Rica y con vencimiento al finalizar la cosecha. Estos créditos los utilizará el productor para sus gastos normales de asistencia de sus plantaciones de café y de recolección y transporte de su cosecha, y pueden concederse por medio de los beneficiadores, o bien, directamente por los bancos comerciales, de la forma prevista en esta ley. Las sumas que los beneficiadores entreguen a los productores a cuenta de café ya entregado por estos no tienen el carácter de préstamo sino de pago anticipado parcial del precio y, en consecuencia, sobre esas sumas los productores no tendrán que pagar intereses.

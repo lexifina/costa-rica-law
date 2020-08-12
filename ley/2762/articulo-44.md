@@ -1,4 +1,1 @@
-Artículo 44.- A fin de distinguir el café para consumo interno que es
-vendido a través de la Bolsa, la Oficina de Café podrá teñir o en
-cualquier otra forma diferenciar dicho producto, concediéndosele la
-facultad exclusiva de realizar esta operación.
+Artículo 44- El beneficiador debe realizar la venta del total de café recibido dentro del respectivo año cafetalero, salvo limitaciones ajenas a su voluntad o circunstancias calificadas en que el atraso de la venta se justifique por las perspectivas del mercado, previa autorización del Instituto del Café de Costa Rica (lcafé).

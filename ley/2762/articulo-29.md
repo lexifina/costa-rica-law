@@ -1,5 +1,3 @@
-Artículo 29.- El beneficiador debe realizar la venta del total de
-café recibido dentro del respectivo año cafetalero, salvo limitaciones
-ajenas a su voluntad o circunstancias calificadas en que el atraso de la
-venta se justifique por las perspectivas del mercado, previa autorización
-de la Oficina del Café.
+CAPÍTULO III
+Café diferenciado
+Artículo 29- Se entenderá por café diferenciado el que se distingue por sus características de calidad, origen u otra particularidad del café denominado convencional y que debe cumplir con el procedimiento que para tal fin define el Instituto del Café de Costa Rica (lcafé).

@@ -1,3 +1,3 @@
-Artículo 4º.- Se considera productor de café, con los derechos y
-obligaciones que determina esta ley, a todo aquel que posea, con derecho
-a explotarla por cualquier título legítimo, una plantación de café.
+CAPÍTULO II
+Partes y su personería
+Artículo 4- La reglamentación de la presente ley establecerá las excepciones y normas de particular aplicación, para aquellos beneficios que solamente procesen y vendan café de sus propietarios.

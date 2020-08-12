@@ -1,3 +1,1 @@
-Artículo 74.- El Instituto del Café de Costa Rica podrá coordinar actividades con entidades públicas y privadas, para lograr el cumplimiento de las disposiciones legales y reglamentarias sobre contaminación ambiental, en relación con la actividad cafetalera.
-(Así reformado por el artículo 4 de la Ley N° 6988, Ley que Crea el Instituto del Café de Costa Rica de 26 de junio de 1985)
-(Derogado parcialmente, respecto de las disposiciones que conceden la exención al impuesto sobre la renta, por el inciso a) del artículo 22 de la Ley N° 8114, Ley de Simplificación y Eficiencia Tributaria de 4 de julio del 2001).
+Artículo 74- En las cuentas que presente el beneficiador, el producto de las ventas efectuadas en divisas extranjeras debe calcularse en colones, al tipo de cambio a que se haya negociado la respectiva letra en el Banco Central.

@@ -1,4 +1,1 @@
-Artículo 77.- Las operaciones de venta, consignación, o cualquier
-otro acto de disposición que realicen directamente las firmas
-beneficiadoras en el exterior, igualmente quedan expuestas a las
-prescripciones del presente Título.
+Artículo 77- En los contratos de liquidación individualizada, dado que el precio no queda sujeto al proceso de liquidación ordinario previsto en esta ley, no aplicarán, en favor del productor, los precios de liquidación final.

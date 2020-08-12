@@ -1,3 +1,1 @@
-Artículo 21.- Los socios y propietarios de más de un beneficio deben
-declarar en la Oficina del Café, a cuál de sus beneficios y en qué
-proporción corresponde la entrega de su café propio.
+Artículo 21- En la investigación técnica que se realice, prevista en el artículo18, se determinará, al mismo tiempo, la localización de las fincas de producción propias del beneficiador o de sus socios y parientes, dentro de las zonas aprobadas.

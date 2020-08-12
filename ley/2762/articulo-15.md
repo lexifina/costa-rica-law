@@ -1,9 +1,1 @@
-Artículo 15.- Se prohíbe a los beneficiadores recibir café de
-quienes no sean productores. El beneficiador deberá extender su
-comprobante por cada partida de café que reciba, cuyo original será
-entregado al productor. También deberá extender un comprobante por cada
-entrega que haga el beneficiador en su condición de productor. Estos
-recibos contendrán la información que determine la reglamentación de esta
-ley.
-(Así reformado por el artículo 1º de la Ley Nº 6988 de 26 de junio de
-1985).
+Artículo 15- El beneficiador podrá recibir un porcentaje máximo del dos por ciento (2%) de café verde. El que reciba un porcentaje mayor no tendrá derecho a ninguna adecuación a su favor de los rendimientos mínimos fijados para la respectiva cosecha, salvo que sea autorizado por la Junta Directiva del Instituto del Café de Costa Rica (lcafé), conforme se establezca en el reglamento. El café verde se liquidará conforme lo estipula esta ley.

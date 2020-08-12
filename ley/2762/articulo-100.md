@@ -1,5 +1,1 @@
-Artículo 100.- Los traspasos o cesiones de contratos entre
-exportadores están sujetos a las mismas disposiciones contenidas en el
-presente Título, y en ningún caso, la suma de las utilidades para las
-casas exportadoras que participen en una transacción de este tipo, podrá
-sobrepasar la ganancia neta que aquí se establece.
+Artículo 100- Si el precio consignado en un contrato por inscribir no concordara con los niveles de precios normales prevalecientes en el mercado, por ser visiblemente inferiores a estos, el director ejecutivo del Instituto del Café de Costa Rica (lcafé) deberá someter el citado contrato a conocimiento de la Junta Directiva en la sesión inmediata siguiente, para que esta resuelva si se inscribe o se rechaza la transacción.

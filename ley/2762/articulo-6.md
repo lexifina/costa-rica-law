@@ -1,5 +1,1 @@
-6º.- Para los efectos de la presente ley, se entiende por
-"beneficio de café" toda entidad dedicada al recibo, elaboración, venta y
-financiamiento de café que, disponiendo de los medios de capital y
-personal técnico, constituya por sí una unidad económica y
-administrativa.
+Artículo 6- Se tendrá como beneficiador de café a toda persona, física o jurídica, debidamente inscrita como tal en el registro correspondiente del Instituto del Café de Costa Rica (lcafé). Únicamente se inscribirá a quien, poseyendo legítimamente un beneficio de café, reciba, procese y venda sujetándose a las disposiciones de la presente ley.

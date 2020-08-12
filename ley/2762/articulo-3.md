@@ -1,7 +1,6 @@
-CAPITULO II
-De las partes y su personería
-Artículo 3º.- La reglamentación de la presente ley, establecerá las
-excepciones y normas de particular aplicación, para aquellos beneficios
-que solamente procesen y vendan café de sus propietarios.
-(Así adicionado por el artículo 1º de la Ley Nº 2798 de 1 de agosto de
-1961).
+Artículo 3- El Instituto del Café de Costa Rica (lcafé), a fin de contribuir en la consecución de sus objetivos, además de las funciones que establece esta ley, podrá realizar las siguientes actividades ordinarias y de giro habitual:
+a) Desarrollar actividades comerciales como son la producción, compra y comercialización nacional e internacional de semillas de café en sus diferentes formas de reproducción, según la técnica y la ciencia, para efectos de autorizar y desarrollar innovación tecnológica, incremento productivo y mitigación al cambio climático.
+b) Importar, comercializar y coadyuvar en los procesos de importación de todo tipo de insumos para la actividad cafetalera, cuando se requiera para la atención de algún propósito concreto: plagas, enfermedades, generadores de vigor y productividad o productos relacionados con efectos sobre la maduración, etc.
+c) Prestación de servicios de transferencia tecnológica, asistencia técnica agronómica, de laboratorios y otros servicios relacionados con la actividad cafetalera, tanto nacional como internacional, que generen competitividad al sector por medio de organismos vinculados con el Instituto del Café de Costa Rica, según la reglamentación de esta ley y previa autorización de la Junta Directiva.
+d) Desarrollar, autorizar y coordinar, con instituciones públicas y privadas, programas de capacitación técnica, académica y de formación en las distintas áreas de producción, industrialización, comercialización, mercadeo, catación, barismo y transferencia tecnológica.
+e) Venta de artículos promocionales "Café de Costa Rica", tanto a nivel nacional como internacional.

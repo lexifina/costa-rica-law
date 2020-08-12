@@ -1,3 +1,1 @@
-Artículo 26.- La Oficina del Café aprobará el sistema de empaque a
-que deben sujetarse las exportaciones de café, atendiendo al interés
-general en el prestigio, la presentación y protección del grano.
+Artículo 26- Las firmas que operen más de un beneficio no pueden hacer cambios ni sustituciones con el café elaborado en cada patio.

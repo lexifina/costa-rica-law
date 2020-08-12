@@ -1,6 +1,2 @@
-Artículo 17.-La Oficina del Café, a fin de calificar la veracidad
-del monto de las entregas de café al beneficio, podrá ordenar una
-investigación pericial sobre el área cultivada y condición de las
-plantaciones del o los informantes.
-(Así reformado por el artículo 2º de la Ley Nº 2798 de 1º de agosto de
-1961).
+Artículo 17- La manifestación del beneficiador de la cantidad de café propio entregada, lo mismo que de cualquier otro dato que afecte el total de ingresos de café a su patio, tienen el valor y la transcendencia legales de una declaración jurada; quien falte a la verdad en el reporte de estos datos incurrirá en los delitos de perjurio y falso testimonio regulados en los artículos 318 y 323 de la Ley 4573, Código Penal, de 4 de mayo de 1970.
+De igual manera, quien reporte datos falsos que afecten el total de ingresos de café a su patio, en los sistemas oficiales del Instituto del Café (lcafé) cometerá el delito de falsedad ideológica tipificado en el artículo 367 del Código Penal. El Instituto del Café de Costa Rica debe denunciar, ante el Ministerio Público, los hechos que considere como tales.

@@ -1,3 +1,3 @@
-Artículo 99.- Es deber de la Oficina del Café investigar por todos
-los medios a su alcance, la veracidad de los precios pactados entre las
-casas exportadoras y sus compradores o corresponsales en el exterior.
+CAPÍTULO II
+Precio
+Artículo 99- Es obligación de las partes consignar en los contratos de compraventa de café para exportación el precio real pactado, sin que en ningún caso les sea permitido deducir suma alguna por intereses, comisión o cualquier otro concepto, fuera de la utilidad legítima del exportador.
