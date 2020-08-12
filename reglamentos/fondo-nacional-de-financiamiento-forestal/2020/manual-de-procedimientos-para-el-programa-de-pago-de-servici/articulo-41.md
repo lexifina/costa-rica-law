@@ -1,4 +1,11 @@
-Artículo 41.- Los proyectos asociados a la Estrategia REDD+.
-41.1. Dados los instrumentos internacionales con rango de Convenio Internacional suscritos y ratificados por el Gobierno de Costa Rica y en especial la Estrategia REDD+, se ha facultado al Fonafifo, para suscribir todo tipo de convenios o contratos, para participar en los mercados y los programas que estos convenios establezcan.
-41.2. En estos supuestos, el Fonafifo podrá no sólo adquirir y reconocer el pago de las acciones de mitigación de gases de efecto invernadero, sino también intermediar en estos mercados y programas nacionales e internacionales, representando a los productores y dueños de bosque privados.
-41.3. En estos convenios y contratos, el Fonafifo tendrá plena libertad de negociar las condiciones, los procedimientos y los requisitos, siempre y cuando se cumpla con lo dispuesto en el Decreto Ejecutivo N° 40464-MINAE, publicado en el Alcance N°175 de fecha 18 de junio del 2017.
+Artículo 41.-Condiciones para aplicar al proyecto piloto.
+41.1. El proyecto piloto operaría bajo las siguientes condiciones especiales, sin perjuicio de la aplicación de las disposiciones generales que rigen el Programa de Pago por Servicios Ambientales:
+a. Será requisito para aplicar al piloto que los interesados de previo formalicen un contrato de crédito con Fonafifo, de acuerdo a los lineamientos establecidos en el Reglamento de Crédito del FONAFIFO.
+b. Que el área máxima sea de 50 hectáreas.
+c. Que el proyecto se ejecute en fincas inscritas ante el Registro Público de la Propiedad.
+d. Que el asesoramiento técnico sea ejecutado a través de FUNDECOR como la organización responsable de su implementación.
+e. La actividad a reconocer es la de Plantaciones Forestales con Turnos de Rotación Reducidos (PFTRR), con la especie Gmelina arbórea (melina). Siguiendo los lineamientos establecidos en este manual de procedimientos.
+f. Que para el año 2020 el periodo establecido para la recepción de solicitudes bajo este piloto cierra el 30 de octubre.
+g. En caso de no recibir aplicaciones de posibles interesados, o si estas no completan los recursos destinados para el proyecto piloto, serán distribuidos entre las actividades de PSA con mayor demanda.
+h. Si durante el primer año de ejecución del proyecto piloto no se reciben aplicaciones, el mismo quedará sin efecto y se procederá a su cancelación.
+(Así adicionado en sesiones N° 07-2020 y 08-2020 del 12 de agosto de 2020 y 9 de setiembre de 2020)
