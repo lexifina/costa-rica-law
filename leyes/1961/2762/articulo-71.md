@@ -1,12 +1,1 @@
-CAPITULO VII
-Disposiciones generales
-Artículo 71.-El Banco Nacional de Costa Rica, por medio de su
-Sección del Beneficios de Café procurará que en ninguna zona cafetalera de
-importancia en el país queden productores sin poder entregar el grano para
-su correspondiente procesamiento. Con este propósito deberá instalar o
-arrendar las plantas de beneficio necesarias o en su caso recibidores en
-aquellas zonas donde no opere la iniciativa privada o ésta no sea
-suficiente para garantizar el oportuno recibo y la conveniente elaboración
-del café producido.
-(Así reformado por el artículo 2º de la Ley Nº 2798 de 1º de agosto de
-1961).
+Artículo 71- La Junta de Liquidaciones, durante el transcurso del mes de octubre de cada año, aceptará o modificará las cuentas que le hayan sido presentadas por los beneficiadores o, en su defecto, tasará de oficio el precio definitivo de liquidación, conforme a lo establecido en este capítulo. El Instituto del Café de Costa Rica (lcafé), antes del 1 º de enero del año siguiente, deberá hacer del conocimiento de los interesados los precios definitivos de liquidación para todos los beneficios del país, mediante publicaciones en La Gaceta y en dos diarios de circulación nacional. La Junta Directiva del Instituto del Café de Costa Rica podrá modificar las fechas y los términos previstos en este artículo, así como los de los artículos 69 y 70 de esta ley, en proporción al retraso de las exportaciones del café que se originen en obligaciones adquiridas mediante compromisos internacionales u otras circunstancias que, a juicio de la Junta Directiva, hicieran imposible cumplir con las fechas y los términos establecidos en esos artículos.

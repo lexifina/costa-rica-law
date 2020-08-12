@@ -1,6 +1,6 @@
 # Régimen Relaciones de Productores, Beneficiadores y Exportadores Café
 
-Ley N° 2762 del 1961-06-21. SINALEVI, ficha 36867: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=36867&param2=38867&param3=1>.
+Ley N° 2762 del 1961-06-21. SINALEVI, ficha 36867: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=36867&param2=121917&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -13,3 +13,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 5 de 8 | 2001-07-16 | Ley 8109 | 2001-07-04 |
 | 6 de 8 | 2001-07-16 | SINALEVI | 2001-07-16 |
 | 7 de 8 | 2005-04-29 | SINALEVI | 2005-04-29 |
+| 8 de 8 | 2020-08-12 | Ley 9872 | 2020-07-28 |

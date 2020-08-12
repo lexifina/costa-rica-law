@@ -1,4 +1,1 @@
-Artículo 39.- La Oficina del Café podrá organizar y reglamentar una
-Bolsa del Café de Exportación, encargada de facilitar y desenvolver la
-venta de café con este destino, en la que se negocien contratos para
-entrega inmediata o futura.
+Artículo 39- Las firmas beneficiadoras, cuando actúen como agentes retenedores según sea el caso, estarán en la obligación de retener y pagar, en nombre del productor maquilador, la contribución que corresponda.

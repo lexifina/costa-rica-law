@@ -1,2 +1,1 @@
-Artículo 98.- La Oficina del Café queda facultada para reglamentar y
-establecer un límite máximo a los gastos reconocidos al exportador.
+Artículo 98- Los traspasos de contratos entre beneficiadores solo serán permitidos cuando, a los clientes del beneficio transmitente, no perjudique la cesión o el traspaso en su correspondiente determinación del precio de liquidación final.

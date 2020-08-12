@@ -1,9 +1,1 @@
-Artículo 89.-El exportador debe ejecutar los contratos con la misma
-calidad de café recibida del beneficiador, cuando se trate de
-exportaciones de café por marcas. Cuando por conveniencia del mercado, se
-necesite efectuar mezclas de varias partidas, o mejorar su presentación,
-el exportador podrá realizarlas haciendo uso de sus propias marcas,
-debidamente registradas en la Oficina del Café, y bajo la vigilancia de
-ese organismo.
-(Así reformado por el artículo 2º de la Ley Nº 2798 de 1º de agosto de
-1961).
+Artículo 89- En caso de que los adelantos por dinero ofrecidos por el beneficiador, por cada unidad de café por recibir, resultaran superiores a los precios fijados oficialmente por la Junta de Liquidaciones, como liquidación final para la respectiva cosecha, el adelanto por unidad se considerará precio mínimo y, en consecuencia, el beneficiador no podrá exigir al productor la devolución de las sumas recibidas en exceso.

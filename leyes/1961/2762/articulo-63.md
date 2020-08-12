@@ -1,4 +1,1 @@
-Artículo 63.- En las cuentas que presente el beneficiador, el
-producto de las ventas efectuadas en divisas extranjeras, debe calcularse
-en colones, al tipo de cambio a que se haya negociado la respectiva letra
-en le Banco Central.
+Artículo 63- Las partidas de café pertenecientes a un beneficio, al que se compruebe que no le fueron inventariadas en la oportunidad señalada en el artículo 61 de esta ley, se tendrán como ocultadas con el fin de defraudar a los productores, por lo que, mediante el debido proceso, se aplicará la sanción de suspensión a la firma beneficiadora por incumplimiento a la presente ley y se procederá con el decomiso de este, bajo los procedimientos establecidos por el Instituto de Café de Costa Rica (lcafé).

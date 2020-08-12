@@ -1,4 +1,1 @@
-Artículo 81.- Los traspasos de contratos entre beneficiadores sólo
-serán permitidos cuando a los clientes del beneficio trasmitente, no
-perjudique la cesión o el traspaso en su correspondiente determinación
-del precio de liquidación final.
+Artículo 81- Para los casos de las liquidaciones individualizadas, los beneficios deberán reportar, independientemente, cada subcategoría de café, bajo el mismo esquema de informes quincenales establecido en esta ley.

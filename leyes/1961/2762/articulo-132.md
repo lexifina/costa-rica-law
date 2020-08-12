@@ -1,0 +1,1 @@
+Artículo 132- Los miembros de la Junta Directiva del Instituto del Café de Costa Rica (lcafé) son civilmente responsables de los acuerdos tomados en Junta Directiva, en relación con lo que esta ley dispone, salvo que expresamente conste su voto negativo en el acta correspondiente.

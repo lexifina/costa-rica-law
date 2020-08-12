@@ -1,6 +1,1 @@
-Transitorio 4º.- Para efectos de determinar el rendimiento mínimo
-durante las cosechas en que por el Transitorio 2º se permite el recibo de
-café por unidades de volumen, la Oficina del Café ordenará realizar una
-investigación técnica, en las mismas condiciones establecidas en el
-Capítulo V del Título Primero de esta ley, para establecer la relación de
-conversión de fanegas a libras.
+TRANSITORIO IV- La reglamentación de la presente ley será presentada por la Junta Directiva del Instituto del Café de Costa Rica (!café) al Ministerio de Agricultura y Ganadería (MAG), dentro de los sesenta días siguientes a la publicación de esta ley. La falta de reglamento no impedirá la aplicación de esta ley.

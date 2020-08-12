@@ -1,21 +1,2 @@
-TITULO TERCERO
-Disposiciones Generales y Transitorias
-CAPITULO I
-Participación y obligaciones de la Oficina del Café
-Artículo 101.- La ejecución y la vigilancia de esta Ley estarán a
-cargo del Instituto del Café de Costa Rica, el cual tendrá como
-finalidades las siguientes:
-a) Propiciar un régimen equitativo de relaciones entre los distintos
-sectores que participan en la actividad cafetalera. Esta acción la
-coordinará con las instituciones del Estado, a fin de velar por el
-cumplimiento y mejoramiento de las disposiciones legales y reglamentarias
-relativas al café.
-b) Propiciar, en colaboración con entidades públicas y privadas, el
-desarrollo de la actividad cafetalera en todas sus etapas, así como la
-diversificación agrícola del país.
-c) Formular y proponer al Poder Ejecutivo las políticas que deban
-seguirse en cuanto a la actividad cafetalera del país, así como defender
-los intereses de esa actividad, tanto en el ámbito nacional como
-internacional.
-(Así reformado por el artículo 1º de la Ley Nº 6988 de 26 de junio
-de 1985)
+Artículo 101- Si la Junta Directiva ordenara la inscripción de un contrato, en las condiciones señaladas en el artículo anterior, deberá motivar su resolución. Si lo rechazara, el beneficiador gozará de un plazo de tres días hábiles, contado a partir del día en que se le notificó la resolución rechazando la inscripción, para presenta recurso de revocatoria contra el respectivo acuerdo.
+Conocido el recurso por la Junta Directiva, esta podrá acogerlo e inscribir el contrato mediante resolución razonada, o rechazarlo y comprar ese café de forma directa, a cualquier precio superior, en cuyo caso podrá vender el producto mediante el procedimiento de contratación directa. Para adquirirlo contará con un plazo de tres días hábiles después de resuelto el recurso. Transcurrido ese plazo sin que el instituto haya ejercido ese derecho, el contrato se inscribirá de oficio.

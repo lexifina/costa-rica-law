@@ -1,8 +1,2 @@
-Artículo 119.- Si los legítimos propietarios del café decomisado
-según los dos artículos anteriores, no se presentaren ante el Instituto
-del Café de Costa Rica a acreditar sus derechos dentro del mes siguiente
-a la firmeza de la sentencia del proceso correspondiente, el Instituto
-deberá donar el monto recaudado a instituciones de beneficencia de la
-jurisdicción en donde se realizó el decomiso.
-(Así reformado por el artículo 1º de la Ley Nº 6988 de 26 de junio de
-1985).
+Artículo 119- El Instituto del Café de Costa Rica (lcafé) velará por que la producción del café de Costa Rica reúna los requerimientos de calidad exigibles en el mercado internacional, para lo cual realizará estudios técnicos y llevará una lista de especies y variedades recomendadas al productor.
+Aquellos productores que cultiven especies y variedades distintas de las recomendadas por el lcafé no podrán optar por los beneficios, las ayudas o los patrocinios de los diferentes programas que implemente el instituto.

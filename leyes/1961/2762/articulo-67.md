@@ -1,7 +1,1 @@
-Artículo 67.-Cuando los productores obtengan financiación directa en
-las agencias bancarias o en las Juntas Rurales de Crédito Agrícola, están
-obligados a informar del monto de su deuda al beneficio donde entreguen su
-café, autorizándolo para que de los saldos libres del producto, haga las
-retenciones correspondientes para su transferencia al acreedor.
-(Así reformado por el artículo 2º de la Ley Nº 2798 de 1º de agosto de
-1961).
+Artículo 67- Las liquidaciones provisionales se elaborarán siguiendo el mismo procedimiento contenido en este capítulo para la liquidación final, con las salvedades establecidas en esta ley y sus reglamentos. Los beneficiadores deberán enviar informes de estas liquidaciones al Instituto del Café de Costa Rica (lcafé), conforme lo indique la reglamentación de esta ley. Las liquidaciones provisionales y su correspondiente pago deberán hacerse dentro de los ocho días hábiles siguientes al vencimiento del respectivo trimestre. El primer trimestre concluirá el 31 de diciembre de cada año.

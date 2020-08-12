@@ -1,5 +1,1 @@
-Artículo 51.- Las partidas de café pertenecientes a un beneficio al
-que se compruebe que no le fueron inventariadas en la oportunidad
-señalada en el artículo 48 de esta ley, se tendrán como ocultadas con el
-fin de defraudar a los productores, debiendo en este caso la Oficina del
-Café, denunciar el hecho a los tribunales comunes.
+Artículo 51- En cumplimiento de las funciones asignadas al Instituto del Café de Costa Rica (lcafé) en el artículo anterior, esta presentará al Banco Central, para su aprobación y de forma razonada, las recomendaciones que juzgue convenientes y apropiadas. En su presentación indicará las fuentes de dónde se tomarán los recursos económicos necesarios, para cubrir eventuales pérdidas. Esas fuentes pueden ser las utilidades cambiarias provenientes de las exportaciones de café y/o cualesquiera otras que apruebe el Banco Central.

@@ -1,4 +1,1 @@
-Artículo 107.- Los miembros de la Junta Directiva de la Oficina del
-Café son civilmente responsables de los acuerdos tomados en Directiva,
-en relación a lo que esta ley dispone, salvo que expresamente conste su
-voto negativo en el acta correspondiente.
+Artículo 107- El Instituto del Café de Costa Rica (lcafé) deberá establecer y mantener, en perfecto estado, un servicio técnico y eficiente para el control del peso del café de exportación, cuando las compañías o entidades que atienden la operación de los muelles en los puertos de embarque no tengan tal servicio.

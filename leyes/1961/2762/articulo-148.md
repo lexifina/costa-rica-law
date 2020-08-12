@@ -1,0 +1,1 @@
+Artículo 148- La Dirección Ejecutiva del Instituto del Café de Costa Rica (lcafé) está facultada para no dar trámite a las gestiones de los beneficiadores, exportadores y torrefactores que, a su juicio, no hayan cumplido las respectivas obligaciones que esta ley establece, la cual será expresada mediante resolución fundamentada.

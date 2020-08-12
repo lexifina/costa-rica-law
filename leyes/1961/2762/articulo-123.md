@@ -1,4 +1,2 @@
-Artículo 123.- Al propietario de una partida de café beneficiado no
-inventariada según el caso previsto en el artículo 48, independientemente
-de la sanción ordinaria que corresponda al caso, se le condenará a la
-pérdida del café decomisado en tales condiciones.
+Artículo 123- Todos los medios de transporte que utilicen los beneficios en el proceso de traslado del café fruta del recibidor y/o de los sitios de acopio móvil autorizados por el Instituto del Café de Costa Rica (lcafé), a la planta beneficiadora, deberán contar en todo momento con una guía de movilización o la debida autorización de la firma beneficiadora donde se consigne ruta de transporte que indique procedencia y destino, o los recibos respectivos que deje en evidencia el beneficio responsable del café; en caso contrario, se determinará que el café fue transado de manera ilegal y será decomisado enviándose al beneficio más cercano o al que designe el instituto por razones de capacidad.
+Se impondrá una multa de cinco salarios base, a la firma beneficiadora que transporte el café sin los documentos referidos en el párrafo anterior del presente artículo.

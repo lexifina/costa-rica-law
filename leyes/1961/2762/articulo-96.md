@@ -1,6 +1,6 @@
-Artículo 96.- La oficina del Café llevará un control que le permita
-confronta los precios consignados en los contratos registrados entre
-beneficiador y exportador, con sus correspondientes contratos definitivos
-de venta en el exterior a que este Titulo se refiere, y hará de oficio las
-rectificaciones pertinentes, cuando la diferencia entre ambos precios
-sobrepase los porcentajes de utilidad máxima aquí establecidos.
+Artículo 96- La inscripción de contratos de compra-venta de café para la exportación, una vez aprobada por el Instituto del Café de Costa Rica (lcafé), será definitiva.
+Por vía de excepción serán casuales para la rescisión de este tipo de contratos, las siguientes:
+a) Voluntad de ambas partes, cuando simultáneamente se haya de sustituir por otro contrato de mejor precio o cuando los niveles de venta prevalecientes para el café, al momento de solicitarse la rescisión, sean superiores al precio consignado originalmente.
+b) Imposibilidad material del beneficiador para cumplir la entrega, por falta de café o de cuota, cuando el respectivo contrato se haya celebrado en momentos en que el vendedor no pudiera precisar la cantidad de café por recibir.
+c) Cuando la calidad del grano, dentro de las disponibilidades totales del respectivo beneficio, no coincida con la calidad pactada.
+d) Situaciones de caso fortuito o fuerza mayor, debidamente justificadas, a juicio de la Junta Directiva del Instituto del Café de Costa Rica.

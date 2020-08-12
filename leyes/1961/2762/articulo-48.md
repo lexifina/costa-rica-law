@@ -1,6 +1,1 @@
-Artículo 48.- La Junta de Liquidaciones, para efectos del cálculo del
-precio de la liquidación final, no podrá tomar en cuenta ningún
-rendimiento inferior al que para cada beneficio, según su respectiva zona,
-se haya determinado oficialmente, sin que por esto el beneficiador quede
-exento de la obligación de declarar el rendimiento real cuando éste fuere
-superior al mínimo determinado.
+Artículo 48- El Instituto del Café de Costa Rica (lcafé), directamente o por medio de otras entidades oficiales, pondrá al alcance de los productores de café, de las zonas en donde no operen plantas de beneficio, las facilidades materiales suficientes para que su producción pueda ser industrializada y comercializada.

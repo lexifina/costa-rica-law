@@ -1,5 +1,3 @@
-CAPITULO IV
+CAPÍTULO IV
 Disposiciones transitorias
-Transitorio 1º.- Se mantiene la vigencia de la Ley Nº 171 de 17 de
-agosto de 1933 y sus reformas, para toda negociación con café celebrad en
-cosechas anteriores, pendientes de finiquito.
+TRANSITORIO I- Con motivo de la situación que enfrenta el país por la pandemia por COVI D-19 y en razón de que la elección de los representantes tanto del Congreso Nacional Cafetalero así como de la Junta Directiva del Instituto del Café de Costa Rica (lcafé) es de orden popular y exige una significativa movilidad, se prorroga automáticamente, al momento de la publicación de esta ley, el nombramiento de los actuales delegados del Congreso Nacional Cafetalero y miembros de Junta Directiva del Instituto de Café de Costa Rica, hasta el tercer domingo del mes de agosto del año 2021. Estos dos órganos colegiados serán nombrados en el año 2021, de la forma establecida en los artículos 134 y 136 de la presente ley.

@@ -1,10 +1,1 @@
-CAPITULO V
-Del precio de liquidación final
-Artículo 52.- El precio en toda negociación de café entre
-productores y beneficiadores, se determinará exclusivamente mediante
-liquidaciones provisionales y definitivas. Son prohibidas todas las
-negociaciones no sujetas a la fijación ulterior de precios en las
-respectivas liquidaciones, las cuales deberán ser elaboradas conforme con
-lo dispuesto en esta Ley y sus reglamentos.
-(Así reformado por el artículo 1º de la Ley Nº 6988 de 26 de junio de
-1985).
+Artículo 52- Se faculta al Instituto del Café de Costa Rica (lcafé) para que opere como almacén general de depósito específicamente de café, ajustándose para el caso a lo prescrito por la Ley 5, Ley de Almacenes Generales de Depósito, de 15 de octubre de 1934. Los redescuentas para bonos de prenda por depósito de café, en operaciones destinadas a estabilización de precios, los podrá efectuar el Instituto del Café de Costa Rica directamente con el Banco Central y a un interés no mayor del que se conceda a los bancos comerciales.

@@ -1,4 +1,1 @@
-Artículo 87.- El precio de los contratos de venta para entrega
-futura, no podrá estar afectada en ningún caso, por intereses, comisión,
-ni descuento alguno originados en financiación o adelantos recibidos por
-el beneficiador.
+Artículo 87- Los productores solo pagarán intereses a los beneficiadores sobre las sumas que hubieran recibido de estos, por concepto de adelanto a cuenta de entrega futura de café. Para efectos del cobro de intereses de las sumas adelantadas por los beneficiadores, se deducirán las sumas que cubran las liquidaciones provisionales, a partir de las fechas en que se hagan esas liquidaciones.

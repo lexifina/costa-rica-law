@@ -1,8 +1,2 @@
-Artículo 70.- Los productores sólo pagarán intereses a los
-beneficiadores sobre las sumas que hubieren recibido de éstos, por concepto
-de adelanto a cuenta de entrega futura de café. Para efectos del cobro de
-intereses de las sumas adelantadas por los beneficiadores, se deducirán las
-sumas que cubran las liquidaciones provisionales, a partir de las fechas en
-que se hagan esas liquidaciones.
-(Así reformado por el artículo 1º de la Ley Nº 6988 de 26 de junio de
-1985).
+Artículo 70- Si transcurriera el término señalado en el inciso 1) del artículo 69, y el beneficiador no hubiera presentado la documentación y la información ahí establecidas, o no presentara lo requerido conforme a lo dispuesto en el inciso 4) de ese artículo y en el reglamento de esta ley, sin justa causa que lo impidiera, a juicio de la Junta Directiva del Instituto del Café de Costa Rica (lcafé), la Junta de Liquidaciones deberá proceder a tasar de oficio el precio definitivo de liquidación.
+Para ello, se fundamentará en los informes que figuren en los registros del Instituto del Café de Costa Rica y demás documentos enumerados en el inciso 2) del citado artículo, y calculará los gastos y las deducciones con base en los estudios que al efecto debe hacer y mantener actualizados el Instituto del Café de Costa Rica, conforme a lo dispuesto por la reglamentación de esta ley. El rendimiento se estimará sobre la base del rendimiento mínimo investigado para la respectiva cosecha y zona, o sobre el rendimiento obtenido por el beneficiador en el año inmediato anterior o en ese año, si se comprobara que cualquiera de ellos es superior al mínimo oficial.

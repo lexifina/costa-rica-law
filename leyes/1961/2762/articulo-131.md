@@ -1,0 +1,1 @@
+Artículo 131- El Instituto del Café de Costa Rica (lcafé) deberá adoptar las disposiciones administrativas necesarias y reclutar el personal indispensable para el buen desarrollo de sus funciones, incluida la del cumplimiento de esta ley.

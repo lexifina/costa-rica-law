@@ -1,14 +1,8 @@
-CAPITULO IV
-Del rendimiento
-Artículo 45.- La Oficina del Café ordenará una investigación técnica
-para determinar las diversas zonas cafetaleras existentes en el país,
-atendiendo a la diferencia de rendimiento por conversión de café en fruta
-a café oro; y determinará asimismo a cuál zona corresponde cada
-beneficio. En el caso de que un beneficio de café reciba café de varias
-zonas, porque la ubicación de sus instalaciones normalmente se lo
-permiten, para determinar la zona que le corresponde se atenderá a la de
-mayor aporte. Cuando el recibo de café de un beneficio se extienda a
-diferentes zonas cafetaleras del país sin que se justifique su radio de
-acción comercial por razones de interés nacional, se computará el
-rendimiento de dicho beneficio como correspondiente al café de mayor
-altura que reciba.
+Artículo 45- El beneficiador debe realizar sus ventas de café, tanto de consumo nacional como para exportación, sujeto a las especificaciones que señala esta ley.
+El precio de ventas para exportación debe estar comprendido dentro de los márgenes mínimos de fluctuación normal del mercado. Para calificar cuando una venta se realiza dentro de las condiciones aquí previstas, el Instituto del Café de Costa Rica (lcafé) mantendrá un estudio actualizado de las ventas locales para exportación y de las condiciones del mercado internacional.
+Por ningún concepto el beneficiador podrá disponer del café elaborado, omitiendo los procedimientos oficiales de venta que tiene establecidos o establezca el Instituto del Café de Costa Rica.
+Se faculta a las cooperativas de productores de café para vender, de forma conjunta, café para la exportación en partidas de mayor volumen, con el objeto de que puedan lograr un mejor precio. Para ello, deberán ajustarse, en un todo, a las disposiciones de esta ley, con las siguientes condiciones:
+a) Las ventas podrán hacerse por intermedio de una federación de cooperativas de productores de café.
+b) Las cooperativas que deseen acogerse a este sistema lo harán sobre el total de su cosecha y deberán comunicarlo, al Instituto del Café de Costa Rica, a más tardar el 30 de junio anterior al inicio de la cosecha correspondiente.
+c) En los contratos de compraventa de café para la exportación, a que se refiere este artículo, no será preciso consignar el nombre de la cooperativa que elaboró el café.
+d) El Instituto del Café de Costa Rica, una vez oídos los puntos de vista de la correspondiente federación de cooperativas y de las cooperativas que participan en el plan, fijará los diferenciales de precio que les corresponderán a las citadas cooperativas, para cada cosecha y antes de que se inicie la inscripción de contratos de compraventa de café para la exportación.

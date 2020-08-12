@@ -1,4 +1,1 @@
-Transitorio 3º.- Durante las cosechas indicadas en el Transitorio 2º,
-se permitirá a los beneficiadores deducir hasta un 50% de las inversiones
-tales que hagan en compra de romanas, como parte de los gastos de
-beneficio.
+TRANSITORIO III- La implementación de los nuevos mecanismos de comercialización serán ejecutados una vez que el Instituto del Café de Costa Rica (lcafé) haya desarrollado y ajustado los sistemas operativos de comercialización necesarios para su adecuada aplicación.

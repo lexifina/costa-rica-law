@@ -1,5 +1,2 @@
-CAPITULO III
-De la venta
-Artículo 28.- Con el monto total del café elaborado, el beneficiador
-está obligado a cubrir las cuotas distributivas de cada cosecha que para
-el caso determine la Oficina del Café.
+Artículo 28- El Instituto del Café de Costa Rica (!café) es el único ente competente para emitir los certificados de origen establecidos en los convenios internacionales de café y de los certificados de calidad de café para exportación.
+Estos certificados acreditarán el origen del café de Costa Rica, sin perjuicio de los certificados de origen para efectos de preferencias arancelarias emitidos al amparo de los instrumentos comerciales internacionales suscritos por el país.

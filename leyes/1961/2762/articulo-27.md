@@ -1,2 +1,1 @@
-Artículo 27.- Es atribución exclusiva de la oficina del Café extender
-certificado de origen y certificados de calidad del café para exportación.
+Artículo 27- El Instituto del Café de Costa Rica (lcafé) aprobará el sistema de empaque a que deben sujetarse las exportaciones de café, atendiendo al interés general en el prestigio, la presentación y la protección del grano.
