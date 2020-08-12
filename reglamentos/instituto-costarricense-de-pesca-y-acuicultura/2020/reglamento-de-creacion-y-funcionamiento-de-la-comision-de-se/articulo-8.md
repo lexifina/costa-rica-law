@@ -1,0 +1,3 @@
+Artículo 8º—Sobre las sesiones de la Comisión:
+Se reunirá en sesión ordinaria una vez al mes en el lugar y fecha que se acuerde en forma previa al final de cada sesión. Podrá ser convocada extraordinariamente por su Coordinador o por al menos cuatro de sus miembros, debiendo darse la debida comunicación a través del Coordinador con al menos tres días hábiles de antelación.
+Las sesiones se dividirán en dos períodos: el primero será utilizado para aprobar las actas anteriores, revisar correspondencia, control de acuerdos y para revisar y modificar, si fuera del caso, el orden del día de la agenda. Durante el segundo, se discutirán los temas ordinarios o de fondo del trabajo asignado y se atenderán las visitas, audiencias y otros según lo agendado.

@@ -1,0 +1,5 @@
+Artículo 6º—De la organización interna de la Comisión:
+La Coordinación de la Comisión PANT-CR corresponderá al representante del INCOPESCA o su suplente. El Coordinador preparará, para su aprobación, el orden del día, presidirá, abrirá y cerrará las sesiones.
+La Coordinación de la Comisión contará con asistencia secretarial de uno de los miembros de la Comisión que se elegirá cada año en forma rotativa y tendrá la responsabilidad de mantener las actas al día, de distribuirlas entre los miembros y de dar seguimiento a los acuerdos. El Incopesca brindará el apoyo técnico y logístico, para la elaboración de actas y seguimiento de acuerdos.
+En cualquier momento que la Comisión lo considere oportuno, podrá convocar a las sesiones, por medio del Coordinador, a invitados especiales para analizar temas complejos o aspectos específicos de su quehacer y su participación será únicamente durante el periodo específico para el cual fue invitado.
+La Comisión podrá dar audiencias durante las sesiones a quienes lo soliciten formalmente por escrito. La Comisión notificará por escrito su acuerdo al interesado.

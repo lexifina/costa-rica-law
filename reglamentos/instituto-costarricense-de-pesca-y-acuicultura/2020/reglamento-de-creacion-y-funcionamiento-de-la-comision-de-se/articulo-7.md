@@ -1,0 +1,8 @@
+Artículo 7º—De las actas, los acuerdos y el quórum:
+De todas las sesiones se levantará acta resumida, la cual será sometida a la aprobación en la primera parte de la siguiente sesión.
+En ésta se consignará al menos los nombres de los asistentes, la agenda del día, un extracto de la discusión y transcripción literal de los acuerdos tomados, fechas de cumplimiento y responsables.
+Las actas serán firmadas por el Coordinador y el secretario según el artículo sexto del presente reglamento.
+Los votos serán públicos y se consignarán por escrito en el acta correspondiente. Cuando alguno de los participantes desee razonar su voto sobre un punto en particular, su razonamiento será consignado en el acta.
+El quórum lo conformarán cuatro de sus miembros. Los acuerdos se toman por simple mayoría, constituida por la mitad más uno de los miembros presentes. En caso de empate, el asunto será puesto nuevamente a votación, quince minutos después. De continuar el empate, el Coordinador de la Comisión tendrá voto doble. Los acuerdos se adoptarán en firme si la Comisión lo considera necesario y así lo acuerde en el momento de su aprobación.
+En caso de que no exista el quórum a la hora indicada, se concederán treinta minutos de espera, cumplidos los mismos sin que se integre el número mínimo de cuatro instituciones representadas para sesionar, se suspenderá la reunión haciéndolo constar así en el acta respectiva que deberá levantarse con indicación de las personas presentes.
+Cuando por alguna razón no se pudiera cumplir con un acuerdo o hubiera que postergarlo, se hará constar así en el acta respectiva.
