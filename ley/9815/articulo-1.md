@@ -1,0 +1,8 @@
+N° 9815
+LA ASAMBLEA LEGISLATIVA
+DE LA REPÚBLICA DE COSTA RICA
+DECRETA:
+LEY PARA DECLARAR EL CAFÉ DE COSTA RICA COMO
+SÍMBOLO PATRIO EN EL DESARROLLO ECONÓMICO,
+SOCIAL Y CULTURAL DE NUESTRO PAÍS
+ARTÍCULO 1- Se declara el café de Costa Rica como símbolo patrio en el desarrollo económico, social y cultural de nuestro país.
