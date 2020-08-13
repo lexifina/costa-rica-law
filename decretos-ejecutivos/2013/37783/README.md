@@ -14,3 +14,4 @@ Creación del Fondo de Fomento de Actividades Productivas y de Organización de 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-07-18 | la propia norma |
+| 2 | 2020-08-13 | Decreto Ejecutivo 42498 (2020-08-13) |
