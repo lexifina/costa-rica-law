@@ -1,0 +1,1 @@
+Artículo 17.-Las autoridades y los responsables del Archivo Central, deberán promover exposiciones, conferencias y seminarios con el fin de acercar el archivo a los ciudadanos y dar a conocer muy especialmente a estudiantes, las raíces y el pasado de su ciudad.

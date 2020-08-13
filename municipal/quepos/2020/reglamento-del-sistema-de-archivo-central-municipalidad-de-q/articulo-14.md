@@ -1,0 +1,1 @@
+Artículo 14.-Cualquier usuario interesado en consultar, deberá indicar con toda claridad el objetivo de su investigación o consulta. La Municipalidad de Quepos restringirá el acceso a la información en los casos en que la ley lo permita.

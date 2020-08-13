@@ -1,0 +1,1 @@
+Artículo 36.-Revisión de los archivos por pieza, serie o envío, será necesario como requisito los indicados en el artículo N° 10 del presente reglamento. En los casos en que la serie documental, no se pueda fotocopiar por no existir el equipo adecuado en la zona, se deberá trasladar a otro lugar para tal efecto y los costos igualmente correrán por cuenta del solicitante.

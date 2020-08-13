@@ -1,0 +1,1 @@
+Artículo 28.-El puesto de archivista deberá estar contemplado en el manual descriptivo de puestos y en el manual de reclutamiento y selección del personal, con los salarios establecidos para tal puesto.

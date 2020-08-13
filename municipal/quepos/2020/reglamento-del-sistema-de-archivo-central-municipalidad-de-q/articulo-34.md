@@ -1,0 +1,1 @@
+Artículo 34.-Las fotocopias de expediente u otros, fuera del cantón, los gastos de viáticos serán cancelados por el usuario, además de cancelar los gastos de fotocopiado, incluye los requisitos solicitados artículo 10, del presente reglamento.

@@ -1,0 +1,1 @@
+Artículo 30.-Las personas particulares deben manejar adecuadamente los documentos, y si no lo hicieren se determinara la culpa, dolo, negligencia o impericia en el manejo de los documentos se procederá a la denuncia correspondiente para la aplicación de la norma establecida en el código Civil o Penal vigente.

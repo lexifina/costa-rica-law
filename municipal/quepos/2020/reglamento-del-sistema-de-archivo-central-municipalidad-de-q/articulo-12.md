@@ -1,0 +1,1 @@
+Artículo 12.-Devolución de documentos. Para la devolución de la documentación en préstamo se debe entregar a la persona designada por el Archivo Central, verificara la documentación que se prestó, tanto en cantidad como en el estado físico. El funcionario pondrá el sello de recibido conforme, indicando hora, fecha y nombre.

@@ -1,0 +1,1 @@
+Artículo 40.-El acceso del patrimonio digital debe ser permanente, al ser de dominio público deberá ser equitativo, garantizando la protección de la información delicada o de carácter privado contra cualquier forma de intrusión, contra terceros o en perjuicio de otro.

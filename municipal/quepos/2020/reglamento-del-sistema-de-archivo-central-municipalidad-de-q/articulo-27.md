@@ -1,0 +1,1 @@
+Articulo 27.-La función del Archivista será la de brindar un servicio de información eficiente y oportuno al usuario interno y externo, aplicando las técnicas archivísticas, para la toma de decisiones, información al ciudadano, la investigación y la cultura.

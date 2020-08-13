@@ -1,0 +1,1 @@
+Artículo 49.-La firmas digitales será certificada cuando sea emitida al amparo de un certificado digital vigente, expedito por un certificador registrado, como bancos u otros que le ley faculte y será de acatamiento obligatorio.

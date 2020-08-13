@@ -1,0 +1,3 @@
+CAPÍTULO IX
+El Régimen Interno del Archivo Central
+Artículo 22.-El archivista será el encargado o jefe será encargado de elaborar las normas internas y los procedimientos de la organización, y los procedimientos del archivo Central. La aplicación de las mismas se hará tanto en el Archivo Central como en los Archivos de Gestión, de las distintas oficinas Municipalidad de Quepos, de acatamiento obligatorio en ellos. El archivista es el responsable de coordinar las políticas a nivel de la institución, utilizando las normas internacionales, directrices u otros aportados por el Archivo Nacional, de acatamiento obligatorio, para su mejor control, eficiencia y eficacia de los documentos y por la ley 7202.

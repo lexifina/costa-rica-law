@@ -1,0 +1,1 @@
+Artículos 41.-Para salvaguardar el patrimonio digital los archivo de gestión y centrales están obligados a conservar los documentos, mantener el principio de integridad, origen y evitando su modificación en todo o en parte, de su forma, y característica internas y externas, para mantenerlo integro en todas sus partes.

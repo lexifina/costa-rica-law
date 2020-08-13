@@ -1,0 +1,1 @@
+Artículo 56.-Generar los respaldos periódicos, en formato homogéneo en los datos y los programas que se van a usar. Estableciendo diferentes niveles de acceso por palabras, nombre o números claves, tarjetas, firmas, voz. Llevando un histórico de los usuarios que acceden a la información digital. La vigencia administrativo legal lo establece la normativa vigente a la fecha.

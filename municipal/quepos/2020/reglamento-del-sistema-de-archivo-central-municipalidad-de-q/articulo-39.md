@@ -1,0 +1,1 @@
+Artículo 39.-Los productos de origen digital que no existen en otro formato que el electrónico, se garantiza su inalterabilidad, posible acceso o consulta, se debe preservar e indicar su origen y otras características formales del documento.

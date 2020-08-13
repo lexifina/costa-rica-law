@@ -1,0 +1,3 @@
+CAPÍTULO XII
+Del fotocopiado de expedientes
+Artículo 32.-La fotocopia de documentos se hará siempre y cuando sea de interés público, se resguarde el derecho a la intimidad de personas físicas o jurídicas, y no sea de carácter privado o secreto de estado; se hará por medio de una solicitud por escrito confeccionada por un funcionario municipal, funcionarios de otras Instituciones públicas o privadas, estudiantes, público en general, siempre y cuando no se haya decretado de consulta restringida o confidencial. Se solicitaron los requisitos que indica el artículo 10 del presente reglamento. La cancelación del monto de fotocopias corre por cuenta del solicitante.

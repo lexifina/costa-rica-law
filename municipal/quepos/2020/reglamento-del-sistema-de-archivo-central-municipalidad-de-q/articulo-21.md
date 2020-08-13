@@ -1,0 +1,1 @@
+Artículo 21.-Las tablas de plazos serán el instrumento base para la eliminación u conservación de los documentos, las cuales están autorizadas por el Archivo Nacional, vigentes y actualizadas. Estableciendo los documentos de valor científico-cultural, los cuales serán resguardados para la posteridad, en orden, limpieza y conservación.

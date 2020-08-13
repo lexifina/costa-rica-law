@@ -1,0 +1,1 @@
+Artículo 6º-Los locales que se destinan al Archivo Central, deben reunir las condiciones necesarias que garanticen la conservación óptima de los documentos, tomando en cuenta el grado de humedad relativa del aire, temperatura, polución, luz, insectos o situaciones similares.

@@ -1,0 +1,1 @@
+Artículo 11.-Préstamo de documentos. Se llenará un formulario denominado préstamo de documentos, para así tener mayor control de la salida de documentos, además de conocer a quién y a cuál departamento se le hará el préstamo, en caso del personal administrativo municipal. Los documentos prestados se deben de revisar en el área asignada para tal efecto.

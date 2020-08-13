@@ -1,0 +1,1 @@
+Artículo 15.-Los investigadores, estarán obligados a entregar una copia del trabajo realizado, cuando éste se considere a juicio del archivista un aporte significativo a cualquier campo de interés público, y esta formará parte del patrimonio del Archivo Central de la Municipalidad de Quepos.

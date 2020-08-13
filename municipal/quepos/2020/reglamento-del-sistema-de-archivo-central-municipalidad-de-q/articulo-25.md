@@ -1,0 +1,1 @@
+Artículo 25.-Las funciones del archivística son: reunir, conservar, clasificar, ordenar, describir, seleccionar, administrar y facilitar los documentos producidos o recibidos, de acuerdo a los controles internos, para salvaguardar el bien de terceros, así como las funciones establecidas en el Manuel descriptivo de funciones de la Municipalidad de Quepos.

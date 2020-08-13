@@ -1,0 +1,1 @@
+Artículo 7º-Las instalaciones reunirán las condiciones necesarias para su funcionamiento, en espacio, disponibilidad, accesibilidad y cumpliendo con las necesidades de recursos materiales, equipo, mobiliario tendrán aires acondicionados, alumbrado en excelentes condiciones, un extinguidor como mínimo entre otros según sea el caso, recurso humano calificado.
