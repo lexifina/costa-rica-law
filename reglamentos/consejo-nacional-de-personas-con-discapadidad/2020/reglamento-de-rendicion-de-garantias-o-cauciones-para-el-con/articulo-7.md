@@ -1,0 +1,1 @@
+Artículo 7º—La falta de presentación de la garantía: La no presentación de la caución, será causal para el cese en el cargo sin responsabilidad patronal, o bien para no oficializar su nombramiento en el cargo, conforme al artículo 120 de la Ley de Administración Financiera y Presupuestos Públicos, N° 8131.

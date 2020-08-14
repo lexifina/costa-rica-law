@@ -1,0 +1,1 @@
+Artículo 21.—Responsabilidad de comunicar la obligación de rendir la caución. Es responsabilidad de la Gestión Institucional de Recursos Humanos comunicar a la persona su obligatoriedad de presentar declaración jurada dentro del plazo establecido.

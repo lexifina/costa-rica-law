@@ -1,0 +1,1 @@
+Artículo 17.—Actualización de la garantía: Conforme al cálculo dispuesto en este reglamento, el monto de la garantía deberá ser actualizado una vez por año, de acuerdo con el salario base referenciado en la Ley 7337 del 05 de mayo del 1992 y sus reformas.

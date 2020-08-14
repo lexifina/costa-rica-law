@@ -1,0 +1,1 @@
+Artículo 27.—Se deroga el reglamento de garantías que deben rendir los empleados del Consejo que recauden, custodien o administren fondos y valores, publicado en La Gaceta 45 del lunes 05 de marzo del 2007.

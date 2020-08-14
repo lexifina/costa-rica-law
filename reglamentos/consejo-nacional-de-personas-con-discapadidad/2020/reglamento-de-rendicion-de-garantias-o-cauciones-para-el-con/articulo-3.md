@@ -1,0 +1,1 @@
+Artículo 3º—Ámbito de aplicación: Las disposiciones contenidas en el presente reglamento aplica a todas las personas que administren, recauden y custodien fondos o valores del Conapdis o que, por la naturaleza de sus funciones y responsabilidades, tomen decisiones sobre éstos.

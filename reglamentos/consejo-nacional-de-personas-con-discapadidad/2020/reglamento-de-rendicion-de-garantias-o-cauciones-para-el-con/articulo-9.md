@@ -1,0 +1,1 @@
+Artículo 9º—Caucionante interino o suplente: La persona que ocupe cualquier de los cargos citados en el artículo anterior, de forma interina, con recargo o asignación de funciones mediante resolución expresa, deberá rendir garantía, siempre y cuando su nombramiento sea de un mes, o más.

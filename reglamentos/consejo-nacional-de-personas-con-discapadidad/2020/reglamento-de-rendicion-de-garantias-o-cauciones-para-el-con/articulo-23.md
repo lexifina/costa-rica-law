@@ -1,0 +1,1 @@
+Artículo 23.—Del Registro. La Unidad de Recursos Humanos llevará un registro de las personas que se encuentren obligadas a suscribir la caución, así como la fecha de vencimiento de éstas, lo anterior con el fin de tomar las providencias del caso a efecto que en todo momento se mantengan vigentes.

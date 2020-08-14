@@ -1,0 +1,1 @@
+Artículo 12.—Ajuste de la caución: La persona obligada a rendir caución, que por algún motivo sea trasladada de un cargo a otro que implique rendir caución por un monto diferente, según lo indicado en este reglamento, deberá ajustar la garantía conforme a la nueva situación, antes de asumir el cargo.

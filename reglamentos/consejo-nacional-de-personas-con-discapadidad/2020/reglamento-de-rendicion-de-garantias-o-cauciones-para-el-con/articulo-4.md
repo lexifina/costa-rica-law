@@ -1,0 +1,1 @@
+Artículo 4º—Forma de rendir la caución: La caución en favor del Conapdis solo podrá ser admitida mediante la constitución de una póliza de fidelidad suscrita ante una aseguradora regulada por la Superintendencia General de Seguros.
