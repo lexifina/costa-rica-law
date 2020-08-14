@@ -1,6 +1,6 @@
 Artículo 3-. DEFINICIONES. Para fines de este procedimiento se entenderá por:
-a) Alimento de bajo riesgo: productos que se encuentran en el anexo a este decreto y que será actualizado únicamente para la adición de nuevos productos en la dirección www. registrelo.go.cr, que no tengan etiquetado nutricional.
-(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 42263 del 8 de enero del 2020)
+a) Alimento de bajo riesgo: productos que se encuentran en el anexo a este decreto y que será actualizado únicamente para la adición de nuevos productos en la dirección www. registrelo.go.cr.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 42589 del 14 de agosto del 2020)
 b) Producto Cosmético: Es toda sustancia o preparado destinado a ser puesto en contacto con las diversas partes superficiales del cuerpo humano (epidermis, sistemas piloso y capilar, uñas, labios y órganos genitales externos) o con los dientes y las mucosas bucales, con el fin exclusivo o principal de limpiarlos, perfumarlos, modificar su aspecto y/o corregir los olores corporales y/o protegerlos o mantenerlos en buen estado. El producto que, en razón de su composición, se le atribuye propiedades terapéuticas, deberá registrarse como medicamento.
 c) Producto Cosmético de bajo riesgo: productos que se encuentran en el anexo a este decreto y que será actualizado únicamente para la adición de nuevos productos en la dirección www.registrelo.go.cr.
 (Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 42263 del 8 de enero del 2020)

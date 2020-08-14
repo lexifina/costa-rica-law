@@ -25,58 +25,58 @@ Lista de productos alimentarios
 21. Colorantes y saborizantes artificiales.
 22. Condimentos.
 23. Confites a base de azúcar.
-24. de res, cerdo, atún …).
-25. Empanizadores.
-26. Encurtidos en vinagre, aceite, salmuera o salsa de soya.
-27. Fécula de maíz- Maicenas (Saborizadas y no saborizadas).
-28. Frutas confitadas.
-29. Frutas deshidratadas.
-30. Frutas empacadas congeladas.
-31. Frutas en conserva.
-32. Galletas.
-33. Gelatina en lámina.
-34. Gelatinas listas para consumir (excepto las minigelatinas).
-35. Goma de mascar.
-36. Gomitas.
-37. Granola.
-38. Helados a base de agua.
-39. Hielo.
-40. Hierbas aromáticas y especias.
-41. Jaleas y mermeladas.
-42. Jugos - Pulpas de frutas y vegetales.
-43. Levadura y polvo para hornear.
-44. Lustre para queques y decoración comestible.
-45. Margarina.
-46. Marshmellows (Malvaviscos).
-47. Mezcla en polvo para preparar Flan y Gelatina.
-48. Mezclas de cacao en polvo, cacao en pasta y jarabes.
-49. Mezclas para preparar repostería dulce y salada.
-50. Miel de maple.
-51. Mostazas.
-52. Obleas-wafer (sorbetos).
-53. Palomitas de maíz.
-54. Panes y panecillos empacados y etiquetados.
-55. Pastas para repostería (hojaldre, filo).
-56. Pastas y fideos sin ingredientes adicionales.
-57. Pinolillo.
-58. Preparados a base de fruta, incluida la pulpa, los purés, los revestimientos de fruta (excepto los dirigidos a poblaciones menores a 3 años).
-59. Preparados para untar a base de nueces y semillas (excepto los dirigidos a poblaciones menores a 3 años).
-60. Productos a base de soya.
-61. Productos de cacao y chocolate, incluidos los productos de imitación y sucedáneos del chocolate.
-62. Productos para untar a base de cacao.
-63. Puré de papa deshidratado.
-64. Queques y Repostería (excepto los rellenos con algún lácteo o tipo de carne.
-65. Salsas Picantes (Tabasco) y Chileras preparadas.
-66. Semillas secas solas o combinadas.
-67. Siropes y Jarabes.
-68. Sopas deshidratadas (sin ingredientes lácteos).
-69. Tapa de dulce (Cualquier forma).
-70. Tortillas (Harina y Maíz).
-71. Turrón y mazapán.
-72. Vegetales congelados productos.
-73. Vegetales deshidratados.
-74. Vegetales en conserva.
-75. Vinagres.
+24. Empanizadores.
+25. Encurtidos en vinagre, aceite, salmuera o salsa de soya.
+26. Fécula de maíz- Maicenas (Saborizadas y no saborizadas).
+27. Frutas confitadas.
+28. Frutas deshidratadas.
+29. Frutas empacadas congeladas.
+30. Frutas en conserva.
+31. Galletas.
+32. Gelatina en lámina.
+33. Gelatinas listas para consumir (excepto las minigelatinas).
+34. Goma de mascar.
+35. Gomitas.
+36. Granola.
+37. Helados a base de agua.
+38. Hielo.
+39. Hierbas aromáticas y especias.
+40. Jaleas y mermeladas.
+41. Jugos - Pulpas de frutas y vegetales.
+42. Levadura y polvo para hornear.
+43. Lustre para queques y decoración comestible.
+44. Margarina.
+45. Marshmellows (Malvaviscos).
+46. Mezcla en polvo para preparar Flan y Gelatina.
+47. Mezclas de cacao en polvo, cacao en pasta y jarabes.
+48. Mezclas para preparar repostería dulce y salada.
+49. Miel de maple.
+50. Mostazas.
+51. Obleas-wafer (sorbetos).
+52. Palomitas de maíz.
+53. Panes y panecillos empacados y etiquetados.
+54. Pastas para repostería (hojaldre, filo).
+55. Pastas y fideos sin ingredientes adicionales.
+56. Pinolillo.
+57. Preparados a base de fruta, incluida la pulpa, los purés, los revestimientos de fruta (excepto los dirigidos a poblaciones menores a 3 años).
+58. Preparados para untar a base de nueces y semillas (excepto los dirigidos a poblaciones menores a 3 años).
+59. Productos a base de soya.
+60. Productos de cacao y chocolate, incluidos los productos de imitación y sucedáneos del chocolate.
+61. Productos para untar a base de cacao.
+62. Puré de papa deshidratado.
+63. Queques y Repostería (excepto los rellenos con algún lácteo o tipo de carne. de res, cerdo, atún.
+64. Salsas Picantes (Tabasco) y Chileras preparadas.
+65. Semillas secas solas o combinadas.
+66. Siropes y Jarabes.
+67. Sopas deshidratadas (sin ingredientes lácteos).
+68. Tapa de dulce (Cualquier forma).
+69. Tortillas (Harina y Maíz).
+70. Turrón y mazapán.
+71. Vegetales congelados productos.
+72. Vegetales deshidratados.
+73. Vegetales en conserva.
+74. Vinagres.
+(Así reformada la lista de productos alimenticios anterior por el artículo 2° del decreto ejecutivo N° 42589 del 14 de agosto del 2020)
 Lista de productos cosméticos
 1. Aceites aromáticos para cuerpo.
 2. Aceites para el cabello.
