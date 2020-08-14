@@ -1,0 +1,1 @@
+Artículo 6. Requisitos. Para obtener la autorización y el registro de uno o varios tanques o su renovación, se deberá aportar la información requerida en el formulario digital que al efecto se establece en el anexo de este reglamento y que se encuentra en la página oficial del MINAE https://minae.go.cr/ o en la que la sustituya.

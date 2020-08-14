@@ -1,0 +1,1 @@
+Transitorio I. A partir de la publicación del presente Reglamento se otorga un plazo máximo de 2 meses para que el MINAE por medio de la DGTCC, ponga en operación el Registro Digital de Tanques de Autoconsumo.

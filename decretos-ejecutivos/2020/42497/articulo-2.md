@@ -1,0 +1,1 @@
+Artículo 2. Alcance. Este reglamento es aplicable a toda persona física o jurídica, que de forma temporal o permanente, utilice tanques estacionarios para autoconsumo de combustible y a las concesionarias del servicio público de transporte y comercialización de combustibles en cualquiera de sus modalidades, encargadas de suministrar combustible a dichos tanques.
