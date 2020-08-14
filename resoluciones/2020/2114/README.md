@@ -14,3 +14,4 @@ Disposiciones administrativas sobre los trámites administrativos relacionados c
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-07-02 | la propia norma |
+| 2 | 2020-08-14 | Resolución 2708 (2020-08-14) |
