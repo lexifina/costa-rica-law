@@ -14,3 +14,4 @@ Prorroga las disposiciones administrativas sobre los trámites relacionados con 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-06-27 | la propia norma |
+| 2 | 2020-08-14 | Resolución 2709 (2020-08-14) |
