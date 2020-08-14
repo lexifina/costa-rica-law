@@ -1,1 +1,0 @@
-Artículo 2º—Plazo: Esta competencia será ejercida de manera temporal hasta que el Sistema de Facturación Electrónica de la Dirección General de Tributación esté debidamente habilitado para validar las transacciones mercantiles a los productores agropecuarios con la tarifa reducida del 1% del Impuesto sobre el Valor Agregado.
