@@ -1,0 +1,3 @@
+ARTÍCULO 7°.- Refórmese el artículo 4° del Decreto Ejecutivo número 42238-MGP-S del 17 de marzo de 2020, a efectos de que se agregue un párrafo final y en adelante se consigne lo siguiente:
+“ARTICULO 4°.- (…)
+Para el caso de las personas costarricenses y las personas extranjeras que cuenten con una permanencia legal autorizada bajo las categorías migratorias de Residencia Permanente, Residencia Temporal, Categorías Especiales o No Residentes subcategoría Estancia, lo relativo a la orden sanitaria de aislamiento se regirá por lo dispuesto en los artículos 8° y 8° bis del Decreto Ejecutivo número 42513-MGP-S del 31 de julio de 2020.”
