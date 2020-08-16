@@ -1,0 +1,3 @@
+Artículo 9º—Monto máximo de compras menores. Cada año la Gerencia del BCCR en coordinación con la División Administrativa, definirán, según la metodología establecida en el sitio oficial del BCCR, el monto para las compras menores a realizar.
+La División Administrativa del BCCR podrá autorizar compras que excedan hasta un 50% del monto que sea definido para las compras menores, siempre que se cuente con la justificación debida y el contenido presupuestario suficiente. Porcentajes superiores a los que se definan en este párrafo, podrán ser autorizados por la Gerencia del BCCR.
+En el caso de los ODM, los Superintendentes podrán autorizar montos mayores al establecido para las compras menores, cumpliendo con la debida justificación.

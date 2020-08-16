@@ -1,0 +1,1 @@
+Artículo 15.—Derogatoria. Este Reglamento rige una vez trascurridos dos meses contados a partir de su publicación en el Diario Oficial La Gaceta y deroga el aprobado por la Junta Directiva del Banco Central de Costa Rica, mediante artículo 9, del acta de la sesión 5168-2003, del 16 de julio de 2003 y publicado en el Diario Oficial La Gaceta 153, del 11 de agosto de 2003.

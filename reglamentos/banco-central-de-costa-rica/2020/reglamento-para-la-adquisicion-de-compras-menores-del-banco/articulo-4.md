@@ -1,0 +1,1 @@
+Artículo 4º—Aprobador. El titular del Centro Gestor o el Coordinador Administrativo de los ODM, podrá designar y tramitar ante la dependencia administrativa correspondiente, a un funcionario para que le fijen los roles y perfiles, y así poder hacer uso del trámite de compras menores.
