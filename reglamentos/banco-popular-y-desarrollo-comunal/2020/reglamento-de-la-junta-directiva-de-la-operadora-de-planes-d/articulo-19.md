@@ -1,0 +1,4 @@
+Artículo 19.—Deliberación. El acuerdo se tomará previa deliberación y una vez suficientemente discutido el asunto será puesto a votación. El Presidente dirigirá los debates y votaciones.
+Cuando el acuerdo no fuere votado por unanimidad, por petición del Director que lo considere oportuno, se consignará literalmente en el acta la motivación de su voto salvado, para efectos de delimitar la responsabilidad que pudiere derivarse de dicho acuerdo.
+Asimismo, se hará constar en el acta, el razonamiento del voto solicitado por el Director que lo considere oportuno, indicando las motivaciones particulares que le asisten para votar en la forma que lo hizo.
+Quienes salven el voto serán ajenos a las responsabilidades que competan en relación con el asunto particular para el cual ejercieron estas acciones.

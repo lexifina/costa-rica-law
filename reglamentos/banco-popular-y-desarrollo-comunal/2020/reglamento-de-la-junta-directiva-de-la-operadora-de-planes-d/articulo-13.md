@@ -1,0 +1,3 @@
+Artículo 13.—Asistencia a las sesiones de Junta Directiva. La asistencia de los miembros de la Junta Directiva a las sesiones ordinarias y extraordinarias es obligatoria, y cuando por justa causa se encuentren imposibilitados de asistir, deberán comunicarlo a la Presidencia de la Junta Directiva.
+La Junta Directiva no podrá conceder permiso a más de tres directores simultáneamente para ausentarse por causas personales, salvo casos muy calificados.
+Existe causa justificada para no asistir a sesión cuando alguno de los miembros se encuentre cumpliendo funciones propias de su cargo encomendadas por el Presidente o por las Juntas Directivas o cuando la inasistencia obedezca a causas de enfermedad u otra excusa razonable a juicio del Presidente de la Junta Directiva.

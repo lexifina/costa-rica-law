@@ -1,0 +1,3 @@
+Artículo 16.—Privacidad de las sesiones. Las sesiones de la Junta Directiva serán siempre privadas, salvo que los miembros presentes acuerden, por unanimidad lo contrario.
+Asimismo, la Junta Directiva podrá ordenar, de acuerdo con la gravedad o relevancia de los temas planteados, el carácter de sesión confidencial con las personas que estime convenientes y hacer resguardo de la información que allí se genere.
+En este caso el acta también debe ser aprobada en la sesión ordinaria siguiente por aquellos que estuvieron presentes en la sesión correspondiente y en ellas deben consignarse los aspectos más relevantes de la sesión, así como los acuerdos tomados, incluso aquellos que han sido acordados bajo confidencialidad.

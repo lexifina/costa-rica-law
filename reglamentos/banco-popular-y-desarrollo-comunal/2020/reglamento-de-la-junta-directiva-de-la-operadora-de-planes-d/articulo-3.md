@@ -1,0 +1,1 @@
+Artículo 3º—Conformación. La Junta Directiva estará integrada por siete miembros quienes deberán cumplir con los requisitos que indique el ordenamiento jurídico y serán: presidente, vicepresidente, secretario, tesorero y tres vocales.

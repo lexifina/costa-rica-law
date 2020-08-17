@@ -1,0 +1,1 @@
+Artículo 28.—Del inicio y quórum. Las reuniones de Comités y Comisiones deberán dar inicio puntualmente a la hora señalada y se formará quórum como lo defina reglamentariamente cada Comité y Comisión.

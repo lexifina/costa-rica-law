@@ -1,0 +1,2 @@
+Artículo 22.—Antecedentes y documentos relativos a las sesiones. Con el fin de facilitar los debates en el curso de las sesiones y con el propósito de procurar resolver todos los puntos del orden del día, las instancias que correspondan están obligadas a presentar todos los antecedentes y documentos respectivos a la Presidencia de la Junta Directiva.
+Cuando dichos antecedentes y documentos no se acompañen con los asuntos que figuren en el orden del día, la Junta Directiva podrá no conocer de ellos hasta tanto no se cumpla con lo ordenado en este artículo.

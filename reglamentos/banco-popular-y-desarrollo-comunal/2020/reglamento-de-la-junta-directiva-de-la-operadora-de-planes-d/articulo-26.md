@@ -1,0 +1,1 @@
+Artículo 26.—Recursos contra los acuerdos. Contra los acuerdos de la Junta Directiva podrán interponerse los recursos ordinarios y extraordinarios de conformidad con las disposiciones de la Ley General de Administración Pública.
