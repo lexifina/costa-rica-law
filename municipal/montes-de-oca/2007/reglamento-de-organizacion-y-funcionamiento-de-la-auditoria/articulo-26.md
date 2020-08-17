@@ -1,1 +1,0 @@
-Artículo 26.—Ámbito de acción: El ámbito de acción de la auditoria interna esta conformado por la Municipalidad de Montes de Oca, Comité Cantonal de Deportes y Recreación y Juntas de Educación lo anterior de acuerdo a lo establecido en el articulo 22, inciso a) de la Ley General de Control Interno. El auditor interno será el responsable de su definición y actualización.

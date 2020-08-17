@@ -1,1 +1,0 @@
-Artículo 2º—Visión y misión: La Auditoria Interna tendrá la obligación de actualizar su visión, misión, principales políticas y procedimientos que regula su accionar, además deberá tener presentes los códigos éticos al conducirse en sus distintas relaciones internas y externas.

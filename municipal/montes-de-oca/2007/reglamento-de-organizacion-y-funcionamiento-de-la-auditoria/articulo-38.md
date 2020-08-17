@@ -1,1 +1,0 @@
-Artículo 38.—Procesamiento de la información: Las cualidades de la información, análisis y evaluación, registros, acceso, custodia y supervisión del trabajo se realizará en observancia de las normas contenidas en el apartado 2.4 del Manual de Normas Generales para el Ejercicio de la Auditoria Interna en el Sector Público.

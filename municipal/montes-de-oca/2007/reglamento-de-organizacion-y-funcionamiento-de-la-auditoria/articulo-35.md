@@ -1,1 +1,0 @@
-Artículo 35.—Prohibiciones: El Auditor Interno, y los demás funcionarios de la auditoría interna, deberán atender en el ejercicio de sus funciones las prohibiciones establecidas en el artículo 34 de la Ley General de Control Interno.
