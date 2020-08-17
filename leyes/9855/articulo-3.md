@@ -1,0 +1,1 @@
+ARTÍCULO 3- El terreno donado se destinará, exclusivamente, a mantener, remodelar y, en su caso, construir nueva infraestructura que cumpla las funciones y los objetivos de las Temporalidades de la Iglesia Católica de la Diócesis de Alajuela.
