@@ -15,3 +15,4 @@ Reglamento General de Juntas de Educación y Juntas Administrativas
 | --- | --- | --- |
 | 1 | 2014-03-14 | la propia norma |
 | 2 | 2016-07-05 | Decreto Ejecutivo 39817 (2016-07-05) |
+| 3 | 2020-08-18 | Decreto Ejecutivo 42552 (2020-08-18) |
