@@ -1,0 +1,1 @@
+Artículo 36.—A partir de la aprobación de este Reglamento, las gestiones correspondientes dichas en este Reglamento serán ejecutadas por un funcionario encargado de la labor de cobro; hasta tanto la administración proceda a la creación formal del Departamento de Cobros.

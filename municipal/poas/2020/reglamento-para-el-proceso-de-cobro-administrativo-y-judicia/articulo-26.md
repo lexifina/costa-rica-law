@@ -1,0 +1,1 @@
+Artículo 26.—El Área de Cobro, será el encargado de realizar la confección y trámite de los arreglos de pagos y serán aprobados por la Jefatura del Departamento de Gestión Financiera Tributaria en asocio de la Asesoría Legal Municipal a efecto de confeccionar el documento de arreglo de pago respectivo.

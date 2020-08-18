@@ -1,0 +1,4 @@
+CAPÍTULO IV
+De los honorarios de los abogados
+Artículo 23.—Los Abogados Externos calcularán sus honorarios profesionales de acuerdo a la base en el Arancel de Honorarios por Servicios Profesionales de Abogacía y Notariado vigentes de Colegio de Abogados. Monto que será reportado por el bufete o abogado a la Municipalidad de Poás, para que la Municipalidad lo cancele al Bufete o Abogado y el Municipio se lo cobre directamente a cada Contribuyente en un plazo no mayor a un mes a partir de realizado el cobro por el servicio dejado de cancelar al Municipio y una vez cancelado se le acredite al Bufete u abogado.
+Se reitera que el costo por el Cobro Judicial lo asume directamente el contribuyente moroso y deberá ser cancelado antes de que la cuenta o situación financiera del contribuyente con la Municipalidad sea corregida.

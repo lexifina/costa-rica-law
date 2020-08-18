@@ -1,0 +1,6 @@
+Artículo 18.—El abogado deberá realizar las siguientes gestiones:
+a) Presentación de la demanda de cobro judicial conteniendo certificaciones correspondientes debidamente firmadas por los funcionarios municipales, en un plazo no mayor a tres días hábiles. En caso de no hacerse en ese lapso, el Abogado enviará una carta, explicativa a la oficina respectiva, para la autorización por parte de la oficina correspondiente. La presentación de la demanda debe testimoniarse con el sello y la fecha del juzgado que recibió dicha demanda, siendo requisito imprescindible para el cobro de honorarios.
+b) Los abogados están obligados a exigir a los Tribunales de Justicia donde se tramiten los casos, que se le sellen y firmen las copias de todos los escritos que se presenten, de los cuales deberá enviar copia al Departamento de Cobro.
+c) Realizar estudios de retenciones como mínimo cada tres meses en los procesos que estén bajo su dirección, y solicitar cuando existe sentencia firme la orden de giro correspondiente.
+Una vez dictada la sentencia de previo y en un plazo no mayor a quince días naturales, deberá presentar al Tribunal Judicial respectivo la liquidación de costas.
+d) En el escrito inicial de la demanda se señalará: Para notificaciones el Departamento de Cobro de la Municipalidad de Poás.

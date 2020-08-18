@@ -1,0 +1,1 @@
+Artículo 8º—Agotadas las gestiones administrativas en la recuperación de las cuentas morosas, la oficina encargada entregará a los Abogados, para el trámite de cobro judicial, la documentación necesaria para que inicien los trámites judiciales.

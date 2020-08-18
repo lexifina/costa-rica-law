@@ -1,0 +1,1 @@
+Artículo 29.—Los arreglos de pago se harán con deudas superiores al veinticinco por ciento del salario de un trabajador no calificado en actividades genéricas, de acuerdo con el más reciente decreto sobre Salarios Mínimos que se encuentra vigente y en cuentas inferiores a ese monto no se autorizan los arreglos de pago.
