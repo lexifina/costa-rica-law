@@ -14,3 +14,4 @@ Reglamento de Nombramiento, Organización y Funcionamiento Interno del comité c
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-01-24 | la propia norma |
+| 2 | 2020-08-18 | Reglamento municipal 33 (2020-08-18) |
