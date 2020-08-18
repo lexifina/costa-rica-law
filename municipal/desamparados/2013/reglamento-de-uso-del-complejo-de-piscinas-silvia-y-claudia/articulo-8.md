@@ -1,5 +1,0 @@
-CAPÍTULO IV
-DE LOS USUARIOS DE LAS INSTALACIONES
-ARTÍCULO 8. Usuarios
-A efectos del presente reglamento, se entiende por usuarios del Complejo Deportivo de las Piscinas, a aquellas personas físicas o jurídicas o grupos de personas que ocupan cualquiera de los espacios de las instalaciones, bien participando en programas promovidos y gestionados por la Municipalidad o participando del arrendamiento de dichos espacios, sean estos: deportistas, instructores, o espectadores.
-La condición de usuario se adquiere en el momento de la firma de un contrato, convenio o permiso de uso y cuando se realice el pago del precio señalado cuando así se requiere, y se pierde automáticamente cuando termina el período de tiempo estipulado en los diferentes programas, contratos, convenios o permisos de uso. La Municipalidad de Desamparados se exime de toda responsabilidad que se le pueda exigir por el uso individual o colectivo de las instalaciones o participación en sus actividades por los usuarios, como pérdida de objetos personales, robo o lesiones como consecuencia de la práctica recreativa o deportiva.

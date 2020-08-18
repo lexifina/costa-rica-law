@@ -1,2 +1,0 @@
-ARTÍCULO 3. Responsabilidad de gestión de las instalaciones.
-La Administración del Complejo de Piscinas Silvia y Claudia Poll Ahrens, y la Coordinación del Área Administrativa serán los responsables de hacer cumplir las normas establecidas en el presente reglamento.

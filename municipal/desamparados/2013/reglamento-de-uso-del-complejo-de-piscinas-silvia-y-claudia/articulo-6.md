@@ -1,4 +1,0 @@
-ARTÍCULO 6. De los ingresos de las instalaciones.
-Todos los ingresos que genere el complejo deportivo de piscinas por alquiler u otros servicios que se presten deben de ingresar a la cuenta corriente no. 001-0232928-0 a nombre de la municipalidad de desamparados con el Banco de Costa Rica, conforme a lo establecido en el artículo 14 del presente reglamento.
-Los usuarios ocasionales o público general del complejo deportivo de piscinas que usen las instalaciones dentro del horario para este efecto, deberán seguir el procedimiento establecido en el artículo 19 de este reglamento.
-Los ingresos que perciba la institución por la explotación de las instalaciones deben invertirse en las mismas, ya sea en el mantenimiento, obra pública, adquisición de maquinaria o equipos, mejoras o implementación de nuevos espacios deportivos o recreativos tanto en el Estadio, como dentro de la Villa Olímpica. Esto conforme con lo establecido en la legislación vigente.
