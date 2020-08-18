@@ -1,0 +1,1 @@
+Artículo 8º—La categoría de obra menor; no aplica para construcciones nuevas donde previamente no existan edificaciones dentro del inmueble. Tampoco aplica para muros de retención o contención de cualquier tipo de material, rellenos estructurales, ni estructuras que deban soportar cargas denominadas como cargas mayores que puedan afectar la estructura.

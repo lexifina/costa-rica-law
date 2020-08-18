@@ -1,0 +1,2 @@
+Artículo 32.—Los actos administrativos dictados al amparo del presente reglamento son susceptibles de los recursos de revocatoria y apelación. Los cuales deberán ser presentados, el primero ante el Proceso de Gestión de Ordenamiento Territorial y el segundo; en caso de no haber sido presentado subsidiariamente con el primero; ante la Alcaldía Municipal. Ambos recursos dentro de un plazo improrrogable de cinco días hábiles a partir de la comunicación del acto. De conformidad con el artículo 171 del Código Municipal.
+Rige a partir de su publicación.

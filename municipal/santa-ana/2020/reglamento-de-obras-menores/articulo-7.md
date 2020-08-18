@@ -1,0 +1,1 @@
+Artículo 7º—No se considerarán obras menores las obras de construcción que, según el criterio técnico especializado del Proceso de Gestión de Ordenamiento Territorial, incluyan modificaciones al sistema estructural, eléctrico o mecánico de un edificio; que pongan en riesgo la seguridad de sus ocupantes.

@@ -1,0 +1,1 @@
+Artículo 19.—Para toda construcción de cubierta de techos, debe realizarse la correcta conexión al sistema pluvial interno para desfogar hacia el alcantarillado pluvial en vía pública, sin afectar predios colindantes con un mal manejo de las aguas.
