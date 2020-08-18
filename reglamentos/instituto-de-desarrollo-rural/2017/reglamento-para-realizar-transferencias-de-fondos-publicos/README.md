@@ -15,3 +15,4 @@ Reglamento para realizar transferencias de fondos públicos
 | --- | --- | --- |
 | 1 | 2017-07-18 | la propia norma |
 | 2 | 2017-10-30 | Reglamento 40 (2017-10-30) |
+| 3 | 2020-08-18 | Reglamento 35 (2020-08-18) |

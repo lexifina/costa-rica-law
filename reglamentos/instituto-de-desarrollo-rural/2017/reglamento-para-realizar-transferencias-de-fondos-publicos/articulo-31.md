@@ -1,2 +1,2 @@
-Artículo 31.—Vigencia. El presente Reglamento rige a partir de su publicación en el Diario Oficial La Gaceta y fue aprobado por acuerdo firme de la Junta Directiva, Artículo 3 de la Sesión Ordinaria 21 de fecha 05 de junio de dos mil diecisiete.
-Acuerdo aprobado por mayoría. comuníquese. acuerdo firme.
+Artículo 31.—Formas de aplicar la flexibilización. Para flexibilizar el articulado del presente reglamento, la Administración deberá someter ante la junta directiva los procedimientos sustitutivos, protocolos, lineamientos o cualquier otro instrumento que sea necesario y técnicamente motivado para enfrentar los embates de una emergencia declarada por el Poder Ejecutivo.
+(Así adicionado en sesión N° 35 del 18 de agosto de 2020)
