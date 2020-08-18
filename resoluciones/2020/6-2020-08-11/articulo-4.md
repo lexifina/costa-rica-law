@@ -1,0 +1,1 @@
+Artículo 4º—El incumplimiento de lo dispuesto en la presente Resolución será sujeto a las sanciones establecidas por la Ley N° 7664, Ley de Protección Fitosanitaria del Servicio Fitosanitario del Estado, su Reglamento y demás normativa legal vigente aplicada para tal efecto.
