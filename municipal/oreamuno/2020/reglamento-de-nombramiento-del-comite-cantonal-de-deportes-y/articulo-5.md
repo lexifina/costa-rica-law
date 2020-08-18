@@ -1,0 +1,1 @@
+Artículo 5º—Verificación de requisitos. El cumplimiento de estos requisitos será verificado por medio de la presentación del Currículum Vitae y atestados de cada uno de los aspirantes por parte de la Comisión Especial para Nombramientos designada por el Concejo Municipal.

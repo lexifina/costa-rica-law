@@ -1,0 +1,1 @@
+Artículo 16.—Instalación e integración de la Junta Directiva. En la primera sesión del mes de octubre de cada período correspondiente, se procederá a la instalación de la Junta Directiva del Comité Cantonal de Deportes y Recreación, los que nombrarán un presidente, un vicepresidente, un secretario, un tesorero y tres vocales.

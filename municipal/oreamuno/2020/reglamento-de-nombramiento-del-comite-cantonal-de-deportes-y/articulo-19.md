@@ -1,0 +1,1 @@
+Artículo 19.—Impedimento miembros de la administración y Concejo Municipal. Los concejales, alcalde, alcaldes suplentes, tesorero, auditor, contador, sus cónyuges o parientes, en línea directa o colateral hasta tercer grado inclusive, están inhibidos para integrar estos comités.

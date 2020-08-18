@@ -1,0 +1,1 @@
+Artículo 18.—Impedimentos a los miembros del Comité Cantonal. Los miembros de la Junta Directiva del Comité Cantonal de Deportes y Recreación no podrán formar parte de la Junta Directiva de un Comité Comunal de Deportes y Recreación de forma simultánea. Igual prohibición se aplica de forma inversa a los Comités Comunales de Deporte y Recreación.

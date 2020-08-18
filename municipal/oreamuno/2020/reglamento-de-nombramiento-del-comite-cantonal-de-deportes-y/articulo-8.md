@@ -1,0 +1,1 @@
+Artículo 8º—Responsables de las convocatorias. El Concejo Municipal nombrará, en la primera quincena del mes de junio, una Comisión Especial para el nombramiento del Comité Cantonal de Deportes y Recreación de Oreamuno la cual se encargará de efectuar las convocatorias respectivas a la ciudadanía del cantón.

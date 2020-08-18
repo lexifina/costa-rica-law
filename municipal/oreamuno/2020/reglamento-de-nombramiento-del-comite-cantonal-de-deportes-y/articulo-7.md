@@ -1,0 +1,1 @@
+Artículo 7º—Fecha y período de nombramiento. El proceso de nombramiento del Comité Cantonal de Deportes y Recreación se iniciará durante la primera quincena de junio y será instalado a partir del 01 de octubre por un período de dos años.
