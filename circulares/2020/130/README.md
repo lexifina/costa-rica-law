@@ -13,3 +13,4 @@ Uso de mascarillas o caretas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-06-26 | la propia norma |
+| 2 | 2020-08-19 | Circular 159 (2020-08-19) |
