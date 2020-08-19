@@ -11,3 +11,15 @@ Tasas de interés: Se podrán fijar tasas de interés desde 0% hasta las permiti
 En caso de catástrofes o emergencias declaradas la Gerencia General Corporativa podrá suspender el incremento que establece este inciso.
 Topes máximos; Se podrá incrementar hasta en un 50% el monto máximo de los créditos vigentes.
 Todo ello en atención a la naturaleza y gravedad de la situación, sin que en ningún caso se incumplan las normas que para tales efectos ha establecido la SUGEF en la materia. Esas medidas serán de carácter temporal, con un plazo prorrogable por el cual se mantendrán las líneas de crédito disponibles y deberán ser del conocimiento de la Junta Directiva Nacional en un plazo no mayor a los cinco días hábiles posteriores a que se haya adoptado la decisión.
+Transitorio I:
+Para atender la demanda de negociaciones de pago producto de la emergencia nacional Covid19 se adicionan en forma transitoria los siguientes niveles resolutivos a los estipulados en el anexo 2 (artículo 16) de este reglamento, los cuales aplicarán únicamente para la Banca Empresarial y Corporativa.
+Para agilizar la resolución de los arreglos de pago, dada la naturaleza de estos, no será necesaria la participación de asesores de Riesgo y Jurídicos.
+Los demás niveles resolutivos del anexo 2 de este reglamento se mantienen sin variación.
+Este transitorio tendrá vigencia a partir de la aprobación de la Junta Directiva Nacional y hasta el 31 de diciembre del 2020.
+Transitorio I
+Niveles Resolutivos de aplicación según artículo 16
+Aplica a Banca Empresarial y Corporativa
+Nivel Resolutivo | Conformación actual | Monto aprobación para Negociaciones de Pago
+Comité Operativo Especial de Banca Empresarial | Un Coordinador Regional de Centros Empresariales Un Supervisor de Centro Empresarial Un Ejecutivo de Negocios | Hasta $2.000.000
+Comité Operativo Ampliado | Director de Banca Empresarial y Corporativa Jefe de División Institucional y Corporativa Jefe de División Banca de Desarrollo Empresarial | Más de $2.000.000
+(Así adicionado el transitorio I anterior mediante sesión N° 5760 del 19 de agosto del 2020)
