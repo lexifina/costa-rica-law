@@ -15,3 +15,4 @@ Suministro de agua potable ante la alerta sanitaria del covid-19
 | --- | --- | --- |
 | 1 | 2020-03-31 | la propia norma |
 | 2 | 2020-06-25 | Directriz 90 (2020-06-25) |
+| 3 | 2020-08-19 | Directriz 93 (2020-08-19) |
