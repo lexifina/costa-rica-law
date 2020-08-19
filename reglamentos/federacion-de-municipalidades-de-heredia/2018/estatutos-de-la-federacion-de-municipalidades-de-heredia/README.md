@@ -15,3 +15,4 @@ Estatutos de la Federación de Municipalidades de Heredia
 | --- | --- | --- |
 | 1 | 2018-07-13 | la propia norma |
 | 2 | 2018-07-27 | Reglamento 0 (2018-07-27) |
+| 3 | 2020-08-19 | Reglamento 1 (2020-08-19) |
