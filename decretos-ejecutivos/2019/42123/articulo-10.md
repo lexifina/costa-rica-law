@@ -5,5 +5,6 @@ Para solicitar un permiso de salida del país en pasaporte de servicio, el inter
 a. Aportar el requisito establecido en el punto 7.1 del artículo 7, inciso "c", del presente Reglamento.
 10.2 Requisitos específicos:
 a. Aportar los requisitos establecidos en el punto 7.2 del artículo 7, incisos "b", "c", 44c.151, "e" y "g", del presente Reglamento. La declaración jurada mencionada en el inciso "g", podrá realizarse concurriendo al Departamento de Pasaportes del Ministerio de Relaciones Exteriores y Culto.
-b. Los funcionarios de la Administración Central, autorización original por parte del Ministerio de Planificación Nacional y Política Económica (MIDEPLAN).
+b. Los funcionarios de la Administración Central, autorización original por parte del Ministerio de Planificación Nacional y Política Económica (MIDEPLAN). Para obtener dicha autorización, los interesados deberán aportar, debidamente lleno, el formulario que para tales efectos proporciona MIDEPLAN de forma impresa o digital.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 42594 del 19 de agosto del 2020)
 El titular debe presentar la totalidad de requisitos con un tiempo mínimo de tres días hábiles y un máximo de treinta días hábiles, antes de realizar el viaje. El Departamento de Pasaportes del MREC debe resolver las solicitudes en un máximo de diez días hábiles.
