@@ -1,0 +1,8 @@
+MUNICIPALIDAD DE PALMARES
+CONCEJO MUNICIPAL DE PALMARES
+El Concejo Municipal de Palmares mediante acuerdo ACM- 09-05-2020 de la Sesión Ordinaria Nº 05, Capitulo. IV, Artículo N°10, celebrada el 02 de junio del dos mil veinte acordó modificar el artículo 23 del Reglamento del Mercado Municipal, adicionándose al mismo lo siguiente: “En caso de Estado de Emergencia Nacional debidamente declarada por el Poder Ejecutivo, el monto de cobro por recargo en el monto del pago de alquiler del local del Mercado Municipal que debe cobrar la Municipalidad de Palmares será de un 5%, siempre y cuando el inquilino demuestre una disminución de mínima de un 25% de sus ingresos, el interesado deberá aportar cualquiera de los siguientes documentos o requisitos:
+a) Declaración jurada, cuyo formulario será facilitado por la administración tributaria municipal.
+b) Certificación de contador público autorizado para demostrar la disminución de sus ingresos.
+c) Orden sanitaria de cierre emitida por el Ministerio de Salud, producto de la emergencia.
+d) Declaraciones del impuesto al valor agregado de los últimos tres meses.
+El plazo por el cual puede la Administración Municipal reducir el porcentaje de cobro por concepto de recargo es de tres meses, el cual puede ser prorrogado hasta tres veces consecutivas, para un máximo de 12 meses en total. La prórroga del plazo debe ser a solicitud del inquilino de mercado, donde demuestre que la disminución del 25% en sus ingresos persiste, y que esa afectación en sus ingresos es producto de la declaratoria de Estado Nacional de Emergencia. Para que se pueda otorgar una prórroga al plazo de rebaja del porcentaje por concepto de recargo, el inquilino debe de estar al día en el pago del alquiler, intereses y recargo correspondiente”.
