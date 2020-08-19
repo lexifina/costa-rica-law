@@ -1,0 +1,1 @@
+Artículo 2º—Se autoriza a la Tesorería Nacional para que realice los ajustes pertinentes en los sistemas de pago, a efectos de aplicar lo dispuesto en este Decreto Ejecutivo, con ocasión de la solicitud gestionada por las personas jerarcas mencionadas en el artículo 1º del presente Decreto Ejecutivo.
