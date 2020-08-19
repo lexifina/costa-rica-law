@@ -16,3 +16,4 @@ Restricción vehicular temporal del 10 al 21 de agosto de 2020 para los cantones
 | 1 | 2020-08-10 | la propia norma |
 | 2 | 2020-08-10 | Decreto Ejecutivo 42526 (2020-08-10) |
 | 3 | 2020-08-11 | Decreto Ejecutivo 42528 (2020-08-11) |
+| 4 | 2020-08-19 | Decreto Ejecutivo 42541 (2020-08-19) |
