@@ -1,0 +1,1 @@
+Artículo 7°—Sobre el cuidado de los infantes. Los infantes pueden permanecer en los parques y zonas verdes siempre al cuidado de una persona adulta, quien será el responsable de la conducta del menor y del correcto uso que este haga de los juegos disponibles.

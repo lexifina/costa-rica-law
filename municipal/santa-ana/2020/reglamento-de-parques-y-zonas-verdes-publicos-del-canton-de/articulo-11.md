@@ -1,0 +1,3 @@
+Artículo 11.—De las actividades socioculturales. Para realizar actividades socioculturales se requiere autorización municipal.
+Previa solicitud a la Alcaldía; la cual se presentará por escrito en original o mediante el correo alcaldía@santaana.go.cr, definiendo con claridad el nombre, firma y cédula de la persona responsable, la fecha y cantidad de días de la actividad, su descripción y el tipo de estructuras que se instalarán.
+La Municipalidad procurará el uso equitativo del espacio público, evitando la monopolización por algún grupo específico, de manera que se realice la debida coordinación entre los distintos grupos a través de la persona encargada del Proceso de Cultura.

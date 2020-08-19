@@ -1,0 +1,1 @@
+Artículo 10.—Sobre el manejo de residuos. Los residuos de cualquier tipo deben ser depositados en los basureros y depósitos para tal fin establecidos. Y cuando el parque o zona verde, no contare con estos recipientes, la persona usuaria tiene la obligación de llevarse consigo los residuos generados, para darle un adecuado tratamiento.

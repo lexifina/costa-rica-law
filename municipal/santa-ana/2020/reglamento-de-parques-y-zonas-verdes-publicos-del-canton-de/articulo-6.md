@@ -1,0 +1,8 @@
+Artículo 6°—En relación con el mobiliario urbano, se establecen las siguientes limitaciones:
+1 Bancas. No se permitirá el uso de las bancas de forma contraria a su utilización o todo acto que perjudique o deteriore su conservación y, en particular arrancar, los que estén fijos o trasladarlos, realizar inscripciones, pinturas o ensuciarlas.
+2 Juegos infantiles. Su utilización se realizará por infantes con las indicadas en las señales que para tal efecto se establezcan.
+No permitiéndose su utilización por personas de edades superiores. Así como tampoco se permite la utilización de los juegos, de forma distinta a la que están destinados.
+3 Basureros. Se prohíbe cualquier manipulación sobre los basureros, como moverlos, prenderles fuego, volcarlos y arrancarlos, así como hacer inscripciones en los mismos, adherirle objetos y cualquier otro acto que deteriore su presentación.
+4 Señalizaciones, faroles, estatuas y elementos decorativos.
+En estos elementos de mobiliario urbano no se permitirá subirse, columpiarse o realizar cualquier acto que ensucie, perjudique y deteriore o menoscabe su uso y nadie podrá manipular la parte eléctrica sin la previa autorización escrita de la administración.
+5 Fuentes de agua. Las personas usuarias deben de abstenerse de realizar cualquier manipulación en las cañerías y elementos de las fuentes que no sean las propias de su funcionamiento normal. No se permite introducirse en sus aguas, practicar juegos o realizar cualquier tipo de manipulación, en las fuentes decorativas, surtidoras, bocas de riego o elementos análogos.

@@ -1,0 +1,1 @@
+Artículo 13.—Sobre la presencia de mascotas. Las mascotas deben estar provistas de correa y ser conducidas en todo momento por sus responsables. Estos últimos deben evitar que sus mascotas causen molestias a otras personas usuarias y demás animales presentes.

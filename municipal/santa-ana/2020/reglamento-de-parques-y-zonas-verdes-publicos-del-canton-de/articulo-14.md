@@ -1,0 +1,1 @@
+Artículo 14.—Sobre el manejo de deposiciones de mascotas. Los responsables deben recoger y disponer adecuadamente de las deposiciones de sus mascotas. Y además impedirán que estas evacúen en las áreas de canchas, equipos biomecánicos, juegos y zonas para infantes.
