@@ -1,0 +1,1 @@
+Artículo 21: Deber de proveer información. El personal está obligado a proveer, a la persona usuaria, información sobre los trámites y requisitos que se realicen en la respectiva unidad administrativa o dependencia. Para estos efectos, no podrá exigirle la presencia física a la persona usuaria, salvo en aquellos casos en que la ley expresamente lo requiera.

@@ -1,0 +1,1 @@
+Artículo 8: Las personas deben ser atendidas por orden de ingreso, en ninguna circunstancia se pueden establecer preferencias, a excepción cuando se trate de personas con necesidades especiales como adultos mayores, embarazadas, padres de familia con hijos pequeños en brazos o personas con alguna discapacidad.

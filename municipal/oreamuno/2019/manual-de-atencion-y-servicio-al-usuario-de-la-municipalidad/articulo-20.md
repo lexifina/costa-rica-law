@@ -1,0 +1,1 @@
+Artículo 20: Deber de no volver a solicitar información. La documentación que presente una persona usuaria no podrá ser requerida nuevamente para el mismo trámite. De igual manera, la institución no podrá solicitar a la persona usuaria, información que una o varias de sus mismas oficinas emitan o posean.

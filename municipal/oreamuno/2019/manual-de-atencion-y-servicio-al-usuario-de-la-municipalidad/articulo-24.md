@@ -1,0 +1,1 @@
+Artículo 24: Forma de Vestir. Vestir bien, no significa un estilo sofisticado, sino más bien, tener la intuición para elegir la ropa que mejor le quede según la ocasión. El personal que utilice uniforme oficial de la Municipalidad de Oreamuno, debe hacerlo bajo los lineamientos que se establezcan para el uso de estos.

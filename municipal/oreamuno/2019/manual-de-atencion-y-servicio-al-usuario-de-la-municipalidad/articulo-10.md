@@ -1,0 +1,1 @@
+Artículo 10: El personal Municipal está obligado a comunicar a su superior inmediato, aquellas medidas, reglas o requisitos que interfieran en la prestación del servicio, para que éste a su vez se lo haga saber a la Alcaldía Municipal y así buscar una solución en conjunto al problema existente.
