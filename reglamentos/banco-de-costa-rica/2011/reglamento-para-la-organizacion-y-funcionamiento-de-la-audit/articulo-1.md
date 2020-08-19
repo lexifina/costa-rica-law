@@ -1,4 +1,6 @@
+(Derogado)
 BANCO DE COSTA RICA
+(Esta norma fue derogada por el artículo 50 del Reglamento de Organización y Funcionamiento de la Auditoría Interna de BCR Corredora de Seguros S.A, aprobado mediante sesión N° 17 del 19 de agosto del 2020)
 La Junta Directiva de BCR Corredora de Seguros S. A., en sesión 11-11, artículo V, del 29 de agosto de 2011, aprobó el siguiente documento:
 Propósito
 Adoptar un instrumento que contenga los lineamientos y reglas de organización y funcionamiento de la auditoría Interna de BCR Corredora de Seguros, S.A., acorde con las normas que rigen la labor de Auditoría Interna en el sector público, conforme lo establece el artículo 23 de la Ley General de Control Interno; así como también lo contemplado en la normativa emitida sobre el tema por la Contraloría General de la República.
