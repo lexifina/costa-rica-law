@@ -1,0 +1,1 @@
+Artículo 2º—El medio tecnológico dispuesto por la Municipalidad para el desarrollo de las sesiones virtuales del Concejo Municipal debe garantizar la participación plena de todos los asistentes, la transmisión simultanea de audio, video y datos a todos quienes participen, debiendo respetar el principio de simultaneidad, colegialidad y deliberación del órgano colegiado.

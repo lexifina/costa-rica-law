@@ -1,0 +1,1 @@
+Artículo 4º—La Secretarla del Concejo quedara obligada a gestionar lo que corresponda para cumplir lo dispuesto y a dejar respaldo de audio, video y datos, así como para la elaboración del acta correspondiente conforme a lo dispuesto en el artículo 47 de la ley número 7794, Código Municipal.

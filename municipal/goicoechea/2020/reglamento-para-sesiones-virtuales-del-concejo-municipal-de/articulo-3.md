@@ -1,0 +1,1 @@
+Artículo 3º—Dicho medio tecnológico deberá garantizar la publicidad y participación ciudadana en las sesiones del Concejo, para que las personas interesadas puedan acceder a estas para conocer las deliberaciones y los acuerdos. Por tal motivo, cada sesión será transmitida en vivo a través de la página oficial de Facebook de la Municipalidad.

@@ -1,0 +1,1 @@
+Artículo 23. Las mociones de los regidores (as) y sindicatos (as) se presentarán por escrito, con letra clara y sin tachaduras o borrones, en físico firmada a mano y escaneado el documento, o bien, en un archive firmado digitalmente. Ambas formas serán enviadas al correo de la Secretaría desde el correo institucional de cada miembro del Concejo Municipal.

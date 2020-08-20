@@ -1,0 +1,1 @@
+Artículo 20.—El presidente (a) podrá hacer uso de otro mecanismo que considere pertinente ante una solicitud de uso de la palabra, en el caso de que a alguna persona se le dificulte solicitarla a través del chat de la plataforma a utilizar para la sesión.

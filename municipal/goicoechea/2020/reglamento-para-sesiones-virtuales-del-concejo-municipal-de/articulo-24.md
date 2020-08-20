@@ -1,0 +1,1 @@
+Artículo 24.—Si se origina una falla en el fluido eléctrico de la Municipalidad que impida la continuación de la sesión virtual se elaborara una lista de las personas conectadas y la dieta será cancelada. La sesión se dará por concluida en el punto que se estuviese discutiendo.

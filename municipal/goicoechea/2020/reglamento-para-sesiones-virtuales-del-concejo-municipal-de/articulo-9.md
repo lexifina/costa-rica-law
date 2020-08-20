@@ -1,0 +1,1 @@
+Artículo 9º—La Administración deberá garantizar las condiciones para asegurar el acceso pleno a la sesión a todas las personas integrantes del Concejo, propietarios y suplentes. De no ser posible esto, deberá optarse por el traslado físico del recinto, previsto en el segundo párrafo del artículo 37 de la ley número 7794, Código Municipal, del 30 de abril de 1998.

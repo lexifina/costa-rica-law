@@ -1,0 +1,1 @@
+Artículo 13.—Las cámaras de los miembros del Concejo Municipal deben permanecer encendidas a lo largo de la sesión virtual y sus rostros deben apreciarse con claridad para comprobar su presencia y su identidad.

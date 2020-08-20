@@ -1,0 +1,1 @@
+Artículo 21.—El presidente (a) dará la palabra conforme al orden que van ingresando las solicitudes. Se debe garantizar el derecho a intervenir, debatir y accionar en las sesiones en condiciones de igualdad para sus integrantes.

@@ -1,0 +1,1 @@
+Artículo 18.—La Presidencia iniciara la sesión virtual dentro de los primeros 15 minutos. Aquellos miembros del Concejo Municipal que no ingresen en ese lapso no devengaran dietas, ello de acuerdo al párrafo quinto del artículo 30 del Código Municipal.

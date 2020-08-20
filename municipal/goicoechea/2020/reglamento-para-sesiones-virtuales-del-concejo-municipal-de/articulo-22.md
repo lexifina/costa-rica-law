@@ -1,0 +1,1 @@
+Artículo 22. El presidente (a) del Concejo Municipal podrá tomar como valido un voto de un regidor (a) que levante la mano frente a la cámara o manifestándolo verbalmente posterior a la pregunta que le realice la Presidencia.

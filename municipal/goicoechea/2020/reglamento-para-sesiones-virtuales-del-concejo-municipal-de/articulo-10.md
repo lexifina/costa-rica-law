@@ -1,0 +1,1 @@
+Artículo 10.—Cuando un miembro del Concejo participe de forma valida por medios tecnológicos, se deberá considerar como presente para los efectos del ultimo párrafo del articulo 37 y 42 de la Ley 7794, Código Municipal, del 30 de abril de 1998.

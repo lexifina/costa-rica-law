@@ -1,0 +1,1 @@
+Artículo 7º—El pago de la dieta se justificará únicamente si el miembro del Concejo Municipal participa de la totalidad de la sesión virtual y se mantiene en ella, y si, además, se garantizaron los principios de colegialidad, simultaneidad, deliberación y votación.

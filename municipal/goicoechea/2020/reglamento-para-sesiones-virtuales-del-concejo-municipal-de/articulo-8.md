@@ -1,0 +1,1 @@
+Artículo 8º—Los participantes no podrán realizar otra labor privada o pública y no podrán estar de forma simultánea durante el desarrollo de la sesión virtual, en cualquier otro tipo actividad pública o privada.

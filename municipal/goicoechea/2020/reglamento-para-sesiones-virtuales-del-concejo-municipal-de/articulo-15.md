@@ -1,0 +1,1 @@
+Artículo 15.—La Secretaría podrá tomar en cuenta como parte de la hoja de asistencia una toma de la pantalla de la sesión en la que se vea a los (las) miembros (as) del Concejo Municipal, a través de la plataforma virtual que habilito la Administración para la realización de las sesiones.

@@ -1,0 +1,1 @@
+Artículo 16.—En caso de un fallo de la conexión de Internet de algún miembro (a) del Concejo Municipal, de la plataforma virtual, del fluido eléctrico o del dispositivo electrónico, entiéndase causa de fuerza mayor, el presidente (a) del Concejo Municipal podría valorar la ampliación del tiempo de incorporación de algún (a) miembro (a) del Concejo Municipal a la sesión.
