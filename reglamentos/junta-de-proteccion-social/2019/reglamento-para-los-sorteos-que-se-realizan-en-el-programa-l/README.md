@@ -14,3 +14,4 @@ Reglamento para los sorteos que se realizan en el programa la Rueda de la Fortun
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-11-15 | la propia norma |
+| 2 | 2020-08-20 | Reglamento 0 (2020-08-20) |
