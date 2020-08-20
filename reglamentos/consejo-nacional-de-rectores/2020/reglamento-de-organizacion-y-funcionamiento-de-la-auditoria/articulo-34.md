@@ -1,0 +1,2 @@
+Artículo 34°- Servicios de auditoría. La Auditoría Interna proporcionará exámenes objetivos de evidencia, en relación con la administración del riesgo, del control y procesos de dirección, así como sobre asuntos específicos de la entidad, con el fin de proveer evaluaciones independientes orientadas a impulsar mejoras en la gestión, mejorar la responsabilidad pública y facilitar la toma de decisiones.
+Atendiendo a su naturaleza, estos servicios se clasifican, de preferencia, como auditorías de carácter financiero, operativo o especial.

@@ -1,0 +1,4 @@
+Artículo 30°- Prohibiciones legales. El Auditor Interno, y los demás funcionarios de la Auditoría Interna tendrán, además de las prohibiciones establecidas en el artículo 34 de la Ley General de Control Interno, las siguientes:
+a. Requerir, recibir u otorgar, directa o indirectamente, cualquier objeto de valor pecuniario u otros beneficios como dádivas, favores, premios, promesas o ventajas a cambio de la realización u omisión de cualquier acto en el ejercicio de sus funciones bajo cualquier modalidad o denominación.
+b. Utilizar su cargo oficial con propósitos privados.
+c. Sostener relaciones de negocios o de cualquier otra naturaleza que puedan influir, comprometer o amenazar la capacidad para actuar, o que puedan afectar su independencia de criterio y objetividad como funcionario público.

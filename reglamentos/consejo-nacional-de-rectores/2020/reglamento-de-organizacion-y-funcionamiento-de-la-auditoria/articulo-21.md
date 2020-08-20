@@ -1,0 +1,1 @@
+Artículo 21°. Recursos de la Auditoría Interna. Es obligación del jerarca intervenir ante las autoridades internas y externas con el propósito de dotar oportunamente a la Auditoría Interna, de los recursos requeridos.

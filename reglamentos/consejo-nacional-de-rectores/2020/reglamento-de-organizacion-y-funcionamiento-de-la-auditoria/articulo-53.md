@@ -1,0 +1,2 @@
+Capítulo VI – Análisis y comunicación sobre denuncias y presuntos hechos irregulares
+Artículo 53°- Investigaciones de presuntos hechos irregulares. Las investigaciones sobre presuntos hechos irregulares a cargo de la Auditoría Interna podrán realizarse de oficio, producto de una auditoría, en atención a la denuncia de un tercero, o como respuesta a una solicitud del jerarca o de titulares subordinados, entre otros.

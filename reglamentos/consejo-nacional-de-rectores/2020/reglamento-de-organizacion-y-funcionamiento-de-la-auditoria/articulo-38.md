@@ -1,0 +1,1 @@
+Artículo 38°- Procedimientos de auditoría. La Auditoría Interna establecerá y desarrollará los procedimientos que, a su juicio, sean necesarios para contar con evidencia suficiente y competente para respaldar los resultados de las auditorías y servicios preventivos efectuados.

@@ -1,0 +1,1 @@
+Artículo 63°- Reglas de confidencialidad. Durante la investigación de hechos presuntamente irregulares, la Auditorías Interna guardará confidencialidad respecto de los expedientes de investigación en trámite y de la identidad de quienes presenten denuncias ante sus oficinas, en las condiciones y términos previstos en la Ley.

@@ -1,0 +1,1 @@
+Artículo 40°- Confidencialidad de la información. La información que obtenga el personal de la Auditoría Interna en el ejercicio de sus funciones será confidencial, conforme con las condiciones y términos previstos en la Ley y la normativa aplicable.

@@ -1,0 +1,1 @@
+Artículo 47°- Acceso a los informes de auditoría. Los informes de auditoría, una vez comunicados oficialmente a la administración activa, son de libre acceso por parte de cualquier persona física o jurídica, con las excepciones que se indican en el artículo 6 de la Ley General de Control Interno.

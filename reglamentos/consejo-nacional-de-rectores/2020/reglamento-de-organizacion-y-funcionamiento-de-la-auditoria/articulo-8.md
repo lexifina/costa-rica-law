@@ -1,0 +1,2 @@
+Capítulo II – Organización y dirección de la Auditoría Interna
+Artículo 8°- Dependencia jerárquica. La Auditoría Interna depende orgánicamente del Consejo Nacional de Acreditación, por lo que su ubicación dentro de la estructura institucional corresponde a la de un órgano asesor del más alto nivel; es única respecto de su actividad de Auditoría Interna y goza de independencia funcional y de criterio para decidir sobre su gestión.

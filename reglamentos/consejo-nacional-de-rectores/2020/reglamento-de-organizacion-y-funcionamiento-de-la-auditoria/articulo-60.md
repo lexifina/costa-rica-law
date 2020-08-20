@@ -1,0 +1,1 @@
+Artículo 60°- Medidas de carácter preventivo. La Auditoría Interna, para el adecuado cumplimiento de sus funciones, podrá recomendar a la autoridad institucional con competencia suficiente, tomar, medidas de carácter preventivo, de manera extraordinaria y temporal, conforme a la Ley.

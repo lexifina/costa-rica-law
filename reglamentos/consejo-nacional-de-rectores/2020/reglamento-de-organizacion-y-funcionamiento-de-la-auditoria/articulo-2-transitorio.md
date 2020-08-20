@@ -1,0 +1,2 @@
+TRANSITORIO II- La Auditoría Interna deberá introducir el plan de trabajo del año 2021 en el Sistema de Planes de Trabajo de Auditorías Internas a más tardar el 15 de noviembre de 2020. En cuanto al plan de trabajo del período 2020, el mismo podrá ser introducido de forma extemporánea en dicho sistema, en cuanto la Auditoría Interna realice las actividades necesarias para su definición.
+San José, 29 de julio de 2020

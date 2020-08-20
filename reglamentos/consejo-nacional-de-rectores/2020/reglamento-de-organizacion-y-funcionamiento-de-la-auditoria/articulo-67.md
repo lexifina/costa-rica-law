@@ -1,0 +1,2 @@
+Artículo 67°- Programa de capacitación. La Auditoría Interna mantendrá un programa de capacitación técnica, dirigido a su personal, con el fin de que estos posean, mantengan y actualicen las habilidades y conocimientos requeridos para cumplir con sus obligaciones.
+Esto, de forma independiente a los esfuerzos de índole personal que realicen los funcionarios para capacitarse en sus respectivas profesiones

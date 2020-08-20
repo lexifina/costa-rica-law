@@ -1,0 +1,4 @@
+Artículo 35°- Servicios preventivos. Los servicios preventivos contemplan las asesorías, advertencias y autorización de libros.
+a. Servicios de asesoría: Es un servicio dirigido al jerarca y a otras instancias institucionales, que consiste en el suministro de criterios, observaciones y demás elementos de juicio para la toma de decisiones con respecto a los temas que son competencia de la Auditoría Interna.
+b. Servicios de advertencia: Es un servicio dirigido a los órganos sujetos a la competencia institucional de la Auditoría Interna, y consiste en señalar los posibles riesgos y consecuencias de determinadas conductas o decisiones, cuando sean de conocimiento de la Auditoría Interna.
+c. Servicios de autorización de libros: Es una obligación asignada de manera específica a la Auditoría Interna, que consiste en el acto de otorgar la razón de apertura fundamentalmente de los libros de contabilidad y de actas que deban llevarse en la entidad.

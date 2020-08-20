@@ -1,0 +1,1 @@
+Artículo 28°- Potestades. Para el cumplimiento de sus funciones, el Auditor Interno y los demás funcionarios de la Auditoría Interna tendrán las potestades que determina el artículo 33 de la Ley General de Control Interno.

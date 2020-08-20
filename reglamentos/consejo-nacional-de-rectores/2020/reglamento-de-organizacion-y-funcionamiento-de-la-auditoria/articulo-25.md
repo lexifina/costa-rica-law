@@ -1,0 +1,1 @@
+Artículo 25°- Convenios y contratos. Los convenios, contratos e instrumentos similares que el SINAES firme con personas físicas y jurídicas, donde se comprometan recursos públicos, pueden ser objeto de fiscalización de la Auditoría Interna en el marco de las competencias que le son conferidas en el artículo 22 de la Ley General de Control Interno.

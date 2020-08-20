@@ -1,0 +1,1 @@
+Artículo 37°- Estudio y evaluación del control interno. La Auditoría Interna al iniciar una auditoría o un servicio preventivo, estudiará y evaluará el sistema de control interno establecido en la entidad, como insumo y/o criterio de medición.

@@ -1,0 +1,1 @@
+Artículo 39°- Papeles de trabajo. Las auditorías o servicios preventivos se soportarán con cédulas y documentos de trabajo en donde se registrarán las pruebas realizadas, la información o datos importantes obtenidos de acuerdo con los objetivos del trabajo.

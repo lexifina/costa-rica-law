@@ -1,0 +1,1 @@
+Artículo 36°. Normativa técnica interna. El Auditor Interno deberá formular y mantener actualizado un Manual de Auditoría, con el propósito de brindar un marco de referencia a los procedimientos de auditoría aplicables en el SINAES, con base en la normativa aplicable.

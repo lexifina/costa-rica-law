@@ -1,0 +1,1 @@
+Artículo 7°- Competencia de fiscalización. La Auditoría Interna ejercerá su competencia en todas las áreas del SINAES, fiscalizando el uso de los fondos públicos destinados al cumplimiento de las actividades de la entidad.

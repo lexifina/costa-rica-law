@@ -1,0 +1,2 @@
+Capítulo III – Ámbito de acción y funcionamiento
+Artículo 24°- Ámbito de acción. La Auditoría Interna ejerce su acción sobre las actividades y funciones que realizan todas las áreas del SINAES; sin embargo, dada su naturaleza, no realiza funciones o actuaciones de control previo o rutinario que son responsabilidad de la Administración, excepto las necesarias para cumplir con sus propias funciones.

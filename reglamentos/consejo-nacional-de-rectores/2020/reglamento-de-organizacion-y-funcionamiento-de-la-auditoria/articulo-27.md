@@ -1,0 +1,1 @@
+Artículo 27°- Deberes legales. El Auditor Interno, y los demás funcionarios de la Auditoría Interna, tendrán el deber de cumplir tanto con las obligaciones establecidas en el artículo 32 de la Ley General de Control Interno, como con aquellos deberes que se deriven de las normativas técnicas y éticas vigentes que rigen sus respectivas profesiones.

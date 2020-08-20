@@ -1,0 +1,1 @@
+Artículo 66°- Cumplimiento de normativa de calidad. El Auditor Interno y el personal de la Auditoría Interna deben cumplir con la normativa de calidad emitida por la Contraloría General de la República y, en general, la normativa que sea aplicable en el desarrollo de sus funciones.
