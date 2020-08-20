@@ -1,2 +1,0 @@
-Artículo 24.—Control del mantenimiento de los bienes una vez vencidas las garantías. Una vez vencida la garantía el Departamento de Proveeduría llevará el control del mantenimiento preventivo y correctivo de los bienes, con los registros y controles correspondientes; además elaborará un contrato en coordinación con los Departamentos Financiero y de Asesoría Legal, según lo establecido en la ley de Contratación Administrativa vigente.
-En caso de mercaderías nacionales, será el Departamento de Proveeduría quien realice el reclamo, a fin de utilizar la garantía del bien.

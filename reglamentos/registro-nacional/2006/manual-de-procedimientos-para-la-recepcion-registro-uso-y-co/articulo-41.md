@@ -1,1 +1,0 @@
-Artículo 41.—Responsabilidad de la administración del Registro Nacional. La Administración del Registro Nacional será responsable de dotar a la Unidad de Administración de Bienes de los recursos necesarios para que se pueda cumplir con el presente Manual.

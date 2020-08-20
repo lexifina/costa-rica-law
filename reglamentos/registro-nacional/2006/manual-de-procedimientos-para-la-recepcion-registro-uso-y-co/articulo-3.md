@@ -1,1 +1,0 @@
-Artículo 3º—Adquisición de los bienes duraderos. La Institución adquirirá aquellos bienes duraderos que se requieran para satisfacer las necesidades de los servicios de operación, así como los contemplados en los programas de construcción, remodelación, ampliación o dentro del programa de compras, con base en la ley de Contratación Administrativa.
