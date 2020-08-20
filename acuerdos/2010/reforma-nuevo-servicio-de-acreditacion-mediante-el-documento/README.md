@@ -14,3 +14,4 @@ Reforma Nuevo servicio de acreditación mediante el documento código ECA-MC-P12
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-11-01 | la propia norma |
+| 2 | 2020-08-20 | Acuerdo 10 (2020-08-20) |
