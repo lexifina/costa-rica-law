@@ -1,1 +1,0 @@
-Artículo 4º—La Comisión podrá invitar a sus sesiones a representantes de instituciones públicas o privadas, cuyas actividades están relacionadas con el mejoramiento y fomento de la apicultura, cuando lo considere conveniente, los cuales participarán con voz pero sin voto.
