@@ -15,3 +15,4 @@ Nuevo servicio de acreditación mediante el documento código ECA-MC-P12 “Alca
 | --- | --- | --- |
 | 1 | 2010-10-06 | la propia norma |
 | 2 | 2010-10-12 | Acuerdo 0 (2010-10-12) |
+| 3 | 2020-08-20 | Acuerdo 10 (2020-08-20) |
