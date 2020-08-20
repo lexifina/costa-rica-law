@@ -1,1 +1,0 @@
-Artículo 16.—Del nombramiento. La plaza vacante debe ser llenada mediante la escogencia de uno de los funcionarios que integren la terna o nómina presentada por Departamento de Recursos Humanos, entendiéndose que no se podrá seleccionar a un candidato que no haya sido incluido en ésta.

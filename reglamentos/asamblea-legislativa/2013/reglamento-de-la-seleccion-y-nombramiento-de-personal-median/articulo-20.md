@@ -1,1 +1,0 @@
-Artículo 20—Incidente de nulidad. Cabrá incidente de nulidad ante el Directorio Legislativo contra el acto de nombramiento cuando hubiera un vicio en la conformación de las ternas o nóminas, el cual se podrá interponer dentro de los siguientes cinco días hábiles a partir de la firmeza del acto donde se apruebe el nombramiento.
