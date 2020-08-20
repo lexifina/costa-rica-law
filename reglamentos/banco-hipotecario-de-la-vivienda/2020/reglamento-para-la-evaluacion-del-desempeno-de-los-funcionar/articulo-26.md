@@ -1,0 +1,1 @@
+Artículo 26: Normativa Supletoria: En caso de ausencia de disposición en esta normativa, supletoriamente se aplicará el Decreto Ejecutivo N. 42087-MP-PLAN del 4 de diciembre de 2019 “Lineamientos Generales de Desempeño de las personas Servidoras Públicas”.

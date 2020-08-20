@@ -1,0 +1,1 @@
+Artículo 18: Recurso de Revocatoria: El jefe inmediato contará con cinco días hábiles, posteriores al recibo del reclamo del servidor, para resolver respecto al resultado definitivo de la evaluación, para lo cual podrá solicitar la colaboración de la jefatura superior y un representante del Área de Recursos Humanos.

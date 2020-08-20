@@ -1,0 +1,3 @@
+Artículo 19: Recurso de Apelación: Resuelto el recurso de revocatoria, en caso de persistir la inconformidad del servidor y se presente el recurso de apelación, se le emplazará por un plazo de tres días hábiles para sustentar su apelación ante la Gerencia General, quien agotará la vía administrativa en lo que respecta al resultado de la evaluación del desempeño en discusión.
+En un plazo máximo de cinco días hábiles posteriores al recibo del sustento de la apelación, la Gerencia General deberá emitir la resolución definitiva sobre la evaluación del desempeño cuestionada.
+En el caso de los funcionarios que reportan directamente ante la Gerencia General o ante la Junta Directiva, el recurso de revocatoria será el único recurso disponible.

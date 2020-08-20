@@ -1,0 +1,1 @@
+Artículo 21: En caso de ausencia al momento de aplicar evaluación: El funcionario, que haya laborado durante un período superior a los seis meses durante el ciclo de evaluación, pero, por motivos de vacaciones o los indicados en el numeral anterior, a la fecha de evaluación se encuentra ausente de su puesto: será evaluado cuando regrese al trabajo.

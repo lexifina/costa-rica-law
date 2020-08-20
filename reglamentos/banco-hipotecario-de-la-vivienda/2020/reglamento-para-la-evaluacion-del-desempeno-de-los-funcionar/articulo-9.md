@@ -1,0 +1,3 @@
+Artículo 9: El seguimiento de la evaluación del desempeño. Valoración que realiza cada jefatura en procura de evidenciar el avance del desempeño de los funcionarios, respecto del cumplimiento de las metas y objetivos que le fueron asignadas, con la finalidad de reforzar los comportamientos positivos e identificar aspectos de mejora y contingencias tendientes a favorecer, el logro de los objetivos y metas y fortalecer el desarrollo de sus competencias.
+El seguimiento se realizará en el mes de junio de cada año, por parte de la jefatura inmediata.
+En caso de presentarse situaciones justificadas que comprometan el cumplimiento de los objetivos y metas establecidas, se realizarán los ajustes correspondientes.

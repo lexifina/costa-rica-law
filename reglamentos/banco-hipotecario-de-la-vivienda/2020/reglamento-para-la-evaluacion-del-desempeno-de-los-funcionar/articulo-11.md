@@ -1,0 +1,11 @@
+Artículo 11: La realimentación al funcionario. La realimentación se realizará a cada funcionario en las etapas de seguimiento y evaluación, de manera personal.
+En aquellos casos donde la calificación es igual o superior a "Bueno" se podrá optar por dar recomendaciones de mejora, que se enlazarán con el siguiente ciclo de evaluación.
+En aquellos otros casos, cuando el funcionario obtenga una calificación de "Insuficiente", se procederá a elaborar un Plan de Seguimiento y Mejora de Desempeño, que contenga un conjunto de medidas para mejorar la calificación del periodo vigente o del periodo siguiente, ya sea que se trate de la etapa de seguimiento o de la etapa de evaluación, respectivamente.
+Este Plan será obligatorio y será un compromiso acordado entre la jefatura y el funcionario. El Área de Recursos Humanos deberá dar seguimiento y evaluar los resultados de estos planes. Para diseñar el Plan de Seguimiento y Mejora de Desempeño, se deberán realizar, al menos, los siguientes pasos:
+a) Cuando el funcionario obtenga una calificación de "Insuficiente" el Área de Recursos Humanos deberá enviarle el comunicado oficial, tanto a la jefatura inmediata como al funcionario.
+b) A la jefatura le corresponde definir las áreas de oportunidad de mejora del funcionario y asociar una actividad que propicie la mejora en el desempeño. Estas actividades podrán ser:
+1. Plan de Capacitación: Se realiza luego de determinar, cuáles son las debilidades o los aspectos que necesita reforzar el funcionario.
+2. Plan de mentoría: Se establece luego de detectarse un desempeño susceptible de mejora, puede ser ejecutado por la jefatura inmediata o un compañero o compañera guía que haya demostrado un desempeño superior en los criterios a fortalecer, previo consentimiento de quien recibirá la mentoría, con el fin de disminuir la brecha de desempeño.
+3. Otros planes que la Administración determine para cumplir este propósito.
+c) Durante la aplicación del Plan de Seguimiento y Mejora de Desempeño, el funcionario y la jefatura deberán hacer una sesión de seguimiento mínimo cada tres meses.
+d) Al concluir el Plan de Seguimiento y Mejora de Desempeño, la jefatura comunicará el resultado al Área de Recursos Humanos.

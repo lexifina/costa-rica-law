@@ -1,0 +1,5 @@
+Artículo 3: Principios: Los principios de la evaluación del desempeño son los siguientes:
+a) La participación de los funcionarios en la apreciación de su desempeño en el trabajo, se justifica ampliamente por la importancia que las personas tienen para el cumplimiento de la visión, la misión y los objetivos de la Institución.
+b) La retroinformación efectiva del desempeño es una herramienta de estímulo y fuente eficaz para el desarrollo del individuo y la organización, es la base para fundamentar los planes de mejora en este ámbito con el objetivo de reducir las brechas del rendimiento demostrado.
+c) El mecanismo de evaluación debe ser flexible y adaptable a los diferentes niveles organizacionales y a las circunstancias que caracterizan la participación individual y, al mismo tiempo, lo suficientemente simple para ser comprendido y aplicado por todos los usuarios.
+d) Se fundamenta en el convencimiento de que todo funcionario tiene interés y necesidad de conocer la forma en que su jefe inmediato evalúa su desempeño y su contribución a los objetivos de la organización, además de observar su nivel de compromiso con los mismos.

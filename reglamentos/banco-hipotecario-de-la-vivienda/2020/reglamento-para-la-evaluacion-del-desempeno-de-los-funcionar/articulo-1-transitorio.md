@@ -1,0 +1,1 @@
+Transitorio: Tomando en consideración que durante el 2020 se estará definiendo el plan de metas y resultados para todos los puestos para ese año, lo que implica que el resultado de dicho plan será evaluado hasta el mes de marzo de 2021, la evaluación del desempeño del año 2020, con corte al mes de junio de 2020, se realizará aplicando el modelo anterior
