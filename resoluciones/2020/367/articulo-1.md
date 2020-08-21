@@ -1,0 +1,20 @@
+SERVICIO NACIONAL DE ADUANAS
+RESOLUCIÓN DE ALCANCE GENERAL
+Resolución RES-DGA-367-2020.—Dirección General de Aduanas.—San José, a las 15 horas del día 23 de julio de dos mil veinte.
+Procede esta Dirección de oficio a convalidar y adicionar la resolución Nº RES-DGA-DGT-028-2018 de las quince horas, del 03 de setiembre 2018, publicada en el Diario Oficial La Gaceta Nº 231 del 12 de diciembre de 2018, relacionada con la modificación de la descripción de las Notas Técnicas 0035, 0053, 0059, 0265 y 0267, en atención a solicitud interpuesta por el Servicio Fitosanitario del Estado, según oficios Nos. DSFE-140-2018 de fecha 14 de marzo 2018, DSFE-363-2018 del 07 de mayo de 2018 y DSFE-557-2018 del 17 de julio de 2018.
+Resultando:
+1º—Que mediante la resolución RES-DGA-DGT-028-2018 de las quince horas, del día 03 de setiembre de 2018, publicada en el Diario Oficial La Gaceta Nº 231 del 12 de diciembre de 2018, tanto en el considerando, como en la parte resolutiva, se modificó la descripción de la nota técnica Nº 053, de la siguiente forma:
+“NT.0053:
+Control de cumplimiento de Requisitos impuestos por el Servicio Fitosanitario del Estado: Las plantas, productos vegetales y otros artículos reglamentarios descritos en este arancel, requieren por Ley N° 7664-MAG de este control, el cual se realiza únicamente en los puntos de ingreso oficial al territorio Nacional, para autorizar su importación, el tránsito nacional e internacional…”
+2º—Que revisado lo solicitado por el Servicio Fitosanitario del Estado, en oficio Nº DSFE-140-2018 de fecha 14 de marzo 2018, se determinó que existe un error involuntario en la descripción de la Nota Técnica 0053, publicada en la resolución de cita, debiéndose omitir las palabras “las plantas”.
+3º—Que los ajustes realizados en el Sistema Tica, sí son coincidentes conforme lo solicitado por el Servicio Fitosanitario del Estado, respecto a la Nota Técnica 0053.
+Considerando:
+Que las funciones de supervisión, control y aplicación de la legislación aduanera son potestades del Servicio Nacional de Aduanas, según lo establecen los artículos 8, 9, 11, 22 y 24 de la Ley General de Aduanas. Que dichas potestades en concordancia con el artículo 157 de la Ley General de la Administración Pública, facultan a la Administración a rectificar errores materiales o de hecho y aritméticos en cualquier momento. Que el error detectado en la resolución que se corrige, resulta notorio y amerita ser corregido, en este sentido la Procuraduría General de la República ha señalado:
+“… el error de hecho, material o aritmético es aquel que puede ser detectado con facilidad, tanto por la administración como por el administrado, y en tales términos ambas partes están conscientes jurídicamente de que esa irregularidad debe enmendarse sin tener que recurrirse a ninguna solución compleja(…), es una situación que no admite opinión ni criterio alguno, y ni siquiera permite una valoración del ordenamiento jurídico, ya que, la circunstancia dada al dictarse un determinado acto constituye un verdadero yerro que debe corregirse…” (Criterio C-135-2000 del 15 de junio del dos mil).
+En aras de subsanar, los errores en que se incurrió en la resolución RES-DGA-DGT-028-2018 del día 03 de setiembre de 2018, se procede con la corrección de la misma. Por tanto,
+Con base en los fundamentos fácticos y legales expuestos esta Dirección General resuelve:
+Primero: Corregir la resolución RES-DGADGT-028-2018 del día 03 de setiembre de 2018, para que se lea correctamente, tanto en el considerando, como en la parte resolutiva, de la siguiente forma:
+“NT.0053:
+Control de cumplimiento de Requisitos impuestos por el Servicio Fitosanitario del Estado: Los productos vegetales y otros artículos reglamentarios descritos en este arancel, requieren por Ley N° 7664-MAG de este control, el cual se realiza únicamente en los puntos de ingreso oficial al territorio Nacional, para autorizar su importación, el tránsito nacional e internacional…”
+Segundo: En todo lo demás se mantiene incólume la resolución RES-DGA-DGT-028-2018 del día 03 de setiembre de 2018.
+Comuníquese y publíquese en el Diario Oficial La Gaceta.
