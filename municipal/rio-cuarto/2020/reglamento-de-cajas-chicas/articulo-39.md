@@ -1,0 +1,1 @@
+Artículo 39.—Ningún funcionario de la Municipalidad, con excepción de la persona titular de la Tesorería Municipal, quien tendrá en custodia los fondos de Caja Chica, podrá mantener en su poder fondos de Caja Chica por más de un día hábil.

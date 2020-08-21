@@ -1,0 +1,1 @@
+Artículo 8º—La Caja Chica recibirá devoluciones de dinero en efectivo, cuando son de este tipo. Cuando los vales se entreguen al funcionario solicitante mediante transferencia electrónica, depósito bancario este deberá de ser devuelto mediante la misma forma en que se giró el dinero.
