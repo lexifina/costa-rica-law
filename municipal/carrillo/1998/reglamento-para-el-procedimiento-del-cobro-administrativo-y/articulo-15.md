@@ -1,1 +1,0 @@
-Artículo 15.—Los Abogados nombrados no podrán aceptar casos de litigio en contra de la Institución, el no cumplimiento de esta disposición hará su nombramiento quede revocado automáticamente como Abogado de la Municipalidad.
