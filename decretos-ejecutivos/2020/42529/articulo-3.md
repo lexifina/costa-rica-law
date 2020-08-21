@@ -1,0 +1,1 @@
+Artículo 3º-. Las restantes disposiciones del Decreto Ejecutivo número 42411- H del 22 de junio de 2020 reformado por el Decreto Ejecutivo número 42481-H del 16 de julio de 2020, se mantienen incólume.
