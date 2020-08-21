@@ -1,0 +1,1 @@
+Artículo 21.—En las sesiones ordinarias se tratarán únicamente los asuntos que están incluidos en el orden del día; para tratar asuntos no incluidos, y que sean declarados de urgencia, será necesaria la votación de dos terceras partes de los miembros presentes.

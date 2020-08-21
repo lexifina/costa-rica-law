@@ -1,0 +1,4 @@
+TÍTULO II
+Del nombramiento, investidura y sustitución
+Artículo 8º—Los postulados para integrar la Junta Vial; una vez acreditados, designados o electos, según sea el caso, serán nombrados por el Concejo Municipal, mediante acuerdo firme, por un período de cuatro años y podrán ser reelectos, siempre y cuando ostenten la titularidad del puesto al cual representan. Será causal de destitución de los miembros, el incumplimiento de sus deberes o la ausencia injustificada a tres sesiones consecutivas o seis alternas injustificadas en el plazo de un año calendario.
+No podrán ser miembros de la Junta Vial, las personas condenadas por administración fraudulenta o las personas privadas de libertad. Si alguno de estos supuestos se llegara a dar con algún miembro durante el ejercicio de sus funciones, deberá ser sustituido de inmediato.
