@@ -14,3 +14,4 @@ Los servicios de bodegaje o almacenaje en patios por parte de aduanas del país 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-08-21 | la propia norma |
+| 2 | 2020-08-21 | Resolución 393 (2020-08-12) |
