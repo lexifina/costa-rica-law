@@ -15,3 +15,4 @@ Reglamento para la adquisición y recepción de bienes, servicios y obras de la 
 | --- | --- | --- |
 | 1 | 2014-11-28 | la propia norma |
 | 2 | 2019-02-21 | Reglamento municipal 145 (2019-02-21) |
+| 3 | 2020-08-23 | Reglamento municipal 17 (2020-08-23) |
