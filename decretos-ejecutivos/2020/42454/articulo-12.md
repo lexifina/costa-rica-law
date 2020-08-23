@@ -1,0 +1,1 @@
+Artículo 12.—Sometimiento al ordenamiento jurídico. En su actividad, el Consejo Portuario Nacional deberá someterse a las normas constitucionales, legales y reglamentarias que le resulten aplicables para el óptimo y debido ejercicio de sus funciones, así como para el más estricto control de las sumas presupuestarias que se le asignen.

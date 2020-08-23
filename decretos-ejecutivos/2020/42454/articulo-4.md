@@ -1,0 +1,9 @@
+Artículo 4º—De las Sesiones del Consejo.
+a) El Consejo Portuario Nacional se reunirá ordinariamente una vez cada dos semanas y extraordinariamente cuando el Presidente lo convoque.
+b) Las sesiones del órgano serán siempre privadas, pero el órgano podrá disponer, acordándolo así por unanimidad de sus miembros presentes, que tengan acceso a ella el público en general o bien ciertas personas, concediéndoles o no el derecho de participar en las deliberaciones con voz, pero sin voto.
+c) Los acuerdos se tomarán por mayoría de los votos presentes.
+En caso de empate, el Presidente del Consejo tendrá voto de calidad. Las abstenciones o los votos en blanco se computarán para efectos de quórum y para determinar el número de votantes, pero no podrán atribuirse ni a la mayoría ni a la minoría.
+d) No podrá ser objeto de acuerdo, asunto alguno que no figure en la respectiva agenda del día, salvo que estén presentes al menos dos tercios del total de los miembros del Consejo y que por la urgencia del asunto exista acuerdo para que se tome en cuenta.
+e) De cada sesión se levantará un acta, que contendrá, entre otros aspectos, la indicación de los miembros asistentes a las Sesiones, las circunstancias del lugar y tiempo en que se ha celebrado, los puntos principales de la deliberación, la forma y los resultados de la votación, así como el contenido de los acuerdos que se adopten, como de los votos salvados que deberán hacerse en forma razonada.
+f) Carecerán de firmeza los acuerdos tomados, mientras no se apruebe el acta en la sesión inmediata siguiente, sea ordinaria o extraordinaria, salvo cuando medien situaciones apremiantes, urgentes u otras igualmente calificables en razón del interés público, caso en que el Consejo podrá acordar darles inmediata firmeza, en tanto hayan recibido una aprobación unánime por parte de los miembros presentes.
+g) Los miembros del Consejo podrán hacer constar en el acta su voto salvado, siempre y cuando sea de forma razonada.

@@ -1,0 +1,1 @@
+Artículo 11.—Recursos Financieros. Para su funcionamiento, el Consejo Portuario Nacional será parte del Programa Presupuestario 326, Administración Superior, área de actividad 0101, Despacho Ministro.
