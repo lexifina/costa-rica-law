@@ -1,3 +1,4 @@
-Artículo 33- Área Financiero Contable: Será la responsable de llevar a cabo la gestión de transferencias y seguimiento de éstas a las mujeres ganadoras del Concurso. Así como remitir a la Unidad Ejecutora la información necesaria referente a los depósitos realizados en la cuenta bancaria del INAMU; en caso de devolución de montos remanentes por parte de las ganadoras o por concepto de arreglos de pago en el caso de incumplimientos.
-(Corrida la numeración en sesión del 28 de noviembre del 2018, que lo traspasó del antiguo artículo 32 al 33)
-(Así reformado en sesión del 28 de noviembre del 2018)
+CAPÍTULO VI
+MECANISMOS PARA LA APERTURA, CIERRE DEL CONCURSO
+Y LA SELECCIÓN DE LAS PROPUESTAS
+Artículo 33.- Apertura y cierre del concurso: La Unidad Ejecutora en conjunto con el Equipo Desarrollador, realizará un análisis y una revisión previa a la definición de las bases de participación, sobre el histórico de concursos anteriores, estudios y estadísticas del contexto económico y social de cada región, de los planes de desarrollo regional, de los informes de seguimiento de concursos anteriores, y de todo lo que se considere pertinente, para acordar en conjunto las propuestas sobre líneas de financiamientos y requisitos, además de algunas recomendaciones de las Unidades Regionales y grupos ad hoc de instituciones del estado. Posteriormente estas serán aprobadas por la Junta Directiva del INAMU y se abre e inicia la promoción del concurso y el acompañamiento previo de las postulantes por parte del INAMU hasta el cierre.

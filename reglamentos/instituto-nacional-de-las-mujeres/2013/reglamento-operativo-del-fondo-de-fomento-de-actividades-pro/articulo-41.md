@@ -1,3 +1,4 @@
-Artículo 41- Sustituciones: En el caso de que una persona del Órgano Seleccionador de proyectos no pueda sesionar, podrá nombrarse por parte del INAMU una persona sustituta, con las mismas características de idoneidad del Titular.
-(Corrida la numeración en sesión del 28 de noviembre del 2018, que lo traspasó del antiguo artículo 40 al 41)
-(Así reformado en sesión del 28 de noviembre del 2018)
+CAPÍTULO VIII
+DE LA APROBACIÓN POR JUNTA DIRECTIVA DEL INAMU, DESEMBOLSO DE LOS FONDOS
+Y SEGUIMIENTO DE LOS PROYECTOS GANADORES
+Artículo 41.- Aval de la Junta Directiva INAMU: La Junta Directiva aprobará si lo considera pertinente, la recomendación de proyectos a financiar emitida por los órganos seleccionadores, acordando el giro de los recursos para cada proyecto seleccionado.

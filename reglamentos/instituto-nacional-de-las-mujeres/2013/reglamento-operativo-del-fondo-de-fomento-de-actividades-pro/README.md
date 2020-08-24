@@ -17,3 +17,4 @@ Reglamento operativo del fondo de fomento de actividades productivas y de organi
 | 2 | 2016-06-23 | Reglamento 1 (2016-06-23) |
 | 3 | 2018-04-23 | Reglamento 0 (2018-04-23) |
 | 4 | 2018-11-28 | Reglamento 0 (2018-11-28) |
+| 5 | 2020-08-24 | Reglamento 5 (2020-08-24) |
