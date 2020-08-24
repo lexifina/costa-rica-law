@@ -1,0 +1,4 @@
+Artículo 3º—Responsabilidad. Las gerencias generales, subgerencias y gerencias deben velar porque el personal a su cargo cumpla con lo establecido en este reglamento y el ordenamiento jurídico vigente.
+Las unidades administrativas o personas trabajadoras del Conglomerado, que reciban, generen o utilicen información y/o documentación confidencial y privilegiada, deben ser responsables de su gestión y custodia.
+Las personas trabajadoras del Conglomerado son responsables del buen uso de las vías de comunicación que utilicen (oral, escrita, impresa o digital), con la finalidad de restringir el acceso a la documentación y/o información confidencial y privilegiada a terceras personas no autorizadas.
+La inobservancia de esta reglamentación expone al Conglomerado y a las personas trabajadoras, a responsabilidades civiles, penales o administrativas según corresponda.

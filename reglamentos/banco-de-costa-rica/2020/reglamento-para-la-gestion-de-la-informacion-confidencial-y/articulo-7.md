@@ -1,0 +1,3 @@
+Artículo 7º—Escalamiento y solicitud de opinión. La información y/o documentación recibida o solicitada que presente duda sobre el carácter de confidencialidad y privilegio, debe ser escalada al superior inmediato para la respectiva valoración y toma de decisiones.
+Cuando el superior inmediato dude sobre el carácter de confidencialidad y privilegio, debe solicitar la opinión a la Gerencia Corporativa Jurídica o a la Gerencia de Riesgo y Cumplimiento Normativo, esto a fin de salvaguardar los intereses del Conglomerado.
+Los miembros de una Junta Directiva, pueden solicitar la opinión de la Gerencia Corporativa Jurídica o la del asesor jurídico del órgano de dirección correspondiente.

@@ -1,0 +1,2 @@
+Artículo 10.—Protección. Se debe proteger el carácter confidencial y privilegiado de la información y/o documentación a la cual se ha tenido acceso, mediante conductas prudentes que eviten hacer revelaciones ante terceros en lugares públicos o privados, vía declaraciones, publicaciones, llamadas telefónicas, correos o cualquier otro medio de comunicación.
+Cumplir con lo establecido en el Código de ética corporativo del Conglomerado Financiero BCR.

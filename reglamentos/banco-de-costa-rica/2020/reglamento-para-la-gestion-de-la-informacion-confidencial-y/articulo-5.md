@@ -1,0 +1,1 @@
+Artículo 5º—Alerta de confidencialidad. Cada persona trabajadora del Conglomerado es responsable de informar y alertar a las personas bajo su administración, sobre la información y/o documentación que es de carácter confidencial y privilegiada, que la unidad administrativa genere o utilice como insumo en sus procesos y funciones.
