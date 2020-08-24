@@ -58,13 +58,14 @@ o.- Seguros de Asistencias de ramos generales.
 p.- Seguros Misceláneos Generales. Otros productos de seguros generales distintos a los clasificados en los ítems a) al o) de este inciso 1.
 (Así adicionado el inciso anterior mediante sesión N° 1433-2018 del 30 de julio del 2018)
 2. La categoría de seguros personales estará compuesta por los siguientes ramos y líneas:
-a.- Vida: Comprende el seguro en caso de vida, de muerte o mixto. Comprende las siguientes líneas:
-i) Vida autoexpedible
-ii) Ordinario de vida
-iii) Vida temporal mayor a 1 año
-iv) Vida temporal menor o igual a 1 año
-v) Saldo Deudor
+a. Vida: Comprende el seguro en caso de vida, de muerte o mixto. Comprende las siguientes líneas:
+i) Derogado
+ii) Ordinario de vida.
+iii) Vida temporal mayor a 1 año.
+iv) Vida temporal menor o igual a 1 año.
+v) Saldo Deudor.
 vi) Vida Universal
+(Así reformado el inciso a) anterior mediante sesión N° 1601-2020 del 24 de agosto del 2020)
 b.- Rentas: Comprende las operaciones de capitalización basadas en una técnica actuarial que suponga, a cambio de pagos únicos o periódicos fijados por adelantado, compromisos determinados en cuanto a su duración y a su importe. Incluye los seguros de renta vitalicia derivados de la Ley 7983. Comprende las siguientes líneas:
 i) Renta vitalicia no previsional.
 ii) Renta vitalicia Previsional.
@@ -92,9 +93,10 @@ ii) Productos rentas vinculados con fondos de inversión.
 (*) h) Seguros Misceláneos Personales. Otros productos de seguros personales no clasificados en los ítems a) al g) de este inciso 2.
 (*)(Así adicionado el inciso h) anterior mediante sesión N° 1433-2018 del 30 de julio del 2018)
 C. Riesgos accesorios.
-Se podrán cubrir riesgos adicionales comprendidos en otro ramo y categoría sin necesidad de obtener autorización específica, aun cuando la entidad aseguradora sólo cuente con licencia para operar en una categoría distinta, siempre que el riesgo principal pertenezca a un ramo y categoría autorizada para esa entidad y se cumpla lo siguiente:
-a) Se encuentren vinculados al riesgo principal.
+Se podrán cubrir riesgos adicionales comprendidos en otro ramo y categoría sin necesidad de obtener autorización específica, aun cuando la entidad aseguradora solo cuente con licencia para operar en una categoría distinta, siempre que el riesgo principal pertenezca a un ramo y categoría autorizada para esa entidad y se cumpla lo siguiente:
+a) Se encuentren vinculados por una relación causa-efecto al riesgo principal. Es decir que de la materialización del riesgo principal se pueda derivar razonablemente la ocurrencia de los riesgos adicionales.
 b) Se refieran al objeto cubierto contra el riesgo principal.
 c) Se encuentren cubiertos por el contrato que cubra el riesgo principal.
 No obstante, los riesgos comprendidos en el ramo crédito y caución de la categoría de seguros generales no podrán ser considerados accesorios de otros ramos.
+(Así reformado el inciso c) anterior mediante sesión N° 1601-2020 del 24 de agosto del 2020)
 (Así reformado en sesión N° 1131 del 27 de octubre de 2014)

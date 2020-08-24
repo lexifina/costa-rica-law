@@ -27,3 +27,4 @@ Reglamento sobre Autorizaciones, Registros y Requisitos de Funcionamiento de Ent
 | 12 | 2017-05-02 | Reglamento 1328 (2017-05-02) |
 | 13 | 2018-07-30 | Reglamento 1433 (2018-07-30) |
 | 14 | 2019-11-25 | Reglamento 1545 (2019-11-25) |
+| 15 | 2020-08-24 | Reglamento 1601 (2020-08-24) |
