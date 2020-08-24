@@ -108,7 +108,8 @@ m.- Condiciones varias. Se incluirán aquellas condiciones que no tengan conexid
 n.- Instancias de solución de controversias.
 o.- Comunicaciones entre las partes. Podrá establecerse que los datos específicos de partes y terceros relevantes distintos de la aseguradora constarán en la solicitud de seguro, certificado o en las condiciones particulares.
 p.- Leyenda de registro.
-2.2.2- Estructura de la solicitud de seguro. (No aplica para los seguros autoexpedibles).
+2.2.2- ESTRUCTURA DE LA SOLICITUD DE SEGURO. (Aplica en lo que corresponda para la solicitud de aseguramiento individual de seguros colectivos y para la propuesta u oferta de seguros autoexpedibles)
+(Así modificada su denominación mediante sesión N° 1601-2020 del 24 de agosto del 2020. Anteriormente indicaba “Estructura de la solicitud de seguro. (No aplica para los seguros autoexpedibles).”)
 a.- Encabezado.
 b.- Lugar y fecha en que se completa.
 c.- Cuando se trate de una póliza colectiva, su número y tomador.
@@ -158,7 +159,8 @@ i.- Medios y formalidades de comunicación.
 j.- Documentación contractual entregada o forma de accederla.
 k.- Temas adicionales.
 2.2.5- Disposiciones de inclusión obligatoria en la documentación contractual.
-La documentación contractual deberá incluir todas aquellas disposiciones que la Ley Reguladora del Contrato de Seguros N° 8956 exige que se incorporen.
+La documentación contractual deberá incluir todas aquellas disposiciones que la Ley Reguladora del Contrato de Seguros, Ley 8956, reglamentos del CONASSIF y otras disposiciones de la Superintendencia exige que se incorporen.
+(Así reformado el párrafo anterior mediante sesión N° 1601-2020 del 24 de agosto del 2020)
 Toda la documentación contractual deberá incluir una leyenda de registro en el siguiente sentido:
 “La documentación contractual y la nota técnica que integran este producto, están registrados ante la Superintendencia General de Seguros de conformidad con lo dispuesto por el artículo 29, inciso d) de la Ley Reguladora del Mercado de Seguros, Ley 8653, bajo el(los) registro(s) número ______de fecha______”.
 2.2.6- Disposiciones de inclusión obligatoria en las condiciones generales.
@@ -169,7 +171,7 @@ La designación que se hiciera de un mayor de edad como representante de menores
 b.- En los seguros en que sea posible la designación de un beneficiario para que le sea cubierto el saldo insoluto de un crédito otorgado al asegurado por su fallecimiento o incapacidad total o permanente, se incluirá en el apartado “Designación de beneficiarios” (punto f de la sección 2.2.1.) la siguiente leyenda:
 “Si el beneficiario lo es en razón de un crédito a favor del asegurado, su beneficio se limitará al saldo insoluto de la deuda incluyendo intereses generados al momento del siniestro, según el contrato de crédito y la certificación contable correspondiente pero sin exceder la suma asegurada convenida. Si la suma asegurada convenida excede el beneficio indicado, el remanente se pagará al asegurado, a sus beneficiarios distintos del acreditante o a sus herederos, según corresponda.”
 c.- En caso de que la póliza limite la libre elección de los proveedores de servicios auxiliares relacionados con el producto, que brinden un servicio directo al asegurado o beneficiario, el contrato deberá revelar claramente las condiciones para tener acceso a la prestación del servicio y la forma en que el tomador, asegurado o beneficiario podrá obtener, en todo momento, información actualizada de los proveedores de servicios auxiliares.
-d.- En los seguros autoexpedibles se deberá otorgar al tomador del seguro autoexpedible la facultad de revocar unilateralmente el contrato amparado al derecho de retracto, sin indicación de los motivos y sin penalización alguna, dentro del plazo de 5 días hábiles, contados a partir de la fecha de la emisión de la póliza de seguro, siempre que no haya acaecido el evento dañoso objeto de cobertura. El plazo aquí dispuesto es el mínimo, sin perjuicio de que las entidades aseguradoras establezcan en la póliza un plazo más extenso a favor del asegurado. Una vez superado el plazo aquí establecido o el estipulado en la póliza, el contrato solamente podrá revocarse por el consentimiento de las partes, dentro del plazo indicado y a partir de su emisión, en los términos y condiciones establecidos en la póliza respectiva y en la Ley Reguladora del Contrato de Seguros. El derecho de retracto no será aplicable a los contratos de seguros autoexpedibles de asistencia en viaje una vez éste se inicie, ni a los contratos de seguros autoexpedibles cuyo plazo de vigencia sea igual o inferior a cinco días hábiles. Lo anterior, sin perjuicio de que las entidades aseguradoras, dispongan en sus pólizas de seguros o políticas respectivas, el otorgamiento de ese derecho en lapsos más extensos en beneficio del asegurado o inclusive, su aplicación sin límites de plazo. Deberá disponerse el procedimiento para el ejercicio del derecho de retracto incluyendo un plazo de máximo 10 días hábiles a contar desde el día que reciba la comunicación de la revocación unilateral del contrato, para devolver el monto de la prima.
+d.- (Derogado mediante sesión N° 1601-2020 del 24 de agosto del 2020)
 e.- En el caso de contratos tipo:
 i.- Indicar con precisión, cuáles cláusulas o conceptos son sujetos de variación durante el proceso de contratación.
 ii.- Si el producto se encuentra referido al clausulado de un producto ya registrado, deberá hacerse una manifestación en ese sentido.
