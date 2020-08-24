@@ -1,3 +1,1 @@
-Artículo 2º.- La Municipalidad deberá utilizar la Isla como un
-centro turístico, para lo cual se le autoriza a contratar las obras de
-infraestructura necesarias.
+Artículo 2º.- (Derogado por el artículo 20 de la ley de Creación del Parque Nacional Isla San Lucas, N° 9892 del 24 de agosto del 2020)
