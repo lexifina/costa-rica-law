@@ -15,3 +15,5 @@ f) Formación: Acción de impartir sistemáticamente un conjunto organizado de c
 g) Entrenamiento: Todo conjunto de acciones formativas para la especialización, certificación de conocimientos, competencias y habilidades; así como las subsecuentes readecuaciones o actualizaciones que requiera una persona para su desempeño laboral.
 h) Régimen: El Régimen de Zonas Francas creado en la Ley del Régimen de Zonas Francas, Ley N° 7210 del 23 de noviembre de 1990.
 i) PROCOMER: La Promotora del Comercio Exterior de Costa Rica.
+j) AZOFRAS: La Asociación de Empresas de Zonas Francas de Costa Rica.
+(Así adicionado el inciso anterior por el artículo 2° del decreto ejecutivo N° 42634 del 24 de agosto del 2020)
