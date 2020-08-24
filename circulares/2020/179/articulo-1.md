@@ -1,0 +1,6 @@
+CIRCULAR No. 179-2020
+Asunto: Legitimación de personas menores de edad víctimas para intervenir en asuntos judiciales
+A TODOS LOS ADMINISTRADORES DE JUSTICIA, SERVIDORES JUDICIALES, ABOGADOS, ABOGADAS Y PUBLICO EN GENERAL
+SE LES HACE SABER QUE:
+El Consejo Superior del Poder Judicial en sesión No. 76-20 celebrada el 30 de julio de 2020, artículo XL, acordó hacer de conocimiento de todos los Administradores de Justicia, servidores judiciales, Abogados, Abogadas y público en general, que de conformidad con lo dispuesto en las directrices para evitar la revictimización de las personas menores de edad, vigentes en el Poder Judicial desde el año 2000, y de acuerdo a lo establecido en los artículos 4 y 13 del Código de Niñez y Adolescencia, y en razón de lo consagrado en diferentes instrumentos internacionales como la Convención Internacional sobre los Derechos del Niño y las Reglas de Brasilia, las personas menores de edad cuentan por sí mismas y sin necesidad de acompañamiento, intermediación u autorización de una persona adulta con la legitimación y la capacidad para proceder a interponer denuncias y realizar todas las gestiones autorizadas por la ley en defensa de sus intereses.
+San José, 24 de agosto de 2020.
