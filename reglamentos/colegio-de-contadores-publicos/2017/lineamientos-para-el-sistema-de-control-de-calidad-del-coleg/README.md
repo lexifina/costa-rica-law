@@ -14,3 +14,4 @@ Lineamientos para el Sistema de Control de Calidad del Colegio de Contadores Pú
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-11-02 | la propia norma |
+| 2 | 2020-08-24 | Reglamento 16 (2020-08-24) |

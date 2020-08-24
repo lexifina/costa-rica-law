@@ -1,2 +1,2 @@
-Decimo:
-El Fiscal de la Junta Directiva, nombrará a los Miembros Propietarios de la Comisión de Control de Calidad, por un plazo máximo de 2 años, que es el establecido por la Ley Nº1038 para el nombramiento de los integrantes de la Junta Directiva. En caso de renuncia o muerte, de uno o varios de los integrantes la Comisión, el Fiscal como presidente de la Comisión buscará el sustituto que será nombrado por el plazo restante de vigencia de dicho nombramiento.
+Décimo.—El Presidente de la Junta Directiva conforme al artículo 25 inciso c) de la Ley N° 1038 nombrará a los miembros propietarios de la Comisión de Control de Calidad, por un plazo máximo de 1 año. El presidente de la Junta Directiva del Colegio nombrará el sustituto que será nombrado por el plazo restante de vigencia de dicho nombramiento.
+(Así reformado mediante sesión ordinaria N° 16-2020 del 24 de agosto del 2020)
