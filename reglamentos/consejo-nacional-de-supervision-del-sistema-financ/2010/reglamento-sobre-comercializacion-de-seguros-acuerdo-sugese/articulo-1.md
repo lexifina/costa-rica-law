@@ -16,4 +16,7 @@ aprobar el Acuerdo SUGESE 03-10, “Reglamento sobre Comercialización de Seguro
 TÍTULO I
 CAPÍTULO ÚNICO
 Disposiciones generales
-Artículo 1º—Objeto. Este reglamento tiene por objeto regular la comercialización de seguros, los parámetros mínimos de información al cliente, así como los requerimientos de formación de los intermediarios de seguros personas físicas y jurídicas que intervienen en la comercialización de seguros y de otros sujetos, según lo dispuesto en la Ley Reguladora del Mercado de Seguros, Ley 8653.
+Artículo 1. Objeto.
+Este Reglamento tiene por objeto regular la comercialización de seguros, los parámetros mínimos de información al cliente, así como los requerimientos de formación de los intermediarios de seguros personas físicas y jurídicas que intervienen en la comercialización de seguros y de otros sujetos, según lo dispuesto en la Ley Reguladora del Mercado de Seguros, Ley 8653.
+Los requisitos aplicables a la comercialización de seguros autoexpedibles se rigen por el Reglamento sobre Inclusión y Acceso al Seguro, Acuerdo SUGESE 11-20, sin aplicación supletoria del presente Reglamento.”
+(Así reformado mediante sesión N° 1601-2020 del 24 de agosto del 2020)
