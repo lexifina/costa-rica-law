@@ -16,3 +16,4 @@ Reglamento de Defensa y Protección del Consumidor de Seguros
 | 1 | 2014-01-01 | la propia norma |
 | 2 | 2014-02-11 | Reglamento 1089 (2014-02-11) |
 | 3 | 2017-10-03 | Reglamento 1363 (2017-10-03) |
+| 4 | 2020-08-24 | Reglamento 1601 (2020-08-24) |
