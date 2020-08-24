@@ -14,3 +14,4 @@ Reglamento de la transición para la revisión y aprobación de Planes Regulador
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-09-03 | la propia norma |
+| 2 | 2020-08-24 | Decreto Ejecutivo 42562 (2020-08-24) |
