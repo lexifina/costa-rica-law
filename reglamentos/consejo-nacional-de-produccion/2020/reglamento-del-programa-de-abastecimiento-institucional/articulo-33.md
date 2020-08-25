@@ -1,0 +1,1 @@
+Artículo 33.º-Corresponde a la Comisión Técnica avalar los parámetros para la categorización de los suplidores según su condición de micro, pequeño, mediano y otros de interés institucional elaborada por la Dirección de Mercadeo y Agroindustria y elevarla para su aprobación a la Junta Directiva.

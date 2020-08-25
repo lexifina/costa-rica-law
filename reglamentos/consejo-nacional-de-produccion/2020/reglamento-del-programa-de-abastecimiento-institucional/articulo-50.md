@@ -1,0 +1,1 @@
+Artículo 50.º-En el supuesto de detectarse alguno de los incumplimientos señalados en la presente normativa, el Director Regional gestionará la denuncia ante la Dirección de Programas Especiales quien tramitará el proceso que corresponda garantizando la aplicación de los principios del debido proceso para lo cual contará con el apoyo de la Dirección de Asuntos Jurídicos.

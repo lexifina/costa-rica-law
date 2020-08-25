@@ -1,0 +1,1 @@
+Artículo 35.º-Corresponderá a la Comisión Técnica con apoyo especializado que corresponda, emitir la resolución de inclusión del proveedor en el registro respectivo, la cual deberá ser debidamente notificada al interesado en el plazo que corresponda.

@@ -1,0 +1,1 @@
+Artículo 12°-Los suplidores asignados deberán demostrar el origen de los productos a ser abastecidos a través del CNP. Para tales efectos queda facultado el PAI en coordinación con las Direcciones regionales para realizar verificaciones semestrales de la información suministrada al efecto.

@@ -1,0 +1,19 @@
+SECCIÓN SEGUNDA
+Inscripción de Suplidores
+Artículo 42º-Serán requisitos para la inscripción de suplidores en el PAI entratándose de personas físicas, los siguientes:
+1. Solicitud escrita a la Dirección Regional del CNP. Indicar dirección postal y geográfica exacta, número de teléfono, tele fax, correo electrónico y cualquier otra referencia importante para localizarlo. Describir la actividad a que se dedica, indicar bienes o servicios que se ofrezcan con sus respectivas especificaciones o características particulares.
+2. Presentar la cédula de identidad a la funcionaria o el funcionario que reciba la gestión a efecto de que este verifique la identidad de la persona física solicitante, y deje constancia de dicha constatación.
+3. Aportar certificación de Contador Público Autorizado (CPA) en donde se indique: valor de las ventas anuales netas de la empresa, valor de los activos totales de la empresa y valor de los activos fijos netos de la empresa correspondientes al último periodo fiscal, finalmente cantidad de empleados conforme a la planilla reportada a la Caja Costarricense de Seguro Social en el mes anterior a la firma de la presente certificación.
+4. Presentar Declaración Jurada debidamente autenticada indicando lo siguiente:
+a) Que no le asisten las prohibiciones definidas en los artículos ---de la Ley de Contratación y del artículo 27 de la Ley Orgánica del CNP para contratar con la Administración
+b) Que se encuentra debidamente inscrita o inscrito ante la Dirección General de Hacienda y al día ante esa dependencia (Sistema de Autorización comprobante de ingresos, La Gaceta Nº 186 del 30 de setiembre de 1996) o en su defecto indicar que se encuentra exento si fuera del caso.
+c) Que está inscrito y al día en el pago de cuotas obrero- patronal con la Caja Costarricense del Seguro Social.
+d) Que se encuentra inscrito y al día con el pago de la póliza de riesgo de trabajo.
+e) Que se encuentre al día con sus obligaciones en el Fondo de Asignaciones Familiares (FODESAF) según artículo 56 Ley Orgánica del Fondo de Asignaciones Familiares.
+5. Fotocopia del Permiso Sanitario de Funcionamiento vigente, extendido por el Ministerio de Salud en aquellos casos que sea necesario.
+6. Presentar certificación bancaria que indique el número de cuenta IBAN a utilizar en el PAI.
+7. De tratarse de una actividad pecuaria, aportar fotocopia del Certificado Veterinario de Operación (CVO) vigente, extendido por el SENASA, según corresponda (Producción distribución, venta).
+8. De tratarse de productos acuícolas y pesqueros, presentar fotocopia de certificación extendida por el INCOPESCA donde se les acredite para realizar la actividad según clasificación: licencia de pesca comercial, autorización de comercialización, carné de venta de productos pesqueros o permiso para puesto de recibo - pescadería - planta de procesamiento de productos pesqueros.
+9. Cuando se trate de un productor individual que procesen en plantas de terceros o se suplan de productos con terceros deben remitir nota firmada por el apoderado general o propietario, junto con los documentos probatorios, que detalle los términos de la relación comercial, información a suministrarse bajo declaración jurada autenticada. De existir un contrato de arrendamiento deberá de presentarlo debidamente protocolizado.
+10. Aprobar el 100% de los requisitos mayores y un mínimo de 70% de los requisitos menores de la inspección técnica a la planta o instalaciones de acopio, proceso o agroindustria, centros de distribución o expendio, que realizará la Dirección de Calidad e Inocuidad, instrumento originado del Reglamento Técnico Centroamericano de Alimentos.
+11. Al momento en que se le asigne suplencia suscribir el Contrato de suministro de productos mediante el cual se asuman de manera formal las obligaciones que se adquieren con el CNP.

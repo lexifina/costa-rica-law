@@ -1,0 +1,1 @@
+Artículo 31º.-Recibir de parte de la DPE el reporte de la compra de producto importado y proceder con su análisis y verificación del cumplimiento de lo dispuesto en el artículo 18 del presente reglamento.

@@ -1,0 +1,3 @@
+SECCION TERCERA
+Criterios de Asignación de Mercado a Suplidores
+Artículo 21º.-Si se dispone de suplidor(es) regional(es) registrado(s) se brindará preferencia de asignación a éstos para cubrir la demanda de clientes (puntos de entrega) de esa ruta, bajo el orden de decisión: suplidor prioritario (micro, pequeños o medianos), suplidor grande de base social conformada por micro, pequeños y medianos productores y finalmente Agro empresa comercializadora. Ante insuficiencia de ellos, se acudirá a suplidores de regiones de entorno siempre que la ruta conlleve razonabilidad y sostenibilidad del buen servicio, calidad, y precio para el interés de los actores (cliente institucional, suplidor y PAI) siguiendo el mismo criterio de selección.

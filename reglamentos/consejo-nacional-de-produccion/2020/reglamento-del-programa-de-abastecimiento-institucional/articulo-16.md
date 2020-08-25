@@ -1,0 +1,1 @@
+Artículo 16º.-Una vez aprobado y registrado el suplidor, la vigencia de ese registro será sujeto de re inspecciones y recalificaciones por la instancia técnica competente, para actualizar su categorización y datos de expediente.
