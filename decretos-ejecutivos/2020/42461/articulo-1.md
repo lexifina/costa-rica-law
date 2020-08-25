@@ -1,0 +1,34 @@
+N° 42461-S
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE SALUD
+En uso de las facultades que les confieren los artículos 140 incisos 3) y 18) y 146 de la Constitución Política; 25 inciso 1), 27 inciso 1), 28 inciso 2) acápite b) y 103 inciso 1) de la Ley N° 6227 del 02 de mayo de 1978 “Ley General de la Administración Pública”; 1, 2 5 y 6 de la Ley N° 5412 del 8 de noviembre de 1973 “Ley Orgánica del Ministerio de Salud” y los artículos 1 y 4 de la Ley Nº 8289 del 10 de julio del 2002 “Reforma de la Ley Orgánica del Ministerio de Salud, N° 5412, para el otorgamiento de personalidad jurídica instrumental al Instituto sobre Alcoholismo y Farmacodependencia”.
+Considerando:
+1º—Que es función del Estado velar por la salud de la población por medio del Ministerio de Salud como órgano competente para definir la política nacional de salud, la normación, planificación y coordinación de todas las actividades públicas y privadas relativas a la salud.
+2º—Que de acuerdo con los artículos 5, 21 y siguientes de la Ley N° 5412 del 8 de noviembre de 1973 “Ley Orgánica del Ministerio de Salud”, el Instituto sobre Alcoholismo y Farmacodependencia (IAFA) es un órgano adscrito al Ministerio de Salud, el cual tiene independencia en su funcionamiento administrativo y personalidad jurídica instrumental, teniendo a su cargo la dirección técnica, el estudio, la prevención, el tratamiento y la rehabilitación de la adicción al alcohol, al tabaco y a otras drogas lícitas o ilícitas, así como la coordinación y aprobación de todos los programas públicos y privados orientados a aquellos mismos fines, de conformidad con dicha ley.
+3º—Que el IAFA es garante del derecho a la salud de la población, existiendo por ende la necesidad de una prestación efectiva de servicios por parte de esta institución, en aras de procurar una organización institucional acorde con los principios que rigen todo el servicio público como continuidad, eficiencia, adaptación al cambio e igualdad en el trato de los usuarios.
+4º—Que, para dar cumplimiento a lo expuesto en el considerando anterior, resulta preciso y oportuno que el IAFA suprima las prácticas inoportunas por parte de algunos funcionarios, eliminando de esta forma el beneficio de exención de marca y el de los diez minutos de gracia con que cuentan las personas funcionarias de la institución, ya que tales beneficios han supuesto inconvenientes en la prestación efectiva del servicio.
+5º—Que la Junta Directiva del Instituto sobre Alcoholismo y Farmacodependencia, en Sesión Ordinaria N° 07-2020 del 5 de marzo del 2020, mediante Acuerdo N° 7 dispuso “Acoger la solicitud planteada por el señor Oswaldo Aguirre Retana, Director General, mediante oficio DG-116-2020, de fecha 28 de febrero de 2020 y aprobar la modificación del Reglamento Autónomo de Servicio del Instituto sobre Alcoholismo y Farmacodependencia (IAFA), Decreto Ejecutivo N° 36706-S, en sus artículos 35, 40 y 93. Se solicita continuar con el trámite de remisión y publicación correspondiente. Acuerdo firme. Aprobado por unanimidad.”.
+6º—Que con fundamento en lo antes expuesto resulta evidente la necesidad de reformar los artículos 35, 40 y 93 del Decreto Ejecutivo Nº 36706–S del 31 de enero del 2011 “Reglamento Autónomo de Servicio del Instituto sobre Alcoholismo y Farmacodependencia, publicado en La Gaceta N° 187 del día 29 de setiembre del 2011.
+7º—Que en cumplimiento al artículo 13 inciso i) del Estatuto de Servicio Civil, la Licda. Jaklin Urbina Álvarez, Abogada de la Asesoría Jurídica de la Dirección General de Servicio Civil, otorgó a la presente reforma el visto bueno mediante el oficio número “AJOF- 194-2019” (sic) del 2 de abril del 2020.
+8º—Que de conformidad con el artículo 12 bis del Decreto Ejecutivo N° 37045-MP-MEIC de 22 de febrero de 2012 “Reglamento a la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos” y sus reformas, se considera que por la naturaleza del presente reglamento no es necesario completar la Sección I denominada Control Previo de Mejora Regulatoria, que conforma el formulario de Evaluación Costo Beneficio, toda vez que el mismo no establece trámites ni requerimientos para el administrado. Por tanto;
+Decretan:
+REFORMA A LOS ARTÍCULOS 35, 40 Y 93 DEL DECRETO
+EJECUTIVO N° 36706-S, “REGLAMENTO AUTÓNOMO
+DE SERVICIO DEL INSTITUTO SOBRE ALCOHOLISMO
+Y FARMACODEPENDENCIA”
+Artículo 1º—Refórmense los artículos 35, 40 y 93 del Decreto Ejecutivo Nº 36706–S del 31 de enero del 2011 “Reglamento Autónomo de Servicio del Instituto sobre Alcoholismo y Farmacodependencia”, publicado en La Gaceta N° 187 del día 29 de setiembre del 2011, para que de ahora en adelante se lean así:
+“Artículo 35º—El beneficio de exoneración de marca. Se podrá eximir del control de asistencia a aquellos funcionarios que así lo requieran, únicamente en casos excepcionales y cuando por la naturaleza de las funciones así lo ameriten; previa justificación de su jefatura inmediata ante la Dirección General del IAFA; si la Dirección General considera que los elementos que se le presentan son suficientes, procederá a solicitar el trámite correspondiente ante el Subproceso de Gestión Humana. Este beneficio no constituirá un derecho adquirido, podrá ser revocado por la Administración cuando lo estime conveniente o al variar las funciones del servidor; previo cumplimiento del debido proceso.
+En caso de que no se cumpla con el horario establecido por el IAFA, los funcionarios que disfruten de este beneficio, se harán acreedores de las siguientes sanciones disciplinarias:
+a) Por cuatro días: Amonestación escrita.
+b) De cinco a siete días: Suspensión sin goce de salario hasta por cuatro días.
+c) De ocho a diez días: Suspensión sin goce de salario hasta por ocho días.
+d) Por más de diez días: Despido sin responsabilidad patronal.
+Las sanciones se aplicarán dentro del mes siguiente, contado a partir de la última llegada tardía, previo debido proceso.”
+“Artículo 40°- Llegada Tardía. Se considerará como llegada tardía la presentación al trabajo después de la hora señalada para el inicio de labores.
+En casos muy calificados, a juicio del superior inmediato, se justificarán las llegadas tardías de manera inmediata, a efecto de no aplicar la sanción correspondiente. No se dará curso a las justificaciones que se presenten posteriormente.”
+“Artículo 93º—Sanción por Llegadas Tardías. Las llegadas tardías injustificadas que no excedan de treinta minutos, computables en un mismo mes calendario, se sancionarán de la siguiente forma:
+a) Por cuatro días: Amonestación escrita.
+b) De cinco a siete días: Suspensión sin goce de salario hasta por cuatro días.
+c) De ocho a diez días: Suspensión sin goce de salario hasta por ocho días.
+d) Por más de diez días: Despido sin responsabilidad patronal.
+Las sanciones se aplicarán dentro del mes siguiente, contado a partir de la última llegada tardía, previo debido proceso.”
