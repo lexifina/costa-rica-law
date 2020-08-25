@@ -1,0 +1,1 @@
+Artículo 40.-Ámbito temporal de las licencias temporales para la comercialización de bebidas con contenido alcohólico. Las licencias que se otorguen bajo este capítulo no podrán ser aprobadas por un plazo mayor a un mes.

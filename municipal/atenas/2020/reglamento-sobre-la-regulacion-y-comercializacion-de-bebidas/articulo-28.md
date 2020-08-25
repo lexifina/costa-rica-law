@@ -1,0 +1,1 @@
+Artículo 28.-Renovación quinquenal. El proceso de renovación de licencias estará a cargo del Departamento de Patentes. El nuevo certificado de licencia tendrá un costo en colones equivalente al 1% del salario base

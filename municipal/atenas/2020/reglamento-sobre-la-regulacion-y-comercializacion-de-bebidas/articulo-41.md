@@ -1,0 +1,1 @@
+Artículo 41.-Tipos de licencias temporales para la comercialización de bebidas con contenido alcohólico que pueden ser autorizados. Las licencias autorizadas bajo esta categoría serán únicamente del tipo B1, B2 y C.

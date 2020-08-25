@@ -1,0 +1,2 @@
+Artículo 31.-Normas relativas a la notificación. Las resoluciones de los trámites a los que se refiere esta sección del presente reglamento deberán ser comunicados por el Proceso de Patentes al administrado en el lugar o medios idóneos indicados en el formulario respectivo.
+En general, en materia de notificaciones de los actos que se emitan con ocasión de la Ley y del presente reglamento, se aplicará lo dispuesto en la Ley de General de Administración Pública y la Ley de Notificaciones y Comunicaciones Judiciales.

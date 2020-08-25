@@ -1,0 +1,1 @@
+Artículo 37.-Regímenes de tramitación y recursivo. La tramitación de estas licencias se regulará en lo conducente por lo dispuesto en el Capítulo II, Sección I de este Reglamento, y el régimen recursivo será el propio del Título VI del Capítulo I del Código Municipal.
