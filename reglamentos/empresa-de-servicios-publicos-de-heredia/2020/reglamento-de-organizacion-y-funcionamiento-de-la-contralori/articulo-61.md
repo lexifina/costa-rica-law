@@ -1,0 +1,1 @@
+Artículo 61. Atención de solicitudes y análisis de presuntos hechos irregulares. Se entiende por análisis de presuntos hechos irregulares aquellos que se originen de conformidad con lo regulado en el punto 1.3 de los Lineamientos Generales para el análisis de presuntos hechos irregulares, emitidos por la CGR según Resolución n. 0 R-DC-102-2019.

@@ -1,0 +1,1 @@
+Artículo 40. Facilidades a la Contraloría Empresarial y suministro de información. Será obligación de toda persona funcionaria de la ESPH brindar las facilidades necesarias para que el personal de la Contraloría Empresarial realice a satisfacción su labor.

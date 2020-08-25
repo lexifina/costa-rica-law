@@ -1,0 +1,1 @@
+Artículo 85. Supervisión del trabajo. Los trabajos serán supervisados de forma apropiada por la Contralora Empresarial, para asegurar el logro de los objetivos, la calidad del trabajo y el desarrollo profesional del personal.

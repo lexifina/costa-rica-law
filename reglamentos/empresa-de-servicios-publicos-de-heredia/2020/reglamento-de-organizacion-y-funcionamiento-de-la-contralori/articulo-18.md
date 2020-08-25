@@ -1,0 +1,1 @@
+Artículo 18. Sanciones, suspensiones y conclusión de la relación de servicios de la persona Contralora Empresarial. La persona Contralora Empresarial será sancionada, suspendida y podrá removerse por justa causa, tal como lo establecen la Ley General de Control Interno, la Ley Orgánica de la Contraloría General de la República y la normativa aplicable según el caso.

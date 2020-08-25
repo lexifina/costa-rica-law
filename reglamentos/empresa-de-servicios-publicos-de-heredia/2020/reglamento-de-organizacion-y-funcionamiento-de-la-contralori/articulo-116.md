@@ -1,0 +1,1 @@
+Artículo 116. Información adicional. La Contraloría Empresarial podrá solicitar al denunciante, particular, Administración Activa u otro sujeto de su ámbito de competencia, las aclaraciones o la información adicional que estime pertinente.

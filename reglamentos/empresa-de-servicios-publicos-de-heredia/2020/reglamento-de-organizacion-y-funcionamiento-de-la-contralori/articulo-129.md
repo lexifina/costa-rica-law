@@ -1,0 +1,2 @@
+Artículo 129.—Derogatoria. Este Reglamento deroga al Reglamento anterior de la Contraloría Empresarial de la ESPH, aprobado en los acuerdos de Junta Directiva JD 168- 2012 de la Sesión 3266-C del 18 de junio de 2012 y JD 084- 2015 de la Sesión 3533-C del 23 de marzo de 2015, así como cualquier norma de igual o inferior rango que se le oponga.
+(Corregido mediante Fe de Erratas y publicada en La Gaceta N° 258 del 26 de octubre del 2020, página N° 2)

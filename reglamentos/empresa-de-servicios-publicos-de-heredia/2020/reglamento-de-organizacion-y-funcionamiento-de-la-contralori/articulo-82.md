@@ -1,0 +1,1 @@
+Artículo 82. Cualidades de la información. Las personas funcionarias de la Contraloría Empresarial distinguirán información suficiente, confiable, relevante y útil que posibilite alcanzar los objetivos del trabajo.

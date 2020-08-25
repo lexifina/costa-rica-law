@@ -1,0 +1,4 @@
+Artículo 84. Registro y resguardo de la información. Las personas funcionarias de la Contraloría Empresarial registrarán información relevante que permita apoyar los hallazgos, conclusiones, recomendaciones y demás resultados del trabajo.
+a. La persona Contralora Empresarial velará por el control del acceso a los registros de trabajo por parte de personas ajenas a la Contraloría Empresarial, de modo que se realice solo con su autorización o de la persona que designe.
+b. Los archivos de trabajo deberán ubicarse en los lugares más seguros de la oficina de la Contraloría Empresarial.
+c. La persona Contralora Empresarial establecerá requisitos de custodia para los registros y documentación del trabajo, que serán consistentes con las regulaciones pertinentes y otros requerimientos respecto a este tema.

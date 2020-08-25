@@ -1,0 +1,1 @@
+Artículo 42. Ampliación del plazo. Si la Administración Activa no puede suministrar la información o documentación solicitada en el plazo establecido, lo comunicará a la Contraloría Empresarial dentro de los tres días hábiles siguientes al recibido de la solicitud. En casos debidamente justificados, la Contraloría Empresarial podrá prorrogar el plazo otorgado al inicio.

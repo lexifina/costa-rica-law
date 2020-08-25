@@ -1,0 +1,1 @@
+Artículo 41. Plazos para el suministro de información a la Contraloría Empresarial. La Contraloría Empresarial señalará de modo razonable los plazos para cada suministro de información o documentación que solicite. Se fijarán según la importancia, complejidad y urgencia que lo solicitado represente para la oportuna ejecución de las funciones de la Contraloría Empresarial.

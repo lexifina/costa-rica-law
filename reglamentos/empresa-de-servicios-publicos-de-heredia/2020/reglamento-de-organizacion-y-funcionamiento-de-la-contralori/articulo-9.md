@@ -1,0 +1,1 @@
+Artículo 9. Objetividad. Las personas funcionarias de la Contraloría Empresarial actuarán de manera objetiva, profesional y mantendrán un criterio neutral e imparcial en el cumplimiento de su trabajo. Evitarán comprometer su accionar ante intereses particulares e informarán a la persona Contralora Empresarial acerca de cualquier situación que pudiese afectar la objetividad.

@@ -1,0 +1,1 @@
+Artículo 127. Obligación de acatar las disposiciones del Reglamento. Las disposiciones de este Reglamento son de acatamiento obligatorio del personal de la Contraloría Empresarial y la Administración Activa de la ESPH, en lo que concierne a cada uno de ellos.

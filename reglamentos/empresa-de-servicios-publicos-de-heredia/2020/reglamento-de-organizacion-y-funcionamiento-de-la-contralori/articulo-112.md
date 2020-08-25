@@ -1,0 +1,2 @@
+6.CAPÍTULO VI. TRÁMITE DE LA DENUNCIA
+Artículo 112. Ámbito de competencia en denuncias. La Contraloría Empresarial solo dará trámite a aquellas denuncias que versen sobre posibles hechos irregulares o ilegales en relación con el uso y manejo de los fondos públicos o que afecten a la ESPH, además de lo conceptuado en la Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública y que cumplan con lo establecido en este Reglamento.

@@ -1,0 +1,1 @@
+Artículo 92. Conferencia para presentar los resultados de servicios a posteriori. De conformidad con su criterio, la persona Contralora Empresarial dispondrá la discusión verbal para exponer los resultados a las partes correspondientes de previo a la comunicación oficial, excepto los resultados relativos a las investigaciones preliminares y otros que la normativa contemple.

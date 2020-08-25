@@ -1,0 +1,3 @@
+5.CAPITULO V. SEGUIMIENTO DE ACCIONES O RECOMENDACIONES
+Sección Primera. Responsabilidad de la implementación de acciones
+Artículo 104. Seguimiento de acciones sobre resultados. El seguimiento de acciones se desarrollará respecto a todos los servicios brindados por la Contraloría Empresarial, lo cual incluye recomendaciones, asesorías, advertencias, observaciones, relaciones de hechos, y otros. Podrá incluir los resultados de las evaluaciones realizadas por los Auditores Externos, la Contraloría General de la República y demás instituciones de control y fiscalización que correspondan y que hayan sido de su conocimiento.

@@ -1,0 +1,2 @@
+Artículo 109. Informes de seguimiento de acciones sobre resultados. La persona Contralora Empresarial informará a la Junta Directiva, por lo menos una vez al año, el estado de las recomendaciones de la Contraloría Empresarial, de los Auditores Externos, de la Contraloría General de la República y de otras instituciones competentes, cuando sean de conocimiento y competencia de la Contraloría Empresarial.
+El informe contendrá una evaluación del grado general de cumplimiento por parte de la Administración Activa.

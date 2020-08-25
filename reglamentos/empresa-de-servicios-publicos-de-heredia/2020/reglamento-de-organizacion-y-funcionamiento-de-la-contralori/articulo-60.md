@@ -1,0 +1,1 @@
+Artículo 60. Fiscalización a posteriori. Se refiere a los distintos tipos de auditoría. Los productos derivados de estos servicios son informes de Control Interno, que dependen de su alcance y normativa aplicable; e informes de seguimiento de acciones sobre resultados.

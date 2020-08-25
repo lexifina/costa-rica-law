@@ -1,0 +1,1 @@
+Artículo 30. Registro presupuestario separado. Ejecución Presupuestaria deberá mantener un registro separado del monto asignado a la Contraloría Empresarial, detallado por objeto del gasto, para que así se controle la ejecución y las modificaciones de los recursos presupuestarios.

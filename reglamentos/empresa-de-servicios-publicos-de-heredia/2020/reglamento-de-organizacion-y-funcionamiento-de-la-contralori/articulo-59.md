@@ -1,0 +1,3 @@
+4.CAPÍTULO IV. SERVICIOS DE LA CONTRALORÍA EMPRESARIAL
+Sección Primera. Servicios de la Contraloría Empresarial
+Artículo 59. Servicios de la Contraloría Empresarial. Los servIcIos de auditoría que la Contraloría Empresarial realiza conforme a sus competencias se denominan servicios de fiscalización (a posteriori y a priori); atención de solicitudes y análisis de presuntos hechos irregulares (denuncias, solicitudes de la Contraloría General de la República, Junta Directiva, entre otros); y procesos de autoevaluación y mejora (autoevaluación, actividades de mejora, planificación, capacitación y evaluación).

@@ -1,0 +1,1 @@
+Artículo 62. Informes de Control Interno. El objetivo es emitir medidas correctivas por medio de recomendaciones u observaciones, para que la Administración Activa mejore el Sistema de Control Interno al implementarlas.

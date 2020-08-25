@@ -1,0 +1,1 @@
+Artículo 95. Comunicación oficial. La persona Contralora Empresarial comunicará oficialmente los resultados de su trabajo, mediante informes, oficios u otros dirigidos a la Junta Directiva o al resto de la Administración Activa, con competencia y autoridad para ordenar la implantación de las respectivas recomendaciones o atender los asuntos comunicados.

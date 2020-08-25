@@ -1,0 +1,1 @@
+Artículo 23. Ausencias temporales de la persona Contralora Empresarial. En casos de ausencias temporales de la persona Contralora Empresarial, en común acuerdo con la Junta Directiva podrá designar a una de las personas funcionarias de la Contraloría Empresarial del mayor nivel inferior al suyo.

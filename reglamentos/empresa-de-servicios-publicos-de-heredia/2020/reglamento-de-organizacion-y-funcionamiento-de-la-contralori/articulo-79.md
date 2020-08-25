@@ -1,0 +1,1 @@
+Artículo 79. Fiscalización de resultados. Las personas funcionarias de la Contraloría Empresarial fiscalizarán las operaciones y programas para verificar que los resultados concuerdan con los objetivos y las metas establecidas, además, que las operaciones, programas y presupuestos se implementan o desempeñan tal como se planearon.

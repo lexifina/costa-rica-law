@@ -1,0 +1,1 @@
+Artículo 108. Verificaciones adicionales. En cumplimiento de sus funciones de fiscalización y control, la Contraloría Empresarial podrá realizar las verificaciones o constataciones que estime pertinentes, del registro de avance de implementación de acciones, de los resultados y podrá elaborar las pruebas que estime necesarias.

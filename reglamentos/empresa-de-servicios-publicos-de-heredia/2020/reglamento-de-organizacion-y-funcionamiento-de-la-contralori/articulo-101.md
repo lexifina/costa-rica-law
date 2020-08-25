@@ -1,0 +1,1 @@
+Artículo 101. Responsabilidades. Las personas funcionarias de la Administración Activa que no implementen las recomendaciones u observaciones que se originen, debido a la aceptación tácita de los oficios o informes asumirán su responsabilidad en torno a un posible debilitamiento del Sistema de Control Interno, a la luz de lo que establezca la normativa.

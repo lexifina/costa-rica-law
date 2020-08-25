@@ -1,0 +1,1 @@
+Artículo 21. Salidas de trabajo. La persona Contralora Empresarial podrá informar al Presidente de la Junta Directiva sus salidas de la institución para el cumplimento de sus funciones, cuando esta comunicación no entorpezca su labor e independencia.
