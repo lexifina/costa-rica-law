@@ -1,0 +1,1 @@
+Transitorio Único. En tanto el Consejo de Personal del Ministerio, no emita los lineamientos aplicables para la adjudicación de becas y/o facilidades, para funcionarios que laboran bajo el régimen policial, éstos deberán atenerse a lo estipulado en el presente reglamento y los procedimientos establecidos al efecto.

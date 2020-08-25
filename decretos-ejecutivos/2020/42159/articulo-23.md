@@ -1,0 +1,1 @@
+Artículo 23.—Prohibido. Queda totalmente prohibido a las jefaturas o coordinación de equipos de trabajo, otorgar permisos para el disfrute de becas y/o facilidades dentro y fuera del país, que no cumplan con los procedimientos establecidos en el presente Reglamento.

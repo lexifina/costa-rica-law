@@ -1,0 +1,1 @@
+Artículo 10.—Apertura del concurso. La apertura del concurso se hará mediante la publicación del cartel correspondiente por medios electrónicos, sin perjuicio de otros medios que la Administración considere apropiados para su divulgación, de manera que se garantice el cumplimiento de los principios establecidos en el artículo 3 de este reglamento.

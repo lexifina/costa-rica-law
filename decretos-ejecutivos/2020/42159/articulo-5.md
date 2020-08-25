@@ -1,0 +1,11 @@
+CAPÍTULO II
+El Centro de Investigación y Formación Hacendaria.
+Artículo 5º—Competencias del Centro de Investigación y Formación Hacendaria. Le corresponderá al CIFH por medio del Departamento de Gestión Administrativa y Logística lo siguiente:
+a) Coordinar la concesión de becas mayores y/o facilidades a fin de que los servidores del Ministerio participen en programas de capacitación y formación que se realicen en el país o en el extranjero y que tengan relación con las funciones del Ministerio.
+b) Preparar y publicar el cartel de convocatoria a concurso para la adjudicación de las becas y/o facilidades disponibles.
+c) Seleccionar los candidatos y comunicarlo al organismo patrocinador, en los casos de las becas mayores, en caso de que éste sea externo al Ministerio, o bien realizar el procedimiento de adjudicación cuando las becas y/o facilidades sean patrocinadas por el Ministerio.
+d) Elaborar y suscribir los Contratos de Capacitación o de Estudio, con sujeción a lo establecido en el Estatuto de Servicio Civil, su reglamento y en la Ley Nº 3009 y sus reformas, entre el funcionario beneficiado y el Director del Centro de Investigación y Formación Hacendaria, así como coordinar los refrendos correspondientes.
+e) Mantenerse informado, sobre las áreas prioritarias en que deben ser capacitados los funcionarios, de acuerdo con los planes estratégicos institucionales y los estudios de detección de necesidades de capacitación, para la elaboración de los planes estratégicos de formación y capacitación y los planes anuales de capacitación, con el fin de enfocar los recursos a un mejor aprovechamiento de acuerdo con las necesidades institucionales.
+f) Conocer y resolver los recursos de objeción al cartel del concurso, así como los recursos de revocatoria y elevar al superior los recursos de apelación interpuestos contra las resoluciones de adjudicación de becas en el caso de que el organismo patrocinador sea el Ministerio, o de nominación o postulación de candidatos ante cualquier otro organismo patrocinador.
+g) Realizar las acciones necesarias para identificar y aprovechar las becas mayores o menores y/o facilidades disponibles por los diferentes organismos patrocinadores.
+h) Velar por el cumplimiento de las disposiciones de este Reglamento y de la normativa vigente en esta materia.

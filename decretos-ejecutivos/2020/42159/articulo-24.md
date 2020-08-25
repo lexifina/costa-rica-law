@@ -1,0 +1,2 @@
+Artículo 24.—Financiamiento. El financiamiento total o parcial de la participación de los funcionarios del Ministerio, en eventos que se lleven a cabo en el país o en el extranjero, quedará sujeto a disponibilidad presupuestaria o a las regulaciones que en esta materia se emitan, cuando el organismo patrocinador no cubra todos los gastos.
+Las condiciones económicas se establecerán en el respectivo cartel del concurso, y se dan por aceptadas por parte de los interesados en el momento en que se solicita la inscripción en el concurso.

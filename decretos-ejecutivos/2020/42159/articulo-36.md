@@ -1,0 +1,1 @@
+Artículo 36.—Derogatorias. Se deroga el Decreto Ejecutivo N° 32212-H denominado Reglamento para la Adjudicación de Becas o Facilidades a Servidores del Ministerio Hacienda, Alcance 33, Gaceta Nº 119, del 23 de junio de 2003.

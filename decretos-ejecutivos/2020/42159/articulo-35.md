@@ -1,0 +1,1 @@
+Artículo 35.—Revisión periódica del reglamento. La revisión periódica del presente Reglamento estará a cargo del CIFH y tendrán a su cargo la iniciativa de proposición de reformas que se enviarán a la consideración del Ministro.
