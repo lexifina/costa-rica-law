@@ -1,0 +1,1 @@
+Artículo 8º—Enlaces regionales de la Comisión de Ética y Valores del CNP. La Comisión podrá, en caso de ser requerido, proponer al Jerarca el nombramiento de enlaces regionales que contribuyan en la ejecución del Plan de Trabajo de la gestión ética institucional.

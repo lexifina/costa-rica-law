@@ -1,0 +1,3 @@
+Artículo 6º—Objetivo de la Comisión de Ética y Valores del CNP. El objetivo de la Comisión es la promoción, formación y fortalecimiento de la ética en la institución y contribuir a la eficiencia en el sector público. Les corresponde conducir técnicamente la gestión ética institucional con el liderazgo y responsabilidad del jerarca y los titulares subordinados y la participación de toda la Administración Activa.
+La Comisión no constituye un Tribunal de Ética ni ningún tipo de órgano disciplinario.
+Cualquier asunto en materia disciplinaria o legal deberá resolverse por las vías correspondientes.
