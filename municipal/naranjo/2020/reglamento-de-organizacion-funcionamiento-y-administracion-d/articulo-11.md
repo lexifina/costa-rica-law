@@ -1,0 +1,1 @@
+ARTÍCULO 11°- Todo arrendatario deberá mantenerse el día con las mensualidades del arriendo de local y los trimestres de la patente comercial, los impuestos y demás obligaciones municipales. Además, deberán cancelar mensualmente los servicios de agua, electricidad, gas y recolección de residuos, correspondiente al local arrendado

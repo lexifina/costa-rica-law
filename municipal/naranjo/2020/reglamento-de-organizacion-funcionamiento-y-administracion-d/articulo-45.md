@@ -1,0 +1,1 @@
+Artículo 45.- El Concejo Municipal de la Municipalidad de Naranjo, en ejercicio de su competencia, autonomía normativa y potestad reglamentaria, podrá dictar reformas, modificaciones y adiciones al presente reglamento

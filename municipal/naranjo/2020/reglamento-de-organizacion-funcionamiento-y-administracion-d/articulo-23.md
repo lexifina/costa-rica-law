@@ -1,0 +1,1 @@
+ARTÍCULO 23°- Todo arrendatario deberá mantener su local bien presentado y en óptimas condiciones higiénicas, de seguridad y de accesibilidad y deberá acatar de oficio las recomendaciones técnicas, operativas y administrativas de la Municipalidad.

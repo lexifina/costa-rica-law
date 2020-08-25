@@ -1,0 +1,4 @@
+Artículo 40°- Todos los arrendatarios, legítimamente acreditados en los registros municipales, y que se encuentren efectivamente administrando el local, deberán firmar un nuevo contrato con la Municipalidad de Naranjo, a partir de la publicación del presente Reglamento, El arrendamiento podrá prorrogarse por el quinquenio siguiente. Para estos efectos se firmará un nuevo contrato.
+Para la firma del contrato,-todos los arrendatarios deberán encontrarse administrando el local, estar al día con el pago de todas sus obligaciones municipales incluidas las mensualidades del arrendamiento de los locales y su respectiva patente comercial.
+En casos excepcionales se aceptará la firma del contrato, sin la cancelación total de las mensualidades del arriendo, siempre y cuando exista un arreglo de pago vigente, formalizado y autorizado previamente por la Municipalidad.
+En todos los casos los arreglos de pago no podrán exceder a un año.

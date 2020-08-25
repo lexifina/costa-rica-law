@@ -1,0 +1,2 @@
+ARTÍCULO 21 °- La Municipalidad brindará vigilancia y seguridad en el mercado, mediante los procedimientos que para ello defina la administración municipal. No obstante, lo anterior, se exime a la Municipalidad de Naranjo, de toda responsabilidad por accidentes, o robos o cualquier hecho vandálico, dentro de los locales.
+Cada arrendatario deberá proteger sus pertenencias dentro del local arrendado de la mejor forma posible.

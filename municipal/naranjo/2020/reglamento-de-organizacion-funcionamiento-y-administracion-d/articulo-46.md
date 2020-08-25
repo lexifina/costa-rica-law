@@ -1,0 +1,2 @@
+Artículo 46- El presente Reglamento rige a partir de su publicación en el Diario Oficial, La Gaceta, y deroga los demás disposiciones y reglamentos emitidos con anterioridad.
+Publicación definitiva. En virtud de haber transcurrido los diez días hábiles después de la publicación del proyecto de reforma, que rdiere el Artículo 43 del Código Municipal, sin que se hubiese recibido observaciones al Proyecto de Reforma al citado Reglamento, publicado en el Alcance 187, a La Gaceta 178 del martes 21 de julio de 2020.

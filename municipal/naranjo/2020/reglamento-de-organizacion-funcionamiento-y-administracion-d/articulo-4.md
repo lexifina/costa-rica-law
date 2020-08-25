@@ -1,0 +1,3 @@
+CAPITULO III
+De la Administración
+Artículo 4°- La administración general del Mercado Municipal de la Municipalidad de Naranjo, estará a cargo del Alcalde Municipal, quien será la máxima autoridad administrativa. El Alcalde Municipal, siguiendo los procedimientos ordinarios correspondientes, designará y tendrá a su cargo el Administrador del Mercado, y el personal de apoyo, de seguridad y vigilancia. En los casos, de cambios o modificaciones de arrendatarios, quien ejerza el cargo de Alcalde Municipal, deberá comunicarlo a todos los departamentos municipales correspondientes con la finalidad de que se ingrese al_sistema la información actualizada.

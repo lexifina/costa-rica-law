@@ -1,0 +1,3 @@
+ARTÍCULO 9°- Ningún arrendatario podrá, vender o comercializar artículos o mercaderías diferentes, a aquellas para las cuales le fue autorizado el local.
+La infracción a esta disposición será sancionada por la Administración Municipal, con una amonestación escrita, la cual será acumulativa, como reincidencia hasta por tres amonestaciones.
+Después de tres amonestaciones por escrito se ordenará el procedimiento ordinario de rescisión contractual por parte del Concejo Municipal, previo traslado del expediente administrativo por parte de la Alcaldía. Lo anterior, de conformidad con lo regulado en la Ley General de Administración Pública

@@ -1,0 +1,1 @@
+ARTÍCULO 33°- De conformidad con la Ley Nº 7027 del 04 de abril de 1986 y sus reformas, a partir de la entrada en vigencia del presente reglamento, no se permitirá el expendio de bebidas alcohólicas en el mercado municipal. Para éstos, efectos se procederá conforme lo que se señala en el artículo siguiente.

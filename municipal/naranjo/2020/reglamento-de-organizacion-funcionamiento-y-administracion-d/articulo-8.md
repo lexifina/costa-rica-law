@@ -1,0 +1,2 @@
+ARTÍCULO 8°- Todo adjudicatario de un local, podrá contratar los dependientes que estime necesarios para la atención de su actividad, todos los dependientes deberán cumplir con los requisitos establecidos en los incisos a), del artículo anterior del presente reglamento. Además de los otros requisitos exigidos por el Ministerio de Salud, póliza de aseguradora y seguro de salud, por parte de la Caja Costarricense de Seguro Social, deberán portar en todo momento el cané o gafete que se les suministrará.
+En ningún caso se permitirá la contratación de menores de edad.

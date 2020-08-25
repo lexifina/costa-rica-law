@@ -1,0 +1,1 @@
+Artículo 44- Las disposiciones del presente Reglamento pasan a ser en su totalidad parte integral del contrato de arrendamiento, el cual se formalizará y firmará una vez publicado el presente Reglamento.

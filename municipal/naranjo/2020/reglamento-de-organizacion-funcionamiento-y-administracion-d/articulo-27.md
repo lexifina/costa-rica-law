@@ -1,0 +1,1 @@
+ARTÍCULO 27°- Todo arrendatario tendrá el derecho de solicitar a la administración del mercado un cierre temporal de su local, por un plazo no mayor a treinta días calendario, por motivos de fuerza mayor, como enfermedades, remodelaciones o problemas de personal.
