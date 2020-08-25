@@ -5,4 +5,5 @@ Y FUNCIONAMIENTO DE LA JUNTA VIAL CANTONAL
 DE LA MUNICIPALIDAD DE POÁS
 CAPÍTULO I
 Generalidades
-Artículo 1º—El presente Reglamento regula la organización y funcionamiento de la Junta Vial del cantón de Poás, que en adelante se identificará como “la Junta Vial”.
+Artículo 1º—El presente Reglamento regula la organización y funcionamiento de la Junta Vial del cantón de Poás, que en adelante se identificará como “la Junta Vial” y el funcionamiento de la Unidad Técnica de Gestión Vial.
+(Así reformado mediante sesión N° 017-2020 del 25 de agosto del 2020)

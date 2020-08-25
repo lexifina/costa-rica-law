@@ -14,3 +14,4 @@ Reglamento Municipal para la Organización y Funcionamiento de La Junta Vial Can
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-01-05 | la propia norma |
+| 2 | 2020-08-25 | Reglamento municipal 17 (2020-08-25) |
