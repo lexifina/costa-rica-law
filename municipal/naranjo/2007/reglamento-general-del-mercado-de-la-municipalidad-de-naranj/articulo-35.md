@@ -1,1 +1,0 @@
-Artículo 35.—Los locales que funcionan exclusivamente como bares o cantinas se le aplicará la normativa establecida en la Ley Nº 7027 del 4 de abril del año 1986 al cambiar su adjudicatario, se cancelará el destino para el cual fue autorizado, por lo que su actividad principal de venta de licores no será autorizada al nuevo adquiriente.

@@ -1,1 +1,0 @@
-Artículo 24.—Todo inquilino deberá mantener su local bien presentado y en máximas condiciones higiénicas y de seguridad y deberá acatar de oficio las recomendaciones técnicas del Departamento de Construcciones y de la Administración para lograr esos objetivos.

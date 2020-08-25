@@ -1,1 +1,0 @@
-Artículo 2º—Todos los inquilinos firmarán un nuevo contrato de arrendamiento con la Municipalidad, a partir de la publicación de este nuevo Reglamento, para el período del quinquenio que iniciará en enero del 2008, el cual podrá prorrogarse en forma automática por periodos iguales, si ninguna de las partes firmantes lo objetan antes de tres meses a su vencimiento.

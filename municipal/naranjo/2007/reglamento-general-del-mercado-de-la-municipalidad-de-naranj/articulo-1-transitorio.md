@@ -1,3 +1,0 @@
-Disposiciones transitorias
-Artículo 1º—A partir de la entrada en vigencia del presente Reglamento, los arrendatarios pagarán por concepto de alquiler la suma de dos mil setecientos noventa y un colones con cuarenta y cuatro céntimos por metro cuadrado arrendado, durante el actual período 2007, hasta la nueva recalificación del próximo quinquenio, con base a la Ley Nº 2428 del 14 de setiembre de 1959 reformada por la Ley Nº 7027 del 4 de abril de 1986, Ley de Arrendamientos de Locales en Mercados Municipales.
-La recalificación por medio del quinquenio inicia a partir de la fecha de publicación del presente Reglamento.

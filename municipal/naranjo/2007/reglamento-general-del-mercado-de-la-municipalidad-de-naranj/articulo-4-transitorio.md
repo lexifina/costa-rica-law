@@ -1,1 +1,0 @@
-Artículo 4º—El presente Reglamento rige a partir de su publicación en el Diario Oficial La Gaceta, y deroga el Reglamento vigente publicado en La Gaceta Nº 43, del miércoles tres de marzo de mil novecientos noventa y nueve.
