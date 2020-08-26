@@ -1,0 +1,6 @@
+Artículo 9º—Condiciones para el uso de caja chica. La compra de bienes o servicios se tramitará por el fondo de caja chica, solamente cuando se dé alguna de las siguientes condiciones:
+a. Que en bodega no haya existencia del bien que se solicita. Por ningún motivo se tramitarán las adquisiciones o compras de bienes y servicios, cuando la bodega del CCDRJ mantenga existencias de los artículos solicitados.
+b. Cuando ninguna dependencia o persona funcionaria del CCDRJ, según sus funciones, está en posibilidades de prestar el servicio de que se trate.
+c. Si el bien o servicio es de urgente necesidad, siempre que existan razones fundadas para admitir que no hubo imprevisión por parte de la administración del CCDRJ.
+d. Si existe contenido económico con cargo a la subpartida respectiva o presupuestaria, no pudiendo exceder el monto del fondo asignado.
+La Junta Directiva del CCDRJ deberá planificar anualmente sus compras y fijar fechas límites para que las unidades usuarias realicen los pedidos de los bienes y servicios que requieren con el fin de evitar situaciones que provoquen la incorrecta calificación de “urgente necesidad” para la adquisición de esos bienes y servicios, y la consecuente intención de utilización de fondos de la caja chica.

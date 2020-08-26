@@ -1,0 +1,1 @@
+Artículo 22.—Presencia de la persona responsable de la caja chica. Todo arqueo de caja chica se realizará en presencia de la persona responsable del fondo, quien tendrá el derecho de pedir una segunda verificación, si mantiene dudas sobre el resultado obtenido.

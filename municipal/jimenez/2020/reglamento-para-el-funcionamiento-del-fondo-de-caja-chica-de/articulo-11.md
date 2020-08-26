@@ -1,0 +1,1 @@
+Artículo 11.—Prohibición de fraccionamiento. Por ningún motivo se aceptará el fraccionamiento ilícito en las compras de caja chica. Esta fragmentación se refuta ilícita cuando se realiza más de una compra para el mismo objeto con los fondos de caja chica, con los efectos de evadir el procedimiento de adquisición de bienes y servicios establecido en la Ley N° 7494.

@@ -1,0 +1,4 @@
+Artículo 28.—Falta grave de las restantes personas funcionarias del CCDRJ. Se considerará como falta grave, la cual será sancionada según lo dispuesto en este reglamento, si la persona funcionaria del CCDRJ incurre en alguna de las siguientes conductas:
+a. Al superior jerárquico de la persona encargada del fondo de caja chica, cuando promueva, consienta el incumplimiento de este reglamento, o conocedor de acciones antirreglamentarias no genera las acciones correctivas correspondientes.
+b. Al encargado de caja chica cuando con otra persona, funcionaria del CCDRJ, para adueñarse ilegítimamente de los recursos de caja chica o de los bienes y servicios adquiridos con esos recursos.
+c. Quien se apropie ilegítimamente de los recursos de caja chica o de los bienes y servicios adquiridos con esos recursos.

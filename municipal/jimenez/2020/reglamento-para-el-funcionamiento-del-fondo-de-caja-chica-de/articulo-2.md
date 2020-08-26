@@ -1,0 +1,16 @@
+Artículo 2º—Definiciones. Cuando en este reglamento se empleen términos y definiciones, debe dárseles las acepciones que se señalan a continuación:
+a. Caja chica: Monto de dinero en efectivo, fijado por la Junta Directiva, disponible en las oficinas del CCDRJ ubicadas en el Distrito de Juan Viñas, para hacer las compras menores urgentes, necesarias e inmediatas.
+b. Arqueo de caja chica: Verificación del cumplimiento de la normativa y reglamentación que rige la caja chica. Es la constatación de que la documentación que da soporte a los egresos concuerda con los montos autorizados por la caja chica y que el fondo existente en el momento de la verificación totalice en comprobante y efectivo.
+c. Bienes y servicios de uso común: Son los bienes y servicios de uso periódico y repetitivo, utilizados en las operaciones regulares, cotidianas y legales propias del CCDRJ.
+d. Caso fortuito: Un hecho imprevisible e incalculable, que sobreviene de sorpresa en el comportamiento de la persona, de manera que provoca un resultado que, con las precauciones notorias, no podía evitarse.
+e. Compra menor: Es la adquisición de bienes y servicios de menor cuantía, que no superen los límites preestablecidos para los valores de caja chica y cuya necesidad institucional sea urgente y requiere atención inmediata.
+f. Dependencia usuaria del servicio: Se denomina como tal la dirección, departamento o unidad que requiera la adquisición de un bien o servicio de uso común y menor cuantía.
+g. Fuerza mayor: Fuerza natural o eventualmente humana, que no ha podido ser prevista y que por su potencia física o jurídica hace que la persona se encuentre impotente –según sus capacidades-para impedir que surja o interfiera con su acción, por lo que la libera de su responsabilidad frente a la víctima de un resultado dañoso.
+h. Fondo de caja chica: cantidad de dinero para la adquisición de bienes y servicios que son de uso común y que no hay en existencia en la bodega del CCDRJ.
+i. Liquidación: Rendición de cuentas que efectúa la persona responsable del vale de caja chica mediante presentación de los comprobantes originales que sustentan las adquisiciones o servicios recibidos.
+j. Persona encargada de caja chica: La persona funcionaria del CCDRJ, con nombramiento regular, que ha sido designada por la Junta Directiva como responsable de la custodia y administración del fondo de caja chica, sea de manera permanente o temporal.
+k. Reintegro de fondos: Reaprovisionamiento de dinero que se efectúa a la persona responsable del fondo de caja chica para reembolsar los gastos efectuados.
+l. Viáticos: Son los gastos de alimentación, transporte y hospedaje por viaje en el interior del país, que se pagarán por medio de este fondo, siempre y cuando no supere el monto máximo establecido para el vale, y que estén contemplados en el Reglamento de Funcionamiento del CCDRJ, en apego a lo establecido en el Reglamento de Gastos de Viaje y Transporte para Funcionarios Públicos emitido por la Contraloría General de la República.
+m. Vale: Adelanto de dinero dado para adquirir bienes o servicios, debidamente autorizados.
+n. Póliza: Póliza de fidelidad que debe presentar el responsable del manejo de la caja chica
+l. CCDRJ Comité Cantonal de Deportes y Recreación de Jiménez.
