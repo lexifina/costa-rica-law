@@ -1,0 +1,1 @@
+Artículo 2.- Ámbito de aplicación. El presente reglamento será aplicable a las personas jurídicas señaladas en el artículo 2 de la Ley N° 9699, Ley de Responsabilidad de las Personas Jurídicas sobre Cohechos Domésticos, Soborno Transnacional y Otros Delitos.

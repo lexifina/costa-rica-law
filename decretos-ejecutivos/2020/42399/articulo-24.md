@@ -1,0 +1,2 @@
+Artículo 24.- De la cultura de la ética al interior de las personas jurídicas de pequeñas y medianas dimensiones. Con la incorporación del Modelo se procurará promover un mayor arraigo de los principios de integridad y transparencia al interior de las personas jurídicas, así como el respeto a la ética y los valores de la persona jurídica de pequeñas y medianas dimensiones en todos los niveles de su estructura jerárquica.
+Desde la alta dirección debe manifestarse un compromiso y liderazgo real y constatable con las medidas contra la corrupción previstas en el Modelo.
