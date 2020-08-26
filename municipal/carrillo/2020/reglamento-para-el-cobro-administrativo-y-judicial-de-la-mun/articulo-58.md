@@ -1,0 +1,1 @@
+Artículo 58º.El día hábil siguiente al remate, el abogado deberá de informar por escrito a la Sección de Cobros, el resultado del remate. De no cumplir con lo expuesto con anterioridad se le aplicara la sanción de incumplimiento de deberes y las firmes responsabilidades.

@@ -1,0 +1,3 @@
+Capítulo II
+Organización Institucional para la Gestión del Cobro Administrativo
+Artículo 3: Funciones de la Gestión Tributaria: la función de la gestión tributaria es lograr el máximo cumplimiento voluntario de todos los deberes y obligaciones tributarias de los contribuyentes de la Municipalidad, mediante el desarrollo de un conjunto de acciones cuyo propósito es la implementación y ejecución de sistemas de procedimientos eficientes de planificación, coordinación y control. Dentro de éste marco, le corresponde todo lo relacionado con la gestión, recaudación y fiscalización de las obligaciones tributarias municipales.

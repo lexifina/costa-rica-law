@@ -1,0 +1,1 @@
+Artículo 37º. Responsable de Actualización de las Tarifas: Esta actividad corresponde al Departamento Financiero Administrativo, por cuanto disponen de la información para estimar el costo efectivo proyectado y por no causar conflicto de intereses con el personal tributario en la actualización de los montos.

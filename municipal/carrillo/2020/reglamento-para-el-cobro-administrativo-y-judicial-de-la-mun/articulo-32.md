@@ -1,0 +1,1 @@
+Artículo 32º. Inclusión de los arreglos de pago en las certificaciones de pago de tributos municipales: Cuando un contribuyente solicite una certificación de la Contabilidad Municipal, y mantenga un arreglo de pago sobre su morosidad, deberá indicarse en la certificación la existencia del arreglo y su condición de si está al día o no.

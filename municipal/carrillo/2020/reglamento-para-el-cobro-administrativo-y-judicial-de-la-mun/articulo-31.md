@@ -1,0 +1,1 @@
+Artículo 31º. Sobre la documentación relacionada con los arreglos de pago: Toda la documentación que haya sido requerida por la Sección de Cobro para la suscripción del arreglo de pago, será agregada al expediente y debidamente foliada, para su conservación.

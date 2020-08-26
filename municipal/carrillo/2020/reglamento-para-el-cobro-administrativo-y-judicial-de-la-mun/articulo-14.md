@@ -1,0 +1,1 @@
+Artículo 14º. Formas de extinción de la obligación tributaria municipal: La obligación tributaria municipal se extingue por cualquiera de los siguientes medios: Pago efectivo, Confusión, Compensación, Condonación y Prescripción. Definidos estos términos de conformidad con los artículos del 5, 35° al 56° del Código de Normas y Procedimientos Tributarios

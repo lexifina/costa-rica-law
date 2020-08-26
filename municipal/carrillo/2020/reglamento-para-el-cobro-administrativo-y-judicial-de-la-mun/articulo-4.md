@@ -1,0 +1,9 @@
+Artículo 4º. Dependencias Involucradas en Hacienda Municipal: Las áreas municipales que tienen competencia en la Coordinación de Hacienda son todas aquellas que realizan acciones vinculadas con la gestión de tributos, tasas y servicios. La Dirección Financiera Administrativa tiene a su cargo al departamento de Hacienda Municipal que a su vez está integrado por las siguientes Secciones:
+a. Sección de Catastro: su función principal es mantener actualizado la información documental y digital de todas las propiedades que existen en el cantón.
+b. Sección de Bienes Inmuebles: es la encargada de incluir fincas nuevas y mantener actualizada el valor de los diferentes predios en el cantón.
+c. Sección de Ingresos Tributarios y no Tributarios: Se encarga de tramitar, resolver, calcular y gestionar todo lo relacionado con servicios urbanos, cánones y bienes inmuebles, así como determinar el costo efectivo de los servicios internos y externos que brinda la municipalidad de Carrillo de tal forma que los registros reflejen los insumos directos e indirectos utilizados en la producción de proyectos.
+d. Sección de Patentes: es la encargada de regular y fiscalizar toda aquella persona física o jurídica que desarrolla una actividad lucrativa en el cantón.
+e. Sección de Cobros: es la encargada de realizar la recaudación de todos los impuestos y servicios que brinda la Municipalidad.
+f. Sección de Inspecciones: es la encargada de realizar las gestiones de inspección y notificación de todas las actuaciones a los contribuyentes y sujetos pasivos para informarles de sus obligaciones tributarias.
+g. Sección de Zona Marítima Terrestre: es la encargada de gestionar los expedientes de solicitud de concesión en la zona marítimo terrestre
+h. Plataforma de Servicios: es la encargada de brindar la información que el contribuyente y sujeto pasivo requiere sobre los diferentes trámites municipales.

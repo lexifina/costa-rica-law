@@ -1,0 +1,3 @@
+Artículo 6º. Naturaleza de las acciones de cobro: la Sección de Cobros realizará acciones de cobro de tres tipos, preventivo, administrativo y judicial Serán sujeto de acciones de cobro preventivo aquellas cuentas que no han cumplido a la su fecha de vencimiento.
+De cobro administrativo las obligaciones que se encuentren vencidas con la Municipalidad y que tengan un trimestre vencido, estas serán notificadas en dos oportunidades, según la ley de notificaciones vigente.
+Para el trámite de cobro judicial las cuentas a las cuales se les realizo todo el proceso de cobro administrativo y este no surtió efecto esperado, tendrán un plazo improrrogable de cinco días hábiles, una vez que los expedientes hayan sido recibidos por el abogado externo designado.

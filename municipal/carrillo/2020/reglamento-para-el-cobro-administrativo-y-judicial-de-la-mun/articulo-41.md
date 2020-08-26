@@ -1,0 +1,1 @@
+Artículo 41º.De la Divulgación de la estrategia de cobro: El Coordinador de Hacienda en coordinación con el personal de cobros definirá las formas y medios de divulgar en los contribuyentes la estrategia de cobro anual a aplicar por parte de la Municipalidad.
