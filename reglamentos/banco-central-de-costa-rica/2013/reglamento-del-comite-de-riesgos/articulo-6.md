@@ -1,1 +1,2 @@
-Artículo 6º—Quórum. El quórum de las sesiones del Comité de Riesgos, ordinarias o extraordinarias, se formará con los tres miembros votantes o sus suplentes designados. Los acuerdos se adoptarán por mayoría de votos y es indispensable el voto favorable del Presidente de la Junta Directiva, salvo disposición legal en contrario.
+Artículo 6. Quórum. El quórum de las sesiones del Comité de Riesgos, ordinarias o extraordinarias, se formará con dos de los miembros votantes. Los acuerdos se adoptarán por mayoría de votos.
+(Así reformado mediante sesión N° 5954-2020 del 26 de agosto de 2020)
