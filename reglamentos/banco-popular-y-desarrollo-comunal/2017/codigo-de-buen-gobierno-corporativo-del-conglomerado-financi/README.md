@@ -17,3 +17,4 @@ Código de Buen Gobierno Corporativo del Conglomerado Financiero Banco Popular y
 | 2 | 2017-06-14 | Reglamento 5471 (2017-06-14) |
 | 3 | 2019-01-23 | Reglamento 5610 (2019-01-23) |
 | 4 | 2020-03-23 | Reglamento 5719 (2020-03-23) |
+| 5 | 2020-08-26 | Reglamento 5762 (2020-08-26) |
