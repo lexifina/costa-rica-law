@@ -14,3 +14,4 @@ Publica Resolución N° 401-2018 (COMIECO-LXXXIII) de fecha 28 de junio de 2018 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-12-20 | la propia norma |
+| 2 | 2020-08-26 | Decreto Ejecutivo 42605 (2020-08-26) |

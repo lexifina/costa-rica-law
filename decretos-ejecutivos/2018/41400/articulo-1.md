@@ -26,12 +26,9 @@ RESUELVE:
 Aprobar el Reglamento Técnico Centroamericano RTCA 65.05.67:18 INSUMOS AGRÍCOLAS.
 INGREDIENTE ACTIVO GRADO TÉCNICO, PLAGUICIDAS QUÍMICOS FORMULADOS, SUSTANCIAS AFINES, COADYUVANTES Y VEHÍCULOS FÍSICOS DE USO AGRÍCOLA. REQUISITOS PARA LA ELABORACIÓN DE ETIQUETAS Y PANFLETOS, el cual modifica, por sustitución total, el RTCA 65.05.67:13 INSUMOS AGRÍCOLAS. INGREDIENTE ACTIVO GRADO TÉCNICO, PLAGUICIDAS QUÍMICOS FORMULADOS, SUSTANCIAS AFINES, COADYUVANTES Y VEHÍCULOS FÍSICOS DE USO AGRÍCOLA. REQUISITOS PARA LA ELABORACIÓN DE ETIQUETAS Y PANFLETOS, aprobado mediante la Resolución No. 365-2015 (COMIECO-LXXII), del 24 de junio de 2015, en la' forma que aparece en el Anexo de la presente Resolución y que forma parte integrante de la misma.
 Se deroga la Resolución No. 365-2015 (COMIECO-LXXII), del 24 de junio de 2015.
-[imagen]
 3. La presente Resolución entrará en vigencia el 20 de diciembre de 2018 y será publicada por los Estados Parte.
 San José, Costa Rica, 28 de junio de 2018
-[imagen]
 infrascrito Secretario General de la Secretaría de Integración Económica Centroamericana (SIECA) CERTIFICA: Que las dos (2) fotocopias que anteceden a la presente hoja de papel bond, impresas únicamente en su anverso, así como las veintiocho (28) hojas del anexo adjunto, impresas de ambos lados, todas rubricadas y selladas con el sello de la SIECA, reproducen fielmente la Resolución No. 401-2018 (COMIECO-LXXXIII), adoptada por el Consejo de Ministros de Integración Económica, el veintiocho de junio de dos mil dieciocho, de cuyos originales se reprodujeron. Y para remitir a los Estados Parte para su correspondiente publicación, extiendo la presente copia certificada en la ciudad de Guatemala, el seis de julio de dos mil dieciocho. ----
-[imagen]
 REGLAMENTO TÉCNICO RTCA 65.05.67:18
 CENTROAMERICANO ICS 65.100
 Rs Revisión
@@ -609,7 +606,8 @@ Si la Autoridad Nacional Competente (ANC) verifica que la etiqueta aprobada por 
 13.2 Los requisitos expresados en este reglamento son la totalidad de requisitos, que las ANC requerirán para aprobare] etiquetado de los productos regulados en el presente reglamento.
 14. TRANSITORIO
 14.1 Transitorio I.
-DE LOS ADMINISTRADOS: Los administrados tendrán un plazo de hasta 2 años (24 meses) a partir de la entrada en vigencia de este reglamento, para presentar los requisitos de actualización de Etiqueta y Panfleto establecidos en el presente reglamento.
+De los administrados: Los administrados tendrán un plazo hasta el 30 de junio de 2022, para presentar los requisitos de actualización de Etiqueta y Panfleto establecidos en el presente reglamento. En el caso de Nicaragua, dicho plazo será hasta el 31 de diciembre de 2021, para presentar los requisitos de actualización de Etiqueta y Panfleto establecidos en el presente reglamento.
+(Así reformado el párrafo anterior mediante resolución N° 424-2020 (COMIECO-XCI) del 23/06/2020 que aprobó modificación del primer párrafo del Transitorio I del Reglamento Técnico Centroamericano RTCA 65.05.67:18 Insumos Agrícolas. Ingrediente Activo Grado Técnico, Plaguicidas químicos formulados, sustancias afines, aprobado mediante decreto ejecutivo N° 42605 del 26 de agosto del 2020)
 DE LAS AUTORIDADES NACIONALES COMPETENTES (ANC): Posterior a la presentación de los requisitos correspondientes por parte de los administrados, la ANC tendrá un plazo de hasta 1 año (12 meses) para evaluar la información presentada por el administrado y emitir la Resolución de aprobación o negación de etiquetas y panfletos.
 PLAZO PARA AGOTAR EXISTENCIAS DE ETIQUETAS Y PANFLETOS:
 Una vez que el administrado recibe la Resolución de aprobación por parte de la ANC, tendrá hasta un año (12 meses) para agotar existencias de las etiquetas y panfletos. Durante los plazos de éste transitorio, se podrá comercializar los productos nacionales e importados con las etiquetas y panfletos aprobados con reglamentos anteriores.
@@ -622,8 +620,6 @@ En caso de incumplimiento de cualquier plazo indicado en éste transitorio, se p
 ANEXO A
 (NORMATIVO)
 Siglas de la formulación del plaguic
-[imagen]
-[imagen]
 ANEXO B.
 (NORMATIVO)
 Clasificación toxicológica
@@ -631,7 +627,6 @@ Criterio de Clasificación de las sustancias
 Las sustancias se clasifican en cinco categorías de peligro basadas en la toxicidad aguda por ingestión cutánea o inhalación, conforme a los criterios numéricos expresados en valores umbral tal como muestra la tabla siguiente:
 Tabla B.1.
 Categoría de neliro de toxicidad nc
-[imagen]
 NOTAS:
 1. La concentración de los gases se expresa en partes por millón de volumen (ppmV).
 2. Los valores de toxicidad aguda se ennesan en valores (aproximados) de la DLso (ingestión, absorción cutánea) o CLso (inhalación).
@@ -640,39 +635,20 @@ Fuente: GHS/UNITAR NACIONES UNIDAS.
 4. Los productos con DLso mayor de 5000 mg/kg serán clasificados en la categoría 5, en la exposición oral y cutánea.
 5. Los técnicos al aplicar la clasificación toxicológica de las diferentes formas de exposición deberán elegir la clasificación más peligrosa (el valor más tóxico), con el objetivo de proteger la salud y el ambiente siempre que dicha clasificación aplique al producto que se está evaluando.
 Clasificación toxicológica inhalatoria (CL30) se debe aplicar en aquellos productos fumigantes que forman neblina, gas, vapores o polvo.
-[imagen]
 Tabla B.3.
 Color de la banda toxicológica por categoría de peligro de toxicidad aguda según FAO.
-[imagen]
 ANEXO C
 (NORMATIVO)
 Pictogramas de almacenamiento, actividad, precauciones y advertencias de uso, protección del ambiente y de triple lavado.
 A. Almacenamiento:
-[imagen]
 B. Actividad:
-[imagen]
 C. Precauciones y advertencias de uso:
-[imagen]
 D. Protección al ambiente:
-[imagen]
 E. Triple lavado
-[imagen]
 ANEXO D
 (NORMATIVO)
 Modelos de panfletos para plaguicidas químicos fonnulados.
 Modelos de etiquetas para plaguicidas químicos formulados.
 Modelos de panfletos de sustancias afines, coadyuvantes y vehículos fisicos.
 Modelos de etiquetas de sustancias afines, coadyuvantes y vehículos fisicos.
-[imagen]
-[imagen]
-[imagen]
-[imagen]
-[imagen]
-[imagen]
-[imagen]
-[imagen]
-[imagen]
-[imagen]
-[imagen]
-[imagen]
 --FIN DEL REGLAMENTO TÉCNICO---
