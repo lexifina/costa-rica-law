@@ -14,3 +14,4 @@ Reglamento a la Ley de Patentes Municipales del Cantón de Turrubares
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-12-10 | la propia norma |
+| 2 | 2020-08-26 | Reglamento municipal 0 (2020-08-26) |
