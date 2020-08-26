@@ -1,0 +1,1 @@
+Artículo 24—Solicitud de criterios técnicos. Verificados los aspectos preliminares, la URI solicitará a la Dirección Financiera del MEP, el análisis técnico financiero de la documentación que consta en el expediente administrativo, a fin de determinar la capacidad administrativa y financiera del sujeto privado solicitante.

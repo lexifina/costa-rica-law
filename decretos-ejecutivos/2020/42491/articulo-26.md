@@ -1,0 +1,1 @@
+Artículo 26—Otorgamiento de la calificación de idoneidad. - El jerarca comunicará al representante legal del sujeto privado solicitante la decisión, mediante el dictado de un acto administrativo debidamente motivado, por los medios indicados en el expediente.

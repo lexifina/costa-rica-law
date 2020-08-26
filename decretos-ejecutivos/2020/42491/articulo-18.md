@@ -1,0 +1,2 @@
+Artículo 18—Del plazo para recibir las solicitudes de calificación de idoneidad. Los sujetos de derecho privado que la soliciten, deberán presentarla con la documentación completa. Las solicitudes presentadas se considerarán una expectativa de derecho, por lo que no generan obligación alguna a la Administración concedente, salvo el resolver si se autoriza o no.
+La documentación presentada tendrá validez únicamente para el respectivo periodo presupuestario.

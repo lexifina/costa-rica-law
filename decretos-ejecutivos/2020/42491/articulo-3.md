@@ -1,0 +1,1 @@
+Artículo 3—Ámbito de aplicación. El presente Reglamento se aplicará a los procesos y procedimientos en el descrito y que son competencia de la Unidad de Refrendos Internos y Acreditaciones de Idoneidad (URI).

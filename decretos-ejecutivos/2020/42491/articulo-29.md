@@ -1,0 +1,1 @@
+Artículo 29—Designación de fondos públicos. El ser calificado como sujeto idóneo para la administración de fondos públicos, no significa que la Administración está obligada a designar fondos públicos para la ejecución de proyectos y actividades a la organización acreedora de esta calificación.

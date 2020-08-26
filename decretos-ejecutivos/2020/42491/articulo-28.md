@@ -1,0 +1,1 @@
+Artículo 28—Revocación. La Administración concedente podrá revocar la calificación de idoneidad, cuando se varíen las condiciones que dieron origen al otorgamiento o se incumpla algún extremo de los compromisos del sujeto privado.

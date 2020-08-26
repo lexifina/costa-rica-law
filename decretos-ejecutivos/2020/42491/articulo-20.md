@@ -1,0 +1,1 @@
+Artículo 20—Requisitos adicionales para las Asociaciones. Si el sujeto privado solicitante se trata de una Asociación debe presentar además una declaración jurada del representante legal de la organización, en la cual se indique claramente que la entidad está activa, realizando en forma regular proyectos y actividades conducentes a la finalidad para la cual fue creada.

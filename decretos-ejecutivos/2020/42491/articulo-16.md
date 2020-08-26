@@ -1,0 +1,2 @@
+Artículo 16—Sujetos privados susceptibles de transferencias.- Serán sujetos privados idóneos para administrar transferencias genéricas, únicamente las organizaciones sociales sin fines de lucro, legalmente constituidas y registradas en el Registro Nacional como Asociaciones y Fundaciones.
+Además, se consideran sujetos privados habilitados para recibir transferencias, las organizaciones sociales subvencionadas por Ley especial, independientemente de que estén o no constituidas como Asociaciones o Fundaciones.
