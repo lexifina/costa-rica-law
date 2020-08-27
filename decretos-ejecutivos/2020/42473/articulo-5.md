@@ -1,0 +1,1 @@
+Artículo 5º—De la gratuidad del permiso. Todos los permisos de uso que se otorguen en razón del presente reglamento se entenderán a título de precario y gratuito. Ello no significa que este Ministerio no pueda establecer términos y condiciones a cargo del prestatario, como asumir el pago de los servicios.

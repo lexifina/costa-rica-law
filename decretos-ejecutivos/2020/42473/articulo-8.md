@@ -1,0 +1,1 @@
+Artículo 8º—Del seguimiento a la utilización de los bienes facilitados en préstamo. Las unidades administrativas de ambas instituciones serán las responsables de brindar el seguimiento a la utilización de los bienes dados en calidad de préstamo y su correcta devolución a este Ministerio.

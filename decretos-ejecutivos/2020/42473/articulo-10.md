@@ -1,0 +1,1 @@
+Artículo 10.—De la terminación por decisión del ente prestatario. El ente prestatario puede desocupar en cualquier momento las instalaciones facilitadas en préstamo, indicando los motivos con al menos un mes de anticipación.

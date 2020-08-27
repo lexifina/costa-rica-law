@@ -1,0 +1,1 @@
+Artículo 13.—Vigencia de los convenios en ejecución. Los convenios de préstamo de uso en precario, aprobados y que se encuentren en ejecución a la entrada en vigencia del presente reglamento, mantendrán los mismos términos y condiciones en que fueron suscritos, hasta su finalización, exceptuando los del del artículo 12 anterior.

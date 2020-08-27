@@ -1,0 +1,1 @@
+Artículo 14.—Plazo para ajustarse a la presente regulación cuando no existe convenio vigente. Aquellas infraestructuras que están siendo utilizadas en precario sin convenio vigente, deberán ajustarse a la presente regulación en un plazo máximo de doce meses contados a partir de la publicación del presente decreto.

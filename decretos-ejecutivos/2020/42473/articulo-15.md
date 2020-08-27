@@ -1,0 +1,1 @@
+Artículo 15.—Derogatoria. Se deroga el Decreto Ejecutivo 40504-MAG del 02 de junio del año 2017, publicado en el Alcance 180 de la Gaceta número 140 del 24 de julio del 2017 denominado: “Reglamento para el préstamo, asignación, uso y control de bienes inmuebles del Ministerio de Agricultura y Ganadería”.

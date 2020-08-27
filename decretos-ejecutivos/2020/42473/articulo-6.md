@@ -1,0 +1,1 @@
+Artículo 6º—Del objeto del uso. El derecho de utilización que genera el préstamo de uso regulado en el presente reglamento, ostenta un carácter precario, producto de la simple tolerancia de la Administración, que actúa en ejercicio de su poder discrecional.

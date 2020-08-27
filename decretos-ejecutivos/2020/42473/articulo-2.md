@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de aplicación. El presente reglamento es aplicable a las edificaciones, oficinas, apartamentos, casas y terrenos, que se ubican en bienes inmuebles que forman parte del patrimonio del Ministerio de Agricultura y Ganadería y sus órganos adscritos.
