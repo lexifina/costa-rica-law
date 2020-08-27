@@ -1,0 +1,1 @@
+ARTÍCULO 4- El Benemérito Cuerpo de Bomberos tendrá un plazo de diez años a partir de la entrada en vigencia de la presente ley para construir la Estación de Bomberos de Hojancha; caso contrario, el dominio volverá a la Municipalidad de Hojancha.

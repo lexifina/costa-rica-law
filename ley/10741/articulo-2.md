@@ -1,0 +1,1 @@
+ARTÍCULO 2- Se desafecta de dominio público el terreno segregado en el artículo anterior y se autoriza a la Municipalidad de Hojancha para que lo done al Benemérito Cuerpo de Bomberos de Costa Rica, cédula jurídica número tres- cero cero sietequinientos cuarenta y siete mil sesenta (N.0 3-007-547060).
