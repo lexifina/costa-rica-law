@@ -10,4 +10,7 @@ h) El material genético animal.
 i) El material biotecnológico de origen animal o para su uso.
 j) Los desechos de las actividades productivas reguladas por el Senasa que, a criterio de este, presenten un riesgo epidemiológico o veterinario.
 k) Cualquier otro que el Senasa considere pertinente establecer.
+Al crear y ejecutar estos sistemas de trazabilidad/rastreabilidad, el Senasa deberá valorar, técnicamente desde la perspectiva sanitaria, si resulta indispensable incorporar los productos mencionados en este artículo, incluidos los animales vivos, cuando estos no forman parte de una operación comercial. Cuando no sea indispensable estos productos serán excluidos del sistema.
+(Así adicionado el párrafo anterior por el artículo 1° de la Ley para la protección de la micro, pequeña y mediana producción pecuaria, N° 9876 del 27 de agosto del 2020)
 Los sistemas de trazabilidad/rastreabilidad vigilados y supervisados por el Senasa comprenderán todas las etapas de producción, transformación, transporte, importación, exportación y distribución mayorista, de los productos indicados anteriormente.
+(Así reformado el párrafo anterior por el artículo 1° de la Ley para la protección de la micro, pequeña y mediana producción pecuaria, N° 9876 del 27 de agosto del 2020)
