@@ -1,0 +1,1 @@
+ARTÍCULO 2- Se afecta su nuevo uso público común para zona recreativa y comunal cuyo titular será la Municipalidad de Cartago, cédula jurídica tres-cero uno cuatro-cero cuatro dos cero ocho cero (N.° 3-014-042080).
