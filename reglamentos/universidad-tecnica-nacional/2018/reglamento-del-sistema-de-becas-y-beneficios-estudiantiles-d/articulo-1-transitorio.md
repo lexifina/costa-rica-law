@@ -1,2 +1,2 @@
-Transitorio 1.- Desde el primero de mayo y hasta el 31 de diciembre del 2020, no se aplicarán las disposiciones contenidas en los artículos 35, 44, 53, a raíz de las situaciones originadas como consecuencia de la pandemia COVID-19.
+Transitorio 1.- (Dejado sin efecto en sesión N° 19 del 27 de agosto de 2020. Asimismo en dicha sesión se indica que se aplicarán nuevamente las disposiciones contenidas en los artículos 35 y 44 del Reglamento de Becas y Beneficios Estudiantiles)
 (Así adicionado mediante sesión ordinaria 7-2020 del 16 de abril del 2020)
