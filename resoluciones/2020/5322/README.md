@@ -16,3 +16,4 @@ Establece disposiciones sanitarias dirigidas a las personas extranjeras que ingr
 | 1 | 2020-08-03 | la propia norma |
 | 2 | 2020-08-06 | Resolución 5350 (2020-08-06) |
 | 3 | 2020-08-12 | Resolución 5352 (2020-08-12) |
+| 4 | 2020-08-27 | Resolución 5429 (2020-08-27) |
