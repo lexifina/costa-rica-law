@@ -1,0 +1,3 @@
+ARTICULO 3- Limitaciones
+El terreno descrito será utilizado, únicamente, para construir un edificio con aulas y oficinas de trabajo, salas de reuniones para la Asociación Inclusiva Laboral de Personas con Discapacidad de Pérez Zeledón, pensando en la sostenibilidad y la perdurabilidad de esta. La Asociación realiza constantes charlas, seminarios y talleres enfocados al empoderamiento de la población con discapacidad, así como el ejercicio real de la autonomía de esta población.
+En caso de que no se cumpla el objetivo de la donación o si la Asociación llega a disolverse, el terreno descrito en el artículo 1 de la presente ley volverá a la propiedad de la Municipalidad de Pérez Zeledón.
