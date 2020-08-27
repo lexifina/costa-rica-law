@@ -1,1 +1,0 @@
-Artículo 16.—Del desperfecto del hidrómetro. En los casos en que por cualquier circunstancia el hidrómetro sufra desperfectos que impidan el registro de los consumos de agua, al abonado se le cobrará de acuerdo con el promedio de consumo normal de los últimos cuatro meses más representativos, asumiendo la Municipalidad en su totalidad el exceso producido.

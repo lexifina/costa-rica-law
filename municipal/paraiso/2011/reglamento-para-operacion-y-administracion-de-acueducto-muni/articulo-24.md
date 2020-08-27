@@ -1,1 +1,0 @@
-Artículo 24.—De la recaudación. La Municipalidad recaudará los dineros por servicio de agua potable, así como los pagos correspondientes por derechos de conexión, re conexión, intereses y otros ingresos. Esto lo hará por medio de los entes recaudadores.

@@ -1,1 +1,0 @@
-Artículo 23.—Del vencimiento del pago. El servicio de agua potable será cobrado por mes vencido y en un solo pago con treinta días naturales contados a partir de la fecha en que se ponga al cobro. Vencido dicho plazo, tendrá que cancelar intereses, los cuales serán acumulativos y se iniciara el proceso de suspensión del servicio.

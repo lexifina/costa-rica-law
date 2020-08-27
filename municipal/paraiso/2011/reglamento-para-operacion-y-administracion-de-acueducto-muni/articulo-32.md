@@ -1,1 +1,0 @@
-Artículo 32.—De la reinstalación. Para reinstalar un servicio que haya sido eliminado el abonado deberá tramitar una nueva paja de agua cumpliendo con los requisitos que exija la Administración activa, así como cancelar la deuda pendiente.
