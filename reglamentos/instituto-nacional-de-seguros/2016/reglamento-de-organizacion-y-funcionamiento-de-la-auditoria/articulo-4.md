@@ -1,8 +1,5 @@
-Artículo 4º—Del Reglamento y sus Modificaciones. Se establecen las siguientes obligaciones respecto al reglamento y sus modificaciones:
-i. Del Auditor Interno de actualizar, divulgar y cumplir el Reglamento.
-ii. De la Junta Directiva del INS de cumplir y hacer cumplir el Reglamento.
-iii. Del personal de la Auditoría Interna de cumplir el Reglamento en la materia que le concierne.
-iv. Del Auditor Interno, de someter las modificaciones al Reglamento a la aprobación de la Junta Directiva e incorporar, si proceden, las observaciones que ésta realice en la versión final de las modificaciones. Asimismo, de presentar ante la Contraloría General de la República, una certificación de que lo aprobado cumple con la normativa aplicable y una copia certificada del reglamento aprobado por el jerarca, a fin de que este Órgano otorgue su aprobación para la publicación en el Diario Oficial La Gaceta.
-v. De la Junta Directiva, de proponer modificaciones del Reglamento al Auditor Interno, quien si proceden, las avalará y presentará una certificación de que lo aprobado cumple con la normativa aplicable junto con una copia certificada del reglamento aprobado por el Jerarca, ante la Contraloría General de la República, para su aprobación y posterior publicación en el Diario Oficial La Gaceta.
-vi. De la Junta Directiva de aprobar la inclusión de modificaciones al Reglamento, cuando se presenten y proceda realizarlas.
-vii. Del Auditor Interno y de la Junta Directiva, que deben procurar llegar a un acuerdo satisfactorio cuando existan discrepancias de criterio sobre el contenido del reglamento y sus modificaciones. Si el asunto se relaciona con aspectos de la organización de la auditoría interna, deben considerarse las normas internas que regulan esa materia en la institución y de referirse a aspectos funcionales, debe plantearse consulta a la Contraloría General de la República, para que ésta disponga lo procedente.
+CAPÍTULO II
+Sobre la Naturaleza y la Organización de la Auditoría Interna
+SECCIÓN I
+Concepto de la Auditoría Interna
+Artículo 4º—Concepto funcional. La Auditoría Interna es la actividad independiente, objetiva y asesora, que proporciona seguridad al Instituto Nacional de Seguros, puesto que se creó para validar y mejorar sus operaciones. Contribuye a que se alcancen los objetivos institucionales, mediante la práctica de un enfoque sistémico y disciplinado para evaluar y mejorar la efectividad de los procesos de gestión de riesgos, control y dirección en el Instituto Nacional de Seguros, además, proporciona a la ciudadanía una garantía razonable de que la actuación del jerarca y la del resto de la administración se ejecuta conforme al marco legal y técnico y a las sanas prácticas.

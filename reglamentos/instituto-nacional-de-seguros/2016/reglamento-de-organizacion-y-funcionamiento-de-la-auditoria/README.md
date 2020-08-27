@@ -14,3 +14,4 @@ Reglamento de Organización y Funcionamiento de la Auditoría Interna
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-12-13 | la propia norma |
+| 2 | 2020-08-27 | Reglamento 9609 (2020-08-27) |

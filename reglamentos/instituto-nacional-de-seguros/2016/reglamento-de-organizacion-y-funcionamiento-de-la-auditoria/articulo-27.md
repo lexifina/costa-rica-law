@@ -1,2 +1,1 @@
-Artículo 27°—Trámites sobre asuntos administrativos. Le corresponde al Presidente Ejecutivo aprobar las vacaciones y permisos del Auditor Interno.
-Asimismo al Auditor Interno le corresponde la aprobación de dichos asuntos administrativos del Subauditor Interno, o bien al Presidente Ejecutivo en ausencia del Auditor Interno.
+Artículo 27°—Pericia y debido cuidado profesional. El personal de la Auditoría Interna debe ejecutar sus funciones con el debido cuidado, pericia, juicio y ética profesional, con apego a la normativa legal y técnica aplicable, a los procedimientos e instrucciones emitidas por el Auditor Interno, debiendo mantener y perfeccionar sus capacidades y competencias profesionales mediante la participación en programas de capacitación continua.

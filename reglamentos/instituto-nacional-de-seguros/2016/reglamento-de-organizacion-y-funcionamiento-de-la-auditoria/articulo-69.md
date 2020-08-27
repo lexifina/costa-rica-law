@@ -1,0 +1,1 @@
+Artículo 69°—Procedimientos de investigación. El proceso de análisis de presuntos hechos irregulares constituye un proceso distinto de los tipos de auditorías que se regulan en las “Normas Generales de Auditoría para el Sector Público”, a saber: auditorías financieras, auditorías operativas y auditorías de carácter especial.

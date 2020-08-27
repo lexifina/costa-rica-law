@@ -1,1 +1,1 @@
-Artículo 56°—Sobre el seguimiento de Advertencias. La Auditoría Interna verificará lo actuado por la Administración respecto de las advertencias que le haya formulado.
+Artículo 56°—Evaluaciones continuas de la calidad. La Auditoría Interna deberá realizar continuamente evaluaciones y monitoreo de la calidad del trabajo de Auditoría, en función de la normativa técnica y jurídica relacionada.

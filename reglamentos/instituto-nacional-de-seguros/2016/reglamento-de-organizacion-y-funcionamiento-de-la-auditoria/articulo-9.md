@@ -1,3 +1,1 @@
-SECCIÓN II
-Independencia y Objetividad
-Artículo 9º—Independencia funcional y de criterio. La actividad de auditoría interna deberá ser ejercida con total independencia funcional y de criterio, respecto del jerarca y de los demás órganos de la Administración Activa.
+Artículo 9°—Archivo Permanente. La Auditoría Interna dispondrá de la información sobre las regulaciones legales y de otro tipo que afecten su ámbito de acción y su actividad como tal, mediante los sistemas de información y archivos impresos, digitales, electrónicos y de cualquier otra naturaleza que sobre el particular mantenga la Institución.

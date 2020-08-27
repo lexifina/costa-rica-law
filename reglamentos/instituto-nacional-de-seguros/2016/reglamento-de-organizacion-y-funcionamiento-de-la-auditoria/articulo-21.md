@@ -1,3 +1,1 @@
-SECCIÓN IV
-Del Auditor y Subauditor Internos
-Artículo 21°—Del Auditor Interno. El Auditor ejerce el máximo nivel de competencia, responsabilidad y autoridad de la Auditoría Interna del Instituto Nacional de Seguros. El Auditor Interno responderá por su gestión ante la Junta Directiva y, en lo conducente ante el Comité de Auditoría Corporativo del Grupo INS y la Contraloría General de la República.
+Artículo 21°—Requisitos de los puestos de Auditor y Subauditor Internos. Los requisitos de los puestos de Auditor y Subauditor Internos están definidos en el Manual de perfiles de puestos del Instituto Nacional de Seguros. Dichos requisitos se encuentran conforme a lo establecido en los “Lineamientos sobre gestiones que involucran a la auditoría interna presentadas ante la Contraloría General de la República, aprobados mediante resolución R-CO-83-2018 del 9 de julio del 2018”.

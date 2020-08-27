@@ -1,1 +1,5 @@
-Artículo 33°—Presupuestación de recursos. El Auditor Interno tiene la potestad de establecer los mecanismos de coordinación necesarios para que la Unidad responsable del control del presupuesto institucional mantenga un registro separado del monto asignado y aprobado a la Auditoría Interna, detallado por objeto del gasto, de manera que se controle la ejecución y las modificaciones de los recursos presupuestados para esa unidad.
+CAPÍTULO III
+Sobre el funcionamiento de la Auditoría Interna
+SECCIÓN I
+Competencias, funciones, deberes y potestades
+Artículo 33°—Competencias de la Auditoría Interna. Las competencias de la Auditoría Interna se establecen en el artículo 22 de la Ley General de Control Interno, en la Norma 1.6 de las Normas de Control Interno para el Sector Público y demás normativa señalada en el presente Reglamento.

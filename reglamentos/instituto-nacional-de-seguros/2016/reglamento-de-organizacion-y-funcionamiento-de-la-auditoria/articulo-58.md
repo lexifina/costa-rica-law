@@ -1,4 +1,3 @@
-CAPÍTULO IV
-Sistema Específico de Valoración de Riesgo Institucional
-(SEVRI)
-Artículo 58°—Valoración de Riesgo Institucional. La Auditoría Interna debe coadyuvar conforme a sus competencias, en la mejora constante al Sistema Específico de Valoración de Riesgo Institucional del INS, promoviendo mejoras en la valoración del riesgo de los procesos de dirección, de las operaciones y de los sistemas de información del Instituto, en relación con lo estipulado en el artículo 8º de la Ley General de Control Interno Nº 8292 y lo que al respecto establezca la Superintendencia General de Seguros.
+Artículo 58°—Evaluaciones externas de calidad. La Auditoría Interna deberá someterse por lo menos cada cinco años a una evaluación externa de calidad bajo alguna de las siguientes modalidades:
+a) Revisión externa de la calidad: esta revisión debe ser efectuada por un sujeto calificado, independiente y externo a la institución.
+b) Autoevaluación de la calidad con validación independiente. Es aquella mediante la que un sujeto calificado, independiente y externo a la institución determina si de conformidad con las regulaciones aplicables, el proceso de autoevaluación efectuado por la Auditoría Interna es adecuado y las afirmaciones sobre el grado de cumplimiento de la normativa son razonables.

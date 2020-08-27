@@ -1,3 +1,1 @@
-CAPÍTULO VI
-Disposiciones finales
-Artículo 62°—Derogatoria. El presente Estatuto deroga el Reglamento de Organización y Funcionamiento de la Auditoría del Instituto Nacional de Seguros, publicado en el Diario Oficial La Gaceta Nº 028 del 08-02-2012.
+Artículo 62°—Admisibilidad de las denuncias. Las denuncias recibidas serán analizadas de acuerdo con los recursos humanos disponibles, el orden en que se presentan, los estudios que se estén ejecutando, el análisis de los riesgos que puedan materializarse y otras variables que puedan estar incluidas en el procedimiento de atención de denuncias.

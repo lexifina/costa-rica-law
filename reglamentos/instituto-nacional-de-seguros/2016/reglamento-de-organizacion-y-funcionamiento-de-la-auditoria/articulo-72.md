@@ -1,0 +1,1 @@
+Artículo 72°—Sobre la Comunicación de resultados. En cuanto a la comunicación verbal de resultados (conferencia final), se debe tener en cuenta que esta no procede efectuarla respecto de las Relaciones de Hechos.

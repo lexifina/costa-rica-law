@@ -1,1 +1,1 @@
-Artículo 63°—Aprobación. Este Reglamento fue aprobado por la Junta Directiva del Instituto Nacional de Seguros en sesión ordinaria No. 9352, artículo IV del 05 de setiembre del 2016.
+Artículo 63°—Admisión de denuncias anónimas. Cuando la denuncia anónima traiga consigo elementos de prueba que den mérito a una investigación, esta será admitida, cuando falten tales elementos la Auditoría debe hacer indagaciones.

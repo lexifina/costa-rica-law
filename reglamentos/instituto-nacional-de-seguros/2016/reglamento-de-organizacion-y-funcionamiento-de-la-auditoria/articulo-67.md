@@ -1,0 +1,1 @@
+Artículo 67°—Resguardo de la identidad del denunciante. Todo papel de trabajo, razón de archivo o comunicación a terceros generado por la Auditoría Interna, resultado de la denuncia que se atienda, debe resguardar en todo momento la identidad del denunciante.

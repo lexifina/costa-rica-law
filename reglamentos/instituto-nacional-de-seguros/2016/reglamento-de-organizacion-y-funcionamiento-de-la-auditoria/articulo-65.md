@@ -1,0 +1,1 @@
+Artículo 65°—Fundamentación del acto de desestimación, archivo o traslado de las denuncias. Deberá existir un acto debidamente motivado en donde se especifiquen los argumentos valorados para desestimar, archivar o trasladar una denuncia.

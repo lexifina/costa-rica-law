@@ -1,1 +1,3 @@
-Artículo 55°—Sobre la evaluación del programa de seguimiento de la Administración Activa. La Auditoría Interna evaluará la efectividad del programa de seguimiento establecido por la Administración para controlar el avance de la implantación de las recomendaciones, así como de las disposiciones de la Contraloría General de la República y demás recomendaciones de otros órganos de control, puestas en su conocimiento y el cumplimiento de los plazos dispuestos.
+SECCIÓN VI
+PROGRAMA DE ASEGURAMIENTO DE LA CALIDAD.
+Artículo 55°—Establecimiento del programa. La Auditoría Interna mantendrá un programa de aseguramiento de la calidad para la actividad de auditoría interna que incluya evaluaciones continuas, autoevaluaciones anuales y evaluaciones externas.
