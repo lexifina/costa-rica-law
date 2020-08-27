@@ -1,4 +1,6 @@
+(Suspendida)
 N° 42484-MOPT-S
+(Este decreto ejecutivo fue suspendido por el artículo 2° del decreto ejecutivo N° 42579 del 27 de agosto del 2020. Dicha suspensión comprende del 31 de agosto al 30 de septiembre de 2020. Asimismo por el numeral 3° del decreto ejecutivo antes referido se establece que el período de la suspensión establecido en el numeral 2° del decreto ejecutivo N° 42579 del 27 de agosto del 2020, los cantones y distritos en alerta naranja, así como la zona fronteriza se regirán por las medidas de restricción vehicular dispuestas en los Decretos Ejecutivos número 42253-MOPT-S del 24 de marzo de 2020 y 42295-MOPT-S del 11 de abril de 2020.)
 EL PRESIDENTE DE LA REPÚBLICA,
 EL MINISTRO DE OBRAS PÚBLICAS Y TRANSPORTES
 Y EL MINISTRO DE SALUD
