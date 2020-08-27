@@ -1,0 +1,5 @@
+TRANSITORIO ÚNICO- Lo dispuesto en el artículo 175 septies Penas Accesorias de la Ley 4573, Código Penal, de 4 de mayo de 1970, adicionado mediante el artículo 5 de la presente ley, entrará en vigencia en un plazo de un año a partir de su publicación.
+Dentro de ese plazo improrrogable, el Ministerio de Justicia y Paz, en coordinación con el Instituto Nacional de las Mujeres (lnamu), deberá diseñar y poner en funcionamiento un programa especializado para la ejecución de las penas accesorias aplicables a los delitos previstos en los artículos 175 ter Exhibicionismo o masturbación en espacios públicos o de acceso público o en un medio de transporte remunerado de personas; 175 quater Persecución o acorralamiento y 175 quinquies Producción de material audiovisual, de la sección IV del título 111 de la Ley 4573, Código Penal, de 4 de mayo de 1970.
+Rige a partir de su publicación.
+Dado en la Presidencia de la República, San José, a los diez días del mes de agosto del año dos mil veinte.
+EJECÚTESE Y PUBLIQUESE.
