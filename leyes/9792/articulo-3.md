@@ -1,0 +1,1 @@
+ARTÍCULO 3- La Municipalidad de Cartago podrá utilizar el área exclusivamente para la construcción de un parque, calzada peatonal, zona deportiva, zona cultural, gimnasio comunal o una combinación de las anteriores, según los fines que más convengan a la comunidad.
