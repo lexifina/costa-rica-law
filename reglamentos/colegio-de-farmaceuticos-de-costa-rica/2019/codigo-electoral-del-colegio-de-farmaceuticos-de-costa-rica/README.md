@@ -14,3 +14,4 @@ Código Electoral del Colegio de Farmacéuticos de Costa Rica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-08-19 | la propia norma |
+| 2 | 2020-08-27 | Reglamento 0 (2020-08-27) |
