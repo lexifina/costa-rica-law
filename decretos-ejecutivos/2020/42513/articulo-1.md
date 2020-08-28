@@ -25,7 +25,7 @@ XVIII. Que en virtud de la potestad que le ha sido asignada, el Poder Ejecutivo 
 XIX. Que el Poder Ejecutivo está llamado a reforzar, con apego a la normativa vigente, las medidas de prevención en el contexto actual generado por el COVID-19. Por consiguiente, el Poder Ejecutivo adopta el presente Decreto Ejecutivo para fijar las disposiciones sobre las cuales se permitirá el ingreso vía aérea de determinadas personas al país frente a las medidas sanitarias en materia migratoria por COVID-19 y así resguardar la salud y la vida de las personas.
 Por tanto,
 DECRETAN
-MEDIDAS DE ADAPTACIÓN PARA EL INGRESO DE PERSONAS EXTRANJERAS AL
-TERRITORIO NACIONAL VÍA AÉREA EN EL MARCO DE LA EMERGENCIA NACIONAL
-SANITARIA POR COVID-19
-ARTÍCULO 1°.-Con apego a los artículos 61 incisos 2) y 6) y 63 de la Ley General de Migración y Extranjería, Ley número 8764 del 19 de agosto de 2009, se permitirá el ingreso al territorio nacional de las personas extranjeras bajo la categoría migratoria de No Residentes, subcategorías Turismo únicamente vía aérea, bajo el debido cumplimiento y verificación por parte de las autoridades competentes de las condiciones establecidas en el presente Decreto Ejecutivo.
+MEDIDAS DE ADAPTACIÓN PARA EL INGRESO DE PERSONAS EXTRANJERAS AL TERRITORIO NACIONAL VÍA AÉREA O MARÍTIMA BAJO LOS SUPUESTOS PERMITIDOS EN EL MARCO DE LA EMERGENCIA NACIONAL SANITARIA POR COVID-19
+(Así modificada su denominación por el artículo 1° del decreto ejecutivo N° 42585 del 28 de agosto del 2020. Anteriormente indicaba: “MEDIDAS DE ADAPTACIÓN PARA EL INGRESO DE PERSONAS EXTRANJERAS AL TERRITORIO NACIONAL VÍA AÉREA EN EL MARCO DE LA EMERGENCIA NACIONAL SANITARIA POR COVID-19”)
+ARTÍCULO 1°.-Con apego a los artículos 61 incisos 2) y 6) y 63 de la Ley General de Migración y Extranjería, Ley número 8764 del 19 de agosto de 2009, se permitirá el ingreso al territorio nacional de las personas extranjeras bajo la categoría migratoria de No Residentes, subcategorías Turismo únicamente vía aérea o marítima mediante yate o velero para fines exclusivamente turísticos, bajo el debido cumplimiento y verificación por parte de las autoridades competentes de las condiciones establecidas en el presente Decreto Ejecutivo.
+(Así reformado por el artículo 2° del decreto ejecutivo N° 42585 del 28 de agosto del 2020)

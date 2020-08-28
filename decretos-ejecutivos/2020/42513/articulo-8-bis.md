@@ -1,4 +1,5 @@
-ARTÍCULO 8° BIS.- Para el caso de las personas extranjeras que cuenten con una permanencia legal autorizada bajo las categorías migratorias de Residencia Permanente, Residencia Temporal, Categorías Especiales o No Residentes subcategoría Estancia y que pretendan ingresar al país vía aérea, deberán cumplir necesariamente las siguientes condiciones para que pueda autorizarse su ingreso al país:
+ARTÍCULO 8° BIS.- Para el caso de las personas extranjeras que cuenten con una permanencia legal autorizada bajo las categorías migratorias de Residencia Permanente, Residencia Temporal, Categorías Especiales o No Residentes subcategoría Estancia y que pretendan ingresar al país vía aérea o marítima mediante yate o velero, deberán cumplir necesariamente las siguientes condiciones para que pueda autorizarse su ingreso al país
+(Así reformado el párrafo anterior por el artículo 9 del decreto ejecutivo N° 42585 del 28 de agosto del 2020)
 a) El formulario denominado Pase de Salud, para el control sanitario correspondiente en el momento de su ingreso al país.
 b) Deberán presentar el documento de identificación migratorio para personas extranjeras vigente (DIMEX) con las excepciones correspondientes que disponga la Dirección General de Migración Extranjería.
 c) El comprobante de pago del aseguramiento a la seguridad social vigente.
