@@ -1,0 +1,4 @@
+CAPÍTULO IV
+Procedimiento de pagos de kilometraje
+Artículo 10.—Conforme con los procedimientos administrativos y los previstos en este Reglamento, el BNCR, a título de contraprestación, reconocerá a los Arrendantes el pago de la tarifa por kilómetro recorrido de cada viaje autorizado en cumplimiento de sus funciones, conforme a la tarifa vigente al momento del viaje autorizado por la Contraloría General de la República.
+Para determinar la cantidad de kilómetros recorridos en el viaje, el BNCR utilizará las herramientas tecnológicas que considere apropiadas para cuantificar la distancia entre el lugar de salida y el destino o destinos del Arrendante autorizados dentro de su gira de trabajo, sin reconocer kilometraje alguno por desvíos hechos por el Arrendante sin que medie caso fortuito o fuerza mayor acreditado debidamente por el Arrendante, conforme a lo previsto en el artículo 12 siguiente.

@@ -1,0 +1,1 @@
+Artículo 8°—Una vez revisada la “Propuesta de Contrato de Arrendamiento de Vehículo a funcionarios del BNCR” por parte de la SAO, se le comunicará al funcionario y a su jefatura inmediata la decisión adoptada.
