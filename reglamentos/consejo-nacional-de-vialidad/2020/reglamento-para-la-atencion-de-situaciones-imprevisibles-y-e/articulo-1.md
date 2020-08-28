@@ -1,4 +1,6 @@
+(Suspendida)
 CONSEJO NACIONAL DE VIALIDAD
+(Esta norma fue suspendida temporalmente y por el plazo de diez días hábiles mediante acuerdo N° 2 del 28 de agosto del 2020)
 “Reglamento para la atención de situaciones imprevisibles y el
 procedimiento de contratación aplicable”
 El Consejo Nacional de Vialidad, en ejercicio de las facultades conferidas en el artículo 5 de la “Ley de Creación del CONAVI” Ley No. 7798 del 29 de mayo de 1998 y el artículo 132 de la “Ley General de la Administración Pública” Ley No. 6227 del 2 de mayo de 1978, y contando con la recomendación legal respectiva, procede a emitir su reglamentación interna para la atención de las situaciones imprevisibles y el procedimiento de contratación aplicable.
