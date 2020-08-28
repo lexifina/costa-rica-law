@@ -1,0 +1,1 @@
+Artículo 2º—Modifíquese el artículo 1°, inciso D) titulado “De Preescolar y I y II Ciclo de la Educación General Básica” para que se elimine el nombre: Escuela CEMPA, provincia: Guanacaste, cantón: Abangares.
