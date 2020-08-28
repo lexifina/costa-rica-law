@@ -1,0 +1,1 @@
+Artículo 7º—Atención presencial. Aquellos contribuyentes que carezcan de medios tecnológicos o destrezas suficientes en informática para la presentación de sus solicitudes por medio de la plataforma TRAVI, pueden gestionar una cita por medio de la línea telefónica designada para ello, con el fin de que su gestión sea atendida por medio de un agente de forma personalizada.

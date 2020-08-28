@@ -1,0 +1,2 @@
+Artículo 8º—Requisitos para la obtención de acceso a la plataforma TRAVI. Para hacer uso de los servicios de la plataforma TRAVI el usuario deberá:
+Ingresar con la clave que le será generada por medio de la plataforma, y digitar sus datos personales, nombre y número de identificación, así como la condición en la que estará actuando, ya sea como contribuyente, representante legal o tercero autorizado.

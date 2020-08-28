@@ -1,0 +1,1 @@
+Artículo 3º—Obligatoriedad de la presentación de solicitudes de gestión por medio de la plataforma TRAVI. Se establece el uso obligatorio de los servicios de la plataforma TRAVI, para la presentación de trámites ante la Administración Tributaria.

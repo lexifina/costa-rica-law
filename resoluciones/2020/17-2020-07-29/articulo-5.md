@@ -1,0 +1,1 @@
+Artículo 5º—Uso de formularios. Que el usuario deberá seguir utilizando los formularios establecidos para cada trámite y cumplir con los requisitos respectivos en cada uno de los procedimientos que la administración ha señalado, adjuntándolos a la solicitud presentada por medio de TRAVI.

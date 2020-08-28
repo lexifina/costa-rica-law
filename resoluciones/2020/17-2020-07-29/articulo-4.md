@@ -1,0 +1,1 @@
+Artículo 4º—Presentación de documentos pertinentes. Que mediante dicha plataforma el usuario o contribuyente, presentará los documentos correspondientes a las gestiones que, al momento de publicación de la presente resolución, ha venido presentando por medio de la cuenta de correo: infoyasistencia@hacienda.go.cr.
