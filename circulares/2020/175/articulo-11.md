@@ -1,0 +1,1 @@
+Artículo 11.—Responsabilidades de las diferentes oficinas del Poder Judicial no jurisdiccionales, en la puesta en marcha de actuaciones judiciales por medios tecnológicos. Las responsabilidades de las diferentes oficinas del poder judicial no jurisdiccionales, en la puesta en marcha de las actuaciones judiciales por medios tecnológicos se incluyen en el Anexo 2.
