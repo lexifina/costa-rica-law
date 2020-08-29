@@ -1,0 +1,10 @@
+ARTÍCULO 4- De la segunda finca, inscrita bajo el sistema de folio real matrícula tres - seis ocho cuatro cero cero - cero cero cero (3-68400-000), que mide cincuenta y dos hectáreas (52 ha), aproximadamente, serán segregadas y distribuidas las porciones de terreno que se dirán a continuación, previa realización de los estudios adecuados de uso de suelo y reservas de ley que el Ministerio de Agricultura y Ganadería (MAG) deberá coordinar con el Instituto de Desarrollo Rural (lnder), para proceder de la siguiente manera:
+a) Para fines de parcelación y asignación de granjas agrícolas a familias que desarrollarán en ellas emprendimientos productivos basados en una agricultura de alta tecnología, que incorpore no solo el uso de máquinas inteligentes como sensores, equipos para detección de metales pesados en aguas y suelos, así como equipos de aplicación agrícola que permitan reducir la carga química y un mejor uso del recurso hídrico. Con este propósito, se destinará un cincuenta por ciento (50%) del total del terreno aprovechable a fines agrícolas, para distribuirlo entre las familias agricultoras de la zona norte de la provincia de Cartago, que incluye los distritos de Tierra Blanca, Llano Grande, Potrero Cerrado, Santa Rosa, Cot, Cipreses de Oreamuno y la totalidad del cantón de Alvarado.
+Para ser beneficiarios de las granjas agrícolas, las familias beneficiarias deberán
+cumplir con los requisitos establecidos por el Instituto de Desarrollo Rural y además
+comprometerse a implementar y ejecutar las pautas de producción agropecuaria,
+bajo sistemas inteligentes que establezca el INTA-MAG, en atención de los
+requisitos estipulados por el lnder.
+b) El resto de la finca será trasladado al Ministerio de Agricultura y Ganadería para que, por medio del INTA, se pueda desarrollar una finca experimental de alta tecnología aplicada a la agricultura, que incluya un centro de capacitación en agricultura inteligente y un parque demostrativo con los sistemas de agricultura con tecnología sostenible.
+Dado en la Presidencia de la República, San José; a los diecisiete días del mes de julio del año dos mil veinte.
+EJECÚTESE Y PUBLIQUESE.
