@@ -1,0 +1,1 @@
+Artículo 5º—Tarifas. Se insta a la Autoridad Reguladora de los Servicios Públicos (ARESEP) a no incluir a aquellos proyectos de generación de electricidad que no cuenten con los permisos y concesiones respectivos de acuerdo con la legislación vigente y esta Directriz, en el reconocimiento de la estructura tarifaria de las empresas distribuidoras.
