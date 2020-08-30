@@ -1,1 +1,0 @@
-Artículo 11.—Hechas las respectivas adjudicaciones, la comisión lo comunicará a todos los participantes dándoles audiencia por quince días para cualquier reclamo u observación mediante carta certificada o personalmente.

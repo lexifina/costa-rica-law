@@ -1,1 +1,0 @@
-Artículo 18.—No podrá ser becado municipal quien ayude o beque el Estado, Ministerio de Educación Pública, Caja Costarricense de Seguro Social otra persona o institución pública o privada, a excepción de los casos de beca para matrícula.

@@ -1,1 +1,0 @@
-Artículo 16.—Si un beneficiario no retira dos cheques consecutivamente en su oportunidad, automáticamente la Municipalidad ordenará su cancelación habida comprobación y ratificación con su proceder de que no lo necesita.
