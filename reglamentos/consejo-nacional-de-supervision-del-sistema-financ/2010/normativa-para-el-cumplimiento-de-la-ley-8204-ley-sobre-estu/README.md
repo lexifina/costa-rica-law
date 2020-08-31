@@ -21,3 +21,4 @@ Normativa para el cumplimiento de la Ley 8204 “Ley sobre estupefacientes, sust
 | 6 | 2019-11-04 | Reglamento 1542 (2019-11-04) |
 | 7 | 2019-11-25 | Reglamento 1545 (2019-11-25) |
 | 8 | 2020-04-27 | Reglamento 1572 (2020-04-27) |
+| 9 | 2020-08-31 | Reglamento 1602 (2020-08-31) |
