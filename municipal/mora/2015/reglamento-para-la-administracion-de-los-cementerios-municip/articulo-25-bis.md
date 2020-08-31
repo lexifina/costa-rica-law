@@ -1,2 +1,0 @@
-Artículo 25 bis.—Exoneración de gastos administrativos y operativos. Para tales efectos se exonera de todos los gastos administrativos y operativos que estas actividades generen, única y exclusivamente a los asociados directos de la Asociación San Vicente de Paul, con vista en la función social que esta importante organización de beneficencia cumple en el Cantón de Mora.
-(Así adicionado en sesión N° 62 del 7 de marzo del 2016)
