@@ -6,5 +6,6 @@ Igual o menor a 60 días | 10%
 Igual o menor a 90 días | 50%
 Igual o menor a 120 días | 75%
 Más de 120 días | 100%
-b) Los bienes realizables con más de 2 años a partir del día de su adquisición en un 100% de su valor.
-En el Anexo 2 se detallan las principales cuentas contables en que por su naturaleza se registran los activos sujetos a estimación según los incisos a) y b) anteriores.
+b) (Derogado mediante sesión N° 1602-2020 del 31 de agosto del 2020)
+En el Anexo 2 se detallan las principales cuentas contables en que por su naturaleza se registran los activos sujetos a estimación según el inciso a. anterior.
+(Así reformado el párrafo anterior mediante sesión N° 1602-2020 del 31 de agosto del 2020)
