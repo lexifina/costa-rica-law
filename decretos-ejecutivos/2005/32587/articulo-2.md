@@ -1,1 +1,0 @@
-Artículo. 2. Se derogan los decretos No.28434-MOPT RAC-OPS PARTE I, publicado en La Gaceta número 50 del 10 de marzo del 2000 y Decreto No.28435-MOPT RAC OPS PARTE II, publicado en La Gaceta número 51 del 13 de marzo del 2000.
