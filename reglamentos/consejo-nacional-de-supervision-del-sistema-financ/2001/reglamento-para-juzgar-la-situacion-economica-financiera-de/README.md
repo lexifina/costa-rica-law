@@ -43,3 +43,4 @@ Reglamento para Juzgar la situación económica financiera de las Asociaciones M
 | 28 | 2019-07-29 | Reglamento 1515 (2019-07-29) |
 | 29 | 2019-11-25 | Reglamento 1545 (2019-11-25) |
 | 30 | 2020-03-23 | Reglamento 1566 (2020-03-23) |
+| 31 | 2020-08-31 | Reglamento 1602 (2020-08-31) |
