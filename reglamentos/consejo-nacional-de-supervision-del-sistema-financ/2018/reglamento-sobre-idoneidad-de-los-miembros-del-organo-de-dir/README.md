@@ -14,3 +14,4 @@ Reglamento sobre idoneidad de los miembros del Órgano de Dirección y de Alta G
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-05-14 | la propia norma |
+| 2 | 2020-08-31 | Reglamento 1602 (2020-08-31) |
