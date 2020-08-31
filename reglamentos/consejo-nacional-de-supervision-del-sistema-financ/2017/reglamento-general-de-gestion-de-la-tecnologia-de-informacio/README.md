@@ -14,3 +14,4 @@ Reglamento General de Gestión de la Tecnología de Información
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-05-02 | la propia norma |
+| 2 | 2020-08-31 | Reglamento 1602 (2020-08-31) |
