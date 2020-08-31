@@ -15,3 +15,4 @@ Reglamento para el Funcionamiento de la Junta Directiva del Consejo de Seguridad
 | --- | --- | --- |
 | 1 | 2012-11-22 | la propia norma |
 | 2 | 2018-03-14 | Decreto Ejecutivo 41062 (2018-03-14) |
+| 3 | 2020-08-31 | Decreto Ejecutivo 42679 (2020-08-31) |
