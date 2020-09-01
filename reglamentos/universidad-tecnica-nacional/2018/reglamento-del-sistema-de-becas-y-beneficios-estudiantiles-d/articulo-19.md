@@ -1,1 +1,2 @@
+(Nota de Sinalevi: Mediate sesión N° 20-2020 del 1° de setiembre del 2020, se acordó suspender este artículo)
 Artículo 19 —Sanciones por información fraudulenta. Al estudiante que con la finalidad de obtener cualquiera de las becas o beneficios estudiantiles contemplados en este Reglamento suministre información falsa, fraudulenta o viciada, comprobado por la Administración mediante el procedimiento establecido en el Reglamento Disciplinario Estudiantil vigente, se le suspenderá la beca y el beneficio otorgado.
