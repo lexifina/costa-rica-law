@@ -14,3 +14,4 @@ Integración del Consejo de Transporte Público
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-07-19 | la propia norma |
+| 2 | 2020-09-01 | Decreto Ejecutivo 42602 (2020-09-01) |

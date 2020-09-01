@@ -8,10 +8,11 @@ II.—Que el artículo 9 de la citada Ley, regula el procedimiento de conformaci
 Decretan:
 INTEGRACIÓN DEL CONSEJO DE TRANSPORTE PÚBLICO
 Artículo 1º—Se conforma la integración del Consejo de Transporte Público de la siguiente forma:
-a) Señor Eduardo Daniel Brenes Mata, cédula de identidad número 7 0039 0939, en su condición de Delegado del Ministro de Obras Públicas y Transportes, quien presidirá el Consejo de Transporte Público.
-b) Señor Rafael Chang Jaén, cédula de identidad número 5 0134 0539, como representante nombrado por el señor Ministro de Obras Públicas y Transportes, en razón de su experiencia y conocimiento en las materias relacionadas con el transporte público, designado por el Ministro de Obras Públicas y Transportes.
-c) Señor Carlos Manuel Rodríguez Echandi, cédula de identidad número 1 0529 0682, en su condición de Ministro de Ambiente y Energía.
-d) Señor Asdrúbal Fallas Hernández, cédula de identidad número 1 0985 0690, representante del Sector Empresarial de Transporte Remunerado de Personas en Vehículos Automotores, Buses, Microbuses o Busetas.
-e) Señora Leda Mora Morales, cédula de identidad número 1 0519 0374, representante del Sector Empresarial de Transporte Remunerado de Personas en Vehículos Automotores en la Modalidad de Taxi.
-f) Señora Hellen Simons Wilson, cédula de identidad número 7 0112 0018, representante de la Unión Nacional de Gobiernos Locales.
-g) Señora Jessie Vega Méndez, cédula de identidad número 1 1391 0868, representante de los usuarios.
+a) Señor Eduardo Daniel Brenes Mata, cédula de identidad número 7-0039-0939, en su condición de Delegado del Ministro de Obras Públicas y Transportes, quien presidirá el Consejo de Transporte Público.
+b) Señor Rafael Chang Jaén, cédula de identidad número 5-0134-0539, como representante nombrado por el señor Ministro de Obras Públicas y Transportes, en razón de su experiencia y conocimiento en las materias relacionadas con el transporte público, designado por el Ministro de Obras Públicas y Transportes.
+c) Señora Andrea Meza Murillo, cédula de identidad número 3-0352-0903, en su condición de Ministra de Ambiente y Energía.
+d) Señor Asdrúbal Fallas Hernández, cédula de identidad número 1-0985-0690, representante del Sector Empresarial de Transporte Remunerado de Personas en Vehículos Automotores, Buses, Microbuses o Busetas.
+e) Señora Leda Mora Morales, cédula de identidad número 1-0519-0374, representante del Sector Empresarial de Transporte Remunerado de Personas en Vehículos Automotores en la Modalidad de Taxi.
+f) Señora Hellen Simons Wilson, cédula de identidad número 7-0112-0018, representante de la Unión Nacional de Gobiernos Locales.
+g) Señora Jessie Vega Méndez, cédula de identidad número 1-1391-0868, representante de los usuarios.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 42602 del 1° de setiembre del 2020)
