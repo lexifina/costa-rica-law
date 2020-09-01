@@ -1,0 +1,2 @@
+Transitorio II. Actualización de manuales
+Dentro del plazo de seis meses a partir de la entrada en vigencia del Acuerdo referido en el artículo 2 de este reglamento, las entidades aseguradoras deberán actualizar el Manual de políticas y procedimientos para la atención de avisos de siniestro y atención del consumidor referido en el artículo 15 del Reglamento de Protección al Consumidor de Seguros y el Manual de políticas y procedimientos para la comercialización de seguros referido en el artículo 4 del Reglamento sobre Comercialización de Seguros.

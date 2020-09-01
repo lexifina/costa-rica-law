@@ -1,0 +1,3 @@
+Artículo 6. Intereses y riesgos cubiertos.
+Los intereses y riesgos que pueden ser amparados por los seguros autoexpedibles deberán ser comunes a la mayoría de las personas físicas. Las personas jurídicas que estén expuestas a esos mismos riesgos y que sean titulares de intereses que también sean comunes a las personas físicas, o que contraten por cuenta de un tercero con esas características, no tendrán impedimento, por razón de su naturaleza jurídica, para adquirir el seguro autoexpedible.
+Los riesgos mencionados deberán estar considerados dentro de los ramos y líneas de seguros que se indiquen en el acuerdo referido en el artículo 2 de este Reglamento.

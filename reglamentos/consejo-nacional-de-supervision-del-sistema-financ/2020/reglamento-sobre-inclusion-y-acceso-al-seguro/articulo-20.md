@@ -1,0 +1,2 @@
+Artículo 20. Régimen de responsabilidad.
+Con excepción de lo intermediado por sociedades corredoras de seguros, la entidad aseguradora es responsable solidaria ante los consumidores de seguros autoexpedibles por las actuaciones u omisiones que afecten los derechos de estos últimos realizadas por intermediarios de seguros autoexpedibles, proveedores de servicios auxiliares de seguros y cualquier actor que participe en la cadena de valor del seguro autoexpedible, según corresponda.

@@ -1,0 +1,4 @@
+Artículo 11. Asesoría y conflictos de interés.
+La propuesta de seguro contiene información de contacto por un número telefónico, Sitio Web o cualquier red de comunicación y al menos una dirección física en la que el interesado pueda consultar preguntas frecuentes de una manera sencilla sobre el producto que adquiere y recibir asesoría sobre el seguro.
+La aseguradora toma las medidas necesarias para que se revele la existencia de cualquier conflicto de interés que pueda incidir en la decisión de compra del tomador.
+En caso de que el seguro sea accesorio a la adquisición de otro bien o servicio, la aseguradora toma las medidas necesarias para que el posible tomador conozca, de forma previa a la contratación, esa situación, así como la facultad que tiene de no adquirir el seguro y el porcentaje del costo del seguro que recibe el intermediario del seguro autoexpedible.

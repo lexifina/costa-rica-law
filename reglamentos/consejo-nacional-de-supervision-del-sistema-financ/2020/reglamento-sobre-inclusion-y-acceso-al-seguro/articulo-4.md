@@ -1,0 +1,3 @@
+Artículo 4. Aplicación proporcional y diferenciada de los principios.
+En relación con los principios establecidos en este Reglamento, cada entidad los desarrolla, implementa y evalúa y para ello considera sus propias características como entidad, las normas que le resultan aplicables, las características del seguro autoexpedible que comercializa, y el mercado meta al que se encuentra dirigido. La entidad es la responsable de demostrar ante SUGESE la aplicación de los principios y demás normas establecidas en el presente Reglamento.
+La SUGESE podrá emitir guías orientadoras sobre la aplicación proporcional de los principios.

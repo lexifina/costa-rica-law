@@ -1,0 +1,8 @@
+Artículo 10. Promoción e información de productos.
+10.1. Publicidad. Para efectos del cumplimiento del inciso o) del artículo 25 de la Ley Reguladora del Mercado de Seguros, Ley 8653, la publicidad o promoción que se haga en relación con seguros autoexpedibles y que no contenga la totalidad de los términos de las condiciones generales del seguro, observa lo siguiente:
+a) Es inteligible. Cualquier publicidad, material de venta, o cualquier tipo de comunicación o revelación dirigida a los consumidores de seguros autoexpedibles, bajo cualquier forma o medio, deberá ser, sencilla, clara y no engañosa; cuando sea escrita debe ser legible para el consumidor promedio del mercado meta. Adicionalmente, deberá considerarse lo necesario para cumplir con lo indicado en el caso de las personas con necesidades especiales que lo soliciten.
+b) Es clara en cuanto a la aseguradora que ofrece el producto.
+c) Declara que no contiene la totalidad de términos de las condiciones generales, en las cuales pueden existir restricciones y como tener acceso a éstas.
+d) Informa al menos sobre: tipo de seguro y cobertura principal, así como el código de registro ante la Superintendencia.
+e) Indica los medios dispuestos para brindar información adicional, al menos página web, número de teléfono, correo electrónico, así como el horario de atención.
+10.2. Información. Se tienen por cumplidos los requisitos de revelación de información exigidos por el artículo 12 de la Ley Reguladora del Contrato de Seguros, Ley 8956, cuando de previo al perfeccionamiento del contrato, por escrito se entregue o informe al futuro tomador sobre cómo tener acceso a la propuesta de seguro, condiciones generales, constancia de seguro y el Dersa cuando corresponda.

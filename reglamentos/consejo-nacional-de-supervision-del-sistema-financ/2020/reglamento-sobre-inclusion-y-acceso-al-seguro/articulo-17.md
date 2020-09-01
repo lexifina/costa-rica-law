@@ -1,0 +1,9 @@
+Artículo 17. Funciones de los intermediarios de seguros autoexpedibles.
+Las funciones mínimas de los intermediarios de seguros autoexpedibles que deberán incluirse en los contratos correspondientes con las aseguradoras consisten en:
+17.1. poner a disposición del posible tomador la propuesta de seguro de la entidad aseguradora, las condiciones generales y demás información relacionada, elaborada por la aseguradora,
+17.2. asistir al posible tomador en las acciones necesarias para formalizar la aceptación de la propuesta de seguro,
+17.3. tramitar el derecho de retracto y la cancelación de la póliza por parte del tomador cuando corresponda.
+En el caso de los operadores de seguros autoexpedibles, estos no darán asesoría respecto al producto y su funcionamiento, sino que informarán los medios por los cuales podrá obtenerla de parte de la aseguradora. Lo anterior salvo que en el contrato con la aseguradora se haya pactado esa posibilidad de manera adicional, siendo la aseguradora responsable por la idoneidad del operador para esos efectos.
+Tanto las funciones mínimas como cualquier función adicional que la aseguradora delegue en el intermediario de seguros autoexpedibles deberá indicarse en el contrato.
+Cuando un intermediario distinto de un operador de seguros autoexpedibles comercialice uno de estos seguros lo hará conforme a su naturaleza, las relaciones jurídicas que mantenga con la aseguradora y el marco normativo que lo rija. En el caso de intermediación de seguros autoexpedibles por parte de sociedades corredoras de seguros, no resultarán obligatorias las disposiciones de los artículos 11 y 12 del Reglamento sobre Comercialización de Seguros, Acuerdo SUGESE 03-10.
+En el caso del Seguro Obligatorio Automotor, se entenderá que el Operador de Seguro Autoexpedible u otro intermediario que lo distribuya, podrá realizar los actos adicionales que por normativa sean necesarios para la venta de ese seguro cuando así lo pacten con la aseguradora.
