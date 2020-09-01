@@ -14,3 +14,4 @@ Declara estado de emergencia nacional situación provocada por condiciones de te
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-06-30 | la propia norma |
+| 2 | 2020-09-01 | Decreto Ejecutivo 42596 (2020-09-01) |

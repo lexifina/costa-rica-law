@@ -1,4 +1,5 @@
 Nº 39056-MP
+(Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 42596 del 1° de setiembre de 2020, se acordó ampliar el plazo de vigencia del presente decreto ejecutivo, siendo dicho plazo prorrogado hasta el 30 de junio del año 2021)
 EL PRESIDENTE DE LA REPÚBLICA
 Y EL MINISTRO DE LA PRESIDENCIA
 En ejercicio de las facultades que les confieren los artículos 140 incisos 3), 6), 16) y 18) de la Constitución Política; los artículos 25.1 y 27.1 de la Ley General de la Administración Pública, Ley Nº 6227 del 2 de mayo de 1978; el artículo 29 de la Ley Nacional de Prevención de Riesgos y Atención de Emergencias, Ley Nº 8488 del 22 de noviembre del 2005 y el artículo 22 del Reglamento a la Ley Nacional de Prevención de Riesgos y Atención de Emergencias, Decreto Ejecutivo Nº 34361 del 21 de noviembre del 2007.
