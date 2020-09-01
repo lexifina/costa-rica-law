@@ -1,0 +1,2 @@
+ARTÍCULO 4°.- Refórmese el artículo 3° del Decreto Ejecutivo número 42513-MGP-S del 31 de julio de 2020, para que se ajuste la redacción del primer párrafo y se lea de la siguiente manera:
+“ARTÍCULO 3°.-En virtud de lo dispuesto en el artículo 1° del presente Decreto Ejecutivo, solamente se permitirá el ingreso en el caso de la vía aérea de las personas extranjeras que provengan de los países autorizados por el Ministerio de Salud, bajo el criterio y análisis técnico que realizará periódicamente como autoridad rectora sanitaria. (…)”
