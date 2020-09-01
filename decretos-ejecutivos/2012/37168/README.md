@@ -14,3 +14,4 @@ Reglamento para el Programa de Fortalecimiento para la Innovación y Desarrollo 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-06-14 | la propia norma |
+| 2 | 2020-09-01 | Decreto Ejecutivo 42621 (2020-09-01) |

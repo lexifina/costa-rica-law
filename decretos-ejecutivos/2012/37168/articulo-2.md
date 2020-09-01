@@ -1,15 +1,23 @@
-Artículo 2º—Para los efectos legales que se deriven de la aplicación de este Reglamento, las expresiones o las palabras empleadas tienen el sentido y los alcances que se mencionan en este
-artículo:
+Artículo 2º—Para los efectos legales que se deriven de la aplicación de este Reglamento, las expresiones o las palabras empleadas tienen el sentido y los alcances que se mencionan en este artículo:
 AGRUPACIONES DE PYME: Dos o más empresas que individualmente poseen las características de PYME y que han suscrito acuerdos de cooperación entre ellos.
+Bases del Concurso: Documentos donde se establecen las reglas específicas que rigen cada concurso por ayudas financieras complementarias y no reembolsables del Fondo PROPYME. Se les conoce también como términos de referencia o bases de la convocatoria y las emite la Comisión de Incentivos, adscrita al MICITT.
+(Así adicionada la definición anterior por el artículo 3° del decreto ejecutivo N° 42621 del 1° de setiembre del 2020)
 BENEFICIARIO: Aquella persona física o jurídica que cumple con los requisitos del artículo 3º y 13º de la Ley Nº 8262 “Ley de Fortalecimiento de las Pequeñas y Medianas Empresas”.
 COMISIÓN DE INCENTIVOS: Grupo de personas integrado por representantes de los sectores privados, público y de educación superior, encargadas de clasificar y seleccionar aquellas personas físicas o jurídicas merecedoras de los incentivos que establece la Ley Nº 8262, siguiendo los procedimientos establecidos en la Ley Nº 7169 y el presente Reglamento.
 CONICIT: Consejo Nacional para Investigaciones Científicas y Tecnológicas.
 CONTRATO DE INCENTIVOS: Es el instrumento jurídico que suscriben las empresas productivas de bienes y servicios, públicas o privadas y el Ministerio de Ciencia y Tecnología, que contiene un conjunto de derechos, obligaciones y potestades que rigen las relaciones entre ellos.
+Convocatoria: Anuncio público de la apertura de un concurso para optar por una ayuda financiera no reembolsable del Fondo PROPYME.
+(Así adicionada la definición anterior por el artículo 3° del decreto ejecutivo N° 42621 del 1° de setiembre del 2020)
 DESARROLLO TECNOLÓGICO: Conjunto de trabajos sistemáticos basados en conocimientos existentes, obtenidos mediante investigación y/o experiencia práctica, que se dirigen a la fabricación de nuevos materiales, productos o dispositivos; a establecer nuevos procesos, sistemas y servicios; o a la mejora sustancial de los ya existentes.
+Emprendedor: Se entenderá esta definición la establecida en el reglamento de la Ley N° 8262.
+(Así adicionada la definición anterior por el artículo 3° del decreto ejecutivo N° 42621 del 1° de setiembre del 2020)
+Emprendimiento: Se entenderá esta definición la establecida en el reglamento de la Ley N° 8262.
+(Así adicionada la definición anterior por el artículo 3° del decreto ejecutivo N° 42621 del 1° de setiembre del 2020)
 GESTOR DE INNOVACIÓN: Personas físicas del sector público o privado, debidamente registradas ante el MICIT según los procedimientos publicados para tales efectos en el Diario Oficial La Gaceta Nº 231 del jueves 1 de diciembre del 2011. Su objetivo es apoyar a las PYMES en la formulación de propuestas de proyecto ante el fondo y en la ejecución de las propuestas aprobadas por la Comisión de Incentivos. Las personas jurídicas podrán brindar este servicio cuando cuenten con, al menos, con un Gestor de Innovación debidamente registrado en el MICIT.
 INNOVACIÓN: Introducción de un nuevo, o significativamente mejorado bien (producto o servicio), proceso, y/o método de comercialización. Esta introducción debe generar valor para el usuario e incidir en el mercado.
 INNOVACIÓN TECNOLÓGICA: Conjunto de acciones de carácter científico, tecnológico, organizativas, financieras y comerciales, incluyendo las inversiones en nuevos conocimientos, que llevan a la implementación de productos y de procesos nuevos o mejorados, y que mejoran la capacidad de gestión de la PYME.
-MICIT: Ministerio de Ciencia y Tecnología.
+MICITT: Ministerio de Ciencia, Tecnología y Telecomunicaciones.
+(Así reformada la definición anterior por el artículo 3° del decreto ejecutivo N° 42621 del 1° de setiembre del 2020)
 PROPUESTA DE PROYECTO: Conjunto integrado de actividades orientadas a alcanzar objetivos y metas específicas, con un presupuesto definido, personas/entidades responsables, con un plazo determinado, que podrá presentarse en forma individual o grupal por parte de las PYMES.
 PROYECTOS DE DESARROLLO DE POTENCIAL HUMANO: Conjunto de actividades que involucran la formación del recurso humano para fomentar la innovación y el desarrollo tecnológico.
 PROYECTOS DE SERVICIOS TECNOLÓGICOS: Conjunto de actividades que apoyan procesos de innovación tecnológica.
@@ -17,5 +25,6 @@ PROYECTOS DE TRANSFERENCIA TECNOLÓGICA: Misiones tecnológicas dentro y fuera d
 PYME: Se entenderá esta definición la establecida en el reglamento de la Ley 8262.
 REGISTRO CIENTÍFICO Y TECNOLÓGICO: Unidad creada mediante el artículo 25 de la Ley Nº 7169, dependiente del CONICIT, responsable de registrar los recursos que se destinan al quehacer de la ciencia y la tecnología, sean estos nacionales o extranjeros, públicos o privados, presupuestarios o extrapresupuestarios y de ser fuente de información para los interesados en la
 actividad científica y tecnológica del país, para ejecutar las acciones que correspondan.
-SECRETARÍA TÉCNICA: Dependencia del MICIT que funge como oficina asesora y de apoyo a la Comisión de Incentivos.
+Secretaría Técnica de Incentivos: Unidad Staff del Viceministro de Ciencia y Tecnología del MICITT, a la cual corresponde, entre otras funciones, planificar, administrar, sistematizar, establecer y supervisar la programación y el desarrollo de las actividades que faciliten el cumplimiento de los objetivos de la Comisión de Incentivos establecidos por Ley Nº. 7169, y coordinar el proceso de trabajo para llevar a cabo la asignación de los incentivos (ayudas financieras no reembolsables) bajo los términos legales y según los lineamientos políticos del sector científico y tecnológico.
+(Así reformada la definición anterior por el artículo 3° del decreto ejecutivo N° 42621 del 1° de setiembre del 2020)
 UNIDAD DE IMPLEMENTACIÓN: Persona y/o grupo de especialistas que cuenta con capacidad administrativa y condiciones para realizar estudios analíticos, teóricos y prácticos, con el fin de derivar de ellos aplicaciones para desarrollar la solución a la propuesta de proyecto de innovación y/o desarrollo tecnológico de la PYME. Debe estar inscrito en el Registro Científico Tecnológico, de conformidad con el artículo 25 de la Ley Nº 7169.
