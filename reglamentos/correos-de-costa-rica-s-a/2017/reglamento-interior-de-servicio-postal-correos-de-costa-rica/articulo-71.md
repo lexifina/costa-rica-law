@@ -1,1 +1,1 @@
-Artículo 71. -Los envíos sujetos a reclamaciones se regirán por la regulación establecida en el capítulo de reclamaciones del presente reglamento.
+Artículo 71. -(Derogado por el Reglamento para Envíos provenientes de compras realizadas fuera de Costa Rica en sitios virtuales y que contenga una dirección domiciliada en Costa Rica sin intermediario, aprobado mediante sesión N° 1637 del 1° de setiembre del 2020)

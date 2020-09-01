@@ -1,1 +1,1 @@
-Artículo 72. -Los envíos provenientes del comercio electrónico por la vía postal que sean sujetos a la tasa y no sean reclamados serán devueltos según las condiciones establecidas en las actas de la Unión Postal Universal, salvo que por acuerdo bilateral se establezca lo contrario.
+Artículo 72. -(Derogado por el Reglamento para Envíos provenientes de compras realizadas fuera de Costa Rica en sitios virtuales y que contenga una dirección domiciliada en Costa Rica sin intermediario, aprobado mediante sesión N° 1637 del 1° de setiembre del 2020)

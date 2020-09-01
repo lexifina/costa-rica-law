@@ -1,2 +1,2 @@
 Servicio de Fax
-Artículo 26: Definición.- El servicio Fax consiste en la recepción, transmisión y distribución de todo tipo de documento.
+Artículo 26: Definición.- (Derogado por el Reglamento para Envíos provenientes de compras realizadas fuera de Costa Rica en sitios virtuales y que contenga una dirección domiciliada en Costa Rica sin intermediario, aprobado mediante sesión N° 1637 del 1° de setiembre del 2020)

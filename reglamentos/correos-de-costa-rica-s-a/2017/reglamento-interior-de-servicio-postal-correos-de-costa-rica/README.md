@@ -14,3 +14,4 @@ Reglamento interior de servicio postal Correos de Costa Rica S. A.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-07-24 | la propia norma |
+| 2 | 2020-09-01 | Reglamento 1637 (2020-09-01) |
