@@ -1,3 +1,0 @@
-ARTICULO 12. Del seguimiento y control de los juicios:
-Notificada la resolución que da curso a la demanda, el abogado externo deberá realizar un seguimiento oportuno hasta verificar la efectiva notificación al demandado, así como darle seguimiento al trámite de los embargos preventivos, a efecto de evitar posibles deserciones. Para ello, el abogado externo, deberá efectuar al menos una diligencia procesal útil cada tres meses.
-Cuando la notificación se efectué por medio de autoridad comisionada, el abogado externo deberá verificar que dicha autoridad devuelva la comisión debidamente diligenciada.

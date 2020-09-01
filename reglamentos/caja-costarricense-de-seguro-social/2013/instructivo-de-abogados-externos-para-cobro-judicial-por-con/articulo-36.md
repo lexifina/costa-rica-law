@@ -1,2 +1,0 @@
-ARTICULO 36. De la terminación del contrato:
-Cuando adquiera firmeza el acto que declara la terminación del contrato de un abogado externo, ya sea sin que medie responsabilidad o aún existiendo responsabilidad civil o penal del profesional, éste deberá continuar con la tramitación de los casos que le fueron encomendados, hasta su conclusión, así como a la presentación de los informes establecidos en el presente Instructivo.

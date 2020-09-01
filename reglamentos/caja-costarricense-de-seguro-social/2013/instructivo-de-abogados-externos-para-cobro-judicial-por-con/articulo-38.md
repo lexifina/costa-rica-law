@@ -1,2 +1,0 @@
-ARTICULO 38. Del caso de fallecimiento de los obligados:
-En caso de fallecimiento de los obligados en procesos de cobro judicial ya establecidos, el abogado externo procederá a informar al Área Gestión de Cobro a Trabajadores Independientes, Subárea de Cobro Judicial a Patronos o a la sucursal, según corresponda, dicha situación y remitirá el expediente judicial del caso, adjuntando un informe de lo actuado dentro del proceso hasta el momento del fallecimiento.

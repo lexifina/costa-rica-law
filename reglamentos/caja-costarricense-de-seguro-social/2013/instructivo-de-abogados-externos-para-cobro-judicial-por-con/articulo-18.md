@@ -1,3 +1,0 @@
-ARTICULO 18. De las comunicaciones en caso de remate:
-Una vez que se le notifique al abogado externo la fecha para remate de un bien, este deberá comunicar de inmediato al Área de Cobro Judicial respectiva o a la Sucursal –según sea el caso- lo pertinente; lo anterior con el fin de que estas unidades coordinen con el abogado director lo correspondiente.
-El abogado externo deberá consultar al Área de Cobro Judicial respectiva o a la Sucursal -según corresponda-, el día hábil anterior al remate, sobre cualquier circunstancia que deba conocer, especialmente si se ha realizado el pago, a efecto de prever futuros inconvenientes procesales.

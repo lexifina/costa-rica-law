@@ -1,2 +1,0 @@
-ARTICULO 11. De la presentación de la Demanda.
-Una vez asignado el caso al abogado externo, este presentará la demanda en el juzgado respectivo de conformidad a los requisitos de admisibilidad a la normativa aplicable según el título ejecutivo que se esté gestionando. En los casos de procesos ejecutivos simples generados por certificaciones de cobro por disposición del artículo 53 de la Ley Constitutiva de la CCSS, el abogado deberá solicitar embargo preventivo en los bienes muebles e inmuebles, cuentas bancarias y demás bienes susceptibles de embargo.

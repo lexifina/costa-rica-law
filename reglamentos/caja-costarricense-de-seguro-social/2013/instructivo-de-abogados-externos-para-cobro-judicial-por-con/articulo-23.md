@@ -1,5 +1,0 @@
-ARTICULO 23. De la existencia de dineros a favor de la Caja en el Juzgado.
-El abogado externo deberá revisar periódicamente la existencia de dineros a favor de la CCSS, de los casos bajo su dirección. En caso de existir sumas a favor de la Caja el Abogado externo deberá gestionar ante el Juzgado respectivo el pago de dichos rubros a la Institución.
-Una vez autorizado el giro, el abogado externo deberá informar a la unidad de cobro sobre los dineros que el juzgado debe girar a la institución, lo anterior con el fin de que dicha 11 unidad de cobro indique el nombre y calidades del funcionario autorizado para el retiro del cheque.
-Comunicado al abogado externo el funcionario autorizado para el retiro del cheque, elaborará un escrito al Juzgado donde se indique las calidades de dicho funcionario.
-Al Área de Cobro Judicial respectiva o Sucursal según sea el caso, será responsable de retirar el cheque y gestionar internamente para que este sea ingresado a las arcas de la Institución y aplicado a la deuda correspondiente.
