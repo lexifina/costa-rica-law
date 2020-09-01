@@ -1,0 +1,1 @@
+Artículo 6. De la Declaratoria de interés público. Una vez emitida la resolución del AyA, el prestador del servicio público deberá solicitar al Ministerio de Ambiente y Energía, la declaratoria de interés público, para lo cual aportará lo resuelto por el AyA.

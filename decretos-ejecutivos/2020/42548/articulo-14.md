@@ -1,0 +1,1 @@
+Artículo 14. Consulta obligatoria. La Secretaría Técnica Nacional Ambiental realizará consulta obligatoria al Área de Conservación correspondiente, quien tendrá un plazo de 15 días hábiles para responder.

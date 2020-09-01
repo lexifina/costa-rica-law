@@ -1,0 +1,1 @@
+Artículo 7. Del plazo. Una vez recibida la información correspondiente, el Ministro de Ambiente y Energía, contará con un plazo de 10 días hábiles para emitir el Decreto de Declaratoria de Interés Público y remitirlo a la Presidencia de la República para su debida firma y posterior publicación que deberá de realizarla la entidad solicitante.

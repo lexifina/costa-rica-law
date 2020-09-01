@@ -1,0 +1,3 @@
+Artículo 11. De la no aceptación. En caso de no aceptarse por parte del SINAC el sitio previamente escogido por parte del prestador del servicio público, éste podrá ejercer la fase recursiva dentro de los plazos y forma, ante el Director Ejecutivo del SINAC y agotar la vía administrativa ante la CONAC, conforme lo señala el artículo 13 del Reglamento a la Ley de Biodiversidad, Decreto N°34433-MINAE.
+Resuelta la fase recursiva favorablemente, se notificará al prestador del servicio a fin de que continúe con el proceso. En caso que se deniegue la captación de la fuente determinada se archivará la solicitud y se comunicará al AyA.
+Podrá el SINAC proponer otras ubicaciones para que sean analizadas por el prestador del servicio, dado su conocimiento del sitio propuesto.

@@ -1,0 +1,1 @@
+Artículo 22. De los aforos de control. Deberán los entes prestadores del servicio público, aforar de forma mensual las fuentes concesionadas o inscritas y presentar ante las oficinas del Área de Conservación correspondiente del SINAC, así como a las oficinas de la Dirección de Agua, el informe de los resultados en noviembre de cada año.
