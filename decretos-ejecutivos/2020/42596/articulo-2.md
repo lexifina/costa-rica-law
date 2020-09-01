@@ -1,0 +1,1 @@
+Artículo 2º—Deberá la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias rendir un nuevo informe antes del vencimiento del plazo indicado en el artículo anterior para que el Poder Ejecutivo pueda valorar la promulgación del cese definitivo del estado de emergencia.
