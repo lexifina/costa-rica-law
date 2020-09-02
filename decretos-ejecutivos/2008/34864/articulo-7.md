@@ -1,1 +1,0 @@
-Artículo 7º—Cauciones del nivel A. En este nivel deben rendir caución para el ejercicio de sus cargos, los Miembros del Tribunal y Suplentes durante todo el tiempo de su nombramiento.
