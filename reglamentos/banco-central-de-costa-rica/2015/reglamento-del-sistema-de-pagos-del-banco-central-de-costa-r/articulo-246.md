@@ -1,1 +1,2 @@
-Artículo 246. Depósito de garantías. Para captar recursos con operaciones diferidas de liquidez garantizadas, el participante deberá previamente depositar valores en una cuenta de garantía, en ambos casos de conformidad con las disposiciones establecidas por el servicio Gestión de Riesgos, del presente reglamento.
+Artículo 246. Depósito de garantías. Para captar recursos con operaciones diferidas de liquidez garantizadas y operaciones diferidas a plazo, el participante deberá previamente depositar valores en una cuenta de garantía, en ambos casos de conformidad con las disposiciones establecidas por el servicio Gestión de Riesgos, del presente reglamento.
+(Así reformado en sesión N° 5955 del 2 de setiembre del 2020)

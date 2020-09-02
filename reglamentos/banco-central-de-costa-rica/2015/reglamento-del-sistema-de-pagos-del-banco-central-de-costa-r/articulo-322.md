@@ -1,1 +1,4 @@
-Artículo 322. Disponibilidad de garantías. El monto que los asociados deban rendir como requerimiento mínimo de garantía se computará íntegramente como su disponibilidad de garantías en el Sistema de Pagos, de modo que tales entidades podrán utilizarlo para respaldar, conforme con las disposiciones del presente libro, los compromisos financieros que asuman con su participación en el SINPE y en los mercados de negociación organizados por el BCCR mediante su plataforma tecnológica.
+CAPÍTULO IV
+DE LOS REQUERIMIENTOS DE GARANTÍA
+Artículo 322. Requerimiento mínimo para los asociados. Como requerimiento mínimo de garantía, los asociados deberán mantener un monto en garantías al menos igual al promedio móvil más dos desviaciones estándar, que resulte de la suma de sus débitos netos diarios producidos en los últimos 70 días naturales por los servicios de compensación multilateral neta del SINPE, con excepción del servicio de CCD y CDD.
+(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 321 al 322)

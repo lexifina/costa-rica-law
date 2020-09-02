@@ -1,3 +1,2 @@
-CAPÍTULO VI
-DEL COBRO DE LOS SERVICIOS
-Artículo 413. Procedimiento de cobro. El cobro por los servicios de firma digital para personas físicas o jurídicas se realizará mediante Débito a una cuenta IBAN del solicitante, la cual debe registrar en el proceso de trámite de emisión de su certificado digital. Cuando se trate de entidades asociadas al SINPE el cobro se realizará con cargo a la cuenta SINPE correspondiente.
+Artículo 413. Validación de archivos: Es el servicio orientado a verificar la validez y completitud de los archivos electrónicos firmados digitalmente en los formatos oficiales con certificados de firma digital de las Autoridades Certificadoras del SINPE.
+(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 412 al 413)

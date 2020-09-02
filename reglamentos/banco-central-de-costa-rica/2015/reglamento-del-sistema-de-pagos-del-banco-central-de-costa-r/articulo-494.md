@@ -1,3 +1,2 @@
-CAPÍTULO II
-DE LOS PARTICIPANTES
-Artículo 494. Participantes. Podrá operar en el servicio Consulta de Identificación Ciudadana cualquier asociado del SINPE que requiera la consulta de los datos demográficos, foto y firma de los ciudadanos costarricenses, en virtud de las necesidades de validación de la identidad de sus clientes durante el trámite de una transacción o la prestación de un servicio.
+Artículo 494. Ajuste automático de tarifas. Las tarifas definidas en el presente reglamento para este servicio, serán ajustadas automáticamente conforme con lo que establezcan los convenios de intercambio de información que suscriba el BCCR con el Tribunal Supremo de Elecciones.
+(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 493 al 494)

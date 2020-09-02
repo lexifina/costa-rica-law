@@ -1,1 +1,2 @@
-Artículo 358. Aplazamiento de la acreditación. Cuando se presente una situación contingente que retrase la liquidación en las cuentas de fondos, los afiliados podrán extender como máximo el tiempo de acreditación por un plazo igual al tiempo oficial del retraso, por lo cual deberán acreditar los fondos a sus clientes luego de que transcurra dicho periodo.
+Artículo 358. Aplazamiento de los ciclos de operación. El Director de la División Sistema de Pagos o quien éste designe, podrá extender los horarios de los ciclos de operación de los servicios del SINPE ante situaciones que a su criterio puedan desencadenar un riesgo sistémico.
+(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 357 al 358)

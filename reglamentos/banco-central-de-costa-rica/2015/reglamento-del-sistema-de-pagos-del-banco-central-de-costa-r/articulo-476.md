@@ -1,1 +1,2 @@
-Artículo 476. Prescripción del reclamo. El periodo para ejercer el reclamo de una transacción prescribe después de los 5 días hábiles de su liquidación, por lo que a partir de la expiración de este plazo se considera finalizada y no podrá ser sujeta de reclamación mediante el SINPE.
+Artículo 476. Alcance del reclamo de créditos no aplicados. La reclamación por créditos no aplicados se limita a una solicitud de información efectuada por la entidad origen, por lo que para la entidad destino del reclamo no implica ningún movimiento de dinero sobre su cuenta de fondos.
+(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 475 al 476)

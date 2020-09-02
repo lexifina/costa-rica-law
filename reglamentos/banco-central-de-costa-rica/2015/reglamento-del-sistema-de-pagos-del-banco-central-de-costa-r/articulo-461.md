@@ -1,3 +1,2 @@
-CAPÍTULO IV
-DE LOS CAJEROS AUTOMATICOS
-Artículo 461. Requerimientos para las redes de cajeros automáticos. Las entidades financieras o empresas propietarias de cajeros automáticos deberán habilitar estos dispositivos con la capacidad de aceptar el estándar EMV e idealmente, la tecnología sin contacto.
+Artículo 461. Comprobante de pago. Para toda transacción de pago se debe entregar el comprobante de pago (“voucher”), únicamente, ante solicitud expresa del cliente. En caso que se entregue el comprobante de pago, se deberá imprimir la frase “no requiere identificación ni firma del cliente” para las transacciones de pago rápido.
+(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 460 al 461)

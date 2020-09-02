@@ -1,1 +1,4 @@
-Artículo 437. Emisores de CES. Podrán emitir CES en Colones, Dólares Estadounidenses y Euros las entidades financieras supervisadas (bancos, mutuales, entidades financieras no bancarias, cooperativas de ahorro y crédito, asociaciones solidaristas, entre otras), según lo indicado por el artículo 14 de la Ley 8204, debiendo la entidad asignar al cliente el tipo de CES que corresponda según el nivel de ingreso manifestado.
+CAPÍTULO IV
+DE LAS CUENTAS DE EXPEDIENTE SIMPLIFICADO (CES)
+Artículo 437. Definición. Cuentas de Expediente Simplificado (CES) son las cuentas de fondos que pueden abrir las personas físicas mediante un trámite simplificado.
+(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 436 al 437)

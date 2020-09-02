@@ -1,1 +1,3 @@
-Artículo 329. Salidas de la cuenta de garantía. Las salidas de los valores depositados en la cuenta de valores en garantía, deberán ser autorizadas previamente por el BCCR y estarán sujetas a que su trámite no origine un incumplimiento de los requerimientos mínimos de garantía a cargo del asociado ni deje al descubierto las obligaciones financieras que están siendo respaldadas con esas garantías.
+Artículo 329. Constitución de la garantía en valores. Los asociados deberán traspasar a la cuenta de garantía los valores necesarios para cumplir con sus requerimientos de garantía, conforme con las disposiciones operativas que establezcan las normas complementarias del servicio.
+Los valores que traspasen los asociados quedarán pignorados mientras se mantengan depositados en la cuenta de garantía.
+(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 328 al 329)

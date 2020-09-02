@@ -1,1 +1,4 @@
-Artículo 363. Obligatoriedad de la capacitación. La capacitación del BCCR es obligatoria para los usuarios de los servicios del SINPE. Cuando los candidatos no sean usuarios del SINPE, la capacitación se le impartirá sólo a quienes hayan sido propuestos por los propios afiliados.
+CAPÍTULO XV
+DE LA CAPACITACIÓN Y CERTIFICACIÓN DE USUARIOS
+Artículo 363. Programa de capacitación del SINPE. La División Sistema de Pagos mantendrá un programa permanente de capacitación para los usuarios del SINPE, debiendo disponer de las instalaciones, equipo técnico y demás recursos necesarios para impartir una instrucción adecuada sobre las funcionalidades del sistema.
+(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 3362 al 363)

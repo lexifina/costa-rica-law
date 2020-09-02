@@ -1,5 +1,9 @@
-Artículo 297. Procedimiento ante incumplimientos. Ante el incumplimiento de cualquiera de los requisitos enumerados en el artículo anterior o de otros que la División Sistema de Pagos considere que atenta contra la seguridad del numerario, la Tesorería del BCCR procederá de la siguiente forma:
-a) La primera vez: comunicado del incumplimiento al responsable del servicio ante el BCCR y bloqueo de la CAN en el servicio por cinco días hábiles.
-b) La segunda vez: comunicado del incumplimiento a la gerencia de la entidad y bloqueo de la CAN por veinte días hábiles.
-c) La tercera vez: comunicado del incumplimiento a la gerencia de la entidad y bloqueo de la CAN por sesenta días hábiles. Según sea la valoración que realice el BCCR, el bloqueo aplicará a la CAN que incurra en la falta o a todas las que administra la entidad.
-La acumulación de los incumplimientos se extingue al finalizar cada año calendario.
+CAPÍTULO VI
+REQUISITOS DE OPERACIÓN
+Artículo 297. Requisitos de operación. Para efectos de la operación del servicio, los asociados deberán cumplir con los siguientes requisitos:
+a) No mantener diferencias faltantes entre el saldo físico de la CAN y los saldos reportados por el servicio.
+b) Verificar la identidad de los inspectores del CCN, así como no impedir o retrasar por cualquier forma o medio su ingreso inmediato, sea a la bóveda donde está ubicada la CAN o a la oficina en la cual se mantienen los equipos del CCTV, con los que se graban los movimientos físicos de numerario y el ingreso de personas a la CAN.
+c) No permitir la presencia en las CAN de personas que no estén realizando labores relacionadas con el funcionamiento o mantenimiento de su infraestructura, así como de personas no registradas en el padrón de inspectores del CCN que no hayan sido autorizadas formalmente por la Tesorería del BCCR para ingresar a la CAN.
+d) Mantener el CCTV funcionando adecuadamente.
+e) Cumplir con cualquier otro lineamiento que se defina.
+(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 296 al 297)

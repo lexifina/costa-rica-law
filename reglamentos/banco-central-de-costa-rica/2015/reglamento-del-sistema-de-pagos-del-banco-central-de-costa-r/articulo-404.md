@@ -1,3 +1,2 @@
-CAPÍTULO IV
-DE LOS SERVICIOS DE VALOR AGREGADO
-Artículo 404. Definición de los servicios. Servicios autenticados, dirigidos a los suscriptores de certificados digitales emitidos por las Autoridades Certificadoras del SINPE, orientados a la autenticación de usuarios, custodia de certificados digitales, así como a la firma digital de archivos electrónicos en formatos oficiales y a la emisión de estampas de tiempo con relevancia jurídica.
+Artículo 404. Nombramiento del Tramitador de Certificados de Persona Jurídica. Toda Persona Jurídica interesada en obtener un certificado puede nombrar un Tramitador responsable de realizar todas las gestiones relacionadas con los certificados. La CA SINPE – Persona Jurídica validará la autenticidad de la identidad de la persona jurídica solicitante, así como la identidad de la persona física designada como “Tramitador de Certificados de Persona Jurídica”.
+(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 403 al 404)

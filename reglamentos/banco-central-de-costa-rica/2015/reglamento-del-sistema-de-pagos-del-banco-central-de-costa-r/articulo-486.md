@@ -1,1 +1,2 @@
-Artículo 486. Información de otros sistemas de compensación y pago. En su función relacionada con la vigilancia del Sistema de Pagos, el BCCR administrará la información de todos aquellos sistemas de compensación y pago distintos del SINPE, que involucren la participación de cualquier entidad financiera del país.
+Artículo 486. Administración de información. El servicio ISP administrará la información de las transacciones realizadas por los afiliados en todos los servicios financieros del SINPE y la generada a partir de los diferentes medios de pago ofrecidos por el Sistema Financiero Nacional.
+(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 485 al 486)

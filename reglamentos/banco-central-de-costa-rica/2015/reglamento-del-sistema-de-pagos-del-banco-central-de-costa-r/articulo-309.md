@@ -1,3 +1,2 @@
-CAPÍTULO V
-DE LAS RESPONSABILIDADES
-Artículo 309. Tratamiento de las diferencias. Las diferencias físicas de numerario que resulten de las negociaciones en el servicio, deben ser resueltas bilateralmente entre los asociados involucradas, siguiendo los criterios que al respecto establecen las normas complementarias del servicio.
+Artículo 309. Movimientos en BCCR ante servicio MEN inoperable. Cuando el Servicio MEN se encuentre fuera de operación y una entidad requiera retirar numerario de la Custodia General, deberá disponer de los fondos suficientes en su cuenta de fondos para que el BCCR los retenga, cumplir con los procedimientos establecidos y registrar tales movimientos en el servicio a más tardar diez minutos después de que haya sido reestablecido. A falta de este registro, el BCCR podrá realizarlo de oficio afectando la cuenta de fondos de la entidad según corresponda.
+(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 308 al 309)

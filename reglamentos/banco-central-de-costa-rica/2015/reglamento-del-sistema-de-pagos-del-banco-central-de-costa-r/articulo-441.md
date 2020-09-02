@@ -1,3 +1,2 @@
-CAPÍTULO V
-DE LOS TIPOS DE CUENTAS
-Artículo 441. Tipos de CES. Se autoriza a los participantes a abrir a sus clientes CES de Nivel 1, Nivel 2 y Nivel 3.
+Artículo 441. De la debida diligencia de las CES. Posterior a la apertura de una CES, la entidad financiera es responsable, a partir del comportamiento transaccional de la cuenta, de establecer el perfil de riesgo del cliente, de conformidad con el modelo de categorización de riesgo que, para efecto de cumplir con los alcances de la Ley 8204 y su normativa conexa se encuentre vigente en la respectiva entidad. En caso que el tipo de CES asignado al cliente no corresponda con su perfil de riesgo, deberá reclasificar dicha cuenta a una CES superior o a una cuenta tradicional y aplicar los controles respectivos.
+(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 440 al 441)

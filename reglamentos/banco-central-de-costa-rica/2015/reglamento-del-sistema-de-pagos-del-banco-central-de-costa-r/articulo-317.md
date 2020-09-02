@@ -1,1 +1,2 @@
-Artículo 317. Margen por riesgo cambiario. Cuando el monto por garantizar en una moneda supere el valor de las garantías expresadas en esa misma moneda, y para efectos de determinar las necesidades mínimas de cobertura, el exceso de la exposición cambiaria se tomará por el porcentaje que establezca el órgano administrativo facultado por la Junta Directiva del BCCR para esos fines.
+Artículo 317. Activos financieros admisibles. Las garantías del Sistema de Pagos podrán constituirse con valores negociables, conforme con lo que establezcan las normas complementarias del servicio.
+(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 316 al 317)

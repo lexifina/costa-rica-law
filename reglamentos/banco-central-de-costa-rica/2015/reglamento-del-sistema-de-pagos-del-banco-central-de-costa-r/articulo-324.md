@@ -1,1 +1,2 @@
-Artículo 324. Restitución de la garantía. En el caso de que las obligaciones financieras lleguen a superar el monto de las garantías aportadas, el asociado deberá realizar una restitución de garantía por el monto necesario para cumplir satisfactoriamente con el nivel mínimo requerido para respaldar sus obligaciones.
+Artículo 324. Aporte adicional de garantías. Aparte del requerimiento mínimo de garantía establecido en el presente libro para los asociados, éstos podrán aportar garantías adicionales para respaldar las obligaciones financieras que decidan asumir con su participación en los mercados de negociación organizados por medio del SINPE.
+(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 323 al 324)

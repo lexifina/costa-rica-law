@@ -1,3 +1,4 @@
-CAPÍTULO III
-DEL MODELO DE OPERACIÓN
-Artículo 280. Solicitud para administrar CAN. Los asociados que decidan administrar CAN bajo su cuenta y riesgo, deberán solicitarlo al Departamento de Tesorería del BCCR. El trámite se resolverá según corresponda en un plazo máximo de 10 días hábiles después de recibida la solicitud.
+CAPÍTULO II
+DE LOS PARTICIPANTES
+Artículo 280. Participantes del servicio. En el servicio CAN debe operar el BCCR, los asociados del SINPE que decidan mantener numerario del BCCR en sus propias bóvedas o espacios acondicionados para tal fin y las que requieran depositar numerario en la Custodia General del BCCR.
+(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 279 al 280)

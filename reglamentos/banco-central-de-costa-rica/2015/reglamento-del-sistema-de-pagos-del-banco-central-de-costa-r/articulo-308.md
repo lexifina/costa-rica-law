@@ -1,1 +1,7 @@
-Artículo 308. Movimientos en BCCR ante servicio MEN inoperable. Cuando el Servicio MEN se encuentre fuera de operación y una entidad requiera retirar numerario de la Custodia General, deberá disponer de los fondos suficientes en su cuenta de fondos para que el BCCR los retenga, cumplir con los procedimientos establecidos y registrar tales movimientos en el servicio a más tardar diez minutos después de que haya sido reestablecido. A falta de este registro, el BCCR podrá realizarlo de oficio afectando la cuenta de fondos de la entidad según corresponda.
+Artículo 308. Condiciones para la entrega de numerario por parte del BCCR. Las ofertas publicadas por el BCCR se regirán por las siguientes condiciones:
+a) El BCCR participa en el MEN como el proveedor de última instancia.
+b) En la entrega de billete y en la modalidad de retiro de moneda en BCCR, el asociado que adquiere una oferta del BCCR es responsable de transportar por su cuenta y riesgo el numerario negociado. Tal responsabilidad incluye velar por la seguridad y las características de los medios que utilice para
+transportar el numerario.
+c) El BCCR ofrecerá numerario nacional nuevo siempre y cuando no disponga de la categoría circulable en la denominación correspondiente.
+d) El BCCR determinará la periodicidad y la cantidad de billete o moneda que entregará en las diferentes modalidades.
+(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 307 al 308)

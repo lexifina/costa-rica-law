@@ -1,1 +1,2 @@
-Artículo 325. Plazo para la restitución. Siempre que el BCCR solicite una restitución de garantía para cumplir con lo dispuesto en el presente libro, el asociado deberá rendir las garantías respectivas a más tardar a las 11:00 a.m. del día hábil siguiente al día en que el BCCR realiza la solicitud.
+Artículo 325. Restitución de la garantía. En el caso de que las obligaciones financieras lleguen a superar el monto de las garantías aportadas, el asociado deberá realizar una restitución de garantía por el monto necesario para cumplir satisfactoriamente con el nivel mínimo requerido para respaldar sus obligaciones.
+(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 324 al 325)

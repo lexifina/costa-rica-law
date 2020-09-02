@@ -1,1 +1,4 @@
-Artículo 468. Reclamos del cliente. Los emisores deben abonar provisionalmente (disponibilidad de fondos) al cliente el monto sujeto a reclamo, en un plazo máximo de 5 días hábiles, contados a partir del momento en que se recibe el reclamo por parte del cliente. Los emisores dispondrán de hasta 120 días naturales para finiquitar la investigación del reclamo y, en caso que resulte a su favor, aplicarán un cobro al cliente por el monto sujeto a reclamo. Tratándose de pagos rápidos, el abono tendrá carácter definitivo.
+CAPÍTULO VI
+DE LAS RESPONSABILIDADES
+Artículo 468. Liquidación en BCCR. Las transacciones con dispositivos de pago emitidos o habilitados en Costa Rica que se lleven a cabo dentro del territorio nacional mediante las redes de POS y ATM, podrán ser liquidadas sobre las cuentas SINPE de los asociados que operan en dichas redes, utilizando para los efectos la infraestructura de pagos interbancarios del BCCR.
+(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 467 al 468)

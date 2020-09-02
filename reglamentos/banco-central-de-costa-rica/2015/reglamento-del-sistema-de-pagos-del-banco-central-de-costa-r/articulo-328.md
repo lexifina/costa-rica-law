@@ -1,2 +1,4 @@
-Artículo 328. Constitución de la garantía en valores. Los asociados deberán traspasar a la cuenta de garantía los valores necesarios para cumplir con sus requerimientos de garantía, conforme con las disposiciones operativas que establezcan las normas complementarias del servicio.
-Los valores que traspasen los asociados quedarán pignorados mientras se mantengan depositados en la cuenta de garantía.
+CAPÍTULO V
+DE LA GARANTÍA EN VALORES
+Artículo 328. Cuenta de valores en garantía. El BCCR podrá mantener abierta una cuenta de valores con una entidad de custodia, para administrar los valores que los asociados decidan rendir en garantía.
+(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 327 al 328)

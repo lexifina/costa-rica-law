@@ -1,4 +1,2 @@
-CAPÍTULO III
-DE LAS TRANSACCIONES DE PAGO
-Artículo 458. Pagos rápidos. Los pagos rápidos se refieren a todas aquellas transacciones que se realicen con dispositivo de pago presente y que dispongan de tecnología EMV, por montos inferiores o iguales a treinta mil colones, que no requieren la comprobación de la identidad del cliente para su autorización. Por lo tanto, con su procesamiento no debe exigirse al cliente la presentación de su documento de identificación, la firma del comprobante de pago (“voucher”), la digitación del PIN del dispositivo de pago o el uso de identificación biométrica o de cualquier otro elemento de autenticación. A solicitud de los emisores y adquirentes del mercado de tarjetas de pago, este monto podrá incrementarse, previa comunicación al BCCR y su respectiva aprobación.
-(Así reformado mediante sesión N° 5929-2020 del 15 de abril del 2020)
+Artículo 458. Cambio de PIN. Los emisores deberán brindar a sus clientes las facilidades necesarias para realizar el cambio de PIN y garantizarle su uso dentro o fuera del territorio nacional.
+(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 457 al 458)

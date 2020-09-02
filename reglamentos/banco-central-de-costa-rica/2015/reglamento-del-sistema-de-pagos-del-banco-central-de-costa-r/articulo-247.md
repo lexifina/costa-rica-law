@@ -1,1 +1,2 @@
-Artículo 247. Plazo de las operaciones. Las operaciones diferidas de liquidez serán pactadas de contado y tendrán un plazo de negociación entre 1 y 90 días naturales.
+Artículo 247. Plazo de las operaciones. Las operaciones diferidas de liquidez serán pactadas de contado y tendrán un plazo de negociación entre 1 y 90 días naturales. Las operaciones diferidas a plazo se pactarán de contado con plazos de negociación superiores a 90 días naturales y hasta 4 años.
+(Así reformado en sesión N° 5955 del 2 de setiembre del 2020)

@@ -1,1 +1,2 @@
-Artículo 265. Gestión Riesgo Operativo. Los intermediarios cambiarios deberán utilizar los parámetros de gestión de riesgo operativo disponibles en el servicio; en el caso del resto de participantes, su uso será obligatorio partir de que el BCCR así lo determine y lo comunique por medio de las normas complementarias respectivas.
+Artículo 265. Cobro del margen de intermediación cambiaria. El BCCR cobrará diariamente, en forma automática y con cargo a la cuenta de fondos de las entidades autorizadas, el monto que por concepto de margen de intermediación cambiaria corresponda de acuerdo con el Reglamento para las Operaciones Cambiarias de Contado.
+(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 264 al 265)

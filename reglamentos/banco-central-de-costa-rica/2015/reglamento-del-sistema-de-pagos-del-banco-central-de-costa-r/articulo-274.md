@@ -1,1 +1,2 @@
-Artículo 274. Canje de numerario. Los asociados a los que el BCCR entregue numerario nuevo o les reciba numerario deteriorado, deben ofrecer el servicio de canje de numerario al público; ya sea de deteriorado por circulable; de billete por moneda o viceversa. Para tal efecto, podrán cobrar una comisión por la prestación de este servicio.
+Artículo 274. Atención de requerimientos de numerario y empaquetado. La División Sistema de Pagos del BCCR establecerá los criterios para la atención de los requerimientos de los asociados de depósito o retiro de numerario; asimismo, los estándares que deberán cumplir con el empaquetado del numerario.
+(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 273 al 274)

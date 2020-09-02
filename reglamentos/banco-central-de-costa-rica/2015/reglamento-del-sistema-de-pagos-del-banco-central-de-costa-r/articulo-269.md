@@ -1,1 +1,2 @@
-Artículo 269. Validación de autenticidad. Cualquier persona física o jurídica que identifique numerario de dudosa autenticidad, deberá remitirlo al BCCR para su respectivo análisis.
+Artículo 269. Sustitución de numerario. Cada vez que el BCCR introduzca cambios en las características del numerario o en sus seguridades, retirará de circulación las denominaciones que han sido objeto de cambio. Asimismo, publicará oportunamente el plan de retiro y de sustitución.
+(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 268 al 269)

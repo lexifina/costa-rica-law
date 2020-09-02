@@ -1,3 +1,2 @@
-CAPÍTULO VIII
-DEL CRÉDITO OVERNIGHT
-Artículo 338. Formalización de créditos. Si al cierre del horario bancario un asociado mantiene saldos pendientes por concepto de créditos intradiarios, y carece de los fondos necesarios para cancelarlos, el BCCR procederá a formalizar automáticamente un crédito overnight a su favor.
+Artículo 338. Suspensión del crédito intradiario. El BCCR podrá suspender la facilidad de crédito intradiario cuando por razones de política monetaria considere necesaria la medida. También podrá retirar la facilidad a la entidad que se encuentre en un estado de inestabilidad o irregularidad financiera de grado tres, conforme con lo dispuesto en el artículo 136 de la Ley 7558.
+(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 337 al 338)

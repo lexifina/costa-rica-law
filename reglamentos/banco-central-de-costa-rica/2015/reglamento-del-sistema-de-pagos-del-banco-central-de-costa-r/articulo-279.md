@@ -1,3 +1,2 @@
-CAPÍTULO II
-DE LOS PARTICIPANTES
-Artículo 279. Participantes del servicio. En el servicio CAN debe operar el BCCR, los asociados del SINPE que decidan mantener numerario del BCCR en sus propias bóvedas o espacios acondicionados para tal fin y las que requieran depositar numerario en la Custodia General del BCCR.
+Artículo 279. Operación de las CAN. Las CAN operarán en las instalaciones de los asociados. A solicitud de tales asociados, podrán funcionar también en espacios acondicionados para tal efecto por las empresas transportadoras de dinero o afines, siempre y cuando cumplan las regulaciones que se establezcan.
+(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 278 al 279)

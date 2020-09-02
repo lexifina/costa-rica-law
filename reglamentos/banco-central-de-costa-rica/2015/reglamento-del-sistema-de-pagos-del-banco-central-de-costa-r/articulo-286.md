@@ -1,1 +1,4 @@
-Artículo 286. Seguridad de las CAN. Los asociados deberán establecer medidas de control y de infraestructura que garanticen un funcionamiento seguro de las CAN, de conformidad con los lineamientos que sobre el particular establezca el BCCR y los que dicten las buenas prácticas en materia de seguridad bancaria. La entidad no podrá realizar movimientos de numerario en la CAN mientras el circuito cerrado de televisión (CCTV) no funcione adecuadamente, salvo casos de fuerza mayor autorizados por el Departamento de Tesorería.
+CAPÍTULO IV
+DE LAS RESPONSABILIDADES DE LAS ENTIDADES PARTICIPANTES
+Artículo 286. Responsabilidad por el numerario. Los fondos que mantienen los asociados en sus cuentas en el BCCR, responderán, en la moneda correspondiente, como garantía por el valor monetario del numerario depositado en las CAN.
+(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 285 al 286)

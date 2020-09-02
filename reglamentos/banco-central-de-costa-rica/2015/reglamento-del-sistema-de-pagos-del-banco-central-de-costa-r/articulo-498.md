@@ -1,3 +1,2 @@
-CAPÍTULO V
-DE LAS PROHIBICIONES Y RESPONSABILIDADES
-Artículo 498. Uso restringido de la información. Los participantes deberán utilizar la información a la que accedan con el servicio, única y exclusivamente para validar la identidad de los ciudadanos, debiendo garantizar también que el personal que la acceda lo haga legitimado por una necesidad de consulta de información en los términos en que las regula el presente libro.
+Artículo 498. Confidencialidad de la información. La información a la que acceda el participante con las consultas deberá ser tratada con un carácter confidencial, debiendo utilizarla el participante con los cuidados y controles necesarios para evitar accesos no autorizados por parte de terceros.
+(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 497 al 498)

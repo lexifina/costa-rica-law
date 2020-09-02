@@ -1,3 +1,2 @@
-CAPÍTULO II
-DE LOS PARTICIPANTES
-Artículo 376. Participantes del servicio. En el servicio AES operan todos los afiliados del SINPE.
+Artículo 376. Uso del servicio. Cada afiliado debe utilizar el servicio AES para la administración interna de los usuarios del SINPE. Por su parte, el BCCR lo utilizará para registrar a cada afiliado los responsables de seguridad total autorizados, los servicios a los que tiene derecho y los nodos que utiliza la entidad para acceder al SINPE, así como cualquier otro elemento de seguridad que se defina en las normas complementarias del servicio.
+(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 375 al 376)

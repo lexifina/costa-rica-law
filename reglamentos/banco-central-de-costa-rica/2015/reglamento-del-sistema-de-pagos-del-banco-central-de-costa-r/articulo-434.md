@@ -1,3 +1,2 @@
-CAPÍTULO II
-DE LOS PARTICIPANTES
-Artículo 434. Participantes del servicio. En el PUC pueden operar las Oficialías de Cumplimiento y las áreas que apoyan los procesos de control de las entidades financieras supervisadas, la SUGEF, la Unidad de Inteligencia Financiera del ICD y cualquier otra entidad que tenga las potestades para consultar esta información para el cumplimiento de la Ley 8204.
+Artículo 434. Naturaleza del padrón. El PUC es administrado por el BCCR como herramienta de apoyo al control, así como para prevenir y reprimir las actividades de legitimación de capitales y el financiamiento al terrorismo dentro del Sistema Financiero Nacional.
+(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 433 al 434)

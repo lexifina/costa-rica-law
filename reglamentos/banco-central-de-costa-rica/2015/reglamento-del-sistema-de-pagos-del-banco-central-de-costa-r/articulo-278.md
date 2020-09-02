@@ -1,1 +1,2 @@
-Artículo 278. Operación de las CAN. Las CAN operarán en las instalaciones de los asociados. A solicitud de tales asociados, podrán funcionar también en espacios acondicionados para tal efecto por las empresas transportadoras de dinero o afines, siempre y cuando cumplan las regulaciones que se establezcan.
+Artículo 278. Carácter oficial del servicio. El servicio CAN es el sistema oficial de registro del inventario de numerario del BCCR, del que mantiene en su Custodia General y del custodiado por cuenta y riesgo de los asociados que administran CAN.
+(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 277 al 278)

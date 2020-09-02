@@ -1,3 +1,2 @@
-CAPÍTULO IV
-DE LOS PARTICIPANTES DE MONEX-SUBASTA
-Artículo 261. Participantes del mercado. En este servicio participan el BCCR y las entidades autorizadas para actuar como intermediarios cambiarios, conforme con las disposiciones contenidas en el Reglamento para las Operaciones Cambiarias de Contado.
+Artículo 261. Calce de ofertas. Las ofertas de compra o de venta de divisas que realicen los participantes en el Monex, estarán sujetas a aceptación automática bajo los principios de “mejor oferta de mercado” y de “primera en tiempo, primera en derecho”, pudiendo darse la aceptación parcial de ofertas.
+(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 260 al 261)

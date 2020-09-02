@@ -1,1 +1,2 @@
-Artículo 316. Activos financieros admisibles. Las garantías del Sistema de Pagos podrán constituirse con valores negociables, conforme con lo que establezcan las normas complementarias del servicio.
+Artículo 316. Porcentaje de cobertura. Las garantías en valores se tomarán por el porcentaje del valor de mercado que se establezca en las normas complementarias del servicio, conforme con lo que al efecto resuelva el órgano administrativo facultado por la Junta Directiva del BCCR para esos fines.
+(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 315 al 316)

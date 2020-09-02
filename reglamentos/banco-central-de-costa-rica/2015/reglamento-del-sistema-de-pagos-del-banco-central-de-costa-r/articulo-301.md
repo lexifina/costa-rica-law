@@ -1,3 +1,6 @@
-CAPÍTULO II
-DE LOS PARTICIPANTES
-Artículo 301. Participantes del servicio. En el servicio MEN podrán operar el BCCR, los asociados y las empresas transportadoras de valores autorizadas por tales asociados para prestar servicios de transporte o negociar numerario por su cuenta.
+LIBRO XXVIII
+MERCADO DE NUMERARIO
+CAPÍTULO I
+DEL SERVICIO
+Artículo 301. Definición del servicio. El Mercado de Numerario (MEN) es el conjunto de procesos operativos, la logística y la plataforma electrónica mediante el cual los participantes negocian numerario entre sí moneda nacional, dólares estadounidenses, euros u otras divisas que autorice la División Sistema de Pagos.
+(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 300 al 301)

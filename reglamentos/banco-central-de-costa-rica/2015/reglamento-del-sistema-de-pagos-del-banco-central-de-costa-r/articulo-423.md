@@ -1,7 +1,12 @@
-CAPÍTULO IV
-DE LAS RESPONSABILIDADES
-Artículo 423. Responsabilidades de la entidad origen:
-a) Asumir frente a la entidad destino las obligaciones financieras que se deriven de las órdenes de domiciliación que tramite y que hayan sido activadas por la entidad destino luego de ejecutar los procesos de validación que establecen las normas complementarias del servicio, ya sea que se trate de órdenes de domiciliación propias o de sus clientes.
-Para efectos de tramitar las órdenes de domiciliación que le presenten sus clientes, la entidad origen podrá exigir a estos las garantías que considere pertinentes.
-b) Conservar y administrar con debida diligencia las órdenes de domiciliación físicas que le corresponda custodiar, así como mantener las seguridades necesarias en sus sistemas de información para proteger los registros de las órdenes de domiciliación electrónicas y demostrar frente a la entidad destino su existencia cuando esta se lo solicite.
-En las situaciones en que la entidad origen no demuestre la domiciliación dentro de los términos establecidos en el presente libro, deberá reintegrar de inmediato a la entidad destino el monto de los débitos automáticos que, con base en la domiciliación no demostrada, haya ordenado en los tres meses anteriores contados a partir del momento en que la entidad destino solicita la demostración.
+Artículo 423. Ciclo de operación del servicio. El ciclo del servicio ADA opera con las siguientes etapas:
+a) Transmisión de prenotificaciones: la entidad origen envía el archivo de prenotificaciones a la entidad destino (en t), con la información detallada de las domiciliaciones recibidas de sus clientes.
+Luego del cierre de esta etapa, cada entidad recibe un archivo con la información de las prenotificaciones transmitidas por los demás participantes para las cuentas de sus clientes.
+b) Validación de las prenotificaciones: la entidad destino valida automáticamente el archivo de prenotificaciones, con base en la información que administran sus sistemas internos.
+c) Transmisión de rechazos: la entidad destino, a más tardar el día hábil siguiente (en t+1), envía un archivo con la información de las prenotificaciones recibidas en las etapas anteriores del ciclo, que resulten rechazadas durante los procesos de validación correspondientes.
+Luego del cierre de esta etapa, cada entidad origen recibe un archivo electrónico con la información de las prenotificaciones rechazadas por las demás entidades.
+En estos casos, la entidad origen deberá realizar las comunicaciones que correspondan para informar a sus clientes sobre el resultado fallido de la domiciliación.
+d) Activación de la domiciliación: la entidad destino registra y activa en sus sistemas las domiciliaciones cuyas prenotificaciones resultaron validadas con éxito, de manera que la cuenta IBAN respectiva quede debidamente domiciliada y en capacidad de recibir los débitos automáticos que se ordenen en virtud de la domiciliación aceptada.
+La activación de la domiciliación se realiza el mismo día en que la prenotificación es validada y la recepción de débitos a partir del segundo día hábil del ciclo de operación del servicio (en t+2).
+e) Aceptación tácita: las prenotificaciones que no se incluyan en el archivo de rechazos se tomarán como formalmente aceptadas por la entidad destino y empezarán a regir a partir del segundo día hábil del ciclo de operación del servicio (en t+2).
+En estos casos, la entidad destino deberá asumir frente al cliente destino, las responsabilidades por todos los actos que se produzcan a partir de la aceptación de la prenotificación, y no podrá rechazar los débitos que se ordenen con base en la domiciliación que activa dicha aceptación, salvo que el motivo de rechazo no se relacione directamente con la aceptación tácita.
+(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 422 al 423)

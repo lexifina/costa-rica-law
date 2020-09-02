@@ -1,1 +1,4 @@
-Artículo 353. Medidas para enfrentar exclusiones. Para enfrentar situaciones que ameriten la exclusión de un afilado de un multilateral neto, así como cualquier otro problema similar que se llegue a presentar con la liquidación, los sistemas de información de los afiliados deberán estar preparados para reversar las transacciones de la entidad excluida.
+CAPÍTULO XII
+DE LOS MECANISMOS DE EXCLUSIÓN PARA LA LIQUIDACIÓN MULTILATERAL NETA
+Artículo 353. Exclusiones por insuficiencia de fondos. Un afiliado será excluido de la liquidación de un multilateral neto cuando no pueda pagar el débito cobrado en su contra, o cuando tampoco posea garantías suficientes para que el BCCR le otorgue un crédito intradiario que le permita solventar la insuficiencia.
+(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 352 al 353)

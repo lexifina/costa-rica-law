@@ -1,2 +1,2 @@
-Artículo 364. Certificación de usuarios. Con la aprobación de un curso de capacitación, el participante obtiene una certificación que lo habilita a operar los servicios del SINPE contemplados dentro del programa del curso. Los afiliados deben cumplir con el porcentaje mínimo de usuarios certificados en cada servicio que se establezca en la norma complementaria.
-Los afiliados son responsables de verificar que las personas que participan en el SINPE como usuarios de su entidad, estén capacitados y debidamente certificados por el BCCR.
+Artículo 364. Obligatoriedad de la capacitación. La capacitación del BCCR es obligatoria para los usuarios de los servicios del SINPE. Cuando los candidatos no sean usuarios del SINPE, la capacitación se le impartirá sólo a quienes hayan sido propuestos por los propios afiliados.
+(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 363 al 364)

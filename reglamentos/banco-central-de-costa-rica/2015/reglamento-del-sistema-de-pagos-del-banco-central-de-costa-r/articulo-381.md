@@ -1,1 +1,4 @@
-Artículo 381. Contingencia del RST. Es responsabilidad de la entidad crear en su estructura de seguridad al menos a un tercer RST, para que pueda modificar a los anteriores RST en sus servicios operativos, o colaborar en las labores que dicho perfil demanda.
+CAPÍTULO IV
+DE LAS RESPONSABILIDADES
+Artículo 381. Autorización de RST. Es responsabilidad del afiliado autorizar, por medio de su representante legal, un mínimo de dos personas para desempeñar la función de RST.
+(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 380 al 381)

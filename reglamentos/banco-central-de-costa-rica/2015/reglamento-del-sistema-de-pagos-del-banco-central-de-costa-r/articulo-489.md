@@ -1,1 +1,4 @@
-Artículo 489. Suministro de información. Los afiliados y las instituciones mencionadas en el presente libro y en concordancia con lo establecido en la Ley 7839 del Sistema de Estadística Nacional, deberán suministrar la información que se les solicite, en los tiempos y formatos establecidos por el BCCR.
+CAPÍTULO IV
+DE LAS RESPONSABILIDADES
+Artículo 489. Solicitudes de información. El BCCR puede solicitar información sobre otras transacciones distintas de las efectuadas en los servicios del SINPE. Esta información la utilizará para la toma de decisiones relacionadas con el desarrollo y modernización del sistema de pagos costarricense. Para el caso de procesos implementados por el BCCR para la solicitud de información, tales como encuestas u otros instrumentos; los mismos deben ser comunicados a las entidades por los medios de comunicación oficiales, indicando periodicidad, plazos de entrega, entre otros.
+(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 488 al 489)

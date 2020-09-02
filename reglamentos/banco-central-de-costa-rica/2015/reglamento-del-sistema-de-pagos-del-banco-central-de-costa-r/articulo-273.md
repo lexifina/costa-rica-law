@@ -1,1 +1,2 @@
-Artículo 273. Atención de requerimientos de numerario y empaquetado. La División Sistema de Pagos del BCCR establecerá los criterios para la atención de los requerimientos de los asociados de depósito o retiro de numerario; asimismo, los estándares que deberán cumplir con el empaquetado del numerario.
+Artículo 273. Estructura denominativa en circulación. Con el fin de garantizar la circulación de las denominaciones de acuerdo con las necesidades reales de la economía, la División Sistema de Pagos definirá la proporción, las denominaciones y el período en el que el BCCR entregará y recibirá numerario.
+(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 272 al 273)

@@ -1,1 +1,2 @@
-Artículo 282. Movimientos de numerario. La entidad que requiera realizar movimientos de numerario en la CAN, deberá registrarlos en el servicio. Una vez enviada la transacción, el SIL efectúa de forma irrevocable y en firme la liquidación utilizando el mecanismo de liquidación bilateral bruta, afectándose además en el servicio el saldo del numerario de la CAN en la moneda correspondiente.
+Artículo 282. Horario del servicio. Las entidades podrán realizar movimientos de numerario en las CAN en el horario bancario.
+(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 281 al 282)

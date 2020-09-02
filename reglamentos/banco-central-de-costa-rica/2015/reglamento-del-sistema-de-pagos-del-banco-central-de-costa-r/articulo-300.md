@@ -1,5 +1,5 @@
-LIBRO XXVIII
-MERCADO DE NUMERARIO
-CAPÍTULO I
-DEL SERVICIO
-Artículo 300. Definición del servicio. El Mercado de Numerario (MEN) es el conjunto de procesos operativos, la logística y la plataforma electrónica mediante el cual los participantes negocian numerario entre sí moneda nacional, dólares estadounidenses, euros u otras divisas que autorice la División Sistema de Pagos.
+Artículo 300. Revocatoria de la autorización. El BCCR podrá revocar la autorización a la entidad para administrar CAN cuando se presente cualquiera de las siguientes circunstancias:
+a) La entidad se encuentre en un estado de inestabilidad o irregularidad financiera de grado tres, conforme con los supuestos que para los efectos establece el artículo 136 de la Ley 7558.
+b) El BCCR decida suspender el servicio.
+c) Cuando una misma CAN incurra en tres incumplimientos durante un año calendario, según lo dispuesto en este capítulo.
+(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 299 al 300)

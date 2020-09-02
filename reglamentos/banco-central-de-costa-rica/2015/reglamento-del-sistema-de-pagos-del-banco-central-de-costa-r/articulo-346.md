@@ -1,1 +1,2 @@
-Artículo 346. Transparencia de los procesos de ejecución. La ejecución de garantías deberá realizarse mediante procedimientos transparentes, de acuerdo con lo establecido en las normas complementarias del servicio, de modo que aseguren en todo momento la protección de los derechos de los asociados durante el proceso de ejecución.
+Artículo 346. Aplicación de sobrantes. Cuando la ejecución de una garantía produzca algún sobrante, luego de haber liquidado satisfactoriamente las obligaciones financieras incumplidas, el BCCR lo acreditará en la cuenta de fondos de la entidad titular de la garantía ejecutada.
+(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 345 al 346)

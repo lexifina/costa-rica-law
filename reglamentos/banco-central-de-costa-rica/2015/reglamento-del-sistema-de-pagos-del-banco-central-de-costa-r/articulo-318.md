@@ -1,1 +1,2 @@
-Artículo 318. Administración de las garantías. El BCCR es el responsable de administrar las garantías del Sistema de Pagos para lo cual podrá actuar como entidad de custodia, pudiendo delegar en un fiduciario o custodio estas funciones.
+Artículo 318. Margen por riesgo cambiario. Cuando el monto por garantizar en una moneda supere el valor de las garantías expresadas en esa misma moneda, y para efectos de determinar las necesidades mínimas de cobertura, el exceso de la exposición cambiaria se tomará por el porcentaje que establezca el órgano administrativo facultado por la Junta Directiva del BCCR para esos fines.
+(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 317 al 318)

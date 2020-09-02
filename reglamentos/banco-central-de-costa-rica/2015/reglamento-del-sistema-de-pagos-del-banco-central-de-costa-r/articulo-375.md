@@ -1,1 +1,7 @@
-Artículo 375. Uso del servicio. Cada afiliado debe utilizar el servicio AES para la administración interna de los usuarios del SINPE. Por su parte, el BCCR lo utilizará para registrar a cada afiliado los responsables de seguridad total autorizados, los servicios a los que tiene derecho y los nodos que utiliza la entidad para acceder al SINPE, así como cualquier otro elemento de seguridad que se defina en las normas complementarias del servicio.
+SEGURIDAD DEL SISTEMA DE PAGOS
+LIBRO XXXI
+ADMINISTRACIÓN DE ESQUEMAS DE SEGURIDAD
+CAPÍTULO I
+DEL SERVICIO
+Artículo 375. Definición del servicio. Administración de Esquemas de Seguridad (AES) es el servicio que facilita al BCCR y a los afiliados la administración y supervisión de la seguridad del SINPE.
+(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 374 al 375)

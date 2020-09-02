@@ -1,1 +1,2 @@
-Artículo 270. Incumplimiento en el procesamiento. En caso de que durante la revisión de calidad que ejecuta el BCCR a los depósitos de numerario que reciba de los asociados o al que mantienen en las CAN, identifique más de un 5 % de una categoría diferente a la indicada en la boleta respectiva, o billete falso, aplicará la tarifa que para cada uno de esos casos establece el presente reglamento.
+Artículo 270. Validación de autenticidad. Cualquier persona física o jurídica que identifique numerario de dudosa autenticidad, deberá remitirlo al BCCR para su respectivo análisis.
+(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 269 al 270)

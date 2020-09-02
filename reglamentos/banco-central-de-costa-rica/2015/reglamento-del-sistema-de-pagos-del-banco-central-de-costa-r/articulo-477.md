@@ -1,3 +1,2 @@
-CAPÍTULO IV
-DE LAS RESPONSABILIDADES
-Artículo 477. Obligatoriedad de uso del servicio. Los afiliados deberán utilizar el servicio REF para presentar todos los reclamos que procedan por concepto de débitos no autorizados o créditos no aplicados, por lo que la entidad destinataria no estará obligada a atender ningún reclamo presentado por otros medios.
+Artículo 477. Prescripción del reclamo. El periodo para ejercer el reclamo de una transacción prescribe después de los 5 días hábiles de su liquidación, por lo que a partir de la expiración de este plazo se considera finalizada y no podrá ser sujeta de reclamación mediante el SINPE.
+(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 476 al 477)

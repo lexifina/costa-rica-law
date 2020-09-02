@@ -1,6 +1,5 @@
-LIBRO XXXIV
-CONTROL Y SEGUIMIENTO DE OPERACIONES
-CAPÍTULO I
-DEL SERVICIO
-Artículo 425. Definición del servicio. Control y Seguimiento de Operaciones (CSO) es el servicio por medio del cual se consultan las transacciones que efectúan los afiliados por medio del SINPE, en nombre de terceros, sean personas físicas o jurídicas.
-El servicio CSO permite la identificación plena de las personas involucradas en las transacciones, pudiéndose determinar el origen y destino de los fondos o valores movilizados, así como identificar a los afiliados que intervinieron en las transacciones.
+Artículo 425. Responsabilidades de la entidad destino:
+a) Proveer a sus clientes las facilidades necesarias para que por medio de Internet, teléfono, plataforma de servicios o cualquier otro mecanismo similar, puedan verificar las domiciliaciones registradas para su cuenta IBAN, modificar las condiciones de una domiciliación previamente emitida, eliminar una domiciliación o suscribir una nueva.
+Cuando un cliente destino decida modificar las condiciones de una domiciliación activa, deberá comunicar al cliente origen las nuevas condiciones de la domiciliación. Para este trámite rige el mismo ciclo de operación establecido por el servicio para las nuevas órdenes de domiciliación.
+b) Aceptar los débitos automáticos que le ordenen los asociados y proveedores de servicios de pago con aplicación a una cuenta IBAN y en virtud de una domiciliación aceptada, salvo que el cliente destino manifieste expresamente lo contrario, ante lo cual la entidad destino deberá comunicar a la entidad origen la instrucción recibida de su cliente para revocar la autorización original.
+(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 424 a 425)

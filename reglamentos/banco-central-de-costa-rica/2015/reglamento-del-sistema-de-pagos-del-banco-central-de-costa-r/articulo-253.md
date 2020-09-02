@@ -1,3 +1,4 @@
 CAPÍTULO V
 DE LAS RESPONSABILIDADES
-Artículo 253. Suficiencia de fondos. Las entidades que capten recursos son responsables de mantener en su cuenta los fondos suficientes para cubrir en la fecha de vencimiento, el pago del principal adeudado y los respectivos intereses.
+Artículo 253. Requerimientos particulares. El BCCR podrá establecer requerimientos particulares para las entidades que estén interesadas en obtener financiamiento por medio de las operaciones diferidas a plazo. Además, el BCCR podrá darle seguimiento al cumplimiento de los requerimientos particulares establecidos y podrá modificar las condiciones pactadas en caso de incumplimiento de los requerimientos particulares; lo anterior de acuerdo con lo establecido por la Junta Directiva del BCCR y detallado en el Contrato para realizar operaciones diferidas a plazo en el MIL entre el BCCR y la entidad financiera solicitante.
+(Así reformado en sesión N° 5955 del 2 de setiembre del 2020)

@@ -1,1 +1,2 @@
-Artículo 382. Responsabilidad sobre transacciones. El afiliado es responsable de las transacciones realizadas por los usuarios que haya sido autorizado por sus RST o RSP, así como cuando no pueda operar en el SINPE debido a la falta de los RST o RSP requeridos para asignar derechos a los usuarios internos.
+Artículo 382. Contingencia del RST. Es responsabilidad de la entidad crear en su estructura de seguridad al menos a un tercer RST, para que pueda modificar a los anteriores RST en sus servicios operativos, o colaborar en las labores que dicho perfil demanda.
+(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 381 al 382)

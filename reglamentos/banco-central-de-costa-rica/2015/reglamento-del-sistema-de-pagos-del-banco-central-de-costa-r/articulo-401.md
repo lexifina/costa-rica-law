@@ -1,3 +1,3 @@
-CAPÍTULO III
-DE LA EMISIÓN DE CERTIFICADOS DIGITALES DE PERSONA JURIDICA
-Artículo 401. Definición del servicio: es el servicio por medio del cual se gestiona la solicitud, emisión, entrega, renovación, revocación, validación y custodia de certificados digitales de personas jurídicas (agente electrónico para la autenticación y sello electrónico para la firma).
+Artículo 401. Medida preventiva ante incumplimiento. Cuando una OR incumpla alguna de las disposiciones establecidas para su apertura y operación, su autorización de funcionamiento será suspendida por el BCCR, debiendo el participante abstenerse de realizar en la OR suspendida, cualquier actividad relacionada con el servicio Firma Digital.
+Para la reapertura de la OR suspendida, el participante deberá someterse al mismo procedimiento de validación establecido por el BCCR para autorizar la apertura de una OR.
+(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 400 al 401)

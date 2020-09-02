@@ -1,1 +1,4 @@
-Artículo 463. Accesibilidad del POS. El adquirente debe asegurarse que el establecimiento comercial instale el POS de forma que se mantenga fácilmente accesible para el cliente (al alcance de su mano), ubicado en el mismo lugar donde recibe el bien o servicio, con el propósito de que dicho cliente pueda realizar las transacciones utilizando la funcionalidad de pago sin contacto y por ninguna razón entregar su dispositivo de pago a un tercero. El POS debe brindar la facilidad de visualización del monto a cobrar, de modo que el cliente tenga certeza y seguridad sobre la suma que se le estará cargando, antes de ejecutar la acción de pago.
+CAPÍTULO V
+DE LAS TERMINALES DE PUNTOS DE VENTA (POS)
+Artículo 463. Requerimientos de los POS. El adquirente debe asegurarse que el establecimiento comercial afiliado tenga habilitados POS con la capacidad de aceptar dispositivos de pago que incorporen las tecnologías EMV, la tecnología de pago sin contacto y la capacidad de validar al cliente mediante el uso del PIN en línea o autenticación biométrica.
+(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 462 al 463)

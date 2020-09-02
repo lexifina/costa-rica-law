@@ -1,2 +1,3 @@
-Artículo 399. Inspecciones por parte del BCCR. Los administradores de OR están en la obligación de permitir las inspecciones que programe el BCCR en sus OR para verificar el cumplimiento del marco regulatorio aplicable al funcionamiento de las OR. Con tales propósitos deberán suministrar al BCCR la información que les requiera, con el formato y las condiciones que este defina.
-Las mismas condiciones deberán ser provistas por los participantes a los funcionarios de la Dirección de Certificadores de Firma Digital, del Ministerio de Ciencia y Tecnología y Telecomunicaciones, según lo dispone la normativa nacional vigente.
+Artículo 399. Prestación de servicios de emisión a clientes de otros participantes. Los asociados que actúen como OR deberán prestarle los servicios de firma digital a un conjunto determinado de clientes de otros asociados del SINPE.
+Por la prestación de estos servicios, las OR recibirán en pago las comisiones establecidas en el presente Reglamento.
+(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 398 al 399)

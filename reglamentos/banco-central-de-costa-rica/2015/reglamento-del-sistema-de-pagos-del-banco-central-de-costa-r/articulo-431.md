@@ -1,1 +1,2 @@
-Artículo 431. Confidencialidad de la identidad de terceros. Los afiliados deberán manejar confidencialmente, la identidad de las personas que consulten en el servicio, con el propósito de no obstaculizar posibles investigaciones.
+Artículo 431. Prohibición de divulgación de la información. Los afiliados no deberán divulgar a terceros, el hecho de que se haya recopilado información por medio de este servicio, sea por iniciativa propia o por requerimiento de alguna autoridad, según lo estipulado en la Ley 8204 y su normativa conexa.
+(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 430 a 431)

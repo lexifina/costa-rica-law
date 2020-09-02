@@ -1,1 +1,4 @@
-Artículo 402. Gestión de Certificados. La validación de la identidad, el registro de los suscriptores, así como el trámite de las solicitudes de emisión, revocación, renovación y entrega de certificados digitales de persona jurídica la realiza directamente la CA SINPE – Persona Jurídica. Las obligaciones a las que se sujetan quienes obtengan un certificado digital estarán consignadas en el respectivo Acuerdo de Suscriptor que deberá firmar el representante legal o en su defecto el Tramitador de Certificados de Persona Jurídica.
+CAPÍTULO III
+DE LA EMISIÓN DE CERTIFICADOS DIGITALES DE PERSONA JURIDICA
+Artículo 402. Definición del servicio: es el servicio por medio del cual se gestiona la solicitud, emisión, entrega, renovación, revocación, validación y custodia de certificados digitales de personas jurídicas (agente electrónico para la autenticación y sello electrónico para la firma).
+(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 401 al 402)

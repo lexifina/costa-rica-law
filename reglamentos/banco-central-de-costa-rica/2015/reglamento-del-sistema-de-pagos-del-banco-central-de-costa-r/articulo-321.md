@@ -1,3 +1,2 @@
-CAPÍTULO IV
-DE LOS REQUERIMIENTOS DE GARANTÍA
-Artículo 321. Requerimiento mínimo para los asociados. Como requerimiento mínimo de garantía, los asociados deberán mantener un monto en garantías al menos igual al promedio móvil más dos desviaciones estándar, que resulte de la suma de sus débitos netos diarios producidos en los últimos 70 días naturales por los servicios de compensación multilateral neta del SINPE, con excepción del servicio de CCD y CDD.
+Artículo 321. Régimen aplicable a las garantías. Las garantías constituidas por los asociados para operar en el SINPE, de conformidad con lo establecido en la Ley 8876, no se verán afectadas en caso de inicio de un procedimiento de reorganización o liquidación contra un participante, ni por eventuales medidas de carácter retroactivo acordadas por la autoridad competente que tramite el procedimiento contra dicha entidad.
+(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 320 al 321)

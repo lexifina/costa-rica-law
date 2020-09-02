@@ -1,2 +1,2 @@
-Artículo 398. Prestación de servicios de emisión a clientes de otros participantes. Los asociados que actúen como OR deberán prestarle los servicios de firma digital a un conjunto determinado de clientes de otros asociados del SINPE.
-Por la prestación de estos servicios, las OR recibirán en pago las comisiones establecidas en el presente Reglamento.
+Artículo 398. Formalidades de las OR. Los asociados que deseen fungir como OR para la gestión de certificados de persona física deben formalizar su relación con la Autoridad Certificadora del SINPE y cumplir con las formalidades, funciones y responsabilidades establecidas en el presente reglamento y las normas complementarias del servicio.
+(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 397 al 398)

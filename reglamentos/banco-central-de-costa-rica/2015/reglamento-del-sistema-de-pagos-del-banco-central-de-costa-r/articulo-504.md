@@ -1,6 +1,4 @@
-CAPÍTULO III
-DEL ESQUEMA TARIFARIO
-Artículo 504. Esquema de tarifas y comisiones. Se establece un esquema que será utilizado para definir las tarifas del SINPE y las comisiones interbancarias aplicables a todas las transacciones procesadas por el SINPE, con las siguientes condiciones:
-a) La entidad que demanda el servicio (entidad origen) paga por cada transacción ordenada en el servicio.
-b) No se cobra comisión alguna al cliente destino.
-c) El cobro al cliente origen es libre (relación privada entidad-cliente).
+CAPÍTULO II
+DE LOS PARTICIPANTES
+Artículo 504. Participantes del servicio. En el servicio TCS operan todos los afiliados del SINPE.
+(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 503 al 504)

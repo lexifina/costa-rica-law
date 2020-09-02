@@ -1,3 +1,4 @@
-Artículo 314. Actividades garantizadas. Las garantías que rindan los asociados serán para respaldar las siguientes actividades:
-a) El cumplimiento de las obligaciones financieras contraídas con su participación en los mercados de negociación organizados por el BCCR, por medio del SINPE.
-b) Las facilidades crediticias que, como prestamista de última instancia, les otorgue el BCCR para solventar los problemas transitorios de liquidez que enfrenten con su participación en el Sistema de Pagos. Estas facilidades estarán disponibles únicamente para los asociados que participan en los servicios de liquidación multilateral neta del SINPE, con excepción de los servicios CCD y CDD.
+CAPÍTULO III
+DE LAS GARANTÍAS DEL SISTEMA DE PAGOS
+Artículo 314. Requerimiento de garantía. Para participar en el SINPE los asociados deberán cumplir con un requerimiento de garantía, establecido y administrado de conformidad con las disposiciones del presente libro.
+(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 313 al 314)

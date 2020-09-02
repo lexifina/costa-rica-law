@@ -1,3 +1,2 @@
-CAPÍTULO VI
-DEL ESQUEMA DE OPERACIÓN DEL SERVICIO
-Artículo 447. Reportes de información transaccional. Los participantes deben reportar mensualmente por medio de los sistemas de información habilitados por medio de SICVECA, el saldo, los montos acumulados de depósitos y demás datos que se determinen en las normas complementarias del servicio, respecto a todas las cuentas registradas en el PUC. Aquellos participantes que no están sujetos a la supervisión de la SUGEF deberán reportar la información respectiva directamente al PUC.
+Artículo 447. Reclasificación de cuentas tradicionales. Los emisores podrán reclasificar cuentas de fondos tradicionales a CES, siempre que las mismas cumplan con los requisitos y las condiciones establecidas en el presente libro para dichas cuentas. En estos casos, los participantes deben garantizar la completitud de la información del cliente requerida para las CES.
+(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 446 al 447)

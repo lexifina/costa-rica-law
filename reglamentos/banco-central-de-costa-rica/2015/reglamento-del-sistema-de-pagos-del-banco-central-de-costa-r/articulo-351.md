@@ -1,3 +1,3 @@
-CAPÍTULO XI
-DE LA RETENCION POR OPERACIONES DE DEBITO
-Artículo 351. Retención de fondos. A los participantes de los servicios de Débito en Tiempo Real y Débitos Directos, como garantía ante un cobro revertido, se les aplicará sobre su cuenta de fondos, la inmovilización porcentual del monto cobrado por un período igual al plazo de reclamación, de conformidad con lo siguiente: el 100% los proveedores de servicios de pago y organizadores de mercados; el 1% el resto de asociados, con excepción de las entidades que realizan intermediación financiera e intermediación bursátil, BNV e Interclear. La retención de fondos no aplica para transacciones de débito que realice el asociado sobre cuentas de fondos propias mantenidas en otro asociado.
+Artículo 351. Congelamiento de fondos. En el caso de que el asociado no cumpla con la restitución de la garantía faltante en las condiciones solicitadas, el BCCR procederá a congelar en su cuenta de fondos los recursos suficientes para solventar el incumplimiento.
+El congelamiento de fondos podrá hacerse en moneda nacional o extranjera, de acuerdo con lo que mejor resulte para solventar el incumplimiento.
+(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 350 al 351)

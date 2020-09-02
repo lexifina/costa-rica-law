@@ -1,3 +1,2 @@
-CAPÍTULO XV
-DE LA CAPACITACIÓN Y CERTIFICACIÓN DE USUARIOS
-Artículo 362. Programa de capacitación del SINPE. La División Sistema de Pagos mantendrá un programa permanente de capacitación para los usuarios del SINPE, debiendo disponer de las instalaciones, equipo técnico y demás recursos necesarios para impartir una instrucción adecuada sobre las funcionalidades del sistema.
+Artículo 362. Horario de funcionamiento de la SAO. La SAO funcionará en el mismo horario de operación del SINPE, debiendo el BCCR implementar los procedimientos administrativos que faciliten el ingreso de los usuarios a sus instalaciones.
+(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 361 al 362)

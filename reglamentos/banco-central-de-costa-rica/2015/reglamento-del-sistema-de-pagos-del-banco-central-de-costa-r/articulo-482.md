@@ -1,5 +1,2 @@
-LIBRO XXXVIII
-INFORMACIÓN SOBRE EL SISTEMA DE PAGOS
-CAPÍTULO I
-DEL SERVICIO
-Artículo 482. Definición del servicio. Información sobre el Sistema de Pagos (ISP) es el servicio de recopilación, procesamiento y divulgación de información agregada de los sistemas y medios de pago ofrecidos por el Sistema Financiero Nacional. Sus participantes deberán velar por el cumplimiento de principios de oportunidad, veracidad, calidad, suficiencia y comparabilidad de la información.
+Artículo 482. Entrega de comprobante con el número de transacción. En el caso de reclamación por créditos no aplicados, la entidad origen del reclamo deberá entregar al cliente origen el comprobante emitido por el servicio, en donde se especifique el número de referencia asignado a la transacción, para que éste a su vez lo entregue al cliente destino, con el fin de que pueda justificar ante la entidad destino la validez de su reclamo.
+(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 481 al 482)

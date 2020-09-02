@@ -1,6 +1,2 @@
-GESTIÓN DE LA LIQUIDEZ DEL SISTEMA DE PAGOS
-LIBRO XXIX
-GESTIÓN DE RIESGOS
-CAPÍTULO I
-DEL SERVICIO
-Artículo 311. Definición del servicio. Gestión de Riesgos es el conjunto de mecanismos dispuestos por el BCCR para mitigar los riesgos de liquidez, operativo y sistémico asociados al funcionamiento del Sistema de Pagos.
+Artículo 311. Servicios a cargo de terceros. El asociado será responsable ante el BCCR por las acciones que realice la empresa que le brinda servicios de transporte o que negocie numerario por su cuenta.
+(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 310 al 311)

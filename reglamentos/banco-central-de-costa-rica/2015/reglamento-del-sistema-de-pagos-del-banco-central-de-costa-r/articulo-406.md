@@ -1,1 +1,2 @@
-Artículo 406. Servicio de Firma de Archivos: Es el servicio dirigido a los suscriptores de certificados digitales emitidos por las Autoridades Certificadoras del SINPE, diseñado para recibir archivos electrónicos y agregarles la firma digital de dichos suscriptores.
+Artículo 406. Servicio de Autenticación de Usuarios: Es el servicio dirigido a suscriptores de certificados digitales emitidos por la CA-SINPE Persona Jurídica, por medio del cual se realiza la autenticación de personas físicas, quienes deben utilizar un certificado digital emitido por la CA-SINPE Persona Física como prueba de identidad.
+(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 405 al 406)

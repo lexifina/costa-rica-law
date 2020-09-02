@@ -1,1 +1,4 @@
-Artículo 410. Validación de certificados: Como parte de cada certificado digital emitido la Autoridades Certificadoras del SINPE mantendrá publicadas las direcciones electrónicas para validar el estado de los certificados a través de Listas de Certificados Revocados (CRL) y consultas en tiempo real (OCSP), para que puedan ser consultadas por cualquier interesado para determinar si debe desconfiar de un certificado digital debido a que este haya sido revocado.
+CAPÍTULO V
+DE LOS SERVICIOS COMPLEMENTARIOS
+Artículo 410. Definición de los servicios: Son servicios disponibles para todo público, mediante los cuales, los interesados pueden realizar la validación de certificados de firma digital, la validación de archivos electrónicos y la revocación de sus certificados.
+(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 409 al 410)

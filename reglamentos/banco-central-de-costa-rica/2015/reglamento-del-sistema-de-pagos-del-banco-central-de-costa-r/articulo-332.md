@@ -1,1 +1,4 @@
-Artículo 332. Valoración. Los valores aportados en garantía serán valorados diariamente a precios de mercado. Por lo tanto, las emisiones que carezcan de una referencia de mercado sin que razonablemente pueda determinarse su precio por otros medios, no podrán admitirse como garantía.
+CAPÍTULO VI
+DE LAS CONDICIONES DE LOS VALORES EN GARANTÍA
+Artículo 332. Características de los valores. Para constituir la garantía en valores se admitirán valores emitidos por el BCCR y el MHDA, que estén debidamente estandarizados y sean admitidos a cotización en un mercado organizado de bolsa. También podrán recibirse valores negociables de emisores no residentes que estén denominados en moneda extranjera, así como valores emitidos por las instituciones autónomas, conforme con las disposiciones que se establezcan en las normas complementarias del servicio y que determine el órgano administrativo designado por la Junta Directiva del BCCR para esos fines.
+(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 331 al 332)

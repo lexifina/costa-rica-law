@@ -1,1 +1,2 @@
-Artículo 326. Retención de vencimientos. Cuando sea necesario liquidar vencimientos que provoquen que el requerimiento de garantía descienda por debajo de su nivel mínimo, los vencimientos se mantendrán retenidos en una cuenta de fondos en garantía y no serán girados hasta que el acreedor aporte nuevos valores que restituyan el faltante de garantía.
+Artículo 326. Plazo para la restitución. Siempre que el BCCR solicite una restitución de garantía para cumplir con lo dispuesto en el presente libro, el asociado deberá rendir las garantías respectivas a más tardar a las 11:00 a.m. del día hábil siguiente al día en que el BCCR realiza la solicitud.
+(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 325 al 326)

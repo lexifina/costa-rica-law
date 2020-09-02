@@ -1,3 +1,2 @@
-DE LOS PARTICIPANTES
-Artículo 427. Participantes. Podrá operar en el servicio CSO cualquier afiliado que requiera conocer el detalle de las transacciones que su entidad ha tramitado en representación de sus clientes, ya sea como originador o receptor.
-El servicio está dirigido a personas con funciones de control y monitoreo de transacciones interbancarias y a los organismos facultados legalmente para acceder a la información de esas transacciones.
+Artículo 427. Cumplimiento legal. El servicio CSO atiende a la obligación legal impuesta al BCCR por medio del reglamento a la Ley 8204, respecto a facilitar un medio por el cual los actores en materia de prevención de la legitimación de capitales, puedan acceder a la información perteneciente a las transacciones que se tramitan por medio del SINPE.
+(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 426 al 427)

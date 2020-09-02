@@ -1,1 +1,7 @@
-Artículo 426. Cumplimiento legal. El servicio CSO atiende a la obligación legal impuesta al BCCR por medio del reglamento a la Ley 8204, respecto a facilitar un medio por el cual los actores en materia de prevención de la legitimación de capitales, puedan acceder a la información perteneciente a las transacciones que se tramitan por medio del SINPE.
+LIBRO XXXIV
+CONTROL Y SEGUIMIENTO DE OPERACIONES
+CAPÍTULO I
+DEL SERVICIO
+Artículo 426. Definición del servicio. Control y Seguimiento de Operaciones (CSO) es el servicio por medio del cual se consultan las transacciones que efectúan los afiliados por medio del SINPE, en nombre de terceros, sean personas físicas o jurídicas.
+El servicio CSO permite la identificación plena de las personas involucradas en las transacciones, pudiéndose determinar el origen y destino de los fondos o valores movilizados, así como identificar a los afiliados que intervinieron en las transacciones.
+(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 425 al 426)

@@ -1,4 +1,7 @@
-CAPÍTULO VI
-DEL PROCEDIMIENTO DE COBRO DE LAS TARIFAS Y COMISIONES
-Artículo 512. Casos especiales de cobro. Cuando la cuenta de fondos en moneda nacional del afiliado no disponga de dinero suficiente, el cobro se realizará sobre la cuenta de fondos que mantenga en cualquier otra moneda, utilizando para ello el tipo de cambio de referencia de venta del día en que se realiza el cobro. Si la insuficiencia de fondos persiste, el BCCR intentará realizar el cobro una vez por día, hasta lograr su liquidación.
-Transcurridos 15 días naturales, si el BCCR no logra realizar el cobro de la totalidad de las tarifas y comisiones, podrá suspender del servicio al afiliado, hasta que este cancele el monto adeudado.
+CAPÍTULO V
+DEL CICLO DEL SERVICIO
+Artículo 512. Del ciclo de operación del servicio. El ciclo del servicio TCS opera con las siguientes etapas:
+a) Cálculo de las tarifas y comisiones: el primer día hábil de cada mes y con base en los registros de las transacciones del mes anterior, el SINPE calcula el multilateral neto para determinar el monto a cargo de cada afiliado.
+Para el cálculo de las tarifas y comisiones por el uso de la plataforma del SINPE, se computarán todas las transacciones enviadas. Para determinar las comisiones interbancarias, serán excluidas las transacciones no concluidas exitosamente por problemas atribuibles a la entidad destino.
+b) Liquidación: el SIL efectúa la liquidación en firme con el mecanismo de liquidación multilateral neta.
+(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 511 al 512)

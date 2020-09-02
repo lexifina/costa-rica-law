@@ -1,2 +1,4 @@
-Artículo 355. Aplazamiento de las devoluciones. El plazo para enviar las devoluciones se extenderá por veinticuatro horas entre días hábiles y podrá ampliarse por veinticuatro horas adicionales, para lo cual la entidad en falta deberá comunicar la reincidencia de la situación por medio del SINPE.
-Una vez transcurrido el plazo máximo de cuarenta y ocho horas, la entidad deberá realizar la acreditación de los fondos a sus clientes.
+CAPÍTULO XIII
+DE LOS APLAZAMIENTOS
+Artículo 355. Impedimento para realizar devoluciones. Cuando un afiliado presente algún problema que no le permita realizar el trámite de las devoluciones, deberá comunicar a los demás afiliados su imposibilidad para enviar las devoluciones en el ciclo del día hábil siguiente. Dicha comunicación la deberá realizar por medio del SINPE.
+(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 354 al 355)

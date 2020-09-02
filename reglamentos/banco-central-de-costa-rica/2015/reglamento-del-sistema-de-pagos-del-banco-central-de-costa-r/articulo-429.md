@@ -1,1 +1,4 @@
-Artículo 429. Custodia de la información. Las personas que participan en el servicio están obligadas a custodiar la información suministrada por el sistema, especialmente aquella que se obtenga o almacene en algún medio físico, tales como por ejemplo: impresiones en papel, discos duros de computadores, medios móviles (dispositivos USB, tarjetas SD, CD, DVD), entre otros, a efecto de no propiciar usos distintos a los establecidos en la Ley 8204 y su normativa conexa.
+CAPÍTULO III
+DE LAS PROHIBICIONES Y RESPONSABILIDADES
+Artículo 429. Uso restringido de la información. Las autoridades competentes autorizadas para acceder esta información, deberán utilizarla únicamente para los fines establecidos en la Ley 8204 y su reglamento.
+(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 428 al 429)

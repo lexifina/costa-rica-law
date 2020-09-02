@@ -1,1 +1,2 @@
-Artículo 347. Condiciones para la ejecución. Con la ejecución de garantías, los valores no podrán ser negociados por medio de un intermediario bursátil que mantenga relaciones de propiedad con las contrapartes involucradas en la operación incumplida.
+Artículo 347. Transparencia de los procesos de ejecución. La ejecución de garantías deberá realizarse mediante procedimientos transparentes, de acuerdo con lo establecido en las normas complementarias del servicio, de modo que aseguren en todo momento la protección de los derechos de los asociados durante el proceso de ejecución.
+(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 346 al 347)

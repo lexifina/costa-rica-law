@@ -1,3 +1,3 @@
-CAPÍTULO VI
-DE LAS SUSPENSIONES
-Artículo 255. Suspensión de la participación. En caso de incumplimiento de las responsabilidades que asume con su participación en el servicio, el BCCR, podrá suspender la condición de participante para la entidad que incumple, quedando por tanto imposibilitada para participar en el servicio por un periodo de tres meses la primera vez y de seis meses cuando incurra en una reincidencia dentro de un mismo año calendario.
+Artículo 255. Suficiencia de garantías. Las entidades que capten fondos con operaciones diferidas de liquidez garantizadas y operaciones diferidas a plazo, son las únicas responsables de mantener la garantía de conformidad con los requerimientos de cobertura que establece el libro Gestión de Riesgos, del presente reglamento.
+Con respecto al cumplimiento de los requerimientos de garantía, la responsabilidad del BCCR se circunscribe única y exclusivamente a mantener los sistemas de información que le permita identificar las insuficiencias que se presenten, con el propósito de notificar a las entidades con compromisos de respaldo a su cargo, sobre los aportes adicionales que deban rendir para mantenerse a derecho con su requerimiento de garantía.
+(Así reformado en sesión N° 5955 del 2 de setiembre del 2020)

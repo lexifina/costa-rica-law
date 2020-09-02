@@ -1,5 +1,2 @@
-LIBRO XXXIX
-CONSULTA DE IDENTIFICACIÓN CIUDADANA
-CAPÍTULO I
-DEL SERVICIO
-Artículo 492. Definición del servicio. Consulta de Identificación Ciudadana (CIC) es el servicio por medio del cual se accede a parte de la información de los ciudadanos costarricenses que administra el Tribunal Supremo de Elecciones.
+Artículo 492. Responsables de ISP. Los afiliados y cualquier otra institución pública o privada que administre o disponga de información sobre medios de pago y del Sistema de Pagos, deberán designar un responsable de atender las solicitudes de información y consultas relacionadas.
+(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 491 al 492)

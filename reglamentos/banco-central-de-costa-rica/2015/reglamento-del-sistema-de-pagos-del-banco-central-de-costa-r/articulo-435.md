@@ -1,3 +1,4 @@
-CAPÍTULO III
-DEL REGISTRO DE CUENTAS
-Artículo 435. Registro de cuentas de fondos. El PUC se proveerá, en primera instancia, de la información de las cuentas de fondos enviada por las entidades financieras al SICVECA. Toda aquella información que no pueda ser suministrada por el SICVECA, deberá ser enviada por los participantes directamente al PUC.
+CAPÍTULO II
+DE LOS PARTICIPANTES
+Artículo 435. Participantes del servicio. En el PUC pueden operar las Oficialías de Cumplimiento y las áreas que apoyan los procesos de control de las entidades financieras supervisadas, la SUGEF, la Unidad de Inteligencia Financiera del ICD y cualquier otra entidad que tenga las potestades para consultar esta información para el cumplimiento de la Ley 8204.
+(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 434 al 435)

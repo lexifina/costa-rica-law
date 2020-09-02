@@ -1,4 +1,2 @@
-GESTIÓN DE NUMERARIO
-LIBRO XXVI
-NUMERARIO
-Artículo 266. Definición. Se denomina numerario a las monedas y billetes emitidos por el BCCR, como medio legal de pago en Costa Rica. Se distingue por ser un medio de cambio, una unidad de cuenta y un depósito de valor
+Artículo 266. Gestión Riesgo Operativo. Los intermediarios cambiarios deberán utilizar los parámetros de gestión de riesgo operativo disponibles en el servicio; en el caso del resto de participantes, su uso será obligatorio partir de que el BCCR así lo determine y lo comunique por medio de las normas complementarias respectivas.
+(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 265 al 266)

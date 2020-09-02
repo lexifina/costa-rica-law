@@ -1,1 +1,4 @@
-Artículo 315. Porcentaje de cobertura. Las garantías en valores se tomarán por el porcentaje del valor de mercado que se establezca en las normas complementarias del servicio, conforme con lo que al efecto resuelva el órgano administrativo facultado por la Junta Directiva del BCCR para esos fines.
+Artículo 315. Actividades garantizadas. Las garantías que rindan los asociados serán para respaldar las siguientes actividades:
+a) El cumplimiento de las obligaciones financieras contraídas con su participación en los mercados de negociación organizados por el BCCR, por medio del SINPE.
+b) Las facilidades crediticias que, como prestamista de última instancia, les otorgue el BCCR para solventar los problemas transitorios de liquidez que enfrenten con su participación en el Sistema de Pagos. Estas facilidades estarán disponibles únicamente para los asociados que participan en los servicios de liquidación multilateral neta del SINPE, con excepción de los servicios CCD y CDD.
+(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 314 al 315)

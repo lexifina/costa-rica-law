@@ -1,1 +1,4 @@
-Artículo 349. Cumplimiento del requerimiento de garantía. Los asociados son responsables de aportar las garantías adicionales necesarias para cumplir con su requerimiento de garantía, de conformidad con la solicitud que para tales efectos les haga el BCCR cuando por cambios en las valoraciones de mercado, variaciones en el tipo de cambio o liquidación de vencimientos, su nivel descienda por debajo del requerimiento mínimo de garantía o del monto que deben mantener para respaldar sus obligaciones financieras.
+CAPÍTULO X
+DE LAS RESPONSABILIDADES CON RESPECTO A LAS GARANTÍAS
+Artículo 349. Sustitución de garantías. Los asociados deberán atender con la oportunidad requerida por el BCCR, las instrucciones que el propio BCCR les suministre para la sustitución de garantías.
+(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 348 al 349)

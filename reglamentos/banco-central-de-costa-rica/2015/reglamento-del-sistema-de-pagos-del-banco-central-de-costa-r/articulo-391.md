@@ -1,1 +1,2 @@
-Artículo 391. Definición de los servicios: Es el conjunto de servicios por medio de los cuales se gestiona la solicitud, emisión, entrega, renovación, revocación, custodia y verificación de certificados digitales, la autenticación de usuarios, la firma y validación de archivos y la emisión de certificados de estampas de tiempo.
+Artículo 391. Participantes del servicio. En el servicio Firma Digital operan los asociados del SINPE como Oficinas de Registro y los suscriptores de certificados digitales como consumidores de los servicios de firma digital.
+(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 390 al 391)

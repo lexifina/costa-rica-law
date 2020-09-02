@@ -1,4 +1,8 @@
-Artículo 424. Responsabilidades de la entidad destino:
-a) Proveer a sus clientes las facilidades necesarias para que por medio de Internet, teléfono, plataforma de servicios o cualquier otro mecanismo similar, puedan verificar las domiciliaciones registradas para su cuenta IBAN, modificar las condiciones de una domiciliación previamente emitida, eliminar una domiciliación o suscribir una nueva.
-Cuando un cliente destino decida modificar las condiciones de una domiciliación activa, deberá comunicar al cliente origen las nuevas condiciones de la domiciliación. Para este trámite rige el mismo ciclo de operación establecido por el servicio para las nuevas órdenes de domiciliación.
-b) Aceptar los débitos automáticos que le ordenen los asociados y proveedores de servicios de pago con aplicación a una cuenta IBAN y en virtud de una domiciliación aceptada, salvo que el cliente destino manifieste expresamente lo contrario, ante lo cual la entidad destino deberá comunicar a la entidad origen la instrucción recibida de su cliente para revocar la autorización original.
+CAPÍTULO IV
+DE LAS RESPONSABILIDADES
+Artículo 424. Responsabilidades de la entidad origen:
+a) Asumir frente a la entidad destino las obligaciones financieras que se deriven de las órdenes de domiciliación que tramite y que hayan sido activadas por la entidad destino luego de ejecutar los procesos de validación que establecen las normas complementarias del servicio, ya sea que se trate de órdenes de domiciliación propias o de sus clientes.
+Para efectos de tramitar las órdenes de domiciliación que le presenten sus clientes, la entidad origen podrá exigir a estos las garantías que considere pertinentes.
+b) Conservar y administrar con debida diligencia las órdenes de domiciliación físicas que le corresponda custodiar, así como mantener las seguridades necesarias en sus sistemas de información para proteger los registros de las órdenes de domiciliación electrónicas y demostrar frente a la entidad destino su existencia cuando esta se lo solicite.
+En las situaciones en que la entidad origen no demuestre la domiciliación dentro de los términos establecidos en el presente libro, deberá reintegrar de inmediato a la entidad destino el monto de los débitos automáticos que, con base en la domiciliación no demostrada, haya ordenado en los tres meses anteriores contados a partir del momento en que la entidad destino solicita la demostración.
+(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 423 al 424)

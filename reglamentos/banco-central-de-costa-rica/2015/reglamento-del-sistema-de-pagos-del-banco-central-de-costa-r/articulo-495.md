@@ -1,3 +1,4 @@
-CAPÍTULO III
-DE LA INFORMACIÓN
-Artículo 495. Información consultada. Por medio del servicio los participantes pueden consultar los datos e imágenes de los ciudadanos costarricenses que administra el Tribunal Supremo de Elecciones y con base en los cuales emite las cédulas de identidad como medio oficial de identificación de las personas nacionales. Las consultas se harán conforme con los convenios de intercambio de información que suscriba el BCCR con el Tribunal Supremo de Elecciones.
+CAPÍTULO II
+DE LOS PARTICIPANTES
+Artículo 495. Participantes. Podrá operar en el servicio Consulta de Identificación Ciudadana cualquier asociado del SINPE que requiera la consulta de los datos demográficos, foto y firma de los ciudadanos costarricenses, en virtud de las necesidades de validación de la identidad de sus clientes durante el trámite de una transacción o la prestación de un servicio.
+(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 494 al 495)

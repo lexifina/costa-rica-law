@@ -1,1 +1,2 @@
-Artículo 379. Eliminación de derechos. La eliminación de derechos a un ARS, RST, RSP, DDU, consultante o usuario, podrá ser ejecutada por un solo responsable de seguridad o digitador, cuando tenga los derechos para ello.
+Artículo 379. Autorización mancomunada. La creación de cualquier ARS, RST, RSP, DDU, consultante o usuario, la asignación o modificación de perfiles o cualquier acción que implique otorgar nuevos derechos de uso de funcionalidades en el SINPE, requiere de la autorización en forma mancomunada de dos responsables de seguridad.
+(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 378 al 379)

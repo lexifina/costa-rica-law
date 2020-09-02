@@ -1,8 +1,7 @@
-CAPÍTULO VI
-REQUISITOS DE OPERACIÓN
-Artículo 296. Requisitos de operación. Para efectos de la operación del servicio, los asociados deberán cumplir con los siguientes requisitos:
-a) No mantener diferencias faltantes entre el saldo físico de la CAN y los saldos reportados por el servicio.
-b) Verificar la identidad de los inspectores del CCN, así como no impedir o retrasar por cualquier forma o medio su ingreso inmediato, sea a la bóveda donde está ubicada la CAN o a la oficina en la cual se mantienen los equipos del CCTV, con los que se graban los movimientos físicos de numerario y el ingreso de personas a la CAN.
-c) No permitir la presencia en las CAN de personas que no estén realizando labores relacionadas con el funcionamiento o mantenimiento de su infraestructura, así como de personas no registradas en el padrón de inspectores del CCN que no hayan sido autorizadas formalmente por la Tesorería del BCCR para ingresar a la CAN.
-d) Mantener el CCTV funcionando adecuadamente.
-e) Cumplir con cualquier otro lineamiento que se defina.
+Artículo 296. Casos especiales en las CAN. El BCCR podrá ajustar los saldos de inventario de numerario en el servicio u ordenar un débito sobre la cuenta de fondos de la entidad correspondiente por el monto total mantenido en una o en todas las CAN a su cargo, cuando se presente cualquiera de las siguientes situaciones:
+a) La entidad decida clausurar una, varias o todas las CAN que administra y no retire el numerario dentro de un plazo de ocho días hábiles contados a partir de la fecha en que le comunicó al BCCR el cierre.
+b) El BCCR revoque la autorización concedida a la entidad para administrar CAN.
+c) Anomalías, circunstancias, eventos o coyunturas que a juicio de la División Sistemas de Pago atenten contra la seguridad del numerario mantenido en las CAN, o que, entre otros efectos, impidan restablecer la comunicación electrónica entre el servicio y el lugar donde se ubique la CAN.
+d) El BCCR detecte diferencia faltante entre el monto físico depositado en la CAN y el saldo registrado en el servicio.
+e) El BCCR inactive la CAN mediante su bloqueo en el servicio, según lo establecido en el presente reglamento.
+(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 295 al 296)

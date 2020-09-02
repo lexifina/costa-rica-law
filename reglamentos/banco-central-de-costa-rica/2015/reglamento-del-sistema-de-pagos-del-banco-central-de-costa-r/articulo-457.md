@@ -1,1 +1,3 @@
-Artículo 457. Cambio de PIN. Los emisores deberán brindar a sus clientes las facilidades necesarias para realizar el cambio de PIN y garantizarle su uso dentro o fuera del territorio nacional.
+Artículo 457. Del diseño de las tarjetas de pago. Para facilitarle al cliente la identificación de las funcionalidades disponibles en su tarjeta de pago, el emisor deberá imprimir al lado derecho de donde se ubica el chip criptográfico (EMV), el símbolo reconocida internacionalmente para la identificación del pago sin contacto; además, el símbolo de firma digital al lado izquierdo del chip criptográfico (EMV), en caso que la tarjeta de pago incorpore esa otra tecnología.
+La impresión del código IBAN en la tarjeta debe realizarse de conformidad con las disposiciones establecidas en el presente reglamento.
+(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 456 al 457)

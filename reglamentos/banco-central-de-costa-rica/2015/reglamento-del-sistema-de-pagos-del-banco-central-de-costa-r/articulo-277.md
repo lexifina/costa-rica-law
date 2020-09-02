@@ -1,1 +1,6 @@
-Artículo 277. Carácter oficial del servicio. El servicio CAN es el sistema oficial de registro del inventario de numerario del BCCR, del que mantiene en su Custodia General y del custodiado por cuenta y riesgo de los asociados que administran CAN.
+LIBRO XXVII
+CUSTODIA DE NUMERARIO
+CAPÍTULO I
+DEL SERVICIO
+Artículo 277. Definición del servicio. Las Custodias Auxiliares de Numerario (CAN) constituyen el conjunto de procesos operativos, la logística y la plataforma electrónica en la que operan las Custodias de Numerario. Mediante este servicio el BCCR atiende los requerimientos de numerario de los asociados y mantiene parte de su disponibilidad de numerario (colones y dólares estadounidenses) en bóvedas o espacios acondicionados por tales entidades bajo absoluta responsabilidad de estas, para usarlo según el BCCR lo determine.
+(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 276 al 277)

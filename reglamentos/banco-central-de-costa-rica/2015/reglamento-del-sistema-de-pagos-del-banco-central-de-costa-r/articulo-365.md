@@ -1,8 +1,3 @@
-CAPÍTULO XVI
-DE LAS MEDIDAS EN EL ÁMBITO TECNOLÓGICO
-Artículo 365. Plataforma contingente. El SINPE deberá contar con una plataforma contingente que garantice su normal funcionamiento y la continuidad del negocio en la prestación de los servicios. Dicha plataforma deberá reunir las siguientes condiciones:
-a) Redundancia de operación normal en aspectos tales como: equipo informático, equipo de telecomunicaciones, personal de soporte, operación y mantenimiento.
-b) Funcionamiento adecuado durante el horario de operación del SINPE, debiendo contar con una arquitectura altamente tolerante a fallas y no estar fuera de servicio por más de 1 hora al año.
-c) Facilidades de acceso a las instalaciones para el personal del BCCR y de los afiliados.
-d) Planes de contingencia actualizados y periódicamente probados.
-e) Cualquier otro elemento de manejo de riesgos considerado en las normas complementarias del servicio.
+Artículo 365. Certificación de usuarios. Con la aprobación de un curso de capacitación, el participante obtiene una certificación que lo habilita a operar los servicios del SINPE contemplados dentro del programa del curso. Los afiliados deben cumplir con el porcentaje mínimo de usuarios certificados en cada servicio que se establezca en la norma complementaria.
+Los afiliados son responsables de verificar que las personas que participan en el SINPE como usuarios de su entidad, estén capacitados y debidamente certificados por el BCCR.
+(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 364 al 365)

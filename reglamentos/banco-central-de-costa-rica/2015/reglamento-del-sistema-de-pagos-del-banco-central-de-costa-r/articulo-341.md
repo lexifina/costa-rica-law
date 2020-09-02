@@ -1,4 +1,4 @@
-Artículo 341. Orden de ejecución de garantías. En caso de incumplimiento de alguna operación que amerite la ejecución de una garantía, el BCCR procederá con el siguiente orden de ejecución:
-a) Primero: valores traspasados a la cuenta de garantía, en la misma moneda de la operación incumplida.
-b) Segundo: valores traspasados a la cuenta de garantía, en una moneda distinta de la moneda de la
-operación incumplida.
+CAPÍTULO IX
+DE LA EJECUCIÓN DE GARANTÍAS
+Artículo 341. Autorización de la ejecución. El incumplimiento por parte de un asociado del pago de sus obligaciones financieras dentro de las condiciones de tiempo y forma pactadas, autoriza inmediatamente y de manera irrevocable al BCCR para que descuente en el mercado bursátil los valores dados en garantía, conforme con lo que corresponda.
+(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 340 al 341)

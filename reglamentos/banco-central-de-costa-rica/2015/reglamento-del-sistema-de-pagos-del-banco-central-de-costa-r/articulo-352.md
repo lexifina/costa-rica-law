@@ -1,3 +1,4 @@
-CAPÍTULO XII
-DE LOS MECANISMOS DE EXCLUSIÓN PARA LA LIQUIDACIÓN MULTILATERAL NETA
-Artículo 352. Exclusiones por insuficiencia de fondos. Un afiliado será excluido de la liquidación de un multilateral neto cuando no pueda pagar el débito cobrado en su contra, o cuando tampoco posea garantías suficientes para que el BCCR le otorgue un crédito intradiario que le permita solventar la insuficiencia.
+CAPÍTULO XI
+DE LA RETENCION POR OPERACIONES DE DEBITO
+Artículo 352. Retención de fondos. A los participantes de los servicios de Débito en Tiempo Real y Débitos Directos, como garantía ante un cobro revertido, se les aplicará sobre su cuenta de fondos, la inmovilización porcentual del monto cobrado por un período igual al plazo de reclamación, de conformidad con lo siguiente: el 100% los proveedores de servicios de pago y organizadores de mercados; el 1% el resto de asociados, con excepción de las entidades que realizan intermediación financiera e intermediación bursátil, BNV e Interclear. La retención de fondos no aplica para transacciones de débito que realice el asociado sobre cuentas de fondos propias mantenidas en otro asociado.
+(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 351 al 352)

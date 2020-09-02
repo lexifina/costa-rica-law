@@ -1,13 +1,6 @@
-Artículo 453. Definiciones. Para los fines del presente libro debe entenderse por:
-o Adquirente: entidad financiera que procesa transacciones realizadas con dispositivos de pago en sus redes de terminales de puntos de venta (POS), previamente autorizados por las empresas internacionales o locales, propietarias de las marcas de medios de pago.
-o Cajero automático (ATM por sus siglas en inglés): dispositivo electromecánico que permite a los clientes retirar dinero en efectivo, consultas de saldo, transferencias de fondos, pago de servicios, cambio de claves de seguridad y aceptación de depósitos, entre otros.
-o Cliente: persona física o persona jurídica propietaria de un dispositivo de pago.
-o Dispositivo de pago: tarjetas prepago, débito y crédito; calcomanías y llaveros; accesorios personales como: relojes de pulsera, brazaletes y anillos; dispositivos móviles como: tabletas y teléfonos inteligentes, o cualquier otro tipo de dispositivo emitido o habilitado por una entidad financiera o empresa comercial bajo una marca local o internacional, con las tecnologías de chip criptográfico (EMV) y pago sin contacto para su utilización como instrumento de pago. Estos dispositivos se encuentran vinculados a cuentas de débito, cuentas de crédito o cuentas prepago de los clientes en su entidad financiera.
-o Emisor: entidad financiera o empresa comercial que emite o habilita dispositivos de pago, previamente autorizados por las empresas internacionales o locales propietarias de las marcas de medios de pago.
-o EMV: siglas de “Europay-MasterCard-VISA”; es un estándar internacional de interoperabilidad de las tarjetas de pago con circuito integrado, terminales de puntos de venta (POS) y cajeros automáticos, para la autenticación de transacciones realizadas mediante dispositivos de pago.
-o EMVCo: organización internacional creada para facilitar la interoperabilidad y la aceptación mundial de las transacciones de pago seguras, mediante la gestión y evolución de las especificaciones EMV y los procesos de prueba relacionados.
-o Establecimiento comercial: persona física o jurídica con una actividad financiera, comercial, de servicio público o cualquier otra que provee bienes o servicios a la sociedad.
-o Pago sin contacto: funcionalidad que permite pagar una transacción mediante el acercamiento del dispositivo de pago a menos de 2 centímetros de la terminal de punto de venta (POS), utilizando tecnología de identificación por radiofrecuencia incorporada a dichos dispositivos.
-o PIN: Siglas de “Personal Identification Number”; es una contraseña utilizada por dispositivos electrónicos como el teléfono móvil, las terminales de puntos de venta (POS) o los cajeros automáticos, para autenticar a un cliente y permitirle acceso a un sistema.
-o SMS: Siglas en inglés de “Short Message Service”; es un protocolo de comunicaciones para telefonía móvil, que permite el envío y la recepción de mensajes de texto cortos (hasta 140 caracteres alfanuméricos).
-o Terminal de punto de venta (POS): terminal electrónica utilizada en los establecimientos comerciales, diseñadas para autenticar al cliente, capturar datos del dispositivo de pago y de las transacciones que realice, con el propósito de transmitirlos al emisor del dispositivo de pago en línea o en un momento posterior.
+LIBRO XXXVI
+INFRAESTRUCTURAS DE PAGOS ELECTRONICOS AL DETALLE
+CAPÍTULO I
+DEL SERVICIO
+Artículo 453. Ámbito de aplicación. El presente libro regula las infraestructuras del mercado financiero que procesan pagos por medio de tarjetas y dispositivos electrónicos, así como a las entidades y los actos que se realicen con el uso y funcionamiento de dichas infraestructuras.
+(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 452 al 453)

@@ -1,5 +1,4 @@
-Artículo 442. Requisitos de apertura y funcionamiento de las CES de Nivel 1.
-a) Presentación del documento de identificación del titular de la cuenta: el cliente de forma presencial deberá presentar su cédula de identidad, DIMEX, DIDI, TIM o pasaporte en cualquiera de los canales autorizados para la apertura y activación de la cuenta. En el caso de menores de edad, la entidad financiera deberá verificar la inscripción en el padrón de nacimientos del Registro Civil, si la persona no dispone del TIM, además, se requiere el consentimiento del padre o tutor para la apertura de la cuenta.
-b) Canales autorizados para la apertura y activación de la cuenta: agencias, sucursales, corresponsales financieros o por parte de un agente autorizado de la entidad financiera. Podrán utilizarse canales electrónicos para la solicitud de apertura de la CES, pudiendo activarse para su uso estas cuentas, únicamente en caso de clientes regulares y si la solicitud se hace desde un canal transaccional autenticado.
-c) Información requerida del titular de la cuenta: nombre completo, número y tipo de documento de identificación. El registro electrónico de estos datos sustituye el formulario conozca a su cliente.
-d) Límite mensual máximo de depósitos en la cuenta: un mil dólares estadounidenses o su equivalente en moneda nacional u otra divisa.
+CAPÍTULO V
+DE LOS TIPOS DE CUENTAS
+Artículo 442. Tipos de CES. Se autoriza a los participantes a abrir a sus clientes CES de Nivel 1, Nivel 2 y Nivel 3.
+(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 441 al 442)

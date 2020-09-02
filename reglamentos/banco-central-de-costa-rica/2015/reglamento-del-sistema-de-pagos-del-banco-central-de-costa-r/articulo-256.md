@@ -1,5 +1,4 @@
-LIBRO XXV
-MERCADO DE MONEDAS EXTRANJERAS
-CAPÍTULO I
-DEL SERVICIO
-Artículo 256. Definición del servicio. Monex-SINPE es el servicio por medio del cual los asociados del SINPE acceden al mercado de monedas extranjeras para realizar la negociación de divisas.
+CAPÍTULO VI
+DE LAS SUSPENSIONES
+Artículo 256. Suspensión de la participación. En caso de incumplimiento de las responsabilidades que asume con su participación en el servicio, el BCCR, podrá suspender la condición de participante para la entidad que incumple, quedando por tanto imposibilitada para participar en el servicio por un periodo de tres meses la primera vez y de seis meses cuando incurra en una reincidencia dentro de un mismo año calendario.
+(Así adicionado en sesión N° 5955 del 2 de setiembre del 2020)

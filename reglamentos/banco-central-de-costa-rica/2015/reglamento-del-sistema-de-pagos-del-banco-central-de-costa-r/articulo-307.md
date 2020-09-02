@@ -1,6 +1,4 @@
-Artículo 307. Condiciones para la entrega de numerario por parte del BCCR. Las ofertas publicadas por el BCCR se regirán por las siguientes condiciones:
-a) El BCCR participa en el MEN como el proveedor de última instancia.
-b) En la entrega de billete y en la modalidad de retiro de moneda en BCCR, el asociado que adquiere una oferta del BCCR es responsable de transportar por su cuenta y riesgo el numerario negociado. Tal responsabilidad incluye velar por la seguridad y las características de los medios que utilice para
-transportar el numerario.
-c) El BCCR ofrecerá numerario nacional nuevo siempre y cuando no disponga de la categoría circulable en la denominación correspondiente.
-d) El BCCR determinará la periodicidad y la cantidad de billete o moneda que entregará en las diferentes modalidades.
+ARTÍCULO 307. Entrega de moneda adquirida al BCCR: el BCCR realizará la entrega de la moneda mediante las siguientes modalidades:
+a) Entrega en BCCR: corresponde al esquema tradicional según el cual la entidad demandante retira la moneda en las instalaciones del BCCR.
+b) Entrega directa: la moneda es entregada directamente en las instalaciones que el asociado disponga dentro de la Gran Área Metropolitana, mediante una instrucción del BCCR a la empresa fabricante.
+(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 306 al 307)

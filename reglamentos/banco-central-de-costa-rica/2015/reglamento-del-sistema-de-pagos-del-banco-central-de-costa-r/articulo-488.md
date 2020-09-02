@@ -1,3 +1,2 @@
-CAPÍTULO IV
-DE LAS RESPONSABILIDADES
-Artículo 488. Solicitudes de información. El BCCR puede solicitar información sobre otras transacciones distintas de las efectuadas en los servicios del SINPE. Esta información la utilizará para la toma de decisiones relacionadas con el desarrollo y modernización del sistema de pagos costarricense. Para el caso de procesos implementados por el BCCR para la solicitud de información, tales como encuestas u otros instrumentos; los mismos deben ser comunicados a las entidades por los medios de comunicación oficiales, indicando periodicidad, plazos de entrega, entre otros.
+Artículo 488. Acceso a la información. Los afiliados del SINPE pueden consultar en forma agregada la información que administra el servicio, de modo que podrán visualizar la posición de su entidad dentro del sector, así como tener el panorama general de todo el Sistema de Pagos. De igual forma, el BCCR podrá publicar información agregada de las transacciones procesadas por el SINPE, para conocimiento del público.
+(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 487 al 488)

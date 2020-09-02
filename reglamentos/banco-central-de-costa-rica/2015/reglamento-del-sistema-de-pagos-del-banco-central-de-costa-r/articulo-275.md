@@ -1,1 +1,2 @@
-Artículo 275. Otros usos del numerario. El uso de las imágenes del numerario o de su representación gráfica para fines publicitarios u otros no monetarios, deberá ajustarse a lo establecido por el BCCR.
+Artículo 275. Canje de numerario. Los asociados a los que el BCCR entregue numerario nuevo o les reciba numerario deteriorado, deben ofrecer el servicio de canje de numerario al público; ya sea de deteriorado por circulable; de billete por moneda o viceversa. Para tal efecto, podrán cobrar una comisión por la prestación de este servicio.
+(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 274 al 275)
