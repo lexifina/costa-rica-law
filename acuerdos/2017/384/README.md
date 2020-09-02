@@ -15,3 +15,4 @@ Tarifas por bienes y servicios que brinda al sector pesquero y acuícola para el
 | --- | --- | --- |
 | 1 | 2018-01-01 | la propia norma |
 | 2 | 2018-01-25 | Acuerdo 44 (2018-01-25) |
+| 3 | 2020-09-02 | Acuerdo 202 (2020-09-02) |
