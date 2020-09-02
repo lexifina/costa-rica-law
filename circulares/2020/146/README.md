@@ -14,3 +14,4 @@ Acuerdo de Corte Plena. Sesión N° 40-2020 del 11 de julio de 2020, en atenció
 | --- | --- | --- |
 | 1 | 2020-07-12 | la propia norma |
 | 2 | 2020-07-20 | Circular 153 (2020-07-20) |
+| 3 | 2020-09-02 | Circular 188 (2020-09-02) |
