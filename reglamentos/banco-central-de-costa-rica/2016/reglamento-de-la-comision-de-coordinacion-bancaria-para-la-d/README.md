@@ -15,3 +15,4 @@ Reglamento de la comisión de coordinación bancaria para la designación de los
 | --- | --- | --- |
 | 1 | 2016-11-08 | la propia norma |
 | 2 | 2016-11-16 | Reglamento 5746 (2016-11-16) |
+| 3 | 2020-09-02 | Reglamento 5955 (2020-09-02) |

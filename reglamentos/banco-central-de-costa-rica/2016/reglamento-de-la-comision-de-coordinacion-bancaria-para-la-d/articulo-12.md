@@ -1,3 +1,3 @@
-IV. De los plazos de nombramiento
-Artículo 12
-El representante ante el PIMA se nombrará por un plazo de cinco años, pudiendo ser reelegido.
+Artículo 12. Contra el acuerdo tomado por la Junta Directiva del Banco Central de Costa Rica en el que se nombre a los representantes del Sistema Bancario Nacional en los Órganos Colegiados Superiores de PIMA y CORBANA, procede recurso de revocatoria que podrá interponer cualquier interesado ante la Secretaría General del Banco Central de Costa Rica, en el término de tres días hábiles, contados a partir de la firmeza de esa decisión. La tramitación de dicho recurso se regirá por las disposiciones de la Ley General de la Administración Pública.
+(Así reformado en session N° 5955 del 2 de setiembre del 2020)
+(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020, que lo traspaso del antiguio artículo 11 al 12)
