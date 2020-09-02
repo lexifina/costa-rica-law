@@ -15,3 +15,4 @@ Establece Concurso Público Anual para Directores Escénicos Profesionales de Te
 | --- | --- | --- |
 | 1 | 2005-11-22 | la propia norma |
 | 2 | 2007-03-13 | Decreto Ejecutivo 33698 (2007-03-13) |
+| 3 | 2020-09-02 | Decreto Ejecutivo 42608 (2020-09-02) |
