@@ -1,0 +1,1 @@
+Artículo 3. Deróguense los artículos 12, 13, 14, 15, 16, 17, 18, 26 y 30 del Decreto Ejecutivo N°39150-MINAE-MAG-MIVAH-PLAN-TUR de 11 de agosto de 2015, Reglamento de la Transición para la Revisión y Aprobación de Planes Reguladores.
