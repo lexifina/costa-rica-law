@@ -1,8 +1,7 @@
-Artículo 19.—Requisitos mínimos de Evaluación de la Auditoría de Riesgos
-La Auditoría de Riesgos deberá contemplar, entre otros, los siguientes aspectos:
-a) El desarrollo de la administración de riesgos de conformidad con lo establecido en las presentes disposiciones y en el Manual de Procedimientos y las Políticas para la Administración de Riesgos Financieros.
-b) Programas de revisión del cumplimiento de objetivos, procedimientos y controles en la celebración de operaciones, así como de los límites de exposición al riesgo, semestralmente, o bien, con una mayor frecuencia cuando por las condiciones del mercado se justifique.
-c) Sistemas de almacenamiento, procesamiento y manejo de información que permitan el desarrollo de una administración de riesgos.
-d) Aplicación y difusión de los planes de acción para casos de contingencia, por caso fortuito o fuerza mayor, que impidan el cumplimiento de los límites de exposición al riesgo establecidos.
-e) La organización del Área Administración de Riesgos y su independencia de las demás áreas.
-f) Programas de capacitación para el personal del Área Administración del Riesgo y otros que se consideren necesarios.
+Artículo 19. Requerimientos para la medición, monitoreo, control y contenido de los informes internos.
+Para llevar a cabo la medición, monitoreo y control de los diversos tipos de riesgo cuantificables y la valuación de las posiciones el Área Administración del Riesgo deberá:
+a) Contar con los procesos automatizados y con la tecnología más idónea para el cumplimiento de sus funciones, que le permita acceder a información de mercado que comprenda variables tales como: rendimientos, volatilidad, liquidez y potencial de movimientos adversos, en donde se refleje de forma precisa el valor de las posiciones y su sensibilidad a los diversos factores de riesgo.
+b) Asegurarse que la información que sirva de base para calcular las posiciones de los recursos administrados y utilizada en los modelos y sistemas de medición de riesgos, sea precisa, íntegra y oportuna, por lo que toda modificación a la citada información deberá quedar documentada y contar con la explicación sobre su naturaleza y motivo que la originó.
+c) Llevar a cabo estimaciones de la exposición al riesgo relacionado con las inversiones de los Fondos Institucionales ligadas a resultados o al valor de las carteras de estos.
+d) Efectuar revisiones periódicas a los supuestos contenidos en los modelos y parámetros y escenarios referidos en el artículo 8 del Reglamento de rito.
+e) Comparar periódicamente las estimaciones de la exposición al riesgo contra los resultados efectivamente observados para el mismo período de medición y, en su caso, modificar los supuestos empleados al formular dichas estimaciones.

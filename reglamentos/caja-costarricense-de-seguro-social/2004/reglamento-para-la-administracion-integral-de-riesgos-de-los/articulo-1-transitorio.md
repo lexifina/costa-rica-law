@@ -1,2 +1,3 @@
-Transitorio I.
-Con el fin de mantener la Independencia Técnica del Área Administración de Riesgos respecto de las áreas de operación, la Gerencia de Pensiones solicitará a la Dirección de Desarrollo Organizacional un estudio técnico, basado en las recomendaciones de la Auditoría Interna (informe ASF-001-2011)
+DISPOSICIONES TRANSITORIAS.
+Transitorio primero.
+Una vez aprobado este reglamento, se da un plazo a la administración de 7 meses para que ajuste lo correspondiente al marco gestión de riesgos.

@@ -1,15 +1,16 @@
-Artículo 15.-Funciones del Área Administración del Riesgo
-El Área Administración del Riesgo desempeñará las siguientes funciones:
-a) Vigilar que la Administración de Riesgos sea integral de conformidad con lo normado en este Reglamento y considere los riesgos financieros relacionados con las inversiones en que incurran los Fondos Institucionales.
-b) Proponer al Comité de Riesgos las metodologías y aplicarlas una vez aprobada por dicho Comité, para identificar, medir y monitorear los distintos tipos de riesgos financieros, así como los límites establecidos internamente.
-c) Informar al Comité de Riesgos y cuando se amerite al Comité de Inversiones sobre:
-i. La exposición por tipo de riesgo de los recursos administrados. Los informes sobre la exposición de riesgo deberán incluir análisis de sensibilidad y pruebas bajo condiciones extremas y escenarios de riesgo.
-ii. Las desviaciones que, en su caso, se presenten respecto de los límites establecidos, proponiendo cuando así corresponda las acciones correctivas necesarias.
-d) Realizar pruebas bajo condiciones extremas. Estas pruebas deberán permitir la identificación del riesgo que enfrentarían los recursos que se administran en dichas condiciones, reconocer las posiciones o estrategias que hagan más vulnerables los recursos de los Fondos Institucionales.
-e) Los informes a que se refiere este artículo deberán presentarse al Comité de Riesgos al menos mensualmente, o bien, cuando se estime pertinente dado las condiciones.
-f) Implementar modelos desarrollados en materia de riesgos, que hayan dado buenos resultados, de acuerdo con las mejores prácticas.
-g) Investigar y documentar las causas que originen desviaciones de los límites de exposición al riesgo establecidos, identificando si dichas desviaciones se presentan en forma reiterada e informar de manera oportuna sus resultados al Comité de Riesgos.
-h ) Recomendar la disminución de la exposición al riesgo a los límites previamente aprobados cuando lo considere pertinente.
-i) Calcular el Rendimiento Ajustado por Riesgo que se tenga de los activos de los Fondos Institucionales y presentarlos al Comité de Riesgos, para su discusión y evaluación.
-j) Elaborar programas de capacitación para el personal del Área Administración del Riesgo, para miembros del Comité de Riesgo para los Fondos Institucionales, y para todo aquel involucrado en el manejo de riesgos.
-(Así reformado mediante sesión N° 8912 del 22 de junio del 2017)
+Artículo 15. Funciones y responsabilidades del Comité de Riesgos para los Fondos Institucionales.
+El Comité de Riesgos para los Fondos Institucionales es un órgano dependiente de la Junta Directiva, que es responsable de asesorarla en todo lo relacionado con las políticas de gestión de riesgos, así como, lo que respecta de la capacidad y el Apetito de Riesgo de la entidad en relación con los fondos administrados.
+El Comité de Riesgos para el desarrollo de su objeto desempeñará las siguientes funciones:
+a) Proponer para aprobación de la Junta Directiva:
+a.1) La Política de Riesgos para cada fondo Institucional, que incluya los lineamientos generales para gestionar la exposición al riesgo por cada tipo de riesgo identificado para cumplir con el apetito de riesgo y los objetivos definidos en la política y estrategia de inversión.
+a.2) Las estrategias de mitigación de riesgo necesarias para la operativa de las inversiones.
+b) Revisar y avalar el marco de gestión de riesgos que incluye las metodologías, el manual de procedimientos, los niveles de tolerancia, los modelos, parámetros y escenarios que habrán de utilizarse para llevar a cabo la medición y el control de los riesgos relacionados con las inversiones.
+c) Referirse a las nuevas operaciones de inversión que, por su propia naturaleza, conlleven un riesgo, previo a su discusión en el Comité de Inversiones.
+d) Recibir, analizar y pronunciarse sobre los informes de cumplimiento de la política de inversiones y la política de riesgos y demás informes periódicos que el Área Administración del Riesgo deba presentar, así como de otras Áreas, las desviaciones y planes para mitigar el riesgo.
+e) Informar a la Junta Directiva, trimestralmente o según amerite, sobre la exposición al riesgo de los Fondos Institucionales, los potenciales efectos negativos que se podrían producir en la marcha de la Caja, así como sobre la inobservancia de los límites de exposición al riesgo establecidos.
+f) Informar de manera mensual a los Comités de Inversiones y a las demás áreas involucradas, sobre los hallazgos más importantes en la exposición al riesgo asumido y los potenciales efectos negativos que se podrían producir en la marcha de los fondos institucionales, así como sobre la inobservancia de los límites de exposición al riesgo establecido.
+g) Vigilar el cumplimiento de la política de inversión aplicable a casa Fondo Institucional. En caso de incumplimiento comunicar de forma oportuna a los Comités de Inversiones. Dicha obligación deberá cumplirse al menos una vez por mes.
+h) Crear los equipos de trabajo que se consideren convenientes para que efectúen análisis específicos, los cuales deberán ser coordinados por el jefe del Área Administración del Riesgo.
+i) El Comité de Riesgos revisará, cuando menos una vez al año, lo señalado en los incisos a.1) y a.2) del literal a) de este artículo, sin perjuicio de realizar dicha función con mayor frecuencia en respuesta de las condiciones del mercado o de la Caja.
+Se requiere una integración y coordinación en la gestión de riesgos entre la administración y la Auditoría Interna. En este sentido, la Auditoría puede contribuir en gran medida a que el proceso de administración de riesgos cuente con mecanismos sólidos y ofrezca una seguridad razonable, así como colaborar especialmente en las áreas de diseño y efectividad del sistema.
+El Comité de Riesgos para los Fondos Institucionales debe contar con el Manual de Procedimiento Interno del Comité de Riesgos de los Fondos Institucionales de la CCSS, el cual contendrá su funcionamiento, su integración, el alcance de sus funciones y los procedimientos de trabajo, será revisado y actualizado si corresponde al menos una vez al año, y entrará en vigor una vez aprobado por el Comité de Riesgos.
