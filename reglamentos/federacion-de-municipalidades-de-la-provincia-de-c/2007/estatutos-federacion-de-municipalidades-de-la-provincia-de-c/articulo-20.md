@@ -9,9 +9,11 @@ g) Promover y desarrollar las actuaciones precisas para el mejor funcionamiento 
 h) La preparación de anteproyectos y proyectos con destino a la captación de fondos e inversiones, con carácter público o privado.
 i) Nombrar, remover o ejercer la autoridad disciplinaria en relación con el personal administrativo de la Federación. Autorizar la gestión técnica de cada actividad y servicio que preste la FEDEMUCARTAGO.
 j) La gestión técnica de cada actividad y servicio.
-k) Ejercer la representación judicial y extrajudicial en conjunto con el Presidente, con facultades de apoderados generalísimos, con la limitación de suma que al efecto establezca el Concejo Directivo para el respectivo acto o contrato.
+k) Ejercer la representación judicial y extrajudicial, con facultades de apoderado generalísimo sin límite de suma, en la ejecución de los acuerdos del Consejo Directivo y las que le otorguen la Ley.
+Debido a la separación de una de las agremiadas, el año pasado se tuvo que acudir a la Contraloría General de la República para que nos ayudara con la interpretación, a partir de ahí mejoramos la redacción del artículo 33.
+(Así reformado el inciso anterior y publicado en La Gaceta N° 228 del 11 de setiembre del 2020)
 l) Ejercer el control de la contabilidad de la Federación, así como refrendar con su firma todos los pagos que realice la Federación, conjuntamente con dos miembros del Concejo Directivo.
 m) Asistir a las sesiones del Concejo Directivo, con voz pero sin voto. Tramitar y ejecutar los acuerdos del Concejo Directivo.
-n) Elaborar el proyecto de presupuesto anual, los proyectos de presupuestos ordinarios y la liquidación de los ejercicios económicos, en consulta y mutuo acuerdo con el Concejo Directivo.
+n)Elaborar el proyecto de presupuesto anual, los proyectos de presupuestos ordinarios y la liquidación de los ejercicios económicos, en consulta y mutuo acuerdo con el Concejo Directivo.
 o) Desempeñar cualquier otra función que le asigne la ley, el Concejo Directivo o los reglamentos.
 El Director Ejecutivo solo podrá ser removido o suspendido de su cargo por justa causa o por votación no menor de las dos terceras partes del los miembros de la Asamblea General.
