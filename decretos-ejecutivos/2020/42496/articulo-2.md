@@ -1,0 +1,1 @@
+Artículo 2º—Para los casos excepcionales en los que se autoricen las visitas fuera de horario al Parque Nacional Manuel Antonio por parte de la Dirección Regional de Área de Conservación, no será de aplicación lo establecido en el artículo 39 del Decreto Ejecutivo N° 38295-MINAE del 15 de enero de 2014, sobre el recargo de un 50% adicional sobre las tarifas e ingreso.
