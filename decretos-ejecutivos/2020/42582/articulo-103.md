@@ -1,0 +1,3 @@
+Artículo 103. Recursos de Revocatoria y/o Apelación. Corresponderá a la Junta Directiva de la Asociación resolver todos los recursos de revocatoria que se interpongan, contra los actos emanados por esa instancia.
+Cuando se trate de aspectos de carácter administrativo y organizativo de la ASADA, estos serán competencia conforme lo establecido en el artículo 43 del Reglamento a la Ley de Asociaciones, Decreto Ejecutivo N° 29496-J.
+En caso de que los recursos de apelación se refieran a aspectos técnicos y operativos de los sistemas o incidan en la prestación del respectivo servicio, éstos serán competencia exclusiva de AyA, como ente rector nacional en materia de prestación de servicios de acueductos y saneamientos de las aguas residuales.

@@ -1,0 +1,2 @@
+Artículo 77. Competencias del AyA con las FLU y las CONAFLU. El AyA ejecutará su rol de ente rector técnico en todo lo referente a la dirección, coordinación, fortalecimiento y fiscalización de las actividades que llevarán a cabo las FLUs y CONAFLU, garantizando, en todo momento, el fiel cumplimiento de los fines determinados para este tipo de agrupaciones de ASADAS.
+El AyA fiscalizará que las FLUs y CONAFLU no excedan las competencias atribuidas, ni asuman facultades exclusivas de las ASADAS, que les han sido otorgadas por delegación.

@@ -1,0 +1,1 @@
+Artículo 107. Tiempo de los plazos. Para efecto de los plazos a los que se refiere el presente reglamento se aplicará lo regulado expresamente en la norma, o por integración de norma lo regulado en la Ley de Notificaciones Judiciales N° 8687 y se considerarán todos los días como días hábiles.

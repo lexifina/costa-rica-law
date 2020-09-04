@@ -1,0 +1,1 @@
+Artículo 50. Expropiaciones. De ser requerido, la ASADA podrá solicitar al AyA la constitución de servidumbres o adquisición de inmuebles a través del proceso de expropiación habiéndose agotado la negociación administrativa, debiendo la Asociación sufragar los costos que generen estos procesos, todo conforme al Reglamento de Avalúos del AyA.

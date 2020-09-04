@@ -1,0 +1,1 @@
+Artículo 15. Solicitud de asociación: La solicitud de asociación tiene que ser tramitada y analizada por la Junta Directiva de la ASADA en un plazo no mayor de treinta días, después de su recibo, en caso de denegar la petición tiene recurso ante la Asamblea General.

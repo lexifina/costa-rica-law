@@ -1,0 +1,1 @@
+Artículo 97. Negativa de la ASADA a ser asumida. Si existe negativa de la ASADA a que el AyA asuma la prestación de los servicios y al traspaso de bienes, siguiendo lo indicado en el presente reglamento, la Gerencia General procederá a instaurar el debido proceso, de conformidad con lo dispuesto en los artículos 320 y siguientes de la Ley General de la Administración Pública.

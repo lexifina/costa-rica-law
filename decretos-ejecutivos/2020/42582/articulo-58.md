@@ -1,0 +1,3 @@
+Artículo 58. Endeudamiento de las ASADAS. La ASADAS podrán solicitar préstamos a los bancos públicos, privados, así como a cualesquiera entidades de cooperación y crédito nacional o internacional.
+Deberán someter a la autorización de la Junta Directiva del AyA cualquier gestión de endeudamiento o garantía de préstamos necesarios para el sistema siempre que para dicha gestión se comprometan los activos del operador.
+Cuando proceda el trámite de aprobación para el endeudamiento de una ASADA, la Subgerencia de Gestión Sistemas Comunales tendrá un plazo de un mes con una prórroga de hasta un mes más, para realizar los estudios financieros-contables y la Dirección Jurídica contará con quince días para elevar a conocimiento de Junta Directiva el proyecto de acuerdo.

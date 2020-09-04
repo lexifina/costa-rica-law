@@ -1,0 +1,1 @@
+Artículo 106. Reformas al presente reglamento. Cualquier proceso de reforma al presente Reglamento, deberá ser objeto de un proceso de participación en el que se consulte a las ASADAS, Federaciones, Confederaciones, Ligas, Uniones a través de la publicación mediante medios idóneos, con al menos un mes de anticipación y otros mecanismos que promuevan la participación.

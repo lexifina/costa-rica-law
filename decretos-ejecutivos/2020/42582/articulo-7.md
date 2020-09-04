@@ -1,0 +1,1 @@
+Artículo 7. Finalidad de las ASADAS. Las ASADAS tienen como únicos y específicos fines la prestación de los servicios de abastecimiento de agua potable y saneamiento de aguas residuales, contribuir en la gestión integrada del recurso hídrico y brindar el servicio de hidrantes por ley especial.

@@ -1,0 +1,1 @@
+Artículo 84. Apertura del proceso de acompañamiento especial. La apertura de período de acompañamiento especial deberá hacerse mediante un acto razonado, que convoca de manera inmediata a reunión entre la Subgerencia de Gestión Sistemas Comunales y la ASADA.

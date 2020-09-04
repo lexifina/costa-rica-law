@@ -1,0 +1,3 @@
+Artículo 49. Servidumbres. Las ASADAS deberán delimitar, catastrar, adquirir, mantener y proteger las servidumbres utilizadas en sus sistemas.
+No se permite construir edificaciones permanentes, ni sembrar árboles en las servidumbres de tubería, las cuales deben tener como mínimo seis metros de ancho (tres metros a cada lado de la línea de tubería) y en ese sentido, deberán observarlo las respectivas municipalidades del país.
+Las ASADAS deberán velar porque se cumpla dicha disposición; así como acatar lo establecido en el artículo 16 de la Ley General de Agua Potable, para lo cual, podrá solicitar al AyA la asesoría que requiera.

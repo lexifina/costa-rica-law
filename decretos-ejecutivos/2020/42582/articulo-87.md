@@ -1,0 +1,2 @@
+Artículo 87. Cierre del período de acompañamiento. La constatación por parte de la Subgerencia de Gestión Sistemas Comunales de que los conflictos han sido superados o resueltos, es suficiente para el levantamiento del período de acompañamiento especial, mediante el acto respectivo.
+Si la situación empeora y/o al final del cumplimiento del plan de trabajo el problema inicial no se ha resuelto, entonces el AyA iniciará el proceso de intervención de la ASADA de conformidad con los siguientes artículos.

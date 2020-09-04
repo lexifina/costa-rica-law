@@ -1,0 +1,4 @@
+SECCIÓN SEGUNDA
+Disposiciones generales
+Artículo 3. Rectoría técnica: El AyA como ente rector técnico en la prestación de los servicios públicos de acueducto, alcantarillado y/o saneamiento de las aguas residuales, ejercerá todas las actividades propias del control, vigilancia, fiscalización, evaluación, normalización, planificación sectorial de los servicios de agua potable y saneamiento de aguas residuales y dirección de la gestión que realizan las ASADAS, ya que la gestión del sistema corresponde a la ASADA por delegación del AyA.
+La relación entre el AyA y las ASADAS estará basada en los principios de participación social, colaboración, cooperación, adaptabilidad o mutabilidad de los servicios, eficiencia y eficacia, fiscalización, control, evaluación, normalización, planificación sectorial de los servicios de agua potable y saneamiento de aguas residuales y dirección de la gestión que realizan las ASADAS

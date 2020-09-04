@@ -1,0 +1,1 @@
+Artículo 75. Prohibición para la prestación de servicios públicos. Las uniones, ligas, federaciones y/o confederaciones, no podrán prestar los servicios públicos de abastecimiento de agua potable y saneamiento de aguas residuales, las cuales, son actividades exclusivas de las ASADAS.

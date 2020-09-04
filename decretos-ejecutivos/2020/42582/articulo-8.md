@@ -1,0 +1,1 @@
+Artículo 8. Actividades afines a la prestación de los servicios. Las ASADAS podrán desarrollar actividades afines a la prestación de los servicios de agua potable y saneamiento de aguas residuales, siempre y cuando se relacionen con los fines de la ASADA y las competencias delegadas por el AyA.

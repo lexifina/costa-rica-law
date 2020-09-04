@@ -1,0 +1,1 @@
+Artículo 108. Derogatoria. Se deroga el Reglamento de las Asociaciones Administradoras de los Sistemas de Acueductos y Alcantarillados Comunales, Decreto Ejecutivo N° 32529-S-MINAE publicado en La Gaceta 150 del 5 de agosto del 2005.

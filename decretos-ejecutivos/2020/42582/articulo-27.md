@@ -1,0 +1,1 @@
+Artículo 27. Pago de viáticos. La Junta Directiva de la ASADA podrá autorizar el reconocimiento de los viáticos para las actividades relacionadas con la prestación del servicio y la consecución de los fines de la ASADA, tomando como referencia lo aprobado para tales efectos por la Contraloría General de la República.

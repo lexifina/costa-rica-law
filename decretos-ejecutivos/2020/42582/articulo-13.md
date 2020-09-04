@@ -1,0 +1,1 @@
+Artículo 13. Normativa específica de las ASADAS. Las ASADAS serán regidas por la Ley de Asociaciones y su Reglamento. Además, deberá aplicarse lo regulado en este Reglamento, en virtud de la especialidad de su gestión y de la importancia de los servicios que prestan y del bien que tutelan.

@@ -1,0 +1,1 @@
+Transitorio III. El Instituto Costarricense de Acueductos y Alcantarillados tendrá un plazo de hasta tres meses a partir de la publicación de este Reglamento en el Diario Oficial La Gaceta, para la emisión de los manuales requeridos para su implementación.

@@ -1,0 +1,1 @@
+Artículo 83. Respuesta a la solicitud de la ASADA. La Subgerencia de Gestión Sistemas Comunales deberá de responder de acuerdo a la urgencia de la solicitud, no pudiendo extenderse su respuesta más allá del plazo de quince días hábiles.

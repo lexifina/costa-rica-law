@@ -1,0 +1,2 @@
+Artículo 92. El Órgano Interventor. Queda facultado el órgano interventor para ejecutar las acciones que estime pertinentes de acuerdo con la modalidad de intervención requerida, quedando a criterio de la Junta directiva del AyA su conformación.
+Al finalizar el período de intervención, el órgano interventor deberá presentar a la Junta Directiva del AyA un informe donde consten las acciones realizadas para corregir las irregularidades y las recomendaciones que darán sostenibilidad a las soluciones implementadas.

@@ -1,0 +1,2 @@
+Artículo 56. Trabajo voluntario o ad honorem. Las ASADAS podrán autorizar trabajo voluntario o ad honorem para la ejecución de sus fines, de parte de personas asociadas o no asociadas. Ese trabajo voluntario o ad honorem deberá ser debidamente registrado en los libros de la ASADA.
+La ejecución de trabajo voluntario a favor de la ASADA no generará en ningún caso obligaciones laborales a la Asociación

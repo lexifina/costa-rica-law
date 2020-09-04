@@ -1,0 +1,2 @@
+Artículo 76. Liquidación. El AyA podrá solicitar la extinción y liquidación de estas organizaciones de conformidad con la legislación vigente, en caso de incumplir con lo dispuesto en el presente capítulo.
+En caso de liquidación, los bienes muebles e inmuebles, si los hubiere, deberán ser distribuidos a favor de todas las ASADAS integrantes, según informe técnico emitido por AyA, fundamentados en principios de razonabilidad y proporcionalidad de dicha distribución.

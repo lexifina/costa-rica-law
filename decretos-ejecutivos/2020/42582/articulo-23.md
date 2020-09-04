@@ -1,0 +1,2 @@
+Artículo 23. Sesiones de Junta Directiva. Durante las reuniones de la Junta Directiva de la ASADA, sus miembros se avocarán únicamente al análisis de temas propios y afines a los objetivos que persigue dicha organización.
+El idioma oficial del Estado es el español, las reuniones de Junta Directiva y Asambleas deberán llevarse a cabo en este idioma, salvo que exista intérprete, nombrado por acuerdo de la Junta Directiva, no siendo necesario que sea un intérprete oficial o reconocido por el Estado.

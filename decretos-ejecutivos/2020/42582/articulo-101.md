@@ -1,0 +1,3 @@
+SECCION SEGUNDA
+De los recursos de revocatoria y apelación
+Artículo 101. Normativa para interponer los recursos correspondientes. Los servicios de abastecimiento de agua potable y saneamiento son servicios públicos indistintamente de su ente prestador. Para la formulación de recursos se aplicarán los procedimientos y plazos establecidos en el presente Reglamento y en la Ley General de La Administración Pública, la Ley Reguladora de la Jurisdicción Constitucional, el Código Procesal Contencioso Administrativo, la Ley Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos y demás leyes conexas.

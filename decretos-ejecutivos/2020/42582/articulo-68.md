@@ -1,0 +1,1 @@
+Artículo 68. – Promoción de la Afiliación. La ASADA deberá promover la participación de las personas usuarias como miembros activos de la asociación, para tales efectos, mantendrá un programa permanente de afiliación que será divulgado en todas las actividades con los miembros de la comunidad.
