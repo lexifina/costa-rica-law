@@ -1,0 +1,1 @@
+Artículo 9°-Informe de resultado de las solicitudes de modificaciones al presupuesto. Será entregada a cada una de las personas que ha solicitado una modificación o inclusión de recursos en cualquiera de las modificaciones al presupuesto, una nota indicándole si fue aprobada o no su solicitud.
