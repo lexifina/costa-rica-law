@@ -13,3 +13,4 @@ Política y Normativa de los Programas de Educación Abierta
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-05-20 | la propia norma |
+| 2 | 2020-09-04 | Decreto Ejecutivo 42617 (2020-09-04) |
