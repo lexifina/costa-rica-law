@@ -16,3 +16,4 @@ Creación del Programa Proteger
 | 1 | 2020-04-17 | la propia norma |
 | 2 | 2020-04-29 | Decreto Ejecutivo 42329 (2020-04-29) |
 | 3 | 2020-07-09 | Decreto Ejecutivo 42453 (2020-07-09) |
+| 4 | 2020-09-04 | Decreto Ejecutivo 42601 (2020-09-04) |

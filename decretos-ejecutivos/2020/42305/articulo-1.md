@@ -32,8 +32,10 @@ marzo de 2002 y sus reformas, debido al estado de urgencia y necesidad por el
 COVID-19.
 Por tanto,
 Decretan:
-Creación del Bono Proteger
+Creación del Programa Proteger
+(Así modificada la denominación del título anterior por el artículo 1° del decreto ejecutivo N° 42601 del 4 de setiembre del 2020)
 Capítulo I
 Generalidades
-Artículo 1.-Fin. Créase el Bono Proteger como un subsidio temporal de desempleo para contribuir con la protección social de los hogares afectados por el cambio en sus condiciones laborales y/o de ingresos como consecuencia de la Emergencia Nacional provocada por COVID-19.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 42329 del 29 de abril del 2020)
+Artículo 1º.-Fin.Créase el Programa Proteger como una respuesta integral al impacto socio económico ocasionado por la Emergencia Nacional provocada por la COVID-19, mediante el cual se atenderá a las personas afectadas por el cambio en sus condiciones laborales y/o de ingresos como consecuencia de esta emergencia, con el otorgamiento de un subsidio temporal de desempleo denominado Bono Proteger.
+Complementariamente y en el marco del Sistema Nacional de Empleo, se podrán poner a disposición de la población registrada, servicios de empleo, entre los que se encuentran: capacitación y formación, intermediación y colocación, orientación, información, formalización laboral y la gestión electrónica de beneficios, entre otros.
+(Así reformado por el artículo 2° del decreto ejecutivo N° 42601 del 4 de setiembre del 2020)
