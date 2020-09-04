@@ -14,3 +14,4 @@ Reglamento para la regulación de servicios especializados de Aeródromo Regulac
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-02-18 | la propia norma |
+| 2 | 2020-09-04 | Decreto Ejecutivo 42660 (2020-09-04) |
