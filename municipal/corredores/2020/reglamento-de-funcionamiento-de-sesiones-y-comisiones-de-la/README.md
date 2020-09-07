@@ -14,3 +14,4 @@ Reglamento de funcionamiento de sesiones y comisiones de la Municipalidad de Cor
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-05-25 | la propia norma |
+| 2 | 2020-09-07 | Reglamento municipal 19 (2020-09-07) |
