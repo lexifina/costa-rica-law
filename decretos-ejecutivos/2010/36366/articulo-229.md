@@ -10,7 +10,8 @@ Artículo 229.—El Departamento Operativo tendrá las siguientes funciones:
 9) Brindar soporte operacional y técnico a las unidades de la Policía de Fronteras,
 10) Participar en la elaboración de programas y proyectos de la Policía de Fronteras,
 11) Determinar las necesidades de capacitación del personal,
-12) Coordinar y desarrollar acciones con la Escuela Nacional de Policía y organismos internacionales, para la formación, capacitación y especialización técnico-policial y administrativa del personal,
+12) Coordinar y desarrollar acciones con la Academia Nacional de Policía(*) y organismos internacionales, para la formación, capacitación y especialización técnico-policial y administrativa del personal,
+(*) (Así modificada la denominación del inciso anterior por el artículo 2° del decreto ejecutivo N° 42542 del 7 de setiembre del 2020)
 13) Elaborar los estudios técnicos necesarios para justificar la adquisición de bienes y servicios,
 14) Desarrollar los procesos de planificación estratégica, de seguridad tecnológica y comunicaciones,
 15) Cualquier otra propia de su competencia.

@@ -8,7 +8,8 @@ Artículo 157.—La Sección de Operaciones tendrá las siguientes funciones:
 7) Brindar apoyo táctico in situ, para el desarrollo satisfactorio de la orden de operaciones emitida por el Departamento.
 8) Coordinar y participar en los operativos requeridos por la Policía de Control de Drogas, para la erradicación de plantaciones de drogas en las diferentes zonas del país.
 9) Desarrollar en conjunto con los cuerpos y unidades policiales acciones policiales orientadas a la protección y preservación del ambiente y de los recursos naturales, como colaboración a las instituciones u organismos públicos o privados dedicados a esa actividad.
-10) Colaborar con la Escuela Nacional de Policía, brindando instrucción a los servidores policiales, en temas afines con la función policial desarrollada por el Departamento de conformidad con los conocimientos y experiencia en la materia.
+10) Colaborar con la Academina Nacional de Policía(*), brindando instrucción a los servidores policiales, en temas afines con la función policial desarrollada por el Departamento de conformidad con los conocimientos y experiencia en la materia.
+(*) (Así modificada la denominación del inciso anterior por el artículo 2° del decreto ejecutivo N° 42542 del 7 de setiembre del 2020)
 11) Brindar soporte a las Direcciones Regionales en el campo operacional, estandarizando los procedimientos y estrategias.
 (Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 137 al 138)
 (Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 138 al 154)

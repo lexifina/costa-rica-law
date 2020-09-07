@@ -4,7 +4,8 @@ Artículo 176.—La Unidad de Operaciones en Armas y Explosivos y Seguridad Priv
 3) Asegurar el área geográfica y verificar el cumplimiento de las medidas de seguridad ordenadas por las autoridades competentes en detonaciones de explosivos industriales y pirotécnicos.
 4) Custodiar los cargamentos de armas y explosivos, así como sus partes, componentes y materias primas, cuyo destino final sea nuestro país o se encuentren en tránsito.
 5) Realizar, a solicitud de la Dirección General de Armamento, las verificaciones de mercancías reguladas por la Ley de Armas y Explosivos, que ingresan, egresan o transitan por el territorio nacional.
-6) Realizar, en coordinación con la Escuela Nacional de Policía, la evaluación teórica y práctica a que hace referencia el artículo 39 de la Ley de Armas y Explosivos a los polígonos autorizados por la Dirección General de Armamento.
+6) Realizar, en coordinación con la Academia Nacional de Policía(*), la evaluación teórica y práctica a que hace referencia el artículo 39 de la Ley de Armas y Explosivos a los polígonos autorizados por la Dirección General de Armamento.
+(*) (Así modificada la denominación del inciso anterior por el artículo 2° del decreto ejecutivo N° 42542 del 7 de setiembre del 2020)
 7) Brindar colaboración a otras unidades policiales que así lo requieran sobre el transporte manipulación y distribución de materiales explosivos, armas y municiones.
 8) Aquellas otras que se deriven del ordenamiento jurídico de conformidad con su competencia.
 9) Realizar las investigaciones policiales que se requieran, a solicitud de la Dirección de Servicios de Seguridad Privados, por irregularidades denunciadas con respecto a las empresas y agentes que brindan servicios de seguridad privados.

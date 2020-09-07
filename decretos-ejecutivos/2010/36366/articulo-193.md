@@ -9,7 +9,8 @@ Artículo 193.—La Dirección de Programas Policiales Preventivos tendrá las s
 6) Coordinar, supervisar y asesorar a las Direcciones Regionales de la Fuerza Pública sobre la ejecución de acciones en materia de prevención comunitaria.
 7) Desarrollar estudios en materia de prevención comunitaria para fortalecer los procesos de trabajo de la Dirección y de la Fuerza Pública.
 8) Realizar actividades de información y capacitación sobre temas de prevención comunitaria en coordinación con instituciones públicas o privadas.
-9) Capacitar en materia de prevención comunitaria y modelos de trabajo policial que involucren la participación ciudadana, en los cursos que brinda la Escuela Nacional de Policia.
+9) Capacitar en materia de prevención comunitaria y modelos de trabajo policial que involucren la participación ciudadana, en los cursos que brinda la Academia Nacional de Policia(*).
+(*) (Así modificada la denominación del inciso anterior por el artículo 2° del decreto ejecutivo N° 42542 del 7 de setiembre del 2020)
 10) Documentar las actividades desarrolladas por la Dirección de Programas Policiales Preventivos, la Fuerza Pública y las comunidades en relación con la prevención comunitaria.
 11) Asesorar a las Direcciones Regionales de la Fuerza Pública en el proceso de selección de los (las) policías que implementan los programas preventivos en el país.
 12) Aquellas otras propias de su competencia.

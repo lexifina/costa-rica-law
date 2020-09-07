@@ -1,7 +1,8 @@
 Artículo 181.—La Unidad Administrativa de cada Dirección Regional tendrá las siguientes funciones generales:
 1) Establecer los controles internos necesarios para garantizar la eficiencia del servicio en el cumplimiento de instrucciones, reglamentos, planes establecidos y el mandato del ordenamiento jurídico, así como también los dictados éticos y morales en el ejercicio de la función.
 2) Determinar las necesidades de capacitación del personal de la Dirección Regional respectiva.
-3) Coordinar y desarrollar acciones con la Escuela Nacional de Policía, la Dirección General de la Fuerza Pública y el Departamento de Capacitación y Desarrollo del Ministerio de Seguridad Pública, para la capacitación técnico-policial y administrativa del personal de la Dirección Regional.
+3) Coordinar y desarrollar acciones con la Academia Nacional de Policía(*), la Dirección General de la Fuerza Pública y el Departamento de Capacitación y Desarrollo del Ministerio de Seguridad Pública, para la capacitación técnico-policial y administrativa del personal de la Dirección Regional.
+(*) (Así modificada la denominación del inciso anterior por el artículo 2° del decreto ejecutivo N° 42542 del 7 de setiembre del 2020)
 4) Elaborar los estudios técnicos necesarios para justificar la adquisición de uniformes, equipo de transporte, armas de reglamento, equipo de protección policial, equipo de comunicación y de cualquier otro implemento de uso policial que se requiera.
 5) Gestionar el suministro del recurso humano, así como de los recursos materiales y financieros para el buen desempeño de los cuerpos policiales.
 6) Velar por la correcta administración del recurso humano, así como de los recursos materiales y su buen uso, de acuerdo con las necesidades del servicio, tomando las previsiones necesarias para las contingencias.

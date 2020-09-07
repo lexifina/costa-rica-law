@@ -1,6 +1,9 @@
-Artículo 222.- La Academia del Servicio Nacional de Guardacostas como órgano encargado de brindar la capacitación técnica y policial a los funcionarios policiales del Servicio Nacional de Guardacostas es dependiente de la Escuela Nacional de Policía Francisco J. Orlich, al tenor de lo ordenado en los artículos 15, 18, 19 y 20 de la Ley 8000; pero conforma parte de la estructura del Servicio Nacional de Guardacostas en cuanto a otros aspectos, al tenor de lo preceptuado en el artículo 4 inciso f), 16, 17, 21, 24 inciso e), 25, relacionados y concordantes de la misma Ley 8000 y su reglamento.
+SECCIÓN V
+Coordinación y supervisión de los procesos académicos desarrollados
+por la Academia Nacional de Guardacostas
+Artículo 222.- La Academia Nacional de Policía deberá mantener constante coordinación con la Academia del Servicio Nacional de Guardacostas para garantizar que los procesos educativos desarrollados por esta última se realicen conforme los principios rectores de la función y educación policial. Asimismo, deberá coordinar la acreditación y registro de los planes de estudio y sus respectivos programas, de los educadores y de los resultados de las acciones educativas que se desarrollen.”
 (Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 202 al 203)
 (Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 203 al 219)
 (Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38367 del 21 de febrero del 2014, que lo traspaso del antiguo artículo 219 al 220)
 (Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38705 del 13 de agosto del 2014, que lo traspasó del antiguo artículo 220 al 222)
-(Así reformado por el artículo4 ° del decreto ejecutivo N° 41105 del 23 de enero del 2018)
+(Así reformado por el artículo 1° del decreto ejecutivo N° 42542 del 7 de setiembre del 2020)

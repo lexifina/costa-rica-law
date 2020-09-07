@@ -8,7 +8,8 @@ Artículo 172.—La Unidad Especial de Apoyo como unidad especializada de la Fue
 7) Asesorar a la Dirección General de la Fuerza Pública en materia de atención policial de incidentes de tipo radiológico, bacteriológico o químico.
 8) Colaborar con el personal técnico del Ministerio de Salud y otras instituciones competentes, según la naturaleza del incidente, en la detección, custodia y traslado de agentes químicos, bacteriológicos o radiológicos.
 9) Proponer medidas de protección, para preservar la seguridad de los habitantes, sus bienes, derechos y libertades fundamentales y cooperar con la evacuación de personas afectadas en incidentes de tipo químico, bacteriológico o radiológico.
-10) Elaborar y socializar por medio de la Escuela Nacional de Policía los protocolos de actuación de la Fuerza Pública para la atención de incidentes radiológicos, bacteriológicos o químicos.
+10) Elaborar y socializar por medio de la Academia Nacional de Policía(*) los protocolos de actuación de la Fuerza Pública para la atención de incidentes radiológicos, bacteriológicos o químicos.
+(*) (Así modificada la denominación del inciso anterior por el artículo 2° del decreto ejecutivo N° 42542 del 7 de setiembre del 2020)
 11) Estructurar la base de datos de incidentes nacionales de tipo radiológico, bacteriológico y químico.
 12) Coordinar con instituciones nacionales e internacionales la actualización de conocimientos sobre la naturaleza, tendencias y procedimientos para la atención de los incidentes de tipo radiológico, bacteriológico y químico.
 13) Colaborar en operativos de detección de sustancias químicas, biológicas o radiológicas, de manera preventiva cuando así lo requiera la Fuerza Pública.

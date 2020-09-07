@@ -28,3 +28,4 @@ Reglamento de Organización del Ministerio de Seguridad Pública
 | 13 | 2018-01-23 | Decreto Ejecutivo 41105 (2018-01-23) |
 | 14 | 2018-05-24 | Ley 9552 |
 | 15 | 2018-07-18 | Decreto Ejecutivo 41366 (2018-07-18) |
+| 16 | 2020-09-07 | Decreto Ejecutivo 42542 (2020-09-07) |

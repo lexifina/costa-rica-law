@@ -4,7 +4,8 @@ Artículo 174.—La Unidad de Intervención Policial como unidad especializada d
 3) Colaborar con los órganos encargados del control, prevención y erradicación de drogas, así como participar en operaciones calificadas, autorizadas por la Dirección.
 4) Brindar colaboración operativa a los diferentes cuerpos de policía que conforman la Fuerza Pública.
 5) Realizar acciones operativas para proteger la integridad física del (de la) Presidente (a) de la República y sus colaboradores (as) o cualquier otro funcionario diplomático que así lo requiera, nacional o internacional.
-6) Colaborar con la Escuela Nacional de Policía en la capacitación de funcionarios policiales en materia de su competencia.
+6) Colaborar con la Academia Nacional de Policía(*) en la capacitación de funcionarios policiales en materia de su competencia.
+(*) (Así modificada la denominación del inciso anterior por el artículo 2° del decreto ejecutivo N° 42542 del 7 de setiembre del 2020)
 7) Aquellas otras que se deriven del ordenamiento jurídico, de conformidad con su competencia.
 (Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 154 al 155)
 (Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 155 al 171)

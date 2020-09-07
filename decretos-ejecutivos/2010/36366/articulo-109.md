@@ -12,7 +12,8 @@ Artículo 109.—El Departamento Disciplinario Legal tendrá las siguientes func
 11) Remitir a la Asesoría Jurídica de este Ministerio, las ejecutorias de sentencias penales firmes, dictadas contra los funcionarios de este Ministerio, sobre los que recaiga condena privativa de libertad y que se encuentren descontando prisión o hayan sido inhabilitados para el ejercicio de cargos públicos.
 12) Realizar análisis periódicos de la información que se genera en este Departamento, con el fin de trasladarlo a las instancias superiores para la toma de las decisiones que correspondan.
 13) Atender las solicitudes de información relacionadas con los asuntos disciplinarios.
-14) Colaborar con la Escuela Nacional de Policía en los procesos de instrucción y capacitación, cuando así le sea requerido, así como proponer a las diferentes instancias del Ministerio, las necesidades de capacitación detectadas en los procesos de análisis de información.
+14) Colaborar con la Academia Nacional de Policía(*) en los procesos de instrucción y capacitación, cuando así le sea requerido, así como proponer a las diferentes instancias del Ministerio, las necesidades de capacitación detectadas en los procesos de análisis de información.
+(*) (Así modificada la denominación del inciso anterior por el artículo 2° del decreto ejecutivo N° 42542 del 7 de setiembre del 2020)
 15) Cualquier otra propia de su competencia o que esté definida por el ordenamiento jurídico.”
 (Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 90 al 91)
 (Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 91 al 107)

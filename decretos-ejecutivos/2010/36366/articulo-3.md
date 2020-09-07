@@ -3,7 +3,8 @@ Artículo 3.—El Ministerio de Seguridad Pública tendrá dos Viceministros (as
 2) Viceministro (a) de Unidades Regulares, ejercerá sus funciones respecto de las siguientes áreas:
 (Así reformado el inciso 2) anterior por el artículo 1° del decreto ejecutivo N° 38705 del 13 de agosto del 2014)
 2.1 Dirección General de la Fuerza Pública.
-2.2 Escuela Nacional de Policía.
+2.2 Academia Nacional de Policía.
+(*) (Así modificada la denominación del inciso anterior por el artículo 2° del decreto ejecutivo N° 42542 del 7 de setiembre del 2020)
 2.3 Dirección de la Policía de Fronteras.
 3) Viceministro (a) de cuerpos de policía especializada y otras unidades coadyuvantes.
 Ejercerá sus funciones respecto de las siguientes áreas:

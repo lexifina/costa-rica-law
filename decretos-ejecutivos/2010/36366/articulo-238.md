@@ -1,6 +1,7 @@
 Artículo 238.—Al Departamento Legal le corresponderá las siguientes funciones:
 1) Resolver los asuntos legales de la Dirección.
-2) Iniciar, tramitar y concluir los procedimientos administrativos en contra de las empresas de seguridad, sus oficiales y las escuelas de capacitación, por irregularidades en la prestación del servicio.
+2) Iniciar, tramitar y concluir los procedimientos administrativos en contra de las empresas de seguridad, sus oficiales y las Academias(*) de capacitación, por irregularidades en la prestación del servicio.
+(*) (Así modificada la denominación del inciso anterior por el artículo 2° del decreto ejecutivo N° 42542 del 7 de setiembre del 2020)
 3) Atender y resolver las consultas presentadas ante el Departamento Legal, con respecto a la aplicación de la Ley 8395.
 4) Tramitar y contestar los recursos ordinarios de Revocatoria y Apelación, así como los extraordinarios de Amparo que contra la Dirección sean impuestos.
 5) Brindar asesoría interna a cada uno de los Departamentos que conforman la Dirección.

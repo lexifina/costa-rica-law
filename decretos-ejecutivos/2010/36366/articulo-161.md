@@ -3,7 +3,8 @@ Artículo 161.—La Sección de Análisis y Estadística tendrá las siguientes 
 2) Analizar la información de las operaciones policiales para medir el impacto sobre las tendencias de la criminalidad.
 3) Mantener y administrar un registro de información documental e informatizada de actividades propias de la institución (informes policiales, reincidentes, incidencias diarias, etc.).
 4) Aplicar distintas modalidades de análisis criminal que permitan medir la eficacia y eficiencia de las operaciones policiales.
-5) Colaborar con la Escuela Nacional de Policía en la asesoría y capacitación de servidores policiales en materia de análisis criminal.
+5) Colaborar con la Academia Nacional de Policía(*) en la asesoría y capacitación de servidores policiales en materia de análisis criminal.
+(*) (Así modificada la denominación del inciso anterior por el artículo 2° del decreto ejecutivo N° 42542 del 7 de setiembre del 2020)
 6) Suministrar información constante en tiempo real y efectivo a las unidades policiales para el planeamiento y ejecución de operativos policiales.
 7) Brindar asesoría a las Direcciones y demás unidades que conforman la Fuerza Pública en temas relacionados con análisis, estandarizando las estrategias a seguir, tanto en el trabajo diario como en operaciones extraordinarias.
 8) Evaluar las operaciones policiales tácticas y estratégicas, para enfrentar el delito desde el punto de vista de la inteligencia policial que se genera y recomendar los posibles cambios en la operatividad de la policía.

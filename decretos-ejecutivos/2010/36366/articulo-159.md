@@ -7,7 +7,8 @@ Artículo 159.—El Departamento de Inteligencia Policial tendrá las siguientes
 6) Dirigir la actividad de inteligencia policial, en seguridad ciudadana enfocado a la prevención en el ámbito nacional.
 7) Planear y ejecutar las operaciones abiertas o encubiertas para la obtención de información policial utilizando tecnología de apoyo permitidas según el ordenamiento jurídico.
 8) Realizar diagnósticos con el fin de medir la eficacia y eficiencia de las operaciones policiales a través del análisis de la información.
-9) Asesorar y brindar capacitación en coordinación con la Escuela Nacional de Policía a los servidores policiales en materia de inteligencia policial.
+9) Asesorar y brindar capacitación en coordinación con la Academia Nacional de Policía(*) a los servidores policiales en materia de inteligencia policial.
+(*) (Así modificada la denominación del inciso anterior por el artículo 2° del decreto ejecutivo N° 42542 del 7 de setiembre del 2020)
 10) Coadyuvar en el planeamiento y ejecución de operativos policiales mediante el suministro de información constante en tiempo real y efectivo.
 11) Custodiar la información que se procesa y almacena en los diferentes sistemas y el buen uso de la misma.
 12) Recopilar, clasificar, procesar y difundir información cuantitativa y cualitativa, obtenida por el Ministerio en lo concerniente a las estadísticas de interés policial y proveer al Sistema de Estadística Nacional los datos requeridos para elaborar las estadísticas nacionales.
