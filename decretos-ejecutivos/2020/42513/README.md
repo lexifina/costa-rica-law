@@ -17,3 +17,4 @@ Medidas de adaptación para el ingreso de personas extranjeras al territorio nac
 | 2 | 2020-08-05 | Decreto Ejecutivo 42517 (2020-08-05) |
 | 3 | 2020-08-13 | Decreto Ejecutivo 42527 (2020-08-13) |
 | 4 | 2020-08-28 | Decreto Ejecutivo 42585 (2020-08-28) |
+| 5 | 2020-09-07 | Decreto Ejecutivo 42604 (2020-09-07) |
