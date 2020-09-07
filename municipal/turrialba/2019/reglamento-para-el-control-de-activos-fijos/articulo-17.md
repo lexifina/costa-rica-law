@@ -1,0 +1,1 @@
+Artículo 17.—En caso de cierre de algún departamento, el funcionario responsable del mismo, debe velar porque los activos se entreguen. Además, de un inventario detallado de los bienes en mención a la Proveeduría para asignarles el mejor uso.

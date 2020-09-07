@@ -1,0 +1,1 @@
+Artículo 24.—Cuando la Municipalidad de Turrialba adquiera terrenos, instalaciones o edificios, ya sea por medio de compra o donación, la Oficina Jurídica deberá remitir a la Proveeduría copia de la escritura y de los planos respectivos, una vez que hayan sido inscritos en el Registro Nacional de la Propiedad. Esto en un plazo no mayor a los quince días hábiles.

@@ -1,0 +1,1 @@
+Artículo 7º—Es terminantemente prohibido que los activos de la Municipalidad de Turrialba, de cualquier naturaleza salgan de las Unidades Administrativas para usos que no sean absolutamente de carácter administrativo, propio de la Municipalidad. En caso de ser comprobado el incumplimiento de este artículo se aplicarán las sanciones disciplinarias correspondientes.

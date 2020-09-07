@@ -1,0 +1,1 @@
+Artículo 14.—La Proveeduría entregará equipo, debidamente identificado por su placa, únicamente a la jefatura del departamento solicitante, quien en caso de ausencia podrá dejar autorización expresa y escrita bajo su responsabilidad para que sea otro funcionario quien lo retire.

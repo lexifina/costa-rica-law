@@ -1,0 +1,6 @@
+Artículo 2º—Para los propósitos de este reglamento se establecen las siguientes definiciones:
+a) Municipalidad: Persona jurídica estatal, con patrimonio propio, personalidad y capacidad jurídica plena para ejecutar todo tipo de actos y contratos necesarios para cumplir con sus fines. Para el presente, entiéndase Municipalidad, la del cantón de Turrialba.
+b) Activos fijos: Son bienes propiedad de la Institución, que se clasifiquen como tales de acuerdo con las normas contables aplicadas por la Unidad de Activos Fijos y destinados al logro de los objetivos de la Institución. Pueden ser bienes con vida útil superior a un año (como mobiliario, maquinaria, equipo, vehículos, semovientes) o bienes inmuebles como instalaciones, terrenos y edificios.
+c) Usuario de un activo: Aquel funcionario al cual se le entregue mobiliario, equipo, maquinaria o vehículos para la ejecución de sus labores.
+d) Inventario: Lista ordenada de activos fijos, que contienen como mínimo, el número de identificación y la descripción de los bienes asignados a una determinada unidad. El cual deberá cumplir con un formato que será proporcionado por la proveeduría institucional.
+e) Usuario: Funcionario de la Municipalidad de Turrialba.

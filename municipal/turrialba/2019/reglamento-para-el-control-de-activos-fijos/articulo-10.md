@@ -1,0 +1,1 @@
+Artículo 10.—Los Departamentos están obligados a informar de manera escrita a la Proveeduría sobre las compras de equipo que realicen, a efecto de que los activos sean debidamente identificados como propiedad de la Municipalidad y se incluyan en los respectivos registros.

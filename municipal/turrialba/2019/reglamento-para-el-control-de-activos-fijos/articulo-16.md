@@ -1,0 +1,1 @@
+Artículo 16.—Cuando se crea un nuevo departamento o uno ya existente, adquiere total independencia respecto a otro del que formaba parte, se debe levantar un inventario de los bienes que le han sido asignados, indicando la unidad de procedencia, para que la Proveeduría realice los movimientos correspondientes en los registros auxiliares.

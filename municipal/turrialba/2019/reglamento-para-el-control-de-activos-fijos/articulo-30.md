@@ -1,0 +1,1 @@
+Artículo 30.—Comprobada la pérdida sin culpa o dolo del funcionario bajo cuya responsabilidad han estado los bienes, la Proveeduría solicitará autorización a la Alcaldía, para que se proceda al descargo contable en el registro auxiliar.
