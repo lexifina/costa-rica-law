@@ -1,0 +1,1 @@
+Artículo 5º—Criterio de reparto. Es el valor de los inmuebles beneficiados de conformidad con la valoración realizada ya sea mediante declaración o avalúo de conformidad con la Ley 7509 denominada Ley del Impuesto sobre Bienes Inmuebles.

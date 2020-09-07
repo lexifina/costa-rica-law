@@ -1,0 +1,1 @@
+Artículo 7º—Pago. Una vez finalizada la realización total o parcial de las obras, se procederá a señalar: los sujetos pasivos, la base y las cuotas individualizadas definitivas, girando las liquidaciones que procedan a los sujetos pasivos por parte de la Administración Tributaria Municipal.

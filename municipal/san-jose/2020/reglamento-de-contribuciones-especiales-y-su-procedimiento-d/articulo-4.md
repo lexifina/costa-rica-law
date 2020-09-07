@@ -1,0 +1,1 @@
+Artículo 4º—Base imponible. La base imponible de las contribuciones especiales será aquella que resulte después de establecer el costo total de la obra y la liquidación establecida en el artículo 7 del presente Reglamento, en todo caso, la base imponible estará constituida por el costo total y/o fracción de la obra en cuestión distribuida entre los sujetos pasivos.
