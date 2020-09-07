@@ -1,1 +1,0 @@
-Artículo 11.—Cuando se trate de materiales de construcción, deberá coordinarse con el Departamento de Ingeniería Municipal, a efecto de determinar las necesidades reales y fiscalizar la obra a ejecutar.

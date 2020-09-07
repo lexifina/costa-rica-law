@@ -1,1 +1,0 @@
-Artículo 24.—El monto de la subvención que la Municipalidad transferirá a cada uno de los centros educativos u organizaciones solicitantes, será sugerido aprobado por la Alcaldía Municipal, y aprobado posteriormente por el Consejo Municipal, mediante el trámite presupuestario que corresponda.

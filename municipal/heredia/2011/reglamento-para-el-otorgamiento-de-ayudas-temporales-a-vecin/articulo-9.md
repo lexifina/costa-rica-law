@@ -1,1 +1,0 @@
-Artículo 9º—En caso de pérdida de vivienda por causa de incendio, huracán, terremoto o cualesquier otra situación derivada de fuerza mayor o caso fortuito, el damnificado deberá probar ante la Municipalidad, en forma idónea, la veracidad del acontecimiento, la titularidad del bien destruido, la situación económica desfavorable que le impide hacerle frente a la eventualidad.

@@ -1,1 +1,0 @@
-Artículo 22.—Una vez conocida la solicitud por parte del Alcalde Municipal éste lo trasladará para su estudio y dictámenes a la Oficina de la Mujer y a la Dirección Financiera, los cuales tendrán 8 días hábiles para la confección del expediente respectivo, quienes harán los estudios necesarios para determinar fehacientemente el objeto y fin que conlleva la subvención solicitada.
