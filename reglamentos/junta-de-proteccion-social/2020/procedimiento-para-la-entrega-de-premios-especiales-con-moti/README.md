@@ -15,3 +15,4 @@ Procedimiento para la entrega de premios especiales con motivo del 175 aniversar
 | --- | --- | --- |
 | 1 | 2020-06-07 | la propia norma |
 | 2 | 2020-07-17 | Reglamento 0 (2020-07-17) |
+| 3 | 2020-09-07 | Reglamento 54 (2020-09-07) |
