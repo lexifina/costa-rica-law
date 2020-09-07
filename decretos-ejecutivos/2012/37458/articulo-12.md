@@ -1,6 +1,7 @@
 Artículo 12.- FUNCIONES SECRETARÍA ESTUDIANTIL.- La Secretaria Estudiantil tendrá las siguientes funciones:
-1. Actuar como enlace y órgano de apoyo de la Dirección de la Academia Nacional de Policía (*) y el Departamento Académico.
+1. Actuar como enlace y órgano de apoyo de la Dirección de la Academia Nacional de Policía (*) y el Dirección Académica(**).
 (*)(Así modificada su denominación por el artículo 30 de la ley N° 9552 del 24 de mayo del 2018 “Creación de la Academia Nacional de Policía”. Anteriormente indicaba “Escuela Nacional de Policía”)
+(**) (Así modificada su denominación por el artículo 3° del decreto ejecutivo N° 42542 del 7 de setiembre del 2020)
 2. Recibir la documentación (denuncias, informes, entre otros) de estudiantes e instructores, con el fin de encausarlos a la instancia correspondiente en la Academia Nacional de Policía (*).
 (*)(Así modificada su denominación por el artículo 30 de la ley N° 9552 del 24 de mayo del 2018 “Creación de la Academia Nacional de Policía”. Anteriormente indicaba “Escuela Nacional de Policía”)
 3. Tramitar las licencias de los estudiantes y llevar el debido seguimiento para la aplicación del control administrativo y disciplinario estudiantil, basado en la normativa vigente.

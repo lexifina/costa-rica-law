@@ -1,2 +1,2 @@
-Artículo 9.- INTEGRACIÓN DE LA COMISIÓN DE ESTUDIOS TÉCNICOS.- La Comisión de Estudios Técnicos estará integrada por el encargado del Departamento Académico quien en este caso fungirá como Secretaría Técnica, el encargado del Departamento de Investigación y Evaluación y el Asesor Legal de la Academia Nacional de Policía (*).
-(*)(Así modificada su denominación por el artículo 30 de la ley N° 9552 del 24 de mayo del 2018 “Creación de la Academia Nacional de Policía”. Anteriormente indicaba “Escuela Nacional de Policía”)
+Artículo 9.- INTEGRACIÓN DE LA COMISIÓN DE ESTUDIOS TÉCNICOS. – La Comisión de Estudios Técnicos estará integrada por el encargado de la Dirección Académica quien en este caso fungirá como Secretaría Técnica, el encargado de la Unidad de Investigación, Evaluación y Desarrollo Curricular y el Asesor Legal de la Academia Nacional de Policía.
+(Así reformado por el artículo 3° del decreto ejecutivo N° 42542 del 7 de setiembre del 2020)

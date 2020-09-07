@@ -15,3 +15,4 @@ Reglamento interno y de servicio de la Academia Nacional de Policía
 | --- | --- | --- |
 | 1 | 2013-01-16 | la propia norma |
 | 2 | 2018-05-24 | Ley 9552 |
+| 3 | 2020-09-07 | Decreto Ejecutivo 42542 (2020-09-07) |
