@@ -1,1 +1,0 @@
-Artículo 20-Derogatoria. Se deroga el Reglamento para la Selección del Miembro Representante de la Comunidad del Consejo Nacional de Investigación en Salud por parte de la Defensoría de los Habitantes, publicado en La Gaceta N° 158 del martes 22 de agosto de 2017.

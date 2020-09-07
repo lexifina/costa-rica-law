@@ -1,2 +1,0 @@
-Artículo 16-Informe de Gestión. Dentro del mes siguiente a la terminación del nombramiento, el miembro representante de la comunidad seleccionado por la Defensoría de los Habitantes rendirá un informe de la gestión realizada durante el ejercicio de su función.
-Dicho informe será debidamente difundido por la Defensoría de los Habitantes a través de los medios físicos o electrónicos de los cuales pueda servirse.

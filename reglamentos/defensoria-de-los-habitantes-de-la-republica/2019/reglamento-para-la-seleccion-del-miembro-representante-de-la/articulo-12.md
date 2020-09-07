@@ -1,3 +1,0 @@
-Artículo 12-Nombramiento del Representante de la Comunidad. Una vez recibida la recomendación de terna por parte de la comisión, la o el Defensor de los Habitantes podrá elegir al propietario y suplente entre cualquier persona que la integra dentro de un plazo no mayor a los 10 días naturales.
-La selección se comunicará a través de formal acuerdo emitido por la o el Defensor de los Habitantes, en el que se efectuará un recuento sobre todo lo actuado por la institución durante el procedimiento de selección del miembro representante de la comunidad.
-Hecha la selección en los términos del párrafo anterior y estando firme la designación, la Defensoría lo comunicará al interesado y al CONIS para su pronta integración a ese órgano administrativo.

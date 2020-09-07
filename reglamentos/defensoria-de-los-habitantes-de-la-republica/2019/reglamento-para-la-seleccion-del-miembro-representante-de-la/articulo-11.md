@@ -1,2 +1,0 @@
-Artículo 11-Plazo para rendir informe. La comisión contará con un plazo máximo de dos semanas para rendir su recomendación ante la o el Defensor de los Habitantes, mismo que se contará a partir del día hábil siguiente a la fecha límite para recepción de postulaciones.
-En caso de incumplimiento del plazo señalado en el párrafo anterior, los miembros de la comisión se sujetarán a las responsabilidades que pudieran corresponder de conformidad con el artículo 263 de la Ley General de la Administración Pública.
