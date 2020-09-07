@@ -12,3 +12,4 @@ Establece Zona Protectora colindante Parque Internacional La Amistad
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1982-02-04 | la propia norma |
+| 2 | 2020-09-07 | Decreto Ejecutivo 42615 (2020-09-07) |
