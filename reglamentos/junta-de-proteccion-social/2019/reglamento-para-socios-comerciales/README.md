@@ -14,3 +14,4 @@ Reglamento para socios comerciales
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-12-04 | la propia norma |
+| 2 | 2020-09-07 | Reglamento 54 (2020-09-07) |
