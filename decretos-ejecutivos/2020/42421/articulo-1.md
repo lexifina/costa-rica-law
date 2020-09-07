@@ -23,7 +23,7 @@ XVI. Que en el contexto epidemiológico actual, con un aumento pronunciado de lo
 XVII. Que en consonancia con el considerando anterior, respecto del hecho notorio en el incremento epidemiológico acelerado de los casos por el COVID-19 en el país, se torna inexorable que las personas acaten las medidas especiales emitidas por las autoridades públicas sobre la protección individual frente al COVID-19, para evitar la exposición y la transmisión de dicha enfermedad. Ante el acceso de las personas a los establecimientos con permiso sanitario de funcionamiento que brindan atención al público y al servicio de transporte público remunerado de personas, esa obligación del Poder Ejecutivo adoptar las medidas correspondientes para disminuir el riesgo de propagación del COVID-19. Por ende, a efectos de que no se genere un incremento mayor descontrolado de los casos por dicha enfermedad, resulta urgente y necesario adoptar la presente medida y así, disminuir la exposición de las personas a la transmisión de dicha enfermedad.
 Por tanto,
 DECRETAN
-MEDIDA ESPECIAL SOBRE EL USO OBLIGATORIO DE MASCARILLA O CARETA COMO
-EQUIPO DE PROTECCIÓN PERSONAL DEBIDO AL ESTADO DE EMERGENCIA NACIONAL
-POR EL COVID-19
+Medida especial sobre el uso obligatorio de mascarilla como equipo de protección personal
+para todas las personas debido al estado de emergencia nacional por el COVID-19
+(Así modificada la denominación del título anterior por el artículo 2° del decreto ejecutivo N° 42603 del 7 de setiembre del 2020)
 ARTÍCULO 1°.- Objetivo. La presente medida especial se emite con el objetivo de mitigar la exposición de las personas al riesgo de contagio del SARS-Cov2 que ocasiona el COVID-19, en determinados espacios de contacto público y evitar un daño a la salud pública ante los efectos de dicha enfermedad debido a su estado epidemiológico en el territorio nacional. Asimismo, esta medida de restricción se deriva del estado de emergencia nacional dado mediante el Decreto Ejecutivo número 42227-MP-S del 16 de marzo de 2020 y en procura del bienestar de todas las personas que radican en el territorio costarricense.

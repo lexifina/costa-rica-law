@@ -14,3 +14,4 @@ Medida especial sobre el uso obligatorio de mascarilla como equipo de protecció
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-06-27 | la propia norma |
+| 2 | 2020-09-07 | Decreto Ejecutivo 42603 (2020-09-07) |
