@@ -1,0 +1,2 @@
+Artículo 57.-
+Cuando se trate de exhumaciones ordenadas por autoridades judiciales, el cadáver será trasladado y manipulado por el Organismo Médico Forense, acatando todas las normas que la autoridad citada sugiere para conseguir el propósito de sus investigaciones bajo estrictas medidas de bioseguridad.

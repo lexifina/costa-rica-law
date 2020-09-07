@@ -1,0 +1,2 @@
+Artículo 36.-
+La excavación de la fosa es responsabilidad del titular del derecho funerario, el cual se hará cargo de remover la tierra, y de dejar libre de suciedad los alrededores de la excavación, la administración del cementerio únicamente velará por la ubicación de los puntos que delimitarán el área de excavación y no incurrirá en ningún gasto.

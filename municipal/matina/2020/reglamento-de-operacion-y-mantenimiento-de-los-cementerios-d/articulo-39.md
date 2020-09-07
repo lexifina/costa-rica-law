@@ -1,0 +1,2 @@
+Artículo 39.-
+No se permiten las plantas en agua, ni la construcción de jardineras elevadas, adjuntas a las bóvedas, además para el cultivo de plantas ornamentales en los alrededores de la bóveda se necesitará autorización previa del administrador del cementerio, caso contrario la Junta Administrativa tendrá la facultad de remover éstas y en caso de que esto incurra en un gasto económico éste le será trasladado al titular del derecho.

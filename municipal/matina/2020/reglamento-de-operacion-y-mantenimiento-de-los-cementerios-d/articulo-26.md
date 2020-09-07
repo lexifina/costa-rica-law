@@ -1,0 +1,2 @@
+Artículo 26.-
+El concesionario, una vez iniciada la construcción, deberá terminarla en un plazo máximo de dos meses y deberá quedar pintada de color blanco en un 95% de su superficie, el otro 5 % puede pintarse de color gris de forma opcional para detalles de acabados; además todos los nichos desocupados deben quedar sellados provisionalmente con gypsum o material similar, para conservar el ornato del cementerio y prevenir la propagación y transmisión de enfermedades producidas por los mosquitos.

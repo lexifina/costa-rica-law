@@ -1,0 +1,2 @@
+Artículo 79.-
+En el libro de actas de registro diario de inhumaciones, deberá dejarse constancia diaria de la hora y fecha de las inhumaciones, nombre del difunto, lugar y nomenclatura de la sepultura o nicho, el orden de colocación de la sepultura si fuera el caso y demás datos que aseguren la identificación del difunto, nicho y la respectiva bóveda. Deberá constar en el acta que el cadáver fue embalsamado.

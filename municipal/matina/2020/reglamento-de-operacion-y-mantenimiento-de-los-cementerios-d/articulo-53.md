@@ -1,0 +1,2 @@
+Artículo 53.-
+Bajo ninguna circunstancia se practicará la exhumación o traslado de cadáveres de personas fallecidas a causa de enfermedades infectocontagiosas, salvo por orden del Ministerio de Salud o autorización previa de este Ministerio en caso de ser solicitada por el Poder Judicial bajo estrictas medidas de bioseguridad. A la hora de practicar la nueva inhumación del cadáver, se tomarán las consideraciones del caso, a efecto que la sepultura que se realice, tenga carácter definitivo.
