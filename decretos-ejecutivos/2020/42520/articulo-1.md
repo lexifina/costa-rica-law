@@ -1,0 +1,40 @@
+N° 42520-MGP
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE GOBERNACIÓN Y POLICÍA
+En ejercicio de las facultades que les confieren los artículos 140 incisos 3) y 146 de la Constitución Política; artículos 4, 11, 25 inciso 1), 27 inciso 1) y 28 inciso 2) aparte b) de la Ley General de la Administración Pública Nº 6227, del 2 de mayo de 1978; artículo 10, Ley sobre Desarrollo de la Comunidad Nº 3859, del 7 de abril de 1967 y artículos 75,76 y 97 del Reglamento a la Ley 3859 sobre Desarrollo de la Comunidad Decreto Ejecutivo 26935-G del 20 de abril de 1998 publicado en La Gaceta número 97 del 21 de mayo de 1998.
+Considerando:
+I.—Que la Ley N° 3859, sobre Desarrollo de la Comunidad, del 7 de abril de 1967, creó la Dirección Nacional de Desarrollo de la Comunidad como órgano del Poder Ejecutivo, adscrita al Ministerio de Gobernación y Policía, como instrumento básico de desarrollo; encargado de fomentar, orientar, coordinar y evaluar la organización de las comunidades del país, para lograr su participación activa y consciente en la realización de los objetivos del Plan Nacional de Desarrollo Económico y Social.
+II.—Que el artículo 10 de la Ley 3859 sobre Desarrollo de la Comunidad del 7 de abril de 1967, faculta al Consejo Nacional de Desarrollo de la Comunidad para determinar cuáles programas y servicios de los organismos públicos deben entenderse como parte específica del Plan Nacional de Desarrollo de la Comunidad.
+III.—Que el Reglamento a la Ley 3859 sobre Desarrollo de la Comunidad Decreto Ejecutivo 26935-G publicado en La Gaceta número 97 del 21 de mayo de 1998, en sus artículos 75 y 76, crea el Congreso Nacional de Asociaciones, cuya función, entre otras, será establecer los lineamientos generales para la formulación del Plan Nacional de Desarrollo de la Comunidad.
+IV.—Que el artículo 97 del Reglamento a la Ley 3859 sobre Desarrollo de la Comunidad Decreto Ejecutivo 26935-G publicado en La Gaceta número 97 del 21 de mayo de 1998 dispone que el Consejo Nacional de Desarrollo de la Comunidad deberá aprobar un Reglamento que fije las normas y los procedimientos para el funcionamiento y financiamiento del Congreso Nacional de Asociaciones de Desarrollo.
+V.— De conformidad con el artículo 75 del reglamento a la Ley Nº 3859 sobre Desarrollo de la Comunidad, se crea el Congreso Nacional de Asociaciones de Desarrollo de la Comunidad, el cual tendrá como objetivo principal procurar el eficaz funcionamiento del movimiento comunal, constituyéndose al efecto como un organismo integrador, encargado de fijar y señalar las pautas programáticas e ideológicas del movimiento comunal.
+VI.— Conforme a lo señalado en los artículos 75, 76, 77, 78 y 79 del Reglamento a la Ley 3859, a la Confederación Nacional de Asociaciones de Desarrollo le corresponde la convocatoria y organización del Congreso Nacional de Asociaciones de Desarrollo que se celebra cada cuatro años, para lo cual presentará el plan de trabajo con su cronograma de actividades y su respectivo presupuesto, para la realización del Congreso.
+VII.— El Congreso Nacional será convocado para los fines que le confiere el artículo 76 del Reglamento a la Ley 3859:
+a) Establecer los lineamientos generales para la formulación del Plan Nacional de Desarrollo de la Comunidad.
+b) Fijar la orientación ideológica y programática del movimiento de desarrollo comunal, mediante la preparación de los planes de trabajo de nivel nacional.
+c) Fomentar la participación activa y consciente de la dirigencia comunal, en el desarrollo de proyectos que busquen el beneficio social, económico y cultural de las comunidades del país.
+d) Promover la discusión de los problemas nacionales en la búsqueda de soluciones para los sectores populares.
+e) Integrar la acción de las asociaciones de desarrollo, uniones cantonales y/o zonales, federaciones regionales y/o provinciales, y de la Confederación Nacional de Asociaciones, dentro de una estrategia planificada para el desarrollo nacional.
+f) Establecer las bases metodológicas que vinculen al movimiento comunal en la ejecución de los programas que posibiliten un mejoramiento de las condiciones de vida de la comunidad costarricense, utilizando adecuadamente los recursos disponibles de los sectores públicos y privados.
+g) Promover la organización de los mecanismos necesarios para el fortalecimiento de las asociaciones, uniones, federaciones y la Confederación, para que se cumplan eficazmente las tareas de coordinación y ejecución de los programas de desarrollo comunal en todo el país.
+h) Establecer las bases para el fortalecimiento del movimiento comunal, mediante una acción conjunta y la alianza con otros movimientos afines en la búsqueda de la solución a los problemas nacionales.
+i) Planear y promover la participación activa, organizada y con decisión en los programas nacionales de desarrollo económico, social, cultural y ambiental del país.
+VIII.— De acuerdo con lo dispuesto en el artículo 77 del reglamento a la Ley 3859, el Congreso Nacional estará integrado por:
+a) Los delegados a la asamblea general de la Confederación.
+b) Los miembros de la junta directiva de la Confederación.
+c) Veinticinco delegados nombrados en cada foro regional.
+d) El máximo jerarca de la Dirección Nacional de Desarrollo de la Comunidad (DINADECO).
+e) Los miembros del Consejo Nacional de Desarrollo de la Comunidad, y
+f) El miembro de la junta directiva del Banco Popular y de Desarrollo Comunal que representa al movimiento comunal.
+IX.— Podrán participar, en calidad de invitados especiales, representantes de otros sectores o movimientos afines y de organismos nacionales e internacionales que colaboren con el movimiento de desarrollo comunal, entidades públicas y privadas y particulares, que tengan relación directa o indirecta y que, por recomendación del Consejo Nacional de Desarrollo de la Comunidad, la Dirección Nacional de Dinadeco y la Confederación Nacional de Asociaciones, participen en dicho congreso en todo el proceso de planificación y ejecución, incluidos los funcionarios de Dinadeco que designe el (la) máximo jerarca de la Dirección Nacional de Dinadeco, incluidas las personas que ostentan las jefaturas de las direcciones regionales de la Institución.
+X.— El Congreso Nacional de Asociaciones de Desarrollo será el órgano que establezca los lineamientos a partir de los cuales se promulgará el Plan Nacional de Desarrollo de la Comunidad, tal como lo señala el artículo 2 del reglamento a la Ley 3859.
+XI.— La Dirección Nacional de Desarrollo de la Comunidad, en la medida de sus posibilidades, brindará la colaboración técnica, operativa y de apoyo organizativo para la celebración del Congreso Nacional de Asociaciones.
+XII.—Que el Consejo Nacional de Desarrollo de la Comunidad, mediante acuerdos N° 03 de la sesión ordinaria No. 005-2020 del 10 de febrero de 2020 y N° 03 de la sesión ordinaria No. 010-2020 del 19 de marzo de 2020, resolvió aprobar el Reglamento de Funcionamiento y Financiamiento del Congreso Nacional de Asociaciones tal como se indica a continuación.
+XIII.— Que conforme a los artículos 12,13 y 14 de la Ley N°8220 “Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos, el presente Decreto Ejecutivo al no crear, modificar, ni establecer requisitos o procesos que debe cumplir el administrado, no requiere del trámite de verificación de que cumple con los principios de simplificación de trámite (formulario costo y beneficio) ante la Dirección de Mejora Regulatoria del Ministerio de Economía, Industria y Comercio.
+Por tanto;
+DECRETAN:
+Reglamento de Funcionamiento y Financiamiento del Congreso
+Nacional de Asociaciones de Desarrollo de la Comunidad
+CAPÍTULO I
+Del Funcionamiento
+Artículo 1°— El financiamiento del Congreso se canalizará por medio de la Confederación Nacional de Asociaciones de Desarrollo CONADECO, las federaciones o las uniones cantonales o zonales respectivas, utilizando los recursos disponibles del porcentaje que les corresponde a dichas organizaciones por concepto del Impuesto sobre la Renta, según artículo 19 de la Ley Nº 3859.
