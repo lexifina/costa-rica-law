@@ -14,3 +14,4 @@ Procedimiento para el refrendo de contrato de concesión, sus adendas y modifica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-01-10 | la propia norma |
+| 2 | 2020-09-08 | Resolución 211 (2020-09-08) |

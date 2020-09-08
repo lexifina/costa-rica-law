@@ -1,4 +1,5 @@
 AUTORIDAD REGULADORA DE LOS SERVICIOS PÚBLICOS
+(Nota de Sinalevi: De conformidad con el punto IV del por tanto de la resolución RE-0211-JD-2020 del 8 de setiembre del 2020, “Requisitos admisibilidad para el refrendo de contratos de renovación de concesión contratos de concesión derivados de procedimientos de licitación abreviados y adendas a contratos refrendados para servicio transporte remunerado personas modalidad autobús”, se acordó derogar parcial la presente norma en cuanto a su aplicación a las adendas de los contratos de refrendo, quedando únicamente vigente lo relativo al refrendo de los contratos derivados de procedimientos de licitación pública”)
 RRG-5266-2005.—San José, a las ocho horas del dos de enero de dos mil seis.
 Procedimiento para el refrendo de contratos de concesión, sus adendas y modificaciones, para el servicio público de transporte remunerado de personas en vehículos automotores.
 Resultando:
