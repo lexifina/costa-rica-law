@@ -14,3 +14,4 @@ Reglamento para el manejo, uso y mantenimiento de la flotilla de vehículos y de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-10-03 | la propia norma |
+| 2 | 2020-09-08 | Reglamento municipal 36 (2020-09-08) |
