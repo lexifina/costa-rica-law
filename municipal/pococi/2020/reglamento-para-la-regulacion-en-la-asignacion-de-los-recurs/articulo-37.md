@@ -1,0 +1,2 @@
+Artículo 37.—Rige a partir de su publicación definitiva en el Diario Oficial La Gaceta.
+Por unanimidad de 8 votos presentes, se acuerda: Aprobar el Reglamento para la Regulación en la Asignación de los Recursos Provenientes de las Partidas Específicas. Se autoriza a la Administración para su publicación definitiva en el Diario Oficial La Gaceta, Segunda publicación. Se dispensa del trámite de Comisión. Acuerdo definitivamente aprobado.

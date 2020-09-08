@@ -1,0 +1,1 @@
+Artículo 32.—La administración concedente utilizará la Guía para el control del cumplimiento de los requisitos mínimos establecidos por la Contraloría General de la República para que los sujetos privados puedan iniciar ante la administración concedente el trámite para la obtención de la “Calificación de sujeto privado idóneo para administrar fondos públicos”.

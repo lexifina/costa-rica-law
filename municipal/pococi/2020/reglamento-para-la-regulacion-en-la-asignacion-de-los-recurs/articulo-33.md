@@ -1,0 +1,1 @@
+Artículo 33.—La administración concedente remitirá a la Contraloría General de la República, un detalle del contenido del expediente del sujeto privado que solicita la calificación de idoneidad, referente al cumplimiento de los requisitos mínimos establecidos en el presente reglamento para iniciar el trámite tendiente a obtener esa calificación.

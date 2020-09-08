@@ -1,0 +1,1 @@
+Artículo 25.—De cada sesión se levantará un acta, en ella se harán constar los acuerdos tomados y sucintamente las deliberaciones habidas. Una vez que el Concejo Distrital Ampliado haya aprobado las actas, deberán ser firmadas por el Presidente y el Secretario de Concejo. Dichas actas deberán ser aprobadas en una sesión ordinaria posterior.
