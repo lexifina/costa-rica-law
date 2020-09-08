@@ -14,3 +14,4 @@ Reglamento para el reconocimiento de disponibilidad para los funcionarios de la 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-11-12 | la propia norma |
+| 2 | 2020-09-08 | Decreto Ejecutivo 42650 (2020-09-08) |
