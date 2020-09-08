@@ -15,3 +15,4 @@ Publica Resolución 169-2006(COMIECO-XLIX): Aprueba Reglamentos Técnicos Centro
 | --- | --- | --- |
 | 1 | 2007-01-28 | la propia norma |
 | 2 | 2007-10-02 | Decreto Ejecutivo 34123 (2007-10-02) |
+| 3 | 2020-09-08 | Decreto Ejecutivo 42646 (2020-09-08) |
