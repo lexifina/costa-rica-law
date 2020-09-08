@@ -1,0 +1,1 @@
+Artículo 2°—Ámbito de aplicación. Las disposiciones contenidas en el presente reglamento son de cumplimiento obligatorio para el personal que se desempeñe en las instalaciones del Complejo de Piscinas Silvia y Claudia Poll Ahrens, así como para los usuarios y arrendatarios.

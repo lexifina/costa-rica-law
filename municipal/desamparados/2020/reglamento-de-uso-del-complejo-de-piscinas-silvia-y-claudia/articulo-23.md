@@ -1,0 +1,3 @@
+CAPÍTULO VII
+De las solicitudes para el permiso de uso de las instalaciones
+Artículo 23.—Plazos. La Administración de la Villa Olímpica recibirá solicitudes para permiso de uso de las instalaciones por parte de asociaciones de natación, Comité Cantonal de Deportes o subcomités u otras organizaciones del cantón, para lo cual deberán aportar los calendarios respectivos. Dichas solicitudes serán trasladadas a la Administración Municipal, quien con previo visto bueno de la Oficina de Gestión Tributaria, recomendará al Concejo Municipal la aprobación de las mismas, con al menos 02 meses de antelación.
