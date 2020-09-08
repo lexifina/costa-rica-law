@@ -1,1 +1,5 @@
-Artículo 6º—Renuncia a la colegiatura. Puede renunciarse al Colegio en cualquier momento, cuando no haya morosidad en el pago de las cuotas. A partir de la aceptación de la renuncia, no se podrá ejercer la profesión ni participar en las actividades del Colegio. La persona puede reincorporarse en cualquier momento, siempre que se paguen las cuotas del tiempo que se dejó de cotizar. Están exentos de esta reincorporación, las personas mayores de sesenta y cinco años que se acojan al artículo 7 de este reglamento.
+Artículo 6º—Separación temporal de la colegiatura
+Una persona activa podrá solicitar la separación temporal de la colegiatura presentando una justificación ante la Junta Directiva, de acuerdo con la normativa establecida, y evidenciando que está al día en el pago de cuotas.
+Durante el periodo de separación, el colegiado quedará eximido del pago de las cuotas de colegiatura. A partir del momento en que entre en vigencia esa separación, se abstendrá de ejercer la profesión y de participar en las actividades promovidas por el Colegio.
+Cuando se reincorpore al Colegio continuará pagando normalmente las cuotas de afiliación.
+(Así reformado pro el artículo 1° del decreto ejecutivo N° 42647 del 8 de setiembre del 2020)
