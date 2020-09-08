@@ -18,3 +18,4 @@ Uso obligatorio de la mascarilla o la careta para todas las personas cuando requ
 | 3 | 2020-07-17 | Resolución 6195 (2020-07-17) |
 | 4 | 2020-07-20 | Resolución 6228 (2020-07-20) |
 | 5 | 2020-07-22 | Resolución 6268 (2020-07-22) |
+| 6 | 2020-09-08 | Resolución 6796 (2020-09-08) |
