@@ -1,0 +1,26 @@
+MUNICIPALIDAD DE POCOCÍ
+SMP - 2552-19.—Acuerdo tomado por el Concejo Municipal de Pococí en Sesión N° 92 ordinaria del 10-122019, artículo 1, acuerdo N° 2799, dice:
+REGLAMENTO DE RENDICIÓN DE GARANTÍAS DE LA
+MUNICIPALIDAD DE POCOCÍ
+(Póliza de Fidelidad o Cauciones)
+Considerando:
+I.—Que el artículo 13 de la Ley de la Administración Financiera de la República y Presupuestos Públicos, Ley N° 8131 de 18 de setiembre de 2001, publicada en La Gaceta N° 198 de 16 de octubre de 2001, dispone que: “Sin perjuicio de las previsiones que deba tomar la Administración, todo encargado de recaudar, custodiar o administrar fondos y valores públicos deberá rendir garantía con cargo a su propio peculio, en favor de la Hacienda Pública o la entidad respectiva, para asegurar el correcto cumplimiento de los deberes y obligaciones de los funcionarios. Las leyes y los reglamentos determinarán las clases y los montos de las garantías, así como los procedimientos aplicables a este particular, tomando en consideración los niveles de responsabilidad, el monto administrado y el salario del funcionario. “.
+II.—Que el artículo 10 de la Ley General de Control Interno N° 8292, Indica que será responsabilidad del Jerarca y de los titulares subordinados establecer, mantener, perfeccionar y evaluar el sistema de control interno institucional y el artículo 15 inciso b) numeral ii, estipula como parte de los deberes de tales funcionarios el de documentar, mantener actualizados y divulgar internamente tanto las políticas como los procedimientos que definan claramente, entre otros asuntos “la protección y conservación de todos los activos institucionales. “.
+III.—Que la norma 4.6.1 de Normas de Control Interno para el Sector Público establece que: “El jerarca y los titulares subordinados, según sus competencias, deben establecer, actualizar y divulgar las regulaciones y demás actividades de control pertinentes para promover y e vigilar el cumplimiento, en todos sus extremos, de las obligaciones relacionadas con la rendición de garantías a favor de la Hacienda Pública o de la institución por los funcionarios encargados de recaudar, custodiar o administrar fondos y valores institucionales. “
+IV.—Que la Contraloría General de la República emitió la Directriz N° D-1-2007-CO, reformada por el artículo 3 de la Resolución N° R-CO-9-2009 del 26 de enero de 2009, publicada en La Gaceta 26 del 06 de febrero de 2009, la cual pretende facilitar a todas las diferentes entidades estatales, el modo de elaboración y los parámetros que deben seguir para la implementación de las cauciones requeridas por cada entidad, ya que estos lineamientos deben ajustarse a las diferentes necesidades y niveles de riegos de cada administración.
+V.—Que en atención a las directrices emitidas por la Contraloría General de la República en resolución R-CO-10-2007 de las 13:00 horas del 19 de marzo de 2007, publicada en La Gaceta número 64 del 30 de marzo de 2007, el Registro Nacional, como integrante de la Hacienda Pública, debe proceder a dictar un reglamento interno en materia de cauciones.
+VI.—Que mediante Acuerdo Municipal 2799, de la Sesión Ordinaria N° 92, celebrada el 10 de diciembre de 2019, artículo I. Las personas miembros del Concejo Municipal de Pococí, según con lo establecido en los artículos 140, incisos 3) y 18) y 146 de la Constitución Política, artículo 28, inciso b) de la Ley General de la Administración Pública, la Ley General de Control Interno, NO 8292, la Ley de la Administración Financiera de la República y Presupuestos Públicos, aprueba el presente:
+REGLAMENTO PARA LA RENDICIÓN DE CAUCIONES
+POR PARTE DE LAS PERSONAS QUE PRESTAN SERVICIOS
+A FAVOR DE LA MUNICIPALIDAD
+DE POCOCÍ
+CAPÍTULO 1
+Disposiciones generales
+Artículo 1. Definiciones: Con el fin de unificar conceptos, para los efectos de la presente normativa se establecen las siguientes definiciones:
+a) Caución: la caución es una garantía para la Municipalidad de Pococí, que deberá ser suscrita a través de una póliza de fidelidad, ante las entidades o empresas aseguradoras autorizadas para tal fin.
+b) Caucionante: colaborador municipal obligado a rendir garantía o prestar caución, por la naturaleza de su puesto.
+c) Administrar fondos públicos: corresponde a la persona que presta servicio en la Municipalidad de Pococí, que por sus atribuciones puede determinar los objetivos y políticas de la Municipalidad que incidan en la Hacienda Pública.
+d) Fondos o valores públicos: Son recursos, valores, bienes y derechos de naturaleza pública, de conformidad con el artículo 9 de la Ley Orgánica de la Contraloría General de la República.
+e) Custodio de fondos o valores públicos: Corresponde a la persona que presta servicio en la Municipalidad de Pococí que, por la índole de sus responsabilidades, guarda o tiene a su cargo recursos, bienes o derechos públicos.
+f) Recaudador de fondos o valores públicos: corresponde a la persona que presta servicio en la Municipalidad de Pococí que por sus responsabilidades cobra o percibe rentas públicas (fondos o valores públicos).
+g) Salario base: De conformidad con la ley que Crea Concepto Salario Base (Ley N O 7337 de 1993), Salario Base, corresponde al monto equivalente al salario base mensual del “Oficinista 1 “ que aparece en la relación de puestos de la Ley de Presupuesto Ordinario de la República.

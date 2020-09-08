@@ -1,0 +1,2 @@
+Artículo 2º—Objeto y ámbito de aplicación del Reglamento.
+El presente Reglamento tiene por objeto regular lo atinente a las garantías que deben rendir las personas colaboradoras que prestan servicios en la Municipalidad de Pococí que administren, recauden y custodien fondos o valores públicos o que por la naturaleza de sus funciones y responsabilidades deban caucionar. En tal sentido, corresponderá al Departamento de Recursos Humanos informar al funcionario el tipo de caución a rendir conforme los artículos 10 y 11 de este Reglamento.

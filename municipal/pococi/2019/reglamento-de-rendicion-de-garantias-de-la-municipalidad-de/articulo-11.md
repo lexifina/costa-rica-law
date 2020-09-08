@@ -1,0 +1,1 @@
+Artículo 11. Monto mínimo de la caución. El monto mínimo de la caución a favor de la Municipalidad de Pococí, será de un salario base (Oficinista 1), según lo establecido en el artículo 2 de la ley N O 7337, del 5 de mayo de 1993.
