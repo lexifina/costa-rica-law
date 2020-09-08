@@ -1,1 +1,0 @@
-Artículo 43.—Señalización. El contribuyente será responsable de colocar banderas y letreros durante el día y señales reflectantes durante la noche, a una distancia no menor a quince metros de los obstáculos, de forma que prevengan anticipadamente al que transite por la vía.

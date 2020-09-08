@@ -1,1 +1,0 @@
-Artículo 10.—Efectos del incumplimiento. Hecha la notificación correspondiente y transcurrido el plazo otorgado al munícipe sin que éste hubiese realizado las obras prevenidas; quedará facultada la Municipalidad para proceder a la imposición de multas y facultativamente, para realizar por su cuenta dichas labores debiendo el munícipe cancelar la tarifa correspondiente.

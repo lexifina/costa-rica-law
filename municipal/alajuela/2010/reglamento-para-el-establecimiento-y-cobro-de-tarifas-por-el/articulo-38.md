@@ -1,1 +1,0 @@
-Artículo 38.—Accesibilidad. En las esquinas de cuadra, el contribuyente deberá construir rampas para discapacitados, adaptándose a los niveles entre acera-calle, de tal forma que permita la continuidad y fluidez de los recorridos urbanos, exigida por la Ley Nº 7600.

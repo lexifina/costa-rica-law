@@ -1,2 +1,0 @@
-Artículo 16.—Notificación vía fax. La notificación vía fax se comprobará por medio del registro de transmisión que provee el fax, cuya impresión se adjuntará al expediente respectivo. Las resoluciones se tendrán por notificadas el día hábil siguiente a aquél en que se hizo la transmisión.
-Cuando el envío resulte infructuoso, se hará un mínimo de cinco intentos, con intervalos de al menos 30 minutos cada uno, de los cuales se dejará constancia en el expediente, por medio del registro de transmisión que provee el aparato.

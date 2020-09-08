@@ -1,1 +1,0 @@
-Artículo 23.—Notificación relativamente nula. La notificación defectuosa por cualquier otra omisión será relativamente nula y se tendrá por válida y bien hecha si el contribuyente no gestiona su anulación dentro de los diez días posteriores a su realización.

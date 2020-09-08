@@ -1,1 +1,0 @@
-Artículo 3º—Alcance. Este Reglamento rige en todo el cantón de Alajuela, afectando a cualquier persona física, jurídica, propietaria o poseedora por cualquier título, de bienes inmuebles ubicados en el cantón.

@@ -1,1 +1,0 @@
-Artículo 17.—Notificación por correo postal certificado. Las notificaciones podrán efectuarse por correo postal certificado con acuse de recibo, mediante el correo oficial de la República creado por la Ley de correos, Nº 7768, y sus reformas.

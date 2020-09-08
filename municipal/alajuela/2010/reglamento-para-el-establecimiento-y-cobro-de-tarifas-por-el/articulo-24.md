@@ -1,1 +1,0 @@
-Artículo 24.—Respuesta del contribuyente. La gestión del contribuyente deberá contener indicación de la oficina a que se dirige; nombre y apellidos, lugar o medio para notificaciones, fecha y firma. La falta de firma producirá necesariamente el rechazo y archivo de la gestión.
