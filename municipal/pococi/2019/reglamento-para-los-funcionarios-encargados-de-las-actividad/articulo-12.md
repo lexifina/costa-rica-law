@@ -1,0 +1,1 @@
+Artículo 12.—Sobre elaboración del depósito. Corresponde al funcionario encargado de las actividades de recaudación, elaborar los documentos de depósito del dinero recaudado diariamente, los cuales entregará junto con la liquidación y demás documentos, a la Tesorería Municipal para su verificación y control.

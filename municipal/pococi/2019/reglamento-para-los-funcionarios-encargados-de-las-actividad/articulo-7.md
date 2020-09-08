@@ -1,0 +1,1 @@
+Artículo 7°—Sobre comprobantes de ingreso. Todo ingreso que se recaude en las cajas de la Municipalidad, deberá efectuarse mediante el respectivo comprobante de ingreso, cuya emisión corresponde a la persona encargada de la recaudación, bajo ninguna circunstancia podrán dejarse montos pendientes de facturación del día.

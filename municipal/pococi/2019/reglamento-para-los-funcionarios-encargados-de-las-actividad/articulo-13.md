@@ -1,0 +1,1 @@
+Artículo 13.—Sobre Arqueos. La persona encargada de la Administración Financiera o funcionarios asignados por ésta, realizará arqueos periódicos y de manera sorpresiva a las cajas recaudadoras que operen en la institución. Lo anterior sin perjuicio de los que realice la Auditoría Interna u otras autoridades con potestad fiscalizadora, en el cumplimiento de sus funciones.

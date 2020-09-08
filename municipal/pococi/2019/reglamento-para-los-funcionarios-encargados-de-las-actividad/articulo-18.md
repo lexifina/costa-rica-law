@@ -1,0 +1,1 @@
+Artículo 18.—Subordinación. Los funcionarios encargados de las actividades de recaudación son subordinados de la persona encargada de la Plataforma de Servicios, deberán observar en cumplimiento de sus funciones, las indicaciones que en materia laboral y de control de operaciones y de actividades propias de la caja dicte la Municipalidad a través de su jefatura.

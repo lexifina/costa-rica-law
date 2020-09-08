@@ -1,0 +1,6 @@
+Artículo 19.—Tiempo extraordinario en las actividades de recaudación. Entiéndase como tiempo extraordinario aquellas labores que se realizan fuera de los límites de la jornada normal, únicamente cuando se trata de satisfacer necesidades extraordinarias, imperiosas e impostergables; urgentes y temporales que surgen en un momento determinado.
+Los cierres de caja constituyen parte de las tareas ordinarias de los funcionarios con actividades de recaudación, se deben realizar en un tiempo mínimo de ejecución.
+El cierre de caja no se considerará tiempo extraordinario, de la misma forma, los errores cometidos a la hora de realizar dicha función tampoco serán considerado para pago extraordinario.
+Se utilizará tiempo extraordinario en los siguientes casos:
+• Cuando al cierre del horario de atención al público, existan usuarios a la espera de ser atendidos, para esto la persona responsable de la plataforma de servicios coordinará la distribución correspondiente entre los funcionarios de la plataforma y controlará el tiempo utilizado para estos efectos.
+• Cuando se solicite una labor fuera de lo habitual, para lo cual la persona encargada de la Plataforma de Servicios u otro superior jerárquico deberá llevar los registros en una bitácora con el control de tiempo utilizado por cada colaborador.

@@ -1,0 +1,1 @@
+Artículo 20.—Sobre Póliza. Los funcionarios encargados de actividades de recaudación tienen la obligación de contar con una póliza de fidelidad, dicha póliza deber ser otorgada por el Instituto Nacional de Seguros, cuyo monto se fijará de acuerdo con sus disposiciones internas mediante el Reglamento creado para estos efectos.
