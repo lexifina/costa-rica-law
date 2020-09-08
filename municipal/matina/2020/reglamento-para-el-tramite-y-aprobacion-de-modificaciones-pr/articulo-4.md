@@ -1,0 +1,6 @@
+Artículo 4º—Límite máximo del monto de recursos a modificar. El monto máximo de recursos que se redistribuya sumando todas las modificaciones presupuestarias, no podrá exceder el 25% del monto total del presupuesto inicial más los presupuestos extraordinarios aprobados.
+El límite establecido, no será aplicable en aquellas circunstancias excepcionales en las que la variación presupuestaria deba realizarse:
+a) Cuando, una vez agotados los límites establecidos, se perciban ingresos que no fueron posibles de prever y por tanto no pudieron incluirse en los tres presupuestos extraordinarios permitidos.
+b) Para atender una obligación imprevista que deba cumplir la Administración en acatamiento de una orden judicial o de una disposición contenida en una ley.
+c) Por requerimiento expreso de la Contraloría General de la República como consecuencia del ejercicio de sus competencias de fiscalización superior de la Hacienda Pública.
+Si una vez alcanzados los límites fijados, se presentaran casos extraordinarios que pongan en riesgo la eficiente gestión institucional o el logro de las metas y objetivos previstos por la institución, se podrán realizar variaciones presupuestarias, siempre y cuando el jerarca institucional demuestre la imperiosa necesidad.

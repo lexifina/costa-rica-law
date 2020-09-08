@@ -1,0 +1,1 @@
+Artículo 10.—Expediente administrativo. Para cada modificación presupuestaria se abrirá un expediente debidamente foliado y numerado, según su orden de tramitación y se custodiará en el Departamento de Presupuesto Municipal.
