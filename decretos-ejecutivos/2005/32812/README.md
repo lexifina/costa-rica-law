@@ -15,3 +15,4 @@ Reglamentos Técnicos Centroamericanos (Resolución No. 142.2005 (COMIECO XXXII)
 | --- | --- | --- |
 | 1 | 2006-03-26 | la propia norma |
 | 2 | 2006-08-10 | Decreto Ejecutivo 33427 (2006-08-10) |
+| 3 | 2020-09-08 | Decreto Ejecutivo 42646 (2020-09-08) |

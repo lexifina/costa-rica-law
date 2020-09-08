@@ -179,125 +179,14 @@ ASTM D 6373-99: "Standard Specification for Performance Graded Asphalt Binder" (
 (Ver Anexo A (reglamentario) Métodos de ensayo ASSHTO equivalentes a Métodos de ensayo ASTM para asfaltos en la Gaceta N° 245 de 20 de diciembre de 2005, Pág. 11)
 (Ver Anexo B (Informativo) Cuadro de equivalencias entre diferentes grados de asfaltos para pavimento en la Gaceta N° 245 de 20 de diciembre de 2005, Pág. 11)
 Anexo de Resolución Nº 142-2005 (COMIECO-XXXII)
-REGLAMENTO RTCA 75.01.20:04
+(*)REGLAMENTO RTCA 75.01.20:04
 TÉCNICO
 CENTROAMERICANO
 _____________________________________________________________________________
 PRODUCTOS DE PETRÓLEO.
 GASOLINA SUPERIOR.
 ESPECIFICACIONES
-_________________________________________________________________________
-CORRESPONDENCIA: Este reglamento es una adaptación de las especificaciones que aparecen en la norma ASTM D 4814-00 (Clase B).
-ICS 75.160.20 RTCA 75.01.20:04
-_____________________________________________________________________________
-Reglamento Técnico Centroamericano editado por:
-Comisión Guatemalteca de Normas, COGUANOR
-Consejo Nacional de Ciencia y Tecnología, CONACYT
-Ministerio de Fomento, Industria y Comercio, MIFIC
-Secretaría de Industria y Comercio, SIC
-Ministerio de Economía, Industria y Comercio, MEIC
-_____________________________________________________________________________
-INFORME
-Los respectivos Comités Técnicos de Normalización a través de los Entes de Normalización de los Estados Miembros que integran la región centroamericana y sus sucesores, son los organismos encargados de realizar el estudio o la adopción de las Normas Técnicas o Reglamentos Técnicos. Esta conformado por representantes de los sectores Académico, Consumidor, Empresa Privada y Gobierno.
-Este documento fue aprobado como Reglamento Técnico Centroamericano, RTCA 75.01.20:04, PRODUCTOS DE PETRÓLEO. GASOLINA SUPERIOR. ESPECIFICACIONES, por el Subgrupo de Medidas de Normalización y el Subgrupo de Hidrocarburos de la región centroamericana. La oficialización de este reglamento técnico, conlleva la ratificación por una resolución del Consejo de Ministros de Integración Económica (COMIECO).
-MIEMBROS PARTICIPANTES DEL SUBGRUPO 01
-Por Guatemala
-COGUANOR
-Por El Salvador
-CONACYT
-Por Nicaragua
-MIFIC
-Por Honduras
-SIC
-Por Costa Rica
-MEIC
-1. OBJETO
-Especificar las características físico químicas que debe cumplir la gasolina superior para uso automotriz.
-2. CAMPO DE APLICACIÓN
-Se aplica al derivado del petróleo conocido como gasolina superior, formado por una mezcla compleja de distintos tipos de hidrocarburos (parafínicos, nafténicos, olefínicos y aromáticos), cuyo rango de destilación (ebullición) varía entre 30ºC y 225ºC.
-3. DEFINICIONES
-3.1 Gasolina Superior: Gasolina que entre otras características el Número de Octanos por el Método Pesquisa (RON) es 95 como mínimo y además no contiene plomo como aditivo para aumentar esta propiedad, pero contiene cantidades inherentes de Plomo en un máximo de 0,013 g Pb/l de combustible.
-3.2 Gravedad API: Es una función especial de la densidad relativa (gravedad específica) a 15,56ºC/15,56ºC (60ºF/60ºF), definida ésta como la relación de la masa de un volumen dado de un líquido a 15,56ºC (60ºF) con la masa de un volumen igual de agua pura a la misma temperatura. La gravedad API se calcula así:
-Gravedad API (ºAPI) = (141,5/d15,56ºC / 15,56ºC) - 131,5
-donde: d15,56 ºC/15,56 ºC: Densidad relativa a 15,56ºC/15,56ºC
-3.3 Densidad: Razón masa/volumen medida a 15°C y la unidad de medida es kg/m3.
-3.4 Hidrocarburos Parafínicos: Es la serie homóloga de los alcanos de fórmula general CnH2n+2 y sus isómeros, conocidos en la industria petrolera como Parafinas. Son los hidrocarburos saturados (presentan sólo enlaces sencillos entre dos átomos de carbono en la molécula: C-C) que tienen su configuración en cadenas normales o ramificadas (isómeros).
-3.5 Hidrocarburos Nafténicos: Conforman la serie homóloga de los cicloalcanos con fórmula general CnH2n, conocidos en la industria petrolera como Nafténicos. Son también hidrocarburos saturados, pero contienen uno o más anillos en su estructura molecular.
-3.6 Hidrocarburos Aromáticos: Son hidrocarburos insaturados que presentan uno o más anillos bencénicos en su molécula.
-3.7 Hidrocarburos Olefínicos: Son hidrocarburos insaturados (presentan uno o más enlaces dobles entre dos átomos de carbono en la molécula: C=C) que tienen configuración en
-cadenas normales o ramificadas.
-3.8 Número de Octanos Método Pesquisa (RON): Corresponde a sus iniciales en inglés "Research Octane Number", es el % volumétrico de iso octano (2,2,4-trimetilpentano) con base de 100 (cien) octanos en una mezcla de n-heptano con base 0 (cero) octanos, que detona con la misma intensidad que la muestra, cuando son comparadas utilizando un motor patrón.
-3.9 Número de Octanos Método Motor (MON): Corresponde a sus iniciales en inglés "Motor Octane Number", la definición de esta característica es la misma que para el RON, pero las condiciones de la prueba son más severas, utilizando mayores revoluciones del motor patrón.
-3.10 Índice de Octano o Índice antidetonante: Conocido en inglés como "Octane Index" o "Antiknock Index", se calcula así:
-(RON+MON)/2.
-3.11 Porcentaje (%) Evaporado, Punto Final de Ebullición, Residuo y Porcentaje (%) Recuperado: Para estas definiciones, referirse a la última edición vigente de la Norma ASTM D 86.
-3.12 Presión de Vapor Reid (RVP): Es la presión de vapor absoluta obtenida por medio de un ensayo que mide la presión de una muestra en el interior de un cilindro a una temperatura de 37,8ºC (100ºF) en una relación volumétrica de 4 (cuatro) partes de líquido por 1 (una) parte de vapor [relación (líquido/vapor) = 4], esta propiedad mide la tendencia a la vaporización de un líquido.
-4. SÍMBOLOS Y ABREVIATURAS
-4.1 API: "American Petroleum Institute" (Instituto Americano de Petróleo).
-4.2 ºAPI: Grados API (Gravedad API).
-4.3 ASTM: "American Society for Testing and Materials" (Sociedad Americana para Pruebas y Materiales).
-4.4 ºC / ºF: Grados Celsius / Grados Fahrenheit.
-4.5 g Pb / L: gramos de plomo por litro.
-4.6 g P / L: gramos de fósforo por litro.
-4.7 h: hora (s).
-4.8 kg/m3: kilogramo por metro cúbico.
-4.9 kPa: Kilopascal, equivalente a 1000 Pascales.
-4.10 máx.: máximo.
-4.11 mín.: mínimo.
-4.12 mg/100 mL: miligramos por 100 mililitros.
-5. ENTE NACIONAL COMPETENTE
-En Guatemala: Dirección General de Hidrocarburos del Ministerio de Energía y Minas; en El Salvador: Dirección de Hidrocarburos y Minas del Ministerio de Economía; en Honduras: Unidad Técnica del Petróleo de la Secretaría de Recursos Naturales y Ambiente; en Nicaragua: Dirección General de Hidrocarburos del Instituto Nicaragüense de Energía; en Costa Rica: Ministerio de Ambiente y Energía (MINAE); dichas funciones podrán ser ejercidas por sus sucesores o por las entidades a quienes en el futuro, según la legislación nacional se les asigne especí.camente estas funciones.
-6. REQUISITOS
-A continuación se presenta la tabla que especifica las características físico-químicas que establece este reglamento para la Gasolina Superior.
-NOTA: Los resultados se deben reportar con el número de cifras decimales que indica cada método y no necesariamente con el número de decimales que aparece en esta tabla de especificaciones.
-(Ver Tabla de especificaciones en la Gaceta N° 245 del 20 de diciembre de 2005, Pág. 12).
-(a) La información que se deberá presentar para cada aditivo que se agregó a este producto es la siguiente:
-Hoja de Datos de Seguridad del Material ("Material Safety Data Sheet").
-Proporción agregada del aditivo (mezcla).
-Propiedad del producto que el aditivo genera o mejora en el mismo, ejemplo: antiespumante, antioxidante, detergente, etc.
-Si se mantiene la fuente de suministro, la información se deberá proporcionar únicamente una vez, pero deberá informar al Ente Nacional Competente, cada vez que éste cambia de aditivo y también cuando se cambia de la fuente de suministro.
-(b) El valor máximo del fósforo es de 0,0013 g P/L (0,005 g P/gal) tal como lo establece el método ASTM D 4814 Numeral X 3.2.1 de los apéndices.
-(c) El análisis del Índice de Octano se realizará al menos una vez cada 3 (tres) meses.
-(d) Reportar indicando el resultado obtenido de acuerdo al método, por un período de un año y evaluar en los siguientes tres meses, con el propósito de definir si se mantiene reportar o se define un valor numérico.
-(e) Indicar el nombre común del oxigenante utilizado.
-Nota 1: Los métodos ASTM indicados son los aprobados como métodos árbitros. Otros métodos aceptables se indican en el numeral 8.
-Nota 2: Para los casos de Reportar deberá indicarse el resultado obtenido de acuerdo al método.
-7. MUESTREO
-Para la toma de muestras se deberá utilizar la última edición vigente de la norma ASTM siguiente:
-ASTM D-4057: "Standard Practice for Manual Sampling of Petroleum and Petroleum Products". Práctica Estándar para Muestreo Manual de Petróleo y Productos de Petróleo.
-8. MÉTODOS DE ENSAYO
-Para los ensayos se utilizará la última edición vigente de las siguientes Normas ASTM en idioma inglés, la traducción y el uso de éstas será responsabilidad del usuario.
-ASTM D-86: "Standard Test Method for Distillation of Petroleum Products". Método de Prueba Estándar para Destilación de Productos de Petróleo a Presión Atmosférica.
-ASTM D-130: "Standard Test Method for Detection of Copper Corrosion from Petroleum Products by the Copper Strip Tarnish Test". Método de Prueba Estándar para Detección de Corrosión en Cobre para Productos de Petróleo por la Prueba de Empañamiento de la Tira de Cobre.
-ASTM D-287: "Standard Test Method for API Gravity of Crude Petroleum and Petroleum Products (Hydrometer Method)". Método de Prueba Estándar para Gravedad API de Petróleo Crudo y Productos de Petróleo (Método del Hidrómetro).
-ASTM D-323: "Standard Test Method for Vapor Pressure of Petroleum Products (Reid Method)". Método de Prueba Estándar para Presión de Vapor de Productos de Petróleo (Método Reid). ASTM D-381: "Standard Test Method for Existent Gum in Fuels by Jet Evaporation". Método de Prueba Estándar para Contenido de Goma en Combustibles por Evaporación de Chorro.
-ASTM D-525: "Standard Test Method for Oxidation Stability of Gasoline (Induction Period Method)". Método de Prueba Estándar para Estabilidad de Oxidación de Gasolina (Método del Período de Inducción).
-ASTM D-1266: "Standard Test Method for Sulfur in Petroleum Products (Lamp Method)". Método de Prueba Estándar para Azufre en Productos de Petróleo (Método de la Lámpara).
-ASTM D-1298: "Standard Practice for Density, Relative Density (Specific Gravity), or API Gravity of Crude Petroleum and Liquid Petroleum Products by Hydrometer Method". Método de Prueba Estándar para Densidad, Densidad Relativa (Gravedad Específica), o Gravedad API de Petróleo Crudo y Productos Líquidos de Petróleo por el Método del Hidrómetro.
-ASTM D-1319: "Standard Test Method for Hydrocarbons Types in Liquid Petroleum Products by Fluorescent Indicator Adsorption". Método de Prueba Estándar para Tipos de Hidrocarburos en Productos Líquidos de Petróleo por Absorción de Indicador Fluorescente. ASTM D-2622: "Standard Test Method for Sulfur in Petroleum Products by X-Ray Spectrometry". Método de Prueba Estándar para Azufre en Productos de Petróleo por Espectroscopia de Fluorescencia con Energía Dispersiva de Rayos X.
-ASTM D-2699: "Standard Test Method for Research Octane Number of Spark-Ignition Engine Fuel". Método de Prueba Estándar para Número de Octano Pesquisa en Combustible para Máquina de Ignición por Chispa.
-ASTM D-2700: "Standard Test Method for Motor Octane Number of Spark-Ignition Engine Fuel". Método de Prueba Estándar para Número de Octano Motor en Combustible para Máquina de Ignición por Chispa.
-ASTM D-3120: "Standard Test Method for Trace Quantities of Sulfur in Light Liquid Petroleum Hydrocarbons by Oxidate Microcoulometry". Método de Prueba Estándar para Cantidades de Trazas de Azufre en Hidrocarburos Líquidos Ligeros por Microcoulometría Oxidativa.
-ASTM D-3227: "Standard Test Method for Mercaptan Sulfur in Gasoline, Kerosine, Aviation Turbine, and Distillate Fuels (Potentiometric Method)". Método de Prueba Estándar para Azufre (Mercaptano) en Gasolina, Querosina, Combustibles para Turbina de Avión, y Combustibles Destilados (Método Potenciométrico).
-ASTM D-3237: "Standard Test Method for Lead in Gasoline by Atomic Absorption Spectroscopy". Método de Prueba Estándar para Plomo en Gasolina por Espectroscopía de Absorción Atómica. ASTM D-3341: "Standard Test Method for Lead in Gasoline (Iodine Monochloride Method)". Método de Prueba Estándar para Plomo en Gasolina (Método Monocloruro de Yodo).
-ASTM D-3348: "Standard Test Method for Rapid Field Test for Trace Lead in Unlead Gasoline (Colorimetric Method)". Método de Prueba Estándar como Método Rápido de Campo para Determinar Trazas de Plomo en Gasolina Sin Plomo (Método Colorimétrico).
-ASTM D-3606: "Standard Test Method for Determination of Benzene and Toluene in Finished Motor and Aviation Gasoline by Gas Chromatography". Método de Prueba Estándar para Determinación de Benceno y Tolueno en Gasolina Final para Motor y en Gasolina de Aviación por Cromatogra.a de Gas.
-ASTM D 4052 "Standard Test Method for Density and Relative Density of Liquids by Digital Meter". Método de Prueba Estándar para la Densidad y Densidad Relativa de Líquidos mediante Medidor Digital.
-ASTM D 4294: "Standard Test Method for Sulfur in Petroleum Products by Energy-Dispersive X-Ray Fluorescence Spectroscopy". Método de Prueba Estándar para Azufre en Petróleo y Productos de Petróleo por Espectroscopia de Fluorescencia con Energía Dispersiva de Rayos X.
-ASTM D 4420: "Standard Test Method for Determination of Aromatics in Finish Gasoline by Gas Chromatography". Método de Prueba Estándar para Determinación de Aromáticos en Gasolina Terminada por Cromatografía de Gases.
-ASTM D 4815: "Standard Test Method for Determination of MTBE, ETBE, TAME, DIPE, Tertiary-Amyl Alcohol and C1 to C4 Alcohols in Gasoline by Gas Chromatography". Método de Prueba Estándar para la Determinación de MTBE, ETBE, TAME, DIPE, Terciario-Amil Alcohol y Alcoholes C1 a C4 en Gasolina Mediante Cromatografía de Gas.
-ASTM D-4952: "Standard Test Method for Qualitative Analysis for Active Sulfur Species in Fuels and Solvents (Doctor Test). Método de Prueba Estándar para Análisis Cualitativo de Especies Activas de Azufre en Combustibles y Solventes (Prueba Doctor).
-ASTM D-4953: "Standard Test Method for Vapor Pressure of Gasoline and Gasoline-Oxygenate Blends (Dry Method). Método de Prueba Estándar para Presión de Vapor en Gasolina y Mezclas de Gasolina Oxigenada (Método Seco).
-ASTM D-5059: "Standard Test Method for Lead in Gasoline by X-Ray Spectroscopy". Métodos de Prueba Estándar para Plomo en Gasolina por Espectroscopia de Rayos X.
-ASTM D-5453: "Standard Test Method for Determination of Total Sulfur in Light Hydrocarbons, Motor Fuels and Oils by Ultraviolet Fluorescence". Método de Prueba Estándar para Determinación de Azufre Total en Hidrocarburos Livianos, Combustibles de Motor y Aceites por Fluorescencia Ultravioleta.
-ASTM D 5580 "Standard Test Method for Determination of Benzene, Toluene, Ethylbenzene, p/m-Xylene, o-Xylene, C9 and Heavier Aromatics, and Total Aromatics in Finished Gasoline by Gas Chromatography". Método de Prueba Estándar para la Determinación de Benceno, Tolueno, Ethylbenceno, p/o-Xileno, o-Xileno, C9 y Aromáticos más Pesados, y Aromáticos Totales en Gasolina Terminada por Cromatografía de Gas.
-9. ACTUALIZACIÓN Y REVISIÓN DEL REGLAMENTO
-Este Reglamento Técnico será revisado y actualizado al año contado a partir de su entrada en vigencia y posteriormente cada dos (2) años salvo que, a solicitud debidamente justi.cada de un (1) país, se requiera la revisión y actualización antes del periodo señalado.
-10. VIGILANCIA Y VERIFICACIÓN
-Corresponde la vigilancia y verificación de la aplicación y cumplimiento del presente Reglamento Técnico Centroamericano a la Dirección General de Hidrocarburos del Ministerio de Energía y Minas de Guatemala; a la Dirección de Hidrocarburos y Minas del Ministerio de Economía de El Salvador; a la Unidad Técnica del Petróleo de la Secretaría de Recursos Naturales de Honduras; a la Dirección General de Hidrocarburos del Instituto Nicaragüense de Energía de Nicaragua y, a la Dirección General de Transporte y Comercialización de Combustibles del MINAE de Costa Rica, o sus sucesores o entidades que en el futuro se les asigne específicamente estas funciones.
-11. NORMAS QUE DEBEN CONSULTARSE
-Para la elaboración de este reglamento se consultó la siguiente norma ASTM:
-ASTM D 4814-00: "Standard Specification for Automotive Spark-Ignition Engine Fuel". (Especificación Estándar para Combustible de Automotores con Máquina de Ignición por Chispa).
+(*) (El reglamento RTCA 75.01.20: 04 Técnico centroamericano Productos de petróleo Gasolina superior anterior fue derogado por los numerales 1 y 5 inciso i) de la parte dispositiva de la Resolución N° 425-2020 (COMIECO-XCI)23/06/2020 Anexo I Regl Técnico RTCA 75.01.20:19 Productos Petróleo Gasolina Superior Anexo II Regl Técnico RTCA 75.01.19:19 Productos Petróleo Gasolina Regular Anexo III Regl Técnico RTCA 75.02.43:19 Biocombustibles, aprobado mediante decreto ejecutivo N° 42646 del 8 de setiembre del 2020)
 _____________________________________________________________________________
 Anexo Resolución Nº 142-2005 (COMIECOXXXII)
 REGLAMENTO RTCA 75.01.12:04
