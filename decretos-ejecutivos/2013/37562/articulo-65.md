@@ -42,6 +42,8 @@ Ginecología Urológica Artículo No. 137
 Subespecialidad de la Medicina de
 Emergencias Artículo No. 88
 Medicina de Emergencias Pediátricas. Artículo No. 89
+Urgencias Neurológicas Artículo N° 164
+(Así adicionado mediante sesión N° 2020-09-09 del 9° de setiembre del 2020)
 Subespecialidades de la Neurocirugía Artículo No. 90
 Neurocirugía Pediátrica Artículo No. 91
 Neuro-Oncología. Artículo No. 92
