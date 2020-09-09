@@ -70,3 +70,4 @@ Reglamento de Especialidades y Subespecialidades Médicas
 | 55 | 2019-08-28 | Acuerdo 0 (2019-08-28) |
 | 56 | 2019-09-11 | Reglamento 0 (2019-09-11) |
 | 57 | 2020-09-09 | Acuerdo 0 (2020-09-09) |
+| 58 | 2020-09-09 | Acuerdo 0 (2020-09-09) |
