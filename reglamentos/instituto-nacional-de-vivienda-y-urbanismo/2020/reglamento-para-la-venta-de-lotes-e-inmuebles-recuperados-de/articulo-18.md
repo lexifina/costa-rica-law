@@ -1,2 +1,1 @@
-Artículo 18.—La Junta Directiva analizará, valorará y aprobará o rechazará la lista de bienes a vender y el precio base para la venta y las condiciones de venta y adjudicación.
-De aprobar la venta de los lotes, cuya recomendación fue sometida a su conocimiento, la Junta Directiva ordenará a la Administración, para que se inicie con el proceso correspondiente.
+Artículo 18.—Para proceder con la venta directa de inmuebles, la Unidad Fondo de Inversión de Bienes Inmuebles y el Departamento de Programas Habitacionales, someterá a través de la Gerencia General a la Junta Directiva la lista de bienes a vender y el precio base y las condiciones de venta y adjudicación.

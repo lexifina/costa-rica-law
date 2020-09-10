@@ -14,3 +14,4 @@ Reglamento para la venta de lotes e inmuebles recuperados del Instituto Nacional
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-06-17 | la propia norma |
+| 2 | 2020-09-10 | Reglamento 6464 (2020-09-10) |
