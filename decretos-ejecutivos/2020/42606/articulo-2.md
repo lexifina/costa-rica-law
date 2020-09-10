@@ -1,0 +1,5 @@
+ARTÍCULO 2°.-Reforma al inciso b) del artículo 5° del Decreto Ejecutivo número 42295- MOPT-S del 11 de abril de 2020. Refórmese el inciso b) del artículo 5° del Decreto Ejecutivo número 42295-MOPT-S del 11 de abril de 2020, para que en adelante se lea de la siguiente manera:
+“ARTÍCULO 5°.- Excepciones a la medida de restricción vehicular diurna. Se exceptúa de la restricción vehicular establecida en los artículos 3° y 4° de este Decreto Ejecutivo, a los siguientes casos:
+(…)
+b) Los vehículos de transporte público destinados al transporte remunerado de personas en cualquiera de sus modalidades (autobús, buseta, microbús, taxi, servicio especial estable de taxi), el servicio especial de trabajadores, turismo y estudiantes, que cuenten con placa de servicio público, así como taxi de carga autorizado por el Consejo de Transporte Público que cuente con el respectivo permiso al día. Todos los anteriores estarán sujetos a las disposiciones especiales establecidas por el Consejo de Transporte Público para la atención de la situación sanitaria por COVID-19 con ocasión del presente Decreto Ejecutivo.
+(…)”

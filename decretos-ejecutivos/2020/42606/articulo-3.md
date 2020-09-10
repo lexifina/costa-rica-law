@@ -1,0 +1,5 @@
+ARTÍCULO 3°.-Reforma al inciso b) del artículo 6° del Decreto Ejecutivo número 42295- MOPT-S del 11 de abril de 2020. Refórmese el inciso b) del artículo 6° del Decreto Ejecutivo número 42295-MOPT-S del 11 de abril de 2020, para que en adelante se lea de la siguiente manera:
+“ARTÍCULO 6°.- Medidas especiales sobre el transporte público remunerado de personas, el transporte especial y transporte terrestre internacional. Para el cumplimiento del objetivo del presente Decreto Ejecutivo, se establecen las siguientes medidas especiales sobre el transporte público destinado al transporte remunerado de personas, el transporte especial y el transporte terrestre internacional:
+(…)
+b) No se permitirá la circulación de vehículos de transporte especial ocasionales, así como servicios especiales de autobús, microbuses y busetas, excepto lo dispuesto en el inciso b) del artículo 5° del presente Decreto Ejecutivo y aquellos casos debidamente justificados y aprobados por el Consejo de Transporte Público, requeridos para la continuidad de servicios públicos o atención del estado de emergencia nacional.
+(…)”
