@@ -1,0 +1,2 @@
+Artículo 12
+El nombramiento a plazo indefinido del auditor interno está sujeto al periodo de prueba que regule la normativa interna de la empresa, que en lo relativo a estos efectos debe ser congruente con lo aplicable a otros funcionarios dependientes directamente de la Junta Directiva de BCR Valores S.A., a su vez se debe cumplir con los Lineamientos sobre gestiones que involucran a la auditoría interna presentadas ante la ante la Contraloría General de la República.

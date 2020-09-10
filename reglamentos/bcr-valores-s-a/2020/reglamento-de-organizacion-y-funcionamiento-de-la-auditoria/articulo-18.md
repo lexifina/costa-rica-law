@@ -1,0 +1,2 @@
+Artículo 18
+Los requisitos para el nombramiento del auditor interno deben establecerse en los respectivos perfiles de puestos en concordancia con lo establecido en los Lineamientos sobre gestiones que involucran a la Auditoría Interna presentadas ante la Contraloría General de la República, emitidos por la Contraloría General de la República.
