@@ -13,10 +13,9 @@ CONSIDERANDO
 8.- Que de conformidad con lo establecido en el artículo 12 bis del Decreto Ejecutivo No. 37045 del 22 de febrero de 2012 y su reforma “Reglamento a la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos”, esta regulación no establece trámites, requisitos ni procedimientos por lo que cumple con los principios de mejora regulatoria.
 POR TANTO,
 DECRETAN:
-“REGLAMENTO PARA EL COBRO DE LOS TRÁMITES DE REGISTRO
-Y CONTROL DE PRODUCTOS DE INTERÉS SANITARIO
-PARA MICROPYMES Y EMPRENDIMIENTOS
-PRODUCTIVOS DE INTERÉS SOCIAL”
+Reglamento para el cobro de los trámites de registro y control de productos de interés sanitario para microempresas y personas emprendedoras en condición de pobreza y pobreza extrema que elaboran sus productos en el territorio nacional
+(Así modificada la denominación del título anterior por el artículo 1° del decreto ejecutivo N° 42587 del 10 de setiembre del 2020)
 CAPITULO I
 Disposiciones Generales
-Artículo 1.—Objeto y ámbito de aplicación. El presente reglamento tiene como objeto regular el cobro que realizará el Ministerio de Salud por los servicios que brinda relacionados con el registro y control de los productos de interés sanitario, a las MICROPYMES y emprendimientos productivos de interés social que fabrican este tipo de productos en el territorio nacional.
+Artículo 1º—Objeto y ámbito de aplicación. El presente reglamento tiene como objeto regular el cobro que realizará el Ministerio de Salud por los servicios que brinda relacionados con el registro y control de los productos de interés sanitario, a las microempresas y personas emprendedoras en condición de pobreza y pobreza extrema que elaboran sus productos en el territorio nacional.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 42587 del 10 de setiembre del 2020)

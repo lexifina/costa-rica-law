@@ -14,3 +14,4 @@ Reglamento para el cobro de los trámites de registro y control de productos de 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-09-26 | la propia norma |
+| 2 | 2020-09-10 | Decreto Ejecutivo 42587 (2020-09-10) |
