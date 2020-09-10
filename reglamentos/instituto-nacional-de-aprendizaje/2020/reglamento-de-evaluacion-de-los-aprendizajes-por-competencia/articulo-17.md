@@ -1,0 +1,5 @@
+Artículo 17. Del resultado final de la evaluación
+1. Durante el proceso de aprendizaje, la persona docente recopilará las evidencias de las actividades de aprendizaje y comprobación, según sea el resultado de las mismas y con base en el logro de las capacidades de la persona estudiante, la persona docente podrá emitir el juicio criterial siguiente:
+1. Logrado: cuando la persona estudiante logra las capacidades establecidas en la descripción curricular de un módulo o curso.
+2. No logrado: cuando la persona estudiante no logra alguna de las capacidades establecidas en la descripción curricular de un módulo o curso, la continuidad de la persona estudiante en el programa, se define de acuerdo con lo establecido en el diseño curricular y en el itinerario de formación.
+2. Para el caso de las pruebas de certificación la persona evaluadora deberá entregar la prueba con sus instrumentos de evaluación completados a la Unidad de Certificación para la liquidación del servicio y a través del mismo se indicará si la persona candidata es competente o pendiente de cumplimiento.

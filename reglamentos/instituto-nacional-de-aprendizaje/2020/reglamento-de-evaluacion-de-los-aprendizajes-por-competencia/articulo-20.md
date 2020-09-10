@@ -1,0 +1,2 @@
+Artículo 20. Sobre la evaluación en programas, módulos o cursos de organizaciones externas utilizados por el INA
+Cuando un programa, módulo o curso de organizaciones externas es impartido por el INA, se deberá respetar la metodología de evaluación con que ellas cuenten, sin embargo, cuando el resultado final del programa, módulo o curso se deba incorporar en los sistemas institucionales, el juicio criterial se emitirá según lo establecido en el artículo 17 de la presente reglamentación y conforme a los instrumentos establecidos para ello.

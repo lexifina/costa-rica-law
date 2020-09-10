@@ -1,0 +1,2 @@
+Artículo 22. Reconocimiento
+Es la acción mediante la cual con criterio técnico emitido por la unidad competente, el INA reconoce que la cualificación y el nivel otorgado por otra institución u organización educativa que ofertan la Educación y Formación Técnica Profesional en el país o en el extranjero, cumple con el Estándar de la Cualificación correspondiente y con la normativa establecidos por la institución.

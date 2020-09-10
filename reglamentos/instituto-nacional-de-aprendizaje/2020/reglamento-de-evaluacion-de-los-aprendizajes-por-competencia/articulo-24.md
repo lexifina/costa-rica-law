@@ -1,0 +1,2 @@
+Artículo 24. Equiparación
+Acción mediante la cual con criterio técnico emitido por la unidad competente, lo establecido por la institución y de acuerdo con el contenido curricular y el tiempo de la asignatura, materia, módulo o cualquier otra unidad curricular, que fue aprobada por la persona solicitante en el INA o en cualquier otra institución que oferte la EFTP en el país o en el extranjero, son equiparables a un módulo de programas educativos y habilitación.

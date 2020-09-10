@@ -1,0 +1,3 @@
+Artículo 32. Deberes de los Órganos Interventores y Asesores de la Evaluación
+Todas las personas funcionarias que participen en el proceso de evaluación y resolución de los recursos reglamentados en el capítulo VI del presente reglamento deberán fungir de forma imparcial y abstenerse de resolver o asesorar cuando exista un conflicto de interés o cualquier otra causal que comprometa su imparcialidad.
+Para tales efectos se aplicará lo establecido en el Reglamento Autónomo de Servicios, artículo 12 del Código Procesal Civil y el artículo 230 de la Ley General de la Administración Pública.
