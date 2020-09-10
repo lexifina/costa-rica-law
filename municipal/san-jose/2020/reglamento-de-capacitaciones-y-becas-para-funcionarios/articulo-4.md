@@ -1,0 +1,4 @@
+Artículo 4. DE LA DEPENDENCIA COMPETENTE PARA AUTORIZAR ACTIVIDADES DE CAPACITACIÓN.
+La Sección de Desarrollo de Personal de la Dirección de Recursos Humanos es la responsable de planificar, coordinar, implementar y evaluar los planes de capacitación en la Municipalidad de San José. Para ello coordinará con todas las dependencias y sus Jefaturas la detección de necesidades de capacitación para la propuesta del Plan General de Capacitación.
+El Plan General de Capacitación y el Presupuesto Anual, así como las estrategias y plan de trabajo de la Sección de Desarrollo de Personal, deberán ser sometidos para aprobación de la Dirección de Recursos Humanos.
+El Presupuesto Anual de Capacitación será administrado en su totalidad por la Sección de Desarrollo de Personal, quien deberá verificar que sea congruente con el alcance, objetivos, principios y lineamientos del presente reglamento y cualquier otra normativa aplicable.

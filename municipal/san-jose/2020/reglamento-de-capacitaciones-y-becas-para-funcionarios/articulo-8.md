@@ -1,0 +1,5 @@
+Artículo 8. RECURSOS FINANCIEROS PARA CAPACITACIÓN Y DESARROLLO.
+La formulación del presupuesto de capacitación se realizará conforme a la revisión del Diagnóstico de Necesidades de Capacitación y la propuesta del Plan General de Capacitación que de este resulte.
+En el presupuesto de capacitación o sus modificaciones se incluirán las partidas que resulten necesarias para la ejecución del Plan General de Capacitación y los pagos de subsidio para estudios. Estas se ejecutarán en relación directa al nivel de ejecución de los ingresos presupuestarios de la Municipalidad a fin de asegurar el adecuado equilibrio financiero de la Institución.
+La Municipalidad no garantiza a ningún colaborador la permanencia de recursos para subsidio de estudios. Cualquier beneficio podrá suspenderse por falta de contenido presupuestario, esto de acuerdo al presupuesto aprobado, sea por razones de modificaciones o cualquier otra causa a criterio de la Dirección de Recursos Humanos.
+Es responsabilidad de la Sección de Desarrollo de Personal administrar el presupuesto disponible de capacitación para toda la Municipalidad.

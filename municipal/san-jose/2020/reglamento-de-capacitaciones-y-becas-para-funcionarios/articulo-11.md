@@ -1,0 +1,4 @@
+Artículo 11. DE LA BECA DE ESTUDIOS.
+En el marco del presente reglamento se entenderá por beca de estudios la ayuda económica o subsidio, total o parcial, que la Municipalidad otorgue a los funcionarios para la iniciación, continuación o finalización de estudios formales; previa recomendación de la Dirección de Recursos Humanos y aprobación de la Alcaldía.
+La beca solamente se otorgará cuando los estudios para los que se solicita tengan relación directa con el cargo que desempeña, así como que su otorgamiento sea congruente con el alcance, objetivos y principios del presente reglamento.
+Las licencias de estudio para las becas en tiempo laboral deberán ser solicitadas por el colaborador en el sistema que la Dirección de Recursos Humanos disponga para estos fines y aprobada por el superior inmediato.

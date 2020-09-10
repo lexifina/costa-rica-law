@@ -1,0 +1,5 @@
+Artículo 12. ACTIVIDADES DE CAPACITACION VIRTUAL.
+Para los efectos de este reglamento se entenderá como actividades educativas virtuales a la modalidad basada en la aplicación de tecnologías de comunicación electrónica que se caracteriza por la virtualización de la capacitación, la cual es guiada por personas facilitadoras y apoyadas en plataformas tecnológicas, que permiten el uso de foros, mensajería instantánea, correo electrónico, chat y páginas web, entre otros recursos; lo cual propicia la accesibilidad, la interactividad y la flexibilidad del aprendizaje. Este tipo de capacitación puede contemplar la evaluación de los procesos de aprendizaje.
+A este tipo de actividades les aplicarán todos los lineamientos, beneficios y obligaciones de este Reglamento.
+Las actividades de capacitación que se autoricen bajo esta modalidad y que se certifiquen de manera virtual, deberán contar con firma digital; asimismo podrá recibirse capacitación virtual certificada de forma física.
+La capacitación virtual podrá ejecutarse en horario laboral en el centro de trabajo del colaborador.

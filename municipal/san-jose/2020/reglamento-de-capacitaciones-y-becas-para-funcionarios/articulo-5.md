@@ -1,0 +1,2 @@
+Artículo 5. DE LAS MODALIDADES DE ACTIVIDADES DE CAPACITACIÓN.
+Las actividades de capacitación reguladas por este reglamento podrán ser presenciales, virtuales o mixtas; podrán incluir acciones de educación formal o de educación no formal; de corto, mediano o largo plazo; podrá ser del tipo de capacitación para el trabajo o de capacitación en el trabajo; pudiendo ser de tipo académico, técnico, así como de tipo conductual.
