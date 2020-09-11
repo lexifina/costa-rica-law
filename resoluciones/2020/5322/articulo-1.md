@@ -43,7 +43,8 @@ TERCERO: La lista de países habilitados como puntos de procedencia para el ingr
 15. Reino de Noruega
 16. Reino de Suecia
 17. Reino de Tailandia
-18. Reino Unido de Gran Bretaña e Irlanda del Norte
+18. Reino Unido de Gran Bretaña
+e Irlanda del Norte
 19. República Checa
 20. República Chipriota
 21. República de Austria
@@ -71,16 +72,26 @@ TERCERO: La lista de países habilitados como puntos de procedencia para el ingr
 43. República Portuguesa
 44. Rumanía
 45. Estados Unidos de América, solamente los siguientes estados:
-a. Nueva York
-b. Nueva Jersey
-c. Vermont
-d. Connecticut
-e. New Hampshire
-f. Maine
-g. Distrito de Columbia
-h. Maryland
-i. Virginia
-(Así reformada la disposición tercera anterior mediante resolución N° MS-DM-RM-5429-2020 del 27 de agosto del 2020)
+a) Arizona
+b) Colorado
+c) Connecticut
+d) Distrito de Columbia
+e) Maine
+f) Maryland
+g) Massachusetts
+h) Michigan
+i) Nueva Jersey
+j) Nueva York
+k) Nuevo Hampshire
+l) Nuevo México
+m) Oregón
+n) Pensilvania
+o) Rhode Island
+p) Vermont
+q) Virginia
+r) Washington
+s) Wyoming
+(Así reformada la disposición tercera anterior mediante resolución N° MS-DM-RM-5662-2020 de 11 de setiembre del 2020)
 CUARTO: La persona extranjera que opte por viajar vía aérea hacia Costa Rica bajo la categoría migratoria de No Residentes, subcategorías Turismo, deberá cumplir necesariamente las siguientes condiciones para ingresar al país:
 a) Contar con un seguro de viaje que cubra al menos los gastos de alojamiento y gastos médicos generados por la enfermedad COVID-19, ofrecido por alguna de las aseguradoras autorizadas por la Superintendencia General de Seguros en Costa Rica y debidamente registrado ante dicha autoridad; o bien deberá contar con un seguro vigente con cobertura internacional que cubra gastos médicos generados por la enfermedad COVID-19, gastos médicos mínimos equivalentes a los costos de internamiento en un hospital por el tiempo que requiera dicho internamiento y un mínimo de cobertura de 14 días por gasto de hospedaje. Para el caso de los seguros con cobertura internacional, el Instituto Costarricense de Turismo se encargará de verificar el cumplimiento de las condiciones mínimas establecidas en este apartado. Para ello, deberá establecer y coordinar un mecanismo de verificación que asegure la debida constatación de los respectivos requerimientos; además deberá difundir dicho mecanismo, según corresponda, para el conocimiento de las personas extranjeras. En caso de que el seguro con cobertura internacional no cumpla con alguno de dichos requisitos, la persona extranjera deberá adquirir un seguro de viaje ofrecido por alguna de las aseguradoras autorizadas por la Superintendencia General de Seguros en Costa Rica y debidamente registrado por dicha autoridad.
 b) Completar en línea el formulario epidemiológico denominado Pase de Salud, generado por el Ministerio de Salud. El formulario está disponible en el siguiente link: https://salud.go.cr
