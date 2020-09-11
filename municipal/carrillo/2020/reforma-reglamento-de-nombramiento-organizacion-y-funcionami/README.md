@@ -14,3 +14,4 @@ Reforma Reglamento de Nombramiento, Organización y Funcionamiento Interno del c
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-09-11 | la propia norma |
+| 2 | 2020-09-11 | Reglamento municipal 34 (2020-08-25) |

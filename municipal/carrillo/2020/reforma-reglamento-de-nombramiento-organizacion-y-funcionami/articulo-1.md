@@ -27,6 +27,12 @@ Estos miembros no podrán ostentar la representación judicial o extrajudicial d
 Se entiende que, para los efectos de evitar la injerencia partidista y favorecer la independencia de gestión del Comité Cantonal los regidores y síndicos tanto propietarios como suplentes no podrán formar parte de este. Los miembros del Comité Cantonal durarán en sus cargos por un período de dos años y podrán ser reelegidos debiendo ser electos en la segunda quincena del mes de setiembre.
 Se entiende que por el desempeño de sus funciones los miembros del Comité no devengarán dietas ni remuneración alguna salvo el pago de viáticos que se cancelarán en aquellas actividades que sean de interés para el Comité y siempre y cuando exista disponibilidad presupuestaria para ese efecto.
 3°—En la modificación realizada al Código Municipal mediante la Ley N° 9633, solicito se apruebe la presente modificación al Reglamento de Nombramiento, Organización y Funcionamiento Interno del Comité Cantonal de Deportes y Recreación de Carrillo y de los Comités Comunales de Deportes y la Recreación con dispensa de trámite de comisión. Publíquese en el Diario Oficial La Gaceta.
+(*)Se modifique el artículo número 63 del Reglamento de Nombramiento, Organización y Funcionamiento Interno del Comité cantonal de Deportes y Recreación de Carrillo y de los Comités Comunales de Deportes y la Recreación para que en su defecto se lea:
+Artículo 63.—El Comité Comunal estará integrado por siete miembros residentes en la comunidad respectiva, nombrados en la Asamblea General, convocada para tal efecto por el comité cantonal.
+La Asamblea General estará conformada por dos representantes de cada una de las organizaciones deportivas, recreativas y de desarrollo comunal existentes en la comunidad.
+Entre los siete integrantes de cada comité comunal deberán designarse a dos miembros de la población adolescente entre los 15 años y menores de 18 años, quienes actuarán con voz y voto.
+Serán propuestos por el Comité Cantonal de la Persona Joven, respetando el principio de paridad de género.
+(*) (Así adicionado en sesión N° 34 del 25 de agosto del 2020)
 Acuerdo definitivamente aprobado.
 Publíquese para afecto de ley.
 Filadelfia, 7 de setiembre del 2020.
