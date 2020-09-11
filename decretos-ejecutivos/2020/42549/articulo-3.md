@@ -1,0 +1,1 @@
+Artículo 3º—Se corre la numeración del artículo 14 al artículo 27 correspondientes al “Reglamento del Consejo Nacional de la Niñez y la Adolescencia”, Decreto Ejecutivo N° 41452-MP del 06 de noviembre del 2018, para que ahora sean del artículo 19 al artículo 32.
