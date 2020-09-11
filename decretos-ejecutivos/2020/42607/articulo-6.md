@@ -1,0 +1,1 @@
+Artículo 6.- La presente medida extraordinaria será revisada y actualizada de conformidad con el comportamiento epidemiológico del COVID-19 y con ocasión del estado de emergencia nacional por la situación sanitaria y para resguardar la salud de la población.
