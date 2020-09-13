@@ -1,0 +1,13 @@
+ARTÍCULO 110. Requisitos documentales para el visado de proyectos de urbanizaciones y conjuntos residenciales
+Para autorizar el visado de proyectos de urbanizaciones y conjuntos residenciales, se debe presentar al INVU además de los requerimientos solicitados en el ARTÍCULO 105, los siguientes requisitos documentales:
+1. Estudio preliminar de suelos y terraceo para pendientes mayores al 15% del predio a urbanizar
+2. Estudio de estabilidad de terreno para pendientes mayores del 30% del predio a urbanizar
+3. Estudio geotécnico para pendientes iguales o mayores del 30% del predio a urbanizar, que contengan o colinden, fuera del área de protección, con cauces fluviales.
+4. Estudio de uso, manejo y conservación de suelos y aguas, para evitar la contaminación, degradación, erosión, sedimentación de embalses y obstrucción de alcantarillados, según lo establecido en el Reglamento a la Ley de Uso, Manejo y Conservación de Suelos, Decreto Ejecutivo N°29375-MAG-MINAE-SHACIENDA- MOPT y sus reformas o la normativa que les sustituya
+5. Formulario con requerimientos del Cuerpo de Bomberos, según lo establecido en el Reglamento a la Ley del Benemérito Cuerpo de Bomberos de Costa Rica, Decreto Ejecutivo N°37615-MP.
+6. Memoria de cálculo del tanque de agua para abastecimiento de los hidrantes, cuando se tenga planteado colocar un tanque de agua para atención de incendios
+7. Memorias de cálculo para el sistema de abastecimiento de agua potable, sistema de tratamiento de aguas residuales, y sistema de alcantarillado pluvial; de conformidad con la Norma Técnica para Diseño y Construcción de sistemas de abastecimiento de agua potable, saneamiento y pluvial emitida por AYA
+8. Alineamiento respecto a líneas de alta tensión ICE, o de no afectación de líneas de alta tensión. No aplica para predios dentro de urbanizaciones ya establecidas
+Cuando el proyecto utilice tanques de almacenamiento, estaciones de bombeo o ambas, se deben presentar las memorias de cálculo que indiquen el cálculo de la demanda y el volumen del tanque para regulación, reserva e incendio.
+En caso de no existir sistema de tratamiento de aguas residuales por medio de alcantarillado sanitario en funcionamiento, se deben presentar los requisitos documentales establecidos en el Reglamento de Aprobación de Sistemas de Tratamiento de Aguas Residuales, Decreto Ejecutivo N° 39887-S-MINAE, el Reglamento de Vertido y Reúso de Aguas Residuales, Decreto Ejecutivo N°33601-MINAE-S, sus reformas o la normativa que les sustituya.
+Si el sistema de tratamiento de aguas residuales será administrado por el AYA, para su operación y mantenimiento se deben presentar los formularios denominados “Datos de diseño y costos” y “Permisos para Urbanizar”.

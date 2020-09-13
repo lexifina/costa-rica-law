@@ -1,0 +1,2 @@
+ARTÍCULO 111. Alineamientos adicionales para proyectos
+Según las características y ubicación del predio a urbanizar, los proyectos de urbanizaciones y conjuntos residenciales deben presentar, según corresponda, los alineamientos establecidos en el ARTÍCULO 106. Alineamientos adicionales para anteproyectos, del presente Reglamento, de conformidad con lo establecido en el Capítulo de Normativas Urbanísticas del Reglamento de Construcciones del INVU.

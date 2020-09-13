@@ -1,0 +1,4 @@
+ARTÍCULO 52. Dimensiones mínimas de lotes en urbanizaciones de uso residencial
+Cuando se pretenda realizar una urbanización, el fondo de los lotes resultantes no debe ser mayor de 7 veces el frente. El frente mínimo de los lotes resultantes de la urbanización debe ser de 6,00 m; cuando los lotes enfrenten rotondas y medias rotondas, deben contar con un frente mínimo de 3,50 m cuando cumplan con el área mínima establecida en el presente artículo.
+El área mínima de los lotes resultantes debe ser de 90,00 m² cuando exista alcantarillado sanitario o planta de tratamiento. De no existir alguno de los anteriores, el área mínima requerida es de 120,00 m² siempre que cuente con tanque séptico u otro sistema de tratamiento de aguas residuales similar, de conformidad con las disposiciones establecidas por el MINSA.
+Todo lote resultante debe cumplir con el área mínima; en caso de existir afectaciones producto de alineamientos, dicha área no será computable para el cálculo.

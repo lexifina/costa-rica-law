@@ -1,0 +1,4 @@
+ARTÍCULO 66. Obligaciones en urbanizaciones de uso residencial
+El urbanizador debe dar cumplimiento a las siguientes disposiciones:
+1. Entregar el área para juegos infantiles con el equipamiento necesario. Tanto el área de juegos infantiles como el área de parque se deben entregar enzacatadas, arborizadas y cumplir con lo indicado en el ARTÍCULO 62. Disposiciones generales para lotes destinados a área pública en urbanizaciones de uso residencial y el ARTÍCULO 63. Juegos infantiles en urbanizaciones de uso residencial del presente Capítulo.
+2. Incluir dentro de los planos constructivos una lámina completa que indique las obras a realizar y el equipamiento que se instalará. Dichas obras incluirán: juegos, área de resguardo,, pavimentos, aceras, vallas, arborización, terraceos, bancas y cualquier otro detalle pertinente, todo según sea el caso y la normativa aplicable.

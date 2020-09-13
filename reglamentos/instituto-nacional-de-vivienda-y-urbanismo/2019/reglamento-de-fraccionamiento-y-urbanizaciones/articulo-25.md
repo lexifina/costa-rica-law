@@ -1,0 +1,9 @@
+ARTÍCULO 25. Condiciones del acceso excepcional para uso residencial
+El acceso excepcional para uso residencial no constituye una vía pública, sin embargo, es de uso común para los lotes resultantes de esta excepción de fraccionamiento. Dicho acceso debe cumplir con las siguientes disposiciones:
+1. El ancho debe ser en todos los casos de 6,00 m; dentro de los cuales se debe contemplar la construcción de cordón y caño, así como aceras frente a los lotes resultantes, según las disposiciones establecidas la Ley de Igualdad de Oportunidades para Personas con Discapacidad, Ley N°7600, su Reglamento, Decreto Ejecutivo N°26831-MP y sus reformas o normativa que les sustituya
+2. La longitud del acceso no debe exceder de 60,00 m medidos desde la vía pública.
+3. Frente al acceso excepcional para uso residencial solamente se puede fraccionar un máximo de 6 lotes, los cuales pueden estar ubicados en uno o ambos lados del acceso. Para este cálculo se contabilizan los lotes que tengan únicamente salida a través del acceso excepcional para uso residencial, cuya área se constituye en un gravamen para el tránsito de personas y vehículos de emergencia
+4. Debe terminar frente al último lote resultante, e indicarse en los planos como fin del acceso excepcional para uso residencial
+5. Los lotes que enfrenten a la vía pública no puede hacer uso del acceso excepcional para uso residencial, a menos que hayan sido contabilizados dentro del máximo de 6 lotes permitidos para fraccionar
+Toda excepción de fraccionamiento para uso residencial debe prever la recolección de las aguas pluviales de los lotes resultantes, para evitar su empozamiento.
+No se permiten 2 accesos excepcionales para uso residencial paralelos contiguos ni continuos, inclusive cuando el fraccionamiento no provenga de la misma finca. Además, éste acceso no puede encontrarse paralelo contiguo a un acceso por servidumbre de una parcela agrícola, pecuaria, forestal o mixta.

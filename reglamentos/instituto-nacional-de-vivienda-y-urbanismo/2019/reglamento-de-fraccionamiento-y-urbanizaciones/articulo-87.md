@@ -1,0 +1,2 @@
+ARTÍCULO 87. Bahías para transporte público
+En urbanizaciones que contemplan la construcción de más de 50 lotes, y que enfrenten una vía primaria, se debe proveer un área de estacionamiento para vehículos de transporte público, además de un sitio adecuado en la acera para la eventual construcción de refugios de espera a cubierto, ampliando el derecho de vía en no menos de 2,50 m en una longitud de 14,00 m.

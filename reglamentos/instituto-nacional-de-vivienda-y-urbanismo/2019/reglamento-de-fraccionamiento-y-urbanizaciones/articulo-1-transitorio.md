@@ -1,0 +1,2 @@
+Transitorio Primero. Trámite digital
+Una vez que entre en vigencia el Reglamento de Fraccionamiento y Urbanizaciones, el INVU contará con un plazo de hasta 1 año para incorporar los trámites establecidos en las Secciones Tercera y Quinta del Capítulo III. Fraccionamientos, así como en el Capítulo VIII. Plano General de Urbanizaciones y Conjuntos Residenciales, a través de un sistema de trámite digital.

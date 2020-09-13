@@ -1,0 +1,2 @@
+ARTÍCULO 124. Venta de lotes en urbanizaciones o conjuntos residenciales
+La venta de lotes de la urbanización o conjuntos residenciales, solo es permitida si se han ejecutado las obras de urbanización indicadas en el respectivo permiso, o si en su lugar se ha rendido la garantía de ejecución de obras faltantes a que hace referencia el ARTÍCULO 122. Garantía de cumplimiento de obra faltante de este Reglamento.

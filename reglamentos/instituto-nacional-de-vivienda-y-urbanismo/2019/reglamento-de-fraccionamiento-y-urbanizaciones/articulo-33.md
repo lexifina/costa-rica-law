@@ -1,0 +1,6 @@
+ARTÍCULO 33. Accesos por servidumbres a parcelas con fines agrícolas, pecuarias, forestales o mixtos.
+Los accesos por servidumbre a parcelas agrícolas, pecuarias, forestales o mixtos deben tener conexión directa a la vía pública y su ancho debe ser de 7,00 m.
+Estos accesos deben ser anotados y registrados en el Registro Nacional de la Propiedad en favor de cada uno de las parcelas fraccionadas y en contra del resto de finca que genera el fraccionamiento. El material de la capa de rodamiento en los accesos por servidumbre a parcelas con fines agrícolas, pecuarias o forestales debe ser permeable.
+Cualquier autoridad o funcionario de las entidades encargadas de prestar servicios públicos pueden acceder a la parcela mediante la servidumbre agrícola, pecuarias o forestal, para fines de control urbanístico, municipal, de seguridad pública, salud, bomberos y cualquier otro similar. No obstante, la municipalidad, ni ninguna institución pública, tienen obligación de dar mantenimiento o de prestar servicios a la servidumbre.
+No se permite que un acceso por servidumbre a una parcela agrícola, pecuaria, forestal o mixta se encuentre paralelo contiguo a un acceso excepcional para uso residencial o a otra
+servidumbre agrícola pecuaria, forestal o mixta

@@ -1,0 +1,4 @@
+ARTÍCULO 26. Dimensiones mínimas de predios en la excepción de fraccionamientos para uso residencial
+En la excepción del fraccionamiento para uso residencial, el área mínima de los lotes resultantes debe ser de 90,00 m² cuando exista alcantarillado sanitario o planta de tratamiento. De no existir alguno de los anteriores, el área mínima requerida es de 120,00 m² siempre que cuente con tanque séptico u otro sistema de tratamiento de aguas residuales similar, de conformidad con las disposiciones establecidas por el MINSA. El frente mínimo de los lotes resultantes debe ser de 6,00 m.
+Todo lote resultante debe cumplir con el área mínima; en caso de existir afectaciones producto de alineamientos, dicha área no será computable para el cálculo.
+El área del acceso no es computable para efectos de cálculo del área mínima de lote; sobre ella no puede hacerse construcciones, salvo las tapias en línea de propiedad.

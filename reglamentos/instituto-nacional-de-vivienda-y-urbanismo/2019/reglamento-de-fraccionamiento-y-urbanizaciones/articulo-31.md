@@ -1,0 +1,2 @@
+ARTÍCULO 31. Dimensiones mínimas de predios para fines agrícolas, pecuarios forestales o mixto ubicados frente a calle pública
+Los predios que enfrenten una vía pública pueden fraccionarse en áreas menores a 10 000,00 m² para actividades agrícolas, pecuarias, forestales o mixtas, siempre que ésta área no sea inferior a las disposiciones mínimas establecidas en la Sección Segunda o Tercera del presente Capítulo, según corresponda.

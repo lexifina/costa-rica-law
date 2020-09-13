@@ -1,0 +1,7 @@
+ARTÍCULO 30. Dimensiones mínimas de parcelas en fraccionamientos con fines agrícolas, pecuarios forestales o mixto
+Según las clases de capacidad de uso establecidas en la Metodología para la determinación de la Capacidad de Uso de las Tierras de Costa Rica, Decreto Ejecutivo N°23214-MAGMIRENEM, sus reformas o normativa que le sustituya, las parcelas agrícolas, pecuarias o
+forestales cuya clasificación sea I, II, III, IV, V y VI deben tener un área mínima 10 000,00
+m².
+Dicha área mínima se define de acuerdo a los parámetros mínimos establecidos en el Sistema de Registro del Ministerio de Agricultura y Ganadería, para Certificar la condición de pequeño y mediano productor agropecuario (PYMPA), Decreto Ejecutivo N°37911-MAG, sus reformas o normativa que le sustituya,
+Todo lo anterior sin perjuicio de las disposiciones emitidas por la municipalidad en su plan regulador, los entes competentes en materia ambiental y los planes regionales vigente.
+Cuando el predio se localice dentro del Gran Área Metropolitana, el área mínima para parcelas agrícolas es 7 000,00 m², según lo establece la Reforma Plan Regional Desarrollo Urbano Gran Área Metropolitana, Decreto Ejecutivo N° 25902-MIVAH-MP-MINAE, el Decreto Ejecutivo N°38334-PLAN-MINAE-MIVAH-MOPT-S-MAG, denominado Aprueba Plan GAM 2013-2030 Actualización del Plan Regional de la Gran Área Metropolitana, sus reformas o normativa que les sustituya.

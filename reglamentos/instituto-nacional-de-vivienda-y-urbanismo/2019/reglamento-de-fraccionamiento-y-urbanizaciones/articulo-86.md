@@ -1,0 +1,4 @@
+ARTÍCULO 86. Señalamiento de vías públicas
+El señalamiento de vías públicas, incluyendo las indicaciones de altos, flechas direccionales, velocidad y otro señalamiento vial en la urbanización, debe ser costeada por el urbanizador en coordinación con la municipalidad respectiva, según lo dispuesto en la Ley Especial para la Transferencia de Competencias: Atención Plena y Exclusiva de la Red Vial Cantonal, Ley N°9329, sus reformas y normativa que la sustituya.
+La altura, ubicación y demás especificaciones técnicas de los dispositivos de señalamiento vial, deben cumplir con lo establecido en el Manual Centroamericano de Dispositivos Uniformes para el Control del Tránsito.
+La señalización vial debe instalarse de previo a la entrega de las áreas públicas de la urbanización a la Municipalidad, caso contrario debe pagarse la garantía de cumplimiento a la Municipalidad.
