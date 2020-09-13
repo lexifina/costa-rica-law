@@ -1,6 +1,6 @@
 ARTÍCULO 21. Cesión de áreas públicas en fraccionamientos con fines urbanísticos
-Todo fraccionamiento con fines urbanísticos debe ceder gratuitamente para uso público el 10% del área total del predio a fraccionar, siempre que esta sea igual o mayor a 90,00 m².
-Dicha área se debe destinar a juegos infantiles, parques y facilidades comunales, en este
-orden de prioridad.
-Cuando el 10% del área a ceder dé como resultado entre 90,00 m² y 250,00 m² la cesión puede darse en el sitio, o bien la municipalidad está facultada a solicitar al fraccionador la cesión del área en otro predio que ésta determine de acuerdo a sus necesidades. En caso que el área a ceder sea mayor a 250,00 m² la cesión de área debe darse en el sitio.
-Las áreas cedidas deben ser entregadas con equipamiento de juegos infantiles y traspasadas a favor del dominio municipal para el uso público, y ser utilizadas según lo indicado para Distribución del área pública en urbanizaciones de uso residencial, en la SECCIÓN TERCERA: CESIÓN DE ÁREA PÚBLICA del CAPÍTULO IV del presente Reglamento. Cada municipalidad debe llevar el registro de los fraccionamientos y las cesiones de área pública de cada finca madre.
+Todo fraccionamiento con fines urbanísticos debe ceder gratuitamente para uso público el 10% del área total a fraccionar, siempre que esta sea igual o mayor a 90 m² y la suma de los lotes a fraccionar sea de 8 o más lotes, ambas condiciones en conjunto. Dicha área se debe destinar a juegos infantiles, parques y facilidades comunales, en este orden de prioridad.
+Cuando el 10% del área a ceder dé como resultado entre 90,00 m² y 250,00 m² la cesión puede darse en el sitio, o bien la municipalidad está facultada a solicitar al fraccionador la cesión del área en otro predio que determine, de acuerdo con sus necesidades. En caso de que el área a ceder sea mayor a 250,00 m², la cesión de área debe darse en el sitio.
+Las áreas cedidas deben ser traspasadas a favor del dominio municipal para el uso público y ser utilizadas según lo indicado para urbanizaciones de uso residencial, en la sección tercera: Cesión de área pública del Capítulo IV del presente reglamento.
+Cada municipalidad debe llevar el registro de los fraccionamientos y las cesiones de área pública de cada finca madre.
+(Así reformado mediante sesión ordinaria N° 6462 del 27 de agosto del 2020)

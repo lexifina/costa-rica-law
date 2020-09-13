@@ -16,3 +16,4 @@ Reglamento de Fraccionamiento y Urbanizaciones
 | 1 | 2020-09-13 | la propia norma |
 | 2 | 2020-09-13 | Reglamento 6429 (2020-02-13) |
 | 3 | 2020-09-13 | Reglamento 6448 (2020-06-04) |
+| 4 | 2020-09-13 | Reglamento 6462 (2020-08-27) |
