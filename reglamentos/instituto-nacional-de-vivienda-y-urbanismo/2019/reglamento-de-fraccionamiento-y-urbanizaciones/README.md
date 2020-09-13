@@ -14,3 +14,4 @@ Reglamento de Fraccionamiento y Urbanizaciones
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-09-13 | la propia norma |
+| 2 | 2020-09-13 | Reglamento 6429 (2020-02-13) |
