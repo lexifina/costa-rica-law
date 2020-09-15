@@ -1,1 +1,0 @@
-Artículo 64.—Los encargados de instalaciones deportivas pueden autorizar la colocación de rótulos publicitarios en las instalaciones deportivas, siempre que se cumplan las reglas vigentes en publicidad y no interfieran con el uso.

@@ -1,1 +1,0 @@
-Artículo 50.—Los comités comunales pueden ser disueltos cuando tengan menos de tres miembros o cuando el CCDR Poás haya determinado que no responden ni a los intereses de sus comunidades, ni a las directrices del CCDR Poás. Sus miembros pueden ser removidos siguiendo las pautas de este reglamento.

@@ -1,1 +1,0 @@
-Artículo 38.—Las comisiones, y sus miembros, son propuestas por los directivos del CCDR Poás. Al formar una comisión, se definen sus funciones, objetivos y plazos. Todas las comisiones tienen un período de vigencia. En caso de no indicarse este período se supone que quedan disueltas cuando termine el período de la Junta directiva que las formó.
