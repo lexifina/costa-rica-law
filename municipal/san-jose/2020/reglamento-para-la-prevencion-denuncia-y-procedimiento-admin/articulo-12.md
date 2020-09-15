@@ -1,0 +1,1 @@
+Artículo12.—Recibida la denuncia la Dirección de Recursos Humanos procederá conforme al Capítulo XXX de Instrucción de las Faltas contenido en el Reglamento Autónomo de Organización y Servicios de la Municipalidad de San José, así como a la aplicación supletoria de la Ley General de la Administración Pública.

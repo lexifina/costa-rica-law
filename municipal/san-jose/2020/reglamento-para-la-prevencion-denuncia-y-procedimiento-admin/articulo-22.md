@@ -1,0 +1,4 @@
+CAPÍTULO V
+De la aplicación de las sanciones
+Artículo 22.—Para calificar la falta de acoso laboral la Dirección de Recursos Humanos tomará en cuenta lo establecido en el artículo 211 de la Ley General de la Administración Pública, el Reglamento Autónomo de Organización y Servicios, Código Municipal, Código de Trabajo a efectos de determinar la existencia y el grado de culpa, dolo o negligencia del funcionario denunciado, el rango jerárquico, naturaleza de las funciones, impacto en el servicio y reincidencia en casos similares.
+Además, se aplicarán por los principios de: probidad, objetividad, igualdad, equidad, legalidad, motivación, celeridad y economía procesal, razonabilidad, proporcionalidad, discrecionalidad, conveniencia, oportunidad y buena fe; sin perjuicio de cualquier otro aplicable. Los principios indicados inspiran este reglamento y orientan su aplicación e interpretación, así como la gestión de la Municipalidad.

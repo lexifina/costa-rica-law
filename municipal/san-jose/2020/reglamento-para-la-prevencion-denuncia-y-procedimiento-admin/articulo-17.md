@@ -1,0 +1,1 @@
+Artículo 17.—El Órgano Director dirigirá el procedimiento con base a la normativa general establecida en el Reglamento Autónomo de Organización y Servicio de la Municipalidad de San José, aplicando supletoriamente la Ley General de la Administración Pública, garantizando el debido proceso y derecho de defensa a las partes involucradas.

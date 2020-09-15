@@ -1,0 +1,1 @@
+Artículo 19.—El Órgano Director valorará de forma objetiva las pruebas incorporadas al expediente bajo los principios de sana crítica, razonabilidad, lógica y experiencia. Ante la ausencia de prueba directa deberá recurrir a la prueba indiciaria y todas las otras fuentes de derecho común.

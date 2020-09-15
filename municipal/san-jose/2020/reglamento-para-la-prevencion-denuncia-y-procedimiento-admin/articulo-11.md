@@ -1,0 +1,1 @@
+Artículo 11.—El trabajador que presente una denuncia formal por acoso laboral tiene derecho hacerse acompañar con un representante legal. También podrán hacerse acompañar del apoyo emocional o psicológico de su confianza en las diversas fases del procedimiento.

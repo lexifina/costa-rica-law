@@ -1,0 +1,1 @@
+Artículo 26.—Cualquier modificación a este reglamento deberá contar con la participación activa e intervención de la Dirección de Recursos Humanos, sin perjuicio al apoyo que brinde la Dirección de Asuntos Jurídicos en lo que resulte de su competencia.

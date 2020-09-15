@@ -1,0 +1,1 @@
+Artículo 5º—Para determinar si la conducta alegada constituye acoso laboral se debe considerar la totalidad de las circunstanciasen que ocurrieron los hechos, respetando el debido proceso y sus garantías.

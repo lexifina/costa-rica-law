@@ -1,0 +1,1 @@
+Artículo 18.—El Órgano Director debe adoptar todas las medidas pertinentes y necesarias, aunque no hayan sido propuestas por la parte denunciante, para verificar la verdad real de los hechos denunciados.

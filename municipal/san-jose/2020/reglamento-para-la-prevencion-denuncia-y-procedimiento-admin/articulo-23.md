@@ -1,0 +1,1 @@
+Artículo 23.—Las sanciones por Acoso Laboral en el trabajo se aplican según la gravedad del hecho y podrá aplicarse: la amonestación escrita, la suspensión sin goce de salario hasta por 15 días y el despido sin responsabilidad patronal según se determine la gravedad de la falta.
