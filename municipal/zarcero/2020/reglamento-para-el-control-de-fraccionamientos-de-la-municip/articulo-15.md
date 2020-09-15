@@ -1,0 +1,2 @@
+Artículo 15.—Fraccionamiento por callejón de acceso. Se permitirá el fraccionamiento de un único lote con frente menor a la norma para permitir el aprovechamiento de la infraestructura existente. Siempre que se cumplas la siguiente disposición:
+a) Frente a vía pública no menor a 3.0m con una longitud máxima de 30.0m o 4.0 m de frente para una longitud máxima de 40.0m. Dicha área no será computable para el cálculo de área minina del lote ni podrá construirse en ella.
