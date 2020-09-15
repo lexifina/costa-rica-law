@@ -1,0 +1,1 @@
+Artículo 2°—Que en los artículos que se mantienen vigentes donde se refiere a la Unidad Técnica para el reconocimiento de Incentivos a la Producción Orgánica, “UT”, debe entenderse correctamente Departamento de Producción Orgánica de la Dirección Nacional de Extensión del Ministerio de Agricultura y Ganadería (DPO).
