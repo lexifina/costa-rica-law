@@ -25,4 +25,5 @@ RESUELVE:
 CONDICIONES GENERALES PARA EL USO DE LA
 PÁGINA WEB “ADMINISTRACIÓN TRIBUTARIA
 VIRTUAL (ATV)”
-Artículo 1º—Objeto. La presente resolución tiene por objeto establecer las condiciones generales que regulan el uso de la página web denominada “Administración Tributaria Virtual”, así como su utilización para el cumplimiento de los deberes formales que recaen sobre los obligados tributarios.
+Artículo 1º—Objeto. La presente resolución tiene por objeto establecer las condiciones generales que regulan el uso de la página web denominada “Administración Tributaria Virtual”, así como su utilización para el cumplimiento de los deberes formales y materiales que recaen sobre los obligados tributarios.
+(Así reformado por el artículo 6 de la resolución N° DGT-R-28-2020 el 15 de setiembre del 2020, “Resolución sobre el uso del formulario D-116, Declaración Jurada de Sanciones por Infracciones Administrativas”)

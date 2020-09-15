@@ -15,3 +15,4 @@ Condiciones Generales para el uso de la página Web "Administración Tributaria 
 | --- | --- | --- |
 | 1 | 2015-10-04 | la propia norma |
 | 2 | 2017-04-17 | Resolución 22 (2017-04-17) |
+| 3 | 2020-09-15 | Resolución 28 (2020-09-15) |
