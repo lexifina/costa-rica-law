@@ -1,0 +1,1 @@
+Artículo4º—Deróguese el DecretoEjecutivo N° 41352-MIDEPLANMDHIS, de 19 de octubre del 2018, denominado Declaratoria de interés público y oficialización de los lineamientos generales del área estratégica de articulación presidencial para la seguridad humana.
