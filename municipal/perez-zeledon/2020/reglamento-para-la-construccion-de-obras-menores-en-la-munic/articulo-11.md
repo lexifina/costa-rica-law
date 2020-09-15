@@ -1,0 +1,1 @@
+Artículo 11.—Licencia: Toda licencia de construcción que se otorgue mediante la modalidad de obra menor, deberá de velar por el respeto y protección de los derechos de los terceros, responsabilidad que recaerá sobre la institución municipal mediante la revisión del proyecto presentado y su fiscalización.

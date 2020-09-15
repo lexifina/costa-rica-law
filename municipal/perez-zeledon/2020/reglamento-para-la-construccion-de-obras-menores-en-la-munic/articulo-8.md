@@ -1,0 +1,1 @@
+Artículo 8º—Del inicio del trámite del permiso: Se dará por iniciado el trámite de la licencia para la construcción de obra menor, hasta tanto el interesado haya completado la totalidad de los requisitos exigidos en el artículo 4 del presente reglamento.

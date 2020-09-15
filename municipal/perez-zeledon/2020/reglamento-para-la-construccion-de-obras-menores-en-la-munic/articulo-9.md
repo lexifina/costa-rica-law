@@ -1,0 +1,1 @@
+Artículo 9º—Del plazo de entrega del permiso: Una vez recibida la solicitud para la licencia de construcción de obra menor y completados los requisitos exigidos para la entrega de la misma, la Administración tendrá un plazo de diez días hábiles para la resolver dicha solicitud.
