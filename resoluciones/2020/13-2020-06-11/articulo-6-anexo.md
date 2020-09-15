@@ -1,6 +1,26 @@
 ANEXO 6
-Lista de caracteres de proveedores e intermediarios para la percepción mediante tarjetas de
-débito y crédito y otros medios de pago
-[imagen]
-[imagen]
-[imagen]
+LISTA DE PROVEEDORES E INTERMEDIARIOS SOBRE
+LOS CUALES DEBE APLICARSE LA PERCEPCIÓN
+DE IVA CUANDO SON PAGADOS POR MEDIO
+DE TARJETAS DE DÉBITO Y CRÉDITO
+Y OTROS MEDIOS DE PAGO
+AIRBNB
+APPLE +
+APPLE MUSIC
+DROPBOX
+FACEBOOK
+FACEBK
+GOOGLE
+HBO
+ITUNES
+LINKEDIN
+MICROSOFT
+NETFLIX
+NINTENDO
+NORTON
+PLAYSTATION
+RIOTGAMES
+SKY
+SPOTIFY
+STEAMGAMES
+(Así reformado por el artículo 2° de la resolución DGT-27-2020 del 15 de setiembre del 2020)
