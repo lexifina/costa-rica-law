@@ -1,1 +1,2 @@
-Artículo 3º—La Junta Directiva estará conformada por siete miembros propietarios, con derecho a voz y voto. Cada uno contará con el respectivo suplente, quien lo sustituirá durante la ausencia definitiva o las temporales.
+Artículo 3- La Junta Directiva para el Fideicomiso del Parque Nacional Manuel Antonio estará conformada por siete integrantes en propiedad, con derecho a voz y voto. Cada quien contará con una persona suplente, quien le sustituirá durante las ausencias temporales o definitivas. Esta Junta Directiva debe aplicar el principio de paridad en su integración.
+(Así reformado por el artículo 2° de la ley N° 9885 del 24 de agosto del 2020)
