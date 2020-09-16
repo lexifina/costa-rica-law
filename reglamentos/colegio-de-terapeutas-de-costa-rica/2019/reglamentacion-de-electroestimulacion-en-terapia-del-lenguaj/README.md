@@ -14,3 +14,4 @@ Reglamentación de electroestimulación en terapia del lenguaje
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-01-14 | la propia norma |
+| 2 | 2020-09-16 | Reglamento 22 (2020-09-16) |
