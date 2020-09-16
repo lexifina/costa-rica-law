@@ -1,0 +1,1 @@
+Artículo 12.—Del control de los expedientes: El Proceso de bienestar Socio Laboral conformará un expediente en que consten todos los datos y documentos que acrediten el informe socio económico y resultados de los estudios del becario.

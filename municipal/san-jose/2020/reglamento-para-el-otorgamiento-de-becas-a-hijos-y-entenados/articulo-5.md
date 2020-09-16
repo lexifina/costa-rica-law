@@ -1,0 +1,4 @@
+Artículo 5º—Sobre la recepción de los formularios: El plazo improrrogable para la recepción de los formularios de solicitud de beca, con toda la información completa y de la documentación requerida, será durante todo el mes de febrero de cada año, para los estudiantes hijos (as) y entenados de funcionarios (as) municipales.
+Dicha recepción se realizará en el Proceso de Bienestar Socio Laboral.
+a) En caso de que a esa fecha no se haya completado el cupo de becas disponibles, el Proceso Bienestar Socio laboral, está autorizada para abrir un plazo máximo extraordinario de recepción de nuevos formularios, a más tardar en el mes de mayo, según sea el caso.
+b) Bajo ninguna circunstancia se recibirán formularios de solicitud de beca que hayan sido duplicados, fotocopiados, traspasado, donado, cedido, etc., a otro funcionario(a) ajeno a la entrega oficial del mismo.

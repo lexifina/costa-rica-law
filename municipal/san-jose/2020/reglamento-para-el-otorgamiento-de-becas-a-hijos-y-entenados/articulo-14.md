@@ -1,0 +1,3 @@
+Artículo 14.—Sobre el trabajo comunal: Para los hijos (as) y entenados de funcionarios (as), se contemplará cualquier modalidad que lleve implícito el mejoramiento de la calidad de vida del becado y su familia, proyecto que estará a cargo del Proceso Bienestar Socio laboral:
+a) Las áreas de investigación, reflexión y/o servicios, bajo las cuales se desarrollará el trabajo comunal, serán definidas anualmente por el Proceso Bienestar Social.
+b) La realización de este trabajo comunal, es de carácter obligatorio. Aquellos (as) becados que no asistan a las actividades programadas, sin causas debidamente justificadas, se procederá a suspenderles el otorgamiento de la beca.
