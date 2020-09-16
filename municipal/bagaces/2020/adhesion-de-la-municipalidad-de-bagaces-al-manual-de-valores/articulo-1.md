@@ -1,0 +1,2 @@
+MUNICIPALIDAD DE BAGACES
+La Municipalidad de Bagaces mediante acuerdo Nº 294 tomado en Sesión Ordinaria cuarenta y seis, celebrada el día 25 de agosto del 2020, acuerda adherirse al nuevo reglamento del Manual de Valores Base Unitarios por Tipología Constructiva publicado por el Ministerio de Hacienda, Órgano de Normalización Técnica, en Alcance Digital N° 198, Diario Oficial La Gaceta N° 187 de fecha 30 de julio de 2020.
