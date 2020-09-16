@@ -1,0 +1,4 @@
+Artículo 10.—De la Exposición. El Museo Municipal de Cartago y el Centro Cultural de España realizarán una exhibición virtual en sus galerías web, del 02 de noviembre al 31 de diciembre del 2020.
+El Museo y el Centro Cultural de España hará la promoción necesaria sobre el evento, por lo que se reservan el derecho de reproducir para su divulgación y mediante cualquier sistema (gráfico, audiovisual, internet, etc.) las propuestas seleccionadas, sin tener que pagar derechos por ello.
+Los autores de las obras seleccionadas se comprometen a ceder sin cargo, los derechos de reproducción gráfica, sonora y visual de sus obras, en todo lo concerniente a la difusión y promoción de la exposición virtual, en todas las instancias de exhibición, los medios y soportes que el Museo Municipal de Cartago y el Centro Cultural de España consideren pertinentes para tal fin.
+El derecho a la paternidad de la obra lo conservará el artista.

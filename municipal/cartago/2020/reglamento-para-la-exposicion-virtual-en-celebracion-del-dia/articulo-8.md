@@ -1,0 +1,3 @@
+Artículo 8º—Comité de Selección: El Comité de Selección estará compuesto por tres miembros que serán nombrados por mutuo acuerdo entre el Museo Municipal de Cartago y el Centro Cultural de España, órganos que harán los nombramientos considerando el tipo de exposición, la experiencia y conocimiento del Comité de Selección en el campo de las artes visuales.
+El Comité de Selección realizará la elección de las obras que consideren deban ser exhibidas en la muestra virtual, de las cuales, dos de ellas serán las beneficiarias de los apoyos a la producción.
+Las decisiones que tome el Comité de Selección en cuanto a la selección de la muestra, serán finales e inapelables.

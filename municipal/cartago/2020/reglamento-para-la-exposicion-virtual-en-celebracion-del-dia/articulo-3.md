@@ -1,0 +1,2 @@
+Artículo 3º—De los Participantes: Podrán participar artistas profesionales, graduados o autodidactas, costarricenses o residentes con estatus migratorio de residente permanente, con una edad mínima de 18 y hasta 36 años no cumplidos en el momento de apertura del concurso.
+No podrán hacerse acreedor del apoyo económico al que se refiere este reglamento, aquellos artistas que tengan parentesco con los miembros del comité de selección, hasta segundo grado de consanguinidad o afinidad.
