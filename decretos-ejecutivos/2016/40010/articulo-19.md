@@ -1,1 +1,0 @@
-Artículo 19: De la Asamblea General: La Asamblea General es el órgano superior del colegio y la integra la totalidad de sus miembros colegiados; podrán participar en dicha Asamblea todos los miembros que estén al día con sus pagos y se presenten con su carné vigente; el día y hora citados.

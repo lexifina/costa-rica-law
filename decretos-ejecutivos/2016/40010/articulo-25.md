@@ -1,1 +1,0 @@
-Artículo 25: Elecciones: En la Asamblea Ordinaria, para el nombramiento de las personas integrantes de la Junta Directiva, Fiscalía y suplencia, Tribunal de Honor y Tribunal Electoral, se estará a lo dispuesto en la Ley y en el Reglamento de Elecciones del Colegio.

@@ -1,1 +1,0 @@
-Artículo 35: Aplicación Supletoria: Se autoriza a la Junta Directiva a formular un Manual de Procedimientos Internos, para regular la operatividad de las Sesiones de Junta Directiva. En lo no dispuesto aquí se aplicarán a la Junta Directiva las disposiciones sobre órganos colegiados, contenidas en la Ley General de la Administración Pública.

@@ -1,2 +1,0 @@
-Artículo 48: Caución: Las personas titulares del Departamento de Finanzas y Presupuesto, Sección de Contabilidad, Caja General y Cobros, deberán rendir caución, por cuenta del Colegio, para el desempeño de sus funciones.
-La garantía se rendirá por medio de póliza de seguro con cargo al presupuesto de la Institución, por el monto que indique la Junta Directiva y que en caso de estimarse conveniente, será revisado para ajustarse a los cambios de la economía nacional.

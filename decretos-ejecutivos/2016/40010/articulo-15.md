@@ -1,1 +1,0 @@
-Artículo 15: De la Aprobación de Normativa: Corresponderá a la Asamblea General del Colegio, aprobar el o los Reglamentos relacionados con el ejercicio profesional y remuneración de las personas profesionales agremiadas.

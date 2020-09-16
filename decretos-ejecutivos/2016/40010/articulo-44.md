@@ -1,1 +1,0 @@
-Artículo 44: Participación en Sesiones de Junta Directiva y de Asamblea General: Quien ejerza la Dirección Ejecutiva, deberá asistir a las Sesiones de Junta Directiva y Asambleas Generales del Colegio, en las que podrá participar con voz pero sin voto.

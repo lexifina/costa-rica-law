@@ -1,1 +1,0 @@
-Artículo 72: Otros Instrumentos: Se deja a discreción de la Junta Directiva la revisión, aprobación y aplicación de aquellos instrumentos para el mejor funcionamiento administrativo del Colegio de Profesionales en Criminología de Costa Rica.

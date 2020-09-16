@@ -1,1 +1,0 @@
-Artículo 24: Dirección: Las Asambleas serán dirigidas por quien ocupe la presidencia de la Junta Directiva. En su defecto por la persona titular de la vicepresidencia, las vocalías por su orden, o en último término, por la persona profesional del mayor tiempo de incorporación que se encuentre presente.

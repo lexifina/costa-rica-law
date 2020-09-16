@@ -1,1 +1,0 @@
-Artículo 73: Derogatoria. Se deroga en su totalidad el Decreto Ejecutivo N° 37361-JP del 21 de setiembre de 2012, publicado en el diario oficial La Gaceta N° 206 el veinticinco de octubre de dos mil doce.
