@@ -1,0 +1,7 @@
+Artículo 19.—Medidas cautelares.
+Al inicio o en el transcurso del procedimiento, podrán adoptarse de oficio o a solicitud de la persona interesada, las medidas cautelares que faciliten la investigación y la paralización inmediata de la situación de conflicto. Dichas medidas serán requeridas mediante informe escrito debidamente fundamentado por el órgano instructor del procedimiento al Gerente de Administración y Finanzas, mismo que podrá imponer las siguientes medidas:
+i. Suspensión con goce de salario de la persona denunciada.
+ii. Traslado temporal de la persona denunciada, hasta por tres meses.
+iii. Traslado de la persona denunciante, con su consentimiento o a solicitud de sus representantes legales, o a sugerencia de algún testigo, cuando exista relación de subordinación o cuando se presuma la continuación de las aparentes conductas de acoso laboral.
+iv. iv. Cambio de la supervisión de las labores de la persona denunciante, cuando la persona denunciada sea su superior inmediato. La supervisión podrá ser efectuada por otro (a) trabajador (a) de superior jerarquía.
+v. Otras medidas siempre que se garanticen los derechos de las partes, guarden proporción y legalidad y no afecte el trabajo que se brinda.

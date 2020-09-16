@@ -1,0 +1,3 @@
+Artículo 12.—La víctima como parte del procedimiento de acoso laboral.
+La víctima será expresamente reconocida como parte en el procedimiento de acoso laboral, con todos los derechos inherentes a esta condición, incluyendo el acceso al expediente y la posibilidad de ser asistida por profesionales externos especializados en la materia, sobre lo cual será advertido por el órgano que instruye el procedimiento en la resolución que inicia el procedimiento.
+De igual manera, le asiste el derecho de ser atendida por los profesionales con que cuenta la Empresa en las especialidades de Psicología, Trabajo Social y áreas afines a disposición de los (as) trabajadores (as) de los diferentes ámbitos.

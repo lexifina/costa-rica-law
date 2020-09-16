@@ -1,0 +1,2 @@
+Artículo 17.—Valoración de las pruebas.
+El órgano instructor valorará las pruebas aportadas al procedimiento verificando la presencia de al menos, los siguientes elementos en los hechos denunciados: la intencionalidad por parte del (la) presunto (a) acosador (a) y que estos hayan sido sistemáticos y frecuentes. De igual manera, deberá tomar en consideración la reincidencia o no de este comportamiento en la persona denunciada.
