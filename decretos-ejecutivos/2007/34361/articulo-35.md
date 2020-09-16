@@ -1,2 +1,2 @@
-Artículo 35.—Dependencia. Todas las Unidades Ejecutoras nombradas dependerán directamente de la CNE.
-La Contraloría de Unidades Ejecutoras de la CNE será la unidad encargada del control y fiscalización de las mismas.
+Artículo 35.—Dependencia. Todas las Unidades Ejecutoras nombradas dependerán directamente de la CNE. La Unidad de Gestión de Procesos de Reconstrucción de la CNE será la unidad encargada del control y fiscalización de las funciones asignadas a las mismas en el proceso de ejecución de las obras de reconstrucción y en el monitoreo y evaluación de la resiliencia según sea determinado en el Reglamento correspondiente.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 42699 del 16 de setiembre del 2020)
