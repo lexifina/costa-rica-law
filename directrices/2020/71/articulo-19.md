@@ -1,0 +1,1 @@
+Artículo 19.—Parámetros de admisibilidad y rechazo: La OGIRH aplicará los parámetros de admisibilidad o rechazo de la denuncia, de conformidad con lo establecido en el bloque de legalidad que le vincula. La resolución que rechace la denuncia presentada dispondrá de los recursos ordinarios dentro del plazo de tres días hábiles a contar desde su debida comunicación.

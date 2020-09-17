@@ -1,0 +1,1 @@
+Artículo 21.—Comunicaciones dentro del procedimiento: Las comunicaciones dentro de este procedimiento se ajustarán a lo establecido en los artículos 239 a 247 de la Ley General de la Administración Pública.

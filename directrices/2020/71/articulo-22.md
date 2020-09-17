@@ -1,0 +1,1 @@
+Artículo 22.—Del acceso al expediente: El denunciado, y sus representantes debidamente identificados, tendrán derecho en cualquier fase del procedimiento administrativo a examinar, leer y copiar cualquier pieza del expediente, así como a pedir certificación de la misma.

@@ -1,0 +1,1 @@
+Artículo 7º—Aplicación del procedimiento administrativo ordinario: Para el trámite de denuncias, se utilizará el procedimiento administrativo ordinario que se configura en los siguientes artículos, el cual se ajusta, en su totalidad, al estatuido por la Ley General de la Administración Pública.

@@ -1,0 +1,1 @@
+Artículo 17.—De las denuncias verbales: En el caso de las denuncias recibidas de forma verbal, la OGIRH levantará un acta donde se anoten los datos del denunciante, todos los detalles de la denuncia, la información que se aporte y pruebas si se dispone de ellas y se trasladará al Viceministerio de la Presidencia o el Ministro de la Presidencia.

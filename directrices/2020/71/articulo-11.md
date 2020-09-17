@@ -1,0 +1,1 @@
+Artículo 11.—Deber de denunciar: Todas las personas funcionarias de la institución tienen el deber de denunciar los presuntos actos irregulares que se produzcan en el ejercicio de la función pública institucional, que sean de su conocimiento, ya sea de forma directa o indirecta.
