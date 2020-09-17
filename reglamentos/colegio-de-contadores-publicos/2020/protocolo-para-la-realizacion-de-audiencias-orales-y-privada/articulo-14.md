@@ -1,0 +1,1 @@
+Artículo 14.—Notificación del señalamiento: las mismas reglas y plazos que se tienen para la tramitación ordinaria del proceso administrativo aplicarán para la modalidad de la audiencia por videoconferencia.

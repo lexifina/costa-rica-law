@@ -1,0 +1,1 @@
+Artículo 9º—Respaldo de la audiencia: las gestiones, resoluciones y actuaciones en audiencias orales, quedarán grabadas en audio y video en el sistema tecnológico que posee el Colegio, quedando como respaldo por un lapso de dos años, justificado por el espacio.

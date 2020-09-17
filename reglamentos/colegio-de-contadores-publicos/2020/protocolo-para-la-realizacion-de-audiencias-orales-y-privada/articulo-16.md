@@ -1,0 +1,1 @@
+Artículo 16.—Derecho de defensa: el Tribunal debe asegurar, durante la celebración de la audiencia el acceso limitado a un medio tecnológico o de telecomunicaciones para que el Colegiado mantenga una comunicación con su abogado de manera privada, con el fin salvaguardar el derecho de defensa.
