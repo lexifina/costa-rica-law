@@ -1,0 +1,1 @@
+Artículo 3. Es un profesional de la salud que mantiene una adecuada relación con su entorno académico, profesional, laboral y social, con alto sentido de compromiso por mejorar la salud pública y la salud animal, con conocimiento del marco legal y organizativo que regula y condiciona su actividad como profesional Médico Veterinario.

@@ -1,0 +1,16 @@
+CAPÍTULO VII
+FUNCIONES ADMINISTRATIVAS
+Artículo 23. Dentro de funciones administrativas el profesional en medicina veterinaria:
+a. Administra los servicios médicos de los establecimientos veterinarios los cuales incluyen: consultorios, clínicas veterinarias, servicio a domicilio, hospitales veterinarios, unidades móviles veterinarias, farmacias veterinarias, centros de rescate, zoológicos, zoocriaderos, fincas, acuarios, laboratorios, eventos que involucran animales y otros.
+b. Cuenta con conocimientos en técnicas comerciales, plan de negocios, planes de mercadeo específicos para su establecimiento, fijación de precios de productos y servicios, planes para retención y recuperación de clientes, campañas informativas, elaboración de puestos de trabajo, actividades para motivación del personal de su establecimiento, planes de incentivos para su personal, planes de salud para las mascotas, flujos de trabajo en su establecimiento, construcción de misión, visión, objetivos para su establecimiento, manejo de proveedores, manejo de redes sociales, página web, procedimiento de manejo de quejas y un manejo integrado de su personal a cargo (horarios, atención al cliente, cuidados, ambiente laboral).
+c. Vela por la confidencialidad de los registros y expedientes veterinarios.
+d. Lleva registro y control de la bitácora y los expedientes veterinarios físicos o digitales, manejando adecuadamente los datos clínicos, historial médico y toda la información requerida en el manejo de los pacientes (que incluye como mínimo: parámetros clínicos, procedimientos médicos y quirúrgicos, medicamentos, psicotrópicos y estupefacientes, resultados de pruebas diagnósticas, entre otros).
+e. Cuenta con conocimientos en técnicas comerciales, manejo de personal (horarios, atención al cliente, cuidados, ambiente laboral, trabajo en equipo) y otros aspectos relacionados a la administración de establecimientos veterinarios.
+f. Asigna, dirige, supervisa y controla el trabajo de personal técnico, administrativo y profesional de menor nivel a su cargo.
+g. Evalúa los servicios y rentabilidad del negocio, gestión financiera y fiscal.
+h. Utiliza paquetes y programas informáticos genéricos y de uso exclusivo, con nuevas tecnologías que colaboran en el desarrollo de la medicina veterinaria digital.
+i. Participa, supervisa y/o realiza la programación anual de suministros, reporte respectivo sobre el fallo o deterioro de los equipos y planifica de los procesos de trabajo para los profesionales y tecnólogos a su cargo.
+j. Participa, supervisa y/o realiza la integración de programas de gestión de calidad dentro de la medicina veterinaria.
+k. Emite certificados de salud y exportación para mascotas, respetando los principios fundamentales de carácter ético, organizativo, legislativo, reglamentario y técnico.
+sin importar la situación política, económica o social del país.
+l. Administra los servicios veterinarios oficiales del país respetando los principios fundamentales de carácter ético, organizativo, legislativo, reglamentario y técnico, sin importar la situación política, económica o social del País. Esto es fundamental para que los otros países confíen permanentemente en los certificados veterinarios internacionales expedidos por Costa Rica.

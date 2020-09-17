@@ -1,0 +1,1 @@
+Artículo 10. Docencia. El Médico Veterinario tendrá la capacidad para involucrarse, a través de una institución de educación o académica universitaria de pregrado, grado y postgrado, según corresponda, en la formación de los profesionales en Medicina Veterinaria, así como de otras ciencias de la salud.
