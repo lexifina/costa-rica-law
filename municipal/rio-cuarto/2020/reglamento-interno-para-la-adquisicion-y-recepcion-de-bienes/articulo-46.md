@@ -1,0 +1,1 @@
+Artículo 46. Resolución contractual. La resolución del contrato se regirá conforme a lo establecido en la LCA y el reglamento a dicha ley, a través del sistema SICOP, de acuerdo con los lineamientos establecidos por la PI.

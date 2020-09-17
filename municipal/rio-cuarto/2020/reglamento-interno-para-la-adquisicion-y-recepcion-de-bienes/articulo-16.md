@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Fuentes generales de contratación administrativa
+Artículo 16. La contratación administrativa se encuentra regida por una serie de principios generales que la orientan y regulan. Asimismo, esos principios son de acatamiento obligatorio para todos los órganos que intervienen en los diversos procesos de contratación, donde a su vez se tienen que tomar en cuenta como fuentes del Derecho: la Jurisprudencia de la Sala Constitucional y la Contraloría General de la República, Tribunal Contencioso Administrativo, Procuraduría General de la República, y cualquier otro ente o institución que tenga que ver con la materia, y la doctrina que regula la materia.

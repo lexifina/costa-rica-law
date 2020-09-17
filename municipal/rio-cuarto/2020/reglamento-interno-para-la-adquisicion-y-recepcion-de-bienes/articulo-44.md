@@ -1,0 +1,1 @@
+Artículo 44. Contrato Adicional. El contrato adicional se regirá conforme a lo establecido en el Artículo 12 bis de la LCA y 209 de su Reglamento, a través del sistema SICOP, de acuerdo con los lineamientos establecidos por la PI este contrato no requiere refrendo contralor ni aprobación interna.

@@ -1,0 +1,5 @@
+CAPÍTULO VI
+Garantías
+Artículo 28. Disposiciones sobre Garantías de Participación. En las licitaciones públicas, abreviadas y en los demás procedimientos, facultativamente, se exigirá a los oferentes una garantía de participación cuyo monto se definirá en el cartel entre un 1% y 5% del monto total ofertado. Las garantías de participación serán rendidas en las formas autorizadas en el clausulado general del Cartel. La vigencia mínima de la garantía de participación será establecida por la Administración en el cartel, en caso de no indicarse, el plazo de la vigencia será hasta por un mes adicional a la fecha máxima establecida para dictar el acto de adjudicación.
+El procedimiento para la ejecución de una garantía de participación, así como su resolución, será competencia de la PI y tendrá lugar en caso de que los oferentes o adjudicatarios incumplan sus obligaciones, conforme lo definido en el Art. 39 RLCA.
+Es competencia de la Tesorería Municipal, en coordinación con la PI, autorizar la devolución de las garantías de participación, a solicitud del contratista y dentro de los ocho días hábiles a la firmeza del acto de adjudicación.

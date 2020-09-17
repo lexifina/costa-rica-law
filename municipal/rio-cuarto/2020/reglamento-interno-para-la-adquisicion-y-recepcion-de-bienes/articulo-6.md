@@ -1,0 +1,1 @@
+Artículo 6°. Las dependencias administrativas de la Municipalidad, a saber, técnicas, jurídicas, financieras y de administración, colaborarán activamente con la PI, para el cumplimiento de sus cometidos, todo conforme a las competencias propias de cada dependencia.

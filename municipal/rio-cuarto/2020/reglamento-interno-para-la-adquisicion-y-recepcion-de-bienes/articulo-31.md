@@ -1,0 +1,2 @@
+Artículo 31. Formas para Presentación y Respuesta de los Recursos. Tanto el recurso de objeción al cartel como el de revocatoria cuyo conocimiento corresponda a la Municipalidad, deberán presentare a través de la plataforma tecnológica SICOP.
+La Administración, una vez emitida la resolución final del recurso, contará con un plazo de ley para notificar a las partes, notificación que se realizará a través del sistema de compras SICOP.
