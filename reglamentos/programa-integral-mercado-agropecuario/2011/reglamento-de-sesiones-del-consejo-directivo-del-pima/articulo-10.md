@@ -1,3 +1,0 @@
-Artículo 10.—Del horario de las sesiones: En la primera quincena del mes de mayo de cada año se fijará por acuerdo, el día de la semana y la hora en que se realizarán las sesiones ordinarias durante el siguiente año.
-Las sesiones se llevarán a cabo en las oficinas administrativas del PIMA, excepto si el Consejo acuerda con antelación otro lugar de reunión.
-Para celebrar sesiones ordinarias se prescindirá de la convocatoria. Para las sesiones extraordinarias se convocará a los miembros del Consejo Directivo con una antelación mínima de veinticuatro horas, salvo los casos de urgencia de conformidad con la ley.

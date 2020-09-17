@@ -1,1 +1,0 @@
-Artículo 16.—De las ausencias: Los miembros del Consejo Directivo deben justificar sus ausencias a sesión por medio del Secretario de Actas del Consejo Directivo. El Secretario de Actas informará verbalmente al Consejo y anotará la referencia en el acta de la sesión que corresponda.

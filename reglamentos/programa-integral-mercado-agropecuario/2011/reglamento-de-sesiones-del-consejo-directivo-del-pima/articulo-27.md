@@ -1,1 +1,0 @@
-Artículo 27.—De la sustitución y suplencia: En caso de ausencia del Secretario de Actas del Consejo Directivo, el Consejo recargará la función en un funcionario de la Institución. para este nombramiento se requerirá mayoría absoluta.

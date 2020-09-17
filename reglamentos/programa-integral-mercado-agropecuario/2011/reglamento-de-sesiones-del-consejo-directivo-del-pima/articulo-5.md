@@ -1,2 +1,0 @@
-Artículo 5º—De la periodicidad de las sesiones: El Consejo Directivo sesionará ordinariamente una vez por semana, y extraordinariamente cuando así lo requiera. Así mismo podrá el Consejo Directivo disminuir el número de sesiones ordinarias de considerarlo oportuno.
-Podrán celebrarse dos o más sesiones en un mismo día, siempre y cuando los temas así lo ameriten y las razones de conveniencia y oportunidad lo justifiquen. Pero solo podrán devengar una dieta por día.

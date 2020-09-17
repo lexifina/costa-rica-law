@@ -1,2 +1,0 @@
-Artículo 20.—De las anotaciones al acta: De todas las sesiones que celebre el Consejo Directivo, se levantará un acta que indicará el nombre de los asistentes, circunstancias de lugar y tiempo en que se ha celebrado, orden del día. los puntos principales de deliberación, la forma y resultado de la votación y el contenido de los acuerdos.
-El Secretario de Actas del Consejo Directivo anotará la llegada y salida de los miembros del Consejo Directivo, cuando ingresan después de iniciada la sesión o se retiran antes de su final.

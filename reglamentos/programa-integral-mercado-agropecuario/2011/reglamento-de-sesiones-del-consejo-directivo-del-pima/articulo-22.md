@@ -1,1 +1,0 @@
-Artículo 22.—De los acuerdos firmes: Los acuerdos tomados por el Consejo Directivo quedarán firmes cuando se apruebe el acta respectiva; o cuando así se declare por votación de dos tercios del total de los miembros del Consejo Directivo.

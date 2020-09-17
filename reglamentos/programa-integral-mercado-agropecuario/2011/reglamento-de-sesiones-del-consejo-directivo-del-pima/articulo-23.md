@@ -1,1 +1,0 @@
-Artículo 23.—De los recursos contra los acuerdos: Los recursos presentados contra los acuerdos del Consejo se tramitarán y fallarán conforme lo expuesto en la Ley General de la Administración Pública.

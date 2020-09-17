@@ -1,5 +1,0 @@
-Artículo 18.—De la discusión de acuerdos: Los acuerdos del Consejo Directivo se tomarán previa deliberación una vez discutido suficientemente el tema, por la mayoría absoluta de los votos de los miembros presentes, salvo los casos en que la reglamentación interna o el ordenamiento jurídico en general prescriba una mayoría calificada para ese caso en particular.
-La votación será pública, salvo que el Presidente disponga lo contrario o que se trate de la apreciación discrecional de cualidades o actividades de personas, o de asuntos que afecten seriamente el prestigio o el patrimonio de las mismas, en cuyo caso será secreta.
-Cuando un miembro del Consejo Directivo vote negativamente un acuerdo, podrá solicitar la consignación en actas de su voto negativo y su justificación, con lo cual queda exento de la responsabilidad que pudiera derivarse del acuerdo.
-Cuando efectuada la votación resultare empate, se procederá de inmediato a una segunda votación. En caso de persistir dicho resultado, el presidente gozará de voto de calidad.
-Los votos salvados deberán ser comunicados cuando se trate de la formulación de un dictamen o propuesta.

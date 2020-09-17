@@ -1,1 +1,0 @@
-Artículo 3º—De la elección del presidente y secretario: Los puestos de Presidente y secretario serán electos anualmente en la primera quincena del mes de Mayo por mayoría simple. En caso de empate se realizará una segunda votación, y de persistir este la suerte lo decidirá.

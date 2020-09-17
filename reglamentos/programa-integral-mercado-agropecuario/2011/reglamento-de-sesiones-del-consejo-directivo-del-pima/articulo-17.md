@@ -1,3 +1,0 @@
-Artículo 17.—De ausencia holgada: Los miembros del Consejo Directivo informarán al Consejo Directivo, cuando por cualquier circunstancia, deban ausentarse consecutivamente de sesiones por el lapso de un mes o más.
-No podrán los miembros del Consejo Directivo ausentarse más de un mes continuo de sesiones sin causa justificada, en caso de darse esta situación se procederá a elevar el caso al órgano o titular de su nombramiento para que proceda conforme corresponde.
-Cuando se otorgue autorización para ausencias consecutivas, el Consejo podrá solicitar, si lo considera conveniente, el nombramiento de un sustituto provisional.

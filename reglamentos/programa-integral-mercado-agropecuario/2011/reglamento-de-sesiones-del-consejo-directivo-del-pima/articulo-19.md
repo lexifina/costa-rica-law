@@ -1,1 +1,0 @@
-Artículo 19.—De la inclusión de asuntos: No podrá ser objeto de acuerdo ningún asunto que no figure expresamente en el orden del día, salvo que sean incluidos bajo el procedimiento del artículo 15 en su párrafo segundo.

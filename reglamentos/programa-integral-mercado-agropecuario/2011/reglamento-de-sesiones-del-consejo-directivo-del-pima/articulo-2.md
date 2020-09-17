@@ -1,1 +1,0 @@
-Artículo 2º—Del carácter y dirección de las sesiones: Las sesiones del Consejo Directivo pueden ser ordinarias, extraordinarias y solemnes. Corresponderá al Presidente o a quien lo substituya abrir, dirigir y cerrar las sesiones del Consejo Directivo.

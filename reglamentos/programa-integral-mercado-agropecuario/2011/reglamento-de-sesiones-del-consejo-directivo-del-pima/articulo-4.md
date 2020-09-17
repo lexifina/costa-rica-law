@@ -1,2 +1,0 @@
-Artículo 4º—De la sustitución de la dirección de la Junta Directiva: Cuando no estuvieren presentes el Presidente y Secretario, los miembros asistentes designarán la función en un miembro Ad Hoc, salvo el presidente que será sustituido por el Secretario.
-Los miembros Ad Hoc tendrán de las mismas funciones y atribuciones establecidas para esos cargos en este reglamento, para efecto de las sesiones.

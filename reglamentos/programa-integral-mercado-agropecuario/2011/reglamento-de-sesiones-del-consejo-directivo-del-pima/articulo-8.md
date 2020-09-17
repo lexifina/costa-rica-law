@@ -1,1 +1,0 @@
-Artículo 8º—De las sesiones solemnes: Las sesiones solemnes serán aquellas para que se realicen para atender a miembros de los supremos poderes, diplomáticos, o sus misiones respectivas, y celebración de fechas especiales para la Institución. Para lo cual se seguirán las normas de protocolo usuales.
