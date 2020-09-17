@@ -1,0 +1,1 @@
+Artículo 20.—Facilitador. A petición escrita de alguna de las partes, el Ministerio de Ambiente y Energía a través de la Dirección de Agua, servirá de instancia facilitadora del diálogo ante divergencias suscitadas entre entes operadores de acueductos y el Benemérito Cuerpo de Bomberos de Costa Rica, en lo que se regula en este Reglamento.

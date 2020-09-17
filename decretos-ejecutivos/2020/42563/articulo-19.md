@@ -1,0 +1,2 @@
+Artículo 19.—Uso de hidrantes privados. Son para uso exclusivo en la atención de incendios u otras emergencias que así lo requieran, podrán ser utilizados por la brigada contra incendios del ente administrador privado.
+El ente administrador privado está obligado a permitir el uso del hidrante por parte del BCBCR, cuando sea requerido para la atención de situaciones de emergencia y por ende para garantizar la seguridad a la vida, la propiedad y al ambiente, según lo establece el artículo 24 de la Ley 8228 del 19 de marzo de 2002.

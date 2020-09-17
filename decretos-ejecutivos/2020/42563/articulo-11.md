@@ -1,0 +1,1 @@
+Artículo 11.—Obligación de contar con hidrantes. Todo proyecto o desarrollo de sistema de acueducto de abastecimiento de agua potable, deberá contar con los hidrantes en las condiciones técnicas y de operación requeridas por el BCBCR.

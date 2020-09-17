@@ -1,0 +1,1 @@
+Artículo 16.—Prácticas y simulacros. El BCBCR, deberá coordinar obligatoriamente con el ente operador y administrador del sistema del acueducto, para realizar prácticas de simulacros de emergencias y otras situaciones análogas, esto con el fin de tomar las previsiones técnicas necesarias para minimizar la afectación en el servicio de agua que reciben sus usuarios.

@@ -1,0 +1,1 @@
+Artículo 17.—Reporte mensual por consumo de agua de los hidrantes. El BCBCR debe reportar mensualmente o trimestralmente de acuerdo a las necesidades del ente operador, el consumo de agua por el uso de los hidrantes en prácticas, simulacros, emergencias y otras actividades, para efectos de los registros del ente administrador y operador del sistema.

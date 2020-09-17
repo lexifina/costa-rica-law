@@ -1,0 +1,2 @@
+Artículo 6º—Interconexión del hidrante a la red de abastecimiento de agua. La interconexión de un hidrante a una red de abastecimiento de agua, se deberá realizar en una tubería y accesorios, con un diámetro nominal igual o mayor a 150 milímetros. Pueden colocarse hidrantes en redes existentes de mínimo 100 mm de diámetro nominal.
+Se autoriza a los entes operadores la implementación de dispositivos de regulación y medición con las características óptimas de operación donde conste una justificación técnica que respalde su colocación.

@@ -1,0 +1,1 @@
+Artículo 14.—Responsabilidad por los fallos en los hidrantes. El desarrollador o urbanizador será responsable tanto civil como penalmente, por los daños y perjuicios que ocasione a terceros, con motivo de fallas en los hidrantes, por incumplimiento u omisiones a este Reglamento.

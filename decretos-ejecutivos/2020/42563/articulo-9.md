@@ -1,0 +1,1 @@
+Artículo 9º—Color oficial del hidrante. Todo hidrante público debe ser de color amarillo, y los conectados a un sistema fijo de protección contra incendio, sistema autoabastecido, los instalados después de un macro medidor o en propiedad privada deben ser de color rojo.
