@@ -17,3 +17,4 @@ Normas Técnicas sobre Presupuesto Público (N-1-2012-DC-DFOE/)
 | 2 | 2012-06-05 | Resolución 62 (2012-06-05) |
 | 3 | 2013-02-05 | Resolución 16 (2013-02-05) |
 | 4 | 2013-05-09 | Resolución 64 (2013-05-09) |
+| 5 | 2020-09-18 | Resolución 73 (2020-09-18) |
