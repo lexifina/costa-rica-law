@@ -1,22 +1,24 @@
-Artículo 13.—Regulaciones para la actuación judicial.
-13.1. Modalidades de las actuaciones con uso de videoconferencia. Sin perjuicio de las regulaciones vigentes para las actuaciones judiciales presenciales, este Protocolo se aplicará a los siguientes tipos de modalidades por videoconferencia:
+Artículo 13.—REGULACIONES PARA LA ACTUACIÓN JUDICIAL
+13.1. MODALIDADES DE LAS ACTUACIONES CON USO DE VIDEOCONFERENCIA
+Sin perjuicio de las regulaciones vigentes para las actuaciones judiciales presenciales, este Protocolo se aplicará a los siguientes tipos de modalidades por videoconferencia:
 a. Totalmente virtual. La realización y participación en todas las fases o pasos que se deban realizar, se hará por medio de las plataformas tecnológicas autorizadas por el Poder Judicial.
 b. Parcialmente virtual. La persona juzgadora determinará qué pruebas o fases de la actuación deben hacerse presencialmente y cuáles mediante videoconferencia. En la medida de lo posible, deberán realizarse en días continuos, conforme a la normativa procesal agraria y la supletoria aplicable.
 En lo presencial, ya sea en el lugar de los hechos o en una sede judicial, se deberán cumplir las normas sanitarias y de seguridad, especialmente las señaladas por las autoridades competentes. El lugar pertinente lo determinará el tribunal, en función del caso concreto.
-13.2. Sobre el lugar y condiciones del equipo tecnológico
-13.2.1. Reglas para todas las personas participantes Cualquier persona que participe en la actuación judicial, en cuanto al lugar donde se encuentre y el equipo tecnológico, deberá:
+13.2. SOBRE EL LUGAR Y CONDICIONES DEL EQUIPO TECNOLÓGICO
+13.2.1. Reglas para todas las personas participantes
+Cualquier persona que participe en la actuación judicial, en cuanto al lugar donde se encuentre y el equipo tecnológico, deberá:
 1) Silenciar los sonidos de teléfonos y otros aparatos antes del inicio de la actuación.
 2) Tener el equipo tecnológico que utilizará en óptimas condiciones de carga energética y procurarse fuentes alternas de energía.
-3) Permanecer en un espacio adecuado en cuanto a iluminación y no interferencia de ruido y eco. Se recomienda la utilización de audífonos. No es recomendable colocarse a contraluz de una ventana o con iluminación sobre la persona. Las luces o ventanas deben estar preferiblemente al frente.
+3) Permanecer en un espacio adecuado en cuanto a iluminación y no interferencia de ruido y eco. Se recomienda la utilización de audífonos. No es recomendable colocarse a contra luz de una ventana o con iluminación sobre la persona. Las luces o ventanas deben estar preferiblemente al frente.
 4) Situar adecuadamente la cámara de video, la cual debe colocarse a la altura de los ojos y permitir que se visualice adecuadamente a la persona y su entorno inmediato.
 5) En redes domésticas, durante la actuación debe evitarse compartirla, salvo que la velocidad contratada permita hacerlo sin provocar interrupciones al desarrollo de la actuación.
 13.2.2. Reglas para las personas juzgadoras y personal técnico
-El personal del Despacho – juzgador y técnico–, en cuanto al lugar y el equipo tecnológico, deberá verificar y cumplir con que se cumplan las medidas sanitarias, ya sea que se realice desde la Sede del Despacho, las salas dispuestas para ese fin, el lugar en el cual realiza teletrabajo o cualquiera que determine la persona juzgadora.
+El personal del Despacho – juzgador y técnico-, en cuanto al lugar y el equipo tecnológico, deberá verificar y cumplir con que se cumplan las medidas sanitarias, ya sea que se realice desde la Sede del Despacho, las salas dispuestas para ese fin, el lugar en el cual realiza teletrabajo o cualquiera que determine la persona juzgadora.
 13.2.3. Reglas para personas abogadas y partes
 1) Las partes y sus personas abogadas podrán participar desde el sitio en el que realizan sus labores, sus casas de habitación o salas dispuestas para ese fin por el Poder Judicial. Las partes podrán participar desde las oficinas de sus personas abogadas, siempre que se respeten las medidas sanitarias.
 No será necesario que la parte y su persona abogada se encuentren en la misma ubicación. En tal caso, se podrán conectar de forma independiente siguiendo las pautas aquí establecidas y las específicas dispuestas por el tribunal. Para los actos procesales a realizarse con personas que se encuentran en el extranjero, se seguirá lo establecido en el ordenamiento jurídico.
 2) Cualquiera de las partes podrá hacerse acompañar si se justifica algún estado de vulnerabilidad o particularidad especial que lo amerite.
-13.2.4. Reglas para declarantes (partes, testigos, peritas, etc.)
+13.2.4. Reglas para declarantes (partes, testigas, peritas, etc.)
 1) Las personas que deban rendir declaración lo harán en un espacio adecuado, según las reglas anteriores.
 2) De tratarse de las partes, mientras declaran, deberán estar aisladas o colocarse de una manera que permita visualizar que su declaración sea libre, voluntaria y conforme lo exige la normativa procesal aplicable.
 3) De ser personas diferentes a las partes, deberán permanecer aisladas por medios virtuales o presenciales hasta el momento en que rindan su declaración.
@@ -28,26 +30,26 @@ b. Durante la declaración la persona estará sentada frente a la cámara con la
 c. El recinto deberá permanecer cerrado durante el tiempo que así lo requiera el tribunal. En cualquier momento, se puede solicitar al declarante mostrarlo, así como compartir pantalla.
 d. La persona no podrá utilizar otros instrumentos electrónicos ni de consulta, salvo los casos en que legalmente esté permitido a criterio del tribunal.
 e. Si se tratara de diversas personas que deben rendir declaraciones en la misma actuación, salvo que el tribunal disponga otra cosa, deberán encontrarse conectadas a la hora de inicio, con la finalidad de verificar su asistencia. No podrán desconectarse hasta tanto el tribunal lo autorice. Para la recepción de estas declaraciones se podrá disponer de distintas horas o incluso días, conforme a la normativa procesal agraria y de aplicación supletoria.
-13.2.5. Reglas si se realiza la actuación parcialmente virtual, en el lugar del conflicto o en la sede del Despacho
-Cuando alguna de las pruebas o fases de la actuación se deba realizar en el lugar en conflicto o en la sede de los tribunales, de manera presencial, se deberán respetar las disposiciones de las autoridades competentes y lo preceptuado en el apartado titulado “Reglas básicas para las actuaciones presenciales durante la emergencia”.
-Dependiendo de las circunstancias del lugar y el tipo de diligencia, la persona juzgadora podrá tomar otras medidas pertinentes, para resguardar la salud de las personas. En caso de que las medidas de seguridad no se puedan cumplir o se irrespeten, el tribunal deberá determinar si se puede solucionar el inconveniente para la continuación de la actuación, posponerla o suspenderla.
+13.2.5. Reglas si se realiza la actuación parcialmente virtual, en el lugar del conflicto o en la sede del Despacho Cuando alguna de las pruebas o fases de la actuación se deba realizar en el lugar en conflicto o en la sede de los tribunales, de manera presencial, se deberán respetar las disposiciones de las autoridades competentes y lo preceptuado en el apartado titulado “Reglas básicas para las actuaciones presenciales durante la emergencia”.
+Dependiendo de las circunstancias del lugar y el tipo de diligencia, la persona juzgadora podrá tomar otras medidas pertinentes, para resguardar la salud de las personas.
+En caso de que las medidas de seguridad no se puedan cumplir o se irrespeten, el tribunal deberá determinar si se puede solucionar el inconveniente para la continuación de la actuación, posponerla o suspenderla.
 13.2.6. Reglas para la accesibilidad de personas en estado de vulnerabilidad y actuaciones en territorio indígena
 1) En las actuaciones judiciales en las que intervenga una persona en condiciones de vulnerabilidad o con necesidades especiales, el tribunal deberá tomar las previsiones para su adecuada participación, conforme a los recursos tecnológicos y las políticas institucionales de accesibilidad. Se deberá considerar lo establecido en la circular 173-2019 de la Corte Suprema de Justicia y atinentes.
 2) Salvo caso fortuito o fuerza mayor, es obligación de la persona interesada poner en conocimiento del Despacho, oportunamente, su situación personal.
 3) Tratándose de personas indígenas, se deben cumplir todas las directrices del Poder Judicial. Si la actuación judicial se debe realizar dentro de un territorio indígena, se deben cumplir adicionalmente las directrices de la circular 103-2020 del Poder Judicial y otras atinentes para ello.
-13.3. Respaldo de la actuación judicial
+13.3. RESPALDO DE LA ACTUACIÓN JUDICIAL
 Formas de respaldar las actuaciones judiciales:
-1.Se grabarán en audio y si es posible en video, por medio del SIGAO (Sistema de Grabación de Audiencias Orales del Poder Judicial) u otro sistema o plataforma autorizados por el Poder Judicial.
+1. Se grabarán en audio y si es posible en video, por medio del SIGAO (Sistema de Grabación de Audiencias Orales del Poder Judicial) u otro sistema o plataforma autorizados por el Poder Judicial.
 La grabación, en lo posible, deberá ser incorporada al expediente judicial al finalizar el acto procesal. La persona técnica judicial que brinda asistencia al tribunal, deberá efectuar el etiquetado de los actos o pasos realizados, según las directrices institucionales.
 2. En caso de pérdida de lo grabado, se procederá conforme lo establecido en la normativa procesal agraria y supletoria aplicable.
 3. La grabación del audio (y si es posible de la imagen) de quienes participen en la actuación solo la podrá realizar el órgano jurisdiccional director. Cualquier grabación que realicen otras personas participantes, requerirá la autorización expresa de quien sea grabada, por respeto a los valores de la personalidad.
 4. Adicional a la grabación, se podrá incorporar en el escritorio virtual, de oficio o a solicitud de parte, los registros de asistencia de la herramienta Microsoft Teams o de la plataforma que se utilice, cuando sea posible descargarlos tecnológicamente, en el plazo que el sistema lo permita (90 días en la citada).
-13.4. Publicidad de la actuación judicial
+13.4. PUBLICIDAD DE LA ACTUACIÓN JUDICIAL
 1. De conformidad con la normativa procesal agraria y la supletoria aplicable, la publicidad es un principio del proceso agrario. En caso de que una actuación virtual deba hacerse privada, en forma total o parcial, debe motivarse la decisión. La etapa o audiencia de conciliación siempre será privada. De igual forma podrá disponerse que las actuaciones presenciales, por razones sanitarias y de seguridad, se realicen sin público.
 2. El público podrá asistir de forma virtual a la actuación, pero no será considerado participante para efectos de este Protocolo. Para ello, la persona interesada, deberá solicitar la inclusión con al menos 72 horas de antelación, por medio de llamada telefónica, correo electrónico dirigido al Despacho o de manera presencial. Junto con su gestión, deberá indicar un correo electrónico al que le será enviado el enlace de invitación.
 3. La participación del público vinculado a una parte, podrá ser gestionada por su abogado director.
 4. El público no podrá intervenir en la actuación. Se mantendrá con el micrófono y video apagado. De interrumpir, será excluido. Para la realización de la conciliación u otro acto que lo amerite, el tribunal dispondrá las previsiones necesarias para garantizar la privacidad.
-13.5. Contenido de las resoluciones que dan aviso y programan actuaciones judiciales virtuales totales o parciales
+13.5. CONTENIDO DE LAS RESOLUCIONES QUE DAN AVISO Y PROGRAMAN ACTUACIONES JUDICIALES VIRTUALES TOTALES O PARCIALES
 La persona juzgadora deberá emitir las siguientes resoluciones:
 1. Consulta a las partes para verificar impedimentos para realizar una actuación judicial por videoconferencia.
 Contenido mínimo de la resolución:
@@ -57,7 +59,7 @@ c) Informar sobre la aplicación que será utilizada y los requerimientos técni
 d) Dirección electrónica mediante la cual pueden unirse a la reunión de Microsoft Teams u otra plataforma digital autorizada por el Poder Judicial.
 e) Dirección electrónica institucional en el que pueden descargar el manual para utilizar la herramienta Microsoft Teams u otra autorizada.
 f) Indicación de las alternativas que brinda el Despacho Judicial, en el caso de que las personas abogadas, las partes alguno de los intervinientes no cuenten con la herramienta.
-g) En caso de tener que hacerse reconocimiento judicial o juicio en el lugar del conflicto, se les debe prevenir que indiquen las condiciones del lugar y si el mismo permite cumplir con las directrices de las autoridades competentes en relación con el COVID-19.
+g) En caso de tener que hacerse reconocimiento judicial o juicio en el lugar del conflicto, se les debe prevenir que indiquen las condiciones del lugar y si el mismo permite cumplir con las directrices de las autoridades competentes en relación con el COVID-19
 h) El número de circular de este protocolo, dirección electrónica o medio virtual para obtenerla y la advertencia de su lectura obligatoria.
 i) Apercibimiento de que en caso de no contestar se entenderá su anuencia y que la actuación se realizará con la parte que concurra, cuando sea posible de acuerdo con la legislación aplicable.
 2. Decisión de utilizar la modalidad virtual– total o parcialmente- y su programación:
@@ -67,7 +69,7 @@ a) Decisión motivada de las razones por las cuales es posible llevar a cabo la 
 b) Programación de la actuación: fecha, hora y lugar donde deben presentarse.
 c) Fecha y hora de la prueba de conectividad previa a la actuación.
 d) Requerimiento a las partes de informar de inmediato al número telefónico del Despacho, cualquier inconveniente sobrevenido que impida la celebración del acto.
-e) Prevención a las partes para que indiquen los datos de las personas participantes requeridos, especialmente correo electrónico, con la finalidad de incluirlos en la convocatoria correspondiente. También el número de teléfono para contactarlos antes o durante la actuación, el cual, si la parte así lo solicita, podrá suministrarlo a través del correo del Juzgado y requerir se mantengan sin publicitar. Se recomienda conferir un plazo de tres días (salvo situaciones especiales que ameriten un plazo menor).
+e) Prevención a las partes para que indiquen los datos de las personas participantes requeridos, especialmente correo electrónico, con la finalidad de incluirlos en la convocatoria correspondiente. También el número de teléfono para contactarlos antes o durante la actuación, el cual, si la parte así lo solicita, podrá suministrarlo a través del correo del Juzgado y requerir se mantengan sin publicitar. Se recomienda conferir un plazo de tres días (salvo situaciones especiales que ameriten un plazo menor)
 f) Advertencia sobre las consecuencias de omitir conectarse el día y hora fijados para la actuación, conforme a la normativa procesal agraria y supletoria aplicable.
 g) Deberá advertirse a las partes sobre la consecuencia de no tomar las previsiones necesarias para que las personas declarantes se conecten oportunamente y cumplan las exigencias requeridas o bien, de ser el caso, comparezcan puntualmente al lugar donde deberán rendir la declaración.
 h) Prevención de dar debido aviso, con anterioridad a la realización de la actuación, sobre necesidades especiales que pudieran tener las partes o quienes vayan a comparecer, por encontrarse en una situación de vulnerabilidad o situación particular.
@@ -75,7 +77,7 @@ i) Instar a las partes para que, en caso de reprogramación o suspensión de la 
 j) Prevención de dar debido aviso, dentro de un plazo prudencial de mínimo tres días posteriores a la comunicación de la fecha de la actuación, de si la persona abogada tiene otro señalamiento fijado con antelación.
 k) Informar a las partes que en el caso de que sean presentadas justificaciones de inasistencia de participantes por falta o falla de conectividad, deberá presentarse la prueba pertinente. El tribunal se reserva la posibilidad de corroborar la situación.
 l) Informar que la audiencia de conciliación será privada, no será grabada, y que de existir público participante, deberá desconectarse en esa etapa.
-13.6. Celebración de la actuación
+13.6. CELEBRACIÓN DE LA ACTUACIÓN
 1. Verificación de la conexión. A la hora y fecha señaladas, la persona juzgadora, con la asistencia de la persona técnica judicial, procederá a verificar que las personas participantes estén conectadas a la aplicación tecnológica habilitada. Si alguna omite conectarse y no informan de inconveniente alguno al Despacho se dejará constancia de ello en el expediente, y de ser necesario se resolverá lo pertinente.
 2. Ingreso e identificación de las personas participantes.
 a) Cuando la persona participante ingrese, deberá de consignar en el sistema su nombre completo.
@@ -87,6 +89,7 @@ f) En caso de que alguna de las personas no cumpliere los requisitos mínimos re
 g) Se informará a las partes el procedimiento en caso de interrupción del servicio. Cuando ello suceda se deberá contactar de forma inmediata a todas las personas participantes, mediante el número telefónico suministrado previamente, para definir la continuación del acto, su suspensión temporal o lo que corresponda.
 h) Se darán las instrucciones a seguir en caso que sea necesario solicitar un receso por algún motivo, por acuerdo de partes o bien por caso fortuito o fuerza mayor.
 i) Las personas juzgadoras a cargo de la actuación podrán hacer uso de sus potestades legales y reglamentarias en caso de incumplimiento de las reglas estipuladas en este Protocolo.
-3. Verificación de participantes para efectos de grabación. Verificada la conexión de las personas participantes, la persona juzgadora dará la bienvenida y solicitará su identificación. Con ese fin, cada persona deberá acercar su rostro a la cámara, manifestar verbalmente su nombre, apellidos, número de identificación y especificar su rol en el proceso. Además, mostrará su documento de identidad y en el caso de las personas abogadas su carné de colegiatura. Cuando la persona juzgadora lo considere necesario, el documento de identidad se podrá cotejar con la cuenta cedular en el Tribunal Supremo de Elecciones o ante la Dirección de Migración y Extranjería. De igual forma ante el Colegio respectivo, tratándose de personas abogadas.
+3. Verificación de participantes para efectos de grabación. Verificada la conexión de las personas participantes, la persona juzgadora dará la bienvenida y solicitará su identificación. Con ese fin, cada persona deberá acercar su rostro a la cámara, manifestar verbalmente su nombre, apellidos, número de identificación y especificar su rol en el proceso. Además, mostrará su documento de identidad y en el caso de las personas abogadas su carné de colegiatura.
+Cuando la persona juzgadora lo considere necesario, el documento de identidad se podrá cotejar con la cuenta cedular en el Tribunal Supremo de Elecciones o ante la Dirección de Migración y Extranjería. De igual forma ante el Colegio respectivo, tratándose de personas abogadas.
 4. Finalización de la actuación. Al finalizar la actuación, la persona técnica judicial asistente incorporará en el expediente electrónico, una copia de la grabación, con sus etiquetas, salvo si es en video y el sistema no lo permite, el cual se custodiará en archivo del despacho. Quienes tengan derecho a obtener una copia digital de lo actuado, y no puedan trasladarse al Despacho por razones sanitarias de una emergencia local o nacional, podrá el Juzgado, si es posible, hacerle llegar una copia por otros medios digitales.
 5. Problemas con las grabaciones. Si durante la actuación, se presentara un problema de grabación de lo acontecido, la persona juzgadora decidirá lo correspondiente, ya sea corrigiendo, o pidiendo a la persona que reitere su declaración. En caso que haya finalizado la actuación se aplicarán las reglas de reposición de actuaciones.

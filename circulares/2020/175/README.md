@@ -13,3 +13,4 @@ Protocolo para actuaciones judiciales en materia agraria, durante la emergencia 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-08-28 | la propia norma |
+| 2 | 2020-09-18 | Circular 201 (2020-09-18) |

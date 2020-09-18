@@ -1,1 +1,3 @@
-Artículo 5º—Alcances y ámbito de aplicación. Este Protocolo será aplicable para la realización de actuaciones judiciales mediante el uso de herramientas tecnológicas en materia agraria, cuando sea posible y pertinente su uso y para las actuaciones presenciales durante la emergencia nacional. Sus disposiciones deberán respetarse, sin perjuicio de los ajustes que en forma fundada pueda realizar el tribunal en función del caso concreto.
+Artículo 5°—ALCANCES Y AMBITO DE APLICACIÓN
+Este Protocolo será aplicable para la realización de actuaciones judiciales mediante el uso de herramientas tecnológicas en materia agraria, cuando sea posible y pertinente su uso y para las actuaciones presenciales durante la emergencia nacional.
+Sus disposiciones deberán respetarse, sin perjuicio de los ajustes que en forma fundada pueda realizar el tribunal en función del caso concreto.
