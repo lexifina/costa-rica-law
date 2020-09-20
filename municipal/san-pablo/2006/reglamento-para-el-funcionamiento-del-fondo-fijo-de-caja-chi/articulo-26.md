@@ -1,1 +1,0 @@
-Artículo 26.—Periódicamente y sin previo aviso, la Auditoría procederá a realizar arqueos al fondo fijo de Caja Chica, con el propósito de verificar el cumplimiento de las disposiciones del presente Reglamento y de comprobar el manejo del fondo fijo de conformidad con adecuadas normas de control interno y sanas prácticas de administración.

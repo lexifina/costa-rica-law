@@ -1,1 +1,0 @@
-Artículo 29.—De todos los arqueos que se realicen deberá constar evidencia escrita, en original y una copia. Los arqueos deberán ser firmados por la persona encargada de la caja chica y por quien los realiza. El original será archivado como parte de los documentos de la Municipalidad y la copia será entregada a la tesorería Municipal.

@@ -1,1 +1,0 @@
-Transitorio único: Hasta tanto no exista un Coordinador de la Hacienda Municipal en esta Municipalidad, el Tesorero Municipal dependerá directamente del Alcalde, y será este quien se encargue de dar cumplimiento al artículo 49 del presente reglamento.
