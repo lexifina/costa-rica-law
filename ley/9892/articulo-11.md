@@ -1,0 +1,3 @@
+ARTÍCULO 11- Duración y organización. Las seis personas integrantes de la Junta Directiva del Parque Nacional Isla San Lucas permanecerán en sus puestos mientras ostenten el cargo que los legitima como integrantes y, en el caso de la representación del Poder Ejecutivo, mientras no sea removida por el Consejo de Gobierno.
+La Junta Directiva del parque podrá sesionar válidamente con la integración de las personas suplentes, incluso en el supuesto de que el cargo titular principal se encuentre vacante.
+En lo no regulado en la presente ley, la Junta Directiva se regirá en su estructura, organización y funcionamiento por la Ley 6227, Ley General de la Administración Pública, de 2 de mayo de 1978.

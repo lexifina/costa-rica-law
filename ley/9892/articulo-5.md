@@ -1,0 +1,2 @@
+ARTICULO 5- Significación cultural e histórica. Se declaran patrimonio histórico - arquitectónico el conjunto de las edificaciones del antiguo presidio San Lucas; el Estado deberá restaurar y preservar este patrimonio para el disfrute y conocimiento de las actuales y futuras generaciones.
+El Ministerio de Cultura deberá realizar un inventario del patrimonio citado y de su estado de conservación, actualizándolo periódicamente, todo lo cual comunicará al Ministerio de Ambiente y Energía (Minae) y a la entidad encargada de la administración de la isla.

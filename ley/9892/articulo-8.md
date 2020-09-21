@@ -1,0 +1,1 @@
+ARTÍCULO 8- Gobernanza de la isla. Para el gobierno y la administración del Parque Nacional Isla San Lucas se crea la Junta Directiva del Parque Nacional Isla San Lucas, que será un órgano de desconcentración máxima adscrito al Ministerio de Ambiente y Energía (Minae), y con personalidad jurídica instrumental para el ejercicio de sus competencias.
