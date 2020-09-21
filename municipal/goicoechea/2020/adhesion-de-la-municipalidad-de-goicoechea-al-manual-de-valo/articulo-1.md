@@ -1,0 +1,5 @@
+MUNICIPALIDAD DE GOICOECHEA
+OFICINA DE VALORACIÓN
+ADHESIÓN AL MANUAL DE VALORES BASE
+UNITARIOS POR TIPOLOGÍA CONSTRUCTIVA 2020
+La Administración Tributaria de conformidad con lo que disponen los artículos 3 y 12 de la Ley de Impuestos Sobre Bienes Inmuebles N° 7509 y sus reformas, la Sentencia 1073-2012 del Tribunal Contencioso Administrativo, Sección III y la Resolución de la Sala Constitucional N° 2011-003075 del 9 de marzo de 2011, le confiere la potestad a los alcaldes (as) municipales: La Municipalidad de Goicoechea, se adhiere al Manual de Valores Base Unitarios por Tipología Constructiva 2019, publicado en La Gaceta N° 187, Alcance N° 198, del 30 de julio del 2020, por el Órgano de Normalización Técnica del Ministerio de Hacienda (0.N.T), el cual contiene una descripción detallada de cada tipo de construcción, instalación y obra complementaria con respecto a sus componentes, vidas útiles y valores, para guiar, fiscalizar, dirigir los procesos de declaración, fiscalización y valoración.
