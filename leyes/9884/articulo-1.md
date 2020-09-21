@@ -1,0 +1,21 @@
+N° 9884
+LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
+DECRETA:
+REFORMA DEL INCISO 4) Y ADICIÓN DE LOS INCISOS 5) Y 6) AL ARTÍCULO
+518, Y REFORMA DEL ARTÍCULO 537 Y DEL INCISO 6) DEL ARTÍCULO 587
+DE LA LEY 2, CÓDIGO DE TRABAJO, DE 27 DE AGOSTO DE 1943
+ARTÍCULO ÚNICO- Se reforma el inciso 4) y se adicionan los incisos 5) y 6) al artículo 518, y se reforman el artículo 537 y el inciso 6) del artículo 587 de la Ley 2, Código de Trabajo, de 27 de agosto de 1943. Los textos son los siguientes:
+Artículo 518- En la fase complementaria:
+[ ... ]
+4) Se deliberará y dictará la parte dispositiva de la sentencia de inmediato de forma oral, debiendo señalarse, en ese mismo acto, la hora y fecha, dentro de los cinco días siguientes, para la incorporación al expediente y entrega a las partes del texto integral del fallo, el cual será escrito. Cuando se utilice tecnología electrónica, el fallo deberá documentarse en el respaldo correspondiente, de manera que se pueda reproducir de forma escrita o entregarse a la parte por otro medio. En procesos complejos o con abundante prueba, según lo determine la persona juzgadora, podrá postergarse, improrrogablemente hasta por un lapso máximo de quince días después de la conclusión del juicio, el dictado completo de la sentencia, incluida su parte dispositiva.
+Cuando todas las partes se manifiesten satisfechas con la sentencia en su parte dispositiva, podrán relevar al juzgado de la redacción de las otras partes de esa resolución, debiéndose dejar constancia, de forma expresa, de esa conformidad.
+5) La persona juzgadora, que haya realizado la audiencia del proceso a su cargo, conservará la competencia para dictar la sentencia de ese caso concreto, aun cuando haya dejado de ejercer sus funciones en ese despacho, ya sea por traslado, ascenso, vencimiento del nombramiento u otra situación análoga.
+6) Cuando en la votación de una resolución, por parte de un tribunal colegiado, no resultara mayoría de votos conformes de toda conformidad sobre todos y cada uno de los pronunciamientos de hecho o de derecho, o sobre la decisión que haya de dictarse, se dejará constancia de ello en el expediente, sin especificar los puntos de divergencia. En este caso se completará el tribunal con dos integrantes suplentes. El nuevo tribunal, así integrado, tendrá amplia competencia para pronunciarse sobre todas y cada una de las cuestiones objeto de recurso y la decisión se tomará por mayoría de votos. A efectos de que exista esa mayoría en todo caso, cuando la resolución tenga varios extremos que dependan unos de otros, el haber votado negativamente en los primeros, sobre los cuales haya habido votación, no será motivo que autorice al integrante que así hubiera votado para dejar de concurrir con su opinión y voto a la resolución de los demás y, cuando su voto sea único, deberá adherirse forzosamente a cualquiera de los otros votos, a fin de formar la mayoría, sin que esta forzada adhesión pueda acarrearle responsabilidad civil ni penal.
+Artículo 537- El dictado de la sentencia, su documentación y notificación a las partes fuera de los plazos indicados en este Código, sin causa justificada, constituirá falta grave de servicio y dará lugar a las responsabilidades civiles y disciplinarias correspondientes.
+En caso de muerte, incapacidad o alguna otra situación fortuita o de fuerza mayor por la que deba sustituirse a la persona juzgadora, antes del dictado de la sentencia, el juzgado, con su nueva integración, deberá dictar sentencia con vista al registro audiovisual del juicio oral y público, para lo cual volverá a correr el plazo establecido en el inciso 4) del artículo 518.
+De no existir o estar incompleto este registro, lo actuado y resuelto será nulo, por lo que el juicio oral y público deberá repetirse. Lo anterior, salvo en el caso de los actos y las actuaciones probatorias irreproductibles, que mantendrán su validez en la nueva audiencia.
+Artículo 587- Por razones procesales será admisible cuando se invoque:
+[ ... ]
+6- Haberse dictado la sentencia con inobservancia de las reglas establecidas en el párrafo tercero del artículo 537.
+Rige a partir de su publicación.
+Dado en la Presidencia de la República, San José, a los veinte días del mes de agosto del año dos mil veinte.
