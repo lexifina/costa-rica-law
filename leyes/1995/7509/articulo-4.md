@@ -8,8 +8,7 @@ d) Los parceleros o los adjudicatarios del Instituto de Desarrollo Rural (INDER)
 (*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
 e) Los inmuebles que constituyan bien único de los sujetos pasivos (personas físicas) y tengan un valor máximo equivalente a cuarenta y cinco salarios base; no obstante, el impuesto deberá pagarse sobre el exceso de esa suma. El concepto de "salario base" usado en esta Ley es el establecido en el artículo 2 de la Ley No. 7337, de 5 de mayo de 1993.
 (Así reformado por el artículo 1º, inciso b), de la ley No.7729 de 15 de diciembre de 1997)
-f) DEROGADO.-
-(Derogado por el artículo 3º, inciso a), de la ley No.7729 de 15 de diciembre de 1997)
+f) (Derogado por el artículo 3º, inciso a), de la ley No.7729 de 15 de diciembre de 1997)
 g) Los inmuebles pertenecientes a iglesias y organizaciones religiosas pero sólo los que se dediquen al culto; además, los bienes correspondientes a las temporalidades de la Iglesia Católica: la Conferencia Episcopal de Costa Rica, la Arquidiócesis y las diócesis del país.
 h) Las sedes diplomáticas y las casas de habitación de los agentes diplomáticos y consulares, con las limitaciones que se generen al aplicar, en cada caso, el principio de reciprocidad sobre los beneficios fiscales.
 i) Los organismos internacionales que, en el convenio de sede aprobado por ley anterior, estén exonerados del impuesto territorial o de tributos en general.
@@ -20,4 +19,6 @@ l) Los inmuebles pertenecientes a las asociaciones declaradas de utilidad públi
 m) Las juntas de educación y las juntas administrativas de las instituciones oficiales de enseñanza.
 (Así adicionado el inciso anterior por el artículo único de la Ley N° 8619 del 1 de noviembre de 2007)
 n) Los inmuebles inscritos a nombre del Hospicio de Huérfanos de San José, en el tanto estén dedicados a los fines propios de esta Institución
-(Así adicionado el inciso anterior por el artículo 4º de la ley Pro Ayuda al Hospicio de Huérfanos de San José, N° 8810 del 3 de mayo de 2010 )
+(Así adicionado el inciso anterior por el artículo 4º de la ley Pro Ayuda al Hospicio de Huérfanos de San José, N° 8810 del 3 de mayo de 2010)
+ñ) Los inmuebles pertenecientes a la Ciudad de los Niños, creada por la Ley 7157, Ley de Creación de la Ciudad de los Niños, de 19 de junio de 1990, en el tanto estén dedicados a los fines propios de esta institución.
+(Así adicionado el inciso anterior por el artículo 1° de la ley N° 9881 del 8 de setiembre del 2020)
