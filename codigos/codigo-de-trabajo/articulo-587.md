@@ -4,5 +4,6 @@ Artículo 587.- Por razones procesales será admisible cuando se invoque:
 3.- Falta de determinación, clara y precisa, de los hechos acreditados por el juzgado.
 4.- Haberse fundado la sentencia en medios probatorios ilegítimos o introducidos ilegalmente al proceso.
 5.- Falta de fundamento o fundamento insuficiente de la sentencia.
-6.- Haberse dictado la sentencia fuera del tiempo previsto para hacerlo.
+6.- Haberse dictado la sentencia con inobservancia de las reglas establecidas en el párrafo tercero del artículo 537.
+(Así reformado el inciso anterior por el artículo único de la ley N° 9884 del 20 de agosto del 2020)
 (Así reformado por el artículo 2° de la ley N° 9343 del 25 de enero de 2016, “Reforma Procesal Laboral”.)
