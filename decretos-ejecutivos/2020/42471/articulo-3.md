@@ -1,0 +1,4 @@
+Artículo 3.- Ejecución del procedimiento de urgencia. Para la ejecución del presente procedimiento de urgencia, la Dirección de Logística y la Unidad de Donación confeccionarán un cronograma de trabajo para donaciones de vehículos dentro de los cinco días hábiles, posteriores a la publicación de este Decreto.
+Dicho cronograma se confeccionará con base en las prioridades que determine la Dirección Ejecutiva de Consejo de Seguridad Vial, valorando las necesidades y recomendaciones de la Dirección General de Policía de Tránsito del Ministerio de Obras Públicas y Transportes.
+El cronograma deberá ser presentado ante la Dirección Ejecutiva del Consejo de Seguridad Vial, la cual tendrá cinco días hábiles para hacer cualquier ajuste y/o modificación y la aprobación del mismo.
+Este cronograma podrá ser modificado por la Dirección Ejecutiva, con fundamento en razones de interés público.

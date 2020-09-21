@@ -1,0 +1,1 @@
+Artículo 6.-Derogatoria. Se deroga el Decreto Ejecutivo N° 40089- MOPT del 19 de diciembre de 2016, denominado “Procedimiento de urgencia para la donación de los vehículos detenidos por infracción a la legislación de transito que se encuentra a la orden de la autoridad administrativa del Ministerio de Obras Públicas y Transportes y del Consejo de Seguridad Vial”.

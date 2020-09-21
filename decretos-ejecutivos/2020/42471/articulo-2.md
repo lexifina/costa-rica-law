@@ -1,0 +1,3 @@
+Artículo 2.- Plazo de Ejecución. Este procedimiento se aplicará durante un plazo de veinticuatro meses contados a partir de su publicación.
+Durante ese plazo, la Unidad de Donación y Remate de Vehículos Detenidos de la Dirección de Logística del Consejo de Seguridad Vial, (en adelante Unidad de Donación) ejecutará todo lo concerniente al cumplimiento y evaluación del procedimiento para la ejecución de las donaciones de los vehículos aptos para donar, rindiendo un informe cuatrimestral a la Dirección Ejecutiva de dicho Consejo.
+El plazo se podrá prorrogar por un periodo idéntico, mediante la comunicación oficial debidamente notificada al Jerarca del Consejo de Seguridad Vial, por el Ministro de Obras Públicas y Transportes.

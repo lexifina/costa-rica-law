@@ -1,0 +1,2 @@
+Artículo 5.- Personal para la ejecución del procedimiento. Se autoriza al Consejo de Seguridad Vial, para que bajo el sistema de plazas especiales y mediante las solicitudes de estilo, siguiendo los lineamientos de la Secretaría Técnica de la Autoridad Presupuestaria del Ministerio de Hacienda, pueda en razón de necesidades justificadas, requerir el aumento de plazas que resulten imperiosas para ejecutar el procedimiento aquí definido.
+También se podrá plantear el cambio de la especialidad de las plazas, si de acuerdo a la dinámica del procedimiento, ello se justifica.
