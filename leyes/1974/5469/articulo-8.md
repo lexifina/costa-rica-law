@@ -1,3 +1,1 @@
-Artículo 8º.- El Poder Ejecutivo reglamentará la presente ley de
-común acuerdo con la Corporación Municipal interesada y el Instituto
-Costarricense de Turismo.
+Artículo 8º.- (Derogado por el artículo 20 de la ley de Creación del Parque Nacional Isla San Lucas, N° 9892 del 24 de agosto del 2020)

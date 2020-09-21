@@ -1,4 +1,1 @@
-Artículo 3º.- La Municipalidad podrá hacer dicha explotación por sí
-misma o por licitación pública. En este último caso la adjudicación debe
-hacerse necesariamente a la mejor oferta, a juicio de la Municipalidad,
-que se reciba de empresas de capital nacional.
+Artículo 3º.- (Derogado por el artículo 20 de la ley de Creación del Parque Nacional Isla San Lucas, N° 9892 del 24 de agosto del 2020)
