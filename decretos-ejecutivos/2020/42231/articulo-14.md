@@ -1,0 +1,2 @@
+Artículo 14°.-Registro de gestiones La Contraloría llevará y mantendrá una matriz de casos actualizada con un registro de control y seguimiento de toda inconformidad, consulta, denuncia, sugerencia y/o felicitación recibida, resumiéndose los resultados y el plazo en días hábiles requeridos para su solución.
+Este registro servirá para la elaboración del informe anual que se ha de presentar a MIDEPLAN.

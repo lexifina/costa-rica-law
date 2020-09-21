@@ -1,0 +1,1 @@
+Artículo 18°.—Continuidad del Servicio Público. En ningún caso las gestiones que planteen los usuarios (as) o gestionantes pueden afectar la continuidad, calidad y atención del servicio del Ministerio de Hacienda.
