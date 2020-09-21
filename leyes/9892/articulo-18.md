@@ -1,0 +1,3 @@
+ARTÍCULO 18- Autorización para donar y subvencionar. Se autoriza a todo el sector público estatal, no estatal y financiero para que haga donaciones, inversiones e incluya subvenciones presupuestarias a favor del Parque Nacional Isla San Lucas.
+El Instituto Costarricense de Turismo (ICT) podrá transferir recursos económicos a la Junta Directiva del Parque Nacional Isla San Lucas para la realización de sus inversiones en desarrollo y actividades ordinarias; asimismo, podrá diseñar y realizar la promoción y el mercadeo para la visitación del parque.
+Podrá recibir, la Junta Directiva, donaciones de parte de organismos internacionales y gobiernos extranjeros interesados en coadyuvar en los fines del parque.

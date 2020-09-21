@@ -1,0 +1,1 @@
+ARTÍCULO 19- Autorización para créditos y préstamos. Para cumplir con sus objetivos, la Junta podrá concertar créditos y o préstamos, con entidades públicas o privadas, nacionales o extranjeras, siempre sujeta a los controles y las disposiciones de la Ley 8131, Ley de Administración Financiera de la República y Presupuestos Públicos, de 18 de setiembre de 2001.

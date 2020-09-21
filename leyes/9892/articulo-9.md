@@ -1,0 +1,15 @@
+ARTÍCULO 9- Cometidos y potestades. La Junta Directiva del Parque Nacional Isla San Lucas tendrá las siguientes atribuciones:
+a) Definir las estrategias y políticas tendientes a la consolidación y el desarrollo del parque.
+b) Contribuir con la protección y conservación ambiental del parque nacional.
+c) Establecer los lineamientos de protección, restauración y administración de las edificaciones históricas, desarrollando instalaciones y servicios destinados al descanso y el esparcimiento de los visitantes, la habilitación y accesibilidad de las vías terrestres y marítimas, las construcciones portuarias y, en general, la dotación de todos los servicios básicos.
+d) Definir las actividades turísticas sostenibles ambientalmente, sean comerciales, de transporte, deportivas, artísticas o culturales, que incentiven la atracción turística y la visitación a la isla.
+e) Aprobar los objetivos estratégicos para el mercadeo y la promoción necesarios para dar a conocer el Parque Nacional Isla San Lucas, tanto dentro como fuera del país.
+f) Otorgar la aprobación de las autorizaciones, los permisos de uso y las concesiones para llevar a cabo obras y servicios que se presten en la Zona turística.
+En el caso de las obras relacionadas con las áreas declaradas patrimonio, se deberá coordinar con el Ministerio de Cultura.
+g) Aprobar el plan maestro del Parque Nacional, así como los programas, planes y presupuestos correspondientes.
+h) Aprobar la estructura administrativa que se requiera para la gestión institucional del parque.
+i) Aprobar, renovar, modificar o revocar todo fideicomiso relativo al Parque Nacional Isla San Lucas, así como todo tipo de contratos y convenios con entidades y personas, públicas o privadas. Deberá determinar los precios de entrada al parque nacional, así como aprobar los contratos de los diversos sistemas de reservación y compra.
+j) Aprobar la utilización de las figuras de concesión de obra pública con servicio público y contratación de mutuo beneficio con entidades sin fines de lucro.
+k) Llevar a cabo cualquier otro tipo de actuación necesaria para asegurar la buena marcha del Parque Nacional Isla San Lucas y la consecución de sus fines.
+En materia de conservación y preservación del patrimonio histórico-arquitectónico prevalecerá el criterio del Centro de Investigación y Conservación del Patrimonio Cultural del Ministerio de Cultura y para la protección de la vida silvestre y conservación de la biodiversidad de la isla prevalecerá el criterio técnico del Sistema Nacional de Áreas de Conservación (Sinac). Ante requerimiento de la Junta Directiva, dichas entidades brindarán sus criterios de la forma más expedita posible.
+(Nota de Sinalevi: Mediante resolución de la Sala Constitucional N° 012817 del 31 de mayo de 2023, se interpretó el párrafo anterior en el sentido de que en aquellas decisiones que se refieren a la materia ambiental y al patrimonio histórico arquitectónico, ese órgano colegiado deberá consultar de previo a los órganos que ahí se citan, cuyos criterios -en sus respectivas materias- serán obligatorios para la Junta Directiva.)

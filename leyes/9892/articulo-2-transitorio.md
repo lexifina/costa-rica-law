@@ -1,0 +1,2 @@
+TRANSITORIO II- Mientras no se haya constituido el fideicomiso al que se refiere la presente ley o durante los períodos en que este llegue a quedar sin efecto, la Junta Directiva llevará a cabo todas las labores correspondientes mediante las facultades que esta y otras leyes le concedan.
+El plazo para iniciar las gestiones tendientes a contratar el fideicomiso no podrá exceder de noventa días naturales a partir de la vigencia de esta ley.
