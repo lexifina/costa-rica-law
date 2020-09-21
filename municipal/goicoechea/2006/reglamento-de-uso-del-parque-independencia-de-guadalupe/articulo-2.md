@@ -1,2 +1,2 @@
-Artículo 2º—Toda actividad de carácter público (política, religiosa y afines) a realizarse en el Parque de la Independencia, deberá contar con la respectiva licencia o permiso extendido por el Concejo Municipal y presentar un croquis en que se indique la distribución de las actividades, respetándose en todo momento las zonas enzacatadas.
-(Así reformado mediante sesión extraordinaria N° 16 del 22 de abril del 2013 y definitivamente aprobado en sesión N° 23 del 17 de octubre de 2013)
+Artículo 2º—Toda actividad de carácter público (política, religiosa y afines) a realizarse en el Parque de la Independencia de Guadalupe (Santiago Jara), deberá contar con la respectiva licencia o permiso extendido por la oficina de la Alcalde Municipal y presentar un croquis en el que se indique la distribución de las actividades respetándose en todo momento las zonas enzacatadas.
+(Así reformado mediante sesión ordinaria N° 38-2020 del 21 de setiembre de 2020)

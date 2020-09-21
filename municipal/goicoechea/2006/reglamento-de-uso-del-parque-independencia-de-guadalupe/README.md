@@ -15,3 +15,4 @@ Reglamento de Uso del Parque Independencia de Guadalupe
 | --- | --- | --- |
 | 1 | 2006-06-14 | la propia norma |
 | 2 | 2013-10-17 | Reglamento municipal 23 (2013-10-17) |
+| 3 | 2020-09-21 | Reglamento municipal 38 (2020-09-21) |
