@@ -15,3 +15,4 @@ Autorización ingreso de personas extranjeras al país bajo categoría migratori
 | --- | --- | --- |
 | 1 | 2020-06-01 | la propia norma |
 | 2 | 2020-09-08 | Resolución 130 (2020-09-08) |
+| 3 | 2020-09-22 | Resolución 137 (2020-09-22) |

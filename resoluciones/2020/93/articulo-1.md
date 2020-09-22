@@ -1,4 +1,6 @@
+(Derogado)
 DIRECCIÓN GENERAL DE MIGRACIÓN Y EXTRANJERÍA
+(Esta norma se dejó sin efecto por el resultando sétimo de la resolución N° D.JUR-137-09-2020-ABM del 22 de setiembre del 2020, “Autorización ingreso de personas extranjeras al país bajo categoría migratoria de No Residentes subcategoría Personal de Medios de Transporte Internacional de Pasajeros y Mercancías según el artículo 87 inciso 5) Ley General de Migración y Extranjería”)
 ASESORÍA JURÍDICA
 Resolución Nº D. JUR-093-05-2020-JM
 Dirección General de Migración y Extranjería.-San José, al ser las once horas del dos de junio de mayo de dos mil veinte. Se adecuan y actualizan medidas administrativas para el cumplimiento del Decreto Ejecutivo N° 42238-MGP-S, del 17 de marzo 2020 y sus reformas, con relación a la autorización de ingreso de personas extranjeras al país bajo la categoría migratoria de No Residentes, subcategoría “Personal de Medios de Transporte Internacional de Pasajeros y Mercancías” establecida por el artículo 87 inciso 5) de la Ley General de Migración y Extranjería N°8764.
