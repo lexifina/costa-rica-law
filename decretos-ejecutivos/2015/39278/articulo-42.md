@@ -1,1 +1,3 @@
-Artículo 42.- Aprobación y giro de fondos. Una vez que los proveedores entreguen a FODEMIPYME los proyectos de servicios de desarrollo empresarial, cumpliendo con todas las formalidades establecidas, FODEMIPYME tiene un plazo de 30 días naturales para su respectiva aprobación.
+Artículo 42.- Aprobación y giro de fondos. Una vez que los proveedores entreguen a FODEMIPYME los proyectos de servicios de desarrollo empresarial, cumpliendo con todas las formalidades establecidas, FODEMIPYME tiene un plazo de 30 días naturales a partir de la recepción de los proyectos para remitirlos a la Junta Directiva Nacional para su respectiva aprobación.
+Los referidos proveedores deberán estar registrados en el Registro de Proveedores de Desarrollo Empresarial del MEIC, conforme al artículo 11 del Decreto Ejecutivo N°39295-MEIC del 22 de junio de 2015, Reglamento a la Ley 8262.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 42663 del 22 de setiembre del 2020)

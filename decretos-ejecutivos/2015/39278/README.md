@@ -15,3 +15,4 @@ Reglamento al Fondo Especial para el Desarrollo de las Micros, Pequeñas y Media
 | --- | --- | --- |
 | 1 | 2015-11-17 | la propia norma |
 | 2 | 2016-07-19 | Decreto Ejecutivo 39837 (2016-07-19) |
+| 3 | 2020-09-22 | Decreto Ejecutivo 42663 (2020-09-22) |
