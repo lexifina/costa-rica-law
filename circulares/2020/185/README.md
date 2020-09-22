@@ -13,3 +13,4 @@ Tiempo de restablecimiento de servicios de las limpiezas según caso identificad
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-09-01 | la propia norma |
+| 2 | 2020-09-22 | Circular 203 (2020-09-22) |
