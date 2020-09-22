@@ -1,1 +1,0 @@
-Artículo 5º—El estudiante deberá presentar la solicitud de préstamo con la debida anticipación, que le permita a la Sección de de Crédito de FAESUTP, analizar y dictaminar las condiciones de elegibilidad.

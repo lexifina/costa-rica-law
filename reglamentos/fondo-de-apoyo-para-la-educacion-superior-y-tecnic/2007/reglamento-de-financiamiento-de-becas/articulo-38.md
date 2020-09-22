@@ -1,1 +1,0 @@
-Artículo 38.—La solicitud de un cambio de un primer grado hipotecario a un segundo o tercero, o por otra garantía no hipotecaria, es resuelta por el Consejo Asesor Académico y Técnico, conforme a lo que establece este reglamento.

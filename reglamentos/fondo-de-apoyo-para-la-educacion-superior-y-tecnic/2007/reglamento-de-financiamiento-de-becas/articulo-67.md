@@ -1,2 +1,0 @@
-Artículo 67.—El período de prórroga de pago se considera desde la fecha de la última cuota pagada en condiciones normales y registradas en el sistema, hasta el último día del mes anterior a la fecha en que el cliente reanude de nuevo los pagos de las cuotas mensuales; para lo cual deberá haber pagado al menos doce cuotas del plan de amortización y no deberá de contar con cuotas vencidas al momento de la solicitud de la prórroga de pago.
-(Así adicionado mediante publicación en La Gaceta N° 143 del 26 de julio del 2016)

@@ -1,3 +1,0 @@
-Artículo 32.—FAESUTP acepta que sólo uno de los fiadores, por operación, presente ingresos provenientes de actividades propias, según certificación de ingresos de los últimos doce meses a la fecha de la solicitud de crédito, extendida por un Contador Público Autorizado.
-El fiador con ingresos propios sólo puede cubrir hasta el 10% del monto aprobado del préstamo -independientemente de sus ingresos- y excepcionalmente, hasta un 15%, a juicio del Consejo Asesor Académico y Técnico.
-El Consejo Asesor Académico y Técnico queda facultado para solicitar la información adicional que considere indispensable.

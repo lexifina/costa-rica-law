@@ -1,1 +1,0 @@
-Artículo 52.—Los desembolsos suspendidos por la Sección de Crédito y los no tramitados por el prestatario, podrán ser autorizados, distribuidos entre los restantes desembolsos o reprogramados, a solicitud escrita de éste, de acuerdo con el análisis y dictamen resuelto por Acuerdo Administrativo del Consejo Asesor Académico y Técnico.
