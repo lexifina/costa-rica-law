@@ -1,1 +1,0 @@
-Artículo 32.—El Departamento de Secretaría del Concejo Municipal coordinará directamente con la Presidencia o Vicepresidencia para el traslado de las funcionarias que les corresponda cumplir con el ejercicio de sus labores en las sesiones del Concejo Municipal, únicamente los días de sesión a sus respectivas estaciones de bus debido a la peligrosidad de la zona.

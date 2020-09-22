@@ -1,1 +1,0 @@
-Artículo 65.—La Sección de la Seguridad Municipal, bajo la responsabilidad del jefe, llevará los registros que permitan conocer el estado de los vehículos antes y después de cada servicio y todos los datos necesarios para el adecuado control del uso de los mismos, informando al Jefe de la Sección de transporte o encargado del equipo Automotor asignado cualquier anomalía.

@@ -1,2 +1,0 @@
-Artículo 6º—Del equipo automotor. Se prohíbe en esta municipalidad, vehículos de uso discrecional. No se tendrán vehículos asignados a ninguna dependencia municipal que no sea a la Sección de Transportes o las áreas técnicas operativas que requieran equipo automotor para el desarrollo de sus funciones a excepción de los vehículos asignados a la Alcaldía, Vicealcaldía, Presidencia y Vicepresidencia.
-(Así reformado en sesión N° 151 del 25 de abril de 2016)

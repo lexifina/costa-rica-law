@@ -1,1 +1,0 @@
-Artículo 70.—El Funcionario municipal que conforme al artículo 139 de la Ley de Transito por vías Públicas Terrestres y Seguridad Vial, lleguen a perder los puntos y suspensión de la licencia de conducción que acredita al funcionario municipal como conductor y cuya figura fue contratado, será despedido sin responsabilidad patronal, una vez se cumpla con el Debido Proceso.
