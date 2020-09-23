@@ -18,3 +18,4 @@ Lineamientos que regulan la aplicación del artículo 6 de la Ley N° 8131, cons
 | 3 | 2007-09-21 | Decreto Ejecutivo 34040 (2007-09-21) |
 | 4 | 2012-03-29 | Decreto Ejecutivo 37101 (2012-03-29) |
 | 5 | 2016-03-17 | Decreto Ejecutivo 39685 (2016-03-17) |
+| 6 | 2020-09-23 | Decreto Ejecutivo 42645 (2020-09-23) |

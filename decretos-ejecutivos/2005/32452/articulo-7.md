@@ -5,8 +5,8 @@ b) Transporte en el exterior.
 c) Viáticos en el exterior.
 d) Gastos de representación personales.
 e) Gastos de representación institucionales.
-f) Servicios de Gestión y Apoyo, para que el Patronato Nacional de la Infancia brinde asistencia técnica y protección a la niñez, la adolescencia y a la familia, en situación de riesgo.
-(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 37101 del 29 de marzo del 2012)
+f) Servicios de Gestión y Apoyo, excepto para que el Patronato Nacional de la Infancia brinde asistencia técnica y protección a la niñez, la adolescencia y a la familia, en situación de riesgo.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 42645 del 23 de setiembre del 2020)
 g) Información, excepto la que se realice para promocionar a Costa Rica como marca destino-país.
 h) Publicidad y Propaganda, excepto la publicidad para promocionar a Costa Rica en el interior y en el exterior desde la perspectiva de la construcción de la marca destino-país y aquella realizada por el Patronato Nacional de la Infancia en procura del fortalecimiento y protección de la niñez, la adolescencia y la familia dentro de los mejores valores tradicionales del ser costarricense.
 (Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 37101 del 29 de marzo del 2012)
