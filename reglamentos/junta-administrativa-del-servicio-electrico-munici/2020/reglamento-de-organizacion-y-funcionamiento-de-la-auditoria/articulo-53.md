@@ -1,0 +1,1 @@
+Artículo 53.- Comunicación de resultados: El Auditor Interno y su equipo de trabajo deberán comunicar los resultados a las partes involucradas, según el documento “PECI proceso de estudios de Control Interno”; previo a su comunicación oficial; en el caso de las relaciones de hechos, se desarrollarán según estime conveniente el Auditor Interno.

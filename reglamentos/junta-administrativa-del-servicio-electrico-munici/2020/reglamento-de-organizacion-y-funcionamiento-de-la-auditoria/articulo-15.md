@@ -1,0 +1,3 @@
+Artículo 15.- Pericia y debido cuidado profesional: Los colaboradores de la Auditoría Interna están obligados a realizar su gestión con el debido cuidado profesional, habilidad, juicio profesional y experiencia que lo acredita.
+El personal designado para la ejecución de cada trabajo deberá poseer los conocimientos, técnicas y habilidades para la aplicación de aquellas metodologías establecidas por el Auditor Interno para una adecuada realización de la actividad.
+El Auditor Interno puede obtener asesoramiento y asistencia competentes en caso de que los auditores carezcan de los conocimientos, las aptitudes u otras competencias necesarias para llevar a cabo la totalidad o parte del trabajo, lo anterior por medio de contratación de recursos externos.
