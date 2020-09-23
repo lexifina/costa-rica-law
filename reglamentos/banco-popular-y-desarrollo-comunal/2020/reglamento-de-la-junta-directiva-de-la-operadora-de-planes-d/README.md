@@ -14,3 +14,4 @@ Reglamento de la junta directiva de la Operadora de Planes de Pensiones Compleme
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-08-17 | la propia norma |
+| 2 | 2020-09-23 | Reglamento 611 (2020-09-23) |
