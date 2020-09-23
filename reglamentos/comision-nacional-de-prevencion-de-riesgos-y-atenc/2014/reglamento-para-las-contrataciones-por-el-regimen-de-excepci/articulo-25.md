@@ -1,1 +1,0 @@
-Artículo 25.—La contratación directa y las autorizadas por la Contraloría General de la República se utilizarán bajo los supuestos que están establecidos en la Ley y Reglamento de Contratación Administrativa y las disposiciones sobre la cuantía que establece la Contraloría General de la República.

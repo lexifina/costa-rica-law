@@ -1,1 +1,0 @@
-Artículo 48.—De las derogatorias. El presente Reglamento deroga el Reglamento para el funcionamiento para la Proveeduría Institucional de la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias, publicado en La Gaceta N° 172 del 03 de setiembre de 2009.

@@ -1,1 +1,0 @@
-Artículo 41.—El Presidente de la Comisión es el funcionario competente para adjudicar las contrataciones por emergencia en la fase de reconstrucción o en quien éste delegue su competencia de forma expresa por razones de conveniencia y oportunidad, con las obligaciones y limitaciones que establece la LGAP.

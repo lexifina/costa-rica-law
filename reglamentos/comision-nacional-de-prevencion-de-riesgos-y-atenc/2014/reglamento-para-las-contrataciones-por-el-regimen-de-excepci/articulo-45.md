@@ -1,2 +1,0 @@
-Artículo 45.—Los procedimientos administrativos de rescisión, resolución y determinación de multas deberán ser tramitados por la Unidad de Proveeduría Institucional.
-(Corregido mediante Fe de Erratas publicada en La Gaceta N° 175 del 11 de setiembre del 2014, página N° 68. Anteriormente indicaba: "Los procedimientos administrativos de rescisión, resolución y determinación de multas deberán ser tramitados por la Unidad Ejecutora")

@@ -1,1 +1,0 @@
-Artículo 36.—La etapa de reconstrucción de la zona afectada por la emergencia inicia con la aprobación, por parte de la Junta Directiva del Plan General de la Emergencia, según lo establecido en la Ley Nacional de Emergencias y Prevención del Riesgo.

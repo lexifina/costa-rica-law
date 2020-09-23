@@ -1,1 +1,0 @@
-Artículo 29.—La firma digital de los contratos por parte de los funcionarios facultados para ello constituirá la autorización para que el mismo se ejecute, por lo que será su responsabilidad la verificación del cumplimiento del ordenamiento jurídico aplicable.

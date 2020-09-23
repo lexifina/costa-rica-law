@@ -1,1 +1,0 @@
-Artículo 16.—Control de Activos. Funciones generales. Mantener un registro actualizado del patrimonio de la Institución, debiendo valorar cada uno de los bienes o elementos que en ellos figuren, con el precio que corresponda de acuerdo con las disposiciones técnicas que al respecto dicte la Contabilidad Nacional.
