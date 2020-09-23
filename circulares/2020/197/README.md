@@ -13,3 +13,4 @@ Protocolo para la Gestión Institucional de Equipos de Protección Personal por 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-09-09 | la propia norma |
+| 2 | 2020-09-23 | Circular 205 (2020-09-23) |

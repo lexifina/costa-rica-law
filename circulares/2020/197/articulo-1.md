@@ -1,5 +1,10 @@
 Nº 197-2020
-(Nota de Sinalevi: Esta norma fue reiterada mediante sesión N° 91-2020 del 17 de setiembre de 2020, publicada en el Boletín Judicial N° 208 del 29 de ocubre del 2020, mediante circular N° 209-2020 del 13 de octubre de 2020)
+(Nota de Sinalevi: Esta norma fue reiterada mediante circular N° 86-2021 del 28 de abril de 2021, y publicada en el Boletín Judicial N° 95 del 19 de mayo de 2021)
+(Nota de Sinalevi: Esta norma fue reiterada mediante sesión N° 91-2020 del 17 de setiembre de 2020, publicada en el Boletín Judicial N° 208 del 29 de octubre del 2020, mediante circular N° 209-2020 del 13 de octubre de 2020)
+(Nota de Sinalevi: Mediante sesión N° 92-2020 del 22 de setiembre de 2020 publicada en el Boletín Judicial N° 225 del 23 de noviembre del 2020, mediante circular N° 205-2020 del 23 de setiembre del 2020 se dispuso aprobar la actualización del protocolo DGH-007: Gestión Institucional de equipos de protección personal por COVID-19, estableciendo lo siguiente: “ “En atención al documento emitido por el Ministerio de Salud con fecha del 17 de setiembre de los corrientes y denominado: LS-PG-016. Lineamientos General sobre el uso de mascarilla y caretas a nivel comunitario en el marco de la alerta por COVID-19 (versión 6), se presenta la tercera versión del protocolo DGH-007: Gestión Institucional de equipos de protección personal por COVID-19, el cual fue comunicado en su segunda versión mediante circular 197-2020.
+Cabe indicar que la diferencia de esta nueva versión de protocolo con la anterior radica fundamentalmente, en la excepción del uso obligatorio de la mascarilla en las siguientes condiciones:
+1. Cuando la persona se encuentra sola en un recinto (oficinas u espacios similares).
+2. Otras condiciones de salud adicionales a la discapacidad física, motora y cognitiva, que no permitan el uso de la mascarilla. En esos casos, se deberá contar con el dictamen médico respectivo que acredite el padecimiento y la recomendación del caso, con el fin que el Subproceso Salud Ocupacional efectúe la valoración correspondiente y establezca la medida de protección alterna”.)
 Asunto: Protocolo para la Gestión Institucional de Equipos de Protección Personal por Covid 19.
 A LOS DESPACHOS JUDICIALES DEL PAÍS
 SE LES HACE SABER QUE:
@@ -116,7 +121,6 @@ Lineamientos para utilización del equipo de protección personal según puesto
 5.1 La recomendación de uso de equipo de protección personal según puesto de trabajo o exposición se indica en la tabla 1.
 5.2 En el caso de contratistas y personas usuarias, deberán utilizar mascarilla mientras se mantenga dentro de las instalaciones judiciales realizando alguna gestión. Cabe indicar que los mismos deberán ser por adquisición propia.
 Cuadro 1. Equipos de Protección personal por utilizar según el tipo de puesto y nivel de exposición laboral.
-[imagen]
 Nivel de Exposición Laboral1 | Puesto | Equipo de Protección
 Nivel 2 | Choferes | Mascarilla
 Jueces, Fiscales, Defensores Públicos durante audiencias y juicios | Mascarilla
