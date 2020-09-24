@@ -1,0 +1,2 @@
+ARTÍCULO 3°.- Refórmese el artículo 8° del Decreto Ejecutivo número 42238-MGP-S del 17 de marzo de 2020, para que en adelante se lea de la siguiente manera:
+“ARTICULO 8º.- Se faculta a la Dirección General de Migración y Extranjería y a la Dirección General de Aduanas para que adopten en el ámbito de sus competencias las medidas alternativas o de excepción al presente Decreto Ejecutivo, bajo estricto motivo de interés público o por caso de humanidad, con la respectiva coordinación con el Ministerio de Salud para el abordaje relacionado con el COVID-19.”
