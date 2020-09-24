@@ -11,4 +11,5 @@ DG-133-2010.—Emitir la instrumentación y guía de técnica (fórmulas y guía
 DG-144-2010.—Valoración y asignación a la Escala de sueldos de la Administración Pública, a clases de puestos docentes correspondientes a la Enseñanza Indígena.
 (*)DG-145-2010.—Pago del incentivo por laborar en zonas de menor desarrollo socioeconómico, para personal docente.
 (*) (Mediante resolución N° SC-010-2017 del 21 de julio de 2017, se emitió la resolución N° DG-095-2017, la cual modifica el artículo 9º de la Resolución DG-145-2010 de las 8 horas del 6 de mayo del 2010, para que se lea: Artículo 9º-. Para todos los efectos, el “pago adicional” que regula el presente cuerpo normativo se considera salario. Lo dispuesto en la presente resolución rige a partir del 10 de febrero del año 2017 y queda sujeto a disponibilidad presupuestaria.)
+(Nota de Sinalevi: Mediante resolución N° DG-AV-011-2020 del 24 de setiembre del 2020, se emitió la norma DG-085-2020, la cual modifica los artículos 4, 5 y 6 de la Resolución DG-145-2010 del 06 de mayo del 2010)
 DG-146-2010.—Revaloración de los puestos de Médico Veterinario, y se mantienen los porcentajes y montos de incentivos.
