@@ -9,3 +9,5 @@ g) Registrar, regular y supervisar los medicamentos veterinarios y los alimentos
 h) Procurar el respeto y la implementación de los diferentes acuerdos internacionales, suscritos por Costa Rica en materia de su competencia, según los fines y objetivos de esta Ley.
 i) Establecer los mecanismos de coordinación entre las diferentes instituciones nacionales y los organismos internacionales involucrados con la materia de esta Ley.
 j) Establecer los mecanismos de participación de los grupos organizados y los usuarios de los servicios que brinda el Senasa en los planes y las acciones de su competencia.
+k) Fomentar el desarrollo pecuario y la preservación de las prácticas tradicionales que, en atención al artículo 1 de la Constitución Política, garanticen un enfoque multiétnico y pluricultural.
+(Así adicionado el inciso anterior por el artículo 2° de la Ley para la protección de la micro, pequeña y mediana producción pecuaria, N° 9876 del 27 de agosto del 2020)
