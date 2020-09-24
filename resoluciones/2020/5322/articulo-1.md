@@ -30,68 +30,71 @@ TERCERO: La lista de países habilitados como puntos de procedencia para el ingr
 2. Canadá
 3. Confederación Suiza
 4. Estado del Vaticano
-5. Gran Ducado de Luxemburgo
-6. Irlanda
-7. Japón
-8. Nueva Zelanda
-9. Principado de Liechtenstein
-10. Principado de Mónaco
-11. Reino Bélgica
-12. Reino de Dinamarca
-13. Reino de España
-14. Reino de los Países Bajos
-15. Reino de Noruega
-16. Reino de Suecia
-17. Reino de Tailandia
-18. Reino Unido de Gran Bretaña
-e Irlanda del Norte
-19. República Checa
-20. República Chipriota
-21. República de Austria
-22. República de Bulgaria
-23. República de Corea
-24. República de Croacia
-25. República de Eslovenia
-26. República de Estonia
-27. República de Finlandia
-28. República de Hungría
-29. República de Islandia
-30. República de Letonia
-31. República de Lituania
-32. República de Malta
-33. República de Polonia
-34. República de San Marino
-35. República de Singapur
-36. República Eslovaca
-37. República Federal de Alemania
-38. República Francesa
-39. República Helénica (Grecia)
-40. República Italiana
-41. República Oriental del Uruguay
-42. República Popular China
-43. República Portuguesa
-44. Rumanía
-45. Estados Unidos de América, solamente los siguientes estados:
-a) Arizona
-b) Colorado
-c) Connecticut
-d) Distrito de Columbia
-e) Maine
-f) Maryland
-g) Massachusetts
-h) Michigan
-i) Nueva Jersey
-j) Nueva York
-k) Nuevo Hampshire
-l) Nuevo México
-m) Oregón
-n) Pensilvania
-o) Rhode Island
-p) Vermont
-q) Virginia
-r) Washington
-s) Wyoming
-(Así reformada la disposición tercera anterior mediante resolución N° MS-DM-RM-5662-2020 de 11 de setiembre del 2020)
+5. Estados Unidos Mexicanos
+6. Gran Ducado de Luxemburgo
+7. Irlanda
+8. Jamaica
+9. Japón
+10. Nueva Zelanda
+11. Principado de Liechtenstein
+12. Principado de Mónaco
+13. Reino Bélgica
+14. Reino de Dinamarca
+15. Reino de España
+16. Reino de los Países Bajos
+17. Reino de Noruega
+18. Reino de Suecia
+19. Reino de Tailandia
+20. Reino Unido de Gran Bretaña e Irlanda del Norte
+21. República Checa
+22. República Chipriota
+23. República de Austria
+24. República de Bulgaria
+25. República de Corea
+26. República de Croacia
+27. República de Eslovenia
+28. República de Estonia
+29. República de Finlandia
+30. República de Hungría
+31. República de Islandia
+32. República de Letonia
+33. República de Lituania
+34. República de Malta
+35. República de Polonia
+36. República de San Marino
+37. República de Singapur
+38. República Eslovaca
+39. República Federal de Alemania
+40. República Francesa
+41. República Helénica (Grecia)
+42. República Italiana
+43. República Oriental del Uruguay
+44. República Popular China
+45. República Portuguesa
+46. Rumanía
+47. Estados Unidos de América, solamente los siguientes estados:
+a. Arizona
+b. California
+c. Colorado
+d. Connecticut
+e. Distrito de Columbia
+f. Maine
+g. Maryland
+h. Massachusetts
+i. Michigan
+j. Nueva Jersey
+k. Nueva York
+l. Nuevo Hampshire
+m. Nuevo México
+n. Ohio
+o. Oregón
+p. Pensilvania
+q. Rhode Island
+r. Vermont
+s. Virginia
+t. Washington
+u. Wyoming
+(Así reformada la disposición tercera anterior mediante resolución N° MS-DM-RM-5764-2020 del 24 de setiembre del 2020)
 CUARTO: La persona extranjera que opte por viajar vía aérea hacia Costa Rica bajo la categoría migratoria de No Residentes, subcategorías Turismo, deberá cumplir necesariamente las siguientes condiciones para ingresar al país:
 a) Contar con un seguro de viaje que cubra al menos los gastos de alojamiento y gastos médicos generados por la enfermedad COVID-19, ofrecido por alguna de las aseguradoras autorizadas por la Superintendencia General de Seguros en Costa Rica y debidamente registrado ante dicha autoridad; o bien deberá contar con un seguro vigente con cobertura internacional que cubra gastos médicos generados por la enfermedad COVID-19, gastos médicos mínimos equivalentes a los costos de internamiento en un hospital por el tiempo que requiera dicho internamiento y un mínimo de cobertura de 14 días por gasto de hospedaje. Para el caso de los seguros con cobertura internacional, el Instituto Costarricense de Turismo se encargará de verificar el cumplimiento de las condiciones mínimas establecidas en este apartado. Para ello, deberá establecer y coordinar un mecanismo de verificación que asegure la debida constatación de los respectivos requerimientos; además deberá difundir dicho mecanismo, según corresponda, para el conocimiento de las personas extranjeras. En caso de que el seguro con cobertura internacional no cumpla con alguno de dichos requisitos, la persona extranjera deberá adquirir un seguro de viaje ofrecido por alguna de las aseguradoras autorizadas por la Superintendencia General de Seguros en Costa Rica y debidamente registrado por dicha autoridad.
 b) Completar en línea el formulario epidemiológico denominado Pase de Salud, generado por el Ministerio de Salud. El formulario está disponible en el siguiente link: https://salud.go.cr
