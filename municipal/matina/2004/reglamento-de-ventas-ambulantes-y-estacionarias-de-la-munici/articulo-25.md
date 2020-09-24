@@ -1,1 +1,0 @@
-Artículo 25.—La Municipalidad esta obligada a enviar al Departamento de Empleo del Ministerio de Trabajo y Seguridad Social, las listas actualizadas de las personas que se les ha otorgado licencia de vendedor ambulante y estacionario, para que dicho Departamento pueda ofrecerles cuando se considere oportuno, un empleo compatible con sus posibilidades en una actividad productiva.
