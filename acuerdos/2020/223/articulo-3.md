@@ -1,0 +1,1 @@
+Artículo 3º—Para la implementación del presente acuerdo deberá el Departamento de Planificación Institucional, coordinar con el Departamento de Tecnologías de Información y Comunicación la revisión y actualización del manual respectivo para el proceso de aprobación de servicios en el SISPA.
