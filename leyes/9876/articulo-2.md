@@ -1,0 +1,7 @@
+ARTÍCULO 2- Se adicionan un inciso k) al artículo 2 y un artículo 51 bis a la Ley 8495, Ley General del Servicio Nacional de Salud Animal, de 6 de abril de 2006. Los textos son los siguientes:
+Artículo 2- Objetivos de la ley. La presente ley tiene como objetivos:
+[ ... ]
+k) Fomentar el desarrollo pecuario y la preservación de las prácticas tradicionales que, en atención al artículo 1 de la Constitución Política, garanticen unenfoque multiétnico y pluricultural.
+Artículo 51 bis- Documentación para el transporte en el territorio nacional. Las personas físicas o jurídicas, así como las compañías dedicadas al transporte en el territorio nacional, estarán obligadas a requerir de los interesados los documentos y requisitos que establecen la presente ley y sus reglamentaciones, antes de recibirlos a bordo. Los requisitos que se soliciten deberán ser acordes con la capacidad de transporte del vehículo y tomar en cuenta la distancia por recorrer.
+De no portar esos documentos, el Senasa podrá disponer el sacrificio de los animales, cuando esta situación implique un riesgo para la salud animal, la salud pública o la salud pública veterinaria, o la desnaturalización de los productos, según proceda. Lo anterior, sin perjuicio de cualquier otra medida sanitaria que la legislación disponga.
+Los gastos por la aplicación de las medidas anteriores correrán por cuenta del transportista, del particular o de su representante.
