@@ -1,0 +1,1 @@
+Artículo 32º. —Las funciones definidas en éste reglamento deben considerarse como las básicas y mínimas. Desde luego, cada Junta se adecua para aprovechar al máximo las capacidades de cada uno de sus miembros o para asumir las funciones de un miembro faltante mientras es sustituido el titular.

@@ -1,0 +1,1 @@
+Artículo 102º.—A efecto de respetar la Ley que pregona la Igualdad de Género, deberá el Comité de Deportes garantizarse una participación y representatividad femenina dentro de los Miembros que integran la Junta Directiva.

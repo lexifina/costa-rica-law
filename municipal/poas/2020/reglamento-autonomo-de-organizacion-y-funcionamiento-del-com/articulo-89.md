@@ -1,0 +1,1 @@
+Artículo 89º.—Antes de ingresar al recinto donde se realiza la asamblea, cada delegado debe demostrar su condición de delegado con la presentación de la cédula de identidad (o cédula de residencia, de amnistía o pasaporte para los extranjeros) vigente al día de la elección.

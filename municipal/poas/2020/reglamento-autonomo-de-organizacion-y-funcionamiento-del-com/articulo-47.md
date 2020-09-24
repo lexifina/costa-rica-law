@@ -1,0 +1,1 @@
+Artículo 47º.—El quórum es, naturalmente, de tres personas y para sesionar se siguen los mismos lineamientos que para tal efecto tiene la Junta Directiva. Los acuerdos se toman por mayoría simple con carácter de firme y se levantan actas de sus sesiones. En un plazo no mayor de quince días, las comisiones informan a la Junta Directiva de sus dictámenes.

@@ -1,0 +1,1 @@
+Artículo 66º.—Para renunciar al CCDR Poás, cualquiera de los mencionados debe enviar notificación por escrito a la Junta Directiva con un mes de anticipación. Este plazo puede variar en casos muy especiales.

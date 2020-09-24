@@ -1,0 +1,4 @@
+CAPÍTULO V
+De las sesiones, el orden del día, las actas, los acuerdos y los recursos
+Artículo 33º. —Los integrantes de cada Junta (Junta directiva, comités comunales, comisiones u otros) se reúnen en sesión ordinaria el día, hora y con la frecuencia acordados en la sesión inaugural. Extraordinariamente, se reúnen cuando sean convocados por el presidente o conjuntamente por tres de sus miembros. Todas las sesiones son públicas. Tanto los funcionarios municipales como las personas particulares pueden participar en las sesiones con carácter de asesores, tienen voz mas no voto.
+La Junta Directiva del CCDR Poás sesiona en las instalaciones del Polideportivo del cantón de Poás. Cada una de las otras juntas define la sede de sesiones. Estos lugares pueden ser cambiados en forma temporal por acuerdo de la mayoría de los miembros de cada junta.

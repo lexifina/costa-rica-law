@@ -1,0 +1,1 @@
+Artículo 9º— El Concejo Municipal autoriza el plan de desarrollo del Gobierno Local en materia deportiva y recreativa, así como también los planes anuales operativos presentados por el del Comité Cantonal y sus modificaciones, acorde con el presupuesto asignado. El Comité Cantonal vela para que el accionar de sus órganos se ajuste a estos parámetros.

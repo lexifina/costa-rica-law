@@ -1,0 +1,3 @@
+CAPÍTULO XII
+De las asambleas
+Artículo 85º—La Asamblea Cantonal se convoca para la elección de los dos representantes del área deportiva (comités comunales, grupos organizados y asociaciones deportivas o recreativas adscritos al CCDR Poás) ante la Junta Directiva del CCDR Poás. Las asambleas comunales se convocan para la formación de los comités comunales de deportes y recreación. Las asambleas se realizan bianualmente (las cantonales en febrero y las comunales en abril) y siempre que sea necesario sustituir a algún miembro de la Junta Directiva. Las asambleas se convocan con quince días de antelación y deber ser publicitadas y abiertas.

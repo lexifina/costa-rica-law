@@ -1,0 +1,1 @@
+Artículo 6º- Los integrantes de la Junta Directiva desempeñarán sus funciones de conformidad con la normativa legal vigente y serán responsables de cualquier actuación contraria a la misma, excepto en aquellos casos en donde de manera expresa y manifiesta hayan optado negativamente cualquier situación contraria al derecho del voto y así conste en actas.

@@ -1,0 +1,1 @@
+Artículo 37º.—El quórum es de cuatro miembros. Si el número de presentes no alcanza el quórum después de media hora de iniciada la sesión, esta se suspende. En el acta se anotan las razones de la suspensión y se indican los nombres de los Miembros de la Junta directiva presentes y los nombres de los ausentes y de cualquier particular que pudo ha haberse hecho presente.

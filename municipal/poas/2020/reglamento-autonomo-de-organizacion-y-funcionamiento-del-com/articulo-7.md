@@ -1,0 +1,1 @@
+Artículo 7º- Los miembros de la Junta Directiva y los integrantes de los demás Comités que integran el Comité Cantonal y los funcionarios del mismo si los hubiese, deberán ajustar sus actuaciones a las normas y procedimientos que señalan la leyes que rigen la materia y el presente Reglamento.

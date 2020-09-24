@@ -1,0 +1,1 @@
+Artículo 3º—El CCDR Poás es un ente que debe facilitar el desarrollo y la práctica de la recreación, del deporte y del deporte competitivo, mediante el acceso a los beneficios del deporte y la recreación de todas las personas. Todo lo anterior, a nivel cantonal, regional y nacional, promoviendo la identidad Poaseña.

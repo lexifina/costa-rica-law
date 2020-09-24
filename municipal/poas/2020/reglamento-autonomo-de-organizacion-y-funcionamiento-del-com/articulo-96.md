@@ -1,0 +1,2 @@
+Artículo 96º.—El escrutinio debe iniciarse inmediatamente después de entregadas todas las boletas de votación, verificando primero la autenticidad de la boleta. Son anuladas por el representante cantonal, con indicación al dorso del motivo de nulidad, todas las boletas en que no se pueda constatar la voluntad del elector o que no se encuentren selladas y firmadas.
+Se procede a separar los votos nulos, anulados, en blanco y los que recibió cada uno de los candidatos. Posteriormente el representante cantonal hace el recuento.

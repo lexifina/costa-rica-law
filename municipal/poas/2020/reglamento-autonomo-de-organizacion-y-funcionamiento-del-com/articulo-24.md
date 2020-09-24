@@ -1,0 +1,1 @@
+Artículo 24º. — Los miembros de la Junta Directiva del Comité Cantonal y los Comunales, o terceros que formen parte de las comisiones que se desinen según este Reglamento, no devengarán dietas, ni remuneración alguna por su servicio voluntario a favor del desarrollo del deporte y la recreación.

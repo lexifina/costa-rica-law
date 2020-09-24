@@ -1,0 +1,2 @@
+Artículo 93º.—Únicamente tienen derecho a voto los delegados. La intervención oral de los asistentes no puede exceder de cinco minutos y no puede cederse dicho derecho a persona alguna.
+Dicha intervención debe ser únicamente para efectos de la elección.

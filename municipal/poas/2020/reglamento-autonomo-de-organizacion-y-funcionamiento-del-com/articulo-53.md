@@ -1,0 +1,1 @@
+Artículo 53º.—Los miembros de los comités comunales deben cumplir con los requisitos de los artículos 7º y 8º de este reglamento. Podrán ser reelegidos por tres períodos consecutivos. No hay restricciones para la reelección no consecutiva.

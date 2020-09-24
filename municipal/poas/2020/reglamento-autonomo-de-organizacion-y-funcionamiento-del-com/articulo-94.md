@@ -1,0 +1,3 @@
+Artículo 94º.—La asamblea se inicia con la presentación de candidatos en forma personal o por recomendación. El nominado debe aceptar la postulación e indicar bajo fe de juramento, que conoce la normativa, las consecuencias legales respectivas, que cumple con los requisitos estipulados en éste reglamento y que no le alcanza ninguna de las prohibiciones indicadas a lo largo de éste reglamento y del artículo 7º, y de las siguientes:
+a) Para formar parte de la Junta Directiva del CCDR Poás se debe ser costarricense y cumplir con los artículos 10 y 11.
+b) Para formar parte de los comités comunales se debe residir en la comunidad y cumplir con las exigencias de los artículos 57 y siguientes de éste Reglamento.
