@@ -1,0 +1,1 @@
+Artículo 6º—El Departamento de Promoción recomendará en consulta con otras áreas de la Dirección de Mercadeo, a los funcionarios del ICT que se encargarán de la atención de cada feria. Esta recomendación deberá ser aprobada por la Gerencia General mediante el formulario para aprobación de gastos de viaje al exterior.

@@ -1,0 +1,1 @@
+Artículo 37.—Deróguese el Reglamento Regulaciones Generales para la Participación de la Empresa Privada en las Ferias Internacionales,” publicado en La Gaceta N° 53 del 14 de marzo del 2012. Modificado y adicionado por Junta Directiva en sesión ordinaria N° 6033 del día 25 de junio del 2018, según publicación en La Gaceta N° 130 del 18 de julio del 2018.

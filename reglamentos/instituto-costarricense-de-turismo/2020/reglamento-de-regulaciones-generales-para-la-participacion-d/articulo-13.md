@@ -1,0 +1,5 @@
+Artículo 13.—El formulario de inscripción estará disponible en línea hasta la fecha límite de inscripción ordinaria, de acuerdo a lo definido en el artículo 10.
+En caso de que una empresa manifieste su interés de participar en ferias internacionales en fechas posteriores a las establecidas, se considerará como una solicitud extemporánea, para lo cual podrá facilitársele acceso al formulario solo si se reúnen las siguientes condiciones:
+a) Que el espacio físico del stand de Costa Rica, permita la inclusión de más empresas sin afectar a las que realizaron la inscripción en el tiempo previsto.
+b) Que la solicitud se presente con treinta días naturales de anticipación a la realización de la feria, bajo el entendido de que el Área de Ferias Internacionales no podrá garantizar la inclusión de estas empresas en los catálogos de las ferias, ni la solicitud de credenciales.
+c) Que una vez aprobada su participación, cancele ante el ICT la cuota respectiva, en un plazo máximo de cinco días hábiles posteriores a la fecha de aprobación de la inscripción.

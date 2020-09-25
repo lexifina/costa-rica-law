@@ -1,0 +1,1 @@
+Artículo 5º—Corresponderá a la Junta Directiva, la aprobación del Plan de Ferias Internacionales que incluirá -entre otros aspectoslas ferias internacionales en que participará, los objetivos, las metas y los indicadores, de acuerdo al Plan Operativo Institucional, el Plan de Mercadeo y el Plan Estratégico Institucional.

@@ -1,0 +1,1 @@
+Artículo 30.—El coordinador tendrá plenos poderes de retirar del área de exhibición material que viole lo acordado en el artículo 28, o que promueva la explotación sexual comercial de niños, niñas y adolescentes, el desarrollo inmobiliario o que vaya en perjuicio de la imagen del país.
