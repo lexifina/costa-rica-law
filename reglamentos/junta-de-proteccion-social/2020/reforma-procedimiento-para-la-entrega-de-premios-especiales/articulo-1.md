@@ -1,0 +1,17 @@
+JUNTA DE PROTECCIÓN SOCIAL
+Comunica al público general la modificación de los artículos número 2, 4 y 7 del “Procedimiento para la entrega de premios especiales, con motivo del 175 ANIVERSARIO de la Institución para el año 2020, que será realizada mediante activación de fracciones de sorteos de Lotería Popular y Lotería Nacional a través del App JPS A SU ALCANCE” aprobada con acuerdo de Junta Directiva JD-660 correspondiente al Capítulo V), artículo 7) de la Sesión Ordinaria 54-2020 celebrada el 07 de setiembre del 2020 y oficio JPS-GG-1036-2020 del 11 de setiembre del 2020 de la Gerencia General.
+Artículo 2º—Definiciones
+Para efectos del presente procedimiento, se utilizarán los siguientes conceptos:
+Premios especiales: Consisten en premios en dinero y vehículos Suzuki Vitara 2020.
+Los vehículos cuentan con las siguientes características: combustible gasolina, transmisión automática, tracción 4x2, 1.600 cc, capacidad para 5 pasajeros, asientos combinados con cuero y tela, cinturones de seguridad para todos los pasajeros, control digital de aire-acondicionado, retrovisores auto-retractiles, cámara de reversa, control crucero, espejo central inteligente.
+El color del vehículo dependerá del inventario con que cuente la agencia en el momento de la entrega. El vehículo será entregado con los derechos de circulación cancelados y con la revisión técnica correspondiente y debidamente inscrito en el Registro Nacional a nombre de la persona favorecida.
+Participantes: Toda persona física mayor de 18 años, nacional o extranjera, que active a través y únicamente por el App JPS A SU ALCANCE al menos 2 fracciones de Lotería Popular o Lotería Nacional de los sorteos ordinarios y extraordinarios a realizarse del martes 09 de junio del 2020 y hasta el sorteo del martes 22 de setiembre del 2020.
+Tómbola electrónica: Tómbola generada con las activaciones que realizan las personas a través del App JPS A SU ALCANCE.
+Los ganadores se determinan de manera aleatoria a través de un sistema informático.
+Vendedor Autorizado de La Junta de Protección Social: son los que se encuentren activos en los sistemas institucionales. (Estado activo, es el estado que indica que un vendedor puede retirar las loterías).
+Sorteo: proceso de selección al azar de los favorecidos, el cual es debidamente fiscalizado por personal de la Junta de Protección Social y un juez contravencional.
+Artículo 4º—Detalle de los premios
+Entre todas las personas mayores de 18 años, sea nacional o extranjero, que activen al menos 2 fracciones de los sorteos a realizarse del martes 09 de junio del 2020 y hasta el sorteo del martes 22 de setiembre del 2020, se otorgarán en total 700 premios de ¢1.000.000,00 (un millón de colones con cero céntimos) y 2 vehículos Suzuki Vitara 2020. Todos estos premios se otorgarán de acuerdo a las mecánicas de sorteo indicadas en el artículo 5° del presente procedimiento.
+Artículo 7º—Caducidad
+Los premios especiales correspondientes a dinero y a los vehículos Suzuki Vitara 2020 que obtengan los ganadores podrán ser reclamados a partir del primer día hábil siguiente a la realización de cada sorteo y dentro del período de caducidad de 60 días naturales, establecido en el artículo 18 de la Ley Nº 8718.
+Se aclara que los ganadores serán citados por funcionarios del Departamento de Mercadeo en grupos de 20 personas por día en horas específicas para validar el premio correspondiente, esto como medida protocolaria para evitar la propagación por el Covid-19.
