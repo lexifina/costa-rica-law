@@ -1,1 +1,0 @@
-Artículo 5º—Corresponderá a la Junta Directiva del ICT, la aprobación de las ferias internacionales en las que la Institución participará, para ello el Proceso de Promoción con la debida antelación, recomendará las ferias internacionales, indicando los objetivos y la metas, de acuerdo al Plan Operativo Institucional, el Plan Nacional de Desarrollo Turístico y el Plan de Mercadeo.

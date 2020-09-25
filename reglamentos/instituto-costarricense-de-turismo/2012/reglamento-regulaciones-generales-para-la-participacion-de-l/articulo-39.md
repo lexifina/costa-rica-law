@@ -1,2 +1,0 @@
-Artículo 39.—El Departamento de Promoción enviará al Órgano Colegiado una vez al año, un informe general con el análisis de los resultados obtenidos durante cada período de ferias internacionales en que participa el ICT, en alineamiento al Plan Nacional de Desarrollo Turístico, al Plan de Mercadeo y al Plan Operativo Institucional y a fin de que se verifiquen los objetivos en ellos propuestos.
-(Así reformado mediante sesión N° 6033 del 25 de junio del 2018)

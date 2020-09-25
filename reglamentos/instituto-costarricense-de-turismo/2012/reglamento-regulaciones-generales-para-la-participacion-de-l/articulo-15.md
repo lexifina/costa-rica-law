@@ -1,4 +1,0 @@
-Artículo 15.—En caso que una empresa presente sus documentos en fechas posteriores a las establecidas, se considerara como una solicitud extemporánea, la cual sólo podrá aceptarse si se presentan las siguientes condiciones:
-a. Que el espacio físico del stand de Costa Rica, permita la inclusión de más empresas sin afectar a las que realizaron la inscripción en el tiempo previsto.
-b. Cuando la solicitud se presente con treinta días naturales de anticipación a la realización de la feria, bajo el entendido que la Unidad de Ferias Internacionales no podrá garantizar la inclusión de estas empresas en los catálogos de las ferias, ni la solicitud de credenciales.
-c. Que confirmada su participación cancele la cuota respectiva, en un plazo máximo de cinco días hábiles posteriores a la fecha de aprobación de inscripción.

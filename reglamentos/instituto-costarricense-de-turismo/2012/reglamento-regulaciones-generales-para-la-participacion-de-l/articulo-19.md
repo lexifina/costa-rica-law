@@ -1,1 +1,0 @@
-Artículo 19.—Posterior a la revisión de los documentos entregados por cada empresa, el Proceso de Promoción emitirá un comunicado de inscripción por empresa, en el que se informará vía fax o correo electrónico sobre ferias inscritas, su calificación, fechas de pago y cuota de participación.

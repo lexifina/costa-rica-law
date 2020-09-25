@@ -1,1 +1,0 @@
-Artículo 2°—El alcance de estas regulaciones comprende tanto a las empresas del sector privado que cuenten con Declaratoria Turística y/o Certificado de Sostenibilidad Turística, como a las organizaciones turísticas, que deseen participar conjuntamente con el Instituto Costarricense de Turismo, en cualquiera de las ferias internacionales incluidas dentro de la planeación anual.

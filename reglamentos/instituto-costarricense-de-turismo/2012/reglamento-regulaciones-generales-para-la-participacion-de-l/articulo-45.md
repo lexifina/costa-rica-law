@@ -1,1 +1,0 @@
-Artículo 45.—Deróguese el Reglamento denominado “Regulaciones Generales para la Participación de la Empresa Privada en los Eventos Internacionales”, publicado en La Gaceta Nº 223 del 19 de noviembre del 2002.

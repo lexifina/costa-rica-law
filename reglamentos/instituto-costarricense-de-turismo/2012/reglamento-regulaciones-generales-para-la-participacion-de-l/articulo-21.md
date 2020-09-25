@@ -1,1 +1,0 @@
-Artículo 21.—Las empresas inscritas deberán realizar el pago del 100% de la cuota de participación, en los plazos indicados por el Proceso de Promoción, utilizando cualquiera de las formas de rendir garantías que autoriza el Reglamento a la Ley de Contratación Administrativa.

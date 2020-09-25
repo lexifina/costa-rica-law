@@ -1,1 +1,0 @@
-Artículo 30.—El Instituto no aceptará ni distribuirá folletería dentro del área de stand de ninguna empresa que no haya pagado su cuota de participación, salvo lo dispuesto en el artículo 36 de este reglamento.
