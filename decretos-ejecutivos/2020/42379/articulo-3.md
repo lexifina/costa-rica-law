@@ -1,0 +1,1 @@
+Artículo 3º—Esta declaratoria prohíbe la remodelación parcial o total del inmueble sin la autorización previa del Centro de Investigación y Conservación del Patrimonio Cultural, e igualmente prohíbe su demolición total o parcial.

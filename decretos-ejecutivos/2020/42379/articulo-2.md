@@ -1,0 +1,1 @@
+Artículo 2º—Incorporar el inmueble denominado “Escuela de Santa Rosa de Santa Cruz Guanacaste”, en el Registro Especial del Patrimonio Histórico-Arquitectónico de la Nación, ubicado en el Centro de Documentación Luis Ferrero Acosta del Centro de Investigación y Conservación del Patrimonio Cultural.
