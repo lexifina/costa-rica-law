@@ -14,3 +14,4 @@ Reglamento para la utilización del sistema integrado de compras públicas "SICO
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-01-18 | la propia norma |
+| 2 | 2020-09-28 | Decreto Ejecutivo 42676 (2020-09-28) |
