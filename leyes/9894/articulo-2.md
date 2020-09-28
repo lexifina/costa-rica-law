@@ -1,0 +1,1 @@
+ARTÍCULO 2- Se autoriza al Estado, cédula jurídica número dos -cero cero cero- cero cuatro cinco cinco dos dos (N. 0 2-000-045522) para que done el bien descrito en el artículo 1 de esta ley, a la Municipalidad de San Mateo, cédula jurídica número tres-cero uno cuatro-cero cuatro dos cero setenta y cinco (N. 0 3-014-042075).
