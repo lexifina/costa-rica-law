@@ -14,3 +14,4 @@ Reglamento de sesiones y funcionamiento del concejo municipal del Cantón de Gar
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-07-30 | la propia norma |
+| 2 | 2020-09-29 | Reglamento municipal 13 (2020-09-29) |
