@@ -1,0 +1,3 @@
+ARTÍCULO 7- Autorización para cobro de peajes
+Se autoriza de manera facultativa al Ministerio de Obras Públicas y Transportes (MOPT) y al Consejo Nacional de Vialidad (Conavi), según corresponda, para que establezcan en las rutas nacionales el cobro de un peaje en los proyectos a realizar con esta ley, que permita garantizar un adecuado mantenimiento de la vía en todos sus componentes, dentro de los principios de racionalidad, proporcionalidad, oportunidad y conveniencia local y nacional.
+Para lo anterior, deberá existir un estudio previo de viabilidad técnica que analice todos los aspectos relacionados con la medida de colocar un peaje. La Autoridad Reguladora de los Servicios Públicos (Aresep) se encargará de la aprobación de las tarifas correspondientes.
