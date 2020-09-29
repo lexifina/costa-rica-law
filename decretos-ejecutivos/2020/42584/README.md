@@ -14,3 +14,4 @@ Autoriza a las Instituciones que reciben transferencias del presupuesto nacional
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-09-24 | la propia norma |
+| 2 | 2020-09-29 | Decreto Ejecutivo 42637 (2020-09-29) |

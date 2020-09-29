@@ -1,2 +1,4 @@
-Artículo 4°—Rige a partir de su publicación.
-Dado en la Presidencia de la República, a los catorce días del mes de agosto del año dos mil veinte.
+Artículo 4º—Se autoriza al Consejo Nacional de Personas con Discapacidad (CONAPDIS) para que por una única vez y en lo que resta del 2020, pueda excepcionalmente financiar gastos corrientes no permanentes con recursos de superávit libre.
+Para los efectos de este decreto, tales gastos corrientes, corresponden a las transferencias de recursos que realiza la institución para subsidiar a personas con discapacidad, como parte de las funciones que cumple para la atención de dicha población.
+La autorización excepcional dispuesta en el párrafo que antecede para lo que resta del presente ejercicio presupuestario, no conlleva la sustitución de la fuente de financiamiento dispuesta en el artículo 2° de este Decreto.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 42637 del 29 de setiembre del 2020)
