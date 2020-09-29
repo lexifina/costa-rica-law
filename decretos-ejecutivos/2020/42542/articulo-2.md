@@ -1,0 +1,6 @@
+ARTÍCULO 2°.–Modificaciones y derogaciones. Se disponen las siguientes modificaciones y derogaciones:
+1) Modifíquense los artículos: 3, inciso 2) punto 2.2; 16, inciso 6; 60, inciso 7; 109, inciso 14; 125, párrafos primero y segundo; 128; 144, inciso 2; 157, inciso 10; 159, inciso 9; 161, inciso 5; 172, inciso 10; 174, inciso 6; 176, inciso 6; 181, inciso 3; 188, inciso 7; 191, inciso 6; 193, inciso 9; 195, incisos 2 y 3; 229, inciso 12; 233; 238, inciso 2; del Reglamento de Organización del Ministerio de Seguridad Pública, Decreto Ejecutivo 36366 y sus reformas, para que donde dice “Escuela Nacional de Policía”, en adelante se lea: “Academia Nacional de Policía”.
+2) Modifíquese el segundo párrafo (párrafo intermedio), del artículo 26, del Reglamento de Organización del Ministerio de Seguridad Pública, Decreto Ejecutivo 36366 y sus reformas, para que en adelante se lea de la siguiente manera:
+“Artículo 26.- (…)
+El Consejo Superior de Oficiales estará integrado por los siguientes directores: Director General de la Fuerza Pública, Director General del Servicio Nacional de Guardacostas, Director General de la Academia Nacional de Policía, Director General de Armamento, Director de la Policía de Control de Drogas, Director de la Policía de Fronteras y Director del Servicio de Vigilancia Aérea.
+(...)”
