@@ -1,0 +1,2 @@
+ARTÍCULO 14- Inclusión de recursos en el presupuesto ordinario y extraordinario de la República
+Siendo que los recursos de las operaciones individuales que se suscriban en el marco del Convenio de Cooperación para el Financiamiento de Proyectos de Inversión (CCLIP) CR-O0005 son única y exclusivamente para que sean utilizados en la ejecución del Programa de Infraestructura Vial y Movilidad Urbana, se autoriza al Poder Ejecutivo para que incluya dichos recursos en el presupuesto ordinario y extraordinario de la República vigente, mediante decreto ejecutivo.
