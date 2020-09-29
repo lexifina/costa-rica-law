@@ -14,3 +14,4 @@ Reglamento de Organización y Funcionamiento de la Auditoría Interna de la Auto
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-07-22 | la propia norma |
+| 2 | 2020-09-29 | Reglamento 81 (2020-09-29) |

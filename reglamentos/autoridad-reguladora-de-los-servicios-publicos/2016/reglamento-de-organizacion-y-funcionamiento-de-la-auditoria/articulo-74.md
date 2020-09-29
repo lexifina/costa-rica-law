@@ -1,1 +1,4 @@
-Artículo 74º—Entrada en vigor. El presente reglamento rige a partir de su publicación en el diario oficial La Gaceta.
+Artículo 74º—Derogaciones. El presente Reglamento, aprobado por la Junta Directiva de la Autoridad Reguladora de los Servicios Públicos mediante Acuerdo Nº 06-26-2016, tomado en la sesión Nº 26-2016 del 05 de mayo de 2016, deroga el Reglamento de Organización y Funciones de la Auditoría, publicado en el diario oficial La Gaceta Nº 122 del 25 de junio de 2009, así como cualquier otra disposición interna que se le oponga.
+Modificaciones. Se modifica el Reglamento, aprobado por la Junta Directiva de la Autoridad Reguladora de los Servicios Públicos mediante Acuerdo Nº 06-26-2016, tomado en la sesión Nº 26-2016 del 5 de mayo de 2016, publicado en el Alcance a La Gaceta Nº 128 del 22 de julio del 2016. Las modificaciones al reglamento rigen a partir de su publicación en el diario oficial La Gaceta.
+(Así modificada su numeración mediante sesión ordinaria N° 81-2020 del 29 de setiembre del 2020, que lo traspasó del antiguo 73 al 74)
+(Así reformado mediante sesión ordinaria N° 81-2020 del 29 de setiembre del 2020)

@@ -1,1 +1,6 @@
-Artículo 7º—Ámbito de competencia. Para cumplir con su objetivo la Auditoría Interna ejecutará su trabajo de acuerdo con lo que establecen las leyes N° 7428, 8292 8422, las Normas Generales de Auditoría para el Sector Público, Normas para el ejercicio de la Auditoría Interna en el sector público, otras normas, lineamientos y disposiciones emitidas por la Contraloría, este reglamento y la normativa técnica emitida por el Instituto Global de Auditores Internos y por el Colegio de Contadores Públicos, en lo que resulte aplicable. Las competencias primordiales de la Auditoría Interna se encuentran establecidas en el artículo 22 de la Ley General de Control Interno, N° 8292.
+Artículo 7º—Ámbito de competencia.
+El ámbito de aplicación de las potestades de la Auditoría Interna abarca:
+a) Toda la organización de Aresep y Sutel.
+b) Los entes u órganos públicos a los que Aresep y Sutel trasladen fondos por voluntad propia, amparada a una autorización legal que le permite tomar esa decisión.
+c) Los entes privados a los que Aresep y Sutel giren o transfieran fondos, independientemente de si la ley obliga a la institución a trasladar esos fondos o la autoriza en forma genérica.
+(Así reformado mediante sesión ordinaria N° 81-2020 del 29 de setiembre del 2020)

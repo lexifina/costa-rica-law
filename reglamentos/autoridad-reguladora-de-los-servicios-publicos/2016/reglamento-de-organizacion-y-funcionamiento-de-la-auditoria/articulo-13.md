@@ -1,1 +1,3 @@
-Artículo 13º—Modificaciones a la estructura orgánica de la Auditoría Interna. Las modificaciones a la estructura orgánica interna de la Auditoría requerirán de la aprobación expresa del Auditor Interno y requerirán de un acuerdo de la Junta Directiva de la Aresep motivado.
+Artículo 13º—Modificaciones a la estructura orgánica de la Auditoría Interna.
+Las modificaciones a la estructura orgánica interna de la Auditoría requerirán de la aprobación expresa del Auditor Interno y requerirán de un acuerdo de la Junta Directiva de la Aresep motivado, salvo aspectos propios de reclasificación, reasignación y traslado de plazas debido a que es potestad del Regulador General conforme a los artículos 28 y 53 del Reglamento Autónomo de las relaciones de servicio entre la Autoridad Reguladora de los Servicios Públicos, sus órganos desconcentrados y sus funcionarios.
+(Así reformado mediante sesión ordinaria N° 81-2020 del 29 de setiembre del 2020)
