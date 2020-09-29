@@ -1,7 +1,8 @@
 ARTÍCULO 62.- Perderán el derecho de prioridad en el atraque e inicio de operaciones, las naves que se encuentren en los siguientes casos:
 a) Cuando lleguen con averías en sus sistemas de traslación o en los equipos de carga y descarga.
 b) Las naves que transporten enfermos infectocontagiosos pierden la prioridad y el derecho de atraque hasta tanto logren obtener el permiso de la autoridad sanitaria competente.
-c) Las naves que no vayan a iniciar operaciones inmediatamente después de su arribo al puerto o que no tengan el 100% de su carga de exportación anunciada lista dentro de la terminal y con orden de embarque. Estas naves deben permanecer en la zona de fondeo.
+c) Las naves que no vayan a iniciar operaciones inmediatamente después de su arribo al puerto o que no tengan el 100% de su carga de exportación anunciada lista dentro de la terminal y con orden de embarque. Estas naves deben permanecer en la zona de fondeo. Se exceptúa de lo anterior a la nave con ventana de atraque con carga multimodal y/o intermodal, en pro de la eficiencia operativa del Terminal Portuario.
+(Así reformado el inciso anterior mediante sesión N° 4246 del 29 de setiembre del 2020)
 (Nota de Sinalevi: El transitorio único del presente reglamento establece que: "La entrada en vigencia de lo dispuesto en los artículos 62 inciso c), 71 inciso i), 101, 196 a), empezará a regir una vez que el Concesionario tenga en el Puerto la maquinaria y equipo que se ha definido como necesaria para una operación y manejo eficiente de esa carga, esto una vez que el INCOP tenga por recibidos los equipos en puerto y debidamente comunicado al Concesionario; todo lo cual no ocurrirá en un plazo inferior a seis meses a partir de la publicación de esta modificación.")
 d) Las naves que estando fondeadas y les corresponda en turno el atraque, no hagan uso de él.
 e) Las naves que no hayan cancelado el valor de los servicios solicitados.

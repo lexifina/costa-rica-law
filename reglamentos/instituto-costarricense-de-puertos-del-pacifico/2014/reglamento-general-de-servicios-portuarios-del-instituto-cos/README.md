@@ -16,3 +16,4 @@ Reglamento General de Servicios Portuarios del Instituto Costarricense de Puerto
 | 1 | 2014-06-24 | la propia norma |
 | 2 | 2014-10-07 | Reglamento 3909 (2014-10-07) |
 | 3 | 2017-11-02 | Reglamento 4079 (2017-11-02) |
+| 4 | 2020-09-29 | Reglamento 4246 (2020-09-29) |

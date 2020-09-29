@@ -5,19 +5,11 @@ a) Reglas Generales sobre turnos de atraque:
 3) Cuando una nave transporte o vaya a transportar carga de origen animal o vegetal, procesado o semiprocesado, susceptible de servir como vehículo o vector de problemas sanitarios o enfermedades infectocontagiosas, deberá someterse a la inspección correspondiente, y sólo será considerada su solicitud de atraque, una vez que el Prestatario del Servicio, reciba la conformidad escrita de las autoridades correspondientes.
 4) Las naves que transporten material explosivo para el puerto deben efectuar el cargue y/o descargue en las Áreas de fondeo establecidas para tal fin, salvo autorización expresa de Autoridad competente. En la manipulación de este tipo de cargamentos, el importador debe disponer de las medidas de seguridad que sean necesarias para salvaguardar la integridad física de los trabajadores y de la infraestructura portuaria.
 5) Cuando en el momento de tomar la decisión de atraque, dos o más naves se encuentren fondeadas o arribando al puerto y no hayan cumplido con todos los requisitos establecidos en el presente reglamento y existan puestos de atraque disponibles, se dará prelación de atraque a la nave que esté más completa en aquellos aspectos determinantes para iniciar y garantizar continuidad de las operaciones
-b) Las prioridades de atraque de las embarcaciones se establecen de la siguiente manera:
+b Las prioridades de atraque de las embarcaciones se establecen de la siguiente manera:
 En los puestos de Atraque Nos.1, 2 y 3:
-Puesto 1 | Puesto 2 y 3
-1. Nave con Ventana de atraque | 1. Cruceros
-2. Cruceros. | 2. Nave con Ventana de atraque
-3. Naves con carga refrigerada paletizada y atuneros. | 3. Naves con carga refrigerada paletizada y atuneros.
-4. Naves porta contenedores de servicio regular y día recalada fijo. | 4. Naves porta contenedores de servicio regular y día recalada fijo.
-5. Graneles | 5. Graneles
-6. Naves Roll on - Roll off y Car Carriers | 6. Naves Roll on - Roll off y Car Carriers
-7. Carga General con EXPO exclusivamente | 7. Carga General con EXPO exclusivamente
-8. Carga general de servicio regular IMPO y EXPO sin restricción de lluvia | 8. Carga general de servicio regular IMPO y EXPO sin restricción de lluvia
-9. Carga General de servicio regular IMPO sin restricción de lluvia | 9. Carga General de servicio regular IMPO sin restricción de lluvia
-10. Carga general a descargar cargamentos de IMPO exclusivamente | 10. Carga general a descargar cargamentos de IMPO exclusivamente
+[imagen]
+[imagen]
+(Así reformado el inciso b) anterior mediante sesión N° 4246 del 29 de setiembre del 2020)
 c) En el puesto de Atraque No.4:
 1. Naves a descargar gráneles sólidos y/o líquidos de importación.
 2. Naves operadas por SPC S.A, según la prioridad establecida en el inciso “b” de este artículo.
