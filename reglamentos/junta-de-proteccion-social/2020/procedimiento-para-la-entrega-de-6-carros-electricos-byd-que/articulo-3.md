@@ -1,0 +1,2 @@
+Artículo 3: Mecánica de participación
+La mecánica de participación consiste en que por la compra de al menos una fracción del Sorteo Especial de Lotería Nacional No. 4610 “Cultura Afrodescendiente”, a realizarse el 30 de setiembre del 2020, las personas quedarán participando en el sorteo de 6 vehículos eléctricos marca BYD 4x2 año 2020, a sortearse con el Sorteo Especial de Lotería Nacional No. 4610 “Cultura Afrodescendiente” como parte del plan de premios de dicho sorteo.

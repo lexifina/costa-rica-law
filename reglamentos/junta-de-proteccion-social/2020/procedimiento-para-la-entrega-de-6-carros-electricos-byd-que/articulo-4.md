@@ -1,0 +1,4 @@
+Artículo 4: Detalle de los premios
+Se otorgarán en total 6 vehículos eléctricos marca BYD modelo E5 GS 4x2 año 2020, con las siguientes características: vehículos eléctricos 100%, tipo sedán, transmisión automática, tracción 4x2, motor potencia máxima160kw, capacidad para 5 pasajeros, asiento del conductor con ajuste de altura, cinturones de seguridad para todos los pasajeros, cámara de retroceso, cámara frontal derecha, asientos de cuero, cierre de seguridad para niños, sistema de navegación GPS (según desarrollo del mapa en la región).
+El color del vehículo dependerá del inventario con que cuente la agencia en el momento de la entrega. El vehículo será entregado con los derechos de circulación cancelados y con la revisión técnica correspondiente.
+Se aclara que el premio consiste en la entrega de vehículo y no se entregará dinero en efectivo por su valor.
