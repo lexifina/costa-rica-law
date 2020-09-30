@@ -1,0 +1,1 @@
+Artículo 13. Es indispensable la disponibilidad de servicios básicos (agua potable y electricidad) para los nuevos fraccionamientos establecidos en el artículo 12 del presente Reglamento, previo al otorgamiento del visado municipal.

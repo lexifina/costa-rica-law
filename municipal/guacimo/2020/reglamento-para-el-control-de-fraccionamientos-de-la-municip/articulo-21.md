@@ -1,0 +1,2 @@
+Artículo 21. Propuestas de fraccionamiento en comunidades sin acueducto.
+En zonas o comunidades donde no exista acueducto y se contemple la posibilidad de fraccionar mediante la constitución de un pozo artesanal para la extracción de agua potable, se deben tomar en cuenta regulaciones establecidas en la Ley de Aguas N° 276 y sus reformas, para establecer las dimensiones de las respectivas parcelas.
