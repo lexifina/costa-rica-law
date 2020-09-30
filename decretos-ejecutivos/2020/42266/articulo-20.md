@@ -1,0 +1,1 @@
+Artículo 20.- Se establecen como documentos de uso obligatorio para la Dedicación Exclusiva los formatos de contrato, prórroga y addendum que se anexan a este decreto ejecutivo y que forman parte integral del mismo.

@@ -1,0 +1,1 @@
+Artículo 18.- Las Oficinas de Recursos Humanos deben velar por el cumplimiento de las disposiciones establecidas en el presente decreto ejecutivo y en los contratos respectivos, sin perjuicio de la intervención que al respecto pueda hacer la Auditoría Interna de la institución, cuando lo estime conveniente.

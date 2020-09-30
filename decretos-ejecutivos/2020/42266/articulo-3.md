@@ -1,0 +1,3 @@
+Artículo 3.- Las instituciones y empresas públicas cubiertas por el ámbito de la Autoridad Presupuestaria, podrán reconocer a sus servidores de nivel profesional, en razón de la naturaleza y responsabilidades de los puestos que desempeñan, una suma adicional sobre su salario base por concepto de Dedicación Exclusiva, de la siguiente manera:
+a) Diez por ciento (10%) del Sueldo Base respectivo para los servidores que posean el grado académico de Bachillerato Universitario.
+b) Veinticinco por ciento (25%) del Sueldo Base respectivo para los servidores que ostenten el grado académico de Licenciatura Universitaria o superior
