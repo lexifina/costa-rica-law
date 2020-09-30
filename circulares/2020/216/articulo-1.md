@@ -1,0 +1,11 @@
+CIRCULAR N° 216-2020
+ASUNTO: Reiteración de la Circular N° 53-2003 denominada “Pronunciamiento de los jueces de las materias penal y ejecución de la pena respecto del artículo 461 del Código Procesal Penal.
+A TODOS LOS JUECES PENALES Y DE EJECUCIÓN
+DE LA PENA DEL PAÍS
+SE LES HACE SABER QUE:
+La Corte Plena, en sesión N° 38-2020 celebrada el 06 de julio del 2020, artículo XIX, acordó reiterar a las personas juzgadoras de las distintas materias, las circulares referentes a atender en debida forma y con prontitud el mandato contenido en el artículo 5° de la Ley Orgánica del Poder Judicial, por lo anterior, se reitera la circular del Consejo Superior N° 52-2003 denominada “Pronunciamiento de los jueces de las materias penal y ejecución de la pena respecto del artículo 461 del Código Procesal Penal” que literalmente dice:
+“El Consejo Superior, en sesión N° 39-03, celebrada el 03 de junio de 2003, artículo XLIII, a solicitud del Instituto Nacional de Criminología, dispuso comunicarles que cuando les sea comunicado que por razones de salud, un privado de libertad requiera ser internado, o que se le ha programado su internamiento en un centro hospitalario, deben pronunciarse en el plazo de ley, con el fin de dar pronto despacho a las solicitudes o comunicaciones que provengan de los Centros Penitenciarios, para los efectos del artículo 461 del Código Procesal Penal, cuyo texto literalmente dice:
+“Artículo 461.—Enfermedad del condenado. Si durante la ejecución de la Pena privativa de libertad, el condenado sufre alguna enfermedad que no pueda ser atendida en la cárcel, el tribunal de ejecución de la pena dispondrá, previo los informes médicos necesarios, la internación del enfermo en un establecimiento adecuado y ordenará las medidas necesarias para evitar la fuga.
+El director del establecimiento penitenciario tendrá iguales facultades, cuando se trate de casos urgentes; pero la medida deberá ser comunicada de inmediato al Tribunal que podrá confirmarla o revocarla. Estas reglas serán aplicables a la prisión preventiva, en relación con el tribunal que conozca el proceso, y a las restantes penas en cuando sean susceptibles de ser suspendidas por enfermedad.
+El tiempo de internación se computará a los fines de la pena, siempre que el condenado esté privado de libertad”.
+San José, 30 de setiembre del 2020.
