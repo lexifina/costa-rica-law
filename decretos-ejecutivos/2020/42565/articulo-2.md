@@ -1,0 +1,1 @@
+Artículo 2°—Colaboración. Las instituciones del Sector Público, dentro del marco legal respectivo, podrán colaborar con el evento “Costa Rica Fashion Week –CRFW-”, mediante charlas o asistencia técnica.
