@@ -21,3 +21,4 @@ Ampliación de las medidas sanitarias en materia migratoria para prevenir los ef
 | 6 | 2020-06-29 | Decreto Ejecutivo 42432 (2020-06-29) |
 | 7 | 2020-07-31 | Decreto Ejecutivo 42513 (2020-07-31) |
 | 8 | 2020-08-28 | Decreto Ejecutivo 42585 (2020-08-28) |
+| 9 | 2020-09-30 | Decreto Ejecutivo 42633 (2020-09-30) |
