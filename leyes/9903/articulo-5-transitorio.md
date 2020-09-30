@@ -1,0 +1,2 @@
+TRANSITORIO V- El Fondo Nacional de Becas (Fonabe) deberá garantizar la continuidad de los depósitos a su población beneficiaria durante seis meses contados a partir de la vigencia de esta ley, momento en el cual el Ministerio de Educación Pública (MEP) y el Instituto Mixto de Ayuda Social (IMAS) deberán haber asumido la totalidad del presupuesto y la población beneficiaria.
+Durante este período de transición, el Fonabe mantendrá una estructura administrativa mínima requerida para garantizar los servicios.

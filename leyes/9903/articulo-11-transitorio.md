@@ -1,0 +1,3 @@
+TRANSITORIO XI- En un plazo no mayor a siete meses, contado a partir de la vigencia de esta ley, el Departamento de Archivo del Ministerio de Educación Pública (MEP) y la Dirección Ejecutiva del Fondo Nacional de Becas (Fonabe), en coordinación con la Junta Administrativa del Archivo Nacional, gestionarán la información y documentación en poder del Fonabe y determinarán aquellos documentos que deberán ser trasladados al MEP o al Archivo Nacional para su custodia, incluyendo el resguardo de aquellos documentos que se consideren de valor científico, histórico o cultural o que deben ser resguardados según la normativa aplicable.
+Rige a partir de su publicación.
+Dado en la Presidencia de la República, San José, a veintidós días del mes de setiembre del año dos mil veinte.

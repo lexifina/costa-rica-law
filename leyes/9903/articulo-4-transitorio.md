@@ -1,0 +1,2 @@
+TRANSITORIO IV- Aquellas personas estudiantes que, a la entrada en vigencia de esta ley, sean beneficiarias de los programas de postsecundaria y mérito personal del Fondo Nacional de Becas (Fonabe), pasarán a ser beneficiarias de la Dirección de Programas de Equidad del Ministerio de Educación Pública (MEP).
+Los fondos requeridos para darle sostenibilidad a esta población serán trasladados por el Fondo de Desarrollo Social y Asignaciones Familiares (Fodesaf) al Ministerio de Educación Pública (MEP).
