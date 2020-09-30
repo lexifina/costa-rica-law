@@ -1,0 +1,1 @@
+Artículo 2º—Se insta a todas las dependencias del Sector Público y Privado, para que en la medida de sus posibilidades y dentro del marco legal respectivo apoyen técnicamente la realización de las actividades relacionadas con la “Semana Global de Emprendimiento”.

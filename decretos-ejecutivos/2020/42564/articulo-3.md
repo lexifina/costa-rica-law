@@ -1,0 +1,1 @@
+Artículo 3°—Inexistencia de exoneración o beneficio fiscal. De conformidad con el artículo 5° del Decreto Ejecutivo de Contingencia Fiscal, N° 40540-H del 01 de agosto del 2017 y sus reformas, la presente declaratoria de interés público no generará el otorgamiento de ningún tipo de exoneración o beneficio fiscal.
