@@ -1,0 +1,1 @@
+Artículo 5º—Se deja sin vigencia la resolución DGH-013- 2020 y DGA-066-2020 de la Dirección General de Hacienda y de la Dirección General de Aduanas del Ministerio de Hacienda, San José, de las diez horas con treinta minutos del día veintiuno de febrero de dos mil veinte, publicada en La Gaceta N° 42 del martes 3 de marzo del 2020.
