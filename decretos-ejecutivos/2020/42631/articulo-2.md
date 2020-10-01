@@ -1,0 +1,1 @@
+ARTÍCULO 2°.-Prórroga de la suspensión temporal. Durante el período comprendido del 1° de octubre al 31 de octubre de 2020, se suspende la aplicación del Decreto Ejecutivo número 42484-MOPT-S del 17 de julio de 2020, en su totalidad por dicho lapso.
