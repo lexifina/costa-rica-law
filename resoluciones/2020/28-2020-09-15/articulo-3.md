@@ -1,0 +1,2 @@
+Artículo 3.- Autoliquidaciones de sanciones administrativas presentadas en forma diferente a la regulada en la presente resolución.
+Los obligados tributarios están obligados a utilizar el formulario oficial electrónico citado en el artículo 1° de esta resolución. Las autoliquidaciones de sanciones administrativas realizadas en otros medios y formatos, se tendrán por no presentadas con los efectos jurídicos que ello conlleva, sin necesidad de notificación alguna al interesado.

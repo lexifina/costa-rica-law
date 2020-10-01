@@ -1,0 +1,1 @@
+Artículo 8.- Elimínese del artículo 3 de la Resolución DGT-R-033-2015 de las ocho horas del veintidós de setiembre de dos mil quince, la frase que indica “Se exceptúan de esta obligatoriedad los obligados tributarios que declaran por medio del portal de Tributación Digital.”

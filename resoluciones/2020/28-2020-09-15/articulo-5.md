@@ -1,0 +1,2 @@
+Artículo 5.- Programa de ayuda EDDI-7
+A partir de la entrada en vigor de la presente resolución, se deshabilitará la opción de confeccionar el formulario D-116 Autoliquidación de Sanciones por Infracciones Administrativas en el programa de ayuda EDDI-7, en consecuencia, a partir de dicha fecha las entidades bancarias no deberán recibir formularios D116 confeccionados por medio del programa de ayuda EDDI-7.
