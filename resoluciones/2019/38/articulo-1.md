@@ -1,5 +1,6 @@
+(Derogado)
 DIRECCIÓN GENERAL DE HACIENDA
-(Esta norma fue dejada sin efecto parcialmente por el artículo 6° de la resolución N° RES-DGH-023-2020 del 6 de abril del 2020 “Solicitud de exención genérica de las juntas de educación o administrativas de las instituciones públicas de enseñanza del Ministerio de Educación Pública (MEP)”)
+(Esta norma fue dejada sin efecto por el artículo 10 de la resolución N° RES-DGH-044-2020 del 1° de octubre del 2020, “Autoriza al Departamento de Gestión de Exenciones conceder autorización de exención de compra local genérica para la adquisición de bienes y/o servicios gravados con el impuesto sobre el valor agregado y/o consumo a favor de varios beneficiados”)
 RES-DGH-038-2019. Dirección General de Hacienda a las quince horas del veintiuno de junio del dos mil diecinueve.
 Considerando:
 I.— Que el artículo 5 de la Ley Nº 3022 de fecha 27 de agosto de 1962, denominada “Crea Dirección General de Hacienda en el Ministerio de Hacienda”, establece que el Ministro de Hacienda, el Director General de Hacienda u otro funcionario de esa Dirección, escogido por aquéllos, son los funcionarios facultados para autorizar, bajo su responsabilidad, las exenciones de impuestos debiendo en cada caso señalar la ley en que se ampare dicha petición.
