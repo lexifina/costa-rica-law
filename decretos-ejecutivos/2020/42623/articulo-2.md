@@ -1,0 +1,1 @@
+Artículo 2º—Deróguese el Decreto Ejecutivo número 42403-H del 05 de junio de 2020, publicado en el Alcance número 165 a La Gaceta número 160 del 03 de julio de 2020, a partir de la vigencia del presente decreto.
