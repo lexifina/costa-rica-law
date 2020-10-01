@@ -14,3 +14,4 @@ Reglamento de la defensoría estudiantil de la Universidad Técnica Nacional
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-10-01 | la propia norma |
+| 2 | 2020-10-01 | Reglamento 20 (2020-09-10) |
