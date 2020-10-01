@@ -1,0 +1,2 @@
+ARTÍCULO 18. POTESTAD DE INVESTIGAR
+Para realizar las investigaciones requeridas en el ejercicio de sus funciones, la Defensoría podrá solicitar a cualquier persona estudiante, funcionaria, o bien, instancia universitaria, sea académica o administrativa, la documentación o informes acerca de las actuaciones relacionadas con el caso en estudio, considerando para ello las reservas de ley en cuanto a datos sensibles o de acceso restringido.

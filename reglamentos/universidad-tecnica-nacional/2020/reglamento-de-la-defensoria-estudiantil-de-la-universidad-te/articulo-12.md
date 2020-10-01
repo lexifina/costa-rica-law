@@ -1,0 +1,2 @@
+ARTÍCULO 12. TRÁMITE EN CASO DE VACANTE IMPREVISTA
+En concordancia con la Ley General de la Administración Pública, las ausencias temporales de la persona titular de la Defensoría Estudiantil son suplidas por el superior jerárquico inmediato. En caso de cesación repentina y permanente, el Consejo Universitario debe instruir a las instancias competentes encargadas del procedimiento correspondiente.

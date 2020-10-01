@@ -1,0 +1,2 @@
+ARTÍCULO 15. TRASLADO DE CASOS
+Cuando la denuncia o consulta no pueda ser atendida por la Defensoría Estudiantil debido a los límites de sus competencias, entonces esta instancia remite el caso a la dependencia correspondiente según la normativa institucional. Este órgano defensor está en la obligación de informarle a la persona solicitante acerca de ello. Ocurrido esto, la Defensoría debe asesorar y orientar a la persona aprendiente o interesada, en la medida de lo posible, acerca de las vías factibles para hacer valer sus derechos ante otras instancias universitarias.
