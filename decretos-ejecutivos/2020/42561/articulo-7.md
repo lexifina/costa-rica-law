@@ -1,0 +1,1 @@
+Artículo 7. Los máximos jerarcas institucionales de la Administración Central, deberán observar y colaborar con todo lo dispuesto en el presente decreto en todos sus extremos, facilitando y respaldando el proceso de negociación en todo lo que se requiera.

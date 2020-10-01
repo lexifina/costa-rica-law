@@ -1,0 +1,1 @@
+Artículo 8. Se insta al Poder Legislativo, Poder Judicial, Tribunal Supremo de Elecciones, así como a todas las instituciones descentralizadas, instituciones autónomas, empresas públicas y Gobiernos Municipales a aplicar lo dispuesto en el presente decreto.

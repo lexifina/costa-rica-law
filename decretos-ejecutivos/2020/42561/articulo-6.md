@@ -1,0 +1,1 @@
+Artículo 6. Los departamentos legales y técnicos respectivos de la Administración Central efectuarán las modificaciones contractuales pertinentes para ajustar las contrataciones por concepto de arrendamiento, con ocasión de los resultados obtenidos por las negociaciones efectuadas parte del Comisionado o Comisionada.

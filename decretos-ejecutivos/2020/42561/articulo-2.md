@@ -1,0 +1,1 @@
+Artículo 2. Sólo se prorrogarán los contratos de arrendamiento en los que se pacte un monto de alquiler inferior al pagado durante el último año. Para lo cual, se deberá velar por el cumplimiento de lo estipulado en el artículo 71 de la Ley General de Arrendamientos Urbanos y Suburbanos N° 7527.
