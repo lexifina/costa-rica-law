@@ -1,0 +1,3 @@
+Transitorios V
+Para evitar la desafiliación de municipalidades que tienen cuentas por pagar por concepto de cuotas de afiliación que correspondan a los ejercicios económicos del año 2019 y años anteriores podrán solicitar la condonación de la deuda por el total de la deuda existente, a partir de la publicación del presente transitorio y hasta por 3 meses posteriores a dicho acto de publicación, por lo que la Unión Nacional de Gobiernos Locales no condonará deudas de oficio sino que se procederá a solicitud de parte interesada respaldado el acto administrativo mediante un acuerdo municipal del Concejo Municipal del Municipio solicitante.
+(Así adicionado mediante sesión N° 02-2020 del 2° de octubre de 2020)
