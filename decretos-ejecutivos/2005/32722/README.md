@@ -17,3 +17,4 @@ Reglamento a la Ley Nacional de Vacunación
 | 2 | 2007-01-17 | Decreto Ejecutivo 33564 (2007-01-17) |
 | 3 | 2010-07-12 | Decreto Ejecutivo 36165 (2010-07-12) |
 | 4 | 2018-03-12 | Decreto Ejecutivo 41050 (2018-03-12) |
+| 5 | 2020-10-02 | Decreto Ejecutivo 42638 (2020-10-02) |
