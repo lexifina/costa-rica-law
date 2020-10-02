@@ -1,0 +1,1 @@
+Artículo 40.- Derecho a la privacidad y seguridad de la información de las personas usuarias. El INAMU mantendrá la tecnología y estándares de seguridad para regular la privacidad, seguridad e integridad de la información contenida en el correo electrónico transmitido por la red Internet, así como la llegada de correos tipo “spam”, cadenas o similares.

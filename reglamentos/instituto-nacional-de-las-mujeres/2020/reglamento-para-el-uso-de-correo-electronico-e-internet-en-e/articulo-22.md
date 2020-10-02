@@ -1,0 +1,1 @@
+Artículo 22.-Respaldo de correos electrónicos. Los mensajes de correos electrónicos, seleccionados y clasificados en carpetas conforme la clasificación institucional, dentro de la cuenta de correo electrónico se pueden respaldar en determinado dispositivo de almacenamiento.

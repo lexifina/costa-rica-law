@@ -1,0 +1,1 @@
+Artículo 2.-Ámbito de aplicación. El presente reglamento será de aplicación obligatoria para todo el personal del INAMU, así como para las personas autorizadas (pasantes, personas contratadas por servicios, sustituciones, entre otras) por el presente reglamento para el uso de correo electrónico e internet.

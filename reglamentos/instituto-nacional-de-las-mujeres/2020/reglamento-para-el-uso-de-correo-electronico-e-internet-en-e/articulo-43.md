@@ -1,0 +1,5 @@
+Artículo 43: Comportamiento de uso: Cuando la persona funcionaria utilice el servicio de Internet y correo electrónico, deberá mantener un comportamiento acorde con los principios éticos que rigen la Institución como parte del Gobierno del Estado Costarricense, esto es, abstenerse de realizar las siguientes acciones:
+a) Actividades intencionales que provoquen problemas al funcionamiento de las redes de datos, con otras personas, medios de comunicación, sistemas, herramientas o equipos, como, por ejemplo, propagar un virus informático.
+b) Compartir o divulgar información de números de cuenta, claves de acceso y número de identificación personal u otro dato confidencial, sensible para el Instituto Nacional de las Mujeres o que viole las Leyes del estado costarricense.
+c) Ingresar o consultar sitios cuyo contenido no esté relacionado con las funciones institucionales de cada Dependencia del INAMU.
+d) Ingresar, consultar, enviar, propagar o promover material pornográfico o sitios que vayan contra la moral y las buenas costumbres, o que constituya o fomente un comportamiento que dé lugar a responsabilidades civiles, administrativas o penales.

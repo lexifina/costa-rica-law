@@ -1,0 +1,1 @@
+Artículo 11.-Impresión de mensajes de correos electrónicos. Como norma general, los mensajes de correo electrónico no deben ser impresos, firmados, sellados ni archivados. A excepción de lo indicado en el siguiente artículo.

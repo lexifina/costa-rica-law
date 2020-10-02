@@ -1,0 +1,1 @@
+Artículo 4.- Uso de correo electrónico e internet. El servicio de correo electrónico e internet es oficialmente propiedad del INAMU y se considera una herramienta de comunicación e intercambio oficial de información a disposición de las personas funcionarias o personas autorizadas para fines Institucionales.

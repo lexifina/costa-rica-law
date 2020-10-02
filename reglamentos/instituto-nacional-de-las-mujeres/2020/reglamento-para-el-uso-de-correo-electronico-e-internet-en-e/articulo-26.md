@@ -1,0 +1,4 @@
+Artículo 26.- Acuse de recibido de documentos electrónicos firmados digitalmente, por correo electrónico oficial: Todo correo que anexe un documento electrónico de archivo, firmado digitalmente, deberá agradar la siguiente nota:
+Nota: Se agradece confirmación de recibo. De no confirmar, el documento que se adjunta se tendrá por notificado a partir de su envío, siendo este correo comprobante de la transmisión electrónica para todos los efectos legales. La seguridad y manejo de las cuentas destinatarias son responsabilidad de las personas interesadas.
+De igual forma, se podrán emplear las opciones automáticas prestablecidas: “Solicitar una confirmación de entrega” y “Solicitar una confirmación de lectura”, o los acuses de recibo textuales.
+Para estos casos se deberán conservar, como respaldo, dentro del buzón de correo electrónico, mediante la creación de una carpeta titulada: “Acuses de recibo”.
