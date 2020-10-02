@@ -1,0 +1,1 @@
+Artículo 30—La Municipalidad se reserva el derecho de rechazar las solicitudes de licencias para publicidad exterior, así como de limitar el número y los lugares donde se colocarán la publicidad, por razones técnicamente justificadas.

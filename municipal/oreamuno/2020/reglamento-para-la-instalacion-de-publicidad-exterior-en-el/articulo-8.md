@@ -1,0 +1,1 @@
+Artículo 8º—Esta Municipalidad se reserva el derecho de otorgar o denegar la licencia específica que confiere el derecho de instalar publicidad exterior, al tenor de la Ley General de la Administración Pública, Ley de Construcciones y su Reglamento, Ley de Planificación Urbana, y el presente Reglamento.

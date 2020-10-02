@@ -1,0 +1,1 @@
+Artículo 22—La cantidad máxima de rótulos publicitarios permitidos por establecimiento es de 6 rótulos. Esto fundamentado y en acatamiento del principio estipulado en el Art.50 de la Constitución Política.
