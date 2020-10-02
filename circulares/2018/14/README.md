@@ -13,3 +13,4 @@ Lineamientos sobre solicitudes de servicio a la Dirección de Tecnología para q
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-02-01 | la propia norma |
+| 2 | 2020-10-02 | Circular 222 (2020-10-02) |
