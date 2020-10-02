@@ -14,3 +14,4 @@ Correcciones de número de chasis o VIN, y datos del importador
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-10-02 | la propia norma |
+| 2 | 2020-10-02 | Circular 0 (2020-10-01) |
