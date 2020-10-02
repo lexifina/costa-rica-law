@@ -1,0 +1,1 @@
+Artículo 18°-El mantenimiento preventivo del vehículo incluye, por un lado, los controles diarios (aceite, agua, etc.) y las revisiones de rutina. Se realizará de acuerdo con las especificaciones técnicas del equipo y en el caso de que los vehículos cuenten con garantías, se realizará con base en el manual de operación con base en el kilometraje o tiempo de uso.

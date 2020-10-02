@@ -1,0 +1,1 @@
+Artículo 62°-Los conductores y demás servidores municipales con vehículo asignado, deberán comprobar ante los Oficiales de Seguridad, la existencia de las herramientas e implementos, así como cualquier daño o anomalía, tanto antes de iniciar la jornada de trabajo, como al terminarla, ya que son responsables de las mismas y de cualquier daño que presente el vehículo.

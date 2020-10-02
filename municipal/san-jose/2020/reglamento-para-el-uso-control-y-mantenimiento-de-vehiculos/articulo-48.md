@@ -1,0 +1,2 @@
+Artículo 48°-Ningún conductor de la Municipalidad está autorizado para efectuar arreglos judiciales y extrajudiciales en casos de accidentes con vehículos municipales, previa valoración con el Apoderado General Judicial (abogado) de la Municipalidad de San José.
+En los casos de accidentes, el conductor únicamente debe indicarle al particular que se realicen las gestiones ante los estrados judiciales correspondientes.

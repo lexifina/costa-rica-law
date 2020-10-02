@@ -1,0 +1,1 @@
+Artículo 5º-Vehículos propiedad de la Municipalidad de San José: Son todos aquellos vehículos adquiridos por la Institución o inscritos en el Registro Nacional a nombre de la Municipalidad de San José.

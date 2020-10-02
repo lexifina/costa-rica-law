@@ -1,0 +1,2 @@
+Artículo 20°-Del Préstamo o Patrocinio de vehículos. El Préstamo o Patrocinio de vehículos por parte de un tercero a la Municipalidad de San José (entidad pública o privada), serán tramitados por las dependencias solicitantes, ante quien corresponda.
+Una vez aprobado el Préstamo o Patrocinio, en el documento se deberán indicar las calidades del mismo, como el pago de combustibles, los servicios de mantenimiento preventivo/correctivo, costos de seguros, entre otros.

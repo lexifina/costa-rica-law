@@ -1,0 +1,1 @@
+Artículo 64°-La Sección de Seguridad Interna Municipal no entregará ningún vehículo en horas no hábiles a funcionarios de la Municipalidad, sin la autorización de la Jefatura Inmediata, el Alcalde/sa o la Gerencia que en su caso corresponda.

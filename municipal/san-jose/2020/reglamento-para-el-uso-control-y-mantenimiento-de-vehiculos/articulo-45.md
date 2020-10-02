@@ -1,0 +1,1 @@
+Artículo 45°-De la notificación por accidentes menores. El conductor informará de cualquier novedad o percance ocurrido con el vehículo para lo cual utilizará el formulario de “Reporte de Daños e Irregularidades del Automotor”.

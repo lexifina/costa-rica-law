@@ -1,0 +1,1 @@
+Artículo 25°-Un vehículo municipal podrá ser guardado fuera de los parqueos institucionales, siempre y cuando se tenga la autorización anticipada de salida (Solicitud y Control de Servicios de Transporte) y oficio, por parte de la Alcaldía o sus delegados, indicando el motivo de la gira, horario entrada y salida, entre otros.

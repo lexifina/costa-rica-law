@@ -1,0 +1,1 @@
+Artículo 46°-Todos los vehículos deberán cumplir con los programas de mantenimiento, reparaciones y diligencias en caso de accidentes de tránsito, en acatamiento a los requerimientos técnicos de los vehículos.

@@ -1,0 +1,1 @@
+Artículo 9°- Cada dependencia o usuario con equipo automotor asignado o facilitado por la Sección de Transportes, es responsable de atender la solicitud de servicio cuando el mismo corresponda con la labor que desempeñen.

@@ -1,0 +1,2 @@
+Artículo 41°-Los conductores no deben permitir que personas en estado etílico o en aparente consumo de cualquier tipo de drogas, viajen en los vehículos municipales.
+Se aplica la excepción en el presente artículo cuando las unidades sean utilizadas para brigadas municipales de ayuda y por las que medie autorización superior o en casos de emergencia comprobada, bajo las penas que establece la normativa vigente.

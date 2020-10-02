@@ -1,0 +1,1 @@
+Artículo 71°-Derogatoria. Este reglamento deroga el Reglamento anterior, denominado: “Reglamento para el Uso, Control y Mantenimiento de Vehículos de la Municipalidad de San José”, así como cualquier otra disposición anterior que se le oponga.

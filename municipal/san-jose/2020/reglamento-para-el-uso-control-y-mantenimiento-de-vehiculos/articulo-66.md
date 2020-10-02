@@ -1,0 +1,1 @@
+Artículo 66°-Las jefaturas responsables, deberán velar por la aplicación de las sanciones previstas en el Reglamento Autónomo de Organización y Servicios vigente de la Municipalidad de San José vigente.

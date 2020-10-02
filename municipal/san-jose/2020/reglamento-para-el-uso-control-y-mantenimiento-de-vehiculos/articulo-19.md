@@ -1,0 +1,1 @@
+Artículo 19°-De la contratación y alquiler de vehículos u otros. La Municipalidad podrá contratar la prestación de servicios externos de transporte de conformidad con la normativa de contratación vigente y cualquier otra Ley vinculante.

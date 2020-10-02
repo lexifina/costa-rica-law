@@ -1,0 +1,1 @@
+Artículo 49°- Si el procedimiento o la investigación de la Municipalidad o bien el fallo de la autoridad judicial competente determinan culpabilidad, responsabilidad o autoría del conductor al servicio de la Municipalidad, éste deberá pagar todos los daños y pe1juicios que se deriven del hecho o deducibles, incluyendo multas o sanciones pecuniarias.

@@ -1,0 +1,1 @@
+Artículo 23°-Los vehículos de la Municipalidad son para el desempeño de funciones públicas y propias de la Institución. Por lo tanto, queda prohibida la utilización de los vehículos municipales para fines personales, familiares o actividades políticoelectorales y otras ajenas al servicio público de la Institución.

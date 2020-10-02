@@ -1,0 +1,1 @@
+Artículo 54°-Prohibición de estacionamiento. Los vehículos de la Municipalidad no deberán ser estacionados frente a tabernas o similares, ni frente a locales cuya fama riña con la moral y las buenas costumbres, salvo por cuestiones estrictamente laborales. Tampoco en los casos donde medie la inseguridad del bien.

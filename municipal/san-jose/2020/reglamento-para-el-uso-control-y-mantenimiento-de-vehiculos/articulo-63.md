@@ -1,0 +1,1 @@
+Artículo 63°-La Sección de la Seguridad Interna Municipal, bajo la responsabilidad del jefe, llevará los registros que permitan conocer el estado de los vehículos antes y después de cada servicio y todos los datos necesarios para el adecuado control del uso de estos, informando al jefe del equipo Automotor asignado cualquier anomalía.

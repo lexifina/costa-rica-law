@@ -1,0 +1,1 @@
+Artículo 26°-Para lograr el mayor aprovechamiento de los vehículos disponibles, se podrán agrupar personas (funcionarios), materiales o solicitudes de servicio en un solo viaje, siempre que las circunstancias lo permitan.

@@ -1,0 +1,1 @@
+Artículo 38°-En condiciones difíciles de operación (carretera en mal estado, condiciones climáticas adversas, lugares de difícil acceso), todo conductor deberá actuar prudente y diligentemente, evitando la temeridad, con el fin de no exponerse a pérdidas humanas y materiales.

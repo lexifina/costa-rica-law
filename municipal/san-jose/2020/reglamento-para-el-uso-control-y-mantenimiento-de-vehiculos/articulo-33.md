@@ -1,0 +1,3 @@
+CAPÍTULO VI
+Monitoreo de vehículos
+Artículo 33°-Para un mejor control de los servicios, y en caso de contar con los recursos presupuestarios y personal para el monitoreo, se valorará el tipo de instalación de dispositivos de posicionamiento satelital global (GPS) o cualquier otro tipo dispositivo electrónico, para la administración de flotillas, y podrán visualizarse desde el centro de Monitoreo que disponga la municipalidad. Dichos dispositivos serán utilizados para el control de distancias, kilometraje, lugares visitados, combustibles, velocidad, rendimiento de la unidad, horas uso, periodos de inactividad y cualquier otro tipo de información o insumo para el control y fiscalización.
