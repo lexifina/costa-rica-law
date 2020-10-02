@@ -1,0 +1,1 @@
+Artículo 21.—Anualmente como medida de control la Comisión de Becas seleccionará una muestra de los estudiantes becados para realizar un estudio de campo, con el cual verificará la veracidad de los datos aportados al Proceso de Vulnerabilidad y Riesgo Social por parte de los encargados legales de becados, el estudio de campo lo verificará el PVRS.

@@ -1,0 +1,1 @@
+Artículo 8º—Los solicitantes deberán cumplir los procesos digitales dentro de la calendarización que estipule la Comisión de Becas Municipales y la Unidad de Vulnerabilidad y Riesgo Social para estos efectos.

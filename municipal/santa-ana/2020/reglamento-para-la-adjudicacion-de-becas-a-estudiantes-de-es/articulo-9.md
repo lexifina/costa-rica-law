@@ -1,0 +1,1 @@
+Artículo 9º—La Comisión de Becas Municipales, será la encargada de analizar la información presentada, con base al estudio que elabore la Unidad de Vulnerabilidad y Riesgo Social, y recomendará en última instancia quiénes obtendrán el derecho a beca.

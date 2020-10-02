@@ -1,0 +1,1 @@
+Artículo 18.—Las becas serán depositadas en una cuenta bancaria a nombre del estudiante. En casos en los que el Departamento de tesorería considere oportuno se realizará el pago ya sea en efectivo o cheque.
