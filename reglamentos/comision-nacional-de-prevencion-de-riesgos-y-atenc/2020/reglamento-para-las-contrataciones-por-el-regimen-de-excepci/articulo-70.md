@@ -1,0 +1,2 @@
+Artículo 70.- Admisibilidad del Recurso de Revocatoria. El recurso debe presentarse mediante el Sistema de Compras Públicas. Una vez comunicada la Unidad de Asesoría Legal por parte del Sistema, cuenta con un día hábil para análisis de admisibilidad y solicitud de criterio técnico.
+La UAL deberá determinar si el recurso es admisible para su estudio o si deberá rechazarlo por inadmisible o por improcedencia manifiesta; en caso de declarar el recurso inadmisible o improcedente, tal declaratoria no tiene fase recursiva.

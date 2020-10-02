@@ -1,0 +1,1 @@
+Artículo 67.- Plazo para Presentación del Recurso de Revocatoria. El recurso de revocatoria deberá presentarse dentro del plazo de dos días hábiles contados a partir del día siguiente al que se comunicó el acto a recurrir y será resuelto por el mismo funcionario que emitió el acto impugnado y será el llamado a agotar la vía administrativa.

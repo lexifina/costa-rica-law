@@ -1,0 +1,1 @@
+Artículo 57.-Comité de Recomendación de Adjudicaciones. El Comité de Recomendación de Adjudicaciones sesionará según la necesidad de atención de las gestiones y dejará constancia de todas sus actuaciones en el Sistema Integrado de Compras Públicas.

@@ -1,0 +1,2 @@
+Artículo 28.-Todas las contrataciones se formalizarán a través de contrato mediante el sistema de compras públicas del Estado, excepto las que por Ley deban hacerse en escritura pública.
+La firma digital de los contratos por parte de los funcionarios facultados para ello constituirá la autorización para que el mismo se ejecute, por lo que será responsabilidad del personal designado como administrador de la contratación o del proyecto la verificación del cumplimiento de lo ahí estipulado en concordancia con el ordenamiento jurídico aplicable.

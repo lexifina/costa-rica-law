@@ -1,0 +1,1 @@
+Artículo 38.-Resolución para Trámite de Contratación por Extrema Urgencia. Una vez verificado que el trámite de Plan de Inversión cuenta con criterio legal favorable, la persona que ocupe el cargo de Director(a) Ejecutivo(a) de la CNE firmará la resolución aprobando el trámite.

@@ -1,0 +1,1 @@
+Artículo 36.- Solicitud de Extrema Urgencia. La institución o entidad, así como las Unidades de la CNE requirentes, deberán solicitar a la Proveeduría Institucional el trámite, para lo cual deberán presentar un Plan de Inversión, según se dispondrá en el procedimiento para este efecto y que deberá ser publicado en la página Web de la CNE.

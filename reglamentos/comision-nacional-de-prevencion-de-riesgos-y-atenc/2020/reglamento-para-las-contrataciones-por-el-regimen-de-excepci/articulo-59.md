@@ -1,0 +1,6 @@
+Artículo 59.-Declaratoria de Infructuosidad o de Desierto del Concurso. Para la declaratoria de infructuoso o de desierto, la Administración procederá de la siguiente manera:
+a) Declaratoria del Concurso Infructuoso: Si al concurso no se presentaron ofertas o las que lo hicieron no se ajustaron a los elementos esenciales del concurso, se dictará un acto declarando infructuoso el procedimiento, justificando los incumplimientos sustanciales que presenten las ofertas.
+b) Declaratoria del Concurso Desierto: Si fueron presentadas ofertas elegibles, pero por razones de protección al interés público así lo recomiendan, la Administración, mediante un acto motivado, podrá declarar desierto el concurso.
+Cuando la Administración, decida declarar desierto un procedimiento de contratación, deberá dejar constancia de los motivos específicos de interés público considerados para adoptar esa decisión, mediante resolución que deberá incorporarse en el respectivo expediente de la contratación.
+Cuando se haya invocado motivos de interés público para declarar desierto el concurso, para iniciar un nuevo procedimiento, la Administración deberá acreditar el cambio en las circunstancias que justifican tal medida.
+La declaratoria de infructuoso, de desierto o readjudicación deberá ser dictada por el Presidente de la CNE.

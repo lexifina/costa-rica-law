@@ -1,0 +1,1 @@
+Artículo 40.- Plazo para Recepción de Ofertas. Por tratarse de un procedimiento excepcional, cuyo trámite es urgente y necesario, se establece un plazo mínimo de un día hábil y un plazo máximo para recepción de ofertas de cinco días hábiles.

@@ -1,0 +1,1 @@
+Artículo 99.- Informe del Órgano Director del Procedimiento. Una vez superada la etapa de la audiencia, el órgano director del procedimiento rendirá su informe según lo dispuesto en el procedimiento establecido en el Sistema Integrado de Compras Públicas (SICOP).

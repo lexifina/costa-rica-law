@@ -1,0 +1,1 @@
+Artículo 7°-De la Competencia para Emitir la Decisión Inicial de los Procedimientos de Contratación. Los Directores de área, Jefaturas de Unidades y Encargados de Procesos, salvo disposición en contrario del máximo Jerarca, serán los competentes y responsables para emitir la decisión inicial en cada procedimiento de contratación administrativa.
