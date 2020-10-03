@@ -14,3 +14,4 @@ Manual de Políticas y Procedimientos (Representante Institucional de Colypro)
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-08-29 | la propia norma |
+| 2 | 2020-10-03 | Reglamento 0 (2020-10-03) |
