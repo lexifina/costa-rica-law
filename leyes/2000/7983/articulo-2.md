@@ -1,5 +1,6 @@
 ARTÍCULO 2.- Definiciones. Para los efectos de esta ley, se definen los siguientes términos:
-a) Fondos de capitalización laboral. Los constituidos con las contribuciones de los patronos y los rendimientos o productos de las inversiones, una vez deducidas las comisiones por administración, para crear un ahorro laboral y establecer una contribución al Régimen de Pensiones Complementarias.
+a) Fondos de capitalización laboral. Los constituidos con las contribuciones de los patronos y los rendimientos o productos de las inversiones, una vez deducidas las comisiones por administración, para crear un ahorro laboral.
+(Así reformado el inciso anterior por el artículo 1° de la Ley para resguardar el derecho de los trabajadores a retirar los recursos de la pensión complementaria, N° 9906 del 5 de octubre del 2020)
 b) Fondos de pensiones complementarias. Los constituidos con las contribuciones de los afiliados y los cotizantes de los diversos planes de pensiones y con los rendimientos o los productos de las inversiones, una vez deducidas las comisiones.
 c) Régimen de Pensiones Complementarias. Conjunto de regímenes de pensiones complementarias al Régimen de Invalidez, Vejez y Muerte de la CCSS o de los regímenes públicos sustitutos.
 d) Régimen Obligatorio de Pensiones Complementarias. Sistema de capitalización individual, cuyos aportes serán registrados y controlados por medio del Sistema Centralizado de Recaudación de la CCSS y administrado por medio de las operadoras elegidas por los trabajadores.

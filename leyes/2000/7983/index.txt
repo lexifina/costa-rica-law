@@ -108,3 +108,5 @@ articulo-15-transitorio.md
 articulo-16-transitorio.md
 articulo-17-transitorio.md
 articulo-18-transitorio.md
+articulo-19-transitorio.md
+articulo-20-transitorio.md

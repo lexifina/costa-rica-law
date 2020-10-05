@@ -1,0 +1,10 @@
+TRANSITORIO XIX- Los afiliados al Régimen Obligatorio de Pensiones Complementarias, que hayan adquirido el derecho a la pensión antes del 1 de enero de 2021, podrán optar, al momento de pensionarse, por:
+a) Solicitar el pago de una mensualidad, durante treinta meses, hasta agotar el saldo acumulado del ROP.
+b) Optar por un plan de beneficios de conformidad con el artículo 22 de la presente ley. En este caso, podrán solicitar un retiro acelerado de los recursos acumulados, de acuerdo con las siguientes reglas:
+1) Al cabo de sesenta días de realizada la solicitud del retiro acelerado se le entregará un monto igual a un veinticinco por ciento (25%) del saldo acumulado en su cuenta individual y se continuará con el pago de la pensión, de acuerdo con la modalidad escogida, para los siguientes nueve meses.
+2) Una vez cumplido el período de nueve meses anterior, se le entregará el veinticinco por ciento (25%) del saldo acumulado en su cuenta individual y continuará con el pago de la pensión, de acuerdo con la modalidad escogida, por los siguientes nueve meses.
+3) Una vez cumplido el período de nueve meses anterior, se le entregará el veinticinco por ciento (25%) del saldo acumulado en su cuenta individual y continuará con el pago de la pensión, de acuerdo con la modalidad escogida, por los siguientes nueve meses.
+4) Al finalizar el cuarto período se le entregará al pensionado el saldo de su cuenta.
+5) Los pensionados que se acojan a esta modalidad disfrutarán de la prestación mensual otorgada, la cual se mantendrá invariable durante todo el período de desacumulación.
+La entidad administradora del régimen básico que corresponda deberá entregar al afiliado una certificación o constancia donde figure la fecha en que adquirió el derecho a la pensión, independientemente de la fecha en que se acoja a! beneficio.
+(Así adicionado por el artículo 2° de la Ley para resguardar el derecho de los trabajadores a retirar los recursos de la pensión complementaria, N° 9906 del 5 de octubre del 2020)
