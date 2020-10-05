@@ -120,24 +120,25 @@ c) Talleres.
 d) Bodegas industriales.
 e) Moteles y casas de citas.
 (Así reformado punto 12.3.5, mediante sesión Nº 208, celebrada el 24 de abril del 2006)
-12.3.6 Zona de Comercio Puntual Trejos Montealegre (ZCPTM). Esta zona abarca el sector del actual Centro Comercial Trejos Montealegre, así como los terrenos sin desarrollar frente a este (radial de por medio) y los terrenos al este y oeste del Hospital CIMA y los lotes a ambos lados de la vía al Oeste de la rotonda en Urbanización Trejos Montealegre hasta la primera intersección hacia el Sur. En esta franja, con excepción de los lotes que den directamente a la rotonda, sólo se admitirán usos de oficinas, consultorios y servicios profesionales, además de uso residencial, tal y como se zonifican en el plano respectivo.
+12.3.6 Zona de Comercio Puntual Trejos Montealegre (ZCPTM).
+Esta zona abarca el sector del actual Centro Comercial Trejos Montealegre, así como los terrenos aledaños a este y los ubicados al sur de la autopista Próspero Fernández, según se especifica en el mapa de zonificación del presente Plan Regulador.
 La zona se concibe con especial énfasis comercial de acuerdo con el crecimiento del comercio y de los servicios reflejado por el área circundante, y por su posición estratégica a la entrada de Escazú, tomando en cuenta que se trata de terrenos que por sus características de ubicación pueden desarrollarse en un núcleo importante de comercio, oficinas y servicios.
 Para estacionamientos, rige como mínimo un espacio por cada 30 m2 de área neta comercial o uno por cada seis personas que utilicen un local de reunión pública.
 La cobertura será del 80% (el 20% de área restante debe destinarse a área verde). En cuanto a los retiros, el frontal será de 3 metros y para los laterales y posterior, ver artículo 9.5. La altura máxima permitida es de 21 metros.
-- Usos conformes.
+Usos conformes:
 a. Comercio y servicios.
 b. Oficinas.
 c. Servicios.
-- Usos condicionales.
+Usos condicionales:
 a. Residencial, siempre y cuando los propietarios acepten las incomodidades de ubicación dentro de la zona comercial.
-b. Parqueos de automóviles, con capacidad máxima para 50 espacios.
+b. Parqueos públicos y privados bajo las condiciones del artículo 26.
 c. Bares (siempre que cuenten con un diseño de insonorización aprobado por el Ministerio de Salud).
-- Usos no conformes.
+Usos no conformes:
 a. Discotecas.
-b. Talleres automotrices.
-c. Instalación de vallas publicitarias.
-d. Moteles y casas de citas.
-(Así reformado punto 12.3.6 mediante sesión N° 208, celebrada el 24 de abril del 2006)
+b. T leres automotrices.
+c. nstalación de vallas publicitarias.
+d. M eles y casas de citas.
+(Así reformado el punto 12.3.6 mediante sesión N° 023 del 5° de octubre del 2020)
 12.4. Cementerio. Los requisitos para esta clase de proyecto serán los que el Ministerio de Salud contempla en la Ley de Salud. Además deberán regirse en lo pertinente por el Reglamento de Construcciones y leyes conexas y cumplir con todas las normas que requieren estos proyectos.
 (Así adicionado punto 12.4 mediante sesión Nº 208, celebrada el 24 de abril del 2006)
 (*)12.5 Zona Mixta Lineal para el Desarrollo Sostenible.

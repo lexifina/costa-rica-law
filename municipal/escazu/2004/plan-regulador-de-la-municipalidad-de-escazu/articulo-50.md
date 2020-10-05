@@ -37,6 +37,7 @@ Este Reglamento rige a partir del día de su publicación.
 (Ver Croquis del Plan Regulador de Escazú, en la página No. 37 de La Gaceta No. 90 del 11de mayo del 2006.)
 [imagen]
 (Así adicionado el mapa anterior mediante sesión ordianria N° 164 del 17 de junio del 2019)
+(Así reformado el mapa anterior en sesión N° 023 del 5 de octubre del 2020)
 [imagen]
 (Así adicionado el mapa anterior mediante sesión ordianria N° 164 del 17 de junio del 2019)
 [imagen]
