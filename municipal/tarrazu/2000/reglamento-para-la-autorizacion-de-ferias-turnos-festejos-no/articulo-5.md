@@ -1,1 +1,0 @@
-Articulo 5°—Si en la actividad van a operar carruseles, deberán adjuntar fotocopia certificada de la póliza respectiva extendida por el INS 3 en su caso el recibo oficial de pago de la prima correspondiente emitida por el INS o agente autorizado.

@@ -1,1 +1,0 @@
-Articulo 2°—Como regla general, únicamente se otorga permisos por ocho días, es decir, un fin de semana por comunidad. Sin embargo, cuando los festejos incluyan actividades taurinas u otras demanden gran inversión y organización, a solicitud de los interesados y por acuerdo del Concejo Municipal, se podrá otorgar hasta quince días, o sea, dos fines de semana para dichos festejos.
