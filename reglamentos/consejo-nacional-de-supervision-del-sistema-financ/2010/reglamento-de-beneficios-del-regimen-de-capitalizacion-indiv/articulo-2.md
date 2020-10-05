@@ -1,9 +1,10 @@
 Artículo 2º—Definiciones
 Afiliado: Persona física que cuenta con un saldo en la cuenta de capitalización individual.
 Beneficios: Pensiones derivadas de las modalidades de pensión establecidas en la Ley de Protección al Trabajador o las autorizadas por el Consejo Nacional de Supervisión del Sistema Financiero.
-Beneficiario:
-a. Para el Régimen Obligatorio de Pensiones se entenderá como aquella persona que, de acuerdo con las normas del régimen básico al que haya pertenecido el afiliado o pensionado fallecido, tenga derecho a las prestaciones de sobrevivencia.
-b. Para el Régimen Voluntario de Pensiones Complementarias se entenderá como aquella persona explícitamente designada como tal por el afiliado o pensionado en su contrato de pensión complementaria.
+(*)Beneficiario:
+a. Para el Régimen Obligatorio de Pensiones se entenderá como aquella persona que, de acuerdo con lo previsto en el artículo 20 de la Ley de Protección al Trabajador, tenga derecho a las prestaciones de sobrevivencia.
+b. Para el Régimen Voluntario de Pensiones Complementarias se entenderá como aquella persona explícitamente designada como tal por el afiliado o pensionado en su contrato de pensión complementaria o quien, en defecto de lo anterior, haya sido declarado como heredero o legatario dentro de un proceso sucesorio.
+(*) (Así reformada la definición anterior mediante sesión N° 1609 del 5 de octubre del 2020)
 Capital para la pensión: Saldo de la cuenta de capitalización individual, administrada por una operadora de pensiones, que se utilizará para adquirir una modalidad de pensión debidamente autorizada.
 Código solicitante: Composición de números y letras que sustituyen el nombre, apellido y número de identificación de un afiliado o beneficiario con el fin de solicitar cotizaciones de modalidades de pensión a las otras operadoras de pensiones y compañías de seguros.
 CONASSIF: Consejo Nacional de Supervisión del Sistema Financiero.
@@ -18,8 +19,12 @@ Planes para el retiro de los beneficios: Planes ofrecidos por las Operadoras con
 Prima comercial o tarifa: Monto que paga el afiliado o beneficiario, en un solo tracto, a la compañía aseguradora por la adquisición de la renta vitalicia previsional.
 RAF: Reglamento sobre la apertura y funcionamiento de las entidades autorizadas, el funcionamiento de los fondos de pensiones, capitalización laboral y ahorro voluntario, previstos en la Ley de Protección al Trabajador.
 Regímenes Básicos de Pensiones: Régimen de Invalidez, Vejez y Muerte administrado por la CCSS y los regímenes públicos sustitutos.
-Renta Permanente: Modalidad de pensión mediante la cual el afiliado o beneficiario contrata con la OPC un plan, por medio del cual recibe el producto de los rendimientos de la inversión del capital para la pensión. El saldo se entregará a los beneficiarios designados, los herederos o los legatarios, a la muerte del pensionado.
-Renta Temporal: Modalidad de pensión mediante la cual el afiliado o beneficiario del Régimen Voluntario de Pensiones Complementarias contrata con la OPC un plan, por medio del cual destina el capital para la pensión para ser retirado en pagos periódicos, de conformidad con las condiciones pactadas.
+Renta Permanente: Modalidad de pensión mediante la cual el afiliado o beneficiario contrata con la OPC un plan, por medio del cual recibe el producto de los rendimientos de la inversión del capital para la pensión. El saldo se entregará a los beneficiarios.
+(Así reformada la definición anterior mediante sesión N° 1609 del 5 de octubre del 2020)
+Renta Temporal: Modalidad de pensión mediante la cual el afiliado o beneficiario del Régimen Voluntario u Obligatorio de Pensiones Complementarias contrata con la OPC un plan, por medio del cual destina el capital para la pensión para ser retirado en pagos periódicos, de conformidad con las condiciones pactadas.
+(Así reformada la definición anterior mediante sesión N° 1609 del 5 de octubre del 2020)
+Tratándose de Rentas Temporales del ROP, la renta será calculada hasta la expectativa de vida condicionada del pensionado.
+(Así reformada la definición anterior mediante sesión N° 1609 del 5 de octubre del 2020)
 Renta Vitalicia Previsional: Modalidad de pensión por medio de la cual el asegurado o beneficiario contrata con una entidad aseguradora autorizada en el país el pago de una renta desde el momento en que se firma el contrato hasta el fallecimiento del pensionado, utilizando para ello el capital para la pensión del Régimen Complementario de Pensiones Obligatorio o Voluntario.
 (Así reformado el punto anterior mediante sesión N° 999-2012 del 25 de setiembre del 2012)
 Renta Vitalicia Previsional con Periodo Garantizado: Modalidad de pensión en la cual se pacta contractualmente que en caso de fallecimiento del titular, los beneficiarios continuarán recibiendo las rentas así pactadas en el contrato, por un número de años previamente determinado en el contrato. En el Régimen Obligatorio de Pensiones, los beneficiarios serán los que determine el Régimen Básico.

@@ -1,7 +1,9 @@
-Artículo 4º—Conformación del capital para la pensión complementaria El capital para pensión estará constituido por el saldo acumulado en la cuenta de capitalización individual del afiliado, administrada por una OPC.
-En el caso del ROP, deberá incluir los recursos que pertenecen al trabajador, según los literales a), b) y d) del artículo 13 de la Ley 7983, que no hayan sido trasladados a su cuenta de capitalización individual.
+Artículo 4. Conformación del capital para la pensión complementaria
+El capital para pensión estará constituido por el saldo acumulado en la cuenta de capitalización individual del afiliado, administrada por una OPC.
+En el caso del ROP, deberá incluir los recursos que pertenecen al trabajador, según los literales a), b), c), y d) del artículo 13 de la Ley 7983, que no hayan sido trasladados a su cuenta de capitalización individual.
 La OPC, dentro de los tres días hábiles posteriores a su entrada en conocimiento de la declaración del derecho en el régimen básico en favor del afiliado o a partir de su solicitud, lo que ocurra primero, deberá solicitar el traslado de los recursos que no se encuentren en la cuenta individual del afiliado. Cumplido este plazo, las entidades que mantengan recursos del trabajador contarán con doce días hábiles para acreditarlos en la cuenta del trabajador.
-Trascurrido el plazo antes indicado, el total de los recursos que se encuentren disponibles en la cuenta del afiliado, serán utilizados para calcular el monto establecido en el artículo 6 de este reglamento. El afiliado podrá adicionar a su saldo los recursos del RVPC trasladándolos al ROP.
-Los recursos trasladados del RVPC al ROP solamente podrán ser utilizados para contratar una modalidad de pensión, con excepción del Retiro Total.
-En caso que los recursos provenientes del RVPC se utilicen, en todo o en parte, para adquirir una Renta Vitalicia administrada por una compañía de seguros, los recursos serán trasladados directamente por la OPC a la compañía de seguros, una vez que la OPC tenga en su poder la póliza debidamente suscrita por ambas partes.
-(Así reformado en sesión N° 1157 del 6 de abril de 2015)
+Salvo lo que de manera excepcional se indique en este reglamento, trascurrido el plazo antes indicado, el total de los recursos que se encuentren disponibles en la cuenta del afiliado, serán utilizados, exclusivamente, para adquirir algunas de las modalidades prescritas en el artículo 25 de este reglamento.
+El afiliado podrá adicionar a su saldo los recursos del RVPC trasladándolos al ROP.
+Los recursos trasladados del RVPC al ROP solamente podrán ser utilizados para contratar una modalidad de pensión.
+En caso de que los recursos provenientes del RVPC se utilicen, en todo o en parte, para adquirir una Renta Vitalicia administrada por una compañía de seguros, los recursos serán trasladados directamente por la OPC a la compañía de seguros, una vez que la OPC tenga en su poder la póliza debidamente suscrita por ambas partes.
+(Así reformado mediante sesión N° 1609-2020 del 5 de octubre del 2020)
