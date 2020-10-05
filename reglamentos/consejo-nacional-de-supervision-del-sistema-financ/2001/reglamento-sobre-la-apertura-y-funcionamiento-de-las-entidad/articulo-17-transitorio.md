@@ -1,3 +1,5 @@
-Transitorio.—Licitación del fondo de registros erróneos.
-La Superintendencia organizará, dentro de un plazo no mayor a un año, a partir de la publicación en el Diario Oficial La Gaceta de la reforma del artículo 4 de este reglamento, la licitación y traslado de recursos señalada en el segundo párrafo del citado artículo.
+Transitorio XVII. Traslados del Fondo de Capitalización Laboral y del Banco Popular y de Desarrollo Comunal al Régimen Obligatorio de Pensiones.
+i. Los recursos del Régimen Obligatorio de Pensiones Complementarias que se encuentren en las cuentas del Fondo de Capitalización Laboral, con anterioridad a la entrada en vigencia de la Ley No. 9906, serán trasladados durante el mes de marzo del año de 2021, conforme establezca el correspondiente acuerdo del Superintendente de Pensiones.
+ii. Los recursos correspondientes al uno por ciento (1%) establecido en el inciso b) del artículo 5 de la Ley Orgánica del Banco Popular y de Desarrollo Comunal, No. 4351, de 11de julio de 1969, según el inciso a) del artículo 13 de la Ley de Protección al Trabajador, que hubieren ingresado a dicha entidad bancaria antes de la entrada en vigencia de la Ley 9906, se regirán por las normas vigentes a esa fecha.
 (Así adicionado mediante sesión N° 709 del 28 de marzo de 2008)
+(Así reformado mediante sesión N° 1609-2020 del 5 de octubre del 2020)

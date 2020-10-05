@@ -48,3 +48,4 @@ Reglamento sobre la Apertura y Funcionamiento de las Entidades Autorizadas y el 
 | 33 | 2017-05-16 | Reglamento 1332 (2017-05-16) |
 | 34 | 2019-03-05 | Reglamento 1485 (2019-03-05) |
 | 35 | 2020-05-25 | Reglamento 1577 (2020-05-25) |
+| 36 | 2020-10-05 | Reglamento 1609 (2020-10-05) |
