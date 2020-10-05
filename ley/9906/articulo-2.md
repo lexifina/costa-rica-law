@@ -1,0 +1,14 @@
+ARTICULO 2- Se adicionan los transitorios XIX y XX a la Ley 7983, Ley de Protección al Trabajador, de 16 de febrero de 2000. Los textos son los siguientes:
+TRANSITORIO XIX- Los afiliados al Régimen Obligatorio de Pensiones Complementarias, que hayan adquirido el derecho a la pensión antes del 1 de enero de 2021, podrán optar, al momento de pensionarse, por:
+a) Solicitar el pago de una mensualidad, durante treinta meses, hasta agotar el saldo acumulado del ROP.
+b) Optar por un plan de beneficios de conformidad con el artículo 22 de la presente ley. En este caso, podrán solicitar un retiro acelerado de los recursos acumulados, de acuerdo con las siguientes reglas:
+1) Al cabo de sesenta días de realizada la solicitud del retiro acelerado se le entregará un monto igual a un veinticinco por ciento (25%) del saldo acumulado en su cuenta individual y se continuará con el pago de la pensión, de acuerdo con la modalidad escogida, para los siguientes nueve meses.
+2) Una vez cumplido el período de nueve meses anterior, se le entregará el veinticinco por ciento (25%) del saldo acumulado en su cuenta individual y continuará con el pago de la pensión, de acuerdo con la modalidad escogida, por los siguientes nueve meses.
+3) Una vez cumplido el período de nueve meses anterior, se le entregará el veinticinco por ciento (25%) del saldo acumulado en su cuenta individual y continuará con el pago de la pensión, de acuerdo con la modalidad escogida, por los siguientes nueve meses.
+4) Al finalizar el cuarto período se le entregará al pensionado el saldo de su cuenta.
+5) Los pensionados que se acojan a esta modalidad disfrutarán de la prestación mensual otorgada, la cual se mantendrá invariable durante todo el período de desacumulación.
+La entidad administradora del régimen básico que corresponda deberá entregar al afiliado una certificación o constancia donde figure la fecha en que adquirió el derecho a la pensión, independientemente de la fecha en que se acoja a! beneficio.
+TRANSITORIO XX- Los afiliados al Régimen Obligatorio de Pensiones Complementarias, que se pensionen a partir del 1 de enero de 2021 y hasta el 18 de febrero de 2030, podrán retirar los fondos acumulados en sus cuentas individuales en rentas temporales por un plazo equivalente a la cantidad de cuotas aportadas a este régimen. En aquellos casos en que el monto de la pensión sea menor a un veinte por ciento (20%) de la pensión mínima deí Régimen de Invalidez, Vejez y Muerte, la pensión otorgada por el Régimen Obligatorio de Pensiones será ese monto, el cual se seguirá abonando hasta que se agote el saldo acumulado, sin importar la cantidad de cuotas aportadas a este régimen.
+Rige a partir de su publicación.
+Dado en la Presidencia de la República, San José, a los cinco días del mes de octubre del año dos mil veinte.
+EJECÚTESE Y PUBLIQUESE.
