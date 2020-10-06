@@ -1,2 +1,0 @@
-DISPOSICIONES FINALES
-Artículo 25.—Indexación. Cada año a partir de la entrada en vigencia del presente Arancel, la Junta Directiva del Colegio de Profesionales en Nutrición deberá solicitar a la Comisión de Honorarios y Tarifas actualizar el presente Arancel. Las nuevas tarifas deberán ser enviadas por la Junta Directiva del Colegio de Profesionales en Nutrición al Diario Oficial La Gaceta para entrar a regir a partir de su publicación.

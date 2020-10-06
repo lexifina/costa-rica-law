@@ -1,1 +1,0 @@
-Artículo 8°—Servicios profesionales por retribución de honorarios. Cuando el profesional brinde servicios profesionales mediante el pago de honorarios, para su determinación regirán las disposiciones de este Arancel.

@@ -1,1 +1,0 @@
-Artículo 4º—Propiedad de los honorarios: Los honorarios corresponden al profesional que ha sido directamente contratado por el cliente a quien se van a brindar los servicios profesionales en cualesquiera de las categorías antes mencionadas. Las relaciones laborales entre el profesional y el personal a su servicio son ajenas a dicha prohibición.
