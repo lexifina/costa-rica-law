@@ -1,1 +1,0 @@
-Artículo 26.—Aprobación de actas: Las actas de las sesiones del Concejo de Distrito y de los Concejos de Distrito Ampliado, deberán ser aprobadas en la sesión ordinaria posterior, salvo que lo impidan razones de fuerza mayor, en cuyo caso la aprobación se pospondrá para la sesión ordinaria siguiente.

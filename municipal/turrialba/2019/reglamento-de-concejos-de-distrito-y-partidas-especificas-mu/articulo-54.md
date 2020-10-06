@@ -1,5 +1,0 @@
-CAPÍTULO XII
-Del Procedimiento para Gestionar
-Cambios de Destino de los Proyectos
-de Partidas Específicas
-Artículo 54.—Las variaciones de destino de los proyectos de partidas específicas, deberán surgir previamente a iniciativa de las organizaciones beneficiadas por los proyectos, quienes a su vez lo comunicarán al Concejo de Distrito respectivo, adjunto a esta solicitud deberá remitir la documentación establecida en los incisos f), g), i), j), k), m), n) y p) del ordinal 41° del presente reglamento. Luego de recibida la solicitud por parte de la organización, el Concejo de Distrito deberá, en el plazo de 5 días hábiles, remitirla a conocimiento de la Unidad Ejecutora, a efecto de que esta última, en un plazo igual al anterior, emita análisis vinculante respecto a la viabilidad técnica, legal y económica del proyecto propuesto.

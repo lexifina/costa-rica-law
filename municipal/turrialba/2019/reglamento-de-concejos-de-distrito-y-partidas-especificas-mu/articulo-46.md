@@ -1,1 +1,0 @@
-Artículo 46.—Listos los diseños constructivos, antes de finalizar el tercer trimestre del año, el área de ingeniería realizará el presupuesto de la lista de materiales de las obras correspondientes a cada proyecto.

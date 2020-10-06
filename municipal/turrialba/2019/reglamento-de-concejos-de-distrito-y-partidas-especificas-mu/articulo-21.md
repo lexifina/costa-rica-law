@@ -1,1 +1,0 @@
-Artículo 21.—De la Votación. Al dar por discutido un asunto, el síndico o síndica presidente dará un término prudencial para recibir la votación correspondiente. Los y las Concejales deberán dar su voto necesariamente en sentido afirmativo o negativo; no caben las abstenciones, y podrán razonar su voto, obligatoriamente en el caso de ser negativo.

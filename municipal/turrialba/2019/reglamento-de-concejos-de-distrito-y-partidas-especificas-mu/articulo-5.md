@@ -1,2 +1,0 @@
-|Artículo 5º—Generalidades: La jurisdicción del Concejo de Distrito, es el territorio del distrito y estará integrado por un síndico o una síndica y cuatro concejales de distrito, con sus respectivos suplentes, quienes en su seno deberán nombrar un secretario o secretaria y tres vocales, durarán en sus cargos cuatro años. El Síndico Propietario será el Presidente del Concejo de Distrito y en sus ausencias temporales será sustituido por el Síndico Suplente.
-En ausencia de ambos el concejal de mayor edad será el que asume la presidencia del Concejo de Distrito.

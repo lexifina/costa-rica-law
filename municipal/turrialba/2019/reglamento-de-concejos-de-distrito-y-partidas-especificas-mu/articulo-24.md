@@ -1,2 +1,0 @@
-Artículo 24.—Rendición de Cuentas: Los Concejos de Distrito están en la obligación de rendir cuentas a las distintas organizaciones y comunidades, para cuyo efecto deberá convocar al menos a una reunión en el mes de marzo de cada año, de manera general o particular. Debe de constar en las actas y emitirse un informe escrito para que los interesados de la comunidad tengan acceso a él.
-El síndico propietario o suplente deberá rendir un informe cada seis meses al Concejo Municipal.

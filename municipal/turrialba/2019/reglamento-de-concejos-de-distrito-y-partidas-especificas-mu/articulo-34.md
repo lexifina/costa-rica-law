@@ -1,1 +1,0 @@
-Artículo 34.—Además del procedimiento ya establecido en las normativas mencionadas en el ordinal anterior, la Municipalidad de Turrialba establecerá otras medidas de control interno que serán normadas a través de los artículos siguientes.
