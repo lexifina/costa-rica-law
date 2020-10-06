@@ -1,0 +1,1 @@
+Artículo 13.—Capacidad del parqueo. El parqueo del Polideportivo Monserrat será determinado por la Administración, quien deberá garantizar que dichos espacios estén debidamente rotulados y en una zona segura.

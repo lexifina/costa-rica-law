@@ -1,0 +1,1 @@
+Artículo 18.—La lista oficial de restricción de ingreso. La Administración elaborará la lista oficial de vehículos con acceso restringido, para ello se basará en hechos comprobados y verificables en las cámaras de seguridad.

@@ -1,0 +1,1 @@
+Artículo 3º—Prioridad de tránsito. En Polideportivo Monserrat tiene prioridad de tránsito los peatones sobre los vehículos, por ello estos últimos deben transitar a un máximo de 10 kilómetros por hora y dar la cortesía a los peatones siempre que sea necesario. Para ambos existirán espacios debidamente demarcados.

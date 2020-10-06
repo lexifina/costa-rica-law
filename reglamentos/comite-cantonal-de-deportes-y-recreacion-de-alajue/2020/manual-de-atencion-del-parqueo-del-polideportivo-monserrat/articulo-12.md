@@ -1,0 +1,1 @@
+Artículo 12.—Si las solicitudes de permisos de estacionamiento excediesen el número de espacios disponibles, la Administración tendrá la potestad de establecer un orden jerárquico de prioridades, de forma tal que se asegure a el funcionamiento adecuado del Polideportivo Monserrat.

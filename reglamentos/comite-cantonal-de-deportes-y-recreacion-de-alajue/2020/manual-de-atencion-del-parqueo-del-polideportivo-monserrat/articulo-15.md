@@ -1,0 +1,1 @@
+Artículo 15.—Método de control de acceso. Los oficiales de seguridad permitirán el acceso al parqueo en caso de haber espacio y otorgarán una ficha numerada de plástico con el logo oficial del CODEA a cada visitante.

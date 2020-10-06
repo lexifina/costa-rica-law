@@ -1,0 +1,1 @@
+Artículo 7º—De acuerdo con las necesidades y disponibilidad de espacio, el CODEA, por medio de la Administración, establecerá áreas específicas de estacionamiento para uso de funcionarios, entrenadores, directivos e invitados especiales.

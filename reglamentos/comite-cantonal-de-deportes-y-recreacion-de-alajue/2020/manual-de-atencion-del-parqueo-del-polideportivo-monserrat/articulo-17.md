@@ -1,0 +1,1 @@
+Artículo 17.—Ante el no pago de la multa: Si un usuario manifiesta que no puede o no acepta cancelar el monto por pérdida de ficha, en el momento o en el trascurso de 15 días hábiles posteriores, se anotará el número placa del vehículo y se le prohibirá a este el ingreso futuro al Polideportivo Monserrat.

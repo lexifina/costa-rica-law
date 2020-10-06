@@ -1,0 +1,1 @@
+Artículo 16.—Sobre la pérdida de las fichas: Si un usuario perdiera la ficha entregada a su entrada al Polideportivo Monserrat deberá cancelar un monto de 5.000 colones, la cual será cancelada en la casetilla del guarda a través del uso del datafono.

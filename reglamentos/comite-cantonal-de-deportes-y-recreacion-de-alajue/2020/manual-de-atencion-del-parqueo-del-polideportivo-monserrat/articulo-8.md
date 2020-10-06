@@ -1,0 +1,1 @@
+Artículo 8º—Aparte de las señaladas en el artículo anterior, la Administración establecerá zonas especiales para personas con discapacidad; así como para el estacionamiento de vehículos de emergencia (ambulancia, unidad de extinción de incendios, entre otras) y para carga y descarga de materiales.

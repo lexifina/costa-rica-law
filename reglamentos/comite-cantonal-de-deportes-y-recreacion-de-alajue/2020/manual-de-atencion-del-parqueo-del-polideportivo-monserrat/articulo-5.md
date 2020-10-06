@@ -1,0 +1,2 @@
+Artículo 5º—No se permitirá el ingreso al Polideportivo o la permanencia de vehículos en las áreas de estacionamiento, salvo casos especiales o de fuerza mayor, en el siguiente horario: Lunes a sábado: de las 22:01 a las 04:59 horas, domingos: de las 18:01 a las 05:59 horas.
+Aquellas personas que por una circunstancia calificada deban ingresar regularmente al Polideportivo Monserrat y utilizar las áreas de estacionamiento en horas no hábiles, deben solicitar un permiso especial de la dirección administrativa.

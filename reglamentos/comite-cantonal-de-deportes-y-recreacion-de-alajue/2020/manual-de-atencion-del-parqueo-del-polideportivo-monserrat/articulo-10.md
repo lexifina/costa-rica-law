@@ -1,0 +1,1 @@
+Artículo 10.—Para hacer uso de las áreas de estacionamiento, la Administración, de acuerdo a las necesidades de uso, expedirá permisos de estacionamiento temporal, correspondiente a las categorías: visitante, funcionario, directivo, invitado especial y personas con discapacidad.

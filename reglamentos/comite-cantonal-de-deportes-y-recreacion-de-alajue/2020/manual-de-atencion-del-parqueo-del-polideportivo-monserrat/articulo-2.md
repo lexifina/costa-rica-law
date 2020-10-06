@@ -1,0 +1,1 @@
+Artículo 2º—Las vías de tránsito que atraviesan las instalaciones del Polideportivo Monserrat son de carácter privado, por tanto, se controlará y restringirá la circulación de vehículos por las mismas a través de la Junta Directiva del CODEA.
