@@ -15,3 +15,4 @@ Reglamento sobre licencias de expendio de bebidas con contenido alcohólico
 | --- | --- | --- |
 | 1 | 2013-04-05 | la propia norma |
 | 2 | 2017-05-23 | Reglamento municipal 21 (2017-05-23) |
+| 3 | 2020-10-06 | Reglamento municipal 40 (2020-10-06) |
