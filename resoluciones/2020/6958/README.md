@@ -14,3 +14,4 @@ Ordena la suspensión temporal de aquellas actividades que favorezcan el surgimi
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-09-09 | la propia norma |
+| 2 | 2020-10-06 | Resolución 7344 (2020-10-06) |

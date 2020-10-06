@@ -30,7 +30,8 @@ A. Podrán funcionar de lunes a domingo sin restricción horaria:
 27. Servicios bancarios y financieros públicos o privados, en entidades financieras o no financieras, con una capacidad de ocupación al cincuenta por ciento (50%).
 28. La venta de loterías y productos de azar debidamente autorizados por la Junta de Protección Social.
 29. Funerarias y/o capillas de velación, con una capacidad de ocupación al cincuenta por ciento (50%).
-30. Guarderías públicas, privadas o mixtas tuteladas por el CAI o el MEP.
+30. Guarderías públicas, privadas o mixtas tuteladas por el CAI.
+(Así reformado el inciso anterior mediante resolución N° MD-DM-7344-2020 del 6 de octubre del 2020)
 31. Centros de atención de personas en condición de vulnerabilidad y dependencia, públicos y privados.
 32. Hoteles, cabinas o establecimientos de alojamiento.
 33. Piscinas, restaurantes y gimnasios de hoteles, cabinas o establecimientos de alojamiento, con una capacidad de ocupación al cincuenta por ciento (50%).

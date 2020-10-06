@@ -10,7 +10,8 @@ A. Podrán operar de lunes a domingo sin restricción horaria:
 5. Servicios comunitarios de recolección de residuos.
 6. Los establecimientos de salud públicos y privados (clínicas, farmacias, hospitales, laboratorios, consultorios, servicios de radiodiagnósticos, servicios de emergencias, ópticas, macrobióticas, entre otros), clínicas veterinarias y droguerías.
 7. Servicios de salud en unidades móviles cumpliendo con lo establecido en el Decreto Ejecutivo No. 41045-S.
-8. Guarderías públicas, privadas o mixtas tuteladas por el CAI o el MEP.
+8. Guarderías públicas, privadas o mixtas tuteladas por el CAI.
+(Así reformado el inciso anterior mediante resolución N° MS-DM-7344-2020 del 6 de octubre del 2020)
 9. Centros de atención a personas en condición de vulnerabilidad y dependencia.
 10. Estacionamientos o parqueos públicos.
 11. Encomiendas.
@@ -65,7 +66,8 @@ E. Podrán operar de lunes a viernes de las 5:00 horas a las 22:00 horas, y de s
 1. Venta al por menor de vehículos automotores nuevos y usados.
 2. Gimnasios con programación de citas y horario diferenciado para personas con factores de riesgo.
 3. Escuelas de manejo.
-4. Restaurantes (los comercios con patente de Bar y Restaurante, solo se les permitirá la operación del área de restaurante con expendio de bebidas alcohólicas siempre que cumplan con capacidad de ocupación al cincuenta por ciento (50%)).
+4. Restaurantes.
+(Así reformado el punto anterior mediante resolución N° MS-DM-7344-2020 del 6 de octubre del 2020)
 5. Sodas y Cafeterías.
 6. Plazas de comidas (food trucks, food courts).
 7. Tiendas en general.
@@ -75,3 +77,7 @@ E. Podrán operar de lunes a viernes de las 5:00 horas a las 22:00 horas, y de s
 11. Academias de arte y baile sin contacto físico.
 12. Polígonos de tiro.
 13. Actividades de agentes dedicados a la venta de animales vivos (subastas ganaderas).
+14. Casinos.
+(Así adicionado el punto anterior mediante resolución N° MS-DM-7344-2020 del 6 de octubre del 2020)
+15. Bares.
+(Así adicionado el punto anterior mediante resolución N° MS-DM-7344-2020 del 6 de octubre del 2020)

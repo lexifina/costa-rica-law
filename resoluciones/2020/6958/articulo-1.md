@@ -43,21 +43,22 @@ A. Todas las actividades de concentración masiva que cuentan con o requieren de
 10. Festival Internacional de Cine.
 11. Organización de convenciones y exposiciones comerciales.
 12. Festival Nacional de las Artes.
-B. Todos los sitios de reunión pública, que cuenten con su respectivo permiso sanitario de funcionamiento, a decir:
+B. Todos los sitios de reunión pública, que cuenten con su respectivo
+permiso sanitario de funcionamiento, a decir:
 1. Teatro Popular Mélico Salazar (salvo para transmisiones virtuales).
 2. Teatro Nacional (salvo para transmisiones virtuales y visitas guiadas con
 grupos no más de 10 personas).
-3. Juegos para niños ("plays"), parques de patinaje, parques de jumping, inflables
-y similares.
+3. Juegos para niños ("plays"), parques de patinaje, parques de jumping,
+inflables y similares.
 4. Parque Diversiones.
-5. Parque Viva (salvo las carreras automovilísticas sin espectadores y el auto
-evento.)
-6. Bares.
-7. Discotecas.
-8. Clubes nocturnos (“Night Club”).
-9. Balnearios.
-10. Actividades y procesiones religiosas.
-11. Actividades de juegos de azar y apuestas; como casinos y bingos.
+5. Parque Viva (salvo las carreras automovilísticas sin espectadores y el
+auto evento.)
+6. Discotecas.
+7. Clubes nocturnos (“Night Club”).
+8. Balnearios.
+9. Actividades y procesiones religiosas.
+10. Bingos.
+(Así reformada la disposición segunda anterior mediante resolución N° MS-DM-7344-2020 del 6 de octubre del 2020)
 TERCERO: Se resuelve ordenar a partir del 09 de setiembre de 2020, la apertura controlada con estricto cumplimiento de protocolos y medidas sanitarias para evitar la propagación del COVID-19, de los establecimientos que cuenten con permiso sanitario de funcionamiento que atienden al público, en un horario de lunes a viernes desde las 5:00 horas y hasta las 22:00 horas, y de sábados a domingos desde las 5:00 horas y hasta las 20:00 horas, respetando el cincuenta por ciento (50%) de su capacidad máxima de aforo. Se exceptúan de la restricción de horario y del cincuenta por ciento (50%) de su capacidad máxima de aforo las siguientes actividades:
 1. Servicios a domicilio.
 2. Alquiler de vehículos “rent a car”.
@@ -66,7 +67,8 @@ TERCERO: Se resuelve ordenar a partir del 09 de setiembre de 2020, la apertura c
 5. Servicios comunitarios de recolección de residuos.
 6. Los establecimientos de salud públicos y privados (clínicas, farmacias, hospitales, laboratorios, consultorios, servicios de radiodiagnósticos, servicios de emergencias, ópticas, macrobióticas, entre otros), clínicas veterinarias y droguerías.
 7. Servicios de salud en unidades móviles cumpliendo con lo establecido en el Decreto Ejecutivo No. 41045-S.
-8. Guarderías públicas, privadas o mixtas tuteladas por el CAI o el MEP.
+8. Guarderías públicas, privadas o mixtas tuteladas por el CAI.
+(Así reformado el inciso anterior mediante resolución N° MS-DM-7344-2020 del 6 de octubre del 2020)
 9. Centros de atención a personas en condición de vulnerabilidad y dependencia.
 10. Estacionamientos o parqueos públicos.
 11. Encomiendas.
