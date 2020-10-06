@@ -1,1 +1,0 @@
-Artículo 4º—A efectos de la aplicación de la presente normativa, la Municipalidad de Curridabat crea dentro de la estructura de la Dirección de Cultura y Deporte, la Oficina Municipal de la Persona Joven.

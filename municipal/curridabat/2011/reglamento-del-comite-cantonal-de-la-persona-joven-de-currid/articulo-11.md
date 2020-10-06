@@ -1,1 +1,0 @@
-Artículo 11.—Para efectos del presente Reglamento, serán deberes del Estado costarricense con las personas jóvenes los temas de salud, trabajo y educación, según lo establece la Ley General de la Persona Joven en su artículo 6.

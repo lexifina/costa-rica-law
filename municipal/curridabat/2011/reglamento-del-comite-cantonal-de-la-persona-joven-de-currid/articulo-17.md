@@ -1,1 +1,0 @@
-Artículo 17.—El Concejo Municipal y la Alcaldía tomarán las medidas del caso, a fin de asignar recursos económicos destinados al fomento de la participación joven; así como a la difusión y promoción de programas dirigidos a esta población en temas de vivienda, empleo y tecnología.

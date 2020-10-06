@@ -1,1 +1,0 @@
-Artículo 24.—El nombramiento de los dos representantes de los colegios, deberá ser gestionado por las autoridades de los centros educativos públicos y privados del cantón, a solicitud de la Oficina de la Persona Joven y estos deben residir en el cantón de Curridabat.
