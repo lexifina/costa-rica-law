@@ -1,0 +1,1 @@
+ARTÍCULO 2- Los bienes inmuebles mencionados en el artículo anterior se afectan al nuevo uso público de área comunal, para la consolidación de las edificaciones existentes en los inmuebles de salón comunal, bodega y camerinos de la Municipalidad de Tibás.
