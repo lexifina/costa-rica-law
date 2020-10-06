@@ -1,1 +1,0 @@
-Artículo 15.—Información adicional: El denunciante también deberá brindar información complementaria respecto de la estimación del perjuicio económico producido a los fondos públicos manejados por la municipalidad, en caso de conocerlo, la indicación de probables testigos y el lugar o medio para citarlos, así como la aportación o sugerencia de otras pruebas.

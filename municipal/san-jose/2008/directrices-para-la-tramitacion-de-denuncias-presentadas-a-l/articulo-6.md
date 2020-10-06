@@ -1,2 +1,0 @@
-Artículo 6º—Recibo de la denuncia: La Auditoría Interna recibirá las denuncias en su oficina. Dichas denuncias deberán venir dirigidas en forma directa a la Auditoría Interna. El Auditor Interno valorará la admisibilidad de las denuncias presentadas, para lo cual podrá recurrir en concurso a otros funcionarios de la Auditoria Interna y cualquiera sea el resultado del análisis deberá consignarse y sustentarse por escrito.
-La Auditoría Interna tramitará las denuncias que le sean trasladas por parte de la Contraloría General de la República, en el ejercicio de su competencia.
