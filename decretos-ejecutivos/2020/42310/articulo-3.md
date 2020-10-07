@@ -1,0 +1,1 @@
+Artículo 3º—Derogatoria. Deróguese el artículo 7° del Decreto Ejecutivo N° 39.330- MOPT-H-PLAN-MIVAH del 7 de octubre de 2015, por lo que se corre la numeración para que los actuales artículos 8 y 9 pasen a ser los artículos 7 y 8 respectivamente.
