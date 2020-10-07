@@ -1,1 +1,0 @@
-Artículo 8°-Derogatoria. Deróguese el Decreto Ejecutivo número 41356 del 16 de octubre de 2018, publicado en el Alcance número 190 a La Gaceta número 201 del 31 de octubre de 2018 así como los tomos del I al VIII.
