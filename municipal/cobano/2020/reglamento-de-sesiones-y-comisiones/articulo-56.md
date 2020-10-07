@@ -1,0 +1,1 @@
+Artículo 56.—El Presidente (a) del Concejo recibirá con la debida anticipación la lista de audiencias solicitadas, con el objeto de que los Concejales se preparen debidamente para la misma o citen al funcionario municipal que conozca la materia para que los asesore debidamente.

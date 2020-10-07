@@ -1,0 +1,1 @@
+Artículo 14.—Podrán celebrarse sesiones ordinarias y extraordinarias fuera de la sede del Concejo Municipal, cuando así lo acuerde ese órgano colegiado por ameritarse el traslado al sitio acordado y para tratar sobre asuntos propios del lugar donde se citó la sesión.

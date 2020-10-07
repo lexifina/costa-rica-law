@@ -1,0 +1,1 @@
+Artículo 32.—Si el retiro es temporal, el Concejal que se ausente contará con quince minutos para retornar a su curul, situación que de no producirse le acarreará la pérdida del derecho a continuar como miembro del Concejo en esa sesión y el de gozar del derecho del pago de la dieta, ocupando su lugar el suplente correspondiente.

@@ -1,0 +1,1 @@
+Artículo 9º— En casos de excepción, cuando el Concejo requiera el criterio técnico de cualquier funcionario municipal, con previo aviso, dicho funcionario podrá ser llamado a una sesión del Concejo Municipal, según lo establecido en el artículo 40 del Código Municipal, sin que deba pagársele remuneración alguna por ello.

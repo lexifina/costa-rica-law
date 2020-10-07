@@ -1,0 +1,1 @@
+Artículo 85. — Las actas deberán estar listas dos horas antes de celebrarse la sesión y se envían en forma digital a cada miembro del Concejo y solo se imprimirá un juego para el presidente del Concejo y para aprobar el acta se contará con un tiempo máximo de diez minutos.

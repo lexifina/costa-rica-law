@@ -1,0 +1,1 @@
+Artículo 49.—Para cada proyecto la secretaría municipal abrirá un expediente que contenga al menos la moción y proposición que lo origina, el dictamen de comisión cuando existiere, la trascripción de las deliberaciones suscitadas, la trascripción del acuerdo tomado y todos los demás documentos que surjan a raíz del mismo, ya sea en su origen o posterior a él, hasta ser ejecutado.

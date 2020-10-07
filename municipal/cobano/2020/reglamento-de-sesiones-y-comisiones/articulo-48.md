@@ -1,0 +1,1 @@
+Artículo 48.—Podrá cualquier miembro del Concejo solicitar el receso requerido para preparar y presentar ante el seno del Concejo su moción escrita, cuando durante el desarrollo de la sesión surja la necesidad de tomar un acuerdo respecto al asunto que se conoce, ajustando la misma al procedimiento establecido en el artículo anterior.

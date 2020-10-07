@@ -1,0 +1,1 @@
+Artículo 25.—Cuando algún miembro desee que se conozca algún asunto de su especial interés, lo hará saber al presidente antes que el orden del día haya sido confeccionado, a efecto de que ocupe el campo correspondiente.

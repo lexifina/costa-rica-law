@@ -1,0 +1,1 @@
+Artículo 81. —Los acuerdos consignados en el acta, quedarán definitivamente aprobados luego de la aprobación del acta, salvo aquellos que en la misma sesión en que fueron tomados sean declarados definitivamente aprobados.

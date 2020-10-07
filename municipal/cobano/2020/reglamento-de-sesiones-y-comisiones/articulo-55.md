@@ -1,0 +1,1 @@
+Artículo 55.—La Secretaría del Concejo remitirá al presidente en orden de presentación, las solicitudes de audiencia para su respectiva respuesta, y notificará oportunamente a los interesados las invitaciones a las audiencias que acuerde el Concejo, en el lugar o medio por ellos señalados.
