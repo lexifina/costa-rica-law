@@ -1,0 +1,1 @@
+ARTÍCULO 49° Los Comités Comunales deberán reunirse en sesión pública, cada ocho días ordinaria y extraordinariamente cuando lo requieran. El CCDRB a través de sus Subprocesos deben capacitar a los miembros de los Comités Comunales en relación con el orden del manejo de correspondencia, actas, dineros, proyectos, planes, políticas, entre otros.

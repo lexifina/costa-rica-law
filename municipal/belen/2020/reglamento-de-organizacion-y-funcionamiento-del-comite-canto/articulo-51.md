@@ -1,0 +1,1 @@
+ARTÍCULO 51° Cuando el Comité Comunal en coordinación con el área técnica del CCDRB realice torneos estará en la obligación de confeccionar su respectiva regulación que deberá ser aprobada previamente por la JD del CCDRB.

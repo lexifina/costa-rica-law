@@ -1,0 +1,1 @@
+ARTÍCULO 59° Los recursos del CCDRB solamente se podrán destinar en obras, programas o actividades deportivas y recreativas, según los límites fijados por el Código Municipal sus reformas y su personería Jurídica instrumental.

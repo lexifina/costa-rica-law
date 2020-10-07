@@ -1,0 +1,1 @@
+ARTÍCULO 26° Todo miembro deberá, comunicar en forma escrita y/o oral, las razones de su inasistencia a las sesiones, antes de la correspondiente sesión de Junta, en la oficina de la Junta Directiva del CCDRB y por correo electrónico; caso contrario, será catalogada la inasistencia como injustificada y sancionable.
