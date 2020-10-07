@@ -1,0 +1,7 @@
+Artículo 33.—Acceso gratuito a las instalaciones deportivas. En el caso de las instalaciones municipales, se regirán bajo las siguientes normas:
+Exclusivamente tendrán acceso gratuito a las instalaciones las personas que a continuación se indican, con previa valorización de la Junta Directiva y de acuerdo a disponibilidad de las instalaciones:
+a) Los menores de 12 años, quienes únicamente podrán acceder a las instalaciones acompañados de sus padres, tutores o responsable mayor de edad y bajo el horario de sus cursillos debidamente matriculados.
+b) Los trabajadores de las Instalaciones Deportivas Municipales y el personal de los concesionarios de alguno de los servicios que presten servicios efectivos en las mismas durante el desempeño de sus labores.
+c) Las autoridades, funcionarios, técnicos sanitarios, farmacéuticos similares que acudan a las instalaciones en el ejercicio de sus funciones de vigilancia, control y asistencia.
+d) Los suministradores de materiales consumibles, productos higiénicosanitarios, así como suministradores de combustibles y de los restantes materiales o servicios, exclusivamente para realizar dichas labores.
+Las personas que autoricen el acceso gratuito a personas o entidades que estén obligadas a abonar los importes correspondientes serán sancionadas, sin perjuicio de las responsabilidades administrativas y de carácter penal y civil que pudieran exigírseles.

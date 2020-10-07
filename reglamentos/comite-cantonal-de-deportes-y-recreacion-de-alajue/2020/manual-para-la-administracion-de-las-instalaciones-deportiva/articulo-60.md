@@ -1,0 +1,21 @@
+Artículo 60.—Reglamento particular. El Campo de Atletismo Pista y Campo pueden ser para uso exclusivo del atletismo y tendrá un uso mixto con otras disciplinas deportivas con su cronograma definido, ya que cuenta con una cancha en su interior y la Pista es utilizada para desarrollar otras programadas. Así mismo, la práctica técnica y ordenada que de seguridad a los usuarios en horario exclusivo para cada disciplina que el personal administrativo indique.
+Además de los artículos de este reglamento para los usuarios particulares, equipos, Asociaciones, Procesos de Juegos Nacionales, Torneos, Campeonatos Nacionales, locales, cursos de capacitación entre otros, se tendrá en cuenta lo siguiente:
+El destino de esta instalación será preferible para la práctica del Atletismo en sus modalidades de Pista y Campo.
+Las diferentes disciplinas deportivas que utilicen esta instalación estarán sujetos a horarios específicos y exclusivos que el personal administrativo y CODEA disponga según disponibilidad.
+Las escuelas y colegios del ayuntamiento o del municipio podrán utilizar y tener acceso según horario de disponibilidad.
+Cuando se trate de competiciones oficiales, se permitirá el acceso al Campo de Atletismo a cada zona de competición únicamente oficiales encargados de la competencia y atletas según normativa de competición. Los calentamientos de los atletas serán en zonas aledañas al campo de atletismo Pista y Campo.
+En caso de utilización de materiales específicos de atletismo, se coordinará con el personal administrativo de CODEA.
+El control de la iluminación estará a cargo del personal de CODEA cuando la actividad lo amerite y cuente con el permiso de la administración.
+El arrendamiento o arrendataria de la infraestructura debe hacerse cargo de la limpieza durante y después del préstamo de las instalaciones.
+El acceso a las zonas de pista, zona de lanzamientos, zonas de saltos, así como vestuarios, estarán regidos por las normas administrativas de CODEA.
+Todos los usuarios o atletas al ingresar a las instalaciones para la práctica del atletismo modalidades de pista y campo deben de dejar sus bicicletas en los lugares indicados por la administración de CODEA.
+Todos los implementos deportivos, pertenencias o artículos personales de los usuarios y atletas deben ser custodiados de manera que su cuido es una responsabilidad individual, la administración del CODEA no se hará responsables de la pérdida o hurto de ningún implemento.
+Los vestuarios se abrirán para los entrenamientos 30 minutos antes de la hora de entrenamiento y deberán desalojarlo después del entrenamiento de manera inmediata.
+Cuando se trate de competencias oficiales, los vestuarios se abrirán 60 minutos antes de la hora de inicio debiéndolo desalojar 30 minutos después de concluido el evento. Lo anterior previo acuerdo con el administrador de la instalación deportiva. Con sus respectivos artículos de higiene personal.
+En caso de alquileres o préstamos de la instalación deportiva delegados o entrenadores de los diferentes equipos al retirar las llaves de los vestuarios y hasta el momento de su devolución, en tanto las llaves permanezcan en su poder, los equipos a los que representan serán responsables de los daños que pudieren realizarse.
+Durante los entrenamientos únicamente podrán estar en la pista de atletismo lo/as deportistas, entrenadores y delegado/as de equipo que estén autorizados, el resto de los acompañantes y seguidores ocuparán el espacio asignado.
+Independientemente de las posibles sanciones en que pudieren incurrir los usuarios, el uso inadecuado de los materiales y equipamientos de las instalaciones será objeto de sanción a sus responsables como mínimo con el pago de los desperfectos ocasionados.
+Cuando el usuario accede al campo de atletismo, deberá utilizar la vestimenta específica y calzado deportivo de la práctica del mismo. No se permitirá la permanencia de personas o usuarios sin camisa dentro de la instalación.
+El alquiler del campo de Atletismo Pista y Campo se hará en horario según disponibilidad. En cuanto al alquiler de un día por completo o más se realizará bajo autorización de Junta Directiva del CODEA.
+El alquiler a atletas individuales se hará según tarifa definida por Junta Directiva del CODEA.
+Siendo las 10:15 a. m., se hace presente el señor Juan Carlos Vega.

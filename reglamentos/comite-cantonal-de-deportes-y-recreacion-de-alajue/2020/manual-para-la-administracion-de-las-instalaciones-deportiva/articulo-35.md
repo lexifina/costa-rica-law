@@ -1,0 +1,1 @@
+Artículo 35.—Acceso. El acceso será según el equipo o equipos que participen a determinada hora, para lo cual el personal de administración de la instalación deberá mantener los cronogramas de juegos y entrenamientos mensuales, según el uso de la instalación.

@@ -1,0 +1,1 @@
+Artículo 47.—Acceso. El acceso al campo de fútbol será según el equipo o equipos de fútbol de playa y balonmano de playa que participen a determinada hora, para lo cual el personal de administración de la instalación deberá mantener los cronogramas de juegos diarios, según el uso de la instalación.

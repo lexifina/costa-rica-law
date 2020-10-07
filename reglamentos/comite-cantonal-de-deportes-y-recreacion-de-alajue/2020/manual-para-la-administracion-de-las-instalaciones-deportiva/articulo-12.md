@@ -1,0 +1,1 @@
+Artículo 12.—Buzón de sugerencias. Existirá en el Comité Cantonal de Deportes y Recreación de Alajuela, un buzón para que se depositen en el mismo las sugerencias que estimen oportunas los usuarios para la mejora del servicio.

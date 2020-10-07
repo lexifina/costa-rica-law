@@ -1,0 +1,2 @@
+Artículo 72.—Los equipos, asociaciones deportivas y federaciones deportivas. Integración en equipos o asociaciones deportivas.
+Las personas físicas podrán integrarse en equipos o asociaciones deportivas y federaciones que legalmente constituidos, serán considerados como los únicos representantes válidos del deportista de competición y podrán así hacer uso de las instalaciones deportivas municipales, en las condiciones que se establecen.

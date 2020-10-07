@@ -1,0 +1,2 @@
+Artículo 59.—Acceso. El acceso al campo de atletismo Pista y Campo, será según el horario asignado a la práctica del atletismo en todas sus modalidades. El personal administrativo de la instalación deberá mantener los cronogramas de las diferentes disciplinas y actividades que se desarrollan en este campo según el uso de la instalación.
+Así mismo, cada disciplina debe tener el horario exclusivo que asigne el personal administrativo.

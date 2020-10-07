@@ -1,0 +1,1 @@
+Artículo 63.—Locales Comerciales. Dentro de las instalaciones deportivas se podrán construir locales comerciales para alquiler como sodas, tiendas u bodegas u otros. Sin embargo, el respectivo contrato deberá ser firmado por el Representante Legal del Comité Cantonal de Deportes.

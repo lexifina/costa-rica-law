@@ -1,0 +1,2 @@
+Artículo 11.—Forma de pago de los alquileres. Los pagos de los alquileres de las instalaciones deportivas se realizarán según aprobación mediante datafono (en los casos en que sea factible) o depósito en cuenta bancaria corriente del Comité Cantonal.
+En el caso de las instalaciones deportivas administradas por Comités Comunales, podrán realizarse los debidos pagos en los lugares de reunión de estos órganos que deberán notificar al Comité Cantonal de Deportes y Recreación de Alajuela.

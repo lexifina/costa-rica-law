@@ -1,0 +1,1 @@
+Artículo 13.—Información a disposición de los interesados. El Comité Cantonal brindará por medio de su página de Internet, en sus oficinas administrativas o por medio de comunicación local como rótulos, vallas y/o panfletos; información general sobre la administración, instalaciones deportivas, disciplinas, etc.

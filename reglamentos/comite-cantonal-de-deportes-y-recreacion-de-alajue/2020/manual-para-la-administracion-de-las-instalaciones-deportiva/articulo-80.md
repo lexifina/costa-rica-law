@@ -1,0 +1,1 @@
+Artículo 80.—Suspensión de actividades o cursos. El Comité Cantonal podrá suspender actividades o cursos cuando por razones objetivas su continuidad no quede justificada, en cuyo caso serán reintegradas las cuotas canceladas correspondientes a dicho curso o periodo, en consonancia con el Código de Comercio.

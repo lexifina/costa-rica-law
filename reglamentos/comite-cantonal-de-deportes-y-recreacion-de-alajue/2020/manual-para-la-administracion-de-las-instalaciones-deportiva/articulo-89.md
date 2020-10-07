@@ -1,0 +1,1 @@
+Artículo 89.—Conceptualización de las sodas. Para el alquiler de soda, se hará a través de un proceso licitatorio cuyas especificaciones de uso y costos, se regularán en ese contrato específico. Y las alternas que serán reguladas por este documento, mediante la Ley de Contratación Administrativa y sus reformas.

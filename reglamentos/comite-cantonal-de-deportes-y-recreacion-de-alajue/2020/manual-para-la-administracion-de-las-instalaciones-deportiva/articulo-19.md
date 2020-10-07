@@ -1,0 +1,4 @@
+Artículo 19.—Responsabilidad de los usuarios. Los usuarios ya sea por culpa o negligencia está obligado a reparar o asumir el costo monetario por cualquier daño que causen a los edificios, bienes y demás elementos de que disponen las Instalaciones Deportivas y Recreativas Municipales, incluidas las plantas, árboles, césped, etc., de manera que el daño causado quede igual o mejor a su condición previa al suceso.
+El importe económico nunca podrá ser menor que el costo del bien estropeado, será decisión de la administración si brinda una prórroga para el pago respectivo y las condiciones específicas del mismo.
+La valoración estará a cargo de un profesional en la materia y como referencia se utilizará precio del mercado.
+De los daños ocasionados por los menores de edad serán responsables los padres, tutores o personas que los tengan bajo su custodia. De igual forma se establecerá la responsabilidad respecto de las personas que se encuentren inhabilitadas.
