@@ -1,3 +1,1 @@
-CAPÍTULO IX
-Control y seguimiento
-Artículo 36.-Evidencia. Las jefaturas del Conglomerado son las responsables de la custodia de los documentos digitales y físicos que respaldan el grado de cumplimiento de los objetivos planteados en el BSC y BDP y de su puesta a disposición para fines de revisión en cualquier momento y se relacionan directamente con las variables que se contemplan en los indicadores.
+Artículo 36.-Formulación inicial y evaluaciones. Las jefaturas del Conglomerado son las . responsables de realizar la formulación inicial con relación a los objetivos e indicadores de evaluación, además de las evaluaciones semestrales -verificando que la evidencia respalde la calificación obtenida en cada uno de los objetivos- y remitir la información correspondiente a la Dirección Capital Humano o dependencia responsable de las Sociedades, en tiempo y forma.
