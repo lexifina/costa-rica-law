@@ -1,1 +1,0 @@
-Artículo 2º—Al entrar en vigencia la presente resolución, se deja sin efecto la actualización efectuada mediante la resolución número RES-DGH-024-2020, del siete de abril de 2020, publicada en La Gaceta Nº 84 del 18 de abril de 2020.
