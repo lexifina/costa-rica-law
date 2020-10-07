@@ -1,3 +1,4 @@
-Artículo 15.—Emisión de Certificados de Exportación. COMEX emitirá los certificados de exportación siguiendo el orden diario de presentación de solicitudes.
+Artículo 15.- Emisión de Certificados de Exportación. COMEX emitirá los certificados de exportación siguiendo el orden diario de presentación de solicitudes, en un plazo no mayor a diez días hábiles.
 Si el volumen total solicitado por los interesados es igual o menor al disponible, COMEX asignará a cada solicitante lo requerido. Caso contrario, el volumen disponible se distribuirá en forma proporcional entre las solicitudes presentadas el mismo día y dentro del horario oficial de labores de COMEX. Los volúmenes estarán disponibles hasta que se agoten. COMEX no emitirá un certificado por un volumen mayor al solicitado.
 Para efectos de la asignación de contingentes sobre volúmenes regionalizados, aplicarán las disposiciones del Reglamento Centroamericano.
+(Así reformado por el artículo 2° del decreto ejecutivo N° 42715 del 7 de octubre del 2020)

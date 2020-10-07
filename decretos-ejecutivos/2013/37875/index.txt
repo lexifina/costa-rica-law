@@ -14,6 +14,7 @@ articulo-13.md
 articulo-14.md
 articulo-15.md
 articulo-16.md
+articulo-15-bis.md
 articulo-17.md
 articulo-18.md
 articulo-19.md
@@ -45,3 +46,4 @@ articulo-41.md
 articulo-4-transitorio.md
 articulo-5-transitorio.md
 articulo-1-anexo.md
+articulo-2-anexo.md
