@@ -1,0 +1,1 @@
+Artículo 2- Este Reglamento rige en todo el Distrito de Cóbano, para las obras que requieran permiso municipal de acuerdo con la Ley de Construcciones vigente y que presenten alguna irregularidad que el propietario no estuvo anuente a corregir.
