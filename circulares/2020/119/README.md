@@ -13,3 +13,4 @@ Responsabilidad de la Jueza o el Juez Coordinador del despacho, de dejar constan
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-06-10 | la propia norma |
+| 2 | 2020-10-08 | Circular 226 (2020-10-08) |
