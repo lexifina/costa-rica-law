@@ -28,3 +28,4 @@ Medidas sanitarias en materia migratoria para prevenir los efectos del COVID-19
 | 13 | 2020-08-31 | Decreto Ejecutivo 42586 (2020-08-31) |
 | 14 | 2020-09-18 | Decreto Ejecutivo 42620 (2020-09-18) |
 | 15 | 2020-09-30 | Decreto Ejecutivo 42633 (2020-09-30) |
+| 16 | 2020-10-08 | Decreto Ejecutivo 42651 (2020-10-08) |
