@@ -1,0 +1,2 @@
+Artículo 6º—Revisión en el Departamento de Gestión de Exenciones: Para efectos de aprobación de la solicitud, lo que corresponde al Departamento de Gestión de Exenciones, es verificar que se cumpla con los requisitos indicados en el artículo 5 de la presente disposición.
+Una vez constatado el cumplimiento de los requisitos señalados, el Departamento de Gestión de Exenciones deberá emitir la autorización correspondiente. Para los efectos, se deben considerar los plazos previstos en el artículo 102 del Código de Normas y Procedimientos Tributarios.
