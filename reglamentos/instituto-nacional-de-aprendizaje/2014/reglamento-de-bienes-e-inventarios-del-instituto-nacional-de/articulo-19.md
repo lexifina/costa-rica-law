@@ -1,23 +1,12 @@
-CAPÍTULO IV
-De las faltas y sanciones
-Artículo 19.—De las Faltas y Sanciones. Se considerará como falta leve:
-a) Ingresar bienes institucionales producto de compra o donación, por un lugar distinto del Almacén, salvo los casos de excepción contemplados en el artículo 4 de este Reglamento.
-b) No comunicar circunstancias que afecten la seguridad de los bienes institucionales u omitan comunicar en forma oportuna la necesidad de practicarles reparaciones necesarias o urgentes.
-c) Omitir la elaboración y presentación ante el PPCO o ECB, de los documentos relacionados con movimientos de bienes tanto en el ámbito físico como en el de sistemas de información (SIREMA/ SIBI), tales como traslado, devolución u otra establecida en el presente Reglamento. Para el caso de los movimientos en el SIBI, podrá utilizar los reportes generados por este, los cuales tendrán la misma validez que los documentos originales firmados para cualquier trámite de índole legal o administrativo.
-d) No cumplir con los plazos de respuesta a solicitudes efectuadas por el PPCO o ECB según las obligaciones y responsabilidades establecidas en este Reglamento.
-e) No utilizar el SIREMA y el SIBI según corresponda para la generación de los distintos movimientos de los bienes.
-f) El incumplimiento de las restantes obligaciones establecidas en el presente Reglamento.
-Se considerará como falta grave lo siguiente:
-a) La omisión de la solicitud de inventario de bienes por parte del superior inmediato, para los casos en los cuales la URH comunique el movimiento de las personas funcionarias. Lo anterior en el caso que dejen de laborar por cese de sus funciones, traslados o permisos, por un período mayor a tres meses.
-b) Aprobar cualquier movimiento de personal, sin haber verificado el cumplimiento de la entrega de los bienes bajo inventario, o el levantamiento de oficio por parte de la Jefatura inmediata.
-c) Omitir la correspondiente denuncia ante el Organismo de Investigación Judicial o instancia judicial correspondiente en caso de robo o hurto una vez detectado.
-d) Producir daño a los bienes institucionales producto de negligencia comprobada.
-e) Utilizar los bienes de la Institución para fines distintos a las funciones propias del cargo.
-f) Negarse a recibir bajo inventario los bienes que utiliza en forma directa y no realizar la devolución de los mismos cuando corresponda.
-g) Al no devolver la persona docente los bienes sobrantes de SCFP sin una justificación.
-h) En el caso de la persona encargada de almacén, negarse a recibir bajo inventario los bienes que tiene en custodia en los almacenes.
-i) Omitir justificación de diferencias positivas o negativas halladas en el inventario o producto de la aplicación de una prueba selectiva en un almacén institucional.
-j) Omitir justificación de faltantes y/o sobrantes hallados en el inventario o producto de la aplicación de una prueba selectiva en una Unidad Organizativa o Persona Encargada de Inventario.
-k) Dos o más incumplimientos consecutivos considerados como faltas leves originados por el mismo hecho generador se considerará como falta grave.
-Para imponer las sanciones se aplicará lo dispuesto en el Reglamento Autónomo de Servicios.
-(Así reformado mediante publicación en La Gaceta N° 100 del 29 de mayo del 2017)
+Artículo 19°- De las obligaciones de los Encargados de Control de Bienes de las Unidades Regionales: Le corresponderá al ECB realizar en las Unidades Regionales las siguientes funciones:
+a) Realizar las pruebas físicas selectivas en las Unidades Regionales y sus Unidades Organizativas correspondientes, al menos una vez al año e informar al PPCO de las fechas en las cuales se ejecutarán las mismas, así mismo, de encontrarse inconsistencias, proceder a tramitar las mismas ante Comisión de Bienes Regional correspondiente, para mantener actualizados los inventarios en los sistemas SIREMA y SIBI.
+b) Desarrollar y ejecutar los controles necesarios que le permitan mantener un detalle de todos los bienes de la Unidad Regional que le corresponda.
+c) Solicitar vía oficio al EA el informe de las justificaciones de las diferencias resultantes de la toma física. Para realizar este requerimiento, el ECB tiene un plazo máximo 3 días hábiles posteriores a la finalización completa de la toma física.
+d) Analizar las justificaciones presentadas por el EA, realizar un informe que determine las diferencias generadas de forma fehaciente, adjuntando a éste toda la documentación que permita corroborar que la justificación y evidencia presentada se encuentren dentro de lo razonable y el marco normativo institucional
+e) En caso de que corresponda, según su análisis y a solicitud del EA, podrá otorgar una prórroga para la presentación de las justificaciones a las diferencias detectadas en la Toma Física del inventario del Almacén.
+f) Dar seguimiento a los acuerdos tomados por la Comisión de Bienes Institucional en lo que le corresponda
+g) Dar seguimiento a los acuerdos tomados por la Comisión de Bienes Regional en lo que corresponda.
+h) Analizar y aplicar de forma oportuna los ajustes positivos y negativos de inventarios en los sistemas correspondientes, los cuales deben estar debidamente justificados.
+i) Constatar que los movimientos en los inventarios de bienes de su Regional estén registrados en el SIREMA y SIBI según corresponda y se produzcan conforme con las disposiciones que indica el presente Reglamento y los procedimientos que se establezcan para tal fin.
+j) Realizar las funciones establecidas para el ECB vía procedimiento para los replaqueos correspondientes a su Regional.
+k) En el caso de ajustes aplicados por toma física o pruebas selectivas de inventarios en almacenes, deberán remitir los resultados junto con la prueba documental pertinente a la CBI l) En el caso de cualquier otro ajuste aplicado que no sea producto de los anteriores, deberá ser comunicado a la Comisión de Bienes Regional en conjunto con las justificaciones y documentación correspondientes.

@@ -1,16 +1,9 @@
-Artículo 17. —Obligaciones de las personas funcionarias en general. Las personas funcionarias del INA deberán cumplir las siguientes obligaciones en materia de control de bienes:
-a) Recibir por medio del SIBI en el formulario autorizado en el Sistema de Calidad, los bienes que se le asignen para desarrollar las funciones propias de su cargo, así mismo, en el caso de las personas docentes recibir y firmar por medio del reporte de Asignación de Activos emitido desde el SIREMA, los bienes que le sean asignados para desarrollar las labores propias de su cargo.
-b) Guardar el más estricto cuidado y diligencia en el manejo y mantenimiento de los bienes institucionales asignados y destinarlos única y exclusivamente para el desempeño de las funciones encomendadas.
-c) Salvaguardar de todo peligro los bienes asignados, para lo cual deberán informar a la Jefatura inmediata de cualquier medida de seguridad que estimen oportuna y dejando constancia cuando así lo requieran las circunstancias, con copia al PPCO o ECB según corresponda.
-d) Colocar en un lugar seguro, al final de cada jornada, todos aquellos bienes que por su configuración física permitan una fácil sustracción.
-e) Informar de forma oportuna en el caso de incapacidades o vacaciones a la jefatura inmediata, sobre los bienes asignados y los controles establecidos para el cuido y salvaguarda de los mismos durante el lapso de su ausencia.
-f) Reportar en forma oportuna a la Jefatura, cuando advierta que algún bien que utiliza requiere reparación o mantenimiento.
-g) Comunicar oportunamente a la jefatura inmediata, persona investigadora y persona encargada de PPCO o ECB según corresponda, la pérdida o sustracción de un activo bajo su responsabilidad y proceder en la forma prevista en este Reglamento. Esta comunicación debe realizarse de forma inmediata una vez detectado el hecho.
-h) Utilizar los procedimientos autorizados para tramitar los movimientos de bienes, los cuales deben reflejarse tanto en el SIREMA como en el SIBI, según corresponda.
-i) Cumplir dentro del plazo y lugar señalado con la devolución de aquellos bienes asignados temporalmente.
-j) Cumplir con los trámites relativos al control de bienes, en cuanto a forma y plazos establecidos.
-k) Devolver los bienes en el mismo estado en que se recibieron salvo el deterioro causado por un uso normal.
-l) En casos de renuncia, permiso sin o con goce de salario, despido, pensión, incapacidad, traslado dentro o fuera de la institución u otros; cuando los casos lo ameriten; previa a la ejecución de los movimientos el funcionario deberá devolver los bienes bajo su responsabilidad por medio del SIBI o SIREMA según corresponda al Jefe inmediato quien deberá informar al PPCO o al ECB.
-m) Cumplir con las demás obligaciones que se contemplan en este Reglamento.
-n) Cumplir con los acuerdos que tome la Comisión de Bienes Institucional o la Comisión de Bienes Regional dentro de los plazos que indican esos órganos colegiados.
-(Así reformado mediante publicación en La Gaceta N° 100 del 29 de mayo del 2017)
+Artículo 17º.-De la celebración de sesiones virtuales. Se entenderá por sesión virtual aquella que se realiza utilizando cualquiera de las tecnologías de información y comunicación asociadas a la red de Internet, que garanticen tanto la posibilidad de una comunicación simultánea entre los miembros del órgano colegiado durante toda la sesión, como su expresión mediante documentación electrónica que permita el envío de la imagen, sonido y datos.
+La celebración de sesiones virtuales es un método excepcional, y serán convocadas en situaciones calificadas de fuerza mayor, caso fortuito, o motivo suficiente, para dar continuidad y regularidad al funcionamiento del órgano colegiado.
+Se convocará a una sesión virtual únicamente cuando medie la totalidad de las siguientes circunstancias; caso contrario las sesiones deben ser presenciales:
+Cuando dos o máximo tres miembros de la Comisión, no puedan asistir en forma presencial debido a razones de fuerza mayor, caso fortuito, o motivo suficiente, debidamente justificadas.
+Cuando sea necesario el conocimiento de asuntos calificados urgentes que requieran atención inmediata.
+Cuando por motivo emergencia nacional decretada por el Gobierno de la República, imposibilite en parte ir de forma presencial.
+Durante el desarrollo de la sesión virtual, el miembro de Comisión deberá asegurarse que en el lugar en que se encuentre, podrá hacer acopio de la tecnología necesaria para mantener una videoconferencia y una comunicación bidireccional en tiempo real que permita una integración plena dentro de la sesión.
+Asimismo, es obligación del miembro de Comisión asegurarse de que los medios tecnológicos utilizados cumplen con las seguridades mínimas que garanticen la confidencialidad e integridad de los documentos que se conozcan durante la sesión virtual.
+Las sesiones virtuales podrán ser convocadas por acuerdo tomado en la sesión presencial precedente, por comunicado de la presidencia de la Comisión o por manifestación expresa de la mayoría de los miembros de la Comisión, para la atención de los asuntos que se autorizan en el presente reglamento.
