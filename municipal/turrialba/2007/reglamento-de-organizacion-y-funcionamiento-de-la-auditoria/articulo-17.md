@@ -1,2 +1,0 @@
-Artículo 17.—Rendición de cuentas. El Auditor Interno responderá por su gestión ante el Concejo Municipal y en lo conducente, ante la Contraloría General de la República, emitiendo los informes de labores que correspondan.
-Al subauditor interno le corresponderá apoyar al auditor interno en el descargo de sus funciones y lo sustituirá en sus ausencias temporales y deberá responder ante él por su gestión.
