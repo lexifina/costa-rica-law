@@ -1,0 +1,8 @@
+Artículo 40
+Con el fin de brindar un adecuado apoyo a la administración activa y de lograr un seguimiento efectivo de la implementación de las recomendaciones, la Auditoría Interna debe mantener informadas a las distintas partes interesadas, a saber: Junta Directiva de la sociedad y titulares subordinados que estén vinculados con la atención de las recomendaciones, para ello debe contar con un sistema de seguimiento que permita realizar una gestión efectiva en esa materia.
+La auditoría, como parte del programa seguimiento y con base en lo establecido en el artículo 33 inciso d) de la Ley General de Control Interno, tiene la potestad- a solicitud fundamentada de la administración- de otorgar prórrogas a los plazos indicados por ésta en la implantación de las recomendaciones de auditoría, siempre y cuando se cumplan al menos las siguientes condiciones:
+· Que no haya vencido el plazo del compromiso.
+· Que se puedan verificar avances en el cumplimiento de la acción correctiva, los cuales deben estar debidamente justificados conforme al compromiso acordado. Estos avances deben corresponder al actuar de la sociedad como un todo.
+· Que quien dirija la solicitud de prórroga sea la misma persona a quien fue dirigido el informe de auditoría; o bien, un superior.
+Estas prórrogas no operan de oficio y cada caso debe ser debidamente analizado por la Auditoría Interna. La Auditoría Interna tiene la potestad de dar trámite y aprobar prórrogas en casos de excepción, debidamente justificados.
+El acto que aprueba o deniega una prórroga, debe estar debidamente documentado y justificado por parte de la Auditoría Interna.

@@ -1,0 +1,3 @@
+Artículo 10
+De conformidad con el artículo 23 de la Ley General de Control Interno, el auditor interno debe organizar y velar por el adecuado funcionamiento de la Auditoría Interna, considerando, entre otros, los objetivos y riesgos institucionales, los recursos disponibles, la normativa, disposiciones técnicas, jurídicas y sanas prácticas correspondientes.
+La estructura de la Auditoría Interna, estará conformada por el Auditor Interno y las personas trabajadoras necesarias para desarrollar su actividad de fiscalización, conforme al marco normativo y las sanas prácticas. La estructura organizativa de la Auditoría Interna y sus ajustes, debe ser aprobada por la Junta Directiva de la sociedad.
