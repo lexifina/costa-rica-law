@@ -1,0 +1,1 @@
+Artículo 28°- Suspensión de monto para el arrendamiento de vivienda. Le será suspendida de forma inmediata el monto para el arrendamiento de vivienda, a las personas trabajadoras en el momento en que se presente cualquiera de las causales establecidas en los Artículos 25) y 34) de presente Reglamento.

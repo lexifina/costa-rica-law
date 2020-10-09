@@ -1,0 +1,1 @@
+Artículo 30°- Recepción de Menaje Básico en caso de asignación del monto para el arrendamiento de la vivienda: Para la recepción del menaje básico otorgado al beneficiario del monto para el arrendamiento de vivienda, la Dirección de Administración de Bienes y Servicios deberá realizar el Acta Administrativa y los Formularios de Movimiento de Activos Fijos correspondientes.

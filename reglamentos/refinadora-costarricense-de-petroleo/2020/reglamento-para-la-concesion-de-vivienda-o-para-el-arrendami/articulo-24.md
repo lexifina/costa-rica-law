@@ -1,0 +1,3 @@
+Artículo 24°- Informe del resultado de la inspección. La Dirección de Administración de Bienes y Servicios, deberá:
+a) Informar a la Gerencia de Administración y Finanzas, el resultado de la inspección establecida en el artículo 23), y/o cuando las circunstancias lo requieran, sobre las condiciones físicas del inmueble y el cumplimiento de las obligaciones de mantenimiento exigidas al asignatario y demás condiciones establecidas en el presente Reglamento.
+b) Remitir dicho informe a la Dirección de Mantenimiento e Ingeniería de la Gerencia de Servicios Técnicos, para que proceda a programar las reparaciones o mantenimiento mayor de las viviendas que así lo requieran.

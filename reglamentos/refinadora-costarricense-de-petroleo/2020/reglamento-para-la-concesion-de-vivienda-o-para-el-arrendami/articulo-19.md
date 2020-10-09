@@ -1,0 +1,1 @@
+Artículo 19°- Resolución final y formalización. El Gerente General remitirá la resolución final a la Dirección de Administración de Bienes y Servicios. De resultar favorable, esta Dirección coordinará con la Dirección de Asesoría Jurídica, la elaboración y formalización del contrato para la concesión de vivienda propiedad de RECOPE o del monto para arrendamiento de vivienda.

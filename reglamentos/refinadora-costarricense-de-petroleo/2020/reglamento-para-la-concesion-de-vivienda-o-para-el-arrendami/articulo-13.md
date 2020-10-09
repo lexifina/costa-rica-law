@@ -1,0 +1,1 @@
+Artículo 13º- Del Departamento de Reclutamiento y Compensaciones. Este Departamento deberá comunicar por escrito y de forma inmediata al Departamento de Administración de Servicios Generales, todo permiso sin goce

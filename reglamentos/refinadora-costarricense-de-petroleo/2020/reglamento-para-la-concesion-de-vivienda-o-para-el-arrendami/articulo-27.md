@@ -1,0 +1,1 @@
+Artículo 27°- Plazo para desocupar el inmueble propiedad de RECOPE. El asignatario de vivienda propiedad de RECOPE deberá desocupar la vivienda al día siguiente después de finalizado su contrato laboral.

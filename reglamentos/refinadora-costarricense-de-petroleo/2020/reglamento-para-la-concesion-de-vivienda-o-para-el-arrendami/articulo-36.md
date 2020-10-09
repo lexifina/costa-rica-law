@@ -1,0 +1,1 @@
+Artículo 36°- Se expone a una sanción disciplinaria el asignatario, por los daños que, por negligencia comprobada, éste o algún miembro de su familia ocasione a las viviendas propiedad de RECOPE y al menaje entregado bajo cualquiera de las modalidades establecidas en este reglamento.
