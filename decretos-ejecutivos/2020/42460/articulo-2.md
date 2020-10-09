@@ -1,1 +1,0 @@
-Artículo 2°—Deróguese el Decreto Ejecutivo N° 42312-H de fecha 08 de abril de 2020, publicado en el Alcance N° 101 a La Gaceta N° 95 de fecha 29 de abril de 2020, a partir de la vigencia del presente decreto.
