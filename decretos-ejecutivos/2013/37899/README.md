@@ -20,3 +20,4 @@ Reglamento a la Ley de Promoción de la Competencia y Defensa Efectiva del Consu
 | 5 | 2017-02-27 | Decreto Ejecutivo 40387 (2017-02-27) |
 | 6 | 2017-10-03 | Decreto Ejecutivo 40703 (2017-10-03) |
 | 7 | 2020-03-17 | Decreto Ejecutivo 42239 (2020-03-17) |
+| 8 | 2020-10-09 | Decreto Ejecutivo 42713 (2020-10-09) |
