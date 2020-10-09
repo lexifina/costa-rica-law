@@ -1,0 +1,8 @@
+Artículo 9º—El Tribunal deberá presentar ante el Concejo Municipal la nómina de las personas electas para su juramentación en la última sesión ordinaria del mes de octubre, para que la Secretaría del Concejo en los primeros días del mes de noviembre comunique al Consejo de la Persona Joven la nueva conformación del CCPJ de Talamanca.
+Artículo 9º—Requisitos de validez de las Sesiones virtuales del proceso de conformación:
+El medio tecnológico dispuesto por la municipalidad deberá garantizar la participación plena de todos los asistentes, la transmisión simultánea de audio, video y datos a todos quienes participen, debiendo respetar el principio de simultaneidad, colegialidad y deliberación del órgano colegiado.
+a. Colegialidad: la voluntad colectiva de cada órgano exige la reunión simultánea y en tiempo real de los integrantes que lo conforman durante la deliberación de los temas agendados, el voto y acuerdo adoptado, como voluntad única.
+b. Simultaneidad: la presencia en la misma unidad de tiempo que se celebra la sesión, con garantía de la autenticidad e integridad de las comunicaciones.
+c. Deliberación: la interacción de todos los miembros, en tiempo real, debe garantizar la comunicación verbal y no verbal, durante el proceso de debate de opiniones y criterios que concluye con el voto respecto a determinada decisión.
+d. Integralidad: La comunicación debe ser integral, porque permite el envío de imagen (personas, video, multimedia, etc.), sonido (voz de alta calidad, música, etc.) y datos (ficheros automáticos, bases de datos; etc.)
+(Nota de Sinalevi: En la publicación de este reglamento se publica dos veces el artículo N° 9.)
