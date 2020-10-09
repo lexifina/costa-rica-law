@@ -1,7 +1,0 @@
-ARTICULO 13.- El velatorio del cadáver podrá efectuarse no sólo en
-funeraria debidamente establecidas, sino también en recintos públicos o
-privados, iglesias, capillas, salones comunales o parroquiales, viviendas
-y cualquier otro recinto cerrado que elijan los familiares o allegados al
-difunto para lo cual no se requerirá ningún permiso especial de la
-Autoridad de Salud, salvo cuando el cadáver permanezca insepulto por más
-de treinta y seis (36) horas.

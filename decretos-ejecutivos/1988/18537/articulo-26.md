@@ -1,4 +1,0 @@
-ARTICULO 26.- Queda terminantemente prohibido a las funerarias
-destacar a su personal regular o contratar agentes para labores de
-promoción u oferta de servicios (verbal o escrita) cerca de las morgues
-del Sistema Hospitalario Nacional o del Poder Judicial.

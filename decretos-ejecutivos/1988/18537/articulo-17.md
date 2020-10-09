@@ -1,4 +1,0 @@
-ARTICULO 17.- Las edificaciones que se destinen a funerarias deberán
-reunir los requisitos para sitios de reunión pública, contemplados en el
-Reglamento de Construcciones emitido por el Instituto Nacional de
-Vivienda y Urbanismo.

@@ -1,9 +1,0 @@
-ARTICULO 27.- Las funerarias podrán ofrecer servicios de soda y
-cafetería, donde pondrán a disposición del público alimentos ya
-preparados bajo estrictas normas de higiene, para lo cual deberán de
-ajustarse a las disposiciones administrativas y reglamentarias vigentes.
-Los alimentos únicamente podrá ser consumidos en las instalaciones de
-cafetería.
-Corresponderá al nivel local del Ministerio la supervisión, control
-y evaluación de este servicio y el otorgar el respectivo permiso
-sanitario de funcionamiento.
