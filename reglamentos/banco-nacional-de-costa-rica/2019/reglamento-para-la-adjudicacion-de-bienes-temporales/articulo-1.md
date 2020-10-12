@@ -1,4 +1,6 @@
+(Derogado)
 BANCO NACIONAL DE COSTA RICA
+(Esa norma fue derogada por el artículo 22 del Reglamento para la Adjudicación de Bienes Temporales (RG07-CGRM01), aprobado mediante sesión ordinaria N° 12491 del 12 de octubre del 2020)
 PROVEEDURÍA GENERAL
 El Banco Nacional de Costa Rica comunica la parte resolutiva del acuerdo tomado por la Junta Directiva General, en la Sesión Nº 12.408, artículo 18º, celebrada el 04 de noviembre del 2019, en el cual acordó aprobar el Reglamento para la Adjudicación de Bienes Temporales, para que, en lo sucesivo, se lea de conformidad con el siguiente texto:
 CAPÍTULO 1

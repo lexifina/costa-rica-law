@@ -14,3 +14,4 @@ Reglamento para la adjudicación de bienes temporales
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-11-20 | la propia norma |
+| 2 | 2020-10-12 | Reglamento 12491 (2020-10-12) |
