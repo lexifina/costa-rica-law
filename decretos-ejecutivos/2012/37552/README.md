@@ -14,3 +14,4 @@ Oficializa Manual de Bioseguridad para establecimientos de salud y afines
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-02-28 | la propia norma |
+| 2 | 2020-10-12 | Decreto Ejecutivo 42652 (2020-10-12) |

@@ -28,7 +28,8 @@ Esta normativa se aplica a todos los servicios de salud públicos, privados y mi
 5.2. Mantener el lugar de trabajo en óptimas condiciones de higiene y aseo. Todas las superficies deben ser de material no poroso y que permita una fácil limpieza.
 5.3. No es permitido la preparación y consumo de alimentos en los lugares de atención directa. Se utilizaran únicamente los lugares designados por la autoridad del centro de salud y estos deben cumplir los requerimientos mínimos de acuerdo a normativa vigente (lavamanos, depósito de residuos sólidos, no estar cerca de los sitios de atención directa, no estar junto a las piletas de descontaminación de equipos ni del área de almacenamiento de material estéril).
 5.4. No guardar alimentos en las neveras destinadas para el almacenamiento de insumos y medicamentos, ni en los equipos de refrigeración de sustancias contaminantes o químicos.
-5.5. Todo el Equipo de Protección Personal (EPP) descartable debe ser de un solo uso
+5.5. Todo el Equipo de Protección Personal (EPP) descartable debe ser de un solo uso. No obstante, se permite el uso extendido y reutilización de respiradores filtrantes de partículas (N-95 o su equivalente) ante posibles escenarios de escasez o riesgo de desabastecimiento de este equipo de protección personal, durante emergencia sanitaria debidamente Decretada por el Poder Ejecutivo, con el criterio técnico respectivo.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 42652 del 12 de octubre del 2020)
 5.6. No deambular con los elementos de protección personal, incluyendo el uso de la gabacha, fuera de las áreas de trabajo.
 5.7. Mantener sus elementos de protección personal en óptimas condiciones de aseo, en un lugar seguro y de fácil acceso.
 5.8. Utilizar equipos de reanimación cardiopulmonar descartables, para evitar el procedimiento boca a boca.
