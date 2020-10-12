@@ -14,3 +14,4 @@ Reglamento autónomo de servicios de la Municipalidad de Santa Bárbara de Hered
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-09-20 | la propia norma |
+| 2 | 2020-10-12 | Reglamento municipal 24 (2020-10-12) |
