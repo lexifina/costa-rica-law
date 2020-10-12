@@ -1,2 +1,0 @@
-Artículo 17.—Este Reglamento es aplicable en el momento en que la municipalidad cuente con ingresos reales y cuando el Alcalde lo recomiende al Concejo para que lo apruebe, exceptuando a funcionarios de la Unidad Técnica que cuentan con contenido presupuestario por lo que rige a partir de su publicación en el Diario Oficial La Gaceta y, no tiene carácter retroactivo.
-Santa Bárbara de Heredia, 12 de noviembre del 2007.
