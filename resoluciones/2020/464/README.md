@@ -14,3 +14,4 @@ Deroga resolución N° RES-DGA-441-2020, RES-DGA- 436-2020, RES-DGA-434-2020
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-10-09 | la propia norma |
+| 2 | 2020-10-12 | Resolución 465 (2020-10-12) |
