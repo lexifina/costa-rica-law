@@ -34,3 +34,4 @@ Reglamento General sobre Sociedades Administradoras y Fondos de Inversión
 | 19 | 2019-03-05 | Reglamento 1485 (2019-03-05) |
 | 20 | 2020-06-15 | Reglamento 1582 (2020-06-15) |
 | 21 | 2020-08-31 | Reglamento 1602 (2020-08-31) |
+| 22 | 2020-10-12 | Reglamento 1611 (2020-10-12) |
