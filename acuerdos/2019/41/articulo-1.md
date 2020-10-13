@@ -343,6 +343,9 @@ Anticuerpos Anti-Rubeola IgG, IgM (c/u) D/E | 12320 | ₡ 23,000
 Anticuerpos anti-Toxoplasma IgG,IgM c/u | 12330 | ₡ 19,500
 Anticuerpos anti-Transglutamina, IgA | 12340 | ₡ 32,500
 Anticuerpos antitreponémicos IgG - IgM (FTA, EIA,otros) | 12350 | ₡ 19,500
+Anticuerpos anti Sars CoV 2 IgM (Así adicionada la prueba anterior mediante acuerdo N° 17 del 13 de octubre del 2020) | | ¢19.000 (Así adicionado el monto anterior mediante acuerdo N° 17 del 13 de octubre del 2020)
+Anticuerpos anti Sars CoV 2 IgG (Así adicionada la prueba anterior mediante acuerdo N° 17 del 13 de octubre del 2020) | | ¢19.000 (Así adicionado el monto anterior mediante acuerdo N° 17 del 13 de octubre del 2020)
+Anticuerpos anti Sars CoV 2 Totales: (Así adicionada la prueba anterior mediante acuerdo N° 17 del 13 de octubre del 2020) | | ¢25.000 (Así adicionado el monto anterior mediante acuerdo N° 17 del 13 de octubre del 2020)
 Anticuerpos hepatitis A IgM, IgG, Totales. (c/u) | 12360 | ₡ 23,000
 Anticuerpos hepatitis C IgG (ELISA) | 12370 | ₡ 22,000
 Antiestreptolisina O (ASO) latex | 12380 | ₡ 14,500
