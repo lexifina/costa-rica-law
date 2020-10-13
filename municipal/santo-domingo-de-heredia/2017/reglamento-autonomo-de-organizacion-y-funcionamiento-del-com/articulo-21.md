@@ -1,2 +1,2 @@
-Artículo 21°— Pérdida de Condición
-Los miembros de la Junta Directiva perderán dicha condición por vencimiento de su nombramiento, renuncia anticipada o remoción del cargo.
+Artículo 21°—Pérdida de Condición. Los miembros de la Junta Directiva perderán dicha condición por vencimiento de su nombramiento, renuncia anticipada o remoción del cargo. En el caso de que las personas menores de edad a las que se refiere el artículo 16, inciso b) si cumplieran su mayoría de edad encontrándose en el ejercicio del cargo, podrán ejercerlo hasta finalizar su periodo de nombramiento; no obstante, no podrán ser reelectos al amparo de dicho artículo cuando sean mayores de edad. Siempre deberá garantizarse que las personas electas con base en dicho artículo al momento de su elección tuvieran entre quince y diecisiete años.
+(Así reformado mediante sesión N° 37-2020 del 13 de octubre de 2020)

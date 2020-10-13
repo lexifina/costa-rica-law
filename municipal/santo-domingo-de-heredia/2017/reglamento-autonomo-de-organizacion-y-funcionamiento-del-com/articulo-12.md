@@ -1,2 +1,2 @@
-Artículo 12°— De la Junta Directiva
-El Comité Cantonal será regido por una Junta Directiva, nombrada por el Concejo Municipal e integrada por 5 miembros, representantes del Concejo Municipal, organizaciones deportivas y recreativas cantonales y organizaciones comunales, de conformidad con lo establecido en el Capítulo III de este Reglamento.
+Artículo 12.—De la Junta Directiva. El Comité Cantonal será regido por una Junta Directiva, nombrada por el Concejo Municipal e integrada por siete miembros, representantes del Concejo Municipal, organizaciones deportivas y recreativas cantonales, organizaciones comunales restantes y dos miembros de la población entre los 15 años y menores de 18 años; de conformidad con lo establecido en el Capítulo III de este Reglamento.
+(Así reformado mediante sesión N° 37-2020 del 13 de octubre de 2020)
