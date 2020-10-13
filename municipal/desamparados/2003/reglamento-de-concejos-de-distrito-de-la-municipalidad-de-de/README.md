@@ -14,3 +14,4 @@ Reglamento de Concejos de Distrito de la Municipalidad de Desamparados
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-02-12 | la propia norma |
+| 2 | 2020-10-13 | Reglamento municipal 60 (2020-10-13) |
