@@ -14,3 +14,4 @@ Reglamento para el funcionamiento de fondos de caja chica del Concejo Municipal 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-06-19 | la propia norma |
+| 2 | 2020-10-13 | Reglamento municipal 24 (2020-10-13) |
