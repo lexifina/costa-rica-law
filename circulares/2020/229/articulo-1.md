@@ -1,0 +1,7 @@
+CIRCULAR N° 229-2020
+ASUNTO: Procedimiento a seguir en la custodia y uso de valores tales como: las monedas y billetes, nacionales y extranjeros que ya no tienen circulación nacional, cuya procedencia es desconocida.
+A TODOS LOS DESPACHOS Y ADMINISTRACIONES
+REGIONALES DEL PAÍS
+SE LES HACE SABER QUE:
+El Consejo Superior del Poder Judicial en sesión N° 87-2020 celebrada el 08 de setiembre de 2020, artículo XXXIV, dispuso hacer de conocimiento que el Juez o Jueza que tenga bajo su resguardo monedas y billetes, nacionales y extranjeros que ya no tienen circulación nacional, y cuya procedencia es desconocida; al no poderse dictar una resolución, auto o sentencia judicial que ponga fin al proceso o lo declare como abandonado, por cuanto no se individualiza un expediente judicial relacionado con dichos bienes, deberá confeccionar un Acta de Traslado de Bienes a favor de la Administración correspondiente, quién hará constar en la misma el recibido de dichos valores. En razón de lo anterior, las administraciones regionales están habilitadas para conservar los valores que mantiene en resguardo, en cuyo caso la Administración que pase a custodiar dichos bienes, deberá solicitar de inmediato el permiso respectivo al Consejo Superior para liquidar los mismos y trasladar su valor nominal al Fondo del Régimen no Contributivo administrado por la Caja Costarricense de Seguro Social. Publíquese una sola vez en el Boletín Judicial.
+San José, 13 de octubre de 2020
