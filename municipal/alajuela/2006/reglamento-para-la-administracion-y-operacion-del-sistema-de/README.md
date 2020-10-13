@@ -15,3 +15,4 @@ Reglamento para la Administración y Operación del Sistema de Estacionamiento e
 | --- | --- | --- |
 | 1 | 2006-03-17 | la propia norma |
 | 2 | 2014-03-04 | Reglamento municipal 9 (2014-03-04) |
+| 3 | 2020-10-13 | Reglamento municipal 41 (2020-10-13) |

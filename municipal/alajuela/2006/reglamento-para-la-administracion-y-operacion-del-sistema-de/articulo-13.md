@@ -7,4 +7,5 @@ e. Deberá señalarse en la tarjeta en forma clara y sin correcciones la placa d
 instrucciones que se encuentran al dorso de las tarjetas.
 f. Para ello se utilizará bolígrafo o cualquiera otro instrumento de escritura que sea indeleble y deberá perforarse la fecha y hora de utilización, de forma que sea imposible la reutilización de la boleta.
 g. Deberá colocarse una tarjeta por cada espacio de estacionamiento utilizado por el vehículo.
-h. Las tarjetas tendrán validez de un mes, después de haber entrado en vigencia la nueva tarifa, vencido dicho plazo, podrán ser cambiadas por tarjetas de nueva denominación, previo pago de la diferencia.
+h) Las tarjetas tendrán validez de un mes, después de haber entrado en vigencia la nueva tarifa, vencido dicho plazo, podrán ser cambiadas por tarjetas de nueva denominación, previo pago de la diferencia. En el caso de que sea a través de un medio tecnológico, el usuario, deberá de hacer la compra de la tarjeta electrónica, y/o el pago por el tiempo necesario, una vez que se estacione en el sitio especialmente demarcado, y le serán aplicables en lo posible, los mismos requisitos ya indicados.
+(Así reformado el inciso anterior mediante sesión ordinaria N° 41-2020 del 13 de octubre del 2020)

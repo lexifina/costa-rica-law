@@ -18,3 +18,5 @@ m) Estacionar vehículos en las zonas de estacionamiento de forma tal que sus ll
 n) Estacionar vehículos frente a señales fijas o a una distancia menor de cinco metros a un hidrante o zona de paso para peatones.
 ñ) Estacionar vehículos frente a la entrada o salida de planteles educativos, hospitales, clínicas, estaciones de bomberos, estacionamientos públicos o privados, garajes, locales o edificios donde se efectúen espectáculos o actividades deportivas, religiosas, culturales o sociales, de interés público o privado.
 o) Estacionar vehículos en cualquiera de los lados de la vía en el pasaje León Cortés, ubicado en el costado este del edificio del Museo Juan Santamaría.
+p) Los vehículos que excedan el tiempo máximo de estacionamiento autorizado según la señalización o el espacio utilizado.
+(Así adicionado el inciso anterior mediante sesión ordinaria N° 41-2020 del 13 de octubre del 2020)
