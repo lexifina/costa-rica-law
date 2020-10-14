@@ -48,7 +48,8 @@ B. Podrán operar de lunes a viernes de las 5:00 horas a las 22:00 horas, y de s
 1. Modalidad de autoservicio al público, entiéndase la misma como el retiro de productos permaneciendo dentro del vehículo.
 2. Modalidad de retiro de comida en establecimiento para llevar.
 3. Turismo aventura, con utilización obligatoria de mascarilla o careta mientras se coloca y se retira el equipo de seguridad para realizar la actividad, y respetando las burbujas sociales.
-4. Playas y lagos, en un horario de lunes a domingo de las 5:00 horas hasta las 14:30 horas, con previa aprobación de protocolos por el ICT con cada municipio.
+4. Playas y lagos, con previa aprobación de protocolos por el ICT con cada municipio.
+(Así reformado el inciso anterior por resolución N° MS-DM-8527-2020 del 14 de octubre del 2020)
 5. Deportes individuales, al aire libre o en espacio cerrado, sin público, según lista autorizada por el Ministerio del Deporte.
 6. Deportes de contacto para entrenamiento de las Selecciones Nacionales Femenina y Masculina de alta competencia; y competencias de la categoría de alto rendimiento o profesional, a puerta cerrada y sin público, según lista autorizada por el Ministerio del Deporte.
 7. Deportes de Contacto para entrenamientos individuales sin contacto o acercamiento físico, según lista autorizada por el Ministerio del Deporte.
