@@ -1,4 +1,4 @@
-Artículo 33. Funciones del Comité Corporativo de Remuneraciones y Nominaciones.
+Artículo 33.—Funciones del Comité Corporativo de Remuneraciones y Nominaciones.
 El Comité de Remuneraciones y Nominaciones tiene las siguientes funciones:
 a) Supervisar y revisar el diseño y funcionamiento de los sistemas de evaluación del desempeño, de incentivos y de remuneraciones de cada entidad del Conglomerado, de conformidad con lo dispuesto en el Reglamento del Conglomerado sobre el sistema de evaluación del desempeño basado en el Balanced Scorecard, y en la Política Salarial integral del Conglomerado dictada por la Junta Directiva Nacional, sistemas que deberán ser consistentes con la cultura, estrategia y declaración del apetito de riesgo de la respectiva entidad, supervisión que se lleva a cabo en los términos que indique la ley y demás normativa aplicable.
 b) Orientar el accionar del Conglomerado Financiero Banco Popular y de Desarrollo Comunal en la atención y el seguimiento oportuno de las actividades programadas en el año de gestión, con recomendaciones, criterios y ajustes mediante acuerdos que faciliten a las Juntas o a la Asamblea de Accionistas tomar las decisiones que correspondan.
@@ -9,10 +9,10 @@ f) Velar por que la Gerencia General Corporativa, junto con las Gerencias de las
 g) Verificar la elaboración anual por parte de la Gerencia General, tanto del Banco como de las Sociedades, del estudio de los resultados del Sistema de Evaluación del Desempeño y su aporte al logro de los objetivos estratégicos y demás elementos referenciales relevantes.
 h) Apoyar el proceso de selección de las personas que ocuparán un cargo de alta gerencia en el Conglomerado, de conformidad con el Procedimiento corporativo para el nombramiento de los miembros del Órgano de Dirección de las Sociedades Anónimas y de la Alta Gerencia del Conglomerado Financiero Banco Popular y de Desarrollo Comunal.
 i) Revisar los perfiles y recomendar a la respectiva Junta las modificaciones que correspondan de los puestos que conforman la Alta Gerencia y los del Auditor y Subauditor Internos, cuando corresponda.
-j) Velar por la existencia de un plan de sucesión de las personas que confor:man la Alta Gerencia, así como los Órganos de Dirección, cuando ello corresponda.
+j) Velar por la existencia de un plan de sucesión de las personas que conforman la Alta Gerencia, así como los Órganos de Dirección, cuando ello corresponda.
 k) Al Comité de Nominaciones Especial le corresponde identificar y postular a los candidatos al Órgano de Dirección de las Sociedades del Conglomerado, tomando en cuenta los criterios y las disposiciones establecidos en la normativa prudencial dictada por el Órgano de Supervisión respectivo, así como los lineamientos que sobre esta materia ha dictado la Junta Directiva Nacional.
 l) El Comité de Nominaciones Especial deberá verificar que los integrantes del Órgano de Dirección resultante sean idóneos, que cuenten con la diversidad de conocimientos, experiencia, disponibilidad y competencias acordes a la importancia sistémica de la entidad financiera, la complejidad de sus operaciones, la estructura de propiedad, la naturaleza jurídica y los mercados en que opera.
 m) Participar en actividades de capacitación en asuntos de su competencia.
-n) Cualquier otro acuerdo o resolución que sea encomendada por las Juntas Directivas o las
-disposiciones aplicables.
-** Modificado mediante acuerdo JDN-5745-Acd-573-2020-art. 8 del 18 de mayo del 2020.
+n) Cualquier otro acuerdo o resolución que sea encomendada por las Juntas Directivas o las disposiciones aplicables.
+ñ) El Comité de Nominaciones Especial atenderá cualquier asunto que sea encomendado por la Junta Directiva Nacional en temas de su competencia.
+(Así reformado mediante sesión ordinaria N° 5775 celebrada el 14 de octubre de 2020)
