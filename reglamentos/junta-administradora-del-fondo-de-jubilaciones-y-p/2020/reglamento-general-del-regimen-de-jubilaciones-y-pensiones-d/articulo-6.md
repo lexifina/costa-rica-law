@@ -1,0 +1,2 @@
+Artículo 6. – Remisión de la información. Una vez verificados por la Dirección de Gestión Humana del Poder Judicial o por la dependencia o personal que disponga la Junta para tales labores los requisitos y al determinar que se cumple con cada uno de ellos, deberá remitir el informe de la gestión con el cálculo del monto de jubilación respectivo a la Junta Administradora, con la finalidad de agendarse para la sesión que corresponda.
+Todo lo anterior en los plazos de calificación establecidos en el artículo 5 de este reglamento.

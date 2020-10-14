@@ -1,0 +1,8 @@
+Artículo 43. – Tiempo servido que puede ser reconocido para efectos de jubilación. El tiempo servido por la persona gestionante en el Estado se reconoce para efectos de jubilación.
+Para el cómputo del tiempo servido se tomarán en cuenta las siguientes reglas:
+a) El reconocimiento de tiempo servido es procedente aun cuando la prestación del servicio se haya dado de manera discontinua, interina o en propiedad.
+b) No será necesario que las personas servidoras hayan servido para el Poder Judicial consecutivamente ni en puestos de igual categoría. Se tomarán en cuenta todos los años de trabajo remunerado, debiendo la persona servidora haber laborado para el Poder Judicial al menos los últimos veinte años.
+c) Los períodos de permisos sin goce de salario no serán tomados en cuenta para el cálculo.
+d) No se reconocerá cuando la prestación del servicio haya sido bajo la modalidad de servicios profesionales (sistema de honorarios o dietas).
+e) Para efectos jubilatorios, no se reconocerá el tiempo laborado en las instituciones de derecho público no estatales de base corporativa.
+f) Si la prestación del servicio, por parte de la persona servidora en las dependencias o instituciones públicas estatales, se dio a tiempos parciales, se reconocerá la proporción que corresponda respecto de ese salario, para tales efectos, será admisible todo medio de prueba para comprobar el tiempo servido por la persona trabajadora. Al valorar la prueba, la Junta Administradora tomará en consideración el principio in dubio pro-fondo.

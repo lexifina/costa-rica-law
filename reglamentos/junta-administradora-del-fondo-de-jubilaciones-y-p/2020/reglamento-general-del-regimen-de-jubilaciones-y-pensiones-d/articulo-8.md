@@ -1,0 +1,1 @@
+Artículo 8. – Solicitud de información. La Junta Administradora a través de sus integrantes o por medio de las oficinas y personal en la que esta delegue tal requerimiento, en caso de requerirse, puede solicitar la información que estime pertinente.
