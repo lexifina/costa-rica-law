@@ -1,0 +1,3 @@
+CAPITULO IX
+DISPOSICIONES FINALES
+Artículo 47: Deber de denunciar: Los hechos irregulares que puedan representar perjuicio para los bienes e intereses de la Municipalidad, o que en alguna forma sean contrarios al ordenamiento jurídico, que lleguen a conocimiento de cualquier funcionario, deben ser informados de inmediato por éste a la Auditoría Interna, sin perjuicio de las demás acciones que pueda o deba ejercer como ciudadano o funcionario público municipal, de acuerdo con el ordenamiento jurídico vigente. Los resultados del estudio según su importancia y naturaleza serán elevados al Concejo Municipal, para que se dispongan las correspondientes medidas administrativas, y si fuera del caso sean trasladadas a las instancias judiciales correspondientes.

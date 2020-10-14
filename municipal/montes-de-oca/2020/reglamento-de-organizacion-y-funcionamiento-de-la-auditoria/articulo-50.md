@@ -1,0 +1,2 @@
+Artículo 50: Derogatoria y vigencia: El presente Reglamento rige a partir de su publicación en el Diario Oficial La Gaceta, y deroga el Reglamento de Organización y Funciones de la Auditoría de la Municipalidad de Montes de Oca, publicado en el Diario Oficial La Gaceta Nº 10 del 15 de enero del 2008.
+ACUERDO DEFINITIVAMENTE APROBADO POR El Concejo Municipal de Montes de Oca, en la Sesión Ordinaria Nro. 16-2020, Artículo N° 13, Punto N° 5, del día 17 de Agosto del 2020

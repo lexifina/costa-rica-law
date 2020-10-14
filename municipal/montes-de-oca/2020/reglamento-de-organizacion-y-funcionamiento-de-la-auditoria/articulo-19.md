@@ -1,0 +1,13 @@
+Artículo 19: Funciones y requisitos para el cargo de Auditor Interno: Para efectos de establecer los requisitos de los cargos de Auditor Interno, el Jerarca debe acatar los lineamientos que sobre el particular ha emitido la Contraloría General de la República, de conformidad con el artículo 29 de la Ley General de Control Interno. Al Auditor Interno le corresponderá la dirección superior y administración de la Auditoría Interna.
+Entre otros:
+i.- Definir, establecer y mantener actualizadas las políticas, procedimientos y prácticas requeridas por la Auditoría Interna para cumplir con sus competencias, considerando en cada caso lo relativo a los procesos de esa unidad.
+ii.- Definir, establecer y mantener actualizadas las políticas, procedimientos y prácticas de administración, acceso y custodia de la documentación de la auditoría interna, en especial de la información relativa a los asuntos de carácter confidencial que estipulan los artículos 6 de la LGCI y el 8 de la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública.
+iii.- Mantener actualizado el Reglamento de Organización y Funciones de la Auditoría Interna, cumplir y hacer cumplir el reglamento.
+iv. Presentar su plan de trabajo de conformidad con los lineamientos de la Contraloría General de la República y proponer al jerarca oportuna y debidamente justificados, los requerimientos de recursos para llevar adelante su plan, incluidas las necesidades administrativas de la Unidad.
+v.- Responder por su gestión ante el jerarca y ante éste, presentará el informe de labores previsto en la Ley General de Control Interno.
+vi.- Delegar en su personal algunas funciones, utilizando criterios de idoneidad y conforme lo establece la Ley General de Administración Pública.
+vii.- Establecer un programa de aseguramiento de la calidad para la auditoría interna.
+viii.- Velar porque el personal de la Auditoría se le garantice en todo momento el libre ejercicio de los derechos y atribuciones que establece este Reglamento.
+ix.- Verificar que se cumplan estrictamente las disposiciones y acuerdos del Concejo Municipal, en aquellos casos en que por la naturaleza de sus estudios así se requiera; actuando como asesor de éste en materias de su competencia.
+x.- Efectuar las investigaciones o revisiones de la forma, alcance y oportunidad que considere necesarios sobre cualquier tipo de transacción o actividad que realice la Municipalidad, absteniéndose de interferir en la operación normal de la institución.
+xi.- Ejercer las demás funciones y atribuciones que le asigne este Reglamento, las leyes y reglamentos aplicables y las disposiciones que emita la Contraloría General de la República.

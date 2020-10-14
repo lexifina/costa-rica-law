@@ -1,0 +1,1 @@
+Artículo 11: Participación del Auditor Interno en reuniones del Jerarca: El auditor interno participará en las sesiones o reuniones del Concejo Municipal, cuando este órgano lo solicite. Su participación será conforme a su responsabilidad de asesor en materia de su competencia y no podrá ser con carácter permanente, salvo que la ley así lo establezca.

@@ -1,0 +1,6 @@
+Artículo 46: Admisibilidad de denuncias: La Auditoría Interna recibirá y tramitará estudios especiales sobre denuncias cuando:
+a. Sea remitida por el Área de Valoración de denuncias de la Contraloría General de la República u otra autoridad competente.
+b. Funcionarios Municipales o Ciudadanos presenten por escrito la solicitud de estudio, cuando a criterio del Auditor Interno, se aporten elementos de prueba suficientes que justifiquen la investigación de hechos o situaciones anómalas en la administración de los recursos municipales
+c. Anónimas cuando a criterio del Auditor Interno, excite elementos suficientes que justifiquen la realización de un estudio especial de auditoría.
+d. La Auditoría Interna tramitará y comunicará los resultados del estudio conforme lo estable la normativa técnica que al respecto establezca la Contraloría General de la República y la confidencialidad que establece el artículo 6° de la Ley General de Control Interno y el artículo 8° de la Ley Contra la Corrupción y Enriquecimiento Ilícito en la Función Pública.
+Para la tramitación de denuncias, la Auditoría Interna pondrá a disposición de la ciudadanía el Reglamento para la Atención de Denuncias planteadas ante la Auditoría Interna de la Municipalidad de Montes de Oca.

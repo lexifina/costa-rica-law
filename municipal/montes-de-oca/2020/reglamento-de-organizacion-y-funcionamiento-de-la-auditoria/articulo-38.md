@@ -1,0 +1,1 @@
+Artículo 38: Procesamiento de la información: Los funcionarios de la Auditoría Interna deberán identificar, analizar, evaluar y registrar información confiable que sea suficiente, pertinente y competente, de tal manera que les permita cumplir con los objetivos del trabajo y fundamentar los hallazgos, conclusiones, recomendaciones y demás resultados del trabajo de auditoría.

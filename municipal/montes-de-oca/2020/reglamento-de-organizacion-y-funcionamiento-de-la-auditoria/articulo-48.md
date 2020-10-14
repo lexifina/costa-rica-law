@@ -1,0 +1,1 @@
+Artículo 48: Aplicación del Reglamento a otras unidades de la Municipalidad: En lo que corresponda, las disposiciones de este Reglamento serán de aplicación en todas las unidades que conforman la estructura organizacional de la Municipalidad de Montes de Oca.

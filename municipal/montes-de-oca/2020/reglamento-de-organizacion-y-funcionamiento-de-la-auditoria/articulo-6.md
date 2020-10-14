@@ -1,0 +1,1 @@
+Artículo 6.- Ámbito de aplicación. El presente Reglamento es de carácter obligatorio para todos los funcionarios de la Auditoría Interna y para el resto de los funcionarios de la Administración Activa, en la materia que les fuere aplicable.

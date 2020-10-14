@@ -1,0 +1,3 @@
+CAPITULO III
+DE LA UBICACIÓN Y ESTRUCTURA ORGANIZATIVA
+Artículo 14: Ubicación jerárquica de la Auditoría Interna: La ubicación de la Auditoría Interna en la estructura organizativa corresponderá a la de un órgano asesor de muy alto nivel. Dependerá del Jerarca institucional, conforme las facultades de que dispone legal, reglamentaria y técnicamente. Esa ubicación debe permitirle con suficiente libertad realizar una fiscalización objetiva e independiente a su Jerarca y demás órganos que componen la institución. Es responsabilidad del Auditor Interno disponer para su unidad una estructura organizativa concordante con la razón de ser y la normativa que regula la institución.
