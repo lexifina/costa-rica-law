@@ -11,8 +11,8 @@ dispuso:
 1) Aprobar la siguiente metodología para la fijación de las tasas de interés de los pasivos con costo a más de un día:
 METODOLOGÍA PARA FIJAR LAS TASAS DE COLOCACIÓN
 DE LOS PASIVOS
-I. Las tasas de captación de los pasivos con costo del Banco Central de Costa Rica, se basarán en la curva de rendimiento soberana que calculará semanalmente el Departamento Análisis y Riesgo con base en la metodología presentada por la División Gestión Activos y Pasivos, el 23 de setiembre del 2015.
-(Así reformado el numeral anterior en sesión N°5701 del 23 de setiembre de 2015)
+I. Las tasas netas de captación de los pasivos con costo, de las operaciones en mercado secundario y de otros mecanismos de gestión de deuda del Banco Central de Costa Rica a plazos de más de 90 días, se basarán en la actualización más reciente de la curva de rendimientos soberana que se calcula semanalmente.
+(Así reformado el numeral anterior en sesión N° 5963-2020 del 14 de octubre de 2020)
 II.- La Administración cuente con un margen de +-250(*) puntos base, con respecto a las tasas de referencia fijadas, para definir las tasas finales de colocación de los pasivos.
 (*)(Así reformado el punto anterior en sesión 5475-2010 del 20 de octubre de 2010)
 (Nota de Sinalevi: Mediante el punto 1° de la sesión N° 5637-2014 del 19 de febrero del 2014 se dispuso lo siguiente: "... Mantener la potestad otorgada por la Junta Directiva a la Comisión de Mercados, en el artículo 9, del acta de la sesión 5475-2010, del 20 de octubre del 2010, oportunidad en la que se dispuso lo siguiente: “La Administración cuenta con un margen de ±250 puntos base, con respecto a las tasas de referencia fijadas, para definir las tasas finales de colocación de los pasivos...")
