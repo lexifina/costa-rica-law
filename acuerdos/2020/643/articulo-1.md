@@ -18,7 +18,7 @@ Viernes | 30/10/2020 | 6534 | GRAN CHANCE | Jueves 31 de diciembre, 2020
 SORTEO LOTERIA NACIONAL OCTUBRE 2020
 DÍA | FECHA | Nº DE SORTEO | TIPO DE LOTERÍA | FECHA CADUCIDAD
 Domingo | 04/10/2020 | 4615 | Lotería Nacional | Jueves 03 de diciembre,2020
-Domingo | 18/10/2020 | 4617 | Lotería Nacional | Jueves 17 de diciembre,2020
+Domingo | 18/10/2020 | 4617 (Mediante acuerdo N° JD-743 del 8 de octubre del 2020 se aprueba no realizar el sorteo N° 4617 programado para el domingo 18 de octubre de 2020) | Lotería Nacional | Jueves 17 de diciembre,2020
 PLANES DE PREMIOS
 SORTEOS ORDINARIOS DE LOTERÍA NACIONAL DE OCTUBRE DEL 2020
 PLAN DE PREMIOS POR EMISIÓN

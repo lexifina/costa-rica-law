@@ -14,3 +14,4 @@ Planes de premios de loterías octubre 2020
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-10-14 | la propia norma |
+| 2 | 2020-10-14 | Acuerdo 743 (2020-10-08) |
