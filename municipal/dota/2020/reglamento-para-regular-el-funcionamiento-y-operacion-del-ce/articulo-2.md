@@ -1,0 +1,7 @@
+Artículo 2º— ORGANIGRAMA INSTITUCIONAL: El Centro Infantil se estructurará de la
+siguiente manera:
+MUNICIPALIDAD DE DOTA
+DIRECTOR (A) DEL CENTRO
+ASISTENTES
+COCINERA (O)
+MISCELÁNEA (O)

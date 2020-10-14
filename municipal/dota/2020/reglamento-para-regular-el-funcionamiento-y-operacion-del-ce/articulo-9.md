@@ -1,0 +1,1 @@
+Artículo 9º—Horario del CECUDI: El horario de atención para la población beneficiada será de al menos 15 horas diarias, modalidad diurna de las 07:00 am a 04:00 pm y modalidad nocturna de 05:00 pm a 10:00 pm, durante los días hábiles de la semana. Se excluyen de servicio los días feriados de ley y aquellos que sean declarados asueto de acuerdo con la normativa correspondiente.
