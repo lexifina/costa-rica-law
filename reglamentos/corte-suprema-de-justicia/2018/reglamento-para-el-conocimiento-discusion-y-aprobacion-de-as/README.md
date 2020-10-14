@@ -14,3 +14,4 @@ Reglamento para el conocimiento, discusión y aprobación de asuntos en las sesi
 | --- | --- | --- |
 | 1 | 2019-01-28 | la propia norma |
 | 2 | 2019-11-21 | Circular 205 (2019-11-21) |
+| 3 | 2020-10-14 | Circular 234 (2020-10-14) |
