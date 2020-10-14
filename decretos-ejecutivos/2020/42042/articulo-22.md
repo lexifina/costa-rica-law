@@ -1,0 +1,1 @@
+Artículo 22.—Reconocimiento de gastos por concepto de transporte en el exterior del país: Cuando dos o más funcionarios viajen al exterior a un mismo evento, deberán compartir el transporte aeropuerto-hotel-aeropuerto. De no hacerlo, deberán presentar las justificaciones del caso dentro de la liquidación de gastos de viaje.

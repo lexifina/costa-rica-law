@@ -1,0 +1,1 @@
+Artículo 26.—Traslados por concepto de capacitaciones mayores a treinta días naturales: En caso de que un funcionario deba desplazarse de su centre de trabajo con motivo de una capacitación, por un periodo que supere los treinta días naturales, los gastos deberán ser tratados bajo el concepto de beca y no como viáticos.

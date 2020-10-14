@@ -1,0 +1,2 @@
+Artículo 19.—De los servicios de transporte aéreo: Se autoriza la utilización de servicios de transporte aéreo para casos estrictamente calificados en los que las condiciones de la gira lo ameriten, para lo cual se debe contar de previo con la correspondiente motivación, que incluya un estudio de costo/beneficio y la autorización expresa del Procurador General o quien le sustituya.
+Para este fin se deberá contratar con una empresa de servicios públicos; de lo contrario, se utilizarán los procedimientos normales de contratación administrativa.

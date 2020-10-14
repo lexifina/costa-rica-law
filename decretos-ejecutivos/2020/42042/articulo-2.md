@@ -1,0 +1,1 @@
+Artículo 2°—ámbito de aplicación. El presente Reglamento establece las disposiciones generales que, por concepto de gastos de viaje y de transporte, deben observar los funcionarios de la procuraduría General de la Republica, cuando en cumplimiento de sus labores deban desplazarse dentro o fuera del país.

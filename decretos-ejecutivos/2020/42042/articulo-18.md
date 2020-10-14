@@ -1,0 +1,1 @@
+Artículo 18.—De la tarifa a reconocer por el pago del servicio de transporte: El pago del servicio de transporte se hará de acuerdo con la tarifa vigente autorizada por la Autoridad Reguladora de los Servicios Públicos.

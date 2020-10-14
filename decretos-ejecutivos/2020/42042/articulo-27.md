@@ -1,0 +1,1 @@
+Artículo 27.—Revisión periódica de los lineamientos: La revisión de estos lineamientos se realizará de forma periódica, mediante estudios que la oficina de Presupuesto deberá presentar a la Dirección Administrativa cada vez que se considere necesario, para la formulación, autorización y puesta en marcha de los ajustes que se estimen pertinentes.

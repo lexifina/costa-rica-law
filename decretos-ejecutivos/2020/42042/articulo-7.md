@@ -1,0 +1,2 @@
+Artículo 7°—Liquidaciones presentadas con posterioridad al plazo establecido: La presentación de una liquidación de viáticos con posterioridad al plazo establecido en el artículo 10 del Reglamento General, amerita emitir, por parte del funcionario que realiza la gira, la correspondiente justificación con el visto bueno de quien autorizo la gira.
+El pago de estos viáticos se realizará sin detrimento de que se apliquen las sanciones disciplinarias, de conformidad con el ordenamiento jurídico vigente.

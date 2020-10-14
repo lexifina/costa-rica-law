@@ -1,0 +1,1 @@
+Artículo 13.—De las responsabilidades de quien recibe y revisa las liquidaciones: El funcionario que recibe y revisa las liquidaciones de viáticos debe cumplir con las obligaciones establecidas en el artículo 13 del Reglamento General. En caso de incumplimiento, se le seguirá el procedimiento administrativo establecido en la Ley General de la Administración Pública.

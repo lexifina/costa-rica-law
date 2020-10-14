@@ -1,0 +1,1 @@
+Artículo 5°—De los adelantos de viáticos: Dadas las competencias asignadas a la Procuraduría General de la Republica que implican, muchas veces, que sus funcionarios realicen viajes a todo el territorio nacional, se autoriza girar adelantos de viáticos de manera semanal, para cubrir las diferentes giras a realizar, sobre la base de una agenda preliminar.

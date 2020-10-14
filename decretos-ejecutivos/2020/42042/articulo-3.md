@@ -1,0 +1,1 @@
+Artículo 3º—Montos aplicables. La Procuraduría General de la Republica aplicara los montos y las disposiciones establecidas en el Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos, emitido por la Contraloría General de la Republica, en adelante denominado Reglamento General.

@@ -1,0 +1,1 @@
+Artículo 6°—Cambios de agenda de viaje: En el caso de que la agenda sea modificada después de haber solicitado el correspondiente adelanto, cada funcionario deberá adjuntar a la liquidación posterior, la debida justificación del cambio de agenda.
