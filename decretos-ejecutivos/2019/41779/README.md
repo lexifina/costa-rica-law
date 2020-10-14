@@ -18,3 +18,4 @@ Reglamento de la Ley del Impuesto sobre el Valor Agregado
 | 3 | 2019-07-01 | Resolución 35 (2019-06-27) |
 | 4 | 2019-07-05 | Resolución 38 (2019-07-05) |
 | 5 | 2020-09-17 | Decreto Ejecutivo 42659 (2020-09-17) |
+| 6 | 2020-10-14 | Decreto Ejecutivo 42706 (2020-10-14) |

@@ -61,13 +61,15 @@ i.Los servicios y los bienes comprados o adquiridos por las asociacionesadminist
 j.Las cuotas de afiliación y las mensualidades pagadas a los colegios profesionales,a las organizaciones sindicales y cámaras empresariales, debidamenteconformadas.
 Para efectos de la adquisición de los bienes y servicios citados, el pago deberá realizarse por los medios bancarios y corroborarse que proviene de cuentas registradas a nombre de la entidad que está aplicando la exención.
 4) Exenciones referidas a otros bienes, derechos y servicios.
-a .Está exenta la venta local o la importación de los siguientes bienes y la prestaciónde servicios destinados a mejorar la funcionalidad y garantizar la autonomía de laspersonas con discapacidad, conforme lo dispuesto en el artículo 2 de la Ley No.7600 del 02 de mayo de 1996, denominada “Igualdad de Oportunidades para lasPersonas con Discapacidad”:
-i.Las sillas de ruedas y similares.
-ii.El equipo ortopédico.
-iii.Las prótesis en general.
-iv.Los equipos utilizados por personas con problemas auditivos.
-v.El equipo que se utilice en programas de rehabilitación y educaciónespecial, incluidas las ayudas técnicas.
-vi.Los servicios de apoyo para personas con discapacidad.
+(*)a. Está exenta la venta local o la importación de los siguientes bienes y la prestación de servicios destinados a mejorar la funcionalidad y garantizar la autonomía de las personas con discapacidad, conforme lo dispuesto en el artículo 2 de la Ley No. 7600 del 02 de mayo de 1996, denominada “Igualdad de Oportunidades para las Personas con Discapacidad”:
+i. Las sillas de ruedas y similares.
+ii. El equipo ortopédico.
+iii. Las prótesis en general.
+iv. Los equipos utilizados por personas con problemas auditivos.
+v. El equipo que se utilice en programas de rehabilitación y educación especial, incluidas las ayudas técnicas.
+vi. Los servicios de apoyo para personas con discapacidad.
+vii. El servicio de transporte para personas con discapacidad.
+(*) (Así reformado el inciso a) anterior por el artículo 1° del decreto ejecutivo N° 42706 del 14 de octubre del 2020)
 b.Los libros con independencia de su formato. Esta exención no será aplicable a losmedios electrónicos que permiten el acceso y la lectura de libros en soportediferente del papel.
 c.Las primas de seguro por riesgos del trabajo, las primas de seguro agropecuarios ylas primas de seguro de viviendas de interés social, supervisados por laSuperintendencia General de Seguros (SUGESE) y el Banco Hipotecario para laVivienda (BANHVI).
 d.Las primas de seguros de sobrevivencia con rentas vitalicias y rentas de otrostipos.
@@ -84,7 +86,12 @@ a.Los servicios prestados por las emisoras de radio culturales, así calificadas
 b.Los servicios de transporte terrestre de pasajeros y los servicios de cabotaje depersonas, siempre y cuando cuenten con permiso o concesión otorgada por elEstado, y cuya tarifa sea regulada por la Autoridad Reguladora de los ServiciosPúblicos (ARESEP).
 c.Las comisiones por el servicio de subasta ganadera y agrícola, siempre y cuando la subasta esté autorizada por el ente público competente.
 d.El servicio de matanza de animales (semovientes) la misma deberá realizarse enlos mataderos autorizados por el Ministerio de Agricultura y Ganadería (MAG).
-e.Los servicios que presten las redes de cuido de niños y adultos mayores, así comolos centros de atención para adultos mayores, siempre y cuando cuenten con ladebida autorización del Ministerio de Salud.
+(*)e) Los servicios que brinden las redes de cuido y los centros de atención de la siguiente manera:
+i. Los servicios que presten las redes de cuido para menores de edad, siempre y cuando cuenten con la debida habilitación del Centro de Atención Integral (CAI) del Ministerio de Salud y que pertenezcan a la Red Nacional de Cuido y Desarrollo Infantil (REDCUDI), sea el acceso a estos servicios subsidiados o no por una institución estatal, de conformidad con los registros de la Secretaría Técnica de la RECUDI.
+Mediante resolución general dictada por la Administración Tributaria se establecerá la información que deberán suministrar las entidades mencionadas, a fin de disponer del listado de las Alternativas de Atención Integral que forman parte de la RECUDI.
+ii. Los servicios que presten las redes de cuido de personas adultas mayores, así como los centros de cuidado y atención para personas adultas mayores, siempre y cuando cuenten con la debida autorización del Ministerio de Salud y sean certificados por la Dirección Ejecutiva del Consejo Nacional de la Persona Adulta Mayor (CONAPAM).
+Mediante resolución general dictada por la Administración Tributaria se establecerá la información que deberán suministrar las entidades mencionadas, a fin de disponer del listado de los prestadores del servicio de las redes de cuido, así como de los centros de atención para adultos mayores.
+(*)(Así reformado el inciso e) anterior por el artículo 2° del decreto ejecutivo N° 42706 del 14 de octubre del 2020)
 f.Los servicios de educación prestados por centros docentes privados sujetos a inspección por parte del Ministerio de Educación Pública, desde la educación preescolar hasta la universitaria, en todas las modalidades del sistema educativo aprobadas por el Consejo Superior de Educación Pública según lo dispone el artículo 8 inciso b) de la Ley N° 1362, y el artículo 81 de la Constitución Política, así como cualquier otra autoridad oficial competente en materia educativa y conforme al listado que se indica a continuación:
 i.Educación preescolar.
 ii.Educación primaria.
@@ -97,16 +104,18 @@ h.El servicio de energía eléctrica residencial, siempre que el consumo del mis
 i.El servicio de agua residencial, siempre que el consumo mensual sea igual oinferior a 30 metros cúbicos. Cuando el consumo mensual de agua residencial exceda de los 30 metros cúbicos, el impuesto se aplicará al total de metros cúbicos consumidos.
 No gozará de esta exención, el agua envasada en recipientes de cualquier material.
 7) Exenciones referidas a transacciones financieras y servicios bancarios.
-a.Las siguientes transacciones financieras, establecidas en los numerales 3 y 4 delartículo 8 de la Ley:
-i.Líneas de Crédito
-ii.Líneas de Préstamo.
-iii.Créditos documentarios.
-iv.Préstamos Titularizados. Esta exención incluye pagarés de empresa, bonos, y obligaciones accesorias a éstos.
-v.Instrumentos de giro financiero que no representen bienes relativos a los créditos y préstamos indicados en el numeral 3 del artículo 8 de la Ley tales como letras de cambio, cheques, libranzas, o similares.
-vi.Gestiones ligadas a letras de cambio, protesto, aval y aceptación vinculadas a las líneas de crédito y préstamo exentos.
-vii.Rendimientos generados producto de créditos por descuento de facturas; así como los arrendamientos financieros y los arrendamientos operativosen función financiera
-viii.Créditos por descuento de facturas.
-ix.Servicios de adquirencia.
+(*)a. Las siguientes transacciones financieras, establecidas en los numerales 3 y 4 del artículo 8 de la Ley:
+i. Líneas de Crédito.
+ii. Líneas de Préstamo.
+iii. Créditos documentarios.
+iv. Préstamos Titularizados. Esta exención incluye pagarés de empresa, bonos, y obligaciones accesorias a éstos.
+v. Instrumentos de giro financiero que no representen bienes relativos a los créditos y préstamos indicados en el numeral 3 del artículo 8 de la Ley tales como letras de cambio, cheques, libranzas, o similares.
+vi. Gestiones ligadas a letras de cambio, protesto, aval y aceptación vinculadas a las líneas de crédito y préstamo exentos.
+vii. Rendimientos generados producto de créditos por descuento de facturas; así como los arrendamientos financieros y los arrendamientos operativos en función financiera
+viii. Créditos por descuento de facturas.
+ix. Servicios de adquirencia.
+x. Comisiones de tarjeta de crédito y débito.
+(*) (Así reformado el inciso a) anterior por el artículo 1° del decreto ejecutivo N° 42706 del 14 de octubre del 2020)
 b.Los siguientes servicios, cuando sean prestados por entidades financieras fiscalizadas por la Superintendencia General de Entidades Financieras (SUGEF),de acuerdo a lo establecido en los numerales 5 y 6 del artículo 8 de la Ley:
 i.Transferencias bancarias y no bancarias.
 ii.Servicios de captación de depósitos del público.
@@ -134,6 +143,9 @@ f.Las asociaciones de desarrollo comunal, por la adquisición de bienes y servic
 g.Las juntas de educación y administrativas de las instituciones públicas de enseñanza del Ministerio de Educación Pública, por la adquisición y la venta de bienes y servicios que hagan, para la realización de sus fines y en beneficio de los centros educativos públicos que les corresponda atender.
 h.Las asociaciones administradoras de los sistemas de acueductos y alcantarillados comunales en Costa Rica, también conocidas como Asadas, por la compra o adquisición de los bienes y servicios, para la realización de sus fines y en beneficio de las comunidades o zonas que les corresponda atender.
 i.Los importadores de los bienes establecidos en el numeral 14) del artículo 8 de la Ley: sillas de ruedas y similares, equipo ortopédico, prótesis en general, equipos usados por personas con problemas auditivos, equipo que se utilice en programasde rehabilitación y educación especial incluidas las ayudas técnicas, así como los servicios de apoyo para personas con discapacidad.
-j.Los contribuyentes registrados como exportadores, según lo dispuesto en el artículo 66 del presente Reglamento, para la adquisición de bienes y servicios relacionados con sus operaciones de exportaciones.
+j. Los contribuyentes que presten el servicio de transporte de las personas con discapacidad, autorizados por el Ministerio de Educación Pública, de conformidad con los programas de equidad que lleve ese Ministerio.
+(Así adicionado el anterior por el artículo 1° del decreto ejecutivo N° 42706 del 14 de octubre del 2020)
+k. Los contribuyentes registrados como exportadores, según lo dispuesto en el artículo 66 del presente Reglamento, para la adquisición de bienes y servicios relacionados con sus operaciones de exportaciones.
+(Así modificada la numeración del inciso anterior por el artículo 1° del decreto ejecutivo N° 42706 del 14 de octubre del 2020 que lo traspasó del inciso j) al k))
 La anterior lista no limita las facultades de la Administración Tributaria para incluir mediante resolución general cualquier otra persona física o jurídica o entidades o colectividades sin personalidad jurídica, públicas o privadas, que requieran solicitar la autorización para gozar de los beneficios aludidos.
 Las exenciones indicadas en el artículo 8 de la Ley y no contempladas en este apartado no requerirán de autorización para su aplicación, debiendo respaldar sus operaciones mediante los comprobantes electrónicos autorizados por la Administración Tributaria, así como en sus registros contables.
