@@ -1,5 +1,0 @@
-Artículo 5: Atribuciones y responsabilidades de la Dirección de Planificación Universitaria. La Dirección de Planificación Universitaria, tendrá las siguientes atribuciones y responsabilidades:
-a. Elaborar un documento formal, por cada variación presupuestaria, en el que se rinda criterio acerca de la conveniencia o inconveniencia de los movimientos en atención a los impactos positivos o negativos en el cumplimiento de los objetivos y metas del Plan Operativo Institucional de la universidad. Este documento formará parte del expediente respectivo y el resultado de su pronunciamiento será vinculante para realizar dicha gestión.
-b. Coordinar los ajustes al Plan Operativo Institucional cuando corresponda.
-c. Actualizar y publicar la información del PAO y Presupuesto una vez que se generen cambios en los proyectos, a partir de las modificaciones presupuestarias.
-d. Mantener actualizados y oficializados los procedimientos operativos institucionales relacionados con los ajustes en los planes institucionales.
