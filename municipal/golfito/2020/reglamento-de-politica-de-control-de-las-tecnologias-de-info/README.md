@@ -14,3 +14,4 @@ Reglamento de Política de control de las tecnologías de información
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-09-07 | la propia norma |
+| 2 | 2020-10-15 | Reglamento municipal 0 (2020-10-15) |
