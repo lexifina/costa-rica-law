@@ -8,4 +8,4 @@ Artículo 24. Son funciones de Dirección de Planificación Universitaria:
 7. Desarrollar el Sistema de Control Interno de la Universidad.
 8. Elaborar, planificar y coordinar los estudios de carácter socioeconómicos y socioeducativos que contribuyan al logro de los objetivos institucionales.
 9. Proporcionar información oportuna, confiable y actualizada a las diferentes instancias y órganos de la Universidad, para apoyar la toma de decisiones respecto al desarrollo institucional.
-10. Asesorar, dirigir y coordinar el Sistema de Vinculación con los Sectores Productivos.
+10. (Derogado este inciso mediante sesión ordinaria Nº 24-2020 del 15 de octubre de 2020)
