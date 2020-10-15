@@ -1,1 +1,0 @@
-Artículo 16: Exoneración del impuesto de ventas: El funcionario encargado de realizar la compra es el responsable de solicitar previamente el documento de exoneración del impuesto de ventas, y gestionar el trámite correspondiente.
