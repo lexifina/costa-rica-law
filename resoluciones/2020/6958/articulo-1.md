@@ -59,7 +59,8 @@ auto evento.)
 9. Actividades y procesiones religiosas.
 10. Bingos.
 (Así reformada la disposición segunda anterior mediante resolución N° MS-DM-7344-2020 del 6 de octubre del 2020)
-TERCERO: Se resuelve ordenar a partir del 09 de setiembre de 2020, la apertura controlada con estricto cumplimiento de protocolos y medidas sanitarias para evitar la propagación del COVID-19, de los establecimientos que cuenten con permiso sanitario de funcionamiento que atienden al público, en un horario de lunes a viernes desde las 5:00 horas y hasta las 22:00 horas, y de sábados a domingos desde las 5:00 horas y hasta las 20:00 horas, respetando el cincuenta por ciento (50%) de su capacidad máxima de aforo. Se exceptúan de la restricción de horario y del cincuenta por ciento (50%) de su capacidad máxima de aforo las siguientes actividades:
+TERCERO: Se resuelve ordenar a partir del 09 de setiembre de 2020, la apertura controlada con estricto cumplimiento de protocolos y medidas sanitarias para evitar la propagación del COVID-19, de los establecimientos que cuenten con permiso sanitario de funcionamiento que atienden al público, en un horario de lunes a viernes desde las 5:00 horas y hasta las 22:00 horas, y de sábados a domingos desde las 5:00 horas y hasta las 21:00 horas, respetando el cincuenta por ciento (50%) de su capacidad máxima de aforo. Se exceptúan de la restricción de horario y del cincuenta por ciento (50%) de su capacidad máxima de aforo las siguientes actividades:
+(Así reformado la disposición tercera anterior mediante resolución N° MS-DM-8551-2020 del 15 de octubre del 2020)
 1. Servicios a domicilio.
 2. Alquiler de vehículos “rent a car”.
 3. Alquiler de bicicletas.
@@ -77,7 +78,8 @@ TERCERO: Se resuelve ordenar a partir del 09 de setiembre de 2020, la apertura c
 14. La venta de loterías y productos de azar debidamente autorizados por la Junta de Protección Social.
 15. Instituciones públicas en general y municipios.
 16. Todos aquellos otros establecimientos con permiso sanitario de funcionamiento que no brinden atención al público presencial.
-CUARTO: Por la naturaleza de la actividad que desarrollan, la siguiente lista de establecimientos con permiso sanitario de funcionamiento que atienden al público, tendrán aforo diferenciado por burbujas sociales y distanciamiento físico de 1.8 metros en un horario de lunes a viernes desde las 5:00 horas y hasta las 22:00 horas, y de sábados a domingos desde las 5:00 horas y hasta las 20:00 horas, salvo para aquellos cantones en donde su Índice de Riesgo Cantonal (IRC) no permita desarrollar estas actividades, de conformidad con los anexos a la presente resolución:
+CUARTO: Por la naturaleza de la actividad que desarrollan, la siguiente lista de establecimientos con permiso sanitario de funcionamiento que atienden al público, tendrán aforo diferenciado por burbujas sociales y distanciamiento físico de 1.8 metros en un horario de lunes a viernes desde las 5:00 horas y hasta las 22:00 horas, y de sábados a domingos desde las 5:00 horas y hasta las 21:00 horas, salvo para aquellos cantones en donde su Índice de Riesgo Cantonal (IRC) no permita desarrollar estas actividades, de conformidad con los anexos a la presente resolución:
+(Así reformado la disposición cuarta anterior mediante resolución N° MS-DM-8551-2020 del 15 de octubre del 2020)
 1. Modalidad de autoservicio al público, entiéndase la misma como el retiro de productos permaneciendo dentro del vehículo.
 2. Modalidad de retiro de comida en establecimiento para llevar.
 3. Cines y teatros con utilización obligatoria de mascarilla, y adicional la careta de forma opcional, con medidas de separación de asientos de mínimo 1.8 metros, respetando las burbujas sociales y con boletería o reserva electrónica.

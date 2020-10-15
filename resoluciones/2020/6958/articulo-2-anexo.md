@@ -48,7 +48,8 @@ C. Podrán operar de lunes a domingo sin restricción horaria con una capacidad 
 23. Piscinas, restaurantes, gimnasios de los hoteles, cabinas o establecimientos de alojamiento.
 24. Centros con piscinas de aguas termales.
 25. Comercios dentro de las terminales nacionales e internacionales del Aeropuerto Internacional Juan Santamaría y Daniel Oduber.
-D. Podrán operar de lunes a viernes de las 5:00 horas a las 22:00 horas, y de sábados a domingo de las 5:00 horas a las 20:00 horas, con aforo diferenciado:
+D. Podrán operar de lunes a viernes de las 5:00 horas a las 22:00 horas, y de sábados a domingo de las 5:00 horas a las 21:00 horas, con aforo diferenciado:
+(Así reformado el inciso anterior mediante resolución N° MS-DM-8551-2020 del 15 de octubre del 2020)
 1. Modalidad de autoservicio al público, entiéndase la misma como el retiro de productos permaneciendo dentro del vehículo.
 2. Modalidad de retiro de comida en establecimiento para llevar.
 3. Cines y teatros con utilización obligatoria de mascarilla, y adicional la careta de forma opcional, con medidas de separación de asientos de mínimo 1.8 metros, respetando las burbujas sociales y con boletería o reserva electrónica.
@@ -62,7 +63,8 @@ D. Podrán operar de lunes a viernes de las 5:00 horas a las 22:00 horas, y de s
 10. Deportes individuales, al aire libre o en espacio cerrado, sin público, según lista autorizada por el Ministerio del Deporte.
 11. Deportes de contacto para entrenamiento de las Selecciones Nacionales Femenina y Masculina de alta competencia; y competencias de la categoría de alto rendimiento o profesional, a puerta cerrada y sin público, según lista autorizada por el Ministerio del Deporte.
 12. Deportes de Contacto para entrenamientos individuales sin contacto o acercamiento físico, según lista autorizada por el Ministerio del Deporte.
-E. Podrán operar de lunes a viernes de las 5:00 horas a las 22:00 horas, y de sábado a domingo de las 5:00 horas a las 20:00 horas, con una capacidad de ocupación al cincuenta por ciento (50%):
+E. Podrán operar de lunes a viernes de las 5:00 horas a las 22:00 horas, y de sábado a domingo de las 5:00 horas a las 21:00 horas, con una capacidad de ocupación al cincuenta por ciento (50%):
+(Así reformado el inciso anterior mediante resolución N° MS-DM-8551-2020 del 15 de octubre del 2020)
 1. Venta al por menor de vehículos automotores nuevos y usados.
 2. Gimnasios con programación de citas y horario diferenciado para personas con factores de riesgo.
 3. Escuelas de manejo.
