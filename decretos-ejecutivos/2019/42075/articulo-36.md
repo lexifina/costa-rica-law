@@ -1,0 +1,1 @@
+Artículo 36.- Prohibición del uso de tuberías como sustitución de tanques sépticos. Se prohíbe el uso de tuberías verticales u horizontales como sustituto al tanque séptico. Los tanques sépticos deben ser construidos según lo dispuesto en este reglamento

@@ -1,0 +1,1 @@
+Artículo 26.- Reportes de laboratorio. Los reportes de los análisis de laboratorio, se rigen por lo establecido en el artículo 50 del Decreto Ejecutivo No. 33601-S-MINAE del 09 de agosto de 2006 “Reglamento de vertido y reúso de aguas residuales”, publicado en el Alcance 8 a La Gaceta No. 55 del 19 de marzo de 2007.

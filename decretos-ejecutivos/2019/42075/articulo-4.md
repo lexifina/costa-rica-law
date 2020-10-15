@@ -1,0 +1,1 @@
+Artículo 4.- Del idioma oficial. Todos los documentos que se tramiten en relación con este reglamento, deben ser presentados en idioma español ante las entidades estatales y expresar las especificaciones y cálculos en el Sistema Internacional de Unidades (SI), tal y como lo establece la legislación vigente.

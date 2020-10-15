@@ -1,0 +1,1 @@
+Artículo 5.- De la revisión del presente reglamento. El presente Reglamento deberá ser revisado y actualizado por el Poder Ejecutivo, para lo cual podrá solicitar la asesoría del Comité Técnico de Revisión creado en el Reglamento de Vertido y Reúso de Aguas Residuales y sus modificaciones, en intervalos no mayores de cinco años.

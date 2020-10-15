@@ -1,0 +1,1 @@
+Artículo 41.- Deróguense el inciso p) del artículo 17 y el inciso i) del artículo 18 del Decreto Ejecutivo No. 39887-S-MINAE del 18 de abril de 2016, “Reglamento de Aprobación de Sistemas de Tratamiento de Aguas Residuales” publicado en el Alcance 186 a La Gaceta No. 179 del 19 de setiembre 2016.

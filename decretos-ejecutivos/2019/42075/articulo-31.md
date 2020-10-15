@@ -1,0 +1,1 @@
+Artículo 31.- Vigilancia estatal. El Ministerio de Salud ejercerá las labores de Vigilancia Estatal de conformidad con el artículo 58 del Decreto Ejecutivo No. 33601-S-MINAE del 09 de agosto de 2006 “Reglamento de vertido y reuso de aguas residuales”, publicado en el Alcance 8 a La Gaceta No. 55 del 19 de marzo de 2007.

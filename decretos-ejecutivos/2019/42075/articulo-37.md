@@ -1,0 +1,1 @@
+Artículo 37.- De la disposición de los efluentes de tanques sépticos. No se permite la descarga del efluente de los tanques sépticos a un cuerpo de agua, alcantarillado pluvial o cualquier otro elemento que no conduzca a un drenaje o a una unidad de tratamiento adicional antes de su descarga final. No se permiten rebalses de aguas residuales del sistema de los drenajes.

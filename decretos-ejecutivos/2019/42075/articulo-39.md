@@ -1,0 +1,3 @@
+CAPÍTULO VI.
+SANCIONES
+Artículo 39.- Sanciones por incumplimiento de este reglamento. El incumplimiento a las disposiciones establecidas en el presente Reglamento, dará lugar a la aplicación de las sanciones y medidas especiales que se señalan en los artículos 355 y siguientes y concordantes de la Ley No.5395 del 30 de octubre de 1973, “Ley General de Salud”, con respeto del debido proceso y derecho de defensa del administrado. Además, podrá presentarse la correspondiente denuncia ante el Tribunal Ambiental Administrativo, según los procedimientos establecidos para tal fin y presentarla en la vía penal ante el Ministerio Público de acuerdo al artículo 281 inciso a) del Código Procesal Penal.

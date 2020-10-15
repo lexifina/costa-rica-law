@@ -1,0 +1,1 @@
+Artículo 30.- Informe de cumplimiento o incumplimiento de la normativa. La Dirección del Área Rectora de Salud correspondiente, remitirá semestralmente y de oficio a los entes generadores, un informe de cumplimiento o incumplimiento basado en la normativa de la calidad del agua residual ordinaria tratada a drenar de conformidad con la Tabla 1 del presente reglamento.
