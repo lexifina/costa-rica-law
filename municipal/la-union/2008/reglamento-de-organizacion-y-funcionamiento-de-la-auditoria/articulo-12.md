@@ -1,1 +1,0 @@
-Artículo 12.—Objetividad. Los funcionarios y las funcionarias de la Auditoría Interna, deberán tener una actitud imparcial y evitar conflictos de intereses. En caso que existan éstos últimos, deberán resolverlo de conformidad con los lineamientos establecidos por la Contraloría General de la República

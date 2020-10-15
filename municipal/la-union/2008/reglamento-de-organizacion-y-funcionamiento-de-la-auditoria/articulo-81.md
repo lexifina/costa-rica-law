@@ -1,1 +1,0 @@
-Artículo 81.—Probabilidad de errores e irregularidades. El funcionario o funcionaria de la Auditoría deberá considerar la posibilidad de errores, irregularidades, incumplimientos y otras exposiciones al desarrollar los objetivos del estudio.

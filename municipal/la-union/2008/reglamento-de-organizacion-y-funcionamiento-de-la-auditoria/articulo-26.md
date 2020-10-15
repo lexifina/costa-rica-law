@@ -1,1 +1,0 @@
-Artículo 26.—Comunicación de los planes y requerimientos de recursos. El Auditor o Auditora Interna deberá realizar la comunicación anual de los planes y requerimientos de recursos, así como de las modificaciones que se hagan de dichos planes. También deberá comunicar el impacto que sobre la fiscalización y el control correspondiente, produce la limitación de recursos.

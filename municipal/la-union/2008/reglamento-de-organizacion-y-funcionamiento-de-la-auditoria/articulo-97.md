@@ -1,1 +1,0 @@
-Artículo 97.—Alerta a debilidades de control en los servicios preventivos. Las funcionarias y los funcionarios de la Auditoría Interna deberán considerar los controles relacionados con los objetivos de trabajo de los servicios preventivos y estar alertas a la existencia de debilidades de control significativas.

@@ -1,1 +1,0 @@
-Artículo 11.—Independencia de criterio. La actividad de la Auditoría interna deberá estar libre de injerencias del Concejo Municipal, el Alcalde Municipal y los demás órganos de la Administración, al determinar su planificación y sus modificaciones, al utilizar sus recursos, al desempeñar su trabajo y comunicar los resultados.

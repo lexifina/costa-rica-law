@@ -1,1 +1,0 @@
-Artículo 120.—Resultado seguimiento de recomendaciones. Con base en el sistema indicado en el artículo anterior, la Auditoría Interna emitirá el informe que contendrá una evaluación sobre el grado general de cumplimiento por parte de la Administración sobre el alcance determinado.

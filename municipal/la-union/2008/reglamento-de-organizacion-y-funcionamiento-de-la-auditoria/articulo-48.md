@@ -1,1 +1,0 @@
-Artículo 48.—Potestades de la Auditoría Interna. El Auditor o Auditora Interna y los demás funcionarios y funcionarias de la Auditoría Interna, tendrán todas aquellas potestades contenidas en el artículo 33 de la Ley General de Control Interno, así como las que establezca otra normativa legal y técnica vigente.
