@@ -1,0 +1,4 @@
+Artículo 6°.-Autorización de la solicitud. La Administración Tributaria correspondiente autorizará un límite mayor a la deducibilidad de intereses permitidos, cuando:
+a) Se presente la información y documentos establecidos en el artículo 3 de esta Resolución,
+b) Cuando en el numeral 6.2 de la declaración jurada indicada en el inciso 6 del artículo 5 de esta resolución, el contribuyente haya manifestado que todas sus inversiones que hayan sido financiadas con pasivos, en el período para el cual corresponde la solicitud, el porcentaje que se financió o será financiado con recursos de terceros (Pasivo), sea menor o igual al 75%.
+c) Cuando la razón de endeudamiento de la empresa solicitante sea menor o igual a la razón de endeudamiento de la casa matriz última, indicados en los numerales 6.4 y 6.5 del inciso 6 del artículo 5 de esta resolución.

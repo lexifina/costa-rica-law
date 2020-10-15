@@ -1,0 +1,1 @@
+Artículo 9°.-Recursos. Contra las resoluciones que contienen los actos motivados de denegatoria de la solicitud de ampliación del límite máximo de deducibilidad de intereses, se podrá interponer el recurso de apelación ante el Tribunal Fiscal Administrativo.

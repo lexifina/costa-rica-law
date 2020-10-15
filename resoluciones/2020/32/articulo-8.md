@@ -1,0 +1,1 @@
+Artículo 8º.-Vigencia de la autorización. El plazo por el que estará vigente la autorización es de un periodo fiscal, según el artículo 4 de la Ley del Impuesto sobre la Renta, Ley N.° 7092 del 21 de abril de 1988 y sus reformas, mismo que corresponderá al período fiscal recién concluido, pendiente de autoliquidar.

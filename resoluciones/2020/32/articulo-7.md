@@ -1,0 +1,5 @@
+Artículo 7°.-Denegatoria de la solicitud. Se consideran causales de denegatoria las siguientes:
+a) No suministrar la información y documentos señalados en el artículo 4 de esta resolución, así como cualquier información adicional pertinente para determinar el cumplimiento de los requisitos establecidos.
+b) Cuando la Administración Tributaria determine, durante la etapa de estudio de la solicitud, que el contribuyente suministró información inexacta, errónea o con orientación alejada de la realidad.
+c) Cuando en el numeral 6.2 de la declaración jurada indicada en el inciso 6 del artículo 4 de esta resolución, el contribuyente haya manifestado que para todas las inversiones que hayan sido financiadas con pasivos, en el período para el cual corresponde la solicitud, el porcentaje que se financió o será financiado con recursos de terceros (Pasivo), es mayor al 75%.
+d) Cuando la razón de endeudamiento de la empresa solicitante es mayor a la razón de endeudamiento de la casa matriz última, indicados en los numerales 6.4 y 6.5 del inciso 6 del artículo 4 de esta resolución.

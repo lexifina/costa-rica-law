@@ -1,0 +1,1 @@
+Artículo 4°.-Plazo de presentación de la solicitud. La solicitud de ampliación del límite máximo de deducibilidad de intereses deberá ser presentada máximo 15 días naturales después de haber concluido el periodo fiscal.
