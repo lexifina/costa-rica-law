@@ -1,0 +1,1 @@
+Artículo 31.—La organización debe presentar el perfil de proyecto que pretende desarrollar, con base en la guía para presentación de proyectos emitido por la Corporación Municipal y de conformidad con los requisitos establecidos. En el caso de ser requerido la Municipalidad proveerá la asistencia técnica y profesional.

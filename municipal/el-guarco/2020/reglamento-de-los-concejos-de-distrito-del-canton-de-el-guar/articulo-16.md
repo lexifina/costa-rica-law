@@ -1,0 +1,1 @@
+Artículo 16.—El quórum para sesionar será de tres miembros. En las sesiones podrán participar las personas suplentes con derecho a voz y solo con derecho a voto únicamente cuando sustituyan a las personas propietarias en ausencia de éstos.

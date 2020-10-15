@@ -1,0 +1,1 @@
+Artículo 34.—El presente Reglamento entrará a regir, a partir de su aprobación en el seno del Concejo Municipal de El Guarco, de acuerdo a lo indicado en el artículo 43 del Código Municipal; y su respectiva publicación en La Gaceta, Este Reglamento deroga cualquier otro ya existente.

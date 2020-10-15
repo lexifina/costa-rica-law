@@ -1,0 +1,1 @@
+Artículo 32.—El Concejo de Distrito conocerá el perfil de proyectos presentado en Asamblea de Concejo de Distrito Ampliado, por la organización y emitirá el acuerdo de aprobación que quedará en el acta respectiva.

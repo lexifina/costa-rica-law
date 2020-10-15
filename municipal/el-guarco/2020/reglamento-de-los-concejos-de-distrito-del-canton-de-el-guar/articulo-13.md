@@ -1,0 +1,1 @@
+Artículo 13.—Los concejos de distrito están facultados para realizar en caso de que así se requiera, sesiones virtuales a través del uso de medios tecnológicos, de conformidad con lo establecido en el artículo 37 bis del Código Municipal.
