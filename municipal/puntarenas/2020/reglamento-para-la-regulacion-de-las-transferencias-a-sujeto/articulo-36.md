@@ -1,0 +1,1 @@
+Artículo 36.- Del recurso de revocatoria con apelación en subsidio. Contra la decisión final adoptada por el Concejo Municipal en un procedimiento ordinario, cabrá recurso de revocatoria y apelación, deberá interponerse ante el Concejo Municipal dentro del quinto día hábil a partir de su notificación; de conformidad con lo que establece el artículo 165 del Código Municipal.

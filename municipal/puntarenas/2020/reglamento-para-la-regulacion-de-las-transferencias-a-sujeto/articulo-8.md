@@ -1,0 +1,6 @@
+CAPÍTULO III
+Del mecanismo de asignación de las transferencias genéricas
+Artículo 8-Del plazo para presentar las solicitudes de transferencias genéricas.
+Las organizaciones sociales constituidas como asociaciones y fundaciones, incluidas en la Ley de Presupuesto de la República en el rubro de transferencias, deberán presentar las solicitudes para la asignación de recursos ante la Municipalidad, con todos los requisitos exigidos para tal efecto establecidos en el presente reglamento; a más tardar la primera semana de marzo de cada año, siendo que aquellas presentadas fuera de ese plazo se tendrán como extemporáneas de modo que no serán consideradas, salvo cuando en casos especiales se ofrezcan razones suficientes relativas a la naturaleza del proyecto que a juicio de la Municipalidad permitan tramitar tardíamente una solicitud, siempre que se complete a más tardar la primera semana de abril de cada año; estas últimas deben ser conocidas y aprobadas por el concejo municipal.
+Las solicitudes presentadas se considerarán una expectativa de derecho, por lo que no generan obligación alguna a la Administración concedente, salvo el resolver si se autoriza o no.
+La documentación presentada tendrá validez únicamente para el respectivo período presupuestario.

@@ -1,0 +1,3 @@
+SECCIÓN IV
+Del procedimiento para la suspensión del giro de recursos a los sujetos beneficiarios en atención a irregularidades de índole financiera
+Artículo 31.-Del procedimiento para la suspensión del giro de los fondos públicos. La Municipalidad podrá iniciar el procedimiento administrativo para suspender el giro de los fondos transferidos a los sujetos beneficiarios cuando devengan denuncias, así como indicios de incumplimientos, irregularidades o deficiencias financieras encontrados en el proceso de supervisión técnica o financiera de parte de los proyectos a los que la Municipalidad les transfiere recursos públicos, mediante la adopción de una investigación preliminar, llevada a cabo por la Comisión de Transferencias.

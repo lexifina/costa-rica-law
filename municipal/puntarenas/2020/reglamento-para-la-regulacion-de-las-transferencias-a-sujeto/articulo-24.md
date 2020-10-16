@@ -1,0 +1,1 @@
+Artículo 24.-De la prohibición de influencias. A las personas cubiertas por el régimen de prohibiciones se les prohíbe intervenir, directa o indirectamente, ante los(as) funcionarios(as) responsables de las etapas del procedimiento de transferencias, en la asignación, giro, ejecución y fiscalización del convenio, a favor propio o de terceros.

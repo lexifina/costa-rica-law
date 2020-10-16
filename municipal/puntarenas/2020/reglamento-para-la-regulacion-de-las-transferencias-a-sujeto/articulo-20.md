@@ -1,0 +1,4 @@
+CAPÍTULO VII
+De la ejecución y liquidación de recursos
+Artículo 20.-De los informes de ejecución y liquidación de recursos. Las organizaciones sociales subvencionadas por Ley, las Asociaciones o Fundaciones beneficiarias de transferencias, deberán presentar a la Auditoría Interna de la Municipalidad de Puntarenas, en tiempo y forma los informes de ejecución y liquidación presupuestaria firmados por el/la contador(a) que los preparó y por el/la representante legal, de acuerdo con los formularios elaborados por la Municipalidad y establecidos en este reglamento.
+Será responsabilidad de la Auditoría Interna el velar por que los mismos sean debidamente rendidos o en su caso aclarados o subsanados de cualquier inconsistencia, aspectos sobre los cuales deberá esa Auditoría informar de manera inmediata al Concejo y a la Comisión de Transferencias para lo de su cargo.

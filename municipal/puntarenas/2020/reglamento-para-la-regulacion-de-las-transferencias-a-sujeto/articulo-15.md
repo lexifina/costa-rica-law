@@ -1,0 +1,1 @@
+Artículo 15.-De los informes de ejecución. Las organizaciones sociales subvencionadas, las Asociaciones o Fundaciones beneficiarias de una transferencia deberán rendir en tiempo y forma los informes de ejecución establecidos en este reglamento.

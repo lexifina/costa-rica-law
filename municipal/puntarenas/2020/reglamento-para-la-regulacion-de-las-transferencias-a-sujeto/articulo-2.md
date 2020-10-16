@@ -1,0 +1,2 @@
+Artículo 2-Sobre el Objetivo. El presente Reglamento tiene como finalidad regular la normativa interna con relación a la asignación, giro y verificación del uso de los beneficios de las transferencias de fondos a los sujetos privados.
+Está prohibido el uso de transferencias para fines comerciales o políticos, así como para cubrir salarios o crear plazas nuevas. Asimismo, no será procedente la adquisición de terrenos, salvo cuando exista una Ley especial que así lo autorice.

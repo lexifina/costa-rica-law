@@ -1,0 +1,4 @@
+SECCIÓN III
+De las sanciones
+Artículo 30.-Sanciones en general. Aparte de otras sanciones que pueda establecer el ordenamiento jurídico, la desviación del beneficio o de la liberación de obligaciones otorgadas por los componentes de la Hacienda Pública, hacia fines diversos del asignado, aunque éstos sean también de interés público, facultará a la entidad concedente para suspender o revocar la concesión, según la gravedad de la violación cometida.
+Cuando la desviación se realice en beneficio de intereses privados, del sujeto agente o de terceros, la concesión deberá ser revocada y el beneficiario quedará obligado a la restitución del valor del beneficio desviado, con los daños y perjuicios respectivos. En este caso, la recuperación del monto del beneficio desviado podrá lograrse, además, en la vía ejecutiva según corresponda.
