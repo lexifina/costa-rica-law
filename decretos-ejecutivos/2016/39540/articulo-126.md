@@ -1,1 +1,2 @@
-Artículo 126.— El acoso u hostigamiento laboral o sexual se considerará falta grave y todo servidor (a) a quien se le compruebe haber incurrido en ésta, podrá ser despedido sin responsabilidad patronal, de conformidad con las normas sancionatorias de estos comportamientos, establecidas en este Reglamento y en la legislación vigente.
+Artículo 126.—El hostigamiento o acoso sexual se considerará falta grave y todo servidor (a) a quien se le compruebe haber incurrido en ésta, podrá ser despedido sin responsabilidad patronal, de conformidad con las normas sancionatorias de estos comportamientos, establecidas en este Reglamento y en la legislación vigente.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 42716 del 16 de octubre del 2020)

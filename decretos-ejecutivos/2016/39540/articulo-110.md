@@ -1,1 +1,2 @@
-Artículo 110.— La persona denunciante de hostigamiento u acoso, así como los testigos, gozarán de las garantías y derechos previstos en la Ley No. 7476 del 3 de febrero de 1995, en relación con su empleo y condiciones generales de trabajo.
+Artículo 110.—En los casos de hostigamiento u acoso sexual, la persona denunciante así como los testigos, gozarán de las garantías y derechos previstos en la Ley contra Hostigamiento o Acoso Sexual en el Empleo y la Docencia, Ley N° 7476 del 3 de febrero de 1995, en relación con su empleo y condiciones generales de trabajo.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 42716 del 16 de octubre del 2020)

@@ -1,6 +1,6 @@
 CAPÍTULO IV
 De los deberes y obligaciones de los servidores (as)
-Artículo 12.— Sin perjuicio de lo que al efecto disponga el artículo 39 del Estatuto de Servicio Civil y el numeral 50 de su Reglamento, la Ley General de la Administración Pública, el Código de Trabajo, otras disposiciones del presente reglamento y demás normativa de derecho público que corresponda, son deberes de los servidores (as) del CONAPAM:
+Artículo 12.—Sin perjuicio de lo que al efecto disponga el artículo 39 del Estatuto de Servicio Civil y el numeral 50 de su Reglamento, la Ley General de la Administración Pública, el Código de Trabajo, otras disposiciones del presente reglamento y demás normativa de derecho público que corresponda, son deberes de los servidores (as) del CONAPAM:
 1. Desempeñar personalmente y ejecutar en forma regular y continua sus labores bajo la dirección del jefe inmediato, a cuya autoridad estarán sujetos en todo lo concerniente a ellas dentro de la jornada y lugar señalado.
 2. Ejecutar las labores con la capacidad, dedicación y diligencia que el cargo requiera, aplicando todo su esfuerzo para el desempeño de sus funciones, a fin de lograr la mayor eficiencia y eficacia en el servicio que prestan.
 3. Iniciar sus labores de conformidad con el horario estipulado, no pudiendo abandonarlas ni suspenderlas, sin causa justificada antes de haber cumplido con la jornada de trabajo.
@@ -20,7 +20,8 @@ Siempre que estas labores de auxilio sean compatibles con sus actitudes, estado,
 16. Comunicar verbalmente o por escrito a los superiores jerárquicos las observaciones que su experiencia y conocimientos les sugieran para prevenir daños o perjuicios a los intereses del CONAPAM, a los de sus compañeros de trabajo y a las personas que eventualmente o permanentemente, se encuentren dentro de los lugares en que prestan servicio.
 17. Registrar su asistencia a las horas de entrada y salida conforme al sistema establecido y siguiendo las instrucciones que al efecto emita la OGEREH.
 18. Informar al jefe inmediato lo antes posible, verbalmente o por escrito, de las causas que les impiden asistir al trabajo, a más tardar dentro del segundo día de ausencia. Este aviso no podrá darse después del plazo estipulado, salvo por fuerza mayor o caso fortuito, y por sí solo dicho aviso no justificará la ausencia, teniendo el interesado que justificar ante la OGEREH, la justa causa que provocó su ausencia, la cual deberá hacerse a más tardar, al día hábil siguiente a la reanudación de las labores.
-19. Laborar jornada extraordinaria conforme a las regulaciones establecidas en el presente reglamento. La negativa injustificada será calificada como falta grave.
+19. Laborar jornada extraordinaria conforme a las regulaciones establecidas en el presente reglamento.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 42716 del 16 de octubre del 2020)
 20. No sobrepasar los límites de los descansos entre jornadas destinadas a ingerir alimentos, de lo contrario se aplicará el régimen disciplinario.
 21. Velar para que la buena imagen del CONAPAM no se deteriore y no comprometerla con comportamientos inmorales e inadecuados, aún fuera de la jornada laboral, en cumplimiento de sus funciones.
 22. Informar a su superior sobre hechos incorrectos o delictivos de los que tenga conocimiento, sin perjuicio de la obligación en que están, de denunciar ante las autoridades competentes tales hechos.

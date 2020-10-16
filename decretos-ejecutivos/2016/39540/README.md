@@ -14,3 +14,4 @@ Reglamento Autónomo de Servicio y Organización del Consejo Nacional de la Pers
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-09-13 | la propia norma |
+| 2 | 2020-10-16 | Decreto Ejecutivo 42716 (2020-10-16) |

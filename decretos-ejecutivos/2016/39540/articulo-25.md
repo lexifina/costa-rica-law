@@ -1,1 +1,1 @@
-Artículo 25.— Los servidores (as) tienen derecho a que no se les discrimine en su trabajo por razones de edad, etnia, género, religión, orientación sexual, preferencia política, por padecer de cualquier tipo de discapacidad o enfermedad, o cualquier otra razón, o que se les cese en sus funciones por tales razones.
+Artículo 25.— (Derogado por el artículo 3° del decreto ejecutivo N° 42716 del 16 de octubre del 2020)

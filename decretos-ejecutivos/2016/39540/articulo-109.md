@@ -1,1 +1,2 @@
-Artículo 109.— La Junta Rectora podrá ordenar o convenir, oficiosamente o a solicitud del interesado (a) la reubicación temporal del servidor (a) denunciado (a). La solicitud escrita del interesado (a) deberá ser presentada ante el órgano director del procedimiento, quién la remitirá a la Junta Rectora o su representante para ser resuelta en un plazo máximo de ocho días a partir de su presentación.
+Artículo 109.—Durante la tramitación de los procedimientos por acoso sexual o laboral, según corresponda, podrán ordenarse, previa solicitud de parte, las medidas cautelares que correspondan según la legislación que rige la materia.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 42716 del 16 de octubre del 2020)
