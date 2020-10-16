@@ -14,3 +14,4 @@ Cumplimiento de las instalaciones eléctricas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-05-20 | la propia norma |
+| 2 | 2020-10-16 | Directriz 5734 (2020-10-16) |
