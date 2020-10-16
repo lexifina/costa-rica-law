@@ -1,1 +1,2 @@
-ARTÍCULO 2°.- Obligatoriedad. El presente Decreto Ejecutivo es de aplicación obligatoria para todas las personas físicas o jurídicas propietarias de vehículos automotores y para conductores de los mismos, en cuanto a su uso y circulación en el territorio nacional en los términos establecidos en los artículos 3° y 4° de este Decreto Ejecutivo.
+ARTÍCULO 2°.-Obligatoriedad. El presente Decreto Ejecutivo es de aplicación obligatoria para todas las personas físicas o jurídicas propietarias de vehículos automotores y para conductores de los mismos, en cuanto a su uso y circulación en el territorio nacional en los términos establecidos en el artículo 3° de este Decreto Ejecutivo.
+(Así reformado por el artículo 3° del decreto ejecutivo N° 42666 del 16 de octubre del 2020)
