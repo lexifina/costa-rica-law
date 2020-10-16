@@ -15,3 +15,4 @@ Acuerdo SGV-A-176 Delegación de Competencias
 | --- | --- | --- |
 | 1 | 2011-02-01 | la propia norma |
 | 2 | 2015-09-29 | Acuerdo 200 (2015-09-29) |
+| 3 | 2020-10-16 | Acuerdo 242 (2020-10-16) |

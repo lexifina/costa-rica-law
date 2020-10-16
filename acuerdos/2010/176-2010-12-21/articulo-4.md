@@ -1,1 +1,2 @@
-4. Derogatorias. Este Acuerdo deroga el SGV-A-112 del 22 de agosto del 2005 y el SGV-A-115 del 18 de enero del 2006.
+Artículo 4º—Competencias de cada unidad administrativa de la Sugeval.
+Se otorga para cada unidad administrativa de la Institución, las competencias para conocer, resolver y emitir los oficios sobre los asuntos que se detallan seguidamente.
