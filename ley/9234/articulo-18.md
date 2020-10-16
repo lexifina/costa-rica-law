@@ -1,2 +1,1 @@
-ARTÍCULO 18.- Consentimiento de personas legalmente incapacitadas
-En el caso de investigaciones biomédicas en las que participen personas declaradas como incapaces, mediante un proceso judicial, el consentimiento informado debe ser suscrito por su representante legal.
+ARTÍCULO 18.- Consentimiento de personas legalmente incapacitadas (Derogado por el artículo único de la ley N° 9901 del 22 de setiembre del 2020)
