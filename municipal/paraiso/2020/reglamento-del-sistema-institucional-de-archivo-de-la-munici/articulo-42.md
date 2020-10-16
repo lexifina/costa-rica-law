@@ -1,0 +1,1 @@
+Artículo 42.- El tiempo establecido para el préstamo de documentos es de 10 días naturales, una vez cumplido este periodo deberá renovarse el préstamo por el mismo lapso de tiempo. De no renovarse Archivo Central estará en potestad de solicitar la devolución del documento de forma inmediata.

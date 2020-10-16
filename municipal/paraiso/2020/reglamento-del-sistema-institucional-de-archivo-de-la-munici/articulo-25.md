@@ -1,0 +1,1 @@
+Artículo 25.- Los Archivos de Gestión deberán contar con los materiales, equipo y mobiliario que permitan una buena conservación de los documentos. Para lo cual cada encargado deberá velar por el cumplimiento de esta disposición de contar con los contenidos presupuestarios y realizar los procesos de contratación que sean necesarios.

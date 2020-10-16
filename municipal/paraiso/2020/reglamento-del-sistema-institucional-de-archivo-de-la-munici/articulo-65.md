@@ -1,0 +1,1 @@
+Artículo 65.- Es obligación del Departamento de Tecnologías de la Información garantizar que la archivalía que se produzca en soporte electrónico se salvaguarde en el tiempo de acuerdo con la Vigencia otorgada en las Tablas de Plazos de Conservación Documental y que se cumpla con lo establecido en la Ley No.8454 de Uso de Certificados, Firmas Digitales y Documentos Electrónicos.

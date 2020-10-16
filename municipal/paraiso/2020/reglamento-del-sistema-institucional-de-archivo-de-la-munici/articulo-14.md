@@ -1,0 +1,1 @@
+Artículo 14.- Se debe involucrar al responsable o Encargado del Archivo Municipal en el proceso de valoración, implementación y ejecución de cualquier sistema informático. A fin de que dicho funcionario pueda verificar y certificar que se cumpla con los aspectos archivísticos respectivos.

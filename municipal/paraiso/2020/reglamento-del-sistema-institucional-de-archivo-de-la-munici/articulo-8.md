@@ -1,0 +1,1 @@
+Artículo 8.- Se garantiza el libre acceso a todos los documentos que produzcan o custodien las unidades, departamentos u organismos de trabajo de la Municipalidad de Paraíso, excepto aquellos confidenciales con restricción por leyes o resoluciones especiales.

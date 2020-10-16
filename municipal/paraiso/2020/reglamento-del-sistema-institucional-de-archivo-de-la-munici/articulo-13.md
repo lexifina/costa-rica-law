@@ -1,0 +1,1 @@
+Artículo 13.- Al Archivo Central, ingresarán sólo los documentos con designación de valor legal establecido por el CISED y los que cuenten con Declaratoria Científica Cultural otorgada por la Comisión Nacional de Selección y Eliminación de Documentos.

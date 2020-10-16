@@ -1,0 +1,1 @@
+Artículo 24.- El Archivo Central y los Archivos de Gestión están obligados a conservar adecuadamente sus documentos, con los medios a su alcance y con la asesoría y adiestramiento de la Dirección General del Archivo Nacional.

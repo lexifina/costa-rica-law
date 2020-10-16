@@ -1,0 +1,1 @@
+Artículo 38.- Si el solicitante requiere la reprografía de la información, deberá coordinar con el funcionario responsable del trámite en la unidad productora. La disponibilidad para acompañarlo al centro de fotocopiado más cercano. Y él o la interesada deberá cubrir el costo del fotocopiado.

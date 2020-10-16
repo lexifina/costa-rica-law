@@ -1,0 +1,1 @@
+Artículo 20.-La archivalía llegará a Archivo Central por medio de transferencias documentales internas, las cuáles se realizarán de acuerdo al cronograma establecido por el departamento de Archivo Central para ese fin.

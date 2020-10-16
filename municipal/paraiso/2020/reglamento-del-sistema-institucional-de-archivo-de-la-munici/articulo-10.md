@@ -1,0 +1,1 @@
+Artículo 10.- Los investigadores que utilicen los fondos documentales del Sistema Institucional de Archivo de la Municipalidad de Paraíso, deberán coordinar estos estudios con el Archivo Central y entregar a la Institución un ejemplar del resultado de su investigación.

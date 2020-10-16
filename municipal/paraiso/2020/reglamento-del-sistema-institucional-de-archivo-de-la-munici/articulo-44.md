@@ -1,0 +1,1 @@
+Artículo 44.- Para el préstamo de documentos de Archivo Central a público en general La solicitud de la documentación requerida puede tramitarse por medio de la Plataforma de Servicios, correo electrónico o directamente con el personal de Archivo Central.

@@ -1,0 +1,1 @@
+Artículo 21.- Se remitirán únicamente aquellos documentos que ya hayan cumplido su vigencia administrativa y que cuenten con valor legal. De acuerdo con lo establecido en las Tablas de Plazos de Conservación Documental, aprobadas por el CISED y/o la Comisión Nacional de Selección y Eliminación de Documentos.

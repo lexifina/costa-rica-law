@@ -1,0 +1,1 @@
+Artículo 60.- El CISED sesionará una vez cada tres meses, es decir realizará cuatro sesiones ordinarias al año. Y convocará a las sesiones extraordinarias que considere necesarias. El o la secretaria del CISED será quién establezca el cronograma y convoque las sesiones.

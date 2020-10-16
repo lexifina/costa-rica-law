@@ -1,0 +1,1 @@
+Artículo 56.- En caso de que el contribuyente no se acerque a retirar la documentación tramitada ante la Municipalidad de Paraíso en un plazo de 30 días hábiles. La Institución descartará la documentación solicitada sin prejuicio de la misma.

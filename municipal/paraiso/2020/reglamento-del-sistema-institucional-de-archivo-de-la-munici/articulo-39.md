@@ -1,0 +1,1 @@
+Artículo 39.-En caso de que el solicitante requiera la consulta de información pública preconstituida, el funcionario responsable del trámite en el departamento correspondiente, deberá brindar la información de forma inmediata.

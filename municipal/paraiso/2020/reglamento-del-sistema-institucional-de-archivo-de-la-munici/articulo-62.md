@@ -1,0 +1,1 @@
+Artículo 62.- Cómo departamento medular del Sistema Institucional de Archivo de la Municipalidad de Paraíso, el Archivo Central tendrá la potestad de emitir informes archivísticos con las recomendaciones pertinentes para el mejoramiento de los Archivos de Gestión.

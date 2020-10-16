@@ -1,0 +1,1 @@
+Artículo 32.- La documentación saldrá de la Institución en casos requeridos por los Tribunales de Justicia, en cuyo caso debe conservarse el acta de secuestro del documento, como constancia para la recuperación del mismo. Y en aquellos casos que cuenten con el criterio legal correspondiente.

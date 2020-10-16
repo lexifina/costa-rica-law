@@ -1,0 +1,1 @@
+Artículo 33.- Para control de los oficios elaborados en cada departamento se llevará un libro de actas o cuaderno, que establezca el código de identificación del oficio, a quién va dirigido, fecha de emisión y asunto.

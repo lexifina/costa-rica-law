@@ -1,0 +1,1 @@
+Artículo 26.- Cuando algún tipo documental sufra algún daño por causa natural, un tratamiento inadecuado o manipulación continua del mismo. El responsable del Archivo de Gestión debe coordinar con Archivo Central el trabajo de restauración.

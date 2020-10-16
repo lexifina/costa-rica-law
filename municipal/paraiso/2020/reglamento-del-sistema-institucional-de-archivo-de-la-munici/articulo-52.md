@@ -1,0 +1,1 @@
+Artículo 52.- Se negará el acceso a expedientes o archivalía consideradas confidenciales o que cumplen con lo establecido en la Ley General de Administración Pública 6227, del 2 de mayo 1978; en los artículos 272.1 y 273.

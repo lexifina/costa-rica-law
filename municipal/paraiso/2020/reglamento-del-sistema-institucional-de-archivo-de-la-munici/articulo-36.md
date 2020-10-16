@@ -1,0 +1,1 @@
+Artículo 36.- El funcionario que no realice la devolución del documento o contribuya en el deterioro o extravío del mismo, será sancionado por parte de la Alcaldía Municipal, previa comunicación realizada por el encargado de departamento o archivo de gestión ante el Archivo Central, quién elevará el caso según corresponda.
