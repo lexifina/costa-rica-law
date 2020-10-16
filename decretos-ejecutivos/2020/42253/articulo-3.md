@@ -1,3 +1,4 @@
 ARTÍCULO 3°.-Regulación horaria de la restricción vehicular nocturna. Durante los días lunes a viernes, inclusive, y en el período comprendido entre las 22:00 horas y las 04:59 horas, no se permitirá el tránsito vehicular en todo el territorio nacional, salvo las excepciones contempladas en el artículo 4° del presente Decreto Ejecutivo.
-En el caso de los días sábado y domingo, inclusive, y en el período comprendido entre las 20:00 horas y las 04:59 horas, no se permitirá el tránsito vehicular en todo el territorio nacional, salvo las excepciones contempladas en el artículo 4° de este Decreto Ejecutivo.
+En el caso de los días sábado y domingo, inclusive, y en el período comprendido entre las 21:00 horas y las 04:59 horas, no se permitirá el tránsito vehicular en todo el territorio nacional, salvo las excepciones contempladas en el artículo 4° de este Decreto Ejecutivo.
+(Así reformado el párrafo anterior por el artículo 2° del decreto ejecutivo N° 42666 del 16 de octubre del 2020)
 (Así reformado por el artículo 2° del decreto ejecutivo N° 42577 del 27 de agosto del 2020)
