@@ -16,3 +16,4 @@ Reglamento de la Comisión Local de Planificación y Ordenamiento Territorial de
 | 1 | 2014-09-15 | la propia norma |
 | 2 | 2016-06-03 | Reglamento municipal 5 (2016-06-03) |
 | 3 | 2019-09-03 | Reglamento municipal 167 (2019-09-03) |
+| 4 | 2020-10-16 | Reglamento municipal 24 (2020-10-16) |
