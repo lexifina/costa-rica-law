@@ -1,0 +1,1 @@
+Artículo 32. — Archivo de Libros. Los libros de actas anteriores utilizados y con su razón de cierre incorporado por parte de la Auditoría Interna, deberán ser entregados formalmente a la Secretaria de Actas del Consejo para su archivo, custodia, consulta e inspección.

@@ -1,0 +1,2 @@
+Artículo 11. —Cierre del libro. La Unidad encargada del libro deberá enviar el libro mediante el sistema digital de la Auditoría Interna o bien una nota dirigida al Auditor Interno solicitando el cierre respectivo.
+El frente del último folio autorizado sea del libro o de los folios (hojas) autorizados, se debe dejar en blanco, para que el Auditor Interno realice la razón de cierre del libro respectivo. El Auditor Interno contará con un sello de cierre.

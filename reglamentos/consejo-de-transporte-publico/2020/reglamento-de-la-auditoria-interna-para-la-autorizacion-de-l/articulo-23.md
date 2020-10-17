@@ -1,0 +1,1 @@
+Artículo 23. — Borradores. Será responsable, el encargado o coordinador de custodiar los borradores, cargar los antecedentes en el sistema automatizado de la auditoria y documentación soporte de los eventos, sesiones y otros actos que serán registrados en los folios o libros autorizados.

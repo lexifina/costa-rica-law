@@ -1,0 +1,1 @@
+Artículo 41. — Derogatoria. Deróguese los lineamientos aprobados en la Sesión Ordinaria 89-2011 del 01 de diciembre del 2011, “Lineamientos de la Auditoría Interna para la autorización de libros del Consejo de Transporte Público”.

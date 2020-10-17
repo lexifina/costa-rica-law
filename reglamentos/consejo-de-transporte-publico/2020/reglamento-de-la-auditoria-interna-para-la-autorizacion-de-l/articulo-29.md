@@ -1,0 +1,1 @@
+Artículo 29. —Archivo. Los libros de eventos contables, sesiones y otros, utilizados, debidamente empastados y con su razón de cierre incorporado, deberán ser custodiados adecuadamente en el Archivo de Gestión correspondiente y ser enviados posteriormente al Archivo Central, del Consejo, según lo establecido en la Ley del Sistema Nacional de Archivos.

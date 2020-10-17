@@ -1,0 +1,6 @@
+Artículo 8º—. Requisitos de libros físicos. Cuando se reciben los libros físicos para legalizar se deberá verificar al menos que:
+a) Reunir la totalidad de los folios que se estime permitan el uso del libro por un tiempo razonable, debidamente numerados en forma consecutiva.
+b) El libro deberá estar en buen estado de limpieza y conservación. No se aceptarán libros iniciados.
+c) Los Libros conformados por hojas sueltas deben agruparse en un archivador manual, debidamente identificado, con el logotipo y nombre completo de la Dependencia u Órgano impreso en el encabezado de cada hoja y con el nombre del Órgano o Departamento de que se trate.
+d) Se presenta la solicitud y se adjunta las hojas en blanco tamaño carta, debidamente numeradas (foliadas) en el frente en el margen superior derecho y en orden ascendente, cada folio (hoja) deberá tener impreso en el frente el nombre o logotipo de la dependencia y órgano que forma parte del libro de marcas del Consejo, debidamente numeradas (foliadas) en el frente en el margen superior de forma centrada, se deben realizar las anotaciones únicamente en el frente del folio.
+Estos requisitos serán verificados en el momento de recibir los libros, para evitar una futura devolución a los interesados sin haberse cumplido el trámite, ya sea que se trate de libros como tales, fórmula continua u hojas sueltas.

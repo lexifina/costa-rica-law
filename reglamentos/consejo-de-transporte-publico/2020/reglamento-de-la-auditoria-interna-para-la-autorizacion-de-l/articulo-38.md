@@ -1,0 +1,1 @@
+Artículo 38. — Normas técnicas y recomendaciones de Auditoría Interna. Los libros legalizados por la Auditoria Interna aparte de lo indicado en el presente reglamento, deberán cumplir con las recomendaciones que la Auditoria Interna en el ejercicio de sus funciones formule.

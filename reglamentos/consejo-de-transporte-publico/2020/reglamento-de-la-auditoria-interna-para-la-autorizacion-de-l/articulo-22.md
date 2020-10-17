@@ -1,0 +1,2 @@
+Artículo 22. — Impresión y anotación. La impresión o anotación, se realizará de forma consecutiva, no se debe dejar espacios en blanco entre un asiento o registro y el siguiente, si quedaren espacios en un folio que el llenarlos podría dificultar la lectura o comprensión del asiento o registro, se deben inutilizar tales espacios hasta el final de ese folio y seguir en el siguiente folio.
+Una vez concluida la anotación deberán de constar las firmas de los participantes en el acto.

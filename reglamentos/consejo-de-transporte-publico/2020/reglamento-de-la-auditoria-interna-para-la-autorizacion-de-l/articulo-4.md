@@ -1,0 +1,1 @@
+Artículo 4º— Alcance. Este reglamento forma parte de la documentación del Proceso de Legalización de Libros de la Auditoría Interna del Consejo de Transporte Público; así como el acápite 4.4.4 de las Normas de Control Interno para el Sector Público, Nro. 2-2009-CODFOE de la Contraloría General de la República, así como otras normas concordantes y atinentes.

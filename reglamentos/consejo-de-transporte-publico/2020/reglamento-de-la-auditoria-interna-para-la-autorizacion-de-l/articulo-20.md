@@ -1,0 +1,4 @@
+Artículo 20. — Reposición de libros. En el caso de reposición de libros se realizará de la siguiente manera.
+a) En lo que aplique se seguirá lo indicado en el artículo 20 de este Reglamento.
+b) En caso de destrucción total del libro, el responsable debe presentar una carta a la Auditoría Interna, detallando lo que sucedió y solicitando la autorización de un nuevo libro, lo mismo procede en caso destrucción parcial importante del libro.
+c) En caso de robo, extravió o destrucción del libro el responsable, debe hacer las denuncias ante las autoridades competentes y las publicaciones que procedan en el Diario Oficial y diario de mayor circulación nacional, también, debe presentar una carta a la Auditoría Interna, detallando lo que sucedió y solicitando la autorización de un nuevo libro, lo mismo procede en caso de destrucción parcial importante del libro.

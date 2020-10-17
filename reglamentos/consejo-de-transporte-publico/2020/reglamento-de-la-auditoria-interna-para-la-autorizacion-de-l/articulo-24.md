@@ -1,0 +1,1 @@
+Artículo 24. — Respaldo. El funcionario encargado o coordinador de los libros físicos será el responsable, de mantener en custodia de los libros físicos un respaldo en un medio magnético de todos los registros efectuados según fuese pertinente.

@@ -1,0 +1,2 @@
+Artículo 10. — Sello de legalización de libros. La Auditoria Interna deberá plasmar en la parte superior derecha de cada folio físico el sello correspondiente a la legalización del libro; esto con el fin de asegurar razonablemente que no se utilizaran hojas distintas que puedan alterar la información.
+Al solicitar la generación de un nuevo folio en el sistema, automáticamente cargará al documento digital el sello de auditoría, dicho documento consta de códigos cifrados que no permiten se adjunte otro archivo que no se haya generado del módulo de libros legales.

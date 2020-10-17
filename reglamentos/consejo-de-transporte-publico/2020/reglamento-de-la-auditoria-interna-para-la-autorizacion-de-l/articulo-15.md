@@ -1,0 +1,1 @@
+Artículo 15. —Devolución del libro. La Auditoría Interna será la encargada de la devolución de los libros mediante resolución en el sistema digital o bien una nota enviada al departamento correspondiente en un plazo no mayor de 5 días hábiles, después de recibida la solicitud.

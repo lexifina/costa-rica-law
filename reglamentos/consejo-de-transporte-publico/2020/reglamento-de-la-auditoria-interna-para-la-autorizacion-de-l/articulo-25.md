@@ -1,0 +1,2 @@
+Artículo 25. — Registro oportuno. El encargado o coordinador, velará para que en los folios y libros autorizados físicos y digitales se hagan oportunamente los registros correspondientes, todo conforme con las normas establecidas en nuestra legislación vigente, aplicable al efecto.
+El sistema automatizado llevará el registro de fechas y trazabilidad de los registros que se realizan, por lo que deberá de realizarse oportuna y cronológicamente.
