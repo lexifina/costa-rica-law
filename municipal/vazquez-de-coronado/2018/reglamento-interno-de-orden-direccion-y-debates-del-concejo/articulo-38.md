@@ -1,1 +1,0 @@
-Artículo 38. Los regidores suplentes solo tendrán derecho a votar cuando estén supliendo a un regidor propietario, tanto en el Concejo en pleno como en las comisiones, ya sean permanentes o especiales.

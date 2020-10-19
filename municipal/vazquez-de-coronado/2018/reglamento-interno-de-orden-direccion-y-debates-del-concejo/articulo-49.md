@@ -1,4 +1,0 @@
-Artículo 49. La Secretaría del Concejo recibirá toda la correspondencia dirigida al Concejo Municipal, sus miembros, funcionarios adscritos y órganos dependientes, y le tramitará según corresponda.
-Para el caso de la correspondencia dirigida al pleno, se atenderán en sesión ordinaria los asuntos recibidos hasta el mediodía del lunes en que se realice la sesión.
-La Secretaría deberá realizar un listado resumen de toda la correspondencia recibida y enviarlo a los miembros del Concejo, señalados en el artículo anterior, por lo menos con tres horas de antelación al inicio de la sesión ordinaria.
-La correspondencia debe estar firmada por la persona emisora, ya sea en forma física o digital, en caso de enviarse documentación por medio de correo electrónico, que no cuenta con firma digital, el interesado debe adjuntar fotocopia de su documento de identidad.
