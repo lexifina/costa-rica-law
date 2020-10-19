@@ -1,1 +1,0 @@
-Artículo 21.—Los acuerdos serán tomados por simple mayoría de votos de los miembros presentes y se tendrá por firme. En caso de empate se someterá de nuevo a votación y si persiste el empate se pasara al Concejo Municipal para que lo defina.

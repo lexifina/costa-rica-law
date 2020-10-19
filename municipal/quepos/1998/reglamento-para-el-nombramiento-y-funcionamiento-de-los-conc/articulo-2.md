@@ -1,1 +1,0 @@
-Artículo 2°—Los restantes cuatro miembros propietarios del Concejo de Distrito, serán nombrados por el Concejo Municipal, dentro de los tres meses siguientes a su instalación, por un período de dos años y podrán ser reelectos en sus cargos por períodos iguales y desempeñarán el cargo gratuitamente.
