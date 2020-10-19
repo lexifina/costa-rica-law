@@ -14,3 +14,4 @@ Reglamento de Garantías o Cauciones que deben rendir los Funcionarios del Minis
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-07-23 | la propia norma |
+| 2 | 2020-10-19 | Decreto Ejecutivo 42714 (2020-10-19) |
