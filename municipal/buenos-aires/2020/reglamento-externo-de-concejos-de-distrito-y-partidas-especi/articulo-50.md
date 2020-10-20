@@ -1,0 +1,1 @@
+Artículo 50. Lo establecido en el párrafo primero del artículo anterior, solo podrá ser solicitado por un máximo de tres ocasiones. En caso de excederse de ese límite, deberá el Concejo de Distrito disponer del proyecto.

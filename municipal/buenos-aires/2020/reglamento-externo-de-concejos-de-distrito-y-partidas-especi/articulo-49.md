@@ -1,0 +1,4 @@
+CAPÍTULO X
+DEL PROCEDIMIENTO PARA GESTIONAR VARIACIONES DE DESTINO DE LOS
+PROYECTOS DE PARTIDAS ESPECÍFICAS
+Artículo 49. Las variaciones de destino de los proyectos de partidas específicas, deberán surgir previamente a iniciativa de las organizaciones beneficiadas por los proyectos, quienes a su vez lo comunicarán al Concejo de Distrito respectivo, adjunto a esta solicitud deberá remitir la documentación que se establezca en el formulario referido en el ordinal 36° del presente reglamento. Luego de recibida la solicitud por parte de la organización, el Concejo de Distrito deberá, en el plazo de 5 día hábiles, remitirla a conocimiento de la O.D.L, a efecto de que esta última, en un plazo igual al anterior, emita análisis vinculante respecto a la viabilidad técnica, legal y económica del proyecto propuesto.

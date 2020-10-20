@@ -1,0 +1,1 @@
+Artículo 27. -Del orden del día: Las sesiones ordinarias del Concejo de Distrito y Concejo de Distrito Ampliado se desarrollarán con base al orden del día previamente elaborado, el cual podrá modificarse o alterarse mediante una moción de orden y aprobada por las dos terceras partes de la totalidad de los concejales presentes.

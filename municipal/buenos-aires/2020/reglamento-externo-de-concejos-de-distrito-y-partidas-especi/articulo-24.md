@@ -1,0 +1,1 @@
+Artículo 24. -Rendición de Cuentas: Los Concejos de Distrito están en la obligación de rendir ante el Alcalde Municipal en el mes de febrero de cada año, un informe de rendición de cuentas, ello a efectos de que alcaldía municipal proceda con la elaboración de su informe respectivo en cada distrito.

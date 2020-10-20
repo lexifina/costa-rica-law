@@ -1,0 +1,1 @@
+Artículo 4. -Deberes de la Municipalidad: La Municipalidad, por intermedio de la O.D.L, suministrará el apoyo necesario para el fortalecimiento de los Concejos de Distrito en concordancia con lo establecido en el Artículo 59 del Código Municipal, e incluirá en el Plan Anual Operativo y el presupuesto, las partidas que sean necesarias para el cumplimiento del artículo anterior.

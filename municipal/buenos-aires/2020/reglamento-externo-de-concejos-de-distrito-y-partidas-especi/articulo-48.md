@@ -1,0 +1,1 @@
+Artículo 48.-Ejecutados los proyectos de partidas específicas programados en cada año, la O.D.L, en el transcurso de los dos años siguientes, a su criterio realizará visitas de campo en algunos de los proyectos ejecutados, a fin de verificar el estado, uso, mantenimiento y conservación de los mismos. Dichos proyectos serán seleccionados en razón de su cuantía y naturaleza.
