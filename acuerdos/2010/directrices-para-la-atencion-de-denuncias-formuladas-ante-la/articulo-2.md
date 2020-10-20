@@ -1,1 +1,0 @@
-Artículo 2º—Formulario para la recepción de las denuncias. Toda denuncia recibida en la respectiva AI del Grupo ICE, será registrada en un formulario dispuesto para tal fin, ello con el propósito de disponer de un registro de todas las denuncias recibidas, sean éstas atendidas, trasladadas o desechadas. Para las atendidas se levantará un expediente individual.
