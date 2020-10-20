@@ -1,26 +1,27 @@
-Artículo 37.—Dirección Administrativa-Financiera. Las funciones de esta Dirección son:
-1. De la Jefatura de la Dirección
-a. Planear, coordinar y supervisar las funciones administrativas de apoyo, necesarias para alcanzar el adecuado funcionamiento técnico, administrativo y financiero del INTA.
-b. Elaborar y tramitar en coordinación con el resto de dependencias del INTA los presupuestos ordinarios y extraordinarios; así como los informes de ejecución correspondiente.
-c. Elaborar en coordinación con los Departamentos de Servicios y Mercadeo los estudios y propuestas para la actualización y ajuste de tarifas por pago de productos y servicios del INTA.
-d. Proponer a la Dirección Ejecutiva los proyectos de reglamentos, manuales, procedimientos e instructivos necesarios para la gestión administrativa y financiera del INTA.
-e. Rendir cuentas a las autoridades superiores del INTA.
-f. Ejercer la Jefatura inmediata del personal de la Dirección Administrativa-Financiera.
-g. Administrar los recursos físicos, financieros y de personal del INTA.
-h. Velar porque el INTA mantenga una adecuada posición financiera.
-i. Cualquier otra que le asigne la Dirección Ejecutiva.
-2. Del Departamento de Administración de Recursos
-a. Elaborar y gestionar las aprobaciones correspondientes de los reglamentos, manuales de procedimientos e instructivos que en materia administrativa, financiera, de personal, presupuestal y contable sean necesarios.
-b. Ejecutar los procesos de reclutamiento y selección de personal, análisis y clasificación de puestos, incentivos, capacitación y desarrollo del personal, salud ocupacional y relaciones de servicio, mediante la aplicación de la normativa que regula la administración del recurso humano. c. Elaborar y aplicar los reglamentos y manuales necesarios para regular la relación de servicios entre el INTA y sus funcionarios, para propiciar un ambiente sano de trabajo y alcanzar la optimización del recurso humano.
-d. Elaborar los registros de contabilidad y presupuesto y elaborar los estados e informes correspondientes de acuerdo con las normas y técnicas aceptadas en cuanto a PAO-Presupuesto. e. Realizar el control y la custodia de los recursos financieros, de personal y de bienes muebles e inmuebles.
-f. Coordinar la formulación del presupuesto con la Dependencia de Planificación Institucional y demás Direcciones del INTA.
-g. Tramitar y negociar ante quien corresponda los presupuestos necesarios para el buen accionar del INTA.
-h. Cualquier otra que le asigne la Jefatura de la Dirección.
-3. Del Departamento de Servicios Generales
-a. Elaborar y gestionar la aprobación y aplicación de los manuales de procedimientos de contratación administrativa.
-b. Planear, dirigir, coordinar y supervisar las actividades técnicas y administrativas relacionadas con la prestación de servicios de transporte.
-c. Identificar, adquirir, distribuir, administrar y custodiar los suministros, materiales y equipo para la adecuada operación del INTA.
-d. Elaborar los registros y efectuar los controles de inventarios necesarios.
-e. Diseñar e implementar los procesos administrativos requeridos para el buen accionar del Instituto.
-f. Establecer y ejecutar planes de mantenimiento, generales y preventivos para el equipo, los bienes muebles e inmuebles.
-g. Cualquier otra que le asigne la Jefatura de la Dirección.
+Artículo 37.—Dirección Administrativa-Financiera. Le corresponde coordinar y tomar decisiones en temas administrativos propios del INTA, así como ser el enlace con otras instituciones y entidades para la planeación y ejecución de presupuesto, gestión de recursos, aprovisionamiento de bienes y servicios, comunicación, planeación y desarrollo de programas y proyectos.
+Esta Dirección contará con tres Unidades Administrativas: el Departamento de Proveeduría, el Departamento de Servicios Generales y el Departamento de Administración de Recursos. A esta Dirección le corresponden las siguientes funciones:
+a) Planear, coordinar y supervisar las funciones administrativas de apoyo, necesarias para alcanzar el adecuado funcionamiento técnico, administrativo y financiero del
+INTA.
+b) Elaborar y tramitar en coordinación con el resto de dependencias del INTA los presupuestos ordinarios y extraordinarios; así como los informes de ejecución correspondientes.
+c) Elaborar en coordinación con los Departamentos competentes los estudios y propuestas para la actualización y ajuste de tarifas por pago de productos y servicios del INTA, las cuales deben ser aprobadas por la Junta Directiva.
+d) Proponer a la Dirección Ejecutiva los proyectos de reglamentos, manuales, procedimientos e instructivos necesarios para la gestión administrativa y financiera del INTA.
+e) Rendir cuentas a las autoridades superiores del INTA.
+f) Administrar los recursos físicos y financieros del INTA.
+g) Velar porque el INTA mantenga una adecuada posición financiera.
+h) Cualquier otra que le asigne la Dirección Ejecutiva.
+2. Del Departamento de Proveeduría. Su funcionamiento se encuentra amparado en la Ley de Contratación Administrativa Número 7494 y su Reglamento; es el Departamento competente para tramitar los procedimientos de contratación administrativa que interesen al Instituto, así como para realizar los procesos de almacenamiento y distribución o tráfico de bienes y llevar un inventario permanente de todos sus bienes. Funcionará y se organizará de conformidad con lo señalado en el Reglamento para el Funcionamiento de las Proveedurías Institucionales de los Ministerios del Gobierno Número 30640-H y el Reglamento para el registro y control de bienes de la administración central y reforma Reglamento a la Ley de la Administración Financiera de la República y Presupuestos Públicos Número 40797-H, así como demás normativa atinente.
+3. Del Departamento de Servicios Generales. A este Departamento le corresponden las siguientes funciones:
+a) Elaborar y gestionar la aprobación y aplicación de los manuales de procedimientos de los procesos a su cargo.
+b) Planear, dirigir, coordinar y supervisar las actividades técnicas y administrativas relacionadas con la prestación de servicios de transporte.
+c) Diseñar e implementar los procesos administrativos requeridos para el buen accionar del Instituto.
+d) Establecer y ejecutar planes de mantenimiento, generales y preventivos para el equipo, los bienes muebles e inmuebles.
+e) Cualquier otra que le asigne su Jefatura inmediata.
+4. Del Departamento de Administración de Recursos. A este Departamento le corresponden las siguientes funciones:
+a) Elaborar y gestionar las aprobaciones correspondientes de los reglamentos, manuales de procedimientos e instructivos que, en materia administrativa, financiera, presupuestal y contable sean necesarios.
+b) Elaborar y aplicar los reglamentos y manuales necesarios para regular la relación de servicios entre el INTA y sus funcionarios, para propiciar un ambiente sano de trabajo y alcanzar la optimización del recurso humano.
+c) Elaborar los registros de contabilidad y presupuesto y elaborar los estados e informes correspondientes de acuerdo con las normas y técnicas aceptadas en cuanto a PAO-Presupuesto.
+d) Realizar el control y la custodia de los recursos financieros y de bienes muebles e inmuebles.
+e) Coordinar la formulación del presupuesto con la Dependencia de Planificación Institucional y demás Direcciones del INTA.
+f) Tramitar y negociar ante quien corresponda los presupuestos necesarios para el buen accionar del INTA.
+g) Cualquier otra que le asigne la Jefatura de la Dirección Administrativa Financiera.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 42683 del 20 de octubre del 2020)

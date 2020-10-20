@@ -16,3 +16,4 @@ Reglamento a la Ley del Instituto Nacional de Innovación y Transferencia en Tec
 | 1 | 2004-07-27 | la propia norma |
 | 2 | 2011-03-08 | Decreto Ejecutivo 36563 (2011-03-08) |
 | 3 | 2012-05-11 | Ley 9036 |
+| 4 | 2020-10-20 | Decreto Ejecutivo 42683 (2020-10-20) |

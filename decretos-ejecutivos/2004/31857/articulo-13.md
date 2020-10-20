@@ -7,6 +7,7 @@ d) Un representante de la Cámara Nacional de Agricultura y Agroindustria de Cos
 e) Un representante de la Cámara Costarricense de la Industria Alimentaria.
 f) Un representante de los pequeños y medianos productores agropecuarios organizados con representación nacional y con personería jurídica vigente, que se acreditará por medio de la certificación respectiva.
 g) Un representante del Consejo Nacional de Rectores.
-A las sesiones de Junta Directiva deberán asistir el Director Ejecutivo y el Auditor Interno del Instituto; así como el fiscal designado por Junta Directiva; quienes tendrán voz pero no voto.
+A las sesiones de la Junta Directiva deberá asistir el Director Ejecutivo del Instituto, quien tendrá voz, pero no voto. De igual manera el fiscal designado por la Junta Directiva.
+(Así reformado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 42683 del 20 de octubre del 2020)
 El quórum para que pueda sesionar válidamente la Junta Directiva se formará con cuatro de sus miembros. Los acuerdos y resoluciones serán adoptados por mayoría simple de los presentes, salvo en aquellos casos que por disposición legal, se exija una mayoría calificada. En caso de empate, el Presidente tendrá doble voto.
 En lo no regulado en el presente artículo rige supletoriamente lo dispuesto en el Capítulo Tercero del Título Segundo de la Ley General de la Administración Pública y sus respectivas concordancias.
