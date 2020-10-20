@@ -14,3 +14,4 @@ Políticas para el ingreso de personas usuarias y visitantes a las instalaciones
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-05-18 | la propia norma |
+| 2 | 2020-10-20 | Acuerdo 0 (2020-10-20) |

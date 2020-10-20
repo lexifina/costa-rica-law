@@ -3,6 +3,7 @@ POLITÍCAS PARA EL INGRESO DE PERSONAS USUARIAS Y VISITANTES A LAS
 INSTALACIONES DE LAS OFICINAS DE LA DIRECCIÓN GENERAL DE MIGRACIÓN Y
 EXTRANJERÍA Y LA POLICÍA PROFESIONAL DE MIGRACIÓN Y EXTRANJERÍA, ANTE LA
 EMERGENCIA SANITARIA POR COVID-19
+(Nota de Sinalevi: La presente norma fue actualizada y reproducido su texto en forma íntegra y publicada en el Alcance Digital N° 277 a La Gaceta N° 254 del 20 de octubre y se transcribe a continuación:)
 Introducción
 La Dirección General de Migración y Extranjería se suma a las medidas de prevención que el Ministerio de Salud ha establecido para mitigar la propagación del COVID-19, por lo que se establecen las presentes Políticas para regular el Ingreso de Personas Usuarias y Visitantes a las Instalaciones de la institución y adecuar los lineamientos sanitarios emitidos por las autoridades competentes a la realidad de los servicios migratorios brindados por la Administración Migratoria, con el fin de garantizar la adecuada y eficiente prestación de los servicios, en un ambiente sano y controlado tanto para las funcionarios como para las personas usuarios y/o visitantes.
 Antecedentes Normativos:
@@ -30,26 +31,58 @@ Alcance
 Las disposiciones contenidas en este documento aplican para toda persona externa a la DGME. Los funcionarios de la DGME serán responsables de velar por el acatamiento de las disposiciones aquí contenidas.
 En caso de que una persona se niegue a cumplir con las presentes disposiciones no se permitirá su ingreso y en caso de incumplimiento, la institución se reserva el derecho de solicitarle que abandone las instalaciones, con el fin de resguardar la salud del resto de personas usuarias y del personal de la institución.
 Disposiciones de Ingreso
-1. Ingreso a las Oficinas Administrativas
+1. Forma de verificación para el ingreso
+a. Usuarios:
+Siendo que todos los trámites de la Dirección General de Migración y Extranjería serán atendidos únicamente por citas los guardas de seguridad contaran con los listados de personas que cuentan con cita para los diferentes servicios otorgados por la Dirección General de Migración y Extranjería de manera que únicamente se permitirá el ingreso a los usuarios que se encuentren en ese listado.
+Dicho ingreso será permitido en el tanto la persona no cuente con síntomas evidentes de COVID-19, su temperatura no llegue a los 38 grados y se someta a las disposiciones sanitarias establecidas en este documento.
+b. Visitantes:
+i. Proveedores
+Las unidades fiscalizadoras de contratos deberán coordinar la entrega de bienes y/o servicios con los respectivos proveedores a efectos de coordinar el ingreso de los mismos a la institución.
+Una vez establecida la fecha de entrega de los bienes y/o servicios deberá comunicarse vía correo electrónico a la unidad de Seguridad Interna y Vigilancia a través de la dirección correspondencia_sivgsa@migracion.go.cr a efectos de que a efectos de que se permita el ingreso de los proveedores.
+Dicho ingreso será permitido en el tanto la persona no cuente con síntomas evidentes de COVID-19, su temperatura no llegue a los 38 grados y se someta a las disposiciones sanitarias establecidas en este documento.
+ii. Personas externas que asistan a reuniones:
+La persona encargada de la unidad que recibirá al visitante será el encargado de informar vía correo electrónico a la unidad de Seguridad Interna y Vigilancia a través de la dirección correspondencia_sivgsa@migracion.go.cr el nombre y lugar de procedencia de las personas externas que requieran ingresar a la DGME para asistir reuniones, esto a efectos de que se permita la entrada de la persona.
+Dicho ingreso será permitido en el tanto la persona no cuente con síntomas evidentes de COVID-19, su temperatura no llegue a los 38 grados y se someta a las disposiciones sanitarias establecidas en este documento.
+2. Ingreso a las Oficinas Administrativas
 Todas las personas que ingresen a las instalaciones de la DGME o la PPME deberán cumplir con los presentes lineamientos, así como los emitidos por el Ministerio de Salud, el adecuado protocolo de estornudo y tos, en caso de ser necesario, el lavado de manos y todas las medidas de distanciamiento social que exigidas para el abordaje y atención de la enfermedad COVID-19.
-a. Acceso restringido a una sola persona
+a) Acceso restringido a una sola persona
 - Ingresará únicamente la persona interesada en el trámite, de manera que NO se permitirá el ingreso de acompañantes, estos deberán esperar fuera de las instalaciones de la DGME.
 - En casos excepcionales, donde por la condición de salud o discapacidad de la persona usaría interesada en el trámite, requiera asistencia de un tercero, se permitirá únicamente el ingreso de un acompañante.
+- Las personas menores de edad ingresaran en compañía de uno de sus padres o su encargado. Excepto en aquellos casos en los que para el trámite a realizar se requiera la presencia de ambos padres como por ejemplo la emisión de pasaporte.
 - Las personas adultas mayores con problemas de movilidad podrán ingresar en compañía de una persona
 - En el caso de visitantes únicamente se permitirá el ingreso del personal necesario para el servicio o tramite que se realizará, para lo cual, la Unidad Fiscalizadora deberá realizar las coordinaciones necesarias con los oficiales de seguridad interna a efectos de informar la cantidad de personal que ingresara.
-b. Uso de Guantes
+b) Distanciamiento
+- Todo usuario debe respetar el distanciamiento en las salas de atención al público para lo cual estará demarcado a nivel de piso la distancia que debe mantener con el funcionario, queda terminantemente prohibido que la persona usuaria remueva la silla de su espacio asignado.
+- Del mismo modo, se debe respetar el distanciamiento en las salas de espera y en las filas para lo cual estará demarcado a nivel de piso la distancia que debe mantener con otros usuarios en las filas y se rotularan las sillas de espera inhabilitadas.
+c) Toma de temperatura:
+- Todo usuario que ingrese a las instalaciones debe someterse a la toma de temperatura, para lo cual, los oficiales de seguridad o persona designada para ello por parte de la Administración, usarán un termómetro infrarrojo, tomando la misma únicamente a nivel de zonas como la frente, detrás de la oreja o cuello.
+- En caso de que la persona porte careta se le solicitará remover la careta con el propósito de evitar falsos parámetros a la hora de la toma.
+- Aquellos que arrojen una temperatura igual o superior a 38°C no podrán ingresar a las instalaciones de la DGME.
+- En caso de que por algún motivo la persona usuaria este siendo acompañada por un tercero, o por su burbuja (en el caso de pasaportes de menores de edad) y a alguna de las personas que pretende ingresar arroja una temperatura superior a 38ºC, no se permitirá el ingreso a las instalaciones a ninguno de ellos.
+d) Personas con afectación gripal evidente:
+- No se permitirá el ingreso a las oficinas de la DGME de personas con afectación respiratoria evidente o síntomas gripales notorios.
+e) Uso de Guantes
 - Se prohíbe el ingreso de personas usuarias o visitante con guantes, por lo cual, en caso de que la persona lleve puestos estos insumos se les indicará al momento de ingresar que debe quitarse los mismos y depositarlos en el bote de basura con tapa que se ubicará al ingreso.
 En caso de que la persona desee guardar los guantes podrá hacerlo, sin embargo, no podrá hacer uso de los mismos hasta que abandone las instalaciones de la DGME.
 - En caso de que la persona indique que trae consigo un par de guantes nuevos para sustituir los que trae puestos, el personal de Seguridad de la DGME deberá indicarle que no podrá hacer uso de éstos hasta después del lavado de manos.
-c. Lavado obligatorio de Manos
+f) Lavado obligatorio de Manos
 - Toda persona que desee ingresar a las instalaciones de la DGME deberá proceder al lavado de manos, caso contrario no podrá hacer ingreso a la institución.
-d. Uso de caretas de protección
-- Toda persona que desee ingresar a las instalaciones de la DGME haciendo uso de careta de protección, podrá hacerlo bajo la advertencia de que no podrá quitársela dentro de la institución ni manipularla, caso contrario deberá quitársela antes de ingresar.
-e. Uso de Mascarillas
-Estas disposiciones aplican para cualquier tipo de mascarilla ya sea quirúrgica, tipo N 95, mascarilla reutilizable de cualquier material incluidas las de tela:
-- Trámites que requieren toma de fotografía: a efectos de evitar la errónea manipulación de mascarillas, al momento de ingresar a las instalaciones de la DGME, la persona usuaria deberá quitarse la mascarilla, guardarla o desecharla, según sea el caso y pasar de inmediato al área de lavado de manos, caso contrario no se le permitirá el ingreso a las instalaciones.
-- Trámites que no requieran toma de fotografía: Si el trámite de la persona no requiere la toma de la fotografía, se le indicará al momento del ingreso, que en caso de ingresar con la mascarilla no podrá quitársela ni manipularla dentro de las instalaciones de la DGME, esto a efectos de evitar la errónea manipulación de las mascarillas y mitigar el riesgo de contagio por el uso inadecuado de las mismas.
-- Personas con afectación gripal evidente: No se permitirá el ingreso a las oficinas de la DGME de personas con afectación respiratoria evidente o síntomas gripales notorios.
-2. Ingreso a las Oficinas Policiales:
+- Del mismo modo, deberá procederse al lavado de manos antes de ingresar a las diferentes plataformas de servicios o unidades de servicio al usuario donde se haya habilitado lavamanos, caso contrario no podrá ingresar al área de servicio.
+g) Uso opcional de caretas de protección
+- Las personas que deseen ingresar a las instalaciones de la DGME haciendo uso de careta de protección, como complemento a la mascarilla, podrá hacerlo bajo la advertencia de que no podrá quitársela dentro de la institución ni manipularla, caso contrario deberá quitársela antes de ingresar.
+- No se permitirá el ingreso de personas únicamente con careta de protección, de manera que si la persona porta careta sin mascarilla no se le permitirá el ingreso.
+h) Uso obligatorio de Mascarillas
+- Estas disposiciones aplican para cualquier tipo de mascarilla ya sea quirúrgica, reutilizable de cualquier material incluidas las de tela y los respiradores N95.
+- Para ingresar a las instalaciones de la DGME y sus dependencias será obligatorio el uso de mascarilla de forma correcta, es decir, colocada de manera adecuada cubriendo boca y nariz, sin que la misma se desajuste.
+- No se permitirá el ingreso de ninguna persona sin mascarilla, ni tampoco de aquellas personas que porten mascarilla con filtro, en evidente mal estado o que no la utilicen de manera correcta.
+- La persona que estando dentro de las instalaciones se quite la mascarilla sin indicación de los funcionarios encargados de su atención, la desajuste dejando al descubierto boca o nariz, o la manipule de manera incorrecta, será invitada a solucionar la situación o hacer abandono de las instalaciones.
+- No se permitirá el consumo de alimentos o bebidas en las salas de atención al público, esto con el fin de evitar la errónea manipulación de mascarillas.
+- Trámites que requieren toma de fotografía: El usuario que requiere la toma de fotografía como requisito para su trámite, una vez que ingrese al cubículo de atención procederá de la siguiente manera:
+i. Colocarse en sus manos alcohol en gel o sanitizador de manos que serán instalados en las áreas de atención al público.
+ii. Retirar correctamente el equipo de protección personal (la mascarilla y careta si la porta) y colocarla en el estuche o recipiente correspondiente.
+iii. Una vez tomada la fotografía volver a colocarse en sus manos alcohol en gel o sanitizador de manos y colocarse su equipo de protección personal nuevamente, volviendo a desinfectar sus manos.
+- Trámites que no requieran toma de fotografía: Si el trámite de la persona no requiere la toma de la fotografía, no podrá quitársela ni manipularla dentro de las instalaciones de la DGME, esto a efectos de evitar la errónea manipulación de las mascarillas y mitigar el riesgo de contagio por el uso inadecuado de las mismas.
+- Excepciones sobre el uso de mascarillas o caretas: personas con discapacidad que presenten limitaciones físicas, cognitivas, psicosociales o motoras comprobadas a través del documento médico correspondiente, que no puedan por si mismos quitarse y ponerse la mascarilla y que no se encuentren acompañados de una persona que les asista, así como niños menores de tres años.
+3. Ingreso a las Oficinas Policiales:
 Para el ingreso de personas usuarias a las oficinas de la PPME aplicaran las regulaciones establecidas en el apartado anterior titulado “Ingreso a las Oficinas Administrativas” en el tanto no contravengan las disposiciones específicas establecidas en el “Protocolo Operativo de Funcionamiento de las Oficinas de la Policía Profesional de Migración Y Extranjería, ante la Emergencia Sanitaria por Covid-19”.
 Adicionalmente, se aclara que hay disposiciones de seguridad propias del citado cuerpo policial para el ingreso de personas usuarias a sus instalaciones, deberán de igual manera ser respetadas por las personas usuarias, las cuales seguirán operando con normalidad según las disposiciones de cada oficina policial.
