@@ -1,1 +1,0 @@
-Artículo 51: Este Reglamento deroga el Reglamento para el Cobro Administrativo y Judicial publicado en la Gaceta N°183 del 25 de setiembre del año 2000, así como sus modificaciones publicadas en la Gaceta N°158 del 18 de Agosto del año 2011.
