@@ -1,0 +1,2 @@
+Artículo 6.- Finalidad de la evaluación de riesgo.
+La evaluación del riesgo se realiza para garantizar la sostenibilidad, resguardar la calidad, eficiencia, seguridad, durabilidad de los bienes y continuidad de los servicios, así como la adaptación, ajustes o respuesta de la actividad constructiva, tendiente a reducir la vulnerabilidad y favorecer la recuperación de la sociedad costarricense ante eventos adversos, emergencia y desastre. Lo anterior durante el ciclo de vida de las obras de infraestructura y servicios públicos.

@@ -1,0 +1,4 @@
+Capitulo II.- Del uso de herramientas para la evaluación del riesgo bajo un enfoque
+multi-amenaza.
+Artículo 5.- Obligación de las instituciones.
+Las instituciones a cargo de la gestión de infraestructura pública, ya sea en forma directa o a través de las diversas modalidades de contratación, deberán aplicar las herramientas necesarias para la evaluación del riesgo bajo un enfoque multi-amenaza en todo el ciclo de vida de las obras o proyectos. Deberá incluirse en el análisis las proyecciones de cambio climático y la variabilidad climática, además de otros tipos de amenazas naturales y antropogénicas. Lo anterior deberá realizarse en un proceso progresivo y ordenado que contemple la identificación de los factores de riesgo, la determinación de los daños y pérdidas probables y las medidas necesarias para su control y manejo.

@@ -1,0 +1,2 @@
+Artículo 11.- Generación de capacidades y condiciones
+A los efectos de la aplicación de lo dispuesto en la presente norma, las instituciones públicas competentes deberán efectuar las acciones pertinentes para fortalecer las capacidades y competencias, así como dotar de las herramientas y metodología necesarias a los colaboradores para incorporar en los proyectos de infraestructura el análisis del riesgo, bajo un enfoque de multi-amenaza, con adaptación al cambio climático y variabilidad climática.

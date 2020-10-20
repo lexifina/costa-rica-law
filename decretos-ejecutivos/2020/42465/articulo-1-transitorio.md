@@ -1,0 +1,2 @@
+TRANSITORIO ÚNICO
+La incorporación de la consideración del cambio climático y variabilidad climática en la evaluación del riesgo, se efectuará de manera progresiva y conforme se avance en la generación de la información necesaria y de los servicios climáticos e hidrometeorológicos y estén a disposición de las instituciones públicas. Igualmente, será progresiva conforme se mejoren las capacidades de los funcionarios de las instituciones para hacer esta consideración.
