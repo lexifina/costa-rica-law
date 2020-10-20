@@ -1,0 +1,1 @@
+Artículo 9º—Servicios amigables. Por ningún motivo, se limitará los servicios y atención a una persona por alguna de sus características. Este aspecto se fomentará mediante procesos de capacitación que faciliten la sensibilización del personal con miras a brindar un servicio y atención igualitaria a todas las personas y dentro del marco del respeto a los derechos humanos.
