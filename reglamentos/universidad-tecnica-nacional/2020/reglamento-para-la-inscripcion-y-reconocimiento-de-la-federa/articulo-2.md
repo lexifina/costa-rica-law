@@ -1,0 +1,1 @@
+Artículo 2.-De la Federación de Estudiantes de la Universidad Técnica Nacional. La Federación de Estudiantes de la Universidad Técnica Nacional es el órgano de gobierno estudiantil que se rige por su Estatuto Orgánico y reglamentos específicos. Así mismo, la Federación posee órganos internos de representación en todas las sedes y en todas las carreras que se imparten.

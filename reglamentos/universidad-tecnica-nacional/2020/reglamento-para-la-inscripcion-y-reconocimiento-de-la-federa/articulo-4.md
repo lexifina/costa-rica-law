@@ -1,0 +1,1 @@
+Artículo 4.-De la conformación de la Federación de Estudiantes de la Universidad Técnica Nacional. La Federación de Estudiantes de la Universidad Técnica Nacional deberá estar conformada por la representación de cada una de las Asociaciones Estudiantiles de las Sedes y el CFPTE.

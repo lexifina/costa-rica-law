@@ -1,0 +1,1 @@
+Artículo 9.De la subsanación. En caso de que la petición de inscripción posea alguna omisión o defecto relacionado con los requisitos estipulados en este Reglamento, la VVE, el Decanato o la Dirección Ejecutiva del CFPTE, según corresponda, concederá un plazo de tres días hábiles para que se subsanen las faltas.

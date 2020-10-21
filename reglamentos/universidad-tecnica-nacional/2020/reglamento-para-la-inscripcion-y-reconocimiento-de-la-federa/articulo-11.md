@@ -1,0 +1,1 @@
+Artículo 11.Del plazo para resolver la solicitud. Las instancias competentes contarán con diez días hábiles para emitir la resolución de aprobación o rechazo de la solicitud a partir del momento en que la organización estudiantil presente formalmente todos los requisitos estipulados en este Reglamento.

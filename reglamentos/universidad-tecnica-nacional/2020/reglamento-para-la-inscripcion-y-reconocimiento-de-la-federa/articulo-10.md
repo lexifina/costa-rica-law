@@ -1,0 +1,1 @@
+Artículo 10.Del rechazo de la petición. Si las omisiones o defectos subsanables no se corrigen dentro del plazo estipulado para tal efecto, la VVE, el Decanato o la Dirección Ejecutiva del CFPTE deben rechazar y archivar la petición.
