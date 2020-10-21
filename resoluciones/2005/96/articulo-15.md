@@ -1,1 +1,0 @@
-Artículo 15.—Procedimientos internos: La Gerencia de la División de Fiscalización Operativa y Evaluativa emitirá los procedimientos internos que serán aplicables en la atención de las denuncias por parte del Área de Denuncias y Declaraciones Juradas.
