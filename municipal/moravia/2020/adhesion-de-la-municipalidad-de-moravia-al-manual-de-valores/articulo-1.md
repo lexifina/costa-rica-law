@@ -1,0 +1,4 @@
+MUNICIPALIDAD DE MORAVIA
+CONCEJO MUNICIPAL
+El Concejo Municipal de Moravia, según acuerdo N° 0272-2020 tomando en la sesión N° 20 del 16 de setiembre del año 2020, aprobó lo siguiente:
+Único. Aprobar la adhesión de la Municipalidad de Moravia a la publicación hecha por el Órgano de Normalización Técnica (O.N.T) del Ministerio de Hacienda del Manual de Valores Unitarios por Tipología Constructiva publicado en el Alcance Nº 198 de La Gaceta N° 187 del jueves 30 de julio del año 2020, así como todo adendum que el O.N.T emita con el afán de corregir y/o aclarar los contenidos de dicho Manual. Este acto lo realiza la Municipalidad de Moravia para usar dicho Manual en el cálculo de los valores unitarios de construcciones y/o instalaciones fijas o permanentes de los predios del cantón y estimar el pago del Impuesto de Bienes Inmuebles que pesa sobre ellas. Este nuevo Manual sustituye el anterior Manual de Valores Unitarios por Tipología Constructiva del año 2017.
