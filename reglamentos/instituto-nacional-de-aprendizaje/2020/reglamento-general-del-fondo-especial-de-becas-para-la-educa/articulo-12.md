@@ -1,0 +1,5 @@
+Artículo 12.De los plazos para el trámite y resolución de las solicitudes de beneficios: La tramitación y resolución de las solicitudes de beneficios, deberá de atender a los siguientes plazos:
+a) El formulario de solicitud de beca del Fondo EFTP dual y su respectiva
+documentación deberá de ser entregada en un plazo máximo de 5 días hábiles, a partir del día hábil siguiente de la suscripción del convenio de matrícula por parte del Centro Educativo.
+b) Si la información indicada en el inciso a) del presente numeral, no se encontraré completa, el INA concederá a la persona estudiante, un plazo de 5 días hábiles para que sean subsanados o aclarados los requisitos faltantes, de conformidad con la Ley N.º 8220 “Protección al ciudadano del exceso de requisitos y trámites administrativos”
+El plazo máximo para la resolución de la solicitud, por parte del INA, será de 10 días hábiles, a partir de recibida la totalidad de la documentación. La falta de presentación de la información solicitada por el INA no impedirá que la solicitud pueda volverse a gestionar cuando se ostenten la totalidad de los requisitos.

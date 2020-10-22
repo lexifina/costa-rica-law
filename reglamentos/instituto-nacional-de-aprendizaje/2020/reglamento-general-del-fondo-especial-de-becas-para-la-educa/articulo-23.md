@@ -1,0 +1,1 @@
+Artículo 23.Depósitos de los gastos relacionados con el fondo. Para realizar el depósito de los rubros normados en el artículo 22 de este reglamento, el INA depositará los recursos en la cuenta proporcionada por la persona estudiante para tales efectos.

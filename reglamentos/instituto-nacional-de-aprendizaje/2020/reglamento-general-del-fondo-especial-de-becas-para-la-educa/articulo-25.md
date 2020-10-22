@@ -1,0 +1,4 @@
+Artículo 25.Del servicio de Acreditación para los niveles de cualificación 1,2 y 3 del MNC EFTP-CR: Para el caso de los niveles de cualificación 1,2 y 3, y según se trate de una persona física o jurídica interesada en optar por el servicio de acreditación, deberá contar con los siguientes requisitos:
+a) Contar con los Programas Educativos aprobados por el Instituto Nacional de Aprendizaje, según lo establecido en el MNC-EFTP-CR.
+b) Presentar la solicitud de acuerdo con los procedimientos y formularios del servicio de acreditación vigente y según procedimientos institucionales.
+c) Firmar el formulario de solicitud de Diseños Curriculares, en caso de que ese sea el servicio requerido. De no otorgarse la acreditación, será absolutamente prohibido utilizar dichos diseños curriculares en beneficio propio o de terceros, o en detrimento de los derechos de autor de la institución.
