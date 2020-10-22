@@ -1,0 +1,1 @@
+Artículo 28º- Imposibilidad de conciliar y de desistir durante el proceso de instrucción. Durante el transcurso de la instrucción del procedimiento administrativo disciplinario por acoso laboral no habrá etapa de conciliación ni se podrá desistir de la denuncia.

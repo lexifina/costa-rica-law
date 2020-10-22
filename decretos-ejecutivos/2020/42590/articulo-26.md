@@ -1,0 +1,1 @@
+Artículo 26º- De la valoración de la prueba. Los medios de prueba podrán ser todos aquellos permitidos por el derecho público y su valoración se realizará de conformidad con las reglas de la sana crítica.

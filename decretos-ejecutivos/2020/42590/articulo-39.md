@@ -1,0 +1,1 @@
+Artículo 39º-Publicidad del reglamento. Con el fin de garantizar una eficaz prevención del acoso laboral, será obligación de la Administración difundir su texto para conocimiento de la totalidad de personas servidoras del Ministerio de Relaciones Exteriores y Culto, mediante los instrumentos de comunicación institucional disponibles.

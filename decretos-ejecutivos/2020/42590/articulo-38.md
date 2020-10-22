@@ -1,0 +1,1 @@
+Artículo 38º-Capacitación para quienes conformen la CIAL. El Ministerio de Relaciones Exteriores y Culto procurará establecer las partidas presupuestarias necesarias para promover que las personas colaboradoras que deban analizar las denuncias y recomendar las respectivas sanciones reciban capacitaciones sobre acoso laboral.

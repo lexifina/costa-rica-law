@@ -1,0 +1,1 @@
+Artículo 29º- Garantía del denunciante y testigos. Ninguna persona que, amparada en la presente reglamentación, haya denunciado acoso laboral o haya comparecido como testigo de las partes, podrá ser objeto de represalia por ese motivo.

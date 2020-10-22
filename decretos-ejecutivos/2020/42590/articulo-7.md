@@ -1,0 +1,8 @@
+Artículo 7º- Acoso personal. Se consideran como acoso personal las siguientes conductas realizadas con intencionalidad:
+a) Realizar, fomentar o difundir, expresiones de burla, críticas y comentarios denigrantes, rumores o calumnias, en relación con la vida personal o laboral de la persona trabajadora.
+b) Golpear, dañar, esconder o sustraer instrumentos, herramientas, equipos, mobiliario e infraestructura de trabajo necesarios para la persona trabajadora u objetos personales de ella.
+c) Invadir el espacio de trabajo y/o activos asignados a una determinada persona colaboradora, sin su consentimiento o autorización de la jefatura y si no es con justa causa ligada al desarrollo de actividades de trabajo.
+d) Injuriar, ofender o intimidar a la persona o sus familiares y/o allegados a través de mensajes o llamadas, ya sea por medio de medios tradicionales, por redes sociales, por aplicaciones o por cualquier otro medio tecnológico.
+e) Empujar, golpear objetos, tirar puertas, amenazar, gritar o ejercer cualquier otro acto violento contra la persona trabajadora.
+f) Las expresiones denigrantes, burlescas, injuriosas o ultrajantes sobre la persona, con utilización de palabras soeces o con alusión a la etnia, al género, el origen familiar o nacional, la preferencia política, orientación sexual, situación de discapacidad, estatus social o cualquier otra manifestación de discriminación.
+g) Los comentarios y conductas hostiles o humillantes de descalificación en el ejercicio de sus funciones, así como desacreditar públicamente a la persona, atribuyéndole de manera injustificada y reiterada errores en su desempeño.
