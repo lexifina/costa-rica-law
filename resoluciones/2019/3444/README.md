@@ -15,3 +15,4 @@ Medidas sanitarias especiales emitidas por el Ministro de Salud con respecto a l
 | --- | --- | --- |
 | 1 | 2019-07-24 | la propia norma |
 | 2 | 2019-07-24 | Resolución 3445 (2019-07-24) |
+| 3 | 2020-10-22 | Resolución 7601 (2020-10-22) |
