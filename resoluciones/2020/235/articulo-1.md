@@ -1,0 +1,3 @@
+MUNICIPALIDAD DE SAN MATEO
+ALCALDÍA MUNICIPAL
+La Municipalidad de San Mateo comunica que con base en la resolución de la alcaldía Municipal AMSM/235-2020 del 15 de octubre de 2020 este municipio procede a adherirse a la Publicación del documento “Manual de Valores Base Unitarios por Tipología Constructiva 2019”, publicado en el Alcance Digital Nº 198, de La Gaceta 187 del 30 de julio de 2020 por el Órgano de Normalización Técnica del Ministerio de Hacienda con el objeto de corregir y/o aclarar los contenidos de dicho manual para efectos de lo indicado en la ley N° 7509 y sus reformas.—San Mateo, 16 de octubre del 2020.—
