@@ -36,3 +36,4 @@ Reglamento del Seguro de Salud de la Caja Costarricense de Seguro Social
 | 21 | 2020-03-11 | Reglamento 9084 (2020-03-11) |
 | 22 | 2020-04-02 | Reglamento 9090 (2020-04-02) |
 | 23 | 2020-10-01 | Reglamento 9130 (2020-10-01) |
+| 24 | 2020-10-22 | Reglamento 9134 (2020-10-22) |
