@@ -1,0 +1,1 @@
+Artículo 19°-Plazo para interponer la denuncia y prescripción. El plazo máximo para presentar la denuncia será de un año desde la ejecución del último hecho denunciado o a partir del cese de la causa justificada que impidiera su presentación.

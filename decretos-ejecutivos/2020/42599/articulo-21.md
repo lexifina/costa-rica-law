@@ -1,0 +1,1 @@
+Artículo 21°-Plazos aplicables a las investigaciones producto de las denuncias. La Dirección Jurídica y la Comisión Calificadora del Servicio Exterior, de acuerdo con las facultades establecidas, procurarán atender cada una de las denuncias con celeridad y responsabilidad, no debiendo excederse el plazo de un mes entre el dictado de un acto y otro.

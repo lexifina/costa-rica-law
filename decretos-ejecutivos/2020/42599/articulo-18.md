@@ -1,0 +1,1 @@
+Artículo 18°-Denuncias verbales. La Dirección Jurídica y la Comisión Calificadora del Servicio Exterior prepararán los respectivos formularios con los que se recibirán las denuncias que sean presentadas de manera verbal, los cuales deberán incluir los espacios para cumplir con los datos establecidos en el artículo 11 del presente reglamento.

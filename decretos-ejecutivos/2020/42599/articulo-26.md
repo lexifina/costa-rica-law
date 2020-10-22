@@ -1,0 +1,1 @@
+Artículo 26°-Justificación para la desestimación y archivo de la denuncia. Cuando la Dirección Jurídica o la Comisión Calificadora del Servicio Exterior desestimen y archiven una denuncia, deberán emitir una resolución fundada por medio de la que expongan los motivos por los cuales se procedió de dicha manera.

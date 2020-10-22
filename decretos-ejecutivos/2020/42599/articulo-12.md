@@ -1,0 +1,8 @@
+Artículo 12°-Medidas cautelares. Se considerarán medidas cautelares aquellas que tienen como objetivo facilitar la investigación y evitar la continuidad de los hechos denunciados.
+Podrán ser solicitadas al jerarca en cualquier etapa del proceso por la parte denunciante, mediante solicitud presentada ante el titular subordinado o de oficio por parte de este último. En cualquiera de los casos, el traslado que se haga al jerarca deberá ir acompañado por la recomendación correspondiente emitida por dicho órgano instructor, la cual se basará en la gravedad de los hechos denunciados.
+La medida podrá acordarse sin previa audiencia y su duración deberá ser de seis meses prorrogables por periodos iguales en caso de comprobada necesidad de mantenerla vigente, lo cual deberá recomendado por el titular subordinado al Jerarca. En caso de que el proceso finalice antes de su vencimiento, la medida cautelar establecida dejará de surtir efectos.
+Se tomarán como medidas preventivas y cautelares las siguientes:
+a) Suspensión con goce de salario de la persona colaboradora denunciada, previa autorización del Director General.
+b) Traslado temporal de la persona denunciada a otro lugar de trabajo, siempre y cuando mantenga las condiciones propias de la clasificación de su puesto.
+c) Otras medidas que recomiende la comisión instructora, siempre que garanticen los derechos de las partes, guarden proporción y legalidad, y siempre que no afecte el servicio público que se brinda.
+El titular subordinado deberá trasladar al jerarca la recomendación correspondiente sobre la implementación de las medidas cautelares en un plazo máximo de dos días hábiles desde que la solicitud para implementarla fuera presentada.

@@ -1,0 +1,1 @@
+Artículo 6°-Obligación de denunciar. Todas las personas que se desempeñen en el Ministerio de Relaciones Exteriores y Culto, de conformidad con las disposiciones del Código Procesal Penal, Ley N°7594 del 10 de abril de 1996, tienen la obligación de denunciar los delitos de los que lleguen a tener conocimiento en el ejercicio de sus funciones.

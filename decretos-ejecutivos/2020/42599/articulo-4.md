@@ -1,0 +1,1 @@
+Artículo 4°-Principios y naturaleza del procedimiento. El procedimiento establecido en este reglamento se basa en los principios simplicidad, economía, eficacia y eficiencia, además de lo anterior, se constituye como uno de carácter completo, razonable, integrado y congruente con respecto a la naturaleza de la lucha anticorrupción.
