@@ -1,0 +1,2 @@
+Artículo 10.—Decomiso. En el mismo acto se procederá al decomiso de toda la mercadería que tenga expuesta el infractor sobre la vía pública, así como la que cargue en su cuerpo o en su vehículo.
+Para tales efectos, el funcionario municipal se hará acompañar de oficiales de fuerza pública, para efectos de proteger su integridad y velar porque el decomiso se lleve a cabo de forma ordenada.

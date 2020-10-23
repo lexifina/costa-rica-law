@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de aplicación. El presente Reglamento se aplicará a todas aquellas actividades que sin contar con la patente municipal otorgada conforme la Ley N° 7577, se desarrollan en el cantón de Matina de forma ambulante.
