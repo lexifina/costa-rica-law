@@ -1,0 +1,3 @@
+Artículo 29. De las aportaciones de los cantones federados y usuarios:
+Los pagos ordinarios y extraordinarios o que por prestación de servicios hayan de efectuar los miembros federados y los demás usuarios, de conformidad con lo previsto en estos Estatutos, se abonarán a la Federación, respecto de la cual se entenderá contraída la respectiva obligación de pago y, correlativamente, el derecho de la Federación a exigirla. En caso de gestionarse por parte de la Federación el cobro de impuestos y tasas, los cantones miembros acordarán la autorización de compensación a favor de la Federación.
+Aquellas municipalidades que siendo requeridas por parte de la Federación no hagan efectivo el pago de sus obligaciones podrán ser excluidas de los servicios que ésta les preste.

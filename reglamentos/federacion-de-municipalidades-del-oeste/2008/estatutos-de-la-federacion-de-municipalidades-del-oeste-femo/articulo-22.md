@@ -1,0 +1,3 @@
+Artículo 22. Régimen Jurídico:
+Las funciones de secretaría y tesorería serán desempeñadas por el personal que designe el Consejo Intermunicipal, quedan sujetas a la normativa que con carácter específico establece este Estatuto, al Reglamento que al efecto se dicte y al Código Municipal.
+La Federación adecuará su funcionamiento a la normativa del régimen municipal, a este Estatuto y su Reglamento, así como a las normas de régimen interno que se aprueben. La actividad económica de la Federación estará sometida a los controles y tramitaciones que con carácter general dispone para las municipalidades el Código Municipal vigente.

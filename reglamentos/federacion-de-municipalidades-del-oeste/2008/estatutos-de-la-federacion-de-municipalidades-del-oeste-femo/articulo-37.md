@@ -1,0 +1,3 @@
+Artículo 37. Liquidación:
+Acordada la disolución por la Asamblea General ésta designará una Comisión Liquidadora formada por tres miembros designados por la Asamblea General, que decidirá el destino de los bienes que integran el patrimonio de la Federación. La Comisión Liquidadora realizará su cometido en el plazo máximo de un año. Este procedimiento requerirá de modo obligatorio el refrendo de la Contralaría General de Ia República.
+Los bienes que hubiesen estado destinados a la prestación de los servicios desarrollados por la Federación y adscritos por las municipalidades federadas, pasarán automáticamente a disposición de las mismas. En cuanto a los demás bienes la Cornisón Liquidadora dispondrá de lo pertinente.

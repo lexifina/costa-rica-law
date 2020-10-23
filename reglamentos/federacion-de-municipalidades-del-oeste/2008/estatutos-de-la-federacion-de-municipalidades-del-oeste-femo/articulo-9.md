@@ -1,0 +1,2 @@
+Artículo 9: De las sesiones de la Asamblea General
+La Asamblea General Ordinaria o Extraordinaria será convocada por el Presidente del Consejo Intermunicipal o por dos terceras partes de los delegados a la Asamblea; y el quórum para sesionar se producirá en el momento en que estén presentes en el lugar de reunión, la mitad más uno de los delegados de la Asamblea. La convocatoria se realizará con por lo menos veinticuatro horas de anticipación a la sesión extraordinaria o con una semana de anticipación en el caso de la Asamblea Ordinaria.

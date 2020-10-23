@@ -1,0 +1,2 @@
+Artículo 8. De la Asamblea General:
+La Asamblea General estará compuesta por tres representantes de cada Municipalidad, dos de los cuales serán regidores (as); y el tercer representante será el Alcalde o Alcaldesa. Los regidores o regidoras serán nombrados por sus respectivos Concejos Municipales por un periodo de dos años, pudiendo ser reelectos y cada uno (a) tendrá un suplente nombrado para el mismo período, y concluirán su mandato por el período por el cual fueron electos, así como en el caso de los Alcaldes y Alcaldesas.
