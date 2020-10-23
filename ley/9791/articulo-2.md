@@ -17,3 +17,4 @@ Artículo 2°: Apruébense los siguientes Egresos Ordinarios y Extraordinarios d
 (Reformado por el artículo 5° de la ley N° 9879 del 28 de julio del 2020)
 (Modificado por el artículo 1° del decreto ejecutivo N° 42540 del 13 de agosto del 2020)
 (Modificado por el artículo 1° del decreto ejecutivo N° 42628 del 18 de setiembre del 2020)
+(Modificado por el artículo 1° del decreto ejecutivo N° 42654 del 7 de octubre del 2020)
