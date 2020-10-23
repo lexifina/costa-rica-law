@@ -1,0 +1,1 @@
+Artículo 11.—La Municipalidad procurará beneficiar al mayor número de personas posible, en los casos especiales en donde se proponga ayudas que superen los ¢500.000,00, que estén debidamente justificadas, requerirá la aprobación por votación calificada del Concejo Municipal.

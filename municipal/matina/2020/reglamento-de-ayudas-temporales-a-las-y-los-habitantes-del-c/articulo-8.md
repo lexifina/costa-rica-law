@@ -1,0 +1,1 @@
+Artículo 8º—En caso de que un acontecimiento de grandes proporciones y/o pandemias afecte a los habitantes del cantón de Matina, la Municipalidad podrá realizar modificaciones presupuestarias para atender a tantas personas o familias afectadas por dichas emergencias.
