@@ -1,0 +1,1 @@
+Artículo 7º—La Oficina de Recursos Humanos o su similar deberá refrendar los contratos de Dedicación Exclusiva, sus prórrogas y addendum, en un plazo máximo de ocho días hábiles a partir de la fecha en que es suscrito por las partes, dando fe de que cumplen con todos los requisitos establecidos para tal fin.

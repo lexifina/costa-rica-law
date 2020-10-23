@@ -1,0 +1,4 @@
+Artículo 3º—La persona titular de la Alcaldía en su condición de administrador general y jerarca de la corporación municipal, podrá otorgar en la forma señalada en el artículo anterior, la compensación económica que en adelante se indicará, a favor de aquellas personas funcionarias cuya naturaleza del puesto que desempeñen corresponda al estrato profesional, gerencial o sus homólogos y siempre que a juicio de la Administración así lo amerite.
+La determinación de la compensación económica que se reconocerá por concepto de Dedicación Exclusiva, se calculará respecto al Sueldo Base de la clase de puesto que ocupe la persona funcionaria, de conformidad con lo siguiente:
+a) Diez por ciento (10%) del Sueldo Base respectivo para los servidores que posean el grado académico de Bachillerato Universitario.
+b) Veinticinco por ciento (25%) del Sueldo Base respectivo para los servidores que ostenten el grado académico de Licenciatura Universitaria o superior.
