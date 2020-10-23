@@ -1,0 +1,1 @@
+Artículo 3º—La simultaneidad propia del órgano colegiado exige que durante la celebración de la sesión el miembro se dedique íntegramente a dicha sesión, por lo que incluso en las sesiones virtuales debe respetar la prohibición de superposición horaria.
