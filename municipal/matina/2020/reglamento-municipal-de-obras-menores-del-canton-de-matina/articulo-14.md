@@ -1,0 +1,1 @@
+Artículo 14.—Plazo de resolución de la solicitud. La resolución de estas solicitudes se deberá dar a más tardar en quince días hábiles, previo cumplimiento de todos los requisitos y pago de los impuestos respectivos.

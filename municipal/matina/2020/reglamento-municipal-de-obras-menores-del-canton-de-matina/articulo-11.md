@@ -1,0 +1,3 @@
+CAPÍTULO III
+Del encargado responsable de la obra
+Artículo 11.—Encargado responsable de la obra. El propietario de la obra será la persona responsable de la construcción y estará en la obligación de cumplir a cabalidad con lo dispuesto en el permiso de construcción de obra menor debidamente autorizado por la Municipalidad de Matina y ajustándose en todo momento a las obras aprobadas. Para lo cual, el departamento de Desarrollo y Control Urbano verificará previamente al momento de otorgar los permisos que la obra menor que se pretenda realizar reúne todas las condiciones mínimas de seguridad y que ésta no supone ningún riesgo para sus ocupantes, bienes públicos o de terceros.

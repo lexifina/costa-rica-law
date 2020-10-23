@@ -1,0 +1,1 @@
+Artículo 15.—Inspección y supervisión. Una vez otorgado el permiso, el departamento de Desarrollo y Control Urbano, por medio de los inspectores fiscalizará el trabajo que se llevó a cabo de conformidad con lo que indica el permiso de construcción.
