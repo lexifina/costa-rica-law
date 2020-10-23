@@ -1,0 +1,1 @@
+Artículo N° 6º—La información que se dé en la fórmula respectiva, deberá ser fidedigna, si se comprueba lo contrario o se presentan sin los respectivos requisitos completos de forma automática se declarará como inadmisible la solicitud de beca.

@@ -1,0 +1,1 @@
+Artículo N° 18.—Se incorpora al presente reglamento las disposiciones supletorias en lo pertinente del artículo N° 57 del Código Municipal, específicamente la del inciso (a) – referente a Becas de Estudio y las propuestas de posibles beneficiarios de los distritos del cantón de Matina.

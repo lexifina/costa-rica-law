@@ -1,0 +1,1 @@
+Artículo N° 16.—Por cada solicitud de beca, la secretaría de la Comisión abrirá un expediente digital en donde constarán todos los documentos aportados por el interesado. La Comisión de Becas no dará trámite a aquellas solicitudes que sean entregadas en forma incompleta de documentación y de forma extemporánea.

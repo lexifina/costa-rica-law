@@ -1,0 +1,2 @@
+Artículo N° 9º—La Comisión de Becas confeccionará las fórmulas que establece el artículo cuarto de este reglamento y las pondrán a disposición de los solicitantes en el mes de enero de cada año vía digital en las diferentes páginas de la Municipalidad o de forma física en la sede designada para tal efecto en el edificio municipal.
+Los solicitantes deberán entregar las fórmulas y todos los requisitos de forma completa a la Secretaría de la Comisión a más tardar en la última quincena del mes de febrero.

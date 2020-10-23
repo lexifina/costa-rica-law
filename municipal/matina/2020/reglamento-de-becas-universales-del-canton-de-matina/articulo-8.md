@@ -1,0 +1,1 @@
+Artículo N° 8º—Los estudiantes que disfruten de otro régimen becario pueden tener la opción de recibir la beca universal siempre y cuando sean casos excepcionales a valoración de la Comisión de Becas.

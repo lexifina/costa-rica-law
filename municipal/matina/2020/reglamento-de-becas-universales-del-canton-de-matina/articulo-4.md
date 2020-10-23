@@ -1,0 +1,2 @@
+Artículo N° 4º—Los estudiantes deberán llenar y firmar una fórmula especial, la cual contendrá como mínimo los siguientes datos:
+Nombre y apellidos del solicitante, edad, dirección exacta del domicilio, teléfono, correo electrónico, nombre y apellidos del padre y la madre, nivel cursado, nombre de la institución educativa y cualquier información que requiera la Municipalidad que no señale expresamente en el presente reglamento.

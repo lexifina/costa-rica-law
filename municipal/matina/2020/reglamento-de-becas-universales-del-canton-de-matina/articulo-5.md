@@ -1,0 +1,1 @@
+Artículo N° 5º—Las personas interesadas en una beca universal deberán presentar aparte de la información requerida en el artículo anterior, una copia del último informe de calificaciones emitida por la Institución Educativa.

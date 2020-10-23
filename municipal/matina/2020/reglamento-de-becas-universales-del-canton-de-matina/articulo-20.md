@@ -1,0 +1,1 @@
+Artículo N° 20.—Todos aquellos reglamentos o actos administrativos relacionados a las becas municipales del cantón de Matina que anteceden a esta Reforma del reglamento quedan derogados a partir de su publicación en el Diario Oficial La Gaceta.

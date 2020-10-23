@@ -1,0 +1,1 @@
+Artículo N° 17.—Todo becario debe presentar una declaración jurada que no necesita ser autenticada por un abogado donde manifieste ser vecino del cantón de Matina, estar matriculado en el respectivo centro educativo, universidad, colegio universitario, instituto o academia.

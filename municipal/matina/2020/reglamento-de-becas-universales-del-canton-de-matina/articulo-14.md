@@ -1,0 +1,1 @@
+Artículo N° 14.—El monto de la beca puede ser de un mínimo de ¢10000.00 (Diez mil colones) mensuales y se entregarán por mes vencido, la Comisión de Becas propondrá el monto final de las becas universales ante el Concejo Municipal para que se tome el respectivo acuerdo por mayoría simple.
