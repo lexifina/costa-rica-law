@@ -1,0 +1,2 @@
+Artículo 7º—Ancho del derecho de vía y ampliación vial: La municipalidad se reserva el derecho de verificar el ancho real del derecho de vía frente a las propuestas de fraccionamiento que el profesional indique en el plano, de manera tal que el profesional encargado del visado municipal podrá considerar como criterio de denegatoria cuando difiera de la realidad o bien de la información
+catastral antecedente concordante, dentro de los parámetros de precisión que la técnica establezca para ello.
