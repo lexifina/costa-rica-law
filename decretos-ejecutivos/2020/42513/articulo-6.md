@@ -1,2 +1,2 @@
-ARTÍCULO 6°.-Para el cumplimiento de las condiciones b) c) y d) del artículo 4 del presente Decreto Ejecutivo, el Ministerio de Salud coordinará las acciones pertinentes a efectos de generar y asegurar el acceso al formulario denominado Pase de Salud, con el objetivo de contar con el registro previo de la persona extranjera para su trazabilidad.
-(Así reformado por el artículo 3° del decreto ejecutivo N° 42527 del 13 de agosto de 2020)
+ARTÍCULO 6°.-Para el cumplimiento de las condiciones b) y d) del artículo 4 del presente Decreto Ejecutivo, el Ministerio de Salud coordinará las acciones pertinentes a efectos de generar y asegurar el acceso al formulario denominado Pase de Salud, con el objetivo de contar con el registro previo de la persona extranjera para su trazabilidad.
+(Así reformado por el artículo 2° del decreto ejecutivo N° 42682 del 23 de octubre del 2020)
