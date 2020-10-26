@@ -1,1 +1,2 @@
-Artículo 2.—El reconocimiento será conferido a un(a) agremiado(a) y consistirá en una Placa o Pergamino y una Medalla de Oro, con la designación de Abogado Distinguido.
+Artículo 2º—El reconocimiento será conferido a un agremiado y una agremiada y consistirá en una Placa o Pergamino y una Medalla de Oro, con la designación de Abogado Distinguido y Abogada Distinguida.
+(Así reformado mediante sesión N° 40-20 del 26 de octubre del 2020)
