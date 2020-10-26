@@ -32,44 +32,108 @@ En la tramitación de estos asuntos deberá vigilarse que se respeten los plazos
 1.8.-Con el objetivo de poder coordinar con el Ministerio de Justicia y Paz la utilización de videoconferencias las oficinas penales deberán levantar un listado de todas las diligencias programadas con personas privadas de libertad a partir del 8 de junio y hasta el próximo 31 de agosto (NUE, fecha de vencimiento de la prisión preventiva, nombre de la persona, centro penal donde se encuentra, fecha y hora de la diligencia). Este listado también servirá al Ministerio para el seguimiento respectivo de las condiciones de salud de esa persona y revisar su capacidad para poder hacer la videoconferencia. Las oficinas penales que no cuenten con la tecnología para realizar la videoconferencia, deberán buscar cómo solventar en la medida de lo posible con alguna otra oficina o despacho cercano, de conformidad con lo previsto en la circular 102-2020 en cuanto al enlace virtual en un edificio del Poder Judicial cercano al domicilio de las partes.
 1.9.-La Dirección Ejecutiva deberá proveer y asignar a los operadores judiciales el equipo de resguardo y protección pertinente para la atención de gestiones presenciales como, por ejemplo, el levantamiento de cadáveres, allanamientos, entre otros, los cuales deberán ponerse a su disposición para evitar la exposición directa ante situaciones riesgosas de contagio.
 2.-Oficinas judiciales que deben permanecer abiertas y asuntos que deben atender.
-2.1-Juzgados penales y penales juveniles.
-Asuntos que deberán atender en atención de la emergencia sanitaria nacional provocada por la enfermedad del COVID-19, cuando exista algunos de los intervinientes del juicio que proceda de las zonas de alerta naranja, o el edificio en que deba realizarse la audiencia esté en alguna de las zonas de alerta naranja:
-· Levantamiento de cuerpos.
-· Allanamientos.
-· Reos presos.
-· Medidas cautelares.
-· Prisiones preventivas.
-· Inspecciones.
-· Intervenciones telefónicas.
-· Actos preliminares del procedimiento en asuntos que se inicien en ese período.
-· Audiencias preliminares de personas privadas de libertad a través de la aplicación de la video conferencia.
-· Resoluciones escritas (desestimaciones, sobreseimientos, apelaciones).
-· Anticipos jurisdiccionales de prueba.
-· Cualquier otro asunto que sea puesto a su conocimiento.
-Como excepción a lo anterior se dispone lo siguiente. Las audiencias penales podrán realizarse en aquellos Despachos judiciales, si en esa oficina es posible aplicar el protocolo 102-2020, que posibilita realizar audiencias y juicios por el sistema de videoconferencia de circuito cerrado de televisión o por Microsoft Teams, siempre que las partes o los intervinientes se puedan conectar desde otro edificio del Poder Judicial, para hacer el enlace virtual y evitar los riesgos de contagio. Los juzgados penales juveniles se regirán por los principios estipulados en la circular 86-20.
-2.2 Tribunales Penales.
-Asuntos que deberán atender en atención de la emergencia sanitaria nacional provocada por la enfermedad del COVID-19, cuando exista algunos de los intervinientes del juicio que proceda de las zonas de alerta naranja, o el edificio en que deba realizarse el juicio esté en alguna de las zonas de alerta naranja:
-· Medidas cautelares en los asuntos en etapa de juicio.
-· Apelaciones.
-· Extradiciones.
-· Rebeldías.
-· Sentencias escritas (sobreseimientos, abreviados, entre otros).
-· Juicios de personas privadas de libertad a través de la utilización de la herramienta de la videoconferencia.
-· Juicios presenciales de personas privadas de libertad.
-· Cualquier otro asunto que sea puesto a su conocimiento.
-Como excepción a lo anterior se dispone lo siguiente. Las audiencias y los juicios penales podrán realizarse en aquellos Despachos judiciales, si en esa oficina es posible aplicar el protocolo 102-2020, que posibilita realizar audiencias y juicios por el sistema de videoconferencia de circuito cerrado de televisión o por Microsoft Teams, siempre que las partes o los intervinientes se puedan conectar desde otro edificio del Poder Judicial, para hacer el enlace virtual y evitar los riesgos de contagio.
-2.3 Flagrancia.
-Asuntos que deberán atender en atención de la emergencia sanitaria nacional provocada por la enfermedad del COVID-19, cuando exista algunos de los intervinientes del juicio que proceda de las zonas de alerta naranja, o el edificio en que deba realizarse la audiencia o juicio esté en alguna de las zonas de alerta naranja:
-· Audiencias iniciales.
-· Rebeldías.
-· Continuaciones de audiencias iniciales.
-· Juicios de personas privadas de libertad.
-· Sentencias escritas (sobreseimientos, abreviados).
-Como excepción a lo anterior se dispone lo siguiente. Las audiencias y los juicios penales podrán realizarse en aquellos Despachos judiciales, si en esa oficina es posible aplicar el protocolo 102-2020, que posibilita realizar audiencias y juicios por el sistema de videoconferencia de circuito cerrado de televisión o por Microsoft Teams, siempre que las partes o los intervinientes se puedan conectar desde otro edificio del Poder Judicial, para hacer el enlace virtual y evitar los riesgos de contagio.
-2.4 Juzgados Contravenciones.
-Los asuntos que deberán atender estos Despachos en atención de la emergencia sanitaria nacional provocada por la enfermedad del COVID-19, cuando exista algunos de los intervinientes de la audiencia que proceda de las zonas de alerta naranja, o el edificio en que deba realizarse la audiencia esté en alguna de las zonas de alerta naranja, serán los servicios mínimos esenciales, con la presencia de al menos un Juez y una técnica judicial, en el entendido de que atenderán todas las diligencias urgentes impostergables.
-Como excepción a lo anterior se dispone lo siguiente. Las audiencias y los juicios penales podrán realizarse en aquellos Despachos judiciales, si en esa oficina es posible aplicar el protocolo 102-2020, que posibilita realizar audiencias y juicios por el sistema de videoconferencia de circuito cerrado de televisión o por Microsoft Teams, siempre que las partes o los intervinientes se puedan conectar desde otro edificio del Poder Judicial, para hacer el enlace virtual y evitar los riesgos de contagio.
-2.5 Juzgados de Ejecución de la Pena.
-Los Asuntos que deberán atender en atención de la emergencia sanitaria nacional provocada por la enfermedad del COVID-19, cuando exista algunos de los intervinientes de la audiencia que proceda de las zonas de alerta naranja, o el edificio en que deba realizarse la audiencia esté en alguna de las zonas de alerta naranja serán los servicios mínimos esenciales, incluidos los casos de personas privadas de libertad, para lo cual la oficina deberá tener la presencia de al menos un Juez y una técnica judicial, en el entendido de que atenderán todas las diligencias urgentes impostergables.
-Como excepción a lo anterior se dispone lo siguiente. Las audiencias y los juicios penales podrán realizarse en aquellos Despachos judiciales, si en esa oficina es posible aplicar el protocolo 102-2020, que posibilita realizar audiencias y juicios por el sistema de videoconferencia de circuito cerrado de televisión o por Microsoft Teams, siempre que las partes o los intervinientes se puedan conectar desde otro edificio del Poder Judicial, para hacer el enlace virtual y evitar los riesgos de contagio.
+2.1. Juzgados Penales. Asuntos que deberán atender en atención de la emergencia sanitaria nacional provocada por la enfermedad del COVID-19, cuando exista algunos de los intervinientes del juicio que proceda de las zonas de alerta naranja, o el edificio en que deba realizarse la audiencia esté en alguna de las zonas de alerta naranja:
+a. Levantamiento de cuerpos.
+b. Allanamientos.
+c. Reos presos.
+d. Imposición, prórroga o modificación de medidas cautelares incluyendo la prisión preventiva.
+e. Inspecciones.
+f. Intervenciones telefónicas.
+g. Actos preliminares del procedimiento en asuntos que se inicien en ese período.
+h. Audiencias preliminares con imputados en libertad, en forma presencial o por medio de videoconferencia, respetando las medidas sanitarias de distanciamiento de 1.8 metros y otras que dicte o haya dictado el Ministerio de Salud y las aprobadas por el Poder Judicial en el marco de la pandemia provocada por el COVID-19 para prevenir su contagio.
+i. Audiencias preliminares con personas privadas de libertad por medio de video conferencia o en forma presencial, respetando las medidas sanitarias de distanciamiento de 1.8 metros y otras que dicte o haya dictado el Ministerio de Salud y las aprobadas por el Poder Judicial en el marco de la pandemia provocada por el COVID-19 para prevenir su contagio.
+j. Solicitud de rebeldía.
+k. Todo tipo de resoluciones escritas u orales (desestimaciones, sobreseimientos, apelaciones, incompetencias, entre otras).
+l. Anticipos jurisdiccionales de prueba.
+m. Apertura de evidencia.
+n. Levantamiento de secreto bancario.
+o. Anotación registral.
+p. Secuestro de expediente clínico.
+q. Entrega provisional de vehículo.
+r. Cualquier otro asunto que sea puesto en su conocimiento.
+Las audiencias penales por video conferencia a través de la aplicación Microsoft Teams o por circuito cerrado de televisión, podrán realizarse cuando en la sede judicial no sea posible implementar las disposiciones sanitarias dictadas por el Ministerio de Salud y las aprobadas por el Poder Judicial (distanciamiento de 1.8 metros, entre otras). En esos casos los despachos judiciales podrán realizar las videoconferencias siempre que sea posible aplicar el protocolo de la Circular N° 102-2020, para evitar los riesgos de contagio y siempre que los imputados y los intervinientes puedan conectarse desde el mismo edificio del Poder Judicial donde se realiza la audiencia, desde otro edificio del Poder Judicial, o desde las instalaciones del Ministerio de Justicia si están privados de libertad y no es posible que se trasladen a la sede judicial. De todo lo anterior deberá dejarse la constancia respectiva por parte del despacho actuante. En todos los casos deberán tomar en cuenta las disposiciones existentes en el “Considerando” de esta circular, en cuanto al fraccionamiento de las jornadas.
+(Así reformado el punto 2.1) anterior mediante sesión N° 102-20 del 22 de octubre de 2020, publicada en el Boletín Judicial N° 214 del 6 de noviembre del 2020 mediante circular N° 243-2020 del 26 de octubre del 2020)
+2.2. Tribunales Penales. Asuntos que deberán atender en atención de la emergencia sanitaria nacional provocada por la enfermedad del COVID-19, cuando exista algunos de los intervinientes del juicio que proceda de las zonas de alerta naranja, o el edificio en que deba realizarse el juicio esté en alguna de las zonas de alerta naranja:
+a. Medidas cautelares en los asuntos en etapa de juicio.
+b. Apelaciones.
+c. Extradiciones.
+d. Rebeldías.
+e. Sentencias escritas (sobreseimientos, abreviados, entre otros).
+f. Juicios presenciales con personas privadas de libertad, respetando las medidas sanitarias de distanciamiento de 1.8 metros y otras que dicte o haya dictado el Ministerio de Salud y las aprobadas por el Poder Judicial en el marco de la pandemia provocada por el COVID-19 para prevenir su contagio.
+g. Juicios de personas privadas de libertad a través de la utilización de la herramienta de la videoconferencia por circuito cerrado de televisión o de la aplicación Microsoft Teams.
+h. Juicios presenciales de personas en libertad respetando las medidas sanitarias de distanciamiento de 1.8 metros y otras que dicte o haya dictado el Ministerio de Salud y las aprobadas por el Poder Judicial en el marco de la pandemia provocada por el COVID-19 para prevenir su contagio.
+i. Audiencias de seguimiento de las medidas alternas.
+j. Cualquier otro asunto que sea puesto en su conocimiento.
+Las audiencias penales por video conferencia a través de la aplicación Microsoft Teams o por circuito cerrado de televisión, podrán realizarse cuando en la sede judicial no sea posible implementar las disposiciones sanitarias dictadas por el Ministerio de Salud y las aprobadas por el Poder Judicial (distanciamiento de 1.8 metros, entre otras). En esos casos los despachos judiciales podrán realizar las videoconferencias siempre que sea posible aplicar el protocolo de la Circular N° 102-2020, para evitar los riesgos de contagio y siempre que los imputados y los intervinientes puedan conectarse desde el mismo edificio del Poder Judicial donde se realiza la audiencia, desde otro edificio del Poder Judicial, o desde las instalaciones del Ministerio de Justicia si están privados de libertad y no es posible que se trasladen a la sede judicial. De todo lo anterior deberá dejarse la constancia respectiva por parte del despacho actuante. En todos los casos deberán tomar en cuenta las disposiciones existentes en el “Considerando” de esta circular, en cuanto al fraccionamiento de las jornadas.
+(Así reformado el punto 2.2) anterior mediante sesión N° 102-20 del 22 de octubre de 2020, publicada en el Boletín Judicial N° 214 del 6 de noviembre del 2020 mediante circular N° 243-2020 del 26 de octubre del 2020)
+2.3. Tribunal de Apelación de la Sentencia Penal. Asuntos que deberán atender en atención de la emergencia sanitaria nacional provocada por la enfermedad del COVID-19, cuando exista algunos de los intervinientes del juicio que proceda de las zonas de alerta naranja, o el edificio en que deba realizarse el juicio esté en alguna de las zonas de alerta naranja:
+a. Audiencia de prórroga de prisión preventiva, vistas, entre otros.
+b. Proyecto de resolución (terminado, circulado y votado).
+c. Revisión de expedientes/resoluciones/citas.
+d. Otros asuntos puestos en su conocimiento.
+Las audiencias penales por video conferencia a través de la aplicación Microsoft Teams o por circuito cerrado de televisión, podrán realizarse cuando en la sede judicial no sea posible implementar las disposiciones sanitarias dictadas por el Ministerio de Salud y las aprobadas por el Poder Judicial (distanciamiento de 1.8 metros, entre otras). En esos casos los despachos judiciales podrán realizar las videoconferencias siempre que sea posible aplicar el protocolo de la Circular N° 102-2020, para evitar los riesgos de contagio y siempre que los imputados y los intervinientes puedan conectarse desde el mismo edificio del Poder Judicial donde se realiza la audiencia, desde otro edificio del Poder Judicial, o desde las instalaciones del Ministerio de Justicia si están privados de libertad y no es posible que se trasladen a la sede judicial. De todo lo anterior deberá dejarse la constancia respectiva por parte del despacho actuante. En todos los casos deberán tomar en cuenta las disposiciones existentes en el “Considerando” de esta circular, en cuanto al fraccionamiento de las jornadas.
+(Así reformado el punto 2.3) anterior mediante sesión N° 102-20 del 22 de octubre de 2020, publicada en el Boletín Judicial N° 214 del 6 de noviembre del 2020 mediante circular N° 243-2020 del 26 de octubre del 2020)
+2.4. Flagrancia. Asuntos que deberán atender tanto el Tribunal como las Secciones de Flagrancia durante la emergencia sanitaria nacional provocada por la enfermedad del COVID-19, cuando algunos de los intervinientes del juicio que proceda de las zonas de alerta naranja, o el edificio en que deba realizarse la audiencia o juicio esté en alguna de las zonas de alerta naranja:
+a. Audiencias iniciales.
+b. Rebeldías.
+c. Continuaciones de audiencias iniciales.
+d. Juicios presenciales con personas en libertad, siempre que en las salas destinadas para ello puedan implementarse las medidas sanitarias de distanciamiento de 1.8 metros y las otras que dicte o haya dictado el Poder Judicial en el marco de la pandemia provocada por el COVID-19 para prevenir su contagio.
+e. Juicios de personas privadas de libertad a través de la utilización de la herramienta de la videoconferencia por circuito cerrado de televisión o de la aplicación Microsoft Teams. En estos casos deberá respetarse lo dispuesto en la Circular N° 102-2020 para la realización de este tipo de audiencias.
+f. Sentencias escritas (sobreseimientos, abreviados).
+g. Cualquier otro asunto que sea puesto en su conocimiento, garantizando siempre la aplicación de las medidas sanitarias establecidas por el Poder Judicial.
+h. Audiencias de verificación de cumplimiento.
+Las audiencias penales por video conferencia a través de la aplicación Microsoft Teams o por circuito cerrado de televisión, podrán realizarse cuando en la sede judicial no sea posible implementar las disposiciones sanitarias dictadas por el Ministerio de Salud y las aprobadas por el Poder Judicial (distanciamiento de 1.8 metros, entre otras). En esos casos los despachos judiciales podrán realizar las videoconferencias siempre que sea posible aplicar el protocolo de la Circular N° 102-2020, para evitar los riesgos de contagio y siempre que los imputados y los intervinientes puedan conectarse desde el mismo edificio del Poder Judicial donde se realiza la audiencia, desde otro edificio del Poder Judicial, o desde las instalaciones del Ministerio de Justicia si están privados de libertad y no es posible que se trasladen a la sede judicial. De todo lo anterior deberá dejarse la constancia respectiva por parte del despacho actuante. En todos los casos deberán tomar en cuenta las disposiciones existentes en el “Considerando” de esta circular, en cuanto al fraccionamiento de las jornadas.
+Los jueces y juezas de las secciones de flagrancia de los Tribunales deberán colaborar con las secciones ordinarias, conforme a los planes que diseñen las personas coordinadoras de cada Despacho.
+(Así reformado el punto 2.4) anterior mediante sesión N° 102-20 del 22 de octubre de 2020, publicada en el Boletín Judicial N° 214 del 6 de noviembre del 2020 mediante circular N° 243-2020 del 26 de octubre del 2020)
+2.5. Juzgados Contravenciones. Los Juzgados Contravencionales del país deberán trabajar de manera presencial, salvo en aquellos despachos en que no sea posible respetar los lineamientos sanitarios definidos por el Ministerio de Salud y aprobados por el Poder Judicial, como, por ejemplo, el distanciamiento de 1.8 metros entre otros, en estos casos podrán laborar en la jornada de 06:00 a. m. a 12:00 m. d. y de 12:00 m. d. a 06:00 p. m. (conforme a lo dispuesto en la Circular N° 167- 2020), salvo las personas juzgadoras que laborarán en la jornada ordinaria, que al tener oficinas asignadas para su trabajo pueden respetar las medidas sanitarias de distanciamiento.
+La prestación de servicios deberá hacerse respetando las medidas sanitarias de distanciamiento de 1.8 metros y otras que dicte o haya dictado el Ministerio de Salud y las aprobadas por el Poder Judicial en el marco de la pandemia provocada por el COVID-19 para prevenir su contagio.
+Las audiencias penales por video conferencia a través de la aplicación Microsoft Teams o por circuito cerrado de televisión, podrán realizarse cuando en la sede judicial no sea posible implementar las disposiciones sanitarias dictadas por el Ministerio de Salud y las aprobadas por el Poder Judicial (distanciamiento de 1.8 metros, entre otras). En esos casos los despachos judiciales podrán realizar las videoconferencias siempre que sea posible aplicar el protocolo de la Circular N° 102-2020, para evitar los riesgos de contagio y siempre que los imputados y los intervinientes puedan conectarse desde el mismo edificio del Poder Judicial donde se realiza la audiencia, desde otro edificio del Poder Judicial, o desde las instalaciones del Ministerio de Justicia si están privados de libertad y no es posible que se trasladen a la sede judicial. De todo lo anterior deberá dejarse la constancia respectiva por parte del despacho actuante. En todos los casos deberán tomar en cuenta las disposiciones existentes en el “Considerando” de esta circular, en cuanto al fraccionamiento de las jornadas.
+(Así reformado el punto 2.5) anterior mediante sesión N° 102-20 del 22 de octubre de 2020, publicada en el Boletín Judicial N° 214 del 6 de noviembre del 2020 mediante circular N° 243-2020 del 26 de octubre del 2020)
+2.6. Juzgados de Ejecución de la Pena. Los Juzgados de Ejecución de la Pena del país deberán trabajar de manera presencial, salvo en aquellos despachos en que no sea posible respetar los lineamientos sanitarios definidos por el Ministerio de Salud y aprobados por el Poder Judicial, como, por ejemplo, el distanciamiento de 1.8 metros entre otros.
+La prestación de servicios deberá hacerse respetando las medidas sanitarias de distanciamiento de 1.8 metros y otras que dicte o haya dictado el Ministerio de Salud y las aprobadas por el Poder Judicial en el marco de la pandemia provocada por el COVID-19 para prevenir su contagio.
+Las audiencias penales por video conferencia a través de la aplicación Microsoft Teams o por circuito cerrado de televisión, podrán realizarse cuando en la sede judicial no sea posible implementar las disposiciones sanitarias dictadas por el Ministerio de Salud y las aprobadas por el Poder Judicial (distanciamiento de 1.8 metros, entre otras). En esos casos los despachos judiciales podrán realizar las videoconferencias siempre que sea posible aplicar el protocolo de la Circular N° 102-2020, para evitar los riesgos de contagio y siempre que los imputados y los intervinientes puedan conectarse desde el mismo edificio del Poder Judicial donde se realiza la audiencia, desde otro edificio del Poder Judicial, o desde las instalaciones del Ministerio de Justicia si están privados de libertad y no es posible que se trasladen a la sede judicial. De todo lo anterior deberá dejarse la constancia respectiva por parte del despacho actuante. En todos los casos deberán tomar en cuenta las disposiciones existentes en el “Considerando” de esta circular, en cuanto al fraccionamiento de las jornadas.
+(Así adicionado el punto 2.6) anterior mediante sesión N° 102-20 del 22 de octubre de 2020, publicada en el Boletín Judicial N° 214 del 6 de noviembre del 2020 mediante circular N° 243-2020 del 26 de octubre del 2020)
+2.7. Juzgados Penales Juveniles. Asuntos que deberán atender el Juzgado Penal Juvenil durante la emergencia sanitaria nacional provocada por la enfermedad del COVID-19, cuando algunos de los intervinientes del juicio que proceda de las zonas de alerta naranja, o el edificio en que deba realizarse la audiencia o juicio esté en alguna de las zonas de alerta naranja:
+a. Levantamiento de cuerpos.
+b. Allanamientos.
+c. Personas Privadas de libertad/Capturas.
+d. Medidas Cautelares /Prórrogas/Modificaciones.
+e. Revisión y firma de expedientes.
+f. Inspecciones.
+g. Intervenciones telefónicas.
+h. Diligencias de investigación bajo tutela jurisdiccional.
+i. Desestimaciones.
+j. Actividades procesales Defectuosas.
+k. Sobreseimientos.
+l. Revocatorias.
+m. Apelaciones.
+n. Rebeldías/Ausentes.
+ñ. Juicios y Vistas Orales.
+o. Sentencias.
+p. Medidas Alternas/Audiencias temprana/Seguimiento Medidas Alternas.
+q. Apelaciones Resueltas.
+r. Otro Asunto de atención.
+La prestación de servicios deberá hacerse respetando las medidas sanitarias de distanciamiento de 1.8 metros y otras que dicte o haya dictado el Ministerio de Salud y las aprobadas por el Poder Judicial en el marco de la pandemia provocada por el COVID-19 para prevenir su contagio.
+Las audiencias penales por video conferencia a través de la aplicación Microsoft Teams o por circuito cerrado de televisión, podrán realizarse cuando en la sede judicial no sea posible implementar las disposiciones sanitarias dictadas por el Ministerio de Salud y las aprobadas por el Poder Judicial (distanciamiento de 1.8 metros, entre otras). En esos casos los despachos judiciales podrán realizar las videoconferencias siempre que sea posible aplicar el protocolo de la Circular N° 102-2020, para evitar los riesgos de contagio y siempre que los imputados y los intervinientes puedan conectarse desde el mismo edificio del Poder Judicial donde se realiza la audiencia, desde otro edificio del Poder Judicial, o desde las instalaciones del Ministerio de Justicia si están privados de libertad y no es posible que se trasladen a la sede judicial. De todo lo anterior deberá dejarse la constancia respectiva por parte del despacho actuante. En todos los casos deberán tomar en cuenta las disposiciones existentes en el “Considerando” de esta circular, en cuanto al fraccionamiento de las jornadas.
+(Así adicionado el punto 2.7) anterior mediante sesión N° 102-20 del 22 de octubre de 2020, publicada en el Boletín Judicial N° 214 del 6 de noviembre del 2020 mediante circular N° 243-2020 del 26 de octubre del 2020)
+2.8. Juzgado de Ejecución de la Sentencia Penal Juvenil. Asuntos que deberán atender el Juzgado de Ejecución de la Sentencia Penal Juvenil durante la emergencia sanitaria nacional provocada por la enfermedad del COVID-19, cuando algunos de los intervinientes del juicio que proceda de las zonas de alerta naranja, o el edificio en que deba realizarse la audiencia o juicio esté en alguna de las zonas de alerta naranja:
+a. Audiencia.
+b. Auto sentencias.
+c. Firma resolución.
+d. Revisión de expedientes /resoluciones/votos/citas.
+e. Reuniones.
+f. Otros asuntos puestos en su conocimiento.
+g. Situaciones críticas presentadas.
+La prestación de servicios deberá hacerse respetando las medidas sanitarias de distanciamiento de 1.8 metros y otras que dicte o haya dictado el Ministerio de Salud y las aprobadas por el Poder Judicial en el marco de la pandemia provocada por el COVID-19 para prevenir su contagio.
+Las audiencias penales por video conferencia a través de la aplicación Microsoft Teams o por circuito cerrado de televisión, podrán realizarse cuando en la sede judicial no sea posible implementar las disposiciones sanitarias dictadas por el Ministerio de Salud y las aprobadas por el Poder Judicial (distanciamiento de 1.8 metros, entre otras). En esos casos los despachos judiciales podrán realizar las videoconferencias siempre que sea posible aplicar el protocolo de la Circular N° 102-2020, para evitar los riesgos de contagio y siempre que los imputados y los intervinientes puedan conectarse desde el mismo edificio del Poder Judicial donde se realiza la audiencia, desde otro edificio del Poder Judicial, o desde las instalaciones del Ministerio de Justicia si están privados de libertad y no es posible que se trasladen a la sede judicial. De todo lo anterior deberá dejarse la constancia respectiva por parte del despacho actuante. En todos los casos deberán tomar en cuenta las disposiciones existentes en el “Considerando” de esta circular, en cuanto al fraccionamiento de las jornadas.
+(Así adicionado el punto anterior mediante sesión N° 102-20 del 22 de octubre de 2020, publicada en el Boletín Judicial N° 214 del 6 de noviembre del 2020 mediante circular N° 243-2020 del 26 de octubre del 2020)
+2.9. Tribunal de Apelación de la Sentencia Penal Juvenil. Asuntos que deberán atender el Tribunal de Apelación de la Sentencia Penal Juvenil durante la emergencia sanitaria nacional provocada por la enfermedad del COVID-19, cuando algunos de los intervinientes del juicio que proceda de las zonas de alerta naranja, o el edificio en que deba realizarse la audiencia o juicio esté en alguna de las zonas de alerta naranja:
+a. Audiencia detención provisional.
+b. Proyecto de resolución.
+c. Revisión de expedientes/resoluciones/citas.
+d. Situaciones críticas presentadas.
+e. Otros asuntos puestos en su conocimiento.
+La prestación de servicios deberá hacerse respetando las medidas sanitarias de distanciamiento de 1.8 metros y otras que dicte o haya dictado el Ministerio de Salud y las aprobadas por el Poder Judicial en el marco de la pandemia provocada por el COVID-19 para prevenir su contagio.
+Las audiencias penales por video conferencia a través de la aplicación Microsoft Teams o por circuito cerrado de televisión, podrán realizarse cuando en la sede judicial no sea posible implementar las disposiciones sanitarias dictadas por el Ministerio de Salud y las aprobadas por el Poder Judicial (distanciamiento de 1.8 metros, entre otras). En esos casos los despachos judiciales podrán realizar las videoconferencias siempre que sea posible aplicar el protocolo de la Circular N° 102-2020, para evitar los riesgos de contagio y siempre que los imputados y los intervinientes puedan conectarse desde el mismo edificio del Poder Judicial donde se realiza la audiencia, desde otro edificio del Poder Judicial, o desde las instalaciones del Ministerio de Justicia si están privados de libertad y no es posible que se trasladen a la sede judicial. De todo lo anterior deberá dejarse la constancia respectiva por parte del despacho actuante. En todos los casos deberán tomar en cuenta las disposiciones existentes en el “Considerando” de esta circular, en cuanto al fraccionamiento de las jornadas.
+(Así adicionado el punto 2.8) anterior mediante sesión N° 102-20 del 22 de octubre de 2020, publicada en el Boletín Judicial N° 214 del 6 de noviembre del 2020 mediante circular N° 243-2020 del 26 de octubre del 2020)
 San José, 10 de junio de 2020.

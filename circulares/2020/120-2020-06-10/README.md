@@ -14,3 +14,4 @@ Disposiciones a seguir por los despachos judiciales de materia penal ubicados en
 | --- | --- | --- |
 | 1 | 2020-06-10 | la propia norma |
 | 2 | 2020-07-20 | Circular 153 (2020-07-20) |
+| 3 | 2020-10-26 | Circular 243 (2020-10-26) |
