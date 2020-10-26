@@ -20,4 +20,5 @@ OTORGAMIENTO DE LICENCIAS DE PESCA PARA EMBARCACIONES DE
 BANDERA EXTRANJERA
 CON RED DE CERCO PARA CAPTURA DE ATÚN ALETA AMARILLA EN LA
 ZONA ECONÓMICA EXCLUSIVA DEL OCÉNO PACÍFICO COSTARRICENSE
-Artículo 1º.- Del Límite máximo de captura. El INCOPESCA otorgará para el año 2020, licencias de pesca a embarcaciones atuneras con red de cerco de bandera extranjera, hasta completar un total de 8586 toneladas métricas de atún congelado en salmuera, las cuales deberán verificarse según descargas realizadas en puerto para abastecimiento de la industria procesadora nacional.
+Artículo 1º—Del Límite máximo de captura. El INCOPESCA otorgará para el año 2020, licencias de pesca a embarcaciones atuneras con red de cerco de bandera extranjera, hasta completar un total de 9686 toneladas métricas de atún congelado en salmuera, las cuales deberán verificarse según descargas realizadas en puerto para abastecimiento de la industria procesadora nacional.
+(Así reformado mediante acuerdo N° AJDIP/261-2020 del 26 de octubre de 2020)

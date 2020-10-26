@@ -14,3 +14,4 @@ Límite máximo de captura y procedimiento para el otorgamiento de licencias de 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-01-31 | la propia norma |
+| 2 | 2020-10-26 | Acuerdo 261 (2020-10-26) |
