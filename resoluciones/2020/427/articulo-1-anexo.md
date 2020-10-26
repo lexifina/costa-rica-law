@@ -1,4 +1,5 @@
 ANEXO No.1
+(Nota de Sinalevi: Mediante resolución N° RES-DGA-482-2020 del 26 octubre del 2020, se aclara que el presente anexo es un modelo a considerar por parte de las Aduanas de Control, debido a que el mismo dependerá de cada caso en particular, como por ejemplo de la cantidad de declaraciones aduaneras para los cuales se tramite el arreglo de pago, siendo que las cláusulas PRIMERA y CUARTA, podrán ser variadas dependiendo del Arreglo de Pago, y las fechas de pago que establezca la Aduana de Control.)
 SUSCRIPCIÓN DE ARREGLO DE PAGO
 Decreto Ejecutivo N°42271-H del 27 de marzo de 2020
 En este acto, la persona XXXX, portadora de la cédula de identidad número XXXX, en su condición de XXX con facultades de apoderado generalísimo, según el artículo 1253 del Código Civil, de la empresa XXXX con domicilio en XXXX, conforme la certificación: RNPDIGITAL-XXXX del (día) de (mes) de 2020 y xxxx en calidad de (GERENTE DE ADUANA DE CONTROL), de ahora en adelante y para efectos de este Acuerdo “ADUANA XXXX”, con las facultades suficientes para este acto, hemos convenido en suscribir el presente ARREGLO DE PAGO, el cual se rige por las siguientes cláusulas:

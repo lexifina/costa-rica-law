@@ -14,3 +14,4 @@ Monto total por concepto de las obligaciones tributarias aduaneras no cobradas a
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-09-21 | la propia norma |
+| 2 | 2020-10-26 | Resolución 482 (2020-10-26) |
