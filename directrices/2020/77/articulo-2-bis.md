@@ -1,4 +1,2 @@
-Artículo 2° bis.- Instituciones ubicadas en sitios bajo alerta naranja.
-Las instituciones públicas de la Administración Pública Centralizada que se ubiquen en zonas del territorio nacional que se encuentren bajo alerta naranja y cuya naturaleza de sus funciones así se lo permita, deberán reducir al mínimo indispensable la presencia de personas funcionarias públicas en sus instalaciones físicas, para lo cual dichas instituciones deberán maximizar las acciones contempladas en el artículo 3° de la presente Directriz. Se excluye de esta medida, el personal necesario para atender la emergencia provocada por el COVID-19.
-Se insta a la Administración Pública Descentralizada a la aplicación de la presente disposición.
+Artículo 2° bis.- Instituciones ubicadas en sitios bajo alerta naranja. (Derogado por el artículo 2° de la directriz N° 098 del 26 de octubre del 2020)
 (Así adicionado por el artículo 1° de la directriz N° 092-S-MTSS-MIDEPLAN del 12 de julio del 2020)

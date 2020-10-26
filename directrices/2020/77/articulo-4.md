@@ -1,5 +1,2 @@
-Artículo 4.- Del 06 al 08 de abril de 2020, se deberá suspender todo servicio de atención al público y las instituciones estatales deberán funcionar, según lo establecido en el artículo 1 de la presente directriz, exclusivamente mediante la modalidad de teletrabajo. El resto de servidores cuyos puestos no sean teletrabajables, deberá aplicárseles lo dispuesto en los incisos b) y c) del artículo 3 de la presente directriz. De conformidad con lo establecido en el artículo 148 del Código de Trabajo, se otorgarán como días feriados el 09 y 10 de abril del 2020, correspondientes al Jueves y Viernes Santos.
-Quedan excluidos de la presente disposición los servicios que prestan aquellas instituciones necesarias para la atención de la emergencia nacional por COVID- 19.
-El Ministerio de Educación Pública dispondrá las medidas correspondientes mediante resolución interna respecto a la Semana Santa.
-Se insta al Poder Judicial, Poder Legislativo, Tribunal Supremo de Elecciones, municipalidades y universidades públicas, a la aplicación de las medidas de prevención contempladas en este artículo.
+Artículo 4.- (Derogado por el artículo 2° de la directriz N° 098 del 26 de octubre del 2020)
 (Así adicionado por el artículo 1° de la directriz N° 78 del 2 de abril del 2020)

@@ -22,4 +22,5 @@ Por tanto, emiten la siguiente directriz
 DIRIGIDA A LA ADMINISTRACIÓN PÚBLICA CENTRAL Y DESCENTRALIZADA
 “SOBRE EL FUNCIONAMIENTO DE LAS INSTITUCIONES ESTATALES DURANTE LA
 DECLARATORIA DE EMERGENCIA NACIONAL POR COVID-19”
-Artículo 1°.- Se instruye a la Administración Central y se insta a la Administración Descentralizada, a establecer un plan de servicio básico de funcionamiento, de manera que se garantice la continuidad de aquellas tareas estrictamente necesarias para asegurar el fin público institucional. Para dichos efectos, las instituciones podrán requerir la asistencia máxima del 20% del total de su planilla.
+Artículo 1°. - Se instruye a la Administración Central y se insta a la Administración Descentralizada, a establecer de manera inmediata un plan de retorno de aquellas oficinas que brindan atención al público de manera presencial, en el que se garantice la continuidad de aquellas tareas necesarias para asegurar el fin público institucional, así como el cumplimiento estricto de los protocolos sanitarios del Ministerio de Salud para la atención de la emergencia nacional por COVID-19.
+(Así reformado por el artículo 1° de la directriz N° 098 del 26 de octubre del 2020)
