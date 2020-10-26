@@ -1,0 +1,2 @@
+ARTÍCULO 2°.-Refórmese el artículo 6° del Decreto Ejecutivo número 42513-MGP-S del 31 de julio de 2020, para que en adelante se lea lo siguiente:
+“ARTÍCULO 6°.-Para el cumplimiento de las condiciones b) y d) del artículo 4 del presente Decreto Ejecutivo, el Ministerio de Salud coordinará las acciones pertinentes a efectos de generar y asegurar el acceso al formulario denominado Pase de Salud, con el objetivo de contar con el registro previo de la persona extranjera para su trazabilidad.”
