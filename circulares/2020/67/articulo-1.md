@@ -14,6 +14,7 @@ b) Jornada laboral:
 b.1) Trabajo presencial hay 2 opciones:
 b.1.1 Horario ordinario.
 b.1.2 Jornada de seis horas partida de 6:00 a. m.-12:00 m.d. y de 12:00 m.d.-6:00 p.m.
+(Nota de Sinalevi: Mediante circular N° 242 del 26 de octubre del 2020, y publicada en el Boletín Judicial N° 210 del 2 de noviembre del 2020, se aclaró el punto b.1.2) anterior en el sentido de que no aplica para personas juzgadoras de la materia penal, ni en los juzgados penales, ni en los juzgados de ejecución de la pena, ni en los juzgados contravencionales, ni en los tribunales de juicio, ni en los tribunales ni las secciones de flagrancia, ni en los tribunales de apelación de la sentencia penal, ni en la Sala de Casación Penal, ni en los Juzgados Penales Juveniles, Tribunal de Apelación de Sentencia Penal Juvenil y el Juzgado de Ejecución de Sentencia de Penal Juvenil. La persona juzgadora que coordine el despacho judicial solo puede disponer que laboren en la jornada de seis horas el personal subalterno.)
 c) Teletrabajo se realizará en jornada ordinaria y por cuotas pre-establecidas.
 Por tanto,
 Este Consejo Superior en sesión extraordinaria virtual celebrada el 8 de abril de 2020, artículo II, dispuso aprobar los siguientes lineamientos:
