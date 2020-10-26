@@ -1,3 +1,0 @@
-Articulo 3°—Los archivos deberán contar con las medidas de seguridad e infraestructura adecuadas (local, estantería, materiales, mobiliario, equipo técnico y contra incendios) que permita una buena conservación de los documentos.
-Cada uno de estos archivos deberá contar a! menos con tres áreas definidas: administrativa. de consulta y de depósito.
-Los encargados de los archivos deben cumplir y velar porque se ejecuten en sus respectivas oficinas las medidas de conservación y preservación documental que indicad articulo 71 del Reglamento a la Ley del Sistema Nacional de Archivos, así como también porque se hagan efectivas en sus respectivas oficinas las normas emanadas del Archivo Central y del Comité Institución al de Selección y Eliminación de Documentos.

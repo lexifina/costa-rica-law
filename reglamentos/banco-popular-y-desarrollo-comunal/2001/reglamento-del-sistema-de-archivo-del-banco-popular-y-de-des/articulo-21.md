@@ -1,3 +1,0 @@
-SECCIÓN III
-Los archivos de gestión centralizados
-Articulo 21. —Los archivos de gestión centralizados son los archivos de las diferentes áreas del Banco que, por su similitud de actividades y funciones, podrán disponer de un archivo de gestión único que brinde servicio a las diferentes unidades administrativas que le conforman; estos archivos serán los encargados, entre otras funciones, de reunir, conservar, clasificar, ordenar, describir, seleccionar. administrar y facilitar la documentación producida y recibida por las unidades que le integren en concordancia con la Ley N ° 7202 y su Reglamento.

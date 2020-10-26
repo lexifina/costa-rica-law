@@ -1,1 +1,0 @@
-Articulo 23.—El responsable del archivo de gestión centralizado era un profesional en archivística, a quien le corresponderá administrar las funciones archivísticas de su unidad y de todas las unidades administrativas que le componen, servir de enlace con el Archivo Central el Comité Institucional de Selección y Eliminación de Documentos.

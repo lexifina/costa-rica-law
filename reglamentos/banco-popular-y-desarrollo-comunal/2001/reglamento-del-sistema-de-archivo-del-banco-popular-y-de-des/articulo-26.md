@@ -1,1 +1,0 @@
-Artículo 26. El responsable del archivo regional será un profesional en Archivística, a quien le corresponderá administrar las funciones archivísticas de su unidad y de todas las unidades administrativas que lo componen, así corno servir de enlace con el Archivo Central y el Comité Institucional de Selección y Eliminación de Documentos.

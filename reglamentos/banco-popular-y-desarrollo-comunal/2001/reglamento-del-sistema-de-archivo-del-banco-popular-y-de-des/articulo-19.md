@@ -1,3 +1,0 @@
-SECCIÓN II
-Los archivos de gestión
-Articulo 19. —Los archivos de gestión son los archivos de las diferentes unidades administrativas, encargados de reunir, conservar, clasificar, ordenar, describir, seleccionar, administrar y facilitar la documentación producida y recibida por la unidad a la que pertenecen en concordancia con la Lev N' ' 7202 y su Reglamento. Cada jefatura deberá nombrar un encargado del archivo o de los archivos de gestión de sus respectivas áreas. Este será el responsable de organizar los documentos de su dependencia de acuerdo con las instrucciones recibidas del Archivo Central.

@@ -1,1 +1,0 @@
-Artículo 31.—En los archivos de gestión centralizados y los archivos regionales se conformarán Subcomités de Selección y Eliminación de Documentos. que estarán integrados por los responsables de las unidades administrativas, el encargado del archivo, quien los presidirá, y un Asesor Jurídico o el representante de la Consultoría Jurídica.

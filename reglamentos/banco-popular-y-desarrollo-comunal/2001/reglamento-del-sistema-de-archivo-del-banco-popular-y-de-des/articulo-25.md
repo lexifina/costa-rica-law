@@ -1,3 +1,0 @@
-SECCIÓN IV
-Los archivos regionales
-Articulo 25. -Los archivos regionales son los archivos de las diferentes regiones administrativas del Banco, que por su similitud de actividades y funciones, así como por su cercanía geográfica, podrán disponer de un archivo regional único que brinde servicio a las diferentes unidades administrativas que los componen; estos archivos serán los encargados, entre otras funciones, de reunir, conservar, clasificar, ordenar, describir, seleccionar, administrar v facilitar I a documentación producida y recibida por las unidades que le componen en concordancia con la Ley N ° 7202 y su Reglamento.

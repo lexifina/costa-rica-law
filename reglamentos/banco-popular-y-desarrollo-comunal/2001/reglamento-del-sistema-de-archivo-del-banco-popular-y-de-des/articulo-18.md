@@ -1,5 +1,0 @@
-Artículo 18. —La documentación se microfilmara, digitalizará o bien se le aplicara cualquier otro proceso tecnológico presente o futuro, que garantice su generación. almacenamiento o disposición final al menos por alguna de las siguientes razones:
-a) Seguridad: se aplicara básicamente a aquellos documentos de valor permanente y los sometidos a posibles deterioros por la calidad del papel, de la tinta, del uso continuo, humedad o para prevenir la destrucción del documento por cualquier otra circunstancia.
-b) Complemento: para complementar los fondos cuando los documentos originales relacionados con esos mismos se encuentren en otros lugares.
-c) Referencia: para agilizar los trámites administrativos y de investigación de las dependencias y de los archivos.
-d) Sustitución: se realizará con la Finalidad de ahorrar espacio, sustituyendo el documento original por la micropelícula, cuando esto sea posible y legal de acuerdo con lo que dispone eI articulo 3° de la Ley N ° 4273 sobre microfilmación de documentos.
