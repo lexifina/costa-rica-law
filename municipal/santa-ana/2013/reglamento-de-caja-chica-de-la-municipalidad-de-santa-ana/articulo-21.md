@@ -1,1 +1,0 @@
-Artículo 21.—Comprobantes de naturaleza interna. Cuando las circunstancias o tipo de gasto no permitan respaldar el mismo con una factura comercial, tiquete de caja o comprobante externo, el Director o Directora al que pertenezca el funcionario solicitante del vale, podrá redactar un oficio por medio del cual justifique el gasto.

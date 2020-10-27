@@ -1,1 +1,0 @@
-Artículo 19.—Liquidaciones pendientes. Al funcionario que tenga pendiente una liquidación, no se le podrá girar otro vale hasta que presente la liquidación del anterior. Cuando la compra no se lleve a cabo, se deberá hacer el reintegro inmediato del monto total del vale.

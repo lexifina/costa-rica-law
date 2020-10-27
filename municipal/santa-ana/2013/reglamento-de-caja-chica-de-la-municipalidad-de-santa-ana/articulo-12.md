@@ -1,1 +1,0 @@
-Artículo 12.—Contenido presupuestario. Antes de hacer efectivo un vale, el Asistente de Egresos debe verificar que existe contenido presupuestario en la cuenta correspondiente al bien o servicio que se quiere adquirir.
