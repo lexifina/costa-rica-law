@@ -1,6 +1,7 @@
 BANCO DE COSTA RICA
+Reglamento para los puestos bajo el régimen de confianza
 Propósito. Definir aquellos puestos que por sus funciones y designación del ocupante, se clasifican bajo el régimen de puestos de confianza, que permita mayor libertad en el nombramiento y remoción de quienes ocupen tales puestos.
 Alcance. La aplicación de este reglamento será de acatamiento obligatorio para todo funcionario del Banco de Costa Rica que ocupe un puesto bajo régimen de confianza.
-CAPÍTULO I
-Artículo 1º—Definición. Son puestos bajo el régimen de confianza los ocupados por: Asesores o Consultores de la Junta Directiva General o de la Gerencia General. Dichos puestos estarán excluidos del escalafón de salarios del Banco.
-Las plazas de los puestos anteriores deberán estar debidamente identificadas como de confianza en el presupuesto anual del Banco, el cual debe ser aprobado por la Contraloría General de la República.
+(Nota de Sinalevi: El texto de esta norma fue reformado parcialmente y reproducido su texto en forma íntegra en sesión 43-2020 del 27 de octubre del 2020 y publicada en La Gaceta N° 269 del 10 de noviembre del 2020, por lo que se reproduce a continuación:)
+Artículo 1º—Sobre los puestos de confianza en el BCR. En el Banco de Costa Rica son puestos bajo el régimen de confianza los ocupados por asesores, asistentes o consultores de la Junta Directiva General o de la Gerencia General y cualquier otro cuya contratación se realice bajo las condiciones establecidas en el presente reglamento. Dichos puestos deben estar excluidos del escalafón de salarios del Banco.
+Las plazas de estos puestos deben estar debidamente identificadas como nombramiento de personas trabajadoras en el régimen de confianza, que se dispone en esta norma, identificándose así en el presupuesto anual del Banco, el cual debe ser aprobado por la Contraloría General de la República.

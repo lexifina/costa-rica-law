@@ -1,1 +1,1 @@
-Artículo 3º—Contrato. El funcionario que ocupe un puesto bajo el régimen de confianza deberá suscribir de previo al inicio de sus funciones, un contrato de trabajo en el que se establecerán las condiciones de su contratación.
+Artículo 3º—Contrato. La persona trabajadora que ocupe un puesto bajo el régimen de confianza debe suscribir de previo al inicio de sus funciones, un contrato de trabajo en el que se deben establecer las condiciones de su contratación.

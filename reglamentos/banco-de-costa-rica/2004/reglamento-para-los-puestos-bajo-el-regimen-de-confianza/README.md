@@ -14,3 +14,4 @@ Reglamento para los puestos bajo el régimen de confianza
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-05-06 | la propia norma |
+| 2 | 2020-10-27 | Reglamento 43 (2020-10-27) |
