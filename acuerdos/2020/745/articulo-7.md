@@ -1,0 +1,2 @@
+Artículo 7º—Caducidad.
+Los bonos de incentivos a otorgar pueden ser reclamados por los vendedores a partir del primer día hábil siguiente a la fecha de realización de cada sorteo y su vigencia es la siguiente: Para el incentivo 1° la vigencia será hasta el 13 de diciembre del 2020 y para el 2° incentivo la vigencia será hasta el 31 de diciembre del 2020. Ambos incentivos especificados en el Artículo 4 de este Procedimiento.

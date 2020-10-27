@@ -1,0 +1,10 @@
+Artículo 3º—Condiciones de participación.
+Participan los vendedores autorizados de la Junta (adjudicatarios, socios de cooperativa, vendedores por contrato, socios comerciales) que retiren y comercialicen el sorteo Extraordinario de Lotería Nacional “Gordo Navideño”.
+Para participar, el vendedor deberá cumplir con las siguientes condiciones:
+1. Incentivos por retiro del sorteo Extraordinario de Lotería Nacional “Gordo Navideño” N° 4625:
+a. Realizar retiros de lotería del sorteo Navideño N° 4625 de al menos 500 fracciones, equivalentes a 12 enteros y medio por semana. Es decir, por cada 500 fracciones retiradas semanalmente se realizará la asignación automática de una acción, hasta un máximo de 4 acciones por semana. Por ejemplo, si en una semana retira 1.000 fracciones se le asignarán 2 acciones automáticas, si retira 2.000 fracciones o más se le asignarán automáticamente el máximo de 4 acciones semanales. Qué en los últimos tres años: No haya presentado renuncia. No exista ninguna resolución judicial o administrativa en firme que establezca una condenatoria o sanción por: venta juegos ilegales, especulación o condicionamiento en la venta de loterías o por infracciones a la normativa vigente en materia de loterías o juegos de azar o de similar naturaleza que vayan en detrimento de las competencias de la Junta o de su imagen institucional. Que ostente una categorización AA y AAA en la venta de las loterías.
+d. Que tengan un retiro constante de los sorteos ordinarios a partir del 05 de octubre hasta el 03 de diciembre del 2020.
+2. Incentivo por Devolución menor al 5% del sorteo N° 4625.
+• Realizar una devolución menor al 5% en el sorteo Lotería Nacional “Gordo Navideño” N° 4625
+• Que en los últimos tres años: No haya presentado renuncia.
+No exista ninguna resolución judicial o administrativa en firme que establezca una condenatoria o sanción por: venta juegos ilegales, especulación o condicionamiento en la venta de loterías o por infracciones a la normativa vigente en materia de loterías o juegos de azar o de similar naturaleza que vayan en detrimento de las competencias de la Junta o de su imagen institucional.
