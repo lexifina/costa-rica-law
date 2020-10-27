@@ -21,3 +21,5 @@ o) Fiscalizar y garantizar que la municipalidad cumpla con una política de igua
 (Así adicionado el inciso anterior, por el aparte d) del artículo único de la Ley N° 8679 del 12 de noviembre del 2008)
 p)Impulsar una estrategia municipal para la gestión del desarrollo que promueva la igualdad y equidad de género tanto en el quehacer municipal como en el ámbito local, con la previsión de los recursos necesarios.
 (Así adicionado el inciso anterior, por el aparte d) del artículo único de la Ley N° 8679 del 12 de noviembre del 2008)
+q) Reunirse, como mínimo una vez cada seis meses, con los concejos de distrito, para planificar el trabajo semestral en relación con los proyectos, las proyecciones, la construcción de los objetivos y las metas para el debido progreso en cada distrito, a fin de que sean incluidos en el presupuesto anual de la municipalidad.
+(Así adicionado el inciso anterior por el artículo 1° de la ley N° 9860 del 8 de julio del 2020, “Para la efectiva interacción de los alcaldes y los concejos de distrito”)
