@@ -1,1 +1,0 @@
-Artículo 30.—Las vacaciones, permisos, licencias y excedencias se regularán por la legislación vigente en cada momento. Estos días habrán de solicitarse con un plazo mínimo de cuatro (4) días de antelación y se concederán siempre que el servicio no se halle en mínimo o se encuentre en una situación especial por riguroso orden de petición.

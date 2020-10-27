@@ -1,1 +1,0 @@
-Artículo 18.—Se entenderá que todos los miembros de la Policía Municipal que circulen por vía publica vestidos de uniforme, están en funciones de servicios y estarán por tanto, obligados a intervenir en todos aquellos sucesos que reclamen su presencia, cumpliendo con los deberes que le impone el presente reglamento.

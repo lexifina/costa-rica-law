@@ -1,1 +1,0 @@
-Artículo 31.—Los miembros de la Policía Municipal tendrán derecho a la pensión de acuerdo a lo establecido con la legislación vigente y asimismo, gozarán de los derechos sociales que les pudieran corresponder.

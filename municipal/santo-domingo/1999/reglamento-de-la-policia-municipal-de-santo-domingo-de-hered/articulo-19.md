@@ -1,1 +1,0 @@
-Artículo 19.—El Policía Municipal deberá, en todo momento, presentarse en perfecto estado y aseo personal, manteniendo en buen estado de conservación, tanto el vestuario como los equipos que le fueron entregados o encomendados para su uso y custodia, procurando siempre una imagen decorosa.

@@ -1,1 +1,0 @@
-Artículo 32.—Los Policías Municipales tendrán derecho a que su defensa, en asuntos judiciales le sea provista por la Municipalidad de Santo Domingo, ya sea en servicios profesionales internos o extemos.
