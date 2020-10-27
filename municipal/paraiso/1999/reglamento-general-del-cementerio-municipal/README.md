@@ -14,3 +14,4 @@ Reglamento General del Cementerio Municipal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-08-31 | la propia norma |
+| 2 | 2020-10-27 | Reglamento municipal 39 (2020-10-27) |
