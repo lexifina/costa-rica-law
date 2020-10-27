@@ -1,1 +1,0 @@
-Artículo 3.-Deróguese el Decreto Ejecutivo N° 37272-S del 26 de julio de 2012 publicado en el Alcance 136 a La Gaceta N° 183 del 21 de setiembre de 2012 “Oficializa la Norma de Atención Integral de la Tuberculosis”.
