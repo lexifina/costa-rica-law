@@ -1,0 +1,1 @@
+Artículo 27.- Actividades comerciales/empresariales en viviendas: En toda vivienda en cuya localización exista una patente y se lleve a cabo una actividad empresarial, a esta persona usuaria se le asignará la categoría empresarial que corresponda, según los rangos de generación promedio mensual establecidos en el artículo 24 de este reglamento.

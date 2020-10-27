@@ -1,0 +1,1 @@
+Transitorio II: La municipalidad podrá establecer tasas diferenciadas para las personas usuarias que demuestren una reducción sostenida en las cantidades de residuos sólidos que genere. Estas serán determinadas según la metodología de calificación que defina la propia municipalidad, para lo cual la ésta informará a las personas usuarias sobre su implementación respectiva.

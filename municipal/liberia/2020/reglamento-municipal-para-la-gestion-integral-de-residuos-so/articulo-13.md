@@ -1,0 +1,1 @@
+Artículo 13.- Recolección selectiva (materiales reciclables): La municipalidad brinda el servicio de recolección selectiva de materiales reciclables a las personas usuarias inscritas, en los días, horarios, sectores y frecuencias que serán dispuestos para tales fines y comunicados al público en su momento.

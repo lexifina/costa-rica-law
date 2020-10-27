@@ -1,0 +1,1 @@
+Artículo 29.- Instituciones públicas y centros educativos: Debido a la amplitud de los rangos de generación existente, toda institución pública y centro educativo se le asignará la categoría empresarial correspondiente, según los rangos de generación promedio mensual establecidos en el artículo 24 de este reglamento.

@@ -1,0 +1,1 @@
+Artículo 28.- Propiedades con más de una vivienda: Todo persona usuaria sea propietario o propietaria de una finca o predio en el cual exista más de una vivienda, estará sujeto al cobro de la tasa residencial multiplicada por el número de casas o residencias que existan en la misma.

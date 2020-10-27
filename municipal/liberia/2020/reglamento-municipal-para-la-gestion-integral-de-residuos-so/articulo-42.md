@@ -1,0 +1,1 @@
+Artículo 42.-Vigencia. El presente reglamento fue debidamente ratificado por el Concejo Municipal de Liberia, artículo quinto de la Sesión Ordinaria No. 030-2020, celebrada el 14 de Setiembre de 2020 y entrará en vigor a partir de la segunda publicación en el diario oficial La Gaceta.

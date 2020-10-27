@@ -1,0 +1,1 @@
+Artículo 41.- Modificaciones y adiciones: La municipalidad podrá modificar o agregar uno o más artículos de este reglamento cuando así lo requiera, para lo cual se tomará el acuerdo respectivo del Concejo Municipal. Asimismo, cuando dicho acuerdo esté en firme, se comunicará a las personas usuarias por los medios locales que se estimen convenientes.

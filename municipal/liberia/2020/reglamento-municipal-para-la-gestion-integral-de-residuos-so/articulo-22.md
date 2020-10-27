@@ -1,0 +1,3 @@
+CAPITULO IV
+Limpieza de vías públicas, mantenimiento de parques y zonas verdes
+Artículo 22.- Limpieza de vías públicas: La municipalidad brinda el servicio de limpieza o barrido de vías públicas diariamente en un horario de 6:00 am a 2:00 pm de lunes a sábado, solamente en los siguientes sectores céntricos de la ciudad de Liberia: Los Ángeles, Los Cerros y Condega, los cuales comprenden las Avenidas, al Norte: 0-1-3-5-7-9 y 11, al Sur: 0-2-4-6-8-10 y Calles ,al Oeste: 0-2-4-6 y 8 al Este: 0-1-3-5-7 y 9. Por brindar estos servicios la municipalidad cobra las tasas que se describen en el artículo 31 de este reglamento, solamente a las personas usuarias inscritas en el mismo.

@@ -1,0 +1,1 @@
+Artículo 19.- Disposición final de los residuos sólidos: La disposición final de los residuos sólidos ordinarios estará a cargo de la municipalidad o de una persona gestora autorizada de residuos sólidos por medio de un relleno sanitario que cumpla con la normativa vigente en esta materia del Ministerio de Salud.

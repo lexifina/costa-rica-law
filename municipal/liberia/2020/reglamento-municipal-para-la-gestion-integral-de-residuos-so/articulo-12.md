@@ -1,0 +1,1 @@
+Artículo 12.- Recolección ordinaria (residuos no-reciclables):La municipalidad brinda el servicio de recolección ordinaria a las personas usuarias inscritas en los días, horarios, sectores y frecuencias que serán dispuestos para tales fines y comunicados al público en el sitio web institucional.
