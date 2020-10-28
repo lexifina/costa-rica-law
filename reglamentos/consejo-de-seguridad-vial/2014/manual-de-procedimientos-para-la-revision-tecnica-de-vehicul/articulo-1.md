@@ -508,12 +508,15 @@ Luces de posición. | 2 delanteras 2 o 4 traseras Motocicletas: 1 trasera | Dela
 Luces demarcadoras. | Como mínimo debe contar con: 2 delanteras 2 traseras | Delante: blanco o amarillo. Detrás: Amarillo, rojo o naranja | Lo más alto que permita el vehículo | Vehículos de carga con PMA > 8000 kg, los vehículos de transporte colectivo, remolques y semirremolques
 Dispositivos retrorreflectivos | Motocicletas: 1 Resto de vehículos: 2 | Rojo | Detrás: En los bordes exteriores | Motocicletas, automóviles y carga liviana.
 Cintas retrorreflectivas tipo A | Ver anotaciones adicionales en apartado correspondiente
-TABLA 4.2: DISPOSITIVOS OPCIONALES
-DISPOSITIVO | NÚMERO | COLOR | UBICACIÓN | VEHÍCULOS PARA LOS QUE ES OPCIONAL
+(*)TABLA 4.2: DISPOSITIVOS OPCIONALES
+DISPOSITIVO | NÚMERO | COLO R | UBICACIÓN | VEHÍCULO S PARA LOS QUE ES OPCIONAL
 Luz especial de estacionamiento. | 1 o 2 | Blanco | En las partes laterales del vehículo. | Vehículos de carga.
-Cintas Retrorreflectivas tipo B | Ver anotaciones adicionales en apartado correspondiente
-Luz antiniebla delantera. | 2 o 4 | Blanco o amarillo. | Delante, a 75 cm o menos respecto con la vía. | Todos los vehículos
-Luz antiniebla trasera. | Este tipo de luces no tienen una reglamentación específica, no obstante se pueden portar respetando que sean de color rojo, amarillo o naranja
+Cintas retroreflectivas tipo B | Ver anotaciones adicionales en apartado correspondiente
+Luz antiniebla delantera. | 2 o 4 | Blanco o amarillo | Delante, a 75 cm o menos respecto con la vía. | Todos los vehículos
+Luz antiniebla trasera. | Se pueden portar respetando que sean de color rojo, amarillo o naranja
+Luz Rotativa de señalización específica | 1 | Amarill o | Sobre la cabina del vehículo y centrada | Grúas de acarreo y de plataforma
+Luz de trabajo | 2 para grúas de acarreo y de plataforma. Las que requieran los demás vehículos de emergencia | Blanco | Parte trasera de la cabina para grúas de acarreo y de plataforma. Donde se requieran en los demás vehículos de emergencia | Grúas de acarreo y de plataforma. Vehículos de emergencia.
+(*)(Así reformada la tabla 4.2) anterior mediante sesión ordinaria N° 3027-2020 del 28 de octubre del 2020)
 Nota: Toda luz de alumbrado o señalización que no se encuentre incluida en las tablas anteriores está prohibida al menos que cuente con el permiso respectivo emitido por la autoridad competente del MOPT.
 4.1.- Luces bajas (corto alcance) y luces altas (largo alcance)
 a.- ESPECIFICACIONES GENERALES
@@ -747,6 +750,52 @@ Mediante inspección se comprobará:
 - Funcionamiento.
 - Que el sonido sea continuo y uniforme.
 c.- INTERPRETACIÓN DE DEFECTOS
+(*)Apartado 4.15 del Manual de Procedimientos para la Revisión Técnica de Vehículos Automotores en las Estaciones de RTV
+4.15 Luz Rotativa de Señalización Luminosa Específica)
+a.- ESPECIFICACIONES GENERALES
+Todos los vehículos tipo grúa de arrastre o de plataforma, los vehículos de emergencia, los vehículos piloto o de acompañamiento para cargas especiales y para eventos deportivos (rallies, pruebas de ciclismo, etc.) pueden llevar conectada una luz rotativa de color amarillo ubicada sobre la cabina del vehículo.
+Su encendido debe ser independiente de las demás luces y solo podrá estar encendida durante el acarreo de vehículos, el acompañamiento de la carga o del evento deportivo. Solo deberá instalarse una luz de señalización específica en el vehículo.
+b.- PROCEDIMIENTO
+Mediante inspección visual se comprobará:
+- El funcionamiento.
+- La cantidad.
+- La ubicación.
+- El estado de los dispositivos.
+- El color y la forma requeridos.
+c.- INTERPRETACIÓN DE DEFECTOS
+| Calificación
+DL | DG | DP
+1. No funciona. | X | |
+2. Cantidad mayor a la establecida | | X |
+3. Ubicación no autorizada. | | X |
+4. Estado de dispositivo defectuoso que no afecta su función o no existe riesgo de desprendimiento. | X | |
+5. Estado de dispositivo defectuoso, afecta su función o existe riesgo de desprendimiento. | | X |
+6. Color y/o forma no autorizados. | | X |
+(*)(Así adicionado el apartado 4.15) anterior mediante sesión ordinaria N° 3027-2020 del 28 de octubre del 2020. Nótese que no existe el punto 4.14)
+(*)Apartado 4.16 del Manual de Procedimientos para la Revisión Técnica de Vehículos Automotores en las Estaciones de RTV
+4.16 Luces de trabajo
+a.- ESPECIFICACIONES GENERALES
+Todos los vehículos tipo grúa de arrastre o de plataforma y los vehículos de emergencia, pueden llevar conectadas luces de trabajo color blanco, donde sea requerido para su operación y deberá ser posible orientarlas en la dirección requerida para su utilización, evitando con ello deslumbrar a los demás usuarios de la vía que se encuentren en direcciones diferentes al lugar que se requiere iluminar para su atención.
+Su encendido debe ser independiente de las demás luces y solo podrán estar encendida mientras el vehículo se encuentre detenido durante la atención de la emergencia en el sitio.
+Nunca podrán estar encendidas durante el traslado.
+Los vehículos tipo grúa de arrastre y de plataforma solo podrán portar, como máximo, dos luces de trabajo orientadas hacia la parte posterior del vehículo. Los vehículos de emergencia podrán instalar todas las luces de trabajo necesarias para la atención de la emergencia, del enganche o la ubicación en la plataforma del vehículo.
+b.- PROCEDIMIENTO
+Mediante inspección visual se comprobará:
+- El funcionamiento.
+- La cantidad.
+- La ubicación.
+- El estado de los dispositivos.
+- El color y la forma.
+c.- INTERPRETACIÓN DE DEFECTOS
+Defectos | Calificación
+DL | DG | DP
+1. No funciona | X | |
+2. Cantidad mayor cuando aplique. | | X |
+3. Ubicación no autorizada cuando aplique. | | X |
+4. Estado de dispositivo defectuoso que no afecta su función o no existe riesgo de desprendimiento. | X |
+5. Estado de dispositivo defectuoso, afecta su función o existe riesgo de desprendimiento. | X |
+6. Color y/o forma no autorizado. | X |
+(*)(Así adicionado el apartado 4.16) anterior mediante sesión ordinaria N° 3027-2020 del 28 de octubre del 2020. Nótese que no existe el punto 4.14)
 5.- Emisiones Contaminantes
 5.1.- Ruido
 a.- ESPECIFICACIONES GENERALES
