@@ -12,3 +12,5 @@ f. Voucher: Comprobante de pago por tarjeta o emitido por cajero automático.
 g. Sub Módulo de Gestión Vehicular: Módulo de mantenimiento contenido en el Sistema Integrado de Gestión para la administración y gestión de la flotilla vehicular.
 h. Programador: Funcionario con acceso al SIG que programa los servicios de transporte y lleva el control de consumo de combustibles de los vehículos de la dependencia.
 i. Solicitante: Funcionario que toma la decisión de contratar los bienes y servicios de su centro gestor siguiendo el procedimiento establecido.
+j. Obra menor: Incluye la construcción en menor escala de nueva infraestructura, así como los trabajos donde no se altere el área y no se intervienen o modifiquen los sistemas estructurales.
+(Así adicionado el inciso anterior mediante sesión ordinaria Nº 5193-165 del 28 de octubre de 2020)

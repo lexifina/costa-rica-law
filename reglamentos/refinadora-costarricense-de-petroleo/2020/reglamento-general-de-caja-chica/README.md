@@ -14,3 +14,4 @@ Reglamento general de caja chica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-07-30 | la propia norma |
+| 2 | 2020-10-28 | Reglamento 5193 (2020-10-28) |
