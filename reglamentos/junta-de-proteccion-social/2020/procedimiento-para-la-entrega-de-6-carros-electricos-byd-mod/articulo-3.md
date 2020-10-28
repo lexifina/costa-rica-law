@@ -1,0 +1,2 @@
+Artículo 3º—Mecánica de participación
+La mecánica de participación consiste en que por la compra de al menos una fracción del Sorteo Especial de Lotería Nacional N° 4621, a realizarse el 15 de noviembre del 2020, las personas quedarán participando en el sorteo de 6 vehículos eléctricos marca BYD 4x2 año 2020, a sortearse con el Sorteo Especial de Lotería Nacional N° 4621, como parte del plan de premios de dicho sorteo.
