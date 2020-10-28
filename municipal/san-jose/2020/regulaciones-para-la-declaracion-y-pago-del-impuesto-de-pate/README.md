@@ -14,3 +14,4 @@ Regulaciones para la declaración y pago del impuesto de patente
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-10-28 | la propia norma |
+| 2 | 2020-10-28 | Acuerdo municipal 3 (2020-10-16) |
