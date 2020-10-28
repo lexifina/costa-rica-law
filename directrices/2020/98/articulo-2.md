@@ -1,0 +1,1 @@
+Artículo 2°.- Deróguense los artículos 2° bis, 3° y 4° de la Directriz N° 077-S-MTSS-MIDEPLAN del 25 de marzo de 2020, “Sobre el Funcionamiento de las instituciones estatales durante la declaratoria de emergencia nacional por el COVID-19”.
