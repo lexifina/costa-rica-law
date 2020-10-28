@@ -1,2 +1,0 @@
-48. Plan de la Calidad de la Información que se ingresa al SIAC. La Unidad de Contratación Administrativa, debe establecer y cumplir con un Plan de aseguramiento de la calidad de la información que se ingresa al SIAC.
-Para ello debe desarrollar un instrumento que permita, al ICAFE, como mejorar sus procesos de gestión incorporando normativa de calidad y mejora continúa de manera sistemática en aspectos como: ejecución, control y seguimiento de sus procesos registrados en el SIAC.

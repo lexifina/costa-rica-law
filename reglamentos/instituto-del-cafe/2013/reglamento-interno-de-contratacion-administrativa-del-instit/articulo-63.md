@@ -1,2 +1,0 @@
-Artículo 63. Utilización de medios electrónicos para recibir ofertas: Todas las ofertas deben ser entregadas en la UCA por los medios señalados en el cartel confeccionado al efecto, lo anterior en las Licitaciones Públicas y Licitaciones Abreviadas.
-En lo referente a las contrataciones directas escasa cuantía y los procedimientos por excepción, podrán ser utilizados otros medios electrónicos para la recepción de las ofertas, tales como fax y correo electrónico. Constando en el expediente copia de los comprobantes de envío y recepción.

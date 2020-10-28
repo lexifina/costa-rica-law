@@ -1,1 +1,0 @@
-Artículo 58. Modificaciones y aclaraciones al cartel. Las modificaciones a las condiciones o especificaciones del cartel deberán anunciarse conforme lo señala la Ley de Contratación Administrativa y su Reglamento

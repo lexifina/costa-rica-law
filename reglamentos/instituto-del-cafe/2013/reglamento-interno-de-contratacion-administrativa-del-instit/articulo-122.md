@@ -1,1 +1,0 @@
-Artículo 122—Evaluación del uso de Mer-link. Finalizada la fecha de implementación, el ICAFE deberá realizar una evaluación total de la utilización del Sistema MERLINK. Dicha evaluación deberá ser impulsada por la Unidad de Contratación Administrativa del ICAFE y deberá tomar en cuenta todas las unidades internas involucradas en el proceso.

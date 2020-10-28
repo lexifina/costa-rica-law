@@ -1,1 +1,0 @@
-Artículo 27. Cambios en el Programa de Adquisiciones de Bienes y Servicios: Los cambios producidos en el Programa de Adquisiciones de Bienes y Servicios deberán seguir los procedimientos de modificación, reclasificación, reasignación y aprobación emitidos por la Gerencia de Administración y Finanzas y aprobados por la Junta Directiva.

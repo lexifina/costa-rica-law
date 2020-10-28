@@ -1,1 +1,0 @@
-Artículo 106. De la entrega de la Orden de compra. La Unidad de Contratación Administrativa será responsable de comunicar las órdenes de compra a los contratistas. Deberá quedar constancia de la fecha y hora de comunicación al contratista.

@@ -1,2 +1,0 @@
-Artículo 93. Plazo. De ser necesarias varias cotizaciones, en la invitación se indicará fecha y hora para recibir cotizaciones, no pudiendo ser menor a 4 horas ni superior a 24.
-De ser requerido, por la complejidad de la contratación un plazo mayor, éste será debidamente razonado e informado por la dependencias solicitante o el oferente a la UCA, quien mediante resolución administrativa procederá a aumentar el plazo establecido.

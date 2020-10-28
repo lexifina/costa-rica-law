@@ -1,1 +1,0 @@
-Artículo 12. Cambios en la información suministrada. Todos los proveedores incluidos en el Registro, están en la obligación de comunicar a la Unidad de Contratación Administrativa, los cambios que se produzcan en la información suministrada, tales como: sustitución del representante legal, cambio de dirección, teléfono, fax, correo electrónico en la línea comercial registrada.

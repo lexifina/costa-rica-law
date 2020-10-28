@@ -1,1 +1,0 @@
-Artículo 57. Disponibilidad del cartel. La Unidad de Contratación Administrativa deberá mantener a disposición de cualquier interesado para su adquisición o consulta, copia de los carteles de las licitaciones que se encuentren en trámite.
