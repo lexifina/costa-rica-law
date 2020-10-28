@@ -1,0 +1,1 @@
+Artículo 17.—Registro de ingreso. Toda gestión que se formule, se ingresará a una base de datos (registro) que tiene la Contraloría de Servicios, para efectos de estadísticas en la que se indica la información requerida en la fórmula de ingreso.
