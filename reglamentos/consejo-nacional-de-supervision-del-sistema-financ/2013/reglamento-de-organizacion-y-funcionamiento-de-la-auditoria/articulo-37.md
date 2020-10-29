@@ -1,2 +1,4 @@
-Artículo 37.—Revisión del reglamento [1]. El Auditor Interno revisará este reglamento una vez al año y propondrá las modificaciones que se estimen necesarias para su debida actualización de acuerdo con las disposiciones vigentes que sobre esta materia haya dictado la Contraloría General de la República.
-[1] Artículos 1, 2, 3, 4, 5, 6, 8, 11, 13, 20, 25, 26, 31, 32, 33, 37 modificados mediante artículos 11 de las actas de las sesiones 1069-2013 y 1070-2013, del Consejo Nacional de Supervisión del Sistema Financiero celebradas el 22 de octubre del 2013.
+CAPÍTULO II
+Disposiciones Finales
+Artículo 37.—Responsabilidad sobre el control interno
+La administración activa es la responsable del diseño, implantación, operación, evaluación, mejoramiento y perfeccionamiento del sistema de control interno institucional, así como de realizar las acciones necesarias para garantizar su efectivo funcionamiento, de acuerdo con el artículo 10 de la Ley General de Control Interno, Ley 8292

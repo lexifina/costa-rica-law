@@ -14,3 +14,4 @@ Reglamento de organización y funcionamiento de la Auditoría Interna del Consej
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-02-10 | la propia norma |
+| 2 | 2020-10-29 | Reglamento 1615 (2020-10-29) |

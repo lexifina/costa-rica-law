@@ -1,1 +1,2 @@
-Artículo 30.—Alcance de los informes de los servicios preventivos. El Auditor Interno definirá el contenido y la forma de los informes, oficios u otros medios de comunicación sobre los resultados de los servicios preventivos, conforme a la naturaleza de los estudios y los criterios pertinentes.
+Artículo 30.—Remisión de informes
+El Auditor Interno deberá comunicar oficialmente los resultados del trabajo mediante informes, oficios u otros dirigidos al CONASSIF -cuando el Auditor Interno considere necesarioy/ o a los titulares subordinados de la administración activa con competencia y autoridad para ordenar la implantación de las respectivas recomendaciones o atender los asuntos comunicados.

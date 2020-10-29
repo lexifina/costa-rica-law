@@ -1,11 +1,15 @@
-Artículo 21.—Deberes. El Auditor Interno y los demás funcionarios de la Auditoría Interna tendrán las siguientes obligaciones:
-a. Cumplir las competencias asignadas por ley.
-b. Cumplir el ordenamiento jurídico y técnico aplicable.
-c. Colaborar en los estudios que la Contraloría General de la República y otras instituciones realicen en el ejercicio de competencias de control o fiscalización legalmente atribuidas.
-d. Administrar de manera eficaz, eficiente y económica, los recursos del proceso del que sean responsables.
-e. No revelar a terceros que no tengan relación directa con los asuntos tratados en sus informes, información sobre las auditorías o los estudios especiales de auditoría que se estén realizando, ni información sobre aquello que determine una posible responsabilidad civil, administrativa o eventualmente penal de los funcionarios de los entes y órganos sujetos a la Ley General de Control Interno.
-f. Guardar la confidencialidad del caso sobre la información a la que tengan acceso.
-g. Acatar las disposiciones y recomendaciones emanadas de la Contraloría General de la República, a sabiendas de que, en caso de oposición a tales disposiciones y recomendaciones, se aplicará el artículo 26 de la Ley Orgánica de la Contraloría General de la República.
-h. Facilitar la información que les solicite la Asamblea Legislativa en el ejercicio de las atribuciones que dispone el inciso 23) del artículo 121 de la Constitución Política.
-i. Prevenir, cuando sea de su conocimiento, sobre las posibles consecuencias de una decisión, hecho o situación, con el debido sustento jurídico y técnico pertinente.
-j. Cumplir cualesquiera otros deberes atinentes a su competencia.
+SECCIÓN V
+Competencias, deberes y atribuciones
+Artículo 21.—Competencias
+Compete a la auditoría interna principalmente lo siguiente:
+a.- Realizar auditorías o estudios especiales de auditoría en cualesquiera dependencias del CONASSIF y las superintendencias, en el momento en que se considere oportuno.
+b.- Realizar auditorías o estudios especiales en relación con los fondos públicos sujetos a su competencia institucional, al menos semestralmente.
+c.- Evaluar el cumplimiento, la validez y la suficiencia del sistema de control interno de su competencia institucional, informar de ello y proponer las medidas correctivas pertinentes.
+d.- Asesorar, en materia de su competencia al CONASSIF y advertir a los órganos pasivos que fiscaliza que incluyen a las superintendencias sobre posibles consecuencias de determinadas conductas o decisiones, cuando estas sean de su conocimiento.
+e.- Autorizar mediante razón de apertura los libros de actas del CONASSIF y superintendencias y otros libros que, a criterio del Auditor Interno, que sean necesarios para el fortalecimiento del sistema de control interno.
+f.- Preparar los planes de trabajo, de conformidad con los lineamientos que establece la Contraloría General de la República y las políticas establecidas por el CONASSIF, siguiendo los lineamientos de la metodología de valoración de riesgo del universo auditable y tomando en consideración los recursos asignados.
+g.- Elaborar un informe anual de la ejecución del plan de trabajo y del estado de las recomendaciones de la Auditoría Interna y de la Contraloría General de la República - en este último caso, cuando sean de su conocimiento - sin perjuicio de que se elaboren informes y se presenten al jerarca cuando las circunstancias lo ameriten.
+h.- Verificar que la administración activa tome las medidas de control interno señaladas en la Ley General de Control Interno, Ley 8292, en los casos de desconcentración de competencias, o bien la contratación de servicios de apoyo con terceros; asimismo, examinar regularmente la operación efectiva de los controles críticos, en esas unidades desconcentradas o en la prestación de tales servicios.
+i.- Mantener debidamente actualizado el reglamento de organización y funcionamiento de la auditoría interna.
+j.- Las demás competencias que contemple la normativa legal, reglamentaria y técnica aplicable, con las limitaciones que establece el artículo 34 de la Ley General de Control Interno.
+Ley 8292

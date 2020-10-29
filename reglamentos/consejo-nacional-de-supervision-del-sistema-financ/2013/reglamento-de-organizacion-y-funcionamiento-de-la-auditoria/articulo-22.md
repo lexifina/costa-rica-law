@@ -1,5 +1,12 @@
-Artículo 22.—Potestades. El Auditor Interno y los demás funcionarios de la Auditoría Interna tendrán las siguientes potestades:
-a. Libre acceso, en cualquier momento, a fuentes de información relacionadas con su actividad y a todos los libros, archivos, sistemas informáticos, herramientas de trabajo, activos, valores, cuentas bancarias y documentos de los órganos de su competencia institucional, así como de los sujetos privados cuando éstos últimos administren o custodien fondos o bienes públicos de los órganos de su competencia institucional. El Auditor Interno podrá acceder, para sus fines, en cualquier momento, a las transacciones electrónicas que consten en los archivos y sistemas electrónicos de las transacciones que se realicen con otras instituciones, para lo cual la administración deberá facilitarle los recursos que se requieran.
-b. Solicitar a cualquier funcionario y sujeto privado que administre o custodie fondos públicos de los órganos de su competencia institucional aquellos informes, datos y documentos necesarios para el cabal cumplimiento de su competencia, en la forma, las condiciones y el plazo que sean razonables. En el caso de sujetos privados, los informes, datos o documentos solicitados serán sobre la administración o custodia de fondos públicos de los órganos de su competencia institucional.
-c. Solicitar a funcionarios de cualquier nivel jerárquico cualquier tipo de colaboración, asesoramiento o información que demande el ejercicio de la auditoría interna.
-d. De acuerdo con el ordenamiento jurídico y técnico aplicable las potestades necesarias para el cumplimiento de su competencia.
+Artículo 22.—Deberes
+El Auditor Interno y los demás funcionarios de la Auditoría Interna tendrán las siguientes obligaciones:
+a. Cumplir las competencias asignadas por ley.
+b. Cumplir el ordenamiento jurídico y técnico aplicable.
+c. Colaborar en los estudios que la Contraloría General de la República y otras instituciones realicen en el ejercicio de competencias de control o fiscalización legalmente atribuidas.
+d. Administrar de manera eficaz, eficiente y económica, los recursos del proceso del que sean responsables.
+e. No revelar a terceros que no tengan relación directa con los asuntos tratados en sus informes, información sobre las auditorías o los estudios especiales de auditoría que se estén realizando, ni información sobre aquello que determine una posible responsabilidad civil, administrativa o eventualmente penal de los funcionarios de los entes y órganos sujetos a la Ley General de Control Interno. Ley 8292
+f. Guardar la confidencialidad del caso sobre la información a la que tengan acceso.
+g. Acatar las disposiciones y recomendaciones emanadas de la Contraloría General de la República, a sabiendas de que, en caso de oposición a tales disposiciones y recomendaciones, se aplicará el artículo 26 de la Ley Orgánica de la Contraloría General de la República.
+h. Facilitar la información que les solicite la Asamblea Legislativa en el ejercicio de las atribuciones que dispone el inciso 23) del artículo 121 de la Constitución Política.
+i. Prevenir, cuando sea de su conocimiento, sobre las posibles consecuencias de una decisión, hecho o situación, con el debido sustento jurídico y técnico pertinente.
+j. Cumplir cualesquiera otros deberes atinentes a su competencia.

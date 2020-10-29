@@ -1,3 +1,3 @@
-CAPÍTULO II
-Disposiciones finales
-Artículo 35.—Responsabilidad sobre el control interno. La administración activa es la responsable del diseño, implantación, operación, evaluación, mejoramiento y perfeccionamiento del sistema de control interno institucional, así como de realizar las acciones necesarias para garantizar su efectivo funcionamiento, de acuerdo con el artículo 10 de la Ley General de Control Interno.
+Artículo 35.—Investigación de hechos presuntamente irregulares
+La Auditoría Interna aplicará un procedimiento sistemático y objetivo orientado a determinar la existencia de elementos de juicio necesarios para la eventual apertura de un procedimiento administrativo o judicial. Como parte de él, se deben considerar las presuntas responsabilidades, sean administrativas, gremiales, civiles o penales. La investigación corresponde a una actividad de las auditorías internas, distinta de otros procedimientos de auditoría definidos, como las auditorías financieras, las auditorías operativas y las auditorías de carácter especial.
+Estos procedimientos se regirán según los Lineamientos Generales para el análisis de presuntos hechos irregulares R-DC-102-2019 y las que se emitan en el futuro.
