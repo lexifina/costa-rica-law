@@ -1,7 +1,0 @@
-Artículo 6º—Publicación y actualización del manual. Con la publicación del presente Reglamento General sobre Seguridad humana y Protección Contra Incendios, se oficializa el Manual de Disposiciones Técnicas Generales al Reglamento sobre Seguridad Humana y Protección contra Incendios versión 2013, que rige desde su publicación hasta el 30 de octubre de 2015.
-a. Cada dos años mediante publicación en el diario oficial de aviso y alcance de las modificaciones, el Benemérito Cuerpo de Bomberos de Costa Rica actualizará la versión del manual, que forma parte integral del presente reglamento.
-b. La versión actualizada del reglamento se publicará según lo indicado en el artículo 5 del presente reglamento.
-Artículo 6º—Transitorio único. El presente reglamento sobre Reglamento General sobre Seguridad Humana y Protección Contra Incendios y la versión 2013 del manual entrarán a regir una vez que sea derogado el Reglamento Técnico General Sobre Seguridad Humana y Protección Contra Incendios publicado en La Gaceta Nº 11 del 17 de enero de 2005, por parte de la Junta Directiva del Instituto Nacional de Seguros (INS).
-(Nota de Sinalevi: por lo extenso de su contenido y tipo de formato el Manual de Disposiciones Técnicas Generales al Reglamento sobre Seguridad Humana y Protección contra Incendios versión 2013 debe ser consultado Aquí)
-San José, 5 de enero de 2013.
-(Nota de Sinalevi: En la publicación de este reglamento aparece dos veces el artículo N° 6)
