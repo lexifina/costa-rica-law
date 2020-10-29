@@ -11,12 +11,13 @@ aprobar el Reglamento de Organización y Funcionamiento del Comité de Auditorí
 REGLAMENTO DE ORGANIZACIÓN Y FUNCIONAMIENTO
 DEL COMITÉ DE AUDITORÍA DEL CONSEJO NACIONAL
 DE SUPERVISIÓN DEL SISTEMA FINANCIERO
-Artículo 1°—Propósito del Comité de Auditoría. El Comité de Auditoría es un comité asesor del Consejo Nacional de Supervisión del Sistema Financiero que facilitará la comunicación entre la Auditoría Interna y los miembros de ese Consejo, es parte integral del sistema de control interno del CONASSIF y las Superintendencias, y ejercerá sus funciones de asistir al CONASSIF en sus responsabilidades de vigilancia, monitoreo y valoración de la efectividad de:
-● El sistema de control interno.
-● El sistema de valoración de riesgos.
-● El uso eficiente de los recursos.
-● La efectividad de la función de auditoría interna.
-● El monitoreo al cumplimiento de leyes y regulaciones relevantes.
-● La confiabilidad y exactitud de la información provista por la Superintendencia y el CONASSIF y
-● El cumplimiento de los objetivos institucionales.
+(Nota de Sinalevi: El presente reglamento fue reformado parcialmente y reproducido su texto de forma íntegra mediante sesión N° 1615-2020 del 29 de octubre de 2020, publicada en La Gaceta N° 272 del 13 de noviembre del 2020, por lo que se reproduce a continuación:)
+Artículo 1º—Propósito del Comité de Auditoría. El Comité de Auditoría es un comité asesor del Consejo Nacional de Supervisión del Sistema Financiero que facilitará la comunicación entre la Auditoría Interna y los miembros de ese Consejo, es parte integral del sistema de control interno del CONASSIF y las Superintendencias, y ejercerá sus funciones de asistir al CONASSIF en sus responsabilidades de vigilancia, monitoreo y valoración de la efectividad de:
+• El sistema de control interno.
+• El sistema de valoración de riesgos.
+• El uso eficiente de los recursos.
+• La efectividad de la función de auditoría interna.
+• El monitoreo al cumplimiento de leyes y regulaciones relevantes.
+• La confiabilidad y exactitud de la información provista por la Superintendencia y el CONASSIF y
+• El cumplimiento de los objetivos institucionales.
 Dicho comité tiene la autoridad de supervisar, orientar o solicitar investigaciones a la Auditoría Interna y funcionará con sujeción a la normativa legal y técnica aplicable, tomando en consideración las garantías que la Ley General de Control Interno, Ley 8292, concede a las auditorías internas.

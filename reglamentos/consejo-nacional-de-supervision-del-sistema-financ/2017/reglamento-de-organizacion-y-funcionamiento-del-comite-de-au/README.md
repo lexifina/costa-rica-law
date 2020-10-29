@@ -14,3 +14,4 @@ Reglamento de Organización y Funcionamiento del Comité de Auditoría del Conse
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-03-23 | la propia norma |
+| 2 | 2020-10-29 | Reglamento 1615 (2020-10-29) |
