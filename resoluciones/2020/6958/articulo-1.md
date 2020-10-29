@@ -84,8 +84,10 @@ CUARTO: Por la naturaleza de la actividad que desarrollan, la siguiente lista de
 2. Modalidad de retiro de comida en establecimiento para llevar.
 3. Cines y teatros con utilización obligatoria de mascarilla, y adicional la careta de forma opcional, con medidas de separación de asientos de mínimo 1.8 metros, respetando las burbujas sociales y con boletería o reserva electrónica.
 4. Auto eventos.
-5. Actividades, organizaciones o congregaciones en sitios de adoración, con utilización obligatoria de mascarilla, y adicional la careta de forma opcional, con una capacidad de ocupación máxima de hasta 125 personas, y con un máximo de 10 personas como staff del lugar, con medidas de distanciamiento de 1.8 metros respetando las burbujas sociales.
-6. Salas de eventos para actividades empresariales o académicas de máximo 75 personas (con medidas de separación de asientos de mínimo 1.8 metros, respetando las burbujas sociales y con listas de asistentes con número de cédula y número de contacto). En las 75 personas no se incluye el personal de logística del evento.
+5. Actividades, organizaciones o congregaciones en sitios de adoración, con utilización obligatoria de mascarilla, con una capacidad de ocupación máxima de hasta 300 personas en los lugares que su espacio físico lo permita, con medidas de distanciamiento de 1.8 metros respetando las burbujas sociales.
+(Así reformado la disposición quinta anterior mediante resolución N° MS-DM-8741-2020 del 29 de octubre del 2020)
+6. Salas de eventos para actividades empresariales o académicas de máximo 150 personas (con medidas de separación de asientos de mínimo 1.8 metros, respetando las burbujas sociales y con listas de asistentes con número de cédula y número de contacto). En las 150 personas no se incluye el personal de logística del evento.
+(Así reformado la disposición sexta anterior mediante resolución N° MS-DM-8741-2020 del 29 de octubre del 2020)
 7. Salas de eventos para actividades de máximo 30 personas (con medidas de separación de asientos de mínimo 1.8 metros, respetando las burbujas sociales y con listas de asistentes con número de cédula y número de contacto). En las 30 personas no se incluye el personal de logística del evento.
 8. Turismo aventura, con utilización obligatoria de mascarilla y adicional la careta de forma opcional, mientras se coloca y se retira el equipo de seguridad para realizar la actividad, y respetando las burbujas sociales.
 9. Playas y lagos, con previa aprobación de protocolos por el ICT con cada municipio.

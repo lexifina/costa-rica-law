@@ -54,8 +54,10 @@ D. Podrán operar de lunes a viernes de las 5:00 horas a las 22:00 horas, y de s
 2. Modalidad de retiro de comida en establecimiento para llevar.
 3. Cines y teatros con utilización obligatoria de mascarilla, y adicional la careta de forma opcional, con medidas de separación de asientos de mínimo 1.8 metros, respetando las burbujas sociales y con boletería o reserva electrónica.
 4. Auto evento.
-5. Actividades, organizaciones o congregaciones en sitios de adoración, con utilización obligatoria de mascarilla, y adicional la careta de forma opcional, con una capacidad de ocupación máxima de hasta 125 personas, y con un máximo de 10 personas como staff del lugar, con medidas de distanciamiento de 1.8 metros respetando las burbujas sociales.
-6. Salas de eventos para actividades empresariales o académicas de máximo 75 personas (con medidas de separación de asientos de mínimo 1.8 metros, respetando las burbujas sociales y con listas de asistentes con número de cédula y número de contacto). En las 75 personas no se incluye el personal de logística del evento.
+5. Actividades, organizaciones o congregaciones en sitios de adoración, con utilización obligatoria de mascarilla, con una capacidad de ocupación máxima de hasta 300 personas en los lugares que su espacio físico lo permita, con medidas de distanciamiento de 1.8 metros respetando las burbujas sociales.
+(Así reformado el inciso anterior mediante resolución N° MS-DM-8741-2020 del 29 de octubre del 2020)
+6. Salas de eventos para actividades empresariales o académicas de máximo 150 personas (con medidas de separación de asientos de mínimo 1.8 metros, respetando las burbujas sociales y con listas de asistentes con número de cédula y número de contacto). En las 150 personas no se incluye el personal de logística del evento.
+(Así reformado el inciso anterior mediante resolución N° MS-DM-8741-2020 del 29 de octubre del 2020)
 7. Salas de eventos para actividades de máximo 30 personas (con medidas de separación de asientos de mínimo 1.8 metros, respetando las burbujas sociales y con listas de asistentes con número de cédula y número de contacto). En las 30 personas no se incluye el personal de logística del evento.
 8. Turismo aventura, con utilización obligatoria de mascarilla y adicional la careta de forma opcional, mientras se coloca y se retira el equipo de seguridad para realizar la actividad, y respetando las burbujas sociales.
 9. Playas y lagos, con previa aprobación de protocolos por el ICT con cada municipio.
@@ -63,7 +65,8 @@ D. Podrán operar de lunes a viernes de las 5:00 horas a las 22:00 horas, y de s
 10. Deportes individuales, al aire libre o en espacio cerrado, sin público, según lista autorizada por el Ministerio del Deporte.
 11. Deportes de contacto para entrenamiento de las Selecciones Nacionales Femenina y Masculina de alta competencia; y competencias de la categoría de alto rendimiento o profesional, a puerta cerrada y sin público, según lista autorizada por el Ministerio del Deporte.
 12. Deportes de Contacto para entrenamientos individuales sin contacto o acercamiento físico, según lista autorizada por el Ministerio del Deporte.
-13. Parques públicos.
+13. Parques públicos (parque urbano, parque recreativo, parques biosaludables y parques de calistenia).
+(Así reformado el inciso anterior mediante resolución N° MS-DM-8741-2020 del 29 de octubre del 2020)
 E. Podrán operar de lunes a viernes de las 5:00 horas a las 22:00 horas, y de sábado a domingo de las 5:00 horas a las 21:00 horas, con una capacidad de ocupación al cincuenta por ciento (50%):
 (Así reformado el inciso e) anterior mediante resolución N° MS-DM-8551-2020 del 15 de octubre del 2020)
 1. Venta al por menor de vehículos automotores nuevos y usados.
