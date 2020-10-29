@@ -14,3 +14,4 @@ Prorroga Medidas administrativas temporales para la prestación de los servicios
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-09-19 | la propia norma |
+| 2 | 2020-10-29 | Resolución 165 (2020-10-29) |
