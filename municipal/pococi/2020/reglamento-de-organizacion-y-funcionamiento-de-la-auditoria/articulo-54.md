@@ -1,0 +1,1 @@
+Artículo 54-. FUNDAMENTACIÓN DEL ACTO DE DESESTIMACIÓN O ARCHIVO DE DENUNCIAS. La desestimación o archivo de las denuncias se realizará mediante un acto debidamente motivado donde acredite los argumentos valorados para tomar esa decisión.

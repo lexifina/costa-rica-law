@@ -1,0 +1,1 @@
+Artículo 59-. DEROGATORIA. Deróguese el Reglamento de Organización y Funcionamiento de la Auditoría Interna de la Municipalidad de Pococí, publicado en la Gaceta No. 134 del 11 de julio del 2008, y cualquier otra normativa interna que se contraponga al presente Reglamento.

@@ -1,0 +1,1 @@
+Artículo 11-. DE LAS VACACIONES. En el caso de las vacaciones del auditor y el subauditor, si el período solicitado es menor o igual a dos días, se gestionará directamente con Recursos Humanos y se remitirá copia de la boleta de vacaciones al Concejo Municipal para su conocimiento, en caso de ser un periodo mayor deberán ser autorizadas por el Concejo Municipal.

@@ -1,0 +1,4 @@
+Artículo 21-. CUANDO EXISTE DISCONFORMIDAD POR LOS RECURSOS.
+Cuando el Auditor Interno no esté conforme con la resolución del Concejo Municipal, respecto de su solicitud de recursos, podrá expresarle las razones de su inconformidad e indicarle los riesgos que podrían generarse, aportando cualquier otra información que estime pertinente.
+El Concejo Municipal debe referirse a lo expuesto por la Auditoría Interna, dentro del plazo establecido según la Resolución sobre el procedimiento de plazo y tramite de dotación de recursos aprobado por el Concejo Municipal.
+Si luego de esa gestión persiste el desacuerdo, el titular de la Auditoría Interna debe documentar que la falta de recursos limita el desarrollo efectivo y oportuno de la actividad y reiterar al jerarca los riesgos que estaría asumiendo, así como la eventual imputación de responsabilidad conforme la normativa legal vigente

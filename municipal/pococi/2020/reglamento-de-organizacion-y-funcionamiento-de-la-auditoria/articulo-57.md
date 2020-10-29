@@ -1,0 +1,1 @@
+Artículo 57-. DE LAS SANCIONES ADMINISTRATIVAS. La determinación de responsabilidades y aplicación de las sanciones administrativas corresponde al órgano competente, según las regulaciones internas y la normativa que resulte aplicable.

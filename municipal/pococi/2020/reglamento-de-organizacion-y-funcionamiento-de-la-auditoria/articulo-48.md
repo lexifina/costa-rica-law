@@ -1,0 +1,1 @@
+Artículo 48-. ATENCIÓN DE DENUNCIAS POR PARTE DE LA AUDITORÍA INTERNA. El Auditor establecerá la reglamentación interna del procedimiento para la admisibilidad y atención de denuncias y para garantizar la confidencialidad del denunciante, de conformidad con lo establecido en normativa técnica legal vigente.

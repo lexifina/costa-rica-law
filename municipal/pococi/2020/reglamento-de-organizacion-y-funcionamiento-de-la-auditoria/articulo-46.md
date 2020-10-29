@@ -1,0 +1,3 @@
+SECCIÓN SÉPTIMA
+Del trámite de las denuncias
+Artículo 46-. ADMISIBILIDAD DE LAS DENUNCIAS. La Auditoría Interna recibirá las denuncias que le son dirigidas por parte de personas físicas o jurídicas, públicas o privadas y funcionarios de la Municipalidad; que versen sobre posibles hechos irregulares o ilegales en relación con el uso y manejo de fondos públicos o que afecten la Hacienda Pública, según lo establecido en la Ley Contra la Corrupción y el enriquecimiento Ilícito en la Función Pública, No. 8422. La Auditoría Interna elaborará un procedimiento interno para la atención de las denuncias planteadas.

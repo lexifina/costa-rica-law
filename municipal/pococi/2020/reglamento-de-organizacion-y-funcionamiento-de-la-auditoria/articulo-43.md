@@ -1,0 +1,1 @@
+Artículo 43-. SEGUIMIENTO DE ADVERTENCIAS. La auditoría interna verificará lo actuado por la administración respecto de las advertencias se hayan formulado, sin perjuicio de que según corresponda, como resultado del seguimiento, emita proyectos de control interno o de responsabilidades u otros pertinentes.

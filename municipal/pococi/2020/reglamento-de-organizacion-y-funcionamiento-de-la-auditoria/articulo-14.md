@@ -1,0 +1,1 @@
+Artículo 14-. DE LOS DEBERES ETICOS. Es deber de los funcionarios de la Auditoría, respetar los lineamientos éticos y morales establecidos por la Municipalidad, el auditor interno y la Contraloría General de la República.
