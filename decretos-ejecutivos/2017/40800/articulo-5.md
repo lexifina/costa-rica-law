@@ -8,6 +8,8 @@ f. Un representante del Laboratorio de Genética del Hospital Nacional de Niños
 g. Un representante del Laboratorio Nacional de Nanotecnología del Centro Nacional de Alta Tecnología (CENAT).
 h. Un representante del Laboratorio de Diagnóstico del Servicio Nacional de Salud Animal (SENASA).
 i. Un representante de la Asociación de Biotecnología, Dispositivos Médicos y Sectores Afines a las Ciencias de la Vida (CR-biomed) con especialidad en el tema, como representante de la sociedad civil.
+j. Un representante del Laboratorio del Instituto Costarricense de Investigación y Enseñanza en Nutrición y Salud.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 42740 del 29 de octubre del 2020)
 Se autoriza a las instituciones u organizaciones enumeradas en este artículo, para que destaquen a sus representantes en este Consejo Técnico, con la previa anuencia del respectivo jerarca para participar.
 Cuando lo requiera, este Consejo Técnico podrá solicitar criterio técnico a expertos en el tema de otras instituciones del Estado con carácter de observadores.
 Este Grupo Técnico, sesionará ordinariamente una vez cada tres meses, y de forma extraordinaria, cuando se convoque por su coordinador, con quince días naturales de antelación. Las reuniones se llevarán a cabo en las oficinas de la sede central del Ministerio de Salud, y se hará quorum con la mitad de sus miembros más uno.

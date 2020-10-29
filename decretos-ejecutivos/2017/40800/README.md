@@ -14,3 +14,4 @@ Reglamento para la creación y funcionamiento del Consejo Técnico de Bioinforma
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-02-19 | la propia norma |
+| 2 | 2020-10-29 | Decreto Ejecutivo 42740 (2020-10-29) |
