@@ -1,0 +1,1 @@
+Artículo 2º—Deróguese el Decreto No. 32587-MOPT “Reglamento RAC OPS 1 denominado “Transporte Aéreo Comercial (Aviones), de 28 de junio de 2005. Se deja sin efecto la aplicación el MRAC OPS 1 Reglas de Aviación Conjuntas. Transporte Aéreo Comercial (aviones), y sus reformas, publicado en La Gaceta número 28 de 08 de febrero de 2012.
