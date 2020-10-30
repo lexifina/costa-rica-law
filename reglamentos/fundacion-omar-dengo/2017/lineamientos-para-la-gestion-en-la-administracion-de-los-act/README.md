@@ -14,3 +14,4 @@ Lineamientos para la gestión en la administración de los activos destinados a 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-11-08 | la propia norma |
+| 2 | 2020-10-30 | Reglamento 0 (2020-10-30) |
