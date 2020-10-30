@@ -1,3 +1,0 @@
-ARTÍCULO 3°.-En virtud de lo dispuesto en el artículo 1° del presente Decreto Ejecutivo, solamente se permitirá el ingreso en el caso de la vía aérea de las personas extranjeras que provengan de los países autorizados por el Ministerio de Salud, bajo el criterio y análisis técnico que realizará periódicamente como autoridad rectora sanitaria.
-(Así reformado el párrafo anterior por el artículo 4° del decreto ejecutivo N° 42585 del 28 de agosto del 2020)
-El Ministerio de Salud determinará vía resolución la lista de países habilitados como puntos de procedencia para el ingreso de personas al territorio nacional y deberá comunicar dicha resolución, así como sus respectivas actualizaciones a la Dirección General de Migración y Extranjería para lo correspondiente.
