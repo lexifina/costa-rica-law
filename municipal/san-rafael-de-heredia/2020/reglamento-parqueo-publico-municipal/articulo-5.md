@@ -1,0 +1,4 @@
+Artículo 5- Control
+La administración establece los siguientes controles para el ingreso y salida de vehículos y motocicletas:
+a) El guarda de seguridad entregará un comprobante de ingreso al parqueo con los datos del vehículo o motocicleta. Este comprobante se genera mediante el sistema de administración del parqueo, que consiste en un sistema que precisa el manejo de los tiempos de estadía y montos de cobro, así como de llevar la recaudación exacta, la cual permite realizar una impresión detallada (comprobante) para el usuario.
+b) Los guardas y funcionarios de seguridad deberán supervisar el correcto uso de los espacios en los parqueos, vigilando y regulando las acciones de los conductores y sus acompañantes. Por tanto, deben reportar a su superior o a la instancia necesaria y de forma inmediata cualquier anomalía o incumplimiento a este Reglamento.

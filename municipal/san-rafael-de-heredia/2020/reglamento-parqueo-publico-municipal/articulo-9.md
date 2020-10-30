@@ -1,0 +1,2 @@
+Artículo 9-
+Los funcionarios municipales y miembros del Concejo Municipal y Alcaldía, deberán utilizar únicamente el área asignada y dentro de su jornada laboral, sin costo alguno, por lo que se prohíbe el uso de parqueo fuera de sus jornadas ordinarias o extraordinarias. De igual manera se prohíbe el uso del parqueo cuando se encuentren de vacaciones, incapacitados, en periodos de licencia con o sin goce salarial, o bien cuando se encuentren suspendidos de sus labores con o sin retribución salarial.

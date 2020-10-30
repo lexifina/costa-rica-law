@@ -1,0 +1,3 @@
+Artículo 11-
+Aquellos espacios que son asignados a los funcionarios municipales y que no se encuentre ocupados en virtud de los supuestos del artículo 9 del presente Reglamento, no pueden ser utilizados por otras personas, sino es cancelando los costos por parqueo normales.
+Si aun después de los supuestos anteriores quedan espacios, el Alcalde podrá conceder autorizaciones escritas a vehículos oficiales o representantes de otras entidades, únicamente para efectos de actividades que realice el Municipio como parte de sus funciones. Con este supuesto, queda absolutamente prohibido el otorgamiento de permisos a vehículos de sujetos particulares y oficiales de otras entidades.

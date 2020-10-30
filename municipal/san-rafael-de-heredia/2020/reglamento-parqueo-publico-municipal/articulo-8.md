@@ -1,0 +1,4 @@
+Artículo 8- De los Vehículos Municipales
+A cada vehículo municipal se le asignará un espacio en caso de ser requerido, el cual deberá ser respetado por el chofer correspondiente. Igualmente, a cada funcionario que posea vehículo y que lo utilice para desplazarse a sus labores dentro del Municipio, se le designará un solo espacio que deberá utilizar, a efecto de que los guardas lleven el control respectivo.
+De igual manera los miembros del Concejo Municipal, la Alcaldía Municipal y funcionarios tendrán un espacio dentro del parqueo, bajo las mismas regulaciones descritas, sin costo alguno.
+En caso de que el funcionario y/o miembro del Concejo Municipal, propietario del vehículo no pueda retirarlo del parqueo por cualquier circunstancia, deberá extender una autorización escrita a la persona que designe para tal fin, autorización que debe ser puesta en conocimiento de los guardas municipales encargados del parqueo.
