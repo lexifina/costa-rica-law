@@ -1,0 +1,36 @@
+CONCEJO MUNICIPAL DE DISTRITO DE CÓBANO
+El Concejo Municipal de Distrito de Cóbano en sesión Ordinaria 024-2020, artículo VIII, inciso a.9, del día trece de octubre del año dos mil veinte, acordó:
+Aprobar, adoptar y publicar las modificaciones y Reformas parciales al Reglamento Municipal de Obra Menor, presentadas por la Administración, todo de conformidad con el artículo 43 del Código Municipal.
+a. Se reforma el artículo 6 del reglamento, para que en adelante se lea:
+Artículo 6º-Obra Menor: Se considera obra menor toda construcción de hasta 30 m2 que no exceda los diez 10 salarios mínimos de un trabajador no especializado, conforme el Decreto Nacional de Salarios Mínimos que se encuentre vigente, estas obras podrán ser:
+a) Reparaciones, remodelaciones, ampliaciones de cocheras corredores y decks.
+b) Cambios de techo en caso de sobrepasar los 100 m2, siempre y cuando no se afecte la estructura de techo.
+c) Tapias (que no sean muro de retención de alto riesgo), instalación de verjas, rejas o cortinas de acero, que se mantengan dentro del límite de propiedad (en zona de antejardín, no se pueden construir vallas sólidas con una altura mayor de 1,00 m sobre el nivel de acera. Por sobre esta altura se puede continuar únicamente con verjas, mallas o rejas que permitan una visibilidad a través del 80% de su superficie como mínimo. No incluye portones que se abran hacia afuera y puedan constituir obstáculos a los peatones).
+d) Cambio de pisos en dos niveles, siempre y cuando en el segundo nivel no se agregue carga permanente a la estructura (en caso de requerirse obras de ampliación o remodelación, en segunda planta debe de presentar un croquis firmado por un ingeniero civil o arquitecto).
+e) Muros que no excedan de 20 metros lineales.
+f) Construcción, reparación y mantenimiento de infraestructura agropecuaria abierta y semi abierta como:
+corrales y galerones, cuyo sistema de construcción sea diferente al artesanal (estructura de madera) y su valor sea posterior a 5 salarios mínimos de un trabajador no especializado, conforme el Decreto Nacional de Salarios Mínimos que se encuentre vigente.
+g) Limpieza de sistemas de drenaje (No incluye la construcción nueva de tanque séptico y drenaje ya que esto requiere de cumplimiento de normativa superior a la señalada en este reglamento).
+h) Demoliciones hasta 60 m2, siempre que no represente riesgo a terceros y que cumpla con lo dispuesto por el Capítulo XII de la Ley de Construcciones.
+i) Cambio de pisos y cielo raso mayores a 30 m2 y siempre que no implique modificación a la instalación eléctrica.
+j) Remodelación de locales comerciales de cualquier tipo.
+k) Construcción de nichos privados en cementerios.
+l) Cercas de malla ciclón que superen los 30 metros lineales.
+m) Movimientos de tierra de hasta 36 m3, siempre que no represente riesgo a terceros y que cumpla con lo dispuesto por el Capítulo XIII de la Ley de Construcciones.
+n) Bodegas de hasta 30 m2 que no requieran instalaciones eléctricas y mecánicas.
+o) Todas estas obras no podrán alterar los elementos vitales de la estructura, representando un peligro para la seguridad, salubridad y calidad del ambiente.
+Para todo lo anterior se requerirá de una licencia de obras menores
+a. Se reforma el artículo 7 del Reglamento para que en adelante se lea como sigue:
+Artículo 7º-Obras de Mantenimiento: la siguiente lista taxativa se consideran obras de mantenimiento:
+a) Cambios de muebles (cocina, sanitarios, pilas, closet.).
+b) Reparaciones como pintura, cambios de ventanas, puertas, repellos y enchapes.
+c) Cambios de láminas de zinc en cubiertas de techo (cubierta de techo nuevo siempre y cuando no presente riesgo, y no superen los 100 m2).
+d) Reposición o instalación canoas y bajantes sin afectar la estructura de techos.
+e) Cambios de láminas Gypsum, fibrocemento, madera conglomerada, piezas de madera (siempre y cuando no afecte la estructura).
+f) Reparación de Aceras (manteniendo los niveles de continuidad exactos a los de las propiedades colindantes siempre que la topografía del terreno así lo permita, ley 7600 y concordantes y; según especificaciones emitidas por la unidad de Gestión vial Municipal), rampas o contra pisos menores de 10 m2
+g) Cercas en postes de madera, concreto con alambres de púa
+h) Labores de jardinería en general.
+i) Limpieza de terreno de capa vegetal o de vegetación.
+j) Sustitución de luminarias, toma corriente y de apagadores (siempre y cuando no se modifique la carga eléctrica existente en la edificación).
+Para obras de mantenimiento no se requerirá ningún tipo de licencia.
+Es todo. Se somete a votación la aplicación del artículo 45 del código municipal el cual se aprueba en todas sus partes, quedando el anterior acuerdo unánime y definitivamente aprobado.
