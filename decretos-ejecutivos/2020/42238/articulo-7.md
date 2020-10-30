@@ -1,1 +1,0 @@
-ARTÍCULO 7º .- Se faculta a Dirección General de Migración y Extranjería para que adopte las medidas administrativas necesarias para cumplir el objetivo del presente Decreto Ejecutivo y para mitigar la propagación de COVID-19, según el artículo 13 inciso 36) de la Ley General de Migración y Extranjería.
