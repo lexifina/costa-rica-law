@@ -1,0 +1,1 @@
+Artículo 6. — Obligación de cumplimiento. Es obligación de todo contribuyente cumplir con lo establecido en el artículo 5 de este Reglamento, en concordancia con lo dispuesto en el artículo 84 del Código Municipal, bajo el apercibimiento que de no hacerlo se le impondrán las multas establecidas en los artículos 85, 85 bis y 85 ter de dicho Código y de este reglamento.

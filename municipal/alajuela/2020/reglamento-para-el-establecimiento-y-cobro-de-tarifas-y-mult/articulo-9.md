@@ -1,0 +1,1 @@
+Artículo 9. —Acta de apercibimiento. Una vez determinada la omisión mediante la inspección de campo respectiva, la Actividad Deberes de los Munícipes notificará al propietario o poseedor mediante un Acta de Apercibimiento.

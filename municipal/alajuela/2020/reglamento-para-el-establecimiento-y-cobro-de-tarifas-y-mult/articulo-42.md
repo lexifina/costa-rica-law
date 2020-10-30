@@ -1,0 +1,1 @@
+Artículo 42. —Materiales. Las canoas o bajantes deberán ser de hierro calibre 28 o superior, pudiendo también colocarse en material tipo PVC o cualquier otro material previamente aprobado por la actividad de deberes de los munícipes. Los bajantes deberán desaguar en una tubería PVC o concreto, empotrada horizontalmente dentro de la acera.

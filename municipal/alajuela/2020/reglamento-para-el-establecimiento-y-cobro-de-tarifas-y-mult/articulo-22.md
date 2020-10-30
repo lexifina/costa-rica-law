@@ -1,0 +1,1 @@
+Artículo 22. —Obligación de pago. El contribuyente deberá pagar a la Municipalidad el costo efectivo de la obra o servicio realizado. Este incluye un diez por ciento (10%) de gasto administrativo, así como un diez por ciento (10%) de utilidad para desarrollar el servicio de conformidad con el artículo 83 del Código Municipal.

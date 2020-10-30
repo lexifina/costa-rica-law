@@ -1,0 +1,1 @@
+Artículo 19. — Solicitud de Re-inspección. Cuando las obras o servicios sean realizados de forma posterior a la inclusión de la multa en el sistema municipal de cobro, el administrado tiene la posibilidad de solicitar la reinspección al inmueble para determinar si cumplió o no con lo apercibido.

@@ -1,0 +1,1 @@
+Artículo 53. —Derogatoria. Se deroga el Reglamento para el establecimiento y cobro de tarifas por el incumplimiento de los deberes de los munícipes de la Municipalidad de Alajuela, aprobado en el artículo III, capítulo VII, sesión ordinaria 39-10, del martes 28 de setiembre de 2010, publicado en La Gaceta Nº 237 del martes 7 de diciembre de 2010.

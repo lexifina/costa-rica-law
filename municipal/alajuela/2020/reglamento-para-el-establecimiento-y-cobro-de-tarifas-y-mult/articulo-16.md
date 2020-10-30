@@ -1,0 +1,1 @@
+Artículo 16. —Monto de las multas. Cuando se incumplan las obligaciones dispuestas en el artículo 5 de este Reglamento, La Municipalidad cobrará trimestralmente con carácter de multa. Los montos establecidos con su fórmula de actualización establecidos en los artículos 85 y 85 ter del Código Municipal.
