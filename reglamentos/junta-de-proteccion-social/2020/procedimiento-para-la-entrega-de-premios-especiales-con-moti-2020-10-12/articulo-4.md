@@ -1,0 +1,2 @@
+Artículo 4°- Detalle de los premios
+Entre todas las personas mayores de 18 años, sea nacional o extranjero, que activen al menos 2 fracciones del Sorteo Extraordinario de Navidad 2020 número 4625, se otorgarán en total 300 premios de ¢250.000,00 (doscientos cincuenta mil colones con cero céntimos), 150 premios de ¢500.000,00 (quinientos mil colones con cero céntimos) y 150 premios de ¢1.000.000,00 (un millón de colones con cero céntimos). Todos estos premios se otorgarán de acuerdo a las mecánicas de sorteo indicadas en el artículo 5° del presente procedimiento.
