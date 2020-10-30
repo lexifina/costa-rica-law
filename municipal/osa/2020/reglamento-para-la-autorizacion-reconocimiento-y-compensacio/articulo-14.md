@@ -1,0 +1,2 @@
+Artículo 14. —Sistema de Control de Saldos. El control presupuestario de la Partida de Tiempo Extraordinario deberá registrarse en el sistema automatizado de control de saldos que al efecto llevan el Departamento de Recursos Humanos y la Dirección Financiera.
+Además, cada Jefatura deberá tener un sistema de control interno de saldos de tiempo extraordinario de su dependencia; lo anterior en estricta coordinación con el Coordinador de Presupuesto respectivo, quien llevará el control de todas las áreas y actividades que correspondan a su Programa Presupuestario.
