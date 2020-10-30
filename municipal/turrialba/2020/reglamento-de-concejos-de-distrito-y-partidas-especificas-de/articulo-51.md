@@ -1,0 +1,1 @@
+Artículo 51.-El procedimiento establecido en los párrafos segundo y tercero del numeral anterior, será realizado al menos una ocasión más, siendo esta la recepción final de las obras por parte de la Municipalidad. Dicha visita se efectuará dentro del mes siguiente al cumplimiento del plazo establecido en el numeral 52° de este reglamento.

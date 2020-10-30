@@ -1,0 +1,18 @@
+Artículo 41.- De cada proyecto programado, la Unidad Ejecutora, a través de sus dependencias y durante el mes de enero de cada año, creará un expediente físico que contendrá documentación indispensable que respaldará cada proyecto, desde el inicio de su ejecución hasta el final. Dicho expediente contendrá al menos la siguiente documentación:
+a) Indicación de la ley o decreto de la República que dio aprobación al proyecto,
+b) Solicitud del proyecto emitida por parte del concejo de distrito, dirigida ante el Concejo Municipal,
+c) Copia del acta donde se toma el acuerdo de solicitud,
+d) Copia del perfil de proyecto presentado al Concejo Municipal,
+e) Copia del Acuerdo de aprobación del proyecto emitida por el Concejo Municipal,
+f) Personería jurídica y copia de cédula jurídica de la organización beneficiada con el proyecto,
+g) Fotocopia de la cédula de identidad del representante legal de la organización beneficiada,
+h) Carta de compromiso en la recepción, resguardo y vigilancia de los bienes, materiales y/o suministros recibidos por la organización, antes, durante y después de la ejecución del proyecto, indicando además el lugar en donde se resguardarán los mismos (deberá ser firmada por el representante legal de la organización y/o apoderado),
+i) Declaración jurada emitida por la organización beneficiada en la cual se haga constar que cuentan con la contrapartida necesaria para poder afrontar los gastos por concepto de mano de obra que demande la ejecución del proyecto.
+j) Plano y escritura de la propiedad (en el caso de proyectos dentro de territorio indígena solo se deberá adjuntar copia del plano no catastrado expedido por la Asociación Indígena),
+k) Certificación pública de la propiedad donde se ejecutará la obra (debe indicar si posee o no gravámenes),
+l) Carta de disponibilidad de agua (aplica en caso de proyectos de infraestructura habitable),
+m) Constancia expedida por parte de la Asociación Indígena en la cual indique que el proyecto en mención se realizará dentro de sus límites territoriales, con indicación exacta de la ubicación del inmueble (aplica en proyectos dentro de territorio indígena),
+n) Constancia expedida por la Asociación de Desarrollo Indígena en donde autorice la realización de los trabajos y/o construcciones en dicha propiedad (solo aplica para proyectos ejecutados en propiedad indígena),
+o) Planos, croquis, lista de materiales requeridos según presupuesto (las medidas de los materiales deben de ser expresados en centímetros (cm) o milímetros (mm), no en pulgadas),
+p) Adjuntar una proforma con no más de un mes de emitida, en donde se contemple la lista preliminar de los materiales (los precios deben venir exentos del impuesto de ventas),
+q) Permiso constructivo- uso de suelos (para los casos de construcción y/o de remodelación de edificios).

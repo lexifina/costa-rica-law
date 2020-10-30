@@ -1,0 +1,1 @@
+Artículo 42.- La Unidad Ejecutora, estará facultada para solicitar a las organizaciones, información adicional a la requerida en el artículo anterior, que, a criterio de sus funcionarios, sea necesario documentar para respaldar el trámite de ejecución de los proyectos.

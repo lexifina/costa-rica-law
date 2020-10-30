@@ -1,0 +1,8 @@
+MUNICIPALIDAD DE TURRIALBA
+COMUNICA
+REGLAMENTO DE CONCEJOS DE DISTRITO Y PARTIDAS ESPECÍFICAS
+MUNICIPALIDAD DE TURRIALBA
+De conformidad con el artículo 170 de nuestra Constitución Política, artículo 4, 13 inciso c) y el 43 del Código Municipal y la normativa vigente que reconocen la autonomía Municipal y reglamentaria de cada municipio, se procede a comunicar el siguiente Reglamento, clasificado como de uso Externo:
+CAPÍTULO I
+DISPOSICIONES GENERALES
+Artículo 1º-El propósito del presente Reglamento es regular el funcionamiento de los Concejos de Distrito del Cantón de Turrialba y la gestión de los recursos de partidas específicas provenientes de la ley N°7755 en la Municipalidad de Turrialba, de manera que en dicho cuerpo normativo se contemplen, unidades, funcionarios municipales participantes y responsables en el proceso de gestión de partidas específicas, participación de la Administración en el proceso de formulación y selección de los proyectos, a través de la elaboración y documentación de análisis internos de viabilidad técnica, legal y económica de los proyectos de partidas específicas, previo a la remisión de los perfiles a la Dirección General del Presupuesto Nacional. Proceso a seguir para realizar variación de destino a los proyectos de partidas específicas, conforme a lo establecido en la Ley N.° 7755, actividades de control que deben seguir las organizaciones comunales beneficiarias, para la recepción, resguardo y buen uso de los materiales entregados, labores de seguimiento por parte de la Municipalidad, posterior a la finalización de las iniciativas que han sido financiadas con recursos de partidas específicas, proceso a seguir para el uso de saldos de partidas específicas ejecutadas.
