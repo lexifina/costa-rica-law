@@ -1,0 +1,8 @@
+ARTÍCULO 2- Se adiciona un nuevo transitorio XI a la Ley 7969, Ley Reguladora del Servicio Público de Transporte Remunerado de Personas en Vehículos en la Modalidad de Taxi, de 22 de diciembre de 1999. El texto es el siguiente:
+Transitorio XI- A consecuencia de la emergencia nacional por la pandemia Sars- coV-2 (COVID-19), declarada por el decreto N.° 42.227, de 16 de marzo de 2020, a las tarifas del canon regulatorio que cobrará el Consejo de Transporte Público (CTP) para el año 2021, por los servicios al costo que realiza a los operadores de transporte público en cumplimiento del artículo 25 de la presente ley, se les aplicará una rebaja porcentual de la siguiente manera:
+a) A los operadores (concesionarios o permisionarios) de rutas regulares, un dieciséis coma setenta y nueve por ciento (16,79%).
+b) A los operadores permisionarios de servicios especiales en sus distintas modalidades, un dieciséis coma sesenta y tres por ciento (16,63%).
+c) A los operadores (concesionarios o permisionarios de taxi y Servicios Estables de Taxi (Seetaxi), un veintiuno coma cincuenta y nueve por ciento (21,59%).
+(Mediante resolución de la Sala Constitucional N° 025341 del 26 de octubre de 2022, se anuló el párrafo final del presente transitorio, el cuál indicaba lo siguiente: “En el caso del canon que deben cancelar a la Autoridad Reguladora de los Servicios Públicos (Aresep), se les aplicará una rebaja porcentual a todos los operadores de transporte público de un cincuenta por ciento (50%) sobre el canon establecido para el 2021.”)
+Rigen a partir de su publicación.
+Dado en la Presidencia de la República, San José, a los veintinueve días del mes de octubre del año dos mil veinte.
