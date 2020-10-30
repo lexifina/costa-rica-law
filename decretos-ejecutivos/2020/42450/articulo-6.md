@@ -1,0 +1,1 @@
+Artículo 6º—Seguimiento de aplicación del sistema de clasificación. El SINAC en coordinación con el Centro Nacional de Información Geo-Ambiental (CENIGA) del MINAE, tendrá la responsabilidad de dar seguimiento a la implementación del Sistema, así como la evaluación, monitoreo, ajustes y mejoras del mismo.

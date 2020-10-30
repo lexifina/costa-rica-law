@@ -1,0 +1,1 @@
+Artículo 4º—Ecorregiones. Se entenderá por ecorregiones, las unidades formadas por un conjunto de ecosistemas que comparten elementos fitogeográficos, geológicos, bioclimáticos, similitud en los impulsores de cambio natural y antrópicos y elementos culturales y socioeconómicos.

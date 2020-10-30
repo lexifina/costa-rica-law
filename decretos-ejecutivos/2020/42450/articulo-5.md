@@ -1,0 +1,1 @@
+Artículo 5º—Ámbito de aplicación. El presente Sistema de Clasificación de Ecorregiones y Ecosistemas de Costa Rica podrá ser aplicado por instituciones públicas, instituciones autónomas y municipalidades, cuando se trate de actividades, planes o permisos que afecten los ecosistemas naturales que impliquen el manejo, uso e investigación de los ecosistemas.
