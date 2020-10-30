@@ -1,4 +1,0 @@
-ARTÍCULO 5°.-Las medidas de restricción establecidas en el artículo 2 del presente Decreto Ejecutivo, así como las acciones sanitarias que girará el Ministerio de Salud en ese sentido, se aplicarán a las personas extranjeras que cuenten con una permanencia legal autorizada bajo las categorías migratorias de Residencia Permanente, Residencia Temporal, Categorías Especiales o No Residentes subcategoría Estancia, que egresen del país entre las 23:59 horas del día 25 de marzo y las 23:59 horas del 31 de octubre del año 2020, ambas fechas inclusive.
-Esta restricción se aplicará en todo puesto migratorio habilitado para el ingreso de personas vía terrestre, fluvial o marítima salvo para el caso de los yates o veleros.
-La vigencia de la presente medida será revisada y actualizada de conformidad con el comportamiento epidemiológico del COVID-19.
-(Así reformado por el artículo 3° del decreto ejecutivo N° 42633 del 30 de setiembre del 2020)
