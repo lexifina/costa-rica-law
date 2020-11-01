@@ -1,0 +1,2 @@
+Artículo 3º—Montos a cancelar por los propietarios de vehículos particulares categorías motocicleta y afines.
+Para el período de pago del seguro obligatorio de vehículos automotores del año dos mil veintiuno, los propietarios de vehículos particulares categoría motocicleta y afines, deberán cancelar como aporte al Consejo de Seguridad Vial, la suma de cinco mil setecientos ochenta y cinco colones con cero céntimos (¢5.785,00).
