@@ -1,0 +1,1 @@
+Artículo 26°- El Ministerio de Salud determinará, vía resolución y cuando sea necesario, la lista de países no habilitados para el ingreso de personas extranjeras, la cual deberá comunicar a la Dirección General de Migración y Extranjería para lo correspondiente.

@@ -1,0 +1,2 @@
+ARTÍCULO 4°- De conformidad con el artículo 63 de la Ley General de Migración y Extranjería, Ley número 8764 del 19 de agosto de 2009, y el estado de emergencia nacional declarado mediante Decreto Ejecutivo número 42227-MP-S, el ingreso de personas extranjeras al territorio nacional solamente se permitirá bajo los supuestos y vías fronterizas establecidos en este Decreto Ejecutivo.
+En cuanto a lo demás casos que no estén autorizados en esta regulación, se restringe de manera temporal el ingreso al territorio nacional de las personas extranjeras.

@@ -1,0 +1,1 @@
+Articulo 20°.- Se designa y faculta a las personas funcionarias de la Dirección General de Migración y Extranjería competentes para ejercer control migratorio de salida del país, para que notifiquen la orden de impedimento de entrada referidas en el presente Decreto Ejecutivo.
