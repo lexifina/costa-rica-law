@@ -14,3 +14,4 @@ Lineamientos al reglamento para la prevención del riesgo de legitimación de ca
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-11-01 | la propia norma |
+| 2 | 2020-11-01 | Resolución 2136 (2020-06-23) |

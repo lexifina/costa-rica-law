@@ -224,7 +224,8 @@ d) Número de identificación.
 e) Tipo de identificación: cédula, pasaporte, cédula de residencia o cédula jurídica.
 f) Detalle si la transacción corresponde a un ingreso o a un egreso.
 g) Descripción de la transacción que incluya fecha, medio de pago utilizado, número de operación, moneda, monto individual y monto total.
-20.3 En caso de que las transacciones se realicen en diferentes tipos de moneda, el monto total se expresará en dólares, moneda de los Estados Unidos de América, al tipo de cambio de compra establecido por el Banco Central de Costa Rica al último día del mes.
+20.3 En caso de que las transacciones se realicen en diferentes tipos de moneda, el monto total se expresará en dólares, moneda de los Estados Unidos de América, al tipo de cambio de cierre del colón con respecto al dólar, utilizando el tipo de cambio de cierre indicado en el Reglamento de Información Financiera.
+(Así reformado el numeral anterior mediante resolución N° 2136 del 23 de junio del 2020)
 20.4 En el caso de los casinos registrarán la información de las transacciones múltiples realizadas por sus clientes, por un monto igual o superior a los US$3.000,00.
 20.5 Los comerciantes de metales preciosos y piedras preciosas registrarán la información de las transacciones múltiples realizadas por sus clientes, por un monto igual o superior a los US$15.000,00.
 21. Servicio de transferencia de dinero
