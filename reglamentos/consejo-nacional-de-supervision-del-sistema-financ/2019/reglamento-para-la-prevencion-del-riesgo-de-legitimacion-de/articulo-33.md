@@ -1,0 +1,3 @@
+Artículo 33. Capacitación
+El sujeto obligado debe capacitar, en materia de prevención de riesgo de LC/FT/FPASM, al menos una vez al año, a todo el personal, así como a sus representantes legales, apoderados, miembros de la junta directiva y miembros del órgano de vigilancia (fiscal o puesto equivalente)
+En caso de que el sujeto obligado subcontratado cuente con la capacitación anual antes mencionada. El sujeto obligado debe capacitar al personal de nuevo ingreso en materia de prevención del riesgo de LC/FT/FPADM. En los lineamientos general a este Reglamento se definirán los elementos mínimos que debe contener el programa de capacitación anual.

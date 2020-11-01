@@ -1,0 +1,3 @@
+Artículo 15. Personas expuestas políticamente (PEP)
+El sujeto obligado debe establecer un procedimiento para la identificación y aplicación de una debida diligencia reforzada a los clientes catalogados como Personas expuestas políticamente (PEP). El Reglamento general sobre legislación contra el narcotráfico, actividades conexas, legitimación de capitales, financiamiento al terrorismo y delincuencia organizada, establece quienes son consideradas Personas expuestas políticamente (PEP).
+La administración superior del sujeto obligado debe aprobar, el inicio de las relaciones comerciales con los clientes catalogados como PEP y la continuidad de las relaciones comerciales con clientes que sean identificados como PEP.

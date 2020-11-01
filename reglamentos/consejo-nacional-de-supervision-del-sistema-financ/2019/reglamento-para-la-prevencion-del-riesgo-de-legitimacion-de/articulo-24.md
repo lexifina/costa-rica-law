@@ -1,0 +1,7 @@
+CAPÍTULO VI
+OFICIAL DE CUMPLIMIENTO O PERSONA DE ENLACE
+Artículo 24. Oficial de cumplimiento o Persona de enlace
+El sujeto obligado debe designar un Oficial de cumplimiento a tiempo completo, o una Persona de enlace a tiempo completo o parcial, de conformidad con lo establecido en los lineamientos generales a este Reglamento. Esto, con el objeto de identificar las vulnerabilidades de exposición al riesgo de LC/FT/FPADM, y establecer métodos y acciones para la prevención de este riesgo.
+El sujeto obligado debe propiciar las condiciones necesarias para el Oficial de cumplimiento o Persona de enlace, que garanticen el desempeño eficiente de sus funciones y la toma de decisiones, dentro del ámbito de sus competencias. Además, debe garantizar que en caso de ausencia del titular, este sea sustituido por un funcionario que realice las funciones que le corresponden al primero.
+La Junta Directiva u órgano equivalente del sujeto obligado debe nombrar el Oficial de cumplimiento o Persona de enlace, según se dispone en los lineamientos generales a este Reglamento.
+El sujeto obligado debe comunicar a la Superintendencia y a la UIF del ICD, el nombramiento del Oficial de cumplimiento o Persona de enlace, en los casos que corresponda, en un plazo no mayor a tres días hábiles posteriores a su designación, incluyendo las calidades y/o atestados. Asimismo, debe comunicar la conclusión de la relación de cualquiera de ellos, y las justificaciones correspondientes.

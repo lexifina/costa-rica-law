@@ -1,0 +1,2 @@
+Artículo 12. Procedimiento para la clasificación del riesgo del cliente
+El sujeto obligado debe asignar una categoría de riesgo a cada cliente habitual mediante un procedimiento de clasificación de riesgo. Los elementos y criterios mínimos que debe considerar están definidos en los lineamientos generales a este Reglamento, y deben ser acordes con la naturaleza de las operaciones que lleva a cabo el sujeto obligado.

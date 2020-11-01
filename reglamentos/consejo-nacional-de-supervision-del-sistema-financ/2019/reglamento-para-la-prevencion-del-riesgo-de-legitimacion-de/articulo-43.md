@@ -1,0 +1,4 @@
+Artículo 43. Congelamiento o inmovilización establecidos en el artículo 33 bis de la Ley 7786
+Los sujetos obligados deben congelar o inmovilizar de forma inmediata los productos financieros, dinero, activos y bienes muebles o inmuebles, de las personas físicas o jurídicas, producto de las sanciones financieras dirigidas, designadas por el Consejo de Seguridad de la Organización de las Naciones Unidas en materia de terrorismo, financiamiento al terrorismo y financiamiento a la proliferación de armas de destrucción masiva, según lo establecido en el artículo 33 bis de la Ley 7786.
+Los sujetos obligados deben comunicar los resultados, del congelamiento o la inmovilización, a la Unidad de Inteligencia Financiera (UIF), dentro del plazo máximo establecido en la Ley 7786.
+Los sujetos obligados deben mantener un monitoreo permanente de las listas y las designaciones referidas.

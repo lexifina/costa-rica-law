@@ -1,0 +1,3 @@
+Artículo 18. Identificación de relaciones comerciales y/o transacciones con jurisdicciones catalogadas de riesgo
+El sujeto obligado debe identificar las relaciones comerciales y/o transacciones de sus clientes con países catalogados de riesgo por organismos internacionales en materia de LC/FT/FPADM, o cuando los fondos utilizados en la transacción, por instrucciones de su cliente, sean enviados o recibidos, hacia o desde los países antes mencionados.
+La administración superior del sujeto obligado debe aprobar la continuidad de las relaciones comerciales con estos clientes y debe establecer una debida diligencia reforzada.
