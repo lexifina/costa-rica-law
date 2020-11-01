@@ -22,3 +22,4 @@ Restricción vehicular con franja horaria diferenciada en determinados cantones 
 | 7 | 2020-08-21 | Decreto Ejecutivo 42559 (2020-08-21) |
 | 8 | 2020-08-27 | Decreto Ejecutivo 42579 (2020-08-27) |
 | 9 | 2020-09-30 | Decreto Ejecutivo 42631 (2020-09-30) |
+| 10 | 2020-11-01 | Decreto Ejecutivo 42693 (2020-11-01) |
