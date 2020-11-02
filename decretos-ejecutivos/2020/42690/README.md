@@ -14,3 +14,4 @@ Medidas migratorias temporales en el proceso de reapertura de fronteras en el ma
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-11-01 | la propia norma |
+| 2 | 2020-11-02 | Decreto Ejecutivo 42694 (2020-11-02) |
