@@ -1,5 +1,7 @@
 Transitorio 14
 A partir de esta modificación y hasta el 30 de junio de 2021, se autoriza al Superintendente General de Entidades Financieras para que con base en elementos de riesgos sistémicos o cuando sea necesario para salvaguardar la estabilidad del sistema financiero, previa resolución debidamente fundamentada, disponga la modificación de los parámetros que determinan los niveles de normalidad o de irregularidad para los indicadores de liquidez establecidos en el Artículo 6 de este Reglamento.
 Asimismo, se faculta al Superintendente General de Entidades Financieras para que con base en elementos de riesgos sistémicos o cuando sea necesario para salvaguardar la estabilidad del sistema financiero, previa resolución debidamente fundamentada, disponga la modificación de los parámetros que determinan los niveles de normalidad o de irregularidad para el indicador de rentabilidad establecidos en el Artículo 5 de este Reglamento.”
+(Nota de Sinalevi: Mediante sesión N° 1697 del 1° de noviembre de 2021, se acordó extender la aplicación del párrafo anterior. De conformidad con la sesión antes mencionad dicha ampliación entrará a regir a partir del 1° de enero de 2022, por lo que a partir de esa fecha se hará la respectiva ampliación.)
 (Así adicionado mediante sesión N° 1566-2020 del 23 de marzo de 2020)
 (Así reformado mediante sesión N° 1602-2020 del 31 de agosto del 2020)
+(Nota de Sinalevi: Mediante sesión N° 1617-del 2 de noviembre de 2020, se ordenó prorrogar hasta el 31 de diciembre de 2021, la facultad establecida en el presente transitorio)
