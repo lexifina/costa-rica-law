@@ -15,3 +15,4 @@ Prorroga el plazo de permanencia en el país de vehículos terrestres, aéreos o
 | --- | --- | --- |
 | 1 | 2020-05-19 | la propia norma |
 | 2 | 2020-05-19 | Resolución 245 (2020-05-19) |
+| 3 | 2020-11-02 | Resolución 489 (2020-11-02) |
