@@ -14,3 +14,4 @@ Tarifas aplicables a la publicación de documentos en Diarios Oficiales de la Im
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-12-06 | la propia norma |
+| 2 | 2020-11-03 | Acuerdo 158 (2020-11-03) |
