@@ -1,0 +1,1 @@
+Artículo 15.—Derogatoria. Deróguese la Nº DGT-R-08-2018, dictada por la Dirección General de Tributación a las ocho horas del 7 de febrero de 2018, denominada “Resolución de requisitos para realizar todo tipo de trámite ante la Dirección General de Tributación relacionado con la Acreditación, Representación y el Mandato, y con la Autenticación de firmas” y sus reformas.

@@ -1,0 +1,1 @@
+Artículo 12.—Actuación de apoderados no acreditados. Aun cuando no estén acreditados los apoderados ante la Administración Tributaria, si demuestran poder legal suficiente podrán apersonarse y actuar en el procedimiento o trámite específico.

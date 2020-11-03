@@ -1,0 +1,8 @@
+CAPÍTULO II
+Requisitos para la acreditación de representante
+legal y apoderados
+Artículo 2º—Deber de acreditación del representante legal ante la Administración Tributaria. Las personas jurídicas deberán acreditar ante el Registro Único Tributario a su representante legal en las condiciones establecidas por el inciso b) del artículo 8º de la resolución DGT-R-60-2017 de 20 de diciembre del 2017.
+Asimismo, deberá acreditarse el Tutor y el Garante para la igualdad jurídica de las personas con discapacidad, cuando las personas sujetas a su cuidado sean obligadas tributarias. Para ello deben llenar el formulario que la Administración Tributaria disponga para tal efecto y presentarlo debidamente firmado, conjuntamente con la certificación respectiva o referencia de la misma si es digital, ante la Administración en que estén adscritos.
+En el supuesto de que el Garante para la igualdad jurídica de las personas con discapacidad sea una persona jurídica, se acreditará su representante legal conforme al artículo 7 de esta resolución.
+La Administración Tributaria podrá notificar válidamente al representante legal todo tipo de documentos que inicien actuaciones relativas a su representado. No obstante, para actuar en nombre del obligado tributario en cualquier trámite ante la Administración Tributaria, el representante legal deberá tener su nombramiento vigente.
+Cuando el representante legal esté domiciliado en el extranjero, su domicilio es el mismo del establecimiento permanente en el país, según las disposiciones de los artículos 26 y 27 del Código de Normas y Procedimientos Tributarios.
