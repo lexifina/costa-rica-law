@@ -14,3 +14,4 @@ Reglamento para el establecimiento y cobro de tarifas y multas por el incumplimi
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-10-30 | la propia norma |
+| 2 | 2020-11-03 | Reglamento municipal 44 (2020-11-03) |
