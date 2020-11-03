@@ -2,7 +2,8 @@ Artículo 40.—Atribuciones. Además de las funciones que le establece la ley, 
 A) Actuará como jefe superior de todas las dependencias de la Junta y de su personal, excepto de la Auditoría Interna. No podrá nombrar temporal ni permanentemente como miembros del personal a parientes hasta el tercer grado por afinidad o consanguinidad, suyos o de los miembros de Junta Directiva, personal de la Institución, directivas de las asociaciones, colegios, sindicatos y organizaciones laborales que tienen representación en la Junta Directiva según el artículo 98 de la Ley 7531.
 B) Atender las relaciones con los personeros del Estado, los bancos y demás instituciones públicas, procurando la aplicación de los lineamientos generales del Magisterio Nacional, de acuerdo con las directrices que dicte la Junta Directiva.
 C) Asesorar a la Junta Directiva.
-D) Orientar, planificar, supervisar y controlar la actividad de todas las dependencias administrativas.
+D. Orientar, planificar, supervisar y controlar la actividad de todas las dependencias administrativas, de acuerdo con la estructura organizativa de JUPEMA.
+(Así reformado el inciso anterior mediante sesión ordinaria N° 0122-2020 del 3 de noviembre del 2020)
 E) Tomar las disposiciones para el mejoramiento del servicio y la buena marcha de la institución así como nombrar y remover el personal administrativo.
 F) Velar por el cumplimiento oportuno de los acuerdos de la Junta Directiva.
 G) Someter anualmente a conocimiento de la Junta Directiva el Plan Anual Operativo y el Presupuesto de operación de gastos e ingresos de la Junta.

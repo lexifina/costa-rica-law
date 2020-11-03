@@ -2,7 +2,7 @@ TÍTULO II
 De la Junta Directiva
 CAPÍTULO I
 De las atribuciones y obligaciones de la Junta Directiva
-Artículo 6º—Competencias de la Junta Directiva. Además de las otras funciones, competencias y obligaciones que le imponen los artículos 104 y 105 de la Ley 7531, compete a la Junta Directiva:
+Artículo 6º—Competencias de la Junta Directiva Además de las otras funciones, competencias y obligaciones que le imponen los artículos 104 y 105 de la Ley 7531, compete a la Junta Directiva:
 A) Dictar las políticas para la correcta administración de los Fondos de Pensiones del Magisterio Nacional que por ley se le han asignado, con estricto apego de los Principios Constitucionales de Solidaridad, Justicia Social, Equidad y Seguridad Social.
 B) Establecer las políticas de inversiones para los Fondos que administra, como mejor convenga a los intereses del Magisterio Nacional, procurando que en todo momento medien condiciones de máxima seguridad y rentabilidad.
 C) Aprobar el monto de la reserva matemática que respaldará el financiamiento del perfil de beneficios para cada fondo del régimen que sea administrado por la Junta.
@@ -17,5 +17,6 @@ K) Instar los procedimientos de rigor tendientes a la modificación de las cotiz
 L) Contratar o cesar las asesorías que considere necesarias para la toma de políticas institucionales.
 M) Velar por la correcta recaudación de los recursos del Fondo Especial de Administración y utilizarlo con prudencia y frugalidad.
 N) Formular y aprobar el Plan Estratégico de la Institución, velar por su ejecución y actualizarlo al menos cada dos años.
-Ñ) Nombrar a los miembros de la Comisión de Inversiones y del Comité de Riesgos.
+Ñ. Nombrar a los miembros del Comité de Inversiones y del Comité de Riesgos, así como cualquier otro comité o comisión normativo en el que se requiera la participación de directivos.
 (Así adicionado el inciso anterior mediante sesión ordinaria N° 056-2013 del 23 de mayo del 2013)
+(Así reformado el inciso anterior mediante sesión ordinaria N° 0122-2020 del 03 de noviembre de 2020)

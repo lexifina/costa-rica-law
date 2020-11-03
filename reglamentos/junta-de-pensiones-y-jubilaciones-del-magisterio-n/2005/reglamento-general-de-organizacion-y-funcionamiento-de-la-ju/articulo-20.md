@@ -1,6 +1,7 @@
 Artículo Nº 20: De la asistencia a sesiones
 Las sesiones de Junta Directiva iniciarán puntualmente a la hora indicada en la convocatoria con la presencia de todos sus integrantes. De no contarse a esa hora con la presencia de la totalidad de sus miembros, la sesión iniciará quince minutos después con los miembros presentes, siempre y cuando exista el cuórum de ley.
-Asistirán de manera permanente el Director Ejecutivo y con carácter excepcional otros funcionarios o asesores previamente convocados por Junta Directiva, concediéndoles el derecho de participar en las deliberaciones con voz, pero sin voto.
+Asistirán de manera permanente el Director Ejecutivo, y con carácter excepcional otros trabajadores o asesores previamente convocados por Junta Directiva, concediéndoles el derecho de participar en las deliberaciones con voz, pero sin voto.
+(Así reformado el párrafo anterior mediante sesión ordinaria N° 0122-2020 del 3 de noviembre del 2020)
 De igual forma, cuando así lo estimen conveniente estos participantes, podrán solicitar que conste en el acta su intervención.
 El Auditor Interno, participará en las sesiones que celebre la Junta Directiva, cuando sea convocado formalmente por el Jerarca para una asesoría específica o cuando el Auditor Interno lo solicite, porque se requiere para el cumplimiento de sus funciones.
 Dicha asistencia se norma con los siguientes lineamientos:
