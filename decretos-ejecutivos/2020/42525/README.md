@@ -14,3 +14,4 @@ Reforma Restricción vehicular diurna ante el estado de emergencia nacional en t
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-08-10 | la propia norma |
+| 2 | 2020-11-03 | SINALEVI (sin norma nombrada) |
