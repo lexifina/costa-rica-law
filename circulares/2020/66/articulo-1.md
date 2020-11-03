@@ -1,4 +1,5 @@
 Nº 66-2020
+(Nota de Sinalevi: Esta norma fue reiterada mediante circular N° 86-2021 del 28 de abril de 2021, y publicada en el Boletín Judicial N° 95 del 19 de mayo de 2021)
 ASUNTO: Marco regulatorio general para la tutela del derecho a la salud y la vida de las personas servidoras del Poder Judicial, personas usuarias y sus familias y garantizar la continuidad de los de servicios judiciales, con motivo de la emergencia sanitaria provocada por el virus COVID-19.
 A LOS DESPACHOS JUDICIALES DEL PAÍS, ABOGADOS,
 ABOGADAS Y PÚBLICO EN GENERAL
@@ -11,6 +12,7 @@ Este Consejo Superior en sesión extraordinaria virtual celebrada el 8 de abril 
 1.1. Sobre la autorización de licencias con goce de salario en los casos calificados en que la prestación de labores implique riesgo para la vida, salud y seguridad de las personas colaboradoras y sus familias, así como las de sus compañeros y los usuarios de los servicios:
 1.1.1. Se mantiene la autorización por el plazo definido por la Corte Plena o el Consejo Superior a las Jefaturas, Coordinadores, Titulares Subordinados, o a quien corresponda según la estructura orgánica de cada área de trabajo, a otorgar licencia o permiso con goce de salario a las personas servidoras judiciales que se mantengan laborando de manera presencial cuyos puestos no sean teletrabajables y que se encuentren en las siguientes condiciones:
 1.1.1.1. Personas cuidadoras de algún enfermo con COVID-19.
+(Nota de Sinalevi: Mediante circular N° 247-2020 del 3 de noviembre de 2020, y publicada en el Boletín Judicial N° 232 del 3 de diciembre de 2020, se acordó aclarar el punto anterior en el sentido de que solo se otorgará licencias o permiso con goce de salario a las personas servidoras judiciales que se mantengan laborando de manera presencial cuyos puestos no sean teletrabajables y que se encuentren -entre otros- en la siguiente condición: 1.1.1.1 Personas cuidadoras de algún enfermo con COVID-19, siempre y cuando ambos habiten en la misma casa.)
 1.1.1.2. Personas servidoras judiciales que convivan con alguna persona sospechosa de tener el contagio del COVID-19.
 1.1.1.3. Personas servidoras judiciales que convivan o tengan contacto con una persona portadora del virus.
 1.1.1.4. Personas servidoras judiciales que presenten síntomas del virus, por el plazo hasta que la unidad sanitaria establezca que ya no existe riesgo de contagio.
@@ -288,6 +290,7 @@ c) Medidas higiénicas en el domicilio:
 • En el momento en que se presenten casos de transmisión activa en el país (persona a persona) se recomienda el uso de mascarilla N99, la cual cuenta con una vida útil de 28 días. En este caso, se recalca la necesidad del uso correcto de la misma para evitar que se contamine y mantener el lavado constante de las manos.
 5. Advertencias y otras disposiciones:
 5.1. Las personas meritorias no podrán prestar su colaboración en ningún despachos y oficinas judiciales del país, durante el término de vigencia de las presentes disposiciones:
+(Nota de Sinalevi: Mediante sesión N° 79-2021 del 9 de setiembre de 2021, publicada en el Boletín Judicial N° 204 del 22 de octubre del 2021 mediante circular N° 222 del 11 de octubre del 2021 se reitera nuevamente el punto 5.1 anterior)
 5.2. Se advierte que el objetivo de las medidas adoptadas en la presente circular y que signifiquen la no prestación personal del servicio, se funda en el deber de que las personas servidoras permanezcan en su casa, por lo que su incumplimiento puede acarrear la apertura de causas disciplinarias.
 5.3. Las disposiciones particulares en lo que corresponde a cada jurisdicción, se definirán en la circular 67-2020.
 5.4. Las disposiciones correspondientes a la prestación de servicios en el Ministerio Publico, Organismo de Investigación Judicial y Defensa Pública serán emitidas por la Fiscal General y el Director y Directora respectivos, conforme a las características de la labor y en el entendido de las necesarias coordinaciones que se requieran para asegurar la continuidad del servicio.

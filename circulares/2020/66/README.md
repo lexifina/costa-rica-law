@@ -18,3 +18,4 @@ Marco regulatorio general para la tutela del derecho a la salud y la vida de las
 | 4 | 2020-05-03 | Circular 89 (2020-05-03) |
 | 5 | 2020-05-12 | Circular 96 (2020-05-12) |
 | 6 | 2020-07-06 | Circular 143 (2020-07-06) |
+| 7 | 2020-11-03 | Circular 247 (2020-11-03) |
