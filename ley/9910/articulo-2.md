@@ -1,0 +1,6 @@
+ARTÍCULO 2- Se reforma el transitorio XXIV de la Ley 9078, Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial, de 4 de octubre de 2012, adicionado por la Ley 9838, Modificación de la Ley de Tránsito por Vías Públicas y Seguridad Vial, Ley 9078, de 4 de octubre de 2012 y sus Reformas, para Establecer la Restricción Vehicular en Casos de Emergencia Nacional Previamente Decretada, de 3 de abril de 2020. El texto es el siguiente:
+Transitorio XXIV- La totalidad del dinero recaudado por las multas establecidas por la restricción vehicular en emergencia nacional, en el marco de la emergencia nacional por la pandemia de COVID-19 declarada por el Gobierno, se usará para financiar a la Caja Costarricense del Seguro Social (CCSS). Esta disposición tendrá efectos desde que se decrete la emergencia nacional hasta el levantamiento de esta.
+Para el cumplimiento de lo señalado en el presente transitorio no se aplicará lo señalado en el artículo 234 de la Ley 9078, Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial, de 4 de octubre de 2012, únicamente en lo que respecta a multas por infracción a la restricción vehicular sanitaria.
+Rige a partir de su publicación.
+Dado en la Presidencia de la República, San José, a los treinta días del mes de octubre del año dos mil veinte.
+EJECÚTESE Y PUBLIQUESE.
