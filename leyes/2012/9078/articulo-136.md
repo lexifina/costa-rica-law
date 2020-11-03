@@ -4,5 +4,5 @@ a) Acumulará doce puntos el conductor condenado en sentencia firme por la comis
 b) Acumulará seis puntos el conductor que haya cometido alguna de las infracciones categoría A de esta ley y quien, por irrespetar la señal de alto en el derecho de vía ferroviario, colisione contra el tren o alguno de sus vagones.
 (Así reformado el inciso anterior por el artículo 1° de la ley N° 9680 del 22 de abril del 2019)
 c) Acumulará cuatro puntos el conductor que haya cometido alguna de las infracciones categoría B de esta ley.
-d) Acumulará seis puntos el conductor que, declarada una emergencia nacional, irrespete la restricción vehicular que con ocasión de esta se llegue a establecer.
+d) (Derogado por el artículo 1° de la Ley para el equilibrio de las multas por restricción vehicular en casos de emergencia nacional, N° 9910 del 30 de octubre del 2020)
 (Así adicionado el inciso anterior por el artículo 2° de la ley Establece la restricción vehicular en casos de emergencia nacional previamente decretada, N° 9838 del 3 de abril del 2020)
