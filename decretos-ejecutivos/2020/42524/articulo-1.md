@@ -1,4 +1,6 @@
+(Suspendida)
 N° 42524-MOPT- S
+(Nota de Sinalevi: Mediante resolución N° 552-2020 del 3 de noviembre del 2020 del Tribunal Procesal Contencioso Administrativo y Civil de Hacienda, se ordenó la suspension de este decreto ejecutivo en lo que respecta a la restricción vehicular. Asimismo se indica en la sentencia en mención que esta medida cautelar queda condicionada a que se cumpla lo establecido en el numeral 26, del CPCA, que en lo que interesa dice: "Art. 26. 1) (...). 2) En caso de que la medida cautelar sea concedida, la demanda deberá presentarse en el plazo de quince días, contados a partir del día siguiente de la notificación del auto que la acoge; de lo contrario, se ordenará su levantamiento y se condenará a la parte solicitante al pago de los daños y perjuicios causados, los cuales se liquidarán por el trámite de ejecución sentencia.", lo cual deberá realizarse bajo este mismo número de expediente esta de medida cautelar.)
 EL PRESIDENTE DE LA REPÚBLICA,
 EL MINISTRO DE OBRAS PÚBLICAS Y TRANSPORTES Y
 EL MINISTRO DE SALUD
