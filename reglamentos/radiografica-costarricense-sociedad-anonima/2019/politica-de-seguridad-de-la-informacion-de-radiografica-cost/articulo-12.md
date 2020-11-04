@@ -1,1 +1,0 @@
-Artículo 12.—Los funcionarios son responsables conforme a la legislación vigente de sus claves de acceso y la información que acceden y procesan mediante cualquier activo de soporte (físico, correo electrónico, internet, entre otros similares) y darán un uso adecuado a la misma con el fin de evitar el robo, fuga de información a terceros no autorizados.

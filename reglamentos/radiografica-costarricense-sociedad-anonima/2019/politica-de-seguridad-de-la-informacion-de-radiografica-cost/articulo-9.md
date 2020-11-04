@@ -1,1 +1,0 @@
-Artículo 9°—Los responsables de los procesos empresariales -directores y jefaturas- deberán clasificar toda la información que se genera en su proceso de acuerdo con su nivel confidencialidad, integridad y disponibilidad, siguiendo los procedimientos aprobados.

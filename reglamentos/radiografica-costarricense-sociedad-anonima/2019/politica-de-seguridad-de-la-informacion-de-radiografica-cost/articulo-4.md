@@ -1,1 +1,0 @@
-Artículo 4°—La Gerencia General creará los lineamientos técnicos, administrativos y jurídicos que instrumentalicen esta política, mismos que son de acatamiento obligatorio para funcionarios y terceros que posean información de RACSA.
