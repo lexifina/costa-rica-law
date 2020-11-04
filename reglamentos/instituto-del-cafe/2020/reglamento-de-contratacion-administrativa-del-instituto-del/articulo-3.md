@@ -1,0 +1,37 @@
+Artículo 3.- Definiciones
+Para efectos del presente Reglamento de Contratación Administrativa, se entenderá por:
+Áreas Operativas: Son las diferentes dependencias del ICAFE, que se encuentran adscritas a la Junta Directiva, Dirección Ejecutiva, o a una Gerencia o a su vez la Auditoría como área independiente y que funcionan bajo la autoridad de una Jefatura. Se incluyen bajo este concepto las sedes regionales. Son las responsables de generar y presentar la solicitud de compra de bienes (SBS), servicios u obras, la plantilla de “Decisión Inicial” y demás documentos de orden técnico que la Unidad de Contratación Administrativa, requiera para dar trámite a la contratación.
+Auditoría Interna: Auditoría Interna del ICAFE: Dependencia a cargo del Auditor Interno, que asume la fiscalización de los entes ICAFE, FONECAFE y FONASCAFE y cualquier otro órgano sujeto a su competencia conforme lo dispone la Ley General de Control Interno No. 8292, la normativa jurídica y técnica aplicable.
+Cartel o Pliego de Condiciones: Documento elaborado por la Unidad de Contratación Administrativa en conjunto con la Unidad solicitante, en el cual se definen claramente los requisitos generales, legales y técnicos del objeto, servicio u obra a contratar y cuya finalidad busca satisfacer el interés público, el cual será autorizado en cualquier caso por la Jefatura de la Unidad Solicitante.
+ICAFE: Instituto del Café de Costa Rica.
+Junta: Junta Directiva del Instituto del Cafè de Costa Rica: Máxima autoridad jerárquica del ICAFE. Es la encargada de la aprobación de políticas, directrices y reglamentos destinados a organizar, coordinar y mejorar la gestión del ICAFE en función de sus objetivos y fines para los cuales fue creado.
+Dirección Ejecutiva: Autoridad Jerárquica Administrativa de mayor rango en la organización supeditada a la Junta directiva, que rige y controla la gestión y administración del ICAFE. La Dirección Ejecutiva se compone de un Director Ejecutivo y un Subdirector Ejecutivo.
+Contraloría: Contraloría General de la República.
+Expediente administrativo: Legajo físico y/o archivo electrónico que deberá contener todas las actuaciones, internas y externas en el orden cronológico correspondiente a su presentación, y relativas a un trámite de Contratación Administrativa específico, el cual debe ser completo desde el inicio del procedimiento de contratación hasta el cierre del expediente.
+Encargado General de la Contratación o fiscalizador: Funcionario(a) expresamente designado(a) por el ICAFE o por los titulares de las Gerencias solicitantes, para fungir como contraparte técnica en los contratos realizados por el ICAFE, quien(es) asumirá(n) la responsabilidad de velar por la correcta ejecución del contrato. Cuando esta función sea desempeñada por varios funcionarios, se deberá establecer la responsabilidad particular de cada uno y de no hacerse, se entenderá para todos los casos que la responsabilidad es compartida solidariamente.
+Gerencia de Administración y Finanzas: Área funcional, que depende directamente de la Dirección Ejecutiva y comprende todos los servicios de apoyo que requieren las demás Unidades de la Institución, en los siguientes campos: Recurso Humanos, Servicios Administrativos, Financieros y Contables, Control Interno y Evaluación de Riesgo, entre otros.
+Gerencia de Promoción y Proyectos: Área funcional que contribuye con el desarrollo de la actividad cafetalera a partir de la realización de actividades orientadas a la promoción del café de Costa Rica dentro y fuera del país.
+Gerencia Técnica: Área funcional encargada de apoyar el desarrollo de la actividad cafetalera y la diversificación agrícola apoya el proceso de beneficiado y exportación e investiga y desarrolla en el campo agrícola e industrial.
+Junta Directiva: Máxima autoridad jerárquica del ICAFE. Es la encargada de la aprobación de políticas, directrices y reglamentos destinados a organizar, coordinar y mejorar la gestión del ICAFE en función de sus objetivos y fines para los cuales fue creado.
+Plantilla de inicio de procedimiento: Es un documento imprescindible para dar inicio al procedimiento de Contratación Administrativa dado a que constituye la decisión inicial, en que se definen los requisitos y especificaciones técnicas del bien, servicio u obra por adquirir, emitido por la Gerencia y/o unidad solicitante. Es un documento que se debe adjuntar a la SBS, que detalla:
+a) el objeto a contratar,
+b) el número de SBS al cual está asociado,
+c) la justificación de que la contratación se encuentra asociada al plan anual de compras,
+d) justificación del procedimiento de contratación,
+e) indicar que cuenta con el contenido presupuestario necesario,
+f) descripción detallada del objeto y especificaciones técnicas,
+g) plazo y lugar (dirección exacta) de entrega,
+h) forma de pago,
+i) indica funcionario(a) que verificará y dará seguimiento al cumplimiento de la contratación,
+j) adjunta estudio de mercado sobre la estimación del costo,
+k) señala los requisitos administrativos para la compra
+l) incluye en los casos que aplica archivos adjuntos o documentación necesaria para la compra.
+Unidad de Contratación Administrativa: Dependencia adscrita a la Gerencia de Administración y Finanzas del ICAFE, la cual funge como órgano técnico institucional competente en la conducción de los procedimientos de Contratación Administrativa, del ICAFE.
+SICA: Sistema de Contratación Administrativa utilizado por el Instituto del Café de Costa Rica para los procesos de compra.
+Unidad solicitante: La Dirección Ejecutiva, Auditoria Interna, Gerencias, Jefaturas y Oficinas Regionales que solicitan la contratación, la cual es responsable de la ejecución de los contratos que solicite o ejecute.
+Ley N° 2762: Ley Sobre el Régimen de Relaciones entre Productores, Beneficiadores y Exportadores de Café y sus reformas.
+Proveedor: Persona física o jurídica incluida en el Registro de Proveedores que cuenta con todas la facultades técnicas y legales para el suministro de bienes y servicios u obras al ICAFÉ.
+Registro de Proveedores: Instrumento físico y electrónico donde figuran las personas físicas o jurídicas que han cumplido los requisitos legales y técnicos para ser tomados en cuenta en los procesos de Contratación Administrativa que promueva el ICAFE.
+Sedes Regionales: Son las diferentes dependencias del ICAFE ubicadas estratégicamente en algunas regiones del país que y que funcionan bajo la autoridad de una Jefatura. Son las responsables de generar y presentar la solicitud de compra de bienes (SBS), servicios u obras, la plantilla de “Decisión Inicial” y demás documentos de orden técnico que la Unidad de Contratación Administrativa, requiera para dar trámite a la contratación.
+Solicitud de Bienes y Servicios (SBS): Formulario elaborado en el NAF con la descripción del objeto a adquirir, especificaciones técnicas, características, estimación actualizada del costo del objeto, cantidades requeridas, unidad de medida de los bienes y servicios u obras contratadas, cuenta contable para uso presupuestario, justificación de la procedencia de la contratación, con las autorizaciones que corresponden y demás elementos necesarios para el inicio del proceso de Contratación Administrativa.
+Unidad de Asuntos Jurídicos: Dependencia encargada de brindar soporte , apoyo y asesoría legal a la Junta Directiva del ICAFE, Dirección y Subdirección Ejecutiva, así como a las demás áreas operativas de la organización.

@@ -1,0 +1,6 @@
+Artículo 179. Obligaciones de Junta Directiva: Las obligaciones de Junta Directiva respecto al reglamento interno de Contratación Administrativa serán las siguientes:
+a) La Junta Directiva del ICAFÉ como máximo órgano jerárquico es la encargada de aprobar el Presupuesto Institucional.
+b) Velar porque se le suministre a la Unidad de Contratación Administrativa todos los recursos humanos y materiales que necesite para el desarrollo de las funciones encomendadas en el presente reglamento.
+c) Aprobar el reglamento interno de Contratación Administrativa y sus modificaciones
+d) La autorización para la enajenación de bienes del ICAFE, así como las autorizaciones para viajes al exterior, será competencia exclusiva de la Junta Directiva, que, mediante acuerdo firme y ejecutable girará las instrucciones para proceder con los procedimientos internos para efectuar dichas enajenaciones y adquisiciones.
+e) Compete a la Junta Directiva, de conformidad con la normativa interna del ICAFE, los actos de adjudicación en las Contrataciones Públicas. Asimismo, la Junta Directiva, con el asesoramiento legal que corresponda, emitirá las resoluciones de los recursos referentes a las Contrataciones Públicas.

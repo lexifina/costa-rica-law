@@ -1,0 +1,2 @@
+Transitorios
+I.-Los procedimientos que al entrar en vigencia esta modificación cuenten con la publicación o con la invitación para participar, continuarán su trámite hasta el final conforme con las formalidades propias del procedimiento iniciado.

@@ -1,0 +1,2 @@
+Artículo 118.- Modificación del procedimiento de contratación infructuoso
+Si un procedimiento de contratación resulta infructuoso, la Administración podrá tramitar un procedimiento de una jerarquía inferior al procedimiento utilizado. Para tales efectos, la dependencia administrativa competente para adjudicar la contratación declarada infructuosa deberá autorizar el procedimiento de menor jerarquía que se propone utilizar, previa valoración de las circunstancias que concurrieron para que el negocio resultara infructuoso.

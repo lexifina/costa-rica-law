@@ -1,0 +1,2 @@
+Artículo 159 bis.- Traslado del informe a la Dirección Ejecutiva
+Una vez que la jefatura de Contrataciòn Administrativa recibe la solicitud de resolución contractual, dentro del plazo de 3 días hábiles posteriores a la recepción del citado informe y una vez realizado el análisis respectivo, deberá trasladar el informe de resolución contractual a la Dirección Ejecutiva, quien a su vez, remitirá el expediente administrativo de la contratación con la finalidad de determinar el inicio del procedimiento administrativo de resolución contractual.

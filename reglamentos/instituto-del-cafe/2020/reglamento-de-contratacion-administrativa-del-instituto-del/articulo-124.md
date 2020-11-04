@@ -1,0 +1,6 @@
+Artículo 124.- Presentación del recurso
+Todo recurso debe presentarse en el lugar y dentro de los plazos previstos en el presente Reglamento.
+El recurso podrá ser presentado por correo electrónico en conjunto con los documentos que consideren pertinentes. En este caso, el recurso debera estar firmado mediante el certificado digital respectivo por quien se encuentre debidamente legitimado. En tales casos, la presentación del recurso se tendrá como realizada al momento de recibirse el correo electrónico por quien dirige el expediente de contratacion administrativa o la fecha desplegada en el sistema que se destine al efecto para la recepción de recursos.
+Cuando exista imposibilidad para la presentación electrónica del recurso, se debera presentar por medios físicos, en donde se debe presentar en original debidamente firmado y tantas copias como partes haya en el expediente.
+En caso de que el recurso no se presente dentro del plazo resepctivo la gestión será rechazada por extemporaneo.
+Para la presentación de recursos, también podrán utilizarse por diferentes medios electrónicos que destine y comunique oportunamente la Institucion, siempre y cuando se garantice, al menos, la integridad del documento, la identidad del emisor y el momento de presentación, una vez que sea debidamente autorizado por las autoridades competentes.

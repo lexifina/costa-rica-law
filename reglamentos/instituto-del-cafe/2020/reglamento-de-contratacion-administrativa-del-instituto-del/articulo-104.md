@@ -1,0 +1,4 @@
+Artículo 104.- Adjudicación
+La adjudicación de las Contrataciones Generales será realizada por La Direccion o Subdirección Ejecutiva, en un plazo no mayor de treinta días hábiles contados a partir del día de la apertura de ofertas, prorrogable por un plazo igual en casos debidamente justificados.
+Vencido dicho plazo sin que se haya dictado el acto de adjudicación, los oferentes tendrán derecho a dejar sin efecto su propuesta y a que se les devuelva la garantía de participación, sin que les resulte aplicable sanción alguna.
+En caso de anulación o revocación del acto de adjudicación, la readjudicación o declaratoria de infructuoso o de desierto del concurso deberá dictarse dentro del plazo de un mes contado a partir del día siguiente al de la notificación de la respectiva resolución. Este plazo no podrá ser prorrogado.

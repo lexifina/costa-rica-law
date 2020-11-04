@@ -1,0 +1,6 @@
+Sección Segunda
+Estudio de ofertas
+Artículo 74.- Apertura de oferta
+Se tendrá por cerrado el plazo de recepción de ofertas a la hora y fecha señaladas en el cartel o en el sistema de compras creado al efecto. De inmediato, el funcionario encargado de la Unidad de Contratación Administrativa procederá a abrir las propuestas en presencia de los asistentes y rendirá el informe correspondiente haciendo constar sus datos generales, así como cualquier incidencia relevante del acto. O en su defecto, se gestionara mediante el sistema electrónico Institucional creado al efecto.
+De hacerse la apertura de manera física y no por medios electronicos, los oferentes o sus representantes tendrán derecho a examinar las demás ofertas y hacer constar sus observaciones en el acta, sin que sea procedente resolver en el mismo acto las preguntas y reclamos que dirijan, aunque sí deben considerarse dentro del estudio de ofertas.
+Cuando se acuda a la contratación por medios electrónicos, la Administración debe asegurarse que los sistemas utilizados garanticen la apertura de ofertas en la hora y fecha señalada y que una vez que se hubiese dado ese acto, se permita conocer las generalidades de las ofertas presentadas.

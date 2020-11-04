@@ -1,0 +1,3 @@
+Artículo 142.- Utilización de la orden de compra
+El documento de ejecución presupuestaria denominado “Orden de Compra”, en el tanto incluya la descripción del bien, nombre del contratista, plazo de entrega y monto del contrato, constituirá instrumento idóneo junto al expediente administrativo en que se sustenta, para que se ejerza la fiscalización del procedimiento, así como para continuar con los trámites de ejecución contractual y pago respectivo, todo bajo responsabilidad del funcionario fiscalizador del procedimiento. .
+En estos casos previa entrega de la “Orden de Compra”, el contratista debe presentar comprobante de pago de las especies fiscales correspondientes, así como la garantía de cumplimiento cuando se hubiera así solicitado en la contratación.

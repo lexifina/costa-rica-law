@@ -1,0 +1,3 @@
+Capitulo XII
+Plan Anual de Compras
+Artículo 183. Estimación del Plan de Compras: Durante el proceso de formulación del presupuesto institucional, para cada período presupuestario, las unidades operativas deberán estimar su Plan Anual de Compras en forma trimestral y anual, el cual debe estar sujeto a la vez a su respectivo presupuesto y Plan Anual Operativo aprobado por Junta Directiva . Lo anterior, debe ser coordinado con la Gerencia de Administración y Finanzas y entregado a dicha Gerencia a más tardar 15 días naturales posterior a la aprobación del Presupuesto y Plan Anual Operativo institucional por parte del Órgano Colegiado.

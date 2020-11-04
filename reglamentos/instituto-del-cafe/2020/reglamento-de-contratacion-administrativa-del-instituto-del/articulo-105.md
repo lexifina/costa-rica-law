@@ -1,0 +1,5 @@
+Sección Tercera
+Contratación Abreviada
+Artículo 105.- Montos de la Contratación Abreviada
+Se podrá utilizar el procedimiento de Contratación Abreviada en aquellas contrataciones iguales o mayores a ₡300.000,00 e inferiores a ₡18.070.000,00. Para el caso de obra publica serán aquellas contrataciones iguales o mayores a ₡300.000,00 pero inferiores a ₡28.060.000,00. En estos casos, la Unidad de Contratación Administrativa deberá incorporar en el expediente el estudio de mercado que incluya el análisis de al menos dos cotizaciones de proveedores para el bien o servicio a contratar para determinar la razonabilidad del precio. En el caso de cotizaciones aportadas por la Unidad solicitante esta deberá acreditar que el contratista propuesto es idóneo y que garantiza el fiel cumplimiento de sus obligaciones de conformidad con lo solicitado.
+Con fundamento en lo anterior, la Unidad de Contratacion Administrativa emitirá la resolución respectiva; la cual no tendra recurso alguno y procederá a la formalizacion respectiva con el proveedor.

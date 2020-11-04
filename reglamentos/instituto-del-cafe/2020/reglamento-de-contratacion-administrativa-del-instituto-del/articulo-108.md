@@ -1,0 +1,2 @@
+Artículo 108.- Exceso en el límite aplicable a la Contratación Abreviada
+Cuando se haya adoptado el procedimiento de Contratación Abreviada con fundamento en la estimación preliminar del negocio, y una vez hecho el análisis se determine que la oferta ganadora supera en no más de un veinte por ciento el monto límite para la aplicación del procedimiento correspondiente, no se invalidará la contratación si se dispone de recursos presupuestarios suficientes para asumir la erogación.

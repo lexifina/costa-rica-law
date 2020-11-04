@@ -1,0 +1,1 @@
+Artículo 186. Cambios en el Programa de Adquisiciones de Bienes y Servicios: Los cambios producidos en el Programa de Adquisiciones de Bienes y Servicios deberán seguir los procedimientos de modificación, reclasificación, reasignación y aprobación emitidos por la Institución.

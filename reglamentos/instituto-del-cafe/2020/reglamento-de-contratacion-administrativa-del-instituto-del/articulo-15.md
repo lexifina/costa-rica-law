@@ -1,0 +1,2 @@
+Artículo 15.- Capacidad de actuar
+Se presume la capacidad de actuar de todo oferente, por lo que esa condición solamente deberá acreditarse por parte del adjudicatario. En el caso de los contratistas nacionales, tal acreditación se hará mediante certificación del asiento de su inscripción en el Registro Público correspondiente y en el caso de contratistas extranjeros, lo harán mediante los documentos usuales expedidos en su país de origen, los cuales deberán reunir toda la formalidad que la Administracion considere oportuna.

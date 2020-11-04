@@ -1,0 +1,5 @@
+Artículo 50.- Condiciones invariables
+En el cartel se deberá exigir el cumplimiento obligatorio de aquellos requisitos, cuando corresponda.
+Dentro de estas condiciones invariables y según el objeto de que se trate, la Unidad solicitante deberá establecer requisitos mínimos tales como: experiencia, certificaciones, personal calificado, etc, así como también las especificaciones técnicas, el plazo de la contratación y cualquier otro aspecto que considere relevante. Una vez analizada la solicitud, la Unidad de Contratación Administrativa podrá recomendar requisitos adicionales que considere pertinentes tales como la capacidad financiera.
+Las condiciones invariables deben orientarse a la selección de la oferta más conveniente a los intereses de la Administración.
+El oferente, estará obligado a describir de forma completa a partir del cartel, las características del objeto, bien o servicio que cotiza, sin necesidad de reiterar la aceptación de las cláusulas invariables o condiciones obligatorias, cuyo cumplimiento se presume.

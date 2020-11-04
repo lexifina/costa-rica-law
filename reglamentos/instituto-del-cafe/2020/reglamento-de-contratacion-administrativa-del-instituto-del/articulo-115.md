@@ -1,0 +1,3 @@
+Artículo 115: Recepción de bienes en subasta a la baja.
+Si la garantía de cumplimiento se encuentra conforme, tres días después de verificada la subasta, la Administración dictará la respectiva orden de inicio, a efecto de que entregue los bienes en el plazo establecido al efecto, de conformidad con el pliego de condiciones. En caso de que el interesado incumpla, se ejecutará la garantía de cumplimiento y se declarará insubsistente el acto de adjudicación.
+De mantener la Administración la necesidad y el interés, dentro de tercero día hábil, luego de haber declarado la insubsistencia de la propuesta anterior, podrá adjudicar al segundo mejor precio del bien, siguiendo el orden de mérito en que los oferentes quedaron al cierre de la subasta.

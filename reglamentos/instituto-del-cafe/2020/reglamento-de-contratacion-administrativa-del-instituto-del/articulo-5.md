@@ -1,0 +1,11 @@
+Artículo 5.- Jerarquía de las normas
+La actividad de contratación administrativa se rige por las normas y principios del ordenamiento jurídico administrativo.
+La jerarquía de las normas se sujetará al siguiente orden:
+a. Constitución Política.
+b. Instrumentos Internacionales vigentes en Costa Rica que acuerden aspectos propios de la contratación administrativa y que se apliquen al ICAFE.
+c. Los principios y prohibiciones establecidos en la Ley de Contratación Administrativa.
+d. Otras leyes que regulen materia de contratación administrativa que se apliquen al ICAFE.
+e. Ley General de la Administración Pública.
+f. Reglamento de Contratación del ICAFE.
+g. El cartel o pliego de condiciones.
+h. El respectivo contrato administrativo.

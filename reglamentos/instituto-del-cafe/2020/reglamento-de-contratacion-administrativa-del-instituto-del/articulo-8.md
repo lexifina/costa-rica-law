@@ -1,0 +1,3 @@
+Artículo 7.- Información del Registro de Proveedores
+Quedan excluidas de la obligación de publicación, las contrataciones efectuadas con prescindencia de los procedimientos ordinarios y las efectuadas con fundamento en los supuestos de urgencia.
+La Administración, podrá divulgar el respectivo programa de adquisiciones y sus modificaciones por los medios electrónicos a su alcance. De utilizarse medios distintos de la publicación en el Diario Oficial La Gaceta, se deberá informar, en el citado Diario, o en dos diarios de circulación nacional, acerca del medio empleado para dar a conocer su programa de adquisiciones.

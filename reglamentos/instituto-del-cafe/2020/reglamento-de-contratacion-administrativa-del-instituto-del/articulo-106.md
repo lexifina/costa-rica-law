@@ -1,0 +1,2 @@
+Artículo 106.- Adjudicación de la Contratación Abreviada
+La adjudicación de las contrataciones abreviadas será realizada por quien ostente la jefatura de la Unidad de Contratación Administrativa o superior, con fundamento en los análisis realizados por las Unidades técnicas o solicitantes del bien o servicio, en un plazo de 10 dias hábiles prorrogable por un plazo igual en casos debidamente justificados, contados a partir del día de la apertura de ofertas.

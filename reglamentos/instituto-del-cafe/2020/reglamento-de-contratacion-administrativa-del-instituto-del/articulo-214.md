@@ -1,0 +1,1 @@
+Artículo 214. Disponibilidad del cartel. La Unidad de Contratación Administrativa deberá mantener a disposición de cualquier interesado para su adquisición o consulta, los carteles de las contrataciones que se encuentren en trámite.

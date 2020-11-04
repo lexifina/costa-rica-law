@@ -1,0 +1,2 @@
+Artículo 47.- Cláusula penal
+La cláusula penal procede por ejecución tardía o prematura de las obligaciones contractuales, los supuestos y montos deberán incluirse en el respectivo cartel y le serán aplicables las disposiciones indicadas en los artículos anteriores.

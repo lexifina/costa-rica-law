@@ -1,0 +1,3 @@
+Artículo 121.- Remisión del expediente para adjudicar
+En los casos aplicables, una vez que se ha cumplido con todo el proceso de revisión y calificación de las ofertas, el expediente será remitido a la Direcciòn Ejecutiva o la Junta Directiva, según corresponda realizar su adjudicación, quienes procederán con el acto de adjudicación en el plazo determinado por el presente reglamento, salvo disposición en contrario.
+En el caso de los procesos que deban ser adjudicados por la Junta Directiva, se adjudicará el día próximo programado para sesionar, contado a partir del día en que el expediente cumpla con todo el proceso de revisión y firmas.

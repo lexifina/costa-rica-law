@@ -1,0 +1,1 @@
+Artículo 191. Presentación de SBS en casos de extrema necesidad o imprevistos: Tales sbs deberán ser remitidas con aprobación por la Direccion Ejecutiva. A partir del 01 de setiembre de cada año; esta línea de presentación de sbs quedara reservada exclusivamente para la Direccion Ejecutiva.

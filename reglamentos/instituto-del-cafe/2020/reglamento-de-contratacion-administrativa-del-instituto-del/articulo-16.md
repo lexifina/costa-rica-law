@@ -1,0 +1,5 @@
+Artículo 16.- Representación
+El oferente podrá concurrir por sí mismo o a través de un representante de casas extranjeras, en cuyo caso, deberá hacer indicación expresa de tal circunstancia en la propuesta.
+Se presume que quien suscribe la oferta cuenta con la capacidad legal para ello. La acreditación se reserva para el adjudicatario en una etapa posterior.
+Para la presentación de cotizaciones en Contrataciones Directas, en Contrataciones Abreviadas y Contrataciones Generales bastará la firma de alguna de las personas que se encuentren autorizadas por la empresa en los registros de proveedores o bien el envío del correo electrónico desde las direcciones electrónicas indicadas en esos registros, lo cual será constatado por la Unidad de Contratación Administrativa.
+El cartel establecerá los requisitos que deberá aportar el adjudicatario para establecer la certeza en cuanto a la existencia y representación. En caso de que en el plazo conferido a esos efectos el adjudicatario no acredite su representación, el acto de adjudicación se declarará insubsistente y de ser posible, se readjudicará a la segunda mejor opción.

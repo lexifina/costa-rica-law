@@ -1,0 +1,2 @@
+Artículo 213- Divulgación de los carteles. La Unidad de Contratación Administrativa deberá hacer del conocimiento de los potenciales oferentes el cartel de cada compra, así como de cualquier
+modificación a los mismos, cuando correspondan, utilizando en los casos que procedan, los siguientes medios de comunicación: plataforma digital creada al efecto, correo electrónico, página web del ICAFE, en el diario oficial La Gaceta -cuando corresponda-, publicación en diarios de circulación nacional, y por otras vías electrónicas y telemáticas.

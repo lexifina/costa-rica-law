@@ -1,0 +1,1 @@
+II.- Aquellos procedimientos de contratación que tengan pendiente el acto de adjudicación se tramitarán conforme con las formalidades propias del procedimiento iniciado, salvo que la plataforma en la cual se llevo a cabo se encuentre deshabilitada; por lo que se debera concluir según lo determinado en este reglamento.

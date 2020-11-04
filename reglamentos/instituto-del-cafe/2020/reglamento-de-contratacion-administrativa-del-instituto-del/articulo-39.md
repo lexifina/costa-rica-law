@@ -1,0 +1,4 @@
+Artículo 39.- Otras garantías y retenciones.
+El Instituto del Café de Costa Rica podrá establecer otras modalidades de garantía que conlleve a una adecuada tutela de la efectiva ejecución del contrato.
+Además, el ICAFE podrá incorporar en el cartel cláusulas de retención porcentual de las sumas pagadas, cuando ello resulte conveniente para asegurar una correcta ejecución contractual. El monto máximo de esas retenciones será de un 10% de los pagos a realizar.
+Cuando existan adelantos de pago y ello resulte viable, la Administración, podrá solicitar una garantía colateral por todo el monto que se vaya a girar, ello independientemente del medio utilizado por el contratista para amparar dicha garantía y aceptado por la entidad garante. Para rendir este tipo de garantías las entidades garantes deberán admitir las finanzas, avales, hipotecas, prendas, entre otros.

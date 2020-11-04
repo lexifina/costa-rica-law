@@ -1,0 +1,5 @@
+Artículo 65.- Listado de subcontratación
+El oferente podrá subcontratar hasta en un 50% del monto adjudicado, salvo que la Administración autorice un monto mayor. En todo caso, la subcontratación no relevará al contratista de su responsabilidad.
+En aquellos casos en donde la Administración autorice la subcontratación de servicios en un porcentaje mayor al 50%, los participantes deberán presentar con su oferta el listado de todas las empresas a las que se planea subcontratar para llevar a cabo los servicios o trabajos especializados.
+En ese listado se indicarán los nombres de las personas físicas o jurídicas de quienes se pretende subcontratar y se aportará una declaración jurada de que no están afectas al régimen de prohibiciones previsto en la Ley de Contratación Administrativa, así como una certificación de los titulares de su capital social y de sus representantes legales, cuando ello corresponda.
+En caso de que en la fase de ejecución se modifique el listado de subcontratistas, se deberá reportar con la antelación debida a la Administración, a fin de que ésta verifique lo previsto en el párrafo anterior en cuanto al régimen de prohibiciones.

@@ -1,0 +1,14 @@
+Artículo 155. Modificación de la modalidad de entrega según demanda
+En cualquier contrato celebrado por el Instituto del Café de Costa Rica, indistintamente del proceso de contratación utilizado, se podrá modificar la modalidad de entrega de bienes o servicios por objeto determinado a la modalidad de entrega según demanda.
+Para tales efectos se deberá cumplir con lo siguiente:
+a. Bienes o servicios similares: que se trate de bienes o servicios similares
+b. Interés público: que sea la mejor forma de satisfacer el interés público
+c. Razonabilidad: que el precio contractual sea razonable
+d. Cuantía máxima: que la suma de la contratación original, incluyendo reajustes o revisiones de precios, y el incremento máximo del contrato, no supere el límite previsto para el tipo de procedimiento tramitado más un 25%.
+e. Suministro periódico: el contratista deberá suministrar los bienes o servicios conforme a las necesidades puntuales de la administración que se vayan presentando durante la fase de ejecución.
+f. Formalización: las compras adicionales realizadas bajo la modalidad de entrega según demanda, se podrán formalizar mediante orden de compra o cualquier otro medio definido por el ICAFE.
+g. Inclusión de nuevos suministros de bienes o servicios no contratados originalmente: en este tipo de contrataciones será posible la inclusión de nuevos suministros de bienes o servicios no contratados originalmente, en tanto obedezca a una necesidad surgida con posterioridad al inicio del procedimiento de contratación que originó el contrato, que se trate de bienes o servicios de similar naturaleza, que se acredite la razonabilidad del precio cobrado y en general que se cumplan las demás condiciones señaladas al efecto en el presente reglamento.
+h. Plazo máximo: el plazo del contrato más las eventuales prórrogas no podrá ser superior a 5 años.
+No obstante, en aquellos casos en que el ICAFE considere conveniente, podrá extender el contrato por un plazo determinado, con el aval de la Dirección Ejecutiva en contrataciones de montos inferiores a $250.000 dólares americanos, o con la aprobación de la Junta Directiva en contrataciones iguales o superiores a $250.000 dólares americanos i. Ejecución: la administración establecerá las reglas sobre la eventual exclusividad, la metodología de ejecución del contrato, incluyendo los plazos mínimos de aviso al contratista para la siguiente entrega de bienes o servicios, así como los plazos máximos en los que éste debe entregarlos, sistemas del control de calidad, causas de resolución contractual, reglas para excluir un producto o servicio y demás asuntos pertinentes.
+La Dirección Ejecutiva,la Gerencia o Unidad responsable de la contratación deberá revisar el monto de las garantías rendidas a efecto de disponer cualquier ajuste que resulte pertinente.
+La unidad usuaria será quien defina el cambio de modalidad regulada en este artículo.
