@@ -1,0 +1,2 @@
+Artículo 29.—La Gerencia Corporativa de Capital Humano debe realizar un informe anual sobre la gestión de arrendamiento de vehículo (kilometraje) propiedad del empleado del Banco de Costa Rica dentro del Conglomerado Financiero BCR.
+El Superior Jerárquico debe enviar la información actualizada a la Gerencia de Capital Humano, con el fin de elaborar el informe anual de gestión. La información requerida se indica en el Procedimiento para el arrendamiento de servicio de transporte y pago de kilometraje de vehículos propios de las personas trabajadoras del Banco de Costa Rica.

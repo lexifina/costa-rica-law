@@ -1,0 +1,1 @@
+Artículo 16.—El Banco no está obligado a garantizar un mínimo de kilómetros por recorrer y remunerar, de manera que sólo se debe reconocer el kilometraje efectivamente recorrido y debidamente justificado.

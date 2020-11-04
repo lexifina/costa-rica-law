@@ -1,0 +1,1 @@
+Artículo 10.—El Banco no se hará responsable en caso de robo del vehículo, por lo cual la póliza referida en el artículo anterior debe tener cobertura contra robo o en su defecto, la persona usuaria del sistema debe rendir declaración jurada eximiendo al Banco de cualquier responsabilidad por robo, tacha, actos de vandalismo, del vehículo de su propiedad.

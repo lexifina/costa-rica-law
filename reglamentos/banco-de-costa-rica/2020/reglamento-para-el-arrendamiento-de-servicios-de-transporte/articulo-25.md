@@ -1,0 +1,1 @@
+Artículo 25.—El Banco debe paga a las personas trabajadoras que se encuentren bajo el sistema de arrendamiento de vehículos, las tarifas que autorice la Contraloría General de la República, y podrán ser modificadas conforme con lo que al respecto establezca dicho órgano contralor.

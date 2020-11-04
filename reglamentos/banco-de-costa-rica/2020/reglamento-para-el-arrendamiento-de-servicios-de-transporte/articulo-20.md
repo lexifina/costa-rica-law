@@ -1,0 +1,1 @@
+Artículo 20.—El Superior Jerárquico, debe coordinar en la medida de lo posible, el transporte en un mismo vehículo de cualquier otra persona trabajadora que deba efectuar el mismo recorrido, aún en el caso de que dicha persona trabajadora esté incorporada al sistema. En este caso el Superior Jerárquico, debe decidir en cual vehículo se efectuará la gira.

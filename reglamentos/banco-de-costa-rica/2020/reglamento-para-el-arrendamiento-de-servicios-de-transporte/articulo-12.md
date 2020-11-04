@@ -1,0 +1,1 @@
+Artículo 12.—Corresponde al Superior Jerárquico, el reporte del pago mensual, debidamente revisado. En ningún caso se debe permitir que un Gerente autorice su propios pagos mensuales, por lo que en casos Gerenciales debe autorizarlo el superior jerárquico o un nivel gerencial superior.

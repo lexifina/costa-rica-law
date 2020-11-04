@@ -1,0 +1,1 @@
+Artículo 30.—La Gerencia Corporativa de Finanzas debe realizar un estudio técnico cada tres años que permita comprobar que resulta más económico y razonable que se pague un monto por la utilización de dichos vehículos. La Gerencia Corporativa de Capital Humano velará para que se realice dicho estudio.

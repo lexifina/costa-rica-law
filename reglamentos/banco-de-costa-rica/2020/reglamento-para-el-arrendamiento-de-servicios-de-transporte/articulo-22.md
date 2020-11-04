@@ -1,0 +1,2 @@
+Artículo 22.—Está prohibido a la persona trabajadora incorporada al sistema de arrendamiento, llevar a cabo otras actividades que no sean acordes con el objeto de la gira, y transportar en el vehículo al momento de cada gira a personas ajenas a la Institución o a la gira. Además, no deben iniciar una nueva programación de gira sin antes haber efectuado la liquidación de la programación anterior mensual.
+Tampoco se deben apartar de la ruta establecida, salvo razones que lo justifiquen, pues en caso contrario no se debe reconocer el pago de kilometraje.

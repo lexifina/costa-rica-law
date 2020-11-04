@@ -1,0 +1,4 @@
+CAPÍTULO V
+Tarifas a reconocer
+Artículo 23.—Para determinar el número de kilómetros recorridos en cada gira, cada Superior Jerárquico debe utilizar tanto la Tabla de distancias aproximadas entre cabeceras de cantón; emitida por el Ministerio de Obras Públicas y Transportes como el dato del recorrido marcado por el odómetro del vehículo, con base en lo cual determinará el kilometraje a reconocer.
+En caso de discrepancia entre la Tabla oficial de distancias aproximadas entre cabeceras de cantón del MOPT y el dato arrojado por el odómetro del vehículo, debe prevalecer el dato consignado en la Tabla oficial de distancias del MOPT, salvo cuando se demuestre fehacientemente que la variación obedeció a desvíos ordenados por la autoridad competente, cierres de carreteras u otras causas análogas ajenas a las personas propietarias de los vehículos.

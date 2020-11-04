@@ -1,0 +1,1 @@
+Artículo 2º—En ningún caso la remuneración, facilidades o ventajas que este sistema pueda representar para las personas trabajadoras, se debe considerar salario en especie, beneficio, mejora salarial o parte del contrato de trabajo, ni debe dar origen a derechos adquiridos de ninguna especie para quienes se encuentren bajo dicho sistema.

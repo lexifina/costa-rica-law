@@ -1,0 +1,2 @@
+Artículo 17.—Se reconocerán los pagos por concepto de peajes, utilización de transbordadores y estacionamiento que deba pagar la persona trabajadora mientras ocupa su vehículo en el cumplimiento de funciones propias de su cargo, para lo cual debe presentar el original de los comprobantes respectivos que demuestre efectivamente que el gasto se realizó durante una gira debidamente autorizada.
+Dichos comprobantes deben ser autorizados por el Superior Jerárquico.

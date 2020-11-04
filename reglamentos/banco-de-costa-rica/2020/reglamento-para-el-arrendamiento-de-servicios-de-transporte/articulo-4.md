@@ -1,0 +1,8 @@
+CAPÍTULO II
+Ingreso al sistema
+Artículo 4º—Para acogerse al sistema de arrendamiento de vehículos a que se refiere este reglamento, toda persona trabajadora que por la naturaleza de sus labores requiera utilizar constantemente un vehículo de su propiedad, debe solicitar por escrito y completar el formulario 77-AD Solicitud de ingreso al sistema de arrendamiento de vehículos, su ingreso al sistema indicando las razones de su solicitud, la que debe ser presentada por su superior jerárquico ante su correspondiente Gerente Corporativo o Gerente de Negocios para la debida aprobación.
+Una vez que se compruebe la necesidad del arrendamiento, así como, que la persona trabajadora cumple con los requisitos que establece este Reglamento se debe dar por escrito la autorización para ingresar al sistema justificando el arrendamiento.
+La solicitud aprobada debe ser tramitada por la Gerencia Corporativa Capital Humano. Si el vehículo arrendado y registrado en el sistema sufre un desperfecto mecánico o se encuentra con restricción vehicular y por motivos de fuerza mayor la persona trabajadora no puede posponer su gira, podrá, previa autorización por escrito del superior, utilizar otro vehículo el día que le corresponde la restricción o temporalmente mientras reparan el suyo.
+El vehículo a utilizar debe cumplir con lo establecido en los artículos 6 y 9 de este reglamento.
+De dicha autorización se debe dejar copia en el expediente referido en el artículo 7 de este reglamento.
+No debe proceder el cobro de kilometraje recorrido y por ende tampoco el pago, cuando se utilice un vehículo no registrado en el sistema de arrendamiento o sin previa autorización en el caso de las excepciones indicadas en este artículo.

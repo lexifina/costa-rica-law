@@ -1,0 +1,1 @@
+Artículo 27.—Bajo ninguna circunstancia la persona trabajadora usuaria del sistema debe cobrar el kilometraje respectivo cuando no haya utilizado el vehículo arrendado para realizar la gira respectiva, excepto en los casos amparados por el artículo 4 de este reglamento.

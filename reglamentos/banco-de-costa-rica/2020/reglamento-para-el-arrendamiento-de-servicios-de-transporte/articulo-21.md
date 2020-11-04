@@ -1,0 +1,1 @@
+Artículo 21.—La operación defectuosa del odómetro debe ser reportada de inmediato y por escrito al Superior Jerárquico. En caso de que se encuentre evidencia de la alteración al odómetro en forma intencionada, se aplicarán las gestiones legales correspondientes para rescindir el contrato de arrendamiento de vehículo suscrito con la persona trabajadora.

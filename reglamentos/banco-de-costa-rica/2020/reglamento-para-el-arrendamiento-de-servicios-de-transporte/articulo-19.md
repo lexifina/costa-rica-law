@@ -1,0 +1,4 @@
+CAPÍTULO IV
+Sistema de control
+Artículo 19.—Cada Superior Jerárquico, debe ser responsable de la administración y control del sistema del kilometraje respecto de aquellas personas trabajadoras que, bajo su dependencia, hayan suscrito el respectivo contrato de arrendamiento de vehículos a que se refiere este Reglamento. Para ello debe ejercer los controles necesarios para la correcta ejecución de los contratos y el cumplimiento de lo establecido en este Reglamento, a fin de vigilar y verificar el kilometraje recorrido con la tabla respectiva indicada en el artículo 23 de esta normativa, de los pagos que correspondan, así como los demás aspectos que deban cumplir las personas trabajadoras en atención a lo aquí normado.
+La Jefatura de Contabilidad General debe llevar un registro y control de los reportes de pago.

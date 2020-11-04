@@ -1,0 +1,1 @@
+Artículo 3º—La posibilidad de arrendar su vehículo al Banco y percibir remuneración por pago de kilometraje está vedada para las personas trabajadoras que tienen asignado un vehículo de uso discrecional y para estos efectos están excluidos de la aplicación de este reglamento.
