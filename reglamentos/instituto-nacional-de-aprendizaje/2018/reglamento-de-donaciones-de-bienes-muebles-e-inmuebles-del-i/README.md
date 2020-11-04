@@ -14,3 +14,4 @@ Reglamento de donaciones de bienes muebles e inmuebles del Instituto Nacional de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-05-23 | la propia norma |
+| 2 | 2020-11-04 | Reglamento 0 (2020-11-04) |
