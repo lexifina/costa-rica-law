@@ -1,0 +1,1 @@
+Artículo 5º—Oficiosidad. Una vez presentada la denuncia, la persona denunciante podrá desistir en cualquier momento de su solicitud; sin embargo, el Órgano Contralor podrá - de estimarlo pertinente - continuar de oficio con la investigación.

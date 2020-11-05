@@ -1,0 +1,1 @@
+Artículo 4º—Identidad de la persona denunciante. Los funcionarios públicos, al igual que cualquier persona, pueden presentar sus denuncias ante la Contraloría General de la República sin necesidad de revelar su identidad, cuando así lo prefieran. En cualquier caso se procederá de acuerdo con lo indicado en el inciso a) del artículo 8 de estos lineamientos.

@@ -1,0 +1,1 @@
+Artículo 10.—Archivo sin trámite. El Área de Denuncias e Investigaciones realizará un análisis de la gestión que le ha sido puesta en conocimiento, y cuando la situación descrita no corresponda a una denuncia, se encuentre fuera del ámbito de competencia en investigación del Órgano Contralor, o sea manifiestamente improcedente, procederá con su archivo sin trámite.

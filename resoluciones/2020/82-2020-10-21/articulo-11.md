@@ -1,0 +1,5 @@
+CAPÍTULO II
+Admisibilidad
+Artículo 11.—Análisis de admisibilidad. Recibida una denuncia, la Contraloría General de la República contará con el plazo de 20 días hábiles para definir su admisibilidad y respectivo trámite. En caso de determinarse que existe imprecisión en cuanto a los hechos o la petición, que hagan imposible su análisis, se otorgará un plazo de 10 días hábiles a la persona denunciante para que complete la información, caso contrario se archivará la gestión. Las prevenciones suspenderán el plazo de análisis de la admisibilidad.
+En caso de que los hechos denunciados sean competencia de otra instancia, se advertirá así a la persona denunciante y se archivará la gestión. De conformidad con lo dispuesto en el artículo 17 del Reglamento a la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública (ley N° 8422), de resultar pertinente se podrá canalizar la gestión al competente.
+Los hechos denunciados podrán tenerse como insumo de otros procesos de fiscalización, si ello permite un mejor abordaje del caso, dando por atendida la gestión.

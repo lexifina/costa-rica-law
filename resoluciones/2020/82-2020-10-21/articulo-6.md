@@ -1,0 +1,3 @@
+Artículo 6º—Reglas de notificación. Para efectos de la notificación, la persona denunciante deberá señalar una dirección única de correo electrónico. En el caso de órganos colegiados se establece la posibilidad de señalar un único correo electrónico para la comunicación a todos sus integrantes, o un correo electrónico por cada uno de sus miembros.
+En caso de que no se indique dirección de correo electrónico para recibir notificaciones, o el correo señalado indique error, conforme a los presentes lineamientos, la notificación se tendrá por realizada de forma automática; es decir, transcurridas 24 horas después de la emisión del documento.
+En lo no regulado en los presentes Lineamientos se aplicará lo dispuesto en la Ley de Notificaciones Judiciales N° 8687.

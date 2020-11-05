@@ -1,0 +1,1 @@
+Artículo 22.—Recursos. Contra cualquiera de los actos finales emitidos por la Contraloría General de la República cabrán los recursos ordinarios establecidos en la Ley General de la Administración Pública.

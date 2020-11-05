@@ -1,0 +1,1 @@
+Artículo 12.—Solicitud de información a la Administración. La Contraloría General de la República podrá solicitar información a la Administración y a otras instancias, de previo a admitir una denuncia para su trámite; lo cual suspenderá el plazo de análisis de admisibilidad establecido en el artículo 11 de los presentes lineamientos.

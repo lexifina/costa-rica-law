@@ -1,0 +1,1 @@
+Artículo 7º—Uso de medios tecnológicos. La Contraloría General de la República utilizará los recursos tecnológicos e informáticos que tenga a su disposición, para mejorar la atención de las denuncias, así como para proteger la identidad de la persona denunciante.
