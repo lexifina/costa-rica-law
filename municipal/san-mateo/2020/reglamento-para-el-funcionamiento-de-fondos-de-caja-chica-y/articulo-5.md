@@ -1,0 +1,1 @@
+Artículo 5º—Fondo de Caja Chica para la Proveeduría. La Proveeduría podrá disponer de un Fondo de Caja Chica para cubrir los gastos de operación autorizados en el Presupuesto Institucional en que incurran las unidades administrativas a lo interno de la Municipalidad, tales como el pago de los bienes o servicios que se requieran para la buena marcha de la institución.

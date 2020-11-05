@@ -1,0 +1,1 @@
+Artículo 9º—Cierre de los Fondos de Caja Chica. El cierre de los fondos de Caja Chica será responsabilidad exclusiva de la Oficina de Tesorería, que deberá elaborar un informe escrito a la Alcaldía debidamente fundamentado con indicación clara de las razones que justifican el cierre.

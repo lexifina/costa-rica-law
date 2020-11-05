@@ -1,0 +1,5 @@
+Artículo 11.—Requisitos de las compras por Fondos de Caja Chica que maneja la Proveeduría. Las compras que se lleven a cabo por medio del Fondo de Caja Chica que administra la Proveeduría deben responder a una solicitud de compra gestionada ante la Proveeduría por parte de una Unidad correspondiente.
+Por lo cual deberá quedar debidamente respaldada con la Solicitud de la Contratación (Decisión Inicial) y contar con el contenido presupuestario como corresponde.
+Cuando se requiera hacer la retención de la renta correspondiente, la compra se respaldará con el documento denominado “Orden de Compra”.
+Los pagos con recursos de los Fondos de Caja Chica se harán contra entrega del bien o servicio con posterioridad a la recepción a satisfacción.
+Todas las compras que se hagan en la Proveeduría deberán estar debidamente custodiadas en un ampo donde deberá quedar documentado al menos, la Solicitud de la Compra, la verificación del contenido presupuestario, copia de la factura, copia de la Orden de Compra (cuando corresponda) y el acta de recepción del bien o el servicio de conformidad con lo establecido en el RLCA.

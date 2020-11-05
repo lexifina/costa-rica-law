@@ -1,0 +1,1 @@
+Artículo 23.—Uso del fondo de Caja Chica en ausencia del responsable del fondo. Si por caso fortuito o fuerza mayor el encargado del fondo se ausente de su puesto y siendo necesario la utilización del fondo, se realizará un arqueo en presencia del tesorero municipal o a quien él designe y dos testigos, haciendo constar mediante un documento firmado, el contenido del mismo.

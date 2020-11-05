@@ -1,0 +1,1 @@
+Artículo 20º—Liquidación del vale de Caja Chica. La liquidación del vale queda formalizada, cuando el responsable de la caja chica, revisa todos los requisitos y estampa su sello de recibido conforme.
