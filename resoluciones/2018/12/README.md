@@ -17,3 +17,4 @@ Obligatoriedad general para el uso de los comprobantes electrónicos
 | 2 | 2018-08-16 | Resolución 39 (2018-08-16) |
 | 3 | 2018-09-18 | Resolución 50 (2018-09-18) |
 | 4 | 2019-12-12 | Resolución 75 (2019-12-12) |
+| 5 | 2020-11-05 | Resolución 38 (2020-11-05) |
