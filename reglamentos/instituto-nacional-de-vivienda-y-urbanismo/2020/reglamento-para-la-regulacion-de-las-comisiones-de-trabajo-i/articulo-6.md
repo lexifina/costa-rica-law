@@ -1,0 +1,1 @@
+Artículo 6º—Coordinación. La persona funcionaria que coordine la comisión será la responsable de convocar a los demás miembros, supervisar la labor efectuada, ejercer la representación de la comisión y de que se comuniquen los acuerdos, estudios, informes o resoluciones que se adopten.

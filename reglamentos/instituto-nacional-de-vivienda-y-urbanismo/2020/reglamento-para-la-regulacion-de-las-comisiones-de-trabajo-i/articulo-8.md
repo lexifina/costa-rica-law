@@ -1,0 +1,1 @@
+Artículo 8º—Cierre de la comisión. Una vez finalizada la tarea la labor para la cual fue creada la comisión, deberá presentarse un informe final de cierre a la Gerencia General y solicitar por escrito a la Auditoría Interna el cierre del libro de actas.

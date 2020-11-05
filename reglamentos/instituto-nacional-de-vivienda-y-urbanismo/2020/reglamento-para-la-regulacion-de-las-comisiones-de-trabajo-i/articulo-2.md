@@ -1,0 +1,1 @@
+Artículo 2º—Normativa a aplicar. Cualquier asunto no previsto en este Reglamento, se resolverá aplicando la Ley Orgánica del INVU, la Ley General de Administración Pública, el Reglamento Autónomo de Organización y Servicio, la norma pertinente del Derecho Público y, en su efecto, el derecho común.

@@ -1,0 +1,1 @@
+Artículo 3º—Consulta previa. Antes de la creación de cualquier comisión, debe la administración activa consultar a la Auditoría Interna la pertinencia de la apertura de un Libro de Actas, de conformidad con el artículo 22 inciso e) de la Ley de Control Interno.

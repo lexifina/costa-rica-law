@@ -1,0 +1,1 @@
+Artículo 9º—Depósito de los libros de actas. Una vez que cuenten los libros de actas con la razón de cierre de la Auditoría Interna, serán depositados en el Archivo de la Gerencia General ante solicitud que haga la coordinación de la comisión.
