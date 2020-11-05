@@ -17,3 +17,4 @@ Creación del Centro de Producción Artística y Cultural (CPAC)
 | 2 | 2014-08-18 | Decreto Ejecutivo 38816 (2014-08-18) |
 | 3 | 2016-03-15 | Decreto Ejecutivo 39629 (2016-03-15) |
 | 4 | 2019-10-31 | Decreto Ejecutivo 42036 (2019-10-31) |
+| 5 | 2020-11-05 | Decreto Ejecutivo 42759 (2020-11-05) |
