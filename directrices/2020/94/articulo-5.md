@@ -1,0 +1,1 @@
+Artículo 5º—Reporte del endeudamiento público. Todas las entidades señaladas en el artículo 1, deben reportar a la Dirección de Crédito Público la información relativa al endeudamiento público, que establece el artículo 81 de la Ley N° 8131, Ley de Administración Financiera de la República y Presupuestos Públicos, conforme a los requerimientos establecidos por dicha Dirección.

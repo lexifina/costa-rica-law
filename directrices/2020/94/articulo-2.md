@@ -1,0 +1,1 @@
+Artículo 2º—Objetivo. Regular las características, instrumentos, medios y periodicidad de la información a reportar sobre el endeudamiento público por parte de las instituciones señaladas en el artículo anterior.
