@@ -1,3 +1,20 @@
-Artículo 4°—Principio de Legalidad. Todas las donaciones de los bienes muebles e inmuebles propiedad del Instituto Nacional de Aprendizaje deberán realizarse con fundamento en la norma habilitante.
-En el caso de bienes muebles: Se deberá observar lo señalado en el artículo 163 del Reglamento a la Ley de Contratación Administrativa.
-En el caso de bienes inmuebles: Se deberá observar lo señalado en el artículo 69 de la Ley de Contratación Administrativa y el artículo 166 del Reglamento a la Ley de Contratación Administrativa. Así como también se deberá cumplir en ambos supuestos con los demás preceptos legales vigentes y concordantes.
+Artículo 4º Abreviaturas.
+• CGR: Contraloría General de la República.
+• EPA: Encargado del Proceso de Adquisiciones en las Unidades Regionales y la Sede Central.
+• GG: Gerencia General
+• GNSA: Gestión de Normalización y Servicios de Apoyo.
+• INA: Instituto Nacional de Aprendizaje.
+• LCA: Ley de Contratación Administrativa.
+• PASER: Plan Anual de Servicios de Capacitación y Formación Profesional.
+• PPCO: Proceso de Programación y Control de Operaciones.
+• POIA: Plan Operativo Institucional Anual.
+• PSAC: Proceso de Seguimiento, Apoyo y Control Regional.
+• RLCA: Reglamento a la Ley de Contratación Administrativa.
+• SCFP: Servicios de Capacitación y Formación Profesional.
+• SGA: Subgerencia Administrativa,
+• SGT: Subgerencia Técnica.
+• SICOP: Sistema Integrado de Compras Públicas.
+• SINAFOR: Sistema Nacional de Formación.
+• SIREMA: Sistema de Recursos Materiales.
+• UCI: Unidad de Compras Institucionales.
+• UPE: Unidad de Planificación y Evaluación.

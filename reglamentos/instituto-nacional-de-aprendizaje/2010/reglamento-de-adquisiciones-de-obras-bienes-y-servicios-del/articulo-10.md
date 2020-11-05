@@ -1,19 +1,9 @@
-Artículo 10.—Trámite de donaciones. Las solicitudes, sea el INA donante o donatario, serán tramitadas o supervisadas por la Secretaría de la Comisión de Licitaciones la cual deberá:
-1. En el caso de bienes muebles:
-a. Confeccionar un expediente administrativo.
-b. Gestionar los criterios técnicos correspondientes.
-c. Gestionar el criterio legal correspondiente.
-d. Determinar la disponibilidad material de lo solicitado por el interesado, mediante un listado con la descripción detallada y placas de los bienes en el caso de aquellos pertenecientes a la Institución.
-e. Gestionar el avalúo ante la unidad técnica especializada o núcleo institucional correspondiente, quienes estarán habilitados para hacerlos o en su defecto ante la Dirección General de Tributación Directa, de acuerdo con el valor real de mercado.
-f. Emitir las recomendaciones sobre la viabilidad técnica, jurídica y disponibilidad de la donación a la Comisión de Licitación.
-g. Elevar el expediente completo, debidamente ordenado y foliado cronológicamente a la Comisión.
-h. Sometido el expediente completo a la Comisión de Licitaciones, ésta tomará la decisión en forma razonada, tomando en consideración la solicitud o propuesta de la donación, la viabilidad legal, disponibilidad, el valor, el criterio técnico e interés institucional correspondientes.
-La Secretaría Técnica de la Comisión deberá notificar la resolución dictada al efecto.
-i. En caso de haber sido aprobada, la Unidad de Compras Institucionales, notificará al interesado la hora, día y lugar para la entrega de los bienes, por lo que se levantará el acta de entrega o instrumento público, así definido en el artículo 3 de este reglamento.
-j. La Unidad de Compras Institucionales, deberá levantar un acta de entrega y aceptación de los bienes donados, en el lugar acordado por la Comisión de Licitaciones o en su defecto en el lugar que se encuentren los bienes objeto de la donación.
-2. En el caso de Bienes Inmuebles:
-a. Aplican de igual manera los incisos a), b), c), e), f), g),
-b. Sometido el expediente completo a la Comisión de Licitaciones, ésta deberá realizar la recomendación a Junta Directiva de forma razonada y tomando en consideración la viabilidad legal, disponibilidad, el valor, el criterio técnico e interés institucional.
-c. Dentro de los criterios técnicos correspondientes, deberá existir la viabilidad jurídica y registral. Es decir, el bien inmueble deberá estar libre de anotaciones, gravámenes hipotecarios y libres de deudas.
-d. Elevar la recomendación y demás antecedentes de la donación a la Junta Directiva.
-e. En caso de aprobarse la donación por la Junta Directiva, la Unidad de Compras Institucionales remitirá el expediente a la Asesoría Legal para su correspondiente formalización notarial.
+CAPÍTULO II
+De los procedimientos ordinarios de contratación
+Artículo 10º Solicitudes de adquisición y elaboración del programa de adquisiciones.
+a) Solicitudes de adquisición: La GNSA suministrará la calendarización para que los responsables de las Unidades solicitantes o a quien estos autoricen, incluyan en el SIREMA todas las necesidades de adquisiciones de obras, bienes y servicios que requerirán para el período presupuestario siguiente, salvedad hecha de aquellas que surjan producto de situaciones de emergencia o imprevisibles, las cuales deberán ser debidamente justificadas por la Unidad Solicitante, así como los servicios de capacitación y formación profesional los cuales se solicitaran de conformidad con las modificaciones reportadas en el PASER.
+b) Agrupación de adquisiciones de obras, bienes y servicios: Con base en los requerimientos de adquisiciones, solicitados por las diferentes Unidades solicitantes, PPCO analiza y procede a agrupar las solicitudes de acuerdo a los siguientes criterios de separación y agrupación emitidos por las Unidades Técnicas Especializadas.
+Criterio de separación: Obra pública. -Materiales de uso administrativo. -Materiales de uso didáctico. -Material gastable. -Material devolutivo. -Material perecedero. Material especializado. -Equipo especializado. -Equipo de uso general. -Equipo administrativo. - Servicios de apoyo técnico. -Servicios de apoyo administrativo. -Servicios de Capacitación y Formación Profesional. Criterio de agrupación: Las separaciones anteriores se agruparán por familia de obras, bienes y servicios, especializándolas de acuerdo a semejanzas en las características técnicas y uso, entre otros posibles elementos. La persona encargada del PPCO revisará y aprobará las agrupaciones para su trámite correspondiente.
+c) Elaboración del programa de adquisiciones: La persona encargada de la UCI será el responsable de elaborar y publicar el Programa de Adquisiciones y sus modificaciones, que contenga la proyección de las adquisiciones que se requieren para satisfacer las necesidades de obras, bienes y servicios institucionales, con base en el Plan Operativo Institucional Anual (POIA) y el Presupuesto Institucional al tenor de lo dispuesto por el RLCA, previa aprobación de la Comisión de Licitaciones. Requieren una justificación por escrito debidamente sustentada, todas las adquisiciones de obras, bienes y servicios que no están incluidas en el POIA o en el Presupuesto Institucional del período.
+Las modificaciones deberán ser aprobadas por la persona encargada de la UCI en aquellos casos de necesidades calificadas como urgentes o imprevistas y deberá publicarlas en los medios autorizados.
+Lo anterior de conformidad lo regulado en el Reglamento a la Ley de Contratación Administrativa.

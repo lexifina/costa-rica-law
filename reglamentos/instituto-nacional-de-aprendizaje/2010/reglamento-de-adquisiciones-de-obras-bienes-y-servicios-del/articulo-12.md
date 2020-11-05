@@ -1,8 +1,5 @@
-Artículo 12.—Nulidad de la donación. Es absolutamente nula:
-a. La donación indeterminada de todo o parte de los bienes.
-Los bienes donados deben describirse individualmente.
-b. La donación de bienes por adquirir.
-c. La donación tramitada sin los criterios legales, técnicos, avalúos y acuerdos de la Comisión de Licitaciones, correspondientes.
-d. La donación a favor de sujetos de derecho inexistentes a la fecha del acuerdo de donación.
-e. La donación con renuncia de revocación anticipada.
-f. Las cláusulas de donación con reversión o de sustitución.
+Artículo 12. Determinación de necesidades para las contrataciones de Servicios de Capacitación y Formación Profesional.
+Con la orientación metodológica brindada por la UPE y la Gerencia General o a quien esta delegue, se establecerá un procedimiento de identificación de necesidades con el fin de normar los estudios pertinentes.
+Para estos efectos las Unidades Regionales deberán someter ante la Gestión Regional la justificación de compra correspondiente para que esta verifique, apruebe o rechace el trámite.
+La Subgerencia Técnica aprobará o rechazará las justificaciones remitidas con el visto bueno de la Gestión Regional.
+Una vez aprobada la justificación de compra por parte de la Subgerencia Técnica, la Unidad Regional solicitante podrá gestionar la contratación de servicios de capacitación y formación profesional de conformidad con los artículos 10 y siguientes del presente reglamento y la Ley de Contratación Administrativa y su reglamento.

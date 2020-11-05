@@ -19,3 +19,4 @@ Reglamento de Adquisiciones de Obras Bienes y Servicios del INA
 | 4 | 2018-11-12 | Reglamento 4872 (2018-11-12) |
 | 5 | 2019-04-01 | Reglamento 13 (2019-04-01) |
 | 6 | 2020-05-18 | Reglamento 18 (2020-05-18) |
+| 7 | 2020-11-05 | Reglamento 0 (2020-11-05) |
