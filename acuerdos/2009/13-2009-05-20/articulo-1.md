@@ -1468,11 +1468,13 @@ Supervisión recibida
 6. DESCRIPCIÓN DE FACTORES Y SUBFACTORES Y GRADOS
 6.1 Requisitos ocupacionales
 Requisitos académicos
-· Mínimo licenciatura en Contaduría Pública, Ciencias Económicas o Administración de Negocios con énfasis o especialidad en Contabilidad, Contaduría Pública, o en Administración de Empresas con énfasis o especialidad en Contabilidad o Contaduría Pública.
-· Ser contador público autorizado.
-Requisitos de experiencia laboral
-· Mínimo cinco años consecutivos de experiencia en auditoría interna o externa en el sector público.
-· Mínimo tres años de experiencia en puestos de jefatura en auditoría interna o externa en el sector público o en su defecto en el sector privado.
+● Mínimo licenciatura en Contaduría Pública, Ciencias Económicas o Administración de Negocios con énfasis o especialidad en Contabilidad, Contaduría Pública, o en Administración de Empresas con énfasis o especialidad en Contabilidad o Contaduría Pública.
+(Así reformado el punto anterior mediante sesión N° 132-2020 del 5° de noviembre de 2020)
+●Ser contador público autorizado.
+(*) Requisitos de experiencia laboral
+● Mínimo cinco años consecutivos de experiencia en auditoría interna o externa en el sector público.
+● Mínimo tres años de experiencia en puestos de jefatura en auditoría interna o externa en el sector público o en su defecto en el sector privado.
+(*) (Así reformado el punto anterior mediante sesión N° 132-2020 del 5° de noviembre de 2020)
 Conocimientos complementarios
 · Amplio conocimiento de las leyes, los reglamentos, las normas y los lineamientos que regulan la auditoría interna en el sector público costarricense.
 · Conocimiento de las normas que regulan la auditoría en el sector gubernamental a nivel internacional y de las normas que regulan la auditoría en el sector privado.
@@ -1492,9 +1494,9 @@ Habilidades
 · Perspectiva estratégica
 · Sensibilidad interpersonal
 · Orientación de servicio al cliente
-Requisitos legales:
+(*) Requisitos legales:
 Incorporación al colegio profesional respectivo.
-Obligatoriedad de cumplir el artículo 34 de la Ley general de control interno.
+(*) (Así reformado el punto anterior mediante sesión N° 132-2020 del 5° de noviembre de 2020)
 DIRECTOR DE DEPARTAMENTO
 Objetivo del trabajo:
 Participar dinámicamente y comprometerse en la definición de las políticas, las estrategias, los objetivos, los valores, la misión y la visión institucionales. Garantizar la gestión sustantiva de la Institución, en concordancia con las políticas institucionales y los planes anuales operativos de un departamento de la Asamblea Legislativa, mediante la ejecución de actividades gerenciales de planificación, organización, dirección, supervisión y evaluación de los procesos técnico-administrativos.

@@ -26,3 +26,4 @@ Manual descriptivo de clases de puestos de la Asamblea Legislativa
 | 11 | 2019-03-06 | Reglamento 38 (2019-03-06) |
 | 12 | 2019-03-13 | Reglamento 39 (2019-03-13) |
 | 13 | 2020-03-10 | Reglamento 98 (2020-03-10) |
+| 14 | 2020-11-05 | Acuerdo 2 (2020-11-05) |
