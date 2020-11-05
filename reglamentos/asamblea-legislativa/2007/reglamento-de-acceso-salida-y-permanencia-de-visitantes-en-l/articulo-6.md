@@ -1,7 +1,9 @@
 Artículo 6º—Deberes de los visitantes. Toda persona que ingrese a la Institución en calidad de visitante, deberá:
 a. Respetar las disposiciones y normas de seguridad que se establecen en la Asamblea Legislativa.
 b. Dirigirse a los puestos de ingreso de visitantes autorizados para la recepción, registro y orientación.
-c. No podrá ingresar a la Institución en pantalones cortos, en camiseta de tirantes, camiseta sin mangas, licras, minisetas o algún tipo de vestimenta que vaya en contra del pudor o incite alguna perturbación en las labores de los funcionarios.
+c. A la hora del registro, el visitante que porte gorra o gafas deberá quitárselas para la fotografía y el reconocimiento de la persona, cuando así lo requiera el agente de seguridad.
+En el edificio principal, donde se concentra la mayor cantidad de órganos de deliberación (tales como Plenario Legislativo, despachos de diputados, comisiones legislativas), no se permitirá el ingreso de personas en pantalón corto, pantaloneta, camisetas de tirantes, licra ni minisetas; así tampoco a actividades solemnes y oficiales de la Institución.
+(Así reformado el inciso c) anterior mediante sesión N° 132-2020 del 5° de noviembre de 2020)
 d. Presentar la cédula de identidad u otro documento que lo identifique e indicarle al agente de seguridad el lugar al que se dirige, esto para ser anotado en las hojas de control de ingreso.
 e. Colocarse el gafete o “stiker” que el agente le entregue en un lugar visible.
 f. No podrá ingresar a la Institución en estado de ebriedad o bajo los efectos de las drogas.

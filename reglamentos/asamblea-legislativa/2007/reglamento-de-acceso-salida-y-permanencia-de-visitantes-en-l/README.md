@@ -14,3 +14,4 @@ Reglamento de Acceso, Salida y Permanencia de Visitantes en la Asamblea Legislat
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-10-26 | la propia norma |
+| 2 | 2020-11-05 | Reglamento 132 (2020-11-05) |
