@@ -1,0 +1,1 @@
+Artículo 40.—Se considera exhumación ordinaria la que tiene lugar en los nichos de alquiler, cuando cumplidos los cinco años de haber sido hecha la inhumación y destruidas las partes blandas del cadáver o vencido el plazo de alquiler, en los casos de arrendamiento por más de cinco años, los restos son trasladados al osario general.

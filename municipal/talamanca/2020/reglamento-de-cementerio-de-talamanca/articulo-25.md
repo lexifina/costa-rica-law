@@ -1,0 +1,2 @@
+Artículo 25.—Las plantas que dañen las bóvedas o que obstaculicen el paso, serán cortadas sin responsabilidad de la Junta.
+Es prohibido dejar herramientas o materiales de trabajo sobre las plataformas, bóvedas y demás construcciones, lo mismo que en las aceras, pasillos y en el enzacatado. Cualquier daño que se ocasione a los lugares mencionados por no acatamiento de esta disposición deberá repararse de inmediato, de lo contrario la Junta realizará los trabajos y los cargará a la cuota de mantenimiento más el 50% de recargo.

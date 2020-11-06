@@ -1,0 +1,1 @@
+Artículo 8º—Las decisiones de la Junta podrán ser apeladas ante el Concejo Municipal dentro del término de tres días hábiles, contados a partir de la comunicación del acto. La Municipalidad tendrá un plazo de tres días hábiles para resolver la apelación.

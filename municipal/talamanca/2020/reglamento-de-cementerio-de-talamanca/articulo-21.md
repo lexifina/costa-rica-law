@@ -1,0 +1,1 @@
+Artículo 21.—A quien realice reparaciones sin el permiso de la Junta, los trabajos le serán suspendidos de inmediato hasta tanto no cumpla con las disposiciones vigentes; si lo construido afecta el ornato del cementerio o causa perjuicio a las fosas adyacentes, se procederá a la demolición sin responsabilidad alguna para la Junta.

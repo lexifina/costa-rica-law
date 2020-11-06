@@ -1,0 +1,1 @@
+Artículo 14.—Si el remate contuviere restos humanos, estando vencidos los términos reglamentarios de entierros, el adquirente o sus derecho habientes quedan facultados para depositar tales restos en el osario privado que se erija en la fosa o bodega adquirida en el remate.

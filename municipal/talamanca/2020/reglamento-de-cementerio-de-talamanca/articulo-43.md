@@ -1,0 +1,1 @@
+Artículo 43.—La Junta deberá resolver sobre el traslado de los restos en un plazo de treinta días naturales. En casos de especial consideración, se podrá comisionar a un miembro de la Junta para la comprobación de los datos o documentos presentados y los gastos que hubiere correrán a cargo del solicitante.

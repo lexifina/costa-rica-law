@@ -1,0 +1,1 @@
+Artículo 20.—Para toda reparación es necesaria la autorización previa y escrita de la Junta, para lo cual el interesado solicitará el permiso correspondiente en los formularios que le facilitará la Junta, debiendo adjuntar un timbre municipal de cincuenta colones. Para toda reparación deberá pagarse una suma equivalente al 5% del valor de la obra que se vaya a realizar.

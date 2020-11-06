@@ -1,0 +1,2 @@
+Artículo 12.—Los derechos de propiedad o arrendamiento sobre fosas y nichos, cuando han sido usados, podrán traspasarse a terceros si se hubieren exhumado todos los restos que contenían.
+Si no estuvieren desocupados sólo podrán ser adquiridos por ascendientes, descendientes, cónyuges, hermanos, tíos o sobrinos del arrendatario o propietario, o por quienes tengan iguales nexos con personas sepultadas en los mismos sitios, en todo caso cualquiera que sea el adquirente deberá cumplir con las condiciones estipuladas en el artículo 10.

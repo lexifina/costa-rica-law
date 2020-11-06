@@ -1,0 +1,1 @@
+Artículo 38.—Las exhumaciones para el traslado de restos se realizarán en presencia del administrador del cementerio, del panteonero o guardián y de dos testigos mayores de edad, de preferencia familiares de la persona fallecida. Se levantará un acta, copia de la cual quedará en los archivos de la Junta.

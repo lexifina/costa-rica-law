@@ -1,0 +1,1 @@
+Artículo 7º—La ausencia a tres sesiones consecutivas o cuatro alternas en un año de un miembro faculta a la Municipalidad para removerlo y sustituirlo por el período que resta. De previo a resolver el Concejo dará audiencia al director, y ante razones justas se archivará el informe.

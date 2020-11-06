@@ -1,0 +1,1 @@
+Artículo 16.—Ninguna persona física o jurídica podrá tener más de un derecho en este cementerio. A quienes no se ajusten a lo anterior se les otorgará un plazo improrrogable de noventa días hábiles para ponerse a derecho, de lo contrario, la Junta dará por rescindidos los contratos de aquellas en que tenga parientes menos allegados.

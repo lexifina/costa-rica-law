@@ -1,0 +1,1 @@
+Artículo 45.—Se prohíbe el traslado de restos entre bóvedas de propiedad particular, si entre el fallecido y los propietarios de una y otra bóveda no existen los vínculos familiares indicados en el artículo 1º del Decreto Nº 704 del 7 de setiembre de 1949.

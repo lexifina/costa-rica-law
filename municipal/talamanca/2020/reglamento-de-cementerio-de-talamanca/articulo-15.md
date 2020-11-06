@@ -1,0 +1,1 @@
+Artículo 15.—La Procuraduría General de la República será la representante en los procesos judiciales de todos los copropietarios cuyo paradero se ignore. Las cuotas que pertenezcan a estos propietarios se depositarán en la Junta, la que publicará un aviso en el Diario Oficial La Gaceta haciendo saber a que quien corresponda que en su oficina está depositado dicho valor.

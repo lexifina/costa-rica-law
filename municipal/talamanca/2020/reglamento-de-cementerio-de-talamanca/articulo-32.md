@@ -1,0 +1,1 @@
+Artículo 32.—Cuando en una fosa o bóveda disponible haya una momia y no cabe con el cadáver que se inhumará se dará prioridad a la momia y el cadáver se inhumará en otro lugar. El monto equivalente a los derechos de tapa o apertura de fosa o nicho de propiedad privada, no se reintegrará por ningún motivo.

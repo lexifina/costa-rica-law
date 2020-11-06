@@ -1,0 +1,1 @@
+Artículo 44.—A partir del momento en que los restos de una persona hayan salido del cementerio, la responsabilidad sobre los mismos será asumida en forma absoluta por el solicitante y los propietarios de las bóvedas que participaron firmando la autorización para el traslado.

@@ -1,0 +1,1 @@
+Artículo 36.—Si después de haber sido cubierto el alquiler de un nicho para realizar una inhumación, este no fuera ocupado, el arrendatario podrá pedir el reembolso de lo pagado durante los 30 días posteriores a la expedición del recibo correspondiente. La Junta rebajará el monto equivalente a los gastos realizados, el resto será reintegrado al interesado.

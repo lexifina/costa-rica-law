@@ -1,0 +1,1 @@
+Artículo 34.—Las inhumaciones se realizarán en el lapso comprendido entre las 8:00 a.m. y 5:00 p.m., para efectuar inhumaciones en horas diferentes se requiere la autorización de la autoridad competente.
