@@ -1,0 +1,1 @@
+Artículo 31: Las personas visitantes que asistan a la sesión y expongan sobre algún tema en relación con la actividad general del CCPJRC, tendrán un tiempo no mayor a diez (10) minutos para su exposición, todo con el propósito de darle celeridad a las sesiones y que otras personas puedan exponer sus inquietudes.

@@ -1,0 +1,1 @@
+Artículo 5º—Las personas jóvenes de Río Cuarto cuentan con todos los derechos establecidos en el artículo N˚4 de la Ley General de la Persona Joven, leyes y la Constitución Política de Costa Rica. Las personas adolescentes gozarán de los derechos contemplados en el Código de la Niñez y la Adolescencia N° 7739.

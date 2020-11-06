@@ -1,0 +1,1 @@
+Artículo 33.—Los miembros del CCPJRC podrán presentar recursos de revocatoria ante la Junta Directiva del CCPJRC, y de apelación subsiguientes ante el Concejo Municipal y luego al Consejo Nacional de Política Pública de la Persona Joven.

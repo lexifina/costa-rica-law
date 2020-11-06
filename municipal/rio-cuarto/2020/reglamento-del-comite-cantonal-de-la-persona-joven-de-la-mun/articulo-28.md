@@ -1,0 +1,1 @@
+Artículo 28.—Los acuerdos se tomarán por mayoría simple -mitad más uno- de los miembros presentes, salvo que el ordenamiento jurídico ordene una mayoría diferente. Cuando en una votación se produzca empate, se votará nuevamente en el mismo acto, y de empatar otra vez, la Presidencia ostentará el voto de calidad.

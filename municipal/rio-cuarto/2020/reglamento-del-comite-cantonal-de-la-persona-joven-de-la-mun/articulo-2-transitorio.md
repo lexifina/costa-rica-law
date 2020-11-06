@@ -1,0 +1,1 @@
+II.—Durante el tiempo que la Municipalidad no cuente con la posibilidad presupuestaria y organizativa de poner en funcionamiento la Dirección de Cultura y Deporte, sus competencias recaerán en la persona quien así determine la persona titular de la Alcaldía.

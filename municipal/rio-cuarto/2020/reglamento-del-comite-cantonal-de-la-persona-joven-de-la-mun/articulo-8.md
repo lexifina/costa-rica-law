@@ -1,0 +1,2 @@
+Artículo 8º—Para poder participar en el proceso de constitución del Comité Cantonal de la Persona Joven de Río Cuarto, las Organizaciones Juveniles y Religiosas del cantón deberán inscribirse como tales ante la Dirección de Cultura y Deporte.
+Para cumplir con el trámite de inscripción y registro la Dirección de Cultura y Deporte, contará con un plazo de hasta ocho (8) días hábiles, una vez que la documentación se encuentre presentada de manera completa.

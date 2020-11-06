@@ -1,0 +1,2 @@
+Artículo 17.—El CCPJRC podrá constituirse en unión solidaria con sus homólogos de la provincia de Alajuela y/o de la Zona Norte mediante Redes, Federaciones o cualquier otra forma de asociación que el ordenamiento jurídico nacional determine.
+De ser necesario, el CCPJRC se encuentra facultado para designar a las personas representantes en dichas formas de asociación. La elección de estas personas se realizará según lo establecido para la elección de la representación ante la ANPJ.

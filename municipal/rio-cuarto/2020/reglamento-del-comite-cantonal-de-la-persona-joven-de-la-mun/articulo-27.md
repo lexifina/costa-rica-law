@@ -1,0 +1,1 @@
+Artículo 27.—El quórum para sesionar será la mitad más uno de los miembros del CCPJRC. De no tenerse el quórum mínimo para sesionar después de trascurridos quince (15) minutos a partir de la hora señalada en la convocatoria se realizará la sesión con los miembros presentes dejando constar en el acta la asistencia.

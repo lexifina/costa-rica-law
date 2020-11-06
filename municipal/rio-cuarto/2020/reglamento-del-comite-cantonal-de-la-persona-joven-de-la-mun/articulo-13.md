@@ -1,0 +1,2 @@
+Artículo 13.—El Concejo Municipal deberá realizar la juramentación a más tardar en la primera sesión ordinaria del mes de noviembre del año par, para que la Secretaría del Concejo en los primeros días del mes de noviembre comunique al Consejo de la Persona Joven la nueva conformación del CCPJRC.
+El Concejo Municipal podrá juramentar a las personas electas como parte del Comité Cantonal de la Persona Joven en sesión virtual de conformidad con lo establecido en este Reglamento.
