@@ -14,3 +14,4 @@ Norma Técnica de Información Geográfica NTIG_CR04_01.2016: Perfil Oficial de 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-03-01 | la propia norma |
+| 2 | 2020-11-06 | Directriz 2 (2020-11-06) |
