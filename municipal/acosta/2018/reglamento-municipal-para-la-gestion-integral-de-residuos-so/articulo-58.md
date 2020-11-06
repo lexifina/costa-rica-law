@@ -1,1 +1,2 @@
-Artículo 58. El Departamento de Gestión Ambiental no avalará los Planes de Manejo de Residuos sólidos de los contribuyentes que así lo soliciten, si estos se encuentran atrasados con el pago de los impuestos municipales.
+Artículo 58.—El contribuyente que realice cualquier trámite antes el Departamento de Unidad de Gestión Ambiental deberá de estar al día con todas las obligaciones Municipales.
+(Así reformado en sesión N° 27 del 6 de noviembre del 2020)

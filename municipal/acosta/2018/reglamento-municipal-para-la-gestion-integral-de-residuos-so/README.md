@@ -14,3 +14,4 @@ Reglamento municipal para la gestión integral de residuos sólidos en el cantó
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-11-22 | la propia norma |
+| 2 | 2020-11-06 | Reglamento municipal 27 (2020-11-06) |

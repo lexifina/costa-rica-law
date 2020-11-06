@@ -7,3 +7,5 @@ e) Tasa C-3: La aplicar es para todo comercio, servicios e instituciones tales c
 f) Tasa C-4: La aplicar es para todo comercio, servicios e instituciones tales como: Cadena de Supermercados, Centros educativos, Clínica, Carnicería con verdulería, o o cualquier otra actividad de igual naturaleza y condiciones semejantes
 g) Tasa E-1: La tarifa se efectuará de acuerdo al peso de lo que se recolecte, adicionando el costo que represente gestionar dichos residuos. (Turnos, ferias, fiestas patronales, festejos cívicos, demoliciones, entre otros
 h) Tasa T-E La tarifa se efectuará de acuerdo a los costos incurridos para la recolecta, transporte y disposición final d productos de manejo especial más un 10% de gastos administrativos.
+I) Tasa INS: Se aplicará para las unidades habitaciones destinadas al servicio de arrendamiento.
+(Así adicionado el inciso anterior en sesión N° 27 del 6 de noviembre del 2020)
