@@ -1,0 +1,3 @@
+TRANSITORIO II- Ajuste de cuantías propias del régimen sancionador. Los montos previstos para las sanciones impuestas referidas en el inciso e) del artículo 56 de la Ley 7800, Creación del Instituto Costarricense del Deporte y la Recreación y del Régimen Jurídico de la Educación Física, el Deporte y la Recreación, de 30 de abril de 1998, deberán actualizarse por la institución u órgano público competente, a propuesta del Ministerio de Seguridad Pública y tomando en consideración la variación del índice de precios correspondiente.
+Rige a partir de su publicación.
+Dado en la Presidencia de la República, San José, a los doce días del mes de agosto del año dos mil veinte.

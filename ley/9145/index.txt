@@ -1,5 +1,6 @@
 articulo-1.md
 articulo-2.md
+articulo-2-bis.md
 articulo-3.md
 articulo-4.md
 articulo-5.md
@@ -9,6 +10,13 @@ articulo-8.md
 articulo-9.md
 articulo-10.md
 articulo-11.md
+articulo-11-bis.md
+articulo-11-ter.md
+articulo-11-quater.md
+articulo-11-quinquies.md
+articulo-11-sexies.md
+articulo-11-septies.md
+articulo-11-octies.md
 articulo-12.md
 articulo-13.md
 articulo-14.md
@@ -18,6 +26,11 @@ articulo-17.md
 articulo-18.md
 articulo-19.md
 articulo-20.md
+articulo-20-bis.md
+articulo-20-ter.md
+articulo-20-quater.md
+articulo-20-quinquies.md
+articulo-20-sexies.md
 articulo-21.md
 articulo-22.md
 articulo-23.md
