@@ -1,0 +1,12 @@
+ARTÍCULO 5- Se reforman los incisos a), b), d), e) y f), y se adicionan los incisos g), h), i) y j) al artículo 7 de la Ley 9145, Ley para la Prevención y Sanción de la Violencia en Eventos Deportivos, de 6 de agosto de 2013. Los textos son los siguientes:
+Artículo 7- Serán funciones de la Comisión:
+a) Asesorar a las autoridades nacionales, que así lo requieran, en todo lo relativo a la seguridad, la prevención de la violencia, racismo o cualquier forma de discriminación contraria a la dignidad humana en el deporte.
+b) Recopilar y publicar, anualmente, los datos sobre violencia, racismo o cualquier forma de discriminación contraria a la dignidad humana en los recintos deportivos, así como realizar encuestas y estadísticas sobre la materia, conforme a lo establecido en la presente ley.
+[ . . . ]
+d) Promover e impulsar acciones de prevención y previsión contra la violencia, el racismo o cualquier forma de discriminación contraria a la dignidad humana en eventos deportivos.
+e) Proponer a las autoridades públicas competentes la adopción de medidas mínimas de seguridad en los lugares donde se desarrollen los eventos deportivos, así como medidas correctivas o sancionatorias a quienes incumplan las regulaciones previstas en esta ley y en las normas que la desarrollan.
+f) Realizar anualmente informes y estudios sobre las causas y los efectos de violencia, racismo o cualquier forma de discriminación contraria a la dignidad humana en los eventos deportivos oficiales y de competición.
+g) Llevar y mantener, en conjunto con el Ministerio de Seguridad Pública, un registro de sanciones contra la violencia y el racismo en el deporte.
+h) Informar de manera eficiente y periódica, por medio escrito o electrónico, todo nuevo asiento acreditado en el registro de sanciones para efectos de conocimiento y control de las entidades y agrupaciones deportivas nacionales, las cuales serán responsables de llevar al día y con conocimiento el contenido de estos, debiendo actuar conforme a los establecido en esta ley y su reglamento. Asimismo, es responsabilidad de las entidades y agrupaciones deportivas informar a esta Comisión sobre hechos de violencia o actos de racismo perpetuados en el evento deportivo.
+i) Proponer a las autoridades públicas competentes la adopción de medidas correctivas o sancionatorias a quienes incumplan las regulaciones establecidas en esta ley y en las normas que la desarrollan.
+j) Cumplir cualquier otra función que le sea encomendada legal o reglamentariamente.
