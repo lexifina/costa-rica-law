@@ -1,4 +1,0 @@
-Artículo 3º—Fraccionamiento del pago de la prima inicial para el otorgamiento del fraccionamiento de pago. La Administración Tributaria podrá autorizar el pago en fracciones de la prima establecida en el artículo 192 del Reglamento del Procedimiento Tributario, que consiste en el monto de los intereses de todas las deudas por los impuestos incluidos en la solicitud, así:
-a. Si el monto de la prima es menor o igual al 30% del monto del principal no se otorgará fraccionamiento por la prima.
-b. Si el monto de la prima es mayor al 30% pero menor al 60% del monto del principal, se podrá otorgar un fraccionamiento por dos meses para el pago de la prima.
-c. Si el monto de la prima es mayor al 60% del monto del principal se podrá otorgar un fraccionamiento de hasta tres meses para el pago de la prima.
