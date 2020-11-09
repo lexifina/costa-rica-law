@@ -1,2 +1,10 @@
-Artículo 19. Actas del Consejo Institucional de Ayudas Económicas
-De cada sesión se levantará el acta donde se hace constar las personas asistentes a la misma, las circunstancias de tiempo y lugar en que se ha celebrado, los puntos analizados, el contenido de los acuerdos y el resultado de la votación respetando el procedimiento institucional para la elaboración de las actas.
+Artículo 19. Aplicación de rebajas a las ayudas económicas. A las ayudas económicas se les aplicará el rebajo por las siguientes situaciones:
+a) Vacaciones de las personas estudiantes y docentes.
+b) Semana Santa.
+c) Suspensión temporal del SCFP por razones administrativas o ajenas a la persona beneficiada.
+d) Ausencias de la persona estudiante cuando sean igual o mayor a 5 días, según mes calendario, en el caso de los servicios presenciales. En lo referente a los servicios en modalidad no presencial o mixta se aplicará de la misma forma, debiendo consignar la asistencia o conexión respectiva y dar seguimiento para verificar la permanencia de la persona estudiante en el SCFP.
+En los casos en que la persona estudiante se le suspende de su condición de estudiante por el régimen disciplinario establecido en el Reglamento de estudiantes de los SCFP del INA o Reglamento para la prevención de acoso u hostigamiento sexual en el INA, se rebajará la ayuda económica por el plazo que haya sido suspendida la condición de estudiante.
+No se realizan rebajos al monto aprobado del beneficio de reubicación geográfica y de las ayudas económicas de estímulo.
+Tampoco se realizarán las suspensiones o rebajos al monto aprobado de la ayuda económica en el caso del inciso c) siempre y cuando la persona siga manteniendo su estatus de estudiante en el SEMS y cuando se dé alguno o varios de los siguientes supuestos:
+a) Criterio técnico razonado por parte de las personas profesionales en Trabajo Social que, dada una determinada condición de vulnerabilidad, justifique la necesidad de que la persona continúe recibiendo la ayuda económica para poder seguir siendo partícipe del SCFP en cuestión una vez que este se reanude.
+b) Situación de fuerza mayor, caso fortuito o emergencia, cuando así sea definida por la Junta Directiva del INA o mediante criterio técnico razonado por parte de la persona profesional de Trabajo Social, la cual justifique la necesidad de que la persona continúe recibiendo la ayuda económica.

@@ -1,2 +1,4 @@
-Artículo 50. Plazo para resolver
-Tanto el Comité Regional de Ayudas Económicas como el Consejo Institucional tendrán un plazo de 10 días hábiles cada uno para pronunciarse sobre los recursos correspondientes. Este plazo rige a partir del día siguiente de la fecha de recibo del recurso.
+Artículo 50. Sesiones del CRBAE.
+Las sesiones del CRBAE podrán ser ordinarias y extraordinarias, así como presenciales o por medios telemáticos, según las siguientes disposiciones:
+a) Sesiones ordinarias: El CRBAE se reúne ordinariamente una vez al mes de conformidad con el cronograma establecido.
+b) Sesiones extraordinarias: Se convoca a sesiones extraordinarias cuando el presidente estime pertinente o a solicitud de al menos dos de las personas integrantes.

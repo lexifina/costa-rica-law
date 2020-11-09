@@ -19,3 +19,4 @@ Reglamento de ayudas económicas a personas participantes en servicios de capaci
 | 4 | 2014-01-21 | Reglamento 0 (2014-01-21) |
 | 5 | 2016-10-10 | Reglamento 4765 (2016-10-10) |
 | 6 | 2018-04-16 | Reglamento 4844 (2018-04-16) |
+| 7 | 2020-11-09 | Reglamento 44 (2020-11-09) |

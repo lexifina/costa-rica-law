@@ -1,7 +1,4 @@
-Artículo 35. Ayudas técnicas para personas con discapacidad y para atender situaciones calificadas.
-Está ayuda se brindará a las personas en condición de pobreza o extrema pobreza podrán otorgarse en los siguientes conceptos:
-a. Compra de ayudas técnicas con carácter individualizada, dirigida a personas cuya discapacidad sea una limitante para el Servicio de Capacitación o Formación Profesional.
-b. Para la atención de situaciones calificadas con carácter de emergencia y debidamente justificadas, que a plazo inmediato no podrán ser atendidas por las personas participantes o por las instituciones del Estado. La asignación de este beneficio será regulado por lo establecido en las instrucciones dictadas por el Proceso de Registro y Bienestar Estudiantil.
-La justificación para el otorgamiento de esta ayuda debe consignarse en el expediente digital y físico.
-El monto máximo a otorgar en este beneficio en cada uno de los conceptos será el 100% del total del monto establecido para el beneficio de hospedaje en la Tabla de Ayudas Económicas del INA.
-Para solicitar este beneficio deberá llenarse el formulario respectivo. Se deberá presentar al menos dos facturas proformas en los casos que se amerite, considerando la de menor precio y razonable. La liquidación del gasto se hará en los próximos ocho días hábiles una vez recibida la ayuda, para ello deberá presentar facturas timbradas debidamente canceladas, la cual se archivará en el expediente.
+Artículo 35. Sesiones del CIBAE.
+Las sesiones del CIBAE podrán ser ordinarias y extraordinarias, así como presenciales o por medios telemáticos, según se definen a continuación:
+a) Sesiones ordinarias: El CIBAE se reúne ordinariamente una vez al mes de conformidad con el cronograma establecido.
+b) Sesiones extraordinarias: Se convoca a sesiones extraordinarias cuando el presidente estime pertinente o a solicitud de al menos dos de las personas integrantes.

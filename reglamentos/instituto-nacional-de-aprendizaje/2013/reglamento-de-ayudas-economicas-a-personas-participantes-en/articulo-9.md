@@ -1,4 +1,4 @@
-Artículo 9°—De las sesiones del Consejo Institucional de Ayudas Económicas. Las sesiones del Consejo podrán ser Ordinarias y Extraordinarias.
-Sesiones ordinarias: el consejo se reúne ordinariamente al menos una vez cada dos meses y de conformidad con el cronograma establecido.
-Sesiones extraordinarias: se convocará a sesiones extraordinarias cuando el presidente estime pertinente o a solicitud de al menos dos de las personas integrantes.
-(Así reformado mediante sesión ordinaria N° 4844 del 16 de abril del 2018)
+Artículo 9. Productos de apoyo para personas estudiantes con discapacidad. Se otorga ayuda económica para la adquisición de productos de apoyo para personas estudiantes con discapacidad que lo requieran dada su condición socioeconómica y de discapacidad en los rubros siguientes:
+a) Compra de productos de apoyo con carácter individualizado, que su uso sea indispensable para el desempeño en el SCFP: Este beneficio se podrá otorgar más de una vez durante el proceso de capacitación o formación, en el caso de requerirse, previa valoración por parte de la persona profesional de trabajo social y para ello la persona interesada debe presentar la documentación probatoria. El monto máximo a otorgar será el 100% del total del monto establecido para el beneficio de reubicación geográfica en la Tabla de ayudas económicas del INA.
+b) Ayuda para la persona asistente personal o acompañante de la persona estudiante con
+discapacidad: La ayuda estará destinada a cubrir gastos de alimentación, pasajes y reubicación geográfica por el mismo periodo y monto aprobado a la persona estudiante que presenta la discapacidad.

@@ -1,6 +1,5 @@
-Artículo 46. Recuperación de la ayuda económica
-a. Cuando la persona con ayuda económica se retira del proceso de capacitación o formación por problemas de salud o situaciones muy calificadas y posterior a ello, solicita repetir el módulo, podrá reingresar con el status de la ayuda económica en el momento que se retiró.
-b. Cuando a la persona participante se le aplicó el artículo 47 del presente Reglamento no se le tramitará nueva solicitud hasta transcurridos dos años.
-c. Cuando la persona participante reingrese después de habérsele aplicado el artículo 45 inciso c) podrá realizar nuevo trámite de solicitud de ayuda económica y podrá otorgársele por una única vez más.
-d. Cuando la persona participante reingrese después de habérsele aplicado el artículo 45 inciso d) por desertar injustificadamente, podrá realizar nuevo trámite de solicitud de ayuda económica después de transcurridos doce meses y podrá otorgársele por una única vez más.
-Si la persona participante permanece fuera de la Institución por un período igual o superior a doce meses, deberá realizar nuevo trámite de solicitud de ayuda económica. Si el período es inferior deberá presentar solicitud por escrito la prórroga de la ayuda económica. Es necesario constatar cambio de situación socioeconómica si el período fuera de la institución fuera menos de doce meses.
+Comité Regional de Becas y Ayudas Económicas
+Artículo 46. Conformación del CRBAE. El CRBAE está conformado de la siguiente forma:
+a) La Jefatura de la UR es quien preside o su suplente quien será la PEPSU de la UR.
+b) La PECE o la persona suplente homóloga, el cual se elegirá por mayoría absoluta entre las PECE.
+c) La persona profesional de trabajo social o la persona suplente homóloga de la misma UR, la cual será elegida por mayoría absoluta entre las personas profesionales de trabajo social.

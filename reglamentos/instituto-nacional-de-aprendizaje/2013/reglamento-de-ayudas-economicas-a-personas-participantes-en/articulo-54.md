@@ -1,2 +1,2 @@
-Artículo 54. Derogatorias
-Se deroga cualquier otra disposición dictada por la Junta Directiva que se le oponga a este Reglamento.
+Artículo 54. Votaciones del CRBAE.
+Los acuerdos serán adoptados por mayoría absoluta, es decir, la mitad más uno de las personas integrantes del CRBAE.

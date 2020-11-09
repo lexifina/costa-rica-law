@@ -1,10 +1,9 @@
-CAPÍTULO III
-CONSEJO INSTITUCIONAL DE AYUDAS ECONÓMICAS
-Artículo 5. Integración del Consejo Institucional de Ayudas Económicas
-El Consejo Institucional de Ayudas Económicas está integrado por:
-a. La persona que representa a la Subgerencia Técnica de la Institución o su suplente, quien preside.
-b. La persona que ejerce la jefatura de la Unidad de Servicio al Usuario o su suplente quien deberá ser una persona profesional en Trabajo Social de la Unidad de Servicio al Usuario, quien ejerce la secretaría.
-c. Una persona representante de las Jefaturas Regionales o su suplente con las mismas atinencias.
-d. Una persona que represente a las y los profesionales que laboran como Trabajadores Sociales en el ámbito Institucional o su suplente.
-e. Una persona que represente al Proceso de Registro y Bienestar Estudiantil específicamente de la Especialidad de Trabajo Social.
-Las personas representantes indicadas en el inciso c) y d), son nombradas por períodos de un año en reunión de Jefaturas de Unidades Regionales y de profesionales en Trabajo Social en el mes de Diciembre, pudiendo ser reelectas.
+CAPÍTULO II
+SISTEMA DE AYUDAS ECONÓMICAS
+Artículo 5. Personas beneficiarias del SABE
+Podrán ser beneficiarias de las ayudas económicas del INA las personas estudiantes de escasos recursos económicos que se encuentren en condición de pobreza, extrema pobreza, condición de vulnerabilidad social y que cumplan con lo establecido en el artículo 15 del presente Reglamento.
+Para ello, debe demostrar que tiene esa condición que amerite el otorgamiento de la ayuda económica, previa valoración de la persona profesional en trabajo social.
+Además, podrán ser beneficiadas de las ayudas económicas las personas estudiantes de los SCFP que realizan práctica en la empresa, independientemente de su condición socioeconómica, así mismo se podrá otorgar ayudas para estimular la participación estudiantil en actividades culturales, deportivas, entre otras, dentro o fuera del país.
+La ayuda económica será para personas costarricenses y la población extranjera con estatus migratorio legal en el país.
+Si la persona solicitante, cuenta con ayuda económica brindada por otra institución pública o privada, el INA podrá valorar el otorgamiento de una ayuda económica o no, que la complemente y que le permita cubrir necesidades de su condición de estudiante, siempre que su situación socioeconómica lo amerite y de acuerdo con la normativa, directrices y lineamientos institucionales vigentes.
+En cuanto a las becas EFTP Dual, estas serán reguladas mediante su respectivo reglamento, salvo lo concerniente a la conformación y funciones de los órganos contralores CIBAE Y CRBAE

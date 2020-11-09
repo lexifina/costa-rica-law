@@ -1,4 +1,2 @@
-Artículo 39. Hospedaje
-El beneficio de hospedaje se otorgará a personas participantes cuyo lugar de residencia no les permite trasladarse oportunamente al Centro de Formación donde se imparte el servicio de capacitación y formación profesional o que enfrenten condiciones de violencia familiar, acoso sexual u otras muy calificadas, que limiten su participación en el servicio de capacitación.
-Los lineamientos para la ejecución y administración de este beneficio serán normados en el Proceso de Registro y Bienestar Estudiantil con características de Programa, donde se establecerán las responsabilidades del personal de Trabajo Social o del Equipo de Bienestar Estudiantil en el caso de las Residencias estudiantiles, de las personas beneficiarias y el trámite a seguir para adquirir este beneficio.
-El monto a otorgar para este beneficio no podrá sobrepasar lo establecido en la Tabla de Ayudas Económicas y es independiente de las otras ayudas, se exceptúa en el caso de las personas con discapacidad que requiera adecuaciones de acceso en el servicio a quienes se les aprobará hasta un 25% más del monto establecido en la Tabla de Ayudas Económicas.
+Artículo 39. Votaciones del CIBAE
+Los acuerdos serán adoptados por la mitad más uno de las personas integrantes del CIBAE.

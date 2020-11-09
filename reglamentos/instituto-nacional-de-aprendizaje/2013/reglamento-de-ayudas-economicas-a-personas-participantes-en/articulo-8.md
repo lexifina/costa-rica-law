@@ -1,8 +1,14 @@
-Artículo 8. Secretaría.
-El Consejo Institucional de Ayudas Económicas deberá contar con una secretaría que tendrá las siguientes funciones:
-a. Preparar el orden del día de cada sesión y comunicarla a sus integrantes con un mínimo de dos días hábiles de antelación. Deberá incluirse siempre un capítulo de mociones y asuntos varios.
-b. Enviar las actas con un plazo mínimo de dos días hábiles antes de cada sesión a cada miembro del Consejo.
-c. Los libros de actas que lleve esa secretaría deberán estar foliados y cumplir con las formalidades requeridas por la Ley 6227 de la Administración Pública y el procedimiento interno para el manejo de libros de actas.
-d. Levantar el acta en cada sesión y comunicar las resoluciones y acuerdos en un plazo máximo de 10 días hábiles posteriores a la fecha de la sesión.
-e. Firmar las actas de las sesiones del Consejo Institucional de Ayudas Económicas junto con la persona presidenta.
-f. Llevar la custodia de los documentos, archivos y libros de actas.
+Artículo 8. Ayuda por condición socioeconómica.
+Las ayudas por condición socioeconómica podrán otorgarse por los siguientes rubros:
+a) Alimentación.
+Para otorgar este beneficio se considera, el horario de estudio, el lugar de reubicación geográfica, el tiempo de traslado del lugar de su residencia al sitio donde recibe el SCFP, o su condición de pobreza o vulnerabilidad social independientemente de los otros parámetros mencionados en este artículo y de la modalidad de aprendizaje.
+b) Transporte. Para otorgar este beneficio se considera el costo establecido en las tarifas de los servicios de transporte público. Además, se podrá considerar la ayuda para el uso de transporte público o privado en aquellas situaciones por condición de discapacidad, horario final de la jornada diaria del SCFP con relación al lugar de residencia, vulnerabilidad social asistencia a tutorías y en otros casos de alto riesgo social o de peligrosidad de la comunidad donde reside.
+c) Gastos personales. Este beneficio se asigna para atender necesidades personales o generadas por proceso de estudios, además, para compra de artículos de uso personal que no puede cubrir la persona estudiante o su núcleo familiar por su condición de pobreza o vulnerabilidad social, el cual es indispensable para asistir o cumplir con el SCFP.
+d) Reubicación geográfica. Los requisitos para solicitar este beneficio son los siguientes:
+i. Personas de escasos recursos económicos que deben reubicarse geográficamente para asistir oportunamente al SCFP en el CE.
+ii. Personas estudiantes que deban reubicarse geográficamente para asistir a su práctica en la empresa.
+iii. Personas estudiantes que deban reubicarse geográficamente por enfrentar condiciones de vulnerabilidad social u otras especiales valoradas por la persona profesional en trabajo social.
+El monto máximo a otorgar será el establecido en la Tabla de ayudas económicas del INA.
+El seguimiento a este beneficio se da por la constatación de su lugar de residencia establecida en la solicitud de matrícula y la verificación de la asistencia.
+e) Ayuda para personas estudiantes jefaturas de hogar en condición de desempleo.
+Se otorga este beneficio a las personas referidas por la Agencia Nacional de Empleo en el marco del Sistema Nacional de Empleo, matriculadas y activas en un SCFP del INA y que demuestren ser jefatura de hogar en una condición de desempleo o que así sea consignado en SINIRUBE. El monto máximo para otorgar mensualmente será el definido como máximo por concepto de reubicación geográfica establecido en la Tabla de ayudas económicas del INA. Este beneficio podrá ser complementario con otros establecidos por este reglamento, de acuerdo con la situación y condición socioeconómica, previa valoración de la persona profesional de trabajo social. Las instrucciones específicas para este beneficio serán normadas por el PRBE.

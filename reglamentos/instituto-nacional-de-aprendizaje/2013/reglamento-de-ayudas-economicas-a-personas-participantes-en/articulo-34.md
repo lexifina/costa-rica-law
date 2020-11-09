@@ -1,5 +1,8 @@
-Artículo 34. Ayuda para cubrir gastos de alimentación, gastos personales y transporte.
-a. Alimentación: Se considerará el horario de estudio y el tiempo de traslado al lugar de su residencia u hospedaje donde recibe la capacitación.
-b. Transporte: Se considerará el costo establecido en las tarifas de los servicios de transporte público. Se podrá considerar la ayuda para el uso de transporte público o privado en aquellas situaciones por condición de discapacidad, horario final de la jornada diaria del SCFP con relación al lugar de residencia y en otros casos de alto riesgo social o de peligrosidad de la comunidad donde reside.
-c. Gastos personales: Gastos para artículos de uso personalizado que no puede cubrir la persona participante o su núcleo familiar por su condición de pobreza, el cual es indispensable para asistir al servicio de capacitación y formación profesional.
-La aprobación de estos rubros dependerá de la condición socioeconómica y categorías establecidas por el Índice Socioeconómico correspondiente y el monto a otorgar no podrá sobrepasar el máximo establecido en la Tabla de Ayudas Económicas del INA.
+Artículo 34. Funciones de la secretaría del CIBAE.
+La Secretaría del CIBAE tendrá las siguientes funciones:
+a) Preparar el orden del día de cada sesión y comunicarla a sus integrantes con un mínimo de dos días hábiles de antelación. Deberá incluirse siempre un capítulo de mociones y asuntos varios.
+b) Enviar las actas con un plazo mínimo de dos días hábiles antes de cada sesión a cada integrante del Consejo.
+c) Llevar los libros de actas, los cuales deben estar foliados y cumplir con las formalidades establecidas en la Ley General de la Administración Pública y el procedimiento interno para el manejo de libros de actas.
+d) Levantar el acta de cada sesión y comunicar las resoluciones y acuerdos en un plazo máximo de 10 días hábiles posteriores a la fecha de la sesión.
+e) Firmar las actas de las sesiones del CIBAE junto con la persona que preside.
+f) Custodiar los documentos, archivos y libros de actas.

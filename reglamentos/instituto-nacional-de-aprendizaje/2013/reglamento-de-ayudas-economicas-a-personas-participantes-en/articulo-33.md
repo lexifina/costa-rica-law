@@ -1,2 +1,11 @@
-Artículo 33. De las ayudas en general
-La ayuda económica se brindará a la persona participante por la condición socioeconómica que presente de acuerdo Índice de Medición Socioeconómica y/ o valoración de Trabajo Social y otras ayudas independientemente de su condición socioeconómica, según lo establecido en este reglamento para cada beneficio. Las ayudas podrán ser para cubrir gastos de transporte, alimentación y gastos personales, para pagar el hospedaje, para compra de ayudas técnicas para personas con discapacidad u otra situación calificada, a acompañantes de personas con discapacidad, para actividades de representación estudiantil, para la realización de las prácticas didácticas supervisadas y la modalidad dual en las empresas. El monto girado no podrá sobrepasar lo establecido en la Tabla de Ayudas Económicas del INA o lo establecido en este reglamento. En todo caso la Administración se reservará el derecho de otorgar o no una ayuda económica, ya que dependerá de las posibilidades administrativas y presupuestarias.
+Artículo 33. Funciones de la presidencia del CIBAE.
+La Presidencia del CIBAE tendrá las siguientes funciones:
+a) Convocar a sesiones, sean estas ordinarias o extraordinarias.
+b) Comprobar el quórum, abre, preside, suspende y levanta las sesiones.
+c) Concede la palabra en el orden solicitado.
+d) Someter votación los asuntos del CIBAE.
+e) Llamar al orden cuando el caso lo justifique.
+f) Conceder permiso para ausentarse de la sesión.
+g) Ejecutar los acuerdos del CIBAE.
+h) Firmar las actas de las sesiones ordinarias o extraordinarias.
+i) Cualquier otra función que, por Ley, Reglamento, normativa instrucción institucional se le asigne.

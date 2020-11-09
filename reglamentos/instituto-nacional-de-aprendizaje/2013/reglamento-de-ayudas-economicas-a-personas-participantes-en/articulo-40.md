@@ -1,5 +1,2 @@
-Artículo 40.—Ayuda para Prácticas Didácticas Supervisadas y Modalidad Dual. Podrán beneficiarse de esta ayuda las personas participantes de la modalidad de formación dual y otras modalidades que contienen prácticas didácticas supervisadas, previa solicitud de la persona participante en el formulario respectivo.
-Esta ayuda se podrá otorgar independientemente de la condición socioeconómica de la persona.
-Esta ayuda puede ser complementada con los otros beneficios establecidos en este reglamento por condición socioeconómica siguiendo los parámetros e instrucciones establecidas.
-El monto correspondiente a este beneficio será el dispuesto en la Tabla de Ayudas Económicas específicamente al monto del 50% del beneficio de Hospedaje.
-(Así reformado mediante sesión ordinaria N° 4844 del 16 de abril del 2018)
+Artículo 40. Asuntos no incluidos en el orden del día de las sesiones del CIBAE.
+No podrá ser objeto de acuerdo ningún asunto que no figure en el orden del día, salvo que estén presentes los dos tercios de los miembros del órgano y sea declarada la urgencia del asunto por el voto favorable de todos ellos, según lo dispuesto en el artículo 54 inciso 4) de la Ley General de la Administración Pública.

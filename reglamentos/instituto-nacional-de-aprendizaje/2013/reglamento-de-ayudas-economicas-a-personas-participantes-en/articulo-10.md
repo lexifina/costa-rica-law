@@ -1,2 +1,6 @@
-Artículo 10. Requisitos de Convocatoria a sesiones extraordinarias
-La convocatoria a sesiones extraordinarias deberán realizarse por escrito con una antelación mínima de veinticuatro horas, salvo en casos de urgencia o cuando haya acuerdo unánime de las personas integrantes del Consejo.
+Artículo 10. Ayudas para situaciones de caso fortuito o fuerza mayor. Para la atención de situaciones de caso fortuito o de fuerza mayor debidamente justificadas, se otorgará el beneficio por una única vez en el año y por un periodo máximo de 5 meses de acuerdo con la valoración de la persona profesional en trabajo social, esto en caso de que debidamente se acredite que, dichas situaciones no puedan ser atendidas de forma inmediata por la persona estudiante u otras instituciones del Estado. Las situaciones serán valoradas por la persona profesional de trabajo social quien solicitará a la persona estudiante los respaldos que se ameriten en cada caso.
+El monto máximo a otorgar será del 100% del total del monto establecido para el beneficio de reubicación geográfica en la Tabla de ayudas económicas del INA.
+Para obtener este beneficio la persona estudiante deberá:
+a) Llenar el formulario denominado "Solicitud de beneficios"
+b) Presentar ante la persona profesional de Trabajo Social una justificación en la cual se demuestre la necesidad de la ayuda económica producto de una situación de caso fortuito o de fuerza mayor.
+Dicha justificación deberá incluir toda la documentación necesaria que acredite el caso fortuito o de fuerza mayor.
