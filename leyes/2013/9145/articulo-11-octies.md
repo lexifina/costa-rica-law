@@ -1,0 +1,2 @@
+Artículo 11 octies- Actos y conductas no constitutivos de infracción. No se considerarán actos ni conductas violentas de infracción, previstos en el artículo 3 de esta ley, cuando estos hayan sido realizados por los deportistas dentro del marco normativo y las reglas técnicas del juego, competición, evento o espectáculo correspondiente a determinada modalidad deportiva.
+(Así adicionado por el artículo 8° de la Ley contra la violencia y el racismo en el deporte, N° 9878 del 12 de agosto del 2020)
