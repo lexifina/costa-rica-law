@@ -1,0 +1,4 @@
+Artículo 3º—Refórmese el artículo 14 del Reglamento de Concurso Público para la Selección y Nombramiento del Auditor Interno de la Municipalidad de Montes de Oro para que en adelante se lea de la siguiente manera:
+“Artículo 14—De la aprobación del procedimiento: El expediente del Concurso y la terna o nómina serán sometidos a conocimiento y aprobación del Concejo Municipal, quien remitirá a la Contraloría General de la República los requisitos estipulados en los lineamientos de la Contraloría General de la República.
+Si la Contraloría General de la República aprueba el concurso realizado, el Concejo Municipal de Montes de Oro procederá a realizar el nombramiento.
+Si la Contraloría General de la República imprueba el concurso realizado, se iniciará nuevamente este proceso, de conformidad con lo que al respecto señale el ente contralor.

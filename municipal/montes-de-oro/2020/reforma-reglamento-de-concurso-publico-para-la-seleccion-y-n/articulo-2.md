@@ -1,0 +1,2 @@
+Artículo 2º—Refórmese el artículo 13 del Reglamento de Concurso Público para la Selección y Nombramiento del Auditor Interno de la Municipalidad de Montes de Oro para que en adelante se lea de la siguiente manera:
+“Artículo 13—Sobre la forma en que estará conformada la terna o nómina: Se conformará una terna constituida con los tres participantes con calificaciones más altas o en caso de no alcanzar los tres participantes, una nómina de los participantes elegibles. De acuerdo a los lineamientos emanados por la Contraloría”
