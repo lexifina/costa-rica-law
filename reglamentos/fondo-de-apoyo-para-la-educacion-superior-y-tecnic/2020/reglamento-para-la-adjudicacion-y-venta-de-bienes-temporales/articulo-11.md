@@ -1,0 +1,1 @@
+Artículo 11°.-La venta de los bienes deberá promoverse mediante un concurso público de oferentes. Para tales efectos, se invitará a los interesados a participar en el concurso mediante publicación en el medio de comunicación nacional que se considere de interés.
