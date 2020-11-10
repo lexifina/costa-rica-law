@@ -1,0 +1,2 @@
+ARTICULO 118
+Para todos los efectos de este Reglamento de Cobro, rigen las normas que dictan: la Ley Nº 7667, el Reglamento de Crédito y las disposiciones y acuerdos tomados en las sesiones del Consejo Directivo.

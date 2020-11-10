@@ -1,0 +1,2 @@
+ARTICULO 61
+Cuando el monto de la cuota mensual de la operación crediticia supere lo establecido en el Contrato de Crédito para Estudios formalizado, por la solicitud de una prórroga de pago, la Sección de Cobro podrá disminuir la cuota ajustándola a la consignada en el Contrato, aumentando el plazo de amortización, sin que éste exceda el establecido en el Contrato.

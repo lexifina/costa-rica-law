@@ -1,0 +1,2 @@
+ARTICULO 77
+La firma del addendum al Contrato de Crédito para Estudios se realizará ante los funcionarios de FAESUTP, como testigos de recepción de las firmas del prestatario, fiadores o apoderados legales; para lo cual el firmante debe presentar el original de su cédula de identidad vigente, para que los funcionarios de FAESUTP validen la información y cotejen la firma del addendum. El funcionario de FAESUTP cuando no detecte ninguna irregularidad, estampará su firma a la par de la del prestatario, fiadores o apoderados legales e indicará la fecha de la recepción de ésta.

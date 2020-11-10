@@ -1,0 +1,2 @@
+ARTICULO 111
+La Sección de Cobro podrá solicitar a la Sección de Tesorería la entrega del Contrato de Crédito para Estudios y addendum al fiador o un tercero, cuando éste efectúe ante la Sección de Cobro el trámite de subrogación de la deuda.

@@ -1,0 +1,2 @@
+ARTICULO 23
+La fecha final para calcular el monto total adeudado del préstamo, una vez concluido el periodo de estudios, ya sea que haya cumplido o incumplido el Contrato de Crédito para Estudios, corresponderá al último día del mes anterior a la fecha en que se establece el inicio del plan de amortización de la deuda.

@@ -1,0 +1,2 @@
+ARTICULO 33
+Los funcionarios de la Sección de Cobro podrán otorgar durante el periodo de amortización, ante la solicitud escrita firmada por el prestatario, los fiadores o apoderado legal, una cuota mínima mensual hasta por un periodo máximo de seis meses, prorrogable por seis meses más, por una única vez; siempre y cuando la operación crediticia tenga pagos todos los recibos emitidos, se encuentre al día y haya causas que justifican la dificultad para pagar la cuota ordinaria.

@@ -1,0 +1,3 @@
+SECCION VIII: PRORROGAS DE PAGO
+ARTICULO 50
+El prestatario podrá solicitar por escrito una prórroga de pago, al iniciar o durante el periodo de amortización de la deuda, para realizar el pago de sus cuotas mensuales en una fecha posterior a la fecha de pago que le corresponde, lo que implicaría que finalizada la prórroga de pago autorizada, el saldo de principal adeudado se incremente, debido a los intereses corrientes, intereses moratorios y al saldo de la póliza de vida, que se acumulan en el periodo de la prórroga aprobado, resultando un nuevo saldo de principal y de cuota mensual.

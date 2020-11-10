@@ -1,0 +1,2 @@
+ARTICULO 36
+Cuando se efectúe un abono extraordinario al monto de principal de la deuda, se mantendrá en el plan de pagos, el monto de la cuota mensual vigente del préstamo, excepto para aquellos casos en que al momento del pago se le solicite al cajero la disminución de la cuota mensual.

@@ -1,0 +1,2 @@
+ARTICULO 95
+Los honorarios de abogado y gastos de juicio ejecutivo se cancelarán al Abogado Director conforme a la normativa vigente y se cobrarán al deudor, fiador o terceros cuando se presenten a cancelar, actualizar o realizar un arreglo de la operación crediticia.

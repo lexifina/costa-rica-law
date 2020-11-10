@@ -1,0 +1,2 @@
+ARTICULO 68
+La Sección de Cobro no aceptará ningún tipo de trámite, cuando se detecte que uno o más fiadores se encuentran desempleados, pensionados, fallecidos, o cualquiera situación que origine una disminución en la cobertura de la garantía que provoque su debilitamiento, con excepción de aquellos casos que fueran autorizados por el Encargado de la Sección de Cobro, previa justificación por escrito por parte del deudor, exceptuando las prórrogas de pago.

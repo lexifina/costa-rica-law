@@ -1,0 +1,4 @@
+ARTICULO 15
+La actuación del Comité de Cobro en la aplicación de este Reglamento se realiza mediante acuerdos consignados en el libro de actas de este Comité, legalizado por la Contador Público Autorizado contratada para tal fin.
+ARTICULO 16
+Todo préstamo devengará durante el periodo de amortización, incluyendo las prórrogas de pago, una tasa de interés corriente, la que será aplicable al saldo de principal vigente y cuando se incurra en atraso en el pago de las cuotas mensuales, adicionalmente, una tasa de interés moratoria, la que será aplicable al monto de la amortización del principal de la respectiva cuota, a partir de la fecha de vencimiento de la cuota mensual por los días transcurridos hasta la fecha del pago. La tasa de interés corriente y la moratoria, aplicables a la operación crediticia, serán las estipuladas en el Contrato de Crédito para Estudios.

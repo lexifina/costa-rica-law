@@ -1,0 +1,2 @@
+ARTICULO 69
+El prestatario está obligado a sustituir a uno o más fiadores, de conformidad con el artículo 68, quedando la Sección de Cobro facultada para denegar cualquier trámite administrativo hasta tanto no se efectúe la sustitución.

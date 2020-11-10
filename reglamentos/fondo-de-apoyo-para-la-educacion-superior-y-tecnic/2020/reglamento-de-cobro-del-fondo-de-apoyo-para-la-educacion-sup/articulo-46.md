@@ -1,0 +1,5 @@
+ARTICULO 46
+Cuando la cancelación sea efectuada por el Poder Judicial, el Comprobante de Pago se confeccionará a nombre del prestatario y el reintegro de los dineros se girarán a nombre de la persona o las personas conforme al siguiente orden:
+a. A la persona o personas que se indique en la solicitud firmada por el deudor y todos los fiadores
+b. A la persona o personas que demuestren fehacientemente que los dineros le fueron retenidos por el Juzgado, mediante la presentación de una constancia detallada de los depósitos judiciales retenidos al cliente (sea deudor o fiador), por concepto de embargos emitido por el Juzgado correspondiente, debidamente firmados y sellados.
+c. A la persona o personas, que el fiador que solicitó la subrogación de deuda autorice para que se giren dichos dineros.

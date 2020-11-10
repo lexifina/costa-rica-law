@@ -1,0 +1,2 @@
+ARTICULO 104
+El Consejo Directivo de la Institución o el Comité de Cobro, según corresponda, podrán solicitar ampliaciones a la información proporcionada en el informe presentado por el Abogado Director, para poder tomar la decisión de denegar o aprobar la declaratoria de incobrables.

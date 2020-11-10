@@ -1,0 +1,2 @@
+ARTICULO 58
+Ante la solicitud de una prórroga de pago, conforme a las condiciones establecidas para ese efecto en el artículo 57 de este reglamento, la operación crediticia será excluida de la cartera de cobro judicial y de poseer un saldo adeudado pendiente de cancelar, retornará al mecanismo de la tasa de interés corriente y/o moratoria establecida en el contrato de crédito para estudios o en addendum(s).

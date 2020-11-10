@@ -1,0 +1,2 @@
+ARTICULO 27
+La reversión de las operaciones crediticias de la cartera de cobro hacia la de transición, se podrán realizar siempre y cuando, a la operación crediticia no se le haya emitido un recibo de pago en modalidad devengado, no tenga recibos pagos, ni se le haya reversado o anulado ningún recibo, para lo cual deberá mediar solicitud de la Sección de Desembolsos y Control de Crédito, en donde indique el motivo del trámite; casos de excepción serán autorizados por el Encargado de la Sección de Cobro.

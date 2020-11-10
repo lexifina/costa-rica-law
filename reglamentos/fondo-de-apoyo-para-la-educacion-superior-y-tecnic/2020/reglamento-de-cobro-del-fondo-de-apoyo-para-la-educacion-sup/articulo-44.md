@@ -1,0 +1,3 @@
+ARTICULO 44
+Cuando la cancelación sea efectuada mediante nota de crédito o el sistema de pago en línea, el Comprobante de Pago se confeccionará a nombre del Prestatario y el reintegro de dinero se entregará a éste previa demostración fehaciente ante la Sección de Cobro de quien efectuó el pago, presentando los documentos que así lo comprueben.
+Cuando el pago lo haya realizado una persona diferente al prestatario, la Sección de Cobro girará los montos sobrantes a la persona que efectúo el pago, previa presentación de la solicitud del reintegro del cliente y los documentos emitidos por el ente recaudador que demuestren quién efectuó el pago.

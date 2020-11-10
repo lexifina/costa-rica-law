@@ -1,0 +1,5 @@
+ARTICULO 51
+Los funcionarios de la Sección de Cobro podrán otorgar una o varias prórrogas de pago, siempre y cuando concurran los motivos señalados en el artículo Nº55 de este Reglamento, de la siguiente forma:
+a. Si la operación se encuentra al día, podrán otorgar tres periodos máximos de cuatro meses cada uno, para un total de doce meses; siendo requisito previo que el prestatario haya agotado el periodo anterior.
+b. Si la operación se encuentra atrasada, podrán otorgar un periodo equivalente a los meses morosos que registra la operación crediticia en el sistema, más un periodo adicional de tres meses, siempre y cuando ambos no excedan los doce meses.
+c. Aquellos periodos superiores a los doce meses, serán resueltos por el Comité de Cobro, conforme a lo establecido en el artículo Nº 52 de este Reglamento.

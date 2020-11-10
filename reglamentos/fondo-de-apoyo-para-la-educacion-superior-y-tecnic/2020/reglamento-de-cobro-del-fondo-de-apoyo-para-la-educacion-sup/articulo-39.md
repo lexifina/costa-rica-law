@@ -1,0 +1,2 @@
+ARTICULO 39
+El uso del sistema de pago en línea a través de las plataformas tecnológicas de las entidades bancarias, tendrá un cargo adicional al monto de la cuota mensual de la deuda con FAESUTP, que será incluido en el recibo de pago emitido por ésta, cuyo monto será fijado por el banco.

@@ -1,0 +1,2 @@
+ARTICULO 54
+La prórroga de pago, para aquellas operaciones crediticias que hayan realizado pagos de sus cuotas, se considera desde la fecha de la última cuota pagada en condiciones normales y registradas en el sistema, hasta el último día del mes anterior a la fecha en que el cliente reanude de nuevo los pagos de las cuotas mensuales.

@@ -1,0 +1,2 @@
+ARTICULO 22
+El prestatario y fiadores, autorizan expresamente a FAESUTP, que al inicio del periodo de amortización se efectué la liquidación inicial del monto adeudado, el cual estará compuesto del monto desembolsado, intereses del periodo de estudios, comisión y cualquier otro concepto; con la finalidad de contar con un solo monto de principal adeudado, que incluirá todas las sumas adeudadas. Esta liquidación tendrá carácter de Documento Ejecutivo.

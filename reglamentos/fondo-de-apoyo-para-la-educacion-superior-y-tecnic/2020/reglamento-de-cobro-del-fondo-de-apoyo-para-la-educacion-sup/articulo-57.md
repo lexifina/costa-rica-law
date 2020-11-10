@@ -1,0 +1,3 @@
+ARTICULO 57
+La Sección de Cobro podrá otorgar prórrogas de pago a operaciones crediticias que se encuentran en cobro judicial, para lo cual deberá cancelar: la totalidad de los gastos legales, el 50% del monto pendiente de los intereses y el 50% del costo de garantía y presente(n) los requisitos establecidos en este Reglamento para el periodo de prórroga de pago.
+En caso de que existan retenciones judiciales en trámite, estos dineros le serán aplicados a la operación crediticia y no le serán devueltos ni al prestatario ni al fiador, fiadores o terceros de mejor derecho, excepto cuando exista una orden judicial que disponga reintegrar los montos.

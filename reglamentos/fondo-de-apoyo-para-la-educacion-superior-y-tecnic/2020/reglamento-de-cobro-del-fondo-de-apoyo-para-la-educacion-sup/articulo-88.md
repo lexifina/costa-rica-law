@@ -1,0 +1,2 @@
+ARTICULO 88
+FAESUTP registrará contablemente los intereses, póliza de vida y otros cargos, a las operaciones crediticias que hayan sido indemnizadas por el INS, hasta la fecha de la defunción o de la vigencia decretada para la incapacidad total o permanente. En caso de que existan saldos en descubierto, se autoriza a la Sección de Contabilidad previa solicitud de la Sección de Cobro, a que se realicen los ajustes pertinentes en los registros contables para declarar incobrables dichos montos.

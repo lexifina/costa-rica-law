@@ -1,0 +1,2 @@
+ARTICULO 59
+Las prórrogas de pago que no cumplan con lo establecido en el artículo Nº 57, serán sometidas a consideración y aprobación del Comité de Cobro, siempre y cuando hayan pagado el monto de la totalidad de honorarios y gastos del proceso y cumpla con los requisitos establecidos en el artículo Nº 60 y adicionalmente, demuestre que posee la capacidad financiera para atender la obligación crediticia.

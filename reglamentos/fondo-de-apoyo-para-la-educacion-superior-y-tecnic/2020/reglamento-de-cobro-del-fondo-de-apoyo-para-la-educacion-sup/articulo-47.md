@@ -1,0 +1,2 @@
+ARTICULO 47
+Los dineros sobrantes en aplicaciones de operaciones en cobro judicial, posterior a la cancelación de la deuda, provenientes del Juzgado, y que en un plazo superior a dos meses después de haber sido notificados del trámite que deben seguir, y que no se hayan reintegrado al cliente o clientes, se trasladarán a la cuenta de ingresos varios de FAESUTP, quedando evidencia del trámite realizado en el expediente.

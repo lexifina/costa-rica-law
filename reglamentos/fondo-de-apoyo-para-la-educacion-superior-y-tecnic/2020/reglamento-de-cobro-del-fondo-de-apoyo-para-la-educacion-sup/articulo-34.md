@@ -1,0 +1,2 @@
+ARTICULO 34
+Los funcionarios de la Sección de Cobro podrán otorgar ante la solicitud escrita firmada por el prestatario, los fiadores o apoderado legal, una ampliación del plazo de amortización de la operación crediticia, establecido en el Contrato de Crédito para Estudios formalizado, hasta por el plazo máximo de amortización señalado en el presente Reglamento y de aprobarse la solicitud deberá firmarse un addendum al Contrato de Crédito.

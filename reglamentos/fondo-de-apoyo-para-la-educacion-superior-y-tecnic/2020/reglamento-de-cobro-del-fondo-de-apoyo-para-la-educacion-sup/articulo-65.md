@@ -1,0 +1,6 @@
+ARTICULO 65
+Para tramitar un arreglo de pago administrativo, el interesado deberá cumplir con los siguientes requisitos:
+a. Cumplir con lo establecido en los artículos 64 según corresponda.
+b. Solicitud escrita firmada por el prestatario, sus fiadores o apoderado legal, en el formulario establecido por FAESUTP para ese efecto. La firma de la solicitud debe ser igual a la de la cédula de identidad vigente.
+c. Para las garantías fiduciarias se deberá actualizar mediante los mecanismos establecidos por FAESUTP, las direcciones, números de teléfonos de residencia, trabajo, número de celular, correo electrónico del prestatario y fiadores. Para las garantías hipotecarias se deberá actualizar mediante los mecanismos establecidos por FAESUTP, los datos anteriores tanto del prestatario como de l(os) dueño(s) de la propiedad.
+d. En aquellos casos que posean una garantía hipotecaria y hayan requerido una póliza de incendio y terremoto, ésta deberá estar al día y mantener vigente la acreencia de dicha póliza, para lo cual debe presentar el respectivo comprobante emitido por el ente asegurador.

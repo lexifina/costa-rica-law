@@ -1,0 +1,3 @@
+SECCION XVI: POLIZA DE INCENDIO TERREMOTO
+ARTICULO 82
+El prestatario queda obligado a presentar diez días hábiles antes de la fecha de vencimiento de la póliza de incendio y terremoto un documento emitido, firmado y sellado por el ente asegurador que demuestre que su póliza de incendio y terremoto se encuentra vigente y que su respectiva acreencia, cuando exista, permanece a favor de FAESUTP y que se mantiene en los mismos términos iniciales.

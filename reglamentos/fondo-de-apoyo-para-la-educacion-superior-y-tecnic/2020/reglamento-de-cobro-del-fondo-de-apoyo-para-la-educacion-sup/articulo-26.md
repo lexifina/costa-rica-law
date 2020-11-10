@@ -1,0 +1,2 @@
+ARTICULO 26
+La Sección de Desembolsos y Control de Crédito deberá entregar a la Sección de Cobro los expedientes con la póliza de incendio y terremoto al día, con las direcciones y números de teléfonos móviles y teléfono de habitación, lugar de trabajo del prestatario y sus fiadores con la información actualizada; salvo casos debidamente justificados y autorizados por el Encargado de la Sección de Desembolsos y Control de Crédito.

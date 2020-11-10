@@ -1,0 +1,3 @@
+ARTICULO 18
+Las operaciones crediticias que ingresen a la cartera de cobro judicial, devengarán la última tasa de interés moratoria vigente a la fecha de corte del cálculo de los montos de intereses moratorios de la demanda. Esta tasa de interés moratoria, permanecerá fija durante el periodo en que la operación crediticia se encuentre en la cartera de cobro judicial.
+Si por cualquier circunstancia, quedase un saldo al descubierto durante el periodo en que la operación crediticia se traslada de cobro judicial a cobro administrativo, se le aplicará a dicho saldo la tasa de interés vigente al momento de efectuarse el pago.
