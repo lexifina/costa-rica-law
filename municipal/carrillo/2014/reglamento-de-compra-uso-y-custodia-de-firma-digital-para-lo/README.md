@@ -14,3 +14,4 @@ Reglamento de compra, uso y custodia de firma digital para los funcionarios de l
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-08-31 | la propia norma |
+| 2 | 2020-11-10 | Reglamento municipal 45 (2020-11-10) |
