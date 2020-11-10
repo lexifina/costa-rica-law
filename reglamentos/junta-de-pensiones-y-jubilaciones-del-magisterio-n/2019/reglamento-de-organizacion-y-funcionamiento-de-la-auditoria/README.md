@@ -14,3 +14,4 @@ Reglamento de organización y funcionamiento de la auditoría interna de la Junt
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-03-14 | la propia norma |
+| 2 | 2020-11-10 | Reglamento 125 (2020-11-10) |
