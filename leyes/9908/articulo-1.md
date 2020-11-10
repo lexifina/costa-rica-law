@@ -1,0 +1,15 @@
+Nº 9908
+LA ASAMBLEA LEGISLATIVA
+DE LA REPÚBLICA DE COSTA RICA
+DECRETA:
+ADICIÓN DE UN TRANSITORIO ÚNICO A LA LEY 2166,
+LEY DE SALARIOS DE LA ADMINISTRACIÓN
+PÚBLICA, DE 9 DE OCTUBRE DE 1957
+ARTÍCULO ÚNICO- Se adiciona un transitorio único a la Ley 2166, Ley de Salarios de la Administración Pública, de 9 de octubre de 1957. El texto es el siguiente:
+Transitorio Único- A las personas servidoras públicas de las instituciones públicas, cubiertas por el artículo 26 de la presente ley, no se les girará el pago por concepto del monto incremental de las anualidades, correspondiente a los períodos 2020-2021 y 2021-2022.
+Sin embargo, la evaluación de desempeño para dichos períodos se realizará para todas las personas servidoras públicas para todos los efectos, excepto el pecuniario directamente relacionado con el reconocimiento de las anualidades indicadas.
+Dichas evaluaciones de reconocimiento de las anualidades correspondientes a los períodos 2020-2021 y 2021-2022, se contabilizarán para efectos de referencia del rendimiento de las personas servidoras públicas, determinación de los años de servicio, el cálculo del pago de cesantía y todos los demás extremos laborales que correspondan al momento de finalización de la relación de servicio, a excepción del pago efectivo por concepto de esta remuneración adicional al salario, como lo determina el párrafo anterior.
+Para el caso de todas las instituciones de la Administración Central, estas no presupuestarán dichos recursos para los ejercicios presupuestarios 2021 y 2022 y harán los ajustes presupuestarios pertinentes, a fin de realizar el rebajo presupuestario correspondiente.
+Aquellas transferencias corrientes de la Administración Central hacia el resto del sector público, que tengan por objeto el pago total o parcial de retribuciones por años servidos de las instituciones receptoras, no podrán ser presupuestadas en dicha proporción durante los años 2021 y 2022.
+Rige a partir de su publicación.
+Dado en la Presidencia de la República, San José, a los veintiún días del mes de octubre del año dos mil veinte.
