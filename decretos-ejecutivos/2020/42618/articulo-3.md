@@ -1,0 +1,1 @@
+Artículo 3º—De requerirse sustituir algún representante de los segmentos cívico comunal, privado, ambiental, académico, municipal, territorios indígenas y organizaciones de afrodescendientes, que integran el Directorio de los Consejos Regionales de Desarrollo, cada segmento se encargará de designar a su o sus nuevos representantes.
