@@ -1,0 +1,4 @@
+ARTÍCULO 9: CONCLUSION DE ESTUDIOS SECUNDARIOS DE LOS SOLICITANTES
+Los solicitantes de préstamos que inicien o continúen estudios de pregrado y grado en Costa Rica, tienen que demostrar a FAESUTP, que son estudiantes que han obtenido el título de conclusión de educación secundaria en alguna institución acreditada por el MEP de acuerdo con lo que establece la Ley 7667.
+FAESUTP deberá realizar la validación de que el solicitante es bachiller en secundaria de conformidad a lo establecido por el MEP, por medio de consulta electrónica al registro de estudiantes graduados de secundaria, en la Base de Datos respectiva de la Dirección de Evaluación y Gestión de la Calidad del Ministerio de Educación Pública.
+En caso de no estar registrado en esa Base de Datos o de existir inconsistencia, el interesado debe presentar una certificación oficial extendida por el Director del Colegio donde realizó los estudios con al menos 30 días de haber sido emitida.

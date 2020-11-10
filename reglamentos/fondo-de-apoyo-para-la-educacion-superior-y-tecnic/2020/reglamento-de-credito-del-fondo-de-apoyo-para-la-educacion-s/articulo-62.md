@@ -1,0 +1,2 @@
+ARTÍCULO 62: PRESENTACION DE INFORMES ACADEMICOS Y DE NO DEUDA, OFICIALES, POR PARTE DEL PRESTATARIO, PARA CICLOS LECTIVOS SUSPENDIDOS
+El prestatario queda en la obligación de presentar los informes oficiales de matrícula, de calificaciones y de no deuda, correspondientes a períodos lectivos para los cuales se le haya penalizado con la suspensión del desembolso o cuando los haya financiado con sus propios recursos

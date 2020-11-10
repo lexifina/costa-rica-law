@@ -1,0 +1,2 @@
+ARTÍCULO 20: POLIZA COLECTIVA DE VIDA
+El prestatario será incluido por FAESUTP en la Póliza Colectiva de Vida de la Aseguradora contratada durante la vida del crédito. El costo de dicha póliza será rebajado de los desembolsos del prestatario, de conformidad con la periodicidad que establezca FAESUTP durante el tiempo de estudios. En el período de pago, el monto respectivo debe ser cubierto por el prestatario.

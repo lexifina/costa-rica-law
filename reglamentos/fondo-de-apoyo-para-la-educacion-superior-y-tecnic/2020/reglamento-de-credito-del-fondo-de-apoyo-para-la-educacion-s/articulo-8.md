@@ -1,0 +1,5 @@
+ARTÍCULO 8: ENTIDADES EDUCATIVAS FINANCIABLES
+El solicitante debe realizar estudios en entidades universitarias, para universitarias o técnicas autorizadas según el siguiente detalle:
+Las entidades y las carreras de educación superior en Costa Rica deben estar aprobadas mediante Ley o Decreto, o bien, por el Consejo Nacional de Rectores (CONARE) en el caso de universidades públicas, por el Consejo Nacional de Educación Superior de Universidades Privadas (CONESUP) en el caso de universidades privadas y por el Consejo Superior de Educación, del Ministerio de Educación Pública, para las entidades para universitarias públicas y privadas.
+Para el financiamiento de programas en Costa Rica no contemplados anteriormente, como el caso de carreras técnicas universitarias y para universitarias y cursos cortos a nivel universitario y para universitario, deberán contar con el aval por el ente correspondiente, para ser registradas como financiables por FAESUTP.
+FAESUTP también financiará programas de certificaciones nacionales e internacionales en diversas áreas educativas aprobados por el Consejo Directivo que permitan la empleabilidad de los puntarenenses

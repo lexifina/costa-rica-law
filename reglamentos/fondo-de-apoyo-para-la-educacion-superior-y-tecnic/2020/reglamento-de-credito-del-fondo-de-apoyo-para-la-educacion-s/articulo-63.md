@@ -1,0 +1,5 @@
+ARTÍCULO 63: SANCIONES AL PRESTATARIO QUE EXCEDA EL PORCENTAJE ESTABLECIDO DE REPROBACION DE ASIGNATURAS
+Cuando el prestatario exceda la reprobación del 20% del total de las asignaturas a financiar, el departamento de Análisis y Seguimiento, por medio de los funcionarios que establece este reglamento, aplica las siguientes sanciones
+1. En el próximo desembolso, se deduce el monto proporcional de las asignaturas reprobadas - con relación al monto total desembolsado - del ciclo anterior.
+2. Cuando el prestatario repruebe el 100% de las asignaturas matriculadas en un ciclo lectivo, se le suprime el préstamo y se traslada a la fase de cobro, aunque no exceda la reprobación del 20% del total de las asignaturas financiadas, salvo casos especiales, a juicio del Coordinador de Análisis y Seguimiento.
+Los montos deducidos se acumulan como un último desembolso al final del Plan de Desembolsos. Si el prestatario solicitara dicho desembolso, se le puede autorizar previa comprobación del avance académico en el Cronograma de Estudios.

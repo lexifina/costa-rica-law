@@ -1,0 +1,3 @@
+[imagen] [imagen] [imagen] ANEXO 5: TABLA DEL FACTOR INGRESO LIQUIDO FAMILIAR MENSUAL
+[imagen]
+Parámetros (SE ACTUALIZAN CADA AÑO)

@@ -1,0 +1,2 @@
+ARTÍCULO 23: CRONOGRAMA DE ESTUDIOS Y PLAN DE DESEMBOLSOS DEL SOLICITANTE O PRESTATARIO
+El solicitante o prestatario de préstamo debe registrar en el Cronograma de Estudios y en el Plan de Desembolsos, el nombre y número de las asignaturas por matricular en cada ciclo lectivo, las cuales deben mantener concordancia racional y proporcional con el programa oficial de estudios de la entidad educativa, haya o no solicitado los topes crediticios que FAESUTP establece para cada nivel de estudios.
