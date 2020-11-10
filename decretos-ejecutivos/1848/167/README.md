@@ -13,3 +13,4 @@ Designa los límites de la República y demarca las Provincias, Cantones y Parro
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1848-12-07 | la propia norma |
+| 2 | 2020-11-10 | Acuerdo 12 (2020-11-10) |
