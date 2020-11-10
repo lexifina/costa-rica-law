@@ -1,0 +1,2 @@
+Artículo 68.- Derogación. Se deroga el Reglamento Interno de Contratación Administrativa de la Contraloría General de la República, promulgado mediante resoluciónR-DC-169-2010 de las quince horas del veintiocho de setiembre del dos mil diez y su reforma.
+(Así modificada su numeración por el artículo 2° de la resolución N° R-DC-92-2020 del 10 de noviembre del 2020, que lo traspasó del antiguo artículo 64 al 68)

@@ -14,3 +14,4 @@ Reglamento Interno para la Adquisición de Bienes y Servicios de la Contraloría
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-06-23 | la propia norma |
+| 2 | 2020-11-10 | Resolución 92 (2020-11-10) |

@@ -1,2 +1,2 @@
-Artículo 49.- Modificación del contrato y/o contrato adicional. La UT deberá remitir a la USP las solicitudes para modificar un contrato o tramitar un contrato adicional, con indicación de los criterios por medio de los cuales se determinó que se cumplen los requisitos para la ejecución del trámite correspondiente.
-Cuando se trate de un contrato adicional, la solicitud deberá ser planteada ante la USP con al menos dos meses de anticipación al vencimiento de los seis meses posteriores a la recepción provisional del objeto contractual.
+Artículo 49.—Plazo. El plazo con que contará la UJI para emitir el acto de refrendo interno será de diez días hábiles, sin perjuicio de las prevenciones que sea necesario realizar durante el trámite, las cuales suspenderán el cómputo del plazo hasta su debida atención.
+(Así adicionado por el artículo 1° de la resolución N° R-DC-92-2020 del 10 de noviembre del 2020)

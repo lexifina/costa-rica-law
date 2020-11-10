@@ -1,5 +1,3 @@
-Artículo 53.- Reajuste y revisión de precios. En lo referente al reajuste y revisión de precios, la USP será la encargada de:
-a) Determinar si el cartel de la contratación debe incluir cláusulas referentes al reajuste de precios.
-b) Resolver las gestiones de reajuste de precios presentadas por los contratistas, con la colaboración de la UT y la UAF.
-c) Informar a la UT y a la UAF, en los casos en los que se apruebe un reajuste de precios.
-Para tales efectos, la UT y la UAF deberán colaborar con la USP en la determinación de la razonabilidad de la estructura de precios y los índices presentados.
+Artículo 53.- Modificación del contrato y/o contrato adicional. La UT deberá remitir a la USP las solicitudes para modificar un contrato o tramitar un contrato adicional, con indicación de los criterios por medio de los cuales se determinó que se cumplen los requisitos para la ejecución del trámite correspondiente.
+Cuando se trate de un contrato adicional, la solicitud deberá ser planteada ante la USP con al menos dos meses de anticipación al vencimiento de los seis meses posteriores a la recepción provisional del objeto contractual.
+(Así modificada su numeración por el artículo 2° de la resolución N° R-DC-92-2020 del 10 de noviembre del 2020, que lo traspasó del antiguo artículo 49 al 53)
