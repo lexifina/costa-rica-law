@@ -1,0 +1,3 @@
+Artículo 7°—Ancho y ampliación vial.
+a) Ancho. La municipalidad se reserva el derecho de verificar el ancho real frente a las propuestas de segregación indicado en el plano, pudiendo denegar el trámite cuando no corresponda con la realidad a partir de la utilización de los parámetros de precisión que la ciencia y la técnica dispongan para estos efectos.
+b) Ampliación vial. La municipalidad corroborará la correcta descripción de la ampliación vial con base en el pronunciamiento del ancho oficial previamente establecido, pudiendo requerir su subsanación en caso de no ajustarse a ello y denegar posteriormente el trámite en caso de omitirse el requerimiento.

@@ -1,0 +1,1 @@
+SEGUNDO: Solicitar a la Alcaldía Municipal para que proceda en forma expedita a diligenciar la publicación definitiva del referido reglamento en el Diario Oficial La Gaceta Tilarán, nueve horas del nueve de setiembre del dos mil veinte.

@@ -1,0 +1,1 @@
+TRANSITORIO UNICO: Este reglamento regirá dos meses calendario después de su publicación en el Diario Oficial La Gaceta, a efectos de que la municipalidad proceda a divulgarlo ampliamente en el cantón.”

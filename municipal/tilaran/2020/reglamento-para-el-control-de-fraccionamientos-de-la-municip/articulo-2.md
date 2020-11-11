@@ -1,0 +1,26 @@
+Artículo 2°— Definiciones. Para efectos de comprensión del presente reglamento, se entenderá por:
+a) Aceptación municipal de las áreas de cesión y obras públicas: Es aquel acto material, mediante el cual la Municipalidad controla y fiscaliza que el proyecto fraccionador correspondiente, cumpla adecuadamente con las disposiciones urbanísticas requeridas sobre cesión de áreas para uso público. Se formaliza, a través de la emisión de un acuerdo del Concejo Municipal, en el cual acepta la transferencia de las áreas de cesión y obras públicas al Gobierno Local debiéndose formalizarse el debido traspaso ante Notario Público.
+b) Callejón de acceso: es un acceso en propiedad privada que permite el ingreso a un único lote con frente menor a la norma mínima.
+c) Cesión de áreas para uso público: Es el acto jurídico, a través del cual el desarrollador transfiere el dominio, a título de cesión, a la Municipalidad el área para uso público.
+d) Derecho de vía: Es el ancho total de la carretera, calle local, camino vecinal, sendero o servidumbre; esto es, la distancia entre líneas de propiedad, incluyendo calzada, franja verde, provisión de servicios públicos y acera.
+e) Finca: Es la porción de terreno inscrita como unidad jurídica en el Registro Público de la Propiedad, o susceptible de ser registrada mediante un número que la individualiza. También se le denomina predio, lote, parcela o propiedad.
+f) Fraccionamiento: Es la división de cualquier predio, con el fin de vender, traspasar, negociar, repartir, explotar o utilizar en forma separada las parcelas resultantes. Para ello, se utilizaran amanzanamientos o lotificaciones y se deberán brindar los accesos necesarios para cada finca resultante.
+g) Fraccionamiento Simple: Es toda aquella segregación que se pretenda realizar, frente a una vía pública ya existente, o bien mediante cualquiera de los tipos de accesos excepcionales de la norma en donde no se requiere la constitución o apertura de vía pública.
+h) Frente de lote: Es la longitud en su línea frontal del predio sobre vía pública. En algunos casos se menciona solo como frente.
+i) Habitable: Es todo local o recinto construido, que reúna los requisitos de seguridad, higiene y comodidad adecuados para la permanencia de personas, por un periodo prolongado de tiempo.
+j) Línea de ampliación vial: Es la línea a trazos dentro de una finca inscrita, que acota el derecho de vía oficial.
+k) Línea de propiedad: Es aquella que demarca los límites de la propiedad en particular.
+l) Obras complementarias: Es el conjunto de instalaciones que permiten la operación de los servicios públicos, tales como: abastecimiento de agua, alcantarillado, drenaje, telecomunicaciones y electricidad, vías públicas, entre otras.
+m) Parcela Agrícola: Es la unidad catastral representada por una porción mínima de terreno que constituye una unidad física completa, y que es el resultado de un proceso planificado de fraccionamiento agrícola, pecuario, forestal o mixto, proveniente de una finca madre con esa misma vocación.
+n) Plano Catastrado: Es el plano de agrimensura que ha sido inscrito en el Catastro Nacional.
+o) Plano de Agrimensura: Es el plano confeccionado por un profesional de topografía.
+p) Proyecto Urbanizador: Es el proyecto a través del cual se habilita un terreno para ser utilizado con fines residenciales o comerciales, mediantes las diferentes operaciones de transformación del suelo y apertura de vías públicas
+q) Reunión de fincas: Es el proceso mediante el cual, dos o más fincas se reúnen en una sola unidad física.
+r) Servicios: Es el conglomerado de servicios indispensables, tales como agua potable y electricidad, entre otros.
+s) Servidumbre agrícola, pecuaria y forestal: Es el acceso a una parcela para uso agrícola, pecuaria y forestal, producto de un fraccionamiento que obedece a la naturaleza productiva del inmueble al que sirve.
+t) Servidumbre de Paso: Es aquella cuya constitución es forzosa a cargo de un fundo sirviente y a favor de un fundo dominante que carece de acceso directo a vía pública.
+u) Suelo: Es el recurso natural, económico, escaso y no renovable, que constituye el soporte físico de la vida humana, animal y vegetal y de igual forma, de las edificaciones e infraestructuras necesarias para facilitar las distintas actividades humanas.
+v) Urbanización: Es el proyecto urbanizador finalizado, que incluye el fraccionamiento y la habilitación de un terreno para fines residenciales, por medio del desarrollo de infraestructura, conexión de servicios indispensables, apertura de vías públicas, facilidades comunales y parques, todas de carácter público y demanial.
+w) Vía de acceso: Es la vía de carácter público o privado, ubicada frente a un inmueble, que permite la entrada o salida del mismo.
+x) Vía Pública: Es todo terreno de dominio público y de uso común, que por disposición de la autoridad administrativa, se destinare al libre tránsito, de conformidad con la legislación vigente, incluyendo aquel terreno que de hecho este destinado ya a ese uso público.
+y) Vivienda: Es todo local o recinto, fijo o móvil, construido, convertido o dispuesto, para ser utilizado y destinado para fines de alojamiento de personas, ya sea en forma permanente o temporal.

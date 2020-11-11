@@ -1,0 +1,3 @@
+CAPITULO II
+Visado Municipal
+Artículo 4°—Objeto. Conforme a los artículos 33 y concordantes de la Ley de Planificación Urbana la Municipalidad de Tilarán, a través de la dependencia especializada y mediante el acto administrativo o normativo idóneo de delegación o asignación de competencia, otorgará el visado municipal de fraccionamiento, cuando corresponda, en forma gratuita dentro del plazo de 15 días hábiles siguientes a su presentación, conforme lo indica el artículo 34 de la Ley de Planificación Urbana, con el objetivo de dar fe de que la segregación, coincide con la que expresa dicho plano y que cumple con las especificaciones técnicas requeridas.

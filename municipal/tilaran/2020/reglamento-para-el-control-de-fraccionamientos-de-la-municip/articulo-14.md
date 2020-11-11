@@ -1,0 +1,4 @@
+Artículo 14°—Propuestas de segregación para servicios indispensables. Se autorizan para servicios indispensables, y por tanto para visado municipal, las propuestas de segregación bajo las siguientes condiciones:
+a) Cuando el uso del predio sea expresamente para infraestructura de servicios básicos de agua, electricidad y sus conexiones u otros servicios.
+b) Estos casos no estarán sujetos a las restricciones de área mínima dispuestos en este reglamento sino únicamente a la necesidad justificada de la entidad solicitante que exprese interés de recibirla por escrito.
+c) Podrán constituirse a través de servidumbre de agua, eléctrica u otra dispuesta por el ordenamiento jurídico, sin restricción de longitud ni ancho mínimo. Dicha servidumbre podrá estar sobrepuesta a una servidumbre de paso o agrícola, pecuaria, forestal u otra.
