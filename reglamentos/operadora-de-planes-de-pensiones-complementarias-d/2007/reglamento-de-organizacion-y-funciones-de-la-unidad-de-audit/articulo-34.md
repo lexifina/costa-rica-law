@@ -1,2 +1,7 @@
-ARTÍCULO 34: Confidencialidad de la información.
-Tal y como se establece en los artículos No.6, 32 y 35 de la Ley General de Control Interno y el artículo No.8 de la Ley contra la Corrupción y Enriquecimiento Ilícito en la Función Pública, será estrictamente confidencial toda información que el Auditor Interno o Auditora Interna o cualquiera de sus trabajadores o trabajadoras obtenga en el ejercicio de sus funciones. Sin embargo, esta confidencialidad no se aplicará a solicitud de autoridades judiciales competentes y cuando a requerimientos de la Contraloría General de la República, o de la Supén, en el ejercicio de sus competencias fiscalizadoras así lo requieran.
+Artículo 34º Deberes de la Auditoría Interna
+Para el cumplimiento de su objeto fundamental, además de los deberes contenidos en el Artículo 32° de la Ley General de Control Interno, la Auditoría tendrá los siguientes:
+a) Preparar y remitir a la Junta Directiva, un informe trimestral de labores y otros que le sean asignados por Junta Directiva, atinentes a su labor.
+b) Los que establece el Manual de Organización y Funciones de la Auditoría Interna.
+c) Los que establece o establezca la Contraloría General de la República, en manuales, resoluciones, lineamientos, circulares, directrices y otros documentos que son de carácter obligatorio.
+d) Los que indica el Manual de Puestos de la Auditoría Interna.
+e) Todos aquellos que contemplen la normativa legal, reglamentaria y técnica aplicable, emitida por las demás instituciones de control y fiscalización competentes.

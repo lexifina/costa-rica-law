@@ -1,2 +1,3 @@
-ARTÍCULO 38: Conferencia final.
-La Auditoría Interna solicitará audiencia para efectuar la conferencia final, al trabajador o trabajadora responsable de disponer la puesta en operación de las recomendaciones analizadas previamente, quien deberá dársela a la mayor brevedad posible a partir de su recibo para concertar su realización.
+Artículo 38º Evidencia suficiente, competente y pertinente
+Durante la ejecución de los servicios de auditoría, el personal de la Auditoría Interna deberá obtener evidencia suficiente, competente y pertinente por medio de inspecciones, observaciones, investigaciones, indagaciones, confirmaciones, con el objetivo de sustentar los hallazgos y fundamentar las conclusiones de los informes de la mejor manera posible, conforme se estable en las Normas Internacionales de Auditoría.
+Dichos documentos conformarán los papeles de trabajo, recopilados por el Auditor a cargo de la evaluación correspondiente y estos deben estar debidamente respaldados en el sistema informático utilizado por la Auditoría Interna de Popular Pensiones S.A.

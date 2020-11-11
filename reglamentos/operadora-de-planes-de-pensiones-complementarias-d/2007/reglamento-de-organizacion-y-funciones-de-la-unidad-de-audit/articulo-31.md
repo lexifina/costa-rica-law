@@ -1,6 +1,4 @@
-ARTÍCULO 31: Tratamiento de las denuncias.
-La Auditoría Interna le dará el trámite que corresponda a las denuncias, de conformidad con los siguientes parámetros, mediante resolución motivada:
-a) Las denuncias que no sean de su competencia, se canalizarán a las instancias competentes de conformidad con la Ley Nº 8220 Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos.
-b) Las denuncias que sean manifiestamente improcedentes o infundadas, serán archivadas de oficio, siempre y cuando no presenten afectación a un tercero.
-c) Las denuncias reiterativas que contengan aspectos que hayan sido atendidos, se comunicará al denunciante, Gerencia o Junta Directiva lo ya resuelto.
-d) Las denuncias que se refieran únicamente a intereses particulares del denunciante, en relación con conductas u omisiones de la Administración Activa que les resulten lesivas de alguna forma, y para cuya solución exista un procedimiento específico contemplado en el ordenamiento jurídico vigente, serán archivadas de oficio.
+CAPÍTULO IV
+FINALIDAD, DEBERES, FUNCIONES Y ATRIBUCIONES
+Artículo 31º Finalidad de la Auditoría Interna
+El objeto fundamental de la Auditoría Interna es prestar un servicio de asesoría constructiva y de protección a la Administración Activa, para alcanzar las metas y objetivos con mayor eficiencia, eficacia y economía, proporcionándole información oportuna, análisis, evaluación, comentarios y recomendaciones pertinentes sobre las operaciones que examina, en procura de prevención de riesgo y mejoramiento continuo.

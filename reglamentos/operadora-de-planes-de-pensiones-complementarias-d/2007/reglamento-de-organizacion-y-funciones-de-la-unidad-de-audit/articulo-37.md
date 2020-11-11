@@ -1,3 +1,17 @@
-ARTÍCULO 37: Análisis de hallazgos.
-Los hallazgos obtenidos en el transcurso de la Auditoría o estudio especial de Auditoría deben ser analizados con los trabajadores responsables de la unidad o proceso auditado, de previo a emitir las conclusiones y recomendaciones definitivas contenidas en el informe, a fin de obtener de ellos sus puntos de vista, opiniones, propuestas alternas de mejoras y de propiciar las acciones correctivas inmediatas. Se exceptúan los casos de Auditoría o estudio especial de naturaleza confidencial o de carácter reservado (Relación de Hecho), en los que los resultados no deberán ser analizados con el auditado.
-Si durante el análisis de los hallazgos se presentan divergencias sobre la implantación de las recomendaciones o parte de ellas y no se llega a un acuerdo, en la comunicación formal de resultados, la Auditoría consignará las observaciones pertinentes del auditado.
+Artículo 37º Otros aspectos relativos al funcionamiento de la Auditoría Interna
+El Auditor Interno deberá velar por el cumplimiento de al menos lo siguiente:
+a) Que se realicen los servicios de Auditoría que considere necesarios y prudentes de acuerdo con las normas técnicas que rigen su actuar.
+b) Emitir a sus trabajadores los lineamientos que considere necesarios en cuanto al procesamiento de la información en aspectos como:
+• Cualidades de la información.
+• Análisis y evaluación de esta.
+• Registros.
+• Acceso y custodia de la información.
+• Calidad de los trabajos realizados.
+• Supervisión de las labores realizadas.
+c) Que el proceso de comunicación de los resultados se realice por los medios idóneos, a saber:
+• Informes de Auditoría.
+• Relaciones de Hechos.
+• Oficios producto de servicios preventivos.
+• Estudios no programados.
+• Otros a criterio del Auditor Interno.
+d) Girar instrucciones precisas al personal a su cargo, sobre aspectos en materia de seguimiento de las recomendaciones que emite la Auditoría Interna y las disposiciones giradas por la Contraloría General de la República y otros órganos externos de fiscalización, cuando sean de su conocimiento.

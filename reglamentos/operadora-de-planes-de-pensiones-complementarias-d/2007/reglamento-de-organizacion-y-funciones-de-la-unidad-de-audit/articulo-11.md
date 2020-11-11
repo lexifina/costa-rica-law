@@ -1,2 +1,8 @@
-ARTÍCULO 11: Conflictos de interés.
-El Auditor Interno, y los funcionarios de la Auditoría Interna deben velar porque no se presenten conflictos de interés al asesorar o prestar servicios distintos de la fiscalización a la Entidad, y que dichos servicios o asesoramiento no incluyan responsabilidades o facultades de gestión, que debe continuar desempeñando la Administración.
+Artículo 11º Potestades del Auditor
+Sin perjuicio de lo establecido en otras disposiciones, el Auditor Interno tendrá las siguientes facultades:
+a) Ejercer como máxima autoridad de la Auditoría Interna, las funciones que le son propias en la administración del personal de Auditoría Interna en función del marco jurídico que rige a Popular Pensiones S.A. de conformidad con lo establecido en los Artículos 24° y 28° de la LGCI.
+b) Gestionar los requerimientos de personal ante el Área de Capital Humano de Popular Pensiones S.A., quien deberá atender prioritariamente dichos requerimientos, para cumplir con los plazos estipulados en el Artículo 28° de la LGCI, cuando corresponda.
+c) Proponer a la Junta Directiva de Popular Pensiones S.A., la creación de las plazas que considere indispensables para el funcionamiento de la Auditoría, las cuales deben estar debidamente justificadas.
+d) Informar a la Junta Directiva de Popular Pensiones S.A., cuando resulte pertinente para su resolución, sobre aquellos casos en los que no haya recibido la debida respuesta de los diferentes componentes de la Organización, sobre solicitudes de información, de asesoría o de colaboración.
+e) Tendrá libertad de proveer e intercambiar información con la Contraloría General de la República, así como con otros entes y órganos de control, supervisión y fiscalización que conforme a la Ley corresponda.
+f) Solicitar la contratación e incorporación de profesionales, técnicos de diferentes disciplinas, trabajadores o no de Popular Pensiones S.A. para llevar a cabo labores de su especialidad en apoyo a los estudios que realice la Auditoría Interna.

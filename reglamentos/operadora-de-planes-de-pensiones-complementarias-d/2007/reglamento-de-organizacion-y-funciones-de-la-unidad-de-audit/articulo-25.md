@@ -1,17 +1,5 @@
-ARTÍCULO 25: Otros aspectos relativos al funcionamiento de la Auditoría Interna.
-El Auditor Interno deberá velar por el cumplimiento de al menos lo siguiente:
-a) Que se realicen los servicios de Auditoría que considere necesarios y prudentes de acuerdo con las normas técnicas que rigen su actuar.
-b) Emitir a sus trabajadores o trabajadoras los lineamientos que considere necesarios en cuanto al procesamiento de la información en aspectos como:
-• Cualidades de la información.
-• Análisis y evaluación de la misma.
-• Registros.
-• Acceso y custodia de la información.
-• Calidad de los trabajos realizados.
-• Supervisión de las labores realizadas.
-c) Que el proceso de comunicación de los resultados se realice por los medios idóneos, a saber:
-• Informes de Control Interno.
-• · Relaciones de Hechos.
-• Oficios producto de servicios preventivos.
-• Estudios no programados
-• Otros a criterio del Auditor Interno o Auditora Interna.
-d) Girar instrucciones precisas al personal a su cargo, sobre aspectos en materia de seguimiento de las recomendaciones que emite la Auditoría Interna y las disposiciones giradas por la Contraloría General de la República y otros órganos externos de fiscalización, cuando sean de su conocimiento.
+Artículo 25º Presupuesto de la Auditoría
+La Auditoría Interna, deberá formular técnicamente su presupuesto, conforme a los lineamientos aplicables y al Plan Anual de Trabajo y este deberá presentarse al Comité Corporativo de Auditoría y a la Junta Directiva de Popular Pensiones S.A.
+El desglose por objeto del gasto debe concordar con las subpartidas que cubran necesidades propias y directas de la Auditoría Interna, para que exprese su costo real. La asignación de presupuesto que finalmente haga la Junta Directiva para la Auditoría Interna debe ser razonable para que le permita cumplir su gestión acorde con su Plan de Trabajo Anual.
+Para el cambio de destino de los recursos asignados a la Auditoría Interna, se deberá contar con aprobación de la Junta Directiva presentando los criterios técnicos que sustenten dicha modificación.
+La Auditoría Interna debe tener independencia para ejecutar sus recursos presupuestarios, de personal y de otra naturaleza, conforme lo dicten sus necesidades para cumplir con su Plan de Trabajo, considerando un uso razonable de los recursos presupuestarios de Popular Pensiones.

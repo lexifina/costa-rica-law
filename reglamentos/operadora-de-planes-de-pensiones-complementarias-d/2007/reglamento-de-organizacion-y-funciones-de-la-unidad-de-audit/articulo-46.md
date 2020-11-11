@@ -1,2 +1,2 @@
-ARTÍCULO 46: Autoevaluación de la Calidad.
-La Auditoría Interna deberá autoevaluar anualmente la calidad de su actividad, así como el cumplimiento de la normativa legal y técnica vigente, de conformidad con los lineamientos y directrices que establece la Contraloría General de la Republica.
+Artículo 46º Confidencialidad de la información
+Tal y como se establece en los Artículos 6°, 32° y 35° de la Ley General de Control Interno y el Artículo 8° de la Ley contra la Corrupción y Enriquecimiento Ilícito en la Función Pública, será estrictamente confidencial toda información que el Auditor Interno o cualquiera de sus trabajadores obtenga en el ejercicio de sus funciones; sin embargo, esta confidencialidad no se aplicará a solicitud de autoridades judiciales competentes y cuando a requerimientos de la Contraloría General de la República o de la SUPEN, en el ejercicio de sus competencias fiscalizadoras así lo requieran.

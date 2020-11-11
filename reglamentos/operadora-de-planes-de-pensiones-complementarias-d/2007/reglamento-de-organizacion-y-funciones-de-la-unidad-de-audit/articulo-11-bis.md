@@ -1,2 +1,0 @@
-ARTÍCULO 11 BIS: Conflictos de interés.
-De conformidad con lo establecido en las Normas de Auditoría y directrices referentes a los principios y enunciados éticos aplicables a la Auditoría Interna en el Sector Público, cuando existan factores que puedan comprometer su independencia y objetividad, o exista algún tipo de conflicto de interés, el Auditor Interno deberá informarlo a la Junta Directiva de Popular Pensiones. En el caso de que las limitaciones sean aplicables a los demás funcionarios de Auditoría, la situación deberá hacerse del conocimiento del Auditor Interno.

@@ -1,18 +1,6 @@
-ARTÍCULO 2: Definiciones.
-Para los efectos del presente reglamento, se entenderán los siguientes términos:
-a) Popular Pensiones: Operadora de Planes de Pensiones Complementarias del Banco Popular y de Desarrollo Comunal S.A., creada conforme lo dicta la Ley de Protección al Trabajador y el Decreto Ejecutivo No.27503-H "Reglamento para la Constitución de los Puestos de Bolsa, Sociedades Administradoras de Fondos y Operadoras de Pensiones Complementarias de los Banco Públicos y del Instituto Nacional de Seguros".
-b) Jerarca: Junta Directiva Operadora de Planes de Pensiones Complementarias del Banco Popular y de Desarrollo Comunal S.A.
-c) Administración Activa: Desde el punto de vista orgánico constituido por el Jerarca, Gerencia General y todos los demás órganos subordinados (Gerencias, oficialías, unidades, contralorías y secciones de Popular Pensiones) de estos que deciden y ejecutan, excepto la Auditoría Interna. Desde la perspectiva funcional, es la actividad decisoria, ejecutiva, resolutoria, directiva y operativa de la Administración.
-d) Titulares Subordinados: Gerencias, oficialías, unidades, contralorías y secciones de la Operadora de Planes de Pensiones Complementarias del Banco Popular y de Desarrollo Comunal S.A, de conformidad con la definición dada en el artículo 2° , inciso d) de la Ley Nº 8292.
-e) Auditoría Interna: La Auditoría Interna de la Operadora de Planes de Pensiones Complementarias del Banco Popular y de Desarrollo Comunal S.A.
-f) Auditor(a): Auditor(a) Interno(a) de la Auditoría Interna de la Operadora de Planes de Pensiones Complementarias del Banco Popular y de Desarrollo Comunal S.A.
-g) Auditor(a) Supervisor(a): Sustituye al Auditor Interno o Auditora Interna en caso de ausencia temporal, en el ejercicio de sus funciones con las atribuciones deberes, derechos y limitaciones impuestas por las leyes, reglamentos y normas vigentes en materia de auditoría; es responsable por la ejecución de funciones de supervisión, administración y control de labores desarrolladas por los Auditores Junior y Auditor Senior Informático, realiza funciones de asesoría y fiscalización de mediano y alto grado de complejidad o confidencialidad.
-h) Auditor Senior Informático: Trabajador(a) responsable de planear, dirigir y desarrollar procesos relacionadas con la revisión, análisis y evaluación de los sistemas informáticos, brindar apoyo en la ejecución de los procesos de auditoría contables y administrativos, relacionados a trabajos de TI, en el ejercicio de las atribuciones deberes, derechos y limitaciones impuestas por las leyes, reglamentos y normas vigentes en materia de auditoría.
-i) Auditor Junior: Trabajador (a) de la Auditoría Interna que realiza funciones de asesoría y fiscalización, en el ejercicio de las atribuciones deberes, derechos y limitaciones impuestas por las leyes, reglamentos y normas vigentes en materia de auditoría de conformidad con el artículo 22 de la Ley N° 8292.
-j) Contraloría: Contraloría General de la República.
-k) Ley 8292: Ley General de Control Interno.
-l) Normas de Control Interno para el Sector Público R-CO-9-2009.
-m) Normas Generales: Normas Generales de Auditoría para el Sector Público R-DC-64-2014.
-n) Normas de Auditoría: Normas para el ejercicio de la Auditoría Interna en el Sector Público R-DC-119-2009.
-o) Lineamientos sobre gestiones que involucran a la Auditoría Interna presentadas ante la CGR, R-DC-83-2018.
-p) Control Interno: Es un proceso puesto en práctica por la Junta Directiva, Gerencia, Administración y otro personal destinado a proveer una seguridad razonable en el logro de los objetivos de efectividad y eficiencia de las operaciones, cumplimiento de las Leyes y Regulaciones aplicables y confiabilidad en la información.
+Artículo 2º Ámbito de aplicación
+Las disposiciones de este Reglamento son de aplicación para la Auditoría Interna y para todo trabajador de la Operadora en lo que corresponda, así como a los sujetos privados en lo pertinente, en tanto sean custodios o administradores de fondos públicos transferidos por la Operadora.
+Ningún trabajador de la Operadora puede alegar desconocimiento del presente Reglamento.
+Es obligación de la Auditoría Interna la divulgación de este.
+Cualquier discrepancia que se presente producto de su ejecución e interpretación, será resuelta por la Junta Directiva de Popular Pensiones S.A.
+En caso de que la discrepancia persista, el asunto deberá remitirse a la Contraloría General de la República para su resolución definitiva.

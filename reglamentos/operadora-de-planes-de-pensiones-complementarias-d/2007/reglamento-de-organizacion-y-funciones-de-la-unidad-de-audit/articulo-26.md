@@ -1,3 +1,3 @@
-ARTÍCULO 26: Evidencia suficiente, competente y pertinente.
-Durante la ejecución de los servicios de auditoría, el personal de Auditoría Interna deberá obtener evidencia suficiente, competente y pertinente por medio de inspecciones, observaciones, investigaciones, indagaciones, confirmaciones, con el Óbjetivo de sustentar los hallazgos y fundamentar las conclusiones de los informes de la mejor manera posible, conforme se estable en las Normas Internacionales de Auditoría.
-Dichos documentos conformarán los registros de trabajo, los cuales son escritos o en medios electrónicos elaborados o recopilados por el Auditor a cargo de la evaluación correspondiente.
+Artículo 26º Asesoría y Asistencia Técnica
+El Auditor Interno, así como los trabajadores de la Auditoría, contarán con la asesoría y asistencia técnico-jurídica necesaria de los profesionales en Derecho que le brindan servicio a la Operadora, cuando a consecuencia del ejercicio de sus funciones resulten parte en un proceso judicial y/o administrativo.
+De presentarse algún tipo de conflicto de interés institucional, este será resuelto de previo por el Jerarca.

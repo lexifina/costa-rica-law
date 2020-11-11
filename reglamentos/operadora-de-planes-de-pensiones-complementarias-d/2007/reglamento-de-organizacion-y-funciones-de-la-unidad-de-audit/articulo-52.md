@@ -1,2 +1,5 @@
-ARTÍCULO 52: Vigencia.
-Este reglamento rige a partir de su publicación en el diario oficial "La Gaceta".
+Artículo 52º Disparidad de criterios
+Si con respecto a las recomendaciones o parte de ellas, contenidas en la comunicación de resultados, el trabajador responsable de disponer su implementación encuentra motivos que imposibiliten ejecutarlas o discrepa de éstas, deberá exponer por escrito ante el Jerarca con copia a la Auditoría, los motivos debidamente razonados y una solución alterna que subsane las deficiencias encontradas; lo anterior, dentro del plazo consignado en la LGCI.
+El asunto lo resolverá en definitiva la Junta Directiva, en un plazo improrrogable de veinte días hábiles siguientes a la puesta en conocimiento del conflicto, mediante una resolución que debe contener la decisión debidamente fundamentada y cuando proceda, una solución alterna para corregir las deficiencias señaladas por la Auditoría Interna.
+Cualquier conflicto en la aplicación de recomendaciones formuladas por la Auditoría Interna será conforme se establece en los Artículos 36°, 37° y 38° de la LGCI. En el caso de silencio o falta de respuesta por parte de la Administración Activa, se entiende como aceptación de las recomendaciones.
+El mismo procedimiento se seguirá para aquellos informes que de conformidad con el Artículo 50° anterior deben ser comunicados directamente a la Junta Directiva de Popular Pensiones S.A.

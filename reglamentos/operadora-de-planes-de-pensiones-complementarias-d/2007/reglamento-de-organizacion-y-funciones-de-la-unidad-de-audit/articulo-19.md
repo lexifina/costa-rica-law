@@ -1,4 +1,3 @@
-CAPÍTULO IV
-FINALIDAD, DEBERES, FUNCIONES Y ATRIB UCIONES
-ARTÍCULO 19: Finalidad de la Auditoría Interna.
-El objeto fundamental de la Auditoría Interna es prestar un servicio de asesoría constructiva y de protección a la Administración Activa, para que alcance sus metas y objetivos con mayor eficiencia, eficacia y economía proporcionándole información oportuna, análisis, evaluación, comentarios y recomendaciones pertinentes sobre las operaciones que examina, en procura de prevención de riesgo y mejoramiento continuo.
+Artículo 19º Dependencia y estructura
+La Auditoría Interna de Popular Pensiones S.A., es un órgano asesor con dependencia orgánica del Jerarca. La Estructura organizativa de la Auditoría Interna está conformada por: Auditor Interno, Auditor Supervisor, Auditor Junior, Auditor Senior Informático y Asistente Administrativa II.
+Es responsabilidad del Auditor Interno contar con los recursos humanos, materiales, presupuestarios, tecnológicos, de asesoría académica, técnica e instalaciones físicas necesarias para el adecuado cumplimiento de sus funciones. Para tales propósitos, oportunamente planteará sus necesidades ante el Jerarca, quien deberá tomar las decisiones que correspondan para satisfacer adecuada y oportunamente esas necesidades, de conformidad con lo establecido en el artículo 27 de la Ley 8292.

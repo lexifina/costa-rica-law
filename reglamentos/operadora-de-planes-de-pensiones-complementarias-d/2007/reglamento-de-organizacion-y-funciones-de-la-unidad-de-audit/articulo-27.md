@@ -1,2 +1,2 @@
-ARTÍCULO 27: Sobre el acceso a la información durante la confección de los informes.
-Todo dato, información y documentos en proceso de revisión y análisis en la etapa de elaboración de un informe de auditoría, cuya libre divulgación pueda provocar una lesión a derechos fundamentales de los procesos evaluados y un entorpecimiento de las investigaciones, serán confidenciales en esa etapa.
+Artículo 27º Atención a requerimientos externos
+La Auditoría Interna atenderá los requerimientos que formulen la Contraloría General de la República, la Superintendencia de Pensiones y cualquier otra instancia competente; informando de lo actuado a la Junta Directiva de Popular Pensiones S.A., excepto a las solicitudes de carácter confidencial, los cuales serán comunicados únicamente a las instancias solicitantes.

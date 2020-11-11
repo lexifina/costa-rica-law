@@ -1,4 +1,2 @@
-CAPÍTULO VII
-PROGRAMA DE ASEGURAMIENTO DE LA CALIDAD
-ARTÍCULO 45: Establecimiento del Programa.
-La Auditoría Interna mantendrá en operación un programa de aseguramiento de la calidad para la actividad de Auditoría Interna, que incluye autoevaluaciones anuales.
+Artículo 45º Manual de procedimientos de Auditoría Interna
+El Auditor Interno deberá preparar, mantener actualizado y en uso por los trabajadores de la Auditoría Interna, un “Manual de Procedimientos de Auditoría Interna”, con el objeto de tener un instrumento que, entre otras cosas, defina las políticas, responsabilidades, objetivos y funciones de sus subalternos, así como las características y procedimientos de Auditoría que éstos deben aplicar en Popular Pensiones S.A.

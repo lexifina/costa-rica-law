@@ -1,2 +1,4 @@
-ARTÍCULO 44: Acceso a informes.
-Los informes de auditoría sobre materia de control interno una vez comunicados oficialmente a la Administración Activa, son de libre acceso por parte de cualquier persona física o jurídica.
+CAPÍTULO VI
+DE LA EJECUCIÓN DE LA AUDITORÍA
+Artículo 44º Aplicación de normas
+La Auditoría Interna deberá ejecutar su trabajo de conformidad con lo que establecen las Normas Internacionales de Auditoría, Ley 8292, las normas aprobadas y publicadas por el Colegio de Contadores Públicos de Costa Rica; otras normas generalmente aceptadas en la práctica profesional de la Auditoría Interna, así como cualesquiera otras disposiciones que dicte la Contraloría General de la República.

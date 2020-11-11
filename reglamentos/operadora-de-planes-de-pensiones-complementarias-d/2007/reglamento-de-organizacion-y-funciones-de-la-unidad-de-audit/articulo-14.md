@@ -1,5 +1,9 @@
-ARTÍCULO 14: Delegación y administración del personal de la Auditoría Interna.
-El Auditor Interno o Auditora Interna actuará como Jefe de personal de la Auditoría, aplicando para ello los procedimientos establecidos por la Administración de Popular Pensiones. En materia de nombramientos, traslados, suspensión, remoción, concesión de licencias y demás movimientos de personal, se actuará de conformidad con los artículos 24 y 28 de la Ley General de Control Interno, y la sección 5 "Sobre las regulaciones administrativas aplicables a los funcionarios de las auditorías internas del sector público", según Lineamientos sobre gestiones que involucran a la auditoría interna presentadas ante la CGR y demás normativa aplicable.
-El Auditor Interno o Auditora Interna podrá delegar en su personal sus funciones bajo criterios de idoneidad y conforme lo establece la Ley General de Administración Pública.
-Al Auditor Interno o Auditora Interna le corresponderá proponer a la Junta Directiva de Popular Pensiones la creación de plazas que se consideren indispensables para el buen funcionamiento de la Auditoría Interna.
-Corresponde al Auditor Interno o Auditora Interna vigilar y tomar las decisiones para que los trabajadores o trabajadoras de la Auditoría Interna cumplan en el ejercicio de sus competencias con la normativa jurídica y técnica pertinente, así como con las políticas, procedimientos, prácticas y demás disposiciones administrativas que sean aplicables en Popular Pensiones.
+Artículo 14º Asistencia a las sesiones de Junta Directiva
+El Auditor Interno o en su ausencia el personal designado de acuerdo con el Plan de Sucesión de la Auditoría Interna de Popular Pensiones S.A., podrá asistir a las sesiones de Junta Directiva cuando el Órgano colegiado así lo solicite.
+La participación en las sesiones se guiará por los siguientes lineamientos:
+a) Brindar asesoría sobre asuntos concretos y en solicitud explícita por parte del Jerarca.
+b) Asistir a las sesiones con derecho a voz, pero sin voto.
+c) Brindar asesoría únicamente en asuntos de su competencia y sin que menoscabe o comprometa su independencia y objetividad en el desarrollo posterior de sus demás competencias.
+d) Pedir y vigilar que su opinión conste en las actas respectivas.
+e) Posponer su opinión cuando a su criterio y por la complejidad del tema en discusión requiera recabar mayores elementos de juicio.
+f) Abstenerse de participar en comisiones de trabajo o similares, de naturaleza eminentemente administrativa, excepto de que se trate de comisiones conformadas por miembros de Junta Directiva, en donde se requiera su participación con carácter de asesor en el campo de su competencia.

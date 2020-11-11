@@ -1,2 +1,6 @@
-ARTÍCULO 36: Estructura de los informes.
-En cuanto a los requisitos, partes, revisión y remisión de los informes se aplicará principalmente lo dispuesto en la Ley 8292, las Normas de Auditoría, procedimientos internos de la Auditoría Interna y cualquier lineamiento que al efecto emita la Contraloría General de la República.
+Artículo 36º Atribuciones de la Auditoría Interna
+Para el acertado cumplimiento de su objetivo, deberes y funciones, la Auditoría tendrá al menos las atribuciones contenidas en el Artículo 33° de la Ley General de Control Interno, así como:
+a) Utilizar, según las circunstancias y su criterio profesional, el tipo, las técnicas y los procedimientos de auditoría que cumplan en mejor forma, las necesidades de los exámenes y verificaciones que lleve a cabo.
+b) Ejercer sus funciones con libertad, independencia funcional y de criterio, respecto del Jerarca y demás órganos y unidades de Popular Pensiones S.A.
+c) Organizarse y disponer del personal profesional y asistente necesario, según lo requiera el adecuado cumplimiento de sus funciones.
+d) Cualesquiera otras que sean concordes con el objeto y las funciones que desempeña.

@@ -1,7 +1,3 @@
-ARTÍCULO 22: Deberes de la Auditoría Interna.
-Para el cumplimiento de su objeto fundamental, además de los deberes contenidos en el artículo 32 de la Ley General de Control Interno, la Auditoría tendrá los siguientes:
-a) Preparar y remitir a la Junta Directiva, un informe trimestral de labores y otros que le sean asignados por Junta Directiva, atinentes a su labor.
-b) Los que establece el Manual de Organización y Funciones de la Auditoría Interna.
-c) Los que establece o establezca la Contraloría General de la República, en manuales, resoluciones, lineamientos, circulares, directrices y otros documentos que son de carácter obligatorio.
-d) Los que indica el Manual de Puestos de esta Auditoría Interna.
-e) Todos aquellos que contemplen la normativa legal, reglamentaria y técnica aplicable, emitida por las demás instituciones de control y fiscalización competentes.
+Artículo 22º Asignación de recursos a la Auditoría
+La Auditoría deberá contar con los recursos humanos, materiales, tecnológicos, de asesoría técnica e instalaciones físicas necesarios para el adecuado cumplimiento de sus funciones y la capacitación para el desarrollo profesional de sus trabajadores que considere indispensables para el cumplimiento de su Plan de Trabajo Anual y el buen funcionamiento de su unidad.
+Para tales propósitos, el Auditor Interno formulará técnicamente y comunicará a la Junta Directiva de Popular Pensiones S.A., el requerimiento de los recursos necesarios para asegurar el cumplimiento de las competencias de la actividad de Auditoría Interna, para contar con un número determinado de trabajadores que permitan ejercer su actividad con la debida oportunidad, cobertura y disponibilidad, considerando un uso razonable de los recursos presupuestarios de Popular Pensiones.
