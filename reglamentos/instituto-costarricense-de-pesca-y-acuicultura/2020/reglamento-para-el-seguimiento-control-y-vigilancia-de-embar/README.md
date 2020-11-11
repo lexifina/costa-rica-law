@@ -14,3 +14,4 @@ Reglamento para el seguimiento, control y vigilancia de embarcaciones pesqueras 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-05-17 | la propia norma |
+| 2 | 2020-11-11 | Acuerdo 276 (2020-11-11) |

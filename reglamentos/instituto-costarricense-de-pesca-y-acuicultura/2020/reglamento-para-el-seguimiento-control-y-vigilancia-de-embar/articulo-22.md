@@ -11,4 +11,6 @@ i. Arribo a puerto sin poseer la autorización y validación del uso de puerto p
 j. Que las posiciones recibidas en el CSC no coincidan con los libros de control de viaje y faenas de pesca exigidos por la Administración Pesquera.
 k. Que utilice una baliza no autorizada a la embarcación o que trasfiera la misma a otra embarcación sin autorización previa del Incopesca.
 l. La disconformidad emitida por el CSC por medio de resolución se considerará como medios de prueba y tendrá el valor probatorio que se determine en las disposiciones jurídicas aplicables.
-En caso de duda sobre la interpretación y aplicación del presente reglamento, el CSC deberá requerir criterio a la Dirección General Técnica, previo a la emisión de la disconformidad correspondiente.
+En caso de duda sobre la interpretación y aplicación del presente reglamento, así como situaciones no contempladas en el mismo; el CSC deberá requerir criterio a la Dirección General Técnica, previo a la emisión de la disconformidad correspondiente.
+En caso de controversia prevalecerá el criterio de la DGT.
+(Así reformado por el acuerdo N° AJDIP/276-2020 del 11 de noviembre de 2020)
