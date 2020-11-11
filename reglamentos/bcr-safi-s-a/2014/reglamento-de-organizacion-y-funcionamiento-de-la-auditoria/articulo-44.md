@@ -1,2 +1,5 @@
-Artículo 44.—Para los compromisos de alto riesgo, a partir de la tercera solicitud de prórroga, el Auditor Interno hará de conocimiento al Comité de Auditoría del planteamiento realizado por la Administración, a fin de que sea ese Comité quien disponga de si se da curso o no la prórroga solicitada.
-Para la resolución de estos casos, el Comité de Auditoría aplicará lo dispuesto en el artículo 40 de este Reglamento.
+Capítulo VII
+Estudios sobre Investigaciones preliminares sobre presuntos hechos irregulares
+Artículo 44
+Los estudios de investigaciones preliminares sobre presuntos hechos irregulares están encaminados al examen de aspectos específicos sea a solicitud de la Junta Directiva de BCR SAFI S.A., de cualquiera de los entes fiscalizadores de la Sociedad, denuncias o disposiciones del auditor interno. Estos serán incluidos en el plan de trabajo, siempre y cuando el auditor interno lo considere conveniente, de conformidad con su independencia funcional y de criterio, establecidos en el artículo 25 de la Ley General de Control Interno.
+Para la ejecución de este tipo de estudio se debe considerar el marco normativo aplicable, específicamente la Ley General de Control Interno N° 8292, la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública, N° 8422 y su reglamento, así como los Lineamientos generales para el análisis de presuntos hechos irregulares, emitidos por la Contraloría General de la República.

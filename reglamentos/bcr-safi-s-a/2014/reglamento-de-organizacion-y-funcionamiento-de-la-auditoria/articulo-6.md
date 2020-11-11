@@ -1,4 +1,4 @@
-CAPÍTULO II
-Concepto de Auditoría Interna
-Artículo 6º—De acuerdo con la Ley General de Control Interno, en su artículo 21 la auditoría interna es la actividad independiente, objetiva y asesora, para evaluar y mejorar la efectividad de la administración del riesgo, del control y de los procesos de dirección de las entidades y los órganos sujetos a esta ley, mediante la práctica de un enfoque sistémico y profesional; actividad que proporciona seguridad al ente u órgano, puesto que se crea para validar y mejorar sus operaciones.
-La Auditoría Interna contribuye a que se alcancen los objetivos institucionales. Dentro de una organización, la auditoría interna proporciona a la ciudadanía una garantía razonable de que la actuación del jerarca y la del resto de la administración, se ejecuta conforme al marco legal y técnico y a las prácticas sanas propias de la materia de que se trate.
+Artículo 6
+En complemento del artículo cinco y con el objetivo de cumplir con lo indicado en la norma 102, punto 02 de las Normas generales de auditoría interna debe comunicar en forma oportuna y por escrito, cuando existan factores que comprometan su independencia y objetividad, o exista algún tipo de conflicto de intereses.
+En el caso del auditor interno de BCR SAFI S.A. le corresponde hacerlo del conocimiento de la Junta Directiva de BCR SAFI S.A. Para las personas trabajadoras de la Auditoría Interna, deben comunicarlo al auditor interno de BCR SAFI S.A.
+La Junta Directiva de BCR SAFI S.A. o el auditor interno de BCR SAFI S.A.; según corresponda, son quienes evalúan la situación y deben definir las medidas correspondientes, en tanto esto ocurra, la persona debe abstenerse de conocer la situación relacionada.

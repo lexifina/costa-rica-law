@@ -1,3 +1,4 @@
-CAPÍTULO VI
-Del personal de Auditoría Interna
-Artículo 20.—El nombramiento, traslado, suspensión, remoción, concesión de licencias y demás movimientos de personal de la Auditoría Interna, deberán ser canalizados y autorizados por el Auditor Interno; de acuerdo con el marco jurídico que rige para BCR SAFI S. A. Lo anterior de conformidad con lo establecido en el artículo 24 y 28 de la Ley general de control interno.
+Capítulo V
+De las personas trabajadoras de la Auditoría Interna
+Artículo 20
+Para la dotación de los recursos de la Auditoría Interna, la Junta Directiva de BCR SAFI S.A. debe tomar en consideración el estudio elaborado por el auditor interno de BCR SAFI S.A., según lo dispuesto en el artículo 22 de este reglamento. La dotación de recursos debe asignarse de conformidad con los plazos establecidos en el artículo 27 de la Ley general de control interno.

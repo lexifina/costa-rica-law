@@ -1,4 +1,3 @@
-CAPÍTULO V
-Del Auditor Interno
-Artículo 16.—El auditor Interno de BCR SAFI será nombrado por tiempo indefinido por la Junta Directiva de BCR SAFI S. A., tal como lo establece el artículo 31 de la Ley General de Control Interno.
-Los requisitos para el nombramiento del Auditor Interno serán los establecidos en el punto 2.3 de los Lineamientos sobre los requisitos de los cargos de auditor y subauditor internos, las condiciones para las gestiones de nombramiento, suspensión y destitución de dichos cargos, y la aprobación de reglamento de organización y funcionamiento de las auditorías internas del Sector Público, emitidos por la Contraloría General de la República.
+Artículo 16
+El auditor interno de BCR SAFI S.A. es el único autorizado para dirigir, según su criterio, las labores de la Auditoría Interna, a cuyo efecto es el jefe del personal de la Auditoría Interna y organiza dicha oficina según la técnica en la materia y en la forma que considere más apropiada para el desempeño de su cometido, conforme a las disposiciones legales y reglamentarias vigentes.
+De conformidad con lo dispuesto en el artículo 24 de la Ley general de control interno, para el nombramiento, remoción y demás movimientos de las personas trabajadoras a su cargo, el gerente general requiere de la autorización del auditor interno de BCR SAFI S.A., así como cumplir con lo dispuesto en los Lineamientos sobre gestiones que involucran a la auditoría interna presentadas ante la Contraloría General de la República.

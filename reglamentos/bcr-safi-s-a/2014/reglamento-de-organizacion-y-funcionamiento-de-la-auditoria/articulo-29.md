@@ -1,15 +1,4 @@
-CAPÍTULO X
-Deberes de la Auditoría Interna
-Artículo 29.—Para el cumplimiento de los deberes establecidos para la Auditoría Interna, en el artículo 32 de la Ley general de control interno, la Auditoría Interna tendrá las siguientes funciones:
-a) Informar periódicamente a la Junta Directiva sobre el cumplimiento del Plan Anual de Auditoría.
-b) Informar a la Junta Directiva sobre el estado de los hallazgos comunicados a la administración.
-c) Verificar que estén protegidos los intereses de la institución, concentrando sus esfuerzos en las áreas de más alto riesgo, y señalar las debilidades de control interno y las recomendaciones que estime pertinentes para proporcionar las bases para una acción correctiva adecuada, con el fin de apoyar a la administración en el cumplimiento de sus objetivos y metas.
-d) Asesorar a la Junta Directiva de BCR SAFI S. A., a su solicitud, en materia que sea de su competencia y conocimiento, sin que su asesoría sea vinculante para quien la solicita, ni comprometa la independencia y objetividad de la auditoría en el desarrollo posterior de las labores propias de la actividad.
-e) Fiscalizar el cumplimiento de las normas legales y reglamentarias aplicables, en el desarrollo de nuevos sistemas automatizados, así como en cualquier otra comisión de índole multidisciplinaria que la Administración Superior invite a la Auditoría, dejando claro su papel de asesora o para expresar criterios oportunos o advertir, sin perjuicio del seguimiento y fiscalización posterior que corresponden.
-Así también, de conformidad con el criterio del auditor y con los recursos disponibles, la auditoría podrá brindar asesoría a otros niveles de la institución que lo soliciten en materia de los componentes del sistema de control interno institucional.
-f) Advertir sobre las posibles consecuencias de determinadas conductas o decisiones, cuando sea de su conocimiento.
-g) Verificar, en lo pertinente, el cumplimiento de las disposiciones legales y reglamentarias que rigen la institución y su funcionamiento, de las políticas, planes, programas, objetivos y metas que se hayan formulado.
-h) Evaluar, en lo pertinente, las operaciones y comprobar la veracidad e integridad de los registros, informes y estados financieros y presupuestarios.
-i) Verificar que los recursos financieros, materiales y humanos de que dispone el BCR SAFI S. A., se hayan utilizado por la administración con eficiencia, economía, eficacia y cumpliendo con el bloque de legalidad correspondiente.
-j) Fiscalizar la gestión del riesgo en BCR SAFI S. A. Para ello, la Auditoría verificará que la administración identifique y evalúe los distintos riesgos a los que la Sociedad está expuesta, y que planifique y emprenda las medidas pertinentes para mitigar los efectos negativos de esos riesgos, y a su vez cumpla con lo que establece el artículo 18 de la Ley general de control interno. También la administración deberá promover mejoras en la valoración del riesgo de los procesos de dirección, de las operaciones y de los sistemas de información de la organización.
-k) Mantener a disposición del órgano supervisor correspondiente, los informes y papeles de trabajo preparados sobre todos los estudios realizados.
+Capítulo II
+Deberes y prohibiciones de la Auditoría Interna
+Artículo 29
+El auditor interno de BCR SAFI S.A. y las demás personas trabajadoras de la Auditoría Interna deben cumplir con los deberes y prohibiciones establecidos en los artículos 32 y 34 de la Ley general de control interno.

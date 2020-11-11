@@ -1,1 +1,2 @@
-Artículo 7º—La Auditoría Interna debe asegurarse de establecer su visión, misión, políticas y procedimientos que regirán el accionar de la auditoría interna y velar por su cumplimiento actualización. La misión y visión serán incorporadas en el plan estratégico de la Auditoría Interna de BCR SAFI S. A.
+Artículo 7
+El auditor interno de BCR SAFI S.A. debe participar en las sesiones o reuniones de Junta Directiva de BCR SAFI S.A. o Gerencia General, cuando estos órganos lo soliciten. Su participación corresponde al papel de asesor en materia de su competencia.

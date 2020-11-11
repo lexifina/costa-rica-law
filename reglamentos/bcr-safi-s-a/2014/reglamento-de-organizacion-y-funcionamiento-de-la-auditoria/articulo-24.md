@@ -1,3 +1,4 @@
-CAPÍTULO VIII
-Relaciones y coordinaciones
-Artículo 24.—De acuerdo con la norma 1.1.4 de las Normas para el Ejercicio de la Auditoría Interna en el Sector Público, el Auditor Interno debe coordinar a lo interno de su institución la realización de los servicios de la actividad de auditoría interna, así como compartir información y coordinar actividades con la Contraloría General de la República, los auditores externos que se contraten en la institución, con otros entes u órganos de control que correspondan y con los órganos judiciales, para minimizar la duplicación de esfuerzos. Lo anterior sin que implique limitación para la efectiva actuación de la Auditoría.
+Capítulo VI
+Ámbito de acción
+Artículo 24
+En atención a la estructura de gobierno corporativo del Conglomerado Financiero BCR, el ámbito de acción de la Auditoría Interna está conformado por BCR SAFI S.A. y aquellas instancias que formen parte del alcance de competencias y potestades establecidas en los artículos 22 y 33 de la Ley general de control interno.

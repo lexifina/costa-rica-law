@@ -1,1 +1,3 @@
-Artículo 41.—El programa de seguimiento, tal y como lo establece la norma 2.11.1 de las Normas para el ejercicio de la Auditoría Interna en el sector público, debe contemplar entre otros, la relevancia de las observaciones y recomendaciones informadas, complejidad y condiciones propias de las acciones pertinentes, efectos e impactos de la implementación de la acción, y la oportunidad del seguimiento.
+Artículo 41
+Para los compromisos de alto riesgo, a partir de la tercera solicitud de prórroga, la Administración debe hacer de conocimiento el planteamiento al Comité Corporativo Auditoría. En caso de que este requisito no se cumpla, la Auditoría Interna no tramitará la solicitud de prórroga.
+Para la resolución de estos casos, la Auditoría Interna de BCR SAFI S.A. aplicará lo dispuesto en el artículo 40 de este Reglamento.

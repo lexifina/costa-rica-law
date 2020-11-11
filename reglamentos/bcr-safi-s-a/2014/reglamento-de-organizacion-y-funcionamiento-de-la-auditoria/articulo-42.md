@@ -1,6 +1,2 @@
-Artículo 42.—La auditoría, como parte del programa de seguimiento, y considerando lo establecido en el artículo 40 de este Reglamento, tendrá la potestad a solicitud fundamentada de la administración de otorgar prórrogas a los plazos indicados por ésta en la implantación de las recomendaciones de auditoría, siempre y cuando se cumplan al menos las siguientes condiciones:
-• Que no haya vencido el plazo del compromiso.
-• Que se puedan verificar avances en la implementación de la acción correctiva.
-• Que quien dirija la solicitud de prórroga sea la misma persona a quien fue dirigido el informe de auditoría; o bien, un superior.
-Estas prórrogas no operarán de oficio y cada caso deberá ser debidamente analizado por la auditoría.
-La Auditoría se reserva el derecho de dar trámite y aprobar prórrogas en casos de excepción, debidamente justificados.
+Artículo 42
+Para aquellos compromisos que se encuentren vencidos, la Auditoría Interna de BCR SAFI S.A. debe valorar la procedencia de solicitar la aplicación de lo establecido en el artículo 39 de la Ley general de control interno.

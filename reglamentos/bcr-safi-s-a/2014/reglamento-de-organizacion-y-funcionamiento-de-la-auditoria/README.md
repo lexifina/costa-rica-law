@@ -14,3 +14,4 @@ Reglamento de organización y funcionamiento de la auditoría interna de BCR SAF
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-10-15 | la propia norma |
+| 2 | 2020-11-11 | Reglamento 25 (2020-11-11) |

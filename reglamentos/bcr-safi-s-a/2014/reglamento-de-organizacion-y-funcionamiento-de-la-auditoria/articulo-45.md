@@ -1,2 +1,3 @@
-Artículo 45.—El Auditor Interno tendrá la responsabilidad de establecer los lineamientos que correspondan en relación a materia de admisibilidad de denuncias para su atención por parte de la Auditoría Interna.
-Para tal efecto, serán aplicables los criterios y parámetros que dispone el Reglamento a la Ley Nº 8422 Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública y las Directrices sobre la comunicación de Relaciones de Hechos y Denuncias Penales por las Auditorías Internas del Sector Público D-1-2008- CO-DFOE.
+Artículo 45
+El auditor interno tiene la responsabilidad de establecer los lineamientos que correspondan en relación con la admisibilidad de denuncias para su atención.
+Para tal efecto, se debe aplicar lo establecido en el capítulo 17 “Atención de denuncias, relaciones de hechos y denuncias penales”, del Manual de la Auditoría Interna de BCR SAFI S.A. con aplicación de los criterios y parámetros que dispone el Reglamento a la Ley Nº 8422 Ley contra la corrupción y el enriquecimiento ilícito en la función pública.

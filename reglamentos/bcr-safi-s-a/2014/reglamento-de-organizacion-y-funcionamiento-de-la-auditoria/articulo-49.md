@@ -1,0 +1,2 @@
+Artículo 49
+Los servidores de la Auditoría Interna de BCR SAFI S.A. que lleven a cabo las investigaciones preliminares y confección del informe de relación de hechos u otros informes, pueden comparecer ante la autoridad competente interna en su carácter exclusivo de expertos calificados, y únicamente serán cuestionados, sobre las eventuales dudas que del informe surjan, en el ámbito de la materia en investigación.

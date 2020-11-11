@@ -1,5 +1,2 @@
-CAPÍTULO III
-Independencia y objetividad
-Artículo 9º—El auditor interno deberá asegurarse de que el personal a su cargo, mantenga y muestre una actitud de criterio independiente en el desarrollo de su trabajo, y actúe de manera objetiva, profesional e imparcial, en los hechos y en la apariencia, tal y como lo establece la norma 104 del Manual de normas generales de auditoría para el sector público.
-Por tanto, deberá establecer políticas y directrices que permitan prevenir y detectar situaciones -internas o externas- que comprometan la independencia y la objetividad del personal de la Auditoría Interna.
-Así mismo, se establecerá los pasos a seguir para administrar las situaciones de impedimento que se llegaren a presentar sobre hechos o actuaciones que pongan en duda o en peligro la objetividad e independencia de la Auditoría Interna.
+Artículo 9
+La jornada laboral del auditor interno de BCR SAFI S.A. es de tiempo completo, tal como lo establece el artículo 30 de la Ley general de control interno. Cualquier modificación al tiempo de jornada, sólo debe ser tramitada por la Junta Directiva de BCR SAFI S.A. ante la Contraloría General de la República.
