@@ -14,3 +14,4 @@ Reforma integral Reglamento de Organización y Funciones de la auditoría intern
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-05-22 | la propia norma |
+| 2 | 2020-11-11 | Reglamento 618 (2020-11-11) |
