@@ -1,0 +1,1 @@
+Artículo 4º—Los envíos provenientes del comercio electrónico aplicables en este reglamento pagarán la tasa de comercio electrónica vigente y a solicitud del cliente serán entregados en el lugar de preferencia de éste, para lo cual deberá pagar un monto adicional, de acuerdo al servicio requerido mediante la sucursal virtual.

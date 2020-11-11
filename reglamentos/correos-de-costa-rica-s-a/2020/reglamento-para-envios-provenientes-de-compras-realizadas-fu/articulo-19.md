@@ -1,0 +1,1 @@
+Artículo 19.—Motivos de no distribución: Será motivo de no entrega, todo envío que no cumpla con los requisitos de admisión establecidos en Artículo 7: Condiciones Generales- Para la admisión de comercio electrónico aplicable en este reglamento, y Artículo 18: Condiciones de envíos no distribuibles.

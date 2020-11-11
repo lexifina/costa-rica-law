@@ -1,0 +1,1 @@
+Artículo 11.—Artículos prohibidos con requisitos especiales y materiales peligrosos. Los objetos y materiales prohibidos debidamente tipificados a nivel nacional como internacional según convenios, políticas y regulaciones no podrán ser recibidos por Correos de Costa Rica.

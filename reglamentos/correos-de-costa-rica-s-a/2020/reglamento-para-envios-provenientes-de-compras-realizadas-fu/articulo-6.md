@@ -1,0 +1,1 @@
+Artículo 6º—Los envíos provenientes del comercio electrónico aplicable en este reglamento que sean sujetos a la tasa de comercio electrónico, y no sean reclamados, serán tratados de acuerdo a la legislación aduanera nacional y al Reglamento Interior del Servicio Postal.

@@ -1,0 +1,2 @@
+Condiciones aplicables a los envíos de llegada Internacional
+Artículo 13.—Envíos sujetos a formalidades aduaneras. De conformidad con la Ley General de Aduanas N° 8373, una vez notificado al cliente de la existencia del envío de comercio electrónico, éste se deberá presentar a la aduana o bien indicar por los medios que considere Correos de Costa Rica la disposición de despacharlas para consumo o lo que corresponda, siendo que en el primer caso la Aduana procederá a tramitar, de oficio, la declaración y determinará el adeudo tributario.

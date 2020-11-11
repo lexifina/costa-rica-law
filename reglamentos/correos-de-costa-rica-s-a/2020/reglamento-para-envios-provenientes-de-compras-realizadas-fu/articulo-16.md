@@ -1,0 +1,1 @@
+Artículo 16.—Envíos liberados de Aduana. Si el envío de comercio electrónico aplicable en este reglamento no es retenido por la Aduana, Correos de Costa Rica, realizará el procedimiento establecido para la clasificación y distribución de los envíos según corresponda.

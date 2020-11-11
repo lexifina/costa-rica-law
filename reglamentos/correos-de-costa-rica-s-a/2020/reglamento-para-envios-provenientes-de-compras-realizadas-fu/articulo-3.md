@@ -1,0 +1,3 @@
+Artículo 3º—Los envíos provenientes del comercio electrónico aplicables en este reglamento, estarán sujetos al pago de la tasa de comercio electrónico cuyo monto será aprobado por la Junta Directiva de Correos de Costa Rica y estará disponible en www.correos.go.cr
+La tasa de comercio electrónico es un pago establecido por Correos de Costa Rica que contempla la presentación del envío ante la Aduana Postal del Ministerio de Hacienda, el resguardo y trámite administrativo.
+Además, el servicio podrá ser acompañado de otros valores agregados como entrega a domicilio, Apartado Postal Inteligente (API) y Apartado Postal, por una tarifa adicional, que también estará publicada en www.correos.go.cr

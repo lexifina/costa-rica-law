@@ -1,0 +1,1 @@
+Artículo 5º—El cliente deberá tramitar el retiro del envío en el plazo estipulado por Correos de Costa Rica. Para ello, Correos de Costa Rica utilizará los medios de comunicación que considere oportunos para informar al cliente el estado o llegada del envió, una vez que se encuentre en el país.
