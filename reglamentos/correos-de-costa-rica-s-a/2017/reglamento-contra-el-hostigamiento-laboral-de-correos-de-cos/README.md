@@ -14,3 +14,4 @@ Reglamento contra el hostigamiento laboral de Correos de Costa Rica S.A
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-02-28 | la propia norma |
+| 2 | 2020-11-11 | Reglamento 0 (2020-11-11) |
