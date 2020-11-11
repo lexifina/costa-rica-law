@@ -14,3 +14,4 @@ Medida de salvaguardia definitiva contra las importaciones de azúcar en estado 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-08-19 | la propia norma |
+| 2 | 2020-11-11 | Resolución 500 (2020-11-11) |
