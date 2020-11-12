@@ -15,3 +15,4 @@ Reglamento para autorizar actividades de los Partidos Políticos en sitios públ
 | --- | --- | --- |
 | 1 | 2013-07-16 | la propia norma |
 | 2 | 2015-02-02 | Decreto TSE 2 (2015-02-02) |
+| 3 | 2020-11-12 | Decreto TSE 6 (2020-11-12) |
