@@ -1,4 +1,0 @@
-CAPÍTULO VI
-De la adquisición y compra de vehículos
-Artículo 35.—De la autorización para su adquisición. El Consejo Directivo del IMAS evaluará las necesidades, considerando la recomendación de un informe del Área de Servicios Generales y autorizará mediante acuerdo firme, convenio o cualquier otro instrumento que se requiera, según el caso, el procedimiento para la adquisición de los vehículos.
-El Área de Servicios Generales, con base en el inventario actualizado de vehículos que recibe del Área de Proveeduría Institucional, y los datos sobre mantenimiento y reparaciones que mantiene el Área de Servicios Generales, definirá las necesidades de sustitución o adquisición de vehículos que se requiera, para el desempeño de sus labores, de conformidad con los recursos disponibles, mediante la elaboración del respectivo estudio técnico que justifique su adquisición al menos con una periodicidad de cada cinco años, se revisará el estado de la flotilla institucional.

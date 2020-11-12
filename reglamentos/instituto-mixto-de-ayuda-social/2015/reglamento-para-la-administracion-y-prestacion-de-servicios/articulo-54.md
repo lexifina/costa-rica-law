@@ -1,1 +1,0 @@
-Artículo 54.—Condenatoria a terceros. En el caso de que se condene a terceros como consecuencia del accidente, el Área de Asesoría Jurídica, en coordinación con la Gerencia General, instruirá las gestiones necesarias para que se proceda a la ejecución de sentencia en sede judicial.

@@ -1,1 +1,0 @@
-Artículo 46.—Contingencias. En caso de fuerza mayor, caso fortuito o alguna contingencia que no permita la utilización del Sistema para la adquisición, uso y control del combustible, se deberá seguir el mecanismo alternativo establecido por la Subgerencia de Soporte Administrativo y cualquier otra normativa vigente.

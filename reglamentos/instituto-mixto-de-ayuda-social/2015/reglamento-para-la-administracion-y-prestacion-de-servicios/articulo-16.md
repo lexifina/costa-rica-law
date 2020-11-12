@@ -1,2 +1,0 @@
-Artículo 16.—De la atención de la solicitud de transporte. Todas las solicitudes deberán ser programadas, pero su atención quedará condicionada a la disponibilidad de vehículos y choferes o conductores o conductoras. Se atenderán excepciones en caso de emergencias o situaciones debidamente justificadas que ameriten dar el servicio.
-En caso de no ser posible brindar el servicio a una dependencia, se realizará la comunicación respectiva a efecto de que la misma solicite el servicio de transporte externo, de acuerdo con la normativa vigente para tal efecto.

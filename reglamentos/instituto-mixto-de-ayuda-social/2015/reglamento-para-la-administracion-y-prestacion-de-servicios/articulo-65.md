@@ -1,1 +1,0 @@
-Artículo 65.—De la definición de controles internos. El Área de Servicios Generales será la responsable de definir las normas y procedimientos de control interno adicionales, que estime necesarias, tendientes a lograr un uso adecuado de los vehículos.

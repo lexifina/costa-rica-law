@@ -1,1 +1,0 @@
-Artículo 40.—Responsables del control. Las personas destacadas como administradores del sistema de combustible de cada dependencia, serán los responsables del control de kilometraje, combustible y rendimiento, mediante el Sistema SITRA. Los tarjetahabientes serán responsables por el uso correcto del combustible.
