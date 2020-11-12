@@ -1,0 +1,31 @@
+N° 42546-MP-MDHIS
+EL PRESIDENTE DE LA REPÚBLICA,
+EL MINISTRO DE LA PRESIDENCIA
+Y EL MINISTRO DE DESARROLLO HUMANO
+E INCLUSIÓN SOCIAL
+En uso de las facultades y atribuciones que les confieren los artículos 140, incisos 3), 8), 20) y 146 de la Constitución Política; los numerales 25, 27 inciso 1), 28 inciso 2), subinciso b) de la Ley General de la Administración Pública N° 6227 de 2 de mayo de 1978; la Ley N° 9220 Ley de la Red Nacional de Cuido y Desarrollo Infantil, de 24 de marzo del 2014; y el Decreto N° 41187-MPMIDEPLAN del 20 de junio del 2018, Reglamento Orgánico del Poder Ejecutivo; y,
+Considerando
+I.—Que el Reglamento a la Ley de la Red Nacional de Cuido y Desarrollo Infantil, Decreto Ejecutivo N° 42.206–MP–MDHIS del 29 de octubre del 2019, establece las normas de organización y funcionamiento de los órganos de la REDCUDI; pero no faculta a la Comisión Consultiva o la Comisión Técnica Interinstitucional de la REDCUDI a sesionar de forma virtual.
+II.—Que mediante Decreto Ejecutivo N° 41347-MP-MTSSMDHIS del 16 de octubre del 2018, reformado mediante Decreto Ejecutivo N° 41732 del 23 de mayo del 2019, se facultó al Presidente de la República y Ministros de Trabajo y Seguridad Social, y de Desarrollo Humano e Inclusión Social a emitir el respectivo acuerdo de delegación respecto a la coordinación de la Comisión Consultiva de la Red Nacional de Cuido y Desarrollo Infantil y se mantiene la adscripción de la Secretaría Técnica al IMAS, conforme lo señala el artículo 20 de la Ley N° 9220 del 24 de marzo de 2014.
+III.—Que mediante el Decreto Ejecutivo N° 42227-MPS del 16 de marzo de 2020, se declaró Emergencia Nacional en todo el territorio nacional, debido a la situación de alerta sanitaria provocada por la enfermedad COVID-19.
+IV.—Que mediante Acuerdo N° 11-03-2020 en la Sesión Ordinaria N° 02-2020 de la Comisión Consultiva celebrada el 19 de marzo del 2020, se acordó que en acatamiento a las disposiciones del Ministerio de Salud ante la emergencia por el COVID-19 y en concordancia con las medidas de distanciamiento entre las personas, y garantizando que las sesiones de la Comisión Consultiva y la Comisión Técnica Interinstitucional de la REDCUDI no sean suspendidas, se aprueba reformar el Reglamento a la Ley N° 9220 para habilitar jurídicamente la posibilidad de sesionar de manera virtual a los órganos de la REDCUDI. Por tanto;
+Decretan:
+REFORMA AL DECRETO EJECUTIVO N°42206-MP-MDHIS
+REGLAMENTO A LA LEY DE LA RED NACIONAL
+DE CUIDO Y DESARROLLO INFANTIL,
+Ley N° 9220
+Artículo 1º—Adiciónese cinco nuevos artículos con los numerales 15, 16, 17, 18 y 19 al Capítulo II del Decreto N° 42206-MP-MDHIS, Reglamento a la Ley de la Red Nacional de Cuido y Desarrollo Infantil, Ley N° 9220, y por consiguiente córrase la numeración subsiguiente. Los nuevos artículos deberán leerse de la siguiente manera:
+“Artículo 15.—Sobre la realización de sesiones virtuales de la Comisión Consultiva y la Comisión Técnica Interinstitucional de la REDCUDI. Estas podrán sesionar estando algunas de las personas integrantes presentes físicamente y otras de forma virtual. No obstante, de manera excepcional debidamente motivada y justificada, los miembros de estas Comisiones podrán celebrar la sesión con la participación de todas las personas integrantes en forma virtual.
+Artículo 16.—Requerimientos para realizar sesiones virtuales. Las sesiones virtuales de las Comisiones deberán realizarse por cualquier medio tecnológico que garantice los principios de colegialidad y simultaneidad que rigen el funcionamiento de los Órganos Colegiados.
+Ambas Comisiones podrán sesionar de forma virtual, siempre que haya interacción integral, multidireccional y en tiempo real entre las personas miembros del Órgano y todas aquellas personas que participen de la sesión, en el tanto, se respeten los principios de colegialidad, simultaneidad y deliberación del Órgano Colegiado.
+Artículo 17.—Participación virtual de las personas integrantes de las Comisiones de la REDCUDI. Cuando alguna de las personas integrantes requiera asistir virtualmente a la sesión, deberá comunicarlo por cualquier medio escrito a la persona que preside la Comisión respectiva con al menos tres días hábiles de antelación a la fecha de celebración de la respectiva sesión. En caso de urgencia debidamente justificada, podrá comunicarlo dentro de las 24 horas anteriores a la realización de la sesión.
+La persona integrante que participe virtualmente en la sesión deberá coordinar con la secretaria de cada Comisión, con al menos quince minutos de antelación, previo a la hora de inicio de la sesión, para asegurarse que cuenta con la funcionalidad de los equipos y las condiciones necesarias para participar de forma segura en la sesión.
+Es obligación de las personas integrantes que participan virtualmente en la sesión, asegurarse que en el lugar que se encuentren tienen los medios tecnológicos necesarios para garantizar su participación, la seguridad y la privacidad de la sesión, salvo que, en relación con este último punto, el órgano colegiado haya tomado acuerdo en sentido contrario.
+Artículo 18.—Actas de las sesiones virtuales. En el acta correspondiente a una sesión virtual, deberá adicionarse lo siguiente:
+a) Lo atinente a los motivos o razones por las cuales la sesión se realiza de esa forma.
+b) La lista de personas miembros, con la descripción de quienes estuvieron presentes físicamente y quiénes de forma virtual.
+c) Mecanismo tecnológico utilizado por parte de la persona integrante para participar en la sesión.
+d) Identificación del lugar en el cual se encontraba la persona miembro de la Comisión respectiva que participó virtualmente.
+e) Cualquier otra circunstancia que se considere oportuna.
+Artículo 19.—Desconexión de la persona integrante durante la sesión virtual. Cuando por motivos técnicos se pierda la interacción en tiempo real entre los participantes de la sesión, por diez minutos continuos o más, se considerará interrumpida la participación de esa o esas personas integrantes que estén participando de manera virtual para efectos de quorum. Esta circunstancia deberá ser consignada en el acta.
+Las desconexiones menores a diez minutos no se consignarán en el acta para efectos de la participación de alguna de las personas integrantes. La sesión se mantendrá mientras permanezca el quórum mínimo requerido.
