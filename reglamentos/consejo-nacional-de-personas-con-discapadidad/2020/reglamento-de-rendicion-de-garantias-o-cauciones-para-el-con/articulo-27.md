@@ -1,1 +1,3 @@
-Artículo 27.—Se deroga el reglamento de garantías que deben rendir los empleados del Consejo que recauden, custodien o administren fondos y valores, publicado en La Gaceta 45 del lunes 05 de marzo del 2007.
+Artículo 27.-Este Reglamento rige a partir de su publicación en el Diario Oficial La Gaceta.
+Heredia, 20 de julio, 2020.-
+(Así modificada su numeración mediante acuerdo N° JD-223-2020 del 12 de noviembre del 2020 que lo traspasó del antiguo artículo 28 al 27)

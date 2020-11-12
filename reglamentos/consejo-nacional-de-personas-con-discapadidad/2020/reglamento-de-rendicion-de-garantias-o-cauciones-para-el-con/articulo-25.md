@@ -1,3 +1,4 @@
-Artículo 25.—Ejecución de la garantía: La ejecución de la garantía debe de ir precedida de un procedimiento administrativo tramitado conforme al libro segundo de la Ley General de Administración Pública, en donde se demuestre la falta de la persona caucionante. Comprobada la falta a la persona caucionante y una vez en firme la resolución dictada por la instancia competente, donde corresponda el resarcimiento de daños y perjuicios, se deberá ordenar la ejecución de la garantía que el caucionante haya rendido.
-Lo anterior sin perjuicio de otras responsabilidades administrativas, civiles y penales que correspondan.
-Cuando la garantía sea insuficiente, el Conapdis valorará el caso concreto, con el fin de realizar las acciones administrativas y judiciales necesarias para el cobro del saldo pendiente.
+CAPÍTULO VII
+Disposiciones transitorias y finales
+Artículo 25.-Disposiciones transitorias. Las personas que al momento de entrada en vigencia de este Reglamento hayan renovado la caución, se les aplicará esta normativa a partir del vencimiento del plazo de garantía.
+(Así modificada su numeración mediante acuerdo N° JD-223-2020 del 12 de noviembre del 2020 que lo traspasó del antiguo artículo 26 al 25)

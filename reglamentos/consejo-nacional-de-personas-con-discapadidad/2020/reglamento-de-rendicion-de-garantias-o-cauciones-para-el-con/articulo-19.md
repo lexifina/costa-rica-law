@@ -1,3 +1,2 @@
-CAPÍTULO V
-Responsabilidades y sanciones
-Artículo 19.—Responsabilidad por la no presentación de la caución. El no rendir o renovar la garantía dentro del plazo previsto al efecto, originará a la persona responsabilidad administrativa, de conformidad con lo establecido en la normativa vigente.
+Artículo 19.-Sanción por incumplimiento de la obligación. En el caso de que la persona obligada a rendir la garantía, no lo hiciere, o lo hiciere en forma insuficiente, o no actualice la garantía, será causal de despido sin responsabilidad patronal de acuerdo con lo establecido en el numeral 120 de la Ley de Administración Financiera de la República y Presupuestos Públicos, previa instauración del debido proceso.
+(Así modificada su numeración mediante acuerdo N° JD-223-2020 del 12 de noviembre del 2020 que lo traspasó del antiguo artículo 20 al 19)

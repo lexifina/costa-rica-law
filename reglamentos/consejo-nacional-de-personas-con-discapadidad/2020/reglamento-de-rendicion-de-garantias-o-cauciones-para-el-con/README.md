@@ -14,3 +14,4 @@ Reglamento de rendición de garantías o cauciones para el Consejo Nacional de P
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-08-14 | la propia norma |
+| 2 | 2020-11-12 | Reglamento 0 (2020-11-12) |
