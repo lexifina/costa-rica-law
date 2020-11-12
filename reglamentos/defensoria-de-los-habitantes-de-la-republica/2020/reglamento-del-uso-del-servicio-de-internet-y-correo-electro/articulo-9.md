@@ -1,0 +1,4 @@
+Artículo 9º—Comunicación al Departamento de Informática de movimientos de personal para la apertura y/o cierre de cuentas de acceso.
+Las Jefaturas deberán comunicar al Departamento de Informática, con copia al Departamento de Recursos Humanos, de cualquier movimiento del personal a su cargo –-contratación de nuevos/as funcionarios/as, finalización de la relación laboral, ascensos, movilidad horizontal a otras instituciones, permisos sin goce de salario- a efecto de que dicho Departamento gestione los permisos, apertura, suspensión temporal o cierres de cuentas definitivos para acceso al servicio de internet y correo electrónico institucional, según sea el caso.
+En el caso de préstamos interinstitucionales, la cuenta de correo del funcionario se mantendrá abierta.
+Las Jefaturas harán la comunicación al Departamento de Informática dentro del plazo de cinco días hábiles, posteriores al respectivo movimiento de personal.

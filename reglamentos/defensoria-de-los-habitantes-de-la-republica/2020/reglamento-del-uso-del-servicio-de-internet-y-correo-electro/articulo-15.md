@@ -1,0 +1,2 @@
+Artículo 15.—Prevención al o la funcionaria por parte del Jerarca
+En el supuesto del artículo anterior, el Departamento de Informática informará al jerarca y este podrá prevenir al o la funcionaria de que se abstenga de incurrir nuevamente en los actos o conductas irregulares o, en caso de incumplimiento grave a los deberes y prohibiciones establecidas en el presente reglamento, valorará la imposición de una sanción disciplinaria, previa demostración de las faltas a través del debido proceso.
