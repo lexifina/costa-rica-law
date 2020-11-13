@@ -1,0 +1,1 @@
+Artículo 28.—Vigencia y derogatorias. El presente Reglamento entra a regir a partir de su publicación en el Diario Oficial La Gaceta y deroga el Reglamento Especial para Regular la Labor de las Comisiones aprobado en sesión de Junta Directiva General N° 8-86-G.E., del 11 de febrero de 1986.

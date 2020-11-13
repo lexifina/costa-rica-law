@@ -1,0 +1,1 @@
+Artículo 6º—Objetivos y Plazo. Toda creación de Comisiones deberá incluir en el acuerdo de la Junta Directiva: la naturaleza de la comisión, el Colegio miembro que tendrá a cargo la coordinación de la comisión, la definición de los objetivos generales y particulares del asunto encomendado a la misma y el plazo de desarrollo de su actividad, en caso de estar delimitado.

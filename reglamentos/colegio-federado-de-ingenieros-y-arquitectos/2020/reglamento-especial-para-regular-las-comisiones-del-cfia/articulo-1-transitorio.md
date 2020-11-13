@@ -1,0 +1,2 @@
+Transitorio Único: Las comisiones que se encuentren nombradas antes de la entrada en vigencia del presente Reglamento, contarán con el plazo de tres meses calendario, contados a partir publicación del mismo, para ajustarse a las disposiciones establecidas en este Reglamento. Corresponderá a la Junta Directiva General o la Junta Directiva del Colegio Miembro, según corresponda, verificar el cumplimento de lo anterior.
+San José, 26 de octubre de 2020
