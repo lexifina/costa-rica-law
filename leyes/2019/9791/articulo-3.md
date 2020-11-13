@@ -4,3 +4,4 @@ Artículo 3°: Apruébense los siguientes Egresos Ordinarios y Extraordinarios d
 (Reformado por el artículo 3° de la ley N° 9841 del 24 de abril del 2020)
 (Reformado por el artículo 3° de la ley N° 9879 del 28 de julio del 2020)
 (Reformado por el artículo 4° de la ley N° 9879 del 28 de julio del 2020)
+(Modificado por el artículo 3° del decreto ejecutivo N° 42704 del 27 de octubre del 2020)
