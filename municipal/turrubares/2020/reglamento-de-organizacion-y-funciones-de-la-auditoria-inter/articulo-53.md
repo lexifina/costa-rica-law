@@ -1,0 +1,2 @@
+Artículo 53.— Responsabilidad de la Auditoría Interna sobre la remisión de los productor generados: Cuando la Auditoría Interna elabore una relación de hechos o una denuncia penal, y sean remitidos a la autoridad competente; el deber del auditor se limita a verificar que el destinatario haya recibido efectivamente el documento de remisión, sin que esto impida el ejercicio de sus potestades para monitorear el estado y resultado de las acciones adoptadas por la instancia
+correspondiente.

@@ -1,0 +1,1 @@
+Artículo 6º—Misión, Visión y principales políticas. La Auditoría Interna deberá establecer y actualizar periódicamente su misión, visión y principales políticas que regirán su accionar, Además, estas deberán ser congruentes con la visión, misión y objetivos institucionales.

@@ -1,0 +1,1 @@
+Artículo 43º—Modificaciones al presupuesto de la Auditoría Interna. Para el cambio de destino de los recursos asignados a la Auditoría Interna, el jerarca deberá valorar el criterio del titular de dicha unidad, en resguardo de su independencia funcional y de prestación de los diferentes servicios atinentes a la actividad.

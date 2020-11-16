@@ -1,0 +1,1 @@
+Artículo 31º—Prohibiciones. El Auditor y los demás funcionarios de la Auditoría Interna, deberán ajustarse a las prohibiciones prescritas en las Leyes N° 7794, Nº 8422 y N° 8292 y otras aplicables establecidas en el ordenamiento jurídico.

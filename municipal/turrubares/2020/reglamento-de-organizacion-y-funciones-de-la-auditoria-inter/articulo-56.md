@@ -1,0 +1,1 @@
+Artículo 56.—Rechazo de la gestión de apertura: El incumplimiento de uno o más requisitos detallados en el artículo 55 Inciso b), del presente Reglamento, podrá dar lugar, previa valoración de cada caso por parte de la Auditoría Interna, al rechazo de plano de la gestión.

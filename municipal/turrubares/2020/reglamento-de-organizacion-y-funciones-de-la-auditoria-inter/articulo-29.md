@@ -1,0 +1,1 @@
+Artículo 29°—Sobre la evaluación del desempeño. El Auditor Interno y los funcionarios de la Auditoría Interna, según proceda, deben realizar una planificación puntual de cada servicio de auditoría, la cual debe considerar al menos los objetivos e indicadores de desempeño de la actividad por auditar, así como la evaluación del riesgo asociado.
