@@ -14,3 +14,4 @@ Reglamento a la Ley N° 9618 "Reforma la Ley N° 6041 "Creación de la Comisión
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-03-14 | la propia norma |
+| 2 | 2020-11-16 | Reglamento 35 (2020-11-16) |

@@ -1,1 +1,3 @@
-Artículo 30. De los requisitos del préstamo. Los requisitos y trámites para gestionar y desembolsar los préstamos respaldados por el FAC, serán los mismos que para el resto de las solicitudes de préstamo que reciba CONAPE, sin perjuicio del artículo 18 de este reglamento, con la diferencia de que la garantía será cubierta total o parcialmente con el FAC.
+Artículo 30. De los requisitos del préstamo.
+Los requisitos y trámites para gestionar y desembolsar los préstamos respaldados por el FAC, serán los mismos que para el resto de las solicitudes de préstamo que reciba CONAPE, sin embargo, el Consejo Directivo podrá establecer en el PAGC condiciones diferenciadas con el propósito de lograr una administración eficiente de los recursos del FAC. Lo anterior, sin perjuicio del artículo 18 de este reglamento, con la diferencia de que la garantía será cubierta total o parcialmente con el FAC.
+(Así reformado mediante sesión N° 35-2020 del 16 de noviembre del 2020)
