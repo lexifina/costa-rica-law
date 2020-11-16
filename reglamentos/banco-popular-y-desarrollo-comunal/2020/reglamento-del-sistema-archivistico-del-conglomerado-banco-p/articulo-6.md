@@ -1,0 +1,2 @@
+Artículo 6º—Para eliminar documentos en los Archivos del Conglomerado se debe contar con las tablas de plazos de conservación de documentos, aprobadas por el Comité Institucional de Selección y Eliminación Documental y por la Comisión Nacional de Selección y Eliminación Documental, para los casos que así lo requieran.
+En caso de eliminaciones no autorizadas o en desacato a lo establecido en las tablas de plazos, se aplicará lo dispuesto en los artículos 35 y 36 de la Ley N° 7202.

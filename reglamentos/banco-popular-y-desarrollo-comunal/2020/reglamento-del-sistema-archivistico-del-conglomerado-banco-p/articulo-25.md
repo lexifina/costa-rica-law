@@ -1,0 +1,1 @@
+Artículo 25.—Los Comités Institucionales de Selección y Eliminación de Documentos de las Entidades que conforman el Conglomerado podrán invitar a sus sesiones a cualquier persona, la cual asistirá a las sesiones con voz, pero sin voto, de conformidad con el Reglamento de la Ley N° 7202 en el artículo 21 y el numeral 54 de la Ley General de la Administración Pública.

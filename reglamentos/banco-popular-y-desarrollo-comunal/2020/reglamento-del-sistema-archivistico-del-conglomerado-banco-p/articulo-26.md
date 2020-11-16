@@ -1,0 +1,5 @@
+Artículo 26.—Los CISED tendrán las siguientes funciones:
+a) Evaluar y determinar la vigencia administrativa y legal de los documentos. Para ello establecerán las tablas de plazos de conservación institucional con apego a la Ley, y las someterán a aprobación de la Jefatura de la unidad administrativa correspondiente de acuerdo con los procedimientos establecidos por el Archivo Central de la Sociedad o la Unidad Centro de Documentos en el caso del banco.
+b) Someter a la aprobación de la Comisión Nacional de Selección y Eliminación de Documentos las tablas de plazos, para los casos que así lo requieran.
+c) Consultar a la Comisión Nacional de Selección y Eliminación de Documentos cuando deba eliminar documentos que hayan finalizado su trámite administrativo y no existan tablas de plazos aprobadas. Para los casos que así lo requieran.
+d) Determinar cuáles documentos y con qué finalidad deben ser microfilmados, digitalizados o sometidos a cualquier otro proceso tecnológico presente o futuro.

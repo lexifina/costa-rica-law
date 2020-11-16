@@ -1,0 +1,3 @@
+Artículo 14.—La Unidad Centro de Documentos puede capacitar, de así requerirse, a los encargados de los archivos de gestión, de gestión centralizada, especializada, los archivos regionales y los Archivos Centrales de las Sociedades, o a cualquier otro funcionario relacionado con la actividad documental del Conglomerado, para que organicen los archivos de conformidad con la legislación conexa.
+Los Archivos Centrales deberán capacitar a los colaboradores encargado de los Archivos de Gestión, de gestión centralizada, especializada, y los archivos regionales que conformen la sociedad
+y capacitar a los colaboradores relacionados con la actividad documental de dicha Sociedad.

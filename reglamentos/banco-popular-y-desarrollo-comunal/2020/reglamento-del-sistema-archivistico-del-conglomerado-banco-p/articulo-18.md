@@ -1,0 +1,6 @@
+Artículo 18.—La documentación se digitalizará o bien se le aplicará cualquier otro proceso tecnológico aceptado legalmente, presente o futuro, al menos por alguna de las siguientes razones:
+a) Medida de Contingencia: Para salvaguardar el Fondo Documental ante un siniestro.
+b) Respaldo: Para salvaguardar el Fondo Documental. Dicho respaldo se desarrollará de manera controlada posterior al análisis del contenido.
+c) Referencia: Forma de indexación de documentos para agilizar los trámites administrativos y de investigación.
+Lo anterior bajo la observación y aplicación de los lineamientos, requerimientos tecnológicos y normativos que se disponga por parte del Archivo Nacional y el respectivo Archivo Central para cumplir con los temas de originalidad, fehaciencia y veracidad de esas digitalizaciones.
+Igualmente, estas medidas no representan en ninguna medida la sustitución del documento original o su eliminación; en cualquier soporte por el documento digitalizado; simplemente estas medidas se habilitan para agilizar la consulta frecuente de los documentos, evitar la excesiva manipulación del original o la referencia digitalizada de un documento que por un siniestro se perdió o sufrió un deterioro significativo.

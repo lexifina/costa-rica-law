@@ -1,0 +1,1 @@
+Artículo 9º—Son funciones de los Archivos Centrales del Conglomerado las indicadas en el artículo 42 de la Ley del Sistema Nacional de Archivos, su reglamento en el artículo 32 y demás artículos o normativa aplicable bajo este Nombre.

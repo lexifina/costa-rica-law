@@ -1,0 +1,1 @@
+Artículo 4º—El fondo documental que se conserva en los archivos se organizará por medio de los sistemas de clasificación y los métodos de ordenación archivísticos que defina la Unidad Centro de Documentos del Banco Popular, o el Archivo Central en el caso de las sociedades. Siempre se deberán respetar los principios de procedencia y orden original de los documentos.

@@ -1,0 +1,6 @@
+Sección III
+Los Archivos Regionales
+Artículo 21.—Los archivos regionales son los archivos de las diferentes regiones administrativas del Conglomerado que, por similitud de actividades y funciones, así como por su cercanía geográfica, podrán disponer de un archivo regional único que brinde servicio a las diferentes unidades administrativas que los componen.
+Estos archivos serán los encargados, de reunir, conservar, clasificar, ordenar, describir, seleccionar, administrar y facilitar la documentación producida y recibida por las unidades que le componen, así como cualquier otra función que le asigne la respectiva Gerencia General, en concordancia con la Ley N° 7202 y su Reglamento.
+Para la implementación de los archivos regionales en el Banco Popular, la UCD deberá realizar un estudio técnico para determinar la viabilidad, requerimientos y condiciones para la creación de archivos regionales en una zona determinada; estudios que deberán ser solicitados por la Gerencia General del Banco Popular.
+En cuanto a la implementación de Archivos Regionales en las sociedades, la Unidad Centro de Documentos podrá asesorar a los Archivos Centrales de las sociedades en el estudio y determinación final de instaurar esta figura archivística.

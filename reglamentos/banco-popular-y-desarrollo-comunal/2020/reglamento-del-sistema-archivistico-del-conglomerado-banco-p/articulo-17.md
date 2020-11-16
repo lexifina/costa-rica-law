@@ -1,0 +1,1 @@
+Artículo 17.—Los documentos originales contenidos en micropelículas, discos ópticos, magnéticos o de cualquier otro soporte que se hayan realizado en cualquier unidad administrativa de las Unidades que conforman el Conglomerado serán custodiados en los respectivos Archivos Centrales.
