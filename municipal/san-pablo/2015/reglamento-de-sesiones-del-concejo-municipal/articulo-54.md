@@ -1,9 +1,2 @@
-Artículo 54.—Rige un mes después de su publicación en el Diario Oficial La Gaceta.
-Se instruye a la Administración Municipal para que realice la publicación en el Diario Oficial La Gaceta, de manera que el reglamento entre en vigencia una vez sea publicado.
-Acuerdo unánime N° 242-15 y ratificado en sesión ordinaria N° 27-15 celebrada el día 6 de julio de 2015.
-I. Lucila Fonseca Solórzano, Partido Liberación Nacional
-II. Fernando Corrales Barrantes, Partido Liberación Nacional
-III. Lucía Montoya Quesada, Partido Acción Ciudadana
-IV. Osvaldo Gómez Barquero, Partido Unidad Social Cristiana
-V. Alejandro González Barquero, Partido Movimiento Libertario
-San Pablo de Heredia, 15 de julio del 2015.
+Artículo 54.—Para garantizar la simultaneidad, colegialidad y deliberación, será responsabilidad de cada regiduría y sindicatura, revisar que el día de la sesión ordinaria o extraordinaria, le llegue hasta antes del mediodía la invitación indicada en el punto anterior (lo que se comunica es un correo electrónico a la cuenta oficial de cada uno y se les pide confirmar la asistencia). En caso de detectar que no está la invitación respectiva, la regiduría y/o sindicatura deberá enviar un correo a la secretaría municipal, hasta antes de las tres de la tarde del día en que se realiza la sesión, a efecto de que se verifique que su cuenta esté activa y que se corrija cualquier omisión o dificultad de ingreso a la plataforma definida por la Administración Municipal.
+(Así adicionado en sesión N° 47 del 16 de noviembre del 2020)

@@ -1,0 +1,2 @@
+Artículo 56.—Podrán realizarse hasta dos sesiones extraordinarias remuneradas, en el día y fecha que el Concejo Municipal indique en su acuerdo de convocatoria, y con un período de gracia máximo de quince minutos, tal y como está establecido en el artículo 38 del Código Municipal, salvo que se disponga modificar la fecha de estas sesiones por iniciativa del alcalde municipal.
+(Así adicionado en sesión N° 47 del 16 de noviembre del 2020)

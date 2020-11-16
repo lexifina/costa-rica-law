@@ -14,3 +14,4 @@ Reglamento de Sesiones del Concejo Municipal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-09-22 | la propia norma |
+| 2 | 2020-11-16 | Reglamento municipal 47 (2020-11-16) |

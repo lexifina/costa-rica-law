@@ -1,3 +1,5 @@
-CAPÍTULO VII
-Disposiciones finales
-Artículo 53.—En todo lo no previsto, regirán las disposiciones del Código Municipal, Ley 7794 y sus reformas y la Ley General de la Administración Publica, Ley 6227 y sus Reformas.
+CAPÍTULO IX
+Sesiones virtuales
+(Así adicionado el capítulo anterior en sesión N° 47 del 16 de noviembre del 2020)
+Artículo 53.—Las sesiones del Concejo Municipal se realizarán utilizando la plataforma que defina la Administración Municipal y apruebe el Concejo, a la cual deberán tener acceso todas las regidurías y sindicaturas (propietarios y suplentes) mediante el uso de una cuenta personal para cada uno, con lo cual se garantice que existirá una plena compatibilidad entre los sistemas y medios empleados por el emisor y el receptor, para garantizar la autenticidad e integridad de la participación, voluntad y la conservación de lo actuado.
+(Así adicionado en sesión N° 47 del 16 de noviembre del 2020)

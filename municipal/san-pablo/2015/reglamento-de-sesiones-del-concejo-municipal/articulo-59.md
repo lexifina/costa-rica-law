@@ -1,0 +1,2 @@
+Artículo 59.—Para garantizar la simultaneidad, colegialidad y deliberación, cada uno de los asistentes deberá confirmar su participación en la sesión del Concejo Municipal, por lo que la secretaría del Concejo les enviará a cada regiduría y sindicatura la invitación de “Sesión de Concejo Municipal” que se agendará en la plataforma definida por la Administración Municipal, a efecto de que se incluya en el calendario personal de cada participante.
+(Así adicionado en sesión N° 47 del 16 de noviembre del 2020)

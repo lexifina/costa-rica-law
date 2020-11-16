@@ -1,0 +1,2 @@
+Artículo 61.—La presidencia otorgará la palabra a las regidurías y sindicaturas de conformidad con la solicitud que se le formule para esos efectos, para lo cual llevará un registro de las solicitudes de uso de la palabra y tiempos de participación y mantendrá activo únicamente el micrófono de la persona que esté haciendo uso de la palabra.
+(Así adicionado en sesión N° 47 del 16 de noviembre del 2020)

@@ -1,0 +1,2 @@
+Artículo 60.—Para garantizar la simultaneidad, colegialidad y deliberación, cada uno de los asistentes a las sesiones, deberán mantener su cámara activada durante toda la sesión, salvo que pidan permiso a la presidencia para los tiempos de receso. El pago de la dieta se justificaría únicamente si el miembro participa de la totalidad de la sesión y se mantiene conectado en ella.
+(Así adicionado en sesión N° 47 del 16 de noviembre del 2020)

@@ -1,0 +1,2 @@
+Artículo 69.—En caso de que un edil se incorpore en tiempo y forma a la sesión virtual del Concejo y durante la celebración tiene un problema técnico que ocasiona su desconexión, dispondrá de un plazo de quince minutos para informar dicha situación al secretario municipal a efectos de que le asista con la reconexión y no pierda el pago de la dieta. Si transcurridos los quince minutos de gracia, el edil no pudo reconectarse a la sesión virtual, no podrá gozar del pago de la dieta correspondiente.
+(Así adicionado en sesión N° 47 del 16 de noviembre del 2020)

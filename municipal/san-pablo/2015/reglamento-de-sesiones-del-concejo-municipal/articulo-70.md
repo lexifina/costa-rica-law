@@ -1,0 +1,2 @@
+Artículo 70.—En las sesiones ordinarias virtuales, el secretario o secretaria municipal deberá garantizar que todos los miembros del Concejo hayan recibido antes del lunes al mediodía, por medio de sus correos electrónicos oficiales, la convocatoria y toda la información que se vaya a conocer durante la sesión virtual. En el caso de las sesiones extraordinarias virtuales, deberá comunicarlo antes del mediodía del día en que se vaya a celebrar la misma.
+(Así adicionado en sesión N° 47 del 16 de noviembre del 2020)
