@@ -1,1 +1,0 @@
-Artículo 31.—Informe sobre las evaluaciones realizadas. Los resultados de las evaluaciones internas y externas deberán constar en un informe y el auditor interno deberá preparar un plan de mejora, si así lo requieren esos resultados y comunicarlo al jerarca. El auditor interno será responsable de dar un seguimiento adecuado al plan de mejoras.

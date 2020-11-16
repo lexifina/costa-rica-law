@@ -1,1 +1,0 @@
-Artículo 34.—Comunicación de los planes y requerimiento de recursos. El auditor interno deberá realizar una efectiva comunicación, al menos anualmente, de los planes y requerimientos de recursos a la Junta Directiva. También deberá comunicar el impacto que sobre la fiscalización y el control correspondientes produce la limitación de recursos.

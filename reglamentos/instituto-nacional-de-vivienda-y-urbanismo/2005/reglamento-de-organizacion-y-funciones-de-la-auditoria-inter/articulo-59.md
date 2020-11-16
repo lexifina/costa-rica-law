@@ -1,1 +1,0 @@
-Artículo 59.—Valoración preliminar del riesgo. Los auditores internos durante la planificación del trabajo deberán realizar una valoración preliminar del riesgo pertinente a la actividad bajo revisión. Los objetivos del trabajo deberán reflejar los resultados de esa valoración.

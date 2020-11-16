@@ -1,1 +1,0 @@
-Artículo 9º—Servicio de autorización de libros. La Auditoría Interna fiscalizará periódicamente la efectividad del manejo, autorización y control de libros o registros relevantes y necesarios, para el fortalecimiento del sistema de Control Interno.

@@ -1,1 +1,0 @@
-Artículo 72.—Análisis y evaluación. Los funcionarios de la Auditoría Interna deberán basar sus hallazgos, conclusiones y recomendaciones y demás resultados del trabajo en adecuados análisis y evaluaciones.

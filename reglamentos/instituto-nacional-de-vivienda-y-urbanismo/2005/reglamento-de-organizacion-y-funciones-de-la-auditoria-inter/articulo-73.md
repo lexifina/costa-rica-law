@@ -1,3 +1,0 @@
-Artículo 73.—Registros de la información. Los funcionarios de la Auditoría Interna deberán registrar información relevante que le permita apoyar los hallazgos, conclusiones, recomendaciones y demás resultados del trabajo.
-a) El auditor interno deberá controlar el acceso a los registros del trabajo de personas ajenas a la Auditoría Interna, de modo que se realice sólo con su autorización o la de quien él designe.
-b) El auditor interno deberá establecer requisitos de custodia para los registros y documentación del trabajo. Estos requisitos de retención deberán ser consistentes con las regulaciones pertinentes u otros requerimientos sobre este tema.

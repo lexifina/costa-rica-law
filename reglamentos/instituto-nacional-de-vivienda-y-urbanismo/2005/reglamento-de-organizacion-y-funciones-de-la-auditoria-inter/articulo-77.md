@@ -1,1 +1,0 @@
-Artículo 77.—Comunicación sobre los resultados de los servicios preventivos. El auditor interno definirá el contenido y forma de los informes, oficios u otros medios de comunicación sobre los resultados preventivos conforme a la naturaleza de los estudios y los criterios pertinentes.

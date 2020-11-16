@@ -1,2 +1,0 @@
-Artículo 92.—Ámbito de competencia. La Auditoría Interna dará trámite únicamente a aquellas denuncias que versen sobre posibles hechos irregulares o ilegales en relación con el uso y manejo de fondos públicos o que afecten a la institución, la Hacienda Pública relacionada con la institución y lo regulado por la Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública Nº 8422.
-(Así adicionado mediante sesión N° 5623 del 18 de julio de 2007)

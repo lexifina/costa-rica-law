@@ -1,1 +1,0 @@
-Artículo 13.—Inamovilidad del auditor. El auditor interno será inamovible en su puesto, sólo pudiendo suspenderse o removerse por justa causa y por decisión emanada de la Junta Directiva, con el voto favorable de no menos de cuatro de sus miembros, previa formación de expediente, con oportunidad de audiencia y defensa a su favor, así como de un dictamen favorable de la CGR.

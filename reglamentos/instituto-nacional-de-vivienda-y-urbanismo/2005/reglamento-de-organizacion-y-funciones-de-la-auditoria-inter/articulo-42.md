@@ -1,1 +1,0 @@
-Artículo 42.—Alerta en los riesgos en los servicios preventivos. Los funcionarios de la Auditoría Interna también deberán considerar los riesgos relacionados con los objetivos del trabajo de los servicios preventivos y estar alertas a la existencia de otros riesgos significativos que se detecten con el avance de los trabajos.

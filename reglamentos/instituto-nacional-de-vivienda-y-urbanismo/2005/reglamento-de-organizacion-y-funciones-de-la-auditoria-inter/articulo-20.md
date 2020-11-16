@@ -1,1 +1,0 @@
-Artículo 20.—Independencia de criterio. La actividad de la Auditoría Interna deberá estar libre de injerencias de la Junta Directiva y de los demás órganos de la Administración, al determinar su planificación y sus modificaciones, al manejar sus recursos, así como al desempeñar su trabajo y al comunicar sus resultados.
