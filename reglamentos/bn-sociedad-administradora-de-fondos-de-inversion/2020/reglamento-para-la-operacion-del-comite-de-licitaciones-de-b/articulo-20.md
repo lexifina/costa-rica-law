@@ -1,0 +1,1 @@
+Artículo 20.—Derogatoria. Se derogan todas las disposiciones anteriores relacionadas con esta materia, en especial lo dispuesto en los artículos del 1 al 16, sesión N° 332/22-2018 del 05 de noviembre del 2018, mediante cual se dispuso el Reglamento para la Operación del CL de BN Sociedad Administradora de Fondos de Inversión S.A.

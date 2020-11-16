@@ -1,0 +1,1 @@
+Artículo 7º—Facultades y atribuciones para atender recursos. La competencia para atender cualquier trámite relacionado con recursos de objeción o apelación, cuando la resolución de los mismos corresponda a la Contraloría General de la República, estará a cargo de la Gerencia Administrativa Financiera.

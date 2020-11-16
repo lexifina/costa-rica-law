@@ -1,0 +1,1 @@
+Artículo 17.—Regulación. En lo no regulado expresamente en el presente reglamento, se estará a lo dispuesto por la Ley General de la Administración Pública, la LCA y su RLCA y demás normativa atinente a la materia, así como a las disposiciones internas de BN Fondos.
