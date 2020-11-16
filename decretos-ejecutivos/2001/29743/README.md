@@ -14,3 +14,4 @@ Reglamento de Vida Máxima Autorizada para las Unidades de Transporte Colectivo 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-09-05 | la propia norma |
+| 2 | 2020-11-16 | Decreto Ejecutivo 42720 (2020-11-16) |
