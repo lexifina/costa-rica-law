@@ -3,7 +3,8 @@ El solicitante de financiamiento puede ser garante de su propio crédito cuando 
 a. Que los estudios se realicen en Costa Rica. Se aceptará también programas en el exterior cuando se realicen en la modalidad virtual, pero en ambos casos que los estudios permitan al prestatario mantener sus condiciones laborales.
 b. Que el monto solicitado no supere el tope establecido para créditos en los cuales se acepta un solo fiador asalariado, según el Plan Anual de Gestión de Crédito.
 c. Que sea asalariado, con ingreso mensual bruto igual o superior al doble del salario menor establecido por el Consejo Nacional de Salarios y que el salario esté libre de embargos.
-d. Que cubra con el salario bruto al menos el 10% del monto de la solicitud de préstamo.
+d. Que cubra con el salario bruto al menos el 20% del monto de la solicitud de préstamo.
+(Así reformado el inciso anterior mediante sesión N° 35-2020 del 16 de noviembre del 2020)
 e. Que tenga al menos un año de laborar con el mismo patrono.
 f. Que no otorgue fianza en otra operación de CONAPE.
 g. Que el salario líquido sea igual o mayor del monto estimado de la cuota del préstamo.

@@ -1,5 +1,6 @@
 ARTÍCULO 40: FIADOR CON INGRESOS O ACTIVIDADES PROPIAS
-Únicamente se aceptará un fiador con ingresos o actividades propias por operación.
+El fiador con ingresos o actividades propias servirá como tal solo una vez y podrá volver a garantizar otro préstamo hasta la cancelación de la deuda en la cual sirvió de garante.
+(Así reformado el párrafo anterior mediante sesión N° 35-2020 del 16 de noviembre del 2020)
 El ingreso neto de éste fiador deberá cubrir el 100% del monto de la solicitud de préstamo o monto de la operación crediticia, el cual deber ser igual o superior al doble del salario menor establecido por el Consejo Nacional de Salarios.
 Este fiador puede ser deudor de un préstamo de CONAPE.
 Personas extranjeras, aunque dispongan del estatus migratorio de “libre condición” o “residente”, no pueden tener la condición de fiador único de una operación.

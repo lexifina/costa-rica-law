@@ -3,10 +3,10 @@ a. Pregrados en Costa Rica.
 1. Programas técnicos en Costa Rica.
 a. Acciones formativas del Instituto Nacional de Aprendizaje (INA).
 b. Carreras técnicas universitarias y parauniversitarias.
-c. Cursos cortos a nivel universitario y parauniversitario.
+c. (Derogado mediante sesión N° 35-2020 del 16 de noviembre del 2020)
 2. Diplomados universitarios y parauniversitarios (incluye Profesorados)
 b. Pregrados en el Exterior.
-1. Cursos cortos a nivel universitario.
+1. (Derogado mediante sesión N° 35-2020 del 16 de noviembre del 2020)
 2. Carreras técnicas universitarias.
 3. Diplomados universitarios.
 c. Grados en Costa Rica y en el exterior.
@@ -17,4 +17,4 @@ d. Posgrados en Costa Rica y en el exterior.
 1. Maestrías.
 2. Doctorados.
 3. Especialidades.
-4. Cursos cortos de posgrado.
+4. (Derogado mediante sesión N° 35-2020 del 16 de noviembre del 2020)
