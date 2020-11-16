@@ -15,3 +15,4 @@ Reglamento sobre Financiamiento de Proyectos de Infraestructura
 | --- | --- | --- |
 | 1 | 2014-10-03 | la propia norma |
 | 2 | 2016-06-21 | Reglamento 1261 (2016-06-21) |
+| 3 | 2020-11-16 | Reglamento 1620 (2020-11-16) |
