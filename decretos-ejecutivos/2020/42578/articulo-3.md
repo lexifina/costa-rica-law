@@ -1,0 +1,1 @@
+Artículo 3º—Derogaciones. Deróguese el Decreto Ejecutivo 34549-H, de fecha 24 de marzo de 2008, publicado en La Gaceta Nº 111, del 10 de junio de 2008, “Reglamento sobre Criterios de Selección de Personas, Mercancías y Operaciones Aduaneras sujetas al Control y la Fiscalización”
