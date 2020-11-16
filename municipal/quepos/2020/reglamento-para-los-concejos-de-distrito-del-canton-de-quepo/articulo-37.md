@@ -1,0 +1,1 @@
+Articuló 37.—En el acuerdo municipal, se indicará que la calificación no constituye una garantía de que la Organización recibirá los recursos públicos, asimismo, se indicará que la vigencia de la precalificación es por el plazo de un año.

@@ -1,0 +1,1 @@
+Artículo 11.—El concejo de distrito en concordancia con lo que dispone el artículo 57 del Código Municipal, fomentará la participación activa, consciente y democrática de las personas vecinas del distrito, para lo cual gestionará con las instancias apropiadas, la formación y capacitación de las personas, procurando la participación igualitaria y equitativa de mujeres y hombres.

@@ -1,0 +1,1 @@
+Artículo 36.—Si el concejo dé distrito considera que la organización cumple con los requisitos y que el proyecto es de interés y beneficio para la comunidad, enviará el expediente con el respectivo dictamen al Concejo Municipal, quien tomará el acuerdo definitivo que calificará o no a la organización Como entidad privada idónea para administrar fondos públicos.

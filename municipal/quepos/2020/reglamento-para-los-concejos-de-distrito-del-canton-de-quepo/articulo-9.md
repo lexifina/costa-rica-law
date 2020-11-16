@@ -1,0 +1,1 @@
+Artículo 9º—La persona secretaria del concejo de distrito llevará un registro de organizaciones sociales del distrito, donde constara el tipo de organización, número de cédula jurídica, domicilió social, representantes legales y plazo de su nombramiento, estatutos y cualesquiera otras informaciones útiles en la gestión municipal.

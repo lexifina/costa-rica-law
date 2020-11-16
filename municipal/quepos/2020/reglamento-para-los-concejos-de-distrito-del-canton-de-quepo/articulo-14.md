@@ -1,0 +1,2 @@
+Artículo 14.—La persona sindica propietaria ejercerá la Presidencia del-concejo de distrito, en caso de ausencia, la persona que ocupa la sindicatura suplente, será quien presida. De su seno, el concejo de distrito elegirá a la persona que ocupará la secretaría y que durará en su cargo dos años, pudiendo ser reelecta. En aquellos casos que por cualesquiera circunstancia la persona que ocupa la
+secretaría no asistiera a una sesión debidamente convocada, se nombrará de entre los asistentes a un(a) secretario(a) a. í. que se encargará de levantar el acta.

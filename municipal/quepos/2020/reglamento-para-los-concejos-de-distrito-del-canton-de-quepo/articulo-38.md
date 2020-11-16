@@ -1,0 +1,1 @@
+Artículo 38.—La calificación no constituye ningún compromiso u obligación para la Municipalidad de Quepos, toda vez que se requiere el cumplimiento de todos los requisitos establecidos por la Ley N° 7755.

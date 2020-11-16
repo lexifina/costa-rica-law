@@ -1,0 +1,3 @@
+CAPÍTULO III
+Participación ciudadana
+Artículo 7º—La Municipalidad planeará y ejecutará sus obras o servicios púbicos en cada distrito, procurando atender fundamentalmente las prioridades fijadas por el concejo de distrito, el cual a su vez para definirlas debe procurar la más amplia participación ciudadana y de las fuerzas organizadas de su jurisdicción. Dichas prioridades deberán incorporarse en los instrumentos de planificación municipal, según su ejecución corresponda al largo o mediano plazo; las prioridades ejecutables en el transcurso de un año, se incluirán en el Plan Anual Operativo de la Municipalidad.

@@ -1,0 +1,1 @@
+Artículo 39.—El concejo de distrito tendrá la libertad para gestionar recursos financieros, técnicos, tecnológicos, necesarios para el desarrollo y ejecución de los proyectos de los distritos; esta gestión podrá darse en los ámbitos público y/o privado, con recursos nacionales y/o internacionales.

@@ -1,0 +1,1 @@
+Artículo 21.—Todas las sesiones del concejo de distrito serán públicas, pudiendo participar en ellas los (as) vecinos (as), en calidad dé representantes de organizaciones comunales o en su calidad particular. Su participación será regulada por la Presidencia del concejo de distrito.

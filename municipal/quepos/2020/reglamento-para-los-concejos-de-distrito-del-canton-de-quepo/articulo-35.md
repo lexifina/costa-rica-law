@@ -1,0 +1,1 @@
+Artículo 35.—El concejo de distrito conocerá el perfil del proyecto presentado por la organización y emitirá un criterio sobre la viabilidad del mismo, caso que para estos fines requiera de asesoría, la solicitará a la alcaldía municipal, quien asignará a la persona idónea para tales fines.

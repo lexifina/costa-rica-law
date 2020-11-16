@@ -1,0 +1,1 @@
+Artículo 15.—Los acuerdos y resoluciones del concejo de distrito serán ejecutados por su presidencia o a quién este órgano designe, sin perjuicio del nombramiento de funcionarios ejecutivos, si las circunstancias así lo llegaran a permitir. Solamente podrán quedar definitivamente aprobados los acuerdos, cuando así expresamente lo aprueben al menos 4 de sus miembros.
