@@ -14,3 +14,4 @@ Reglamento sobre procesos de titularización
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-10-03 | la propia norma |
+| 2 | 2020-11-16 | Reglamento 1620 (2020-11-16) |
