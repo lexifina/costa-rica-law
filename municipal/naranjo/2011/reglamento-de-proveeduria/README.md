@@ -15,3 +15,4 @@ Reglamento de Proveeduría
 | --- | --- | --- |
 | 1 | 2011-04-29 | la propia norma |
 | 2 | 2012-04-24 | Reglamento municipal 17 (2012-04-24) |
+| 3 | 2020-11-16 | Reglamento municipal 46 (2020-11-16) |
