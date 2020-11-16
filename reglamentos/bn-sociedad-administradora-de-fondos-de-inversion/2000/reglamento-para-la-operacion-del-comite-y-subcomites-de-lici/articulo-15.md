@@ -1,1 +1,0 @@
-Artículo 15.—Fiscalización. La Fiscalización de cumplimiento de este reglamento estará a cargo de la Auditoría Interna de BN Fondos. Después de firmadas las actas el Comité de Licitaciones las colocará en la intranet, donde la Auditoría Interna de la sociedad podrá revisarlas.

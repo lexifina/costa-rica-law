@@ -1,1 +1,0 @@
-Artículo 7°—De las Ausencias. Las ausencias del Presidente serán suplidas por el funcionario de igual o mayor jerarquía de entre los miembros del Comité. En caso de existir dos o más miembros, que por su jerarquía pudieran sustituir al presidente en sus ausencias, el puesto recaerá en el funcionario de mayor antigüedad en el servicio a BN Fondos, que sea integrante del comité.

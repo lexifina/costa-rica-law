@@ -1,1 +1,0 @@
-Artículo 13.—Acuerdos del Comité. Los acuerdos del Comité serán tomados por mayoría absoluta de los miembros presentes en cada sesión. Dichos acuerdos tienen recurso de reposición. Sin embargo, tratándose de actos de adjudicación, dichos acuerdos tendrán los recursos que al efecto señale la Ley de Contratación Administrativa y su Reglamento.
