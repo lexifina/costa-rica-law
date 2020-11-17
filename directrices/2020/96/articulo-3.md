@@ -1,0 +1,1 @@
+Artículo 3º—El Director o Jefe de las Unidades de Planificación de las instituciones del Sector Infraestructura y Transporte, deberán asistir de forma necesaria a las convocatorias realizadas por la Secretaría del Planificación Sectorial, para coordinación, inducción, verificación o cualquier otro tema relacionado con el seguimiento y verificación de las metas del PNDIP.

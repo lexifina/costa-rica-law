@@ -1,0 +1,1 @@
+Artículo 4º—Salvo caso fortuito o de fuerza mayor, así definido por el Director de cada UPI, podrán asignar la asistencia a otro (a) funcionario (a), con poder de decisión, dicha designación deberá informarse previamente a la Secretaría de Planificación Sectorial por oficio o vía correo electrónico.

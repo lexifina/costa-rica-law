@@ -1,0 +1,1 @@
+Artículo 6º—La información de seguimiento de las metas del PNDIP por parte de las Entidades del Sector, deberá contar con la aprobación del respectivo Jerarca Institucional y será avalado por el Rector, una vez que cuente con el Visto Bueno por parte del Director (a) de la Secretaría de Planificación Sectorial.
