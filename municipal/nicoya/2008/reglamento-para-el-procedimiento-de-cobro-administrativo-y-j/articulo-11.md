@@ -1,1 +1,0 @@
-Artículo 11.—Las gestiones de cobro administrativo se harán por dos trimestres, previas notificaciones a los sujetos pasivos de las deudas. Agotadas las gestiones administrativas en la recuperación de las cuentas morosas, la oficina de cobros entregará a los abogados, para el proceso de cobro judicial, la documentación necesaria para que inicien los trámites judiciales.

@@ -1,1 +1,0 @@
-Artículo 7º—Sujeto activo y pasivo en el cobro de tributos. La municipalidad es el sujeto activo en el cobro de los tributos, mientras que el o los contribuyentes serán el sujeto pasivo de los mismos.
