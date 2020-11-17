@@ -1,1 +1,2 @@
-Artículo 5º—El monto de caja chica será de hasta de un millón de colones exactos, y aumentará automáticamente de forma semestral en los meses de junio y diciembre de cada año, de conformidad con los índices de inflación publicados por el Ministerio de Economía, Industria y Comercio. Este aumento automático surtirá efectos en los meses de julio y enero, respectivamente.
+Artículo 5º—El monto de caja chica será de hasta diez millones de colones exactos y aumentará automáticamente de forma anual, de conformidad con los índices de inflación publicados por el Ministerio de Economía, Industria y Comercio. Este aumento automático surtirá efectos en el mes de enero.
+(Así reformado mediante sesión N° 41 del 17 de noviembre de 2020)

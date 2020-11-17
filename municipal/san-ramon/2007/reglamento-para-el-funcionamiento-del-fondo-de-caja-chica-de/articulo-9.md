@@ -2,4 +2,7 @@ Artículo 9º—La compra de bienes y/o servicios se tramitará por el fondo de 
 a) Si en la bodega municipal no hay existencia del bien que se solicita y cuya naturaleza no obedezca a la existencia normal.
 b) Si ninguna dependencia o funcionario de la Municipalidad, según sus funciones, está en la posibilidad de prestar el servicio de que se trate.
 c) Si el bien o servicio son tan indispensables y de verdadera urgencia que se justifique su pago fuera de los trámites ordinarios que establece la Ley y el Reglamento de Contratación Administrativa.
-d) Si son gastos de la partida de servicios no personales, o de la partida de materiales y suministros, siempre que exista contenido económico y presupuestario con cargo a estas partidas. Ningún pago autorizado con el fondo de Caja Chica, podrá exceder del diez por ciento (10%) del monto global vigente.
+d) Si son gastos de la partida de servicios no personales, o de la partida de materiales y suministros, siempre que exista contenido económico y presupuestario con cargo a estas partidas.
+(Así reformado el inciso anterior mediante sesión N° 41 del 17 de noviembre de 2020)
+e) Ningún pago autorizado con el fondo de Caja Chica, podrá exceder del cinco por ciento (5%) del monto global vigente.
+(Así adicionado el inciso anterior mediante sesión N° 41 del 17 de noviembre de 2020)
