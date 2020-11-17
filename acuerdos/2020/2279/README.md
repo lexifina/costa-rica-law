@@ -14,3 +14,4 @@ Delega funciones en la Defensora Adjunta de los Habitantes
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-03-13 | la propia norma |
+| 2 | 2020-11-17 | Acuerdo 2300 (2020-11-17) |
