@@ -1,0 +1,1 @@
+Artículo 25 - Inspección final de obra: Una realizada la solicitud de inspección final de obra se realizará una fiscalización de las obras constructivas y de la licencia municipal de Construcción autorizada, con el fin de constatar y verificar que la obra se haya ejecutado de acuerdo con la licencia constructiva.

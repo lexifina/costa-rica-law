@@ -1,0 +1,1 @@
+Artículo 10 - Inspección de obras civiles. La inspección, seguimiento y fiscalización de todas las obras civiles que se desarrollen en el cantón de Santa Cruz estará a cargo de los inspectores municipales del Departamento de Inspecciones y Policía Municipal, quienes aplicaran las sanciones correspondientes en la ley.

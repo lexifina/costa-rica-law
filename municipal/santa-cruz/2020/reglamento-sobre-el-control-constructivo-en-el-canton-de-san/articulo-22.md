@@ -1,0 +1,1 @@
+Artículo 22 - Profesional Responsable de la Obra. En el caso de construcciones que no se ajusten a la licencia de construcción, el Departamento de Ingeniería y Construcciones o Dirección de Desarrollo Urbano y Rural reportarán al profesional responsable de la obra ante el Colegio Federado de Ingenieros y Arquitectos de Costa Rica por no haber velado por su cumplimiento.

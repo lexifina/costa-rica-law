@@ -1,0 +1,1 @@
+Artículo 4 - Aplicación. Las disposiciones de este reglamento son de aplicación obligatoria para todas las construcciones que se realicen dentro del cantón de Santa Cruz y su ejecución estará a cargo del Departamento de Ingeniería y Construcciones, con los criterios vinculantes del Departamento de Inspecciones y Coordinación Tributaria.

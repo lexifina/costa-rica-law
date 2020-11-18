@@ -1,0 +1,2 @@
+Artículo 18 - Ejecución de la demolición. La Municipalidad ejecutará la demolición ordenada por la Alcaldía Municipal, una vez firme la resolución, cuando el propietario del inmueble no lo haga.
+La labor la gestionará y se coordinará por Departamento de Inspecciones, a través de la Dirección de Desarrollo Urbano y Rural por medio de recurso humano y maquinaria municipal, o bien, cuando sea necesario, la Administración contratará directamente para ello y cobrara al propietario del inmueble los rubros correspondientes.

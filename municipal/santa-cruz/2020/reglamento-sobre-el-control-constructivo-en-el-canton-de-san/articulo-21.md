@@ -1,0 +1,1 @@
+Artículo 21 - Desobediencia y violación de sellos. Cuando se constate la desobediencia de la orden emitida por parte de la Municipalidad o la violación a los sellos colocados en la obra, con base en las disposiciones del Código Penal, el Departamento de Asesoría Jurídica Municipal procederá a realizar la denuncia formal ante la autoridad judicial competente.

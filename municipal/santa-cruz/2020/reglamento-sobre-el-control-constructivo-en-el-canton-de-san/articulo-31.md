@@ -1,0 +1,1 @@
+Artículo 31 - Discrepancia: En caso de existir discrepancia de criterio técnico entre el Departamento de Ingeniería y Construcciones y el Departamento de Inspecciones, privara lo determinado por la Oficina de Valoraciones al ser un tema de fiscalización, seguimiento y proceso administrativo del Departamento de Inspecciones, no de autorización de licencia municipal.
