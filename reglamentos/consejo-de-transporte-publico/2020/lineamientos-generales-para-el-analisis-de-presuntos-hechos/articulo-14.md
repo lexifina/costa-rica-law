@@ -1,0 +1,1 @@
+Artículo 14.—Regulación Interna. Las Auditorías podrán emitir regulaciones internas que complementen lo dispuesto en los presentes lineamientos respecto del análisis de presuntos hechos irregulares, así como incluir disposiciones en materia de investigación en su Reglamento de Organización y Funcionamiento.
