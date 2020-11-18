@@ -1,0 +1,1 @@
+Artículo 29.—Los sectores de organizaciones juveniles, de colegios y grupos religiosos deberán presentar por cada persona joven postulante, una carta donde se explique los motivos de participación, así como posibles áreas de trabajo a desarrollar.

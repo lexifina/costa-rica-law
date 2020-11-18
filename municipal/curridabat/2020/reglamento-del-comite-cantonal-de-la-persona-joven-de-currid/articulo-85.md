@@ -1,0 +1,1 @@
+Artículo 85.—Las personas que formarán parte del Comité Cantonal de Deporte y Recreación serán electos por mayoría simple de votos y para las asambleas de elección podrán participar únicamente personas adolescentes mayores de 15 años y menores de 18 años residentes en el cantón de Curridabat.

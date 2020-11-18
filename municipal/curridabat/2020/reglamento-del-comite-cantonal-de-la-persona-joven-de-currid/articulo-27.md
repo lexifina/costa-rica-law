@@ -1,0 +1,2 @@
+CAPÍTULO II: DE LA ELECCIÓN DE SUS INTEGRANTES
+Artículo 27.—Es facultad de la Municipalidad, delegado en la oficina de Niñez, Adolescencia y Juventud, definir y realizar las acciones para convocar a los distintos sectores juveniles del cantón con el objeto de integrar el Comité. Cada sector nombrara a su o sus representantes conforme a lo establecido en el artículo 24 de la Ley General de la Persona Joven N° 8261 y sus reformas.

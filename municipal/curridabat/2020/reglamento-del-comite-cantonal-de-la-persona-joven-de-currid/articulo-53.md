@@ -1,0 +1,1 @@
+Artículo 53.—Las sesiones del CCPJC serán siempre públicas y se deberá publicar por redes sociales el calendario de reuniones para que las personas jóvenes puedan asistir, con al menos 10 días de antelación.

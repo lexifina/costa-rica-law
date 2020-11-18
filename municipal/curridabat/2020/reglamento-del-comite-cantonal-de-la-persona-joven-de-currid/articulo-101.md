@@ -1,0 +1,1 @@
+Artículo 101.—El Hangar como centro municipal de juventudes podrá ser utilizado por las diferentes organizaciones juveniles presentes en el cantón para impartir cursos formativos, siempre que estén destinados a personas jóvenes, para ello la Oficina de Niñez, Adolescencia y Juventud desarrollará el mecanismo para su solicitud.

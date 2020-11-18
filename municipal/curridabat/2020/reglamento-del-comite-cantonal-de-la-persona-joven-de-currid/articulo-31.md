@@ -1,0 +1,1 @@
+Artículo 31.—En caso de no presentarse ningún delegado de algunos de los sectores, la Oficina de Niñez, Adolescencia y Juventud deberá hacer una segunda convocatoria diez días hábiles después de la primera asamblea, pero solo para la elección del sector o sectores no representados en la primera convocatoria. Una vez efectuada esta, el CCPJC quedará constituido legalmente.

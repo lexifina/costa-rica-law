@@ -1,0 +1,1 @@
+Artículo 36.—Terminada cada asamblea de sectores de colegios, grupos religiosos y organizaciones juveniles, la Oficina Municipal de Niñez, Adolescencia y Juventud deberá levantar un acta donde se establezca el proceso de elección, postulantes, lista de asistentes, entre otra información de interés.

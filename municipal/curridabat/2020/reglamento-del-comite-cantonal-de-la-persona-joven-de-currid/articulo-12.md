@@ -1,0 +1,1 @@
+Artículo 12.—Para efectos del presente Reglamento serán deberes de la Municipalidad de Curridabat con las personas jóvenes atender los temas de salud, trabajo, educación, recreación y otros según lo establecido en la Política Pública de la Persona Joven.

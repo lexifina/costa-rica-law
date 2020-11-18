@@ -1,0 +1,1 @@
+Artículo 71.—El Comité Cantonal podrá crear comisiones especiales, con el fin de coordinar y dar seguimiento al o los proyecto (s) específico (s) a desarrollar. La Comisión funcionará durante el plazo necesario para desarrollar el proyecto y entregar el informe respectivo. Las Comisiones se integrarán con un mínimo de tres personas jóvenes de la comunidad.

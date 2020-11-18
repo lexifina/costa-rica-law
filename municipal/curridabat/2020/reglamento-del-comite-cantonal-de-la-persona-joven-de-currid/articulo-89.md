@@ -1,0 +1,1 @@
+Artículo 89.—Si por motivos de fuerza mayor el Comité Cantonal de la Persona Joven no pudiera realizar las asambleas respectivas o no logren encontrar algún candidato o candidata, será el Concejo Municipal quien designará a las personas o persona faltante de conformidad con lo establecido en la Ley N°9633.

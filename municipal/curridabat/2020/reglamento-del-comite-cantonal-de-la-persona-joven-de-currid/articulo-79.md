@@ -1,0 +1,1 @@
+Artículo 79.—La Oficina Municipal de Niñez, Adolescencia y Juventud es la promotora de la participación joven en el cantón, ofreciendo apoyo técnico, atención, orientación, coordinación y formación al Comité de la Persona Joven y jóvenes del cantón.

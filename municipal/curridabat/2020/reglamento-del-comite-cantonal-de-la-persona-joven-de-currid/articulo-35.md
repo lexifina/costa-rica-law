@@ -1,0 +1,1 @@
+Artículo 35.—Para la elección de la persona representante de organizaciones deportivas, será la Oficina de Niñez, Adolescencia y Juventud quien mediante nota formal solicitará a la Junta Directiva del Comité Cantonal de Deportes y Recreación el nombramiento correspondiente.

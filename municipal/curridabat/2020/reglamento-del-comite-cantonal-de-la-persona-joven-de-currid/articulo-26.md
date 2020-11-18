@@ -1,0 +1,1 @@
+Artículo 26.—El Concejo Municipal de Curridabat deberá nombrar a una persona representante municipal para que integre el Comité Cantonal de la Persona Joven de Curridabat, será el Concejo Municipal quien definirá la forma y proceso de elección de esta persona joven.

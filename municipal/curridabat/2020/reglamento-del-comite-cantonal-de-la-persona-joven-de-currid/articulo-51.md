@@ -1,0 +1,1 @@
+Artículo 51.—En caso de ausencia o de enfermedad y en general, cuando concurra alguna causa justa, la presidencia y la secretaria del CCPJC serán sustituidos por un presidente ad-hoc y un secretario suplente, respectivamente.

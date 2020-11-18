@@ -1,0 +1,1 @@
+Artículo 48.—Para las reuniones del CCPJC solo es necesario el quórum funcional que permite sesionar con un mínimo de 4 miembros, es decir, con una mayoría absoluta, sea la mitad más uno de los integrantes.

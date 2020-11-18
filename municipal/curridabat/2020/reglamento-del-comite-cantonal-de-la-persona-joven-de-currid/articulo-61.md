@@ -1,0 +1,1 @@
+Artículo 61.—Cualquier persona podrá solicitar copia de los acuerdos que se tomen en el seno del CCPJC, para ello deberá hacer la solicitud al Concejo Municipal para su autorización y posterior certificación.

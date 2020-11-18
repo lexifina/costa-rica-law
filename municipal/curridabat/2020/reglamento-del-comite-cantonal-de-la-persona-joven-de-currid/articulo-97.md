@@ -1,0 +1,1 @@
+Artículo 97.—El voto será público, directo y universal. Se emitirá puesto por puesto. El moderador deberá preservar la seguridad y transparencia del proceso. Para ejercer el derecho al voto, los postulantes deberán encontrase inscritos. En caso de que los postulantes abandonen la reunión automáticamente el voto no será contabilizado.

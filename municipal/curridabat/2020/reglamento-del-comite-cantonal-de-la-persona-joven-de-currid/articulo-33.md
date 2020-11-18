@@ -1,0 +1,1 @@
+Artículo 33.—Se procurará conformar el Comité Cantonal de la Persona Joven de Curridabat bajo un principio de igualdad de condiciones y tomando en cuenta la paridad de género en los puestos de elección.

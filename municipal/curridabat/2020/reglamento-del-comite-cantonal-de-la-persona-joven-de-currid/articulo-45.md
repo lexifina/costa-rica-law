@@ -1,0 +1,1 @@
+Artículo 45.—El CCPJC formará parte de la Red Nacional Consultiva de la Persona Joven mediante el nombramiento de un o una representante ante la Asamblea de dicha Red que deberá vivir en el cantón de Curridabat. Dicho representante deberá brindar un informe por cada asamblea a la que participe donde detalle las labores realizadas.

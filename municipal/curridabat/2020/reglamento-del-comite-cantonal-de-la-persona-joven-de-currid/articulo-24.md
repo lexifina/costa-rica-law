@@ -1,0 +1,1 @@
+Artículo 24.—En caso de presentar documentación incompleta o requisitos omitidos, se deberá subsanar en un plazo no mayor a 5 días hábiles luego de notificado por la Oficina de Niñez, Adolescencia y Juventud mediante correo electrónico a las personas que figuran como representantes de la organización interesada en inscribirse.

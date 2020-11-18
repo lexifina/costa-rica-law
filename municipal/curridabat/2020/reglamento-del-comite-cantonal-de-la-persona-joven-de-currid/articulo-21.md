@@ -1,0 +1,1 @@
+Artículo 21.—La oficina de Niñez, Adolescencia y Juventud, convocará a la elección de los representantes de los sectores religiosos y de organizaciones juveniles cantonales, debiendo establecer previamente un registro de dichas organizaciones que les permita participar en la elección, tal como lo establece la Ley de la Persona Joven en su art. 24, incisos c) y e).

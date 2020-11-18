@@ -1,0 +1,1 @@
+Artículo 88.—Una vez elegidos los integrantes del Comité Cantonal de Deporte y Recreación, se deberá comunicar al Concejo Municipal para su respectiva juramentación dentro del mes posterior al recibo de la respectiva solicitud efectuada por el CCPJC. Sus miembros fungirán en el puesto por el periodo que la Ley de Persona Joven establece, y no devengarán dietas o remuneración.

@@ -1,0 +1,1 @@
+Artículo 39.—Los postulantes a la presidencia y secretaria del CCPJC deben presentar una carta de postulación, junto con su curricular, a los miembros electos del comité y a la Oficina de Niñez, Adolescencia y Juventud, una semana antes de la primera sesión del comité.

@@ -1,0 +1,1 @@
+Artículo 15.—El Concejo Municipal y la Alcaldía tomaran las medidas del caso a fin de asignar recursos económicos destinados al fomento de la participación joven; así como a la difusión y promoción de programas dirigidos a esta población.

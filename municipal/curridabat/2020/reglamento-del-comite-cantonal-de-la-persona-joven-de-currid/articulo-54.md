@@ -1,0 +1,1 @@
+Artículo 54.—Las personas visitantes jóvenes que asistan a la sesión podrán tener voz, y le corresponderá a la Presidencia definir durante la sesión el momento de las intervenciones, así como la regulación de la participación de los diversos interesados.

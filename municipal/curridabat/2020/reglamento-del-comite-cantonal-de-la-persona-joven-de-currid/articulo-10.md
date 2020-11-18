@@ -1,0 +1,1 @@
+Artículo 10.—La Municipalidad de Curridabat y el CCPJC son las instancias inmediatas de los procesos de participación joven en los asuntos públicos y así mismo el municipio es ámbito territorial para el ejercicio de los derechos reconocidos en la legislación de régimen local del cantón de Curridabat.

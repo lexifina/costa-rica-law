@@ -1,0 +1,1 @@
+Artículo 43.—Para los fines de su labor el CCPJC coordinará con la Oficina de Niñez, Adolescencia y Juventud lo concerniente a proyectos, asesoría y orientación. Así mismo podrá recibir asesoría y capacitación de entes públicos y privados del cantón y fuera de este.

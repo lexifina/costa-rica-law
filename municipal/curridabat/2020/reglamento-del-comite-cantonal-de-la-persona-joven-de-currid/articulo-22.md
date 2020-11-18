@@ -1,0 +1,1 @@
+Artículo 22.—Los representantes de cada sector (organizaciones juveniles y religiosos) deben completar debidamente el formulario de inscripción que para tal efecto estará disponible en la Oficina de Niñez, Adolescencia y Juventud, en caso contrario no podrán postularse para el cargo.

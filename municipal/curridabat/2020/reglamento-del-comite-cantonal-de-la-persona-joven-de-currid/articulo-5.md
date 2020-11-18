@@ -1,0 +1,1 @@
+Artículo 5º—A efectos de la aplicación de la presente normativa, la Municipalidad de Curridabat crea dentro de la estructura de la Dirección de Responsabilidad Social, la Oficina Municipal de Niñez, Adolescencia y Juventud.
