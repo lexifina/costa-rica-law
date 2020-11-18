@@ -17,3 +17,4 @@ Reglamento para la Operación y Administración del Acueducto Municipal
 | 2 | 2004-07-26 | Reglamento municipal 118 (2004-07-26) |
 | 3 | 2010-03-31 | Reglamento municipal 55 (2010-03-31) |
 | 4 | 2013-09-23 | Reglamento municipal 178 (2013-09-23) |
+| 5 | 2020-11-18 | Reglamento municipal 6 (2020-11-18) |
