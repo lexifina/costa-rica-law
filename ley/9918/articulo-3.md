@@ -1,0 +1,5 @@
+ARTÍCULO 3- Se adiciona un transitorio al artículo 44 ter de la Ley 7472, Ley de Promoción de la Competencia y Defensa Efectiva del Consumidor, de 20 de diciembre de 1994. El texto es el siguiente:
+TRANSITORIO- Las condiciones sobre la forma de pago establecidas en los contratos de todas aquellas operaciones de crédito vigentes antes de la entrada en vigencia de la Ley 9859, Adición de los Artículos 36 bis, 36 ter, 36 quater, 44 ter y de los Incisos g) y h) al Artículo 53, y Reforma de los Artículos 44 bis y 63 de la Ley 7472, Promoción de la Competencia y Defensa Efectiva del Consumidor, de 20 de diciembre de 1994, deberán seguir siendo deducidas de los salarios y las pensiones de los trabajadores y jubilados, según corresponda, de acuerdo con los términos convenidos y autorizados por los deudores y las entidades oferentes de crédito. Dicha condición estará vigente hasta la cancelación de la operación crediticia.
+Rige a partir de su publicación .
+Dado en el Centro de Convenciones de Costa Rica, Cantón de Belén, Provincia de Heredia, a los once días del mes de noviembre del año dos mil veinte.
+EJECÚTESE Y PUBLIQUESE.
