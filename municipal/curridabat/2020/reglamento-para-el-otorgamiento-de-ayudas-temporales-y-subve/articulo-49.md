@@ -1,0 +1,1 @@
+Artículo 49°. - Causales para excluir a una empresa del proyecto FRPEL.- Las empresas adscritas al proyecto FRPEL, podrán ser excluidas del mismo, en caso de que incumplan las condiciones establecidas en el artículo 32° y en el acuerdo."

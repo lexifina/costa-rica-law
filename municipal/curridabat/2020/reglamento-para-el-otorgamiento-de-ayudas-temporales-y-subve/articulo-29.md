@@ -1,0 +1,2 @@
+Registro, control, seguimiento y liquidación de la subvención
+Artículo 29.- Sobre el Registro de la subvención. Una vez que la Asesoría Legal cuente con convenio firmado, deberá trasladar el expediente a la Dirección Financiera y Departamento de Presupuesto, con el fin de que se proceda con el registro respectivo de conformidad con los procesos que para dicho efecto establezca la Contraloría General de la República y que se encuentren vigentes para ese momento.

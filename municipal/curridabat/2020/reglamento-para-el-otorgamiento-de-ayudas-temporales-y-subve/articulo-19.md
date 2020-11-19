@@ -1,0 +1,1 @@
+Artículo 19.- Fundamentación jurídica para el otorgamiento de beneficios patrimoniales. De conformidad con lo dispuesto en el artículo 71 párrafo quinto del Código Municipal, la Municipalidad podrá subvencionar centros de educación pública, así como organizaciones de beneficencia o servicio social que presten servicios en el Cantón de Curridabat

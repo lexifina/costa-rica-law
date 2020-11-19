@@ -1,0 +1,4 @@
+Sobre el estudio, aprobación y transferencia de la subvención
+Artículo 25.- Sobre la conformación de un expediente. Una vez que se cuente con la información y documentación completa, se procederá a levantar un expediente administrativo, que se llevará en formato físico y electrónico, y en el que se asegure la confiabilidad, integridad, inalterabilidad, y publicidad del contenido que se genere por la asignación, aprobación, ejecución, control y rendición de cuentas del beneficio patrimonial otorgado al sujeto privado o centro educativo.
+Las oficinas a cargo de cada uno de los trámites serán los custodios de la documentación, mientras los realizan. El traslado del expediente a otra oficina será consignado en un oficio o nota que deberá incluirse en original en el mismo expediente.
+Dicho expediente deberá mantenerse actualizado y disponible para la consulta de cualquier sujeto interesado.

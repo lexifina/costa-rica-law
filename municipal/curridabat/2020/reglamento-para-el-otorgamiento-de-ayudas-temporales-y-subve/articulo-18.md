@@ -1,0 +1,2 @@
+Subvenciones (Administración de fondos públicos)
+Artículo 18.- Alcance. Las normas del presente apartado regulan los elementos básicos para la formulación, aprobación, rendición de cuentas y control de los presupuestos de los beneficios patrimoniales otorgados por medio de transferencia presupuestaria gratuita y sin contraprestación a sujetos privados o centros de educación pública, con el propósito de fortalecer la fiscalización integral de la Hacienda Municipal, brindado una mayor seguridad jurídica y transparencia en el manejo de los fondos públicos transferidos.

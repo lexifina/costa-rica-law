@@ -1,0 +1,1 @@
+Artículo 20.-Sobre los beneficiarios de subvenciones. Podrán ser beneficiadas con una subvención (fondos públicos), aquellos centros educativos públicos del cantón y las organizaciones de beneficencia o servicio social que se ajusten
