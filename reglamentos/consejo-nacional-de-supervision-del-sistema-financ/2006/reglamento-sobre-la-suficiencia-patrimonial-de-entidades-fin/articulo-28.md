@@ -20,9 +20,11 @@ Código 1/ | Subcuenta
 241.12 | Venta a futuro de moneda extranjera (operación diferente de cobertura)
 1/ Según el Plan de Cuentas para Entidades, Grupos y Conglomerados Financieros.
 (Así reformado el cuadro anterior en sesión N° 1148 del 9 de febrero de 2015)
-c) Las entidades que no cumplan con las condiciones para aplicar la compensación de saldos a que se refiere el artículo 29 del acuerdo Nº SUGEF 9-08, deberán calcular el requerimiento de capital conforme al siguiente procedimiento:
+c) Las entidades que no cumplan con las condiciones para aplicar la compensación de saldos a que se refieren los Lineamientos Generales del Acuerdo SUGEF 9-20, deberán calcular el requerimiento de capital conforme al siguiente procedimiento:
+(Así reformado el inciso anterior en sesión N° 1621 del 19 de noviembre de 2020)
 i. Para un mismo cliente o contraparte deberá sumarse el saldo de los contratos con valor positivo, que se registran en las sub cuentas indicadas en el inciso b) anterior.
-d) Las entidades que cumplan con las condiciones para aplicar la compensación de saldos a que se refiere el artículo 29 del acuerdo Nº SUGEF 9-08, deberán calcular el requerimiento de capital conforme al siguiente procedimiento:
+d) Las entidades que cumplan con las condiciones para aplicar la compensación de saldos a que se refieren los Lineamientos Generales del Acuerdo SUGEF 9-20, deberán calcular el requerimiento de capital conforme al siguiente procedimiento:
+(Así reformado el inciso anterior en sesión N° 1621 del 19 de noviembre de 2020)
 i. Para un mismo cliente o contraparte deberá sumarse el saldo de los contratos con valor positivo, que se registran en las cuentas indicadas en el inciso b) anterior.
 ii. Para el mismo cliente o contraparte deberá sumarse el saldo de los contratos con valor negativo, que se registran en las cuentas indicadas en el inciso b) anterior.
 iii. La exposición neta con cada cliente o contraparte, deberá determinarse como la diferencia entre el importe obtenido en el numeral i) menos el importe obtenido en el numeral ii) anteriores.
