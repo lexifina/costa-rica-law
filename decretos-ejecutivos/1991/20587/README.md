@@ -13,3 +13,4 @@ Crea Distrito Sétimo Purral Cantón Goicoechea San José
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1991-08-06 | la propia norma |
+| 2 | 2020-11-19 | Acuerdo 14 (2020-11-19) |

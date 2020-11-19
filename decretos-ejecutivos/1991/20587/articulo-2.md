@@ -1,45 +1,15 @@
-ARTÖCULO 2§.-El distrito limita al norte con el distrito de
-Ip¡s, al este con el
-distrito Rancho Redondo, al sur con el distrito Mata de Pl tano
-y al oeste con los
-distritos Guadalupe e Ip¡s, la descripci¢n de l¡mite, seg£n el
-mapa b sico de Costa
-Rica, escala 1: 50,000, hojas topogr ficas Abr 3345-I e Istar£
-3345-IV, es la siguiente:
-Se inicia en la ruta 218, intersecci¢n con la calle
-Purral en coordenadas
-planas 215675 N- 532000 E, se sigue por esta carretera con
-rumbo noroeste hasta
-la intersecci¢n con la calle Mozotal en coordenadas 21650
-N - 532300 E, se
-contin£a por esa calle hasta coordenadas 216150 N - 532600
-E, de este punto al
-al sureste tomando como lindero la parte oeste de
-Residencial Monte Sol a la
-quebrada Mozotal, coordenadas 215950 N - 5332850 E, se
-contin£a por esta quebrada
-aguas arriba hasta coordenadas 21648580 B - 535300 E, de
-este punto al
-norte, luego al noroeste hasta llegar a la ruta 6 que
-conduce de Ip¡s a Vista de
-Mar, en coordenadas 216500 N - 535200 E, se sigue al este
-por esta ruta unos
-250 metros, se deja esta ruta y se contin£a siempre al este
-hasta coordenadas
-216600 N - 535700 E, de este punto al norte para llegar
-nuevamente a la ruta
-6, coordenadas 216800 N - 5357750 E, continuando por esta
-ruta con direcci¢n
-este hasta la intersecci¢n con calle la Isla, por esta calle
-se sigue hasta el puente
-sobre el r¡o Navarro, coordenadas 216450 N - 537100 E,
-continu ndose por el
-r¡o Navarro, aguas abajo hasta su uni¢n con el r¡o Purral,
-por este siempre
-aguas abajo, hasta la confluencia con la quebrada Rebalse,
-de aqu¡ unos 150
-metros, aguas arriba hasta su paso en la calle Purral,
-coordenadas 215650 N -
-532300 E, por esta calle con rumbo noroeste a la ruta
-secundaria N§ 218, punta
-de partida de la presente descripci¢n.
+Artículo 2.- Este distrito tendrá la descripción de límites que abajo se detalla; los cuales fueron determinados con fundamento en:
+a) Decreto Ejecutivo N° 40962-MJP del 24 de enero de 2018 publicado en el Diario Oficial La Gaceta N° 66 del 17 de abril de 2018 sobre “Actualización del Sistema Geodésico de Referencia Horizontal Oficial para Costa Rica”, que establece a CR-SIRGAS como el sistema de referencia horizontal oficial para la República de Costa Rica, y su proyección cartográfica asociada CRTM05, para la representación cartográfica del territorio nacional continental, constituyendo el único sistema oficial de coordenadas para la República de Costa Rica, al cual, se deben referenciar todos los levantamientos y actividades cartográficos y geodésicos que desarrollen en el territorio nacional toda dependencia pública, persona o entidad privada, nacional o extranjera, que emprendan o contraten trabajos geodésicos, topográficos, cartográficos y catastrales.
+b) Información geográfica fundamental sobre la División Territorial Administrativa (DTA) de la República de Costa Rica a la escala 1:5.000, denominada IGF_CR_DTA_5.000, según Directriz N° DIG-001-2017 del 28 de junio de 2017 oficializada vía publicación en el Diario Oficial La Gaceta N° 133 del 13 de julio de 2017.
+c) Cartografía básica oficial a escalas 1:1.000 y 1:5.000 según Aviso N° 01-2011 del 14 de julio de 2011 oficializado vía publicación en el Diario La Gaceta N° 146 del 29 de julio de 2011, y la base cartográfica continua de la República de Costa Rica a escala 1:25.000, denominada CR_IGN_ IGF_BCC_25.000 (edición 2018), conforme a la Directriz N° 001-2018 del 30 de abril de 2018 oficializada vía publicación en el Diario Oficial La Gaceta N°101 del 7 de junio de 2018.
+Con el distrito Ipís, al norte.
+Se inicia en el punto de coordenadas de Latitud Norte: 1101046,35 y Longitud Este: 495649,80, donde la calle Purral entronca con la ruta 218 y que conduce de Guadalupe a Rancho Redondo, siguiendo al noreste sobre línea de centro de esta carretera hasta la entrada de la calle Mozotal, en el punto de coordenadas de Latitud Norte: 1101391,13 y Longitud Este: 495923,20. Por esta calle sobre línea de centro hasta el punto en Latitud Norte: 1101515,86 y Longitud Este: 496274,36, de donde al sur- sureste, y a una distancia aproximada de 167 m se alcanza punto central de calle residencial en las coordenadas Latitud Norte: 1101358,51 y Longitud Este: 496331,07, se continua por línea de centro de calle al oeste por 26 m aproximadamente hasta alcanzar el punto de coordenadas Latitud Norte: 1101343,85 y Longitud Este: 496309,80, de donde en línea recta con dirección sur-sureste se alcanza a los 190 m aproximadamente la línea de centro de cauce de la quebrada Mozotal. Por esta quebrada, aguas arriba siguiendo línea de centro de cauce se ubica el punto con las coordenadas Latitud Norte: 1101777,80 y Longitud Este: 499428,61, de donde en dirección al norte se continua sobre línea con longitud de 182 m aproximadamente que bordea al residencial El Progreso hasta alcanzar un punto en las coordenadas Latitud Norte: 1101956,79 y Longitud Este: 499396,58, luego se continua al norte sobre línea de centro de calle que entronca con la ruta 218 en las coordenadas Latitud Norte: 1102134,68 y Longitud Este: 499359,52. Por la ruta 218, siempre al este, se encuentra la entrada de la calle que comunica al poblado Vista de Mar con los barrios San Francisco y Durazno, donde termina el límite con Ipís.
+Con el distrito Rancho Redondo, al este:
+Del punto donde la calle que viene de los barrios San Francisco y Durazno entronca con la ruta 218, se sigue al sur sobre línea de centro de calle, primero por la ruta 218 y luego por la calle que pasa al costado oeste de la escuela Filomena Blanco de Quirós, para salir a la calle Purral, la que se sigue en dirección al oeste sobre línea de centro, hasta la entrada de una calle que se dirige al sur, en las coordenadas Latitud Norte: 1101836,52 y Longitud Este: 500069,45. De este punto, siguiendo con rumbo sur-sureste y pasando por la calle antes mencionada, se alcanza la línea de centro de cauce del río Purral, donde termina el límite con Rancho Redondo.
+Con el distrito Mata de Plátano, al sur:
+El río Purral, desde el punto en coordenadas Latitud Norte: 1101620,62 y Longitud Este: 500172,19, aguas abajo sobre línea de centro de cauce hasta la confluencia de la quebrada Tanques.
+Con el distrito Guadalupe, al oeste:
+La quebrada Tanques, desde su confluencia con el río Purral siguiendo línea de centro de cauce hasta la calle Purral en el punto de coordenadas Latitud Norte: 1100950,11 y Longitud Este: 495953,95, y por esta calle con rumbo general oeste sobre línea de centro hasta salir a la ruta 218, en el punto de origen de esta descripción.
+[imagen]
+Figura 1. Modificación del límite del distrito 7° Purral con el distrito 5° Ipís del cantón 08 Goicoechea, de la Provincia de San José.
+(Así reformado por el artículo 2° del acuerdo N° 14-2020-MGP del 19 de noviembre del 2020 “Modifica el límite del distrito 7° Purral con el distrito 5° Ipís del cantón 8° Goicoechea, de la Provincia de San José”)
