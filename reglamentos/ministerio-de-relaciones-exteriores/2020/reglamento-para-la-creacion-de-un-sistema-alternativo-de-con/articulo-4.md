@@ -1,0 +1,2 @@
+Artículo 4.- Plazo
+El presente Reglamento se emite al amparo de lo dispuesto por el artículo 2 bis, inciso c) de la Ley de Contratación Administrativa y el artículo 146 del Reglamento a la Ley de Contratación Administrativa, por lo que su vigencia será por el plazo de un año, a partir de la publicación en el Diario Oficial La Gaceta, todo de conformidad con la autorización emitida por la Contraloría General de la República, según oficio No.11786 (DCA-2796) del 31 de julio del 2020.
