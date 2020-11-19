@@ -1,1 +1,0 @@
-Artículo 3º—El presente código guía la conducta de todos los trabajadores del Consejo Nacional de Vialidad, en sus actividades laborales y en las de carácter oficial en ocasión del ejercicio de su función pública, cualquiera sea la denominación del puesto o jerarquía que ostente dentro o fuera del país.
