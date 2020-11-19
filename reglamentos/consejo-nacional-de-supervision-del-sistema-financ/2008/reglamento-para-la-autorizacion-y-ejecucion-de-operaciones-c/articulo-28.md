@@ -1,1 +1,0 @@
-Artículo 28.—Lineamientos sobre contabilidad y revelación. Las operaciones con derivados cambiarios deberán contabilizarse aplicando los criterios de registro y valoración que correspondan según la naturaleza de cada operación y de acuerdo con lo establecido en el “Plan de Cuentas para Entidades, Grupos y Conglomerados Financieros” y normativas emitidas por el CONASSIF.

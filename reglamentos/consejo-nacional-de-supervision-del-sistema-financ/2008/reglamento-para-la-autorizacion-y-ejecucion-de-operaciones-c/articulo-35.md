@@ -1,1 +1,0 @@
-Artículo 35.—Estimación por riesgo de precio de liquidación. Para el cálculo de las estimaciones por riesgo de precio de liquidación con cada cliente o contraparte, el importe obtenido en el inciso e) del artículo 28, acuerdo Nº SUGEF 3-06 debe multiplicarse por el porcentaje de estimación correspondiente a la calificación del deudor, según el acuerdo Nº SUGEF 1-05.

@@ -1,1 +1,0 @@
-Artículo 18.—Actualización de los registros de la SUGEF. En caso de que los documentos indicados en el Anexo de este Reglamento sufran cambios, el documento actualizado deberá enviarse a la SUGEF, en un plazo de diez días hábiles, contado a partir de la fecha del cambio.

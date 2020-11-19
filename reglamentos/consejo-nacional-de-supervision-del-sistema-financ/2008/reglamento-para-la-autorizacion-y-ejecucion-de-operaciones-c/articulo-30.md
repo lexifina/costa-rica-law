@@ -1,1 +1,0 @@
-Artículo 30.—Informe de Auditoría. Los intermediarios autorizados para ofrecer derivados cambiarios deberán enviar a la SUGEF, durante el mes de marzo de cada año, una comunicación con el visto bueno de su Comité de Auditoría y aprobada por su Junta Directiva, en la que hagan constar que el intermediario cumple con los requerimientos señalados en este capítulo.

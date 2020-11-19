@@ -1,1 +1,0 @@
-Artículo 17.—Documentos expedidos en el extranjero. Los documentos expedidos en el extranjero deberán acompañarse de la autenticación consular correspondiente. En el caso de documentos redactados en un idioma diferente al español, deberá adjuntarse una traducción realizada por un traductor oficial.

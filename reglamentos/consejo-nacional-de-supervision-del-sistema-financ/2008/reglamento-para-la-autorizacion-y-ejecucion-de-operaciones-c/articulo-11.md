@@ -1,4 +1,0 @@
-Artículo 11.—Prohibiciones y restricciones. Las operaciones con derivados cambiarios estarán sujetas a las siguientes prohibiciones y restricciones:
-a) Se prohíbe a los intermediarios la realización de operaciones de derivados cambiarios con empresas integrantes de su propio grupo o conglomerado financiero.
-b) En caso de deterioro de la categoría de riesgo de la contraparte por debajo de los umbrales establecidos en este Reglamento, el intermediario no podrá realizar nuevas operaciones con dicha contraparte, salvo que las operaciones de que se trate tengan como fin reducir la exposición de riesgo que representa dicha contraparte, cuya situación la deberá demostrar y documentar el intermediario.
-Los intermediarios no realizarán sus operaciones con derivados cambiarios en sus cajas o ventanillas.

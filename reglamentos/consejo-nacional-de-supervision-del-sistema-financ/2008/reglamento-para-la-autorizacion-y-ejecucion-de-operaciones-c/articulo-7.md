@@ -1,7 +1,0 @@
-Artículo 7º—Contrapartes autorizadas.Las entidades supervisadas por la SUGEF podrán realizar operaciones únicamente con las siguientes contrapartes, en la cobertura de riesgos:
-(Así reformado el párrafo anterior en sesión N° 862 del 25 de junio de 2010)
-a) Intermediarios con calificación pública de riesgo emitida por Standard & Poors, Moody´s o Fitch, o por las agencias calificadoras autorizadas por la SUGEVAL, la cual deberá encontrarse dentro de su periodo de vigencia. La calificación deberá ubicarse en Categoría 4 o de menor riesgo, según la tabla de “Homologación de las calificaciones nacionales e internacionales emitidas por agencias calificadoras y categorización por riesgos de crédito” del acuerdo Nº SUGEF 3-06.
-b) Entidades financieras extranjeras, autorizadas para actuar como intermediarios (dealer) por las autoridades competentes del país en que esté constituida y con calificación internacional de grado de inversión o en Categoría 3 o de menor riesgo, según la tabla de “Equivalencias de las calificaciones pública de las agencias calificadoras de riesgo internacionales” del acuerdo Nº SUGEF 3-06, y
-c) Cámara de Compensación de mercados organizados de países que pertenecen al Comité Técnico de la Organización Internacional de Comisiones de Valores.
-Las entidades supervisadas por la SUGEF deberán garantizar el acceso permanente a una fuente confiable que brinde la calificación de riesgo vigente, tanto de las contrapartes nacionales como extranjeras.
-(Así reformado el párrafo anterior en sesión N° 862 del 25 de junio de 2010)
