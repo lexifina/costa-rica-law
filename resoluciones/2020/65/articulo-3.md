@@ -28,3 +28,9 @@ Profesional de Apoyo 3 (G. de E.) Código 0405102 | Profesional Jefe de Servicio
 Profesional de Apoyo 4 (G. de E.) Código 0501103 | Profesional Jefe de Servicio Civil 3 (G. de E.) Código 0405047
 Gestor Administrativo – INA Código 0501120 | Gerente de Servicio Civil 1 Código 0501048
 Gestor Técnico – INA Código 0501121 | Gerente de Servicio Civil 1 Código 0501048
+Clase Institucional / Especialidad | Código de la Clase | Nivel Salarial | Clase que corresponde ubicar / Especialidad | Código de la Clase | Nivel Salarial
+Profesional de Apoyo 1 (G. de E.) Grupo A - INA / Informática y Computación | 0403099 | 467 | Profesional en Informática 1 (G. de E.) Grupo A / Informática y Computación | 0401061 | 467
+Profesional de Apoyo 1 (G. de E.) Grupo B – INA / Informática y Computación | 0403100 | 529 | Profesional en Informática 1 (G. de E.) Grupo C / Informática y Computación | 0403063 | 529
+Profesional de Apoyo 3 (G. de E.) – INA / Informática y Computación | 0405102 | 619 | Profesional Jefe en Informática 1 (G. de E.) Grupo B / Informática y Computación | 0405067 | 619
+Profesional de Apoyo 4 (G. de E.) – INA / Informática y Computación | 0501103 | 653 | Profesional Jefe en Informática 3 (G. de E.) / Informática y Computación | 0405069 | 653
+(Así adicionado el cuadro anterior mediante resolución N° DG-098-2020 del 19 de noviembre del 2020)
