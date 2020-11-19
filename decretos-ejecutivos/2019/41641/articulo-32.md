@@ -1,0 +1,2 @@
+Artículo 32°.- Asignación presupuestaria. En cumplimiento del artículo 24 del Título IV de la Ley aquí reglamentada, las asignaciones presupuestarias que no corresponden a destinos específicos legales, se realizarán de acuerdo con los criterios establecidos en el artículo 23 de ese mismo Título, aunque dicha asignación no podrá ser inferior al monto establecido en el Presupuesto actualizado 2018, año en que fue aprobada la Ley en mención.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 42745 del 19 de noviembre del 2020)

@@ -1,0 +1,4 @@
+Artículo 30°.- Monitoreo trimestral durante la ejecución del presupuesto. La DGPN y la STAP le remitirán un informe trimestral al Ministro o Ministra de Hacienda sobre la evolución del gasto corriente o total presupuestario, según corresponda, de las entidades del SPNF.
+Para la elaboración y posterior publicación trimestral de los datos de los ingresos, gastos y financiamiento de las entidades y órganos del SPNF, se utilizará la información que las entidades ingresan al SIPP de la CGR.
+Tanto el informe de gasto corriente como el seguimiento trimestral de los datos, serán publicados como máximo 30 días naturales contados a partir de la fecha de entrega de la información trimestral que deben hacer las entidades y órganos del SPNF, en la página web del Ministerio de Hacienda, donde se visualicen los montos presupuestados y ejecutados de cada una de las instituciones.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 42745 del 19 de noviembre del 2020)

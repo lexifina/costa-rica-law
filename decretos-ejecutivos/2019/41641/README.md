@@ -16,3 +16,4 @@ Reglamento al título IV de la ley No. 9635, denominado Responsabilidad Fiscal d
 | 1 | 2019-04-25 | la propia norma |
 | 2 | 2019-07-24 | Decreto Ejecutivo 41891 (2019-07-24) |
 | 3 | 2020-02-26 | Decreto Ejecutivo 42218 (2020-02-26) |
+| 4 | 2020-11-19 | Decreto Ejecutivo 42745 (2020-11-19) |

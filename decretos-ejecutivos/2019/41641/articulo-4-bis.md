@@ -1,3 +1,2 @@
-Artículo 4º bis.—Transferencias de recursos por concepto de impuestos.. Las entidades y órganos del SPNF, con excepción de las entidades que conforman el Presupuesto Nacional de la República, que actúen como agentes recaudadores o retenedores de impuestos que deben transferir al Ministerio de Hacienda, cuando trasladen los recursos al Fondo General del Gobierno, solo deberán registrar los movimientos a nivel contable y no presupuestariamente.
-Mismo tratamiento se le dará cuando dichos recursos recaudados por las entidades sean transferibles a otras entidades diferentes al Ministerio de Hacienda.
+Artículo 4º bis.—(Derogado por el artículo 3° del decreto ejecutivo N° 42745 del 19 de noviembre del 2020)
 (Así adicionado por el artículo 2° del decreto ejecutivo N° 41891 del 24 de julio de 2019)

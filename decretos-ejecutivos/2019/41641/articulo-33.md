@@ -1,0 +1,2 @@
+Artículo 33°.- Destinos específicos. En cumplimiento de los artículos 15 y 25 del Título IV de la Ley aquí reglamentada, para los destinos específicos que no estén expresamente dispuestos en la Constitución Política o cuyo financiamiento no provenga de una renta especial, el Ministerio de Hacienda tendrá discrecionalidad en la asignación de los recursos de acuerdo con la situación fiscal del país y con los criterios establecidos en el artículo 23 del mencionado Título.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 42745 del 19 de noviembre del 2020)

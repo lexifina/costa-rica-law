@@ -1,2 +1,2 @@
-Artículo 18º bis.—Reintegro del superávit libre de las entidades y órganos del SPNF al Presupuesto Nacional de la República. Las entidades del SPNF, con excepción de las entidades que conforman el Presupuesto Nacional de la República, deberán reintegrar el superávit libre, al que hace referencia el artículo 18 del presente reglamento, durante el primer semestre del siguiente ejercicio económico, realizando los movimientos presupuestarios que correspondan. Dichos movimientos no serán contemplados para efectos de la regla fiscal.
+Artículo 18º bis.— (Derogado por el artículo 3° del decreto ejecutivo N° 42745 del 19 de noviembre del 2020)
 (Así adicionado por el artículo 2° del decreto ejecutivo N° 41891 del 24 de julio de 2019)

@@ -15,9 +15,10 @@ Por tanto;
 Decretan:
 Reglamento al Título IV de la Ley No. 9635, denominado Responsabilidad
 Fiscal de la República.
-Artículo 1º.—Ámbito de aplicación La Regla Fiscal para el control del crecimiento del gasto corriente presupuestario, se aplicará al Sector Público no Financiero (SPNF), que según lo dispuesto en el clasificador institucional comprende:
-• El Gobierno Central, entendido como el Poder Ejecutivo y sus dependencias, así como todos los órganos de desconcentración adscritos a los distintos ministerios, el Poder Legislativo, el Poder Judicial, el
-• Tribunal Supremo de Elecciones, y las dependencias y los órganos auxiliares de estos.
-• Instituciones Descentralizadas No Empresariales y sus órganos desconcentrados.
-• Gobiernos Locales.
-• Empresas Públicas no Financieras.
+Artículo 1°.- Ámbito de aplicación. La Regla Fiscal para el control del crecimiento del gasto corriente o del gasto total conformado por el gasto corriente y de capital, según corresponda, en apego a los parámetros estipulados en el artículo 11 del Título IV aquí reglamentado, se aplicará al Sector Público no Financiero (SPNF), que según lo dispuesto en el clasificador institucional vigente comprende:
+· El Gobierno Central, entendido como el Poder Ejecutivo y sus dependencias, así como todos los órganos de desconcentración adscritos a los distintos ministerios, el Poder Legislativo, el Poder Judicial, el Tribunal Supremo de Elecciones, y las dependencias y los órganos auxiliares de estos.
+· Instituciones Descentralizadas No Empresariales y sus órganos desconcentrados.
+· Gobiernos Locales (únicamente en lo que se refiere a aquellos recursos de los presupuestos provenientes de transferencias corrientes y de capital, cuando corresponda, realizadas por el Gobierno Central a las municipalidades y los concejos municipales de distrito del país).
+· Empresas Públicas no Financieras.
+Serán consideradas dentro del ámbito de aplicación de la Regla Fiscal para el período correspondiente, todas las entidades listadas en el detalle del Clasificador Institucional y sus anexos que correspondan al SPNF, así como aquellas no incluidas pero que ya cuenten con un código pre-asignado provisional otorgado por la Comisión de Clasificadores y que para su formalización como parte del SPNF, solo esté pendiente su publicación en el citado clasificador y que asimismo cuenten con un presupuesto ordinario aprobado que cubra todo el periodo.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 42745 del 19 de noviembre del 2020)
