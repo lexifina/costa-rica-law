@@ -1,0 +1,3 @@
+Artículo 9. Plazo máximo de colocación
+Los fondos de inversión de capital de riesgo deben establecer en su prospecto el plazo máximo para la colocación del monto total de capital autorizado. El plazo inicia a partir de la notificación a que se refiere el párrafo primero del Artículo 8 de este Reglamento.
+Si el monto autorizado no es colocado en el plazo establecido, la sociedad administradora debe proceder a convocar a una asamblea de inversionistas, en donde se someta a votación la continuidad del fondo con la respectiva reducción del monto autorizado o la autorización de un nuevo plazo para colocar el monto del capital pendiente. El trámite de modificación al prospecto se realizará de acuerdo con lo dispuesto en el Artículo 15 de este Reglamento.

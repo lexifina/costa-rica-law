@@ -1,0 +1,9 @@
+Artículo 6. Requisitos de autorización
+La autorización para realizar oferta pública de un fondo de inversión de capital de riesgo está sujeta a la presentación de la siguiente documentación:
+a. Solicitud suscrita por el representante legal.
+b. Copia certificada o testimonio de la protocolización del acta de la junta directiva en la que se haya acordado la constitución del fondo de inversión de capital de riesgo, el monto del capital autorizado y la decisión de realizar oferta pública de este. La junta directiva puede delegar expresamente en el acta a la administración para que defina las características del fondo de inversión.
+c. Prospecto. Este puede ser presentado en borrador junto con la solicitud de inscripción; no obstante, una vez emitida la resolución de autorización debe presentarse la versión definitiva, de conformidad con lo establecido en el Artículo 11 y Artículo12 de este Reglamento.
+d. Manual de procedimientos para los procesos críticos en la administración de este tipo de fondo, de conformidad con los lineamientos establecidos por la Superintendencia. La existencia de dicho manual se demuestra mediante una declaración jurada protocolizada, de conformidad con los lineamientos establecidos por la Superintendencia.
+e. Código ISIN emitido por la entidad codificadora autorizada, en caso de que aplique.
+Las certificaciones notariales que se presenten como parte de la documentación legal no podrán tener una antigüedad mayor a tres meses con respecto a la fecha de presentación de l a solicitud y deberán indicar expresamente que el contenido y términos de los documentos que están siendo certificados se mantienen vigentes a la fecha de su expedición.
+Los documentos mencionados en este artículo deben presentarse por los medios y las disposiciones que emita la Superintendencia mediante Acuerdo de alcance general. El trámite se regirá por lo establecido en el Artículo 46 de este Reglamento.

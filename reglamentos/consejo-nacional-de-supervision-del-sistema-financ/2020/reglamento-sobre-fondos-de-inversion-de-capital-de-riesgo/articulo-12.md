@@ -1,0 +1,5 @@
+Artículo 12. Disponibilidad del prospecto
+La sociedad administradora debe poner a disposición del inversionista el prospecto aprobado, en formato electrónico o físico, en su domicilio social y en sus oficinas principales.
+Es responsabilidad de cada sociedad administradora velar porque el prospecto que se disponga al inversionista corresponda a la versión vigente en el RNVI.
+En los procesos de colocación directa de participaciones por parte de la sociedad administradora, la entrega del prospecto es obligatoria y gratuita de previo a la realización de la primera inversión por parte del inversionista. La sociedad administradora deberá dejar constancia que el inversionista recibió el prospecto, dicha constancia debe formar parte del expediente del cliente así como entregar una copia al inversionista.
+Las sociedades administradoras deben establecer las políticas y procedimientos necesarios para procurar que se lleve a cabo la actualización de la información del prospecto en los mismos plazos en que se autoriza el prospecto por parte de la Superintendencia.

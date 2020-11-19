@@ -1,0 +1,3 @@
+Artículo 31. Obligaciones en relación con la contratación de profesionales
+La sociedad administradora debe establecer los criterios generales que considerará para la contratación de profesionales, así como la gestión ante eventuales conflictos de interés.
+La sociedad administradora debe contar con un proceso claro, formal y trazable para seleccionar a los profesionales. En la definición de estos lineamientos, la sociedad administradora debe considerar al menos la experiencia, conocimientos y capacidades de los profesionales, verificar que el profesional contratado esté inscrito en el colegio profesional respectivo, en caso de que aplique, y evitar disposiciones que impidan o limiten la competencia.

@@ -1,0 +1,2 @@
+Artículo 47. Normativa aplicable
+Las sociedades administradoras de fondos de capital de riesgo deberán acatar las disposiciones indicadas en el RGSAFI, para la determinación del grupo económico, la custodia de documentos, la administración de ventas y mercadeo de los fondos, la publicidad de sociedades administradoras y fondos de inversión incluidas en el RGSAFI, así como los reglamentos y demás normativa relacionada con el producto en particular y la sociedad administradora.

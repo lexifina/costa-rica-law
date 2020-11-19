@@ -1,0 +1,4 @@
+Artículo 8. Inicio de operaciones
+Los fondos de inversión de capital de riesgo deben iniciar operaciones en un plazo máximo de veinticuatro meses, contados a partir de la fecha de recibido de la notificación del cumplimiento de requisitos finales para la inscripción. Se entiende que un fondo ha iniciado operaciones si en el plazo indicado cuenta con el activo neto mínimo, el número mínimo de inversionistas, así como de la cantidad de empresas promovidas establecido en este Reglamento.
+El plazo anterior se puede prorrogar una vez de conformidad con lo establecido en el Artículo 46 de este Reglamento.
+En caso de que el fondo no inicie operaciones en el plazo correspondiente, la autorización quedará sin efecto. Si el fondo presenta participaciones en circulación, la sociedad administradora debe cumplir con lo dispuesto en el Artículo 44 de este Reglamento para su desinscripción del RNVI.

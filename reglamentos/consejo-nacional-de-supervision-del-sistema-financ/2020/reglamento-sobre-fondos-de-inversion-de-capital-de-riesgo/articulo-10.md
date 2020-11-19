@@ -1,0 +1,5 @@
+Artículo 10. Condiciones para la negociación de las participaciones en mercado secundario
+El registro de las participaciones del fondo de inversión de capital de riesgo para su negociación en un mercado secundario organizado requiere de una autorización previa, atendiendo las siguientes condiciones:
+a. Que desde el proceso de autorización del fondo de inversión el prospecto indique expresamente la posibilidad de negociación en el mercado secundario y no establezca compromisos de inversión para los inversionistas. Para ello deberá presentarse el código ISIN respectivo, según lo indicado en el Artículo 6 de este Reglamento.
+b. Que la asamblea de inversionistas acuerde la inscripción en mercado secundario, a partir del análisis de conveniencia para el fondo, en cuyo caso deben haberse satisfecho de previo los compromisos de inversión por parte de los inversionistas.
+Cuando las participaciones de un fondo de inversión de capital de riesgo se negocien en un mercado secundario organizado, deberán acatarse todas las disposiciones aplicables a los valores cotizados.
