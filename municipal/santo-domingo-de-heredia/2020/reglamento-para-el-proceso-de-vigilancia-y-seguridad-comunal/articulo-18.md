@@ -1,0 +1,4 @@
+Artículo 18.—Relaciones con la comunidad. Los miembros de la Policía Municipal deberán ajustar sus actuaciones, en relación a la comunidad, a los siguientes principios:
+1. Impedir, en el ejercicio de su actuación policial, cualquier práctica abusiva, arbitraria o discriminatoria que entrañe violencia física o moral.
+2. Observar en todo momento un trato correcto y esmerado en sus relaciones con los ciudadanos, a quienes procurarán auxiliar y proteger, siempre que las circunstancias lo aconsejen o fueren requeridos para ello. En todas sus intervenciones, proporcionarán información cumplida y tan amplia como sea posible, sobre las causas y la finalidad de las mismas.
+3. En el ejercicio de sus funciones deberán actuar con la decisión necesaria y sin demora cuando de ello dependa evitar un daño grave, inmediato o irreparable, rigiéndose al hacerlo por los principios de congruencia, oportunidad y proporcionalidad en la utilización de los medios a su alcance.

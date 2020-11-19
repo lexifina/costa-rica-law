@@ -1,0 +1,1 @@
+Artículo 22.—En el ejercicio de las funciones la Policía Municipal podrá ingresar libremente en sodas, restaurantes, bares y demás establecimientos abiertos al público y recorrer todas sus dependencias, para asuntos del servicio; pero sin hacerlo en las dependencias destinadas a viviendas del dueño o huéspedes, en cuyo caso se atenderá a lo dispuesto en el artículo anterior.

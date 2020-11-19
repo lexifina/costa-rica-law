@@ -1,0 +1,1 @@
+Artículo 15.—El policía que no pudiese acudir al servicio por encontrarse enfermo (a), deberá avisar inmediatamente al Coordinador (a) de la Policía Municipal, sin perjuicio de presentar la correspondiente incapacidad o asistencia médica, dentro las veinticuatro horas siguientes.

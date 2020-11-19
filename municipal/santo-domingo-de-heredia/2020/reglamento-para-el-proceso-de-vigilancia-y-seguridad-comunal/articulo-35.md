@@ -1,0 +1,1 @@
+Artículo 35.—El desempeño de la función de Policía Municipal será incompatible con el ejercicio de todas aquellas actividades que comprometan la imparcialidad e independencia del funcionario, que impidan o menoscaben el estricto cumplimiento de sus deberes o que pugnen con los intereses del servicio, el prestigio del funcionario o del cuerpo.

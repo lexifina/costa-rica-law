@@ -1,0 +1,1 @@
+Artículo 43.—Las sanciones disciplinarias impuestas se anotarán en el expediente laboral de cada funcionario (a). Para cumplir con lo anterior se debe garantizar el debido proceso y la aplicación de las sanciones serán conforme a lo dispuesto en artículo 158 del Código Municipal.

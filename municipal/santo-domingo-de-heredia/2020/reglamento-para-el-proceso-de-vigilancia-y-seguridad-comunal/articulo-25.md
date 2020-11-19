@@ -1,0 +1,1 @@
+Artículo 25.—La Municipalidad velará; por medio del Departamento de Recursos Humanos y de la Jefatura de la Policía Municipal; por mantener cursos de capacitación para los miembros de la Policía Municipal.

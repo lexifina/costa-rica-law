@@ -1,0 +1,1 @@
+Artículo 17.—Los miembros de la Policía Municipal darán cuenta a su Coordinador (a), por conducto, de todas las novedades que ocurran, así como elaborarán los informes escritos respectivos, aspectos que también serán insertos en la bitácora de labor correspondiente.

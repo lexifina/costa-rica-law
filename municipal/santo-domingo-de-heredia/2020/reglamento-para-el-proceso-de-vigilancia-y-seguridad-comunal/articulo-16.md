@@ -1,0 +1,1 @@
+Artículo 16.—El policía no podrá abandonar el servicio bajo ningún concepto, a no ser por causa grave de fuerza mayor que justifique el abandono, en cuyo caso avisará previamente a la Coordinación de la Policía Municipal, dando a conocer los motivos del retiro de su puesto, el cual podrá hacer efectivo hasta tanto llegue el relevo.

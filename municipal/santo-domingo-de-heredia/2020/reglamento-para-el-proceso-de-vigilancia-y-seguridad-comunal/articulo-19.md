@@ -1,0 +1,1 @@
+Artículo 19.—Solamente deberán utilizar las armas en las situaciones en que exista un riesgo racionalmente grave para su vida, su integridad física o las de terceras personas, o en aquellas circunstancias que puedan suponer un grave riesgo para la seguridad ciudadana y de conformidad con los principios de la legítima defensa y demás normativa penal y procesal penal.

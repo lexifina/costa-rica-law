@@ -1,0 +1,1 @@
+Artículo 27.—Cuando tenga conocimiento de alguna falta relevante cometida por los miembros de la Policía Municipal, lo trasladará al Departamento de Recursos Humanos para la instrucción del expediente disciplinario. Igualmente informará de los servicios meritorios al Alcalde (sa).

@@ -1,0 +1,1 @@
+Artículo 9º—Secreto profesional. Los miembros de la Policía Municipal deberán guardar riguroso secreto respecto a todas las informaciones que conozcan por razón o con ocasión del desempeño de sus funciones. No estarán obligados a revelar las fuentes de información salvo que el ejercicio de sus funciones o las disposiciones de la Ley les impongan actuar de otra manera.

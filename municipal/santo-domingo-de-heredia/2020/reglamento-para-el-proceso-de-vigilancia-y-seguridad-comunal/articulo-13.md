@@ -1,0 +1,1 @@
+Artículo 13.—Sobre el uniforme. Solo podrán, portar la placa de identificación, la placa policial, la insignia de la Policía Municipal, los distintivos específicos, armamento y demás equipo autorizado por las autoridades superiores. Dicho uniforme será suministrado por la Administración en forma discrecional, atendiendo las necesidades de cada policía.

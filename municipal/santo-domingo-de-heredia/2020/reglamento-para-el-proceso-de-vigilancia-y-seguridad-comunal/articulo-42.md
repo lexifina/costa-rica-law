@@ -1,0 +1,2 @@
+Artículo 42.—Las faltas leves sólo podrán corregirse con las sanciones de los apartados 1 y 2 del artículo anterior, siempre que se vele por el principio de defensa y debido proceso. Las faltas graves y muy graves serán corregidas con las sanciones de los apartados 3, 4 y 5.
+Las faltas de puntualidad y asistencia, cuando constituyan faltas leves se sancionarán con la deducción proporcional de las retribuciones.

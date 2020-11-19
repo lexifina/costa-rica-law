@@ -1,0 +1,2 @@
+Artículo 4º—Régimen jurídico. La Policía Municipal queda sometida, en lo que le afecte, a lo establecido en la Constitución Política; la Ley General de la Administración Pública; el Código Municipal; la Ley de Fortalecimiento de la Policía Municipal; en los acuerdos y convenios que sobre condiciones laborales se establezcan; en este Reglamento y en el resto del ordenamiento jurídico que le sea de aplicación.
+El Presente Reglamento es de observancia obligatoria para la Policía Municipal.
