@@ -15,3 +15,4 @@ Reglamento sobre la regulación y comercialización de bebidas con contenido alc
 | --- | --- | --- |
 | 1 | 2013-04-17 | la propia norma |
 | 2 | 2013-11-18 | Reglamento municipal 85 (2013-11-18) |
+| 3 | 2020-11-19 | Reglamento municipal 0 (2020-11-19) |
