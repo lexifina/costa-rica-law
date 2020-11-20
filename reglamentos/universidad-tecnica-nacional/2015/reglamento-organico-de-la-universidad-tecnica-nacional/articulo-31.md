@@ -1,5 +1,3 @@
 CAPITULO VII
-CENTRO DE ESTUDIOS SOBRE DESARROLLO SOSTENIBLE
-Artículo 31. El Centro de Estudios sobre Desarrollo Sostenible es un organismo académico universitario del más alto nivel, que tiene como propósito la realización de estudios e investigaciones con el aporte y la confluencia de diversas disciplinas, dirigidos a analizar en profundidad las condiciones, características y asimetrías del actual modelo global de crecimiento económico, productivo y tecnológico, y al mismo tiempo, estudiar las causas de sus principales problemas económicos, sociales culturales y políticos, así como proponer alternativas de solución para ellos, bajo un enfoque centrado en el concepto de desarrollo sostenible.
-Con base en sus estudios e investigaciones, el Centro impulsará además la ejecución de programas de formación y capacitación, publicaciones, y módulos o programas informativos y de divulgación, sobre el tema del desarrollo sostenible, el equilibrio ecológico y el desarrollo humano integral.
-La estructura, funciones específicas, operación, y funcionamiento del Centro, se regularán en un reglamento específico.
+(Derogado este capítulo mediante sesión ordinaria N° 27-2020 del 20 de noviembre del 2020)
+Artículo 31. (Derogado mediante sesión ordinaria N° 27-2020 del 27 de noviembre del 2020)

@@ -1,4 +1,4 @@
-Artículo 67. Son funciones de la Unidad de Gestión Administrativa:
-1. Dirigir, coordinar, administrar y supervisar el desarrollo de la infraestructura universitaria y su debido mantenimiento.
-2. Dirigir, coordinar, administrar y supervisar el desarrollo de programas en gestión ambiental y salud ocupacional, en el ámbito universitario.
-3. Dirigir, coordinar, administrar y supervisar los procesos operativos de apoyo a la academia y la vida estudiantil.
+Artículo 67.—Son funciones de la Unidad de Gestión Operativa:
+1. Dirigir, coordinar, administrar y supervisar el desarrollo del mantenimiento de las instalaciones y jardinería.
+2. Dirigir, coordinar, administrar los procesos Gestión Ambiental y Salud Ocupacional.
+(Así reformado mediante sesión ordinaria N° 27-2020 del 20 de noviembre del 2020)

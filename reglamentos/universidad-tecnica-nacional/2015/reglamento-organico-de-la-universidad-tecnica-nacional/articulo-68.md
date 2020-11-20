@@ -1,5 +1,3 @@
 CAPÍTULO X
-DIRECCIÓN DE REGISTRO UNIVERSITARIO
-Artículo 68 Es la dependencia encargada de registrar, custodiar y administrar la información académica estudiantil, así como de dirigir, coordinar, supervisar, administrar, controlar y evaluar los procesos asociados al registro académico estudiantil de la universidad.
-Para cumplir con sus funciones, el Registro Universitario tiene las siguientes áreas de gestión: Admisión y Matrícula, Expediente Académico y Graduaciones, y Gestión de la Información.
-Las funciones del Registro Universitario se establecerán en el reglamento específico.
+(Derogado este capítulo mediante sesión ordinaria N° 27-2020 del 20 de noviembre del 2020)
+Artículo 68 (Derogado mediante sesión ordinaria N° 27-2020 del 20 de noviembre del 2020)
