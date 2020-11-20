@@ -1,0 +1,6 @@
+CIRCULAR Nº 252-2020
+ASUNTO: Obligación de las personas teletrabajadoras del Poder Judicial de mantener la disponibilidad durante la jornada ordinaria para su superiora o superior jerárquico, con el fin de permitir un adecuado intercambio de información, su supervisión, recibir las instrucciones o ejecutar tareas urgentes.
+A TODAS LAS PERSONAS SERVIDORAS JUDICIALES
+SE LES HACE SABER QUE:
+Este Consejo Superior en sesión número 92-2020 celebrada el 22 de setiembre de 2020, artículo XXII, dispuso recordar a las personas teletrabajadoras del Poder Judicial la obligación de mantener la disponibilidad durante la jornada ordinaria para su superiora o superior jerárquico, con el fin de permitir un adecuado intercambio de información, su supervisión, recibir las instrucciones correspondientes o ejecutar tareas urgentes, de conformidad con el artículo 11 del Reglamento para la Aplicación de la Modalidad del Teletrabajo en el Poder Judicial. Bajo apercibimiento del régimen disciplinario en caso de no atender el llamado sin la comunicación y autorización de las jefaturas inmediatas debidamente documentadas. Lo anterior, con el propósito de lograr el mayor aprovechamiento de los recursos y la efectiva implementación de la modalidad del teletrabajo en el Poder Judicial. Publíquese una sola vez en el Boletín Judicial.
+San José, 20 de noviembre de 2020.
