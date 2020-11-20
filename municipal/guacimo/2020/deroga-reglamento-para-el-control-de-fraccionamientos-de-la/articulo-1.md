@@ -1,0 +1,2 @@
+MUNICIPALIDAD DE GUÁCIMO
+La Municipalidad de Guácimo publica: este Concejo Municipal por unanimidad acuerda: derogar el Acuerdo número diez, del Acta N° 44-2020, de la Sesión Ordinaria N° 29-2020, de fecha 17-07-2020, que refiere a la aprobación de Reglamento para el Control de Fraccionamientos de la Municipalidad de Guácimo, quedando sin efecto y por lo tanto sin aplicación. (Publíquese en el Diario Oficial La Gaceta para conocimiento de la Ciudadanía). Acuerdo número doce. Aprobado por unanimidad. Acuerdo en firme.
