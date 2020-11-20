@@ -14,3 +14,4 @@ Transición de los jerarcas del Ministerio de Hacienda y directores de programa 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-06-24 | la propia norma |
+| 2 | 2020-11-20 | Directriz 11 (2020-11-20) |
