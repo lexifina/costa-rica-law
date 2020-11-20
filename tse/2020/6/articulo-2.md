@@ -1,0 +1,3 @@
+Artículo 2º—Refórmese el párrafo primero del artículo 4, para que se lea de la siguiente manera:
+Artículo. 4.- De las solicitudes de autorización y su presentación. Las solicitudes de autorización podrán ser presentadas ante el Cuerpo Nacional de Delegados desde un mes antes a la fecha de la convocatoria de la elección correspondiente y al menos con doce días hábiles de antelación a la celebración de la actividad. Este último plazo contado a partir del día hábil siguiente de la presentación o envío de la solicitud, quedando excluido del cómputo de este el día de la actividad. Las solicitudes que se presenten fuera de dichos plazos serán rechazadas de plano.
+[...]”.
