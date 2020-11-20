@@ -1,0 +1,3 @@
+ARTÍCULO 14° — Independencia y objetividad en el cumplimiento de las funciones
+El personal que realiza el proceso de auditoría en INS Servicios S.A. debe mantener y mostrar una actitud de criterio independiente en el desarrollo de su trabajo, y actuar de manera objetiva, profesional e imparcial, en los hechos y en la apariencia.
+El Auditor Interno deberá informar a la Junta Directiva y los demás colaboradores de la Auditoría Interna al Auditor Interno, cuando exista algún tipo de conflicto de intereses o existan factores que puedan comprometer su independencia y objetividad, sea de hecho o en apariencia, para que se tomen las medidas pertinentes para salvaguardar la independencia y objetividad en el cumplimiento de sus funciones.

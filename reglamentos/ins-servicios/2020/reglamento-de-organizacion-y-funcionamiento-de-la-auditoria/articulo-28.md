@@ -1,0 +1,2 @@
+ARTÍCULO 28° — Suspensión o destitución del Auditor Interno
+El Auditor Interno solo podrá ser suspendido o destituido del cargo por justa causa, conforme lo dispuesto en el artículo N°31 de la Ley General de Control Interno, el artículo N°15 de la Ley Orgánica de la Contraloría General de la República, los lineamientos y cualquier otra normativa que disponga sobre el particular el Órgano Contralor.

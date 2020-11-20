@@ -1,0 +1,2 @@
+ARTÍCULO 44° —Autorización de libros
+Es el servicio preventivo que presta la Auditoría Interna con fundamento en el inciso e) del artículo N°22 de la Ley General de Control Interno, consiste en otorgar la razón de apertura y realizar fiscalizaciones periódicas de la efectividad, el manejo, la autorización y el control de libros y los registros que deban llevarse en la Empresa, relevantes y necesarios para el fortalecimiento del sistema de control interno, ya sean físicos o digitales.

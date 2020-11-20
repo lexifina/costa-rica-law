@@ -1,0 +1,2 @@
+ARTÍCULO 53°— Participación de los auditores internos
+Los auditores internos responsables de las investigaciones y confección de los Informes de Relación de Hechos podrán ser consultados en las audiencias que se otorguen a los interesados por su eventual responsabilidad disciplinaria y civil, en su carácter exclusivo de experto calificado y únicamente serán consultados sobre las dudas que del informe puedan surgir en el ámbito de la materia en investigación.

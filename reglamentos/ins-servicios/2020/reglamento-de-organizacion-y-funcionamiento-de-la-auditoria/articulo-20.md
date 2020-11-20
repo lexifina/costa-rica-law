@@ -1,0 +1,4 @@
+ARTÍCULO 20° — Recursos presupuestarios
+La Administración deberá asignar el presupuesto necesario para hacer frente a las erogaciones por concepto de recursos humanos, materiales, tecnológicos, de capacitación y actualización, transporte y otros, requeridos para que la Auditoría Interna pueda cumplir su gestión. Para la asignación y disposición de sus recursos, se tomarán en cuenta el criterio del Auditor Interno y las disposiciones que emita al respecto la Contraloría General de la República.
+Para efectos presupuestarios, se dará a la Auditoría Interna una categoría programática y el presupuesto deberá ser detallado por objeto del gasto, de manera que se controlen la ejecución y modificaciones de los recursos presupuestados para la Auditoría Interna.
+La Auditoría Interna ejecutará su presupuesto conforme lo determinen sus necesidades para desarrollar su plan de trabajo.

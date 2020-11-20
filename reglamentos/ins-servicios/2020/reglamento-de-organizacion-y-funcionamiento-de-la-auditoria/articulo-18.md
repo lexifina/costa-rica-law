@@ -1,0 +1,7 @@
+Sección III
+Organización de la Auditoría Interna
+ARTICULO 18° — Estructura orgánica interna
+La estructura orgánica de la Auditoría Interna está encabezada por el Auditor Interno e integrada por las jefaturas, profesionales, asistentes y personal administrativo que se consideren necesarios para el cumplimiento de sus fines.
+Es responsabilidad del Auditor Interno disponer para su unidad una estructuraorganizativa concordante con los objetivos, riesgos institucionales y la normativa, disposiciones técnicas-jurídicas y sanas prácticas aplicables a su actividad, a efecto de asegurar razonablemente, la efectividad en el cumplimiento de sus obligaciones legales y técnicas, así como la administración eficaz, eficiente y económica de los recursos asignados.
+Para el desempeño de sus competencias, el Auditor Interno establecerá una estructura organizativa adecuada que contemple la atención de las funciones propias de la dirección de la Auditoría Interna, el desarrollo de los servicios de auditoría financiera, auditoría operativa, estudios especiales y servicios preventivos, así como el apoyo administrativo que su gestión requiera. La Auditoría Interna mantendrá actualizada su estructura organizativa y las funciones de cada una de las áreas y puestos que la conforman.
+Las modificaciones a la estructura orgánica de la Auditoría Interna requerirán de la aprobación expresa del Auditor Interno y de un acuerdo de la Junta Directiva.

@@ -1,0 +1,2 @@
+ARTÍCULO 38° — Deberes de la Auditoría Interna El personal de la Auditoría Interna dará cumplimiento a los deberes establecidos en el artículo N°32 de la Ley General del Control Interno, el artículo N°8 de la Ley
+Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública, así como a los deberes adicionales que determine la normativa emitida por la Contraloría General de la República y demás órganos de control, referente a la gestión de las auditorías internas.

@@ -1,0 +1,2 @@
+ARTÍCULO 30° — Deberes del Auditor Interno
+El Auditor Interno deberá cumplir con aptitud y debido cuidado profesional sus funciones, haciendo valer sus competencias con independencia funcional y de criterio, y será vigilante de que su personal responda de igual manera. Asimismo, realizará las acciones que sean necesarias para que él y su equipo de trabajo, perfeccionen sus conocimientos, aptitudes y otras competencias mediante la capacitación profesional continua.

@@ -1,0 +1,13 @@
+ARTÍCULO 3º— Definición de términos
+Para los efectos del presente Reglamento, se entenderán los siguientes términos en el sentido que se indica a continuación:
+a. Administración Activa: Desde el punto de vista funcional, es la función decisoria, ejecutiva, resolutoria, directiva u operativa de la Administración. Desde el punto de vista orgánico es el conjunto de órganos y entes de la función administrativa, que deciden y ejecutan; incluyen al Jerarca.
+b. Auditor Interno: funcionario que ostenta el cargo de Jefatura o Director de la Auditoría Interna.
+c. Auditoría Interna: Auditoría Interna de INS Servicios S.A., misma que dentro de la organización institucional tiene sustento en lo que dispone el artículo N°20 de la Ley General de Control Interno.
+d. Contraloría u Órgano Contralor: Contraloría General de la República es un órgano constitucional fundamental del Estado, auxiliar de la Asamblea Legislativa en el control superior de la Hacienda Pública y rector del sistema de fiscalización que contempla la “Ley Orgánica de la Contraloría General de La República”.
+e. Empresa: INS Servicios S.A.
+f. Junta Directiva o Jerarca: La Junta Directiva de INS Servicios S.A., que corresponde a la última instancia de la Administración Activa.
+g. Ley General de Control Interno: Ley General de Control Interno Nº8292
+h. Lineamientos sobre gestiones de auditoría: Lineamientos sobre gestiones que involucran a la auditoría interna presentadas ante la Contraloría General de la República. Estos lineamientos corresponden a los procesos a seguir y las consideraciones a tomar para tramitar gestiones relacionadas con la actividad de auditoría interna en el Sector Público ante la Contraloría General de la República de Costa Rica.
+i. Manual de la Auditoría: Manual de lineamientos y procedimientos de la Auditoría de INS Servicios S.A.; que incluye todos los documentos aprobados y publicados para guiar al equipo de auditoría, y estandarizar la ejecución de sus funciones.
+j. Normas internacionales: Normas Internacionales para el Ejercicio Profesional de la Auditoría Interna, (International Standards for the Professional Practice of Internal Auditing) emitidas por el Instituto de Auditores Internos Global (The Institute of Internal Auditors Global).
+En relación con los términos de la materia de auditoría y control interno no incorporados explícitamente en este artículo, se aplicarán los conceptos que haya definidoo defina a futuro en la normativa de la Contraloría General de la República. De manera supletoria se podrán aplicar los términos que se establezcan en las Normas Internacionales.

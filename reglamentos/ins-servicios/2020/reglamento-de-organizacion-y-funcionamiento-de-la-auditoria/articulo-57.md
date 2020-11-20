@@ -1,0 +1,2 @@
+ARTÍCULO 57°— Trámite de objeciones o soluciones alternas
+El Auditor Interno remitirá por escrito a la Junta Directiva sus argumentaciones refiriéndose a las objeciones y a las soluciones alternas que, respecto de las recomendaciones de sus informes, propongan tanto los titulares subordinados como la Junta Directiva (artículos N°36, inciso b y N°38 de la Ley General de Control Interno), dentro de los plazos establecidos, sin perjuicio de que también manifiesten dichas argumentaciones de manera oral.

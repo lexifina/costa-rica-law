@@ -1,0 +1,3 @@
+ARTICULO 2°— Contenido
+Su contenido se refiere a la organización de la Auditoría Interna de INS Servicios S.A., señalándose aspectos como el concepto funcional de auditoría interna; ubicación en la estructura organizativa y ámbito de acción; marco legal, técnico y ético; independencia y objetividad; organización y asignación de recursos; relaciones y coordinaciones internas y externas; nombramiento, deberes y funciones del auditor interno y el personal de la Auditoría Interna.
+Asimismo, se refiere al funcionamiento de la Auditoría Interna, en aspectos como las competencias, deberes, potestades, servicios brindados y otros aspectos relativos a su gestión. Concluye con causales de responsabilidad administrativa, sanciones y disposiciones finales.

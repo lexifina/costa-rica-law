@@ -1,0 +1,3 @@
+ARTÍCULO 10° — Planificación estratégica y operativa
+En materia de las labores específicas que realiza la Auditoría Interna en la Empresa, el Auditor Interno y demás personal de la Auditoría Interna, según proceda, deberán formular y mantener actualizados los planes estratégicos y operativos, así como las políticas y procedimientos necesarios, para garantizar el adecuado funcionamiento y el logro de sus objetivos.
+Para su establecimiento se considerarán el plan estratégico de la Empresa, los objetivos y riesgos relacionados; el universo de auditoría; los factores críticos de éxito y otros criterios relevantes por su impacto en los procesos de gestión de riesgos, control y dirección, incluyendo indicadores de fraude, a juicio del Auditor Interno.

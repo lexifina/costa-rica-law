@@ -1,0 +1,8 @@
+ARTÍCULO 4º—Ámbito de aplicación y responsabilidades con respecto al reglamento
+Este Reglamento es de acatamiento obligatorio para el personal de la Auditoría Interna, para la Junta Directiva y el resto de los colaboradores de la Administración Activa, en la materia de su competencia, que les resulte aplicable.
+Las responsabilidades con respecto al presente Reglamento son las que se define a continuación:
+a. Auditor Interno: Formular, gestionar y mantener actualizado el Reglamento de Organización y Funcionamiento de la Auditoría Interna de INS Servicios S.A., así como cumplir y hacer cumplir lo establecido en el presente reglamento. También, es responsable de velar que éste permanezca disponible para su consulta.
+b. Junta Directiva: Aprobar y ordenar el cumplimiento del Reglamento de Organización y Funcionamiento de la Auditoría Interna.
+c. Gerente General: Divulgar, cumplir y velar por el cumplimiento de las disposiciones contenidas en el presente Reglamento por parte de todos los colaboradores de la Empresa.
+d. Colaboradores de INS Servicios S.A.: Observar y cumplir las disposiciones del presente Reglamento de conformidad con sus competencias.
+e. Colaboradores de la Auditoría de INS Servicios: Observar, cumplir y velar por el cumplimiento de las disposiciones del presente Reglamento de conformidad con sus competencias.
