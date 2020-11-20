@@ -1,6 +1,7 @@
 SERVICIO NACIONAL DE ADUANAS
 RESOLUCION DE ALCANCE GENERAL
 RESOLUCIÓN RES-DGA-034-2016
+(Nota de Sinalevi: Mediante resolución N° RES-DGA-525-2020 del 20 de noviembre del 2020 se ordena mantener la aplicación de la nota técnica 0269, en lo que se refiere a la importación de llantas nuevas según la presente resolución)
 DIRECCION GENERAL DE ADUANAS. San José, a las nueve horas del día nueve de febrero del dos mil dieciséis.
 CONSIDERANDO
 1.Que el artículo 11 de la Ley General de Aduanas (DGA) sus reformas y modificaciones vigentes, dispone que “La Dirección General de Aduanas es el órgano superior jerárquico nacional en materia aduanera. En el uso de esta competencia, le corresponde la dirección técnica y administrativa de las funciones aduaneras que esta ley y las demás disposiciones del ramo le conceden al Servicio Nacional de Aduanas; la emisión de políticas y directrices para las actividades de las aduanas y dependencias a su cargo; el ejercicio de las atribuciones aduaneras y la decisión de las impugnaciones interpuestas ante ella por los administrados”.

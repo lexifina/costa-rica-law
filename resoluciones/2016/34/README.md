@@ -14,3 +14,4 @@ Modifica Nota Técnica 0269 y incluye la Nota Técnica 0269, a los incisos aranc
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-04-07 | la propia norma |
+| 2 | 2020-11-20 | Resolución 525 (2020-11-20) |
