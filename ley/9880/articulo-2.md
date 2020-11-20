@@ -1,0 +1,1 @@
+ARTÍCULO 2- Se desafecta del uso público el terreno segregado en el artículo anterior y se autoriza a la Municipalidad de Osa para que lo done a la Asociación Pro-Clínica del Dolor, Cáncer y Atención Paliativa del cantón de Osa, cuyas siglas son Aclidosa, y con cédula de persona jurídica número tres - cero cero dos – seis cinco nueve cinco tres ocho (N.° 3-002-659538).
