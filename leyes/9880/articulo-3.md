@@ -1,0 +1,1 @@
+ARTÍCULO 3- El bien donado se destinará, exclusivamente, a la Asociación Pro-Clínica del Dolor, Cáncer y Atención Paliativa del cantón de Osa, con cédula de persona jurídica número tres – cero cero dos - seis cinco nueve cinco tres ocho (N.° 3-002-659538), para la construcción de su sede.
