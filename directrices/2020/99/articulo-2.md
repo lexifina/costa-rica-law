@@ -1,0 +1,1 @@
+Artículo 2º—El Ministerio de la Presidencia deberá formular una nueva propuesta de Decreto Ejecutivo, para la creación del Consejo Consultivo Económico Social, en consulta con los sectores sociales, laborales y empresariales.

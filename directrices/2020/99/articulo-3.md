@@ -1,0 +1,1 @@
+Artículo 3º—Para el cumplimiento del acuerdo citado y lo dispuesto en la presente Directriz, el Consejo Consultivo Económico Social deberá instalarse a más tardar el día jueves 17 de diciembre del año 2020.
