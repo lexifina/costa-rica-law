@@ -1,1 +1,1 @@
-Artículo 75.—Admisión de denuncias anónimas. Las denuncias anónimas serán atendidas en el tanto aporten todos los elementos de convicción suficientes y se encuentren sustentadas en medios probatorios idóneos que permitan iniciar la investigación, de lo contrario se archivará la denuncia.
+Artículo 75.-Admisión de denuncias anónimas. (Derogado por los Lineamientos para análisis de denuncias de presuntos hechos irregulares, aprobado en sesión N° 030 del 23 de noviembre de 2020)

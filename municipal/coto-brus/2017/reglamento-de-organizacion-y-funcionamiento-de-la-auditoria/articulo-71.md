@@ -1,1 +1,1 @@
-Artículo 71.—Confidencialidad de los denunciantes. La Auditoría Interna deberá de asegurar la confidencialidad de los denunciantes, de acuerdo con el Artículo 6° de la Ley de Control Interno y 8° de la Ley Contra la Corrupción y Enriquecimiento ilícito, manteniendo la confidencialidad de los o las denunciantes, la Auditoría Interna utilizará los medios que considere adecuados.
+Artículo 71.-Confidencialidad de los denunciantes. (Derogado por los Lineamientos para análisis de denuncias de presuntos hechos irregulares, aprobado en sesión N° 030 del 23 de noviembre de 2020)

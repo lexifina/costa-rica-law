@@ -1,1 +1,1 @@
-Artículo 79.—Acto de desestimación o archivo de la denuncia. Una vez aceptada la denuncia y realizada la valoración del caso, esta se podrá desestimar o archivar mediante un acto debidamente motivado donde se acrediten los argumentos valorados para tomar esa decisión.
+Artículo 79.-Acto de desestimación o archivo de la denuncia. (Derogado por los Lineamientos para análisis de denuncias de presuntos hechos irregulares, aprobado en sesión N° 030 del 23 de noviembre de 2020)

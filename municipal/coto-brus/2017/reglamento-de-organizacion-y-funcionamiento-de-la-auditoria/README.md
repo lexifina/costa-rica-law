@@ -14,3 +14,4 @@ Reglamento de Organización y Funcionamiento de la Auditoría Interna
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-04-28 | la propia norma |
+| 2 | 2020-11-23 | Reglamento municipal 30 (2020-11-23) |

@@ -1,1 +1,1 @@
-Artículo 73.—Información adicional. El o la denunciante también deberá brindar información complementaria respecto a la estimación del perjuicio económico producido a la Municipalidad en caso de conocerlo, la indicación de probables testigos y el lugar o medios para citarlos, así como la aportación o sugerencia de otras pruebas.
+Artículo 73.-Información adicional. (Derogado por los Lineamientos para análisis de denuncias de presuntos hechos irregulares, aprobado en sesión N° 030 del 23 de noviembre de 2020)

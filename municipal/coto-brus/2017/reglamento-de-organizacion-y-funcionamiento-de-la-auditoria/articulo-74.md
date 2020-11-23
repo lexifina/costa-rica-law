@@ -1,1 +1,1 @@
-Artículo 74.—Solicitud de aclaración. En caso de determinar la Auditoría Interna que existe imprecisión de los hechos se otorgará a la parte un plazo no menor a 10 días hábiles para que el o la denunciante complete su información o de lo contrario se podrá archivar o desestimar la gestión sin perjuicio de que sea presentada con mayores elementos posteriormente, como una nueva gestión.
+Artículo 74.-Solicitud de aclaración. (Derogado por los Lineamientos para análisis de denuncias de presuntos hechos irregulares, aprobado en sesión N° 030 del 23 de noviembre de 2020)

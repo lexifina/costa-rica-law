@@ -1,1 +1,1 @@
-Artículo 78.—Trámite de las denuncia. El Auditor (a) Interno (a) deberá evaluar si le da trámite a una denuncia presentada directamente o trasladada por la Contraloría General de la república, para la cual deberá considerar entre otros, la importancia o impacto del estudio, los recursos disponibles en la Auditoría Interna, la ejecución del Plan Anual u otras a juicio del Auditor (a)Interno (a).
+Artículo 78.-Trámite de las denuncia. (Derogado por los Lineamientos para análisis de denuncias de presuntos hechos irregulares, aprobado en sesión N° 030 del 23 de noviembre de 2020)
