@@ -1,1 +1,0 @@
-Artículo 2º—Alcance. El presente reglamento tiene por objeto establecer las reglas generales para la conformación y el funcionamiento del CAS y de su UA, que sean designados por el OE específicamente para la ejecución del PIT de conformidad con los Contratos de Préstamo y demás condiciones aprobadas en la Ley.

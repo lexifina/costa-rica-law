@@ -1,1 +1,0 @@
-Artículo 10.—De las comunicaciones. Todas las comunicaciones que se den entre el CAS, el Fiduciario, el Gestor y el Banco deberán cumplir con los procedimientos que se establezcan en el Contrato de Fideicomiso, el Contrato de Gestión y en el MANOP.
