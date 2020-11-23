@@ -1,0 +1,2 @@
+Artículo 3°: Modifícanse el artículo 2° y 4° de la Ley de Presupuesto Ordinario y Extraordinario de la República para el Ejercicio Económico del 2020, Ley No. 9791 publicado en los Alcances 273A y 273B de la Gaceta Nº 233 del 06 de diciembre de 2019 en la forma que se indica a continuación:
+(Nota de Sinalevi: Por lo extenso de su contenido y tipo de formato consulta el Alcance Digital N° 310 a La Gaceta N° 278 del 23 de noviembre del 2020)
