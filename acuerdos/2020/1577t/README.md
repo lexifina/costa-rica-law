@@ -14,3 +14,4 @@ Lineamientos generales para Centros de Atención Integral: públicos, privados o
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-06-25 | la propia norma |
+| 2 | 2020-11-23 | Acuerdo 7521 (2020-11-23) |
