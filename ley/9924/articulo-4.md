@@ -1,0 +1,24 @@
+Artículo 4: Se reforma el inciso 12) del artículo 7° de la Ley 9791, Ley de Presupuesto Ordinario y Extraordinario de la República para el Ejercicio Económico 2020, de 26 de noviembre de 2019, publicada en los alcances 273A y 2738 de La Gaceta 233, del 6 de diciembre de 2019. El texto es el siguiente:
+Donde dice:
+"12) Los ministerios deberán remitir a la Dirección General de Presupuesto Nacional del Ministerio de Hacienda (DGPN), con copia a la Secretaría Técnica de la Autoridad Presupuestaria (STAP), en los primeros cinco días de vencido cada trimestre de 2020, un informe de las plazas vacantes que consigne el número de puesto, el código y el nombre de la clase, así como la información que indique desde cuándo está vacante, el costo mensual de esta (incluye salario base, pluses, aguinaldo y contribuciones sociales).
+En ese mismo informe se deberá indicar cuáles plazas vacantes se utilizaron y las razones que lo fundamentan, de acuerdo con las excepciones autorizadas en esta ley. El resto de las instituciones que reciben transferencias del Gobierno, para el pago de salarios, remitirán, en el plazo citado, este mismo informe a la STAP. Este organismo deberá enviar copia de todos los informes a la Comisión Permanente Ordinaria de Asuntos Hacendarios, a más tardar quince días naturales posteriores a su recibo, con el estudio sobre el cumplimiento de los señalamientos aquí establecidos.
+El contenido presupuestario de toda plaza vacante no utilizada, durante el primer semestre de 2020, se deberá rebajar en un presupuesto extraordinario y reducir los recursos presupuestarios del servicio de la deuda. (El monto de endeudamiento autorizado).
+Durante el segundo semestre de 2020 no podrá ser utilizada ninguna plaza vacante y deberá ser eliminada como código y rebajada del presupuesto de la República, a excepción de:
+-El cinco por ciento (5%) de las plazas de cada institución destinadas al cumplimiento de la Ley 8862, Inclusión y Protección Laboral de Personas con Discapacidad en el Sector Público, de 16 de setiembre de 2010.
+-El veinte por ciento (20%) de las plazas del Ministerio de Educación Pública (MEP)
+-El cincuenta por ciento (50%) de las plazas del Ministerio de Salud.
+-El cuarenta por ciento (40%) de las plazas destinadas a guardaparques con autoridad de policía, del Ministerio de Ambiente y Energía (Minae).
+-La Policía penitenciaria, el personal técnico de la Dirección General de Adaptación Social y el personal de salud vinculado directamente con la emergencia COVID-19, del Ministerio de Justicia y Paz.
+-Las plazas asignadas a la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias.
+-El ochenta y cinco por ciento (85%) de las plazas del servicio exterior de la República, por su particularidad en el sistema de rotación de este y para lograr el cumplimiento de los concursos que se encuentran en proceso.
+-Las plazas del Instituto Costarricense de Investigación y Enseñanza en Nutrición y Salud (Inciensa), en su calidad de laboratorio oficial del Ministerio de Salud, en lo relativo a los recursos ya utilizados o programados para atender la emergencia causada por la COVID-19.
+-Las plazas en el Ministerio de Seguridad Pública.
+Para este único propósito, el Poder Ejecutivo deberá presentar, a la Asamblea Legislativa, una modificación presupuestaria a más tardar el 1 de octubre de 2020."
+Debe decir:
+12) Toda plaza vacante incluida en este presupuesto no podrá utilizarse durante el 2020, salvo que sea autorizada por la Secretaría Técnica de la Autoridad Presupuestaria. El Poder Ejecutivo queda autorizado a presentar una modificación presupuestaria para el rebajo de los montos de aquellas subpartidas respectivas de dichas plazas vacantes. El rebajo no podrá ser utilizado en nuevo gasto corriente.
+Como parte del expediente legislativo de dicha modificación presupuestaria, el Poder Ejecutivo deberá incluir el listado completo de todas las plazas vacantes de todo el presupuesto de la República por título, programa y subprograma presupuestario al que pertenece, el código de la plaza y el monto del salario.
+Todas las instituciones que conforman el presupuesto de la República para el ejercicio económico 2020 estarán en la obligación de remitir a la Secretaría Técnica de la Autoridad Presupuestaria (STAP) un informe de las plazas vacantes que consigne el número de puesto, el código y el nombre de la clase, así como la información que indique desde cuándo está vacante y el costo mensual de esta.
+Dicha dependencia deberá enviar trimestralmente un informe de las plazas vacantes a la Contraloría General de la República de la Asamblea Legislativa, a más tardar quince días naturales luego de vencido el trimestre correspondiente.
+Rige a partir de su publicación en La Gaceta.
+Dado en la Presidencia de la República, San José, a los veinte días del mes de noviembre del año dos mil veinte.
+EJECÚTESE Y PUBLIQUESE.
