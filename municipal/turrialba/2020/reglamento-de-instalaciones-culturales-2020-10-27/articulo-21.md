@@ -1,0 +1,3 @@
+Artículo 21.—Del Administrador. La Junta Administradora podrá por acuerdo tomado mediante mayoría calificada, de nombrar un administrador. Para dicho acto, deberá contar con un informe aprobatorio de la Alcaldía Municipal.
+Para lo cual deberán publicar el concurso mediante las páginas oficiales de la Municipalidad. En caso de que dicho Administrador no sea Ad- Honorem, deberá la Alcaldía Municipal mediante los departamentos correspondientes, establecer el perfil, tipo de contrato y recursos económicos con los que se pagará el mismo.
+La persona designada deberá cumplir con lo dispuesto en el párrafo segundo del artículo 14 del presente Reglamento.

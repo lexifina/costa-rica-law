@@ -1,0 +1,1 @@
+Artículo 6º—Administración. La administración y el mantenimiento de las instalaciones municipales Culturales estará a cargo de la Junta Administradora, y que será descrita en el Capítulo II del presente Reglamento.

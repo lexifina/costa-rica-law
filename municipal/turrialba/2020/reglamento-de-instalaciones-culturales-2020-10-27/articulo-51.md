@@ -1,0 +1,1 @@
+Artículo 51.—Exposiciones temporales. Se permitirán exposiciones temporales con el fin de dar acceso a la mayor cantidad de artistas, y los periodos serán definidos discrecionalmente por la Oficina de Gestión Cultural en coordinación con la Junta Administradora.

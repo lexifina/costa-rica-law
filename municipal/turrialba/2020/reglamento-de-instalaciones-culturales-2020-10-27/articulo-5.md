@@ -1,0 +1,1 @@
+Artículo 5º—Responsable de la administración de las instalaciones. El cumplimiento del presente Reglamento, leyes conexas y fines de los inmuebles destinados a eventos culturales estará a cargo de la Junta Administradora.

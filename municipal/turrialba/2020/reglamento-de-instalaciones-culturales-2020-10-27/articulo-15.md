@@ -1,0 +1,1 @@
+Artículo 15.—La Junta Administradora fungirá en sus funciones por dos años desde el momento de su juramentación. Los miembros de la Junta Administradora serán nombrados por dos años y podrán ser reelectos por hasta un periodo más y en caso de renuncia el que lo sustituya lo hará por el resto del período.

@@ -1,0 +1,1 @@
+Artículo 10.—Destino de los ingresos generados por las instalaciones culturales. Todos los ingresos que generen las instalaciones municipales culturales contempladas en este reglamento por uso y otros servicios que se presten, se invertirán en el mantenimiento o compra de bienes para las instalaciones culturales municipales o en los proyectos y programas del área Sociocultural.

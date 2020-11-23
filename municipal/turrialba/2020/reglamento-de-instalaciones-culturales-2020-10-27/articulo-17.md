@@ -1,0 +1,1 @@
+Artículo 17.—La Junta Administradora sesionará ordinariamente al menos una vez al mes y extraordinariamente cuando lo cite el presidente, o a petición de la mayoría calificada, con dos días de anticipación a la fecha que se señale para la celebración de la sesión, debiendo acompañar el orden del día y los documentos necesarios a conocer.

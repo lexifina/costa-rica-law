@@ -1,0 +1,1 @@
+Artículo 58.—Convenios. Cuando las actividades consignadas en el artículo anterior se prolonguen por más de un mes calendario, deberá establecerse un convenio aprobado por el Concejo Municipal. Toda persona física o jurídica con la que se entable un convenio debe cumplir lo establecido en la Ley 9110 “Ley de patentes del Cantón de Turrialba” según corresponda.
