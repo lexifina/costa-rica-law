@@ -1,0 +1,8 @@
+Artículo 14.—De los motivos para la desestimación y archivo de la denuncia. La Auditoría interna podrá desestimar y ordenar el archivo de una denuncia:
+a. Si la denuncia no corresponde al ámbito de competencia descrito en el artículo 2 de estas regulaciones.
+b. Si la denuncia se refiere a intereses particulares exclusivos de los denunciantes en relación con conductas ejercidas u omitidas por funcionarios de la Municipalidad de Montes de Oca, salvo que de la información aportada en la denuncia se logre determinar la existencia de aspectos relevantes que ameritan ser investigados por la Auditoría Interna.
+c. Si los hechos denunciados corresponde investigarlos o ser discutidos exclusivamente en otras sedes, ya sean administrativas o judiciales.
+d. Si se estima, producto de un análisis de costo - beneficio que el costo de la investigación pudiera ser superior al beneficio que se obtendría al atender la denuncia. Para dichos efectos se dejará constancia del análisis realizado.
+e. Si el asunto planteado ante la Auditoría Interna, está siendo investigado por otras instancias de la administración activa con potestades para realizar la investigación. La Auditoría Interna coordinará lo pertinente con esas unidades, a efecto de no duplicar el uso de recursos públicos.
+f. Si la denuncia presentada fuera una reiteración o reproducción de otras denuncias similares, sin aportar elementos nuevos y que ya hubieran sido resueltas con anterioridad por la Auditoría Interna o por otras unidades de la administración activa.
+g. Si la denuncia omite alguno de los requisitos esenciales mencionados en el artículo 6 de este reglamento.

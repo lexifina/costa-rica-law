@@ -1,0 +1,4 @@
+Artículo 21.—Del seguimiento de los resultados y atención de las denuncias. La Auditoría Interna dará seguimiento a la resolución final de los informes resultantes de la investigación de las denuncias tramitadas, para verificar la debida atención de las recomendaciones emitidas, así como de las denuncias que remita a la administración activa para verificar que las mismas sean atendidas en forma oportuna y completa.
+Proyecto: Acuerdo definitivamente aprobado por el Concejo Municipal de Montes de Oca, en la Sesión Ordinaria N° 13-2020, artículo N° 7, punto N° 7, del día 27 de julio del 2020
+Primera publicación en el Diario Oficial La Gaceta Nº 252 del día viernes 16 de octubre del 2020.
+Reglamento: Acuerdo definitivamente aprobado por el Concejo Municipal de Montes de Oca en la sesión ordinaria N° 27-2020, artículo N° 8.3, del día 02 de noviembre del 2020

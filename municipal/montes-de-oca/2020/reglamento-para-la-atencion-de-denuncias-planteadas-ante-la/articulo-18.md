@@ -1,0 +1,1 @@
+Artículo 18.—De los procedimientos de Auditoría. La Auditoría Interna utilizará los procedimientos establecidos en el Manual de Procedimientos de la Auditoría Interna de la Municipalidad de Montes de Oca, en el Normas para el ejercicio de la auditoría interna en el sector público (R-DC-119-2009) y las Normas Generales de Auditoría para el Sector Público (R-DC-064-2014).

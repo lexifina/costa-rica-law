@@ -1,0 +1,3 @@
+CAPÍTULO III
+Sobre el trámite de las denuncias
+Artículo 6º—Recibo de denuncia. La Auditoría Interna recibirá las denuncias de forma física en su oficina, o bien por los medios electrónicos que la Auditoría Interna ponga a disposición para tal efecto. También de manera verbal, cuando las circunstancias así lo exijan. En este último caso, el denunciante deberá comparecer personalmente ante la Auditoría Interna y expresar de modo oral su denuncia. El Auditor Interno valorará la admisibilidad de las mismas conforme a lo que dicta la Sección Segunda del Reglamento a la Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública, y lo estipulado en este Reglamento.
