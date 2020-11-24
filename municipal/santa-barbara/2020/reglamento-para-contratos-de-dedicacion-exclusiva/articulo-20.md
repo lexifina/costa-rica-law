@@ -1,0 +1,1 @@
+Artículo 20.—El contrato debe ser tramitado en original para la Institución, y cinco copias: una para la Alcaldía, una para la Unidad de Talento Humano, una para la Auditoría Interna; una para el expediente del funcionario; y una para el empleado municipal.

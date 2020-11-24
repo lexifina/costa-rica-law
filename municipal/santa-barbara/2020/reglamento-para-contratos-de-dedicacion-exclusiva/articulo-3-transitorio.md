@@ -1,0 +1,1 @@
+TRANSITORIO III.—Las demás condiciones contractuales en que se haya pactado la dedicación exclusiva con antelación a la entrada en vigor de la Ley 9635 y con base en el Reglamento para la aplicación de la dedicación exclusiva serán respetadas, siempre y cuando no contravengan lo dispuesto por la ley, y hasta que se extinga el contrato.

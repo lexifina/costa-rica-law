@@ -1,0 +1,1 @@
+Artículo 6°—El plazo de este contrato no podrá ser menor de un año, ni mayor de cinco. Dicho beneficio se encuentra sujeto al plazo pactado entre la Municipalidad y la persona servidora, y con su firma no surge derecho adquirido o permanente a que el beneficio se continúe otorgando a través de la renovación del contrato.

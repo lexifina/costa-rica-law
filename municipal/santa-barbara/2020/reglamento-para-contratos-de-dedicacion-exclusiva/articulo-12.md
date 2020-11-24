@@ -1,0 +1,1 @@
+Artículo 12.—Será obligación de todos los funcionarios que ostenten contrato de dedicación exclusiva, entregar al menos cada seis meses copia del comprobante de pago de sus obligaciones al Colegio Profesional respectivo.
