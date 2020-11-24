@@ -1,17 +1,22 @@
 9. Servicios de Adquirencia
-9.1.- Comisiones a negocios afiliados
-$10.00 mensual por P.O.S. instalado en comercios afiliados con facturación mensual inferior a $500.00.
-9.2.- Comisión por afiliación al servicio de adquirencia
-$60 a todos los comercios nuevos que deseen afiliarse al servicio de adquirencia BCR; esta comisión se cobrará una única vez.
-9.3.-Comisión por confección de máquina manual a los comercios afiliados (Derogado este punto mediante sesión N° 24-2020 del 23 de junio del 2020)
-9.4.-Cobro administrativo en tarjetas de crédito por la conversión de compra en comercios a la modalidad Plan BCR 0%.
-- 3 cuotas: 3% sobre el monto de la transacción a convertir
-- 6 cuotas: 7% sobre el monto de la transacción a convertir.
-- 9 cuotas: 10% sobre el monto de la transacción a convertir.
-9.5.- Comisión por cambio de razón social de comercio afiliado
-$60 por cada cambio de razón social que solicite el comercio afiliado.
-9.6.-Implementación del servicio de comercio electrónico (E-Commerce)
-$50.00 por cada implementación, una única vez.
+9.1.- Tarifa por reposición o daño parcial de datáfono (POS) extraviados, por mal uso o con daño irreparable por el comercio afiliado
+En caso de reposición el costo del equipo dependerá del valor de mercado en el momento de la reposición. En el caso de daños parciales dependerá del costo de los repuestos y de la atención de la avería según el valor de mercado.
+(Así reformado el punto 9.1) anterior mediante sesión N° 48-2020 del 24 de noviembre del 2020. La tarifa original “9.1.- Comisiones a negocios afiliados” fue derogada en esta misma sesión)
+9.2.- Comisión por alquiler de la terminal de punto de venta y de la tecnología de comunicación ¢20.000 mensuales por POS instalado.
+(Así reformado el punto 9.) anterior mediante sesión N° 48-2020 del 24 de noviembre del 2020. La tarifa original “9.2.- Comisión por afiliación al servicio de adquirencia” fue derogada en esta misma sesión)
+9.3. - Comisión por el servicio de Adquirencia para comercios afiliados
+Las siguientes categorías se rigen como excepción al porcentaje que el Banco Central de Costa Rica (BCCR) indique en acatamiento con la Ley 9831 y sus modificaciones:
+- Estaciones de servicio
+- Organizaciones de beneficencia
+- Servicios de transporte regulados por la Autoridad Reguladora de los Servicios Públicos (ARESEP).
+- Peajes
+Para las demás actividades comerciales regirá también la comisión pactada por el Banco Central de Costa Rica (BCCR)
+(Así reformado el punto 9.3) anterior mediante sesión N° 48-2020 del 24 de noviembre del 2020)
+9.4.-Cobro administrativo en tarjetas de crédito por la conversión de compra en comercios a la modalidad Plan BCR 0%. (Derogado mediante sesión N° 48-2020 del 24 de noviembre del 2020)
+9.5.- Comisión por cambio de razón social de comercio afiliado (Derogado mediante sesión N° 48-2020 del 24 de noviembre del 2020)
+9.6- Tarifa por reposición de dispositivo lector para MPOS extraviados o con daño irreparable por el comercio afiliado:
+El costo del equipo depende del valor de mercado en el momento de la reposición. En el caso de daños parciales dependerá del costo de los repuestos y de la atención de la avería según el valor de mercado.
+(Así reformado el punto 9.6) anterior mediante sesión N° 48-2020 del 24 de noviembre del 2020. La tarifa 9.6.-Implementación del servicio de comercio electrónico (E-Commerce), fue derogada en esta misma sesión)
 9.7.-Protección transacciones comercio electrónico (autenticación 3D secure)
 $300,00 anuales por comercio afiliado por año adelantado
 9.8.-Tarifa por reposición de datáfono (POS) extraviados o con daño irreparable por el comercio afiliado.
@@ -33,8 +38,7 @@ El costo del equipo depende del valor de mercado en el momento de la reposición
 - Para 16 meses 22,07%
 - Para 24 meses 24.52%
 (Así reformado mediante sesión N° 03-17 del 18 de enero del 2017)
-9.13.-Comisión por alquiler de dispositivo lector para MPOS:
-$12 mensuales por cada Dispositivo Lector de MPOS instalado.
+9.13.-Comisión por alquiler de dispositivo lector para MPOS: (Derogado mediante sesión N° 48-2020 del 24 de noviembre del 2020)
 (Así adicionado el punto 9.13) anterior mediante sesión N° 62-18 del 10 de diciembre del 2018)
 9.14.-Tarifa por reposición de dispositivo lector para MPOS extraviados o con daño irreparable por el comercio afiliado:
 El costo del equipo depende del valor de mercado en el momento de la reposición.

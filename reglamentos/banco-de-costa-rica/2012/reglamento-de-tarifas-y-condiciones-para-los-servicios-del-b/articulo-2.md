@@ -20,18 +20,20 @@ $15.00
 $20.00
 (Así reformado el punto 2.3) anterior mediante sesión N° 03-17 del 18 de enero del 2017)
 2.4.- Nota de débito generada por la devolución de un cheque defectuoso
-(no se incluyen cheques con fondos insuficientes a los cuales se les aplicará la tarifa establecida en el punto 2.14 de este mismo apartado)
-$4.00 más gastos del corresponsal.
-(Así reformado el punto 24.4) anterior mediante sesión N° 03-17 del 18 de enero del 2017)
+$10.00 más gastos del corresponsal.
+(Así reformado el punto 2.4) anterior mediante sesión N° 48-2020 del 24 de noviembre del 2020)
 2.5.- Chequeras
-Colones y Dólares $6.00
-(Así reformado el punto 2.5) anterior mediante sesión N° 03-17 del 18 de enero del 2017)
-2.6.- Traspaso de fondos entre cuentas corrientes y de ahorros de forma manual en las plataformas y mediante el servicio telefónico Tucán.
-$5.00 por cada traspaso excepto:
-- El cobro de la comisión cuando BCR Empresas o BCR Comercial este fuera de servicio o tengan problemas de clave.
+$ 15 + IVA colones y dólares.
+(Así reformado el punto 2.5) anterior mediante sesión N° 48-2020 del 24 de noviembre del 2020)
+2.6. Traspaso de fondos entre cuentas corrientes y de ahorros de forma manual en las plataformas.
+$5.00 por cada traspaso de dinero.
+Se exceptúa del cobro de esta comisión en las siguientes situaciones:
+- Cuando BCR Empresas o BCR Comercial este fuera de servicio o tengan problemas de clave.
 - A las empresas que por cambios administrativos, se queden sin firmas o autorizados para procesar BCR Empresas o BCR Comercial.
 - Cuando el cliente realice compras y ventas de dólares.
-(Así reformado el punto 2.6) anterior mediante sesión N° 03-17 del 18 de enero del 2017)
+- El cliente tiene derecho a realizar sin costo un traslado de dinero a la cuenta de un tercero por un monto igual, mayor o menor al solicitado, a partir de la segunda solicitud, aplica el cobro de $5.00 por cada traslado (depósito) adicional.
+- Cuando el cliente no pueda realizar el traspaso de fondos en los medios electrónicos existentes debido a limitantes en los montos máximos o porque estén fuera de servicio.
+(Así reformado el punto 2.6) anterior mediante sesión N° 48-2020 del 24 de noviembre del 2020)
 2.7.- Cuentas corrientes y de ahorro inactivas (540 días de inactividad)
 2.7.1 Saldos inferiores a $50.00 (cuentas en colones)
 $10.00 cada mes hasta su liquidación
@@ -42,37 +44,26 @@ $10.00 cada mes hasta su liquidación
 Bolso $30.00
 Llave $25.00
 (Así reformado el punto 2.8) anterior mediante sesión N° 03-17 del 18 de enero del 2017)
-2.9.- Confección y entrega de efectivo (diferentes denominaciones de billetes) a solicitud del cliente en ventanilla o para ser enviado por transportadora de valores
+2.9.- Confección y entrega de efectivo (diferentes denominaciones de billetes) a solicitud del cliente en ventanilla o para ser enviado por transportadora de valores.
+(Así reformado el punto 2.9) anterior mediante sesión N° 48-2020 del 24 de noviembre del 2020)
 2.9.1 Confección y entrega ventanilla
 2.00% sobre el monto. Mínimo $20.00
 2.9.2 Confección de planillas para ser enviado por transportadora de valores
 $18.00 la confección
-2.9.3 Envío de planillas con el servicio de Transporte de valores
-1 - Para clientes cuyas solicitudes son recibidas y enviadas desde las tesorerías regionales ubicadas en la Gran Área Metropolitana (GAM), Hasta ¢ 6.000.000.00 cobrar la suma de:
-a)$23.00 remeseras propias/recolección.
-Sobre el exceso de los ¢6.000.000.00 se aplicará la siguiente fórmula: (M.E./T.C.)*0.000572
-Monto del excedente, dividido entre el tipo de cambio de venta del dólar del último día hábil del mes por 0.000572.
-Este factor corresponde a los $2.00 por cada $3.500.00 adicionales.
-Los montos sobre los cuales se realizaran los cobros, son los declarados en las planillas de conducción.
-b)Con remeseras externas se cobrará el monto negociado con cada empresa adjudicataria, de conformidad con en el cartel de licitación y la oferta recibida por dichas empresas. (Segúncuadro1)
-2-Para clientes cuyas solicitudes son recibidas y enviadas desde las tesorerías regionales ubicadas fuera de la (GAM):
-Hasta ¢6.000.000.00 cobrar la suma de:
-a)$29.00 remeseras propias/recolección.
-Sobre el exceso de los ¢6.000.000.00 se aplicará la siguiente fórmula: (M.E./T.C.)*0.000572
-Monto del excedente, dividido entre el tipo de cambio de venta del dólar del último día hábil del mes por 0.000572.
-Este factor corresponde a los $2.00 por cada $3.500.00 adicionales.
-Los montos sobre los cuales se realizaran los cobros, son los declarados en las planillas de conducción.
-b)Con remeseras externas se cobrará el monto negociado con cada empresa adjudicataria, de conformidad con el cartel de licitación y la oferta recibida por dichas empresas.
-Nota:
-Cualquier tarifa que no sea la establecida en este punto debe ser consultada con la oficina de operaciones de administración de efectivo.
+(*) 2.9.3 Envío de planillas con el servicio de transporte de valores
+1 - Para clientes cuyas solicitudes son recibidas y enviadas desde las tesorerías regionales ubicadas en la Gran Área Metropolitana (GAM),
+a) $23.00 remeseras propias/recolección.
+b) Con remeseras externas se cobrará el monto negociado con cada empresa adjudicataria, de conformidad con en el cartel de licitación y la oferta recibida por dichas empresas. El costo deberá ser consultado con la Gerencia de Administración del Efectivo quien es la responsable del control y seguimiento de los contratos con las empresas trasportadoras privadas. Lo anterior en razón que los contratos poseen cláusulas de ajustes de tarifas si el proveedor lo considera pertinente.
+2- Para clientes cuyas solicitudes son recibidas y enviadas desde las tesorerías regionales ubicadas fuera de la (GAM):
+a) $29.00 remeseras propias/recolección.
+b) Con remeseras externas se cobrará el monto negociado con cada empresa adjudicataria, de conformidad con el cartel de licitación y la oferta recibida por dichas empresas.El costo deberá ser consultado con la Gerencia de Administración del Efectivo quien es la responsable del control y seguimiento de los contratos con las empresas trasportadoras privadas. Lo anterior en razón que los contratos poseen cláusulas de ajustes de tarifas si el proveedor lo considera pertinente.
+(*)(Así reformado el punto 2.9.3) anterior mediante sesión N° 48-2020 del 24 de noviembre del 2020)
 (Así reformado el punto 2.9) anterior mediante sesión N° 62-18 del 10 de diciembre del 2018)
-2.10.- Descongelamiento de fondos (descongelamiento de recursos depositados en cuenta corriente y cuenta de ahorros por medio de cheques)
+2.10.- Descongelamiento de fondos (descongelamiento de recursos depositados en cuenta corriente y cuenta de ahorros)
 0.10% sobre los fondos utilizados en moneda nacional y moneda extranjera.
-(Así reformado el punto 2.10) anterior mediante sesión N° 03-17 del 18 de enero del 2017)
-2.11.- Entrega de monedas en bolsas predefinidas exclusivo para clientes del BCR
-Entrega de monedas en bolsas predefinidas exclusivo para clientes del BCR.
-$6.00 para retiros menores o iguales a $200.00 (o su equivalente en colones). Para montos superiores a $200.00 un 4.00% sobre el monto
-(Así reformado el punto 2.11) anterior mediante sesión N° 62-18 del 10 de diciembre del 2018)
+(Así reformado el punto 2.10) anterior mediante sesión N° 48-2020 del 24 de noviembre del 2020)
+2.11.- Entrega de monedas en bolsas predefinidas exclusivo para clientes del BCR 4.00% sobre el monto, mínimo $ 6.00.
+(Así reformado el punto 2.11) anterior mediante sesión N° 48-2020 del 24 de noviembre del 2020)
 2.12.-Cancelación anticipada de los CDP desmaterializados y electrónicos colones y dólares
 Se requiere que el CDP posea como mínimo un 25% de permanencia en el plazo establecido cuando son menores a un año, para plazos mayores, su permanencia tendrá que ser como mínimo de tres meses. La comisión se cobra sobre el principal del CDP, más los intereses vigentes por pagar. Aplicando el 50% de la tasa pasiva vigente del día de la cancelación para el plazo original del CDP, multiplicando ese resultado por el número de días por vencer, dividido por 360.
 Comisión mínima $10.
@@ -87,12 +78,17 @@ $20 más gastos del corresponsal
 $25.00
 (Así reformado el punto 2.15) anterior mediante sesión N° 03-17 del 18 de enero del 2017)
 2.16.- Recolección depósitos especiales con el servicio de transporte de Valores
-1 -Para clientes cuyos depósitos son recolectados y contabilizados en las tesorerías regionales ubicadas en el Gran Área Metropolitana (GAM),
+1 - Para clientes cuyos depósitos son recolectados y contabilizados en las tesorerías regionales ubicadas en la Gran Área Metropolitana (GAM).
+(Así reformado el punto 1) anterior mediante sesión N° 48-2020 del 24 de noviembre del 2020)
 a)$23.00 remeseras propias/recolección.
-b)Con remeseras externas se cobrará el monto negociado con cada empresa adjudicataria, de conformidad con en el cartel de licitación y la oferta recibida por dichas empresas. (Segúncuadro adjunto)
-2-Para clientes cuyos depósitos son recolectados, contabilizados en las tesorerías regionales ubicadas fuera del (GAM)
+b) Con remeseras externas se cobrará el monto negociado con cada empresa adjudicataria, de conformidad con en el cartel de licitación y la oferta recibida por dichas empresas. El costo deberá ser consultado con la Gerencia de Administración del Efectivo quien es la responsable del control y seguimiento de los contratos con las empresas trasportadoras privadas. Lo anterior en razón que los contratos poseen cláusulas de ajustes de tarifas si el proveedor lo considera pertinente.
+(Así reformado el inciso b) anterior mediante sesión N° 48-2020 del 24 de noviembre del 2020)
+2- Para clientes cuyos depósitos son recolectados, contabilizados en las tesorerías regionales ubicadas fuera de la (GAM).
+(Así reformado el punto 2) anterior mediante sesión N° 48-2020 del 24 de noviembre del 2020)
 a)$29.00 remeseras propias/recolección.
-b)Con remeseras externas se cobrará el monto negociado con cada empresa adjudicataria, de conformidad con el cartel de licitación y la oferta recibida por dichas empresas. (Según cuadro adjunto)
+b) Con remeseras externas se cobrará el monto negociado con cada empresa adjudicataria, de conformidad con el cartel de licitación y la oferta recibida por dichas empresas. El costo deberá ser consultado con la Gerencia de Administración del Efectivo quien es la responsable del control y seguimiento de los contratos con las empresas trasportadoras privadas. Lo anterior en razón que los contratos poseen cláusulas de ajustes de tarifas si el proveedor lo considera pertinente.
+Nota: Cualquier tarifa que no sea la establecida en este punto debe ser consultada con la oficina de Operaciones de Administración de Efectivo.
+(Así reformado el inciso b) anterior mediante sesión N° 48-2020 del 24 de noviembre del 2020)
 CASH LOGISTICS S.A
 (Así reformado el punto 2.16) anterior mediante sesión N° 62-18 del 10 de diciembre del 2018)
 2.17.-Retiro de efectivo en ventanilla, pensionados de la C.C.S.S.
@@ -105,25 +101,24 @@ Nota: la tabla para el cálculo de la comisión se encuentra disponible en SOMOS
 Se cobrará tasa para los sobregiros, proporcional al número de días de su utilización.
 Mínimo $10.00
 (Así reformado el punto 2.18) anterior mediante sesión N° 03-17 del 18 de enero del 2017)
-2.19.-Traslado de expedientes judiciales a cuenta corriente o ahorros para cobros masivos
+2.19.-Traslado automático de expedientes judiciales a cuenta corriente o ahorros para cobros masivos
 $1.00 por traspaso
-(Así reformado el punto 2.19) anterior mediante sesión N° 03-17 del 18 de enero del 2017)
+(Así reformado el punto 2.19) anterior mediante sesión 48-2020 del 24 de noviembre del 2020)
 2.20.-Cuentas corrientes y de ahorro del BCR, utilizadas por emisores de tarjetas y entidades financieras y no financieras
 $4.00 por cada movimiento (débitos y créditos) sean estos físicos o electrónicos, a todas las cuentas bancarias que se compruebe que están utilizando la infraestructura (oficinas y canales electrónicos) del BCR, como instrumentos para el desarrollo de sus negocios financieros.
 (Así reformado el punto 2.20) anterior mediante sesión N° 03-17 del 18 de enero del 2017)
-2.21.-Órdenes de pago (transferencia) a otras oficinas bancarias
-Se aplica el equivalente al tipo de cambio de venta.
-Sistema no permite transacciones mayores a $1.000 o su equivalente en colones
+2.21.-Órdenes de pago (transferencia) a otras oficinas bancarias (Derogado mediante sesión N° 48-2020 del 24 de noviembre del 2020)
 (Así reformado el punto 2.21) anterior mediante sesión N° 62-18 del 10 de diciembre del 2018)
 2.22.-Servicio de investigación de documentos o información que solicitan los clientes, para localizar comprobantes de caja y otros
 2.22.1 $6.00 las primeras 6 páginas de microfilm y $1.20 por cada página adicional.
 2.22.2 Comprobantes de caja, imágenes digitalizadas y otros $2.00 máximo tres copias, $0.50 por cada copia adicional.
 (Así reformado el punto 2.22) anterior mediante sesión N° 62-18 del 10 de diciembre del 2018)
-2.23.-Comisión por retiros masivos de sumas en expedientes judiciales en ventanilla
+2.23.- Comisión por retiros masivos de sumas en expedientes judiciales en ventanilla
 Se cobrará $ 2.00 por cada retiro en ventanilla
 Nota:
-Se considera un retiro masivo a partir de 10 retiros, el cobro aplica sólo cuando el beneficiario de las sumas sean personas jurídicas.
-(Así reformado el punto 2.23) anterior mediante sesión N° 03-17 del 18 de enero del 2017)
+Se considera un retiro masivo a partir de 10 retiros.
+Se exceptúan del cobro de comisión, los casos que provienen de pensiones alimenticias y alquileres.
+(Así reformado el punto 2.23) anterior mediante sesión N° 48-2020 del 24 de noviembre del 2020)
 2.24.-Nota de débito en cuenta corriente, para retiro de efectivo en ventanilla
 Costo de la comisión por cada nota de débito $ 5.00
 Nota:
@@ -148,8 +143,8 @@ o Los pagos por servicios que se realicen por medio de las plataformas electrón
 4% sobre la venta, sin importar el monto.
 (Así reformado el punto anterior mediante sesión N° 62-18 del 10 de diciembre del 2018)
 2.31.- Cobro de comisión por cheques tramitados a través de la Cámara de Compensación
-$1.00 el primer año y $0.5 de incremento adicional por cada año consecutivamente. Dicha comisión fue establecida por el Banco Central de Costa Rica.
-(Así reformado el punto anterior mediante sesión N° 62-18 del 10 de diciembre del 2018)
+$3.00 por cada cheque BCR tramitado a través de Cámara de Compensación y que utilice la plataforma del BCCR.
+(Así reformado el punto2.31) anterior mediante sesión N° 48-2020 del 24 de noviembre del 2020)
 2.32.- Cobros por depósitos masivos en cuentas depositadas desde el canal Tucán
 $2.00 por cada depósito o nota de crédito sean estos físicos o electrónicos, a todas las cuentas bancarias que se compruebe que están recibiendo más de 50 acreditaciones mensuales, durante el último mes, desde puntos Tucán. El cobro se realizará por la totalidad de acreditaciones recibidas en la cuenta (a partir del depósito 1).
 (Así reformado el punto anterior mediante sesión N° 62-18 del 10 de diciembre del 2018)
@@ -169,7 +164,8 @@ Nota:
 Se considera un retiro masivo a partir de 10 retiros, el cobro aplica sólo cuando el beneficiario de las sumas sean personas jurídicas.
 (Así reformado el punto 2.34) anterior en sesión N° 44 del 14 de octubre de 2015)
 (Nota de Sinalevi: Mediante sesión N° 62-18 del 10 de diciembre del 2018, se reforma el punto 2.34) anterior. No obstante al no coincidir el texto con la reforma la misma se transcribe a continuación: “2.34. -Servicio por examinar videos BCR
-$25.00 por examinar cada video de seguridad.
+$40.00 por examinar cada video de seguridad.
+(Así reformado el punto anterior en sesión N° 48-2020 del 24 de noviembre del 2020)
 Nota:
 Se cobra esta comisión por cada video revisado en cassette o digital. “)
 2.35.- Nota de débito en cuenta corriente, para retiro de efectivo en ventanilla
@@ -190,6 +186,11 @@ b)$23.00 remeseras propias.
 Cuadro 2
 Cuadro 2,1
 ”)
+(Nota de Sinalevi: Mediante sesión N° 48-2020 del 24 de noviembre del 2020 se reforma el punto 2.36). No obstante al no coincidir la reforma la misma se transcribe a continuación :” 2.36 Comisión por depósitos en efectivo en dólares americanos
+0.65 % sobre todos los depósitos recibidos en efectivo en dólares americanos.
+Nota:
+Aplica para depósitos por un monto mayor o igual a $ 2,000.00 (Dos mil dólares americanos).”)
+(Nota de Sinalevi: Mediante sesión N° 48-2020 del 24 de noviembre del 2020 se ordena derogar el punto 2.36 denominado Servicio de recolección o entrega de valores a oficinas BCR por medio de la transportadora BCR o privada. No obsnate al no coincidir no se realizó la abrogación y se transacribe)
 2.37. Divisas depositadas por concepto de exportación en cuenta corriente/ ahorros
 Depósito cuenta en dólares 1.5%, mínima $10.00
 Depósito cuenta en colones 1.0%, mínima $10.00
@@ -206,10 +207,12 @@ Cuadro 4
 Cuadro 5
 ”)
 (Así reformado el punto 2.37) anterior en sesión N° 07-16 del 8 de febrero del 2016)
+(Nota de Sinalevi: Mediante sesión N° 48-2020 del 24 de noviembre del 2020 se ordena derogar el punto 2.37. denominado Servicio de atención de ATM a oficinas BCR por medio de la transportadora BCR o privadas. No obstante al no coincidir no se realizó la abrogación y se transcribe)
 2.38.- Comisión por retiro anticipado de un plan de ahorro automático
 Aplica la comisión del 3% sobre la totalidad del saldo ahorrado (principal más intereses), para los planes de ahorro automático cuyo plazo sea superior a 6 meses y se cancelen antes de los 181 días de permanencia.
 (Así reformado el punto 2.38) anterior en sesión 21 del 23 de mayo del 2016)
-(Nota de Sinalevi: Mediante sesión N° 24-2020 del 23 de junio del 2020 se reforma el punto 2.38) anterior. No obstante, al no coincidir el texto con la reforma la misma se transcribe a continuación: “2.38 Comisión por libros de depósito $2.00”)
+(Nota de Sinalevi: Mediante sesión N° 24-2020 del 23 de junio del 2020 se reforma el punto 2.38) anterior. No obstante, al no coincidir el texto con la reforma la misma se transcribe a continuación: “2.38 Comisión por libros de depósito $2.00 por cada libro de depósito+ IVA(*) ”)
+(*) (Así reformado en sesión N° 48-2020 del 24 de noviembre del 2020)
 2.39. Aplicación de planillas judiciales con fondos trasladados mediante Sinpe (no clientes BCR)
 $0.50 por cada registro
 (Así reformado el punto 2.39) anterior en sesión N° 07-16 del 8 de febrero del 2016)

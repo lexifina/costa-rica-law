@@ -30,3 +30,4 @@ Reglamento de tarifas y condiciones para los servicios del Banco de Costa Rica
 | 15 | 2018-12-10 | Reglamento 62 (2018-12-10) |
 | 16 | 2019-02-11 | Reglamento 7 (2019-02-11) |
 | 17 | 2020-06-23 | Reglamento 24 (2020-06-23) |
+| 18 | 2020-11-24 | Reglamento 48 (2020-11-24) |

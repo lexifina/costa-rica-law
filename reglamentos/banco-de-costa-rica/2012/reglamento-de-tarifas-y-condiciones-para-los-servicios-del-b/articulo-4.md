@@ -37,12 +37,8 @@ Cambio de Pin-Desbloqueo $5.00
 (*)(Así adicionado el inciso c) anterior al punto 4.7) mediante sesión N° 24-2020 del 23 de junio del 2020)
 (Así reformado el punto 4.7) anterior en sesión N° 49-18 del 24 de setiembre de 2018)
 4.8.- Servicio Quick Pass
-Servicio | Costo
-Adquisición del dispositivo | $35.00
-Mantenimiento mensual | $ 1.00
-Sustitución defecto de fábrica (garantía 4 años) | $ 0.00
-Remplazo por pérdida o daño | $35.00
-(Así reformado el punto 4.8) anterior en sesión N° 44 del 14 de octubre de 2015)
+[imagen]
+(Así reformado el punto 4.8) anterior en sesión N° 48-2020 del 24 de noviembre del 2020)
 4.9.- Transferencia por medio de web corporativo (Derogado este punto mediante sesión N° 24-2020 del 23 de junio del 2020)
 (Así reformado el punto 4.9) anterior en sesión N° 44 del 14 de octubre de 2015)
 4.10.- Bancatel Negocios (Derogado este punto mediante sesión N° 24-2020 del 23 de junio del 2020)
@@ -51,10 +47,15 @@ Remplazo por pérdida o daño | $35.00
 $2.00 por cada cheque del BNCR que sea cambiado en efectivo en cajas BCR.
 (Así adicionado el punto 4.11 anterior mediante sesión 24-13 del 24 de junio del 2013)
 (Así reformado el punto 4.11) anterior en sesión N° 44 del 14 de octubre de 2015)
-4.12 Depósitos BNCR
+4.12.-Depósitos BNCR
 $2.00 por cada depósito a cuentas del BNCR realizado en cajas BCR.
+Si su aplicación es para depositar en BNCR se debe cobrar la comisión que establezca este reglamento para tal fin así como si el mismo es para pago de servicios públicos o conectividades
+Se exceptúa de este cobro cuando:
+- Sea depositado en cuenta del BCR
+- Sea para ser depositado a cuentas judiciales (depósitos automatizados o expedientes judiciales)
+- Sea para pagar una tarjeta u operación con el BCR
 (Así adicionado punto 4.12) anterior mediante sesión N° 43-14 del 6 de octubre del 2014)
-(Así reformado el punto 4.12) anterior en sesión N° 44 del 14 de octubre de 2015)
+(Así reformado el punto 4.12) anterior en sesión N° 48-2020 del 24 de noviembre del 2020)
 4.13. Depósitos BNCR
 $2.00 por cada depósito a cuentas del BNCR realizado en cajas BCR.
 (Así adicionado punto 4.13) anterior mediante sesión N° 43-14 del 6 de octubre del 2014)

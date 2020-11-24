@@ -1,13 +1,13 @@
 8. Evaluación de garantías reales
+Después de 90 días naturales posteriores al registro de cobro al cliente de las comisiones indicadas en este apartado, no aplican reintegros.
+(Así reformado el punto 8) anterior mediante sesión N° 48-2020 del 24 de noviembre del 2020)
 8.1.-Cobro de avalúos e inspecciones para operaciones de crédito y prórrogas, arreglos y otros
 Cuando los avalúos sean realizados por profesionales adscritos al Colegio Federado de Ingenieros y de Arquitectos de Costa Rica (CFIA), la comisión a cobrar será el monto que resulte de aplicar la siguiente fórmula:
-[imagen]
 En estos casos, el monto mínimo de la comisión será el equivalente a:
 6 * Hora profesional
 Donde: la hora profesional será la establecida por el CFIA y publicada en La Gaceta.
 El factor i, será el publicado en La Gaceta, vigente al momento de calcular la comisión.
 Cuando los avalúos sean realizados por profesionales adscritos al Colegio de Ingenieros Agrónomos (CIAgr), la comisión a cobrar será el monto que resulte de aplicar la siguiente fórmula:
-[imagen]
 En estos casos, el monto mínimo de la comisión será el equivalente a:
 3,4 * Hora profesional
 Donde: la hora profesional será la establecida por el CIAgr y publicada en La Gaceta.
@@ -32,6 +32,29 @@ j)Adicional a la comisión que se cobra por avalúo, para bienes a valorar en zo
 k)Si una vez realizado un avalúo el trámite de crédito no continúa, sea por decisión del cliente o del Banco, y la comisión pagada por el cliente es mayor a la tarifa mínima de avalúos, se le devolverá al cliente la diferencia.
 l)Cuando se soliciten varios avalúos para garantía de una misma operación, como inicialmente no se conoce el monto del resultado de los avalúos a realizar ni cuántos peritos participarán, el cobro de la comisión para el primer avalúo se hará con base en el monto dela solicitud, y para los restantes, se cobrará preliminarmente la comisión mínima establecida para avalúos. Una vez que se reciban los informes, se recalculará con base en el monto de la solicitud haciendo la distribución proporcional a cada perito según el resultado de las valoraciones realizadas, considerando siempre la comisión mínima por avalúo y devolviendo al cliente el sobrante de esa comisión.
 (Así reformado el punto 8.1) anterior mediante sesión N° 62-18 del 10 de diciembre del 2018)
+(Nota de Sinalevi: Mediante sesión N° 48-2020 del 24 de noviembre del 2020 se reforma el punto 8.1). N obstante al no coincidir la reforma la misma se transcribe a continuación :” 8.1.- Cobro de comisiones para cubrir gastos por la realización de avalúos
+[…]
+En estos casos, el monto mínimo de la comisión será el equivalente a:
+6 * Hora profesional
+Dónde: la hora profesional será la establecida por el CFIA y publicada en La Gaceta a diciembre del año anterior.
+El factor i, será el publicado en La Gaceta, vigente a diciembre del año anterior al momento de calcular la comisión.
+[…]
+El factor IPC, corresponde al Índice de precios al consumidor acumulado a diciembre del año anterior al cálculo.
+Al resultado de estos cálculos debe incluírsele el IVA.
+Consideraciones para todos los avalúos:
+[…]
+Para la administración del servicio requerido por el Banco en cada avalúo de inmueble agropecuario, no agropecuario de vivienda, y terrenos sin construcción, se cobra adicionalmente, una comisión de ¢16.167 + IVA.
+Para la administración del servicio requerido por el Banco en cada avalúo de vehículo o avalúo de conjuntos de vehículos, se cobra adicionalmente una comisión de ¢13.857 + IVA.
+Para la administración del servicio requerido por el Banco en cada avalúo de inmuebles especializados (industrias y otros), conjunto de inmuebles no agropecuarios, o maquinaria, se cobra adicionalmente una comisión de ¢27.715 + IVA.
+[…]
+b) […]
+La comisión por avalúos, podrá ser cobrada al cliente, solo si está incluida en el contrato de crédito. No se deben confundir estos avalúos con los requeridos para nuevos créditos, para ejecución de garantías, venta de bienes adjudicados u otros propósitos.
+c) En el caso de solicitudes de crédito para compra de lote y construcción o solo para construcción, siempre y cuando el monto del crédito sea superior al monto del avalúo, el cálculo de la comisión se hará sobre el monto del avalúo al ser este el monto máximo que podría respaldar esa garantía en ese momento. […]
+d) […]
+Si no es posible ingresar al inmueble, se debe realizar un informe de estimación de valor y la comisión será equivalente al 50% de la establecida para cobro judicial.
+[…]
+k) Si una vez realizado un avalúo para crédito, el trámite no continúa por faltante de garantía, se le devolverá al cliente la diferencia, resultante del cálculo, con base al avalúo realizado, y de la comisión cobrada inicialmente correspondiente a ese servicio técnico. Si el crédito no continúa por cualquier otra razón, no se realizarán devoluciones.
+l) Cuando se soliciten varios avalúos de una misma operación, el cobro de la comisión se hará considerando el monto base del crédito y por cada avalúo adicional se cobrará preliminarmente una comisión del mínimo establecida para avalúos. Una vez que se reciban todos los informes si la suma de los pagos por avalúos es menor que el monto de la comisión según el crédito solicitado se paga con la fórmula para el cobro de comisiones para cubrir gastos por la realización de avalúos, usando como base el resultado de cada avalúo. Si el monto a pagar por los avalúos es mayor o igual que la comisión calculada con base al monto del crédito, la distribución de los pagos por estos trabajos se realiza en forma proporcional en relación con el total valorado, aplicado a la comisión según monto de crédito. Posteriormente, debe verificarse en todos los casos donde exista un informe de avalúo, se cumpla al menos con el pago mínimo establecido, devolviendo al cliente el sobrante.”)
 8.2.- Inspecciones previas
 Las que son requeridas en el estudio y análisis de una solicitud de crédito y son efectuadas por profesionales designados por el Banco.
 Para la administración del servicio requerido por el Banco por cada inspección, se cobra adicionalmente, una comisión de ¢6.929.
@@ -40,41 +63,61 @@ Cuando el mismo profesional al que le corresponde valorar la finca donde se llev
 8.2.2 Inspecciones previas de otras actividades no agropecuarias
 El cálculo de la comisión por inspecciones previas de otras actividades no agropecuarias es sobre el monto del crédito y corresponde al 25% de la tarifa por concepto de avalúos.
 El cobro mínimo para una inspección previa es igual al mínimo establecido para avalúo.
-8.3.- Inspecciones para verificar el cumplimiento de alguna condición de la garantía:
-8.3.-Inspecciones para verificar el cumplimiento de alguna condición de la garantía:
-Para la administración del servicio requerido por el Banco por cada inspección, se cobra adicionalmente, una comisión de ¢6.929.
+(Nota de Sinalevi: Mediante sesión N° 48-2020 del 24 de noviembre del 2020 se reforma el punto 8.2). No obstante al no coincidir la reforma la misma se transcribe a continuación: “ 8.2.- Cobro de comisiones para cubrir gastos por Evaluaciones de parámetros técnicos
+[…]
+Para la administración del servicio requerido por el Banco por cada inspección, se cobra adicionalmente, una comisión de ¢6.929 + IVA.
+8.2.1 Evaluación de parámetros técnicos de actividades agropecuarias
+Cuando el mismo profesional al que le corresponde valorar la finca donde se llevará a cabo el plan de inversión, debe realizar también una evaluación de parámetros técnicos de tipo agropecuario, el cálculo de la comisión por la inspección previa es sobre el monto del crédito y corresponde al 50% de la tarifa por concepto de avalúos + IVA. Lo anterior es adicional a las comisiones que corresponda pagar por concepto de avalúo y administración.
+Si al mismo profesional no le corresponde realizar el avalúo de la finca, entonces la comisión que corresponde es el 100% de la tarifa por concepto de avalúos. El cobro mínimo para una evaluación de parámetros técnicos es igual al mínimo establecido para avalúo.
+8.2.2 Evaluación de parámetros técnicos de otras actividades no agropecuarias
+El cálculo de la comisión por evaluaciones de parámetros técnicos de otras actividades no agropecuarias es sobre el monto del crédito y corresponde al 25% de la tarifa por concepto de avalúos + IVA. El cobro mínimo para una evaluación de parámetros técnicos es igual al mínimo establecido para avalúo.”)
+8.3.-Cobro de comisiones para cubrir gastos por la realización de inspecciones para verificar el cumplimiento de alguna condición de la garantía:
+(Así reformado el párrafo anterior mediante sesión N° 48-2020 del 24 de noviembre del 2020)
+Para la administración del servicio requerido por el Banco por cada inspección, se cobra adicionalmente, una comisión de ¢6.929 + IVA.
+(Así reformado el párrafo anterior mediante sesión N° 48-2020 del 24 de noviembre del 2020)
 Son las que se ejecutan antes de la formalización de una operación con el propósito de confirmar la ejecución de modificaciones indicadas en el avalúo y que son requeridas para recibir la garantía a satisfacción. Entran en esta categoría las inspecciones de instalaciones eléctricas, de amojonamientos, deslindes, remoción de obstáculos o de otra índole.
 No se deben confundir estas inspecciones con los avalúos, que se deben ejecutar posteriormente, por inconsistencias con los planos catastrados, falta de servicios públicos y accesos inconvenientes.
-El cálculo de la comisión por cada inspección es de ¢20,880.
+El cálculo de la comisión por cada inspección es de ¢20.880 + IVA.
+(Así reformado el párrafo anterior mediante sesión N° 48-2020 del 24 de noviembre del 2020)
 (Así reformado el punto 8.3) anterior mediante sesión N° 62-18 del 10 de diciembre del 2018)
-8.4.-Inspecciones para verificar el cumplimiento del plan de inversión
-Para la administración del servicio requerido por el Banco por cada inspección, se cobra adicionalmente, una comisión de ¢6.929.
+8.4.- Cobro de comisiones para cubrir gastos por inspecciones para verificar el cumplimiento del plan de inversión
+(Así reformado el párrafo anterior mediante sesión N° 48-2020 del 24 de noviembre del 2020)
+Para la administración del servicio requerido por el Banco por cada inspección, se cobra adicionalmente, una comisión de ¢6.929 + IVA.
+(Así reformado el párrafo anterior mediante sesión N° 48-2020 del 24 de noviembre del 2020)
 Son las requeridas posteriormente a la formalización de una operación de crédito para verificar el cumplimiento parcial o total del plan de inversión aprobado para cada operación.
-El costo de la comisión por cada inspección es de ¢20.880.
+El costo de la comisión por cada inspección es de ¢20.880 + IVA.
+(Así reformado el párrafo anterior mediante sesión N° 48-2020 del 24 de noviembre del 2020)
 (Así reformado el punto 8.4) anterior mediante sesión N° 62-18 del 10 de diciembre del 2018)
-8.5.-Inspecciones para control y seguimiento de las garantías
-Para la administración del servicio requerido por el Banco por cada solicitud de trabajo, se cobra adicionalmente, una comisión de ¢6.929.
+8.5.- Cobro de comisiones para cubrir gastos por la realización de Inspecciones para control y seguimiento de las garantías
+(Así reformado el párrafo anterior mediante sesión N° 48-2020 del 24 de noviembre del 2020)
+Para la administración del servicio requerido por el Banco por cada solicitud de trabajo, se cobra adicionalmente, una comisión de ¢6.929 + IVA.
+(Así reformado el párrafo anterior mediante sesión N° 48-2020 del 24 de noviembre del 2020)
 Se refiere a las inspecciones de las garantías en las cuales el profesional debe informar la existencia, el estado de conservación y la liquidez de los bienes que garantizan una operación de crédito.
 La comisión por inspección para control y seguimiento de garantías, según el siguiente detalle, podrá ser cobrada al cliente, solo si está incluida en el contrato de crédito, o bien, si el propósito de la inspección es para mantener la vigencia de un avalúo que será utilizado en una nueva operación de crédito.
-8.5.1.-Bienes inmuebles separados
-¢20.880 por cada bien inmueble.
-8.5.2.-Bienes inmuebles que conforman una reunión de propiedades y una sola explotación
-¢20.880 por unidad funcional.
-8.5.3.-Bienes muebles: vehículo individual o máquina industrial individual
-¢20.880 por bien mueble.
-8.5.4 -Grupos de bienes muebles localizados en un solo lugar: flotillas de vehículos o grupos de máquinas
-¢20.880 por solicitud.
-8.5.5.- Grupos de bienes muebles localizados en diferentes lugares: flotillas de vehículos o grupos de máquinas
-¢20.880 por solicitud.
-8.5.6- Maquinaria industrial localizada en diferentes lugares
-¢20.880 por solicitud.
+8.5.1.- Bienes inmuebles separados
+¢20.880 por cada bien inmueble + IVA.
+(Así reformado el punto 8.5.1) anterior mediante sesión N° 48-2020 del 24 de noviembre del 2020)
+8.5.2.- Bienes inmuebles que conforman una reunión de propiedades y una sola explotación
+¢20.880 por unidad funcional + IVA.
+(Así reformado el punto 8.5.2) anterior mediante sesión N° 48-2020 del 24 de noviembre del 2020)
+8.5.3.- Bienes muebles: vehículo individual o máquina industrial individual
+¢20.880 por bien mueble + IVA.
+(Así reformado el punto 8.5.3) anterior mediante sesión N° 48-2020 del 24 de noviembre del 2020)
+8.5.4 -Grupos de bienes muebles localizados en un solo lugar: flotillas de vehículos o grupos de máquinas.
+¢20.880 por solicitud + IVA.
+(Así reformado el punto 8.5.4) anterior mediante sesión N° 48-2020 del 24 de noviembre del 2020)
+8.5.5.- Grupos de bienes muebles localizados en diferentes lugares: flotillas de vehículos o grupos de máquinas (Derogado mediante sesión N° 48-2020 del 24 de noviembre del 2020)
+8.5.6- Maquinaria industrial localizada en diferentes lugares (Derogado mediante sesión N° 48-2020 del 24 de noviembre del 2020)
 (Así reformado el punto 8.5 mediante sesión N° 62-18 del 10 de diciembre del 2018)
-8.6.-Fiscalización de inversiones
+8.6.- Cobro de comisiones para cubrir gastos por la realización de fiscalización de inversiones
+(Así modificado el título anterior mediante sesión N° 48-2020 del 24 de noviembre del 2020)
 Comprende la revisión del presupuesto y la fiscalización de la inversión realizada en la obra, por parte de los profesionales designados por el Banco y en los créditos para construcción con recursos propios del Banco o de otras instituciones con las cuales el Banco mantenga convenios.
-8.6.1-Revisión de planos y presupuestos
-Para la administración del servicio requerido por el Banco por revisión de planos y presupuesto, se cobra adicionalmente, una comisión de ¢13.857.
+8.6.1- Revisión de planos y presupuestos
+Para la administración del servicio requerido por el Banco por revisión de planos y presupuesto, se cobra adicionalmente, una comisión de ¢13.857 + IVA.
+(Así reformado el párrafo anterior mediante sesión N° 48-2020 del 24 de noviembre del 2020)
 0,5 % sobre el presupuesto revisado y aprobado por el fiscalizador. Se cobra al cliente previo a la aprobación de la solicitud.
-8.6.2-Inspecciones para el avance de obra
-Para la administración del servicio requerido por el Banco en la etapa de desembolsos, adicionalmente se cobra por el conjunto de visitas, en créditos de vivienda se cobra una comisión de ¢34.643 y en créditos comerciales, se cobra una comisión de ¢57.739.
+8.6.2- Inspecciones para el avance de obra
+Para la administración del servicio requerido por el Banco en la etapa de desembolsos, adicionalmente se cobra por el conjunto de visitas, en créditos de vivienda se cobra una comisión de ¢34.643 + IVA y en créditos comerciales, se cobra una comisión de ¢57.739 +IVA.
+(Así reformado el párrafo anterior mediante sesión N° 48-220 del 24 de noviembre del 2020)
 1,0 % sobre la proporción del crédito destinado para la construcción que será fiscalizada. Se cobra al cliente mediante la retención al formalizar la operación de crédito.
 (Así reformado el punto 8.6) anterior mediante sesión N° 62-18 del 10 de diciembre del 2018)

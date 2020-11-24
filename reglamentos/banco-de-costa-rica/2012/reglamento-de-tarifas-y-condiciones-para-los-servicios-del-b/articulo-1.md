@@ -8,8 +8,10 @@ Notas:
 1-Esta comisión será cobrada por una única vez al formalizarse el crédito o al establecerse prórrogas al vencimiento definitivo, aplicable directamente al monto del crédito en forma general.
 Para créditos abiertos se cobrará cada vez que se realice una operación derivada del contrato de crédito abierto.
 2-No se cobrará la comisión de formalización en los contratos que se realicen de líneas de crédito revolutivas; tampoco se cobrará la comisión de formalización a las tarjetas de crédito.
-3-Para créditos damnificados por desastres naturales se cobrara un 0.5%, para créditos de vivienda para pensionados y ayuda social un 1%.
-4-Se aplicará un 50 % de la comisión a las personas físicas cuyo salario o pensión es depositado en una cuenta del BCR con excepción del crédito vivienda para pensionados y crédito damnificados por desastres naturales.
+3- Para créditos damnificados por desastres naturales se cobrará un 0.5%, para créditos de vivienda para pensionados y ayuda social un 1%, para el crédito BCR Vivienda Accesible se cobrará un 0.75%.
+(Así reformado el punto anterior mediante sesión N° 48-2020 del 24 de noviembre del 2020)
+4- Se aplicará un 50 % de la comisión a las personas físicas cuyo salario o pensión es depositado en una cuenta del BCR con excepción del crédito vivienda para pensionados y crédito damnificados por desastres naturales y crédito BCR Vivienda Accesible.
+(Así reformado el punto anterior mediante sesión N° 48-2020 del 24 de noviembre del 2020)
 5-En el caso de créditos directos con desembolsos y previa aprobación del Comité de Crédito, el cobro de la comisión se realizará al momento de cada desembolso.
 (Así reformado el punto 1.1) anterior en sesión N° 62-18 del 10 de diciembre del 2018)
 (Nota de Sinalevi: Mediante sesión N° 24-2020 del 23 de junio del 2020 se reforma el punto 1.1) anterior. No obstante, al no ser clara la reforma se transcribe a continuación: “ Crédito BCR Vivienda Accesible 0.75%”)
@@ -72,20 +74,19 @@ $20.00
 Nota:
 Incluye la tarifa del Registro Nacional más gastos de papel legal y timbres.
 (Así corrida su numeración en sesión 24-13 del 24 de junio del 2013, que lo traspaso del antiguo punto 1.8 al 1.9. Lo anterior ya que en dicha sesión se adiciona el numeral 1.2 original y correr la numeración de los siguientes)
-(*)1.10.- Cobro administrativo de operaciones en mora
-Nota:
-Rige para todos los créditos nuevos otorgados a partir de la aprobación de esta tarifa y que al momento del pago se encuentre en cartera normal, en cobro administrativo o judicial, cada vez que se realice un pago se les cobrará el monto indicado según el rango de atraso con base en la fecha de vencimiento de los intereses, para cada cuota según la antigüedad de mora que tenga.
-Los créditos otorgados antes de esta modificación se regirán por la anterior tarifa, o según lo establezca la cláusula o adenda en el contrato de crédito respectivo.
+(*)1.10.- Cobro administrativo de operaciones en mora (Derogado mediante sesión N° 48-2020 del 24 de noviembre del 2020)
 (Así corrida su numeración en sesión 24-13 del 24 de junio del 2013, que lo traspaso del antiguo punto 1.9 al 1.10. Lo anterior ya que en dicha sesión se adiciona el numeral 1.2 original y correr la numeración de los siguientes)
 (*) (Así reformado el punto 1.10) anterior mediante sesión N° 21 del 23 de mayo de 2016)
 1.11.- Cobro telegramas enviados operaciones vencidas (Derogado este punto mediante sesión N° 24-2020 del 23 de junio del 2020)
 (Así corrida su numeración en sesión 24-13 del 24 de junio del 2013, que lo traspaso del antiguo punto 1.10 al 1.11. Lo anterior ya que en dicha sesión se adiciona el numeral 1.2 original y correr la numeración de los siguientes)
 1.12.- Por concepto de administración de proyectos colones y dólares
-Se cobrará un 1% anual pagadero mensualmente sobre los proyectos empresariales a largo plazo.
+Se cobrará un 1% anual pagadero mensualmente sobre los proyectos empresariales a largo plazo + IVA.
 (Así corrida su numeración en sesión 24-13 del 24 de junio del 2013, que lo traspaso del antiguo punto 1.11 al 1.12. Lo anterior ya que en dicha sesión se adiciona el numeral 1.2 original y correr la numeración de los siguientes)
+(Así reformado el punto 1.12) anterior mediante sesión N° 48-2020 del 24 de noviembre del 2020)
 1.13.- Comisión de estructuración y manejo:
-- En colones y dólares hasta 0.50% y aplica sobre el saldo de la operación a cobrarse mensualmente.
+En colones y dólares hasta 0.50% y aplica sobre el saldo de la operación a cobrarse mensualmente + IVA.
 (Así corrida su numeración en sesión 24-13 del 24 de junio del 2013, que lo traspaso del antiguo punto 1.12 al 1.13. Lo anterior ya que en dicha sesión se adiciona el numeral 1.2 original y correr la numeración de los siguientes)
+(Así reformado el punto 1.13) anterior mediante sesión N° 48-2020 del 24 de noviembre del 2020)
 1.14.- Traspaso de operaciones de cobro administrativo a cobro judicial
 2.0% s/ el total adeudado de cada operación
 Mínima $20.00
@@ -103,8 +104,7 @@ Nota:
 Se cobrará tanto en la emisión de póliza como en la renovación.
 (Así corrida su numeración en sesión 24-13 del 24 de junio del 2013, que lo traspaso del antiguo punto 1.16 al 1.17. Lo anterior ya que en dicha sesión se adiciona el numeral 1.2 original y correr la numeración de los siguientes)
 (Así reformado el punto N° 1.17) anterior mediante sesión N° 62-18 del 10 de diciembre del 2018)
-1.18- Comisión por administración de créditos cedidos a otras instituciones 0.50% a 2.50% anual sobre saldos
-Nota:
-Quedan facultados para la negociación de esta tarifa, el Comité de Crédito, el Gerente General, Subgerentes, Gerentes Regionales.
-(Así reformado el punto 1.18) anterior mediante sesión 07-16 del 8 de febrero del 2016)
+1.18- Comisión por administración de créditos cedidos a otras instituciones
+0.50% a 2.50% anual sobre saldos + IVA
 (Así corrida su numeración en sesión 24-13 del 24 de junio del 2013, que lo traspaso del antiguo punto 1.17 al 1.18. Lo anterior ya que en dicha sesión se adiciona el numeral 1.2 original y correr la numeración de los siguientes)
+(Así reformado el punto 1.18) anterior mediante sesión N° 48-2020 del 24 de noviembre del 2020)

@@ -40,6 +40,11 @@ LIBOR 6 MESES + 6,25%.
 [imagen]
 Nota:
 En las transferencias con modalidad pago garantizado, además de la comisión de apertura y mensaje Swift, se debe cobrar una comisión adicional definida para el banco corresponsal asignado (Bank of América o Bank of New York).
+(Nota de Sinalevi: Mediante sesión N° 48-2020 del 24 de noviembre del 2020 se reforma el punto 5.4.1). No obstante al no coincidir la reforma la misma se transcribe a continuación: “ 5.4.- Transferencias internacionales
+5.4.1. Enviadas al exterior
+[…]
+Nota:
+En las transferencias con modalidad pago garantizado, además de la comisión de apertura y mensaje Swift, se debe cobrar una comisión adicional definida para el banco corresponsal asignado”)
 5.4.2.-Negociación de divisas en el exterior diferentes al dólar de los Estados Unidos de América (Forex)
 [imagen]
 5.4.3.- Recibidas del exterior (órdenes de pago)
@@ -127,6 +132,8 @@ Mínimo $10.00
 [imagen]
 5.7.3.- Remesas familiares de Costa Rica hacia el resto del mundo
 [imagen]
+5.7.4 Recibos de dinero en Costa Rica por MoneyGram® no se cobra en el BCR.
+(Así adicionado el punto anterior mediante sesión N° 48-2020 del 24 de noviembre del 2020)
 (Así corrida su numeración en sesión 24-13 del 24 de junio del 2013, que lo traspaso del antiguo punto 5.19. al 5.18. Lo anterior porque se eliminó el punto 5.14 original denominado: "Pago de chequero viajero")
 (Mediante sesión N° 62-18 del 10 de diciembre del 2018, se reforma el inciso 5.7. No obstante; del análisis se deduce que el inciso a modificar es el 5.18) anterior)
 5.18.2. -Envíos de Costa Rica hacia Costa Rica y el resto del mundo
