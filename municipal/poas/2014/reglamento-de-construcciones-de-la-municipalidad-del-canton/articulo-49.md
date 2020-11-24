@@ -1,1 +1,0 @@
-Artículo 49.—Recursos. Contra la anterior resolución el interesado podrá interponer los recursos ordinarios caben los recursos ordinarios de revocatoria y apelación, los cuales deben interponerse dentro del quinto día, contados a partir del presente acto de notificación.

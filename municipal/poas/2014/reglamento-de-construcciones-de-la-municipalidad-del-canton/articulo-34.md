@@ -1,1 +1,0 @@
-Artículo 34.—Rótulos comerciales. Para la colocación de rótulos los interesados deberán someterse a lo indicado en el artículo IV.15 del Reglamento a la Ley de Construcciones, La Gaceta Nº 56, Alcance 17 de 22 de marzo de 1983 y sus reformas.

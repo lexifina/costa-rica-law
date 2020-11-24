@@ -1,1 +1,0 @@
-Artículo 35.—Edificio en estado ruinoso. Todo edificio que se encuentre en estado ruinoso a juicio de la Municipalidad. Podrá ser reconocido por el Ingeniero Municipal, en compañía del propietario. Si el mismo no permitiere reparación se ordenará al propietario su demolición, previo dictamen del Ministerio de Salud o con una orden de un Juzgado.

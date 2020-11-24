@@ -1,1 +1,0 @@
-Artículo 37.—Todo edificio destinado para uso comercial o para oficinas públicas y particulares, cuya área de construcción sea superior a los cien metros cuadrados (100 m2) establecerá un espacio para estacionamiento por cada cincuenta metros (50 m2) de área comercial bruta o fracción mayor de veinticinco metros cuadrados (25 m2) adicionales de construcción.
