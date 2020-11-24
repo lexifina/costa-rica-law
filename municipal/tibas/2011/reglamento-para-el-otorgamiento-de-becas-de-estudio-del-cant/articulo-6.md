@@ -1,3 +1,0 @@
-CAPÍTULO IV
-Del destino de las becas
-Artículo 6—Las becas para estudiar se otorgan como ayudas complementarias para compra de uniformes, materiales educativos, transporte, o cualquier otro gasto relacionado con las actividades educativas del estudiante o la estudiante. Las becas que queden vacantes durante cada período lectivo, sea porque él o la estudiante pierde o renuncia a este beneficio, se asignarán a los o las candidatas que se encuentren en la lista de postulantes no beneficiadas o beneficiados que muestren las puntuaciones ponderadas más elevadas de la escala, de acuerdo con lo previsto en este reglamento o, según los criterios de valoración de la discapacidad o necesidad especial también previstos en esta normativa.
