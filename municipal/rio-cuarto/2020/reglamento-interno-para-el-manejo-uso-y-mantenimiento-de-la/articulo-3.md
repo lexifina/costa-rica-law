@@ -1,0 +1,4 @@
+Artículo 3º—De la clasificación. Para efectos de este reglamento los vehículos de la Municipalidad se clasifican en:
+a) De uso de la Alcaldía y las Vicealcaldías: se trata de aquellos vehículos que sean asignados al servicio de la Alcaldía Municipal, integrada por la Alcaldía y las Vicealcaldías.
+Este tipo de vehículo no cuenta con restricciones en cuanto al gasto de combustible, horario de operación, ni recorrido, aspectos que la Alcaldía Municipal asumirá bajo estricta responsabilidad. Su uso se hará en relación a las funciones propias de su investidura. Deberán encontrarse debidamente rotulados con la leyenda “uso oficial”.
+b) De uso administrativo o general: aquellos vehículos destinados al cumplimiento de las funciones propias de la Municipalidad de Río Cuarto. Deberán encontrarse debidamente rotulados en ambos costados de la cabina con las leyendas “uso oficial” y “Municipalidad de Río Cuarto”.

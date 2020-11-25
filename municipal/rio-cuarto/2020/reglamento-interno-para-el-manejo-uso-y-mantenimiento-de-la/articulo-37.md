@@ -1,0 +1,3 @@
+CAPÍTULO VI
+Prohibiciones
+Artículo 37.—Manejo bajo sustancias enervantes. Queda terminantemente prohibido conducir vehículos municipales bajo los efectos del licor, drogas o sustancias enervantes. El incumplimiento de lo anterior, se considerará como falta grave y será causal de despido sin responsabilidad patronal, y sin perjuicio de la responsabilidad ante terceros en que incurra la persona funcionaria en caso de accidente por todos los daños causados a personas o bienes. Igualmente, queda prohibido admitir algún ocupante del vehículo en esas condiciones. Le corresponde al jefe inmediato velar porque sus subalternos no manejen el vehículo en esta condición.

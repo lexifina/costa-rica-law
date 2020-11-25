@@ -1,0 +1,20 @@
+Artículo 5º—De los deberes de Servicios Generales. Este departamento será responsable de la planificación mediante el análisis y requerimientos de todos los departamentos de la municipalidad, del manejo y custodia de los vehículos. De igual manera, tendrá las siguientes responsabilidades:
+a) Planificar, organizar, controlar y coordinar todas las actividades de orden administrativo relacionadas con el uso, disposición y mantenimiento de los vehículos, conforme las leyes vigentes.
+b) Atender las solicitudes de transporte de las dependencias de la Institución que así lo requieran para el adecuado cumplimiento de sus funciones y determinar el medio más eficaz y eficiente para satisfacerlas.
+c) Supervisar que los vehículos municipales se utilicen adecuadamente.
+d) Señalar los límites de carga, de capacidad de remolque y demás condiciones que deberán observarse para el uso de los vehículos.
+e) Realizar los trámites necesarios para la salida de operación de los vehículos Municipales, previa solicitud de las jefaturas administrativas correspondientes.
+f) Recibir informes de accidentes, actos irregulares, negligentes o delictivos de funcionarios municipales que tengan bajo su conducción o custodia un vehículo municipal; realizar la investigación, atender y tramitar todos los aspectos administrativos y judiciales, con motivo de tales hechos.
+g) Velar por el cumplimiento del presente Reglamento, reportando cualquier violación a las normas, leyes y procedimientos que se pudiera presentar en cuanto al uso, control y mantenimiento de vehículos, a la jefatura superior del infractor. Dicho reporte incluirá, cuando corresponda, la recomendación de la acción a seguir.
+h) Evaluar las necesidades de aseguramiento de la flota y hacer las recomendaciones respectivas a la Alcaldía.
+i) Mantener actualizada una adecuada información de control de cada automotor, según las indicaciones del presente reglamento. Así como el inventario de vehículos, accesorios y herramientas con que cuentan los mismos.
+j) Informar al superior jerárquico inmediato la necesidad de mantenimiento preventivo o correctivo, reparación, compra de repuestos, traslados y otros que requieran los vehículos de la Municipalidad, para que el superior a su vez lo gestione ante la Proveeduría Institucional, de ser necesario.
+k) Llevar un minucioso y efectivo control de vehículos, repuestos, herramientas y demás accesorios asignados a cada vehículo, mantener actualizados los respectivos registros y actualizar el inventario al menos dos veces al año.
+l) Establecer un programa permanente de mantenimiento preventivo de los vehículos.
+m) Llevar mensualmente un registro en Excel o alguna otra herramienta afín, sobre el uso y mantenimiento de los vehículos. En ese informe se deberá incluir al menos lo siguiente: kilómetros recorridos, consumo de combustible. reparaciones realizadas –con indicación de su costo- y el estado mecánico de los vehículos, considerando su año de fabricación y control de uso.
+n) Llevar un registro detallado y actualizado de todos los conductores autorizados. Ese registro debe contener al menos lo siguiente: nombre; cédula; tipo, número y fecha de vencimiento de la licencia de conducir; unidad o departamento en la que labora; cargo que desempeña y su historial de conducción municipal.
+o) Coordinar con la jefatura inmediata la designación del responsable de custodiar y manejar las llaves del vehículo a su cargo.
+p) Velar porque el vehículo o equipo especial que se encuentre en garantía no puede ser intervenido por terceros ajenos a quienes son los garantes.
+q) Realizar las solicitudes de contratación administrativa de los talleres que brindaran el servicio de mantenimiento de los vehículos, tales como, pero no limitados a: mecánica, llantas, repuestos, enderezado y pintura.
+r) Acatar el procedimiento y girar las directrices de llenado de combustible de los vehículos municipales.
+s) Cualquier otra responsabilidad que le otorgue el presente reglamento o indique su jerarca inmediato.

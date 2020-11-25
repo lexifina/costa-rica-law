@@ -1,0 +1,1 @@
+Artículo 39.—Prohibición de ceder el manejo del vehículo. Está absolutamente prohibido a todos los choferes y conductores ceder la conducción del vehículo a otras personas no autorizadas, salvo por razones muy calificadas, en cuyo caso, una vez finalizado el uso del vehículo, se deberán informar los motivos que obligaron a hacerlo.

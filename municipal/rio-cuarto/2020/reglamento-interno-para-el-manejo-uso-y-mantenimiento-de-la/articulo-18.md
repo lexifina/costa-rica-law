@@ -1,0 +1,1 @@
+Artículo 18.—Deber de informar sobre los vehículos arrendados. Servicios Generales preparará periódicamente un resumen ejecutivo a la Alcaldía, sobre los vehículos arrendados por la Municipalidad, así como de su uso.

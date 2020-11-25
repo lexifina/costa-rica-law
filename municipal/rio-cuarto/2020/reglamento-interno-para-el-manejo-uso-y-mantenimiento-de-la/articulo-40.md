@@ -1,0 +1,1 @@
+Artículo 40.—Prohibición de intercambiar accesorios. Los choferes y conductores de vehículos de la Municipalidad no podrán hacer intercambios de accesorios entre las unidades, si no cuentan con la aprobación de la Dependencia Administrativa; la cual, en todo caso, hará la consignación respectiva en las tarjetas que se establezcan al efecto.

@@ -1,0 +1,1 @@
+Artículo 17.—Mantenimiento de vehículos arrendados. Para todos los vehículos arrendados, en caso de haberlos, el mantenimiento de cualquier tipo sea preventivo o correctivo será exclusivamente responsabilidad del proveedor, cuyos términos se incluirán en la contratación respectiva.

@@ -1,0 +1,8 @@
+CAPÍTULO VII
+De los accidentes de tránsito
+Artículo 41.—Del procedimiento en general. Si durante una gira o en cumplimiento de deberes ocurriere un accidente, el conductor y sus acompañantes deberán proceder de la siguiente manera:
+a) Dar aviso a la policía de tránsito y al ente asegurador del vehículo y no mover el vehículo hasta que los mismos se apersonen al lugar y realicen su labor.
+b) Obtener información sobre las personas afectadas en el accidente y los testigos si los hubiere. Información como nombre completo, número de cédula o del documento de identificación, medio de contacto.
+c) Dar aviso en forma inmediata a su Jefe Inmediato y a Servicios Generales, para que se le giren instrucciones y se tomen las medidas del caso.
+d) La persona funcionaria que condujere el vehículo municipal involucrado deberá presentar ante Servicios Generales, con copia a su superior inmediato, un informe detallado de lo ocurrido. Dicho informe se presentará en un término máximo de dos (2) días hábiles, y al mismo deberán adjuntarse una copia de la boleta de citación extendida por la autoridad de tránsito y de la boleta extendida por la persona funcionaria del ente asegurador.
+e) Atender y cumplir con el proceso judicial cuando fuese necesario. Para tal efecto, se presentará dentro de los ocho (8) días hábiles siguientes al percance, ante el Juzgado competente a rendir declaración. Deberá coordinar dicha declaración con la Asesoría Legal de la Municipalidad y aportarle copia del expediente. Deberá someterse a todas las etapas del proceso. Una vez finalizado el proceso judicial, deberá enviar copia completa del expediente judicial a la Servicios Generales.

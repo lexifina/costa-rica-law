@@ -1,0 +1,1 @@
+Artículo 44.—Reportes de Incidentes a la Alcaldía. Servicios Generales, deberá informar oportunamente a la Alcaldía Municipal, cualquier incidente, accidente de tránsito, robo, hurto, o cualquier otro que vaya en menoscabo de los vehículos a su cargo.
