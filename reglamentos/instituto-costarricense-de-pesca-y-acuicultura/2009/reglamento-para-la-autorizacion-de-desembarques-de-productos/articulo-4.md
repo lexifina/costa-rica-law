@@ -1,1 +1,0 @@
-4º—La resolución que habilite el desembarco de productos pesqueros en Atracaderos Privados o Centros de Acopio, condicionará su vigencia al cumplimiento permanente de las condiciones aquí establecidas y a aquellas de carácter operativo que determinen las respectivas autoridades competentes.

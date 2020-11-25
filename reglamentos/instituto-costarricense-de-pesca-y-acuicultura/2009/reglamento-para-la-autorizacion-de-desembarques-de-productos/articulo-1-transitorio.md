@@ -1,1 +1,0 @@
-Transitorio: Los Atracaderos Privados y Centros de Acopio de Productos Pesqueros habilitados en la actualidad, contarán con un mes calendario a partir de la publicación del presente para cumplir y ajustarse a los términos establecidos en este acuerdo

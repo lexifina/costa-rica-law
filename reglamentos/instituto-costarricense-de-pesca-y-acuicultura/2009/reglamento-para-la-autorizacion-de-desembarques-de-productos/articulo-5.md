@@ -1,1 +1,0 @@
-5º—Las labores de descarga serán ejecutadas en presencia cuando menos de las autoridades del Instituto Costarricense de Pesca y Acuicultura, quienes ejercerán conforme a su competencia las labores de autorización de descarga y la comercialización de productos pesqueros.

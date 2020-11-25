@@ -1,1 +1,0 @@
-6º—Cuando se trate de productos provenientes de embarcaciones con bandera extranjera, quedará a criterio de la Dirección General de Aduanas del Ministerio de Hacienda, la presencia de al menos uno de sus funcionarios, para verificar el cumplimiento de la Legislación Aduanera correspondiente.
