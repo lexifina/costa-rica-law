@@ -1,0 +1,1 @@
+Artículo 7º—Imposibilidad del arreglo de pago. La persona contribuyente que haya incumplido un arreglo de pago, no podrá suscribir otro arreglo de pago que tenga el mismo objeto que el arreglo incumplido. En todo caso, no se admitirá a ningún contribuyente con más de un arreglo de pago en ejecución.

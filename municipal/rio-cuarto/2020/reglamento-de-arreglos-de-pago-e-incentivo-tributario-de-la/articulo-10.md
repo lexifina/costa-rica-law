@@ -1,0 +1,2 @@
+Artículo 10.—Adelanto. En tanto la persona contribuyente se tenga por notificada de la aprobación del arreglo de pago, tendrá un plazo de hasta tres (3) días hábiles para hacer efectivo el pago del treinta por ciento (30%) correspondiente al adelanto necesario para suscripción del arreglo.
+Este treinta por ciento (30%) se determina de conformidad a la suma total de la deuda por impuestos que ostenta la persona contribuyente con la Municipalidad de Río Cuarto, incluyendo en esta suma los intereses generados por mora.

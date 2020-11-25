@@ -1,0 +1,3 @@
+Artículo 12.—Incumplimiento de pago. El incumplimiento del arreglo se dará en el tanto la persona contribuyente no haya realizado el pago de la cuota correspondiente en la fecha que debió cancelar según lo dispuesto en el documento de arreglo de pago.
+El incumplimiento se verificará con la ausencia del pago en el estado de cuenta de la Municipalidad y en el sistema correspondiente. Así como, cuando aunado a lo anterior no se cuente con el comprobante de pago respectivo.
+Comprobado el incumplimiento de arreglo de pago se remitirá el expediente debidamente conformado, foliado en orden cronológico a la asesoría legal de la Municipalidad, para que esta determine la procedencia del proceso cobratorio siguiente, a saber, administrativo o judicial.

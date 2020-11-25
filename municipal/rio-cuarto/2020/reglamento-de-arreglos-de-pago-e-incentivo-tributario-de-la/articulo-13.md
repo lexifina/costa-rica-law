@@ -1,0 +1,1 @@
+Artículo 13.—Resolución del arreglo de pago. El convenio de arreglo de pago se dará por concluido ante el pago total que realice el sujeto pasivo de la obligación vencida, o cuando se tenga por incumplido el arreglo de pago.

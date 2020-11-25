@@ -1,0 +1,1 @@
+Artículo 4º—Monto mínimo del arreglo de pago. Monto mínimo para realizar arreglos de pago. Únicamente procederán arreglos de pago cuando las obligaciones vencidas sean por un monto igual o superior a los diez mil un colones exactos (₡10.001,00).

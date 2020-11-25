@@ -1,0 +1,2 @@
+Artículo 9º—Plazo de resolución. Una vez presentada la solicitud de arreglo de pago, la Dirección tiene hasta cinco (5) días hábiles a partir del día siguiente de presentada la solicitud para aprobar o denegar el arreglo de pago.
+La aprobación o denegación de la solicitud de arreglo de pago se notificará a la persona contribuyente por el medio que esta consignará en el formulario de solicitud respectivo.
