@@ -1,1 +1,0 @@
-8°—Vigencia: La Norma Técnica de Información Geográfica denominada NTIG_CR02_01.2016: Catálogo de Objetos Geográficos para Datos Fundamentales de Costa Rica rige a partir de su publicación en el Diario Oficial La Gaceta.

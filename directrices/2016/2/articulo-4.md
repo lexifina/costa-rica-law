@@ -1,1 +1,0 @@
-4°—Alcance: La presente directriz constituye un marco de referencia general sobre los requisitos mínimos que debe observar este Instituto, otras entidades públicas, sector privado y público en general: productores, gestores y usuarios de información geográfica georreferenciada.
