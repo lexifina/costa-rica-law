@@ -12,7 +12,8 @@ Si la Gerencia no objeta la solicitud, la vigencia del cambio aplicará a partir
 e) El capital base o la garantía dada al Banco Central (en el caso de las casas de cambio), deberá expresarse en dólares de los Estados Unidos de América, utilizando el Tipo de Cambio de Referencia para la venta vigente para el día hábil anterior.
 El capital base corresponde a la información más reciente suministrada al Banco Central de Costa Rica por la superintendencia respectiva.
 (Así reformado el inciso e) anterior en sesión N° 5909 del 18 de diciembre de 2019)
-f) La posición en moneda extranjera podrá variar diariamente por concepto de operaciones cambiarias hasta +2% o hasta -2% del valor del capital base expresado en dólares.
+f) La posición en moneda extranjera podrá variar diariamente por concepto de operaciones cambiarias hasta +3% o hasta -3% del valor del capital base expresado en dólares.
+(Así reformado el inciso anterior por el transitorio 2 del Reglamento sobre derivados en moneda extranjera, aprobado en sesión N° 5973 del 25 de noviembre del 2020)
 g) Para el control del límite a la variación diaria en la posición en moneda extranjera no se considerarán las siguientes operaciones:
 i. Las transacciones cambiarias que tengan como objetivo cancelar préstamos recibidos del Banco Central.
 ii. Los registros contables en los que no hay una transacción cambiaria que afecte el mercado cambiario tales como: intereses y comisiones pagados o cobrados, pago o retención de dividendos, pérdidas por préstamos incobrables, aportes de capital y modificaciones originadas por fluctuaciones en los tipos de cambio con respecto al dólar de los Estados Unidos de América.
