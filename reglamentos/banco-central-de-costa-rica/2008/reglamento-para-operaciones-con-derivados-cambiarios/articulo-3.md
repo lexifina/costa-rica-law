@@ -1,2 +1,0 @@
-Artículo 3º—Operaciones autorizadas. Las operaciones de derivados cambiarios permitidas son: Contratos a Plazo, Contratos de Diferencia, Contratos de Futuros, Permutas Cambiarias y Permutas de Monedas.
-Estas operaciones se realizarán en las condiciones acordadas por las partes, dentro de los límites establecidos en este reglamento y en las disposiciones que dicten el CONASSIF, la superintendencia respectiva según sea su ámbito de competencia y las bolsas de valores, cuando corresponda.

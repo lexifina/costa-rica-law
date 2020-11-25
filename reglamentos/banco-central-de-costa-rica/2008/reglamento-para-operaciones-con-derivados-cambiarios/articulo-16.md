@@ -1,2 +1,0 @@
-Artículo 16.—Confidencialidad de la información. La información sobre derivados cambiarios que reciban el BCCR las superintendencias o cualquier otra entidad, en calidad de supervisora del mercado, será confidencial, y sólo las áreas involucradas en el seguimiento y control de las operaciones tendrán acceso al detalle de ella.
-Para efectos estadísticos, el BCCR podrá publicar información relacionada con estas operaciones de forma agrupada y en términos generales.

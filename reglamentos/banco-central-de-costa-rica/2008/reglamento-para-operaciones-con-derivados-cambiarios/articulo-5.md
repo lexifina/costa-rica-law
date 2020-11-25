@@ -1,4 +1,0 @@
-Artículo 5º—Intermediarios autorizados. Las entidades autorizadas para operar como intermediarios serán las siguientes:
-1. En el Mercado “Over the Counter” (OTC) sólo podrán actuar como intermediarios las entidades financieras supervisadas por la SUGEF que cumplan con los requisitos establecidos en este Reglamento y en la normativa del CONASSIF.
-2. En el Mercado de Futuros solo podrán actuar como intermediarios las entidades supervisadas por la SUGEF, conforme a lo indicado en el párrafo anterior, y los puestos de bolsa que cumplan con los requisitos que establezca el CONASSIF.
-3. En la negociación de Contratos de Diferencia únicamente podrán actuar como intermediarios los puestos de bolsa que cumplan con los reglamentos dictados por las bolsas de valores, los cuales deberán ser aprobados previamente por la SUGEVAL.

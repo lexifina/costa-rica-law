@@ -1,1 +1,0 @@
-Artículo 17 bis.—Estructuras financieras equivalentes. Las estructuraciones financieras cuya realidad económica sea equivalente a un derivado cambiario se entenderán sometidas al alcance del presente Reglamento.

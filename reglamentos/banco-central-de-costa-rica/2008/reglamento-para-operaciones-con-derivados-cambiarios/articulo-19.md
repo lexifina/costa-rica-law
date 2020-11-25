@@ -1,1 +1,0 @@
-Artículo 19.—Vigencia. El reglamento rige a partir de su publicación en el Diario Oficial La Gaceta y deja sin efecto lo dispuesto en el literal B, artículo 4 del acta de la sesión 5383, celebrada el 25 de junio del 2008.
