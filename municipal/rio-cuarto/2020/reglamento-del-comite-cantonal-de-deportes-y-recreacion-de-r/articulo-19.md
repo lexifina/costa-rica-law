@@ -1,0 +1,1 @@
+Artículo 19—Todos los directivos tienen la obligación de asistir a las sesiones. En caso de ausencia, el directivo debe comunicar, en forma escrita, las razones de su ausencia dentro de las veinticuatro horas siguientes. En caso contrario, la ausencia puede ser catalogada como injustificada y sancionable, por el resto de la Junta Directiva.

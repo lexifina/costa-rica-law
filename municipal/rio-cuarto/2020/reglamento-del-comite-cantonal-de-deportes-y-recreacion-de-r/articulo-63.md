@@ -1,0 +1,2 @@
+Artículo 63.—Para la realización, dentro de las instalaciones deportivas, de eventos no deportivos, tales como ferias, bingos, fiestas o similares, debe contarse con la autorización escrita del Comité Cantonal y de los encargados de cada recinto, con un mes de anticipación.
+Aparte del pago del alquiler, para tal fin se puede exigir un depósito de garantía en dinero efectivo, por un monto acordado, para resarcir el pago de los eventuales daños que puedan ocasionarse. En estos casos también se pueden hacer excepciones a las normas vigentes de alquiler y uso.

@@ -1,0 +1,3 @@
+Artículo 88—La asamblea se inicia con la presentación de candidatos en forma personal o por recomendación. El nominado debe aceptar la postulación e indicar bajo fe de juramento, que conoce la normativa, las consecuencias legales respectivas, que cumple con los requisitos estipulados en este reglamento y que no le alcanza ninguna de las prohibiciones del artículo 7 y de las siguientes:
+a) Para formar parte de la Junta Directiva del CCDRRC se debe ser costarricense y cumplir con los artículos 7 y 8.
+b) Para formar parte de los comités comunales se debe residir en la comunidad y cumplir con el artículo 47.

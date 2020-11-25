@@ -1,0 +1,1 @@
+Artículo 93—En la asamblea se levanta un acta común o notarial de todo lo acontecido, la cual debe estar a disposición de los delegados asistentes cuarenta y ocho horas después de finalizada la elección, en las oficinas del CCDRRC, para lo que tengan a bien.

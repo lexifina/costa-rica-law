@@ -1,0 +1,1 @@
+Artículo 44—Las comisiones, y los comisionados, pueden tener a disposición una caja chica, cuyo monto lo fija periódicamente la Junta directiva del Comité Cantonal pero deben entregar facturas de sus gastos y hacerlo en forma honesta y transparente. Los comisionados están expuestos a los mismos deberes y sanciones que contempla este reglamento para otros directivos.

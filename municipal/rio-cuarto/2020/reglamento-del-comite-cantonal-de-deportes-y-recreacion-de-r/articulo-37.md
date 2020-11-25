@@ -1,0 +1,1 @@
+Artículo 37—Las comisiones tienen plenos poderes de acción y cuentan con el apoyo de la Junta Directiva del Comité Cantonal. No obstante, la Junta Directiva se reserva el derecho de veto desus decisiones.

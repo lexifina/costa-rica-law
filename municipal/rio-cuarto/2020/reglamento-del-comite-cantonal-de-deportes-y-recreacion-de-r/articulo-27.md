@@ -1,0 +1,5 @@
+CAPÍTULO V
+De las sesiones, el orden del día, las actas, los acuerdos y los recursos
+Artículo 27—Los integrantes de cada junta (Junta directiva, comités comunales, comisiones u otros) se reúnen en sesión ordinaria el día, hora y con la frecuencia acordados en la sesión inaugural. Extraordinariamente, se reúnen cuando sean convocados por el presidente o conjuntamente por tres de sus miembros. Todas las sesiones son públicas. Tanto los funcionarios municipales como las personas particulares pueden participar en las sesiones con carácter de asesores, tienen voz mas no voto.
+La Junta Directiva del CCDRRC y cada una de las otras juntas definirá la sede de sesiones. Estos lugares pueden ser cambiados en forma temporal por acuerdo de la mayoría de los miembros de cada junta.
+El CCDRRC podrá sesionar de manera presencial o de forma virtual de acuerdo a las necesidades de las personas que lo conforman; o cuando existan lineamientos, decretos y/o disposiciones que impidan la reunión de las personas en espacios comunes. Para las sesiones virtuales regirán las mismas disposiciones de este reglamento y tendrán los mismos efectos de las sesiones presenciales.

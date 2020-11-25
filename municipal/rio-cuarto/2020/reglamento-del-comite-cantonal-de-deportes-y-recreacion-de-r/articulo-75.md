@@ -1,0 +1,1 @@
+Artículo 75—Los comités comunales y las asociaciones deportivas o recreativas adscritas al CCDRRC, deben entregar al Comité Cantonal los planes de trabajo y sus respectivos presupuestos para el año inmediato posterior a más tardar el primero de junio de cada año.

@@ -1,0 +1,1 @@
+Artículo 32—En cuanto al uso de la palabra, tiempo y mociones, demás aspectos de procedimiento y manejo de las sesiones, no contemplados en este reglamento se aplica lo establecido en el reglamento, de sesiones del Concejo Municipal de Río Cuarto. Lo mismo rige en lo que corresponde a las funciones, deberes y atribuciones de las Juntas.

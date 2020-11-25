@@ -1,0 +1,1 @@
+Artículo 96—A efecto de respetar la Ley que pregona la Igualdad de Género, deberá el Comité de Deportes garantizarse dos participaciones y representabilidad femenina dentro de los Miembros que integran la Junta Directiva.

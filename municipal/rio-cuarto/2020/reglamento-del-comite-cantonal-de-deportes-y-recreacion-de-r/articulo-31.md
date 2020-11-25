@@ -1,0 +1,1 @@
+Artículo 31—El quórum es de tres miembros. Si el número de presentes no alcanza el quórum después de media hora de iniciada la sesión, esta se suspende. En el acta se anotan las razones de la suspensión y se indican los nombres de los presentes y los nombres de los ausentes.

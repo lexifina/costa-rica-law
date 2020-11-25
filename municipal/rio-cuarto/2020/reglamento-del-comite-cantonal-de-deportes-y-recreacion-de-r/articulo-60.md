@@ -1,0 +1,1 @@
+Artículo 60.—Para renunciar al CCDRRC, cualquiera de los mencionados debe enviar notificación por escrito a la Junta directiva con un mes de anticipación. Este plazo puede variar en casos muy especiales.

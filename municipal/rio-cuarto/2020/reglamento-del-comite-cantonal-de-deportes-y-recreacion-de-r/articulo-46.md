@@ -1,0 +1,1 @@
+Artículo 46—Un comité comunal está integrado por cinco miembros, que no reciben salario o dieta, residentes en la comunidad respectiva, que se nombran por los miembros de las juntas directivas de las Asociaciones de Desarrollo constituidas en el cantón, e inician sus labores inmediatamente después de haber sido juramentados.

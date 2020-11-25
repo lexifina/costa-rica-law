@@ -1,0 +1,1 @@
+Artículo 92—Elegidos los representantes para la Junta Directiva, se hace la declaratoria oficial por parte del representante cantonal, quien indica a los delegados si tienen alguna objeción o comentario que realizar en torno a lo actuado. Acto seguido da por levantada la asamblea.

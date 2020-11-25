@@ -1,0 +1,1 @@
+Artículo 73—Para cualquier cambio sobre el plan y el presupuesto anuales aprobados por el Concejo Municipal, como presupuestos extraordinarios o modificaciones, debe remitirse al Concejo Municipal para su autorización.

@@ -1,0 +1,1 @@
+Artículo 3°—El CCDRRC es un ente que debe facilitar el desarrollo y la práctica de la recreación del deporte inclusive en casos de competencia, mediante el acceso a los beneficios que brindan dichas actividades. Todo lo anterior, a nivel cantonal, regional y nacional, promoviendo la identidad riocuarteña.
