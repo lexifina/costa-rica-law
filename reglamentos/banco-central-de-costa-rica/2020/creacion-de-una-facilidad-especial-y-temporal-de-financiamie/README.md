@@ -15,3 +15,4 @@ Creación de una facilidad especial y temporal de financiamiento a mediano plazo
 | --- | --- | --- |
 | 1 | 2020-09-02 | la propia norma |
 | 2 | 2020-11-05 | Reglamento 5968 (2020-11-05) |
+| 3 | 2020-11-25 | Reglamento 5973 (2020-11-25) |
