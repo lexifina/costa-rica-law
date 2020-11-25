@@ -1,0 +1,1 @@
+Artículo 3.- Derogatorias. Del Capítulo II deróguese el numeral 1) del artículo 2 denominado “Objeto del impuesto”; del Capítulo V deróguese el numeral 5) del artículo 13 denominado “Base imponible en la venta de bienes”, ambos numerales del Reglamento de la Ley del Impuesto sobre el Valor Agregado, Decreto Ejecutivo N.° 41779-H del 7 de junio de 2019 y sus reformas.

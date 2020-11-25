@@ -1,0 +1,26 @@
+Artículo 2.- Refórmese el numeral 9) del artículo 1 del Capítulo I, el numeral 26) del artículo 1 del Capítulo I; en el Capítulo II renumérese el numeral 2) del artículo 2 para que en su lugar éste se lea como numeral 1); del Capítulo IV el inciso e) del numeral 6) del artículo 11), el inciso b) del numeral 7) del artículo 11, el inciso d) del numeral 1 del artículo 12, el numeral 3) del artículo 12; de las Disposiciones Transitorias refórmese el Transitorio III, todos del Reglamento de la Ley del Impuesto sobre el Valor Agregado, Decreto Ejecutivo N.° 41779-H del 7 de junio de 2019 y sus reformas, para que se lean de la siguiente manera:
+“Artículo 1.- Definiciones. Para los efectos del presente Reglamento, se establecen las siguientes definiciones:
+(…)
+9) Centro de Atención para Personas Adultas Mayores: Son los lugares, establecimientos, centros diurnos, hogares, albergues u otra modalidad, estatales o privados, que han sido acreditados como tales, a los que acuden o en los que residen personas adultas mayores y en los que se les brindan servicios de cuidado y atención, de conformidad con la Ley N.° 7935 del 25 de octubre de 1999, denominada “Ley Integral para la Persona Adulta Mayor” y el Decreto Ejecutivo N.° 30438-MP del 19 de abril de 2002, llamado “Reglamento a la Ley N.° 7935”.
+(…)
+26) Insumos: Son los bienes intermedios o finales, así como los servicios, que sean necesarios para producir o comercializar un bien o para prestar un servicio.
+Para efectos de la tarifa reducida establecida en los incisos a) y b) del numeral 3) del artículo 11 de la Ley, se entiende por insumo vinculado a las operaciones sujetas a dicha norma, aquellos que estén contenidos dentro del listado de insumos que se establece en el Reglamento de Insumos Agropecuarios y Veterinarios, Insumos de Pesca No Deportiva y Conformación del Registro de Productores Agropecuarios o el que se encuentre vigente.
+(…)”
+“Artículo 11.- Exenciones.
+Están exentos del pago de Impuesto sobre el Valor Agregado, los siguientes supuestos:
+(…)
+6) Exenciones referidas a la prestación de servicios.
+(…)
+e) Los servicios que brinden las redes de cuido y los centros de atención de la siguiente manera:
+i. Los servicios que presten las redes de cuido para menores de edad, siempre y cuando cuenten con la debida habilitación del Centro de Atención Integral (CAI) del Ministerio de Salud y que pertenezcan a la Red Nacional de Cuido y Desarrollo Infantil (REDCUDI), sea el acceso a estos servicios subsidiados o no por una institución estatal, de conformidad con los registros de la Secretaría Técnica de la RECUDI.
+Mediante resolución general dictada por la Administración Tributaria se establecerá la información que deberán suministrar las entidades mencionadas, a fin de disponer del listado de las Alternativas de Atención Integral que forman parte de la RECUDI.
+ii. Los servicios que presten las redes de cuido de personas adultas mayores, así como los centros de cuidado y atención para personas adultas mayores, siempre y cuando cuenten con la debida autorización del Ministerio de Salud y sean certificados por la Dirección Ejecutiva del Consejo Nacional de la Persona Adulta Mayor (CONAPAM).
+Mediante resolución general dictada por la Administración Tributaria se establecerá la información que deberán suministrar las entidades mencionadas, a fin de disponer del listado de los prestadores del servicio de las redes de cuido, así como de los centros de atención para adultos mayores”.
+“Artículo 12.- No sujeciones. No están sujetas al Impuesto sobre el Valor Agregado, las siguientes operaciones:
+1) Las adquisiciones y operaciones de los siguientes entes públicos:
+(…)
+d) Las materias primas e insumos, entendidos como bienes y servicios vinculados directa y exclusivamente con los procesos de refinación y fabricación, incluso la mezcla y el combustible consumido en el proceso productivo para la obtención de los productos o combustibles listos para la venta que expende la Refinadora Costarricense de Petróleo (RECOPE), para lo cual requerirán de la autorización de la Dirección General de Hacienda para la aplicación del beneficio tributario, mediante el procedimiento que establece el Decreto Ejecutivo No 31611-H del 7 de octubre de 2003 y sus reformas.
+(…)
+3) Transacciones sujetas a otros impuestos:
+Las operaciones sujetas a traspasos de bienes inmuebles y muebles registrales gravados con el impuesto a la transferencia de acuerdo a la Ley N.° 6999, Ley del Impuesto de Traspaso de Bienes Inmuebles, de 3 de setiembre de 1985, y sus reformas y la Ley N° 7088, Reajuste Tributario y Resolución 18ª Consejo Arancelario y Aduanero Centroamericano, de 30 de noviembre de 1987, y sus reformas”.
+“Transitorio III.- Sin perjuicio de lo dispuesto en el Transitorio II de este Reglamento, a partir del 1 de enero de 2020, el Estado Central y Descentralizado, el Poder Judicial, el Poder Legislativo, el Tribunal Supremo de Elecciones, las empresas públicas y las demás instituciones públicas, de conformidad con lo establecido en el Transitorio XIV de la Ley, deberán pagar el Impuesto al Valor Agregado por los bienes y servicios que adquieran, para lo cual deberán contemplar dicho impuesto en los carteles, contrataciones y licitaciones que se vayan a ejecutar a partir del año 2020.”
