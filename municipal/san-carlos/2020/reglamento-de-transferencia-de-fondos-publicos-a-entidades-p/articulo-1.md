@@ -1,0 +1,10 @@
+MUNICIPALIDAD DE SAN CARLOS
+El Concejo Municipal de San Carlos en su Sesión Ordinaria celebrada el lunes 09 de noviembre de 2020, de manera virtual, mediante plataforma Microsoft Teams, Artículo Nº X, Acuerdo Nº 30, Acta Nº 63, ACORDÓ: Con base en el oficio MSCCM-SC-1482-2020 mediante el cual la Secretaria del Concejo Municipal traslada a Comisión Permanente de Asuntos Jurídicos el oficio MSC-AM-1648-2020 para su debido conocimiento, trámite y pronunciación respecto a las observaciones promovidas por la Asociación Protección a la Infancia y Hogar San Juan Bosco Fortuna en amparo a la publicación del Proyecto de Reglamento de Transferencia de Fondos Públicos a Entidades Privadas para la Atención de Personas Menores de Edad en Riesgo Social, se determina:
+1. Acoger las recomendaciones planteadas por la Licda. Pilar Porras Zúñiga, Directora de Desarrollo Social de la Municipalidad, mediante el oficio MSCAM-DS-101-2020, en atención a las observaciones promovidas por la Asociación Protección a la Infancia en cuanto al Proyecto del REGLAMENTO DE TRANSFERENCIA DE FONDOS PÚBLICOS A ENTIDADES PRIVADAS PARA LA ATENCIÓN DE PERSONAS MENORES DE EDAD EN RIESGO SOCIAL, publicado en la Gaceta 188, Alcance 200, con fecha de 31 de julio de 2020, así como la Fe de Erratas publicada en la Gaceta 237 del 25 de setiembre del 2020. Votación unánime. ACUERDO DEFINITIVAMENTE APROBADO. –
+2. Aprobar el formato final del REGLAMENTO DE TRANSFERENCIA DE FONDOS PÚBLICOS A ENTIDADES PRIVADAS PARA LA ATENCIÓN DE PERSONAS MENORES DE EDAD EN RIESGO SOCIAL, para que quede de la siguiente forma:
+“REGLAMENTO PARA LA TRANSFERENCIA DE FONDOS PUBLICOS A
+ORGANIZACIONES NO GUBERNAMENTALES PARA LA ATENCION DE
+PERSONAS MENORES DE EDAD EN RIESGO SOCIAL”
+CAPÍTULO I
+Disposiciones generales
+Artículo 1°-Objeto. El presente reglamento tiene como objeto establecer los lineamientos que debe aplicar la Municipalidad de San Carlos, en cuanto a los requisitos y procedimientos que deberán cumplir las Organizaciones No Gubernamentales reguladas en el artículo 20 bis de la Ley Nº 7733; como parte de los beneficios patrimoniales otorgados mediante trasferencia presupuestaria.

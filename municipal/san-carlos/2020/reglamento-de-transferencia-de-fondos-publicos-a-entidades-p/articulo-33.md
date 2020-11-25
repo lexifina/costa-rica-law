@@ -1,0 +1,1 @@
+Artículo 33º.- Custodia del expediente administrativo. Una vez aprobado el informe de liquidación presupuestaria por parte de la Dirección Hacienda, ésta remitirá el expediente administrativo a la Dirección de Desarrollo Social para su debida custodia.

@@ -1,0 +1,4 @@
+CAPÍTULO VII
+De la utilización de un Fondo Fijo-Caja Chica
+Artículo 20.- Definición del Fondo Fijo-Caja Chica. Para los efectos del presente reglamento, los Fondos de Cajas Chica lo constituyen los anticipos de recursos financieros que destina la Organización No Gubernamental para realizar gastos menores, atendiendo a situaciones no previsibles de forma oportuna, cuyo fin sea la adquisición de bienes y servicios de carácter indispensable y urgente. Dichos fondos operarán mediante el esquema de fondo fijo y su operación deberá sujetarse a las disposiciones que a lo interno establezca la Junta Directiva mediante acuerdo de acta.
+Este fondo deberá administrarse dentro de la cuenta bancaria estatal designada única y exclusivamente por la Organización para el manejo de los fondos transferidos por el Municipio.

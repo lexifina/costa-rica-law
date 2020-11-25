@@ -1,0 +1,1 @@
+Artículo 7º.- La Administración Municipal podrá conceder una o más transferencias patrimoniales al mismo sujeto privado dentro del año en curso para cubrir proyectos de obra comunal o programas sociales distinta naturaleza, previa demostración de la capacidad administrativa para desarrollarlos, y contando con autorización previa al desembolso por parte del Concejo Municipal.

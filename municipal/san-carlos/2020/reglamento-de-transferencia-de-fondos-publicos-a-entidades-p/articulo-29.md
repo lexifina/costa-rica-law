@@ -1,0 +1,4 @@
+CAPÍTULO XI
+Informes y finiquitos sobre la transferencia de beneficios patrimoniales
+Artículo 29º.- Suministro de documentos, información y aclaraciones sobre el uso de los recursos. Las Organizaciones No Gubernamentales deberán entregar a la Municipalidad cualquier información, documentos, aclaraciones y adiciones que ésta requiera sobre el manejo de fondos de origen público.
+Para ese efecto, la Municipalidad, a través de la Dirección de Desarrollo Social, determinará el grado de detalle, la cantidad y la forma de presentación de la información que se requiera para proceder con el finiquito de la transferencia, así como, para comprobar por los medios idóneos que los beneficios concedidos se programaron, ejecutaron y liquidaron de acuerdo con lo estipulado en el plan anual de trabajo y el perfil de proyecto.
