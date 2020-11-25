@@ -1,0 +1,3 @@
+CAPÍTULO IV
+DE LOS DISPOSITIVOS DE PAGO
+Artículo 8.Requerimientos para los dispositivos de pago. Los emisores deberán garantizar que cuando se emitan los dispositivos de pago, estos cumplan con los estándares EMV, que incorporen la tecnología de pago sin contacto y que tengan habilitada la funcionalidad de PIN en línea activo o algún método de autenticación biométrico del cliente.

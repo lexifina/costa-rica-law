@@ -1,0 +1,1 @@
+Artículo 16.Comprobante de la transacción de pago. Para toda transacción de pago realizada dentro del territorio nacional, se entregará el comprobante impreso de dicha transacción, únicamente a solicitud del cliente.

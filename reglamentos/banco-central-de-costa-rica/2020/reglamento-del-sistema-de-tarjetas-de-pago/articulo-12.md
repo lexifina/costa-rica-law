@@ -1,0 +1,1 @@
+Artículo 12.Cambio de PIN. Los emisores deberán brindar a sus clientes las facilidades necesarias para realizar el cambio de PIN de sus dispositivos de pago y garantizarle su uso dentro o fuera del territorio nacional, o ambos según sea el tipo de producto.

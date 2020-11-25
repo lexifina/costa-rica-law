@@ -1,0 +1,3 @@
+CAPÍTULO V
+DE LAS TRANSACCIONES DE PAGO
+Artículo 13.Pagos rápidos. Todas aquellas operaciones de pago que se realicen con un dispositivo de pago presente, emitido por un emisor nacional, por montos inferiores o iguales a treinta mil colones o su equivalente en moneda extranjera, deberán efectuarse sin la comprobación de la identidad del cliente por parte del afiliado para su autorización. Esto significa que, en estos casos, no debe exigirse al cliente la presentación de su documento de identificación, la firma del comprobante de pago (“voucher”), la digitación del PIN, el uso de identificación biométrica o de cualquier otro elemento de autenticación del cliente.

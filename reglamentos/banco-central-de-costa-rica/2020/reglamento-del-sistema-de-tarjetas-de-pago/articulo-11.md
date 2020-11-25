@@ -1,0 +1,1 @@
+Artículo 11.De la cuenta IBAN. Toda tarjeta de crédito, débito y prepago debe tener asociada una cuenta IBAN, cuyo número debe embozarse o imprimirse en el anverso o reverso de la tarjeta, de forma continua, en ambos casos, en la parte inferior de la tarjeta.

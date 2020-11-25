@@ -1,0 +1,1 @@
+Artículo 41.Comisiones de las operaciones de pago de plataformas digitales. Para toda operación de pago que provenga de una plataforma digital, procesada por un adquirente fuera del territorio nacional, las marcas de tarjetas deben cobrar al emisor del dispositivo de pago, una comisión igual a como si dicha transacción fuera procesada por un adquirente nacional.

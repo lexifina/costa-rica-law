@@ -1,0 +1,1 @@
+Artículo 30.De la seguridad de la información del dispositivo de pago. Bajo ninguna circunstancia podrá el afiliado solicitar al cliente la entrega de su dispositivo de pago o la información contenida en dicho dispositivo, con el fin de visualizar o capturar sus datos.

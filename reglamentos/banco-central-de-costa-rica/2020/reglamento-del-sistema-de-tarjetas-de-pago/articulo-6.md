@@ -1,0 +1,2 @@
+Artículo 6.Cumplimiento del marco regulatorio. Los proveedores de servicio deben someterse a las disposiciones establecidas en el presente reglamento y cumplir con los lineamientos y acuerdos de tipo operativos definidos en las normas complementarias del Sistema de Tarjetas de Pago.
+Es responsabilidad del proveedor de servicios conocer las disposiciones del marco normativo que esté publicado en la página web del BCCR.
