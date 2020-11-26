@@ -1,5 +1,8 @@
-ARTÍCULO 156.- Prioridad de obligaciones
-En todo remate de vehículos se seguirá el siguiente orden de prioridad de pago:
-a) Los gravámenes prendarios y los originados en esta ley, según el grado que corresponda, en estricto orden cronológico.
-b) El gravamen que resulte por lesiones a personas y daños a bienes.
-c) Multas impuestas.
+Artículo 156- Prioridad de obligaciones en el proceso de remate de vehículos en condiciones distintas de las de los vehículos no reclamados.
+En todo remate de vehículos en condiciones distintas de las de los vehículos no reclamados, se seguirá el siguiente orden de prioridad de pago:
+a) Los gravámenes prendarios y los originados en esta ley de acuerdo con el artículo 171, según el grado que corresponda, en estricto orden cronológico.
+b) El gravamen que resulte por lesiones a personas y daños a bienes, ocasionados por un vehículo.
+c) Las multas impuestas y por las cuales se encuentre respondiendo el vehículo, así como gastos por custodia y acarreo, desde el día de la detención del automotor y hasta la firmeza del remate, si el vehículo se encontrara custodiando en un depósito del Consejo de Seguridad Vial (Cosevi), el Ministerio de Obras Públicas y Transportes (MOPT) o municipios con policías de tránsito municipal habilitada.
+Si satisfechos esos rubros con el producto de la subasta se presenta un remanente, este pasará a formar parte del Fondo de Seguridad Vial del Cosevi. Expirado el plazo de los diez días citados, sin ninguna gestión al respecto por parte de propietarios o interesados con justo título, el Consejo de Seguridad Vial efectuará, ante el Registro de Bienes Muebles del Registro Nacional, el trámite de entrega de placas, la desinscripción y cancelación de todas las anotaciones y los gravámenes reales o función de garantía, judiciales y administrativos que se encuentren caducos, o que deban desaparecer por haber quedado practicados de manera sobreviniente en cosa ajena al pasar el vehículo a propiedad del Cosevi.
+Los gravámenes judiciales generados en accidentes de tránsito deberán ser levantados por la autoridad judicial, excepto cuando hayan transcurrido dos años desde su anotación en el Registro, caso en el cual podrán ser levantados a solicitud del Cosevi, declarándose que están caducos registralmente y para todo efecto legal.
+(Así reformado por el artículo único de la ley N° 9913 del 26 de noviembre del 2020)
