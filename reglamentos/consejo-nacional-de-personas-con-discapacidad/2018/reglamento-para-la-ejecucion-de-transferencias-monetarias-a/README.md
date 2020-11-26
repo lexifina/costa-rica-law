@@ -16,3 +16,4 @@ Reglamento para la ejecución de transferencias monetarias a personas con discap
 | 1 | 2019-01-08 | la propia norma |
 | 2 | 2019-11-07 | Reglamento 22 (2019-11-07) |
 | 3 | 2020-03-26 | Reglamento 7 (2020-03-26) |
+| 4 | 2020-11-26 | Reglamento 28 (2020-11-26) |
