@@ -14,10 +14,8 @@ C2 | 50% | 0.5%
 D | 75% | 0.5%
 E | 100% | 0.5%
 Como excepción para la categoría de riesgo E, la entidad con operaciones crediticias con un deudor cuyo nivel de Comportamiento de Pago Histórico está en Nivel 3, debe calcular el monto mínimo de la estimación específica para dichos deudores de acuerdo con el siguiente cuadro:
-Morosidad en la entidad | Porcentaje de estimación específica sobre la parte descubierta de la operación crediticia | Porcentaje de estimación específica sobre la parte cubierta de la operación crediticia | Capacidad de Pago (Deudores del Grupo 1) | Capacidad de Pago (Deudores del Grupo 2)
-Igual o menor a 30 días | 20% | 0.5% | Nivel 1 | Nivel 1
-Igual o menor a 60 días | 50% | 0.5% | Nivel 2 | Nivel 2
-Más de 60 días | 100% | 0.5% | Nivel 1 o Nivel 2 o Nivel 3 o Nivel 4 | Nivel 1 o Nivel 2
+[imagen]
+(Así reformada la tabla anterior en sesión N° 1624 del 26 de noviembre del 2020)
 Si el deudor se encontraba antes de tener una operación crediticia especial en una categoría de riesgo E, éste mantiene su calificación por lo menos durante 180 días, y durante este plazo el porcentaje de estimación será de 100%, sin aplicar la excepción a que se refiere este artículo.
 La suma de las estimaciones específicas para cada operación crediticia constituye la estimación específica mínima.
 (Así reformado mediante sesión N° 1058 del 19 de agosto de 2013)
