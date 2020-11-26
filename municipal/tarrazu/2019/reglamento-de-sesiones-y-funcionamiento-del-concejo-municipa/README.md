@@ -15,3 +15,4 @@ Reglamento de sesiones y funcionamiento del Concejo Municipal de Tarrazú
 | --- | --- | --- |
 | 1 | 2020-02-12 | la propia norma |
 | 2 | 2020-10-01 | Reglamento municipal 22 (2020-10-01) |
+| 3 | 2020-11-26 | Reglamento municipal 30 (2020-11-26) |

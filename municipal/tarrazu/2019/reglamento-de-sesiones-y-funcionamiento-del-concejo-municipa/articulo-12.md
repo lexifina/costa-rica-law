@@ -1,1 +1,4 @@
-Artículo 12.—Se pagará la dieta correspondiente a una sesión ordinaria por semana y hasta dos extraordinarias por mes, el resto de las sesiones no se pagarán.
+Artículo 12.-Se pagará la dieta correspondiente a una sesión ordinaria por semana y hasta dos extraordinarias por mes, el resto de las sesiones no se pagarán.
+La Secretaría del Concejo Municipal levantará, por cada sesión ordinaria y extraordinaria celebrada por el órgano colegiado una lista de asistencia conforme a la cual serán pagadas las dietas de los Regidores propietarios y suplentes, así como los Síndicos propietarios y suplentes.
+En el caso de sesiones virtuales excepcionales a las que refiere el artículo 9 bis de este Reglamento, la Secretaría del Concejo Municipal emitirá una certificación donde hará constar la asistencia a la videoconferencia y tendrá la misma validez que los listados dichos en el párrafo anterior.
+(Así reformado mediante sesión N° 030-2020 del 26 de noviembre del 2020)
