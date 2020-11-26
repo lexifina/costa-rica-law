@@ -8,7 +8,6 @@ c) Presentarse en el lugar de salida, a la hora indicada en la solicitud de serv
 d) Firmar el formulario de solicitud una vez concluido el servicio, como constancia de su recepción a satisfacción y avalando la información sobre la gira que este indique.
 e) Utilizar los servicios de transporte exclusiva y estrictamente en actividades oficiales de la Asamblea Legislativa en el desempeño de sus funciones.
 f) No prolongar ni modificar el itinerario establecido.
-g) No ejercer presiones al miembro del Directorio Legislativo, la Dirección Ejecutiva o la Unidad de Transportes para la asignación de un determinado chofer para la realización de los servicios cortos o las giras, de conformidad con el inciso e) del artículo 15 del presente reglamento.
-(Así reformado el inciso anterior mediante sesión ordinaria N° 002-2018 del 10 de mayo del 2018)
+g) (Derogado mediante sesión N° 134-2020 del 26 de noviembre del 2020)
 h) Reportar cualquier irregularidad que observe durante el viaje e informar ante la Unidad de Transportes sobre algún accidente de tránsito ocasionado por motivo del uso del vehículo durante el trayecto en que participen.
 i) Conocer y cumplir con las disposiciones de este Reglamento.
