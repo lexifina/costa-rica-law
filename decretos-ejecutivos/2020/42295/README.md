@@ -33,3 +33,4 @@ Restricción vehicular diurna ante el estado de emergencia nacional en todo el t
 | 18 | 2020-10-16 | Decreto Ejecutivo 42666 (2020-10-16) |
 | 19 | 2020-10-29 | Decreto Ejecutivo 42689 (2020-10-29) |
 | 20 | 2020-11-01 | Decreto Ejecutivo 42692 (2020-11-01) |
+| 21 | 2020-11-27 | Decreto Ejecutivo 42735 (2020-11-27) |
