@@ -1,0 +1,1 @@
+Artículo 42- Todo certificado de licencia municipal se deberá mantener en un lugar visible, dentro de la zona de exposición y venta de los bienes y/ o servicios de la actividad permitida, en un lugar accesible al inspector o inspectora municipal y/o al público en general.

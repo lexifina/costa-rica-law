@@ -1,0 +1,1 @@
+Artículo 25- En caso de que no se cumpla con la cancelación del impuesto en los meses indicados en el artículo anterior, la Unidad de Patentes estará obligada a cobrar el recargo por concepto de intereses.

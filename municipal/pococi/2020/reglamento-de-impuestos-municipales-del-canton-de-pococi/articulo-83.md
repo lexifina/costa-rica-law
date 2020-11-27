@@ -1,0 +1,1 @@
+Artículo 83- En caso de instalación de rótulos, vallas, mantas, lonas y letreros comerciales sin licencia, que se encuentren atrasados en el pago del tributo correspondiente o que incumplan los requisitos reglamentarios establecidos por la Municipalidad, se le otorgará al contribuyente un plazo perentorio de ocho días hábiles para que proceda a ajustarlos a derecho.

@@ -1,0 +1,12 @@
+Artículo 39- Requisitos. La persona interesada que desee traspasar su licencia municipal a otra persona física o jurídica deberá aportar los siguientes documentos:
+1. Formulario completo de la solicitud de traspaso de licencia municipal con todos los datos requeridos, debidamente firmado por la persona interesada o por el representante legal cuando corresponda, con el siguiente detalle:
+a) Nombre y calidades del solicitante de la licencia municipal, en caso de persona física, cuando él o la solicitante lo sea una persona jurídica, deberá aportarse el nombre y calidades del representante legal.
+b) Nombre y calidades del cesionario (a) de la licencia municipal, en caso de persona física, cuando el solicitante lo sea una persona jurídica deberá aportarse el nombre y calidades del representante legal.
+c) Se hará constancia de la cesión que realiza el propietario de la licencia municipal al cesionario (a), comprometiéndose este último, a ejercer la actividad comercial respectiva, cumpliendo con las normas legales y reglamentarias que regulan la actividad, y el orden público, entendido este como la paz social, la tranquilidad, la seguridad, la moral y las buenas costumbres.
+d) Lugar para atender notificaciones dentro del Cantón de Pococí, a nombre de la nueva persona propietaria.
+e) El documento deberá contener las siguientes especies fiscales: ₡ 100,00 fiscales.
+f) El documento deberá encontrarse debidamente firmado por la persona interesada o por el representante legal, en su caso, firma que deberá estar autenticada por un (a) abogado (a) en caso de no presentarse en forma personal a la municipalidad.
+2. En caso de que el cesionario sea una persona física, deberá presentar copia de la cédula de identidad de la persona interesada. En caso de ser persona jurídica, deberá aportar: cédula de identidad del representante legal y certificación de personería jurídica con no más de un mes de emitida.
+3. Contrato de arrendamiento del inmueble, en caso de ser arrendado, en el que se haga constar que se acepta que el cesionario o la cesionaria continúe explotando la actividad lucrativa referida en el local comercial. Si el local perteneciere al cesionario o la cesionaria, deberá adjuntarse certificación de propiedad.
+4. Copia del permiso sanitario de funcionamiento extendido por el Ministerio de Salud.
+6. Estar al día en el pago de los tributos municipales y otras obligaciones en favor de la Municipalidad, como los impuestos de licencias de licores, bienes inmuebles, construcciones y timbres.

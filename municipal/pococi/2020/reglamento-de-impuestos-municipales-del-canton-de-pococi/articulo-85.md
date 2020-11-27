@@ -1,0 +1,1 @@
+Artículo 85- Los rótulos existentes, legalizados ante la Municipalidad, deberán ponerse a derecho y ajustarse al reglamento en un plazo de seis meses, a partir de la entrada en vigor del presente Reglamento.

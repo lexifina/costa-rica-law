@@ -1,0 +1,3 @@
+CAPÍTULO V SECCIÓN I
+De la Unidad de Patentes
+Artículo 72- La Unidad de Patentes estará integrada por una jefatura y por los funcionarios y funcionarias que se consideren necesarios para desarrollar la actividad de forma ágil y eficiente, tendrá a su cargo la recepción y revisión de requisitos, aprobación, denegatoria, cancelación y revocatoria de licencias, para estos dos últimos deberá instruir el procedimiento administrativo correspondiente, establecimiento y fiscalización de este impuesto, las inspecciones y verificaciones que se requieran para cumplir con el ordenamiento jurídico vigente en locales comerciales, actividades de ruteo y cualquier otra atinente a sus competencias.

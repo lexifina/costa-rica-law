@@ -1,0 +1,1 @@
+Artículo 75- Compete a la Unidad de Patentes la tramitación y resolución de todo lo relacionado con la Ley de Impuestos Municipales del Cantón de Pococí, Ley 8582, y con el Reglamento, así como velar por el fiel cumplimiento de dichas normas y de cualquier otro cuerpo normativo que regule ésta y otras materias sobre otorgamiento de licencias.

@@ -1,0 +1,1 @@
+Artículo 10- Para que la Municipalidad autorice la solicitud de otorgamiento, traslado o traspaso de licencias municipales de todo tipo, será requisito indispensable que las personas interesadas, tanto solicitantes como propietarias del inmueble, estén al día en el pago de los tributos y demás obligaciones municipales.

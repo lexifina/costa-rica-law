@@ -1,0 +1,1 @@
+Artículo 70- Cuando no se cumpla con lo dispuesto en el artículo anterior, a saber, el pago del impuesto se procederá en forma inmediata y sin más trámite a la cancelación de la licencia de espectáculo público y el traslado de la deuda determinada a cobro judicial.

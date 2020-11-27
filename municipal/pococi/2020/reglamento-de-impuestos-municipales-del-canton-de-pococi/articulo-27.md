@@ -1,0 +1,4 @@
+SECCIÓN III
+De la declaración jurada
+Artículo 27- Todos los patentados o patentadas tienen la obligación de presentar cada año la declaración jurada del impuesto ante la Unidad de Patentes y anexar fotocopia o comprobante de la declaración del impuesto sobre la renta del período sujeto a gravar, debidamente recibida por la Dirección General de Tributación o agentes auxiliares autorizados para este fin o comprobante virtual correspondiente, cualquiera que sea la cuantía de sus ingresos o ventas brutas obtenidas.
+El plazo máximo para su presentación será el 15 de enero de cada año o régimen tributario vigente. Con base en esta información, la Unidad de Patentes calculará el impuesto por pagar en firme, sin previo pronunciamiento, aun y cuando la declaración se presente posterior a la fecha señalada.

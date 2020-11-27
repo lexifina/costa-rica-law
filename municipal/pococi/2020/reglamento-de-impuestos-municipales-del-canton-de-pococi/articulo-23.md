@@ -1,0 +1,1 @@
+Artículo 23- Hecho Generador. El hecho generador del impuesto es el ejercicio de cualquier tipo de actividad efectuada por los sujetos pasivos entre el 1º de enero y el 31 de diciembre de cada año, a título oneroso y con carácter lucrativo, sea que se desarrolle en un establecimiento o no y cualquiera que sea el resultado económico obtenido.

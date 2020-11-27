@@ -1,0 +1,1 @@
+Artículo 77- Los propietarios o propietarias, administradores o administradoras, concesionarios o concesionarias y cualquier persona que de una u otra forma desarrolle una actividad lucrativa, está en la obligación de brindar toda la colaboración a estos funcionarios y funcionarias, asimismo tienen la obligación de mostrar todos los documentos requeridos por ellos.

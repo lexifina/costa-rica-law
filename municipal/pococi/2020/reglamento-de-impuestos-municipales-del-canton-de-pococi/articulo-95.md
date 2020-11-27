@@ -1,0 +1,1 @@
+Artículo 95- Lo relacionado con la materia de licores, sin perjuicio de las normas que le regulan en este reglamento, se regirá con lo dispuesto en el "Reglamento para la Regulación y Comercialización de Bebidas con Contenido Alcohólico en el cantón de Pococí" vigente, según lo dispuso la Ley N° 9047.

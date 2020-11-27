@@ -1,0 +1,1 @@
+Artículo 8º- No se concederán licencias municipales de ningún tipo en casas de habitación, salvo que para efectuar la actividad se separe totalmente el área que se destinará para local comercial de la casa de habitación, debiéndose observar que entre uno y otro no haya comunicación interna.

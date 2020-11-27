@@ -1,0 +1,3 @@
+Artículo 33- La declaración jurada del impuesto que debe presentar el patentado o patentada ante la Unidad de Patentes quedará sujeta a las disposiciones de los artículos 122, 124 y 125 del Código de Normas y Procedimientos Tributarios, así como a otras leyes que regulen esta materia.
+Toda declaración queda sujeta a revisión por los medios establecidos por ley. Si se comprueba que los datos suministrados son incorrectos, circunstancia que determina una variación en el tributo, o cualquier otro tipo de inexactitud, se hará la recalificación respectiva.
+En este caso, la certificación extendida por el contador municipal donde se indique la diferencia adeudada servirá de título ejecutivo para efectos del cobro.

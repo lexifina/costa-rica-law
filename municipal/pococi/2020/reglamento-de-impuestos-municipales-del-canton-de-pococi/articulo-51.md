@@ -1,0 +1,1 @@
+Artículo 51- La Unidad de Patentes instruirá el procedimiento administrativo regulado en el Libro Segundo de la Ley General de la Administración Pública, y decidirá en el caso en específico, si procede o no la cancelación definitiva de la licencia comercial.

@@ -1,0 +1,2 @@
+Artículo 24- Los ingresos brutos o las ventas brutas anuales obtenidos durante el período fiscal del año que se grava, se les aplicará la tarifa de dos por mil (0,002) (¢2.00 por cada mil colones) y el resultado obtenido constituirá el impuesto a pagar por año.
+El impuesto se cancelará por adelantado y se pondrá al cobro de manera trimestral. Deberá cancelarse durante los meses de enero, abril, julio y octubre de cada año.

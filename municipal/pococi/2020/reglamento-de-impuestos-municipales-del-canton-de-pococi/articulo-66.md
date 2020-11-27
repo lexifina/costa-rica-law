@@ -1,0 +1,1 @@
+Artículo 66- Nadie puede iniciar actividad alguna si su correspondiente solicitud no ha sido debidamente aprobada y cancelado el impuesto correspondiente ante la Municipalidad. De iniciarse la actividad sin el permiso municipal, se procederá a la suspensión de la actividad para lo cual podrá hacerse acompañar de las autoridades de la Fuerza Pública.

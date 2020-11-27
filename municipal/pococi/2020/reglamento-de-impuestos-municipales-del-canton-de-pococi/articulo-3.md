@@ -1,0 +1,1 @@
+Artículo 3º- Todas las actividades que se desarrollen con fines lucrativos o económicos dentro del cantón de Pococí, aún y cuando su domicilio fiscal se encuentre en otro Cantón, deberán obtener la licencia respectiva y pagar el impuesto correspondiente, siempre que el hecho generador del impuesto sea realizado dentro del Cantón de Pococí.

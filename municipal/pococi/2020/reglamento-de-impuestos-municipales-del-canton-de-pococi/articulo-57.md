@@ -1,0 +1,1 @@
+Artículo 57- El impuesto para los carruseles se establecerá de acuerdo con la totalidad de los boletos o fichas vendidas, correspondiendo dicho impuesto a un 5% del valor de cada boleto o ficha vendida.

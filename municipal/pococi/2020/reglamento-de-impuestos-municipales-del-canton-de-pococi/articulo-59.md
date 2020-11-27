@@ -1,0 +1,2 @@
+Artículo 59- La cancelación del impuesto asignado debe efectuarse antes del inicio de las actividades en las cajas recaudadoras de la Municipalidad de Pococí o lugar designado por la Municipalidad para tales efectos.
+Para las actividades que cancelan el impuesto de espectáculo público, deberá por medio de una declaración jurada, indicar el total de tiquetes vendidos durante la duración del evento y su valor, a fin de que la Unidad de Patentes calcule el impuesto correspondiente.

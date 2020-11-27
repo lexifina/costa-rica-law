@@ -1,0 +1,1 @@
+Artículo 11- A toda actividad con fines lucrativos o económicos, que haya sido previamente autorizada por la Municipalidad de Pococí, se le impondrá un impuesto que será establecido de acuerdo con los mecanismos que dicten las leyes respectivas.

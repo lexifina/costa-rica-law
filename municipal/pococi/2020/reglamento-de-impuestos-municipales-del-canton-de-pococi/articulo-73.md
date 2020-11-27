@@ -1,0 +1,1 @@
+Artículo 73- Esta Unidad deberá conocer, resolver y autorizar tanto las solicitudes de licencias para establecimientos comerciales, industriales y de servicios, así como licencias de espectáculos públicos, ventas ambulantes y estacionarias, ferias, turnos y actividades ocasionales, traspasos y traslados de éstas.

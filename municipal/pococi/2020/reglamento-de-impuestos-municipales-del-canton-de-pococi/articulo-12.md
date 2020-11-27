@@ -1,0 +1,1 @@
+Artículo 12- Las personas que se dediquen a la actividad profesional a que se refiere la ley N° 8582 y que se encuentren asociadas con fines mercantiles en un mismo establecimiento comercial deberán obtener la licencia y pagar el impuesto respectivo.

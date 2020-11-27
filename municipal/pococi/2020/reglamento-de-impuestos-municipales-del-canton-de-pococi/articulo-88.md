@@ -1,0 +1,4 @@
+Sección II
+De la supervisión de las donaciones
+Artículo 88- Supervisión de las donaciones. La inversión será realizada de acuerdo con el orden de prioridades que establezca la Municipalidad del cantón de Pococí, para lo cual deberá existir un estudio técnico al mes de enero de cada año, definiendo las prioridades de la comunidad del cantón de Pococí que eventualmente podrían ser beneficiadas y su justificación.
+El Concejo Municipal del cantón de Pococí, previo a su aprobación, delegará en los órganos administrativos correspondientes de la Municipalidad, la constatación de criterios de idoneidad, presupuestos, plan de inversión y cumplimiento de requisitos para la recepción de donaciones. La Municipalidad supervisará el desarrollo de las obras y al recibirlas satisfactoriamente, emitirá el certificado que se indica en el artículo siguiente.
