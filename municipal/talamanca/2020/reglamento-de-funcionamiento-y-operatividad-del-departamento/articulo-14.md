@@ -1,0 +1,2 @@
+Artículo 14.—De la vigencia y derogación. El presente reglamento entrará en vigencia al día siguiente de su publicación definitiva y deroga cualquier disposición reglamentaria municipal anterior que se le oponga. Concejo Municipal. El presente reglamento fue aprobado por el Concejo Municipal de la Municipalidad de Talamanca en la Sesión N° 26 celebrada el día 30 de octubre del 2020.
+Ciudad de Bribrí, Talamanca, 03 de noviembre de 2020.
