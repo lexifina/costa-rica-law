@@ -1,0 +1,1 @@
+Artículo 16.—Inspección y supervisión. Una vez otorgado el permiso, el Departamento de Servicios de Infraestructura y Obra Pública, por medio de los inspectores fiscalizará el trabajo que se llevó a cabo de conformidad con lo que indica el permiso de construcción.

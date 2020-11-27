@@ -1,0 +1,1 @@
+Artículo 10.—Exposición de los permisos de construcción. Todo permiso de construcción debe ser colocado en un lugar visible, de manera que facilite las labores de inspección y control por parte de la municipalidad, lo cual debe ser comunicado oportunamente a los interesados.
