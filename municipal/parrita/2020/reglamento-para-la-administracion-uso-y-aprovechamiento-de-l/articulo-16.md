@@ -1,0 +1,2 @@
+ARTICULO 16. De los reclamos. Los usuarios y los visitantes de las instalaciones podrán manifestar sus quejas por el servicio brindado en las instalaciones deportivas, directamente en las oficinas administrativas del Comité Cantonal por escrito, para lo cual el Comité deberá garantizarle a los usuarios los canales o mecanismos que considere más apropiados.
+Sólo serán atendidos aquellos reclamos que contengan todos los datos de la persona que presenta la queja y se haga responsable de ésta.

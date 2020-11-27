@@ -1,0 +1,3 @@
+ARTICULO 20. Colocación de rótulos o publicidad en las Instalaciones Deportivas El Comité, podrá autorizar la colocación de rótulos en las instalaciones deportivas, siempre y cuando con ello obtenga un beneficio económico o material, y se cuente con la autorización de la Junta Directiva.
+Dichos rótulos no podrán hacer alusión a publicidad para bebidas alcohólicas, consumo de cigarrillos o de aquellos otros bienes y servicios que por su contenido atenten contra los principios éticos y morales de la comunidad. De ser posible, la publicidad a permitir dentro de las instalaciones deberá ser acorde con la promoción del deporte, la recreación y un estilo de vida saludable.
+El Comité definirá la tarifa correspondiente previo estudio de la solicitud.

@@ -1,0 +1,1 @@
+ARTÍCULO 2. Objeto del Reglamento. El presente reglamento tiene por objeto regular la sana administración, uso y aprovechamiento de las instalaciones deportivas y recreativas cuya administración está bajo la responsabilidad del CCDRP.

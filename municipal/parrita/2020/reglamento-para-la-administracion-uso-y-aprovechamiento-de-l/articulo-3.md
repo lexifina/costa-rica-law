@@ -1,0 +1,1 @@
+ARTICULO 3. Instalaciones Deportivas Municipales. Son aquellas instalaciones destinadas a la práctica de deportes y/o actividades recreativas, ubicadas en el cantón de Parrita, que sean propiedad del Comité o recibidas en administración por parte de la Municipalidad o cualquier otra entidad pública o privada.

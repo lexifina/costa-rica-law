@@ -1,0 +1,3 @@
+ARTICULO 8. De las tarifas. La Junta Directiva del Comité podrá establecer tarifas más los impuestos correspondientes para el uso de las instalaciones deportivas y recreativas, las cuales deberán ser reinvertidas en el mantenimiento de las mismas instalaciones.
+Estas tarifas, deberán considerar las posibilidades de los usuarios y la democratización en el uso y el aprovechamiento general y la conservación de las instalaciones.
+Cuando por el uso de las instalaciones deportivas o recreativas se haya establecido una tarifa, el ingreso a las mismas deberá ser respaldado por depósito bancario a la cuenta del Comité de Deportes.

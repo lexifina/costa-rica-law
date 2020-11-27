@@ -1,0 +1,2 @@
+ARTÍCULO 4. - Beneficiarios. Las instalaciones deportivas y recreativas a que se refiere este reglamento tendrán como prioridad el uso por parte de los atletas, entrenadores, grupos deportivos y recreativos, miembros de las Comités Comunales o cualquier organización deportiva adscrita al CCDRP.
+También podrán hacer uso de éstas, cualquier otro usuario y público en general cuando su uso se encuentre enmarcado dentro de los objetivos, fines y metas del CCDRP y se respeten las normas previstas en este Reglamento.

@@ -1,0 +1,3 @@
+ARTICULO 19. Realización de otros eventos no deportivos Para la realización de eventos o actividades no deportivas tales como ferias, bingos, fiestas o similares, dentro de las instalaciones deportivas o recreativas, debe contarse con la autorización del Comité, para lo cual se deberá pedir el permiso correspondiente a la Junta Directiva.
+Para tal fin la Junta Directiva se reserva la posibilidad de exigir un depósito de garantía de dinero efectivo, por un monto que permita resarcir el pago de eventuales daños que puedan ocasionarse a las instalaciones en general.
+El otorgamiento de estas autorizaciones deberá tomar en cuenta el uso prioritario de las instalaciones deportivas y recreativas para los fines establecidos en el Código Municipal y en este Reglamento.
