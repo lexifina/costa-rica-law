@@ -14,3 +14,4 @@ Reglamento de requerimientos de diseño arquitectónico sobre edificios para la 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-05-31 | la propia norma |
+| 2 | 2020-11-27 | SINALEVI (sin norma nombrada) |

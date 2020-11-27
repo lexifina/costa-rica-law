@@ -1,3 +1,4 @@
+(Nota de Sinalevi: Mediante resolución N° 142-2020-I del 27 de noviembre de 2020, del Tribunal Contencioso Administrativo y Civil de Hacienda , Sección Primera , se anuló el presente artículo respecto a la aplicación de aquellas normas a los centros de educación privada)
 ARTÍCULO 6. Requisitos para la aprobación de planos:
 1. Plano(s) de Catastro(s) certificado(s) del(los) terreno(s) donde se ubica o se ubicará la edificación y certificación Literal original y vigente de la propiedad del inmueble emitida por el Registro Nacional.
 2. Certificación de uso del suelo por parte de la Municipalidad (aplica para instituciones privadas)
