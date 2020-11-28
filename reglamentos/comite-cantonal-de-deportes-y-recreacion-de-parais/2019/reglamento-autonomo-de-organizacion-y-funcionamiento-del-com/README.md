@@ -14,3 +14,4 @@ Reglamento autónomo de organización y funcionamiento del Comité Cantonal de D
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-05-19 | la propia norma |
+| 2 | 2020-11-28 | Reglamento municipal 47 (2020-11-28) |
