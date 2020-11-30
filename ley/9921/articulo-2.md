@@ -1,0 +1,2 @@
+Artículo 2°.-Modifícase el artículo 2° de la Ley de Presupuesto Ordinario y Extraordinario de la República para el Ejercicio Económico del 2020, Ley No 9791 publicada en los Alcances 273A y 27313 de la Gaceta N° 233 del 06 de diciembre de 2019 en la forma que se indica a continuación:
+(Nota de Sinalevi: Por lo extenso de su contenido y tipo de formato consultar Alcance Digital N° 309 a La Gaceta N° 277 del 20 de noviembre del 2020)
