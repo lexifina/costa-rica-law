@@ -1,1 +1,0 @@
-ARTÍCULO 65. Los Comités Comunales deberán reunirse en sesión pública, cada quince días ordinariamente y extraordinariamente cuando lo requieran. Para las sesiones de los Comités Comunales aplicaran en lo que cabe lo dispuesto para las sesiones del Comité Cantonal.

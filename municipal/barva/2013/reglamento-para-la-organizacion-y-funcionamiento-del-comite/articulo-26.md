@@ -1,1 +1,0 @@
-ARTÍCULO 26. En la primera sesión, que se celebrará dentro de los cinco días naturales después de la fecha de su juramentación por el Concejo Municipal, los miembros del Comité se reunirán y mediante votación nominal se designaran los cargos a que se refiere el Artículo 13 de presente Reglamento.

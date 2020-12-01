@@ -1,1 +1,0 @@
-ARTÍCULO 71. Está prohibido al Comité Comunal de Deportes hacer uso de los dineros o fondos del mismo, para dar obsequios a equipos o personas, pagar facturas por concepto de fiestas, regalías u otros gastos que no sean para la promoción de equipos de ligas menores, equipos de aficionados, otras ligas, en general de las diferentes representaciones deportivas del Cantón.

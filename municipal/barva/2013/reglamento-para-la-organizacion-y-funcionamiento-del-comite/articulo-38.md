@@ -1,1 +1,0 @@
-ARTÍCULO 38. Los acuerdos quedan firmes con votación de mayoría simple de los miembros del Comité, igual cantidad de votos se requiere para modificar un artículo o fallo que haya quedado firme.

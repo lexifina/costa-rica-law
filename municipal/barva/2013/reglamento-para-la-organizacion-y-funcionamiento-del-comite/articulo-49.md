@@ -1,1 +1,0 @@
-ARTÍCULO 49. Las funciones y naturaleza del Administrador será la de planificación, control, supervisión y dirección en el campo deportivo y de recreación y a la vez desarrollará labores administrativas relacionadas directamente con las labores propias del Comité. También deberá elaborar instrumentos de evaluación de los planes, proyectos o programas que desarrolle el Comité.

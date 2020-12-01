@@ -1,1 +1,0 @@
-ARTÍCULO 14. El Comité contara con una Fiscalía que será de nombramiento por parte del Concejo Municipal y durará en su cargo dos años. Su nombramiento se dará a medio período de cada nombramiento del Comité de Deportes.

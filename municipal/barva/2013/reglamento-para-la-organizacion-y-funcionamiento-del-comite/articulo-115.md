@@ -1,1 +1,0 @@
-ARTÍCULO 115. Los colores oficiales del deporte en el cantón de Barva son el blanco y el rojo, pudiendo combinarse el amarillo con los dos colores anteriores, sin perjuicio del diseño artístico y estética, como un complemento, ocupando hasta un 20%.

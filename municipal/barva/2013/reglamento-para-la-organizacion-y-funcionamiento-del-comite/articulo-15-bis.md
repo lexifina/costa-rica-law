@@ -1,2 +1,0 @@
-Artículo 15 BIS: A efectos de llevar a cabo las asambleas ante descritas y el proceso de nombramiento de los representantes directos del Concejo Municipal, este podrá delegar la dirección del procedimiento a una Comisión Especial de Nombramiento que será la encargada de llevar adelante el proceso determinando los procedimientos a seguir con el fin de llevar a cabo la elección de los miembros de la Junta Directiva del CCDR.
-(Así adicionado en sesión N° 71 y publicado en La Gaceta N° 18 del 25 de enero del 2019)

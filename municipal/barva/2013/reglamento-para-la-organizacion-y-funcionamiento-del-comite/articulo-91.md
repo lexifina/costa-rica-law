@@ -1,1 +1,0 @@
-ARTÍCULO 91. El Comité Cantonal suministrará a todos los órganos de su dependencia, un libro de tesorería, libros de cheques de la cuenta bancaria designada para el ente y recibos por dinero que deberán usarse en todas las gestiones de cobro que se realicen.

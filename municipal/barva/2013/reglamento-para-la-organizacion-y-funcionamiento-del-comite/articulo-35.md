@@ -1,1 +1,0 @@
-ARTÍCULO 35. Las determinaciones o decisiones que tome la Junta Directiva en sus sesiones se denominarán acuerdos. Las resoluciones que tome la Junta Directiva se denominarán fallos, son fallos todas aquellas resoluciones que resuelvan controversias o contengan un juicio de valor.
