@@ -1,0 +1,1 @@
+Artículo 8°-Derogatoria. Deróguese el Decreto Ejecutivo número 41997-H del ocho de octubre de 2019, publicado en el Alcance número 240 a La Gaceta número 208 del 1º de noviembre de 2019 así como los tomos del I al V.
