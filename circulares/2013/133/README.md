@@ -14,3 +14,4 @@ Colaboración a las servidoras y servidores de la Dirección de Serivicios Gener
 | --- | --- | --- |
 | 1 | 2013-08-05 | la propia norma |
 | 2 | 2019-05-02 | Circular 69 (2019-05-02) |
+| 3 | 2020-12-01 | Circular 273 (2020-12-01) |
