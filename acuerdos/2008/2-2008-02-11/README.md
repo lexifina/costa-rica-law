@@ -14,3 +14,4 @@ Procedimiento de ayudas económicas a personas colegiadas que participan en acti
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-05-26 | la propia norma |
+| 2 | 2020-12-01 | Reglamento 115 (2020-12-01) |
