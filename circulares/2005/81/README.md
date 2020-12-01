@@ -13,3 +13,4 @@ Sobre el preaviso que deben otorgar los servidores al momento de terminar la rel
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-08-05 | la propia norma |
+| 2 | 2020-12-01 | Circular 275 (2020-12-01) |

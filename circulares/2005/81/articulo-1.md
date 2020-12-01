@@ -1,5 +1,5 @@
 CIRCULAR Nº 81-2005
-(NOTA: Esta circular fue reiterada y publicada en el Boletín Judicial N° 166 del 30 de agosto del 2007).
+(Nota de Sinalevi: Esta circular fue reiterada y publicada en el Boletín Judicial N° 166 del 30 de agosto del 2007).
 ASUNTO: Sobre el preaviso que deben otorgar los servidores al momento de terminar la relación laboral con el Poder Judicial.
 A TODOS LOS SERVIDORES JUDICIALES DEL PAÍS
 SE LES HACE SABER QUE:
@@ -103,3 +103,4 @@ En este último sentido y en atención a los argumentos expuestos en los oficios
 -0-
 Con base en el informe anterior, se resuelve: con base en el informe anterior, se resuelve: 1) Acoger el criterio legal del asesor jurídico, y de la Procuraduría General de la República. 2) Este Consejo en virtud del principio de legalidad, y con el .n de no afectar el Erario Público, no puede renunciar al cobro del rubro del preaviso en los casos en que corresponda, sin embargo, dispone que los Jefes de Oficina, como representantes mediatos del Poder Judicial en su condición de patrono, tendrán la responsabilidad de comunicar a la Dirección Ejecutiva, con copia al Consejo Superior, aquellos casos en que la ruptura intempestiva de la relación laboral haya ocasionado perjuicios a la institución, al no contar en forma oportuna con un sustituto idóneo que ocupe la plaza que dejó vacante el servidor que renunció, no obstante, la prevención que se le hiciera de cumplir con el preaviso; a fin de que se establezca el procedimiento de cobro correspondiente. 3) La Secretaría General de la Corte comunicará por circular este acuerdo a los servidores judiciales”.
 San José, 26 de julio del 2005.
+(Nota de Sinalevi: Mediante circular N° 275-2020 del 1° de diciembre del 2020 y publicada en el Boletín Judicial N° 13 del 20 de enero del 2020, se acordó modificar la presente norma, en cuanto a que los Jefes de Oficina, como representantes mediatos del Poder Judicial en su condición de patrono, tendrán la responsabilidad de comunicar a la Dirección Jurídica, con copia al Consejo Superior, aquellos casos en que la ruptura intempestiva de la relación laboral haya ocasionado perjuicios a la institución, y no a la Dirección Ejecutiva como se había indicado)
