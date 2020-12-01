@@ -17,3 +17,4 @@ Reglamento administración de contingentes en marco del Acuerdo establece Asocia
 | 2 | 2014-01-07 | Decreto Ejecutivo 38353 (2014-01-07) |
 | 3 | 2020-01-21 | Decreto Ejecutivo 42207 (2020-01-21) |
 | 4 | 2020-10-07 | Decreto Ejecutivo 42715 (2020-10-07) |
+| 5 | 2020-12-01 | Decreto Ejecutivo 42762 (2020-12-01) |

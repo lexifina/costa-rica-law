@@ -1,0 +1,3 @@
+Artículo 10 ter. Recuperación de saldos del contingente de queso. COMEX verificará en el TIC@ el último día hábil de marzo, mayo, julio, setiembre y noviembre de cada año, los saldos de las autorizaciones vencidas. Los volúmenes no utilizados serán incorporados al volumen total disponible para el contingente respectivo y puestos a disposición dentro de los cinco días naturales posteriores a dicha fecha a través del sitio web oficial del Ministerio.
+Un importador que no utilizó la totalidad del volumen autorizado deberá presentar una nueva solicitud, de conformidad con los artículos 6 y 6 bis del presente Reglamento.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 42762 del 1° de diciembre del 2020)

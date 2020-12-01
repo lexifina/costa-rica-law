@@ -1,7 +1,8 @@
 CAPÍTULO IV
 Disposiciones finales
 Artículo 20.—Ajustes por incumplimiento.
-a) Para los Contingentes de Importación, cuando un importador utilice menos del 95% del volumen de contingente autorizado en un año calendario, el monto a autorizar el año siguiente no podrá ser mayor al monto efectivamente importado.
+a) Para los Contingentes de Importación, al importador que utilice menos del 95% del volumen autorizado, no se le asignará, durante el primer semestre del año calendario siguiente, un monto superior al efectivamente importado. Se exceptúan de este ajuste los casos debidamente comprobados de caso fortuito o fuerza mayor o ante acciones u omisiones de la Administración Pública que impidan fehacientemente al administrado la utilización de los contingentes de importación que le fueron asignados. Para realizar la determinación anterior, COMEX seguirá el procedimiento sumario regulado en la Ley General de la Administración Pública, Ley N° 6227 del 02 de mayo de 1978.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 42762 del 1° de diciembre del 2020)
 b) Para los Contingentes de Exportación, el volumen a otorgar en Certificados de Exportación, se reducirá en un monto igual a:
 i. El volumen de certificados emitidos con cargo al volumen nacional no anulados de previo a la regionalización y no utilizados;
 ii. El volumen no exportado de azúcar, incluido el azúcar orgánico, y mercancías con alto contenido de azúcar, cuando se haya indicado a COMEX un volumen a exportar y que, por ende, COMEX no regionalice;
