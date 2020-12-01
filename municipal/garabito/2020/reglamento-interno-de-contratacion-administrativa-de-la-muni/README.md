@@ -14,3 +14,4 @@ Reglamento interno de contratación administrativa de la Municipalidad de Garabi
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-07-25 | la propia norma |
+| 2 | 2020-12-01 | Reglamento municipal 31 (2020-12-01) |
