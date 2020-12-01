@@ -1,6 +1,6 @@
 # Reajuste Tributario y Resolución 18ª Consejo Arancelario y Aduanero CA
 
-Ley N° 7088 del 1987-11-30. SINALEVI, ficha 12540: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=12540&param2=136666&param3=1>.
+Ley N° 7088 del 1987-11-30. SINALEVI, ficha 12540: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=12540&param2=136668&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -32,3 +32,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 24 de 37 | 2017-12-01 | Decreto Ejecutivo 40721 (2017-10-18) | 2017-10-18 |
 | 25 de 37 | 2018-12-01 | Decreto Ejecutivo 41356 (2018-10-16) | 2018-10-16 |
 | 26 de 37 | 2019-12-01 | Decreto Ejecutivo 41997 (2019-10-08) | 2019-10-08 |
+| 27 de 37 | 2020-12-01 | Decreto Ejecutivo 42665 (2020-10-07) | 2020-10-07 |
