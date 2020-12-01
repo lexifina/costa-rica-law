@@ -1,1 +1,0 @@
-Artículo 2°-El Comité Cantonal de Deportes y Recreación es un organismo adscrito a la Municipalidad de Barva con personería jurídica, únicamente para el cumplimiento de los fines que la Ley y sus Reglamentos le otorguen, la certificación de la personería será extendida por la Secretaría Municipal.

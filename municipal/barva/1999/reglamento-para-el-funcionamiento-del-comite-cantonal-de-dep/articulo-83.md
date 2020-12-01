@@ -1,1 +1,0 @@
-Artículo 83.-Los equipos afiliados, equipos de liga menor y selecciones locales que representen oficialmente a la comunidad y que estén reconocidos por el Comité Comunal, tendrán prioridad para el uso de instalaciones. Las competencias aficionadas tendrán preferencia sobre las no aficionadas o profesionales.

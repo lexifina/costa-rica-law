@@ -1,1 +1,0 @@
-Artículo 61.-Las actas aprobadas deberán llevar obligatoriamente las firmas del Presidente y del Secretario del Comité. El libro de actas será autorizado por el organismo superior y las hojas serán selladas y foliadas por éste.

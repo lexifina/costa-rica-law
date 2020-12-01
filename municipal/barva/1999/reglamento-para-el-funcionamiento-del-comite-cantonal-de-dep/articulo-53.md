@@ -1,1 +1,0 @@
-Artículo 53.-De las resoluciones: Las resoluciones que tome el Comité Cantonal en las sesiones, se denominarán acuerdos o fallos. Son fallos todas aquellas resoluciones que resuelvan controversias o contengan un juicio de valor, siendo acuerdos todos los demás.

@@ -1,4 +1,0 @@
-Artículo 88.-EI Comité Cantonal regulará y aprobará las cuotas de ingreso a las instalaciones deportivas. Los ingresos que por ese motivo se produzcan, se destinarán a las actividades y en el porcentaje que enseguida se indica:
-a) Un 25 % para los gastos administrativos del Comité Cantonal.
-b) Un 10 % para las ligas menores de la jurisdicción.
-c) Un 65 % para mantenimiento de las instalaciones.
