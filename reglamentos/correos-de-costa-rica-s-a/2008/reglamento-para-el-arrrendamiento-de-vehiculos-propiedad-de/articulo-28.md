@@ -1,1 +1,1 @@
-Artículo 28.—El presente Reglamento fue aprobado por la Junta Directiva de Correos mediante acuerdo Nº 4644, tomado en la sesión extraordinaria Nº 926 celebrada el día jueves 11 de diciembre del 2008.
+Artículo 28.—El Correo podrá rescindir unilateralmente y sin responsabilidad de su parte el contrato de arrendamiento por razones de interés público, conveniencia u oportunidad, notificando su decisión al arrendante con al menos cinco días hábiles de anticipación.

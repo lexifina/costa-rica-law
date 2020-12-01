@@ -1,3 +1,1 @@
-CAPÍTULO VII
-Disposiciones finales
-Artículo 19.—Para realizar la gira o servicio a brindar, el arrendante deberá presentar como mínimo un día hábil antes el formulario “Autorización al Servicio de Pago de Kilometraje” para su aprobación ante el jefe inmediato.
+Artículo 19.—No existirá obligación por parte del Correo de garantizar al Arrendante un mínimo de kilómetros por recorrer y remunerar; de manera que sólo se reconocerán aquellos que hayan sido efectivamente recorridos, se encuentren debidamente justificados, documentados, y corroborados con el GPS o bien con la lectura física del odómetro del vehículo y que además se ajusten a las tarifas vigentes.

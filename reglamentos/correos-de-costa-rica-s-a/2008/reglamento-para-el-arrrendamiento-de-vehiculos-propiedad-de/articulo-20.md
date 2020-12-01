@@ -1,1 +1,1 @@
-Artículo 20.—Una vez autorizada la gira o servicio a brindar el arrendante realizará la misma, de acuerdo con las rutas indicadas en el formulario de Autorización de Pago de kilometraje”.
+Artículo 20.—Como excepción, solo se aceptarán distancias mayores a las establecidas cuando se demuestre fehacientemente que la variación obedeció a desvíos ordenados por la autoridad competente, cierres de carreteras u otras causas análogas ajenas a los trabajadores; en cuyo caso, se deberá anotar la justificación correspondiente en el formulario de “Liquidación de Pago de Kilometraje”.

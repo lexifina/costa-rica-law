@@ -1,1 +1,1 @@
-Artículo 27.—En lo no previsto en el presente Reglamento se aplicará en forma supletoria la Ley de Correos, su Reglamento, el Reglamento de Contratación de Correos de Costa Rica S. A., y demás normas jurídicas conexas.
+Artículo 27.—Las diferentes dependencias del Correo que intervienen en el pago de kilometraje deberán velar por la correcta aplicación del presente Reglamento y de los respectivos contratos de arrendamiento.

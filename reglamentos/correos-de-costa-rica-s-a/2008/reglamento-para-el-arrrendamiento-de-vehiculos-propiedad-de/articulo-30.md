@@ -1,1 +1,1 @@
-Artículo 30.—Este Reglamento rige a partir de su publicación en el Diario Oficial La Gaceta.
+Artículo 30.—La presente reforma al Reglamento para el arrendamiento de vehículos propiedad de los trabajadores de Correos de Costa Rica S. A., fue aprobada por la Junta Directiva de Correos mediante Acuerdo N° 9833, tomado en la Sesión N° 1652 Ordinaria celebrada el día 01 de diciembre del 2020.

@@ -1,1 +1,1 @@
-Artículo 24.—Correos podrá resolver el Contrato de Arrendamiento en caso de incumplimiento del mismo y del presente Reglamento.
+Artículo 24.—Una vez finalizada la gira o servicio brindado el arrendante deberá entregar a su Supervisor o Jefatura Inmediata la bitácora de los trasiegos del día para que sean archivadas por la Unidad de Trabajo, de manera que a final de mes se pueda generar el reporte de pago mensual.

@@ -1,19 +1,14 @@
-Artículo 12.—Para efectos de pago, el arrendante deberá llenar el formulario de la liquidación una vez finalizada la gira o servicios brindados mediante el formulario denominado “Liquidación de Pago de kilometraje”. El pago del kilometraje se realizará en los términos arriba indicados. El formulario debe contener la siguiente información:
-a) Número del consecutivo del formulario.
-b) Fecha de liquidación.
-c) Programa presupuestario.
-d) Código presupuestario.
-e) Nombre del arrendante.
-f) Número de cédula de identidad del arrendante.
-g) Puesto o cargo que desempeña.
-i) Número de placa del vehículo.
-j) Motivo de la gira o servicio brindado.
-k) Inicio del viaje(es), lugar (es), fecha (s) y hora (s).
-l) Término del viaje (s), lugar (es), fecha (s) y hora (s).
-m) Detalle de la gira o desplazamiento, especificando el kilometraje recorrido por gira o día, el kilometraje total recorrido y el monto total a pagar de acuerdo con la tarifa vigente. Si existieran otros gastos (peaje, trasbordo, estacionamiento u otros) deben incluirse en el monto total a pagar y aportarse la documentación respectiva que demuestre los mismos.
-n) Valor total en letras.
-o) Firma del arrendante.
-p) Nombre y firma del jefe inmediato, así como del Director que autoriza la liquidación por las giras realizadas.
-q) Nombre y firma del trabajador del Departamento de Tesorería que revisa el formulario.
-r) Nombre y firma del Jefe del Departamento de Tesorería autoriza el pago.
-La utilización del formulario es obligatoria y su no uso dará lugar al no pago del kilometraje.
+CAPÍTULO III
+Del contrato.
+Artículo 12.—Para ser sujeto del sistema de arrendamiento del vehículo al Correo y de previo a iniciar el procedimiento de la formalización del contrato, el trabajador debe indicar por escrito ante la Dirección de Reclutamiento o la Dirección que corresponda, la anuencia para la instalación de un GPS proporcionado por el Correo el cual será objeto de control solamente durante la jornada laboral del funcionario. La utilización del GPS podrá exceptuarse si el arrendamiento es temporal y si así lo dictamina el criterio técnico de la jefatura respectiva.
+Además, debe cumplir con los siguientes requisitos y condiciones:
+a).- Presentar una certificación que no exceda de tres meses de expedida por el Registro Público de la Propiedad de Vehículos Automotores mediante la cual demuestre que es propietario del vehículo: La certificación debe ser renovada cada vez que haya un cambio de propietario en el vehículo arrendado o en su defecto cada seis meses para comprobar la propiedad del vehículo.
+b).- Presentar los derechos de circulación al día.
+c).- Presentar la Revisión Técnica Vehicular al día (R.T.V.).
+d).- Demostrar que el vehículo está en buenas condiciones mecánicas y de carrocería, lo cual será verificado por los mecánicos del Correo, esto al inicio de la relación y en cualquier otro momento a discreción del Correo.
+e).- Demostrar que el vehículo es adecuado para la clase de trabajo que se va a ejecutar, lo cual será corroborado por los técnicos en la materia del Correo, esto al inicio de la relación y en cualquier otro momento a discreción del Correo.
+f).- Tener licencia de conducir vigente y que le faculte para conducir el vehículo arrendado.
+g).- El modelo del vehículo puede sobrepasar los diez años, siempre y cuando se encuentre en buenas condiciones mecánicas y de carrocería.
+h).- Contar el vehículo con un seguro voluntario que tenga las siguientes pólizas suscritas con el Instituto Nacional de Seguros que se indican a continuación: Cobertura A: responsabilidad civil por lesión o muerte de personas, y Cobertura C: responsabilidad civil por daños a la propiedad de terceros. Dichas pólizas deberán mantenerse vigentes.
+i).- Utilizar únicamente el vehículo de su propiedad, que se encuentra previamente registrado ante el Correo, en labor objeto del contrato. En caso de que quiera sustituir o cambiar de vehículo este debe cumplir con los mismos requisitos antes indicados.
+j).- En caso de que el vehículo falle y su reparación tarde un máximo de cinco días hábiles, el arrendante deberá proveerse de un segundo vehículo para brindar el servicio. Esto solo en caso de emergencia mientras se realiza la reparación.

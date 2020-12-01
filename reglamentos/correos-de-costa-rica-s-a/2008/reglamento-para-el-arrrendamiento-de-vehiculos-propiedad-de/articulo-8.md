@@ -1,1 +1,1 @@
-Artículo 8º—Cuando las necesidades del servicio lo requieran, el arrendante debe transportar en una misma gira o desplazamiento a otro (s) trabajador (es), siempre y cuando no excedan en número la capacidad de pasajeros autorizado para el vehículo.
+Artículo 8º—La Administración está obligada a realizar estudios técnicos periódicos para determinar que resulta más económico o razonable continuar con la modalidad de arrendamiento.

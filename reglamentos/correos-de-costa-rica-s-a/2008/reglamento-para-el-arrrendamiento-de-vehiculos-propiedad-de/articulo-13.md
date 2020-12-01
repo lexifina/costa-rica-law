@@ -1,3 +1,1 @@
-CAPÍTULO V
-Del control
-Artículo 13.—El Departamento de Transportes llevará un expediente de cada arrendante, en el que se incluirá copia certificada del contrato y los documentos indicados en el artículo 9º.
+Artículo 13.—La vigencia del contrato será de un año, pudiendo ser prorrogado en forma automática por periodos iguales, siempre que se cumplan las disposiciones establecidas en el presente Reglamento y en el contrato.

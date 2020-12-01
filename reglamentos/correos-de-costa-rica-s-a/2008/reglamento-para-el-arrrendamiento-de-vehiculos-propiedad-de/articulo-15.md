@@ -1,3 +1,3 @@
-CAPÍTULO VI
-Del reconocimiento económico
-Artículo 15.—De conformidad con el presente Reglamento, el Correo pagará al arrendante el kilometraje recorrido de acuerdo con la tarifa vigente fijada por la Contraloría General de la República para el Pago de Kilometraje.
+CAPÍTULO IV
+Del control
+Artículo 15.—La Dirección o Departamento que corresponda llevará un expediente de cada arrendante, en el que se incluirá copia certificada del contrato y los documentos indicados en el artículo 12.

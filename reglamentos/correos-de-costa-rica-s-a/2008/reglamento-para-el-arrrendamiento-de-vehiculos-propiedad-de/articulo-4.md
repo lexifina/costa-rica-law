@@ -1,1 +1,1 @@
-Artículo 4º—Del sistema de arrendamiento de vehículo. Cuando las necesidades en la prestación de los servicios que brinda el Correo lo requieran, y no se cuente con vehículos para dichos efectos, podrá contratarse el arrendamiento de vehículos propiedad de sus trabajadores.
+Artículo 4º—Del sistema de arrendamiento de vehículo: Cuando las necesidades en la prestación de los servicios que brinda el Correo lo requieran, y no se cuente con vehículos para dichos efectos, podrá contratarse el arrendamiento de vehículos propiedad de sus trabajadores.

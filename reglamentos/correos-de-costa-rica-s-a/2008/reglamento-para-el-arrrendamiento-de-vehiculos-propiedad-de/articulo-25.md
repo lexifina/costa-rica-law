@@ -1,1 +1,1 @@
-Artículo 25.—Las diferentes dependencias del Correo que intervienen en el pago de kilometraje deberán velar por la correcta aplicación del presente Reglamento y de los respectivos contratos de arrendamiento.
+Artículo 25.—La gira o desplazamiento efectuado sin la autorización respectiva será por cuenta y riesgo del arrendante; y éste, en ningún caso podrá reclamar el reconocimiento de pago por el kilometraje recorrido.

@@ -14,3 +14,4 @@ Reglamento para el Arrrendamiento de Vehículos Propiedad de los Trabajadores de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-02-04 | la propia norma |
+| 2 | 2020-12-01 | Reglamento 1652 (2020-12-01) |

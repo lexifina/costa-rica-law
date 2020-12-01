@@ -1,1 +1,1 @@
-Artículo 23.—La gira o desplazamiento efectuado sin la autorización respectiva será por cuenta y riesgo del arrendante; y éste, en ningún caso podrá reclamar el reconocimiento de pago por el kilometraje recorrido.
+Artículo 23.—El arrendante deberá llenar una bitácora diaria en donde se debe indicar cada lugar visitado durante el día y el kilometraje marcado por el odómetro en cada una de las paradas realizadas.
