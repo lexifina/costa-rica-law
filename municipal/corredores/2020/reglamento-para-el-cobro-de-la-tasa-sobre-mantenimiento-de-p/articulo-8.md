@@ -1,0 +1,1 @@
+Artículo VIII.—El costo de esta tasa se determina tomando en consideración el costo efectivo de lo invertido por la Municipalidad para su mantenimiento, incrementándose en un diez por ciento de utilidad para el desarrollo, de acuerdo con la siguiente formula que proporciona un factor fijo que se aplica al valor del inmueble:

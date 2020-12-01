@@ -1,0 +1,1 @@
+Artículo IX.—El diez por ciento de utilidad para el desarrollo, en que se incrementa la tasa señalada en el artículo anterior, se destinará para impulsar la creación de nuevos parques, para la remodelación de los existentes en el distrito correspondiente y para la incorporación de una red o sistema de parques en esta jurisdicción que permita su mantenimiento.
