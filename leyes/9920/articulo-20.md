@@ -1,0 +1,1 @@
+ARTÍCULO 20-Responsabilidad de terceros. Las personas organizadoras del evento deportivo, para el cual se extendió el permiso, serán responsables por todos los daños que se ocasionen a consecuencia de la preparación o realización de la actividad.

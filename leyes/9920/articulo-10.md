@@ -1,0 +1,1 @@
+ARTÍCULO 10-Presentación de documentos electrónicos. Las administraciones deberán disponer de los recursos necesarios para que el administrado pueda presentar todos los documentos e información por medios electrónicos o informáticos, de conformidad con la Ley 8454, Ley de Certificados, Firmas Digitales y Documentos Electrónicos, de 30 de agosto de 2005.

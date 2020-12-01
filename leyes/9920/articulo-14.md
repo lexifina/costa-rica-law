@@ -1,0 +1,1 @@
+ARTÍCULO 14-Límites temporales para la solicitud del permiso. Con la finalidad de planificar e iniciar el trámite para la solicitud del permiso en un tiempo prudente, la persona organizadora del evento deportivo podrá iniciar los respectivos trámites en el momento que considere oportuno y a más tardar dos meses antes de la fecha en la que se realizará el evento deportivo.

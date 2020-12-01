@@ -1,0 +1,6 @@
+TÍTULO IV
+Costo operativo de la Policía de Tránsito
+ARTÍCULO 16- Costo operativo de la Policía de Tránsito. En caso de eventos deportivos que requieran para su realización la utilización y/o el cierre de vías en rutas nacionales, cantonales o mixtas, el Departamento de Operaciones Policiales de Tránsito de la Dirección General de Policía de Tránsito (DGPT) y la municipalidad, según corresponda, establecerán un monto a manera de costo del operativo, que deberá ser cancelado por el solicitante luego de que se le notifique la viabilidad del permiso solicitado y previo a la formalización de este.
+Este costo operativo deberá incluir la suma de todos los costos por la utilización de oficiales, vehículos, así como cualquier otro costo implicado en la operación, incluyendo los derivados del pago de horas extra a los oficiales y cualquier otro derecho laboral que les corresponda.
+El ministro de Obras Públicas y Transportes (MOPT), vía resolución justificada, podrá exonerar, a solicitud del interesado, el pago descrito en esta norma, siempre que se acredite la gratuidad de la actividad.
+La totalidad de los recursos correspondientes al cobro del costo operativo deberán incorporarse al presupuesto del Ministerio de Obras Públicas y Transportes o de la municipalidad, según corresponda.

@@ -1,0 +1,3 @@
+TITULO III
+Requisitos para obtener el permiso de cierre parcial
+ARTÍCULO 8-Permisos. Las personas organizadoras del evento deberán contar con los permisos del Ministerio de Obras Públicas y Transportes (MOPT) a través de la Dirección General de Ingeniería de Tránsito, el Ministerio de Salud y, cuando corresponda, con el permiso de la municipalidad respectiva. Para estos efectos, el Poder Ejecutivo deberá crear un único reglamento que establezca todos los requisitos que los organizadores de los eventos deportivos deberán presentar en ventanilla única. Bajo ninguna circunstancia se podrá requerir documentación o información adicional a la indicada en el respectivo reglamento.

@@ -1,0 +1,3 @@
+TÍTULO II
+Policía de Tránsito y Policía Municipal
+ARTÍCULO 6-Competencia. Le competerá al Ministerio de Obras Públicas y Transportes (MOPT) el otorgamiento del permiso respectivo, cuando los eventos deportivos impliquen el cierre parcial o la utilización de rutas nacionales. Les corresponderá a las municipalidades el otorgamiento de los permisos para el cierre de las rutas cantonales. Sin embargo, cuando las rutas a cerrar o utilizar involucren tramos de carreteras, tanto nacionales como cantonales, la competencia para otorgar el permiso será, exclusivamente, del Ministerio de Obras Públicas y Transportes, pero deberá contar con el criterio previo de la respectiva municipalidad.
