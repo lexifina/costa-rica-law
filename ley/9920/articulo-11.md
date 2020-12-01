@@ -1,0 +1,1 @@
+ARTÍCULO 11-Respeto de competencias. Las administraciones públicas no podrán cuestionar ni revisar los permisos emitidos para el cierre temporal de vías públicas terrestres, de conformidad con lo establecido en la presente ley, salvo lo relativo al régimen de nulidades.

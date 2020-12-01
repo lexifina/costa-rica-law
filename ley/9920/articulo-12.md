@@ -1,0 +1,2 @@
+ARTÍCULO 12-Obligación de informar sobre el trámite. Las administraciones públicas se encuentran obligadas a proveer, a la persona que gestiona el permiso, toda la información sobre los trámites y requisitos que se realicen en la respectiva unidad administrativa o dependencia.
+Las oficinas de información al ciudadano, de las instituciones, serán las encargadas de explicarle a la persona que solicita el permiso los requisitos y el procedimiento respectivo. En caso de no contar con esta oficina, la institución deberá designar un departamento o una persona para este fin.

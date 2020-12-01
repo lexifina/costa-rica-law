@@ -1,0 +1,1 @@
+ARTÍCULO 18-Régimen de responsabilidad del funcionario. Para los efectos de la presente ley, serán aplicables las sanciones establecidas en la Ley 8220, Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos, de 4 de marzo de 2002.
