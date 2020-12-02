@@ -15,3 +15,4 @@ Reglamento del Funcionamiento del Programa Integral de Mercadeo Agropecuario (PI
 | --- | --- | --- |
 | 1 | 2016-07-29 | la propia norma |
 | 2 | 2017-06-09 | Decreto Ejecutivo 40513 (2017-06-09) |
+| 3 | 2020-12-02 | Decreto Ejecutivo 42790 (2020-12-02) |

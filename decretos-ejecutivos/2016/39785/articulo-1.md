@@ -20,7 +20,8 @@ MERCADEO AGROPECUARIO (PIMA) CREADO POR LEY 6142.
 CAPÍTULO I
 DE LAS FUNCIONES DEL PIMA
 Artículo 1 º- EL PIMA tendrá las siguientes funciones:
-1. Organizar, administrar y desarrollar el Centro Nacional de Abastecimiento y Distribución de Alimentos (CENADA), la Red Frigorífica Nacional (REFRINA) y todas las demás dependencias del PIMA que de acuerdo con la ley se establezcan en el territorio nacional;
+1. Organizar, administrar y desarrollar el Centro Nacional de Abastecimiento y Distribución de Alimentos (CENADA), la Red Frigorífica Nacional (REFRINA), los Mercados Regionales Mayoristas, y todas las demás dependencias del PIMA que de acuerdo con la ley se establezcan en el territorio nacional;
+(Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 42790 del 2 de diciembre del 2020)
 2. Proporcionar asistencia técnica a las Municipalidades en la organización, estructura y funcionamiento de sus respectivos mercados municipales;
 3. Desarrollar filiales del CENADA y REFRINA;
 4. Coadyuvar con el Ministerio de Agricultura y Ganadería (MAG) en lo relativo al mercadeo agropecuario.

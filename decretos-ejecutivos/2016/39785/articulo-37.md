@@ -4,7 +4,8 @@ Artículo 37º- El Gerente General tiene entre otras las siguientes funciones y 
 3. Programar las actividades que se requieran para alcanzar los objetivos de la Institución, para lo que constituirá un plan anual de trabajo;
 4. Presentar al Consejo Directivo para su aprobación el proyecto de presupuesto anual, los proyectos de presupuestos extraordinarios, los proyectos de modificaciones presupuestarias, los estados financieros de la Institución e informes conexos, la liquidación del ejercicio económico, las liquidaciones presupuestarias y las memorias anuales, acorde con lo dispuesto por la Contraloría General de la República;
 5. Nombrar el personal del PIMA, con excepción del Auditor Interno y del Secretario de Actas del Consejo Directivo;
-6. Ejercer la potestad disciplinaria conforme con el Reglamento Interior de Trabajo, el Estatuto de Personal y leyes conexas. En caso de remoción o sanción disciplinaria, el servidor contará con el recurso de apelación ante el Consejo Directivo;
+6. Ejercer la potestad disciplinaria conforme con el Reglamento Autónomo correspondiente y leyes conexas. En caso de remoción o sanción disciplinaria, el servidor contará con el recurso de apelación ante el Consejo Directivo.
+(Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 42790 del 2 de diciembre del 2020)
 7. Aprobar los movimientos de personal que le competan de acuerdo con la ley y reglamento;
 8. Avalar y remitir, para la aprobación por parte del Consejo Directivo, el proyecto de Reglamentos Autónomo de Servicio y de Organización;
 9. Aprobar las reclasificaciones de puestos, así como validar la escala de salarios para los funcionarios del PIMA, de conformidad con los lineamientos de la Autoridad Presupuestaria;
@@ -31,7 +32,8 @@ Artículo 37º- El Gerente General tiene entre otras las siguientes funciones y 
 30. Aprobar y rescindir las concesiones administrativas del PIMA, de acuerdo a la reglamentación vigente.
 31. Rendir el Informe de Fin de Gestión, al concluir el período para el que fue nombrado, en cumplimiento de lo estipulado en la Ley General de Control Interno y de acuerdo con las directrices y lineamientos emitidos por la Contraloría General de la República; y
 32. Autorizar y aprobar las concesiones y exenciones de pago de los servicios que presta el CENADA, la Red Frigorífica Nacional y las demás dependencias del PIMA que de acuerdo con la ley se establezcan en el territorio nacional, de acuerdo a la reglamentación vigente.
-33. Autorizar los permisos, vacaciones, vehículos y demás trámites administrativos que solicite el auditor y el secretario de actas.
+33. Autorizar en los sistemas informáticos los permisos y vacaciones, autorizados por la Presidencia, así como autorizar los vehículos y demás trámites administrativos que requiera el personal subordinado al Consejo Directivo.
+(Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 42790 del 2 de diciembre del 2020)
 34. El Gerente podrá realizar modificaciones presupuestarias y reacomodo de partidas en tanto estas no alteren ni modifiquen la planificación institucional (PAO, POI), para lo cual el Consejo Directivo reglamentará dicha facultad.
 (Así adicionado el inciso anterior por el artículo 2° del decreto ejecutivo N° 40513 del 9 de junio del 2017)
 35. Ejecutar las demás funciones que le asigne el Consejo Directivo, las leyes y reglamentos.
