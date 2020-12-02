@@ -1,1 +1,0 @@
-Artículo 3º—Esta resolución deja sin efecto la resolución número RES-DGH-059-2015, de las trece horas treinta minutos del día diecisiete de diciembre del año dos mil quince, así como, cualquier otra disposición que se le oponga.
