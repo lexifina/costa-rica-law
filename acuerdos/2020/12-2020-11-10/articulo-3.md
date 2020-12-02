@@ -1,0 +1,1 @@
+Artículo 3°- Se faculta al Instituto Geográfico Nacional para que interprete y represente en la cartografía oficial los límites señalados en el Artículo Segundo y, se declare oficial el mapa que se genere de esta modificación de límite.
