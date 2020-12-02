@@ -1,4 +1,6 @@
-Artículo 16.-Las organizaciones cooperativas de ahorro y crédito podrán realizar, exclusivamente con sus asociados, las siguientes operaciones activas en el país:
-a) Conceder préstamos, créditos y avales directos.
-b) Comprar, descontar y aceptar en garantía: pagarés, certificados y cédulas de prenda, letras de cambio, hipotecas y, en general, toda clase de títulos valores e instrumentos comerciales.
-c) Efectuar inversiones, en títulos valores emitidos por instituciones financieras del Estado, empresas reguladas por las Leyes Nos. 1644 del 26 de setiembre de 1953, 5044 del 7 de setiembre de 1972 y la 7201 del 10 de octubre de 1990, o pertenecientes al sistema financiero cooperativo y reguladas por esta Ley.
+Artículo 16- Las organizaciones cooperativas de ahorro y crédito podrán realizar las siguientes operaciones activas en el país:
+a) Conceder préstamos, crédito y avales directos a sus asociados.
+b) Conceder préstamos, crédito y avales directos a micro, pequeñas y medianas empresas en las que los asociados de la respectiva cooperativa sean dueños de la totalidad de las acciones o cuotas que representan su capital social.
+c) Comprar, descontar y aceptar, en garantía, pagarés, certificados y cédulas de prenda, letras de cambio, hipotecas y, en general, toda clase de títulos valores e instrumentos comerciales de sus asociados y de las micro, pequeñas y medianas empresas en las que los asociados de la cooperativa respectiva sean dueños de la totalidad de las acciones o cuotas que representan su capital social.
+d) Efectuar inversiones en títulos valores emitidos por instituciones financieras del Estado, empresas reguladas por la Ley 1644, Ley Orgánica del Sistema Bancario Nacional, de 26 de setiembre de 1953; la Ley 5044, Ley Reguladora de Empresas Financieras no Bancarias, de 13 de setiembre de 1972 y la Ley 7732, Ley Reguladora del Mercado de Valores, de 17 de diciembre de 1997, o pertenecientes al sistema financiero cooperativo y reguladas por esta ley.
+(Así reformado por el artículo 1° de la ley N° 9915 del 20 de noviembre del 2020)
