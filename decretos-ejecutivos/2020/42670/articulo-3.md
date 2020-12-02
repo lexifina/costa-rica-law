@@ -1,0 +1,1 @@
+Artículo 3°—Las instituciones del sector público y del sector privado contribuirán, en la medida de sus posibilidades, en la realización anual de la celebración y podrán participar en el plan de trabajo para la salvaguardia de esta importante manifestación tradicional del cantón de Santa Cruz.
