@@ -19,3 +19,4 @@ Disposiciones operativas de las Sociedades Administradoras de Fondos de Inversi√
 | 4 | 2015-09-25 | Acuerdo 199 (2015-09-25) |
 | 5 | 2016-04-07 | Acuerdo 211 (2016-04-07) |
 | 6 | 2016-08-19 | Acuerdo 218 (2016-08-19) |
+| 7 | 2020-12-02 | Acuerdo 245 (2020-12-02) |
