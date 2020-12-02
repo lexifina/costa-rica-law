@@ -1,0 +1,3 @@
+CAPÍTULO II.
+Valoración y gestión de riesgos.
+Artículo 27.—Implementación del sistema específico de valoración de riesgos (SEVRI). La implementación del SEVRI en la Municipalidad de Corredores, se realizará basada en la metodología y herramienta tecnológica de uso y aplicación institucional, que existirá para ese efecto. Por lo tanto, se constituyen estas, en los instrumentos que guíen a los titulares subordinados en la valoración y gestión de los riesgos de su área de competencia. Asimismo, se define en el Marco Orientador del SEVRI, los elementos que dirigirán el compromiso institucional de su implementación y los parámetros básicos para valorar los riesgos de la Municipalidad de Corredores.

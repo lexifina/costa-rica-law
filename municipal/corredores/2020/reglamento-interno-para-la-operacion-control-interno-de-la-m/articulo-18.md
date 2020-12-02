@@ -1,0 +1,1 @@
+Artículo 18.—Acuerdos. Quedará en firme un acuerdo por mayoría simple de los integrantes de la Comisión. Quedando aprobada la minuta una semana después de comunicada a los participantes y no mediar ninguna objeción. De existir observaciones se ajustará la misma, si fuere procedente, y se remitirá nuevamente para aprobación definitiva.
