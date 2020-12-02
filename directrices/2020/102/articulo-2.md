@@ -1,0 +1,3 @@
+Artículo 2º.- Se instruye a las instituciones de la Administración Pública Central que prestan servicios necesarios para la atención de la emergencia nacional por COVID- 19, para que mantengan su funcionamiento y establezcan un plan de servicio para el período de cierre colectivo.
+Aquellas instancias de la Administración Pública Central que brinden apoyo a las instituciones referidas en el párrafo anterior, deberán estar a disposición para la colaboración necesaria que permitan la prestación eficiente y eficaz del servicio público.
+Se insta a la Administración Pública Descentralizada a la aplicación de la presente disposición.
