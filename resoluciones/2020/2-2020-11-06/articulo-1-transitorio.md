@@ -1,0 +1,1 @@
+TRANSITORIO UNO. Las presentes normas serán aplicables para todas las series documentales incluidas en esta resolución, producidas antes y después de su publicación. Los criterios emitidos en esta resolución deben ser acatados para la valoración y selección de los documentos.
