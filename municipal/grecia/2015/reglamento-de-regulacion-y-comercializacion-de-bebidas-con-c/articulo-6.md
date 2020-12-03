@@ -10,7 +10,7 @@ e. En el caso de personas jurídicas, una certificación que acredite la existen
 f. Certificación del inmueble donde se desarrollará la actividad, donde conste la titularidad del solicitante o contrato de alquiler que demuestre la libre disposición del local o establecimiento comercial.
 g. Certificación municipal donde conste que se encuentra al día con las obligaciones municipales, cual deberá constar en el expediente.
 h. Constancia de que se encuentra al día en sus obligaciones con la Caja Costarricense del Seguro Social, que cuenta con póliza de riesgos laborales al día, y de estar al día en sus obligaciones con Asignaciones Familiares. El solicitante estará exento de aportar los documentos aquí mencionados, únicamente cuando la información esté disponible de forma remota por parte de la Municipalidad, cual deberá acreditarse al expediente.
-i. Copia del acuerdo de recomendación del Consejo de Distrito correspondiente, de acuerdo al artículo 57 inciso d) del Código Municipal.
+i. (Derogado mediante acuerdo N° SEC-1093-2020 del 3 de diciembre del 2020)
 j. Los interesados deben estar al día en todas las obligaciones municipales, tanto en las materiales como las formales, pólizas de riesgos al trabajo, las de responsabilidad civil, obligaciones con la Caja Costarricense de Seguro Social (CCSS) y las de Asignaciones Familiares. En los casos que esas instituciones no tengan la información a través de los medios tecnológicos y la Administración no pueda obtenerla, deberá el interesado aportar la certificación respectiva.
 k. Permiso de Funcionamiento Sanitario extendido por el Área de Salud del Ministerio de Salud.
 l. En caso que se solicite una licencia clase E, copia certificada de la declaratoria turística vigente, emitida por el ICT.
