@@ -1,0 +1,1 @@
+Artículo 29.—Amonestación escrita. Acciones u omisiones por parte de las personas colegiadas, de los artículos: 8; 10; 11;12; inc. a, g, h, j, m, o, p; 13 inc. b, f, g; 14 inc. a, c, i, k; 15; 17; 18; 19; 21.

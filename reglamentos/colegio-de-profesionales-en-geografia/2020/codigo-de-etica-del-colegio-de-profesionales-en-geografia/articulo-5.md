@@ -1,0 +1,1 @@
+Artículo 5º—Cuidarán que los recursos humanos, económicos, naturales, culturales, y cualquiera que forme parte de nuestra sociedad, sean adecuadamente utilizados haciendo los estudios necesarios para evitar su uso abusivo o dispendioso, procurando la relación armoniosa entre sociedad y ambiente.

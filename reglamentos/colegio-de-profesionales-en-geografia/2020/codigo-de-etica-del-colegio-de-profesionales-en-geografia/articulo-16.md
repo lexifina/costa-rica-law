@@ -1,0 +1,1 @@
+Artículo 16.—En las publicaciones de trabajos científicos, las personas colegiadas no deberán prevalecerse de su posición jerárquica para publicar en su nombre trabajos de sus subalternos, aun cuando sean ejecutados bajo su orientación.

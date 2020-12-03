@@ -1,0 +1,1 @@
+Artículo 20.—Las personas colegiadas no se prestarán a ejecutar actos que lesionen o pudieren lesionar derechos de terceras personas, cuando tengan a su cargo la dirección de trabajos y haya discrepancias entre las partes intervinientes.

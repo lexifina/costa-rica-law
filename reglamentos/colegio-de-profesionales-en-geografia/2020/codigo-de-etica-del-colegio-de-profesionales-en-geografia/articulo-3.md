@@ -1,0 +1,1 @@
+Artículo 3º—No será considerado contrario a las disposiciones de este Código el acuerdo, arreglo o transacción que se realice conforme a derecho entre el miembro del Colegio y su cliente, para resolver las discrepancias que puedan surgir con la prestación del servicio profesional.

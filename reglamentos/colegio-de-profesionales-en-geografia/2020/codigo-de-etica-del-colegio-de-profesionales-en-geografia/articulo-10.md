@@ -1,0 +1,1 @@
+Artículo 10.—Deberán denunciar ante las instancias competentes y ante el mismo colegio todo acto que, siendo de su conocimiento durante el ejercicio de la profesión, cause o pueda causar lesiones al medio ambiente y/o poner en riesgo la vida y la salud de las personas.

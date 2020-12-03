@@ -1,0 +1,1 @@
+Artículo 30.—Disculpa pública en un diario de circulación nacional a elección del vencido. Las acciones y omisiones por parte de las personas colegiadas, de los artículos: 4; 5; 9; 12 inc. d, n; 14 inc. g, j.

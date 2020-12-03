@@ -1,0 +1,4 @@
+Artículo 32.—Apelación de las sanciones. Cabrán contra las sanciones de amonestación y disculpa pública los recursos de revocatoria, y para la expulsión cabrá apelación ante la Asamblea General. Ambos recursos deberán ser presentados en un plazo improrrogable de ocho días hábiles.
+En el caso de la apelación, el Tribunal lo pondrá en conocimiento de la Junta Directiva, que hará la respectiva convocatoria en un plazo máximo de tres meses, contado después de recibida la solicitud de parte del Tribunal.
+A solicitud de la Asamblea General, de la Junta Directiva, la Fiscalía y/o el Tribunal de Honor del Colegio de Profesionales en Geografía, se someterá a revisión el presente Código cuando así lo estimen necesario, a efecto de mantenerlo debidamente actualizado.
+Aprobado por la Asamblea General celebrada el 31 de octubre de 2020, según consta en libro de actas. Rige a partir de su publicación en el Diario Oficial La Gaceta.

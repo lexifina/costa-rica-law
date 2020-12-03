@@ -1,0 +1,1 @@
+Artículo 6º—Tendrán siempre presente que éste es un ente público no estatal, el cual desempeña funciones que el Estado le ha delegado y por ello, el país debe recibir beneficios con la ejecución de esas funciones.

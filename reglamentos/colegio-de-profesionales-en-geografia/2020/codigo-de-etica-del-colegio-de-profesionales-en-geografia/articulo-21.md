@@ -1,0 +1,1 @@
+Artículo 21.—En el ejercicio profesional, tanto en el orden privado como en el público, las personas colegiadas procederán con la más absoluta buena fe, poniendo su lealtad, capacidad y dedicación al servicio de los intereses que representan.

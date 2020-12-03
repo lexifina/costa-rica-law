@@ -1,0 +1,1 @@
+Artículo 9º—En su ejercicio profesional, utilizarán las mejores técnicas para la protección, conservación y manejo de los recursos naturales. Deberán procurar el más adecuado uso y manejo de los productos tanto químicos como físicos, utilizados necesariamente para el aprovechamiento en la exploración y explotación de los recursos naturales.

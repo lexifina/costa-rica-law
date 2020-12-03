@@ -1,0 +1,1 @@
+Artículo 7º—Emplearán en el ejercicio profesional su conocimiento técnico y científico, de la mejor forma posible, en favor del país y la comunidad. Nunca usarán su conocimiento para causar daños o poner en peligro la vida humana y el entorno social o ambiental en el cual se desempeñan.

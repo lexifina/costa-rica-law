@@ -1,0 +1,1 @@
+Artículo 31.—Expulsión temporal del Colegio por un periodo máximo de diez años. Las acciones y omisiones por parte de las personas colegiadas, de los artículos: 7; 12 inc. b, c, e, f, i, k, l; 13 inc. a, c, d, e; 14 inc. b, d, e, f, h, l, m; 16, 20. También se impondrá esta sanción, cuando la persona colegiada incurra en reiteración de faltas éticas en un periodo de seis meses.
