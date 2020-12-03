@@ -1,1 +1,0 @@
-Artículo 6º—De los requisitos de los miembros del órgano de dirección. Al menos la mayoría de los miembros del órgano de dirección deberán contar con estudios y experiencia en materia económica, financiera, bursátil o de pensiones.

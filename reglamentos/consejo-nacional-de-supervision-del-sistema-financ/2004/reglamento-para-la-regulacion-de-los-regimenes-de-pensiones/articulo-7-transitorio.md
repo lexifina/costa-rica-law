@@ -1,1 +1,0 @@
-Transitorio VII.—De los perfiles de requisitos y beneficios vigentes. Mientras no se comuniquen los perfiles de requisitos y beneficios, según lo dispuesto en el artículo 11, mantendrán plena vigencia aquellos contenidos en los reglamentos internos del régimen.

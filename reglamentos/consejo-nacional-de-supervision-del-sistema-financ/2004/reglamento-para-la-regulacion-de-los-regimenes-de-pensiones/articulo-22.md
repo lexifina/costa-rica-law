@@ -1,1 +1,0 @@
-Artículo 22.—Responsabilidades del encargado de las funciones de control del cumplimiento normativo. (Derogado por el artículo 38 del Reglamento de Riesgos aprobado mediante sesión N° 1332-2017 del 16 de mayo del 2017)
