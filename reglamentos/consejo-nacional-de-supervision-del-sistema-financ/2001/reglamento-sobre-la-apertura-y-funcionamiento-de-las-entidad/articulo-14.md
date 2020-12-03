@@ -1,2 +1,1 @@
-Artículo 14. De la comunicación del acto de autorización
-La Superintendencia de Pensiones tendrá un plazo de 30 días para comunicar el resultado de la solicitud de autorización a la Entidad correspondiente.
+Artículo 14. De la comunicación del acto de autorización. (Derogado por el artículo 16 del Reglamento de autorizaciones y aprobaciones aprobado mediante sesión N° 1626-2020 del 3 de diciembre del 2020)

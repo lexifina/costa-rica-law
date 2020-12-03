@@ -1,2 +1,1 @@
-Artículo 22. De la consulta a la Comisión para la Promoción de la Competencia
-El Superintendente deberá solicitar a la Comisión para la Promoción de la Competencia que se pronuncie respecto de los efectos de la fusión sobre la competencia en el mercado.
+Artículo 22. De la consulta a la Comisión para la Promoción de la Competencia. (Derogado por el artículo 16 del Reglamento de autorizaciones y aprobaciones aprobado mediante sesión N° 1626-2020 del 3 de diciembre del 2020)

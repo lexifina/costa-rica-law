@@ -1,2 +1,3 @@
-Artículo 30. De las directrices
-El Superintendente comunicará a las Operadoras las características de los exámenes, del registro de los agentes promotores, de la identificación y de cualquier otra condición que deben cumplir estos funcionarios.
+Artículo 30. Otras disposiciones dictadas mediante acuerdo del Superintendente
+El Superintendente comunicará a las operadoras mediante acuerdo la información que deben tener las credenciales, los temas y condiciones generales de los exámenes, las características del registro y cualquier otro aspecto operativo.
+(Así reformado por el artículo 17 del Reglamento de autorizaciones y aprobaciones aprobado mediante sesión N° 1626-2020 del 3 de diciembre del 2020)

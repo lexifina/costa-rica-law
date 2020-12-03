@@ -1,6 +1,11 @@
-Artículo 29. De los requisitos
-Todo agente promotor de ventas deberá, como mínimo:
-a. Ser mayor de edad.
-b. Haber aprobado el bachillerato secundario.
-c. Tener aprobado el examen integral escrito de conocimientos sobre el Sistema Nacional de Pensiones, de acuerdo con lo dispuesto por el Artículo 35 de la Ley 7983.
-d. Estar debidamente acreditado por la Superintendencia de Pensiones.
+Artículo 29. Capacitación
+Las operadoras de pensiones deberán instruir y capacitar en forma permanente a sus agentes promotores en todos los aspectos relativos al Sistema Nacional de Pensiones con el fin de que puedan asesorar, en forma adecuada, completa y pertinente, a los trabajadores, afiliados y pensionados.
+La Superintendencia de Pensiones podrá evaluar los conocimientos, aptitudes y capacidades técnicas de las personas que se desempeñen como agentes promotores. Para lo anterior, desarrollará planes de evaluación periódicos de los agentes promotores acreditados por las operadoras de pensiones. La evaluación podrá ser realizada por un tercero contratado por la Superintendencia de Pensiones para esos efectos.
+Para lo anterior podrá seleccionar de forma aleatoria una muestra representativa de agentes promotores de cada operadora de pensiones para ser evaluados.
+El temario de las pruebas, así como la metodología de la ejecución de dichas pruebas, estará a disposición de las operadoras de pensiones con antelación a la convocatoria.
+Si un promotor no aprueba la evaluación realizada por la Superintendencia de Pensiones, se procederá a su inhabilitación y solamente podrá ser habilitado de nuevo si logra aprobar el examen que en una nueva convocatoria extraordinaria se lleve a cabo. La prueba extraordinaria será realizada dentro de un plazo de tres meses. contados a partir de la comunicación de la inhabilitación.
+La Superintendencia publicará en su página web el listado de promotores habilitados de cada operadora.
+(Así reformado por el artículo 17 del Reglamento de autorizaciones y aprobaciones aprobado mediante sesión N° 1626-2020 del 3 de diciembre del 2020. Este artículo había sido derogado mediante el artículo 16 de esta misma norma)
+Transitorio. Aplicación de las disposiciones del artículo 29 del Reglamento sobre la apertura y funcionamiento de las Entidades Autorizadas y el funcionamiento de los fondos de pensiones, capitalización laboral y ahorro voluntario previstos en la Ley de Protección al Trabajador, referente al proceso de evaluación de agentes promotores.
+La pérdida de credencial de los agentes promotores establecida en el párrafo quinto del artículo 29, resultará aplicable para aquellos agentes promotores que sean acreditados a partir de la vigencia de la reforma a dicho artículo.
+(Así adicionado el transitorio anterior por el artículo 17 del Reglamento de autorizaciones y aprobaciones aprobado mediante sesión N° 1626-2020 del 3 de diciembre del 2020)
