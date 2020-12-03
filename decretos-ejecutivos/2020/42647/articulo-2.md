@@ -1,0 +1,1 @@
+Artículo 2º—Derogatorias. Deróguese el inciso c) del artículo 25 del Reglamento del Colegio de Profesionales en Sociología de Costa Rica, Decreto Ejecutivo N° 38129-MP del 16 de diciembre del 2013, publicado en el diario oficial La Gaceta N° 35 del 19 de febrero del 2014.
