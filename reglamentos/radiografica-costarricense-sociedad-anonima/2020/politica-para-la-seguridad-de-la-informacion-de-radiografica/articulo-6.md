@@ -1,0 +1,1 @@
+Artículo 6º—RACSA garantizará a los funcionarios el acceso a la información necesaria y suficiente para el cumplimiento de sus actividades y definirá el nivel de acceso a la información de acuerdo con las funciones o roles de cada colaborador.

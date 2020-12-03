@@ -1,0 +1,1 @@
+Artículo 2º—El Proceso de Gestión Integral de Seguridad de la Información será provisto de los recursos tanto financieros como humanos necesarios para la Gestión de la Seguridad de la Información de manera transversal en RACSA.

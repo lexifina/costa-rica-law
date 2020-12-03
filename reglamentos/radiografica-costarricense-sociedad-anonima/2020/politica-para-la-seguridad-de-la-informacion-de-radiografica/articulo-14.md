@@ -1,0 +1,1 @@
+Artículo 14.—El Proceso de Seguridad de la Información previa comunicación a los funcionarios podrá monitorear todas las actividades realizadas por los usuarios en los sistemas de información y plataformas tecnológicas, contemplando siempre el respeto al derecho constitucional de intimidad de las comunicaciones.
