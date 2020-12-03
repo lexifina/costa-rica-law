@@ -16,3 +16,4 @@ Reglamento de gestión de activos
 | 1 | 2018-11-02 | la propia norma |
 | 2 | 2019-05-14 | Reglamento 1499 (2019-05-14) |
 | 3 | 2019-11-25 | Reglamento 1546 (2019-11-25) |
+| 4 | 2020-12-03 | Reglamento 1626 (2020-12-03) |
