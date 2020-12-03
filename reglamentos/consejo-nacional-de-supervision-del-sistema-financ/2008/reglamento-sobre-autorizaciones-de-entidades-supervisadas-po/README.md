@@ -21,3 +21,4 @@ Reglamento sobre autorizaciones de entidades supervisadas por la SUGEF
 | 6 | 2013-04-09 | Reglamento 1036 (2013-04-09) |
 | 7 | 2016-08-23 | Reglamento 1273 (2016-08-23) |
 | 8 | 2019-11-25 | Reglamento 1545 (2019-11-25) |
+| 9 | 2020-12-03 | Reglamento 1627 (2020-12-03) |

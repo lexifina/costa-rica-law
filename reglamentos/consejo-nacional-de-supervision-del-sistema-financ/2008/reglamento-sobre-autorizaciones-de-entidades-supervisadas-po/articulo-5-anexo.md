@@ -1,9 +1,10 @@
 ANEXO 5
-BANCOS PRIVADOS, BANCOS PÚBLICOS, EMPRESAS
-FINANCIERAS NO BANCARIAS Y SOCIEDADES
-CONTROLADORAS DE GRUPOS FINANCIEROS
-Documentación requerida para la autorización de variaciones de
-capital social
+BANCOS PRIVADOS, BANCOS PÚBLICOS, EMPRESAS FINANCIERAS NO
+BANCARIAS, SOCIEDADES CONTROLADORAS DE GRUPOS FINANCIEROS
+Y SUCURSALES DE BANCOS EXTRANJEROS
+(Así modificada la denominación del anexo anterior mediante sesión N° 1627-2020 del 3 de diciembre del 2020)
+Documentación requerida para la autorización de variaciones de capital social. Los requisitos de este anexo también les son aplicables a las sucursales de bancos extranjeros domiciliadas en Costa Rica en lo que corresponda a sus variaciones de capital establecido en el artículo 141 bis de la Ley 1644.
+(Así reformado el párrafo anterior mediante sesión N° 1627-2020 del 3 de diciembre del 2020)
 I. BASE LEGAL
 A. BANCOS ESTATALES Y BANCOS CREADOS POR LEYES ESPECIALES (LEY ORGÁNICA DEL SISTEMA BANCARIO NACIONAL, LEY 1644)
 En materia de variaciones del capital: artículos 8, 12, y 152.
@@ -47,7 +48,7 @@ iv. Copia del prospecto de la emisión aprobado por el regulador del mercado de 
 1. Copia de comprobantes de recibo de dinero, depósito o transferencia de fondos.
 2. En el caso de la colocación privada de acciones:
 a. Declaración jurada del socio con una participación relevante, conforme la definición que establece el inciso q) del artículo 3º del acuerdo Nº SUGEF 8-08, para lo cual se debe sumar a la participación actual el aporte sujeto de autorización, rendida ante notario público y debidamente protocolizada, sobre el origen de los fondos.
-b. Declaración jurada del representante legal de la entidad supervisada o de la sociedad controladora del grupo financiero, rendida ante notario público y debidamente protocolizada, en la que indique si algún socio ha financiado el aporte de capital con la misma entidad supervisada o alguna empresa de su grupo o conglomerado financiero, en cuyo caso, debe indicar el nombre del socio, el nombre de la entidad acreedora, el monto y las condiciones del financiamiento.
+1. Declaración jurada del representante legal de la entidad supervisada o de la sociedad controladora del grupo financiero, rendida ante notario público y debidamente protocolizada, en la que indique si algún socio ha financiado el aporte de capital con la misma entidad supervisada o alguna empresa de su grupo o conglomerado financiero, en cuyo caso, debe indicar el nombre del socio, el nombre de la entidad acreedora, el monto y las condiciones del financiamiento.
 (*)(Así reformado el punto anterior en sesión N° 816 del 6 de noviembre de 2009)
 C. INCREMENTO MEDIANTE CAPITALIZACIÓN DE UTILIDADES Y
 RESERVAS

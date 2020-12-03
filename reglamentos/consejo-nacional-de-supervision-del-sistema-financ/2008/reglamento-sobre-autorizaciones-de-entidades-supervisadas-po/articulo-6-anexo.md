@@ -1,5 +1,10 @@
 ANEXO 6
-BANCOS PRIVADOS, EMPRESAS FINANCIERA NO BANCARIAS, COOPERATIVAS DE AHORRO Y CRÉDITO Y MUTUALES DE AHORRO Y PRÉSTAMO Documentación requerida para la autorización del cambio de nombre.
+BANCOS PRIVADOS, EMPRESAS FINANCIERA NO BANCARIAS,
+COOPERATIVAS DE AHORRO Y CRÉDITO, MUTUALES DE AHORRO Y
+PRÉSTAMO Y SUCURSALES DE BANCOS EXTRANJEROS
+(Así modificada la denominación del anexo anterior sesión N° 1627-2020 del 3 de diciembre del 2020)
+Documentación requerida para la autorización del cambio de nombre.
+(Así reformado el párrafo anterior mediante sesión N° 1627-2020 del 3 de diciembre del 2020)
 I. BASE LEGAL
 A. CÓDIGO DE COMERCIO DE COSTA RICA.
 1. En materia de constitución de sociedades: artículos 18 y 19.

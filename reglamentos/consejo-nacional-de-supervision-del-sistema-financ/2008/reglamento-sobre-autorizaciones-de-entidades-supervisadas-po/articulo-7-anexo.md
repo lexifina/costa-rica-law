@@ -1,6 +1,10 @@
 ANEXO 7
-BANCOS PRIVADOS, EMPRESAS FINANCIERAS NO BANCARIAS, COOPERATIVAS DE AHORRO Y CRÉDITO Y MUTUALES DE AHORRO Y PRÉSTAMO
-Información requerida para la autorización de cese voluntario de actividades de intermediación financiera.
+BANCOS PRIVADOS, EMPRESAS FINANCIERAS NO BANCARIAS,
+COOPERATIVAS DE AHORRO Y CRÉDITO, MUTUALES DE AHORRO Y
+PRÉSTAMO Y SUCURSALES DE BANCOS EXTRANJEROS
+(Así modificada la denominación del anexo anterior en sesión N° 16727-2020 del 3 de diciembre del 2020)
+Información requerida para la autorización de cese de actividades de intermediación financiera.
+(Así reformado el párrafo anterior mediante sesión N° 1627-2020 del 3 de diciembre del 2020)
 I. BASE LEGAL
 A. LEY ORGÁNICA DEL SISTEMA BANCARIO NACIONAL, LEY 1644
 En materia del cese voluntario de actividades de intermediación financiera de un banco privado: artículo 177.
