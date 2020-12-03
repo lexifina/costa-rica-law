@@ -14,3 +14,4 @@ Reforma Lineamientos para el Sistema de Control de Calidad del Colegio de Contad
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-12-03 | la propia norma |
+| 2 | 2020-12-03 | Reglamento 19 (2020-10-05) |
