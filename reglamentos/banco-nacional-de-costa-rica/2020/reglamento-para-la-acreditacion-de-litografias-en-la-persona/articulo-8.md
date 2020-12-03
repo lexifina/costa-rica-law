@@ -1,0 +1,1 @@
+Artículo 8º—La litografía se deberá comprometer a suplir y mantener actualizados padrones fotográficos a la oficina Emisión de Valores del Banco Nacional de todos los miembros de su personal relacionados directamente con el traslado de los cheques de serie especial.
