@@ -14,3 +14,4 @@ Reforma Comunicar a la industria tabacalera la prórroga de la Cuarta Campaña A
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-01-01 | la propia norma |
+| 2 | 2020-12-04 | Directriz 7706 (2020-12-04) |
