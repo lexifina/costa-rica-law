@@ -1,0 +1,1 @@
+Artículo 16.—Se requerirá mayoría simple, es decir la mitad más uno para declarar la urgencia de un asunto que no figure en el orden del día, o para adelantar en la agenda un punto considerado como prioritario. En las sesiones extraordinarias para tales modificaciones se necesitará la unanimidad de los directores presentes.

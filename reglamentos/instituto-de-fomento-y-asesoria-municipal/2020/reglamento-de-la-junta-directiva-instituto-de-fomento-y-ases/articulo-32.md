@@ -1,0 +1,1 @@
+Artículo 32.—Cualquier servidor del IFAM está obligado a asistir a las sesiones de la Junta Directiva, cuando así fuere citado por el Órgano Colegiado, el Presidente (a) o el Director Ejecutivo (a), con el propósito de verter criterio técnico sobre algún asunto o brindar mayor información.

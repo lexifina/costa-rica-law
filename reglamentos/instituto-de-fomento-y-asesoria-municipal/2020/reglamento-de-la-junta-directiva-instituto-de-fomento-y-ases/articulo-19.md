@@ -1,0 +1,1 @@
+Artículo 19.—No podrán remunerarse más de ocho sesiones al mes y solo se consideran remunerables las ocho primeras. Las dietas se incluirán en el presupuesto de la Institución y no podrán sobrepasar en monto el límite legal.

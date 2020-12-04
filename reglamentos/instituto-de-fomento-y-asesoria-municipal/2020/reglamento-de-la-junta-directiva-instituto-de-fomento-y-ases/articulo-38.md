@@ -1,0 +1,1 @@
+Artículo 38.—El Auditor (a) Interno del Instituto es un funcionario (a) de confianza que asiste a las sesiones de la Junta Directiva, cuando así se requiera, con voz, cuyo nombramiento, régimen disciplinario y remoción corresponde a ese órgano colegiado conforme a la Ley.

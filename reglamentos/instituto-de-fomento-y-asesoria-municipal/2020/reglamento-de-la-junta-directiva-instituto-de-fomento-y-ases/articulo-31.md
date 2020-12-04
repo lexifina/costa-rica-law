@@ -1,0 +1,1 @@
+Artículo 31.—De cada sesión se levantará un acta, que contendrá los nombres completos de las personas asistentes, así como las circunstancias de tiempo y lugar en que se ha celebrado, los puntos principales de la deliberación, la forma y resultado de las votaciones y el contenido de los acuerdos.

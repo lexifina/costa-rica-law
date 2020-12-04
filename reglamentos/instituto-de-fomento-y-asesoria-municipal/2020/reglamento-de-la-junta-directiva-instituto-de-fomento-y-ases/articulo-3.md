@@ -1,0 +1,1 @@
+Artículo 3º—En el desempeño de sus funciones, los directores que constituyen la Junta Directiva actuarán con probidad, respetando el interés público, el de la Institución y los intereses atinentes al Régimen Municipal.

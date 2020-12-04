@@ -1,0 +1,1 @@
+Artículo 28.—Los acuerdos tomados por la Junta Directiva quedarán firmes al aprobarse el acta respectiva en la siguiente sesión ordinaria o al haberse declarado así por un mínimo de cinco votos en el momento de efectuarse la votación. Se exceptúa de esta norma, aquellos acuerdos que requieren una votación calificada del Órgano Colegiado, equivalente a cinco votos.

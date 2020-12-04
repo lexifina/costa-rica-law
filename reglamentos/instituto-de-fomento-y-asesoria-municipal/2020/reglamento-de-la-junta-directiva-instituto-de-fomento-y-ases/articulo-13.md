@@ -1,0 +1,3 @@
+Artículo 13.—El quórum necesario para sesionar válidamente es el de mayoría absoluta de los componentes de la Junta Directiva; es decir cuatro directores.
+Si no hubiere quórum, la Junta Directiva podrá sesionar en segunda convocatoria que se realizará treinta minutos después de la hora señalada para la primera convocatoria, y para ello se requerirá del quórum mínimo legal.
+Una vez iniciada la sesión, está no deberá prolongarse por más de 4 horas, a menos que por acuerdo de mayoría simple y previa moción, la Junta apruebe continuar sesionando por un espacio adicional. En el caso de las sesiones extraordinarias la ampliación del tiempo deberá ser acordado por unanimidad.

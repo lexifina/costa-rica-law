@@ -1,0 +1,1 @@
+Artículo 36.—El (la) Presidente (a) será sustituido (a) en sus ausencias temporales por un Vice-presidente (a) elegido (a) de su seno, en la primera sesión ordinaria del mes de junio de cada año, que durará un año en sus funciones, pudiendo ser reelecto.

@@ -1,0 +1,1 @@
+Artículo 23.—Los acuerdos de Junta Directiva que no se refieran a asuntos del orden del día, se tomarán a base de iniciativas o mociones, escritas o verbales, presentadas por los miembros proponentes.

@@ -1,0 +1,1 @@
+Artículo 26.—Todo acuerdo se tomará previa deliberación después de considerarse suficientemente discutido el asunto. Cuando el acuerdo no fuere votado por unanimidad, se consignará a petición de los directores respectivos el voto salvado o negativo y en el acta los motivos que lo justifiquen, quedando exentos de las responsabilidades que pudieren derivarse del acuerdo.

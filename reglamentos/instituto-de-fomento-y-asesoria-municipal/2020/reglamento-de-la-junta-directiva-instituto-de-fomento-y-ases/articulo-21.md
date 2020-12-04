@@ -1,0 +1,1 @@
+Artículo 21.—El Director que llegue tarde sin justa causa después de los treinta minutos contados a partir de la hora señalada para la sesión, perderá el derecho de devengar la dieta respectiva. Cuando un directivo se incorpore a la sesión después de la hora de inicio, así se indicará en el acta.
