@@ -14,3 +14,4 @@ Reforma Sistema de Registro del Ministerio de Agricultura y Ganadería, para Cer
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-08-05 | la propia norma |
+| 2 | 2020-12-04 | Decreto Ejecutivo 42773 (2020-12-04) |
