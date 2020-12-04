@@ -1,0 +1,1 @@
+ARTÍCULO 5-Consultas facultativas. Los ministerios de Salud y de Economía, Industria y Comercio podrán consultar otras organizaciones públicas y privadas, con el fin de establecer dicha canasta básica tributaria.
