@@ -1,0 +1,1 @@
+Artículo 107º-Una vez instruido el expediente, la Comisión Especial lo pondrá en conocimiento de la organización o comité vecinal involucrado para que en el plazo máximo de cinco (5) días hábiles formulen conclusiones sucintas sobre los hechos alegados, la prueba producida y los fundamentos jurídicos en que apoyen sus pretensiones.

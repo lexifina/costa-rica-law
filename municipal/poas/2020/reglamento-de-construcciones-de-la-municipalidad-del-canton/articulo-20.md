@@ -1,0 +1,2 @@
+Artículo 20º-. El Departamento de Gestión de Desarrollo Territorial de la Municipalidad de Poás deberá velar porque el trámite para la licencia municipal de obras menores en el cantón de Poás se realice con base en las Disposiciones de la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos y su Reglamento.
+El o los funcionarios municipales que deban atender las solicitudes de obra menor, lo harán teniendo como principios obligatorios el Principio Pro Persona y el Principio de Eficiencia en favor del administrado.

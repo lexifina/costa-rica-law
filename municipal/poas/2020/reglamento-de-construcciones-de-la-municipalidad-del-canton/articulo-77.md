@@ -1,0 +1,1 @@
+Artículo 77º-El recibo oficial de las obras de infraestructura, no releva al urbanizador a realizar por su cuenta las reparaciones o defectos constructivos que se detectaren por un periodo de 60 meses, contados a partir del recibo oficial de las obras de infraestructura por parte de la Municipalidad.

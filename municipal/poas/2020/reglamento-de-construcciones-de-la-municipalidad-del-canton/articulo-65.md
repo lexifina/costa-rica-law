@@ -1,0 +1,2 @@
+Artículo 65º- En caso de incumplimiento de lo anterior, la Municipalidad retirará el permiso de
+uso concedido, ordenará el retiro de materiales y en caso de no cumplirse con la orden dictada, procederá de conformidad con la Ley General de Caminos Públicos. Los casos de accidentes por el incumplimiento de este punto, serán de exclusiva responsabilidad del encargado de la obra y del propietario del inmueble.

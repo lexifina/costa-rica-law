@@ -1,0 +1,3 @@
+CAPÍTULO XIII
+Infracciones, Sanciones y Procedimientos
+Artículo 110º-La Municipalidad podrá sancionar mediante las normas contenidas en el presente reglamento y en el ordenamiento jurídico vigente que no se le opongan y le complementen, aquellas conductas que impliquen el incumplimiento de las disposiciones reglamentarias, antes y durante el ejercicio del derecho consagrado con el otorgamiento de una licencia de construcción, cometidas tanto por el profesional responsable o propietario de un proyecto, así como por sus representantes legales, cuando se trate de una sociedad, o por cualquier administrado en general

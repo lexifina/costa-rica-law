@@ -1,0 +1,1 @@
+Artículo 37º-Inspección preliminar. De previo al otorgamiento del permiso respectivo, El Departamento de Gestión de Desarrollo Territorial de la Municipalidad de Poás por medio de los Inspectores Municipales realizará una inspección en el campo a fin de verificar el cumplimiento y veracidad de los requisitos aportados por el interesado.

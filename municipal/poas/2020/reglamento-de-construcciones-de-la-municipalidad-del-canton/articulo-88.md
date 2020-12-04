@@ -1,0 +1,1 @@
+Artículo 88º-Callejón de Acceso. Solo se permitirá la construcción de cierres perimetrales en los callejones de acceso, no se permitirá la construcción de ningún otro tipo de obra en este lugar del predio tanto a nivel de suelo como aéreo, dichos cierres deberán respetar lo indicado en los artículos 59, 74 y 90 del presente reglamento.

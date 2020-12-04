@@ -1,0 +1,1 @@
+Artículo 121º-Para la interposición de la multa se deberá respetar por parte de la Municipalidad el procedimiento administrativo del numeral 308 siguientes y concordantes de la Ley General de la Administración Pública. Lo que en esta vía se resuelva, tendrá los recursos de revocatoria y apelación indicados en artículo 171 del Código Municipal.

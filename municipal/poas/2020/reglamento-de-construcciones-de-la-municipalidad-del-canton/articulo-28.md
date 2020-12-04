@@ -1,0 +1,1 @@
+Artículo 28º-Vigencia de la aprobación del desfogue pluvial. La aprobación del desfogue pluvial para un determinado proyecto tendrá una vigencia máxima de dos años. Dicha aprobación no implica la aprobación del proyecto a desarrollar.

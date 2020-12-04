@@ -1,0 +1,1 @@
+Artículo 104º-La Municipalidad podrá notificar cualquier gestión relacionada a la autorización concedida a la persona que figure ante el Concejo Municipal como representante de la entidad vecinal o comité vecinal o al medio señalado para tales efectos; así como también podrá notificar a quién se encuentre físicamente en control del mecanismo o dispositivo de vigilancia.

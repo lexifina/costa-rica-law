@@ -1,0 +1,1 @@
+Artículo 122º-Cobro judicial. La Municipalidad quedará facultada para enviar a cobro judicial todas aquellas cuentas que permanezcan en el sistema municipal en cobro por más de tres meses sin que hayan sido canceladas, pudiendo llegarse inclusive al remate del inmueble por el no pago de esta obligación.

@@ -1,0 +1,2 @@
+Artículo 5°-Sobre el Rechazo. Cualquier solicitud de licencia municipal que no cumpla con la normativa vigente deberá ser rechazada mediante la Resolución Administrativa correspondiente.
+Para los casos de solicitudes de Licencias de Construcción podrán ser rechazadas mediante el acta de revisión de planos o por medio de la plataforma APC del CFIA; sin embargo, por ambos medios deberá quedar constancia de los motivos del rechazo.

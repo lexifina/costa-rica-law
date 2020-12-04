@@ -1,0 +1,1 @@
+Artículo 47º-En caso que el solicitante cumpla con todos los requisitos establecidos en este Reglamento, se le girará el permiso de construcción, previa inspección e informe de vista de campo si fuera necesario, por el Inspector Municipal asignado según zona, para que realice las visitas necesarias y verifique el cumplimiento de las condiciones de la licencia otorgada.

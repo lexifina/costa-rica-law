@@ -1,0 +1,1 @@
+Artículo 98º-La instalación de postes de seguridad deberá contribuir directamente con la seguridad de peatones y edificaciones. Estos cumplirán con los lineamientos contenidos en la normativa nacional vigente. Los postes tendrán una altura de 1,20 metros sobre el nivel de la acera y estarán pintados de amarillo con franjas intercaladas de color rojo y blanco foto luminiscente.

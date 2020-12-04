@@ -1,0 +1,1 @@
+Artículo 57º-Cercas en lotes baldíos. Todo predio no ocupado que colinde con la vía pública, deberá cercar su perímetro hasta una altura de 2,00 m según la Ley de Construcciones Nº 33 acatando las normas municipales en resguardo de la salubridad, seguridad y ornato.
