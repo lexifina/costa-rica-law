@@ -1,0 +1,6 @@
+ARTÍCULO 8-Reforma del subinciso b) del numeral 3 del artículo 11 de la Ley 6826 Se reforma el subinciso b) del numeral 3 del artículo 11 de la Ley 6826, Ley de Impuesto al Valor Agregado, de 8 de noviembre de 1982. El texto es el siguiente:
+Artículo 11- Tarifa reducida. Se establecen las siguientes tarifas reducidas:
+[…]
+3) Del uno por ciento (1%) para los siguientes bienes o servicios:
+[…]
+b) Las ventas, así como las importaciones o internaciones de los artículos definidos en la canasta básica, incluyendo la maquinaria, el equipo, los servicios e insumos necesarios para su producción y hasta su puesta a disposición del consumidor final. Para todos los efectos, la canasta básica será establecida mediante decreto ejecutivo emitido por el Ministerio de Hacienda y el Ministerio de Economía, Industria y Comercio (MEIC) y será revisada y actualizada como mínimo cada cinco años o cada vez que se publiquen los resultados de una nueva encuesta nacional de ingresos y gastos de los hogares. Esta canasta se definirá con base en el consumo efectivo de bienes y servicios de primera necesidad de los hogares que se encuentren en los tres primeros deciles de ingresos, de acuerdo con los estudios efectuados por el Instituto Nacional de Estadística y Censos (INEC).
