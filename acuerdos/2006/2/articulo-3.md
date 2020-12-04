@@ -99,7 +99,6 @@ C(619) | Créditos pendientes de desembolsar |
 (*)(Así reformado el cuadro anterior "Ponderaciones según el riesgo de crédito", mediante acuerdo SUGEF-R-002-2013 del 3 de junio del 2013)
 CUENTAS SUJETAS A RIESGO DE PRECIO [2]
 A continuación se indican las cuentas contables en las cuales se registran los valores cuyo saldo total bruto (sin deducir las estimaciones) está sujeto al cálculo del Valor en Riesgo (VeR).
-CUENTAS SUJETAS AL CÁLCULO DEL VeR
-C(121 + 122 -122.12 - 122.14 - 122.51 -125.04 + 123 + 124 + 125) – D 20173 | Inversiones en Instrumentos financieros excepto las inversiones en operaciones de reporto y reporto tripartito, los valores y depósitos a plazo no estandarizados y las inversiones en valores y depósitos en entidades en cesación de pagos.
-C(151.01) | Instrumentos financieros adquiridos en recuperación de créditos excepto las inversiones en operaciones de recompra (valores con pacto de reventa) y los valores y depósitos a plazo no estandarizados.
+[imagen]
+(Así reformado el cuadro anterior mediante acuerdo SGF-4222-2020 del 4 de diciembre del 2020)
 (Así reformado mediante acuerdo SUGEF-R-003-2011 del 28 de enero del 2011)
