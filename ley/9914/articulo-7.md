@@ -1,0 +1,1 @@
+ARTÍCULO 7-Revisión de la canasta básica tributaria. La lista de productos incluidos en la canasta básica se revisará, al menos, cada cinco años o cada vez que el Instituto Nacional de Estadística y Censos (INEC) emita los resultados de un nuevo estudio respecto de los ingresos, los gastos y el consumo de la población.
