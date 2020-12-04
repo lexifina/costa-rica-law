@@ -15,3 +15,4 @@ Reglamento para la autorización para la importación y adquisición de medicame
 | --- | --- | --- |
 | 1 | 2011-02-04 | la propia norma |
 | 2 | 2011-06-27 | Decreto Ejecutivo 36655 (2011-06-27) |
+| 3 | 2020-12-04 | Decreto Ejecutivo 42751 (2020-12-04) |
