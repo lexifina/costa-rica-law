@@ -1,6 +1,6 @@
 # Ley de Presupuesto Ordinario y Extraordinario de la República para el Ejercicio Económico del 2020
 
-Ley N° 9791 del 2019-11-26. SINALEVI, ficha 90188: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=90188&param2=123481&param3=1>.
+Ley N° 9791 del 2019-11-26. SINALEVI, ficha 90188: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=90188&param2=123305&param3=1>.
 
 Publicada en La Gaceta N° 233 del 2019-12-06.
 
@@ -25,3 +25,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 15 de 24 | 2020-10-23 | Decreto Ejecutivo 42654 (2020-10-07) | 2020-10-07 |
 | 16 de 24 | 2020-11-13 | Decreto Ejecutivo 42704 (2020-10-27) | 2020-10-27 |
 | 17 de 24 | 2020-12-04 | Decreto Ejecutivo 42722 (2020-11-03) | 2020-11-03 |
+| 18 de 24 | 2020-12-04 | Decreto Ejecutivo 42721 (2020-11-13) | 2020-11-13 |

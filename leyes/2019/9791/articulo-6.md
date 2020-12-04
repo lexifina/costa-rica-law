@@ -13,3 +13,4 @@ Artículo 6°: Apruébense los siguientes Egresos Ordinarios y Extraordinarios d
 (Modificado por el artículo 1° del decreto ejecutivo N° 42540 del 13 de agosto del 2020)
 (Modificado por el artículo 3° del decreto ejecutivo N° 42704 del 27 de octubre del 2020)
 (Modificado por el artículo 1° del decreto ejecutivo N° 42722 del 3° de noviembre de 2020)
+(Modificado por el artículo 1° del decreto ejecutivo N° 42721 del 13 de noviembre del 2020)
