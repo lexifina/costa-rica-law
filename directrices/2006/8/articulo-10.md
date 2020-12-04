@@ -1,1 +1,0 @@
-Artículo 10.—Direccionamiento de las denuncias. En el caso de que la denuncia sea presentada ante una dependencia del Ministerio de Hacienda que no sea la competente para admitir, conocer y tramitar la misma, dicha dependencia deberá remitirla en sobre cerrado a la dependencia que resultare competente.

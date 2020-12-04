@@ -1,1 +1,0 @@
-Artículo 13.—Fundamentación del acto de desestimación o archivo de denuncias. La desestimación o archivo de las denuncias se realizará mediante un acto debidamente motivado en el que se establezcan los argumentos valorados para tomar esa decisión.

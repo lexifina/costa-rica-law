@@ -1,1 +1,0 @@
-Artículo 7º—Información adicional. El denunciante también deberá brindar información complementaria respecto de la estimación del perjuicio económico producido a los fondos públicos en caso de conocerlo, la indicación de probables testigos y el lugar o medio para citarlo, así como aportación o sugerencia de otras pruebas.
