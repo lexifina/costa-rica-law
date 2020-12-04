@@ -1,4 +1,5 @@
 CIRCULAR Nº 170-2020
+(Nota de Sinalevi: Mediante circular N° 280-2020 del 4 de diciembre del 2020, se acordó extensor la presente norma a todos los despachos que conocen materia Civil, en virtud de que en dicha materia se resuelven procesos que también producen efectos ejecutorios ante dicho ente registral, como lo son, por ejemplo, los cambios de nombre de personas menores y mayores de edad.)
 Asunto: Sentencias dictadas que sean objeto de inscripción en el Registro Civil.
 A TODOS LOS DESPACHOS QUE CONOCEN
 MATERIA DE FAMILIA

@@ -13,3 +13,4 @@ Sentencias dictadas que sean objeto de inscripción en el Registro Civil
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-08-12 | la propia norma |
+| 2 | 2020-12-04 | Circular 280 (2020-12-04) |
