@@ -7,5 +7,4 @@ Artículo 51. Son funciones de la Dirección General de Administración Universi
 6. Coordinar los procesos administrativos y operativos para brindar apoyo especializado a la academia y vida estudiantil.
 7. Asesorar en materia de gestión y servicios a las diferentes dependencias universitarias.
 8. Fomentar el desarrollo de políticas y programas para el mejoramiento continuo de los procesos administrativos.
-9. Registrar, recolectar, custodiar, sistematizar y dar fe pública de la información académica de los estudiantes universitarios.
-10. Dirigir, coordinar, supervisar, administrar, controlar y evaluar los procesos asociados al registro académico estudiantil de la universidad así como de todos los procesos y programas a su cargo.
+(Así reformado mediante sesión ordinaria N° 29-2020 del 4 de diciembre del 2020)
