@@ -8,3 +8,5 @@ Artículo 3°: Apruébense los siguientes Egresos Ordinarios y Extraordinarios d
 (Modificado por el artículo 1° del decreto ejecutivo N° 42722 del 3° de noviembre de 2020)
 (Modificado por el artículo 1° del decreto ejecutivo N° 42721 del 13 de noviembre del 2020)
 (Modificado por el artículo 3° de la ley N° 9924 del 20 de noviembre del 2020)
+(Reformado por el artículo 2° de la ley N° 9921 del 20 de noviembre del 2020)
+(Reformado por el artículo 3° de la ley N° 9921 del 20 de noviembre del 2020)
