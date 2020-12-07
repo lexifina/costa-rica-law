@@ -1,0 +1,1 @@
+Artículo 24.—Responsable de la Ejecución de la Contratación. Será responsable de la ejecución del contrato la DSAG, quien, por medio de los mecanismos legales dispuestos, deberá realizar las gestiones necesarias para el cumplimiento de los objetivos institucionales.

@@ -1,0 +1,1 @@
+Artículo 31.—Sobre el reconocimiento económico del servicio utilizado. El usuario del servicio podrá solicitar el reconocimiento del gasto del transporte de forma anticipada (mediante un adelanto en efectivo o depósito bancario, según corresponda) o bien, podrá solicitar el reintegro posteriormente (si el gasto fue pagado con recursos propios del beneficiario).

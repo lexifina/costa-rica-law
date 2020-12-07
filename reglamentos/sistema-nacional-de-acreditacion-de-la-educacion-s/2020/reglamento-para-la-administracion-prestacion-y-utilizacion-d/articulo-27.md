@@ -1,0 +1,1 @@
+Artículo 27.—Sobre el trámite y autorización. Esta modalidad será regulada por medio del Reglamento para el arrendamiento del servicio de transporte y pago de kilometraje de vehículos propios de funcionarios del SINAES aprobado por la CGR y los lineamientos internos respectivos.

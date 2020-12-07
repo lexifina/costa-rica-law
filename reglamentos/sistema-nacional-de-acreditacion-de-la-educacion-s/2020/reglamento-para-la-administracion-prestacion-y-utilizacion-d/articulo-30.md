@@ -1,0 +1,1 @@
+Artículo 30.—Sobre el trámite y autorización. Para reconocer el pago de este servicio, el usuario deberá llenar el formulario que para los efectos ha diseñado la DSAG y deberá estar autorizada por la jefatura del usuario que requiera del servicio, previo al desembolso o pago por del servicio.

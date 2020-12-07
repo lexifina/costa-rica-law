@@ -1,0 +1,5 @@
+Artículo 8º—Sobre las solicitudes de transporte del CNA. Los miembros del CNA podrán hacer uso de los servicios de transportes que ofrece la institución si requieren trasladarse a cualquier lugar para el desempeño de sus funciones. La utilización de los servicios de transporte debe estar estrictamente relacionada con las labores propias del cargo, o con motivo y en razón de un encargo directamente asignado, para lo cual deberá:
+a. La Secretaría del CNA tramitará ante la Dirección Ejecutiva las solicitudes de transporte que requieran sus miembros, verificando que las mismas no coincidan con las fechas de las sesiones del CNA, mediante el formulario correspondiente.
+b. La Dirección Ejecutiva gestionará dichas solicitudes y supervisará que el servicio se brinde de forma adecuada cumpliendo cada una de las disposiciones establecidas por el SINAES.
+c. La Dirección Ejecutiva reportará cualquier situación o anomalía del servicio recibido a la DSAG.
+d. La Dirección Ejecutiva debe conocer, y divulgar las disposiciones y normativa que regula el uso de transporte, pago de viáticos y pago de kilometraje del Estado Costarricense y sus Instituciones
