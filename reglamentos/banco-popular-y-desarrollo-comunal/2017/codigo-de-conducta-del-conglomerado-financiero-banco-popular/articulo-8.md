@@ -1,10 +1,10 @@
 SECCIÓN V
-Estructura para el cumplimiento
-del código de conducta
-Artículo 8º—Cumplimiento del Código de Conducta. Son responsables del cumplimiento del presente Código los siguientes órganos, cuyas funciones serán:
+Estructura para el cumplimiento del Código de Conducta
+Artículo 8º—Cumplimiento del Código de Conducta
+Son responsables del cumplimiento del presente Código los siguientes órganos, cuyas funciones serán:
 a) De la respectiva Junta Directiva: Asumir el liderazgo del diseño, la elaboración, la implementación, el monitoreo y el fortalecimiento del Programa de Gestión Ética.
-b) Comisión de Valores del Conglomerado: Esta Comisión está integrada por los Gerentes Generales de cada entidad y los Subgerentes Generales del Banco, Comisión que podrá invitar a sus sesiones a quienes estime necesario. Las funciones secretariales serán ejercidas por la persona asignada por la Gerencia General Corporativa.
-Son funciones de esta Comisión las siguientes:
+b) Comité de Valores del Conglomerado: Esta Comisión está integrada por los Gerentes Generales de cada entidad y los Subgerentes Generales del Banco, Comisión que podrá invitar a sus sesiones a quienes estime necesario. Las funciones secretariales serán ejercidas por la persona asignada por la Gerencia General Corporativa.
+Son funciones de este Comité las siguientes:
 i. Aprobar el Programa de Gestión Ética de la respectiva entidad, de conformidad con los lineamientos establecidos por la respectiva Junta Directiva.
 ii. Conocer el resultado de las evaluaciones de gestión institucional en materia ética.
 iii. Conocer los diagnósticos de madurez de la ética elaborados por la Comisión Técnica de Ética y Valores.
@@ -20,9 +20,10 @@ iv. Proponer a la Comisión de Valores del Conglomerado planes, políticas, inst
 v. Proponer a la Comisión de Valores del Conglomerado los indicadores de gestión ética.
 e) Dependencia de Capital Humano o su homóloga de cada entidad: La Dirección de Capital Humano o su homóloga en las Sociedades divulgará este Código entre el personal, promoviendo y motivando su cumplimiento mediante actividades de capacitación y de sensibilización.
 Asimismo, deberá realizar los ajustes dispuestos por la Comisión de Valores del Conglomerado en lo relativo a procesos y procedimientos de reclutamiento, selección, retención, formación, evaluación y crecimiento del personal, para lograr la integración de la ética en los sistemas de gestión institucional. Adicionalmente debe:
-i. Aplicar las campañas y estrategias de comunicación necesarias para fortalecer la cultura de ética y valores, conforme lo defina la Comisión de Valores del Conglomerado.
-ii. Revisar al menos una vez al año este Código y remitir sus propuestas de modificación a la Comisión de Valores del Conglomerado para su remisión a la Junta Directiva Nacional.
-f) Jefaturas del Conglomerado: Las Jefaturas del CFBPDC tendrán la responsabilidad de:
+i. Aplicar las campañas y estrategias de comunicación necesarias para fortalecer la cultura de ética y valores conforme lo defina la Comisión de Valores del Conglomerado.
+ii. Revisar al menos una vez al año este Código y remitir sus propuestas de modificación al Comité de Valores del Conglomerado, a la Comisión Técnica de Asuntos Jurídicos y al Comité de Cumplimiento del Banco Popular, en el orden indicado, para su posterior remisión a la Junta Directiva Nacional.
+f) Jefaturas del Conglomerado: Las Jefaturas del CFBPDC
+tendrán la responsabilidad de:
 i. Al menos una vez al año, realizar un conversatorio con su personal sobre la importancia y contenido del presente Código, y su impacto en las labores cotidianas.
 ii. Colaborar en las actividades y brindar la información requerida por parte de las Comisiones indicadas en este Código.
 iii.Denunciar ante los órganos competentes los supuestos incumplimientos a este Código, utilizando los canales establecidos.
