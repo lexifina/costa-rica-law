@@ -1,0 +1,1 @@
+Artículo 15.—Plan de Trabajo. El Comité de Caminos definirá sus objetivos y labores en un Plan de Trabajo, en el que determinará las actividades, el plazo para ser ejecutadas y las personas responsables. Dicho Plan de Trabajo deberá presentarse, conjuntamente con el informe de labores, en la Asamblea Anual.

@@ -1,0 +1,1 @@
+Artículo 11.—Coordinación. El Comité de Caminos mantendrá estrecha coordinación con el Concejo Municipal, el Concejo de Distrito y la Unidad Técnica de Gestión Vial Municipal, dependiendo de la naturaleza y tipo de coordinación de que se trate.

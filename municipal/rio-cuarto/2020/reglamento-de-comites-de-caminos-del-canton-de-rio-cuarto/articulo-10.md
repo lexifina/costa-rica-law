@@ -1,0 +1,3 @@
+Artículo 10.—Renuncia, Destitución y Sustitución. Los miembros del Comité de Caminos podrán renunciar a su cargo por cualquier motivo debiendo presentar por escrito sus razones ante la Junta Directiva. Esta lo hará saber al Concejo de Distrito y Concejo Municipal
+De igual forma, las personas que integran los Comités de Caminos podrán ser destituidas por causa justificada o por incumplimiento de deberes. Esta destitución la podrá realizar la Asamblea de Vecinos o el Concejo de Distrito luego de la realización del debido proceso y del otorgamiento del derecho a la defensa previa.
+En cualquiera de los casos determinados en este artículo, procederá la sustitución automática con los suplentes electos por la Asamblea.

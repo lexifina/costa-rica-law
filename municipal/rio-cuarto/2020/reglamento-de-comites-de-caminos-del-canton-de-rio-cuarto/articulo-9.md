@@ -1,0 +1,1 @@
+Artículo 9º—Reelección de sus miembros. Los miembros del Comité de Caminos, podrán ser reelectos por otros períodos sucesivos, si éstos lo consienten y es el acuerdo de la mayoría de vecinos(as) presentes.

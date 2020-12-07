@@ -1,0 +1,1 @@
+Artículo 19.—Supervisión. Corresponderá la supervisión de los comités de caminos al Concejo de Distrito, la Asamblea de Vecinos, el Concejo Municipal y la Municipalidad, ya sea a través de la Alcaldía o la Unidad Técnica de Gestión Vial Municipal.

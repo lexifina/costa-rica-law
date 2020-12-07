@@ -1,0 +1,3 @@
+Artículo 6º—Requisitos para la Adscripción del Comité de Caminos. Los Comités de Caminos estarán adscritos al Concejo de Distrito de su comunidad, y deberán presentar ante aquel, una vez electos en Asamblea, los siguientes requisitos:
+a) Determinación del (de los) código (s) del (de los) camino (s) al que se circunscribirá el Comité de Caminos, debidamente acreditado (s) por la Unidad Técnica de Gestión Vial de la Municipalidad de Río Cuarto.
+b) Nota de solicitud suscrita por la Presidencia y la Secretaría y dirigida al Concejo de Distrito indicando el nombre y apellidos de las personas electas como propietarias y suplentes, su número de cédula o del documento de identificación, número de teléfono y cargo dentro del Comité.
