@@ -1,0 +1,5 @@
+Control y evaluación presupuestaria
+Artículo 22.—Control y la evaluación presupuestaria
+El Control y la evaluación presupuestaria comprende el conjunto de normas y procedimientos sistemáticos y ordenados de carácter técnico, legal y administrativo que se aplican para garantizar razonablemente el cumplimiento eficiente, efectivo y económico del presupuesto institucional, incluyendo los respectivos objetivos y metas.
+El Control y la evaluación presupuestaria tendrá como objetivo verificar el cumplimiento de la ejecución presupuestaria y que esta se apegue a las disposiciones legales, reglamentarias y técnicas que regulan la gestión presupuestaria.
+El Control y la evaluación presupuestaria busca identificar de desviaciones de lo ejecutado con respecto a lo aprobado, la identificación de deficiencias en la gestión del subsistema de presupuesto y del proceso presupuestario, así como su posible desvinculación con lo planificado. Estos elementos serán de utilidad para implementar las medidas de corrección pertinentes.

@@ -1,0 +1,1 @@
+Artículo 5.—Clasificación de ingresos. El presupuesto de ingresos se elaborará considerando su naturaleza económica, y deberá mostrar los conceptos de ingresos agrupados en los diferentes niveles de clasificación, de acuerdo con los clasificadores vigentes de conformidad con el Clasificador de Ingresos.

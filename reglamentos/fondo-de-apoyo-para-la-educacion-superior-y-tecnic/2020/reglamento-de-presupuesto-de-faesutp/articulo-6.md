@@ -1,0 +1,1 @@
+Artículo 6.—Presupuestación de gastos. La presupuestación se realizará por medio del clasificador presupuestario de los gastos, los montos por partida, grupo y sub partida de gasto que se requerirán para obtener los bienes y servicios que será necesario adquirir durante el período que se presupuesta, para cumplir con las metas de gestión y producción estimadas.

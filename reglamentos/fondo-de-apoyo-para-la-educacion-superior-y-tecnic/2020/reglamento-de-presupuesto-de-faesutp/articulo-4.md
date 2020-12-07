@@ -1,0 +1,1 @@
+Artículo 4.—Presupuestación de los ingresos. La estimación de los ingresos se hará con base en métodos técnicos, matemáticos, financieros y estadísticos de común aceptación, considerando su composición y estacionalidad. Los supuestos utilizados para dichas estimaciones deberán estar técnicamente fundamentados y documentados por la Unidad Presupuestaría.

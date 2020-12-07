@@ -1,0 +1,4 @@
+Aprobación presupuestaria
+Artículo 10.—Aprobación.
+El proyecto de presupuesto institucional o sus variaciones deben ser sometidos a la fase de aprobación presupuestaria interna por el Consejo Directivo, en las condiciones establecidas por el bloque de legalidad para esos efectos.
+La aprobación del proyecto de presupuesto institucional comprende el conjunto de normas y procedimientos técnicos, legales y administrativas, mediante la cual el Consejo Directivo conoce, estudia y aprueba por medio de acuerdo sobre el presupuesto formulado y sus variaciones, en función de su conformidad con la planificación anual, y del cumplimiento de las disposiciones del bloque de legalidad y la técnica que le es aplicable. Esta aprobación otorga validez a los documentos aportados y le otorgará eficacia jurídica, posibilitando su ejecución para el periodo respectivo.

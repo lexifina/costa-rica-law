@@ -1,0 +1,2 @@
+Artículo 14.—Incorporación del Presupuesto Institucional al SIPP
+El presupuesto institucional debidamente aprobado con su respectivo acuerdo del Consejo Directivo deberá incorporar al Sistema Integrado de Presupuestos Públicos de la Contraloría General de la República en las fechas que el ente contralor lo establezca, también se extiende a la presentación del presupuesto extraordinario si corresponde.

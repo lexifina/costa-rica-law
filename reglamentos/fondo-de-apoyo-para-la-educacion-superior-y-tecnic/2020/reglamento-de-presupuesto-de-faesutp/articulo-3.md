@@ -1,0 +1,1 @@
+Artículo 3.—Asignación de recursos financieros. Se realizará la asignación de recursos para atender los requerimientos de la planificación institucional y satisfacer las necesidades que dieron origen a los objetivos y fines para los que fue creada la institución

@@ -1,0 +1,2 @@
+Artículo 8.—Metodología e instrumentos para la medición de resultados
+El Encargado de la Unidad de presupuesto será responsable de la formulación del presupuesto debe incorporar aquellos parámetros e indicadores que permitan la medición de resultados, con el fin de establecer los mecanismos que contribuyan a medir el cumplimiento de la planificación anual y faciliten la rendición de cuentas sobre la utilización de los recursos y los resultados alcanzados

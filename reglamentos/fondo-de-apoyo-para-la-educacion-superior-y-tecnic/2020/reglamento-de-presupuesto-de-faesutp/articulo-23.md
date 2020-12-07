@@ -1,0 +1,2 @@
+Artículo 23. —Metodología e instrumentos.
+La metodología e instrumentos de control y evaluación presupuestaria tendrán apego estricto al bloque de legalidad y de manera transparente, eficaz, eficiente, económica, calidad, suficiencia y pertinencia para la actividad propia de la institución, también se medirá el comportamiento de los indicadores contenidos en la planificación institucional según el presupuesto aprobado.

@@ -1,0 +1,1 @@
+Artículo 19. —Recibo de solicitudes de modificación presupuestaria. El Director Ejecutivo recibirá de la Unidad de Presupuesto la solicitud de realizar la modificación presupuestaria con los elementos de respaldo y justificación necesarios para adecuar los contenidos presupuestarios de partidas y subpartidas presupuestarias.

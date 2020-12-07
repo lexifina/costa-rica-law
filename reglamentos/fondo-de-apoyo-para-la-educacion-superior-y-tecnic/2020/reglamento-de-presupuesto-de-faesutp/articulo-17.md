@@ -1,0 +1,8 @@
+Artículo 17.—Documentos de ejecución presupuestaria. Sin perjuicio de otros que pueda llegar a definir la Unidad de Presupuesto, mediante la normativa técnica respectiva, existirán los siguientes tipos de documentos de ejecución presupuestaria:
+a) Solicitud de pedido: se utiliza para realizar una separación presupuestaria de fondos, permitiéndole al órgano ejecutor el desarrollo de procesos de contratación administrativa. Para efectos de la contabilidad presupuestaria, afecta el Solicitado.
+b) Pedido: se utiliza para comprometer el pago con los proveedores de mercancías o servicios. Para efectos de la contabilidad presupuestaria, afecta el Comprometido.
+c) Reserva de Recursos: permite separar fondos presupuestarios para la adquisición de bienes o servicios, o para el pago de obligaciones con terceros que no requieren formalizarse mediante un proceso de contratación administrativa. Para efectos de la contabilidad presupuestaria, afecta el Comprometido.
+d) Factura: permite registrar la obligación de pago a un tercero por concepto de contraprestación de bienes, servicios u otras obligaciones. Así como, para el registro de giro de recursos correspondientes a subvenciones, transferencias y gastos por servicios personales. Para efectos de la contabilidad presupuestaria afecta el Devengado.
+e) Pagos: Se utiliza para registrar la ejecución del pago. Para e fectos de la contabilidad presupuestaria, afecta el Pagado.
+f) Traslado de Recursos: se utiliza para realizar ajustes contables a las partidas de presupuesto. Para efectos de la contabilidad presupuestaria, afecta el Devengado y el Pagado.
+El detalle de los procesos y documentos específicos se tendrá en los manuales de procedimiento aprobado por el Consejo Directivo

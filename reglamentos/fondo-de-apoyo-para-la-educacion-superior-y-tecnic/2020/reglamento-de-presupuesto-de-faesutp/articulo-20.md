@@ -1,0 +1,2 @@
+Artículo 20.—Aprobación de las modificaciones presupuestarias por el Consejo Directivo
+El Consejo Directivo recibirá en sesión ordinaria a solicitud de realizar la modificación presupuestaria con los elementos de respaldo y justificación necesarios para adecuar los contenidos presupuestarios de partidas y subpartidas presupuestarias las cuales revisará y pedirá información al Director Ejecutivo, el Consejo Directivo aprobará o improbará la modificación presupuestaria. En el caso en que exista la objeción de votos, tiene que ser justificada la misma y constar en actas.
