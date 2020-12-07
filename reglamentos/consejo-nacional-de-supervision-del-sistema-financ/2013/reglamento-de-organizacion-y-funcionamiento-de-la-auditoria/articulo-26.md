@@ -1,3 +1,3 @@
-Artículo 26.—Servicios de fiscalización de la Auditoría Interna
+Artículo 26. Servicios de fiscalización de la Auditoría Interna
 Los servicios de la actividad de la Auditoría Interna se clasifican, conforme a sus competencias, en servicios de auditoría y servicios preventivos. Los servicios de auditoría abarcan los distintos tipos de auditoría y los estudios especiales; y los servicios preventivos incluyen la asesoría, la advertencia y la autorización de libros.
-La asesoría y la advertencia, a diferencia de las auditorías y estudios especiales, pueden darse a priori, concomitante o a posteriori, deben tener un tono constructivo, de apoyo y estar fundamentadas adecuadamente
+La asesoría y la advertencia, a diferencia de las auditorías y estudios especiales, pueden darse a priori, concomitante o a posteriori, deben tener un tono constructivo, de apoyo y estar fundamentadas adecuadamente.

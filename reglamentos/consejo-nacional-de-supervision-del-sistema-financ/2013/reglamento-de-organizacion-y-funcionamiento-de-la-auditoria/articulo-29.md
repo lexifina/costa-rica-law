@@ -1,2 +1,2 @@
-Artículo 29.—Servicio preventivo legalización de libros
+Artículo 29. Servicio preventivo legalización de libros
 La Auditoría Interna dentro de sus servicios autorizará mediante razón de apertura, los libros que deben llevar los órganos sujetos a su competencia institucional y otros libros que a criterio del Auditor Interno sean necesarios para el fortalecimiento del sistema de control interno.

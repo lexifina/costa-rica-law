@@ -1,2 +1,2 @@
-Artículo 17.—Coordinación con la Contraloría General de la República
+Artículo 17. Coordinación con la Contraloría General de la República
 El Auditor Interno podrá proveer e intercambiar información con la Contraloría General de la República, así como con otros entes y órganos de control que, conforme con la ley correspondan y en el ámbito de sus competencias, sin perjuicio de la coordinación interna que al respecto debe darse y sin que ello implique limitación para la efectiva actuación de la Auditoría Interna.

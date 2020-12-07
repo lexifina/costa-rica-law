@@ -1,2 +1,2 @@
-Artículo 18.—Coordinación con responsable del control presupuestario
+Artículo 18. Coordinación con responsable del control presupuestario
 El Auditor Interno deberá establecer las relaciones de coordinación necesarias para que el responsable del control del presupuesto cumpla con el deber de mantener un registro separado del monto asignado y aprobado a la Auditoría Interna, detallado por objeto del gasto, de manera que se controlen la ejecución y las modificaciones de los recursos presupuestarios asignados a la Auditoría Interna.

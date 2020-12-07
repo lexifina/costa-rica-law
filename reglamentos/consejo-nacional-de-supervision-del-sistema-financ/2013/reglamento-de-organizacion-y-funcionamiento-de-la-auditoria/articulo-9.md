@@ -1,3 +1,2 @@
-Artículo 9º—Planificación estratégica
-El Auditor Interno debe elaborar un plan estratégico en el que queden plasmados la visión, misión y principales políticas y proyectos estratégicos que rigen el accionar de la Auditoría Interna.
-Dicho plan debe ser evaluado y actualizado periódicamente, de manera que refleje la evolución institucional. El plan estratégico debe tener una cobertura de cinco años y estar integrado y/o alineado al plan institucional del CONASSIF y de las superintendencias.
+Artículo 9. Planificación estratégica
+El Auditor Interno debe elaborar un plan estratégico en el que queden plasmados la visión, misión y principales políticas y proyectos estratégicos que rigen el accionar de la Auditoría Interna. Dicho plan debe ser evaluado y actualizado periódicamente, de manera que refleje la evolución institucional. El plan estratégico debe tener una cobertura de cinco años y estar integrado y/o alineado al plan institucional del CONASSIF y de las superintendencias.

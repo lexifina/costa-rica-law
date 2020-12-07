@@ -1,2 +1,2 @@
-Artículo 19.—Coordinación con la Asesoría Jurídica
-La Asesoría Jurídica del CONASSIF y de las superintendencias, conforme se estipula en el inciso c), artículo 33 de la Ley General de Control Interno, Ley 8292, brindará a través de los mecanismos de coordinación que se definan la colaboración necesaria según los estudios jurídicos que requiera la Auditoría Interna. Lo anterior, sin perjuicio de que se pueda contratar asesoría legal externa.
+Artículo 19. Coordinación con la Asesoría Jurídica
+La Asesoría Jurídica del CONASSIF y de las superintendencias, conforme se estipula en el literal c), artículo 33 de la Ley General de Control Interno, brindará a través de los mecanismos de coordinación que se definan la colaboración necesaria según los estudios jurídicos que requiera la Auditoría Interna. Lo anterior, sin perjuicio de que se pueda contratar asesoría legal externa.

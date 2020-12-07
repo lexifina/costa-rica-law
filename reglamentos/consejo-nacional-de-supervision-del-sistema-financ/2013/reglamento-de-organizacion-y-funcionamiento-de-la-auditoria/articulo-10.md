@@ -1,2 +1,3 @@
-Artículo 10.—Código de ética
-La Auditoría Interna debe contar con un código de ética que regirá la conducta y los valores de los funcionarios que conforman la Auditoría Interna del CONASSIF, el cual es de acatamiento obligatorio, sin perjuicio de otros valores que el CONASSIF promueva para guiar la actuación. Este código debe ser aprobado por el CONASSIF y revisado cuando las circunstancias lo ameriten.
+Artículo 10. Código de ética
+La Auditoría Interna debe contar con un código de ética que regirá la conducta y los valores de los funcionarios que conforman la Auditoría Interna del CONASSIF, el cual es de acatamiento obligatorio, sin perjuicio de otros valores que el CONASSIF promueva para guiar la actuación.
+Este código debe ser aprobado por el CONASSIF y revisado cuando las circunstancias lo ameriten.

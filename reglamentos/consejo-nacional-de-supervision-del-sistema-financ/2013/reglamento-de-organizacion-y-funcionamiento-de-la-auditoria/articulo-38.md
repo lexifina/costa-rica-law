@@ -1,2 +1,2 @@
-Artículo 38.—Recursos requeridos para la Auditoría Interna
-Corresponde al Consejo Nacional de Supervisión del Sistema Financiero asignar los recursos humanos, materiales, tecnológicos, de transporte y otros necesarios y suficientes para que la Auditoría Interna pueda cumplir su labor de conformidad con el artículo 27 de la Ley General de Control Interno, Ley 8292 y las Directrices para la solicitud y asignación de recursos a las Auditorías Internas.
+Artículo 38. Recursos requeridos para la Auditoría Interna
+Corresponde al CONASSIF asignar los recursos humanos, materiales, tecnológicos, de transporte y otros necesarios y suficientes para que la Auditoría Interna pueda cumplir su labor de conformidad con el artículo 27 de la Ley General de Control Interno y los Lineamientos sobre gestiones que involucran a la auditoría interna presentadas ante la Contraloría General de la República.

@@ -1,2 +1,2 @@
-Artículo 30.—Remisión de informes
-El Auditor Interno deberá comunicar oficialmente los resultados del trabajo mediante informes, oficios u otros dirigidos al CONASSIF -cuando el Auditor Interno considere necesarioy/ o a los titulares subordinados de la administración activa con competencia y autoridad para ordenar la implantación de las respectivas recomendaciones o atender los asuntos comunicados.
+Artículo 30. Remisión de informes
+El Auditor Interno deberá comunicar oficialmente los resultados del trabajo mediante informes, oficios u otros dirigidos al CONASSIF -cuando el Auditor Interno considere necesario- y/o a los titulares subordinados de la administración activa con competencia y autoridad para ordenar la implantación de las respectivas recomendaciones o atender los asuntos comunicados.

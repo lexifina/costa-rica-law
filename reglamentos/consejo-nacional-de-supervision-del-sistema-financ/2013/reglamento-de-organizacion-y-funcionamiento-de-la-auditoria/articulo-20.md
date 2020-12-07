@@ -1,2 +1,2 @@
-Artículo 20.—Otros profesionales requeridos
-Al amparo del artículo 33 de la Ley General de Control Interno, Ley 8292, el Auditor Interno realizará las gestiones pertinentes para lograr la incorporación de profesionales o técnicos de diferentes disciplinas, funcionarios o no de la Organización, para que lleven a cabo labores de su especialidad en apoyo a los estudios de auditoría que realice la Auditoría Interna, cuando ello resulte necesario.
+Artículo 20. Otros profesionales requeridos
+Al amparo del artículo 33 de la Ley General de Control Interno, el Auditor Interno realizará las gestiones pertinentes para lograr la incorporación de profesionales o técnicos de diferentes disciplinas, funcionarios o no de la Organización, para que lleven a cabo labores de su especialidad en apoyo a los estudios de auditoría que realice la Auditoría Interna, cuando ello resulte necesario.
