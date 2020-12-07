@@ -14,3 +14,4 @@ Reglamento para el uso, Control y Mantenimiento de Vehículos de la Municipalida
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-05-24 | la propia norma |
+| 2 | 2020-12-07 | Reglamento municipal 71 (2020-12-07) |
