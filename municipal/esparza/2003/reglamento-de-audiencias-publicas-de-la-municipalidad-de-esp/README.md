@@ -14,3 +14,4 @@ Reglamento de Audiencias Públicas de la Municipalidad de Esparza.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-10-07 | la propia norma |
+| 2 | 2020-12-07 | Reglamento municipal 0 (2020-12-07) |
