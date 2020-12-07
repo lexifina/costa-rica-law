@@ -15,3 +15,4 @@ Sanciones que se impondrán ante el incumplimiento de las disposiciones emitidas
 | --- | --- | --- |
 | 1 | 2020-05-31 | la propia norma |
 | 2 | 2020-07-03 | Resolución 3635 (2020-07-03) |
+| 3 | 2020-12-07 | Resolución 7906 (2020-12-07) |
