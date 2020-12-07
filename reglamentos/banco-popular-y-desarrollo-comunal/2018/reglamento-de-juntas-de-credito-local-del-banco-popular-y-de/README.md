@@ -14,3 +14,4 @@ Reglamento de Juntas de Crédito Local del Banco Popular y de Desarrollo Comunal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-01-02 | la propia norma |
+| 2 | 2020-12-07 | Reglamento 5789 (2020-12-07) |
