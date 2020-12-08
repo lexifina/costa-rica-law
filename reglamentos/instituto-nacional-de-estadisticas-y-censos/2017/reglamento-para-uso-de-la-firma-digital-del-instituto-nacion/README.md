@@ -14,3 +14,4 @@ Reglamento para uso de la firma digital del Instituto Nacional de Estadística y
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-04-28 | la propia norma |
+| 2 | 2020-12-08 | Reglamento 32 (2020-12-08) |
