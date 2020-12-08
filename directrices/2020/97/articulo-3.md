@@ -1,0 +1,1 @@
+Artículo 3º—Se insta, en pleno respeto de la autonomía de poderes, a la Asamblea Legislativa, para construir en conjunto, la ruta que permita atender los objetivos de la Política Pública de la Economía Social Solidaria.
