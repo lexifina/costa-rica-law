@@ -1,10 +1,11 @@
 CAPÍTULO V
 De las servidumbres
-Artículo 85.—Servidumbres. Cuando se levanten planos de agrimensura contemplando servidumbres, se seguirán las siguientes reglas:
-a. En los planos de inmuebles que accedan mediante servidumbre de paso, ésta se indicará gráficamente, no necesariamente a escala, hasta su intersección con la vía pública, todo concordante con los artículos 375 y 398 del Código Civil; queda a salvo lo dispuesto en la Ley de Planificación Urbana para fraccionamientos posteriores. También se debe indicar literalmente el o los predios sirvientes.
-(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 34763 del 16 de setiembre de 2008)
-b. En los planos de inmuebles que soporten servidumbres de paso debidamente inscritas y materializadas en el terreno, el agrimensor deberá indicar literalmente la identificación del fundo dominante, así como la ubicación en dichas servidumbres en aquellos lugares en que crucen los linderos.
-c. En los planos a catastrar para derechos indivisos que no tengan acceso directo a vía pública, se confeccionará el plano de agrimensura de conformidad con el artículo 400 del Código Civil y el plan regulador respectivo.
-d. Los planos a catastrar que acceden por servidumbres de paso concordantes con lo estipulado en el Reglamento de Fraccionamiento y Urbanizaciones deberán contar de previo con el visado Municipal. Además el Agrimensor deberá indicar la identificación del o los inmuebles sirvientes.
-Cuando el inmueble esté ubicado en zona catastrada, la servidumbre debe estar debidamente georeferenciada. Cuando en el plano a catastrar el acceso se dé por Servidumbre Agrícola, Ecológica u otra especial, se regirá de conformidad con lo establecido por leyes especiales y el Reglamento para el Control Nacional de Fraccionamientos.
-(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 34763 del 16 de setiembre de 2008)
+Artículo 85. Acceso excepcional para uso residencial y Servidumbres. Cuando se levanten planos de agrimensura contemplando accesos excepcionales para uso residencial, se seguirán las siguientes reglas:
+a. Los accesos excepcionales para uso residencial se permiten únicamente dentro de los cuadrantes urbanos y en las áreas de expansión de los cuadrantes urbanos.
+b. Este acceso constará dentro de los polígonos de los lotes resultantes.
+c. En los planos de inmuebles que accedan mediante acceso excepcional para uso residencial, éste se indicará gráfica y debidamente georreferenciado hasta su intersección con la vía pública.
+d. El profesional de la agrimensura deberá indicar las notas correspondientes a la extensión, ancho y referencias del acceso excepcional para uso residencial.
+e. Deberán contener el visado del Instituto Nacional de Vivienda y Urbanismo y la Municipalidad respectiva.
+En los planos de inmuebles que soporten servidumbres de paso y accesos excepcionales constituidos en los asientos registrales y materializados en el terreno, el agrimensor deberá indicar literalmente la identificación del fundo dominante y sirviente, así como la ubicación en dichas servidumbres en aquellos lugares en que crucen los linderos. Estos puntos de intersección deberán estar igualmente georreferenciados.
+Cuando en el plano a catastrar el acceso se dé por Servidumbre Agrícola o Ecológica y Forestal, se regirá de conformidad con lo establecido por el Código Civil, la Ley Forestal y el Reglamento de Fraccionamientos y Urbanizaciones, según corresponda.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 42793 del 8 de diciembre del 2020)

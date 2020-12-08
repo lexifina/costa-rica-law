@@ -17,3 +17,4 @@ Reglamento a la Ley de Catastro Nacional
 | 2 | 2008-09-27 | Decreto Ejecutivo 34429 (2008-03-25) |
 | 3 | 2008-09-27 | Decreto Ejecutivo 34600 (2008-06-25) |
 | 4 | 2008-09-27 | Decreto Ejecutivo 34763 (2008-09-16) |
+| 5 | 2020-12-08 | Decreto Ejecutivo 42793 (2020-12-08) |
