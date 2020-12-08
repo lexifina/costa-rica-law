@@ -1,1 +1,0 @@
-Artículo 49.—Los funcionarios que disfruten de actividades de formación deberán enviar a la CIF y a la Unidad de Recursos Humanos, antes del inicio de cada actividad o ciclo lectivo, un calendario certificado del centro donde cursan estudios.

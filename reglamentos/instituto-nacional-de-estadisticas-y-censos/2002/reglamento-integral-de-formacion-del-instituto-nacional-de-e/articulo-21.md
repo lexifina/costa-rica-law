@@ -1,1 +1,0 @@
-Artículo 21.—Los eventos de capacitación en sus modalidades de aprovechamiento y participación, que sean organizados e impartidos por entidades externas, sean éstas instituciones públicas u organismos privados nacionales e internacionales, podrán ser reconocidos para fines de reclutamiento, selección de personal, carrera administrativa e incentivos.

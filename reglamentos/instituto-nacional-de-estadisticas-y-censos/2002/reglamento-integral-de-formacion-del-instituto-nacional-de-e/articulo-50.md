@@ -1,1 +1,0 @@
-Artículo 50.—Los funcionarios que disfruten de permiso para actividades de formación o capacitación, deberán reincorporarse a la dependencia, durante los períodos que corresponden a vacaciones o a otras interrupciones, fortuitas o no, dentro del programa de estudio que siguen, situación que estará claramente descrita en el contrato de estudios respectivo.

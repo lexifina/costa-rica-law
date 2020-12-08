@@ -1,1 +1,0 @@
-Artículo 30.—El INEC podrá contratar instructores o actividades completas de capacitación externas. En tal caso, se seguirán los trámites y procedimientos ordinarios de contratación y se coordinará estrechamente con la Unidad de Proveeduría, que brindará el asesoramiento y la asistencia necesaria.
