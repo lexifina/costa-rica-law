@@ -14,3 +14,4 @@ Reglamento interno de contratación administrativa
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-06-14 | la propia norma |
+| 2 | 2020-12-08 | Reglamento 6419 (2020-12-08) |
