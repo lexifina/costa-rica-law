@@ -14,3 +14,4 @@ Modifica ley N° 8683 "Impuesto Solidario para el Fortalecimiento de Programas d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-01-01 | la propia norma |
+| 2 | 2020-12-08 | Decreto Ejecutivo 42764 (2020-12-08) |

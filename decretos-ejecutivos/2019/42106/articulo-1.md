@@ -20,3 +20,4 @@ ACTUALIZACIÓN DEL IMPUESTO SOLIDARIO
 PARA EL FORTALECIMIENTO DE PROGRAMAS
 DE VIVIENDA, PERIODO 2020.
 Artículo 1º—Actualización del valor establecido en el inciso a) del artículo 6 de la Ley número 8683 del 19 de noviembre de 2008. Para el período fiscal 2020 se actualiza el valor fiscal establecido en los artículos 6 inciso a) de la Ley número 8683 denominada “Ley del Impuesto Solidario para el Fortalecimiento de Programas de Vivienda” de 19 de noviembre de 2008 y 1 del Decreto Ejecutivo número 41478-H del 10 de diciembre de 2018, a la suma de ciento treinta y tres millones de colones (¢133.000.000,00).
+(Así modificado el valor antes mencionado para el período fiscal 2021 por el artículo 1° del decreto ejecutivo N° 42764 del 8 de diciembre del 2020)
