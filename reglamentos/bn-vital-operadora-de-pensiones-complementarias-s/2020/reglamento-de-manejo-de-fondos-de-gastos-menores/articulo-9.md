@@ -1,0 +1,1 @@
+Artículo 9º—Recargas de caja chica. Las recargas a las Tarjetas Prepago Convenio Caja Chica que se requieran para realizar compras de bienes y servicios por medio del fondo de operación, deberán ser tramitados según el RC-P03, Manejo y control de gastos menores (caja chica).
