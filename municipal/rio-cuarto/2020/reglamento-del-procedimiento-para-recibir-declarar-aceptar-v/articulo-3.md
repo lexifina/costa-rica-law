@@ -1,0 +1,1 @@
+Artículo 3º—Entiéndase para los efectos del presente reglamento -de conformidad con la Ley General de Caminos Públicos- como Vías de la Red Vial Cantonal aquellos caminos vecinales, calles locales y caminos no clasificados del cantón de Río Cuarto.

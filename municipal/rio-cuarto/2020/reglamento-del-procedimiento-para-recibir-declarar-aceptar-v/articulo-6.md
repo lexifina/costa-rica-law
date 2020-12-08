@@ -1,0 +1,1 @@
+Artículo 6º—El ancho mínimo del terreno para ser destinado a Vía Pública de la Red Vial Cantonal debe ser de 14 metros, según el artículo 4° de La Ley General de Caminos, Ley N° 5060, y sus reformas. El terreno para ser destinado a Vía Pública de la Red Vial Cantonal deberá estar individualizado mediante cerca a ambos lados.

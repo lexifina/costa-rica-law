@@ -1,0 +1,1 @@
+Artículo 18.—En caso de requerirse ampliar el ancho del derecho de la vía pública para establecerlo conforme a derecho, deben los dueños y poseedores de bienes inmuebles colindantes a ambos lados de la vía, realizar las donaciones de las franjas de terreno con sus respectivos planos correspondientes.

@@ -1,0 +1,2 @@
+Artículo 24.—La Alcaldía Municipal de Río Cuarto, trasladará la solicitud a la Unidad Técnica de Gestión Vial Municipal, y esta a su vez analizará el cumplimiento de los requisitos establecidos en el artículo anterior y confeccionará el Expediente Administrativo de la gestión.
+Cuando lo considere pertinente, la Unidad Técnica de Gestión Vial Municipal remitirá a la Asesoría Legal la solicitud presentada para su valoración legal.

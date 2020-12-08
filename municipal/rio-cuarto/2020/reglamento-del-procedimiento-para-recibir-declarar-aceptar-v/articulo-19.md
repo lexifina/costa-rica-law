@@ -1,0 +1,1 @@
+Artículo 19.—Una vez aceptadas las donaciones de terrenos para constituir una vía como de uso público, ya sean nuevas o para su ampliación. El Concejo Municipal, autorizará por acuerdo a la persona titular de la Alcaldía para firmar la correspondiente escritura de donación.

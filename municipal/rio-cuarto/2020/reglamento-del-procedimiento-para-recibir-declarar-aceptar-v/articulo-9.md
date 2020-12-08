@@ -1,0 +1,2 @@
+Artículo 9º—Cuando existan motivos de razonabilidad y conveniencia, considerando el criterio de oportunidad para el interés público, la Unidad Técnica de Gestión Vial en colaboración con la Alcaldía y la Asesoría Legal se podrá solicitar de manera fundamentada al Concejo Municipal el eximir del cumplimiento de los requisitos establecidos por el artículo 8 del presente Reglamento.
+El Concejo Municipal autorizará o rechazará la solicitud mediante acuerdo fundamentado.
