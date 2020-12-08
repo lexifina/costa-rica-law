@@ -1,0 +1,2 @@
+De las infracciones y sanciones
+Artículo 12.—La fuerza pública, la policía municipal y los vigilantes o guardas municipales, podrá realizar los partes e informes correspondientes sobre los comportamientos impropios de los visitantes. También podrán expulsar a las personas que con sus actos u omisiones, violenten el orden público, no estén guardando la debida conducta o violen con su comportamiento, las disposiciones de este Reglamento.
