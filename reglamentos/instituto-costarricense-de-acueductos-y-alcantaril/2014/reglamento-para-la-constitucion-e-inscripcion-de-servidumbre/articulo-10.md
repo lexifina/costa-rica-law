@@ -1,2 +1,0 @@
-Artículo 10.—Será responsabilidad de la oficina de Notariado informar sobre la inscripción de la servidumbre a las oficinas regionales y técnicas que corresponda, a fin de que se continúe con los trámites institucionales que tengan como fin último el otorgar servicios del AyA a través de propiedad privada.
-El Presente Reglamento rige a partir del día siguiente de su publicación en el Diario Oficial La Gaceta. Comuníquese. Publíquese. Acuerdo firme.
