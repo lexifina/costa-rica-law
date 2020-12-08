@@ -1,0 +1,4 @@
+Artículo 3º—Son objetivos medulares al implementarse esta Política:
+1) Fortalecer y modernizar la institucionalidad que brinda servicios al parque empresarial de base asociativa, de manera que las empresas reciban más y mejores servicios, y de una manera oportuna.
+2) Gestionar el conocimiento en torno a la economía social solidaria, para nutrir estas empresas con las labores de educación en todos los niveles y modalidades educativas, y apoyarles con actividades de investigación y extensión universitaria, asimismo, busca la generación, análisis, sistematización y comunicación de data sobre las empresas del sector para apuntalar las estrategias dirigidas a su fortalecimiento.
+3) Actualizar el marco legal de las distintas figuras jurídicas y también impulsar leyes que brinden reconocimiento y seguridad jurídica al sector en su conjunto.

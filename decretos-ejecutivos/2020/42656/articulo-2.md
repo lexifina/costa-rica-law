@@ -1,0 +1,1 @@
+Artículo 2º—Se designa al Ministerio de Trabajo y Seguridad Social, a través de su jerarca, y al Viceministerio de la Economía Social Solidaria, o a quienes estos nombren en su defecto, a cargo de la dirección y responsables de la implementación de la política pública de la Economía Social Solidaria.

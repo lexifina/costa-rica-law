@@ -1,0 +1,1 @@
+Artículo 4º—Es obligación de las instituciones involucradas implementar el plan de acción que sirva de guía, para conseguir los objetivos planteados dentro de la Política Nacional de Economía Social Solidaria. El seguimiento de dicho plan debe realizarse en conjunto entre los directores y responsables de la Política y el Ministerio de Planificación Nacional y Política Económica.
