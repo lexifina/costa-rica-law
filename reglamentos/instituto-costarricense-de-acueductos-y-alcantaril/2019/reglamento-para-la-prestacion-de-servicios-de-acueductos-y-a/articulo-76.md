@@ -1,3 +1,0 @@
-Artículo 76.- Solicitud del cobro por unidades habitacionales. Cuando en una conexión medida o fija, autorizada previamente para abastecer a varias unidades habitacionales en tarifa domiciliar, a solicitud de parte, la facturación se realizará por medio de la modalidad de cobro por unidades habitacionales. La aplicación de esta modalidad se hará a partir de la verificación por parte de AyA.
-En caso de identificarse el incremento no autorizado en la cantidad de unidades habitacionales, se modificará esta modalidad de facturación a una unidad de cobro, previo cumplimiento del debido proceso.
-El usuario podrá optar por el trámite de individualización o independización de los servicios, según corresponda.

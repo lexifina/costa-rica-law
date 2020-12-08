@@ -1,3 +1,0 @@
-Artículo 45.- De las obligaciones de AyA para la ejecución de las interconexiones de obras primarias y proyectos de desarrollo urbanísticos.
-AyA deberá programar y comunicar las suspensiones de servicio requeridas para la ejecución de las obras de interconexión acatando las disposiciones emitidas y vigentes por parte de la ARESEP, lo cual resulta extensivo y de acatamiento obligatorio para el desarrollador.
-Es obligación de los funcionarios de AyA comunicar al desarrollador, con al menos 8 días naturales de anticipación, la fecha y plazo de suspensión para la ejecución de las interconexiones de obras primarias y proyectos de desarrollo urbanístico.

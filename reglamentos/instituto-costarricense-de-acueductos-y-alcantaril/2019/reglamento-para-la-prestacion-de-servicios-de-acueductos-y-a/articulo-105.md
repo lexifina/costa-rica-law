@@ -1,1 +1,0 @@
-Artículo 105.- Derogatorias. El presente reglamento deroga totalmente al Reglamento para la Prestación de los Servicios del Instituto Costarricense de Acueductos y Alcantarillados, publicado en La Gaceta N°184, Alcance No. 181 del 05 de octubre del 2018; así como cualquier otro acuerdo, criterio legal o directriz de AyA, que se le oponga.

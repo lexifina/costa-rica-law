@@ -1,4 +1,0 @@
-Artículo 66.- De la solicitud de traslado de acometida y variación del diámetro. El usuario podrá solicitar en las Plataformas de Servicio, con la debida justificación y sin que exista variación en el uso del servicio existente, el traslado de la acometida o variación de la capacidad del servicio.
-Para tales efectos deberá cumplir con el trámite de solicitud de un nuevo servicio, aportando los requisitos definidos en el artículo 50 de este reglamento, exceptuando; la constancia de disponibilidad de servicios y permiso municipal de construcción. AyA realizará los estudios correspondientes y determinará la factibilidad técnica del requerimiento, cuyo resultado será debidamente notificado al solicitante.
-En el caso de variación del diámetro, el solicitante deberá presentar una memoria de cálculo que justifique su solicitud.
-Cumplida la presentación de la totalidad de requisitos; el AyA contará con un plazo de 15 días hábiles para resolver la solicitud.

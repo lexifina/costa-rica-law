@@ -1,4 +1,0 @@
-SECCIÓN CUARTA
-De las interconexiones de obras primarias y proyectos de desarrollo
-urbanísticos
-Artículo 42.- De la aprobación, interconexión y recepción de proyectos de desarrollos urbanísticos y de la aprobación de los nuevos servicios. En aquellos casos donde se requiera la interconexión de obras primarias o de infraestructura de un proyecto a los sistemas de distribución y saneamiento operados por AyA, deberán estar construidas en su totalidad las obras conforme a los requerimientos técnicos desglosados en la Constancia de Capacidad Hídrica y/o Recolección y tratamiento y los planos constructivos aprobados. AyA realizará una inspección con el objeto de constatar que las obras fueron realizadas de acuerdo con la normativa vigente. El resultado de la inspección determinará la procedencia de la autorización de la interconexión y la recepción final de obra.
