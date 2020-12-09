@@ -20,3 +20,4 @@ Procedimiento ECA-MP-P08 Manual de procedimientos de evaluación y acreditación
 | 5 | 2016-12-15 | Acuerdo 12 (2016-12-15) |
 | 6 | 2018-02-16 | Acuerdo 2 (2018-02-16) |
 | 7 | 2020-06-25 | Acuerdo 8 (2020-06-25) |
+| 8 | 2020-12-09 | Acuerdo 13 (2020-12-09) |
