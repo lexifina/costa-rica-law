@@ -14,3 +14,4 @@ Tarifas por los diferentes servicios de equivalencia que brinda el ECA
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-05-30 | la propia norma |
+| 2 | 2020-12-09 | Acuerdo 3 (2020-12-09) |
