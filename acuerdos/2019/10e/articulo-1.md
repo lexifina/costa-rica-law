@@ -1,17 +1,18 @@
 ENTE COSTARRICENSE DE ACREDITACIÓN
 AVISO 2019-010
 El Ente Costarricense de Acreditación (ECA), en cumplimiento de la Ley 8279 Ley del Sistema Nacional de la Calidad, da a conocer la modificación de los siguientes documentos: Procedimientos: ECA-MP-P01, generalidades pasa de versión 03 a versión 04. Fecha de entrada en vigencia a partir de la publicación en la gaceta. ECA-MPP02, requisitos para la acreditación pasa de versión 06 a versión 07. Fecha de entrada en vigencia a partir de la publicación en La Gaceta. ECA-MP-P03, visita preliminar, pasa de versión 02 a versión 03, para este documento se brindará un transitorio de 1 mes posterior a su publicación en el Diario Oficial La Gaceta. ECA-MP-P04, solicitud de acreditación y análisis de recursos pasa versión 04 a versión 05 para este documento se brindará un transitorio de 1 mes posterior a su publicación en el Diario Oficial La Gaceta. ECA-MP-P05, admisibilidad de la solicitud, pasa de versión 03 a versión 04, Fecha de entrada en vigencia a partir de la publicación en La Gaceta. ECA-MP-P06, evaluación pasa de versión 02 a versión 03 para este documento se brindará un transitorio 3 meses posteriores a su publicación en el Diario Oficial La Gaceta. ECA-MP-P07, actividades posteriores a la evaluación pasa de versión 05 a versión 06 a este documento se brindará un transitorio 3 meses posteriores a su publicación en el Diario Oficial La Gaceta. ECA-MP-P08, toma de decisión pasa de versión 06 a versión 07. Fecha de entrada en vigencia a partir de la publicación en La Gaceta. ECA-MP-P09, emisión del certificado de acreditación pasa de versión 04 a versión 05. Fecha de entrada en vigencia a partir de la publicación en La Gaceta. ECA-MPP10, seguimiento y reevaluación pasa de versión 05 a versión 06 a este documento se brindará 1 mes posterior a su publicación en el diario oficial La Gaceta. ECA-MP-P11, criterios para OEC multisitios y con sedes temporales pasa de versión 02 a aversión 03. Fecha de entrada en vigencia a partir de la publicación en La Gaceta. Los documentos descritos anteriormente se encuentran a disposición de los interesados en la página electrónica http://www.eca.or.cr/docs.php; así mismo puede solicitar el envío de manera electrónica o solicitar gratuitamente una copia no contralada en la Gestoría de Calidad en las oficinas centrales del ECA ubicadas en San José, Barrio Don Bosco, Avenida 02 y Calle 32, contiguo a la Embajada de España, en horario de lunes a viernes de 8 h a 16 h. única vez.
-San José, 10 de octubre del 2019.—
+San José, 10 de octubre del 2019.-
 (Nota de Sinalevi: El presente procedimeinto se extrajo del sitio web del Ente Costarricense de Acreditación, por lo que se transcribe a continuación:)
+(Nota de Sinalevi: El presente procedimiento fue reformado parcialmente y reproducido de forma íntegra mediante publicación en La Gaceta N° 293 del 15 de diciembre del 2020, donde se actualiza la versión 04 y se publica la 05, y se transcribe a continuación:)
 [imagen]
 TABLA DE CONTENIDO
 1 ADMISIBILIDAD DE LA SOLICITUD ......................................................................................... 1
 2 IDENTIFICACIÓN DE CAMBIOS .............................................................................................. 3
-3 TRANSITORIO ........................................................................................................................ 34
+3 TRANSITORIO .......................................................................................................................... 3
 1 ADMISIBILIDAD DE LA SOLICITUD
 1.1 La admisibilidad es el resultado del análisis de la solicitud entregada por el OEC por parte de la Secretaría de Acreditación con la propuesta de Equipo Evaluador.
 1.2 Después de llevar a cabo el análisis de recursos, la Secretaría de Acreditación informa a cada miembro del equipo su participación por medio del ECA-MP-P05-F02 Aceptación o rechazo de participación en evaluaciones por parte del Equipo Evaluador; además, informa el tiempo estimado para la ejecución de la evaluación in situ (para las evaluaciones iniciales y ampliaciones, la evaluación in situ no debe ejecutarse en un plazo mayor a 4 meses después de notificado el equipo Evaluador).
-Nota: Para las solicitudes de ampliación, si el equipo evaluador designado es el mismo del proceso de seguimiento o reevaluación, la Secretaría de Acreditación no debe enviar el ECAMP-P05-F02, solamente una notificación al equipo evaluador donde se le comunique sobre el proceso de ampliación.
+Nota: Para las solicitudes de ampliación, si el equipo evaluador designado es el mismo del proceso de seguimiento o reevaluación, la Secretaría de Acreditación no debe enviar el ECA-MP-P05-F02, solamente una notificación al equipo evaluador donde se le comunique sobre el proceso de ampliación.
 1.3 Los miembros del equipo deben informar en un plazo máximo de 5 días hábiles, a la Secretaría de Acreditación respectiva su disponibilidad y confirmación. En caso de que algún miembro del Equipo Evaluador propuesto rechace la participación o declare un potencial conflicto, o no se obtuvo respuesta del miembro del equipo, la Secretaría de Acreditación procede al nombramiento de otra persona para que conforme el equipo.
 1.4 En casos de potenciales de conflictos de interés, la Secretaría de Acreditación respectiva debe analizar la información brindada por el integrante del equipo evaluador, para determinar si debe ser sustituido o si es necesario realizar un estudio que incorpore las posibles formas de mitigar el potencial conflicto. En caso de ser requerido la Secretaría podría enviar el caso a la Comisión de Acreditación para su análisis y debe dejar evidencia del análisis en el expediente del OEC.
 1.5 La Secretaría de Acreditación envía al OEC el ECA-MP-P05-F01 Admisibilidad de la solicitud.
@@ -33,13 +34,11 @@ j. La existencia de circunstancias que den lugar a dudas justificadas respecto a
 1.9 En caso de que el OEC no informe su aceptación o rechazo dentro del período establecido, 5 días hábiles, la Secretaría de Acreditación da por aceptado el equipo propuesto y se continúa con el proceso.
 1.10 La Secretaría de Acreditación analiza las pruebas presentadas por el OEC y si la objeción procede de acuerdo a los criterios de conflicto de interés indicados en este procedimiento, se debe designar un nuevo Equipo Evaluador o miembro del Equipo Evaluador en un plazo de 10 días hábiles y se procede de acuerdo al punto 1.3.
 1.11 Si la objeción NO procede, la Secretaría de Acreditación lo informa por escrito, en un plazo de 2 días hábiles al OEC.
-1.12 Cuando se cuente con la aceptación de todo el Equipo Evaluador propuesto, la Secretaría de Acreditación le comunica a la Unidad de Logística para que inicie con la definición de las fechas de la evaluación in situ.
-1.13 Posterior a esta comunicación, si se presenta un cambio en algún integrante del equipo evaluador o la totalidad de este; la Unidad de Logística es la responsable de gestionar la modificación de la conformación del equipo evaluador y continuar con el proceso.
+1.12 Cuando se cuente con la aceptación de todo el Equipo Evaluador propuesto, la Secretaría de Acreditación le traslada el proceso a la Unidad de Logística.
+1.13 La Unidad de Logística es la responsable de gestionar modificaciones en la conformación del equipo evaluador si se presentan cambios en éste, después del traslado del expediente por parte de la Secretaría de Acreditación.
 Nota: En caso de requerirlo la Unidad de Logística puede solicitar el apoyo de la Secretaría de Acreditación respectiva.
-2 IDENTIFICACIÓN DE CAMBIOS
-Motivo: Modificación del procedimiento ECA-MP-P05
-Refiérase a la solicitud de elaboración o modificación del documento 2019-138.
-Observaciones:
-Se subrayan cambios en el procedimiento en los ítems: 1.1, 1.2, 1.3, 1.4, 1.6, 1.8 (b) (f) (i) y (j), 1.9, 1.12 y 1.13
-3 TRANSITORIO
+2 TRANSITORIO
 No aplica.
+3 IDENTIFICACIÓN DE CAMBIOS Motivo: | Modificación del procedimiento ECA-MP-P05
+Refiérase a la solicitud de elaboración o modificación del documento 2020-XX.
+Observaciones: Se subrayan cambios en el procedimiento incisos 1.12 y 1.13
