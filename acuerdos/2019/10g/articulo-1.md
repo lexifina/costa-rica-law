@@ -1,17 +1,16 @@
 ENTE COSTARRICENSE DE ACREDITACIÓN
 AVISO 2019-010
 El Ente Costarricense de Acreditación (ECA), en cumplimiento de la Ley 8279 Ley del Sistema Nacional de la Calidad, da a conocer la modificación de los siguientes documentos: Procedimientos: ECA-MP-P01, generalidades pasa de versión 03 a versión 04. Fecha de entrada en vigencia a partir de la publicación en la gaceta. ECA-MPP02, requisitos para la acreditación pasa de versión 06 a versión 07. Fecha de entrada en vigencia a partir de la publicación en La Gaceta. ECA-MP-P03, visita preliminar, pasa de versión 02 a versión 03, para este documento se brindará un transitorio de 1 mes posterior a su publicación en el Diario Oficial La Gaceta. ECA-MP-P04, solicitud de acreditación y análisis de recursos pasa versión 04 a versión 05 para este documento se brindará un transitorio de 1 mes posterior a su publicación en el Diario Oficial La Gaceta. ECA-MP-P05, admisibilidad de la solicitud, pasa de versión 03 a versión 04, Fecha de entrada en vigencia a partir de la publicación en La Gaceta. ECA-MP-P06, evaluación pasa de versión 02 a versión 03 para este documento se brindará un transitorio 3 meses posteriores a su publicación en el Diario Oficial La Gaceta. ECA-MP-P07, actividades posteriores a la evaluación pasa de versión 05 a versión 06 a este documento se brindará un transitorio 3 meses posteriores a su publicación en el Diario Oficial La Gaceta. ECA-MP-P08, toma de decisión pasa de versión 06 a versión 07. Fecha de entrada en vigencia a partir de la publicación en La Gaceta. ECA-MP-P09, emisión del certificado de acreditación pasa de versión 04 a versión 05. Fecha de entrada en vigencia a partir de la publicación en La Gaceta. ECA-MPP10, seguimiento y reevaluación pasa de versión 05 a versión 06 a este documento se brindará 1 mes posterior a su publicación en el diario oficial La Gaceta. ECA-MP-P11, criterios para OEC multisitios y con sedes temporales pasa de versión 02 a aversión 03. Fecha de entrada en vigencia a partir de la publicación en La Gaceta. Los documentos descritos anteriormente se encuentran a disposición de los interesados en la página electrónica http://www.eca.or.cr/docs.php; así mismo puede solicitar el envío de manera electrónica o solicitar gratuitamente una copia no contralada en la Gestoría de Calidad en las oficinas centrales del ECA ubicadas en San José, Barrio Don Bosco, Avenida 02 y Calle 32, contiguo a la Embajada de España, en horario de lunes a viernes de 8 h a 16 h. única vez.
-San José, 10 de octubre del 2019.—
+San José, 10 de octubre del 2019.-
 (Nota de Sinalevi: El presente procedimiento se extrajo del sitio web del Ente Costarricense de Acreditación, por lo que se transcribe a continuación:)
+(Nota de Sinalevi: El presente procedimiento fue reformado parcialmente y reproducido su texto de forma íntegra mediante publicación en La Gaceta N° 293 del 15 de diciembre del 2020, donde se actualiza la versión 06 y se publica la versión 07 , y se transcribe a continuación:)
 [imagen]
 TABLA DE CONTENIDO
 1 GENERALIDADES .................................................................................................................... 1
-2 GESTION DE LAS NO CONFORMIDADES POR PARTE DEL OEC PARA SUBSANAR LAS
-NO CONFORMIDADES .................................................................................................................... 1
+2 GESTION DE LAS NO CONFORMIDADES POR PARTE DEL OEC PARA SUBSANAR LAS NO CONFORMIDADES .................................................................................................................... 1
 3 PRESENTACIÓN DEL PLAN DE ACCIONES CORRECTIVAS. ............................................... 3
 4 REVISIÓN DEL INFORME FINAL POR PARTE DE LAS SECRETARÍAS ................................ 4
-5 ACTIVIDADES DE VERIFICACIÓN DE ACCIONES PARA SUBSANAR LAS NO
-CONFORMIDADES. ......................................................................................................................... 5
+5 ACTIVIDADES DE VERIFICACIÓN DE ACCIONES PARA SUBSANAR LAS NO CONFORMIDADES. ......................................................................................................................... 5
 6 IDENTIFICACIÓN DE CAMBIOS .............................................................................................. 9
 7 TRANSITORIO .......................................................................................................................... 9
 1 GENERALIDADES
@@ -24,15 +23,15 @@ d) Actividades de verificación de acciones para subsanar las no conformidades.
 2.1 Todas las no conformidades detectadas durante los procesos de evaluación del ECA, deben ser atendidas por el OEC demostrando la aplicación de su procedimiento interno de gestión de no conformidades, para lo cual debe:
 2.1.1 Realizar el análisis de las no conformidades, para determinar las causas que han motivado las desviaciones.
 2.1.2 Realizar una evaluación de la magnitud, consecuencias y riesgos de las desviaciones en el sistema de gestión del OEC, en la validez y calidad de las actividades acreditadas, así como la afectación a los clientes del OEC, de la siguiente forma:
-a) Para laboratorios de ensayo, laboratorios de calibración y proveedores de ensayos de aptitud: Demostrar que las acciones implementadas responden a la magnitud del problema y sus riesgos. En los casos de no conformidades relacionadas con cualquier aspecto de los trabajos de ensayo o calibración las acciones deben responder a la evaluación de la importancia del trabajo no conforme.
+a) Para laboratorios de ensayo, laboratorios de calibración, productores de materiales de referencia y proveedores de ensayos de aptitud: Demostrar que las acciones implementadas responden a la magnitud del problema y sus riesgos. En los casos de no conformidades relacionadas con cualquier aspecto de los trabajos de ensayo o calibración las acciones deben responder a la evaluación de la importancia del trabajo no conforme.
 b) Para laboratorios clínicos: Demostrar que las acciones implementadas responden al alcance de la no conformidad y consideran el significado clínico.
 c) Para organismos de inspección, certificación de sistemas, certificación de personas, certificación de producto y organismos, validadores/ verificadores de gases de efecto invernadero; demostrar que las acciones implementadas responden a las consecuencias del problema.
 2.1.3 Implementar acciones inmediatas y acciones correctivas, según apliquen, las cuales deben responder al análisis del punto 2.1.2 realizado por el OEC y las causas determinadas según se indica en el apartado 2.1.1
 2.1.4 Las acciones correctivas siempre tienen que dirigirse a resolver las causas de la desviación y no a justificar el hallazgo.
 2.1.5 Las acciones propuestas, pueden ser modificadas durante el periodo de implementación de acciones correctivas, si ocurre una o varias de las siguientes situaciones:
- El OEC detecta que las acciones no son eficaces.
- Producto de la magnitud, consecuencias o riesgos del problema identificados por el OEC.
- Producto del estudio del plan de acciones correctivas realizado por el equipo evaluador.
+• El OEC detecta que las acciones no son eficaces.
+• Producto de la magnitud, consecuencias o riesgos del problema identificados por el OEC.
+• Producto del estudio del plan de acciones correctivas realizado por el equipo evaluador.
 2.1.6 Es responsabilidad del OEC evitar la recurrencia de hallazgos, para lo cual el OEC debe evaluar la eficacia de las acciones correctivas implementadas. La verificación de la evaluación de la eficacia de las acciones implementadas por el OEC se realiza en la siguiente evaluación de seguimiento o reevaluación por parte del ECA.
 2.1.7 El OEC debe mantener registros de todas las actividades realizadas, las cuales serán verificados durante las evaluaciones o verificaciones del ECA.
 2.1.8 La implementación de las acciones se considera adecuada, cuando se cuenta con la evidencia de:
@@ -43,7 +42,10 @@ d. Implementación de las acciones suficientes y apropiadas, con la finalidad de
 2.2 Es obligación del OEC demostrar y presentar evidencia del cierre de todas las no conformidades, y que fueron atendidas cumpliendo todas las condiciones del requisito anterior y en los plazos indicados en el cuadro 1.
 2.3 El OEC debe atender las no conformidades en los siguientes plazos:
 Cuadro 1: Plazos para la atención de no conformidades
-[imagen]
+Tipo de proceso | Plazo (días hábiles)
+Evaluación Inicial – ampliación | Máximo 100
+Evaluación de seguimiento y reevaluaciones | Máximo 65
+Evaluaciones extraordinarias | Máximo 65 o el plazo indicado en casos de nsión
 2.4 El tiempo de implementación de las acciones inicia a partir de la notificación del resultado de la primera revisión del PAC.
 3 REVISIÓN DEL INFORME EN SITIO POR PARTE DE LAS SECRETARÍAS
 3.1 Una vez recibido el informe de evaluación in situ por parte del Evaluador Líder, la Unidad de Logística comunica a la Secretaría respectiva el recibo del mismo.
@@ -60,7 +62,7 @@ f. Modificar el informe de evaluación in situ en lo que se considere pertinente
 4.2 La Secretaría de Acreditación respectiva envía el informe final a la Unidad de Logística para su traslado al OEC.
 5 OPINIÓN DIVERGENTE
 5.1 Se denomina opinión divergente cuando el OEC objeta las no conformidades.
-5.2 Las opiniones divergentes se presentan a un plazo no mayor a 1 día hábil después de recibido el informe final de evaluación, mediante un oficio formal dirigido al Secretaría de Acreditación respectiva y firmado por el representante ante ECA o el representante legal del OEC. El oficio y sus anexos debe contener la información y/o la documentación que el OEC considere necesaria para sustentar las razones por las cuáles la o las no conformidades no proceden.
+5.2 Las opiniones divergentes se presentan a un plazo no mayor a 3 días hábiles después de recibido el informe final de evaluación, mediante un oficio formal dirigido al Secretaría de Acreditación respectiva y firmado por el representante ante ECA o el representante legal del OEC. El oficio y sus anexos debe contener la información y/o la documentación que el OEC considere necesaria para sustentar las razones por las cuáles la o las no conformidades no proceden.
 5.3 La Secretaría de Acreditación respectiva, traslada la opinión divergente, al Equipo Evaluador, para que emitan su criterio, en un plazo de 5 días hábiles.
 5.4 Cuando se recibe el criterio del Equipo Evaluador, la Secretaría de Acreditación, resuelve la opinión divergente, en un plazo de 10 días hábiles. El tiempo para la resolución depende de la naturaleza de la opinión divergente, por lo que este plazo puede extenderse. En caso de dudas se puede solicitar más evidencia al OEC. En los casos donde se presenten opiniones divergentes, relacionadas con no conformidades de una evaluación integrada y que apliquen a dos o más esquemas de acreditación, las Secretarías de Acreditación, previo a la resolución de la opinión divergente, deben intercambiar información y criterios para brindar una respuesta al OEC homologada sobre la resolución de dicha opinión divergente y así evitar divergencia de criterios.
 5.5 La Secretaría de Acreditación informa al OEC y Equipo evaluador la decisión sobre la opinión divergente en los siguientes 2 días hábiles.
@@ -79,8 +81,9 @@ f. Modificar el informe de evaluación in situ en lo que se considere pertinente
 7 ACTIVIDADES DE VERIFICACIÓN DE ACCIONES PARA SUBSANAR LAS NO CONFORMIDADES.
 7.1 El OEC debe implementar las acciones correctivas dentro del plazo establecido e informar a la Unidad de Logística. Vencido el plazo de la implementación de acciones correctivas y en ausencia de una notificación por parte del OEC, la Unidad de Logística informa al OEC el vencimiento del plazo y coordina la verificación de acciones correctivas.
 Nota. Con relación a la gestión de conformidades, tomar en cuenta lo indicado en el requisito 2.1.8 y 6.5 de este procedimiento.
-7.2 Para realizar la verificación de acciones correctivas, se debe confirmar con el Área Financiera-Contable de ECA, que el OEC se encuentra al día con el pago de los servicios de evaluación para continuar con el proceso, caso contrario el proceso de evaluación se suspende. De no efectuarse los pagos en un plazo de 10 días hábiles se procede al archivo definitivo del expediente en procesos iniciales y de ampliación; en el caso de procesos extraordinarios, de seguimiento y reevaluaciones se procede conforme a lo establecido en el ECA-MC-P16 Proceso para el cumplimiento del debido proceso en el Ente Costarricense de Acreditación.
-7.3 La Verificación de Acciones Correctivas (VAC) se realiza de manera presencial, excepto en casos fortuitos o justificados donde se podría realizar de manera remota. Nota. Una verificación de manera remota implica la interacción entre el personal del OEC y el Equipo Evaluador mediante videoconferencia utilizando plataformas tecnológicas adecuadas.
+7.2 Para realizar la verificación de acciones correctivas, la unidad de logística debe confirmar con el Área Financiera-Contable de ECA, que el OEC se encuentra al día con el pago de los servicios de evaluación para continuar con el proceso, caso contrario el proceso de evaluación se suspende. De no efectuarse los pagos en un plazo de 10 días hábiles se procede al archivo definitivo del expediente en procesos iniciales y de ampliación; en el caso de procesos extraordinarios, de seguimiento y reevaluaciones se procede conforme a lo establecido en el ECA-MC-P16 Proceso para el cumplimiento del debido proceso en el Ente Costarricense de Acreditación.
+7.3 La Verificación de Acciones Correctivas (VAC) se realiza de manera presencial, excepto en casos fortuitos o justificados donde se podría realizar de manera remota.
+Nota. Una verificación de manera remota implica la interacción entre el personal del OEC y el Equipo Evaluador mediante videoconferencia utilizando plataformas tecnológicas adecuadas.
 7.4 El plazo máximo para la realización de la VAC, es de 12 días hábiles, después de finalizada la fecha de implementación de acciones correctivas, incluyendo la coordinación con el equipo evaluador y el OEC.
 Nota 1: Los 12 días hábiles máximos para realizar la visita de verificación, se refieren al período para coordinar la visita entre el ECA, el OEC y el Equipo Evaluador; por lo que no debe interpretarse como un plazo adicional para implementación de acciones por parte del OEC.
 Nota 2: La fecha de implementación de acciones correctivas se entiende como el vencimiento del tiempo de implementación de acciones correctivas o notificación por parte del OEC de la finalización de implementación.
@@ -93,8 +96,7 @@ Nota 2: La fecha de implementación de acciones correctivas se entiende como el 
 7.9 En casos excepcionales en que no se pueda contar con la presencia del Evaluador Líder o del experto técnico, en la VAC, se debe proceder de la siguiente manera:
 a. Si el evaluador no está calificado como Evaluador Líder, este ejecuta la VAC con las instrucciones dadas por el Evaluador Líder o por la Secretaría de Acreditación respectiva, si es necesario.
 b. Si el evaluador está calificado como Evaluador Líder, este asume de manera total la responsabilidad del proceso de verificación.
-c. En caso de que el experto técnico no pueda participar de manera presencial o remota en la VAC; en primera instancia el OEC debe remitir a la Unidad de Logística las evidencias de la implementación de las acciones correctivas. El experto técnico debe analizar la documentación, de manera electrónica y remitir al evaluador líder el resultado de su análisis.
-El evaluador líder es el responsable de coordinar el trabajo con el experto técnico de forma previa o vía virtual.
+c. En caso de que el experto técnico no pueda participar de manera presencial o remota en la VAC; en primera instancia el OEC debe remitir a la Unidad de Logística las evidencias de la implementación de las acciones correctivas. El experto técnico debe analizar la documentación, de manera electrónica y remitir al evaluador líder el resultado de su análisis. El evaluador líder es el responsable de coordinar el trabajo con el experto técnico de forma previa o vía virtual.
 d. El OEC cuenta con 5 días hábiles para entregar a la Unidad de Logística la información de manera electrónica, después de que se notifica que el experto técnico no puede estar presentes en la VAC.
 e. Cuando no se pueda contar con la participación de algún integrante del equipo evaluador que participó del proceso de evaluación, el ECA designa un sustituto y le notifica al OEC, quien tendrá 5 días hábiles para aceptar o presentar las objeciones que considere necesarias. La Secretaría de Acreditación respectiva analiza el potencial conflicto de interés de conformidad con lo indicado en el procedimiento ECA-MP-P05 Admisibilidad de la Solicitud.
 7.10 Si el OEC comunica la implementación antes de la fecha límite informada por el ECA y al realizar la verificación de acciones correctivas se determina que no hubo una adecuada implementación, el OEC puede utilizar el plazo restante para continuar con la implementación. Finalizado dicho plazo, La Unidad de Logística debe programar una nueva VAC.
@@ -111,9 +113,7 @@ c. No se consideren las observaciones del equipo evaluador, relacionados con las
 d. Las acciones implementadas no son suficientes y apropiadas, con la finalidad de evitar la recurrencia de la no conformidad.
 e. Si las testificaciones no se realizan en el tiempo establecido de acuerdo al apartado 5.10 de este procedimiento.
 8 TRANSITORIO
-Se brinda un transitorio de 3 meses posteriores a su publicación, publicado en el diario oficial la Gaceta #198 18 de octubre del 2019, es decir entra en vigencia a partir del 2020.02.06
-9 IDENTIFICACIÓN DE CAMBIOS
-Motivo: Modificación del procedimiento ECA-MP-P07
-Refiérase a la solicitud de elaboración o modificación del documento 2019-141
-Observaciones:
-Los cambios y modificaciones del documento se subrayan en el documento.
+NA
+9 IDENTIFICACIÓN DE CAMBIOS Motivo: | Modificación del procedimiento ECA-MP-P07
+Refiérase a la solicitud de elaboración o modificación del documento 2020-197
+Observaciones: Los cambios y modificaciones del documento se subrayan en el documento.
