@@ -16,3 +16,4 @@ Procedimiento ECA-MC-P13-I01 Instructivo de muestreo (versión 08)
 | 1 | 2016-01-08 | la propia norma |
 | 2 | 2017-05-26 | Acuerdo 5 (2017-05-26) |
 | 3 | 2020-04-16 | Acuerdo 4 (2020-04-16) |
+| 4 | 2020-12-09 | Acuerdo 13 (2020-12-09) |
