@@ -1,1 +1,0 @@
-Artículo 4º—Tratándose de tarifas por concepto de tasas, la Municipalidad las cobrará en forma anual y en tractos mensuales sobre saldo vencido. En lo concerniente a precios por los demás servicios, podrán cobrarse mensual, trimestral o anualmente, también por periodo vencido.
