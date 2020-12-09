@@ -1,0 +1,20 @@
+Artículo 3°- Mecánica de participación
+La mecánica de participación consiste en activar a través del App JPS A SU ALCANCE al menos 1 fracción del Sorteo Extraordinario de Navidad 2020 número 4625 a partir del miércoles 09 de diciembre del 2020 a las 4:00 pm y hasta el domingo 13 de diciembre a la 6:00 pm
+ Las personas que activen al menos 1 fracción de los números del 00 al 39 obtendrán 1 participación por cada fracción activada.
+ Las personas que activen al menos 1 fracción de los números del 40 al 79 obtendrán 2 participaciones por cada fracción activada.
+ Las personas que activen al menos 1 fracción de los números del 80 al 99 obtendrán 4 participaciones por cada fracción activada.
+No participan de esta promoción los funcionarios de la Junta de Protección Social, los miembros de Junta Directiva ni los vendedores autorizados de la Junta de Protección Social que se encuentren activos en los sistemas institucionales. (Estado activo, es el estado que indica que un vendedor puede retirar las loterías).
+Las personas, que adquieran sus fracciones del Sorteo Extraordinario de Navidad 2020 número 4625 por medio del canal de distribución (www.jpsenlinea.com) también participarán de esta promoción activando sus fracciones en el App JPS A SU ALCANCE, para lo cual deberán escanear el código datamatrix de cada fracción directamente desde la pantalla de su computadora, o bien, imprimir el comprobante de la compra y escanear cada una de las fracciones, de igual forma, posicionando la cámara en cada uno de los códigos de las fracciones adquiridas.
+Las personas que accedan al canal de distribución (www.jpsenlinea.com), desde un teléfono celular para realizar su compra y a su vez deseen activar sus fracciones en el App JPS A SU ALCANCE, podrán desde otro teléfono celular abrir la app y escanear cada uno de los códigos de sus fracciones adquiridas desde la pantalla del teléfono celular por medio del cual realizó la compra.
+Las personas que adquieran sus fracciones del Sorteo Extraordinario de Navidad 2020 número 4625 por medio del nuevo canal de distribución (www.jpsenlinea.com) deberán realizar sus activaciones en el App JPS A SU ALCANCE a su nombre, es decir, no podrán realizar sus activaciones a nombre de otra persona, por cuanto, en caso de salir favorecidas, al momento de validar las fracciones estas aparecerán a nombre de quien realizó la compra por este medio y el premio correspondiente se cancelará a nombre de la persona que compró las fracciones por ese medio electrónico.
+Requisitos para activación en App JPS A SU ALCANCE:
+Las personas que nunca hayan activado por la App JPS A SU ALCANCE, deberán:
+1. Descargar la aplicación en la tienda PlayStore de Google o Apple Store.
+2. Registrarse y completar una única vez el formulario de inscripción.
+3. Una vez registrados, nada más con su cédula y contraseña podrán ingresar a la parte de activaciones.
+4. Escanear (fracción por fracción) la lotería que desean activar del Sorteo Extraordinario de Navidad 2020 número 4625. Para el escaneo correcto de cada una de las fracciones deben posicionar la cámara en el código datamatrix que se ubica en el centro de la fracción.
+Las personas que ya tienen una cuenta en la aplicación JPS A Su Alcance deberán ingresar con su cédula y contraseña y acceder a la sección de promociones y escanear (fracción por fracción) las fracciones que desean activar del Sorteo Extraordinario de Navidad 2020 número 4625.
+Una persona solo podrá realizar la activación de un máximo de 200 fracciones a su nombre (se reitera que cada activación corresponde a 1 fracción). Una fracción solo podrá ser activada una vez durante el período de la activación.
+El participante está en la obligación de registrar información veraz y exacta y es el único responsable de la veracidad y exactitud de los datos que registre para participar.
+Activación para el programa Rueda de La Fortuna y otras promociones:
+Se aclara que la lotería que se active para participar de esta promoción puede ser activada además para participar en el juego Cilindro Millonario del programa Rueda de La Fortuna.

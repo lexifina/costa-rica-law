@@ -1,0 +1,2 @@
+Artículo 4°- Detalle de los premios
+Entre todas las personas mayores de 18 años, sea nacional o extranjero, que activen al menos 1 fracción del Sorteo Extraordinario de Navidad 2020 número 4625, a partir del miércoles 09 de diciembre a las 4:00pm y hasta el domingo 13 de diciembre a la 6:00 pm se otorgarán en total 100 premios de ¢1.000.000,00 (un millón de colones con cero céntimos). Estos premios se otorgarán de acuerdo a la mecánica de sorteo indicada en el artículo 5° del presente procedimiento.
