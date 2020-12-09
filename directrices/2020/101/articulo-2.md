@@ -1,0 +1,1 @@
+Artículo 2°.-Con respeto a su autonomía o independencia funcional, se invita al Poder Legislativo, al Poder Judicial, el Tribunal Supremo de Elecciones, municipalidades, universidades estatales, así como cualquier otra instancia estatal descentralizada a observar la presente Directriz, con el objetivo de resguardar la salud y la vida de las personas funcionarias públicas.
