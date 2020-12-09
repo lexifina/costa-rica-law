@@ -10,18 +10,18 @@ ECA-MP-P06 Evaluación | N.A | 01 | A partir de su publicación en el Diario Ofi
 Todos los documentos descritos se encuentran a disposición de los interesados en nuestra página electrónica www.eca.or.cr/ http://www.eca.or.cr/docs.php; así mismo puede solicitar el envío de manera electrónica o solicitar gratuitamente una copia no contralada en la Gestoría de Calidad y en las oficinas centrales del ECA ubicadas en Rohrmoser 150 metros al este del Centro Comercial Plaza Mayor, contiguo a Prisma Dental, de lunes a viernes de las 8 a las 16 horas.
 San José, 30 de junio del 2014.
 (Nota de Sinalevi: El presente procedimiento se extrajo del sitio web del Ente Costarricense de Acreditación, y se transcribe a continuación:), y se transcribe a continuación:)
-(Nota de Sinalevi: El presente procedimiento fue reformado parcialmente y reproducido su texto de forma íntegra mediante publicación en La gaceta N° 186 del 29 de julio del 2020, donde se actualiza la versión 03 existente y se publica la 04 que se transcribe a continuación:)
+(Nota de Sinalevi: El presente procedimiento fue reformado parcialmente y reproducido su texto de forma íntegra mediante publicación en La Gaceta N° 293 del 15 de diciembre del 2020, donde se actualiza la versión 04 y se publica la versión 05, y se transcribe a continuación:)
 [imagen]
 TABLA DE CONTENIDO
 1 GENERALIDADES .................................................................................................................... 1
 2 EVALUACIÓN DOCUMENTAL ................................................................................................. 2
 3 PREPARACIÓN PARA LA EVALUACIÓN IN SITU ................................................................... 5
-4 EVALUACIÓN IN SITU ............................................................................................................. 7
-5 PROCESOS DE EVALUACIÓN IN SITU PARA OC Y OV/V. .................................................... 8
-6 EVALUACIÓN REMOTA………………………………………………………………………………...9
-7 OPINIÓN DIVERGENTE ......................................................................................................... 11
-8 IDENTIFICACIÓN DE CAMBIOS ............................................................................................ 11
-9 TRANSITORIO ........................................................................................................................ 11
+4 EVALUACIÓN IN SITU ............................................................................................................. 6
+5 PROCESOS DE EVALUACIÓN IN SITU PARA ORGANISMOS DE CERTIFICACIÓN Y ORGANISMOS VALIDADORES VERIFICADORES (OC Y OVV). .................................................... 8
+6 EVALUACIÓN REMOTA ........................................................................................................... 8
+7 OPINIÓN DIVERGENTE PARA NO CONFORMIDADES DOCUMENTALES EN LOS CASOS QUE NO PROCEDA LA EVALUACIÓN IN SITU O REMOTA ......................................................... 10
+8 TRANSITORIO ........................................................................................................................ 10
+9 IDENTIFICACIÓN DE CAMBIOS ............................................................................................ 11
 1 GENERALIDADES
 1.1 El Equipo Evaluador, durante las evaluaciones debe verificar el cumplimiento de los requisitos de la norma de acreditación que aplica, así como los criterios y requisitos establecidos adicionales que se hayan definido en cada esquema o programa de acreditación.
 1.2 Este procedimiento describe los tiempos del proceso; mientras que, la ejecución de la evaluación se establece de forma detallada en el ECA-MC-P13. Para los organismos de certificación y OVV se debe contemplar lo establecido en el ECA-MC-P11

@@ -13,4 +13,4 @@ b) Cuando el proceso de testificación, se lleva a cabo como un subproceso apart
 − Informe de Testificación (cuando el equipo considere necesario)
 − Propuesta de acciones por parte del OEC y verificación por parte del ECA
 − Informe Administrativo
-Nota: Los formularios para la testificación se encuentran en el ECA-MC-P11.
+Nota: Los formularios para la testificación se encuentran en el ECA-MC-P11
