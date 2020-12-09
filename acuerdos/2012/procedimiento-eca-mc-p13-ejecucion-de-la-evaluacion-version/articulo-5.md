@@ -8,11 +8,11 @@ Las notas digitales y la línea de investigación son la evidencia de la realiza
 En el en el ECA-MP-P02-I02 se presenta la documentación por área, donde se indican las notas digitales que deben utilizarse para la evaluación de cada norma.
 5.4 En los casos en que el equipo evaluador realice la evaluación documental previo a la evaluación in situ, es obligación de la Unidad de Logística hacer disponible la documentación del OEC.
 5.5 La Unidad de Logística, debe hacer disponible para el equipo evaluador los siguientes documentos antes de las evaluaciones de seguimiento o reevaluaciones:
-- Informe de evaluación in situ o remota de la evaluación anterior.
-- ECA-MP-P07-F01 propuesta de acciones por parte del OEC y verificación por parte del ECA de la evaluación anterior, cuando aplique.
-- La documentación del OEC, si la evaluación documental se realiza de previo a la evaluación in situ
-- Informes de testificación para las evaluaciones de los organismos de certificación.
-- Las aprobaciones del uso del símbolo de acreditación.
+− Informe de evaluación in situ o remota de la evaluación anterior, según corresponda.
+− ECA-MP-P07-F01 propuesta de acciones por parte del OEC y verificación por parte del ECA de la evaluación anterior, cuando aplique.
+− La documentación del OEC, si la evaluación documental se realiza de previo a la evaluación in situ
+− Informes de testificación para las evaluaciones de los organismos de certificación, cuando aplique.
+− Las aprobaciones del uso del símbolo de acreditación, cuando aplique.
 5.6 En caso necesario, el Equipo Evaluador puede solicitar al OEC información adicional a través de la Unidad de Logística, el OEC debe presentarla ante ésta para que la traslade al Equipo Evaluador. Dado que esta información adicional puede resultar en generar cambios sobre el informe documental, el Equipo Evaluador puede esperar a que el OEC complete la información requerida para completar la evaluación documental y el plan de evaluación.
 5.7 El Evaluador Líder es el responsable de presentar a la Unidad de Logística, los siguientes documentos:
 1. ECA-MC-P13-F02 Informe de evaluación documental, si aplica, de acuerdo a lo indicado en 5.3 de este documento.

@@ -1,10 +1,11 @@
 8 CLASIFICACIÓN DE HALLAZGOS
 8.1 Previo a la reunión de cierre, el equipo evaluador debe clasificar los hallazgos detectados durante el proceso de evaluación en el sitio; de acuerdo a los siguientes criterios:
-Cuadro 1: Criterios para clasificación de Hallazgos.
-Tipo de hallazgo Criterio
-Incumplimiento de los criterios de acreditación que corresponde a todos los documentos normativos contra los cuáles se evalúa la conformidad del sistema de No gestión del OEC: Normas de acreditación u obligatorias dentro del esquema; Conformidad procedimientos, políticas, requisitos o criterios del ECA; contratos y/o reglamentos de la autoridad reguladora; documentos internos o externos del sistema de gestión del OEC.
-· Cualquier situación que, a juicio del equipo evaluador puede dar lugar a una Oportunidad desviación en el futuro. de mejora · Situaciones que, aun cumpliendo con los requisitos de la norma, tengan un evidente potencial de mejora. 8.2 Reunión de cierre 8.2.1 Concluida la evaluación el Evaluador Líder es el responsable de realizar una reunión de cierre con el OEC en la cual presenta la información descrita en el informe de evaluación in situ o remota correspondiente. 8.2.2 Se deben considerar los siguientes aspectos:
-- Agradecer al personal del OEC por permitir el proceso de evaluación.
+Cuadro 1: Criterios para clasificación de Hallazgos. Tipo de hallazgo | Criterio
+No Conformidad | Incumplimiento de los criterios de acreditación que corresponde a todos los documentos normativos contra los cuáles se evalúa la conformidad del sistema de gestión del OEC: Normas de acreditación u obligatorias dentro del esquema; procedimientos, políticas, requisitos o criterios del ECA; contratos y/o reglamentos de la autoridad reguladora; documentos internos o externos del sistema de gestión del OEC.
+Oportunidad de mejora | • Cualquier situación que, a juicio del equipo evaluador puede dar lugar a una desviación en el futuro. • Situaciones que, aun cumpliendo con los requisitos de la norma, tengan un evidente potencial de mejora.
+8.2 Reunión de cierre
+8.2.1 Concluida la evaluación el Evaluador Líder es el responsable de realizar una reunión de cierre con el OEC en la cual presenta la información descrita en el informe de evaluación in situ o remota correspondiente.
+8.2.2 Se deben considerar los siguientes aspectos:
 - Recordar nuevamente que el proceso de evaluación es un muestreo del sistema de calidad del OEC.
 - Todos los participantes y el Equipo Evaluador, deben firmar la Lista de asistencia ECA-MC-P13-F09.
 - Explicar la metodología de presentación y clasificación de hallazgos. El objetivo de la reunión de cierre es brindar la oportunidad al OEC de preguntar sobre las no conformidades detectadas, sus fundamentos; facilitando así la identificación del problema y su alcance y de ser necesario que el OEC pueda completar información y aclarar dudas si existen.
