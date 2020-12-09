@@ -1,31 +1,31 @@
 ENTE COSTARRICENSE DE ACREDITACIÓN
-2020-005.—El Ente Costarricense de Acreditación (ECA), en cumplimiento de la Ley N° 8279 Ley del Sistema Nacional de la Calidad, da a conocer la modificación de los siguientes Procedimientos: ECA-MC-MA-P05 Procedimiento de Reconocimiento de la equivalencia del certificado de acreditación, pasa de versión 06 a versión 07. ECA-MC-MA-P06 Procedimiento de Verificación/Aprobación de declaraciones de cumplimiento, pasa de versión 05 a versión 06. ECA-MC-MA-P08 Instrucciones para los proveedores de equipos de iluminación, refrigeración y aire acondicionado para cumplir con la directriz N° 11-MINAE, pasa de versión 03 a versión 04, ECA-MC-MA-P09 Aval Técnico para la Exoneración de dispositivos de Seguridad Pasiva en cumplimiento de la Ley N° 9078, pasa de versión 02 a versión 03, ECA-MCMA-P20 Aval técnico para la exoneración de bienes conforme al artículo 38 de la Ley de regulación del uso racional de la energía, Ley N° 7447 y sus reformas, pasa de versión 02 a versión 03, ECA-MC-P25 Procedimiento de Alcance Flexible para organismos de certificación de producto, pasa de versión 01 a versión 02, ECA-MP-P01 Manual de procedimientos para la evaluación y acreditación: Generalidades, pasa de versión 04 a versión 05, ECA-MP-P02 Manual de procedimientos para la evaluación y acreditación: Requisitos para la acreditación, pasa de versión 07 a versión 08, ECA-MC-P19 Establecimiento de esquemas de acreditación, pasa dé versión 04 a versión 05 estos documentos no tendrán transitorio en la página electrónica: http://www.eca.or.cr/docs.php; así mismo puede solicitar el envío de manera electrónica o solicitar gratuitamente una copia no contralada en la Gestoría de Calidad en las oficinas centrales del ECA, ubicadas en San José, Barrio Don Bosco, avenida 02 y calle 32, contiguo a la Embajada de España, en horario de lunes a viernes de 8 hrs. a 16 hrs.
+2020-005.-El Ente Costarricense de Acreditación (ECA), en cumplimiento de la Ley N° 8279 Ley del Sistema Nacional de la Calidad, da a conocer la modificación de los siguientes Procedimientos: ECA-MC-MA-P05 Procedimiento de Reconocimiento de la equivalencia del certificado de acreditación, pasa de versión 06 a versión 07. ECA-MC-MA-P06 Procedimiento de Verificación/Aprobación de declaraciones de cumplimiento, pasa de versión 05 a versión 06. ECA-MC-MA-P08 Instrucciones para los proveedores de equipos de iluminación, refrigeración y aire acondicionado para cumplir con la directriz N° 11-MINAE, pasa de versión 03 a versión 04, ECA-MC-MA-P09 Aval Técnico para la Exoneración de dispositivos de Seguridad Pasiva en cumplimiento de la Ley N° 9078, pasa de versión 02 a versión 03, ECA-MCMA-P20 Aval técnico para la exoneración de bienes conforme al artículo 38 de la Ley de regulación del uso racional de la energía, Ley N° 7447 y sus reformas, pasa de versión 02 a versión 03, ECA-MC-P25 Procedimiento de Alcance Flexible para organismos de certificación de producto, pasa de versión 01 a versión 02, ECA-MP-P01 Manual de procedimientos para la evaluación y acreditación: Generalidades, pasa de versión 04 a versión 05, ECA-MP-P02 Manual de procedimientos para la evaluación y acreditación: Requisitos para la acreditación, pasa de versión 07 a versión 08, ECA-MC-P19 Establecimiento de esquemas de acreditación, pasa dé versión 04 a versión 05 estos documentos no tendrán transitorio en la página electrónica: http://www.eca.or.cr/docs.php; así mismo puede solicitar el envío de manera electrónica o solicitar gratuitamente una copia no contralada en la Gestoría de Calidad en las oficinas centrales del ECA, ubicadas en San José, Barrio Don Bosco, avenida 02 y calle 32, contiguo a la Embajada de España, en horario de lunes a viernes de 8 hrs. a 16 hrs.
 San José, 5 de mayo del 2020.
 (Nota de Sinalevi: El presente ECA-MP-P01 Manual de procedimientos para la evaluación y acreditación: Generalidades (Versión 05) fue proporcionado por el Ente Costarricense de Acreditación y se transcribe a continuación:)
+(Nota de Sinalevi: El presente procedimiento fue reformado parcialmente y publicado su texto de forma íntegra mediante publicación en La Gaceta N° 293 del 5 de diciembre del 2020, donde se actualiza la versión 05 existente y se publica la versión 06 que se transcribe a continuación:)
 [imagen]
 TABLA DE CONTENIDO
-1 OBJETIVO ................................................................................................................................1
-2 ALCANCE.................................................................................................................................1
-3 DEFINICIONES.........................................................................................................................1
-4 ABREVIATURAS ......................................................................................................................6
-5 PROCESO GENERAL DE EVALUACIÓN Y ACREDITACIÓN..................................................8
-6 INDICACIONES GENERALES..................................................................................................8
-7 AMPLIACIÓN DEL ALCANCE DE ACREDITACIÓN.................................................................9
-8 REDUCCIÓN DEL ALCANCE DE ACREDITACIÓN O RENUNCIA A LA ACREDITACIÓN......9
-9 SUSPENSIÓN Y CANCELACIÓN DE LA ACREDITACIÓN....................................................10
-10 DERECHOS Y OBLIGACIONES DE LOS OEC ACREDITADOS............................................10
-11 TARIFAS.................................................................................................................................10
-12 CONFIDENCIALIDAD.............................................................................................................11
-13 DIRECTORIO DE OEC ACREDITADOS.................................................................................11
-14 IDENTIFICACIÓN DE CAMBIOS ............................................................................................11
-15 TRANSITORIO........................................................................................................................11
+1 OBJETIVO ................................................................................................................................ 1
+2 ALCANCE ................................................................................................................................. 1
+3 DEFINICIONES ......................................................................................................................... 1
+4 ABREVIATURAS ...................................................................................................................... 7
+5 PROCESO GENERAL DE EVALUACIÓN Y ACREDITACIÓN .................................................. 8
+6 INDICACIONES GENERALES .................................................................................................. 8
+7 AMPLIACIÓN DEL ALCANCE DE ACREDITACIÓN ................................................................. 9
+8 REDUCCIÓN DEL ALCANCE DE ACREDITACIÓN O RENUNCIA A LA ACREDITACIÓN .... 10
+9 SUSPENSIÓN Y CANCELACIÓN DE LA ACREDITACIÓN .................................................... 10
+10 DERECHOS Y OBLIGACIONES DE LOS OEC ACREDITADOS ............................................ 10
+11 TARIFAS ................................................................................................................................. 11
+12 CONFIDENCIALIDAD ............................................................................................................. 11
+13 DIRECTORIO DE OEC ACREDITADOS ................................................................................. 11
+14 IDENTIFICACIÓN DE CAMBIOS ............................................................................................ 11
+15 TRANSITORIO ........................................................................................................................ 11
 1 OBJETIVO
 Este manual de procedimientos establece los lineamientos para realizar el proceso de evaluación y acreditación del Ente Costarricense de Acreditación (ECA) para los Organismos de la Evaluación de la Conformidad (OEC).
 2 ALCANCE
 Aplica a todos los OEC acreditados o en proceso, ubicados en Costa Rica o en otros países interesados y a todo el personal involucrado en el proceso de evaluación y acreditación.
 3 DEFINICIONES
-- Aceptación de un esquema de evaluación de la conformidad: Confirmación por el ECA de la
-idoneidad de los requisitos que se utilizarán para acreditar a los organismos de certificación que participan en el esquema de evaluación de la conformidad y el cumplimiento con los requisitos del punto 4 del presente documento.
+- Aceptación de un esquema de evaluación de la conformidad: Confirmación por el ECA de la idoneidad de los requisitos que se utilizarán para acreditar a los organismos de certificación que participan en el esquema de evaluación de la conformidad y el cumplimiento con los requisitos del punto 4 del presente documento.
 - Acreditación: atestación de tercera parte relativa a un organismo de evaluación de la conformidad que manifiesta la demostración formal de su competencia para llevar a cabo tareas específicas de evaluación de la conformidad.
 - Actividades clave para todo tipo de OEC: Ejecución de las actividades de evaluación de la conformidad o dentro del alcance a acreditar o acreditado. Por Ejemplo Formulación y aprobación de políticas; desarrollo y aprobación de los procesos y procedimientos necesarios para la operación de los sistemas de gestión y esquemas de la evaluación de la conformidad, incluyendo los requisitos para la selección y nombramiento de las personas que realizan la actividad de la evaluación de la conformidad; revisión de las solicitudes y de los acuerdos contractuales asociados con la evaluación, decisión sobre las actividades de evaluación de la conformidad, procesos para la resolución de las apelaciones y quejas.
 - Actividades de Evaluación de la Conformidad: Son las actividades realizadas por un organismo de evaluación de la conformidad al evaluar la conformidad, dentro de las cuales se incluyen: Ensayos (análisis clínicos/médicos); Calibración, Ensayos de Aptitud, Producción de Materiales de Referencia, Inspección, Certificación de Producto, Certificación de Sistemas de Gestión, Certificación de Personas y Validación y Verificación de gases de efecto invernadero.
@@ -48,8 +48,7 @@ idoneidad de los requisitos que se utilizarán para acreditar a los organismos d
 - Comisión de Acreditación: Encargados de acreditar en las áreas de competencia del ECA.
 - Consultoría: participación en cualquiera de las actividades de un organismo de evaluación de la conformidad sujeto a acreditación.
 - Criterios de acreditación: Corresponde a todos los documentos normativos contra los cuáles se evalúa la conformidad del sistema de gestión del OEC: Normas de acreditación u obligatorias dentro del esquema; procedimientos, requisitos o criterios del ECA; contratos y/o reglamentos de la autoridad reguladora; documentos internos o externos del sistema de gestión del OEC.
-- Decisión de la acreditación: decisión sobre otorgar, mantener, ampliar, reducir, suspender y
-retirar la acreditación.
+- Decisión de la acreditación: decisión sobre otorgar, mantener, ampliar, reducir, suspender y retirar la acreditación.
 - Dueño de esquema: El dueño de esquema es una organización identificable que ha establecido un esquema de evaluación de la conformidad y que es responsable por el diseño del esquema de evaluación de la conformidad.
 Ejemplos de dueños de esquemas:
 - Organismos gubernamentales
@@ -72,17 +71,22 @@ Los organismos de acreditación no pueden ser dueños de esquemas.
 - Evaluación remota: evaluación de la ubicación física o sitio virtual de un organismo de evaluación de la conformidad, usando medios electrónicos.
 - Evaluador: persona designada por un organismo de acreditación para ejecutar, sola o como parte de un equipo de evaluación, una evaluación de un organismo de evaluación de la conformidad.
 - Experto técnico: persona designada por un organismo de acreditación, que trabaja bajo la responsabilidad de un evaluador, que proporciona conocimientos específicos o pericia respecto al alcance de la acreditación a evaluar y que no evalúa de manera independiente.
-- Fuerza mayor: Hecho de la naturaleza que no puede preverse o que, previsto, no puede evitarse. Ciertos hechos pueden ser citados como típicos de fuerza mayor, por ejemplo, los fenómenos atmosféricos y naturales.
+- Fuerza mayor: Hecho de la naturaleza que no puede preverse o que, previsto, no puede evitarse.
+Ciertos hechos pueden ser citados como típicos de fuerza mayor, por ejemplo, los fenómenos atmosféricos y naturales.
 - Herramientas tecnológicas e informáticas: dispositivos tecnológicos utilizados para efectuar la transmisión bidireccional de video, audio, documentación, datos y evidencias, todo en tiempo real, por ejemplo: Webex, Webex Training, LifeSize, Skype, entre otros.
 - Imparcialidad: presencia de objetividad.
-- Informe Final de Evaluación: Informe de resultados de la evaluación in situ, revisado por la
-secretaria de acreditación.
+- Informe Final de Evaluación: Informe de resultados de la evaluación in situ, revisado por la secretaria de acreditación.
 - Líder del equipo: evaluador al que se le asigna la responsabilidad general de la gestión de una evaluación.
 - Mantener la acreditación: confirmación de la continuidad de la acreditación para un alcance definido.
 - Organismo de acreditación: organismo con autoridad, que lleva a cabo la acreditación.
 - Otorgar la acreditación: concesión de acreditación para un alcance de acreditación definido.
 - Parte interesada: persona u organización con un interés directo o indirecto en la acreditación
 - Personal del organismo de acreditación: individuos internos o externos que realizan actividades en nombre del organismo de acreditación.
+- Personal clave para todo tipo de OEC: Personal responsable de realizar las siguientes actividades en nombre del organismo de acreditación:
+- La definición de los métodos y de sus especificaciones, diseño de la estrategia de validación, revisión de resultados y decisión técnica final.
+- La definición de los criterios, revisión y toma de decisiones relacionadas con las actividades de evaluación de la conformidad. Definición de los criterios y toma de decisiones relacionadas con actividades de aseguramiento de la validez de los resultados. Responsable técnico de las actividades acreditadas.
+- La formulación y aprobación de políticas; desarrollo y aprobación de los procesos y procedimientos necesarios para la operación de los sistemas de gestión y esquemas de la evaluación de la conformidad, incluyendo los requisitos para la selección y nombramiento de las personas que realizan la actividad de la evaluación de la conformidad; revisión de las solicitudes y de los acuerdos contractuales asociados con la evaluación, procesos para la resolución de las apelaciones y quejas.
+- El personal autorizado para realizar funciones de evaluación de la conformidad que se encuentren dentro del alcance de acreditación.
 - Plan de evaluación: descripción de las actividades y de los detalles acordados de una evaluación.
 - Proceso de acreditación: actividades desde la solicitud hasta el otorgamiento y el mantenimiento de la acreditación según se define en el esquema de acreditación.
 - Programa de evaluación: conjunto de evaluaciones coherente con el esquema de acreditación específico que el organismo de acreditación desempeña sobre un organismo de evaluación de la conformidad específico durante un ciclo de acreditación.
@@ -97,7 +101,7 @@ secretaria de acreditación.
 - Retirar la acreditación: anulación de la acreditación para todo su alcance.
 - Secretaría de acreditación: Encargadas de dar apoyo técnico a la comisión de Acreditación.
 - Seguimiento: Evaluación de una muestra del alcance acreditado o parte de la norma de acreditación, para asegurar que los OEC mantienen su competencia técnica y continúan cumpliendo con los requisitos por los cuales les fue otorgada la acreditación. También conocido como vigilancia. Los seguimientos se realizan de manera anual.
-- Solicitud: Formulario que puede ser utilizado para solicitar acreditación inicial o ampliación del alcance de acreditación. El ECA posee formulario de solicitud para: Laboratorio de Ensayo, Laboratorio de Calibración, Organismo de Inspección, Organismo de Certificación de Producto, Organismo de Certificación de Personas, Organismo de Certificación de Sistemas de Gestión, Organismo Validador/Verificador, Proveedores de ensayo de actitud y Laboratorio Clínico.
+- Solicitud: Formulario que puede ser utilizado para solicitar acreditación inicial o ampliación del alcance de acreditación. El ECA posee formulario de solicitud para: Laboratorio de Ensayo, Laboratorio de Calibración, Organismo de Inspección, Organismo de Certificación de Producto, Organismo de Certificación de Personas, Organismo de Certificación de Sistemas de Gestión, Organismo Validador/Verificador, Proveedores de ensayo de actitud, productores de materiales de referencia y Laboratorio Clínico.
 - Suspender la acreditación: establecimiento de restricciones temporales en todo o parte del alcance de la acreditación.
 - Técnica de evaluación: método usado por un organismo de acreditación para desempeñar una evaluación.
 - Testificación: observación por parte del organismo de acreditación.
@@ -118,29 +122,22 @@ secretaria de acreditación.
 - LC: Laboratorio de Calibración.
 - LE: Laboratorio de Ensayo
 - LM: Laboratorio Clínico
+- PEA Proveedor de ensayos de aptitud
+- PMR Productor de materiales de referencia
 - SAC: Secretaría de Acreditación de Organismo de Certificación
 - SAL: Secretaría de Acreditación de Laboratorios
 - SAI: Secretaría de Acreditación de Organismos de Inspección
 - SAVV: Secretaría de Acreditación de OVV/GEI
-- SACLI: Secretaría de Acreditación de Laboratorios Clínicos
 - LOG: Unidad de Logística
 - GC: Gestoría de calidad.
 - CA: Comisión de acreditación
-- CAI: Comité Asesor de Inspección
-- CAL: Comité Asesor de Laboratorios de ensayo y calibración
-- CACLI: Comité Asesor de laboratorios Clínicos
-- CACI: Comité Asesor de inocuidad alimentaria
-- CAC: Comité Asesor de Certificación
-- CAVV: Comité Asesor de Validadores / verificadores
 5 PROCESO GENERAL DE EVALUACIÓN Y ACREDITACIÓN
 5.1 El proceso general de evaluación y acreditación se realiza en las siguientes etapas:
-− I. Solicitud de acreditación y análisis de recursos, aplica para evaluaciones iniciales y
-ampliaciones.
+− I. Solicitud de acreditación y análisis de recursos, aplica para evaluaciones iniciales y ampliaciones.
 − II. Admisibilidad de la solicitud, aplica para evaluaciones iniciales y ampliaciones.
 − III. Evaluación documental e in situ, aplica para todo tipo de evaluación.
 − IV. Actividades posteriores a la evaluación, aplica para todo tipo de evaluación
-− V. Toma de decisión, aplica para procesos iniciales, ampliaciones, seguimientos,
-reevaluaciones y procesos de investigación.
+− V. Toma de decisión, aplica para procesos iniciales, ampliaciones, seguimientos, reevaluaciones y procesos de investigación.
 6 INDICACIONES GENERALES
 6.1 Los OEC pueden solicitar la acreditación como:
 a. Laboratorio de Ensayo.
@@ -152,10 +149,11 @@ f. Organismo de Certificación de Personas.
 g. Organismo de Inspección.
 h. Organismo de Validación/Verificación.
 i. Proveedores de ensayos de aptitud.
+j. Productores de materiales de referencia
 6.2 La acreditación inicial se otorga desde la fecha en que se toma la decisión por parte de la Comisión de Acreditación, por un período indefinido y está sujeta a las evaluaciones anuales de seguimiento y a las visitas de reevaluación cada 4 años, de acuerdo a los procedimientos de evaluación y acreditación de ECA. Esta acreditación se considera vigente siempre que se demuestre que el OEC cumple con los requisitos de las normas y demás criterios de acreditación establecidos por ECA.
 6.3 Cuando el OEC lo requiera, el ECA emitirá constancias del estado de la acreditación; éstas pueden requerirse para la participación en licitaciones u otras actividades derivadas de procesos de contratación, siempre y cuando se soliciten con al menos 3 días hábiles de anticipación y el OEC se encuentre al día en sus compromisos financieros con el ECA.
 a) En caso de que el OEC tenga deudas por servicios de evaluación y acreditación con el ECA, el proceso de acreditación no podrá iniciar hasta tanto hayan sido canceladas. En cualquier momento del proceso de evaluación y acreditación, si alguno de los servicios de evaluación y acreditación brindados por parte del ECA, no son cancelados por parte del OEC, el ECA tiene la potestad de archivar definitivamente el expediente o suspender la acreditación. Conforme a lo estipulado ECA-MC-MA-P03 Procedimiento de cobro y ECA-MC-P16 Procedimiento para el cumplimiento del debido proceso en el Ente Costarricense de Acreditación. Las notificaciones a los OEC respecto al proceso de evaluación y acreditación se realizarán al correo electrónico proporcionado como medio oficial en el compromiso de acreditación, conforme a lo estipulado en la Ley de Notificaciones Judiciales, (Ley 8687).
-6.4 Cuando el OEC desee suspender el proceso de acreditación o evaluación debe cancelar al ECA los servicios proporcionales hasta la fecha de suspensión o retiro. Conforme a lo estipulado ECA-MC-MA-P03 Procedimiento de cobro.
+6.4 Cuando el OEC desee suspender el proceso de acreditación o evaluación debe cancelar al ECA los servicios proporcionales hasta la fecha de suspensión o retiro. Conforme a lo estipulado ECA- MC-MA-P03 Procedimiento de cobro.
 7 AMPLIACIÓN DEL ALCANCE DE ACREDITACIÓN
 7.1 Los OEC acreditados pueden solicitar la ampliación del alcance de su acreditación, por medio del formulario de solicitud correspondiente.
 7.2 Las evaluaciones de ampliación se pueden llevar a cabo junto con las evaluaciones de seguimiento o reevaluación. El OEC debería presentar la solicitud como mínimo 3 meses antes de la fecha de evaluación de seguimiento o reevaluación, de lo contrario ECA no puede garantizar que los procesos se realicen en conjunto, esto debido a que se deben ejecutar todas las actividades del proceso de admisibilidad de la solicitud y de la etapa de coordinación de la evaluación, que requieren tiempo y que entre otras cosas incluyen: la revisión de la solicitud, el análisis de recursos por parte del Comité Asesor respectivo, coordinar con el equipo evaluador para que se realice la evaluación documental previo a la evaluación, entre otros aspectos.
@@ -186,10 +184,8 @@ Nota 1: El período de vigencia de una ampliación del alcance de acreditación 
 12.1 Toda la información suministrada al ECA es tratada de manera confidencial. Las solicitudes que se presenten se mantienen resguardadas de forma segura y no se divulga el nombre de ningún OEC en proceso de acreditación, excepto los casos contemplados en el procedimiento ECA-MC-P01 Confidencialidad, imparcialidad y objetividad.
 13 DIRECTORIO DE OEC ACREDITADOS
 13.1 El ECA publica en la página web y actualiza el ECA-MP-P09-F05 Directorio de OEC Acreditados, indicando el número de acreditación, nombre del OEC, alcance de la acreditación otorgada y su vigencia, así como la ampliación, reducción del alcance de acreditación, suspensión y retiro cancelación de la acreditación.
-14 IDENTIFICACIÓN DE CAMBIOS
-Motivo: Modificación del procedimiento ECA-MP-P01
-Refiérase a la solicitud de elaboración o modificación del documento 2020-075 Observaciones:
-Se subrayan cambios en el documento.
-Apartados modificados: 3,4, 6.3 (a), 6.4, 7.2, 8.1, 8.2, 8.3, 8.4, 10.2.
-15 TRANSITORIO
+14 TRANSITORIO
 No aplica.
+15 IDENTIFICACIÓN DE CAMBIOS Motivo: | Modificación del procedimiento ECA-MP-P01
+Refiérase a la solicitud de elaboración o modificación del documento 2020-191
+Observaciones: Los cambios se encuentran subrayados. Incorporación de referencias Productores de Materiales de Referencia y Proveedores de Ensayo de Aptitud. Se incorpora definición sobre personal clave para todo tipo de OEC.
