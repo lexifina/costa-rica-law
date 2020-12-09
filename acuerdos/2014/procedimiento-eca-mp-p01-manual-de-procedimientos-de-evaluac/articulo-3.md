@@ -1,6 +1,5 @@
 3 DEFINICIONES
-- Aceptación de un esquema de evaluación de la conformidad: Confirmación por el ECA de la
-idoneidad de los requisitos que se utilizarán para acreditar a los organismos de certificación que participan en el esquema de evaluación de la conformidad y el cumplimiento con los requisitos del punto 4 del presente documento.
+- Aceptación de un esquema de evaluación de la conformidad: Confirmación por el ECA de la idoneidad de los requisitos que se utilizarán para acreditar a los organismos de certificación que participan en el esquema de evaluación de la conformidad y el cumplimiento con los requisitos del punto 4 del presente documento.
 - Acreditación: atestación de tercera parte relativa a un organismo de evaluación de la conformidad que manifiesta la demostración formal de su competencia para llevar a cabo tareas específicas de evaluación de la conformidad.
 - Actividades clave para todo tipo de OEC: Ejecución de las actividades de evaluación de la conformidad o dentro del alcance a acreditar o acreditado. Por Ejemplo Formulación y aprobación de políticas; desarrollo y aprobación de los procesos y procedimientos necesarios para la operación de los sistemas de gestión y esquemas de la evaluación de la conformidad, incluyendo los requisitos para la selección y nombramiento de las personas que realizan la actividad de la evaluación de la conformidad; revisión de las solicitudes y de los acuerdos contractuales asociados con la evaluación, decisión sobre las actividades de evaluación de la conformidad, procesos para la resolución de las apelaciones y quejas.
 - Actividades de Evaluación de la Conformidad: Son las actividades realizadas por un organismo de evaluación de la conformidad al evaluar la conformidad, dentro de las cuales se incluyen: Ensayos (análisis clínicos/médicos); Calibración, Ensayos de Aptitud, Producción de Materiales de Referencia, Inspección, Certificación de Producto, Certificación de Sistemas de Gestión, Certificación de Personas y Validación y Verificación de gases de efecto invernadero.
@@ -23,8 +22,7 @@ idoneidad de los requisitos que se utilizarán para acreditar a los organismos d
 - Comisión de Acreditación: Encargados de acreditar en las áreas de competencia del ECA.
 - Consultoría: participación en cualquiera de las actividades de un organismo de evaluación de la conformidad sujeto a acreditación.
 - Criterios de acreditación: Corresponde a todos los documentos normativos contra los cuáles se evalúa la conformidad del sistema de gestión del OEC: Normas de acreditación u obligatorias dentro del esquema; procedimientos, requisitos o criterios del ECA; contratos y/o reglamentos de la autoridad reguladora; documentos internos o externos del sistema de gestión del OEC.
-- Decisión de la acreditación: decisión sobre otorgar, mantener, ampliar, reducir, suspender y
-retirar la acreditación.
+- Decisión de la acreditación: decisión sobre otorgar, mantener, ampliar, reducir, suspender y retirar la acreditación.
 - Dueño de esquema: El dueño de esquema es una organización identificable que ha establecido un esquema de evaluación de la conformidad y que es responsable por el diseño del esquema de evaluación de la conformidad.
 Ejemplos de dueños de esquemas:
 - Organismos gubernamentales
@@ -47,17 +45,22 @@ Los organismos de acreditación no pueden ser dueños de esquemas.
 - Evaluación remota: evaluación de la ubicación física o sitio virtual de un organismo de evaluación de la conformidad, usando medios electrónicos.
 - Evaluador: persona designada por un organismo de acreditación para ejecutar, sola o como parte de un equipo de evaluación, una evaluación de un organismo de evaluación de la conformidad.
 - Experto técnico: persona designada por un organismo de acreditación, que trabaja bajo la responsabilidad de un evaluador, que proporciona conocimientos específicos o pericia respecto al alcance de la acreditación a evaluar y que no evalúa de manera independiente.
-- Fuerza mayor: Hecho de la naturaleza que no puede preverse o que, previsto, no puede evitarse. Ciertos hechos pueden ser citados como típicos de fuerza mayor, por ejemplo, los fenómenos atmosféricos y naturales.
+- Fuerza mayor: Hecho de la naturaleza que no puede preverse o que, previsto, no puede evitarse.
+Ciertos hechos pueden ser citados como típicos de fuerza mayor, por ejemplo, los fenómenos atmosféricos y naturales.
 - Herramientas tecnológicas e informáticas: dispositivos tecnológicos utilizados para efectuar la transmisión bidireccional de video, audio, documentación, datos y evidencias, todo en tiempo real, por ejemplo: Webex, Webex Training, LifeSize, Skype, entre otros.
 - Imparcialidad: presencia de objetividad.
-- Informe Final de Evaluación: Informe de resultados de la evaluación in situ, revisado por la
-secretaria de acreditación.
+- Informe Final de Evaluación: Informe de resultados de la evaluación in situ, revisado por la secretaria de acreditación.
 - Líder del equipo: evaluador al que se le asigna la responsabilidad general de la gestión de una evaluación.
 - Mantener la acreditación: confirmación de la continuidad de la acreditación para un alcance definido.
 - Organismo de acreditación: organismo con autoridad, que lleva a cabo la acreditación.
 - Otorgar la acreditación: concesión de acreditación para un alcance de acreditación definido.
 - Parte interesada: persona u organización con un interés directo o indirecto en la acreditación
 - Personal del organismo de acreditación: individuos internos o externos que realizan actividades en nombre del organismo de acreditación.
+- Personal clave para todo tipo de OEC: Personal responsable de realizar las siguientes actividades en nombre del organismo de acreditación:
+- La definición de los métodos y de sus especificaciones, diseño de la estrategia de validación, revisión de resultados y decisión técnica final.
+- La definición de los criterios, revisión y toma de decisiones relacionadas con las actividades de evaluación de la conformidad. Definición de los criterios y toma de decisiones relacionadas con actividades de aseguramiento de la validez de los resultados. Responsable técnico de las actividades acreditadas.
+- La formulación y aprobación de políticas; desarrollo y aprobación de los procesos y procedimientos necesarios para la operación de los sistemas de gestión y esquemas de la evaluación de la conformidad, incluyendo los requisitos para la selección y nombramiento de las personas que realizan la actividad de la evaluación de la conformidad; revisión de las solicitudes y de los acuerdos contractuales asociados con la evaluación, procesos para la resolución de las apelaciones y quejas.
+- El personal autorizado para realizar funciones de evaluación de la conformidad que se encuentren dentro del alcance de acreditación.
 - Plan de evaluación: descripción de las actividades y de los detalles acordados de una evaluación.
 - Proceso de acreditación: actividades desde la solicitud hasta el otorgamiento y el mantenimiento de la acreditación según se define en el esquema de acreditación.
 - Programa de evaluación: conjunto de evaluaciones coherente con el esquema de acreditación específico que el organismo de acreditación desempeña sobre un organismo de evaluación de la conformidad específico durante un ciclo de acreditación.
@@ -72,7 +75,7 @@ secretaria de acreditación.
 - Retirar la acreditación: anulación de la acreditación para todo su alcance.
 - Secretaría de acreditación: Encargadas de dar apoyo técnico a la comisión de Acreditación.
 - Seguimiento: Evaluación de una muestra del alcance acreditado o parte de la norma de acreditación, para asegurar que los OEC mantienen su competencia técnica y continúan cumpliendo con los requisitos por los cuales les fue otorgada la acreditación. También conocido como vigilancia. Los seguimientos se realizan de manera anual.
-- Solicitud: Formulario que puede ser utilizado para solicitar acreditación inicial o ampliación del alcance de acreditación. El ECA posee formulario de solicitud para: Laboratorio de Ensayo, Laboratorio de Calibración, Organismo de Inspección, Organismo de Certificación de Producto, Organismo de Certificación de Personas, Organismo de Certificación de Sistemas de Gestión, Organismo Validador/Verificador, Proveedores de ensayo de actitud y Laboratorio Clínico.
+- Solicitud: Formulario que puede ser utilizado para solicitar acreditación inicial o ampliación del alcance de acreditación. El ECA posee formulario de solicitud para: Laboratorio de Ensayo, Laboratorio de Calibración, Organismo de Inspección, Organismo de Certificación de Producto, Organismo de Certificación de Personas, Organismo de Certificación de Sistemas de Gestión, Organismo Validador/Verificador, Proveedores de ensayo de actitud, productores de materiales de referencia y Laboratorio Clínico.
 - Suspender la acreditación: establecimiento de restricciones temporales en todo o parte del alcance de la acreditación.
 - Técnica de evaluación: método usado por un organismo de acreditación para desempeñar una evaluación.
 - Testificación: observación por parte del organismo de acreditación.
