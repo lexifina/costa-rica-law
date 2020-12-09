@@ -2,6 +2,7 @@ ENTE COSTARRICENSE DE ACREDITACIÓN
 N° 2020-008. El Ente Costarricense de Acreditación (ECA), en cumplimiento de la Ley 8279 Ley del Sistema Nacional de la Calidad, da a conocer la modificación de los siguientes documentos: ECA-MC-P23 Conformación y sesión de órganos colegiados, pasa de versión 06 a versión 07, la disposición contenida en el apartado 4.3.5 párrafo primero contará con un plazo de 6 meses para que entre en vigencia. ECA-MP-P08 Manual de procedimientos de evaluación y acreditación: Toma de decisión, pasa de versión 06 a versión 07, no tiene transitorio. ECA-MP-P08-101 Instructivo de grupos de trabajo, versión 01, no tiene transitorio. ECA-MP-P10 Manual de procedimientos de evaluación y acreditación: Seguimiento y reevaluación, pasa de versión 05 a versión 06, no tiene transitorio. Fe de erratas en la publicación de La Gaceta número 146, 2020- 007 para el documento ECA-MC-C15 Criterios para evaluación y acreditación de proveedores de ensayos de aptitud bajo la norma INTE-ISO/IEC 17043:2010 del día viernes 19 de junio 2020, por error material se anota que el documento pasa de la versión 02 a la versión 03 siendo lo correcto que pasa a la versión 02. Los documentos descritos anteriormente se encuentran a disposición de los interesados en la página electrónica http://www.eca.or.cr/docs.php; así mismo puede solicitar el envío de manera electrónica o solicitar gratuitamente una copia no contralada en la Gestoría de Calidad en las oficinas centrales del ECA ubicadas en San José, Barrio Don Bosco, Avenida 02 y Calle 32, contiguo a la Embajada de España, en horario de lunes a viernes de 8:00 h a 16:00 h.
 San José, 25 junio 2020
 (Nota de Sinalevi: El presente procedimiento se extrajo del sitio web del Ente Costarricense de Acreditación, y se transcribe a continuación:)
+(Nota de Sinalevi: El presente procedimiento fue reformado parcialmente y reproducido su texto de forma íntegra mediante publicación en La Gaceta N° 293 del 15 de diciembre del 2020, donde se actualiza la versión 06 y se publica la versión 07, y se transcribe a continuación:)
 [imagen]
 TABLA DE CONTENIDO
 1 ACTIVIDADES DE EVALUACIÓN PARA EL CICLO DE ACREDITACIÓN ............................... 1
@@ -13,23 +14,21 @@ TABLA DE CONTENIDO
 7 PERIODICIDAD DE LAS VISITAS DE SEGUIMIENTO Y REEVALUACIÓN ............................. 6
 8 OTRAS ACTIVIDADES DE VIGILANCIA .................................................................................. 6
 9 ANEXOS ................................................................................................................................... 9
-10 IDENTIFICACIÓN DE CAMBIOS ............................................................................................ 22
-11 TRANSITORIO ........................................................................................................................ 23
+10 TRANSITORIO ........................................................................................................................ 24
+11 IDENTIFICACIÓN DE CAMBIOS ............................................................................................ 24
 1 ACTIVIDADES DE EVALUACIÓN PARA EL CICLO DE ACREDITACIÓN
-1.1 El ciclo de acreditación comprende, 3 evaluaciones de seguimiento, con periodicidad anual y la evaluación de reevaluación, cada cuatro años, a partir de la fecha de notificación de la decisión de otorgar o decisión de renovación para aquellos OEC que tuvieron este tipo de proceso.
-1.2 En caso de suspensión total del alcance de acreditación superior a 6 meses, el ciclo de acreditación iniciará a partir de la fecha de notificación de la decisión de levantar la suspensión.
+1.1 El ciclo de acreditación comprende, 3 evaluaciones de seguimiento, con periodicidad anual y la evaluación de reevaluación, cada cuatro años, a partir de la fecha de notificación de la decisión de otorgar o decisión de renovación para aquellos OEC que tuvieron este tipo de proceso. 1.2 En caso de suspensión total del alcance de acreditación superior a 6 meses, el ciclo de acreditación iniciará a partir de la fecha de notificación de la decisión de levantar la suspensión.
 1.3 La fecha de aniversario de los OEC corresponde al mes de notificación de lo indicado en el apartado 1.1 o 1.2, según sea el caso.
 1.4 Las Secretarías de Acreditación realizan la planificación de las actividades de evaluación dentro del ciclo de acreditación del OEC, considerando lo siguiente: 1.4.1 Todos los OEC acreditados por el ECA, deben ser supervisados al menos una vez al año, mediante evaluaciones de seguimiento, para asegurar que los mismos mantienen su competencia técnica y el cumplimiento de los requisitos por los cuales les fue otorgada la acreditación. Cada 4 años, se realizar una reevaluación la cual consiste en realizar nuevamente el proceso completo de evaluación. Ambos procesos permiten asegurar que los requisitos que dieron lugar a la acreditación se mantienen por parte del OEC acreditado.
 1.4.2 Los requisitos de las normas y otros criterios de evaluación que se deben evaluar, como mínimo, a cada OEC en cada evaluación de seguimiento o reevaluación, se indican en los anexos de este procedimiento.
 1.4.3 Las actividades de evaluación de la conformidad a testificar o evaluar, como mínimo, en cada evaluación de seguimiento o reevaluación, se encuentran definidas en registros de matrices o controles de testificación de cada Secretaría respectiva.
 1.4.4 Anualmente se establece un programa de evaluaciones, por cada Secretaría de Acreditación, donde se indica, entre otra información, la planificación del tipo de evaluación, fecha máxima de ejecución y equipo evaluador designado para realizar los procesos de evaluación de los OEC en el año correspondiente.
-1.5 Las Secretarías de acreditación deben realizar un análisis, con base en criterios de riesgo, para cada OEC y deben considerar los resultados de dicho análisis en la planificación de las actividades de evaluación y otras actividades de vigilancia para el ciclo de acreditación.
-1.5.1 Dentro de los criterios de riesgo relacionados con un OEC, se consideran al menos los siguientes: complejidad del OEC, desempeño del OEC en procesos de evaluación anteriores, cantidad, complejidad y tipo de actividades de evaluación de la conformidad acreditadas, cantidad y ubicación de sedes críticas, años de experiencia como organismo con actividades acreditadas ante ECA, rotación del personal relacionado con las actividades de evaluación de la conformidad, quejas y denuncias presentadas, cierre de no conformidades de procesos de evaluación dentro de los tiempos establecidos en los procedimientos ECA, desempeño en ensayos de aptitud y otras comparaciones interlaboratorio, si aplican.
+1.5 Las Secretarías de acreditación deben realizar un análisis, con base en criterios de riesgo, para cada OEC y deben considerar los resultados de dicho análisis en la planificación de las actividades de evaluación y otras actividades de vigilancia para el ciclo de acreditación. 1.5.1 Dentro de los criterios de riesgo relacionados con un OEC, se consideran al menos los siguientes: complejidad del OEC, desempeño del OEC en procesos de evaluación anteriores, cantidad, complejidad y tipo de actividades de evaluación de la conformidad acreditadas, cantidad y ubicación de sedes críticas, años de experiencia como organismo con actividades acreditadas ante ECA, rotación del personal relacionado con las actividades de evaluación de la conformidad, quejas y denuncias presentadas, cierre de no conformidades de procesos de evaluación dentro de los tiempos establecidos en los procedimientos ECA, desempeño en ensayos de aptitud y otras comparaciones interlaboratorio, si aplican.
 1.5.2 De acuerdo con los resultados de los análisis, basados en criterios de riesgo, las Secretarías pueden intensificar las actividades de evaluación dentro del ciclo de acreditación del OEC y además pueden aplicar, de manera adicional, uno o varios de los mecanismos indicados en el apartado 8 de este documento.
 2 COORDINACIÓN DE FECHA DE EVALUACIÓN Y CONFORMACIÓN DEL EQUIPO EVALUADOR
 2.1 La Secretaría de Acreditación prepara el ECA-MP-P10-F01 Programa de evaluaciones, para las evaluaciones de seguimiento y reevaluaciones para cada año. Dentro de la elaboración del programada de evaluación se debe considerar lo siguiente:
 2.1.1 El tipo de evaluación que corresponda.
-2.1.2 La fecha de aniversario y la fecha máxima para ejecutar la evaluación in situ, de acuerdo a los requisitos establecidos en este documento. MANUAL DE PROCEDIMIENTOS PARA LA EVALUACIÓN Y ACREDITACIÓN
+2.1.2 La fecha de aniversario y la fecha máxima para ejecutar la evaluación in situ, de acuerdo a los requisitos establecidos en este documento.
 2.1.3 Las actividades de evaluación de la conformidad, personal y sedes o instalaciones a evaluar, de acuerdo con la planificación de cada Secretaría de Acreditación y lo indicado en el Instructivo ECA-MC-P13-I01.
 2.1.4 Criterios de riesgo, así como cualquier otro aspecto importante, como por ejemplo cambios significativos reportados, entre otros.
 2.2 La Secretaría de Acreditación traslada a la Unidad de Logística el programa de evaluaciones y las actividades a ser testificadas o evaluadas, para que esta última informe a cada miembro del equipo su participación, por medio del ECA-MP-P05-F02 Aceptación o rechazo de participación en evaluaciones por parte del Equipo Evaluador, además informa el mes para realizar el proceso de evaluación.
@@ -38,7 +37,8 @@ TABLA DE CONTENIDO
 2.5 La Unidad de Logística informa mediante un oficio al OEC, el mes en que le corresponde la visita de seguimiento o reevaluación y la conformación del equipo evaluador.
 2.6 Una vez presentada la información para realizar la visita, el OEC tiene 5 días hábiles para solicitar cambios en el equipo evaluador por conflicto de interés, basado en los criterios de recusación establecidos en el procedimiento ECA-MP-P05 y brindar fechas disponibles para la ejecución de la evaluación.
 2.7 Cuando el OEC no pueda recibir la evaluación en el mes establecido, puede solicitar modificación de la fecha establecida en el programa de evaluaciones de seguimiento, siempre y cuando se cumpla con lo establecido en el apartado 7.1 y apartado 7.2 de este procedimiento.
-2.8 Si el OEC NO acepta el Equipo Evaluador o parte de este, nota de objeción, a la Unidad de Logística informando su objeción, acompañada de la prueba correspondiente, basada en los criterios de recusación establecidos en el procedimiento ECA-MP-P05, para lo cual dispone de 5 días hábiles desde el momento de la notificación.
+2.8 Si el OEC NO acepta el Equipo Evaluador o parte de este, nota de objeción, a la Unidad de Logística informando su objeción, acompañada de la prueba correspondiente, basada en los criterios de recusación establecidos en el procedimiento ECA-MP-P05, para lo cual dispone de 5 días hábiles desde el momento de la notificación. MANUAL DE PROCEDIMIENTOS PARA LA EVALUACIÓN Y ACREDITACIÓN Código N°: ECA-MP-P10 Páginas: 4 de 24 SEGUIMIENTO Y REEVALUACIÓN Fecha de entrada en vigencia: 2020.12.17 Versión: 07
+Este documento se distribuye como COPIA NO CONTROLADA, favor confirmar su vigencia en www.eca.or.cr antes de hacer uso de esta versión, por si ha sido modificada.
 2.9 En caso de que el OEC no informe a la Unidad de Logística su aceptación o rechazo dentro del período establecido, la Unidad de Logística da por aceptado el equipo y mes propuesto para la evaluación de seguimiento o reevaluación y continúa el proceso.
 2.10 Si la Unidad de Logística recibe una nota de objeción, la traslada a la Secretaría de Acreditación respectiva para su análisis y decisión.
 2.11 La Secretaría de Acreditación analiza las pruebas presentadas por el OEC y si la objeción procede, debe designar en 10 días hábiles, un nuevo Equipo Evaluador o miembro del Equipo Evaluador e informa a la Unidad de Logística, quién procede nuevamente a partir de lo indicado en el punto 2.2 de este documento. En caso de ser requerido la Secretaría podría enviar el caso a la Comisión de Acreditación para su análisis y debe dejar evidencia del mismo en el expediente del OEC.
@@ -52,6 +52,8 @@ Nota: En caso de requerirlo la Unidad de Logística puede solicitar el apoyo de 
 3.2 Si la evaluación documental se realiza antes de la evaluación in situ, la Unidad de Logística debe solicitar al OEC con 35 días hábiles de anterioridad a la fecha acordada de ejecución de la evaluación in situ, la documentación actualizada.
 3.3 La Unidad de Logística debe dar acceso, a los miembros del Equipo Evaluador, a la documentación del OEC 25 días hábiles antes de la fecha programada para la ejecución de la evaluación in situ. La documentación a entregar por parte de la Unidad de Logística es la siguiente:
 − Documentos del SGC del OEC, cuando aplique.
+MANUAL DE PROCEDIMIENTOS PARA LA EVALUACIÓN Y ACREDITACIÓN Código N°: ECA-MP-P10 Páginas: 5 de 24 SEGUIMIENTO Y REEVALUACIÓN Fecha de entrada en vigencia: 2020.12.17 Versión: 07
+Este documento se distribuye como COPIA NO CONTROLADA, favor confirmar su vigencia en www.eca.or.cr antes de hacer uso de esta versión, por si ha sido modificada.
 − Informe de la evaluación anterior.
 − Informe de verificación de acciones correctivas de la evaluación anterior, cuando aplique.
 − La aprobación del uso de símbolo de acreditación.
@@ -66,7 +68,8 @@ c) Tanto las Secretarías de Acreditación como la Comisión de Acreditación, p
 5 ACTIVIDADES POSTERIORES A LA EVALUACIÓN
 5.1 Finalizadas las actividades de evaluación se debe seguir lo establecido en ECA-MP-P07 Actividades posteriores a la evaluación.
 6 TOMA DE DECISIÓN
-6.1 Para todos los procesos de evaluación y acreditación, se procede con la decisión de acreditación, la confirmación del estado de acreditación o con cualquier otra decisión o acción que corresponda, tal y como se describe en el procedimiento ECA-MP-P08 Toma de decisión.
+6.1 Para todos los procesos de evaluación y acreditación, se procede con la decisión de acreditación, la confirmación del estado de acreditación o con cualquier otra decisión o acción que corresponda, tal y como se describe en el procedimiento ECA-MP-P08 Toma de decisión. MANUAL DE PROCEDIMIENTOS PARA LA EVALUACIÓN Y ACREDITACIÓN Código N°: ECA-MP-P10 Páginas: 6 de 24 SEGUIMIENTO Y REEVALUACIÓN Fecha de entrada en vigencia: 2020.12.17 Versión: 07
+Este documento se distribuye como COPIA NO CONTROLADA, favor confirmar su vigencia en www.eca.or.cr antes de hacer uso de esta versión, por si ha sido modificada.
 7 PERIODICIDAD DE LAS VISITAS DE SEGUIMIENTO Y REEVALUACIÓN
 7.1 El período de vigencia de la acreditación que otorga el ECA es por tiempo indefinido, y está sujeta a las evaluaciones anuales de seguimiento y reevaluaciones cada 3 años y 9 meses hasta un máximo de 4 años (desde la fecha de aniversario de los OEC).
 7.2 El ECA realiza 3 visitas de seguimiento al OEC acreditado durante cada ciclo de acreditación, las cuales se programan de forma anual en la fecha de aniversario de los OEC y hasta un máximo de 3 meses posteriores.
@@ -78,7 +81,8 @@ Los seguimientos pueden realizarse antes del mes de aniversario si fuera necesar
 a) Indagaciones por parte del ECA hacia el OEC acerca de aspectos relativos a la acreditación;
 b) Revisión de las declaraciones del OEC con respecto a lo que cubre la acreditación;
 c) Solicitudes al OEC para proporcionar documentos y registros (por ejemplo: informes de auditoría, resultados del control de la calidad interno para verificar la validez de los servicios, registros de quejas, registros de la revisión por la dirección, informes de validación, informes o certificados de resultados de actividades de evaluación de la conformidad entre otros).
-d) Seguimiento del desempeño del OEC (tal como los resultados de la participación en ensayos / pruebas de aptitud).
+d) Seguimiento del desempeño del OEC (tal como los resultados de la participación en ensayos / pruebas de aptitud). MANUAL DE PROCEDIMIENTOS PARA LA EVALUACIÓN Y ACREDITACIÓN Código N°: ECA-MP-P10 Páginas: 7 de 24 SEGUIMIENTO Y REEVALUACIÓN Fecha de entrada en vigencia: 2020.12.17 Versión: 07
+Este documento se distribuye como COPIA NO CONTROLADA, favor confirmar su vigencia en www.eca.or.cr antes de hacer uso de esta versión, por si ha sido modificada.
 e) Evaluar una mayor cantidad de requisitos normativos, respecto a lo indicado en los anexos del presente documento para los procesos de seguimiento.
 f) Solicitar al equipo evaluador, para evaluaciones de seguimiento o reevaluación, que se realice una investigación más profunda, en cuanto a revisión de evidencias o cantidad de registros y documentos, para temas o requisitos específicos.
 g) Prohibir la posibilidad de sustituir la técnica de testificación, para evaluar actividades de evaluación de la conformidad específicas, por un conjunto o combinación de otras técnicas de evaluación. Lo anterior para evaluaciones de seguimiento o reevaluación.
@@ -95,8 +99,9 @@ e) Producto de un proceso de investigación.
 f) Para el levantamiento de una suspensión voluntaria.
 g) Revisión o aclaración de aspectos relacionados a su alcance de acreditación.
 h) Como resultado del análisis, basado en criterios de riesgo, que realiza la Secretaría al planificar los diferentes procesos de evaluación
-8.2.1 Las evaluaciones extraordinarias, pueden ser parciales o totales, siguen la formalidad de una evaluación en cuanto a la ejecución de las etapas de preparación para la evaluación, evaluación en sitio, actividades posteriores a la evaluación y si aplica, toma de decisión.
-8.2.2 Durante las evaluaciones extraordinarias se pueden realizar testificaciones de actividades de evaluación de la conformidad, aunque las mismas puedan haber sido testificadas en una evaluación de seguimiento o reevaluación anterior a la ejecución de la evaluación extraordinaria.
+8.2.1 Las evaluaciones extraordinarias, ya sea parciales o totales, siguen la formalidad de una evaluación en cuanto a la ejecución de las etapas de preparación para la evaluación, evaluación en sitio, actividades posteriores a la evaluación y si aplica, toma de decisión.
+8.2.2 Durante las evaluaciones extraordinarias se pueden realizar testificaciones de actividades de evaluación de la conformidad, aunque las mismas puedan haber sido testificadas en una evaluación de seguimiento o reevaluación anterior a la ejecución de la evaluación extraordinaria. MANUAL DE PROCEDIMIENTOS PARA LA EVALUACIÓN Y ACREDITACIÓN Código N°: ECA-MP-P10 Páginas: 8 de 24 SEGUIMIENTO Y REEVALUACIÓN Fecha de entrada en vigencia: 2020.12.17 Versión: 07
+Este documento se distribuye como COPIA NO CONTROLADA, favor confirmar su vigencia en www.eca.or.cr antes de hacer uso de esta versión, por si ha sido modificada.
 8.2.3 El OEC debe cancelar a ECA los montos correspondientes, de acuerdo a las tarifas establecidas, por la ejecución de las evaluaciones extraordinarias.
 8.3 El ECA puede establecer la necesidad de realizar visitas no anunciadas, para lo cual la Secretaría de Acreditación respectiva, debe informar al OEC la composición del equipo evaluador que realizaría dicha visita no anunciada, de acuerdo al objetivo de la misma, pero no la fecha programada. El OEC puede objetar a alguno de los miembros del equipo evaluador, de acuerdo a los criterios de recusación establecidos en el procedimiento ECA-MP-P05. Dichas visitas pueden realizarse, pero no limitarse a los siguientes casos:
 a) Asegurar que el OEC mantiene el continuo cumplimiento de los criterios de acreditación.
@@ -104,7 +109,8 @@ b) Como resultado de una queja o denuncia presentada contra un OEC.
 c) Como resultado del análisis, basado en criterios de riesgo, que realiza la Secretaría al planificar los diferentes procesos de evaluación
 d) Como parte de una investigación preliminar, de acuerdo a lo indicado en el procedimiento ECA-MC-P16
 8.3.1 Las visitas no anunciadas no tendrán ningún costo para el OEC.
-8.3.2 En caso que un OEC no permita al ECA realizar una visita no anunciada, se presenta la situación a la Comisión de Acreditación para que se proceda de acuerdo a lo indicado en el procedimiento ECA-MC-P16.
+8.3.2 En caso que un OEC no permita al ECA realizar una visita no anunciada, se presenta la situación a la Comisión de Acreditación para que se proceda de acuerdo a lo indicado en el procedimiento ECA-MC-P16. MANUAL DE PROCEDIMIENTOS PARA LA EVALUACIÓN Y ACREDITACIÓN Código N°: ECA-MP-P10 Páginas: 9 de 24 SEGUIMIENTO Y REEVALUACIÓN Fecha de entrada en vigencia: 2020.12.17 Versión: 07
+Este documento se distribuye como COPIA NO CONTROLADA, favor confirmar su vigencia en www.eca.or.cr antes de hacer uso de esta versión, por si ha sido modificada.
 9 ANEXOS
 9.1 ANEXO 1: TEMAS O REQUISITOS MÍNIMOS A CUBRIR DURANTE LAS EVALUACIONES DE SEGUIMIENTO Y REEVALUACION PARA LABORATORIOS DE ENSAYO Y CALIBRACIÓN SEGÚN LA NORMA INTE-ISO/IEC 17025:2017
 [imagen]
@@ -135,5 +141,12 @@ d) Como parte de una investigación preliminar, de acuerdo a lo indicado en el p
 9.8 ANEXO 8: TEMAS A CUBRIR DURANTE LAS EVALUACIONES DE SEGUIMIENTO Y REEVALUACION PARA PROVEEDORES DE ENSAYOS DE APTITUD SEGÚN LA NORMA INTE-ISO/IEC 17043:2010
 [imagen]
 [imagen]
-11 TRANSITORIO
-El procedimiento entra en vigencia a partir de su publicación en gaceta. Las evaluaciones programadas a partir del mes de setiembre de 2020 deben cumplir con lo establecido en este procedimiento.
+9.9 ANEXO 9: temas a cubrir durante las evaluaciones de seguimiento y reevaluacion para productores de materiales de referencia según la norma inte-iso/iec 17034:2018
+[imagen]
+[imagen]
+[imagen]
+10 TRANSITORIO
+NA
+11 IDENTIFICACIÓN DE CAMBIOS Motivo: | Modificación del procedimiento ECA-MP-P10
+Refiérase a la solicitud de elaboración o modificación del documento 2020-203
+Observaciones: Se subrayan cambios y modificaciones en el documento.
