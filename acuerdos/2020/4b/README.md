@@ -14,3 +14,4 @@ Reforma Procedimiento ECA-MC-P13-I01 Instructivo de muestreo (versión 10)
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-04-23 | la propia norma |
+| 2 | 2020-12-09 | Acuerdo 13 (2020-12-09) |
