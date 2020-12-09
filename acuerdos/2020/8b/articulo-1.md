@@ -2,20 +2,21 @@ ENTE COSTARRICENSE DE ACREDITACIÓN
 N° 2020-008. El Ente Costarricense de Acreditación (ECA), en cumplimiento de la Ley 8279 Ley del Sistema Nacional de la Calidad, da a conocer la modificación de los siguientes documentos: ECA-MC-P23 Conformación y sesión de órganos colegiados, pasa de versión 06 a versión 07, la disposición contenida en el apartado 4.3.5 párrafo primero contará con un plazo de 6 meses para que entre en vigencia. ECA-MP-P08 Manual de procedimientos de evaluación y acreditación: Toma de decisión, pasa de versión 06 a versión 07, no tiene transitorio. ECA-MP-P08-101 Instructivo de grupos de trabajo, versión 01, no tiene transitorio. ECA-MP-P10 Manual de procedimientos de evaluación y acreditación: Seguimiento y reevaluación, pasa de versión 05 a versión 06, no tiene transitorio. Fe de erratas en la publicación de La Gaceta número 146, 2020- 007 para el documento ECA-MC-C15 Criterios para evaluación y acreditación de proveedores de ensayos de aptitud bajo la norma INTE-ISO/IEC 17043:2010 del día viernes 19 de junio 2020, por error material se anota que el documento pasa de la versión 02 a la versión 03 siendo lo correcto que pasa a la versión 02. Los documentos descritos anteriormente se encuentran a disposición de los interesados en la página electrónica http://www.eca.or.cr/docs.php; así mismo puede solicitar el envío de manera electrónica o solicitar gratuitamente una copia no contralada en la Gestoría de Calidad en las oficinas centrales del ECA ubicadas en San José, Barrio Don Bosco, Avenida 02 y Calle 32, contiguo a la Embajada de España, en horario de lunes a viernes de 8:00 h a 16:00 h.
 San José, 25 junio 2020
 (Nota de Sinalevi: El presente procedimiento se extrajo del sitio web del Ente Costarricense de Acreditación, y se transcribe a continuación:)
+(Nota de Sinalevi: El presente procedimiento fue reformado parcialmente y reproducido su texto de forma íntegra mediante publicación en La Gaceta N° 293 del 15 de diciembre del 2020, donde se actualiza la versión 07 y se publica la versión 08, y se transcribe a continuación:)
 [imagen]
 TABLA DE CONTENIDO
-1 GENERALIDADES .................................................................................................................... 1
-2 ANÁLISIS POR PARTE DEL COMITÉ ASESOR ...................................................................... 1
-3 DECISIÓN POR PARTE DE LA COMISIÓN DE ACREDITACIÓN ............................................ 3
+1 GENERALIDADES ................................................................................................................... 1
+2 ANÁLISIS POR PARTE DE LAS SECRETARÍAS DE ACREDITACIÓN Y DE LOS GRUPOS DE TRABAJO DE LAS SECRETARÍAS ................................................................................................. 1
+3 DECISIÓN POR PARTE DE LA COMISIÓN DE ACREDITACIÓN ........................................... 3
 4 DECISIONES SOBRE PROCESOS PARCIALES ..................................................................... 5
-5 IDENTIFICACIÓN DE CAMBIOS .............................................................................................. 6
-6 TRANSITORIO .......................................................................................................................... 6
+5 TRANSITORIO ......................................................................................................................... 6
+6 IDENTIFICACIÓN DE CAMBIOS .............................................................................................. 6
 1 GENERALIDADES
 1.1 Finalizadas las actividades de verificación para los procesos de evaluación, se procede con el proceso de toma de decisión.
-1.2 Los Grupos de Trabajo de las Secretarías de Acreditación y la Comisión de Acreditación son los responsables, en conjunto, de tomar la decisión para los procesos iniciales, de ampliación del alcance de acreditación, de reevaluación, de seguimiento cuando existan cambios o modificaciones al alcance de acreditación y extraordinarios por levantamiento de suspensión o por procesos de investigación.
-1.3 Los Grupos de Trabajo de las Secretarías de Acreditación y la Secretaría de Acreditación respectiva, son los responsables, en conjunto, de las decisiones de procesos de seguimiento, cuando no existan cambios o modificaciones al alcance de acreditación y de evaluaciones extraordinarias distintas a las indicadas en el apartado 1.2 de este documento.
-2 ANÁLISIS POR PARTE DE LOS GRUPOS DE TRABAJO DE LAS SECRETARÍAS
-2.1 Finalizadas las actividades posteriores a la evaluación y solamente para los casos donde no fueron detectadas no conformidades en la evaluación in situ o remota o que las mismas fueran cerradas por el OEC, la Secretaría Acreditación respectiva, convoca a un Grupo de Trabajo, en un plazo máximo de 10 días hábiles, para que revise los siguientes documentos o información:
+1.2 Las Secretarías de Acreditación, con el apoyo de sus Grupos de Trabajo y la Comisión de Acreditación son los responsables, en conjunto, de tomar la decisión para los procesos iniciales, de ampliación del alcance de acreditación, de reevaluación, de seguimiento cuando existan cambios o modificaciones al alcance de acreditación y extraordinarios por levantamiento de suspensión o por procesos de investigación.
+1.3 Las Secretarias de Acreditación con el apoyo de sus Grupos de Trabajo, son los responsables, de las decisiones de procesos de seguimiento, cuando no existan cambios o modificaciones al alcance de acreditación y de evaluaciones extraordinarias distintas a las indicadas en el apartado 1.2 de este documento.
+2 ANÁLISIS POR PARTE DE LAS SECRETARÍAS DE ACREDITACIÓN Y DE LOS GRUPOS DE TRABAJO DE LAS SECRETARÍAS
+2.1 Finalizadas las actividades posteriores a la evaluación y solamente para los casos donde no fueron detectadas no conformidades en la evaluación in situ o remota o que las mismas fueran cerradas en forma adecuada por el OEC, la Secretaría Acreditación respectiva, convoca a un Grupo de Trabajo, en un plazo máximo de 10 días hábiles, para que apoye en la revisión de los siguientes documentos o información:
 a. Información general del OEC como, por ejemplo: número de expediente, tipo de evaluación.
 b. Informe final de evaluación.
 c. Resultado de la verificación de acciones correctivas, cuando se hayan detectado no conformidades en la evaluación in situ o remota.
@@ -23,18 +24,18 @@ d. Notas digitales de evaluación, si aplica.
 e. Programa de evaluación del ciclo de acreditación para el OEC y cumplimiento del mismo.
 f. Alcance de acreditación vigente del OEC y cualquier modificación realizada al mismo en el proceso de evaluación para el cuál se va a emitir recomendación.
 g. Cualquier otra información de importancia o que sea relevante.
-2.2 El Grupo de Trabajo designado revisa los documentos del OEC mencionados, emite criterio técnico y presenta las observaciones y/o una recomendación a la Secretaría de Acreditación respectiva.
-Nota: El Grupo de Trabajo conformado, a fin de emitir criterio técnico, puede dar audiencia a un representante del Equipo Evaluador y/o a un representante del OEC o solicitar documentación adicional para la determinación de la recomendación.
+2.2 El Grupo de Trabajo designado revisa los documentos del OEC mencionados, emite criterio técnico y presenta las observaciones y/o una conclusión de a revisión a la Secretaría de Acreditación respectiva.
 2.3 Si el Grupo de Trabajo solicita aclaraciones, la Secretaría de Acreditación notifica al OEC, al Equipo Evaluador, o ambos, en un plazo de 5 días hábiles.
 2.4 El responsable de dar respuesta a las aclaraciones, cuenta con un plazo de 5 días hábiles para remitir dichas aclaraciones a la Secretaría de Acreditación. Una vez recibida la información la Secretaría de Acreditación, lo presenta nuevamente al Grupo de Trabajo específico.
-2.5 Una vez que el Grupo de Trabajo esté conforme con la documentación presentada y no solicite ninguna aclaración al respecto emite su recomendación a la Secretaría de Acreditación respectiva.
-2.6 En lo casos donde la recomendación se emite para la Comisión de Acreditación, ver apartado 1.2 de este procedimiento, la Secretaría de Acreditación respectiva, en los próximos 5 días hábiles, traslada la recomendación a la Comisión de Acreditación para que dicho órgano colegiado continúe con el proceso de toma de decisión.
-2.7 En los casos donde la recomendación se emite para la Secretaría de Acreditación, la misma se traslada, en los próximos 2 días hábiles, a la Secretaría de Acreditación respectiva, para que esta emita la confirmación del estado de acreditación o realice las acciones que correspondan.
-2.8 Para la confirmación del estado de Acreditación y su envío al OEC, las Secretarías de Acreditación utilizan el formulario ECA-MP-P08-F04.
-2.9 Respecto a la conformación y funcionamiento de los diferentes Grupos de Trabajo de las Secretarías de Acreditación, ver instructivo ECA-MP-P08-I01.
+2.5 Una vez que el Grupo de Trabajo esté conforme con la documentación presentada y no solicite ninguna aclaración al respecto emite sus conclusiones a la Secretaría de Acreditación respectiva.
+2.6 La Secretaría de Acreditación respectiva realiza una revisión del trabajo del Grupo de Trabajo y de sus conclusiones para emitir una recomendación a la Comisión de Acreditación, en los casos que se requiera de una decisión por parte de la Comisión de Acreditación o procede a emitir y enviar, al OEC respectivo, la confirmación de su estado de acreditación. Respecto a cuando es requerida una decisión por parte de la Comisión de Acreditación o una confirmación del estado de acreditación por parte de la Secretaría de Acreditación, ver apartado 1.2 de este procedimiento.
+2.7 Para aquellos casos donde sea requerida una decisión por parte de la Comisión de Acreditación, la Secretaría de Acreditación respectiva, una vez que ha revisado el trabajo realizado por el Grupo de Trabajo, cuenta con un plazo de 5 días hábiles para trasladar la recomendación a la Comisión de Acreditación, para que dicho órgano colegiado continúe con el proceso de toma de decisión.
+2.8 En los casos donde no sea requerida una decisión por parte de la Comisión de Acreditación, la Secretaría de Acreditación respectiva, una vez revisado el trabajo realizado por el Grupo de Trabajo, cuenta con un plazo de 3 días hábiles, para emitir y enviar al OEC, la confirmación del estado de acreditación.
+2.9 Para la confirmación del estado de Acreditación y su envío al OEC, las Secretarías de Acreditación utilizan el formulario ECA-MP-P08-F04.
+2.10 Respecto a la conformación y funcionamiento de los diferentes Grupos de Trabajo de las Secretarías de Acreditación, ver instructivo ECA-MP-P08-I01.
 3 DECISIÓN POR PARTE DE LA COMISIÓN DE ACREDITACIÓN
 3.1 Para los procesos donde se requiere una revisión y decisión por parte de la Comisión de Acreditación, ver apartado 1.2 de este procedimiento, la Secretaría de Acreditación respectiva presenta a la Comisión de Acreditación la documentación descrita a continuación:
-a. Registro ECA-MP-P08-I01-F01 de Revisión por Grupos de Trabajo de las Secretarías
+a. Registro ECA-MP-P08-I01-F02 de recomendación de Secretarías de Acreditación a Comisión de Acreditación.
 b. Informe final de evaluación.
 c. Resultado de la verificación de acciones correctivas, cuando se hayan detectado no conformidades durante la evaluación in situ o remota
 d. Cualquier otra información de importancia o que sea relevante.
@@ -52,7 +53,7 @@ d) No otorgar o no ampliar (se debe indicar la debida fundamentación).
 a) Mantener la acreditación.
 b) OEC con la totalidad de las acciones correctivas cerradas e implementadas para las no conformidades detectadas, pero que, debido a la naturaleza de las no conformidades, se requiere verificar la continuidad del sistema, la Comisión de Acreditación puede mantener con condiciones (por ejemplo: acortar el intervalo de seguimiento, realizar alguna evaluación extraordinaria, solicitar informes periódicos entre otras).
 c) Aplazar la decisión de mantener, pendiente a la presentación de evidencias de acciones correctivas y/o cualquier otra información que la Comisión de Acreditación determine, o la realización de alguna actividad de seguimiento para confirmar la efectividad de las acciones correctivas.
-d) OEC con no conformidades abiertas, se toma la decisión de iniciar un procedimiento de investigación conforme al ECA-MC-P16 Procedimiento de investigación.
+d) OEC con no conformidades abiertas, se sigue lo indicado en el procedimiento ECA-MC-P16 Procedimiento de investigación.
 3.6.3 Decisiones a solicitud del OEC:
 a) La Comisión es la responsable de aceptar las solicitudes de reducción, suspensión, retiro o cancelación que el OEC haga voluntariamente al ECA, de manera documentada.
 Nota: En caso de suspensiones, reducción o retiros de forma voluntaria o solicitados por los OEC, se debe seguir lo establecido en ECA-MC-P34.
@@ -74,9 +75,11 @@ c) Los procesos de decisión parciales para subprocesos de evaluación, no se pu
 a) Cumplir las actividades de evaluación correspondientes.
 b) Realizar las actividades posteriores a la evaluación que sean aplicables.
 c) Realizar el proceso de toma de decisión correspondiente de acuerdo a este procedimiento.
-5 IDENTIFICACIÓN DE CAMBIOS
-Motivo: | Modificación del procedimiento ECA-MP-P08 debido a la implementación de nueva versión de norma INTE-ISO/IEC 17011:2017.
-Refiérase a la solicitud de elaboración o modificación del documento 2020-086
-Observaciones: Las modificaciones se subrayan en el documento.
-6 TRANSITORIO
+4.3 Para el proceso parcial que queda pendiente de toma decisión, se debe considerar como una ampliación del alcance de acreditación.
+4.4 Esta toma de decisión si es por solicitud voluntaria del OEC o por causas imputables a este, se debe cobrar el otorgamiento de esta ampliación.
+4.5 Si la decisión, se debe tomar de manera parcial por causas imputables al ECA, el otorgamiento no debe ser cancelado por el OEC.
+5 TRANSITORIO
 No aplica.
+6 IDENTIFICACIÓN DE CAMBIOS Motivo: | Modificación del procedimiento ECA-MP-P08
+Refiérase a la solicitud de elaboración o modificación del documento 2020-198
+Observaciones: Las modificaciones se subrayan en el documento.
