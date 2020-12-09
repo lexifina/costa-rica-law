@@ -1,0 +1,1 @@
+Artículo 17. DE LA VIGENCIA. Este Reglamento rige a partir de ser aprobado por el Comité Especial del Fideicomiso 02-99/MTSS/PRONAMYPE-BPDC, en sesión22-2020, acuerdo en firme 4090 del día 09-12-2020.

@@ -1,0 +1,1 @@
+Artículo 16. NORMATIVA COMPLEMENTARIA. Lo no dispuesto en en este Reglamento, se aplicarán las disposiciones de la Ley de Contratación Administrativa y su Reglamento. En caso de duda sobre la normativa a aplicar, tendrán prevalencia la Ley y su Reglamento.

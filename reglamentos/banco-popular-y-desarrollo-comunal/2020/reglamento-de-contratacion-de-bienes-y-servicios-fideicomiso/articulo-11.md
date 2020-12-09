@@ -1,0 +1,1 @@
+Artículo 11.CLAUSULA PENAL. El incumpliendo de cualquiera de las obligaciones establecidas en este Reglamento para el oferente contratado, faculta al Fideicomiso a aplicar la cláusula penal incluida en cada contrato para esos efectos.

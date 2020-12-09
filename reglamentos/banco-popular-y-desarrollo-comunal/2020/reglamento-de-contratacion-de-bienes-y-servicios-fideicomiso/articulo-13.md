@@ -1,0 +1,1 @@
+Artículo 13. DAÑOS Y PERJUICIOS. EL Fideicomiso estará facultado para resarcirse de los daños y perjuicios ocasionados por el incumplimiento de la empresa contratada, los cuales se podrán perseguir en vía judicial cuando la garatia de cumplimento resultare insuficiente.

@@ -1,0 +1,1 @@
+Artículo 8. REGISTRO DE PROVEEDORES. En este registro se podrán incluir las personas físicas y jurídicas que deseen participar en los procesos de contratación administrativa del Fideicomiso, cuyas solicitudes de incorporación podrán ser recibidas en cualquier momento.

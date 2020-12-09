@@ -1,0 +1,1 @@
+Artículo 18. DERROGATORIA Y DISPOSICIONES FINALES. El presente Reglamento deroga cualquier otro reglamento de adquisiciones del Contrato del Fideicomiso 02-99 MTSS-PRONAMYPE/BPDC, que se haya dictado previamente.

@@ -1,0 +1,1 @@
+Artículo 2.ALCANCES: La adquisición y contratación de bienes y servicios se regirá de acuerdo con los principios de la contratación administrativa y las normas establecidas en el presente Reglamento, el cual será de acatamiento obligatorio.
