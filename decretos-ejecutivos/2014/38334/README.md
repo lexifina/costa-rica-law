@@ -14,3 +14,4 @@ Aprueba Plan GAM 2013-2030 Actualización del Plan Regional de la Gran Área Met
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-04-30 | la propia norma |
+| 2 | 2020-12-09 | SINALEVI (sin norma nombrada) |
