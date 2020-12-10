@@ -1,0 +1,1 @@
+Artículo 3º.- Derogatoria. Deróguense los artículos 4º bis, 4º ter, 6º bis, 12º bis y 18º bis del Decreto Ejecutivo No. 41641-H, Reglamento al Título IV de la Ley No. 9635, denominado Responsabilidad Fiscal de la República, del 9 de abril del 2019.
