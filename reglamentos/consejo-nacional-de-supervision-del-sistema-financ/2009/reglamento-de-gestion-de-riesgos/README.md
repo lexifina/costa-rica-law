@@ -27,3 +27,4 @@ Reglamento de Gestión de Riesgos
 | 12 | 2019-03-05 | Reglamento 1485 (2019-03-05) |
 | 13 | 2019-11-25 | Reglamento 1545 (2019-11-25) |
 | 14 | 2020-11-16 | Reglamento 1620 (2020-11-16) |
+| 15 | 2020-12-10 | Reglamento 1630 (2020-12-10) |

@@ -15,6 +15,8 @@ iii. El valor de compra de las acciones, participaciones, títulos de participac
 Se consideran los saldos a fin de mes registrados en las cuentas de orden de la entidad, en forma independiente de su estado -disponible, pignorado, entre otros-.
 b. Requerimiento de capital por riesgo de gestión de fondos de inversión y vehículos de propósito especial
 En las sociedades administradoras de fondos de inversión este requerimiento corresponde a un 0,3% del activo neto promedio del mes anterior administrado por cada sociedad.
+En el caso de las sociedades administradoras que administren fondos de capital de riesgo, el requerimiento aplicable para este tipo de fondo, corresponde a un 0,6% del activo neto promedio del mes anterior.
+(Así adicionado el párrafo anterior en sesión N° 1630 del 10 de diciembre del 2020)
 En las sociedades titularizadoras y en las sociedades fiduciarias este requerimiento corresponde a un 0,3% del activo total promedio del mes anterior administrado por cada sociedad.
 Para el cálculo de los promedios señalados en este inciso, se consideran sólo los días hábiles.
 (Así reformado el inciso b) anterior en sesión N° 1124 del 8 de setiembre de 2014)
