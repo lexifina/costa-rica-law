@@ -19,3 +19,4 @@ Establece medidas de ordenamiento para el aprovechamiento de atún y especies af
 | 4 | 2019-10-08 | Decreto Ejecutivo 42031 (2019-10-08) |
 | 5 | 2020-04-21 | Decreto Ejecutivo 42333 (2020-04-21) |
 | 6 | 2020-09-23 | SINALEVI (sin norma nombrada) |
+| 7 | 2020-12-10 | Decreto Ejecutivo 42771 (2020-12-10) |
