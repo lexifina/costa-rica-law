@@ -1,0 +1,1 @@
+Artículo 2. Lista de vehículos eléctricos ofrecidos en el país. Los importadores de vehículos eléctricos deberán enviar a la Dirección de Energía del MINAE, en el mes de setiembre de cada año, los modelos de vehículos eléctricos más recientes y actualizados que serán ofrecidos en el país.

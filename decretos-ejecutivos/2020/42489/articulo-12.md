@@ -1,0 +1,2 @@
+Artículo 12. De la Revisión en el Departamento de Gestión de Exenciones. El Departamento de Gestión de Exenciones revisará la conformidad de la solicitud con la legislación respectiva y emitirá la autorización de exención de conformidad con el plazo establecido en el artículo 102 del Código de Normas y Procedimientos Tributarios.
+En caso de encontrarse inconsistencias en la solicitud, se devolverá la misma al interesado o bien a la Dirección de Energía para aclarar o adicionar la información consignada, dentro de un plazo máximo de tres días hábiles.

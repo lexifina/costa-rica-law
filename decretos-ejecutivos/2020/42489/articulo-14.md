@@ -1,0 +1,1 @@
+Artículo 14. De las Exoneraciones para repuestos de motor eléctrico y baterías. Según se establece en la Ley N°9518 en su artículo 11, la exoneración para repuestos relacionados con el funcionamiento del motor eléctrico y las baterías de los vehículos eléctricos tendrán una vigencia de diez años, a partir de la publicación de la Ley.

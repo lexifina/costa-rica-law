@@ -1,0 +1,1 @@
+Artículo 13. Del Plazo de resolución de solicitudes reingresadas a trámite. Cuando se trate de solicitudes devueltas por la Dirección de Energía o bien por el Departamento de Gestión de Exenciones, con el fin de aclarar o adicionar a la información presentada, el plazo para la resolución del trámite será de cinco días hábiles a partir del ingreso de la gestión.
