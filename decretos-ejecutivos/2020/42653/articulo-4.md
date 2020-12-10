@@ -1,0 +1,1 @@
+Artículo 4°—Solicitud. Para solicitar el servicio especial, el usuario deberá ingresar a la dirección electrónica https://www.imn.ac.cr/web/imn/solicitud-de-servicios, llenar la información en línea y adjuntar la documentación solicitada.

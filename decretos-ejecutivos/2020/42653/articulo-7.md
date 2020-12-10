@@ -1,0 +1,1 @@
+Artículo 7°—Pago. El pago por los servicios a brindar se debe realizar por medio de transferencia o por un depósito a la cuenta bancaria indicada en la página web del IMN. Dichos ingresos se deben depositar en la Caja Única del Estado y se incorporarán al presupuesto del IMN de cada año.

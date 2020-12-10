@@ -1,0 +1,1 @@
+Artículo 11.—Derogatoria. Deróguese el “Reglamento para el cobro de servicios especiales por parte del Instituto Meteorológico Nacional (IMN)”, Decreto Ejecutivo Nº20765¬MIRENEM del 23 de septiembre de 1991, publicado en La Gaceta N° 199 del 18 de octubre de 1991.

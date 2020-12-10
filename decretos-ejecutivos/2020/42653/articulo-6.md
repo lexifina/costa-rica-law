@@ -1,0 +1,1 @@
+Artículo 6°—Cotización. El DIM será el encargado de determinar el costo por el servicio especial solicitado, con fundamento en lo señalado en el artículo anterior; debiendo comunicar lo correspondiente al interesado para obtener su aprobación en un plazo de tres días hábiles, de previo a iniciar la elaboración del trabajo solicitado.
