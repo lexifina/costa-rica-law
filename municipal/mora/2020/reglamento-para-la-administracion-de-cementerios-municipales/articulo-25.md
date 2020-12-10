@@ -1,0 +1,1 @@
+Artículo 25.—Servicio en días inhábiles. En días inhábiles el Departamento de Administración de Cementerios Municipales deberá garantizar la efectiva prestación del servicio. Se le cancela el servicio al Panteonero y el interesado queda en la ineludible obligación de presentarse en la Municipalidad el día hábil siguiente a completar el trámite respectivo.

@@ -1,0 +1,2 @@
+Artículo 20 bis.—Alquiler de los cenizarios: El contrato de alquiler de los cenizarios se realizará por un período mínimo de 5 años, que puede ser prorrogable, se cancelará la tarifa cada año y este servicio la Municipalidad lo podrá dar en arrendamiento a todos los interesados, siempre y cuando existan cenizarios disponibles.6
+6 Artículo 20b incluido en reforma aprobada por el Concejo Municipal en la sesión Ordinaria número 11, celebrada el 13 de julio del 2020, ratificada el día 20 de julio de 2020.

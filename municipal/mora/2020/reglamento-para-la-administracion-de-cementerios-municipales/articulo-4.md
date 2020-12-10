@@ -1,0 +1,1 @@
+Artículo 4º—Los bienes existentes y que se adquieran y los recursos económicos que ingresen a la Municipalidad de Mora por concepto de derechos o cuotas de mantenimiento de los cementerios, serán destinados exclusivamente a su mantenimiento, mejoramiento e inversión.

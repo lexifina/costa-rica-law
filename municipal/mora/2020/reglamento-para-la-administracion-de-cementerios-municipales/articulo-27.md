@@ -1,0 +1,1 @@
+Artículo 27.—Vigencia y derogatoria. El presente Reglamento entrará en vigencia después de su publicación en La Gaceta y deroga toda disposición reglamentaria municipal anterior que se le oponga, entiéndase Reglamento para la Administración de los Cementerio Municipales del Cantón de Mora, publicado en La Gaceta N° 240 del 10 de diciembre del 2015.
