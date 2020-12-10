@@ -1,0 +1,1 @@
+Artículo 12.—Le corresponderá al Concejo Municipal dictar el acto final en los procedimientos de contratación administrativa que supere el monto equivalente al treinta por ciento (30%) del límite superior establecido por la Contraloría General de la República para la Licitación Abreviada según el estrato donde se ubique la Municipalidad de Alajuela.
