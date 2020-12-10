@@ -1,4 +1,6 @@
-Artículo 17 —Recursos de revocatoria y apelación. El estudiante al que se le deniegue o que no esté de acuerdo con la resolución de beca o beneficio estudiantil asignado, podrá interponer los recursos ordinarios de revocatoria y apelación subsidiaria ante la Coordinación de Vida Estudiantil respectiva, dentro del plazo de tres días hábiles contados a partir del momento en que se notificó la resolución correspondiente.
-La Coordinación del Área de Vida Estudiantil debe resolver el recurso de revocatoria.
-Si el recurso es rechazado, la Coordinación del Área de Vida Estudiantil notifica la resolución de la revocatoria y lo elevará al Decano para el trámite de la apelación subsidiaria.
-Ambos recursos deberán ser resueltos en el plazo de 5 días hábiles.
+Artículo 17 —Recursos de revocatoria y apelación. La persona estudiante al que se le deniegue o que no esté de acuerdo con la resolución de beca o beneficio asignado, puede interponer el recurso de revocatoria ante la Subárea de Becas y Beneficios Estudiantiles respectiva, dentro del plazo de tres días hábiles contados a partir del momento en que se notificó la resolución correspondiente.
+La Subárea de Becas y Beneficios Estudiantiles debe revisar la solicitud y presentar la recomendación técnica ante la Coordinación del Área de Vida Estudiantil, quien debe resolver la revocatoria mediante resolución fundada.
+Si el recurso de revocatoria es rechazado, la persona estudiante puede interponer el recurso de apelación en forma escrita y justificada ante la Decanatura, en el plazo de tres días hábiles contados a partir del momento en que recibe la notificación de la resolución del recurso de revocatoria.
+La Decanatura traslada los recursos de apelación al Consejo Técnico de Trabajo Social, para que dicho órgano emita su recomendación técnica al respecto. Dichas recomendaciones son remitidas ante la Decanatura, quien debe resolver la apelación mediante resolución fundada.
+Ambos recursos deben ser resueltos en el plazo de 5 días hábiles.
+(Así reformado en session N° 30-2020 del 10 de diciembre del 2020)

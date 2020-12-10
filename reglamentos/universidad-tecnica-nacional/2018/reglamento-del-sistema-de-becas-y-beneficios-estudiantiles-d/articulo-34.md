@@ -1,1 +1,2 @@
-Artículo 34 —Definición de montos para beneficios complementarios. Es función de la Vicerrectoría de Vida Estudiantil proponer anualmente al “Comité para el análisis del presupuesto de becas y beneficios estudiantiles”, los montos mínimos y máximos que satisfagan las necesidades estudiantiles para la adjudicación de ayudas económicas ordinarias, ayudas económicas de alimentación y ayudas económicas de apoyo residencial estudiantil.
+Artículo 34 —Definición de montos para beneficios complementarios. Es función de la Vicerrectoría de Vida Estudiantil definir anualmente los montos mínimos y máximos para la adjudicación de los beneficios complementarios.
+(Así reformado en session N° 30-2020 del 10 de diciembre del 2020)
