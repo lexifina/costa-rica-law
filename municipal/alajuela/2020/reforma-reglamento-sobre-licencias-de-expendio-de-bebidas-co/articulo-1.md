@@ -1,0 +1,4 @@
+MUNICIPALIDAD DE ALAJUELA
+Para los fines legales correspondientes, se publica por segunda vez la “Reforma del artículo 38 del Reglamento sobre licencias de expendio de bebidas con contenido alcohólico de la Municipalidad de Alajuela, aprobado por el Concejo Municipal en el artículo 13, Capítulo VI de la Sesión Ordinaria Nº 41-2018, luego de analizados los comentarios recibidos en la primera publicación de consulta pública.
+Artículo 1º—Refórmese el artículo 38 para que se lea:
+“Artículo 38.—Imposición de sanciones. La Municipalidad podrá imponer las sanciones establecidas en el capítulo IV de la Ley, para lo cual deben respetarse los principios del debido proceso, la verdad real, el impulso de oficio, la imparcialidad y la publicidad, respetando además los trámites y formalidades que informan el procedimiento administrativo sumario estipulado en el Libro Segundo de la Ley General de la Administración Pública.”

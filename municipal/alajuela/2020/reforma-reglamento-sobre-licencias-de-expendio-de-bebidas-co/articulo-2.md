@@ -1,0 +1,3 @@
+Artículo 2º—Incorpórese un nuevo artículo, con el número 38 bis, para que se lea de la siguiente forma:
+“Artículo 38 bis.—Sobre el Procedimiento Administrativo. De conformidad con lo dispuesto en los artículos 89 siguiente y concordantes de la Ley General de la Administración Pública; se delega a la Actividad de Patentes, como responsable de iniciar e instruir los procedimientos administrativos sumarios tendientes a determinar la procedencia del cobro de multa en aquellos casos que los titulares de licencias incurran en alguna falta que amerite una sanción de las previstas en el Capítulo IV de la Ley de Regulación y Comercialización de Bebidas con Contenido Alcohólico y que sean competencia de este municipio”.
+Rige a partir de su publicación.
