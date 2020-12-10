@@ -13,3 +13,4 @@ Pautas para el tratamiento del alcoholismo en el Poder Judicial
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-10-27 | la propia norma |
+| 2 | 2020-12-10 | Circular 270 (2020-12-10) |
