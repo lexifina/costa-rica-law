@@ -1,0 +1,4 @@
+Artículo 2º—Adición. Adiciónese el artículo 243 bis al Reglamento a la Ley de Promoción de la Competencia y Defensa Efectiva del Consumidor, N° 7472, Decreto Ejecutivo N° 37899-MEIC del 08 de julio de 2013, Publicado en el Diario Oficial La Gaceta N° 182 del 23 de setiembre del 2013, para que en adelante se lea:
+“Artículo 243 Bis.—La tramitación de la autorización de las ventas a plazo de bienes o de ejecución futura de servicios en cualquiera de las modalidades, podrá realizare por medios digitales, siempre y cuando los documentos presentados por la parte se encuentren firmados digitalmente. En tal caso, deberán remitirse al correo autorizaciones@meic.go.cr.
+Si se opta por el trámite impreso, los documentos deberán ser presentados por el solicitante en sobre cerrado en las instalaciones del MEIC
+En ambos trámites la parte deberá señalar un correo electrónico para atender notificaciones.”

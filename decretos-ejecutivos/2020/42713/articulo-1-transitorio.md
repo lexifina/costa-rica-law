@@ -1,0 +1,1 @@
+Transitorio Único.—La Comisión Nacional del Consumidor podrá ordenar que en aquellos procesos administrativos ya iniciados, las audiencias se realicen de conformidad con lo dispuesto en el artículo 188 de la presente reforma.
