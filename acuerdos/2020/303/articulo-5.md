@@ -1,0 +1,1 @@
+Artículo 5º—El presente acuerdo podrá ser revisado por la Junta Directiva de Incopesca, en el plazo de 6 meses a partir de su entrada en vigencia, en caso de que en el seno de la CIAT se adopten medidas de conservación que puedan afectar el contenido de este acuerdo.
