@@ -1,0 +1,1 @@
+Artículo 3º—Derogatoria. Deróguense los Decretos Ejecutivos Nos. 41063-MOPT, del 05 de abril del 2018, publicado en el Diario Oficial La Gaceta N° 80 del 09 de mayo del 2018 y 42071-MOPT, del 15 de octubre del 2019, publicado en el Diario Oficial La Gaceta N° 237 del 12 de diciembre del 2019.
