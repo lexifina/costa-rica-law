@@ -1,0 +1,1 @@
+Artículo 11- En caso de que la persona extranjera no realice los trámites pertinentes para renovar su categoría especial dentro de los tres meses siguientes a su vencimiento, conforme al artículo 129 inciso 10 de la Ley General de Migración, la categoría migratoria quedará extinta para todo efecto legal, sin necesidad de realizar procedimiento alguno de cancelación.

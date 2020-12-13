@@ -1,0 +1,1 @@
+Artículo 10. No se autorizará esta categoría, ni se renovará la misma, a la persona extranjera que haya cumplido condena por delito doloso en los últimos diez años, en Costa Rica o en el extranjero, siempre y cuando el ilícito sea reconocido como tal en nuestra legislación. Tampoco a aquella que constituya una amenaza en materia de seguridad y orden públicos.
