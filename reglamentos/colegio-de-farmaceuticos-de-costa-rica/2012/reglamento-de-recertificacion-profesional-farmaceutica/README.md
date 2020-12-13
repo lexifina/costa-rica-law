@@ -15,3 +15,4 @@ Reglamento de Recertificación Profesional Farmacéutica
 | --- | --- | --- |
 | 1 | 2013-03-18 | la propia norma |
 | 2 | 2019-12-08 | Reglamento 0 (2019-12-08) |
+| 3 | 2020-12-13 | Reglamento 0 (2020-12-13) |
