@@ -18,3 +18,4 @@ Reglamento de Especialidades Farmacéuticas
 | 3 | 2012-12-09 | Reglamento 0 (2012-12-09) |
 | 4 | 2016-07-18 | Reglamento 0 (2016-07-18) |
 | 5 | 2019-07-29 | Reglamento 0 (2019-07-29) |
+| 6 | 2020-12-13 | Reglamento 0 (2020-12-13) |
