@@ -1,1 +1,0 @@
-Artículo 6- El trámite general de las solicitudes, será el que establece la Ley General de Migración, así como el que determine la Dirección General de Migración y Extranjería en razón de sus facultades de autodeterminación administrativa.

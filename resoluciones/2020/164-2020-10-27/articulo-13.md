@@ -1,1 +1,0 @@
-Artículo 13- En ausencia de disposición expresa en la presente resolución, se aplicará supletoriamente, en lo que fuere compatible los diferentes reglamentos de la Ley General de Migración y Extranjería.
