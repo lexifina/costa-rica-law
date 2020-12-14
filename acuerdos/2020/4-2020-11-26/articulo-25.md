@@ -1,0 +1,1 @@
+Artículo 25.—Custodia de la Documentación en Ventanilla Única. Toda la documentación que ingrese en soporte físico se mantendrá en custodia de la Ventanilla Única hasta ser entregada al destinatario interno según las disposiciones establecidas en el presente protocolo.

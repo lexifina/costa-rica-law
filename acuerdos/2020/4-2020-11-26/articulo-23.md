@@ -1,0 +1,2 @@
+Artículo 23.—Mantenimiento de la cuenta de correo. Se debe realizar una revisión constante a la bandeja de “entrada”, “no deseado” y “elementos eliminados” del correo oficial, con la finalidad de detectar si hay información importante en dichos apartados que deba ser tramitada.
+Diariamente se archivan los correos que se encuentran en la “bandeja de entrada” de la cuenta institucional. Cuando ingresa un correo “no deseado” a la cuenta institucional se elimina.

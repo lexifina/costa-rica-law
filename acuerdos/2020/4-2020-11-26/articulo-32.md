@@ -1,0 +1,1 @@
+Artículo 32.—Suspensión temporal del servicio. En caso fortuito que obligue a suspender el servicio para la atención de la situación, se restablecerá lo antes posible, según las indicaciones de la autoridad competente.

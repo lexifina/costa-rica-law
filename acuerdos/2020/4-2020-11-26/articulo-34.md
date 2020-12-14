@@ -1,0 +1,1 @@
+Artículo 34.—Documentación mal remitida. Cuando por error humano un documento recibido en VU haya sido enviado a un destinatario que no corresponda, deberá ser devuelto a VU siempre y cuando no se haya aceptado el caso. En este supuesto el destinatario que recibió el documento por error deberá comunicarlo al SGDE para su reasignación.

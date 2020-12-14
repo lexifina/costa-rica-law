@@ -1,0 +1,1 @@
+Artículo 12.—Limitaciones. Toda documentación de carácter privado que llegue a la Asamblea Legislativa, a título personal, citando o no el cargo del funcionario o funcionaria, será considerada correspondencia no oficial, por lo que no genera ningún trámite para el proceso VU, siendo que no serán de recibo.

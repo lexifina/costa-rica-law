@@ -1,0 +1,1 @@
+Artículo 3º—Alcance. Este protocolo es de carácter institucional y aplica a toda la documentación que ingresa de manera externa a la Institución proveniente de cualquier persona física o jurídica, pública o privada.

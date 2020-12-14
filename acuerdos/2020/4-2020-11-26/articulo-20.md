@@ -1,0 +1,2 @@
+Artículo 20.—Documentos sujetos a término fijo. Cuando la documentación presentada a VU esté sujeta a término fijo, se deberá aplicar lo estipulado en el artículo 48 del Reglamento de la Asamblea Legislativa, es decir, la documentación se deberá entregar, directamente, a uno de los Secretarios del Directorio o en la Dirección Ejecutiva, mediante razón de recibo en la que se indiquen la hora y la fecha.
+Una vez presentada la documentación con dicha característica se procederá a hacer la entrega de forma inmediata.

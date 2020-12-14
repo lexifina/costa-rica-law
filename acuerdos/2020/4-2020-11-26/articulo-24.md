@@ -1,0 +1,1 @@
+Artículo 24.—Hora de recepción. Sin excepción, la fecha y hora de ingreso de la correspondencia electrónica será el de su recepción en la cuenta de correo electrónico institucional: VentanillaUnica@asamblea.go.cr.

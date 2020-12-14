@@ -1,0 +1,1 @@
+Artículo 7º—Administración. La administración de VU corresponderá al Departamento de Gestión Documental y Archivo (DGDA) de la Institución, el cual será el encargado y responsable de brindar el servicio de recepción de documentos, registro y direccionamiento a quien corresponda.
