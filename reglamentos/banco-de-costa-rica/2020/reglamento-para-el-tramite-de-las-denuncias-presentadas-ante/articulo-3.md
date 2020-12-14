@@ -1,0 +1,1 @@
+Artículo 3º—Ámbito de competencia. La Auditoría Interna dará trámite únicamente a aquellas denuncias que versen sobre posibles hechos irregulares o ilegales en relación con el uso y manejo de fondos públicos por parte de las personas trabajadoras de BCR Corredora de Seguros S.A., según lo regulado por la Ley contra la corrupción y el enriquecimiento ilícito en la función pública.
