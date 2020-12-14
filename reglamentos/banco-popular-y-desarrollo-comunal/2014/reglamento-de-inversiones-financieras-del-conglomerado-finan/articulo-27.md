@@ -1,1 +1,0 @@
-Artículo 27. - Vigencia. El presente reglamento deroga el reglamento vigente, aprobado en sesión ordinaria Nº 4774 celebrada el 22 de julio del 2010 y publicado en La Gaceta N° 158 del 16 de agosto del 2010 .

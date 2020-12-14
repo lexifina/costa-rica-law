@@ -1,2 +1,0 @@
-De las inversiones
-Artículo 19. - Inversiones autorizadas. Todo valor por adquirir debe estar autorizado para circular en una bolsa y tener al menos la escala de calificación de riesgo igual o superior a la de Costa Rica, emitida por una empresa calificadora de riesgo debidamente autorizada para operar en el mercado respectivo. No obstante, en el mercado local se podrá invertir en los valores indicados en el artículo 10 de la Ley Reguladora del Mercado de Valores.
