@@ -1,0 +1,2 @@
+Artículo 102.—Actas. En cada sesión virtual de las asambleas de las organizaciones deportivas y recreativas; y organizaciones comunales se levantará el acta. Además, el acta de la sesión deberá indicar cuál de los postulantes ha estado “presente” en forma virtual en su caso mediante qué mecanismo tecnológico se produjo la presencia y las razones por las cuales la sesión se realizó en forma virtual.
+(Así adicionado mediante sesión ordinaria N° 51-20 del 14 de diciembre del 2020)

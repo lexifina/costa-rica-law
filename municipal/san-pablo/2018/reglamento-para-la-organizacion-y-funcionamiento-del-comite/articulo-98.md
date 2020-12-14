@@ -1,4 +1,5 @@
-Artículo 98. Validez. Rige a partir de su publicación en el Diario Oficial La Gaceta.
-II. Instruir a la Administración Municipal para que realice la publicación de forma definitiva de dicho reglamento en el Diario Oficial La Gaceta, ya que mediante el alcance N° 198 del lunes 14 de agosto de 2017, se cumplió con el proceso respectivo de consulta pública.
-ACUERDO UNÁNIME Y DECLARADO DEFINITIVAMENTE APROBADO N° 83-18
-San Pablo de Heredia, 05 de marzo del 2018 .
+Artículo 98.—De la inscripción de los postulantes.
+Para poder participar en las asambleas de cada sector, el o la postulante deberá:
+1) Llenar los formularios u hojas de inscripción que suministrará la alcaldía municipal (o el CCDRS cuando corresponda) a través de su secretaría o por los medios que considere pertinentes tales como páginas web, redes sociales, etc.
+2) Indicar si tiene acceso a computadora o dispositivo con acceso a internet. De lo contrario, deberá manifestar la imposibilidad de contar con lo indicado, para lo cual la municipalidad se pondrá en contacto para garantizar la participación mediante medios propios o bien mediante alianzas estratégicas con organizaciones públicas o privadas.
+(Así adicionado mediante sesión ordinaria N° 51-20 del 14 de diciembre del 2020)
