@@ -1,0 +1,8 @@
+CIRCULAR N° 284-2020
+ASUNTO: Reiteración de la circular N° 174-2020 denominada “Competencia funcional de los Juzgados Contravencionales y Penales, tanto de turno ordinario como extraordinario, en general, para abordar las solicitudes de órdenes de allanamiento por parte del Ministerio de Salud”.
+A LOS DESPACHOS JUDICIALES DEL PAÍS QUE CONOCEN
+MATERIA PENAL Y CONTRAVENCIONAL, ABOGADOS,
+ABOGADAS Y AL PÚBLICO EN GENERAL
+SE LES HACE SABER QUE:
+El Consejo Superior del Poder Judicial en sesión Nº 116- 20 celebrada el 3 de diciembre de 2020, artículo XLIX, tuvo por conocido el oficio N° CJP215-2020 de 23 de noviembre de 2020, de la Comisión de la Jurisdicción Penal, a esos efectos, dispuso reiterar lo resuelto en sesión N° 74-20, celebrada el 23 de julio de 2020, artículo XXI, en el que se acogió e hizo de conocimiento el informe N° 1057-PLA-OI-2020 del 16 de julio de 2020 de la Dirección de Planificación, referente a la competencia funcional de los Juzgados Contravencionales y Penales, tanto de turno ordinario como extraordinario, en general, para abordar las solicitudes de órdenes de allanamiento por parte del Ministerio de Salud. Por lo que en las causas que corresponden a una contravención, en caso de presentarse la solicitud en horario no hábil y en fines de semana tanto en el Primer como en el Segundo Circuito Judicial de San José, deberán ser atendidas por el Juzgado Penal de Turno Extraordinario de la zona correspondiente; y en los circuitos donde no exista este tipo de despacho (el resto del país menos San José) se atienda con la disponibilidad del Juzgado Penal de cada zona, entendiendo que el Juzgado Contravencional no atiende disponibilidad.”
+San José, 14 de diciembre de 2020.
