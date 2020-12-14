@@ -1,0 +1,1 @@
+Artículo 15.—Sanciones. Cualquier trasgresión a las presentes disposiciones será sancionada de conformidad con lo previsto en Reglamento Autónomo de Organización y Servicio de la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias (RAOS), o los contemplados en el Estatuto del Servicio Civil.

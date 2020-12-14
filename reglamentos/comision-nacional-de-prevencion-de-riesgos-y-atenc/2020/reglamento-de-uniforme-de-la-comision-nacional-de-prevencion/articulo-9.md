@@ -1,0 +1,1 @@
+Artículo 9º—Suéter, jacket o abrigo. Cuando se utilice suéter, jackets o abrigo con cualquiera de los uniformes, éste deberá ser del mismo color del pantalón o en un tono similar. En caso de que la Institución eventualmente facilite esta prenda para este tipo de uniforme, será únicamente la que se utilizará.

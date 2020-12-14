@@ -1,0 +1,1 @@
+Transitorio II.—De la utilización camisas tipo aventurera color gris y blanca manga larga. Los funcionarios podrán utilizar este tipo de prenda siempre y cuando estén en buenas condiciones por un periodo de 1 año. Se autoriza la confección de parche bordado con el nuevo logo, para que pueda ser sustituido en las prendas indicadas.

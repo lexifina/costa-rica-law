@@ -1,0 +1,1 @@
+Transitorio IV.—De la utilización de otras prendas en existencia que formen parte del uniforme: En el caso de jaquets y gorras institucionales en buen estado, se procederá a sustituir el logo, para el aprovechamiento de las mismas.

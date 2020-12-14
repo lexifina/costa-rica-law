@@ -1,0 +1,1 @@
+Artículo 12.—Sobre el equipo de protección personal. La descripción y usos de los diferentes tipos de equipo de protección personal que utiliza la Institución, para atender las situaciones específicas de emergencia o trabajo de campo, será definido por el Área de Salud Ocupacional o por la jefatura inmediata dependiendo de los riesgos a los que se esté expuesto.

@@ -1,0 +1,1 @@
+Artículo 4º—Compromiso del funcionario. Al portar el uniforme institucional, el colaborador asume el compromiso de servicio y respeto hacia la Institución, obligándose por ello a conducirse, mientras lo porte, conforme a los más reconocidos valores éticos, morales, espirituales y cívicos de un ciudadano ejemplar al servicio de la Patria.

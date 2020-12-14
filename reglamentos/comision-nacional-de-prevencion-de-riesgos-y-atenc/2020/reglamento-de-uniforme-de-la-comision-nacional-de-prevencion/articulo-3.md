@@ -1,0 +1,2 @@
+CAPÍTULO II
+Artículo 3º—Uso del uniforme institucional. Los funcionarios de la Comisión Nacional de Prevención de Riesgo y Atención de Emergencias estarán en la obligación de utilizar en el ejercicio de sus labores, el uniforme que la Institución les asigne de acuerdo con su cargo, función y responsabilidad. La Administración definirá el uso de cada tipo de uniforme de acuerdo con el objetivo de cada actividad a la que sean convocados los funcionarios.
