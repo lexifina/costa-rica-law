@@ -1,1 +1,0 @@
-Artículo 2º—Elaboración y modificaciones. El Auditor Interno deberá elaborar el reglamento así como sus modificaciones y someterlo a aprobación de la Junta Directiva del Colegio de Contadores Públicos de Costa Rica (CCPCR) y de la Contraloría General de la República, cada cual según sus competencias.

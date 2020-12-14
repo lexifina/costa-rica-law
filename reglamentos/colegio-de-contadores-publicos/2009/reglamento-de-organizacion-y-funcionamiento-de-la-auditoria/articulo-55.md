@@ -1,3 +1,0 @@
-Artículo 55.—Registro de la información. Los funcionarios de la Auditoría Interna deben registrar información relevante que les permita apoyar los hallazgos, conclusiones, recomendaciones y demás resultados del trabajo.
-1. Acceso a los registros del trabajo. El auditor interno debe controlar el acceso a los registros del trabajo de personas ajenas a la Auditoría Interna, de modo que se realice sólo con su autorización o la de quien él designe.
-2. Requisitos de custodia. El auditor interno debe establecer requisitos de custodia para los registros y documentación del trabajo. Estos requisitos de retención deben ser consistentes con las regulaciones pertinentes u otros requerimientos sobre este tema.

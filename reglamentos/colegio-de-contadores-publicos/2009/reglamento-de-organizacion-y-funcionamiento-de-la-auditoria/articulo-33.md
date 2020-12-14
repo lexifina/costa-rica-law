@@ -1,1 +1,0 @@
-Artículo 33.—De las plazas vacantes. Las plazas vacantes que por cualquier razón tengan lugar en la Auditoría Interna deberán ser ocupadas en los términos y plazos que establece el artículo 28 de la Ley de Control Interno. La disminución de plazas, por cualquier motivo, deberán previamente ser autorizados por el Auditor Interno.

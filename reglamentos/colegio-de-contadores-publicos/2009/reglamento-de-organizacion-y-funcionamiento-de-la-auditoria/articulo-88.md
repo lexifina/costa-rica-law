@@ -1,3 +1,0 @@
-SECCIÓN 8
-Programa de aseguramiento de la calidad
-Artículo 88.—Programa de aseguramiento de la calidad. El Auditor Interno debe desarrollar, aplicar, mantener y perfeccionar un programa de aseguramiento de la calidad que cubra todos los aspectos de la actividad de Auditoría Interna. El alcance de este programa estará en función de los recursos humanos y materiales con que cuente la Auditoría Interna así como la oportunidad. Este programa incluye evaluaciones de calidad externas e internas periódicas y supervisión interna continua. Cada parte del programa debe estar diseñada para ayudar a los procesos de la actividad de Auditoría Interna con el fin de coadyuvar en el cumplimiento de su misión.

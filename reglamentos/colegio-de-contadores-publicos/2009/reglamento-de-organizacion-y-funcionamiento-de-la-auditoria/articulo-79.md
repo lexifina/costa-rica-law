@@ -1,1 +1,0 @@
-Artículo 79.—Admisión de denuncias anónimas. Las denuncias anónimas serán atendidas en el tanto aporten todos los elementos de convicción suficientes y se encuentren sustentadas en medios probatorios idóneos que permitan iniciar la investigación, de lo contrario se archivará la denuncia.

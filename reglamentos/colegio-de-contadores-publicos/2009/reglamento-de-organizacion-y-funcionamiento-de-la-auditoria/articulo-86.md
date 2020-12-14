@@ -1,1 +1,0 @@
-Artículo 86.—Presupuestación del programa de capacitación. Cada año la Auditoría Interna preparará un programa de capacitación y entrenamiento para sus funcionarios, el cual será incluido en el presupuesto ordinario que se somete a aprobación de la Junta Directiva.
