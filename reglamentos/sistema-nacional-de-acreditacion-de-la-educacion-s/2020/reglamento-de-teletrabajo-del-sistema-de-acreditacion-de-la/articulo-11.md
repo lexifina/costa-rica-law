@@ -1,0 +1,5 @@
+Artículo 11.—Sobre los activos para ejecutar el teletrabajo. Los activos institucionales que se entreguen al teletrabajador para que realice su labor deben ser resguardados tanto en su uso como en el traslado hacia el lugar donde va a realizar la modalidad de teletrabajo.
+En caso de extravío o deterioro, se procederá de acuerdo con lo establecido en la normativa interna para la gestión de activos institucionales, y siguiendo el debido proceso se determinará la responsabilidad del funcionario por deterioro o pérdida de activos.
+En caso de robo el funcionario debe presentar la denuncia ante las autoridades competentes externas a la institución e informar por escrito a su superior jerárquico indicando lo sucedido.
+Todo funcionario del SINAES que manipule activos propiedad de la Institución será responsable por los bienes que le han sido asignados o entregados, en cuanto a su adecuado uso, mantenimiento, administración, conservación y custodia.
+Toda salida de activos tecnológicos de la institución debe de ser reportada ante el área de Tecnologías de Información.

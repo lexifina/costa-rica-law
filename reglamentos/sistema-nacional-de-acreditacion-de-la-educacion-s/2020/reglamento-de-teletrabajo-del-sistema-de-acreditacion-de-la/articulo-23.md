@@ -1,0 +1,1 @@
+Artículo 23.—Excepciones a la aplicación de la modalidad de Teletrabajo. Los funcionarios que deben participar en las sesiones del Consejo Nacional de Acreditación tienen que ajustarse semanalmente a la modalidad que se vaya a ejecutar en dicha sesión.

@@ -1,0 +1,3 @@
+Artículo 2°—Ámbito de aplicación. Este reglamento es aplicable a los funcionarios de SINAES, que realicen funciones aptas para prestar sus servicios en la modalidad de teletrabajo. En ningún caso, se aplicará un cien por ciento del tiempo laboral.
+Se dará a conocer la modalidad y se mantendrá informada a todos los funcionarios mediante un programa de divulgación institucional.
+La incorporación a la modalidad de teletrabajo es voluntaria por parte del funcionario, cuando el cargo así lo faculte. La institución tiene la potestad para otorgar y revocar la modalidad de teletrabajo, cuando así lo considere conveniente y con fundamento en las políticas y lineamientos emitidos al efecto.

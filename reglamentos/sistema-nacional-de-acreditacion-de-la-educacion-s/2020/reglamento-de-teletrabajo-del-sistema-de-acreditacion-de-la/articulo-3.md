@@ -1,0 +1,1 @@
+Artículo 3°—Normativa aplicable. El presente Reglamento se realiza de acuerdo con el Decreto Ejecutivo N° 39225-MP-MTSSMICITT, la Ley 9738 para regular el Teletrabajo, la Ley General de la Administración Pública, el Código de Trabajo y el capítulo VII, artículo 20, del Reglamento Autónomo de Trabajo del SINAES.

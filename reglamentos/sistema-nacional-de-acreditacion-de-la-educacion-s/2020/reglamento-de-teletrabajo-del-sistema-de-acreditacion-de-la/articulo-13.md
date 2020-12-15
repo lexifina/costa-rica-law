@@ -1,0 +1,1 @@
+Artículo 13.—Facultad de la institución para dejar sin efecto las medidas de teletrabajo. La Dirección Ejecutiva podrá suspender temporal o permanentemente las actividades de teletrabajo en el momento que no se estén cumpliendo los objetivos previamente establecidos o en caso de requerir la presencia física del funcionario en el centro de trabajo.

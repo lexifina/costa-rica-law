@@ -1,0 +1,8 @@
+Artículo 5°—Definiciones:
+• Adenda al Contrato Laboral: documento firmado entre la funcionaria o el funcionario y el representante del empleador, en el que se especifican detalladamente las condiciones de la relación de servicio mediante la modalidad de teletrabajo.
+• DSAG: División de Servicios de Apoyo a la Gestión.
+• (Horario) laboral en teletrabajo: es el periodo de tiempo en el que se somete el teletrabajador para cumplir con su jornada laboral. Esta da inicio a las 7:30 horas y finaliza de las 16:00 horas. En caso de establecerse nuevos horarios en el SINAES se hará la respectiva adecuación a los funcionarios teletrabajadores.
+• Teletrabajo: es la prestación de servicios de carácter no presencial fuera de las instalaciones del patrono, o lugar destinado, según sea autorizado, siempre y cuando medie el uso de las tecnologías de la información, para el cumplimiento de actividades asignadas. El mismo, no implica variación del contrato laboral. El teletrabajo es voluntario, y quien se acoge a éste deberá acatar la normativa establecida para esta modalidad y el resto de la normativa institucional.
+• Teletrabajador: funcionario(a) de la institución que desempeña su labor de acuerdo con la modalidad de teletrabajo.
+• Trabajo por objetivos: este se concibe como las actividades específicas puntuales que se asignan a un funcionario por un tiempo determinado. Deben ser cuantificables y sujetos a medición mediante indicadores. El trabajo por objetivos cuenta con un producto o acciones específicas acordadas entre la jefatura y el funcionario o dadas por la jefatura.
+• Teletrabajo domiciliario: es el que se realiza desde el domicilio del funcionario.
