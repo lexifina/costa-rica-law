@@ -1,0 +1,1 @@
+Artículo 2º.-Modifíquese el Anexo 6 de la resolución DGT-R-13-2020 de las ocho horas con cinco minutos del once de junio de dos mil veinte, denominada “Resolución sobre cobro y percepción del impuesto sobre el valor agregado sobre servicios digitales transfronterizos”, para que en el lugar de “SKY” diga “SKYPE”.
