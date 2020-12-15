@@ -1,0 +1,4 @@
+Artículo 4º—De acuerdo con lo dispuesto en la Ley Orgánica del INVU y la Política de Inversiones aprobada por la Junta Directa, los recursos del INVU, incluidos los del Sistema de Ahorro y Préstamo, deberán ser invertidos en la adquisición de los siguientes activos financieros:
+1. Bonos, demás activos financieros y modalidades de inversión de renta fija o variable, 100% públicos emitidos por la Tesorería Nacional, los Bancos Estatales, el Banco Popular y de Desarrollo Comunal y el Banco Hipotecario de la Vivienda.
+2. Otros instrumentos y modalidades de inversión, inscritos en el Registro Nacional de Valores e Intermediarios, siempre y cuando se cuente de previo con la autorización expresa de la Junta Directiva y conste en actas las razones por las cuales se decide realizar la inversión en esos títulos.
+Todos los instrumentos indicados en este artículo deberán ser de oferta 100% públicos.

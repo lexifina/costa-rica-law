@@ -1,0 +1,2 @@
+Artículo 5º—Los recursos del INVU y del SAP no podrán ser invertidos en lo siguiente:
+a) Valores emitidos o garantizados por miembros de la Junta Directiva, gerentes o apoderados del INVU, parientes de estos hasta el tercer grado de consanguinidad, o por personas físicas o jurídicas que tengan en Entidades Financieras o Empresas una participación accionaria, o grupo de interés económico o financiero.
