@@ -1,0 +1,1 @@
+Artículo 7°—Derogaciones. Se deroga la resolución publicada mediante acierto N° 016-2018-MGP las catorce horas con treinta minutos del veinte de junio del dos mil dieciocho, publicada en La Gaceta N° 134, del 24 de julio del 2018.
