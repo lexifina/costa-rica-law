@@ -1,0 +1,1 @@
+Artículo 3º. Evaluación y seguimiento. La Coordinadora Política de la Región Brunca deberá informar por escrito y de manera mensual, a partir de la vigencia de esta instrucción, a la Presidencia de la República sobre el seguimiento y los avances de las acciones prioritarias dela matriz anexa a la presente Directriz.

@@ -1,0 +1,1 @@
+Artículo 2º. Coordinación general. La coordinación general de las diversas actuaciones y estrategias necesarias para el cumplimiento de las acciones dispuestas en la matriz anexa a esta Directriz, estará a cargo de la Ministra de Economía, Industria y Comercio, como Coordinadora Política de la Región Brunca, con el apoyo de las instancias competentes.
