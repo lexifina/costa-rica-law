@@ -1,2 +1,0 @@
-Artículo 6º—La adecuada administración de los recursos del Fondo, será responsabilidad del Coordinador de la Unidad de Finanzas del CONICIT, quien designará a uno de sus colaboradores (as) como encargado (a) del manejo de los recursos. En caso de ausencia del Coordinador de la Unidad de Finanzas, el Director de Soporte Administrativo designará la persona responsable del manejo de estos recursos.
-( Así reformado mediante sesión N° 1877 de 30 junio del 2008)

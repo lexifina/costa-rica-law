@@ -1,1 +1,0 @@
-Artículo 5º—Los recursos del Fondo serán utilizados para sufragar gastos administrativos, ocasionados por el quehacer de la institución, con el propósito de hacer más eficientes los trámites de adquisición de bienes y servicios.

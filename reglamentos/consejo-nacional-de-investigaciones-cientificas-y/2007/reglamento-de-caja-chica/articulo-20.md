@@ -1,2 +1,0 @@
-Artículo 20.—AI funcionario que incumpla con alguna de las disposiciones de este reglamento, y se le compruebe alguna anomalía relacionada con la administración o uso de fondos, se le aplicará en lo que corresponda lo estipulado en el Reglamento Autónomo de Organización y Servicios del Conicit, capítulo IX, del régimen disciplinario, siempre en aplicación del debido proceso.
-Aprobado por el Consejo Director del Conicit en sesión 1815 de fecha 5 de marzo del 2007. Comunicado de Acuerdo 2-043-2007 del 8 de marzo del 2007.

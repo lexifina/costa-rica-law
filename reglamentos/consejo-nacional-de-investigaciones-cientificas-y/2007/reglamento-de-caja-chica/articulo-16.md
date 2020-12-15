@@ -1,2 +1,0 @@
-Artículo 16.—El Fondo estará sujeto a arqueos periódicos que deberán realizar el Coordinador de la Unidad de Finanzas y la Auditoría Interna del CONICIT, así como por otros entes de control externo, como la Auditoría Externa y la Contraloría General de la República , cuando se requiera. La persona encargada de la Caja Chica estará obligada a brindar la información requerida para la realización de estos arqueos.
-( Así reformado mediante sesión N° 1877 de 30 junio del 2008)
