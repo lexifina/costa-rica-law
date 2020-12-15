@@ -1,0 +1,2 @@
+Otras disposiciones
+Artículo 39.—De la falsedad de los documentos e informaciones: Cualquier información o documento presentado por los funcionarios para aplicar a la asignación de beneficios y cuya falsedad se presuma, dará lugar a la apertura de un procedimiento administrativo, sin perjuicio de las responsabilidades disciplinarias, civiles, penales o de cualquier otra índole que le correspondan.

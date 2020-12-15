@@ -1,0 +1,1 @@
+Artículo 36.—Le corresponderá a la Asesoría Legal del ICODER aplicar las medidas legales correspondientes para la recuperación del aporte económico en casos de incumplimiento y a la Unidad de Recursos Humanos cuando corresponda realizar el rebajo de la planilla, según lo dispuesto en el contrato de estudio y demás documentos legales que se firmen.

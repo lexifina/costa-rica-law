@@ -1,0 +1,1 @@
+Artículo 6º—Declaratoria de interés institucional: La Unidad de Recursos Humanos recomendará a la Dirección Nacional las capacitaciones que considere de interés institucional, las cuales serán de carácter obligatorio para el personal designado. Sólo podrán exceptuarse de la obligatoriedad de asistencia, en aquellos casos que se demuestre fuerza mayor.

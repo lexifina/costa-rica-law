@@ -1,0 +1,1 @@
+Artículo 33.—Documentación probatoria: Toda persona beneficiaria está en la obligación de presentar, mediante oficio, a la Unidad de Recursos Humanos los documentos idóneos que comprueben el aprovechamiento del beneficio otorgado, según lo dispuesto en este Reglamento.

@@ -1,0 +1,1 @@
+Artículo 21.—Designación de oficio: La Dirección Nacional considerando la importancia del desarrollo del talento para el ICODER, podrá designar de oficio la participación del o los funcionarios que considere para asistir a una capacitación determinada previo estudio de los requisitos de su participación.

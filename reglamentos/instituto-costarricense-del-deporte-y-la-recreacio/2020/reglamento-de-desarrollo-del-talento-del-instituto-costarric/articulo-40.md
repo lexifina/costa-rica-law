@@ -1,0 +1,1 @@
+Artículo 40.—De la omisión de las formalidades: El funcionario, el superior jerárquico o la autoridad o autoridades superiores que omitan las formalidades exigidas en este Reglamento, incurrirán en responsabilidades de acuerdo con la normativa vigente y los actos serán absolutamente nulos. Además, deberán resarcir al ICODER lo erogado y los daños y perjuicios aquí establecidos.

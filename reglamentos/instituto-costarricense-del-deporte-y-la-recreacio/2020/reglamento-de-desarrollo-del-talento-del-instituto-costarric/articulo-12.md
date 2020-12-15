@@ -1,0 +1,1 @@
+Artículo 12.—Plazos: El Plan Anual de Capacitación se presentará a la Dirección Nacional el primer viernes hábil del mes de enero, cuyo titular será el responsable de resolver a más tardar el último día hábil del mes de enero.

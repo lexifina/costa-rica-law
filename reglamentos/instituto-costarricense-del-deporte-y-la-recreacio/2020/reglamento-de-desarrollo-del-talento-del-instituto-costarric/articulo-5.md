@@ -1,0 +1,33 @@
+Artículo 5º—Definiciones: Para efectos del presente Reglamento se entiende por:
+1. Actividad de Capacitación o desarrollo de personal: toda actividad realizada en una organización, respondiendo a sus necesidades, que busca mejorar la actitud, conocimiento, habilidades o conductas de su personal.
+2. Análisis de las funciones: proceso con el cual se determina el contenido del plan de capacitación con base a las funciones asignadas en los puestos de trabajo.
+3. Análisis de la organización: Examen del entorno, las estrategias y los recursos de la organización para determinar en donde se debe enfocar la capacitación.
+4. Análisis de las personas: Determinación de las personas específicas que necesitan capacitación.
+5. Aprovechamiento: Se denomina a aquellas actividades de adiestramiento y capacitación recibidas por el personal, en las cuales se debe obtener un mínimo de setenta por ciento como promedio final en sus calificaciones y un ochenta y cinco por ciento de asistencia mínima.
+6. Atinencia: Grado de relación o afinidad que tiene la actividad o formación cubierta por la facilidad de capacitación, con las funciones sustantivas del puesto.
+7. Beca: Beneficio de tiempo laboral que se otorga a un funcionario para formación académica de pregrado, grado, postgrado y especialización atinentes a su cargo.
+8. Beneficiario: Todo funcionario del ICODER que reciba acciones de capacitación o formación estipuladas en el presente Reglamento.
+9. Congreso: Reunión que se realiza cada año o más, para difundir información, tomar decisiones, resolver problemas, planificar actividades, reflexionar sobre algún tema o intercambiar información en diversas temáticas.
+10. Consejo Nacional del Deporte y la Recreación: Es el órgano superior (jerarca supremo) o máxima autoridad que dirige las políticas del Instituto Costarricense del Deporte y la Recreación.
+11. Contrato de facilidad de formación: Documento formal en el que se plasma un acuerdo de voluntades entre el representante legal del ICODER y el funcionario, en donde se estipula los deberes y obligaciones de las partes, el cual es debidamente tramitado por medio de la Asesoría Jurídica del ICODER, atendiendo el trámite de la Administración de Recursos Humanos.
+12. Convenio: Acuerdo entre el ICODER y cualquier otra entidad estatal o privada, ya sea dentro de Costa Rica o fuera, en el ámbito de la capacitación, formación y desarrollo del personal.
+13. Curso: Actividad en la que se estudia un conjunto de contenidos temáticos, de acuerdo con los objetivos educativos en los dominios cognoscitivo, psicomotriz y afectivo, dentro del proceso de trabajo -aprendizaje.
+14. Dirección Nacional: Es el Jerarca Ejecutivo (órgano unipersonal) subordinado al Jerarca Supremo encargado de la operación y funcionamiento cotidiano de la administración del Instituto Costarricense del Deporte y la Recreación.
+15. Equipo de verificación: equipo de trabajo responsable de velar por que la asignación de los beneficios dispuestos en este reglamento cumpla con todos los requisitos y condiciones indicadas.
+16. Estudio: Según el Reglamento Autónomo de Servicios del ICODER Articulo 61, se define Estudio como aquella actividad que permita la adquisición de conocimientos que formen y desarrollen técnica, intelectual y humanísticamente al trabajador. Se consideran dentro de estos.
+• Estudios de enseñanza primaria y secundaria en aquellas instituciones y centros de enseñanza debidamente reconocidos por el Ministerio de Educación Pública.
+• Estudios técnicos, medios y superiores en aquellas instituciones y centros de enseñanza debidamente reconocidos por el Ministerio de Educación Pública.
+• Estudios superiores universitarios, para universitarios o equivalentes que se imparten en instituciones de enseñanza y reconocidos en el país.
+• Otras actividades académicas debidamente programadas en instituciones acreditadas de reconocido prestigio.
+17. Formación: Desarrollo de un individuo o grupo de individuos que se caracterizan por una programación curricular en alguna disciplina y que permite a quien la obtiene alcanzar niveles educativos cada vez cada vez más elevados. En general son programas a mediano y corto plazo.
+18. Persona funcionaria: Toda persona física que preste al Instituto sus servicios en forma subordinada y a cambio de una retribución o salario, en virtud de nombramiento efectuado mediante los trámites exigidos por el Reglamento Autónomo de Servicios del ICODER o por la Ley 7800 de Creación del Instituto Costarricense del Deporte y la Recreación.
+19. Funcionario en propiedad: Aquella persona funcionaria que, de conformidad con la normativa o regulaciones vigentes, es nombrado en un puesto por plazo indefinido.
+20. Funcionario interino en plaza en propiedad: Aquella persona funcionaria que, de conformidad con la normativa o regulaciones vigentes, es nombrado en un puesto interino por plazo definido, por ausencia del titular.
+21. Funcionario interino en plaza vacante: Aquella persona funcionaria que, de conformidad con la normativa o regulaciones vigentes, es nombrado en un puesto interino por plazo indefinido.
+22. Interés institucional: Otorgamiento que da el ICODER para una actividad educativa o científica por cuanto su temática responde a la política y/o a las líneas de acción sustantivas de la institución y a su vez coincidir con el Plan Anual de Capacitación y de Desarrollo del Recurso Humano.
+23. Jefatura: jefe o superior jerárquico de las dependencias que conforman el Instituto Costarricense del Deporte y la Recreación.
+24. Participación: Aquellas actividades de adiestramiento y capacitación impartidas al personal, en las cuales se debe cumplir con una asistencia no inferior al 85% del total de aquellas y con un mínimo de ocho horas de instrucción efectiva.
+25. Puesto: conjunto de tareas y responsabilidades permanentes y específicas que requieren la atención de un funcionario, durante la jornada laboral.
+26. Perfil Ocupacional: conjunto de conocimientos, habilidades y destrezas que le permiten a la persona funcionaria la ejecución optima de sus responsabilidades y tareas, definidas y establecidas en el Manual Descriptivo de Puesto vigente.
+27. Plan Anual de Capacitación y de Desarrollo Humano: conjunto de acciones de capacitación y formación que se programen, como resultado de la determinación previa de necesidades institucionales basado en el respectivo plan anual de capacitación asociado con el plan Estratégico y el diagnóstico de necesidades de capacitación.
+28. Plan estratégico: es la guía de consumo básico para preparar los planes operativos anuales para cada una de las áreas de la institución.

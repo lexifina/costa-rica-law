@@ -1,0 +1,1 @@
+Artículo 18.—Tiempo de capacitación: No se reconocerá como tiempo extraordinario el tiempo que el personal dedique a su capacitación fuera de la jornada ordinaria, sin perjuicio de la obligatoriedad de la participación una vez que el funcionario acepto la capacitación.

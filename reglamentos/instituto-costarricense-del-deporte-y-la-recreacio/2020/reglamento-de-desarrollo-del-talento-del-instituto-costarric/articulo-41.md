@@ -1,0 +1,1 @@
+Artículo 41.—Evaluación: La Unidad de Recursos Humanos podrá disponer de los medios que considere pertinentes para realizar la evaluación del impacto de las actividades de formación, capacitación y becas que sean asignadas, cuando lo considere necesario.

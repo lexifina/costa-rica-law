@@ -1,0 +1,4 @@
+CAPÍTULO III
+Plan anual de capacitación
+Artículo 11.—Plan Anual de Capacitación: Será responsabilidad del encargado del proceso de Desarrollo del Talento, el cual deberá identificar mediante un diagnostico anual las necesidades de adiestramiento, capacitación y formación de los funcionarios y que resulten de interés para la Institución, para lo cual podrá solicitar los insumos necesarios a la Dirección Nacional, Coordinadores de Área, Coordinadores de Proceso, Coordinadores de Comisión y cualquier otro funcionario que consideré necesario, los cuales tendrán la obligación de participar del proceso y brindar la información que se requiera en los plazos establecidos por el responsable del proceso.
+También deberá velar en conjunto con la persona que ejerza el puesto de Coordinador de la Unidad de Planificación Institucional porque este se encuentre en apego al Plan Estratégico Institucional y al Plan Operativo Anual de la Institución.

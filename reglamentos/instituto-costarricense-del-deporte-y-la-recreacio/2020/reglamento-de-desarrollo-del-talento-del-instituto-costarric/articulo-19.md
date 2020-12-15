@@ -1,0 +1,8 @@
+Artículo 19.—Divulgación: El encargado del área de Desarrollo del Talento será el responsable de comunicar las becas, capacitaciones y actividades de formación que la Institución ponga disposición de los funcionarios, esta comunicación podrá ser:
+a. Nivel institucional: becas, capacitaciones y actividades de formación que son dirigidas a todos los funcionarios del ICODER.
+b. Áreas o niveles específicos: becas, capacitaciones y actividades de formación que son dirigidas para áreas de formación específica o que cuentan con un requisito mínimo del nivel académico, que son dirigidas solamente a quienes cumplan con estas condiciones.
+c. Especializadas: becas, capacitaciones y actividades de formación que responden a formación especializada de una ciencia u oficio, que son dirigidas solamente a quienes cumplan con estas condiciones.
+d. Individualizada: becas, capacitaciones y actividades de formación dirigidas al ocupante de un puesto específico, son dirigidas solamente a quienes cumplan con esta condición.
+Estas becas podrán ser pagadas por el ICODER, también se regulan por este reglamento las ofrecidas por organismos patrocinadores o centros educativos, en el marco de convenios de cooperación.
+Artículo 19.—Divulgación: En la comunicación realizada se deberá de indicar las condiciones y requisitos para la asignación de las becas, capacitaciones y actividades de formación correspondientes, las cuales se considerarán como aceptadas por el funcionario al presentar la aplicación para la asignación.
+(Nota de Sinalevi: En la publicación de este reglamento aparece dos veces el artículo N° 19)

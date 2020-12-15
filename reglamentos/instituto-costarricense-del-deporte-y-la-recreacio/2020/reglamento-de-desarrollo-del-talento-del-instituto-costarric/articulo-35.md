@@ -1,0 +1,1 @@
+Artículo 35° De los incumplimientos: La Administración tendrá la potestad de cobrar daños y perjuicios en caso de incumplimiento, los cuales de previo se fijan en un 25% del aporte total otorgado y se cancelarán de acuerdo con lo estipulado en el artículo anterior.

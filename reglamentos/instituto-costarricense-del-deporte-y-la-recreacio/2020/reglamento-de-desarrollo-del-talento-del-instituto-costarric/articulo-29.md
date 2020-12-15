@@ -1,0 +1,1 @@
+Artículo 29.—Siguiendo los criterios de selección y requisitos indicados en este Reglamento la aplicación de todos los funcionarios en la asignación de becas, capacitaciones o actividades de formación se realizará en igualdad de condiciones.

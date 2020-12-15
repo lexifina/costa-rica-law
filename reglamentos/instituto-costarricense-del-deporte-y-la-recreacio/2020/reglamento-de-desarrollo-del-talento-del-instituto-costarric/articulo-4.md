@@ -1,0 +1,1 @@
+Artículo 4º—La Unidad de Recursos Humanos será la encargada de velar por el cumplimiento del presente Reglamento y tendrá la potestad de solicitar el apego a este a todas las instancias del ICODER, respetando la autonomía de criterio que la Ley de General de Control Interno le concede a la Auditoria Interna.

@@ -1,0 +1,10 @@
+Artículo 23.—Requisitos para becas: Toda asignación de beca debe cumplir con los siguientes puntos:
+1. Ser funcionario con nombramiento en propiedad en una plaza del ICODER o de manera interina en una plaza permanente del ICODER que no tenga propietario o de manera interina en una plaza con propietario o de manera interina en una plaza temporal. Quedan excluidos de estos beneficios los funcionarios nombrados interinamente en plazas con propietario con menos de 1 año de trabajar para la Institución de forma continua.
+2. Haber prestado sus servicios al ICODER, de forma ininterrumpida, por un período no menor de un año.
+3. No haber incurrido en sanción disciplinaria grave de conformidad con el Reglamento Autónomo de Servicios del ICODER, en los dos últimos años anteriores al otorgamiento de la beca.
+4. Presentar los documentos de respaldo correspondientes (artículo 20) para disfrutar del beneficio.
+5. La carrera para la cual se está solicitando la beca, debe estar incluida en el Plan Anual de Capacitación y Desarrollo del Talento, ser afín al puesto que ocupa y las funciones que desempeña y deberá contribuir para el mejoramiento de su desempeño en el mismo o por lo menos deberá ser afín a la proyección laboral de la persona funcionaria en la Institución.
+6. El funcionario solicitante debe haber cumplido con los compromisos asumidos con otras becas y con la normativa de este reglamento, en los últimos 2 años o desde su ingreso en caso de no cuente con 2 años en la institución.
+7. En los casos en que la beca sea financiada por el ICODER, los Centros de Educación deberán estar debidamente acreditados ante el Consejo Nacional de Educación Superior (CONESUP), CONARE, etc., según corresponda.
+8. Contar con una calificación superior a “Muy bueno” o su equivalente numérico en las evaluaciones del desempeño de los últimos 2 años anteriores a la asignación de la beca.
+9. Firmar el correspondiente contrato de estudios y demás documentos que la Institución considere pertinente para garantizar el aprovechamiento del beneficio.

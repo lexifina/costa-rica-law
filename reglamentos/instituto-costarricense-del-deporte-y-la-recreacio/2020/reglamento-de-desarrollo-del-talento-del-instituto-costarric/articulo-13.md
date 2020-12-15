@@ -1,0 +1,1 @@
+Artículo 13.—Seguimiento: El encargado del proceso de Desarrollo del Talento llevará una base de datos de las capacitaciones, becas y otras actividades destinadas al desarrollo del Talento asignadas por funcionario, donde conste el cumplimiento, aprovechamiento y replica de estas en los casos en que así se haya acordado.

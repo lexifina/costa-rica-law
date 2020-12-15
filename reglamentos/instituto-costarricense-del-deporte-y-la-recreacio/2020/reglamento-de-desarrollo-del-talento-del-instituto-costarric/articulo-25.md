@@ -1,0 +1,7 @@
+Artículo 25.—Requisitos para capacitación y actividades de formación: Toda asignación de beca debe cumplir con los siguientes puntos:
+1. Ser funcionario con nombramiento en propiedad en una plaza del ICODER o de manera interina en una plaza permanente del ICODER que no tenga propietario o de manera interina en una plaza con propietario o de manera interina en una plaza temporal. Quedan excluidos de estos beneficios los funcionarios nombrados interinamente en plazas con propietario con menos de 1 año de trabajar para la Institución de forma continua.
+2. Los funcionarios nombrados en propiedad deberán haber superado el período de prueba.
+3. No haber incurrido en sanción disciplinaria grave de conformidad con el Reglamento Autónomo de Servicios del ICODER, en el último año anterior a la asignación de la capacitación y actividades de formación.
+4. La capacitación para la cual se está solicitando la facilidad, debe responder a las prioridades expuestas en el Plan Anual de Capacitación y de Desarrollo del Talento.
+5. El funcionario solicitante debe haber cumplido con los compromisos asumidos con otras capacitaciones y con la normativa de este reglamento, en los últimos 5 años o desde su ingreso en caso de no cuente con 5 años en la institución.
+6. Contar con una calificación de “Muy bueno” o “Excelente” o su equivalente numérico en las evaluaciones del desempeño de los últimos 2 años anteriores a la asignación del beneficio.

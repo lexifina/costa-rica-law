@@ -1,0 +1,4 @@
+Artículo 9º—Conformación y responsabilidades: El equipo de verificación estará conformado de la siguiente manera y cada miembro deberá velar porque las capacitaciones, becas y otras actividades destinadas al desarrollo del Talento cumplan con las condiciones y requisitos dispuestos:
+1. Coordinador de la Unidad de Recursos Humanos: responsable de velar porque las asignaciones se encuentren dentro del Plan Anual de Capacitación, sean afines con el perfil del puesto y las funciones desempeñadas por el beneficiario y que exista contenido presupuestario.
+2. Coordinador de la Asesoría Legal: responsable de velar porque las asignaciones cumplan con todos los requisitos normativos y legales que las rigen.
+3. Coordinador de la Unidad de Planificación Institucional: responsable de velar porque las asignaciones sean afines al Plan Operativo Institucional y respondan a los objetivos Institucionales.

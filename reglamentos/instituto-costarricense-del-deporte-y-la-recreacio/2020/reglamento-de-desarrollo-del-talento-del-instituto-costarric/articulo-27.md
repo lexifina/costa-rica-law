@@ -1,0 +1,1 @@
+Artículo 27.—Expediente de asignaciones: La Unidad de Recursos Humanos llevará un expediente para cada funcionario que sea beneficiado con una beca, capacitación o actividades de formación y llevará una base de datos de los beneficios recibidos.
