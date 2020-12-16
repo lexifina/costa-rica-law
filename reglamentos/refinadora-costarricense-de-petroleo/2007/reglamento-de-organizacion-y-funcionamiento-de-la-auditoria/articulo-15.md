@@ -1,2 +1,0 @@
-Artículo 15.—Obligatoriedad de disponer de una estructura. El Auditor General dispondrá de una estructura organizativa concordante con la razón de ser y la normativa que regula a la empresa, a efecto de garantizar razonablemente, entre otros, una administración eficaz, eficiente y económica de los recursos asignados, así como la efectividad en el cumplimiento de sus obligaciones.
-(Así reformado en sesión N° 4526 del 23 de febrero de 2011)

@@ -1,2 +1,0 @@
-Artículo 48.—Implantación de las recomendaciones. La atención oportuna de las recomendaciones de los informes de la auditoría será responsabilidad del destinatario de las mismas, quién además, deberá comunicar por escrito a la Auditoría Interna, los plazos estimados para su cumplimiento. Estos plazos serán valorados por la Auditoría Interna, los cuales de considerarse desproporcionados podrán ser objetados.
-(Así reformado en sesión N° 4526 del 23 de febrero de 2011)

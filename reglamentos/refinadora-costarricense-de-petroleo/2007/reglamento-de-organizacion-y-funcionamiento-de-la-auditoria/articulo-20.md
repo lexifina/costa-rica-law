@@ -1,2 +1,0 @@
-Artículo 20.—Definición de las funciones del Auditor General y Subauditor General. Las funciones de los cargos de Auditor General y Subauditor General deberán estar definidas en el Manual Descriptivo de Puestos de la Empresa, de conformidad con los lineamientos emitidos en la resolución R-CO-91-2006 y sus modificaciones adoptadas en la Resolución Nº R-DC-119-2009.
-(Así reformado en sesión N° 4526 del 23 de febrero de 2011)

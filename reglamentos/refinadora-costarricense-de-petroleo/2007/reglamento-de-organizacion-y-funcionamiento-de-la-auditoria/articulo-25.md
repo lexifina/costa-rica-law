@@ -1,1 +1,0 @@
-Artículo 25.—Delegación de funciones del Auditor General. El Auditor General podrá delegar sus funciones en su personal, utilizando criterios de idoneidad y conforme lo establece la Sección Tercera, del Capítulo Tercero (Artículos Nº 89 al 92) de la Ley General de Administración Pública (Nº 6227).

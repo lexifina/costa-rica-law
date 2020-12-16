@@ -1,2 +1,0 @@
-Artículo 35.—Apoyo de la Asesoría Legal. La Dirección Jurídica empresarial deberá brindar el oportuno y efectivo servicio a la Auditoría Interna, para los estudios jurídicos que ésta requiera, a fin de establecer adecuadamente su ámbito de acción y atender sus necesidades de orden jurídico, con base en lo dispuesto en el artículo 33, inciso c), de la Ley General de Control Interno (Nº 8292).
-(Así reformado en sesión N° 4526 del 23 de febrero de 2011)

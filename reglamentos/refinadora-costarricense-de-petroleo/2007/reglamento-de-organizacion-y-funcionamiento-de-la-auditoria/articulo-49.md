@@ -1,1 +1,0 @@
-Artículo 49.—Comunicación oficial de los servicios preventivos. La comunicación de los servicios preventivos se hará en forma escrita, mediante oficios u otros medios de comunicación legales permitidos, conforme lo establecido en los procedimientos aprobados por el Auditor General.

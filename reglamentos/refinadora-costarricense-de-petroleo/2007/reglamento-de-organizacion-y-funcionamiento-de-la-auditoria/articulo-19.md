@@ -1,2 +1,0 @@
-Artículo 19.—Jornada laboral y plazo de nombramiento del Auditor General y Subauditor General. Conforme lo dispuesto en los artículos Nº 30 y 31 de la Ley General de Control Interno (Nº 8292) y lo dispuesto los lineamientos Nº R-CO-91-2006 y sus modificaciones adoptadas en la Resolución Nº R-DC-119-2009, la jornada laboral de ambos cargos será de tiempo completo y el plazo de nombramiento será por tiempo indefinido.
-(Así reformado en sesión N° 4526 del 23 de febrero de 2011)

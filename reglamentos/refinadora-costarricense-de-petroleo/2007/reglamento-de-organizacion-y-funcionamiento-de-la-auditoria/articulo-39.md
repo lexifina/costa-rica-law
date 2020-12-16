@@ -1,1 +1,0 @@
-Artículo 39.—Potestades del Auditor, Subauditor General y del personal de la Auditoría Interna. El Auditor General, Subauditor General y los demás funcionarios de la Auditoría Interna tendrán las potestades establecidas en el artículo Nº 33 de la Ley General de Control Interno (Nº 8292).

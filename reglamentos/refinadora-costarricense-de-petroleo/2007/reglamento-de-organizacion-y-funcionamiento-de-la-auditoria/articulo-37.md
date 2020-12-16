@@ -1,6 +1,0 @@
-CAPÍTULO III
-Funcionamiento de la Auditoría Interna
-SECCIÓN A
-De las competencias, deberes y potestades
-Artículo 37.—Competencias de la Auditoría Interna. Las competencias de la Auditoría Interna se regularán fundamentalmente en lo que corresponda por lo establecido en la Ley General de Control Interno (Nº 8292), el Manual de Normas para el Ejercicio de la Auditoría Interna en el Sector Público, emitido por la Contraloría General de la República, la Ley Reguladora de RECOPE (Nº 6588), la Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública (Nº 8422) y su Reglamento, la Ley Orgánica de la Contraloría General de la República (Nº 7428), la Ley de Administración Financiera y Presupuesto Públicos (Nº 8131) y su Reglamento y la Ley General de Administración Pública (Nº 6227); así como por las disposiciones, directrices, circulares, lineamientos, resoluciones u otros documentos que emita la Contraloría General de la República en su carácter de Órgano Rector del funcionamiento del Sistema de Fiscalización y Control de la Hacienda Pública, y por las normas reglamentarias que formule el Jerarca de la Empresa.
-La Auditoría Interna ejecutará las demás competencias que contemplan la normativa legal, reglamentaria y técnica aplicable, considerando las prohibiciones que establece el artículo Nº 34 de la Ley General de Control Interno (Nº 8292).

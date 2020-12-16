@@ -1,2 +1,0 @@
-Artículo 58.—Modificaciones al Reglamento. El Auditor General deberá mantener actualizado el presente Reglamento conforme al artículo 22, inciso h), de la Ley General de Control Interno (Nº 8292) y la directriz emitida por la Contraloría General de la República con la resolución Nº R-CO-91-2006, y sus modificaciones señaladas en la Resolución R-DC-119-2009, antes citadas, por lo que le corresponderá proponer al Jerarca las modificaciones que considere oportunas y necesarias.
-(Así reformado en sesión N° 4526 del 23 de febrero de 2011)

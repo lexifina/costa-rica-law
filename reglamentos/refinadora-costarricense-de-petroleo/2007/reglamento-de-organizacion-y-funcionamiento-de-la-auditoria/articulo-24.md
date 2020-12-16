@@ -1,2 +1,0 @@
-Artículo 24.—Rendición de cuentas del Auditor General y Subauditor General. El Auditor General responderá por su gestión ante el Jerarca. El Subauditor General deberá apoyar al Auditor General en el desempeño de sus funciones, conforme éste se lo especifique, lo sustituirá en sus ausencias temporales y deberá responder ante él por su gestión; salvo que esté actuando en su carácter temporal de Auditor, en ausencia del Titular, en cuyo caso responderá ante el Jerarca.
-(Así reformado en sesión N° 4526 del 23 de febrero de 2011)

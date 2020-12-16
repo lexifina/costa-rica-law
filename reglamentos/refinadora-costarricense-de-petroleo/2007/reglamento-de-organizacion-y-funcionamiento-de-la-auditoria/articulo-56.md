@@ -1,1 +1,0 @@
-Artículo 56.—Derogatoria. Se deroga el Reglamento de la Auditoría Interna que fue promulgado por la Junta Directiva de RECOPE en el artículo Nº 10 la sesión Nº 2127-78 del 24 de febrero de 1987 y sus modificaciones, así como cualquier normativa interna que se le oponga.
