@@ -1,0 +1,1 @@
+Artículo 19.—Principio de proporcionalidad. Ni el Conassif ni ninguna Superintendencia, puede imponer condiciones que no estén directamente vinculadas a la corrección de los efectos de la concentración desde un punto de análisis prudencial. Las condiciones que se impongan deben guardar proporción con la corrección que se pretenda.

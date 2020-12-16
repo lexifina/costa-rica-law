@@ -1,0 +1,1 @@
+Artículo 4º—Término. Para los efectos del artículo anterior, el plazo de treinta días se contará a partir del día siguiente al de la presentación de la solicitud o a partir del día siguiente a aquél en el que se hubieren subsanado las prevenciones formuladas y se hubiere completado la información requerida en los casos en que fuere necesario.

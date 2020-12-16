@@ -1,0 +1,12 @@
+Capítulo IV
+Trámite ante la Superintendencia
+Artículo 11.—Notificación. Para los casos que no cumplan con los supuestos del artículo 89 y siguientes de la Ley N° 9736 pero si con los alcances del artículo 88, las concentraciones de entidades supervisadas deberán ser notificados directamente ante la Superintendencia General de Entidades Financieras (Sugef), Superintendencia de Pensiones (Supen), Superintendencia General de Valores (Sugeval) o la Superintendencia General de Seguros (Sugese) según corresponda, para su autorización, condicionamiento o denegación, tomando en cuenta el punto de vista prudencial y conforme las siguientes reglas:
+a) La notificación podrá realizarse desde que exista proyecto o acuerdo de concentración. A estos efectos, se considerará que existe proyecto o acuerdo:
+i. En los supuestos de adquisición del control, se considerará que el acuerdo existe cuando haya sido adoptado por el órgano de dirección, aun cuando por aplicación de normas legales o estatutarias fuera necesaria su adopción o ratificación posterior por otro órgano societario.
+ii. Cuando se trate de una oferta pública de adquisición, siempre que exista acuerdo del Consejo de Administración de las oferentes y se haya anunciado públicamente su intención de presentar tal oferta y se trata de sujetos supervisados.
+iii. En el caso de fusiones de sociedades se entenderá que existe proyecto o acuerdo de concentración cuando se haya preparado el proyecto estipulado en el artículo 221 del Código de Comercio.
+iv. Tratándose de una sucesión de actos, se perfeccione el último de ellos.
+v. La existencia de cláusulas que de cualquier modo condicionen la futura formalización o ejecución de dichos acuerdos no exime del cumplimiento del deber de notificar.
+b) El notificante informará inmediatamente a la Superintendencia sobre cualquier modificación relevante que pueda afectar al contenido del formulario de la notificación de la concentración durante la tramitación del expediente.
+c) Si una vez notificado el proyecto de concentración y previamente a la resolución del expediente, las partes desisten de la misma, el notificante pondrá inmediatamente en conocimiento de la Superintendencia esta circunstancia, acreditándola formalmente, a la vista de lo cual el Despacho del Superintendente podrá acordar sin más trámite el archivo de las actuaciones.
+d) Las concentraciones derivadas de actos jurídicos realizados en el extranjero deberán notificarse antes de que surtan efectos jurídicos o materiales en territorio nacional.

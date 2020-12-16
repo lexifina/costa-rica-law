@@ -1,0 +1,8 @@
+Capítulo II
+Procedimiento ante el Consejo Nacional
+de Supervisión del Sistema Financiero
+Artículo 7.—Inicio. Cuando Coprocom reciba un escrito de notificación proveniente de una entidad supervisada, deberá remitirle al Conassif, en un plazo máximo de tres días naturales, copia de la gestión y de todo el expediente administrativo, así como la solicitud de criterio sobre la transacción.
+Sobre este particular, aplicará el siguiente procedimiento:
+a) El Conassif al día hábil siguiente de recibida la gestión por parte de la Coprocom, le requerirá a la o a las superintendencias que correspondan, criterio técnico basado en los elementos definidos en el artículo 27 bis inciso a) de la Ley N° 7472, expresando si la concentración pudiera impactar en los riesgos sobre la solvencia, solidez o estabilidad de las entidades involucradas o del sistema financiero, o pudiera afectar a los consumidores financieros, en todo o parte del mercado nacional. Para la emisión de dicho informe, el Consejo indicará el plazo de cumplimiento a la Superintendencia.
+b) Conforme al artículo 27 bis de la Ley N° 7472, el Conassif remitirá su resolución a la Coprocom dentro de un plazo de quince días naturales, contados a partir del recibo de la solicitud.
+c) Dicho acuerdo indicará, conforme el análisis del expediente, el informe de la Superintendencia y lo establecido en el artículo 8 del presente reglamento, si desde un punto de vista prudencial la resolución final del proceso de concentración deberá ser emitida o no por el Conassif, con el fin de proteger o mitigar riesgos a la solvencia, solidez y estabilidad de las entidades o del sistema financiero, así como proteger a los consumidores financieros.
