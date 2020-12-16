@@ -1,0 +1,2 @@
+Artículo 15. De los estados financieros auditados del banco extranjero
+La sucursal de banco extranjero deberá remitir los estados financieros auditados anuales del banco extranjero, dentro de los veinte (20) días hábiles después de su entrega al supervisor de la plaza bancaria. Dentro de ese mismo plazo, esta información financiera deberá ser publicada en el sitio web oficial de la sucursal de banco extranjero.

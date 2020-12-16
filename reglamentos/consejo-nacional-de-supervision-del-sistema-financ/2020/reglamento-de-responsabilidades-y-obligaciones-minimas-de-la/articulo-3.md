@@ -1,0 +1,8 @@
+Artículo 3. Definiciones
+Para efectos de este Reglamento se establecen las siguientes definiciones:
+a) Apoderado generalísimo de la sucursal del banco extranjero: es el representante del banco extranjero con facultades de apoderado generalísimo sin limitaciones para ejercer la representación del banco extranjero y para la administración de una sucursal de banco extranjero domiciliada en nuestro país.
+b) Banco(s) extranjero(s): es el banco domiciliado fuera de Costa Rica que realiza operaciones en el territorio nacional por medio de una sucursal bancaria.
+c) Plaza bancaria o plaza bancaria extranjera: está determinada por una zona geográfica definida como país, lugar o grupo de lugares con una soberanía propia de gobierno y corresponde al lugar donde se encuentra domiciliado y realiza las actividades el banco extranjero.
+d) Sucursal(es) de banco(s) extranjero(s): figura utilizada por el banco extranjero para realizar operaciones en Costa Rica, autorizada por el Conassif.
+e) Supervisor: es la Superintendencia General de Entidades Financieras (SUGEF) o cuando se le adicione la palabra extranjero, es el supervisor del banco extranjero.
+Adicionalmente, forman parte integral de este Reglamento las definiciones estipuladas en el “Reglamento sobre autorizaciones de entidades supervisadas por la SUGEF, y sobre autorizaciones y funcionamiento de grupos y conglomerados financieros”, en adelante referido como Reglamento sobre autorizaciones SUGEF, así como las definiciones contenidas en el resto de la normativa vigente aplicables a las sucursales de bancos extranjeros en lo que les corresponda.
