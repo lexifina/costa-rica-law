@@ -1,2 +1,0 @@
-Artículo 6°.- La Secretaría del CCES. La Secretaría del CCES estará instalada en la Presidencia de la República; la persona que desempeñe la Secretaría será designada por parte de quien ejerza la Presidencia del CCES y realizará sus funciones ad honorem.
-El secretario o secretaria del Consejo se encargará de las funciones técnicas y administrativas propias de su cargo. La persona designada como secretario técnico o secretaria técnico participará en las sesiones del Consejo Pleno con voz, pero sin voto.
