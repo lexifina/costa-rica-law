@@ -1,1 +1,1 @@
-Artículo 19.—La publicación de un concurso interno deberá, considerar los requisitos del puesto y los factores de selección. Se imprimirá en caracteres fácilmente legibles y se colocará en los sitios más visibles de todos los centros de trabajo del INCOPESCA, donde se mantendrá por un plazo no inferior a quince días hábiles.
+Artículo 19.— (Derogado mediante acuerdo N° AJDIP/310-2020 del 16 de diciembre del 2020 “Políticas de Reclutamiento y selección de personal”)

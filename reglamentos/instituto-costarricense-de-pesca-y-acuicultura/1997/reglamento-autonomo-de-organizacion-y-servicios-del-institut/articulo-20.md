@@ -1,1 +1,1 @@
-Artículo 20.—En caso de que candidatos elegibles incluidos en la terna no resulten escogidos por el Presidente Ejecutivo y la Jefatura correspondiente, estos deberán justificar por escrito las razones que originan su rechazo, debiendo la Sección de Recursos Humanos, en ese caso, llenar una nueva terna.
+Artículo 20.— (Derogado mediante acuerdo N° AJDIP/310-2020 del 16 de diciembre del 2020 “Políticas de Reclutamiento y selección de personal”)
