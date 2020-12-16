@@ -1,0 +1,1 @@
+Artículo 5º—Dependencia encargada de aplicar el incentivo. El Departamento de Facturación de la Municipalidad de Guácimo, será el encargado de aplicar el incentivo al momento de efectuar el comprobante de pago.

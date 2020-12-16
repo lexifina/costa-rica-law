@@ -1,0 +1,2 @@
+Artículo 7º—Excepciones. Se exceptúan de este incentivo el precio por alquiler de locales comerciales, cementerio, impuesto sobre espectáculos públicos, timbres y los tributos de carácter temporal. Además, la multa por no presentar la Declaración Jurada de Patente y la multa por construir sin permiso.
+En caso de que el patentado no presente dicha declaración, no podrá gozar del incentivo; a menos que sea recalificada de oficio por la municipalidad.
