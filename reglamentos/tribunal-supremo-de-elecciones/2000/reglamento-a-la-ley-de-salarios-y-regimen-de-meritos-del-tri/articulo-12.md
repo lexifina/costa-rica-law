@@ -1,5 +1,6 @@
-Articulo 12.—Los factores o criterios de evaluación citados en el articulo anterior se definen de la siguiente manera:
-a) Calificación de servicios (Evaluación del desempeño): es el proceso para determinar el nivel de eficiencia y actuación de los funcionarios durante un determinado período laboral, que efectúa la jefatura inmediata del funcionario por medio del formulario que para tales efectos distribuye el Departamento de Recursos Humanos.
+Articulo 12.—Los factores o criterios de evaluación citados en el artículo anterior se definen de la siguiente manera:
+a) Evaluación del desempeño: es el proceso que tiene como finalidad la mejora continua de la gestión pública y del desempeño y desarrollo integral de las personas funcionarias públicas durante un determinado período laboral. Esta es efectuada por la jefatura inmediata de la persona funcionaria y se evalúa bajo parámetros objetivos acordes con las funciones, las responsabilidades y los perfiles del puesto. Esta evaluación se realizará por medio de la herramienta de gestión del desempeño que para tales efectos defina la institución.
+(Así reformado el inciso anterior por el artículo 2° del decreto del Tribunal Supremo de Elecciones, N° 9-2020 del 16 de diciembre del 2020)
 b) Formación académica: los títulos extendidos por centros de educación legalmente reconocidos por las autoridades correspondientes, que llevan a la obtención de un diploma, certificado o grado académico.
 c) Antigüedad: el tiempo servido en diferentes instituciones del Estado.
 d) Experiencia: el conocimiento práctico que se acumula por el desempeño en puestos similares o relacionados con el que está sometido a concurso.
