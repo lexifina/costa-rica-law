@@ -1,0 +1,2 @@
+Artículo 5º—Participación de las entidades del SPNB. Las entidades del SPNB podrán realizar transacciones de cobertura con derivados cambiarios cuya liquidación sea por diferencias (cumplimiento financiero) con cualquier contraparte autorizada.
+Al amparo de lo dispuesto en el artículo 89 de la Ley Orgánica del Banco Central de Costa Rica, se faculta que las entidades del SPNB realicen coberturas con derivados cambiarios de cumplimiento efectivo con bancos comerciales del Estado.

@@ -1,0 +1,1 @@
+Artículo 7º—Incumplimiento de contratos de derivados cambiarios. En caso de incumplimiento contractual se procederá de conformidad con los mecanismos de resolución de conflictos indicados en el contrato entre las partes.

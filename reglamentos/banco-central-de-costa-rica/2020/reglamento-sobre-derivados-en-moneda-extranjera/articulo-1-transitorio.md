@@ -1,0 +1,1 @@
+Transitorio 1.—Repositorio de transacciones de derivados en moneda extranjera. En ausencia de una entidad repositorio autorizada por la Sugeval, el Banco Central de Costa Rica podrá ejercer como entidad repositorio.

@@ -1,0 +1,1 @@
+Artículo 10.—Instrumentos financieros equivalentes. Los instrumentos financieros cuya realidad económica sea equivalente a un derivado en moneda extranjera están sujetos al alcance del presente Reglamento.

@@ -1,0 +1,23 @@
+Artículo 2º—Definiciones. Para los efectos del presente Reglamento, se utilizan las siguientes definiciones y siglas:
+a) BCCR: Banco Central de Costa Rica.
+b) Bolsa: organización local o internacional sujeta a la regulación o vigilancia de alguna entidad supervisora reconocida en su respectiva jurisdicción, que brinda las facilidades necesarias para que sus miembros introduzcan órdenes y realicen negociaciones de compra y venta de instrumentos financieros.
+c) Cliente: Persona física o jurídica que realiza operaciones de derivados con un intermediario cambiario.
+d) Conassif: Consejo Nacional de Supervisión del Sistema Financiero.
+e) Contrato marco de derivados: Acuerdo de adhesión que establece las normas generales aplicables a la contratación de derivados, las cuales se basan en acuerdos creados por asociaciones de operadores en el mercado. Este debe ser firmado por el representante de la entidad con facultades suficientes para ese acto.
+f) Contraparte: intermediario del mercado de derivados cambiarios o entidad extranjera que, por cuenta y riesgo propio, negocia derivados de conformidad con las condiciones contractuales.
+g) Derivado: contrato entre dos partes cuyo valor se basa en el precio de otro activo, o en el valor de otra variable, comúnmente denominada activo subyacente; éste puede ser un activo físico (mercancías) o un activo financiero como una acción, un bono, una divisa, un índice o una tasa de interés.
+h) Derivado bursátil: contrato formalizado por medio de los sistemas de negociación de una bolsa o mercado organizado y cuya principal característica es que su valor de cotización depende del precio de otro activo denominado subyacente.
+i) Derivado en moneda extranjera: contrato de derivado cuyo subyacente está denominado en alguna moneda extranjera.
+j) Derivado cambiario: contrato de derivado con implicaciones en la posición en moneda extranjera de conformidad con lo establecido en el Reglamento para las Operaciones Cambiarias de Contado. Los derivados cambiarios son un subconjunto de los derivados en moneda extranjera.
+k) Derivados extrabursátiles: contratos no estandarizados (Over The Counter OTC), diseñados por entidades financieras según el requerimiento específico del cliente; ambas partes establecen de forma bilateral los términos contractuales de la operación.
+l) Entidad repositorio de transacciones de derivados: entidad que proporciona servicios de mantenimiento de registros y presentación de informes de las negociaciones.
+m) Intermediario cambiario: entidad autorizada para participar en el mercado cambiario de contado local, de conformidad con lo dispuesto en el artículo 2 del Reglamento para las Operaciones Cambiarias de Contado.
+n) Intermediario de derivados cambiarios: entidad supervisada por las Superintendencia General de Entidades Financieras o por la Superintendencia General de Valores, que tiene la condición de intermediario cambiario al amparo de lo dispuesto en el Reglamento para las Operaciones Cambiarias de Contado, y que participa en la negociación de contratos de derivados cambiarios con clientes.
+o) Negociación de derivados: compra y venta de contratos de derivados sea para cobertura o como parte de la actividad de intermediación, lo que implica adoptar una posición por cuenta y riesgo propio.
+p) Posición en Moneda Extranjera (PME): de acuerdo con lo detallado en el literal c) del artículo 3 del Reglamento para las Operaciones Cambiarias de Contado, se entenderá por posición en moneda extranjera, la diferencia entre los activos y los pasivos totales en moneda extranjera de la entidad más la posición neta en moneda extranjera que por operaciones con derivados cambiarios adquieran las entidades autorizadas. La posición neta por derivados cambiarios será calculada con base en el saldo de las cuentas en que se deben registrar estas operaciones, según el Plan de Cuentas para Entidades Financieras aprobado por el Consejo Nacional de Supervisión del Sistema Financiero.
+q) Liquidación de operaciones de cumplimiento efectivo: la liquidación de la operación pactada se realiza con el intercambio de los flujos nocionales brutos.
+r) Liquidación por diferencias (cumplimiento financiero): procedimiento por el cual el cumplimiento del contrato de derivados, en la fecha de pago o intercambio de flujos, se produce mediante el pago de la diferencia de los flujos nocionales netos.
+s) Subyacente: Es el activo (tasa de interés, divisa, índice bursátil, bono, acción, materias primas, entre otros) que se negocia en el mercado, que sirve de referencia para determinar el valor del derivado.
+t) SPNB: Sector Público No Bancario.
+u) Sugef: Superintendencia General de Entidades Financieras.
+v) Sugeval: Superintendencia General de Valores.
