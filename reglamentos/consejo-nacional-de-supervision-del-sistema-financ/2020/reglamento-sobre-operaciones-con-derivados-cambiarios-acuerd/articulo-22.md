@@ -1,0 +1,3 @@
+Artículo 22. Estimación por riesgo de precio de liquidación
+El intermediario deberá calificar el riesgo de crédito de contraparte con operaciones de derivados cambiarios, según las disposiciones establecidas en la regulación prudencial sobre estimaciones crediticias aplicable al intermediario de derivados cambiarios.
+Para el cálculo de las estimaciones por riesgo de precio de liquidación con cada cliente o contraparte, el importe obtenido en el inciso e) del artículo 28 Acuerdo SUGEF 3-06 debe multiplicarse por el porcentaje de estimación correspondiente a la calificación del deudor, según la regulación prudencial sobre estimaciones crediticias aplicable.

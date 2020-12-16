@@ -1,0 +1,4 @@
+Artículo 9. Documentación y registro de las operaciones
+Los contratos de derivados cambiarios que suscriban las entidades deberán documentarse en contratos marco y tomarán como referencia lineamientos y directrices similares a los contenidos en contratos internacionales, siempre y cuando sean conformes con las disposiciones nacionales aplicables.
+Las operaciones se pactarán en la forma que el contrato marco establezca, y deberán registrarse y confirmarse a través de los medios que establezca la entidad, en los cuales se deberá dejar constancia de la realización de la operación correspondiente, el mismo día de su ejecución.
+Como parte de sus procesos internos de registro y control, la entidad deberá establecer la información mínima que deberán contener las confirmaciones de las operaciones, para cada tipo de contrato.

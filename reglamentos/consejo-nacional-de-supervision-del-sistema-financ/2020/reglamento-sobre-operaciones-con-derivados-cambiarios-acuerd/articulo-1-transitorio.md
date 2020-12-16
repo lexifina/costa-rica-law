@@ -1,0 +1,6 @@
+Disposiciones transitorias.
+Transitorio I
+Las entidades que a la fecha de entrada en vigencia de este Reglamento ya cuenten con autorización para la negociación con clientes de contratos de derivados cambiarios, mantendrán dicha autorización.
+Lo anterior, se aplicará aún en el caso de que la entidad ofrezca nuevos productos derivados.
+Las entidades que a la fecha de entrada en vigencia de este Reglamento se encuentren en el trámite de obtener autorización para la negociación con clientes de contratos de derivados cambiarios, continuarán dicho trámite bajo lo dispuesto en el Acuerdo SUGEF 9-08 ‘Reglamento para la autorización y ejecución de operaciones con derivados cambiarios’. En caso de rechazarse dicha autorización, todo nuevo trámite de autorización para la negociación con clientes de contratos de derivados cambiarios deberá ajustarse a lo dispuesto por el Banco Central de Costa Rica y este Reglamento.
+No obstante lo anterior, dentro del plazo de 30 días naturales contados a partir de la vigencia de este Reglamento, las entidades con autorización para la negociación con clientes de contratos con derivados cambiarios, deberán informar a la SUGEF su plan de adecuación al presente Reglamento.

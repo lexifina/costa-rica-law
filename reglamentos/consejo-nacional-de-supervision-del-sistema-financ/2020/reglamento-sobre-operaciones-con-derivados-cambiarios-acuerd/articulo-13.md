@@ -1,0 +1,5 @@
+Artículo 13. Plazo de la SUGEF para informar al Banco Central de Costa Rica
+La SUGEF tendrá un plazo de veinte días hábiles, contado a partir del momento en que la entidad solicitante cumpla a cabalidad con la información establecida en el Anexo de este Reglamento, para remitir al BCCR el Informe sobre capacidad técnica y operativa de la entidad solicitante.
+En caso de omitirse alguna información, o en caso de requerirse aclaraciones o ampliaciones sobre la documentación aportada, la SUGEF lo comunicará al solicitante y le otorgará un plazo de diez días hábiles para que complete la documentación.
+Durante este plazo se suspende el cómputo del tiempo para resolución por parte de la SUGEF y se continuará hasta que la entidad solicitante cumpla a cabalidad con la información establecida en este Reglamento, así como con las aclaraciones o ampliaciones solicitadas.
+Si la entidad solicitante no ha presentado la totalidad de la información requerida, la SUGEF procederá con el archivo del expediente y así lo notificará al solicitante.

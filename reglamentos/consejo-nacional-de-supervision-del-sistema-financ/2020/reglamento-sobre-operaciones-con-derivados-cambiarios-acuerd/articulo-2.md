@@ -1,0 +1,3 @@
+Artículo 2. Alcance
+Este Reglamento es aplicable a las entidades supervisadas por SUGEF que tienen la condición de intermediario cambiario, al amparo de lo dispuesto en el ‘Reglamento para las Operaciones Cambiarias de Contado’, y que desean optar por la autorización del BCCR para negociar contratos de derivados cambiarios con clientes, personas físicas o jurídicas.
+Todas las entidades supervisadas por SUGEF podrán suscribir contratos de derivados cambiarios para fines de cobertura de riesgos, sin autorización previa y considerando las disposiciones prudenciales dispuestas integralmente en el marco de regulación, en lo que sea aplicable, y en este Reglamento.

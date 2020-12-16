@@ -1,0 +1,2 @@
+Artículo 10. Envío de información a la SUGEF
+Como complemento a la información que se mantenga a disposición en el repositorio indicado en el artículo 3 del ‘Reglamento sobre Derivados en Moneda Extranjera’, la SUGEF en el ejercicio de sus funciones de supervisión, podrá solicitar a las entidades supervisadas el envío de información adicional sobre las operaciones de derivados bursátiles y extrabursátiles que realicen. La SUGEF establecerá los medios, formatos y plazos para el envío de esta información.
