@@ -1,0 +1,3 @@
+Capítulo Sétimo
+Disposiciones finales
+Artículo 35: Normativa supletoria. Para los efectos del presente Reglamento y de integración normativa en caso de requerirse, se establece de aplicación obligatoria la Ley Nº 9078, Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial vigente; la Ley Nº 8292, Ley General de Control Interno; la Ley Nº 8422, Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública; el Reglamento Autónomo de Servicios del IMAS, el Manual Descriptivo de Cargos Institucional del IMAS, el Manual de Procedimientos de Transportes del IMAS, los lineamientos generales y específicos que hayan emitido o emitan los Entes y Órganos de Fiscalización Superior que regulen la materia y demás disposiciones concordantes aplicables.

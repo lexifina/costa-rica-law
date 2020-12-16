@@ -1,0 +1,4 @@
+Artículo 30: Diligencias judiciales. De conformidad con la estructura orgánica del IMAS, es competencia de la Asesoría Jurídica, lo siguiente:
+a. Brindar el apoyo y asesoría legal, a las personas funcionarias y trabajadoras del IMAS, en cuanto a la defensa institucional en cada caso, ante las instancias judiciales que correspondan, con el fin de que se cumpla en tiempo y forma con las disposiciones que emitan los Tribunales de Justicia.
+b. Remitir la comunicación de la sentencia judicial ante el representante legal del IMAS, al Área de Proveeduría Institucional, a la Unidad de Contabilidad, al Área de Servicios Generales y al titular subordinado respectivo.
+c. En el caso de que se condene a terceros como consecuencia del accidente, la Asesoría Jurídica Institucional, en coordinación con la Gerencia General, instruirá las gestiones necesarias para que se proceda a la ejecución de la sentencia en sede judicial.
