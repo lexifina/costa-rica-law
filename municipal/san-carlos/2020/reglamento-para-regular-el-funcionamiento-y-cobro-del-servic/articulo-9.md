@@ -1,0 +1,1 @@
+Artículo 9º—Aprobación y vigencia: Las tarifas relativas al servicio de aseo de vías y sitios públicos serán autorizadas por el Concejo. Entrarán a regir treinta días después de su publicación en el Diario Oficial La Gaceta.

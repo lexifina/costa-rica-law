@@ -1,0 +1,1 @@
+Artículo 6º—Tasa: Por los servicios indicados en este reglamento se cobrará una tasa, distribuida entre los propietarios o poseedores por cualquier título de bienes inmuebles de conformidad que se establezca en la Ley y/o estudio tarifario correspondiente.
