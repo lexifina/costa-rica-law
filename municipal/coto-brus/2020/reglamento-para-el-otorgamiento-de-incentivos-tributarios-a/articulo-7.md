@@ -1,0 +1,1 @@
+Artículo 7º—Excepciones. Se exceptúan de este incentivo impuesto sobre espectáculos públicos, timbres y los tributos de carácter temporal. Además, la multa por no presentar la Declaración Jurada de Patente y la multa por construir sin permiso. Asimismo, el sujeto pasivo que solicite el beneficio de la no afectación del Impuesto sobre Bienes Inmuebles.

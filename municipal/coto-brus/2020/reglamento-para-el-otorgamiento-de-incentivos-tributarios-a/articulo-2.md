@@ -1,0 +1,5 @@
+Artículo 2º—Del cálculo del incentivo. El artículo 2°, referente a “Del cálculo del incentivo”, se leerá así: Se establece un incentivo a los sujetos pasivos que, encontrándose al día con sus obligaciones municipales, cancelen por adelantado la totalidad de sus tributos anuales en un solo tracto, el mismo consistirá en un descuento que se aplicará porcentual, como a continuación se describe:
+a) Quien cancele durante el mes de enero el monto total de los tributos a su nombre de todo el año, se le aplicará un descuento del 5% (cinco por ciento) sobre el monto total anual a pagar.
+b) Quien cancele durante el mes de febrero el monto total de los tributos a su nombre de todo el año, se le aplicará un descuento del 3% (tres por ciento) sobre el monto total anual a pagar.
+c) Quien cancele durante el mes de marzo el monto total de los tributos a su nombre de todo el año, se le aplicará un descuento del 2% (dos por ciento) sobre el monto total anual a pagar.
+d) En el caso de bienes inmuebles el incentivo nunca podrá superar el monto establecido para la tasa básica pasiva, que sea determinada por el Banco Central de Costa Rica.

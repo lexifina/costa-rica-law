@@ -1,0 +1,1 @@
+Artículo 5º—Dependencia encargada de aplicar el incentivo. El Departamento de Administración Tributaria y el encargado de Tesorería conjuntamente con el Gestor Financiero de la Municipalidad de Coto Brus, serán los encargados de aplicar el incentivo y de actualizar el porcentaje que se utilizará en la aplicación de este.

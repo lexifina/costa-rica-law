@@ -1,0 +1,6 @@
+Transitorio III.—Para la aplicación del transitorio
+I.- el cálculo del incentivo. Referente a “Del cálculo del incentivo”, se leerá así: Se establece un incentivo a los sujetos pasivos que, encontrándose al día con sus obligaciones municipales, cancelen por adelantado la totalidad de sus tributos correspondientes al segundo semestre 2020 en un solo tracto, el mismo consistirá en un descuento que se aplicará porcentual, para la contención de la crisis por COVID-19, como a continuación se describe:
+a) Quien cancele durante el mes de junio el monto total de los tributos a su nombre del segundo semestre, se le aplicará un descuento del 5% (cinco por ciento) sobre el monto total del segundo semestre a pagar.
+b) Quien cancele durante el mes de julio el monto total de los tributos a su nombre del segundo semestre, se le aplicará un descuento del 3% (tres por ciento) sobre el monto total del segundo semestre a pagar.
+c) Quien cancele durante el mes de agosto el monto total de los tributos a su nombre del segundo semestre, se le aplicará un descuento del 2% (dos por ciento) sobre el monto total del segundo semestre a pagar.
+d) En el caso de bienes inmuebles el incentivo nunca podrá superar el monto establecido para la tasa básica pasiva, que sea determinada por el Banco Central de Costa Rica.
