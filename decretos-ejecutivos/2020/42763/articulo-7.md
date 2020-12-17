@@ -1,0 +1,1 @@
+Artículo 7°.-La Secretaría Técnica del CCES. Para el cumplimiento de las funciones del Consejo Pleno, este contará con una Secretaría Técnica del CCES cuya organización y funcionamiento serán definidos en el reglamento de funcionamiento interno.

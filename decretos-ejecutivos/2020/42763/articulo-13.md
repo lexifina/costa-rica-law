@@ -1,0 +1,1 @@
+Artículo 13°.-Normativa supletoria. En lo no previsto en el presente Decreto Ejecutivo, sobre el funcionamiento del CCES, se aplicarán supletoriamente las disposiciones establecidas en el Libro Primero, Título Segundo, Capítulo Tercero. de la Ley General de la Administración Pública, Ley número 6227 del 02 de mayo de 1978.

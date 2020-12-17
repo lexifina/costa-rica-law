@@ -1,0 +1,1 @@
+Transitorio II.- Para las organizaciones que carecen de conformación jurídica formal, los requisitos para su ulterior participación y designación de personas representantes en el Consejo Pleno serán establecidos en el reglamento de funcionamiento interno del CCES.

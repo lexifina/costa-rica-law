@@ -1,0 +1,1 @@
+Artículo 12°.-Participación de personas expertas en temas especializados. El Consejo Pleno podrá acordar invitar a participar con voz y sin voto en sus sesiones, en grupos de trabajo para temas específicos o cualquier otro mecanismo que se defina de participación ampliada, a personas expertas en temas especializados, según corresponda.

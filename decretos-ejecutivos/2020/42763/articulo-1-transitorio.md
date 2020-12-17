@@ -1,0 +1,1 @@
+Transitorio I.- El Consejo Pleno deberá aprobar el reglamento de funcionamiento interno previsto en el artículo 9° inciso k) del presente Decreto Ejecutivo en un plazo no mayor a tres meses, contado a partir de su primera sesión.
