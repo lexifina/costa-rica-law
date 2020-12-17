@@ -29,3 +29,4 @@ Artículo 2°: Apruébense los siguientes Egresos Ordinarios y Extraordinarios d
 (Reformado por el artículo 4° de la ley N° 9921 del 20 de noviembre del 2020)
 (Modificado por el artículo 1° del decreto ejecutivo N° 42737 del 26 de noviembre del 2020)
 (Modificado por el artículo 1° del decreto ejecutivo N° 42752 del del 7 de diciembre del 2020)
+(Modificado por el artículo 1° del decreto ejecutivo N° 42761 del 15 de diciembre del 2020)
