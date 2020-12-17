@@ -13,3 +13,4 @@ Deber de Apersonarse al Despacho cuando se tenga que atender un caso de Violenci
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-08-22 | la propia norma |
+| 2 | 2020-12-17 | Circular 289 (2020-12-17) |
