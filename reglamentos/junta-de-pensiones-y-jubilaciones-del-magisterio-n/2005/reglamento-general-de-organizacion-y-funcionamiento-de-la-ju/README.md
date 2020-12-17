@@ -29,3 +29,4 @@ Reglamento General de Organización y Funcionamiento de la Junta de Pensiones y 
 | 14 | 2016-09-07 | Reglamento 99 (2016-09-07) |
 | 15 | 2018-04-06 | Reglamento 41 (2018-04-06) |
 | 16 | 2020-11-03 | Reglamento 122 (2020-11-03) |
+| 17 | 2020-12-17 | Reglamento 141 (2020-12-17) |
