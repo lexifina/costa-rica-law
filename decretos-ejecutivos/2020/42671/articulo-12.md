@@ -1,0 +1,1 @@
+Artículo 12. —Simultaneidad de funciones sujetas a caución. A la persona funcionaria, que, estando obligada a caucionar, se le asigne una función que genere ese mismo deber, caucionará una sola vez y por el monto mayor.
