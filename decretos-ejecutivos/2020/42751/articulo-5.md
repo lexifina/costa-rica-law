@@ -1,0 +1,1 @@
+Artículo 5°- Validez de la autorización. Cuando se trate de adquisiciones con entregas parciales, sucesivas y prorrogables, la autorización tendrá validez por todo el plazo o prórrogas correspondientes.
