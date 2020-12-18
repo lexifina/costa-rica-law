@@ -1,3 +1,4 @@
-Artículo 9. Tasa de interés corriente y moratoria
-a) Tasa de interés corriente: equivalente a la Tasa de Política Monetaria más un margen definido por la Comisión de Mercados entre 700 y 1.200 puntos básicos. Específicamente, al límite inferior se le agregará un margen que corresponde a la mitad de la diferencia entre la tasa de redescuento y la tasa de la facilidad permanente de crédito en el MIL para el plazo de 84 días. Los intereses serán cobrados por adelantado, con una base de cálculo actual/360.
-b) Tasa de interés moratoria: equivalente a la tasa de interés corriente más 400 puntos básicos.
+Artículo 9. Tasa de Interés corriente y moratoria
+a) Tasa de interés corriente: equivalente a la Tasa de Política Monetaria más un margen de 10 puntos porcentuales.
+b) Tasa de interés moratoria: equivalente a la tasa de interés corriente más un treinta por ciento (30%) de esa tasa y con un máximo de cuatro por ciento (4%).
+(Así reformado mediante sesión N° 5977-2020 del 18 de diciembre de 2020)
