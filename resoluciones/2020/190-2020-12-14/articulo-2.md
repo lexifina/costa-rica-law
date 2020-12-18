@@ -1,0 +1,1 @@
+Artículo 2-El trámite general de las solicitudes será el que establece la Ley General de Migración, así como el que determine esta Dirección General, en razón de sus facultades de autodeterminación administrativa.

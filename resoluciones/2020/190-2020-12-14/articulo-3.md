@@ -1,0 +1,1 @@
+Artículo 3-La persona beneficiaria de esta categoría especial contará con libertad de condición para poder desempeñarse en cualquier actividad laboral remunerada, por cuenta propia o relación de dependencia.
