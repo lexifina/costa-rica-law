@@ -13,3 +13,4 @@
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-12-01 | la propia norma |
+| 2 | 2020-12-18 | Circular 11 (2020-12-18) |
