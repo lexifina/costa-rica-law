@@ -1,0 +1,10 @@
+AVISO N° 10-2020
+ASUNTO: Aclaración y ajuste el punto 11.3 del Aviso 8-20 denominado “Plan de Vacaciones”, conforme a lo dispuesto por la Sala Constitucional en resolución Nº 2019012071, respecto a la sustitución del personal judicial interino.
+A TODOS LOS DESPACHOS JUDICIALES DEL PAÍS
+SE LES HACE SABER QUE:
+El Consejo Superior, en sesión N° 119-2020, celebrada el 15 de diciembre del 2020, artículo LXXXVI, dispuso aclarar y ajustar el párrafo segundo del punto 11.3. del Aviso No. 8-2020 denominado Plan de Vacaciones Colectivas del Poder Judicial 2020-2021, que indica:
+La persona servidora judicial interina que es ascendida de forma temporal a otro puesto, pierde el derecho al interinazgo anterior.
+No obstante, se aclara que la directriz anterior, se excepciona si la persona interina cumple con las condiciones señaladas por la Sala Constitucional en el voto la resolución Nº 2019012071 de las once horas y quince minutos del dos de julio de dos mil diecinueve, que con respecto a la sustitución de las personas servidoras judiciales interinas, literalmente dice:
+“No obstante el Tribunal considera necesario aclarar que lo anterior no impide que los funcionarios que se encuentren en este supuesto puedan volver a la plaza que venían ocupando en forma interina, cuando, a criterio de la Administración, estos servidores sean más idóneos o se encuentran mejor calificados que aquellos que los sustituyeron luego de que ascendieran. Lo anterior, tomando en cuenta que en cumplimiento del principio de idoneidad comprobada establecido por los numerales 191 y 192 constitucionales, en este caso se estaría en un supuesto válido para la sustitución de un interino por otro, conforme lo ha sostenido la propia jurisprudencia de la Sala, según se denota lo expuesto en el considerando II de esta sentencia.”
+Dado lo anterior se deberá resolver lo correspondiente en cada caso concreto y no de manera general. Publíquese por una única vez en el Boletín Judicial.
+San José, 18 de diciembre de 2020.
