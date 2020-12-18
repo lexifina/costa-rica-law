@@ -14,3 +14,4 @@ Prorroga la suspende temporalmente restricción vehicular con franja horaria dif
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-12-01 | la propia norma |
+| 2 | 2020-12-18 | Decreto Ejecutivo 42756 (2020-12-18) |
