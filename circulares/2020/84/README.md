@@ -13,3 +13,4 @@ Las Secciones de Flagrancia no prestarán servicio los días feriados y asuetos,
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-04-29 | la propia norma |
+| 2 | 2020-12-18 | Circular 292 (2020-12-18) |
