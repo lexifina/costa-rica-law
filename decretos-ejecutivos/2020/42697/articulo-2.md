@@ -1,0 +1,2 @@
+Artículo 2º—Adiciónese un Transitorio III al Decreto Ejecutivo No. 39110-C, Crea Programa Puntos de Cultura del Ministerio de Cultura y Juventud, publicado en el Alcance No. 60 a La Gaceta Nº 150 del 4 de agosto de 2015, reformado por los Decretos Ejecutivos No. 39955-C del 5 de setiembre de 2016 y Nº 41113-C del 10 de abril de 2018, para que se lea de la siguiente forma:
+“Transitorio III. La vigencia del párrafo segundo del artículo 6 inciso g) del presente reglamento, será desde su publicación en el Diario Oficial La Gaceta y hasta el 31 de diciembre de 2020.”
