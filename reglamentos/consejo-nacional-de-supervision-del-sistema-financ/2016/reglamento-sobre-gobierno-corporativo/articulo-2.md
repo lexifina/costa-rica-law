@@ -20,8 +20,10 @@ xv. Centrales de Valores.
 xvi. Entidades Aseguradoras y Reaseguradoras.
 xvii. Sociedades Corredoras de Seguros.
 xviii. Sociedades Agencias de Seguros.
-2.4 Regulados por SUPEN:
-xix. Operadoras de Pensiones.
-xx. Organizaciones sociales autorizadas para administrar los fondos de capitalización laboral.
-xxi. Entidades administradoras de regímenes de pensiones sustitutas o complementarias del régimen de invalidez, vejez y muerte (IVM), creados por leyes o convenciones colectivas.
+(*)2.4 Regulados por SUPEN:
+XIX. Operadoras de Pensiones.
+XX. Organizaciones sociales autorizadas para administrar los fondos de capitalización laboral.
+XXI. Entidades administradoras de regímenes de pensiones sustitutas o complementarias del régimen de invalidez, vejez y muerte (IVM), creados por leyes o convenciones colectivas.
+El Superintendente de Pensiones podrá, mediante acuerdo debidamente motivado, eximir de la aplicación total o parcial de las disposiciones contenidas en este Reglamento a las entidades reguladas y fondos en proceso de liquidación, abolición, cerrados a nuevas afiliaciones, así como a nuevas entidades o nuevos fondos creados por ley, de forma temporal, mientras entran en funcionamiento. El Superintendente de Pensiones podrá dejar sin efecto el acuerdo en cualquier tiempo, en forma total o parcial, cuando así se justifique y sea necesario, considerando los cambios en las condiciones o los riesgos asociados al momento en que se emitió.
+(*)(Así reformado el punto 2.4) anterior mediante sesión N° 1634-2020 del 21 de diciembre del 2020)
 2.5 Controladoras de grupos y conglomerados financieros supervisados.

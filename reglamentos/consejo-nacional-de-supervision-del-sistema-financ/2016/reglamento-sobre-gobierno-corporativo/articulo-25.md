@@ -1,5 +1,6 @@
 Artículo 25. Comité de Auditoría. La conformación del Comité de Auditoría debe garantizar el ejercicio de un juicio independiente. Todos sus miembros deben poseer las habilidades, conocimientos y experiencia demostrable en el manejo y comprensión de la información financiera, así como en temas de contabilidad y auditoría. Debe ser presidido por un Director Independiente.
-No obstante lo dispuesto en el Artículo 4. de este Reglamento, la constitución del Comité de Auditoría es obligatoria para todas las entidades incluidas en el Artículo 2 de este Reglamento.
+La constitución del Comité de Auditoría es obligatoria para todas las entidades incluidas en el artículo 2 de este Reglamento, a quienes no podrá eximirse de este requisito, según el artículo 4, antes citado, con excepción de las entidades reguladas y fondos regulados por la SUPEN en proceso de liquidación, abolición, cerrados a nuevas afiliaciones o a nuevas entidades o nuevos fondos creados por ley, de forma temporal, mientras entran en funcionamiento, cuando así lo disponga el Superintendente, de conformidad con lo establecido en el acápite XXI, inciso 2.4, del artículo 2 de este Reglamento.
+(Así reformado el párrafo anterior mediante sesión N° 1634-2020 del 21 de diciembre del 2020)
 El Comité de Auditoría es responsable, entre otros asuntos de:
 25.1 El proceso de reporte financiero y de informar al Órgano de Dirección sobre la confiabilidad de los procesos contables y financieros, incluido el sistema de información gerencial.
 25.2 La supervisión e interacción con auditores internos y externos.
