@@ -33,3 +33,5 @@ TITULO I. DE LA GESTIÓN DE RIESGOS
 CAPÍTULO I. DISPOSICIONES GENERALES
 Artículo 1. Alcance
 Las disposiciones establecidas en el presente reglamento son de aplicación para todas las entidades reguladas por la Superintendencia de Pensiones y los fondos administrados por estas, según se definen en el artículo 2, de la Ley de Protección al Trabajador.
+El Superintendente de Pensiones podrá, mediante acuerdo debidamente motivado, eximir de la aplicación total o parcial de las disposiciones contenidas en este reglamento a las entidades reguladas y fondos en proceso de liquidación, abolición, cerrados a nuevas afiliaciones, así como a nuevas entidades o nuevos fondos creados por ley, de forma temporal, mientras entran en funcionamiento. El Superintendente de Pensiones podrá dejar sin efecto el acuerdo en cualquier tiempo, en forma total o parcial, cuando así se justifique y sea necesario, considerando los cambios en las condiciones o los riesgos asociados al momento en que se emitió.
+(Así reformado mediante sesión N° 1634-2020 del 21 de diciembre de 2020)

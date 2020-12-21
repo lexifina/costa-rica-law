@@ -14,3 +14,4 @@ Reglamento de riesgos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-06-23 | la propia norma |
+| 2 | 2020-12-21 | Reglamento 1634 (2020-12-21) |
