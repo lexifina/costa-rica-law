@@ -1,1 +1,0 @@
-Artículo 2º.- Alcance y ámbito de aplicación. Este canon será de aplicación a todos los operadores y/o proveedores que requieran construir, instalar u operar redes públicas de telecomunicaciones, en bienes de uso público, siempre que estos se encuentren bajo la administración municipal.

@@ -1,3 +1,0 @@
-Artículo 4º.- Fijación del monto de arrendamiento. La fijación del monto de arrendamiento en postes de telecomunicación, para instalar las redes públicas de telecomunicaciones en bienes de uso público bajo administración municipal, se determinará según los parámetros técnicos que a continuación se especifican:
-a) Los valores por metro cuadrado de los terrenos, determinados en las plataformas de zonas homogéneas vigentes y publicadas en cada cantón.
-b) Los montos de arrendamientos anuales de las áreas públicas, donde se instalarán las estructuras de telecomunicación investigados en el mercado nacional
