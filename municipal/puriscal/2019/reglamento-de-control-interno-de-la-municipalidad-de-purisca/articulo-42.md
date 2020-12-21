@@ -1,0 +1,1 @@
+Artículo 42.—Informe Semestral. Cada titular subordinado debe elaborar un informe semestral que se entregará en julio y enero de cada año, junto con el plan de trabajo de cumplimiento de metas. Este informe debe contener la rendición de cuentas con respecto al avance y cumplimiento de las acciones de mejora que fueron contempladas en su unidad para ser ejecutadas en el año.

@@ -1,0 +1,1 @@
+Artículo 14.—Función de la Comisión de Control Interno. Se constituye la Comisión de Control Interno, como ente asesor de la Alcaldía Municipal, con el propósito de que coordine a nivel institucional todas las acciones dirigidas al fortalecimiento y mejoramiento del Sistema de Control Interno Interinstitucional.

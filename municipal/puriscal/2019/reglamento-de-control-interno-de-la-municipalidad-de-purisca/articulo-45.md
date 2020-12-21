@@ -1,0 +1,1 @@
+Artículo 45.—Desempeño de funciones. Los Funcionarios Municipales deberán desempeñar sus funciones con prudencia, integridad, honestidad, decencia, seriedad, moralidad, ecuanimidad y rectitud. Debe repudiar, combatir y denunciar toda forma de corrupción y de tráfico de influencias.

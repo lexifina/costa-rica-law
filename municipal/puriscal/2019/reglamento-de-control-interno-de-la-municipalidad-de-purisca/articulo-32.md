@@ -1,0 +1,1 @@
+Artículo 32.—Coordinación de la Autoevaluación. La Comisión de Control Interno será la encargada de dar a conocer el período en que cada titular subordinado deberá de aplicar la autoevaluación de su área, así como la fecha en que se recibirán los resultados de la misma. Cuando exista Unidad de Control Interno, será esta quien coordine dicha autoevaluación.

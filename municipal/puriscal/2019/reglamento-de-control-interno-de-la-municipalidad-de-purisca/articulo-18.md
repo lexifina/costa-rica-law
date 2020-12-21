@@ -1,0 +1,1 @@
+Artículo 18.—Dirección de la Comisión de Control Interno. La Comisión de Control Interno estará presidida por la Alcaldía Municipal, en su función de coordinador (a) de la misma, en el caso de que el mismo (a) no pudiese asistir a alguna de las sesiones este rol lo asumirá el coordinador de planificación.

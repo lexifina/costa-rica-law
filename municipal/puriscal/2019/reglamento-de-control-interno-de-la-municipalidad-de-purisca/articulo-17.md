@@ -1,0 +1,1 @@
+Artículo 17.—Participación de otros Funcionarios y Órganos de la Comisión. En caso de que algún miembro de la Comisión de Control Interno contemplado en el artículo 15 del presente reglamento renunciare a su función, deberá cumplir con las responsabilidades descritas en el capítulo II del presente Reglamento.

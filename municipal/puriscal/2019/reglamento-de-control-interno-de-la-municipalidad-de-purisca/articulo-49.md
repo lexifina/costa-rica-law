@@ -1,0 +1,1 @@
+Artículo 49.—Responsabilidad de denunciar. En los casos contemplados en este capítulo el o la Funcionaria Municipal, deberá ser denunciada ante el ente correspondiente. Todo esto, sin recurrir a la publicidad, respetándose sus derechos fundamentales, sin embargo, se deberán denunciar los hechos antes las instancias correspondientes, para no incurrir en encubrimiento.
