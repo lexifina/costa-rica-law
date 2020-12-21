@@ -1,0 +1,1 @@
+Artículo 18.—Gastos de destrucción: Constituyen gastos de destrucción; el costo de las horas hombre y el costo de la hora maquinaria, cuando la demolición sea realizada por la Municipalidad. En los casos que la demolición sea contratada por la Municipalidad, el gasto será el monto de la factura.

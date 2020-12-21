@@ -1,0 +1,1 @@
+Artículo 5º—Inspección: Corresponde a la Gestión de Ordenamiento Territorial y a la Policía Municipal; la fiscalización de las construcciones que se realicen en el territorio de cantón de Santa Ana. Así como a cualquier otro funcionario/a que la Alcaldía Municipal designe.

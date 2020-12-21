@@ -1,0 +1,1 @@
+Artículo 12.—Inicio del procedimiento: La Municipalidad podrá aplicar cualquiera de las sanciones establecidas en la Ley de Construcciones nro. 833, por medio de la firmeza de una resolución motivada, dictada al efecto; siguiendo el procedimiento que se describe en el presente reglamento.

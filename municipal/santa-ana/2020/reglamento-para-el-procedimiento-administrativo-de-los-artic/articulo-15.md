@@ -1,0 +1,1 @@
+Artículo 15. Destrucción de la obra: De conformidad con el artículo 96 de la Ley de Construcciones; si la persona propietaria y/o infractora no obtiene la licencia, la Municipalidad ordenará la destrucción de la obra o lo hará por cuenta de la persona propietaria.
