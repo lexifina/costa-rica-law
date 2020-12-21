@@ -1,0 +1,1 @@
+Artículo 5º—Del domicilio. Para todos los efectos del domicilio del órgano colegiado del Conglomerado que sea, se mantendrá lo dispuesto en la Ley, los Reglamentos, o el respectivo estatuto de la Sociedad. En cada sesión se deberá indicar que se celebra en forma virtual en su domicilio, y esto deberá consignarse en el acta respectiva.
