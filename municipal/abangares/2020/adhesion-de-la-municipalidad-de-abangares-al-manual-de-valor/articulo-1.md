@@ -1,0 +1,3 @@
+MUNICIPALIDAD DE ABANGARES
+“La Municipalidad de Abangares, en su condición de Administración Tributaria y en aras de dar cumplimiento a su competencia, acuerda adherirse al nuevo reglamento del Manual de Valores Base Unitarios por Tipología Constructiva publicado por el Ministerio de Hacienda, Órgano de Normalización Técnica, en Alcance Digital N° 198, Diario La Gaceta N° 187 de fecha 30 de julio de 2020, de conformidad con la Ley N° 7509 y sus reformas – Ley del Impuesto Sobre Bienes Inmuebles. La aplicación de dicho Manual en la Municipalidad de Abangares, empezará a regir a partir de su publicación.”
+Las Juntas de Abangares, 15 de diciembre del 2020.
