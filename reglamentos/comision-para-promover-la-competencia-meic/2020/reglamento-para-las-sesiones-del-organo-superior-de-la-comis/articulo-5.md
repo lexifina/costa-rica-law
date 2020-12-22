@@ -1,0 +1,1 @@
+Artículo 5º—Clases de Sesiones. Las Sesiones del Órgano Superior podrán ser ordinarias o extraordinarias. Las Sesiones ordinarias se celebrarán al menos una vez por semana. Serán Sesiones extraordinarias aquéllas convocadas por el Comisionado presidente cuando lo estime necesario o a petición de cualquier integrante del Órgano Superior.

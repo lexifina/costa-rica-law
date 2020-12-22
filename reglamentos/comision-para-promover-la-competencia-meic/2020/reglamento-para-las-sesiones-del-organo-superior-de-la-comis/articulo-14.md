@@ -1,0 +1,3 @@
+Artículo 14.—Revisión de acuerdos. Contra los acuerdos del Órgano Superior no declarados firmes, podrán los Comisionados interponer recurso de revisión, siempre que no haya sido aprobada el acta respectiva. En caso de que alguno de los Comisionados interponga recurso de revisión contra un acuerdo, el mismo será resuelto por el Órgano Superior al conocerse el acta de esa Sesión, a menos que, por tratarse de un asunto que el Comisionado presidente juzgue urgente, prefiera conocerlo en Sesión extraordinaria.
+El recurso de revisión deberá ser planteado a más tardar al discutirse el acta, recurso que deberá resolverse en la misma Sesión.
+Las simples observaciones de forma, relativas a la redacción de los acuerdos, no serán consideradas como recursos de revisión.

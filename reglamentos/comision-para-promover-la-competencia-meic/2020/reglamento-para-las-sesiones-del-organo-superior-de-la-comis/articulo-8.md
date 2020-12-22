@@ -1,0 +1,1 @@
+Artículo 8º—Temas informativos. En las Sesiones ordinarias o extraordinarias, cualquier integrante del Órgano Superior podrá solicitar la inclusión de puntos informativos que no requieran examen previo de documentos.

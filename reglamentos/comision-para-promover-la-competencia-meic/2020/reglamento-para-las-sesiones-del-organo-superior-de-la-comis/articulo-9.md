@@ -1,0 +1,1 @@
+Artículo 9º—Comparecencia de funcionarios. El Órgano Superior podrá solicitar la comparecencia a la Sesión de los funcionarios del Órgano Técnico de la Comisión para que expongan un asunto o detallen la información técnica del caso que se discuta, conforme al orden del día correspondiente.

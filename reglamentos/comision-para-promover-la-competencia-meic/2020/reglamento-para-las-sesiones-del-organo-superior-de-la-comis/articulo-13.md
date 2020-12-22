@@ -1,0 +1,2 @@
+Artículo 13.—De los acuerdos. Los acuerdos tomados por el Órgano Superior quedarán firmes al aprobarse el acta respectiva en la siguiente Sesión ordinaria o al haberse declarado así en la misma Sesión, de forma unánime.
+Los acuerdos del Órgano Superior adoptados en firme por la totalidad de los miembros propietarios, deben ser ejecutados y comunicados desde que se adoptan. Caso contrario y si se interpone recurso de revisión contra los mismos, adquirirán firmeza con la decisión desestimatoria del recurso.
