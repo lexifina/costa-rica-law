@@ -16,3 +16,4 @@ Reglamento para el control de las emisiones contaminantes producidas por los veh
 | 1 | 2016-05-30 | la propia norma |
 | 2 | 2016-12-22 | Decreto Ejecutivo 40108 (2016-12-22) |
 | 3 | 2017-12-19 | Decreto Ejecutivo 40792 (2017-12-19) |
+| 4 | 2020-12-22 | Decreto Ejecutivo 42772 (2020-12-22) |
