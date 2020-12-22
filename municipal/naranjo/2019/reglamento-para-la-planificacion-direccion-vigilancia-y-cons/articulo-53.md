@@ -1,0 +1,2 @@
+De los contratos de concesión de derechos funerarios
+Artículo 53°-EI Contrato de Concesión de un Derecho Funerario, ya sea simple o doble podrá suscribirse a nombre de personas físicas o jurídicas, comunidades religiosas, hermandades, establecimientos asistenciales y hospitalarios, corporaciones, fundaciones o entidades legalmente constituidas, para uso exclusivo de sus empleados o miembros (en estos últimos casos se brindará un máximo de dos derechos dobles por persona jurídica).

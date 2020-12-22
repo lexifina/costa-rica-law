@@ -1,0 +1,1 @@
+Artículo 50°-Solo se autorizará la exhumación y traslado de un cadáver de una bóveda a otra, previa autorización de los permisionarios de ambas bóvedas, en caso de exhumaciones de un cementerio a otro se requerirá autorización del Ministerio de Salud.

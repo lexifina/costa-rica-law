@@ -1,0 +1,1 @@
+Artículo 39°-Para efectuar en una bóveda la inhumación de personas que no sean titulares de la misma, se requerirá por escrito la conformidad del actual permisionario o del representante legal en caso de personas jurídicas.

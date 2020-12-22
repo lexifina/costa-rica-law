@@ -1,0 +1,1 @@
+Artículo 34°-En el caso que el causahabiente sea la persona permisionaria del Derecho Funerario, deberá cumplirse con los requisitos de los incisos 1, 2, 4 y 5 del artículo 33, el tramite tendrá que ser realizado por medio de alguno de los beneficiarios y presentar copia de la cédula de identidad del mismo.

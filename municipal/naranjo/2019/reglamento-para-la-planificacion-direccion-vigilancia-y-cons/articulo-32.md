@@ -1,0 +1,1 @@
+Artículo 32°-Con el fin de obtener los servicios de arrendamiento de un nicho municipal, el interesado o interesada deberá cumplir con los requisitos de inhumación y firmar el contrato de alquiler de nicho municipal.

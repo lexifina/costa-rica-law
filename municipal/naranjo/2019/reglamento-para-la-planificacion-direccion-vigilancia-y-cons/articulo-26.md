@@ -1,0 +1,1 @@
+Artículo 26°-No se permiten las plantas en agua, jarrones, ni floreros, ni la construcción de jardineras elevadas, adjuntas a las bóvedas, además no se permitirá el cultivo de plantas alrededor de las bóvedas o fosas.

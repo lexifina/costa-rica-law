@@ -1,0 +1,1 @@
+Artículo 37°-Todos los días son hábiles para realizar las inhumaciones y estas se llevarán a cabo dentro del horario laboral, únicamente serán realizadas por el encargado del ornato del cementerio o funcionarios del Poder Judicial. Para inhumaciones fuera de este horario se requerirá autorización previa de la Administración del Cementerio.

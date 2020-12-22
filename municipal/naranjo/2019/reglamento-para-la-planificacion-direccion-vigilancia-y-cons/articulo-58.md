@@ -1,0 +1,1 @@
+Artículo 58°-Los errores en el nombre, apellidos o cualesquier otra incongruencia, en los contratos de arrendamiento se corregirán a instancia del titular, previa justificación y comprobación de la cédula de identidad y documentos certificados que ameriten el cambio en los datos que deban ser corregidos.

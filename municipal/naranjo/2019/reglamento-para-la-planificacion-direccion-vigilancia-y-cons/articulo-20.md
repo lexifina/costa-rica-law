@@ -1,0 +1,1 @@
+Artículo 20°-Todas las bóvedas según sean dobles o simples a construir luego de la promulgación de este Reglamento, deberán mantener las mismas dimensiones y respetar los diseños establecidos, así como seguir la normativa en cuanto a la calidad de la construcción, ya especificada.

@@ -1,0 +1,1 @@
+Artículo 44°-En los derechos de uso, el permisionario podrá realizar inhumaciones directamente en tierra, pudiendo después de un plazo de un año construir bóvedas sobre ese derecho las cuales deben apegarse a las normas estipuladas en este Reglamento.

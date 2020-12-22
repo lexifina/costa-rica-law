@@ -1,0 +1,4 @@
+Artículo 55°-Se prohíbe el alquiler o venta del derecho funerario, ya que el propietario y único dueño del terreno es la municipalidad, en caso de incumplimiento verificado de estas limitaciones, la municipalidad queda autorizada sin mayor trámite a rescindir el contrato de concesión y ponerlo a disposición de otro interesado.
+No obstante lo anterior, la permisionaria o el permisionario podrán ceder en vida su derecho funerario a titulo no oneroso, a familiares directos hasta el tercer grado de consanguinidad.
+Dicha cesión de derecho, deberá contar con la autorización de la persona titular de la Alcaldía Municipal, previo informe recomendativo de verificación de procedencia, emitido por el administrador del cementerio.
+Aprobada la cesión de derecho, la cesionaria o el cesionario deberán firmar el contrato correspondiente y cumplir con las disposiciones del presente Reglamento y las que las Municipalidad de Naranjo determine oportunamente en esta materia.

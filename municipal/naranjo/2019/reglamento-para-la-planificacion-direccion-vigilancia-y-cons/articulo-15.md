@@ -1,0 +1,1 @@
+Artículo 15°- La Administración del Cementerio deberá suministrar al personal la indumentaria requerida para su protección, así como, el equipo indispensable para llevar a cabo sus labores en forma correcta y segura, así mismo velar por el correcto uso de la indumentaria y el equipo dentro del cementerio.

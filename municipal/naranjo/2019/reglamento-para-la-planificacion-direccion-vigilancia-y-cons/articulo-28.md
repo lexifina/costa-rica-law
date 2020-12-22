@@ -1,0 +1,1 @@
+Artículo 28°-Los osarios deberán tener un máximo del 50% del tamaño del nicho, para garantizar que no se utilicen para inhumaciones, sin embargo la medida y diseño de los mismo será establecido por el diseño de sitio y del croquis que se brindará a cada concesionario de un Derecho Funerario.

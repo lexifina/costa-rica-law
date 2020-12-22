@@ -1,0 +1,12 @@
+Bóvedas
+Artículo 18°-Se permitirá la construcción de bóvedas sencillas (dos nichos) y dobles (cuatro nichos) en aquellos lugares, indicados en el diseño de sitio del Cementerio, las bóvedas deberán construirse de acuerdo a los siguientes requisitos;
+Las dimensiones para un derecho o bóveda sencilla de dos nichos, se establece un largo de 2,40 metros por 0.90 metros de ancho.
+Las dimensiones para un derecho o bóveda doble de cuatro nichos se establece un largo de 2, 40 metros por 1.80 metros de ancho.
+Para ambos casos se establece una altura máxima de 1.00 metros medidos a partir del nivel natural del suelo. Así mismo dichas dimensiones, estarán indicadas en el plano del diseño de sitio del Cementerio y en el croquis de construcción que se brindará a cada Concesionario.
+Las sepulturas estarán alineadas entre sí, con un mínimo de separación a lo largo y ancho entre fosas y bóvedas de 0,50 metros. Cada 2 filas, estarán separadas por un pasillo de 1,50 metros mínimo. En caso de la utilización de equipo mecánico para excavación, deberá preverse el ancho de los pasillos, dejándolos adecuados para su circulación y operación, de acuerdo al equipo que se emplee.
+Cada pasillo no debe exceder los 100 metros de longitud.
+La separación mínima entre las tumbas y los linderos de las propiedades colindantes será de tres metros mínimo. Si el lindero contiguo tiene una profundidad de más de un metro respecto al nivel del cementerio, el retiro mínimo será de cinco metros.
+Los constructores de las obras señaladas en el artículo 18 y siguientes del presente Reglamento, deberán estar registrados ante la Municipalidad, demostrar experiencia y conocimiento del oficio con constancias de trabajos similares a nivel privado o público o por recomendaciones de profesionales en la materia.
+Todo constructor deberá dejar el sitio construido limpio de escombros, además de limpiar las obras cercanas a la construcción.
+En caso de incumplimiento del punto anterior se clausurará la obra, si aún está no se ha terminado, por un periodo hasta corregir las anomalías señaladas por el encargado del cementerio
+El encargado del cementerio o panteonero queda autorizado para el control de las normas anteriores y de las clausura de las obras en forma preventiva e informar a la administración del cementerio, su actuación justificada, está dependencia podrá suspender la licencia al constructor en forma temporal hasta por un año o en forma permanente, si hay reincidencia por parte del constructor o encargado de la obra.

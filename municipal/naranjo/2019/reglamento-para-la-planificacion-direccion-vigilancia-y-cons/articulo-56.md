@@ -1,0 +1,1 @@
+Artículo 56º-EI titular del derecho funerario deberá designar en vida, como mínimo un beneficiario de la sepultura y como máximo tres, para después de su muerte. Este quedará debidamente registrado en el contrato de uso, así como en los registros de la Administración del Cementerio.

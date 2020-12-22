@@ -1,0 +1,1 @@
+Artículo 66°-Todas aquellas normas reglamentarias o actos administrativos anteriores a este reglamento que se le opongan o contradigan quedan derogadas a partir de su publicación en el Diario Oficial La Gaceta.

@@ -1,0 +1,1 @@
+Artículo 62°-Para que opere la pérdida del derecho funerario por cualquiera de las causales establecidas en el artículo precedente, basta que la falta o faltas sean de fácil constatación y haya transcurrido el periodo de tiempo establecido en la norma anterior. Costos De Los Servicios Que Se Brindan, Derecho Funerario Y Alquiler De Nichos Municipales.

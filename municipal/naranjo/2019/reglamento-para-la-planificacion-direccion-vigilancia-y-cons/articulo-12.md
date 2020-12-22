@@ -1,0 +1,1 @@
+Artículo 12º-EI Administrador o administradora del cementerio determinará, la cantidad de personal y puestos necesarios para poder cumplir con las funciones administrativas, establecidas en el presente reglamento.
