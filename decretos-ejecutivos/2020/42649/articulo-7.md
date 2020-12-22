@@ -1,0 +1,1 @@
+Artículo 7.- NORMATIVA SUPLETORIA. En lo no previsto en el presente Decreto Ejecutivo, sobre el funcionamiento de la Comisión, se aplican supletoriamente las disposiciones que rigen a los órganos colegiados, establecidas en la Ley General de la Administración Pública.

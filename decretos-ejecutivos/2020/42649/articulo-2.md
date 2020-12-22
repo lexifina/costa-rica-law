@@ -1,0 +1,10 @@
+Artículo 2.- FUNCIONES. La Comisión Auxiliar tendrá como funciones principales, las siguientes:
+a. Facilitar, promover, apoyar y ejecutar en conjunto con otros actores públicos y privados, el Programa Nacional del Bicentenario 2021, definido por la Presidencia de la República y el Ministerio de Cultura y Juventud, y avalado por la Comisión Nacional de Conmemoraciones Históricas, coordinando y supervisando el diseño, la logística y ejecución de las actividades y proyectos de dicho Programa.
+b. Requerir a los Jerarcas de las instituciones públicas que participarán en el Programa, la designación de enlaces gubernamentales y la propuesta de proyectos, para articular su apoyo. El Jerarca Institucional respectivo, garantizará que el enlace designado atienda las convocatorias de la Comisión Auxiliar para el desarrollo de las acciones y actividades del Programa.
+c. Coordinar la comunicación estratégica y el alineamiento de los proyectos según la visión del Programa.
+d. Integrar, una vez valoradas como oportunas y convenientes, las propuestas de los distintos actores involucrados (Poderes del Estado, la empresa privada, la sociedad civil, el sector académico y la ciudadanía en general) y proponer su alineamiento dentro del Programa Bicentenario en la programación oficial de las celebraciones.
+e. Solicitar y tramitar la colaboración interinstitucional y las alianzas público-privadas necesarias para la ejecución del Programa.
+f. Fiscalizar y supervisar el uso de los elementos distintivos oficiales del Programa, para todos los actores involucrados.
+g. Constituir y organizar los grupos de trabajo que sean necesarios para el cumplimiento de tareas específicas o generales, en el marco de las celebraciones planteadas en el Programa y dar seguimiento a su trabajo.
+h. Promover y gestionar patrocinios, acciones de voluntariado y políticas de responsabilidad social y ambiental asociadas al Programa.
+i. Rendir cuentas del trabajo realizado, trimestralmente, a la Comisión Nacional de Conmemoraciones Históricas.

@@ -1,0 +1,1 @@
+Artículo 8.- REFORMAS. Cualquier reforma parcial o total del presente reglamento, deberá contar con el acuerdo firme de la Comisión Nacional de Conmemoraciones Históricas, creada por Ley No. 5118, para su posterior promulgación por el Poder Ejecutivo.

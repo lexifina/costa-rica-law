@@ -1,0 +1,2 @@
+Artículo 4.-NOMBRAMIENTO. El nombramiento de estos miembros, lo hará la Ministra de Cultura y Juventud por Resolución Administrativa, con base en las designaciones recibidas por cada una de las instituciones o despachos que integran la Comisión. Dichos nombramientos estarán vigentes desde la fecha de su designación y hasta el 7 de mayo de 2022.
+En caso que cualquier circunstancia obligue al retiro permanente de alguno de los miembros de la Comisión, quién sea nombrado para ocupar el cargo, lo será por el resto del período del miembro saliente.
