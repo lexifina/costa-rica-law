@@ -1,0 +1,1 @@
+Artículo 17—Colaboración a los funcionarios de la Administración Tributaria. Los contribuyentes, responsables, declarantes y terceros deben atender a los funcionarios de la Administración Tributaria y prestarles la mayor colaboración en el desarrollo de su función.

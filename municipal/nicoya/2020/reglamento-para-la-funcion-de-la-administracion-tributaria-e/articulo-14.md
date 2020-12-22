@@ -1,0 +1,7 @@
+Artículo 14— Domicilio fiscal. El domicilio fiscal es el lugar de localización de los sujetos pasivos, en sus relaciones con la Administración Tributaria, sin perjuicio de lo dispuesto en este reglamento en cuanto a la notificación de las actuaciones administrativas. Se establecen de la siguiente manera:
+1. Para las personas físicas: Es el lugar donde tengan su residencia habitual dentro del cantón. No obstante, para las personas físicas que desarrollen principalmente actividades económicas, la Administración Tributaria podrá considerar como domicilio fiscal el lugar donde esté efectivamente centralizada la gestión administrativa y la dirección de las actividades desarrolladas o el lugar donde ocurra el hecho generador de la obligación tributaria.
+2. Para las personas jurídicas, será su domicilio social, siempre que en él esté efectivamente centralizada su gestión administrativa y la dirección de sus negocios. En otro caso, se atenderá el lugar en el que se lleve a cabo dicha gestión o dirección. Las disposiciones de este artículo se aplican también a las sociedades de hecho, los fideicomisos, las sucesiones y las entidades análogas que carezcan de personalidad jurídica propia.
+3. Para las personas domiciliadas en el extranjero, se aplicará lo siguiente:
+a) Si tienen establecimiento permanente en el país, se debe aplicar el domicilio fiscal.
+b) En los demás casos, el domicilio es el de su representante legal.
+c) A falta de dicho representante, se debe tener como domicilio el lugar donde ocurra el hecho generador de la obligación tributaria.

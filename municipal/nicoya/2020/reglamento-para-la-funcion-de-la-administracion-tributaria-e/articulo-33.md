@@ -1,0 +1,1 @@
+Artículo 33—Monto mínimo para realizar arreglo de pago. Únicamente procederán arreglos de pago cuando las obligaciones vencidas sobre el monto principal de la deuda sean por un monto mayor a la quinta parte del salario base, de conformidad con el Decreto de Salarios vigente al momento de efectuarse el arreglo de pago respectivo.
