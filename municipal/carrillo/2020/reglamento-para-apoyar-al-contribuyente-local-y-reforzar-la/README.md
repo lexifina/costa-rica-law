@@ -14,3 +14,4 @@ Reglamento para apoyar al contribuyente Local, y reforzar la gestión financiera
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-07-24 | la propia norma |
+| 2 | 2020-12-22 | Acuerdo municipal 6 (2020-12-22) |

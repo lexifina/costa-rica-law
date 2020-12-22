@@ -1,4 +1,5 @@
 MUNICIPALIDAD DE CARRILLO, GUANACASTE
+(Nota de Sinalevi: Mediante Sesión Ordinaria Nº 51-2020 del 22 de diciembre del 2020, se acordó establecer una prórroga hasta el 31 de marzo del 2021 de implementación del Reglamento Municipal a la Ley N° 9848, para que los administrados puedan disponer de más tiempo para apersonarse a realizar gestiones que otorga dicha Ley.)
 El Concejo Municipal del Cantón de Carrillo, en uso de las facultades que le confieren los artículos 169 y 170 de la Constitución Política; artículo 4 inciso a), artículo 13 inciso c) y artículo 43, todos del Código Municipal, Ley N° 7794 publicada en La Gaceta N° 94 del 18 de mayo de 1998, y;
 “De conformidad con lo dispuesto en el artículo 43 del Código Municipal, la Municipalidad de Carrillo, Guanacaste, según acuerdo N° 3 de la sesión extraordinaria N° 18 del 09 de julio del 2020, aprueba el siguiente Reglamento”:
 PROPUESTA GENERAL DE CONTENIDO
@@ -18,5 +19,3 @@ Este Concejo Municipal de Carrillo en ejercicio de las facultades que le confier
 CAPÍTULO I
 Disposiciones Generales
 Artículo 1°—Objeto y ámbito del Reglamento. El presente Reglamento tiene por objeto establecer las normas que regularán el pago de las obligaciones por concepto de tasas, precios públicos, servicios municipales, impuestos municipales y cánones por concesión por parte de los contribuyentes, sujetos pasivos y licenciatarios a la Municipalidad de Carrillo, que se beneficiarán con la aplicación de los artículos 12, 13,14 y 16 de la Ley 9848. Serán de aplicación obligatoria para la Dirección Financiera Administrativa, la Hacienda Municipal, y para los demás involucrados en el proceso de la Municipalidad para este fin, a quienes se autoriza la Aplicación de Moratoria establecida en Ley de Marras y bajo las particularidades que se anotan a continuación y partiendo de que estos impuestos se pagan por adelantado:
-[imagen]
-[imagen]
