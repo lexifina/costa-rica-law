@@ -1,0 +1,1 @@
+Artículo 13.—Alcances. El presente reglamento, no regula actividades de docencia donde no exista superposición horaria o bien ésta se desarrolle posteriormente a la jornada laboral ordinaria y en tales casos no se exigirá ningún permiso o trámite previo para ejercerla.

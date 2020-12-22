@@ -1,0 +1,1 @@
+Artículo 7.—Verificación de Cumplimiento. El Departamento de Gestión y Desarrollo Humano podrá realizar facultativamente las verificaciones que resulten necesarias a fin de constatar la continuidad del plan de trabajo presentado, el cumplimiento en la reposición de horas, así como las lecciones efectivas impartidas por el beneficiario.

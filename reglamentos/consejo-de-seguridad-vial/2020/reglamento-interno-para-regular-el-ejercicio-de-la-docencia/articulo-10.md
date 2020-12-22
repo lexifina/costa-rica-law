@@ -1,0 +1,1 @@
+Artículo 10.—Adendas. Será necesario la suscripción de una adenda para todas aquellas modificaciones que sufra el “Contrato de Licencia para el Ejercicio de la Docencia” en cuanto al aumento o disminución de horas aprobadas.

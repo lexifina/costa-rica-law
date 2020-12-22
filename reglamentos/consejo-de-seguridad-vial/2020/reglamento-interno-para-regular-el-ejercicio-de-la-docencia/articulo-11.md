@@ -1,0 +1,2 @@
+Artículo 11.—Trámites excepcionales. En el caso de las solicitudes de permisos para ejercer la docencia presentadas por el Director Ejecutivo o el Auditor Interno, éstas deberán ser tramitadas directamente por la Junta Directiva, en quien recaerá a su vez su aprobación.
+En tales casos, la Junta Directiva podrá delegar en su Secretaría o en quien considere procedente, la potestad de realizar las verificaciones de requisitos que resulten necesarias a fin de constatar la continuidad del plan de trabajo presentado y las lecciones efectivas impartidas por parte del beneficiario.

@@ -1,0 +1,2 @@
+Artículo 6º—Aprobación. Una vez recibido el informe mencionado en el artículo anterior, la Dirección Ejecutiva emitirá una resolución razonada, comunicando la aprobación o denegación de la solicitud, notificando al interesado de lo resuelto con copia al Departamento de Gestión y Desarrollo Humano y la jefatura inmediata.
+En el caso de que el solicitante sea el Director Ejecutivo o el Auditor Interno, se aplicará lo dispuesto en el artículo 11 de este reglamento.

@@ -1,0 +1,1 @@
+Artículo 2º—Objeto. Establecer los requisitos y procedimientos para permitir que los funcionarios en propiedad o interinos, plazas especiales, director ejecutivo, auditor interno y cualquier otro puesto de confianza puedan ejercer la docencia dentro de la jornada laboral respectiva.

@@ -1,0 +1,1 @@
+Artículo 17.—Situaciones no previstas. Las situaciones no consideradas en este reglamento serán conocidas en primera instancia por la Dirección Ejecutiva o por la Junta Directiva si ameritan modificaciones al mismo.
