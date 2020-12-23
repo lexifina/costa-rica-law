@@ -1,0 +1,1 @@
+Artículo 2º—Alcance. El presente Reglamento es de acatamiento obligatorio para todas las personas trabajadoras de La Institución que laboren o lleguen a laborar en la modalidad de teletrabajo. También será de aplicación para aquellos funcionarios y funcionarias que tengan a su cargo personal que preste sus servicios bajo dicha modalidad.
