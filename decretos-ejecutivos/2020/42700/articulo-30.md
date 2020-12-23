@@ -1,0 +1,1 @@
+Artículo 30.- El Ministerio de Salud, al amparo de las disposiciones contenidas en el artículo 364 de la Ley General de Salud, podrá cancelar o suspender la autorización o funcionamiento del establecimiento, cuando contravenga alguna de las disposiciones contenidas en el presente Reglamento o en la Ley General de Salud.

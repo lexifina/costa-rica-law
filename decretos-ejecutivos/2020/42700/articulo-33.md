@@ -1,0 +1,1 @@
+Artículo 33.- Se concede un plazo de 6 meses, a partir de la publicación y vigencia del presente reglamento, a las funerarias que tienen Permiso Sanitario de Funcionamiento vigente, para desarrollar las actividades descritas con el fin de cumplir con los requisitos establecidos en este Reglamento.

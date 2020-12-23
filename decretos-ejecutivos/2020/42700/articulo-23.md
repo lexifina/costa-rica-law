@@ -1,0 +1,1 @@
+Artículo 23.- No podrán dedicarse al embalsamiento de cadáveres, aquellos establecimientos que no cuenten con una aprobación del Ministerio de Salud para esa labor que garanticen una técnica adecuada. Además, que no cuente con un protocolo de manejo y disposición de material bioinfeccioso aprobado por dicho Ministerio.

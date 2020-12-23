@@ -1,0 +1,1 @@
+Artículo 20.- Aquellas funerarias que realicen embalsamiento de cadáveres deberán tener una sala de disección que cumpla con las medidas que se establecen en éste reglamento, además del permiso sanitario de funcionamiento y el médico patólogo regente del establecimiento, debidamente registrado y autorizado por el Colegio de Médicos y Cirujanos.

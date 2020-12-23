@@ -1,0 +1,1 @@
+Artículo 16.- Las personas físicas, empresas particulares o públicas que deseen iniciar una edificación para ser destinada a funeraria, o darle ese uso a una ya construida, requerirán autorización del Ministerio de Salud.

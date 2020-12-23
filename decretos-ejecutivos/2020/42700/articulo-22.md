@@ -1,0 +1,1 @@
+Artículo 22.- El médico regente patólogo de la funeraria, no podrá desempeñar el cargo en más de una sede en donde se realizan los procedimientos de autopsia y Tanatopraxia descritos en este reglamento

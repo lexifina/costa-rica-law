@@ -1,0 +1,1 @@
+Artículo 24.- Las funerarias que no cuenten con instalaciones aprobadas para salas de autopsia, podrán contratar los servicios de otra entidad funeraria que cuente con el respectivo permiso sanitario de funcionamiento para ese fin y con su regente de sede.

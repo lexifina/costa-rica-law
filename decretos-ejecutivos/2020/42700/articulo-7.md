@@ -1,0 +1,1 @@
+Artículo 7.- Todas las funerarias se considerarán empresas privadas de interés público y estarán obligadas a brindar el servicio en forma ininterrumpida, oportuna y eficiente bajo estrictas normas técnicas y administrativas de funcionamiento, de modo que garantice la higiene, privacidad, seguridad y bienestar de los usuarios y el debido respeto al cadáver y sus deudos.
