@@ -18,3 +18,4 @@ Ordena la suspensión temporal de aquellas actividades que favorezcan el surgimi
 | 3 | 2020-10-14 | Resolución 8527 (2020-10-14) |
 | 4 | 2020-10-15 | Resolución 8551 (2020-10-15) |
 | 5 | 2020-10-29 | Resolución 8741 (2020-10-29) |
+| 6 | 2020-12-23 | Resolución 9400 (2020-12-23) |
