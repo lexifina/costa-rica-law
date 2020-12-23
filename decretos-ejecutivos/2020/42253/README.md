@@ -27,3 +27,4 @@ Restricción vehicular en horario nocturno para mitigar los efectos del Covid-19
 | 12 | 2020-08-27 | Decreto Ejecutivo 42577 (2020-08-27) |
 | 13 | 2020-09-09 | Decreto Ejecutivo 42606 (2020-09-09) |
 | 14 | 2020-10-16 | Decreto Ejecutivo 42666 (2020-10-16) |
+| 15 | 2020-12-23 | Decreto Ejecutivo 42774 (2020-12-23) |
