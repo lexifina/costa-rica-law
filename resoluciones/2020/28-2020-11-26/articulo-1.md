@@ -1,0 +1,2 @@
+MUNICIPALIDAD DE LA UNIÓN
+MLU-DAM-RES-031-2020.—La Alcaldía Municipalidad de La Unión, comunica que de acuerdo con Resolución Administrativa N° MLU-DAM-028-2020 del 26 de noviembre del 2020 “Se resuelve aprobar la Adhesión al Manual de Valores Base Unitarios por Tipología Constructiva 2019, publicado en el Alcance Digital N° 198, en La Gaceta 187 del 30 de julio del 2020, por el Órgano de Normalización Técnica (O.N.T.) del Ministerio de Hacienda”.
