@@ -1,0 +1,1 @@
+Artículo 5º—El monto señalado en el artículo 4 del presente reglamento se ajustará anualmente cada vez que la Contraloría General de la República, en atención al artículo 27 de la Ley de Contratación Administrativa, emita la resolución en que fija los montos límites para los diferentes procedimientos de Contratación Administrativa.

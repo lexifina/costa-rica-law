@@ -1,0 +1,2 @@
+Artículo 6º—Para aquellos procedimientos en que deba adquirirse bienes y servicios por un monto mayor al de Contratación Directa el Concejo deberá autorizar el inicio del procedimiento y realizar la adjudicación del mismo previo informe de la Proveeduría Municipal al respecto.
+No obstante, y en caso de que la naturaleza del procedimiento así lo determine, los pagos parciales que deban realizarse serán autorizados por el Titular de la Alcaldía siempre que dichos pagos sean inferiores al monto autorizado en el artículo 4 del presente reglamento.

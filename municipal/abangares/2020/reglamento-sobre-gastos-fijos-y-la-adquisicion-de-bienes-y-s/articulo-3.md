@@ -1,0 +1,1 @@
+Artículo 3º—La adquisición de bienes y servicios por parte de la Municipalidad se realizará en apego al Código Municipal, a la Ley de Contratación Administrativa, su reglamento, y el Reglamento de la Proveeduría Municipal. La Unidad encargada de efectuar tales procedimientos es la Proveeduría Municipal.

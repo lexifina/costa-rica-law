@@ -1,0 +1,1 @@
+Artículo 8º—Se autoriza al Titular de la Alcaldía para que, mediante resolución razonada, aumente o disminuya el monto de la caja chica. Tal aumento, sin embargo, no podrá ser superior al 10% del monto autorizado en el artículo 4 del presente reglamento.

@@ -1,0 +1,1 @@
+Artículo 4º—Se autoriza a la persona Titular de la Alcaldía, o a quien le sustituya, a adquirir bienes, servicios, autorizar administrativamente gastos fijos, firmar convenios y contratos a nombre de la Municipalidad, hasta por una suma igual al monto autorizado para los procesos de Contratación Directa, que excluya obra pública, de la Municipalidad.
