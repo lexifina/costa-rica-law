@@ -1,1 +1,1 @@
-Artículo 4º—Presentación de documentos pertinentes. Que mediante dicha plataforma el usuario o contribuyente, presentará los documentos correspondientes a las gestiones que, al momento de publicación de la presente resolución, ha venido presentando por medio de la cuenta de correo: infoyasistencia@hacienda.go.cr.
+Artículo 4º—Presentación de documentos pertinentes. (Derogado por el artículo 19 de la resolución N°DGT-R-46-2020 del 23 de diciembre del 202,0 “Condiciones de uso para la Plataforma de Trámite Virtual (TRAVI)”)

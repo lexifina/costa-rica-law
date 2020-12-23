@@ -1,4 +1,5 @@
 DIRECCIÓN GENERAL DE TRIBUTACIÓN
+(Nota de Sinalevi: Mediante el artículo 29 de la resolución N°DGT-R-46-2020 del 23 de diciembre del 2020, “Condiciones de uso para la Plataforma de Trámite Virtual (TRAVI)”, se acordó derogar la presente norma, salvo lo dispuesto en los numerales 1°y 10 que se mantiene vigentes)
 DGT-R-17-2020.—Dirección General de Tributación.—San José, a las 08 horas 15 minutos del 29 de julio del 2020.
 Considerando:
 I.—Que el artículo 99 de la Ley N° 4755 “Código de Normas y Procedimientos Tributarios”, en adelante Código Tributario, faculta a la Administración Tributaria para dictar normas generales para la correcta aplicación de las leyes tributarias, dentro de los límites que fijen las disposiciones legales y reglamentarias pertinentes.

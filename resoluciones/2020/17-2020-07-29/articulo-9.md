@@ -1,1 +1,1 @@
-Artículo 9º—Contingencia ante suspensión de la plataforma TRAVI. En caso de que se presente cualquier situación que provoque una suspensión temporal de la plataforma TRAVI, el usuario y/o contribuyente deberá presentar sus gestiones por medio de la cuenta de correo electrónico: infoyasistencia@hacienda.go.cr.
+Artículo 9º—Contingencia ante suspensión de la plataforma TRAVI. (Derogado por el artículo 19 de la resolución N°DGT-R-46-2020 del 23 de diciembre del 202,0 “Condiciones de uso para la Plataforma de Trámite Virtual (TRAVI)”)

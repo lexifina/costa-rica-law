@@ -1,1 +1,1 @@
-Artículo 6º—Seguridad en el uso de la plataforma tecnológica. La Administración Tributaria del Ministerio de Hacienda, garantiza la individualidad, seguridad e integridad de la información enviada y recibida por el usuario mediante la plataforma TRAVI.
+Artículo 6º—Seguridad en el uso de la plataforma tecnológica. (Derogado por el artículo 19 de la resolución N°DGT-R-46-2020 del 23 de diciembre del 202,0 “Condiciones de uso para la Plataforma de Trámite Virtual (TRAVI)”)

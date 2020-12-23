@@ -1,1 +1,1 @@
-Artículo 7º—Atención presencial. Aquellos contribuyentes que carezcan de medios tecnológicos o destrezas suficientes en informática para la presentación de sus solicitudes por medio de la plataforma TRAVI, pueden gestionar una cita por medio de la línea telefónica designada para ello, con el fin de que su gestión sea atendida por medio de un agente de forma personalizada.
+Artículo 7º—Atención presencial. (Derogado por el artículo 19 de la resolución N°DGT-R-46-2020 del 23 de diciembre del 202,0 “Condiciones de uso para la Plataforma de Trámite Virtual (TRAVI)”)

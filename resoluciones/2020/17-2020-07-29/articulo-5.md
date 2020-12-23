@@ -1,1 +1,1 @@
-Artículo 5º—Uso de formularios. Que el usuario deberá seguir utilizando los formularios establecidos para cada trámite y cumplir con los requisitos respectivos en cada uno de los procedimientos que la administración ha señalado, adjuntándolos a la solicitud presentada por medio de TRAVI.
+Artículo 5º—Uso de formularios. (Derogado por el artículo 19 de la resolución N°DGT-R-46-2020 del 23 de diciembre del 202,0 “Condiciones de uso para la Plataforma de Trámite Virtual (TRAVI)”)

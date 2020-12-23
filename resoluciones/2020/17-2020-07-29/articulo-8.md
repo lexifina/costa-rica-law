@@ -1,2 +1,1 @@
-Artículo 8º—Requisitos para la obtención de acceso a la plataforma TRAVI. Para hacer uso de los servicios de la plataforma TRAVI el usuario deberá:
-Ingresar con la clave que le será generada por medio de la plataforma, y digitar sus datos personales, nombre y número de identificación, así como la condición en la que estará actuando, ya sea como contribuyente, representante legal o tercero autorizado.
+Artículo 8º—Requisitos para la obtención de acceso a la plataforma TRAVI. (Derogado por el artículo 19 de la resolución N°DGT-R-46-2020 del 23 de diciembre del 202,0 “Condiciones de uso para la Plataforma de Trámite Virtual (TRAVI)”)
