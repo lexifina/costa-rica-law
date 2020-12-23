@@ -1,0 +1,3 @@
+Artículo 5º—Control de teléfonos asignados. La Dirección Administrativa deberá entregar y llevar un registro actualizado de los teléfonos celulares adquiridos y asignados, de conformidad con las leyes y reglamentos de control interno.
+En dicho registro se consignará el número de teléfono, el número de patrimonio, el nombre, número de cédula y el cargo del (de la) funcionario (a) a quien se le autorizó el uso de un teléfono celular, así como la fecha de su asignación y demás características técnicas que se requieran.
+Todo cambio en los datos anteriormente señalados deberá ser reportado por el (la) funcionario (a) responsable del bien asignado, a la Dirección Administrativa.

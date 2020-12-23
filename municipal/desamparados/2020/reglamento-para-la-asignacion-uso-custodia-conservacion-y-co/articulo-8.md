@@ -1,0 +1,1 @@
+Artículo 8º—Sanciones. El incumplimiento de las disposiciones contenidas en este Reglamento hará acreedor al (a la) servidor (a) de responsabilidad disciplinaria, civil y penal, contenida en la Ley de Control Interno, la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública y cualquier otra normativa que le sea aplicable.
