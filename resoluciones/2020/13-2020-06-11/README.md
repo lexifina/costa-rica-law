@@ -17,3 +17,4 @@ Cobro y percepción el impuesto sobre el valor agregado sobre servicios digitale
 | 2 | 2020-06-30 | Resolución 18 (2020-07-30) |
 | 3 | 2020-09-15 | Resolución 27 (2020-09-15) |
 | 4 | 2020-11-26 | Resolución 42 (2020-11-26) |
+| 5 | 2020-12-23 | Resolución 47 (2020-12-23) |
