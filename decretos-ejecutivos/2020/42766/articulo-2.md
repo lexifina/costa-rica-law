@@ -1,0 +1,2 @@
+ARTICULO 2.- La Dirección General de Migración y Extranjería autorizará el ingreso y la permanencia legal de las personas extranjeras bajo la categoría especial de Personas Trabajadoras Temporales, para el desempeño de actividades agrícolas de carácter temporal, sujeto al debido cumplimiento de los requisitos correspondientes.
+La Dirección General de Migración y Extranjería deberá verificar que estas personas extranjeras no cuenten con impedimento de ingreso al país ni que la persona extranjera permanezca de manera irregular en el país.
