@@ -1,0 +1,18 @@
+N° 42772-MOPT- MINAE-S
+EL PRESIDENTE DE LA REPÚBLICA,
+EL MINISTRO DE OBRAS PÚBLICAS Y TRANSPORTES,
+LA MINISTRA DE AMBIENTE Y ENERGIA Y
+EL MINISTRO DE SALUD
+En el ejercicio de las facultades y atribuciones que confieren el artículo 140, incisos 3) y 18) de la Constitución Política; la Ley N° 3155, de 5 de agosto de 1963 y sus reformas, Ley Orgánica del Ministerio de Obras Públicas y Transportes, reformada mediante Ley N° 4786; la Ley de Administración Vial N° 6324, de 24 de mayo de 1979 y sus reformas; la Ley Orgánica del Ambiente, N° 7554, de 4 de octubre de 1995; la Ley General de Salud, N° 5395, de 30 de octubre de 1973 y sus reformas; la Ley Orgánica del Ministerio de Salud, N° 5412, de 8 de noviembre de 1973, la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial, N° 9078, de 4 de octubre de 2012 y el artículo 28 párrafo segundo inciso b) de la Ley General de la Administración Pública, Ley N° 6227 del 2 de mayo de 1978.
+Considerando:
+1.- Que con el objetivo de preservar las regulaciones establecidas en los Decretos Ejecutivos No. 39724 MOPT-MINAE-S, que es el “Reglamento para el Control de las Emisiones Contaminantes Producidas por los Vehículos con Motor de Combustión Interna”, publicado en el Alcance N° 87, a La Gaceta N° 103, del 30 de mayo del 2016 y su reforma No. 40108 MOPT-MINAE-S, publicado en el Alcance No. 321, a La Gaceta No. 247, del 23 de diciembre del 2016, se hace necesario realizar la reforma a los artículos 6 y 7 del Decreto Ejecutivo 39724-MOPT-MINAE-S y con ello habilitar las actuaciones y disposiciones normativas contenidas en el citado reglamento en el contexto de las fechas de aplicación que corresponden.
+2.- Que para permitir a las instituciones competentes actuar y buscar el desarrollo de una nueva normativa que, sea adaptada a los elementos técnicos y legales necesarios, y con ello asegurar una debida aplicación y preservación de las disposiciones de la Ley Orgánica del Ambiente No. 7554 y sus reformas, así como lo prevenido por la Organización Mundial de la Salud (OMS), con respecto a las afectaciones de la salud pública y la conservación del medio ambiente, se hace pertinente un ajuste en las fechas señaladas en los artículos 6 y 7 del Decreto Ejecutivo No. 39724 MOPT-MINAE-S.
+Por tanto;
+DECRETAN
+REFORMA AL DECRETO EJECUTIVO 39724-MOPT-MINAE-S, REGLAMENTO
+PARA EL CONTROL DE LAS EMISIONES CONTAMINANTES PRODUCIDAS
+POR LOS VEHÍCULOS CON MOTOR DE COMBUSTIÓN INTERNA
+Artículo 1.- Refórmese el Artículo 6, del Decreto Ejecutivo N° 39724 -MOPT-MINAE-S, “Reglamento para el Control de las Emisiones Contaminantes Producidas por los Vehículos con Motor de Combustión Interna”, publicado en el Alcance N° 87, a La Gaceta N° 103, del 30 de mayo del 2016, para que en lo sucesivo se lea de la siguiente manera:
+"Artículo 6.- Especificaciones técnicas de los sistemas de reducción de emisiones para vehículos de encendido por compresión: Los vehículos con motor a diésel que ingresen a partir del 1º de enero del 2018, que cuenten con bomba de inyección con controlador mecánico, deben tener precintos en los elementos de ajuste de la bomba.
+Si cuentan con sistema de recirculación de gases de escape y/o purga del cárter del motor, u otras tecnologías que produzcan efectos equivalentes, estos sistemas no se deben eliminar.
+Los vehículos con motor a diésel que ingresen a partir del 1º de enero del 2018 deben contar con sistema de recirculación de gases de escape, purga del cárter del motor y bomba de inyección con controlador electrónico, u otras tecnologías que produzcan efectos equivalentes. A partir del 1° de enero de 2022, deberán contar, además, con convertidor catalítico de tres vías y filtro de partículas, u otras tecnologías que produzcan efectos equivalentes."
