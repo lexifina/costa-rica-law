@@ -1,0 +1,1 @@
+Artículo 16. De la solicitud Contratación. Una vez tramitada y aprobada la solicitud de bienes y servicios, los encargados de los Unidades Administrativas y/u Operativas deberán confeccionar la respectiva solicitud de contratación en el portal de SICOP, la cual debe contener toda la información necesaria para que la PI pueda gestionar el respectivo procedimiento de contratación.

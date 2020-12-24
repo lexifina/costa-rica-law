@@ -1,0 +1,1 @@
+Artículo 20. Del reajuste de precios. Todo reajuste de precios a los contratos suscritos por la Administración, será autorizado por el AM, previa verificación de la existencia de los recursos presupuestarios suficientes y la correspondiente validación de la Unidad Administradora del Contrato.

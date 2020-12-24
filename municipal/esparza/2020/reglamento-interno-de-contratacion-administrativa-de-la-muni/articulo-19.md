@@ -1,0 +1,8 @@
+CAPÍTULO VI
+Los niveles de competencia para aprobar modificaciones contractuales y nuevas
+contrataciones originadas en contrataciones preexistentes y reajustes de precios.
+Artículo 19. De las modificaciones contractuales y nuevas contrataciones originadas en contratos preexistentes. En toda modificación a los contratos o nuevas contrataciones originadas en contratos preexistentes, se procederá de la siguiente forma:
+a) Si el nuevo contrato, corresponde a una contratación de escasa cuantía o una licitación abrevia, según resolución emitida por la CGR cada año, conforme a la cual se actualizan los montos y ubicación del estrato correspondiente a la Institución, corresponderá al AM, la respectiva aprobación.
+b) Si el monto de la modificación o del nuevo contrato, se ubica dentro del rango de licitación pública, según resolución emitida por la CGR cada año, conforme a la cual se actualizan los montos y ubicación del estrato correspondiente a la Institución, corresponderá al CM aprobar las modificaciones contractuales o las nuevas contrataciones originadas en contratos preexistentes, y la Secretaría realizará la aprobación en el portal de SICOP incorporando como documento de respaldo el acuerdo emitido por el CM.
+c) Toda modificación contractual deberá ser aprobada por la instancia que realizó la adjudicación, sea el AM o el CM según corresponda, exceptuando la prórroga del plazo de entrega, las cuales podrán ser aprobadas por el administrador del contrato.
+d) Todo nuevo contrato originado en un contrato anterior, así como toda modificación a un contrato en ejecución, deberá realizarse en el portal de SICOP.
