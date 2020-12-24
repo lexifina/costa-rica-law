@@ -1,0 +1,1 @@
+Artículo 3°.–De las cancelaciones. Lo dispuesto en el presente Decreto no aplica a las actividades de concentración masiva que fueron canceladas por parte de los organizadores. El MEIC realizará la publicación en su página web de la lista de los eventos que han sido cancelados.
