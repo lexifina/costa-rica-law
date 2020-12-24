@@ -1,0 +1,2 @@
+Artículo 19.- Vigencia de la autorización de uso del bien público. El plazo por el que estará vigente la autorización de uso del bien público es de un periodo fiscal, mismo que corresponderá de los meses de enero a diciembre de cada año.
+En caso de no cubrir el periodo fiscal completo, se utilizará la proporcionalidad de los dozavos (proporción de los meses restantes para concluir el año, con la salvedad de que la fracción de mes es de un mes completo).
