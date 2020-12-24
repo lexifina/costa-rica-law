@@ -1,1 +1,0 @@
-Artículo 9º—Incorporación al Registro de Proveedores. Toda persona física o jurídica interesado en formar parte del Registro de Proveedores, deberá completar la información de formulario descrito en el anexo 1 de este Reglamento.

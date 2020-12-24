@@ -1,1 +1,0 @@
-Artículo 8º—Actualización del Registro. La PI tendrá bajo su responsabilidad conformar y mantener actualizado el Registro de Proveedores, para lo cual se publicará en el Diario Oficial La Gaceta y en un diario de circulación nacional, durante el primer mes de cada año, la invitación para los interesados en inscribirse o a actualizar su información en el Registro de Proveedores.
