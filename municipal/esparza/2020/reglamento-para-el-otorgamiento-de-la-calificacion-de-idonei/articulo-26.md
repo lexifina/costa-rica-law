@@ -1,0 +1,1 @@
+Artículo 26—De las derogatorias. El presente Reglamento deroga cualquier otra disposición Municipal que se le oponga. Toda modificación total o parcial de este Reglamento deberá ser publicada en el Diario Oficial para su eficacia.

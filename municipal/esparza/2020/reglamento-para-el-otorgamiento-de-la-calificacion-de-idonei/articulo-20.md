@@ -1,0 +1,2 @@
+Artículo 20— Vigencia de la Calificación de Idoneidad otorgada por otras instituciones.
+El dictamen afirmativo o negativo para el otorgamiento de la calificación de idoneidad del sujeto privado de administrar fondos públicos emitido por el Concejo Municipal una vez quedado en firme se notificará al sujeto privado. De ser afirmativa la declaratoria de idoneidad esta tendrá como fecha de vencimiento la conferida por la institución otorgante.

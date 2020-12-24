@@ -1,0 +1,1 @@
+Artículo 8º—Del Expediente. Para los efectos de lo dispuesto en el artículo anterior, la administración concedente, debe llevar un expediente debidamente foliado, de cada sujeto privado que realice una solicitud. Además, la Comisión Técnica Administrativa de Idoneidad, deberá verificar en el registro que la calificación de idoneidad no esté vencida o haya sido revocada.

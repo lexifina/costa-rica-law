@@ -1,0 +1,1 @@
+Artículo 14—De la Fiscalización. El Concejo Municipal y la unidad de auditoría interna de la administración concedente podrá fiscalizar la actuación realizada por la administración y el sujeto privado en la aplicación de este Reglamento.
