@@ -1,0 +1,1 @@
+Transitorio I. —Los presupuestos de los beneficios patrimoniales a sujetos privados, aquí regulados, y que se encuentren en trámite, ante la Contraloría General de la República, antes de la entrada en vigencia de las presentes Normas Técnicas, deben finalizar su trámite bajo las mismas normas que regían al momento de su presentación.

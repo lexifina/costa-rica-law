@@ -1,0 +1,2 @@
+Transitorio IV- Los procedimientos y normas internas definidas por los concedentes para el otorgamiento de los beneficios patrimoniales, que se encuentren en uso al momento de la entrada en vigencia de la presente regulación, deberán ajustarse a lo dispuesto en las citadas Normas en un plazo no mayor de seis meses, sin detrimento de los controles adicionales definidos por cada concedente.
+PUBLÍQUESE.

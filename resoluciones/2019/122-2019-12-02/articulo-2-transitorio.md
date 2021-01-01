@@ -1,0 +1,1 @@
+Transitorio II. —Para el ejercicio económico 2021 únicamente se presentarán a aprobación de la Contraloría General el presupuesto de aquellos beneficios patrimoniales cuyo monto individual supere las 150.733 unidades de desarrollo.
