@@ -1,0 +1,1 @@
+Artículo 2º—Deróguese el Decreto Ejecutivo número 42623-H del 08 de setiembre de 2020, publicado en el Alcance Número 260 del Diario Oficial La Gaceta Número 241 del 01 de octubre de 2020, a partir de la vigencia del presente decreto.
