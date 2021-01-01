@@ -1,0 +1,2 @@
+Artículo 2º—Refórmese el artículo 49 del Reglamento Autónomo de Servicios del Tribunal Supremo de Elecciones, para que se lea así:
+“Artículo 49.-Cuando se compruebe incapacidad o ineficiencia en el desempeño de un puesto, si no es el caso de separación para el mejor servicio público, la persona servidora puede ser permutada o trasladada a otro puesto de grado igual, lo que dispondrá el Tribunal con vista en los resultados de la evaluación del desempeño y previo levantamiento de la información correspondiente.”
