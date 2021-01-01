@@ -1,0 +1,1 @@
+Artículo 5º—Se deja sin vigencia la resolución DGH-042- 2020 y DGA-425-2020 de la Dirección General de Hacienda y de la Dirección General de Aduanas del Ministerio de Hacienda, San José, a las doce horas con cincuenta minutos del día 04 de setiembre de dos mil veinte, publicada en La Gaceta Nº 230 del miércoles 16 setiembre del 2020.

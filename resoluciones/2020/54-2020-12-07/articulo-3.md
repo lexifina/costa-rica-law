@@ -1,0 +1,1 @@
+Artículo 3º—También aplica la misma tasa de interés para el cobro de intereses en caso de multas impuestas por el Servicio Nacional de Aduanas no pagadas, las cuales se computarán a partir de los tres días hábiles siguientes a la firmeza de la resolución que las fija, conforme a la tasa establecida en el artículo 61 de la Ley General de Aduanas.
