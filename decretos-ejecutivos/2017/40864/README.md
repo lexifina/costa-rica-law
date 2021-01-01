@@ -18,3 +18,4 @@ Reglamento para el cierre y utilización de las vías públicas terrestres
 | 3 | 2021-01-01 | Decreto Ejecutivo 41268 (2018-08-27) |
 | 4 | 2021-01-01 | Decreto Ejecutivo 41408 (2018-10-26) |
 | 5 | 2021-01-01 | Decreto Ejecutivo 41721 (2019-04-29) |
+| 6 | 2021-01-01 | Decreto Ejecutivo 41827 (2019-06-26) |
