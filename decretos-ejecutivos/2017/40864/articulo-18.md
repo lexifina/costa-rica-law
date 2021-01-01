@@ -1,0 +1,2 @@
+Artículo 18° - Utilización y Cierres de las vías públicas para eventos electorales.
+Además de los requisitos indicados en los artículos 10 y 16, según sea el caso, cuando se trate de utilización y cierres de las vías públicas para eventos electorales, el interesado debe aportar autorización del Tribunal Supremo de Elecciones de conformidad con el artículo 137 del Código Electoral y el Reglamento para Autorizar Actividades de los Partidos Políticos en Sitios Públicos, Decreto Nº 7-2013, publicado en La Gaceta Nº 136 de 16 de julio de 2013.

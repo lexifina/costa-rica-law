@@ -1,0 +1,4 @@
+Artículo 2° - Aplicación del reglamento.
+Cuando se trate de rutas nacionales, la aplicación de este reglamento, el análisis técnico de las solicitudes y el otorgamiento de los permisos respectivos le compete a la Dirección General de Ingeniería de Tránsito del Ministerio de Obras Públicas y Transportes (DGIT).
+En las rutas cantonales, la competencia para el otorgamiento de permisos para cierre o utilización de las vías es exclusiva de la Municipalidad respectiva, quien deberá establecer el procedimiento a seguir, sujetándose a los lineamientos establecidos en la Ley de Tránsito por Vías Públicas y Seguridad Vial vigente.
+En tramos de rutas mixtas (nacionales y municipales) y en caso de cierres permanentes de rutas cantonales, la competencia la ostenta la DGIT en apego a las normas de este reglamento.

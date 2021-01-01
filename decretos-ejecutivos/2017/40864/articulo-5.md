@@ -1,0 +1,7 @@
+Artículo 5° - Uso de la vía pública.
+Se prohíbe el uso de las vías públicas para la realización de actividades distintas a la circulación normal de vehículos y personas, salvo aquellas actividades en donde se haya demostrado previamente su conveniencia para el interés público, de conformidad con el criterio técnico y el permiso emitido por la DGIT en caso de rutas nacionales o mixtas, y de la Municipalidad correspondiente en caso de vías cantonales, con arreglo a la legislación vigente y al presente reglamento.
+Se prohíbe el cierre de las vías públicas en cualquiera de sus modalidades o su utilización para la realización de actividades en las que medien solamente fines o intereses publicitarios evidentes, que beneficien las personas físicas o jurídicas que solicitan el permiso, o a terceros cuando se tratare de particulares.
+Se prohíbe ocupar las vías públicas para la construcción o instalación de puestos de venta con motivo de la realización de festejos populares, patronales u otras actividades similares.
+No se otorgarán permisos para la utilización de las vías públicas en horario nocturno (de las dieciocho horas a las cinco horas del día siguiente).
+Se prohíbe la utilización de vías públicas en el ACC de lunes a sábado. Solo se podrán utilizar las vías públicas en el ACC los días domingo, previo análisis y autorización por parte de la DGIT en caso de rutas nacionales o mixtas.
+Se exceptúan de las disposiciones anteriores aquellas actividades declaradas de interés público.
