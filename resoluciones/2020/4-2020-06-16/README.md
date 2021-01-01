@@ -14,3 +14,4 @@ Proceso de eliminación de la brecha salarial entre los salarios mínimos del Ar
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-01-01 | la propia norma |
+| 2 | 2021-01-01 | Resolución 6 (2020-12-02) |
