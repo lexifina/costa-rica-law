@@ -1,0 +1,1 @@
+Artículo 6.- Las adiciones y reformas dispuestas en los artículos 1, 3, 4 y 5 del presente Decreto Ejecutivo, con el propósito de no generar graves dislocaciones en la seguridad jurídica durante el procedimiento de asignación de contingentes de exportación a la Unión Europea del año 2020 actualmente en curso, entrarán a regir a partir del 01 de enero de 2021.
