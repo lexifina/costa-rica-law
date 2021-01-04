@@ -1,0 +1,1 @@
+Artículo 2°.- Derogatoria. Deróguese los cuadros números 4, 5, 6, 7, 8, 9, y 10 del artículo 4 del Decreto Ejecutivo Nº 38884-MEIC del 24 de febrero del 2015, publicado en el Alcance N° 12 del Diario Oficial La Gaceta N° 41 del 27 de febrero de 2015.
