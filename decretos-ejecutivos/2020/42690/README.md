@@ -18,3 +18,4 @@ Medidas migratorias temporales en el proceso de reapertura de fronteras en el ma
 | 3 | 2020-11-08 | Decreto Ejecutivo 42703 (2020-11-08) |
 | 4 | 2020-11-27 | Decreto Ejecutivo 42738 (2020-11-27) |
 | 5 | 2020-12-21 | Decreto Ejecutivo 42770 (2020-12-21) |
+| 6 | 2021-01-04 | Decreto Ejecutivo 42777 (2021-01-04) |
