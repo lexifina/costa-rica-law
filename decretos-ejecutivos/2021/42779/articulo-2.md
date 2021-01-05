@@ -1,0 +1,1 @@
+ARTÍCULO 2°.-Prórroga de la suspensión temporal. Durante el período comprendido del 5 de enero al 1° de febrero de 2021, se suspende la aplicación del Decreto Ejecutivo número 42484-MOPT-S del 17 de julio de 2020, en su totalidad por dicho lapso.
