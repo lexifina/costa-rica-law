@@ -1,0 +1,1 @@
+ARTÍCULO 42: En caso de renuncia o destitución de alguno de los miembros del CCDR, la sustitución se realizará con el resultante en segundo lugar de la votación final emitida por Concejo Municipal sobre la terna presentada por la Asamblea de elección correspondiente.

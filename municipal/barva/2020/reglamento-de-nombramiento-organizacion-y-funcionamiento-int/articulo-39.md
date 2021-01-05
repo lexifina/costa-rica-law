@@ -1,0 +1,1 @@
+ARTÍCULO 39: En lo que no se establezca en este Reglamento en cuanto a sesiones, actas, dirección, votaciones y quórum se aplicará subsidiariamente el Reglamento Interior de Orden, Dirección y Debates del Concejo Municipal .

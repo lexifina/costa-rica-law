@@ -1,0 +1,1 @@
+ARTÍCULO 34: En la primera sesión, que se celebrara dentro de los cinco días naturales después de la fecha de su juramentación por el Concejo Municipal, los miembros del Comité se reunirán y mediante votación nominal se designaran los cargos a que se refiere el artículo 19 del presente Reglamento.

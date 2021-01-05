@@ -1,0 +1,1 @@
+ARTÍCULO 92: La Comisión de Juegos Deportivos Comunales y Nacionales promoverá la participación de personas de reconocida trayectoria y experiencia, según la disciplina deportiva de que se trate, con el objetivo de que integren las subcomisiones específicas por disciplina deportiva.

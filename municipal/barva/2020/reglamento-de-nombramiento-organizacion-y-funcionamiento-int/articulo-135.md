@@ -1,0 +1,1 @@
+ARTÍCULO 135: Las tarifas por el uso de las instalaciones deportivas y recreativas son de cobro obligatorio, salvo las que se establezcan en el respectivo reglamento y no pueden ser alteradas sin previa autorización del Comité Cantonal, éstas serán fijadas anualmente por el Comité Cantonal mediante un estudio técnico que deberá ser aprobado por el Concejo Municipal.

@@ -1,0 +1,1 @@
+ARTÍCULO 117: Toda recaudación deberá estar debidamente registrada, para este efecto el Comité Cantonal deberá de contar con una cuenta en cualquier ente del Sistema Financiero y Bancario Nacional público y/o Banco Popular y de Desarrollo Comunal.

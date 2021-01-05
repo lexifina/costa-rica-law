@@ -1,0 +1,1 @@
+ARTÍCULO 23: El proceso general para la elección y nombramiento se iniciará a más tardar el primer lunes del mes de septiembre y se extenderá hasta el cuarto lunes del mes de noviembre, día en que se efectuará la juramentación de los miembros que conformarán el nuevo CCDR.

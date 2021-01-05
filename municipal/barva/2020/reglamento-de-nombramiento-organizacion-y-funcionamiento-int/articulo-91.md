@@ -1,0 +1,1 @@
+ARTÍCULO 91: La Comisión de Juegos Deportivos Comunales y Nacionales podrá formar tantas subcomisiones específicas por disciplinas deportivas existentes y practicadas en el cantón, pero deberá tener como mínimas cinco subcomisiones.

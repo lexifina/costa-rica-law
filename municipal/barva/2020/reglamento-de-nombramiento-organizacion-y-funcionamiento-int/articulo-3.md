@@ -1,0 +1,1 @@
+ARTÍCULO 3: La Municipalidad fijará las políticas generales en materia deportiva y recreación, a su vez el Comité Cantonal ejercerá los controles que corresponden, para que sus órganos y afiliados cumplan con las funciones asignadas, dirigidas a la consecución de dichas políticas y para fomentar, tutelar y dirigir el deporte y la recreación en el cantón de Barva.

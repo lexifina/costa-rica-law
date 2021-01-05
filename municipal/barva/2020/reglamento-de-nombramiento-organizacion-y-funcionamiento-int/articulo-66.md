@@ -1,0 +1,1 @@
+ARTÍCULO 66: Las actas del Comité Cantonal deberán ser aprobadas en la sesión inmediata posterior, salvo que lo impidan razones de fuerza mayor, en cuyo caso la aprobación se pospondrá para la siguiente sesión ordinaria.

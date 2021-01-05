@@ -1,0 +1,1 @@
+ARTÍCULO 93: Las subcomisiones serán juramentadas por la Junta Directiva del Comité Cantonal, y corresponderá a la Comisión de Juegos Deportivos Comunales y Nacionales la supervisión y el apoyo directo a estas, debiendo reunirse con ellas, al menos una vez al mes con el objetivo de realizar una planificación y ejecución conjunta del trabajo.

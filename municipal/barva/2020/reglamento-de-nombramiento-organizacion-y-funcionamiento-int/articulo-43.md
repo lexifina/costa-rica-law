@@ -1,0 +1,1 @@
+ARTÍCULO 43: Si el resultante en segundo lugar decidiese no aceptar el cargo por sustitución o llegara a renunciar o ser destituido en algún momento después de haber aceptado el cargo, la sustitución pasará a realizarse con el resultante en tercer lugar de la votación final emitida por el Concejo Municipal sobre la terna presentada por la Asamblea de elección correspondiente.

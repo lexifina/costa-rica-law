@@ -1,0 +1,1 @@
+ARTÍCULO 112: Está prohibido al Comité Comunal de Deportes hacer cualquier uso de los dineros o fondos públicos, cualquier gasto, compra o contratación deberán realizarlo a través del Comité Cantonal. Los fondos que recaude deberán ser depositados en la cuenta del Comité Cantonal como mínimo una vez por semana.

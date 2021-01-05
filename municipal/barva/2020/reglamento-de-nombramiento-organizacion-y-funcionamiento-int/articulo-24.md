@@ -1,0 +1,1 @@
+ARTÍCULO 24.-Excepción. En el caso excepcional de que las Asambleas, CCDR, PERSONA JOVEN Y GRUPOS COMUNALES, no se puedan llevar a cabo, o en las mismas no se logre definir las listas de candidatos, el Concejo Municipal en procura de no interrumpir el trabajo del CCDR, elegirá a los miembros faltantes, para lo cual deberá respetar lo establecido en el presente reglamento.

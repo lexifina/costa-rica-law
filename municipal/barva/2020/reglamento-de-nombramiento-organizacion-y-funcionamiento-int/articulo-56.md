@@ -1,0 +1,1 @@
+ARTÍCULO 56: Queda prohibido al Fiscal por cualquier medio, ejercer cualquier acción o función que implique coadministración dentro del CCDR y sus dependencias. Si se comprobare ésta conducta, será causal de falta grave.

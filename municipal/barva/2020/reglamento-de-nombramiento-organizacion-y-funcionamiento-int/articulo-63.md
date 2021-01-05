@@ -1,0 +1,1 @@
+ARTÍCULO 63: Para lo que no se encuentre previsto en este Reglamento en cuanto al régimen recursivo, en lo que resulte aplicable se utilizarán las disposiciones previstas en el capítulo VI del Código Municipal.

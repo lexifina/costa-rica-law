@@ -1,0 +1,1 @@
+ARTÍCULO 99: Cada subcomisión presentará un informe escrito anual, en la primera semana del mes de octubre, el cual deberá dirigirse a la Comisión de Juegos Deportivos Comunales y Nacionales, con el propósito de que esta lo integre al Informe Anual de Labores del Comité Cantonal.

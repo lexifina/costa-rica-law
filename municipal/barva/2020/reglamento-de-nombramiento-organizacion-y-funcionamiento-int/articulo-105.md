@@ -1,0 +1,1 @@
+ARTÍCULO 105: En lo que resulte aplicable a la elección, separación, de renuncia, destitución, deberes, facultades y de funciones a ejercer por los miembros de la Junta Directiva del Comité Comunal dentro de sus competencias, serán idénticas a las sus funciones que tienen los miembros del Comité Cantonal.

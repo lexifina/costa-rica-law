@@ -1,0 +1,1 @@
+ARTÍCULO 113: Los Comités Comunales deberán llevar un archivo administrativo y financiero así como, cuando corresponda, los libros contables en el que consten los informes referentes a su gestión, los cuales podrán ser solicitados por el Comité Cantonal en cualquier momento. Los libros contables y de actas deberán ser legalizados por la Auditoria Municipal.

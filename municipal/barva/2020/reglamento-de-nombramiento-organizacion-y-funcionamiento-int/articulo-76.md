@@ -1,0 +1,1 @@
+ARTÍCULO 76: A falta de un Administrador (a), dichas funciones las podrá realizar un miembro de la Junta Directiva de forma temporal y con las mismas funciones y responsabilidades pero sin recibir salario por sus funciones.

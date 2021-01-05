@@ -1,0 +1,3 @@
+CAPÍTULO XV
+De las instalaciones
+ARTÍCULO 131: El Comité Cantonal será el administrador general de las instalaciones deportivas municipales existentes en su jurisdicción propias o que le sean dadas en administración por la Municipalidad y podrá delegar en Comités Comunales, Juntas Administrativas, Subcomités de Campos Deportivos o en Asociaciones Deportivas y Filiales, su administración y mantenimiento, sin que por esta razón ceda su responsabilidad. En el diseño, construcción, remodelación y mantenimiento de las instalaciones deportivas se deben eliminar toda forma de discriminación hacia la población con alguna discapacidad y garantizar su derecho al deporte y la recreación.

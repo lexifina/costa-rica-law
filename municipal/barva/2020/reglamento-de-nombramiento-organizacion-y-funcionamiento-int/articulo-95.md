@@ -1,0 +1,1 @@
+ARTÍCULO 95: Las subcomisiones específicas creadas por cada disciplina deportiva, deberán reunirse al menos dos veces al mes. Levarán libros de actas y tesorería cuando sea necesario y posible, los cuales les serán proporcionados por la Junta Directiva del Comité Cantonal. Nombrarán de su seno, un coordinador y un secretario.

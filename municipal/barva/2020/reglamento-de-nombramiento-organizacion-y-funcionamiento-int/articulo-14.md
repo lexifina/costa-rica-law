@@ -1,0 +1,1 @@
+ARTÍCULO 14: El domicilio legal del Comité Cantonal será el cantón de Barva-Heredia en la Casa Scout, pudiendo variarse para casos excepcionales la sede en forma temporal o definitiva previo acuerdo tomado por mayoría de dos terceras partes de los miembros de la Junta Directiva y con el aval del Concejo Municipal.

@@ -1,0 +1,1 @@
+ARTÍCULO 143: En cuanto al régimen disciplinario, los funcionarios de planta estarán sujetos a las sanciones dispuestas por el artículo N° 158 del Código Municipal y para la aplicación de las mismas, la Junta Directiva deberá seguir el procedimiento del artículo N° 159 ss ibídem y demás normativa supletoria de la Ley General de la Administración Pública.

@@ -1,0 +1,2 @@
+ARTÍCULO 145: Para estimular a los dirigentes, atletas, entrenadores, el Comité Cantonal nombrará una Comisión integrada por tres miembros, que escogerá al mejor atleta, mejor entrenador y mejor dirigente deportivo, quienes recibirán una placa como reconocimiento. Para lo anterior se debe establecer claramente el procedimiento y los miembros de la comisión deben ser deportistas o atletas de larga trayectoria y logros, para garantizar el criterio.
+Las personas designadas por la Comisión recibirán del Comité Cantonal un pergamino o placa como reconocimiento.

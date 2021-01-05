@@ -1,0 +1,1 @@
+ARTÍCULO 128: Los Comités Comunales de Deportes deberán presentar ante el Comité Cantonal un informe trimestral de labores y resultados obtenidos, esto a más tardar 15 días después de cerrado el trimestre; si este no se presentare el Comité Cantonal paralizará cualquier gestión económica.

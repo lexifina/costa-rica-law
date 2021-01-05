@@ -1,0 +1,1 @@
+ARTÍCULO 142: El perfil, funciones del puesto y monto salarial de los funcionarios de planta del Comité Cantonal, los establecerá previamente La Junta Directiva, quién contará con la asesoría de la Unidad de Recursos Humanos de la Municipalidad.

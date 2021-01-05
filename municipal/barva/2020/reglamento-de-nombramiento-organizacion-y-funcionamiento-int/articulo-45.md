@@ -1,0 +1,1 @@
+ARTÍCULO 45: El sustituto desempeñará el cargo correspondiente, por el tiempo restante que falte para completar el período en que fue nombrado el titular, y dado el caso podría ser reelecto para continuar en el cargo.

@@ -1,0 +1,1 @@
+ARTÍCULO 86: La Junta Directiva podrá nombrar comisiones especiales, las cuales se encargarán del asunto específico que motivó su creación y permanecerán en funcionamiento, únicamente durante el plazo que sea estrictamente necesario o bien, cuando cumplieran el objetivo o el trabajo para el que fueron nombradas.

@@ -1,0 +1,1 @@
+ARTÍCULO 55: En su función de supervisar las operaciones del Comité y sus dependencias, el Fiscal tendrá acceso a libros, actas, documentos, y a cualquier otra fuente de información pertinente a sus funciones.

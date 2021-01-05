@@ -1,0 +1,1 @@
+ARTÍCULO 100: Respecto a la Comisiones permanentes y especiales en lo no dispuesto por este Reglamento se aplicara supletoriamente lo establecido en el Reglamento Interior de Orden, Dirección y Debates del Concejo Municipal del Cantón de Barva.

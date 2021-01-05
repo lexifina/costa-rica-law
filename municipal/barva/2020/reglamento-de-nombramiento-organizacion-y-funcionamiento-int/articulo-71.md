@@ -1,0 +1,1 @@
+ARTÍCULO 71: El perfil, funciones del puesto y monto salarial de los funcionarios de planta del Comité Cantonal, los establecerá el Comité Cantonal previo estudio financiero que garantice su factibilidad, quién contará con la asesoría de la Unidad de Recursos Humanos de la Municipalidad.
