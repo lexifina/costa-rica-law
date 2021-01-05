@@ -14,3 +14,4 @@ Declaran Proyecto Sistema Interconectado Eléctrico para los Países de América
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-09-25 | la propia norma |
+| 2 | 2021-01-05 | Decreto Ejecutivo 42845 (2021-01-05) |
