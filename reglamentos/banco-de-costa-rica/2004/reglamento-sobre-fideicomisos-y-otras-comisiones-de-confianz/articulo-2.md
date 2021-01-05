@@ -1,9 +1,2 @@
-Artículo 2º—Servicio fiduciario. El Banco ofrecerá los servicios fiduciarios a los clientes por tipo de fideicomiso en administración:
-• Administración e inversión con características especiales y sin ellas.
-• Administración e inversión de contingencia.
-• Inversión con cláusula testamentaria o sin ella.
-• Administración de bienes e inversión del sector público.
-• Titularización.
-• Vivienda.
-• Garantía.
-• Mixtos, u otros que a futuro se definan.
+Artículo 2º—Gestión. El Banco debe cumplir a cabalidad las obligaciones y compromisos asumidos para llevar a cabo el fin de los contratos de fideicomiso y comisiones de confianza que suscriba, de conformidad con lo dispuesto en este reglamento en cumplimiento del ordenamiento vigente en la materia.
+El servicio de administración de fideicomisos y comisiones de confianza únicamente podrá ser brindado por la gerencia a cargo de esta gestión en el BCR, la cual debe vigilar que se cuente con los recursos humanos, materiales y tecnológicos y demás que se consideren necesarios para que el servicio a brindar cumpla con las expectativas de los clientes y con las obligaciones legales y contractuales aplicables.

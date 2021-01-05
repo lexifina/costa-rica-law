@@ -1,4 +1,2 @@
-CAPÍTULO II
-Del trámite operativo de los fideicomisos en administración
-Artículo 7º—Registrar los bienes fideicometidos. El Banco en cumplimiento del artículo 644 del Código de Comercio, identificará los bienes o sumas recibidas en el fideicomiso como patrimonio autónomo, siendo su obligación el registro de los mismos.
-El registro de bienes fideicometidos se efectuará de conformidad con lo establecido en las Disposiciones administrativas del fiduciario y los Procedimientos por servicios fiduciarios.
+Artículo 7º—Oferta de servicios. El Banco brindará una oferta por escrito al fideicomitente o comisionista, según corresponda posterior al análisis del perfil del proyecto solicitado. Esta oferta incorpora aspectos como honorario o comisión a cobrar, experiencia del fiduciario, recursos y demás atención de los requerimientos específicos del oferente en línea a lo establecido en las Disposiciones administrativas para la negociación y apertura de fideicomisos con la administración pública y Disposiciones administrativas para la gestión de fideicomisos comerciales y otras comisiones de confianza, según corresponda.
+Si en el curso de la negociación el requerimiento del interesado varía por algún motivo, el Banco debe prever desde su oferta la posibilidad del reajuste económico de la misma y de ser el caso la revaloración de los compromisos a asumir.

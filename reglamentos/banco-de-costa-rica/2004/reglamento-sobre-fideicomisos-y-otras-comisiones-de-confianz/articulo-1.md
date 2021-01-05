@@ -1,4 +1,3 @@
-BANCO DE COSTA RICA
 REGLAMENTO SOBRE FIDEICOMISOS
 Y OTRAS COMISIONES DE CONFIANZA
 Propósito
@@ -43,6 +42,8 @@ Figura de otras comisiones de confianza: Es el acto plasmado en un contrato (man
 Fines e Instrucciones: El fin es la razón por la cual se creó el fideicomiso y las instrucciones son la forma de cumplir ese fin; este último debe ser legal y estar preestablecido en el acto constitutivo.
 Cuando dichas instrucciones faltan o son insuficientes, omisas, confusas o contradictorias, la ley prevé los mecanismos para suplirlas, aclararlas y ejecutarlas, ya que es necesario que se cumpla el fin. Su existencia es evidente en el Artículo N° 633 del Código de Comercio.
 Unidad ejecutora o administrativa: Unidad que llevará a acabo los actos encargados por el fiduciario. Se establece para los fideicomisos que implican la ejecución de proyectos en cumplimiento de los fines del fideicomiso y actuando de conformidad con lo establecido en las cláusulas contractuales que establecen los derechos, obligaciones y responsabilidades de cada una de las partes.
+(Nota de Sinalevi: El texto de la presente norma fue reformado parcialmente y reproducido su texto de forma íntegra mediante sesión N° 01-21 del 5 de enero del 2021 y publicada en La Gaceta N° 16 del 25 de enero del 2021, y se transcribe a continuación:)
 CAPÍTULO I
-Del servicio fiduciario
-Artículo 1º—Gestión fiduciaria. El Banco administrará los bienes fideicometidos y realizará los actos necesarios para darle cumplimiento a los fines establecidos en el fideicomiso, de conformidad con lo dispuesto en las cláusulas contractuales y en cumplimiento de los Artículos Nos. 644 y 645 del Código de Comercio.
+Del servicio fiduciario y de administración
+de comisiones de confianza
+Artículo 1º—Generalidades. El BCR está facultado con sustento en la Ley Orgánica del Sistema Bancario Nacional artículo 116 para administrar comisiones de confianza entre ellas los fideicomisos, de esta manera se administran fideicomisos comerciales, obra pública y privados, así como otras comisiones de confianza.

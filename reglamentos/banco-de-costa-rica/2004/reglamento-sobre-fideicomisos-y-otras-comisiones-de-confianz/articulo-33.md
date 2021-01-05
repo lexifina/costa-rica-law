@@ -1,2 +1,0 @@
-Artículo 33.—Responsabilidades en la administración. El Banco deberá asumir la responsabilidad por lo errores en que incurriere en la ejecución del servicio prestado, cuando el error sea imputable estrictamente a la Institución o a sus funcionarios.
-El Banco, de acuerdo con el tipo de fideicomiso en administración, constituirá una unidad ejecutora o administrativa que pertenecerá al fideicomiso, cuyos gastos (contratación y otros) serán cubiertos por el fideicomiso.

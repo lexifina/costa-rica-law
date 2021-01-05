@@ -14,3 +14,4 @@ Reglamento sobre fideicomisos y otras comisiones de confianza
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-01-18 | la propia norma |
+| 2 | 2021-01-05 | Reglamento 1 (2021-01-05) |

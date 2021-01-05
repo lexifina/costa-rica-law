@@ -1,1 +1,4 @@
-Artículo 18.—Tasas de interés activas y pasivas. Las tasas de interés para los fideicomisos de vivienda serán aprobadas por las Juntas Directivas de los fideicomitentes o las que defina el Comité de Finanzas del Banco y se fijarán conforme lo estipulado en las Políticas para el manejo de las tasas de interés.
+CAPÍTULO III
+Otras condiciones especiales
+Artículo 18.—Limitaciones de las responsabilidades. En la formalización de nuevos negocios fiduciarios o de comisiones de confianza, se debe velar porque contractualmente no se pacten obligaciones a cargo del Banco que resulten desproporcionadas o de imposible cumplimiento.
+En el caso que el Banco se constituya como fiduciario inicial o sustituto, su responsabilidad estará limitada a lo dispuesto en el Código de Comercio y el respectivo contrato.
