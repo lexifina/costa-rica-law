@@ -67,6 +67,10 @@ El AyA, a través del encargado del área funcional que revisa los proyectos o d
 Área Urbana: es el ámbito territorial de desenvolvimiento de un centro de población.
 Captación: conjunto de infraestructura, equipamiento y demás elementos necesarios para obtener el agua de una fuente de abastecimiento superficial o subterránea para un sistema de agua potable.
 Conexión: unión del sistema público de abastecimiento de agua potable o de saneamiento con el sistema privado.
+Dotación neta: cantidad mínima de agua requerida para satisfacer las necesidades básicas de un habitante sin considerar las pérdidas que se originan en el sistema de acueducto.
+(Así adicionada la definición anterior mediante sesión N° 2021-01 del 5 de enero del 2021)
+Dotación bruta: cantidad de agua requerida para satisfacer las necesidades básicas de un habitante considerando un porcentaje del agua no contabilizada exceptuando las pérdidas reales (físicas).
+(Así adicionada la definición anterior mediante sesión N° 2021-01 del 5 de enero del 2021)
 Efluente: es lo relativo a los sistemas de tratamiento es el caudal que sale de la última unidad de tratamiento.
 Fuentes de abastecimiento superficiales: este tipo de fuente incluye ríos, quebradas, lagos, lagunas y embalses y excepcionalmente agua salina y agua salobre; la explotación de las aguas superficiales puede realizarse principalmente mediante represamientos, tomas laterales o tomas de captación directa. Aunque las aguas de lluvia no se consideran fuentes superficiales, podrían ser consideradas como una fuente adicional.
 Fuentes de abastecimiento subterráneas: este tipo de fuente incluye manantiales y acuíferos; la explotación de las aguas subterráneas puede realizarse principalmente mediante pozos profundos o excavados, galerías de infiltración y captación de manantiales.
@@ -157,7 +161,8 @@ Para el cálculo del caudal a extraer de una toma de agua en río o quebrada, in
 4.2.2 Tubería de aducción
 Para una tubería por donde fluya agua cruda o agua que únicamente requiere desinfección: de 25 a 50 años; el valor seleccionado debe ser igual al utilizado en la toma o captación.
 4.2.3 Planta potabilizadora
-De acuerdo a las tendencias de crecimiento de la población, se deben elegir períodos de diseño más largos para crecimientos lentos y viceversa. En función del crecimiento se debe aplicar lo siguiente:
+De acuerdo a las tendencias de crecimiento de la población, se deben elegir períodos de diseño más largos para crecimientos más rápidos y viceversa.
+(Así reformado el párrafo anterior mediante sesión N° 2021-01 del 5 de enero del 2021)
 · Crecimiento bajo (menos del 3% anual): de 20 a 25 años, dependerá del caudal del cuerpo de agua versus el caudal de diseño al plazo mayor y de las facilidades para ampliar la capacidad de la planta.
 · Crecimiento alto (igual o mayor al 3%): de 15 a 20 años, dependerá del caudal del cuerpo de agua versus el caudal de diseño al plazo mayor y de las facilidades para ampliar la capacidad de la planta.
 El nivel de crecimiento se debe obtener del promedio de los últimos dos censos poblaciones y el ajuste correspondiente a la última proyección según datos del INEC sobre crecimiento de población. Se debe tomar en cuenta, la zonificación y proyecciones de crecimiento establecidas en el Plan Regulador de cada cantón.
@@ -174,13 +179,14 @@ Para bombas y motores el período es de 10 a 15 años.
 Para equipos de desinfección el período es de 5 años.
 4.3 Dotaciones
 Para el diseño del sistema de abastecimiento se deben aplicar las siguientes dotaciones brutas:
-· Datos de los patrones de consumos y demandas de la localidad en estudio, según datos reales, si los mismos se tienen a disposición del diseñador.
-· Cuando no existan datos reales de los patrones de consumos y demandas de la localidad en estudio, se deben utilizar los siguientes valores mínimos:
-· Poblaciones rurales: 200 l/p/d; en caso de zonas rurales costeras se aplicará la dotación establecida para “Población costera”
-· Poblaciones urbanas: 300 l/p/d
-· Poblaciones costera: 375 l/p/d
-· Área Metropolitana: 375 l/p/d
+• Datos de los patrones de consumos y demandas de la localidad en estudio, según datos reales aportados por el operador del sistema de abastecimiento, siempre que los mismos se sometan a un análisis estadístico que los valide.
+• Cuando no existan datos reales de los patrones de consumos y demandas de la localidad en estudio, se deben utilizar los siguientes valores mínimos:
+•Poblaciones rurales: 200 l/p/d; en caso de zonas rurales costeras se aplicará la dotación establecida para “Población costera”
+•Poblaciones urbanas: 250 l/p/d
+•Poblaciones costera: 300 l/p/d
+•Área Metropolitana: 250 l/p/d
 Las dotaciones que se indican corresponden a consumo poblacional de agua potable, por lo que no aplican para calcular la demanda de agua requerida como materia prima o insumo a procesos industriales, agroindustriales u otros.
+(Así reformado el punto 4.3) anterior mediante sesión N° 2021-01 del 5 de enero del 2021)
 4.4 Factores de demanda máxima
 Para el diseño del sistema de abastecimiento se deben aplicar los siguientes factores:
 · El caudal máximo diario será igual a 1,2 veces el caudal promedio diario, es decir el factor máximo diario (FMD) es 1,2.
@@ -300,8 +306,11 @@ Para tubos termoplásticos, si el proceso de instalación subterránea se realiz
 Para tubos de polietileno, si el proceso de instalación se realiza utilizando la técnica conocida como “maxi-perforación horizontal direccional”, se debe cumplir con la norma técnica INTE 16-05-13.
 Se reitera que los requisitos técnicos incluidos en el presente documento o en las normas técnicas de referencia, en relación con la instalación de tubería, establecen requerimientos de ancho, profundidad y otros (relleno, acostillado, fundación, etc.), que obedecen únicamente a las condiciones de colocación de la tubería en el sitio, para su correcto funcionamiento según las condiciones de servicio. Por lo tanto, cualquier otro requisito que tenga por objetivo proteger la seguridad de quienes laboran en los procesos constructivos, según las técnicas o tecnologías que sean utilizadas antes y durante el proceso de instalación, debe ser considerado por quien tiene a cargo el proceso constructivo del proyecto, esto incluye el cumplimiento con la legislación nacional en materia de seguridad e higiene, emitida por el Ministerio de Trabajo y Seguridad Social u otros organismos según área de competencia.
 En el anexo 3 se incluyen otras normas técnicas de instalación aceptables.
+El AyA se reserva el derecho de seleccionar los equipos o dispositivos y la tecnología más apropiada, para llevar a cabo los ensayos o las pruebas establecidas en esta norma técnica, incluidas las normas técnicas de referencia que en ella se citan, en relación con los requisitos técnicos establecidos. Lo anterior durante o al finalizar el proceso constructivo, siendo de especial interés, la verificación de los requisitos respecto a elevaciones, inclinaciones, deformaciones, distorsiones, fisuras y cambios de dirección de la tubería (vertical u horizontal), por cuanto éstos inciden directamente en el correcto funcionamiento de las líneas de tubería según el diseño del sistema.
+(Así adicionado el párrafo anterior mediante sesión N° 2021-01 del 5 de enero del 2021)
 4.15.1.5 Prueba de presión
-Las tuberías, de previo a su recepción una vez instaladas, se deben someter a una prueba de presión hidrostática equivalente a una y media vez la presión nominal de trabajo del tramo de tubería que es sometido a prueba, no siendo inferior, en ningún caso, a 10 kg/cm2 (100 metros columna de agua).
+Las tuberías, de previo a su recepción una vez instaladas, se deben someter a una prueba de presión hidrostática equivalente a una y media vez la presión de trabajo del tramo de tubería que es sometido a prueba, no siendo inferior, en ningún caso, a 10 kg/cm2 (100 metros columna de agua).
+(Así reformado el párrafo anterior mediante sesión N° 2021-01 del 5 de enero del 2021)
 Esta presión de prueba debe mantenerse durante un período no menor de una hora, durante el cual no se debe producir variación de descenso en el manómetro.
 Esta prueba debe ser aplicada a secciones de tubería con una longitud máxima de 500 m.
 Los requerimientos de presión de la prueba deben ser considerados como parte de los requisitos que determinan la selección de los componentes del sistema de tuberías y accesorios, los cuales a su vez están determinados por las condiciones de servicio y por la presión que debe soportar el más débil de los elementos que integran dicho sistema.
@@ -311,7 +320,8 @@ Cada tubo debe cumplir con el requerimiento de rotulado establecido en la norma 
 En caso de que una norma técnica aplicable al tubo seleccionado incluya algún requisito o referencia sobre el color del tubo, ese requisito de esa norma no es de aplicación, ya que únicamente prevalece el color establecido en este apartado.
 4.15.2 Válvulas
 Las válvulas del sistema de acueducto deben cumplir con lo que se detalla en el anexo 4, según el diseño propuesto.
-Las válvulas deben ser de vástago no ascendente y de compuerta sólida y preferiblemente de cubo de operación de 25 mm de lado. Se acepta que las válvulas se fabriquen en hierro dúctil, hierro fundido o acero.
+Las válvulas deben ser de vástago no ascendente y de compuerta sólida. Se acepta que las válvulas se fabriquen en hierro dúctil, hierro fundido o acero.
+(Así reformado el párrafo anterior mediante sesión N° 2021-01 del 5 de enero del 2021)
 En relación con la válvula de compuerta y el cubre válvulas requeridos para la instalación de hidrantes que se incorporen al sistema de abastecimiento de agua potable, se debe cumplir con los requisitos que se indican en el anexo 4.
 Cada válvula, según su norma de fabricación, debe permitir su integración con la tubería a la que debe ser instalada.
 En el anexo 3 se incluye información adicional sobre normativa técnica aplicable a válvulas para sistemas de agua potable. Para cada tipo se debe indicar la norma de fabricación, la cual debe permitir el cumplimiento de los requisitos técnicos establecidos en el presente documento.
@@ -324,6 +334,8 @@ Se acepta que los hidrómetros se coloquen de forma vertical u horizontal, en am
 4.16 Potabilización del agua
 Los sistemas de abastecimiento que cuenten con fuentes superficiales o subterráneas propias, deben cumplir con la normativa nacional aplicable a la calidad del agua potable y sus procesos de tratamiento, emitida por el Ministerio de Salud y por el AyA según corresponda, independientemente del proceso de tratamiento utilizado.
 Los proyectos que incluyan plantas desalinizadoras y potabilizadoras deben cumplir con la “Especificación técnica para desalinización y potabilización de agua marina. Parte I: Requisitos mínimos generales” emitida por AyA (Serie: AyA-2010-01) y con la legislación nacional aplicable.
+El agua residual producto de los procesos contemplados en el diseño y cualquier otro residuo generado durante los procesos de potabilización, debe ser tratado y cumplir con lo establecido en la legislación nacional que le aplique y, especialmente con el Reglamento de vertido y uso de aguas residuales vigente.
+(Así adicionado el párrafo anterior mediante sesión N° 2021-01 del 5 de enero del 2021)
 5 . Sistema de Saneamiento
 5.1 Población de diseño
 La población mínima de diseño se debe calcular a partir del número de unidades habitacionales que contempla el proyecto multiplicado por el factor de hacinamiento, este último corresponde al valor que se obtiene del último censo de población del distrito.
@@ -342,13 +354,19 @@ Planta de tratamiento
 Para plantas de tratamiento: de 20 a 25 años.
 5.3 Caudales de diseño
 El caudal de diseño para un tramo de tubería es el correspondiente al acumulado hasta el pozo de registro aguas abajo del tramo y se debe calcular considerando las contribuciones por:
-a) Aguas residuales ordinarias(Qparo):
+a) Aguas residuales ordinarias (Qparo):
 El caudal promedio de agua residual, tipo ordinario, se debe calcular aplicando la siguiente fórmula:
 Qparo=FR*Qpap
 Dónde:
-● Qparo: Caudal promedio de agua residual tipo ordinario
-● FR: Factor de retorno (0,80)
-● Qpap: Caudal promedio diario de agua potable; la dotación debe ser la que se establece en la sección 4.3 “Dotaciones”.
+◦ Qparo: Caudal promedio de agua residual tipo ordinario
+◦ FR: Factor de retorno (0,80)
+◦ Qpap: Caudal promedio diario de agua potable; considerando las siguientes dotaciones netas que incluyen un factor por subregistro:
+DOTACIONES | l/p/d
+Poblaciones rurales* | 170
+Poblaciones urbanas | 200
+Poblaciones costera | 225
+Área Metropolitana | 200
+(*) en caso de zonas rurales costeras se aplicará la dotación establecida para “Población costera”.
 b) Aguas residuales especiales tratadas o caudal promedio de agua residual especial tratada (Qpare):
 El caudal promedio de agua residual especial tratada, se debe calcular para cada caso particular según la actividad.
 c) Contribuciones externas (Qext):
@@ -356,18 +374,19 @@ Se deben considerar las contribuciones de redes de alcantarillado sanitario adya
 d) Aguas de infiltración (Qinf):
 El caudal de infiltración se establece en 0,25 l/s/km cuando el material de la tubería corresponda a: concreto, PVC o PEAD; en caso de que se utilice otro material se debe someter a aprobación de AyA el caudal de infiltración correspondiente.
 Entonces:
-· El caudal promedio de aguas residuales (Qpar), equivale a la suma de todas las contribuciones, a saber:
-· Qpar= Qparo+Qpare +Qext
-· El caudal mínimo de diseño (Qmin) equivale a: Qmin=FMD*Qpar+Qinf
-· El caudal mínimo no debe ser inferior a 1,5 l/s.
-· El caudal máximo de diseño equivale a: Qmax= Qpar*FMH+Qinf
+◦ El caudal promedio de aguas residuales (Qpar), equivale a la suma de todas las contribuciones, a saber:
+Qpar= Qparo+Qpare +Qext
+◦ El caudal mínimo no debe ser inferior a 1,5 l/s.
+◦ El caudal máximo de diseño equivale a: Qmax= Qpar*FMH+Qinf
 Dónde:
 Qpar: Caudal promedio de aguas residuales
-FMH: Factor Máximo Horario (aplica el FMH establecido en el capítulode de Sistemas de Abastecimiento de Agua Potable)
+FMH: Factor Máximo Horario (aplica el FMH establecido en el capítulo de de Sistemas de Abastecimiento de Agua Potable)
 FMD: Factor Máximo Diario (aplica el FMD establecido en el capítulo de Sistemas de Abastecimiento de Agua Potable)
 Qinf: Caudal de infiltración
 El caudal máximo debe ser calculado con la máxima densidad poblacional futura del proyecto, al horizonte de proyección o saturación.
 En el caso de un condominio de tipo comercial, en el cálculo del caudal de aguas residuales al aplicar los criterios indicados en el Código de Instalaciones Hidráulicas y Sanitarias en Edificaciones, emitido por el Colegio Federado de Ingenieros y de Arquitectos de Costa Rica, dicho aporte debe ser mayorado por los factores FMH y FMD e incluir el caudal por infiltración.
+DOTACIONES l/p/d
+(Así reformado el punto 5.3) anterior mediante sesión N° 2021-01 del 5 de enero del 2021)
 5.4 Capacidad del sistema
 El sistema de saneamiento debe diseñarse para aguas residuales de tipo ordinario, considerando además los aportes por infiltración y aguas residuales tratadas de tipo especial, que cumplan con los límites máximos permisibles establecidos en el Reglamento de Vertido y Reuso de Aguas Residuales vigente; este sistema debe diseñarse separado del sistema de recolección y disposición de aguas pluviales.
 El punto de conexión con el sistema público debe ser definido por el ente operador de previo a la presentación del diseño ante el AyA. El sistema propuesto debe permitir que las aguas residuales converjan en un punto único a un pozo de registro a construir o existente de un subcolector o colector existente o a construir.
@@ -523,6 +542,8 @@ Para tubos termoplásticos para aplicaciones por gravedad, si el proceso de inst
 Para tubos de fibra de vidrio sometidos o no a presión, si el proceso de instalación se realiza con apertura de zanja, se debe tener de referencia lo establecido en la norma técnica INTE 16-13-06.
 Para tubos de polietileno, si el proceso de instalación se realiza utilizando la técnica conocida como “maxi-perforación horizontal direccional”, se debe tener de referencia lo establecido en la norma técnica INTE 16-05-13.
 El AyA o el ente operador respectivo solicitará, en caso de requerirlo, pruebas de compactación del relleno de la zanja y de los materiales utilizados en las camas, realizadas por algún laboratorio acreditado para tales efectos.
+El AyA se reserva el derecho de seleccionar los equipos o dispositivos y la tecnología más apropiada, para llevar a cabo los ensayos o las pruebas establecidas en esta norma técnica, incluidas las normas técnicas de referencia que en ella se citan, en relación con los requisitos técnicos establecidos. Lo anterior durante o al finalizar el proceso constructivo, siendo de especial interés, la verificación de los requisitos respecto a elevaciones, inclinaciones, deformaciones, distorsiones, fisuras y cambios de dirección de la tubería (vertical u horizontal), por cuanto éstos inciden directamente en el correcto funcionamiento de las líneas de tubería según el diseño del sistema.
+(Así adicionado el párrafo anterior mediante sesión N° 2021-01 del 5 de enero del 2021)
 5.9.1.6 Color de los tubos
 Los conductos circulares que se utilicen en sistemas de saneamiento deben ser fabricados en color anaranjado. Para los tubos cuyo material sea distinto al policloruro de vinilo (PVC), deben ser fabricadas en color anaranjado pero se acepta que se fabriquen con cuatro franjas longitudinales de color anaranjado, de al menos 5 cm de ancho ubicadas en ángulos de 90° respecto de la circunferencia.
 Cada tubo debe cumplir con el requerimiento de rotulado establecido en la norma técnica de fabricación respectiva (norma técnica de producto), cuyos caracteres deben ser totalmente visibles, legibles e indelebles para garantizar la correcta identificación de la tubería durante y después de la instalación.
@@ -549,6 +570,7 @@ Para los pozos con una profundidad superior a los 5 m o con un diámetro interno
 Si se incorpora al diseño pozos no fabricados en concreto o prefabricados en concreto, se debe presentar la memoria de cálculo y la ficha técnica donde se demuestre el cumplimiento de los requerimientos estructurales y se detallen las normas técnicas de diseño y de fabricación y las recomendaciones del fabricante, para su debida valoración por la comisión técnica.
 La tapa del pozo debe cumplir con la norma técnica INTE 16-12-01, la selección del material de la tapa y del arobase, y cualquier otro requisito que sea determinante para el conjunto tapa-arobase o que sea requerido para la correcta aplicación de la norma INTE 16-12-01, debe ser definido por el Ente Operador correspondiente. En el anexo 10 se detallan las principales características de la tapa así como sus dimensiones y las del aro base (marco).
 La boca de la losa superior se debe desplazar del eje del pozo de forma tal que facilite su acceso, con peldaños que deben ser construidos con varilla de 19 mm (número 6). En el anexo 10, se detallan los requisitos técnicos de los pozos.
+(Mediante sesión N° 2021-01 del 5 de enero del 2021 se ordena aclarar el párrafo anterior de la siguiente manera “La tapa del pozo debe cumplir con la norma técnica INTE 16-12-01, el dimensionamiento y la selección del material de la tapa y del arobase, y cualquier otro requisito que sea determinante para el conjunto tapa-arobase o que sea requerido para la correcta aplicación de la norma INTE 16-12-01, debe ser definido por el Ente Operador correspondiente. En el anexo 10 se detallan las características generales de la tapa y del aro base (marco), las cuales deben ser consideradas como una guía a manera de referencia, en términos de la información y su distribución dentro del área de la tapa; así como, detalles referenciales de ranuras y acostillado si es requerido por el operador”)
 Únicamente para los proyectos que no cuenten con la autorización previa de funcionamiento del sistema de recolección de aguas residuales a construir, emitida por el Ente Operador respectivo, el pozo debe diseñarse y construirse de conformidad con el detalle de obra temporal para pozo sin uso y detalle de sujeción de piezas de madera que se muestran en el anexo 10, en la que se incluye un sello protector fabricado en concreto cuya función es la de protección hasta que el sistema de recolección sea puesto en funcionamiento.
 5.9.2.1 Canal de fondo de los pozos de registro
 El canal de fondo de los pozos de registro se debe diseñar con las secciones necesarias para la conducción de las aguas. El canal de fondo debe tener una longitud mínima de 0,90 m en la dirección correspondiente, y en el sentido del flujo y del mismo diámetro que el tubo de salida del pozo. Para los pozos de registro sanitarios, se debe incluir un sistema de contra tapa que cubra el canal.
@@ -632,7 +654,8 @@ El tiempo de concentración de la lluvia que debe considerarse para la determina
 6.3.1 Velocidad en tuberías a gravedad o canal abierto
 La velocidad mínima de un tramo entre dos pozos pluviales debe ser de al menos de 0,6 m/s, donde se garantice una fuerza tractiva mínima de 0,10 Kg/cm2 (1 Pa) con una capacidad del 85% de la tubería.
 La velocidad máxima real debe ser de 5,0 m/s, en los tramos entre pozos de registro pluviales. Se permiten velocidades de hasta 7,0 m/s en el tramo final (último pozo de registro pluvial-cabezal de desfogue).
-Para velocidades superiores a 5,0 m/s solo se permiten tuberías de concreto con refuerzo de acero y con una resistencia del concreto de 345 kg/cm2; como requisito indispensable se debe utilizar un disipador de energía/velocidad en la descarga al cuerpo receptor, que disminuya la velocidad a 2,5 m/s como máximo.
+Se acepta el uso de tuberías de cualquier material, en el caso de que se selecciones tubería de concreto si la velocidad es superiores a 5,0 m/s, los tubos deben tener refuerzo de acero y una resistencia del concreto de 345 kg/cm2. Para cualquier tipo de tubería, se debe utilizar un disipador de energía/velocidad en la descarga al cuerpo receptor, que disminuya la velocidad a 2,5 m/s como máximo.
+(Así reformado el párrafo anterior mediante sesión 2021-01 de 5 de enero del 2021)
 Cuando el proyecto contemple el desfogue a través de una depresión natural ubicada dentro del terreno donde se ubica el proyecto, se deben incluir como mínimo disipadores de energía donde se garantice como máximo una velocidad de descarga de 2,5 m/s.
 6.3.2 Tirante hidráulico máximo en tuberías a gravedad o canal abierto
 El valor máximo permisible del tirante hidráulico debe ser de 0,85 del diámetro interno de la tubería.
@@ -681,6 +704,8 @@ Para tubos termoplásticos para aplicaciones por gravedad, si el proceso de inst
 Para tubos de fibra de vidrio sometidos o no a presión, si el proceso de instalación se realiza con apertura de zanja, se debe tener de referencia lo establecido en la norma técnica INTE 16-13-06.
 Para tubos de polietileno, si el proceso de instalación se realiza utilizando la técnica conocida como “maxi-perforación horizontal direccional”, se debe tener de referencia lo establecido en la norma técnica INTE 16-05-13.
 El AyA solicitará, en caso de requerirlo, pruebas de compactación del relleno de la zanja y de los materiales utilizados en las camas, realizadas por algún laboratorio acreditado para tales efectos.
+El AyA se reserva el derecho de seleccionar los equipos o dispositivos y la tecnología más apropiada, para llevar a cabo los ensayos o las pruebas establecidas en esta norma técnica, incluidas las normas técnicas de referencia que en ella se citan, en relación con los requisitos técnicos establecidos. Lo anterior durante o al finalizar el proceso constructivo, siendo de especial interés, la verificación de los requisitos respecto a elevaciones, inclinaciones, deformaciones, distorsiones, fisuras y cambios de dirección de la tubería (vertical u horizontal), por cuanto éstos inciden directamente en el correcto funcionamiento de las líneas de tubería según el diseño del sistema.
+(Así adicionado el párrafo anterior mediante sesión N° 2021-01 del 5 de enero del 2021)
 6.4.1.4 Color de los tubos
 Los conductos circulares que se utilicen en sistemas pluviales pueden ser fabricadas de cualquier color, excepto verde o anaranjado.
 Cada tubo debe cumplir con el requerimiento de rotulado establecido en la norma técnica de fabricación respectiva (norma técnica de producto), cuyos caracteres deben ser totalmente visibles, legibles e indelebles para garantizar la correcta identificación de la tubería durante y después de la instalación.
