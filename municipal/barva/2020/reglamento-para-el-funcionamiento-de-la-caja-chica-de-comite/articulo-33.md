@@ -1,0 +1,1 @@
+Artículo 33.—Cuando por algún motivo el gasto objeto del vale, no se ejecute, el funcionario que ha recibido el dinero del vale de caja chica deberá hacer el reintegro inmediato del dinero entregado para esos efectos a más tardar el segundo día hábil siguiente al de su recibo. Para tal efecto, deberá ese funcionario aportar una justificación escrita.

@@ -1,0 +1,1 @@
+Artículo 30.—El encargado de administrar el fondo de caja chica diseñará un formulario, que presentara a la Junta directiva para su revisión y aprobación lo deberá imprimir cuando lo vaya a ocupar y lo mantendrá bajo su custodia.

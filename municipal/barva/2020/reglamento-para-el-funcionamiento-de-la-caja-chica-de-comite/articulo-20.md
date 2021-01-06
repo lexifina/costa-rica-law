@@ -1,0 +1,1 @@
+Artículo 20.—La persona designada para custodiar y administrar los fondos de Caja Chica no podrá guardar documentos, efectivo o cheques que sean de propiedad del propio Comité que no sean propias del fondo de caja chica o de otra persona en los lugares destinados para guardar ese fondo.

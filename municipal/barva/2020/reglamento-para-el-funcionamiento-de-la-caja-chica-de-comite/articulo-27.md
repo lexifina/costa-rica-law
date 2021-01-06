@@ -1,0 +1,1 @@
+Artículo 27.—El monto del vale de caja chica será de un máximo del 20% del fondo de Caja Chica. Podrá variarse para un asunto específico y de urgente necesidad mediante acuerdo de mayoría calificada de la Junta Directiva del Comité.

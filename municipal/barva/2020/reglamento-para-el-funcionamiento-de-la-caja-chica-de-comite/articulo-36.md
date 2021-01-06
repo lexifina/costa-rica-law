@@ -1,0 +1,2 @@
+Artículo 36.—Los viáticos deben ser liquidados ante el encargado para el Manejo de Fondo de Caja Chica dentro de los tres días hábiles siguientes a la fecha de entregado o de finalizada la actividad en caso de Juegos Nacionales, adjuntando los comprobantes de cada gasto y el efectivo sobrante.
+http://www.pgrweb.go.cr/scij/Busqueda/Normativa/Normas/ nrm_articulo.aspx?param1=NRA&nValor1=1&nValor2=75797 &nValor3=94218&nValor5=18

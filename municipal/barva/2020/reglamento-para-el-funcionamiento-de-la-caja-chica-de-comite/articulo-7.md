@@ -1,0 +1,1 @@
+Artículo 7º—Actualización de dichos montos. Los montos establecidos en el Artículo 6 anterior serán modificados anualmente una vez en firme el pronunciamiento del Ministerio de Trabajo con relación a la determinación de la escala salarial. Los nuevos montos serán redondeados al millar superior inmediato.

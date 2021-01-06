@@ -1,0 +1,1 @@
+Artículo 49.—En lo que resultare omiso, contradictorio o confuso este Reglamento resultarán aplicables supletoriamente el Código Municipal, la Ley de la Contratación Administrativa y su Reglamento, la Ley General de la Administración Pública, y demás normativa vigente en la materia.

@@ -1,0 +1,1 @@
+Artículo 23.—Por ningún motivo se podrá variar el objetivo inicial de una compra. El Tesorero o quien custodie la caja chica será responsable de informar a la Junta Directiva, cuando se detecten vales que induzcan sospecha de que se ha fragmentado una adquisición para evadir los procedimientos de contratación administrativa.

@@ -1,0 +1,1 @@
+Artículo 40.—Todo arqueo de caja chica se realizará en presencia del Tesorero Encargado de caja chica del Comité. Este funcionario tendrá el derecho de pedir una segunda verificación, si mantiene dudas sobre el resultado obtenido.

@@ -1,0 +1,2 @@
+Artículo 8º—Montos para reintegro. Los reintegros deberán gestionarse al consumirse el 60% del monto del fondo establecido en el artículo 6 del presente reglamento, con el objeto de poder cubrir con el 40% del fondo restante, aquellos gastos necesarios en tanto se recibe el monto presentado a reintegro.
+Todo reintegro al fondo de caja chica deberá tramitarse mediante el documento denominado “Reintegro”, con el detalle de las subpartidas presupuestarias y los respectivos montos, a la cual se deberá adjuntar los justificantes de los gastos.

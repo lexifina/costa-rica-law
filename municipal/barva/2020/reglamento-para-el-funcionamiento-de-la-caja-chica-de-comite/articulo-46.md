@@ -1,0 +1,1 @@
+Artículo 46.—Las sanciones serán aplicadas por la Junta Directiva del Comité debiendo instruir el procedimiento en su Secretario, salvo situación justificada que amerite la contratación de un profesional en Derecho.

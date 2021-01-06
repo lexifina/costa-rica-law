@@ -1,0 +1,1 @@
+Artículo 24.—Responsabilidad por pagos improcedentes. Si por negligencia, la persona designada para la custodia y administración del Fondo de Caja Chica incurre en pagos improcedentes conforme este reglamento, deberá reintegrar de su propio peculio, el monto erogado.

@@ -1,0 +1,1 @@
+Artículo 45.—El funcionario que incumpla con las disposiciones de este Manual incurrirá en falta y será amonestado por escrito. Dependiendo de la gravedad o reincidencia del caso previo debido proceso podrá ser sujeto a destitución en los casos de miembros de la Junta Directiva; suspensión sin goce de salario y hasta despido en el caso de funcionarios.

@@ -1,0 +1,1 @@
+Artículo 14.—El Encargado de Caja Chica deberá incluir en el programa de trabajo de esa dependencia como mínimo la realización de un arqueo mensual del fondo de caja chica, sin demerito de los arqueos sorpresivos realizados por el Auditor Interno y/o la Junta Directiva del Comité por la Tesorería Municipal que sean necesarios.

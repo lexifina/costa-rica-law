@@ -1,0 +1,11 @@
+Artículo 2º—Definiciones y abreviaturas. Cuando se empleen los siguientes términos, deben dárseles las definiciones que se señalan a continuación:
+Arqueo de Caja Chica: Verificación del cumplimiento de la normativa que rige la Caja Chica, sobre todo con la constatación de que los documentos que dan soporte a los egresos, concuerda con los montos autorizados por el encargado de Caja Chica.
+CCDRB: Comité Cantonal de Deportes y Recreación de Barva.
+Encargado de Caja Chica: Es la persona que mediante acuerdo es designada por la Junta Directiva del Comité; que se encuentra legalmente autorizada para tener bajo su custodia y administración, la Caja Chica.
+Fondo de Caja Chica. Se entiende por fondo de caja chica la suma de dinero; que custodia la persona designada por la Junta Directiva del Comité Cantonal de Deportes y Recreación de Barva; para el pago de gastos menores y la adquisición de bienes y servicios que tienen carácter de imprevistos, indispensables y urgentes. Así como para pagar gastos de alimentación, hospedaje y transporte en el interior del país.
+Gastos menores indispensables y urgentes: Son los gastos, que se producen por razones de emergencias, caso fortuito o fuerza mayor, y que son de imperiosa necesidad solventarlos, y no pueden exceder el monto fijado en el Artículo 27 del presente reglamento, estas necesidades que se deben cubrir rápidamente, y que no se pueden postergar, y por fuerza mayor no puede esperar un procedimiento normal de compra y pago y además, que corresponden a adquisiciones que se efectúen de manera excepcional por medio de este fondo. Además, entre los denominados gastos menores, como viáticos y transportes en el interior del país.
+Junta: Junta Directiva del CCDRB.
+Liquidación: Rendición de cuentas que efectúa el responsable del vale de Caja Chica, mediante la presentación de los comprobantes originales que sustentan las adquisiciones o servicios recibidos.
+Reintegro de fondos: Solicitud de reintegro de dinero al fondo de Caja Chica para reembolsar los gastos efectuados.
+Vale: Documento que respalda el adelanto de dinero dado para adquirir bienes y/o servicios, debidamente autorizados.
+Viáticos: Gastos de alimentación, transporte, parqueo, peaje y hospedaje en el interior del país.

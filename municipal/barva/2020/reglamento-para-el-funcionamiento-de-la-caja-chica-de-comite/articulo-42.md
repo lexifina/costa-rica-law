@@ -1,0 +1,2 @@
+Artículo 42.—De cada arqueo se confeccionará una hoja, en que consignarán su firma, el encargado del Manejo de Caja Chica y el Presidente de la Junta Directiva. Este informe deberá entregarse en original a la Junta Directiva, para que constituya un expediente con las hojas de todos los arqueos realizados en el año.
+http://www.pgrweb.go.cr/scij/Busqueda/Normativa/Normas/ nrm_articulo.aspx?param1=NRA&nValor1=1&nValor2=75797 &nValor3=94218&nValor5=26

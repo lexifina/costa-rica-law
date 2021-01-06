@@ -1,0 +1,2 @@
+Artículo 41.—Cuando el Encargado de caja chica sea sustituido por otra persona que ocupe temporalmente ese cargo se realizará un arqueo del cual se dejará constancia escrita, con la firma del Encargado de caja chica y la persona que lo sustituirá. Igual procedimiento se utilizará cuando el Encargado de caja chica se reintegre a su puesto.
+http://www.pgrweb.go.cr/scij/Busqueda/Normativa/Normas/ nrm_articulo.aspx?param1=NRA&nValor1=1&nValor2=75797&n Valor3=94218&nValor5=25

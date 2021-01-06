@@ -1,0 +1,2 @@
+Artículo 25.—La persona designada para custodiar y administrar el fondo de Caja chica tendrá facultades para rechazar aquellos pagos efectuados por medio de estos fondos que no reúnan los requisitos estipulados en el Reglamento, haciendo responsable al que autorizó su trámite en forma incorrecta.
+http://www.pgrweb.go.cr/scij/Busqueda/Normativa/Normas/ nrm_articulo.aspx?param1=NRA&nValor1=1&nValor2=75797&n Valor3=94218&nValor5=11
