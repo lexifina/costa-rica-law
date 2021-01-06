@@ -1,1 +1,0 @@
-Artículo 10.—Requisitos académicos: Los requisitos académicos y de experiencia, serán establecidos para ocupar de acuerdo con las razones objetivas de necesidades del área contratante con relación a las funciones por desempeñar y el salario que se fije.

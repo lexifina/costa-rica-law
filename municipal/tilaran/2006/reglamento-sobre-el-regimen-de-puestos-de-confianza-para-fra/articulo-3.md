@@ -1,1 +1,0 @@
-Artículo 3º—Libre remoción: La instancia que nombre el funcionario o funcionaria bajo el puesto de confianza podrá rescindir el contrato en cualquier momento, por lo cual tiene libertar de remoción, previa comprobación de las causales objetivas y concediendo el debido proceso.
