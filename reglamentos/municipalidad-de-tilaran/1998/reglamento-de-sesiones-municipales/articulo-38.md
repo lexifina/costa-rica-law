@@ -1,1 +1,0 @@
-Artículo 38º- Las mociones de orden son aquellas tendientes a regular el debate; para prorrogarle el uso de la palabra a un regidor, para alterar la Agenda del Día, para incluir un asunto, o para que se posponga el conocimiento de uno que figura en la Agenda del Día y aquellas que el Presidente califique como tales.

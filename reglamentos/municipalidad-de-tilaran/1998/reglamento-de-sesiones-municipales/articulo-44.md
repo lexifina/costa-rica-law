@@ -1,1 +1,0 @@
-Artículo 44º- Los acuerdos del Concejo quedarán firmes, al aprobarse el acta respectiva. En casos especiales de suma urgencia, el Concejo por votación de las dos terceras partes de la totalidad de sus miembros, podrá declarar firmes sus acuerdos.

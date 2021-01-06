@@ -1,1 +1,0 @@
-Artículo 11º- El quórum para las sesiones será de tres regidores. Ese número de regidores deberá encontrarse presente en el Salón de Sesiones ocupando sus respectivas curules al inicio de la sesión, durante las deliberaciones y al efectuarse las votaciones.

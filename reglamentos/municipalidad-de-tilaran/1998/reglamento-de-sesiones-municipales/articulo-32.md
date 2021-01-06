@@ -1,1 +1,0 @@
-Artículo 32º- Una vez integradas las Comisiones por el Presidente Municipal, sus miembros en la sesión de instalación, a celebrarse dentro de los quince días siguientes, deberán nombrar de su seno un Presidente y Secretario.

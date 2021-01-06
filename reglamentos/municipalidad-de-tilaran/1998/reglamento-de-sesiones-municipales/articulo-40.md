@@ -1,1 +1,0 @@
-Artículo 40º- La moción de Orden suspenderá el debate hasta tanto no sea discutida y votada por el Concejo. Presentada una moción de orden, se concederá el uso de la palabra en primer término al proponente y luego a los regidores que la soliciten, sin que pueda exceder de tres minutos cada intervención.

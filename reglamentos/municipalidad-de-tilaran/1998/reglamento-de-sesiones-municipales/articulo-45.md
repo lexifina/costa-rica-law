@@ -1,1 +1,0 @@
-Artículo 45º- El recurso de revisión procederá contra aquéllos acuerdos que no hubieren sido declarados firmes y deberá presentarse antes de ser aprobada el acta. Para acordar la revisión se requiere la misma mayoría dada para el acuerdo a revisar. Una vez aceptada la revisión, el Presidente pondrá en discusión el asunto a que se refiere el acuerdo.

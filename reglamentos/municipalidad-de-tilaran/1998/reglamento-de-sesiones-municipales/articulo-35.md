@@ -1,1 +1,0 @@
-Artículo 35º- El Concejo Municipal tiene la potestad de trasladar los dictámenes de Comisión a conocimiento de otra Comisión o alguna designada especialmente por el Presidente para que se pronuncie sobre un caso en particular.

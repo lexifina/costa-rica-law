@@ -1,1 +1,0 @@
-Artículo 39º- Las mociones de orden deben ser conocidas, discutidas y puestas a votación en riguroso orden de presentación. Sobre una moción de orden no se permitirá otra que pretenda posponerla. Las mociones de orden pueden ser presentadas en cualquier momento del debate, las cuales necesariamente deberán guardar relación al asunto que se discute.

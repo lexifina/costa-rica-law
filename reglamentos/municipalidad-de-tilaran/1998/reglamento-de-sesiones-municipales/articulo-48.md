@@ -1,1 +1,0 @@
-Artículo 48º- Una vez iniciada la sesión, no se podrá hacer abandono de la sala sin que medie un motivo de fuerza mayor, previo consentimiento del Presidente. Si pasados 5 minutos no se reincorpora al Concejo, perderá la dieta.

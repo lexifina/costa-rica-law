@@ -1,1 +1,0 @@
-Artículo 28º- Los Síndicos Propietarios tienen participación únicamente en este capítulo, y en el momento en que el señor Presidente Municipal les otorgue la palabra, siempre y cuando se trate asuntos en cesión referente a su distrito.
