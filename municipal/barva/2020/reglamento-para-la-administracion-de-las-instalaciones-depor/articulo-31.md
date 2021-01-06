@@ -1,0 +1,1 @@
+Artículo 31.—Partidos de competición oficial. En los partidos de competición oficial de organizaciones adscritas al CCR, podrán utilizar las instalaciones de forma gratuita a criterio del Comité Cantonal, según resolución debidamente fundamentada y en situaciones excepcionales.

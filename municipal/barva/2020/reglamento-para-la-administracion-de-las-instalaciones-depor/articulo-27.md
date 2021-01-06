@@ -1,0 +1,1 @@
+Artículo 27.—Locales Comerciales. Dentro de las instalaciones deportivas se podrán hacer locales comerciales para alquiler como sodas u bodegas u otros, siempre ligados a las actividades deportivas. Corresponderá al Comité Cantonal establecer las tarifas de alquiler.

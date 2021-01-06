@@ -1,0 +1,1 @@
+Artículo 13.—Queda a criterio del Comité Cantonal el cobro del alquiler de la instalación deportiva para aquellos equipos, asociaciones o grupos deportivos adscritos al comité que participen en competiciones oficiales y que representen al cantón a nivel nacional e internacional y que a su vez brinden ayuda al comité en el desarrollo de actividades deportivas.

@@ -1,0 +1,2 @@
+Artículo 34.—El Comité Cantonal, con antelación suficiente, comunicará a los otros entes administradores los días reservados por el propio Comité Cantonal para el desarrollo de sus actividades, en los cuales no se podrán conceder reservas.
+(Nota de Sinalevi: En la publicación de este reglamento municipal, se duplica la numeración del artículo 34, del análisis se deduce que en realidad corresponde al artículo N° 35).

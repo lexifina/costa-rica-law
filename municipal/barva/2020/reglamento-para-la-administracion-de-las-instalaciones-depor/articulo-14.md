@@ -1,0 +1,2 @@
+Artículo 14.—Práctica del deporte. Las Instalaciones Deportivas Municipales podrán ser destinadas al deporte, la recreación, al ocio, a la competición, y de forma puntual a actividades de carácter social que cumplan los requisitos que para cada caso se contemplen.
+En cada instalación deberán practicarse prioritariamente, los deportes a los que especialmente esté destinada por su naturaleza. Será también posible la práctica de otros deportes, siempre que se pueda técnicamente y previa autorización del ente administrador de la instalación.

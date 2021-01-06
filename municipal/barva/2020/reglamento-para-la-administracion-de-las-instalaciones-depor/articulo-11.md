@@ -1,0 +1,1 @@
+Artículo 11.—La Junta Directiva determinará los mecanismos y las personas responsables de recaudar los recursos por el usufructo de las instalaciones deportivas, los cuales deben coordinar con el Tesorero la forma de recaudarlos, depositarlos y tomar las medidas de control interno necesarias para el manejo de esos recursos.

@@ -1,0 +1,1 @@
+Artículo 5°—En el diseño, construcción, remodelación, mantenimiento y uso de las instalaciones deportivas se deberá garantizar el acceso universal y la eliminación de cualquier forma de discriminación de las personas con alguna discapacidad, garantizando su derecho de acceso al deporte y la recreación.

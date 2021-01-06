@@ -1,0 +1,1 @@
+Artículo 38.—Para realizar mejoras, mantenimiento, obra menor o arreglos en las instalaciones el Comité Cantonal y los Comunales deberán contar previamente cumplir con lo que establezca el Reglamento de Obra Menor de la Municipalidad y deberán obtener con la autorización de ingeniería municipal, que velará porque los límites del presente convenio se cumplan en forma íntegra.

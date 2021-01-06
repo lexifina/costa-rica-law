@@ -1,0 +1,1 @@
+Artículo 23.—La responsabilidad civil y/o penal derivada de los actos que el público realice en las instalaciones de municipales durante la celebración de espectáculos o competiciones recaerá exclusivamente sobre las entidades organizadoras.

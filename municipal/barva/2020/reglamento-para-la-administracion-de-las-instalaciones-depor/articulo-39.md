@@ -1,0 +1,1 @@
+Artículo 39.—Capacidad máxima de las instalaciones deportivas. El Comité deberá respetar la capacidad máxima prevista por las autoridades competentes para las instalaciones deportivas y recreativas, por lo que deberán observar los lineamientos que en esa materia fijen la Comisión Nacional de emergencias y la Comisión de Eventos Masivos, así como la propia municipalidad.

@@ -1,0 +1,1 @@
+Artículo 22.—El ente administrador de la instalación, no se responsabiliza de los objetos o dinero que falten a los usuarios y aconseja a los mismos a acudir a las Instalaciones Deportivas Municipales sin objetos de valor.

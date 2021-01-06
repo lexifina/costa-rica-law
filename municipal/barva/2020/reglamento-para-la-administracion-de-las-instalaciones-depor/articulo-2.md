@@ -1,0 +1,1 @@
+Artículo 2°—Objeto del Reglamento. Es objeto del presente Reglamento es regular la administración, funcionamiento, uso y disfrute de las Instalaciones Deportivas propiedad de la Municipalidad de Barva o las que la hayan sido otorgadas en administración ubicadas en el Cantón de Barva.
