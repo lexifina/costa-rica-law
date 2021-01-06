@@ -1,0 +1,1 @@
+Artículo 12.—De los criterios de sostenibilidad. Las Instituciones de la Administración Pública serán las responsables de agregar en sus requerimientos cartelarios la incorporación de criterios de sostenibilidad, tales como localización geográfica o inclusión social, con base en los lineamientos establecidos por la Política de Compras Públicas Sustentables.
