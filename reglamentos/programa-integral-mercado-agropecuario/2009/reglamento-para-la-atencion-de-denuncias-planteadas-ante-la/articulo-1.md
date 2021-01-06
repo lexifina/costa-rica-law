@@ -1,4 +1,6 @@
+(Derogado)
 PROGRAMA INTEGRAL DE MERCADEO AGROPECUARIO
+(Esta norma fue derogada y publicada en La Gaceta N° 3 del 6 de enero del 2021)
 El Consejo Directivo del Programa Integral de Mercadeo Agropecuario (PIMA), con fundamento en el acuerdo Nº 1490, tomado en la sesión ordinaria Nº 2641, celebrada el 25 de agosto del 2009, aprueba el presente Reglamento para la Atención de Denuncias planteadas ante la Auditoría Interna del PIMA.
 REGLAMENTO PARA LA ATENCIÓN DE DENUNCIAS
 PLANTEADAS ANTE LA AUDITORÍA INTERNA DEL
