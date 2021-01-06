@@ -1,0 +1,1 @@
+Artículo 34.—De la ejecución de inventarios. La Junta Directiva directamente o mediante una comisión designada al efecto procederá a efectuar inventarios físicos de los materiales, bienes y activos propiedad del CCDR, al menos una vez al año. Para este inventariado, en caso de así requerirse se deberá suprimir la entrada o salida de materiales, bienes y activos.

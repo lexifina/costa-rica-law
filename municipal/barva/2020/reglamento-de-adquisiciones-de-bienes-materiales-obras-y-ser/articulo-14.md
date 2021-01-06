@@ -1,0 +1,1 @@
+Artículo 14.—La selección de los procedimientos de contratación corresponderá a la Junta Directiva. Todo procedimiento de contratación administrativa deberá contar con la implementación de la decisión inicial, la cual será aprobada por la Junta Directiva:

@@ -1,0 +1,1 @@
+Artículo 12.—La Junta Directiva será responsable de verificar el cumplimiento del objeto de la contratación, salvo se delegue en una comisión o en varios de sus miembros respetando lo establecido por el presente reglamento.

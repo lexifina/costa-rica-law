@@ -1,0 +1,1 @@
+Artículo 33.—La Junta Directiva directamente o mediante una comisión designada al efecto procederá al registro de los bienes, materiales y activos adquiridos por la Municipalidad en los procesos de contratación administrativa, de tal manera que se tenga información veraz, oportuna y completa de los mismos.

@@ -1,0 +1,1 @@
+Artículo 31.—Para la distribución de los materiales y bienes El encargado de bodega Tesorero/Vocal deberá garantizar el cumplimiento de las condiciones de adjudicación y la realización del plaqueo, en los casos que corresponda. Esa verificación deberá efectuarla el órgano competente según sea la naturaleza de los materiales o bienes de que se trate.

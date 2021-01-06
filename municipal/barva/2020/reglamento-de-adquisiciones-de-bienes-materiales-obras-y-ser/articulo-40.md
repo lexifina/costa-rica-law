@@ -1,0 +1,1 @@
+Artículo 40.—La Junta Directiva exigirá la garantía de participación o cumplimiento, en los supuestos en que así lo determine el Cartel o invitación a cotizar. Las garantías de participación y de cumplimento, serán controladas, en cuanto a su custodia, monto y vigencia, por parte de la Tesorería.

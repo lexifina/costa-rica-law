@@ -1,0 +1,1 @@
+Artículo 37.—Todo oferente que participe en un proceso de contratación del Comité Cantonal, deberá cumplir estrictamente con lo establecido en la Ley de Contratación Administrativa, su reglamento y el reglamento de la plataforma SICOP.

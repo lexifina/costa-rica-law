@@ -1,0 +1,1 @@
+Artículo 16.—El Cartel contendrá las condiciones generales de la contratación y las especificaciones técnicas. Su contenido establecerá como mínimo los requisitos establecidos en el artículo 45, del Reglamento a la Ley de Contratación Administrativa. 17.1

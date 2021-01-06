@@ -1,0 +1,2 @@
+Artículo 41.—Recibidas las facturas para pagos parciales o totales de bienes o servicios contratados, el Tesorero las presentará a la Junta Directiva junto con los comprobantes de avance de obras o entrega de servicios y su recomendación por escrito. En el caso de contrataciones promovidas o canalizadas a Comités Comunales, también deberá acompañarse la transcripción del acuerdo en firme, de la Junta Directiva del Comité Comunal, en el que se manifieste su recibido de conformidad.
+Aprobado el pago por parte de la Junta Directiva, el Tesorero dispondrá su ejecución.

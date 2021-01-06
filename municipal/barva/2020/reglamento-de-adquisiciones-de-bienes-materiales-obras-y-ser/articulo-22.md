@@ -1,0 +1,1 @@
+Artículo 22.—La Secretaría de la Junta Directiva deberá establecer los controles de las operaciones y de los documentos relativos a compras de los bienes y servicios. De igual forma deberá mantener en custodia los documentos de las contrataciones tramitadas
