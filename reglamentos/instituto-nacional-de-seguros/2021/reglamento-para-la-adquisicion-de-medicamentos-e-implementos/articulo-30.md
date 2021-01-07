@@ -1,0 +1,2 @@
+Artículo 30.—Modificaciones y contrato adicional: Cuando por razones de oportunidad y conveniencia debidamente motivadas, la Administración podrá realizar modificaciones o ampliaciones a los contratos derivados de “Compras por Requerimientos”, observando para ello lo dispuesto en los artículos 208 y 209 del Reglamento a la Ley de Contratación Administrativa.
+Corresponderá al Departamento de Proveeduría aprobar dichas modificaciones o ampliaciones, previa solicitud motivada y con el cumplimiento de los prerrequisitos por parte de la Unidad Usuaria.

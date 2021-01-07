@@ -1,0 +1,2 @@
+Artículo 24.—Plazo de entrega: El oferente debe garantizar que el plazo de entrega no sobrepasará el plazo que se defina en cada solicitud de concurso.
+Al momento de la recepción de los medicamentos y/o implementos médicos se dará una recepción temporal, de forma tal que CEDINS pueda llevar a cabo el proceso de verificación de la cantidad y calidad del producto entregado, posterior a la liberación del producto se dará el recibido a satisfacción y será a partir de esta fecha que correrá el período establecido para el pago.
