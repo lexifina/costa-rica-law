@@ -1,0 +1,3 @@
+MUNICIPALIDAD DE ACOSTA
+CONCEJO MUNICIPAL
+Informa que el Concejo de la Municipalidad de Acosta, en Sesión ordinaria 33-2020 celebrada el día 15 de diciembre del 2020, mediante acuerdo número 09, referente al Reglamento por omisión por presentar declaraciones de bienes inmuebles publicado en el Diario Oficial La Gaceta Nº 237 del viernes 25 de setiembre del 2020. Este Concejo Municipal lo acoge y acuerda aprobar transitorio I Reglamento para el Cobro de Multas por la omisión de presentar declaración de Bienes Inmuebles en el cantón de Acosta. Transitorio I: Ampliar el plazo de la entrada en vigencia de este Reglamento a partir del 01 de abril del 2021.
