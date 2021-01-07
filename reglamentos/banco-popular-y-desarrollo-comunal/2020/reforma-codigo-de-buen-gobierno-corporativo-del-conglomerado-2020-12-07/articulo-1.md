@@ -1,0 +1,8 @@
+BANCO POPULAR Y DE DESARROLLO COMUNAL
+La Junta Directiva Nacional, en su calidad de tal y actuando en funciones propias de Asamblea de Accionistas de Popular Valores Puesto de Bolsa S. A.; Popular Seguros, Correduría de Seguros S. A.; Popular Sociedad de Fondos de Inversión S. A. y Operadora de Planes de Pensiones Complementarias del Banco Popular y de Desarrollo Comunal S. A., en sesión ordinaria Nº 5789 celebrada el 7 de diciembre del 2020 mediante acuerdo Nº 1083, acuerda aprobar la adición del inciso 49) al artículo 3 del Código de Buen Gobierno Corporativo del Conglomerado Financiero Banco Popular y de Desarrollo Comunal y sus subsidiarias, para que se lea de la siguiente manera:
+CÓDIGO DE BUEN GOBIERNO CORPORATIVO
+DEL CONGLOMERADO FINANCIERO BANCO POPULAR
+Y DE DESARROLLO COMUNAL Y SUS SUBSIDIARIAS
+“1. Aprobar la adición del inciso 49) al artículo 3 del Código de Buen Gobierno Corporativo, en los siguientes términos:
+49) Tratándose de recursos del Sistema de Banca para el Desarrollo, la Administración del Banco Popular debe velar por el buen uso, control, seguimiento y resultados de los recursos de los diferentes programas acreditados ante el Consejo Rector del Sistema de Banca para el Desarrollo, procurando en todo memento cumplir con los objetivos definidos en la Ley 9274 y su respectivo reglamento, así como acatar los lineamientos definidos para estos recursos en el acuerdo SUGEF 15-16 y cualquier otro que en el futuro se llegue a dictar. Para estos efectos, FONADE se entenderá como Fondo Nacional para el Desarrollo y FOFIDE como Fondo de Financiamiento para el Desarrollo.
+Lo anterior, en atención al acuerdo JDN-5727-Acd-366-2020-art 4. (Ref.: Oficio AJD-106-2020)
