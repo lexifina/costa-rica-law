@@ -13,3 +13,4 @@ Procedimiento para realizar seguimiento a las personas que obtuvieron un resulta
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-10-24 | la propia norma |
+| 2 | 2021-01-07 | Circular 1 (2021-01-07) |
