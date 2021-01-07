@@ -1,0 +1,1 @@
+ARTÍCULO 2- Se adscribe al distrito Río Jiménez, cuarto del cantón de Guácimo, el territorio comprendido dentro del límite señalado en el artículo 1, zona en donde se localizan les poblados de Línea Vieja, Coopemalanga, San Gerardo, La Aurora, La Morenita, Los Palmares, Caño Sirena, Finca Thames, Finca Lomas, Milla 4, Jalova y Lomas de Sierpe.
