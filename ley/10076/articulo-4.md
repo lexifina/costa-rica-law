@@ -1,0 +1,1 @@
+ARTÍCULO 4- Se faculta al Instituto Geográfico Nacional para que interprete y represente en la cartografía oficial los límites señalados en el artículo primero y se declare oficial el mapa que se genere de este límite.
