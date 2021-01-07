@@ -1,1 +1,0 @@
-Artículo 66.—Resolución de la solicitud. Cumplidos todos los requisitos, el Departamento de Tributos remitirá la solicitud al Concejo Municipal, para que sea conocida en la sesión ordinaria inmediata, posterior a su presentación.

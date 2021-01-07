@@ -1,1 +1,0 @@
-Artículo 18.—Permisos específicos. La unidad indicará dentro del formulario de solicitud a los interesados, cuáles permisos de funcionamiento deben acompañarse con la solicitud de licencia. Únicamente se tramitarán las solicitudes que presenten todos los requisitos que se exigen.

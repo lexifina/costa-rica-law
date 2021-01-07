@@ -1,1 +1,0 @@
-Artículo 10.—Obligación de exhibir el certificado. Es obligación de todo patentado exhibir en lugar visible el permiso de funcionamiento y el certificado de la patente respectiva. El incumplimiento de este requisito dará lugar por primera vez a una llamada de atención por escrito y en caso, de reincidencia se podrá proceder a la suspensión de la patente.

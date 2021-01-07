@@ -1,1 +1,0 @@
-Artículo 73.—Término del impuesto. El impuesto de patente se pagará durante todo el tiempo que se posea la licencia aunque no se ejercite la actividad lucrativa para la cual se otorgó la respectiva patente.

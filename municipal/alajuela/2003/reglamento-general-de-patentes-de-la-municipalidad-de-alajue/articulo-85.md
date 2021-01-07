@@ -1,5 +1,0 @@
-Artículo 85.—Exoneraciones. La Municipalidad podrá exonerar total o parcialmente el pago del impuesto de patentes a instituciones que, aunque realicen actividades lucrativas, se encuentren en cualquiera de los siguientes casos:
-Personas jurídicas que no persigan exclusivamente fines lucrativos.
-a) Actividades que por su importancia y generación de empleo, contribuyan en forma directa al desarrollo económico y social del cantón.
-Para el otorgamiento de la referida exoneración el Concejo deberá acreditar fehacientemente cualquiera de las circunstancias señaladas con anterioridad para lo cual podrá solicitar al contribuyente, toda la información y documentación necesaria para comprobarlo.
-Dicha exoneración sólo podrá ser otorgada por el Concejo Municipal a petición del contribuyente, mediante acuerdo debidamente razonado en el que se indiquen con precisión los argumentos que fundamentan en otorgamiento del beneficio y por votación calificada de más de dos terceras partes de sus miembros y entrará a regir a partir del período fiscal siguiente y por un período de dos años, renovables bajo las mismas condiciones y procedimientos.

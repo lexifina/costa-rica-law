@@ -1,2 +1,0 @@
-Artículo 79.—Declaración jurada. Cada año, durante los primeros quince días del mes de enero, las contribuyentes del impuesto de patentes deberá presentar ante la Municipalidad de Alajuela una declaración jurada que indique el monto de los ingresos brutos y el impuesto anual que deberá pagar por concepto de patente.
-Dicha declaración deberá rendirse en los formularios que para tal efecto deberá distribuir el Departamento de Tributos a cada patentado, durante el mes de diciembre del año anterior y deberá contener toda la información que en ella se solicite.

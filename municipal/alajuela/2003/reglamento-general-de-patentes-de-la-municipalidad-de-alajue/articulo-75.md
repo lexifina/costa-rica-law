@@ -1,1 +1,0 @@
-Artículo 75.—Descuento por pago adelantado. La Municipalidad aplicará un descuento equivalente al diez por ciento del monto total a pagar; a aquellos contribuyentes que realicen el pago de la totalidad del impuesto, durante los primeros tres meses de cada año.

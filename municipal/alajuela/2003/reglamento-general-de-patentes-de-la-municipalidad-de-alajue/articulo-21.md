@@ -1,1 +1,0 @@
-Artículo 21.—Resolución y notificación. Verificado el cumplimiento de los requisitos y trámites precedentes, el Departamento de Tributos, mediante resolución razonada, otorgará o denegará la licencia solicitada. Dicha resolución deberá ser notificada al interesado.

@@ -1,1 +1,0 @@
-Artículo 22.—Emisión del certificado. Cuando la resolución verse sobre el otorgamiento de la Licencia Comercial, simultáneamente deberá emitir el Departamento de Tributos el certificado correspondiente.

@@ -1,1 +1,0 @@
-Artículo 55. Prohibición de traslado o cambio de recorrido. Queda terminantemente prohibido el traslado de un puesto estacionario o el cambio del recorrido autorizado, sin la autorización previa de la Municipalidad.

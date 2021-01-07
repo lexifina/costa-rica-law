@@ -1,1 +1,0 @@
-Artículo 69.—Prohibición. Cuando quien fuere a explotar un puesto de licores en las actividades señaladas en el artículo 63 sea un patentado del mismo distrito, estará obligado a cerrar totalmente su establecimiento durante todo el tiempo que duren tales eventos.

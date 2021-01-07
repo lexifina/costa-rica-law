@@ -1,1 +1,0 @@
-Artículo 12.—Revocatoria del permiso. La revocatoria del permiso de funcionamiento por el organismo competente, involucra la suspensión automática de la licencia, clausura temporal del ejercicio de la actividad, hasta tanto sea renovado el permiso de funcionamiento pertinente, el cual debe presentarse al Departamento de Tributos para la rehabilitación de la patente.
