@@ -1,0 +1,1 @@
+Artículo 6°—Sobre las sesiones. El Comité Gerencial de TIC sesionará en forma ordinaria una vez por mes, previa convocatoria del Coordinador. De igual forma, el Comité podrá sesionar en forma extraordinaria cuando sea requerido, previa convocatoria del Coordinador. Cada sesión se llevará a cabo siguiendo el orden del día y se levantará la minuta respectiva.

@@ -1,0 +1,1 @@
+Artículo 8°—Sobre el Quórum y los Acuerdos. El Comité Gerencial de TIC podrá sesionar válidamente con la presencia de la mitad más uno de sus miembros y los acuerdos será aprobado por simple mayoría de los presentes.
