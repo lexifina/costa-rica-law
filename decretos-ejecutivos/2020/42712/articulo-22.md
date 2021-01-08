@@ -1,0 +1,2 @@
+Artículo 22.—Estados Financieros. Los OD considerados como EC deberán emitir y presentar sus propios estados financieros según la normativa vigente y las normas internacionales, además cumpliendo el tratamiento contable, las políticas y procedimientos que establezca la Contabilidad Nacional para realizar el consolidado de la Administración Central.
+La generación de los Estados Financieros del Poder Ejecutivo lo realizará la Contabilidad Nacional conforme a la normativa vigente.

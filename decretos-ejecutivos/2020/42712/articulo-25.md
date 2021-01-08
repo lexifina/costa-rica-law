@@ -1,0 +1,1 @@
+Artículo 25.—Certificación de ingresos. La Contabilidad Nacional emitirá las certificaciones de aquellos recursos transferidos al Fondo General del Gobierno de la República por parte de los OD, de acuerdo a los requerimientos que establezca el ente rector y que consten en los registros contables que se lleven al efecto.

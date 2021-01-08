@@ -1,0 +1,1 @@
+Artículo 29.—Responsabilidad por el servicio de la deuda. Es responsabilidad de los OD, la incorporación dentro de sus recursos, del servicio de la deuda pública en la categoría programática asignada, conforme a sus respectivas leyes de creación y a los términos contractuales de los empréstitos, así como de las gestiones de pago del servicio de la deuda contraída.

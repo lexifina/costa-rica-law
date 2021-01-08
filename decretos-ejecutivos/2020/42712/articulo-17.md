@@ -1,0 +1,1 @@
+Artículo 17.—Propuestas de pago. La Tesorería Nacional emitirá los lineamientos y directrices para el trámite de propuestas de pagos de planillas y acreedores, conforme a los procedimientos establecidos.

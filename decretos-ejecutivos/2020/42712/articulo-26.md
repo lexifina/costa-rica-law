@@ -1,0 +1,1 @@
+Artículo 26.—Registro de la deuda pública. Los OD responsables del servicio de la deuda pública, tendrán la obligación de llevar los registros contables y realizar la revelación, de acuerdo a los requerimientos y necesidades que establezca la Contabilidad Nacional.

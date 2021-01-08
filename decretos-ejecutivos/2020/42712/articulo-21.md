@@ -1,0 +1,3 @@
+CAPÍTULO III
+Contabilidad Nacional
+Artículo 21.—Sobre la gestión contable: presupuestaria, patrimonial y financiera. Los OD considerados como EC establecidos por la Contabilidad Nacional llevarán e informarán sobre la gestión contable: presupuestaria, patrimonial y financiera de acuerdo a lo indicado en la Ley N° 8131 y su reglamento, conforme el medio, la forma y las condiciones que establezca la Contabilidad Nacional, con la finalidad de garantizar que la información suministrada sea oportuna, confiable, transparente para la rendición de cuentas y toma de decisiones. Todo de conformidad con la centralización normativa y desconcentración operativa.

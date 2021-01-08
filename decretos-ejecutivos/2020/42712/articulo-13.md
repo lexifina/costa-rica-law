@@ -1,0 +1,1 @@
+Artículo 13.—Ingresos de los OD. Los ingresos que generen los OD deberán incorporarse al presupuesto de la República y recibirán el mismo trato que el resto de rentas del Gobierno Central; respetando, en caso de que existan, las asignaciones específicas que tengan dichos recursos.

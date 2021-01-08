@@ -1,0 +1,2 @@
+Artículo 12.—Formato de la comunicación. La DGPN dictará dentro de la normativa técnica, la regulación relativa al medio de soporte electrónico o informático y formatos de los documentos electrónicos, que estime pertinentes para la remisión de información durante todos los procesos que corresponden a la totalidad de las etapas del ciclo presupuestario.
+Los documentos electrónicos a los que se hace referencia en el párrafo anterior, en los casos que corresponda, deben ser firmados digitalmente por el ministro, el jefe del programa o del subprograma.

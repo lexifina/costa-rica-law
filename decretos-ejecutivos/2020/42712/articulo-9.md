@@ -1,0 +1,1 @@
+Artículo 9°—Responsable de presentar el anteproyecto de presupuesto de los OD ante la DGPN. Corresponde a cada jerarca de los ministerios en los que existan OD, verificar de previo a la remisión del anteproyecto a la DGPN, que se esté incorporando el presupuesto del OD, acorde con la normativa inherente a la formulación presupuestaria.

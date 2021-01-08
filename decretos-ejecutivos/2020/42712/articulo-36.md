@@ -1,0 +1,1 @@
+Artículo 36.—Para el cumplimiento de los artículos 33 y 34 de este reglamento se deberá contar con la disponibilidad presupuestaria de financiamiento para los saldos acumulados de la Caja Única de conformidad con el artículo 69 de la Ley N° 8131 y el artículo 93 de su reglamento.

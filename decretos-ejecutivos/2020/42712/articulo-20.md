@@ -1,0 +1,1 @@
+Artículo 20.—Recursos de donaciones. Los recursos provenientes de donaciones a los OD, serán depositados en el Fondo General del Gobierno para su correspondiente incorporación al presupuesto nacional.

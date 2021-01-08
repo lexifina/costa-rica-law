@@ -1,0 +1,3 @@
+Artículo 23.—Respaldo documental del registro contable. El archivo contable documental resultante de las operaciones contables será responsabilidad de las entidades de la Administración Central conforme la Ley de Archivo Nacional y conexas.
+Cuando exista un proceso judicial o administrativo pendiente de resolución, los documentos y la información deberán conservarse hasta la finalización del mismo.
+En el caso de los salarios devengados por los funcionarios del Gobierno de la República, se mantendrá por lo menos 50 años en las instituciones. No obstante lo anterior, es potestativo del Comité Institucional de Selección y Eliminación de Documentos de cada una de las instituciones del Estado establecer un plazo mayor.

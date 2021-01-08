@@ -1,0 +1,1 @@
+Artículo 10.—Remisión de los anteproyectos de presupuesto institucionales. Para la remisión de los anteproyectos de presupuesto al MH, son de aplicación obligatoria las disposiciones contenidas en la Ley N° 8131 y su reglamento.

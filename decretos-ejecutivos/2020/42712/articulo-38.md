@@ -1,0 +1,1 @@
+Artículo 38.—El ente concedente de transferencias a las OD deberá realizar las diligencias necesarias para que, al 31 de diciembre de 2020, no cuenten con transferencias devengadas pendientes de pago.

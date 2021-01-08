@@ -1,0 +1,8 @@
+TÍTULO III
+Modificaciones y disposiciones finales
+CAPÍTULO I
+Modificaciones
+Artículo 32.—Modificaciones. Modificase los artículos 2 y 3 del Decreto Nº 39183-H, publicado en La Gaceta N° 183 del 21 de setiembre del 2015, “Procedimiento para la Incorporación y Desincorporación Presupuestaria de las Fuentes de Financiamiento de crédito público externo y las autorizaciones de gasto asociadas al Presupuesto de la República” para que en adelante se lean:
+“Artículo 2º—Para las Entidades Descentralizadas y órganos desconcentrados. Las Entidades Descentralizadas y los Órganos Desconcentrados que ejecuten créditos públicos provenientes del Presupuesto Nacional, coordinarán con los Ministerios relacionados, la información que requieran sobre los saldos de los créditos externos disponibles para su ejecución. Para efectos de la revalidación de saldos, les aplicará lo dispuesto en el artículo primero.
+Artículo 3º—Incorporación de recursos por nuevos créditos. Para la incorporación de nuevos créditos en los cuales el Gobierno de la República u Órgano Desconcentrado figure como deudor, el Ministerio Rector al que pertenezca la Entidad Ejecutora, debe solicitar ante el Ministerio de Hacienda la incorporación de los recursos del financiamiento externo, aportando para ello el desglose de las partidas conforme al clasificador objeto del gasto del sector público vigente, descripción del destino de los recursos y la programación de su utilización, según los términos de la ley del préstamo o el contrato vigente.
+Una vez recibida la solicitud, la Dirección General de Presupuesto Nacional solicitará a la Contabilidad Nacional la certificación de los recursos externos para realizar el trámite de incorporación presupuestaria necesario.”

@@ -1,0 +1,43 @@
+Nº 42712-H
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE HACIENDA
+En uso de las facultades conferidas en los artículos 140 incisos 3), 8) y 18), y 146 de la Constitución Política; los artículos 25 inciso 1), 27 inciso 1), y 28 inciso 2. acápite b) de la Ley Nº 6227, Ley General de la Administración Pública del 2 de mayo de 1978 y sus reformas; los artículos 1, 5, 6, 7, 8, 9, 26, 27, 28, 29, 30, 31, 32, 33, 34, siguientes y concordantes de la Ley N° 8131, Ley de la Administración Financiera de la República y Presupuestos Públicos del 18 de setiembre del 2001 y sus reformas; la Ley N° 9524, Ley del Fortalecimiento del Control Presupuestario de los Órganos Desconcentrados del Gobierno Central del 07 de marzo del 2018; el Decreto Ejecutivo N° 32988-H MPMIDEPLAN, Reglamento a la Ley de la Administración Financiera de la República y Presupuestos Públicos del 31 de enero de 2006 y sus reformas y el Decreto Nº 39183-H del 22 de julio de 2015, Procedimiento para la Incorporación y Desincorporación Presupuestaria de las Fuentes de Financiamiento de crédito público externo y las autorizaciones de gasto asociadas al Presupuesto de la República.
+Considerando:
+1º—Que el artículo 1 de la Ley N° 9524, Ley de Fortalecimiento del Control Presupuestario de los Órganos Desconcentrados del Gobierno Central, publicada en La Gaceta N° 62 del 10 de abril del 2018 establece:
+“Aprobación presupuestaria de los órganos desconcentrados del Gobierno Central.
+Todos los presupuestos de los órganos desconcentrados de la Administración Central serán incorporados al presupuesto nacional para su discusión y aprobación por parte de la Asamblea Legislativa.
+El Ministerio de Hacienda definirá la forma y la técnica presupuestaria que se deberá aplicar para incorporar los presupuestos antes indicados y brindará, a solicitud del órgano respectivo, el apoyo técnico para facilitar el análisis y la toma de decisiones en el proceso de discusión y aprobación legislativa del presupuesto de la República.”
+2º—Que de conformidad con lo dispuesto en el Transitorio I de la Ley N° 9524 de repetida cita, los órganos desconcentrados a los que se refiere el artículo primero de dicha ley seguirán presentando, para aprobación presupuestaria de la Contraloría General de la República, sus presupuestos institucionales, manteniéndose bajo dicho control presupuestario hasta la finalización de la ejecución de los recursos del período económico 2020.
+3º—Que de forma expresa el Transitorio II de la Ley 9524 establece:
+“TRANSITORIO II.—El Ministerio de Hacienda, los ministros rectores y los jerarcas de los órganos, las unidades ejecutoras, los fondos, los programas y las cuentas que administren recursos de manera independiente deberán tomar las medidas (ajustes en sistemas informáticos, requerimiento de recurso humano, infraestructura, capacitación, entre otros) que les correspondan de acuerdo con sus competencias técnicas, legales y administrativas, para asegurar que la formulación para el período económico 2021 se realice incorporando los recursos al presupuesto nacional.”
+4º—Que el artículo 34 de la Ley de la Administración Financiera de la República y Presupuestos Públicos, Ley Nº 8131 publicada en La Gaceta Nº 198 del 16 de octubre de 2001 y sus reformas, al ser reformado por el artículo 2 de la Ley N° 9524, establece:
+“Artículo 34.—Responsable de presentar el anteproyecto. El titular de cada ministerio y el de los sujetos incluidos en el inciso b) del artículo 1 será el responsable de presentar el anteproyecto de presupuesto al Ministerio de Hacienda. En el caso de los ministerios, el anteproyecto deberá incorporar también, con su anuencia expresa, el anteproyecto de presupuesto de los órganos desconcentrados que tenga adscritos.
+Para ello, los órganos desconcentrados deben remitir al ministro correspondiente su presupuesto, con la aprobación previa de sus máximos jerarcas.
+Para el cumplimiento de todo lo anterior, deberán atenderse las disposiciones que el Ministerio de Hacienda defina en cuanto a la forma y los plazos para ese efecto.”
+5º—Que la Procuraduría General de la República al referirse en el Dictamen C-181 del 1° de agosto del 2018 a lo normado en la Ley N° 9524, concretamente a la modificación que la misma contiene del artículo 34 de la Ley de la Administración Financiera de la República y Presupuestos Públicos y en sus conclusiones, en lo de interés señala:
+• “Conforme el 34 los órganos desconcentrados deben presentar al ministro respectivo un anteproyecto de presupuesto para que sea incorporado al presupuesto de ese ministerio, con el objetivo de reforzar la capacidad de direccionamiento político administrativo del ministro.”
+• La Ley N° 9524 “4 (…) tiene como objeto incorporar los presupuestos independientes de la Administración Central del Estado al presupuesto nacional, con la finalidad de que se dé plena eficacia a los principios constitucionales y técnicos en materia presupuestaria para garantizar y robustecer el control político expresado en el direccionamiento de la Administración por parte del Poder Ejecutivo y en la aprobación del Presupuesto por parte de la Asamblea Legislativa.”
+• La Ley N° 9524 es “3. (…) aplicable solamente a los órganos desconcentrados de la Administración Central (…) a los que se les ha otorgado personalidad jurídica instrumental”, así como a “5. (…) los fondos, cuentas, programas, unidades ejecutoras que sean titulares de un presupuesto independiente”, para los cuales “6. (…) el Órgano Contralor ha perdido competencia para aprobar sus presupuestos, estando ante una derogación tácita de leyes que establecen expresamente la competencia de la Contraloría General de la República para la aprobación de los presupuestos (…) y que no fueron expresamente modificadas por la Ley N° 9524.”
+• “8. Dada la incorporación de los presupuestos independientes a la Ley de Presupuesto, el proceso presupuestario, en sus diversas fases, debe apegarse a los principios constitucionales (…) a lo dispuesto por la Ley de Administración Financiera de la República y Presupuestos Públicos” (…) 10. (…) y deben responder a los criterios técnicos y a la forma definidos por el Ministerio de Hacienda.”
+6º—Que debe atenderse el Dictamen C-072-2019 de fecha 20 de marzo de 2019, de la misma Procuraduría General de la República, destacándose entre todo lo relevante lo siguiente:
+• No se debe hacer 1. (…) diferencia entre los ingresos del órgano según su origen (…) para darles un trámite distinto (…)”. Por lo anterior, en relación con dichos ingresos aplican las potestades constitucionales y legales que le asisten a la Dirección General de Presupuesto Nacional.
+• “4. El principio de anualidad presupuestaria (…) previsto en la Constitución Política se aplica “4. (…) también a los órganos desconcentrados con personalidad jurídica instrumental.”
+7º—Que en virtud de la entrada en vigencia de la Ley Nº 9524, se requiere reformar los artículos 2 y 3 el Decreto Nº 39183-H con el propósito de incluir a los órganos desconcentrados en materia de incorporación de recursos por nuevos créditos y saldos de créditos externos.
+8º—Que de conformidad con lo establecido en el artículo 12 bis del Decreto Ejecutivo Nº 37045-MP-MEIC del 22 de febrero de 2012 y su reforma “Reglamento a la Ley de Protección al Ciudadano de Exceso de Requisitos y Trámites Administrativos”, el presente Decreto no establece ni modifica trámites, requisitos y/o procedimientos vinculados al administrado, no se requiere someter el presente reglamento al control previo de revisión por parte de la Dirección de Mejora Regulatoria y Reglamentación Técnica del Ministerio de Economía, Industria y Comercio.
+9º—Que resulta necesario desarrollar reglamentariamente las disposiciones contenidas en la Ley N° 9524, tanto en los aspectos generales como en lo que corresponde a cada uno de los subsistemas y sistema complementario que integran la Administración Financiera.
+Por tanto,
+Decretan:
+“Reglamento a la Ley N° 9524 Ley de Fortalecimiento del
+Control Presupuestario de los Órganos Desconcentrados del
+Gobierno Central y Reforma a los Artículos 2 y 3 del
+Decreto Nº 39183-H, Denominado:Procedimiento para la
+Incorporación y Desincorporación Presupuestaria de
+las Fuentes de Financiamiento de Crédito
+Público Externo y las Autorizaciones
+De Gasto Asociadas al Presupuesto
+de la República”
+TÍTULO I
+Disposiciones generales
+CAPÍTULO I
+Objetivo, definiciones y siglas
+Artículo 1º—Objetivo. El presente reglamento regula la aplicación de la Ley N° 9524, Ley de Fortalecimiento del Control Presupuestario de los Órganos Desconcentrados del Gobierno Central, mediante el desarrollo de principios y disposiciones normativas complementarias.

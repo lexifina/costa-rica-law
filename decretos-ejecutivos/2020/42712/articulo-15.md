@@ -1,0 +1,1 @@
+Artículo 15.—Sobre el seguimiento y la evaluación presupuestaria. El seguimiento y evaluación presupuestaria de los OD, se realizarán de manera integral con la del ministerio al que se encuentran adscritos, atendiendo la normativa técnica que para este efecto dicte el ente rector.

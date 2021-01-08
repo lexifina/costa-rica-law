@@ -1,0 +1,1 @@
+Artículo 6°—Suministro de información por parte de los OD. Los OD estarán obligados a suministrar la información que le solicite el MH y los rectores de los subsistemas de la administración financiera y del sistema complementario de Administración de Bienes y Contratación Administrativa, para atender las diferentes etapas de los ciclos presupuestarios, financieros y contables.

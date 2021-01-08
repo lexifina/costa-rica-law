@@ -1,0 +1,1 @@
+Artículo 35.—Aquellos saldos que se mantengan en Caja Única al cierre del 31 de diciembre del 2021 que no estuvieron sujetos a la aplicación de los artículos 33 y 34 de esta reglamentación, los OD deberán solicitar el cierre de las cuentas y su respectivo traslado al Fondo General en calidad de recursos del Tesoro Público y no podrán solicitar derecho de uso sobre los mismos.

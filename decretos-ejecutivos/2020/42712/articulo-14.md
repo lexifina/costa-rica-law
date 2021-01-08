@@ -1,0 +1,1 @@
+Artículo 14.—Créditos externos, revalidación de saldos y donaciones. Para la incorporación y desincorporación de créditos externos, así como donaciones, recibidas por los OD en el presupuesto de la República, se deberá contar con la respectiva certificación emitida por la Contabilidad Nacional posterior a la solicitud de la DGPN

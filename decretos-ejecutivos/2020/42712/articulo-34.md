@@ -1,0 +1,3 @@
+Artículo 34.—Los saldos al 31 de diciembre 2020 quedarán depositados en las cuentas de Caja Única de Períodos Anteriores durante el ejercicio económico 2021. Estos recursos servirán para atender los compromisos devengados al cierre del período 2020, con fecha máxima al 15 de febrero del 2021.
+El saldo restante deberá cumplir con lo establecido en el artículo 33 de este reglamento, siempre y cuando no estén afectos a la Ley N° 9371, Ley de Eficiencia en la Administración de los Recursos Públicos y la Ley N° 9635, Ley de Fortalecimiento de las Finanzas Públicas.
+Los saldos acumulados en Caja Única, no comprometidos, tendrán que ser ejecutados con los recursos del presupuesto económico 2021.
