@@ -1,1 +1,0 @@
-Artículo 2º—Al entrar en vigencia la presente resolución, se deja sin efecto la actualización efectuada mediante la resolución número RES-DGH-033-2020, del siete de julio de 2020, publicada en La Gaceta Nº 168 del 11 de julio de 2020.
