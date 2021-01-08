@@ -1,0 +1,4 @@
+Artículo 68.- Podrá acordarse el despido de la persona funcionaria sin responsabilidad para el Estado, en los siguientes casos:
+a) Cuando en tres ocasiones se le imponga suspensión sin goce de salario e incurra en causal para una cuarta suspensión dentro de un período de un año. Esto no implica que, en caso de cometer falta grave, se pueda presentar la gestión de despido sin observancia de estas suspensiones.
+b) La ausencia injustificada de dos días consecutivos o más de dos alternos, computables en un mismo mes calendario.
+c) Si se incurriera en cualquier falta grave de las establecidas tanto el Estatuto de Servicio Civil, y su Reglamento, como en las señaladas en el artículo 81 del Código de Trabajo, el presente Reglamento o en cualquier norma jurídica que así lo disponga en el marco de la Administración Pública.

@@ -1,0 +1,1 @@
+Artículo 96.- Todas las personas trabajadoras que desempeñen en iguales condiciones subjetivas y objetivas un trabajo igual gozarán de los mismos derechos, en cuanto a jornada laboral y remuneración, sin discriminación alguna.

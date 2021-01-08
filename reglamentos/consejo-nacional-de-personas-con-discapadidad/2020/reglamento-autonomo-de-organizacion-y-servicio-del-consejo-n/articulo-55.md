@@ -1,0 +1,1 @@
+Articulo 55.- Las licencias o permisos con goce de salario citadas en el artículo anterior deberán justificarse mediante los comprobantes respectivos y en apego a los procedimientos establecidos por el Conapdis.

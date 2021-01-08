@@ -1,0 +1,1 @@
+Artículo 66.- Los apercibimientos y las amonestaciones verbales, que se generen por infracciones al registro de puntualidad y asistencia, incumplimiento de deberes, así como en aquellos aspectos disciplinarios en los que medió falta leve en forma expresa o tácita a las obligaciones que le impone su relación de servicio, le corresponderá aplicarlas a la Jefatura Inmediata.

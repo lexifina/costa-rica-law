@@ -1,0 +1,1 @@
+Artículo 7.- Los nombramientos de las personas funcionarias que se efectúen con sujeción al Régimen del Servicio Civil, se entenderán por tiempo indefinido. Las personas funcionarias nombradas con carácter interino solo podrán ser removidas según lo señalado en el artículo 2, inciso s).

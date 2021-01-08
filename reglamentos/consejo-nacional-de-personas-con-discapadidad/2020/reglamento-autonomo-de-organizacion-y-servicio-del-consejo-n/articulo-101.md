@@ -1,0 +1,1 @@
+Artículo 101.- Todo nombramiento, despido, suspens1on, traslado, permuta, ascenso o reconocimiento que se efectúe en contra de lo dispuesto por el presente título será anulable a solicitud de la parte interesada, y los procedimientos seguidos en cuanto a selección de personal carecerán de eficacia en lo que resulte violatorio a este título.

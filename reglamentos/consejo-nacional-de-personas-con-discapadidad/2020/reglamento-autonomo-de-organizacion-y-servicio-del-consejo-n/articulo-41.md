@@ -1,0 +1,9 @@
+CAPITULO XIII
+DE LAS VACACIONES Y LICENCIAS
+l. De las Vacaciones
+Artículo 41.- Las personas funcionarias después de haber prestado servicios por cincuenta semanas continuas, podrán disfrutar de vacaciones anuales en la proporción que señalan los artículos 3 7 inciso b) del Estatuto de Servicio Civil y 28 y siguientes de su Reglamento.
+De conformidad con lo anterior, el derecho al disfrute de las vacaciones será de la siguiente manera:
+a) Si ha trabajado durante un tiempo de cincuenta semanas a cuatro años y cincuenta semanas, gozará de quince días hábiles de vacaciones.
+b) Si ha prestado servicios durante un tiempo de cinco años y cincuenta semanas a nueve años y cincuenta semanas, gozará de veinte días hábiles de vacaciones.
+c) Si ha trabajado durante un tiempo de diez años y cincuenta semanas o más, gozará de un mes calendario de vacaciones, para la determinación de los días hábiles se excluirán los domingos y demás feriados establecidos por el artículo 147 del Código de Trabajo, y los días de asueto que conceda el Poder Ejecutivo, siempre que el asueto comprenda a la dependencia y a la persona funcionaria que se trate. La vacación de un mes se entiende de un mes calendario, salvo cuando se fraccione que será de veintiséis días hábiles.
+Las disposiciones establecidas en el presente artículo serán de aplicación para todas las personas funcionarias, incluyendo a quien ostente el cargo de la Dirección Ejecutiva; salvo o excepto para personas funcionarias que al tenor de la normativa anterior y antes de que la institución pasara a ser regulada por el Estatuto del Servicios Civil a partir de la promulgación de la Ley 9303 el 26 de mayo de 2015, gozaban de treinta días hábiles de vacaciones transcurridos l O años y cincuenta semanas o más de servicio, continuarán gozando de este beneficio a la entrada en vigencia del presente reglamento.

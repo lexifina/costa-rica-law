@@ -1,0 +1,3 @@
+CAPÍTULO XIX
+PROHIBICIÓN DE DISCRIMINAR
+Artículo 95.- De conformidad con lo establecido en la Ley N .º 9343, Ley de Reforma Procesal Laboral y en la Directriz Nº 025-P sobre la Política para erradicar de las instituciones públicas la discriminación hacia la población sexualmente diversa en el Conapdis se prohíbe toda discriminación en el trabajo por razones de edad, etnia, sexo, religión, raza, orientación sexual, estado civil, opinión política, ascendencia nacional, origen social, filiación, discapacidad, afiliación sindical, situación económica o cualquier otra forma análoga de discriminación.

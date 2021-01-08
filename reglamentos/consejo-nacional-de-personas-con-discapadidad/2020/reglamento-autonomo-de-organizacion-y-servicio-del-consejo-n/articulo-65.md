@@ -1,0 +1,1 @@
+Artículo 65.- La amonestación escrita se aplicará cuando se incurra en una falta de alguna gravedad, que no dé mérito para una suspensión, pero que infrinja cualquiera de las prohibiciones u obligaciones contempladas en el Estatuto de Servicio Civil, su Reglamento Ley Nº 1581, el presente Reglamento y otras leyes conexas.

@@ -1,0 +1,1 @@
+Artículo 23.- Los Jefes inmediatos, dispondrán los tumos y la distribución del personal a su cargo, a fin de que, durante los descansos previstos en este Reglamento, se mantenga la continuidad y la prestación del servicio.

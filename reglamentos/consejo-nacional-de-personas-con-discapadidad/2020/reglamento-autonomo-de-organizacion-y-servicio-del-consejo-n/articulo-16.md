@@ -1,0 +1,11 @@
+Artículo 16.- Además de lo contemplado en el artículo anterior queda absolutamente prohibido a quienes ocupan cargos de Jefatura y Coordinación:
+a) Ejercer algún tipo de acoso psicológico y/o moral en el trabajo, sobre el personal que tengan a cargo o contra otras personas funcionarias del Conapdis.
+b) Ejercer algún tipo de acoso u hostigamiento sexual o laboral sobre sus colaboradores o demás compañeros del Conapdis, pasantes, becarios, proveedores o personas usuarias.
+c) Utilizar los servicios del personal subalterno, así como los servicios que presta el Conapdis, incluyendo la utilización de los equipos y herramientas de trabajo, para beneficio propio, de familiares o de terceros.
+d) Utilizar el poder oficial o la influencia que surja de su jerarquía, para obtener o procurar servicios especiales, nombramientos o cualquier otro beneficio personal, que implique un privilegio o favorecimiento propio o para sus familiares, amigos o cualquier otra persona, medie o no remuneración.
+e) Girar órdenes a sus colaboradores para que realicen acciones al margen de lo dispuesto en el Ordenamiento Jurídico o ajenas a sus funciones.
+f) Consentir actos de indisciplina, asistencia irregular e impuntualidad de las personas funcionarias bajo su responsabilidad, salvo casos debidamente justificados, y omitir su deber de informar a las autoridades superiores, cuando corresponda, las irregularidades que en uno u otro aspecto se presenten.
+g) Permitir que el personal a su cargo incumpla con el correcto empleo del equipo, mobiliario y herramientas que le ha sido asignado.
+h) Permitir que el personal a su cargo incumpla con la directriz institucional sobre las normas de presentación personal vigente.
+i) Autorizar o permitir la realización de jornada extraordinaria, fuera de los límites establecidos en el ordenamiento jurídico y cuando no se haya obtenido la autorización previa, de conformidad con lo dispuesto por el Reglamento para la Autorización, Reconocimiento y Pago del Tiempo Extraordinario del Conapdis.
+j) Permitir la consolidación de nuevas funciones del personal a su cargo, sin la debida autorización de la Dirección Ejecutiva, la verificación de la existencia y disponibilidad de recursos presupuestarios, conveniencia y oportunidad del cambio de tareas y responsabilidades y cumplimiento de los requisitos del ocupante.

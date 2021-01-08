@@ -1,0 +1,1 @@
+Artículo 90.- Concluido el procedimiento y comprobada la comisión de falta grave atribuida a la persona funcionaria, el caso deberá ser elevado oportunamente en primera instancia ante la Dirección General de Servicio Civil, para que continué con la tramitación de la gestión de despido, conforme lo dispuesto por el Estatuto de Servicio Civil.

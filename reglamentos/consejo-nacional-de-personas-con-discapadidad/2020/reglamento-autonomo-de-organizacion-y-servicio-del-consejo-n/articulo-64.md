@@ -1,0 +1,1 @@
+Artículo 64.- La amonestación verbal se aplicará cuando la persona funcionaria incurra en un hecho que configure una falta leve a las obligaciones expresas o tácitas que le imponen su relación de servicio, este reglamento y cualquier otra normativa laboral.

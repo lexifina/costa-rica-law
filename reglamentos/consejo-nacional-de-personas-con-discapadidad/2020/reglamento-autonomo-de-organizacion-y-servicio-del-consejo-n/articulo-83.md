@@ -1,0 +1,2 @@
+III. Del procedimiento para el trámite de denuncias por acoso laboral y sexual
+Artículo 83.- La labor de divulgación de la Ley Contra el Hostigamiento o Acoso Sexual en el Empleo y la Docencia N .º 74 76 del 3 de febrero de 1995 y sus reformas, así como del presente Reglamento y las políticas de prevención, será responsabilidad de la Oficina de Gestión de Recursos Humanos en coordinación con la Dirección Ejecutiva.

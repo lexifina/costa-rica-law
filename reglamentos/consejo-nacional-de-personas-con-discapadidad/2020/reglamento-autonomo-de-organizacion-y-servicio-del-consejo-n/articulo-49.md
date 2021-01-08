@@ -1,0 +1,2 @@
+Artículo 49.- Las personas funcionarias deben gozar sin intenupciones de su periodo de vacaciones, por lo cual estas no podrán ser suspendidas salvo por enfermedad o accidente y se declare la incapacidad por los servicios médicos de la Caja Costarricense de Seguro Social o el Instituto Nacional de Seguros.
+En este último caso los días dejados de disfrutar se podrán conceder al terminar la incapacidad, trámite que se hará por gestión propia de la persona funcionaria ante la Jefatura inmediata.

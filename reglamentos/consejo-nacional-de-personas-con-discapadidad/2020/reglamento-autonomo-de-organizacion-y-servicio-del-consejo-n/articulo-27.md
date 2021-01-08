@@ -1,0 +1,1 @@
+Artículo 27 .- Son días hábiles para el trabajo todos los días del año, excepto los días de descanso obligatorio y días feriados establecidos en el artículo 148 del Código de Trabajo y los asuetos concedidos conforme con la ley.

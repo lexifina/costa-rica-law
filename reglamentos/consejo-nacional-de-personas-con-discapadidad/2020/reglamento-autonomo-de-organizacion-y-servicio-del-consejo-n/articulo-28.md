@@ -1,0 +1,1 @@
+Artículo 28.- Se exceptúan del disfrute de estos días para aquellas personas funcionarias que por la naturaleza de sus funciones y su jornada deban laborarlos. En los demás casos la persona funcionaria tendrá derecho al pago de tiempo extraordinario, de conformidad con la normativa interna vigente que regula la autorización, trámite y pago de tiempo extraordinario.

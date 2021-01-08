@@ -1,0 +1,1 @@
+Artículo 21.- Con respecto a las personas funcionarias que efectúan labores fuera del Conapds, corresponde al Coordinador, jefe o director respectivo determinar el tiempo en que éstas han de ejecutarse, conforme con el presente Reglamento y demás disposiciones jurídicas pertinentes.

@@ -1,0 +1,1 @@
+Artículo 47.- El Conapdis únicamente reconocerá para efectos de pago o de disfrute, los periodos de vacaciones efectivamente devengados y no disfrutados en otras entidades públicas, de conformidad con los lineamientos establecidos por la Dirección General del Servicio Civil.

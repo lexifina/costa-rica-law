@@ -1,0 +1,2 @@
+II. Del abandono de labores
+Artículo 39.- Se considera abandono el hacer dejación de las labores sin causa justificada, dentro de la jornada de trabajo objeto de la relación de servicio. Para efectos de calificar el abandono de labores, no es preciso que la persona funcionaria salga del lugar donde presta sus servicios, sino que, de manera injustificada abandone la labor que le ha sido encomendada.

@@ -1,0 +1,1 @@
+Articulo 52- Las vacaciones de la persona que ocupe el cargo de titular de la auditoría interna del Conapdis, serán definidas mediante acuerdo de Junta Directiva. Para el resto de las personas funcionarias de la auditoría interna se aplicará lo expuesto en el régimen general de vacaciones establecido en el presente reglamento.

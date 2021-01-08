@@ -1,0 +1,1 @@
+Artículo 94.- Las jefaturas inmediatas serán las responsables de advertir a sus colaboradores sobre la prohibición del fumado. El Conapdis deberá, asimismo, indicar dicha prohibición por medio de rótulos en lugares visibles.

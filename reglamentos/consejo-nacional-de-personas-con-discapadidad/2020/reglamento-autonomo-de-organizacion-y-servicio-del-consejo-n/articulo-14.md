@@ -1,0 +1,15 @@
+CAPÍTULO VI
+DE LOS DERECHOS DE LAS PERSONAS FUNCIONARIAS
+Artículo 14.- Además de los derechos establecidos en las normas aplicables al régimen de empleo público, las personas funcionarias del Conapdis tendrán derecho a:
+a) Recibir capacitación o formación mediante cursos, seminarios, becas, entre otros, que sean recibidos en forma presencial, a distancia o de forma virtual, bimodal, con la finalidad de mejorar su desempeño en igualdad de condición para todos.
+b) Solicitar a su jefatura inmediata el trámite de reasignación cuando se determine una variación sustancial y permanente en sus tareas y responsabilidades y siempre que se cumplan con las condiciones establecidas en la normativa vigente.
+c) Gozar de una hora diaria por lactancia, previa presentación de dictamen médico extendido por la Caja Costarricense de Seguro Social o avalado por dicha institución, cuando se trate de una certificación de médico particular. Para estos fines la institución proporcionará un espacio fisico idóneo que reúna condiciones de privacidad, seguridad, comodidad e higiene de conformidad con la normativa vigente.
+d) Al reconocimiento de la carrera administrativa como derecho de las personas funcionarias, que por su capacidad y responsabilidad resulten idóneos en la valoración, que, en igualdad de condiciones, se realizara para ocupar una plaza vacante, de conformidad con lo establecido en el Estatuto del Servicio Civil y su Reglamento.
+e) A que se apliquen las medidas disciplinarias en resguardo al derecho constitucional de igualdad, previo cumplimiento del derecho de defensa y el debido proceso, de conformidad con lo que establece la Constitución Política y la Ley General de Administración Pública Ley Nº 6227 y sus reformas.
+f) Contar con un lugar adecuado para ingerir sus alimentos y bebidas durante su tiempo de descanso, según lo dispuesto por el artículo 97 del Decreto Ejecutivo N.º 1 de 2 de enero de 1967 (Reglamento de Seguridad e Higiene en el Trabajo).
+g) Asistir a las citas médicas programadas, así como a los controles necesarios cuando así lo requiera, siempre y cuando presente un comprobante médico para justificar la ausencia en horas laborales a la jefatura inmediata.
+h) Acompañar a los hijos e hijas menores de edad, las personas adultas mayores en primer grado de consanguinidad o afinidad a citas médicas programadas y exámenes médicos prescritos, siempre y cuando presente un comprobante médico para justificar la ausencia en horas laborales a la jefatura inmediata.
+i) Contar con los instrumentos, equipos, materiales y condiciones físicas accesibles para desempeñar su trabajo.
+j) A que se le pague oportunamente el salario escolar y el aguinaldo, así como al reconocimiento de los pluses salariales que correspondan, según las disposiciones y normas vigentes.
+k) A trabajar en un ambiente libre de discriminación, hostigamiento sexual y laboral.
+l) A recibir instrucciones claras y precisas sobre sus labores y responsabilidades, de parte de su jefe inmediato y manifestar a sus superiores las opiniones relacionadas con las labores que desempeñan.

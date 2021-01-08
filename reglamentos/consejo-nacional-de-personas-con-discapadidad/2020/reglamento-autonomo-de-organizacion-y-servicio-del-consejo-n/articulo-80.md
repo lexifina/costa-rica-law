@@ -1,0 +1,1 @@
+Artículo 80.- El Conapdis fortalecerá la interacción humana basada en el respeto a los derechos y la dignidad de las personas, por medio de la aprobación y ejecución de una política y un reglamento institucional, que prevenga, desaliente, evite y sancione las conductas que legitiman diversas formas de hostigamiento sexual en el ámbito institucional.

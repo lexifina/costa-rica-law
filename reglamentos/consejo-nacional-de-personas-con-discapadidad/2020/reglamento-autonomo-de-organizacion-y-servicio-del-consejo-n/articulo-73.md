@@ -1,0 +1,1 @@
+Articulo 73.- Los integrantes de la Comisión serán nombrados de acuerdo con el procedimiento establecido en el Reglamento de Comisiones y Oficinas o Departamentos de Salud Ocupacional Decreto Nº 39408-MTSS vigente.

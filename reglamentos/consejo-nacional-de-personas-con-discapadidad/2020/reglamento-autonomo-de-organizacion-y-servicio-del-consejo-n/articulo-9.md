@@ -1,0 +1,1 @@
+Artículo 9.- En toda relación de servicio por tiempo indefinido habrá un período de prueba de hasta tres meses, de conformidad con lo establecido en los artículos 30 y 31 del Estatuto de Servicio Civil.

@@ -1,0 +1,4 @@
+Artículo 71.- El Conapdis establecerá la Comisión Institucional de Salud Ocupacional y las subcomisiones que estime necesarias de conformidad con el Reglamento de Comisiones y Oficinas o Departamentos de Salud Ocupacional, las cuales funcionarán como estructuras preventivas bipartitas, constituidas por personas empleadoras y por personas funcionarias. Además:
+a) Otorgará el tiempo necesario en horas hábiles y con goce de salario para que las personas funcionarias participen de la elección de sus representantes y para que sus integrantes desempeñen sus funciones, sin que medien recargos de trabajo por su asistencia a las sesiones.
+b) Suministrará los materiales, el espacio físico y documentación requerido para realizar las reumones.
+c) Capacitará a sus integrantes, como mínimo una vez al año, en materia de salud ocupacional.

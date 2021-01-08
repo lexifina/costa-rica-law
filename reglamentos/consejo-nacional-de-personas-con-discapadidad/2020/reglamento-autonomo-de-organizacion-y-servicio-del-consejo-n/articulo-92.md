@@ -1,0 +1,1 @@
+Artículo 92.- Conforme a lo dispuesto por el artículo 29 de la Ley Nº 7476, Ley Contra El Hostigamiento Sexual en el Empleo y la Docencia y sus reformas, tanto el cómputo, como la suspensión o interrupción y demás vicisitudes relativas a la prescripción de la potestad sancionadora, se rigen por lo dispuesto en el Título X del Código de Trabajo.

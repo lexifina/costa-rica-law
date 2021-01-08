@@ -1,0 +1,1 @@
+Artículo 35.- Las ausencias injustificadas, aparte de la sanción disciplinaria que conlleva para la persona funcionaria implican la deducción obligada de su salario en la proporción correspondiente a dichas ausencias, si se tratare de ausencias comprobables por mera constatación.

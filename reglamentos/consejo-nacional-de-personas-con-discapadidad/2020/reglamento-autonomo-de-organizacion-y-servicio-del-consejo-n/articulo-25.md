@@ -1,0 +1,1 @@
+Artículo 25.- De conformidad con el artículo 139 del Código de Trabajo, no constituirá jornada extraordinaria, ni se pagará, el tiempo que el trabajador emplee en subsanar los errores cometidos durante la jornada ordinaria y que sean imputables sólo a él.

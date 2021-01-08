@@ -1,0 +1,1 @@
+Artículo 58.- Las personas funcionarias que pertenecen a organizaciones sindicales podrán gozar de licencias con goce de salario para capacitaciones y actividades propias de la organización, en apego al procedimiento establecido por el Ministerio de Trabajo y Seguridad Social y normas supletorias.

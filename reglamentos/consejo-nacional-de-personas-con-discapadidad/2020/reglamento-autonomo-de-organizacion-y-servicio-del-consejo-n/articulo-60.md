@@ -1,0 +1,1 @@
+Artículo 60.- Toda persona funcionaria que ejerza el rol de jefatura o coordinador de conformidad con la estructura organizativa y funcional del Conapdis, está en la obligación de evaluar a sus colaboradores objetivamente.

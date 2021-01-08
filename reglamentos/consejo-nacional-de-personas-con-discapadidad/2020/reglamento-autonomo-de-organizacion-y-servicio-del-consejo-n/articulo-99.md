@@ -1,0 +1,1 @@
+Artículo 99.- Todas las personas, sin discriminación alguna, gozarán de las mismas oportunidades para desarrollarse en el empleo, siempre y cuando reúnan los requisitos de idoneidad establecidos mediante ley o reglamento.

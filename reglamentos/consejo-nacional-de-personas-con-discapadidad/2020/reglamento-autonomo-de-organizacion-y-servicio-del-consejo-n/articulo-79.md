@@ -1,0 +1,1 @@
+Artículo 79.- El hostigamiento laboral será considerado falta grave, y toda persona funcionaria, a quien se le compruebe haber incurrido en éste, podrá ser despedido sin responsabilidad patronal, de conformidad con las normas sancionatorias de estos comportamientos, establecidas en este Reglamento y en la legislación vigente.

@@ -1,0 +1,1 @@
+Artículo 72.- La Comisión tendrá como fin investigar las causas de los riesgos ocupacionales, proponer las medidas para prevenirlos y vigilar que estas se cumplan, tanto en la Sede Central como en las Sedes Regionales.

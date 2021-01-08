@@ -1,0 +1,1 @@
+Articulo 45.- Resulta prohibido a las personas funcionarias adelantar días o períodos de vacaciones a las cuales aún no tiene derecho, pero podrán disfrutar de vacaciones proporcionales al período laborado en caso de necesidad imperiosa.

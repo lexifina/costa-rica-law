@@ -1,0 +1,2 @@
+Artículo 31.- Salvo los casos previstos en este Reglamento la omisión de marca de entrada o salida hará presumir la inasistencia a la correspondiente fracción de jornada y queda bajo la responsabilidad de la persona funcionaria, el mismo día o al día siguiente hábil, presentar la justificación correspondiente ante su jefatura inmediata.
+Si la respectiva jefatura acepta la justificación, la misma debe ser presentada en los tres días hábiles siguientes a la fecha en que se dio el hecho ante la Unidad de Recursos Humanos con las boletas y comprobantes respectivos.
