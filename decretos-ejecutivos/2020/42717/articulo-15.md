@@ -1,0 +1,1 @@
+Artículo 15º—Contratación externa de profesionales. Según las necesidades de la Oficina de Fiscalización, se podrán realizar contrataciones por servicios profesionales de diferentes disciplinas, cuando sea estrictamente necesario y dichas actividades no puedan ser realizadas por el personal permanente de la Oficina.

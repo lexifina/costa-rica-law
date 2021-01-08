@@ -1,0 +1,7 @@
+CAPÍTULO III
+FUNCIONAMIENTO DE LA OFICINA FISCALIZADORA
+Artículo 16º—Potestades de la Oficina Fiscalizadora. Los funcionarios de la Oficina Fiscalizadora tendrán la potestad, dentro del límite de sus competencias, de:
+1. Requerir al concesionario, CETAC o a la administración, que faciliten el acceso a las instalaciones físicas, registros físicos y electrónicos, reportes, archivos, informes de auditorías, documentos, recomendaciones o cualquier otro material relativo a la concesión, cuyo requerimiento esté directamente vinculado al proceso de fiscalización.
+2. Requerir al CETAC, a la administración o al concesionario, la colaboración, el asesoramiento y las facilidades que demande el ejercicio de la función fiscalizadora.
+3. Realizar las inspecciones necesarias para la adecuada ejecución del proceso fiscalizador. Para esto, los miembros de la Oficina Fiscalizadora estarán debidamente identificados y deberán acatar las medidas de seguridad y técnicas requeridas por la Concesión para el ingreso a las áreas por fiscalizar.
+4. El ejercicio de las potestades fiscalizadoras se llevará a acabo de conformidad con lo dispuesto por el ordenamiento jurídico y el contrato de concesión, haciendo uso de herramientas y procedimientos legítimos. Los costos de las auditorías especiales o del proceso de investigación, correrán por cuenta de la Oficina Fiscalizadora, con el recurso que establece el contrato de concesión.

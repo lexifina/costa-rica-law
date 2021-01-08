@@ -1,0 +1,1 @@
+Artículo 4º—Competencia de la Oficina Fiscalizadora. La Oficina Fiscalizadora tendrá la obligación de fiscalizar el cumplimiento de obligaciones y derechos del CETAC y del concesionario, según lo establecido en el contrato de concesión.

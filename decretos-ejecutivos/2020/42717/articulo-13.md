@@ -1,0 +1,2 @@
+Artículo 13º—Las funciones del personal administrativo
+Las funciones y responsabilidades del personal de apoyo administrativo serán las definidas en el Manual de Clases de Puestos de la Dirección General de Servicio Civil o en el contrato de servicios profesionales que suscriba éste con el CETAC, las cuales tendrán que estar definidas en procura del interés institucional, la calidad del servicio y los valores y normas contempladas en esta reglamentación.

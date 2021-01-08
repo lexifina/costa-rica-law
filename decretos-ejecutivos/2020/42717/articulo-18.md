@@ -1,0 +1,1 @@
+Artículo 18º—Criterios para los informes de resultados. Los informes para la comunicación de los resultados deben incluir, antecedentes, objetivos, alcance, hallazgos, conclusiones, señalamientos, observaciones y demás incidencias del trabajo, según su naturaleza y la respectiva recomendación cuando corresponda.
