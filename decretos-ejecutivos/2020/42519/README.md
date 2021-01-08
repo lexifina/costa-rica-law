@@ -14,3 +14,4 @@ Mecanismo para la atención y la ejecución de la deducción salarial mensual so
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-08-19 | la propia norma |
+| 2 | 2021-01-08 | Decreto Ejecutivo 42795 (2021-01-08) |

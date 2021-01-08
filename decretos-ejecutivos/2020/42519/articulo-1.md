@@ -1,4 +1,5 @@
 N° 42519-H
+(Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 42795 del 8 de enero del 2021, se acordó prorrogar la vigencia del presente decreto ejecutivo hasta el 30 de junio de 2021)
 EL PRESIDENTE DE LA REPÚBLICA
 Y EL MINISTRO DE HACIENDA
 En uso de las facultades y atribuciones que les confieren los artículos 11, 140 inciso 8) y 20) y 146 de la Constitución Política; los artículos 11, 25 inciso 1), 27 inciso 1) y 28 inciso 2) subinciso b) de la Ley General de la Administración Pública, Ley número 6227 del 2 de mayo de 1978; Ley de Presupuesto Ordinario y Extraordinario de la República para el Ejercicio Económico del 2020, Ley número 9791 del 26 de noviembre del 2019; el Decreto Ejecutivo número 42227-MP-S del 16 de marzo de 2020; y,
