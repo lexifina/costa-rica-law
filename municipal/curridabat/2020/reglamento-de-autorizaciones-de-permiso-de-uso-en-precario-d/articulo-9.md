@@ -1,0 +1,1 @@
+Artículo 9°—Sobre el establecimiento de un canon. En caso de que la solicitud de préstamo implique la realización de actividades con fines de lucro para el solicitante, quedará a criterio del Concejo Municipal determinar el establecimiento de un canon o si su en defecto se otorgará el uso en precario gratuito.

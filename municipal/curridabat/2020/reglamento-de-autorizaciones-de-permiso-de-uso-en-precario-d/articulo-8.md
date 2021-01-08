@@ -1,0 +1,1 @@
+Artículo 8°—Sobre el trámite de aprobación ante el concejo municipal. Una vez verificado el cumplimiento de todos los requisitos, la Alcaldía vía moción trasladará el expediente, junto con el proyecto de convenio o de resolución administrativa, para que el Concejo Municipal autorice el préstamo por uso en precario del inmueble municipal.

@@ -1,0 +1,4 @@
+Artículo 16.—Sobre la comprobación de daños. La Municipalidad podrá verificar el estado del uso dado al bien inmueble objeto de préstamo. De comprobare la existencia de alguna condición que configure un daño o desatención del bien inmueble objeto de préstamo en uso en precario, se podrá exigir al permisionario la reparación inmediata de los daños.
+En caso de no darse la reparación inmediata, la municipalidad está facultada para suplir la omisión, realizando de forma directa las obras.
+Por los trabajos ejecutados, la municipalidad cobrará al permisionario el costo efectivo de la reparación, debiendo éste reembolsar el costo efectivo en el plazo máximo de ocho días hábiles; de lo contrario deberá cancelar por concepto de multa un cincuenta por ciento (50%) del valor de la obra, sin perjuicio del cobro de los intereses moratorios.
+En caso de no repararse o solucionarse el daño apercibido, se revocará unilateralmente el permiso de uso en precario.
