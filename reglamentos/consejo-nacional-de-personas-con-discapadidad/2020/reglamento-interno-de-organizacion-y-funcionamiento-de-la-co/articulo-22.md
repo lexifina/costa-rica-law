@@ -1,0 +1,1 @@
+Artículo 22.—Suspensión de la tramitación de un caso. La Contraloría, suspenderá una investigación cuando se encuentre debidamente acreditado que el mismo hecho es conocido por otra instancia administrativa o judicial competente para resolver.

@@ -1,0 +1,1 @@
+Artículo 13.—Obligación de elaborar y ejecutar el Presupuesto. La Contraloría es la responsable de la elaboración, modificación y ejecución del presupuesto asignado a ella, siguiendo los lineamientos establecidos para el presupuesto general del CONAPDIS, y deberá velar por su correcta utilización con la mayor responsabilidad, prudencia, racionalidad, ecuanimidad y mesura.

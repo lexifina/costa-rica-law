@@ -1,0 +1,1 @@
+Artículo 21.—Casos de atención Colectiva. Si en relación con un mismo tema o inconformidad, se presentan denuncias que por su cantidad sobrepasa las posibilidades reales para la debida atención y resolución individualizada, La Contraloría, tratará el tema en forma colectiva y de tal circunstancia y su resultado, se informará a las personas usuarias de forma individual.

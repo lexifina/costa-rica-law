@@ -1,0 +1,1 @@
+Artículo 8º—Medios de contacto y horario de La Contraloría de Servicios. A la Contraloría, se le puede contactar al teléfono 2562-3100, o 4060-3043, Ext 3043, correo electrónico contraloriaservicios@conapdis.go.cr; en horario de 8 a.m. a 4 p.m. de lunes a viernes.

@@ -1,0 +1,1 @@
+Articulo 25.—Continuidad del Servicio Público. En ningún caso las gestiones que plantean las personas usuarias o gestionantes pueden afectar la continuidad, calidad y atención del servicio del CONAPDIS.

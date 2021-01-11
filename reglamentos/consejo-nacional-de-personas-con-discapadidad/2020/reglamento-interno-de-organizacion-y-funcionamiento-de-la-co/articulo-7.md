@@ -1,0 +1,1 @@
+Artículo 7°—Infraestructura Física. La Contraloría, debe ubicarse en un área cercana a las oficinas que prestan atención directa a las personas y debe ser totalmente accesible para la atención de las personas usuarias. Asimismo, el espacio físico asignado debe contar con las condiciones adecuadas de ventilación, limpieza, comodidad e iluminación.

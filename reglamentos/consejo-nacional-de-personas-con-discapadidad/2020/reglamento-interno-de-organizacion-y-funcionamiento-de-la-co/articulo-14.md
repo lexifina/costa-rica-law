@@ -1,0 +1,1 @@
+Artículo 14.—Obligación de Presentar Plan de Trabajo. La Contraloría, deberá presentar a la Junta Directiva un Plan Anual de Trabajo, que sirva como base para evaluar el Informe Anual de labores. Una copia de dicho plan deberá presentarse a la secretaría técnica, a más tardar el 30 de noviembre de cada año.

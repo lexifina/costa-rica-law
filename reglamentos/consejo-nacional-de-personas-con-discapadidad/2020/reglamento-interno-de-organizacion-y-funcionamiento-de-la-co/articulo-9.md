@@ -1,0 +1,9 @@
+Artículo 9°—Objetivos de La Contraloría de Servicios. Objetivo General: Satisfacer oportuna y adecuadamente las legítimas demandas de las personas usuarias de los servicios que presta el CONAPDIS, y brindarles la información accesible que estos requieran con el fin primordial de facilitar el contacto con la institución y contribuir para que la prestación del servicio al público sea eficiente y eficaz. Además de promover el mejoramiento continúe y la innovación en la prestación de los servicios que brinda CONAPDIS.
+Objetivos específicos:
+a) Promover una cultura institucional dirigida a satisfacer los requerimientos de información y orientación de las personas usuarias, atender las gestiones (inconformidades, reclamos, consultas, denuncias, sugerencias o felicitaciones presentadas por las personas usuarias de los servicios que brinda CONAPDIS, ante La Contraloría.
+b) Coadyuvar para que la prestación de servicios institucionales se brinde de manera eficiente y eficaz. Promover una cultura institucional orientada a la satisfacción de las necesidades y expectativas de las personas usuarias.
+c) Garantizar que los procedimientos para la prestación de los servicios y la solución de las inconformidades de las personas usuarias sean accesibles y expeditos.
+d) Asegurar a las personas usuarias una respuesta oportuna y adecuada a sus solicitudes.
+e) Contribuir técnicamente a mejorar la calidad en la atención y agilizar los trámites institucionales para aumentar el grado de satisfacción de las personas usurarias de los servicios que presta la institución.
+f) Atender las gestiones (inconformidades, reclamos, consultas, denuncias, sugerencias o felicitaciones) presentadas por las personas usuarias de los servicios que brinda el CONAPDIS, ante La Contraloría.
+g) Impulsar acciones de mejora sobre los servicios que brinda CONAPDIS, con base en las recomendaciones y propuestas surgidas del proceso de investigación de La Contraloría.

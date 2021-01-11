@@ -1,0 +1,1 @@
+Articulo 24.—Asesoría y apoyo técnico. La persona titular de la Contraloría podrá requerir el apoyo de las Direcciones y las Unidades en las oficinas centrales y regionales del CONAPDIS, de todas las personas funcionarias, así como del personal externo que estime necesario para dar apoyo y soporte a su labor.
