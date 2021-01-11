@@ -1,0 +1,1 @@
+Artículo 11º—Fecha en que comienza a correr el plazo para la Administración Tributaria. El plazo respectivo para la Administración empezará a correr el primer día hábil siguiente a aquel en que se tiene por recibida la solicitud o gestión de que se trate, a través de la plataforma TRAVI conforme al artículo precedente.

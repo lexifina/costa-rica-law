@@ -1,0 +1,1 @@
+Artículo 18º—Contingencia ante suspensión de la plataforma TRAVI. En caso de que se presente cualquier situación que provoque una suspensión temporal de la plataforma TRAVI, atribuible a la Administración Tributaria, el usuario y/o contribuyente deberá presentar sus gestiones por medio de la cuenta de correo electrónico: infoyasistencia@hacienda.go.cr

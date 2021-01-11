@@ -1,0 +1,3 @@
+Artículo 3°. —Creación del Usuario para utilización de la Plataforma de Trámites Virtuales TRAVI. La persona física en su condición de obligado tributario, representante legal o tercero autorizado, debe crear el usuario para el ingreso al portal TRAVI, en el cual debe registrar una dirección de correo electrónico para recibir el acuse de recibo de sus solicitudes de trámites, requerimientos de información, así como el resultado de su gestión.
+Es importante indicar que solamente se debe registrar un correo electrónico por usuario.
+En caso de que exista una misma cuenta de correo electrónico asociado a varios usuarios, y requiera autogestionar la recuperación de contraseña, la cuenta en TRAVI será bloqueada.
