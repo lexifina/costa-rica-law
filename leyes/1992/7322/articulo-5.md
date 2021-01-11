@@ -1,13 +1,3 @@
-ARTICULO 5.- Cada año, a más tardar el 5 de diciembre, las
-personas a las que se refiere el artículo 1 de esta Ley, presentarán a
-la Municipalidad una declaración jurada de sus ingresos brutos. Con
-base en esa información, ésta calculará el impuesto por pagar, en firme
-y sin previo procedimiento. Para tales efectos, la Municipalidad debe
-tener los respectivos formularios a disposición de los contribuyentes,
-a más tardar un mes antes de la fecha señalada.
-En casos especiales en que las empresas tengan autorización de la
-Dirección General de la Tributación Directa, para presentar la
-declaración en una fecha posterior a la establecida por la ley, estas
-empresas pueden presentar la declaración a la Municipalidad dentro de
-los cinco días hábiles siguientes a la fecha autorizada por la
-Dirección General de la Tributación Directa.
+Artículo 5.-Las personas a las que se refiere el artículo 1 de esta Ley, cada año, a más tardar el 15 de enero para los inscritos en el régimen simplificado de la Dirección General de Tributación Directa y 15 de marzo para los inscritos en el régimen tradicional de la Dirección General de la Tributación Directa, presentaran a la Municipalidad una declaración jurada de sus ingresos brutos. Con base en esa información, esta calculará el impuesto por pagar en firme y sin previo procedimiento para tales efectos la Municipalidad debe tener los respectivos formularios a disposición de los contribuyentes, a más tardar un mes antes de la fecha señalada. Lo anterior conforme a las reformas presentadas por la Ley N° 9635 Ley de Fortalecimiento de las Finanzas Públicas.
+En casos especiales en que las empresas tengan autorización de la Dirección General de la Tributación Directa, para presentar la declaración en una fecha posterior a la establecida por la ley, estas empresas pueden presentar la declaración a la Municipalidad dentro de los cinco días hábiles siguientes a la fecha autorizada por la Dirección General de la Tributación Directa.
+(Así reformado en sesión N° 50 del 14 de diciembre del 2020)
