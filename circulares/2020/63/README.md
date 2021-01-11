@@ -24,3 +24,4 @@ Acuerdo de Corte Plena. Sesión N° 18-2020 del 2 de abril de 2020, en atención
 | 10 | 2020-09-07 | Circular 189 (2020-09-07) |
 | 11 | 2020-09-30 | Circular 214 (2020-09-30) |
 | 12 | 2020-11-24 | Circular 265 (2020-11-24) |
+| 13 | 2021-01-11 | Circular 6 (2021-01-11) |
