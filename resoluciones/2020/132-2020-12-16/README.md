@@ -14,3 +14,4 @@ Aplicación de la metodología para el ajuste de tarifas del servicio de electri
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-12-17 | la propia norma |
+| 2 | 2021-01-12 | Resolución 3 (2021-01-12) |
