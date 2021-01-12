@@ -1,4 +1,7 @@
-Artículo 13.—Para que los traspasos de tramos y locales merezcan la aprobación del Consejo municipal, deberán llenarse los siguientes requisitos:
-a) Presentar la solicitud en papel correspondientes con los datos del inquilino y el cesionario y una justificación válida del porqué de dicha cesión.
-b) Deberá acompañarse la solicitud del correspondiente testimonio de escritura de traspaso, en original y copia, o bien certificación notarial.
-c) La solicitud deberá ser firmada por los interesados ante el administrador del mercado en función o bien autenticada por un abogado. En tratándose de persona físicamente imposibilitada para firmar, o bien de personas que no sepan hacerlo, firmará a ruego otra persona, en presencia de dos testigo de libre escogencia de la primera y dicha firma será igualmente ante el administrador en función o autenticada por Abogado, en caso de que el documento no pueda firmarse en presencia del administrador(a) en función o autenticada por un abogado las firmas deberán acompañarse de una dación de fe de notario público a efectos de que se tenga por cierto la legitimación de dicha firma(s) en el respectivo documento.
+Artículo 13.—De la transmisibilidad por cesión: El derecho de arrendamiento podrá traspasarse bajo la figura de cesión, siempre y cuando:
+a. El cedente hubiese explotado el local de interés por un periodo superior a un año.
+b. El acto de cesión se otorgue mediante escritura pública.
+c. El cedente se encuentre al día con sus obligaciones municipales y cargas sociales.
+d. El cesionario reúna las mismas condiciones y se subrogue en las obligaciones del que cede.
+e. Reúna los mismos requisitos del arrendatario.
+(Así reformado mediante sesión ordinaria N° 037 del 12 de enero del 2021)

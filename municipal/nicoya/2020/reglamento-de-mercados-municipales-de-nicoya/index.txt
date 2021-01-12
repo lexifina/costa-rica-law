@@ -10,6 +10,7 @@ articulo-9.md
 articulo-10.md
 articulo-11.md
 articulo-12.md
+articulo-12-bis.md
 articulo-13.md
 articulo-14.md
 articulo-15.md
@@ -48,6 +49,7 @@ articulo-47.md
 articulo-48.md
 articulo-49.md
 articulo-50.md
+articulo-50-bis.md
 articulo-51.md
 articulo-52.md
 articulo-53.md
@@ -57,3 +59,5 @@ articulo-56.md
 articulo-57.md
 articulo-58.md
 articulo-59.md
+articulo-1-transitorio.md
+articulo-2-transitorio.md

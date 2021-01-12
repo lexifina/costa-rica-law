@@ -1,1 +1,3 @@
 Artículo 57.—Los arrendatarios o inquilinos del Mercado están sometidos a las disposiciones de este Reglamento y no podrán alegar ignorancia de sus disposiciones.
+El presente Reglamento podrá ser objeto de modificación mediante acuerdo del Concejo Municipal de la Municipalidad de Nicoya, previa audiencia a la Comisión de Asuntos del Mercado. Las cláusulas y estipulaciones del presente Reglamento introducidas por modificación, obligarán en los mismos ámbitos, extensión y alcance que el Reglamento inicial y beneficiarán retroactivamente a los concesionarios en lo que les sea aplicable y los obligará a partir de la fecha de su aprobación.
+(Así adicionado el párrafo anterior mediante sesión ordinaria N° 037 del 12 de enero del 2021)
