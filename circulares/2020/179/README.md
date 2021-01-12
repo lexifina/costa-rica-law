@@ -13,3 +13,4 @@ Legitimación de personas menores de edad víctimas para intervenir en asuntos j
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-08-24 | la propia norma |
+| 2 | 2021-01-12 | Circular 8 (2021-01-12) |
