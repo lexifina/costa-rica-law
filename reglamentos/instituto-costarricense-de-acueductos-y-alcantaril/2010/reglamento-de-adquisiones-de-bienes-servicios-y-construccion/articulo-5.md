@@ -1,1 +1,2 @@
-Artículo 5º—Las adquisiciones por medio del fondo de caja chica procederán hasta por el monto inferior al establecido para la retención de la renta, dispuesto por el Ministerio de Hacienda, el primer día hábil de año, redondeado al mil inmediato anterior terminado en cero o cinco.
+Artículo 5º—Las adquisiciones por medio del fondo de caja chica procederán hasta por un monto de cuatrocientos cincuenta mil colones.
+(Así reformado mediante sesión ordinaria N° 2021- 02 del 12 de enero del 2021)
