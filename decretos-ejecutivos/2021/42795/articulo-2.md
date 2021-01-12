@@ -1,0 +1,1 @@
+Artículo 2º-. El procedimiento de implementación de esta medida deberá continuar realizándose conforme a las disposiciones de los artículos 1 y 2 del Decreto Ejecutivo número 42519-H del 7 de agosto de 2020, procedimiento que se mantiene vigente.
