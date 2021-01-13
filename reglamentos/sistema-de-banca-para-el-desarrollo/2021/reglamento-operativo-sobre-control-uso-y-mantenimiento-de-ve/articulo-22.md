@@ -1,0 +1,2 @@
+Artículo 22.
+En caso de accidente, al área encargada del control de vehículos realizará la investigación administrativa y recomendará lo correspondiente a la Unida de Capital Humano. En caso de determinarse dolo o responsabilidad del funcionario este deberá cubrir los gastos ocasionados, de acuerdo con el artículo 23 de este Reglamento. Lo dispuesto será aplicado sin perjuicio de las sanciones civiles y penales a que se haga acreedor el operador o funcionario autorizado.
