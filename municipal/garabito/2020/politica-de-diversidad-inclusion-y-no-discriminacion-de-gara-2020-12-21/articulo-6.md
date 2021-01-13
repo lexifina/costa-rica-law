@@ -1,0 +1,3 @@
+Artículo 6º—Definiciones. Para los efectos que se deriven de la aplicación de la presente Política, se entenderá por:
+1) Discriminación: Toda distinción, exclusión, restricción, limitación, o privilegio que, basada en una razón, factor o condición de discriminación, tenga por objetivo o resultado menoscabar o anular el reconocimiento, goce o ejercicio y el trato en condiciones de igualdad, de los derechos humanos y libertades fundamentales de cualquier persona.
+2) Razón, factor o condición de discriminación: Son los elementos o características que histórica, social y culturalmente se le han atribuido a una persona o grupo de personas a fin de justificar el menoscabo o anulación del reconocimiento, goce o ejercicio de sus derechos y libertades.
