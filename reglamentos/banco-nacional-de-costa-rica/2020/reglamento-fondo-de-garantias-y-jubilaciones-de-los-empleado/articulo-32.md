@@ -1,0 +1,2 @@
+Artículo N° 32. Sesiones del Órgano y Comités de Apoyo. El Órgano de Dirección, deberá reunirse en sesión ordinaria, por lo menos una vez al mes, en el lugar y día que sus miembros determinen. Y en sesión extraordinaria las veces que sea convocada por escrito por el presidente o por cuatro miembros del Órgano de Dirección.
+Las disposiciones para las sesiones del Órgano de Dirección y Comités de Apoyo se contemplarán en el Reglamento para el funcionamiento del Órgano de Dirección y Comités de apoyo del FGJ-BN.

@@ -1,0 +1,2 @@
+Transitorio I de conformidad con el artículo 6 inciso II “Aporte del Empleado” La tasa de cotización del 5% de todos los cotizantes, se incrementará en tractos anuales de 0,250 puntos porcentuales a partir de la entrada en vigencia de este reglamento, hasta alcanzar un 7%, siempre y cuando el ajuste salarial de los colaboradores del Banco Nacional del mes de enero de cada período sea igual o superior al 1%.
+[imagen]
