@@ -1,1 +1,1 @@
-Artículo 53°. Admisión de denuncias anónimas: Las denuncias anónimas serán atendidas en el tanto aporten elementos de convicción suficientes y se encuentren soportadas en medios probatorios idóneos que permitan iniciar la investigación, de lo contrario se archivará la denuncia.
+Artículo 53°. Admisión de denuncias anónimas: (Derogado por el artículo 2° de los Lineamientos para el análisis de presuntos hechos irregulares presentados en la auditoría interna de la Municipalidad de Buenos Aires, y publicados en La Gaceta N° 27 del 9 de febrero del 2021)

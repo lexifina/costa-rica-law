@@ -1,1 +1,1 @@
-Artículo 54°. Trámite de las denuncias: El auditor Interno deberá evaluar si le da trámite a una denuncia presentada directamente o trasladada por la Contraloría General de la República, para lo cual deberá considerar entre otros, la importancia o impacto del estudio y los recursos disponibles.
+Artículo 54°. Trámite de las denuncias: (Derogado por el artículo 2° de los Lineamientos para el análisis de presuntos hechos irregulares presentados en la auditoría interna de la Municipalidad de Buenos Aires, y publicados en La Gaceta N° 27 del 9 de febrero del 2021)
