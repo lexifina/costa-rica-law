@@ -1,0 +1,4 @@
+Artículo 34°.-Dentro de las responsabilidades y atribuciones que con ocasión a la implementación del teletrabajo en la Municipalidad de Buenos Aires, se atribuyen al Departamento de Recursos Humanos se encuentran:
+a) Apoyar, en el proceso de inclusión al programa y seguimiento de los teletrabajadores. Así mismo debe brindar los informes que la Comisión de Teletrabajo solicite en dicha materia.
+b) Resolverá en asocio con la Alcaldía Municipal, de acuerdo con la normativa vigente, las situaciones de orden laboral que presenten los teletrabajadores y las Jefaturas.
+c) Coordinará en asocio con la Comisión Municipal de Teletrabajo, los requerimientos de capacitación del programa de teletrabajo, hará la provisión presupuestaria correspondiente y realizará las convocatorias a participar de los eventos que se programen.

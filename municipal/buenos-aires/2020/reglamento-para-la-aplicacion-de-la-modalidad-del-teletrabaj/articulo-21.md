@@ -1,0 +1,1 @@
+Artículo 21°.Causas de reincorporación a la modalidad presencial. La personas teletrabajadoras que laboren para la Municipalidad de Buenos Aires, se reincorporarán a la modalidad presencial por las siguientes causas: a) Cambio en las condiciones de la persona teletrabajadora, b) Por conveniencia institucional, c) Por interés de la persona teletrabajadora.

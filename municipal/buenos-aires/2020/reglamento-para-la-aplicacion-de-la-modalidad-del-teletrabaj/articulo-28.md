@@ -1,0 +1,5 @@
+CAPÍTULO VI
+Recursos informáticos
+Artículo 28°.-Recursos informáticos. La Municipalidad de Buenos Aires proveerá y garantizará el mantenimiento de los equipos y los programas necesarios para que la persona teletrabajadora desarrolle adecuadamente sus labores. Deberán satisfacer las exigencias propias de las tareasasignadas y ajustarse a los lineamientos establecidos por el Departamento de Informática Municipal.
+La disposición anterior podrá ser variada en aquellos casos en que el empleado, por voluntad propia, solicite la posibilidad de realizar teletrabajo con su equipo personal y la persona empleadora acepte, lo cual debe quedar claro en el contrato o adendum de teletrabajo y exime de responsabilidad a la persona empleadora sobre el uso del equipo propiedad de la persona teletrabajadora.
+Al cese del contrato o ademdum de teletrabajo, el citado Departamento en el segundo supuesto, eliminará cualquier restricción o autorización establecida en el equipo de cómputo o líneas de comunicación, cuyo uso fuere necesario para el teletrabajo; mientras que, en el segundo caso, el funcionario o funcionaria deberá restituir el equipo institucional.

@@ -1,0 +1,1 @@
+Artículo 9º-Visto bueno de la jefatura. El servidor o servidora municipal que desee laborar conforme a esta nueva modalidad de trabajo debe contar con el visto bueno de su superiora o superior jerárquico.

@@ -1,0 +1,1 @@
+Artículo 8°-De los servidores municipales que pueden aplicar en la modalidad. Podrán aplicar para la modalidad de teletrabajo en la Municipalidad de Buenos Aires: a) Las personas cubiertas por la carrera administrativa municipal. b) Personas con nombramientos interinos. c) Personas con nombramientos por servicios especiales (proyectos).

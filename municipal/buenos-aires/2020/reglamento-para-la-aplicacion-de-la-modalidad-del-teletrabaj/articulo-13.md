@@ -1,0 +1,1 @@
+Artículo 13°.-Traslado de domicilio de la persona teletrabajadora. De ocurrir un cambio en el domicilio de la persona teletrabajadora, esta ha de prever todas las acciones necesarias para no interrumpir la ejecución de sus actividades y deberá comunicarlo a su superiora o superior inmediato

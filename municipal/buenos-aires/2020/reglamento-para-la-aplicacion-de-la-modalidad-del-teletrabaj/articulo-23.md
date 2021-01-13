@@ -1,0 +1,1 @@
+Artículo 23°.-Deber de firmar el convenio por parte de la persona teletrabajadora. La persona teletrabajadora deberá firmar un convenio donde se especificarán las condiciones de esta modalidad laboral, y deberá cumplir con el artículo 5 del Reglamento a la Ley N°9738.
