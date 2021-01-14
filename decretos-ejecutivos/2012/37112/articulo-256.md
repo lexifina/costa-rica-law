@@ -1,9 +1,10 @@
-Artículo 256.- Cuando se pretenda obtener la residencia permanente o temporal al amparo de los artículos 78 y 79 de la Ley, se deberán aportar los siguientes requisitos:
-a) Solicitud dirigida al Director/a General, suscrita por la persona extranjera o por su pariente que resida en Costa Rica, en la que se fundamente la pretensión y se justifiquen las razones de su solicitud. Adicionalmente deberá indicarse los datos de la persona solicitante, incluyendo: nombre completo, nacionalidad, ocupación, dirección exacta en Costa Rica y teléfono, fecha y firma y medio para recibir notificaciones.
-b) Certificación que acredite fehacientemente el vínculo con la persona costarricense que se pretende hacer valer.
-c) Original y copia de su documento de identidad.
-d) Certificación de nacimiento donde conste el nombre de los padres.
-e) Certificación de antecedentes penales emitida por su país de origen o del lugar donde haya residido legalmente los últimos tres años, debidamente legalizada y autenticada o apostillada. En caso de no poder presentar la Certificación de antecedentes penales, deberá rendir declaración jurada de antecedentes penales ante el funcionario de la Dirección General que está recibiendo el trámite.
-f) Comprobante de pago a favor del Gobierno por treinta dólares (US$30,00) o su equivalente en colones al tipo de cambio de referencia del Banco Central, correspondiente a la solicitud de documento de permanencia según lo dispuesto en el artículo 252 de la Ley.
-g) Comprobante de pago a favor del Gobierno por treinta dólares (US$30,00) o su equivalente en colones al tipo de cambio de referencia del Banco Central, correspondiente a la solicitud de documento de permanencia según lo dispuesto en el artículo 253 de la Ley.
-h) Comprobante de pago a favor del Gobierno por veinticinco dólares (US$25,00) o su equivalente en colones al tipo de cambio de referencia del Banco Central. Este pago debe realizarse a nombre de la persona extranjera solicitante, según lo dispuesto en el artículo 33 inciso 4) de la Ley.
+Artículo 256.- Para proceder con la documentación la persona interesada deberá presentar los siguientes documentos:
+a) Requisitos Generales:
+1. Comprobante de pago a favor del Gobierno por treinta dólares (US$30,00) o su equivalente en colones al tipo de cambio de referencia del Banco Central, por la emisión del documento que acredite la permanencia legal, según se establece en el artículo 252 de la Ley General de Migración y Extranjería.
+2. Comprobante de pago a favor del Gobierno por treinta dólares (US$30,00) o su equivalente en colones al tipo de cambio de referencia del Banco Central, por la emisión del documento que acredite la permanencia legal, según se establece en el artículo 253 de la Ley General de Migración y Extranjería.
+3. Encontrarse adscrito a los sistemas de aseguramiento de la CCSS, la verificación a esa adscripción y/o afiliación será realizada por parte de la Gestión de Extranjería para lo cual la persona funcionaria de la Dirección General de Migración y Extranjería deberá constatar la información accediendo a la dirección electrónica correspondiente, siempre que dicha institución mantenga a disposición de la ciudadanía ese medio tecnológico de consulta, esto sin perjuicio de que ante caso de duda la Administración pueda solicitar el documento probatorio sobre ese hecho.
+En caso de que esa institución realice cambios en los accesos de consulta a la información, que imposibiliten a esta Dirección General realizar la consulta de manera directa, el usuario deberá presentar Comprobante vigente de adscripción a los seguros de la CCSS.
+b) Requisitos Específicos adicionales según categoría:
+1. Trabajadores Temporales:
+- Comprobante de pago del depósito de Garantía indicado en el acápite 3 del inciso b) del artículo 253 del presente reglamento.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 42814 del 14 de enero del 2021)

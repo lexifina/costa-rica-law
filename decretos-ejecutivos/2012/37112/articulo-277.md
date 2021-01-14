@@ -1,6 +1,4 @@
-SECCIÓN SEGUNDA
-DEL RESIDENTE TEMPORAL
-Artículo 277.- El residente temporal indígena nacional de Panamá o Nicaragua, renovará su documento de acreditación de permanencia cada año y deberán cumplir con las siguientes condiciones:
-a) Presentar documento de permanencia que acredite su actual condición.
-b) Comprobante de pago a favor del Gobierno por treinta dólares (US$30,00) o su equivalente en colones al tipo de cambio de referencia del Banco Central, por la emisión del documento que acredite la permanencia legal, según se establece en el artículo 253 de la Ley.
-c) Comprobante vigente de adscripción a los seguros de la CCSS, demostrando su adscripción ininterrumpida desde el momento de la aprobación de la permanencia legal en el país.
+Sección V
+Derechos y Deberes de las Personas Indígenas Transfronterizas
+Artículo 277.- Toda persona indígena transfronteriza que pretenda ingresar, egresar o permanecer en Costa Rica bajo alguna condición migratoria de las contempladas en la Ley General de Migración y Extranjería, deberá realizar el ingreso y egreso por un puesto migratorio habilitado para el tránsito internacional de personas, para ello deberá presentar ante el puesto migratorio la credencial que le acredita su condición migratoria.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 42814 del 14 de enero del 2021)

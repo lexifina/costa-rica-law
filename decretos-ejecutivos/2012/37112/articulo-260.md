@@ -1,3 +1,4 @@
-CAPÍTULO TERCERO
-PERMANENCIA DE PERSONAS INDÍGENAS EN CALIDAD DE TRABAJADOR TRANSFRONTERIZO
-Artículo 260.- Serán trabajadores indígenas transfronterizos las personas nacionales de Nicaragua o Panamá, vecinas de las zonas aledañas a las fronteras con Costa Rica, reconocidas así por la Dirección General, que sean autorizadas por ésta para ingresar y egresar del territorio nacional diariamente, con el fin de realizar actividades asalariadas, autorizadas por la Dirección General, con base en los estudios técnicos del Ministerio de Trabajo y Seguridad Social. Además de otras obligaciones establecidas por Ley y el ordenamiento jurídico costarricense. El permiso transfronterizo se emitirá para que la persona autorizada, pueda desplazarse dentro de los lugares establecidos en el artículo 143 el presente Reglamento.
+Sección V
+Derechos y Deberes de las Personas Indígenas
+Artículo 260.- Toda persona extranjera indígena que pretenda permanecer en Costa Rica bajo alguna condición migratoria de las contempladas en la Ley General de Migración y Extranjería, deberá realizar el ingreso y egreso por un puesto migratorio habilitado para el tránsito internacional de personas.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 42814 del 14 de enero del 2021)

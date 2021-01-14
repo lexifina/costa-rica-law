@@ -1,1 +1,2 @@
-Artículo 261.- A cada trabajadora o trabajador transfronterizo autorizado para laborar en Costa Rica, la Dirección General le otorgará un documento que acredite su condición migratoria, el cual le permitirá realizar cualquier gestión ante entidades públicas y privadas de Costa Rica.
+Artículo 261.- De conformidad con lo establecido en el artículo 33, último párrafo de la Ley General de Migración y Extranjería, la población indígena que ostente esta condición migratoria, queda exenta de los pagos estipulados en los incisos, 4) y 5) del citado artículo. Del mismo modo dicha población queda exenta del pago dispuesto en el artículo 251 del mismo cuerpo normativo.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 42814 del 14 de enero del 2021)

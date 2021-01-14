@@ -1,3 +1,2 @@
-SECCIÓN CUARTA
-DE LAS PERSONAS TRABAJADORAS TEMPORALES
-Artículo 279.- El otorgamiento de la renovación del documento para una persona trabajadora temporal indígena implicará el beneficio de permanecer en el país por el plazo que la Dirección General indique y el desarrollo de las actividades particulares para las cuales se prorrogó. La persona extranjera a quien se le renueve esta condición migratoria no podrá realizar otro tipo de actividades ajenas a las expresamente autorizadas.
+Artículo 279.- Las personas indígenas transfronterizas a las que se les otorgue la categoría de residente permanente o residente temporal, podrán participar en toda actividad remunerada o lucrativa, por cuenta propia o en relación de dependencia, salvo las limitaciones que señale la legislación nacional.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 42814 del 14 de enero del 2021)

@@ -1,1 +1,7 @@
-Artículo 264.- Toda persona que ostente la condición migratoria como trabajador o trabajadora transfronterizo, deberá realizar su ingreso y egreso del país por un puesto migratorio habilitado para el tránsito internacional de personas, para ello deberá presentar ante el puesto migratorio la credencial que le acredita su condición migratoria.
+CAPÍTULO SEGUNDO
+DE LAS PERSONAS INDÍGENAS TRANSFRONTERIZAS
+BENEFICIADAS POR LA LEY Nº 9710
+Sección I
+Disposiciones Generales
+Artículo 264.- La Dirección General brindará tratamiento especial a las poblaciones indígenas transfronterizas de conformidad con lo establecido en los numerales 12 y 13 de la Ley de Protección del Derecho a la Nacionalidad Costarricense de la Persona Indígena Transfronteriza y Garantía de Integración de la Persona Indígena Transfronteriza.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 42814 del 14 de enero del 2021)

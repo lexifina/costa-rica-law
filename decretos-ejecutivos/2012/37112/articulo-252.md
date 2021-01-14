@@ -1,1 +1,9 @@
-Artículo 252.- Toda persona que pretenda permanecer en Costa Rica bajo alguna condición migratoria de las contempladas en la Ley deberá realizar el ingreso y egreso por un puesto migratorio habilitado para el tránsito internacional de personas.
+Sección II
+Categorías Migratorias
+Artículo 252.-La persona extranjera indígena, así acreditada, podrá optar por cualquiera de las categorías migratorias contempladas en la Ley y el presente Reglamento, no obstante, se regulará en forma especial el procedimiento para regularizarse, en las siguientes categorías:
+a) Residente permanente: Podrá optar por esta categoría migratoria, la persona extranjera indígena con parentesco de primer grado por consanguinidad con ciudadano costarricense, se entenderán como tales a los padres, hijos menores o mayores de edad con discapacidad y los hermanos menores o mayores de edad con discapacidad.
+b) Residente Temporal: Podrá optar por esta categoría la persona extranjera indígena que sea cónyuge de ciudadano costarricense de conformidad con lo dispuesto en el artículo 73 de la Ley.
+c) Trabajador temporal: Podrán optar por esta categoría las personas indígenas que pretendan realizar actividades asalariadas autorizadas por la Dirección General con base en los estudios técnicos del Ministerio de Trabajo y Seguridad Social. Las personas indígenas mayores de 15 años que pretendan laborar, lo podrán hacer bajo esta categoría, siempre que las actividades a realizar no contradigan la normativa laboral vigente y leyes conexas.
+Podrán optar por esta categoría en calidad de persona dependiente, los hijos menores de edad de las personas que ya hayan obtenido esa categoría migratoria, no pudiendo realizar actividades remuneradas ni lucrativas.
+d) Estudiante: podrá optar por esta condición migratoria las personas indígenas extranjeras que pretendan permanecer en el país para realizar estudios en centros de enseñanza costarricenses debidamente reconocidos por el MEP o el CONESUP.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 42814 del 14 de enero del 2021)

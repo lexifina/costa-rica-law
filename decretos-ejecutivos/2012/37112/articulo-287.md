@@ -1,1 +1,2 @@
-Artículo 287.- Si la persona extranjera goza de permanencia bajo la Subcategoría Migratoria de Turismo, deberá presentar su solicitud de cambio de categoría migratoria antes de que se le venza el plazo otorgado para su permanencia regular en el país.
+Artículo 287.- El procedimiento para efectuar la cancelación de la acreditación se hará conforme al debido proceso que se establece en el Título XI Capítulo III de la Ley General de Migración y Extranjería.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 42814 del 14 de enero del 2021)

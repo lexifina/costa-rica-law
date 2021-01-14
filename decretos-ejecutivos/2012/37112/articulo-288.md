@@ -1,1 +1,2 @@
-Artículo 288.- La persona extranjera que goce de la condición migratoria de Refugio para solicitar el cambio de subcategoría migratoria deberá aportar los requisitos contemplados en el capítulo Duodécimo del Reglamento de Personas Refugiadas, así como cumplir con lo dispuesto en el artículo 19 del Reglamento de Fondo de Garantía.
+Artículo 288.- La asociación a las que se le haya cancelado la acreditación al registro que lleva la Dirección General, no podrán registrarse hasta transcurrido el plazo de dos años. No podrán emitir esas certificaciones aquellas asociaciones a las que se les cancele el registro.”
+(Así reformado por el artículo 1° del decreto ejecutivo N° 42814 del 14 de enero del 2021)

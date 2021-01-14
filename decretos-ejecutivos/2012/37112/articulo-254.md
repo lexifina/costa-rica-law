@@ -1,3 +1,2 @@
-CAPÍTULO SEGUNDO
-RESIDENCIA PERMANENTE O TEMPORAL
-Artículo 254.- Podrá optar por la categoría migratoria de residente permanente, la persona extranjera indígena con parentesco de primer grado por consanguinidad con ciudadano costarricense, se entenderán como tales a los padres, hijos menores o mayores con discapacidad y los hermanos menores o mayores con discapacidad.
+Artículo 254.- De cumplir con todos los requisitos, se emitirá a través de las oficinas de la Dirección habilitadas para esos efectos, la autorización de la condición migratoria y deberá la persona extranjera aportar los requisitos respectivos para proceder con el proceso de documentación según la categoría migratoria otorgada, lo cual se realizará conforme el plazo indicado en el numeral 200 de la Ley General de Migración y Extranjería número 8764.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 42814 del 14 de enero del 2021)

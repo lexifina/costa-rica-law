@@ -1,1 +1,2 @@
-Artículo 268.- La Dirección General otorgará el documento que le acredita su condición migratoria como trabajador o trabajadora temporal por un plazo de seis meses de conformidad con la actividad que vienen a realizar, prorrogable por períodos iguales.
+Artículo 268.- De conformidad con lo establecido en el artículo 14, de la Ley 9710, la población indígena transfronteriza, queda exenta de todo pago de timbres, derechos, impuestos, cobros, multas tasas y/o especies fiscales que deba cancelar a efectos de regularizar su estatus migratorio, así como de cualquier multa generada de manera retroactiva por procedimientos de regularización migratoria anteriores.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 42814 del 14 de enero del 2021)

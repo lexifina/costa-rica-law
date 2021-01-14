@@ -1,5 +1,3 @@
-SECCIÓN QUINTA
-DE LOS ESTUDIANTES INDÍGENAS
-Artículo 281.- El estudiante renovará su documento de acreditación anualmente y deberá cumplir los siguientes requisitos:
-a. Comprobante de matrícula de la institución educativa donde realiza los estudios.
-b. Comprobante de pago a favor del Gobierno por treinta dólares (US$30,00) o su equivalente en colones al tipo de cambio de referencia del Banco Central, por la emisión del documento que acredite la permanencia legal, según se establece en el artículo 253 de la Ley.
+Artículo 281.- Las personas extranjeras indígenas transfronterizas contarán con los mismos derechos y obligaciones que el resto de las personas extranjeras, con las excepciones contenidas expresamente en el presente capítulo respecto a las obligaciones pecuniarias.
+En ese sentido, a efectos de garantizar el adecuado acceso a los servicios migratorios por parte de las personas pertenecientes a los pueblos indígenas transfronterizos, la DGME procurará la traducción de los formularios que emita para la tramitación de gestiones migratorias a los idiomas propios de las etnias que comúnmente accedan a los servicios migratorios. Del mismo modo, de ser posible se contará con traducción simultánea para la atención de personas indígenas que requieran dicho servicio al acceder a los trámites migratorios.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 42814 del 14 de enero del 2021)

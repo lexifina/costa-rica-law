@@ -1,1 +1,2 @@
-Artículo 263.- La persona Trabajadora transfronteriza no deberá realizar depósito de garantía, según lo dispuesto en el artículo 7 de Reglamento del Fondo de Depósitos de Garantía de la Ley General de Migración y Extranjería.
+Artículo 263.- Las personas extranjeras indígenas contarán con los mismos derechos y obligaciones que el resto de las personas extranjeras, con las excepciones contenidas expresamente en el presente capítulo respecto a las obligaciones pecuniarias.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 42814 del 14 de enero del 2021)

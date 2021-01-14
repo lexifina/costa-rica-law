@@ -1,5 +1,2 @@
-Artículo 251.- La persona extranjera indígena, así acreditada, podrá optar por cualquiera de las categorías migratorias contempladas en la Ley y el presente Reglamento, no obstante se regulará en forma especial el procedimiento para regularizarse, en las siguientes categorías:
-Residente permanente
-Trabajador transfronterizo
-Trabajador temporal
-Estudiante
+Artículo 251.-Las solicitudes de regularización migratorias amparadas en el presente capítulo, podrán ser presentadas en la Plataforma de Servicios de la Gestión de Extranjería o en cualquier oficina regional que la Dirección General autorice para tal efecto.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 42814 del 14 de enero del 2021)

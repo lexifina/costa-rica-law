@@ -1,1 +1,2 @@
-Artículo 267.- La persona extranjera o el patrono deberán realizar un depósito de garantía por el monto de $30 por cada trabajador o trabajadora que se encuentre laborando para él, según lo establecido en el artículo 12 del Reglamento de Depósitos. Los depósitos deberán realizarse a nombre de la persona extranjera.
+Artículo 267.- Las solicitudes de regularización migratorias amparadas en el presente capítulo, podrán ser presentadas en las oficinas regionales de esta Dirección General ubicadas en las zonas fronterizas habilitadas para ello.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 42814 del 14 de enero del 2021)
