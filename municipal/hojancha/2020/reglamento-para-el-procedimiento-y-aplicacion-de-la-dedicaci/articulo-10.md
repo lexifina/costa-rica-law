@@ -1,0 +1,1 @@
+Artículo 10.—El departamento de Recursos Humanos verificará la comprobación de los requisitos que señala el artículo 6, confeccionará el respectivo contrato de Dedicación Exclusiva y lo remitirá al Alcalde Municipal para que proceda a firmarlo en conjunto con el funcionario solicitante, manifestando que cumple con todos los requisitos establecidos para tal efecto.

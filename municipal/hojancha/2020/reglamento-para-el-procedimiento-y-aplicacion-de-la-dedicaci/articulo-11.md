@@ -1,0 +1,2 @@
+Artículo 11.—El contrato mencionado en el artículo anterior deberá estar confeccionado en tres tantos, un original que se conservará en el expediente de la persona trabajadora y que se lleva en el departamento de Recursos Humanos de la Municipalidad, una copia para la Alcaldía Municipal y una para la persona trabajadora.
+Dicho contrato tendrá una vigencia de un año y no podrá ser prorrogado automáticamente.

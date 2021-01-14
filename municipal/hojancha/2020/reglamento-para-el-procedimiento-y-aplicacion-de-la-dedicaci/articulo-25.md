@@ -1,0 +1,1 @@
+Artículo 25.—Acogerse al Régimen de Dedicación Exclusiva es una posibilidad que tendrá la persona trabajadora de esta Municipalidad, excepto aquellos funcionarios que les aplique cualquier régimen de prohibición.

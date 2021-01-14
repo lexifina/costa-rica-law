@@ -1,0 +1,1 @@
+Artículo 16.—En caso de que la persona trabajadora disfrute de un permiso sin goce de salario los efectos del contrato se suspenderán en forma temporal, no obstante, a su regreso el servidor podrá seguir acogido a la Dedicación Exclusiva, si persiste la necesidad institucional de la misma.

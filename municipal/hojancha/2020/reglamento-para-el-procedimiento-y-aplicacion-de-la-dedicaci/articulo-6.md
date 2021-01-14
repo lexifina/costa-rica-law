@@ -1,0 +1,8 @@
+Artículo 6º—Para acogerse al Régimen de Dedicación Exclusiva, los servidores deben, cumplir con los siguientes requisitos:
+a) Ser profesional, con el grado académico de Bachiller universitario como mínimo. En casos de títulos obtenidos en universidades extranjeras la persona trabajadora debe aportar certificación donde conste su reconocimiento y equiparación por parte de una universidad costarricense o institución educativa autorizada para ello.
+b) Estar nombrado o propuesto para desempeñar un puesto dentro de la corporación municipal y que ostente como mínimo el grado académico que se indica en el inciso anterior, siempre que el funcionario demuestre que cuenta con dicho requisito.
+c) Haber sido nombrado o nombrada para laborar jornada completa.
+Este régimen puede ser accedido tanto por funcionarios interinos, suplentes o propietarios, siempre y cuando cumplan con los requisitos que para el efecto se exigen.
+d) Poseer la incorporación al respectivo colegio profesional, cuando exista esta entidad en el área correspondiente, tanto para bachilleres como para licenciados. Quedan exentos de la obligación aquellos funcionarios con profesiones para las que no exista el colegio profesional respectivo o ante la ausencia de obligatoriedad de pertenecer a un colegio profesional.
+e) La solicitud se admitirá para su estudio, siempre que el puesto desempeñado por el funcionario o para el cual está propuesto a desempeñar, imponga como requisito, el grado académico respectivo y las funciones desempeñadas tengan estrecha relación con la profesión.
+f) Firmar el contrato de Dedicación Exclusiva, prórroga o adendum respectivo con el Alcalde Municipal en su calidad de representante legal de la Municipalidad.

@@ -1,0 +1,1 @@
+Artículo 4º—La administración (Alcaldía), podrá otorgar en la forma señalada en el artículo anterior, la compensación económica que en adelante se indicará, a favor de aquellas personas trabajadoras cuya naturaleza del puesto que desempeñen corresponda al estrato profesional, gerencial y siempre que a juicio de la administración (Alcaldía) así lo amerite.
