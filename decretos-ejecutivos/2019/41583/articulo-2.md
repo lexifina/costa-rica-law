@@ -1,1 +1,0 @@
-Artículo 2°.-La Unidad de Inteligencia Financiera del Instituto Costarricense sobre Drogas, continuará siendo la Secretaría Técnica, del proceso de actualización de la Evaluación Nacional de Riesgos de conformidad con el rol de coordinación nacional que ejercen dichas Unidades de Inteligencia en su función natural ante el Grupo de Acción Financiera de Latinoamérica: "GAFILA T".
