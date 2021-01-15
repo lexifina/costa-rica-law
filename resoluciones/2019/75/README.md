@@ -16,3 +16,4 @@ Deber de inscripción de las personas jurídicas inactivas domiciliadas en el pa
 | 1 | 2019-12-20 | la propia norma |
 | 2 | 2020-11-05 | Resolución 38 (2020-11-05) |
 | 3 | 2021-01-12 | Resolución 2 (2021-01-12) |
+| 4 | 2021-01-15 | Resolución 3 (2021-01-15) |
