@@ -1,0 +1,1 @@
+Transitorio primero: La revisión de liquidaciones de gastos correspondientes al primer semestre del período 2019 se realizará conforme a lo estipulado contenido en el Manual de Criterios para la Distribución de Recursos publicado en La Gaceta No. 83 del 30 de abril del 2010.
