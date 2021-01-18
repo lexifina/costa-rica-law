@@ -1,0 +1,1 @@
+Artículo 4º—Principios rectores y enfoques. La PONADRAF 2020-2030 parte de cinco principios rectores: Derechos Humanos, Objetivos de Desarrollo Sostenible (OSD), Gestión para Resultados en el Desarrollo (GpDR), Ética y valores, e Innovación Social. Y cinco enfoques fundamentales: Género, Inclusión, Intergeneracional, Intercultural y territorial.

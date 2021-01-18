@@ -1,0 +1,1 @@
+Artículo 8º—Conformación del Rol Político Estratégico. Se conforma el Rol Político Estratégico, cuya función principal es dar el apoyo, el seguimiento y la incidencia política que se requiera para el avance de los resultados de la PONADRAF 2020-2030 y sus planes de acción. Su rectoría recae en el Consejo Nacional del Deporte y la Recreación.
