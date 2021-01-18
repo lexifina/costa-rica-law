@@ -1,1 +1,0 @@
-Artículo 18.—De la desestimación de la denuncia. Cuando la Auditoría Interna desestime una denuncia, deberá motivar y dejar evidencia en el expediente correspondiente de los motivos por los cuales se desestimó dicha denuncia.

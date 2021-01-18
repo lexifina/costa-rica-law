@@ -1,1 +1,0 @@
-Artículo 7º—Recibo de la denuncia. La Auditoría Interna recibirá las denuncias en las instalaciones administrativas del Programa Integral de Mercadeo Agropecuario (PIMA), las cuales deberán venir dirigidas directamente hacia la Auditoría Interna. Se admitirán las que se refieran a eventuales faltas o irregularidades en el uso y manejo de fondos públicos.

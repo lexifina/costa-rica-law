@@ -1,3 +1,0 @@
-CAPÍTULO II
-Tramitación de la denuncia
-Artículo 12.—La Auditoría Interna podrá solicitar aclaración sobre lo denunciado. La Auditoría Interna, de acuerdo con sus facultades y una vez analizada la denuncia, si determinara que existen imprecisiones de los hechos denunciados, le otorgará al denunciante un plazo de 10 días hábiles para que éste aclare y complete la información que suministró. De no ser atendida la solicitud de la Auditoria Interna, quedará a criterio de ésta el archivo o desestimación de la denuncia; no obstante, podrá ser presentada con mayores elementos como una nueva gestión.

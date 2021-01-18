@@ -1,1 +1,0 @@
-Artículo 22.—De los procedimientos de Auditoría. La Auditoría Interna utilizará los procedimientos establecidos en la normativa técnica aplicables o aquellos que sean necesarios, cumpliendo con el ordenamiento jurídico.
