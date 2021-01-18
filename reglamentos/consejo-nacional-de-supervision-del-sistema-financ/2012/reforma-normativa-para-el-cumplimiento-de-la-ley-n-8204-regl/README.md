@@ -14,3 +14,4 @@ Reforma Normativa para el cumplimiento de la ley N° 8204, Reglamento sobre la a
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-10-29 | la propia norma |
+| 2 | 2021-01-18 | Reglamento 1637 (2021-01-18) |
