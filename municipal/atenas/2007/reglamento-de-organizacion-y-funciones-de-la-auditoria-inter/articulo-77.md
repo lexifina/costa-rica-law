@@ -1,1 +1,1 @@
-Artículo 77.—Vigencia. Este reglamento rige a partir de su publicación en el Diario Oficial La Gaceta.
+Artículo 77.-Traslado de las denuncias a la Administración activa. Hecha la investigación preliminar, las denuncias que, a criterio del auditor interno no sean competencia de la Auditoría Interna por su contenido, serán trasladadas formalmente a la Administración para su atención.

@@ -15,3 +15,4 @@ Reglamento de organización y funciones de la Auditoría Interna de la Municipal
 | --- | --- | --- |
 | 1 | 2008-08-25 | la propia norma |
 | 2 | 2012-05-07 | Reglamento municipal 165 (2012-05-07) |
+| 3 | 2021-01-18 | Reglamento municipal 60 (2021-01-18) |

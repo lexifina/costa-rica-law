@@ -1,1 +1,1 @@
-Artículo 59.—Errores y omisiones. Si una comunicación contuviera un error u omisión significativa, el Auditor(a) deberá comunicar la información corregida a todas las partes que recibieron la comunicación original.
+Artículo 59.-Errores y omisiones. Si una comunicación contuviera un error u omisión significativa, el Auditor(a) deberá comunicar la información corregida a todas las partes que recibieron la comunicación original.

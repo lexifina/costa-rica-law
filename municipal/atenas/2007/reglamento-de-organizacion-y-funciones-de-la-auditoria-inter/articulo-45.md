@@ -1,4 +1,4 @@
-Artículo 45.—Otros aspectos relativos al funcionamiento de la Auditoría Interna. Para el efectivo funcionamiento de la Auditoría Interna, entre otros, el Auditor Interno deberá velar por el cumplimiento de al menos lo siguiente:
+Artículo 45.-Otros aspectos relativos al funcionamiento de la Auditoría Interna. Para el efectivo funcionamiento de la Auditoría Interna, entre otros, el Auditor Interno deberá velar por el cumplimiento de al menos lo siguiente:
 A) Que se realicen los servicios de auditoría y preventivos que considere necesario y prudente efectuar, de acuerdo con las normas técnicas que rigen su actuar.
 B) Emitir a su personal los lineamientos que considere necesarios en cuanto al procesamiento de la información, en aspectos como:
 i. Cualidades de la información.

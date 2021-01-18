@@ -1,1 +1,1 @@
-Artículo 6º—Rol de la Auditoría Interna en el control interno. La Auditoría Interna como parte del sistema de control interno, de la municipalidad de Atenas, tendrá como función principal la comprobación del cumplimiento, la suficiencia y validez de dicho sistema.
+Artículo 6º-Rol de la Auditoría Interna en el control interno. La Auditoría Interna como parte del sistema de control interno, de la municipalidad de Atenas, tendrá como función principal la comprobación del cumplimiento, la suficiencia y validez de dicho sistema.

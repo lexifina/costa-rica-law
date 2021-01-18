@@ -1,0 +1,1 @@
+Artículo 78.-Plazo para la atención de las denuncias. Una vez concluido el análisis preliminar, y determinándose que existe mérito suficiente para tramitar la denuncia, la Auditoría Interna la atenderá en un plazo razonable y acorde con los recursos disponibles.

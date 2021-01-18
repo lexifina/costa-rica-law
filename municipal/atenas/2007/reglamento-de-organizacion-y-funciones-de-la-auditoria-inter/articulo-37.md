@@ -1,1 +1,1 @@
-Artículo 37.—Apoyo a la Auditoría Interna. En aras del éxito en el desempeño en las diferentes auditorías se faculta incorporar profesionales o técnicos de diferentes disciplinas, funcionarios o no de la institución para que lleven a cabo labores de su especialidad.
+Artículo 37.-Apoyo a la Auditoría Interna. En aras del éxito en el desempeño en las diferentes auditorías se faculta incorporar profesionales o técnicos de diferentes disciplinas, funcionarios o no de la institución para que lleven a cabo labores de su especialidad.

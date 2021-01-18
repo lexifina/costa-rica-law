@@ -1,1 +1,6 @@
-Artículo 70.—Solicitud de aclaración. En caso de determinar la Auditoría Interna que existe imprecisión de los hechos denunciados, se otorgará al denunciante un plazo no menor de 10 días hábiles para que complete su información, en el caso de no proceder con la aclaración, o que esta sea insatisfactoria se podrá archivar o desestimar la gestión sin perjuicio de que sea presentada con mayores elementos posteriormente, como una nueva gestión.
+Artículo 70.-Contenido de las denuncias. Las denuncias que se presenten ante la Auditoría Interna deberán procurar cubrir al menos los siguientes aspectos:
+a) relación de hechos clara, precisa y circunstanciada;
+b) identificación de los posibles responsables, o que al menos se aporten elementos que permitan individualizarlos;
+c) indicación de las pruebas en las que se sustenta la denuncia,
+d) lugar o medio para recibir notificaciones, si así estima el denunciante señalar.
+Las denuncias podrán ser recibidas verbalmente, por correo electrónico o en forma física en las instalaciones de la municipalidad. En caso de contarse con el medio de sitio web, a través de éste, mediante formulario electrónico.

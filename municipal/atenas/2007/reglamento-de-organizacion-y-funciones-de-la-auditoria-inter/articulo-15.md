@@ -1,1 +1,1 @@
-Artículo 15.—Medidas formales de control. El Auditor Interno deberá establecer políticas y directrices que permitan prevenir y detectar situaciones, internas o externas que comprometan la independencia y la objetividad del personal a su cargo.
+Artículo 15.-Medidas formales de control. El Auditor Interno deberá establecer políticas y directrices que permitan prevenir y detectar situaciones, internas o externas que comprometan la independencia y la objetividad del personal a su cargo.

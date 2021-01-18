@@ -1,1 +1,1 @@
-Artículo 42.—Desarrollo profesional continuado. Los funcionarios de la auditoria interna deberán perfeccionar y actualizar sus conocimientos, aptitudes y otras competencias mediante la capacitación profesional continua.
+Artículo 42.-Desarrollo profesional continuado. Los funcionarios de la auditoría interna deberán perfeccionar y actualizar sus conocimientos, aptitudes y otras competencias mediante la capacitación profesional continua.

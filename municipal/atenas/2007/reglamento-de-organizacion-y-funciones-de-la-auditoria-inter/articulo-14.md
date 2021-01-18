@@ -1,1 +1,1 @@
-Artículo 14.—Responsabilidad anterior. Los funcionarios de la Auditoría Interna no deben ejecutar sus competencias de asesoría y advertencia con relación a operaciones de las cuales hayan sido previamente responsables.
+Artículo 14.-Responsabilidad anterior. Los funcionarios de la Auditoría Interna no deben ejecutar sus competencias de asesoría y advertencia con relación a operaciones de las cuales hayan sido previamente responsables.

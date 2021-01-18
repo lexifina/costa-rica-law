@@ -1,1 +1,1 @@
-Artículo 4º—Valores éticos: Los funcionarios de auditoría de la municipalidad de Atenas, se deben conducir en sus relaciones internas como externas de acuerdo a los enunciados y códigos éticos que le rigen.
+Artículo 4º-Valores éticos: Los funcionarios de auditoría de la Municipalidad de Atenas, se deben conducir en sus relaciones internas como externas de acuerdo a los enunciados y códigos éticos que le rigen.

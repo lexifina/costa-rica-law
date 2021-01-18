@@ -1,1 +1,1 @@
-Artículo 56.—Comunicación sobre los resultados de los servicios preventivos. El Auditor(a) definirá el contenido y la forma de los oficios u otros medios de comunicación sobre los resultados preventivos conforme su naturaleza y criterios pertinentes.
+Artículo 56.-Comunicación sobre los resultados de los servicios preventivos. El Auditor(a) definirá el contenido y la forma de los oficios u otros medios de comunicación sobre los resultados preventivos conforme su naturaleza y criterios pertinentes.

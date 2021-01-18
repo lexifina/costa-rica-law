@@ -1,4 +1,4 @@
-Artículo 39.—Deberes. El Auditor(a) y los demás funcionarios de la Auditoría Interna, tendrán los siguientes deberes:
+Artículo 39.-Deberes. El Auditor(a) y los demás funcionarios de la Auditoría Interna, tendrán los siguientes deberes:
 1. Cumplir con las competencias asignadas por Ley.
 2. Cumplir con el ordenamiento técnico y jurídico aplicable.
 3. Colaborar con los estudios que la Contraloría General de la República y otras instituciones realicen en el ejercicio de competencias de control y fiscalización legalmente atribuidas.

@@ -1,0 +1,3 @@
+CAPÍTULO VII
+Aspectos sobre disposiciones finales
+Artículo 86.-Responsabilidades y sanciones. El incumplimiento de lo dispuesto en el presente reglamento será causal de responsabilidad administrativa para el Auditor(a) interno y para los funcionarios de la auditoría interna, la administración activa, titulares subordinados y demás funcionarios de la municipalidad, de conformidad con lo establecido en el capítulo V de la Ley General de Control Interno. La determinación de responsabilidades y aplicación de las sanciones administrativas se hará siguiendo los lineamientos del código municipal y el reglamento autónomo de organización y servicios de la Municipalidad de Atenas.

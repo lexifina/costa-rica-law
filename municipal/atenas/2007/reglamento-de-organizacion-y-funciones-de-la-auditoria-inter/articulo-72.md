@@ -1,9 +1,1 @@
-Artículo 72.—Archivo y desestimación de la denuncia. La Auditoría Interna desestimará o archivará las denuncias cuando se presente alguna de las siguientes situaciones:
-1) Si la denuncia no corresponde al ámbito de competencia de la Auditoría Interna.
-2) Si la denuncia se refiere a intereses particulares exclusivos en relación con conductas ejercidas u omitidas por la administración, salvo que de la información aportada en la denuncia se logre determinar que existen aspectos de relevancia que deban ser investigados.
-3) Si los hechos denunciados corresponde investigarlos o ser discutidos exclusivamente en otras sedes, ya sean administrativas o judiciales.
-4) Si los hechos denunciados se refieren a problemas de índole laboral que se presentaron entre el o la denunciante y la administración.
-5) Si el costo aproximado de la investigación fuera superior al beneficio que se obtendría al darle curso al asunto denunciado, esto conforme el juicio profesional del funcionario o funcionaria a cargo.
-6) Si el asunto planteado a la auditoría se encuentra en conocimiento de otras instancias con competencias para realizar la investigación, ejercer el control y las potestades disciplinarias. En estos casos se realizará la coordinación respectiva.
-7) Si la denuncia presentada fuera una reiteración o reproducción de otras denuncias similares sin aportar elementos nuevos y que se hubieran sido resueltas por la auditoría o que ya fueron archivadas.
-8) Si el o la denunciante omite alguno de los requisitos esenciales ya enumerados.
+Artículo 72.-Confidencialidad. La identidad del denunciante, la información, la documentación y otras evidencias de las investigaciones que efectúe la Auditoría Interna serán confidenciales, de conformidad con lo establecido en los artículos 6 de la Ley General de Control Interno y 8 de la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública. La violación de la confidencialidad por parte de los funcionarios de la Auditoría Interna se sancionará de acuerdo con el régimen de responsabilidades y sanciones establecido en la Ley General de Control Interno.

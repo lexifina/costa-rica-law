@@ -1,1 +1,1 @@
-Artículo 74.—Fundamentación del acto de desestimación o archivo de la denuncia. La desestimación o archivo de la denuncia se realizará mediante un acto debidamente motivado donde se acrediten los argumentos valorados para tomar esa decisión.
+Artículo 74.-Admisibilidad de la denuncia. Cumplidos los requisitos de la denuncia, la Auditoría Interna realizará, dentro de un plazo razonable, una investigación administrativa preliminar con el objetivo de valorar si existe suficiente mérito para declarar su admisibilidad o determinar si procede adoptar otro tipo de acciones.
