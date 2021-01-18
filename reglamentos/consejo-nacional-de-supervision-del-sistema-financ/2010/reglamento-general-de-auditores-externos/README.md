@@ -19,3 +19,4 @@ Reglamento general de auditores externos
 | 4 | 2019-03-05 | Reglamento 1485 (2019-03-05) |
 | 5 | 2019-12-09 | Reglamento 1548 (2019-12-09) |
 | 6 | 2020-08-31 | Reglamento 1602 (2020-08-31) |
+| 7 | 2021-01-18 | Reglamento 1637 (2021-01-18) |

@@ -4,8 +4,8 @@ elegibles y actualización de información
 En el presente anexo, se establecen los requisitos que deberán cumplir los profesionales o firmas auditoras que deseen prestar servicios de auditoría externa a sujetos fiscalizados por las Superintendencias, para su inscripción en el Registro Nacional de Valores e Intermediarios.
 SECCIÓN A
 Documentación mínima
-Los profesionales o firmas auditoras deben presentar la solicitud de inscripción acompañadas de los documentos originales indicados a continuación. Solamente se dará trámite a las solicitudes que incorporen la documentación completa.
-(Así reformado el párrafo anterior en sesiones N° 1189-2015 y 1190- 2015, del 10 y 17 de agosto del 2015)
+Los profesionales o firmas auditoras deben presentar la solicitud de inscripción, especificando el área en la cual desarrollarán su actividad (financiero-contable, tecnologías de información, LC/FT/FPADM o todas), acompañadas de los documentos originales indicados a continuación. Solamente se dará trámite a las solicitudes que incorporen la documentación completa.
+(Así reformado el párrafo anterior por el artículo 60 del Reglamento de prevención del riesgo de legitimación de capitales, financiamiento del terrorismo y de la proliferación de armas de destrucción masiva (LC/FT/FPADM) (Acuerdo SUGEF 12-21), aprobado en sesión N° 1637 del 18 de enero de 2021)
 Las certificaciones solicitadas no deberán tener un plazo mayor al mes de emitidos. Toda la documentación será de carácter confidencial. Los documentos adicionales aportados y no solicitados en este Reglamento no serán considerados en el proceso de inscripción.
 Las solicitudes deben ser presentadas a la Superintendencia General de Valores, la cual a su vez las comunicará a las otras Superintendencias en el momento que se reciban. La Superintendencia General de Valores, a solicitud de las personas interesadas, emitirá una certificación de que el profesional independiente o la firma auditora están inscritos en el Registro.
 a) Solicitud de inscripción del profesional independiente o las firmas auditoras. La solicitud deberá ser firmada por el profesional independiente o su apoderado, o el representante legal en caso de las firmas auditoras, y deberá ser autenticada por notario público. Cuando la solicitud se haga por medio de representantes legales o apoderados, deberá adjuntarse la correspondiente certificación de personaría jurídica o del mandato, expedida por el Registro Público Nacional o Notario Público. La solicitud deberá indicar una dirección permanente para atender notificaciones o comunicaciones.
@@ -23,26 +23,28 @@ Documentación general del profesional o firma de auditoría
 El profesional o la firma auditora deberán presentar sus atestados, los cuales deberán incluir como mínimo la siguiente información:
 a) Identificación del profesional o la firma auditora, conteniendo los siguientes datos: razón social o nombre de la persona física, tipo de sociedad o Asociación, domicilio legal, teléfono, fax, correo electrónico, y otros datos relevantes que la identifiquen.
 b) Fecha de constitución de la firma.
-c) Estructura organizativa de la firma y del área de auditoría. En el área de auditoría se deberá identificar los diferentes niveles jerárquicos.
+c) Estructura organizativa de la firma y del departamento de auditoría. En el departamento de auditoría se deben identificar los diferentes niveles jerárquicos para cada una de las áreas financiero-contables, de tecnología de información y LC/FT/FPADM.
+(Así reformado el inciso anterior por el artículo 60 del Reglamento de prevención del riesgo de legitimación de capitales, financiamiento del terrorismo y de la proliferación de armas de destrucción masiva (LC/FT/FPADM) (Acuerdo SUGEF 12-21), aprobado en sesión N° 1637 del 18 de enero de 2021)
 d) Currículo de los socios y profesionales habilitados para firmar los informes de auditoría y de los profesionales que ocupan el cargo de gerente o encargado de la auditoría que laboran para una firma. Éste deberá contener al menos: datos personales, número de años de experiencia como socio, gerente o encargado de compromiso en el sector financiero y en otros sectores. Debe utilizar como base el formato establecido en el Apartado I, de la sección D de este Anexo.
 e) Descripción general del sistema de control de calidad aplicado por la firma que aseguren la calidad de los trabajos realizados, así como las políticas y procedimientos que garanticen el adecuado cumplimiento de la normativa de la Ley de Regulación de la Profesión de Contador Público y Creación del Colegio de Contadores Públicos de Costa Rica, de su Reglamento, el Reglamento de Ética Profesional y sus Reformas y el Código de Ética de los Contadores Profesionales emitido por la Federación Internacional de Contadores.
-f) Detalle de los clientes que son sujetos fiscalizados por alguna de las superintendencias a la fecha de la presentación del documento general del profesional o firma de auditoría. Para cada cliente deberá indicar: Nombre del cliente, períodos de servicios prestados en auditoría externa, socio, gerente y encargado responsable de los servicios prestados a la fecha de la solicitud de inscripción. La información debe presentarse de acuerdo el siguiente formato:
+f) Detalle de los clientes que son sujetos fiscalizados por alguna de las superintendencias a la fecha de la presentación del documento general del profesional o firma de auditoría. Para cada cliente deben indicar: Nombre del cliente, períodos de servicios prestados en auditoría externa, socio, gerente y encargado responsable de los servicios prestados a la fecha de la solicitud de inscripción. La información debe presentarse de acuerdo con el siguiente formato:
 Responsable | Detalle
-Nombre de entidad supervisada |
-Cantidad de periodos de servicios de auditoría externa |
-Profesional Independiente | Nombre Completo |
-Cantidad de periodos(a) |
-Gerente | Nombre Completo |
-Cantidad de periodos(a) |
-Encargado | Nombre Completo |
-Cantidad de periodos(a) |
-Socio 1 | Nombre Completo |
-Cantidad de periodos(a) |
-Socio 2 | Nombre Completo |
-Cantidad de periodos(a) |
-Socio 3 | Nombre Completo |
-Cantidad de periodos(a) |
-(a) Corresponde a la cantidad de periodos en que el funcionario ha participado en los servicios de auditoría externa brindados a la entidad supervisada por la SUGEF, SUGEVAL, SUPEN o SUGESE.
+Nombre de entidad supervisada
+Cantidad de periodos de servicios de auditoría externa
+Área de servicio (financiero-contable, tecnología de información o LC/FT/FPADM)
+Profesional Independiente | Nombre Completo
+| Cantidad de periodos(a)
+Gerente | Nombre Completo
+| Cantidad de periodos(a)
+Encargado | Nombre Completo
+| Cantidad de periodos(a)
+Socio 1 | Nombre Completo
+| Cantidad de periodos(a)
+Socio 2 | Nombre Completo
+| Cantidad de periodos(a)
+Socio 3 | Nombre Completo
+Cantidad de periodos( a)"
+(Así reformado el inciso f) anterior por el artículo 60 del Reglamento de prevención del riesgo de legitimación de capitales, financiamiento del terrorismo y de la proliferación de armas de destrucción masiva (LC/FT/FPADM) (Acuerdo SUGEF 12-21), aprobado en sesión N° 1637 del 18 de enero de 2021)
 g) En el caso de que la firma cuente con algún respaldo internacional deberá indicar el tipo de corresponsalía obtenida y representaciones que ejerce la firma.
 La documentación general del profesional o firma de auditoría deberá venir acompañado de una declaración jurada rendida por el representante legal de la firma o el profesional independiente mediante la cual garantiza la veracidad de la información proporcionada. En la sección C3 de este anexo se define el contenido mínimo de esta declaración.
 SECCIÓN C
@@ -95,7 +97,7 @@ Teléfono oficina |
 E-Mail |
 Número de identificación del Colegio de Contadores Públicos |
 Posición actual en la firma (a) |
-(a) Si el profesional ejercerá las funciones de auditoría externa en forma independiente, deberá indicarlo mediante la denominación “Profesional Independiente”.
+(a) Si el profesional ejercerá las funciones de auditoría externa en forma independiente, deberá indicarlo mediante la denominación "Profesional Independiente".
 B. Estudios
 Grado académico | Carrera | Especialidad | Fecha de certificado
 Mes | Año
@@ -113,7 +115,7 @@ Nombre o descripción del curso | Año de conclusión
 D. EXPERIENCIA EN SERVICIOS DE AUDITORÍA EXTERNA
 Firma de profesionales en que ha laborado (a) | Posición (socio, gerente o encargado) | Años de ocupar la posición | Sectores en que posee experiencia en auditoría | Años de experiencia en auditoría del sector financiero | Detalle de Empresas que ha auditado
 | | | | |
-(a) Si el profesional ha ejercido las funciones de auditoría externa en forma independiente, deberá indicarlo en esta casilla mediante la denominación “Independiente”.
+(a) Si el profesional ha ejercido las funciones de auditoría externa en forma independiente, deberá indicarlo en esta casilla mediante la denominación "Independiente".
 E. OTRA EXPERIENCIA LABORAL (Experiencia en funciones diferentes a la auditoría externa que tenga relación directa con las empresas en que el socio, gerente, encargado o contador público independiente pretende prestar los servicios de auditoría externa).
 Nombre de la empresa | Posición | Inicio (mes-año) | Fin (mes-año) | Breve descripción de labores desempeñadas
 | | | |
