@@ -45,10 +45,15 @@ iv. Copia del prospecto de la emisión aprobado por el regulador del mercado de 
 3. Certificación notarial con el nombre y el porcentaje de participación de todos los socios con participación relevante.
 4. Detalle de la conformación del capital social a la fecha de presentación de la solicitud, indicando para cada socio el nombre completo, el número de identificación, el monto del capital aportado y el número de acciones y el detalle esperado en esta conformación luego de autorizada la variación en el capital social.
 (*)B. INCREMENTO MEDIANTE APORTES EN EFECTIVO
-1. Copia de comprobantes de recibo de dinero, depósito o transferencia de fondos.
-2. En el caso de la colocación privada de acciones:
+1. Copia de los documentos que demuestren el origen de los fondos del aporte realizado por el socio.
+(Así adicionado el numeral anterior por el artículo 60 del Reglamento de prevención del riesgo de legitimación de capitales, financiamiento del terrorismo y de la proliferación de armas de destrucción masiva (LC/FT/FPADM) (Acuerdo SUGEF 12-21), aprobado en sesión N° 1637 del 18 de enero de 2021)
+2. Copia de comprobantes de recibo de dinero, depósito o transferencia de fondos.
+(Así modificada la numeración del punto anterior por el artículo 60 del Reglamento de prevención del riesgo de legitimación de capitales, financiamiento del terrorismo y de la proliferación de armas de destrucción masiva (LC/FT/FPADM) (Acuerdo SUGEF 12-21), aprobado en sesión N° 1637 del 18 de enero de 2021, que lo traspaso del numeral 1) al 2))
+3. En el caso de la colocación privada de acciones:
+(Así modificada la numeración del punto anterior por el artículo 60 del Reglamento de prevención del riesgo de legitimación de capitales, financiamiento del terrorismo y de la proliferación de armas de destrucción masiva (LC/FT/FPADM) (Acuerdo SUGEF 12-21), aprobado en sesión N° 1637 del 18 de enero de 2021, que lo traspaso del numeral 2) al 3))
 a. Declaración jurada del socio con una participación relevante, conforme la definición que establece el inciso q) del artículo 3º del acuerdo Nº SUGEF 8-08, para lo cual se debe sumar a la participación actual el aporte sujeto de autorización, rendida ante notario público y debidamente protocolizada, sobre el origen de los fondos.
 1. Declaración jurada del representante legal de la entidad supervisada o de la sociedad controladora del grupo financiero, rendida ante notario público y debidamente protocolizada, en la que indique si algún socio ha financiado el aporte de capital con la misma entidad supervisada o alguna empresa de su grupo o conglomerado financiero, en cuyo caso, debe indicar el nombre del socio, el nombre de la entidad acreedora, el monto y las condiciones del financiamiento.
+(Así reformado por el artículo 60 del Reglamento de prevención del riesgo de legitimación de capitales, financiamiento del terrorismo y de la proliferación de armas de destrucción masiva (LC/FT/FPADM) (Acuerdo SUGEF 12-21), aprobado en sesión N° 1637 del 18 de enero de 2021)
 (*)(Así reformado el punto anterior en sesión N° 816 del 6 de noviembre de 2009)
 C. INCREMENTO MEDIANTE CAPITALIZACIÓN DE UTILIDADES Y
 RESERVAS
@@ -57,7 +62,10 @@ D. INCREMENTO MEDIANTE CAPITALIZACIÓN DE AJUSTES POR REVALUACIÓN DE BIENES INM
 1. Estados financieros auditados de la entidad del periodo económico inmediato anterior.
 2. Un detalle del cálculo del superávit realizado, el cual deberá efectuarse de acuerdo con lo que indican las Normas Internacionales de Información Financiera.
 E. INCREMENTO MEDIANTE APORTE EN BIENES INMUEBLES
-Informe pericial sobre el valor de los bienes inmuebles.
+1. Informe pericial sobre el valor de los bienes inmuebles.
+(Así enumerado el párrafo anterior como 1) por el artículo 60 del Reglamento de prevención del riesgo de legitimación de capitales, financiamiento del terrorismo y de la proliferación de armas de destrucción masiva (LC/FT/FPADM) (Acuerdo SUGEF 12-21), aprobado en sesión N° 1637 del 18 de enero de 2021)
+2. Demostración documental de la forma en que se obtuvieron los bienes aportados.
+(Así adicionado el numeral anterior por el artículo 60 del Reglamento de prevención del riesgo de legitimación de capitales, financiamiento del terrorismo y de la proliferación de armas de destrucción masiva (LC/FT/FPADM) (Acuerdo SUGEF 12-21), aprobado en sesión N° 1637 del 18 de enero de 2021)
 F. INCREMENTO MEDIANTE APORTE EN INSTRUMENTOS FINANCIEROS
 1. Documento probatorio emitido por la Bolsa Nacional de Valores (Vector de precios), Bloomberg o Reuters en el que conste el valor de mercado del instrumento a la fecha de presentación de la solicitud.
 2. Para el caso de instrumentos no cotizados en un mercado de valores, el valor de mercado del instrumento estimado según la metodología del Vector de Precios de la Bolsa Nacional de Valores.
