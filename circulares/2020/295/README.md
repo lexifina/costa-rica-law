@@ -13,3 +13,4 @@ Suspensión temporal de la utilización de las plazas vacantes por los motivos d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-12-18 | la propia norma |
+| 2 | 2021-01-18 | Circular 13 (2021-01-18) |
