@@ -14,3 +14,4 @@ Directriz para la aplicación del artículo 56 de la Ley del Sistema Financiero 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-05-12 | la propia norma |
+| 2 | 2021-01-18 | Reglamento 5 (2021-01-18) |
