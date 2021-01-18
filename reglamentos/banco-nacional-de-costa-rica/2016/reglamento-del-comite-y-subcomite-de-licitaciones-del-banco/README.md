@@ -15,3 +15,4 @@ Reglamento del Comité y Subcomité de Licitaciones del Banco Nacional de Costa 
 | --- | --- | --- |
 | 1 | 2016-02-16 | la propia norma |
 | 2 | 2019-03-04 | Reglamento 12332 (2019-03-04) |
+| 3 | 2021-01-18 | Reglamento 12507 (2021-01-18) |
