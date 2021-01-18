@@ -1,1 +1,0 @@
-Transitorio II.—En un plazo de un mes posterior a la entrada en vigencia de esta normativa, los sujetos fiscalizados deben, en los casos necesarios, nombrar al Oficial de Cumplimiento titular y al Oficial adjunto de cumplimiento y comunicar el nombramiento a la Superintendencia respectiva y al Instituto Costarricense sobre Drogas.

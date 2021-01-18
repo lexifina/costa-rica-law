@@ -1,2 +1,0 @@
-Artículo 15.—Personas expuestas políticamente (PEPs). El sujeto fiscalizado debe establecer una política para la identificación de personas expuestas políticamente, según las pautas determinadas en el “Reglamento General sobre Legislación Contra el Narcotráfico, Actividades Conexas, Legitimación de Capitales, Financiamiento al Terrorismo y Delincuencia Organizada.”
-(Así reformado mediante sesiones N° 1094-2014 y 1095-2014 del 4 de marzo del 2014)

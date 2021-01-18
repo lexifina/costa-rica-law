@@ -1,6 +1,0 @@
-Transitorio III .—En un plazo de seis meses posteriores a la entrada en vigencia de esta normativa, los sujetos fiscalizados deben:
-a) Concluir el desarrollo de la metodología para la clasificación del riesgo de los clientes establecido en el artículo 5º.
-b) Presentar a la Superintendencia respectiva el plan de automatización de la metodología para la clasificación del riesgo de los clientes, como parte de los programas informáticos del sujeto fiscalizado.
-c) Presentar para conocimiento de la Superintendencia respectiva, el plan que ejecutará el sujeto fiscalizado para la implementación de la metodología de clasificación del riesgo para los clientes. Este plan debe contener las actividades a desarrollar, los responsables y las fechas estimadas de conclusión, así como la indicación de la cantidad de clientes a los que se les aplicará el plan. La Superintendencia podrá objetar el plan presentado y en caso de considerarse inadecuado o insuficiente, prevendrá al sujeto fiscalizado para la corrección, la aclaración o su sustitución.
-d) Identificar específicamente las cuentas de las personas expuestas políticamente y evaluar el grado de riesgo involucrado con el fin de adoptar medidas apropiadas.
-El sujeto fiscalizado debe, de manera bimensual, remitir a la Superintendencia correspondiente, un informe de avance de los puntos b y d anteriores.
