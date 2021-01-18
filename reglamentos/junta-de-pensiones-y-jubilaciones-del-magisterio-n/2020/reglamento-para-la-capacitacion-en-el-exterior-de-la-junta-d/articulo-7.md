@@ -1,0 +1,4 @@
+Artículo 7º—Designación de participantes. La designación de los representantes de la Institución se realiza de la siguiente manera:
+1. Los directores son designados por acuerdo de Junta Directiva.
+2. La Dirección Ejecutiva designa al trabajador correspondiente y comunica a la Junta Directiva.
+Se procura que los trabajadores representantes posean las condiciones intelectuales, profesionales y la experiencia necesaria para representar a la Institución. De igual manera, el tema de la capacitación debe contribuir al desarrollo del conocimiento del área en el que se desenvuelve el trabajador dentro de la Institución. En el caso de las y los señores directores, para su escogencia se pondera el beneficio que la Institución reciba en función del tiempo que le resta para terminar su nombramiento, de conformidad con el plazo establecido en el artículo 99 del EX-004 Ley 7531 y sus reformas.

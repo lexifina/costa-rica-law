@@ -1,0 +1,1 @@
+Artículo 22.—Excepciones. Para la representación y capacitación que se desarrolle en el país, se observarán en lo que fueran aplicables los artículos anteriores. Las situaciones excepcionales o no contempladas son resueltas por la Junta Directiva.

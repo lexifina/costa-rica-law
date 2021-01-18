@@ -1,0 +1,6 @@
+Artículo 16.—Gastos de representación. Los gastos de representación se asignarán al jefe de delegación quien será designado en función del rango.
+Por jefe de delegación se entenderá, el director o trabajador cuya dirección actúan los demás miembros del grupo, según artículo 49 del EX-080 Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos vigente.
+Si no se designa un jefe de delegación, el monto correspondiente a Gastos de Representación se distribuirá proporcionalmente entre los directores.
+Por gastos de representación se entiende aquellas erogaciones en que incurren ciertos directores o trabajadores en el ejercicio de su cargo, con el objeto de brindar atenciones de carácter oficial a personas o instituciones, en el exterior, relacionados con el evento en el que se participe, según artículo 49 del EX-080 Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos.
+Para viajes con una duración menor o igual a dos semanas, se asigna al jefe de la delegación la suma de $500.00, por concepto de gastos de representación.
+Estos gastos deben ser liquidados con los comprobantes respectivos, y estarán sujetos a las disposiciones del artículo 46 y 50 del EX-080 Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos vigente.

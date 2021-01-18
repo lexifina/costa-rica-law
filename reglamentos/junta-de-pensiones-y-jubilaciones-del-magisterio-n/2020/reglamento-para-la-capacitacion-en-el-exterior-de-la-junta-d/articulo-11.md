@@ -1,0 +1,2 @@
+Artículo 11.—Costos de viaje. Dentro de los costos de viaje se incluyen el boleto aéreo, el viático diario (alojamiento, alimentación, gastos menores y traslados) en la ciudad de destino, los gastos de representación y los costos de inscripción del evento.
+Todo lo anterior según lo indicado en el EX-080 Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos vigente.

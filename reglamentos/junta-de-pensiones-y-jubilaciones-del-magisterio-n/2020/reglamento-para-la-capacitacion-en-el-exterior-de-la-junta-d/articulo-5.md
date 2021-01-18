@@ -1,0 +1,1 @@
+Artículo 5º—Análisis y aprobación de las invitaciones recibidas. Los temas de los cursos, seminarios, pasantías, conferencias o congresos deben ser conocidos y aprobados por la Junta Directiva. No se consideran temas cuyo tópico no tenga relación directa con el giro normal de la institución o cuyo contenido no revista un interés directo para la misma.
