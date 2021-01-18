@@ -14,3 +14,4 @@ Reforma Reglamento de información financiera
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-01-01 | la propia norma |
+| 2 | 2021-01-18 | Reglamento 1637 (2021-01-18) |
