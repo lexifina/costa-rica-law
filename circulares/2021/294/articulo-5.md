@@ -1,0 +1,13 @@
+Artículo 5) De las definiciones
+Para efectos del presente protocolo se tienen las siguientes definiciones:
+1. Bases de datos: Todo archivo, fichero, registro u otro conjunto estructurado de datos, que sean objeto de tratamiento o procesamiento, automatizado o manual, cualquiera que sea la modalidad de su elaboración, organización o acceso.
+2. Servidor: Es un tipo de software que realiza ciertas tareas en nombre de las personas usuarias. También hace referencia al ordenador físico en el cual funciona ese software, una máquina cuyo propósito es proveer datos de modo que otras máquinas puedan utilizar esos datos.
+3. Bitácora: Registro que contiene la información de las personas usuarias que se han definido mediante el sistema.
+4. ITIL: Biblioteca de Infraestructura de Tecnologías de Información (por sus siglas en inglés ITIL) es un conjunto de conceptos y buenas prácticas usadas para la gestión de servicios de tecnologías de la información.
+5. Incidencia: Cualquier evento que no forma parte del desarrollo habitual del servicio y que causa, o puede causar una interrupción del mismo o una reducción de la calidad de dicho servicio. El objetivo de ITIL es reiniciar el funcionamiento normal tan rápido como sea posible con el menor impacto para el negocio y el usuario con el menor coste posible.
+6. Solicitud de servicio: Una solicitud de servicio en primer lugar no es una interrupción de un servicio, por lo general (pero no necesariamente) es una solicitud de algo nuevo, como información o acceso; puede tomarse como una petición de un usuario solicitando información, asesoramiento, un cambio estándar o acceso a un servicio IT.
+7. Persona responsable final: Para los efectos del presente protocolo, se denomina persona responsable final a los dueños y gestores que interactúan directamente con el Sistema de Seguridad de Usuarios de Gestión.
+8. Persona monitora: Es la persona encargada de atender en un primer nivel las consultas de incidencias de las personas usuarias en los despachos y oficinas judiciales.
+9. Persona usuaria final: Es la persona que utiliza los servicios que brindan las áreas de la Dirección de Tecnología de Información y Comunicaciones (DTIC) en la función de sus labores en los despachos y oficinas judiciales.
+10. Persona encargada informática en la Unidad Regional: Es la persona designada por la Dirección de Tecnología de Información y Comunicaciones (DTIC) para atender las necesidades informáticas en cada una de las unidades regionales del Poder Judicial en cada circuito judicial.
+11. Depuraciones de accesos: Acciones para mantener actualizada la base de datos de personas con accesos a los sistemas y/o servicios en el despacho u oficina judicial.
