@@ -1,0 +1,1 @@
+Artículo 9. El nombramiento y continuidad se regirá por lo dispuesto en el Reglamento de Comisiones aprobado por la Junta Directiva General del CFIA, garantizando la continuidad de al menos, uno de los miembros.

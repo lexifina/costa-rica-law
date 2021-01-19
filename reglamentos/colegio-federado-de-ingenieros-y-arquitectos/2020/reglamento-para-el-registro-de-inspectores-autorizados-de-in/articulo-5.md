@@ -1,0 +1,1 @@
+Artículo 5. La Junta Directiva General del CFIA ejerce la dirección general y es el máximo órgano encargado de conocer y resolver todo lo relacionado a la autorización de inspector de instalaciones descritas en el artículo 1.

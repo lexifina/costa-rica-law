@@ -1,0 +1,1 @@
+Artículo 23. La vigencia de las licencias otorgadas por el CFIA será de cinco años. El profesional que desee mantener vigente la licencia en la misma categoría, dentro del mes previo al vencimiento de esta, deberá tramitar la renovación, caso contrario, al momento de vencimiento del plazo el CFIA cancelará su licencia y será retirado de la lista.

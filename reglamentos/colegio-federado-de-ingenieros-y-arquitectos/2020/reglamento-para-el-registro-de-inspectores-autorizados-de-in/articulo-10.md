@@ -1,0 +1,1 @@
+Artículo 10. En las sesiones participarán el titular de la DE o quién éste designe en su representación con voz, pero sin voto. Asimismo, podrán contar con la asesoría legal correspondiente y/o cualquier otro apoyo técnico que se requiera.

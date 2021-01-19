@@ -1,0 +1,1 @@
+Artículo 21. Contra la resolución de la Junta Directiva General que rechace la solicitud de un miembro agremiado al CFIA cabrá el recurso de reconsideración, el cual deberá interponerse dentro del plazo de diez (10) días hábiles, contados a partir del día hábil siguiente a su comunicación.

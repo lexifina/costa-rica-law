@@ -1,0 +1,1 @@
+Artículo 2. En adelante, para efectos de este reglamento los profesionales que obtengan la autorización para los efectos establecidos en el artículo 1) se denominarán “inspector autorizado” y la autorización que obtengan por parte del CFIA se denominará “licencia”.
