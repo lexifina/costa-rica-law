@@ -14,3 +14,4 @@ Se instruye a Directores de Áreas de Conservación del Sistema Nacional de Áre
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-10-30 | la propia norma |
+| 2 | 2021-01-19 | Directriz 1 (2021-01-19) |

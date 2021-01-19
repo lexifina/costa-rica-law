@@ -1,4 +1,5 @@
 DIRECTRIZ
+(Nota de Sinalevi: Mediante el artículo 1° de la directriz N° 001-2021 del 19 de enero del 202, se acordó prorrogar la vigencia de la presente norma debido al estado de emergencia nacional por la situación sanitaria por el COVID-19, se instruye a los Directores de Áreas de Conservación del Sistema Nacional de Áreas de Conservación para que el marco jurídico de su actuación y de acuerdo con la naturaleza de sus atribuciones se abstengan de convocar la celebración de asambleas para la conformación de los Consejos Regionales de Área de Conservación. Asimismo en su numeral 2° de la directriz antes referida se establece que para todos los nombramientos de los miembros que conforman los Consejos Regionales de Área de Conservación del Sistema Nacional de Áreas de Conservación, se extiende la vigencia de sus nombramientos hasta el 31 de julio del 2021, como medida para asegurar la continuidad de los servicios y la funcionalidad del SINAC en resguardo del interés público en medio de la crisis sanitaria declarada.)
 MINISTERIO DE AMBIENTE Y ENERGÍA
 N° 0012-2020
 LA MINISTRA DE AMBIENTE Y ENERGÍA
