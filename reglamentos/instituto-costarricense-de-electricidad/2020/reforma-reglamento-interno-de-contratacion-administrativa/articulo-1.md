@@ -1,0 +1,12 @@
+INSTITUTO COSTARRICENSE DE ELECTRIDAD
+DIVISIÓN CADENA ABASTECIMIENTO-GERENCIA DE
+OPERACIONES Y LOGÍSTICA
+Modificación del inciso 15 del artículo 115 del Reglamento Interno de Contratación Administrativa, aprobado en el acuerdo emitido por el Consejo Directivo en el artículo 3 del Capítulo III del acta firme de la Sesión 6419 del 8 de diciembre de 2020.
+15. Para efectos del procedimiento, las etapas de aprobación y entrega de los bienes o servicios deberá ajustarse a lo siguiente:
+a. El contratista deberá presentar la propuesta de dación de pago ante la Dirección de Proveeduría Institucional; quien dará traslado al Administrador de Contrato para que analice la propuesta en un plazo de 20 días. Si la propuesta resulta de interés para la Institución deberá comunicárselo a la Proveeduría y proceder a solicitar al Proceso de Avalúos la asesoría o avalúo correspondiente y a la Dirección Contratación Administrativa, criterio legal respecto de la viabilidad jurídica del ofrecimiento en dación en pago realizado por el contratista.
+b. El Proceso de Avalúos contará con un plazo de 20 días hábiles, contados a partir de la recepción de la solicitud, para realizar la asesoría correspondiente. Una vez recibidos los bienes, contará con un plazo de 15 días hábiles para efectuar el respectivo avalúo.
+c. La Dirección Contratación Administrativa contará con un plazo de 10 días hábiles para emitir el criterio legal.
+d. Una vez que el administrador del contrato tenga los insumos señalados, contará con un plazo de 10 días hábiles para preparar la recomendación correspondiente (sea que la misma resulte conveniente o no a los intereses institucionales, o bien incumpla la normativa) ante la Dirección de Proveeduría Institucional; quien elevará de manera posterior, luego de la revisión correspondiente, al Órgano competente. En caso de que la propuesta no sea conveniente a los intereses institucionales, el Administrador de Contrato podrá prescindir de solicitar el avalúo y criterio legal correspondientes y realizar la recomendación sobre la base del análisis técnico.
+e. El Órgano competente contará con un plazo de 15 días hábiles para emitir la aprobación / rechazo de dación en pago propuesta; la cual deberá trasladar a la Dirección Proveeduría Institucional para que ésta comunique al contratista.
+2. La presente modificación regirá a partir de su publicación en el Diario Oficial La Gaceta.
+San José, 4 de enero de 2021.
