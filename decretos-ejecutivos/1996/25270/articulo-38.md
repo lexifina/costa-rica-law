@@ -1,4 +1,4 @@
-Artículo 38.—Funciones de la Sección Técnica Operativa. La Sección Técnica Operativa se encuentra adscrita al Departamento Técnico y tiene las siguientes funciones:
+Artículo 38.-Funciones de la Sección Técnica Operativa. La Sección Técnica Operativa se encuentra adscrita al Departamento Técnico y tiene las siguientes funciones:
 a. Ejercer las acciones necesarias para garantizar el control de los procesos de despacho de importación y exportación de las mercancías objeto de control de la aduana, sin menoscabo de los principios de facilitación de las operaciones de comercio exterior.
 b. Autorizar y efectuar las actividades y trámites de ingreso, uso, permanencia y salida de mercancías destinadas a los regímenes aduaneros previstos por la legislación aduanera.
 c. Registrar el resultado de la revisión en la aplicación informática, autorizando el levante de la mercancía.
@@ -9,7 +9,8 @@ g. Llevar el control, custodia, registro, renovación, devolución o ejecución 
 h. Coordinar y controlar la ejecución de medidas de seguridad necesarias para prevenir daños o sustracciones sobre mercaderías en custodia de la aduana.
 i. Efectuar el control de equipajes, de conformidad con los procedimientos y normativa vigentes.
 j. Coadyuvar con el Departamento Normativo en la resolución de las solicitudes de sustitución, en caso de que se requiera un criterio técnico relacionado con las mercancías objeto de la solicitud.
-k. Realizar los estudios pertinentes para la correcta determinación de la clasificación arancelaria, valor y origen de las mercancías cuyo levante es autorizado con rendición de una garantía.
+k. Realizar los estudios pertinentes para la correcta determinación de la clasificación arancelaria, valor y origen de las mercancías.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 42818 del 19 de enero del 2021)
 l. Autorizar y renovar los permisos de importación temporal de vehículos automotores terrestres, aéreos y marítimos con fines no lucrativos.
 m. Coordinar con las dependencias correspondientes, la información del resultado de las investigaciones realizadas por la aduana, que deba ser incorporada en el sistema informático.
 n. Requerir de los importadores, exportadores, y auxiliares de la función pública aduanera o terceros con ellos relacionados, la documentación necesaria para el ejercicio de sus funciones, cuando la información no se encuentre en la base de datos.

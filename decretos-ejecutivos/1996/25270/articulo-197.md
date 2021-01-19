@@ -1,5 +1,5 @@
 SECCIÓN III
-Procedimiento previo al remate de mercancías
-Artículo 197.—Detalle de las mercancías a subastar y aviso al público. La aduana competente detallará las mercancías que van a rematarse e indicará la fecha, hora y lugar en que se realizará la subasta.
-Efectuado lo anterior, publicará en el Diario Oficial o un periódico de mayor circulación, por una sola vez, el aviso de subasta con una antelación al menos de diez días a la fecha de su realización. Asimismo, publicará este aviso en lugar visible de la aduana y en el depósito fiscal o lugar autorizado para la realización de la venta pública, sin perjuicio de publicarlo en la página electrónica del Servicio Aduanero.
-(Así reformado por artículo 1° del decreto ejecutivo N° 31667 de 5 de marzo de 2004)
+Procedimiento de remate electrónico de mercancías
+(Así reformado el capítulo anterior por el artículo 1° del decreto ejecutivo N° 42818 del 19 de enero del 2021)
+Artículo 197.- Remate electrónico. La participación del público en general en la subasta por medios electrónicos, se sujetará a las normas establecidas para la realización de la misma, el presente reglamento y demás disposiciones emitidas por la Dirección General de Aduanas. De todo lo actuado en relación con el remate electrónico, deberá dejarse constancia en un expediente digital del medio electrónico.
+(Así reformado por artículo 1° del decreto ejecutivo N° 42818 del 19 de enero del 2021)

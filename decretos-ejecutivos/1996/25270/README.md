@@ -51,3 +51,4 @@ Reglamento a la Ley General de Aduanas
 | 36 | 2019-11-07 | Decreto Ejecutivo 42017 (2019-11-07) |
 | 37 | 2020-06-09 | Decreto Ejecutivo 42385 (2020-06-09) |
 | 38 | 2020-12-05 | Decreto Ejecutivo 42126 (2020-12-05) |
+| 39 | 2021-01-19 | Decreto Ejecutivo 42818 (2021-01-19) |

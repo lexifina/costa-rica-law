@@ -1,16 +1,8 @@
-Artículo 198.—Información que debe contener el aviso de subasta
-El aviso de subasta deberá contener los siguientes requisitos:
-a. Una descripción general de las mercancías que serán subastadas.
-b. Fecha, hora y lugar donde ser realizará la subasta.
-c. El precio base de la subasta.
-(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 31667 de 5 de marzo de 2004)
-d. El lugar y plazo para la observación de las mercancías.
-e. Informar al público que para poder participar en la subasta, deberá depositar en concepto de anticipo y mediante cheque certificado a favor de la Dirección General o de la Aduana, una suma equivalente al 10% del precio base de las mercancías que desee adquirir.
-(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 31667 de 5 de marzo de 2004)
-f. En caso que exista diferencia en relación con el valor de adjudicación y el monto previamente depositado, la misma deberá cancelarse inmediatamente o a más tardar dentro del día hábil siguiente a la fecha de la adjudicación de las mercancías.
-(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 31667 de 5 de marzo de 2004)
-g. Que la subasta es de libre concurrencia, con las excepciones de los funcionarios del Servicio Aduanero quienes no podrán participar directa o indirectamente como postores, ni sus parientes por afinidad o consanguinidad hasta el tercer grado inclusive.
-(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 31667 de 5 de marzo de 2004)
-h. (Derogado por el artículo 5° del decreto ejecutivo N° 31667 de 5 de marzo de 2004)
-i. Indicación de sí las mercancías se subastarán individualmente o integrando lote.
-(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 31667 de 5 de marzo de 2004)
+Artículo 198.-Registro para participación en el remate electrónico. "De previo a la celebración del remate electrónico, los oferentes deberán registrarse en el medio dispuesto por la Dirección General de Aduanas.
+La identidad del oferente no estará disponible en línea hasta el cierre del remate.
+Para realizar la inscripción en el Registro y para poder ser adjudicatario de las mercancías, los interesados deberán cumplir los siguientes requisitos:
+a) Contar con un certificado de firma digital.
+b) Encontrarse al día en el pago de los tributos ante la Administración Tributaria.
+c) Encontrarse al día en las obligaciones obrero patronal y el Fondo de Desarrollo Social y de Asignaciones Familiares.
+Mediante resolución de alcance general la Dirección General de Aduanas, establecerá la demás información y requisitos que se deben cumplir para el registro electrónico de oferentes.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 42818 del 19 de enero del 2021)
