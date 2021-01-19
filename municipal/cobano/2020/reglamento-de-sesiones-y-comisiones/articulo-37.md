@@ -1,1 +1,0 @@
-Artículo 37.—Las manifestaciones propias de los señores concejales hechas en la sesión, no será necesario que consten en el acta, salvo que estos así lo deseen, y lo hagan saber así con anticipación a la secretaria. Si la previsión anterior no se hace, la secretaria no deberá consignarlas en el acta respectiva, sin que sea posible posteriormente, acto en contrario.

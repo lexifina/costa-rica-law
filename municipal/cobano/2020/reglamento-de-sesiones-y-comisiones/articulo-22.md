@@ -1,1 +1,0 @@
-Artículo 22.—Podrá modificarse o alterarse el orden del día, luego de ser conocido por los miembros del concejo, mediante acuerdo tomado, salvo el caso de las sesiones extraordinarias que deberán votar todos los Concejales propietarios presentes.

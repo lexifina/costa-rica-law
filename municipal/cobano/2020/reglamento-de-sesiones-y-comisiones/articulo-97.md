@@ -1,1 +1,0 @@
-Artículo 97. —Las comisiones permanentes deberán estar integradas como mínimo por tres miembros los cuales deberán ser concejales propietarios. El presidente podrá reestructurarlas por ausencias de alguno de sus miembros o por falta a las sesiones de concejo

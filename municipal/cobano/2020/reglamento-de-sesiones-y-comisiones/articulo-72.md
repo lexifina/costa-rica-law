@@ -1,1 +1,0 @@
-Artículo 72. —En el capítulo de Mociones, los Concejales e Intendencia presentarán las mociones y proposiciones por escrito y firmadas. La secretaria (o) anotará la hora y fecha en que fueron presentadas y serán conocidas en estricto orden de presentación, salvo cuando se trate de mociones de orden.

@@ -1,2 +1,0 @@
-Artículo 100. —Los dictámenes de comisión deberán ser presentados ante la secretaría (o) del Concejo Municipal por el secretario (a) de la comisión respectiva en forma impresa y digital. Estos dictámenes deberán estar debidamente firmados por el secretario y el presidente de la comisión.
-Cuando no existiera acuerdo unánime sobre un dictamen o alguno esté en contra del dictamen o de algún asunto específico aprobado por la comisión, podrán remitir un dictamen de minoría ante el Concejo junto con el de mayoría.

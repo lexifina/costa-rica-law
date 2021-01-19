@@ -1,1 +1,0 @@
-Artículo 47.—El Concejo Municipal podrá tomar sus acuerdos contrario a lo recomendado en los dictámenes de comisión, sean estos de mayoría o de minoría, no obstante la posición contraria que asuma el Concejo debe ser de previo debidamente justificada mediante un criterio legal.

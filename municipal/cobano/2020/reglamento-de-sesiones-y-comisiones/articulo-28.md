@@ -1,2 +1,0 @@
-Artículo 28.— Para que exista quórum a efecto de realizar la sesión del Concejo Municipal es necesario que estén presentes, al menos, la mitad más uno de los miembros del Concejo, tal como lo dispone el artículo 37 del Código Municipal. Dicha cantidad deberá estar presente en el salón de sesiones al inicio de la sesión, durante las deliberaciones y al efectuarse las votaciones. La ausencia
-de quórum incide en la validez de los acuerdos que se adopten.

@@ -1,1 +1,0 @@
-Artículo 79. —Contra el acta que presente omisiones, errores o modificaciones respecto a lo ocurrido en la sesión anterior a la que se remonta, los concejales interesados procederán a manifestar las razones, aclaraciones, enmiendas o adiciones que estimen necesarias, las que serán consignadas por la secretaria (o) al pie del acta.

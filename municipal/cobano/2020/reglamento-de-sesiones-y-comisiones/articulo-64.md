@@ -1,1 +1,0 @@
-Artículo 64- Las solicitudes de audiencias hechas por grupos de vecinos, organizaciones comunales, grupos organizados, entes gubernamentales o demás colectivos públicos o privados, deberán indicar el nombre de las personas que harán uso de la palabra, con un máximo de tres voceros por solicitud.

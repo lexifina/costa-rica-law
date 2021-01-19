@@ -1,1 +1,0 @@
-Artículo 67. —Las mociones y proposiciones deberán ser interpuestas por un Concejal propietario, el Intendente o acogidas por un Concejal propietario cuando la misma provenga de una persona ajena al Concejo.--

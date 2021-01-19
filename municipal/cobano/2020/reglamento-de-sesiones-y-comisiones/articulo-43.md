@@ -1,1 +1,0 @@
-Artículo 43.—En el eventual caso que se llegare a producir un empate en cualquier votación, se votará de nuevo en el mismo acto o tal como lo dispone el artículo 42 del Código Municipal, se hará de nuevo en la sesión inmediata siguiente y de empatar otra vez, el asunto se tendrá por desechado.

@@ -1,1 +1,0 @@
-Artículo 4º—El Concejo Municipal, es un cuerpo deliberativo integrado por concejales electos popularmente por periodos de cada cuatro años, sus atribuciones están establecidas en el artículo 13 del Código Municipal.

@@ -1,1 +1,0 @@
-Artículo 20.—Después de transcurridas las tres horas de iniciada la sesión, se cerrará con los asuntos que se hayan conocido hasta ese momento, excepto que la mayoría decida ampliarla hasta media hora más para terminar determinado caso, de lo contrario se conocerá en la sesión siguiente.

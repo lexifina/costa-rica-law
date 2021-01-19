@@ -1,1 +1,0 @@
-Artículo 114. —Queda facultado el presidente (a) del Concejo Municipal por sí o a solicitud de uno o más concejales por fuerza mayor u otro motivo, a reestructurar las comisiones de trabajo cuando así se amerite.
