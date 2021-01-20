@@ -1,8 +1,8 @@
-Artículo 88.- Del acuerdo conciliatorio. Las partes firmarán el acuerdo conciliatorio en el cual consten las obligaciones asumidas.
-Partiendo de la falta atribuida, la conciliación puede consistir en una o algunas de las siguientes obligaciones:
-a) la retractación y su correspondiente comunicación pública o privada a quien corresponda, de lo cual se dejará constancia en el expediente de la investigación.
-b) la disculpa en el seno de órgano director, de la cual se dejará constancia en el expediente de investigación.
-c) el pago de una suma de dinero a favor de una causa benéfica, según determinación que hará el Tribunal de Ética Médica.
-d) cualquier otro tipo de compromiso siempre que sea lícito.
-El plazo para el cumplimento de la conciliación debe quedar constando en el acuerdo conciliatorio y no podrá exceder de tres meses. Cumplida la conciliación en los términos acordados, el Tribunal de Ética Médica archivará el caso sin sanción alguna.
-El incumplimiento de la conciliación, implica la reanudación del proceso de investigación disciplinaria y será considerado como agravante a efectos de la sanción que eventualmente se imponga.
+Artículo 88.—Del Acuerdo Conciliatorio. Las partes firmarán el acuerdo conciliatorio en el cual consten las obligaciones asumidas. Partiendo de la falta atribuida, la conciliación puede consistir en una o alguna de las siguientes obligaciones:
+a) La retractación y su correspondiente comunicación pública o privada a quien corresponda, de lo cual se dejará constancia en el expediente de la investigación.
+b) La disculpa en el seno del órgano director, de la cual se dejará constancia en el expediente de investigación.
+c) El pago de una suma de dinero a favor de una causa benéfica, según determinación que hará el Tribunal de Ética Médica.
+d) Cualquier otro compromiso siempre que sea lícito.
+El plazo para el cumplimiento de la conciliación debe quedar constando en el acuerdo conciliatorio y no podrá exceder de tres meses. El Tribunal de Ética Médica ordenará el archivo definitivo del proceso de investigación disciplinaria sin sanción alguna, una vez que la Fiscalía verifique el cumplimiento de la conciliación en los términos acordados, todo de lo cual deberá quedar debidamente documentado.
+El incumplimiento de la conciliación implicará necesariamente la reanudación del proceso de investigación disciplinaria en el estado en que se encontraba antes de la conciliación y será considerado como agravante a efectos de la sanción que eventualmente se imponga.
+(Así reformado mediante sesión 2021-01-20 del 20 de enero del 2021)

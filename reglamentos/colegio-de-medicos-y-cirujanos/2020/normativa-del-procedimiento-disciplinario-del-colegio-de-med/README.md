@@ -14,3 +14,4 @@ Normativa del procedimiento disciplinario del Colegio de Médicos y Cirujanos de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-03-05 | la propia norma |
+| 2 | 2021-01-20 | Reglamento 0 (2021-01-20) |
