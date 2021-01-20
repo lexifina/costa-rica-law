@@ -1,2 +1,2 @@
-Artículo 2° Bis.- Cuando se trate de la importación de un vehículo nuevo cuyo año modelo corresponda al año siguiente del año calendario vigente, la importación deberá realizarse a partir del 1° de setiembre del año calendario vigente, debiendo existir coincidencia de la información suministrada a la administración y el número de identificación vehicular (VIN).
+Artículo 2° Bis.-(Anulado por resolución de la Sala Constitucional N° 001158 del 20 de enero del 2021)
 (Así adicionado por el artículo 1° del decreto ejecutivo N° 39941 del 10 de agosto del 2016)
