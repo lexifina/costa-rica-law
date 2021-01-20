@@ -1,0 +1,1 @@
+Artículo 9º—El sistema de priorización: Se gozará con un sistema de priorización para la asignación de los pedidos el cual funcionará con dos sistemas de priorización, se establecerá una primera prioridad en las organizaciones sociales y como una segunda prioridad las demás empresas instaladas en el Mercado Chorotega.

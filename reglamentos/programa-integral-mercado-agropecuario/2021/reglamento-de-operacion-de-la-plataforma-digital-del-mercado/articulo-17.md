@@ -1,0 +1,1 @@
+Artículo 17.—Formará parte integral del presente reglamento el Reglamento de Operación del Mercado Regional Mayorista de la Región Chorotega. Cuando en la aplicación de ambas normativas se generare una lagunas reglamentaria se llenarán con el resto de la normativa institucional.

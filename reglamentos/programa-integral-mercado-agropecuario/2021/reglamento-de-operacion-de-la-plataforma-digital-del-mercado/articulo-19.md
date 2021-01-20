@@ -1,0 +1,1 @@
+Artículo 19.—La facturación se gestionará en apego a lo que establece el Ministerio de Hacienda, para tal efecto los agentes participantes deberán asumir como parte de sus deberes emitir la correspondiente factura digital.

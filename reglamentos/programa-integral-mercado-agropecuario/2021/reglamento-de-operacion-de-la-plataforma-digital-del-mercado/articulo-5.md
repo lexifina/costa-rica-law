@@ -1,0 +1,1 @@
+Artículo 5º—De la forma de comercialización: La plataforma será un canal de compra venta basado en el sistema de descripción, por lo cual tanto la consolidadora como el concesionario tienen la obligación de cumplir con los atributos cualitativos y demás condiciones expuestas en los pedidos.

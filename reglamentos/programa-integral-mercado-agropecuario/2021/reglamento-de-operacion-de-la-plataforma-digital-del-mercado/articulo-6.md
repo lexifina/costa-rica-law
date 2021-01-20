@@ -1,0 +1,1 @@
+Artículo 6º—Será el PIMA a través de su organización institucional la encargada de supervisar la plataforma y el modelo de consolidación, en el cual participarán los Concesionarios del MRMRCH y los clientes demandantes de los productos que se comercializan en el Mercado Chorotega.

@@ -1,0 +1,1 @@
+Artículo 15.—El precio del producto será determinado conforme a los usos de plaza y las condiciones del mercado, por lo tanto el PIMA únicamente recabará, procesará y difundirá la información de los negocios transados en la plataforma, respetando la privacidad de cada concesionario.
