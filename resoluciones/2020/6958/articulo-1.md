@@ -93,6 +93,7 @@ CUARTO: Por la naturaleza de la actividad que desarrollan, la siguiente lista de
 7. Salas de eventos para actividades de máximo 30 personas (con medidas de separación de asientos de mínimo 1.8 metros, respetando las burbujas sociales y con listas de asistentes con número de cédula y número de contacto). En las 30 personas no se incluye el personal de logística del evento.
 8. Turismo aventura, con utilización obligatoria de mascarilla y adicional la careta de forma opcional, mientras se coloca y se retira el equipo de seguridad para realizar la actividad, y respetando las burbujas sociales.
 9. Playas y lagos, con previa aprobación de protocolos por el ICT con cada municipio.
+(Nota de Sinalevi: Mediante resolución N° MS-DM-1314-2021 del 26 de enero del 2021 se reforma de forma temporal la franja horaria del punto anterior , para que el horario de acceso a las playas a partir del 01 de febrero y hasta el 28 de febrero inclusive, sea desde las 5:00 horas y hasta las 18:00 horas)
 (Así reformado el inciso anterior por resolución N° MS-DM-8527-2020 del 14 de octubre del 2020)
 10. Deportes individuales, al aire libre o en espacio cerrado, sin público, según lista autorizada por el Ministerio del Deporte.
 11. Deportes de contacto para entrenamiento de las Selecciones Nacionales Femenina y Masculina de alta competencia; y competencias de la categoría de alto rendimiento o profesional, a puerta cerrada y sin público, según lista autorizada por el Ministerio del Deporte.
