@@ -14,3 +14,4 @@ Reglamento para la disposición al subsuelo de aguas residuales ordinarias trata
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-10-15 | la propia norma |
+| 2 | 2021-01-21 | Decreto Ejecutivo 42869 (2021-01-21) |
