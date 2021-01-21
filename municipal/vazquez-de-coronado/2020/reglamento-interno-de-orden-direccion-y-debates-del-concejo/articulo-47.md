@@ -1,0 +1,1 @@
+Artículo 47. La Secretaría del Concejo Municipal debe abrir un expediente, ya sea físico o digital, a cada asunto puesto en conocimiento del Concejo, el cual será debidamente foliado desde el inicio del proceso. A ese expediente anexará las mociones presentadas, los acuerdos tomados, las deliberaciones que consten en actas y toda la documentación que se haya conocido.

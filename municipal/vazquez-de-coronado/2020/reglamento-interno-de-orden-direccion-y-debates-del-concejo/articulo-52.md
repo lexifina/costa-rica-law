@@ -1,0 +1,1 @@
+Artículo 52. Cuando el acta presente omisiones, errores o modificaciones respecto a lo ocurrido en la sesión, los miembros del Concejo interesados procederán a manifestar las razones, aclaraciones, enmiendas o adiciones que estimen necesarias, las cuales serán consignadas como objeciones en el acta de la sesión siguiente.

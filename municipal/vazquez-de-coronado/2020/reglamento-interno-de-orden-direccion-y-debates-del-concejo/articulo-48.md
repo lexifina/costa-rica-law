@@ -1,0 +1,2 @@
+Artículo 48. La persona titular de la Secretaría del Concejo será el funcionario encargado de transcribir las actas del Concejo, en las que hará constar los acuerdos tomados y, en forma sucinta, las deliberaciones efectuadas, salvo cuando se trate de nombramientos o elecciones, en donde solo se hará constar el acuerdo tomado.
+Cuando una regiduría desee que su intervención conste textualmente en el acta, deberá manifestarlo de esa manera.

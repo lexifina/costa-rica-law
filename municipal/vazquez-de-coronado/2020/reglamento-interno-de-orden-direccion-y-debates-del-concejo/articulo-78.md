@@ -1,0 +1,1 @@
+Artículo 78. Todo acuerdo, que así lo requiera, deberá contar con el dictamen de una Comisión, o después de considerarse suficientemente discutido el asunto, se someterá a votación. El dictamen de Comisión podrá dispensarse, por medio de una votación de mayoría calificada.

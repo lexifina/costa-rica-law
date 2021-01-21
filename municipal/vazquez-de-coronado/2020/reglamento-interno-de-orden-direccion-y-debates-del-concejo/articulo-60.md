@@ -1,0 +1,2 @@
+Artículo 60. La Presidencia del Concejo tendrá la potestad de sustituir a un integrante de una comisión permanente o especial cuando, de manera injustificada, se ausente a tres sesiones consecutivas o a seis sesiones alternas, en un periodo de dos meses. Esta situación deberá constar en actas de la respectiva sesión del Concejo.
+La modificación de los nombramientos en las comisiones debe estar adecuadamente justificada, motivada y razonada, y se compruebe que se realiza a efectos de asegurar la la eficiencia de la comisión en la gestión de sus competencias.

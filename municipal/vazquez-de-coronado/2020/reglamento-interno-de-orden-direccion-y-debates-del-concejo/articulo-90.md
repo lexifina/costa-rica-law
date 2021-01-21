@@ -1,0 +1,2 @@
+Artículo 90. Los proyectos de presupuesto extraordinario y los de modificaciones internas o externas, deberán ser presentados a la Presidencia Municipal, con copia para cada fracción, cuando menos con ocho días de antelación, a aquel en que se conocerá en el Concejo Municipal.
+Los presupuestos extraordinarios y las modificaciones externas, podrán ser conocidos por el Concejo en sesiones ordinarias o extraordinarias.

@@ -1,0 +1,1 @@
+Artículo 32. El espacio de regidurías y sindicaturas será punto en agenda en todas las sesiones. En dicho punto se conocerán las mociones de las personas regidoras y/o los temas que las sindicaturas deseen presentar sobre temas de sus distritos, y el tiempo se regulará según lo establecido para las mociones en el presente reglamento.

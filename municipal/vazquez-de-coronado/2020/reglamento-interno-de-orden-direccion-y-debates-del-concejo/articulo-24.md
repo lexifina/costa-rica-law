@@ -1,0 +1,1 @@
+Artículo 24. No será necesario que consten en el acta las manifestaciones propias de las regidurías con respecto a la moción, salvo que estos así lo deseen y se lo hagan saber en ese momento a la Secretaría de Concejo. Si no realiza la previsión anterior, la Secretaría deberá consignar solo una síntesis en el acta respectiva.

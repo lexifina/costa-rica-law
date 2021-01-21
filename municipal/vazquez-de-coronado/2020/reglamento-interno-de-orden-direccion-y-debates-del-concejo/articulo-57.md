@@ -1,0 +1,1 @@
+Artículo 57. El secretario de la comisión elaborará el orden del día, ajustándose al orden en que los asuntos fueron recibidos en la comisión. El secretario será responsable del manejo de los expedientes, cuyos originales se conservarán en la Secretaría del Concejo.

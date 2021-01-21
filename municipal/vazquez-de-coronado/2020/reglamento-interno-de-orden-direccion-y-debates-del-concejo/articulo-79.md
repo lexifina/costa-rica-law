@@ -1,0 +1,2 @@
+Artículo 79. Se podrá declarar el acuerdo definitivamente aprobado cuando el Concejo lo estime conveniente, por razones de oportunidad y conveniencia, y previa justificación adecuada, por votación de las dos terceras partes o mayoría calificada podrá declarar sus acuerdos como definitivamente aprobados; en este caso no procede el recurso de revisión.
+Salvo el caso de los acuerdos definitivamente aprobados; los acuerdos tomados por el Concejo, quedarán en firme al aprobarse el acta respectiva.

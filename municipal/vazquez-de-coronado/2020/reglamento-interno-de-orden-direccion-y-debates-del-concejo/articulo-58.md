@@ -1,0 +1,1 @@
+Artículo 58. Cada comisión deberá contar con un libro de actas, ya sean físicos o digitales, debidamente legalizado por la Auditoría Interna institucional, de conformidad con las competencias que al efecto le señala la Ley General de Control Interno. Corresponderá a la Secretaría del Concejo la custodia de dichos libros.

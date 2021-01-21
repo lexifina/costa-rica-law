@@ -1,0 +1,1 @@
+Artículo 4. Las sesiones del Concejo Municipal son públicas. La ciudadanía podrá observar su desarrollo desde el lugar habilitado para ese efecto. Adicionalmente, la Administración Activa Municipal deberá garantizar la transmisión, de forma adecuada, en tiempo real de las sesiones del Concejo, por medio de las plataformas virtuales de mayor alcance.

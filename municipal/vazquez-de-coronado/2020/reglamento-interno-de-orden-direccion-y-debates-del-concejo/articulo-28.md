@@ -1,0 +1,5 @@
+CAPÍTULO VI
+NORMAS QUE RIGEN EL DEBATE Y LAS VOTACIONES
+Artículo 28. Salvo en los casos en que este reglamento determine un lapso diferente, los miembros del Concejo y el alcalde podrán hacer uso de la palabra para referirse al asunto en discusión, previa autorización de la Presidencia Municipal, por un máximo de cinco minutos y con derecho a una única réplica de igual tiempo, pudiendo ceder total o parcialmente su tiempo de uso de la palabra a otro participante.
+La Presidencia Municipal podrá solicitar a quien se encuentre haciendo uso de la palabra, que se concrete al asunto en debate. En caso de renuencia, podrá retirarle el uso de la palabra. Si no hay ningún asunto en discusión, la Presidencia Municipal no concederá el uso de la palabra.
+El control de las solicitudes para hacer uso de la palabra y el control de los períodos de tiempo correspondientes se efectuarán mediante un medio electrónico. Mientras no se cuente con el medio electrónico, la Presidencia Municipal llevará el control manualmente.

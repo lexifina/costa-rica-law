@@ -1,0 +1,1 @@
+Artículo 63. Los informes o dictámenes de comisión se enviarán vía correo electrónico a la Secretaría del Concejo, a más tardar tres horas antes de la sesión municipal donde serán presentados al pleno. La Coordinación de cada comisión los someterá a conocimiento del Concejo.

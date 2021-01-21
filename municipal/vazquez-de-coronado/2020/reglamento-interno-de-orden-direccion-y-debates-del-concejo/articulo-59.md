@@ -1,0 +1,1 @@
+Artículo 59. El día y la hora de reunión serán acordadas por las diferentes comisiones, tanto ordinarias como extraordinarias, deberá ser del conocimiento del Concejo y la Secretaría del Concejo, y no se podrá variar, salvo casos de excepción y por acuerdo calificado de sus integrantes.

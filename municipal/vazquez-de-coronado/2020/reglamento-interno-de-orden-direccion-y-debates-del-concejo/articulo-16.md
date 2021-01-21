@@ -1,0 +1,1 @@
+Artículo 16. Cuando se convoque a sesión extraordinaria estando en una sesión ordinaria, se tendrá por notificadas a las personas presentes sin necesidad de ulterior trámite. En caso de ser necesario, la convocatoria se realizará por el medio señalado por cada miembro del Concejo. Quien reciba la convocatoria escrita, deberá firmar una copia como recibida.
