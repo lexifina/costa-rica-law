@@ -13,3 +13,4 @@ Adición de la Circular N° 60-2012 sobre “Pago de horas extras a personal té
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-11-15 | la propia norma |
+| 2 | 2021-01-21 | Circular 293 (2021-01-21) |
