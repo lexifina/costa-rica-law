@@ -1,4 +1,4 @@
-Artículo 19.—Además de las contempladas en el artículo anterior y en otros del presente Reglamento, las jefaturas tendrán las siguientes obligaciones:
+Artículo 19.-Además de las contempladas en el artículo anterior y en otros del presente Reglamento, las jefaturas tendrán las siguientes obligaciones:
 a) Recibir y tramitar ante la Unidad de Recursos Humanos Nivel Central o ante la Unidad de Apoyo Administrativo en el nivel Regional, con un mínimo de un mes de antelación a la fecha de inicio, la documentación referente a los permisos de capacitación.
 b) Velar porque sus colaboradores se mantengan actualizados en los conocimientos propios de sus funciones. Además de las políticas, estrategias y demás disposiciones del quehacer institucional.
 c) Informar por escrito periódicamente a sus superiores jerárquicos todo lo referente a la marcha de su respectiva dependencia. No obstante lo hará en forma inmediata cuando surjan asuntos que requieran pronta atención.
@@ -22,3 +22,7 @@ t) Velar porque sus subalternos no incurran en prácticas discriminatorias hacia
 (Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 39467 del 10 de noviembre del 2015)
 u) Mantener actualizados los Registros de Inventario de Bienes en el Sistema SIBINET o en el Sistema que la Administración diseñe para tal fin, teniendo la obligación de presentar las Certificaciones e Informes Trimestrales y Anuales que se soliciten por parte de la Proveeduría Institucional.
 (Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 40146 del 25 de noviembre de 2016)
+v) Promover ambientes laborales inclusivos.
+(Así adicionado el inciso anterior por el artículo °1 del decreto ejecutivo N° 42834 del 21 de enero del 2021)
+w) Utilizar lenguaje inclusivo.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 42834 del 21 de enero del 2021)

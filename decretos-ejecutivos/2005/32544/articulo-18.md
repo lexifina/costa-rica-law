@@ -1,6 +1,6 @@
 CAPÍTULO VII
 De los deberes
-Artículo 18.—Aparte de lo dispuesto en el Estatuto de Servicio Civil y su Reglamento, otras disposiciones normativas del presente Reglamento, la Ley General de la Administración Pública, el Código de Trabajo, estos dos últimos de aplicación supletoria en ausencia de norma en los primeros, son obligaciones de los servidores:
+Artículo 18.-Aparte de lo dispuesto en el Estatuto de Servicio Civil y su Reglamento, otras disposiciones normativas del presente Reglamento, la Ley General de la Administración Pública, el Código de Trabajo, estos dos últimos de aplicación supletoria en ausencia de norma en los primeros, son obligaciones de los servidores:
 a) Vestir durante las horas de trabajo adecuadamente y en relación directa con el trabajo que desempeña. El superior inmediato será el responsable de velar por el cumplimiento de esta disposición.
 b) Atender cortés y diligentemente a los funcionarios de la Institución y usuarios en general, cuando acudan a las diferentes dependencias de la Institución en busca de determinado servicio.
 c) Cuidar las instalaciones físicas en donde está ubicada la dependencia en la que desarrolla sus labores y velar por su mantenimiento y conservación.
@@ -36,3 +36,7 @@ cc) Es deber ineludible de las personas servidoras la no concurrencia de accione
 (Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 39467 del 10 de noviembre del 2015)
 dd) Velar para que en los registros institucionales, procedimientos administrativos y de comunicación, se respete la identidad de género.
 (Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 39467 del 10 de noviembre del 2015)
+ee) Promover ambientes laborales inclusivos.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 42834 del 21 de enero del 2021)
+ff) Utilizar lenguaje inclusivo.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 42834 del 21 de enero del 2021)

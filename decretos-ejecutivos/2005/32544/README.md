@@ -17,3 +17,4 @@ Reglamento Autónomo de Servicio del Ministerio de Salud
 | 2 | 2008-08-29 | Decreto Ejecutivo 34866 (2008-08-29) |
 | 3 | 2015-11-10 | Decreto Ejecutivo 39467 (2015-11-10) |
 | 4 | 2016-11-25 | Decreto Ejecutivo 40146 (2016-11-25) |
+| 5 | 2021-01-21 | Decreto Ejecutivo 42834 (2021-01-21) |
