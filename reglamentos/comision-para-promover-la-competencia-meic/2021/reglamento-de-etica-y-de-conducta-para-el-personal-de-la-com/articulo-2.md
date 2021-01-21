@@ -1,0 +1,2 @@
+Artículo 2°-Ámbito de aplicación
+El Reglamento es de aplicación a todos los funcionarios de la COPROCOM, entendiéndose por tales, a los efectos de la presente normativa, toda aquella persona que desempeña una función o presta un servicio a la institución, con independencia de la naturaleza jurídica del vínculo. Las personas a las que se aplica este Reglamento tienen el deber de familiarizarse con sus normas y de consultar ante el Órgano Superior, cuando tengan dudas sobre su alcance o aplicación.

@@ -1,0 +1,3 @@
+Artículo 5°-Actividades externas
+Ningún empleado de la COPROCOM deberá realizar actividades, retribuidas o no, que impidan o menoscaben el estricto cumplimiento de sus deberes como funcionario de la Comisión que comprometa su imparcialidad o independencia o pueda originar conflicto de intereses o perjudique los intereses de la Comisión para Promover la Competencia.
+No obstante, en caso de que realicen alguna actividad profesional como la docencia que resulte compatible ya sea directamente o mediante autorización previa, deberán proceder siempre de manera que no se interfiera con su trabajo habitual en la Comisión, cumpliendo las normas de conducta, respetando el deber de secreto y no generando conflictos de intereses.

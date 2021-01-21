@@ -1,0 +1,2 @@
+Artículo 3°-Alcance
+La aplicación de las disposiciones de este Reglamento es sin perjuicio de las normas constitucionales, legales, estatutarias y reglamentarias vigentes en la materia o aquellas que en un futuro las reemplacen o modifiquen. Cualquier transgresión a las obligaciones de esta normativa y sin perjuicio de lo que al respecto se prevea en los ordenamientos antes citados, será considerada falta y sancionada conforme las disposiciones vigentes.

@@ -1,0 +1,2 @@
+Artículo 18.-Prohibición de utilización de información reservada tras el cese de la relación laboral
+Los funcionarios que hayan terminado su relación laboral con la COPROCOM o colaboradores que estén en situación de prácticas académicas tales como pasantías o prácticas profesionales, deberán observar las normas relativas al uso o divulgación de información reservada. En particular, no deberán utilizar ni divulgar información reservada a la que hayan podido tener acceso por razón de su trabajo y tampoco deberán solicitar este tipo de información a sus antiguos compañeros.
