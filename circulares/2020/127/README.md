@@ -13,3 +13,4 @@ Lineamientos generales para la atención de casos durante la emergencia del COVI
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-06-25 | la propia norma |
+| 2 | 2021-01-22 | Circular 286 (2021-01-22) |
