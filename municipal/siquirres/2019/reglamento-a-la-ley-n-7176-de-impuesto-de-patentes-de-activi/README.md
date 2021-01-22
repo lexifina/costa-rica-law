@@ -14,3 +14,4 @@ Reglamento a la ley N° 7176 de Impuesto de Patentes de Actividad
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-07-10 | la propia norma |
+| 2 | 2021-01-22 | Reglamento municipal 0 (2021-01-22) |
