@@ -1,2 +1,0 @@
-Artículo 23.—Cuando se trate de vacaciones, o permisos para cursos de capacitación, el auditor interno podrá acordarlos directamente con el Alcalde de la Municipalidad, siempre y cuando las mismas no sobrepasen de dos días dentro de un mismo mes.
-En caso de sobrepasarse la cantidad de dos días por mes, el Auditor Interno deberá de solicitar las vacaciones o permisos, directamente al Concejo Municipal de Alvarado, según lo establecido en nuestra legislación laboral.

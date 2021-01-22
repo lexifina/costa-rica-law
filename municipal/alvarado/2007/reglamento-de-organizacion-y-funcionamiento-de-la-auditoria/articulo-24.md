@@ -1,1 +1,0 @@
-Artículo 24.—El Auditor Interno tiene la obligación de mantener debidamente actualizado y podrá proponer las modificaciones que considere oportunas al presente reglamento de conformidad con la Ley General de Control Interno.

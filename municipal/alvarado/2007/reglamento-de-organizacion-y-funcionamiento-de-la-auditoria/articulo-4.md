@@ -1,1 +1,0 @@
-Artículo 4º—Será obligación del Auditor Interno, establecer y actualizar en forma permanente, la visión y misión de la Auditoría Interna de la Municipalidad de Alvarado. Asimismo lo concerniente a procedimientos y políticas propias de su desempeño profesional, acorde con los cambios institucionales, técnicos y la normativa legal que le sea aplicable.
