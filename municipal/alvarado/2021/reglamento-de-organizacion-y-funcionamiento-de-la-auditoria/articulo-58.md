@@ -1,0 +1,1 @@
+Artículo 58 – Derogatoria. Deróguese el Reglamento de Organización y Funcionamiento de la Auditoría Interna de Municipalidad de Alvarado, publicado en el Diario Oficial La Gaceta N°84 del 02 de mayo del 2008, y cualquier otra normativa interna que se contraponga al presente Reglamento.

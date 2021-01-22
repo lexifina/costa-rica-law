@@ -1,0 +1,1 @@
+Artículo 37 – Comunicación respecto a las relaciones de hechos. Los informes de relaciones de hechos se ajustarán en su contenido a las disposiciones que establezca la Contraloría General de la República.

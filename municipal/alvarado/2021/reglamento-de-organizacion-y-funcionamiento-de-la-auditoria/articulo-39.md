@@ -1,0 +1,2 @@
+SECCIÓN SEXTA - Del seguimiento de las recomendaciones de la Auditoría Interna
+Artículo 39 – Del programa de seguimiento de recomendaciones. Le corresponde a la Auditoría Interna formular y ejecutar un programa de seguimiento dirigido a evaluar la efectividad en la implementación de las recomendaciones originadas en la prestación de los servicios de auditoría, de conformidad con el Manual de Políticas y Procedimientos de la Auditoría Interna.

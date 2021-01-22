@@ -1,0 +1,6 @@
+SECCIÓN QUINTA - De los informes
+Artículo 36 – Informes. La Auditoría Interna emitirá informes sobre los asuntos de su competencia y aquellos que pueden causar posibles responsabilidades para los funcionarios, exfuncionarios de la institución y terceros, de conformidad con la normativa técnica y legal.
+Dichos informes deberán ser elaborados bajo un lenguaje sencillo, adicionalmente deberán ser realizados de manera tal que no existan errores de interpretación, por lo que serán concisos e imparciales.
+Cuando de un estudio deriven recomendaciones sobre asuntos de control interno y sobre responsabilidades, la Auditoría Interna deberá comunicarlas en informes independientes según la materia que disponga.
+Los resultados, comentarios, conclusiones y recomendaciones de los estudios realizados por la Auditoría Interna deberán comunicarse oficialmente, mediante informes al Concejo Municipal, Alcaldía y/o a los titulares subordinados de la Municipalidad de Alvarado, con competencia y autoridad para ordenar la implementación de las recomendaciones señaladas por la Auditoría Interna, según lo establecido en los artículos N°36, N°37 y N°38 de la Ley General de Control Interno N°8292.
+Los informes de auditoría se comunicarán conforme a lo establecido en el Manual de Políticas y Procedimientos de la Auditoría Interna.
