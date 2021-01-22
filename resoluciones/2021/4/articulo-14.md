@@ -1,0 +1,3 @@
+Artículo 14. - Plazo para solicitar renovación.
+En caso de solicitarse una renovación de la autorización, deberá presentarse con una anticipación máxima de tres meses al vencimiento de la principal. Si se presenta con una anticipación mayor, la misma será rechazada por anticipada.
+En caso de que la solicitud de renovación sea presentada por los interesados dentro del término de dos meses anteriores al vencimiento de la autorización original, las donaciones que se efectúen durante el plazo que quede en descubierto entre una autorización y su renovación, no serán reconocidas por la Administración Tributaria para efectos de su deducción como gasto del impuesto sobre la renta del donante, esto por cuanto el interesado en este período no posee una autorización vigente.

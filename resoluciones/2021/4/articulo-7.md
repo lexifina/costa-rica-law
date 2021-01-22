@@ -1,0 +1,2 @@
+Artículo 7°. - Entes que no requieren autorización para recibir donaciones:
+Los entes mencionados en el artículo 1°, incisos 1), 2), 3), 4), 5), 6), 7), 11) y 12 de esta resolución, el Servicio Nacional de Guardacostas, el Comité Olímpico Nacional, y los Comités Cantonales de Deportes y Recreación, no requieren realizar la solicitud de autorización ante la Administración Tributaria para recibir donaciones.
