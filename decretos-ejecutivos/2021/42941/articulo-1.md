@@ -1,0 +1,19 @@
+N° 42941-MTSS
+EL PRESIDENTE DE LA REPÚBLICA
+Y LA MINISTRA DE TRABAJO Y SEGURIDAD SOCIAL
+Con fundamento en los incisos 3), 18), 20) del artículo 140 y artículo 146 de la Constitución Política; los numerales 24, 25, 27, y 28 inciso 2), subinciso a) y b) de la Ley General de la Administración Pública, Ley N° 6227 de 02 de mayo de 1978; en los artículos 1°, 2° y 6° de la Ley Orgánica del Ministerio de Trabajo y Seguridad Social, Ley N° 1860 del 21 de abril de 1955.
+Considerando:
+I.-Que mediante Decreto Ejecutivo N° 42227-MP-S del 16 de marzo del 2020, el Poder Ejecutivo "Declara estado de emergencia nacional en todo el territorio de la República de Costa Rica, debido a la situación de emergencia sanitaria provocada por la enfermedad COVID-19".
+II.-Que considerando la declaratoria de emergencia por la enfermedad COVID-19, en aras de buscar apoyar a los patronos con deuda, garantizar su bienestar económico y social y a su vez, sostener el tejido productivo, se emite el Decreto Ejecutivo N° 42478-MTSS, publicado en La Gaceta del 24 de julio del 2020 para flexibilizar las disposiciones contenidas en el Decreto Ejecutivo N° 40709-MTSS del 19 de junio del 2017, que regula el proceso de cobro a patronos con deuda al Fodesaf, así como las condiciones de arreglos de pago, con el objetivo de ofrecer a los patronos mejores condiciones para la suscripción de arreglos con la DESAF y de esta manera incentivar a los mismos a que estén al día con esta Dirección; y además puedan hacer trámites con la administración pública y financieros.
+III.-Que el artículo 10 del Decreto Ejecutivo N° 42478-MTSS citado, sobre el plazo de otorgamiento de los beneficios indica: ". se otorgará por un plazo de hasta tres meses, contabilizados a partir de la entrada en vigencia del presente Decreto; plazo que podrá será prorrogable hasta por un período igual, en caso de que se mantengan los efectos del suceso provocador y así lo acredite el patrono con deuda". Tomando en cuenta la fecha de vigencia del plazo que venció el 24 de enero del 2021.
+IV.-Que dado que la situación de emergencia provocada por la enfermedad COVID-19 y sus consecuencias en la economía del país se mantendrán por un plazo significativamente mayor al estimado inicialmente, es necesario reformar el artículo 10 del Decreto Ejecutivo N° 42478-MTSS, con la finalidad de extender sus efectos.
+V.-Que producto del Decreto Ejecutivo N° 42478-MTSS, el monto de pago inicial por concepto de arreglos de pago por deudas al Fodesaf, así como la cantidad de arreglos de pago formalizados, aumentaron considerablemente en los meses en que el Decreto estuvo vigente. Lo que coadyuvó a superar la meta anual establecida de recaudación por deuda morosa, y se consiguió un monto superior al de 2019, llevando más recursos de manera inmediata a los programas sociales, y ayudando a más empresas a mantenerse operando a pesar de las dificultades generadas por la Pandemia. Por tanto,
+Decretan:
+"REFORMA AL DECRETO EJECUTIVO N° 42478-MTSS,
+FLEXIBILIZACIÓN REGLAMENTARIA PARA AYUDA
+A PATRONOS CON DEUDA ANTE LA DESAF, COMO
+MEDIDA PROVISIONAL PARA ENFRENTAR
+LA SITUACIÓN DE EMERGENCIA
+ANTE EL COVID-19"
+Artículo 1º-Refórmese el artículo 10 del Decreto Ejecutivo N° 42478-MTSS, de fecha 26 de junio del 2020, denominado "Flexibilización Reglamentaria para Ayuda a Patronos con Deuda ante la DESAF, como Medida Provisional para Enfrentar la Situación de Emergencia ante el COVID-19", para que se lea de la siguiente forma:
+"Artículo 10.-Plazo de otorgamiento de los beneficios. La flexibilización de las disposiciones reglamentarias en beneficio de los patronos con deuda en la DESAF, se otorgará de forma indefinida, mientras se mantengan los efectos derivados por la declaratoria de emergencia emitida mediante Decreto Ejecutivo N° 42227-MP-S del 16 de marzo del 2020 y así lo acredite el patrono con deuda".
