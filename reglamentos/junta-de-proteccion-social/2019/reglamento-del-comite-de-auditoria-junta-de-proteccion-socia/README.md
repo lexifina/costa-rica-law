@@ -14,3 +14,4 @@ Reglamento del Comité de Auditoría Junta de Protección Social
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-10-18 | la propia norma |
+| 2 | 2021-01-25 | Reglamento 5 (2021-01-25) |

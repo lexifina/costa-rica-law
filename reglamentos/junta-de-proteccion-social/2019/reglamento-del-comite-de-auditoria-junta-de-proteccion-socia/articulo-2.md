@@ -1,2 +1,3 @@
-II.—De la Organización del Comité de Auditoría
-Artículo 2º—El Comité, estará integrado por al menos dos directores de la Junta Directiva, el o la Gerente General, el o la Gerente Financiero Administrativo, el o la Gerente de Producción y Comercialización y un representante de la Asesoría Jurídica. En todos los casos, los miembros del Comité tendrán la posibilidad de designar un representante, pero en ningún caso esa designación podrá ser permanente.
+II.-De la Organización del Comité de Auditoría
+Artículo 2º-El Comité, estará integrado por al menos tres directores de la Junta Directiva, de los cuales uno deberá tener formación profesional en temas de contabilidad y auditoría, en finanzas o en cualquier otra disciplina relacionada con las ciencias económicas.
+(Así reformado mediante sesión N° 05-2021 del 25 de enero de 2021)
