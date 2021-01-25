@@ -14,3 +14,4 @@ Reglamento Administración Cementerios a cargo Junta Protección Social
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1992-07-28 | la propia norma |
+| 2 | 2021-01-25 | Decreto Ejecutivo 42855 (2021-01-25) |
