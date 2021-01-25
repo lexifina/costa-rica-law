@@ -1,0 +1,1 @@
+Artículo 25.—Fugas domiciliarias. En el caso en que por cualquier circunstancia se determinen fugas no visibles dentro de la propiedad, previa inspección de funcionarios municipales, al abonado se le cobrará conforme a lo que establezca el medidor, para lo cual se le otorgará el beneficio del arreglo de pago.

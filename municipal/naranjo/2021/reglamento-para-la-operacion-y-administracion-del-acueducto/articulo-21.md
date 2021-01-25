@@ -1,0 +1,1 @@
+Artículo 21.—Hipoteca legal preferente. La deuda por servicio de agua potable impone hipoteca legal sobre el bien y bienes inmuebles en quién o quiénes recaen la obligación de pagarla de conformidad con el artículo 79 del Código Municipal, por lo tanto, la propiedad responde directamente sobre el valor adeudado del servicio que no se cancele.

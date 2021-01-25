@@ -1,0 +1,1 @@
+Artículo 2º—De aplicación. El presente reglamento regula la organización y funcionamiento del acueducto municipal, en lo relacionado con la prestación, operación y registro del consumo mensual del servicio de agua potable. La ejecución, cumplimiento y vigilancia de lo estipulado en el presente reglamento corresponde al Departamento del Acueducto Municipal y la Alcaldía Municipal.

@@ -1,0 +1,1 @@
+Artículo 20.—Responsabilidad de pago del abonado. Corresponde al abonado el pago del servicio de agua potable, cuando este dejare de pagarlo, el inquino podrá hacerlo y la Municipalidad le recibirá el pago correspondiente.

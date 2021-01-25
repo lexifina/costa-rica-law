@@ -1,0 +1,1 @@
+Artículo 31.—Procedimiento de suspensión. De conformidad con la jurisprudencia constitucional, la suspensión se realizará sin previa notificación una vez vencido el mes de servicio, sin que se haya cancelado el recibo puesto al cobro.

@@ -1,0 +1,1 @@
+Artículo 15.—Lectura de Hidrómetros. La lectura de los hidrómetros se hará en la segunda quincena de cada mes, poniéndose al cobro el primer día de cada mes, conforme al metraje cúbico registrado, venciendo el último día de cada mes.

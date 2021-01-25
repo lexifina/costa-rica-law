@@ -1,0 +1,1 @@
+Artículo 10.—Verificación de instalaciones. Previo de establecer la conexión de la paja de agua se deberá verificar que las instalaciones estén en buen estado, que no existan interconexiones que puedan dar lugar a contaminación de las aguas o puedan ocasionar perjuicios a los demás Usuarios.
