@@ -1,0 +1,1 @@
+Artículo 15.—Del recurso de revisión. De previo a la aprobación del acta, los regidores podrán interponer el recurso de revisión, contra los acuerdos no aprobados definitivamente. Para acordar la revisión se requerirá la misma mayoría que se requirió para tomar el acuerdo.

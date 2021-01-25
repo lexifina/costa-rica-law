@@ -1,0 +1,1 @@
+Artículo 45.—Comparecencia de funcionarios municipales. Cualquiera de los funcionarios de la Municipalidad podrá ser llamado al Concejo Municipal para que exponga situaciones de las que tenga conocimiento, en el ejercicio de sus funciones, a estos llamados deberán acudir sin recibir remuneración alguna, y no podrán negarse salvo por causa justa, debidamente demostrada.

@@ -1,0 +1,1 @@
+Artículo 20.—Tramitación de mociones. Las mociones y proposiciones de los regidores deberán presentarse de forma escrita y firmadas; antes o durante la sesión al momento de su presentación la secretaría anotará la hora y fecha en que fueron presentadas y se conocerán de acuerdo al orden de presentación, salvo que se trate de mociones de orden.

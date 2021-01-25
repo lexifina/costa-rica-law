@@ -1,0 +1,1 @@
+Artículo 18.—Tramitación de los dictámenes de Comisiones. Los dictámenes de las comisiones serán incluidos en el orden del día, siguiendo el orden en que fueron presentados a la Secretaría, para este efecto, la Secretaría al recibir los dictámenes deberá consignar la hora y fecha de presentación.

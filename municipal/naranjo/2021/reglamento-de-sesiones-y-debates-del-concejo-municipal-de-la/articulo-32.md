@@ -1,0 +1,4 @@
+Artículo 32.—Sobre las votaciones. Una vez que esté suficientemente discutido un asunto la Presidencia del Concejo lo someterá a votación, una vez corroborado el quórum y cuando todos los regidores se encuentren en sus curules.
+El voto deberá ser necesariamente afirmativo o negativo y podrá razonarse el voto; esa intervención no podrá exceder los 3 minutos y deberá circunscribirse al tema en discusión, objeto de la votación.
+No procede la abstención en las votaciones de los temas que deban resolverse y que, para tal fin, son sometidos a conocimiento de los miembros del Concejo Municipal.
+En los casos de prohibiciones, inhibitorias, excusas o recusaciones, previstas en la legislación vigente, lo procedente se resolverá de conformidad con lo regulado en el artículo 46 del presente reglamento.

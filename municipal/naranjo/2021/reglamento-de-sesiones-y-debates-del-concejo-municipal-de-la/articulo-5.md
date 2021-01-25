@@ -1,0 +1,2 @@
+Artículo 5º—De la convocatoria a sesiones extraordinarias. Las sesiones extraordinarias deberán convocarse con al menos 24 horas de anticipación, la convocatoria deberá hacerse llegar, a la totalidad de regidores propietarios y suplentes y síndicos propietarios y suplentes.
+La notificación de la convocatoria se hará llegar por el medio que se haya señalado, siendo válidos cualesquiera de los medios admitidos por la Ley de Notificaciones vigente. De dicha comunicación, la Secretaría del Concejo Municipal deberá custodiar la constancia respectiva.

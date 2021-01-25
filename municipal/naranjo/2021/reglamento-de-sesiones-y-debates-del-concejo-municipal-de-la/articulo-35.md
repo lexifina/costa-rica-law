@@ -1,0 +1,1 @@
+Artículo 35.—De la conformación de las Comisiones. En la sesión inmediata siguiente a la instalación de sus miembros del Concejo Municipal, la Presidencia del Concejo Municipal, nombrará a los integrantes de la Comisiones Permanentes y su conformación podrá variarse anualmente.

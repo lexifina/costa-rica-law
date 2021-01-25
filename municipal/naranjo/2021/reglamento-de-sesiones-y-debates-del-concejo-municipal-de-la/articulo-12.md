@@ -1,0 +1,4 @@
+Artículo 12.—Publicidad. De acuerdo con lo señalado por el Código Municipal y el presente reglamento, todas las sesiones del Concejo Municipal serán públicas. De la misma manera son públicas las actas de dichas sesiones.
+Cualquier ciudadano podrá asistir a las sesiones del Concejo Municipal, siempre que guarde el respeto debido.
+La intervención del público se permitirá, previa audiencia, solicitada al Concejo Municipal, o por autorización de éste, mediante acuerdo unánime de los regidores con derecho a voto que se encuentren presentes en la sesión en la que se solicita la intervención.
+Las sesiones municipales podrán ser trasmitidas en directo, por la municipalidad o medios de comunicación, cumpliendo con las disposiciones, regulaciones y procedimientos, que sobre el particular emita oportunamente el Concejo Municipal.

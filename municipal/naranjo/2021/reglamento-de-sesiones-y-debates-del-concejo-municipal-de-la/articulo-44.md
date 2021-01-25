@@ -1,0 +1,3 @@
+Artículo 44.—De la realización de las audiencias. El día de la audiencia, quien preside realizará la presentación de rigor y expondrá los motivos de la audiencia a los demás miembros del Concejo Municipal, y de inmediato les concederá la palabra a los solicitantes.
+La exposición deberá ser breve y concisa y deberá sujetarse a un plazo de 5 minutos, pudiendo prorrogarse por 3 minutos más, si la situación lo amerita La presidencia en uso de sus atribuciones podrá moderar las intervenciones de los particulares y suspender la audiencia si el caso lo amerita.
+Finalizada la exposición podrán los regidores referirse a lo expuesto siguiendo las reglas del uso de la palabra.

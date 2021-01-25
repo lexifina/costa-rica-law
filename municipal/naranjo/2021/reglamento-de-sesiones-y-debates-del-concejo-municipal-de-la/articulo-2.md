@@ -1,0 +1,3 @@
+Artículo 2º—De las sesiones ordinarias. Las sesiones ordinarias se realizarán el día y la hora que el Concejo Municipal determine, previa publicación en el Diario Oficial La Gaceta.
+Para la hora de inicio de la sesión, se tomará la que señale el reloj del Salón de Sesiones, de no haber reloj o éste se encuentre dañado, se tomará la hora del reloj de quien ejerza la presidencia del Concejo Municipal. Las sesiones ordinarias que coincidan con la celebración de algún feriado o una efeméride se celebrarán el día hábil siguiente.
+Tanto el día como la hora de las sesiones ordinarias podrán ser modificados por acuerdo de mayoría absoluta o simple del Concejo Municipal en cualquier momento, previa publicación en el Diario Oficial La Gaceta.

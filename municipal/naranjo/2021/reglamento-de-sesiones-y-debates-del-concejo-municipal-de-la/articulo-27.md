@@ -1,0 +1,1 @@
+Artículo 27.—Recursos contra los acuerdos municipales. Contra los acuerdos tomados directamente por el Concejo Municipal, o contra los que tome conociendo en alzada una apelación contra algún órgano municipal jerárquicamente inferior, cabrán los recursos de revocatoria y apelación. Salvo las excepciones previstas en el artículo 163 del Código Municipal.
