@@ -1,0 +1,1 @@
+Artículo 8.—La Comisión de Licitaciones no tendrá ninguna participación en contrataciones cuya estimación sea inferior al límite establecido para la contratación directa. Salvo casos específicos calificados que a criterio de la presidencia de la Comisión someta a conocimiento de la Comisión de Licitaciones.

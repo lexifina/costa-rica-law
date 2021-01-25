@@ -1,0 +1,1 @@
+Artículo 6º—Las sesiones de la Comisión de Licitaciones se realizarán en forma presencial, virtual o mixta, en caso de que sea virtual o mixta se indicará en el acta la dirección electrónica o dirección física en que cada miembro participa.

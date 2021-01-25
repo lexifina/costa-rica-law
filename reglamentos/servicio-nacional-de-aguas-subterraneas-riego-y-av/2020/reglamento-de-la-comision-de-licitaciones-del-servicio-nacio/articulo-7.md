@@ -1,0 +1,1 @@
+Artículo 7º—El quórum para sesionar será de cinco miembros ordinarios. Las decisiones se tomarán por mayoría simple de los miembros presentes. En caso de empate la Presidencia contará con doble voto. Los acuerdos quedan en firme desde el momento que se adoptan, salvo que la Comisión apruebe lo contrario para casos específicos.

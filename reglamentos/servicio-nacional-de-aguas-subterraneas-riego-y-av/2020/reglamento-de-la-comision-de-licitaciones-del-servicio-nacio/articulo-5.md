@@ -1,0 +1,1 @@
+Artículo 5º—La Comisión de Licitaciones sesionará ordinariamente una vez por semana, extraordinariamente cuando se requiera. El presidente de la Comisión de Licitaciones podrá suspender la sesión si no hay temas a tratar.
