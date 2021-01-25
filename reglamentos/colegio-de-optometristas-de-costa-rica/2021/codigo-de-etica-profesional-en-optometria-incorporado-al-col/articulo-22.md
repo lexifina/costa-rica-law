@@ -1,0 +1,1 @@
+Artículo 22do. Es deber de todo Optometrista informar por escrito al Tribunal de Ética del Colegio de Optometristas de Costa Rica, de cualquier acto contra la ética profesional, cometido por algún colega.

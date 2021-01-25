@@ -1,0 +1,1 @@
+Artículo 23ro. El Optometrista en su ejercicio profesional, debe abstenerse de realizar prácticas de competencia desleal. Prácticas que serán calificadas por el Tribunal de Ética del Colegio de Optometristas de Costa Rica.

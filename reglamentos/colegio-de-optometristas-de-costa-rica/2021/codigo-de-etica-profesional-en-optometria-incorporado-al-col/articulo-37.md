@@ -1,0 +1,1 @@
+Artículo 37mo. El Optometrista deberá siempre buscar y aceptar la colaboración de profesionales afines o complementarias haciendo las remisiones necesarias en forma oportuna y devolviendo las hechas a él con la información completa que haya sido solicitada.

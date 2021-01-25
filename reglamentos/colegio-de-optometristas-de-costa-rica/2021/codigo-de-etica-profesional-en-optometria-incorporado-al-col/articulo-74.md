@@ -1,0 +1,2 @@
+Artículo 74to. Recibido el proceso por el Tribunal de É tica será repartido y el ponente dispondrá de quince (15) días hábiles contados a partir de la fecha en que entre a su despacho para presentar el proyecto y la Sala de otros quince (15) días para proferir la decisión de fondo.
+Si el ponente o la sala considerare necesaria la práctica de pruebas para aclarar puntos oscuros o dudosos, las decretará de oficio y fijará para su práctica un término no superior a treinta (30) días.

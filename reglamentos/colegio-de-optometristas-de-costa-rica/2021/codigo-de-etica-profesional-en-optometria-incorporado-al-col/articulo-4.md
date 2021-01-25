@@ -1,0 +1,1 @@
+Artículo 4to. Los servicios de Optometría se fundamentan en la libre elección del Optometrista por parte del paciente: En el trabajo institucional se respetará, en lo posible, este derecho y de acuerdo a la Ley General de la Salud.

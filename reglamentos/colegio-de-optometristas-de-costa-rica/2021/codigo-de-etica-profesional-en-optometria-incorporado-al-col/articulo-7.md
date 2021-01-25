@@ -1,0 +1,1 @@
+Artículo 7mo. La actitud del Optometrista ante el paciente será siempre de apoyo, evitará todo comentario que despierte injustificada preocupación y no hará pronóstico de las alteraciones visuales y enfermedades oculares sin las suficientes bases científicas.

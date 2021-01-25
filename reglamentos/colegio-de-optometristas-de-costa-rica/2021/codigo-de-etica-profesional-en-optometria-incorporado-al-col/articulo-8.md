@@ -1,0 +1,2 @@
+Artículo 8vo. El Optometrista mantendrá su consultorio con el decoro y la responsabilidad que requiere el ejercicio profesional, manteniendo en él, la dotación y los elementos esenciales para la prestación del servicio de optometría de acuerdo con las leyes vigentes del Colegio de Optometristas de Costa Rica.
+Le está prohibido ejecutar o permitir que se ejecute en él cualquier acto contrario a la ley, a la mora] o a la dignidad y autonomía del paciente.

@@ -1,0 +1,2 @@
+Artículo 21ro. Todo disentimiento profesional irreconciliable entre Optometristas será dirimido por los Tribunales Seccionales de Ética del Colegio de Optometristas de Costa Rica, quienes actuarán en principio como amigables componedores.
+No constituyen actitudes contrarias a la ética, las diferencias de criterio u opinión con relación al paciente o en general sobre ternas optométricos, siempre que estén basadas en argumentos científicos y técnicos que las justifiquen y sean manifestadas en forma respetuosa.

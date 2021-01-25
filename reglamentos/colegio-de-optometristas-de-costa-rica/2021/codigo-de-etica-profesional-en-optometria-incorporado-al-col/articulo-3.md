@@ -1,0 +1,4 @@
+CAPÍTULO III
+PRÁCTICA PROFESIONAL
+Artículo 3ro. De las relaciones del optometrista con el paciente: El Optometrista dispensará los beneficios de su profesión a todas las personas que los necesiten, sin más limitaciones que las expresamente señaladas en la legislación vigente en este código y rehusará la prestación de sus servicios en actos que sean contrarios a la moral y a las buenas costumbres, o cuando existan condiciones que interfieran su libre y correcto ejercicio.
+Así mismo todo niño o niña, adolescente menor de 18 años, persona con discapacidad física o mental (que comprometa su entendimiento o desenvolvimiento) para el examen, diagnóstico y tratamiento de optometría, deberá estar acompañado de una persona(s) adulta (s). En el caso de un adulto mayor se recomienda estar acompañado por una persona adulta.

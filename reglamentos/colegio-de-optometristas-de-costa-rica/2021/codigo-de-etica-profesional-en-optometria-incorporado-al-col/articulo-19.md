@@ -1,0 +1,1 @@
+Artículo 19no. El Optometrista se concretará exclusivamente a la atención de su especialidad cuando se trate de un paciente remitido. No hará tratamientos distintos, aun cuando lo solicite el paciente, sin el previo conocimiento y aceptación del colega remitente.

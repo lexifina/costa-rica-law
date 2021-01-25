@@ -1,0 +1,1 @@
+Artículo 4lro. Por cuanto todo grupo procura la unión, la solidaridad y la fuerza requerida para desarrollar programas que beneficien a la profesión, es necesario que el Optometrista preste su colaboración para ello.

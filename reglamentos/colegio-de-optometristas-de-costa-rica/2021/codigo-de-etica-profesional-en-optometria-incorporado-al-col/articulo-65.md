@@ -1,0 +1,1 @@
+Artículo 65to. En caso de duda sobre la procedencia de la iniciación del proceso, el fiscal iniciará una investigación preliminar por un término no mayor de un (1) mes, con el fin de establecer si la conducta se ha realizado, si es o no constitutiva de falta a la ética e identificar al Optometrista que en ella haya incurrido.

@@ -1,0 +1,2 @@
+Artículo 71ro. El fallo será absolutorio o sancionatorio. No se podrá dictar fallo sancionatorio sino existe certeza sobre la comisión del hecho violatorio de las normas contenidas en el presente reglamento y la responsabilidad del Optometrista acusado.
+La parte resolutoria del fallo se proferirá con la siguiente formula: "El Tribunal de Ética del Colegio de Optometristas de Costa Rica por mandato del reglamento decide".

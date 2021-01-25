@@ -1,0 +1,1 @@
+Artículo 29no. El Optometrista cumplirá a cabalidad sus deberes profesionales y administrativos, así como el horario de trabajo y demás compromisos a que esté obligado en la institución donde presta sus servicios.

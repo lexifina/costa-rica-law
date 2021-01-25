@@ -1,0 +1,2 @@
+Artículo 55to. Las sanciones consistentes en censura pública y suspensión temporal se publicarán en lugares visibles del Tribunal de Ética del Colegio de Optometristas de Costa Rica, del Ministerio de Salud, La C.C.S.S. de Costa Rica, Facultad de Optometría, entes relacionadas con la Optometría y se anotarán en el registro del Colegio de Optometristas.
+Ejecutoriado el fallo que sanciona un Optometrista, deberá darse la comunicación receptiva a las autoridades mencionadas en el presente artículo

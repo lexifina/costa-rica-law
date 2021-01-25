@@ -1,0 +1,1 @@
+Artículo 11ro. El Optometrista deberá hacer las remisiones, interconsultas y contraremisiones a otros profesionales en los casos que no corresponda a su manejo profesional o requiera para complementar su diagnóstico o su trata miento.

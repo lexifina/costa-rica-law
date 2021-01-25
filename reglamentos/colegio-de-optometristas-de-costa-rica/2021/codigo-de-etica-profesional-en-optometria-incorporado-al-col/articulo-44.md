@@ -1,0 +1,1 @@
+Artículo 44to. El Optometrista será miembro activo de la sociedad, apoyando todas las iniciativas y actividades que procuren el bienestar de la comunidad, especialmente aquellas relacionadas con el ejercicio de la salud y el bienestar de la optometría.

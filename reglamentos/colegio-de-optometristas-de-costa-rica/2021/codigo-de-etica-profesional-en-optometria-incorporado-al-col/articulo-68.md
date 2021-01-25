@@ -1,0 +1,2 @@
+Artículo 68vo. Formulados los cargos contra el profesional investigado, debe procederse a su notificación personal para que dentro de los diez (10) días hábiles siguientes a su notificación ejerza su derecho a la defensa y presente los descargos.
+Si ello fuere posible, así se hará constar y se le notificará por edicto que será fijado durante veinte (20) días hábiles en la Secretaría del Tribunal, al cabo de los cuales sino comparece se le designará un apoderado de oficio para garantizarle plenamente su defensa y el derecho al debido proceso.

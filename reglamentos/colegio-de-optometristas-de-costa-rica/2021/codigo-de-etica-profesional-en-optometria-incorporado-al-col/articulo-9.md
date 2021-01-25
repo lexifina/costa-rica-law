@@ -1,0 +1,1 @@
+Artículo 9no. El Optometrista dedicará a su paciente el tiempo necesario para hacer una evaluación adecuada de su salud visual, estableciendo el diagnóstico y realizando la prescripción correspondiente. De ser necesario, ordenará los exámenes complementarios que precisen o aclaren el diagnóstico.

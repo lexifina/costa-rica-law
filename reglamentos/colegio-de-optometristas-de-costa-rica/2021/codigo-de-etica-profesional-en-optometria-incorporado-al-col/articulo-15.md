@@ -1,0 +1,1 @@
+Artículo 15to. Cuando se presenten diferencias entre el Optometrista y el paciente con respecto a los servicios prestados, tales diferencias podrán ser conocidas y resueltas por la Fiscalía del Colegio de Optometristas de Costa Rica.

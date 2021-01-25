@@ -1,0 +1,1 @@
+Artículo 59nom. Los miembros del Tribunal de Ética del Colegio de Optometristas de Costa Rica serán nombrados para un período de cuatro (4) años, pudiendo ser reelegibles y tomarán posesión de sus cargos ante la Asamblea General del Colegio de Optometristas de Costa Rica.

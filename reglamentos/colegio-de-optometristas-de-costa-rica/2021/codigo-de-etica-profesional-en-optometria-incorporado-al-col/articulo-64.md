@@ -1,0 +1,3 @@
+Artículo 64to. El proceso disciplinario ético profesional tiene por objeto determinar si se ha infringido cualquiera de los mandatos o prohibiciones del presente reglamento con el objeto de garantizar el ejercicio ético de la optometría en beneficio de la salud visual de la comunidad, y será instaurado:
+a)-De oficio, cuando por conocimiento de cualquiera de los miembros del Tribunal se consideren violadas las normas del presente reglamento.
+b)-Por solicitud de cualquier persona natural o jurídica. En todo caso deberá presentarse, por lo menos una (1) prueba sumaria del acto que se considere reñido con la ética optométrica.

@@ -1,0 +1,1 @@
+Artículo 69no. Si con los descargos se solicitare la práctica de pruebas, o si el fiscal considerare necesario ordenarlas de oficio, se procederá a su decreto siempre y cuando sean conducentes y pertinentes, para lo cual fijará un término superior a 20 días hábiles.

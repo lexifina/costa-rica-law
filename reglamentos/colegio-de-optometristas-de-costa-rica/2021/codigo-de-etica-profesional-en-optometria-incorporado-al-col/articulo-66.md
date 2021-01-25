@@ -1,0 +1,2 @@
+Articulo 66to. El tribunal se abstendrá de abrir investigación formal cuando aparezca demostrado que la conducta no ha existido o que no es constitutiva de falta contra la ética o que el profesional investigado no la ha cometido, o que el proceso no puede iniciarse por muerte del Optometrista, por prescripción de la acción o por cosa juzgada.
+Esta decisión inhibitoria mediante resolución motivada contra la cual proceden los recursos ordinarios que podrán ser interpuestos por el Ministerio Público, el paciente o su apoderado, o el denunciante.

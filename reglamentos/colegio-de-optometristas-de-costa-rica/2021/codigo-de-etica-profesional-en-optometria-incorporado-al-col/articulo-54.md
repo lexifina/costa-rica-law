@@ -1,0 +1,1 @@
+Artículo 54to. Las sanciones se aplicarán teniendo en cuenta la gravedad, las circunstancias y modalidades de la falta; los motivos determinantes, la intencionalidad, los antecedentes personales y profesionales del infractor, la reincidencia, entendiendo por ésta, la comisión de nuevas faltas en un período de cinco (5) años después de haber sido sancionado disciplinariamente.

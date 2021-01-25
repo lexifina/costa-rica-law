@@ -1,0 +1,1 @@
+Artículo 38vo. Cuando un Optometrista considere que otros profesionales u otras personas estén invadiendo el campo profesional de la optometría, deberá informar a las autoridades de su Colegio competente y a las organizaciones del caso, con prudencia y en términos comedidos, evitando a toda costa las ofensas personales.

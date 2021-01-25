@@ -1,0 +1,1 @@
+Artículo 30mo. El Optometrista que labore por cuenta de una entidad pública, privada o mixta no podrá percibir honorarios directamente de los pacientes que atienda en esas instituciones sino a través de ella, salvo que las condiciones contractuales lo permitan.

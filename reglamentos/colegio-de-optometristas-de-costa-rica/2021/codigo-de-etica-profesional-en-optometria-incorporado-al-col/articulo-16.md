@@ -1,0 +1,1 @@
+Artículo 16to. El Optometrista deberá atender sin costo alguno, a aquellos pacientes que soliciten exámenes de comprobación, por no encontrarse satisfechos con la fórmula o indicaciones dadas por él, siempre y cuando la petición se eleve dentro de un plazo de 15 días hábiles.

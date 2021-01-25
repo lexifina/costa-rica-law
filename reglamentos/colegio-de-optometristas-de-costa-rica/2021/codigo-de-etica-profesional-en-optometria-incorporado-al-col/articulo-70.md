@@ -1,0 +1,1 @@
+Artículo 70mo. Presentados los descargos, practicadas las pruebas decretadas de oficio o la petición de la parte interesada, el fiscal dispondrá de quince (15) días hábiles para presentar el proyecto de fallo y la sala de otros quince (15) días hábiles para decidir.

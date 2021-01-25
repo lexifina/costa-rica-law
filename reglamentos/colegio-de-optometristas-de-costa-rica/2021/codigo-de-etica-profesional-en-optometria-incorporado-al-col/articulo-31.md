@@ -1,0 +1,1 @@
+Artículo 31ro. El Optometrista no aprovechará su vinculación con una institución para inducir al paciente a que utilice sus servicios en el ejercicio privado de su profesión. a menos que expresamente le sea permitido.

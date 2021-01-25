@@ -1,0 +1,2 @@
+Artículo 57mo. El Tribunal de Ética del Colegio de Optometristas estará integrado por seis (6) profesionales de la Optometría elegidos por la Asamblea General del Colegio de Optometristas y que estén a1 día en sus obligaciones.
+Para la integración del Tribunal de Ética del Colegio de Optometristas de Costa Rica se tendrá en cuenta, en lo posible, que las diferentes especialidades de Optometría estén debidamente representadas.
