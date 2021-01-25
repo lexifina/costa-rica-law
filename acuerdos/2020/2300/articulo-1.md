@@ -1,0 +1,28 @@
+N° 2300
+LA DEFENSORA DE LOS HABITANTES DE LA REPÚBLICA
+Con fundamento en los artículos 1, 2, 10 y 11 de la Ley de la Defensoría de los Habitantes de la República, Ley Nº 7319 publicada en La Gaceta Nº 237 del 10 de diciembre de 1992; los artículos 84 inciso a), 87 inciso 1), 89 incisos 1 y 4), 90, 91, 102 y 103 de la Ley General de la Administración Pública, Ley Nº 6227; los artículos 1, 3, 8, 9 incisos a) y d), 10, 11, 12 incisos a), c) y e), 20, 21, 22, 54 párrafo primero y 56 del Reglamento a dicha Ley, Decreto Ejecutivo Nº 22266-J del 16 de julio de 1993; los artículos 3, 4 y 6 del Estatuto Autónomo de Organización de la Defensoría de los Habitantes que es Acuerdo Nº 528-DH del 11 de mayo de 2001.
+Considerando:
+1º—Que la Defensora de los Habitantes de la República es la máxima autoridad en la organización, ejecución y desarrollo de las funciones y disposiciones que asignan a la institución la Ley Nº 7319 y su Reglamento, Decreto Ejecutivo Nº 22266-J.
+2º—Que para el eficiente cumplimiento de las atribuciones y competencias del órgano, la Defensora de los Habitantes tiene la potestad de definir las estrategias y acciones más apropiadas que posibiliten la consecución de los objetivos institucionales.
+3º—Que entre tales acciones y estrategias, la Defensora de los Habitantes tiene la potestad expresa de delegar en el Defensor Adjunto la realización de las funciones y actividades que aseguren el mejor funcionamiento de la institución.
+4º—Que conforme lo preceptúa claramente el artículo 10 de la Ley Nº 7319, 11 y 12 inciso a) del respectivo Reglamento Ejecutivo, el Defensor Adjunto de los Habitantes es el colaborador director del o la Jerarca institucional y por delegación del o la Defensora de los Habitantes tiene incluso las mismas facultades de la Jerarca.
+5º—Que el artículo 8º de la Ley General de Control Interno establece como sistema de control interno el conjunto de acciones ejecutadas por la administración activa dirigidas a proporcionar seguridad y garantizar la eficiencia y eficacia de sus operaciones.
+De igual forma, el artículo 12º de esta Ley define dentro de los deberes del o la jerarca y de los titulares subordinados en el sistema de control interno, velar por el adecuado desarrollo de la actividad del ente o del órgano a su cargo.
+6º—Que la multiplicidad y complejidad de las funciones que corresponden a la Defensoría de los Habitantes, tornan necesario delegar en el Defensor Adjunto algunas actividades propias de la función administrativa y de la función sustantiva de defensa que permitan atender todos los asuntos institucionales con agilidad, celeridad y eficiencia.
+7º—Que conforme la distribución de funciones y competencias establecida en el Estatuto Autónomo de Organización de la Defensoría de los Habitantes, Acuerdo N° 528-DH, el Despacho del o la Jerarca institucional coordina las múltiples actividades administrativas y adopta las decisiones finales con fundamento en las recomendaciones técnicas que le son giradas por la Dirección Administrativa o los departamentos que la componen en su condición de órganos asesores internos en las materias de su competencia. Por tanto,
+ACUERDA:
+MODIFICAR EL ACUERDO N° 2279, PARA QUE SE LEA
+DE LA SIGUIENTE FORMA
+1º—Delegar en la Defensora Adjunta de los Habitantes las siguientes actuaciones:
+a) Atender, hasta su resolución final, todos los asuntos comprendidos en los procesos de contratación administrativa institucional, para lo cual decidirá, respecto a los actos de adjudicación; resolverá los recursos que durante o al final de cada proceso llegaren a interponerse que den por agotada la vía administrativa y suscribirá, en representación de la institución, los contratos que fueren necesarios para la buena gestión de la Defensoría de los Habitantes.
+b) Autorizar y firmar las modificaciones presupuestarias ante la Dirección General de Presupuesto Nacional. Los recursos que afecten directamente la Relación de Puestos deben disponer de autorización de la Defensora de los Habitantes.
+c) Supervisar en torno a las acciones de ejecución presupuestaria institucional, todo lo relacionado con el Plan Estratégico institucional y el Plan Anual Operativo.
+d) Firmar los estados financieros que emite la Institución trimestralmente para su envío a la Unidad de Consolidación de la Contabilidad Nacional del Ministerio de Hacienda.
+e) Autorizar vacaciones de las y los Directores; suscribir los acuerdos de viaje, autorizar el pago de viáticos.
+f) Otorgar las licencias a que se refiere el inciso c) del artículo 37 del Estatuto Autónomo de Servicio cuando supere el plazo de los diez días hábiles y hasta por un mes. Las licencias mayores a ese plazo serán otorgadas sólo por la Defensora de los Habitantes.
+g) Otorgar las licencias por estudio, de conformidad con el reglamento de becas y otras facilidades para capacitación de los funcionarios de la Defensoría de los Habitantes que sean inferiores a un mes.
+h) Otorgar las licencias sin goce de sueldo superiores a cinco días y hasta por un máximo de un mes. Las licencias mayores a un mes serán otorgadas sólo por la Defensora de los Habitantes. Con excepción de los directores.
+2º—El alcance del presente acto se realiza sin perjuicio de la delegación que para temas, proyectos o aspectos específicos la Defensora de los Habitantes decida asignar a la Defensora Adjunta mediante instrucciones verbales o escritas.
+3º—Esta delegación rige a partir de su publicación y durante todo el período de gestión de la Defensora Adjunta.
+Notifíquese y publíquese en el Diario Oficial.
+Dado en la Ciudad de San José, a las quince horas diez minutos del día diecisiete de noviembre de dos mil veinte.
