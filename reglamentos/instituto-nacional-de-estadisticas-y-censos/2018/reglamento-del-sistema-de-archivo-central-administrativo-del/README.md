@@ -14,3 +14,4 @@ Reglamento del Sistema de Archivo Central Administrativo del Instituto Nacional 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-06-27 | la propia norma |
+| 2 | 2021-01-26 | Reglamento 3 (2021-01-26) |
