@@ -14,3 +14,4 @@ Reglamento autónomo de organización y servicio de la Municipalidad de Upala
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-11-22 | la propia norma |
+| 2 | 2021-01-26 | Reglamento municipal 0 (2021-01-26) |
