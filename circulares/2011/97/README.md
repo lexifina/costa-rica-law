@@ -13,3 +13,4 @@ Formulario para "Recepción de denuncia disciplinaria notarial"
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-08-23 | la propia norma |
+| 2 | 2021-01-26 | Circular 16 (2021-01-26) |
