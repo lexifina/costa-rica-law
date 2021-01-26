@@ -61,8 +61,8 @@ auto evento.)
 9. Actividades y procesiones religiosas.
 10. Bingos.
 (Así reformada la disposición segunda anterior mediante resolución N° MS-DM-7344-2020 del 6 de octubre del 2020)
-TERCERO: Se resuelve ordenar a partir del 09 de setiembre de 2020, la apertura controlada con estricto cumplimiento de protocolos y medidas sanitarias para evitar la propagación del COVID-19, de los establecimientos que cuenten con permiso sanitario de funcionamiento que atienden al público, en un horario de lunes a viernes desde las 5:00 horas y hasta las 22:00 horas, y de sábados a domingos desde las 5:00 horas y hasta las 21:00 horas, respetando el cincuenta por ciento (50%) de su capacidad máxima de aforo. Se exceptúan de la restricción de horario y del cincuenta por ciento (50%) de su capacidad máxima de aforo las siguientes actividades:
-(Así reformado la disposición tercera anterior mediante resolución N° MS-DM-8551-2020 del 15 de octubre del 2020)
+TERCERO: Se resuelve ordenar a partir del 09 de setiembre de 2020, la apertura controlada con estricto cumplimiento de protocolos y medidas sanitarias para evitar la propagación del COVID-19, de los establecimientos que cuenten con permiso sanitario de funcionamiento que atienden al público, en un horario de lunes a domingo desde las 5:00 horas y hasta las 22:00 horas, respetando el cincuenta por ciento (50%) de su capacidad máxima de aforo. Se exceptúan de la restricción de horario y del cincuenta por ciento (50%) de su capacidad máxima de aforo las siguientes actividades:
+(Así reformado la disposición tercera anterior mediante resolución N° MS-DM-1315-2021 del 26 de enero del 2021)
 1. Servicios a domicilio.
 2. Alquiler de vehículos “rent a car”.
 3. Alquiler de bicicletas.
@@ -80,8 +80,8 @@ TERCERO: Se resuelve ordenar a partir del 09 de setiembre de 2020, la apertura c
 14. La venta de loterías y productos de azar debidamente autorizados por la Junta de Protección Social.
 15. Instituciones públicas en general y municipios.
 16. Todos aquellos otros establecimientos con permiso sanitario de funcionamiento que no brinden atención al público presencial.
-CUARTO: Por la naturaleza de la actividad que desarrollan, la siguiente lista de establecimientos con permiso sanitario de funcionamiento que atienden al público, tendrán aforo diferenciado por burbujas sociales y distanciamiento físico de 1.8 metros en un horario de lunes a viernes desde las 5:00 horas y hasta las 22:00 horas, y de sábados a domingos desde las 5:00 horas y hasta las 21:00 horas, salvo para aquellos cantones en donde su Índice de Riesgo Cantonal (IRC) no permita desarrollar estas actividades, de conformidad con los anexos a la presente resolución:
-(Así reformado la disposición cuarta anterior mediante resolución N° MS-DM-8551-2020 del 15 de octubre del 2020)
+CUARTO: Por la naturaleza de la actividad que desarrollan, la siguiente lista de establecimientos con permiso sanitario de funcionamiento que atienden al público, tendrán aforo diferenciado por burbujas sociales y distanciamiento físico de 1.8 metros en un horario de lunes a domingo desde las 5:00 horas y hasta las 22:00 horas, salvo para aquellos cantones en donde su Índice de Riesgo Cantonal (IRC) no permita desarrollar estas actividades, de conformidad con los anexos a la presente resolución:
+(Así reformado la disposición cuarta anterior mediante resolución N° MS-DM-1315-2021 del 26 de enero del 2021)
 1. Modalidad de autoservicio al público, entiéndase la misma como el retiro de productos permaneciendo dentro del vehículo.
 2. Modalidad de retiro de comida en establecimiento para llevar.
 3. Cines y teatros con utilización obligatoria de mascarilla, y adicional la careta de forma opcional, con medidas de separación de asientos de mínimo 1.8 metros, respetando las burbujas sociales y con boletería o reserva electrónica.
@@ -93,7 +93,7 @@ CUARTO: Por la naturaleza de la actividad que desarrollan, la siguiente lista de
 7. Salas de eventos para actividades de máximo 30 personas (con medidas de separación de asientos de mínimo 1.8 metros, respetando las burbujas sociales y con listas de asistentes con número de cédula y número de contacto). En las 30 personas no se incluye el personal de logística del evento.
 8. Turismo aventura, con utilización obligatoria de mascarilla y adicional la careta de forma opcional, mientras se coloca y se retira el equipo de seguridad para realizar la actividad, y respetando las burbujas sociales.
 9. Playas y lagos, con previa aprobación de protocolos por el ICT con cada municipio.
-(Nota de Sinalevi: Mediante resolución N° MS-DM-1314-2021 del 26 de enero del 2021 se reforma de forma temporal la franja horaria del punto anterior , para que el horario de acceso a las playas a partir del 01 de febrero y hasta el 28 de febrero inclusive, sea desde las 5:00 horas y hasta las 18:00 horas)
+(Nota de Sinalevi: Mediante resolución N° MS-DM-1314-2021 del 26 de enero del 2021 se reforma de forma temporal la franja horaria de la resolución MS-DM-69582020 y sus reformas, para que el horario de acceso a las playas a partir del 01 de febrero y hasta el 28 de febrero inclusive, sea desde las 5:00 horas y hasta las 18:00 horas)
 (Así reformado el inciso anterior por resolución N° MS-DM-8527-2020 del 14 de octubre del 2020)
 10. Deportes individuales, al aire libre o en espacio cerrado, sin público, según lista autorizada por el Ministerio del Deporte.
 11. Deportes de contacto para entrenamiento de las Selecciones Nacionales Femenina y Masculina de alta competencia; y competencias de la categoría de alto rendimiento o profesional, a puerta cerrada y sin público, según lista autorizada por el Ministerio del Deporte.

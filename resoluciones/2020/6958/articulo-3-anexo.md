@@ -21,6 +21,8 @@ laboratorios, consultorios, servicios de radiodiagnósticos, servicios de emerge
 14. La venta de loterías y productos de azar debidamente autorizados por la Junta de Protección Social.
 15. Instituciones públicas en general y municipios.
 16. Todos aquellos otros establecimientos con permiso sanitario de funcionamiento que no brinden atención al público presencial.
+17. Parques Nacionales según la lista que publique el MINAE.
+(Así adicionado el punto anterior mediante resolución N° MS-DM-1315-2021 del 26 de enero del 2021)
 B. Podrán operar de lunes a domingo sin restricción horaria, sin público y a puerta cerrada, con el mínimo personal requerido:
 1. Actividades a puerta cerrada de teatros (incluyendo el Teatro Nacional y el Teatro Popular Melico Salazar), iglesias, municipalidades con sus sesiones de concejo municipal, consejos de distrito, reunión de comisiones y demás reuniones municipales, así como cualquier otro espacio cerrado para el desarrollo de transmisiones virtuales, con estricto cumplimiento de los protocolos preventivos y lineamientos emitidos por el Ministerio de Salud, y con el personal mínimo requerido.
 C. Podrán operar de lunes a domingo sin restricción horaria con una capacidad de ocupación al cincuenta por ciento (50%):
@@ -44,13 +46,16 @@ C. Podrán operar de lunes a domingo sin restricción horaria con una capacidad 
 18. Servicios bancarios y financieros públicos o privados, en entidades financieras o no financieras.
 19. Actividades de centros que atienden llamadas de clientes utilizando operadores humanos como: “call center”.
 20. Funerarias y/o capillas de velación.
-21. Parques nacionales según la lista que publique el MINAE.
-22. Parques temáticos de animales, parques botánicos o parques marinos que no impliquen el acceso a playas ni balnearios.
-23. Piscinas, restaurantes, gimnasios de los hoteles, cabinas o establecimientos de alojamiento.
-24. Centros con piscinas de aguas termales.
-25. Comercios dentro de las terminales nacionales e internacionales del Aeropuerto Internacional Juan Santamaría y Daniel Oduber.
-D. Podrán operar de lunes a viernes de las 5:00 horas a las 22:00 horas, y de sábados a domingo de las 5:00 horas a las 21:00 horas, con aforo diferenciado:
-(Así reformado el inciso anterior mediante resolución N° MS-DM-8551-2020 del 15 de octubre del 2020)
+21. Parques temáticos de animales, parques botánicos o parques marinos que no impliquen el acceso a playas ni balnearios.
+(Así modificada la numeración del inciso anterior mediante resolución N° MS-DM-1315-2021 del 26 de enero del 2021, que lo traspasó del antiguo inciso 22 al 21, toda vez que se eliminó el inciso 21 original)
+22. Piscinas, restaurantes, gimnasios de los hoteles, cabinas o establecimientos de alojamiento.
+(Así modificada la numeración del inciso anterior mediante resolución N° MS-DM-1315-2021 del 26 de enero del 2021, que lo traspasó del antiguo inciso 23 al 22, toda vez que se eliminó el inciso 21 original)
+23. Centros con piscinas de aguas termales.
+(Así modificada la numeración del inciso anterior mediante resolución N° MS-DM-1315-2021 del 26 de enero del 2021, que lo traspasó del antiguo inciso 24 al 23, toda vez que se eliminó el inciso 21 original)
+24. Comercios dentro de las terminales nacionales e internacionales del Aeropuerto Internacional Juan Santamaría y Daniel Oduber.
+(Así modificada la numeración del inciso anterior mediante resolución N° MS-DM-1315-2021 del 26 de enero del 2021, que lo traspasó del antiguo inciso 25 al 24, toda vez que se eliminó el inciso 21 original)
+D. Podrán operar de lunes a domingo de las 5:00 horas a las 22:00 horas, con aforo diferenciado:
+(Así reformado el inciso anterior mediante resolución N° MS-DM-1315-2021 del 26 de enero del 2021)
 1. Modalidad de autoservicio al público, entiéndase la misma como el retiro de productos permaneciendo dentro del vehículo.
 2. Modalidad de retiro de comida en establecimiento para llevar.
 3. Cines y teatros con utilización obligatoria de mascarilla, y adicional la careta de forma opcional, con medidas de separación de asientos de mínimo 1.8 metros, respetando las burbujas sociales y con boletería o reserva electrónica.
@@ -68,8 +73,8 @@ D. Podrán operar de lunes a viernes de las 5:00 horas a las 22:00 horas, y de s
 12. Deportes de Contacto para entrenamientos individuales sin contacto o acercamiento físico, según lista autorizada por el Ministerio del Deporte.
 13. Parques públicos (parque urbano y parque recreativo).
 (Así adicionado el inciso anterior mediante resolución N° MS-DM-8741-2020 del 29 de octubre del 2020)
-E. Podrán operar de lunes a viernes de las 5:00 horas a las 22:00 horas, y de sábado a domingo de las 5:00 horas a las 21:00 horas, con una capacidad de ocupación al cincuenta por ciento (50%):
-(Así reformado el inciso anterior mediante resolución N° MS-DM-8551-2020 del 15 de octubre del 2020)
+E. Podrán operar de lunes a domingo de las 5:00 horas a las 22:00 horas, con una capacidad de ocupación al cincuenta por ciento (50%):
+(Así reformado el inciso anterior mediante resolución N° MS-DM-1315-2021 del 26 de enero del 2021)
 1. Venta al por menor de vehículos automotores nuevos y usados.
 2. Gimnasios con programación de citas y horario diferenciado para personas con factores de riesgo.
 3. Escuelas de manejo.
