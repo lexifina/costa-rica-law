@@ -1,2 +1,0 @@
-Artículo 13.-Los acuerdos del Concejo Municipal por iniciativa del Alcalde Municipal o los regidores, se tomarán previa moción o proyecto firmado por los proponentes.
-Los acuerdos se tomarán previo dictamen de una comisión y deliberación subsiguiente. El trámite del dictamen puede dispensarse por votación calificada de las dos terceras partes de los regidores presentes. La votación deberá rendirla cada regidor en su curul, si estuviese momentáneamente fuera de su curul o del recinto, le corresponderá votar al regidor suplente.
