@@ -1,2 +1,0 @@
-Artículo 12.- Disposición del equipo
-La Institución suministrará el hardware y software requeridos para la ejecución del teletrabajo, sujeto a las disposiciones del presente Reglamento y a las disposiciones internas para su uso y custodia; tal y como se le otorga para su trabajo en las instalaciones de la Institución. La Institución debe garantizar el control y protección de datos públicos obtenidos en el procesamiento de información oficial en la prestación del servicio.
