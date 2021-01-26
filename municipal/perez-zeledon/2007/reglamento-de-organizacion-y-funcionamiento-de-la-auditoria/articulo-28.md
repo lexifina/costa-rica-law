@@ -1,2 +1,0 @@
-Artículo 28.—Fundamentación del acto de desestimación o archivo de denuncias: La desestimación o archivo de las denuncias se realizará mediante un acto debidamente motivado donde se acrediten los argumentos valorados para tomar esa decisión.
-Cuando producto de la investigación preliminar se desestime la atención de asuntos o denuncias admitidas, esa situación deberá quedar debidamente acreditada en los papeles de trabajo de la investigación y en la razón de archivo correspondiente o en las herramientas que defina la Auditoría Interna.

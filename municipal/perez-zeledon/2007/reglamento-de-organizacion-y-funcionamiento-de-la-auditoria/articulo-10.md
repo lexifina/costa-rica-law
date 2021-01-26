@@ -1,1 +1,0 @@
-Artículo 10.—Organización de la Auditoría Interna. La Auditoría Interna se organizará y funcionará según lo disponga el Auditor Interno, de conformidad con las disposiciones, normas, políticas y directrices emitidas y que en el futuro emita la Contraloría General, las cuales serán de acatamiento obligatorio.
