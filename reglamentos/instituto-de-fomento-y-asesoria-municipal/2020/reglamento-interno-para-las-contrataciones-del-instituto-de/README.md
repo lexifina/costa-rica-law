@@ -14,3 +14,4 @@ Reglamento interno para las contrataciones del Instituto de Fomento y Asesoría 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-06-05 | la propia norma |
+| 2 | 2021-01-27 | Reglamento 3 (2021-01-27) |
