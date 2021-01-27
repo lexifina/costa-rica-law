@@ -1,4 +1,6 @@
+(Derogado)
 DIRECCIÓN GENERAL DE MIGRACIÓN Y EXTRANJERÍA
+(Esta norma se dejó sin efecto mediante resolución N° DJUR-0020-01-2021-JM del 27 de enero del 2021, salvo en lo que sea aplicable en beneficio del administrado y se aclara que lo indicado en la resolución DJUR-0132-09-2020-JM, publicada en el Alcance 249 a La Gaceta N°233, del 21 de setiembre 2020, relacionado con citas o extensión de plazos que hayan operado conforme a esa resolución, se mantiene)
 ASESORIA JURIDICA
 RESOLUCIÓN N° DJUR-01-01-2021-JM
 MINISTERIO DE GOBERNACIÓN Y POLICÍA. DIRECCIÓN GENERAL DE MIGRACIÓN Y EXTRANJERÍA. San José, al ser las catorce horas del día siete de enero de dos mil veintiuno. Se modifican las medidas administrativas temporales de atención al usuario externo, emitidas mediante resolución N° DJUR-0132-09-2020-JM, publicada en el Alcance 249 a La Gaceta N° 233, del 21 de setiembre 2020.
