@@ -1,0 +1,5 @@
+Título II
+Cálculo del impuesto de patentes
+ARTÍCULO 12- Base de cálculo del impuesto
+La base de cálculo del impuesto de patentes será los ingresos brutos anuales, percibidos por las personas físicas o jurídicas titulares de la licencia para el ejercicio de una actividad comercial durante el período fiscal anterior al año que se grava. En el caso de los establecimientos financieros y de correduría de bienes muebles e inmuebles, se consideran ingresos brutos las comisiones y los intereses. De los ingresos brutos se excluye la suma correspondiente al impuesto del valor agregado (IVA), excepto en los casos en que esta ley o el ordenamiento jurídico nacional dispongan otra forma.
+Los contribuyentes cuya actividad lucrativa sea la venta de combustibles y lubricantes, igualmente pagarán el impuesto de patentes calculado sobre la base de sus ingresos brutos, para lo cual deberán incluir el impuesto de patentes dentro de la estructura de costos, presentada ante la Autoridad Reguladora de los Servicios Públicos.

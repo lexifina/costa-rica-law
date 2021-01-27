@@ -1,0 +1,2 @@
+ARTÍCULO 19- Cambio del tipo de actividad de una licencia
+La licencia que haya sido otorgada para una actividad determinada o actividades y en condiciones específicas, de acuerdo con el perfil diseñado por el contribuyente, podrá ser ampliada a otras actividades, previa solicitud formal del patentado mediante el formulario que al respecto habilite la Municipalidad. Para estos efectos, deberán cumplirse los requisitos que demanda esta ley y las demás normas vigentes.

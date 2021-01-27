@@ -1,0 +1,4 @@
+ARTÍCULO 24- Recursos
+Una vez notificada la determinación de oficio o la recalificación de la obligación tributaria efectuada por la Municipalidad, el contribuyente podrá interponer, dentro de los cinco días siguientes, recurso de revocatoria ante la unidad encargada de la Administración de Patentes o recurso de apelación ante la Alcaldía, indicando las normas legales en que funda su reclamo, las defensas respectivas y ofreciendo las pruebas necesarias.
+El rechazo definitivo del recurso agota la vía administrativa y, si lo desea, el contribuyente podrá interponer la demanda correspondiente ante el Tribunal Contencioso-Administrativo, para lo cual de previo debe haber cancelado la obligación tributaria con las multas y los intereses, si los hay.
+Los plazos y los requisitos se regirán por la Ley 6227, Ley General de la Administración Pública, de 2 de mayo de 1978.
