@@ -3,6 +3,8 @@ POPULAR SOCIEDAD DE FONDOS DE INVERSIÓN S. A.
 REGLAMENTO DE ORGANIZACIÓN Y FUNCIONAMIENTO
 DE LA AUDITORÍA INTERNA DE POPULAR SOCIEDAD
 DE FONDOS DE INVERSIÓN S. A.
-CAPÍTULO I
-Disposiciones generales
-Artículo 1º—Objetivo. El presente Reglamento, en forma conjunta con las disposiciones contenidas en la Ley General de Control Interno y su Reglamento, la Ley Orgánica de la Contraloría General de la República y los manuales técnicos, las disposiciones, normas, políticas y directrices emitidas por el órgano contralor, regula las actividades, organización, objetivos, funciones y atribuciones de la auditoría interna de Popular Sociedad de Fondos de Inversión S. A., de manera que su accionar se oriente y perciba como una actividad que coadyuve al éxito de la gestión institucional, en aras de la legalidad y efectividad en el manejo de los fondos públicos que fiscaliza.
+(Nota de Sinalevi: EL presente reglamento fue reformado parcialmente y reproducido su texto de forma íntegra mediante publicación en el Alcance Digital N° 16 a La Gaceta N° 18 del 29 de enero del 2021, y se transcribe a continuación:)
+CAPITULO I
+DISPOSICIONES GENERALES.
+Artículo 1 Objetivo:
+El presente Reglamento se dicta con fundamento en el Artículo 23 de la Ley General de Control Interno, número 8292, en forma conjunta con las disposiciones contenidas en la Ley Orgánica de la Contraloría General de la República N°7428, los manuales técnicos, las disposiciones, normas, políticas y directrices emitidas por el Órgano Contralor, y tiene como fin regular las actividades, organización, objetivos, funciones y atribuciones de la auditoría interna de Popular Sociedad de Fondos de Inversión S.A., de manera que su accionar se oriente y perciba como una actividad que coadyuve al éxito de la gestión institucional, en aras de la legalidad y efectividad en el manejo de los fondos públicos que fiscaliza.

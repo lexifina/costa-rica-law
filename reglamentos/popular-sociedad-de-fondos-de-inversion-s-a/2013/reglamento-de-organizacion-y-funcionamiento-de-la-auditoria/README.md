@@ -14,3 +14,4 @@ Reglamento de organización y funcionamiento de la auditoría interna de Popular
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-08-08 | la propia norma |
+| 2 | 2021-01-27 | Reglamento 0 (2021-01-27) |

@@ -1,5 +1,2 @@
-CAPÍTULO VIII
-De la responsabilidad y sanciones
-Artículo 41.—Responsabilidades y sanciones.
-a) Causales de responsabilidad administrativa. El Auditor Interno y el Personal de Auditoría incurrirán en responsabilidad administrativa cuando, incumplan sus deberes y funciones, infrinjan la normativa técnica aplicable o el régimen de prohibiciones referido en la Ley N° 8292; todo sin perjuicio de las responsabilidades que les puedan ser imputadas civil y penalmente. Adicionalmente el incumplimiento a lo dispuesto en el presente Reglamento será causal de responsabilidad administrativa para el Auditor Interno y para los funcionarios de la Auditoría Interna, el Jerarca, titulares subordinados y demás funcionarios de Popular S.F.I., de conformidad con lo establecido en el Capítulo V de la Ley General de Control Interno.
-b) Sanciones administrativas. Según la gravedad, las faltas que señala este Reglamento serán sancionadas de conformidad con lo que establezca el Código de Trabajo, el Reglamento Interno de Trabajo y cualquier otra normativa que sea pertinente.
+Artículo 41: Admisibilidad de denuncias.
+El Auditor Interno o Auditora Interna establecerá los mecanismos y medios para recibir y tramitar todas aquellas denuncias presentadas ante la Auditoría Interna, las cuales pueden ser escritas o verbales y manteniendo la estricta confidencialidad en acato a lo definido en el artículo 32 inciso f) de la Ley 8292 y el artículo 23 de este Reglamento.

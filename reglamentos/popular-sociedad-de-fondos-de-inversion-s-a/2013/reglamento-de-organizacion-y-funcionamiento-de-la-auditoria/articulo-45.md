@@ -1,0 +1,6 @@
+CAPÍTULO IX
+De la Responsabilidad y Sanciones
+Artículo 45—Responsabilidades y Sanciones,
+De conformidad con el artículo 40 de la Ley General de Control Interno serán causales de responsabilidad administrativa del auditor y el subauditor internos y de las demás personas trabajadoras de la auditoría interna, las siguientes:
+a) Causales de Responsabilidad Administrativa. El Auditor Interno y el Personal de Auditoría incurrirán en responsabilidad administrativa cuando, incumplan sus deberes y funciones, infrinjan la normativa técnica aplicable o el régimen de prohibiciones referido en la Ley N° 8292; todo sin perjuicio de las responsabilidades que les puedan ser imputadas civil y penalmente. Adicionalmente el incumplimiento a lo dispuesto en el presente Reglamento será causal de responsabilidad administrativa para el Auditor Interno y para las personas trabajadoras de la Auditoría Interna, el Jerarca, titulares subordinados y demás funcionarios de Popular S.F.I., de conformidad con lo establecido en el Capítulo V de la Ley General de Control Interno.
+b) Sanciones Administrativas. Según la gravedad, las faltas que señala este Reglamento serán sancionadas de conformidad con lo que establezca el Código de Trabajo, el Reglamento Interno de Trabajo y cualquier otra normativa que sea pertinente.

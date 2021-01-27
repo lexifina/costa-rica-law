@@ -1,6 +1,6 @@
-Artículo 27.—Deberes de la Auditoría Interna. Para el cumplimiento de su objeto la Auditoría Interna tendrá los siguientes deberes:
+Artículo 27—Deberes de la Auditoría Interna. Para el cumplimiento de su objeto la Auditoría Interna tendrá los siguientes deberes:
 a) Cumplir el ordenamiento jurídico y técnico aplicable.
-b) Colaborar en los estudios que la Contraloría General de la República y otras instituciones realicen en el ejercicio de competencias de control o fiscalización legalmente atribuidas.
+b) Colaborar en los estudios que la Contraloría General de la República y otras instituciones realicen en el ejercicio de sus competencias de control o fiscalización legalmente atribuidas.
 c) Administrar, de manera eficaz, eficiente y económica, los recursos del proceso del que sea responsable.
 d) No revelar a terceros que no tengan relación directa con los asuntos tratados en sus informes, información sobre las auditorías o los estudios especiales de auditoría que se estén realizando ni información sobre aquello que determine una posible responsabilidad civil, administrativa o eventualmente penal de los funcionarios de los entes y órganos sujetos a esta Ley.
 e) Guardar la confidencialidad del caso sobre la información a la que tengan acceso.
