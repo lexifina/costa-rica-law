@@ -1,0 +1,2 @@
+ARTÍCULO 15- Distribución de los ingresos cuando la actividad se realiza en varios cantones
+En caso de que el contribuyente realice actividades en varios cantones, debe acompañar, a su declaración jurada del impuesto de patentes, un informe en el cual se realice la distribución de sus ingresos brutos realizados entre cantones, lo cual podrá ser fiscalizado por la Municipalidad. Se debe adjuntar la copia de la declaración jurada del impuesto, recibida y sellada de las otras municipalidades.

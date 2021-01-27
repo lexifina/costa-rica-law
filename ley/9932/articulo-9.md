@@ -1,0 +1,16 @@
+ARTÍCULO 9- Requisitos de la licencia de patentes
+Es requisito indispensable, para obtener la licencia, el traslado o el traspaso de la licencia municipal, que el interesado se encuentre al día en el pago de los tributos municipales y de las obligaciones tributarias establecidas en otras disposiciones legales o en el reglamento de la presente ley. De igual forma, están obligados a adjuntar copia de la declaración del impuesto de la renta presentada ante la Dirección General de Tributación, con su respectivo comprobante de recibido.
+Asimismo, serán requisitos generales de cumplimiento obligatorio, para la obtención por primera vez de la patente, los siguientes:
+a) Realizar solicitud formal a la Oficina de Patentes, mediante el formulario que la Municipalidad habilite para tal efecto.
+b) El original y la copia, o la copia certificada, del documento de identidad vigente del titular de la patente. En el caso de las personas jurídicas, certificación de personería jurídica vigente.
+c) El original y la copia, la copia certificada, del permiso sanitario de funcionamiento al día, emitido por el Ministerio de Salud.
+d) El original y la copia, o la copia certificada del permiso de uso del suelo vigente, emitido por la Municipalidad de Río Cuarto.
+e) La certificación literal del Registro Público de la Propiedad. Cuando la persona solicitante no sea el propietario registral del inmueble, deberá presentar el original y la copia, o la copia certificada del contrato de arrendamiento respectivo.
+f) Constancia de estar al día con el Fondo de Desarrollo Social y Asignaciones Familiares (Fodesaf).
+g) El original y la copia, o la copia certificada de la declaración jurada del impuesto de renta presentado a la Dirección General de Tributación, o del Régimen de Tributación Simplificada o del documento requerido para tal efecto por la Administración Tributaria, según corresponda, con el respectivo comprobante de recibido conforme por el Ministerio de Hacienda.
+h) Copia del formulario de los proveedores y clientes presentado ante la Dirección General de Tributación Simplificada o del documento requerido para tal efecto por la Administración Tributaria, que permita realizar el cruce de información y la fiscalización necesaria del impuesto, con el respectivo comprobante de recibido conforme por el Ministerio de Hacienda.
+i) Estar al día con la Caja Costarricense de Seguro Social (CCSS), cuando corresponda.
+j) Estar al día con la Póliza Riesgos del Trabajo, del Instituto Nacional de Seguros (INS), cuando se requiera.
+k) Flujo de caja proyectado de ventas a un año emitido por un contador público autorizado, en caso de comercios que inicien actividades por primera vez.
+l) El informe de distribución de los ingresos brutos y la copia de la declaración jurada del impuesto de patentes presentada ante otras municipalidades, cuando la actividad lucrativa se realice en varios cantones.
+El Concejo Municipal queda autorizado para ampliar, complementar o especificar los requisitos contenidos en esta ley; asimismo, cuando medie la necesidad de incluir cualquier otro tipo de requisito fundado en la ley y que resulte imprescindible para el control de las actividades productivas dentro del cantón, siempre ajustándose a lo establecido en la Ley 8220, Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos, de 4 de marzo de 2002.

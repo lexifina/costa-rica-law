@@ -1,0 +1,3 @@
+ARTÍCULO 21- Fiscalización del impuesto de patentes
+Según sus potestades de Administración Tributaria, la Municipalidad de Río Cuarto podrá verificar, investigar, inspeccionar y valorar la información recibida, con el fin de recalificar el impuesto, cuando compruebe que dicha información es errónea, fraudulenta o falsa. Podrá realizar cruces de información con la Dirección General de Tributación y recalificar el impuesto de patentes evadido por el contribuyente hasta un máximo de cinco años atrás.
+Asimismo, la declaración que deben presentar los patentados ante la Municipalidad queda sujeta a lo establecido en la Ley 4573, Código Penal, de 4 de mayo de 1970, y al ordenamiento jurídico nacional vigente.
