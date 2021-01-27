@@ -1,4 +1,0 @@
-CAPITULO III
-De los deberes de los Agentes
-Artículo 17.—Se establece como faltante permisible pero resarcible, dentro so que luego se dirá en este artículo, el importe de Ë 7.000,00 de producto a determinado mes calendario. Superada esta cantidad de no existir la justificación, procederá la separación del Agente sin responsabilidad patronal y sin perjuicio de cualquier acción resarcitoria o penal correspondiente, salvo que a juicio de la Administración de la FANAL se considere como alternativa la cancelación total del faltante en efectivo y en un plazo que en ningún caso podrá exceder de cinco días hábiles, contados a partir de la confirmación por escrito al Agente por parte del Departamento Financiero o de la Auditoría Regional.
-Cualquier ajuste posterior, a favor o en contra del Agente, sólo se podrá efectuar previa confirmación por escrito de la Auditoría Regional.

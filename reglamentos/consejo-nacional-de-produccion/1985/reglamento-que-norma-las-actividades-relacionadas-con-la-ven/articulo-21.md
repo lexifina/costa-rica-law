@@ -1,1 +1,0 @@
-Artículo 21.—Conducir el vehículo automotor que le proporciona la Fábrica y velar por el correcto uso y mantenimiento del mismo, acatando las disposiciones del Reglamento específico para uso de vehículos del Consejo.

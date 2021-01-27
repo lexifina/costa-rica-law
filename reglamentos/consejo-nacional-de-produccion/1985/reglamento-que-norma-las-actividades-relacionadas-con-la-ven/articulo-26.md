@@ -1,7 +1,0 @@
-Artículo 26.—Observar el cobro oportuno de las mercaderías vendidas por él, siendo su responsabilidad el cobrar los porcentajes de recargo cuando se excedan los plazos otorgados o cancelándolo cuando por omisión imputable a él se hayan excedido dichos plazos y el cliente refute su pago. Todo lo anterior sin perjuicio de otras sanciones disciplinarias que al respecto pudiere tomar la Administración.
-Para ello el Agente deberá cumplir con el siguiente procedimiento:
-1. Cobrar al cliente la factura correspondiente, dentro del plazo de crédito establecido.
-2. Vencido el plazo establecido y en caso de que las gestiones de cobro realizadas por el Agente resulten infructuosas, deberá el Agente de manera inmediata, comunicar por escrito a la Unidad de Créditos y Cobros quién deberá efectuar la gestión de cobro administrativo dentro del plazo de 8 días naturales, remitiendo en ese lapso, dos avisos de cobro al cliente.
-El Agente deberá trasladar el original de la factura a la Unidad de Créditos y Cobros, a más tardar ocho días después de la comunicación de que el cobro ha sido infructuoso.
-3. Si dentro del plazo indicado en el párrafo anterior el cliente no realiza la cancelación de la factura, la Unidad de Créditos y Cobros deberá remitir de inmediato la factura y la letra de cambio original a la Asesoría Legal para que se proceda al cobro judicial de la operación.
-(Así adicionado párrafo segundo en adelante por sesión 2206 del 09 de agosto del 2000)

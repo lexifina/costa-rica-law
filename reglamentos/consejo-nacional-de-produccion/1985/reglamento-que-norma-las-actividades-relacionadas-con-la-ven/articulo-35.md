@@ -1,2 +1,0 @@
-Artículo 35.—Toda promoción y bonificación deben ser autorizadas por escrito, mediante el visto bueno de la Gerencia de la División.
-Cuando el Departamento de Mercadeo reciba autorización para hacer una promoción o bonificación, de previo a poner en ejecución el plan debe comunicarlo con todos sus detalles al Departamento Financiero y a la Auditoría Regional, para que éstos tomen las medidas de control pertinentes.

@@ -1,1 +1,0 @@
-Artículo 20.—Atender la zona que le ha sido asignada y velar por el cambio de la cuota mensual establecida. Solamente podrá realizar ventas en otra zona previa autorización del Departamento de Mercadeo.

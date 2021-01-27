@@ -1,1 +1,0 @@
-Artículo 43.—El Gerente de División, el Subgerente de División y el Jefe de Mercadeo, podrán tener en sus oficinas una exhibición permanente de todos los licores y sus diferentes presentaciones, con el fin de ofrecer degustaciones a los visitantes, cuyo objetivo será el dar a conocerlos y fomentar así sus ventas.

@@ -1,2 +1,0 @@
-Artículo 48.—No se dará validez a ninguna boleta de entrega que no cuente con la firma de recibido. Se deberá evitar el que funcionarios de la Fábrica hagan retiro de licores en promoción o para degustación por cuenta de los beneficiarios. En aquellos casos en que tal cosa sea imprescindible, el funcionario & cargo de la entrega deberá gestionar el recibido conforme.
-La persona que autoriza la orden de entrega, no podrá ser quien retire los productos de la Bodega.

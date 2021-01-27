@@ -1,1 +1,0 @@
-Artículo 53.—Todos los formularios que se usen en esta actividad deben ser prenumerados. El Departamento Financiero debe controlar y tener en sus archivos un ordenamiento de los mismos de acuerdo a su secuencia numérica y cronológica. También llevará un registro donde conste los formularios en blanco entregados a cada Agente y las facturas que se les dan para su recuperación.

@@ -1,1 +1,0 @@
-Artículo 15.—Los Agentes podrán recibir de sus clientes envases vacíos e y cuando estén en perfecto estado de conservación y limpios. Sólo se recibirán envases que conserven las etiquetas de licores producidos por FNL. Para recibir estos envases se debe cumplir con los requisitos y procedimientos establecidos.

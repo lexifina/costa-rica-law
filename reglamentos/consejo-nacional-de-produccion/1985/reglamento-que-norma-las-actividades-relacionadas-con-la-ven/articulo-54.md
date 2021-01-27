@@ -1,1 +1,0 @@
-Artículo 54.—La persona autorizada a facturar, será la responsable de cualquier faltante imputable a ella que se origine en la confección de dicho documento, pudiendo coordinar con el personal de ventas para la recuperación del dinero.

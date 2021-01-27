@@ -1,1 +1,0 @@
-Artículo 24.—Atender en forma responsable a los clientes que se encuentran dentro de la zona que le haya sido asignada. Si al efectuarse una investigación se determina que hay patentados mal atendidos o que del todo no se atienden, sin que exista la justificación correspondiente, el vendedor será sancionado según lo establece el Código de Trabajo.

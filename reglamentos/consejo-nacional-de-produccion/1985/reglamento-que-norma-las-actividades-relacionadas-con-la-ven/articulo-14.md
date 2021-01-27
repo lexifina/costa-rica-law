@@ -1,1 +1,0 @@
-Artículo 14.—El Agente que presente una justificación clara y demostrable hacer la devolución de un producto, está obligado a efectuar el trámite de conformidad con los procedimientos establecidos al efecto, ante la Sección de Ventas y el Departamento de Mercadeo.

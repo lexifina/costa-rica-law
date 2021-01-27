@@ -1,1 +1,0 @@
-Artículo 59.—El presente Reglamento queda sujeto a revisiones y modificaciones de acuerdo a las necesidades y circunstancias de la F.N.L. pero para que las mismas surtan los efectos de ley, deberán ser sometidas y aprobadas por la Junta Directiva del C.N.P., la Contraloría General de la República y publicados en el Diario Oficial.

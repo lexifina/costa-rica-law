@@ -1,1 +1,0 @@
-Artículo 52.—El resultado de las liquidaciones de inventarios practicados a los Agentes deben informarse ^ más tardar dentro de los diez días hábiles siguientes. Para efectos de valuar las diferencias de faltantes de inventarios, se tomarán los precios de la lista vigente en la escala de precios más alta.

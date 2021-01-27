@@ -1,1 +1,0 @@
-Artículo 19.—Es responsable por dolo, culpa o negligencia en su gestión de ventas, uso del vehículo propiedad de la Fábrica, de la mercadería y los documentos que maneja. Cualquier faltante que se determine deberá ser cancelado por el Agente dentro de las 48 horas posteriores a su notificación, sin perjuicio de las sanciones disciplinarias.

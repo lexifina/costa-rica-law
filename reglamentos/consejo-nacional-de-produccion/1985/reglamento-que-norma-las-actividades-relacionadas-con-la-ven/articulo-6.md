@@ -1,1 +1,0 @@
-Artículo 6°—Para acogerse a lo establecido en los incisos c) y d) del artículo 4°, además de lo establecido en el artículo anterior, se exigirá en favor de la FNL la garantía fiduciaria, prendaria o hipotecaria que la Comisión de Crédito estime necesaria para responder por el monto a aprobar.

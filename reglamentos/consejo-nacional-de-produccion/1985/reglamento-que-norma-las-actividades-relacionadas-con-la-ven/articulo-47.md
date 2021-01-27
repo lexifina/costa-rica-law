@@ -1,1 +1,0 @@
-Artículo 47.—En aquellos casos en que sea facilitado licor para ser exhibido, el funcionario autorizante deberá velar porque el mismo regrese en la fecha preestablecida y responderá porque tal disposición sea cumplida. Caso contrario deberá cancelar el importe correspondiente a FNL., dentro de las 48 horas siguientes.

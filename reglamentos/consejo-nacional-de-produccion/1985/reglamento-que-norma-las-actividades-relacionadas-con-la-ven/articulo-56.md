@@ -1,1 +1,0 @@
-Artículo 56.—Están facultados para facturar por oficina, únicamente los funcionarios de la Unidad de Facturación, sin perjuicio de poderlo hacer cualquier otra persona que autorice por escrito la Jefatura de Mercadeo.

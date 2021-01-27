@@ -1,2 +1,0 @@
-Artículo 44.—Con la correspondiente aprobación del Jefe de Mercadeo, se llevarán a cabo degustaciones de productos nuevos, relanzamientos y reformulaciones con el propósito de medir, a través de encuestas, las opiniones de aceptabilidad. En ningún caso la cantidad de licor utilizado podrá exceder de 50 cajas del producto.
-Las degustaciones serán autorizadas por escrito y sus resultados deberán ser comunicados en un informe dentro de un plazo no mayor de diez días des pues de concluido el evento.

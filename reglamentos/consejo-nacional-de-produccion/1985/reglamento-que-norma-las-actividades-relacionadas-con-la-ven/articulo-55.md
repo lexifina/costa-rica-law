@@ -1,1 +1,0 @@
-Artículo 55.—Queda totalmente prohibida la anulación de facturas una vez despachada mercadería de las Bodegas, cuando lo anterior sea imprescindible se requerirá el uso de nota de crédito, emitida por el Departamento Financiero de la Fábrica.

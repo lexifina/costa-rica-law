@@ -1,1 +1,0 @@
-Artículo 38.—Con el Visto Bueno del Departamento de Mercadeo, se podrán celebrar contratos de exhibición (Display) con almacenes mayoristas, licoreras, supermercados y otros tipos de negocios del ramo. Siempre que cuenten con patentes para venta de licores.

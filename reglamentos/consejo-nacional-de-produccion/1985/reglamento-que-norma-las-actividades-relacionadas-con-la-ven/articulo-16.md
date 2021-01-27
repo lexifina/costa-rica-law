@@ -1,1 +1,0 @@
-Artículo 16.—Se establece un margen de tolerancia para envases vacíos (quebrados, manchados o deteriorados) de un 5% sobre la cantidad de cada entrega en bodegas de la FANAL. En todos los casos se debe presentar la totalidad de los envases recibidos. De existir exceso de este porcentaje de tolerancia debe cancelarse dentro de las 48 horas siguientes en la Tesorería de la FNL.
