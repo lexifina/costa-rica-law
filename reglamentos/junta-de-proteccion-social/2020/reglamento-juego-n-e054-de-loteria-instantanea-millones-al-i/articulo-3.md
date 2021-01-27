@@ -1,0 +1,1 @@
+Artículo Nº 3: Mecánica de Juego: Raspar toda el área de juego. Si alguno de SUS NÚMEROS coincide con alguno de los NÚMEROS GANADORES, gana el premio correspondiente a ese número. Puede ganar hasta 3 (tres) veces.

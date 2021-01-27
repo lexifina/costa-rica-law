@@ -1,0 +1,1 @@
+Artículo N° 11: Se aprueba el presente reglamento según acuerdo de Junta Directiva JD-840 correspondiente al Capítulo II), artículo 4) de la Sesión Extraordinaria 70-2020 celebrada el 19 de noviembre de 2020.
