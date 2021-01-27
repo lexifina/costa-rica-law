@@ -1,0 +1,1 @@
+Artículo 3º—Objetivo General: El objetivo general de la modalidad de atención NiDO es articular programas, servicios y proyectos que permitan la atención integral interinstitucional de los hogares en situación de pobreza extrema con mujeres en estado de gestación o lactancia, durante 36 meses.

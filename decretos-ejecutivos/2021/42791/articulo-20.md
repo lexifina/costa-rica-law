@@ -1,0 +1,2 @@
+Artículo 20.—Desarrollo infantil y crianza responsable:
+En caso de que la familia no cumpla con los parámetros para optar por servicios de cuidado infantil institucionalizados, o que no exista disponibilidad presupuestaria por parte de las Unidades Ejecutoras de la REDCUDI, se brindará acompañamiento a la familia mediante su incorporación en los programas de Academias de Crianza del PANI y en modalidades de atención intra o extramuros de la Dirección Nacional de CEN-CINAI.

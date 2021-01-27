@@ -1,0 +1,1 @@
+Artículo 8º—Tratamiento de dates personales. Todo el tratamiento de datos personales requerido para la selección de los hogares, se realizará según lo dispuesto en la Ley N° 8968, Ley de Protección de la Persona frente al tratamiento de sus datos personales.

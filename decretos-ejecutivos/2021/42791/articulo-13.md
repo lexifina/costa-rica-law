@@ -1,0 +1,1 @@
+Artículo 13.—Nutrición Preventiva. Como medidas preventivas se debe referir el caso, siguiendo los protocolos vigentes, para garantizar el acceso a la madre gestante a los programas de nutrición preventiva de la Dirección Nacional de CEN-CINAI.

@@ -1,0 +1,5 @@
+Artículo 16.—Acompañamiento a la ejecución del plan familiar y acceso preferente a oferta programática. A partir del inicio de la atención, se dispone la ejecución del plan de intervención familiar formulado y acordado, con acompañamiento de la persona profesional en desarrollo social o afines, según los siguientes aspectos:
+a) La implementación del plan familiar tendrá un plazo de dos años contados a partir del inicio de la atención, más el año adicional para dar sostenibilidad a los logros de la familia, resultando en la movilidad social ascendente y el disfrute de sus derechos.
+b) La familia podrá contar con tantos beneficios como sean necesarios, lo cual implica preparar el paquete de servicios y beneficios a su medida, a partir de la oferta programática de las instituciones, considerando el ciclo de vida de la mujer en estado de gestación, particularmente en casos de adolescentes madres.
+c) La familia debe avanzar en el cumplimiento de las tareas, asumiendo su corresponsabilidad según el Plan Familiar.
+d) En las sesiones de trabajo se podrá actualizar y replantear el plan familiar según la evolución de las condiciones de la familia.

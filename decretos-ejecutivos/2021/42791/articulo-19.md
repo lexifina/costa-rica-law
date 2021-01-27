@@ -1,0 +1,4 @@
+Artículo 19.—Procesos socioeducativos e intervención sociolaboral. En el proceso de seguimiento al plan familiar y en sesiones de trabajo con los hogares se definirán las acciones que permitan a sus integrantes incorporarse en procesos socioeducativos y de desarrollo sociolaboral. Para ello se deberán observar las siguientes disposiciones:
+a) Se priorizará el acceso y la permanencia de los integrantes del hogar al sistema educativo formal mediante el Programa Avancemos del IMAS.
+b) Se priorizará el acceso a los servicios de cuidado infantil institucionalizados a aquellas beneficiarias directas que requieran de estos servicios para permanecer o incorporarse en procesos socioeducativos y de desarrollo sociolaboral.
+c) La persona profesional en desarrollo social referirá y dará seguimiento a la incorporación de la familia a la intervención sociolaboral de la estrategia denominada Puente al Trabajo y para atención prioritaria en el Sistema Nacional de Empleo.
