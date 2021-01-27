@@ -1,0 +1,1 @@
+Artículo Nº 3: Mecánica de Juego: Raspar toda el área de juego. Si una misma cantidad se repite 3 (tres) veces, gana esa cantidad. Si encuentra 3 (tres) veces el número 20 (veinte) se gana el monto de ¢20.000.000.
