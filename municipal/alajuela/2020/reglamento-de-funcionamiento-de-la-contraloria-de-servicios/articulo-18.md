@@ -1,0 +1,1 @@
+Artículo 18.—Apoyar el proceso de modernización institucional, mediante la generación de información y propuestas, que faciliten la toma de decisiones para mejorar el servicio y asegurar la satisfacción de las y los usuarios.

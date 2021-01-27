@@ -1,0 +1,1 @@
+Artículo 24.—Realizar la formulación y aplicación de encuestas entre las y los usuarios de servicios, para obtener su opinión sobre la calidad, grado de satisfacción y las mejoras requeridas, dichos resultados serán comunicados primeramente a la Alcaldía Municipal.

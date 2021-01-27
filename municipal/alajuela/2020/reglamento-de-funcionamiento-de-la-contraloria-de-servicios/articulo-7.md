@@ -1,0 +1,1 @@
+Artículo 7°—Para el cumplimiento de sus funciones los jerarcas respectivos deberán dotar a la Contraloría de Servicios de los recursos necesarios, que garanticen su óptimo funcionamiento; con el fin de garantizar la ejecución y programación de su gestión.

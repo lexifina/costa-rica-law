@@ -1,0 +1,1 @@
+Artículo 13.—Cuando la Contraloría de Servicios concluya que un determinado asunto no es de su competencia o bien cuando durante el procedimiento determine que no la tiene, remitirá el asunto a la instancia correspondiente, informando de ello a la o el interesado y sus incidencias. Trasladará el trámite a la instancia, órgano, autoridad correspondiente interna.

@@ -1,0 +1,1 @@
+Artículo 2°—Deber de Colaboración. Todas las dependencias y funcionarios de la Municipalidad deberán brindar información, cooperación y prestar colaboración a la Contraloría de Servicios, cuando ésta lo requiera, como parte de las responsabilidades derivadas de su relación organizacional, corporativa y laboral.

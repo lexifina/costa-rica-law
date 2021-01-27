@@ -1,0 +1,2 @@
+Artículo 17.—Contribuir para que los servicios municipales funcionen con un máximo de eficiencia a fin de satisfacer oportuna y adecuadamente las legítimas de los usuarios, así como brindar la información que éstos requieran para orientar y facilitar su contacto con la institución.
+El órgano debe facilitar una cultura institucional con la persona como eje central de su actuación, orientada a la satisfacción de las necesidades de información y orientación de las y los usuarios.

@@ -1,0 +1,1 @@
+Artículo 26.—Elaborar un Plan Anual de Trabajo que deberá ser aprobado por la Alcaldía, que sirva de base para los informes semestrales y el informe anual de labores que una vez que hayan sido presentados a la Alcaldía.
