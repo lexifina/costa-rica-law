@@ -1,0 +1,1 @@
+Artículo 4º—No otorgamiento de beneficios fiscales. Que de conformidad con el Decreto Ejecutivo Nº 40540-H denominado “Contingencia Fiscal” y sus reformas, la presente declaratoria no implica ningún otorgamiento de beneficios fiscales, tales como exoneraciones.

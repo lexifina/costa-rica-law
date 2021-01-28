@@ -1,0 +1,1 @@
+Artículo 2º—Colaboración. Con el propósito de lograr el éxito de esta actividad, las instituciones nacionales, públicas y privadas, así como las demás organizaciones, brindarán en la medida de sus posibilidades y dentro del marco jurídico respectivo, la colaboración y facilidades que estén a su alcance para la realización de la actividad, sin perjuicio de sus propios objetivos.
