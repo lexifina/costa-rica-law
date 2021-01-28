@@ -1,1 +1,0 @@
-Artículo 24.—La investigación, comprobación y fiscalización, así como los reparos y ajustes al valor en aduana declarado, podrán ser realizados por el Servicio Aduanero posterior al levante de las mercancías, dentro del plazo establecido en el CAUCA y de conformidad con las disposiciones legales aplicables.

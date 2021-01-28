@@ -1,1 +1,0 @@
-Artículo 8º—Para la determinación del valor en aduana, se aceptaran los descuentos o rebajas de precios que otorga el vendedor al comprador, siempre que los mismos sean comprobables, cuantificables, no correspondan a transacciones anteriores y que el precio realmente pagado o por pagar cumpla con lo dispuesto en el artículo 1º del acuerdo.

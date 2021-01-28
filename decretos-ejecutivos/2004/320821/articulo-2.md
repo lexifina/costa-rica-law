@@ -1,1 +1,0 @@
-Artículo 2º—La determinación del valor en aduana de las mercancías importadas o internadas al Territorio Aduanero Centroamericano, estén o no afectas al pago de derechos e impuestos, se hará de conformidad con las disposiciones del Acuerdo, de este Reglamento y de la legislación aduanera Centroamericana aplicable.
