@@ -1,0 +1,2 @@
+ARTÍCULO 7- Omisión de presentación de declaraciones juradas o documentos exigidos
+Si el patentado no presenta las declaraciones juradas o los documentos indicados en el artículo anterior, la Municipalidad le aplicará la calificación del año anterior, salvo que la Administración Tributaria municipal determine la necesidad de recalificar la respectiva patente, conforme se establece en el artículo siguiente.

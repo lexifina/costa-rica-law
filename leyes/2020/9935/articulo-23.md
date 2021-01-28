@@ -1,0 +1,2 @@
+ARTÍCULO 23- Multa por ejercicio ilegal de actividades lucrativas
+Se impondrá una multa de tres a quince salarios base, establecido en el artículo 2 la Ley 7337, de 5 de mayo de 1993, a quien realice cualquiera de las actividades lucrativas señaladas en el artículo 1 de esta ley sin contar con licencia municipal, cuando prevenido el infractor, por escrito, para que cese de inmediato la actividad, persista en esta haciendo caso omiso de la orden municipal impartida. Igual sanción se aplicará a quienes continúen desarrollando la actividad con la licencia vencida o cancelada.
