@@ -1,6 +1,0 @@
-Artículo 25.—Causales de cancelación 2 (2 con reserva de Costa Rica). Será cancelada la autorización confe|rida, independientemente de las sanciones que procedan por las infracciones cometidas, por las siguientes causas:
-a) Ser condenado en sentencia definitiva por haber participado en la comisión de delitos fiscales o en el tráfico de drogas, armas o de mercancías de importación prohibida cuya introducción signifique un riesgo inminente al medio ambiente, por delitos que atenten contra los derechos de propiedad intelectual e industrial o, cualquier otro delito que lo inhabilite como agente aduanero.
-b) Por delegar ilegalmente sus funciones a personas no autorizadas por el Servicio Aduanero.
-c) Haberse hecho acreedor a dos suspensiones en un período de tres años.
-d) Señalar intencionalmente en la declaración aduanera el nombre, domicilio fiscal o el número de identificación tributaria de alguna persona que no sea el consignatario de las mercancías, o cuando estos datos resulten falsos o inexistentes, con el fin de obtener lucro o beneficio personal o para terceros.
-En caso de cancelación de la autorización el Servicio Aduanero entrará en posesión de los libros y documentos que constituyan el archivo del agente aduanero, a fin de que, debidamente separados del archivo de la propia aduana, se conserven a disposición de los importadores y exportadores.

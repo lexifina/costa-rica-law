@@ -1,1 +1,0 @@
-Artículo 219.—Observación de las mercancías. Las personas interesadas en participar en la subasta podrán observar las mercancías dentro del plazo de tres días previos a su realización. Las mercancías se venderán en las condiciones en que se encuentren a la fecha de la venta y el adjudicatario no tendrá derecho a reclamaciones posteriores en contra del Servicio Aduanero.

@@ -1,1 +1,0 @@
-Artículo 191.—Aviso. A requerimiento de la aduana las autoridades de correo remitirán un aviso a los destinatarios de los envíos postales que de acuerdo a la ley requieran el pago de derechos e impuestos, a fin de que se proceda al despacho aduanero de los mismos.

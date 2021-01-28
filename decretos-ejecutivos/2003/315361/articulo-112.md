@@ -1,1 +1,0 @@
-Artículo 112.—Contenido y documentos que sustentan la declaración al régimen. La declaración para el régimen de importación definitiva contendrá la información que establece el artículo 83 y se sustentará en los documentos mencionados en el artículo 84, ambos de este Reglamento.

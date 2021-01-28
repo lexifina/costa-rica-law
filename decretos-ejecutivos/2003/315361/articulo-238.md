@@ -1,1 +1,0 @@
-Artículo 238.—Disposición interpretativa. Cuando en el contexto de este Reglamento se haga la referencia a las frases "entre otras" y "entre otros", se entenderá que comprende aquellas normas que se encuentren vigentes y las demás que puedan establecerse por normativa interna.

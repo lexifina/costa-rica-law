@@ -1,1 +1,0 @@
-Artículo 124.—Reconocimiento físico. El reconocimiento físico podrá efectuarse en las instalaciones del exportador u otras autorizadas, de acuerdo con las disposiciones administrativas de carácter general que al efecto dicte el Servicio Aduanero.

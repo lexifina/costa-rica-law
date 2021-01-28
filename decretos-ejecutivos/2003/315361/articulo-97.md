@@ -1,2 +1,0 @@
-Artículo 97.—Concurrencia del declarante en el reconocimiento
-físico. El declarante tiene derecho a presenciar el reconocimiento físico de las mercancías. Si no concurriere oportunamente, la diligencia se realizará por la autoridad aduanera y será considerada legítima. Sin perjuicio de lo establecido en el párrafo anterior, la autoridad aduanera podrá requerir la presencia obligatoria del declarante al momento del reconocimiento físico, para que éste aporte la información necesaria en la ejecución del acto.

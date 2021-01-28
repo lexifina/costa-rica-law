@@ -1,2 +1,0 @@
-Artículo 158.—Caso especial de importación definitiva. Las
-mercancías admitidas temporalmente que al vencimiento del plazo de permanencia, el beneficiario no comprobare que han sido reexportadas o destinadas a cualquiera de los demás tratamientos legalmente autorizados, se considerarán importadas definitivamente al territorio aduanero y consecuentemente estarán afectas a los derechos e impuestos vigentes a la fecha del vencimiento de dicho plazo y al cumplimiento de las obligaciones aduaneras no tributarias.

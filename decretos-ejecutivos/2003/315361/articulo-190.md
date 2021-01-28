@@ -1,1 +1,0 @@
-190.—Controles. El funcionario aduanero destacado en las oficinas de correos seleccionará los envíos postales que deberán someterse a reconocimiento físico y los remitirá a los depósitos temporales o locales que el Servicio Aduanero designe al efecto, para su tratamiento aduanero posterior.

@@ -1,1 +1,0 @@
-Artículo 109.—Mercancías beneficiadas por otros acuerdos comerciales. Las mercancías beneficiadas por tratamientos arancelarios preferenciales contemplados en otros acuerdos comerciales, podrán incluirse en la Declaración Aduanera con mercancías no beneficiadas, siempre y cuando acompañen a ésta el certificado de origen.

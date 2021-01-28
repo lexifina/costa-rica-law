@@ -1,3 +1,0 @@
-Artículo 79.—Destinación aduanera de las mercancías. Salvo
-disposición en contrario, las mercancías en depósito podrán recibir en todo momento y en las condiciones establecidas, cualquier destino aduanero, independientemente de su naturaleza, cantidad, origen, procedencia o destino.
-Lo dispuesto en el párrafo anterior no será obstáculo para las prohibiciones o restricciones justificadas por razones de orden público, moralidad y seguridad pública, protección de la salud, de la vida de las personas y de los animales, preservación de los vegetales, protección del patrimonio artístico, histórico o arqueológico nacional o protección de la propiedad intelectual, industrial y comercial.

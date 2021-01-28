@@ -1,2 +1,0 @@
-Artículo 91.—Selectividad y aleatoriedad de la verificación inmediata. La declaración de mercancías autodeterminada será sometida a un proceso selectivo y aleatorio que determine si corresponde efectuar la verificación inmediata de lo declarado.
-Cuando de conformidad con los criterios selectivos y aleatorios corresponda efectuar la verificación inmediata de lo declarado, el agente aduanero o el declarante deberá presentar ante el Servicio Aduanero los documentos que sustentan la declaración.

@@ -1,2 +1,0 @@
-Artículo 60.—Control de la autoridad aduanera. Al tener conocimiento de haberse producido un arribo forzoso, la autoridad aduanera se constituirá en el lugar del arribo y solicitará al responsable del medio de transporte la presentación del manifiesto de carga; en caso de que éste no existiera, levantará acta en la que se especificará la información necesaria.
-Los medios de transporte que lleguen en arribo forzoso, su cargamento y demás efectos, permanecerán bajo el control del Servicio Aduanero.

@@ -1,2 +1,0 @@
-Artículo 192.—Importación de envíos postales de carácter comercial. Las personas que en virtud de su actividad realicen importaciones comerciales por la vía postal deberán, además de cumplir con los requisitos arancelarios y no arancelarios exigibles, presentar su declaración a través de un agente aduanero o apoderado especial aduanero.
-La autoridad aduanera no podrá prácticar el reconocimiento físico de los envíos postales sin la presencia del destinatario o su representante.

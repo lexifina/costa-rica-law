@@ -1,3 +1,0 @@
-Artículo 104.—Conservación de documentos. Cuando el sistema autorice el levante automático o sin verificación de la mercancía, la declaración y los documentos que la sustentan deberán ser archivados por el declarante, salvo que la legislación nacional establezca una disposición en contrario.
-En el caso de que la documentación la custodie el declarante, éste deberá conservarla a disposición de la autoridad aduanera por el plazo que establece el Artículo 62 del Código.
-Cuando el sistema informático determine que debe efectuarse una verificación inmediata de lo declarado, la declaración de mercancías y los documentos que la sustentan serán archivados por la autoridad aduanera.

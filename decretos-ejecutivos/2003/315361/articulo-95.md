@@ -1,2 +1,0 @@
-Artículo 95.—Procedimiento de la extracción de muestras.
-Cuando la extracción se realice durante el acto de verificación deberá consignarse en acta, en la que se dejará constancia de la fecha, la descripción detallada de las muestras, los empaques utilizados para protegerlas y cualquier otra circunstancia que hubiere incidido en el acto Este procedimiento no impedirá el levante de las mercancías, salvo que se detecte la posible comisión de una infracción aduanera tributaria o penal, en cuyo caso se iniciará de inmediato las acciones pertinentes.

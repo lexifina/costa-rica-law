@@ -1,2 +1,0 @@
-Artículo 23.—Subrogación. El agente aduanero que realice el pago de derechos e impuestos, intereses, multas y demás recargos por cuenta de su mandante, se subrogará en los derechos privilegiados del Fisco por las sumas pagadas.
-Para ese efecto, la certificación del adeudo expedida por la autoridad superior del Servicio Aduanero constituirá título ejecutivo para ejercer cualquiera de las acciones correspondientes.

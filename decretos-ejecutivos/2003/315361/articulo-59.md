@@ -1,1 +1,0 @@
-Artículo 59.—Arribo forzoso. En el caso de arribo forzoso, el transportista deberá dar aviso a la autoridad aduanera competente dentro del mismo día de producido dicho arribo, especificando los motivos o causas del mismo.

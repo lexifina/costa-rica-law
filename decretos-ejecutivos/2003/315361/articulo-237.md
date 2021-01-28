@@ -1,1 +1,0 @@
-Artículo 237.—Disposiciones administrativas de carácter general. Las disposiciones administrativas de carácter general que emita el Servicio Aduanero deberán ser publicadas para su vigencia y obligatorio cumplimiento.

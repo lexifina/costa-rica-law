@@ -1,2 +1,0 @@
-Artículo 157.—Tratamiento de desperdicios. Los desperdicios que resulten de las operaciones de perfeccionamiento, que no se les prive totalmente de valor comercial, deberán someterse a cualquier otro régimen o destino legalmente permitido.
-No se consideran importados definitivamente los desperdicios de las mercancías admitidas temporalmente, siempre que los mismos se destruyan o se reciclen en el mismo proceso de producción y se cumpla con las normas de control que establezca el Servicio Aduanero a través de disposiciones administrativas de carácter general.

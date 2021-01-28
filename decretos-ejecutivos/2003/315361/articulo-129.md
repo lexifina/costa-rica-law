@@ -1,2 +1,0 @@
-Artículo 129.—Plazos y rutas. El Servicio Aduanero establecerá los plazos y fijará las rutas para la operación de tránsito en el territorio aduanero.
-La Aduana de entrada o de partida está obligada a comunicar a la interior o de destino, sobre las operaciones de tránsito diarias que se inician o se efectúan en las mismas. Dicha información comprenderá, entre otras, el plazo, rutas legales, números de precintos y características generales de la carga.

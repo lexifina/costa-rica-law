@@ -1,7 +1,0 @@
-Artículo 48.—Autorización de sistemas de archivo. Las copias o reproducciones de documentos que se archiven o transmitan que deriven de microfilm, disco óptico, escáner o cualquier otro medio que autorice el Servicio de Aduanas, tendrán el mismo valor probatorio de los originales. Cuando el Servicio Aduanero autorice la microfilmación o grabación en disco óptico o a través de cualquier otro medio, se deberán cumplir, entre otros, con los siguientes requisitos:
-a) Consignar al inicio y al final de las microfilmaciones o grabación la fecha en que se realizan las mismas.
-b) Realizar la microfilmación o grabación por duplicado, a efecto que uno de los ejemplares pueda emplearse para uso constante y conservarse el otro en un lugar seguro que garantice su indestructibilidad mientras no se extingan las facultades de comprobación de las autoridades aduaneras.
-c) Usar para la microfilmación película pancromática con base de seguridad, u otra que garantice permanencia de imagen por el mismo período a que se refiere el literal anterior.
-d) Efectuar la grabación en discos ópticos en los términos y con las características que señale el Servicio Aduanero.
-e) Relacionar el anverso y reverso de los documentos, cuando la microfilmación o grabación no se haga con equipo que microfilme o grabe simultáneamente las dos caras de dichos documentos y éstos contengan anotaciones al reverso.
-f) Conservar documentalmente el ejercicio en curso, así como los dos ejercicios anteriores a la fecha de operación.

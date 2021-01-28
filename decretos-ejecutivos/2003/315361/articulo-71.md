@@ -1,1 +1,0 @@
-Artículo 71.—Plazo para efectuar el transbordo. El transbordo deberá efectuarse bajo control y condiciones que la autoridad aduanera determine, dentro de un plazo máximo de veinticuatro horas hábiles, contado a partir de su autorización salvo que, por causas justificadas, la autoridad aduanera otorgue un plazo mayor.

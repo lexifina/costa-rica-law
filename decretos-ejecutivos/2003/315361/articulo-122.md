@@ -1,1 +1,0 @@
-Artículo 122.—No exigencia de presentación de declaración de mercancías. Los países cuando lo consideren necesario, podrán prescindir de la presentación de la declaración de mercancías, cuando éstas no excedan de un monto establecido por el servicio aduanero.

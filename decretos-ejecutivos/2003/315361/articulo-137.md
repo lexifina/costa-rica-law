@@ -1,2 +1,0 @@
-Artículo 137.—Garantía. En los casos del artículo anterior el Servicio Aduanero exigirá que se rinda una garantía para responder por el monto de la totalidad de los derechos e impuestos eventualmente aplicables, según los términos y condiciones que legalmente se establezcan por normativa específica o en disposiciones administrativas de carácter general.
-La garantía se hará efectiva si el régimen no es cancelado dentro del plazo establecido o se desnaturaliza los fines que originaron su autorización, sin perjuicio de otras acciones procedentes.

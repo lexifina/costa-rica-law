@@ -1,1 +1,0 @@
-Artículo 241.—Ampliación de la cobertura de operación de los Agentes Aduaneros. Al perfeccionarse la Unión Aduanera entre los países signatarios, el agente aduanero autorizado en uno de esos países, podrá actuar como tal en cualquiera de los países que constituyan dicha unión, de acuerdo con los requisitos y condiciones que el servicio aduanero de cada país establezca.

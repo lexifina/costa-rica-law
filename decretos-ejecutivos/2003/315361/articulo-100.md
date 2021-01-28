@@ -1,1 +1,0 @@
-Artículo 100.—Efectos del reconocimiento físico. Cuando el reconocimiento físico comprenda sólo una parte de las mercancías objeto de una misma declaración, los resultados del examen se extenderán a las demás mercancías de igual naturaleza arancelaria.

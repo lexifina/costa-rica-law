@@ -1,1 +1,0 @@
-Artículo 172.—Plazo de permanencia. La permanencia de las mercancías bajo el régimen de exportación temporal con reimportación en el mismo estado será de seis meses contados a partir de la aceptación de la declaración.

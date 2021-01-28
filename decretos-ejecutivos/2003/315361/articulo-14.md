@@ -1,1 +1,0 @@
-Artículo 14.—Procedimiento de autorización. Admitida la solicitud, el Servicio Aduanero resolverá lo procedente en el plazo y mediante el procedimiento establecido por cada país signatario. Concedida la autorización, el auxiliar deberá rendir la garantía correspondiente, salvo las excepciones legalmente establecidas.

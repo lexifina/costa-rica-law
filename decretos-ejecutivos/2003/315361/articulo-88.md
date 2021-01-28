@@ -1,2 +1,0 @@
-Artículo 88.—Declaración provisional. La declaración de mercancías podrá ser autorizada de manera provisional por el Servicio Aduanero, tratándose del despacho de mercancías a granel y otras que legalmente se establezcan.
-La declaración definitiva se presentará dentro del plazo de cinco días siguientes a la finalización de la carga o descarga de las mercancías objeto de la declaración de mercancías, salvo plazos establecidos por normativa específica.

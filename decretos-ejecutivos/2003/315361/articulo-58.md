@@ -1,1 +1,0 @@
-Artículo 58.—Información complementaria. Al momento del arribo, el transportista deberá comunicar a la autoridad aduanera, toda circunstancia que refleje el estado físico de las mercancías, tales como mermas, daños o averías, producidos durante su transporte, así como cualquier otra circunstancia que afecte la información que previamente le hubiera suministrado.

@@ -1,2 +1,0 @@
-Artículo 50.—Transporte de mercancías peligrosas. Las empresas de transporte internacional que trasladen mercancías explosivas, corrosivas, contaminantes, radioactivas, armas, municiones o cualquier otro tipo de mercancías peligrosas, deberán dar aviso sobre las mismas a la autoridad aduanera con anticipación al arribo del medio de transporte al territorio aduanero.
-En estos casos, la autoridad aduanera deberá informar de tal circunstancia a las autoridades competentes a efecto que se adopten las medidas de seguridad correspondientes.

@@ -1,1 +1,0 @@
-Artículo 207.—Identificación de bultos. Los bultos que arriben a un país o salgan de éste, deberán estar identificados mediante la inclusión de distintivos especiales de color verde para documentos o rojo para mercancías.

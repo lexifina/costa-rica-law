@@ -1,1 +1,0 @@
-Artículo 99.—Disposición de las mercancías. El declarante deberá poner a disposición del funcionario aduanero las mercancías para que realice el reconocimiento físico, quedando bajo su responsabilidad la apertura de los bultos, su agrupamiento y demás operaciones necesarias para facilitar su reconocimiento.

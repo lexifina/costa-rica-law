@@ -1,1 +1,0 @@
-Artículo 116.—Efectos de la sustitución. En caso que proceda la autorización de sustitución, el Servicio Aduanero emitirá una resolución dejando sin efecto la declaración que ampara las mercancías a sustituir y compensará los derechos e impuestos pagados en la misma a la declaración que ampare la mercancía sustituta.

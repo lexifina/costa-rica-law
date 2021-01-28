@@ -1,2 +1,0 @@
-Artículo 135.—Identificación. El Servicio Aduanero podrá autorizar la importación temporal cuando sea posible identificar las mercancías, mediante marcas, números, sellos, medidas u otras características especiales.
-No obstante, si las mercancías no son plenamente identificables, la autoridad aduanera adoptará las medidas que estime necesarias para asegurar su identificación y el control de su utilización.

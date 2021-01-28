@@ -1,1 +1,0 @@
-Artículo 38.—Cumplimiento de otros requisitos. Los medios de transporte deberán cumplir además con las especificaciones técnicas exigidas en leyes y reglamentos especiales para circular por el territorio de los países signatarios.

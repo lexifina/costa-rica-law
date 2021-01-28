@@ -1,1 +1,0 @@
-Artículo 203.—Procedimiento simplificado. En el caso de las mercancías comprendidas en el artículo anterior, el Servicio Aduanero someterá la declaración a los trámites mínimos indispensables para asegurar el interés fiscal.

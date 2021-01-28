@@ -1,2 +1,0 @@
-Artículo 144.—Envases y elementos de transporte. Se entenderá por envases, los continentes que se destinen a ser reutilizados en el mismo estado en que se importaron temporalmente.
-Se entenderá por elementos de transporte, las envolturas, empaques, paletas y otros dispositivos protectores de las mercancías que previenen daños posibles durante la manipulación y el transporte de las mercancías. En ambos casos, los envases y elementos de transporte no podrán ser utilizados en tráfico interno, excepto para la exportación de mercancías.

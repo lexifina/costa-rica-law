@@ -1,1 +1,0 @@
-Artículo 46.—Suspensión o cancelación de la autorización 6 (6 con reserva para Costa Rica). En caso de incumplimiento de cualquiera de las obligaciones a que esté sujeta la empresa de entrega rápida, el Servicio Aduanero o la autoridad competente, en su caso, podrá suspender o cancelar la autorización concedida a las empresas para operar en este procedimiento simplificado.

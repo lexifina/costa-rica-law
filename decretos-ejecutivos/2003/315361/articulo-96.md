@@ -1,1 +1,0 @@
-Artículo 96.—Lugar del reconocimiento. El reconocimiento físico de las mercancías se realizará en las instalaciones o lugares habitualmente autorizados para esos efectos por la autoridad aduanera. Podrá autorizarse el reconocimiento en otras instalaciones, en los casos especiales establecidos en el artículo 63 de este Reglamento.

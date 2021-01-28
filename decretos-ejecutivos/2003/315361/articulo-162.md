@@ -1,2 +1,0 @@
-Artículo 162.—Plazo de permanencia de las mercancías. El plazo
-de permanencia de las mercancías en depósito será de un año improrrogable, contado a partir de la fecha de la recepción de la mercancía por parte del depositario o la aceptación de la declaración respectiva, según se disponga. Vencido este plazo la mercancía se considerará en abandono.

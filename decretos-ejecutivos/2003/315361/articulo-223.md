@@ -1,2 +1,0 @@
-Artículo 223.—Casos especiales de Subasta. Las mercancías de inmediata o fácil descomposición y las de conservación dispendiosa, serán vendidas, utilizando el mecanismo más expedito que el servicio aduanero establezca.
-En tales casos, podrá dispensarse la publicación que indica el artículo 217 de este Reglamento, pero el servicio aduanero deberá darle la publicidad que las circunstancias permitan.

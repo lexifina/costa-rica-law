@@ -1,3 +1,0 @@
-Artículo 123.—Declaración acumulada. Los exportadores habituales que se encuentren legalmente registrados podrán declarar en forma acumulada dentro de los primeros cinco días de cada mes, las exportaciones efectuadas por la misma aduana durante el mes calendario anterior, en las condiciones que fije el Servicio Aduanero mediante disposiciones administrativas de carácter general. La declaración deberá presentarse ante la aduana de salida, acompañada de la documentación correspondiente a cada transacción realizada.
-Se entiende por exportadores habituales a aquellos que realicen como mínimo doce exportaciones al año.
-El exportador que incumpla el plazo a que se refiere el primer párrafo, no seguirá gozando de la facilidad prevista en este artículo.

@@ -1,2 +1,0 @@
-Artículo 228.—Recurso de reconsideración. El recurso de reconsideración debe interponerse dentro del plazo de tres días siguientes a la notificación de la resolución respectiva. En el mismo acto, el recurrente presentará las alegaciones técnicas, de hecho y de derecho, así como las pruebas en que fundamente su recurso.
-El recurso deberá ser resuelto por la autoridad recurrida dentro del plazo de diez días siguientes a su interposición.

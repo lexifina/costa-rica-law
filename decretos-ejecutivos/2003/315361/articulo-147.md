@@ -1,2 +1,0 @@
-Artículo 147.—Plazo del régimen. El plazo de permanencia de las mercancías introducidas para su perfeccionamiento al amparo del Régimen de Admisión Temporal para Perfeccionamiento Activo, será de hasta doce meses improrrogables, contado a partir del día de aceptación de la declaración de mercancías correspondiente.
-Para la aplicación de este régimen se requerirá la constitución de garantía, salvo que leyes especiales no exijan tal requisito.

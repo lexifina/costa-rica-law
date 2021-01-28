@@ -1,1 +1,0 @@
-Artículo 230.—Impugnación de actos de la Autoridad Superior del Servicio Aduanero. Contra los actos y resoluciones que emita la Autoridad Superior del Servicio Aduanero que no se deriven de actos originados en las administraciones aduaneras, cabrá el recurso de apelación en la forma establecida en el artículo 231 de este Reglamento.

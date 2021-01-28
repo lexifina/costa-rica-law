@@ -1,5 +1,0 @@
-Artículo 18.—Requisitos específicos. Además de los requisitos generales establecidos en este Reglamento, la persona natural que solicite la autorización para actuar como agente aduanero deberá reunir, entre otros, los siguientes:
-a) Ser nacional de cualquiera de los países signatarios.
-b) Poseer el grado mínimo de licenciatura en materia aduanera; o, aprobar con un porcentaje global mínimo de setenta y cinco por ciento (75%) el examen de competencia para aquellos interesados que posean grado académico de licenciatura en otras disciplinas de estudio, en ambos casos, los países podrán aplicar al interesado un examen psicométrico.
-El examen de competencia versará sobre valor, origen, merceología, clasificación arancelaria, procedimientos y legislación aduanera, el que se prácticará con la periodicidad que los servicios aduaneros establezcan.
-Para la práctica del examen de competencia, se conformará un tribunal examinador, que estará integrado por tres funcionarios del servicio aduanero, con el grado mínimo de licenciatura con conocimientos sobre las materias a que se refiere el párrafo anterior.

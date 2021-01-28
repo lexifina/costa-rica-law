@@ -1,9 +1,0 @@
-Artículo 37.—Obligaciones específicas. Además de las obligaciones establecidas por el Código y este Reglamento, los transportistas aduaneros tendrán, entre otras, las siguientes:
-a) Entregar las mercancías en la aduana de destino y responder por el cumplimiento de todas las obligaciones que el régimen de tránsito aduanero le impone, incluso del pago de los tributos correspondientes si la mercancía no llega en su totalidad a destino.
-b) Transmitir electrónicamente o por otro medio autorizado, la declaración y cualquier otra información que se le solicite antes del arribo de los medios de transporte, así como los datos relativos a las mercancías transportadas. Esta información podrá sustituir el manifiesto de carga, para la recepción de las mercancías en las condiciones y los plazos que legalmente se establezcan.
-c) Comunicar por los medios establecidos por el Servicio Aduanero las diferencias que se encuentren entre la cantidad de bultos realmente descargados o transportados y las cantidades manifestadas, los bultos dañados o averiados como consecuencia del transporte marítimo o aéreo y cualquier otra circunstancia que afecte las declaraciones realizadas.
-d) En el caso del tránsito terrestre, transportar las mercancías por las rutas habilitadas y entregarlas en el lugar autorizado, dentro de los plazos establecidos.
-e) Mantener intactos los dispositivos o medidas de seguridad adheridos a los medios de transporte.
-f) Permitir y facilitar la inspección aduanera de mercancías, vehículos y unidades de transporte, sus cargas y la verificación de los documentos o las autorizaciones que las amparen.
-g) Asignar personal para la carga, descarga o trasbordo de mercancías.
-En caso de incumplimiento de cualquiera de las obligaciones a que esté sujeto el transportista aduanero, el Servicio Aduanero aplicará las sanciones que correspondan.

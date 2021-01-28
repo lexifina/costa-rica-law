@@ -1,2 +1,0 @@
-Artículo 73.—Plazo para efectuar el reembarque. Para conceder la autorización de reembarque, no se exigirá ninguna garantía y éste deberá realizarse dentro de un plazo de diez días contado a partir de la autorización, salvo que por causas justificadas la autoridad aduanera otorgue un plazo mayor.
-De no efectuarse dentro de ese plazo, las mercancías se considerarán en abandono, sin perjuicio de otras responsabilidades que puedan deducirse.

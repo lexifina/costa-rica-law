@@ -1,1 +1,0 @@
-Artículo 150.—Autorización. Podrá beneficiarse de este régimen toda persona, debidamente autorizada por la autoridad competente, que introduzca al territorio aduanero mercancías para ser destinadas a procesos de transformación, elaboración, reparación u otros legalmente autorizados.

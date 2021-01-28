@@ -1,1 +1,0 @@
-Artículo 43.—De la inhabilitación, sustitución del mandato y de la subrogación. Serán aplicables al apoderado especial aduanero, las disposiciones contenidas en los artículos 19, 22 y 23 del presente Reglamento.

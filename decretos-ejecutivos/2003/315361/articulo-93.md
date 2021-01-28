@@ -1,1 +1,0 @@
-Artículo 93.—Obligación de presentar los documentos que sustentan la declaración. El servicio aduanero podrá establecer el momento, la forma y condiciones en que se presentarán los documentos que sustentan la declaración.

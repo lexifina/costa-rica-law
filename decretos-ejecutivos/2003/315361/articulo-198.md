@@ -1,1 +1,0 @@
-Artículo 198.—Procedimientos simplificados. Los países podrán establecer procedimientos simplificados para el despacho de envíos postales de carácter comercial y no comercial, utilizando preferentemente los medios electrónicos. Este procedimiento simplificado se regirá por la normativa que al efecto emita el servicio aduanero en conjunto con las autoridades del correo.

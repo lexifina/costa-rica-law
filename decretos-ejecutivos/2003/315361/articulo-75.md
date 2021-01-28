@@ -1,1 +1,0 @@
-Artículo 75.—Plazo de almacenamiento. El plazo del depósito temporal de mercancías será de veinte días contado a partir del día siguiente a la fecha de ingreso al depósito. Vencido ese plazo, las mercancías se considerarán en abandono.
