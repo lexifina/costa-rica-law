@@ -24,3 +24,4 @@ Reglamento a la Ley de Salarios y Régimen de Méritos del Tribunal Supremo de E
 | 9 | 2017-09-05 | Decreto TSE 10 (2017-09-05) |
 | 10 | 2019-03-05 | Decreto TSE 3 (2019-03-05) |
 | 11 | 2020-12-16 | Decreto TSE 9 (2020-12-16) |
+| 12 | 2021-01-28 | Decreto TSE 1 (2021-01-28) |
