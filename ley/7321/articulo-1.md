@@ -1,4 +1,6 @@
+(Derogado)
 N° 7321
+(Esta norma fue derogada por el artículo 28 de la Ley de patentes del Cantón de Sarapiquí, N° 9935 del 18 de diciembre del 2020)
 LA ASAMBLEA LEGISLATIVA DE LA REPUBLICA DE COSTA RICA
 DECRETA:
 TARIFA DE IMPUESTOS MUNICIPALES DEL CANTON DE SARAPIQUI

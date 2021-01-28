@@ -1,0 +1,2 @@
+ARTÍCULO 22- Multa por continuar la actividad con licencia suspendida
+Una vez suspendida la licencia, si el licenciatario continúa desarrollando la actividad será sancionado con una multa equivalente de tres a quince salarios base, establecido en el artículo 2 la Ley 7337, de 5 de mayo de 1993; todo ello sin perjuicio de que se pueda seguir una causa penal contra el infractor, por los delitos de desobediencia y violación de sellos.

@@ -1,0 +1,1 @@
+TRANSITORIO I- El porcentaje o tipo impositivo del impuesto de patente previsto para el primer año regirá a partir del período fiscal siguiente a aquel en que entre en vigencia esta ley, momento a partir del cual la Municipalidad procederá a realizar el ajuste correspondiente.
