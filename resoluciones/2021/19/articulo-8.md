@@ -1,0 +1,1 @@
+Artículo 8- La categoría especial establecida en la presente resolución se podrá autorizar por periodos de dos años, y podrá ser renovada por periodos idénticos, a excepción de las personas que cursen el último año del ciclo educativo, en cuyo caso se le otorgará la renovación por lo que reste de ese ciclo.

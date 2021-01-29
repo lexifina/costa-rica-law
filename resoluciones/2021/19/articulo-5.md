@@ -1,0 +1,3 @@
+Artículo 5- La solicitud se deberá presentar antes del 30 de abril de 2021 ante las oficinas del MEP, el cual la remitirá dentro de un plazo no mayor de cinco días hábiles a las oficinas centrales de la DGME. La recepción de la documentación será coordinada entre ambas instituciones.
+Conforme al artículo 198 de la Ley General de Migración y Extranjería N°8764, toda solicitud de la esta categoría especial deberá de ser presentada de forma completa, todos los requisitos indicados anteriormente.
+De no ser así, se procederá a rechazar de plano la petición por improcedente, en el mismo acto de presentación, sin necesidad de realizar prevención alguna.

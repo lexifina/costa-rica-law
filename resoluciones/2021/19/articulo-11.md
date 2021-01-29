@@ -1,0 +1,1 @@
+Artículo 11- La resolución que deniegue la autorización de permanencia legal en el país al amparo de la categoría especial que establece la presente resolución, contará con los recursos ordinarios, conforme al artículo 221 y siguientes de la Ley General de Migración y Extranjería.
