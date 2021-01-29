@@ -14,3 +14,4 @@ Actualización de listado de priorizado de principios activos con requisitos de 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-06-27 | la propia norma |
+| 2 | 2021-01-29 | Resolución 1 (2021-01-29) |
