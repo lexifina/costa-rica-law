@@ -1,0 +1,1 @@
+Artículo 39.-Confidencialidad de la información. Será estrictamente confidencial la información que el auditor interno o cualesquiera de sus subalternos obtenga en el ejercicio de sus funciones de conformidad con los Artículos N2 6 y N2 32 de la Ley N2 8292, así como el Artículo N 2 8 de la Ley N2 8422.

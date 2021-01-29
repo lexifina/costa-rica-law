@@ -1,0 +1,1 @@
+Artículo 30.-Prohibiciones. El Auditor Interno y el personal de Auditoría Interna deberán observar las prohibiciones establecidas en el Artículo N2 34 de la Ley N2 8292, Ley General de Control Interno, Ley N2 8422, Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública y otras regulaciones conexas.

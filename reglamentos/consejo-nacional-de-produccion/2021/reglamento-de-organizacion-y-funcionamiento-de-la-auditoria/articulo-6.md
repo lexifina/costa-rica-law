@@ -1,0 +1,2 @@
+Artículo 6-Misión, visión y políticas de la Auditoría Interna. La Auditoría Interna establecerá y actualizará la visión, misión y demás políticas necesarias para su correcto accionar, así como los enunciados o códigos éticos 1 aplicables a sus funcionarios en sus distintas relaciones internas y externas cuando lo considere conveniente.
+1 La Institución mantiene vigente Código de Ética y Conducta del Consejo Nacional de Producción y Fábrica Nacional de Licores, que aplica para todos los funcionarios.

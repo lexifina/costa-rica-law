@@ -1,0 +1,1 @@
+Artículo 52 -Apertura para analizar hechos presuntamente irregulares. El Auditor Interno es el encargado de asignar el análisis y/o atención de los hechos presuntamente irregulares que sean comunicados ante esta área o sean del conocimiento propio de esta Auditoría Interna.

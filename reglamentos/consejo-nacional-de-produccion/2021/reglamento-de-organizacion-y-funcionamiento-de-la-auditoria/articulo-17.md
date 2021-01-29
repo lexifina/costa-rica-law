@@ -1,0 +1,3 @@
+SECCIÓN C
+Del auditor interno y personal a su cargo
+Artículo 17.-Nombramiento del Auditor Interno y Subauditores Internos. El nombramiento del Auditor y Subauditores Internos lo hará la Junta Directiva y será por tiempo indefinido; de acuerdo con lo establecido en los Artículos .N2 24 y 31 de la Ley General de Control Interno. El Auditor Interno dependerá y responderá directamente por su gestión ante la Junta Directiva y solo podrá ser removido de acuerdo con lo establecido en el Artículo .N2 15 de la Ley Orgánica de la Contraloría General de la República. El o los Subauditores Internos responderán por su gestión ante el Auditor Interno o ante la Junta Directiva cuando estén ejerciendo temporalmente el cargo de Auditor Interno.

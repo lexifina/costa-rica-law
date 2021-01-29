@@ -1,0 +1,1 @@
+Artículo 18.-Asistencia del Auditor Interno a Junta Directiva. El Auditor Interno asistirá a las sesiones de Junta Directiva con voz pero sin voto, de conformidad con lo establecido en el Artículo .N2 26 de la Ley Orgánica del Consejo Nacional de Producción.

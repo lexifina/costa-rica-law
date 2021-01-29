@@ -1,0 +1,1 @@
+Artículo 3-Del presente reglamento. Para la formulación, aprobación, promulgación y modificación de este Reglamento procederá conforme a lo dispuesto en los "Lineamientos sobre gestiones que involucran a la Auditoría Interna presentadas ante la CGR (R-DC-83-2018)", publicados en el Diario Oficial La Gaceta N!􀁕 184 del 13 de agosto del 2018.

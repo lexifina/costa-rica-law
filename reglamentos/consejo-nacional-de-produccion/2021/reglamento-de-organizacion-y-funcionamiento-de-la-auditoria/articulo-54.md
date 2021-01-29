@@ -1,0 +1,1 @@
+Artículo 54-Atención de hechos presuntamente irregulares. Concluido el análisis inicial de los hechos presuntamente irregulares, y estos correspondan a temas a ser investigados por la Auditoría Interna, se aplicará el esquema de trabajo para atender hechos presuntamente irregulares que se describe en el manual de procedimientos citado en este Reglamento.

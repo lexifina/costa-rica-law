@@ -1,0 +1,1 @@
+Artículo 25.-Asesoría. Solicitar la colaboración y asesoramiento de la Asesoría Legal Institucional cuando así lo requiera la Auditoría Interna. Además, en caso de requerirse de un criterio experto, podría realizar la solicitud que es extensiva a las demás unidades administrativas u operativas a nivel Institucional.

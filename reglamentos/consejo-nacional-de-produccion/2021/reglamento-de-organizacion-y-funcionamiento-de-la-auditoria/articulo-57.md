@@ -1,0 +1,1 @@
+Artículo.57-Situaciones no incluidas en los Lineamientos Generales para el análisis de presuntos hechos irregulares. Cuando en el análisis y/o atención de hechos presuntamente irregulares se presenten situaciones no contempladas en los Lineamientos y en la normativa interna de la Auditoría Interna, el Auditor Interno debe definir la forma en que se tramitará lo correspondiente.

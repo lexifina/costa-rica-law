@@ -1,0 +1,2 @@
+Artículo 48.-Confidencialidad respecto de los informes de diversos asuntos de control interno. Los informes una vez comunicados a la Administración Activa, son de libre acceso por parte de cualquier persona pública o privada, sea o no sujeto pasivo de verificación, no existiendo ninguna restricción ulterior en cuanto a su acceso.
+Se garantiza el libre acceso a los departamentos administrativos institucionales con propósitos de información sobre asuntos de interés público.
