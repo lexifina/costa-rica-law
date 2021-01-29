@@ -1,1 +1,0 @@
-Artículo 49.—Revisiones de los informes. En la revisión de los informes de auditoría, se aplicará lo dispuesto en el Manual de Normas para el Ejercicio de las Auditorías Internas en el Sector Público, publicado en La Gaceta N° 246 del 16 de diciembre del 2004.

@@ -1,1 +1,0 @@
-Artículo 40.—Pericia y debido cuidado profesional. Los trabajos de auditoría deberán cumplirse con pericia y con el debido cuidado profesional. Las personas asignadas a cada trabajo deberán poseer, en conjunto, los conocimientos, técnicas y otras competencias para desempeñar el trabajo adecuadamente.

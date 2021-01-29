@@ -1,1 +1,0 @@
-Artículo 57.—Remisión al Ministerio Público. En caso de presuntos ilícitos penales en contra de la Hacienda Pública, la Auditoría Interna deberá elevar el asunto al conocimiento del Ministerio Público, de acuerdo con lo establecido en las “Directrices para el fortalecimiento del control en la gestión pública” emitidas por la Contraloría General de la República.

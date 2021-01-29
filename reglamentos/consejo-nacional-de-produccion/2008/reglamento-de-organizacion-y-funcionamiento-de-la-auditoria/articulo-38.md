@@ -1,3 +1,0 @@
-SECCIÓN C
-De la ejecución de la Auditoría
-Artículo 38.—Manual de procedimientos de la Auditoría Interna. La Auditoría Interna deberá formular, mantener actualizado y en uso, un Manual de Procedimientos de Auditoría Interna, con el objeto de que cuente con un instrumento que defina las características y los procedimientos de auditoría aplicables al Consejo Nacional de Producción basados, entre otros, en la valoración tanto del riesgo institucional como del riesgo de la auditoría. Este manual deberá emitirse conforme con los lineamientos generales que dicte la Contraloría General de la República sobre la materia, las leyes y cualesquiera otra disposición atinente.

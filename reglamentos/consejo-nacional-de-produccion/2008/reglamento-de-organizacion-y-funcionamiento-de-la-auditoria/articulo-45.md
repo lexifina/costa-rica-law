@@ -1,1 +1,0 @@
-Artículo 45.—Apoyo a evaluaciones o auditorías externas. La Auditoría Interna servirá de coordinadora y/o apoyo en las evaluaciones y auditorías externas, realizadas por la Contraloría General de la República o por despachos contratados por el Consejo Nacional de Producción.

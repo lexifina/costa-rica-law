@@ -1,1 +1,0 @@
-Artículo 7º—Misión, visión y políticas de la Auditoría Interna. La Auditoría Interna establecerá y actualizará la visión, misión y demás políticas necesarias para su correcto accionar, así como los enunciados o códigos éticos aplicables a sus funcionarios en sus distintas relaciones internas y externas.
