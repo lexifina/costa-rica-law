@@ -1,0 +1,20 @@
+Artículo 6.- Requisitos mínimos. Para el desarrollo y trámite de los patrocinios, se levantará un expediente digital, debiéndose aportar los requisitos mínimos que se detallan en el sitio web www.ict.go.cr. En caso de que el organizador del evento deba contratar a un tercero para que le realice algunas de las acciones propias del proyecto, como una Agencia de Publicidad, Relaciones Públicas, o cualquier otro empresa de consultoría o especializada, este tercero a contratar deberá aportar los mismos requisitos mínimos que se demandan tanto al solicitante nacional como al internacional, es decir que debe estar al día con sus obligaciones de seguridad social, así como cumplir con la experiencia mínima de 5 años.
+1-Solicitante nacional:
+a) Encontrarse inscrito en el sistema de compras SICOP1.
+1 Siendo que el ICT suscribió un contrato de prestación de servicios y aceptó las Políticas de uso del Sistema SICOP, de conformidad con el artículo 56 del Decreto Ejecutivo # 36242-MP-PLAN, “Reglamento para la Utilización del Sistema Electrónico de Compras Públicas Mercado en Línea “SICOP”, debe realizar todas las compras públicas a través de Mer-Link, únicamente con las excepciones establecidas en el artículo 9 del citado Reglamento
+b) Estar al día con las obligaciones de seguridad social, que involucran la CCSS, ATV del Ministerio de Hacienda sobre la situación tributaria del solicitante nacional y FODESAF. Al igual que las subcontrataciones que realice el solicitante, deben estar al día con las obligaciones de seguridad social.
+c) Presentar una declaración jurada indicando que no se encuentra afecto al régimen de prohibiciones que establecen los artículos 22 y 22 bis de la Ley de Contratación Administrativa (a título personal, cuando es persona física y a nombre de su representada en caso de una persona jurídica). Ver Anexo 2.
+d) Aportar una declaración jurada de encontrarse al día en el pago de los impuestos nacionales, según lo establece el artículo 65 inciso a) del Reglamento a la Ley de Contratación Administrativa (a título personal, cuando es persona física y a nombre de su representada en caso de una persona jurídica) Ver Anexo 3.
+e) Presentar los permisos legales que permiten la realización del evento, por ejemplo, permisos municipales, de salud y otros órganos del Estado; o en su defecto declaración jurada comprometiéndose a cumplir con todos los requisitos legales y técnicos para la realización del evento, de lo contrario se ejecutarán las correspondientes medidas legales para sancionar en caso de incumpliendo, siguiendo para ello el debido proceso.
+f) Aportar la propuesta del proyecto para análisis, según el artículo 7 de este reglamento.
+g) Deberá presentar un plan para el manejo de desechos durante el evento.
+h) Los patrocinados deberán asegurarse de estar inscritos en el registro de proveedores del ICT. Ver anexo 1
+2-Solicitante internacional:
+a) Encontrarse inscrito en el sistema de compras SICOP.
+b) Llenar el formulario digital de registro de proveedores internacionales. Ver anexo 4.
+c) Aportar una declaración jurada donde se señale que no se encuentran afectos al régimen de prohibiciones establecido en los artículos 22 y 22 bis de la Ley de Contratación Administrativa (a título personal, cuando es persona física y a nombre de su representada en caso de una persona jurídica). Ver Anexo 2.
+d) Aportar una declaración jurada (AFFIDAVIT). Ver anexo 5.
+e) Presentar copia de los permisos legales que autorizan la realización del evento, por ejemplo, permisos municipales, o de otros órganos del Estado, o en su defecto declaración jurada de compromiso en el que indique que cumplirá con todos los requisitos legales y técnicos para la realización del evento, para lo cual en caso de incumplimiento se ejecutaran
+las correspondientes medidas legales para sancionar en caso de incumpliendo, siguiendo para ello el debido proceso.
+f) Aportar la propuesta del proyecto para análisis, según el artículo 7 de este reglamento.
+g) Deberá presentar un plan para el manejo de desechos durante el evento.

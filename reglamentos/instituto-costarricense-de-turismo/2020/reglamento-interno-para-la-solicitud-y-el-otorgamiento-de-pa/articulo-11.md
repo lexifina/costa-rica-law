@@ -1,0 +1,1 @@
+Artículo 11.- Tramitación del patrocinio. Una vez autorizada la contratación del patrocinio, la documentación pertinente se remitirá a la Proveeduría Institucional para que se dé curso a los trámites de contratación administrativa, que finalizarán con la emisión de la orden de compra o el contrato electrónico.

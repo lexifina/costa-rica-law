@@ -1,0 +1,4 @@
+Artículo 23.- Sanciones: El incumplimiento de las disposiciones de este Reglamento, por causas imputables al patrocinado dará lugar a la aplicación de las siguientes sanciones:
+a) Por presentación tardía de máximo un (1) mes adicional al plazo establecido en el artículo 16 de este Reglamento, del informe final de resultados, el patrocinado se hará acreedor de una sanción de hasta un (1) año calendario, sin posibilidad de presentar solicitudes de proyectos a conocimiento y aprobación del ICT, según criterio técnico de la dependencia que fiscaliza el patrocinio.
+b) Por la no presentación del informe final de resultados del artículo 16 de este Reglamento, el patrocinado no podrá solicitar o proponer al ICT proyectos de patrocinios por un período de dos (2) años calendario.
+c) La aplicación de las sanciones anteriores no excluye la verificación de aquellas que por normativa de contratación administrativa sean aplicables.

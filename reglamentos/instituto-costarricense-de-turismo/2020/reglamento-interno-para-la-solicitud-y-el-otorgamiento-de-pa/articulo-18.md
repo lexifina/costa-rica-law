@@ -1,0 +1,4 @@
+Artículo 18.- Forma de pago del patrocinio. El ICT cancelará las facturas correspondientes dentro del plazo máximo de treinta (30) días naturales, a partir del recibo de los entregables específicos que estarán definidos en el contrato electrónico, siempre que estén completos y conformes con lo requerido.
+Cuando la forma de pago se realice en tractos, los desembolsos parciales se efectuarán contra la entrega del bien o servicio, o la presentación de los monitoreos, pruebas de ejecución u otros acordados en el contrato.
+Cuando el contrato o la orden de compra definan paquetes de patrocinio totales, en caso de incumplimiento del paquete ofrecido, no se tramitará el pago.
+Cuando el contrato o la orden de compra definan la posibilidad de modificaciones, los pagos se harán según los rubros cumplidos y el formato definido.

@@ -1,0 +1,1 @@
+Artículo 24.- Base de datos: La Proveeduría Institucional mantendrá una base de datos, en la que se incluirán los patrocinados a quienes se les haya aplicado las sanciones que establezca este Reglamento y la normativa de contratación administrativa. Además, esta circunstancia se hará constar en el Registro de Proveedores, según lo establecido en el artículo 68 del RICAICT.

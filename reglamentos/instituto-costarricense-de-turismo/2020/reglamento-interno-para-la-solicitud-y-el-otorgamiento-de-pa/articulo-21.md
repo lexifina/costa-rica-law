@@ -1,0 +1,1 @@
+Artículo 21.- Período presupuestario: El presupuesto estimado para los patrocinios en un determinado ciclo, será invertido y pagado por completo durante ese período, sin que pueda ser transferido al siguiente o ejecutar lo correspondiente, en caso contrario el monto se devuelve al presupuesto institucional.

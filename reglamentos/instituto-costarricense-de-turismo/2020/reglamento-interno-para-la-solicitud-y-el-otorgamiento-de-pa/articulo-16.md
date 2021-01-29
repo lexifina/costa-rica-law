@@ -1,0 +1,1 @@
+Artículo 16.- Evaluación del patrocinio: El patrocinado deberá entregar en el plazo máximo de dos (2) meses calendario a partir de la finalización de las acciones, un informe final que incluya las métricas del desempeño de planes de mercadeo y/o comunicación planteados, cuya entrega será un requisito para futuras solicitudes.

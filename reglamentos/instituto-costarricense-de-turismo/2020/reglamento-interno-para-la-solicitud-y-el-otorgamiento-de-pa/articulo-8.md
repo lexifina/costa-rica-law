@@ -1,0 +1,1 @@
+Artículo 8.- Impedimento para solicitar patrocinios. Tendrán impedimento para solicitar patrocinios, las personas físicas o jurídicas a las que se les esté realizando un procedimiento administrativo, hasta tanto este no se resuelva.
