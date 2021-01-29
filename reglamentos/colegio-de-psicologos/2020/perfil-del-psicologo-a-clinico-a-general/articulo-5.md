@@ -1,0 +1,18 @@
+Capítulo V. Funciones en investigación
+La persona profesional en Psicología Clínica General cuenta con conocimientos en los diversos modelos metodológicos de investigación básica y aplicada, lo que le faculta para plantear, ejecutar y asesorar proyectos de investigación.
+Asimismo, puede reconocer, identificar y construir los instrumentos necesarios para las distintas fases de la investigación: recolección, sistematización, procesamiento y análisis de datos e interpretación de resultados; además, elaboración de conclusiones, recomendaciones, comunicación de resultados y hallazgos.
+Podrá participar en investigaciones clínicas y observacionales, incluidos estudios clínicos, ensayos clínicos, protocolos, guías clínicas e investigación de alto nivel. En estos casos, es su obligación demostrar la fiabilidad y validez, tanto de los diseños utilizados, como el manejo, análisis y divulgación de los datos y resultados obtenidos.
+En los casos que aplique, cada profesional deberá acogerse a los requerimientos estipulados por la Ley n.° 9234 de Investigación Bioética, someterse a los requerimientos de un comité de bioética avalado por el Estado costarricense y estar activo o activa en el Registro Nacional de Investigadores del Consejo Nacional de Investigación en Salud (CONIS), adscrito al Ministerio de Salud.
+Todo lo anterior manteniendo siempre una actitud crítica y constructiva, no solo en cuanto a los objetivos y resultados que se pretenden con el proceso investigativo, sino también respecto de sus bases epistemológicas y éticas.
+Principales funciones en investigación:
+a) Participar en la gestión de proyectos de investigación relacionados con la salud mental de las personas, familias, grupos e instituciones, en el nivel nacional e internacional.
+b) Realizar, asesorar y participar en investigaciones, ya sea de forma individual o como parte del equipo de investigación, en calidad de principal o como persona coinvestigadora o subinvestigadora.
+c) Investigar y aplicar el conjunto de procesos sistemáticos, críticos y empíricos para el estudio de un fenómeno.
+d) Divulgar los resultados de la investigación con la comunidad científica y con la sociedad en general, según corresponda, ya sea mediante publicaciones o por otras vías de comunicación.
+e) Hacer uso de los resultados de la investigación para la generación y promoción del desarrollo y avance de la ciencia psicológica u otras, así como para el desarrollo de políticas públicas u otras vías de comunicación.
+f) Investigar en los diversos campos de acción y desarrollo del ejercicio profesional de la Psicología.
+g) Participar, construir, adaptar y estandarizar pruebas psicológicas para la población, siguiendo los protocolos y normativa nacional e internacional que corresponda para estos efectos.
+h) Desarrollar metodologías técnicas e instrumentos psicológicos para la investigación, el diagnóstico, la evaluación, la atención y la intervención psicológica.
+i) Diseñar, desarrollar y evaluar planes, programas y acciones que se enfoquen en la asesoría, formación, desarrollo de diferentes problemas clínicos y de salud psicológica.
+j) Participar en las investigaciones elaboradas por estudiantes, ya sea como persona tutora, lectora o integrante del tribunal de evaluación. Además, supervisar, asesorar o dirigir los proyectos finales de graduación de estudiantes de la carrera de Psicología, en el nivel de grado universitario (tesis, prácticas dirigidas, proyectos de graduación, seminarios, pruebas de grado o cualquier otra modalidad), de acuerdo con su experiencia y requerimientos institucionales.
+k) Cumplir con otras funciones propias del ejercicio profesional.
