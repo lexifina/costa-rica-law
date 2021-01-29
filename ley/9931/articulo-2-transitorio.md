@@ -1,0 +1,1 @@
+TRANSITORIO II- Posteriormente a la entrada en vigencia de la presente ley, y en un plazo no mayor a seis meses, el Instituto Nacional de Aprendizaje (INA) deberá proceder a adecuar toda la regulación administrativa, entendiéndose dentro de esta la normativa, los procedimientos internos, los manuales, las disposiciones menores como directrices o circulares, entre otros.
