@@ -1,0 +1,1 @@
+Artículo 3.- El ahorro generado por el cumplimiento de la presente Directriz, no podrá ser utilizado por las instituciones, por lo que deberá trasladarse a la cuenta de sumas sin asignación presupuestaria. En el caso de los ministerios, los montos serán rebajados mediante modificaciones a la Ley de Presupuesto vigente.
