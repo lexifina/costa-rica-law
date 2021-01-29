@@ -1,5 +1,2 @@
-Artículo 2º.- El Instituto Nacional de Aprendizaje tendrá como
-finalidad principal promover y desarrollar la capacitación y formación
-profesional de los trabajadores, en todos los sectores de la economía,
-para impulsar el desarrollo económico y contribuir al mejoramiento de las
-condiciones de vida y de trabajo del pueblo costarricense.
+Artículo 2- El Instituto Nacional de Aprendizaje (INA) tendrá como finalidad principal promover, desarrollar y potenciar la capacitación y formación profesional en Costa Rica; las competencias y cualificaciones transferibles que refuerzan la capacidad de las personas para encontrar, conservar y mejorar las condiciones para un trabajo de calidad o el emprendimiento y el desarrollo empresarial. Esto en todos los sectores de la economía, en aras de impulsar y contribuir con el desarrollo económico, la inclusión social y el mejoramiento de las condiciones de vida y de trabajo del pueblo costarricense.
+(Así reformado por el artículo 1° inciso a) de la ley N° 9931 del 18 de enero del 2021, “Fortalecimiento de la formación profesional para la empleabilidad, la inclusión social y la productividad de cara a la revolución industrial 4.0 y el empleo del futuro”)

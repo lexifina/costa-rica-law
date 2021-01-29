@@ -1,10 +1,17 @@
 La Gerencia
-Artículo 11.- La Gerencia estará compuesta por un gerente y dos
-subgerentes, uno técnico y otro administrativo, nombrados por la Junta
-Directiva, por mayoría no menor de cinco votos y por un período de cuatro
-años. Podrán ser reelectos para períodos sucesivos de igual duración, en
-la misma forma del nombramiento original.
-Para que los titulares de la Gerencia puedan ser removidos de sus
-cargos, deberá contarse con el voto concurrente de por lo menos seis
-miembros de la Junta Directiva, que consideren que existe mérito para la
-remoción.
+Artículo 11- El Instituto Nacional de Aprendizaje (INA) contará con una Gerencia conformada por la persona en el cargo de gerente general y, máximo, dos subgerencias; estos nombramientos se realizarán mediante concurso público que demuestre la idoneidad para el cargo y serán nombradas por la Junta Directiva mediante votación con un mínimo de cinco votos a favor. Dicha votación deberá darse una vez que se haya realizado el proceso de selección respectivo, según las disposiciones de esta ley.
+La persona en el cargo de gerente general será la responsable, ante la Junta Directiva, del eficiente y correcto funcionamiento administrativo y operativo de la institución. Las dos personas subgerentes actuarán bajo la autoridad jerárquica de quien ocupe la Gerencia General.
+Las personas en los cargos que conforman la Gerencia deberán tener una evaluación anual de desempeño a cargo de la Junta Directiva y serán nombradas por un período de tres años, pudiendo ser prorrogables por plazos iguales a este. Su remoción o prórroga deberá ser acordada por mayoría calificada de la Junta Directiva, según la evaluación de desempeño respectiva, pudiéndose dar, además, la remoción en cualquier momento, si la Junta Directiva, motivada por algún cuestionamiento moral o legal, así lo decide. Quienes ocupen los cargos de gerente general y las dos subgerencias, a los que se refiere este artículo, tendrán un salario único o global, sin ningún componente o plus adicional, según las condiciones dispuestas en el artículo 24 de esta ley.
+La persona en el cargo de gerente general tendrá las siguientes atribuciones:
+a) Ejercer las funciones inherentes a su condición de administrador general, vigilando la organización y el funcionamiento de todas sus dependencias, así como la observancia de las leyes en apego a los principios de transparencia y probidad.
+b) Acatar las disposiciones dadas en los reglamentos institucionales, las resoluciones de la Junta Directiva y los lineamientos de la Presidencia Ejecutiva.
+c) Tomar las medidas administrativas y de supervisión técnica necesarias, en apego al inciso a), para que se propicie la continuidad, eficiencia, actualización, adaptación al cambio, inclusión social y pertinencia de los servicios prestados por la institución.
+d) Suministrar, a la Junta Directiva y a la Presidencia Ejecutiva, la información regular, exacta y completa que sea necesaria para asegurar la buena gobernanza, toma de decisiones y dirección superior de la institución.
+e) Proponer, a la Junta Directiva, las normativas necesarias para el buen funcionamiento de la institución y que requieran la aprobación de dicha instancia.
+f) Presentar a la Junta Directiva, para su aprobación, el proyecto de presupuesto anual de la institución, el cual deberá formularse en apego al cumplimiento de los objetivos estratégicos de la institución, así como a la distribución regional de acuerdo con las dinámicas de mercado laboral y locales de cada territorio.
+g) Autorizar, con su firma, los documentos que determinen las leyes, los reglamentos de la institución y los acuerdos de la Junta.
+h) Resolver, en último término, los asuntos que no estén reservados a la decisión de la Junta Directiva o a la Presidencia Ejecutiva.
+i) Delegar sus atribuciones en los subgerentes o en otros funcionarios del Instituto, salvo cuando su intervención personal sea legalmente obligatoria.
+j) Ejercer las demás funciones y facultades que le correspondan, de conformidad con la ley, los reglamentos del Instituto Nacional de Aprendizaje, los acuerdos de la Junta Directiva y demás disposiciones pertinentes.
+k) Presentar un informe anual sobre su gestión ante la Junta Directiva, para que se evalúe su desempeño y permanencia en el cargo.
+(Así reformado por el artículo 1° inciso f) de la ley N° 9931 del 18 de enero del 2021, “Fortalecimiento de la formación profesional para la empleabilidad, la inclusión social y la productividad de cara a la revolución industrial 4.0 y el empleo del futuro”)
