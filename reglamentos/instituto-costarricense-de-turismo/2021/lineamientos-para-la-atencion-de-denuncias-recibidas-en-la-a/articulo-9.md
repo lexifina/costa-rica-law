@@ -1,0 +1,4 @@
+Artículo 9º—Vías para presentar una denuncia. Cualquier ciudadano podrá presentar denuncias en las siguientes formas:
+Verbal: Acercándose personalmente a la Auditoría Interna, ubicada en San José, la Uruca, costado este del Puente Juan Pablo II, o llamando a los teléfonos 2299-5928, 2299-5784 (Auditoría Interna).
+Escrita: Se podrá dirigir al sitio web institucional y completar el formulario para tales efectos en la siguiente dirección: www.ict.go.cr/es/formulario-denuncias-auditoria.html, también puede entregar el documento escrito en edificio central del ICT, piso 2 o remitirlo mediante la oficina de correo al apartado postal 777-1000 San José, Costa Rica.
+Si la denuncia se presenta impresa, podrá dejarse directamente en la Auditoría Interna situada en la dirección indicada anteriormente, en caso de que la oficina de la Auditoria se encuentre operando en teletrabajo, la denuncia será recibida en la recepción principal del ICT.

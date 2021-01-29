@@ -1,0 +1,6 @@
+CAPÍTULO IV
+Del Procedimiento a seguir y el Producto Final
+Artículo 19.—Conformación de un Expediente Digital. Una vez que la Auditoría Interna tiene conocimiento de hechos presuntamente irregulares, deberá documentar en un expediente en formato digital e individual las acciones realizadas para la atención de cada caso, velando por la integridad e integralidad de la documentación que lo conforme, el cual será electrónico, y guardada cuidadosamente, procurando un número de imagen que será ordenada de manera cronológica.
+La denuncia y cualquier otro documento de carácter confidencial deberán ser protegidos por los medios definidos por la Auditoría Interna, garantizando la trazabilidad de la información.
+Todos los expedientes relacionados con la existencia de hechos presuntamente irregulares deben cumplir con las reglas de confidencialidad señaladas en el numeral 4 de los presentes lineamientos; además, los expedientes deben ser debidamente resguardados por la Auditoría Interna, de forma que su acceso sea controlado. 1
+1 Lineamientos Generales para el análisis de presuntos hechos irregulares, emitido mediante la resolución R-DC-102-2019 del 14 de octubre de 2019 de la Contraloría General de la República. Punto 1.13.

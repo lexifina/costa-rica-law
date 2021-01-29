@@ -1,0 +1,1 @@
+Artículo 15.—Traslado de la denuncia. Si del análisis realizado se determina que lo denunciado se enmarca dentro de lo dispuesto en los incisos a y c del artículo 12 de los presentes lineamientos, es decir que no es competencia de la Auditoría Interna, se trasladará el expediente a la instancia competente, para lo que corresponda.

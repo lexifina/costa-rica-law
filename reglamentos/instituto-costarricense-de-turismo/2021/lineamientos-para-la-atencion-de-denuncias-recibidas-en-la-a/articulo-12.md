@@ -1,0 +1,12 @@
+Artículo 12.—Desestimación y archivo de la denuncia. Las denuncias que se presenten a la Auditoría Interna serán desestimadas y archivadas por las siguientes razones:
+a) Cuando los hechos presuntamente irregulares resulten por completo ajenos al ámbito de competencia de la Auditoría Interna, de conformidad con lo indicado en el artículo 2º.
+b) Si la denuncia no cumple con los requisitos establecidos en el artículo 5º.
+c) Cuando los hechos presuntamente irregulares ya hayan sido investigados o estén siendo conocidos por otra instancia con competencia para realizar el análisis y la valoración, así como para ejercer el control y las potestades disciplinarias atinentes.
+d) Cuando los hechos presuntamente irregulares, constituyan una reiteración o reproducción de asuntos o gestiones que, sin aportar elementos nuevos, refieran a temas resueltos con anterioridad por la Auditoría Interna u otras instancias competentes.
+e) Cuando los hechos presuntamente irregulares se refieran a problemas de índole estrictamente laborales que se presentaron entre funcionarios de la institución y la Administración Activa, o a desavenencias de tipo personal entre funcionarios, salvo que de los hechos se desprenda la existencia de aspectos relevantes que ameriten ser valorados por la Auditoría Interna en razón de sus competencias.
+f) Cuando el costo aproximado de los recursos a invertir para la investigación de los hechos presuntamente irregulares sea superior al valor del hecho denunciado, sin perjuicio de cualquier otra acción alternativa que en el ejercicio de sus competencias la Auditoría Interna pudiera realizar. Para aducir esta causal, la Auditoría Interna debe fundamentarse en elementos objetivos como los riesgos
+vinculados al hecho denunciado, futuros actos similares entre otros.
+g) Cuando el asunto denunciado refiera exclusivamente a intereses personales del denunciante, en relación con conductas ejercidas u omitidas por la Administración.
+h) Cuando del análisis inicial resulte evidente que no se ha cometido ninguna infracción al ordenamiento jurídico.
+En cualquiera de los supuestos anteriores, la Auditoría Interna debe emitir un acto fundamentado en el que expresamente se indique la causal utilizada para la desestimación y archivo, así como el detalle del análisis para arribar a dicha conclusión.
+No obstante, el auditor podrá valorar a su criterio la posibilidad de dar curso a la denuncia aun cuando esta no cumpla con las condiciones establecidas en los artículos precedentes.

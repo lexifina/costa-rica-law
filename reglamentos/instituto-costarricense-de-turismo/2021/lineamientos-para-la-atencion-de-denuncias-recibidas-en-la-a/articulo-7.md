@@ -1,0 +1,3 @@
+Artículo 7º—Admisión de denuncias anónimas. Las denuncias anónimas presentadas ante la Auditoría Interna se atenderán únicamente cuando presenten elementos de convicción y medios probatorios idóneos que permitan iniciar la investigación.
+En caso de que el denunciante no cuente con acceso a la prueba que sustenta la denuncia, deberá indicarlo, haciendo mención del departamento u oficina donde se encuentre la misma para que sea solicitada por la Auditoría Interna.
+De no aportarse prueba alguna o que no se indique el lugar donde esta pueda ser obtenida se procederá sin mayor trámite con el archivo de la denuncia.

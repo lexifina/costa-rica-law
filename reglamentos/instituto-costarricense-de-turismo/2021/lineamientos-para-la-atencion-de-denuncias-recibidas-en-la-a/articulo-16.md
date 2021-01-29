@@ -1,0 +1,1 @@
+Artículo 16.—Plazo de comunicación sobre el trámite de la denuncia. La Auditoría Interna cuenta con un plazo de 30 días naturales para comunicar al denunciante el trámite que se seguirá con su denuncia; sea el archivo, su traslado a otras instancias, o su incorporación al plan de trabajo en el orden de su presentación.

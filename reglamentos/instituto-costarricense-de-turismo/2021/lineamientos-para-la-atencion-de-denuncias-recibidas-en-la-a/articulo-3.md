@@ -1,0 +1,1 @@
+Artículo 3º—Principios Generales. En el trámite general de las denuncias se atenderán los principios de: legalidad, simplicidad, economía, celeridad, objetividad, oficiosidad, eficacia y eficiencia, según lo regula la Ley General de la Administración Pública, la Ley de la Administración Financiera de la República y Presupuestos Público, y la Ley General de Control Interno.

@@ -1,0 +1,2 @@
+Artículo 20.—Determinación del plazo para el trámite de las gestiones. En atención al principio de celeridad, la Auditoría Interna debe programar la realización de las investigaciones por presuntos hechos irregulares, el cual se atenderá dentro de plazos razonables, así como los criterios de proporcionalidad y razonabilidad. 2
+2 Lineamientos Generales para el análisis de presuntos hechos irregulares, emitido mediante la resolución R-DC-102-2019 del 14 de octubre de 2019 de la Contraloría General de la República. Punto 1.11.

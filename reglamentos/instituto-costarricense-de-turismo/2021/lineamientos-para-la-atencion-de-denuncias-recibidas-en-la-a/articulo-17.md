@@ -1,0 +1,1 @@
+Artículo 17.—Seguimiento denuncias trasladadas. La Auditoría Interna como componente orgánico del sistema de Control Interno, e integrante del Sistema de Fiscalización Superior de la Hacienda Pública, determinará los casos en que dará el seguimiento de las denuncias que remita a los diferentes actores de dicho sistema, con el fin de que cumplan su obligación de atenderlas.
