@@ -1,0 +1,2 @@
+Artículo 12. - Calificaciones de riesgo. La Dirección Corporativa de Riesgo proporcionará mensualmente las calificaciones de riesgo de los instrumentos de inversión que forman parte de la cartera activa del Banco y sus sociedades.
+Será responsabilidad de la División de Tesorería Corporativa y le dará seguimiento e informará mensualmente a la Dirección Corporativa de Riesgo y al Comité de Inversiones, cuando alguna emisión activa disminuya su calificación de riesgo, para que conjuntamente se evalúe y se tomen las acciones que correspondan.
