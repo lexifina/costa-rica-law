@@ -14,3 +14,4 @@ Reglamento de la autorización y registro de tanques estacionarios para autocons
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-08-14 | la propia norma |
+| 2 | 2021-01-29 | Decreto Ejecutivo 42828 (2021-01-29) |
