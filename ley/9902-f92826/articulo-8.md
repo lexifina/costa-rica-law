@@ -1,0 +1,4 @@
+ARTÍCULO 8- Notificación por edicto
+En el caso de que sea infructuosa la notificación al propietario o si la propiedad pertenece a una sociedad mercantil y no fuera posible notificar por medio de su domicilio social o por medio de su representante legal o agente residente, se dejará constancia en el expediente de las notificaciones infructuosas que se hayan realizado, de previo a notificar por edicto.
+La notificación por edicto se hará mediante una sola publicación por medio de edicto que se publicará en La Gaceta, la cual deberá contener los requisitos de toda notificación conforme a los procedimientos que al respecto aplica el Ministerio de Seguridad Pública.
+Las notificaciones por edicto válidamente realizadas surten los mismos efectos jurídicos que las demás formas de notificación establecidas en este reglamento.

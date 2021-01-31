@@ -1,0 +1,2 @@
+ARTÍCULO 6- Infracción administrativa
+Cuando por medio de un reconocimiento del territorio nacional, según lo dispuesto en el artículo 4 de la presente ley, se demuestra la tenencia irregular de pistas de aterrizaje no autorizadas, dicha tenencia será considerada una infracción administrativa. La sanción a esta disposición será la inhabilitación y destrucción de la pista de aterrizaje no autorizada.
