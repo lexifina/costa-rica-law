@@ -1,0 +1,4 @@
+ARTÍCULO 11- Sobre el uso de la dinamita
+El uso de dinamita deberá ser utilizado solo en casos complejos; para ello, la administración justificará y razonará los motivos por los cuales la utiliza, siempre procurando el menor daño al medio ambiente y sin poner en riesgo la vida de las personas. Para este caso en particular, se deberá notificar al propietario el día y la hora en el que se realizará el procedimiento. El reglamento de aplicación de la presente ley deberá contener un listado de en cuáles casos se puede utilizar este método y cómo. Es prohibida la utilización de dinamita en áreas de conservación.
+Rige tres meses después de su publicación en La Gaceta.
+Dado en la Presidencia de la Presidencia de la República, San José, a los veintiún días del mes de setiembre del año dos mil veinte.

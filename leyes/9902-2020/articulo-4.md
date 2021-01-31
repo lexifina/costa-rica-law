@@ -1,0 +1,3 @@
+ARTÍCULO 4- Vigilancia
+a) El Servicio de Vigilancia Aérea en forma periódica verificará, con la Dirección de Aviación Civil, la relación de pistas del país con autorización vigente para operación.
+b) El Servicio de Vigilancia, el Organismo de Investigación Judicial, las municipalidades y los guardaparques, mediante la recepción de denuncias, patrullaje aéreo, terrestre o cualquier otro medio que les facilite, podrán realizar reconocimientos permanentes en todo el territorio nacional, en estricto cumplimiento del respeto al derecho de propiedad privada y debido proceso, con el fin de detectar la existencia y/o construcción de pistas, aeródromos, aeropuertos, helipuertos o campos de aterrizaje que no cuenten con la autorización de la Dirección de Aviación Civil.
