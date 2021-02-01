@@ -14,3 +14,4 @@ Procedimiento para el uso de la firma digital en un documento emitido por un Con
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-10-24 | la propia norma |
+| 2 | 2021-02-01 | Acuerdo 33 (2021-02-01) |
