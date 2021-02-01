@@ -1,0 +1,1 @@
+Artículo 2°—Deróguese el Decreto Ejecutivo número 42674- H de fecha 09 de octubre de 2020, publicado en el Alcance número 290 a La Gaceta número 262 de fecha 30 de octubre de 2020, a partir de la vigencia del presente decreto.
