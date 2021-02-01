@@ -6,3 +6,4 @@ Se deja sin efecto el criterio de calificación c) para la Categoría de Riesgo 
 c) Sección 2.3 Metodología de clasificación para cartera de banca de segundo piso.
 Se continúa aplicando el criterio de clasificación según la tabla indicada en la sección 2.2 del Anexo 3, con la modificación establecida en el inciso b) de esta disposición transitoria.
 (Así adicionado mediante sesión N° 1574-2020 del 4 de mayo de 2020)
+(Nota de Sinalevi: Mediante sesión N° 1641-2021 del 1° de febrero de 2021 se acuerda extender el plazo del presente transitorio hasta el 31 de diciembre de 2021)

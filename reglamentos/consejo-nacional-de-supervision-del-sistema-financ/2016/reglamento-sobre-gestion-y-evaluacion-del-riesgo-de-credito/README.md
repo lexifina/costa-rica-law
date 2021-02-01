@@ -19,3 +19,4 @@ Reglamento sobre Gestión y Evaluación del Riesgo de Crédito para el Sistema d
 | 4 | 2020-05-04 | Reglamento 1574 (2020-05-04) |
 | 5 | 2020-07-20 | Reglamento 1593 (2020-07-20) |
 | 6 | 2020-11-02 | Reglamento 1617 (2020-11-02) |
+| 7 | 2021-02-01 | Reglamento 1641 (2021-02-01) |
