@@ -14,3 +14,4 @@ Reglamento para la aplicación de la dedicación exclusiva en la Municipalidad d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-08-11 | la propia norma |
+| 2 | 2021-02-01 | Reglamento municipal 63 (2021-02-01) |
