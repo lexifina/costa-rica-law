@@ -1,0 +1,1 @@
+Artículo 12.—Toda Obra de Mantenimiento que no cuente con el permiso respectivo será clausurada, para lo cual los inspectores de construcciones del Proceso Control Fiscal y Urbano de la Municipalidad de Alajuela serán los encargados de que se cumpla lo estipulado en este Reglamento.

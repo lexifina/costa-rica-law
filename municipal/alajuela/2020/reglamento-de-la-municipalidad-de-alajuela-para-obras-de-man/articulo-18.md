@@ -1,0 +1,1 @@
+Artículo 18.—El funcionario municipal que incumpla o haga incumplir con el presente reglamento, será sancionado acorde con lo que estipulan el Código Municipal, el Reglamento Autónomo de Organización y Servicios de la Municipalidad de Alajuela, y cualquiera otra normativa conexa.

@@ -1,0 +1,1 @@
+Artículo 15.—Una vez otorgado el permiso, el coordinador de la Actividad Control Constructivo o el personal de inspectores del Proceso Control Fiscal y Urbano pueden verificar el cumplimiento de las condiciones del permiso otorgado.
