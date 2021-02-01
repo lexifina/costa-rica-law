@@ -1,0 +1,1 @@
+Artículo 29.—Cambio del uso de las donaciones. Cuando una organización o entidad beneficiada requiera el cambio del uso aprobado para la donación, hará solicitud escrita justificando el cambio a la Unidad de Donación. Dicha solicitud será trasladada a la Comisión de Donaciones para su valoración en la sesión inmediata siguiente respecto a la fecha de recepción de tal solicitud.

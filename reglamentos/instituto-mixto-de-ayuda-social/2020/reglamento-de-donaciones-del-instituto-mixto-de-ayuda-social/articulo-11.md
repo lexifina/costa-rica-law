@@ -1,0 +1,1 @@
+Artículo 11.—Inspección de bienes. Los bienes puestos a disposición del IMAS para donación, serán sometidos a inspección para determinar su aceptación. Dicha inspección estará a cargo de la Unidad de Donaciones, instancia que levantará el informe respectivo.

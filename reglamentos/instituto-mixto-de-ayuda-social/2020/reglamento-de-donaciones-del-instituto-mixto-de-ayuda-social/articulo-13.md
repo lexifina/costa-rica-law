@@ -1,0 +1,3 @@
+Artículo 13.—Ingreso y almacenamiento de bienes en bodega. El ingreso de los bienes se realizará mediante la emisión de un documento de ingreso de mercancías en el que se detalla lo siguiente: nombre de los artículos, unidad de medida, la cantidad de cada uno y el estado de estos.
+Los bienes en la bodega física serán almacenados en el espacio apropiado para dicho fin, bajo la custodia de la persona encargada de bodega de donaciones.
+En caso de alguna alteración a los dispositivos de seguridad o faltante de mercancías, no se ingresará a bodega sino con la autorización de la jefatura de la Unidad de Donaciones, previa ordenanza de la investigación pertinente.
