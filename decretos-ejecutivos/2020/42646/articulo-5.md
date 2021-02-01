@@ -1,0 +1,1 @@
+Artículo 5.- Deróguese el Decreto Ejecutivo N° 34123 del 02 de octubre de 2007, que publicó la Resolución N° 199-2007 (COMIECO-XLIV) del 24 de abril de 2007, todo de conformidad con los numerales 1, 2 y 5 inciso iv) de la parte dispositiva de la Resolución N° 425-2020 (COMIECO-XCI) de fecha 23 de junio de 2020.
