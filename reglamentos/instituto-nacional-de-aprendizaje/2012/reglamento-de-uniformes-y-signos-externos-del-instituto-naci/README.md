@@ -14,3 +14,4 @@ Reglamento de uniformes y signos externos del Instituto Nacional de Aprendizaje
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-05-08 | la propia norma |
+| 2 | 2021-02-01 | Reglamento 3 (2021-02-01) |
