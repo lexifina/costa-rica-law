@@ -1,1 +1,0 @@
-Artículo 52.—El contrato de arrendamiento tendrá un plazo de 25 años, contando a partir de la fecha en que se suscriba el constato y pondrá prorrogarse previo acuerdo del Alcalde Municipal, una vez que se haya verificado el buen mantenimiento, y puntualidad de pago.

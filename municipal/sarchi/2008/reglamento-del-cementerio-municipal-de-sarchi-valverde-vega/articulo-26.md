@@ -1,1 +1,0 @@
-Artículo 26.—El arrendamiento solo se adjudicarán en orden de ubicación geográfica, según lo disponga la Administración y de acuerdo con plano regulador aprobado por el Concejo; y se hará efectiva su ubicación solo en el momento en el que el interesado diere inicio a la construcción.

@@ -1,2 +1,0 @@
-Artículo 6°—Si la inhumación se fuere a realizar en una bóveda particular, deberá mediar la autorización por escrito de la persona propietaria del derecho o alguno de quienes aquella hubiere designado como responsables en el contrato de arrendamiento según lo estipulado en el artículo 20 del presente Reglamento.
-Esta autorización debe ser autenticada por un abogado o notario público en caso necesario.

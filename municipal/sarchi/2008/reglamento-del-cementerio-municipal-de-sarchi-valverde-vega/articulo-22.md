@@ -1,1 +1,0 @@
-Artículo 22.—Las Cesiones permitidas de acuerdo con el decreto antes mencionado, se harán ante la Administración en documento autenticado por un abogado o mediante ejecutorio de sentencia judicial. En caso de existencia de restos en el derecho, el documento deberá hace constar el vínculo familiar respectivo entre los contratantes

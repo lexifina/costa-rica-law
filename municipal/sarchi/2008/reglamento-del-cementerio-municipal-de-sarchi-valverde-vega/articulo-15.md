@@ -1,1 +1,0 @@
-Artículo 15.—Para todos los efectos de exhumación, se considerarán como interesados con derecho ante la Administración, los parientes indicados Pero en caso de conflicto con el arrendatario de la bóveda que contuviere los restos, sus derechos deberán definirse por mandamiento judicial.

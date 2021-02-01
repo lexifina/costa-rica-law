@@ -1,1 +1,0 @@
-Artículo 3°—En todas las materias de este Reglamento no se deja a decisión del Concejo Municipal, si no que es vinculante la decisión del Alcalde, la cual puede sin embargo puede ser recurrida ante el Concejo. El Concejo Municipal se reserva la posibilidad de nombrar una Comisión Administrativa del Cementerio la cual ejercerá labores de coadyuvar con la administración Municipal.
