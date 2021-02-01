@@ -1,0 +1,1 @@
+Artículo 22.—Anulación de cheques: Cuando un cheque deba anularse por error en la confección u otra causa, la dependencia emisora estampará en el mismo y en las copias su sello de anulado indicando por escrito el motivo de la anulación.

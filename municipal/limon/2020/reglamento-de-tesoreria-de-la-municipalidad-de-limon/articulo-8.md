@@ -1,0 +1,1 @@
+Artículo 8°—Registro de ingresos depositados directamente a la cuenta corriente municipal: Para el registro adecuado de los ingresos por medio de depósitos, notas de crédito y transferencias bancarias, en el documento debe especificarse claramente el nombre del contribuyente y el detalle del pago realizado.

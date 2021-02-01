@@ -1,0 +1,1 @@
+Artículo 26.—Registro y control de documentos de garantía: La Tesorería llevará un registro adecuado para el control de la existencia de los documentos de garantías recibidas. Asimismo, el Departamento de Proveeduría informará a la Tesorería, en cada caso, de los oferentes que les debe devolver la garantía.

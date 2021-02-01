@@ -1,0 +1,1 @@
+Artículo 15.—Bajo ninguna circunstancia los autorizados para firmar cheques de la Municipalidad, deberán firmar estos sin documentación que respalde dicha erogación, aunque no se vayan a encontrar dentro de la Municipalidad por un periodo ya sea corto o largo, en tal caso deberá autorizar este pago la persona quien los sustituya en ese mismo cargo en su ausencia.

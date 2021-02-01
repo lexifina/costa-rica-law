@@ -1,0 +1,1 @@
+Artículo 29.—Registro de entrada y salida de documentos: La Tesorería llevará un registro sobre la entrada y salida de los documentos y valores custodiados donde se anotarán los datos más relevantes tales como clase de documento, número, monto o valor, fecha, nombre y firma de la persona que lo retira, nombre de la persona que lo retira o entrega.

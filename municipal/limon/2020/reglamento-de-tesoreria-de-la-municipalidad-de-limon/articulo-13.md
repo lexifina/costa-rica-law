@@ -1,0 +1,1 @@
+Artículo 13.—Todo pago que se solicite debe hacerse contra la documentación de respaldo (orden de compra o resolución administrativa, factura timbrada, electrónica y visto bueno de pago por parte del funcionario que solicitó dicha contratación); todo como respaldo del pago, según lo establecido en los artículos 118 y 119 del Código Municipal.

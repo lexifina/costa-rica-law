@@ -1,0 +1,1 @@
+Artículo 11.—Formas de Pagos: Todos los pagos, excepto los que corresponda hacer por caja chica se efectuarán por medio de cheque o transferencia bancaria con el debido visado de contenido presupuestario. Para ser emitidos se requiere, de previo, la autorización respectiva en la nómina de pago y los documentos que respalden la cancelación.

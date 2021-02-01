@@ -1,0 +1,1 @@
+Artículo 14.—Autorización de pago: El Tesorero Municipal no ejecutará pago alguno sin una orden escrita: acuerdo municipal, resolución de Alcalde(sa), orden de compra o cualquier otro tipo de disposición emitida por el órgano municipal competente que lo autorice, en apego a lo dispuesto en el artículo 118 de la Ley 7794 Código Municipal.
