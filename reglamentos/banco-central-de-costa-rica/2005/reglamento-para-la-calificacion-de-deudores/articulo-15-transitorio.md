@@ -10,3 +10,4 @@ La gestión y seguimiento de las solicitudes de modificación a que se refiere e
 Sin perjuicio de lo establecido en el párrafo primero de esta disposición transitoria, en caso de que el deudor presente morosidad superior a 90 días en la atención de al menos una operación crediticia modificada, dicha operación se calificará como operación crediticia especial, y el deudor deberá ser calificado inmediatamente por la entidad de la forma establecida en el Artículo 18 de este Reglamento.
 Todas las modificaciones deben reportarse mediante la clase de datos Crediticio de SICVECA.
 (Así adicionado mediante sesión N° 1503-2019 del 28 de mayo de 2019)
+(Nota de Sinalevi: Mediante sesión N° 1641-2021 del 1° de febrero de 2021 se acuerda extender el plazo del presente transitorio hasta el 31 de diciembre de 2021)
