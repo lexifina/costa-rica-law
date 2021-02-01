@@ -14,3 +14,4 @@ Reglamento a la Ley Orgánica de la Junta de Desarrollo Regional de la zona Sur 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-02-14 | la propia norma |
+| 2 | 2021-02-01 | Decreto Ejecutivo 42823 (2021-02-01) |
