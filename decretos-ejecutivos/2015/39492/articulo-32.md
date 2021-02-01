@@ -1,1 +1,0 @@
-Artículo 32.—Período general de financiamiento. El período general de financiamiento será como máximo de hasta 20 años, el cual incluye el período de estudios, gracia y amortización. Para las Becas de Educación Superior el periodo máximo será de 10 años.

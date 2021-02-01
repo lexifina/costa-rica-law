@@ -1,2 +1,0 @@
-Artículo 30.—Variación del período de estudio. El Departamento de Becas puede autorizar las ampliaciones al período de estudios, necesarias para que el beneficiario concluya su proyecto académico original, o alcance un énfasis adicional dentro del mismo grado.
-El Departamento de Becas puede autorizar las ampliaciones al período de estudios, para que el beneficiario alcance un grado adicional al establecido en el Proyecto Académico original, siempre que se cumpla con lo dispuesto en el artículo 32 del presente Reglamento.

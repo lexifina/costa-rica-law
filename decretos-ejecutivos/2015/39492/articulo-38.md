@@ -1,1 +1,0 @@
-Artículo 38.—Estudiantes con discapacidad. Los estudiantes con discapacidad deberán cumplir con los requisitos establecidos en los artículos 35 y 37 del presente Reglamento, y no les será aplicado lo dispuesto en el inciso a) del artículo 39, así como el artículo 40 del presente Reglamento.

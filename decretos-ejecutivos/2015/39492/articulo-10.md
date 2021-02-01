@@ -1,6 +1,0 @@
-Artículo 10.— Períodos de recepción de nuevas solicitudes de financiamiento universitario y Becas de Educación Superior.
-Período | Fecha
-I Trimestre, Cuatrimestre, Semestre | Del 15 de noviembre del año anterior al 30 de enero del año en ejercicio.
-II Trimestre, Cuatrimestre, Semestre | Del 1º de marzo al 30 de abril de cada año.
-III Trimestre, Cuatrimestre, Semestre | Del 1º de julio al 30 de agosto de cada año.
-Estas fechas quedarán sujetas al contenido presupuestario con que cuente el Programa de Becas y Financiamientos Universitarios, en caso de no existir recursos para nuevos beneficios no se abrirá el período de recepción respectivo, así como en caso de que terminado el periodo de recepción se cuente con presupuesto disponible de acuerdo a la planificación anual, dicho periodo se extenderá hasta agotar el contenido presupuestario correspondiente. Se deberá tomar en cuenta, las fechas de vacaciones de fin y principio de año, pues las oficinas de JUDESUR permanecerán cerradas, de acuerdo a lo que establezca la Junta Directiva de JUDESUR. Cuando el primer día de recepción no sea hábil, se trasladará al siguiente día hábil según corresponda. La entrega y recepción de solicitudes no obliga a JUDESUR a la aprobación del financiamiento solicitado por el estudiante.

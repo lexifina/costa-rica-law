@@ -1,8 +1,0 @@
-Artículo 25.—Procedimiento para la utilización del financiamiento para Estudios Universitariosy Becas de Educación Superior:
-a.El beneficiario deberá matricular el bloque completo de asignaturas establecido en el plan de estudiospara cada ciclo lectivo. Toda variación deberá ser comunicada por el estudiante al Departamento deBecas de JUDESUR durante el mismo ciclo lectivo.
-b.El beneficiario podrá matricular una carga académica inferior a la establecida en el bloque del plan deestudios, pero ésta no podrá ser inferior al cincuenta por ciento (50%) de dicho plan, y para estosefectos requerirá la autorización previa de la Jefatura del Departamento de Becas de JUDESUR. Lospropósitos de esta disposición son:
-1.Uniformar el plan de estudios del beneficiario, a fin de que no se le desequilibre por la matrículade asignaturas ubicadas en distintos bloques del programa y se adecue al financiamientosolicitado.
-2.Facilitar al beneficiario el cumplimiento del mecanismo de requisitos impuestos por los centrosde estudio para el cumplimiento de los programas de estudio.
-3.Facilitar que el beneficiario pueda ajustarse a las variaciones impuestas en los programas deestudio, cuando se efectúen reestructuraciones en los programas académicos, por parte de loscentros educativos.
-4.Cuando el beneficiario tenga que modificar el desarrollo del plan de estudios, por problemaslaborales o de salud debidamente comprobados, lo cual debe ser comunicado oportunamente aJUDESUR.
-Cuando un beneficiario por situaciones internas de la Universidad no pueda matricular más de un curso, deberá presentar una justificación emitida por el Centro Educativo, donde cursa la carrera.
