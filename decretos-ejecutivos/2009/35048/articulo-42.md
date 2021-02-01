@@ -1,1 +1,0 @@
-Artículo 42.—Los beneficiarios podrán realizar la cancelación total de la deuda en cualquier momento, mediante depósito en cualquiera de los bancos del Sistema Bancario Nacional que se asigne al efecto, o en la Tesorería de JUDESUR.

@@ -1,1 +1,0 @@
-Artículo 55.—Cuando un abogado renuncie o sea cesado en sus servicios, los procesos judiciales que esté tramitando, previo informe de la asesoría legal de JUDESUR, podrán asignarse a otros abogados por La Junta, ya sea externos o contratados para tal efecto.
