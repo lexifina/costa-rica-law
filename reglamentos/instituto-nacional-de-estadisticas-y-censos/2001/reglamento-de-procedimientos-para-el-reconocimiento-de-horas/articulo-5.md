@@ -1,1 +1,0 @@
-Articulo 5°—Comisión institucional de horas extras. A los efectos de velar por el cumplimiento del presente Reglamento. La Gerencia constituirá una Comisión Institucional que será integrada por representantes de las Áreas del INEC.
