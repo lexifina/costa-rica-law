@@ -1,6 +1,8 @@
-Artículo 27° Condiciones para otorgar arreglos de pago. El arreglo de pago se otorgará por parte de la persona Encargada de Gestión de Cobros y en su ausencia por la persona encargada de la Administración Tributaria Administrativa y Financiera, bajo el cumplimiento de las siguientes
-condiciones:
+Artículo 27.-Condiciones y requisitos para otorgar arreglos de pago. El arreglo de pago se otorgará por parte de la persona Encargada de Gestión de Cobros y, en su ausencia, por la persona encargada de la Administración Tributaria, bajo el cumplimiento de las siguientes condiciones y requisitos:
 a. Capacidad económica del sujeto pasivo. El sujeto pasivo debe demostrar a la Actividad de Cobro, que su situación económica le impide cancelar, en forma total e inmediata, las obligaciones vencidas.
 b. Motivos de la morosidad.
-c. Monto adeudado. De proceder el arreglo de pago, ambas partes pactaran el monto a cancelar mensualmente, así como los intereses a pagar y el plazo para la cancelación total de la obligación vencida, que no podrá exceder de doce meses, salvo los casos contemplados en el artículo 23 de este cuerpo normativo.
-e. La formalización del arreglo de pago se realizará en un plazo máximo de 08 días hábiles.
+c. Para poder efectuar el arreglo de pago, el sujeto pasivo debe contar con al menos un bien inmueble inscrito en el cantón central de Alajuela.
+d. Las cuentas morosas que se incluyen en el arreglo de pago pueden comprender: multas por omisión en la declaración de valor de bienes inmuebles y las multas por incumplimiento de deberes de los munícipes. Asimismo, se puede incluir en los arreglos de pago, cuentas morosas por concepto de patentes comerciales y/o licencias para el expendio de bebidas con contenido alcohólico, siempre y cuando el sujeto pasivo cuente con un bien inmueble inscrito en el cantón central de Alajuela.
+e. Monto adeudado. De proceder el arreglo de pago, ambas partes pactarán el monto a cancelar mensualmente, así como los intereses a pagar y el plazo para la cancelación total de la obligación vencida, que no podrá exceder de veinticuatro meses, salvo los casos contemplados en el artículo 23 de este cuerpo normativo.
+f. La formalización del arreglo de pago se realizará en un plazo máximo de 08 días hábiles.
+(Así reformado mediante sesión N° 05-2021 del 2° de febrero del 2021)
