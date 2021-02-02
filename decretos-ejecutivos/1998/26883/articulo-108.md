@@ -1,2 +1,1 @@
-Artículo 108.—Requisitos de reposición de la placa provisional
-Para la renovación o reposición de la placa provisional, en los casos de pérdida, destrucción o deterioro, deberán aportarse en su caso los mismos documentos exigidos para la placa temporal.
+Artículo 108.-Requisitos de reposición de la placa provisional (Derogado por el artículo 78 del Reglamento de la Dirección de Servicios del Registro Nacional, aprobado mediante decreto ejecutivo N° 42835 del 2 de febrero del 2021)

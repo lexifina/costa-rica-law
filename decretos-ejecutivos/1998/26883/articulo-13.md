@@ -1,2 +1,1 @@
-Artículo 13.—Recepción máxima del número de documentos por persona
-El receptor de los documentos recibirá en la forma más diligente posible, un máximo de cinco documentos por persona. En caso de que el usuario tuviere más documentos por presentar, deberá ocupar el mismo lugar de la fila y esperar su turno para una nueva presentación. Esta prohibición no opera para el caso en que se deban presentar varios testimonios de una misma escritura que se relacionan entre sí o documentos referentes a un mismo bien.
+Artículo 13.-Recepción máxima del número de documentos por persona (Derogado por el artículo 78 del Reglamento de la Dirección de Servicios del Registro Nacional, aprobado mediante decreto ejecutivo N° 42835 del 2 de febrero del 2021)

@@ -1,2 +1,1 @@
-Artículo 15.—Horario de recepción de documentos
-El horario de recepción de documentos es de las 7:30 horas a las 15:30 horas, que podrá ser variado por la Dirección, previa autorización de 'la Junta Administrativa del Registro Nacional, a efecto de mejorar el servicio público que se brinda.
+Artículo 15.-Horario de recepción de documentos (Derogado por el artículo 78 del Reglamento de la Dirección de Servicios del Registro Nacional, aprobado mediante decreto ejecutivo N° 42835 del 2 de febrero del 2021)

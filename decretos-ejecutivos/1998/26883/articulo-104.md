@@ -1,2 +1,1 @@
-Artículo 104.—Reposición por deterioro de la placa temporal
-En caso de deterioro de la placa temporal, deberá solicitarse la reposición de la misma ante el Registro, previo depósito de la que se encuentre en mal estado.
+Artículo 104.-Reposición por deterioro de la placa temporal (Derogado por el artículo 78 del Reglamento de la Dirección de Servicios del Registro Nacional, aprobado mediante decreto ejecutivo N° 42835 del 2 de febrero del 2021)

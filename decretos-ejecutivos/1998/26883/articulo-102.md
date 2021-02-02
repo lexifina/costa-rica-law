@@ -1,3 +1,1 @@
-Artículo 102.—Forma de usar la placa temporal
-Este documento deberá ser colocado en un lugar visible del vehículo y su validez estará limitada a la fecha de su vencimiento, salvo los casos de prórroga previstos en el artículo 27 de la Ley de Tránsito por Vías Públicas Terrestres.
-Queda totalmente prohibido el uso de la placa temporal en otro vehículo distinto al asignado.
+Artículo 102.-Forma de usar la placa temporal (Derogado por el artículo 78 del Reglamento de la Dirección de Servicios del Registro Nacional, aprobado mediante decreto ejecutivo N° 42835 del 2 de febrero del 2021)

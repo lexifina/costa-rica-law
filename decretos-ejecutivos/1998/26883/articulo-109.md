@@ -1,2 +1,1 @@
-Artículo 109.—De la placa metálica
-El Registro, de acuerdo a sus posibilidades y conveniencia, en el menor tiempo posible, procederá a sustituir las placas provisionales por placas metálicas u de otro material de resistencia permanente, en la cantidad y condiciones que establece la Ley de Tránsito.
+Artículo 109.-De la placa metálica (Derogado por el artículo 78 del Reglamento de la Dirección de Servicios del Registro Nacional, aprobado mediante decreto ejecutivo N° 42835 del 2 de febrero del 2021)

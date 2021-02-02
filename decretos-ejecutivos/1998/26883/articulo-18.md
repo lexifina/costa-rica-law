@@ -1,2 +1,1 @@
-Artículo 18.—Del reparto automático
-Una vez que se haya cerrado la recepción de documentos del día y se hayan realizado todas las operaciones correspondientes al Diario, se efectuará el reparto automático de los documentos que se presentaron ese día a los registradores. Igualmente se hará el reparto entre todos los documentos defectuosos correspondientes a cada Registrador que hayan sido nuevamente presentados al Registro.
+Artículo 18.-Del reparto automático (Derogado por el artículo 78 del Reglamento de la Dirección de Servicios del Registro Nacional, aprobado mediante decreto ejecutivo N° 42835 del 2 de febrero del 2021)

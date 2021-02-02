@@ -1,2 +1,1 @@
-Artículo 87.—La digitalización
-La digitalización es un medio auxiliar de la publicidad registral que consiste en la captura de imágenes por un dispositivo electrónico, que se guardan en la base de datos y pueden ser consultadas por el público.
+Artículo 87.-La digitalización (Derogado por el artículo 78 del Reglamento de la Dirección de Servicios del Registro Nacional, aprobado mediante decreto ejecutivo N° 42835 del 2 de febrero del 2021)

@@ -1,2 +1,1 @@
-Artículo 93.—Informes regístrales
-A solicitud del interesado el Registro emitirá una simple copia de la información que en éste consta, por los medios técnicos que determine la Dirección, la cual no tendrá el carácter de certificación.
+Artículo 93.-Informes regístrales (Derogado por el artículo 78 del Reglamento de la Dirección de Servicios del Registro Nacional, aprobado mediante decreto ejecutivo N° 42835 del 2 de febrero del 2021)

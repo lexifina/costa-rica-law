@@ -1,3 +1,1 @@
-Artículo 92.—Medios y formas de extender certificaciones.
-Aparte de las certificaciones enunciadas en el artículo 90, el Registro podrá expedir copia auténtica de la documentación registral y los informes que soliciten las autoridades judiciales o administrativas.
-(Así reformado por el artículo 1 del Decreto Ejecutivo N° 27904 de 5 de abril de 1999)
+Artículo 92.-Medios y formas de extender certificaciones. (Derogado por el artículo 78 del Reglamento de la Dirección de Servicios del Registro Nacional, aprobado mediante decreto ejecutivo N° 42835 del 2 de febrero del 2021)

@@ -1,2 +1,1 @@
-Artículo 90.—Valor de las certificaciones
-La plenitud, limitación o restricción de los derechos inscritos, la libertad de disposición, así como cualquier información relacionada con el Registro, podrá acreditarse auténticamente, con relación a terceros por las certificaciones emitidas por esta Institución, o por aquellas autorizadas al efecto, por medio de su red externa, las cuales irán firmadas por aquellos funcionarios autorizados legalmente para ello.
+Artículo 90.-Valor de las certificaciones (Derogado por el artículo 78 del Reglamento de la Dirección de Servicios del Registro Nacional, aprobado mediante decreto ejecutivo N° 42835 del 2 de febrero del 2021)

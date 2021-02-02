@@ -1,2 +1,1 @@
-Artículo 16.—Registración de imágenes
-La REGISTRACIÓN de la imagen de los documentos que se presenten al Diario, se hará por los medios técnicos que el registro considere pertinentes, a fin de cumplir con los requisitos de control publicidad que requieren.
+Artículo 16.-Registración de imágenes (Derogado por el artículo 78 del Reglamento de la Dirección de Servicios del Registro Nacional, aprobado mediante decreto ejecutivo N° 42835 del 2 de febrero del 2021)

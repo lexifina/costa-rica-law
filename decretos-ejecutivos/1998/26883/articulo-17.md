@@ -1,2 +1,1 @@
-Artículo 17.—De la anotación
-Una vez recibido el documento y tomada su imagen, sin dilación se procederá a su anotación al margen de la inscripción del bien mueble respectivo. Todo documento en que se modifique o extinga algún asiento ya practicado y que se cite en el documento, será relacionado con la inscripción que afecte. El Diario del Registro llevará un índice computarizado de los documentos sujetos a inscripción relativos a gravámenes prendarios, en donde por la naturaleza de los bienes no cabe cita de inscripción.
+Artículo 17.-De la anotación (Derogado por el artículo 78 del Reglamento de la Dirección de Servicios del Registro Nacional, aprobado mediante decreto ejecutivo N° 42835 del 2 de febrero del 2021)

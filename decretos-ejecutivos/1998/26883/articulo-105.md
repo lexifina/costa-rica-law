@@ -1,3 +1,1 @@
-Artículo 105.—Tramitación en forma personal
-Todo trámite de obtención de las placas es personal, cualquiera sea su clase, previa presentación de la cédula de identidad, o en su defecto procederá por solicitud debidamente autenticada por Notario Público.
-Tratándose de personas jurídicas debe acompañarse certificación de personería vigente a la fecha del trámite respectivo.
+Artículo 105.-Tramitación en forma personal (Derogado por el artículo 78 del Reglamento de la Dirección de Servicios del Registro Nacional, aprobado mediante decreto ejecutivo N° 42835 del 2 de febrero del 2021)

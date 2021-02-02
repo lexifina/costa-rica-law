@@ -1,4 +1,3 @@
 CAPITULO CUARTO
 Tracto sucesivo, prioridad y efectos
-Artículo 49.—Control de presentación de documentos
-El Registro por medio de la oficina del Diario y de los medios técnicos disponibles, llevará un estricto control de presentación de documentos, a fin de garantizar el principio de prioridad. Ese orden se hará constar mediante la asignación de un número ordinal a cada documento, según el orden de presentación.
+Artículo 49.-Control de presentación de documentos (Derogado por el artículo 78 del Reglamento de la Dirección de Servicios del Registro Nacional, aprobado mediante decreto ejecutivo N° 42835 del 2 de febrero del 2021)

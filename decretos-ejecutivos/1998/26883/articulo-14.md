@@ -1,2 +1,1 @@
-Artículo 14.—Ventanilla para notarios públicos
-En el Diario del Registro podrá habrirse una ventanilla de recepción de documentos para uso exclusivo de Notarios Públicos, cuando ello sea posible a criterio de la Dirección, según los recursos técnicos y humanos disponibles. Los Notarios deberán identificarse debidamente.
+Artículo 14.-Ventanilla para notarios públicos (Derogado por el artículo 78 del Reglamento de la Dirección de Servicios del Registro Nacional, aprobado mediante decreto ejecutivo N° 42835 del 2 de febrero del 2021)

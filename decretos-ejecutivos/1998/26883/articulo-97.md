@@ -1,2 +1,1 @@
-Artículo 97.—Vigencia del permiso
-El permiso de salida deberá ser utilizado dentro de los quince días posteriores a su expedición, en caso de vehículos particulares, y dentro de los cuatro meses posteriores a su expedición, en caso de vehículos de carga pesada.
+Artículo 97.-Vigencia del permiso (Derogado por el artículo 78 del Reglamento de la Dirección de Servicios del Registro Nacional, aprobado mediante decreto ejecutivo N° 42835 del 2 de febrero del 2021)
