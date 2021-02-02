@@ -1,3 +1,2 @@
-Artículo 21.—Responsabilidad Sobre Las Retenciones Aplicadas. Es responsabilidad del superior de una dependencia donde funcione, controlar que el administrador del fondo realice las retenciones correspondientes; y remita a la Dirección de Finanzas, vía correo electrónico, el Informe Mensual de Retenciones de Impuesto sobre la Renta aplicadas y la reclasificación los registros contables correspondientes.
-(Así reformado el párrafo anterior en sesión N° 15 del 11 de marzo del 2020)
-De igual forma deben enviar los reportes trimestrales y anuales de las Retenciones de Impuesto sobre la Renta aplicadas a los proveedores; y realizar los ajustes contables solicitados por la Dirección de Finanzas.
+Artículo 21.—Responsabilidad sobre las retenciones aplicadas Es responsabilidad del superior de la dependencia donde funcione un fondo de Caja Chica, controlar que el administrador del fondo realice las retenciones del impuesto sobre la renta que correspondan, y remita el respectivo informe con el detalle de los registros contables, al encargado de renta en la Dirección de Finanzas.
+(Así reformado mediante sesión ordinaria N° 2021-08 del 2 de febrero del 2021)
