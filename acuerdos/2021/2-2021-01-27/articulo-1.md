@@ -1,0 +1,4 @@
+ENTE COSTARRICENSE DE ACREDITACIÓN
+AVISO 2021-002
+El Ente Costarricense de Acreditación (EGA), en cumplimiento de la Ley 8279 Ley del Sistema Nacional de la Calidad, da a conocer la derogación de la publicación del siguiente documento: Procedimiento: ECA-MC-P16 procedimiento para el cumplimiento del debido proceso en el Ente Costarricense De Acreditación, versión 15 publicado en La Gaceta número 13 del 20 de Enero del 2021; debido a que se realizará una modificación más amplia e integral del documento, habiendo recibido nuevas observaciones y no es posible aplicar una vacancia postergando su entrada en vigencia. Oficinas centrales del EGA ubicadas en San José, Barrio Don Bosco, Avenida 02 y Calle 32, contiguo a la Embajada de España, en horario de lunes a viernes de 8 h a 16 h.
+San José, 2021 enero 27.
