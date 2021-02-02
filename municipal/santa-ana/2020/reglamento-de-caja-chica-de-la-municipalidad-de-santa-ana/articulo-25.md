@@ -1,0 +1,1 @@
+Artículo 25.—Hoja de arqueo. De cada arqueo se confeccionará una hoja, en que consignarán su firma, el Asistente de Egresos y el Tesorero Municipal. Este informe deberá entregarse en original al Departamento de Contabilidad, para que constituya un expediente con las hojas de todos los arqueos realizados en el año.

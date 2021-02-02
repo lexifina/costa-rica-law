@@ -1,0 +1,12 @@
+Artículo 2.—Definiciones:
+1. Control: cualquier mecanismo o procedimiento que permita el seguimiento y análisis de las posibles desviaciones en la planificación del ejercicio, y que supone además la actualización continua de la planificación y reorganización de las cuentas y sostenibilidad financiera de cualquier centro.
+2. Cuenta presupuestaria: Cuenta de la cual se puede ejercer la erogación, y que ha sido previamente autorizada por la Contraloría General de la República por los mecanismos de ley.
+3. Fondo de Caja Chica. Concepto. Se entiende por fondo de caja chica aquella suma de dinero que custodia el Asistente de Egresos; destinada a realizar gastos menores para la adquisición de bienes y servicios. Así como para pagar gastos de alimentación, hospedaje y transporte en el interior del país.
+La ejecución del gasto mediante el Fondo Fijo-Caja Chica es un procedimiento de excepción y por consiguiente limitado a la atención de gastos menores indispensables, según el criterio justificado de la administración de la Municipalidad. Específicamente, con cargo a dicho fondo se podrán realizar gastos correspondientes a las subpartidas presupuestarias consideradas para tal efecto.
+4. Funcionario autorizante: Corresponde al Alcalde en ejercicio o cualquier persona designada por él para tales efectos.
+5. Imposibilidad sobrevenida: caso fortuito o fuerza mayor que le impida al funcionario presentarse a laborar o cumplir con las obligaciones derivadas del presente reglamento.
+6. Jefe inmediato: Se trata de una persona que se encuentra en el puesto superior de una línea jerárquica y que tiene las facultades necesarias para mandar a sus subordinados.
+7. Reintegro: Devolución total o parcial al fondo de caja chica.
+8. Sistema Presupuestario: Es el sistema digital que se utiliza para llevar o controlar el gasto o presupuesto municipal.
+Está conformado por un conjunto de políticas, normas, organismos, recursos y procedimientos, utilizados en las distintas etapas del proceso presupuestario; tiene por objeto prever las fuentes y montos de los recursos monetarios y asignarlos anualmente para el financiamiento, tanto de planes, programas y proyectos, como de la organización adoptada, a fin de cumplir los objetivos y metas del sector público, en orden a satisfacer las necesidades sociales; requiere para su funcionamiento, de niveles organizativos, de decisión política, unidades técnico normativas centrales y unidades periféricas responsables de su utilización.
+9. Saldo Operativo: Es el saldo real que arroja el Sistema Presupuestario.

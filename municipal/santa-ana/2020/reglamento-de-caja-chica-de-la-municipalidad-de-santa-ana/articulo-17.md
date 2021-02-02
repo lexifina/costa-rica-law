@@ -1,0 +1,1 @@
+Artículo 17.—Liquidación de viáticos. Los viáticos deben ser liquidados ante la Tesorería Municipal el primer día en que el funcionario solicitante se presente a la Municipalidad; adjuntando los comprobantes de cada gasto y el efectivo sobrante, además de las obligaciones que dispone el artículo 16.

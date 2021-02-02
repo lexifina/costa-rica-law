@@ -1,0 +1,2 @@
+Artículo 12.—Contenido presupuestario. Antes de hacer efectivo un vale, el solicitante deberá gestionar ante el Proceso de Presupuesto la verificación del saldo operativo existente, a fin de determinar que cuenta con contenido presupuestario suficiente para la erogación del bien o servicio que se desea adquirir.
+Dicha verificación deberá validarla en el Sistema de Presupuesto y consignarla en el vale con los números de cuenta presupuestarios y su firma.

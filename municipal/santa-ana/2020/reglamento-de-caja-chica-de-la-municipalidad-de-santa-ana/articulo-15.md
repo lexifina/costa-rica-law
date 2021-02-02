@@ -1,0 +1,1 @@
+Artículo 15.—El viático. Se utilizará una fórmula digital o previamente impresa, en la que se deberá indicar la fecha; el nombre, número de cédula y puesto del solicitante; el lugar que visitó, el motivo de la visita, la hora de llegada y salida, el detalle del viático, el monto que se liquida y las firmas tanto del funcionario autorizante, como la del propio solicitante.

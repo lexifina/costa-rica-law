@@ -1,0 +1,6 @@
+Artículo 16.—Liquidación de vales. Los vales se liquidarán adjuntando los comprobantes del gasto y el efectivo sobrante, ante la Tesorería Municipal, máximo el día hábil siguiente del día del retiro del efectivo. Según la ley 9635 el solicitante del vale debe cumplir con lo siguiente:
+a) Antes de la solicitud del vale: Verificar el estado del proveedor a contratar (sea estar inscrito y no figurar como omiso ni moroso en tributación directa).
+Lo anterior deberá hacerlo en el Ministerio de Hacienda; actualmente en la sección “Consulta Situación Tributaria en el enlace” https://www.hacienda.go.cr/ATV/frmConsultaSituTributaria.aspx; o bien mediante las formas y mecanismos que éste llegue a designar en un futuro.
+b) Una vez realizada la compra: Gestionar y reenviar la factura correspondiente al correo de la Tesorería Municipal: tesoreria@santaana.go.cr; así como aprobar las mismas ante el Ministerio de Hacienda.
+Los vales que sean hechos efectivos los viernes deberán liquidarse ese mismo día.
+En caso de imposibilidad sobrevenida; deberá liquidarlo el primer día en que el funcionario solicitante del vale se presente a la Municipalidad. En caso de imposibilidad de realizar la gestión en los plazos y formas previamente establecidas, deberá enviar el documento con cualquier tercero de su confianza debidamente autorizado.
