@@ -23,3 +23,4 @@ Reglamento del Registro Público
 | 8 | 2012-02-24 | Decreto Ejecutivo 37020 (2012-02-24) |
 | 9 | 2013-02-12 | Decreto Ejecutivo 37593 (2013-02-12) |
 | 10 | 2017-05-08 | Decreto Ejecutivo 40417 (2017-05-08) |
+| 11 | 2021-02-02 | Decreto Ejecutivo 42835 (2021-02-02) |

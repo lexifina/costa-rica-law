@@ -1,2 +1,2 @@
-Artículo 33.—Del reparto automático. Una vez que se haya cerrado la entrada de documentos del día y se hayan realizado todas las operaciones correspondientes al Diario, se efectuará el reparto de los documentos que se presentaron ese día a los registradores respectivos, el cual se realizará de la manera más justa y equitativa.
+Artículo 33.-Del reparto automático. (Derogado por el artículo 79 del Reglamento de la Dirección de Servicios del Registro Nacional, aprobado mediante decreto ejecutivo N° 42835 del 2 de febrero del 2021)
 (Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 28541del 6 de marzo de 2000, que lo traspasó del antiguo artículo 31 al 33 actual)

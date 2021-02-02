@@ -1,2 +1,2 @@
-Artículo 74.—Informes regístrales. Aparte de las certificaciones enunciadas en los artículos anteriores, el Registro podrá expedir una copia simple de la información registral, por los medios técnicos que determine la Dirección, que no será una certificación.
+Artículo 74.-Informes regístrales. (Derogado por el artículo 79 del Reglamento de la Dirección de Servicios del Registro Nacional, aprobado mediante decreto ejecutivo N° 42835 del 2 de febrero del 2021)
 (Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 28541del 6 de marzo de 2000, que lo traspasó del antiguo artículo 72 al 74 actual)
