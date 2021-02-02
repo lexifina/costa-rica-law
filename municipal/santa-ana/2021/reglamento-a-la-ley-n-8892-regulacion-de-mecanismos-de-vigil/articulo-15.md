@@ -1,0 +1,1 @@
+Artículo 15.—Derecho de defensa de la organización o comité vecinal. Una vez instruido el expediente, la Comisión Especial lo pondrá en conocimiento de la organización o comité vecinal involucrada para que en el plazo máximo de tres días hábiles formulen conclusiones sobre los hechos alegados, la prueba producida y los fundamentos jurídicos en que apoyen sus pretensiones.

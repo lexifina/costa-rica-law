@@ -1,0 +1,1 @@
+Artículo 4°—Definición de organización de vecinos formalmente constituida. Entiéndase por organización de vecinos formalmente constituida, aquella agrupación que ha cumplido los requisitos formales para constituirse en una persona jurídica sea esta Asociación de Desarrollo de la Ley sobre el Desarrollo de la Comunidad 3859 o por la Ley de Asociaciones 218.

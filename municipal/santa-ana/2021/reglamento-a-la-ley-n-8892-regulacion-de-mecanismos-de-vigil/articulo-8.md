@@ -1,0 +1,3 @@
+Artículo 8°—Dispositivo de acceso. Como dispositivos de acceso sólo podrán utilizarse cadenas de paso, agujas de seguridad o brazos mecánicos, manuales o automáticos, instalados sobre la calzada siempre junto a una caseta de seguridad que cuente con servicio de vigilancia las 24 horas del día durante los 365 días del año.
+En caso de que el servicio no se otorgue de manera continua, las especificaciones contractuales y técnicas de los mecanismos indicados deberán incluir el hecho de que en ciertos horarios se mantendrán fuera de funcionamiento.
+El mecanismo señalado deberá pintarse de tal manera que sea plenamente visible para conductores y peatones, tanto de día como de noche.

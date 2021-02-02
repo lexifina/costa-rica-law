@@ -1,0 +1,2 @@
+Artículo 6°—Casetas de seguridad. Las casetas de seguridad podrán instalarse sobre áreas públicas, tales como aceras, parques y franjas verdes en uso en precario, o sobre áreas privadas, con el aval del propietario. En el caso de las aceras, la instalación de la caseta debe hacerse dejándose un espacio libre peatonal según lo estipulado en la Ley 7600.
+Dichas casetas podrán instalarse como puestos de vigilancia para fiscalizar el acceso de vehículos en las vías de ingreso. Sólo en casos especiales y debidamente comprobados se autorizarán casetas móviles.

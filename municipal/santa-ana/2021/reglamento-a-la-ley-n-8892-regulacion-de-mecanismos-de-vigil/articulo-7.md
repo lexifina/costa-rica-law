@@ -1,0 +1,1 @@
+Artículo 7°—Servicios mínimos. La caseta de seguridad deberá estar equipada con un servicio sanitario que tenga un adecuado tratamiento de las aguas residuales, con energía eléctrica y con cualquier medio de comunicación que garantice la transmisión de información a cualquier hora del día, entre los vigilantes, la policía y representantes de los vecinos.

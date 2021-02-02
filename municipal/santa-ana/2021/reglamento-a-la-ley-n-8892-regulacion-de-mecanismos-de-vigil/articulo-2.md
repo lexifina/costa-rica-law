@@ -1,0 +1,1 @@
+Artículo 2°—Autorización municipal. El Concejo Municipal de Santa Ana podrá autorizar la instalación de casetas de seguridad en cualquier lugar del cantón y de dispositivos de acceso, solamente en los ingresos de las Urbanizaciones o Fraccionamientos que sean un circuito cerrado o calle sin salida.
