@@ -13,6 +13,7 @@ j. Gestionar el plaqueo oportuno de los activos de propiedad, planta y equipo qu
 k. Remitir sus propios vales de activos de propiedad, planta y equipo utilizados en sus labores, a la Dirección de Finanzas para su respectiva custodia.
 l. Atender, solicitar, gestionar y/o suministrar cualquier información relacionada con los activos de propiedad, planta y equipo de su competencia.
 m. Retirar activos de propiedad, planta y equipo de Almacenes o bien autorizar a otro funcionario para que lo haga cuando por alguna razón no lo pueda realizar personalmente y coordinar la confección del vale respectivo, cuando proceda, antes de ponerlos (activos) en uso.
-n. Actualizar la información de los datos maestros de activos de propiedad, planta y equipo en el sistema contable.
+n. Actualizar la información de los datos maestros de activos de propiedad, planta y equipo en el auxiliar contable del sistema financiero y aplicar altas de activos cuando sea autorizado previamente por la Dirección de Contabilidad.
+(Así reformado el inciso anterior en sesión N° 08 del 2 de febrero del 2021)
 o. Entregar por escrito a su sucesor un informe sobre el inventario de la documentación bajo su custodia y cualquier información relevante para el trabajo de la unidad organizacional de su competencia con respecto a los activos de propiedad, planta y equipo. Si este no estuviera asignado por la jefatura en el momento de su partida el informe será entregado al jefe inmediato. Este informe debe ser entregado antes de dejar el puesto y una copia de este informe debe ser entregado a la Dirección de Finanzas.
 p. Gestionar las actividades necesarias para los traspasos de activos de propiedad, planta y equipo.
