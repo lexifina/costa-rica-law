@@ -1,12 +1,13 @@
-Artículo 80.—Funciones del Responsable Ambiental. Serán funciones del responsable ambiental, las siguientes:
-1. Velar por el fiel cumplimiento de los compromisos ambientales adquiridos por el desarrollador de la actividad, obra o proyecto en la Evaluación de Impacto Ambiental aprobada por la SETENA.
-2. Informar y recomendar los ajustes ambientales del Plan de Gestión Ambiental o los instrumentos de evaluación ambiental o el mecanismo establecido por la SETENA, y supervisar su ejecución y cumplimiento.
-3. Informar inmediatamente a la SETENA, sobre los incumplimientos o irregularidades a los compromisos ambientales suscritos por el desarrollador, que se produzcan en el proyecto, obra o actividad.
-4. Presentar a la SETENA los informes ambientales correspondientes, de acuerdo con los plazos y condiciones establecidos previamente en la resolución de aprobación de la EIA respectiva, así como aquellos adicionales que se le requieran, dentro del marco del Plan de Gestión Ambiental o resolución que exigió el ejercicio de la responsabilidad ambiental.
-5. El responsable ambiental debe mantener estrecha comunicación con la SETENA. Cuando sea requerido, acompañará a los funcionarios de Ésta durante las inspecciones de control, fiscalización y supervisión, en caso de que así sea solicitado, para lo cual se le comunicará con la debida antelación.
-6. Velar por el cumplimiento de las recomendaciones técnicas adicionales dadas por la SETENA, quien deberá comunicar al desarrollador por medio escrito de las modificaciones y ampliaciones a aplicar.
-7. Dejar constancia en la bitácora ambiental de:
-7.1. El estado de la actividad, obra o proyecto, y su avance en cada inspección.
-7.2. El cumplimiento de los compromisos ambientales, según lo verificado en el sitio, y cualquiera otra información ambiental relevante.
-7.3. Otras actividades a desarrollar, tiempo de implementación y tiempo de reporte.
-7.4. Proceder al cierre de la bitácora conforme al artículo 85 de este reglamento.
+Artículo 80.-Funciones del responsable ambiental. El responsable ambiental tendrá la obligación directa del control y seguimiento de la ejecución u operación del proyecto, con el fin de vigilar el correcto cumplimiento de los compromisos ambientales por parte del desarrollador para desarrollar su actividad, obra o proyecto y evitar efectos al ambiente no contemplados en el proceso de Evaluación de Impacto Ambiental. En esa medida, serán funciones del responsable ambiental de las actividades, obras o proyectos las siguientes:
+a) Velar por el fiel cumplimiento de la normativa ambiental y demás condiciones fijadas por la SETENA en la resolución de Licencia Ambiental.
+b) Brindar apoyo como facilitador técnico para efectos de asegurar la comprensión por parte del desarrollador de los aspectos normativos, técnicos y legales relevantes, directamente vinculados con el cumplimiento de las Condiciones Fijadas en la Licencia Ambiental. Además, deberá anotar de forma inmediata en la Bitácora Digital Ambiental sobre cualquier situación o conducta que pueda generar un daño o cualquier impacto no previsto.
+c) Efectuar las recomendaciones técnicas pertinentes que contribuyan a garantizar el cumplimiento de la normativa ambiental y demás condiciones fijadas, particularmente, los ajustes requeridos en el PGA.
+d) Supervisar la ejecución y cumplimiento de las recomendaciones técnicas emitidas y dar seguimiento a su efectividad.
+e) Informar mediante anotaciones en la Bitácora Digital Ambiental de la actividad, obra o proyecto, sobre las irregularidades y los incumplimientos en las condiciones fijadas, incluyendo las causas y las recomendaciones propuestas para su normalización.
+f) Mantener actualizado el PGA considerando la naturaleza dinámica del ambiente y de la actividad, obra o proyecto de tal manera que la SETENA pueda solicitarlo cuando lo requiera.
+g) Realizar las visitas de campo necesarias para garantizar el fiel cumplimiento de las condiciones fijadas en el proceso de EIA.
+h) Participar en las inspecciones ambientales programadas y en las auditorías ambientales cuando sea requerido.
+i) Informar mediante anotación en Bitácora Digital Ambiental sobre cualquier cambio en la actividad, obra o proyecto durante las etapas de ejecución o de operación que modifique los impactos ambientales originalmente identificados y evaluados en el instrumento de EIA aprobado.
+j) Mantener actualizada la Bitácora Digital Ambiental y compartir constantemente las anotaciones con el equipo de consultores, en caso de que sea un grupo consultor multidisciplinario, como con la SETENA.
+k) Proceder, a través de la plataforma digital de seguimiento, al cierre de la Bitácora Digital Ambiental de la actividad, obra o proyecto y adjuntar el informe de cierre del consultor, debidamente aprobado por el desarrollador, para el cierre de la gestión ambiental de la actividad, obra o proyecto.
+(Así reformado por el artículo 1° del 42912 del 2 de febrero del 2021)

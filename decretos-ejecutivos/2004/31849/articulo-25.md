@@ -1,8 +1,7 @@
-Artículo 25.—Trámite ante la SETENA. El trámite a cumplir será el siguiente:
-1. Entregar a la SETENA el original y una copia de la P-PGA, incluyendo el comprobante del depósito de pago por concepto del análisis del documento.
-2. La SETENA, por medio del departamento respectivo, realizará la revisión del P - PGA en el plazo no mayor de 4 semanas.
-3. Si los términos de referencia establecidos por la SETENA son cumplidos en el P-PGA, en el plazo de 2 semanas, emitirá y notificará oficialmente los lineamientos para la preparación de la Declaración Jurada de Compromisos Ambientales, debidamente otorgada ante notario público, y el cumplimiento de los requisitos de control y seguimiento ambiental que la SETENA establezca.
-4. En el caso de que los términos de referencia y las condiciones ordenadas no sean cumplidos, la SETENA comunicará oficialmente, por escrito y por una única vez, al desarrollador la situación y solicitará, que la información faltante sea subsanada por este, para lo cual le fijará un plazo razonable de entrega, en función de la cantidad y complejidad de la información requerida.
-5. En caso de que la información solicitada no se presente en el plazo establecido, el expediente será archivado.
-6. Para la revisión de la información solicitada, la SETENA dispondrá de un plazo no mayor de 2 semanas.
-7. Si la documentación presentada cumple, la SETENA emitirá y notificará la resolución administrativa que otorga la viabilidad (licencia) ambiental a la actividad, obra o proyecto.
+Artículo 25.-Trámite ante la SETENA para actividad, obra o proyecto calificación SIA superior a 300 e inferior o igual a 1000. El trámite por cumplir será el siguiente:
+1. Ingresar en la plataforma digital el formulario D1- P-PGA y la Declaración Jurada de Compromisos Ambientales (debidamente otorgada ante notario público y en el caso de Instituciones del Estado emitida por el jerarca, sin necesidad de autenticación), así como, el comprobante del depósito de pago por concepto del análisis del documento.
+2. La SETENA, por medio del departamento respectivo, realizará la revisión del P-PGA y de la Declaración Jurada de Compromisos Ambientales en un plazo no mayor a 4 semanas.
+3. Revisado el documento P-PGA se verificará el cumplimiento de los requisitos y en caso que se requiera subsanaciones, aclaraciones, se otorgará un plazo razonable para su cumplimiento según lo que se requiera. En caso de que la información solicitada no se presente en el plazo que se otorgue y el desarrollador no solicite prórroga para el cumplimiento respectivo, se procederá a archivar el expediente.
+4. Para la revisión de la información solicitada, la SETENA dispondrá de un plazo no mayor de 2 semanas.
+5. Si la documentación presentada cumple, la SETENA emitirá y notificará la resolución administrativa que otorga la licencia ambiental a la actividad, obra o proyecto, indicado los instrumentos de control ambiental que se deberán cumplir para la etapa de ejecución. En caso de que la información no cumpla, se procederá a emitir la resolución respectiva de no aprobación.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 42912 del 2 de febrero del 2021)
