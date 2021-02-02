@@ -1,0 +1,1 @@
+Artículo 2.- Deróguese el inciso 10) del artículo 13 del Decreto Ejecutivo Nº 42196-H del 12 de febrero de 2020, Reglamento a la ley Orgánica de la Junta de Desarrollo Regional de la zona Sur de la provincia de Puntarenas (JUDESUR).
