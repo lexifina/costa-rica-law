@@ -1,0 +1,2 @@
+Artículo 20.—Derogatorias. Se derogan todas las disposiciones anteriores relacionadas con esta materia, en especial lo dispuesto en el artículo 16°, sesión 12.058 del 8 de febrero del 2016, en el que se modificó el Reglamento del Comité y Subcomité de Licitaciones.
+Se deroga el Reglamento de Control y Organización del Trámite de Contratación Administrativa de las Compras Públicas que realice el Banco Nacional de Costa Rica, según acuerdo tomado por la Junta Directiva General N° 11.795, artículo 18°, celebrada el 02 de octubre del 2012.
