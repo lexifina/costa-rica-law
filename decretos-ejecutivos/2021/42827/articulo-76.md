@@ -1,0 +1,2 @@
+Artículo 76º -Incumplimientos financiamientos reembolsables.
+En caso de incumplimiento de una de las condiciones crediticias pactadas en el contrato de financiamiento por parte del beneficiario, referente a la utilización de los recursos, JUDESUR deberá de forma inmediata paralizar el giro de los recursos y exigir por los medios legales la devolución de las sumas giradas, mediante el cobro administrativo o judicial, ejecutando las garantías que respaldan el financiamiento de forma inmediata.

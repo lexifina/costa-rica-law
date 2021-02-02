@@ -1,0 +1,6 @@
+Artículo 36° -Condiciones de las Becas de Educación Técnica:
+a) El beneficiario formalizará mediante un Contrato, para estudios de educación técnica con JUDESUR, todas las condiciones de la Beca como: monto, carrera, universidad o centro de estudio, periodo de estudio, promedio de notas, sanciones y revocatoria del beneficio.
+b) El monto de cada beneficio de acuerdo al área técnica a financiar lo determinará la Junta Directiva de JUDESUR anualmente, mediante acuerdo.
+c) El monto por el que se suscribe el Contrato para Estudios Técnicos, incluye la suma solicitada por el beneficiario más un 10% de ese monto, con el fin de sufragar posibles aumentos en los rubros financiados.
+d) El monto de la Beca se desembolsará directamente al Centro Educativo establecido en el contrato suscrito entre ambas partes, de acuerdo al periodo establecido (trimestre, cuatrimestre, semestre) en relación al avance de la carrera. Previo al siguiente desembolso el beneficiario deberá haber liquidado con facturas originales físicas o digitales el desembolso anterior.
+Las solicitudes de Becas de Educación Técnica serán remitidas por el Departamento de Operaciones previo análisis y recomendación, al Departamento Técnico de Planificación y Desarrollo para su revisión y remisión a la Junta Directiva para la aprobación correspondiente.

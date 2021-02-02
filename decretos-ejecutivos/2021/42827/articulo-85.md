@@ -1,0 +1,3 @@
+Artículo 85º - Obligaciones de los beneficiarios.
+En el caso de que los fondos no sean utilizados por el beneficiario en el Plan de Inversión aprobado por la Junta Directiva, el beneficiario deberá reintegrarlos en forma inmediata. En tanto los recursos no utilizados estén generando intereses, estos deberán ser reintegrados en su totalidad a JUDESUR.
+Por su parte los remanentes que resulten al final de la liquidación financiera del proyecto? previa presentación de un plan para su ejecución, podrán ser utilizados bajo autorización de la Junta Directiva de JUDESUR, en componentes del proyecto que respondan a sus objetivos iniciales.

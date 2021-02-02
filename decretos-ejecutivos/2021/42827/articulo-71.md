@@ -1,0 +1,2 @@
+Artículo 71 ° - Pago de cuotas.
+Para todos los desembolsos financieros se establecerá una cuota, la cual se pagará con la periodicidad que se haya dispuesto en las condiciones de crédito establecidas en el Convenio de Financiamiento. El pago se efectuará mediante depósito bancario en las cuentas que ITJDESUR establezca al respecto en uno de los bancos del Sistema Bancario Nacional. Lo anterior de acuerdo con lo estipulado en el Convenio de Financiamiento suscrito entre JUDESUR y el beneficiario.

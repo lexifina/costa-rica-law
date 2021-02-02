@@ -1,0 +1,2 @@
+Artículo 28 º -Período general de financiamiento.
+El período general de financiamiento será como máximo de hasta 20 años, el cual incluye el período de estudios, gracia y amortización. La modificación de este artículo podrá realizarse mediante acuerdo de la Junta Directiva de JUDESUR y no necesitará una reforma al presente reglamento, bajo un criterio técnico emitido por el Departamento de Operaciones y la Unidad de Cobro institucional.

@@ -1,0 +1,2 @@
+Artículo 72° -Análisis del proyecto.
+Tanto el Departamento de Operaciones como el Departamento Técnico de Planificación y Desarrollo Institucional, deberán tomar en consideración el analizar, estudiar y valorar para cada uno de los créditos el tipo de proyecto, plazo de ejecución, tipo de crédito, garantías, población beneficiada, naturaleza, rentabilidad del proyecto de inversión, nivel socioeconómico de los beneficiarios, impacto social, así como el nivel inflacionario; para la recomendación correspondiente a la Junta Directiva.

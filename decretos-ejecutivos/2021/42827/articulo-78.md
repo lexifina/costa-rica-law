@@ -1,0 +1,2 @@
+Artículo 78° -Novaciones.
+En el caso de novaciones de deudor el beneficiario que asuma el crédito deberá cancelar principal e intereses corrientes y moratorias, generados al momento en el que se constituye como tal. Sin embargo, si en el financiamiento no se ha girado la totalidad de los recursos al momento de la constitución de la novación, no se girará el saldo al descubierto restante hasta que no se cumpla con los requisitos establecidos _en este reglamento, así como con las disposiciones y políticas establecidas por JUDESUR.

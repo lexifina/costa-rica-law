@@ -1,0 +1,5 @@
+Artículo 86° - Proyectos Regionales Reembolsables y o Reembolsables
+JUDESUR podrá otorgar proyectos regionales entendidos como aquellos que beneficien a dos o más cantones de la zona sur, en este caso, estos contaran con supervisión especial de parte de la Contraloría General de la República.
+Para los proyectos financiados con recursos reembolsables o no reembolsables, la distribución presupuestaria se determinará de acuerdo a los beneficios recibidos para los cantones participantes, para lo cual el analista del Departamento de Operaciones realizará el estudio de impacto que aplicaría para cada cantón, debiendo aportar el mayor porcentaje el cantón con mayor beneficio y así sucesivamente.
+A los proyectos regionales de tipo reembolsables que generen utilidades; JUDESUR le aplicará un porcentaje a convenir con el ente ejecutor, de acuerdo al porcentaje de las utilidades recibidas anualmente durante los años a convenir
+Los ingresos recibidos JUDESUR los distribuirá de acuerdo al porcentaje de impacto descrito en el segundo párrafo del presente artículo.

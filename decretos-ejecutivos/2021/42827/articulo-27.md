@@ -1,0 +1,3 @@
+Artículo 27º -Variación del grado académico.
+La obtención de un grado académico diferente al originalmente financiado será autorizada por el la Junta Directiva, cuando este cambio favorezca los intereses del beneficiario y de JUDESUR y no signifique cambios en el monto del financiamiento.
+En los casos que implique un aumento en el monto se tramitará como una ampliación de Financiamiento. La presentación se realizará ante el Departamento de Operaciones, el cual procederá a realizar el análisis respectivo, trasladando el expediente al Departamento Técnico de Planificación y Desarrollo para su verificación y recomendación a la Junta Directiva.

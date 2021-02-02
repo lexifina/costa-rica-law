@@ -1,0 +1,3 @@
+Artículo 26 º -Variación del período de estudio.
+La Junta Directiva de JUDESUR puede autorizar las ampliaciones al período de estudios, necesarias para que el beneficiario concluya su proyecto académico original, o alcance un énfasis adicional dentro del mismo grado académico; siempre que se cumpla con lo dispuesto en el artículo Nº 27 del presente reglamento.
+El plazo máximo para la presentación de la solicitud será de 90 días naturales previos a la finalización del periodo de gracia otorgado, dicha presentación se realizará ante el Departamento de Operaciones, el cual procederá a realizar el análisis respectivo, trasladando el expediente al Departamento Técnico de Planificación y Desarrollo para su verificación y recomendación a la Junta Directiva.

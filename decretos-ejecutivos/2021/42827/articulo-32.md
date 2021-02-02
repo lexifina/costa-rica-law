@@ -1,0 +1,3 @@
+Artículo 32°- Plan de Inversión para las Becas de Educación Técnica.
+El beneficio podrá otorgársele al estudiante desde el inicio de la carrera o cuando ya hayan avanzado en la misma; siempre y cuando para estos casos demuestren mediante la certificación de notas correspondiente que han tenido un rendimiento académico acorde con los parámetros establecidos por JUDESUR, y lo disfrutarán una vez cumplidos todos los requerimientos solicitados por el Departamento de Operaciones, establecidos en el presente reglamento.
+Las Becas de Educación Técnica incluyen el pago de matrícula, materias, pruebas de grado, internados, laboratorios, prácticas, trabajos finales de graduación, derechos de graduación y emisión de títulos.

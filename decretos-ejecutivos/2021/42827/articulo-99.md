@@ -1,0 +1,2 @@
+Artículo 99º - Derogatorias.
+Deróguese el Decreto Ejecutivo N º 39492-MP, Reglamento de Financiamiento para Estudios Universitarios, becas de Educación Secundaria y Educación Superior del 10 de diciembre de 2015, publicado en el Alcance 36 al Diario Oficial La Gaceta N º 47 del martes 08 de Marzo del 2016, asimismo el Decreto Nº 35048-MP,del 16 de enero de 2009, publicado en La Gaceta N º 38 del 24 de febrero· del 2009, Reglamento General de Financiamiento de La Junta de Desarrollo Regional de la Zona Sur de la Provincia de Puntarenas.

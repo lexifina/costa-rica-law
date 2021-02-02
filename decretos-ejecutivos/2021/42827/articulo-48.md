@@ -1,0 +1,4 @@
+Articulo 48º -Ampliación del monto aprobado.
+El beneficiario podrá solicitar ampliaciones al monto inicialmente aprobado para sufragar cualquiera de los gastos autorizados en el presente reglamento, que no se hayan incluido en financiamiento original o por aumento en los costos no previstos, lo anterior con el objeto de concluir con éxito su proyecto académico.
+El trámite se inicia con la presentación de la solicitud formal ante el Departamento de Operaciones, la cual debe incluir justificación para el aumento, el presupuesto de los recursos solicitados, y debidamente acompañados de los documentos de respaldo necesarios.
+El proyecto se remite al Departamento Técnico de Planificación y Desarrollo Institucional para su revisión y posterior aprobación por parte de la Junta Directiva. Una vez aprobado, el Departamento de Operaciones confeccionará una adenda, la cual surtirá eficacia y validez jurídica, una vez refrendada por la Unidad de Asesoría Legal de JUDESUR.

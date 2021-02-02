@@ -1,0 +1,3 @@
+Artículo 79º - Periodo de gracia.
+La Junta otorgará los periodos de gracia de acuerdo a las condiciones crediticias de cada proyecto, tomando en cuenta las recomendaciones técnicas y financieras emitidas por el Departamento de Operaciones. El cual valorará las características demostradas en el estudio técnico que así lo requieran.
+Todos los financiamientos otorgados deberán ser respaldados a entera satisfacción del Departamento Técnico de Planificación y Desarrollo Institucional, de acuerdo con las garantías consideradas y su respectivo análisis financiero, legal y de riesgos; las garantías podrán ser: hipotecarias, prendarias, fiduciarias (pagarés, avales), títulos negociables en bolsa (privados o públicos), fideicomisos de garantías y otros.
