@@ -1,0 +1,1 @@
+Artículo 3º—Los festejos de verano se celebrarán en los meses de diciembre a marzo. Las actividades que se celebren en los meses de abril a noviembre los interesados indicarán la fecha con la presentación de la documentación para la autorización.

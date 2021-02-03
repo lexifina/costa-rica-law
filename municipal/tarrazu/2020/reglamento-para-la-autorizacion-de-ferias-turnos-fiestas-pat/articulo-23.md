@@ -1,0 +1,1 @@
+Artículo 23.—Toda actividad que se realice en las ferias, turnos, fiestas patronales, festejos populares, fiestas cívicas, y similares que se considere espectáculo público debe cancelar el impuesto correspondiente, según lo establecido en el Reglamento para la realización y cobro de espectáculos públicos de la Municipalidad de Tarrazú.

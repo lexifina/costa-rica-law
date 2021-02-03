@@ -1,0 +1,1 @@
+Artículo 4º—Como regla general se otorgará permisos por ocho días, es decir, un fin de semana. Sin embargo, cuando los festejos incluyan actividades taurinas u otras que demanden gran inversión y organización, a solicitud de los interesados y por acuerdo del Concejo Municipal, se podrá otorgar por más días.

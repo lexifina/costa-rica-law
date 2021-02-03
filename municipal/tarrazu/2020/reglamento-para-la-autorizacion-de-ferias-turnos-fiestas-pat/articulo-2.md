@@ -1,0 +1,1 @@
+Artículo 2º—En el mes de junio los interesados pueden apersonarse a la Secretaría del Concejo Municipal con fin de apartar las fechas de sus festejos de verano, las cuales se otorgarán por el Concejo Municipal conforme las solicitudes completas se vayan presentando.

@@ -1,0 +1,2 @@
+Artículo 7º—Las solicitudes, con toda la documentación completa, deben presentarse con treinta días naturales de anticipación al inicio de la actividad y el Concejo Municipal deberá resolver dicha solicitud a más tardar en quince días naturales después de su presentación.
+El Departamento de Administración Tributaria una vez recibida la solicitud verificará la misma, y la enviará al Concejo Municipal para ser conocida en la sesión municipal inmediata.

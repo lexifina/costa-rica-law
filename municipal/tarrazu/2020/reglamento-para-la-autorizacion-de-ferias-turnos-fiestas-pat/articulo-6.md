@@ -1,0 +1,1 @@
+Artículo 6º—Toda solicitud debe de cumplir con lo establecido en el Reglamento de Construcciones y el Reglamento de Ferias, Turnos y Similares, Decreto Ejecutivo 17923-S y sus reformas. Se debe cumplir con lo requerido en el trató de las aguas servidas e instalación de cabinas sanitarias.

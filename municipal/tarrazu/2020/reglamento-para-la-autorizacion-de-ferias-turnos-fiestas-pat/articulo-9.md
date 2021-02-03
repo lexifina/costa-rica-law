@@ -1,0 +1,1 @@
+Artículo 9º—La actividad comercial se debe realizar dentro del espacio o local asignado, se prohíbe las ventas ambulantes. Si se determina que un local o chinamo está realizando ventas ambulantes con la mercadería que posee, se procederá de inmediato con el cierre del local, espacio o chinamo, por parte del inspector municipal, durante todos los días del festejo.

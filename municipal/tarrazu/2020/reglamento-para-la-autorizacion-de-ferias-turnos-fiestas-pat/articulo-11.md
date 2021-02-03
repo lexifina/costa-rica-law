@@ -1,0 +1,1 @@
+Artículo 11.—Si se van a efectuar corridas de toros, el otorgamiento de permisos y desarrollo de las actividades se rigen por lo establecido en el Reglamento Actividades Taurinas N° 19183-G-S y sus reformas. Se debe cancelar el permiso de construcción del redondel.

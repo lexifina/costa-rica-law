@@ -1,0 +1,1 @@
+Artículo 13.—Si se va a efectuar venta de licor, se debe solicitar la licencia de licores conforme lo establece la ley para la Regularización y Comercialización de bebidas con Contenido Alcohólico, ley N° 9047, y el Reglamento de la Municipalidad de Tarrazú a la Ley de Regulación y Comercialización de bebidas con contenido alcohólico.

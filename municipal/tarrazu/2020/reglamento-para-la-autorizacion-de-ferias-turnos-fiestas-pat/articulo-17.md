@@ -1,0 +1,1 @@
+Artículo 17.—El plan de manejo de desechos sólidos deberá contener como mínimo los siguientes elementos informativos: nombres de los establecimientos que se encuentran en la actividad, ubicación exacta de la propiedad, representante legal, medios de comunicación, teléfono, fax, apartado, e-mail.

@@ -1,0 +1,1 @@
+Artículo 25.—El presente reglamento deroga en todo lo dispuesto en el Reglamento para la autorización de ferias, turnos, festejos, novilladas, actividades bailables y similares en el Cantón de Tarrazú y sus reformas, publicado en La Gaceta 125 del 29 de junio del 2000.

@@ -1,0 +1,1 @@
+Artículo 10.—Si en la actividad van a operar carruseles, deberán entregar el original o copia de la póliza respectiva extendida por el INS y deben de cancelar el impuesto de espectáculos públicos en la Municipalidad de Tarrazú, esto de acuerdo con la tabla respectiva.
