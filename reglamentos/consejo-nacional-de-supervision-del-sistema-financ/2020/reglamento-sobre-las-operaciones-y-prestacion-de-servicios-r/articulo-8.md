@@ -1,0 +1,1 @@
+Artículo 8º—Confidencialidad. La entidad financiera supervisada es responsable ante el cliente o usuario de la confidencialidad de la información de sus clientes o usuarios a los que tengan acceso sus corresponsales no bancarios, debiendo observar las disposiciones que establece el ordenamiento jurídico vigente.

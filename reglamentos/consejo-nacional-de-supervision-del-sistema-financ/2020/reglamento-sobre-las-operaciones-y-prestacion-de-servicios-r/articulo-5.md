@@ -1,0 +1,8 @@
+Artículo 5º—Contrato de corresponsalía no bancaria. La relación de la entidad financiera supervisada con los corresponsales no bancarios debe estar respaldada con un contrato que, al menos, debe abordar lo siguiente:
+a) La indicación expresa que el corresponsal no bancario actúa ante el cliente o usuario, por cuenta y bajo la responsabilidad de la entidad financiera supervisada;
+b) La obligación del corresponsal no bancario de cumplir con las medidas para la prevención de la legitimación de capitales, financiamiento al terrorismo y la proliferación de armas de destrucción masiva, establecidas en el ordenamiento jurídico, según las políticas y procedimientos de la entidad financiera supervisada, quien es la responsable última del cumplimiento normativo y de la debida diligencia del cliente;
+c) Las obligaciones del corresponsal no bancario de entregar a los clientes y usuarios el comprobante de la transacción realizada; así como de mantener reserva y confidencialidad sobre la información a la que tenga acceso respecto del cliente y usuario;
+d) Las obligaciones entre las partes contratantes; en particular el porcentaje o monto de las comisiones, formas de pago, entre otras;
+e) Los productos y servicios que brinda el corresponsal no bancario.
+La entidad financiera supervisada no podrá obligar a sus corresponsales no bancarios a suscribir contratos de exclusividad para la realización de las operaciones y la prestación de los servicios regulados en el presente Reglamento.
+En todo contrato de corresponsalía deben incluirse cláusulas que faculten la revisión en cualquier momento de las operaciones y prestación de servicios del corresponsal no bancario por parte de las entidades financieras supervisadas.

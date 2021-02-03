@@ -1,0 +1,1 @@
+Artículo 7º—Divulgación de información. La entidad financiera supervisada debe publicar y mantener actualizada en su sitio web o en los medios que considere pertinentes, al menos la siguiente información: la lista de los corresponsales no bancarios, ubicación, horario, número de teléfono y transacciones ofrecidas.

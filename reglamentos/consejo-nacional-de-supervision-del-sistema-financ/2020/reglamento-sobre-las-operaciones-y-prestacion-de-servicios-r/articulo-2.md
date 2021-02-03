@@ -1,0 +1,1 @@
+Artículo 2º—Alcance. Este Reglamento es aplicable a las entidades financieras supervisadas por SUGEF que realicen operaciones y presten servicios mediante corresponsales no bancarios dentro del territorio nacional.

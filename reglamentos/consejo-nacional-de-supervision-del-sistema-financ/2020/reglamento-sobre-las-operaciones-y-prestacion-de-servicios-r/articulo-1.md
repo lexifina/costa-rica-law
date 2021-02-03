@@ -1,0 +1,22 @@
+CONSEJO NACIONAL DE SUPERVISIÓN DEL SISTEMA FINANCIERO
+El Consejo Nacional de Supervisión del Sistema Financiero, en el artículo 5, del acta de la sesión 1593-2020, celebrada el 20 de julio de 2020,
+considerando que:
+A. El literal c, artículo 131, de la Ley Orgánica del Banco Central de Costa Rica, Ley 7558, establece como parte de las funciones del Superintendente General de Entidades Financieras, proponer al Consejo Nacional de Supervisión del Sistema Financiero (CONASSIF), para su aprobación, las normas que estime necesarias para el desarrollo de las labores de fiscalización y vigilancia.
+B. El literal n, aparte vi), artículo 131, de la Ley 7558, faculta al Superintendente General de Entidades Financieras para proponer al CONASSIF, normas para promover la estabilidad, solvencia y transparencia de las operaciones de las entidades fiscalizadas, con el fin de salvaguardar los intereses de los depositantes, los usuarios de los servicios financieros y la colectividad en general.
+C. El artículo 5 de la Ley Orgánica del Sistema Bancario Nacional, Ley 1644, establece que: “… establecer sucursales, agencias u oficinas, así como designar corresponsales en cualquier lugar del territorio de la República”.
+D. Es de interés público propiciar que la ciudadanía tenga acceso a servicios financieros formales y al uso de los sistemas de pago para lograr su inserción en las actividades productivas, contribuyendo así al mejoramiento de la calidad de vida y bienestar colectivo. Esto se logra, en parte, con la incorporación de mecanismos novedosos de prestación de los servicios financieros y de pago, en zonas geográficas habitualmente con poca atención.
+E. La experiencia internacional ha evidenciado que la implementación de la figura de corresponsales por parte de las instituciones financieras, como canal alternativo para la prestación de sus servicios, constituye una eficiente herramienta de inclusión financiera; cuya efectiva potenciación representa un objetivo de los reguladores y supervisores del sistema financiero nacional.
+F. Es necesario fomentar modelos de negocio que se ajusten a la expansión de los servicios financieros, pero al mismo tiempo, implementar mecanismos de protección para los clientes y usuarios de dichos modelos de negocio.
+G. Es necesario contar con un marco regulatorio congruente con las mejores prácticas y recomendaciones internacionales en la materia; lo que incluye aspectos relacionados con la gestión de los riesgos que deben administrar las entidades financieras, tanto riesgos de tipo operativo, como riesgos en materia de prevención de la legitimación de capitales y financiamiento al terrorismo.
+H. Es responsabilidad de las entidades supervisadas elaborar e implantar políticas y sistemas de control que les permitan manejar adecuadamente sus riesgos y conocer en forma fehaciente a sus clientes.
+I. La recomendación 17 de las 40 recomendaciones del Grupo de Acción Financiera Internacional y sus Notas Interpretativas señala que los países pueden permitir a las entidades financieras supervisadas que deleguen en terceros algunas de las medidas de debida diligencia en el conocimiento de los clientes; siempre y cuando la responsabilidad final de la debida diligencia en el conocimiento de los clientes permanezca en la entidad supervisada que delega.
+J. Es necesario establecer las condiciones mínimas para propiciar un marco de transparencia que facilite a los clientes y usuarios de los productos y servicios ofrecidos a través de los corresponsales no bancarios.
+K. El CONASSIF mediante artículo 13 del acta de la sesión 1494-2019 del 8 de abril de 2019, dispuso remitir en consulta el Reglamento sobre las operaciones y prestación de servicios realizados por medio de corresponsales. Al término de la consulta se hizo un análisis de los comentarios y las observaciones recibidas y se modificó el texto en lo que se consideró pertinente.
+dispuso en firme:
+aprobar el Reglamento sobre las operaciones y prestación de servicios realizados por medio de corresponsales no bancarios, de conformidad con el siguiente texto:
+ACUERDO SUGEF 26-20
+“Reglamento sobre las operaciones y prestación de servicios
+realizados por medio de corresponsales no bancarios”
+CAPÍTULO I
+Disposiciones generales
+Artículo 1º—Objeto. El presente Reglamento tiene como objeto establecer un marco general de sanas prácticas para la realización de operaciones y la prestación de servicios por medio de corresponsales no bancarios.
