@@ -1,0 +1,1 @@
+Artículo 5°—Área encargada del proceso de cobro administrativo. Corresponde a la Unidad de Cobro realizar las gestiones de cobro administrativo para la recuperación efectiva de las obligaciones crediticias.

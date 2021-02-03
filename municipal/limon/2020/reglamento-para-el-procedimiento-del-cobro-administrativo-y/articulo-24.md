@@ -1,0 +1,1 @@
+Artículo 24.—Cuando por causas atribuibles al abogado se produjera pérdida de saldos deudores, la Municipalidad podrá plantear las denuncias que considere necesarias y ante las instancias competentes; así mismo rescindirá el contrato con el abogado sin costo alguno para la Municipalidad.

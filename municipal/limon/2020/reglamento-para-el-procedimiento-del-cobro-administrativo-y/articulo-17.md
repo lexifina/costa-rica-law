@@ -1,0 +1,2 @@
+Artículo 17.—El abogado que se contrate deberá excusarse de atender la dirección de un juicio cuando tuviere vínculos de parentesco o prohibición por afinidad con el sujeto pasivo del cobro, situación que comunicara por escrito a la Unidad de Cobro en el término de tres días hábiles.
+En idéntico sentido deberá presentar declaración jurada que no tiene a su cargo el patrocinio letrado de asuntos administrativos y judiciales, en contra de la Municipalidad de Limón.

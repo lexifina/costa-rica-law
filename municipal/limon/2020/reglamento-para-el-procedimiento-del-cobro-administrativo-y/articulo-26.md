@@ -1,0 +1,3 @@
+Artículo 26.—Los “arreglos de pago” implica la extensión a un tiempo mayor para cumplir con las deudas pendientes, siempre y cuando se mantengan estrictamente al día, las nuevas obligaciones como contribuyente.
+La suma de todos los montos adeudados más los recargos permitidos por ley, dividido entre el nuevo plazo otorgado constituye la cuota mensual a cancelar por el contribuyente. En caso de que incumpliere el compromiso la Municipalidad enviará inmediatamente a cobro judicial el saldo incumplido.
+El arreglo de pago únicamente procederá, antes de que el cobro se encuentre en la etapa de cobro judicial.

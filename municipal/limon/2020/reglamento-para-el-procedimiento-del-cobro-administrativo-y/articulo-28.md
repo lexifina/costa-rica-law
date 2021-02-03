@@ -1,0 +1,3 @@
+Artículo 28.—Condiciones para otorgar arreglos de pago. El arreglo de pago se otorgará por parte de la Unidad de Gestión de Cobro, para lo cual ésta valorará las siguientes condiciones del sujeto pasivo:
+i. Capacidad económica. El sujeto pasivo debe demostrar a la Unidad de Cobro, que su situación económica impide pagar, en forma total e inmediata, las obligaciones vencidas.
+ii. Monto adeudado. De proceder el arreglo de pago, ambas partes pactarán el monto a pagar mensualmente, y el plazo para la cancelación total de la obligación vencida, que no podrá excederse de un año vigente; salvo que, mediante resolución razonado, a juicio de la Unidad de Cobro se extienda un plazo mayor, el cual no podrá exceder a dos años.

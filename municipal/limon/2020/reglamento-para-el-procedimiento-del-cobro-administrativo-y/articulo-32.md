@@ -1,0 +1,1 @@
+Artículo 32.—Sobre la documentación relacionada con los arreglos de pago. Toda la documentación que haya sido requerida por la Unidad de Cobro para la suscripción del arreglo de pago, será agregada al expediente, debidamente foliado.
