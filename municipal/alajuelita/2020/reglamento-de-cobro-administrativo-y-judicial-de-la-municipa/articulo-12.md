@@ -1,0 +1,2 @@
+Artículo 12: La asignación de casos para el cobro judicial será realizada por la Oficina de la Administración Tributaria entre todos los abogados contratados, en forma ordenada, equitativa, justa e inequívoca, atendiendo criterios en cuanto a número y monto de las operaciones de cobro judicial y de conveniencia institucional. Para ello la Oficina de la Administración Tributaria elaborará una lista en orden alfabético de los abogados donde consta la designación de los casos y que tendrá a disposición de los abogados.
+Tal designación deberá constar en el expediente respectivo.

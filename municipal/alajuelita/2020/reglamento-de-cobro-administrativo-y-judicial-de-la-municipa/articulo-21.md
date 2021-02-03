@@ -1,0 +1,3 @@
+CAPÍTULO QUINTO Responsabilidades de los Abogados
+Artículo 21: Después de notificado formalmente el Abogado sobre la adjudicación del proceso de contratación administrativa deberá, dentro de los siguientes diez días naturales, apersonarse a la Municipalidad para firmar el contrato correspondiente, que al efecto elabora la Municipalidad.
+Antes de la firma del contrato deberá demostrar que no ha sido suspendido en el ejercicio de la profesión, que se encuentra legalmente autorizado para el ejercicio de la profesión y aportar los atestados y documentos que comprueben su idoneidad y experiencia profesional.

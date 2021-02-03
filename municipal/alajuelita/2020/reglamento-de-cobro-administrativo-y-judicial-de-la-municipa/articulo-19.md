@@ -1,0 +1,1 @@
+Artículo 19: Mediante requerimiento escrito, la Oficina de Administración Tributaria y el gestor/a cobros podrán solicitar al Abogado, cuando así lo estime conveniente a los intereses municipales, informes especiales acerca del avance de las gestiones realizadas y los resultados parciales obtenidos, de cualquier caso bajo su responsabilidad.

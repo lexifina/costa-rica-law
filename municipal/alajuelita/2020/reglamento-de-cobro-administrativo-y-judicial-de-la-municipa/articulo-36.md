@@ -1,0 +1,2 @@
+Artículo 36: Cuando la Municipalidad ha formalizado la rescisión del contrato con el Abogado por causa justificada, tendrá derecho al pago de los honorarios, al finalizar la gestión de cobro judicial.
+Serán calculados de acuerdo con el grado de avance en que se encuentren los juicios en la fecha de la rescisión del contrato y estos correrán por cuenta del sujeto pasivo objeto de cobro judicial, quien hará la cancelación directamente al Abogado. En caso de discrepancias el Tribunal de Justicia respectivo los fijará.

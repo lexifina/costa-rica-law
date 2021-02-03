@@ -1,0 +1,3 @@
+CAPÍTULO SEXTO Honorarios de los Abogados
+Artículo 34: El Abogado podrá cobrar los honorarios correspondientes de acuerdo con las disposiciones del Decreto de Aranceles Profesionales para Abogados. Tales honorarios deberán ser cancelados, al propio Abogado directamente, por los sujetos pasivos objeto de cobro judicial.
+En los procesos judiciales en el que el Abogado sea de planta (funcionario de la Municipalidad de Alajuelita) los honorarios y costas procesales se deberán depositar directamente en una cuenta bancaria a nombre de la Municipalidad de Alajuelita. Estos recursos libres serán utilizados para fortalecer la Gestión de Cobro del Proceso de Administración Tributaria.

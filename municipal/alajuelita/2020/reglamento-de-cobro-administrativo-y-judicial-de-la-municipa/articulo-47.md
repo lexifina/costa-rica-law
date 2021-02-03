@@ -1,0 +1,1 @@
+Artículo 47: El Abogado está obligado a cotejar los datos indicados en los edictos de ley, con anterioridad y posterioridad a su publicación en el Boletín Judicial, con los documentos que fundamentan la demanda y será responsable, ante la Municipalidad de cualquier perjuicio que por error al respecto pudiera causar su omisión al respecto.
