@@ -1,0 +1,1 @@
+Artículo 26.—Deber de firmar el contrato por parte de la persona teletrabajadora. La persona teletrabajadora deberá firmar un contrato donde se especificarán las condiciones de esta modalidad laboral y deberá cumplir con el artículo 5 del Reglamento a la Ley N° 9738.

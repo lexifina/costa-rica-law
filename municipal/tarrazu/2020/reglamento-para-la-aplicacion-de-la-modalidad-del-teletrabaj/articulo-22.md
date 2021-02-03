@@ -1,0 +1,1 @@
+Artículo 22.—Gastos adicionales de la persona teletrabajadora. Los gastos que amerite el desempeño de tareas con la modalidad del teletrabajo, tales como luz, agua, telefonía, acondicionamiento del espacio físico, entre otros, serán cubiertos en su totalidad por la persona teletrabajadora. También correrán por su cuenta los medios de interconexión que sean necesarios.

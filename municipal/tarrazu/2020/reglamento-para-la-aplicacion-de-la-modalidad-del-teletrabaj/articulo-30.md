@@ -1,0 +1,1 @@
+Artículo 30.—Definición y cumplimiento de metas y objetivos. El superior jerárquico deberá definir y evaluar el cumplimiento de las metas y objetivos de la persona teletrabajadora, y recomendará las acciones que permitan mejorar su productividad. Para este fin, debe llevar registros, confiables y verificables, y hacer las sesiones de seguimiento correspondientes.

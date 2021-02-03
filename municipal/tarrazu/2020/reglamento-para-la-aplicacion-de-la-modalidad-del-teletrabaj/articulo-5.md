@@ -1,0 +1,1 @@
+Artículo 5º—Ingreso: El ingreso al programa de teletrabajo es voluntario para las partes, el servidor o servidora debe hacer la solicitud correspondiente a su Jefe inmediato quien la trasladará a la comisión Municipal de Teletrabajo para su análisis.
