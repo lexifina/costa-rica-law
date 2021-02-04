@@ -1,1 +1,0 @@
-Artículo 9º—De las actas de sesiones del Comité del Marco Ético y Valores. El secretario del Comité deberá apoyar en la elaboración, recopilación, custodia y sistematización de las actas, así como de toda la documentación relativa a la labor. Cada una de las actas debe ser firmada por todos los miembros.
