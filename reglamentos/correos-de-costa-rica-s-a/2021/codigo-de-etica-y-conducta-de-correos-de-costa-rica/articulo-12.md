@@ -1,0 +1,4 @@
+Artículo N° 12.—El Código de Ética y Conducta empresarial es fundamental para la correcta gestión de la organización. Por ello, Correos de Costa Rica S. A. ha decidido aplicarlo de la siguiente forma:
+A. Como instrumento para la inducción del nuevo personal, permanente o interino.
+B. Como instrumento para los procesos de formación permanente, de reflexión e interiorización dentro de la Empresa, con el fin de promover las mejores prácticas y fortalecer una cultura organizacional sustentada por valores.
+C. Las normas y principios contenidos en este Código, al ser de naturaleza ética, tienen un carácter regulador y su descripción y consecuencias no excluyen la existencia de otros contenidos en diferentes cuerpos normativos o que se consideran de tradicional exigencia en lo que respecta a las responsabilidades civiles, penales y administrativas.

@@ -1,0 +1,2 @@
+Artículo N° 13.—Verificación de la aplicación del Código de Ética y de Conducta. Las Jefaturas de cada área tendrán la responsabilidad de velar por el cumplimiento de estas disposiciones.
+Además, deberán divulgar a su personal las normas de este Código, fomentando y promoviendo periódicamente reuniones de actualización y toda aquella capacitación que fuera necesaria en el tema de la ética y materias afines.
