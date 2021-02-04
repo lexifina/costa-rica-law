@@ -1,0 +1,7 @@
+Artículo 3. Medidas de debida diligencia reforzada. Las medidas de DDC reforzada corresponden a las medidas aplicables a situaciones donde se identifica a los clientes clasificados de riesgo alto, según el modelo de clasificación de riesgo de clientes del sujeto obligado, así como por cualquiera otra situación donde se identifique un mayor riesgo de LA/FT y que, por ello, deban aplicarse las medidas de debida diligencia general, descritas en la Normativa para el cumplimiento de la Ley 8204, así como las medidas adicionales de mitigación, proporcionales al riesgo detectado, dentro de las cuales podrán aplicarse, de manera no limitada, las siguientes:
+a Obtener información adicional sobre el cliente (v.gr., la ocupación, volumen de activos, información disponible a través de bases de datos públicas, Internet), actualizando, de forma más regular, los datos de identificación del cliente y beneficiario final.
+b Obtener información adicional sobre la naturaleza de las relaciones comerciales del cliente.
+c Obtener documentación fehaciente sobre el origen de recursos del cliente.
+d Obtener información sobre las causas de las transacciones previstas o realizadas.
+e Obtener la aprobación de la alta gerencia para comenzar o continuar la relación contractual.
+f Realizar un monitoreo continúo y ampliado de la transaccionalidad del afiliado y seleccionar patrones de transacciones que requieran un examen más detallado.
