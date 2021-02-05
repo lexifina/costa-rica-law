@@ -1,0 +1,3 @@
+Transitorio XIV- Actividades partidarias que impliquen aglomeración de personas
+Durante la vigencia del decreto de emergencia declarado por la Covid-19, las asambleas y actividades de los partidos políticos se podrán realizar tanto en forma virtual como presencial. En este último caso, deberán seguirse las disposiciones y los lineamientos que emita el Ministerio de Salud en cuanto a las regulaciones de apertura y aforo de reuniones, en virtud de la emergencia.
+(Así adicionado por el artículo único de la Ley de ahorro para la campaña política de 2022 Reducción de la deuda política y para facilitar los procesos de renovación de estructuras partidarias, N° 9934 del 19 de enero del 2021)
