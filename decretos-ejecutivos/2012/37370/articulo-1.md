@@ -1,4 +1,6 @@
+(Suspendida)
 No. 37370-MOPT
+(Nota de Sinalevi: Mediante el artículo 3° del decreto ejecutivo N° 42839 del 5 de febrero del 2021, se acordó suspender la vigencia del presente decreto ejecutivo durante el período de vigencia de la medida de restricción vehicular dispuesta en el decreto ejecutivo número 42295-MOPT-S del 11 de abril de 2020)
 LA PRESIDENTA DE LA REPUBLICA
 Y EL MINISTRO DE OBRAS PUBLICAS Y TRANSPORTES
 En el ejercicio de las facultades. que les confieren los numerales 22; 140, incisos 3) y 18), Y 146 de la Constitución Política; la Ley Orgánica del Ministerio de Obras Publicas y Transportes, No. 3155 del 5 de agosto de 1963 y sus reformas; la Ley de Administración Vial, No. 6324 del 24 de mayo de 1979 y sus reformas; la Ley de Transito por Vías Publicas Terrestres, No. 9078 del 4 de octubre del 2012, publicada en el Diario Oficial la Gaceta el 26 de octubre de 2012 y la Ley General de la Administración Pública, No. 6227 del 2 de mayo de 1978 y sus reformas.
