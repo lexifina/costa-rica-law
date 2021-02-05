@@ -1,0 +1,1 @@
+Artículo 13. Uso del Registro como perfil de referencia. La AC podrá utilizar en cualquier momento el registro como perfil de referencia sin que tenga que solicitar la autorización del registrante, salvo en aquellos casos que se encuentre con protección de datos de prueba.

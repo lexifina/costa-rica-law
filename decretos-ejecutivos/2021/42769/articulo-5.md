@@ -1,0 +1,1 @@
+Artículo 5. Administración del Registro. El registro de IAGT será administrado por el SFE, el cual, para los efectos de aplicación e interpretación del presente reglamento, será la AC. El MINSA y el MINAE participarán como autoridades revisoras en las etapas del proceso de registro que se indicarán, de acuerdo con sus competencias legales.

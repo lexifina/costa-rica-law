@@ -1,0 +1,1 @@
+Artículo 15. Limitaciones. Con el fin de asegurar la protección de los datos de prueba, la AC no permitirá el uso de datos de prueba con protección vigente como evidencia o información de apoyo para el registro por parte de un registrante diferente al titular del registro, a menos que éste haya autorizado por escrito el uso de dichos datos de prueba.
