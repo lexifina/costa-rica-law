@@ -9,19 +9,12 @@ f) El titular de la Gestión de Tecnologías de la Información.
 g) El titular de la Gestión Rectora del SINAFOR.
 Los titulares de la Asesoría Legal y del Proceso de Adquisiciones de la Unidad de Compras Institucionales o quienes éstos designen, participarán con voz, pero sin voto.
 2. Funcionamiento de la Comisión de Licitaciones: Para el funcionamiento de la Comisión se considerará lo siguiente:
-a) Presidencia: La Comisión estará presidida por el titular de la Gerencia General, en su
-ausencia por el titular de la Subgerencia Administrativa y en ausencia de esta última
-por el titular de la Subgerencia Técnica.
-b) Secretaría: La secretaría de la Comisión estará a cargo del titular de la UCI o en su
-ausencia del titular del Proceso de Adquisiciones.
-c) Quórum: Para que la comisión sesione válidamente deberá contarse con el titular de
-la Gerente General o alguno de los Subgerentes, quienes serán responsables
-personalmente de sus actuaciones. El quórum estará formado por la mayoría simple
-de sus integrantes.
+a) Presidencia: La Comisión estará presidida por el titular de la Gerencia General, en su ausencia por el titular de la Subgerencia Administrativa y en ausencia de esta última por el titular de la Subgerencia Técnica.
+b) Secretaría: La secretaría de la Comisión estará a cargo del titular de la UCI o en su ausencia del titular del Proceso de Adquisiciones.
+c) Quórum: Para que la comisión sesione válidamente deberá contarse con el titular de la Gerente General o alguno de los Subgerentes, quienes serán responsables personalmente de sus actuaciones. El quórum estará formado por la mayoría simple de sus integrantes.
 Para estos efectos se computará el miembro no permanente, según la materia.
 d) Acuerdos: Los acuerdos se tomarán por la mayoría simple de los presentes.
-e) Empate: En caso de empate, quien preside la Comisión tendrá voto de calidad. Este
-voto contará solo por dos.
-f) Asistencia: La asistencia a las Sesiones tanto ordinarias como extraordinarias de esta Comisión es obligatoria, por lo que toda ausencia debe ser debidamente justificada ante quien la preside con excepción de los miembros de la Gerencia.
+e) Empate: En caso de empate, quien preside la Comisión tendrá voto de calidad. Este voto contará solo por dos.
+f) Asistencia: La asistencia a las Sesiones tanto ordinarias como extraordinarias de esta Comisión, previstas en el artículo 28 de este reglamento, son obligatorias, por lo que toda ausencia debe ser debidamente justificada ante quien la preside con excepción de los miembros de la Gerencia.
 g) Funcionamiento en general: Para los demás aspectos no contemplados en este Reglamento, se regirá supletoriamente por lo dispuesto en la Ley General de la Administración Pública.
 h) Deber de inhibirse: Cuando alguno de los miembros de la Comisión de Licitaciones sea a su vez encargado de la dependencia solicitante que promueve el proceso de compra, deberá inhibirse de concurrir a los acuerdos relacionados con esa contratación. De igual forma si alguno de los miembros titulares ha firmado algún criterio emitido de dependencias a su cargo por ausencia de las jefaturas, éste deberá inhibirse, no tendrá voto y no se computará para constituir el quórum.

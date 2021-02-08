@@ -1,6 +1,6 @@
 Artículo 4º Abreviaturas.
 • CGR: Contraloría General de la República.
-• EPA: Encargado del Proceso de Adquisiciones en las Unidades Regionales y la Sede Central.
+• EPA: Encargado del Proceso de adquisiciones en las Unidades Regionales y la Sede Central.
 • GG: Gerencia General
 • GNSA: Gestión de Normalización y Servicios de Apoyo.
 • INA: Instituto Nacional de Aprendizaje.

@@ -4,7 +4,7 @@ b) Requerir las justificaciones en relación con las solicitudes de adquisicione
 c) Dictar la decisión inicial y aprobar los carteles de las contrataciones realizadas por medio de procedimientos ordinarios o materias excluidas según su rango de acción.
 d) Comunicar formalmente al PSAC de su ausencia para que este lo sustituya en la firma de los trámites de compra que se requieran.
 e) Resolver y comunicar las aclaraciones y modificaciones a los carteles de los procedimientos ordinarios o materias excluidas.
-f) Adjudicar las contrataciones realizadas por medio de procedimientos ordinarios o materias excluidas según su rango de acción de acuerdo con el artículo 17 inciso e) de este Reglamento
+f) Adjudicar las contrataciones realizadas por medio de procedimientos ordinarios o materias excluidas según su rango de acción de acuerdo con el artículo 17 inciso e) de este Reglamento.
 g) En caso de ausencia del EPA, el responsable de adjudicar las contrataciones realizadas por medio de procedimientos ordinarios o materias excluidas según su rango de acción de acuerdo con el artículo 17 de este Reglamento, será la persona encargada del Proceso de Seguimiento, Apoyo y Control o en ausencia de este el Director Regional.
 h) Resolver los cambios y prórrogas solicitados por los contratistas en cuanto a plazo y características en las contrataciones adjudicadas por su rango de acción.
 i) Resolver los recursos de revocatoria en las contrataciones adjudicadas por su rango de acción.
