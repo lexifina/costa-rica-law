@@ -21,3 +21,4 @@ Reglamento para la prestación de servicios profesionales externos para la elabo
 | 6 | 2020-03-02 | Reglamento 8 (2020-03-02) |
 | 7 | 2020-06-18 | Reglamento 19 (2020-06-18) |
 | 8 | 2020-11-16 | Reglamento 35 (2020-11-16) |
+| 9 | 2021-02-08 | Reglamento 5 (2021-02-08) |
