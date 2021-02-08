@@ -1,0 +1,4 @@
+Artículo 23. Sistema de Información Gerencial
+El Sistema de Información Gerencial de la entidad debe ser acorde con el tipo, complejidad, cantidad y volumen de sus exposiciones de riesgo, esto para los diferentes tipos de riesgos a los que se encuentra expuesta la entidad.
+Sin perjuicio de los contenidos de información y de las frecuencias de reporte que la entidad haya establecido en su Sistema de Información Gerencial, deberá incorporarse el reporte de forma mensual al Órgano de Dirección de los indicadores de apetito por riesgo, las desviaciones respecto de los niveles establecidos en la Declaración de Apetito por Riesgo, la suficiencia patrimonial y la composición del capital base, así como estimaciones registradas para hacer frente al deterioro por riesgo de crédito.
+(Así adicionado en sesión N° 1642 del 8 de febrero de 2021)

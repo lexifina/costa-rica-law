@@ -1,0 +1,3 @@
+Transitorio V. La entidad contará con un plazo de doce meses contados a partir de la fecha de publicación de estas modificaciones en el Diario Oficial La Gaceta, para la adecuación de sus procesos internos, tanto de administración integral de riesgos como de administración del riesgo de crédito, de conformidad con lo dispuesto en esta modificación.
+Dentro de los tres meses siguientes a la fecha de publicación de estas modificaciones en el Diario Oficial La Gaceta, la entidad deberá informar a la SUGEF sobre acciones específicas de revisión y adaptación de sus procesos, así como la indicación de personas responsables y fechas estimadas de implementación.
+(Así adicionado en sesión N° 1642 del 8 de febrero de 2021)

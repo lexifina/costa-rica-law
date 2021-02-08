@@ -1,0 +1,8 @@
+Artículo 34. Capacidad de riesgo de crédito
+La Unidad de Riesgos es responsable de determinar cuánto riesgo de crédito está en capacidad de asumir la entidad. Este proceso conlleva una valoración prospectiva que está vinculada, pero no limitada, a las pruebas de estrés.
+El análisis de estrés permitirá estimar la posible afectación a la calidad de las exposiciones a riesgo de crédito, y su impacto sobre la suficiencia patrimonial, las estimaciones crediticias y otros indicadores de desempeño que sean de relevancia para la entidad financiera.
+Como resultado de estos análisis la entidad deberá establecer un marco de actuación que dirija sus acciones frente a situaciones reales o potenciales que impacten negativamente su capacidad de riesgo.
+La entidad debe estar en la capacidad de sustentar que los planes estratégicos y los límites de riesgo de crédito se encuentran dentro de su capacidad de riesgo.
+La entidad contará con un plazo de doce meses contados a partir de la fecha de publicación de estas modificaciones en el Diario Oficial La Gaceta, para la adecuación de sus procesos internos, tanto de administración integral de riesgos como de administración del riesgo de crédito, de conformidad con lo dispuesto en esta modificación.
+Dentro de los tres meses siguientes a la fecha de publicación de estas modificaciones en el Diario Oficial La Gaceta, la entidad deberá informar a la SUGEF sobre acciones específicas de revisión y adaptación de sus procesos, así como la indicación de personas responsables y fechas estimadas de implementación.
+(Así adicionado en sesión N° 1642 del 8 de febrero de 2021)

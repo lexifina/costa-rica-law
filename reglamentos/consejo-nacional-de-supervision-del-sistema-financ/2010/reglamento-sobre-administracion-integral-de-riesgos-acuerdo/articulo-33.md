@@ -1,0 +1,8 @@
+CAPÍTULO III.
+APETITO POR RIESGO DE CRÉDITO
+(Así adicionado el capítulo anterior en sesión N° 1642 del 8 de febrero de 2021)
+Artículo 33. Concentración de riesgo de crédito
+La Declaración de Apetito por Riesgo deberá establecer políticas claras en cuanto a concentraciones de exposiciones sujetas a riesgo de crédito para deudores y contrapartes individuales, así como para el grupo de deudores y contrapartes vinculadas a la entidad. Se debe contar con sistemas de información adecuados que permitan la identificación de los grupos de interés económico a los que pertenecen los deudores y contrapartes, en este último caso en tanto dicha identificación sea posible, así como políticas diferenciadas cuando un grupo concentre un porcentaje significativo del negocio, el cual será definido por cada entidad.
+En la elaboración de la Declaración, la entidad debe considerar el impacto de factores de riesgo comunes asociados a un mismo sector, actividad económica, ubicación geográfica, dependencia en canales de negocio, entre otros factores de riesgo comunes. Se debe evaluar cuales son las fuentes de concentración de riesgo de crédito y planificar la asignación de capital frente a dichos riesgos tomando en cuenta tales concentraciones.
+La entidad debe identificar su dependencia de los productos crediticios más significativos en su modelo de negocio, asimismo, en tanto dicha identificación sea posible, debe incluir el impacto de las correlaciones del riesgo de crédito en el desarrollo de sus pruebas de estrés de tal manera que las carteras con mayores correlaciones sean más impactadas.
+(Así adicionado en sesión N° 1642 del 8 de febrero de 2021)

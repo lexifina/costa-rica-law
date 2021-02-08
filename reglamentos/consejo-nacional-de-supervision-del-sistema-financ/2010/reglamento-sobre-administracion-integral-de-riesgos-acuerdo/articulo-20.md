@@ -1,11 +1,7 @@
-Capítulo VII
-Informe Anual de Riesgos
-Artículo 20.—Informe Anual de Riesgos. La entidad, con corte al 31 de diciembre de cada año, debe preparar y divulgar en su sitio web u otro medio en ausencia del primero, un informe anual de riesgos, que contenga al menos la siguiente información:
-a) Enunciación de los riesgos objeto de gestión.
-b) Resumen de los principios y principales políticas sobre la gestión de riesgos.
-c) Acciones o avances en la implementación de mejoras en relación con la gestión de sus riesgos relevantes.
-d) Breve descripción de las metodologías dispuestas para la medición y evaluación de los riesgos relevantes de la entidad.
-e) Acciones de mitigación y control implementados.
-f) Logros obtenidos.
-El plazo máximo para divulgar el informe anual de riesgos es de tres meses posteriores al corte.
-(Así adicionado mediante sesión N° 1242-2016 del 5 de abril del 2016)
+CAPÍTULO VI:
+SISTEMAS DE INFORMACIÓN
+(Así adicionado el capítulo anterior en sesión N° 1642 del 8 de febrero de 2021)
+Artículo 20. Integridad de la información
+La entidad debe asegurar, mediante los mecanismos que ella misma defina, que la información utilizada en la gestión de riesgos sea oportuna y precisa, en el sentido que esté a disposición en el momento y con los contenidos que se requiera para satisfacer los fines de su uso, y que muestre con un grado de certeza razonable, atributos relevantes para la toma de decisiones sobre las exposiciones de riesgo de la entidad en el proceso de gestión de riesgos.
+Asimismo, la entidad debe establecer los mecanismos que estime necesarios para asegurar la integridad de la información ingresada en los sistemas, en el sentido de que no pueda ser modificada sin contar con los sustentos correspondientes. Todos los cambios de la información registrada deberán ser almacenados y sujetos a revisión posterior.
+(Así adicionado en sesión N° 1642 del 8 de febrero de 2021)
