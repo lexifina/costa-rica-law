@@ -1,4 +1,4 @@
-Artículo 77. De las funciones del Presidente del Tribunal de Elecciones. Funciones de la persona encargada de la Dirección Ejecutiva:
+Artículo 77.-De las funciones de la Dirección Ejecutiva.
 a) Ejecutar los acuerdos de la Junta Directiva que sean de su competencia.
 b) Coordinar, con las comisiones que corresponda, la administración de los recursos materiales, así como el acceso, uso y disfrute de las instalaciones del Colegio. Coordinará además con las sedes y organizaciones gremiales lo referente a los recursos asignados a ellas, según las instrucciones de la Junta Directiva.
 c) Supervisar la correcta ejecución de los contratos y contrataciones de bienes y servicios que realice el Colegio, bajo la figura y responsabilidad de Administrador o Administradora del Contrato.
@@ -13,4 +13,5 @@ k) Coordinar, junto con la Tesorería y el Departamento de Contabilidad, todos l
 l) Coordinar los procesos de planificación, organización, ejecución y control de las gestiones administrativas del Colegio.
 m) Llevar a cabo la evaluación administrativa y operativa del presupuesto.
 n) Gestionar el recurso humano administrativo de la institución.
-ñ) Las demás funciones que le asigne la Junta Directiva de vigilar compras institucionales.
+ñ) Las demás funciones que le asigne la Junta Directiva.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 42939 del 8 de febrero del 2021)

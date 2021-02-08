@@ -1,2 +1,3 @@
-Artículo 74. De la elección del Tribunal de ética. Las elecciones de integrantes de Junta Directiva se harán mediante el sufragio directo y secreto. La elección se efectuará de acuerdo con los procedimientos que prescriba el Reglamento de Elecciones Internas, debidamente aprobado por la Asamblea General.
-La votación podrá realizarse por medios o dispositivos electrónicos, o de manera presencial en los centros de votación que, para tal propósito, deban habilitarse, según lo disponga el Tribunal Electoral y su Reglamento.
+Artículo 74.-De las elecciones de la Junta Directiva. Las elecciones de integrantes de Junta Directiva se harán mediante el sufragio directo y secreto. La elección se efectuará de acuerdo con los procedimientos que prescriba el Reglamento de Elecciones Internas, debidamente aprobado por la Asamblea General.
+La votación podrá realizarse por medios o dispositivos electrónicos, o de manera presencial en los centros de votación que para tal propósito, deban habilitarse, según lo disponga el Tribunal Electoral y su Reglamento.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 42939 del 8 de febrero del 2021)

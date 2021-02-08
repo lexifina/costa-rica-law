@@ -14,3 +14,4 @@ Reglamento del Colegio de Profesionales en Psicología de Costa Rica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-07-31 | la propia norma |
+| 2 | 2021-02-08 | Decreto Ejecutivo 42939 (2021-02-08) |
