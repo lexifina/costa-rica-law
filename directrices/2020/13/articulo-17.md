@@ -1,0 +1,1 @@
+Artículo 17.—Derogatoria. La presente Directriz deroga la Directriz número DM-008-2006 de fecha 16 de agosto del 2006 denominado “Procedimiento para la Presentación y Atención de Denuncias ante este Ministerio”.

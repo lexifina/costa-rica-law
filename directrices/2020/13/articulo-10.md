@@ -1,0 +1,1 @@
+Artículo 10.—Direccionamiento de las denuncias. En el caso de que la denuncia asignada mediante la herramienta digital DENUNCIE YA, se realice en una oficina sin competencia para admitir, conocer y tramitar la misma, dicha dependencia deberá remitirla de manera inmediata al Contralor de Servicios del Ministerio y guardar total confidencialidad de los hechos denunciados.
