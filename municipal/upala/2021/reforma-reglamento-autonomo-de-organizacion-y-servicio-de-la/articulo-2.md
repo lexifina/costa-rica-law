@@ -1,0 +1,1 @@
+Artículo 2º—Adecúese con el orden alfabético continúo y correspondiente el artículo 75 del del Reglamento Autónomo de Organización y Servicios de la Municipalidad de Upala del 22 de noviembre de 2012.
