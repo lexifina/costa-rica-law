@@ -1,4 +1,6 @@
+(Suspendida)
 CIRCULAR Nº 2-2021
+(Mediante circular N° 25 del 8 de febrero del 2021, se acordó suspender los efectos de la presente norma, hasta tanto la Comisión de la Jurisdicción de Familia, Niñez y Adolescencia, valora las observaciones realizadas para su aplicación.)
 ASUNTO: Obligación de incluir a todas las personas beneficiarias de pensión alimentaria, como parte actora en los procesos judiciales de alimentos.
 TODOS LOS DESPACHOS JUDICIALES DEL PAÍS
 QUE CONOCEN MATERIA DE FAMILIA

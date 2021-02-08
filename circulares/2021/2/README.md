@@ -13,3 +13,4 @@ Obligación de incluir a todas las personas beneficiarias de pensión alimentari
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-01-07 | la propia norma |
+| 2 | 2021-02-08 | Circular 25 (2021-02-08) |
