@@ -1,0 +1,2 @@
+CONCEJO MUNICIPAL DE DISTRITO PAQUERA
+El Concejo Municipal de Distrito de Paquera, en la Sesión Ordinaria Nº 58-2021, (P-2020-2024) celebrada el 19 de enero del 2021. Artículo 9, Acuerdos, Inciso 1, Acuerda: adherirse al Reglamento de la Municipalidad de Puntarenas, el Reglamento del Concurso Público para la Selección y Nombramiento del Auditor Interno, se traslada el acuerdo a la Administración, para que se envíe a publicar en el Diario Oficial La Gaceta.
