@@ -1,0 +1,5 @@
+Artículo 17.- Obligaciones del Jerarca Superior Administrativo.
+El Jerarca Superior Administrativo, o quien el designe, en relación con el teletrabajo tendrá las obligaciones siguientes:
+a) Suscribir con la persona teletrabajadora el contrato de teletrabajo y su adenda, una vez que el formulario de solicitud de teletrabajo haya sido aprobado por la jefatura inmediata y superior de la persona teletrabajadora y se hayan realizado las verificaciones de tecnologías de información y comunicación, así como de salud ocupacional requeridas para acceder a la modalidad de teletrabajo.
+b) Aprobar el procedimiento y los instrumentos que se requieran para la óptima implementación de la modalidad de teletrabajo.
+c) Revocar el contrato o adenda de teletrabajo a la persona funcionaria que incumpla el presente reglamento y la normativa vigente que rige la materia, ello de conformidad con el informe motivado que emita la jefatura inmediata de dicha persona funcionaria y sin perjuicio de las demás responsabilidades administrativas que puedan derivarse de este incumplimiento, todo en apego a la observancia del debido proceso.

@@ -1,0 +1,3 @@
+Artículo 2. Alcance.
+El presente reglamento es de acatamiento obligatorio para todas las personas funcionarias de la Autoridad Reguladora de los Servicios Públicos y su órgano desconcentrado que voluntariamente soliciten la aprobación del teletrabajo como una modalidad de trabajo a distancia mediante el uso de medios y tecnología de la información y comunicación. El presente reglamento tiene su fundamento en el Código de Trabajo y sus reformas, Ley No.2, Ley para Regular el Teletrabajo, Ley No. 9738 y su reglamento que es el Decreto Ejecutivo No. 42083-MP-MTSSMIDEPLAN-MICITT.
+Para efectos de este reglamento, cuando se hace alusión al cargo, puesto o condición de una persona, debe entenderse que se hace sin distinción o discriminación de género.

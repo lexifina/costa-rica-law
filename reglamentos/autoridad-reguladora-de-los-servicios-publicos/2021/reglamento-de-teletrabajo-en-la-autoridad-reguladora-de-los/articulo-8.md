@@ -1,0 +1,2 @@
+Artículo 8.- Equipo con el cual se realizará el teletrabajo.
+El teletrabajo se realizará con la computadora personal asignada a cada persona funcionaria, quien deberá sujetarse a las disposiciones del presente Reglamento y a las disposiciones internas para su uso y custodia. La Institución garantizará el control y protección de datos públicos obtenidos en el procesamiento de información oficial en la prestación del servicio público.

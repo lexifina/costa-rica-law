@@ -1,0 +1,2 @@
+Transitorio I.-
+La Administración deberá emitir los procedimientos e instrumentos indicados en el artículo 18 de este reglamento, en un plazo máximo de 3 meses, contados a partir de la publicación de este reglamento, lo cual no es óbice para que las personas funcionarias que cumplen con los requisitos establecidos en el presente reglamento accedan a la modalidad de teletrabajo o se mantengan en ella en el caso de que cuenten con un acuerdo de teletrabajo vigente.
