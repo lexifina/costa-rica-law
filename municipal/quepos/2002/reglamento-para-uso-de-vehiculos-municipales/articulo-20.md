@@ -1,1 +1,0 @@
-Artículo 20.—Es prohibido a los usuarios, obligar al operador a continuar conduciendo cuando este se vea en la necesidad de detenerse debido a un posible desperfecto mecánico, cansancio o malas condiciones del tiempo.

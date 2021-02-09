@@ -1,1 +1,0 @@
-Artículo 2º—Se consideran vehículos municipales todos aquellos que haya adquirido o se le hayan donado y que se encuentren inscritos a su nombre en el Registro Público de la Propiedad de Vehículos del Registro Nacional.

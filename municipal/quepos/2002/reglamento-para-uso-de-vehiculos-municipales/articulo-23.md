@@ -1,1 +1,0 @@
-Artículo 23.—Las infracciones al presente reglamento se considerarán faltas al contrato laboral las cuales serán sancionadas de conformidad con lo dispuesto en el Reglamento Interno y el Código de Trabajo.
