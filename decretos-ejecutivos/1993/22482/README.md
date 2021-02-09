@@ -19,3 +19,4 @@ Reglamento de Uso Público para el Parque Nacional Manuel Antonio
 | 4 | 2015-04-13 | Decreto Ejecutivo 39048 (2015-04-13) |
 | 5 | 2016-02-11 | Decreto Ejecutivo 39505 (2016-02-11) |
 | 6 | 2020-07-16 | Decreto Ejecutivo 42496 (2020-07-16) |
+| 7 | 2021-02-09 | Resolución 9 (2021-02-09) |
