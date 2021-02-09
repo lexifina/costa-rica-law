@@ -1,0 +1,1 @@
+Artículo 22- Trámite por parte de los regulados. Salvo para el trámite de solicitud de arreglo de pago, antes de iniciar cualquier otro trámite ante la Sutel, el regulado deberá estar al día en el pago del canon. El área de la Sutel que corresponda verificará lo anterior con la unidad administrativa de finanzas.

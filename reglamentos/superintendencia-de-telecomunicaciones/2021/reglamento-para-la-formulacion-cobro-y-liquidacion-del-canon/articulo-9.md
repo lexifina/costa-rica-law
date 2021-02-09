@@ -1,0 +1,2 @@
+Artículo 9- Responsabilidad del agente recaudador. Efectuado el pago por parte del sujeto pasivo ante el agente recaudador, este último es el único responsable ante la Sutel por el importe cobrado y por depositar en las cuentas indicadas por la Sutel, en el plazo pactado, los montos recaudados por concepto de canon de regulación.
+El agente es responsable ante el sujeto pasivo por los cobros efectuados sin apego a las normas legales o reglamentarias que los autoricen; y en tal caso el sujeto pasivo puede requerir al agente las sumas retenidas indebidamente.

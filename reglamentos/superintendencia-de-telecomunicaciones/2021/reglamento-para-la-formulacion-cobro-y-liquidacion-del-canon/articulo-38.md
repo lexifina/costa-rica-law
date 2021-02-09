@@ -1,0 +1,1 @@
+Artículo 38- Procedimiento aplicable. Para los efectos de la aplicación de las sanciones establecidas por ley, se seguirá el procedimiento ordinario establecido en la Ley General de Administración Pública y el Título V de la Ley General de Telecomunicaciones.

@@ -1,0 +1,1 @@
+Artículo 42- Distribución del superávit. La distribución del superávit por operador y/o proveedor, se realizará de acuerdo con la metodología establecida por el Consejo de la Sutel y los criterios de aplicación del superávit establecidos por la Contraloría General de la República.

@@ -1,0 +1,1 @@
+Artículo 19- Forma de pago. La Sutel cobrará el canon de regulación en forma mensual, mediante la modalidad del agente recaudador, o en las oficinas de la Sutel, por depósito, transferencia bancaria, o cualquier medio permitido por el ordenamiento jurídico. El sujeto pasivo deberá pagar el monto del canon con anticipación a su vencimiento.

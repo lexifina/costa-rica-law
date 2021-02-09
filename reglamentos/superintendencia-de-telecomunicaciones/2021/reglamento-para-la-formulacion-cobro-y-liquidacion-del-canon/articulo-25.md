@@ -1,0 +1,1 @@
+Artículo 25- Continuidad de la gestión de cobro. La gestión de cobro no se suspende cuando medie arreglo de pago aprobado entre el sujeto activo y pasivo. La Sutel, deberá continuar con la gestión mediante la verificación del cumplimiento de todas las cuotas del arreglo según lo pactado.

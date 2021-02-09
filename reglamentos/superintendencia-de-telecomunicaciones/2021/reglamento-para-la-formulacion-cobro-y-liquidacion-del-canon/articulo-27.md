@@ -1,0 +1,1 @@
+Artículo 27- Cobro Judicial. Una vez finalizada la gestión de cobro señalada en el artículo 24 de este reglamento, sin que el sujeto pasivo deudor pague lo adeudado o cumpla el arreglo de pago, la Sutel estará obligada a presentar la gestión de cobro ante la sede judicial correspondiente.

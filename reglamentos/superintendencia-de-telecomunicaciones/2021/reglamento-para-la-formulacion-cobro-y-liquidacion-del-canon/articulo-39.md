@@ -1,0 +1,1 @@
+Artículo 39- Órgano competente. El Consejo de la Sutel será el competente para decretar la apertura del procedimiento administrativo ordinario y delegar la instrucción del procedimiento en la Dirección General de Mercados.

@@ -1,0 +1,1 @@
+Artículo 2- Ámbito de aplicación. Las disposiciones de este reglamento son aplicables a los operadores y proveedores de servicios de telecomunicaciones disponibles al público, obligados al pago del canon de regulación y las relaciones jurídicas derivadas de este.

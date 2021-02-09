@@ -1,0 +1,1 @@
+Artículo 43- Inclusión de todos los regulados. En caso de que el superávit calculado, haya sido originado por cobro del canon de regulación a operadores y proveedores que ya no brindan servicios de telecomunicaciones, debe devolvérseles las sumas que de acuerdo con la documentación disponible le resulten a favor.

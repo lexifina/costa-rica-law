@@ -1,0 +1,1 @@
+Artículo 8- Obligaciones del sujeto pasivo. Los sujetos pasivos están obligados al pago del canon de regulación, dentro del plazo establecido, a estar al día con el canon para realizar cualquier trámite ante la Sutel y al cumplimiento de los deberes formales y demás deberes establecidos en las leyes y reglamentos en materia de telecomunicaciones.

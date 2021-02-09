@@ -1,0 +1,2 @@
+Sección II: Procedimiento para arreglos de pago y deudas incobrables
+Artículo 28- Tramitación. Corresponderá a la unidad administrativa de Finanzas tramitar y realizar los cálculos para los arreglos de pago, además de enviar la información y el expediente completo al Consejo de la Sutel para su aprobación. La unidad Jurídica será la encargada de confeccionar el arreglo de pago correspondiente. La unidad administrativa de Gestión Documental deberá custodiar en el expediente dicho arreglo y todas las gestiones realizadas para su formalización.

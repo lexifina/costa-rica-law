@@ -1,0 +1,1 @@
+Artículo 40- Notificaciones. La notificación de los actos administrativos de este reglamento se realizará de conformidad con la Ley General de la Administración Pública y, supletoriamente, con la Ley de Notificaciones Judiciales.
