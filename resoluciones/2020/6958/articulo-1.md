@@ -81,16 +81,17 @@ TERCERO: Se resuelve ordenar a partir del 09 de setiembre de 2020, la apertura c
 15. Instituciones públicas en general y municipios.
 16. Todos aquellos otros establecimientos con permiso sanitario de funcionamiento que no brinden atención al público presencial.
 CUARTO: Por la naturaleza de la actividad que desarrollan, la siguiente lista de establecimientos con permiso sanitario de funcionamiento que atienden al público, tendrán aforo diferenciado por burbujas sociales y distanciamiento físico de 1.8 metros en un horario de lunes a domingo desde las 5:00 horas y hasta las 22:00 horas, salvo para aquellos cantones en donde su Índice de Riesgo Cantonal (IRC) no permita desarrollar estas actividades, de conformidad con los anexos a la presente resolución:
-(Así reformado la disposición cuarta anterior mediante resolución N° MS-DM-1315-2021 del 26 de enero del 2021)
+(Así reformado la disposición cuarta anterior mediante resolución N° MS-DM-1497-2021 del 9 de febrero del 2021)
 1. Modalidad de autoservicio al público, entiéndase la misma como el retiro de productos permaneciendo dentro del vehículo.
 2. Modalidad de retiro de comida en establecimiento para llevar.
 3. Cines y teatros con utilización obligatoria de mascarilla, y adicional la careta de forma opcional, con medidas de separación de asientos de mínimo 1.8 metros, respetando las burbujas sociales y con boletería o reserva electrónica.
 4. Auto eventos.
 5. Actividades, organizaciones o congregaciones en sitios de adoración, con utilización obligatoria de mascarilla, con una capacidad de ocupación máxima de hasta 300 personas en los lugares que su espacio físico lo permita, con medidas de distanciamiento de 1.8 metros respetando las burbujas sociales.
 (Así reformado la disposición quinta anterior mediante resolución N° MS-DM-8741-2020 del 29 de octubre del 2020)
-6. Salas de eventos para actividades empresariales o académicas de máximo 150 personas (con medidas de separación de asientos de mínimo 1.8 metros, respetando las burbujas sociales y con listas de asistentes con número de cédula y número de contacto). En las 150 personas no se incluye el personal de logística del evento.
-(Así reformado la disposición sexta anterior mediante resolución N° MS-DM-8741-2020 del 29 de octubre del 2020)
-7. Salas de eventos para actividades de máximo 30 personas (con medidas de separación de asientos de mínimo 1.8 metros, respetando las burbujas sociales y con listas de asistentes con número de cédula y número de contacto). En las 30 personas no se incluye el personal de logística del evento.
+6. Salas de eventos para actividades empresariales o académicas de máximo 300 personas (con medidas de separación de asientos de mínimo 1.8 metros, respetando las burbujas sociales y con listas de asistentes con número de cédula y número de contacto). En las 300 personas no se incluye el personal de logística del evento.
+(Así reformado punto anterior mediante resolución N° MS-DM-1497-2020 del 9 de febrero del 2021)
+7. Salas de eventos para actividades de máximo 75 personas (con medidas de separación de asientos de mínimo 1.8 metros, respetando las burbujas sociales y con listas de asistentes con número de cédula y número de contacto). En las 75 personas no se incluye el personal de logística del evento.
+(Así reformado punto anterior mediante resolución N° MS-DM-1497-2020 del 9 de febrero del 2021)
 8. Turismo aventura, con utilización obligatoria de mascarilla y adicional la careta de forma opcional, mientras se coloca y se retira el equipo de seguridad para realizar la actividad, y respetando las burbujas sociales.
 9. Playas y lagos, con previa aprobación de protocolos por el ICT con cada municipio.
 (Nota de Sinalevi: Mediante resolución N° MS-DM-1314-2021 del 26 de enero del 2021 se reforma de forma temporal la franja horaria de la resolución MS-DM-69582020 y sus reformas, para que el horario de acceso a las playas a partir del 01 de febrero y hasta el 28 de febrero inclusive, sea desde las 5:00 horas y hasta las 18:00 horas)

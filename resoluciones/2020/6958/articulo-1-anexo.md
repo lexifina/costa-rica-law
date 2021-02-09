@@ -61,9 +61,10 @@ D. Podrán operar de lunes a domingo de las 5:00 horas a las 22:00 horas, con af
 4. Auto evento.
 5. Actividades, organizaciones o congregaciones en sitios de adoración, con utilización obligatoria de mascarilla, con una capacidad de ocupación máxima de hasta 300 personas en los lugares que su espacio físico lo permita, con medidas de distanciamiento de 1.8 metros respetando las burbujas sociales.
 (Así reformado el inciso anterior mediante resolución N° MS-DM-8741-2020 del 29 de octubre del 2020)
-6. Salas de eventos para actividades empresariales o académicas de máximo 150 personas (con medidas de separación de asientos de mínimo 1.8 metros, respetando las burbujas sociales y con listas de asistentes con número de cédula y número de contacto). En las 150 personas no se incluye el personal de logística del evento.
-(Así reformado el inciso anterior mediante resolución N° MS-DM-8741-2020 del 29 de octubre del 2020)
-7. Salas de eventos para actividades de máximo 30 personas (con medidas de separación de asientos de mínimo 1.8 metros, respetando las burbujas sociales y con listas de asistentes con número de cédula y número de contacto). En las 30 personas no se incluye el personal de logística del evento.
+6. Salas de eventos para actividades empresariales o académicas de máximo 300 personas (con medidas de separación de asientos de mínimo 1.8 metros, respetando las burbujas sociales y con listas de asistentes con número de cédula y número de contacto). En las 300 personas no se incluye el personal de logística del evento.
+(Así reformado el punto anterior mediante resolución N°MS-DM-1497 del 9 de febrero del 2021)
+7. Salas de eventos para actividades de máximo 75 personas (con medidas de separación de asientos de mínimo 1.8 metros, respetando las burbujas sociales y con listas de asistentes con número de cédula y número de contacto). En las 75 personas no se incluye el personal de logística del evento.
+(Así reformado el punto anterior mediante resolución N°MS-DM-1497 del 9 de febrero del 2021)
 8. Turismo aventura, con utilización obligatoria de mascarilla y adicional la careta de forma opcional, mientras se coloca y se retira el equipo de seguridad para realizar la actividad, y respetando las burbujas sociales.
 9. Playas y lagos, con previa aprobación de protocolos por el ICT con cada municipio.
 (Así reformado el inciso anterior por resolución N° MS-DM-8527-2020 del 14 de octubre del 2020)
