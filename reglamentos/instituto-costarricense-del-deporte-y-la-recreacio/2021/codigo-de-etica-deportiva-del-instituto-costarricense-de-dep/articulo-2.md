@@ -1,0 +1,1 @@
+Artículo 2°- El atleta debe ser consciente de sus deberes sociales y profesionales hacia el deporte, la comunidad y brindar su colaboración a toda política cuya finalidad sea asegurar el mejor grado de deportivismo y Juego Limpio. Debe de guardar una conducta acorde con el honor, la dignidad y las disposiciones de este Código.
