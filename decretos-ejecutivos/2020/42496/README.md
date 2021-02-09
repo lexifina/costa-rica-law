@@ -14,3 +14,4 @@ Reforma Reglamento de Uso Público para el Parque Nacional Manuel Antonio
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-09-04 | la propia norma |
+| 2 | 2021-02-09 | Resolución 9 (2021-02-09) |
