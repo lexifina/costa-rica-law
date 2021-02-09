@@ -1,0 +1,1 @@
+Artículo 10º—Los atletas becados, cuando corresponda, podrán tramitar la renovación de la beca otorgada mediante una solicitud a la Comisión Permanente de Selecciones Nacionales, mediante el formulario CODIGO BEC 01, CODIGO BEC 02, CODIGO BEC 03, CODIGO BEC 04, CODIGO BEC 05 plazo y procedimiento determinado por la Comisión Permanente de Selecciones Nacionales para tal efecto.
