@@ -1,6 +1,6 @@
 COLEGIO DE MICROBIÓLOGOS Y QUÍMICOS
 CLÍNICOS DE COSTA RICA
-En sesión de junta directiva 19:2019-2020 del pasado 16 de julio 2019, acuerdo 41, se acordó aprobar la Lista Oficial de Precios mínimos de pruebas de laboratorio 2019. Interesados pueden consultar las tarifas en la página del Colegio de Microbiólogos www.microbiologos.cr pestaña consultas, tarifario y aranceles.—Dr.Marlon Matamoros Araya, Presidente.—
+En sesión de junta directiva 19:2019-2020 del pasado 16 de julio 2019, acuerdo 41, se acordó aprobar la Lista Oficial de Precios mínimos de pruebas de laboratorio 2019. Interesados pueden consultar las tarifas en la página del Colegio de Microbiólogos www.microbiologos.cr pestaña consultas, tarifario y aranceles.-Dr.Marlon Matamoros Araya, Presidente.-
 (Nota de Sinalevi: La presente lista se extrajo del sitio web del Colegio de Microbiólogos y Clínicos de Costa Rica y se transcribe a continuación: )
 COLEGIO DE MICROBIÓLOGOS Y QUÍMICOS CLÍNICOS DE COSTA RICA
 LISTA OFICIAL DE PRECIOS MÍNIMOS DE PRUEBAS DE LABORATORIO 2019
@@ -352,6 +352,7 @@ Antiestreptolisina O (ASO) latex | 12380 | ₡ 14,500
 Antiestreptolisina O cuantificado | 12390 | ₡ 19,500
 Antigeno de Superficie hepatitis B (HBsAg) | 12400 | ₡ 20,000
 Antígeno Temprano Epstein Barr IgG, IgM, c/u | 12410 | ₡ 23,000
+Prueba de antígeno de COVID (Así adicionado el párrafo anterior mediante sesión N° 39 del 9 de febrero del 2021 | | $ 50. (Así adicionado el monto anterior mediante sesión N° 39 del 9 de febrero del 2021)
 Anti-NMO (IgG) neuromielitis optica | 12420 | Lab Internacional
 BNP | 12430 | ₡ 39,000
 Brucelosis (Rosa de Bengala) | 12440 | Lab Internacional

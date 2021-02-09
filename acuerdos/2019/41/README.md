@@ -15,3 +15,4 @@ Lista oficial de precios mínimos de pruebas de laboratorio 2019
 | --- | --- | --- |
 | 1 | 2019-08-09 | la propia norma |
 | 2 | 2020-10-13 | Acuerdo 17 (2020-10-13) |
+| 3 | 2021-02-09 | Acuerdo 39 (2021-02-09) |
