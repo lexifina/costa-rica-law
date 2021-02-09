@@ -1,0 +1,2 @@
+Artículo 23.- Levante mediante Garantía.
+En caso de que, al momento de la importación, el importador no cuente con los documentos probatorios requeridos para gozar de la preferencia arancelaria, el SNA podrá autorizar el levante de las mercancías, previa rendición de garantía por el monto del eventual beneficio correspondiente a la preferencia arancelaria, conforme a lo dispuesto en la Ley General de Aduanas.

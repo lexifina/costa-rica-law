@@ -1,0 +1,9 @@
+Artículo 20.- Emisión del Documento que demuestra el Control Aduanero.
+A solicitud de una persona física o jurídica, o de un agente de aduanas que vaya a realizar una reexportación, la Aduana de Control en Costa Rica deberá emitir dentro del plazo máximo de tres días hábiles a partir de su solicitud, un documento que demuestre que las mercancías estuvieron bajo control aduanero en el territorio nacional y no fueron sometidas a procesos de transformación.
+El interesado deberá presentar ante la Aduana de Control junto con la solicitud en mención, una copia de los documentos que ampararon el ingreso y la salida de las mercancías de la zona franca, depositario aduanero o de cualquier otro lugar debidamente autorizado, a saber:
+a) Documento Único Aduanero (DUA).
+b) Factura comercial.
+c) Documentos de transporte.
+Los errores en la información o documentación aportada, así como la omisión de cualquiera de los requisitos mencionados, deberá ser subsanado por el solicitante, previo requerimiento por parte de la Aduana de Control, en un plazo no mayor de diez días hábiles contados a partir de la respectiva notificación, lo cual le suspende a la Aduana de Control el plazo de trámite de la solicitud. Transcurrido este plazo sin que haya sido atendida la prevención anterior o bien, fuere atendida de forma defectuosa, la Aduana de Control rechazará la solicitud.
+El documento que demuestra el control aduanero, es equivalente a la emisión de un certificado de reexportación, certificado de procedencia o cualquier otro definido en los tratados y acuerdos comerciales internacionales o que establezca la DGA.
+En caso de que un tratado o acuerdo comercial internacional incorpore disposiciones específicas relacionadas con la emisión de un documento que demuestra el control aduanero, estas prevalecerán sobre lo dispuesto en el presente artículo.

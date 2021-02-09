@@ -1,0 +1,3 @@
+Artículo 9.- Aclaración de la expresión “cualquier otro documento comercial”.
+En caso de que un tratado o acuerdo comercial internacional permita que la “declaración de origen” o la “declaración en factura” se extienda sobre “cualquier otro documento comercial”, esta expresión comprende la lista de empaque o “packing list”, la orden de compra o el conocimiento de embarque que acompaña a la importación de las mercancías, siempre que describa las mercancías en cuestión con detalle suficientemente claro y adecuado para que puedan ser debidamente identificadas.
+Lo anterior, sin perjuicio de que un tratado o acuerdo comercial internacional específicamente establezca que esta expresión pueda comprender otros documentos comerciales.

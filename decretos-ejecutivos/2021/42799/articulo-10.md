@@ -1,0 +1,3 @@
+Artículo 10.- Endoso o Cesión de Derechos.
+Cuando la titularidad de la mercancía haya sido transferida mediante endoso o cesión de derechos del conocimiento de embarque, guía aérea o carta de porte, el SNA aplicará el trato arancelario preferencial al titular de dicho embarque, aunque el certificado de origen contemple el nombre de otro importador que no sea el titular actual.
+El único documento endosable es el conocimiento de embarque, por lo tanto, legalmente no es procedente exigir al nuevo titular del conocimiento de embarque, guía aérea o carta de porte, contar con un endoso o cesión de derechos de los demás documentos que acompañan a la declaración aduanera de importación, incluido entre estos el certificado de origen.

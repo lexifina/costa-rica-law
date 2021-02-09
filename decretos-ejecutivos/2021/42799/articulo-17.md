@@ -1,0 +1,2 @@
+Artículo 17.- Uso de los términos “tránsito” y “transbordo”.
+Las disposiciones respecto de los términos “tránsito” y “transbordo”, serán aplicables a todas aquellas normas de los tratados y acuerdos comerciales internacionales que se refieren a: “Expedición Directa”, “Transporte Directo”, “Transbordo”, “Transbordo y Expedición Directa o Tránsito Internacional”, “Envío Directo”, “Transbordo y Expedición Directa” o “Tránsito a través de no Partes”, entre otros similares o equivalentes.

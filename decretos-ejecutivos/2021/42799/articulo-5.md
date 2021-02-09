@@ -1,0 +1,2 @@
+Artículo 5.- Posibilidad de presentación de copia del Certificado de Origen.
+Cuando en el ejercicio del control previo o inmediato, el SNA solicite al importador proporcionar el certificado de origen, el importador podrá aportar una copia de dicho certificado siempre que el tratado o acuerdo comercial internacional así lo permita. Lo anterior no impide que en el ejercicio de las facultades de verificación a posteriori, el SNA pueda requerir la presentación del certificado original que se debe conservar.

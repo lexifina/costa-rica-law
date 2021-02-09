@@ -1,0 +1,3 @@
+Artículo 13.- Diferencias en la Clasificación Arancelaria por enmiendas al Sistema Armonizado.
+En los casos en que por la enmienda al Sistema Armonizado vigente en el país Parte exportador, la clasificación arancelaria que se señale en el certificado de origen difiera de la clasificación arancelaria contenida en el DUA, se considerará como válido dicho certificado de origen hasta que el país Parte exportador realice la actualización del Sistema Armonizado que corresponda.
+Lo anterior, siempre que la descripción de la mercancía señalada en el certificado de origen y en el DUA, permita la identificación plena de las mercancías presentadas a despacho.
