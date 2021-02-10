@@ -1,0 +1,3 @@
+Artículo 3º—La Junta Directiva, nombrará un Director o Directora, quien presidirá y coordinará el Comité Corporativo de Imagen Institucional.
+El Director que presida el Comité Corporativo de Imagen Institucional, designará a su vez, de entre los otros directores o funcionarios que lo conforman, un secretario (a) que se encargará de llevar las minutas, control de acuerdos que se tomen a lo interno del mismo, así como de la redacción y firma de acuerdos y oficios.
+La firma de los documentos podrá llevarse a cabo de forma independiente, ya sea por parte del Presidente (a) o, el (la) secretario (a) del comité.

@@ -1,0 +1,1 @@
+Artículo 20.—El Comité Corporativo de Imagen Institucional, a solicitud de la Junta Directiva de la Junta de Protección Social, realizará los informes y criterios que se le requieran, para lo cual el órgano colegiado deberá otorgar un plazo proporcional y razonable de acuerdo con la complejidad del requerimiento que realice.

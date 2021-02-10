@@ -1,0 +1,1 @@
+Artículo 10.—El quórum para que el Comité Corporativo de Imagen Institucional sesione quedará válidamente constituido por la presencia de tres de sus miembros, dentro de los cuales, necesariamente deberán estar presentes, al menos dos de los miembros de Junta Directiva, que lo conforman.

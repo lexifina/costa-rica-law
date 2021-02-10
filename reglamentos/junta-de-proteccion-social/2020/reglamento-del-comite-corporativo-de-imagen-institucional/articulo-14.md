@@ -1,0 +1,2 @@
+Artículo 14.—Los puntos principales de las deliberaciones, la forma y resultado de las votaciones y los acuerdos que se tomen en las reuniones, constarán en minutas que deberán ser firmadas por el secretario (a) del Comité Corporativo de Imagen Institucional, y de ser necesario por los miembros que hubieren hecho constar su voto disidente.
+Las minutas serán firmadas mediante la utilización del certificado de firma digital. El informe de la participación de los miembros de Junta Directiva, será firmado por el presidente (a).

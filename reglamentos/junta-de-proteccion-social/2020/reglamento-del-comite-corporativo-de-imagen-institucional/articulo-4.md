@@ -1,0 +1,1 @@
+Artículo 4º—El Comité Corporativo de Imagen Institucional podrá asesorarse con las personas que estime pertinente, ya sean personas externas o colaboradores internos de la Junta de Protección Social, siendo que, en este último caso, la colaboración o asesoría requerida será obligatoria.

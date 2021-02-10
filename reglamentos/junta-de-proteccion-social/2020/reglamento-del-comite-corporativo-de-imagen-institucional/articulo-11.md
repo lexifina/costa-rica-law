@@ -1,0 +1,1 @@
+Artículo 11.—Los acuerdos se tomarán por mayoría simple y serán firmes en el acto. El presidente (a) del Comité Corporativo de Imagen Institucional convocará y presidirá las sesiones, además, en caso de empate, podrá ejercer el voto de calidad.

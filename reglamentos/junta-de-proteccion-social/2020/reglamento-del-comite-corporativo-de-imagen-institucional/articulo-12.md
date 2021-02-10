@@ -1,0 +1,2 @@
+Artículo 12.—El Comité Corporativo de Imagen Institucional designará un (a) secretario (a) que será el (la) encargado (a), junto con el Presidente (a), de preparar la agenda de las reuniones.
+La persona asignada como secretario (a) llevará las actas y/o minutas, realizará las convocatorias a solicitud del presidente (a) y será el (la) encargado (a) de manejar la documentación del Comité, así como llevar a cabo cualquier otra función que le señalen los reglamentos. Así mismo, realizará las coordinaciones con el personal interno y con sus contrapartes externas.

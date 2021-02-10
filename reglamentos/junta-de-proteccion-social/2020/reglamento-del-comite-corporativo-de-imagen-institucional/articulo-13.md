@@ -1,0 +1,1 @@
+Artículo 13.—El Comité Corporativo de Imagen Institucional se reunirá de forma ordinaria al menos una vez al mes, y en forma extraordinaria podrá hacerlo con la frecuencia que sea necesario, por razones de oportunidad ya sea, a solicitud del presidente (a) del Comité o, de la Junta Directiva de la Institución.

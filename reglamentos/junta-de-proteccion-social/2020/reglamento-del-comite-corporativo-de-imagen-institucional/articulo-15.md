@@ -1,0 +1,2 @@
+Artículo 15.—Las sesiones ordinarias estarán precedidas por la formalidad de su convocatoria por parte del secretario (a) del Comité Corporativo de Imagen Institucional.
+En caso de ausencia, el presidente (a) podrá delegar en alguno de los otros dos miembros de la Junta Directiva, la coordinación de las convocatorias a sesión. Entre los dos miembros de Junta Directiva presentes, se decidirá cuál de ellos presidirá la reunión.
