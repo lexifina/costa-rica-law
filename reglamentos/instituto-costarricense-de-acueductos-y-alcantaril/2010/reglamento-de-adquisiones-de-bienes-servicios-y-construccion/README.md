@@ -19,3 +19,4 @@ Reglamento de Adquisiones de Bienes, Servicios y Construcción de Obras del Inst
 | 4 | 2018-02-21 | Reglamento 10 (2018-02-21) |
 | 5 | 2019-02-28 | Reglamento 11 (2019-02-28) |
 | 6 | 2021-01-12 | Reglamento 2 (2021-01-12) |
+| 7 | 2021-02-10 | Reglamento 0 (2021-02-10) |

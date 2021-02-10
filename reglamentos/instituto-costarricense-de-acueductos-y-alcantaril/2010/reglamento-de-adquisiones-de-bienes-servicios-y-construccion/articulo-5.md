@@ -1,2 +1,2 @@
-Artículo 5º—Las adquisiciones por medio del fondo de caja chica procederán hasta por un monto de cuatrocientos cincuenta mil colones.
-(Así reformado mediante sesión ordinaria N° 2021- 02 del 12 de enero del 2021)
+Artículo 5º—Las adquisiciones por medio del fondo de caja chica procederán hasta por el 5% del límite superior para compras por escasa cuantía que no incluyen obra pública, dispuesto por la Contraloría General de la República, en los ajustes de cada año, redondeado al mil inmediato anterior terminado en cero o cinco.
+(Así reformado mediante acuerdo N° 2021- 038 y publicado en La Gaceta N° 28 del 10 de febrero del 2021)
