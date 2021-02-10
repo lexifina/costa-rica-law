@@ -1,0 +1,3 @@
+Artículo 6º—La CTI, para el cumplimiento de sus objetivos, deberá:
+a) Promover la respectiva divulgación a los organismos del sector público y los del sector privado involucrados, en los términos y con los alcances que correspondan en cada caso, de acuerdo con sus competencias y la naturaleza de los datos involucrados, para que diseñen sus planes operativos y estrategias de acción tomando como base la Evaluación Nacional de Riesgos.
+b) Proponer al Poder Ejecutivo una Estrategia Nacional como plan de acción a seguir, para la prevención y el combate al lavado de activos y la financiación del terrorismo y de la proliferación de armas de destrucción masiva.

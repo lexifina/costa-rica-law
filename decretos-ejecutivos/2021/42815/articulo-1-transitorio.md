@@ -1,0 +1,2 @@
+Transitorio único.—El Instituto Costarricense sobre Drogas, con apego al artículo 101 de la Ley Nº 8204, habilitará en su sitio web el acceso a la versión pública de la Evaluación Nacional de Riesgos en esta materia, para su debido conocimiento, dentro del plazo de tres meses posteriores a la publicación del presente Decreto Ejecutivo.
+Dado en la Presidencia de la República.—San José, a los catorce días del mes de enero del dos mil veintiuno.

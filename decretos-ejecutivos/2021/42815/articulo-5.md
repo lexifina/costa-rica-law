@@ -1,0 +1,1 @@
+Artículo 5º—La presente Evaluación Nacional de Riesgos, será sometida a revisión periódica, por parte de la CTI, con el objeto de dar seguimiento al cumplimiento de acciones y efectuar las actualizaciones que correspondan de conformidad con las disposiciones vinculantes que establezcan los Estándares Internacionales del GAFI.
