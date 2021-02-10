@@ -1,0 +1,4 @@
+Artículo 9°—De las sesiones del Comité. El CCR sesionará de manera ordinaria y de manera extraordinaria.
+Las sesiones ordinarias, se llevarán a cabo al menos una vez por mes, conforme la convocatoria que realice su presidente y en las que se atenderán asuntos programados y su seguimiento. En sesiones extraordinarias que podrán ser convocadas por su presidente, en cualquier momento, conforme las necesidades que se presenten para la atención de asuntos de carácter extraordinario y alta importancia.
+Cada sesión se llevará a cabo siguiendo el orden del día y se levantará un acta de la misma, la cual estará a cargo del secretario del Comité.
+Las sesiones podrán realizarse en forma presencial o virtual, dependiendo de la solicitud que realice el presidente del comité o por al menos tres de los miembros del Comité. El Comité podrá aplicar, en lo que sea procedente, el mecanismo de consulta formal y el mecanismo de reuniones virtuales utilizado por la junta directiva.

@@ -1,0 +1,1 @@
+Artículo 4°—De los asuntos competencia del Comité. El CCR tendrá competencia para conocer asuntos de carácter exclusivamente estratégicos, tácticos, operativos y/o técnicos de riesgos, necesarios para garantizar el cumplimiento del fin público institucional.
