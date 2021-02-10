@@ -1,0 +1,1 @@
+Artículo 9º—De los asuntos competencia del Comité. El CCPEI tendrá competencia para conocer asuntos de carácter exclusivamente estratégicos, tácticos, operativos y/o técnicos de la planificación institucional, necesarios para garantizar el cumplimiento del fin público institucional.

@@ -1,0 +1,1 @@
+Artículo 22.—De las remuneraciones. Toda remuneración que se realice a los directores de Junta Directiva, miembros del CCPEI, según corresponda, se hará con fundamento a lo establecido en el artículo 25bis del Reglamento de organización y funcionamiento de la junta directiva de la Junta de Protección Social.
