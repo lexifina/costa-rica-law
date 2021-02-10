@@ -1,0 +1,4 @@
+SECCIÓN SEPTIMA - De las denuncias
+Artículo 52.-De las denuncias. - La Auditoría Interna dará trámite únicamente a aquellas denuncias que versen sobre posibles hechos irregulares o ilegales en relación con el uso y manejo de fondos públicos o que afecten la Hacienda Pública y lo regulado por la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública.
+Previo al trámite de una denuncia en la Auditoría Interna, el Asesor Legal de la Auditoría Interna procederá a su valoración jurídica, donde determinará el abordaje y la atención de los hechos presuntamente irregulares de los que se tengan conocimiento.
+Las denuncias de tipo penal serán estructuradas por el Asesor Legal de la Auditoría Interna, quien aporta la parte técnicojurídica de conformidad con las directrices emitidas por el Ente Contralor y deberán contar con la revisión y firma del Auditor Interno para su presentación formal ante la instancia correspondiente.

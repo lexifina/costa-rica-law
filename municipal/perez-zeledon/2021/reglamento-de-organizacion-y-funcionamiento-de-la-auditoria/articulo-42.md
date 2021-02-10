@@ -1,0 +1,3 @@
+Artículo 42.-Control del Plan de Trabajo Anual. El Auditor Interno y los funcionarios de la Auditoría Interna, según proceda, deben ejercer un control continuo de la ejecución del plan de trabajo anual, en procura de la debida medición de resultados, la detección oportuna de eventuales desviaciones y la adopción de las medidas correctivas pertinentes.
+En este sentido se designará un funcionario para coordinar la formulación del plan, que debe responder al marco orientador debidamente aprobado por el Auditor Interno.
+El Plan será monitoreado cada seis meses y de ser necesario el Auditor Interno solicitará las justificaciones del caso al personal respectivo sobre el incumplimiento del mismo y dispondrá las acciones disciplinarias que correspondan.

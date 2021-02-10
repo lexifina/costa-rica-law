@@ -1,0 +1,5 @@
+SECCIÓN TERCERA - De la Ubicación y Estructura Organizativa
+Artículo 14.-Dependencia y ubicación orgánica. La Auditoría Interna es un componente de la Municipalidad de Pérez Zeledón, con dependencia orgánica del Concejo Municipal, su ubicación en la estructura organizativa corresponderá a la del órgano de mayor rango dependiente del máximo Jerarca.
+El Auditor y el Subauditor internos dependerán del Concejo Municipal, quien los nombrará y les establecerá las regulacionesde tipo administrativo.
+Los demás funcionarios de la Auditoría Interna estarán sujetos a las disposiciones administrativas aplicables al resto del personal; sin embargo, el nombramiento, traslado, la suspensión, remoción, concesión de licencias y demás movimientos de personal, deberán contar con la autorización del Auditor Interno; todo de acuerdo con el marco jurídico que rige para el ente u órgano.
+Las regulaciones de tipo administrativo mencionadas no deberán afectar negativamente la actividad de auditoría interna, la independencia funcional y de criterio del Auditor y el Subauditor interno y su personal; en caso de duda, la Contraloría General dispondrá lo correspondiente.

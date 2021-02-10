@@ -1,0 +1,1 @@
+Artículo 6.-Ámbito de acción. La acción de la Auditoria Interna se circunscribe a la Municipalidad de Pérez Zeledón, así como a los entes y órganos públicos y privados que sean custodios o administradores de fondos públicos, sujetos a la competencia institucional.

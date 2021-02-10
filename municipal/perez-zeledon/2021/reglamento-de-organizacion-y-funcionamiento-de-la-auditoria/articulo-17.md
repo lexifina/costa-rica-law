@@ -1,0 +1,3 @@
+SECCIÓN CUARTA - Del Auditor y Subauditor Internos
+Artículo 17.- Responsabilidades del Auditor y Subauditor internos. El cargo del Auditor Interno corresponde al máximo nivel de fiscalización superior, de responsabilidad y autoridad de la Auditoría, seguido por el cargo del Sub Auditor interno, quien sustituirá al Auditor interno en sus ausencias temporales y será un colaborador de éste en el ejercicio de sus funciones, particularmente de vigilancia sobre la ejecución de los servicios o las obras de gobierno y de los presupuestos, así como las que les asigne el Concejo Municipal.
+El Auditor asignará las funciones al Subauditor de conformidad con lo previsto en la normativa y los lineamientos que emita la Contraloría General de la República.

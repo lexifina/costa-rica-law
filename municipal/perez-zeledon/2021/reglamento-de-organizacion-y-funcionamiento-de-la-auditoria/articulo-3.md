@@ -1,0 +1,1 @@
+Artículo 3.-Del presente Reglamento. Para la aprobación y modificación del presente Reglamento se estará a lo dispuesto en los Lineamientos Sobre Gestiones que Involucran a la Auditoría Interna presentadas ante la Contraloría General de la Republica No. R-DC-83-2018.

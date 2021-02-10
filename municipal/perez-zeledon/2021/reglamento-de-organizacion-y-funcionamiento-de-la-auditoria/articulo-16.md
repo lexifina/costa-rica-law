@@ -1,0 +1,1 @@
+Artículo 16.-Estructura de la Auditoría Interna. La ubicación de la Auditoría Interna para el cumplimiento de sus competencias estará estructurada según lo que establece el Manual Básico de la Organización de la Municipalidad de Pérez Zeledón para la Auditoria Interna.

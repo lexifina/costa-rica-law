@@ -1,0 +1,3 @@
+SECCIÓN CUARTA - Del Informe de Auditoría
+Artículo 44.-Del Informe de Auditoría. El informe de auditoría es el documento escrito mediante el cual la Auditoría Interna comunica formalmente al auditado sujeto a examen, los resultados de la auditoria efectuada, incluyendo las respectivas conclusiones y disposiciones o recomendaciones, generando un valor agregado a la Municipalidad, por lo que deberá ser preciso, objetivo, conciso, claro, constructivo completo y oportuno. El informe de Auditoría debe incorporar en su cuerpo o en un anexo el análisis realizado de las observaciones recibidas de la administración.
+El formato del informe podrá variar según el tipo de auditoría de la que se trate.

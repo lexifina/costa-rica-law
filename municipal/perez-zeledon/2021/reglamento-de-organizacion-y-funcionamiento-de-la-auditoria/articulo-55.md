@@ -1,0 +1,5 @@
+Artículo 55.-Requisitos esenciales que deben reunir las denuncias que se presenten ante la Auditoría Interna.
+a. Los hechos denunciados deberán ser expuestos por escrito en forma clara, precisa y circunstanciada, brindando el detalle suficiente que permita realizar la investigación: el momento y lugar en que ocurrieron los hechos y el sujeto que presuntamente los realizó.
+b. Se deberá señalar la posible situación irregular que afecta la Hacienda Pública.
+c. Excepcionalmente, cuando el caso así lo amerite podrán recibirse denuncias verbales que se ajusten a los requerimientos anteriores. En este caso, el funcionario que recibe la denuncia procederá a levantar un acta en la que consignará los datos de la denuncia, misma que será firmada por ambas partes una vez concluida.
+d. Las personas físicas y jurídicas interesadas podrán señalar ante la Unidad de Auditoría Interna, una dirección única de correo electrónico para recibir el emplazamiento y cualquier otra resolución, en cualquier asunto administrativo en que deban intervenir. Esta fijación podrá ser modificada o revocada en cualquier tiempo, por la persona interesada.

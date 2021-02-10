@@ -1,0 +1,2 @@
+Artículo 12.-Impedimentos a la independencia y objetividad. El Auditor Interno debe establecer políticas y procedimientos que permitan prevenir y detectar situaciones internas o externas que comprometan la independencia y la objetividad del personal que realiza el proceso de servicios de auditoría en el sector público, sin perjuicio de los que puedan emitirse en el resto de la organización de auditoría.
+El personal aludido es responsable de informar formalmente los detalles al Auditor Interno de cualquier situación que pudiera afectar su independencia y objetividad.

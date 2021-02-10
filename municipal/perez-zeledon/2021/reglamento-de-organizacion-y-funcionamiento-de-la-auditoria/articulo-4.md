@@ -1,0 +1,27 @@
+Artículo 4.-Definiciones: Para efectos del presente Reglamento se entenderá por:
+Auditoría Interna: Actividad independiente, objetiva y asesora que da valor agregado mejorando las operaciones de la institución, coadyuvando en el cumplimiento de los objetivos y metas de la Municipalidad.
+Administración Activa: Componentes orgánicos del sistema de control interno. Desde el punto de vista funcional, es la función decisoria, ejecutiva, resolutoria, directiva u operativa de la Administración. Desde el punto de vista orgánico, el conjunto de entes y órganos de la función administrativa, que deciden y ejecutan, incluyendo al jerarca como última instancia.
+Alcalde o Alcaldesa: Persona física quien ocupe el cargo según lo previsto en el Artículo 169 de la Constitución Política y lo definido en la legislación ordinaria.
+Auditor: Profesional o equipo de profesionales o técnicos que realizan servicios de auditoría interna conforme a la normativa técnica y jurídica aplicable.
+Auditor Interno: La máxima autoridad administrativa de la Auditoría Interna de la Municipalidad de Pérez Zeledón.
+Asesor Legal: Profesional en Derecho asignado a la asesoría de la Auditoría Interna y que ocupa la plaza de Profesional en la misma.
+Concejo Municipal: Órgano colegiado que forma un cuerpo deliberante en la Municipalidad de Pérez Zeledón.
+Contraloría General de la República: La Contraloría General de la República de Costa Rica, órgano constitucional fundamental del Estado, auxiliar de la Asamblea Legislativa en el control superior de la Hacienda Pública y rector del sistema de fiscalización que contempla la Ley No. 7428 y sus reformas publicada en el Diario Oficial La Gaceta No. 210 del 04 de noviembre de 1994.
+Denuncia: Es la noticia pública o privada que se pone en conocimiento de la Auditoría Interna, en forma escrita o por cualquier otro medio, y excepcionalmente de manera verbal, de un supuesto hecho irregular para que se investigue, con el propósito de evaluar las eventuales responsabilidades que correspondan sobre los presuntos responsables.
+Denuncia Penal: Documento mediante el cual se pone en conocimiento del Ministerio Público cualquier hecho presuntamente ilícito que hubiera sido conocido con motivo de un servicio preventivo de auditoría, denunciable conforme a los artículos 278 a 281 del Código Procesal Penal. Es un insumo para la determinación de responsabilidades, por lo que no les resulta aplicable el régimen de impugnación de los actos administrativos previsto en la Ley General de la Administración Pública.
+Informes de Auditoría: Documento mediante el cual la unidad de auditoría interna comunica formalmente a la Administración sujeta a examen, los resultados de la auditoría efectuada, incluyendo las respectivas conclusiones y recomendaciones.
+Jerarca: Superior Jerárquico del órgano o del ente; ejerce la máxima autoridad dentro del órgano o ente, unipersonal o colegiado.
+Municipalidad: La Municipalidad de Pérez Zeledón es la persona jurídica regulada en el numeral 2 del Código Municipal.
+Normas Generales de Auditoría Interna para el Sector Público: R-DC-064-2014 publicada en La Gaceta No. 184 del 25 de septiembre del 2014.
+Normas para el ejercicio de la Auditoría Interna: R-DC-119-2009 publicada en La Gaceta No. 28 del 10 de febrero del 2010.
+Normas de Control Interno para el Sector Público: N-2-2009-CO-DFOE aprobadas mediante R-CO-9-2009 publicada en La Gaceta No. 26 del 6 de febrero del 2009.
+Ley Orgánica de la Contraloría General de la República: Ley Nº 7428 y sus reformas publicada en el Diario Oficial La Gaceta No. 210 del 04 de noviembre de 1994.
+Ley General de Control Interno: Ley No. 8292 publicada en el Diario Oficial La Gaceta No. 169 de 04 de septiembre del 2002.
+Lineamientos Sobre Gestiones que Involucran a la Auditoría Interna presentadas ante la Contraloría General de la Republica: Lineamientos Sobre Gestiones que Involucran a la Auditoría Interna presentadas ante la Contraloría General de la Republica, R-DC-83-2018º.
+Servicio de Auditoria: Comprende los distintos tipos de auditoría, llámese financiera, operativa y de carácter especial.
+Servicio preventivo de Advertencia: Es un servicio dirigido a los órganos sujetos a la competencia institucional de la Auditoría Interna, y consiste en señalar los posibles riesgos y eventuales consecuencias de determinadas conductas o decisiones, cuando sean de conocimiento de la Auditoría Interna.
+Servicio preventivo de Asesoría: Es un servicio dirigido al jerarca y consiste en el suministro de criterios, observaciones y demás elementos de juicio para la toma de decisiones con respecto a los temas que son competencia de la Auditoría Interna.
+También puede ser brindado a otras instancias institucionales, si la Auditoría Interna lo considere pertinente, siempre y cuando no se incurra en coadministración.
+Servicio preventivo de Autorización de Libros: Es una obligación asignada de manera específica a la Auditoría Interna, que consiste en el acto de otorgar la razón de apertura y cierre de los libros de contabilidad y de actas que deban llevarse en la institución respectiva. Así también, aquellos otros libros que a criterio de la Auditoría Interna deban cumplir con este requisito.
+Subauditor Interno: Responde de su gestión ante el Auditor Interno, cuando sustituye a éste durante sus ausencias temporales.
+Titular subordinado: Funcionario de la Administración Activa y la Auditoría Interna, responsable de un proceso, con autoridad para ordenar y tomar decisiones.
