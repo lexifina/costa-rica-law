@@ -18,3 +18,4 @@ Reglamento de trabajos finales de graduación de la Universidad Técnica Naciona
 | 3 | 2019-08-01 | Reglamento 16 (2019-08-01) |
 | 4 | 2020-04-30 | Reglamento 9 (2020-04-30) |
 | 5 | 2020-07-30 | Reglamento 17 (2020-07-30) |
+| 6 | 2021-02-11 | Reglamento 3 (2021-02-11) |

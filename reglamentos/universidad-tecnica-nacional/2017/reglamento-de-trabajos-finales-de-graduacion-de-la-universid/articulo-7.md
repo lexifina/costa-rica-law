@@ -1,5 +1,6 @@
-Artículo 7.-De la Coordinación General de Carrera.-
-Corresponderá a la Coordinación General de la Carrera y, en su ausencia, al Consejo Asesor de Carrera:
-a) Remitir a las Vicerrectorías de Investigación y Docencia las líneas de investigación, conforme al Plan de Desarrollo de la Carrera y las áreas de especialidad, y de común acuerdo entre los Directores de la carrera, tomando en cuenta las necesidades regionales de cada sede.
-b) Elaborar una lista de profesores-tutores y lectores de Trabajos Finales de Graduación, por cada sede.
-c) Velar porque las líneas de investigación de la carrera tengan correspondencia con las líneas establecidas por la Vicerrectoría de Investigación.
+Artículo 7.- De la Coordinación General de Carrera. - Corresponderá a la Coordinación General de la Carrera y, en su ausencia, al Consejo Asesor de Carrera:
+a) Remitir a la Vicerrectoría de Investigación y Transferencia y la Vicerrectoría de Docencia, las líneas de investigación, conforme al Plan de Desarrollo de la Carrera y las áreas de especialidad, y de común acuerdo entre las personas Directoras de la Carrera, tomando en cuenta las necesidades regionales de cada Sede.
+b) Elaborar una lista de personas profesoras tutoras y lectoras de trabajos finales de graduación, por cada Sede.
+c) Velar porque las líneas de investigación de la carrera tengan correspondencia con las líneas establecidas por la Vicerrectoría de Investigación y Transferencia.
+d) Elaborar la guía de procedimientos para el TFG en conjunto con la Comisión de Trabajos Finales de Graduación, según corresponda, y de conformidad con las líneas de investigación definidas por la carrera. En caso de que no exista la CGC, le corresponderá al Consejo Asesor de Carrera. Esta guía, antes de divulgarse, debe ser remitida por los medios oficiales a la Vicerrectoría de Docencia para su análisis y respectivo aval.
+(Así reformado en sesión N° 3 del 11 de febrero del 2021)

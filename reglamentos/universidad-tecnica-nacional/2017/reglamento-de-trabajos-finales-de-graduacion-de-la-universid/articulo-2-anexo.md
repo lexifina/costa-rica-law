@@ -21,6 +21,7 @@ a. Recomendaciones: Señala algunas incógnitas, propone oportunidades de mejora
 c) Parte final
 a. Bibliografía: Es el compendio de fuentes primarias y secundarias utilizadas o consultadas. Debe referenciarse según los lineamientos de este reglamento, al manual APA última edición.
 b. Anexos: Documentos que se utilizaron durante el proceso de investigación y respaldan la investigación
-Para el caso del informe final de la práctica dirigida, deberá además agregarse:
+Para el caso del informe final del proyecto de investigación, deberá además agregarse:
 a. Dentro del marco metodológico, los obstáculos y dificultades encontradas en el ejercicio de la práctica.
 b. Anterior al capítulo de conclusiones y recomendaciones, un capítulo sobre el diseño y la implementación del proyecto.
+(Así reformado en sesión N° 3 del 11 de febrero del 2021)
