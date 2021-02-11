@@ -1,1 +1,2 @@
-Artículo 89.—Deber de denuncia. Es obligación de todo servidor (a) formular la denuncia correspondiente ante la autoridad competente, cuando en el ejercicio de su cargo tenga conocimiento de cualquier irregularidad en perjuicio de la Asamblea Legislativa y de los funcionarios (as).
+Articulo 89.- Deber de denuncia. Es obligación de toda persona servidora formular la denuncia correspondiente ante la autoridad competente, cuando en el ejercicio de su cargo tenga conocimiento de conductas fraudulentas, corruptas, antiéticas, conflictos de intereses y presuntos ilícitos contra la Hacienda Pública y en general cualquier irregularidad en perjuicio de la Asamblea Legislativa y de los funcionarios y las funcionarias.
+(Así reformado en sesión N° 143 del 11 de febrero del 2021)
