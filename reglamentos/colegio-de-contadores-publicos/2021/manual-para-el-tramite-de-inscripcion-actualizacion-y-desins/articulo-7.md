@@ -1,0 +1,1 @@
+Artículo 7º—La resolución de des inscripción será dictada por la Junta Directiva y tendrá los recursos de revocatoria ante la Junta Directiva y apelación en subsidio ante la Asamblea General del Colegio, en el plazo de tres días hábiles a partir de la notificación en el correo electrónico señalado.

@@ -1,0 +1,1 @@
+Artículo 4º—El acto final sobre la inscripción del Despacho o Firma de Contadores Públicos será dictado por la Junta Directiva; este tendrá recursos de revocatoria ante la Junta Directiva y apelación en subsidio ante la Asamblea General, en el plazo de tres días hábiles a partir de la notificación en el correo electrónico señalado.

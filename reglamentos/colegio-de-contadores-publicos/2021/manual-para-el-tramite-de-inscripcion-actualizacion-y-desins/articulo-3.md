@@ -1,0 +1,1 @@
+Artículo 3º—Las solicitudes se presentarán en el Departamento de Admisión del Colegio o por medio de correo electrónico todo firmado digitalmente y serán resueltas en un plazo de treinta días naturales.
