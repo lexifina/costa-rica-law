@@ -1,0 +1,12 @@
+INSTITUTO COSTARRICENSE DE ACUEDUCTOS Y ALCANTARILLADOS
+ASUNTO: Aprobación de la ampliación de norma técnica
+N° 2021-0004
+Sesión N° 2021-01 Ordinaria.—Fecha de Realización 05/ Jan/2021.—Artículo 3.4-Amp liación “Norma Técnica para Diseño y construcción de sistemas de abastecimiento de agua potable, de saneamiento y pluvial” (Ref. PRE-UTSAPS-2020-00285) Memorando PRE-2020-01873.—Atención Unidad Té cnica de los Servicios de Abastecimiento de Agua Potable y de Saneamiento, Presidencia Ejecutiva, Gerencia General.—Fecha Comunicación 07/Jan/2021
+JUNTA DIRECTIVA
+Conoce esta Junta Directiva la propuesta de modificación a la Norma Técnica para “Diseño y construcción de sistemas de abastecimiento de agua potable, de saneamiento y pluvial”, según le fue presentado por la Presidencia Ejecutiva con el memorando PRE-2020-01873, y acuerda lo siguiente:
+I.—Aprobar las modificaciones a la Norma Técnica para “Diseño y construcción de sistemas de abastecimiento de agua potable, de saneamiento y pluvial”, lo anterior con fundamento en el marco de competencias que le asisten al Instituto establecidas en la Ley N° 2726, en cuanto a la aprobación de planos constructivos para los sistemas de abastecimiento de agua potable y de recolección, tratamiento y disposición de aguas residuales y sistemas pluviales, indistintamente de su naturaleza pública o privada.
+II.—Instruir a la Presidencia Ejecutiva para que se le comunique al Ministerio de Economía, Industria y Comercio la reforma al documento aprobado mediante el acuerdo N° 2017-281.
+III.—Instruir a la Unidad Técnica de los Servicios de Abastecimiento de Agua Potable y de Saneamiento, para que integre en un solo documento la norma técnica aprobada mediante el acuerdo N° 2017-281 y las modificaciones que se aprueban en este acuerdo.
+IV.—Instruir a la Presidencia Ejecutiva para que comunique el presente acuerdo y la norma técnica actualizada a todos los operadores autorizados que, conjuntamente con el AyA, brindan servicios de abastecimiento de agua potable y de recolección, tratamiento y disposición de aguas residuales.
+V.—Instruir a la Gerencia General para que comunique a todas las áreas funcionales a su cargo, involucradas en los procesos de diseño, construcción, operación, mantenimiento e investigación de sistemas de abastecimiento de agua potable, sistemas de recolección, tratamiento y disposición de aguas residuales dentro del alcance de la Ley N° 2726, el deber de aplicar la norma técnica actualizada que es parte esencial de este acuerdo.
+Acuerdo firme.
