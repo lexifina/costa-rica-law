@@ -15,3 +15,4 @@ Disposiciones regulatorias unificadas para el ejercicio del derecho de los usuar
 | --- | --- | --- |
 | 1 | 2015-01-21 | la propia norma |
 | 2 | 2015-02-25 | Resolución 33 (2015-02-25) |
+| 3 | 2021-02-11 | Resolución 27 (2021-02-11) |
