@@ -1,0 +1,1 @@
+ARTÍCULO 42.- Funciones de quienes ejerzan las Vocalías. Sin perjuicio de las funciones permanentes que les asigne la presidencia para que atiendan necesidades específicas del Colegio o de sus órganos, corresponde a las vocalías, sustituir por orden de su designación, las ausencias temporales de los demás miembros directivos.

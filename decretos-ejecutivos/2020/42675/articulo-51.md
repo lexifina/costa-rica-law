@@ -1,0 +1,1 @@
+ARTÍCULO 51.- De las Consultas: Las consultas que se hagan al Colegio provenientes de las institucionales públicas en general y particulares, sean estas personas físicas o jurídicas, serán evacuadas por el Comité Consultivo.

@@ -1,0 +1,1 @@
+ARTÍCULO 37.- Sustitución temporal. En ausencia temporal de quien ejerce la presidencia, sus funciones serán ejercidas por la vicepresidencia y en ausencia de ambos por las vocalías conforme al orden de su designación.

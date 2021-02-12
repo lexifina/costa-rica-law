@@ -1,0 +1,1 @@
+ARTÍCULO 14.- Separación por morosidad: La persona agremiada activa que incurra en mora, en el pago de seis cuotas consecutivas de colegiatura, perderá su condición como persona agremiada activa, podrá recuperar dicha condición realizando el procedimiento de reincorporación por sanción de mora vigente establecido por la Junta Directiva.

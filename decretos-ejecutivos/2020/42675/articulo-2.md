@@ -1,0 +1,1 @@
+ARTÍCULO 2.-Finalidad: La presente ordenanza reglamentará la Ley N° 8831 que crea el Colegio de Profesionales en Criminología, cuyo fin es velar por el cumplimiento estricto de las normas técnicas y de ética profesional de las personas que se colegien para el ejercicio de la Criminología.

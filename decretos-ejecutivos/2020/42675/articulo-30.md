@@ -1,0 +1,4 @@
+ARTÍCULO 30.- De la Junta Directiva: Es el órgano directivo del Colegio y estará integrada por la Presidencia, la Vicepresidencia, la Secretaría, la Tesorería y tres Vocalías.
+Los miembros directivos que forman parte de la Junta Directiva durarán dos años en funciones y podrán ser reelectos por un período de dos años más. No pueden formar parte de una misma Junta Directiva, las personas agremiadas que tengan parentesco entre sí, por consanguinidad o afinidad, hasta el segundo grado inclusive.
+Se nombrará una Fiscalía y su suplencia durarán dos años en funciones y podrán ser reelectos por un periodo de dos años más. La Fiscalía tendrá voz, pero no voto dentro de la Junta Directiva.
+Los miembros de la Junta Directiva y Fiscalía serán renovados así: un año la presidencia, tesorería, primera vocalía y la fiscalía, y el otro año, la vicepresidencia, la Secretaría, segunda y tercera vocalía.

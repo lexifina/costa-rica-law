@@ -1,0 +1,1 @@
+ARTÍCULO 21.- De la Asamblea General: La Asamblea General es el órgano superior del Colegio y la integran la totalidad de los miembros colegiados activos, podrán participar en dicha Asamblea todas las personas agremiadas que estén al día con sus pagos y se presenten con su carné vigente; el día y hora citados.

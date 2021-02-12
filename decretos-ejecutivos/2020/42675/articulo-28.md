@@ -1,0 +1,1 @@
+ARTÍCULO 28.- Acuerdos: Los acuerdos de Asamblea General, reunida ordinaria o extraordinariamente, se tomarán por mayoría simple; cuando la votación resulte empatada la persona que presida la Asamblea General decidirá el asunto con doble voto. Todos los acuerdos serán firmes y ejecutorios a partir del momento de su aprobación.

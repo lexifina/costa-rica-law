@@ -1,0 +1,1 @@
+ARTÍCULO 16.- Separación por mandato judicial: Cuando la persona agremiada sea sancionada por mandato judicial con vista en la certificación de la sentencia en firme. Esta deberá ser acogida por la Junta Directiva por el plazo establecido y la persona agremiada deberá notificar sobre dicha resolución y realizar la entrega de las credenciales en el plazo de ocho días hábiles.

@@ -1,0 +1,1 @@
+ARTÍCULO 48.- Funciones del Comité Consultivo: Será competencia de este Comité, aquellas consultas técnicas solicitadas por la Junta Directiva del Colegio, en las cuales sea necesario un conocimiento especializado sobre un tema en específico.

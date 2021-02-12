@@ -1,0 +1,5 @@
+CAPÍTULO XIV
+TRIBUNAL ELECTORAL
+ARTÍCULO 57.- Integración: La Asamblea General ordinaria nombrará de su seno al Tribunal Electoral, formado por cinco personas. El cargo de miembro del Tribunal Electoral será incompatible con cualquier otro cargo del Colegio.
+Los miembros permanecerán en sus funciones dos años y podrán ser reelegidos indefinidamente. El Tribunal Electoral designará de su seno una presidencia, una secretaría, una tesorería y dos vocalías.
+Las personas miembros del Tribunal perderán su condición, si incurren en alguna de las causales establecidas en el presente reglamento o si quedan totalmente incapacitadas para el desempeño de las funciones asignadas.

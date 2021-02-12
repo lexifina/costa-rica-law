@@ -1,0 +1,3 @@
+ARTÍCULO 31.- Toma de Posesión: Las personas integrantes de la Junta Directiva electas tomarán posesión de sus cargos en la primera sesión ordinaria de Junta Directiva del mes de enero del año siguiente, cuando se hará entrega de los informes correspondientes.
+Asimismo, en dicha sesión se hará la toma de posesión de la Fiscalía, Tribunal de Honor y Tribunal Electoral, cuando corresponda.
+La toma de posesión, tanto de la Junta Directiva como de la Fiscalía, se comunicará a los Supremos Poderes y a los demás Colegios Profesionales. En el caso específico de toma de posesión de Presidencia se publicará en el Diario Oficial La Gaceta.

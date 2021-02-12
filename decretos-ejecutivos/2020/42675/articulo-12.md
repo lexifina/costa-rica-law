@@ -1,0 +1,1 @@
+ARTÍCULO 12.-Credenciales: A toda persona que realice el procedimiento de incorporación, se le entregará por primera vez el carné de agremiado activo y el sello blanco, en el acto de juramentación y entrega de credenciales, en el caso de renovación o reposición quedará sujeto al procedimiento vigente establecido por la Junta Directiva.

@@ -1,0 +1,1 @@
+ARTÍCULO 18.- Debido Proceso: Para toda sanción establecida por este reglamento y en la Ley Orgánica N°8831 y demás normativa vinculante con excepción del artículo 16 del presente reglamento, la Fiscalía velará por la aplicación del debido proceso establecido en el artículo 39 de la Constitución Política de Costa Rica.

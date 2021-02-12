@@ -1,0 +1,1 @@
+ARTÍCULO 29.- Del Acta: El acta de la sesión será confeccionada por la persona que ocupe la Secretaría de la Junta Directiva y deberá firmarla juntamente con quien presidió la sesión. En caso de ausencia se procederá en la forma descrita en el artículo 21 de la Ley Orgánica N° 8831.

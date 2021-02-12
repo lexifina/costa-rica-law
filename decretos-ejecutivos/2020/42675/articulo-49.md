@@ -1,0 +1,1 @@
+ARTÍCULO 49.- Nombramiento: Los miembros del Comité Consultivo desempeñarán sus cargos ad-honoren. Únicamente en consultas sobre asuntos que puedan llevar implícitos resultados económicos para las personas interesadas en la consulta, podrá remunerárseles con el monto y la forma que determine la Junta Directiva.

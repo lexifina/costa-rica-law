@@ -1,0 +1,1 @@
+ARTÍCULO 19.-Recursos de revocatoria y apelación: Ante la sanción establecida a la persona agremiada activa, podrá presentar recursos de revocatoria y apelación según se estipula en la Ley Orgánica N° 8831.

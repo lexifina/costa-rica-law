@@ -1,0 +1,8 @@
+ARTÍCULO 32.-Cese de funciones. Cesará de sus funciones el agremiado activo de la Junta Directiva o cualquier otro Órgano o Comisión del Colegio que:
+a) Se separe o sea separado del Colegio, temporal o definitivamente.
+b) Deje de asistir sin causa justificada a tres sesiones consecutivas, sean estas ordinarias o extraordinarias; en caso de ausentarse del país por más de tres meses, deberá solicitar permiso de la Junta Directiva para que tome las precauciones del caso y si dicho permiso es denegado, la persona integrante perderá automáticamente su condición de directivo.
+c) Por sentencia firme sea declarado autor, cómplice o encubridor de un hecho delictivo o se encuentre en quiebra o insolvencia fraudulenta o culpable.
+d) Infrinja cualquier disposición de la ley, de este Reglamento Interno o de los demás reglamentos o directrices del Colegio.
+e) Sea judicialmente declarado incapaz en sentencia firme.
+Para todos los casos anteriormente enunciados, la Junta Directiva solicitará a la persona separada la entrega de un informe final de gestión, además de la devolución bajo inventario de cualquier activo del Colegio que se encuentre en su posesión; dicho informe deberá ser rendido por escrito en un plazo no mayor a treinta días naturales, contabilizados a partir de la notificación junto con la entrega de los activos que tuviere.
+Asimismo, la Junta Directiva, levantará, por medio del Fiscal, la información correspondiente y hará la convocatoria para Asamblea General Extraordinaria a fin de que se conozca el caso y elija si procediere, el sustituto o sustitutos por el resto del período legal, a más tardar un mes después de producirse la vacante. En igual forma se procederá en el caso de muerte o renuncia de algunos de los miembros de la Junta Directiva.
