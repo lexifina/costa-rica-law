@@ -15,3 +15,4 @@ Lineamientos regulatorios del programa de evaluación de la calidad de los combu
 | --- | --- | --- |
 | 1 | 2019-03-22 | la propia norma |
 | 2 | 2020-12-08 | Resolución 123 (2020-12-08) |
+| 3 | 2021-02-12 | Resolución 8 (2021-02-12) |
