@@ -1,0 +1,1 @@
+Artículo 3°—Suscripción de contrato. Para la asignación de teléfonos celulares, será necesario suscribir un contrato entre la Administración, representada por la Alcaldía y el funcionario al cual se le asigne el bien. La asignación del teléfono celular implica tanto el teléfono celular como el servicio de telefonía celular necesarias para su normal funcionamiento.

@@ -1,0 +1,13 @@
+CAPÍTULO III
+De contrato y su contenido
+Artículo 11.—Del contrato. En cumplimiento de lo indicado en el artículo 3 del presente reglamento, para la asignación y uso de los teléfonos celulares, cada responsable del servicio deberá suscribir un contrato cuya elaboración estará a cargo del Departamento Legal de la Municipalidad, en el que se especifiquen todas las condiciones de uso y demás regulaciones contempladas en este Reglamento. En este convenio deberá considerarse al menos, los siguientes aspectos:
+a) Nombre completo, estado civil, oficio o profesión, número de cédula, puesto que ocupa en la Municipalidad y dirección exacta de su lugar de domicilio, del funcionario al que se le asigna un servicio celular.
+b) Número de línea telefónica asignada, así como marca, modelo, número de serie, número de IMEI, valor contable y los accesorios correspondientes del teléfono celular asignado.
+c) La explícita mención a que la asignación del teléfono celular, no se considera parte del salario ni beneficio personal de conformidad con lo establecido en el artículo 8 de este Reglamento, por lo que el funcionario no tendrá derecho alguno a cobrar el uso del bien como salario en especie ni como parte del pago de prestaciones laborales.
+d) La tarifa mensual que se reconocerá al funcionario para el uso del servicio telefónico, según lo establecido en el artículo 10 de este Reglamento, aclarando que los planes telefónicos serán los fijados por la compañía que brinda el servicio.
+e) Que el teléfono celular es para uso estrictamente oficial del funcionario responsable.
+f) No se autoriza realizar llamadas internacionales de los teléfonos propiedad de la Municipalidad, excepto los casos mencionados en el artículo 10, inciso a) de este Reglamento.
+g) Cuando se asigne un teléfono el funcionario responsable deberá mantenerlo en servicio y comunicarse de inmediato cuando se le requiera.
+h) En caso de extravío, el funcionario responsable aceptará y autorizará a la Administración el cobro respectivo del aparato y sus accesorios en forma inmediata y no estará exento de la responsabilidad administrativa, civil o disciplinaria que proceda. En caso de daños ocasionados en el aparato y/o sus accesorios, se deberá entregar el mismo a la jefatura inmediata a más tardar al día siguiente del daño.
+i) Los motivos de rescisión del contrato, de acuerdo a lo que se establece en el presente Reglamento.
+j) Indicación expresa de que la asignación de un servicio celular no constituye un derecho del funcionario y por ende la Municipalidad podrá rescindir en forma unilateral el contrato, sin ningún tipo de responsabilidad para ella.
