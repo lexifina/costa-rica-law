@@ -14,3 +14,4 @@ Convocar a la Reserva de la Fuerza Pública para colaborar con los cuerpos polic
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-05-11 | la propia norma |
+| 2 | 2021-02-12 | Acuerdo 599 (2021-02-12) |
