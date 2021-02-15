@@ -1,5 +1,0 @@
-CAPÍTULO VI
-Recursos informáticos
-Artículo 26.—Recursos informáticos. Los recursos requeridos para el ejercicio de la actividad serán suministrados por la persona teletrabajadora. Deben satisfacer las exigencias propias de las tareas asignadas y ajustarse a los lineamientos establecidos por el Departamento de Tecnología de la Información y Comunicaciones del Poder Judicial. También podrán ser suministrados por el patrono, de acuerdo con la disponibilidad presupuestaria.
-Al cese del contrato o convenio, el citado Departamento en el primer supuesto, eliminará cualquier restricción o autorización establecida en el equipo de cómputo o líneas de comunicación, cuyo uso fuere necesario para el teletrabajo; mientras que, en el segundo caso, el funcionario o funcionaria deberá restituir el equipo institucional.
-La actualización del sistema operativo y el antivirus de la computadora, con las últimas versiones aportadas por el proveedor durante el tiempo que se encuentre fuera de la Institución, será responsabilidad de la persona teletrabajadora.

@@ -1,1 +1,0 @@
-Artículo 22.—Deber de firmar el convenio por parte de la persona teletrabajadora. La persona teletrabajadora deberá firmar un convenio donde se especificarán las condiciones de esta modalidad laboral.

@@ -1,1 +1,0 @@
-Artículo 32.—Plan piloto. El Consejo Superior establecerá, antes de la implementación del teletrabajo en el ámbito institucional, por un período de tres meses, un plan piloto, con el fin de comprobar las ventajas y desventajas de esta nueva modalidad laboral. Quedan excluidos de este plan piloto, quienes se desempeñan como juez o jueza.

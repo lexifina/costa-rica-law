@@ -1,1 +1,0 @@
-Artículo 9º—Visto bueno de la jefatura. El servidor o servidora judicial que desee laborar conforme a esta nueva modalidad de trabajo debe contar con el visto bueno de su superiora o superior jerárquico. En el caso de jueces, juezas, servidores y servidoras judiciales, deberán contar previamente con la autorización de quien coordine o presida el despacho.
