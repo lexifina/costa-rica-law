@@ -44,3 +44,4 @@ Reglamento de Operaciones del Sistema Financiero Nacional para Vivienda
 | 29 | 2014-04-03 | Reglamento 23 (2014-04-03) |
 | 30 | 2017-07-20 | Reglamento 52 (2017-07-20) |
 | 31 | 2017-09-21 | Reglamento 67 (2017-09-21) |
+| 32 | 2021-02-15 | Reglamento 13 (2021-02-15) |
