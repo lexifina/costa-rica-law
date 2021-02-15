@@ -14,3 +14,4 @@ Reglamento Organización del Sistema Financiero Nacional para Vivienda
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-02-03 | la propia norma |
+| 2 | 2021-02-15 | Reglamento 13 (2021-02-15) |
