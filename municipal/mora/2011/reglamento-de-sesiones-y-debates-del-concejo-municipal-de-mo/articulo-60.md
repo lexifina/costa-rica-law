@@ -1,4 +1,4 @@
 CAPÍTULO IX
 De la intervención de los particulares
-en las sesiones municipales
-Artículo 60.—El Concejo recibirá audiencias de munícipes en todas las sesiones del Concejo.
+en las sesiones municipales.
+Artículo 60.—El Concejo recibirá audiencias de los munícipes, las primeras y terceras sesiones ordinarias de cada mes, salvo que por mayoría simple de los votos del Concejo se defina recibir la audiencia en otro momento, ello debido a la importancia y tema a tratar.

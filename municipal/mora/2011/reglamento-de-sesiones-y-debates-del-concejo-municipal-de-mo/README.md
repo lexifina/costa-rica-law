@@ -14,3 +14,4 @@ Reglamento de Sesiones y Debates del Concejo Municipal de Mora
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-05-13 | la propia norma |
+| 2 | 2021-02-15 | Reglamento municipal 42 (2021-02-15) |

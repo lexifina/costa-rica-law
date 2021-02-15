@@ -1,2 +1,1 @@
-Artículo 70.—Rige a partir de su publicación en el Diario Oficial La Gaceta y una vez cumplido el trámite de consulta pública no vinculante por espacio de diez días hábiles, según lo establecido en el artículo 43 del Código Municipal.
-Ciudad Colón, 16 de junio del 2010
+Artículo 70.—De previo a remitir el informe indicado, la secretaría del Concejo Municipal verificará si ha ingresado a la corriente administrativa de correspondencia o de informes presentados ante el órgano colegiado, información parcial o aclaratoria en relación con los acuerdos que se han adoptado y que permita establecer si los acuerdos pendientes mantienen interés actual o carecen de él.

@@ -1,0 +1,4 @@
+CAPÍTULO XI
+Sesiones Virtuales.
+Artículo 74.—El Concejo Municipal, los concejos de distrito y las comisiones municipales podrán realizar, en caso de que así se requiera, sesiones municipales virtuales a través del uso de medios tecnológicos. Tales sesiones se podrán celebrar en dichas condiciones a través de esos medios, en el tanto concurra el cuórum de ley.
+Las sesiones del Concejo Municipal se realizarán utilizando la plataforma que defina la Administración Municipal y apruebe mediante acuerdo firme el Concejo, a la cual deberán tener acceso todas las regidurías y sindicaturas (propietarios y suplentes) mediante el uso de una cuenta personal para cada uno, con lo cual se garantice que existirá una plena compatibilidad entre los sistemas y medios empleados por el emisor y el receptor, para garantizar la autenticidad e integridad de la participación, voluntad y la conservación de lo actuado.

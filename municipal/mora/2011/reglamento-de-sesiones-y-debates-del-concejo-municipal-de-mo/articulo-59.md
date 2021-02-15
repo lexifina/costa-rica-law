@@ -1,1 +1,1 @@
-Artículo 59.—En todo lo demás, las comisiones especiales se ajustarán a lo indicado en relación a las comisiones permanentes.
+Artículo 59.—En todo lo demás las comisiones especiales se ajustarán a lo indicado en relación a las comisiones permanentes.
