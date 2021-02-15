@@ -1,0 +1,5 @@
+CONCEJO MUNICIPAL DEL DISTRITO DE MONTE VERDE
+ADHESIÓN DEL CONCEJO MUNICIPAL DEL DISTRITO
+DE MONTE VERDE AL “MANUAL DE VALORES BASE
+UNITARIOS POR TIPOLOGÍA CONSTRUCTIVA 2019
+Publicar por una única vez que el Intendente Municipal del Concejo Municipal de Distrito de Monte Verde, en acatamiento a lo dispuesto en los artículos 3 y 12 de la Ley Nº 7509 y sus Reformas, el artículo 19 del Reglamento a esa misma ley, la Sentencia N° 1073- 2010 del Tribunal Contencioso Administrativo, Sección III y la Resolución de la Sala Constitucional N° 2011-003075 del 9 de marzo del 2011, en aras de dar cumplimiento a su competencia, comunica en este mismo acto que se adhiere a la publicación del documento “Manual de Valores Base Unitarios por Tipología Constructiva 2019, publicado en las páginas de la 28 a la 218 del Alcance Digital N° 198, del Diario Oficial La Gaceta N° 187, del jueves 30 de julio del 2020, por el Órgano de Normalización Técnica del Ministerio de Hacienda”, para efectos que a partir de esta publicación, actualizar los valores de las propiedades ubicadas en el distrito de Monte Verde, para el Impuestos sobre los Bienes Inmuebles.
