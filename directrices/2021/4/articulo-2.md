@@ -1,0 +1,1 @@
+Artículo 2°—Para optar por el uso de cama seca, el interesado debe acatar los lineamientos técnicos establecidos en la presente Directriz, mismos que serán supervisados en las visitas de campo que ejecuten los funcionarios del Servicio Nacional de Salud Animal y del Ministerio de Agricultura y Ganadería, éstos últimos en caso de productores de subsistencia, pequeños y medianos.

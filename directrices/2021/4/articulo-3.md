@@ -1,0 +1,1 @@
+Artículo 3°—Los productores de subsistencia, pequeños y medianos podrán requerir la asistencia de las oficinas de Extensión del Ministerio de Agricultura y Ganadería de su localidad para el diseño e implementación de los planes de uso de cama seca.
