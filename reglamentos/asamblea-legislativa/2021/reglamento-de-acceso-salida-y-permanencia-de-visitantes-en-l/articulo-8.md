@@ -1,0 +1,5 @@
+Artículo 8- Ingreso de grupos de personas. Para el ingreso de grupos de más de cinco personas se requiere autorización escrita de la Dirección Ejecutiva. Esta autorización debe indicar por lo menos: fecha y hora de ingreso, lugar adonde se dirige y nombre de la persona responsable del grupo.
+Los funcionarios que puedan dar este tipo de autorizaciones son los siguientes:
+a) En horas hábiles, la autorización del diputado o diputada, el director ejecutivo, los directores de división y los directores de departamento, según corresponda.
+b) Finalizada la hora de atención al público, solamente podrán ingresar con autorización del presidente del Congreso, del director ejecutivo o la Jefatura de Seguridad.
+Para actividades de más de 10 personas dentro de la institución se requiere autorización del director ejecutivo o del Directorio legislativo, según corresponda. Esta autorización debe indicar al menos: fecha y hora de la actividad, lugar adonde se realizará, nombre de la persona responsable de la actividad y tema a tratar. Lo anterior con el fin de que la Unidad de Vigilancia tome las medidas correspondientes.

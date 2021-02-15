@@ -1,0 +1,1 @@
+Artículo 3-Objetivo. El objetivo del Reglamento de Acceso, Salida y Permanencia de Visitantes en la Asamblea Legislativa es establecer las normas que regulen el ingreso, la permanencia y la salida de los visitantes a la institución.
