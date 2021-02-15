@@ -1,3 +1,0 @@
-Artículo 6°-De la instalación de la Comisión.
-En el plazo de tres días hábiles siguientes a la denuncia el Secretario Ejecutivo de CONAPE, procederá a convocar a la Comisión que tendrá bajo su responsabilidad la tramitación y procedimiento administrativo y disciplinario. .
-La comisión estará conformada por tres personas, que serán, el jefe de la sección de Recursos humanos, el Secretario Ejecutivo y el Asesor Legal. En caso de que la denuncia sea contra uno de los funcionarios citados, o que alguno se encuentre imposibilitado de participar, se designa como suplente al jefe de la Sección Administrativa que integre la Comisión, y en caso de que sea necesario nombrar otra u otras personas, el Consejo Directivo de CONAPE designará un funcionario(a) que integre la Comisión.
