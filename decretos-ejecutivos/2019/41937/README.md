@@ -14,3 +14,4 @@ Reglamento del Consejo Fiscal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-08-28 | la propia norma |
+| 2 | 2021-02-16 | Decreto Ejecutivo 42879 (2021-02-16) |
