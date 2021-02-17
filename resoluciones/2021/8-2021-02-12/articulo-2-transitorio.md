@@ -1,0 +1,1 @@
+TRANSITORIO II.— La entrada en vigencia del lineamiento del Por Tanto numeral 2 inciso xv, referente a la presentación de certificados de inspección para los resultados de verificación de calibración, iniciará a partir del 01 de octubre de 2021.

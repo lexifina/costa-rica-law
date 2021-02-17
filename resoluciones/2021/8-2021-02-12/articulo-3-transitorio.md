@@ -1,0 +1,1 @@
+TRANSITORIO III.— La entrada en vigencia del lineamiento del Por Tanto numeral 2 inciso xvi, referente a la presentación de certificados de análisis de producto luego de limpieza de tanques, iniciará a partir del 01 de junio de 2021.

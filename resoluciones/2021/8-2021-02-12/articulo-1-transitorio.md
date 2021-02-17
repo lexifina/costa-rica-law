@@ -1,0 +1,1 @@
+TRANSITORIO I.— La Intendencia de Energía contará con un plazo de hasta un mes, contados a partir de la publicación en el diario oficial La Gaceta de la presente resolución, para la incorporación en el sitio web de los formatos de actas e informes, así como los protocolos indicados en la presente resolución.
