@@ -1,0 +1,3 @@
+Artículo 18.—Personas Autorizadas. Se autorizará la conducción de vehículos de la Municipalidad a aquellos funcionarios que así lo requieran para el adecuado desempeño de sus labores.
+Esta autorización la emitirá el Alcalde Municipal mediante directriz denominada Autorización para uso de vehículos Municipales. En el caso de los miembros del Concejo Municipal, podrán realizar el trámite para la autorización de conducción de vehículos, igual a cualquier funcionario municipal, pero además deberán contar con la aprobación del Concejo Municipal y únicamente podrán conducir vehículos en giras autorizadas por el Concejo Municipal mediante el respectivo acuerdo.
+Queda totalmente prohibido que un funcionario no autorizado conduzca vehículos municipales.

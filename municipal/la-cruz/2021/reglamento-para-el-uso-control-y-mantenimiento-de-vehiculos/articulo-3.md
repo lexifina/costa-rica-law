@@ -1,0 +1,3 @@
+Artículo 3°—De la Clasificación. Para efectos de este reglamento los vehículos de la Municipalidad se clasifican en:
+a) De uso de la Alcaldía: se trata de aquellos vehículos que sean asignados al servicio de la Alcaldía Municipal. Este tipo de vehículo no cuenta con restricciones en cuanto al gasto de combustible, horario de operación, ni recorrido, aspectos que la Alcaldía Municipal asumirá bajo estricta responsabilidad.
+b) De uso administrativo o general: aquellos vehículos destinados al cumplimiento de las funciones propias de la Municipalidad de La Cruz. Deberán encontrarse debidamente rotulados en ambos costados de la cabina y cuando el vehículo lo permita, en la parte trasera.

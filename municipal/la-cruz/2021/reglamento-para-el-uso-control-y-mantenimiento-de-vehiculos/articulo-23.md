@@ -1,0 +1,2 @@
+Artículo 23.—Estacionamiento del Plantel. Los vehículos municipales o alquilados tendrán prioridad de estacionamiento en las instalaciones municipales. Dicha prioridad será definida por el Alcalde Municipal, mediante la emisión de un procedimiento relacionado con la utilización de los citados estacionamientos.
+Será responsabilidad del personal de vigilancia destacado en cada edificio el velar por el cumplimiento de lo aquí dispuesto.

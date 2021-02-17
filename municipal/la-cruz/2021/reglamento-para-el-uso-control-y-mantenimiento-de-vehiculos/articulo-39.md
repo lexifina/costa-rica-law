@@ -1,0 +1,1 @@
+Artículo 39.—Reportes de Incidentes a la Alcaldía. El Área de Servicios Generales, deberá informar semanalmente a la Alcaldía Municipal, cualquier incidente como accidente de tránsito, robo o hurto, o cualquier otro que vaya en menoscabo de un bien Municipal a su cargo.
