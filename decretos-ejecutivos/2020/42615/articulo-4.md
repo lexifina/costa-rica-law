@@ -1,0 +1,1 @@
+Artículo 4º—La administración y protección de la Reserva Biológica del Bicentenario de la República - Pájaro Campana, corresponderá al Ministerio de Ambiente y Energía, a través del Sistema Nacional de Áreas de Conservación, específicamente al Área de Conservación La Amistad Pacífico.

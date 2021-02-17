@@ -1,0 +1,1 @@
+Artículo 3º—Redefínase la Zona Protectora Las Tablas, que quedará constituida por el área restante y que no está contemplada por la Reserva Biológica del Bicentenario de la República-Pájaro Campana, con un área de 14.526ha 8764,00 m2 (catorce mil quinientas veinte seis hectáreas con ocho mil setecientos sesenta y cuatro metros cuadrados).
