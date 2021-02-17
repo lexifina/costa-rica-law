@@ -1,1 +1,0 @@
-Artículo 10.—Sustitución de miembros. En caso de renuncia, muerte o alguna otra circunstancia que obligue al retiro permanente de alguno de los miembros titulares de la Junta Directiva, quién sea nombrado en sustitución, lo será por el resto del período del miembro saliente.

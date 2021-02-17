@@ -1,1 +1,0 @@
-Artículo 3º—Naturaleza. El Centro es un órgano desconcentrado en grado mínimo del Ministerio de Cultura y Juventud y ostenta personalidad jurídica instrumental. Por esta condición, administra su propio presupuesto y le corresponde la competencia exclusiva de la materia derivada del artículo 2 de la Ley.

@@ -1,2 +1,0 @@
-Artículo 29.—Del Director Artístico. La OSN tendrá un Director Artístico, que en esta Unidad Técnica Especializada constituye la máxima autoridad en materia artística y depende jerárquicamente del Director General y de la Junta Directiva del Centro.
-Corresponde a la Junta Directiva, establecer los criterios y procesos de selección idóneos para escoger al Director Artístico de la OSN, garantizando que la persona seleccionada cuenta con atestados profesionales y académicos suficientes para el puesto.

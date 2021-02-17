@@ -1,3 +1,0 @@
-Artículo 22.—De las actas. De cada sesión se levantará un acta, que contendrá la indicación de las personas asistentes, así como las circunstancias de lugar y tiempo en que se está celebrando. Describirá además los puntos principales de la deliberación, la forma y resultado de la votación y el contenido (lo más específico posible) de los acuerdos tomados.
-Las actas se aprobarán en la siguiente sesión ordinaria. Antes de esa aprobación carecerán de firmeza los acuerdos tomados en la respectiva sesión, a menos que los miembros presentes acuerden su firmeza por votación de dos terceras partes (cinco) de la totalidad de los miembros de la Junta Directiva.
-Las actas serán firmadas por el Presidente y por aquellos miembros que hubieren hecho constar su voto disidente.

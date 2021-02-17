@@ -1,1 +1,0 @@
-Artículo 14.—Sustituciones del Presidente y Secretario. En caso de ausencia o de enfermedad y, en general, cuando concurra alguna causa justa, el Presidente y el Secretario serán sustituidos por un Presidente ad-hoc y/o un Secretario suplente, nombrados por la Junta Directiva.

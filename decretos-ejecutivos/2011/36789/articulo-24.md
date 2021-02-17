@@ -1,1 +1,0 @@
-Artículo 24.—De la delegación de funciones. De conformidad con el artículo 5 inciso ñ de la Ley, la Junta Directiva podrá delegar funciones en el Director General. Para que esta delegación sea válida y eficaz, deberá ser publicada en el Diario Oficial La Gaceta, cuando sea de carácter general (para un tipo de acto y no para un acto determinado).

@@ -1,1 +1,0 @@
-Artículo 9º—Plazo de nombramiento. El nombramiento de estos miembros, lo hará el señor Ministro de Cultura y Juventud por Resolución Administrativa. Dichos nombramientos serán por un término de cuatro años; y los miembros salientes podrán ser reelegidos indefinidamente.

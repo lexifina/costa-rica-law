@@ -1,2 +1,0 @@
-Artículo 17.—Naturaleza de las sesiones. La Junta Directiva del Centro, sesionará privadamente, pero podrá disponer, acordándolo así por unanimidad de sus miembros presentes, la participación del público en general o particular en las sesiones convocadas. A estos participantes se les concede el derecho de participar en las deliberaciones con voz pero sin voto.
-El Director General del Centro podrá asistir a la sesiones de la Junta Directiva con voz pero sin voto.

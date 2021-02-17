@@ -1,2 +1,0 @@
-Artículo 16.—Quórum. Para que la Junta Directiva pueda sesionar válidamente, su quórum deberá estar conformado por la mayoría absoluta de sus miembros.
-Si a la hora citada en la convocatoria, no hubiere quórum, la Junta Directiva podrá sesionar válidamente en segunda convocatoria veinticuatro horas después de la hora señalada para la primera; salvo casos de urgencia en que podrá sesionar media hora después de la convocatoria inicial. Para sesionar en estas condiciones, será indispensable la asistencia de tres de sus miembros.

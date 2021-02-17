@@ -1,1 +1,0 @@
-Artículo 11.—Pérdida de credencial. Cualquier miembro de la Junta Directiva que se ausente sin causa justa a tres sesiones ordinarias consecutivas o cinco no consecutivas en un mismo semestre, perderá su calidad y deberá ser sustituido. Lo anterior no rige para quien preside dicho Órgano Colegiado.
