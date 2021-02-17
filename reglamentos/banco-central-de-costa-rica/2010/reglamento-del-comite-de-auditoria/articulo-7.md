@@ -1,1 +1,0 @@
-Artículo 7º—La División de Secretaría será la encargada, junto con el Coordinador del comité, de preparar la agenda de la reunión, llevar las actas y coordinar la comunicación a lo interno del comité y con sus contrapartes externas.

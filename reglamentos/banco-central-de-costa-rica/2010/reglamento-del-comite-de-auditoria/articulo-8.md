@@ -1,2 +1,0 @@
-Artículo 8º—El comité se reunirá de forma privada al menos una vez por semestre, salvo que requiera hacerlo con más frecuencia por razones de oportunidad y a solicitud del Coordinador.
-Los puntos principales de las deliberaciones, la forma y resultado de las votaciones y los acuerdos que se tomen en las reuniones deberán constar en un libro de actas que deberán ser firmadas por el Coordinador del Comité, y de ser necesario por los miembros que hubieren hecho constar su voto disidente.
