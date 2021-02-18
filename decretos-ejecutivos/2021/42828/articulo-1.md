@@ -1,0 +1,19 @@
+Nº 42828-MINAE-S
+EL PRESIDENTE DE LA REPÚBLICA,
+LA MINISTRA DE AMBIENTE Y ENERGÍA
+Y EL MINISTRO DE SALUD
+En ejercicio de las facultades que les confieren los artículos 140, inciso 3) y 18) y el artículo 146 de la Constitución Política; artículos 27 inciso 1) y 28 inciso 2) acápite b) de la Ley N° 6227 “Ley General de la Administración Pública” del 2 de mayo de 1978; los artículos 1, 2, 4, 7, 239 y 240 de la Ley N° 5395 del 30 de octubre de 1973 “Ley General de Salud”; artículos 1, 2 y 6 de la Ley N° 5412 del 08 de noviembre de 1973 “Ley Orgánica del Ministerio de Salud”; artículo 1 de la Ley N° 7152 “Ley Orgánica del Ministerio de Ambiente y Energía” del 5 de junio de 1990; artículo 56 de la Ley N° 7554 “Ley Orgánica del Ambiente” del 4 de octubre de 1995; la Ley N° 7593 “Ley de la Autoridad Reguladora de los Servicios Públicos (ARESEP)” del 9 de agosto de 1996.
+Considerando:
+1º—Que el país viene haciendo esfuerzos en mejorar las condiciones de seguridad en que operan los tanques estacionarios para autoconsumo de combustible. Para ello, se estableció en el Decreto Ejecutivo N° 42497-MINAE-S del 24 de junio de 2020 denominado “Reglamento de la autorización y registro de tanques estacionarios para autoconsumo de combustibles”, una serie de disposiciones técnicas y legales para cumplir con dicho propósito.
+2º—Que como parte de las disposiciones del Decreto Ejecutivo N° 42497 MINAE-S se estableció en su Transitorio II, un plazo de seis meses para que quienes operen tanques estacionarios de combustible, registren los mismos mediante la presentación digital del formulario correspondiente. El citado plazo corre a partir de la publicación del decreto, misma que se realizó en La Gaceta N° 202 Alcance Digital N° 215 del 14 de agosto de 2020, por lo que el plazo vence el día 14 de febrero de 2021.
+3º—Que a pesar del interés mostrado por los distintos usuarios y prestadores del servicio público en realizar dicho registro, se han presentado dificultades para cumplir los requisitos necesarios dentro del plazo otorgado, debido a la necesidad de invertir en adecuaciones y certificaciones, en las circunstancias actuales de la economía, agravadas, por la emergencia relacionada a la Pandemia por COVID-19.
+4º—Que por lo tanto, resulta conveniente otorgar un plazo adicional para el cumplimiento del trámite de autorización y registro de tanques estacionarios para autoconsumo de combustibles, con el fin de no afectar al sector productivo e institucional que depende del suministro constante de combustibles y para cumplir con el fin último del Decreto Ejecutivo N° 42497 MINAE-S.
+5º—Que de conformidad con el Reglamento a la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos, Decreto Ejecutivo Nº 37045-MP-MEIC y sus reformas, se determinó que la presente propuesta no establece ni modifica trámites, requisitos o procedimientos, que el administrado deba cumplir, situación por la que no se procedió con el trámite de control previo. Por tanto,
+Decretan:
+“MODIFICACIÓN AL TRANSITORIO II DEL REGLAMENTO
+DE LA AUTORIZACIÓN Y REGISTRO DE TANQUES
+ESTACIONARIOS PARA AUTOCONSUMO
+DE COMBUSTIBLES, DECRETO EJECUTIVO
+N° 42497-MINAE-SDEL 24DEJUNIODE2020”
+Artículo 1º—Modifíquese el Transitorio II del Reglamento de la autorización y registro de tanques estacionarios para autoconsumo de combustibles, Decreto Ejecutivo N° 42497-MINAE-S del 24 de junio de 2020, para que se lea así:
+“Transitorio II. Se otorga un plazo hasta el 14 de febrero del año 2022, para que quienes operen tanques estacionarios de combustible, registren los mismos, mediante la presentación digital del formulario correspondiente. Esto sin perjuicio de las medidas especiales que pueden ordenar las autoridades de Salud para prevenir situaciones de riesgo, en cuyo caso se podría ordenar la presentación inmediata de dicha documentación por medio del Registro Digital de Tanques de Autoconsumo”.
