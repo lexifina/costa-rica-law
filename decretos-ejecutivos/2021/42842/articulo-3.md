@@ -1,0 +1,14 @@
+Artículo 3º.-Funciones de la Autoridad Administrativa CITES para especies de interés pesquero y acuícola. Serán funciones del INCOPESCA como Autoridad Administrativa:
+a) Representar al país en todo lo relacionado con la Convención CITES y su implementación, cuando se trate de especies de interés pesquero y acuícola.
+b) Coordinar la comunicación con la Secretaría CITES, las Partes y agencias internacionales.
+c) Coordinar con otros departamentos gubernamentales y de observancia para la debida aplicación de la Convención CITES, de conformidad con las resoluciones adoptadas por la Conferencia de las Partes de la Convención CITES.
+d) Autorizar la importación, la exportación, reexportación, de especies de interés pesquero o acuícola de conformidad con las disposiciones establecidas en los Apéndices I, II y III de dicha Convención. En el caso de las especies incluidas en los apéndices I y II deberá contar con la documentación referida en los Apéndices respectivos.
+e) Emitir certificado de introducción procedente del Mar y cualquier otro certificado, de conformidad con las resoluciones adoptadas por la Conferencia de las Partes de la Convención CITES.
+f) Inscribir ante la Secretaría de CITES los proyectos de cultivo de especies de interés pesquero o acuícola incluidas en el Apéndice I.
+g) Antes de expedir autorizaciones y certificados, determinar de conformidad con los Artículos III, IV y V de la Convención y las resoluciones pertinentes, sobre dictámenes de adquisición legal, que el espécimen obtenido no contraviene la normativa de protección y aprovechamiento sostenible de la fauna y la flora del Estado de exportación.
+h) Consultar a la Secretaría CITES cuando existan dudas fundadas acerca de los alcances de la aplicación de la Convención.
+i) Elaborar y remitir informes a la Secretaría CITES de conformidad con los procedimientos establecidos por la Convención.
+j) Coordinar con la Autoridad Científica para especies de interés pesquero o acuícola lo relacionado con las especies que se encuentren en los Apéndices I, II y III, de conformidad con la Convención sobre el Comercio Internacional de Especies Amenazadas de Fauna y Flora Silvestres (CITES).
+k) Elaborar en coordinación con los entes competentes la normativa que permita velar por el cabal cumplimiento de la Convención y sus resoluciones.
+l) Establecer los mecanismos de coordinación interinstitucional para la implementación de este Decreto Ejecutivo. Dentro de esta coordinación se deberá tomar en cuenta la elaboración de los procedimientos generales de ejecución de las disposiciones de esta normativa, debiéndose contar necesariamente con la participación de la Autoridad Científica.
+Para la ejecución de sus funciones como Autoridad Administrativa, el INCOPESCA podrá establecer convenios con instituciones públicas, académicas u organizaciones como mecanismo de integración de acciones y recursos para cumplir eficazmente con lo dispuesto en este Decreto Ejecutivo.

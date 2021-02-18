@@ -1,0 +1,1 @@
+Artículo 6º.- Del pago de los cánones por la emisión de autorizaciones o certificaciones.-Los certificados o autorizaciones que sean solicitados al INCOPESCA como Autoridad Administrativa, de conformidad con los términos del presente Decreto Ejecutivo, deberán ser cancelados por el interesado de conformidad con las tarifas vigentes establecidas por ese Instituto.
