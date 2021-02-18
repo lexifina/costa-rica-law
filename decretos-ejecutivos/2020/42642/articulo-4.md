@@ -1,0 +1,1 @@
+Artículo 4º—Administración. La Finca Experimental Cerritos para la conservación de ecosistemas y especies del bosque húmedo tropical, será administrada por el Sistema Nacional de Áreas de Conservación, a través del Área de Conservación Arenal Tempisque.

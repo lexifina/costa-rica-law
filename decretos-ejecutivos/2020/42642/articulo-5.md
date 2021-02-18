@@ -1,0 +1,6 @@
+Artículo 5º—Objetivos. Serán objetivos de la Finca Experimental Cerritos para la conservación de ecosistemas y especies del bosque húmedo tropical, que se desarrollarán según se permita de conformidad con la sectorización establecida en el presente Decreto Ejecutivo:
+a) Fomentar la conservación del ecosistema y especies de bosque húmedo tropical, mediante un modelo representativo y replicable de protección hacia especies indicadoras, especies sombrilla, especies bandera, especies focales; tipos de biomas y procesos ecológicos propios de la ecorregión.
+b) Generar un espacio de interés científico para la experimentación como mecanismo para la protección efectiva de la biodiversidad ecorregional.
+c) Generar un modelo de desarrollo regenerativo bajo gestión colaborativa que integre de forma armoniosa, la protección y uso racional de los diferentes elementos de la diversidad biológica, incluyendo el conocimiento, las tradiciones y la innovación.
+d) Manejar los recursos naturales y ecosistemas presentes, bajo criterio técnico y científico, de manera que logren mantener sus atributos ecológicos clave y la provisión de los servicios ecosistémicos.
+e) Brindar protección especial y usar sosteniblemente, el recurso hídrico y los sistemas acuáticos presentes en el sitio.

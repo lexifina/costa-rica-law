@@ -1,0 +1,2 @@
+Artículo 7º—Ordenamiento Ambiental. Las Actividades que se realicen en el marco de los objetivos establecidos en el presente Decreto Ejecutivo, deberán respetar el actual uso de suelo existente de los diferentes sectores del inmueble.
+Se exceptúan de la presente disposición, las áreas destinadas a plantaciones forestales que podrán ser aprovechadas y en las que posteriormente se podrán establecer nuevas plantaciones forestales o restablecer ecosistemas de bosque húmedo tropical, mediante regeneración natural o bajo técnicas de restauración o rehabilitación.

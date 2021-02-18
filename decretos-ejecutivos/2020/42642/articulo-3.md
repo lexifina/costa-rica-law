@@ -1,0 +1,3 @@
+Artículo 3º—Régimen. La Finca Experimental Cerritos para la conservación de ecosistemas y especies del bosque húmedo tropical, se conforma bajo un régimen de uso mixto según se detalla:
+a) Sector 1: Constituido por bosques, terrenos forestales y de aptitud forestal; constituyendo Patrimonio Natural del Estado. Para la realización y aprobación de actividades en este sector, rige con lo dispuesto en los artículos 18 y 18 Bis de la Ley Forestal N° 7575 y normativa conexa.
+b) Sector 2: Constituido por áreas sin cobertura forestal y con infraestructura. En este sector podrá desarrollarse actividades relacionadas con cualquiera de los objetivos establecidos en el presente Reglamento, siempre que bajo criterio técnico de la Administración resulte procedente.

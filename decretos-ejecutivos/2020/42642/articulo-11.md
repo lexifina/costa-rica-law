@@ -1,0 +1,1 @@
+Artículo 11.—Demarcación geográfica. El SINAC por medio del Área de Conservación Arenal Tempisque, realizará la demarcación geográfica de los sectores establecidos en el artículo 3° del presente Decreto Ejecutivo, lo anterior, en el plazo de 6 meses, contados a partir de la publicación de la presente norma.
