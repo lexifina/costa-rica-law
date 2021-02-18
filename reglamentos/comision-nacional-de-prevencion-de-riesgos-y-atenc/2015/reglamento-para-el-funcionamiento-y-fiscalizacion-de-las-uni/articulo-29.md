@@ -1,3 +1,0 @@
-Artículo 29.—Observaciones y/o Recomendaciones del Supervisor del Proyecto: La Unidad Ejecutora emitirá observaciones y recomendaciones al contratista, mismas que hará constar en el Cuaderno de Bitácora y de las cuales remitirá copia mediante oficio a la UGPR para su conocimiento.
-Es obligación del contratista acatar todos los lineamientos que se den durante la ejecución del proyecto por parte de la Unidad Ejecutora y de la UGPR.
-Cuando haya dudas sobre la calidad de los productos obtenidos, la Unidad Ejecutora solicitará a la UGPR que se ordene al contratista la toma de muestras, la realización de pruebas y los ensayos que sean pertinentes, bajo su control inmediato para asegurar la corrección del procedimiento y la veracidad de los resultados.

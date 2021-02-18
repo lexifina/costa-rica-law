@@ -1,1 +1,0 @@
-Artículo 37.—Aprobación de la orden de modificación: Una vez que se aprueba la orden de modificación deberá de incorporarse una copia en el expediente de la contratación, otra para el expediente del proyecto y enviarse una copia a la Unidad Ejecutora.

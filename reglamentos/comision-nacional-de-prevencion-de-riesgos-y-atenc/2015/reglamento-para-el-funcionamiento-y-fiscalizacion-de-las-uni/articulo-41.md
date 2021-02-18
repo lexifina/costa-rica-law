@@ -1,7 +1,0 @@
-CAPÍTULO VI
-Sección I
-Manejo de Recursos
-Artículo 41.—Administración de Recursos por Parte de las Unidades Ejecutoras: La CNE podrá facilitar en condición de préstamo a las Unidades Ejecutoras activos y suministros disponibles que sean necesarios para la adecuada ejecución de los planes de inversión, siempre y cuando esto no altere el normal funcionamiento de la CNE.
-El préstamo de bienes o activos deberá de ser consignado en contrato de préstamo, suscrito por la Presidencia de la CNE y el máximo jerarca de la Institución asignada como Unidad Ejecutora en el cual deberá de establecerse obligatoriamente la descripción y estado de los bienes o activos con su respectivo número de patrimonio, valor actualizado de este, plazo en el que regirá el préstamo, las posibles prorrogas y las responsabilidades de las partes, para lo cual, deberá nombrarse a una persona como su responsable.
-Los activos o bienes no podrán ser entregados hasta antes de que sea firmado el contrato de préstamo entre las partes.
-Una vez vencido el plazo y las posibles prorrogas, la Unidad Ejecutora deberá de gestionar la devolución de los activos o bienes que le hayan sido entregados en calidad de préstamo. La CNE verificará el estado de los mismos y emitirá un acta de recibo en la que consignará el cumplimiento a satisfacción o dejara constancia de los posibles daños sufridos. El acta deberá de ser firmada por ambas partes. En caso de desavenencia se consignará en el mismo documento el desacuerdo.

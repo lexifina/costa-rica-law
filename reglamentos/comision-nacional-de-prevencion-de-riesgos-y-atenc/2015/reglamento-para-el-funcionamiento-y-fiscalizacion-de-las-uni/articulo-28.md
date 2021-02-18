@@ -1,1 +1,0 @@
-Artículo 28.—Normas de Construcción: En trabajos u obras viales, se aplicarán las especificaciones contenidas en el cartel, subsidiariamente, se aplicarán las Especificaciones Generales para la Construcción de Caminos, Carreteras y Puentes CR-2010; así como todas las normas vigentes según el tipo de proyecto.

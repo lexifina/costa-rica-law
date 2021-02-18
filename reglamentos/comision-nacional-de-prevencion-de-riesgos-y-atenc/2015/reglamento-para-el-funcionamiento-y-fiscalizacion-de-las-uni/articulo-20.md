@@ -1,1 +1,0 @@
-Artículo 20.—Ampliación de información: La Unidad Ejecutora está obligada a remitir cualquier informe, documento o aclaración adicional que la UGPR estime conveniente para mantener la información de la ejecución del proyecto claro y de fácil acceso.

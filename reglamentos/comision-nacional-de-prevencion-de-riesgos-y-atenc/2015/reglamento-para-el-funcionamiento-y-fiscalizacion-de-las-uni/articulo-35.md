@@ -1,1 +1,0 @@
-Artículo 35.—Contrato Adicional: Si ejecutado un contrato, la Administración requiere suministros o servicios de igual naturaleza, podrá obtenerlos del mismo contratista, siempre que éste lo acepte y se cumplan las condiciones establecidas en el numeral 201 del Reglamento a la Ley de Contratación Administrativa, de aplicación supletoria.
