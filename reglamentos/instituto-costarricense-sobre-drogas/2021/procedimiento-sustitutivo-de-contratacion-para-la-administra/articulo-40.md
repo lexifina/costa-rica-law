@@ -1,0 +1,1 @@
+Artículo 40.—Resolución de disposición de animales. De acuerdo con la puja realizada durante el evento, el Jefe de la URA o la jefatura del área administrativa de la URA dictará la resolución fundamentada de disposición de animales tomando en consideración la factura de la subasta.

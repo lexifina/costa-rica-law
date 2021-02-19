@@ -1,0 +1,4 @@
+Título Cuarto
+Procedimiento de venta de animales
+Artículo 35.—Venta de animales. Acorde a lo dispuesto a los artículos 32 de la Ley N° 8754, Ley contra la delincuencia organizada, y 88 de la Ley N° 8204, Ley sobre Estupefacientes, Sustancias Psicotrópicas, Drogas de uso no autorizado, actividades conexas, legitimación de capitales y financiamiento al terrorismo, y por existir reglamentación especifica con relación a la forma de disposición de los animales en pie, la URA podrá disponer mediante subasta pública la venta de los animales de interés económico, que por su naturaleza y cualidades sean de venta lícita y transables en el mercado nacional.
+Entiéndase por subasta todo establecimiento que comercialice públicamente animales bovinos, equinos, mulares, bubalus, caprinos y ovinos, de diferente origen, por cuenta propia y ajena.
