@@ -1,1 +1,0 @@
-Artículo 31.—Las resoluciones referidas, serán comunicadas a la dependencia de Recursos Humanos, al interesado y al Jefe de Recursos Humanos, a fin de que se tramite la respectiva acción de personal en que se haga efectivo el incentivo por Carrera Profesional.

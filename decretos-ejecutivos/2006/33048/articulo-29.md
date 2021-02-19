@@ -1,2 +1,0 @@
-Artículo 29.—Los servidores que estuvieren disfrutando del incentivo por concepto de carrera profesional y que por alguna razón se trasladasen a otra institución o empresa públicas, mantendrán el derecho a que se actualice el incentivo siempre y cuando continúen ocupando un puesto de nivel profesional y aporten los documentos probatorios de tal situación.
-En estos casos la fecha de vigencia será a partir de la fecha rige de su nombramiento en el Poder Ejecutivo, para garantizar la continuidad del beneficio.

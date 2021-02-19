@@ -1,1 +1,0 @@
-Artículo 33.—Los profesionales que estén disfrutando de la Carrera Profesional, o que ocupen actualmente un puesto profesional en propiedad y su formación académica no sea atinente a la especialidad del puesto, mantendrán el derecho a disfrutar de los beneficios de la Carrera Profesional.
