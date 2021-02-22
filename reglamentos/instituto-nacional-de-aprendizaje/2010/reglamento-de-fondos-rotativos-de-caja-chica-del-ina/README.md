@@ -24,3 +24,4 @@ Reglamento de Fondos Rotativos de Caja Chica del INA
 | 9 | 2018-09-12 | Reglamento municipal 4863 (2018-09-12) |
 | 10 | 2019-03-11 | Reglamento 10 (2019-03-11) |
 | 11 | 2020-03-09 | Reglamento 8 (2020-03-09) |
+| 12 | 2021-02-22 | Reglamento 6 (2021-02-22) |
