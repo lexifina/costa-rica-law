@@ -1,0 +1,1 @@
+Artículo 16.—Vigencia. En los términos de artículo 43 del Código Municipal, la vigencia del presente reglamento se supedita a su efectiva publicación en el Diario Oficial La Gaceta por una única vez, al tratarse de una disposición reglamentaria interna.
