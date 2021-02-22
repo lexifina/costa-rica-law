@@ -23,3 +23,4 @@ Reglamento de Fondos Rotativos de Trabajo, Caja Chica y Viáticos del Instituto 
 | 8 | 2018-09-12 | Reglamento municipal 4863 (2018-09-12) |
 | 9 | 2019-03-11 | Reglamento 10 (2019-03-11) |
 | 10 | 2020-03-09 | Reglamento 8 (2020-03-09) |
+| 11 | 2021-02-22 | Reglamento 6 (2021-02-22) |
