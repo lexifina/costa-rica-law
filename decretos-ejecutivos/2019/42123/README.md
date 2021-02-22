@@ -15,3 +15,4 @@ Reglamento para el otorgamiento, uso y control de pasaportes diplomáticos y pas
 | --- | --- | --- |
 | 1 | 2020-02-07 | la propia norma |
 | 2 | 2020-08-19 | Decreto Ejecutivo 42594 (2020-08-19) |
+| 3 | 2021-02-22 | Decreto Ejecutivo 42871 (2021-02-22) |

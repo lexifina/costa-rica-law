@@ -22,7 +22,7 @@ h. Aportar certificado de discapacidad extendido mediante el Servicio de Certifi
 i. Devolución del pasaporte agotado o vencido, cuando corresponda, al Departamento de Pasaportes, para la expedición de uno nuevo y su respectiva custodia.
 Sin embargo, por razones excepcionales el Viceministro Administrativo del Ministerio de Relaciones Exteriores y Culto podrá dispensar temporalmente de este requisito, mediante justificación por escrito.
 j. Para funcionarios de Organismos Internacionales con domicilio laboral en el exterior, aportar copia del Convenio Internacional y copia del contrato de servicios o una certificación de la Oficina de Recursos Humanos del Organismo Internacional, donde deberá constar la vigencia y rige de la relación laboral.
-k. Los funcionarios consulares que, para su acreditación, conforme a las normas y costumbres del país receptor requieran de pasaporte diplomático, deberá aportar el requerimiento expreso del país receptor.
+k. (Eliminado por el artículo 2° del decreto ejecutivo N° 42871 del 22 de febrero del 2021)
 l. En caso de extravío, robo o hurto del pasaporte, deberá aportarse copia simple de la denuncia ante el Ministerio Público, en la cual se indique el número de pasaporte, el nombre y número de cédula de la persona titular.
 m. Manifestación expresa mediante declaración jurada en la que indique no ser deudor alimentario.
 n. El escrito de autorización mencionado en el inciso "f' y las declaraciones juradas mencionadas en los incisos "g" y "m", podrán realizarse concurriendo al Departamento de Pasaportes del Ministerio de Relaciones Exteriores y Culto, funcionario consular, o notario público.
