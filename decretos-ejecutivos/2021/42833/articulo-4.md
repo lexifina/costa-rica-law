@@ -1,0 +1,1 @@
+Artículo 4- Fiscalización. El Ministerio de Salud tendrá a su cargo la fiscalización y vigilancia del cumplimiento de todo lo establecido en el presente reglamento, a través de la Dirección de Protección Radiológica y Salud Ambiental.

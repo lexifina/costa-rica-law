@@ -1,0 +1,1 @@
+Artículo 6º.- Infracciones. Las infracciones a las disposiciones del presente reglamento serán sancionadas de conformidad con lo dispuesto en el artículo 50, inciso d) de la Ley Nº 8839 del 24 de junio del 2010 “Ley para la Gestión Integral de Residuos”.

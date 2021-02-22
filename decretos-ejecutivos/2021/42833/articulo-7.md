@@ -1,0 +1,1 @@
+Artículo 7°. - No estarán sujetos a la prohibición de importación del artículo 5º los materiales que ingresen al país durante los primeros tres meses de vigencia del presente reglamento, o que hayan sido despachados de su país de origen durante dicho plazo.
