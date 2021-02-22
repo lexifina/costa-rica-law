@@ -1,0 +1,1 @@
+Artículo 17.—Posibilidad de compartir pantalla. Solo los funcionarios y las funcionarias de la Secretaría estarán habilitados para compartir su pantalla, con excepción de que el Presidente del Concejo avale que algún miembro del Concejo, el Alcalde, vicealcalde o participante autorizado, comparta información.

@@ -1,0 +1,1 @@
+Artículo 19.—Sobre el uso del chat. El uso del chat de la plataforma será exclusivo para los miembros del Concejo, y quedará almacenado dentro de los archivos que se generen de la sesión a través de la plataforma.

@@ -1,0 +1,1 @@
+Artículo 13.—En el caso de las juramentaciones y homenajes, la Presidencia podrá ejecutar el acto correspondiente, ya sea de forma presencial, en la sala de sesiones, o remotamente, por medio de la plataforma virtual, para lo cual la Secretaría, en caso de requerirse, enviará el enlace a la persona que será parte de la juramentación u homenaje.

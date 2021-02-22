@@ -1,0 +1,1 @@
+Artículo 12.—Durante las sesiones virtuales, el Presidente Municipal y el equipo de la Secretaría del Concejo podrán permanecer en el Salón de sesiones, guardando las medidas sanitarias correspondientes.
