@@ -54,3 +54,4 @@ Comunica emisión de resoluciones de la Dirección General del Servicio Civil:(D
 | 39 | 2020-07-24 | Resolución 9 (2020-07-24) |
 | 40 | 2020-09-24 | Resolución 11 (2020-09-24) |
 | 41 | 2021-01-08 | Resolución 1 (2021-01-08) |
+| 42 | 2021-02-22 | Resolución 2 (2021-02-22) |
