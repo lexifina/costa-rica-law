@@ -13,3 +13,4 @@ Se reproduce por error la Circular 108-2019 sobre la retención del 2% sobre el 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-08-14 | la propia norma |
+| 2 | 2021-02-22 | Circular 41 (2021-02-22) |
