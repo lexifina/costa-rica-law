@@ -1,0 +1,1 @@
+ARTÍCULO 3- Recuperación y manejo de enjambres y colmenas silvestres. Al Servicio Nacional de Salud Animal (SENASA) le corresponderá la recuperación y el manejo de enjambres y colmenas silvestres, de acuerdo con los lineamientos y protocolos que al efecto establezca.
