@@ -16,3 +16,4 @@ Procedimiento para la solicitud de homologación y autorización de empresas enc
 | 1 | 2018-01-25 | la propia norma |
 | 2 | 2018-03-15 | Resolución 10 (2018-03-15) |
 | 3 | 2018-07-18 | Resolución 20 (2018-07-18) |
+| 4 | 2021-02-22 | Resolución 76 (2021-02-22) |
