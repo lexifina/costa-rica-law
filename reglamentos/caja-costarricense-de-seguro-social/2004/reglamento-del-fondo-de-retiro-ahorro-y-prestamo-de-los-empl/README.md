@@ -18,3 +18,4 @@ Reglamento del Fondo de Retiro Ahorro y Préstamo de los Empleados de la Caja Co
 | 3 | 2007-11-15 | Reglamento 8202 (2007-11-15) |
 | 4 | 2008-03-13 | Reglamento 8234 (2008-03-13) |
 | 5 | 2008-06-12 | Reglamento 8257 (2008-06-12) |
+| 6 | 2021-02-23 | Reglamento 9158 (2021-02-23) |
