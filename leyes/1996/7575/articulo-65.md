@@ -1,35 +1,16 @@
-ARTICULO 65.- Remate de productos decomisados
-Las infracciones de esta ley se denunciarán ante la autoridad
-judicial competente y, si se decomisa madera u otros productos
-forestales, la referida autoridad, previo avalúo realizado por la
-Administración Forestal del Estado, los rematará en subasta pública,
-dentro de un plazo no mayor de un mes contado a partir de la fecha en que
-se interpuso la denuncia. Esos productos forestales no podrán subastarse
-por un valor menor al fijado por la Administración Forestal del Estado.
-Si transcurrido ese plazo, no se ha rematado la madera o los
-recursos forestales, cualquier persona podrá aprovecharlos, previo
-depósito, en el Tribunal, del valor asignado por la Administración
-Forestal.
-El producto del remate se depositará en la cuenta de la autoridad
-judicial correspondiente, mientras se define el proceso respectivo. Si el
-indiciado resulta absuelto, se le entregará el dinero; en caso contrario,
-el cincuenta por ciento (50%) le corresponderá a la Administración
-Forestal del Estado y el otro cincuenta por ciento (50%), a las
-municipalidades del lugar donde se encuentre el fundo del cual se extrajo
-la materia prima o donde se ubique la industria o a la asociación de
-indígenas, si es una en reserva indígena, para destinarlo al desarrollo
-de proyectos forestales; todo sin perjuicio de las responsabilidades
-penales que se determinen para los infractores.
-Se autoriza al Ministerio del Ambiente y Energía para que, por medio
-de la Administración Forestal, done al Ministerio de Educación Pública la
-madera que llegue a su poder como resultado de un desastre natural o por
-ampliación de carreteras, siempre que los propietarios sean desconocidos.
-También donará la decomisada, una vez firme la sentencia condenatoria, y
-que no haya sido adjudicada en remate ni solicitada por persona alguna
-con los requisitos de ley.
-El Ministerio de Educación Pública destinará esa madera a fabricar
-mobiliario o reparar infraestructura en escuelas y colegios públicos o
-utilizarla como materia prima en las asignaturas de ebanistería, torno,
-carpintería y otras que impartan escuelas y colegios estatales.
-( Así adicionados estos dos últimos párrafos por el artículo 1º,
-inciso b), de la ley Nº 7609 de 11 de junio de 1996)
+Artículo 65- Disposición de productos decomisados Las infracciones de esta ley se denunciarán ante la autoridad judicial competente y, si se decomisa madera u otros productos forestales, la referida autoridad, previo avalúo realizado por la Administración Forestal del Estado, los rematará en subasta pública dentro de un plazo no mayor a un mes contado a partir de la fecha en que se interpuso la denuncia. Esos productos forestales no podrán subastarse por un valor menor al fijado por la Administración Forestal del Estado.
+Si transcurrido ese plazo no se ha rematado la madera o los recursos forestales, cualquier persona podrá aprovecharlos previo depósito, en el tribunal, del valor asignado por la Administración Forestal,
+El producto del remate se depositará en la cuenta de la autoridad judicial correspondiente, mientras se define el proceso respectivo. Si el indiciado resulta absuelto, se le entregará el dinero; en caso contrario, el cincuenta por ciento (50%) le corresponderá a la Administración Forestal del Estado y el otro cincuenta por ciento (50%) a las municipalidades del lugar donde se encuentre el fundo del cual se extrajo la materia prima o donde se ubique la industria o a la autoridad de la comunidad indígena, si es un territorio indígena, para destinarlo al desarrollo de proyectos en beneficio de la comunidad; todo sin perjuicio de las responsabilidades penales que se determinen para los infractores.
+En caso de madera que llegue al poder del Ministerio de Ambiente y Energía (Minae) como resultado de un desastre natural o por ampliación o mantenimiento de carreteras, sean estas rutas nacionales o cantonales, siempre que los propietarios del recurso forestal sean desconocidos, o de madera decomisada que no haya sido adjudicada en remate o adquirida según las disposiciones de este artículo, una vez firme la sentencia condenatoria, el Ministerio de Ambiente y Energía queda autorizado para:
+a) Aprovechar dicha madera en obras requeridas para el mejoramiento de infraestructura en las áreas silvestres protegidas.
+b) Donar al Ministerio de Educación Pública (MEP) dicha madera, previa solicitud de los interesados.
+c) En caso de que existan remanentes de madera no requerida por el Ministerio de Educación Pública, se autoriza al Ministerio de Ambiente y Energía para que done esta madera remanente a organizaciones sin fines de lucro que la soliciten.
+Las solicitudes de donación, por parte de las organizaciones sin fines de lucro, deberán cumplir los siguientes requisitos:
+1) Aportar la personería jurídica vigente.
+2) Presentar un plan detallado sobre el uso específico al que será sujeta la madera o los recursos forestales.
+3) Aportar una nota en la que se manifieste no poseer vínculos con partidos políticos.
+4) Si anteriormente ha recibido alguna donación de este tipo, deberá aportar un informe de rendición de cuentas sobre el uso dado a dicha donación.
+El Ministerio de Ambiente y Energía deberá verificar que la organización solicitante esté al día en sus obligaciones tributarias y obligaciones con la Caja Costarricense de Seguro Social (CCSS) y el Fondo de Desarrollo Social y Asignaciones Familiares (Fodesaf).
+Las organizaciones sin fines de lucro que hayan recibido este tipo de donación e incumplan el uso específico de la madera o los recursos forestales, citado en la solicitud, deberán reintegrar el valor comercial de la donación al Estado.
+El Ministerio de Educación Pública destinará esa madera a fabricar mobiliario o reparar infraestructura en escuelas y colegios públicos o a utilizarla como materia prima en las asignaturas de ebanistería, torno, carpintería y otras que impartan escuelas y colegios estatales, mientras que las organizaciones sin fines de lucro la destinará al cumplimiento de sus objetivos.
+(Así reformado por el artículo único de Ley para el aprovechamiento de los productos decomisados por medio de la Ley N° 7575, N° 9927 del 18 de diciembre del 2020)
