@@ -19,3 +19,4 @@ Reglamento de Operación de Caja Chica Junta Administrativa de la Imprenta Nacio
 | 4 | 2015-10-07 | Reglamento 31 (2015-10-07) |
 | 5 | 2016-06-01 | Reglamento 19 (2016-06-01) |
 | 6 | 2016-11-29 | Reglamento 41 (2016-11-29) |
+| 7 | 2021-02-23 | Reglamento 6 (2021-02-23) |
