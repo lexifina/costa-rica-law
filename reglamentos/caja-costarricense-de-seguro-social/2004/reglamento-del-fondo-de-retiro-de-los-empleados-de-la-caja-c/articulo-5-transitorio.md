@@ -1,0 +1,2 @@
+Transitorio 1°-Todos los casos de otorgamiento del beneficio que se encuentren pendientes de resolver y los que se presentaren en el curso de los 18 meses contados a partir de la vigencia de la presente reforma reglamentaria, por su publicación en La Gaceta, se mantendrán para así garantizar los derechos adquiridos.
+(Así adicionado en sesión N° 9158 del 23 de febrero del 2021. No obstante en dicha normativa ya existen los transitorios 1, 2, 3 y 4, por lo que se ha adicionado como un transitorio N° 5).

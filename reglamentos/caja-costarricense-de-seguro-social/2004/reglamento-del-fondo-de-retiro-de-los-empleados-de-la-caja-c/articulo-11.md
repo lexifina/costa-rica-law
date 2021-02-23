@@ -1,7 +1,6 @@
 De las Inversiones
-Artículo 11.—Los recursos del FRE deberán invertirse en las mejores condiciones de seguridad, rentabilidad y liquidez, de acuerdo con lo que establece la Sección V de la Ley Constitutiva de la Caja y el Título VI de la Ley de Protección al Trabajador. En todo caso la colocación de recursos deberá contar con la recomendación expresa del Comité de Inversiones y se ajustará a los reglamentos emitidos por el Consejo Nacional de Supervisión del Sistema Financiero y a las directrices dictadas por la Superintendencia de Pensiones (SUPEN).
-El Comité de Inversiones estará integrado de la siguiente manera:
-a) Dos representantes de la Caja con formación y experiencia en materia de inversiones.
+Artículo 11.-Los recursos del FRE deberán invertirse en las mejores condiciones de seguridad, rentabilidad y liquidez, de acuerdo con lo que establece la Sección V de la Ley Constitutiva de la Caja y el Título VI de la Ley de Protección al Trabajador. En todo caso la colocación de recursos deberá contar con la recomendación expresa del Comité de Inversiones y se ajustará a los reglamentos emitidos por el Consejo Nacional de Supervisión del Sistema Financiero y a las directrices dictadas por la Superintendencia de Pensiones (SUPEN).
+El Comité de Inversiones estará integrado por cinco miembros de la siguiente manera:
+a) cuatro (4) representantes de la Caja Costarricense de Seguro Social con experiencia materia económica, financiera e inversiones de los cuales dos serán representantes uno de la Gerencia Financiera y uno de la Gerencia de Pensiones, los otros dos se seleccionarán a lo interno de la Junta Administrativa del Fondo.
 b) Un profesional externo a la Institución, experto en el tema de las inversiones, con total independencia del FRE y que reúna los requisitos exigidos por la Superintendencia de Pensiones (SUPEN) para tales fines.
-c) El Director Ejecutivo del Fondo.
-(Así reformado mediante sesión Nº 8234 de 13 de marzo del año 2008).
+(Así reformado en sesión N° 9158 del 23 de febrero del 2021)
