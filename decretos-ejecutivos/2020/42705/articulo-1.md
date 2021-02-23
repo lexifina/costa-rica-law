@@ -18,4 +18,5 @@ Por tanto,
 DECRETAN
 Declarar estado de emergencia nacional por la situación provocada por los efectos del
 Huracán ETA
-Artículo 1.- Se declara estado de emergencia nacional por la situación provocada por los efectos del Huracán ETA, en los siguientes cantones: provincia de San José: Desamparados, Puriscal, Tarrazú, Dota, Pérez Zeledón y León Cortés; provincia de Guanacaste: Nicoya, Nandayure y Hojancha; provincia de Puntarenas: Buenos Aires, Osa, Quepas, Golfito, Coto Brus, Parrita, Corredores y Garabito.
+Artículo 1.- Se declara estado de emergencia nacional por la situación provocada por los efectos del Huracán ETA, en los siguientes cantones: provincia de San José: Desamparados, Puriscal, Tarrazú, Dota, Pérez Zeledón, León Cortés, Aserrí, Mora y Acosta; provincia de Guanacaste: Nicoya, Nandayure, Hojancha, Santa Cruz y La Cruz; provincia de Puntarenas: Buenos Aires, Osa, Quepos, Golfito, Coto Brus, Parrita, Corredores, Garabito y el Distrito de Cóbano del Cantón de Puntarenas.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 42875 del 23 de febrero del 2021)
