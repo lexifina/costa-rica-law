@@ -1,1 +1,1 @@
-Artículo 12.—Todo arqueo de caja chica se realizará en presencia del Encargado del Fondo, el cual tendrá el derecho de pedir una segunda verificación si tiene dudas sobre el resultado obtenido.
+Artículo 12.-Todo arqueo de caja chica se realizará en presencia del Encargado del Fondo, el cual tendrá el derecho de pedir una segunda verificación si tiene dudas sobre el resultado obtenido.
