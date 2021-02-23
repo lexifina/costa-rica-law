@@ -1,1 +1,0 @@
-Artículo 5°.-La Junta Administrativa será nombrada por la respectiva municipalidad conforme con la legislación vigente y cumplirá las funciones y atribuciones que al efecto señala el Código de Educación.

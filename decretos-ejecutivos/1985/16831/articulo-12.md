@@ -1,1 +1,0 @@
-Artículo 12°.-Los servicios que ofrezca el Instituto se brindarán tanto en sus instalaciones físicas como fuera de ellas, haciendo uso de las técnicas y recursos de rehabilitación que brinde la comunidad y organismos públicos y privados afines.

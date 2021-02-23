@@ -1,1 +1,0 @@
-Artículo 3°.-Además de las funciones anotadas el Instituto Helen Keller tendrá funciones de investigación, experimentación y capacitación de personal docente de las áreas pre-vocacional y vocacional de Educación Especial.
