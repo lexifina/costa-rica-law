@@ -1,1 +1,0 @@
-Artículo 25.—El equipo base del Comité de Promoción Cultural y de Administración será el encargado de aprobar, rechazar o postergar la fecha de actividad, usando como criterios el reglamento del centro cultural así como la agenda del local, el tipo de actividad y el tipo de grupo que solicita.

@@ -1,1 +1,0 @@
-Artículo 19.—El equipo de asesores culturales se reunirá semestralmente con el equipo base de promoción y administración para la planeación de las actividades a desarrollar por el Centro Cultural. Dependiendo del desarrollo de las actividades que se realicen el equipo base de promoción y administración podrá invitar a los asesores culturales a sus reuniones.

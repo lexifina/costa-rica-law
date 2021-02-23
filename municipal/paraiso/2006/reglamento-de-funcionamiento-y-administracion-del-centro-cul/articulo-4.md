@@ -1,1 +1,0 @@
-Artículo 4º—El Comité de Promoción Cultural y de Administración del Centro Cultural Paraiseño es el encargado de velar por el cumplimiento de sus objetivos, de administrar el salón de actividades y de elaborar los planes semestrales de trabajo, de los cuales se informará al Consejo Municipal para su conocimiento.

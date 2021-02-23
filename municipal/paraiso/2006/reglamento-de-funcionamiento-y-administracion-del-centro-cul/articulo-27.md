@@ -1,1 +1,0 @@
-Artículo 27.—El equipo base del comité fijara el monto mínimo de la contribución voluntaria de alquiler semestralmente o podrá fijar un porcentaje de ganancias por cada entrada que se venda para sufragar los gastos de mantenimiento y mejoras del local.
