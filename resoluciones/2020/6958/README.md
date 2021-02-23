@@ -23,3 +23,4 @@ Ordena la suspensión temporal de aquellas actividades que favorezcan el surgimi
 | 8 | 2021-01-26 | Resolución 1315 (2021-01-26) |
 | 9 | 2021-02-09 | Resolución 1497 (2021-02-09) |
 | 10 | 2021-02-23 | Resolución 1700 (2021-02-23) |
+| 11 | 2021-02-23 | Resolución 1701 (2021-02-23) |
