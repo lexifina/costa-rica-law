@@ -45,8 +45,8 @@ A. Podrán funcionar de lunes a domingo sin restricción horaria:
 (Así reformado el punto anterior mediante resolución N° MS-DM-1315-2021 del 26 de enero del 2021)
 41. Comercios dentro de las terminales nacionales e internacionales del Aeropuerto Internacional Juan Santamaría y Daniel Oduber, con una capacidad de ocupación al cincuenta por ciento (50%).
 42. Todos aquellos otros establecimientos con permiso sanitario de funcionamiento que no brinden atención al público presencial.
-B. Podrán operar de lunes a domingo de las 5:00 horas a las 22:00 horas, con aforo diferenciado:
-(Así reformado el inciso anterior mediante resolución N° MS-DM-1315-2021 del 26 de enero del 2021)
+B. Podrán operar de lunes a domingo de las 5:00 horas a las 23:00 horas, con aforo diferenciado:
+(Así reformado el inciso anterior mediante resolución N° MS-DM-1700-2021 del 23 de febrero del 2021)
 1. Modalidad de autoservicio al público, entiéndase la misma como el retiro de productos permaneciendo dentro del vehículo.
 2. Modalidad de retiro de comida en establecimiento para llevar.
 3. Turismo aventura, con utilización obligatoria de mascarilla o careta mientras se coloca y se retira el equipo de seguridad para realizar la actividad, y respetando las burbujas sociales.

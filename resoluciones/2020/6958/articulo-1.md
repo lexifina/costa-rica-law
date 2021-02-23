@@ -43,26 +43,16 @@ A. Todas las actividades de concentración masiva que cuentan con o requieren de
 8. Turnos comunitarios.
 9. Actividades de entretenimiento en centros comerciales.
 10. Festival Internacional de Cine.
-11. Organización de convenciones y exposiciones comerciales.
-12. Festival Nacional de las Artes.
-B. Todos los sitios de reunión pública, que cuenten con su respectivo
-permiso sanitario de funcionamiento, a decir:
-1. Teatro Popular Mélico Salazar (salvo para transmisiones virtuales).
-2. Teatro Nacional (salvo para transmisiones virtuales y visitas guiadas con
-grupos no más de 10 personas).
-3. Juegos para niños ("plays"), parques de patinaje, parques de jumping,
-inflables y similares.
-4. Parque Diversiones.
-5. Parque Viva (salvo las carreras automovilísticas sin espectadores y el
-auto evento.)
-6. Discotecas.
-7. Clubes nocturnos (“Night Club”).
-8. Balnearios.
-9. Actividades y procesiones religiosas.
-10. Bingos.
-(Así reformada la disposición segunda anterior mediante resolución N° MS-DM-7344-2020 del 6 de octubre del 2020)
-TERCERO: Se resuelve ordenar a partir del 09 de setiembre de 2020, la apertura controlada con estricto cumplimiento de protocolos y medidas sanitarias para evitar la propagación del COVID-19, de los establecimientos que cuenten con permiso sanitario de funcionamiento que atienden al público, en un horario de lunes a domingo desde las 5:00 horas y hasta las 22:00 horas, respetando el cincuenta por ciento (50%) de su capacidad máxima de aforo. Se exceptúan de la restricción de horario y del cincuenta por ciento (50%) de su capacidad máxima de aforo las siguientes actividades:
-(Así reformado la disposición tercera anterior mediante resolución N° MS-DM-1315-2021 del 26 de enero del 2021)
+11. Festival Nacional de las Artes.
+B. Todos los sitios de reunión pública, que cuenten con su respectivo permiso sanitario de funcionamiento, a decir:
+1. Parque Diversiones.
+2. Discotecas.
+3. Clubes nocturnos (“Night Club”).
+4. Actividades y procesiones religiosas.
+5. Bingos.
+(Así reformada la disposición segunda anterior mediante resolución N° N° MS-DM-1700-2021 del 23 de febrero del 2021)
+TERCERO: Se resuelve ordenar a partir del 09 de setiembre de 2020, la apertura controlada con estricto cumplimiento de protocolos y medidas sanitarias para evitar la propagación del COVID-19, de los establecimientos que cuenten con permiso sanitario de funcionamiento que atienden al público, en un horario de lunes a domingo desde las 5:00 horas y hasta las 23:00 horas, respetando el cincuenta por ciento (50%) de su capacidad máxima de aforo. Se exceptúan de la restricción de horario y del cincuenta por ciento (50%) de su capacidad máxima de aforo las siguientes actividades:
+(Así reformado la disposición tercera anterior mediante resolución N° MS-DM-1700-2021 del 23 de febrero del 2021)
 1. Servicios a domicilio.
 2. Alquiler de vehículos “rent a car”.
 3. Alquiler de bicicletas.
@@ -80,8 +70,8 @@ TERCERO: Se resuelve ordenar a partir del 09 de setiembre de 2020, la apertura c
 14. La venta de loterías y productos de azar debidamente autorizados por la Junta de Protección Social.
 15. Instituciones públicas en general y municipios.
 16. Todos aquellos otros establecimientos con permiso sanitario de funcionamiento que no brinden atención al público presencial.
-CUARTO: Por la naturaleza de la actividad que desarrollan, la siguiente lista de establecimientos con permiso sanitario de funcionamiento que atienden al público, tendrán aforo diferenciado por burbujas sociales y distanciamiento físico de 1.8 metros en un horario de lunes a domingo desde las 5:00 horas y hasta las 22:00 horas, salvo para aquellos cantones en donde su Índice de Riesgo Cantonal (IRC) no permita desarrollar estas actividades, de conformidad con los anexos a la presente resolución:
-(Así reformado la disposición cuarta anterior mediante resolución N° MS-DM-1497-2021 del 9 de febrero del 2021)
+CUARTO: Por la naturaleza de la actividad que desarrollan, la siguiente lista de establecimientos con permiso sanitario de funcionamiento que atienden al público, tendrán aforo diferenciado por burbujas sociales y distanciamiento físico de 1.8 metros en un horario de lunes a domingo desde las 5:00 horas y hasta las 23:00 horas, salvo para aquellos cantones en donde su Índice de Riesgo Cantonal (IRC) no permita desarrollar estas actividades, de conformidad con los anexos a la presente resolución:
+(Así reformado la disposición cuarta anterior mediante resolución N° MS-DM-1700-2021 del 23 de febrero del 2021 )
 1. Modalidad de autoservicio al público, entiéndase la misma como el retiro de productos permaneciendo dentro del vehículo.
 2. Modalidad de retiro de comida en establecimiento para llevar.
 3. Cines y teatros con utilización obligatoria de mascarilla, y adicional la careta de forma opcional, con medidas de separación de asientos de mínimo 1.8 metros, respetando las burbujas sociales y con boletería o reserva electrónica.
@@ -96,6 +86,7 @@ CUARTO: Por la naturaleza de la actividad que desarrollan, la siguiente lista de
 9. Playas y lagos, con previa aprobación de protocolos por el ICT con cada municipio.
 (Nota de Sinalevi: Mediante resolución N° MS-DM-1314-2021 del 26 de enero del 2021 se reforma de forma temporal la franja horaria de la resolución MS-DM-69582020 y sus reformas, para que el horario de acceso a las playas a partir del 01 de febrero y hasta el 28 de febrero inclusive, sea desde las 5:00 horas y hasta las 18:00 horas)
 (Así reformado el inciso anterior por resolución N° MS-DM-8527-2020 del 14 de octubre del 2020)
+(Nota de Sinalevi: Mediante resolución N° MS-DM-1701-2021 del 23 de febrero del 2021 se reformará la franja horaria de las playas establecidas en la presente norma. De conformidad con el por tanto 4° de la indicada norma la misma empieza a regir el 1° de marzo del 2021 por lo que a partir de esa fecha se establecerá: “ Refórmese de forma temporal la franja horaria de la resolución MS-DM-6958-2020 y sus reformas, para que el horario de acceso a las playas a partir del 01 de marzo y hasta el 31 de marzo inclusive, sea desde las 5:00 horas y hasta las 18:00 horas”)
 10. Deportes individuales, al aire libre o en espacio cerrado, sin público, según lista autorizada por el Ministerio del Deporte.
 11. Deportes de contacto para entrenamiento de las Selecciones Nacionales Femenina y Masculina de alta competencia; y competencias de la categoría de alto rendimiento o profesional, a puerta cerrada y sin público, según lista autorizada por el Ministerio del Deporte.
 12. Deportes de Contacto para entrenamientos individuales sin contacto o acercamiento físico, según lista autorizada por el Ministerio del Deporte.

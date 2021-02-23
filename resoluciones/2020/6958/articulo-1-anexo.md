@@ -53,8 +53,8 @@ C. Podrán operar de lunes a domingo sin restricción horaria con una capacidad 
 (Así modificada la numeración del inciso anterior mediante resolución N° MS-DM-1315-2021 del 26 de enero del 2021, que lo traspasó del antiguo inciso 24 al 23, toda vez que se eliminó el inciso 21 original)
 24. Comercios dentro de las terminales nacionales e internacionales del Aeropuerto Internacional Juan Santamaría y Daniel Oduber.
 (Así modificada la numeración del inciso anterior mediante resolución N° MS-DM-1315-2021 del 26 de enero del 2021, que lo traspasó del antiguo inciso 25 al 24, toda vez que se eliminó el inciso 21 original)
-D. Podrán operar de lunes a domingo de las 5:00 horas a las 22:00 horas, con aforo diferenciado:
-(Así reformado el inciso d) anterior mediante resolución N° MS-DM-1315-2021 del 26 de enero del 2021)
+D. Podrán operar de lunes a domingo de las 5:00 horas a las 23:00 horas, con aforo diferenciado:
+(Así reformado el inciso d) anterior mediante resolución N° MS-DM-1700-2021 del 23 de febrero del 2021)
 1. Modalidad de autoservicio al público, entiéndase la misma como el retiro de productos permaneciendo dentro del vehículo.
 2. Modalidad de retiro de comida en establecimiento para llevar.
 3. Cines y teatros con utilización obligatoria de mascarilla, y adicional la careta de forma opcional, con medidas de separación de asientos de mínimo 1.8 metros, respetando las burbujas sociales y con boletería o reserva electrónica.
@@ -73,8 +73,8 @@ D. Podrán operar de lunes a domingo de las 5:00 horas a las 22:00 horas, con af
 12. Deportes de Contacto para entrenamientos individuales sin contacto o acercamiento físico, según lista autorizada por el Ministerio del Deporte.
 13. Parques públicos (parque urbano, parque recreativo, parques biosaludables y parques de calistenia).
 (Así reformado el inciso anterior mediante resolución N° MS-DM-8741-2020 del 29 de octubre del 2020)
-E. Podrán operar de lunes a domingo de las 5:00 horas a las 22:00 horas, con una capacidad de ocupación al cincuenta por ciento (50%):
-(Así reformado el inciso e) anterior mediante resolución N° MS-DM-1315-2021 del 26 de enero del 2021)
+E. Podrán operar de lunes a domingo de las 5:00 horas a las 23:00 horas, con una capacidad de ocupación al cincuenta por ciento (50%):
+(Así reformado el inciso e) anterior mediante resolución N° MS-DM-1700-2021 del 23 de febrero del 2021)
 1. Venta al por menor de vehículos automotores nuevos y usados.
 2. Gimnasios con programación de citas y horario diferenciado para personas con factores de riesgo.
 3. Escuelas de manejo.
@@ -93,3 +93,7 @@ E. Podrán operar de lunes a domingo de las 5:00 horas a las 22:00 horas, con un
 (Así adicionado el punto anterior mediante resolución N° MS-DM-7344-2020 del 6 de octubre del 2020)
 15. Bares.
 (Así adicionado el punto anterior mediante resolución N° MS-DM-7344-2020 del 6 de octubre del 2020)
+16. Juegos para niños ("plays"), parques de patinaje, parques de jumping, inflables y similares.
+(Así adicionado el punto 16) anterior mediante resolución N° MS-DM-1700-2021 del 23 de febrero del 2021)
+17. Balnearios.
+(Así adicionado el punto 17) anterior mediante resolución N° MS-DM-1700-2021 del 23 de febrero del 2021)
