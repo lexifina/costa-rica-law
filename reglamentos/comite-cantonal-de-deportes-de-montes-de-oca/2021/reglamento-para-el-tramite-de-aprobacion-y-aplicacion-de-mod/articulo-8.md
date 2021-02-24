@@ -1,0 +1,1 @@
+Artículo 8º—Trámite interno. El documento de modificación presupuestaria revisado, identificado y aprobado se trasladará a la Contabilidad para que efectúe el procedimiento de reserva e inclusión en el Sistema de Control de Presupuesto, con el fin de aplicar la ejecución de la modificación.

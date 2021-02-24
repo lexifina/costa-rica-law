@@ -1,0 +1,1 @@
+Artículo 3º—Ámbito de aplicación. Este Reglamento será aplicable a cualquier documento de modificación presupuestaria, de cualquier nivel de partida, subpartida o programa que se tramite por el Superior Jerárquico del Comité Cantonal de Deportes y Recreación de Montes de Oca.

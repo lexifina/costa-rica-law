@@ -1,0 +1,1 @@
+Artículo 10.—Custodia del expediente. La custodia del expediente del documento de modificación presupuestaria es responsabilidad de la unidad administrativa del Comité Cantonal de Deportes y Recreación de Montes de Oca.

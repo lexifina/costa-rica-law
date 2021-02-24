@@ -1,0 +1,1 @@
+Artículo 6º—Aprobación. La aprobación de las modificaciones al presupuesto de egresos del Comité Cantonal de Deportes y Recreación de Montes de Oca corresponderá únicamente al Superior Jerárquico, Junta Directiva del Comité Cantonal de Deportes y Recreación de Montes de Oca.

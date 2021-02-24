@@ -1,0 +1,1 @@
+Artículo 9º—Responsabilidad administrativa. Todos los intervinientes en el proceso de revisión y aprobación del documento de modificación presupuestaria, según su participación en el proceso de trámite del mismo, son responsables de velar por que los documentos que tramiten cumplan con el procedimiento establecido en este reglamento y con el marco legal que se le aplica.
