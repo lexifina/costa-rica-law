@@ -1,2 +1,5 @@
-Artículo 25. Auditorías Externas
-La empresa deberá presentar anualmente al CCAP y pasivos los estados financieros en los términos definidos por dicho Comité.
+Artículo 25.-Auditorías Externas y otra información. La empresa o esquema de inversión beneficiaria del aval o la inversión del SBD deberá presentar anualmente al CCAP los estados financieros en los términos definidos por dicho Comité.
+El Comité determinará en cada caso si se requiere un informe anual tradicional, o bien implementar algún otro tipo como el informe integrado, que pueda resultar más económico y que incorpore solo cierta información financiera, lo cual se valorará dependiendo del monto invertido por el SBD y las características de las empresas.
+Se podrá autorizar adicionalmente el uso de fondos de servicios de desarrollo empresarial para las empresas, de manera que puedan ser utilizados para financiar la contratación de la auditoría externa, asesorías o requerimientos de control que requieran y que sean debidamente aprobadas.
+La selección de las firmas auditoras debe formar parte del Registro de Auditores de la Superintendencia General de Valores.
+Adicionalmente, las empresas y esquemas de inversión deberán presentar cualquier información que les requiera el CCAP para el ejercicio de sus funciones de seguimiento para efectos del aval o de la inversión.

@@ -14,3 +14,4 @@ Lineamientos para el apoyo a proyectos de capital de riesgo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-02-24 | la propia norma |
+| 2 | 2021-02-24 | Reglamento 2 (2020-12-16) |
