@@ -1,0 +1,3 @@
+CONCEJO MUNICIPAL DE SARAPIQUÍ
+Acuerdo tomado por el Concejo Municipal de Sarapiquí, en Sesión Ordinaria Nº 41-2020-2024, Artículo 3, celebrada el 08 de febrero de 2021; que a la letra dispone:
+Acuerdo 1º—El Concejo Municipal de Sarapiquí acuerda con votación de siete votos afirmativos de la totalidad de los miembros que integran ese Órgano adherirse al Manual de Valores Base Unitario por Tipología Constructiva 2019 y su posterior publicación en el Diario Oficial La Gaceta conforme a lo establecido por el Órgano de Normalización Técnica del Ministerio de Hacienda para la Municipalidad de Sarapiquí según como lo recomienda Cristina Martínez López, Unidad de Gestión Financiera Tributaria mediante oficio DFT-011-2021. Acuerdo definitivamente aprobado.
