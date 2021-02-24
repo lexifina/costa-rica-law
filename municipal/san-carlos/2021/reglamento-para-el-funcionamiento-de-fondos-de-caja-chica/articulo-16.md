@@ -1,0 +1,7 @@
+Artículo 16.—Requisitos para Compras. En atención a las erogaciones autorizadas por el Fondo Fijo de Caja Chica para compras de bienes y/o servicios los funcionarios responsables, deberán observar los siguientes requisitos, sin perjuicio de otros establecidos en la normativa vigente sobre la materia:
+a) Evaluar la necesidad y urgencia de realizar compras por Fondo Fijo de Caja Chica.
+b) Que el bien o el servicio solicitado corresponda a las subpartidas presupuestadas y autorizadas para realizar erogaciones por el Fondo Fijo de Caja Chica.
+c) Seleccionar el proveedor de los bienes y/o servicios en procura del mayor beneficio institucional en cuanto a precio y calidad, basados en accesibilidad, cercanía y disponibilidad.
+d) Se deberá verificar por parte de Proveeduría la veracidad de los datos consignados en los documentos, la urgencia y necesidad que justifica la compra mediante el fondo de caja chica, la correspondencia del importe y el límite de gasto. En caso de no cumplirse con lo anterior por parte del solicitante, se rechazará de manera inmediata la gestión.
+e) Deberá verificar por parte de la Tesorería la autorización de compra generada por la Proveeduría según lo establecido en el presente reglamento, así como la disponibilidad de fondos públicos al momento.
+f) Los bienes adquiridos por compras de Fondo Fijo de Caja Chica deberán ser reportados a la bodega de la Municipalidad por parte del departamento que solicita la compra, lo anterior únicamente cuando la compra corresponda a objetos o artículos.

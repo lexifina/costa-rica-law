@@ -1,0 +1,1 @@
+Artículo 35.—Aplicación de Sanciones. Las sanciones que correspondan según lo dispuesto en el artículo anterior serán aplicadas por el titular de la Alcaldía Municipal de acuerdo con el Procedimiento establecido en el artículo 159 y siguientes del Código Municipal.

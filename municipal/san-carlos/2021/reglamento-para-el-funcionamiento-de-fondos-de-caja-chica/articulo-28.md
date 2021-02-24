@@ -1,0 +1,2 @@
+Artículo 28.—Faltantes y Sobrantes del Fondo Fijo de Caja Chica. Si realizado el arqueo conforme al artículo 26 del presente reglamento, se determinara un faltante de dinero, este deberá reponerse en un plazo de tres días hábiles al fondo fijo y si fuera un sobrante de dinero deberá depositarse a la cuenta general de la Municipalidad de San Carlos, una vez concluido el arqueo.
+Si presentada la justificación, se determina que esta no es suficiente, se procederá a solicitar la sanción que corresponda, conforme al ordenamiento jurídico vigente.

@@ -1,0 +1,1 @@
+Artículo 15.—Trámite de Exoneración. Para el trámite de compra por el Fondo Fijo de Caja Chica, el funcionario que lo gestione deberá solicitar a la Proveeduría, un comprobante de exoneración de pago del impuesto de ventas.

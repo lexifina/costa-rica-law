@@ -1,0 +1,2 @@
+Artículo 10.—Formularios de Compras. Los formularios que se utilizarán para efectuar compras por medio del Fondo Fijo de Caja Chica estarán a disposición en el Sistema Integrado Municipal (SIM), específicamente en el enlace de Tesorería- Caja Chica, el cual genera un consecutivo para cada solicitud.
+El uso de los formularios es exclusivo de los jefes de departamentos o en quien tenga la potestad de hacerlo.
