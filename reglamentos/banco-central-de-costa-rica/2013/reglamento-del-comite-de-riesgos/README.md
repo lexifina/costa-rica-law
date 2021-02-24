@@ -18,3 +18,4 @@ Reglamento del Comité de Riesgos
 | 3 | 2015-07-08 | Reglamento 5694 (2015-07-08) |
 | 4 | 2017-03-02 | Reglamento 5760 (2017-03-02) |
 | 5 | 2020-08-26 | Reglamento 5954 (2020-08-26) |
+| 6 | 2021-02-24 | Reglamento 5986 (2021-02-24) |
