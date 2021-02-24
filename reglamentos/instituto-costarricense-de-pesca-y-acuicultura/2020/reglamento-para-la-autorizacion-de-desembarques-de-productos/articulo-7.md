@@ -1,0 +1,6 @@
+Artículo 7º—Independiente de la aplicación de las disposiciones contempladas en el presente Reglamento y para los efectos legales pertinentes, se establecen como sitios autorizados para recibir la descarga de productos pesqueros, tanto en el Litoral Pacífico, como en el Litoral Caribe costarricense, los siguientes.
+a. Flota Pequeña Escala:
+En cualquiera de los lugares o bases de operación, siempre y cuando cuenten con muelles públicos o privados y puestos de recibo debidamente registrados y autorizados por el INCOPESCA, así como el Certificado Veterinario de Operación (SENASA) y en ambos casos, dichas autorizaciones deberán estar y mantenerse vigentes.
+b. Flota Comercial Media Escala, Flota Comercial Avanzada y Flota Comercial Semiindustrial:
+Muelles públicos o privados, así como centros de recibo con muelle privado, debidamente autorizados.
+De conformidad con los dispuesto y competencias otorgadas, por la Ley N° 8495, Ley General del Servicio Nacional de Salud Animal, en todos los sitios indicados anteriormente, le corresponderá a esta Institución velar por la aplicación y el ejercicio de las competencias relativas a las condiciones mínimas o básicas sobre sanidad e inocuidad de los recursos hidrobiológicos que en dichos sitios se desembarquen.
