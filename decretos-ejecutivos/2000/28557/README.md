@@ -19,3 +19,4 @@ Reglamento Uniforme Oficial en las Instituciones Educativas Públicas
 | 4 | 2010-11-25 | Decreto Ejecutivo 36382 (2010-11-25) |
 | 5 | 2018-04-25 | Decreto Ejecutivo 41085 (2018-04-25) |
 | 6 | 2019-07-18 | Decreto Ejecutivo 41926 (2019-07-18) |
+| 7 | 2021-02-24 | Decreto Ejecutivo 42901 (2021-02-24) |
