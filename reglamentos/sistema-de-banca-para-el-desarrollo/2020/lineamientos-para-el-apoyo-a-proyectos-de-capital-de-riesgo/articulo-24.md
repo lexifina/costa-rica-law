@@ -1,0 +1,3 @@
+Artículo 24. Participación en Órganos de Gobierno Corporativo
+En cada caso particular, tanto para avales como inversiones, el CCAP podrá condicionar la participación del SBD a que se le permita representación en los Órganos de Gobierno Corporativo.
+Para lo cual podrá designar a uno de sus miembros, a un funcionario de la Secretaría Técnica que defina la Dirección Ejecutiva o incluso contratar a un tercero para que participe y represente los intereses del SBD. En este último caso, la contratación la realizará la Secretaría Técnica con base en la recomendación del CCAP.

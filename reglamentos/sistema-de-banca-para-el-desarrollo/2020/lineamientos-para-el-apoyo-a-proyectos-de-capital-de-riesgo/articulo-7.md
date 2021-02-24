@@ -1,0 +1,2 @@
+Artículo 7. Comunicaciones publicitarias
+Cualquier comunicación publicitaria, independientemente del medio utilizado, que realice la sociedad administradora de fondos de inversión para ofrecer el fondo de capital de riesgo en que participe el Sistema de Banca para el Desarrollo, ya sea como inversionista o avalista a través del FONADE, deberá indicar que el fondo “cuenta con el apoyo del Sistema de Banca para el Desarrollo”. Asimismo, el prospecto en el caso de que SBD participe como avalista debe indicarlo.

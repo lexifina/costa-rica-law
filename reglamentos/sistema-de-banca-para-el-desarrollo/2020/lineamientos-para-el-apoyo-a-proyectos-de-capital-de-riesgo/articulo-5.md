@@ -1,0 +1,3 @@
+Artículo 5. Monto a invertir o avalar
+El CCAP definirá la cantidad a invertir en cada caso particular, ya sea en colones o en dólares de los Estados Unidos de América, respetando lo indicado en el artículo anterior.
+En el caso de aval de cartera, el porcentaje de cobertura será definido en la resolución de autorización por el CCAP, respetando los límites establecidos en el Programa aprobado por el Consejo Rector cuando se hayan definido. El prospecto deberá indicar lo siguiente: Este fondo de inversión cuenta con un aval de cartera del Sistema de Banca para el Desarrollo, por un monto de (XXX), el cual se rige por los “Lineamientos para el apoyo a proyectos de capital de riesgo” emitidos por el Consejo Rector del Sistema de Banca para el Desarrollo.

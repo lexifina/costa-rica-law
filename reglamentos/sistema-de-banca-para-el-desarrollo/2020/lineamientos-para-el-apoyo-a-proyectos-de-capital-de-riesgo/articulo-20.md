@@ -1,0 +1,2 @@
+Artículo 20. Comisión por el aval de cartera.
+La Comisión para el aval será definida por el CCAP, que podrá solicitar un informe a la Dirección de Finanzas de la Secretaría Técnica para la definición de la metodología de cálculo. Esta se indicará en el prospecto y en el contrato correspondiente.

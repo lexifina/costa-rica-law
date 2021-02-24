@@ -1,0 +1,7 @@
+CAPÍTULO III
+AVAL PARA EMISIONES DE CAPITAL DE RIESGO E INVERSIONES EN FIGURAS
+DIFERENTES A FONDOS DE INVERSIÓN
+Artículo 17. Aval o inversión en empresas o esquemas de capital de riesgo
+Una empresa de capital de riesgo o esquema debe cumplir con los requisitos señalados en el artículo 6 de la Ley N°8634 para solicitar el apoyo del SBD, ya sea mediante el otorgamiento de un aval que garantice en parte la emisión, o mediante una inversión.
+Cuando el Sistema de Banca para el Desarrollo otorgue aval, este se regirá por lo dispuesto en la Ley del Sistema de Banca para el Desarrollo, su reglamento y las políticas definidas por el Consejo Rector del Sistema de Banca para el Desarrollo. Los términos en que se brinde el aval se harán constar en el Programa aprobado por el Consejo Rector, Acuerdo del CCAP, en el prospecto y en el contrato que se firme con la Secretaría Técnica como administrador del FONADE.
+Las empresas de capital de riesgo o firma de capital de riesgo (empresa administradora del esquema de capital de riesgo) deberá firmar un contrato con las condiciones del aval y brindar una garantía colateral que podrá ser pero no limitada a una garantía mobiliaria sobre el valor actual de los flujos esperados del proyecto de inversión, u otro tipo de garantía, a favor de la Secretaría Técnica como administradora del FONADE fondo, la cual se ejecutará en caso de que se tenga que honrar el aval.
