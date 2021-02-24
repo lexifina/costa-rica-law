@@ -1,2 +1,2 @@
-ARTÍCULO 3°.-Regulación horaria de la restricción vehicular nocturna. Durante los días lunes a domingo, inclusive, y en el período comprendido entre las 22:00 horas y las 04:59 horas, no se permitirá el tránsito vehicular en todo el territorio nacional, salvo las excepciones contempladas en el artículo 4° del presente Decreto Ejecutivo.
-(Así reformado por el artículo 5° del decreto ejecutivo N° 42826 del 28 de enero del 2021)
+ARTÍCULO 3°.-Regulación horaria de la restricción vehicular nocturna. Durante los días lunes a domingo, inclusive, y en el período comprendido entre las 23:00 horas y las 04:59 horas, no se permitirá el tránsito vehicular en todo el territorio nacional, salvo las excepciones contempladas en el artículo 4° del presente Decreto Ejecutivo.
+(Así reformado por el artículo 4° del decreto ejecutivo N° 42872 del 24 de febrero del 2021)
