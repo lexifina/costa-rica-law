@@ -1,0 +1,2 @@
+ARTÍCULO 23.- Sobre el desplazamiento
+El superior autorizante, así como el o la superior jerárquica inmediata, pueden requerir la presencia física de la persona teletrabajadora en el lugar que se necesite, de acuerdo con sus funciones laborales dentro del horario definido como modalidad ordinaria. Sin embargo, deberá comunicarse con el teletrabajador o teletrabajadora brindándole un plazo razonable para apersonarse al lugar, según el sitio desde el cual se realiza el teletrabajo. Se entiende que este desplazamiento es de carácter transitorio.

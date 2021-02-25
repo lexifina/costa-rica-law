@@ -1,0 +1,2 @@
+ARTÍCULO 37.- Responsabilidad en caso de daño o pérdida de los recursos informáticos
+Las personas teletrabajadoras incurrirán en responsabilidad civil o administrativa, en caso de deterioro o pérdida de los equipos de trabajo institucionales, siempre y cuando lo anterior se haya causado por dolo o culpa grave debidamente comprobada, o por desatender las prohibiciones mencionadas en el Reglamento para la administración y el uso de los recursos y los servicios de tecnologías de información de la Asamblea Legislativa.

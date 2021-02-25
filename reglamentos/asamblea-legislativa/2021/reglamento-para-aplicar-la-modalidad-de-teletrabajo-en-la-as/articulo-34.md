@@ -1,0 +1,6 @@
+CAPÍTULO VI
+Recursos informáticos
+ARTÍCULO 34.- Recursos informáticos
+Los recursos requeridos para el ejercicio de la actividad deben satisfacer las exigencias propias de las tareas asignadas y ajustarse a los lineamientos establecidos por el Departamento de Informática, a excepción de los equipos que se encuentren debidamente autorizados por la Dirección Ejecutiva y, en lo procedente, por el Departamento de Informática, que sean propiedad de la Asamblea, asignados a un teletrabajador o teletrabajadora, y coordinada previamente ante las mencionadas instancias por parte del superior autorizante del funcionario teletrabajador.
+En un eventual cese del contrato, Departamento de Informática, en el primer supuesto, eliminará cualquier restricción o autorización establecida en el equipo de cómputo o líneas de comunicación, cuyo uso haya sido necesario para el teletrabajo.
+La actualización del sistema operativo y el antivirus de la computadora, con las últimas versiones aportadas por el proveedor durante el tiempo que se encuentre fuera de la institución, será responsabilidad de la persona teletrabajadora, en el equipo de su propiedad.

@@ -1,0 +1,4 @@
+ARTÍCULO 22.- Jornada laboral y horario dentro del teletrabajo
+Dentro del horario institucional, la persona trabajadora debe cumplir las metas o el trabajo que su superiora o superior jerárquico le asigne y en el plazo establecido para tal efecto.
+El teletrabajador deberá mantener la jornada y el horario inicialmente contratada con la institución. De común y previo acuerdo por escrito con el superior autorizante, el teletrabajador podrá solicitar la aplicación del horario flexible u alternativo de la institución.
+El teletrabajo modificará única y exclusivamente la organización y la forma en que se efectúa el trabajo, sin afectar las condiciones de la relación de servicio del funcionario, quien mantiene los mismos derechos, beneficios y obligaciones de aquellos servidores que desarrollen sus funciones en las instalaciones de la Asamblea Legislativa, de conformidad con la normativa aplicable a cada relación de servicio establecida con la administración.
