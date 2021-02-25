@@ -14,3 +14,4 @@ Reglamento autorización sanitaria para el desalmacenaje y adquisición de medic
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-12-17 | la propia norma |
+| 2 | 2021-02-25 | Decreto Ejecutivo 42943 (2021-02-25) |
