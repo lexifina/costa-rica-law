@@ -1,0 +1,1 @@
+Artículo 10.—Secretaría del Comité. La Secretaría General del Banco Central llevará a cabo las funciones de secretaría del Comité, observando lo establecido en la Ley General de la Administración Pública y las normas internas atinentes a la materia.

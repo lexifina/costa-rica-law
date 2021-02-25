@@ -1,0 +1,1 @@
+Artículo 2º—Objetivo del Comité. El Comité de Auditoría tiene por objetivo ser un enlace de comunicación entre la Junta Directiva, la Administración Superior, la Auditoría Interna y los auditores externos, con el fin de conocer temas relacionados con el sistema de control interno, auditoría y la información financiera del Banco Central.
