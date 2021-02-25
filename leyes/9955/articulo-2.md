@@ -1,0 +1,2 @@
+Artículo 2°-Modificase el artículo 2° de la Ley de Presupuesto Ordinario y Extraordinario de la República para el Ejercicio Económico del 2021, Ley No. 9926 publicada en el Alcance 318 de la Gaceta Nº 284 del 02 de diciembre de 2020, en la forma que se indica a continuación:
+(Nota de Sinalevi: Por lo extenso de su contenido y tipo de formato consultar Alcance Digital N° 40 a La Gaceta N° 39 del 25 de febrero del 2021)
