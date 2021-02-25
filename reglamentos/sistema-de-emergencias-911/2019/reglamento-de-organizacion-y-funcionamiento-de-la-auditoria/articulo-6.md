@@ -1,0 +1,5 @@
+Artículo 6. Actualizaciones.
+A efectos de mantener el marco normativo de la Auditoría Interna actualizado, le corresponde al Auditor Interno proponer y promover las modificaciones al mismo.
+Es obligación del Auditor Interno establecer y actualizar la visión, misión y principales políticas que rigen el accionar de la Auditoría Interna, así como sus planes para ajustarlos en lo necesario a los objetivos del Sistema de Emergencias 9-1-1. Asimismo, revisará las normas éticas que rigen el accionar de sus funcionarios.
+El Auditor Interno debe presentar al jerarca, para su conocimiento y aprobación, el proyecto de reglamento de organización y funcionamiento de la Auditoría Interna.
+El jerarca debe resolver esa gestión en un plazo máximo de treinta días hábiles a partir de su recepción. Toda modificación deberá contar de previo a su emisión oficial, con la aprobación de la Contraloría General de la República.

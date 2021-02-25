@@ -1,0 +1,4 @@
+Artículo 23. Intercambio de información.
+La Auditoría Interna podrá intercambiar información con la Contraloría General de la República, así como con otros entes y órganos de control que, conforme a la ley y en el ámbito de sus competencias correspondan. Lo anterior, sin perjuicio de la coordinación interna que al respecto deba darse y sin que ello implique limitación para su efectiva actuación. En todo caso deberán respetarse los canales de comunicación respectivos.
+El Auditor coordinará el intercambio de información, con la Administración Activa del Sistema de Emergencias 9-1-1 y con otras organizaciones que conforman su universo auditable.
+Podrá solicitar a la Dirección del Sistema de Emergencias 9-1-1 de manera justificada y con la debida antelación, la incorporación de profesionales o técnicos de diferentes disciplinas, para que apoyen su labor. También podrá incorporar profesionales que no sean de la institución siempre que haya capacidad presupuestaria.

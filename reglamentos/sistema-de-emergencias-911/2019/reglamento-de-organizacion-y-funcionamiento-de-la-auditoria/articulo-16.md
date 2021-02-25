@@ -1,0 +1,2 @@
+Artículo 16. Protección al personal de la Auditoría.
+Cuando el personal de la auditoría interna, en el cumplimiento de sus funciones, se involucre en un conflicto legal o una demanda, el Sistema de Emergencias 9-1-1 dará todo su respaldo tanto jurídico como técnico y cubrirá los costos para atender ese proceso hasta su resolución final, todo de conformidad con el artículo 26 de la Ley General de Control Interno.
