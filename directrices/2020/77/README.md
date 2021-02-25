@@ -22,3 +22,4 @@ Funcionamiento de las instituciones estatales durante la declaratoria de emergen
 | 7 | 2020-06-19 | Directriz 89 (2020-06-19) |
 | 8 | 2020-07-12 | Directriz 92 (2020-07-12) |
 | 9 | 2020-10-26 | Directriz 98 (2020-10-26) |
+| 10 | 2021-02-25 | Directriz 108 (2021-02-25) |
