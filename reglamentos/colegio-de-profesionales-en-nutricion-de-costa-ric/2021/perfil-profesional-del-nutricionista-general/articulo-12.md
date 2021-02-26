@@ -1,0 +1,4 @@
+Artículo 12. Funciones administrativas.
+a) Elaborar, dirigir, implementar, supervisar, controlar y evaluar planes, programas y proyectos con enfoque alimentario nutricional para el seguimiento de las actividades programadas, la consecución de los objetivos, el cumplimiento del plazo establecido y la toma de decisiones.
+b) Planificar, organizar, ejecutar, supervisar, controlar y evaluar los procedimientos técnico - administrativos de trabajo de los servicios de nutrición y de alimentación al público para el manejo óptimo de los recursos (humano, financiero, planta física, equipo, insumos, entre otros) y la aplicación de acciones correctivas idóneas que aseguren su mejora continua.
+c) Participar en la elaboración de la normativa o regulación en alimentación y nutrición, registro, vigilancia y control de alimentos, para el aseguramiento de la calidad de la gestión rectora de la salud.
