@@ -1,0 +1,1 @@
+Artículo VI.—De las votaciones. Tendrán derecho al voto los regidores (as) propietarios. Para tomar los acuerdos deberá contar como mínimo de dos votos de los regidores que integran dicha Comisión Permanente de Accesibilidad y Discapacidad.

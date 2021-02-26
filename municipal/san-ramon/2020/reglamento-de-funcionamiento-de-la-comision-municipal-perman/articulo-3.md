@@ -1,0 +1,1 @@
+Artículo III.—De la coordinación. La Comisión Permanente de Accesibilidad y Discapacidad para las Personas con Discapacidad, estará presidida por un Regidor (a), Propietaria o Suplente, electa en la primera sesión por los integrantes de la Comisión. Igualmente elegir de su propio seno un secretario o secretaria.

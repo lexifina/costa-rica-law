@@ -1,0 +1,1 @@
+Artículo VIII.—De la convocatoria. La convocatoria a reuniones ordinarias es responsabilidad del presidente(a) de la Comisión. No obstante, las reuniones extraordinarias podrán ser solicitadas por la Presidencia del Concejo Municipal o a solicitud de las dos terceras partes de los integrantes de la Comisión.
