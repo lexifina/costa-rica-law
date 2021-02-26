@@ -1,0 +1,1 @@
+Artículo 19.—Modificaciones estructura y organización. Todo cambio de estructura u organización de la Auditoría Interna deberá considerar su independencia funcional y las competencias que le son inherentes, de conformidad con la Ley N° 8292, para lo cual se deberá coordinar previamente con el Auditor General.

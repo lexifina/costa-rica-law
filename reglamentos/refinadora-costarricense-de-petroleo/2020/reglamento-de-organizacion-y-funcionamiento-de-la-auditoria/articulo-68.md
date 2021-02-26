@@ -1,0 +1,1 @@
+Artículo 68.—Derogatoria. Se deroga el Reglamento de Organización y Funcionamiento de la Auditoría Interna de RECOPE S. A., que fue promulgado por la Junta Directiva de RECOPE en el Artículo N° 5 de la Sesión Ordinaria de la Junta Directiva de RECOPE N° 4154 – 110 del 23 de mayo del 2007 y sus reformas, así como cualquier normativa interna que se le oponga.

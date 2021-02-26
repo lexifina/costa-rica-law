@@ -1,0 +1,1 @@
+Artículo 62.—Acciones a seguir de la atención de denuncias. Como resultado de la atención de denuncias se deberá generar una resolución motivada para: trasladar, desestimar o archivar la denuncia o efectuar un servicio de auditoría, un servicio preventivo de advertencia o un estudio para el análisis de Presuntos Hechos Irregulares.

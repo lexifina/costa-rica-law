@@ -1,0 +1,1 @@
+Artículo 31.—Programa de Aseguramiento de la Calidad. El Auditor General mantendrá un Programa de Aseguramiento de la Calidad para la Auditoría Interna, que incluye evaluaciones externas e internas conforme lo establecen las Normas para el ejercicio de la auditoría interna en el Sector Público.

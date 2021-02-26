@@ -1,0 +1,1 @@
+Artículo 54.—Comunicación escrita de los servicios de auditoría. La Auditoría Interna comunicará en forma escrita los resultados de las auditorías que realicen de conformidad con el Artículo Nº 35 de la Ley Nº 8292, mediante informes, los cuales se denominan de Control Interno.

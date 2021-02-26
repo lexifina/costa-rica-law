@@ -1,0 +1,1 @@
+Artículo 39.—Plan Estratégico. El Auditor General dispondrá y, mantendrá actualizado como parte de su Plan Estratégico, un Universo Auditable que establece los órganos y entes sobre los que aplicará los Servicios de Auditoría solicitados en el Artículo 22, inciso a), de la Ley Nº 8292.

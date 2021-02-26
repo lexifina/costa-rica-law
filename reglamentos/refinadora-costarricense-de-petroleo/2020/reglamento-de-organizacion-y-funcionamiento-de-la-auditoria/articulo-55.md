@@ -1,0 +1,1 @@
+Artículo 55.—Trámite de informes de los servicios de auditoría. El trámite a seguir para la aceptación, rechazo o planteamiento de conflicto de las recomendaciones emitidas en los informes de auditoría, estará regido por lo dispuesto en los Artículos N° 36, N° 37 y N° 38 de Ley Nº 8292.
