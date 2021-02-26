@@ -1,4 +1,5 @@
-ANEXO ÚNICO
+ANEXO PRIMERO
+(Así reformado el anexo anterior por el artículo 5° de la resolución N° DGT-ICD-R-012-2021 del 26 de febrero de 2021)
 Personas Jurídicas
 1. Persona jurídica obligada:
 1.1 Datos de identificación:
@@ -73,7 +74,9 @@ Personas Jurídicas
 1.3.2.4.1 Persona jurídica nacional.
 De conformidad con lo establecido en el artículo 6 b) del Reglamento del Registro de Transparencia y Beneficiarios Finales, no debe suministrar datos adicionales de los solicitados hasta este punto, pero queda supeditado el cumplimiento de la obligación, al suministro que deberá hacer la persona jurídica nacional interpuesta, quien deberá brindar la información de forma directa.
 1.3.2.4.2 Persona jurídica domiciliada en el extranjero. Deberá suministrar la información tanto del resumen de la composición del capital social así como del detalle individualizado por participante de ésta persona jurídica domiciliada en el extranjero hasta llegar a los beneficiarios finales, debiendo repetir esto en todos los casos que exista participación sustantiva de una persona jurídica domiciliada en el extranjero. Ver artículo 6 c) del Decreto Nº 41040-H.
-1.3.3 Para fideicomisos como participante:
+1.3.3 Fideicomisos como participante:
+Aportar los datos identificativos indicados en el Anexo Segundo.
+(Así reformado el punto anterior por el artículo 5° de la resolución N° DGT-ICD-R-012-2021 del 26 de febrero de 2021)
 1.3.3.1 Datos de identificación:
 1.3.3.1.1 Número de identificación.
 1.3.3.1.2 Nombre.

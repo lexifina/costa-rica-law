@@ -15,3 +15,4 @@ Resolución Conjunta de Alcance General para el Registro de Transparencia y Bene
 | --- | --- | --- |
 | 1 | 2020-03-30 | la propia norma |
 | 2 | 2020-08-06 | Resolución 19 (2020-08-06) |
+| 3 | 2021-02-26 | Resolución 12 (2021-02-26) |

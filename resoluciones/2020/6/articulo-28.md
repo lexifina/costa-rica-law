@@ -1,0 +1,2 @@
+Artículo 28.-Derogatoria. A partir de la vigencia de la presente resolución se deroga en todos sus extremos, la resolución conjunta de alcance general Nº DGT-ICD-R-14-2019 del 8 de marzo de 2019, publicada en el Alcance Digital Nº 78, de La Gaceta Nº 76 del 3 de abril de 2019 y su reforma.
+(Así modificada su numeración por el artículo 1° de la resolución N° DGT-ICD-R-012-2021 del 26 de febrero de 2021, que lo traspaso del antiguo artículo 22 al 28)

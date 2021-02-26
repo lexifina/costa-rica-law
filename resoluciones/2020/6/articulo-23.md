@@ -1,1 +1,10 @@
-Artículo 23.—Vigencia. La presente resolución rige a partir de su publicación.
+Artículo 23.-Otras personas autorizadas a suministrar la información: Aparte del fiduciario debidamente inscrito en el RTBF, el suministro de información podrá hacerse mediante una única persona autorizada, atendiendo a las siguientes opciones:
+a) El notario público podrá acreditar a solicitud del fiduciario a una persona física, que deberá disponer de facultades suficientes para presentar la declaración, lo cual deberá quedar debidamente acreditado en el sistema del RTBF. Si dicha acreditación se sustenta en un poder especial, este debe ser otorgado en escritura pública. En el ejercicio de esta función, los notarios deben acatar la normativa costarricense y seguir los lineamientos que dicte el Consejo Superior Notarial para dicha actividad.
+b) El fiduciario debidamente registrado en el sistema del RTBF por un notario público, podrá acreditar en dicho sistema a una sola persona física como autorizado para presentar la declaración.
+Para completar las autorizaciones en el sistema del RTBF, el notario público o el fiduciario deben ingresar a la funcionalidad correspondiente y registrar los datos identificativos de la persona física autorizada que suministrará la información en representación del obligado, adjuntando la documentación que lo respalde incluyendo, la siguiente información:
+1. Número de cédula jurídica o número identificador del fideicomiso.
+2. Tipo de identificación de la persona física o autorizada (cédula, DIMEX o DIDI).
+3. Número de identidad de la persona física apoderada o autorizada.
+4. En el caso que la autorización o poder se otorgue por medio de notario público, este debe incluir los datos del documento donde consta la facultad del autorizado para interactuar con el sistema. Cuando la autorización la otorgue el fiduciario bastará con su firma digital en la funcionalidad disponible en el sistema para estos efectos.
+En todos los casos, las personas que interactúen con el sistema del RTBF, deben contar con un certificado válido de firma digital de persona física, perteneciente a la jerarquía nacional de certificadores registrados.
+(Así adicionado por el artículo 1° de la resolución N° DGT-ICD-R-012-2021 del 26 de febrero de 2021)

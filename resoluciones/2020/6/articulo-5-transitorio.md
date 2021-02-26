@@ -1,0 +1,2 @@
+Transitorio quinto. - En el caso de los fideicomisos, los cuales están obligados a presentar la declaración para el período 2021, deberán hacer su primera declaración, por esta única vez, en el mes de junio de 2021, en los años subsiguientes les corresponderá realizarla en la misma fecha de los otros sujetos obligados, es decir, en el mes de abril de cada año.
+(Así adicionado mediante el artículo 4° de la resolución N° DGT-ICD-R-012-2021 del 26 de febrero de 2021)
