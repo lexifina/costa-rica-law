@@ -1,0 +1,1 @@
+Artículo 14.—Pago del impuesto. Una vez aprobada la solicitud de licencia comercial, el interesado deberá realizar el pago del impuesto de patente comercial correspondiente, de conformidad con lo establecido en el Código Municipal y la Ley 8236.

@@ -1,0 +1,1 @@
+Artículo 6º—Limitación para el otorgamiento de licencias. No se podrá conceder licencia comercial para la explotación de actividades lucrativas en casas de habitación; salvo que el local comercial sea independiente de la casa de habitación y entre uno y otro no haya comunicación interna.

@@ -1,0 +1,3 @@
+Artículo 32.—Pago de multas e intereses. Todo atraso en el pago del impuesto de patentes generará un recargo con carácter de multa, equivalente al uno por ciento del monto adeudado, por cada mes o fracción de mes transcurrido desde el momento en que debió satisfacerse la obligación, hasta la fecha efectiva del pago.
+El pago fuera de término también producirá la obligación del contribuyente de pagar el interés que fije el Concejo, de acuerdo con las reglas establecidas en el artículo 57 del Código de Normas y Procedimientos Tributarios.
+Cuando el monto del tributo a cancelar se determine de oficio, el pago de multas e intereses empezará a correr a partir de la firmeza de la resolución que establezca el monto a cancelar.

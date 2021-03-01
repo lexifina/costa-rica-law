@@ -1,0 +1,1 @@
+Artículo 20.—Deber de colaboración. Los propietarios, administradores, concesionarios y cualquier persona que de una u otra forma explote un establecimiento comercial, está en la obligación de brindar toda la colaboración requerida por los funcionarios municipales investidos como inspectores y de mostrar la documentación requerida por ella en cumplimiento de sus funciones.

@@ -1,0 +1,2 @@
+Artículo 38.—Disposiciones derogatorias. El presente Reglamento deroga el Reglamento General de Patentes de la Municipalidad de Alajuela publicado en La Gaceta Nº ____ del 24 de noviembre de 2003, y toda disposición de igual rango o inferior que se le oponga. El presente Reglamento empezará a regir a partir del día siguiente de su segunda publicación en el Diario Oficial La Gaceta. Publíquese.
+Cantón Central de Alajuela.

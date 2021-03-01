@@ -1,0 +1,1 @@
+Artículo 16.—Emisión del certificado. Una vez aprobada la licencia comercial, la Municipalidad emitirá de forma automática un certificado de licencia, el cual deberá ser exhibido en el local comercial.

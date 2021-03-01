@@ -1,0 +1,1 @@
+Artículo 23.—Del Cambio de dirección de la licencia comercial. Las licencias comerciales permanentes podrán modificar la dirección donde fue otorgada originalmente, siempre y cuando cumpla con todos los requisitos establecidos en las leyes y el presente reglamento. Para tales efectos, la Municipalidad pondrá a disposición del licenciatario un formulario sin costo económico.

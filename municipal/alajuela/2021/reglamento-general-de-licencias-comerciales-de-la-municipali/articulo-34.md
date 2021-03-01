@@ -1,0 +1,1 @@
+Artículo 34.—Clausura. Se decretará la clausura del negocio, en los casos de suspensión o cancelación de la patente, según lo establecido en los artículos 7 y 8 de este Reglamento, o cuando se compruebe que su propietario se encuentra en alguna de las circunstancias previstas en el artículo anterior.
