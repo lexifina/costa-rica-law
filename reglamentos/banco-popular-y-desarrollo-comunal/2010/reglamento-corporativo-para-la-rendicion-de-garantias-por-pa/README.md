@@ -15,3 +15,4 @@ Reglamento Corporativo para la Rendición de Garantías por parte de los trabaja
 | --- | --- | --- |
 | 1 | 2011-03-08 | la propia norma |
 | 2 | 2011-03-08 | Reglamento 4819 (2011-01-20) |
+| 3 | 2021-03-01 | Reglamento 5808 (2021-03-01) |
