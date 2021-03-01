@@ -14,3 +14,4 @@ Prórroga automática por un plazo adicional de hasta seis meses, en el nombrami
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-03-01 | la propia norma |
+| 2 | 2021-03-01 | Resolución 163 (2021-01-26) |
