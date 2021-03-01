@@ -22,3 +22,4 @@ Reglamento a la Ley de Protección Fitosanitaria.
 | 7 | 2012-11-14 | Decreto Ejecutivo 37588 (2012-11-14) |
 | 8 | 2014-09-10 | SINALEVI (sin norma nombrada) |
 | 9 | 2016-03-07 | Decreto Ejecutivo 39565 (2016-03-07) |
+| 10 | 2021-03-01 | Decreto Ejecutivo 42906 (2021-03-01) |
