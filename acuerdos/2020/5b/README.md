@@ -14,3 +14,4 @@ Reforma Procedimiento ECA-MC-MA-P06 Verificación/Aprobación de Declaraciones d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-05-08 | la propia norma |
+| 2 | 2021-03-02 | Acuerdo 4 (2021-03-02) |
