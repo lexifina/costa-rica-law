@@ -14,3 +14,4 @@ Proceso para la Suspensión, Reducción o Retiro de la Acreditación (Versión 0
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-04-10 | la propia norma |
+| 2 | 2021-03-02 | Acuerdo 4 (2021-03-02) |
