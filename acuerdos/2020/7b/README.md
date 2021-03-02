@@ -14,3 +14,4 @@ Reforma Procedimiento ECA-MC-C15 Criterios para evaluación y acreditación de p
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-06-19 | la propia norma |
+| 2 | 2021-03-02 | Acuerdo 4 (2021-03-02) |
