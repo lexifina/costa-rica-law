@@ -1,0 +1,6 @@
+CAPÍTULO III
+Gestión de la contraloría de servicios
+Artículo 16.—Plazos de atención. De acuerdo a lo establecido en el Artículo 43) de la Ley N° 9158, la Contraloría de Servicios realizará la gestión de los casos con la mayor diligencia, lo cual se hará ante el Titular Subordinado de la dependencia en la que se presenten las inconformidades, valorando la necesidad de informar al nivel inmediato superior u otro, según su competencia.
+Ante la petición planteada por la Contraloría de Servicios en el ejercicio de sus funciones, los Titulares Subordinados deberán responder en un plazo máximo de cinco días hábiles, excepto en los casos en que la resolución de la gestión sea de mayor complejidad; en dicho caso se concederá, a petición del responsable Titular Subordinado, un plazo mayor para responder sobre la resolución. El plazo máximo no debe superar los cincuenta días naturales.
+En caso de incumplirse el plazo, la Contraloría de Servicios elevará el asunto al Jerarca, con la recomendación correspondiente para la toma de decisiones.
+Una vez recibida la respuesta del Titular Subordinado, la Contraloría de Servicios responderá a la Persona Usuaria en un plazo máximo de diez (10) días hábiles.
