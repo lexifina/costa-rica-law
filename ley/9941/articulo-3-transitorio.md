@@ -1,0 +1,1 @@
+TRANSITORIO III- El Poder Ejecutivo, en un plazo máximo de seis meses, posteriores a la vigencia de esta ley, deberá ajustar la normativa administrativa y reglamentaria existente, incluyendo la reglamentación de lo dispuesto en el artículo 4 de la Ley 9220, Red Nacional de Cuido y Desarrollo Infantil, de 24 de marzo de 2014.
