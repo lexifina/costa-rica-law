@@ -1,4 +1,4 @@
-ARTÍCULO 8.- Políticas
-La Comisión Consultiva se encargará de recomendar las políticas generales y los lineamientos estratégicos del sistema de cuido y desarrollo infantil, de la coordinación competencial interinstitucional y las relativas a las diversas modalidades de prestación de servicios de la red de cuido, que no incluyen la educación preescolar brindada por el Ministerio de Educación Pública y que forma parte del sistema educativo nacional.
-Sesionará ordinariamente una vez cada tres meses y, extraordinariamente, cuando se le convoque por su presidente; las decisiones se tomarán por mayoría simple de los presentes.
-Esta Comisión se regirá por las normas de organización establecidas por la Ley Nº 6227, Ley General de la Administración Pública para órganos colegiados y sus integrantes fungirán en forma ad honórem.
+Artículo 8- Políticas. La Comisión Consultiva se encargará de emitir las políticas generales y los lineamientos estratégicos del sistema de cuido y desarrollo infantil, de la coordinación competencial interinstitucional y las relativas a las diversas modalidades de prestación de servicios de la Red de Cuido.
+Sesionará ordinariamente una vez cada dos meses y, extraordinariamente, cuando se le convoque por su presidente. Las decisiones se tomarán por mayoría simple de los presentes.
+Esta Comisión se regirá por las normas de organización establecidas por la Ley 6227, Ley General de la Administración Pública, de 2 de mayo de 1978, para órganos colegiados y sus integrantes fungirán en forma ad honorem.
+(Así reformado por el artículo 1° de la ley para la reactivación y reforzamiento de la red nacional de cuido y desarrollo infantil, N° 9941 del 15 de febrero del 2021)

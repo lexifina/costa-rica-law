@@ -1,2 +1,3 @@
-ARTICULO 8º.-
-La enseñanza primaria es obligatoria; ésta, la pre-escolar y la media son gratuitas y costeadas por la Nación.
+ARTICULO 8º.-La enseñanza primaria es obligatoria; ésta, la pre-escolar y la media son gratuitas y costeadas por la Nación.
+En el caso de la educación preescolar y primaria, el Ministerio de Educación Pública (MEP) será corresponsable en el cuido integral del niño, la niña y el adolescente y deberá garantizar, luego de finalizado el horario lectivo, dicho derecho. Esta garantía del sistema educativo estará inscrita bajo los lineamientos de la Redcudi.
+(Así adicionado el párrafo anterior por el artículo 4° de la ley para la reactivación y reforzamiento de la red nacional de cuido y desarrollo infantil, N° 9941 del 15 de febrero del 2021)
