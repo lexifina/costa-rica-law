@@ -1,0 +1,5 @@
+ARTÍCULO 6- Se adiciona el artículo 31 bis a la Ley 7739, Código de la Niñez y la Adolescencia, de 6 de enero de 1998. El texto es el siguiente:
+Artículo 31 bis- Derecho al cuido estatal mientras los padres de familia trabajan
+El acceso público, universal y de financiamiento solidario a la Red Nacional de Cuido y Desarrollo Infantil (Redcudi) será un derecho fundamental de las personas menores de edad. Los límites al ejercicio de este derecho estarán regulados por la Ley 9220, Red Nacional de Cuido y Desarrollo Infantil, de 24 de marzo de 2014.
+Las conductas omisivas del Estado para garantizarlo, facilitarlo o ampliarlo constituirán una violación del derecho fundamental e importará responsabilidad de la autoridad competente. El Estado deberá garantizar la permanencia de las personas menores ingresadas en el sistema y brindarles el apoyo necesario para conseguirlo.
+De acuerdo con el principio de progresividad de los derechos humanos, no podrán desmejorarse por reglamento programas, prestaciones o cualquier avance logrado en la calidad de los servicios disponibles a las personas usuarias menores de edad.
