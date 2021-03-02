@@ -15,3 +15,4 @@ Procedimiento ECA-MC-C15 Criterios para realizar ensayos de aptitud (Versión 01
 | --- | --- | --- |
 | 1 | 2017-02-04 | la propia norma |
 | 2 | 2020-06-09 | Acuerdo 7 (2020-06-09) |
+| 3 | 2021-03-02 | Acuerdo 4 (2021-03-02) |
