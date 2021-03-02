@@ -11,4 +11,5 @@ f) Una persona representante de la persona que ejerza la Dirección Nacional de 
 g) Una persona representante de la presidencia ejecutiva del Instituto Nacional de Aprendizaje.
 h) Una persona representante de la presidencia ejecutiva del Instituto Nacional de las Mujeres.
 i) Una persona representante de la presidencia ejecutiva de la Caja Costarricense de Seguro Social.
-j) Otras personas que se incorporen por invitación de la Comisión Técnica, quienes tendrán voz pero no voto en la toma de decisiones.
+j) Una persona representante del sector formado por las asociaciones u organizaciones no gubernamentales, dedicadas a administrar y atender los centros de cuido y desarrollo infantil; cuyo mecanismo de selección se establecerá vía reglamento.
+(Así reformado el inciso anterior por el artículo 1° de la ley para la reactivación y reforzamiento de la red nacional de cuido y desarrollo infantil, N° 9941 del 15 de febrero del 2021)
