@@ -1,1 +1,0 @@
-Artículo 9°—Cuando por algún motivo la compra no se lleve a cabo, el funcionario que ha recibido el dinero del vale, deberá hacer el reintegro inmediato del dinero entregado para tales efectos, aportando una justificación escrita, avalada con la firma de la jefatura superior inmediata.
