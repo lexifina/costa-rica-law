@@ -24,3 +24,12 @@ o) Garantizar el acceso a condiciones favorables para la obtención de vivienda 
 (Así adicionado el inciso anterior por el artículo 3° de la Ley N° 9151 del 27 de agosto del 2013, "Acceso de Vivienda para las Personas Jóvenes")
 p) Informar, asesorar y capacitar a los jóvenes, en materia de obtención de créditos para vivienda.
 (Así adicionado el inciso anterior por el artículo 3° de la Ley N° 9151 del 27 de agosto del 2013, "Acceso de Vivienda para las Personas Jóvenes")
+Deporte:
+q) Garantizar la existencia de espacios deportivos seguros, en donde se puedan poner en práctica al menos dos disciplinas deportivas diferentes.
+(Así adicionado el inciso anterior por el artículo 2° de la ley N° 9917 del 19 de noviembre del 2020)
+r) Proporcionar el mantenimiento requerido a los espacios deportivos públicos existentes.
+(Así adicionado el inciso anterior por el artículo 2° de la ley N° 9917 del 19 de noviembre del 2020)
+s) Garantizar la apertura de los espacios deportivos, sin limitar su acceso, en el horario requerido para la práctica del deporte.
+(Así adicionado el inciso anterior por el artículo 2° de la ley N° 9917 del 19 de noviembre del 2020)
+t) Incentivar la participación y la permanencia en el deporte, por parte de los jóvenes, mediante la realización de campañas y actividades deportivas promovidas en las distintas escuelas y colegios.
+(Así adicionado el inciso anterior por el artículo 2° de la ley N° 9917 del 19 de noviembre del 2020)
