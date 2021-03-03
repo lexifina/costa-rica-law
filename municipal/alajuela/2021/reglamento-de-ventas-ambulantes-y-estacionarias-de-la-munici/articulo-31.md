@@ -1,0 +1,1 @@
+Artículo 31.—El plazo de custodia, de dichas mercancías no podrá sobrepasar los 30 días hábiles, y en el caso de mercadería perecedera, será donada a instituciones de bien social con el acta respectiva, firmada por los responsables, o destruida, según la normativa que regula la materia.

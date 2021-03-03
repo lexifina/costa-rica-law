@@ -1,0 +1,1 @@
+Artículo 16.—Condiciones para casos especiales. Los vendedores de lotería y chances, flores, periódicos y revistas y limpiadores de calzado; deberán solicitar la respectiva licencia, pero se eximirán de los requisitos del inciso a) del artículo 5 de este Reglamento, y no podrán hacer uso de ningún tipo de mobiliario para ejercer la actividad en las vías públicas.

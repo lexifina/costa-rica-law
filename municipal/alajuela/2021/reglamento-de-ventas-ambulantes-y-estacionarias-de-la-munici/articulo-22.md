@@ -1,0 +1,1 @@
+Artículo 22.—Adjudicación de los puestos en caso de caducidad. En caso de caducidad o renuncia de una licencia para ventas estacionarias y a falta de lugares para la ubicación de nuevas ventas, la municipalidad procederá a la adjudicación de esa licencia por medio de sorteo entre las solicitudes pendientes que hayan cumplido la totalidad de los requisitos.

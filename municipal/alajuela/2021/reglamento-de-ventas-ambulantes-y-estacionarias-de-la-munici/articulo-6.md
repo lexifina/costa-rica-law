@@ -1,0 +1,1 @@
+Artículo 6°—En el otorgamiento de las licencias para ventas ambulantes y/o estacionarias, se dará preferencia a las personas con situaciones de discapacidad, o vulnerabilidad social y económica, previamente comprobada.

@@ -1,0 +1,1 @@
+Artículo 33.—Forma parte integrante del presente reglamento la Ley N° 8236, Ley de Impuestos del Cantón Central de Alajuela, y el Reglamento General de Licencias Comerciales de la Municipalidad del Cantón Central de Alajuela.

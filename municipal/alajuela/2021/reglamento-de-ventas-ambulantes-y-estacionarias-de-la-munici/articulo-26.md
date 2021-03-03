@@ -1,0 +1,1 @@
+Artículo 26.—Las ventas estacionarias funcionarán en las vías públicas, en lugares que sean de carácter comercial, quedan a salvo las prohibiciones establecidas por otras leyes y en aquellos lugares que atente contra la seguridad ciudadana, el libre tránsito peatonal y el tránsito vehicular.

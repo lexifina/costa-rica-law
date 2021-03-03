@@ -1,0 +1,1 @@
+Artículo 28.—La forma de pago de este impuesto será trimestralmente, y el atraso en los pagos, generará multas e intereses moratorios que se cancelarán con base al artículo 57 y 76 del Código de Normas y Procedimientos Tributarios, y el atraso en el pago de un trimestre, será causal de Caducidad de la licencia, según el inciso b) del artículo 12 de este Reglamento.

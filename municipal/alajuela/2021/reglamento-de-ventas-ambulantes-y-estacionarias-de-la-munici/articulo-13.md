@@ -1,0 +1,1 @@
+Artículo 13.—Prohibición para suministro de servicios. El Instituto Costarricense de Electricidad y el Instituto Costarricense de Acueductos y Alcantarillados o quien corresponda, no podrán suministrarle energía eléctrica, ni agua a ninguna venta estacionaria.

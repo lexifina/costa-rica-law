@@ -1,0 +1,5 @@
+Artículo 5°—Requisitos para ventas estacionarias. Para obtener una licencia comercial de venta estacionaria, el interesado requiere, además de los requisitos establecidos en el Reglamento General de Licencias Comerciales de la Municipalidad del Cantón Central de Alajuela en lo que sea procedente, cumplir con los siguientes requisitos:
+a) Presentar un croquis del cubículo comercial en donde se instalará la venta estacionaria, el cual deberá ajustarse al diseño aprobado por el Departamento de Diseño de la Municipalidad de Alajuela.
+b) En los puestos que expendan alimentos de consumo directo, se exigirá la presentación del certificado de funcionamiento sanitario expedido por el Ministerio de Salud y los vendedores deberán portar un carné de salud.
+c) Estudio socioeconómico del solicitante.
+d) Ser mayor de edad, costarricense por nacimiento o naturalización con más de 10 años de adquirida, en este último caso deberá presentar cédula de residencia en la cual se indique su estatus migratorio y que esté libre de restricciones.

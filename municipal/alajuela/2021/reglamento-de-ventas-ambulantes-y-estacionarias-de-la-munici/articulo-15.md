@@ -1,0 +1,2 @@
+Artículo 15.—Límite al número de patentes por familia. Se con cederá únicamente una licencia para este tipo de actividad por familia. En caso de muerte o incapacidad permanente del concesionario, se extingue la licencia.
+El familiar que pretenda realizar la actividad podrá solicitar una nueva licencia dentro del mes del fallecimiento y tendrá prioridad el cónyuge sobreviviente o compañera(o), o algunos de sus hijos mayores, siempre y cuando reúna las condiciones de los artículos 4 y 5 de este Reglamento.
