@@ -14,3 +14,4 @@ Plan General de Contabilidad Nacional (PGCN)
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-01-01 | la propia norma |
+| 2 | 2021-03-03 | Resolución 2 (2021-03-03) |
