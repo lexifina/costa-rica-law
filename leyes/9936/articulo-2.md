@@ -1,0 +1,2 @@
+ARTÍCULO 2- Se autoriza el cambio de naturaleza del bien inmueble descrito anteriormente y consecuentemente se destine a la construcción de la Escuela Las Palmas, código dos mil seiscientos uno (2601).
+El donatario no podrá traspasar de ninguna manera, arrendar ni gravar el bien inmueble, excepto darlo en garantía ante instituciones del Estado, para financiar proyectos de infraestructura del mismo inmueble.

@@ -1,0 +1,3 @@
+ARTÍCULO 4- La escritura de donación y del cambio de naturaleza del terreno, a que esta ley se refiere, la otorgará la Municipalidad de Cañas ante la Notaría del Estado, libre de impuestos de traspaso y gastos de inscripción del documento ante el Registro Público de la Propiedad. De igual forma, se exonera de la cancelación de los montos correspondientes, por impuestos, timbres y derechos de inscripción del terreno señalado en el artículo 1, en la parte que corresponda. Asimismo, se autoriza a la Notaría del Estado para que corrija los defectos que señale el Registro Nacional.
+Rige a partir de su publicación.
+Dado en la Presidencia de la República, San José, a los diez días del mes de febrero del año dos mil veintiuno.
