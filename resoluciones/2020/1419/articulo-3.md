@@ -1,2 +1,0 @@
-Artículo 3º—A partir del 01 de enero de 2021, se deja sin efecto el monto establecido en la Resolución Administrativa N°0051-2020, publicada en el Diario Oficial La Gaceta N°229, del martes 15 de setiembre de 2020, que actualizó el impuesto específico creado por el artículo 10 de la Ley 5792, para los meses de octubre, noviembre y diciembre del año 2020.
-Dado en la ciudad de Moravia, a los 18 días del mes de noviembre de 2020.
