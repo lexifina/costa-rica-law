@@ -1,0 +1,1 @@
+Artículo 32. De los controles. La persona teletrabajadora estará sujeta a los controles ordinarios de evaluación establecidos por el Poder Judicial. Además, deberá brindar la información verídica y oportuna en todos los procesos de investigación.

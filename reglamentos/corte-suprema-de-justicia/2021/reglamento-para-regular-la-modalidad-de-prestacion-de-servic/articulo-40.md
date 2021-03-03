@@ -1,0 +1,1 @@
+Artículo 40. Del soporte técnico a los recursos informáticos. El soporte técnico se dará según el procedimiento definido por la Dirección de Tecnologías de Información y Comunicaciones para equipos y servicios institucionales.

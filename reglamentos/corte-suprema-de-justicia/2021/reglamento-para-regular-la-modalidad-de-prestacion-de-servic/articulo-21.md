@@ -1,0 +1,1 @@
+Artículo 21. De las notificaciones. El medio oficial para recibir todo tipo de notificación y comunicación por parte del Poder Judicial a las personas servidoras judiciales teletrabajadoras es la cuenta de correo electrónico institucional.

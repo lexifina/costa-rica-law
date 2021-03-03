@@ -1,0 +1,15 @@
+CAPÍTULO IV
+DE LOS DEBERES DE LA PERSONA TELETRABAJADORA
+Artículo 20. De los Requisitos mínimos a exigir a la persona servidora judicial que desee optar por la modalidad de teletrabajo. La persona servidora judicial que opte por la modalidad de teletrabajo, deberá cumplir con los siguientes requisitos:
+a) Que las actividades que desempeña el cargo que ocupa, sean teletrabajables, según criterios técnicos generales de la Dirección de Gestión Humana.
+b) Contar con la aprobación de la persona superior jerárquica respectiva.
+c) Presentar el Plan inicial de Trabajo aprobado por su superior jerárquico a la Dirección de Gestión Humana.
+d) Estar dispuesto a que se realicen las inspecciones en el lugar definido para teletrabajar por parte de uno de los profesionales del campo de la Salud e Higiene Ocupacional, las cuales se podrán realizar por diversos medios, sin perjuicio de que rinda declaración jurada de las condiciones del lugar donde presta su servicio de teletrabajo.
+e) Contar con las mismas condiciones de equipo ergonómico que tiene en la institución para realizar teletrabajo. No obstante, el Poder Judicial no estará obligado a proporcionar el equipo y mobiliario que requiera la persona teletrabajadora.
+f) Contar con el equipo tecnológico, ya sea propio o de la institución, que cumpla con la conectividad, la accesibilidad y la seguridad de la información requeridas según el criterio técnico y lineamientos en teletrabajo dados por parte de la Dirección de Tecnologías de la Información y Comunicaciones.
+g) Velar por el auto cuido de su salud y bienestar, por medio de la conciliación de la vida personal, familiar y laboral.
+h) Mantener las condiciones que justificaron su ingreso, así como todas las obligaciones y responsabilidades adquiridas. En caso de que surja alguna dificultad para mantener esas condiciones, debe plantearlo en forma inmediata ante su superior jerárquico para que se resuelva lo que procede.
+i) Notificar de forma inmediata a su superior jerárquico y a la Dirección de Tecnología de la Información cualquier tipo de falla que se presente en el equipo o sistema informático que le haya suministrado la institución, en especial si imposibilita el cumplimiento de sus funciones, utilizando los medios y el procedimiento definido por parte de la Dirección de Tecnología de la Información y Comunicaciones para realizar el reporte. Los tiempos en que se presente una falla con el equipo informático, por motivos no imputables a la persona servidora judicial, se tendrá como tiempo efectivo del servicio.
+j) Cumplir con lo estipulado en el artículo 26 del presente Reglamento.
+k) Deberá designar una cuenta de correo electrónico supletoria a la oficial, para recibir instrucciones, comunicaciones e incluso notificaciones del Tribunal de la Inspección Judicial u otro Órgano disciplinario, o bien alguna otra dependencia de la institución en caso de ser necesario.
+l) Autorizar que la Dirección de Tecnología de la Información y Comunicaciones realice revisiones remotas del equipo institucional, para verificar su uso y temas de seguridad.

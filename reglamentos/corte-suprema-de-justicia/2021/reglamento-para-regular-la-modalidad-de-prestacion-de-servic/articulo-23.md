@@ -1,0 +1,1 @@
+Artículo 23. Del cumplimiento de normativa. La persona teletrabajadora debe cumplir con todas las condiciones que establezca la normativa, los reglamentos y directrices institucionales aplicables a esta modalidad.

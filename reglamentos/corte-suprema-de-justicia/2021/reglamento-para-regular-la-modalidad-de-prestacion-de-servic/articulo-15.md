@@ -1,0 +1,6 @@
+Artículo 15. De las formas de teletrabajo. El teletrabajo en el Poder Judicial puede ser realizado según las siguientes modalidades:
+a) Teletrabajo domiciliario: se da cuando las personas trabajadoras ejecutan sus actividades laborales desde su domicilio.
+b) Estación de trabajo virtual: La persona servidora judicial puede realizar sus labores en la modalidad de teletrabajo desde centros establecidos para esos fines.
+c) Teletrabajo móvil: se da cuando las personas trabajadoras realizan sus funciones de manera itinerante, ya sea en el campo o con traslados constantes, con ayuda del uso de equipos móviles que sean fácilmente utilizables y transportables.
+d) Telecentro: espacio físico acondicionado con las tecnologías digitales e infraestructura, que le permite a los teletrabajadores realizar sus actividades y facilita el desarrollo de ambientes colaborativos que promueven el conocimiento para innovar esquemas laborales de alto desempeño dentro de las instalaciones del Poder Judicial.
+Es obligación de toda persona servidora judicial que desee realizar la prestación de sus servicios conforme lo establecido en el presente reglamento, comunicar la dirección del lugar donde se desarrollará la actividad de teletrabajo a la Dirección de Gestión Humana, así como actualizarla en caso de que la misma sea modificada.
