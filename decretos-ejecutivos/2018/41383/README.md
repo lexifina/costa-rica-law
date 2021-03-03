@@ -14,3 +14,4 @@ Reglamento de organización y funcionamiento de la Secretaría Técnica de Salud
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-11-07 | la propia norma |
+| 2 | 2021-03-03 | Decreto Ejecutivo 42953 (2021-03-03) |
