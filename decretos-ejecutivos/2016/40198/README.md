@@ -14,3 +14,4 @@ Reglamento del Régimen de Perfeccionamiento Activo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-02-20 | la propia norma |
+| 2 | 2021-03-03 | Decreto Ejecutivo 42952 (2021-03-03) |
