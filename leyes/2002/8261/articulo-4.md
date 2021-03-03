@@ -19,4 +19,6 @@ m) El derecho al reconocimiento, sin discriminación contraria a la dignidad hum
 (*) (Mediante resolución de la Sala Constitucional N° 12783 del 8 de agosto del 2018, se anuló del inciso anterior la frase entre paréntesis.)
 n) El derecho de las personas jóvenes a tener acceso a una vivienda digna
 (Así adicionado el inciso anterior por el artículo 2° de la Ley N° 9151 del 27 de agosto del 2013, "Acceso de Vivienda para las Personas Jóvenes")
+ñ) El derecho al deporte, por medio de la existencia de espacios deportivos integrales y efectivos, en donde se les garantice su uso cotidiano.
+(Así adicionado el inciso anterior por el artículo 1° de la ley N° 9917 del 19 de noviembre del 2020)
 Las personas adolescentes gozarán de los derechos contemplados en el Código de la Niñez y la Adolescencia, Ley Nº 7739.
