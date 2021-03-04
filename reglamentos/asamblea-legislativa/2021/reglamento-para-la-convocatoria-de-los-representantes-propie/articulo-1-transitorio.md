@@ -1,0 +1,2 @@
+Transitorio I.-La elección de los representantes de las organizaciones de sociedad civil para conformar la CIPA será por lo que resta de este período constitucional y se realizará siguiendo los procedimientos establecidos en este reglamento.
+El proceso de elección de la sociedad civil se realizará a los treinta días naturales luego de la aprobación de este Reglamento por parte del Directorio Legislativo.
