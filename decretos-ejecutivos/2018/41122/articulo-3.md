@@ -1,1 +1,0 @@
-Artículo 3º—Los documentos y lineamientos para la participación en dichos programas, estarán disponibles, de manera permanente y en su versión más actualizada, en el sitio web de la Dirección de Cambio Climático del MINAE (http://www.cambioclimaticocr.com) así como una versión impresa disponible para consulta.

@@ -1,1 +1,0 @@
-Artículo 4º—Los lineamientos de dicho programa en sus dos categorías podrán ser actualizados por la Dirección de Cambio Climático cuando esta así lo considere conveniente, de acuerdo con los avances y mejoras en las metodologías y lineamientos utilizados y las necesidades del país, de las organizaciones, cantones y/o concejos de distrito participantes.
