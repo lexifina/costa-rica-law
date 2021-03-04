@@ -18,3 +18,4 @@ Reglamento para Uso de Uniforme de Trabajo de los Funcionarios de la Junta de Pr
 | 3 | 2009-02-17 | Ley 8718 |
 | 4 | 2010-07-20 | Reglamento 23 (2010-07-20) |
 | 5 | 2016-02-29 | Reglamento 7 (2016-02-29) |
+| 6 | 2021-03-04 | Reglamento 14 (2021-03-04) |
