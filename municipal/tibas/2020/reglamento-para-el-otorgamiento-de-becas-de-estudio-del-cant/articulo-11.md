@@ -1,0 +1,1 @@
+Artículo 11. Será responsabilidad de la Administración Municipal en la figura de la Tesorería Municipal, establecer los mecanismos pertinentes para ejercer el control del pago de becas a cada uno de los beneficiarios, teniendo como fecha límite para el pago los segundos jueves de cada mes.

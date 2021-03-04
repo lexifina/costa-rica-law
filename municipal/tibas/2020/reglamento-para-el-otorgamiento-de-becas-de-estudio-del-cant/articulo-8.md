@@ -1,0 +1,1 @@
+Artículo 8. El Concejo Municipal conocerá durante el mes de marzo, los dictámenes rendidos por la Comisión de Asuntos Educativos y Becas, para la aprobación definitiva de los beneficiarios de las becas. Si fuera necesario la Comisión de Asuntos Educativos y Becas pedirá una prórroga al Concejo Municipal para presentar fuera de este tiempo uno o más dictámenes.
