@@ -1,0 +1,1 @@
+Artículo 52°. —De la notificación por accidentes menores. El conductor informará al Alcalde (sa) o su superior directo, de cualquier novedad o percance ocurrido al vehículo y para este fin utilizará el formulario de “Formulario de reporte e informe de incidentes y/o accidentes”.

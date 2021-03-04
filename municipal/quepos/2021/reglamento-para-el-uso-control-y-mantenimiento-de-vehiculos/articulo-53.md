@@ -1,0 +1,1 @@
+Artículo 53°. —-Todos los vehículos deberán cumplir con los programas de mantenimiento preventivo y correctivo en caso de accidentes de tránsito. Dichos programas serán estipulados por el Alcalde (sa).

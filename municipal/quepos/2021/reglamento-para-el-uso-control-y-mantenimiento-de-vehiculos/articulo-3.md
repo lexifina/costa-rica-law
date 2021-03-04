@@ -1,0 +1,1 @@
+Artículo 3°.–Alcance. Las disposiciones contenidas en el presente reglamento son de observancia y aplicación para todos los funcionarios de la Municipalidad, incluyendo el Alcalde o Alcaldesa Municipal y a los miembros del Concejo Municipal que por razón y en función de sus cargos, requieran hacer uso de los recursos de transporte de la Municipalidad de Quepos.

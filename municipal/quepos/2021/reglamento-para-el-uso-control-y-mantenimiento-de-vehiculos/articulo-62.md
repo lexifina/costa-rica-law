@@ -1,0 +1,1 @@
+Artículo 62°. —El Guarda de Seguridad Municipal, llevará los registros que permitan conocer el estado de los vehículos antes y después de cada servicio y todos los datos necesarios para el adecuado control del uso de los mismos, informando al Alcalde/sa o a la dependencia encargado del equipo automotor, cualquier anomalía que se presente.

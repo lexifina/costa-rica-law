@@ -1,0 +1,1 @@
+Artículo 59°. —El cumplimiento de lo anterior debe hacerse dentro del plazo perentorio judicial, de forma tal que se posibilite una adecuada y oportuna defensa de los intereses de la Municipalidad de Quepos. El involucrado en un accidente y/o incidente deberá poner a disposición de la Unidad de Asesoría Jurídica los testigos y pruebas con que se cuente en tiempo y forma.

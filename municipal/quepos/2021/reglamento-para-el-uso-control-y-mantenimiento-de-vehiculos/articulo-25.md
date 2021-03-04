@@ -1,0 +1,1 @@
+Artículo 25°.—De las prohibiciones de los conductores en el tema de estacionamiento. Los vehículos de la Municipalidad no deberán ser estacionados por sus conductores frente a cantinas, tabernas o similares, salvo por cuestiones estrictamente laborales.

@@ -1,0 +1,5 @@
+Artículo 70°. —Derogatoria: Este reglamento deroga el Reglamento anterior, denominado: "Reglamento para Uso de Vehículos Municipales” y el “Reglamento para Funcionamiento y Operación del Vehículo Toyota Doble Cabina (Quepos) No. 57”, así como cualquier otra disposición anterior que se le oponga.
+TRANSITORIOS XV
+A partir de la publicación de este reglamento y su entrada en vigencia los vehículos adquiridos por el municipio deberán tener GPS, además la Administración Municipal deberá de iniciar y realizar los procedimientos administrativos de conformidad con la Ley de Contratación Administrativa para la contratación de talleres de mantenimiento de vehículos municipales, y las actualizar las coberturas de pólizas del INS que se requieran conforme.
+Rige a partir de su publicación,
+Publíquese en el Diario Oficial La Gaceta de conformidad con lo dispuesto en el numeral 43 del Código Municipal vigente, por única vez como Reglamento definitivo al no requerir audiencia pública, por tratarse de un cuerpo normativo de orden interno”.

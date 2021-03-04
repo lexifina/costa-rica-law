@@ -1,0 +1,8 @@
+MUNICIPALIDAD DEL CANTÓN DE QUEPOS
+SECRETARÍA DEL CONCEJO MUNICIPAL
+El Concejo Municipal de Quepos, mediante acuerdo 21, Artículo Sexto, Informes Varios, de la Sesión Ordinaria No.061-2021, celebrada el día martes 09 de febrero de 2021, acuerda lo siguiente:
+“ACUERDO NO. 21: EL CONCEJO ACUERDA: Aprobar en todos sus términos el dictamen el Dictamen MQ-CMAJ-001-2021-2020-2022, de la Comisión Municipal de Asuntos Jurídicos. POR TANTO: aprobar en todos sus términos el Reglamento para el Uso, Control y Mantenimiento de Vehículos de la Municipalidad de Quepos, con la aprobación de esta propuesta se deroga el Reglamento para Funcionamiento y Operación del Vehículo Toyota Doble Cabina (Quepos) No. 57”, así mismo de conformidad con el artículo 43 del Código Municipal, que se publique por única vez para su entrada en vigencia en el Diario Oficial La Gaceta. Se acuerda lo anterior por unanimidad (cinco votos). En este tema vota la Señora Elisa Madrigal Ortiz, Regidora Suplente, supliendo a la Señora. Yanssi Rodríguez Brenes. Regidora Propietaria, quien pierde la conexión momentáneamente. ”
+“REGLAMENTO PARA EL USO, CONTROL Y MANTENIMIENTO DE
+VEHÍCULOS DE LA MUNICIPALIDAD DE QUEPOS.
+CAPÍTULO I. Disposiciones generales
+Artículo 1°.—-Objeto. El presente reglamento tiene como objeto ejercer un control sistemático y organizado sobre la flota vehicular, como parte de los bienes de carácter municipal, regulando su administración, uso, mantenimiento correctivo y preventivo y custodia; así como el manejo del recurso humano en cuanto a la responsabilidad directa que se genera de la interacción con los vehículos propiedad de la Municipalidad de Quepos.

@@ -1,0 +1,1 @@
+Artículo 58°. —La Jefatura encargada de equipo automotor, en conjunto con Unidad de Asesoría Jurídica, analizará todo accidente de tránsito en el que participe un vehículo de la Municipalidad y de ser necesario remitirá la documentación al Departamento de Recursos Humanos para el proceso disciplinario correspondiente.

@@ -1,0 +1,4 @@
+Artículo 57°. —Si la investigación de la Municipalidad o el fallo de la autoridad competente demuestran culpabilidad del conductor al servicio de la Municipalidad, éste deberá pagar:
+1. Los costos no cubiertos por la póliza del Instituto Nacional de Seguros para este tipo de riesgos (deducibles, porcentuales, etc.)
+2. Los otros costos en que incurra la Municipalidad o las indemnizaciones que haga la Municipalidad mediante arreglos a terceros afectados o mediante arreglos extrajudiciales, cuando el costo del daño sea inferior al monto del deducible.
+3. Cuando medie sentencia judicial se ejecutará de inmediato la misma, el funcionario por cuya negligencia llegara a operarse prescripción de las sanciones disciplinarias, se hará acreedor del despido sin responsabilidad patronal, previa verificación del procedimiento administrativo correspondiente. Lo aquí estipulado será aplicado sin perjuicio de las sanciones disciplinarias a que se haga acreedor el trabajador.

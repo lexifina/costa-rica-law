@@ -1,0 +1,1 @@
+Artículo 67°. —En el presente reglamento el funcionario municipal deberá tener presente y respetar lo así estipulado en materia de acumulación de puntos y procedimiento expuesto en el artículo 139 de la Ley de Transito por vías Públicas Terrestres y Seguridad Vial.

@@ -1,0 +1,1 @@
+Artículo 11°. —De las acciones de auditoría. La auditoría interna o el Alcalde (sa) municipal a través de quien delegue, efectuará el control de los vehículos propiedad de la Municipalidad de Quepos durante todo el año en base a revisiones programadas o sorpresivos, continuos y de acuerdo a las circunstancias en forma aleatoria.
