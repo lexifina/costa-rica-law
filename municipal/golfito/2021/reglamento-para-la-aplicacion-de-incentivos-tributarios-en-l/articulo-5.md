@@ -1,0 +1,1 @@
+Artículo 5º—Plazo para la aplicación del incentivo: Se establece como fecha para la cancelación adelantada de los tributos anuales y aplicación del incentivo a que se refiere este Reglamento, los tres primeros meses de cada año, de manera que el plazo anterior iniciará el primer día hábil del mes de enero y finalizará el último día hábil del mes de marzo del año del que se trate.
