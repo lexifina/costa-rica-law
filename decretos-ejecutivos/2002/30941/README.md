@@ -15,3 +15,4 @@ Reglamento Autónomo de Servicios del Consejo Nacional de Vialidad
 | --- | --- | --- |
 | 1 | 2003-01-23 | la propia norma |
 | 2 | 2015-07-28 | Decreto Ejecutivo 39308 (2015-07-28) |
+| 3 | 2021-03-04 | Decreto Ejecutivo 42881 (2021-03-04) |
