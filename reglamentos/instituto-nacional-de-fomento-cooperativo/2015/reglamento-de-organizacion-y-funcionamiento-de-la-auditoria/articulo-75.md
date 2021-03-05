@@ -1,3 +1,0 @@
-Artículo 75.—Obligaciones de los funcionarios del INFOCOOP con el presente Reglamento. Las disposiciones de este Reglamento son de acatamiento obligatorio para funcionarios de la Auditoría Interna y de la Administración Activa del INFOCOOP, en lo que a cada uno concierne.
-El incumplimiento injustificado de lo dispuesto en este Reglamento será causal de responsabilidad administrativa, conforme lo señalado en el Capítulo V de la Ley General de Control Interno y en la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública.
-La determinación de responsabilidades y la aplicación de sanciones administrativas corresponden al órgano competente, según las regulaciones internas y la normativa que resulte aplicable.

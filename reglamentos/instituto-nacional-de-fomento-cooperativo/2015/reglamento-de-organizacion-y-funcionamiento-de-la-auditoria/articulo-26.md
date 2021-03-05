@@ -1,2 +1,0 @@
-Artículo 26.—Formulación del PAO y presupuesto anual de la Auditoría Interna. La Auditoría Interna preparará el Plan Anual Operativo y el presupuesto anual en forma independiente del que elabore la Administración Activa, de conformidad con los lineamientos y directrices de los entes reguladores.
-Toda modificación al presupuesto de la Auditoría Interna deberá contar con la aprobación previa del Auditor Interno.

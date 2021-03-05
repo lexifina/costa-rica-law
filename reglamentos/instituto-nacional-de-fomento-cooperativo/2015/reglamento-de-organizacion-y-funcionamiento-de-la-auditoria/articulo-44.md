@@ -1,2 +1,0 @@
-Artículo 44.—Archivo permanente y de gestión de la Auditoría Interna. El Auditor Interno deberá formular políticas y procedimientos de trabajo que aseguren la preservación y adecuada custodia de los documentos que conforman el archivo permanente y de gestión de la Auditoría Interna, y de las bases de datos.
-Todo de conformidad con lo señalado en la Ley del Sistema Nacional de Archivos, su Reglamento y demás normativa aplicable.

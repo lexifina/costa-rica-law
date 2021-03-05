@@ -1,1 +1,0 @@
-Artículo 34.—Prohibiciones del Auditor Interno y demás funcionarios de la Auditoría Interna. El Auditor Interno y los funcionarios de la Auditoría Interna acatarán lo señalado en el artículo 34 de la Ley General de Control Interno, respecto de las prohibiciones en razón de sus cargos.

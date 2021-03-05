@@ -1,4 +1,0 @@
-SECCIÓN QUINTA
-Del personal de la Auditoría Interna
-Artículo 16.—Subordinación del personal de la Auditoría Interna del INFOCOOP. El personal de la Auditoría Interna depende directamente del Auditor Interno y responde ante él por su desempeño. Estarán sujetos a las disposiciones administrativas aplicadas al resto de los funcionarios del INFOCOOP; no obstante, se requiere autorización del Auditor Interno para el nombramiento, traslado, suspensión, remoción, concesión de licencias y demás movimientos de su personal; todo de acuerdo con el marco jurídico que rige para la institución.
-Las regulaciones de tipo administrativo que se mencionan no deberán afectar negativamente la actividad de auditoría interna, en relación con la independencia funcional y de criterio que le asiste al Auditor Interno y a su personal. En caso de duda, la Contraloría General de la República resolverá lo que corresponda.

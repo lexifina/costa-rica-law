@@ -1,7 +1,0 @@
-Artículo 36.—Servicios preventivos que brinda la Auditoría Interna. Los servicios preventivos se comunicarán mediante oficios u otros medios que la Auditoría Interna considere convenientes y para ello el Auditor Interno definirá la forma y contenido de los documentos, de conformidad con la normativa técnica aplicable. Comprenden servicios de asesoría, de advertencia y de autorización de libros.
-Servicio de asesoría:
-Es exclusivo del Auditor Interno en forma verbal o escrita a solicitud de la parte interesada, sobre asuntos de competencia de la Auditoría Interna, sin menoscabo de la independencia y objetividad en el desarrollo de sus demás competencias. El Auditor Interno coadyuva en la toma de decisiones sin manifestar inclinación por una posición determinada, ni sugerir o recomendar.
-Servicio de advertencia:
-Se podrá brindar de oficio en forma escrita con fundamento en el artículo 22, inciso d) de la Ley General de Control Interno, para prevenir lo que legal, administrativa y técnicamente corresponde sobre un asunto determinado o sobre situaciones, decisiones o conductas que sean de conocimiento de la Auditoría Interna, con el fin de prevenir posibles consecuencias negativas de algún proceder o riesgos en la gestión.
-Servicio de autorización de libros:
-Consiste en autorizar mediante razón de apertura, los libros de contabilidad y de actas para las diferentes dependencias del INFOCOOP, así como otros libros que a criterio del Auditor Interno sean necesarios para fortalecer la operación del sistema de control interno.

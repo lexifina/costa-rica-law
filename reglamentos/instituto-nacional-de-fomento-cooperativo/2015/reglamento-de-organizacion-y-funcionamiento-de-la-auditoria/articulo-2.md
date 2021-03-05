@@ -1,1 +1,0 @@
-Artículo 2º—Ámbito de aplicación. Este Reglamento es de acatamiento obligatorio para todos los funcionarios de la Auditoría Interna del INFOCOOP y para los funcionarios de la Administración Activa en aquellos aspectos que les resulte aplicable.

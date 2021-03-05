@@ -1,1 +1,0 @@
-Artículo 49.—Trámite del informe final de auditoría. El informe final de auditoría se remitirá a la Administración sujeto a los plazos previstos en los artículos del 36 al 38 de la Ley General de Control Interno, para cumplir con las recomendaciones que en él se consignen.

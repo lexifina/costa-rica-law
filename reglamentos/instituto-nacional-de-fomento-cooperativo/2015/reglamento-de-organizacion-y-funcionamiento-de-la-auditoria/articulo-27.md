@@ -1,1 +1,0 @@
-Artículo 27.—Presupuesto para capacitación del personal de Auditoría Interna. El Auditor Interno incluirá en el presupuesto anual los recursos necesarios para capacitar adecuadamente al personal de la Auditoría Interna, conforme lo señalan las Normas Generales de Auditoría para el Sector Público, emitidas por la Contraloría General de la República.

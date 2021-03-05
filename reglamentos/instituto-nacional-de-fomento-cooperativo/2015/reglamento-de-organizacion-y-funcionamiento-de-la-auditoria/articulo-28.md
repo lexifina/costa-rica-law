@@ -1,1 +1,0 @@
-Artículo 28.—Control y administración del presupuesto de la Auditoría Interna. El control y administración del presupuesto de la Auditoría Interna y de los bienes que le son asignados, son responsabilidad del Auditor Interno conforme lo señalado en el artículo 27 de la Ley General de Control Interno.

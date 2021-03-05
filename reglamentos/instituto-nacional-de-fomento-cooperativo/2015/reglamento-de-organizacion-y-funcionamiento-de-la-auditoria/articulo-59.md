@@ -1,3 +1,0 @@
-Artículo 59.—Admisibilidad o rechazo de las denuncias. La Auditoría Interna recibirá las denuncias y las analizará en un plazo razonable.
-La admisibilidad o el rechazo se definirá conforme lo señalado en el artículo 61 de este Reglamento y se dictará la respectiva resolución que se comunicará al denunciante en el lugar que señaló para notificaciones.
-Las denuncias recibidas se registrarán de tal manera que el ciudadano y la Auditoría Interna las puedan identificar y darles seguimiento oportuno. Lo anterior, con base en el procedimiento que al efecto se haya establecido en la Auditoría Interna.
