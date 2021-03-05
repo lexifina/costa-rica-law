@@ -14,3 +14,4 @@ Reglamento del Programa de Transporte Estudiantil en los Centros Educativos Púb
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-01-06 | la propia norma |
+| 2 | 2021-03-05 | Decreto Ejecutivo 42883 (2021-03-05) |
