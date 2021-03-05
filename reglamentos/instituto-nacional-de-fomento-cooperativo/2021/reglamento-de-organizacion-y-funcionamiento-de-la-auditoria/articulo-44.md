@@ -1,0 +1,6 @@
+SECCIÓN SEGUNDA - SERVICIOS DE AUDITORIA E INVESTIGACIONES DE HECHOS
+PRESUNTAMENTE IRREGULARES
+Artículo 44º - Servicios de auditoría e Investigación de hechos presuntamente irregulares
+Servicios de auditoría: Comprenden auditorías financieras, de carácter especial y auditorías operativas, para evaluar el cumplimiento, la suficiencia y validez del control interno en cualesquiera unidades administrativas u operativas del INFOCOOP, en el momento en que se considere oportuno con base en el Plan de Trabajo Anual, o cuando medie petición de la Contraloría General de la República o de la Junta Directiva, o si en criterio del Auditor Interno así se justifique.
+Los resultados de los servicios de auditoría se comunicarán mediante informes de control interno, incluidos los de seguimiento de recomendaciones.
+Investigación de hechos presuntamente irregulares: Comprende aspectos específicos de los cuales pueden derivarse posibles responsabilidades, con base en Directriz R-DC-102-2019 de la Contraloría General de la República. Los resultados de estas investigaciones se comunicarán mediante un Producto Final denominado: Desestimación y archivo del caso; o Relación de Hechos, o Denuncia Penal, según corresponda.

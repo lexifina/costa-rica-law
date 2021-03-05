@@ -1,0 +1,2 @@
+Artículo 12º - Atributos del personal de la Auditoría Interna
+El Auditor Interno y el resto del personal de la Auditoría Interna deberán conducirse de conformidad con lo dispuesto en las Normas generales de auditoría para el Sector Público - Capítulo I - "Normas Personales", emitidas por la Contraloría General de la República, y en el Código de Ética Profesional de la Auditoría Interna del INFOCOOP.

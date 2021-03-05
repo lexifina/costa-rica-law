@@ -1,0 +1,2 @@
+Artículo 64º - Responsabilidad por incumplimiento de recomendaciones
+Cabrá responsabilidad administrativa contra los funcionarios que incumplan las recomendaciones de la Auditoría Interna, cuya implementación haya sido ordenada por la Junta Directiva o por el titular subordinado que corresponda, sin perjuicio de las responsabilidades que les puedan ser imputadas civil y penalmente, conforme lo dispone el artículo 39 de la Ley General de Control Interno 8292.

@@ -1,0 +1,3 @@
+SECCIÓN SETIMA - PLANIFICACIÓN ESTRATÉGICA Y PLAN DE TRABAJO ANUAL DE LA AUDITORÍA INTERNA
+Artículo 70º - Planificación Estratégica y Anual
+La Auditoría Interna formulará la planificación estratégica y anual de sus procesos, conforme a los lineamientos aplicables al INFOCOOP. Para ello tomará como base las Normas para el ejercicio de la auditoría interna en el Sector Público y la valoración del riesgo institucional hasta donde sea posible, con énfasis en áreas sustantivas y estratégicas y en el Sistema de Control Interno, incluido lo referente a la prevención de la corrupción y el enriquecimiento ilícito.

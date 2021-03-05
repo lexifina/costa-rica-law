@@ -1,0 +1,3 @@
+Artículo 47º - Procesamiento de la información
+Los funcionarios de la Auditoría Interna deberán identificar y analizar información que les permita cumplir con los objetivos del trabajo.
+Deben registrar información suficiente, confiable, relevante y útil que les permita apoyar sus hallazgos, conclusiones, recomendaciones y demás resultados del trabajo en adecuados análisis y evaluaciones, y almacenarla en el medio electrónico designado con la debida estructura documental, conforme a la Ley de Certificados, Firmas Digitales y Documentos Electrónicos No.8454 del 30/08/2005 y el Reglamento en Decreto Ejecutivo No.33018-MP-MICIT del 20/03/2006

@@ -1,0 +1,3 @@
+Artículo 59º - Informes de Relaciones de Hechos
+La Relación de Hechos es un informe que compila una serie de hechos presuntamente irregulares, acciones u omisiones, que se encuentran ligados por un nexo de causalidad a una falta y a un presunto responsable. La Relación de Hechos se eleva a conocimiento del Jerarca, o titular subordinado correspondiente, o de una autoridad competente, para que valore la procedencia de la apertura de un procedimiento administrativo o cualquiera otra acción que considere pertinente.
+Dicho informe constituye un insumo para la determinación de responsabilidades, por lo que no le resulta aplicable el régimen de impugnación de los actos administrativos previsto en la Ley General de la Administración Pública 6227 del 02/05/1978.

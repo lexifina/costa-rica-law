@@ -1,0 +1,3 @@
+Artículo 34º - Desacuerdos atinentes a la dotación de recursos
+Cuando el titular de la Auditoría Interna no esté conforme con la resolución del jerarca respecto de la solicitud de recursos, podrá expresarle las razones de su inconformidad e indicar los riesgos que podrían generarse. El jerarca deberá referirse a lo expuesto por la Auditoría Interna dentro del plazo que determinen las regulaciones internas.
+Si persiste el desacuerdo, el titular de Auditoría Interna debe documentar las limitaciones al desarrollo oportuno y efectivo de la actividad de auditoría interna y el riesgo que se asume, así como la eventual responsabilidad en que podría incurrir el Jerarca conforme el artículo 39 de la Ley General de Control Interno 8292.

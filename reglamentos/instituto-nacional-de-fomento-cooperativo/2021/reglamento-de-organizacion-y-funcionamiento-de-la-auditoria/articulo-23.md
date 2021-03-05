@@ -1,0 +1,3 @@
+Artículo 23º - Reclutamiento y selección del personal de Auditoría Interna
+El Auditor Interno emitirá procedimientos internos a observar para solicitar el personal que requiera la Auditoría Interna mediante nuevas plazas, o cuando se produzcan vacantes dentro de la Dependencia. Lo anterior, en coordinación con el Departamento de Recursos Humanos del INFOCOOP, con base en la normativa institucional que rige y en sanas prácticas en materia de contratación.
+El procedimiento de evaluación y selección de candidatos se llevará a cabo en la propia Auditoría Interna, y el Auditor Interno emitirá una Resolución Final para que la Administración Activa del INFOCOOP ejecute el nombramiento.

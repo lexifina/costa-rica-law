@@ -1,0 +1,3 @@
+Artículo 21º - Delegación de funciones del Auditor Interno
+Conforme lo establece la Ley General de la Administración Pública y con base en los procedimientos que estime pertinentes y en criterios de idoneidad profesional, en ausencias temporales el Auditor Interno tiene la facultad de delegar funciones técnicas y administrativas en el Supervisor de Auditoría o en un Auditor Asistente en ausencia de este último, quienes deberán cumplir con el marco legal, reglamentario y técnico que regula ese accionar.
+En ausencias temporales del Auditor Interno mayores a 30 días naturales, rige lo dispuesto en la Resolución RDC-83-2018, emitida por la Contraloría General de la República.

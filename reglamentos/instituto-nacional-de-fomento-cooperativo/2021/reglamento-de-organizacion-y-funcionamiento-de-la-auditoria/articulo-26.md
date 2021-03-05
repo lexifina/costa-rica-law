@@ -1,0 +1,2 @@
+Artículo 26º - Causales de responsabilidad administrativa
+Los funcionarios de la Auditoría Interna incurrirán en responsabilidad administrativa cuando por dolo o culpa grave incumplan sus deberes y funciones, infrinjan la normativa técnica aplicable o el régimen de prohibiciones establecido en la Ley General de Control Interno; todo sin perjuicio de las responsabilidades que les puedan ser imputadas civil o penalmente.
