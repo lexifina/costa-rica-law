@@ -1,1 +1,0 @@
-Artículo 2º—Al entrar en vigencia la presente resolución, se deja sin efecto la actualización efectuada mediante resolución número RES-DGH-0014-2019 de las once horas cuarenta minutos del 07 de marzo de 2019, publicada en La Gaceta Nº 61 del 27 de marzo de 2019.
