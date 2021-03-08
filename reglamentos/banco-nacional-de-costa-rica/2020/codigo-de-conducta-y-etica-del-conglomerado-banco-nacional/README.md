@@ -15,3 +15,4 @@ Código de Conducta y Ética del Conglomerado Banco Nacional
 | --- | --- | --- |
 | 1 | 2020-03-20 | la propia norma |
 | 2 | 2020-10-19 | Reglamento 12492 (2020-10-19) |
+| 3 | 2021-03-08 | Reglamento 12517 (2021-03-08) |
