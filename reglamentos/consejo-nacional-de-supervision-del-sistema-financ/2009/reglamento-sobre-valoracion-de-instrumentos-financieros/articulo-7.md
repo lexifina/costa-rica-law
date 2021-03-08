@@ -1,1 +1,0 @@
-Artículo 7º—Servicios complementarios. Los proveedores de precios pueden prestar otros servicios complementarios, siempre que el suministro de estos servicios no genere conflictos de interés con su objeto principal.

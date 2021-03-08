@@ -1,4 +1,0 @@
-Artículo 23.—Exclusión forzosa de metodologías. Procede la exclusión del registro de la metodología cuando concurra alguna de las siguientes causales:
-a) La metodología no sea utilizada por ningún cliente ni entidad supervisada para obtener los precios de valoración durante un plazo continuo de doce meses. Este plazo puede ser prorrogado hasta por la mitad del plazo original, siempre y cuando el proveedor o entidad supervisada solicite en tiempo la prórroga de forma justificada.
-b) Cuando se modifiquen los principios y lineamientos mínimos establecidos en este Reglamento y la aplicación de la metodología registrada no se ajuste a los cambios efectuados.
-La SUGEVAL puede solicitar un plan de corrección en un plazo determinado. No obstante, si al final de dicho plazo no se solventa la situación, se procederá con la exclusión del registro de la metodología.

@@ -1,1 +1,0 @@
-Artículo 12.—Desinscripción voluntaria de un proveedor de precios. La desinscripción de un proveedor de precios debe ser autorizada por el Superintendente General de Valores. Para lo anterior se requiere de la presentación de una solicitud suscrita por el representante legal del proveedor, así como la información requerida en el artículo 22 sobre la exclusión de las metodologías.

@@ -1,1 +1,0 @@
-Artículo 5º—Carácter público de las metodologías. Las metodologías de determinación de precios de valoración de instrumentos financieros que se encuentren registradas en SUGEVAL son de acceso público.

@@ -1,5 +1,0 @@
-Artículo 20.—Obligatoriedad de la aplicación de la metodología y la supervisión de su cumplimiento.
-El proceso de determinación de precios de valoración se llevará a cabo con estricto apego a la metodología registrada. Los precios finales generados serán definitivos y no podrán ser modificados con posterioridad.
-Los proveedores de precios y entidades supervisadas, que cuenten con metodologías propias registradas, deben establecer procedimientos que les permitan dar mantenimiento a las metodologías registradas y, en el momento en que determine que éstas deben ser actualizadas o modificadas, deberán proceder con lo dispuesto en el artículo anterior.
-La Superintendencia General de Valores realizará, conforme a la programación que determine, visitas de inspección, o rutinas de supervisión a distancia, a los proveedores de precios; para revisar el proceso de determinación de precios, de conformidad con la metodología registrada y los principios y normas contenidas en este Reglamento.
-(Así reformado en sesión N° 1071 del 29 de octubre de 2013)

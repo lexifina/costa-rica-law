@@ -1,2 +1,0 @@
-Artículo 15.—Obligaciones de divulgación en relación con los contratos. El proveedor de precios debe revelar si los ingresos provenientes de un mismo cliente o su grupo económico, exceda el equivalente al 20% de sus ingresos totales de los últimos doce meses.
-Esta revelación debe realizarse por medio de un comunicado de hechos relevantes, en los primeros diez días hábiles del mes de enero y julio de cada año, en caso de presentarse un exceso durante los doce meses anteriores a las fechas indicadas.

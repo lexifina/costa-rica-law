@@ -1,2 +1,0 @@
-Artículo 19.—Modificaciones a las metodologías. Las modificaciones a las metodologías deben registrase en la SUGEVAL, para lo cual debe procederse con lo dispuesto en el artículo 17 de este Reglamento para el registro de metodologías, adicionalmente se debe presentar un documento en donde se expliquen los cambios presentados y los motivos que lo fundamentan.
-Las modificaciones a las metodologías podrán ser utilizadas a partir de la comunicación de registro correspondiente, que emita el Superintendente General de Valores.

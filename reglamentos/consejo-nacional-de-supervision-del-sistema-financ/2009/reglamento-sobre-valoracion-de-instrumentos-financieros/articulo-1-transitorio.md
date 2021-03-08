@@ -1,1 +1,0 @@
-Transitorio I.—En un plazo de tres meses a partir de la entrada en vigencia del presente Reglamento, las compañías que ofrezcan el servicio de cálculo, determinación y suministro de precios de valoración deben proceder a realizar el registro como proveedor de precios de conformidad con lo dispuesto en el artículo 8 de este Reglamento.

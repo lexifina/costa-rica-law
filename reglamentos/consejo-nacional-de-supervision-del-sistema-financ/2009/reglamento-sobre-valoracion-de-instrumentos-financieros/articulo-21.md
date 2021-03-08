@@ -1,3 +1,0 @@
-Artículo 21.—Contratación de los servicios que prestan los proveedores de precios por parte de las Superintendencias del Sistema Financiero.
-Para los procesos de supervisión generales que aplican las Superintendencias, éstas podrán contratar el servicio de cálculo, determinación y suministro de precios de valoración para los instrumentos financieros a cualquiera de los proveedores de precios autorizados, para lo cual deberán aplicar el procedimiento de contratación administrativa respectivo. En el proceso de contratación se definirá el contenido, el medio y el formato para el envío de la información.
-(Así reformado en sesión N° 1071 del 29 de octubre de 2013)

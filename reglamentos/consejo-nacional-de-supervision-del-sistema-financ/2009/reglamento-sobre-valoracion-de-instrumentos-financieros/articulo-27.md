@@ -1,1 +1,0 @@
-Artículo 27.—Derogatorias. Se deroga el “Reglamento sobre valoración de carteras mancomunadas”, aprobado por el Consejo Nacional de Supervisión del Sistema Financiero mediante sesión 279-2002, artículo 12, celebrada el 1° de febrero del 2002. Publicado en el Diario Oficial La Gaceta Nº 33 del 15 de febrero del 2002.

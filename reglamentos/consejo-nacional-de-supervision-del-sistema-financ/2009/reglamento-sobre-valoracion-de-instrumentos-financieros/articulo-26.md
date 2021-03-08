@@ -1,5 +1,0 @@
-CAPÍTULO V
-Disposiciones finales
-Artículo 26.—Responsabilidades de las bolsas de valores por la comunicación de los precios de las operaciones. Las bolsas de valores constituidas bajo la legislación costarricense, deben mantener a disposición de los proveedores de precios inscritos y entidades supervisadas que registren metodologías de valoración ante la SUGEVAL, la información de las operaciones que se celebren, así como de las ofertas de compra o venta, en donde al menos se identifique para cada operación y oferta, el instrumento, los montos y precios, tipo de transacción y la fecha y hora del evento.
-Los términos y condiciones para el suministro de esta información deben publicarse en la página web de las bolsas de valores.
-Los contratos utilizados por las bolsas de valores para el suministro de esta información, no deben establecer condiciones que limiten la libre competencia, ni impidan o retrasen a un participante el acceder a la información requerida para promover la formación correcta de precios.
