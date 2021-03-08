@@ -39,13 +39,15 @@ Como medida para facilitar el comercio, cuando la naturaleza del régimen lo per
 5. A partir de la vigencia de la presente Resolución, se derogan la Resolución 18-96 (COMRIEDRE-111), el numeral 1 de la parte resolutiva de la Resolución 318-2013 (COMIECO-EX), y el numeral 3 de la parte resolutiva de la Resolución 66-2013 (COIVIRIEDRE) y sus Anexos.
 6. Las mercancías que, al momento de la entrada en vigencia de la presente Resolución, se encuentren autorizadas por los servicios aduaneros de los Estados Parte mediante una declaración distinta a la DUCA, podrán completar la operación para la cual fueron destinadas con dicha declaración, conforme a la regulación aplicable a las mismas.
 7. La presente Resolución entrará en vigor el 7 de mayo del 2019 y será publicada por los Estados Parte.
-(Así reformado el punto anterior por el artículo 2° del decreto ejecutivo N° 41687 del 2 de abril del 2019 “ Publica la Resolución N ° 410-2019 (COMIECO-EX) de fecha 28 de marzo de 2019, que modifica la entrada en vigencia de la Resolución Nº 409-2018 (COMIECO-LXXXV) de fecha 7 /12/ 2018 y su Anexo I: "Formato de la Declaración Única Centroamericana (DUCA)"”)
+(Así reformado el punto anterior por el artículo 2° del decreto ejecutivo N° 41687 del 2 de abril del 2019 " Publica la Resolución N ° 410-2019 (COMIECO-EX) de fecha 28 de marzo de 2019, que modifica la entrada en vigencia de la Resolución Nº 409-2018 (COMIECO-LXXXV) de fecha 7 /12/ 2018 y su Anexo I: "Formato de la Declaración Única Centroamericana (DUCA)"")
 Ciudad de Panamá, Panamá, 7 de diciembre de 2018
 [imagen]
 [imagen]
 [imagen]
 ANEXO I DE LA RESOLUCIÓN No. 403-2016 (COMIECO-LXXXV)
 [imagen]
+(Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 42887 del 8 de marzo de 2021, que aprobó la resolución N° 430-2021 (COMIECO-EX) de 24/11/2020 "Modificación de la casilla 61 del formato de la Declaración Única Centroamericana (DUCA)", se acordó Modificar la casilla 61 del formato de la Declaración Única Centroamericana (DUCA), contenida en el Anexo I de la Resolución No. 409-2018 (COMIECO-LXXXV), del 7 de diciembre de 2018, que deberá leerse de la forma siguiente:
+"61. El suscrito declara bajo fe de juramento que las mercancías arriba detalladas son originarias de _______. Nombre. Empresa. Cargo. Firma.")
 [imagen]
 [imagen]
 [imagen]
