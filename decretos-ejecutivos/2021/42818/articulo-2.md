@@ -1,0 +1,23 @@
+ARTÍCULO 2°.- Adiciónese los artículos 193, 200, 208, 209 y 210 del Decreto Ejecutivo Nº 25270-H de fecha 14 de junio de 1996, publicado en el Diario Oficial La Gaceta Nº 123 del 28 de junio de 1996 y sus reformas, para que se lean en los siguientes términos:
+"Artículo 193.- Procedimiento de subasta pública. El procedimiento de subasta pública será regulado por resolución de alcance general. En casos excepcionales en los que no sea posible la realización de subastas por medios electrónicos, la Dirección General de Aduanas autorizará la realización de subastas en la sede de la Aduana de Jurisdicción. Para estos efectos la Dirección General de Aduanas emitirá el respectivo procedimiento de contingencia."
+"Artículo 200.- Aviso de subasta. En el sistema informático y en la página web del Ministerio de Hacienda se publicará en un plazo no inferior a los diez días hábiles a la fecha de remate, la invitación a participar en éste.
+El aviso de subasta deberá contener como mínimo la siguiente información:
+a. Descripción detallada de las mercancías que permitan su identificación.
+b. Lugar, plazo y horario en que podrán ser examinadas las mercancías.
+c. Fecha, hora y medio para realizar el remate electrónico.
+d. El precio base de las mercancías objeto de remate electrónico.
+e. Porcentaje mínimo de aumento entre ofertas, previamente definido por resolución de alcance general y el tiempo durante el cual se realizarán las ofertas.
+f. Informar que todos los oferentes, deberán cancelar de forma previa una suma equivalente al 25% del precio base de las mercancías en la cuenta que la Administración disponga al efecto, conforme a lo dispuesto en los artículos 206, 207 y 208 de este Reglamento.
+g. Que la subasta es de libre concurrencia, con las excepciones de los funcionarios que legalmente están impedidos de participar directa o indirectamente como postores, ni parientes por afinidad o consanguinidad hasta el tercer grado inclusive.
+h. Indicación que las mercancías se subastarán individualmente o integradas en lote.
+i. Informar que para la disposición de las mercancías sujetas a restricciones no arancelarias, el adjudicatario deberá presentar el permiso, licencia o autorización vigente.
+j. Informar que además del precio base y el monto de la oferta final, el adjudicatario deberá cancelar los montos relativos a bodegaje en el depositario aduanero o la aduana, según corresponda.
+k. Advertir a los oferentes que la identidad de los que hayan participado en el remate electrónico y se hayan adjudicado mercancías, será pública una vez concluido éste."
+"Artículo 208.- Reintegro del veinticinco por ciento del precio base. El veinticinco por ciento del precio base de las mercancías será reintegrado conforme las siguientes reglas:
+a) Será devuelto una vez concluido el período de recepción de ofertas y se tengan definidos los tres mejores oferentes.
+b) Se deberá presentar solicitud expresa por parte de los oferentes.
+c) El monto fungirá para el adjudicatario final como anticipo del pago total de la mercancía de su interés, quien deberá cancelar el resto del monto dentro del día hábil siguiente a la fecha del resultado del remate."
+"Artículo 209.- Formalidades para retirar las mercancías restringidas. En la subasta de mercancías cuya importación esté restringida, limitada o que requiera de un permiso o autorización especial, sólo podrán ser retiradas por el adjudicatario, quien deberá presentar los documentos, permisos, licencias, autorizaciones respectivas o dictámenes específicos de las autoridades competentes y demás formalidades que establezca la Dirección General de Aduanas."
+"Artículo 210.- Remate desierto e infructuoso. El remate se considerará desierto cuando no se diera la presentación de oferentes.
+Será remate infructuoso cuando los tres mejores oferentes no hubiesen cancelado la totalidad del precio final ofertado dentro del plazo correspondiente, hayan formulado sus ofertas en términos que contravinieren la normativa vigente, no cumplieren con alguno de los requisitos arancelarios y no arancelarios, así como alguno de los deberes tributarios, patronales o resultaren inaceptables para la Administración.
+En los dos casos anteriores, la autoridad aduanera procederá con las mercancías según lo dispuesto en los artículos números 77 y 271 de la Ley General de Aduanas y respecto de las embarcaciones, los buques, los botes de todo tipo, los motores fuera de borda, las motos acuáticas y cualquier categoría de implementos o equipo de navegación, de conformidad con lo dispuesto en el artículo número 36 de la Ley número 8000 de 5 de mayo del 2000, publicada en el Alcance 34 a La Gaceta Nº 99 de fecha 24 de mayo del 2000 (Ley de Creación del Servicio Nacional de Guardacostas)."
