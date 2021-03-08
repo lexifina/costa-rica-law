@@ -1,0 +1,1 @@
+Artículo 2º-Los demás artículos del Reglamento para la Gestión del Cobro Administrativo, Extrajudicial y Judicial, la Fiscalización y la Recaudación Tributaria de la Municipalidad de Esparza quedan incólumes.
