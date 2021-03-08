@@ -1,0 +1,1 @@
+Artículo 2°- Deróguese el Decreto Ejecutivo No. 39308-MOPT "Reforma al Reglamento Autónomo de Servicios del Consejo Nacional de Vialidad", del 28 de julio del 2015, publicado en el Diario Oficial La Gaceta No. 237, Alcance 108, del 07 de diciembre de 2015.
