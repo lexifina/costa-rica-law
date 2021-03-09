@@ -1,0 +1,3 @@
+MUNICIPALIDAD DE POCOCÍ
+ADMINISTRACIÓN TRIBUTARIA
+La Alcaldía de la Municipalidad de Pococí autoriza mediante la resolución RES-DAM-0007-2020 , la adhesión a la publicación hecha por el órgano de Normalización Técnica (ONT) del Ministerio de Hacienda del Manual de valores Base Unitarios por Tipología Constructiva del año 2019, publicado en el Alcance Digital N° 288 de La Gaceta N° 226 del jueves 30 de julio del 2020, así como todas las adendas que el ONT emita, con el afán de corregir y/o aclarar los contenidos de dicho manual, el cual se utilizará en el cálculo de los valores unitarios de construcciones y/o instalaciones de los predios del cantón y estimar el monto correspondiente por concepto de Impuesto sobre Bienes Inmuebles.
