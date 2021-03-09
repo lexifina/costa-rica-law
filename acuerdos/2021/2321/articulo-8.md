@@ -1,0 +1,1 @@
+Artículo 8º-Nombramiento del personal de la Auditoría Interna. El eventual nombramiento del personal que labora en la Auditoría Interna de la Defensoría, se realizará atendiendo las disposiciones contenidas en el artículo 24 de la Ley General de Control Interno, y la demás normativa que resulte atinente.

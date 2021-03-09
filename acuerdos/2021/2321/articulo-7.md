@@ -1,0 +1,1 @@
+Artículo 7º-Naturaleza del nombramiento a realizar. Los nombramientos que se realicen bajo los procedimientos descritos en el presente Acuerdo tendrán carácter de interinazgo. Todo nombramiento en propiedad deberá realizarse mediante el procedimiento de concurso público descrito en el Estatuto de Selección vigente.

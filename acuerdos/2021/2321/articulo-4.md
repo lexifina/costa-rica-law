@@ -1,0 +1,6 @@
+Artículo 4º-De la conformación de un registro de oferentes para ocupar plazas vacantes de forma interina
+Si el Defensor o Defensora de los Habitantes opta por la realización de un nombramiento interino conforme el Procedimiento Abreviado de Selección Externa (PAES), deberá utilizarse el Registro de Oferentes que, para tal efecto, el Departamento de Recursos Humanos deberá construir y mantener actualizado. Lo anterior, en el tanto no haya disponibilidad en el registro de elegibles en la institución.
+A tales efectos, el Departamento de Recursos Humanos deberá emitir un comunicado donde se invita a las personas interesadas a presentar postulaciones para robustecer el registro de oferentes. Este comunicado se divulgará por las redes sociales institucionales y por el correo institucional durante un plazo máximo cinco días hábiles.
+El registro de oferentes estará conformado indistintamente por personas externas a la institución, así como por personas que laboren en ella.
+La recepción de las ofertas se realizará a través de un enlace dispuesto permanentemente para tales efectos en la página web de la Defensoría de los Habitantes.
+Las ofertas presentadas por las personas interesadas tendrán una validez de un año a partir de su presentación; una vez superado este plazo, la oferta caducará y será responsabilidad de la persona interesada el renovarla.
