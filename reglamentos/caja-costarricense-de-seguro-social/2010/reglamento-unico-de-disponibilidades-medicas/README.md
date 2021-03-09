@@ -15,3 +15,4 @@ Reglamento Único de Disponibilidades Médicas
 | --- | --- | --- |
 | 1 | 2010-06-28 | la propia norma |
 | 2 | 2020-05-21 | Reglamento 9097 (2020-05-21) |
+| 3 | 2021-03-09 | Reglamento 9162 (2021-03-09) |
