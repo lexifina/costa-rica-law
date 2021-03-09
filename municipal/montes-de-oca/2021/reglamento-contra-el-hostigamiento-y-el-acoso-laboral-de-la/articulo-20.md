@@ -1,0 +1,1 @@
+Artículo 20.-El Departamento de Recursos Humanos debe considerar dentro del programa de inducción para los servidores y las servidoras municipales de nuevo ingreso, información sobre lo que es el acoso laboral.

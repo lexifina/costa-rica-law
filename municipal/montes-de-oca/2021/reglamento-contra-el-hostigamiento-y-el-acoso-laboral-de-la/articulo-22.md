@@ -1,0 +1,5 @@
+Artículo 22.-En la fase preliminar de la investigación o en cualquier etapa del procedimiento administrativo ordinario disciplinario hasta tanto no adquiera firmeza la resolución o acto final; el Órgano Director del Procedimiento nombrado por la autoridad competente (Alcalde(sa) o Concejo Municipal), deberá gestionar ante el Departamento de Recursos Humanos, a solicitud de la persona denunciante y de la jefatura del denunciado(a) la adopción o revocación de las medidas cautelares que se indican a continuación:
+a) Suspensión precautoria de la persona denunciada.
+b) Traslado del denunciante o la denunciante o de algún testigo, a su solicitud o de sus representantes legales, cuando existe una relación de subordinación o cuando se presuma la continuación de las presuntas conductas de acoso laboral.
+c) Cualquier otra medida que se considere conveniente.
+La aplicación de las medidas precautorias podrá hacerse de oficio o a petición de parte. En caso de tomarse alguna medida debe comunicársele a las partes en un acto escrito motivado y sin recursos de revocatoria o apelación.

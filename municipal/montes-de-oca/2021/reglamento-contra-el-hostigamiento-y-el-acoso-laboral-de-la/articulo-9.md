@@ -1,0 +1,1 @@
+Artículo 9º-Las partes podrán acudir al Departamento de Recursos Humanos personalmente sin necesidad de representación legal, sin que ello sea obstáculo para que la Municipalidad, en casos evidentes, ordene de oficio la apertura del procedimiento administrativo ordinario disciplinario sin que implique perjuicio.

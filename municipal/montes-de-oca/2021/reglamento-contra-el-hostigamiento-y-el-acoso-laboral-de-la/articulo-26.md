@@ -1,0 +1,1 @@
+Artículo 26.-El Departamento de Recursos Humanos, recibida la denuncia, traslada el expediente en el término de cinco días hábiles, aportando los indicios o pruebas ofrecidas por el denunciante al Alcalde o Alcaldesa.

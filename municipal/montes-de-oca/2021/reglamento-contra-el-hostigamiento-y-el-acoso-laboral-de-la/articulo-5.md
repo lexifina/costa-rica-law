@@ -1,0 +1,1 @@
+Artículo 5º-Para determinar si la conducta alegada constituye acoso laboral o moral u hostigamiento psicológico en el trabajo se considera la totalidad de las circunstancias en que ocurrieron los hechos. La determinación de la legalidad de una acción se hace con fundamento en los hechos de cada caso en particular.

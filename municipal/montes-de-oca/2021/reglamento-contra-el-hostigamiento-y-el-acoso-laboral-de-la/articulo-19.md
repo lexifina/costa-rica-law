@@ -1,0 +1,1 @@
+Artículo 19.-La Municipalidad debe establecer mecanismos de prevención de las conductas de acoso laboral, así como un procedimiento interno mediante el Departamento de Recursos Humanos de forma confidencial y efectivo para superar las que ocurran y sancionar a las personas acosadoras u hostigadoras cuando exista causa.

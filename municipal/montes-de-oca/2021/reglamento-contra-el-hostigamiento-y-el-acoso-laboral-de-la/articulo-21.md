@@ -1,0 +1,1 @@
+Artículo 21.-Es responsabilidad de la Municipalidad dar a conocer el presente reglamento por los medios que se consideren oportunos y necesarios y deberá de estar accesible para todos los y las servidores y servidoras municipales.
