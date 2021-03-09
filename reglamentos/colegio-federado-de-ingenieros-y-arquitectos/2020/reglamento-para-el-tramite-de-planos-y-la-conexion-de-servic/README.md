@@ -14,3 +14,4 @@ Reglamento para el trámite de planos y la conexión de servicios eléctricos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-06-09 | la propia norma |
+| 2 | 2021-03-09 | Reglamento 15 (2021-03-09) |
