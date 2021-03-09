@@ -1,4 +1,4 @@
-Artículo 3º—De los objetivos: El Centro Nacional de Información Geoambiental tendrá los siguientes objetivos:
+Artículo 3º-De los objetivos: El Centro Nacional de Información Geoambiental tendrá los siguientes objetivos:
 a. Consolidar la organización del CENIGA para atender adecuadamente los alcances de su misión y visión.
 b. Desarrollar los instrumentos legales para la conformación y operación del SINIA y la RENIA.
 c. Establecer una estrecha relación de coordinación y soporte con el SINIA y la RENIA a través de los mecanismos que se establezcan en el instrumento legal que se defina.
@@ -14,4 +14,6 @@ k) Apoyar a Secretaría de Planificación Sectorial de Ambiente, Energía, Mares
 (Así adicionado el inciso anterior por el artículo 19 del Reglamento Operativo de la Secretaría de Planificación Sectorial de Ambiente, Energía, Mares y Ordenamiento Territorial (SEPLASA), aprobado mediante decreto ejecutivo N° 40710 del 4 de agosto del 2017)
 l. Cualquier otra que se le asigne.
 (Corrida la numeración del inciso anterior el artículo 19 del Reglamento Operativo de la Secretaría de Planificación Sectorial de Ambiente, Energía, Mares y Ordenamiento Territorial (SEPLASA), aprobado mediante decreto ejecutivo N° 40710 del 4 de agosto del 2017, que lo traspasó del antiguo inciso k) al l))
+m) Asumir en carácter de Unidad Coordinadora Técnica la articulación técnica operativa del Sistema de Nacional de Monitoreo de Cobertura y Uso de la Tierra y Ecosistemas (SIMOCUTE).
+(Así adicionado el inciso anterior por el artículo 13 del decreto ejecutivo N° 42886 del 9 de marzo del 2021 "Creación y operación del Sistema Nacional de Monitoreo de cobertura y uso de la tierra y ecosistemas (SIMOCUTE)”)
 (Así reformado por el artículo 14 del decreto ejecutivo N° 37658 del 29 de enero del 2013 "Establece el Sistema Nacional de Información Ambiental (SINIA) y reforma el decreto ejecutivo N° 29540 "Constituye el Centro Nacional de Información Geoambiental como un órgano de la Dirección General de Hidrocarburos del Ministerio de Ambiente y Energía")
