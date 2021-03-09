@@ -1,6 +1,5 @@
-Artículo 81.—Requisitos para ser integrante de los Comités Comunales. Los integrantes la Junta Directiva de los Comités Comunales deberán reunir los siguientes requisitos:
-a) Ser mayores de dieciocho años.
-b) No desempeñar el cargo de Concejales, sea suplente o propietario (a), Alcalde (sa) o Vicealcaldes (sa), Tesorero (a), Auditor (a), Contador (a) o Miembro del CCDRF.
-c) Ser persona de reconocida solvencia moral.
-d) Probar ser vecinos del distrito, tener al menos dos años de residir en el Cantón de Flores.
-e) No tener dependencia económica, salario u otra remuneración con la Municipalidad de Flores, ni con el CCDRF.
+CAPÍTULO XIII
+De los Comités Comunales
+Artículo 81.- Naturaleza de los Comités Comunales. Los Comités Comunales serán los órganos de enlace entre el CCDRF y la comunidad o barrio, en los diferentes distritos que conforman el Cantón de Flores, estarán integrados por siete miembros con más de dos años de residir del distrito o comunidad y/o barrio; respetando en la medida de lo posible, la paridad y equidad de género; estos serán nombrados en Asamblea General, convocada para tal efecto por la Junta Directiva del CCDRF y por el Comité Cantonal de la Persona Joven.
+(Así reformado mediante sesión N° 063-2021 del 09 de marzo del 2021)
+(Así modificada su numeración mediante sesión ordinaria 063-2021 del 09 de marzo del 2021, que lo traspasó del antiguo artículo 79 al 80. Posteriormente en esta misma sesión se corre nuevamente la numeración del artículado por lo que se traspasa del antiguo 80 al 81)

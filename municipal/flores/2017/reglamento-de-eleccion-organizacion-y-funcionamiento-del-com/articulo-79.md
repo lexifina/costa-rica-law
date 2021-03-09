@@ -1,3 +1,5 @@
-CAPÍTULO XIII
-De los Comités Comunales
-Artículo 79.—Naturaleza de los Comités Comunales. Los Comités Comunales serán los órganos de enlace entre el CCDRF y la comunidad o barrio, en los diferentes distritos que conforman el Cantón de Flores, estarán integrados por cinco miembros con más de dos años de residir del distrito o comunidad y/o barrio; respetando en la medida de lo posible, la paridad y equidad de género; estos serán nombrados en Asamblea General, convocada para tal efecto por la Junta Directiva del CCDRF.
+CAPÍTULO XII
+De las Asociaciones deportivas y recreativas
+Artículo 79.-Personería jurídica y adscripción. Las Asociaciones y Sociedades Anónimas Deportivas y Recreativas que se encuentren debidamente inscritas en el Registro de Asociaciones o Sociedades Anónimas respectivo y en ICODER, con domicilio legal en el Cantón de Flores, en coordinación con el CCDRF procederán a prever, planificar, organizar, ejecutar, controlar, evaluar y coordinar los planes de iniciación deportiva, Juegos Nacionales y Desarrollo Deportivo delas distintas disciplinas deportivas y además a coordinar los eventos recreativos.
+Las Asociaciones y Sociedades Anónimas Deportivas y Recreativas, podrán solicitar la adscripción a la Junta Directiva del CCDRF siempre y cuando tengan la personería jurídica vigente.
+(Así modificada su numeración mediante sesión ordinaria 063-2021 del 09 de marzo del 2021, que lo traspasó del antiguo artículo 77 al 78. Posteriormente en esta misma sesión se corre nuevamente la numeración del artículado por lo que se traspasa del antiguo 78 al 79)

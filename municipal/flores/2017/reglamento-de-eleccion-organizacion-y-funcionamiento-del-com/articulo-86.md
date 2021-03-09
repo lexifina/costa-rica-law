@@ -1,4 +1,6 @@
-Artículo 86.—Sustitución de miembros de los Comités Comunales. En caso de renuncia o destitución de uno de los miembros del Comité Comunal, la sustitución se realizará de la siguiente forma:
-a) El sustituto desempeñará el cargo correspondiente, por el tiempo que falte para completar el período en que fue nombrado el titular.
-b) Ante la renuncia o destitución de uno o dos miembros la Junta Directiva del Comité Comunal podrá nombrar los sustitutos directamente, comunicándole a la Junta Directiva del CCDRF para su respectiva juramentación.
-c) Ante la renuncia o destitución de más de dos miembros, la Junta Directiva del CCDRF deberá convocar a una Asamblea General de acuerdo al artículo N° 79 de este Reglamento, de la Comunidad correspondiente para conformar la totalidad del nuevo Comité Comunal.
+Artículo 86.-Causales para dejar de ser miembro de los Comités Comunales. Los miembros de la Junta Directiva del Comité Comunal pierden esa condición en los siguientes casos:
+a) Por no cumplir con los requisitos contenidos en este Reglamento.
+b) Por renunciar al puesto o destitución del mismo, para lo cual debe cumplirse el debido proceso.
+c) Por ser miembro simultáneamente de más de un Comité Comunal, o de la Junta Directiva del CCDRF.
+d) Por infringir este reglamento o por cualquiera de las causales del artículo N° 81 de este Reglamento, previo cumplimiento del debido proceso.
+(Así modificada su numeración mediante sesión ordinaria 063-2021 del 09 de marzo del 2021, que lo traspasó del antiguo artículo 84 al 85. Posteriormente en esta misma sesión se corre nuevamente la numeración del artículado por lo que se traspasa del antiguo 85 al 86)

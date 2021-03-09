@@ -1,1 +1,2 @@
-Artículo 31.—Votación de acuerdos. Los acuerdos se tomarán por mayoría simple de los votos presentes, salvo si este Reglamento señala un mayor número de votos. Cuando en una votación se produzca un empate, se votará de nuevo en el mismo acto o la sesión ordinaria inmediata siguiente y de empatar otra vez, el asunto se tendrá por desechado.
+Artículo 31.-Quórum. El quórum para sesionar estará integrado por la mitad más uno del total de las y los miembros de la Junta Directiva del CCDRF.
+(Así modificada su numeración mediante sesión ordinaria 063-2021 del 09 de marzo del 2021, que lo trasapasó del antiguo artículo 30 al 31)

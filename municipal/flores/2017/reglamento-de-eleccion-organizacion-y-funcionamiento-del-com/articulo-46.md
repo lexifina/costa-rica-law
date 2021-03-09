@@ -1,4 +1,5 @@
-Artículo 46.—Conformación. La Junta Directiva del CCDRF estará integrada por cinco personas con al menos dos años de residir en el cantón, electos de la siguiente forma:
-a) Dos personas nombradas por el Concejo Municipal, procurando en la medida de lo posible, que sean un hombre y una mujer.
-b) Dos miembros de las asociaciones deportivas y recreativas del cantón adscritas al CCDRF procurando que sean un hombre y una mujer en la medida de lo posible nombrados por el Concejo Municipal de una lista de 5 personas que para tales efectos elegirá la Asamblea de Asociaciones Deportivas y Recreativas,
-c) Una persona de las organizaciones comunales restantes del Cantón adscritas al CCDRF nombrada por el Concejo Municipal de una terna que para tales efectos elegirá la Asamblea de Asociaciones Comunales.
+CAPÍTULO IX
+Del proceso de elección y nombramiento
+de los miembros de la Junta Directiva del CCDRF
+Artículo 46.-Vigencia del nombramiento. Los miembros de la Junta Directiva del Comité Cantonal de Deportes y Recreación de Flores y los miembros de los Comités Comunales durarán en sus cargos dos años que regirán del 01 de abril de cada año par al 31 de marzo del siguiente año par, y podrán ser reelectos por una única vez. Por su participación no devengarán dieta ni remuneración alguna proveniente de las arcas municipales, según artículo 177 del Código Municipal.
+(Así reformado y modificada su numeración mediante sesión ordinaria 063-2021 del 09 de marzo del 2021, que lo traspasó del antiguo artículo 45 al 46)
