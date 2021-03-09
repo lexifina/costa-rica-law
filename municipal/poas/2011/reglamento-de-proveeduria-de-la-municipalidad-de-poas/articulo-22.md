@@ -1,1 +1,3 @@
-Artículo 22.-Notificación de la adjudicación. La Proveeduría Institucional notificará de la adjudicación, por el mismo medio empleado que se cursó la invitación, todo ello de conformidad con las reglas establecidas en el artículo 88 del RLCA. En el caso de licitaciones (Públicas y Abreviadas) se comunicará a todos los oferentes para que ejerzan su derecho en caso de considerarse afectados.
+CAPÍTULO QUINTO
+Del análisis, adjudicación y formalización de la contratación
+Artículo 22.-Del acto de adjudicación. El Encargado de la Proveeduría Institucional será el responsable de garantizar el proceso administrativo de contratación, cualquiera que esta sea; así como, de solicitar los informes técnicos y recomendaciones sobre los bienes y servicios requeridos.

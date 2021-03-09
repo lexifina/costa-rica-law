@@ -1,4 +1,1 @@
-Artículo 26.-Firmas en la orden de compra. Estas deberán ser firmadas por:
-a) El Alcalde Municipal como jerarca.
-b) El Tesorero autorizando el contenido presupuestario.
-c) La persona quien recibe el bien o servicio.
+Artículo 26.-Formalización de las contrataciones. Se elaborará un contrato para todo tipo de licitaciones abreviadas y públicas, además para todo proceso de obra pública. La Proveeduría Institucional solicitará a la Asesoría Legal la confección de los contratos que requieran los diferentes tipos de contratación, con el fin de realizar mediante dicho documento la formalización y en el plazo estipulado en el cronograma de actividades. Igualmente, todas las contrataciones de servicios (profesionales y técnicos) se deben formalizar por medio de un contrato.

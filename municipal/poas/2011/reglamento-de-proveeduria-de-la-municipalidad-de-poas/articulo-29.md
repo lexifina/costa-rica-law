@@ -1,3 +1,3 @@
-Artículo 29.-Registro y control de existencias en bodega. La Proveeduría Institucional contará con existencias de materiales y suministros en la bodega de la Proveeduría.
-Para el debido registro y control de las existencias en bodega, la Proveeduría confeccionará los registros que considere necesarios para ejercer un control aceptable de los movimientos de bienes en la bodega municipal.
-La bodega contará con un responsable directo (encargado) del registro de entrada y salida de materiales y suministros.
+Artículo 29.-Firmas en la orden de compra o Contrato generado en el Sistema Integrado de Compras Públicas. Estas deberán ser firmadas por:
+a) El Alcalde Municipal como jerarca.
+b) El Tesorero autorizando el contenido presupuestario.

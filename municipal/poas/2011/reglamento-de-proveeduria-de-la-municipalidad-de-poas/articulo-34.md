@@ -1,2 +1,3 @@
-Artículo 34.-Invitación a participar en los concursos. La Proveeduría Institucional invitará a presentar oferta prioritariamente a personas debidamente inscritas en el Registro de Proveedores y que estén en capacidad de ofrecer el suministro o el servicio, a presentar oferta.
-No se invitará a concursar a aquellos oferentes que han sido sancionados por la Administración o por el Estado.
+Artículo 34.-Registro y control de existencias en bodega. La Proveeduría Institucional contará con existencias de materiales y suministros en la bodega de la Proveeduría.
+Para el debido registro y control de las existencias en bodega, la Proveeduría confeccionará los registros que considere necesarios para ejercer un control aceptable de los movimientos de bienes en la bodega municipal.
+La bodega contará con un responsable directo (encargado) del registro de entrada y salida de materiales y suministros.

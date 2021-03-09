@@ -1,3 +1,3 @@
-Artículo 36.-Reporte de cambios en bienes y servicios ofrecidos y renovación de documentos. Los oferentes incluidos en el Registro de Proveedores quedan obligados a comunicar a la Proveeduría Institucional de todo cambio que se presente en sus datos, descripción y característica de los bienes y servicios.
-Los oferentes inscritos en el Registro de Proveedores están obligados a renovar aquellos documentos legales que hayan vencido y a actualizar sus datos anualmente y a mantenerse en el Registro de Proveedores cada dos años ante nota remitida a la Proveeduría.
-Se somete a consulta pública no vinculante por un plazo de 10 días hábiles, según lo establece el artículo 43 del Código Municipal. Publíquese en el Diario Oficial La Gaceta. Acuerdo Unánime y definitivamente aprobado.
+CAPÍTULO OCTAVO
+Del registro de proveedores
+Artículo 36.-Registro de Proveedores. Para los procesos de contratación administrativa se utilizará el Registro de Proveedores inscrito en el Sistema Integrado de Compras Públicas, donde la inscripción de personas físicas y jurídicas será conforme al Reglamento de Uso del Sistema.

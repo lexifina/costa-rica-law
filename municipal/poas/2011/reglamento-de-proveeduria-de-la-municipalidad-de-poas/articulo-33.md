@@ -1,3 +1,4 @@
-Artículo 33.-Verificación de requisitos. Recibida la solicitud de incorporación, la Proveeduría Institucional verificará que se aporte toda la información requerida.
-En caso de existir incumplimiento en algún documento, se le concederá al solicitante un plazo máximo de 5 días hábiles para que se subsane esto.
-Si la prevención no es atendida en el tiempo anteriormente establecido, la solicitud se tendrá rechazada sin más trámite.
+Artículo 33.-Responsabilidad del adjudicatario. La mercadería debe venir acompañada de la factura y orden de compra y/o contrato generado por el Sistema Integrado de Compras Públicas correspondiente. Sin estos documentos no se debe recibir ninguna mercadería, los cuales deben firmarse como recibido.
+Si a un oferente se le adjudica una compra directa y no cumple con el plazo de entrega o con el inicio de los trabajos establecidos en la orden de compra, la Administración podrá proceder a anularla y a adjudicar el bien o servicio al oferente que haya quedado en segundo lugar, o bien puede reiniciar el proceso de contratación.
+Cuando una empresa contratada; para proveer de bienes o servicios a la Institución; ocasiona algún daño a las instalaciones o personal municipal, debe repararlos, de lo contrario, los costos de la reparación se le rebajarán del pago del contrato.
+Para el trámite de pago la empresa contratada deberá realizar el trámite de pago en el Sistema Integrado de Compras Públicas y haber remitido la factura electrónica al correo designado para tal fin.

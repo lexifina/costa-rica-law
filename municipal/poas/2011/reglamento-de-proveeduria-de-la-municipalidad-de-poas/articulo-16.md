@@ -1,1 +1,1 @@
-Artículo 16.-Bienes en existencia. Si la Proveeduría Institucional tiene existencias del bien solicitado lo despachará de acuerdo al horario establecido, siempre y cuando, previamente se haga la respectiva solicitud.
+Artículo 16-Devolución Solicitud de Bienes y Servicios. Si por alguna razón una solicitud no puede ser tramitada, la Proveeduría Institucional devolverá el documento al solicitante en un plazo no mayor de tres días hábiles, indicando por escrito las razones por las que no se tramita la solicitud.

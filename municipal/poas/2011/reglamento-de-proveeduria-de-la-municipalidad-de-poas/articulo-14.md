@@ -1,1 +1,1 @@
-Artículo 14.-Devolución Solicitud de Bienes y Servicios. Si por alguna razón una solicitud no puede ser tramitada, la Proveeduría Institucional devolverá el documento al solicitante en un plazo no mayor de tres días hábiles, indicando por escrito las razones por las que no se tramita la solicitud.
+Artículo 14.-Orden de inicio del procedimiento. Será emitida por el Alcalde Municipal y/o titular subordinado competente designado por la Unidad Solicitante.

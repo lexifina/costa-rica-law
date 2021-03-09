@@ -14,3 +14,4 @@ Reglamento de proveeduría de la Municipalidad de Poás
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-01-06 | la propia norma |
+| 2 | 2021-03-09 | Reglamento municipal 45 (2021-03-09) |

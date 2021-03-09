@@ -1,3 +1,2 @@
-Artículo 15.-Necesidad real de bienes y servicios. Las justificaciones para la compra de un bien o servicio (por cualquiera de los procedimientos de contratación), así como las especificaciones técnicas deben apegarse a la verdad y a las necesidades reales de la dependencia solicitante.
-Si esto no fuera así, y el bien o servicio adquirido se constituye en una pérdida para la Municipalidad, o no puede utilizarse por errores imputables al solicitante, éste asumirá toda la responsabilidad del caso.
-En casos donde la duración excesiva e injustificada del trámite evite la atención oportuna de una necesidad, la responsabilidad será del órgano responsable del trámite donde se originó el atraso.
+Artículo 15.-Solicitud de muestras o demostraciones. Cuando el solicitante de bienes y servicios lo considere necesario, por medio de la Proveeduría, se solicitará a los oferentes, muestras o demostraciones con el propósito de conocer mejor el producto o servicio.
+El jefe del Área interesada, debe prestar la debida colaboración para que las demostraciones se realicen en un corto lapso, con el fin de que sean analizadas y se realicen las valoraciones del caso.

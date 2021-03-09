@@ -1,7 +1,6 @@
-Artículo 8º-Competencia de la Comisión de Recomendación de Adjudicaciones. La Comisión de Recomendación de Adjudicaciones tendrá las siguientes funciones:
-a. Recomendar al Concejo y Alcaldía Municipal los actos de adjudicación de todas las contrataciones dentro de sus rangos de acción, donaciones y autorizaciones de procedimientos de remate y subasta.
-b. Aprobar los carteles de todas las licitaciones.
-c. Recomendar la aprobación y aceptación de las donaciones de bienes muebles cuando la Municipalidad de Poás sea sujeto donante o beneficiario, en este último caso será indispensable contar con un dictamen técnico favorable que manifieste la utilidad que ésta tendrá para la Municipalidad.
-d. Convocar a cualquier funcionario de la Municipalidad de Poás con carácter de invitado y con el fin de obtener su criterio técnico en asuntos de su competencia.
-e. Recomendar en el caso que así lo requieran las diferentes instancias adjudicatarias las modificaciones y adiciones contractuales conforme con el derecho de modificación unilateral que le otorga la LCA y el RLCA, de las contrataciones amparadas a procedimientos de contratación.
-f. Conocer cualquier otro asunto que se considere afín con sus funciones.
+Artículo 8º-Comisión de Recomendación de Adjudicaciones. Habrá una Comisión de Recomendación de Adjudicaciones que estará integrada por:
+a. El Encargado(a) de la Proveeduría Institucional.
+b. Coordinador de las Unidades de Gestión Vial, Gestión Urbana y Gestión Ambiental.
+c. Jefe de Gestión Administrativa Municipal.
+La Comisión estará presidida por el Encargado(a) de la Proveeduría Institucional. La secretaría de la Comisión estará a cargo del funcionario que la comisión designe. El quórum estará formado por la mayoría absoluta de sus integrantes. La asistencia a las sesiones de esta Comisión es obligatoria, por lo que toda ausencia debe ser debidamente justificada ante quien la preside.
+Para su funcionamiento, la Comisión se regirá por lo dispuesto en el artículo 49 y siguientes de la Ley General de la Administración Pública.

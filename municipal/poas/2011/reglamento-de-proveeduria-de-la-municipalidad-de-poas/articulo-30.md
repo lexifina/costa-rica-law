@@ -1,3 +1,5 @@
-CAPÍTULO SÉTIMO
-Del Registro de Proveedores
-Artículo 30.-Objetivo del Registro de Proveedores. El Registro de Proveedores es un elemento esencial de consulta de la Proveeduría Institucional, que permitirá mantener requisitos y características de proveedores, bienes y servicios ofrecidos para la toma de decisiones, futuras contrataciones y la posibilidad de categorizar los proveedores.
+CAPÍTULO SEXTO
+Los niveles de competencia para aprobar modificaciones
+contractuales y nuevas contrataciones originadas en
+contrataciones preexistentes y reajustes de precios
+Artículo 30.-Del reajuste de precios. Todo reajuste de precios a los contratos suscritos por la Administración, será autorizado por el Alcalde Municipal, previa verificación de la existencia de los recursos presupuestarios suficientes y la correspondiente validación de la Unidad Administradora del Contrato.

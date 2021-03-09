@@ -1,1 +1,1 @@
-Artículo 25.-Orden de compra. La Proveeduría Institucional emitirá la orden de compra para las firmas respectivas, mediante el cual se ordena la ejecución de la prestación de bienes y servicios, misma que deberá ser comunicada al adjudicado.
+Artículo 25.-Notificación de la adjudicación. La Proveeduría Institucional notificará de la adjudicación, por el mismo medio empleado que se cursó la invitación, todo ello de conformidad con las reglas establecidas en el artículo 88 del RLCA.

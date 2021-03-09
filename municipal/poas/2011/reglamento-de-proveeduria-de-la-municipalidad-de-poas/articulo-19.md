@@ -1,4 +1,1 @@
-CAPÍTULO QUINTO
-Del análisis, adjudicación
-y formalización de la contratación
-Artículo 19.-Del acto de adjudicación. El Encargado de la Proveeduría Institucional será el responsable de garantizar el proceso administrativo de contratación, cualquiera que esta sea; así como, de solicitar los informes técnicos y recomendaciones sobre los bienes y servicios requeridos.
+Artículo 19.-Emisión de la Orden de Compra. La Orden de Compra o contrato generado en el Sistema Integrado de Compras Públicas será emitida una vez que se dé la adjudicación definitiva o la firma del contrato de formalización.

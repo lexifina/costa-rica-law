@@ -1,7 +1,1 @@
-CAPÍTULO SEGUNDO
-De los órganos involucrados
-en los procedimientos de contratación
-Artículo 4º-Competencia de los órganos en la adjudicación: La Proveeduría Institucional, la Alcaldía y el Concejo Municipal adjudicarán los procedimientos de contratación según los límites económicos de contratación administrativa que define y actualiza anualmente la Contraloría General de la República, para la categoría o estrato en la que se ubique la Municipalidad; con los siguientes rangos de aprobación:
-Ø El Proveedor: Adjudicará los procesos de contratación cuyo monto de adjudicación sea inferior hasta en un 40% del monto máximo establecido para contrataciones directas.
-Ø Alcalde Municipal: Adjudicará los procesos de contratación cuyo monto de adjudicación sea del 40% hasta el 100% del monto máximo establecido para contrataciones directas y aquellos procesos para obra pública que se realicen a través de contrataciones directas.
-Ø Concejo Municipal: Adjudicará los procesos de contratación para los procedimientos que superen el monto máximo establecido para contrataciones directas.
+Artículo 4º-Del programa anual de adquisiciones. La formulación del programa anual de adquisiciones de la Municipalidad de Poás, deberá tomar como sustento básico el presupuesto aprobado para cada período presupuestario, así como sus respectivas modificaciones. La Proveeduría Institucional deberá publicar en el Diario Oficial La Gaceta y en el portal de SICOP, en el mes de enero de cada año, el programa de adquisiciones de la Municipalidad de Poás, siguiendo los lineamientos que para tal efecto establezcan la LCA y su Reglamento. Cualquier modificación al programa deberá ser autorizado por la Alcaldía Municipal y deberá publicarse en el portal de SICOP.
