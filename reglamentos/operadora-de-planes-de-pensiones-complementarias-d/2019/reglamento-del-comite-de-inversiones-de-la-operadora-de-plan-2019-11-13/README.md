@@ -14,3 +14,4 @@ Reglamento del Comité de Inversiones de la Operadora de Planes de Pensiones Com
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-12-03 | la propia norma |
+| 2 | 2021-03-10 | Reglamento 633 (2021-03-10) |
