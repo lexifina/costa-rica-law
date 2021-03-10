@@ -1,4 +1,5 @@
 N° 9926
+(Nota de Sinalevi: Mediante el artículo 3° del decreto ejecutivo N° 42864 del 15 de febrero del 2021, se acordó lo siguiente: "Artículo 3º-Modifíquese la cédula jurídica del registro presupuestario 210-553-01-60103-204-001 Céd-Jur: 3-007-11719 para que se lea 210-553-01-60103-204-001 Céd-Jur: 3-007-117191.")
 LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
 DECRETA:
 LEY DE PRESUPUESTO ORDINARIO Y EXTRAORDINARIO DE LA REPÚBLICA
