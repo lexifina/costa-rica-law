@@ -1,0 +1,2 @@
+Artículo 47°. Uso de bases de datos de acceso público
+Las investigaciones biomédicas que requieren la recolección de datos sobre individuos y grupos a través de sitios web de acceso público sin interacción directa con las personas, como mínimo deberán obtener el permiso del responsable del sitio web, así como, la garantía de confidencialidad, publicar un aviso sobre la intención de realizar una investigación y asegurarse de cumplir los términos oficiales de uso del sitio web. Dichos documentos deberán adjuntarse al protocolo.

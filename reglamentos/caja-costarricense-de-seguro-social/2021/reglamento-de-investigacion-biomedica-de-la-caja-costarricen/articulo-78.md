@@ -1,0 +1,3 @@
+Artículo 78°. Pagos por concepto de gestión administrativa de protocolo de investigación.
+El CENDEISSS, a través de la AISSS; en conjunto con el Área de Costos Hospitalarios, estimará los costos por concepto de gestión administrativa del protocolo de investigación; entendiéndose los mismos como conceptos de solicitud de revisión del protocolo, revisión de consentimiento informado, enmiendas al protocolo y/o consentimiento informado, renovaciones anuales y cualquier otro que determine esas unidades.
+El monto pagado por el patrocinador se destinará al Fondo de Investigación e Innovación Tecnológica del CENDEISSS, según los lineamientos que para ese efecto se establezcan.

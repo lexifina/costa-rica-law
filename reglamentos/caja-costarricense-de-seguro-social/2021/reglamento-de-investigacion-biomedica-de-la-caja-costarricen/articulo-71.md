@@ -1,0 +1,3 @@
+Artículo 71°. Unidades de Investigación en Salud
+La autorización de la creación de las UI como estructura funcional deberá ser solicitada por la dirección del centro asistencial a la Dirección del CENDEISSS, a través de la AISSS, siguiendo los lineamientos descritos en el Decreto Ejecutivo del Ministerio de Salud N°40001-S Normas de Implementación y Funcionamiento de las Unidades de Investigación en Salud.
+Constituida la UI estará adscrita a la dirección del centro asistencial en donde se creó y su funcionamiento se encontrará sujeto a las prioridades de investigación acordadas por la Junta Directiva de la Caja.

@@ -1,0 +1,3 @@
+Artículo 25°. Publicidad para reclutamiento de potenciales participantes en investigaciones biomédicas en las unidades de la CAJA
+Toda publicidad referente a la investigación biomédica, que se realice en cualquier formato (medios impresos, televisivos, radiofónicos, digitales y otros), deberá contar con la aprobación del CEC respectivo de la CAJA y la autorización de la autoridad(es) superior(es) de la(s) unidad(es) programática(s).
+Las investigaciones que no han sido aprobadas por un CEC institucional, no podrán realizar publicidad con fines de reclutamiento, inclusión y otros en las unidades de la CAJA.

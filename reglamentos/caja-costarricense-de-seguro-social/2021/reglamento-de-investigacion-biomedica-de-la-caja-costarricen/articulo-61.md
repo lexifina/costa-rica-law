@@ -1,0 +1,4 @@
+Artículo 61°. Consentimiento informado en personas con discapacidad
+En el caso de investigaciones biomédicas en las que participen personas con discapacidad, el consentimiento informado deberá ser proporcionado por personal debidamente capacitado del equipo investigador o quien ellos designen y adaptado según la circunstancia de la persona, considerando los servicios de apoyo necesarios para informar al participante a fin de garantizar el ejercicio pleno del derecho a la autonomía personal.
+Ante el supuesto de requerirse la participación de un representante legal, un garante o salvaguardia según corresponda, de igual forma a esa persona se le brindará la información para la respectiva toma de decisión, la cual deberá ajustarse a lo contemplado en la Ley N°9379.
+El consentimiento informado se enumerará y firmará en cada una de sus hojas.

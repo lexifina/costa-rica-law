@@ -1,0 +1,3 @@
+Artículo 43°. Retiro o revocación del consentimiento informado para uso de material biológico.
+Los participantes, sus representantes legales o garantes, podrán retirar en cualquier momento el consentimiento informado para la conservación y uso del material biológico o datos relacionados almacenados.
+La revocatoria deberá formalizarse mediante documentación por escrito, firmada por el participante, su representante legal o garante, y el material biológico deberá destruirse o devolverse al participante. No se permite el uso futuro de materiales biológicos y datos relacionados después de que se haya revocado el consentimiento.

@@ -1,0 +1,4 @@
+Artículo 31°. Contrato en investigaciones biomédicas con patrocinio externo
+Las investigaciones biomédicas con patrocinio externo requerirán suscribir un contrato entre la CAJA, representada por la Dirección del CENDEISSS, el investigador y el patrocinador o en su caso la OAC/OIC, previo al inicio de la investigación, en el que se definan las obligaciones de las partes, las condiciones económicas, las funciones de las partes, condiciones de derechos patrimoniales de autor, patentes y publicaciones, además de cualquier otro asunto de interés como el manejo de muestras o transferencia de material biológico cuando se requiera.
+Una vez aprobada la investigación por parte del CEC y establecidos sus gastos, la AISSS dispondrá de un plazo de 10 días hábiles para elaborar el contrato respectivo.
+Todo contrato suscrito deberá contar con el criterio del asesor legal del CENDEISSS en un plazo máximo de cinco días hábiles.

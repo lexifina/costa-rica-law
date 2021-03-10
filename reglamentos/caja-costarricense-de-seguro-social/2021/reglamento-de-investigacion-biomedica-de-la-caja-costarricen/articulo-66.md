@@ -1,0 +1,4 @@
+Artículo 66°. Consentimiento Informado electrónico (CIe)
+El CEC respectivo podrá aprobar la utilización de un CIE, siempre que éste sea rubricado mediante la firma digital certificada o se emplee un mecanismo seguro y válido para la recopilación de la voluntad del participante, de su representante legal, garante o quien ejerza la salvaguardia. En ese último caso se confrontará la firma emitida en el mecanismo electrónico con la que conste en la cédula de identidad.
+El investigador deberá garantizar el archivo correcto del CIE en el expediente de investigación llevado para cada participante.
+Sí alguno o algunos de los participantes deben realizar la suscripción del consentimiento informado de forma física y el expediente de investigación será llevado de forma electrónica, el investigador deberá garantizar su incorporación el mismo mediante la certificación del documento.

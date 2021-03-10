@@ -1,0 +1,2 @@
+Artículo 7°. Subárea de Gestión de Investigación
+Tendrá como finalidad priorizar y estimular la búsqueda permanente del conocimiento útil y de la tecnología requerida para mejorar la atención de los asegurados e incrementar la eficiencia y eficacia de los procesos de investigación institucional. De igual forma, será responsable de la administración del Fondo de Investigación e Innovación Tecnológica (FIIT), de evaluar el desempeño e impacto de los proyectos de investigación realizados y de divulgar e interactuar con entidades externas.

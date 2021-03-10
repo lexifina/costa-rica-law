@@ -1,0 +1,2 @@
+Artículo 79°. Pagos por concepto de utilización de recursos de la CAJA en la Investigación.
+Si el protocolo de investigación requiere el uso de recursos físicos, materiales y procedimientos, su pago deberá realizarse acorde al Modelo Tarifario de Seguro de Salud. Si el rubro no estuviese indicado en el mismo, le corresponderá al Área Contabilidad de Costos de la CAJA, en un plazo máximo de un mes determinar el costo específico del nuevo rubro. El monto pagado por el patrocinador se destinará a la reposición de los recursos utilizados.

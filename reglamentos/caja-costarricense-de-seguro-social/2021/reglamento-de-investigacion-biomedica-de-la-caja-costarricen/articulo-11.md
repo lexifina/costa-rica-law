@@ -1,0 +1,1 @@
+Artículo 11°. Consulta a expertos. Los CEC podrán consultar a expertos en temas específicos, de forma escrita o durante el desarrollo de una sesión. En este último supuesto, se determinará un momento específico de la sesión para recibir al experto, sin que éste pueda tener acceso a las discusiones o votaciones del CEC.

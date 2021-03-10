@@ -1,0 +1,3 @@
+Artículo 49°. Medidas de protección de bases de datos
+El responsable de la base de datos deberá tomar las medidas necesarias para mantener la seguridad de la información vinculada a los mismos, para lo cual deberán compartir datos anónimos o codificados con los investigadores y limitar el acceso de terceros a los mismos.
+La clave del código deberá quedar con el responsable de los datos. En caso de que la investigación lo requiera, a modo de excepción, el CEC podrá aprobar la utilización de datos no codificados. Además, deberá cumplirse con todo lo establecido en la Ley N°8968 Ley de protección de la persona frente al tratamiento de sus datos personales.

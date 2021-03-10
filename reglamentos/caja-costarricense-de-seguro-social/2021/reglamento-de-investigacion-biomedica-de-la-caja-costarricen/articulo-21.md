@@ -1,0 +1,2 @@
+Artículo 21º. Derechos de patente (propiedad industrial)
+Los derechos derivados de la posibilidad de patentar el resultado de una investigación biomédica autóctona, colaborativa con patrocinio externo serán acordados de previo en el contrato suscrito con la CAJA. Lo anterior de acuerdo con las disposiciones de la Ley de patentes, de invenciones, dibujos y modelos industriales y modelos de utilidad (Ley N°6867).

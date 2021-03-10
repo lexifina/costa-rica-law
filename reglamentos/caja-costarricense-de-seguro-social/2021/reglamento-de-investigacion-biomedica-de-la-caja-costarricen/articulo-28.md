@@ -1,0 +1,5 @@
+Artículo 28°. Pagos por concepto de investigación biomédica colaborativa o con patrocinio externo
+Las investigaciones colaborativas o con patrocinio externo deberán pagar a la CAJA los gastos directos e indirectos además de los gastos administrativos, todos estos de acuerdo con el Modelo Tarifario de Seguro de Salud de la CAJA vigente, así como otros gastos y retribuciones que la Institución determine fueron insumo y realizados para la investigación.
+El gasto se incluirá con base al presupuesto total de la investigación.
+Cuando no se establezca el gasto en el Modelo Tarifario de Seguro de Salud este deberá ser determinado por el Área Contabilidad de Costos de la CAJA, en un plazo máximo de 30 días naturales a partir de realizada la respectiva consulta por parte de la AISSS; o autorizado por esa Área con base en la tarifa del procedimiento o actividad que más se le parezca u otros mecanismos que esa Área determine.
+El monto pagado por el patrocinador se destinará al Fondo de Investigación e Innovación Tecnológica del CENDEISSS, según los lineamientos que para ese efecto se establezcan.

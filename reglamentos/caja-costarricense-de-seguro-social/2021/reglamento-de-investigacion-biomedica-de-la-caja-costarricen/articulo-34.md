@@ -1,0 +1,2 @@
+Artículo 34°. De la póliza de responsabilidad civil
+El patrocinador deberá suscribir una póliza de responsabilidad civil a favor del investigador y su equipo humano, para hacer frente a cualquier reclamo por lesiones o daños atribuibles a la investigación biomédica. De lo anterior se excluirá aquellos casos en donde se produzcan negligencia, impericia o violaciones al protocolo por parte del participante.

@@ -1,0 +1,2 @@
+TRANSITORIO III
+El AISSS deberá presentar a la Dirección del CENDEISSS la política y los distintos lineamientos de funcionamiento de las diferentes instancias institucionales relacionadas con la investigación biomédica, en el plazo máximo de 6 meses a partir de aprobación de este Reglamento, para su posterior aprobación ante las autoridades institucionales. Es todo. Dr. Juan Carlos Esquivel Sánchez, Director Centro de Desarrollo Estratégico e Información en Salud y Seguridad Social, CENDEISSS.

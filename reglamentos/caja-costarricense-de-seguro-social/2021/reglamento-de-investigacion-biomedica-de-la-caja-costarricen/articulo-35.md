@@ -1,0 +1,2 @@
+Artículo 35°. Del procedimiento de reclamo por incumplimientos a los beneficios del aseguramiento
+Las personas que aduzcan haber sufrido una lesión, daños o perjuicios como consecuencia de su participación en una investigación biomédica y que tengan relación con los procedimientos de esta o sus herederos en caso de muerte, que aleguen controversia con el cumplimiento de los beneficios del aseguramiento, deberán ajustarse a lo establecido en los artículos 4º y 84º de la Ley N 8956 Ley Reguladora de Contratos de Seguros.

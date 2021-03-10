@@ -1,0 +1,3 @@
+Artículo 3°. Ámbito de aplicación
+Las disposiciones de este reglamento se aplican a todas las unidades ejecutoras de la CAJA. Serán de acatamiento obligatorio y, por tanto, aplicables a toda persona física o jurídica involucrada directa o indirectamente en el desarrollo de investigación biomédica en la CAJA, independientemente de la fuente de financiamiento.
+De igual modo, aplica a toda investigación biomédica que se pretenda realizar en la CAJA, o que utilice algún recurso institucional, incluyendo el reclutamiento de participantes dentro de sus instalaciones o, pretenda la utilización de muestras biológicas o de datos de éstos, obtenidos por la Institución.

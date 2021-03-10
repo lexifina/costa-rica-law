@@ -1,0 +1,6 @@
+Artículo 20°. Derechos de autor y derechos conexos
+Los derechos morales de autor sobre las obras que se deriven de una investigación biomédica realizada en la CAJA corresponderán a su creador.
+A la CAJA, salvo pacto en contrario, le corresponderán los derechos patrimoniales de dichas obras si estas fueron creadas por su personal en el marco de las relaciones laborales, de empleo público o servicios profesionales, financiadas o patrocinadas, total o parcialmente por la CAJA; incluyendo la divulgación de la investigación.
+En investigaciones de orden colaborativo, los derechos de autor y derechos conexos se deberán establecer en el convenio o carta de entendimiento suscrito entre la CAJA, el investigador y las otras partes, de acuerdo al nivel de contribución de las partes.
+En investigaciones con patrocinio externo los derechos de autor y derechos conexos se deberán establecer en el contrato respectivo regulado en el presente Reglamento, se deberá suscribir entre la CAJA, el patrocinador y el investigador.
+Lo anterior de acuerdo con las disposiciones de la Ley de derechos de autor y derechos conexos (N°6683) y la Ley de procedimientos de observancia de derechos de propiedad intelectual (N°8039).
