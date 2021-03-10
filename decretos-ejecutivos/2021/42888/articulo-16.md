@@ -1,0 +1,6 @@
+Artículo 16.-Notificaciones. Con el fin de fomentar la libre competencia regional, la ANC de un Estado Parte podrá notificar de manera voluntaria al Comité, por medios escritos o electrónicos, información pública sobre una actividad de aplicación relativa a las prácticas u operaciones de concentración referidas en su ley nacional de competencia, si considera que esta podría afectar intereses importantes de otro u otros Estados Parte.
+Esta notificación se realizará lo antes posible, siempre que no sea contraria a la legislación de competencia del Estado Parte y que no afecte alguna investigación en curso.
+Para los propósitos del presente Reglamento, las actividades de aplicación que podrían afectar intereses importantes de otro u otros Estados Parte, incluyen aquellas que:
+a) sean relevantes para las actividades de aplicación de otro u otros Estados Parte;
+b) involucren prácticas anticompetitivas en el territorio de otro u otros Estados Parte y que puedan ser significativas para estos; o
+c) involucren operaciones de concentración en las cuales uno o más de los agentes económicos involucrados en la operación, o un agente económico que controle uno o más de los agentes económicos en la operación de concentración, esté establecido u organizado bajo las leyes de otro u otros Estados Parte.

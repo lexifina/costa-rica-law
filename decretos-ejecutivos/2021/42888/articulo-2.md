@@ -1,0 +1,2 @@
+Artículo 2º-Objeto. El presente Reglamento tiene como objeto fomentar la competencia regional a través de mecanismos de cooperación y la promoción de la competencia, a fin de contribuir al desarrollo de las actividades económicas y maximizar los beneficios de la liberalización comercial.
+Los Estados Parte interpretarán y aplicarán las disposiciones del presente Reglamento a la luz de lo establecido en el párrafo anterior y, en lo procedente, de conformidad con las disposiciones de los demás instrumentos jurídicos del Subsistema de la Integración Económica Centroamericana.

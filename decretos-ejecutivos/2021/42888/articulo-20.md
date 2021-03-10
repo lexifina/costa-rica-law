@@ -1,0 +1,1 @@
+Artículo 20.-Capacitación Conjunta. Con el fin de elevar el nivel técnico de los funcionarios de las ANC a nivel regional, el Comité fomentará la realización de actividades de capacitación técnica de manera conjunta.

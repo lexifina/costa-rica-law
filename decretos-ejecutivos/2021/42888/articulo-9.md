@@ -1,0 +1,3 @@
+Artículo 9º-Reuniones del Comité. El Comité se reunirá al menos una vez por semestre en el marco de la RUA. Esta reunión deberá coincidir con una de las reuniones del COMIECO, con el objetivo de que el Comité le informe sobre sus actividades. Asimismo, el Comité podrá reunirse las veces que sea necesario, de forma virtual o presencial, previo conocimiento del COMIECO.
+En las reuniones, el Comité contará con el apoyo técnico de la SIECA.
+Los participantes en las reuniones del Comité guardarán estricta confidencialidad sobre lo que en estas se discuta, así como sobre la información intercambiada, salvo cuando se trate de información pública.

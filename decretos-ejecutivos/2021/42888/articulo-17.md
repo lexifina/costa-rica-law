@@ -1,0 +1,2 @@
+Artículo 17.-Consultas. Para propiciar el entendimiento mutuo, o para abordar asuntos específicos que surjan en virtud del presente Reglamento, un Estado Parte podrá solicitar consultas a otro u otros Estados Parte, a través del Comité. Lo anterior, sin perjuicio de la autonomía de cada Estado Parte de desarrollar, mantener y aplicar su legislación de competencia.
+El Estado Parte al que se haya dirigido una solicitud de consultas otorgará consideración plena y con comprensión a las inquietudes del otro Estado Parte.

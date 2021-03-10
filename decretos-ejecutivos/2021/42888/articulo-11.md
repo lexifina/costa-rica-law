@@ -1,0 +1,2 @@
+Artículo 11.-Toma de decisiones del Comité. Las decisiones del Comité serán adoptadas por consenso de sus miembros. Cuando un Estado Parte no haya asistido a la reunión, podrá manifestar por escrito su posición al Comité en un plazo máximo de quince días calendario, que correrán a partir de la recepción de la notificación de la ayuda de memoria de la reunión.
+No obstante lo anterior, se podrán adoptar decisiones por consenso que produzcan efectos o sean de interés solamente para dos o más países de la región, teniendo únicamente efecto vinculante para estos países.
