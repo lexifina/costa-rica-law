@@ -1,1 +1,0 @@
-Artículo 5º—La Comisión definirá la periodicidad de sus sesiones, así como el lugar, hora y fecha de las mismas. La convocatoria a las Sesiones será realizada por la Dirección Administrativa Financiera.
