@@ -1,4 +1,4 @@
-Artículo 18.—La Lista Oficial de Vacunas incluidas en el esquema público básico universal de Costa Rica son las siguientes:
+Artículo 18.-La Lista Oficial de Vacunas incluidas en el esquema público básico universal de Costa Rica son las siguientes:
 1. Antituberculosa (BCG).
 2. Antipolio, oral y polio intramuscular.
 3. Antidifteria.
@@ -13,5 +13,6 @@ Artículo 18.—La Lista Oficial de Vacunas incluidas en el esquema público bá
 12. Antineumococo, conjugada y de polisacáridos.
 13. Rotavirus.
 14. Papiloma Humano.
+15. Covid-19.
 La Caja Costarricense de Seguro Social deberá tomar las previsiones para incluirlo en el Catálogo de Suministros de la Institución y en la Lista Oficial de Medicamentos (LOM).
-(Así reformado por el artículo 1° del decreto ejecutivo N° 41050 del 12 de marzo del 2018)
+(Así reformado por el artículo 1° del decreto ejecutivo N° 42889 del 10 de marzo del 2021)
