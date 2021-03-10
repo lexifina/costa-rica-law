@@ -9,4 +9,5 @@ INCISO A: DETALLE DE LA PROYECCIÓN DE LOS INGRESOS CORRIENTES DEL GOBIERNO DE L
 (Nota de Sinalevi: Por lo extenso de su contenido y tipo de formato consultar el Alcance Digital N° 318 a La Gaceta N° 284 del 2 de diciembre del 2020)
 INCISO B: DETALLE DEL CÁLCULO DE LOS INGRESOS EXTRAORDINARIOS INTERNOS DEL GOBIERNO DE LA REPÚBLICA PARA EL EJERCICIO ECONÓMICO DE 2021 (en colones corrientes)
 (Nota de Sinalevi: Por lo extenso de su contenido y tipo de formato consultar el Alcance Digital N° 318 a La Gaceta N° 284 del 2 de diciembre del 2020)
+(Así reformado el inciso b) anterior por el artículo 1° de la ley N° 9955 del 19 de febrero del 2021)
 (Así reformado por el artículo 1° de la ley N° 9942 del 25 de enero del 2021)
