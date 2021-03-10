@@ -14,4 +14,8 @@ ESTATUTOS DE LA ORDEN NACIONAL JUAN MORA
 FERNANDEZ
 CAPITULO I
 Disposiciones generales
-Artículo 1°.-Se instituye la Orden Nacional de Juan Mora Fernández destinada exclusivamente a los extranjeros a quienes Costa Rica desea honrar por motivos de conveniencia pública o por sus servicios distinguidos al país, particularmente en la actividad diplomática o en materia de relaciones exteriores.
+Artículo 1º-Se instituye la Orden Nacional de Juan Mora Fernández destinada exclusivamente a los extranjeros a quienes Costa Rica, desea honrar, particularmente en la actividad diplomática o en materia de relaciones exteriores, por los siguientes motivos:
+a) conveniencia pública o por sus servicios distinguidos al país,
+b) Por la reciprocidad recibida del país del Jefe de Misión que se pretende condecorar y,
+c) por contar el postulante, con un mínimo de tres años de estancia en el país, desempeñándose como tal.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 42937 del 10 de marzo del 2021)
