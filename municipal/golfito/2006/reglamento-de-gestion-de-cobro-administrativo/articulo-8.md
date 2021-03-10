@@ -1,6 +1,0 @@
-Artículo 8º—Para el cumplimiento de sus objetivos, la oficina encargada del cobro de esta Municipalidad se encargará de:
-a. Realizar las gestiones de cobro administrativo de las cuentas atrasadas.
-b. Preparar los avisos de Cobro.
-c. Preparar los arreglos de pago.
-d. Prepara los expedientes de cobro administrativo.
-e. Preparar y remitir la documentación necesaria de las cuentas en estado de morosidad a los abogados (internos o aquellos de contratación externa) designados formalmente por la Municipalidad para que tramiten los procedimientos de cobro en la vía judicial.

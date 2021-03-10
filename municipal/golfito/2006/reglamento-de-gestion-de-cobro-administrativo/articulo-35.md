@@ -1,1 +1,0 @@
-Artículo 35.—Si el contribuyente incumpliere en las fechas de pago establecidas en el arreglo de pago sin haber presentado por escrito las razones, este arreglo quedará sin efecto y la cuenta podrá tramitarse mediante cobro judicial.

@@ -1,2 +1,0 @@
-Artículo 26.—Los honorarios profesionales derivados de las deudas con la Municipalidad se calcularan de acuerdo con el monto de las sumas pendientes de así como aquellas referencias emanadas en aranceles, tablas y otros aspectos legales establecidos por el Código de Abogados de Costa Rica.
-Este cálculo de honorarios se planteara y estimara en el pliego de demandas contra el sujeto deudor de la Municipalidad.
