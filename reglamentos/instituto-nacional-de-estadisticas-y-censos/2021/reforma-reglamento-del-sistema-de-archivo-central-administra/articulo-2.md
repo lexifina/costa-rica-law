@@ -1,0 +1,2 @@
+Artículo 2º-Modificar el artículo 5 del Reglamento del Sistema de Archivo Central del Instituto Nacional de Estadística y Censos, para que en lo sucesivo se lea de la siguiente forma:
+"Artículo 5º-El Sistema Institucional de los Archivos del Instituto Nacional de Estadística y Censos deberá facilitar los documentos a los usuarios internos y externos, de acuerdo con lo que establecen los artículos 24 y 30 de la Constitución Política, los artículos 10 y 42 de la Ley del Sistema Nacional de Archivos y el artículo 10 de la Ley N° 9694 del Sistema de Estadística Nacional."
