@@ -1,1 +1,0 @@
-Artículo 42.—El procedimiento de rescisión o resolución contractual será tramitado por la Proveeduría institucional del Ministerio de Educación Pública siguiendo el debido proceso y previa investigación preliminar por parte del personal del Departamento de Transporte Estudiantil.

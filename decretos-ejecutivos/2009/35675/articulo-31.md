@@ -1,4 +1,0 @@
-Artículo 31.—En la Ejecución del Programa de Transporte Estudiantil la Dirección Financiera tendrá las siguientes obligaciones y atribuciones:
-a) Ordenar el trámite de pago a favor del transportista contratado, por mes vencido, con sujeción a los procedimientos establecidos mediante factura, previa certificación del centro educativo de que el servicio fue prestado en los términos establecidos.
-b) Solicitar la información que estime necesaria para efectos de pago y en cuanto a la constatación de que los estudiantes que han sido transportados y cuyo servicio se está cobrando al Ministerio de Educación Pública, efectivamente lo recibieron.
-c) Pagar oportunamente las planillas de transferencias gestionadas por el Departamento de Transporte Estudiantil por concepto de subsidio por medio de las Juntas Administrativas.

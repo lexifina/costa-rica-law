@@ -1,1 +1,0 @@
-Artículo 23.—Las Becas de Transporte del Fondo Nacional de Becas son de naturaleza institucional, su asignación es competencia del Director del centro educativo junto con el Departamento de Orientación y el comité de becas y para ello deberán acatar los lineamientos dispuestos al efecto por las autoridades competentes.

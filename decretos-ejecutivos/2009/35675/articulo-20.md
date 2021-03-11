@@ -1,1 +1,0 @@
-Artículo 20.—En todo lo concerniente a la administración de los fondos asignados para el subsidio de transporte estudiantil, las Juntas deberán acatar las circulares, lineamientos y demás disposiciones emanadas por las autoridades competentes del Ministerio de Educación Pública.

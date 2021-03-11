@@ -1,1 +1,0 @@
-Artículo 15.—Los contratos y sus modificaciones realizados con motivo de la contratación de los servicios de transporte estudiantil se regirán en materia de refrendo y aprobación interna de la instancia competente, de conformidad con lo establecido en los artículos 3 y 4 del Reglamento sobre Refrendo de las Contrataciones de la Administración Pública.

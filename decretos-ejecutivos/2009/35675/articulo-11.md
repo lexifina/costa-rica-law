@@ -1,1 +1,0 @@
-Artículo 11.—El cartel que se promueva con motivo de la adquisición de los servicios de transporte estudiantil será objeto de observaciones, aclaraciones y recurso de objeción por parte de los potenciales oferentes, de conformidad con la Ley de Contratación Administrativa y su Reglamento.
