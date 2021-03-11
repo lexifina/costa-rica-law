@@ -14,3 +14,4 @@ Sistema de Recepción en línea de Signos Distintivos, WIPO File en el Registro 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-08-26 | la propia norma |
+| 2 | 2021-03-11 | Directriz 2 (2021-03-11) |
