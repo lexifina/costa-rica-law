@@ -1,0 +1,64 @@
+MUNICIPALIDAD DE POÁS
+CONCEJO MUNICIPAL
+REGLAMENTO DE CAJA CHICA
+DE LA MUNICIPALIDAD DE POÁS
+La suscrita Roxana Chinchilla Fallas, en calidad de Secretaria del Concejo Municipal de la Municipalidad de Poás, hago constar que: el Concejo Municipal del Cantón de Poás en su sesión ordinaria N° 043-2021, celebrada el 23 de febrero del 2021, acuerdo N° 574- 02-2021, tomó acuerdo por unanimidad y definitivamente aprobado;
+Aprobar en los términos expuestos el Reglamento de Caja Chica de la Municipalidad de Poás, el cual se hizo una modificación integral, mismo que se detalla:
+REGLAMENTO DE CAJA CHICA DE LA
+MUNICIPALIDAD DE POÁS
+CAPÍTULO I
+De las Definiciones
+Artículo 1°-Entiéndase en el texto de esta normativa las siguientes definiciones:
+1. Arqueo de caja chica: verificación tanto contable y financiera, como del cumplimiento de la normativa y reglamentación que rige el manejo del fondo de caja chica.
+2. Caso fortuito o Fuerza Mayor: suceso que sin poder preverse o que previsto no puede evitarse, producido por la naturaleza o por hechos del hombre.
+3. Compra menor: es la adquisición de bienes y servicios de menor cuantía que no superen los límites preestablecidos para el trámite de caja chica y cuya necesidad sea urgente y requiera de atención inmediata.
+4. Fondos de caja chica: fondo que contiene recursos para la adquisición de bienes y servicios que no son de uso común o que no hay existencia en la bodega municipal.
+5. Liquidación: rendición de cuentas que efectúa el funcionario responsable del fondo de caja chica, mediante la presentación de comprobantes originales que sustentan las adquisiciones o servicios recibidos.
+6. Municipalidad: Municipalidad de Poás.
+7. Viáticos: gastos de viaje en el interior del país y se pagarán por medio del fondo de caja chica siempre y cuando no supere el monto máximo establecido para el comprobante.
+CAPÍTULO II
+Del fondo de caja chica y condiciones de entrega de dinero
+Artículo 2°-Se establece de acuerdo con el artículo 1º de la Ley de Administración Financiera de la República y Presupuestos Públicos un fondo fijo de Caja Chica para el servicio de esta Municipalidad, por el monto equivalente a tres salarios base del cargo "Auxiliar Administrativo 1", de la Corte Suprema de Justicia. Dicho monto contempla la sumatoria de tres cajas auxiliares del fondo, entendiéndose que cada una de las cajas auxiliares tendrá un monto equivalente a un salario base del cargo "Auxiliar Administrativo 1", de la Corte Suprema de Justicia.
+Artículo 3°-La correcta utilización del fondo de caja chica está a cargo del jefe de Tesorería, quien es responsable de la aplicación de las normas que rigen para su debido funcionamiento y tendrá al menos las siguientes funciones:
+1) Controlar, comprar y pagar en las condiciones que lo establece el presente Reglamento, etc.
+2) En lo que requiera: crear y mantener actualizado el registro de firmas autorizadas para operar la cuenta corriente correspondiente
+Artículo 4°-El fondo se mantendrá en dinero efectivo y servirá para procedimientos de excepción y por consiguiente limitado a la atención de gastos menores, indispensables y urgentes, según el criterio justificado de la administración, para atender exclusivamente la adquisición de servicios y artículos en situaciones de verdadera urgencia, y aquellos que por su naturaleza y monto se exceptúan de los trámites de la orden de compra y de la cancelación directa por medio de cheque. Se considerarán Gastos Menores aquellos que no excedan el monto máximo fijado por este reglamento y que corresponden a la adquisición de bienes y servicios que no se encuentren en bodegas de las Proveedurías Institucionales, ya sea porque no se ha llevado a cabo o está en proceso la correspondiente contratación administrativa o porque su naturaleza impide ubicarlos en bodegas. Además, entre los denominados Gastos Menores se consideran los Viáticos, tanto al interior como al exterior del país y los gastos de representación.
+Artículo 5°-Ningún pago por caja chica podrá exceder el monto de factura máximo a medio salario base del cargo "Auxiliar Administrativo 1", de la Corte Suprema de Justicia.
+Artículo 6°-os egresos que se realicen por caja chica se tramitan de la siguiente manera:
+a) El beneficiario de la caja chica debe ser funcionario municipal, debe estar nombrado en la planilla municipal. En ningún momento se girará caja chica a favor de miembros del Concejo Municipal, servidores en calidad de interinos o
+personal nombrado por contrato.
+b) El beneficiario debe llenar la fórmula de solicitud de caja chica con el encargado de Proveeduría, la cual debe firmar
+el Alcalde o la persona que este designe por escrito, luego la traslada a Tesorería para verificar la existencia de partida presupuestaria. Debe detallarse debidamente el objeto de compra el cual no podrá variarse.
+c) En caso de existir partida presupuestaria la tesorería procederá a llenar el formulario denominado comprobante de pago en efectivo, en original y una copia. Adjunta al mismo formulario de comprobante de pago por caja chica. Ambos formularios deben poseer el mismo prenumerado. De no existir partida presupuestaria el formulario de solicitud de caja chica se devolverá al encargado de proveeduría.
+d) Una vez entregados los formularios, los mismos son autorizados para la ejecución por el Alcalde o Dirección Financiera, estos quienes firmarán la respectiva autorización, previa verificación de que el objeto de compra se ajuste a lo establecido en el artículo tercero de este Reglamento.
+e) Cumplido lo anterior se dirigirá al Departamento de Tesorería donde se verificará los documentos y entregará el dinero, el beneficiario firmará todos los formularios respectivos, los cuales se reservará Tesorería.
+f) El beneficiario posee un plazo de 24 horas para liquidar el dinero entregado mediante comprobante de pago a nombre de la Municipalidad de Poás. El comprobante debe ser original, no debe poseer tachaduras, sobre escrituras u otros aspectos que puedan hacer dudar de su validez.
+g) En caso de que la liquidación no se realice dentro del tiempo indicado en el inciso f) de este artículo, facultará para que la Tesorería ordene en contra del servidor responsable el rebajo de dinero en el próximo pago, así como No se autorice girar
+otro comprobante al beneficiario infractor.
+Artículo 7°-No se permitirá el cambio de cheques personales y de contribuyentes con fondos de caja chica, ni se permitirán préstamos como pueden ser vales a favor de un funcionario municipal con cargo a la planilla municipal o de otra índole.
+CAPÍTULO III
+De los reintegros
+Artículo 8°-Los desembolsos hechos por la caja chica se reintegran semanalmente, o antes de este período si el fondo llegare a agotarse. Para tal efecto la Tesorería presentará al Alcalde o Dirección Financiera el detalle de los egresos realizados, clasificados por partidas de presupuesto y adjunta a dicho detalle los originales de los comprobantes de caja chica y las facturas o recibos originales con que cuenta, para que proceda a ordenar al Departamento de Contabilidad la emisión de cheque a nombre del Encargado del Fondo.
+Artículo 9°-No será posible El fraccionamiento del pago de una compra o servicio para presentarlo por caja chica, así como cualquier otra infracción al presente Reglamento será motivo de sanción conforme a las disposiciones contenidas en el Reglamento de Organización y Servicio de la Municipalidad y leyes conexas en materia de sanciones administrativas disciplinarias.
+CAPÍTULO IV
+De los arqueos
+Artículo 10.-Se realizará por parte del Departamento correspondiente hacer arqueos en forma sorpresiva al fondo fijo de caja chica, con el propósito de verificar, supervisar y controlar la aplicación de las normas y principios de auditoría vigentes y de las sanas prácticas de administración. La administración procurará realizar un arqueo de caja chica trimestralmente que deberá dejar constancia del mismo en un expediente, el día en que se practicó el arqueo, y la evidencia respectiva del resultado obtenido, y debe firmar conjuntamente con el encargado del fondo.
+Artículo 11.-Si resultare una diferencia luego de realizado el arqueo, ésta deber ser justificada por el responsable del fondo de caja chica, en forma inmediata debe depositar el sobrante o reintegrar el faltante.
+Artículo 12.-Todo arqueo de caja chica se realizará en presencia del Encargado del Fondo, el cual tendrá el derecho de pedir una segunda verificación si tiene dudas sobre el resultado obtenido.
+Artículo 13.-Cuando el Encargado del Fondo sea sustituido por otra persona que ocupe temporalmente ese cargo por vacaciones, incapacidad, permiso con o sin goce de salario o cualquier otro motivo, se realizará un arqueo del cual se dejará constancia escrita en el expediente, con la firma de la Tesorería y de la persona que lo sustituirá. Igual procedimiento se utilizará cuando el titular se reintegre a su puesto.
+CAPÍTULO V
+De los respaldos e información
+Artículo 14.-Corresponde al Concejo Municipal, mediante el correspondiente acuerdo que emane de su seno variar el monto establecido a este fondo, según solicitud escrita y justificada que mediante un estudio de las necesidades institucionales y una estimación de los gastos menores a sufragar por medio de ese fondo. Concluido este estudio trasladará la información al superior jerárquico, para que éste proceda al trámite correspondiente de solicitud, dicha gestión la hará la Dirección Administrativa y Financiera o en su defecto el Alcalde Municipal, con el fin de satisfacer las necesidades institucionales de los bienes y servicios que deben adquirirse por este medio.
+Artículo 15.-El encargado del fondo elaborará y aplicará un registro y control adecuado para la liquidación correspondiente a pago de viáticos o gastos de representación. No se autorizará un anticipo de dinero a un funcionario que tenga una liquidación previa pendiente, debiendo en tal caso el responsable del fondo fijo caja chica solicitar al funcionario la presentación de la liquidación pendiente.
+Articulo 16.-El encargado responsable del fondo enviara al Concejo Municipal cuando se le solicite, un informe detallado de todos los pagos realizados con el fondo, incluyendo como mínimo: fecha, monto, departamento o responsable y bien o servicio adquirido.
+CAPÍTULO VI
+De las Cajas Auxiliares y el Control del Fondo
+Artículo 17.-La administración podrá crear Cajas Auxiliares para los programas de la Unidad de atención Vial Cantonal y el Acueducto Municipal, además de la principal, las cuales operarán como fondos fijos. En su creación y funcionamiento se deberán atender las siguientes disposiciones:
+a) La creación de las cajas auxiliares será definida en atención a las necesidades de cada programa o subprograma administrativo de las áreas respectivas.
+b) La determinación del monto a asignar y el número de cajas auxiliares con cuenta bancaria la realizará el respectivo responsable en coordinación con el máximo jerarca de la administración.
+c) En el caso de cajas auxiliares en efectivo el monto autorizado por el responsable, en todo caso no podrá exceder el monto equivalente a un salario base del cargo "Auxiliar Administrativo 1", de la Corte Suprema de Justicia, lo anterior para cada una de las tres cajas auxiliares que pueden crearse, entendiéndose que tanto la caja de la administración, acueducto y gestión vial no superaran el límite apuntado.
+d) El límite para las cajas auxiliares en efectivo no podrá exceder en el monto de factura máximo, al 50% salario base del cargo "Auxiliar Administrativo 1", de la Corte Suprema de Justicia.
+Articulo 18.-Corresponderá al responsable del Fondo Caja Chica establecer, evaluar y mantener un adecuado sistema de control del fondo autorizado, en concordancia con las sanas prácticas de control interno, establecidas en la Ley de Control Interno, en el Manual de Normas Generales de Control Interno para la Contraloría General de la República y demás Órganos Sujetos a su Fiscalización, en este Reglamento, además dichos controles serán de aplicación en los mismos términos para las cajas auxiliares.
+Articulo 19.-El Responsable del Fondo de Caja Chica, así como cualquier otro funcionario que detecte alguna irregularidad, pondrán en conocimiento del superior administrativo de la Institución, los hechos irregulares en que incurran los servidores, relacionados en el manejo y naturaleza de los recursos del Fondo de Caja Chica y las cajas auxiliares, para que inicie el procedimiento disciplinario que corresponda por eventual falta grave, garantizando en todo caso el debido proceso al funcionario, bajo pena de responsabilidad, sin perjuicio de la responsabilidad civil y penal de que pudiera ser objeto.
+Artículo 20.-El presente reglamento deroga toda disposición, directriz, circular, comunicado, etc., que contravenga el presente reglamento.
+Poás, 2 de marzo del 2021.
