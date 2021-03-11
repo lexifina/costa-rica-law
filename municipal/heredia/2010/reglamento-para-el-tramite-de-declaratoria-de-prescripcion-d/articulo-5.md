@@ -1,3 +1,0 @@
-Artículo 5º—Los plazos de prescripción estarán sujetos a las causas de interrupción y suspensión dispuestas en los términos de los artículos 53 y 54 del Código de Normas y Procedimientos Tributarios.
-Cuando se produzca alguna causa de suspensión de la prescripción y luego ésta desaparece, el plazo prescriptivo continuará sumando.
-La interrupción de la prescripción tendrá como no trascurrido el plazo que corrió con anterioridad al acontecimiento interruptor y el término comenzará a computarse de nuevo a partir del 1º de enero del año calendario siguiente a aquel en el que se produjo la interrupción.

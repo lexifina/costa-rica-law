@@ -1,1 +1,0 @@
-Artículo 4º—Conforme lo establece el numeral 52 del Código de Normas y Procedimientos Tributarios, el término de prescripción se contará desde el primero de enero del año calendario siguiente a aquel en que el tributo debe pagarse.

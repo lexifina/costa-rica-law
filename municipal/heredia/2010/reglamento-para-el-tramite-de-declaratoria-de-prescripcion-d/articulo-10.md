@@ -1,1 +1,0 @@
-Artículo 10.—Todo funcionario municipal tiene la obligación de conocer el presente Reglamento; por lo que la inobservancia y vulneración a esta normativa se sancionará de conformidad con las disposiciones de los artículos 149 y 150 del Código Municipal, Ley General de la Administración Pública y el Código de Trabajo, previa garantía del debido proceso.
