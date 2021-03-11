@@ -1,0 +1,2 @@
+Artículo 5. Ámbito de acción
+La Auditoría Interna ejerce sus funciones en las áreas organizacionales de BN Sociedad Administradora de Fondos de Inversión, S.A., de conformidad con lo estipulado en el artículo 22 de la Ley General de Control Interno.
