@@ -14,3 +14,4 @@ Reglamento para la donación o venta de bienes muebles declarados en mal estado 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-03-11 | la propia norma |
+| 2 | 2021-03-11 | Reglamento municipal 6 (2021-03-03) |
