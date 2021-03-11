@@ -1,0 +1,1 @@
+Artículo 17.-El Comité Cantonal de la Persona Joven, contará con el apoyo, asesoría, coordinación y capacitación por parte del Concejo Municipal para la formulación y ejecución de propuestas y proyectos locales y nacionales, de acuerdo con sus necesidades y de conformidad con el principio de legalidad, las cuales deberá hacer llegar por medio de la secretaría.

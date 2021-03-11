@@ -1,0 +1,1 @@
+Artículo 9°-Los acuerdos se tomarán por mayoría simple de los miembros presentes, salvo que el ordenamiento jurídico ordene una mayoría diferente. Cuando en una votación se produzca empate, se votará nuevamente en el mismo acto o la sesión ordinaria inmediata siguiente, y, e empatar otra vez, el asunto se tendrá por desechado.
