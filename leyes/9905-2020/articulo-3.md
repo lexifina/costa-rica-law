@@ -1,0 +1,1 @@
+ARTÍCULO 3º-El lote donado será utilizado exclusivamente para ubicar la iglesia de la Inmaculada Concepción y sus instalaciones administrativas. En caso de que se varíe el nuevo uso establecido en esta ley o se disuelva la persona jurídica donataria, la propiedad del terreno volverá a ser de la Municipalidad de Goicoechea.
