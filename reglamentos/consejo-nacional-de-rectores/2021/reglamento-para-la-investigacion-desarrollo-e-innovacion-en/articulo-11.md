@@ -1,0 +1,3 @@
+CAPÍTULO V
+Proyectos de Investigación e Innovación
+Artículo 11.-Sobre el apoyo a proyectos de investigación e innovación. El SINAES podrá apoyar a las instituciones de educación superior afiliadas y a sus carreras acreditadas, en el fortalecimiento y promoción de la investigación como criterio de calidad de la educación superior, de acuerdo con la misión y objetivos del SINAES, apoyo que su vez, se constituye en un incentivo para las carreras acreditadas. Este incentivo se podrá otorgar a través de un apoyo financiero parcial para cubrir algunos gastos relativos al desarrollo de proyectos de investigación e innovación para el mejoramiento de la calidad de la educación superior de acuerdo con el contenido presupuestario anual de la institución.

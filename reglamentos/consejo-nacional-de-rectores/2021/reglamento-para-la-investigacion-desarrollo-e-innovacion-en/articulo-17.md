@@ -1,0 +1,4 @@
+CAPÍTULO VII
+Convocatorias a Proyectos de Investigación
+Artículo 17.-Convocatorias para proyectos de investigación. La División de Investigación, Desarrollo e Innovación presentará al Consejo Nacional de Acreditación la propuesta de la convocatoria, de acuerdo con la disponibilidad de recursos institucionales y las Líneas de investigación, desarrollo e innovación que el Consejo Nacional de acreditación seleccione para la respectiva convocatoria.
+Para cada convocatoria se establecerán los objetivos y requisitos de participación, así como los criterios para evaluar los proyectos de investigación recibidos. El análisis y valoración de los proyectos de investigación está a cargo de un equipo de evaluadores externos ad hoc, que se conforma para cada convocatoria, cuyo perfil responde a las Líneas investigación, desarrollo e innovación y temáticas que se establece para determinado periodo.

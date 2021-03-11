@@ -1,0 +1,8 @@
+Artículo 16.-Sobre las funciones del Comité de Proyectos de Investigación
+a) Proponer al Consejo Nacional de Acreditación para valoración y aprobación, los términos de referencia para la convocatoria de proyectos de investigación, que se publicará periódicamente.
+b) Realizar la gestión y seguimiento técnico, administrativo y legal de los proyectos de investigación aprobados.
+c) Dar seguimiento a las obligaciones de los evaluadores externos de los proyectos de investigación para velar que cumplan con la normativa, lineamientos y procedimientos éticos establecidos para la gestión y evaluación de proyectos de investigación.
+d) Proponer al Consejo Nacional de Acreditación para aprobación, la conformación del equipo de evaluadores externos de los proyectos de Investigación, en cada convocatoria.
+e) Asegurar que los proyectos de investigación constituyan iniciativas innovadoras con resultados concretos y evaluables, todo de conformidad con las políticas y normativa que dicte el Consejo Nacional de Acreditación.
+f) Informar periódicamente a la Dirección Ejecutiva del SINAES acerca del avance en la gestión de los proyectos de investigación que se están ejecutando; el logro de los resultados planteados, así como proponer y/o adoptar las acciones que resulten pertinentes en relación con dichos proyectos. Para estos efectos, la Dirección de la División de Investigación, Desarrollo e Innovación preparará informes periódicos, con el apoyo del personal a su cargo, para someterlos a conocimiento del Consejo Nacional de Acreditación.
+g) Las demás que correspondan de acuerdo con la normativa aplicable o que le sean requeridas por el Consejo Nacional de Acreditación de la Educación Superior, conforme a la naturaleza de sus funciones.
