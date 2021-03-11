@@ -1,0 +1,1 @@
+ARTÍCULO 2º-Se autoriza a la Municipalidad de Goicoechea para que done el inmueble segregado y desafectado a las Temporalidades de la Arquidiócesis de San José, cédula de persona jurídica número tres-cero uno cero-cero cuatro cinco uno cuatro ocho (N.° 3-010-045148), según se dispuso en el artículo 1.
