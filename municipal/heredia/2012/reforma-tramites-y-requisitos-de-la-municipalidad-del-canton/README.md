@@ -14,3 +14,4 @@ Reforma Trámites y requisitos de la Municipalidad del cantón Central de Heredi
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-05-24 | la propia norma |
+| 2 | 2021-03-11 | Reglamento municipal 0 (2021-03-11) |
