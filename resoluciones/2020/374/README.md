@@ -14,3 +14,4 @@ Procedimiento de reservaciones del Parque Nacional Chirripó
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-09-28 | la propia norma |
+| 2 | 2021-03-11 | Resolución 118 (2021-03-11) |
