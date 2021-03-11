@@ -18,3 +18,4 @@ Trámites y requisitos de la Municipalidad del cantón Central de Heredia Ley N�
 | 3 | 2005-01-31 | Acuerdo municipal 0 (2005-01-31) |
 | 4 | 2006-01-04 | Acuerdo municipal 303 (2006-01-04) |
 | 5 | 2012-04-09 | Acuerdo municipal 0 (2012-04-09) |
+| 6 | 2021-03-11 | Reglamento municipal 0 (2021-03-11) |
